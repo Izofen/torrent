@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:3C35E2F8E5AD453D47FE9BF97B2AEFD452908931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Ravanna - 2 Albums (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 ```bash
 magnet:?xt=urn:btih:6D844A8714331DF99123B99F2E23E7ED7F227ADD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:6D844A8714331DF99123B99F2E23E7ED7F227ADD
 magnet:?xt=urn:btih:3603B0CD6799C394ACCFE49253995A56F56813A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Alcatrazz - V (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:3BA094D2BF536C1C8A782F88350AAF60AD3F91A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Iced Earth - Hellrider - I Walk Among You (2023) Compilation, Remastered [FLAC|L
 magnet:?xt=urn:btih:4202F1E383E0CA0D393CD2EC69BBE43C711297E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:4202F1E383E0CA0D393CD2EC69BBE43C711297E0
 ```bash
 magnet:?xt=urn:btih:02B5501115FA19CAE4D83C0497988D2069C32994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:02B5501115FA19CAE4D83C0497988D2069C32994
 magnet:?xt=urn:btih:97ABE268D0D4D2B24410BB769C80A4821D809D7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Jag Panzer - Mechanized Warfare (2001) [FLAC|Lossless|image + .cue] <Heavy, Powe
 ```bash
 magnet:?xt=urn:btih:1CA7E21BEE57226BAAC82257FE5AE703ADBA1F06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:1CA7E21BEE57226BAAC82257FE5AE703ADBA1F06
 magnet:?xt=urn:btih:CBEABA416703D4077FDC07413C9537321F0FC760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Max Shin - 2 Albums (2023) [MP3|320 Kbps] <Punk, Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:50F5369C036DDEC005E261AE9A53A22DF3840FA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Stilgar - Живым Или Мёртвым (2023) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:2641F4998E41AF80B0F54791EF45DD93F18821D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Blackbird Angels - Solsorte (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock
 ```bash
 magnet:?xt=urn:btih:261873D8F3A483734F1B42BB6EB15079DE2D871D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Entrails - An Eternal Time Of Decay (2022) [FLAC|Lossless|image + .cue] <Death M
 magnet:?xt=urn:btih:03D8457410DBC0FA838239820F4975738E6ADAE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Sorrow - Death Of Sorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom, Thra
 ```bash
 magnet:?xt=urn:btih:CD66BE5B12761F61A00413257C2AD9FE78EBF047
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +429,8 @@ magnet:?xt=urn:btih:CD66BE5B12761F61A00413257C2AD9FE78EBF047
 magnet:?xt=urn:btih:96B19A3C72F78380406EF6FDC99B7A420CF4B125
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ Vanir - Sagas (2022) [FLAC|Lossless|WEB-DL|tracks] <Viking, Folk Metal>
 ```bash
 magnet:?xt=urn:btih:83DB50A04F10A94156C7AF738B7CD74E2E344983
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +487,8 @@ Lari Basilio - Your Love (2022) [FLAC|Lossless|image + .cue] <Instrumental Rock,
 magnet:?xt=urn:btih:A559F2D37E473D887887A49DE2248B48E9378714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +516,8 @@ magnet:?xt=urn:btih:A559F2D37E473D887887A49DE2248B48E9378714
 magnet:?xt=urn:btih:1D1E8E4650D6CC0D5657F5852B1DC83E5DE237A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:1D1E8E4650D6CC0D5657F5852B1DC83E5DE237A2
 ```bash
 magnet:?xt=urn:btih:3C2F7506F6BD9A913AC623CF45FA1EB5A10D2DEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +575,8 @@ Headway - Headway (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 magnet:?xt=urn:btih:A9E03F9327420957B6EA232A0FA50B0212EF84D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +603,8 @@ Perfect Plan - Brace For Impact (2022) Japanese Edition [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:2BE22F41ABA2316F2839AAA13F6D0A4AE7B25350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +633,8 @@ Gathering Of Kings - Enigmatic (2022) [FLAC|Lossless|image + .cue] <Melodic Hard
 magnet:?xt=urn:btih:D6E9C8F8D2DA3D2D76ACFD0DE670B7B729F0076B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +661,8 @@ Jimi Jamison - Rock Hard (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:88DB6D88C0C0C7059291D2B6007E36F5D6809834
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +691,8 @@ Brian McDonald - Wind It Up (2000) Japanese Edition [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:E6CD7277B97217E859BB764F538BE32C02A94FDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +720,8 @@ Ploho - When the Soul Sleeps (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, 
 magnet:?xt=urn:btih:F67F54CC927FD13C5344FDDEAE547365F6EACDB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,6 +748,8 @@ magnet:?xt=urn:btih:F67F54CC927FD13C5344FDDEAE547365F6EACDB3
 ```bash
 magnet:?xt=urn:btih:906DED12E4610340461F1E18CA1D4622C5DF366A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

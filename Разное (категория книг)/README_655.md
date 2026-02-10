@@ -1,3 +1,29 @@
+###  Публикация: 1368175   (910762) от 19.03.2020
+
+Анна Пашкова | Токсично. Как построить здоровые отношения и не вляпаться (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910762.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Токсичные отношения» – так красиво психологи и медики называют отношения внутри семьи, где один человек подавляет личность другого. Порой в семьях, где партнеры склонны к насилию, происходят настоящие трагедии: у детей на почве стресса развиваются серьезные заболевания. Как не сойти с ума от чувства вины, можно ли вернуть такого малыша к жизни и, наконец, что поможет (   Читать дальше...   )Жанр: Семейная психологияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D0E7B33E82DA126903A64BA030D22F1025B5AF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368413   (910768) от 19.03.2020
 
 Лиор Арусси | Меняйся быстрее, чем наступит завтра. 5 шагов к созданию гибкого бизнеса (2019) [EPUB]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:4C297231FE64F1A83373312C7339F6A5414F681B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:4C297231FE64F1A83373312C7339F6A5414F681B
 magnet:?xt=urn:btih:4F65052AAC8D872C2BFD0DCA4EAF27BCCDC3CCBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:4F65052AAC8D872C2BFD0DCA4EAF27BCCDC3CCBC
 magnet:?xt=urn:btih:770E9C2FF2D11AA27DECD8FE46AB8E4DF2433F16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:770E9C2FF2D11AA27DECD8FE46AB8E4DF2433F16
 ```bash
 magnet:?xt=urn:btih:09E3604B4DE4AC0FCECF3771A6C70C1F0F15F7B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ Inga Dream | Мечтай и действуй. Как повзрослеть и 
 magnet:?xt=urn:btih:DC1610A9D48B5D9DD770334966D5F6A1A43BDE54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +181,8 @@ magnet:?xt=urn:btih:DC1610A9D48B5D9DD770334966D5F6A1A43BDE54
 magnet:?xt=urn:btih:E8538202843CDD8D872DA42C32803BDCACFCEDBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:E8538202843CDD8D872DA42C32803BDCACFCEDBA
 magnet:?xt=urn:btih:3DB0F584A90C672B0CC321787398F02E10BEEA80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:3DB0F584A90C672B0CC321787398F02E10BEEA80
 ```bash
 magnet:?xt=urn:btih:12739311893E7A5755141345D7BA8AA9B1C54863
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:12739311893E7A5755141345D7BA8AA9B1C54863
 magnet:?xt=urn:btih:B4ADE4BCCD6A5E943CF300C280107D066B2507D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:B4ADE4BCCD6A5E943CF300C280107D066B2507D2
 magnet:?xt=urn:btih:EA7191523D7CF050D4DC436F88D650C04C664DFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:EA7191523D7CF050D4DC436F88D650C04C664DFE
 ```bash
 magnet:?xt=urn:btih:8EB20A888CFA493006B1C7AABA8E09005FA30151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +342,8 @@ magnet:?xt=urn:btih:8EB20A888CFA493006B1C7AABA8E09005FA30151
 magnet:?xt=urn:btih:807A2EED3059C2F8E34A8F01DA415BE15916A2C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:807A2EED3059C2F8E34A8F01DA415BE15916A2C2
 ```bash
 magnet:?xt=urn:btih:5BA20309D25E2237138A16AE716E53D65E12733A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:5BA20309D25E2237138A16AE716E53D65E12733A
 ```bash
 magnet:?xt=urn:btih:747D2F8AE10C9F5AECC8AD8C3A134F2E148F78A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +423,8 @@ magnet:?xt=urn:btih:747D2F8AE10C9F5AECC8AD8C3A134F2E148F78A3
 magnet:?xt=urn:btih:BE1C6E0DED076D30514CD2ABEDB37FC0DD28314F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:BE1C6E0DED076D30514CD2ABEDB37FC0DD28314F
 ```bash
 magnet:?xt=urn:btih:F3EBDBF805FA5EA1D7EDB48273AD57B5CA088988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +477,8 @@ magnet:?xt=urn:btih:F3EBDBF805FA5EA1D7EDB48273AD57B5CA088988
 magnet:?xt=urn:btih:267194BE159D364CFCE475FEF6D8048AE5182F4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +505,8 @@ magnet:?xt=urn:btih:267194BE159D364CFCE475FEF6D8048AE5182F4E
 magnet:?xt=urn:btih:D6AC8FD72C4DBED568FDCBFDC7E1C4B7F79F5FE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +530,8 @@ magnet:?xt=urn:btih:D6AC8FD72C4DBED568FDCBFDC7E1C4B7F79F5FE5
 ```bash
 magnet:?xt=urn:btih:EBF7BF5DA8E6DE2D5A1C11A27B4E2C1FA1C7A723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +557,8 @@ magnet:?xt=urn:btih:EBF7BF5DA8E6DE2D5A1C11A27B4E2C1FA1C7A723
 ```bash
 magnet:?xt=urn:btih:7CEBF96D596FBEBB28DB7ED4E3A544CA97D2CA23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +587,8 @@ magnet:?xt=urn:btih:7CEBF96D596FBEBB28DB7ED4E3A544CA97D2CA23
 magnet:?xt=urn:btih:D8FEB13B2C9CFCC0A2751E87A49A56767224C427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +615,8 @@ magnet:?xt=urn:btih:D8FEB13B2C9CFCC0A2751E87A49A56767224C427
 magnet:?xt=urn:btih:CA9B7ACC585253E1A56B53F0EEA5E1E64ED36836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +641,8 @@ magnet:?xt=urn:btih:CA9B7ACC585253E1A56B53F0EEA5E1E64ED36836
 ```bash
 magnet:?xt=urn:btih:F8328FBA52279D4C13770291F9AFE86316A7C996
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +669,8 @@ magnet:?xt=urn:btih:F8328FBA52279D4C13770291F9AFE86316A7C996
 magnet:?xt=urn:btih:21C091F0CC4E334C6346A67E935AF9429681AE21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,32 +696,7 @@ magnet:?xt=urn:btih:21C091F0CC4E334C6346A67E935AF9429681AE21
 magnet:?xt=urn:btih:B6DBDF8FA3D51F6EADEE8A34C94540662D84E784
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989201   (911366) от 25.02.2016
-
-Нирадж Давар | Идеальный маркетинг. О чем забыли 98% маркетологов (2015) [FB2, DOCX]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911366.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Вы не можете достойно конкурировать, уступая соперникам в свойствах продуктов, уровне и темпах их производства и обновления. Но для закрепления своего положения вам придется обеспечить превосходство и в работе с потребителями".
-Нирадж Давар
-
-О чем книга(   Читать дальше...   )Жанр: Бизнес, МаркетингФормат: FB2, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B98C1E24D19039BD782FD709063383238224BFFF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

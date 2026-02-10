@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:375043240C8B5713E02565D5391CC6EAC1CACDFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Robert Rice Jr - Breathe (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Smoot
 ```bash
 magnet:?xt=urn:btih:22533657275E6BA4C041828E728E72D8241E6CB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Reed Turchi - World On Fire (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:BD6B395E6B956057CF7D1487AE6F8CFB74890EBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Nefarious - Addicted to Power (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash
 ```bash
 magnet:?xt=urn:btih:F7A0E747351D2CBC5D0D3764BA5378908549645D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ The Doobie Brothers - Walk This Road (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:9D8A1FE88728E8ABB9DF43E0D5B8E016E01963DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Forth Wanderers - The Longer This Goes On (2025) [FLAC 24/44.1|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:D2417D952511AE3A4DF597DD8AC5F7C9C1BA5A54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Charlie Hunter & Ella Feingold - Different Strokes for Different Folks (2025) [F
 magnet:?xt=urn:btih:3E076CF1CF3772157AC7D4A75658DD7BA49A6461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Chyco Simeon - Future (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion & 
 ```bash
 magnet:?xt=urn:btih:FAB28A294020B621BC9042CEFDD50F55B5BD697A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Recorruptor - Sorrow Will Drown Us All (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:CDCEC224E6DA35F8A49BB41CDA82E6AD79A8A50D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Bush - I Beat Loneliness (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternati
 ```bash
 magnet:?xt=urn:btih:41D88AB5BDBD291DD0CDEB3B321D514286009117
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Odd Berries - Dark Waters (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Ro
 magnet:?xt=urn:btih:48EF4A557D7BE80DFBCA78B22340D3890379FE75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Lone - We Came a Long Way (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternativ
 ```bash
 magnet:?xt=urn:btih:6CD4FF9D87B68A2761A99509E744CB43265613F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Maggie Lowe - Comin' in Hott (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 magnet:?xt=urn:btih:68D73ABBAF90FF8C8B7FE83DBF5F10F9EA6E8155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Abigail Williams - A Void Within Existence (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:075938A27F0FEA440FE90441A32F784E4C9E88E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Humble Rebel & the Guesthouse - Sweet Morning (2025) [FLAC 24/48|Lossless|WEB-DL
 magnet:?xt=urn:btih:9C91A47B488E9C234E9612624675B671F159AE33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Annisokay — немецкая металкор-группа из Галле, С
 ```bash
 magnet:?xt=urn:btih:EA331C6AA37AFF91FC4BE0DE2FADBADDC509C7DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ magnet:?xt=urn:btih:EA331C6AA37AFF91FC4BE0DE2FADBADDC509C7DF
 magnet:?xt=urn:btih:9FA3E273343220BBD083C47EAE5C28775239F698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Boneshakers - Live To Be This (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 ```bash
 magnet:?xt=urn:btih:AAB2550F840495FF10FE53755F47A9CD8DFA3FC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Motorjesus - Streets of Fire (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 'n
 magnet:?xt=urn:btih:900943548F871AEC7A559DB5E3830839CCD6F66E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Catapulta Airlines - Бирбоинг (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:9156EC9C40C7418AFA8E9DB31092FF1E8F687B2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Yelawolf & Michael Phillips - Whiskey & Roses (2025) [FLAC 24/48|Lossless|WEB-DL
 magnet:?xt=urn:btih:B60A26B2CAD901C44AD854178F106CBFFB32C804
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +629,8 @@ Alice Cooper - Up All Night (2025) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard-
 ```bash
 magnet:?xt=urn:btih:8F4A54A2B9A2E08B8CB9D722DC556DD809373840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +659,8 @@ Slaughter to Prevail - Grizzly (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dea
 magnet:?xt=urn:btih:F00526CA1FDDEDA86D49BCFEFF952D48B0EBCD6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +687,8 @@ A4 Walk Away From Love (Voi Fugi De Dragoste)(   Читать дальше...   
 ```bash
 magnet:?xt=urn:btih:57460D1C2CDFC5F091DE31390E5A4F8FE44129C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,6 +717,8 @@ Ramonda - The Walls Are Crumbling Down (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:5D819253BD699E66D9B97A8B23D2E226F4451C37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ Scardust - Souls (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Symphon
 ```bash
 magnet:?xt=urn:btih:42DEDA791E4A0C80D3D27E82AA3EF83AEA6EEA9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

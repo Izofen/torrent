@@ -28,6 +28,8 @@ Paradise Lost - Tragic Idol (2012) [FLAC|Lossless]<Doom / Gothic Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ MKVToolnix - специальный аудио/видео контейнер, п
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -86,6 +90,8 @@ VA - Любовь Жива. Песни для души (2012) [MP3|256 кб/с]<
 magnet:?xt=urn:btih:DE9D2282E722EA37AA7F7C4572600FE65FB22B9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -113,6 +119,8 @@ magnet:?xt=urn:btih:DE9D2282E722EA37AA7F7C4572600FE65FB22B9C
 magnet:?xt=urn:btih:C609812017D7DC66C70742604648EDB855C8E48A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -137,6 +145,8 @@ magnet:?xt=urn:btih:C609812017D7DC66C70742604648EDB855C8E48A
 ```bash
 magnet:?xt=urn:btih:D0E1BDD4061A173078A4DA7E3DDAD63ACE28D779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +181,8 @@ CD1
 magnet:?xt=urn:btih:D48A851BDA6DC491F240D4C0A4BBEB41431BF285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +207,8 @@ magnet:?xt=urn:btih:D48A851BDA6DC491F240D4C0A4BBEB41431BF285
 magnet:?xt=urn:btih:4E72293B508F4A0DEF954FA4B6A410A5BDBB4F94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +232,8 @@ magnet:?xt=urn:btih:4E72293B508F4A0DEF954FA4B6A410A5BDBB4F94
 ```bash
 magnet:?xt=urn:btih:2DACA425966D068CC1C997ECECFB0F48E1D8843F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +261,8 @@ Codec Pack All in 1 это один из самых лучших пакетов 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +287,8 @@ Codec Pack All in 1 это один из самых лучших пакетов 
 magnet:?xt=urn:btih:7FF89C0DBF8AECBFAC3AF5EADC1A18B46A11BFBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:7FF89C0DBF8AECBFAC3AF5EADC1A18B46A11BFBC
 ```bash
 magnet:?xt=urn:btih:2D6D2F2C6789F8128F040E3DCB4BD96FC88DF256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:2D6D2F2C6789F8128F040E3DCB4BD96FC88DF256
 magnet:?xt=urn:btih:E89C1A5A1CE189897E578DFD765706E272F03405
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ magnet:?xt=urn:btih:E89C1A5A1CE189897E578DFD765706E272F03405
 magnet:?xt=urn:btih:16D05CEC39C9276F5DE4A678A9A1A5477006601F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +392,8 @@ magnet:?xt=urn:btih:16D05CEC39C9276F5DE4A678A9A1A5477006601F
 ```bash
 magnet:?xt=urn:btih:DB02F2FCB476BACF334E8BE64A03F8706D491531
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Песни о Великой войне (2005) [MP3|320 kbps]<Военна�
 magnet:?xt=urn:btih:3CB88DE276DC71EF101ED472EB6B8EF70F236F18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ magnet:?xt=urn:btih:3CB88DE276DC71EF101ED472EB6B8EF70F236F18
 ```bash
 magnet:?xt=urn:btih:CB133E2487479860BF974D991855B56344727ECA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +489,8 @@ magnet:?xt=urn:btih:CB133E2487479860BF974D991855B56344727ECA
 magnet:?xt=urn:btih:BA27D64D26EF144BA5369E9129681EA54B01B82A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +522,8 @@ Aztec Magic Ball [5.0+jailbreak]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +548,8 @@ Aztec Magic Ball [5.0+jailbreak]
 ```bash
 magnet:?xt=urn:btih:99A2BD8B78E60DB643D41B74E6C99C56DDCF80E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +584,8 @@ VA - Песни о Великой войне (2005) [APE|Lossless]<Военна�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +613,8 @@ VA - Песни о Великой войне (2005) [APE|Lossless]<Военна�
 magnet:?xt=urn:btih:823A11CFF34D4D96BEDC76D767E78B4C365B9648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +641,8 @@ magnet:?xt=urn:btih:823A11CFF34D4D96BEDC76D767E78B4C365B9648
 magnet:?xt=urn:btih:830B97FB62AE7F478F528B8BE13CFD9E5125FD6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +667,8 @@ magnet:?xt=urn:btih:830B97FB62AE7F478F528B8BE13CFD9E5125FD6C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +692,8 @@ magnet:?xt=urn:btih:830B97FB62AE7F478F528B8BE13CFD9E5125FD6C
 ```bash
 magnet:?xt=urn:btih:44B5AECAC0B876316F5D5ED669CC8468B2180DE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -674,6 +722,8 @@ magnet:?xt=urn:btih:44B5AECAC0B876316F5D5ED669CC8468B2180DE1
 magnet:?xt=urn:btih:D3808FD808B554357CC29692C2D32C32BBF6B48F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ magnet:?xt=urn:btih:D3808FD808B554357CC29692C2D32C32BBF6B48F
 ```bash
 magnet:?xt=urn:btih:20773E8BC063E4B0C458CF86B85921170EED1614
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

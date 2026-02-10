@@ -22,6 +22,8 @@ VA - Valentine's Day: Sexy Shades of Chill (2016) [MP3|320 Kbps] <Downtempo, Chi
 magnet:?xt=urn:btih:6A38DD3E7E947EEFC420BFB210F96EFCD49037F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:6A38DD3E7E947EEFC420BFB210F96EFCD49037F5
 magnet:?xt=urn:btih:332B2BCA4B606550E820479496AEBC6597459815
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:332B2BCA4B606550E820479496AEBC6597459815
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:332B2BCA4B606550E820479496AEBC6597459815
 magnet:?xt=urn:btih:9D85C1E1D04C6B6741352195CC2774CC82D28765
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:9D85C1E1D04C6B6741352195CC2774CC82D28765
 ```bash
 magnet:?xt=urn:btih:0EAA726A920389E49E23588FAE2F4C9DC0BB952D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:0EAA726A920389E49E23588FAE2F4C9DC0BB952D
 magnet:?xt=urn:btih:516345D237D4CAA8B8875AEB6B9E06173D3E7B32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:516345D237D4CAA8B8875AEB6B9E06173D3E7B32
 magnet:?xt=urn:btih:CD922C3FC748D12110364985BBA0F2413403C3A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Black Era - Discography (2006-2009) [MP3|256 - 320 kbps]<Trip Hop/Downtempo>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Marc Broussard - S.O.S. 2: Save Our Soul: Soul on a Mission (2016) [MP3|320 Kbps
 magnet:?xt=urn:btih:A61CD267A4271B3881542215A685EC13459CA3DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:A61CD267A4271B3881542215A685EC13459CA3DE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:A61CD267A4271B3881542215A685EC13459CA3DE
 magnet:?xt=urn:btih:5FC56AD520A14B51DD841C4A3FD692CB1ADAB758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:5FC56AD520A14B51DD841C4A3FD692CB1ADAB758
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Duoscience - Hope (2016) [MP3|320 Kbps] <Drum & Bass, Liquid Funk>
 magnet:?xt=urn:btih:E7FA99074784FCC95A18041CC663A424E5BFCF41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:E7FA99074784FCC95A18041CC663A424E5BFCF41
 magnet:?xt=urn:btih:C8E3FB7704A38953C79767C63B96D83181F28B61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:C8E3FB7704A38953C79767C63B96D83181F28B61
 ```bash
 magnet:?xt=urn:btih:398EDD22867ECB5B0CE7884114E74310F9012273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ Andres Roots - Winter (2016) [MP3|320 Kbps] <Blues>
 magnet:?xt=urn:btih:2A332CF410DDE3083D8E6386746AA22C5D08AAD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ Jill Garcia - Shine (2016) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:A991FEEC3A2A591FBC5CEA4F76542B5BAD7E13C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ Pennygiles - I'm Sorry (2015) EP [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:9C6DE729C41647D8510E833379AC6719243D16E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:9C6DE729C41647D8510E833379AC6719243D16E9
 magnet:?xt=urn:btih:727EB4F84932817F158268E58FD2FFFF88544053
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:727EB4F84932817F158268E58FD2FFFF88544053
 ```bash
 magnet:?xt=urn:btih:498AAEBD4F91A5AD3EEB3200B13BB5CEB21F7437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ Michael Heemskerk - Angels (2016) [MP3|320 Kbps] <New Age, Meditation>
 magnet:?xt=urn:btih:1BBFCCDEA7097349308F877A2E3BD34AA9C2D583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ Willie Colon & Ruben Blades - Siembra (1978) 1991, Musicavision[FLAC|Lossless|tr
 magnet:?xt=urn:btih:504D6D30578E62511E9A9A01BE96F975CD7C42E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:504D6D30578E62511E9A9A01BE96F975CD7C42E7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ VA - 3 Years Suanda True (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:2A8AF3B3F744576C830068BD8621350433AC610E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ Multitouch позволяет связать пользовательское д
 ```bash
 magnet:?xt=urn:btih:A84AF1C5F25B09696EE0378A09FC92337327C5F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +702,8 @@ VA - Christmas Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:7D6CCFA238BB8E36506E171BCBE38B7D97C893C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

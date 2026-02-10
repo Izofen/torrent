@@ -1,3 +1,32 @@
+###  Публикация: 995744   (883107) от 12.03.2016
+
+VA - Glamour Beach & Apero (2016) [MP3|320 кб/с] <House, Tech House, Deep House, Electronic, Progressive, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blu X - Human Life [03:21]
+02. Summer House - Perfidiax [04:07]
+03. Music of Life - Rayba Vagy [04:43]
+04. Connections - Island Dalmo [05:58](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64A72C8F6E140A0DE70979FDF1AEF681C9DE5C1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996051   (883109) от 12.03.2016
 
 VA - Chilling Time (2016) [MP3|320 кб/с] <Downtempo, Chill House>
@@ -21,6 +50,8 @@ VA - Chilling Time (2016) [MP3|320 кб/с] <Downtempo, Chill House>
 ```bash
 magnet:?xt=urn:btih:C2A4DF3D1EB70544D023A12C8F6E32EB00C1389C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Музыкальные Новинки Интернета. Зимний Вы
 magnet:?xt=urn:btih:71ADD80A040E048CFC3226ACDA4D7B14F6646EA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Big Workout Hits 2017  [MP3|320 Kbps] <Dance, Club, Electro, Funky>
 ```bash
 magnet:?xt=urn:btih:3F2A1FB7C7101517494C800DFC8FF8FA67C2C544
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Лучшие блатные хиты года от радио Шансон 
 magnet:?xt=urn:btih:01DA43D1387B60EF9E614828C4ACB3B2C8DF2675
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Двигай Попой 17 (2017) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:A16AE254C86864874BA89044CC55D60FCC66F249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Хиты в тачку. Сборник № 3 (2017) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:80051F11DDB44E338E08853D8C598F6C933D8D3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +221,8 @@ VA - Золотые песни 90-х (2009) [MP3|256 кб/c]<Pop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +251,8 @@ VA - Зимние лучшие блатные песни. Выпуск 7 (2017) 
 magnet:?xt=urn:btih:465BE8B963FEBFAFE09E716FB7FF568CBA1A614D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +279,8 @@ VA - Стопудовые зимние хиты. Версия № 8 (2017) [MP3|
 ```bash
 magnet:?xt=urn:btih:6FC1B4C6B945C7A30975673C747A5063D121F1A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +309,8 @@ VA - Музыкальное зимнее настроение. Русский с
 magnet:?xt=urn:btih:C1A148B84D2EE3B7944DD346ED30971F08631D0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +337,8 @@ VA - Зимняя русская радиоволна (2017) [MP3|256 Kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:279EF977EC8DCF075E8C064833DCF558AA8AE49B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +367,8 @@ VA - Музыкальное потрясение зимы от Русского 
 magnet:?xt=urn:btih:022E3F0FC85E2C0CD64A5BF9F6E7BEA45BF65D3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +395,8 @@ VA - Снегопад новинок. Часть № 9 (2017) [MP3|256 Kbps] <Po
 ```bash
 magnet:?xt=urn:btih:42ED724DB9CDC717AD7B161F983D67A481B2806A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +425,8 @@ VA - Dance 2017  [MP3|320 Kbps] <Electronic, Deep House>
 magnet:?xt=urn:btih:5BA4BCE468C19138B7800885EFF2C79BFAB9C3FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +453,8 @@ VA - Вспоминая СССР. По-новому о главном [6CD] от
 ```bash
 magnet:?xt=urn:btih:8C1F1AE2368894674141863579390A345CBF9BD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +483,8 @@ VA - Absolute Dance Spring (2016) [MP3|320 кб/с] <Dance, Club>
 magnet:?xt=urn:btih:C7B0DA2F6CDF615385FD199080617643C1496671
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +511,8 @@ VA - Powerful 100 Hits Delight (2016) [MP3|256-320 кб/с] <Indie Dance, Club, 
 ```bash
 magnet:?xt=urn:btih:22C19A111E47E322653BD09A7F3A1B4C8EA0A2D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +541,8 @@ VA - Guitar Collection 3 (2016) [MP3|320 кб/с] <Instrumental, Blues-Rock, Aco
 magnet:?xt=urn:btih:4BA3592C79408E7C3A05B9290F1335152FFC861C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +569,8 @@ VA - Jazz Juice: Vocal Compilation (2016) [MP3|320 кб/с] <Jazz, Modern jazz, 
 ```bash
 magnet:?xt=urn:btih:98B5AA8B72CB3F86EA54DC4C0ED6BEBD146EF26E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +599,8 @@ VA - Блатная жизнь с радио Шансон (2016) [MP3|256-320 к
 magnet:?xt=urn:btih:36E2F919D2F307A8EB1F960CF62B2852FC7C9C80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +627,8 @@ VA - Relaxez-vous (2016) [MP3|320 кб/с] <Lounge>
 ```bash
 magnet:?xt=urn:btih:B57E34F750EF5DF123B361AE72B76E734EB11FE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +657,8 @@ VA - Hits 2016 See You Uptown (2016) [MP3|212-320 кб/с] <Club, Funky, Nu Disc
 magnet:?xt=urn:btih:D2A27B4C8DB3EA6E9E84F1553B68DE57327C9837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +685,8 @@ VA - Vocal Tech House: Party March (2016) [MP3|320 кб/с] <Vocal, Tech House>
 ```bash
 magnet:?xt=urn:btih:B6FDC1FC92C05D960934B995B203DAC0792A1D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +715,8 @@ VA - Coming Personal Holiday - Promotion (2016) [MP3|203-320 кб/с] <UK Garage
 magnet:?xt=urn:btih:DE0B031F04E15A375CA25EBEDC91FD76D60537EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,32 +744,7 @@ VA - Chill House Diamonds Vol.2 (2016) [MP3|320 кб/с] <Deep House, Chill Hous
 magnet:?xt=urn:btih:FC1A5486E84B7B741E1DFF00425349E0E74E6910
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995246   (884796) от 11.03.2016
-
-VA - Soulful Nights-The Dance Music Playlist (2016) [MP3|320 кб/с] <Nu Disco, Funky, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_884796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Conrado - 2 Lovers (Vocal).mp3
-02. Roberto Conrado - Choosy (Vocal).mp3
-03. Roberto Conrado - Freedom (Vocal).mp3
-04. Roberto Conrado - I Wanna (Vocal) .mp3(   Читать дальше...   )Жанр: Nu Disco, Funky, ClubПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F52C637515FA43381DA666D2F71663F6AAF4F1A7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

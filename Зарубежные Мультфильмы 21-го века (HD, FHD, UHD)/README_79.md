@@ -1,27 +1,3 @@
-###  Публикация: 539108   (507157) от 25.08.2012
-
-Звездный десант: Вторжение / Starship Troopers: Invasion (2012) [1080p] Blu-ray
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_507157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удалённый аванпост Федерации «Форт Кейси» подвергается атаке жуков. Базирующийся там корабль «Джон А. Уорден» должен как можно быстрее увезти выживших на Землю, заодно доставив собранные на «Форте Кейси» данные военной разведки. На помощь к уцелевшим спешит истребитель «Алесия», однако незадолго до запланированной встречи министр Паранормальных Боевых Действий Карл Дженкинс реквизирует «Джон А. Уорден» для какой-то секретной миссии и пропадает в ближайшей туманности. И бравым десантникам с «Алесии» приходится менять курс, ещё не зная, что эта спасательная миссия может закончиться очень печально.Жанр: Компьютерная анимация, Мультфильм, Фантастика, БоевикРежиссер: Синдзи АрамакиАктеры: Лерардо Анзалдуа, Люси Кристиан, Мелисса Дэвис, Джастин Доран, Дэвид Матранга, Эмили Нэвис, Дэвид ВолдПеревод: Многоголосый закадровыйЯзык субтитров: (PGS):, Английский, Chinese, French, Indonesian, Korean, Portuguese, Spanish, ThaiПродолжительность: 01:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B7A4C1111FB2B230E92BCE8F18AC2350BE0D878
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538544   (508216) от 24.08.2012
 
 Звездный десант: Вторжение / Starship Troopers: Invasion (2012) [720p] BDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:4B7A4C1111FB2B230E92BCE8F18AC2350BE0D878
 ```bash
 magnet:?xt=urn:btih:7412847CC6EBE4A6B70E0482112355438BF7DDEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:7412847CC6EBE4A6B70E0482112355438BF7DDEB
 magnet:?xt=urn:btih:537F7BCECEA4CEDF58726E157263A0B7C0247D60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:537F7BCECEA4CEDF58726E157263A0B7C0247D60
 ```bash
 magnet:?xt=urn:btih:A48D2AA58ACEBD72A74FA045D2FCFA46E4C09DAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:A48D2AA58ACEBD72A74FA045D2FCFA46E4C09DAB
 magnet:?xt=urn:btih:5698D9D71F6311E02EE1A6FA5F15DED14D13A9E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:5698D9D71F6311E02EE1A6FA5F15DED14D13A9E9
 ```bash
 magnet:?xt=urn:btih:38999E9E391F0C8FCB14B4B101DD39E6A7FB70B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:38999E9E391F0C8FCB14B4B101DD39E6A7FB70B6
 magnet:?xt=urn:btih:3DC6C3FFB56C859F111D34899EF70EA8582F2D10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:3DC6C3FFB56C859F111D34899EF70EA8582F2D10
 ```bash
 magnet:?xt=urn:btih:8BAD5B369D751EC5123BF8A2E8455176011DDCB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:8BAD5B369D751EC5123BF8A2E8455176011DDCB0
 magnet:?xt=urn:btih:B3E763F1CC54629901C4AEF8B2BBADB10AE89B11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:B3E763F1CC54629901C4AEF8B2BBADB10AE89B11
 ```bash
 magnet:?xt=urn:btih:89AC6F73175125D43084B650AF5FCC943A137FFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:89AC6F73175125D43084B650AF5FCC943A137FFB
 magnet:?xt=urn:btih:F75C7D4EF7ED62653D573BE7F01176067456B9CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:F75C7D4EF7ED62653D573BE7F01176067456B9CB
 ```bash
 magnet:?xt=urn:btih:6862ACB7B0A37D36F625BA7580DF05257EDB6BA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:6862ACB7B0A37D36F625BA7580DF05257EDB6BA6
 magnet:?xt=urn:btih:4F59D6FD20859CC618798765F968F42663038CF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:4F59D6FD20859CC618798765F968F42663038CF7
 ```bash
 magnet:?xt=urn:btih:12E1BD3F4814DB84D454B3C196ADF8D752543ACB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:12E1BD3F4814DB84D454B3C196ADF8D752543ACB
 magnet:?xt=urn:btih:0AAFC2AC8331541F31996D83316AA20AA051BFD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ magnet:?xt=urn:btih:0AAFC2AC8331541F31996D83316AA20AA051BFD0
 ```bash
 magnet:?xt=urn:btih:CDD7A8064A5DC829D4AA2948F4C79C9C95ECD1E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:CDD7A8064A5DC829D4AA2948F4C79C9C95ECD1E8
 magnet:?xt=urn:btih:51BB6431C8C03C49B4EEDFC32E986BEAD0E4E06F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ magnet:?xt=urn:btih:51BB6431C8C03C49B4EEDFC32E986BEAD0E4E06F
 ```bash
 magnet:?xt=urn:btih:255ACB3E0E504CF769E00385C2449EA8114C1E94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +462,8 @@ magnet:?xt=urn:btih:255ACB3E0E504CF769E00385C2449EA8114C1E94
 magnet:?xt=urn:btih:3C647990F36C1D38D2C766277F1E0282BA4CD0A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +487,8 @@ magnet:?xt=urn:btih:3C647990F36C1D38D2C766277F1E0282BA4CD0A8
 ```bash
 magnet:?xt=urn:btih:82C33C2BC5644BC2AE26017F7554DFCDE1BDA23E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:82C33C2BC5644BC2AE26017F7554DFCDE1BDA23E
 magnet:?xt=urn:btih:746B137FE7095F6ACEB89E600D1905D5E12B5A1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +542,8 @@ DC (   Читать дальше...   )Производство: США, Warner
 magnet:?xt=urn:btih:B0559345D9712C3EF11A6403D9B92B06833C8116
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:B0559345D9712C3EF11A6403D9B92B06833C8116
 ```bash
 magnet:?xt=urn:btih:0D5AE128799E04DC100291DE25668533E025E3B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +594,8 @@ magnet:?xt=urn:btih:0D5AE128799E04DC100291DE25668533E025E3B6
 magnet:?xt=urn:btih:AA2A00540C726149AAD166CB1813963F409CD3A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:AA2A00540C726149AAD166CB1813963F409CD3A2
 magnet:?xt=urn:btih:3EAE089D5ACB2B217C4F33F03763EF2C4433867D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +645,34 @@ magnet:?xt=urn:btih:3EAE089D5ACB2B217C4F33F03763EF2C4433867D
 ```bash
 magnet:?xt=urn:btih:FA190F76D3E4643631C707F8627A097CB88D2F3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533676   (530142) от 11.08.2012
+
+Пираты! Банда неудачников / The Pirates! Band of Misfits (2012) [720p] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_530142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация первой книги из серии романов писателя Гидеона Дефо, рассказывающих о банде незадачливых пиратов. В первой части пираты прибывают в Лондон, где знакомятся с молодым Чарльзом Дарвином и говорящим шимпанзе по имени Мистер Бобо, а также столкнутся с врагами, которые хотят их уничтожить.Жанр: Мультфильм, Комедия, Приключения, СемейныйАктеры: Хью Грант, Брендан Глисон, Джереми Пивен, Брайан Блессид, Ленни Генри, Сальма Хайек, Коннор Бирн, Мартин Фриман, Эшли Дженсен, Питер ЛордПеревод: ДублированныйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:28:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9678DF1214C5AFB37FC5C57A97498FAA3D3B6BE
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

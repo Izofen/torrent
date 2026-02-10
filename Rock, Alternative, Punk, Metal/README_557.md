@@ -22,6 +22,8 @@ Lordi - Babez for Breakfast (2010) [MP3|320 kbps]<Hard Rock/Heavy Metal>
 magnet:?xt=urn:btih:C8076E8ABA0E33BC782C7B13B6553809D51DDA3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ Chicago - XXXIII - O Christmas Three (2011) [MP3|320 kbps]<Rock>
 magnet:?xt=urn:btih:91FB14CE0A29276BE902E72703B8407B17A94FC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -82,6 +86,8 @@ magnet:?xt=urn:btih:91FB14CE0A29276BE902E72703B8407B17A94FC3
 magnet:?xt=urn:btih:914DD82B8EA4769AD127A7455470268E65C5DACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -105,6 +111,8 @@ Sphinx - 4 альбома (2003-2010) [MP3|320 kbps]<Symphonic Power Metal>
 ```bash
 magnet:?xt=urn:btih:522FA10F3FF293DF5686A114B8A6EC8A5F3F2608
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -133,6 +141,8 @@ BrainStorm - Closer to You (2018) EP [MP3|320 Kbps] <Pop Rock>
 magnet:?xt=urn:btih:8C685E4CDF7D8426C5E4166450A208BAB10733DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +169,8 @@ Parts 1:
 ```bash
 magnet:?xt=urn:btih:FD2FFF44E7C20EB6A1D8C16D959761E8E9D4B992
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +199,8 @@ Emigrate - A Million Degrees (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative M
 magnet:?xt=urn:btih:DBE7D3E52344F7ADBE03D847F4DD372037FB571D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ The Matrixx - Сингл (2018) Single [MP3|320 Kbps] <Neo-Post-Gothic, Alternat
 ```bash
 magnet:?xt=urn:btih:EAF5690C9BF2748ACC31E2AF370B9D091DBA0987
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +255,8 @@ Green Carnation (с англ. Зелёная гвоздика) — рок-гру
 magnet:?xt=urn:btih:A3DB7296E5E9248613F2DFD7671F1A5B0A64E4B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ APG - This Brutal Addiction (2007) [FLAC|Lossless|tracks + .cue] <Hard Rock, Hea
 ```bash
 magnet:?xt=urn:btih:9188EAB245F8187E4C96050CF841B3E89CE160A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +313,8 @@ FireForce - Annihilate the Evil (2017) [FLAC|Lossless|image + .cue] <Power Metal
 magnet:?xt=urn:btih:9E088D6D0F07F44AABB09EAFFCA69803D2A2E480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ magnet:?xt=urn:btih:9E088D6D0F07F44AABB09EAFFCA69803D2A2E480
 ```bash
 magnet:?xt=urn:btih:9B77E8AFC12549ACED684B0F81809C30976EC318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +371,8 @@ Almanac - Kingslayer (2017) Limited Edition [FLAC|Lossless|image + .cue] <Sympho
 magnet:?xt=urn:btih:05127C14F5D9A081519A230EBC9448EC39818AA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ Banshee - Take 'Em By Storm (1993) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:7923C5E38BEE2E16769A204A19A990A448281DEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +429,8 @@ Orden Ogan - Gunmen (2017) Japan [FLAC|Lossless|image + .cue] <Power Metal>
 magnet:?xt=urn:btih:4C7FA3367B5A42E79D8B16C3A27CE8FFAD9B4403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ Celtic Frost - Morbid Tales (1984) Remastered, 2017 [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:47FC9F5509675D67E355B472052C86C711555E31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +487,8 @@ Celtic Frost - To Mega Therion (1985) Remastered, 2017 [FLAC|Lossless|image + .c
 magnet:?xt=urn:btih:DD1944BB292496CE66186E5F430A901884359FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +515,8 @@ Celtic Frost - Vanity / Nemesis (1990) Remastered, 2017 [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:F5D67DFFBD14AE7C0B087CB8C248D1EBBA49443A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +545,8 @@ King Crimson - Teatro Toniola, Mestre Venice, Italy (1995) 2010 [FLAC|Lossless|t
 magnet:?xt=urn:btih:7C370E5C5E90B98DF7CC60F991BE83F4E3AB4BFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +573,8 @@ Nargaroth - Era of Threnody (2017) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:033A741468876AB7355A7C2D38446A449A067B68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +603,8 @@ Kadavar - Berlin (2015) [FLAC|Lossless|image + .cue] <Stoner Rock>
 magnet:?xt=urn:btih:5E3D3DE473DC2833CA77874A4D74F7C17DFAFEAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +631,8 @@ Kadavar - Kadavar (2012) [FLAC|Lossless|image + .cue] <Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:84EC8FA122F5F37C68E66D628B60D07D2C2D05C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +661,8 @@ Celtic Frost - Into the Pandemonium (1987) Remastered, 2017 [FLAC|Lossless|image
 magnet:?xt=urn:btih:1BB4BBBF102B54A3BD3B3A07734871D561B95C37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +689,8 @@ Coven - Blessed Is The Black (1987) [FLAC|Lossless|image + .cue] <Power Metal, T
 ```bash
 magnet:?xt=urn:btih:60134B35D10EC0B145B393F1634ADFC4DC50670A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,6 +719,8 @@ Elegy - Manifestation Of Fear (1998) [FLAC|Lossless|image + .cue] <Progressive P
 magnet:?xt=urn:btih:3EFE4DC7CE00005F4AFC304CE32EC85898759A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ The semi-unplugged acoustic EP
 ```bash
 magnet:?xt=urn:btih:E46A7806340B3830449846CC07DE630695B65FC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

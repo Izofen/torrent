@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7258F66A110386862A75F31BFCEE15FF8E48428C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Discovery. Техногеника. Гиперболоидные конструк
 ```bash
 magnet:?xt=urn:btih:A1BC1D41F432154FC436536C0B785404DBA15D1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG: Странная дружба / Unlikely Animal Friends (2016) HDTV [H.264/1
 magnet:?xt=urn:btih:A71FE17436EF6105A4847C3B397C3B7ADBADAB39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NGW: Дикая Ботсвана / Wild Botswana (2018) HDTV [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:B1F7A71B10D2B9BFEE324705352845AE9347691B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ NGW: Рожденные в Африке. Уроки охоты / Born in Africa 
 magnet:?xt=urn:btih:ECEA511B9E28A99715D435BD3D244608424A3EA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:ECEA511B9E28A99715D435BD3D244608424A3EA6
 ```bash
 magnet:?xt=urn:btih:833607B50E167BBBE1957C8831E91C61D99926DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:833607B50E167BBBE1957C8831E91C61D99926DC
 magnet:?xt=urn:btih:504EF7691DDE9E072ED5C1AF89FDC62D4472656E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:504EF7691DDE9E072ED5C1AF89FDC62D4472656E
 ```bash
 magnet:?xt=urn:btih:5D6AA8E851C203E126ED250D1192FC7F9EF755A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ NG. Откуда берутся диктаторы (Корни диктатур�
 magnet:?xt=urn:btih:45829AFC8D17C12F3C163C60FA6EE9A264017873
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ NG. Откуда берутся диктаторы (Корни диктатур�
 ```bash
 magnet:?xt=urn:btih:578D6F999E4D37140CB837AF5B9CE33D0AFDCAE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:578D6F999E4D37140CB837AF5B9CE33D0AFDCAE2
 magnet:?xt=urn:btih:9228E5E03D75106B020C3BDA519EB4367C5814F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ NG: Откуда берутся диктаторы / Making a Dictator (2018) SA
 ```bash
 magnet:?xt=urn:btih:6BDF2F23D60BAF1614C772C12E6D08728DC2EEC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ NG. Тайны истории: Джордж Вашингтон / The Real George
 magnet:?xt=urn:btih:3E324294A0528B4415DD8E01877AA6D9AA7937F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Nat Geo Wild: Потерянные миры Индии / India's Lost Worlds (20
 ```bash
 magnet:?xt=urn:btih:F115A64782D922CAA032C5BE25AC0DAFAF6D14D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:F115A64782D922CAA032C5BE25AC0DAFAF6D14D3
 magnet:?xt=urn:btih:8C16F0B7F835558F1CB27191575BA846CBFADE8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Discovery: Экватор / Equator (2005) BDRemux [H.264/1080i] (серии 1-6
 ```bash
 magnet:?xt=urn:btih:5888EB1DD194B06FF7759E5AA90ACC42C83E40F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ NG: Джейн / Jane (2017) IPTVRip [H.264]
 magnet:?xt=urn:btih:791FB972B178940BC050F136876520DAC222C043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ NG: Затерянные сокровища змеиных царей майя /
 ```bash
 magnet:?xt=urn:btih:796A43965D71A87482CB73CEA802B5E1D11215A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:796A43965D71A87482CB73CEA802B5E1D11215A1
 magnet:?xt=urn:btih:1ACA44C19A70FE6EA657BABE62AC31300DD8EAA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:1ACA44C19A70FE6EA657BABE62AC31300DD8EAA2
 ```bash
 magnet:?xt=urn:btih:39A3778C2B8C72AB0C683E5582E174999B74C494
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ NG. Тайны истории: Ди Би Купер. Сбежавший терр
 magnet:?xt=urn:btih:3FA306D2F7EE71992EC753DCFCE881B73E2DFACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ NG. Тайны истории. Эксперименты ЦРУ / CIA Secret Expe
 ```bash
 magnet:?xt=urn:btih:7B581DA8397FB223F24FBA4932306C3D558FE278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ NG. Тайны истории: Бостонский душитель / The Hunt 
 magnet:?xt=urn:btih:BBFF11360A104375ACCA8F5A04F8434133BF7C7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:BBFF11360A104375ACCA8F5A04F8434133BF7C7C
 ```bash
 magnet:?xt=urn:btih:FCD2F9DBDAB17CA5B66CDDA3A5D0211F925DA3AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Discovery. Эд Стаффорд: Игра на вылет / Ed Stafford: First 
 magnet:?xt=urn:btih:36E3D3EF782DCADC756A1C667EB5ADC76DCA39B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ BBC. Викинги / Vikings (2012) BDRip [H.264/720p-LQ] [Серия 1-3 из 
 ```bash
 magnet:?xt=urn:btih:A0E0E7DD68DBE82A546EF42522129F3F3D13CCF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

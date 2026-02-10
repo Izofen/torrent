@@ -20,6 +20,8 @@ Perfectly Clear — приложение, которое позволяет вс
 magnet:?xt=urn:btih:E71952B91EC71D8311BA9CC244FCD1DADB449EDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Adobe Audition 2025 25.6.0.97 RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D3CEAD1B0680B942AEC30F1371D96C9862A09D7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Adguard – интернет-фильтр для защиты пользоват
 magnet:?xt=urn:btih:DC31F12682958FCA035AC289D3D9615D27BA0C64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:DC31F12682958FCA035AC289D3D9615D27BA0C64
 ```bash
 magnet:?xt=urn:btih:3840BE2694291B216D0497ABCE09755AC36E891B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ PhotoDirector v20.7.1 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:0B7F4D2CC43A03DF96E4D5EF791E1CE25F879077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:0B7F4D2CC43A03DF96E4D5EF791E1CE25F879077
 ```bash
 magnet:?xt=urn:btih:28B0B283A4C7C04D77BC120E78887437C22CAB6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:28B0B283A4C7C04D77BC120E78887437C22CAB6D
 magnet:?xt=urn:btih:17055079E4F6CD14DDB7778D31D901CFEF49DBD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:17055079E4F6CD14DDB7778D31D901CFEF49DBD7
 magnet:?xt=urn:btih:03872138A6A62B7F291C9AF2C11F9F3E21003105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:03872138A6A62B7F291C9AF2C11F9F3E21003105
 ```bash
 magnet:?xt=urn:btih:AD6E37F9C17B1FE2292EAAEE6A62F58BD3F8B3F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:AD6E37F9C17B1FE2292EAAEE6A62F58BD3F8B3F3
 magnet:?xt=urn:btih:11479E66302C01C00B9447C24D1639D5514A3AD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:11479E66302C01C00B9447C24D1639D5514A3AD2
 ```bash
 magnet:?xt=urn:btih:56523E1528B9D4F3B60233CA04A11238CD810F4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:56523E1528B9D4F3B60233CA04A11238CD810F4A
 magnet:?xt=urn:btih:5E75A5B484598AFB0905CCF30B58122868B8E098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:5E75A5B484598AFB0905CCF30B58122868B8E098
 ```bash
 magnet:?xt=urn:btih:26384EE90E82840B6A9085E701C52AE0018DCBF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:26384EE90E82840B6A9085E701C52AE0018DCBF5
 magnet:?xt=urn:btih:DA4DFB4A88FC9D5EA22B6C97B43B31A1ED50FBE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ AIMP 5.40.2698 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E6D45E56A9FB4A527D193546928D5F3352F24167
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Bridge Constructor Medieval / Bridge Constructor: Средневековье (20
 magnet:?xt=urn:btih:B4C261C6B0A7A0E20EEAE38F1B1F530895F0215E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Bridge Constructor Playground предлагает людям всех возр�
 ```bash
 magnet:?xt=urn:btih:9D36F06815C21A50B38F67579C99B1863EA9DB5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Lumo, волшебный платформер повышенной степен�
 magnet:?xt=urn:btih:9EB6B44363DBB0C7F831703C04E068EBB99C8D14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:9EB6B44363DBB0C7F831703C04E068EBB99C8D14
 ```bash
 magnet:?xt=urn:btih:A36A66169D44FDB8555140557481F23F58AAA346
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Full Metal Schoolgirl (2025) [Multi] (1.01/dlc) Scene Tenoke
 magnet:?xt=urn:btih:8CF4BACC64F68D378485D7A88C31330532B89518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Conquests of Camelot: The Search for the Grail, Conquests of the Longbow: The Le
 ```bash
 magnet:?xt=urn:btih:46BC53B859BFCB85B73FFEBD6BEE12202BAA3A4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:46BC53B859BFCB85B73FFEBD6BEE12202BAA3A4E
 magnet:?xt=urn:btih:484904069FA6D6F250260BA3B3F25AFE947CB64A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:484904069FA6D6F250260BA3B3F25AFE947CB64A
 ```bash
 magnet:?xt=urn:btih:94DAC823B08911602916DBBC4776CE60BC76DB97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:94DAC823B08911602916DBBC4776CE60BC76DB97
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46561/dlc) Repack Dece
 ```bash
 magnet:?xt=urn:btih:78EEF020742F967F36A4B61558115FD699A6CA9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +674,8 @@ ru-ru_windows_11_enterprise_ltsc_2024_x64_dvd_f9af5773
 ```bash
 magnet:?xt=urn:btih:1FAA353FF9A23D0DABCD8B27E7D7067432366B5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

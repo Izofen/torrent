@@ -22,6 +22,8 @@ Terminator-Rex - Holograms - Ghosts (2017) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:07AD2DC1BF39DB21A6DA5CEB709970F0B82A1F0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Dark Amsterdam 2025 (2025) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:491BC1B8F071B55740AAD85B3E791843544F88D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - A State of Trance - Classics Top 10, Vol. 6 (2025) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:3ED6B602CF37CCC4314625D680F8086A21546CBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ FaraoN - 20 Hits Dance Music Collection (2025) [MP3|320 Kbps] <House, Deep House
 ```bash
 magnet:?xt=urn:btih:76BFAEEF994BDF71DF8DB3A069FC08C00A2CC41C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ BELLATRIX - Lost In Space (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spaces
 magnet:?xt=urn:btih:2B13B6CCE8692345721E63AA3682ECD1F05E0E2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Space Holidays Vol. 12 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spac
 ```bash
 magnet:?xt=urn:btih:5C103F30499C94F838A5A9986F9519AAD0BB327F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:5C103F30499C94F838A5A9986F9519AAD0BB327F
 magnet:?xt=urn:btih:C4FC5E648A9CE78274AC39EB57DF9788D39C8F94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Gary Butcher aka Gary B, Luminous: ex resident of Cafe Del Mar - Discography 10 
 ```bash
 magnet:?xt=urn:btih:57AFD4B8681633E3D5D60505EA621BFB77011530
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Best of Clubsonica Records 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, 
 magnet:?xt=urn:btih:961D6E9E5B4F99E78B0CE4A782C5BC5597505793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Armin van Buuren - 20 Albums , 117 Compilations (1999 - 2014) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:90F2001A824023C022A3E138FB3058A8AA46B0D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Apashe - Antagonist (2023) [FLAC|Lossless|tracks] <Electronic, Breakbeat>
 magnet:?xt=urn:btih:941DA3ACBCAA3F1C873562A46D301E2C8060352C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ Tammetõru (Tammetoru) - 2001​-​2009 (2018) [FLAC|Lossless|WEB-DL|tracks] <I
 ```bash
 magnet:?xt=urn:btih:CDE8AE34FC98F194BC9A4C2930F6244A0DDC1048
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ VA - Classic Car Dance Hits 2019 (2018) [MP3|320 Kbps] <Funky, Club House>
 magnet:?xt=urn:btih:9B06CB69CA40B32C035DF7FAFEE486B16E2D24E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +392,8 @@ Double Touch & Wassu - Here For You (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech H
 ```bash
 magnet:?xt=urn:btih:C106882EE91B0E47C23AEF97AE1AACA3CDD809C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +422,8 @@ VA - Alpine Grooves X (Kristallhutte) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep
 magnet:?xt=urn:btih:49CAE218325FFB723F5F7413AAA0250DBBDC406D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +450,8 @@ VA - Equilibrium (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
 ```bash
 magnet:?xt=urn:btih:3744698BFD73EEA6D6204575E962C4C6D777CC9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +480,8 @@ Thore Pfeiffer - Umland (2019) Savvy [FLAC|Lossless|WEB-DL|tracks] <Ambient, Exp
 magnet:?xt=urn:btih:3BB3F1D637D4FCC906E17535D5C939E852F5119A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +509,8 @@ VA - CAVALRY 009 (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
 magnet:?xt=urn:btih:BF3014B597F4310EECAEB44E1CDC390C17845337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +536,8 @@ Thomas Rossetti - Feel Nature EP (2019) Maintain Replay Records [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:872C0A3CF1803C26A5136A35A72839AC5F46C739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +566,8 @@ VA - 5 Years Of Futura Groove Records (2018) [MP3|320 Kbps] <House, Tech House>
 magnet:?xt=urn:btih:C941A5238705224FDBEED771A57BE86FADDEA252
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +591,8 @@ Coiro - Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House
 ```bash
 magnet:?xt=urn:btih:2C715C4007EDFC9ED253734A421726632D064EFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +621,8 @@ Vintage & Morelli - Hymn To The Night (2019) Silk Music [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:6B3E56087A2E1707DE3FE79C5975AC0CC5592842
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +649,8 @@ VA - The Soundgarden: Winter Collection (2020) Compilation [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:17D511DC2D84AEE0D3C64A496CB27AB7B4462665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +679,8 @@ VA - Blufin Loves Amsterdam 11 (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 magnet:?xt=urn:btih:AA79C557672A072D289AD8B5C0C9842D471B27B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +708,8 @@ Robert Parker - The Singles 2013-2015 (2015) [MP3|320 кб/с] <Synthpop, Synthw
 magnet:?xt=urn:btih:2CEC6F70966FEF93331BF4D6839CBBBD197C8B5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,6 +736,8 @@ VA - Christmas Box (2015) [MP3|320 кб/с] <Progressive, Psychedelic, Trance>
 ```bash
 magnet:?xt=urn:btih:88FAF1187F23010F038F50C33ED2B1C577B99D93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

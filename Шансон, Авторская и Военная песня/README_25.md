@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:E8804DE1C8CE7DD8C9363064A66CE3DA4ECBE328
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:E8804DE1C8CE7DD8C9363064A66CE3DA4ECBE328
 ```bash
 magnet:?xt=urn:btih:EA900F66EF4AFD92BACE10B9A7F7FEE0D5F61D45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Пацанам городских окраин (2004) [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:31D1C75F530ACACE0AD75D2C406A347B7C9A48CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ SHEILA - Live à Bruxelles, 2022 (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <Ch
 ```bash
 magnet:?xt=urn:btih:09D268A623616E051CFE18EF58E0D00960A563C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:09D268A623616E051CFE18EF58E0D00960A563C3
 magnet:?xt=urn:btih:F6D5605AFE87591CC75FD1862C569012E9DFBC09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:F6D5605AFE87591CC75FD1862C569012E9DFBC09
 ```bash
 magnet:?xt=urn:btih:89D9D2E0946330F5BFCB3E16D1716D36CCF6652D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:89D9D2E0946330F5BFCB3E16D1716D36CCF6652D
 magnet:?xt=urn:btih:0ABA2A21FBD79FD2539096EE4F576B7C3BC88D31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:0ABA2A21FBD79FD2539096EE4F576B7C3BC88D31
 ```bash
 magnet:?xt=urn:btih:6C55F88DFF950387A1804EA9FC47C3CA04418C30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:6C55F88DFF950387A1804EA9FC47C3CA04418C30
 magnet:?xt=urn:btih:6C41AD2569898CA7B7D9E63556012D121E56424D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:6C41AD2569898CA7B7D9E63556012D121E56424D
 ```bash
 magnet:?xt=urn:btih:86FFFADF848DF5975EEF5445B291EE51455D349A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Marie Laforet - Marie Laforet (2001) [FLAC|Lossless|image + .cue] <Chanson, Pop>
 magnet:?xt=urn:btih:4F53E1487E6225F4C8D84CA6B1EA094F2970DEE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:4F53E1487E6225F4C8D84CA6B1EA094F2970DEE8
 ```bash
 magnet:?xt=urn:btih:4C887F40C6DB372B0476DC02F8B772CA663F6B3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:4C887F40C6DB372B0476DC02F8B772CA663F6B3A
 magnet:?xt=urn:btih:03DA4A4AD9DDE7FBA1B5637F1076DE4DCD959925
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:03DA4A4AD9DDE7FBA1B5637F1076DE4DCD959925
 ```bash
 magnet:?xt=urn:btih:C5CAEE2D6F034A52B4263866676E0DE310904ADC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ iSenin - Не воскрес (2025) [MP3|320 Kbps] <Chanson>
 magnet:?xt=urn:btih:24C7C8FCFC4DF461963F2B176510F49A9E9EF6E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Музыка РУ. Шансон (2005) [FLAC|Lossless|tracks + .cue]<Шан
 ```bash
 magnet:?xt=urn:btih:C44BB5D40DD6A2AFF1B3CE19FAE8EE39B30D1BFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Виктор Королёв и Ирина Круг•Букет из бел
 magnet:?xt=urn:btih:B130D1693E86D95DBDDF319FE03CF9B70EBA7429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ magnet:?xt=urn:btih:B130D1693E86D95DBDDF319FE03CF9B70EBA7429
 ```bash
 magnet:?xt=urn:btih:5408CFDE7E898E4DBE9FF484EB77C9744E9C24B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:5408CFDE7E898E4DBE9FF484EB77C9744E9C24B4
 magnet:?xt=urn:btih:ECDB8CCDBC8855EB6A9874DBA90C24E1E1975126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ magnet:?xt=urn:btih:ECDB8CCDBC8855EB6A9874DBA90C24E1E1975126
 ```bash
 magnet:?xt=urn:btih:E6E5FAE80C1335C9498FC111E4701228436F34D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ magnet:?xt=urn:btih:E6E5FAE80C1335C9498FC111E4701228436F34D7
 magnet:?xt=urn:btih:C06AF00DDBFB8A6E4F30DE78A9BE89608E1BBE54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ VA - Шансон 2023 (Музыкальный хит-парад) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:21C3BE720805136A9F6BDB47CDA8D7E73ED60D44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +661,8 @@ magnet:?xt=urn:btih:21C3BE720805136A9F6BDB47CDA8D7E73ED60D44
 magnet:?xt=urn:btih:AE8CCA0CF29A44D8A5DFAEBBF135730BB61B7454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +689,8 @@ VA - Белорусский вокзал <<Лучшие песни военны�
 ```bash
 magnet:?xt=urn:btih:C387168F8E31A4CD57274716BB3E54879A5A2963
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,6 +719,8 @@ VA - Белорусский вокзал <<Лучшие песни военны�
 magnet:?xt=urn:btih:8815344085161E5C2D01D11F05246679746323D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ magnet:?xt=urn:btih:8815344085161E5C2D01D11F05246679746323D6
 ```bash
 magnet:?xt=urn:btih:DF991324A183721CDCB8C9D85203E32C2C685443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

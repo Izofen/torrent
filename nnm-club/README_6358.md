@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:502333AD0E80C2C19FEAD6387F0BE3E9661E6306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:502333AD0E80C2C19FEAD6387F0BE3E9661E6306
 ```bash
 magnet:?xt=urn:btih:4DFF4AB5B95FDF0FC6C956FA134F40911B3F1E8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:4DFF4AB5B95FDF0FC6C956FA134F40911B3F1E8D
 magnet:?xt=urn:btih:C1AE6030C80A1B9789E70B806E9255EA96BCBCCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:C1AE6030C80A1B9789E70B806E9255EA96BCBCCA
 magnet:?xt=urn:btih:32A1DD2D5A524F961AC2BD3074B41B69FA3F9956
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:32A1DD2D5A524F961AC2BD3074B41B69FA3F9956
 ```bash
 magnet:?xt=urn:btih:1F380271CE72F16314EDB0FC15BDA8591A67419C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Metallica - 72 Seasons (2023) [Vinyl Rip 24Bit/192kHz] (2LP, EU)  <Thrash Metal>
 magnet:?xt=urn:btih:4702DBA6FEF8CFC85A9CF4F0B95C5943E0D26A06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Ash of Gods: The Way (2023) [Ru/Multi] (1.10.4)  License GOG
 ```bash
 magnet:?xt=urn:btih:2AD71A23D07DBD1BA6CD30C62E97D6A3DE300AF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ ClassicDesktopClock - простые и красивые классически�
 magnet:?xt=urn:btih:6EDFBA92C99D155E411A95B273BE0B5A957B6223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:6EDFBA92C99D155E411A95B273BE0B5A957B6223
 ```bash
 magnet:?xt=urn:btih:0617EE90383D9EC42A12AA82DAFE0ECFA376834F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:0617EE90383D9EC42A12AA82DAFE0ECFA376834F
 magnet:?xt=urn:btih:209921EF8EC5BCF62E50D8DEBA440CB59EB7C5FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:209921EF8EC5BCF62E50D8DEBA440CB59EB7C5FE
 ```bash
 magnet:?xt=urn:btih:27A4584983E2F6ED17D64A8269729A2219960A8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:27A4584983E2F6ED17D64A8269729A2219960A8F
 magnet:?xt=urn:btih:8F6E8B8D870A4DF261FE15BA89EB0D3F99AB68C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:8F6E8B8D870A4DF261FE15BA89EB0D3F99AB68C4
 ```bash
 magnet:?xt=urn:btih:D96961493D4E566B38BE25CA53AE8DBDC16E1297
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:D96961493D4E566B38BE25CA53AE8DBDC16E1297
 magnet:?xt=urn:btih:1A401D01573701D6B438CEDCDE0EA7DF8019CCF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:1A401D01573701D6B438CEDCDE0EA7DF8019CCF2
 ```bash
 magnet:?xt=urn:btih:CC753527841868199045B0A017A215152F80DA23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:CC753527841868199045B0A017A215152F80DA23
 magnet:?xt=urn:btih:4FA2BF7BC7A73C8228D02D4BB351775C0F4D1CE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:4FA2BF7BC7A73C8228D02D4BB351775C0F4D1CE4
 ```bash
 magnet:?xt=urn:btih:28246E82D22439DB9828E9778BB0759603E72FBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Epic Pen – настольная программа для Windows, позво�
 magnet:?xt=urn:btih:9619A62401E6B736CBB19BDF5F15A2C3807D112A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:9619A62401E6B736CBB19BDF5F15A2C3807D112A
 ```bash
 magnet:?xt=urn:btih:9098281D23E929A01CE44B49B9D4A7E190F00570
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:9098281D23E929A01CE44B49B9D4A7E190F00570
 magnet:?xt=urn:btih:11D8F060104D2374EE0D64F716881E55BD067C33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ ColorControl - небольшая программа которая после �
 ```bash
 magnet:?xt=urn:btih:E19AA9E9C4252D7F6CFE47DA03210189545BD7EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:E19AA9E9C4252D7F6CFE47DA03210189545BD7EE
 magnet:?xt=urn:btih:87B57EFBB8E30DC074FCE8E185B29FB13E701250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:87B57EFBB8E30DC074FCE8E185B29FB13E701250
 ```bash
 magnet:?xt=urn:btih:E07C4C15D183D3F425633D8628051095F4D8D0C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Xojo (ранее Real Studio, а еще ранее Real Basic) - объектн�
 magnet:?xt=urn:btih:A18CBF56B77993408776A4E5A365E52DE6150011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ MAD WAY (2023) [Multi] (1.1.6) Scene Tenoke
 magnet:?xt=urn:btih:27E294E8E3CD131D7FC34B09DD0CD047112114AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:27E294E8E3CD131D7FC34B09DD0CD047112114AA
 ```bash
 magnet:?xt=urn:btih:BE7817A059EDF747D50E31AF8C234466ACC2BEB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

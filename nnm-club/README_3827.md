@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2DE61BF72476A72E400E39B417C41FC7092DCDB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:2DE61BF72476A72E400E39B417C41FC7092DCDB0
 ```bash
 magnet:?xt=urn:btih:1DB444324529F536626162B6C631586FAE5F73A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:1DB444324529F536626162B6C631586FAE5F73A4
 magnet:?xt=urn:btih:6F1FAF1103C89CE703797F5FA8BC1A4711486C17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:6F1FAF1103C89CE703797F5FA8BC1A4711486C17
 ```bash
 magnet:?xt=urn:btih:5EC9163DD1231AE73A32667751776014EB6ECDA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:5EC9163DD1231AE73A32667751776014EB6ECDA0
 magnet:?xt=urn:btih:0D10A1A70E6AFF11EF280B1C957080F6188AD9EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:0D10A1A70E6AFF11EF280B1C957080F6188AD9EE
 ```bash
 magnet:?xt=urn:btih:135C13E837C48C2CE77F41222F1ACB75901B4FA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ iTop VPN — это универсальная VPN для Windows/ПК, отве
 magnet:?xt=urn:btih:E6D8E7D3D9BAD0F21FDD7F8746DE25BFE701F3E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:E6D8E7D3D9BAD0F21FDD7F8746DE25BFE701F3E7
 ```bash
 magnet:?xt=urn:btih:70ABDC5DD32AC40FDFBD48ABFF4A73AA3BCFC427
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:70ABDC5DD32AC40FDFBD48ABFF4A73AA3BCFC427
 magnet:?xt=urn:btih:3D500E82A22D020C0D161A1A2D2759C3EB7B45B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:3D500E82A22D020C0D161A1A2D2759C3EB7B45B3
 ```bash
 magnet:?xt=urn:btih:7193646C98539C4CAB112E35FFC374BC803A3AB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:0665CD5448B7ECEBD1C0B93D36AADA2F23BF9B34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:0665CD5448B7ECEBD1C0B93D36AADA2F23BF9B34
 ```bash
 magnet:?xt=urn:btih:A4347E217B5C8FDC05E6D6B01B5C1E7C57C5B685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Rugburn - Moon Dive (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Roc
 magnet:?xt=urn:btih:E9908145C9DD937086C7FC4C9E35928C9C2751A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Savaged - Night Stealer (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:2A218E89911D0741C7A1C4815DFBD5FCBA5164B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Graywitch - Children Of Gods (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy
 magnet:?xt=urn:btih:7B0DC55EF4706E13E63748CA0A514D68F982DC0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Kings of Gehenna - Return To Nightmare (2024) [FLAC|Lossless|WEB-DL|tracks] <Mod
 ```bash
 magnet:?xt=urn:btih:5C013704BC4F25C39DE60FECADE9D25C0A2C1CD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ Metralion - The Rest is Silence (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 magnet:?xt=urn:btih:872DAE4B6D09661923838E27824AA712DA0ECE52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ Metralion - Requiem for a Society (2021) [FLAC|Lossless|image + .cue] <Thrash Me
 ```bash
 magnet:?xt=urn:btih:BFF2CE9A4755BCACD2D497CA71A5C225CEC9D77E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ Art Blakey & The Jazz Messengers - Straight Ahead (1981) 1990, Concord Jazz [FLA
 magnet:?xt=urn:btih:B35E75EA2D432DAE3DD8A18BFD8ACC7ABE263689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ Oromet - Oromet (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
 ```bash
 magnet:?xt=urn:btih:C5D8CFCC68B56CCBA99B6899A657D3B22729296D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ Sore - Gruesome Pillowbook Tales (2007) [FLAC|Lossless|image + .cue] <Death Meta
 magnet:?xt=urn:btih:1F01E52F2845E44BC808E9F6740B2A8EE868D5FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ Metralion - Quo Vadis / A Mosh In Brazil (2019) Compilation [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:14505BF3CCC065C7D5EDE0119F09BA17F9088D1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ Reapter - M.I.N.D (2010) Reissued-2013 [FLAC|Lossless|image + .cue] <Thrash Meta
 magnet:?xt=urn:btih:90C891076A724D5DF30F1095ABAFF4B0563BD938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ Suture - Morbid Sculpture Demonology (2004) [FLAC|Lossless|image + .cue] <Brutal
 magnet:?xt=urn:btih:F6784A261BB1AC0E7342C81FEE71D2224B860B36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:F6784A261BB1AC0E7342C81FEE71D2224B860B36
 ```bash
 magnet:?xt=urn:btih:A05A53F28FED62C72F04F00BD7A084AB3CD83A62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +707,8 @@ Madness - Madness, by Mike (2024) [FLAC|Lossless|WEB-DL|tracks] <Ska, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:824E9999D41F613354DA18792BDC55FAC82D6B64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

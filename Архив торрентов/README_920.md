@@ -19,6 +19,8 @@ FocusWriter 1.8.6 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:1E4364FE67CBDD1B0A9511A27A25E972B1DDB526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:3CF6471E521F13666AC8D76047F8C8A6BD566C5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ HiBit System Information - управление списком всех прил
 magnet:?xt=urn:btih:1C88D9CE5F8C52FB3D04DBB3680EE35DBF5244B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:26CC30B9250C941288BB4E1EE6FD73CC8A8006F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Duplicate Files Search & Link (Duplicate Searcher) - это приложение
 magnet:?xt=urn:btih:52850293A0B67DA8E38B973FC46BACB602D52087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Freeplane – создание ментальных карт в настояще
 magnet:?xt=urn:btih:0D055A55ECA9D68C6E13DE4579A124E365A8055E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Floorp Browser – это модифицированная версия Firefox,
 ```bash
 magnet:?xt=urn:btih:13B898414942B9035C600FF21032119CC14A45C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Live Home 3D, преемник Live Interior 3D, является мощным, 
 magnet:?xt=urn:btih:F463E94A75A0A51A3185A9AF18D132799A8C0D1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Total Commander 11.02 (22.01.2024) Portable by MiG [Ru/En]
 ```bash
 magnet:?xt=urn:btih:57F8734814335163D33D33F0708B9D292E27B2F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Araxis Merge – это обязательное приложение для р�
 magnet:?xt=urn:btih:172D7C5CEEC0B25FFA447C43A27FD1926F98AE43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ TreeSize Professional - мощное и гибкое средство визуа
 magnet:?xt=urn:btih:001FCBFFEFF72F0CF15C26B841B42F4B896B0AC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Absolute Uninstaller – это программа похожая на стан�
 ```bash
 magnet:?xt=urn:btih:9DEE6050C68347E04654B84D6BDC227E9BB41A73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ uTorrent Pack 1.2.3.81 Repack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:BE3FCF51C7E338E78CFB646C6DD868B88FF01EC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:BE3FCF51C7E338E78CFB646C6DD868B88FF01EC4
 ```bash
 magnet:?xt=urn:btih:07FF4AECE7DB05E4C15939CAC84A44EE05A0E8B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:07FF4AECE7DB05E4C15939CAC84A44EE05A0E8B7
 magnet:?xt=urn:btih:DBFFEB452F804A8C75C5E9C8F761F6B19A3DC2A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Daum PotPlayer - бесплатный мультимедийный проигр�
 ```bash
 magnet:?xt=urn:btih:2B26818B8AEA9BB40DEBCF4C11FB638AAD5911BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:2B26818B8AEA9BB40DEBCF4C11FB638AAD5911BB
 magnet:?xt=urn:btih:FE5874DF2526852A904763467E0A5BC15E209C4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Samsung SSD Magician Tool - многофункциональная програ�
 ```bash
 magnet:?xt=urn:btih:814C203B529D145D440C6FDEADA808CBCAEEB839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ macOS Sonoma открывает новые возможности для раб�
 magnet:?xt=urn:btih:901BD35BE8287227A857628B3E948B6E47C182BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ uTorrent Pro 3.6.0 Build 47006 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:97B9AE0788F521832E11ED1E950FF88729E2759D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ djay Pro обеспечивает полный инструментарий дл
 magnet:?xt=urn:btih:C97D2DFB4CDE7AAB19BD167671BD99B7E77BADDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Stats - это приложение с открытым исходным код�
 ```bash
 magnet:?xt=urn:btih:05D6EF6DFBFCBE9EB0891406B1213803FA9B8400
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Smooze одушевляет ваш скролл и добавляет функц
 magnet:?xt=urn:btih:7FFB4D9453EC5DBBFB15452B9BD68320E20C59FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:7FFB4D9453EC5DBBFB15452B9BD68320E20C59FF
 ```bash
 magnet:?xt=urn:btih:6307085B4D2F15B6D49F7966DD11C50C5F4491B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ RogueKiller Anti-Malware можно использовать бесплатно 
 magnet:?xt=urn:btih:C71DEB37549281DD9993325AA635D9E969B97AAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ VueScan является приложением для работы со ска�
 ```bash
 magnet:?xt=urn:btih:359712C2DBBF92978C52549DEEF009965AE469AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

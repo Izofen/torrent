@@ -1,3 +1,178 @@
+###  Публикация: 810990   (581481) от 07.08.2014
+
+Baby's Gang - Challenger (2008) [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Challenger 5:16
+02. Jamin 5:56
+03. Happy Birthday (To My Mammy) 4:55
+04. Happy Song 5:35
+05. My Little Japanese Boy 4:22
+06. Step By Step 4:32
+07. America 4:26
+08. Challenger (Instrumental Mix) 3:04
+09. Disco Maniac 5:45
+10. Let's Dance In The Music 4:39(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A93A1BDF3516928FC2EFFFE840B6D2E90420DD72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 811133   (581485) от 07.08.2014
+
+Grant Miller - The Maxi-Singles Collection (2007) [MP3|320 кб/с]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colder Than Ice 5:35
+02. Red For Love 5:28
+03. Doctor For My Heart 5:16
+04. I'm Alive Tonight 3:59
+05. Wings Of Love 5:15
+06. California Train 4:54
+07. (Find My) Tracks In The Snow 5:06
+08. Break Away 5:52
+09. Stranger In My Life 4:29
+10. In The Rain Again 4:57(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D4D746FF999D533B847BFE605A076E9B0F8300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810986   (581492) от 07.08.2014
+
+Scotch - The Maxi-Singles Collection (2008) [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Penguins' Invasion (Original Version) 5:47
+02. Disco Band (Mach 2 Remix) 6:18
+03. Losing In Time 4:22
+04. Loving Is Easy (Frederick Ramel Rmx) 5:50
+05. Born To Kill (Bonus Version) 5:49
+06. Delirio Mind (Remix) 5:37
+07. Pictures (Tess Power Remix) 5:58
+08. Discolation 4:50
+09. Man To Man 4:50
+10. Amour Pour Victoria (Russian Version) 4:47(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA81B3C81FD371A6CE3791B78ADE8DD0D01271C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810975   (581493) от 07.08.2014
+
+Saphir - Perfect Combination (2006) Limited Edition [MP3|320 кб/с]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Feel Good (I Feel Fine) 4:51
+02. The Witch-Queen Of New-Orleans 3:31
+03. Little Rock 4:06
+04. Frough Your Eyes 4:07
+05. Shot In The Night 4:21
+06. Perfect Combination 3:12
+07. Never Give Up 4:00
+08. Storms Of Love 3:56
+09. Stand Up 3:47
+10. I Am Alive 4:00(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561FE84C67FE578A78DA60B8CABE9799F5BB0E32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 811132   (581544) от 07.08.2014
+
+Grant Miller - The Maxi-Singles Collection (2007) [APE|Lossless]<Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colder Than Ice 5:35
+02. Red For Love 5:28
+03. Doctor For My Heart 5:16
+04. I'm Alive Tonight 3:59
+05. Wings Of Love 5:15
+06. California Train 4:54
+07. (Find My) Tracks In The Snow 5:06
+08. Break Away 5:52
+09. Stranger In My Life 4:29
+10. In The Rain Again 4:57(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66B0F3FDD3294E18241CF0444A6E89DEF7CB861B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 810974   (581548) от 07.08.2014
 
 Saphir - Perfect Combination (2006) Limited Edition [APE|Lossless]<Italo-Disco>
@@ -28,6 +203,8 @@ Saphir - Perfect Combination (2006) Limited Edition [APE|Lossless]<Italo-Disco>
 magnet:?xt=urn:btih:A10645E60EB64E108BF19DAE0E9E6B4E735A5615
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +231,8 @@ Bad Boys Blue - You're A Woman 2015 (2015) [FLAC|tracks + .cue]<Euro-Disco>
 ```bash
 magnet:?xt=urn:btih:DC1E2FB1B90D8F9276769185D6917B6425D29C78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +261,8 @@ Duran Duran - Thank You (1995) [FLAC|image + .cue]<New Wave, Pop-Rock>
 magnet:?xt=urn:btih:24CADFDB977B89E1DA44B98FA0F34184A79CFD6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +289,8 @@ VA - Top 40 (Movies) (2014) 2CD[FLAC|tracks + .cue]<Pop, Soul, Rock>
 ```bash
 magnet:?xt=urn:btih:914E506DC87F1A2FB8FBE2D378C03FA9BDF06FBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +319,8 @@ ORS (Orlando Riva Sound) - Who Built The Pyramids (1981) 12'' [MP3|320 Kbps] <El
 magnet:?xt=urn:btih:E7A9B58360440BFFC3AA20E7BBFC729462E6609C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +347,8 @@ Bleu Jeans Bleu - Perfecto (2019) [FLAC|Lossless|tracks + .cue] <French Pop, Cha
 ```bash
 magnet:?xt=urn:btih:C4465FE36F082A01DFBD8B7AAA0BD6BDFAB13732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +377,8 @@ Space Project - Disco from Another Galaxy (1978) LP, Limited Edition [MP3|320 Kb
 magnet:?xt=urn:btih:79EADB8BCBA8A6A70B6633EA26A80CB65EDEDC31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +405,8 @@ Stratosferic Band - Splash (1977) [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:8B4A67E3032D63E5AEAEDAE9E4B0D0A6D7AF92B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +439,8 @@ Methusalem - Journey Into The Unknown (2006) [MP3|320 кб/с]<Disco>
 magnet:?xt=urn:btih:14C3203F93977421FE0CE70BA3318AFEBD0E1EE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +472,8 @@ Methusalem - Journey Into The Unknown (2006) [APE|Lossless]<Disco>
 magnet:?xt=urn:btih:BAF9181BA15E975D68F912C3CAF8701AB67160B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +500,8 @@ Scotch - Greatest Hits & Remixes (2015) 2CD [FLAC|tracks+.cue]<Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:7D58745B34BD1C514A503CC699622944F99336E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +530,8 @@ Scotch - Greatest Hits & Remixes (2015) 2CD [MP3|320 кб/с]<Italo-Disco>
 magnet:?xt=urn:btih:66F57CE12CD9CBAD8D6643745BBBCC7CAA1DA5E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +558,8 @@ magnet:?xt=urn:btih:66F57CE12CD9CBAD8D6643745BBBCC7CAA1DA5E0
 ```bash
 magnet:?xt=urn:btih:AD89F5BA970EAD2499419395579C13A9AEA1E49F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +594,8 @@ magnet:?xt=urn:btih:AD89F5BA970EAD2499419395579C13A9AEA1E49F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +623,8 @@ VA - RTL Hits Sommer 2019 (2019) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:36BD9FE9A80C914AE8690B1C8B3F75F769427ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +651,8 @@ Lightning - Lightning (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:AF2EB5CEB5FC890AE303506F5C76E08BF319210C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +687,8 @@ Tony Esposito - Tony Esposito (Best Of) (1997) [FLAC|Lossless]<Disco-Pop>
 magnet:?xt=urn:btih:82C3D6287E6CA84B876E5406392A4EC8F5F52227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +716,8 @@ magnet:?xt=urn:btih:82C3D6287E6CA84B876E5406392A4EC8F5F52227
 magnet:?xt=urn:btih:D2B12BFEBE1477F427DDDB7E565CEC8FF875527A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +744,8 @@ Fun Factory - Back to the Factory (2016) [FLAC|Lossless|WEB-DL|tracks] <Euro Hou
 ```bash
 magnet:?xt=urn:btih:FD79699777129E2B91091A2EF45C6A9FFC62BE53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +779,8 @@ Baltimora - Survivor In Love (2006) [APE|Lossless]<Italo-Disco>
 magnet:?xt=urn:btih:FB4B0EAC722483D1B9058647C6785F1E3E136C22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,146 +808,7 @@ Gabrielle Aplin - English Rain (2013) [FLAC|Lossless]<Indie Pop, Folk, Country>
 magnet:?xt=urn:btih:AEF0FCE50189521AC91824EAC2F34E9D12850FB6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810233   (584486) от 04.08.2014
-
-Baltimora - Living In The Background (2005) [APE|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tarzan Boy 6:12
-02. Pull The Wires 4:40
-03. Living In The Background 6:05
-04. Woody Boogie 5:53
-05. Chinese Restaurant 5:11
-06. Running For Your Love 5:53
-
-Bonus Tracks:
-
-07. Tarzan Boy (Summer Version) 6:42(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9933D002D0E90D7D9696110E52F8A846E8E83AB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918337   (584777) от 17.07.2015
-
-Fancy - Playa De Palma (Nonstop-Hit-Party) (2015) [MP3|320 кб/с]<EuroDisco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fancy feat. Coconut Boys & Latoya Turner - To the Music Hitmakers (Medley)
- 02. Fancy - Slice Me Nice
- 03. Fancy - Flames of Love
- 04. Coconut Boys & Latoya Turner - Sun of Jamaika(   Читать дальше...   )Жанр: EuroDisco, ElectronicПродолжительность: 01:02:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:554EBFE83C58EAD4827EA9B94050329D2F7B837D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552155   (585726) от 22.05.2022
-
-VA - The Original Masters, Vol. 2 (The Music History of the Disco) (2016) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stretch - Why Did You Do It (7:55)
-02. Ten CC - Dreadlock Holidays (4:59)
-03. Average White Band - Pick up the Pieces (3:58)
-04. Touch - Love Hangover (4:01)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECB892A6BE89A1C942BC11DDA318B668641A3D2A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552166   (585783) от 22.05.2022
-
-VA - The Original Masters, Vol. 11 (The Music History of the Disco) (2017) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gandalf - Departure (4:58)
-02. Mark Shreeve - Legion (5:41)
-03. Beat the Drum - Try (6:03)
-04. Savage Progress - My Soul Unwraps Tonight (5:43)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:036B65675196C8E3502409ADE684D3B749B478F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552171   (585785) от 22.05.2022
-
-VA - The Original Masters, Vol. 14 (The Music History of the Disco) (2017) [MP3|~245 Kbps (V0)] <Soul, Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Piero Umiliani & Giorgio Moroder - Mah-Na Mah-Na (2:14)
-02. Dennis Parker - Like An Eagle (8:35)
-03. Tony Rallo & The Midnite Band - Holdin' On (7:36)
-04. Paris Connection - Eloise (14:53)(   Читать дальше...   )Жанр: Soul, Funk, DiscoПродолжительность: 01:09:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:452ACE93D6A4DAB81E96CE6D3223AD8305ECEFD0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

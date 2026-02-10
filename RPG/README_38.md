@@ -19,6 +19,8 @@ Disgaea 7: Vows of the Virtueless (2023) [Multi] (1.12/dlc) Scene Tenoke [Ultima
 magnet:?xt=urn:btih:2FB52C1E996FF9368D420DEF3129FABC9D895BF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Robin Hood - Sherwood Builders – это приключенческая рол�
 ```bash
 magnet:?xt=urn:btih:7E1887130D841F66631996EDC775E2EDD1B15B39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 magnet:?xt=urn:btih:0BCE6041222655554FC6A7A901BEF384FD9EB4CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Granblue Fantasy: Relink - приключение в просторах Небе
 ```bash
 magnet:?xt=urn:btih:C9BE6D6E48D9A42F721E1811394AAAE3C03F20E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Bard's Tale ARPG: Remastered and Resnarkled - фэнтезийное хак-
 magnet:?xt=urn:btih:4001A0B457780D5FACC62B659E374FCE5A4EB8AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Robin Hood - Sherwood Builders – это приключенческая рол�
 ```bash
 magnet:?xt=urn:btih:F2666CB588CB5DDCDA0E6DD7DE3C7EBB2CCE1A8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ ecrets of Grindea – интересная игра-приключение, в �
 magnet:?xt=urn:btih:8D58059EEB666C69BE5EFFAE1C35F0115535E7A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Welcome to ParadiZe - это увлекательная изометрическ
 ```bash
 magnet:?xt=urn:btih:D50E89121A45C1B464598555ED684C2FDDA361E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Myth of Empires (2024) [Ru/Multi] (1.7.6/dlc) Repack FitGirl
 magnet:?xt=urn:btih:FBC477084BAEFCE44F6649B08447A18FD4A50D4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Bandle Tale: A League of Legends Story погружает игроков в не
 ```bash
 magnet:?xt=urn:btih:0BA16FC4908FA827F6BA1777F34222EA1523A316
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ kumi Wars рассказывает об эпических приключени�
 magnet:?xt=urn:btih:1EE04E7E2593BCF4BF06EDB51447159916DCA760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Bandle Tale: A League of Legends Story погружает игроков в не
 ```bash
 magnet:?xt=urn:btih:1CF28CAE1AF562E5360EB51FF4742082B6FB6AFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Bandle Tale: A League of Legends Story погружает игроков в не
 magnet:?xt=urn:btih:316BB60C28397C67C5ADD132CF32000DB9BCC18D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ ELEX II – продолжение ELEX, винтажной ролевой иг�
 ```bash
 magnet:?xt=urn:btih:5E132C45968AD34400421D344DD13ACB8561C234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Banishers: Ghosts of New Eden - это увлекательная Action-RPG, к
 magnet:?xt=urn:btih:A15163AD1096912CF4420197429722925B253895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Trinity Fusion – это выполненный в 2.5D научно-фанта
 ```bash
 magnet:?xt=urn:btih:06FEC62C66B766BA4D099CF5D3AA58E5768BD3E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Clash II (2022) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:D464E0F7EDE73785FD9FFFE2DAD25040F0C3FAAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Risen 3: Titan Lords (2015) [Ru] (3.0.30.0/dlc) Repack xatab [Enhanced Edition]
 ```bash
 magnet:?xt=urn:btih:6FA6336281524153D41075E79351C8D51908BC58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ GRAVEN (2021) [Ru/Multi] (16864) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:10DC0B6C15BF7DC80B3B896DB15665B06772103A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Lies Of P была вдохновлена знаменитой историей 
 ```bash
 magnet:?xt=urn:btih:14B755407B0A23FFEAB00AF33392CF6DE393820A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Inquisitor - это сюжетная приключенческая игра
 magnet:?xt=urn:btih:BB8BC7B0BD18FDE7A3D197E14EB6E39E95DC960D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Sword of Moonlight / King's Field (2000) [En] (1.2) License
 ```bash
 magnet:?xt=urn:btih:D3F038E8051DCB350DAA625D0F4070BBE82F1279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Realms of Arkania: Blade of Destiny представляет собой реме
 magnet:?xt=urn:btih:D772D773F98CE5C06428D7751F7310A7E17F1332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Pixel Noir (2024) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:1B387A4817E90F5DA52D68AF5333953A1AE281AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Ocean's Heart - ролевая игра, выполненная в духе кл
 magnet:?xt=urn:btih:97DDC8DECE372E8419FE1849EFCF7DC2285FDA6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Inquisitor - это сюжетная приключенческая игра
 ```bash
 magnet:?xt=urn:btih:6F6823D379EC4FA3371EFFE781E39D253EBFCE1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (729654) Repack FitGirl
 magnet:?xt=urn:btih:DAD8102BD0274A74EA758A67BD6DB384CC1D36CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Into the Dead: Our Darkest Days представляет собой сайд-с�
 ```bash
 magnet:?xt=urn:btih:2FD86AB8DA3E0DFCBACA61AB74304A9DB09B3938
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (build 18057167) Repack seleZe
 magnet:?xt=urn:btih:C6DF9E24E7408AE467C0F466C917BE276902DECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Alpha Wolf (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F4260AA39FFE47646EB651248E82DF578424B8CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.0.74101/dlc) Repack FitGirl [Deluxe Ed
 magnet:?xt=urn:btih:6A190BD36CB3EC977A9B9A459A68FEE4CD18B4D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Cinemaster: Cinema Simulator (2025) [Ru/Multi] (1.6) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A42631DF0B19FAA496A3269339A91A709FA8B0F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Skulltide (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:E9C2981A923147811577A050B213EFE28F06D4DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ South of Midnight (2025) [Ru/Multi] (1.1.2 185185) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:D92273FFCF314FCC7DE1AAAB39FECF17C792DE26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.0.74101/dlc) Repack seleZen [Deluxe Ed
 magnet:?xt=urn:btih:C1433C2B4A9C6307149CA3011195C083206B6502
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Mass Effect (2021) [Ru/En] (2.0.0.48602/dlc) Repack Wanterlude [Legendary Editio
 ```bash
 magnet:?xt=urn:btih:37707820E3B3D3C6DA8BE227952293352B70F815
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Funko Fusion - это экшн от третьего лица, посвящен�
 magnet:?xt=urn:btih:6CB7127A3F24E794A0607DD2CDF67C00D87434AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:FCD06403B87B9EC8E25498AA17F588DCAB2BBC49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.0.74101/dlc) Scene FAiRLiGHT [Deluxe E
 magnet:?xt=urn:btih:DF5FC1442730D9F356FE97892B59E98D20586B07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Stalked 2 (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0B51C90130EBE5176B11B7658F67B8A3DD342BDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Metro: Exodus / Метро: Исход (2021) [Ru/Multi] (2.0.1.1/2.0.7.1/dlc) R
 magnet:?xt=urn:btih:148F06EBDC3E6F889D2D74ABBF570FF5989C05E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Making of Karateka (2023) [Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:CAC94F200E78E04974FAAFC34E3BEA831CDD3238
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Imagine Earth это стратегический симулятор разви�
 magnet:?xt=urn:btih:7F3281D0D3B55CA20AAB881A298840E0581B092B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ LEILA (2025) [Ru/Multi] (Build 18011991) Repack FitGirl [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:F7DA4DF70EA02C3352F6D174FD4778EE0DBD5B34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Funko Fusion - это экшн от третьего лица, посвящен�
 magnet:?xt=urn:btih:D7AE8F44893EFAE2ED6F24B084ED88834A02DB8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Old Market Simulator (2024) [Ru/Multi] (1.5.5) Pepack Pioneer
 ```bash
 magnet:?xt=urn:btih:D486B86A368CAF35127F30039005D2B134277D5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Banishers: Ghosts of New Eden - это увлекательная Action-RPG, к
 magnet:?xt=urn:btih:4EBADE11EC5988E81A8A89DCB49D49763E3CC551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Eden Crafters (2024) [Ru/Multi] (0.60d) Repack Pioneer [Early Access]
 ```bash
 magnet:?xt=urn:btih:BB476244CE534F86CF43DC271B512926F11DCA35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Imagine Earth это стратегический симулятор разви�
 magnet:?xt=urn:btih:D545EFA7D00DF54E3CADC253FE11E6816D20E1C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Factory Outlet Simulator погружает игрока в жестокий м�
 ```bash
 magnet:?xt=urn:btih:2C8129B133B8895638192928D7B691B39C51B2DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ PEPPERED — это экзистенциальный платформер, гд�
 magnet:?xt=urn:btih:151F5AA6238E75370CB0DDC31642D0E03292DB72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ LEILA (2025) [Ru/Multi] (Build 18011991) Repack Other s [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:E7728B4200BA1C37E8984D536C6D4879F4C6D0E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

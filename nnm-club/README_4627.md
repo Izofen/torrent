@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:947E0063B16C679F25AD548771C36808B2130A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Stary (2018) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:32B43D86271F01403257DDCC6BF8F8C7C3C6D048
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:32B43D86271F01403257DDCC6BF8F8C7C3C6D048
 magnet:?xt=urn:btih:6E8C3C4D2D2DDADDE26281E6A870CFFB0811295D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:6E8C3C4D2D2DDADDE26281E6A870CFFB0811295D
 ```bash
 magnet:?xt=urn:btih:06F31A4CDCAAF7AC14D235A90084D574280F2C40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:06F31A4CDCAAF7AC14D235A90084D574280F2C40
 magnet:?xt=urn:btih:9B7A3A36AA6949A49446D221F4AF6EB5F9C6A13A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:9B7A3A36AA6949A49446D221F4AF6EB5F9C6A13A
 ```bash
 magnet:?xt=urn:btih:EAB1D0A71D774C59718CB386301D975A51667F8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:EAB1D0A71D774C59718CB386301D975A51667F8C
 magnet:?xt=urn:btih:0D16E5A936451C3FFE294D37805A88F2C723DEF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:0D16E5A936451C3FFE294D37805A88F2C723DEF6
 ```bash
 magnet:?xt=urn:btih:15A1C7D7DF673C1BD39002A36F2F904C92999C38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ VA - Популярные песни 60-х годов (2006) [APE|Lossless|image
 magnet:?xt=urn:btih:DC47CE364AAF90922269F1E07F282A8EEA1F559A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:DC47CE364AAF90922269F1E07F282A8EEA1F559A
 ```bash
 magnet:?xt=urn:btih:5B836DF77D482CDE9B01BD9179D1C5E353649B61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:5B836DF77D482CDE9B01BD9179D1C5E353649B61
 magnet:?xt=urn:btih:9EEDA4286ABCC555DDAD49836D0DFFF0770193D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:9EEDA4286ABCC555DDAD49836D0DFFF0770193D4
 ```bash
 magnet:?xt=urn:btih:144ECA2FF5C2D0B4FFD92BECFE0C791267392347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ DxO PhotoLab Elite 6.11.0 build 302 RePack by KpoJIuK [Multi]
 magnet:?xt=urn:btih:B1D2415753C6D811F432DA9D6802E923C538C541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:B1D2415753C6D811F432DA9D6802E923C538C541
 ```bash
 magnet:?xt=urn:btih:84971FB5F92CE4B965F65CEB0768367947BF593B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:84971FB5F92CE4B965F65CEB0768367947BF593B
 magnet:?xt=urn:btih:CB152C41B3F06A27E9C044C56635D6973999A74A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Detention (2021) v1.0 [Multi] [macOS Native game]
 ```bash
 magnet:?xt=urn:btih:8BE41A95668F057A2C08920DA876CF6DCF8232C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:8BE41A95668F057A2C08920DA876CF6DCF8232C7
 magnet:?xt=urn:btih:CA218220375AE8D7B9B0672B16C92D2196253336
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:CA218220375AE8D7B9B0672B16C92D2196253336
 ```bash
 magnet:?xt=urn:btih:4D33E336E8B4036C42560922CAD4DFCDD584F563
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Drifters / Скитальцы [2016, TV, 12 ep] WEB-DL 720p Raw+Rus
 magnet:?xt=urn:btih:EFF1AA72F42E87CC72C5B08E9D0F2011C0DA6726
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:EFF1AA72F42E87CC72C5B08E9D0F2011C0DA6726
 ```bash
 magnet:?xt=urn:btih:A060A04EF97961BAD59D210154965E621DB121DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Zombieland Saga | Zombie Land Saga | Зомбиленд. Сага [2018, TV, 12 
 ```bash
 magnet:?xt=urn:btih:DE43A0341C2E9FA0B628A5F69495B74C110873E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Acousticsamples объявила о выпуске VHorns латунный пр�
 magnet:?xt=urn:btih:345C238560F2C310053A7B14C428775EB06DFBAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:345C238560F2C310053A7B14C428775EB06DFBAA
 ```bash
 magnet:?xt=urn:btih:19C54F44F65B76D29D647B74639A2527F44B43B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Quantum Break - уникальный проект, состоящий из дв�
 magnet:?xt=urn:btih:E0C98882E3026E400275587341F1852D77DFE8C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Sexy Girls Pack Wallpapers (17.12.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:09A94045A033B39549F89DBF60C795EBAA14AE88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +680,8 @@ Kendrick Lamar - DAMN (2017) Collector's Edition [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:82C88100CEB0D5D00B4AF416F13196DCB997E807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

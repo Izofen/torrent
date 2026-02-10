@@ -22,6 +22,8 @@ Warcrab - Warcrab (2012) [FLAC|Lossless|WEB-DL|tracks] <Death, Sludge Metal>
 magnet:?xt=urn:btih:7388344A92449292EBF394B3AFA089743F8044FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:7388344A92449292EBF394B3AFA089743F8044FD
 ```bash
 magnet:?xt=urn:btih:66F3D4958398BFE806913CC49EF8EEE0A13A0220
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:66F3D4958398BFE806913CC49EF8EEE0A13A0220
 magnet:?xt=urn:btih:DC20A5121027AFAA8048D9D92D0F79854BDB6D16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:DC20A5121027AFAA8048D9D92D0F79854BDB6D16
 magnet:?xt=urn:btih:52A2A0BB862ABE00E5A9662A3E15EA4744BEAF1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:52A2A0BB862ABE00E5A9662A3E15EA4744BEAF1C
 ```bash
 magnet:?xt=urn:btih:6C6143E3A6F5B9C00B9A18370F786DD67439580C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:6C6143E3A6F5B9C00B9A18370F786DD67439580C
 magnet:?xt=urn:btih:80B80E2CA7B42FF13CDBD3E4F30743F439925CE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:80B80E2CA7B42FF13CDBD3E4F30743F439925CE9
 ```bash
 magnet:?xt=urn:btih:028EE68EA65B551D1CAF8F3526C79A7751395A97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:028EE68EA65B551D1CAF8F3526C79A7751395A97
 magnet:?xt=urn:btih:CB0D4E99FE97229789E2ED24B3A0B8B6FB3E61DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:CB0D4E99FE97229789E2ED24B3A0B8B6FB3E61DD
 ```bash
 magnet:?xt=urn:btih:355306F364B07CFFA52FED5A3DE683F7EC3CDE70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:355306F364B07CFFA52FED5A3DE683F7EC3CDE70
 magnet:?xt=urn:btih:2FC86CDC2DF78EB6639C095EFAAD15CD8BA50705
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:2FC86CDC2DF78EB6639C095EFAAD15CD8BA50705
 magnet:?xt=urn:btih:8FB952D74B99334DE3012ECC30A9894455CF335D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:8FB952D74B99334DE3012ECC30A9894455CF335D
 magnet:?xt=urn:btih:B26AD6D3292471F08593952C153FB47847CBE3FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:B26AD6D3292471F08593952C153FB47847CBE3FB
 ```bash
 magnet:?xt=urn:btih:AB918395300B3DD69E54E0B14295E5C685474F7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:AB918395300B3DD69E54E0B14295E5C685474F7A
 ```bash
 magnet:?xt=urn:btih:FBB7465AA60815E6A4A4EC7F30F59DC0056EF17E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ Niovel - Never Strangers (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power M
 magnet:?xt=urn:btih:57023A56A6532511D6FAA0AF71EE7FDF7F5AC461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:57023A56A6532511D6FAA0AF71EE7FDF7F5AC461
 ```bash
 magnet:?xt=urn:btih:C960D2E81BF1007661039C33EE0897567CBD81E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ Dusk - Dissolve into Ash (2023) [MP3|320 Kbps] <Doom Metal, Death Metal>
 magnet:?xt=urn:btih:2F160DCEA9EEF032D7574B9F42A8F1168A3E85B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:2F160DCEA9EEF032D7574B9F42A8F1168A3E85B5
 magnet:?xt=urn:btih:189BBE76E6F3E3D77227F3A0E175F4D22B9D4B8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:189BBE76E6F3E3D77227F3A0E175F4D22B9D4B8D
 ```bash
 magnet:?xt=urn:btih:C3E1ADDF62A695A26C73A628E940E54C787D2E18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ Demon - The Unexpected Guest (1982) Japanese Edition, Reissue, Remastered, 2020,
 magnet:?xt=urn:btih:549B625C5D19419E1967717AEB04A5055F7F37C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ Dusk - Epoka (2018) [MP3|320 Kbps] <Industrial Black Metal>
 magnet:?xt=urn:btih:3B7DFF0B65212922135E87DDD8642532B78A6FEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:3B7DFF0B65212922135E87DDD8642532B78A6FEF
 ```bash
 magnet:?xt=urn:btih:B72617D295430DD1096010C5E7EAE22398E45D1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:B72617D295430DD1096010C5E7EAE22398E45D1F
 magnet:?xt=urn:btih:5715DCD4E6C1FFF6D7A8E98E90AF3BA6B2030970
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:5715DCD4E6C1FFF6D7A8E98E90AF3BA6B2030970
 ```bash
 magnet:?xt=urn:btih:35C4C8243FCB7E06295FD9E7B8DAFDD3BED6DD87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ CudaText — абсолютно бесплатный мультиплатфор�
 magnet:?xt=urn:btih:ACAC4DCB50B3E8A561FA87E17E4D05BB4A0AD8A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:ACAC4DCB50B3E8A561FA87E17E4D05BB4A0AD8A5
 ```bash
 magnet:?xt=urn:btih:82BDAF2A15F7BDA946F10EFC454B3FC9303E9CCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

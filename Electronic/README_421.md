@@ -22,6 +22,8 @@ Dead Or Alive - Fan the Flame (Pt. 1) (1990) Invincible Edition, 2021,  Demon Mu
 magnet:?xt=urn:btih:B6C71BD8AF03E8CB0B3AA2008FDCFDE18D730302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Oren Ambarchi - Grapes From The Estate (2004) Touch [FLAC|Lossless|tracks+.cue] 
 ```bash
 magnet:?xt=urn:btih:E53F14BC86A1B4A71DD6B9486BC2096B36833686
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Kritical Audio - Katacomb (2011) Detroit Underground [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:0E1F4FB8CE808F4B3C601E0283ECDD460023E187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ magnet:?xt=urn:btih:0E1F4FB8CE808F4B3C601E0283ECDD460023E187
 magnet:?xt=urn:btih:159738922D44D124668A8BC4D13FE402B156FC86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ Kritical Audio - Krupp EP (2006) Chillosophy Music [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:274FD0335A5CF9986690552CBA074D3A910608D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ VA - Tribe Vibe 2018 (2018) [MP3|320 Kbps] <Soulful House>
 magnet:?xt=urn:btih:7D2B9584C8DC3C5B59083442A1A40355CC3A2EF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ Pet Shop Boys - Undertow (2017) Single [FLAC|Lossless|tracks + .cue] <House, Tec
 ```bash
 magnet:?xt=urn:btih:026AF669D11A7C686CDA3758EB4CE7D677883E9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ VA - Jazz Mood Cocktail 25 Instrumental Jazz Music Soundtrack for Bar Restaurant
 magnet:?xt=urn:btih:2E67BFA57E9EAA272241DAE3C89004A156649B0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ VA - Ibiza Session 2017: For DJs Only (2017) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:478703FA1A320890F7F6EFBB2C48D8F9A2F319CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +281,8 @@ VA - Acoustic Pop Covers Volume 1 (2017) [MP3|320 Kbps] <Downtempo, Acoustic, In
 magnet:?xt=urn:btih:3EE74843A48C69C4527148EE2B691E9F20000FB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ Jade 4U - Jade's Dream (1988) LP [MP3|320 Kbps] <Electronic, New Beat>
 ```bash
 magnet:?xt=urn:btih:00DAF97D2F99C5160A13F6BFAAC60EF71C4A416F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +339,8 @@ VA - Deep House April 2017 Top 10 Best of Collections (2017) [MP3|320 Kbps] <Dee
 magnet:?xt=urn:btih:BD1CEBE83034D07958844625FE35C0D412012FB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ Michael E - Autumn (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:E9EA84D255ABCAB84C85CE9758094E32874EEA65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +397,8 @@ VA - Summer Chillout, The Best of Buddha Ambient Experience and Chill Zone (2017
 magnet:?xt=urn:btih:F2390C5950C3819606A949A1680B0FCCEF671602
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ Third Party - Hope (2017) [MP3|320 Kbps] <Big Room, Electro House>
 ```bash
 magnet:?xt=urn:btih:CB6464FF597223832B60A8A9345044F813E7363D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ VA - Spring Times Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:C3422618202BD75A55D0F786FDF57D5E89295C3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ VA - Quiet Zone Just Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 ```bash
 magnet:?xt=urn:btih:92BB40D0B092766D8EE0AA9FBC2C8819C576332D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ VA - Spring Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:79F5F829E0879663228BA54339A84FE612C75356
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ Spuntic:(   Читать дальше...   )Жанр: Dark Ambient, Soundscape, 
 ```bash
 magnet:?xt=urn:btih:1B6C1F91AEA17951BFF07964684D7F7D20CFBB80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +571,8 @@ Foretaste (Предвкушение) - французская синти-поп 
 magnet:?xt=urn:btih:100A0ED1D62740A2A44994CB4E7A2BA9AD8E0F7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ Ummet Ozcan - Tomorrowland Friendship Mix (2021-10-28) [MP3|320 Kbps] <Big Room>
 magnet:?xt=urn:btih:B83331A3A6B472C19FE2E6B379DCB161286A82F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +625,8 @@ Fatboy Slim - Everybody Loves A Mixtape Podcast (2021) [MP3|192 Kbps] <house, te
 ```bash
 magnet:?xt=urn:btih:3C3E8713E6CECBA582438613E46F4629BD76052C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +655,8 @@ Qrion - I Hope It Lasts Forever (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep 
 magnet:?xt=urn:btih:7B8982B4F3BB9040DD349A415EAAE0975B0A5B92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +683,8 @@ Charlotte de Witte - DJ Mag Alternative Top 100 DJs Winner Set (2021-10-27) [MP3
 ```bash
 magnet:?xt=urn:btih:B5C75864C5735C451108FB489D18C0968728E010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -665,6 +713,8 @@ VA - A Day to Chill: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Ba
 magnet:?xt=urn:btih:7655D6EBA24E057F8F188AA17E29E9C13FA942DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +741,8 @@ Tiësto - Musical Freedom Radio October (2021-10-16) [MP3|320 Kbps] <Electro Hou
 ```bash
 magnet:?xt=urn:btih:08FEBD48A557495DA48C3DF79955608130343C1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

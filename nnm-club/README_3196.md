@@ -22,6 +22,8 @@ Bullet For My Valentine - The Poison (20th Anniversary Edition) (2006) Remaster,
 magnet:?xt=urn:btih:3941C27BD2F7C36177BAE2E5AAF91E104B64CFF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:3941C27BD2F7C36177BAE2E5AAF91E104B64CFF4
 magnet:?xt=urn:btih:04A885D116AD947F9150F8E75CBB3201A50FA9B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:04A885D116AD947F9150F8E75CBB3201A50FA9B1
 ```bash
 magnet:?xt=urn:btih:22C605B86AB807AE54A33D68599FCCCBCCE5D31E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ Markus Schulz - Global DJ Broadcast Dream Sequence (Uplifting Trance Mix) (2024-
 magnet:?xt=urn:btih:86CD8DAF16C79BF04DCAAAB2DCC933523CED809C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:86CD8DAF16C79BF04DCAAAB2DCC933523CED809C
 ```bash
 magnet:?xt=urn:btih:0419C3061BE23D724D0A967F49AD9E69FC7D4C97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ magnet:?xt=urn:btih:0419C3061BE23D724D0A967F49AD9E69FC7D4C97
 magnet:?xt=urn:btih:2D016AA77A015918553782636A04C120D3DEE0BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ Fish On Friday - 8mm (2023) [FLAC|Lossless|image + .cue] <Progressive Rock, Cros
 magnet:?xt=urn:btih:F51C64E4A03264E79F8407B4AC230EBA335A7974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ magnet:?xt=urn:btih:F51C64E4A03264E79F8407B4AC230EBA335A7974
 ```bash
 magnet:?xt=urn:btih:6677432116B9820FA57C2A7A677F7A36FC97A7F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ magnet:?xt=urn:btih:6677432116B9820FA57C2A7A677F7A36FC97A7F8
 magnet:?xt=urn:btih:03E31875B83254EC712E5F2C599BA195EFA39BBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +276,8 @@ magnet:?xt=urn:btih:03E31875B83254EC712E5F2C599BA195EFA39BBB
 ```bash
 magnet:?xt=urn:btih:B82E797DC3E93F2195BF33B95411875B87EADCDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +305,8 @@ magnet:?xt=urn:btih:B82E797DC3E93F2195BF33B95411875B87EADCDF
 magnet:?xt=urn:btih:C558DD459D16FEDE6ED45532819C93B11CD049F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +332,8 @@ magnet:?xt=urn:btih:C558DD459D16FEDE6ED45532819C93B11CD049F2
 ```bash
 magnet:?xt=urn:btih:431822628037DA98D8F3098ED00E957B32821808
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +362,8 @@ Oz Noy Quartet - Fun One (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion
 magnet:?xt=urn:btih:C77A80B559194CF02B744680624A01C6868E47B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +390,8 @@ Half Broke Rising - The Recipe (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 
 ```bash
 magnet:?xt=urn:btih:79A30637813978F65FF3A05F7D9289288BDEA3B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +420,8 @@ Blind Ego - The Hunting Party (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progre
 magnet:?xt=urn:btih:4C186B1064FC22CE2356775D98D0E4F217E034AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +448,8 @@ magnet:?xt=urn:btih:4C186B1064FC22CE2356775D98D0E4F217E034AC
 ```bash
 magnet:?xt=urn:btih:DC800BB664D822021DD3A0B23E992B76302E079F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +478,8 @@ Departure Chandelier - Satan Soldier Of Fortune (2024) [FLAC|Lossless|image + .c
 magnet:?xt=urn:btih:E7F6FC547255747369AC47F7348B749C88C85E9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +504,8 @@ magnet:?xt=urn:btih:E7F6FC547255747369AC47F7348B749C88C85E9E
 ```bash
 magnet:?xt=urn:btih:4875D3B823FC891CD7EF1B5D8E5EFABD16C1D3C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +534,8 @@ Duke Jordan - Three Classic Albums Plus (1955 -1962) 2CD, 2014, Avid Jazz [FLAC|
 magnet:?xt=urn:btih:914941CDDDCF5080CD6BAD421DE2EDC7490D93FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +563,8 @@ Chuck Prophet feat. ¿Qiensave? - Wake The Dead (2024) [FLAC 24/48|Lossless|WEB-
 magnet:?xt=urn:btih:ADCF205F47DC41EB45DF6ABDB9601B6AE7D7D8F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +590,8 @@ magnet:?xt=urn:btih:ADCF205F47DC41EB45DF6ABDB9601B6AE7D7D8F4
 magnet:?xt=urn:btih:46DAA2A939AE4391CAEF86A374C09BEEEA8AEDF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +616,8 @@ magnet:?xt=urn:btih:46DAA2A939AE4391CAEF86A374C09BEEEA8AEDF9
 ```bash
 magnet:?xt=urn:btih:6D08CF1AFB9AA9CC70E02E6ABA35AC840C2668C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +646,8 @@ Bobby Hutcherson - Mirage (1991) Landmark Records [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:23241FB4334085FABA78601BB2371A30BEBCE184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +674,8 @@ J.P. Reali - Blues Since Birth (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:C4B33907F27945172728284F0597B01DEC395960
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +704,8 @@ Mezzanottemmezza - Out of This Place (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 magnet:?xt=urn:btih:F8FE17CF4522DDDEB109CEB7AA45CE25ED63A1A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,6 +731,8 @@ magnet:?xt=urn:btih:F8FE17CF4522DDDEB109CEB7AA45CE25ED63A1A6
 ```bash
 magnet:?xt=urn:btih:B342BEEE5D1A1A6927AD7154905267C760677892
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

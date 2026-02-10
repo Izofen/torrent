@@ -23,6 +23,8 @@
 magnet:?xt=urn:btih:9C7D7FE7DCA849E744D58A06AE4BA7B9BDD9F858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Bad Ass MIDI Keys & Bass - третий выпуск в новой серии �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Bad Ass MIDI Keys & Bass - третий выпуск в новой серии �
 magnet:?xt=urn:btih:A33A4681F569A1180E0CEE0361444EBE250AC83F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:A33A4681F569A1180E0CEE0361444EBE250AC83F
 ```bash
 magnet:?xt=urn:btih:8AC873D8E040E3506B53A09E2758183ECF343C5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:8AC873D8E040E3506B53A09E2758183ECF343C5E
 magnet:?xt=urn:btih:7EB0C64313D92061924E382AA7581344B9139529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ VanSans - это семейство гуманистических гротес�
 ```bash
 magnet:?xt=urn:btih:DB0FAFFF6DDEC658B3B315A222DB53E55420332B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:DB0FAFFF6DDEC658B3B315A222DB53E55420332B
 ```bash
 magnet:?xt=urn:btih:987DB99111CB55B3BAB2AEF0A8513CA5B635E0D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +218,8 @@ Packs 10 000 Presets for Ni Massive[KSD/WAV/MIDI/Patches NMSV/EXE][англий�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ Packs 10 000 Presets for Ni Massive[KSD/WAV/MIDI/Patches NMSV/EXE][англий�
 ```bash
 magnet:?xt=urn:btih:C447A667DC4B9E861513EBAAA9FB9D8B4B4419E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:C447A667DC4B9E861513EBAAA9FB9D8B4B4419E7
 magnet:?xt=urn:btih:F09E4CACC2786A3D772CC11E9E3CD6D5B67C6BB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:F09E4CACC2786A3D772CC11E9E3CD6D5B67C6BB8
 ```bash
 magnet:?xt=urn:btih:1B8B46FE10D128FB009E78FBFAC7ECD2E4A1E43D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ RevealerBoxx входит в группу цифровых библиотек, �
 magnet:?xt=urn:btih:972CA2FBEB599B44B22CB4CCA14C3328D3953815
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ VFU (Visionary Font Ultra) - универсальный шрифт с 9 вари
 ```bash
 magnet:?xt=urn:btih:6AFDD4D9E3B7E7ED94F80E1C584C2A6A7AB5FF5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ File Size: 14.3 GbAnimated Canvases Collection 03: Perfect Foundations - Эта 
 magnet:?xt=urn:btih:7D5C3D45E4E73C49D80DA693552625FD85F8421E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ magnet:?xt=urn:btih:7D5C3D45E4E73C49D80DA693552625FD85F8421E
 ```bash
 magnet:?xt=urn:btih:6ED6439F4FDBD4DFB3468852DE45C3425FEBF05E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:6ED6439F4FDBD4DFB3468852DE45C3425FEBF05E
 magnet:?xt=urn:btih:EAB2551BB4CB01B96C96512675B247481A1E3238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:EAB2551BB4CB01B96C96512675B247481A1E3238
 magnet:?xt=urn:btih:E20FB64063A0543D522282370A0B09D14B05909A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ magnet:?xt=urn:btih:E20FB64063A0543D522282370A0B09D14B05909A
 magnet:?xt=urn:btih:0A8ADCDC84DEADB87819E38969F7E83A391CABC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ Qundeasy - это небрежный и милый рукописный шриф
 magnet:?xt=urn:btih:BCB4AD44D587A227F920F12FF9CBF6D8B2474455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ magnet:?xt=urn:btih:BCB4AD44D587A227F920F12FF9CBF6D8B2474455
 ```bash
 magnet:?xt=urn:btih:8872631A197FD1B1BC2099AEC6F6648C6E78C197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:8872631A197FD1B1BC2099AEC6F6648C6E78C197
 magnet:?xt=urn:btih:71FCB7DDC4631DD9C8825328610540760B02535C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ CD OVUER - сочетание старого и нового. Это элега�
 ```bash
 magnet:?xt=urn:btih:E24A687DC11F05207E46C3B590C7B4021D25C86C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:E24A687DC11F05207E46C3B590C7B4021D25C86C
 magnet:?xt=urn:btih:19768F01B1384084603429D90B34A83C7A9FF893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ magnet:?xt=urn:btih:19768F01B1384084603429D90B34A83C7A9FF893
 ```bash
 magnet:?xt=urn:btih:2A489FA9E4EE935CD770BE44FC5C320710F4F3FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:2A489FA9E4EE935CD770BE44FC5C320710F4F3FD
 magnet:?xt=urn:btih:FDAF76258E412EDBDF2BCC3D5CE497D0B6F1810D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ BLOCKY - это монументальный акцидентный шрифт, 
 ```bash
 magnet:?xt=urn:btih:FCDAD871BF12CA965809D7CFE706C9718BB9EA86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

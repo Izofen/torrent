@@ -19,6 +19,8 @@ ECO HOLE (2021) [Ru/Multi] (1.06) Repack Pioneer
 magnet:?xt=urn:btih:87C0D90AE1576AADDB6218BC7533143EB397B8A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (build 16881986) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:80C35A20E4472FC503327257FC5F1226128DC381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Reus 2 выделяется своей уникальностью и увлек�
 magnet:?xt=urn:btih:8BCCD1E2629EC683C305E5657D2D8F23CCA95B72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Montezuma's Revenge - The 40th Anniversary Edition (2025) [Multi] (1.0.0.1.229) 
 ```bash
 magnet:?xt=urn:btih:377A4DC318C126E8664CF6010890EF8E8DFBAFA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (1.0a) Repack FitGirl
 magnet:?xt=urn:btih:E77514984306ED95D4E35B60BD850F4DD1E3961B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Age of Darkness: Final Stand - это стратегия в реальном в�
 ```bash
 magnet:?xt=urn:btih:6955F79C38F39EB7A3AA9ADE2C90419C41D4E74B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Cursed Digicam - хоррор, где основное внимание удел
 magnet:?xt=urn:btih:742117DC5030ADD6A46A2A159C0DCD12BB0FDDFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Lies We Tell Ourselves - психологический экшен от пе
 ```bash
 magnet:?xt=urn:btih:7C15003FFCD9CEC829878CD8399C1EA435681928
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Umbra: The Last Summoner (2024) [Ru/Multi] (build 16881986) Scene Tenoke
 magnet:?xt=urn:btih:762725C08018C1AF6DF02ED2E3C02E39A2859E74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Terra Exodus - экспериментальная экшен-стратегия 
 ```bash
 magnet:?xt=urn:btih:27AEBEFB52E9FD19EDC08C5AD0B5BDD61BA9BB0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16687288/dlc) Repack Decepticon [D
 magnet:?xt=urn:btih:A74EC00BDAB57549F1872EE1478C6704CA4FF5FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Among Ashes - это хоррор-игра от первого лица о ви�
 ```bash
 magnet:?xt=urn:btih:83B3866393A0EC92B1562AFE801754EB1E1EDCE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Lies We Tell Ourselves - психологический экшен от пе
 magnet:?xt=urn:btih:5A25C2D8DB07C211C89FD5392E8F8974EFA810A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Tavern Master: Complete (2021) [Ru/Multi] (2.1.1/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C2898C53685B0BFDF42CA380B7C0DD685F429DF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Umbra: The Last Summoner (2025) [Ru/Multi] (1.0а) Repack Let'sРlay
 magnet:?xt=urn:btih:846211998F7F9949C10831DC46425C5B9811C01A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Dynasty Warriors: Origins (2025) [Multi] (1.0.0.2/dlc) Repack DjDI [Digital Delu
 ```bash
 magnet:?xt=urn:btih:F7A99B740E3F488E615F0A2E7E8A8BA67D827FC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Hellbreach: Vegas - шутер с волнами врагов-демонов. И
 magnet:?xt=urn:btih:58103181B934C806AF251796553916C20B5F380D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ WWE 2K24 позволит вам заново пережить культовы�
 ```bash
 magnet:?xt=urn:btih:433E7AA526445657B5501DE5FE870AA4937976DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Root (2020) [Ru/Multi] (1.32/dlc) Repack Let'sРlay [Collector's Edition]
 magnet:?xt=urn:btih:546C56BFA50E0782D5F917686C9190C96F034EC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Running with Rifles - тактический шутер с видом сверх
 ```bash
 magnet:?xt=urn:btih:88A5957B8D053E2097D6F864D07BB252C7059DAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ I Am Future: Cozy Apocalypse Survival (2023) [Ru/Multi] (1.1.0.006r) Repack FitG
 magnet:?xt=urn:btih:7023C4824113B92ABBF9CC3697ABE0AE92F67850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Project Wingman - это игра-экшен, в которой вы может�
 ```bash
 magnet:?xt=urn:btih:A146FEEDAA7AFAFD5D65EABA7A350B629B80007F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Blade Runner: Enhanced Edition (2022) [Ru/Multi] (1.2.1075) Repack Let'sРlay
 magnet:?xt=urn:btih:CFDDC7C4E799DA9F3A221E49F22BDC62EABCE0D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Fort Solis - сюжетный триллер от третьего лица, р�
 ```bash
 magnet:?xt=urn:btih:6BAE088A454F54588796C38BB6B5A93A364A12AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Ghostrunner 2 (2023) [Ru/Multi] (42294.40/dlc) Repack Decepticon [Deluxe Edition
 magnet:?xt=urn:btih:C9FAB49D0F37D967C4398D304D4D66224946A5F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Dynasty Warriors: Origins (2025) [Multi] (1.0.0.2/dlc) Repack FitGirl [Digital D
 ```bash
 magnet:?xt=urn:btih:1693BC80BAFC2A257B8592385F666073CF8B80C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

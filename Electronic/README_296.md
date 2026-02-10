@@ -22,6 +22,8 @@ Caim - Preta (2019) Caim Records [FLAC|Lossless|Vinyl|tracks] <Breaks, Electro, 
 magnet:?xt=urn:btih:E448A1CCB7B7B2BA19058AE4C6FE17B149C55F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ V.A. - Cafe del Mar XXII (Volumen Vientidos) (2016) 2CD [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:3A081D53A5C849038C3FBE53DA747806937AFF7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Armada Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco>
 magnet:?xt=urn:btih:9385871F0D3418150A9C5B7D4BCE3D8EF666599A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Split Mirrors - 3 Albums (1993-2011) [MP3|320 Kbps] <Electro, Synth-pop>
 ```bash
 magnet:?xt=urn:btih:1A1D044395DE80D5D7C712430D2CFDDD5C91CD1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Poolside Ibiza (Mixed by Ghassemi & Televisor) (2016) [MP3|320 Kbps] <Elect
 magnet:?xt=urn:btih:46F6A59C82376B9DF938463767AB3EDE0AB93D54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ VA - Most Wanted Chill & Lounge (2016) [MP3|320 Kbps] <Easy Listening, Soulful, 
 magnet:?xt=urn:btih:3A9E242FE1009579B14BAD1E22FB0D3EF118FBBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ VA - La Nuit (Delicious Chill House Lounge Vol 2) (2016) [MP3|320 Kbps] <Deep Ho
 ```bash
 magnet:?xt=urn:btih:B95A045825AE33341034C8490AF890BDAFE575D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +229,8 @@ CD1: Mixed by Fedde Le Grand
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +254,8 @@ Solar Fields - Unreleased (2001-2009) [MP3|192-320 kbps]<Psybient, Ambient>
 ```bash
 magnet:?xt=urn:btih:B04C855570F65C29419B5C9A343F0DD767BF0497
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +284,8 @@ Le Youth - Reminders (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techn
 magnet:?xt=urn:btih:19D4D88B1EFCCD82E874DC5C64228FD077230A7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +312,8 @@ VA - Italian Chillout Cafe (2022) [FLAC|Lossless|WEB-DL|tracks] <Lo-Fi, Lounge, 
 ```bash
 magnet:?xt=urn:btih:043EA5CD4FA63536D0726E2B77B55A0A26A1B9B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +342,8 @@ Red Soda - Decades to Midnight (2019) [FLAC|Lossless|tracks + .cue] <Synthwave, 
 magnet:?xt=urn:btih:AF6AE2FD801A46BF6F33ED856F91CBD092EF5E5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +371,8 @@ VA - Vintage Deep House '19 (2019) [MP3|320 Kbps] <House, DeepHouse>
 magnet:?xt=urn:btih:B197456BA8EA943E23134EC35FFE7ECCEF90B23C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Rexob.B - Mega Cheeseburger (2019) Kosmos Solo [FLAC|Lossless|WEB-DL|tracks] <El
 ```bash
 magnet:?xt=urn:btih:85D76BA20EABBA850816AE523E0FECFB43D74C9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Talk Talk — британская группа, существовавшая с
 magnet:?xt=urn:btih:3834D51ED4ADE3032BE1F8037DE450C8F04271BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Atmosfera Records -  Uplifting Trance Vol.1 (2016) [MP3|320 Kbps] <Trance, 
 ```bash
 magnet:?xt=urn:btih:914FE3BD6B9D4BA4262F2C16E17A7CF96A66CD3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Weekend Workout Hits (2016) [MP3|320 Kbps] <House, Progressive>
 magnet:?xt=urn:btih:97C973C87334F1375177C591E2E58FB79B503079
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - IBIZA - Hot Summer (2016) [MP3|320 Kbps] <House, Progressive>
 ```bash
 magnet:?xt=urn:btih:DE283DC90FBA1583A7BACD2E0086A9750FCBBE39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Chill Out Sunset Vol.2 (2016) [MP3|320 Kbps] <Lounge>
 magnet:?xt=urn:btih:32AC0FC68011ED16603A6199F88014CA40F15A06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +573,8 @@ Clean Bandit - New Eyes (2014) Deluxe Version [FLAC|tracks|Web-DL] <UK Garage, D
 magnet:?xt=urn:btih:29E8F4C6438399221F76837B57F3D1DD4BD76AA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +601,8 @@ VA - Steyoyoke Black Onyx Vol.1 (2015) [FLAC|Lossless|WEB-DL]<Deep House,House>
 ```bash
 magnet:?xt=urn:btih:05E078E752EC68CF6CBDA451CB47F30ADA01D7FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +637,8 @@ Jens Buchert - Into the Silence (2011) [MP3|~240 kbps]<Electronic, Downtempo, Ch
 magnet:?xt=urn:btih:D4CEB2BFB8538ACEDB5E85807FA3637FA1CA490D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +665,8 @@ Madwave - Live @ SYNERGY, Alte Kaserne Zurich, Switzerland 2019-04-06 (00:59:50)
 ```bash
 magnet:?xt=urn:btih:CE3B6DDDB63CE90F59F6FD9B3F1264B4A21EEDCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +695,8 @@ VA - Sweet Chillout Vol.1 (2019) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:4EB88249BA22DF5BB773291ABFD5EC314FB493C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +724,8 @@ Chronos - Friendology Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psyb
 magnet:?xt=urn:btih:8D79D57EF7515E1D0FD4B272DAE4B6F8DF5E801B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +752,8 @@ VA - Ministry Of Sound - Chilled House Session 6 (2015) [FLAC|Lossless|WEB-DL]<C
 ```bash
 magnet:?xt=urn:btih:E5AFEBD5D1776615C33074BCB9F21F8BBDE6291D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

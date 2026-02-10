@@ -1,3 +1,38 @@
+###  Публикация: 610298   (991304) от 28.01.2013
+
+VA - Клубные Новинки Vol.227 (2013) [MP3|320 кб/с]<Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TyDi feat. Sarah Howells - When I Go (Arnej Remix)
+02. Sabrina Terence - About You (Mito & Moe Aly Edit)
+03. Soarsweep - If There Was Love (Original Mix)
+04. Teknova - Mistik (Stephan F Remix Edit)
+05. Stephan F - Majestic (Club Mix)
+06. Will Bailey and Poisound - In The Echo (Original Mix)
+07. Santerna - Parallax (Andrew Riqueza Bootleg)
+08. Steve Brian & Cressida - Casablanca (Radio Edit)
+09. Mark Van Dale with Enrico - Water Verve (Leon Bolier Remix)
+10. Mika V. - Biography (Radio Edit)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 04:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1FFD4816FB78C5D6954447A5904D7B77CAE4B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608313   (991306) от 28.01.2013
 
 VA - Club Dubstep №25 - Dubstep №25 (2012) [MP3|320 кб/с]<Dubstep>
@@ -23,6 +58,8 @@ VA - Club Dubstep №25 - Dubstep №25 (2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:8D758D1FA644F44F610B896055D96A2DB19E007F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -57,6 +94,8 @@ VA - Исаак Шварц. Песенка Верещагина (Лучшие п
 magnet:?xt=urn:btih:DA95EAF0FF4395D85B4335BC6DE92F4533EF291F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -83,6 +122,8 @@ VA - The Official UK Top 40 Singles Chart 17.01.2020 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:3FBCF7FAC098F837CD34A65040E3DB986D2897AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +158,8 @@ VA - Зарубежный чарт TOP 100 German (2013) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:0F662AC6A44139081DD02D747DCAD2A6397F3D16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +192,8 @@ VA - Хиты Под Водочку (2013) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:A689A864FD5E1B3DF77F59C83198E7AD5B87BEC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +228,8 @@ VA - Радио Шторм - NeРусский Шторм - 86 (2013) [MP3|128-32
 magnet:?xt=urn:btih:A4CEFC4DC744E98C9049A7718BE60EB957AC72D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +263,8 @@ VA-Зимний марафон DFM №22 (2013) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:993BD01F5C69AF5A4652FB8CCF7D0B9E124F7A5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +288,8 @@ VA-New Age Style - World Lounge 3 (2013) [MP3|320 кб/с]<New age, World, Downt
 ```bash
 magnet:?xt=urn:btih:FA5A2E77A3A59B748B05678742C358F57D407FFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +318,8 @@ VA - Meeting with Love (2020) [MP3|320 Kbps] <Instrumental, Easy listening, Blue
 magnet:?xt=urn:btih:E280A3E1DC424A0E04A08503123640A198A57788
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +346,8 @@ VA - 100 Greatest Happy Songs (2020) [MP3|320 Kbps] <Pop, Rock, RnB>
 ```bash
 magnet:?xt=urn:btih:8DDBA420DBFAAA4A116FBBAE88DB567689D91A8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +376,8 @@ VA - Christmas Carol: Lounge Interior Sound (2020) [MP3|320 Kbps] <Lounge, Chill
 magnet:?xt=urn:btih:916649CD5EF6F4DD585946054EC64E5473D92BDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +405,8 @@ VA - Electronic New Season (2020) [MP3|320 Kbps] <Electronic, EDM, Synthetic>
 magnet:?xt=urn:btih:7F7B4FE76015EB0ADAB2EFAD0EBCB4591D4186EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +433,8 @@ VA - Dub House: Electro Party (2020) [MP3|320 Kbps] <Dub House, Electro>
 ```bash
 magnet:?xt=urn:btih:1AD35D6FC3C6DB7FF42366FF9C8EE8BD6CA604D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +469,8 @@ VA - Best of Euphoric Emotions Vol.11 (2013) [MP3|320 кб/с]<Trance, Vocal Tra
 magnet:?xt=urn:btih:B38C38C2B810EEC1B66179272426D93ABCE7B41E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +497,8 @@ VA - Зимняя свежая 30-тка Vol. 3 (2020) [MP3|320 Kbps] <Pop, Danc
 ```bash
 magnet:?xt=urn:btih:08881F1B2F4920A5D6B1619C6B42A9B5A0C305F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +527,8 @@ VA - Classic Rock timeless! 3 (2020) 2CD [MP3|320 Kbps] <Rock, Hard Rock, Blues 
 magnet:?xt=urn:btih:8A74B1E391A287B45668B70962EB2E74C9346CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +555,8 @@ VA - Best tracks of Transitions by John Digweed on Kiss 100. 2008 Volume 5 Compi
 ```bash
 magnet:?xt=urn:btih:F982CF00C19CFC06BB86A75C4080727606F33C8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +591,8 @@ VA - Creative Music Box 7 (2013) [MP3|320 кб/с]<Dub Step, Drum'n'Bass, Heavy 
 magnet:?xt=urn:btih:AB1ADF70E57F060BEC95F913C335508448889BD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +625,8 @@ VA - Радио Шторм - Русский Шторм - 85 (2013) [MP3|128-320 
 ```bash
 magnet:?xt=urn:btih:7052E521515C502F7617D25F7EC4C713211648D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +661,8 @@ VA - Митяевские песни. Часть 3 (2011) [MP3|320 кб/с]<pop>
 magnet:?xt=urn:btih:81610F46B1B2B7D6043856B8B9ECE976506A8DCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +695,8 @@ VA - The Best Of Jingo Records. Heat Is On, Vol. 1-10 (1999-2007) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:7DAC57207700D06ABAECF46213EBAB44B28F4C33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +731,8 @@ VA - Зажигательная вечеринка. Зимний выпуск. �
 magnet:?xt=urn:btih:04FEA1ED236324380DE294BE750084AC6D5C38DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,6 +765,8 @@ VA - Trance. Vocal Fascination 44 (2012) [MP3|320 kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:ADCD292D022BD0C006C81ED7393139A560D699B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -720,6 +801,8 @@ VA - Sensation Source Of Light (2012) [MP3|320 кб/с]<house>
 magnet:?xt=urn:btih:832F3CC6760B9B5F0616F0039CE4867EB562678E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -753,38 +836,7 @@ VA - Дискотека 2013 Dance Club Vol. 100 (2013) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:812B3682F5A08F53D46AD138D07D654179B5C337
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605952   (995295) от 21.01.2013
-
-VA - Клубный суперсборник. Муз кураж 50/50 (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995295.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Next Feat. Dj Solar Explosion - Жажда Танца (Dance Club)
- 002. Dj Tiesto & Allure Feat. Jes - Show Me The Way
- 003. Пачуля - Ты И Я (Radio Mix)
- 004. Aruba Ice & Greysound - Hold Me
- 005. Zedd Vs. Bingo Players Vs. Alesso - Spectrum Rattle Pressure (Kitsch 2.0 Boolteg)
- 006. Reggaer - Я Тебя Люблю (Spinafly & Dj Kann Club Mix)
- 007. Ева Польна - Je T'aime (Я Тебя Тоже Нет) (Fresh Tunes Radio Edit)
- 008. Aksioma Project - Без Тебя (D'marzio Remix)
- 009. Светлана Лобода - Облака (Dj Ozeroff & Dj Sky Feat. Lebedev Radio Mix)
- 010. Nikita - Авокадо (Dj Jedy Radio Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 06:10:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40839019EA58713361E4F3EE92782C8BC978A277
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

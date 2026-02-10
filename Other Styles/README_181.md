@@ -26,6 +26,8 @@ Niladri Kumar - IF. Magical Sounds of Sitar (2003) [MP3|320 кб/с]<New ega, Me
 magnet:?xt=urn:btih:0F07E8C1D204F38BB57AC33FE34B5C15C7299AE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Tom Kenyon - Songs of Magdalen (2005) [FLAC|Lossless|tracks + .cue] <New Age>
 ```bash
 magnet:?xt=urn:btih:80D2ACF8BC2BD56579349B59B37512F5F92FF300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -80,6 +84,8 @@ Ennio Morricone - Correspondence (La Corrispondenza) Original Soundtrack (2016) 
 magnet:?xt=urn:btih:FF3818881BBC80C75B2B45A14C9497DA05FCF151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -107,6 +113,8 @@ Jens Gad (ex.-Enigma) - Le Spa Sonique (2006) [FLAC|Lossless|tracks + .cue] <Dow
 magnet:?xt=urn:btih:5FBA6E7A85538AB46C31A8F34467479428CB205F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -133,6 +141,8 @@ Enigmatic Obsession - Secrets Of Seduction (2005) [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:852E17BAA6FC3127B90764A5012EC5DF3216DD60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +177,8 @@ Pep-See - Уступите парню лыжню (2:39)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +212,8 @@ Paul Lawler - 3 альбома (2008-2012) [MP3|320 kbps]<New age, Ambient>
 magnet:?xt=urn:btih:E6EF0ABB8B8C3C45D984266919376C85418BFD1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +245,8 @@ Midori (Medwyn Goodall) - Gregorian Harmony (2006) [FLAC|Lossless]<New Age, Rela
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +276,8 @@ The Nymphs - Language of the Nymphs (2012) [MP3|192 кб/с]<New age, Instrument
 ```bash
 magnet:?xt=urn:btih:517AA0BD7BCF379130E5DEDB194E8DEA3B78F4EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +312,8 @@ VA - Seduction Time (2012) [MP3|320 kbps]<Erotic Lounge, Chillout, Ambient>
 magnet:?xt=urn:btih:2D4B40162B9B21495133BCBFD26AA1E08E2CCEBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +343,8 @@ Richard Ackrill - The Lightness of Being (2012) [MP3|320 кб/с]<New age>
 ```bash
 magnet:?xt=urn:btih:5C1645612714832C143D1B687C5EEABD7EFC46D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +379,8 @@ Fiona Joy Hawkins - Christmas Joy (2011) [APE|Lossless]<New Age, Instrumental, P
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +414,8 @@ Naim - The Sampler 5 (2005) [FLAC|Lossless]<Audiofile, Test>
 magnet:?xt=urn:btih:5B4AE6C917DA240E035A11767DDACE5C56D19888
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +442,8 @@ magnet:?xt=urn:btih:5B4AE6C917DA240E035A11767DDACE5C56D19888
 ```bash
 magnet:?xt=urn:btih:1C6E4E75B6DB7BA8F0AB8B2F796647D7636585CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +477,8 @@ Naim - The Sampler 2 (1999) [FLAC|Lossless]<Audiofile, Test>
 magnet:?xt=urn:btih:AD27712B1D1B965528D6327F1B2D366F448E0005
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +505,8 @@ Douglas Blue Feather - Rhythms of the Night (2015) [MP3|320 кб/с] <New Age, N
 ```bash
 magnet:?xt=urn:btih:1682CB5755BD5297A2A46752C03223F29D7B56C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +535,8 @@ David Arkenstone - Gentle Rain (2006) [FLAC|Lossless]<New Age>
 magnet:?xt=urn:btih:15582BCCF7B24D355FD766CC093E8179640EE89B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +561,8 @@ magnet:?xt=urn:btih:15582BCCF7B24D355FD766CC093E8179640EE89B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +586,8 @@ VA - Аккордеон. 6 альбомов (1997 - 2003) [MP3|192 kbps]<Instrum
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +622,8 @@ Ivan Kopas - Nu Sound (A Fragment of a Confession) (2007) [FLAC|Lossless]<Chill,
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +656,8 @@ Burmester - Reference CD III (2003) [FLAC|Lossless]<Audiofile, Test>
 ```bash
 magnet:?xt=urn:btih:1F64CF54D046B8C94C834C4D580A3277D30613A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +692,8 @@ Triangle - Musique - Demonstration CD  ver.2003-2004 (2004) [FLAC|Lossless]<Audi
 magnet:?xt=urn:btih:02350315C8ABC5D1D09316743B74C4A0DBCCB570
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -679,6 +723,8 @@ Infinity Audiophile Recordings - Volume 2 (2001) [FLAC|Lossless]<Audiofile, Test
 ```bash
 magnet:?xt=urn:btih:4EC844124143E7988EB60040EE3C6AFBF22CAD7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -711,6 +757,8 @@ magnet:?xt=urn:btih:4EC844124143E7988EB60040EE3C6AFBF22CAD7E
 ```bash
 magnet:?xt=urn:btih:33812BEBFB74364CA760F81B26FC07B733D765DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -745,6 +793,8 @@ Van Den Hul - Four of a kind - For the time being (1999) [FLAC|Lossless]<Audiofi
 magnet:?xt=urn:btih:66DEF8FBE80BE34B2C43F778561B45E6242F5BFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -777,6 +827,8 @@ CDT Audio - Demo CD - Part 1 (2006) [FLAC|Lossless]<Audiofile, Test>
 ```bash
 magnet:?xt=urn:btih:476ABA8FC2CB1FDA88EF2AB33E4D8A25F4A4CF48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

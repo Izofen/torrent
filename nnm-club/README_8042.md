@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:86BBC928063C3A2295E89F2829ADDA21DE713DA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Thad Jones - The Magnificent Thad Jones (1956) 1987, Blue Note [FLAC|Lossless|tr
 magnet:?xt=urn:btih:BD24678E09A7CD9EAD809DCD1B1EB12C5784C29D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:BD24678E09A7CD9EAD809DCD1B1EB12C5784C29D
 magnet:?xt=urn:btih:0263B0740D4D67D233BF861636A2C2219419E010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:0263B0740D4D67D233BF861636A2C2219419E010
 ```bash
 magnet:?xt=urn:btih:DCCE19615494E1FDAE1CA915FAFA3FA9F9A4460A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Crowne - Operation Phoenix (2023) Japanese Edition [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:5B044763720FF5343B78F1F6A81FF73D6BF5464A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ VA - Trance Spring (2023) [MP3|320 Kbps] <Uplifting Trance>
 magnet:?xt=urn:btih:1A79F4FC97E5EF757DC462B840A43C13D136577B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ EverWeb даже создает мобильные сайты, которые о
 ```bash
 magnet:?xt=urn:btih:667AE2FD65F6B6D40A53EDDC477904B84DEFFCA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ Eddie "Lockjaw" Davis & Shirley Scott - Jaws (1958) 1994, Original Jazz Classics
 magnet:?xt=urn:btih:D72E12CFC76034C9CA606A485AC6EF679ED21391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ Bog Monkey - Hollow (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
 magnet:?xt=urn:btih:448239C11F037817691FCB7E936CC70BFBA8754A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:448239C11F037817691FCB7E936CC70BFBA8754A
 ```bash
 magnet:?xt=urn:btih:9BA96A2AD5B41A77B610C39CDF248F401B7C33AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ Audrey Horne - Devil's Bell (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:CA8E583E40BF8F6D2C618F5226014E0390FA2C8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:CA8E583E40BF8F6D2C618F5226014E0390FA2C8F
 ```bash
 magnet:?xt=urn:btih:D9FD93EF815F8C75BE6D2219AC87C17947BDBE07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +355,8 @@ magnet:?xt=urn:btih:D9FD93EF815F8C75BE6D2219AC87C17947BDBE07
 magnet:?xt=urn:btih:379F37937404FE1BDB6086E00EA0FB4311456E93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:379F37937404FE1BDB6086E00EA0FB4311456E93
 ```bash
 magnet:?xt=urn:btih:9164C257B770BAE624A40FCB7D0A9DFF7767AD4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ Eddie "Lockjaw" Davis & Shirley Scott - Cookbook, Vol.3 (1958) 1992, Original Ja
 magnet:?xt=urn:btih:BA89F9D37D9EBB64E3C89C29007CA8B8B2118393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:BA89F9D37D9EBB64E3C89C29007CA8B8B2118393
 ```bash
 magnet:?xt=urn:btih:55453028B3E2848673C22999CEDD4B1E44B44094
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ magnet:?xt=urn:btih:55453028B3E2848673C22999CEDD4B1E44B44094
 magnet:?xt=urn:btih:ED243E994FB70E9D2106CB8A192C2C591B47F654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ Kitchen Sink - Clandestiny  (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 ```bash
 magnet:?xt=urn:btih:A5FA9BE0945866F0D98BC397467E99032AB07429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +523,8 @@ The Fuzztones - Encore (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, G
 magnet:?xt=urn:btih:246EC8C96927607F68CE16428DA88FE7B7F476E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +549,8 @@ magnet:?xt=urn:btih:246EC8C96927607F68CE16428DA88FE7B7F476E2
 magnet:?xt=urn:btih:E06B970D26EDEF6D28395B1B1BB1A733B23AAE40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +574,8 @@ magnet:?xt=urn:btih:E06B970D26EDEF6D28395B1B1BB1A733B23AAE40
 ```bash
 magnet:?xt=urn:btih:91AFB562A6BB911D4432DDA69338D269B779D2BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +604,8 @@ Lee Konitz & Frank Wunsch - Insight (1989 - 1995) 2011, Jazzwerkstatt [FLAC|Loss
 magnet:?xt=urn:btih:A2E23CD0402615C0F1D52CDFE09639A4BFD44DED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +633,8 @@ Billy Taylor Trio - Urban Griot (2001) Soundpost [FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:33D1FAB6F12087E662039F8307846A6BA3A6283C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +659,8 @@ magnet:?xt=urn:btih:33D1FAB6F12087E662039F8307846A6BA3A6283C
 magnet:?xt=urn:btih:9326CC6CD80C6CDBA6593D4124B0CB067438027B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ Mem Reduct - это легкое и хорошо себя зарекомендо
 ```bash
 magnet:?xt=urn:btih:E7701D7090F96FD9CB909C96EC193963DD32DCC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -663,6 +713,8 @@ The L.A. Maybe - Dirty Damn Tricks (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:3A63DE4E0C690E37386E1011EB7FF449E10A6F8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

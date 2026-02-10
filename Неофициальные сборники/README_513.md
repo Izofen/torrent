@@ -1,3 +1,32 @@
+###  Публикация: 1275651   (789870) от 12.01.2019
+
+VA - Generate Trance: Hot Progressive Mix (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789870.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adam Ellis & Jo Cartwright - Broken
+002. Technology - After Chaos
+003. Luca De Maas - Rising Sun (Original Mix)
+004. Bio Babas - 64 Layers(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 11:20:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0676A24675E8B338ACC975E9C0B197EB8F00AC3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275418   (789874) от 12.01.2019
 
 VA - One Drop Reggae Vol. 01 (2019) [MP3|320 Kbps] <Reggae, Ska, Soul>
@@ -21,6 +50,8 @@ VA - One Drop Reggae Vol. 01 (2019) [MP3|320 Kbps] <Reggae, Ska, Soul>
 ```bash
 magnet:?xt=urn:btih:3AC467D5D3767228FEB1A409491A5044CB8D9AD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Neon Life: Rap & Hip Hop Collection (2019) [MP3|320 Kbps] <Rap, Hip Hop>
 magnet:?xt=urn:btih:98FB6DF2537D8E6E5FE67D18976AFA412FDE168A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Deluxe Techno Sessions (2019) [MP3|320 Kbps] <Techno, Tech House, Electroni
 ```bash
 magnet:?xt=urn:btih:761693FFAC06B09257DC8E630098BC472B534811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - ЕвроХит Топ 40 Europa Plus 11.01.2019 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:D0C903BEAA908469039BA6E9A40A2B4E9227DA23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - High DuB Voltage (2019) [MP3|320 Kbps] <Dubstep, Drum and Bass>
 ```bash
 magnet:?xt=urn:btih:12760CE1578FF6EA2608288FF453E5E8BD4D45E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - The Official UK Top 40 Singles Chart 11.01.2019 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:1DB0B23DF75211372DF8199971D580FE5C49EB68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Beatport Tech House: Electro Sound Pack #98 (2020) [MP3|320 Kbps] <Tech Hou
 ```bash
 magnet:?xt=urn:btih:9A5A84C98890BDA4854EBE8EDEF6686E168E85D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Beatport Electro House: Sound Pack #97 (2020) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:1B774360FD701F092EF17AAB2224D8220399AF1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Music News vol.15 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
 ```bash
 magnet:?xt=urn:btih:62BFB815D2FB2CD04B485E6324DE28F11A0F9B00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Happy Race: Indie Pop Rock Music (2020) [MP3|320 Kbps] <Indie, Pop Rock, Al
 magnet:?xt=urn:btih:D3370D5F52C24912BD121747A7A8020F9CC84A0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Funky Disco House: Soulful Extended Mix (2020) [MP3|320 Kbps] <Funky, Disco
 ```bash
 magnet:?xt=urn:btih:625D6B75830BCED13663669B20A9BD90E8DD6EFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Лучшие клубные новинки Vol.10 (2018) [MP3|320 Kbps] <Da
 magnet:?xt=urn:btih:6F7A41E0A29404687081045B2D5371BD212F6B24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ Cheeps - Аппликация (2021) Bootleg [MP3|192 Kbps] <IndiRock>
 ```bash
 magnet:?xt=urn:btih:A6891D5BDC0CB756F0F56342F3624E368B2C6FF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Red And Black (2018) [MP3|230-320 Kbps] <Rap, Hip Hop, RnB>
 magnet:?xt=urn:btih:82E10A69131BD75FD3E5999DB1AFCCCAE60D5B4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Blues Collection (Winter) (2018) [MP3|320 Kbps] <Blues. Blues Rock>
 ```bash
 magnet:?xt=urn:btih:EDE20B1F9012E65AB6327F2E4AA47E641CA25503
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - Chillout Vol.44 (Compiled By ZeByte) (2018) [MP3|320 Kbps] <Downtempo, Chil
 magnet:?xt=urn:btih:8B6BFCDCE2F1E79746033C34927E3DC76C2B1CC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ VA - Radio DFM: D-Chart Итоговый 2018 Top 50 (2019) [MP3|320 Kbps] <Pop,
 ```bash
 magnet:?xt=urn:btih:5C12B9B92BECF18EB563EA79A65D6819BEFA040C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ VA - Vocal Drum And Bass (2018) [MP3|320 Kbps] <Vocal Bass, D&B>
 magnet:?xt=urn:btih:14E3B62FA20FECE89F808FCBB5D2B6AC0C32F276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ VA - Music Of India (2018) [MP3|320 Kbps] <House, Big Room, Dance>
 ```bash
 magnet:?xt=urn:btih:6D211B3D706C61B47BD03EFEDC54314115861FB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ VA - Contact The Spirit (2019) [MP3|320 Kbps] <Psychedelic, Goa Trance>
 magnet:?xt=urn:btih:53F4EA464FCC90F489F9F8D2E168C45B4A456E19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ VA - EDM RG: End Of The Year Mix (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:F919661226E78BE2C8C8D134D26BFC09DB1E6174
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ VA - Private Lounge Vol.4 (2018) [MP3|320 Kbps] <Lounge,Deep House>
 magnet:?xt=urn:btih:C64D9D8635EE8DDF3087381DBE50BA678EC9CECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ VA - Club House Hits Euro EDM (2018) [MP3|320 Kbps] <Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:EE91EA31185B527240658A6F622496A8CBD066DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ VA - Diskoteka 2018 - Winter Weekend (2018) [MP3|320 Kbps] <House, Latino, Dance
 magnet:?xt=urn:btih:7454D77158F8DD828C6A637B431162278A20695B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ VA - Workout Mix vol.11 (mixed by Dj V) (2018) [MP3|320 Kbps] <Club House, Elect
 magnet:?xt=urn:btih:989DB6E3A5655DA5559989BFD90B8F2946B21239
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202179   (790543) от 28.01.2018
-
-VA - Record Super Chart #521 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Twoloud vs. DJ Kuba & Ne!tan  -  Mirror On The Wall  2:30
-02.  Post Malone feat. 21 Savage  -  Rockstar  3:38
-03.  Katy Perry feat. Nicki Minaj  -  Swish Swish (Mikis Remix)  4:30
-04.  Don Diablo  -  Momentum  3:28(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E310B63A9AF87AC84B52441E5ADE127D5A848C2C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

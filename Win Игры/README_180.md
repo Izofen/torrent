@@ -19,6 +19,8 @@ Beneath Oresa (2022) [Ru/Multi] (1.0.23) Repack Wagner
 magnet:?xt=urn:btih:DE79D51882BB259CD42480BE038B82FA594CC5D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Farm Manager 2021 – игровой проект, который вновь г�
 ```bash
 magnet:?xt=urn:btih:C3B344F48EC26411107C65B32C92646D7FFD19EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Left 4 Dead 2 (2009) [Ru/Multi] (2.2.3.0/dlc) Repack dixen18
 magnet:?xt=urn:btih:B9C5CD09C307AC4E8C4C8C3252FCC091A6A2C94B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Inquisitor - это сюжетная приключенческая игра
 ```bash
 magnet:?xt=urn:btih:79CB4CAECD89876139A6B84036C48EC9C5CA3F68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Builders of Greece (2024) [Ru/Multi] (14640143) Repack Wagner [Early Access]
 magnet:?xt=urn:btih:7DE9121E64AD38757F471DD0C1627DCD96D9DA31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Coromon – ролевое инди-приключение про прируче
 ```bash
 magnet:?xt=urn:btih:684B0045CA126D1073118A2BFE9754B971D55586
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Mafia (2020) [Ru/Multi] (1.0.3/dlc) Repack dixen18 [Definitive Edition]
 magnet:?xt=urn:btih:DC2556A068998339CDF4CD083545F9D89C8FF3FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Mafia II (2) (2020) [Ru/En] (1.0u1/dlc) Repack dixen18 [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:544F106C9114DD18EB6C231C38114292BF17C1BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ MY DESTINY GIRLS (2024) [Multi] (20240417) Scene Tenoke
 magnet:?xt=urn:btih:09AD4A64731D095E861D5726347B2F13274CDE0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Alone in the Dark (2024) [Ru/Multi] (1.0.5b/dlc) License GOG [Digital Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:6F62A8BBCB3258D3131B1B56417C01E182EFBF94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Mafia III (3) (2020) [Ru/Multi] (1.0.1/dlc) Repack dixen18 [Definitive Edition]
 magnet:?xt=urn:btih:28377E70CF9D8163B8CE02BAE59A77DDD8BB61F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ WitchSpring R (2023) [Multi] (1.307/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E3CD0E4DAAF8C9D4943C65FFEF50DA11139933F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Highrise City совмещает в себе элементы как строи�
 magnet:?xt=urn:btih:78A2B07C90028D2069F83B8C14EE60A3EDF0A4A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Airhead отличается от прочих метроидваний тем, 
 ```bash
 magnet:?xt=urn:btih:9D26F0EA476C2979C777AFF2DB1BA603BD096E9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Legend of Crystal Valley / Легенда хрустальной долин�
 magnet:?xt=urn:btih:B45BB8EEC62C056664F9C68D974508A0F528B7A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Ni no Kuni Wrath of the White Witch™ Remastered (2019) [Ru/Multi] (1.0) Repack
 ```bash
 magnet:?xt=urn:btih:435E3120AD7CD2D57EA68FA66C17AE4C72FF86A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Lumnis – что может быть лучше сочетаний жанра �
 magnet:?xt=urn:btih:7FF02D9781A2BDEA3C29D8510E2374FFA289D10E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Medium – психологический хоррор с видом от т
 ```bash
 magnet:?xt=urn:btih:67D3CC24026D34013F91BA06DCA2052113467E36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ INDIKA - игра от третьего лица с историей о стра
 magnet:?xt=urn:btih:31773611A6EAEF61E65EA75FA8A6633926CB1412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ I dont Fall – Беллерофон хочет получить статус б
 ```bash
 magnet:?xt=urn:btih:17FE982594CDFB8ADF290163713DF8C0F7BAA1A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Invincible представляет собой приключенческу�
 magnet:?xt=urn:btih:DBA9D8DA454A93DA4F6492B9316764AB3104EE79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Watch Dogs (2014) [Ru/En] (1.06.329/dlc) Repack dixen18 [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:29662E5A3142D0273E5D65293E1968BC2245FF6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Dark Souls II (2): Scholar of the First Sin (2015) [Ru/Multi] (1.03/dlc) Repack 
 magnet:?xt=urn:btih:E2DCA6ED24AE197D4686A9DD074726E4008A80FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.03.1.202112071122) Repack dixe
 ```bash
 magnet:?xt=urn:btih:87458C73FC9F6155502385EA59FD5847E6390730
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Star Wars™: The Force Unleashed (2009) [Ru/Multi] (1.2) Repack dixen18
 magnet:?xt=urn:btih:11CF7DD05E260B72788F6FF4560E9A6A327C8BF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Company of Heroes 3 (2023) [En] (1.4.2.21612/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:77E50A26DC4E0DDE07DFCE13617FE5B0BE76EC2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

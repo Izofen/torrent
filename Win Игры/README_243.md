@@ -19,6 +19,8 @@ Crysis Remastered: Обычная спасательная операция пе
 magnet:?xt=urn:btih:A62527E84DBA40DAE85C527A1009C047E2439DFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Crysis Remastered Trilogy (2021-2022) [Ru/En] (rc2) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:FEAA7099B67266D89B0A288581589D6A14CAC5CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Crew 2 (2018) [Ru/Multi] (4060652/dlc) Repack Let'sРlay [Gold Edition]
 magnet:?xt=urn:btih:533BB174AAFD57317DA359C51B0B6543F222890F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Christmas Carol / Рождественская песнь (2018) [Ru/Multi] (1.0
 ```bash
 magnet:?xt=urn:btih:E0377C8E1F08F89F501D3DF02627D3D250CA9F39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 magnet:?xt=urn:btih:A55C3552722CF433BC78C13BAECA564B1DF1F145
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.3.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:33117C2ADCEBC42FB487D3846D902024D4FD9742
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Monster Jam Steel Titans (2019) [Ru/Multi] (1.1.0/dlc) Repack R.G. Catalyst
 magnet:?xt=urn:btih:5A6A4B1AAE393163523FE481F52180138EBA4A13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Warhammer 40,000: Dawn of War II. Разработанная отмеченно�
 ```bash
 magnet:?xt=urn:btih:C8C466D5E1397FA6ED77E3C72CDA0FCAC2264667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Void / Тургор. Голос цвета (2009) [Ru/Multi] (1.0) License G
 magnet:?xt=urn:btih:5C2F0054EA35B0C906631C833B912CCA52CE8692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ StarCraft: Remastered (2017) [Ru/Multi] (1.23.10.12409) Repack Necros
 ```bash
 magnet:?xt=urn:btih:5D1F6061F2F783F64F857B3C1BA9AECBC817058F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Disney Infinity — приключенческий боевик и песочн�
 magnet:?xt=urn:btih:46CE63753E04AD3090F68EEF8195209E2CD8B30D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ House Flipper (2018) [Ru/Multi] (1.12/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:54D691F9AD1CC8C6B639B6CDEDA259F2DCE59656
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dungetris - классический пошаговый rogue-like, с нест�
 magnet:?xt=urn:btih:841BF16D7544ABED17B68EBECEEEA382A0930340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Worms Reloaded (2010) [Ru/En] (1.0.0.478/dlc) Repack Mizantrop1337 [Game of the 
 ```bash
 magnet:?xt=urn:btih:0FEF727B4B1B60B13AE9ED7B9947BF1D788F8C87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Walking Dead: Michonne (2016) [Ru/Multi] (1.0.0.1) Repack R.G. Механи�
 magnet:?xt=urn:btih:1C6A2D05B5476B11C35B88B36B2392F10153FB57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ American Truck Simulator - это симулятор вождения амери
 ```bash
 magnet:?xt=urn:btih:31CDD222CD6A3BA0367E2C29790453AA9892B6FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Immortals Fenyx Rising - ролевая игра в открытом мире, �
 magnet:?xt=urn:btih:80FB877352C5E8142366485D2A02754E808E4722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Keeper (2025) [Ru/Multi] (1.0.0.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:AE79B91986AE19F246EE73B4DD7A76C2D37F40EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Harrowed Halls 2: Hells Thistle / Обитель страданий 2: Адск�
 magnet:?xt=urn:btih:D6BD74B461E426719C3517F55A951B631547DA33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ American Arcadia - увлекательная кинематографическ
 ```bash
 magnet:?xt=urn:btih:481BAD31B1CE1E541544CADE36E76E5BFBEE1A45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Coral Island – классический симулятор фермы, пер�
 magnet:?xt=urn:btih:CC971473F7CC4E1593DBE144C8F31C46CE3AAECE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Bad Cheese - это психологический хоррор, вдохнов�
 ```bash
 magnet:?xt=urn:btih:C83E58914BF978DF6DC40098737097B2DFD9F1AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Warhammer 40,000: Space Marine (2012) [Ru] (1.0.165.0/dlc) Repack Other s [Colle
 magnet:?xt=urn:btih:1B96AD1250BC126F98AA96CCD003A618ED448682
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Next Space Rebels (2021) [Multi] (1.12) License GOG
 ```bash
 magnet:?xt=urn:btih:5D980A0612977CFE60FDBA970D0A03E4B816D614
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ UFO ROBOT GRENDIZER - The Feast of the Wolves предлагает взять н
 magnet:?xt=urn:btih:EE276794FCBB5267541C36B107A8BC79539D8203
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Sailing Era может заинтересовать любителей виде�
 ```bash
 magnet:?xt=urn:btih:54239D86989FAE39AD46F2824661F42CD5B0B21F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

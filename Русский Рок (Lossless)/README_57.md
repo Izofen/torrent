@@ -1,3 +1,32 @@
+###  Публикация: 1551352   (590228) от 15.05.2022
+
+Morok - Вне света & На круги своя (1997) 2CD, Remastered & Reissued, 2022, Der Schwarze Tod/COD Music [FLAC|Lossless|image + .cue] <Russian Pagan Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590228.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Полночь
+2. Предтеча
+3. Сгоревшая река
+4. Дыхание осени(   Читать дальше...   )Жанр: Pagan Metal, Black MetalПродолжительность: 01:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2016FC08C55D91A9AAD8A49B7787613BAF69FB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551006   (590750) от 14.05.2022
 
 Рваные Раны - Лучшая проклятая вещь (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:C50095E31BE979FD739B2BF738DA8516190D373A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ The Faceless Hunter - One Minute to Midnight (2022) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:17CA6600DA69FCB1DE95FF2D4C18792C267CE4AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ magnet:?xt=urn:btih:17CA6600DA69FCB1DE95FF2D4C18792C267CE4AE
 magnet:?xt=urn:btih:BA3DE033BA16942768BD0CB3F2F3345DBEB3512F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +137,8 @@ magnet:?xt=urn:btih:BA3DE033BA16942768BD0CB3F2F3345DBEB3512F
 ```bash
 magnet:?xt=urn:btih:D7764C7778E6BA1CE6D769CA4F9BF841EADDA067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +168,8 @@ magnet:?xt=urn:btih:D7764C7778E6BA1CE6D769CA4F9BF841EADDA067
 magnet:?xt=urn:btih:2FAAB3376E0ABCB9F15363CD5FF27A2C2C6CD2FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -158,6 +197,8 @@ magnet:?xt=urn:btih:2FAAB3376E0ABCB9F15363CD5FF27A2C2C6CD2FB
 magnet:?xt=urn:btih:024E71897F6F2E90A019E2DFBA21AE2FF8BD47AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +225,8 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:79DE09A754A0FFB06F1EFE10CAE4F184C6BCE85C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +266,8 @@ magnet:?xt=urn:btih:79DE09A754A0FFB06F1EFE10CAE4F184C6BCE85C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +294,8 @@ IZTUMANA - Zoomorph (2014) [APE|Lossless|image + .cue] <Space-Rock, Psychedelic 
 ```bash
 magnet:?xt=urn:btih:09CEDC97219D9A2F49B26435466E0AF299D39241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +324,8 @@ magnet:?xt=urn:btih:09CEDC97219D9A2F49B26435466E0AF299D39241
 magnet:?xt=urn:btih:9D4EB05054E102A0E28E0F7CCE3671528D0E638C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +352,8 @@ magnet:?xt=urn:btih:9D4EB05054E102A0E28E0F7CCE3671528D0E638C
 ```bash
 magnet:?xt=urn:btih:3B00B37A57CF2B3107F384781468128F01F5F1CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +382,8 @@ Bastard Folk - Трактир на перекрестке (2022) [FLAC|Lossless|
 magnet:?xt=urn:btih:E6EE46AC2FA582F100D95AFDC9214AEE0977FA9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +407,8 @@ Vector Of Underground (Виктор Андеграундъ) - 5 Albums / 2 Singl
 ```bash
 magnet:?xt=urn:btih:DB470A5BBB963BB9B7BB4ADCFE20A1B0B4CC8690
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +437,8 @@ magnet:?xt=urn:btih:DB470A5BBB963BB9B7BB4ADCFE20A1B0B4CC8690
 magnet:?xt=urn:btih:A641D8087E73F4C0AC5F428DDB54D56114067E06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +465,8 @@ magnet:?xt=urn:btih:A641D8087E73F4C0AC5F428DDB54D56114067E06
 ```bash
 magnet:?xt=urn:btih:A5C01CCEE5D5339F5CB77122EC7F134AD61ABD31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +495,8 @@ magnet:?xt=urn:btih:A5C01CCEE5D5339F5CB77122EC7F134AD61ABD31
 magnet:?xt=urn:btih:1A9EF4DC168C740833369EABC4711306BBD5A39D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +523,8 @@ magnet:?xt=urn:btih:1A9EF4DC168C740833369EABC4711306BBD5A39D
 ```bash
 magnet:?xt=urn:btih:B94CCCD864CDC5BEE20E5016D3E17EDEFD514988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +553,8 @@ magnet:?xt=urn:btih:B94CCCD864CDC5BEE20E5016D3E17EDEFD514988
 magnet:?xt=urn:btih:229529D60FD394FD710379CA1E5FE8A5B22414A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +581,8 @@ magnet:?xt=urn:btih:229529D60FD394FD710379CA1E5FE8A5B22414A9
 ```bash
 magnet:?xt=urn:btih:EAACB870DC49450553141306902B2E87B4FCECB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +611,8 @@ magnet:?xt=urn:btih:EAACB870DC49450553141306902B2E87B4FCECB8
 magnet:?xt=urn:btih:D3A12C50CAC41EE9F02A28E5EE0BEC10713C1F85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +639,8 @@ magnet:?xt=urn:btih:D3A12C50CAC41EE9F02A28E5EE0BEC10713C1F85
 ```bash
 magnet:?xt=urn:btih:0672068BA313B1F8CBE3BE0BC8109DFC20F3D64A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +669,8 @@ magnet:?xt=urn:btih:0672068BA313B1F8CBE3BE0BC8109DFC20F3D64A
 magnet:?xt=urn:btih:7C4FF16B60983117E9FF5A53AE29E6B15516F6B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +698,8 @@ magnet:?xt=urn:btih:7C4FF16B60983117E9FF5A53AE29E6B15516F6B1
 magnet:?xt=urn:btih:D2992E50A63F92665E85D815D479D439E147FE46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +726,8 @@ magnet:?xt=urn:btih:D2992E50A63F92665E85D815D479D439E147FE46
 ```bash
 magnet:?xt=urn:btih:20D38313D4BC0444E2F0D17162B691E64CB2806D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -680,32 +757,7 @@ magnet:?xt=urn:btih:20D38313D4BC0444E2F0D17162B691E64CB2806D
 нет
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546208   (607997) от 23.04.2022
-
-Легион - Отблески будущего & Prima centuria (2022) 2CD, OldWise Records [FLAC|Lossless|image + .cue] <Melodic Power, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears Of The Dragon (2019)
-02. Битва с темнотой (2020)
-03. Tears Of The Dragon (instrumental)
-04. Битва с темнотой (instrumental)Жанр: Melodic Power, Heavy MetalПродолжительность: 2 CD, 01:11:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F624C3B4A0CD60E96E61571FFD0AC3C2CE168AC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2025.04.24 [Ru]
 ```bash
 magnet:?xt=urn:btih:82609440BFB03B40270D9EC76F106553B99E9840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:82609440BFB03B40270D9EC76F106553B99E9840
 magnet:?xt=urn:btih:2A6C7FD7308F91EDAEE96EBA9BE575D5D99897EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:2A6C7FD7308F91EDAEE96EBA9BE575D5D99897EE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:2A6C7FD7308F91EDAEE96EBA9BE575D5D99897EE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:2A6C7FD7308F91EDAEE96EBA9BE575D5D99897EE
 ```bash
 magnet:?xt=urn:btih:AA73940C57A0F99015F792DE5E290CFB3A007990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:AA73940C57A0F99015F792DE5E290CFB3A007990
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:AA73940C57A0F99015F792DE5E290CFB3A007990
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:AA73940C57A0F99015F792DE5E290CFB3A007990
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:AA73940C57A0F99015F792DE5E290CFB3A007990
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:AA73940C57A0F99015F792DE5E290CFB3A007990
 magnet:?xt=urn:btih:B5AA3E7868FCB1703C49D83EC8EF841E5C50F06E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:B5AA3E7868FCB1703C49D83EC8EF841E5C50F06E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:B5AA3E7868FCB1703C49D83EC8EF841E5C50F06E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Windows 11 Professional VL x64 24H2 by OVGorskiy 04.2025 [RU]
 ```bash
 magnet:?xt=urn:btih:24FB542C1A2F5EE24E8B2869CF61096C49928FF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:24FB542C1A2F5EE24E8B2869CF61096C49928FF9
 magnet:?xt=urn:btih:5ECF47E35B3FE59DF017A245D0B6942EAB7F79C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ magnet:?xt=urn:btih:5ECF47E35B3FE59DF017A245D0B6942EAB7F79C1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:5ECF47E35B3FE59DF017A245D0B6942EAB7F79C1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ magnet:?xt=urn:btih:5ECF47E35B3FE59DF017A245D0B6942EAB7F79C1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ X3 Terran War Pack (2008-2012) [Ru] (3.4/3.3/1.3) Repack alexalsp
 magnet:?xt=urn:btih:C080048DC8159F56DCD1D9AE0606243C07BE98A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.0.3, 1.3.2) License GO
 ```bash
 magnet:?xt=urn:btih:A5FBC6DF9222E491FD5E936D29DBA2C3329D09B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ magnet:?xt=urn:btih:A5FBC6DF9222E491FD5E936D29DBA2C3329D09B8
 magnet:?xt=urn:btih:0DAE5283079A160A8A68CFE72601180F4409E0EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ magnet:?xt=urn:btih:0DAE5283079A160A8A68CFE72601180F4409E0EA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

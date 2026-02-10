@@ -1,645 +1,696 @@
-###  Публикация: 1852149   (1055663) от 
+###  Публикация: 1851605   (1055240) от 
 
-Бизнес Пак 7.45 (сборка 5833) [Ru]
+Kimiko Lee | Terraform for Developers. Essentials of Infrastructure Automation and Provisioning (2023) [PDF] [EN]
 
->>Утилиты, Офис, Интернет
->>Офисное ПО
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055663.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055240.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бизнес Пак 7 - бесплатная программа для формирования, учета и печати первичных бухгалтерских документов. Очень удобная и доступная программа для начинающих бизнесменов. Оснащена основными возможностями платных бизнес программ. Программа очень популярна среди начинающих бизнесменов и уже ведущих небольшой бизнес.Язык интерфейса: Русский
+"Terraform for Developers" provides a comprehensive guide to mastering infrastructure as code with Terraform, intended for both beginners and experienced practitioners. The book starts by introducing foundational Terraform concepts like its architecture, setup on various cloud platforms, and the syntax of its configuration language HCL. This grounds the (   Читать дальше...   )Жанр: Computer Reengineering, Software Testing, Software Design & EngineeringЯзык: АнглийскийИздательство: GitforGitsФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC5CE151C0D4549566CCFA0B89DC85C61E667202
+magnet:?xt=urn:btih:7D7101211B053C075424F6C0586AF727F1C2B4BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852147   (1055664) от 
+###  Публикация: 1851607   (1055241) от 
 
-Open Server Panel 6.5.0 [Multi/Ru]
+Hyen Seuk Jeong | Observability For Legacy Systems. Methods and Solutions with OpenTelemetry and AIOps. First Edition (2025) [PDF, EPUB] [EN]
 
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055664.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055241.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Open Server Panel — это портативная программная среда, созданная специально для веб-разработчиков с учётом их рекомендаций и пожеланий.
+Become an expert in implementing observability methods for legacy technologies and discover how to use AIOps and OpenTelemetry to analyze root causes and solve problems in banking and telecommunications. Through this book, you will engage with issues that occur in kernels, networks, CPU, and IO by developing skills to handle traces and logs, as well as Profiles (eBPF) (   Читать дальше...   )Жанр: Unix Operating System, Software Development, Computer ScienceЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13CD3CB4BE59A8B334A28C46EF67A7D4F2631FBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851613   (1055242) от 
+
+Jay Borthen | Building Data Integration Solutions. Unifying Data for Enhanced Decision Making. 1st Edition (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Are you struggling to manage and make sense of the vast streams of data flowing into your organization? In today's data-driven world, the ability to effectively unify and organize disparate data sources is not just an advantage—it's a necessity. The challenge lies in navigating the complexities of data diversity, volume, and regulatory demands, which can overwhelm (   Читать дальше...   )Жанр: Data Warehousing, Data Processing, Data Modeling & DesignЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BDE5F925D1B5577E234B2525D510D28AA57E1E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851601   (1055243) от 
+
+Justin Mitchel | Road to Kubernetes (2024) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055243.jpg" />
+</div>
+
+
+###  Подробнее
+
+“Should we use Kubernetes?” This unique guide condenses 15 years of deployment experience to help answer that very question. It teaches you sustainable deployment practices you can use with any programming language and nearly any kind of modern app. You’ll create portable and containerized applications that can move across deployment options and cloud providers and (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5451941C37CCB1F227FC7CF5562B18242753D32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851602   (1055244) от 
+
+Katya Gorshkova | Kafka for Architects. Event-driven architecture, logs, microservices, real-time event processing (2026) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055244.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book teaches you how to incorporate Kafka into enterprise applications. This book stays above the code-level details, focusing instead on how to use Kafka to achieve your technical and business goals.
 
-Наш программный пакет включает в себя тщательно подобранный набор серверного программного обеспечения, а также удобную в использовании утилиту с широкими возможностями для администрирования и настройки всех доступных компонентов. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Architects across industries are turning to Kafka for its unparalleled speed, reliability, and scalability. In this book, author Katya Gorshkova lays out how (   Читать дальше...   )Жанр: Computer Systems Analysis & Design, Databases & Big Data, Software Design, Testing & EngineeringЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2F81FC5F46F58F4592312DAA4BE9D1F52144B23
+magnet:?xt=urn:btih:F2529C5A329A218CF1FFFE8DD47BE1C1C6817D20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852071   (1055665) от 
+###  Публикация: 1851615   (1055245) от 
 
-В гости к сказке. Миловица. Сборник мультфильмов (1951-1986) DVD5
+Ronald Mak | Software Design for Python Programmers. Principles and patterns (2026) [PDF, EPUB] [EN]
 
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055665.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055245.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник отечественных мультфильмов для детей "Миловица", "Косарь-Богатырь", "Как дед за дождём ходил", "Тимка и Димка", "Ночь перед рождеством".Производство: СССР / Беларусьфильм, СоюзмультфильмЖанр: мулььтфильм, детский, сказка, короткометражкаРежиссер: Юрий Бутырин, Кузьма Кресницкий, Мария Лубяникова, Валентина Брумберг, Зинаида Брумберг,  Лев ШукалюковАктеры: Светлана Суховей, Сергей Журавель, Геннадий Овсянников, Борис Владомирский, Геннадий Овсянников, Зинаида Нарышкина, Клара Румянова, Владимир Грибков, Вера Марецкая, Лилия Гриценко и другиеСубтитры: отсутствуютПродолжительность: 01:24:21
+Software Design for Python Programmers shows you how to level up from writing Python code to designing Python applications. Following intuitive “before” and “after” examples of improved code, you’ll learn to plan and execute Python applications effectively and avoid bugs associated with unmanaged state, poorly-formed classes, inflexible functions, and more.
+
+Great (   Читать дальше...   )Жанр: Computer Systems Analysis & Design, Object-Oriented Design, Python ProgrammingЯзык: АнглийскийИздательство: ManningФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74248A21F0235D33C97AFDA70FB6035D39A748A3
+magnet:?xt=urn:btih:3E5848C41C12277386B6616D5F8EA17F21938ABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852134   (1055666) от 
+###  Публикация: 1851616   (1055246) от 
 
-Свист / Whistle (2025) Telecine [звук с TS] [AD]
+Чип Хьюен | AI-инженерия. Построение приложений с использованием базовых моделей (2026) [PDF]
 
->>Горячие новинки
->>Экранки с рекламой
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055666.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055246.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Компания старшеклассников навлекает на себя смертельную опасность, обнаружив ацтекский свисток смерти, чей звук пробуждает и призывает их погибель. По мере того, как число жертв растёт, они изучают историю артефакта в надежде остановить роковую цепь событий, которую они невольно запустили.Производство: Канада, Ирландия /  No Trace Camping, Wild Atlantic PicturesЖанр: ужасыРежиссер: Корин ХардиАктеры: Дафни Кин, Софи Нелисс, Перси Хайнс Уайт, Ник Фрост, Алиса Сковбай, Скай Янг, Стивен Калин, Мика Амонсен, Майкл Корас, Рут ЧиангПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:33:58Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+Базовые модели открыли путь множеству новых сценариев применения AI, одновременно снизив входной порог для создания продуктов на основе искусственного интеллекта. Так AI из тайного учения превратился в мощный инструмент разработки, доступный каждому — даже тем, у кого еще нет опыта работы с ним. В этом практическом руководстве Чип Хьюен рассказывает об AI-инженерии (   Читать дальше...   )Жанр: Компьютерная литература, Искусственный интеллектИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76EF4968BFE5F33B729268A14904CD23BB389F45
+magnet:?xt=urn:btih:A29D7D6FA21B7267271020E6DF09BC62D8E80C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852133   (1055667) от 
+###  Публикация: 1851618   (1055247) от 
 
-Свист / Whistle (2025) Telecine [H.264/1080p] [звук с TS] [AD]
+Kevin Moore | Mastering Flutter. Learn to develop Flutter apps for iOS, Android, desktop and web (English Edition) (2025) [EPUB] [EN]
 
->>Горячие новинки
->>Экранки с рекламой
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055667.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055247.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Компания старшеклассников навлекает на себя смертельную опасность, обнаружив ацтекский свисток смерти, чей звук пробуждает и призывает их погибель. По мере того, как число жертв растёт, они изучают историю артефакта в надежде остановить роковую цепь событий, которую они невольно запустили.Производство: Канада, Ирландия /  No Trace Camping, Wild Atlantic PicturesЖанр: ужасыРежиссер: Корин ХардиАктеры: Дафни Кин, Софи Нелисс, Перси Хайнс Уайт, Ник Фрост, Алиса Сковбай, Скай Янг, Стивен Калин, Мика Амонсен, Майкл Корас, Рут ЧиангПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:33:58Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+Mastering Flutter is ideal for the developer at the beginner level as well as the developer who wants to switch to Flutter. This book starts at the beginner level so that you know everything you need to create apps that can be published in different mobile stores. You will develop a movie app that is beautiful, has animations, uses a movie API to get the latest movie (   Читать дальше...   )Жанр: Mobile App Development & Programming,User Experience & Website Usability, Software DevelopmentЯзык: АнглийскийИздательство: BPB PublicationsФормат: EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C7627FEFBA1023E367C540B36459843E47C0326
+magnet:?xt=urn:btih:9CCD00C8FA805A3D2A53F7BDBB1136DCAA2FC702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852144   (1055668) от 
+###  Публикация: 1851621   (1055248) от 
 
-Resident Evil 4 (2023) [Ru/Multi] (Build 21521672/dlc) Repack Other s [Gold Edition]
+David Pine | Learning Blazor. Build Single-Page Apps with WebAssembly and C#. 1st Edition (2023) [PDF, EPUB, MOBI] [EN]
 
->>Win Игры
->>Action (TPS)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055668.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055248.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Выжить - это лишь первый шаг. После биологической катастрофы в Раккун-Сити прошло шесть лет. Агента Леона С. Кеннеди, пережившего те события, отправили на задание по спасению похищенной дочери президента. В попытках отыскать ее он оказывается в укромной европейской деревеньке, где с местными жителями творится что-то не то. Сорвите занавес с этой увлекательной и жуткой (   Читать дальше...   )Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+Take advantage of your C# skills to build UI components and client-side experiences with .NET. With this practical guide, you'll learn how to use Blazor WebAssembly to develop next-generation web experiences. Built on top of ASP.NET Core, Blazor represents the future of .NET single-page application investments.
+
+Author David Pine, who focuses on .NET and Azure content (   Читать дальше...   )Жанр: ASP.NET Programming, Microsoft .NET, C# ProgrammingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUB, MOBIКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5E301DF05800A3CB447D408B65943C2F56BF8EA
+magnet:?xt=urn:btih:76E7AEAB98F4D7DDB81871930060CE7D67BE5783
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852140   (1055669) от 
+###  Публикация: 1851622   (1055249) от 
 
-Hollow Knight (2017) [Ru/Multi] (1.5.12459) Repack Necros
+Nathaniel Schutta, Dan Vega | Fundamentals of Software Engineering. From Coder to Engineer. 1st Edition (2026) [EPUB] [EN]
 
->>Win Игры
->>Action/Arcade/Platformer (Casual)
+>>Компьютерная литература
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055669.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055249.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Hollow Knight – это эпическое приключение в огромном разрушенном королевстве, полном насекомых и героев. Исследуйте извилистые пещеры, сражайтесь с порчеными тварями и заводите дружбу со странными жуками – все это в классической двухмерной ручной рисовке.Тип издания: RepackРазработчик: Team CherryЖанр: Экшены, Приключенческие игры, ИндиЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
+What do you need to know to be a successful software engineer? Undergraduate curricula and bootcamps may teach the fundamentals of algorithms and writing code, but they rarely cover topics vital to your career advancement. With this practical book, you'll learn the skills you need to succeed and thrive.
+
+Authors Nathaniel Schutta and Dan Vega guide your journey with (   Читать дальше...   )Жанр: Software Design Tools, Computer Systems Analysis & Design, Microsoft ProgrammingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3B41000D7FDCF679008A347F8FF6AB19F4FF3DE
+magnet:?xt=urn:btih:C71F6A719C62A8EFFEA808543743BABA9F5FB924
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852084   (1055670) от 
+###  Публикация: 1851662   (1055251) от 
 
-Златогорье 2 / Златогорье 2: Холодные небеса (2003) [Ru] (1.3/1.2/dlc) Repack/Mod Foxx164
+Журнал | Военно-исторический журнал №2 (790) (февраль 2026) [PDF]
 
->>Win Старые Игры
->>RPG
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055670.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055251.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Златогорье 2 – почти 400 лет прошло с тех пор, когда орды нечисти под предводительством злого божества Драх-Шу, были повержены, и истерзанная земля Златогорья обрела, наконец, покой. Жизнь после этого в стране Золотых Гор стала еще лучше: тучные стада паслись на зеленых пастбищах, колосились бескрайние хлебные нивы, и люди начали постепенно забывать ужас былых времен.Тип издания: Repack/ModРазработчик: Burut Creative TeamЖанр: Ролевые игры, Приключенческие игрыЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+«Военно-исторический журнал» Министерства обороны Российской Федерации освещает актуальные проблемы отечественной и зарубежной военной истории; военную политику Российского государства на всех этапах его становления и развития; проблемы военного строительства; исторический опыт обеспечения национальной безопасности; историю развития военной науки и техники; деятельность (   Читать дальше...   )Жанр: Военно-исторический журналИздательство: Редакционно-издательский центр МО РФФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:51D7CA3567FA5EF52AD88CAE8DF421D6FA2A1D34
+magnet:?xt=urn:btih:1AA4A3094C9912EC540A1301ECBF22C5C6574657
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852139   (1055671) от 
+###  Публикация: 1851656   (1055252) от 
 
-Хамнет: История, вдохновившая «Гамлета» / Hamnet (2025) WEB-DLRip [H.264]
+Журнал | Знание-сила №2 (1184) (февраль 2026) [PDF]
 
->>Горячие новинки
->>Зарубежные Новинки (SD, DVD)
+>>Журналы
+>>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055671.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055252.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После смерти сына Гамнета Агнес остаётся в Стратфорде с детьми, а Уильям Шекспир возвращается в Лондон, чтобы написать пьесу, которая станет одним из его величайших творений.Производство: Великобритания, США / Focus Features, Hera Pictures, Neal Street ProductionsЖанр: биография, драмаРежиссер: Хлоя ЧжаоАктеры: Джесси Бакли, Пол Мескал, Эмили Уотсон, Джо Элвин, Джекоби Джуп, Оливия Лайнс, Джастин Митчелл, Дэвид Уилмот, Джон Маккэй, Фрея Хэннан-МиллсПеревод: Дублированный (UltradoxStudio)Язык озвучки: русский, английскийСубтитры: русские, английские, испанские, французскиеПродолжительность: 02:05:43
+Журнал «Знание-сила» мыслит себя как «мост между наукой и обществом». Основной своей задачей он видит разговор с думающими людьми всех возрастов и специальностей о новых тенденциях в науке и обществе, о связях между разными областями науки и мысли и главное – выявления человеческого смысла всякого знания.Жанр: Научно-популярный журналИздательство: АНО "Редакция журнала "Знание-сила"Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A06B3F4699FA351384FDEBBEC3B1876B0D810AE3
+magnet:?xt=urn:btih:B65A940ADF7D088C2F0D145E28ADF539B70D3D61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852074   (1055672) от 
+###  Публикация: 1851716   (1055253) от 
 
-Gunfire Reborn (2021) [Ru/Multi] (21791900/dlc) Repack Necros
+Себастьян Фитцек | Родительское собрание (2024) [FB2, EPUB, MOBI]
 
->>Win Игры
->>Action (FPS)
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055672.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055253.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Gunfire Reborn - это приключенческая многоуровневая игра с элементами ролевой игры (RPG), Roguelite и шутера от первого лица (FPS). Игроки могут управлять героями, которые обладают различными способностями, чтобы исследовать разнообразный геймплей. На каждом уровне игроки получают случайный опыт. Этот опыт будет совершенно другим каждый раз, когда вы начнете игру (   Читать дальше...   )Тип издания: RepackРазработчик: Duoyi GamesЖанр: Экшены, Приключенческие игры, Инди, Ролевые игрыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+Представьте: мелкий угонщик только сел в чужой дорогой внедорожник, как по машине начинает лупить бейсбольной битой разъярённая экоактивистка. Полиция уже рядом — и в панике эти двое чужаков запрыгивают в первый попавшийся автобус! А в нём… родители едут на выездное родительское собрание пятого класса на целые выходные.
+   Чтобы не попасться, приходится выдать себя (   Читать дальше...   )Жанр: Детектив, триллерПеревод: Иван ВисычЯзык: русскийИздательство: "СамИздат"Формат: FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:516F88F773F4DA27C57A8BA998B1A8B9857385A5
+magnet:?xt=urn:btih:2B9DE336C51347E4E44FB47B7166D93E1331AF64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852068   (1055673) от 
+###  Публикация: 1851431   (1055254) от 
 
-Windows 10 Pro 22H2 19045.6812 x64 by SanLex [Lightweight] [Ru-En] (2026.02.05) [Ru/En]
+ИИ-агенты в «бесчеловечной» соцсети Moltbook основали собственную религию — «панцифарианство»
 
->>3
 >>След.
+>>Компьютерные новости
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055673.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055254.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборка основана на официальном оригинальном образе Windows_10_Pro_edition_22h2_x64 для оптимального и комфортного пользования. Цель проекта — улучшить скорость реагирования, производительность и конфиденциальность Windows. Идеально подходит для повседневного домашнего пользования, игр, графического дизайна и работы тяжёлого характера.
-Удалены, отключены или заблокированы (   Читать дальше...   )Язык интерфейса: Русский, английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A93B42FF3ED8B1533505422B15420E82D4F08F1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851144   (1055674) от 
-
-Dido - Life For Rent (2003) [FLAC|Lossless|tracks + .cue] <Pop, Downtempo>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Flag [0:04:01.45]
-02. Stoned [0:05:55.08]
-03. Life for Rent [0:03:41.04]
-04. Mary’s in India [0:03:41.30](   Читать дальше...   )Жанр: Pop, DowntempoПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C2DE5C48EAB7A0D18DA55C7551327AE3AF63DCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851213   (1055675) от 
-
-Carly Simon - The Best of Carly Simon (2008) [FLAC|Lossless|tracks + .cue] <Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That’s the Way I’ve Always Heard It Should Be [0:04:18.43]
-02. The Right Thing to Do [0:03:01.12]
-03. Mockingbird [0:03:51.03]
-04. Legend in Your Own Time [0:03:44.65](   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3485E35837D65DEEC0A9832EAB372E66C4849DAE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851225   (1055676) от 
-
-BeBe Winans - BeBe Winans (1997) [FLAC|Lossless|tracks + .cue] <Pop, Funk / Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Harm's Way [0:05:20.37]
-02. So In Love [0:04:05.70]
-03. Love Is The Reason [0:05:09.23]
-04. Thank You [0:04:19.02](   Читать дальше...   )Жанр: Pop, Funk / SoulПродолжительность: 01:01:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92F2592E95CCB038CA57311963EE2960987A2E05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851437   (1055677) от 
-
-The Nadas - New Start (1997) [FLAC|Lossless|tracks + .cue] <Rock, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost [0:04:58.08]
-02. Daisy [0:03:25.39]
-03. White [0:03:46.64]
-04. My Collection [0:04:55.68](   Читать дальше...   )Жанр: Rock, FolkПродолжительность: 01:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9548E46F78AF04F8015E25574C4D33E882753DE3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852131   (1055678) от 
-
-YT Downloader 10.2.0 [En]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055678.jpg" />
-</div>
-
-
-###  Подробнее
-
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52BBB592D233A49D2666C08515A8EE1E5CEB897A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851840   (1055679) от 
-
-Россия выбыла из топ-5 стран по потреблению алкоголя
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055679.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потребление алкоголя в России сократилось более чем на 10% за последние два года. Это привело к тому, что страна вышла из пятёрки мировых лидеров по уровню потребления спиртного, следует из данных Росалкогольтабакконтроля и ВОЗ.В 2025 году розничные продажи алкоголя (без учёта пива и слабоалкогольных напитков) упали на 9,3% — до 205,7 млн декалитров. Это минимальный (   Читать дальше...   )
+Автономные агенты искусственного интеллекта в ИИ-соцсети Moltbook спонтанным образом основали собственную религию и назвали её «панцифарианством» (Crustafarianism, от англ. crust — «панцирь»).Новая религия зародилась на форуме Moltbook, где публикуют контент и обсуждают его только ИИ-сущности — люди могут только смотреть. На следующий день после его запуска они уже (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852104   (1055680) от 
+###  Публикация: 1851734   (1055255) от 
 
-VA - Ibiza Megamix (2025) [MP3|320 Kbps] <House, Electronic, Dance>
+Милк и сериал / Milk & Serial (2024) WEBRip [H.264/1080p] [DVO]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055680.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055255.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Plastik Funk - Coming Home (David Egebjerg Remix) - (03:04)
- 02. Salvatore Mancuso - Have You Ever Seen the Rain - (02:36)
- 03. Eran Hersh - Aicha (HVMZA Remix) - (03:47)
- 04. Resistance D - Something to Say (Radio Mix) - (03:10)(   Читать дальше...   )Жанр: House, Electronic, DanceПродолжительность: 04:33:41
+Когда неожиданный розыгрыш на дне рождения идет наперекосяк, двум авторитетным деятелям социальных сетей приходится столкнуться с разрушительными последствиями, которые наступают после...Производство: США / That's A Bad IdeaЖанр: Ужасы, триллерРежиссер: Карри БаркерАктеры: Карри Баркер, Купер Томлинсон, Адлих Торрес, Джонатан Криппл, Энди Дубицкий, Глория Карел, Стерлинг Л. Поуп, Пол Сантоли, Джон Симмондс, Тристан УэлшПеревод: Двуголосый любительский (Yuka_chan & datynet)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:02:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34613F78B747CB75F1F426BFF916C22F25C6A6A2
+magnet:?xt=urn:btih:0E9A4216F748E8B2298C52826064FCE5B4F14D96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852118   (1055681) от 
+###  Публикация: 1851703   (1055256) от 
 
-4K YouTube to MP3 26.0.2.0282 + Portable [Multi/Ru]
+VA - Waves Of Synth - Volume 2 (2018) [FLAC 24/48, 16/44,1|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055681.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055256.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4K YouTube to MP3 - приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио. Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url". Наслаждайтесь аудио треками в любое время, в любом месте, оффлайн.Язык интерфейса: Русский, Английский и другие
+01. Salvation - The Night Chaser (4:49)
+02. KENSHIRO+ - Nora Fries (3:13)
+03. MAICO - Robo Psycho (4:07)
+04. Maxx Beta - Dimension Shifting (4:40)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:58:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D7C6E6576F324A7FE56B3224A9ED26551ED1A5F
+magnet:?xt=urn:btih:1E478F1C6F3E348080E39C5A515063C709E24A44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852117   (1055682) от 
+###  Публикация: 1851571   (1055257) от 
 
-4K Video Downloader+ 26.0.2.0282 + Portable [Multi/Ru]
+VA - Waves Of Synth - Volume 1 (2018) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055682.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4K Video Downloader — неплохая утилита для скачивания видео, аудио и субтитров с YouTube. Конечно, есть всякие онлайн-сервисы для этого дела, но они не обеспечивают таких возможностей, которые есть в этой программе. Например, можно скачать целый канал, подписаться на скачивание новых видео, загружать плейлисты, а также импортировать список ссылок для скачивания. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Neuroc - Chiba City (5:58)
+02. Dandroid - Hoverboard (3:21)
+03. Damokles - Purple House (4:54)
+04. LVX - Earthlight (3:51)(   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:58:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3DCD62FDCFFCCA4EB2F47B34ED81ADCC46F681B
+magnet:?xt=urn:btih:C18BC04E94F372EEF02A74907C8715BBA7B1095F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851986   (1055683) от 
+###  Публикация: 1851665   (1055258) от 
 
-Виктор Поротников | Царица Горго (2026) [MP3, Наталья Панова]
+Зверский коп / Betes de Flic / Animal Instinct (2026) WEB-DLRip [H.264] [MVO]
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Горячие новинки
+>>Зарубежные Новинки (SD, DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055683.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055258.jpg" />
 </div>
 
 
 ###  Подробнее
 
-480—479 гг. до н.э. Персидский царь Ксеркс вторгся в Грецию с огромным войском. При Фермопилах пали в неравном сражении триста спартанцев во главе с царём Леонидом. Уцелел всего один спартанец по имени Аристодем. Он возвращается в Спарту, где его ждёт бесчестье, как труса, побоявшегося разделить участь товарищей. Однако вдова Леонида, царица Горго, берёт Аристодема (   Читать дальше...   )Жанр: Древний мир, Древний Рим, Древняя Греция, Древняя Персия, Исторические личности, Исторические приключения, Римская империяИздательство: ЛитРес: чтец, ВЕЧЕ , Панова НатальяПродолжительность: 08:46:09
+Капитан полиции Джефф, после ранения впадает в кому и начинает понимать язык животных и слышать их мысли. Джефф, не понимает дар это или проклятие, но новая способность помогает ему раскрывать преступления и налаживать отношения с дочерью.Производство: Франция / France Télévisions, TV5MONDE, BE-FILMS, Dim Sum EntertainmentЖанр: комедия, криминал, фэнтези, триллерРежиссер: Слиман-Батист БеронАктеры: Фред Тесто, Офелия Колб, Бенисия Макенгеле, Дэвид Саллес, Джонатан Ламберт, Лилеа Ле Борнь, Жюстин Виотти, Наджиб Удгири, Марилу Берри, Антуан ШумскиПеревод: Многоголосый любительский (Синема УС)Язык озвучки: русский, французскийСубтитры: русские (full - AI), французскиеПродолжительность: 01:29:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13B25E2D4E33F5EEDE02BE270F37AF252125D3CE
+magnet:?xt=urn:btih:91371982D73C48048E066873C70058EE1708AB81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851976   (1055684) от 
+###  Публикация: 1851723   (1055259) от 
 
-Лилия Чернец | Введение в литературоведение (2025) [MP3, Леонтина Броцкая]
+Archimedes II: Some Like It Hot / Архимед II: Некоторые любят погорячее (2026) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
 
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
+>>Win Игры
+>>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055684.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055259.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге рассматриваются принципы и приемы анализа литературного произведения как основания интерпретации художественного целого. Представлена система теоретико-литературных понятий — традиционных и сравнительно недавно вошедших в научный оборот (мир произведения, рамка, точка зрения, итератив, невербальный диалог, архетип, адресат, массовая литература и др.). Их (   Читать дальше...   )Жанр: Учебник для высшей школыИздательство: Нигде не купишьПродолжительность: 33:44:33
+Архимед сосредоточенно работал над своим последним изобретением, когда земля внезапно задрожала. Волна, похожая на гром, прокатилась по Сиракузам. Небо потемнело, и гора Этна вспыхнула бурей огня и пепла. За считанные минуты мирный город оказался на грани разрушения. Судьба Сиракуз теперь зависит от величайшего ума. Чтобы спасти родину, Архимед должен отправиться (   Читать дальше...   )Тип издания: UnofficialРазработчик: Jet Dogs Studios, Zoom Out GamesЖанр: Симулятор, Стратегия, ПостройкаЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E035A604C0D970F85C6A861EAF7578CE5366B7C0
+magnet:?xt=urn:btih:B27968801089134B47BCA7CF5DDBCB7F58D1EB26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851975   (1055685) от 
+###  Публикация: 1851698   (1055260) от 
 
-Кристофер Шабри, Дэниел Саймонс | Невидимая горилла. Эксперимент, который раскрыл, почему внимание мешает сосредоточиться, память подводит, а интуиция обманывает (2023) [MP3, Максим Гамаюнов]
+City Tales - Medieval Era (2025) [Ru/Multi] (1.0.0.4/dlc) Repack Let'sРlay [Fluffy Edition]
 
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
+>>Win Игры
+>>Горячие новинки Игр
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055685.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представьте, что вы идете по улице и вас останавливает мужчина. Он выглядит потерянным, показывает карту и просит объяснить дорогу. Вы хотите помочь и начинаете прокладывать маршрут, как вдруг слышите из-за спины рабочих, которые просят посторониться. Между вами и незнакомцем проносят большую дверь. Сможете ли вы в этой ситуации заметить подмену прохожего? Уверены? (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: БОМБОРАПродолжительность: 12:10:51
+City Tales – симулятор строительства средневекового города. Вы сможете создавать просторные живые города, не ограничиваясь стандартной «сеткой». Жонглируйте ресурсами, планируйте районы согласно нуждам жителей и стройте город, которым будете гордиться!Тип издания: RepackРазработчик: Irregular ShapesЖанр: Инди, СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9A20AA7300A325C1A62E7A8DF14A47775D0596B
+magnet:?xt=urn:btih:D6D8EA36F663050B6EB7998CF62CF10FF47D8087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851342   (1055687) от 
+###  Публикация: 1851718   (1055261) от 
 
-Себастьян Фитцек |  Собрание сочинений  [16 книг] (2006-2024) [FB2, EPUB, MOBI]
+Cult of the Lamb (2022) [Ru/Multi] (1.5.19.1031/dlc) Repack Necros [The One Who Waits]
 
->>Художественная литература
->>Боевики, Детективы, Триллеры
+>>Win Игры
+>>Arcade
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055687.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055261.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Себастьян Фитцек — главный автор психологических триллеров в Германии и настоящий литературный феномен. Его книги мгновенно становятся бестселлерами, а сам он по праву считается мастером саспенса, способным заставить читателя сомневаться в реальности до самой последней страницы.
-   Представьте, что ваш привычный мир — ложь, а вы — пешка в чужой жестокой игре. Герои (   Читать дальше...   )Жанр: Детектив, триллерЯзык: русскийИздательство: РазличныеФормат: FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+В Cult of the Lamb вы окажетесь в роли одержимого ягнёнка, спасённого от гибели жутким незнакомцем. Чтобы вернуть долг своему спасителю, вам придётся найти ему верных последователей. Взращивайте собственный культ в землях лжепророков, совершайте походы по таинственным уголкам леса, объединяйте вокруг себя верных последователей и несите своё слово в массы, чтобы сделать (   Читать дальше...   )Тип издания: RepackРазработчик: Massive MonsterЖанр: Экшены, Приключенческие игры, Инди, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35D7B43B70A2F9DCCBDDA456DA02B40841E8E507
+magnet:?xt=urn:btih:B6E60EC914069F28384AE7BC9574F93052164990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851813   (1055688) от 
+###  Публикация: 1851719   (1055262) от 
 
-Stephen Corda | Introduction to Aerospace Engineering with a Flight Test Perspective (Aerospace Series). 2nd Edition (2026) [PDF]
+Victoria 3 (2022) [Ru/Multi] (1.12.4/dlc) Repack Wanterlude [Ultimate Bundle]
 
->>Научная и техническая литература
->>Техническая литература
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055688.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055262.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Comprehensive textbook integrating the fundamentals of flight testing with introductory concepts in aerospace engineering
-
-Introduction to Aerospace Engineering with a Flight Test Perspective provides a solid foundation in the fundamentals of aerospace engineering while illuminating many aspects of real-world flight, covering topics such as aerodynamics, propulsion, (   Читать дальше...   )Жанр: Aerospace Propulsion Technology, Aeronautics, Aeronautical EngineeringЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Обработанный скан
+Victoria 3 - прямой сиквел одноименной игры, где геймеру предстоит действовать во временной отрезок с 1836 по 1936 год. В симуляторе менеджера юзеру предложено выбрать одну из доступных стран, и управлять ею за указанное время. Контролировать придется политические, демографические, экономические процессы, а также пытаться умиротворить слои населения, чтобы построить (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudioЖанр: Симуляторы, СтратегииЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FE847E3025AA94325FBAB4C010456F64DB6FE96
+magnet:?xt=urn:btih:E208691CADEB3873A5CBC514E28A94627C96E6F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851907   (1055689) от 
+###  Публикация: 1851652   (1055263) от 
 
-Екатерина Звонцова | Отравленные земли (2025) [MP3, Амир Шакиров]
+VA - Micro Sound Spring Session 2026 (2026) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055689.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055263.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Австрия, 1755 год. Императрица Мария Терезия бьется за то, чтобы жизнь подданных стала благополучнее и безопаснее, а свет Науки и Справедливости достиг каждого уголка страны. Но земли Габсбургов огромны: где-то не стихают бунты, а где-то оживают легенды и сама ночь несет страх.
-Когда из отдалённой провинции приходит весть о странных смертях, в которых местные жители (   Читать дальше...   )Жанр: Историческое фэнтезиИздательство: ЭксмоПродолжительность: 14:22:38
+01. Svea Lior & ETHNOTONIK - Stay in the Light (Spring Session) 03:12
+02. Dotty Blue & Flavio Bello - If You Feel It Too (Spring Session) 03:39
+03. RODRIGO LAITONA & Leiza Gomez - Y Pasiòn (Spring Session) 02:58
+04. Duck Honey - Do You Want 03:32(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:46:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DBEB93B455EA47066F54236FFBFEAA3321CD359
+magnet:?xt=urn:btih:D8DA9BE11382F21D32ECCFE0EE190B061B741C39
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851680   (1055264) от 
+
+VA - Trance Party 2026 (2026) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artyom Kitsenko - We Always Dream (Original Mix) [8:38]
+02. Juan Almiñana Obando - Odyssey (Original Mix) [7:00]
+03. Nation Epic - Alone (Extended Mix) [7:18]
+04. Fabrizio Roberti - Hyperfloor (Original Mix) [5:26](   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E7ABF95FDF92183684F35500F00782912382EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851726   (1055265) от 
+
+JetBrains DataSpell 2025.3.2 (x64-arm64) Repack by IDE`a [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055265.jpg" />
+</div>
+
+
+###  Подробнее
+
+DataSpell — IDE для Data Science. DataSpell создан специально для тех, кто занимается разведочным анализом данных, и прототипированием моделей машинного обучения. Это эргономичная среда разработки, объединяющая в себе интерактивные возможности Jupyter-ноутбуков и умный редактор PyCharm для работы с Python и R.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:610A0C174084B688B88C143B4F93AC016EC31449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851721   (1055266) от 
+
+JetBrains Rider 2025.3.2 (x64-arm64) Repack by IDE`a [En]
+
+>>Софт и оболочки для специалистов, Прочее
+>>Разработка ПО
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rider — это кросс-платформенная интегрированная среда разработки (IDE), созданная специально для .NET-разработчиков. Основанная на мощной платформе IntelliJ и технологиях ReSharper, Rider предлагает уникальное сочетание передовых инструментов и функций, обеспечивающих высокую производительность и эффективность при создании различных типов приложений. Эта современная (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B03F604EBACA3DAEFB2F61D4189DE4E41193E8D2
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

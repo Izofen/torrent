@@ -19,6 +19,8 @@ Earth 2150: Escape from the Blue Planet / Земля 2150: Война миров
 magnet:?xt=urn:btih:81CB997404208C3A17D53BE3D1F021162A6B8D9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Earth 2150: Lost Souls / Земля 2150: Воды Стикса (2002) [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:85B7B9A40CA8A66DA13D19A054AB5FB75A1AB7B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sid Meier's Civilization: Beyond Earth - новая часть знаменит�
 magnet:?xt=urn:btih:8AE47512229143F5C8131B59C25069839437446D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Age of Empires II HD Edition – переиздание стратегии 1999 
 ```bash
 magnet:?xt=urn:btih:CD8FD89AD8ABD309DD2AD7637B8DEFB399CBE774
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Pandora: First Contact (2013) [Multi] (1.6.7/dlc) License GOG [Gold Edition]
 magnet:?xt=urn:btih:5850BA495EDA2B8C1ED3762F8DF1AD4D0FDF7314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Civilization VI предлагает множество новых способ�
 ```bash
 magnet:?xt=urn:btih:DF19A95B3C04F7094382DA91E02743BF12DB168F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Polaris Sector - это космическая стратегия, создан�
 magnet:?xt=urn:btih:5CD16B66BC017746BF08A7665A9CF6D96FECEBCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Grand Ages: Medieval (2015) [Ru/Multi] (1.1.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:4B72EF00D81F2BAC08A1B938D9F063AEC25165BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Sid Meier's Civilization V / Sid Meier's Civilization 5 (2014) [Ru/En] (1.0.3.27
 magnet:?xt=urn:btih:35B922300223F535044CCD6CE95256BA09A14879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Master of Orion II: Battle at Antares - компьютерная игра в ж�
 ```bash
 magnet:?xt=urn:btih:8815D80F0ADBD8F7A9700CE6E5DC22710C3EA566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Plague Inc: Evolved - сверхпопулярная игрушка, хорош�
 magnet:?xt=urn:btih:37A07D26527735FC6F45331850C51EA2D9F4D303
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Jurassic War (1997) [Ru] (1.05) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:50A6C8C712431CF7EB1A36FE3C08BE5667AB80F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ War For The Overworld (2015) [Ru/Multi] (1.5.0f3/dlc) License CODEX
 magnet:?xt=urn:btih:2C8FD9390FEE25859A0197E8E9A889C03DB45DA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Sid Meier's Civilization III: Complete — это самое последнее 
 ```bash
 magnet:?xt=urn:btih:5880B217918FEBABA532D57E52973A9B2CE0DA10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:5880B217918FEBABA532D57E52973A9B2CE0DA10
 magnet:?xt=urn:btih:3F30A0D9671110DA0619BEA1B3E9074F450E9903
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Hinterland: A New Kingdom / Hinterland: Das Neue Koenigreich (2010) [Multi] (1.0
 ```bash
 magnet:?xt=urn:btih:D821DC39E84B6F7C16F7887F4678C8CD0ED3E23D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Armies of Exigo / Armies of Exigo: Хроники великой войны (200
 magnet:?xt=urn:btih:8C06C1E51522611461E92837287C1686F622517A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Settlers® 3 (2000) [En/Ge] (1.60/dlc) License GOG [Ultimate Collection]
 ```bash
 magnet:?xt=urn:btih:354CAA27A955DADEE51AD8A7D4BEAC92B55E9640
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ The Settlers® 2 (1996) [En/Ge/Fr] (1.51) License GOG [Gold Edition]
 magnet:?xt=urn:btih:8D9EF729C912CF1F9EAC6FC6003CD400C2A08911
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ SpellForce 3 — увлекательный гибрид стратегии в �
 ```bash
 magnet:?xt=urn:btih:7372AE777B52A1114EA6973B51E843320B63D51F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Master of Orion (2016) [Ru/Multi] (54.6/dlc) License CODEX [Collector's Edition]
 magnet:?xt=urn:btih:517D9A2E103053FBB3B9D62764B06DCB0A2162E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Sid Meier's Civilization: Beyond Earth (2014) [Ru/En] (1.1.2.4035/dlc) Repack R.
 ```bash
 magnet:?xt=urn:btih:28D6CBE0A1D9E4B12D58D6D67EE5D6446EB34571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Eastside Hockey Manager (2015) [En] (1.0) License SKIDROW
 magnet:?xt=urn:btih:507B3355918F9E1A79376F2E4B28D64C900AA55C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Plague Inc: Evolved - сверхпопулярная игрушка, хорош�
 ```bash
 magnet:?xt=urn:btih:962C17E67389ABE94DD861AB0721277485010A9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Close Combat: The Bloody First - это новая игра в популярн�
 magnet:?xt=urn:btih:7D9AA5A288240A7E9F1BCCDBA593512B8DEDAC39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Polaris Sector (2016) [Ru/En/Spa] (1.06с/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:0E2CD42F2FBA644FC2C2D6DC9485173C0E774A4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

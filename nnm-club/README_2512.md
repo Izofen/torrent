@@ -19,6 +19,8 @@ Lighting calculations / Расчеты освещения v6.1.5 Mod by Balatan 
 magnet:?xt=urn:btih:EA5672278625D507985E49797292EC9DCB2654EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:EA5672278625D507985E49797292EC9DCB2654EB
 ```bash
 magnet:?xt=urn:btih:6552EA861479DABD56B25B93C6876E25C9615FE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Mindi Abair - Based On A True Story (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth
 magnet:?xt=urn:btih:5EB820D2930493C414986E755E35241F49041DCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ VA - Progressive Trance Awakening, Vol. 05 (2025) [MP3|320 Kbps] <Trance, Progre
 ```bash
 magnet:?xt=urn:btih:F2083A1B20FE2CE4AEE40E090077F800E7E18BCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:F2083A1B20FE2CE4AEE40E090077F800E7E18BCD
 magnet:?xt=urn:btih:4CD2E78BD20F876FD908C03FE695EAB6832D3969
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:4CD2E78BD20F876FD908C03FE695EAB6832D3969
 ```bash
 magnet:?xt=urn:btih:5552C7FB28396961D33F80EB0AC58D850D5FC74A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ magnet:?xt=urn:btih:5552C7FB28396961D33F80EB0AC58D850D5FC74A
 magnet:?xt=urn:btih:8389201401072941E89D4018204C8A37D3BF85BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Freakstorm - Dust Of Glory (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Ro
 ```bash
 magnet:?xt=urn:btih:6CA5E85FB0B1C4A3F268AE375EE0863500A301BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ D Note - Fuchsia Dog (2002) [FLAC|Lossless|tracks + .cue] <Downtempo, House, Bre
 magnet:?xt=urn:btih:765F1E809036AF64E0BD746F7B1566DFED400D86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ magnet:?xt=urn:btih:765F1E809036AF64E0BD746F7B1566DFED400D86
 magnet:?xt=urn:btih:7763350EC90E4C98A1C5653F999FEC1DFD5563E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +305,8 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:D20BF7E9623F9D4978620C96A06582965175D77E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +335,8 @@ Fairyland - The Story Remains (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Sympho
 magnet:?xt=urn:btih:E924EF0D38458A663710497B75CB5BE22470CA68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +360,8 @@ magnet:?xt=urn:btih:E924EF0D38458A663710497B75CB5BE22470CA68
 ```bash
 magnet:?xt=urn:btih:A833FD1D74F9C0D7DE27521F82D6DEBE4147CC03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +390,8 @@ VA - Armin van Buuren - A State Of Trance 1229 (2025) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:D75CC6F14945BA13C827846DE09F8AEE1A3FA64C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +419,8 @@ King Gizzard & The Lizard Wizard - Phantom Island (2025) [FLAC 24/48|Lossless|WE
 magnet:?xt=urn:btih:8D44CE78F435CD5E06D68101D3F9EDC6B3326149
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +444,8 @@ magnet:?xt=urn:btih:8D44CE78F435CD5E06D68101D3F9EDC6B3326149
 ```bash
 magnet:?xt=urn:btih:47E4BF129715BA2166FF46CF52E3FAA5095F4CD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +474,8 @@ Malvada - Malvada (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:ACD59AB9FCE64C91DB58AE1F0A255F437912C57C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +503,8 @@ Tokimonsta - Eternal Reverie (2025) 4 CD [FLAC 24/44.1,48|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:A2C8A618FC105C841B97EEFDE688626A55F2F62A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +528,8 @@ Ookami Kodomo no Ame to Yuki | Wolf Children | Волчьи дети Амэ и �
 ```bash
 magnet:?xt=urn:btih:E8008754434A75A042CF91EFB8B2443A29AD7F2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +558,8 @@ VA - National Pop Dance Music Vol.110 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 magnet:?xt=urn:btih:C68A5EEAB9E355D97569C9953282E89996FCB4B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +583,8 @@ magnet:?xt=urn:btih:C68A5EEAB9E355D97569C9953282E89996FCB4B8
 ```bash
 magnet:?xt=urn:btih:B1EB7997A7480B07F5CE5B58E020958AE8898773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +610,8 @@ magnet:?xt=urn:btih:B1EB7997A7480B07F5CE5B58E020958AE8898773
 magnet:?xt=urn:btih:1BB43272A062A1055EDF84A68E475A0177FF12F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +636,8 @@ magnet:?xt=urn:btih:1BB43272A062A1055EDF84A68E475A0177FF12F1
 magnet:?xt=urn:btih:30F7FFA46A9721B90B835F107767913B437FD5AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +661,8 @@ magnet:?xt=urn:btih:30F7FFA46A9721B90B835F107767913B437FD5AD
 ```bash
 magnet:?xt=urn:btih:0AF608D2788E9C00BB770D6C1A3297C037D6C97C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +689,8 @@ magnet:?xt=urn:btih:0AF608D2788E9C00BB770D6C1A3297C037D6C97C
 magnet:?xt=urn:btih:C12BE99F9C8A0E8F1E7F74F7A17F7963ED5D7421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +714,8 @@ Castle Crashers - двумерный платформер от студии Behe
 ```bash
 magnet:?xt=urn:btih:190CE860BB8A48E3B86BB9B169C1F3EEAF543479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

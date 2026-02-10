@@ -22,6 +22,8 @@ VA - Cr2 Live & Direct Presents: Secondcity (2017) [FLAC|Lossless|Web-DL|tracks+
 magnet:?xt=urn:btih:2930D2EFA84D0320401E43D6A1BAE1C0784BF353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Minimal Daydream (2016) [MP3|320 кб/с] <House>
 ```bash
 magnet:?xt=urn:btih:DBB85CCEAA1A935EE39CE0B35CA3C6D3C8B5454B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Flowers for Bodysnatchers - Alive with Scars (2019) Cryo Chamber [FLAC|Lossless|
 magnet:?xt=urn:btih:151E469D1D26F12ED7CC73F9A012DBA6D8D605B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Nicolas Jaar - Cenizas (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Experimental,  Dow
 ```bash
 magnet:?xt=urn:btih:839DC04B4978C21101EE42B35913087B6A2DE6D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Sundaze - Saturnia (2020) Melusine Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Psy
 magnet:?xt=urn:btih:8136DCB37BDB8DC788266105017CB8DE9000812A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Armada Music - Decade (2010-2020) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:08FBA697CA3D1F19012BB783991C1B40E883E29F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Peter Pearson - Quantum of Dreams (2019) [FLAC|Lossless|WEB-DL|tracks] <Electron
 magnet:?xt=urn:btih:3CFE566DB5B0997350859BFE7A0F528793653E67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ magnet:?xt=urn:btih:3CFE566DB5B0997350859BFE7A0F528793653E67
 ```bash
 magnet:?xt=urn:btih:D3A394887A30FE384124DE058F9D4CF74B5AB6E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ VA - Spring Break 2020 (Best of Dance, House & Electro) (2020) [MP3|320 Kbps] <H
 magnet:?xt=urn:btih:7DB307BDB20C0983E1EF8FF4F645ADF94AC71A50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Push Button Objects - Ghetto Blaster (2003) Chocolate Industries [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:75CE3D216702487694F840D579BA097370862CAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Trigg & Gusset - Discography 5 Releases (2013-2021) Preserved Sound [FLAC|Lossle
 magnet:?xt=urn:btih:C6C74994202DE35E00F06FE860DE5A238245C06A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ Depeche Mode - 4CD's Rare Album Set (2006, 2013) Compilation [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:A7FF39A935439C8FB03E12E9543BE505774ED3F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +368,8 @@ Midge Ure (James «Midge» Ure) - шотландский гитарист, пе�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ John Beltran (Placid Angles, Nostalgic) - Discography 43 Releases (1995-2021) De
 ```bash
 magnet:?xt=urn:btih:F7A2B5014659680DB73884D9F042B2F7EB006AD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ VA - Artist Showcase - 2nd Edition (2021) Point Source Electronic Arts [FLAC|Los
 magnet:?xt=urn:btih:C53AD8C0FFDF234B7E8A8E60447E609DD4A40AF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ VA - Endless Summer: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Ba
 ```bash
 magnet:?xt=urn:btih:602C226A7A7067132FB635CB96832B8CB6FF203A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ CD1
 magnet:?xt=urn:btih:274E15DF66F2A8D0BC7EBA240918BAC9CBBD0E6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ Blank & Jones - #WhatWeDoAtNight (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 ```bash
 magnet:?xt=urn:btih:D412E5DE99993041D41BC42C1B77D477B25F89BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ VA - Asana Yoga Session Vol.1 Music for Body and Mind (2017) [MP3|320 Kbps] <Dow
 magnet:?xt=urn:btih:C03C0E27A0C100798D3A47F4EC40B577A07866E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ VA - Indie & Nu Disco 2017  [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:5ED23634BD67320097471D17CE8CA4891819D009
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ VA - Enormous Deep (Sexy Deep House Tunes), Vol. 2 (2017) [MP3|320 Kbps] <Deep H
 magnet:?xt=urn:btih:C46B2CA8D08163F1D78AD973235DF16D8FECD694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ The Qemists - Warrior Sound (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic Roc
 ```bash
 magnet:?xt=urn:btih:62BB68B4A3468CBB6DD33C727AE9DF9B99B43E18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +657,8 @@ VA - Enormous Deep (Sexy Deep House Tunes) Vol.1 (2016) [MP3|320 Kbps] <Deep Hou
 magnet:?xt=urn:btih:FFAF1C86A2732977104B3A4D3B58646650498F7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +685,8 @@ VA - Dash Deep Harsh Crazy 2015.04 (2017) [MP3|320 Kbps] <House, Tech House, Dee
 ```bash
 magnet:?xt=urn:btih:17FB22A4E7D4892EEE47E772639B3852AF577C29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +715,8 @@ VA - Mystic Traveller Lounge (Chillout Your Mind) (2017) [MP3|320 Kbps] <Downtem
 magnet:?xt=urn:btih:CACFD3DF9B9F3411AF40A4093289E91B3C904CE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ VA - Die Hit-Giganten: Pop and Wave Hits Der 80er (2005) 2CD, Compilation [FLAC|
 ```bash
 magnet:?xt=urn:btih:E54A8E5DCFEE57BABBC1624F183BEB9B4C072EB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

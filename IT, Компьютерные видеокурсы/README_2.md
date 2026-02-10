@@ -21,6 +21,8 @@ Zerocoder | Станьте профессиональным зерокодеро
 magnet:?xt=urn:btih:590E11FA44F4915A87AD5B5BF9E6FB827021CD7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Zerocoder, Вадим Михалев | Зерокодер мобильных п�
 magnet:?xt=urn:btih:E0870096B9D95476C2E1C3FDFA1F2C8860ABCC27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:E0870096B9D95476C2E1C3FDFA1F2C8860ABCC27
 ```bash
 magnet:?xt=urn:btih:E9A1CE36B580835EC7D2847773001A5EC8EC19C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ ProfIT | XDebug: полезное расширение для каждого р�
 magnet:?xt=urn:btih:6DB9B3BCA8CEF0A78EE38C453B390D007F8A9383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:6DB9B3BCA8CEF0A78EE38C453B390D007F8A9383
 ```bash
 magnet:?xt=urn:btih:1933CCC5889C709025BABC1B64DC5C2E7385C049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Lynda.com | HTML5 Структура, Синтаксис, и Семантика/
 magnet:?xt=urn:btih:1F33B11A16E9040B92E5B819183961C75CB5A53D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ PluralSight | Cisco CCNA Security Introduction to Network Security (2014) PCRec
 magnet:?xt=urn:btih:7135A3CF13C40C8C4FF612F6DD9FBC47683167BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Udemy, Hussein Nasser | NodeJS Internals and Architecture (2025) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:BA5FD84C9BAEAC6C44B917502463B05B24279839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:BA5FD84C9BAEAC6C44B917502463B05B24279839
 magnet:?xt=urn:btih:9F3C8F5C70C1DD3B4331602D23EA46BC91E6666E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:9F3C8F5C70C1DD3B4331602D23EA46BC91E6666E
 magnet:?xt=urn:btih:75AECCBDE124ECAE00083CB46F67A7F39E8E77CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:75AECCBDE124ECAE00083CB46F67A7F39E8E77CC
 ```bash
 magnet:?xt=urn:btih:C7BABCB01C9E51A0F3F110B384CFD104157C7789
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:C7BABCB01C9E51A0F3F110B384CFD104157C7789
 magnet:?xt=urn:btih:E3AFAE325AE94BDBE59865A9F8B458E41971C0C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ Playbook содержит стратегии и шаблоны для распр
 ```bash
 magnet:?xt=urn:btih:5A38F4C09BF72DC1BC52F6EADAD1EA784652823F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:5A38F4C09BF72DC1BC52F6EADAD1EA784652823F
 magnet:?xt=urn:btih:797F74C4C0434B81CDCC0B1914D2BC2F681DEB21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ magnet:?xt=urn:btih:797F74C4C0434B81CDCC0B1914D2BC2F681DEB21
 magnet:?xt=urn:btih:E5FB33094060C383C2A347953F013F96CD47B7F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:E5FB33094060C383C2A347953F013F96CD47B7F6
 magnet:?xt=urn:btih:298B9EB88CCC4A9C7DEA03A056EFF96308518D4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:298B9EB88CCC4A9C7DEA03A056EFF96308518D4E
 ```bash
 magnet:?xt=urn:btih:7E58207C76698C926AFA10678D44C06599ECA4CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ magnet:?xt=urn:btih:7E58207C76698C926AFA10678D44C06599ECA4CC
 magnet:?xt=urn:btih:76A2CE6A8E68DD8A8E5B2636E0FF61B095D82EBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ TON-разработчик
 magnet:?xt=urn:btih:4F42220FB4D45B6F1780888AA875C7E497AFE15B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:4F42220FB4D45B6F1780888AA875C7E497AFE15B
 ```bash
 magnet:?xt=urn:btih:7843A1416A9F8C234E6E2DC7F3296BF8A283820B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ loftschool | Node.js серверный JavaScript (2018) PCRec [H.264]
 magnet:?xt=urn:btih:96049FE9C0C7E1FD694C24BDB8CE7C536BA614B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:96049FE9C0C7E1FD694C24BDB8CE7C536BA614B5
 ```bash
 magnet:?xt=urn:btih:9AFA76F63F38A4E6A33AFFC00F26381830BD8FA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ Solidity - это язык программирования высокого у�
 magnet:?xt=urn:btih:581595E1ED685C142154E21DBB60FF1FB72B3A56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ Stepik, Сергей Камянецкий | Буткемп «Записки юн
 magnet:?xt=urn:btih:C0051140473C9E2DF250547FB2AFD3014EBD924C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:C0051140473C9E2DF250547FB2AFD3014EBD924C
 ```bash
 magnet:?xt=urn:btih:17EEAD26F18A157BAA5536B1D82644E1CCAFC662
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:17EEAD26F18A157BAA5536B1D82644E1CCAFC662
 ```bash
 magnet:?xt=urn:btih:32A0B729BB54F36E32BA2BA4C6D95AE6DF09FA60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

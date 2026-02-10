@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E5B25AF40488154FA19857FD3DA3DE6B0856ECA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:E5B25AF40488154FA19857FD3DA3DE6B0856ECA2
 ```bash
 magnet:?xt=urn:btih:5BECA9DA4B865AAAF2ABE309ABC56F4C945CCDA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Uaral - 2 albums (2005-2007) [FLAC|Lossless] <Doom Metal, Folk>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -108,6 +114,8 @@ Uaral - 2 albums (2005-2007) [FLAC|Lossless] <Doom Metal, Folk>
 magnet:?xt=urn:btih:AE851397AC72C5BEF0E12CA68C8617D3937AE8B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -132,6 +140,8 @@ magnet:?xt=urn:btih:AE851397AC72C5BEF0E12CA68C8617D3937AE8B7
 magnet:?xt=urn:btih:B0C8FBF514E3ACB43C817CB2DF8240AAF7A237D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ Xan - цифровое творчество художника-иллюстра�
 ```bash
 magnet:?xt=urn:btih:8009AF5E25B5EEB3381FCBFF987550D9AB93B7FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +201,8 @@ Disc 1 (English):
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +226,8 @@ Disc 1 (English):
 ```bash
 magnet:?xt=urn:btih:6A454DB609CAAFEBD7B0B1BA143423DCB46AB47F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ magnet:?xt=urn:btih:6A454DB609CAAFEBD7B0B1BA143423DCB46AB47F
 magnet:?xt=urn:btih:C78F8DDCE659718250008AE59326366C8B156D15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ magnet:?xt=urn:btih:C78F8DDCE659718250008AE59326366C8B156D15
 magnet:?xt=urn:btih:2A72421DF068295C10DCDD8DDD309881EDB02F81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +304,8 @@ magnet:?xt=urn:btih:2A72421DF068295C10DCDD8DDD309881EDB02F81
 ```bash
 magnet:?xt=urn:btih:953DA6B7C89098FB2F3BE1F60D8480CBFD00DE7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +333,8 @@ magnet:?xt=urn:btih:953DA6B7C89098FB2F3BE1F60D8480CBFD00DE7A
 magnet:?xt=urn:btih:5AD2E3D526E199D09025FBD3A8C731C4347E37B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +361,8 @@ Gene Wars (RePack) [Ru/En]  1996 | RG Games (Pilotus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +388,8 @@ Gene Wars (RePack) [Ru/En]  1996 | RG Games (Pilotus)
 magnet:?xt=urn:btih:84595FC48B5B09374A5AEF16D0F747B83AE4571C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +413,8 @@ magnet:?xt=urn:btih:84595FC48B5B09374A5AEF16D0F747B83AE4571C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +449,8 @@ Lazerhawk - Visitors (2012) [MP3|320 кб/с]<Electro , Synthpop ,  Spacesynth>
 magnet:?xt=urn:btih:229FB81E88BD995A17CD94D94F8FCFF6B98EC51D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +476,8 @@ Evidence: The Last Report [Ru] (RePack) 1997 | Pet9948
 magnet:?xt=urn:btih:EE4BC72C4D57568B9A6F9BE015CE5C90CCAA3792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +502,8 @@ magnet:?xt=urn:btih:EE4BC72C4D57568B9A6F9BE015CE5C90CCAA3792
 magnet:?xt=urn:btih:23603F7302B8A19FE68095FAE04FE069A17EC006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +527,8 @@ magnet:?xt=urn:btih:23603F7302B8A19FE68095FAE04FE069A17EC006
 ```bash
 magnet:?xt=urn:btih:058E423AD76BBB7ECE0302FE74D0D84CB38384F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +555,8 @@ magnet:?xt=urn:btih:058E423AD76BBB7ECE0302FE74D0D84CB38384F4
 magnet:?xt=urn:btih:6A8366E0BB1C678C3448748921CDDE0A972A10C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +581,8 @@ magnet:?xt=urn:btih:6A8366E0BB1C678C3448748921CDDE0A972A10C0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +610,8 @@ Registry Winner – программа для улучшения работы к
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +637,8 @@ Registry Winner – программа для улучшения работы к
 magnet:?xt=urn:btih:E82250EAE5A77730C6A92F5AD2CA21600F5595BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +662,8 @@ magnet:?xt=urn:btih:E82250EAE5A77730C6A92F5AD2CA21600F5595BC
 ```bash
 magnet:?xt=urn:btih:58EA8004382A030CF12E3B72688A67FBD83F04DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +694,8 @@ Accept - Kaizoku-Ban (1985) /EP/ [FLAC 2.0 192/24 |VinylRip] <Heavy Metal>
 magnet:?xt=urn:btih:9DD4FA9D046D942D84119C258B8621167DDF96EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,6 +720,8 @@ magnet:?xt=urn:btih:9DD4FA9D046D942D84119C258B8621167DDF96EC
 ```bash
 magnet:?xt=urn:btih:5FCAF55B5F9071572A06C97383618F6F8DD2F40A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

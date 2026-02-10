@@ -22,6 +22,8 @@ Taylor Dayne - Soul Dancing (Deluxe Edition) 2CD,  (2014) [FLAC|Lossless|image +
 magnet:?xt=urn:btih:547212E7A1876C72E00AFF73E6924F50788A1D2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Gerard Joling - No More Boleros (1989) [FLAC|Lossless|tracks + .cue]<Рор>
 ```bash
 magnet:?xt=urn:btih:C97270C54960B699A0555F8E9C5592FFFBEF3E2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Gerard Joling - No More Boleros (1989) [MP3|320 Kbps] <Рор>
 magnet:?xt=urn:btih:C30675E517B00B6C04A5B2F09C87C42D1B7F1CB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ VA - Late Night With You (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:0C97B0BBCD8D68CC5058A482BE4191234D8AB051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ VA - I Love The 90's The Retro Edition (2018) 5CD, Compilation, Mixed [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:F79B08900DD9A5E3F9A9F642E9FE5EE37CD5D29D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ VA - Italo Dance Classics Volume 4 (1990) [OGG Vorbis|480 Kbps] <Electronic, Pop
 magnet:?xt=urn:btih:02BC84AC414282C5E93C233F94DA0356AC5D60F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ VA - Now Yearbook Extra '79 (67 More Essential Hits From 1979) (2022) 3 CD [OGG 
 ```bash
 magnet:?xt=urn:btih:6C873EB9CBB79A04C1F27769E882215ABEF94085
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ Mylene Farmer - Libertine (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:BB466C5194AA12F94A10DDBF4C5ADED2F0894CC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ VA - Club Charts Top 100 - 2023 [MP3|320 Kbps] <Euro Dance, Pop Dance>
 ```bash
 magnet:?xt=urn:btih:A8D76715A8FE979511DAC219E2112CC629F5B87F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ VA - TikTok Pop (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:004C7BCF7F4DA02D4E610A5C8502404624D748C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ VA - Italo Dance Classics Volume 1 (1990) [OGG Vorbis|480 Kbps] <Electronic, Pop
 magnet:?xt=urn:btih:589D8F9B8F1AA3C8FB550A6F2A92B0CA095D79CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ Whitney Houston - I Go to the Rock: The Gospel Music of Whitney Houston (2023) [
 ```bash
 magnet:?xt=urn:btih:6173D805159D66B11F2F2C699F13419C1FDC0F42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +373,8 @@ Laid Back - Good Vibes - The Very Best Of Laid Back (2008) 2CD [FLAC|Lossless]<P
 magnet:?xt=urn:btih:49EE7CAD665E29F3F652D73A6940B43F5E769248
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +402,8 @@ Edna B. Jerano - Let Your Feelings Show (1978) LP [MP3|320 Kbps] <Electronic, Di
 magnet:?xt=urn:btih:783ADB2B276F67AB59A2E454382F50AC6316F6D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +427,8 @@ magnet:?xt=urn:btih:783ADB2B276F67AB59A2E454382F50AC6316F6D0
 ```bash
 magnet:?xt=urn:btih:34C2E46B180666211381642D67DC3C5ED8668397
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +463,8 @@ Tom Jones - Greatest Love Songs (2003) [APE|Lossless]<Soul, Rock, Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +497,8 @@ Tom Jones - Greatest Love Songs (2003) [APE|Lossless]<Soul, Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:024957EC8AC5F861C7A2AB1E7E067827878BBF00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +533,8 @@ magnet:?xt=urn:btih:024957EC8AC5F861C7A2AB1E7E067827878BBF00
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +568,8 @@ VA - Зарубежная Дискотека 80-х (2012) [MP3|256 кб/с]<Disc
 magnet:?xt=urn:btih:73FCE2E740034C05179C0E9F7652BBB12BD42ABB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +596,8 @@ VA - Let's begin from the start (2023) [MP3|320 Kbps] <Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:ECC487A93E1D9412878F528C3A001B82194240EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +626,8 @@ Digital Emotion - Digital Emotion & Outside In The Dark (1984, 1985) 2002, Break
 magnet:?xt=urn:btih:8F8EA8797AF8E997020CB922B1BC6D025BC66878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +654,8 @@ Digital Emotion - Digital Emotion & Outside In The Dark (1984, 1985) 2002,  Brea
 ```bash
 magnet:?xt=urn:btih:09A62B52CED8DF56282B1DA1B52B79812A5C82A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +684,8 @@ VA - Romantic Collection: Golden 50s (2000) [OGG Vorbis|480 Kbps] <Jazz, Pop>
 magnet:?xt=urn:btih:B92931280A813A7F9E6EB16EA7396C891DF0AD2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +712,8 @@ VA - Love Songs 2000s (2023) [OGG Vorbis|480 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:43087810CC4DC6A23CE9EB757AE1D4269960FBFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -694,6 +742,8 @@ magnet:?xt=urn:btih:43087810CC4DC6A23CE9EB757AE1D4269960FBFB
 magnet:?xt=urn:btih:F640D6A4F1D7E9389ADE3A5A88EC346DED6E4DE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -720,6 +770,8 @@ VA - All Day Throwback 100 Hits (2023) [OGG Vorbis|480 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:42E560C70145901F4D7CA3CE1D8295F2E59CCE70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

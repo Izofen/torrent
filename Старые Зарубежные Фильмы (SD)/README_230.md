@@ -1,28 +1,3 @@
-###  Публикация: 595639   (1020226) от 19.04.2021
-
-Улыбающийся лейтенант / The Smiling Lieutenant (1931) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие разворачивается, как и положено в оперетте, в Вене, а также в вымышленном королевстве Флаузентурм. Лейтенант Николаус фон Прейн, повеса и бабник, стоит на карауле во время приезда флаузентурмского монарха к австрийскому императору. На другой стороне улицы среди толпы он видит свою пассию, скромную скрипачку Франзи.
-Николаус улыбается ей, но проезжающая мимо (   Читать дальше...   )Производство: США, Paramount PicturesЖанр: Мьюзикл, мелодрама, комедияРежиссер: Эрнст ЛюбичАктеры: Клодет Кольбер, Морис Шевалье, Мириам Хопкинс, Чарльз Рагглз, Джордж Барбье, Хью О`Коннелл, Мод Аллен, Гранивиль'Дэнни» Бейтс, Гарри БрэдлиПеревод: Двуголосый профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:29:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B534176E01D01003D157CA05F2779420A02E9440
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463663   (1020286) от 19.04.2021
 
 У савана нет карманов / Un linceul n'a pas de poches (1974) DVDRip [H.264] [VO]
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:B534176E01D01003D157CA05F2779420A02E9440
 ```bash
 magnet:?xt=urn:btih:791FEA7D7DDF8F0F7DE307EB3E5116B7FC15414F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +45,8 @@ magnet:?xt=urn:btih:791FEA7D7DDF8F0F7DE307EB3E5116B7FC15414F
 magnet:?xt=urn:btih:4ACC37A06B82F4043E6C3826DE64235407A69E4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +70,8 @@ magnet:?xt=urn:btih:4ACC37A06B82F4043E6C3826DE64235407A69E4C
 ```bash
 magnet:?xt=urn:btih:FAA5EA9D05CCC9FF669A6BE3202EB24477D52EC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +99,8 @@ magnet:?xt=urn:btih:FAA5EA9D05CCC9FF669A6BE3202EB24477D52EC5
 magnet:?xt=urn:btih:8FD25E7E128AC8D75CCC8908D9BEABAFA33CEDF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +124,8 @@ magnet:?xt=urn:btih:8FD25E7E128AC8D75CCC8908D9BEABAFA33CEDF8
 ```bash
 magnet:?xt=urn:btih:A2853A65C5E32EA91D5D95DBD950D94906798052
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +152,8 @@ magnet:?xt=urn:btih:A2853A65C5E32EA91D5D95DBD950D94906798052
 magnet:?xt=urn:btih:52B621BDD199432D4D758CE8B08D848DCE55F748
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +178,8 @@ magnet:?xt=urn:btih:52B621BDD199432D4D758CE8B08D848DCE55F748
 magnet:?xt=urn:btih:67169047D48C86F025B5F288A6690CD733308FAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +203,8 @@ magnet:?xt=urn:btih:67169047D48C86F025B5F288A6690CD733308FAA
 ```bash
 magnet:?xt=urn:btih:369360CA598D263A91A9CCE3746F5D538097B8AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +231,8 @@ magnet:?xt=urn:btih:369360CA598D263A91A9CCE3746F5D538097B8AA
 magnet:?xt=urn:btih:576504DCE583C9F8C4004A78057277AB5A518F34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +256,8 @@ magnet:?xt=urn:btih:576504DCE583C9F8C4004A78057277AB5A518F34
 ```bash
 magnet:?xt=urn:btih:431B25EA52C4B1C20D8EC7B73A0E8385B501C382
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +283,8 @@ magnet:?xt=urn:btih:431B25EA52C4B1C20D8EC7B73A0E8385B501C382
 magnet:?xt=urn:btih:745C9591EC90555F8F08BC1654AA1893898335EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +308,8 @@ magnet:?xt=urn:btih:745C9591EC90555F8F08BC1654AA1893898335EA
 ```bash
 magnet:?xt=urn:btih:3FFDD2B06EFBA6DBE1A93E57C79E50147E9E2613
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +335,8 @@ magnet:?xt=urn:btih:3FFDD2B06EFBA6DBE1A93E57C79E50147E9E2613
 magnet:?xt=urn:btih:D73179B87246182BE777F0BA63B69E691280E8EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +360,8 @@ magnet:?xt=urn:btih:D73179B87246182BE777F0BA63B69E691280E8EF
 ```bash
 magnet:?xt=urn:btih:2E6361FF2DBA92F605CB7464132886FA405F54D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +388,8 @@ magnet:?xt=urn:btih:2E6361FF2DBA92F605CB7464132886FA405F54D7
 magnet:?xt=urn:btih:3FED3AA243C9DA479E4C95E85619FEF2AC1FBF83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +413,8 @@ magnet:?xt=urn:btih:3FED3AA243C9DA479E4C95E85619FEF2AC1FBF83
 ```bash
 magnet:?xt=urn:btih:FE98004A203E3E0E0249CA8CBE0CBC0DA3398B5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +440,8 @@ magnet:?xt=urn:btih:FE98004A203E3E0E0249CA8CBE0CBC0DA3398B5E
 magnet:?xt=urn:btih:800A95B0B0342D6E18E6DE8059F225D2BDFB7B2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +465,8 @@ magnet:?xt=urn:btih:800A95B0B0342D6E18E6DE8059F225D2BDFB7B2D
 ```bash
 magnet:?xt=urn:btih:D8BF94CC93045281517417CD42DD0F1A075018E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +492,8 @@ magnet:?xt=urn:btih:D8BF94CC93045281517417CD42DD0F1A075018E8
 magnet:?xt=urn:btih:34EBCAC78A5E2A06C22168188ED9D9B642DB6BA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +517,8 @@ magnet:?xt=urn:btih:34EBCAC78A5E2A06C22168188ED9D9B642DB6BA9
 ```bash
 magnet:?xt=urn:btih:449D267AC455B463989C9789A2A3680EB7AB91DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +544,8 @@ magnet:?xt=urn:btih:449D267AC455B463989C9789A2A3680EB7AB91DC
 magnet:?xt=urn:btih:E8F55827E86066C0CEF8C8420BCEF8D818B233DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +569,8 @@ magnet:?xt=urn:btih:E8F55827E86066C0CEF8C8420BCEF8D818B233DF
 ```bash
 magnet:?xt=urn:btih:356DA5F164AC0341EC04A609BB8657BA4DC3A78D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +596,8 @@ magnet:?xt=urn:btih:356DA5F164AC0341EC04A609BB8657BA4DC3A78D
 magnet:?xt=urn:btih:E7EF1DDAC5A93583B906F2CE72214F7195EDC448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +622,8 @@ magnet:?xt=urn:btih:E7EF1DDAC5A93583B906F2CE72214F7195EDC448
 magnet:?xt=urn:btih:C0FF7DA018CB7BEBEAFACEF147CA3DF6488BBE1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +647,34 @@ magnet:?xt=urn:btih:C0FF7DA018CB7BEBEAFACEF147CA3DF6488BBE1F
 ```bash
 magnet:?xt=urn:btih:75E46114F8125968604E3AD7AF2E084E7157C973
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462494   (1021159) от 14.04.2021
+
+Гарольд Ллойд. Эта дикая жизнь / It's a Wild Life (1918) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1021159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередная эксцентрик-комедия Гарольда Ллойда. Ничего сверхоригинального, но все же традиционно весело, задорно и в меру безумно. В соответствии с названием фильмыПроизводство: СШАЖанр: Комедия, короткометражный, немое киноРежиссер: Гилберт ПрэттАктеры: Гарольд Ллойд, Снуб Поллард, Биби Дэниелс, Уильям Блэйсделл, Jane Blyler, Сэмми Брукс, Lige Conley, Билли Фэй, Джеймс А. Фицджералд, Уильям ГиллеспиПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:136F58985A8905240738891C7074495E3ABB78DC
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

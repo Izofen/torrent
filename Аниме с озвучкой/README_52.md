@@ -19,6 +19,8 @@ Pokemon: Battle Frontier (9 Season) / Покемон: Боевой Рубеж (9
 magnet:?xt=urn:btih:3EE58B344941479B6C81C571687430C8B83461D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Full Metal Panic! | Стальная тревога! [2002, TV, 24 эп.] BDrip 
 ```bash
 magnet:?xt=urn:btih:3BB72AD95783E44416924D8EF1F63C327A8D5F57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Full Metal Panic! The Second Raid | Full Metal Panic! Owaru Day By Day | Ста�
 magnet:?xt=urn:btih:D2184348FF7C02B03BAC4F0ACF0ECDDCDDCAC749
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Full Metal Panic? Fumoffu | Full Metal Panic Fumoffu | Fullmetal Panic Fumoffu |
 magnet:?xt=urn:btih:45728393DED58F3C7E279F8CC34250E03A9D87C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Bayonetta: Bloody Fate / Байонетта: Кровавая судьба (2013
 ```bash
 magnet:?xt=urn:btih:021CCF8FAC389DD6250CC064317B2807CB4DBC3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Azur Lane the Animation | Лазурный путь [2019, TV, 12 из 12] BDRip
 magnet:?xt=urn:btih:EFF7A9957E08C3D87170023EABFE1000339DC4B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:EFF7A9957E08C3D87170023EABFE1000339DC4B8
 ```bash
 magnet:?xt=urn:btih:4FA0C53D589CDDCCAD8D10A025D913FD35BA3CE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:4FA0C53D589CDDCCAD8D10A025D913FD35BA3CE8
 magnet:?xt=urn:btih:470E55041BE767B74E7BEF2FFF195D27EC076727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Heavy Object / Тяжёлый объект [2015, TV, 24 ep] HDTV 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:1C72EB7342C5868F228DCB29347453F36E4468DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:1C72EB7342C5868F228DCB29347453F36E4468DA
 magnet:?xt=urn:btih:48019A7CEF2477EEA5FE3FC33C3FE344BBFFE369
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Miss Monochrome 3 / Мисс Монохром 3 [2015, TV, 13] HDTV 720p rus
 ```bash
 magnet:?xt=urn:btih:D2741A990E99CAFAA1AB8AE3019EE40946991615
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:D2741A990E99CAFAA1AB8AE3019EE40946991615
 magnet:?xt=urn:btih:333A6D17D2042D8108259D801A1B12E216628339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Kami-sama Hajimemashita / Kamisama Hajimemashita / Очень приятно, Б
 ```bash
 magnet:?xt=urn:btih:6FB3139799082A2B45CE2DDE362F12C90DD4695A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Toaru Kagaku no Railgun | Некий Научный Рейлган [TV-1] [2009,
 magnet:?xt=urn:btih:1CCE588CFBC435A44D5F58F58BE13B69E9F21273
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Toaru Majutsu no Index: Endymion no Kiseki | Некий Магический И�
 ```bash
 magnet:?xt=urn:btih:3DB9C6027C0D3EEADD028D050E624A7F0FDC54DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Toaru Majutsu no Index III | Некий Магический Индекс [TV-3]
 magnet:?xt=urn:btih:A190237601917CEEFB1C65A10A0D753EEF9A21C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Kekkai Sensen & Beyond | Фронт Кровавой Блокады [TV-2] [2017
 magnet:?xt=urn:btih:A5EA7AE187D0C68EC88D52501B1C52B2DD3976F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Shiki | Усопшие [2010, TV, 22 ep + 2 sp] BDRip 1080p 10-bit raw+rus
 ```bash
 magnet:?xt=urn:btih:E252FFC3498056D9B26ABB44A9860E732E10990B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Haikyuu!! Second Season / Волейбол!! [ТВ-2] [2015, TV, 25 ep] HDTV 720
 magnet:?xt=urn:btih:5A5B96E33ABCDDB4DE0EC12C5E50A2C446FD0EC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Gintama / Гинтама [ТВ-4] [2015, TV, 1-51 из 51 эп.] HDTV 720p raw+r
 ```bash
 magnet:?xt=urn:btih:8635C6A0086658E839F16180D6D842D1E80E8019
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Mahouka Koukou no Yuutousei | The Honor at Magic High School | Почётная 
 magnet:?xt=urn:btih:D0B283957AAC9905600CF16835316BD0D433B3C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Kiseijuu: Sei no Kakuritsu / Parasyte: The Maxim / Паразит: Жизнен�
 ```bash
 magnet:?xt=urn:btih:6CAB9DAC91C9E8CEDD8FE237C989A209011BC695
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Monster Musume no Iru Nichijou | Повседневная Жизнь с Деву
 magnet:?xt=urn:btih:3E1F902CE4871C4B98B83E26C96898271952D190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Wolf's Rain | Волчий Дождь [2003, TV, 30 ep] BDRip 10-bit 1080p raw+r
 magnet:?xt=urn:btih:6DE33CB3383F835029F028E6E59415CDB5CDA4A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Dumbbell Nan Kilo Moteru? | Насколько Тяжёлые Гантели т�
 magnet:?xt=urn:btih:B1EBE7291247F1812E213878EC1F53D4AA6ED28A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:B1EBE7291247F1812E213878EC1F53D4AA6ED28A
 ```bash
 magnet:?xt=urn:btih:463505D6E9744250AB4EA1EBCC3E08A4615DB9DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

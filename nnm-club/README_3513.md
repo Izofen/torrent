@@ -22,6 +22,8 @@ Claptone & Diplo played:
 magnet:?xt=urn:btih:6D60AC449E814155E37F0C0BD0804E0FAB19E62A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ The Preacher - The Final Attack (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 magnet:?xt=urn:btih:BC429E6B1C8327C9F3C1B95C6D9BA431D80A9EDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:BC429E6B1C8327C9F3C1B95C6D9BA431D80A9EDF
 ```bash
 magnet:?xt=urn:btih:043E741EBB1D792D19FC87B1369324E27858957C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:043E741EBB1D792D19FC87B1369324E27858957C
 ```bash
 magnet:?xt=urn:btih:6801C88C1A3CAD873E62652824C6F84A1E3CE7AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Joe Mooney - Lush Life (1956) 1999, Koch Jazz [FLAC|Lossless|tracks + .cue] <Voc
 magnet:?xt=urn:btih:C989D2803536DA4CC077A02A1EFF35A5EDFA746C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ Tal Farlow - Complete 1956 Private Recordings (2002) 2CD, Definitive Records [FL
 ```bash
 magnet:?xt=urn:btih:9B7C35B49750BB2890CE72FD1B596D6F8B514C0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ Paul Bley - The Paul Bley Synthesizer Show (1970, 1971) 2017, Bamboo [FLAC|Lossl
 magnet:?xt=urn:btih:A94E7C3493FDB4D9A4C442365FC7493D94EA1A1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ magnet:?xt=urn:btih:A94E7C3493FDB4D9A4C442365FC7493D94EA1A1C
 magnet:?xt=urn:btih:95BAFFC9C1BA1C6A0DC7C13BD47B19A730EB9F39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:09167E65CFFC80BCCCCBEB108B8B79AB0351491B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:09167E65CFFC80BCCCCBEB108B8B79AB0351491B
 magnet:?xt=urn:btih:A43581C86B609EAA56223A5A17205545033AC411
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:A43581C86B609EAA56223A5A17205545033AC411
 ```bash
 magnet:?xt=urn:btih:0F0094C3A3A5936BBF05DDC854395E9B524C9E82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ Lionheart - The Grace of a Dragonfly (2024) [FLAC|Lossless|image + .cue] <Melodi
 magnet:?xt=urn:btih:1A974EB4266945C0D192A1FF10BAA776875C2B87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ VA - Pure Dreams, Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 magnet:?xt=urn:btih:D925D074287F0ABC183D42786C1EFED2BB31D7E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ Nova Scotia - Everytime We Touch (2023) [FLAC|Lossless|WEB-DL|tracks] <Club-Danc
 magnet:?xt=urn:btih:A524EE72324F074D55AA763FA03C63EF67F26B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ Nova Scotia - Think About The Angels (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop T
 ```bash
 magnet:?xt=urn:btih:43431E6837F306F745AA62B8F3C40CD9A080D137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:43431E6837F306F745AA62B8F3C40CD9A080D137
 ```bash
 magnet:?xt=urn:btih:AECA70058624B7FEF2EAB09897FD5BBE05FB3FE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ VA - Armin van Buuren - A State Of Trance 1169 (2024) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:211D667494BD6BF2AA27389357A3EF7CA861F89D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ magnet:?xt=urn:btih:211D667494BD6BF2AA27389357A3EF7CA861F89D
 ```bash
 magnet:?xt=urn:btih:19EE054CBC5BD7083FC4390B0819C72694F8DB76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +523,8 @@ VA - The Sound of 2024 Mix 3: Rio De Janeiro (2024) [MP3|320 Kbps] <Trance, Prog
 magnet:?xt=urn:btih:96C0C01D8E782B0C80A68514B01BF7A1DD984CB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +548,8 @@ magnet:?xt=urn:btih:96C0C01D8E782B0C80A68514B01BF7A1DD984CB7
 ```bash
 magnet:?xt=urn:btih:68876FABEE3D302BFDFD14E60979AA5E479F0824
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +575,8 @@ magnet:?xt=urn:btih:68876FABEE3D302BFDFD14E60979AA5E479F0824
 ```bash
 magnet:?xt=urn:btih:9D890697AD65B761705CAA9BC8C1BDDC16A1CA74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +605,8 @@ magnet:?xt=urn:btih:9D890697AD65B761705CAA9BC8C1BDDC16A1CA74
 magnet:?xt=urn:btih:7C6507A31B4BCE230D5DFBEFEAA68F9B9125B057
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +630,8 @@ VA - Black Hole House Music 04-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 ```bash
 magnet:?xt=urn:btih:F855C64568588A0122AC03FD2865986EB16AF496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +660,8 @@ SeeYouSpaceCowboy - Coup de Grace (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:1FCEE86CBE38D7406B526100072D663B21597882
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +689,8 @@ Cedric Burnside - Hill Country Love (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:18E8F1B27D9B1ED0C3A3B5F93E778DE8D8658C16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ magnet:?xt=urn:btih:18E8F1B27D9B1ED0C3A3B5F93E778DE8D8658C16
 ```bash
 magnet:?xt=urn:btih:68D5F81B5F61B65D9853B09CD99FC033FDA9B413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

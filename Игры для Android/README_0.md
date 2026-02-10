@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C8A3FDBEA5867788CD9291C87347E1C0C6F3ABC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ World of Goo 2 v1.0.25042604 [Ru]
 ```bash
 magnet:?xt=urn:btih:833716CDA763CE5A425B192B16ACC92005DD34CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Chaplin: The Missing Pieces v4.0.3 [En]
 magnet:?xt=urn:btih:71B3C813C5C8C55C574E71F6558FCE680A5F7C9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ EMPIRE переносит сражения в реальном времени и
 magnet:?xt=urn:btih:24748208EF56FD5F6201AF912B95B4696EEB93D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Prince of Persia™: The Lost Crown - это приключенческий пл
 ```bash
 magnet:?xt=urn:btih:1254A6E3E2A38384EC424BB4B7D6F8259B2AE545
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ GRID Legends: Deluxe Edition включает в себя все DLC-пакет�
 magnet:?xt=urn:btih:12C17B8B9D10EE039A97FBA647E172BD6CC4D06D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:12C17B8B9D10EE039A97FBA647E172BD6CC4D06D
 ```bash
 magnet:?xt=urn:btih:B6C5B97CAEAB230DB539E7AD1333B6A4F6134C4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:B6C5B97CAEAB230DB539E7AD1333B6A4F6134C4C
 magnet:?xt=urn:btih:62E5D358CB2045F62E15292A1D1C3E2A9FEC5058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Rail Rush v1.9.24 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8D488D9BE4FD825F8936D895D01BDB3DEDF9E760
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Jewels Match Dragon - это захватывающая и увлекатель�
 ```bash
 magnet:?xt=urn:btih:E073D79B122D2C2111846415A5ADB982A24E2A75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:E073D79B122D2C2111846415A5ADB982A24E2A75
 magnet:?xt=urn:btih:8498CF8F7CB823EB692697EFBA2120B1162062BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ Bad North — это очаровательный, но жестокий око�
 ```bash
 magnet:?xt=urn:btih:A3DD62EFB4C97E78750D172CC0F27208C0711F64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Dandara: Trials of Fear v1.5.21 [Ru]
 magnet:?xt=urn:btih:FADF6D84B10F8F01B599099C65998908BDD5C261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Snufkin Melody of Moominvalley v0.9.2 [En]
 magnet:?xt=urn:btih:8DD9F86EB15C4DEE65097841F5EF8DA0E97AD0CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ Misguided: Never Back Home - это захватывающая 3D-игра в ж
 ```bash
 magnet:?xt=urn:btih:D2875E4E94011EB2EDCE20ED63A947C29D4FF28C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ StudyGe - География мира v2.3.1 [Ru]
 magnet:?xt=urn:btih:46B262CD9661372631A51765EEBDF0E90E1E20F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ Alien: Isolation v1.4.1RC1 [Ru]
 ```bash
 magnet:?xt=urn:btih:36B0FD14874536E46C2B52F862E7A9BEEB5C6839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ Fruit Ninja Classic+ v1.0.1 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:DFD343330D3B9556DE00E2EDB815D9229F57640B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ Lara Croft: Guardian of Light v1.2.1RC14 [Ru]
 ```bash
 magnet:?xt=urn:btih:ED97B7C62E62B8F142B238A6BE49B34E07BA37BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ Little Misfortune - это интерактивная история, посвя
 magnet:?xt=urn:btih:4E155F357DCC06D92CE7C10D3BAD0E030520129B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ Life Gallery — это необычная игра, в которой голо�
 magnet:?xt=urn:btih:C5334B57530AE3CBF69D2430CFBCD3F02543813D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ Cat Museum v1.2.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:97F9C951B1D802D8D88488BB7821C4ED143DA154
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ Fran Bow v1.0.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:B4D01DDD5CD81C024697CCD24308F97EFFE923DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ Dad's Monster House - это нарисованная от руки игра-г�
 magnet:?xt=urn:btih:14B5EF95BECC6B3442E41E25F11374BDE892BFB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ Oddmar v0.111 [Ru]
 ```bash
 magnet:?xt=urn:btih:4BEC6D9669F29D3FC5FD28AF10DD9466E64721A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +692,8 @@ One Way - это креативный point-and-click квест от студи
 ```bash
 magnet:?xt=urn:btih:3CD440CD826EF54BECAC0532A0C92023D735F6C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

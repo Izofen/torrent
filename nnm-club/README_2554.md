@@ -22,6 +22,8 @@ Saori Yano - Saori Yano (2003) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bo
 magnet:?xt=urn:btih:7631BA1868E5CBBD0AB466569ACA873710AE2838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Saori Yano - 02 (2004) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Bop>
 magnet:?xt=urn:btih:F0F9106A98AFC886D9792B6612EB0862DC51E68D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:F0F9106A98AFC886D9792B6612EB0862DC51E68D
 ```bash
 magnet:?xt=urn:btih:8074E41477846587909EC695E1EA01CE7ABC726C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Polarr v6.11.3 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:A2B3C0844960D5DA5A518A4B475C20FA94518C2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:A2B3C0844960D5DA5A518A4B475C20FA94518C2C
 magnet:?xt=urn:btih:6F6207E8B3A1A757940D9B545AEFFD6BE0B032C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ uzhasarium | Наследство (2024) [MP3, Денис Максимов]
 ```bash
 magnet:?xt=urn:btih:044B003BB077E29343BEE180210B5285A8BDC900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Crematory - Destination (2025) [MP3|320 Kbps] <Industrial Gothic Metal>
 magnet:?xt=urn:btih:4FF7347B3E4A8C196AD3C08F3DC003F9D91C06D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:4FF7347B3E4A8C196AD3C08F3DC003F9D91C06D2
 magnet:?xt=urn:btih:6A4B75BA7AF52E1BAD00E1D338A9BA597193BFA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ KineMaster - Video Editor & Maker v7.6.16.34690.GP Mod by Shadow_Patcher [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:BE9775DA84966DA1A8115510479ADFA68064C4BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ American (   Читать дальше...   )Производство: США /
 magnet:?xt=urn:btih:39D62BEAD38C5CFDA846350BEC0A2BFA0DABD3C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ GeoGebra — мультиплатформенная программное об�
 ```bash
 magnet:?xt=urn:btih:B879700D2123B710EC9515DEE84BDC9A3FA86BF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:B879700D2123B710EC9515DEE84BDC9A3FA86BF6
 magnet:?xt=urn:btih:50A5CBE0AB7ACE01D3E09E5901E6390370EE6D7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:50A5CBE0AB7ACE01D3E09E5901E6390370EE6D7F
 ```bash
 magnet:?xt=urn:btih:AFFFA48A0414FAF488588F792CA6833270644140
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Midnight Smoke - Retronoir (2023) [FLAC|Lossless|Web-DL|tracks] <Retrowave, Dark
 magnet:?xt=urn:btih:7712B32574E0409374758C648FD7A1BD2B0C5CBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:7712B32574E0409374758C648FD7A1BD2B0C5CBD
 ```bash
 magnet:?xt=urn:btih:F0BF9D0268E639FF31DFBD4BB6942F46C2E32BDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:F0BF9D0268E639FF31DFBD4BB6942F46C2E32BDA
 magnet:?xt=urn:btih:1218575FBE468F9CF476FEA5A114FEB87EB297BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:1218575FBE468F9CF476FEA5A114FEB87EB297BB
 ```bash
 magnet:?xt=urn:btih:90C3CB20C69F737611D681D88CE2563FAB54AF5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ Dr. Jules' Cool Blues - The Iconoclast (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 magnet:?xt=urn:btih:9043E346F78F21974DAD472FBB71AC52DE0D9F35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ The Absence - метал-группа из Тампы, Флорида, США. �
 ```bash
 magnet:?xt=urn:btih:E5A5970BA7176B7D569D87FC164325C06F7E7146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ Fenson - Cattitude (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:179129128907B03D220EEFA9ED873DFD03067871
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ KT Tunstall - Eye To The Telescope (2004) [FLAC|Lossless|tracks + .cue] <Rock, P
 ```bash
 magnet:?xt=urn:btih:A9C20FC898F7142D0BA855F8124251631AF1DD9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ Sarah Jane Cion - Summer Night (2001) Naxos [FLAC|Lossless|tracks + .cue] <Post-
 magnet:?xt=urn:btih:FD48D262380C47552DAE31AB6EC86401416DFFE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ Aryoch - The Passage (2025) [MP3|320 Kbps] <Symphonic Black, Death Metal>
 ```bash
 magnet:?xt=urn:btih:A5C47EE636426BE5B663459BADBD24E0CF74F998
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ Chris Kramer and Paddy Boy Zimmermann - Tales Of Tampa (2025) [FLAC|Lossless|WEB
 magnet:?xt=urn:btih:4A1F9E0ED9CF8E597D52B06F7093CA1DF0088645
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ Corrupter - Gloria in Profundis (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 magnet:?xt=urn:btih:48AC25977C51CBBDD3701FBFB13189A8EC1AE992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ A4 Till We Meet Again(   Читать дальше...   )Жанр: Black Metal, 
 ```bash
 magnet:?xt=urn:btih:B54BBFD6CB7B8F15026F8B2670CC3C6F5B503AAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

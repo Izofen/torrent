@@ -22,6 +22,8 @@ George Gee Swing Orchestra - Winter Wonderland (2023) Self-Released [FLAC|Lossle
 magnet:?xt=urn:btih:E5188D509535CEE5AA4A1D82D56CAF192E7A7DDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:E5188D509535CEE5AA4A1D82D56CAF192E7A7DDE
 magnet:?xt=urn:btih:6D5BDC387F541EC71350065B18BED78445E2CAD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:6D5BDC387F541EC71350065B18BED78445E2CAD5
 ```bash
 magnet:?xt=urn:btih:086981B9A0559780E1858F0F1AAC315B9734A994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ Electus - Episode IV (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:E03231405BC8B8B33E88BE02F8E8467716D9B7E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ Christian Sands - Christmas Stories (2023) Mack Avenue Records [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:3C70F55D5EAFCE786996212F0CF38C4C3BFA95BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ Jollo - Ведьма (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:05CF381564B3B82087F1B4669DFE941E28B39D54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ magnet:?xt=urn:btih:05CF381564B3B82087F1B4669DFE941E28B39D54
 ```bash
 magnet:?xt=urn:btih:D9B89EC797BE23936B074768B65D5DF785561944
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +218,8 @@ magnet:?xt=urn:btih:D9B89EC797BE23936B074768B65D5DF785561944
 ```bash
 magnet:?xt=urn:btih:85ED90D4CBCBBFF9409E37541C0D47A6B20FA9A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +248,8 @@ Autumn's Child - Tellus Timeline (2024) [MP3|320 Kbps] <Melodic Hard Rock>
 magnet:?xt=urn:btih:F6562F3FC1046AF9B1DEE183B2013001A91F87C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +277,8 @@ VA - Калина красная 19. Песни, спетые сердцем (20
 magnet:?xt=urn:btih:80311BB3DE1D00807ABF6F58C2EC5207AD2B78C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +302,8 @@ magnet:?xt=urn:btih:80311BB3DE1D00807ABF6F58C2EC5207AD2B78C6
 ```bash
 magnet:?xt=urn:btih:F0D976256963ABC57A64DF40645A4F503214751C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +332,8 @@ magnet:?xt=urn:btih:F0D976256963ABC57A64DF40645A4F503214751C
 magnet:?xt=urn:btih:AD7BED58EBE7EA9492463B3024A0B6E3A5B37823
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +361,8 @@ CD-1
 magnet:?xt=urn:btih:CD831C604C21D44BF16E761B35C7E0CDF30D3E37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 ```bash
 magnet:?xt=urn:btih:D691F872AA5FBD607F96EBF4E26197916243FF4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +416,8 @@ VA - The Best Of Hit News (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House, 
 magnet:?xt=urn:btih:CD9EA26F6DA055DFEE275DF1B9D52B90CDB9F081
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +441,8 @@ FileZilla - популярный кроссплатформенный FTP кли
 ```bash
 magnet:?xt=urn:btih:DC8A62F513CF1384F553492D10A3668A434A48E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +471,8 @@ VA - The Best Of Aerodynamica Music Group 2023 [MP3|320 Kbps] <Uplifting Trance>
 magnet:?xt=urn:btih:5290A6141579EEC4DBDF4D2DDBA6CC1D6C186309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +499,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:746211532D02D53E06CBF2110D6C09FEF63D2DC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +524,8 @@ magnet:?xt=urn:btih:746211532D02D53E06CBF2110D6C09FEF63D2DC4
 ```bash
 magnet:?xt=urn:btih:1FF3059AB26A75F4A9551112C69E82E4EA88042C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +551,8 @@ magnet:?xt=urn:btih:1FF3059AB26A75F4A9551112C69E82E4EA88042C
 magnet:?xt=urn:btih:67B676E6D3C2E0512C5891A596942E1C6C7AD06C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +577,8 @@ Sandboxie - yтилита для контроля за работой разли
 magnet:?xt=urn:btih:529D957E4C9AC08FF653542DF13EA232C4C4F374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ magnet:?xt=urn:btih:529D957E4C9AC08FF653542DF13EA232C4C4F374
 ```bash
 magnet:?xt=urn:btih:A265F69C558E37F47612F93934F218D984110F79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +630,8 @@ Vatican Shadow - Destroy Chemical Weapons (2023) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:3BB446479436B5CB687371FEC8D5359262A8267D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +660,8 @@ magnet:?xt=urn:btih:3BB446479436B5CB687371FEC8D5359262A8267D
 magnet:?xt=urn:btih:47FD0889A3FCC5BAA566CD1C3549AEB14194BB25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +689,8 @@ TV Girl - French Exit (2014) Digital Album [FLAC|Lossless|WEB-DL|tracks] <Hypnot
 magnet:?xt=urn:btih:74F39CDCD88B7B2914DAB790BF8509C9E8FD1C3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ Serj Tankian - Invocations (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classical
 ```bash
 magnet:?xt=urn:btih:EC79343EA811D867AD7198F45AD690581B2DFA3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

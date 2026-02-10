@@ -22,6 +22,8 @@ Zed Mitchell - Ha, Ha, Ha, Ha (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:85B3EA7B1083C4727961BD63E90EC8E7D31C3559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:85B3EA7B1083C4727961BD63E90EC8E7D31C3559
 ```bash
 magnet:?xt=urn:btih:6645BA64634C941AF4440D9A72E45F9D7E759C1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Monrau - Тишина, сделай громче (2022) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:6C9E36E6ECF33A14CF99D131A2E7B7CF3333AE87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:6C9E36E6ECF33A14CF99D131A2E7B7CF3333AE87
 ```bash
 magnet:?xt=urn:btih:D9ED1BDF7879D00CAD328B6F5E571ABDC7A8E816
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:D9ED1BDF7879D00CAD328B6F5E571ABDC7A8E816
 magnet:?xt=urn:btih:3A283F5B974CD8247C8108F212840BD17A3A4C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:3A283F5B974CD8247C8108F212840BD17A3A4C60
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:3A283F5B974CD8247C8108F212840BD17A3A4C60
 ```bash
 magnet:?xt=urn:btih:BE939A1DE1CEFBAAAAF0A9DE020115FEDE60580E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:BE939A1DE1CEFBAAAAF0A9DE020115FEDE60580E
 magnet:?xt=urn:btih:329718A94AFC86C7A1873DE11E687DC1D467266C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ DesktopSnowOK 5.01 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1F065D683E53D9110EDF874D9EB14503FBE81D7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:1F065D683E53D9110EDF874D9EB14503FBE81D7A
 magnet:?xt=urn:btih:A1877F3686E4502804B654D96832B4A6E8A48175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:A1877F3686E4502804B654D96832B4A6E8A48175
 magnet:?xt=urn:btih:176F11B167BF993CAB71BB10136E500835E5380F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:176F11B167BF993CAB71BB10136E500835E5380F
 ```bash
 magnet:?xt=urn:btih:BA9E2A79FCAFC600E354AD0BAF33C76835019F4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ Te Deum - Reflexia (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Symphoni
 magnet:?xt=urn:btih:83653FC97905621D9858F9C48F21753E689D8D13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:83653FC97905621D9858F9C48F21753E689D8D13
 ```bash
 magnet:?xt=urn:btih:98E9CBF16E81FF820C9A54B7299211653B9CA23E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:98E9CBF16E81FF820C9A54B7299211653B9CA23E
 magnet:?xt=urn:btih:F1429BF22D36F3E4299D8DE9B17F47950B767918
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:F1429BF22D36F3E4299D8DE9B17F47950B767918
 ```bash
 magnet:?xt=urn:btih:177900CCBDB9D14A45DF4864A6E052669299454C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ Electric Jaguar Baby - Psychic Death Safari (2022) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:D95B56A0DB8A5E11018978D3CB69B6B404F602D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:D95B56A0DB8A5E11018978D3CB69B6B404F602D6
 ```bash
 magnet:?xt=urn:btih:D0CA20BC6F019BAFCDD20D7C8A433374AE309E50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:D0CA20BC6F019BAFCDD20D7C8A433374AE309E50
 ```bash
 magnet:?xt=urn:btih:319E4FCBF18028DFD11E37120429F00813515A86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:319E4FCBF18028DFD11E37120429F00813515A86
 magnet:?xt=urn:btih:25E5E33AC236A78D129B93E985F0E3325648E994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:25E5E33AC236A78D129B93E985F0E3325648E994
 ```bash
 magnet:?xt=urn:btih:DE816C1FE7CBD0AFF4C56D766AC09897FB4D137F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:DE816C1FE7CBD0AFF4C56D766AC09897FB4D137F
 magnet:?xt=urn:btih:31DED2F9C74AA37A365111CA3CE7CF21CC3A9273
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:31DED2F9C74AA37A365111CA3CE7CF21CC3A9273
 ```bash
 magnet:?xt=urn:btih:BC41D59C49D02D85E7D6931344F99EF9C4F373C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ TablePlus 3.11.0 [En]
 ```bash
 magnet:?xt=urn:btih:01D27660ED54E65855C1CF781F440E02CABC6369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ Pattern-Seeking Animals - Only Passing Through (2022) [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:E9AE51E399D68FBBDF89D828E37C0359BF18ECAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ magnet:?xt=urn:btih:E9AE51E399D68FBBDF89D828E37C0359BF18ECAC
 ```bash
 magnet:?xt=urn:btih:91294A2D35EE3D452A1C03C84A748237848A1C7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

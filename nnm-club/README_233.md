@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:890274D455FFA711E0DDB4A8CEA8B2B7102B9164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:890274D455FFA711E0DDB4A8CEA8B2B7102B9164
 ```bash
 magnet:?xt=urn:btih:E0D9CD144B2DA0FDD6307E322CA0069F0043AEB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:E0D9CD144B2DA0FDD6307E322CA0069F0043AEB5
 magnet:?xt=urn:btih:F4B2654E18F9A4FFB555DC467FD92DF7A4C535F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Bendy: Lone Wolf (2025) [Ru/Multi] (2.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:7A10F6BFED2ED166A9C997EB3B4B727C522DBDC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:7A10F6BFED2ED166A9C997EB3B4B727C522DBDC6
 magnet:?xt=urn:btih:F74D02D58942443C3ED1078F183466F160D6D400
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:F74D02D58942443C3ED1078F183466F160D6D400
 ```bash
 magnet:?xt=urn:btih:B3FC72CF61AE88B97CFC715BCFA08432D8A46715
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:B3FC72CF61AE88B97CFC715BCFA08432D8A46715
 magnet:?xt=urn:btih:D0CD157CD3C00D19D189C317D352988B948F196A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:D0CD157CD3C00D19D189C317D352988B948F196A
 ```bash
 magnet:?xt=urn:btih:89785E7A699EEF325C1140BC4CE9869ADB700FF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Smart AudioBook Player Pro v11.5.2 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:5029171A9ABCC1EC377FCEFFF2085A51644544EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:5029171A9ABCC1EC377FCEFFF2085A51644544EE
 ```bash
 magnet:?xt=urn:btih:04E1F23E3F6D7A5941365C8F68FFDF3F6EA99853
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:04E1F23E3F6D7A5941365C8F68FFDF3F6EA99853
 magnet:?xt=urn:btih:F88E4D236F514D11110D33AB4E887D53D6DE61F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:F88E4D236F514D11110D33AB4E887D53D6DE61F0
 ```bash
 magnet:?xt=urn:btih:D1FDAFFE8232E3983D1C2AEF8B2BD3F1B14F6E66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ GPS Локер создан для того чтоб не терять фикс�
 ```bash
 magnet:?xt=urn:btih:661AA5C28F72188B06A416EF721D01713D6935FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ DJ Moralez & Various Artists - Nrg Colabmix compilation  part 1 (2025) [MP3|320 
 magnet:?xt=urn:btih:138F0BF446E376D79B8C4856BAE49D08AA08D663
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:138F0BF446E376D79B8C4856BAE49D08AA08D663
 ```bash
 magnet:?xt=urn:btih:8E86E3BD1890D77589BDF6393CCCA326268A5DD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ Web Video Caster® позволяет смотреть на вашем ТВ ви
 magnet:?xt=urn:btih:4EC9DC7E1A2FD828C01CA9DF39DA967E4C719959
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:4B20EB1CD33B8160BFF624B016EBD42F98AF9634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ Yield! Fall of Rome (2025) [Ru/Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:1A159C1E5F6F662D16FD6278C0EE019357F4E8CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ GPS Compass Navigator v2.20.35 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:5E8D6B143331C6E35247D36B2F6EB6B4CF922DCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:85A063EC3C328728682F5A261F9AF2C9319E2D70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ DNS Changer для Android — это первый уровень интерне
 magnet:?xt=urn:btih:A8A028D3B213AB4944526F829A70656CFE98091C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:A8A028D3B213AB4944526F829A70656CFE98091C
 ```bash
 magnet:?xt=urn:btih:DC8CFDADDF759E0EEB66A0C9DC68CDDFE6272060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ Ghostrunner - эта жестокая игра-слэшер от первого 
 magnet:?xt=urn:btih:75D5E164D081261617B823F5C6B69E79E0C58826
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ GPS АнтиРадар v50.3 Mod by Slavatv5 [Ru]
 ```bash
 magnet:?xt=urn:btih:41E08F0180F2E60D1DFAE95D9F0A7B2E5EB7F895
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ HiBit Uninstaller - идеальное решение для удаления п
 magnet:?xt=urn:btih:3A678C1AB291C51F56E41236326CB99146141CD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Marvel’s Spider-Man Remastered (2022) [Ru/Multi] (3.618.0.0/dlc) Repack Wanter
 ```bash
 magnet:?xt=urn:btih:938C4DEDF74A68CAAF1DA39D4AEC1EAC2D14D81D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

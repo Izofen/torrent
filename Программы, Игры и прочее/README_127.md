@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B17AD12D8039104BB12D4D7A3B4FC8E9A189E9AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Headway: Краткие содержания из книг v1.6.2.0 [En]
 magnet:?xt=urn:btih:4C6CF08914EA49DD86973419EF4BB820127E55B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Smart File Manager (File Explorer) - это самое простое, мощн�
 ```bash
 magnet:?xt=urn:btih:BDD3C8387592A6B9DF76C1A8CE8C153018A70E0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ SD Card Test Pro v1.9.2 [Ru/En]
 magnet:?xt=urn:btih:9AE27A93021F6809453B49C085DE44C8A83CFF7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Ultimate Guitar Tuner v2.14.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2EECEC9553C3FAA06407D6F3D6C0FADA7236ACCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ EZ Folder Player - альтернативный музыкальный плее�
 magnet:?xt=urn:btih:5D25F766EF386B23334910BC78E05A8BBE6581F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:5D25F766EF386B23334910BC78E05A8BBE6581F6
 ```bash
 magnet:?xt=urn:btih:237A4E9FD2FD723522162A9B35C76FF6B871ECB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:237A4E9FD2FD723522162A9B35C76FF6B871ECB1
 magnet:?xt=urn:btih:0D046A1A58F1A8205661802F1EFB803E9A51112E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:0D046A1A58F1A8205661802F1EFB803E9A51112E
 ```bash
 magnet:?xt=urn:btih:941411EB671966DED93ADBA4FEB6BA8B0363C6D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:941411EB671966DED93ADBA4FEB6BA8B0363C6D7
 magnet:?xt=urn:btih:0B4C4F19B0B08D9C937340D612CF2817004215CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:0B4C4F19B0B08D9C937340D612CF2817004215CB
 ```bash
 magnet:?xt=urn:btih:6E074B09C1B7AD507FED0059D4C3D3EDE8ED8E83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ FunEasyLearn это лёгкий и весёлый новый способ вы�
 magnet:?xt=urn:btih:592CD55DE5AF23764F7DE14965D1CB099EE55361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:592CD55DE5AF23764F7DE14965D1CB099EE55361
 ```bash
 magnet:?xt=urn:btih:A8B09D6C1DF1E45D3A66D5129B47B551725C20A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:A8B09D6C1DF1E45D3A66D5129B47B551725C20A6
 magnet:?xt=urn:btih:115DC98F850ADFBC0B9E37536292A65401014DBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:115DC98F850ADFBC0B9E37536292A65401014DBA
 ```bash
 magnet:?xt=urn:btih:ED2A54C7B5804F2D4A9E6F2183C3E91C916B80B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:ED2A54C7B5804F2D4A9E6F2183C3E91C916B80B9
 magnet:?xt=urn:btih:BE0882ECEBFC79E8C6E69BBCC144263AD7C49C74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ BusyBox Pro 55 & BusyBox Free 50 [En-Ru]
 ```bash
 magnet:?xt=urn:btih:330567C867D6140D3C3802324CF15486DDF7E431
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ Root Cleaner 7.1.0 [Ru] - Чистилка
 ```bash
 magnet:?xt=urn:btih:D8C98FB5DEBDACB70FE2FBB21B09FBE2AB0C887A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:D8C98FB5DEBDACB70FE2FBB21B09FBE2AB0C887A
 magnet:?xt=urn:btih:1856C943209ED760867999CB1A343C4017F59D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:1856C943209ED760867999CB1A343C4017F59D5D
 ```bash
 magnet:?xt=urn:btih:BA6F96C96062D817FB2A611BD7F6BF2FFFF1C97B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ Google Play Market (Плей Маркет) – это приложение яв�
 magnet:?xt=urn:btih:83FF1614046E6CEE4F1DAB627A35035430A09232
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ Vocalizzo - Vocal Warm-up v2.0 [Ru/En]
 magnet:?xt=urn:btih:D9894C8BA4D53F70672615939BBE4B46E74046E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ Magisk Manager — продвинутый администратор прав с
 ```bash
 magnet:?xt=urn:btih:8E09C3ED9A9789457555CD1690421B4D597F9127
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ Android Assistant является одним из самых мощных и у
 magnet:?xt=urn:btih:8C7C182E6BFFA33FA64A0A8193524CFC12CA156F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ All-In-One Toolbox Pro 7.2.4 [Ru/Multi]
 magnet:?xt=urn:btih:8823C1E5D0119EE5599D23282B985ABB639725CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ myRouteMap 8.1.2 [En/Ru] - интерактивный планировщик м�
 ```bash
 magnet:?xt=urn:btih:837FEB79E949A8C3A197488E7FB26BF6B7BCBC77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

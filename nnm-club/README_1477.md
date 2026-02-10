@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C98B92518D633E0C116BB5012C917A3CE63749BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Luiz Carlos Diaz - Giselle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin Jaz
 magnet:?xt=urn:btih:9D06313024EA63380DE4DD308CDE92A7725833A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:9D06313024EA63380DE4DD308CDE92A7725833A0
 ```bash
 magnet:?xt=urn:btih:6CE2E39BE48653E6C2D68C4513D8CFE06D2A2EB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ PowerDirector – Video Editor v14.5.3 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:47DEF8951774D71D5247A2A8D8EBF15E6BC703E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:47DEF8951774D71D5247A2A8D8EBF15E6BC703E8
 magnet:?xt=urn:btih:224F568E41A362DF5F63E82E771CCAE6C6BD8B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ PhotoDirector - функциональный, но весьма простой �
 ```bash
 magnet:?xt=urn:btih:EE4D6B47AD98F91DE82EE22EC4C745243D24990A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Mark "Nessie" Nesmith - A Sinner's Prayer (2024) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:CF00881D3010822ED98BBF0D7C4C1903E0172051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ The Vision Bleak — немецкая готик-метал-группа, сфо
 ```bash
 magnet:?xt=urn:btih:0ECC95B18EEA06BB98A3D29DB14020C9E5E45C30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Leddra Chapman - Telling Truths (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:717CA997DC95B69A1B76E1A31C9EE21F4E1E0AEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ The Clarksdale Rats - Shadow Of The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:85D8A73AF48CF86F5E29CC08DC774D62BBAF03C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ Ragatudi Ensemble - Fanny Vibes (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz
 magnet:?xt=urn:btih:1909456FDAE493C80452A8B1798DDF193BF13ADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:1909456FDAE493C80452A8B1798DDF193BF13ADD
 ```bash
 magnet:?xt=urn:btih:C3C72807AB4A3374D0EAA67A61AABB7F6BD21835
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ Bob Joyce - Safely Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
 magnet:?xt=urn:btih:EB4CA7A7F3B67558964395B16D717D94330B9526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ Kyshona - Legacy (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
 ```bash
 magnet:?xt=urn:btih:027CE25D2BD73D64B51EF01734A30D0D701CEE5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ Charles Tolliver Big Band - Emperor March: Live At The Blue Note (2009) Half Not
 magnet:?xt=urn:btih:8F1DB03492588BDD1AAEF2BA899147903DC111A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:8F1DB03492588BDD1AAEF2BA899147903DC111A0
 ```bash
 magnet:?xt=urn:btih:B979CAC57F51FB1C97AFFEA5EA502C9C15D33358
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ Ricardo Andre Souza - Amoroso (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin 
 magnet:?xt=urn:btih:7FD1B86985063897A22140E3865F4CD6EDD7C03F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ Deadly Days - уникальная стратегическая игра в ан
 ```bash
 magnet:?xt=urn:btih:214E9A78A5CC1E016C1023D99744ED9255767E6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:214E9A78A5CC1E016C1023D99744ED9255767E6B
 magnet:?xt=urn:btih:1956E641212C59F07E1FA104224999E0D8849C10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ Uzumaki | Спираль [2023, TV, 4 из 4] WEBRip 1080p raw+rus+eng
 ```bash
 magnet:?xt=urn:btih:4DB5F9DA9DD407275AC667BC0D19645B6D97911E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:4DB5F9DA9DD407275AC667BC0D19645B6D97911E
 magnet:?xt=urn:btih:9A2B899934D986F6651CB64A2F0E51F1BFCDAFBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ magnet:?xt=urn:btih:9A2B899934D986F6651CB64A2F0E51F1BFCDAFBE
 ```bash
 magnet:?xt=urn:btih:2BD2DF94660EED10F39AD7A4452C63DAF5503DCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:2BD2DF94660EED10F39AD7A4452C63DAF5503DCA
 magnet:?xt=urn:btih:E4375394F38670C41F347F4693112D54426ED668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:E4375394F38670C41F347F4693112D54426ED668
 ```bash
 magnet:?xt=urn:btih:CFA24148757F2F8DA48956C90319B5E496C056B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ magnet:?xt=urn:btih:CFA24148757F2F8DA48956C90319B5E496C056B9
 magnet:?xt=urn:btih:275770602B8E346F12F524E3AC9380B36D6735AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ magnet:?xt=urn:btih:275770602B8E346F12F524E3AC9380B36D6735AD
 ```bash
 magnet:?xt=urn:btih:8514167AFD4A404DD284CE0E8719C7D0554C38E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

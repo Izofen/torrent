@@ -19,6 +19,8 @@ NG: Прорыв / Breakthrough (2015) SATRip (Серии 1-6 из 6)
 magnet:?xt=urn:btih:9C1CF5DE0288166692F00BB6ED90E4B7F6793DDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG: Кусать, жалить, убивать / Bite, Sting, Kill (2017) HDTVRi
 ```bash
 magnet:?xt=urn:btih:250A9D8B94C6CB55C2CA8992F96F7A794E03D0E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:250A9D8B94C6CB55C2CA8992F96F7A794E03D0E5
 magnet:?xt=urn:btih:28E52A5B1FB600616E5F3ADC8795157E95ECC740
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ BBC. Тайная история британских садов / The Secret Hi
 ```bash
 magnet:?xt=urn:btih:BC32AA1FBED871BDEEC37D4450907BDAC115FC70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ NG: Человекообразные обезьяны / Human Ape (2017) HDTV [H
 magnet:?xt=urn:btih:048F93714856C6417F677EA27F43D00467C7F0E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ BBC. Horizon: Проект "Гринглоу". В поисках контрол�
 ```bash
 magnet:?xt=urn:btih:635A00330EE1C172055BC862460EDCCBE5023C42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ BBC. Horizon: Закат Солнечной системы / The End of The Sola
 magnet:?xt=urn:btih:AB69EC36D7350C356292378D8E0F6B017AC425D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Animal Planet: Земля снежного человека. Затерянно�
 ```bash
 magnet:?xt=urn:btih:6C6F1159643ECE4924EE13D632A00FAC61490765
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Discovery. Легендарные места / Legendary Locations (2019) HDTVRi
 magnet:?xt=urn:btih:3AE8CB0BA2E31B7AE5C7D4F9EE6B310F92370F51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Animal Planet: Cинее царство (Лазурная страна). Щуп�
 ```bash
 magnet:?xt=urn:btih:9105A3D3DA43871B25D409BBFDA84C0298E8D532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ NGW: Африка. Убийцы с фантазией / Africa's Creative Killer
 magnet:?xt=urn:btih:95450ECB2B7A5913854C198B14D016BE057EE702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ NGW: Хищники Аляски. Поле боя гризли / Alaska's Deadli
 ```bash
 magnet:?xt=urn:btih:FAECCA00D46FF9F1439A66457BAF09417264D31B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ NGW: Южная Африка. Колыбель убийц / South Africa. Cradle
 magnet:?xt=urn:btih:95B7FC339C92799913EAA054CDCA71D5BCABA2B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ NGW: Человек против животного / Man V. animal (2017) HDTV 
 ```bash
 magnet:?xt=urn:btih:9D2BE0CAE2E5032A6E8D1D86E37D4DE07EE503BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:9D2BE0CAE2E5032A6E8D1D86E37D4DE07EE503BD
 magnet:?xt=urn:btih:A585541C10705610C9F2D6EABAD61FB385D31B6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ BBC. Как устроена природа / How Nature Works (Secrets of Our L
 magnet:?xt=urn:btih:90974953E988E6BE67C780D2EAF54CFBE23B9F70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Animal Planet: Живой или вымерший. Тайваньский дым
 ```bash
 magnet:?xt=urn:btih:53AE88AC8DD2D9CA878C85FB30508678E24E2D87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ NGW: Дикая Монголия: страна крайностей. Выжив�
 magnet:?xt=urn:btih:83B701D6B2562BFFE2F48D1C1766D7C0C8539DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Discovery: Почему? Вопросы мироздания. Существую
 ```bash
 magnet:?xt=urn:btih:542E56D5712984ADEB3AC9A19AF6FE42A6DD856B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ NGW: Заклятые враги. Кошки против собак / Ultimate 
 magnet:?xt=urn:btih:65884897B4375B67000C9120839E1A420C8F1A27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ NGW: Самые опасные убийцы. Ночные сталкеры / Wor
 ```bash
 magnet:?xt=urn:btih:FDF784BD15DE593BA07EBBCDEFB58C5510978CEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ NGW: Самые странные животные в мире. В толще м�
 magnet:?xt=urn:btih:D4DDEF8472B186D43E1AF4C6364B2061E5CB3534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ NGW: Укусить. Ужалить. Убить. Монстры в тени / Bi
 ```bash
 magnet:?xt=urn:btih:2ABA0E2EF3E785CA2F507B34D0BB6F6B295B557B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ NGW: Хищники Аляски. Царство китов-убийц / Alaska'
 magnet:?xt=urn:btih:B7CC9A59A051FFFCA69DFD52390FC5DC480AEA07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ NGW: Молниеносные акулы / Blitzkrieg sharks (2016) HDTV [H.264/
 magnet:?xt=urn:btih:7D8545364AF84ADD8187B52EC69A98DD205E2335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ NGW: Возвращение львов / Return of the lion (2016) HDTV [H.264/1
 ```bash
 magnet:?xt=urn:btih:8A69DE7806B91794D0489D4815FA35E8B10B10BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Windows 10 Pro 22H2 19045.2965 x64 by SanLex [Lightweight] [Ru/En] (2023.05.29)
 magnet:?xt=urn:btih:0A8CC5F7BBF413580FC0D40719B9022E55F7197A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:0A8CC5F7BBF413580FC0D40719B9022E55F7197A
 magnet:?xt=urn:btih:1AA41E4E952C7857D8BB434F907A2343C00084FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Scorn - атмосферный приключенческий хоррор от 
 ```bash
 magnet:?xt=urn:btih:B01766286EA7DD5039F4A3E28A711A643BB8429A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:B01766286EA7DD5039F4A3E28A711A643BB8429A
 magnet:?xt=urn:btih:7F4E0CA138CFC15A47451F0BA6103A45BD1A2909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:7F4E0CA138CFC15A47451F0BA6103A45BD1A2909
 ```bash
 magnet:?xt=urn:btih:72A2B7A7259C95F85BD64B9D3D1D884FAF77630B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:72A2B7A7259C95F85BD64B9D3D1D884FAF77630B
 magnet:?xt=urn:btih:F9EED9684EB1EE622D58E46DFB3CE9ED6C57C4C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:F9EED9684EB1EE622D58E46DFB3CE9ED6C57C4C2
 ```bash
 magnet:?xt=urn:btih:0DA06A56721D91E93C7E8EDCDC3085BD5CB4C004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:0DA06A56721D91E93C7E8EDCDC3085BD5CB4C004
 magnet:?xt=urn:btih:BDF86B3745A2C042B25FBCAB0129BD44E0C2D35D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:BDF86B3745A2C042B25FBCAB0129BD44E0C2D35D
 ```bash
 magnet:?xt=urn:btih:485EC19ACA301F6BC3F86D0AD6598198E3D3C3EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:485EC19ACA301F6BC3F86D0AD6598198E3D3C3EB
 magnet:?xt=urn:btih:009A58EAB6DFC852A9F366F24EA50F7F10E354C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:009A58EAB6DFC852A9F366F24EA50F7F10E354C2
 ```bash
 magnet:?xt=urn:btih:BB2C48FD82E9466A26977264A137D00944F2F376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Scanner позволяет быстро удалить (   Читать дал�
 magnet:?xt=urn:btih:C8B2BF6C36C72B4DBBE953072AAECF7F937459C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:C8B2BF6C36C72B4DBBE953072AAECF7F937459C2
 magnet:?xt=urn:btih:F79A971CEB10BB4D1ADF3C5D19606737D479CFFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:F79A971CEB10BB4D1ADF3C5D19606737D479CFFA
 magnet:?xt=urn:btih:AC6CC6CFBA44BE938D9B17C51831B0A28BC54DDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:AC6CC6CFBA44BE938D9B17C51831B0A28BC54DDB
 ```bash
 magnet:?xt=urn:btih:F1A1DA7EF2650167235E483A2DEBB962B1677D2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 magnet:?xt=urn:btih:F3F43494C4DB26ADEDA8E8CFA6BB8B8FD54838D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:F3F43494C4DB26ADEDA8E8CFA6BB8B8FD54838D9
 ```bash
 magnet:?xt=urn:btih:203708D5513D2042509502792FF16377C24DB082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ FITLAB, А.В. Михалевский | Бои без правил для диа
 magnet:?xt=urn:btih:486905934EA196CBEFB6311EC4FD4CE9B2CC2D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:486905934EA196CBEFB6311EC4FD4CE9B2CC2D72
 ```bash
 magnet:?xt=urn:btih:634114AC995882427959AA6780BAFFF9DBA3F3D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:634114AC995882427959AA6780BAFFF9DBA3F3D0
 magnet:?xt=urn:btih:7C790ABE7B13B0EE7345A96D3296D3EB34496540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:7C790ABE7B13B0EE7345A96D3296D3EB34496540
 ```bash
 magnet:?xt=urn:btih:52FB182DEFCE16BFB75152950F4C3098725D2E7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Matthew Dowst | Practical Automation with PowerShell (2023) [PDF][EN]
 magnet:?xt=urn:btih:15C01A611C7C278D591590862FD7F61F140FD031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:15C01A611C7C278D591590862FD7F61F140FD031
 ```bash
 magnet:?xt=urn:btih:112E34D24887F818F48415C6392641981531BB50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ John Sharp | Microsoft Visual C# Step by Step, 10th Edition (2022) [PDF][EN]
 magnet:?xt=urn:btih:16E89A55FC201EEB7E2B2E4F010CF84981E15F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:16E89A55FC201EEB7E2B2E4F010CF84981E15F32
 magnet:?xt=urn:btih:AD92DACD44367607665E34EE9EEC964DA044CD13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:AD92DACD44367607665E34EE9EEC964DA044CD13
 ```bash
 magnet:?xt=urn:btih:5CCB8611DDDFEA71FDC50232A7A6FF506C7749D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

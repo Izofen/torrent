@@ -1,27 +1,3 @@
-###  Публикация: 627495   (939928) от 08.03.2013
-
-Журнал | Радиолюбитель №10 [октябрь 2010] [DJVU]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Радиолюбитель» представляет разработки и радиосхемы от бытовой техники до профессиональной, справочники элементной радиоэлектронной базы, отечественные и импортные радиоустройства, радиосвязь на коротких, ультракоротких волнах и аппаратуру, спутниковое, обычное и кабельное ТВ, историю радиоэлектроники и радиолюбительства и др.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB5D467FEA48154DFC1EA51FB420B3A7291BF5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092390   (940037) от 11.01.2017
 
 Журнал | В мире науки №1-2 (январь-февраль 2017) [PDF]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:5CB5D467FEA48154DFC1EA51FB420B3A7291BF5E
 ```bash
 magnet:?xt=urn:btih:917B753BBA0529E0C09A213FEFC8F2C118106B2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:917B753BBA0529E0C09A213FEFC8F2C118106B2B
 magnet:?xt=urn:btih:48465A6F6A7EFF3ECC003325BE2B43C9CA88211A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:48465A6F6A7EFF3ECC003325BE2B43C9CA88211A
 ```bash
 magnet:?xt=urn:btih:BC5591B6E08D605A39D58589CA67D533292824C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:BC5591B6E08D605A39D58589CA67D533292824C4
 magnet:?xt=urn:btih:D4DF2F994235835F6F9CDC6DBDE888C218463274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:D4DF2F994235835F6F9CDC6DBDE888C218463274
 ```bash
 magnet:?xt=urn:btih:BE51F7F2198197DF85B3AD788770B90F2724E5F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:BE51F7F2198197DF85B3AD788770B90F2724E5F0
 magnet:?xt=urn:btih:7CFA5AE05DE9016B4A39EC71A670C4F681D1CE91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:7CFA5AE05DE9016B4A39EC71A670C4F681D1CE91
 ```bash
 magnet:?xt=urn:btih:0549F4124E9DE47D7E812C6A7047E75E3B19C807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:0549F4124E9DE47D7E812C6A7047E75E3B19C807
 magnet:?xt=urn:btih:23285ABD601D907EA228FF82BBF0D8CF00E4C9D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:23285ABD601D907EA228FF82BBF0D8CF00E4C9D7
 ```bash
 magnet:?xt=urn:btih:2CA6CB999F87D264166E509F92CB7AB0007AEE10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:2CA6CB999F87D264166E509F92CB7AB0007AEE10
 magnet:?xt=urn:btih:EDFBDDBE5E2791EB52F578851FC87D2A33E424A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:EDFBDDBE5E2791EB52F578851FC87D2A33E424A4
 ```bash
 magnet:?xt=urn:btih:BD964566F5F40E45BF77CBAB2597DF4DCEBD4377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:BD964566F5F40E45BF77CBAB2597DF4DCEBD4377
 magnet:?xt=urn:btih:4EFF5E99DE7A1F9AFCDA7E59080372214F7FB1F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:4EFF5E99DE7A1F9AFCDA7E59080372214F7FB1F4
 ```bash
 magnet:?xt=urn:btih:B70288FF06BF918A84D1F61891B8E6B4A0148611
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:B70288FF06BF918A84D1F61891B8E6B4A0148611
 magnet:?xt=urn:btih:DB3838B96D9B833DEFE91F614B80E8EFED80F9A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ magnet:?xt=urn:btih:DB3838B96D9B833DEFE91F614B80E8EFED80F9A5
 ```bash
 magnet:?xt=urn:btih:F1025F8951EE913CCD07C4548B33A83F87181740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:F1025F8951EE913CCD07C4548B33A83F87181740
 magnet:?xt=urn:btih:B16663E28A367A95B98AE11EE358D2A01EC90DEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ magnet:?xt=urn:btih:B16663E28A367A95B98AE11EE358D2A01EC90DEB
 ```bash
 magnet:?xt=urn:btih:FDB07DCB8782A0A2B96D0839763A8CC77E17B195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:FDB07DCB8782A0A2B96D0839763A8CC77E17B195
 magnet:?xt=urn:btih:9452F5C1622C659481B27D7C6619493740A272BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ magnet:?xt=urn:btih:9452F5C1622C659481B27D7C6619493740A272BF
 ```bash
 magnet:?xt=urn:btih:2E0F0C5AF6CB8F6E427A8B91E603B8746A3A2491
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ magnet:?xt=urn:btih:2E0F0C5AF6CB8F6E427A8B91E603B8746A3A2491
 magnet:?xt=urn:btih:10F54669A8C63C5866D474935F2D7647A1E6FBAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ magnet:?xt=urn:btih:10F54669A8C63C5866D474935F2D7647A1E6FBAD
 ```bash
 magnet:?xt=urn:btih:E77F7DC84A4564E76842ABDBD52065F35122FB7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ magnet:?xt=urn:btih:E77F7DC84A4564E76842ABDBD52065F35122FB7D
 magnet:?xt=urn:btih:5146B8430D6B8A9A41CBE4A2236FBBF4D71491D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ magnet:?xt=urn:btih:5146B8430D6B8A9A41CBE4A2236FBBF4D71491D7
 ```bash
 magnet:?xt=urn:btih:0219B873F082EE99A9675E9866C36798DAE129A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ magnet:?xt=urn:btih:0219B873F082EE99A9675E9866C36798DAE129A8
 magnet:?xt=urn:btih:ACBB6E4F8B55B1EFC8204592DC6E517A63E642C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ magnet:?xt=urn:btih:ACBB6E4F8B55B1EFC8204592DC6E517A63E642C2
 ```bash
 magnet:?xt=urn:btih:330F71E26CB308FE93914D92A6438334CA14FC68
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 621228   (964256) от 19.02.2013
+
+Журнал | Арсенал-Коллекция №2 [август 2012] [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Арсенал-Коллекция - ежемесячный военно-исторический журнал. Объем - 64 страницы (тираж - 600 экз.), разбитые примерно поровну на три блока - сухопутный, авиационный и морской.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C075DB2B9D9A568244543B1ADB785826DA9CA0C4
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

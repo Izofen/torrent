@@ -19,6 +19,8 @@ Permute - очень простой видео конвертер с миним�
 magnet:?xt=urn:btih:6B868860B504E1AF54E986BFFC1F92F0AAFB8C7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:6B868860B504E1AF54E986BFFC1F92F0AAFB8C7F
 ```bash
 magnet:?xt=urn:btih:28E65E10E04E84910D81EDEA119B11577672383D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ SnapMotion имеет два режима:
 magnet:?xt=urn:btih:29EFCF765EBE3D8601304C0E096E055C220A4AFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ ISO Workshop – небольшая программа для работы с о
 ```bash
 magnet:?xt=urn:btih:2EB745C18E00E0C42773CB1A0AAEADD4EA322D11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Windows-Defender (По умолчанию выключен. Добавлен п�
 magnet:?xt=urn:btih:C1B33C5BFB94FB1ADED87348D5367F8AE9282778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:C1B33C5BFB94FB1ADED87348D5367F8AE9282778
 magnet:?xt=urn:btih:2C21043855F42DC80804BCFABE73130CDCC36669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Inked Girls включает только фотосеты девушек.Фор
 ```bash
 magnet:?xt=urn:btih:6AADC781604DB8F8238440A110FF688FABC070F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:CC729B56A63EF64F5339A733CA53F9988689FEA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ NG. Суперсооружения Третьего рейха / Nazi megastruct
 magnet:?xt=urn:btih:4DFC1BC19266C1A72C346DE946E56CDFD0FE3219
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:4DFC1BC19266C1A72C346DE946E56CDFD0FE3219
 ```bash
 magnet:?xt=urn:btih:D7DB46295090158F5E6BB7CC9D7C6E20C1B91E0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ FxSound Pro - это новый и улучшенный звук, теперь �
 magnet:?xt=urn:btih:D3951F475F1ECE67C09232352AF7B95CF7CE426A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ GeoGebra — мультиплатформенная программное об�
 ```bash
 magnet:?xt=urn:btih:333B0F55ACEC23C88B0B86CA6023D5E5D713C3A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ Far Manager - консольный файловый менеджер для оп
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Far Manager - консольный файловый менеджер для оп
 ```bash
 magnet:?xt=urn:btih:7930B7568B2108A95810887CED7F4EE19B7D5ED8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Adobe Media Encoder 2020 - это программа кодирования, к�
 magnet:?xt=urn:btih:CCA20DB7C8A29CA7E98BC9497E1BDB9B9DFE14D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:BF605E224EC39EEC7847FF8C34719BACB6335657
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:BF605E224EC39EEC7847FF8C34719BACB6335657
 magnet:?xt=urn:btih:FAA9502BD337EB8E9868549F1CCE903630378992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ R-Studio Technician 8.17 Build 180955 RePack (& portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:2D238543967AAF5F7AA578173B3B421067241D69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:2D238543967AAF5F7AA578173B3B421067241D69
 ```bash
 magnet:?xt=urn:btih:AEC366BC7AA40FB9B0C1BB3764E751682ADA3F62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Naruto Shippuden: Ultimate Ninja Storm 3 Full Burst – расширенная �
 magnet:?xt=urn:btih:9D49ECC573BA38DF98B620F3584D61532D7FB5D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Advanced Installer - это мощное и простое в использов
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ Advanced Installer - это мощное и простое в использов
 magnet:?xt=urn:btih:5E92A4485D7772D3094263EBB1CDE2B71F407354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ Clonezilla Live (stable) 2.8.0-27 [i686, i686-pae, amd64] 3xCD
 magnet:?xt=urn:btih:4DC97C9FC812F41AEAF35CB445FDE5FB5D18E239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:4DC97C9FC812F41AEAF35CB445FDE5FB5D18E239
 ```bash
 magnet:?xt=urn:btih:4EDB661E860781614EDD44EE202361AE317ED9D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ RFRemix (Russian Fedora Remix) 17.1 [i386] (3xDVD + CD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ RFRemix (Russian Fedora Remix) 17.1 [i386] (3xDVD + CD)
 ```bash
 magnet:?xt=urn:btih:458E64EA071B7D2C081BBF2655BF62FB2FC28075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

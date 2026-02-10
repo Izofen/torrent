@@ -19,6 +19,8 @@ Firemin — представляет собой небольшую утилит�
 magnet:?xt=urn:btih:7623EA179C7D2CC9BAB31159051FB21EF768363A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ cFosSpeed - это сетевой драйвер, который привязы�
 ```bash
 magnet:?xt=urn:btih:E673AD50D23D656705AF0918691084FA34666131
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ MJ Prompt 0.3.0.0 [Ru]
 magnet:?xt=urn:btih:276D07EB6E77F480E9107F8650B1D85BAB021F58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ PureSync — программа для синхронизации данных �
 ```bash
 magnet:?xt=urn:btih:AD16AF3C7942B72E4240DD2F1FF7B4E698FC04FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ HashMyFiles 2.44 Portable [Ru/En]
 magnet:?xt=urn:btih:8C7096EC058FC82B472D3E0F1F1A1DB3FB5D954D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ LiveTcpUdpWatch — это инструмент для Windows, который �
 ```bash
 magnet:?xt=urn:btih:1EB9D21D25DB570D8B67141982469ECAF24E4823
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ OpenHashTab 3.0.4 [Multi/Ru]
 magnet:?xt=urn:btih:8E75416D9EC74DF73DC7D233404DC69C0F69CCBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ BackUp Maker – простая программа для создания ре�
 magnet:?xt=urn:btih:863FAC07BEF8DC47AA507FA3B9204AC4CACCA101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ AOMEI WinfrGUI - бесплатная программа для поиска и 
 ```bash
 magnet:?xt=urn:btih:2A670CD60EED142BEADA73FD45F91A3FE916508A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Hetman Uneraser Home / Office / Unlimited Edition 6.8 RePack (& Portable) by Try
 magnet:?xt=urn:btih:2EB2A5B5F5137B2F5EAC6498DA14154861D7B296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ fx-Calc 4.9.4.0 [En]
 ```bash
 magnet:?xt=urn:btih:8C643AD617D40B7B85DA8E4DAD370C3C15D81D20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Magic Uneraser Commercial / Office / Home / Unlimited Edition 6.8 RePack (& Port
 magnet:?xt=urn:btih:1A04F13B9F2BE23A226E57562DCBA6742A1BBFEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Wu10Man - бесплатная программа для отключения и
 ```bash
 magnet:?xt=urn:btih:523D305DF28F9F944DB5EE52F3027EF17E549DEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Task Manager DeLuxe - утилита для предоставления пол�
 ```bash
 magnet:?xt=urn:btih:5728D84D7CBBC27DF730F7B8704C61F955DA3B1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ NVCleanstall - портативная утилита от интернет-по�
 magnet:?xt=urn:btih:0A364A30AB854D77840ACBE34E26EBB36D34FD64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:A87367B32F9C1642C7C9DD3F062689D022055CE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Auslogics File Recovery - легкая и эффективная в исполь
 ```bash
 magnet:?xt=urn:btih:9CF577F84D2B2956132D09C8BA8C9D5DED052E89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ TaskSchedulerView - простенькая портативная (не треб
 magnet:?xt=urn:btih:FC498C6BD684895CAA00D74AEE6FD033B7B401B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ MultiHasher - это калькулятор хэша файлов, которы�
 ```bash
 magnet:?xt=urn:btih:303FF8344C9C6132192510367AF147543D7A3565
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ BurnAware - простая и в тоже время мощная програм
 magnet:?xt=urn:btih:D38B13A0E46E87C83A915BFF6D6B6261F469E9C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Driver Reviver – это приложение, которое проскани�
 ```bash
 magnet:?xt=urn:btih:B737FBE53EF245212913851A471A2A1E452D2579
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Dr. Folder 2.9.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:3E6E665C207A9B88FF7E04E9225A359583E28E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Revo Uninstaller Pro 5.1.7 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3CC293A328B2ED6CB57990CB7CF030C6FABA2BD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Distant Desktop - портативная утилита, которая позв
 magnet:?xt=urn:btih:6302D4684C55BF324144F26E024B67537ACC379D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ DVDFab StreamFab - это наиболее полное решение для с
 magnet:?xt=urn:btih:73A5614CDA4E4DB6E64F4B1B86E32D9E2F31A742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ CyberLink Screen Recorder 4 обеспечивает надежный захва
 ```bash
 magnet:?xt=urn:btih:95F094D6F7F616A86970EB6E6B5A94CC370F7955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

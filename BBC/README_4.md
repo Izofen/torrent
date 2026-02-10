@@ -19,6 +19,8 @@ BBC: Гении древнего мира / Genius Ancient World (2015) WEB-DL [
 magnet:?xt=urn:btih:3149C3ABBFD4A7BFEDED188FFBADCC2B418BA625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC: Гении современного мира / Genius Of The Modern World (
 ```bash
 magnet:?xt=urn:btih:57CC6C244C27DAB600A79EE13756D86FB4FAB662
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC: Доминик Монаган и дикие существа / Wild Things 
 magnet:?xt=urn:btih:81EF442ED815B3366B8F82B323FEF98DDA9243D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC Earth. 8 дней до Луны и обратно / 8 days to the Moon and b
 ```bash
 magnet:?xt=urn:btih:A8BFBE7F163C1FBBDF51C4B451BC86BB0C53676C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC: Всемирная история живописи / Sister Wendy's Story o
 magnet:?xt=urn:btih:06476C2F9F06F9C84F600FBA5DB95CEAB67E7387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ BBC: Horizon. Таинственные сигналы из космическо�
 magnet:?xt=urn:btih:CFD13B4F1D3E11FDD22F15211B9C1DC9C7D010C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ BBC. Секс и чувственность: искусство модерн / S
 ```bash
 magnet:?xt=urn:btih:D02BF79737F89E90A25A22F40C6B7DBF4493CE4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ BBC: Horizon. В поисках бессмертия / The Immortalist (2016) HD
 magnet:?xt=urn:btih:91A9C0BC2ABF46C386617717D80FD40B965EB96C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ BBC: Вивисекция. Как устроены насекомые / Insect D
 ```bash
 magnet:?xt=urn:btih:B4B22BDB67889DEF79ABE8055A341C89DB0BAA9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ BBC: Атлантида была здесь (Свидетельства Атла
 magnet:?xt=urn:btih:200F407716A12265821B1E8CE7AE7DC1578E385D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ BBC: Величайшие явления природы / Nature's Great Events 
 magnet:?xt=urn:btih:E48084B2857045ECB51617B83E286CC2BC3250B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ BBC: Великий рифт. Дикое сердце Африки / Great Rift:
 ```bash
 magnet:?xt=urn:btih:FEF9F7616CA3987A59FBA878DD40A9DBAF69864C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ BBC. Шедевры мировой архитектуры / Adventures in Archit
 magnet:?xt=urn:btih:F94D18F1231D1D39A2A2E8EDDEC6C9CA6B270270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ BBC: 80 Чудес света (Вокруг света за 80 сокровищ�
 magnet:?xt=urn:btih:00865FE0D88A68B5B69D3A6074F874A1C5B31937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ BBC: 80 Лучших садов мира / Around the World in 80 Gardens (2008)
 ```bash
 magnet:?xt=urn:btih:79FF2953BE043DD4B23FAFCD03598128DF64F85A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ BBC. Эттенборо и морской дракон / Attenborough and the Se
 magnet:?xt=urn:btih:FE8A4E159186A58C015F6822FAB7547A68CDBA35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ BBC. Экспедиция в Бирму / Expedition Burma (2011) BDRemux [H.264
 ```bash
 magnet:?xt=urn:btih:674283D968C4820CC83C9F5326469DB91263A1FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ BBC. Вена - столица империи / Vienna: Empire, Dynasty and Drea
 magnet:?xt=urn:btih:32B76D72DAB0953298D9D9D6A1C3855A641A354F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:32B76D72DAB0953298D9D9D6A1C3855A641A354F
 ```bash
 magnet:?xt=urn:btih:0DBC51DD5F22589519D6F0E70961576EC95EFF21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ BBC. Horizon. Как перестать тревожиться и стать с�
 magnet:?xt=urn:btih:2CC267C0C3E8ED04071F6DDAFBEB653F78B458B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ BBC horizon. Как видеоигры влияют на нашу жизнь? / 
 magnet:?xt=urn:btih:9EAA3D4F0D4008FA8CC53F61DB0D80E3B4ED4AEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ BBC. Горы - жизнь над облаками / Mountains: Life Above The C
 ```bash
 magnet:?xt=urn:btih:0129D22A5D03EEAB116A7F07AEC510D7CCA8E875
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ BBC Horizon. Какой длины верёвка? / How long is a piece of stri
 magnet:?xt=urn:btih:688BDF1D10CEA1FDC4532BD12A25891A01A65644
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ BBC: Шок и Трепет. История электричества. Эпох
 ```bash
 magnet:?xt=urn:btih:E9AB4FE71A9B6B67B8AE1E1AA530D1C4C33176AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ BBC. Horizon: Возможно ли создать звезду на Земле 
 magnet:?xt=urn:btih:F2F1D89AD1092A893E9B900A03C1BADFC3A57F2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ BBC: Шок и Трепет. История электричества. Откр
 ```bash
 magnet:?xt=urn:btih:028D5F0DBDE4DDF94DBBED6FF78BD29BF3D5B996
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

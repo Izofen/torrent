@@ -19,6 +19,8 @@ Skillbox | Веб-дизайн с нуля до PRO (2018) PCRec
 magnet:?xt=urn:btih:AB7F3A7F64FC59AF88325F18275D370133F35F4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Skillbox, Логомашина | Дизайнер логотипа и фирме
 magnet:?xt=urn:btih:1E6BFCDD67AFFC41637C4B2E42DA2BEC701AE1DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ ITVDN | C# Универсальные шаблоны (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:82EA8003D7896AC6C9622DC0E1AEB22B5695F5B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:82EA8003D7896AC6C9622DC0E1AEB22B5695F5B9
 magnet:?xt=urn:btih:7ACD74CA69D611038F6A2E95E7AA0FBBDC56FF3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Jan Urschel | Интерьерное освещение - Футуристичн
 ```bash
 magnet:?xt=urn:btih:A40B7EBBEA45605A619567B4E03A333A5A831010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ CG Cookie | Генеративное Моделирование и Дизайн 
 magnet:?xt=urn:btih:BD8F0C4C697658BD8810568E31373E0CC6A227E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Jan Urschel | Мегасити 01 - Моделирование и Рендери
 magnet:?xt=urn:btih:8EE893DAF09FE7F85B54A69AF824FA3DD512862B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Paul Levesque | WWE Power Series: Triple H (2014) DVDRip [H.264] [EN]
 ```bash
 magnet:?xt=urn:btih:7739250D1E5B5E16C0CC1798D17CBA52388722DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Skillbox | SMM-специалист с нуля (2020) PCRec
 magnet:?xt=urn:btih:CBFB8476743A504DC53104D4500FE8C1CBC174AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:CBFB8476743A504DC53104D4500FE8C1CBC174AE
 ```bash
 magnet:?xt=urn:btih:ADFAFDDB1AF26DF2FDF7F229017BB6A36633D64A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ Polygon Modeling Boot Camp Vol. 3: Shadow Helm - моделирование шл
 magnet:?xt=urn:btih:658B5C061F0DACCC8361AA652DF98A35C5F670AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:658B5C061F0DACCC8361AA652DF98A35C5F670AA
 magnet:?xt=urn:btih:962125A01F82C8C752D96E781F73E714889ADD8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:962125A01F82C8C752D96E781F73E714889ADD8A
 ```bash
 magnet:?xt=urn:btih:37A1FAA8EBBD28105814F815EBA19FC6F6096C1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ Blender Cloud | Моушн графика в Blender / Blender Motion Graphics (
 magnet:?xt=urn:btih:8F7F2128B8DA1A05229567696C4A57B366241885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ Blender Cloud | Создание игровых ассетов в Blender / Game
 ```bash
 magnet:?xt=urn:btih:C289F000D3A16FB5FCF579DB3F83FBD0B4C737CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ Geekbrains | Swift (2015) PCRec [H.264/720p]
 magnet:?xt=urn:btih:6CF0E0E8106B32DCA3908C17778CCA4904F551AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:6CF0E0E8106B32DCA3908C17778CCA4904F551AE
 ```bash
 magnet:?xt=urn:btih:87B043F10F66D1F3EF6D1979A4BA6A6B54B9A0F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ Cypress - очень современный фреймворк на основе
 ```bash
 magnet:?xt=urn:btih:CC2F35A900BC0AAC1AE8E7DCC78203D80FF80111
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ Uber Clone | Swift 5 | Firebase | No Storyboards | iOS 13
 magnet:?xt=urn:btih:91234B9AC488DDB308BFBD0482C17A26149E00A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ Udemy, Alex Horea | Программирование на Java с JavaFx: Соз
 magnet:?xt=urn:btih:BCB3921B2C4C033F6DCD063A7AD3C601BA692692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ Udemy, Mrawan Hussain | Создание маленького K-2SO робота
 ```bash
 magnet:?xt=urn:btih:D95A8DD044E96993055027003D5F91B5B58B0A25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ Udemy, Ryan Dhungel | React Redux Ecommerce - Освой MERN Stack Веб-Ра�
 magnet:?xt=urn:btih:1A36D59DDD12E08B8335633D0F4702609D68F44B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ Blender Cloud | Создание мультипликационного перс
 magnet:?xt=urn:btih:81B78803E3A755DA62DED482D7428FA22A3F6009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ Wingfox, Nikolay Naydenov | Dragon Rider - Cartoon 3D Character Creation Course 
 ```bash
 magnet:?xt=urn:btih:4CE6B010C453FAE0D7E85D3531C1EC6A99919230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ Blender Cloud | Создание видеоэффектов в Blender: Трек
 magnet:?xt=urn:btih:A9D13383AAC385978B4CF84458B746E103522B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ Hamaha | Тренинг "Готовимся к кризису" (2018) WEBRip [H.
 ```bash
 magnet:?xt=urn:btih:0A229A5E6A2B491736EEE74D8009DA5AC5A61F4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

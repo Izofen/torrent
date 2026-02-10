@@ -1,3 +1,32 @@
+###  Публикация: 1139476   (660005) от 02.06.2017
+
+VA - Blues Collection 9 (2017) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Los Lonely Boys - Heart Won't Tell A Lie  (03:49) 
+02. Rob Tognoni - Brave  (04:46) 
+03. Ryan McGarvey - Always & Forever  (03:57) 
+04. Selwyn Birchwood - Heavy Heart  (05:00) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 06:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB040F8BA8C905C63ACF4BE6EE80D4E8F1363CAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139417   (660106) от 02.06.2017
 
 VA - Новая Русская Дискотека Vol.8 (2017) [MP3|256-320 Kbps] <Pop, Dance>
@@ -21,6 +50,8 @@ VA - Новая Русская Дискотека Vol.8 (2017) [MP3|256-320 Kbps
 ```bash
 magnet:?xt=urn:btih:6E894EACE99CEF5AE34E23D11076F88FF6849B12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - 130 European Monster Chart (2017) [MP3|320 Kbps] <Pop, Dance, Club>
 magnet:?xt=urn:btih:5FE85E5EAC7E76D486E07602D2F920E24A44AE12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Я тебя очень жду. Душевный шансон (2015) [MP3|25
 ```bash
 magnet:?xt=urn:btih:9BC17A91BCC702D98B90920918BD81B438AB405A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +144,8 @@ VA - Super Bomb Dance 8 (2012) [MP3|320 кб/с]<Dance>
 magnet:?xt=urn:btih:DAB755DD7C3B07844F46C6BEFF7DEE6B5C13868F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +178,8 @@ VA - Летняя Авто Дискотека DFM 50+50 (2012) [MP3|256 кб/с]
 ```bash
 magnet:?xt=urn:btih:4ECFFD71ECFDC474951649CE2E05AA64054A4DED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +214,8 @@ VA - Esthetics Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
 magnet:?xt=urn:btih:CE56A5736461882CF55873937AD1F5E9A96F99A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +249,8 @@ VA - Sexy Trance #39 (2012) [MP3|320 кб/с]<Trance, Vocal Trance>
 magnet:?xt=urn:btih:31FE50751F8B25E031A23BABA4A685B2F5848B42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +277,8 @@ VA - Новинки С Разных Популярных MP3 Сайтов Vol.61
 ```bash
 magnet:?xt=urn:btih:12CA4BEAEDE9961173E65044F50CF8485B0033B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +307,8 @@ VA - 55 most slow Blues (Bonus) (2017) [MP3|320 Kbps] <Blues, Rock, Blues Rock>
 magnet:?xt=urn:btih:660123D9F03BD5E7CA03D76B8EC8B1E8EF10F4A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +335,8 @@ VA - Get a Rock! 2 (2022) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:E0D29728E095E0E0D57F13A015C0E1F1A118F611
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +365,8 @@ CD1:
 magnet:?xt=urn:btih:CC0B5A16CC2132824AA22D6654AF20994B06D848
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +393,8 @@ VA - Yin-Yang Deep House Music Vol.01 (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:2ABB15C5BDEAFEA1F9490FC777B5709D2AE929CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +423,8 @@ VA - Yin-Yang Deep House Music Vol.02 (2017) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:1133D38CE3E24867F3091779AB2F7257806541DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +451,8 @@ VA - The Land Of Romance (2017) [MP3|320 Kbps] <Pop, Rock Lyric>
 ```bash
 magnet:?xt=urn:btih:7526D3676A8E1CD4A4F76EE5E7A00D79A7401A84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +481,8 @@ VA - New Funky House 175 May (2017) [MP3|320 Kbps] <Nu Disco, Soulful, Funky, Cl
 magnet:?xt=urn:btih:26C735F850A6613AF2CD113501D5D9B189A1981C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +509,8 @@ VA - Trance Traveling 89 (Mixed by VNP) (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:61E627C89E652B506BA0514C3DE24C6129DDC5C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +539,8 @@ VA - Top 100: Radio Record (2015) [MP3|320 кб/с]<Dance, Club, Trance, House>
 magnet:?xt=urn:btih:7DF5DBC153C2EF17AA60024B15379E53F81D2E1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +567,8 @@ The Bee Gees - The Platinum Collection (2017) 2CD [MP3|320 Kbps] <Pop-Rock, Folk
 ```bash
 magnet:?xt=urn:btih:2EE60C2CC8DDDCD2EBEFCD567CA4A98F42779759
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +597,8 @@ VA - Summer Nostalgia: Cherry Disco 80s (2017) [MP3|320 Kbps] <Pop, Disco>
 magnet:?xt=urn:btih:C6B578504363B4A31544C72AF1B84461F42BB0D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +625,8 @@ Willie Dixon - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:F76431680895BB5643C71E0821C64826F6A0CD54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +655,8 @@ VA - Music News vol.174 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:72DDA2AA8054B0D2EAAF3BE6CBA96A3096C8F5D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +683,8 @@ Ernesto Cortazar - Compilation Part 1(2022) [MP3|320 Kbps] <Easy Listening, Inst
 ```bash
 magnet:?xt=urn:btih:8010430E56B74FBBD84B3C315BA4390D18086748
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +713,8 @@ Ernesto Cortazar - Compilation part 4 (2022) [MP3|320 Kbps] <Easy Listening, Ins
 magnet:?xt=urn:btih:61D6DF217E16DFDB25ADDB796D9BFF1BD3FB87E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +741,8 @@ Ernesto Cortazar - Compilation part 2 (2022) [MP3|320 Kbps] <Easy Listening, Ins
 ```bash
 magnet:?xt=urn:btih:B2AF151D6C85AB777C70B14A7A1B20C8C5881F94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -694,32 +771,7 @@ VA - EDM European Collection (2017) [MP3|232-320 Kbps] <Club, Dance, House>
 magnet:?xt=urn:btih:8C6F8D2191E255736A6F601F6BA7810F1F8D2DA8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138912   (662326) от 31.05.2017
-
-VA - Pacific Progressive Trance Vol. 3 (2017) [MP3|320 Kbps] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drym & Ltn Ft. Adara - Rescue Me (Ltn Extended Sunrise Remix)
-02. Royal Zeven - Glacier (Infinity State Remix)
-03. Martin Soundriver - Project X (Radio Edit)
-04. Tritonal - Hey MaMaMa (Club Mix)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 08 :12 :44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78109C2F98E371CE0E63552AE47AFC2DFE19B38B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

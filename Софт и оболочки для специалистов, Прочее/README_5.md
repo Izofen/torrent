@@ -20,6 +20,8 @@ Resource Tuner - это программа для просмотра, редак
 magnet:?xt=urn:btih:8CCC10105FA6CDD9F8E462AB7BDE6852DD835C7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VMware Workstation Player (ранее VMware Player) - виртуальная с
 magnet:?xt=urn:btih:16A3E43D3DBCA75C8B88CC7F30DE6F7010E4AA22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Realtek Ethernet Driver 1168.018 | 10.71 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:1A99CA105B05A78A7DE5507ADB7D152A463D6EF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Microsoft .NET 7.0.20 Runtime [Ru/En]
 magnet:?xt=urn:btih:21CB75B3F344F3AFD71AFB97835023646E52FF87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Microsoft Edge WebView2 Runtime 1.3.187.37 [Ru]
 magnet:?xt=urn:btih:A94263248BDBB6DC54D85051F002542E8A37FE84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Freeplane – создание ментальных карт в настояще
 magnet:?xt=urn:btih:8946C4FE16E926AE3F509FDC1C223AC6BB21B5E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Nox App Player 7.0.6.0007 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A55513E0E172CD4BE1DF076EA3BD746E1909F11F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ NonCompressibleFiles 4.71 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:4154157405069E8A14D20DB219BC44090BB5A259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ SysAdmin Software Portable v.0.6.5.0 by rezorustavi (Update 21.04.2024) [Ru] (а
 ```bash
 magnet:?xt=urn:btih:299174C5655C514D378BB8D42537B5BD881903D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Bizagi Modeler — это бесплатное программное обесп
 magnet:?xt=urn:btih:810CEB51DB64A82D2DE4E076D3509D24BF934F91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Java SE Development Kit - программное обеспечение необ
 ```bash
 magnet:?xt=urn:btih:0B45CD7816BB46CB3FD8D23309226B40DABBE384
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Java SE Development Kit - программное обеспечение необ
 magnet:?xt=urn:btih:FA4157059607305BAAC87CE5C835F7BB984249EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Java SE Development Kit - программное обеспечение необ
 ```bash
 magnet:?xt=urn:btih:59875E28136D8CD1C8EF66C0CD1C50D4F5ED5C5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ FPS Monitor отслеживает состояние компонентов в�
 magnet:?xt=urn:btih:D4338C606C9C95648A5A2686CDA30AC18DF87F8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Windows Images Date Selector (WIDS) - утилита для смены даты 
 ```bash
 magnet:?xt=urn:btih:BAFC663BEDC983FA50D122F38F09B7FDBB0C7543
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ CrossManager - это автономное программное обеспеч
 magnet:?xt=urn:btih:120ED9F5B3FA832ACE16D67FBD737BDF827F3D75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ InterBase - это мощная, не требующая администрир�
 ```bash
 magnet:?xt=urn:btih:9E9E01CEF219643A126779E7E3AE36622FFCD21B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ BricsCad – лидер среди альтернативных DWG САПР п�
 magnet:?xt=urn:btih:AFDCAEFA39CF2F89E514774889F03BA57A582CA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Hiren’s BootCD PE x64 v1.0.8 (5 March 2024) [En]
 ```bash
 magnet:?xt=urn:btih:0CF100FA2CB87BC5D99DF0FF5D9764911172BA17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ CLC Genomics Workbench — это комплексный аналитическ�
 magnet:?xt=urn:btih:0F0CE74AC32277E2F20D4CC354B22F1F8A033632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ Text Editor Pro 32.1.1 + Portable + Bonus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BD9A5C88267E9F7873E9AE4D81F1F205E9F32CBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ SIMATIC HMI - это широкий спектр аппаратуры и про�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ SHA-1: 95ece64d22f502e7f15da02929ef70366980d3c2Название программ
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ STEP 7 - это базовый пакет программ, включающий
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ Oracle Database 11g R2 обеспечивает эффективное, наде
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +696,8 @@ Borland InterBase 7.5 - высокопроизводительный, эконо
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

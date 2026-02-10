@@ -22,6 +22,8 @@ VA - 20s Finest Pop (2023) [OGG Vorbis|480 Kbps] <Pop>
 magnet:?xt=urn:btih:9EC5570129D37181F25D2761F39E243735757E56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Best Of Disco Balls Records 2022, Vol. 3 (2023) [MP3|320 Kbps] <Disco, Nu-D
 ```bash
 magnet:?xt=urn:btih:785008F861F3F548D547417EAA349B489454DE68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:785008F861F3F548D547417EAA349B489454DE68
 magnet:?xt=urn:btih:9F9AD0A7B30B4E3728124A0E5BCCDAA3A18F6751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - EFFECTIVE COVERS, Vol. 4 (2023) [MP3|320 Kbps] <Eurodance, Technopop>
 ```bash
 magnet:?xt=urn:btih:DC94B9575DC7DDAD7198376B7A1C8BF289F82CEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:DC94B9575DC7DDAD7198376B7A1C8BF289F82CEF
 magnet:?xt=urn:btih:E9C450AAF3265F3E4EDBEF47ACE1084FD8656BAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Lily Allen - West End Girl (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock,
 ```bash
 magnet:?xt=urn:btih:0F55FF2074A3026E439175669B4DA5B32FC7D430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - 90s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:C0F20E005ABFFD0B6D9A5C0E0DBD1DE541B40B9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - 80s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:E07D45672BD6CC73C4D1865E2AC7E142BE80D7BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:E07D45672BD6CC73C4D1865E2AC7E142BE80D7BD
 magnet:?xt=urn:btih:67B110B2D13B9970C60C05B25C80BCF7D7E19C29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - 00s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:62AC1E791B143414FFD888B3E5638127DB9F9127
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +314,8 @@ magnet:?xt=urn:btih:62AC1E791B143414FFD888B3E5638127DB9F9127
 magnet:?xt=urn:btih:5FE74C3EF5FC79D5090373E3C33939C4FE12A9AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +342,8 @@ VA - 70s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:ECCAEAE156F971E95586DADEB2B9410B21A7F48B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +372,8 @@ CD1:
 magnet:?xt=urn:btih:9679A37459452FA883F08E3F35EEF3DA940A6B9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +400,8 @@ Kristian Torgalsen - 2 Albums (2023-2025) [FLAC 24/44.1, FLAC 24/96|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:3414CDB0D79E5DFC88426208B4A141C15EC9B121
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +436,8 @@ CD1 (Best)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +465,8 @@ VA - 70s Relaxing Pop (2025) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:2C7709954BA90E5CEA3E5560CF4C81188F6E03E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +493,8 @@ VA - The Sound of the 60s (2025) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:6F77B39667BE72C90EF00F88C5D631D694CDF789
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +529,8 @@ magnet:?xt=urn:btih:6F77B39667BE72C90EF00F88C5D631D694CDF789
 magnet:?xt=urn:btih:1770381C9E9934FD5C07104EE6058489473195AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +557,8 @@ Marc Fruttero - Eagles (2025) Limited Edition [FLAC|Lossless|tracks] <Italo-Disc
 ```bash
 magnet:?xt=urn:btih:1499B1E98BB62C8107D549BE54CF3AD52184F70E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +587,8 @@ Backstreet Boys - A Very Backstreet Christmas (Deluxe Edition) (2022)(2025) [FLA
 magnet:?xt=urn:btih:7E692AA2D7A5B9DE92B09B24620EC649724FF469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +616,8 @@ Elton John - Japanese Collection (11 CD Original Mastering) (1988 - 2006) [FLAC|
 magnet:?xt=urn:btih:FD0BBFB36BB2725256E9CC079CCC3DEFE82FC991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +641,8 @@ magnet:?xt=urn:btih:FD0BBFB36BB2725256E9CC079CCC3DEFE82FC991
 ```bash
 magnet:?xt=urn:btih:CA0B51134091F742FF66382604FC2B3ADE8DB728
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +670,8 @@ Amanda Lear - LOOKING BACK (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:3D142F4BE2FCEC8D132BF733356AB4A0F9224902
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +706,8 @@ VA - 80 Golden Hits ( BoxSet 5CD ) (1993) [MP3|320kbps]<Pop>
 magnet:?xt=urn:btih:68EFF23FC887651995FD4738061BBAC775FCD914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +735,8 @@ VA - 70s - 111 Original Hits (2009) 6 CD [OGG Vorbis|480 Kbps] <Rock, Pop, Folk,
 magnet:?xt=urn:btih:41D5BABA8831A6A38A32FC10C5D972F2A0035C55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -713,6 +763,8 @@ Harari - 3 Albums (1979-1981) LP [MP3|320 Kbps] <Afrobeat, Funk, Disco>
 ```bash
 magnet:?xt=urn:btih:FCBC771144280970661DFD1F8B2BF41ADC91EDF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

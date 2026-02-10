@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:3D86E496D188F8F6F04BD1F4D6690E2BB3DC7916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 ```bash
 magnet:?xt=urn:btih:015C213B37F9F74A5A138BFF5A7DE913BC21F197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:015C213B37F9F74A5A138BFF5A7DE913BC21F197
 magnet:?xt=urn:btih:47C916D972E8B010D428899CA4E8B57C0B7E7DFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:47C916D972E8B010D428899CA4E8B57C0B7E7DFF
 ```bash
 magnet:?xt=urn:btih:106369F28B51FE39E0AA49FB15D704D1CE35B4C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:106369F28B51FE39E0AA49FB15D704D1CE35B4C6
 magnet:?xt=urn:btih:A13DAFD1F4B5B080F92C7775D967F17D994D253A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:A13DAFD1F4B5B080F92C7775D967F17D994D253A
 ```bash
 magnet:?xt=urn:btih:A74D82AD983D8609EAC1DB26985F3E1A9874A71B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:A74D82AD983D8609EAC1DB26985F3E1A9874A71B
 magnet:?xt=urn:btih:36F3A1B4D559AC59CBED0CB78976B93984135223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:36F3A1B4D559AC59CBED0CB78976B93984135223
 ```bash
 magnet:?xt=urn:btih:42A360B93CB9F7BDD3A6EBEA576A5046FB852A44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Petra and the Paper Hearts - Queens Of The Blues (2025) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:CFCC90A664D05954DF407E31421ADB6D97309802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:CFCC90A664D05954DF407E31421ADB6D97309802
 ```bash
 magnet:?xt=urn:btih:1838072BB3557E127FB2C1BF85660A70B2AB08F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Etern
 magnet:?xt=urn:btih:49036718C3B3FA76EFF30150C1ABAE2DC741C70F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:49036718C3B3FA76EFF30150C1ABAE2DC741C70F
 ```bash
 magnet:?xt=urn:btih:86EACD83452D6E7CF3D6FD9F67D33BE17C4897E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:86EACD83452D6E7CF3D6FD9F67D33BE17C4897E5
 magnet:?xt=urn:btih:3E2F7C53CF53AFA813C27229A9FC51DFE5FA40B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.5/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:09FC9848018BD0F5898BBCB3CEE3512D4F2672A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:09FC9848018BD0F5898BBCB3CEE3512D4F2672A7
 magnet:?xt=urn:btih:B957A12A3F44A3C47B92FEA85E8A9762A7A789F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:B957A12A3F44A3C47B92FEA85E8A9762A7A789F1
 ```bash
 magnet:?xt=urn:btih:F71E45C23749A5F4AC5931B8718E2A7966A01DF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:F71E45C23749A5F4AC5931B8718E2A7966A01DF5
 magnet:?xt=urn:btih:23C0646F5220D308EC54722A8FD96ADD582EB0A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:23C0646F5220D308EC54722A8FD96ADD582EB0A0
 ```bash
 magnet:?xt=urn:btih:3E0FE37B7872A7A20EA6F691924DAC2865379574
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:3E0FE37B7872A7A20EA6F691924DAC2865379574
 magnet:?xt=urn:btih:14ADBE35A793C419F47243F8F40D8BDD09EE8C39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:14ADBE35A793C419F47243F8F40D8BDD09EE8C39
 ```bash
 magnet:?xt=urn:btih:AFBC57B9555AC6F798AA0BFB716A565753BFF854
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Wang Yu (忘语) | Путешествие к бессмертию [9] (2008, 201
 magnet:?xt=urn:btih:E6989B622BC8A487DD247BA441834FA181D6F12A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:E6989B622BC8A487DD247BA441834FA181D6F12A
 ```bash
 magnet:?xt=urn:btih:529C9646803712579104454E35AC0F5FF8569619
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +608,8 @@ Paul McCartney (Пол Маккартни) - Снова в СССР (1989) [FLAC
 magnet:?xt=urn:btih:B50CC9DA2A3D60A720C56D60F0BA3E89F9EAF1B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:B50CC9DA2A3D60A720C56D60F0BA3E89F9EAF1B4
 magnet:?xt=urn:btih:037B3B4DB234DD61549BC14F1836E899B8A616D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ VRadio - Online Radio App v2.8.5 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:269A1570ED79030F04AE26FC6B24CAA747100DA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:269A1570ED79030F04AE26FC6B24CAA747100DA1
 ```bash
 magnet:?xt=urn:btih:E5F67158979EB6E856BBA8F3068A38CBEEBD0AAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

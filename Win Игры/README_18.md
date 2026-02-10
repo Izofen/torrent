@@ -19,6 +19,8 @@ Residual – это платформер с элементами симулят�
 magnet:?xt=urn:btih:DC33154CE0BDC1416B76D305FCB4D6D33618D66C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Legends of Amberland: The Forgotten Crown - ролевая партийная и
 ```bash
 magnet:?xt=urn:btih:EA533B6512BA7E985A9191F94AE749F01A81BA51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3689997/1.0.1.3725653 Update 1) R
 magnet:?xt=urn:btih:51487E9E36873F1E78A638B91A50ADE3D99CBB75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:51487E9E36873F1E78A638B91A50ADE3D99CBB75
 ```bash
 magnet:?xt=urn:btih:C3326AE6F57C5BEFB5B450F8E0B1699FF520AB74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Knights of the Chalice 2 - это 2D-ролевая игра с пошаговы
 magnet:?xt=urn:btih:9C85BBC5F9BB069E0445FC3E2660A84F32B553BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Workers & Resources: Soviet Republic / Workers and Resources: Soviet Republic (2
 ```bash
 magnet:?xt=urn:btih:9E1AE5917953F43E84EDAABF7F1BA0D3B6096A43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Caves of Lore - это мрачная тактическая ролевая иг
 magnet:?xt=urn:btih:7FD8C368173F982E09C5E552DEF5F3E45AB25A88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Kynseed - это ролевая игра в приключенческом жа�
 ```bash
 magnet:?xt=urn:btih:8C05DD5C415CD4610BB45922003E8639B3562198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Last of Us Part I – игра для ПК от 3-го лица, предс�
 magnet:?xt=urn:btih:64A629C08E0304299718AF68489F7ADBEDB93233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Legends of Amberland 2: The Song of Trees - это увлекательная Р
 ```bash
 magnet:?xt=urn:btih:D3C658B4F235400317E7205EF48353DFF99315E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Elden Ring – фэнтезийное экшен-РПГ приключение, 
 magnet:?xt=urn:btih:A2FBD093AAEFDE70BAED10DB773C583C2D41AF37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Dragon is Dead - хардкорный 2D экшен-платформер с эл
 ```bash
 magnet:?xt=urn:btih:5D704D3BDDCB604B1848F2EB301622ABD9436B72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Telepath Tactics Liberated позволяет использовать стра�
 magnet:?xt=urn:btih:840C76528CBFF7D011DCB6D212DBE179BF758BE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Skyrim + West of Loathing + Supraland. RPG-lite приключение с нам
 ```bash
 magnet:?xt=urn:btih:CD5E835B70C0A217978A49F623B4E5894E80FFBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Mystery Trackers 21: The Shrouded Village (2025) [En] (1.0) Unofficial [Collecto
 magnet:?xt=urn:btih:76DA7BDC3EB76BDA00329C92CF69B80732D8F274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Get To Work (2024) [Multi] (1.1.1.6) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:61F6D87A750BD1DF171FB8F5B8DA6C1FC1A25F81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Fly Corp (2021) [Ru/Multi] (1.8.6/dlc) License GOG
 magnet:?xt=urn:btih:404EF2D2970A8F634F92E0640085723F6B6BC4F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Get To Work (2024) [Multi] (1.1.1.6) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:0971983D78BE3556FABAA8873DD97D378A09370F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Countryballs: Power Protocol (2025) [Ru/Multi] (build 19413235) Repack seleZen
 magnet:?xt=urn:btih:A0DD4CC46D6F6320D751BD669B201B4135513B2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Far Cry 4 (2014) [Ru/Multi] (1.12/dlc) Repack Wanterlude [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:AA0C285C77B2F41809A35FBBDBC15E30F2313CD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.07a/dlc) Scene Rune
 magnet:?xt=urn:btih:3ED36EE98197ECCEEAC8F59716E13491575CAE25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Lords of the Fallen представляет совершенно новое э�
 ```bash
 magnet:?xt=urn:btih:56600C0966FD6640EE7791713533E76847FECDB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Shantae Advance Risky Revolution (2025) [Multi] (1.0.2/dlc) Repack Let'sРlay [D
 magnet:?xt=urn:btih:A733CC6613DE2AE186C76CE3911FB86B31B76B5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack Wanterlude [Comp
 ```bash
 magnet:?xt=urn:btih:CC30DA458A1F0E282548B5F15DD685808535984F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ RimWorld (2018) [Ru/Multi] (1.6.4566/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:BCE208C7DC110CEEA9C7D6E5218DEF0D283AA92E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Haste: Broken Worlds — игра от третьего лица, в котор�
 ```bash
 magnet:?xt=urn:btih:5D2E024F13FA7C4F09B1AFAF549EC6D81D4B2E51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

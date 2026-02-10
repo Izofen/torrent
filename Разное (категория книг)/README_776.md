@@ -1,3 +1,29 @@
+###  Публикация: 715207   (1022074) от 08.04.2021
+
+Сергиев Посад. Свято-Троицкая Сергиева Лавра | Душеполезный Собеседникъ. Издание Афонского Русского Пантелеймонова Монастыря. 1888 г. (2013) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Душеполезный Собеседникъ. Издание Афонского Русского Пантелеймонова Монастыря. 1888 г. Периодическое издание.Жанр: ПравославиеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E03494BCA41BC858904641F32E5C2F0A30D5E54E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460929   (1022201) от 07.04.2021
 
 Д. Ермакович | Двойная книга опасностей. Уроки выживания (2021) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:9BDFD4B692CF09C4885E9244EFADB21FA439BF06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:9BDFD4B692CF09C4885E9244EFADB21FA439BF06
 ```bash
 magnet:?xt=urn:btih:369A21D895316081FDDB38EC027F2AB8AE1F1DAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:369A21D895316081FDDB38EC027F2AB8AE1F1DAB
 magnet:?xt=urn:btih:26B952FDCA0EFBD7148AFB113A5C76ACF782C130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:26B952FDCA0EFBD7148AFB113A5C76ACF782C130
 ```bash
 magnet:?xt=urn:btih:E4F86AD2921250368BBC808A84E51C66419AD01A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:E4F86AD2921250368BBC808A84E51C66419AD01A
 magnet:?xt=urn:btih:74142FB0FA1B673701F35B589D68AC36CC932311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +181,8 @@ magnet:?xt=urn:btih:74142FB0FA1B673701F35B589D68AC36CC932311
 magnet:?xt=urn:btih:9A8B3B9948598F97C4855F52E800C740A13F7B8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:9A8B3B9948598F97C4855F52E800C740A13F7B8E
 ```bash
 magnet:?xt=urn:btih:7690840765733F9A3196120DC01AFE04706E7C2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:7690840765733F9A3196120DC01AFE04706E7C2B
 magnet:?xt=urn:btih:EA3A5E81F443D0C6818C1E2FDC56A9E540FCB35B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ Into TA 1st edition (May 8, 2018) - это всеобъемлющий учебн
 ```bash
 magnet:?xt=urn:btih:15ABE2E72D1668D766FC91C331F6D30E44D2A4C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:15ABE2E72D1668D766FC91C331F6D30E44D2A4C8
 magnet:?xt=urn:btih:070563FF03ADF2BAAC27A11A7244988A833E63F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:070563FF03ADF2BAAC27A11A7244988A833E63F6
 magnet:?xt=urn:btih:8328EF573836619296C23ABFFDAAA480F14BD27C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:8328EF573836619296C23ABFFDAAA480F14BD27C
 ```bash
 magnet:?xt=urn:btih:55D5225E2CB3ADBD64D8E07852AD437E18C0F68C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:55D5225E2CB3ADBD64D8E07852AD437E18C0F68C
 magnet:?xt=urn:btih:39BDAA02322BA39698AAD61AD60489D2D65E6F24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +393,8 @@ magnet:?xt=urn:btih:39BDAA02322BA39698AAD61AD60489D2D65E6F24
 magnet:?xt=urn:btih:1CF2B72FE983952C5682E99C069491BE7FEC13E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:1CF2B72FE983952C5682E99C069491BE7FEC13E4
 ```bash
 magnet:?xt=urn:btih:0D1E5CA2A10B67636782140BA4091B2200FAF96C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:0D1E5CA2A10B67636782140BA4091B2200FAF96C
 magnet:?xt=urn:btih:914083E0C14F31D2E951B5292AE9F694B04FE6C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:914083E0C14F31D2E951B5292AE9F694B04FE6C5
 ```bash
 magnet:?xt=urn:btih:83B313B146735C6C8740CC9EBE11CABCE1E94245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:83B313B146735C6C8740CC9EBE11CABCE1E94245
 magnet:?xt=urn:btih:06B8E9934C70A7CFFBD6B8D9CF2CFB6A3847DB4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:06B8E9934C70A7CFFBD6B8D9CF2CFB6A3847DB4A
 ```bash
 magnet:?xt=urn:btih:AC9BAB438CF711585035BDB8CBFDF5950AF4C132
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:AC9BAB438CF711585035BDB8CBFDF5950AF4C132
 magnet:?xt=urn:btih:C92780A86CDC28E98064743AC109F1D30940E913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:C92780A86CDC28E98064743AC109F1D30940E913
 magnet:?xt=urn:btih:99C10F19E8A6A150411C7FD29AA031DE50162423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:99C10F19E8A6A150411C7FD29AA031DE50162423
 ```bash
 magnet:?xt=urn:btih:893B8E8D7CDA5734BBF54CA41281FADB9CD0A3CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:893B8E8D7CDA5734BBF54CA41281FADB9CD0A3CC
 magnet:?xt=urn:btih:FC825D74D76F63C08DCD0556D05E4BFFCF3D15F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:FC825D74D76F63C08DCD0556D05E4BFFCF3D15F1
 ```bash
 magnet:?xt=urn:btih:F92CF8BF9AEF6BA111E1F2DC6C8333BD35E93E31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,32 +686,7 @@ magnet:?xt=urn:btih:F92CF8BF9AEF6BA111E1F2DC6C8333BD35E93E31
 magnet:?xt=urn:btih:19FB9C42D83B7C6729E83B42A253D0F68D0357B2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458506   (1023796) от 29.03.2021
-
-Джаред Даймонд | Кризис (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Что такое кризис?
-Почему одни страны успешно преодолевают его последствия, а другие нет?
-И каков механизм преодоления?
-Как шесть стран – Япония, Финляндия, Чили, Индонезия, Германия и Австралия – оказались в кризисном положении и как они нашли из него выход?(   Читать дальше...   )Жанр: История, Политология, ПублицистикаПеревод: В. ЖелниновФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C67FAFB8663196A176E1EFCF493BE71DAA30F5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 754847   (931827) от 08.02.2014
+
+Е.Н. Цимбаева | Грибоедов (2011) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Это первая в России научно-художественная биография гениального автора «Горя от ума» Александра Сергеевича Грибоедова, блестящего музыканта, дипломата, записного острослова и любимца женщин. Книга, написанная на основе архивных документов, представляет собой достоверное описание жизни героя на широком фоне быта и нравов его эпохи, а также общественно-политической обстановки в России и на международной арене в первой трети XIX века.Жанр: Биографии и мемуарыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77DD747A2F26D3EC52A0D50B08B6A39F378FBB2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 754868   (931835) от 08.02.2014
 
 А.К. Бабореко | Бунин (2004) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:61FA70652F7730CDFF43305C3A2B48BEC1E2065E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:61FA70652F7730CDFF43305C3A2B48BEC1E2065E
 magnet:?xt=urn:btih:42F0D1CE7587FF8E69E21DC5BECA512716F7CAEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:42F0D1CE7587FF8E69E21DC5BECA512716F7CAEF
 ```bash
 magnet:?xt=urn:btih:325E380E6F2390ABF6AC76268460F3DE7CE6D549
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:325E380E6F2390ABF6AC76268460F3DE7CE6D549
 magnet:?xt=urn:btih:87B1A085804F19A7E1FCA9ED6E3EA9429A692DB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:87B1A085804F19A7E1FCA9ED6E3EA9429A692DB3
 magnet:?xt=urn:btih:8A17C9BBBA8CE6CB390BA3B28AC87A5ED1387309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:8A17C9BBBA8CE6CB390BA3B28AC87A5ED1387309
 ```bash
 magnet:?xt=urn:btih:9D0E013BEF7131CC4516CC20583C488DBC151D90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:9D0E013BEF7131CC4516CC20583C488DBC151D90
 magnet:?xt=urn:btih:78A47B866BA4DA9B2B79A147EBBAB3862DF9E77C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:78A47B866BA4DA9B2B79A147EBBAB3862DF9E77C
 magnet:?xt=urn:btih:1270443EF800DAEF2D7458D4D32E05220F59B625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:1270443EF800DAEF2D7458D4D32E05220F59B625
 ```bash
 magnet:?xt=urn:btih:00D0A95A76CA44DBF3804790C6D6BBAE7D4EB11E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:00D0A95A76CA44DBF3804790C6D6BBAE7D4EB11E
 magnet:?xt=urn:btih:2BFC51BD47DF04B7EE392BA7BA5CA236FD37EB5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:2BFC51BD47DF04B7EE392BA7BA5CA236FD37EB5D
 ```bash
 magnet:?xt=urn:btih:FA7186549F9BC41B13A9487A1EDAF8C4C267C48B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:FA7186549F9BC41B13A9487A1EDAF8C4C267C48B
 magnet:?xt=urn:btih:B13155E7A9BA9596893F202DE7DFA7B090737BB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:B13155E7A9BA9596893F202DE7DFA7B090737BB5
 ```bash
 magnet:?xt=urn:btih:74A46BE92C8C9C9AA920E09DC6A1D314AA5F5056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:74A46BE92C8C9C9AA920E09DC6A1D314AA5F5056
 magnet:?xt=urn:btih:CF59740713269A9083CA6B9E3F6F19E4B5964114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:CF59740713269A9083CA6B9E3F6F19E4B5964114
 ```bash
 magnet:?xt=urn:btih:796B870A803463758756585AEA2AC9397E9646EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:796B870A803463758756585AEA2AC9397E9646EE
 magnet:?xt=urn:btih:37693BB5DA3F8990BD9A3DA0CF72AB616B5F66C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:37693BB5DA3F8990BD9A3DA0CF72AB616B5F66C9
 magnet:?xt=urn:btih:D2B3468E3AB0B8C0C5D567D2C9E9D5D8F332C60D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:D2B3468E3AB0B8C0C5D567D2C9E9D5D8F332C60D
 ```bash
 magnet:?xt=urn:btih:806C2B860ABA62793F2F71C23F354646BEEBD193
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:806C2B860ABA62793F2F71C23F354646BEEBD193
 magnet:?xt=urn:btih:37DD4DEE49536214F10E2928A81C9646AB7A29D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:37DD4DEE49536214F10E2928A81C9646AB7A29D9
 magnet:?xt=urn:btih:45DD5CD1B9B073F47E1F24B73C07CD1E38D098B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:45DD5CD1B9B073F47E1F24B73C07CD1E38D098B7
 ```bash
 magnet:?xt=urn:btih:6F05C201D484AD3802B508F2692EA8B82D30AFBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:6F05C201D484AD3802B508F2692EA8B82D30AFBC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:6F05C201D484AD3802B508F2692EA8B82D30AFBC
 ```bash
 magnet:?xt=urn:btih:8597151974866D29CFD1366493CA08CC8F9D0904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:8597151974866D29CFD1366493CA08CC8F9D0904
 magnet:?xt=urn:btih:8204EAE38B0FCC051F8E175E9F25683C868C04DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:8204EAE38B0FCC051F8E175E9F25683C868C04DF
 magnet:?xt=urn:btih:4A47876CFC2A074A8D8357D599FF8251328C2732
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093965   (932080) от 16.01.2017
-
-Олег Андреев | Развитие космического сознания (2004) [PDF]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_932080.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая вашему вниманию книга посвящена седьмой, завершающей ступени обучения комплексной программы интеллектуального и духовного развития личности. Её название "Развитие космического сознания - Нет предела". Эта книга подводит итоги 30-летней работы научных сотрудников и всего педагогического коллектива Школы Олега Андреева по созданию реальных обучающих (   Читать дальше...   )Жанр: Саморазвитие, ЭзотерикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E41AB17193BD82EFD7B95ECF68109CAFC540F7EE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

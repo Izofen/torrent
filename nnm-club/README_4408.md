@@ -19,6 +19,8 @@ Skin Deep Tattoo Magazine - международное обозрение для
 magnet:?xt=urn:btih:38B5427AFAA71BBFDCA10D2FC0F76F17B2C63056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ PC Magazine - один из известнейших и популярных ж�
 magnet:?xt=urn:btih:665EC4635683F023171E2ED7D280F4CF4EDDFBEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:665EC4635683F023171E2ED7D280F4CF4EDDFBEB
 ```bash
 magnet:?xt=urn:btih:CF37B0455221954323DDB8DFFA547181D12256E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Heat - Heat (2012) [MP3|320 кб/с]<Old School Stoner Rock>
 magnet:?xt=urn:btih:028D5D64CAB606F37E050E7A17C39BB071C81399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:028D5D64CAB606F37E050E7A17C39BB071C81399
 ```bash
 magnet:?xt=urn:btih:D03A45F1203174A9091BB025595E29128B3828DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:D03A45F1203174A9091BB025595E29128B3828DA
 magnet:?xt=urn:btih:82BBCE8F30E18271F9AB90940A6461A1CA02B717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:82BBCE8F30E18271F9AB90940A6461A1CA02B717
 ```bash
 magnet:?xt=urn:btih:CDEE3A29E2B8594C1780450AC371D78F14243655
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:CDEE3A29E2B8594C1780450AC371D78F14243655
 magnet:?xt=urn:btih:7B1AA6DA6B59352B8332D6AFA6D5E4BED18A6DE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:7B1AA6DA6B59352B8332D6AFA6D5E4BED18A6DE9
 ```bash
 magnet:?xt=urn:btih:BE0CBF9F3D421BB07BFBAD9A7BD38D5F3CACE93B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:BE0CBF9F3D421BB07BFBAD9A7BD38D5F3CACE93B
 magnet:?xt=urn:btih:00885642423259B0C3BD267F25CF93ADE697256E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:00885642423259B0C3BD267F25CF93ADE697256E
 ```bash
 magnet:?xt=urn:btih:EC9683A31FBD5A69FDE65E14EB3C713EF6EB54A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ Cephalic Carnage - Xenosapien (2007) [WavPack|Lossless]<Brutal Death Metal / Gri
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ Shokran - Sixth Sense (EP) (2012) [MP3|320 кб/с]<Instrumental Progressive Mat
 magnet:?xt=urn:btih:255C218EB5D4DC247828214E9C5DB6712D21B770
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:255C218EB5D4DC247828214E9C5DB6712D21B770
 ```bash
 magnet:?xt=urn:btih:A5A2901DD190E939166FA718947AFB752F9365AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:A5A2901DD190E939166FA718947AFB752F9365AF
 magnet:?xt=urn:btih:95A890C8A67B4B406988B68A768762213BAA2072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:95A890C8A67B4B406988B68A768762213BAA2072
 magnet:?xt=urn:btih:9301899CB2D9C0CF25C94C9ACFA6A6F2687F8FE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:9301899CB2D9C0CF25C94C9ACFA6A6F2687F8FE1
 ```bash
 magnet:?xt=urn:btih:B88F97F5DEF56A8C9DB252C53EE494777000B201
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +498,8 @@ Mistabishi - Skum (2012) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:7D7F2BE2BD54197490F0030247B202FB2B031C91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +533,8 @@ Antropomorphia - Evangelivm Nekromantia (2012) [MP3|320 кб/с]<Death Metal>
 magnet:?xt=urn:btih:363A4CDA1FFE456E73BAE16B132D2F4BF97D21CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +559,8 @@ magnet:?xt=urn:btih:363A4CDA1FFE456E73BAE16B132D2F4BF97D21CA
 magnet:?xt=urn:btih:5420B83FF978A221644B4C64602F4BD4A84588CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +584,8 @@ magnet:?xt=urn:btih:5420B83FF978A221644B4C64602F4BD4A84588CA
 ```bash
 magnet:?xt=urn:btih:D9855D841C5463335ED8867B1E913BC99BBEC88E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +614,8 @@ Skillbox, Валентин Пановский и др. | Профессия Data
 magnet:?xt=urn:btih:96D62A5B30323C5E1B0DA9642743568542061058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +639,8 @@ Golden Kamuy (2020) / Золотое божество [ТВ-3] [2020, TV, 12 ep]
 ```bash
 magnet:?xt=urn:btih:86A5504FCA8F6B87AEAEA00D0DAB8BB85A5999BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +666,8 @@ magnet:?xt=urn:btih:86A5504FCA8F6B87AEAEA00D0DAB8BB85A5999BA
 magnet:?xt=urn:btih:BA516BA223D9AA0A36BA44C385EC47E6F9CD9B50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +692,8 @@ magnet:?xt=urn:btih:BA516BA223D9AA0A36BA44C385EC47E6F9CD9B50
 magnet:?xt=urn:btih:0E63806C5194B2DBAE8DD81D711CEC3C141873E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ Encased — пошаговая научно-фантастическая RPG. И
 ```bash
 magnet:?xt=urn:btih:47A5715719416EC1F9DBE81FEBA2EC9B4436E2EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

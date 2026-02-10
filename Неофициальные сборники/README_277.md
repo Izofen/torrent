@@ -1,3 +1,38 @@
+###  Публикация: 548862   (464679) от 19.09.2012
+
+VA - Зарубежная Дискотека СССР (2012) [MP3|192 кб/с]<Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Radiohead - Creep
+02 Cb Milton - A Real Love
+03 Kaoma - Lambada
+04 Depeche Mode - I Feel Loved
+05 Intrance - Te Quierro Puta (Original Mix)
+06 Ivan - Fotonovella
+07 Whitney Houston - I Learned From The Best
+08 Maxi Priest - Close To You
+09 White Town - Your Woman
+10 Kellee - My Love(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 08:01:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A101F32AE4348D160DD9805BA8FFF3D0969B52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 549176   (464684) от 19.09.2012
 
 VA - Инструментальная музыка (2012) vol. № 77 [MP3|320 кб/с]<Instrumental>
@@ -18,6 +53,8 @@ VA - Инструментальная музыка (2012) vol. № 77 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:0A75FE546ABC2F29182D9CDD07DF72DF18B3C3E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +80,8 @@ VA - Инструментальная музыка (2012) vol. № 76 [MP3|320 �
 magnet:?xt=urn:btih:5E9C7ED53ECA0EF17B82728C412D077CC006FE7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +105,8 @@ VA - Инструментальная музыка (2012) vol. № 78 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:ED996F6D572DE55B5B214831307ADA432BC002B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +135,8 @@ VA - Dream Hits vol.13 (2005) [MP3|256 кб/с]<Pop/Dance>
 magnet:?xt=urn:btih:E707F025382E8AFC5C3DF0631607524C9F46B2A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +164,8 @@ VA - Ultimate Sexy Beats Vol. 1 (2015) [MP3|320 кб/с]<Drum & Bass, Jungle>
 magnet:?xt=urn:btih:7E1C3123C9B1B01D0BC62A27CB7B21A722E6207F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +189,8 @@ VA - Инструментальная музыка (2012) vol. № 75 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:28FBB19A74C390FD713FAF0F985CEB2212E157D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +218,8 @@ VA - До утра (mixed by Dj V) (2015) [MP3|320 кб/с]<Club House, Disco Ho
 ```bash
 magnet:?xt=urn:btih:F5D320F9971A2B8D992520988219F72D30246D48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +263,8 @@ VA - The Lounge Session vol. 1-4 (2012) [MP3|320 кб/с]<Downtempo, Lounge>
 magnet:?xt=urn:btih:8357C7148D19A0A82E648753C6D4B0419268620F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +292,8 @@ VA - Repeat Of Bliss (2015) [MP3|320 кб/с]<Deep House>
 magnet:?xt=urn:btih:AD11FCC93F8639916C93FB1BD0D9D02232679B44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +320,8 @@ VA - Absolutely Chillhouse Chillout and Lounge (2015) [MP3|320 кб/с]<Downtemp
 ```bash
 magnet:?xt=urn:btih:D0F56A5A0F5EC764E652750557B0F5B52AA2F6C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +365,8 @@ VA - Classical in Lounge 2 Альбома (2012) [MP3|320 кб/с]<Lounge, Chill
 magnet:?xt=urn:btih:C9552C3A7DFC85B4E0085A0FF62A0A919588A052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +393,8 @@ VA - Expression Progressive House (2017) [MP3|320 Kbps] <House, Progressive, Ele
 ```bash
 magnet:?xt=urn:btih:C3121E5CB0CCE48F0F4F302E774496631DDCD14F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +423,8 @@ VA - Summer Madness: Pop Dance Selection (2019) [MP3|320 Kbps] <Dance, Pop, Hous
 magnet:?xt=urn:btih:58CA15DCC2DB1B13F00514BC5CD0D45221B75B67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +451,8 @@ VA - New Format Disco: Progressive Mix (2019) [MP3|320 Kbps] <Disco, Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:02770044C64B61AEB7C40BBDFC625B21A221ECEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +487,8 @@ VA - Дискотека: Звездопад на DFM 50/50 (2011) [MP3|256 kbps]
 magnet:?xt=urn:btih:9D569F6F197FC27D608F508824718B4E624B96F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +522,8 @@ DJ Tapolsky - Russo Turisto (2012) [MP3|320 кб/с]<Pop, Dance, Rock>
 magnet:?xt=urn:btih:66A5ABD37B9BB047409D12596398970D05EC2449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +550,8 @@ UFO - The Very Best (2016) [MP3|320 Kbps] <Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:098EF56444EBA2C8F579C4DFE2B085B29F014661
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +580,8 @@ VA - The Best World Ballads - 33 (2017) [MP3|256-320 Kbps] <Pop, Rock, Blues, Ra
 magnet:?xt=urn:btih:3BF43DB82FBD6457BFE9FB0FE1F834A99552DAC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +608,8 @@ VA - не Громкие новинки недели 31 (2019) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:5A9619AFF1A829C9A88F80724820FA71FBCD4CC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +644,8 @@ VA - Шансон: За друзей №200 (2011) [MP3|128 kbps]<Шансон>
 magnet:?xt=urn:btih:CC19E3BF847B58A2FD293D9A2CAE12C31D61BB89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +672,8 @@ VA - Burst Of Emotion (2019) [MP3|320 Kbps] <Electro, Dance, Club House>
 ```bash
 magnet:?xt=urn:btih:4D250E970CED6C908E77CCBB528561B63E16F516
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +702,8 @@ VA - Metal World Digest (2017) [MP3|320 Kbps] <Metall, Hard Rock>
 magnet:?xt=urn:btih:E4D6F450D012F05E9D5AF6BCDE277E38F9698776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +730,8 @@ VA - Дискотека 2016 Dance Club Vol. 156 от NNNB (2016) [MP3|64-320 Kb
 ```bash
 magnet:?xt=urn:btih:E3DED0157FADF0A0C6EEE17423979462D765DFA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -679,6 +760,8 @@ VA - Top 100 Deep House: September 2016 (2016) [MP3|320 Kbps] <Deep House, Club 
 magnet:?xt=urn:btih:D6DBD1732488CBD214EAB7B7F1C2747CA33C22DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -706,32 +789,7 @@ VA - Club Dance Ambience Vol.88 (2016) [MP3|320 Kbps] <House, Electro House, Mas
 magnet:?xt=urn:btih:EE1BC70C55C02DDFCD8281D3C8491E55B29D0EA5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058673   (465863) от 02.10.2016
-
-Pet Shop Boys - Mega Collection (2016) [MP3|320 Kbps] <Europop, Synthpop, Euro-Disco, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_465863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Started A Joke  3:19
-02. Men And Maggots  4:57
-03. Betrayed  5:19
-04. Go West (Castro Boy Club Mix)  7:38(   Читать дальше...   )Жанр: Europop, Synthpop, Euro-Disco, EurodanceПродолжительность: 02:26:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3842720A6A0D3BD826712311B8587485D10FAC37
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

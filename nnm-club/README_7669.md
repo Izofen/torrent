@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:AC1514AA90368C623541E2E6643D69CAEE99123D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Total Commander 10.51 (30.09.2022) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:41EF1A9814D71013C64BEBFD52A4274A0C4D373D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:41EF1A9814D71013C64BEBFD52A4274A0C4D373D
 ```bash
 magnet:?xt=urn:btih:39380261BC5B13204CFF189FB778E3FAC42DB881
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Ring van Mobius - Commissioned Works Pt II - Six Drops Of Poison (2023) [FLAC|Lo
 magnet:?xt=urn:btih:C211E1CB89F131E728A2FA0025FA52511F347B73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ MelloW - Полураспад (2023) [MP3|320 Kbps] <Nu-Metalcore>
 magnet:?xt=urn:btih:1AC15673086A03C890F97E8BF9D066B0684FCD87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ TuneIn объединяет спортивные события, музыку, �
 magnet:?xt=urn:btih:2D8AED25CA65975BBC59E20BB93774B539E1811C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:2D8AED25CA65975BBC59E20BB93774B539E1811C
 ```bash
 magnet:?xt=urn:btih:617A085127A38B3796E250CE1DA5B2FE4F7739E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:617A085127A38B3796E250CE1DA5B2FE4F7739E4
 magnet:?xt=urn:btih:B55A34C1DC02CE32FE9492420397C64C0726BFD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:B55A34C1DC02CE32FE9492420397C64C0726BFD7
 ```bash
 magnet:?xt=urn:btih:C23E01499CB98E5C91D721A26FAE34CC23C98711
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Todd La Torre - Rejoice in the Suffering (2021) [FLAC|Lossless|image + .cue] <He
 magnet:?xt=urn:btih:5D10E62CDC7F36F06319191CA61E9388698317E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ VA - Музыка для машины Vol.21 (2023) [MP3|320 Kbps] <Pop, Dance, 
 magnet:?xt=urn:btih:E4A8798138D3727D6A064F206FDEDD30FA97FEC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:E4A8798138D3727D6A064F206FDEDD30FA97FEC5
 ```bash
 magnet:?xt=urn:btih:09A3E7ABAEA8211DC185D4CA7A73E6B746B94422
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:09A3E7ABAEA8211DC185D4CA7A73E6B746B94422
 magnet:?xt=urn:btih:C356F45C8065A52F606E6F8614E6A27A8860034E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:C356F45C8065A52F606E6F8614E6A27A8860034E
 ```bash
 magnet:?xt=urn:btih:6024FE4306B51CA494E4E04B3B11F89E6D80CDF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ Noed - No One Escapes Death (2023) [MP3|320 Kbps] <Strong Metal>
 magnet:?xt=urn:btih:2FF144C2CC3BD24D0C6451C7DC152DBFA2A6191D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ The Cedar Walton / Hank Mobley Quintet - Breakthrough! (1972) 1999, 32 Jazz [FLA
 magnet:?xt=urn:btih:AD131085F770ECAEED246B3EEDF1290F6AC6B755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:AD131085F770ECAEED246B3EEDF1290F6AC6B755
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ FSNotes - это менеджер текстовых заметок для macOS
 magnet:?xt=urn:btih:CBFD2E0C5D1BDB19E06EE03084B2DD7A0078736F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:CBFD2E0C5D1BDB19E06EE03084B2DD7A0078736F
 magnet:?xt=urn:btih:655E4CB1531585D73D8E8054F463DBC28E1A3C17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:655E4CB1531585D73D8E8054F463DBC28E1A3C17
 ```bash
 magnet:?xt=urn:btih:84D220296AD2367610ACA676FC3BF9B5ABA02BB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ Ulfud - Of Existential Distortion (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 magnet:?xt=urn:btih:27702179EAA985FFECBFBAD88D85E8CC1A0768AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:27702179EAA985FFECBFBAD88D85E8CC1A0768AC
 magnet:?xt=urn:btih:296BDD1DDED29C2154700AE0F74C1CC150D7A983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ Noiseware – плагин для Adobe Photoshop, предназначенны�
 ```bash
 magnet:?xt=urn:btih:D1A429F874576988A81D5FED381E462B8BFA1066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ magnet:?xt=urn:btih:D1A429F874576988A81D5FED381E462B8BFA1066
 magnet:?xt=urn:btih:48AC6B8A085D240D4EDA4BB3D1C2DB4689BB0FB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:48AC6B8A085D240D4EDA4BB3D1C2DB4689BB0FB0
 ```bash
 magnet:?xt=urn:btih:13B7B2D3F640BB40481B1453811A3687C3458A4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +702,8 @@ Crimson Day - Crimson Day (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:6943F5248C2C7AD08309399B362B12D750B8A2A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

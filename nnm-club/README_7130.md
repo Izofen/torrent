@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:01F03CF347896555A27725A6732DF500F92183BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Bullet For My Valentine — британская металкор-группа. 
 magnet:?xt=urn:btih:466E7FA09FB358B7CB319DDB9C206D2F8F126F5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:466E7FA09FB358B7CB319DDB9C206D2F8F126F5A
 ```bash
 magnet:?xt=urn:btih:7528898D0671C14CF8F9E3F7F8A9FE58F35560F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 magnet:?xt=urn:btih:D78F1979B45B2A92BA79F50C575337F800CAB8FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:D78F1979B45B2A92BA79F50C575337F800CAB8FB
 ```bash
 magnet:?xt=urn:btih:FC3D7806263C377A0AF4C7F5E1428EC257786A27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:FC3D7806263C377A0AF4C7F5E1428EC257786A27
 magnet:?xt=urn:btih:3A32572C138494013F35DCC126ED985D6C5D01FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:3A32572C138494013F35DCC126ED985D6C5D01FC
 ```bash
 magnet:?xt=urn:btih:6F5F5A49FC0CB11FF47267CE135B4DE6ACD06A89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:6F5F5A49FC0CB11FF47267CE135B4DE6ACD06A89
 magnet:?xt=urn:btih:05524732EB5C770097F15300D82975A2EDA77BA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Nickelodeon All-Star Brawl (2021) [Multi] (1.0.5) License CODEX
 ```bash
 magnet:?xt=urn:btih:06E30A3C736A2E32B8100815481B3024558932CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:06E30A3C736A2E32B8100815481B3024558932CF
 magnet:?xt=urn:btih:1153831C1CB693BD60435F7A0625935076523811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:1153831C1CB693BD60435F7A0625935076523811
 magnet:?xt=urn:btih:4A074AC204699674D23BA494B161BEC7B3933174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:4A074AC204699674D23BA494B161BEC7B3933174
 ```bash
 magnet:?xt=urn:btih:354AC1D0E8FD6A47F47B982B05D134BF7A1D2769
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Space - Лучшие Хиты (2016) [AAC|~338 Kbps] <Electronic, Synthpop>
 magnet:?xt=urn:btih:8A23B7A5DCD662EA910E4B9E48FEECA17F6552A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:8A23B7A5DCD662EA910E4B9E48FEECA17F6552A2
 ```bash
 magnet:?xt=urn:btih:EDA163ABE9682E846C6465F414238D1286263B46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:EDA163ABE9682E846C6465F414238D1286263B46
 magnet:?xt=urn:btih:FFAF00F6716BF58162D07CEA4618D8565515EB83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:FFAF00F6716BF58162D07CEA4618D8565515EB83
 ```bash
 magnet:?xt=urn:btih:15E4E5B5AED008C0A95174FC4DB7DE78980F1385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:15E4E5B5AED008C0A95174FC4DB7DE78980F1385
 magnet:?xt=urn:btih:0BA6AFA82CF0E19EE00A19CC59C8E220744CF74F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:0BA6AFA82CF0E19EE00A19CC59C8E220744CF74F
 ```bash
 magnet:?xt=urn:btih:5F4A1A48E354E327EB845974C6C874FA493B5583
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Rob Rock - Eyes Of Eternity (2003) [FLAC|Lossless]<Heavy Metal>
 magnet:?xt=urn:btih:1B46B909A66E771FFD4F9BA7D2EC3D62F01EF364
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ Hobbit - Two Feet Tall (1999) [MP3|320 Kbps] <Classic Rock, Prog Rock>
 magnet:?xt=urn:btih:E89D1DD7693FE0859CBD195A161914FB96A2F9F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ Dispatcher (2015) [Ru/En] (1.0/upd2) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:BA401A69AAA6C0DBC95A613283913116ACCC75A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:BA401A69AAA6C0DBC95A613283913116ACCC75A9
 magnet:?xt=urn:btih:64D0281132E1BB62C25B83D23A1ABFCAFA022112
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:64D0281132E1BB62C25B83D23A1ABFCAFA022112
 ```bash
 magnet:?xt=urn:btih:185ED3B325719F512FF6092529DCD16D87FF0481
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:185ED3B325719F512FF6092529DCD16D87FF0481
 ```bash
 magnet:?xt=urn:btih:174E29625B8830EE70C034896B60E4BA2A2440D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ Lostly - No Direction Home (2015) [FLAC|Lossless|WEB-DL|tracks|image] <Trance>
 magnet:?xt=urn:btih:6C22572C57B5A6ADB6C4916A3A86487F8EB6301B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Europa Universalis 4 - стратегия, разрабатываемая сту
 ```bash
 magnet:?xt=urn:btih:BCDD4F2350A122B7761E8D61063F3B7253BECAD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

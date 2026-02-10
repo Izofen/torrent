@@ -1,3 +1,29 @@
+###  Публикация: 1447950   (883704) от 10.09.2021
+
+Секретные материалы (2011-2021) DVB (выпуски 1-220 из ?) (Обновляемая)
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_883704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все тайное становится явным! Хотите узнать правду? Понять, что на самом деле происходит в мире? Сенсационные разоблачения и тайны элиты. Парадоксы истории и зашифрованные открытия. Мы знаем истинную подоплеку событий!Телекомпания: Россия / МТРК «Мир»Жанр: Документальный, Тележурналистика, ИсторияРежиссер: Алла ДерюгинаСубтитры: отсутствуютПродолжительность: ~00:26:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39887D3D9CD0918C20BAA49906173C85E984FB99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372749   (883736) от 04.04.2020
 
 Главная дорога (04.04.2020) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:C8A4AC11473048D505B137B24B1C8B0E3FF281C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:C8A4AC11473048D505B137B24B1C8B0E3FF281C4
 magnet:?xt=urn:btih:C5DA67C25ACA05371450AE2DC3B5517B72AD7FB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:C5DA67C25ACA05371450AE2DC3B5517B72AD7FB1
 ```bash
 magnet:?xt=urn:btih:E6928B03A4FA7F6F13A789F0B5D6B8DE94423ACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:E6928B03A4FA7F6F13A789F0B5D6B8DE94423ACD
 magnet:?xt=urn:btih:E312E1E1FA06EF5762C5D14E3072E839E40F1F5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:E312E1E1FA06EF5762C5D14E3072E839E40F1F5D
 ```bash
 magnet:?xt=urn:btih:D0FC99268A7F61F70FD05F3307B9C07B47A8C94E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:D0FC99268A7F61F70FD05F3307B9C07B47A8C94E
 magnet:?xt=urn:btih:28C6FD5A64E7A6DEE4487802D60DF6F24D1D1B1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:28C6FD5A64E7A6DEE4487802D60DF6F24D1D1B1A
 ```bash
 magnet:?xt=urn:btih:E4B73515AEA000D0D43C62629D3639B6CC795958
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:E4B73515AEA000D0D43C62629D3639B6CC795958
 magnet:?xt=urn:btih:740D66067A73CD561C49F5472809740E410886D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:740D66067A73CD561C49F5472809740E410886D9
 ```bash
 magnet:?xt=urn:btih:1BE171634D2329D26D88EE6D0A25A0C1EE5032CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:1BE171634D2329D26D88EE6D0A25A0C1EE5032CA
 magnet:?xt=urn:btih:E69E863D981AE424EBAC12E17B49D4951A71E7EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:E69E863D981AE424EBAC12E17B49D4951A71E7EB
 ```bash
 magnet:?xt=urn:btih:778625B1FBB9EE0E11E9FCAD8C26E12562B50157
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:778625B1FBB9EE0E11E9FCAD8C26E12562B50157
 magnet:?xt=urn:btih:51F0B9F7D10880AEA6D146AFF71241B78B95D8A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:51F0B9F7D10880AEA6D146AFF71241B78B95D8A5
 ```bash
 magnet:?xt=urn:btih:46CD09306E206E0C81155A6B48859360DF866F7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:46CD09306E206E0C81155A6B48859360DF866F7D
 magnet:?xt=urn:btih:7E89F5C79492C43C3CF940363FC857296FB1D5B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:7E89F5C79492C43C3CF940363FC857296FB1D5B7
 ```bash
 magnet:?xt=urn:btih:E9135FF8A28CA78A6BA7FFE31BED50CCAD9053B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:E9135FF8A28CA78A6BA7FFE31BED50CCAD9053B3
 magnet:?xt=urn:btih:D613DD102CA18B7687CD540FCF8E0B4BF35B5341
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:D613DD102CA18B7687CD540FCF8E0B4BF35B5341
 ```bash
 magnet:?xt=urn:btih:39828DFE21C7119B6ECB6F63D7655E62047A4FF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:39828DFE21C7119B6ECB6F63D7655E62047A4FF1
 magnet:?xt=urn:btih:0E7B35B9343F36810D76240A25332C11808F6B44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:0E7B35B9343F36810D76240A25332C11808F6B44
 ```bash
 magnet:?xt=urn:btih:0F4CC65FADFEE3760463C3FEE5DCFB92BA01B880
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:0F4CC65FADFEE3760463C3FEE5DCFB92BA01B880
 magnet:?xt=urn:btih:C806F6D97FD0466F7B78476E26DE7FC4695718D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:C806F6D97FD0466F7B78476E26DE7FC4695718D6
 magnet:?xt=urn:btih:1298FC14B39AF11D228126EA43514C5C1B57B2D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:1298FC14B39AF11D228126EA43514C5C1B57B2D3
 ```bash
 magnet:?xt=urn:btih:A2B46EE402B8229B85718305BB201F02FD60C00C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:A2B46EE402B8229B85718305BB201F02FD60C00C
 magnet:?xt=urn:btih:57656AE3C003D18D3BAA0A3730E49BA7D0B51939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:57656AE3C003D18D3BAA0A3730E49BA7D0B51939
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:57656AE3C003D18D3BAA0A3730E49BA7D0B51939
 magnet:?xt=urn:btih:5E95D4E271F9C7271B0A9761FE19A5C70A038ADD
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509913   (885779) от 10.03.2016
-
-Дикий Китай / Wild China (2008) BDRip [H.264/720p] (6 серий из 6)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885779.jpg" />
-</div>
-
-
-###  Подробнее
-
-От восточного края Великой Стены простираются прибрежные земли Китая. Они охватывают четырнадцать тысяч километров и более пяти тысяч лет истории. Здесь особенно ощутим контраст между прошлым Китая и его будущим. Здесь, в современных городах-мегаполисах проживают семьсот миллионов человек. Теперь, когда древние традиции сочетаются с новыми устремлениями, найдется (   Читать дальше...   )Жанр: документальныйПеревод: профессиональный (одноголосый)Продолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29A35FC5B8350A845DAECFDBC125CC8552D83E69
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

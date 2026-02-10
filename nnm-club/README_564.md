@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:BED14C7A3C5B0CE78C865F7F92382162906EED63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (57069/dlc) Repack seleZen [Deluxe
 ```bash
 magnet:?xt=urn:btih:F971F959213A6C7BE4DC79ACFE073093735EFFC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Balun.Courses, Олег Козырев | Микросервисы, как в Big
 magnet:?xt=urn:btih:151DE6C2AEBC080D80AE6C24248F169243E2F224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 ```bash
 magnet:?xt=urn:btih:3B0A68991DC156E5AEAA5DF45A2CC7A7D2DF22EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:3B0A68991DC156E5AEAA5DF45A2CC7A7D2DF22EF
 magnet:?xt=urn:btih:450941405CE6E6CF3BD65947BF82FFBF1DB8B4FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:450941405CE6E6CF3BD65947BF82FFBF1DB8B4FB
 ```bash
 magnet:?xt=urn:btih:FD01D0C354DC808A927F5DD2F0B591CC1FC449FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ ru-ru_windows_11_enterprise_ltsc_2024_x64_dvd_f9af5773
 magnet:?xt=urn:btih:D38D0ED3A9F9E1F8E719295B957ED60FCBC20E7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:D38D0ED3A9F9E1F8E719295B957ED60FCBC20E7D
 magnet:?xt=urn:btih:F881B2096DE14CCFAD082CB1C37E266B8439A24A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:F881B2096DE14CCFAD082CB1C37E266B8439A24A
 ```bash
 magnet:?xt=urn:btih:B14AF60330CB12D01BA672439765182F11F01F90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ VideoSmile, Артём Слаква | Супер Blender (2024) PCRec [AD] [RU]
 magnet:?xt=urn:btih:376ACA585D3A6696A04114217C429C10400E140C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:376ACA585D3A6696A04114217C429C10400E140C
 magnet:?xt=urn:btih:D27FF4770DA364DAF5BCEEFA0AEEA3880E11C233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:D27FF4770DA364DAF5BCEEFA0AEEA3880E11C233
 ```bash
 magnet:?xt=urn:btih:637A23D4862FFD12BA692471563BF1820DEB0E7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Windows 7 SP1 7601.27769 x64 3in1 by OneSmiLe [11.06.2025] [Ru]
 magnet:?xt=urn:btih:5D2DE0F30DBB11ED9B6A42A8CBC0697511B54A40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:5D2DE0F30DBB11ED9B6A42A8CBC0697511B54A40
 ```bash
 magnet:?xt=urn:btih:1AFC7F483E4531FE403B3D9ABBC148750AFB43E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.814.9) Repack Other s
 magnet:?xt=urn:btih:FB43E351C1F33EDBCA46B2D0A882455E97B13E9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:FB43E351C1F33EDBCA46B2D0A882455E97B13E9F
 ```bash
 magnet:?xt=urn:btih:20744A1F64C3B0C4D932C1DA09C24E1D764491E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:20744A1F64C3B0C4D932C1DA09C24E1D764491E9
 magnet:?xt=urn:btih:57C187B940068B2C7D8438E5E9EC481AA98D414D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:57C187B940068B2C7D8438E5E9EC481AA98D414D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ Warhammer 40,000: Space Marine (2025) [Multi] (1.0.1038.3669/dlc) Scene Rune [Ma
 magnet:?xt=urn:btih:6CA61B66139E3C6DD43F04A70ABEE055D38C8404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ SIGNALIS (2022) [Ru/Multi] (1.2.2) Repack Other s
 magnet:?xt=urn:btih:8C2B51579083FF798C8C8277DB67631C1A2EA213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:8C2B51579083FF798C8C8277DB67631C1A2EA213
 ```bash
 magnet:?xt=urn:btih:883DBC2AD04A8F12AA239BEA1A4E8542CE069AD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:883DBC2AD04A8F12AA239BEA1A4E8542CE069AD3
 magnet:?xt=urn:btih:404251DB8171026B479016BCE97B85CED9EFFAB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:404251DB8171026B479016BCE97B85CED9EFFAB2
 magnet:?xt=urn:btih:AA4FFA8A6E57C753F65E5EDAC123774F358C3FF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:AA4FFA8A6E57C753F65E5EDAC123774F358C3FF4
 ```bash
 magnet:?xt=urn:btih:0AA97E36A906D2BE6E7378B02F38205760345B23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ Cynthia Erivo - I Forgive You (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:71D848FFC35C106D020F147B9AA46B076DBA17F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ CD1 - Bon Jovi:
 ```bash
 magnet:?xt=urn:btih:0F6F5E5A301376803A97393E76011B8E15944638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

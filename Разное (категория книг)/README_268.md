@@ -1,3 +1,29 @@
+###  Публикация: 1175476   (376773) от 19.10.2017
+
+А. И. Герцен | Русский народ и социализм (1921) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_376773.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Русский народ и социализм» - произведение русского писателя, общественного деятеля Александра Ивановича Герцена (1812-1870). В этой статье А. И. Герцен стремиться дать мыслителям Запада правильное представление о России и русской культуре. Особое внимание автор уделяет сельской общине. Он считает, что человек будущего в патриархальной России — крестьянин.Жанр: История, политология, культурологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB70332BCCA16BF2D778C9E67B9BDEA92013CBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175737   (376776) от 19.10.2017
 
 Джованни Гуайта | Жизнь человека. Встреча неба и земли. Беседы с Католикосом Всех Армян Гарегином I (1999) [FB2, EPUB, MOBI]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:266D4C8DF6AA44430B673F3F230DBF03BC1EB7FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:266D4C8DF6AA44430B673F3F230DBF03BC1EB7FB
 magnet:?xt=urn:btih:29DCE3BB41E541509F4FCD4EE00C12431E110519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:29DCE3BB41E541509F4FCD4EE00C12431E110519
 ```bash
 magnet:?xt=urn:btih:93DD2857155463F41B11C13FB272C058AD2DCCF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:93DD2857155463F41B11C13FB272C058AD2DCCF8
 magnet:?xt=urn:btih:1A7F37DF47697486531A236C4E2579C3651C335B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:1A7F37DF47697486531A236C4E2579C3651C335B
 magnet:?xt=urn:btih:A64E517EE369D497C54CF22B35CB1C2BF6E7E640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:A64E517EE369D497C54CF22B35CB1C2BF6E7E640
 ```bash
 magnet:?xt=urn:btih:5C748523019F19254A77BC5F4404D0D7B733F8C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:5C748523019F19254A77BC5F4404D0D7B733F8C4
 magnet:?xt=urn:btih:3F4B5895551B8BB27065E7B982DA5F5D7221BE11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:3F4B5895551B8BB27065E7B982DA5F5D7221BE11
 ```bash
 magnet:?xt=urn:btih:A310914955E24B6F0FEBD4598C001B6A6679D1B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:A310914955E24B6F0FEBD4598C001B6A6679D1B8
 magnet:?xt=urn:btih:61857580EBC02D65AB26586411E13211D2A2E334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:61857580EBC02D65AB26586411E13211D2A2E334
 magnet:?xt=urn:btih:B8C01684636999873EA59E0175F82BCBA4DCDA3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:B8C01684636999873EA59E0175F82BCBA4DCDA3F
 ```bash
 magnet:?xt=urn:btih:8B5CE7CD33F8B775F28B348BA8B0C2C2CB220282
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:8B5CE7CD33F8B775F28B348BA8B0C2C2CB220282
 magnet:?xt=urn:btih:67D3EEDDFDCB18E2EBFE5CCA52C6FB07437DAB12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +368,8 @@ magnet:?xt=urn:btih:67D3EEDDFDCB18E2EBFE5CCA52C6FB07437DAB12
 magnet:?xt=urn:btih:BF770A88B33E7746AEAD3EC71117679ADBC88063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:BF770A88B33E7746AEAD3EC71117679ADBC88063
 magnet:?xt=urn:btih:EA8CF7C3798FCB84FF25327F5F8E3C2A1DD04D2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:EA8CF7C3798FCB84FF25327F5F8E3C2A1DD04D2C
 ```bash
 magnet:?xt=urn:btih:44CD561D0D614517319AEB1C72E93BD7E155C892
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +453,8 @@ magnet:?xt=urn:btih:44CD561D0D614517319AEB1C72E93BD7E155C892
 magnet:?xt=urn:btih:322E8EC79FA6E9B691B0B4C59E289F8D18A04A2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +480,8 @@ magnet:?xt=urn:btih:322E8EC79FA6E9B691B0B4C59E289F8D18A04A2D
 magnet:?xt=urn:btih:8364E8E7378E108BF1D2CCE9C85C35D7C7B5FA50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +506,8 @@ magnet:?xt=urn:btih:8364E8E7378E108BF1D2CCE9C85C35D7C7B5FA50
 magnet:?xt=urn:btih:FEEE122E18E2D59163E61137CBB64EF795CB7BF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +531,8 @@ magnet:?xt=urn:btih:FEEE122E18E2D59163E61137CBB64EF795CB7BF9
 ```bash
 magnet:?xt=urn:btih:03A2B9BCC72E877AAAFF4F63F49C42D67C735D6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +560,8 @@ magnet:?xt=urn:btih:03A2B9BCC72E877AAAFF4F63F49C42D67C735D6D
 magnet:?xt=urn:btih:DC1A38CAFD484A515C6400EAA1831AD50CECB7F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +585,8 @@ magnet:?xt=urn:btih:DC1A38CAFD484A515C6400EAA1831AD50CECB7F3
 ```bash
 magnet:?xt=urn:btih:DECA39EFE5A9A56377C59BB870FA87F5D7EA6B9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +612,8 @@ magnet:?xt=urn:btih:DECA39EFE5A9A56377C59BB870FA87F5D7EA6B9A
 magnet:?xt=urn:btih:B8BA823055664358161E9F705A3DD61F65826AF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +637,8 @@ magnet:?xt=urn:btih:B8BA823055664358161E9F705A3DD61F65826AF5
 ```bash
 magnet:?xt=urn:btih:2419C3223B31A4A42ACAEDD0869C8618EED3F9B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +665,8 @@ magnet:?xt=urn:btih:2419C3223B31A4A42ACAEDD0869C8618EED3F9B1
 magnet:?xt=urn:btih:BD8A9B40CB98C5586E180BA772674F0B5B9A99EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,31 +691,7 @@ magnet:?xt=urn:btih:BD8A9B40CB98C5586E180BA772674F0B5B9A99EE
 magnet:?xt=urn:btih:748485E9507D188B57D4205862580B94294170BA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175563   (378324) от 18.10.2017
-
-Руслан Хоменко, Александра Пожарская | Речевая самооборона (2017) [FB2, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_378324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конфликты разрушают отношения – как личные, так и деловые. Научиться выходить из сложных ситуаций грамотно, легко и элегантно – сложная, но выполнимая задача.
-Следуя простому алгоритму амортизации конфликта или манипуляции, разработанному авторами, вы сможете в любой ситуации сохранить свою репутацию и найти эффективное решение возникшей проблемы.
-В этой книге вы (   Читать дальше...   )Жанр: Психология, О бизнесе популярноФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED3824C0740E8731BBA369041765CEC8F4245B13
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

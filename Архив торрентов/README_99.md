@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8D32BDC20F780EE72D70EAADDD05088DBF6D527E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Luxion KeyShot — средство для интерактивной фотор
 ```bash
 magnet:?xt=urn:btih:233993D4B64D92E2FB8F784019FB13B5490170C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ CrossOver создаётся компанией CodeWeavers на основе и
 magnet:?xt=urn:btih:839E1BC9656D6D01B0A6ED7F6B77439ABEA3B018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:F9648C5F433CD50C8E07FBB1FA256FA9957D75C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ OCCT 13.1.16 Portable [En]
 magnet:?xt=urn:btih:54EDC5F10321794E2520072BD740D2FCC526BAAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ XYplorer – удобный многовкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:9406182F1D2A0E2576506E1DAAD0349491FB665A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ QownNotes – менеджер заметок, позволяющий четко
 magnet:?xt=urn:btih:CB6D5375B9B437852423C9F6113EE41DAE9FDE07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Paint.NET - Простой, но мощный и удобный редактор
 magnet:?xt=urn:btih:B3A3ACCC5D38DC7ABBF7ABA7C67559D67E82FABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:A1607FF0FD806B69AA6B5BCC6ABFE084DED14DEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:7332A5139CBE6B03D2076B2B45CC845E88B50D6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ iTubeGo YouTube Downloader 10.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:D8BDA3D1A833DF9F30FBB87DC8EEF431E4F40F84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:323A121BBC6D0DDBA7381D42685624AD10EEFDA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:323A121BBC6D0DDBA7381D42685624AD10EEFDA1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Discovery. Голубые ангелы: Год в жизни / Blue Angels: A Ye
 ```bash
 magnet:?xt=urn:btih:6BEDBAE1317BCC593753283904287EDBA71EF953
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Audacity - свободный, простой в использовании зв
 magnet:?xt=urn:btih:9766DC8714CCDB10CA26C21614149C5B351E9F44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:9766DC8714CCDB10CA26C21614149C5B351E9F44
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 magnet:?xt=urn:btih:C5EBE4C78D0D3AFDC5833539EA8AB30F0EC1B88C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ CorelDRAW® Technical Suite — это универсальные инструм
 ```bash
 magnet:?xt=urn:btih:A980431CB208ECC4C6B380396DAA8373992A730D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:406381A903460F3DB24EEF8213BBE9B54408334F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ R-Studio Network 9.4 Build 191460 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:60A994DFF21623DB9EFA810EC367AADECD5A43C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Windows 7 SP1 7601.27618 x64 3in1 by OneSmiLe [13.03.2025] [Ru]
 magnet:?xt=urn:btih:C2D038C09A3FE5AED1084D4A7CF098D8B8269915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:C2D038C09A3FE5AED1084D4A7CF098D8B8269915
 magnet:?xt=urn:btih:0838A791C2F7E0D1DEC71A419B6E8DFF9F83D9C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Visual Studio Enterprise 2019 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:36CB854E50B1D5C7C51EF1E74D0BD5AED190BCE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Sandboxie - yтилита для контроля за работой разли
 magnet:?xt=urn:btih:B4C7E8738D97F18E1F7B9207E14DB1FA066BD0FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ FanControl – свободно распространяемый продукт,
 magnet:?xt=urn:btih:12371E0C0837930ED302908B404A5696DC0A60FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:FE752B62EB5A3675AE8ABD63743052B087DCB78B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

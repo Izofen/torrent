@@ -21,6 +21,8 @@ Apache Spark является ключевым навыком в области 
 magnet:?xt=urn:btih:657B94D5F6194AF9482BAD52014DB5CCA233B3A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Julio Casal | Building Microservices With .NET (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:626692F0C9D31A65FB0B7C0A951A5C7F7020A9D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Blazor - это настоящий прорыв для разработчико�
 ```bash
 magnet:?xt=urn:btih:267A25DFD81D37D5346906D8A1A00B79A05EE66A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:267A25DFD81D37D5346906D8A1A00B79A05EE66A
 magnet:?xt=urn:btih:4DE6DC6B16B0961D4A26F2962FB5241FA2C2729C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:4DE6DC6B16B0961D4A26F2962FB5241FA2C2729C
 ```bash
 magnet:?xt=urn:btih:9700EEC1C52D867B86E2D86E5A0B90A34D3C0204
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ IAmTimCorey, Tim Corey | Web API From Start to Finish (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:4783B46A0ED56CE912726A7F08216D89E58E195B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:4783B46A0ED56CE912726A7F08216D89E58E195B
 ```bash
 magnet:?xt=urn:btih:C122CB2B7786BEA5DEE3D235B8FF508E4491AFF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:C122CB2B7786BEA5DEE3D235B8FF508E4491AFF4
 magnet:?xt=urn:btih:4A0DD958DD7E0EB2EC83587C95B62D3D9DE50D3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:4A0DD958DD7E0EB2EC83587C95B62D3D9DE50D3D
 ```bash
 magnet:?xt=urn:btih:23BDAE0E316B53618B27E27162284D0C123D65AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:23BDAE0E316B53618B27E27162284D0C123D65AE
 magnet:?xt=urn:btih:4171B35DC5FC85CF93ECBA425F10EF42ABEE2093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ Enterclass, Татьяна Каштальян | Садовый букет (2023)
 ```bash
 magnet:?xt=urn:btih:B8EE66E8862CAE7C31E53DF7E0FC141100B701A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:B8EE66E8862CAE7C31E53DF7E0FC141100B701A7
 magnet:?xt=urn:btih:8E8E74A5CBFA097A322E44E82F6A779579C0C60A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ Udemy | Adobe After Effects – From Zero to Beyond (2022) WEB-DL [EN, RU / EN S
 ```bash
 magnet:?xt=urn:btih:F006BFA52F081E9ED260C3A79936E08C66FDA375
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:F006BFA52F081E9ED260C3A79936E08C66FDA375
 magnet:?xt=urn:btih:2B59B41A2553845DE9A83D43C300BD4259314BA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ Udemy, Dekker Fraser | SaaS Marketing: SaaS Startup Lead Generation with Dekker 
 ```bash
 magnet:?xt=urn:btih:C88C8A396E5CEEF92015423AA3610DFBA5B1A0BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ Bazanova Art, Ольга Базанова | Практика художника 
 magnet:?xt=urn:btih:9C4191BFD66C2B6202301CA4F99D06D68189BEB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ Domestika, Jessica Roux | Illustrated Stationery: A Guide to Sell and Market You
 magnet:?xt=urn:btih:7702DAB5281A7C6B42B25ADE4821D6B7195ABFBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ Skillshare | Affinity Photo Master Class iPad Edition (2020) WEB-DL [EN, RU]
 ```bash
 magnet:?xt=urn:btih:4D58126A9FC59B53D28012AEB3B9097AC0140615
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:4D58126A9FC59B53D28012AEB3B9097AC0140615
 magnet:?xt=urn:btih:22513C7F03672AD02CA5594B9201FCC41A37FDEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ Granich.Design, Саша Буяк, Вадим Гранич | Графсисте�
 magnet:?xt=urn:btih:CAD3252595A029F25B637671238D7CBDD91060BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ As a security or IT professional, you need to know how to check security within 
 ```bash
 magnet:?xt=urn:btih:A0DF3519DDA118E754581B3B62AA4BE9E1E418DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:A0DF3519DDA118E754581B3B62AA4BE9E1E418DC
 magnet:?xt=urn:btih:09D8B4F0B6E24AA1D0C95845FC6F5CC75F932EE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:09D8B4F0B6E24AA1D0C95845FC6F5CC75F932EE2
 ```bash
 magnet:?xt=urn:btih:6B84A5284D4A7D396E48D08C9FB614371F8414E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ xcel VBA – Программирование макросов в Excel. Stepik.
 magnet:?xt=urn:btih:35723365C0E692DF781B9EF4E82CD4975BE8B30D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:35723365C0E692DF781B9EF4E82CD4975BE8B30D
 ```bash
 magnet:?xt=urn:btih:C02150E638B262165D520CCFF497446D5818C395
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +707,8 @@ Udemy, Creativity Unleashed | Complete Adobe After Effects Megacourse: Beginner 
 ```bash
 magnet:?xt=urn:btih:BC71B8BDF46279182C576FD2B0676134A5FD6BDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

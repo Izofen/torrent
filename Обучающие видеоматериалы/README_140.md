@@ -21,6 +21,8 @@ Stepik, Руслан Шишмарев | C# WPF. Создание оконног�
 magnet:?xt=urn:btih:80B490536FE8BC8EF6F62CE75BB5BC808426869B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ DaSchool, Анна Данилова | English start. Интенсив англи
 magnet:?xt=urn:btih:0937A11D8B3A02B28D2069993974DE035EC5971C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Udemy, Stephen Pearson | Soft Body Physics Simulation Guide in Blender 2.9 (2022
 ```bash
 magnet:?xt=urn:btih:37EBB4049A6D35FA216B0B554EA60933A319D67C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Blender Environment Artist: Create 3D Worlds - шикарнейший курс �
 magnet:?xt=urn:btih:49D06AA095D88C87EA662020E5E6701E54E1B0C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Norman Pirollo | Kumiko Course (2019) WEBRip [EN, RU]
 ```bash
 magnet:?xt=urn:btih:E1155E16DC02F47C9684707D9196231A367EFDDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ Vlad Ten | System Design (2025) WEB-DL [RU]
 magnet:?xt=urn:btih:747A6FFA88ADD68A5D5FC0FD9BAB83A75558CCF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ ProFinansy, Наталья Котовская, Вероника Войнова |
 ```bash
 magnet:?xt=urn:btih:0258EFDC710B5AD9114320A9A61268616D2333CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ ProFinansy, Павел Гогаладзе | Опционы: увеличивае
 magnet:?xt=urn:btih:6E3E722807DA395F18A1AF9D47F9B878EA72EB9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ ProFinansy, Юлия Ченцова, Александр Горшенин | Др�
 ```bash
 magnet:?xt=urn:btih:6D9D8E2B05C999DD302C124C80330D03D54DA085
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ ProFinansy, Юлия Ченцова, Ольга Гогаладзе | Тренд�
 magnet:?xt=urn:btih:76AA8A6F5F4DA918D29A9F0DBEBDFD13834DA913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Stepik, Андрей Ловыгин | Планета ЧПУ (2020) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:3CDA3214485743E368B6FA456DDFE0B29CBEBCE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:3CDA3214485743E368B6FA456DDFE0B29CBEBCE4
 magnet:?xt=urn:btih:15ABBA42B9D2D6E890D100F74456235DA05C8DF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:15ABBA42B9D2D6E890D100F74456235DA05C8DF3
 magnet:?xt=urn:btih:CFAF1A985093F5359EDC3600EF33293EF4972E60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ excelforum, Олеся Маркович | Мегаформулы (2025) PCRec [R
 ```bash
 magnet:?xt=urn:btih:79F89FF112F43C5802C5D712AA7E63772CA3C81E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ Orion Soft | Обучающий курс по ZVirt (2024) PCRec [RU]
 magnet:?xt=urn:btih:C759274E7E58613063B51D5F12C558BA6A1B4A02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ ITVDN, Дмитрий Афанасьев | Разработка графичес
 ```bash
 magnet:?xt=urn:btih:98681F37520D2084E2AEA2E628CB585E17FFC8BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ OTUS, Алексей Александров | Применение электр�
 magnet:?xt=urn:btih:45F6949787ABD78FF4D3615082C2B587612CFB0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ FluidCourse, Владислав Хафизов | Печать на 3D принт
 ```bash
 magnet:?xt=urn:btih:E1A660F6C5FD3356B04771A558F03E378E82BC80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ Eduson Academy, Сергей Журихин, Мария Баженова, Мар
 magnet:?xt=urn:btih:B4E057E481ABB3D173AF77635184257902058E93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:B4E057E481ABB3D173AF77635184257902058E93
 ```bash
 magnet:?xt=urn:btih:C5DF0780F67FD3F01474A186D9467A5A59B76CD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:C5DF0780F67FD3F01474A186D9467A5A59B76CD9
 magnet:?xt=urn:btih:A5A42B43F64AFECCD655FC2596CCAAA6A999FB46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ Udemy, Vlad Sateev | Master Viral 3D Short Form Content in Blender (2025) PCRec 
 magnet:?xt=urn:btih:9EB24D06E3C2C37E208D3ED24E46644A6AA432AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:9EB24D06E3C2C37E208D3ED24E46644A6AA432AE
 ```bash
 magnet:?xt=urn:btih:901EF592A9A931911968E9DA9AEDBA9452DEBE76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ Udemy, Richard Wells | Unit Testing and Test Driven Development in Python (2019)
 magnet:?xt=urn:btih:8A153FE822E003087E430A35F7328C28DA0F251A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:8A153FE822E003087E430A35F7328C28DA0F251A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ Nikolietta calligraphy, Варвара Пантелеева | Курс по ка
 ```bash
 magnet:?xt=urn:btih:07A575C892927883C9E757670B8C5DA14BE40ED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

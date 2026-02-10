@@ -22,6 +22,8 @@ DevilDriver - Dealing With Demons Vol. I (2020) [FLAC|Lossless|image + .cue] <Gr
 magnet:?xt=urn:btih:0615AA1318A24D8AF5BF05D90641AB1FEFB9B9F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:0615AA1318A24D8AF5BF05D90641AB1FEFB9B9F3
 ```bash
 magnet:?xt=urn:btih:7199CE96605C8DBC1E144D9C7ADBFBC68957183B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Swift Publisher - это пакет графических утилит для m
 magnet:?xt=urn:btih:BA4F12FB3A11C6A1EDFB9A77DFD122FD700F5E04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Dont Sleep - утилита, которая временно может откл
 ```bash
 magnet:?xt=urn:btih:3C5556FE0F40119B2D2C80A962B29CAC7C614BF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ VA - Anything and everything assorted part 3 (2025) [MP3|320 Kbps] <Electronic, 
 magnet:?xt=urn:btih:45DBE26BCED4C66D13D6557C15CB9B5C3604DB2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:45DBE26BCED4C66D13D6557C15CB9B5C3604DB2B
 magnet:?xt=urn:btih:FB87375615121D2D6CD6B2FA4BF1EE3E97B9CDB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:FB87375615121D2D6CD6B2FA4BF1EE3E97B9CDB1
 ```bash
 magnet:?xt=urn:btih:5706663AE1CB2681E294FB945CAD4163D54B2ECB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ VA - Halloween Blues (2023) [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:8D5109914D0B888F0587E954ABA100C51753E0E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:8D5109914D0B888F0587E954ABA100C51753E0E2
 ```bash
 magnet:?xt=urn:btih:6FF8A0FC1925CC6F08B287E8C266BD55E52570DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:6FF8A0FC1925CC6F08B287E8C266BD55E52570DA
 magnet:?xt=urn:btih:7DCAD8CE23365C474EE9F82973EDD51FB97800D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Storyist для Mac OS - является мощной средой для ра�
 ```bash
 magnet:?xt=urn:btih:C2BB632EE7D2D1C30D04A3FDAEA7F02CBFA303D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ VA - Paradigm House Sound (2022) [MP3|320 Kbps] <Electronica, Progressive, Tech 
 magnet:?xt=urn:btih:872BB9553A017F49CBF49FD99FABD86FEE6AEADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:872BB9553A017F49CBF49FD99FABD86FEE6AEADE
 ```bash
 magnet:?xt=urn:btih:3B5F3699B0C1D8E68FC726F55F2A1B0B936C08F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ Text Edit Plus — это простой, но мощный текстовый �
 magnet:?xt=urn:btih:57A91D1E0DF67FDC010CC5DBDD05B490259966CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ X.О.Фекьяер выдвинул и убедительно подтверд�
 magnet:?xt=urn:btih:5D9C9787D404C07D396583AC8032247E524B9853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:5D9C9787D404C07D396583AC8032247E524B9853
 ```bash
 magnet:?xt=urn:btih:713273D57AB9CB791DF4B5C7CD0707DFD9E6D735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ DxO PureRAW 3 for Mac v.3.6.1 [Multi]
 magnet:?xt=urn:btih:2B31472FAF76E0B74D7A9D4DEC084882DBB71612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ Wise Disk Cleaner 11.0.5.819 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:8BF4CB8C1B3F0DCF615B6568248BEE7C90AA3C13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:8BF4CB8C1B3F0DCF615B6568248BEE7C90AA3C13
 ```bash
 magnet:?xt=urn:btih:2D6A456E84FC3631A5D7A181854C3C5896863E93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:2D6A456E84FC3631A5D7A181854C3C5896863E93
 magnet:?xt=urn:btih:00441E5C4BFC663A77A8EA044D9663E375BAF3DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ GPU Shark - небольшая бесплатная и очень простая
 ```bash
 magnet:?xt=urn:btih:AEE705D2DEE256AA914D6F27B4A8AF84473A4B2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:AEE705D2DEE256AA914D6F27B4A8AF84473A4B2A
 magnet:?xt=urn:btih:1B148FBB3D55B165B0D5F9663340C0D389093662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ InfoCity - Азербайджанский ежемесячный журнал о
 magnet:?xt=urn:btih:2368AD404C8B755C12B186D0E0BB3606CED1FFD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:2368AD404C8B755C12B186D0E0BB3606CED1FFD3
 ```bash
 magnet:?xt=urn:btih:22B110E92FAAD38FD16BF50B132381DB7494681F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ Blocs - простой способ создания красивых сайто
 magnet:?xt=urn:btih:E8F54AF2FDF688CB64517EC2A8117B626A3C9AC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:E8F54AF2FDF688CB64517EC2A8117B626A3C9AC1
 ```bash
 magnet:?xt=urn:btih:76B0FB95313C90DB42BC60942D31A77C3648ABA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

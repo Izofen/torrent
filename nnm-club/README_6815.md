@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1AD3ADE6F59ED692074BE03B9F6E3832617BCF6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:1AD3ADE6F59ED692074BE03B9F6E3832617BCF6C
 ```bash
 magnet:?xt=urn:btih:C95B6ACECAF62D7159ED170E18F614A1875B2493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Pro Pool 2022 v1.50 [Ru/Multi]
 magnet:?xt=urn:btih:04E13248001B034457CE652B7AA4470D9DD27717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ FastCopy - инструмент для быстрого копирования/�
 ```bash
 magnet:?xt=urn:btih:34C2B1B863981F9D3F03DAD7747A539776F46916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:34C2B1B863981F9D3F03DAD7747A539776F46916
 magnet:?xt=urn:btih:1A3CF48E9160CF211D5F5C18B30499D88439A561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:1A3CF48E9160CF211D5F5C18B30499D88439A561
 ```bash
 magnet:?xt=urn:btih:C1583F2DC0CDE0DF46DE3B87FC70C0E4944AC663
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Moby - Resound NYC (2023) [FLAC|Lossless|tracks + .cue] <Electronic, House>
 magnet:?xt=urn:btih:6F243CFB0A50B1FFD7838633A01B20DA1E41E7AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Udemy, StudyEasy Organisation, Chaand Sheikh | Full Stack Java-разработ�
 ```bash
 magnet:?xt=urn:btih:89D084154BD5E673243B548181122CA6589A3924
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ HitPaw Video Editor - это простое в освоении программ
 magnet:?xt=urn:btih:BE41E233D5390BE2E89A45A99520665D2F8B1867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:242C4B08921C20AC35BA8A6A15CF8C8E8271057F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Pinta 2.1.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:23704E92A7D0FAABD6AF60E497FCEE5F6CD63664
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:23704E92A7D0FAABD6AF60E497FCEE5F6CD63664
 magnet:?xt=urn:btih:D47440F5B227F8248E27D027A70168BB4D1DD5B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:D47440F5B227F8248E27D027A70168BB4D1DD5B6
 magnet:?xt=urn:btih:38487F9F575CDDCD2BD5BCBA820B0D2E89C61036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:38487F9F575CDDCD2BD5BCBA820B0D2E89C61036
 magnet:?xt=urn:btih:CAADB3B64C79BA23EA44C8EEC9ED641B7DA342E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:CAADB3B64C79BA23EA44C8EEC9ED641B7DA342E8
 ```bash
 magnet:?xt=urn:btih:0A2B95619AF2CE699AA38E6CE9B163B5EF1D5FCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:325A128B4F2FB0A07901D23D930D5879962AAB09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Lingua GO: экранный переводчик, поддерживающий �
 magnet:?xt=urn:btih:7C354932016484A679A5221E23EEC51C9CA5DDA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:7C354932016484A679A5221E23EEC51C9CA5DDA2
 ```bash
 magnet:?xt=urn:btih:92A4861436D630B53D2AED5E3AE2D51FFD07B20D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Balabolka 2.15.0.838 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B8144D3F8E80D4A79253187A8EE4FF7FC6DB2E78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ VA - Music News vol.289 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:D76EA3F6F59446875EED6A7818F88554AB39CCD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:D76EA3F6F59446875EED6A7818F88554AB39CCD8
 magnet:?xt=urn:btih:11982AC5226AFBBF67C3E9146DEA4F97B33DC018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:11982AC5226AFBBF67C3E9146DEA4F97B33DC018
 magnet:?xt=urn:btih:090AF6163951690A944D2EB99FC8D22B7CA36409
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ Nitro Racers (2022) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:46BFF8A8146F0223EE91DFCB35506CFE6909EF98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ VA - Trance In Motion Vol.363 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 magnet:?xt=urn:btih:1A74FBA597069C1EEDD3F739B9F429E29F78A5B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ Disc 3: Orchestral ShowЖанр: Rock, BluesПродолжительность: 
 magnet:?xt=urn:btih:09AAFC0BB7A14B41D93C396079A6A16FF81E8E3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:09AAFC0BB7A14B41D93C396079A6A16FF81E8E3A
 ```bash
 magnet:?xt=urn:btih:B438450FA2288186B95634820FF22F8377E11BA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

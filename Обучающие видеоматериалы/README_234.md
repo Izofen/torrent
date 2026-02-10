@@ -20,6 +20,8 @@ Learn Squared, Joe Garth | Unreal Environments with Unreal expert Joe Garth (202
 magnet:?xt=urn:btih:B286ADC77D6E7984EE8A7C06A83A6FD3481A14E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Geekatplay™ Studio | Vue Video Tutorials, Vue FX [2008] WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:D222201BF9424AF78503B9C37C94E33648C4F021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:D222201BF9424AF78503B9C37C94E33648C4F021
 magnet:?xt=urn:btih:A1A7F0AAC52CBFC1481096B4296515EE18997BF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:A1A7F0AAC52CBFC1481096B4296515EE18997BF5
 magnet:?xt=urn:btih:C74D771FFD54AF34336CA8FE068C08AA24701B2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Mark Lauren | Bodyweight Training (2012) DVDRip [H.264] [EN]
 ```bash
 magnet:?xt=urn:btih:7B29414214041C35164FD27DEF68295B31C848CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Schoolism, Sonja Christoph | Introduction to Blender 2.9 (2021) PCRec [EN]
 magnet:?xt=urn:btih:545D72F2DA9B6A98969B86BA551577C8EC4F0239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:545D72F2DA9B6A98969B86BA551577C8EC4F0239
 ```bash
 magnet:?xt=urn:btih:96B6464C87113C406DB6CC8F3F0918D8867CAF4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:96B6464C87113C406DB6CC8F3F0918D8867CAF4E
 magnet:?xt=urn:btih:51CBF2DED4382CE1604244D2C9DC0F024F509100
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:51CBF2DED4382CE1604244D2C9DC0F024F509100
 ```bash
 magnet:?xt=urn:btih:5FE740B7DF8B6FD616AE621C783504529DA9859B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:5FE740B7DF8B6FD616AE621C783504529DA9859B
 ```bash
 magnet:?xt=urn:btih:7E6B5A431917BB7FA430FDC01C61057A8267FC61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ ProfIT | Паттерны и антипаттерны - помощники в р
 magnet:?xt=urn:btih:5FAC8A769AC75E616A9B2786B477771682BC9BA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:5FAC8A769AC75E616A9B2786B477771682BC9BA9
 magnet:?xt=urn:btih:25735229481F951074D8F7A36AAC5688B26A5F1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ Calvin Hollywood, победитель в художественной фото�
 ```bash
 magnet:?xt=urn:btih:12F1EEDCE8350147A4E0AF1967A84843E0BCD490
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:12F1EEDCE8350147A4E0AF1967A84843E0BCD490
 magnet:?xt=urn:btih:FAF69E8CB76FBF971862CB337160C91A766523B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ Udemy, Emiel Sleegers | Full Environment Creation in UE5 & Blender 2.92 - In-Dep
 ```bash
 magnet:?xt=urn:btih:42C0781A653325B7EC8475AEB948D5652E1C6A37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ Mindvalley, Джим Квик | Скорочтение (2021) WEBRip
 magnet:?xt=urn:btih:E122C8692ABBF4D64F5C0C6830C6A5FF14EFC312
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ kalachevaschool, Анастасия Лавру | Сказочный замок (
 ```bash
 magnet:?xt=urn:btih:7B094F3FA4008ABE2254A46D99572F30B0283967
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ kalachevaschool, Евдокия | Ритм улиц (2018) PCRec
 magnet:?xt=urn:btih:BFCBDCAF9603D14AF0D255866E834DE6D32E7559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ kalachevaschool, Анастасия Лавру | Мудрая сова (2018) PC
 magnet:?xt=urn:btih:FD3FA58CC7E3F935B0F9F1F06F95F25AB390BFE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ kalachevaschool, Анастасия Лавру | Добрый волшебник
 ```bash
 magnet:?xt=urn:btih:9681E8810B4D6313AA570181934F0023C6A9D7A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ kalachevaschool, Евдокия | Колоритные жители (2018) PCRec
 magnet:?xt=urn:btih:CC0285558FB4EF61BA71F8DA8401C7C980BE0D78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ kalachevaschool, Евдокия | Настроение города (2018) PCRec
 ```bash
 magnet:?xt=urn:btih:C9BDEFFB0ADD2DB2DFF20D736928B5A9385EE6FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:C9BDEFFB0ADD2DB2DFF20D736928B5A9385EE6FF
 magnet:?xt=urn:btih:9AF3879201F9A8C38CF24EFBA7D9B7DAA44CBCE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ loftschool | Платные видеокурсы [коллекция, 8 курс
 magnet:?xt=urn:btih:CF41B83A4322B8400BDB3DC94F9045055CA58B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ OTUS | Разработчик C# (2020) PCRec [H.264/1080-LQ]
 ```bash
 magnet:?xt=urn:btih:0425AC2220D45502DA4631CAAFC34D87806C73F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +694,8 @@ OTUS | iOS Разработчик. Продвинутый курс v 2.0 (2020) 
 ```bash
 magnet:?xt=urn:btih:0E35ADA305A7D822A2B0BC4C0DE5691132A8008A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

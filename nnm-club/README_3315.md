@@ -19,6 +19,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:8BD7CD3D2C14267A61310DCC363F6EE515985BB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:8BD7CD3D2C14267A61310DCC363F6EE515985BB5
 ```bash
 magnet:?xt=urn:btih:AD98468B7C6613E4BBC4EC3B8C97CCDA7BC2DCA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Eden Architect - Form And Function (2024) [FLAC|Lossless|WEB-DL|tracks] <Progres
 magnet:?xt=urn:btih:615CA921A5B671059E2BF738687C87F2CDF3E32A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Elvin Jones - Elvin! (1961, 1962) 1995, Original Jazz Classics [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:E1581D26E8374C7AC07FF4BA0B84CF5D4DEBEF92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ ColdCell - Age of Unreason (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Black Meta
 magnet:?xt=urn:btih:1FB9CB86F2102C639D6EE60B1BA3CCE5F832AFD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ CD1:
 magnet:?xt=urn:btih:936EC4B53FEB326DB1A6355AFF24CC3E4AA8A7AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:936EC4B53FEB326DB1A6355AFF24CC3E4AA8A7AF
 magnet:?xt=urn:btih:A8BC13E83BF5FE4736E849E08F50F1321960712F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:A8BC13E83BF5FE4736E849E08F50F1321960712F
 ```bash
 magnet:?xt=urn:btih:DA9023B53EB9D170278742DC3BBDAD0E6BD8E7DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:DA9023B53EB9D170278742DC3BBDAD0E6BD8E7DF
 magnet:?xt=urn:btih:DE37C8161BEEF64421B4CC006A95F995DD66A32A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:DE37C8161BEEF64421B4CC006A95F995DD66A32A
 ```bash
 magnet:?xt=urn:btih:AA257B344D5FD208B87FBA1F3D6385CB4C0DC449
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:AA257B344D5FD208B87FBA1F3D6385CB4C0DC449
 magnet:?xt=urn:btih:D347E0B591CA1C9AB15748C9F64C9B9551685712
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:D347E0B591CA1C9AB15748C9F64C9B9551685712
 ```bash
 magnet:?xt=urn:btih:3CA58E19E6C0FB69F9AC1B83262635711001D337
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:3CA58E19E6C0FB69F9AC1B83262635711001D337
 magnet:?xt=urn:btih:268568EAE238AEAE246166FCA66A1B5E0745AF93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:268568EAE238AEAE246166FCA66A1B5E0745AF93
 ```bash
 magnet:?xt=urn:btih:284746BAC5A33E3C994927D19CEA480B5570103D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ The Soul of John Black - Sweet Summer Love (2024) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:E46A9FDB670C324FEEAC3CC5F1DA527D99800492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:E46A9FDB670C324FEEAC3CC5F1DA527D99800492
 ```bash
 magnet:?xt=urn:btih:3ACEBC44F65072A56A3AD03384A193DCA3F11EBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ Whispering Sons - The Great Calm (2024) [FLAC|Lossless|tracks + .cue] <Post-Punk
 magnet:?xt=urn:btih:5F01D888A1F494CAC250DBFF55455BC79B2DF5A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ VA - Surf - Rock & Pop (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Surf>
 ```bash
 magnet:?xt=urn:btih:B757D9CDD1AED8FF1C4B96D7F2F5680FA32F3D81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ VA - Ultimate Jazz Piano Collection, Vol.1 (1950 - 1960) 10CD, 2014, Fermata [FL
 magnet:?xt=urn:btih:9D1C06B7A5688FE7C1078EFC70CB4B2F4F7C7FD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ Mike Sponza - Sounds Like Sunday (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:21044E61C9C8309FB2A39E3E454D6AD2ACB475DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ magnet:?xt=urn:btih:21044E61C9C8309FB2A39E3E454D6AD2ACB475DA
 magnet:?xt=urn:btih:355D07690F7D70AE22CC63ED9ED46B709887CAA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ Keys - The Grand Seduction (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 ```bash
 magnet:?xt=urn:btih:FE9B860D64CB09C0AF01A74C2AF31E045B5B1F37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +631,8 @@ Marcus Anderson - The Vibe (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth 
 magnet:?xt=urn:btih:43E7C623AA96E2B60F1A27A0AC9C8A3774D339F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +659,8 @@ Fab Manzini Music - Chapter One (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B9A4F59F08C880BC007275D1FF18C0AB6754D9CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +689,8 @@ Hall Aflame - Amplifire (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:59F5C982E529F5BEFB3AD1D4409EE6187821443B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ Band of the Underhand - A Cheap Ride To Heaven (2024) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:0763B423D7BE702D0073DA431FD8D652FCB70B2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

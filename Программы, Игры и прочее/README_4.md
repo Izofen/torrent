@@ -20,6 +20,8 @@ DNS Changer для Android — это первый уровень интерне
 magnet:?xt=urn:btih:A8A028D3B213AB4944526F829A70656CFE98091C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ GPS АнтиРадар v50.3 Mod by Slavatv5 [Ru]
 ```bash
 magnet:?xt=urn:btih:41E08F0180F2E60D1DFAE95D9F0A7B2E5EB7F895
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ HeadUp Display (HUD) – это возможность использовать 
 magnet:?xt=urn:btih:9B571FDB312E95A00E007A48B265750BC64FCF46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ DjVu Reader & Viewer (читалка дежавю на русском языке
 magnet:?xt=urn:btih:65034A886B2C67CF7AE3ED0AE69BCB3D4D9E85B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ DNS Changer - IPv4 & IPv6 v2.8.2 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CCADD310F85E171414DDD1B8BC4FD2F2B90AD9BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:CCADD310F85E171414DDD1B8BC4FD2F2B90AD9BE
 magnet:?xt=urn:btih:1A1D64454879908AAF3C0ABFF354A79FC5E40F7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Twinme - это бесплатный безопасный мессенджер �
 ```bash
 magnet:?xt=urn:btih:3CE63487F2240CA2E9685F6C6D2E0293FEBAD40A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:3CE63487F2240CA2E9685F6C6D2E0293FEBAD40A
 magnet:?xt=urn:btih:79D16F8A595D3C302D702AB3B1F4B7648812DA08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:79D16F8A595D3C302D702AB3B1F4B7648812DA08
 ```bash
 magnet:?xt=urn:btih:C103D18B090C165450E31FD37FFDC8033B693B32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:C103D18B090C165450E31FD37FFDC8033B693B32
 magnet:?xt=urn:btih:7427DC92B40B8B1E37B4E9E1BD850541BB1948BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:7427DC92B40B8B1E37B4E9E1BD850541BB1948BA
 magnet:?xt=urn:btih:509BD31305D0055A37163057298F3CD6A655485F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ OsmAnd+ - это приложение с картами всего мира на
 ```bash
 magnet:?xt=urn:btih:3DC20963DE2E055AD0EC14505D24B547BE96DB12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ eWeather HDF - это точный прогноз погоды от двух м�
 magnet:?xt=urn:btih:1B15D6EBEB389FB6D5118D4AA5CB09C74AD2DE93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Strava: бег, велоезда, хайкинг v424.13 Mod by PieMods [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:23EB0F0A0C77C7A6F76920CBD2D08CEE670A095C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ Polarr v6.11.6 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:A8BB10216ABC024637C498DBD290B735A93D7361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ NewPipe x SponsorBlock x Return YouTube Dislike v0.28.0 Mod by baalajimaestro  [
 ```bash
 magnet:?xt=urn:btih:69DB33752A5353000BE913F066B96700B46DB13D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ Magic Eraser - это революционное приложение для р�
 magnet:?xt=urn:btih:998B710C85B96E5D0F454841CC739AAEF37B2B5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ STEEZY - танцевальная студия №1 на вашем устрой
 ```bash
 magnet:?xt=urn:btih:7FA650BFBD4BA67F76A41FC7DFD6F549C9820C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Parrot Timer / Кухонный таймер v2.10.0 Mod by Alex.Strannik [Multi
 magnet:?xt=urn:btih:76922B090ABCEFC10ADE59ED168604B7FAB5EAF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Taskito - это приложение для управления задачам
 ```bash
 magnet:?xt=urn:btih:0D57177042E450BDD18227F515E47C558EDCC137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Squid - рукописные заметки v4.4.1 Mod by Alex.Strannik [Ru/Mult
 magnet:?xt=urn:btih:E11AB09DF754CA02ACBDD92458379F4DB8522BAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ VRadio - Online Radio App v2.8.7 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:251B4C14765852FD650D651FA4592DC2EF441D5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:251B4C14765852FD650D651FA4592DC2EF441D5C
 magnet:?xt=urn:btih:967152A8663FF92DC65E28932A4BCD32EBE0DFC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ Ventusky: Прогноз погоды v47.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C202E279CA0D7BF5CA60B58C12474629BCD27D65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ Purvpn 9.7 [En/Farsi]
 magnet:?xt=urn:btih:1B39AA50469CF4EAA831F7DBEC1E9F9747EEAD61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ OziExplorer для Android использует растровые карты, �
 ```bash
 magnet:?xt=urn:btih:1B8D65CB573BD44953B9B56A62B7D21E0EFD508B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

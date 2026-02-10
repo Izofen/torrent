@@ -1,3 +1,32 @@
+###  Публикация: 1003598   (843405) от 03.04.2016
+
+VA - Ещё Одна История: Авторская Лирика (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_843405.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Николай Шишкин - Кудесница Осень
+002. Сергей Ильин - Любовь Как В Кино
+003. Илья Гусев - Небеса
+004. Сергей Черновской - Мадам(   Читать дальше...   )Жанр: ШансонПродолжительность: 12:23:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1895BAC4BEA115050C3114458B2EA29EFCD90309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003393   (843487) от 03.04.2016
 
 VA - Just Good Friends (2016) [MP3|320 кб/с] <Pop, RnB, Rock>
@@ -21,6 +50,8 @@ VA - Just Good Friends (2016) [MP3|320 кб/с] <Pop, RnB, Rock>
 ```bash
 magnet:?xt=urn:btih:272DBFFC4E52222E12E2197BB5D33E9A8B3B4C84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Second Nature House: April Deep House (2016) [MP3|320 кб/с] <Deep House>
 magnet:?xt=urn:btih:14BC00CEACAA5B3CF4E16F3571E100656F1BA942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Blues Drive (2015) (4CD) [MP3|320 кб/с]<Blues, Blues-Rock, Modern Electr
 ```bash
 magnet:?xt=urn:btih:339F2AFDEB004A00BDA37C9DFECC0C4362CB3EBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Sweet and Sexy: 20 Amazing Lounge Anthems Vol.3 (2016) [MP3|320 кб/с] <D
 magnet:?xt=urn:btih:01A7239074738F191E6900AF50117DA4685AE066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +167,8 @@ VA - Dancing Flower Mix (2016) [MP3|268-320 кб/с] <Electro, Progressive House
 magnet:?xt=urn:btih:B8906974F4EBAD10F7B0380041BECFA293E98C82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +192,8 @@ magnet:?xt=urn:btih:B8906974F4EBAD10F7B0380041BECFA293E98C82
 ```bash
 magnet:?xt=urn:btih:DA9CCA37E9D66F76DB086E75E4657DA7FD785962
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +228,8 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 magnet:?xt=urn:btih:50F3DEDCA337A7A92C4DE3A10E41D8F0C622B2C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +256,8 @@ VA - Shazam Хит-парад World Top 200 Сентябрь (2021) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:36BD8927E3265FCCB39566EAE8A14B5BEE71C160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +286,8 @@ Dance:
 magnet:?xt=urn:btih:C1DD5834A1114CD148CDD9F019E90EB5E4E8D488
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +314,8 @@ DJ Ramezz - Collection Of Remixes (2020-2021) [MP3 320 Kbps] <Eurodance, Dance P
 ```bash
 magnet:?xt=urn:btih:1DE1E9822B48A461DFBB45FC99CC63191A77DB12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +344,8 @@ Jimi Hendrix - Guitar King (2021)(2CD Compilation) [MP3|320 Kbps] <Rock, Hard Ro
 magnet:?xt=urn:btih:7FE556F90E9E12836D5E84E9297E34FC7B1E8B6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +372,8 @@ VA - Heavy Gaming Vol.01 - 18 (2014-2015) [MP3|128-320 кб/с]<Rock/Metal>
 ```bash
 magnet:?xt=urn:btih:5A142F9F0D1E4F3CF6CD02048DC5B7931D2FF8EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +402,8 @@ George Harrison - 100% George Harrison (2020) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:3C34AAF2FD5E5B4DEC14547E46F61B2CBA059B8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +430,8 @@ VA - Туман (2020) [MP3|256 Kbps] <Pop, Shanson, Other>
 ```bash
 magnet:?xt=urn:btih:D35B2E767F7EB0F39B257D01D02345DCFD297C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +460,8 @@ VA - Популярный Хит От Радио Дача (2016) [MP3|256 кб/�
 magnet:?xt=urn:btih:C342289CA862AE7511B47A47D496FA76986D8982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +488,8 @@ Peter Green - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:BCD035668EE91B0B061DBF518623AB4FEADBAB36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +518,8 @@ John Lee Hooker - 30 most slow Blues (2017) 2CD  [MP3|320 Kbps] <Blues>
 magnet:?xt=urn:btih:43CA901FD93CB231C5D65DF3497796636EF59E69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +546,8 @@ VA - Fall Of Medusa: Hard Classic Rock 90s (2017) [MP3|320 Kbps] <Classic Hard R
 ```bash
 magnet:?xt=urn:btih:9878B98256C8B7F4B0D1656F00886D9881296765
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +576,8 @@ VA - Record Super Chart 633 (2020) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:ABCA5E1F63A1670E6B88952342483B227558231C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +604,8 @@ VA - Hard Fusion: Hardstyle Music For Sport (2020) [MP3|320 Kbps] <Hardstyle, Da
 ```bash
 magnet:?xt=urn:btih:3D8A4EBD8A50D459D25641E766A48CE046220B21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +634,8 @@ VA - Top 100 Зайцев Нет март (2016) [MP3|160-320 кб/с] <Pop, Dan
 magnet:?xt=urn:btih:40DD50C9CCA7393106FDEBAD5E01010E741D10F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +662,8 @@ Meditation Shaman Medicine - The best of Indians Songs (2005) [MP3|320 кб/с] 
 ```bash
 magnet:?xt=urn:btih:E202107600D0050EB9BFA26C93E6C71A32A3B227
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +692,8 @@ VA - Девочки танцуют 2017 (mixed by Dj V) (2017) [MP3|320 Kbps] <C
 magnet:?xt=urn:btih:76145F8AC300F47010988DA02CBEFDB2D13D68FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +720,8 @@ VA - Музыка хорошего настроения 6 (2016) [MP3|256 кб/�
 ```bash
 magnet:?xt=urn:btih:E9232A37C5AF2F8ED8B642F32BC6AE5A47DE7D5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,32 +750,7 @@ VA - Текила-любовь. Топ новинок (2017) [MP3|256 Kbps] <Pop
 magnet:?xt=urn:btih:B084DD64AB847165E34F6E7DF4946C236C001964
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002845   (845114) от 02.04.2016
-
-VA - Nude Mix #3 (2016) [MP3|320 кб/с] <Drum & Bass, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_845114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Icarus feat. Aniff Akinola - Ride This Train (Ivy Lab Remix) (05:12)
-02. Wilkinson feat. Wretch 32 - Flatline (04:10)
-03. Hidden Agenda - The Sun (07:47)
-04. Big Bud - Millenium (Carlito Remix) (07:56)(   Читать дальше...   )Жанр: Drum & Bass, DubstepПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9E97FA154A20CF6297FE38BCDB8039E55F296CB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

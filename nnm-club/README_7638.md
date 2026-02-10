@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5EAD7C98F8E1A97B02CBD5410F35377B9B84EEEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ MetaImage - это идеальный инструмент для чтения, 
 magnet:?xt=urn:btih:D17FEDB19BD2CD8D2F8A670C20B260AEB75FB187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:D17FEDB19BD2CD8D2F8A670C20B260AEB75FB187
 magnet:?xt=urn:btih:22898EC7A2AA39B3FB79DBADAD62B915ABCBF0D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:22898EC7A2AA39B3FB79DBADAD62B915ABCBF0D4
 ```bash
 magnet:?xt=urn:btih:37539E22B80B19CBCAC70BE6476B87B62B8D29E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:37539E22B80B19CBCAC70BE6476B87B62B8D29E3
 magnet:?xt=urn:btih:AD9C4F4A4107D610DBC778B82F4E354FB9DC1FD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:2F494058085CCABCA1827AAB9675BE6BD4B68718
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Arouse the Darkness - Cemetery Of Buried Hopes (2022) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:3A50E1113498F1A94D2284FC0ACF726771A33B90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Howl at the Sky - In Line for the End Times (2023) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:46531AD9AF657CE6ADF062781101FB1EF4F98657
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Evil Hunter - Lockdown (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:4837FFC486786166305EFC54DFF3AB8ACAD45B8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ Windows хороша, но всегда есть, что улучшить. Во�
 ```bash
 magnet:?xt=urn:btih:0D0CEC04EEE7B6C8A08C9D97C920807C97C451B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ Udemy, Nexttut, Hamidreza Afshari | Texturing a Complete Scene in Substance 3D P
 ```bash
 magnet:?xt=urn:btih:B261378257117962B7AC8FE05D05ABC5F2EBD2EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ Archeonic - Digital Pain (2021) [FLAC|Lossless|image + .cue] <Technical Death Me
 magnet:?xt=urn:btih:78B91DB9A179CBD4CF0A3753C9FFC3A75D485818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:78B91DB9A179CBD4CF0A3753C9FFC3A75D485818
 ```bash
 magnet:?xt=urn:btih:76A1C681DA9A7B9E8C81C37DBE28F2CDDC456A70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:76A1C681DA9A7B9E8C81C37DBE28F2CDDC456A70
 magnet:?xt=urn:btih:C3F03EF07B5F069CACA58CCA172F938751B89F55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:C3F03EF07B5F069CACA58CCA172F938751B89F55
 magnet:?xt=urn:btih:F98DB47CCA01627D27A38EFCE78B366739BE2FBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ Windows 11 PE x64 by Xemom1 (30.05.23) [Ru]
 ```bash
 magnet:?xt=urn:btih:44A78E474F519973FA35435BA28B07A4E65DD6E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ Amon - Shemhamforash (1995) [FLAC|Lossless|tracks] <Death, Black Metal>
 magnet:?xt=urn:btih:E5CEC37B8F63004A93FF2653897EB82BF9843B68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:E5CEC37B8F63004A93FF2653897EB82BF9843B68
 ```bash
 magnet:?xt=urn:btih:8EC2F3071903E09304E78AA6745384D30625C231
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ WinToHDD - простая в использовании программа дл�
 magnet:?xt=urn:btih:019CE3FFCDFF66931809D45758560BB9F785CC88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:4BC06F213BEAB2F009365696E6E9CCE108E71E49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:4BC06F213BEAB2F009365696E6E9CCE108E71E49
 magnet:?xt=urn:btih:DEC50D71967E2F832B1EF5E371787E7711E0E265
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:DEC50D71967E2F832B1EF5E371787E7711E0E265
 ```bash
 magnet:?xt=urn:btih:AE1C418BEDFBA8F1ECD3E82B75ACD205BFD815E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ Jeanine Meye | The Essential Guide to HTML5: Using Games to Learn HTML5 and Java
 magnet:?xt=urn:btih:00AE46B8A65A4ACA10A44BA71E4D277F861DB924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:00AE46B8A65A4ACA10A44BA71E4D277F861DB924
 ```bash
 magnet:?xt=urn:btih:9BE26D66674AB80F52D29D52D32E999DCCE4686B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ Ealee - Лабиринт (2023) [MP3|320 Kbps] <Alternative Rock>
 magnet:?xt=urn:btih:3443A1505ED4A1D2BA9B7E1CD8653748A532137A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ Anubis Gate - Interference (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Po
 ```bash
 magnet:?xt=urn:btih:9A5E27BF1FC3DC2A47E0BFB2F41F5A1472A91F3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

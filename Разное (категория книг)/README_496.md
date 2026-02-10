@@ -1,3 +1,32 @@
+###  Публикация: 1396074   (749933) от 13.07.2020
+
+Захар Прилепин | Имя рек. 40 причин поспорить о главном (2020) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_749933.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Быть может, у меня ничего не получилось, но я так не думаю.
+Перед вами – итоги моих болезненных размышлений о нашем с вами Отечестве.
+Чтоб понять, кто мы и зачем, нужно было заново пересобрать все представления, и я бережно, с тщанием ребёнка, пересобрал.
+В какой точке бытия находимся мы и куда следуем. Что есть Родина. Какое отношение мы имеем к Древней Руси. Насколько (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B249EC0BD94EE05646B68EBB6A7FCB617DE9107B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019517   (750084) от 23.05.2016
 
 Игорь Дьяконов, Алексей Краснов | Ожирение и способы похудения (2014) [FB2]
@@ -20,6 +49,8 @@
 ```bash
 magnet:?xt=urn:btih:ED8BA1F90F1C9E94810F272396AD754690AADCB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +76,8 @@ magnet:?xt=urn:btih:ED8BA1F90F1C9E94810F272396AD754690AADCB6
 magnet:?xt=urn:btih:3F5084CD8C745309706358A97D0827541B9AF41E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +101,8 @@ magnet:?xt=urn:btih:3F5084CD8C745309706358A97D0827541B9AF41E
 ```bash
 magnet:?xt=urn:btih:5571341C9FC41F5BD83703A8177FFDE64DF46737
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +128,8 @@ magnet:?xt=urn:btih:5571341C9FC41F5BD83703A8177FFDE64DF46737
 magnet:?xt=urn:btih:BD7B5FF1F68C1A114E6F12EC839574B8BC41A542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +153,8 @@ magnet:?xt=urn:btih:BD7B5FF1F68C1A114E6F12EC839574B8BC41A542
 ```bash
 magnet:?xt=urn:btih:543DEF9CCF61BC0D849E299FDF8CE3C2A46D9BE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +182,8 @@ magnet:?xt=urn:btih:543DEF9CCF61BC0D849E299FDF8CE3C2A46D9BE7
 magnet:?xt=urn:btih:B0E80A5CAB9F145196A21AAB47635B659F46196C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +207,8 @@ magnet:?xt=urn:btih:B0E80A5CAB9F145196A21AAB47635B659F46196C
 ```bash
 magnet:?xt=urn:btih:67606FACBBE9DCC7695DE4966D8649790C90E103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +234,8 @@ magnet:?xt=urn:btih:67606FACBBE9DCC7695DE4966D8649790C90E103
 magnet:?xt=urn:btih:41A86D3A736006824C38ED9C6C0CD7394209CDDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +259,8 @@ magnet:?xt=urn:btih:41A86D3A736006824C38ED9C6C0CD7394209CDDE
 ```bash
 magnet:?xt=urn:btih:61834763F5593C4B587012CF7ADF0E8CA0E6C2DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +289,8 @@ magnet:?xt=urn:btih:61834763F5593C4B587012CF7ADF0E8CA0E6C2DE
 magnet:?xt=urn:btih:27AABCAAE9CCE112B50A6FC9EF099EFBDEE9B307
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +314,8 @@ magnet:?xt=urn:btih:27AABCAAE9CCE112B50A6FC9EF099EFBDEE9B307
 ```bash
 magnet:?xt=urn:btih:2BE84932A0D96A751E339E06BA7329205F68F7C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +341,8 @@ magnet:?xt=urn:btih:2BE84932A0D96A751E339E06BA7329205F68F7C0
 magnet:?xt=urn:btih:15B79C8AFC5BB3F8EE6CFD64D583690FC4555E2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +366,8 @@ magnet:?xt=urn:btih:15B79C8AFC5BB3F8EE6CFD64D583690FC4555E2C
 ```bash
 magnet:?xt=urn:btih:8665BA2AACD08D4AE359CBB3A26F0D6D1D3D1B68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +393,8 @@ magnet:?xt=urn:btih:8665BA2AACD08D4AE359CBB3A26F0D6D1D3D1B68
 magnet:?xt=urn:btih:4F168541B0C0319E3ABCE84B4B41B52242142E1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +418,8 @@ magnet:?xt=urn:btih:4F168541B0C0319E3ABCE84B4B41B52242142E1E
 ```bash
 magnet:?xt=urn:btih:0168AB0314DA0002A3D115C6E1DE0DD43775AA4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +446,8 @@ magnet:?xt=urn:btih:0168AB0314DA0002A3D115C6E1DE0DD43775AA4A
 magnet:?xt=urn:btih:4BAE8B0CBA783C7F00DF8E285CAD164555E33546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +472,8 @@ magnet:?xt=urn:btih:4BAE8B0CBA783C7F00DF8E285CAD164555E33546
 magnet:?xt=urn:btih:081062E08DFEFA40083F33BEB4462DC34AE83FC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +497,8 @@ magnet:?xt=urn:btih:081062E08DFEFA40083F33BEB4462DC34AE83FC7
 ```bash
 magnet:?xt=urn:btih:257EF1C1B11B32A83C7320BC389A49EDAB928714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +525,8 @@ magnet:?xt=urn:btih:257EF1C1B11B32A83C7320BC389A49EDAB928714
 ```bash
 magnet:?xt=urn:btih:797A43145835B9CA37B750C608DC6B4D01A21ACB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +555,8 @@ magnet:?xt=urn:btih:797A43145835B9CA37B750C608DC6B4D01A21ACB
 magnet:?xt=urn:btih:2ED69CFEBFD1A53EEC601194201D6E5284A3EEF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +580,8 @@ magnet:?xt=urn:btih:2ED69CFEBFD1A53EEC601194201D6E5284A3EEF9
 ```bash
 magnet:?xt=urn:btih:F0F2DAE1269FC6F65F973FF775DD414149ED750D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +609,8 @@ magnet:?xt=urn:btih:F0F2DAE1269FC6F65F973FF775DD414149ED750D
 magnet:?xt=urn:btih:5327FFCC146089CDACD79945656C15FE172DD152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +634,8 @@ magnet:?xt=urn:btih:5327FFCC146089CDACD79945656C15FE172DD152
 ```bash
 magnet:?xt=urn:btih:18C75C7B60570B500900014551BE0879AB333E71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +661,8 @@ magnet:?xt=urn:btih:18C75C7B60570B500900014551BE0879AB333E71
 magnet:?xt=urn:btih:30CF70CBD1158E16A2FBF8EF6B669A237C193137
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +687,7 @@ magnet:?xt=urn:btih:30CF70CBD1158E16A2FBF8EF6B669A237C193137
 magnet:?xt=urn:btih:EC4BAAE30995DCD3C20B4D43F2C2474897FA5D35
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395535   (753320) от 11.07.2020
-
-Бекки Рапинчук | Органическая уборка для безопасности всей семьи. Дом без химии (2020) [FB2]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_753320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бекки Рапинчук – любящая жена, мама троих детей, успешный предприниматель, а также настоящий эксперт по эффективной уборке дома! Опираясь на исследование, доказывающее взаимосвязь между бытовой химией и хроническими заболеваниями, Бекки представляет читателям комплексную систему уборки с помощью натуральных и экологически чистых средств.Жанр: ДомоводствоПеревод: А.Ю. СоколоваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8FD09448D8DDD11F310156633DE07059013B26
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

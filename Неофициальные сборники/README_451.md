@@ -1,3 +1,32 @@
+###  Публикация: 1129878   (718702) от 30.04.2017
+
+VA - Deluxe Drum And Bass (2017) [MP3|320 Kbps] <Drum & Bass, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718702.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3D Stas - Heroine Beat (Original Mix)
+002. 9TRANE - Heard Me (Strong4Life Remix)
+003. Junkie XL - Heart Of Darkness
+004. DJ Red - Bad Hombres (Richard Wette VIP Remix)(   Читать дальше...   )Жанр: Drum & Bass, DubstepПродолжительность: 08:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18CF0C23ECE73DE9524E1BCA19E3A83C1F0D4343
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130019   (718710) от 30.04.2017
 
 VA - Empire Records - Club Hit 13 (2017) [MP3|320 Kbps] <Club, Dance>
@@ -21,6 +50,8 @@ VA - Empire Records - Club Hit 13 (2017) [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:7B5C245789D100C4151EC8A01991C20BE63DBDF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Digital Infinity - Digital Infinity (2022) by Gertrudda [MP3|320 Kbps] <Synthwav
 magnet:?xt=urn:btih:AE9F42E5916DB4846E87F62C58A55F8C5C23139B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Melodic Therapy (2019) [MP3|320 Kbps] <Melodic Techno, Progressive House>
 ```bash
 magnet:?xt=urn:btih:4CD8C74A1AF3BDB09D827A578A0C6DE3A045934A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Vocal The Air Trance (2019) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:D2C6E77527E0198A5E268867C5A67FD1B73850EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Forgotten Memories: Dubstep Trap Bass (2017) [MP3|244-320 Kbps] <Dubstep, E
 ```bash
 magnet:?xt=urn:btih:928CC9EC85E5094FAFB8A98172EF7697E32C99D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Mush-Up Dance Music (2017) [MP3|320 Kbps] <Club, Dance, House, Mush Up>
 magnet:?xt=urn:btih:0543F8EE33C1E305B4FA8600CA52C91BB4C8E561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Electro House Party (2017) [MP3|320 Kbps] <Electro House , Club House>
 ```bash
 magnet:?xt=urn:btih:FE27EC9841D3F4C50914011D84888C4EDDB86087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Best New Synthpop (2020) [MP3|320 Kbps] <Synthpop, Dance>
 magnet:?xt=urn:btih:CCA30D9413DF959D3A4C22E051C1EA9AFD81B9AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Options Remake Of Tracks February -B- (2019) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:5E415C390719E60F62019C6F03F93CB9EC737224
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Romantic Vocal House (2019) [MP3|320 Kbps] <Vocal House, Electro>
 magnet:?xt=urn:btih:2AE9734E26F70C970B8059B90ED66D4DFAB73866
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - New Music Releases Week 8 of 2019 (2019) [MP3|320 Kbps] <Pop, Hip Hop, Alte
 ```bash
 magnet:?xt=urn:btih:015E8997896EA759A115BBACBDF73EBF6BE71BBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - German Top 50 Party Schlager Charts 25.02.2019 (2019) [MP3|320 Kbps] <Pop, 
 magnet:?xt=urn:btih:1A1B1BE63885ABCEECE6D175A0C6F5F5BDE4643B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Русский Рок. Лучшее 2018 (2018) [MP3|320 Kbps] <Рок>
 ```bash
 magnet:?xt=urn:btih:35875247D6017389F6A19946BC340BD588906CB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - German Top 50 Official Dance Charts 22.02.2019 (2019) [MP3|320 Kbps] <Pop, 
 magnet:?xt=urn:btih:1CCAB0CA0332FF15D976AC241214BC87CE8496B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +457,8 @@ VA - Psy Core Trance Psychedelic (2020) [MP3|320 Kbps] <Goa, Psychedelic Trance>
 magnet:?xt=urn:btih:3A7972DED7F1208E592D052BEBF28B1AB7583F18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +485,8 @@ VA - Top 100 Club Tracks (May 2016) (2016) [MP3|320 кб/с] <Dance, Club, Club 
 ```bash
 magnet:?xt=urn:btih:CE05BDA0327695429010C4E96848CD2AE53B65CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +520,8 @@ magnet:?xt=urn:btih:CE05BDA0327695429010C4E96848CD2AE53B65CC
 magnet:?xt=urn:btih:6976F105D4C8191B3E3A3BBE526845F0A5D8807E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +549,8 @@ VA - Высшая лига DFM 50x50 (2016) [MP3|256 кб/с] <Pop>
 magnet:?xt=urn:btih:43EC400792F6BBBF28EEF40AAABAF505FD49CB22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +576,8 @@ VA - Young, Fresh & Disco (2016) [MP3|320 кб/с] <Soulful House, Dance,Nu-Disc
 ```bash
 magnet:?xt=urn:btih:9399D1DE4AE1A0E71EA73092359B6C615916DFFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +606,8 @@ VA - Workout Mix vol.5 (mixed by Dj V) (2016) [MP3|320 кб/с] <Club House, Ele
 magnet:?xt=urn:btih:632A07650403EB6957BDC8FD2CB810F031646A5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +634,8 @@ VA - Charitable Foundation - Last Night Saved DJ (2016) [MP3|257-320 кб/с] <T
 ```bash
 magnet:?xt=urn:btih:0588B7B970C84C39E1C2B3DE7A032C6631B83FF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +664,8 @@ VA - Easy Jazz Love Songs (2016) [MP3|320 кб/с] <Jazz, Instrumental, Easy Lis
 magnet:?xt=urn:btih:746F83D0424993D3DB515E63F7835B49E30F3576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +692,8 @@ VA - Love Therapy: Romantic Piano and Instrumental (2016) [MP3|320 кб/с] <Dow
 ```bash
 magnet:?xt=urn:btih:970BFB6077868C91A98931D42DE89EBCF31BB7B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +726,8 @@ VA - Drum & Bass Collection 22 (17.04.2011) [MP3|320 kbps]<Drum & Bass>
 magnet:?xt=urn:btih:56581802B952586A7749C5E3DCD8B08FF5E9A262
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,32 +755,7 @@ VA - Ultimate Dance Crazy Shakers (2016) [MP3|253-320 кб/с] <Dance, Euro, Dis
 magnet:?xt=urn:btih:1ACF79E81EFFCAEE8D53DE60AE868489F0A3F247
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024131   (720566) от 07.06.2016
-
-VA - Summer Club Charts (2016) [MP3|320 кб/с] <Electronic, House, UK Garage, Tropical, Progressive, Tribal, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Mix - Summer Club Charts DJ Mix 2016, Pt.1 01:07:55
-02. DJ Mix - Deep House Anthems DJ Mix 2016, Pt.2 01:17:19
-03. DJ Mix - EDM Festival DJ Mix 2016, Pt.3 01:06:46
-04. Avicii - Waiting for Love 03:50(   Читать дальше...   )Жанр: Electronic, House, UK Garage, Tropical, Progressive, Tribal, Future HouseПродолжительность: 07:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987D4C93BDEE05A4F7CC913E05DE798D98AD5E95
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

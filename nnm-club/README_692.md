@@ -19,6 +19,8 @@ Crow Country (2024) [Multi] (Build 18435138) Repack Let'sРlay
 magnet:?xt=urn:btih:B1BE10F7A874AD9525293BB834DD4E8D08DB3DED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:B1BE10F7A874AD9525293BB834DD4E8D08DB3DED
 magnet:?xt=urn:btih:0209F43B85F4E6FC0F1DCAC0DC811FBA83359FF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Howl no Ugoku Shiro | Howl's Moving Castle | Ходячий Замок [2004, Mo
 ```bash
 magnet:?xt=urn:btih:4589389CD0A39014F8AA5FAD78779F4E2802E869
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:4589389CD0A39014F8AA5FAD78779F4E2802E869
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:4589389CD0A39014F8AA5FAD78779F4E2802E869
 ```bash
 magnet:?xt=urn:btih:12D74178E5108A59E259BAB0649ED6AEE1A92DE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:12D74178E5108A59E259BAB0649ED6AEE1A92DE6
 magnet:?xt=urn:btih:7F21454427B1DA589E5D688062FF8F045CC68DF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:7F21454427B1DA589E5D688062FF8F045CC68DF7
 ```bash
 magnet:?xt=urn:btih:905143D500B093FEF66112631110A40F5CCD8039
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Crystal Project - фэнтезийный приключенческий прое
 magnet:?xt=urn:btih:094F92CA1D07BA60A46E18E1A7E1F1E64938B0B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:FA54D5064DAD3C72C965A18C937C95A9B55FBBF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:FA54D5064DAD3C72C965A18C937C95A9B55FBBF5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:FA54D5064DAD3C72C965A18C937C95A9B55FBBF5
 ```bash
 magnet:?xt=urn:btih:F80A6CA19F89B95D10583C8ECDF3D48ACEA8F1F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:F80A6CA19F89B95D10583C8ECDF3D48ACEA8F1F1
 magnet:?xt=urn:btih:0D7F15462E675A7EE53602FB19F8F3707A5862F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:0D7F15462E675A7EE53602FB19F8F3707A5862F2
 ```bash
 magnet:?xt=urn:btih:DCB148D3E8025C5C810C29CB143B29FC1A7CBBD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:DCB148D3E8025C5C810C29CB143B29FC1A7CBBD5
 magnet:?xt=urn:btih:71B7BF90CA515FE09D2B902C12BF347993B7AB1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ The Sinking City - игра-расследование в мире по моти
 ```bash
 magnet:?xt=urn:btih:35A392AFABC6167D2EA7E6DA150A78E6FEA2C2D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:35A392AFABC6167D2EA7E6DA150A78E6FEA2C2D9
 magnet:?xt=urn:btih:D4ED19D8980FDB217E8F917F40DE00346986B9C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Citadelum (2024) [Ru/Multi] (2.0.0.17/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:34D25FC79582ADE34F02FEDED8C4A31C144695A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:34D25FC79582ADE34F02FEDED8C4A31C144695A2
 magnet:?xt=urn:btih:13719BACD5586D75E4CFC7E95E7ED8F4C9D79B4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Duck Detective: The Secret Salami (2024) [En] (1.2.5) License GOG
 ```bash
 magnet:?xt=urn:btih:C3874140E5D30283705A1FBFF2E49C2E296AA151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:C3874140E5D30283705A1FBFF2E49C2E296AA151
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:C3874140E5D30283705A1FBFF2E49C2E296AA151
 ```bash
 magnet:?xt=urn:btih:C431DC0A5DBA0E7C4FA9C7427A8A38C56C78D597
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Drug Dealer Simulator (2020) [Ru/Multi] (1.2.19.1) License GOG
 magnet:?xt=urn:btih:924D4236FC764C6444EC2A9E523672F0C8160622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:924D4236FC764C6444EC2A9E523672F0C8160622
 ```bash
 magnet:?xt=urn:btih:68993767C1FE535B6810D74D3B72AB0708E4D71C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Battle Brothers - тактическая ролевая игра с открыт
 magnet:?xt=urn:btih:13112616DD55AA1FBC69CFC4D713101461A2D82C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Black Mesa («Чёрная Меза», ранее известная как Blac
 magnet:?xt=urn:btih:67BF7F3EBE6BF20678268A0082BC15053A0884BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Wildermyth - ролевая игра с процедурно генерируе�
 ```bash
 magnet:?xt=urn:btih:1F0CA0F31CBFFA91DE1D5CDD9A3E5BF9DDE97753
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

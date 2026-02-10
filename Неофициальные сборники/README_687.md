@@ -1,3 +1,32 @@
+###  Публикация: 1844932   (1050403) от 28.12.2025
+
+VA - Record Super Chart 27.12.2025 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AY YOLA - Homay (4:04)
+02. David Guetta & Sia - Beautiful People (3:07)
+03. Calvin Harris & Clementine Douglas - Blessings (3:39)
+04. Rudimental & Khalid - All I Know (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC67879830CC08C4CD5AA23E44010669D9F183C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844326   (1050411) от 28.12.2025
 
 VA - No name compilation part 33 Electronic Deep Chill House Other (2025) [MP3|320 Kbps] <Electronic Deep Chill House Other>
@@ -21,6 +50,8 @@ VA - No name compilation part 33 Electronic Deep Chill House Other (2025) [MP3|3
 ```bash
 magnet:?xt=urn:btih:7F00658652469EA6E355AFD5DB39DA6A68470CCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - No name compilation part 35 Electronic, Vocal, Other (2025) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:9A2EF3A81B2CA950D39FE3D6FF05B5C639EBAE6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - No name compilation part 34 Electronic, Vocal, Other, Ai (2025) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:7F147EB64E9995505E1DF7C410220E4C069C0683
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Party Time 2.0 (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Nu Disco,
 magnet:?xt=urn:btih:5C5E3BF20F8AC70BA0990675613EB0050D6AF642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Fortune Teller Blues - Smming up the Results (2025) [MP3|320 Kbps] <Blues, 
 ```bash
 magnet:?xt=urn:btih:3AD37F7C4320E76FFE4C47E1B12C8216AD1DE377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ Richard Marx - Collection от ALEXnROCK (2025) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:216FFD40B1BA273BFD8180D889C72145FDF5AC85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Blues compilation part 2 Soulful Blues Ballads (2025) [MP3|320 Kbps] <Soulf
 ```bash
 magnet:?xt=urn:btih:1B5F24CA3F3DA72EE60F41FD51FFEA9699F124EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Blues compilation part 1  Blues (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:FB58B39CB9F9FD8A939A03F439E409222017BE61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ AI - Russian Covers Part 3 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:1ACF12F338525BEEB239283734B7F32B1372395B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ Frezee - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Swing Jazz, Nu Jazz,
 magnet:?xt=urn:btih:3D6D6446B20058579C4555E803A3497C55DA9DC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ Ai - Inspired  Blues & Soul Songs Part 1 (2025) [MP3|320 Kbps] <Blues & Soul Son
 ```bash
 magnet:?xt=urn:btih:F20186E045D7E44D5796AB74C1690543E5FC73F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Beat, Bass, Melody vol.4 (mixed by Dj V) (2025) [MP3|320 Kbps] <Euro Trance
 magnet:?xt=urn:btih:6013BF96D0AC57F5EDFBD9C95A20AA5069E16998
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Свежий Русский Хит от ALEXnROCK часть 19 (2025) [MP3
 ```bash
 magnet:?xt=urn:btih:F6B44FC8727A10CC14D1B11D3D1B91F542E0CFE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ Ai - Inspired Blues & Soul Songs Part 2 (2025) [MP3|320 Kbps] <Blues & Soul Song
 magnet:?xt=urn:btih:63C2E8B1D41557EB60DA662ED463F5510F129DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ Nina Blaze - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Blues, Blues Roc
 ```bash
 magnet:?xt=urn:btih:1C30E844AB61296CF2EEAF6689E6347475E84C02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ Ai - No name compilation part 36 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slo
 magnet:?xt=urn:btih:55EBC9ED2E2734DE9BF0B357853706520B272F37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ Ai - No name compilation part 37 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slo
 ```bash
 magnet:?xt=urn:btih:78FA0F11E941BC90C7D63C65DC10C77DB94FCF3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ VA - Blues compilation part 3 Blues Ballad (2025) [MP3|320 Kbps] <Blues Ballad>
 magnet:?xt=urn:btih:B80D79FB9A66DB6B92C4C9168DA6AA4F8AC11B21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ Ai - No name compilation part 38 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slo
 ```bash
 magnet:?xt=urn:btih:2CE99E37B7DD8AEE82C04625120A4508F13D51C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ Ai - No name compilation part 39 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slo
 magnet:?xt=urn:btih:76612176BCBFE76C6184AFCD600E0542D371A9E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ VA - Лучшие песни Наше радио за 2025 год (2026) [MP3|32
 ```bash
 magnet:?xt=urn:btih:78ABCA902B1740F0736926121E1FD004281EB72B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ VA - Hard Rock: Steel Anthems (2025) [MP3|320 Kbps] <Hard-Rock, Metal, Core>
 magnet:?xt=urn:btih:C3483B0A3AD94B8EC8CE88C3E69B12E72E83E696
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ VA - Зима на Love Radio (2026) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:9B1EAEDF5D3EF8947CC043E76063A6CD671428A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ VA - Лучшие песни Радио Рекорд за 2025 год (2026) [MP
 magnet:?xt=urn:btih:6872A68585F3A7596FE1139C7113951DAFF94B2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ Nina Blaze - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues Ballad, Bl
 magnet:?xt=urn:btih:B9213935668D02B272217A5523ADABE3421C2BAE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845949   (1051083) от 04.01.2026
-
-Nina Blaze - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Blues Ballad, Blues Rock, AI>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Echoes in the Hollow
-02 - Endless Nights
-03 - Storm Where My Heart Should Be
-04 - Blue Remains(   Читать дальше...   )Жанр: Blues Ballad, Blues Rock, AIПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E7F9ED25871888295684927E4D175B7AC1141A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

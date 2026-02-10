@@ -19,6 +19,8 @@ Ink Inside (2024) [Multi] (1.0.2) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:C464D2471E35C9EE617D006F8C37D7D04AF6CF96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Binding of Isaac: Rebirth - это RPG-шутер с элементами и
 ```bash
 magnet:?xt=urn:btih:86E1B5AF22E0B09F037524F15BFAD2011A8B56D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Only Up 2! (2023) [Ru/Multi] (1.0) Repack dixen18
 magnet:?xt=urn:btih:4E7ACF8B2A37DF72B8930495879B7A6F1EFC9751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Only Up! Skibidi Together (2024) [Ru/Multi] (1.0) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:463B7ACDA384C151C242A2CC0BCE7919E0246EB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Viscera - это шутер с видом сверху, вдохновленны
 magnet:?xt=urn:btih:08A0C379997164E8BDB0C6437BBD65E8C5B94C01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Exographer (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7AAF69EEFBBECD21E10A05676E0355DF294A4ED9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Nine Sols (2024) [Ru/Multi] (202412161711) Repack FitGirl
 magnet:?xt=urn:btih:89A77DDEBEA373444E81ECE9F2A5ABF5616DB1FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Kong: Survivor Instinct - это 2.5D экшен-платформер, дейс�
 ```bash
 magnet:?xt=urn:btih:263970F52CAEA6B9D23E0CB2EFD19C8354CA3A26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Ashes of the Union (2024) [Ru/Multi] (0.3.5 Hotfix 2) Repack FitGirl
 magnet:?xt=urn:btih:B984BE60C4990A7F714A40B31D5607CCE72C36A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Tekken 8 - продолжение культового файтинга, нап�
 ```bash
 magnet:?xt=urn:btih:34C891649802945251E92451FFB946B1B62CE853
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ No More Snow (2023) [Multi] (1.2.0) License GOG
 magnet:?xt=urn:btih:0AF73EABBAA947C7C5AF37DFBCA197BC2798425D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ TRANSFORMERS: Galactic Trials (2024) [Multi] (1.0) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:68B0F0191BB1DE4B45ACFE5ACABDD77C33FA99F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.3.0.0) Repack seleZen
 magnet:?xt=urn:btih:80D9EB67B6A2BB775366A659BF12A20F81FF8B6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Tales of Kenzera: ZAU - это не типичный экшен. Здесь вы
 ```bash
 magnet:?xt=urn:btih:C8FDFD1626412278052A52D800AE3354D96BB58E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Kong: Survivor Instinct - это 2.5D экшен-платформер, дейс�
 magnet:?xt=urn:btih:515C70F6D69D02A623F492316BE6950A8BA97297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Chasm (2018) [Multi] (1.093) License GOG
 ```bash
 magnet:?xt=urn:btih:822FE43AAC4017CE3C1B974688C178DD0F19FE6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Disney Epic Mickey: Rebrushed оживляет магию мира Disney в к�
 magnet:?xt=urn:btih:4EA5E6EF2B855418528C62418A50AD0FB0996A37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ South Park: Snow Day! перенесет вас в хаотичный, засн�
 ```bash
 magnet:?xt=urn:btih:0ADB52A63DC15AB84CBAD4787B99F106FF167FBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ One Boss One Fight (2024) [Ru/Multi] (1.10) Repack Let'sРlay
 magnet:?xt=urn:btih:9608ECAB9E6A9375D0E61ACAB6A5EB29BD6DD1F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ igaBash - приключенческая игра про огромных мон
 ```bash
 magnet:?xt=urn:btih:C261EB788EB8325566CFB2B6B073EF99C5ECCD49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ igaBash - приключенческая игра про огромных мон
 magnet:?xt=urn:btih:F257CCD6901B00140A4E6751993616054E5B72DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Muppet Monster Adventure (2000) [Ru] (1.0.0.1) Repack Ma2012ks
 ```bash
 magnet:?xt=urn:btih:4897948992F5B504E80D084C69046AB1A1D8EB49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Beat Hazard Ultra - это ни на что не похожая игра, кот
 magnet:?xt=urn:btih:2DDC1C4ACABA9838092C876D920AE19BC9E363E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Awaken - Astral Blade (2024) [Ru/Multi] (202411181541/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FEAFD543CED54CDA45EBC55B0F10356702845BE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ It's Only Money окунет геймеров в реалистичную ист
 magnet:?xt=urn:btih:0682C784F44639EF45085C1EB2BED3C97F31DAB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Valkyrie of Phantasm (2022) [Multi] (1.04) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:F4DA0CE56DF1CC55790B98744F849BBBE59DFC35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

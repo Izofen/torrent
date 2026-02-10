@@ -28,6 +28,8 @@
 magnet:?xt=urn:btih:01178BD63CA9D3A3E75EF682ECB579B355024A44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ magnet:?xt=urn:btih:01178BD63CA9D3A3E75EF682ECB579B355024A44
 ```bash
 magnet:?xt=urn:btih:1FC6F0AD8DD38FB30BEE08F8A21DC8D656F1291C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -88,6 +92,8 @@ magnet:?xt=urn:btih:1FC6F0AD8DD38FB30BEE08F8A21DC8D656F1291C
 magnet:?xt=urn:btih:6A3509488C6B59615D941DC1723E74870D059FD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +127,8 @@ magnet:?xt=urn:btih:6A3509488C6B59615D941DC1723E74870D059FD0
 magnet:?xt=urn:btih:7C283D774CCAA3DDAB252937B556F674252C2C29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +155,8 @@ Patricia Kaas - Je Te Dis Vous (1993) [FLAC|Lossless|image + .cue] <Pop, Chanson
 ```bash
 magnet:?xt=urn:btih:0233A91494613A1D544A69B2BE005C890E511E8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +185,8 @@ magnet:?xt=urn:btih:0233A91494613A1D544A69B2BE005C890E511E8D
 magnet:?xt=urn:btih:48CBC4E144D72EF20ED1B17FFFDF6FF309AD8A1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +213,8 @@ magnet:?xt=urn:btih:48CBC4E144D72EF20ED1B17FFFDF6FF309AD8A1C
 ```bash
 magnet:?xt=urn:btih:3C1D63133F0A77BEB1F0A77EB4C7499B9A105E31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +243,8 @@ VA - Менты-Песни за милицию и за жизнь (1998) [FLAC|L
 magnet:?xt=urn:btih:FB5D45541E5C9CF9424B01CAC6582E69D755E31A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +272,8 @@ VA - Шансон 2020 года (Музыкальный хит-парад) [MP3|
 magnet:?xt=urn:btih:20F51CFA1B14329D4D6A1CA6F8A2087356DAB834
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +300,8 @@ magnet:?xt=urn:btih:20F51CFA1B14329D4D6A1CA6F8A2087356DAB834
 ```bash
 magnet:?xt=urn:btih:9869CF3A2CD2775315A7C326A8D7D66BE288F4CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +336,8 @@ magnet:?xt=urn:btih:9869CF3A2CD2775315A7C326A8D7D66BE288F4CF
 magnet:?xt=urn:btih:D81235D53A1CF71743826031F367A05C465E4D65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +364,8 @@ magnet:?xt=urn:btih:D81235D53A1CF71743826031F367A05C465E4D65
 ```bash
 magnet:?xt=urn:btih:9F37E6163AAE86F290570BF75F042B774E616E9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +400,8 @@ magnet:?xt=urn:btih:9F37E6163AAE86F290570BF75F042B774E616E9C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +428,8 @@ magnet:?xt=urn:btih:9F37E6163AAE86F290570BF75F042B774E616E9C
 ```bash
 magnet:?xt=urn:btih:2FC08959285A9C9258E626580D171DD1C2492614
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +464,8 @@ magnet:?xt=urn:btih:2FC08959285A9C9258E626580D171DD1C2492614
 magnet:?xt=urn:btih:3375B3F251479A020852BFEB76A43E4E3DA2F7C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +492,8 @@ magnet:?xt=urn:btih:3375B3F251479A020852BFEB76A43E4E3DA2F7C8
 ```bash
 magnet:?xt=urn:btih:6307329C7BE148ED51C9F77FA5889E3C40FB6A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +522,8 @@ VA - Ништяк, браток! Лей и пей (1996) [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:05AFBFCAFC53C2F688A0B62E8FFBAC0592964C06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +551,8 @@ magnet:?xt=urn:btih:05AFBFCAFC53C2F688A0B62E8FFBAC0592964C06
 magnet:?xt=urn:btih:3F95C658BD0C5D8AF3468BD0B70AEA7D4FF88219
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +579,8 @@ magnet:?xt=urn:btih:3F95C658BD0C5D8AF3468BD0B70AEA7D4FF88219
 ```bash
 magnet:?xt=urn:btih:5465C2D0A5B4FAAA8C2F7838990B2108B69FC79F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +615,8 @@ magnet:?xt=urn:btih:5465C2D0A5B4FAAA8C2F7838990B2108B69FC79F
 magnet:?xt=urn:btih:A063E858A61B9DEA05B9F2CAC40206F33E7304B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +650,8 @@ magnet:?xt=urn:btih:A063E858A61B9DEA05B9F2CAC40206F33E7304B1
 magnet:?xt=urn:btih:BC818700E5AE8B031E785D9C107DA453F42C1468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +678,8 @@ magnet:?xt=urn:btih:BC818700E5AE8B031E785D9C107DA453F42C1468
 ```bash
 magnet:?xt=urn:btih:F2C72DD9DC761728A73B65A6B678EB496847FD62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +708,8 @@ magnet:?xt=urn:btih:F2C72DD9DC761728A73B65A6B678EB496847FD62
 magnet:?xt=urn:btih:A7B847EE5FD39815C1C749F65313FCB225F7D309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +736,8 @@ magnet:?xt=urn:btih:A7B847EE5FD39815C1C749F65313FCB225F7D309
 ```bash
 magnet:?xt=urn:btih:A15ED4CD608059F049AB5A0F88F91487C9A64C38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -724,6 +772,8 @@ magnet:?xt=urn:btih:A15ED4CD608059F049AB5A0F88F91487C9A64C38
 magnet:?xt=urn:btih:19C8063287021B84DF28DA6AF2B89855C1E70086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -750,6 +800,8 @@ Salvatore Adamo - Si j’osais (2018) [FLAC|Lossless|tracks + .cue] <Chanson>
 ```bash
 magnet:?xt=urn:btih:9D5F735458587AFC7D71F4B955FC67F82E960360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

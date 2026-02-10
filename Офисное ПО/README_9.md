@@ -19,6 +19,8 @@ Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTM
 magnet:?xt=urn:btih:1EA8E4977684DAA0EB013BBE6FDC3675DEAE091F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Adobe Reader — программа, предназначенная для пр�
 ```bash
 magnet:?xt=urn:btih:1BD942598994AA2EE2F8D8379F60D4FF66AAD7E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Adobe Reader — программа, предназначенная для пр�
 magnet:?xt=urn:btih:728361215364525DC4AC9ABB75CD13889C64E4E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:728361215364525DC4AC9ABB75CD13889C64E4E5
 ```bash
 magnet:?xt=urn:btih:86B9000895C83B086C7CAB405398E30C6C67A78C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ MyTetra — это несложная кроссплатформенная пр�
 magnet:?xt=urn:btih:8367D550CFCD321E19BBB9C871350CC0E602BEF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Draftable Compare - программа для визуального сравн�
 ```bash
 magnet:?xt=urn:btih:55444DBAC4B3FF74C43932B03826CC45D0CF8B80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ DjVuLibre DjView 4.10.4 [Multi/Ru]
 magnet:?xt=urn:btih:247835C0D4ABC23631CE1AD8D49BB636C8029A18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ MyDraw включает в себя мощные функции, которые 
 ```bash
 magnet:?xt=urn:btih:16772E64328295D6DD34EE6641E8A8633FC27138
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Windows Office - это бесплатный офисный пакет, позв
 magnet:?xt=urn:btih:B5C29525C6DBFA80E99AFB895554DA14F5DA45DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Windows Excel – это программа для работы со всеми 
 ```bash
 magnet:?xt=urn:btih:5B227BB450EBAE6DF51DD1A3480D98EC5A442630
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Windows Word - бесплатный и удобный в эксплуатаци�
 magnet:?xt=urn:btih:6BD38040959D6857AFA098FD6106252B8F315143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ CHM Editor — это инструмент который позволяет с�
 ```bash
 magnet:?xt=urn:btih:397665EC44AB04B75530FE6749E961FF6A96BC04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Scanitto Pro - это легкое, быстрое и не перегружен�
 magnet:?xt=urn:btih:8FF6E17A859785A9999BAA3EE3DFBE0A43734348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Foxit Phantom - приложение для просмотра, редактир
 ```bash
 magnet:?xt=urn:btih:81DEE0230E7927040FE6FCB1846229665A59B293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Promt 12 Dictionaries Collection RePack by MKN [Multi/Ru]
 magnet:?xt=urn:btih:BD5D89B734395CC214A8EB4DA4634F8007F65E9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ LizardTech Document Express Editor - одна из наиболее распро
 ```bash
 magnet:?xt=urn:btih:30B5F551C9021A80AD57E09B638297C6742B5199
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ ORPALIS PDF Reducer Professional 2.0.4 + Portable [Multi]
 magnet:?xt=urn:btih:1BD24E4ED33F12E87B78A26F108BED2A87BF988F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ DjVuLibre DjView 4.10.4 RePack (& Portable) by Trovel [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:083DA9F4EADF7E005EA6BD2441736FB390175041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ HomeWiki это:
 magnet:?xt=urn:btih:24B9DCD2C1A299804770ADB5D8D59C3F8A6F1495
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ NAPS2 (Not Another PDF Scanner 2) - очень удобная оболочка �
 ```bash
 magnet:?xt=urn:btih:4CFAFF2DD0107E54960DA0DD765A6FE74B67C508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Print Conductor автоматизирует массовую печать фа�
 magnet:?xt=urn:btih:EE9C30A940BC8311790F73D1C53F95A9E2E4EB22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Batch Text Replacer - мощный инструмент для одноврем�
 ```bash
 magnet:?xt=urn:btih:A19563CF25C482FC12185DA6D8D15EE30C62CE90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Movavi PDF Editor 3.2.0 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:A817DE0D52F1DBD4FB2EEF34FA8BDABE3F97010B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ AkelPad - небольшой, но быстрый бесплатный текс�
 ```bash
 magnet:?xt=urn:btih:DB686A38D0E9C0253B5EFA50885010A428FF7E54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Mgosoft PDF To Image Converter - быстрая программа, котора
 magnet:?xt=urn:btih:240EDAE10809C117FE40B2C44476CC6EDD00359A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Mgosoft PDF To Image Converter - быстрая программа, котора
 ```bash
 magnet:?xt=urn:btih:6064A74D6F7D9CC07EED909530606EED116F2212
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

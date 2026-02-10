@@ -1,3 +1,29 @@
+###  Публикация: 984766   (938610) от 09.02.2016
+
+Приезжайте на Байкал (1965) SATRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_938610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телевизионщики приезжают в рыболовецкий район снимать репортаж о рыбаках и о передовом хозяйстве председателя Калача. По дороге их перехватывает Сенька Лапин с друзьями. Их цель — показать красоту дивного озера Байкал и условия труда и жизни рыбаков...Производство: СССР, киностудия им. ГорькогоЖанр: КомедияРежиссер: Вениамин ДорманАктеры: Станислав Хитров, Любовь Стриженова (Земляникина), Евгений Шутов, Вера Васильева, Алексей Миронов, Алла Крамская, Иван Рыжов, Варвара Попова, Рудольф Рудин, Светлана Швайко, Леонид Сатановский, Георгий ТусузовПродолжительность: 01:09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEB074E936062D58ACAF817F0B873FC5D335ECAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984763   (938846) от 09.02.2016
 
 Приезжайте на Байкал (1965) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:73F6B2EBC4A8486BB0B8F60C2699523788C85872
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:73F6B2EBC4A8486BB0B8F60C2699523788C85872
 magnet:?xt=urn:btih:4A0697D748657FB9435200AA60E0FCFE4328F73A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:4A0697D748657FB9435200AA60E0FCFE4328F73A
 ```bash
 magnet:?xt=urn:btih:93A5B4B202B797BD265D599F90C4C3AEA366ED50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:93A5B4B202B797BD265D599F90C4C3AEA366ED50
 magnet:?xt=urn:btih:3610B7CEBFBCEF342B9D3042DCBD43A92CF90BC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:3610B7CEBFBCEF342B9D3042DCBD43A92CF90BC5
 ```bash
 magnet:?xt=urn:btih:BD3795BFEFC0754EFD9CAB605CFDA37680F79CE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:BD3795BFEFC0754EFD9CAB605CFDA37680F79CE5
 magnet:?xt=urn:btih:BEC7DAF2D469ECEC552EE2EBDDCE5789AE3FC4F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:BEC7DAF2D469ECEC552EE2EBDDCE5789AE3FC4F6
 magnet:?xt=urn:btih:759B897BA1C9A140781778EC78C8AB83E86AC24F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:759B897BA1C9A140781778EC78C8AB83E86AC24F
 ```bash
 magnet:?xt=urn:btih:B1C2DCBED4E38F7DD9CC2ECE329506332ECA6EE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:B1C2DCBED4E38F7DD9CC2ECE329506332ECA6EE0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:B1C2DCBED4E38F7DD9CC2ECE329506332ECA6EE0
 ```bash
 magnet:?xt=urn:btih:5042C5D6E1FE81209D27321C9877F7A801D34165
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:5042C5D6E1FE81209D27321C9877F7A801D34165
 magnet:?xt=urn:btih:D4340083D4637419A13C6F767BD1D45742D9C39E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:D4340083D4637419A13C6F767BD1D45742D9C39E
 magnet:?xt=urn:btih:073801F0FC47B05C6B532D0C54AAC1838F3ACE5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:073801F0FC47B05C6B532D0C54AAC1838F3ACE5C
 ```bash
 magnet:?xt=urn:btih:E8C9D7848A38A2BD41170BE681285AB573F48982
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:E8C9D7848A38A2BD41170BE681285AB573F48982
 magnet:?xt=urn:btih:C3172DE0F7FBD078B3269EE31142805118B2DCD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:C3172DE0F7FBD078B3269EE31142805118B2DCD0
 magnet:?xt=urn:btih:97217087B47480A66887AB5B43FC93B44567DDE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:97217087B47480A66887AB5B43FC93B44567DDE4
 ```bash
 magnet:?xt=urn:btih:A94381F4AF74002A18652DEEE1FBCA5A2967AE9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:A94381F4AF74002A18652DEEE1FBCA5A2967AE9E
 magnet:?xt=urn:btih:C1EC098DC70B711492AB5D6FACC4FD26250FCFE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:C1EC098DC70B711492AB5D6FACC4FD26250FCFE3
 ```bash
 magnet:?xt=urn:btih:13A5695FB5B786F33022E841EDFD02427E569414
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:13A5695FB5B786F33022E841EDFD02427E569414
 magnet:?xt=urn:btih:D6A1EBB2EB7239350B4C26E67853E8719906D371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:D6A1EBB2EB7239350B4C26E67853E8719906D371
 ```bash
 magnet:?xt=urn:btih:3AEDB0C0A289BD3435C0C5C1EA9755E77F2B5123
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:3AEDB0C0A289BD3435C0C5C1EA9755E77F2B5123
 magnet:?xt=urn:btih:6DC2AACF543845A95C6C550D87BA2B4FA0EB5CF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:6DC2AACF543845A95C6C550D87BA2B4FA0EB5CF2
 ```bash
 magnet:?xt=urn:btih:95C6650D2F42B02A1BA1C0A00384674243790FAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:95C6650D2F42B02A1BA1C0A00384674243790FAD
 magnet:?xt=urn:btih:BB34DA74A7307559DDEF292C06586C87FB9F6F89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:BB34DA74A7307559DDEF292C06586C87FB9F6F89
 ```bash
 magnet:?xt=urn:btih:44708C2660A1749963054A32BFC9E3D4D50E56B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:44708C2660A1749963054A32BFC9E3D4D50E56B5
 magnet:?xt=urn:btih:3C2367B9BE5995111545731EB562762FF871AA69
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982425   (948425) от 03.02.2016
-
-Певучая Россия (1986) SATRip [H.264] (2 cерии из 2)
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948425.jpg" />
-</div>
-
-
-###  Подробнее
-
-О музыканте, собирателе русских народных песен и основателе первого русского народного хора Митрофане Ефимовиче Пятницком, о его жизни, трагической любви и традициях песенной культуры русского народа.Производство: СССР, Мосфильм, Гостелерадио CCCРЖанр: ДрамаРежиссер: Василий ПанинАктеры: Юрий Соломин, Елена Антонова, Любовь Соколова, Николай Гринько, Григорий Абрикосов, Николай Скоробогатов, Иван Рыжов, Александра Прокошина, Владимир Конкин, Михаил Кокшенов, Александр Пятков, Анатолий Ведёнкин, Виктор Лазарев, Елена Школьникова, Лариса Курдюмова, Александр Пашутин, Руслан Курашов, Евгений Моргунов, Николай Прокопович, Виктор Уральский, Рудольф Рудин, (   Читать дальше...   )Продолжительность: 02:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13480FE8D581A72BC6953F29AD12E34D612B6EE5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

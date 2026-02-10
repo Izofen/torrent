@@ -21,6 +21,8 @@ Zorin OS - дистрибутив на базе Ubuntu, разработанны
 magnet:?xt=urn:btih:95EF8C1AFF96FEA07D3FDDA006B970626C8C575D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Devuan — форк дистрибутива Debian, появившийся в 2
 ```bash
 magnet:?xt=urn:btih:F31AE7C852835EFB017862EA6C13C1BB07874BFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ MX Linux - это операционная система, основанная 
 ```bash
 magnet:?xt=urn:btih:84C354416817D3C5B2362D5025783DE0CF948234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Cертифицированная ОС со встроенными средст�
 magnet:?xt=urn:btih:55808EB8C8E61D80B62928716B9B2B83FC678176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Manjaro - это дружественный пользователю дистр�
 ```bash
 magnet:?xt=urn:btih:28F1442365D5824760550D0D3B8B5297FC17BD19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Cертифицированная ОС со встроенными средст�
 magnet:?xt=urn:btih:A1CD007DAC1409C15F0FFA4267CDCD12D60F6799
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Linux Mint 22: поддержка до 2029 года, обновленное я�
 ```bash
 magnet:?xt=urn:btih:B1574FF5243A70A294293ADF36A4F26ABE46DEE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Tails (The Amnesic Incognito Live System - Забывчивая Анонимна
 magnet:?xt=urn:btih:2F413E55E68C918DDE15AA0985DCA8F6D9FE2CD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Oracle Linux (прежде известная как Oracle Enterprise Linux, Un
 ```bash
 magnet:?xt=urn:btih:22A793E2F4CB7CE7AA5ABBFD33FC6FD3579544E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Red Hat Enterprise Linux (RHEL) - популярная коммерческая 
 magnet:?xt=urn:btih:DC9C23DBED3D55EA23811E306682168DFED9F349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Ubuntu 24.04 Noble Numbat LTS [amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:3648BAF850D5930510C1F172B534200EBB5496E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ Fedora — дистрибутив Linux, спонсируемый фирмой R
 magnet:?xt=urn:btih:78A7100DD44ACDE0163A95AF91B61117E1FDA750
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ KDE Neon - дистрибутив Linux, который создан коман�
 magnet:?xt=urn:btih:7F30CFF968BE65C6A0C071CA4B829330EB190BF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:7F30CFF968BE65C6A0C071CA4B829330EB190BF0
 ```bash
 magnet:?xt=urn:btih:2A84C3E7219CC1C2235975A7F28B11D3AC8E49BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ Rocky Linux — дистрибутив Linux, разработанный Rocky E
 magnet:?xt=urn:btih:4299EEEFA61E76B2BC4949C2306261B609DA9B01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ SparkyLinux - это полнофункциональная операционн
 ```bash
 magnet:?xt=urn:btih:782F27F494EF6CE5E66FC855E44EC5D6C17EF4DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Red Hat Enterprise Linux (RHEL) - популярная коммерческая 
 magnet:?xt=urn:btih:CA83D0A604318C4E594575F60B97302F59A5092B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ Ubuntu Desktop – система с открытым исходным кодо�
 ```bash
 magnet:?xt=urn:btih:A3E9114D3CCE6D1720B9FD9BF9D83E5B2E92EA8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ MX Linux поддерживает работу в режиме LiveCD и LiveUSB
 magnet:?xt=urn:btih:07375ED72741E03D172082C80F1DE488D9DA51ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ Fedora — дистрибутив Linux, спонсируемый фирмой R
 magnet:?xt=urn:btih:179EA5DEFC20A1091C26DAD5D3B87B5F2787CC38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ CentOS Stream - новая версия бесплатной операцион�
 ```bash
 magnet:?xt=urn:btih:7B5013B728C0FD58FE4365629947141F08A01D81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ Debian GNU/Linux - операционная система на базе Linux �
 magnet:?xt=urn:btih:4D54760D917E9AC58CF3D443C6B04724CB87FF98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ Linux Kodachi - дистрибутив операционной системы L
 ```bash
 magnet:?xt=urn:btih:439B1A185D120E786197A816B477A4E5D2D06FD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +647,8 @@ Qubes OS — ориентированная на безопасность нас
 magnet:?xt=urn:btih:C125502E34EAE434EDEDF0D148A6104B20DB39F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ EndeavourOS — это дистрибутив Linux, основанный на A
 ```bash
 magnet:?xt=urn:btih:7D10D50A1D2144BAF9E11021226483BB3ED1F49F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +700,8 @@ Whonix — это дистрибутив Linux на основе Debian, кот�
 ```bash
 magnet:?xt=urn:btih:FB83A82FC9ECFAC723246EFDE6CC91BD6C997429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

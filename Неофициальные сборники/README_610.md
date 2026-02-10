@@ -1,3 +1,32 @@
+###  Публикация: 1095345   (924388) от 21.01.2017
+
+VA - Зарубежные хиты экспресс Выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924388.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kylie Minogue - Everybody's Free 2:10
+002. Britney Spears Feat. Tinashe - Slumber Party 3:34
+003. Martin & Chaos - Fall In Love 2:20
+004. Usher - Wait For It 3:29(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DFB49CA2893119B6D1A8AF6FEEE8DF2877F41CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095410   (924391) от 21.01.2017
 
 VA - Лучшие блатные хиты года на радио Шансон Выпуск № 3 (2017) [MP3|256 Kbps] <Шансон>
@@ -21,6 +50,8 @@ VA - Лучшие блатные хиты года на радио Шансон 
 ```bash
 magnet:?xt=urn:btih:1CC6305D951C881469755AC8A64FF5584D91D539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Супер хит зимний от Европы Плюс. Часть 9 (20
 magnet:?xt=urn:btih:CABE8C48D002BCEB71B2E6216E61BE235640F20F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Neon Lights Dance Club (2017) [MP3|224-320 Kbps] <Dance, Club, Electro Hous
 ```bash
 magnet:?xt=urn:btih:08433FB0FBA12C3794709E1F9E53891928B5ECA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Снежный хит-парад. 100 русских хитов. Сборн
 magnet:?xt=urn:btih:EE67005BE056F30809563BFB599B09F48355A07F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Снегопад новинок. Часть № 6 (2017) [MP3|256 Kbps] <Po
 ```bash
 magnet:?xt=urn:btih:7C328EDCC8E812635B31879E12B0AFE3946BBA34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Музыкальный плен. Часть № 8 (2017) [MP3|256 Kbps] <Po
 magnet:?xt=urn:btih:E12436747236655ED9BD5C37E8F2542FE3751F1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - German Top 100 Single Charts 20.01.2017 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:A1B56F5FBBEDC8DEC80AB0A769FBBC0643E2BC94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Блатной шансон на любимой волне. Часть № 
 magnet:?xt=urn:btih:21A1BC7B5960F06D883B51BABC6B4A52893D3DB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Романтика шансона (2016) [MP3|256 кб/с] <Шансон>
 ```bash
 magnet:?xt=urn:btih:2A3F88B40E5B2B5CEF9B70479F25563933A8DA31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - За рулем по дороге домой часть 2 (2016) [MP3|256 �
 magnet:?xt=urn:btih:235266CC980FB2CD2B88BF2B05C2410BD1D81876
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Sports Music For A Better Life (2016) [MP3|320 kbps] <Tech House>
 ```bash
 magnet:?xt=urn:btih:51CC1A275445843A1ED46FEA7B62E033851CFE41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Танцевальная зима. Сборник № 5 (2017) [MP3|256 Kbp
 magnet:?xt=urn:btih:E216694F81B8AE9BEB1DF37721446447F92E3A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Я слушаю шансон. Зимние хиты Часть № 2 (2017)
 ```bash
 magnet:?xt=urn:btih:8474917644D986E8A666B2145ED7E75F95C8116D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Зимний музобоз русский Выпуск № 3 (2017) [MP3|2
 magnet:?xt=urn:btih:F6746AFC23EE024E75A19A79ADD1D1A66E297DB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Зимняя сотка хитовая Выпуск № 2 (2017) [MP3|256 K
 ```bash
 magnet:?xt=urn:btih:D9EB4B8E1C9B5F1B5464395CDE67399E2BAC5212
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - Снежный популярный отрыв (2017) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:FD29BD7C27C83CCB77C0FBD7367CFECBA7FE31E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ VA - Elite NME Dance Club (2020) [MP3|320 Kbps] <Dance, Pop, House>
 ```bash
 magnet:?xt=urn:btih:9C5D326AB3BE3FC5B2CBD12E1D34AE70E50587A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ Nazareth - The Platinum Collection (2021) 2CD [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:9570FA0AFE8546713A5A0040B4F89A59DA8D6A0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ VA - 80s Rock Hits (2021) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:FD259981E2811FEE005B38D4B5AA1C98519BA0B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ VA - David Lynch Recommend (1958-2019) Compilation Album [MP3|192-320 Kbps] <Roc
 magnet:?xt=urn:btih:C6FA5CC097796554195116E428FC774F42851989
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ VA - Music News vol.123 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ```bash
 magnet:?xt=urn:btih:A6D6926D8783EA3BAB3F0FCAE5DC363E2C43448A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ VA - Record Russian mix (2016) [MP3|320 kbps] <Dance, club>
 magnet:?xt=urn:btih:C24F98C97BE4C8F55C94AFB21CFFB549BCCF7EB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ VA - Cosmic House (2020) [MP3|320 Kbps] <House, Future, Progressive House>
 ```bash
 magnet:?xt=urn:btih:C645FA9F3DA7DF622212023E144B30CD29DBC703
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ VA - Beatport Progressive House: Electro Sound Pack #22 (2020) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:7BD8869721B74A4023CB0770F43C7B8E2E27D02A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ VA - Beatport Tech House: Electro Sound Pack #21 (2020) [MP3|320 Kbps] <Tech Hou
 magnet:?xt=urn:btih:FBCC597C4A1CC8DD805BE7E6CF7B635FAC5E649A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366221   (925684) от 10.03.2020
-
-VA - не Громкие новинки недели 58 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925684.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.ЯрмаК - Пара Года (5:20)
-2.Евгений Попов - Танцуй (4:29)
-3.Наталья Подольская - Останься Со Мной (4:20)
-4.Жаклина - Буду Твоей (4:12)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44AD0D9EC05A3B5E503395C004ABC9DA91B82A4D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

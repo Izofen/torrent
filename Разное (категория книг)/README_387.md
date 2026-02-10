@@ -1,3 +1,31 @@
+###  Публикация: 1302677   (579382) от 17.05.2019
+
+К. Маркс | Восемнадцатое брюмера Луи Бонапарта (1935) [DJVU, PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579382.jpg" />
+</div>
+
+
+###  Подробнее
+
+В работе на основе материалистической диалектики дан анализ основных этапов французской революции 1848 года, объясняются причины контрреволюционного переворота Луи Бонапарта в декабре 1851 года. На конкретном примере Франции классовая борьба рассматривается как движущая сила истории.
+
+Маркс подчёркивает глубокое различие между фразами и иллюзиями тех или иных политических (   Читать дальше...   )Жанр: История, политология, экономика, социология, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07FC69EE5E049FD035FAA45425F328E826BE456C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042471   (579543) от 12.08.2016
 
 М. В. Кашуба | Из истории борьбы против унии (1976) [DJVU]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:94275DBF15BC5F5B6FC95FEB51CBAB9CF2CAEABE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:94275DBF15BC5F5B6FC95FEB51CBAB9CF2CAEABE
 magnet:?xt=urn:btih:2B5068556D34AF4699072FA9942424C0528C2970
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:2B5068556D34AF4699072FA9942424C0528C2970
 ```bash
 magnet:?xt=urn:btih:E4FB76E7DB788EEC9A61350A090F766F6BC9B40E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +125,8 @@ magnet:?xt=urn:btih:E4FB76E7DB788EEC9A61350A090F766F6BC9B40E
 magnet:?xt=urn:btih:70E1664E91481EDFEF9ADF452F842F5BD1B763DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +150,8 @@ magnet:?xt=urn:btih:70E1664E91481EDFEF9ADF452F842F5BD1B763DA
 ```bash
 magnet:?xt=urn:btih:8535994F0EE033C6EC4B5921352F917B0490CBCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +180,8 @@ magnet:?xt=urn:btih:8535994F0EE033C6EC4B5921352F917B0490CBCD
 magnet:?xt=urn:btih:DDA545A50CC9C23544A04618360409D2700D5E88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +206,8 @@ magnet:?xt=urn:btih:DDA545A50CC9C23544A04618360409D2700D5E88
 ```bash
 magnet:?xt=urn:btih:7E1DB542D0B46CE336C14797539340059A4C6CE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +235,8 @@ magnet:?xt=urn:btih:7E1DB542D0B46CE336C14797539340059A4C6CE4
 magnet:?xt=urn:btih:6B5BDB3872D457F9FABC7A1E7B91E6F344215186
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +262,8 @@ magnet:?xt=urn:btih:6B5BDB3872D457F9FABC7A1E7B91E6F344215186
 magnet:?xt=urn:btih:09597F91503A418690AE7EF8054412561DE5F0BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +287,8 @@ magnet:?xt=urn:btih:09597F91503A418690AE7EF8054412561DE5F0BD
 ```bash
 magnet:?xt=urn:btih:F32DE82EBAA713C2DFBE3CD0356EFF141D55AB45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +314,8 @@ magnet:?xt=urn:btih:F32DE82EBAA713C2DFBE3CD0356EFF141D55AB45
 magnet:?xt=urn:btih:A46699FDEC069CAD6CD207C1D5862922E9FCACF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +340,8 @@ magnet:?xt=urn:btih:A46699FDEC069CAD6CD207C1D5862922E9FCACF5
 magnet:?xt=urn:btih:0006E7679DE1C40285E60CC8FEDD93B9EAE75F0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +365,8 @@ magnet:?xt=urn:btih:0006E7679DE1C40285E60CC8FEDD93B9EAE75F0C
 ```bash
 magnet:?xt=urn:btih:BAEAF7486B045D4412E8A1E70A1BB5FD29C6C56A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +395,8 @@ magnet:?xt=urn:btih:BAEAF7486B045D4412E8A1E70A1BB5FD29C6C56A
 magnet:?xt=urn:btih:37C83C9B01AF8398DB08B63497348B67B5F2D95C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +420,8 @@ magnet:?xt=urn:btih:37C83C9B01AF8398DB08B63497348B67B5F2D95C
 ```bash
 magnet:?xt=urn:btih:FC6A524985375218643749496B065A6B70BF382D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +447,8 @@ magnet:?xt=urn:btih:FC6A524985375218643749496B065A6B70BF382D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +472,8 @@ magnet:?xt=urn:btih:FC6A524985375218643749496B065A6B70BF382D
 ```bash
 magnet:?xt=urn:btih:12BF2711FF7C2C98CE68B0599319363F597F895E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +499,8 @@ magnet:?xt=urn:btih:12BF2711FF7C2C98CE68B0599319363F597F895E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +524,8 @@ magnet:?xt=urn:btih:12BF2711FF7C2C98CE68B0599319363F597F895E
 ```bash
 magnet:?xt=urn:btih:B3165FE46DD6B5C2E99284806D518790EEEA0167
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +551,8 @@ magnet:?xt=urn:btih:B3165FE46DD6B5C2E99284806D518790EEEA0167
 magnet:?xt=urn:btih:AC3F4F8FC8E0AFE6EA9C67DBD4139A918718C9B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +576,8 @@ Rebecca Creig (ред.) | Teach Yourself Travel Photography (2019, 1st Edition) 
 ```bash
 magnet:?xt=urn:btih:E5F2F7ACBFA5971DE55E84B63B0D60BFDECE4394
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +603,8 @@ Neil Crighton | Landscape Photography: Art and Techniques (2013) [EPUB] [EN]
 magnet:?xt=urn:btih:27F91B581C4BF7D43EFC48727C3BA8321B51E321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +629,8 @@ magnet:?xt=urn:btih:27F91B581C4BF7D43EFC48727C3BA8321B51E321
 magnet:?xt=urn:btih:6807D5ED8AB596C033F35E16B1A7F3AB1341303C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +654,8 @@ magnet:?xt=urn:btih:6807D5ED8AB596C033F35E16B1A7F3AB1341303C
 ```bash
 magnet:?xt=urn:btih:EB2B7BE7545AFA18F662EA021358934C965E18F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,30 +682,7 @@ magnet:?xt=urn:btih:EB2B7BE7545AFA18F662EA021358934C965E18F5
 magnet:?xt=urn:btih:D01FBA4820C6AF83F60ABF2FCD150423E5D76E2D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810999   (581409) от 07.08.2014
-
-Михаил Роттер и др. | Нечаянный Ци-Гун (2013) [DJVU]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издательством Ганга в 2012 г. выпущена книга о Ци-Гун школы Чань-Ми, написанная известным китайским мастером Фэн Шао И в соавторстве с Михаилом Роттером. Это серьезный труд, сухой и отстраненный. Предлагаемое же издание - художественное произведение, вместе с героями которого легче понять и освоить базовые техники школы.
-Произведение читается легко, но при этом не допускает вольностей. Эта книжка поможет занимающимся легче войти в мир Ци-Гун, где мужчины и женщины различных религиозных верований, принадлежащие (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11CF38443DBD775B16BED63E174F14575977E44B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Kitchen Book / Кухонная книга v26.0.1 [Ru/Multi]
 magnet:?xt=urn:btih:75317E2F90618950EB45EC65BCD2DB09F89021FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:75317E2F90618950EB45EC65BCD2DB09F89021FC
 magnet:?xt=urn:btih:E2B83F35CDC0119D25A8F69143CABA87928CFC56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ YoWindow Weather 2.16.5 [Ru/En]
 magnet:?xt=urn:btih:9E8D31A121B925EC78A792F5982FFEE911349962
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:9E8D31A121B925EC78A792F5982FFEE911349962
 ```bash
 magnet:?xt=urn:btih:888C00C6D3D7635ED02CC17691E86772ACD4F8EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ EUT VPN - Easy Unlimited Tunnelling v1.3.12 [Ru/En]
 magnet:?xt=urn:btih:A803C38FDA2C4BE61D66954F161B32E285EC1794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:A803C38FDA2C4BE61D66954F161B32E285EC1794
 ```bash
 magnet:?xt=urn:btih:8D792D32497328C842A1375D23C5605D483019F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:8D792D32497328C842A1375D23C5605D483019F0
 magnet:?xt=urn:btih:E34C3A8094C50A7386059E6CAD12AA65F53FE9C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Piano Companion PRO: аккорды / Piano Chords, Scales, Progression Companio
 ```bash
 magnet:?xt=urn:btih:C68D4171A6E2FDD8E8C843CF1EA15F947E87795C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Car Scanner - это отличный помощник для любого во�
 magnet:?xt=urn:btih:BF3A059414E8052A21650AE3E20753BC835D660C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Hola Free VPN Proxy - Хотите посетить кучу зарубежны�
 magnet:?xt=urn:btih:F5736C9A230496D4837A7757C92DC82FB77DE466
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ ipTView - простейший плеер для просмотра онлайн
 ```bash
 magnet:?xt=urn:btih:BE9A8AEADF4B210FE89EC7187BE3957F99DB4B8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ SHAREit - Connect & Transfer v5.3.52_ww [Ru/En]
 magnet:?xt=urn:btih:AC6198C619CE9AD5B4E7186195776D499A30B82D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Sci-Fi Launcher Pro позволит вам почувствовать себя 
 ```bash
 magnet:?xt=urn:btih:496DA6108D9E8A5666CEE0A82A676B7324E4C9D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Diaro - личный дневник v3.20.0 Pro [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:23DEB5AB7BF8DA73590D395814E5E44956CB65C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ LOCKED - Секретный Альбом v1.3.3 [Ru/Multi] - Спрятать Ф
 magnet:?xt=urn:btih:7390C582FD65D3C3AA8FC476A58F6B25273E6561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Screen Stream Mirroring - Транслируйте ваш экран в реал
 ```bash
 magnet:?xt=urn:btih:00DA2F7B40A9949437EDAB554A2D76A8F130A0ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ Apex Launcher – быстрый, красивый с большим колич�
 magnet:?xt=urn:btih:B9257F03EF2209F2CB599A097FB95F99E93030D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:B9257F03EF2209F2CB599A097FB95F99E93030D9
 ```bash
 magnet:?xt=urn:btih:B7DB710244F65504B7FF24DACD6B750952B989DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ App Cloner - Хотите играть сразу с нескольких акк
 magnet:?xt=urn:btih:8CD3E33523E35830BFD4E916D13CA3DB0109975E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ AIDE Premium Key - это приложение, представляет соб�
 ```bash
 magnet:?xt=urn:btih:04ED0CE1FD275E443793088AF7EDD65C1B46243B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ DraStic DS Emulator – быстрый эмулятор на андроид, с 
 magnet:?xt=urn:btih:578C0168A46E140B4238F6775FC52D23F62F54D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ SimpleRockets 2 – трехмерный космический симулято
 ```bash
 magnet:?xt=urn:btih:F54B9AB4FED2852743F15BF3CFBC59984423F605
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ PhotoPills v1.5 [Ru/En]
 magnet:?xt=urn:btih:E4829B5DAF91ED37E1220DBFC7C436C56AF3C616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ HD Camera Pro превратит ваш телефон в профессиона
 ```bash
 magnet:?xt=urn:btih:B0A61C6CFDEE4370A78E59694122D899EA33F567
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Mod Master For Minecraft v3.9.5 [Ru/En]
 magnet:?xt=urn:btih:4E8B91DEA3BBB568E1775D6F042B0F70F9F37914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Gym Pro - Домашние тренировки v112.5 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DF9655F286685AE2B8B846509B2E182B30F4DB12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

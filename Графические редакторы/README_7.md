@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:A5512EE7163DEDDA962B12B553DDC5FB05A9F381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:A5512EE7163DEDDA962B12B553DDC5FB05A9F381
 ```bash
 magnet:?xt=urn:btih:5E2E39F07B76D05EB88BBF84B7732246B10C37B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:5E2E39F07B76D05EB88BBF84B7732246B10C37B5
 magnet:?xt=urn:btih:45D75722CAFC91C3054E6902321D7CFECF8015BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:45D75722CAFC91C3054E6902321D7CFECF8015BA
 ```bash
 magnet:?xt=urn:btih:5036D4F6D40ACED9ABF12D4434E794020D725DC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Adobe Character Animator 2024 24.2.0.80 RePack by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:F4B63137CF52DC1CA5D7EA95A053BA671726EF82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:F4B63137CF52DC1CA5D7EA95A053BA671726EF82
 magnet:?xt=urn:btih:77A2C2AA77862F3F0D95E8A1584DFCE62FE67AD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:EFAA0D9F3B53D3AB2636E2A23F139293F138AE92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 magnet:?xt=urn:btih:580F9B4A4DE43F8CB1BEFBD43F1BA7CB6E379B16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ PhotoFrame Pro - программа представляет собой цифр
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Perfect Resize — один из лучших плагинов Adobe Photoshop �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Just Color Picker — бесплатная программа, предназн�
 magnet:?xt=urn:btih:41DC6671C8BFF885BF2FF20FF841E768431EBD97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:41DC6671C8BFF885BF2FF20FF841E768431EBD97
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:41DC6671C8BFF885BF2FF20FF841E768431EBD97
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ PhotoScape 3.6.1 [Rus/Multi] Portable
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Jasc Paint Shop Pro 9 [Английский,Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Jasc Paint Shop Pro 9 [Английский,Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Perfect Icon - это мощный и, в то же время, очень пр�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Photo Object Eraser это инструмент для удаления неже
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ ProDigital Software StarFilter Pro 2.0.4 [English / Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Perfectly Clear — приложение, которое позволяет вс
 magnet:?xt=urn:btih:F9C8DCFE02E1B9EFAD689A3539DBCE7B16D42B9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:1E63307E2016E5CE9FC139E8632176830DCA3A0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ ScreenToGif — удобный бесплатный инструмент, с п�
 magnet:?xt=urn:btih:D91DC1CBFF6A79B624CEA516364432A2DE984DA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ reaConverter Pro - мощный инструмент для тех, кто им�
 ```bash
 magnet:?xt=urn:btih:E7E92C29F6CF3C2C52DE575FAE44CC3F6D88F729
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Attention, attention!(Внимание!)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ BenVista PhotoZoom Pro 9 — это программное решение ном
 magnet:?xt=urn:btih:AB4FBAB4DB3E873721FE1C8BB64890B22C81F0C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ darktable — фоторедактор, предназначенный для о
 ```bash
 magnet:?xt=urn:btih:7D9F5A0D8313249C86BE115071798C9CF6C12D6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1125226   (772091) от 14.04.2017
+
+Т. Ухова,Л. Писарская | Лицевая рукопись Успенского собора (1969) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом посвящен реликвии Успенского собора Московского Кремля - лицевой рукописи в драгоценном окладе, созданной русскими мастерами в начале XV века.Жанр: Иконография, иконописьФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9500C2599105133EFB558C52E8F314075AB2FF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125221   (772103) от 14.04.2017
 
 Е.А. Бурмыкина | Католическая повседневность: религиозные представления и практики мирян в современной России и постсоветском пространстве (2016) [PDF, DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:27E2FD22705160345211C45BE062748BE234AC26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:27E2FD22705160345211C45BE062748BE234AC26
 magnet:?xt=urn:btih:347052163C4D26401059C19010FCE14CBBACB650
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:347052163C4D26401059C19010FCE14CBBACB650
 ```bash
 magnet:?xt=urn:btih:577859237808912E6196A4A0478378C67F83BCBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:577859237808912E6196A4A0478378C67F83BCBC
 magnet:?xt=urn:btih:447D986180535F05FEB3400A14C0E0BF675A2C8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:447D986180535F05FEB3400A14C0E0BF675A2C8B
 magnet:?xt=urn:btih:B056DAA15D76015EE57CD107BF8C599ED02A0813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:B056DAA15D76015EE57CD107BF8C599ED02A0813
 magnet:?xt=urn:btih:A6ED1B2F68DBADECDF75CF997F4A822963DF58BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:A6ED1B2F68DBADECDF75CF997F4A822963DF58BA
 ```bash
 magnet:?xt=urn:btih:FF024A70964A37636451625D27C72ECD58FF90EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:FF024A70964A37636451625D27C72ECD58FF90EA
 magnet:?xt=urn:btih:797F5246E25CB31846C6D751C6D93EA558C07700
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:797F5246E25CB31846C6D751C6D93EA558C07700
 ```bash
 magnet:?xt=urn:btih:81C7AD1A0DB86A943116DA217902BD1D55536EB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:81C7AD1A0DB86A943116DA217902BD1D55536EB9
 magnet:?xt=urn:btih:9BDE14B69CCE7D224F38C88CF62E0B676F5C085E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:9BDE14B69CCE7D224F38C88CF62E0B676F5C085E
 ```bash
 magnet:?xt=urn:btih:280464DBAA78E8EBD82E52F7D1C36C3D19894F9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:280464DBAA78E8EBD82E52F7D1C36C3D19894F9D
 magnet:?xt=urn:btih:2D6779E62365161B0851D606F032CE8E479C7C80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:2D6779E62365161B0851D606F032CE8E479C7C80
 ```bash
 magnet:?xt=urn:btih:931FC02948D5C87987778F9388B39AD8F3652382
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:931FC02948D5C87987778F9388B39AD8F3652382
 magnet:?xt=urn:btih:8450169CDF933FD608F2EC2BE9FB593CD7F59C03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:8450169CDF933FD608F2EC2BE9FB593CD7F59C03
 ```bash
 magnet:?xt=urn:btih:48E95E2934905A0739C3D99C3C386FC25811D1F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:48E95E2934905A0739C3D99C3C386FC25811D1F9
 magnet:?xt=urn:btih:A3883918085E8F56FE113AF0702BB84F22E7E9B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:A3883918085E8F56FE113AF0702BB84F22E7E9B8
 ```bash
 magnet:?xt=urn:btih:147A133FA7E5179A567A3513CA7B6CEF224B46C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:147A133FA7E5179A567A3513CA7B6CEF224B46C1
 magnet:?xt=urn:btih:CDD34A80B7F84D34FE0C3E2170525E75425C6DF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:CDD34A80B7F84D34FE0C3E2170525E75425C6DF6
 ```bash
 magnet:?xt=urn:btih:90B9FEA0FC755AD00972EFC55E8507637BAEA7C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:90B9FEA0FC755AD00972EFC55E8507637BAEA7C8
 magnet:?xt=urn:btih:5220F576A47550A5ECEACEC546B4100B7FFF1040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:5220F576A47550A5ECEACEC546B4100B7FFF1040
 magnet:?xt=urn:btih:FF6D49A29ADFB7039AC048681BE7E9B65BD1EF73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:FF6D49A29ADFB7039AC048681BE7E9B65BD1EF73
 ```bash
 magnet:?xt=urn:btih:8E066489A1F9B40654642CA466551DA8B2D8471C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:8E066489A1F9B40654642CA466551DA8B2D8471C
 magnet:?xt=urn:btih:4C3C924540B5CF9E82712D72FB54BD688FAE11C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:4C3C924540B5CF9E82712D72FB54BD688FAE11C2
 ```bash
 magnet:?xt=urn:btih:098A2CBDF8644B56130794EECC1EF324F1AA84BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:098A2CBDF8644B56130794EECC1EF324F1AA84BE
 magnet:?xt=urn:btih:8A0FBC54CB6E60A825149925C706FCD99A5634E0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125145   (773534) от 13.04.2017
-
-Генриетта Гётте | Николаевская Римско-католическая церковь Святого Иосифа (2009) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_773534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Краткая история католического храма св. Иосифа в г. Николаеве (Украина), построенного в 1794 году на средства прихожан, рассказанная дочерью последнего органиста Лео Гётте - в годы репрессий верного свидетеля Христа.Жанр: ИсторияФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3136EF73E617C4F81F0992D7E961F3D9CB4CEC6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

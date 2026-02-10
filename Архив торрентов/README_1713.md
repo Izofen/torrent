@@ -20,6 +20,8 @@ Athentech Perfectly Clear Video for Mac 4.3.0 [En]
 magnet:?xt=urn:btih:21B86262B2829B20903C9E0295C145C909199FC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Icecream Screen Recorder - программа, позволяющая вести
 ```bash
 magnet:?xt=urn:btih:FBAFDFCEB13A59B4CEE3B464B7D8F809FFE48467
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ PhotoMill X (aka Reformator) помогает Вам преобразовать 
 magnet:?xt=urn:btih:60C9E3A3AEE64FCDF377745622C37954ABB2D0AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Principle — приложение для Mac OS, которое позволя�
 ```bash
 magnet:?xt=urn:btih:B84CB41A42EAE62141BC69FFD111CD72076C6E23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ SRWare Iron 112.0.5700.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:8855AB5F96E65B68B5A0F28759CF85D01F97E75A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ DuplicateViewer Pro 3.8 [En]
 magnet:?xt=urn:btih:3185E7EF7B471E74A4BD5FAC7DE58B61757F4FF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 ```bash
 magnet:?xt=urn:btih:CA881454CBBA3AA66686AE4B1A16C9332716C7F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ FontXChange  - приложение для конвертирования шри
 magnet:?xt=urn:btih:F169E524F2D0068D6BAAAEB42551EB0C43BCF2CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Tagr - редактор метатегов. Tagr поможет вам орга�
 magnet:?xt=urn:btih:556B9E318AB4081542E4139A43782154467560E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:E550AED7C7B42A554FF3298CDB5A9C8B8AD73603
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ zGallery - это действительно быстрая загрузка и 
 magnet:?xt=urn:btih:840E34AC87A0AFE4CA65621B84057911B4E4DFC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Omnibox позволяет (   Читать дальше...   )Тип изда�
 magnet:?xt=urn:btih:AD6F7190AD847DE503E3B701269CA7F0B1D2F945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ MediaHuman YouTube Downloader 3.9.9.81 (1205) RePack (& Portable) by Dodakaedr [
 ```bash
 magnet:?xt=urn:btih:C492850786CCD4474BEEF7B33F506C8B3BD2B91C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Wise Disk Cleaner 11.0.1.815 RePack (& portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:B9B7317EB9C7F03B0CECBE9AC784C61670358BFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ SIV (System Information Viewer) - мощнейшая утилита, показ�
 ```bash
 magnet:?xt=urn:btih:4D9FA82B70B68C9C3DEAB542BB9729D24E1C75B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:4D9FA82B70B68C9C3DEAB542BB9729D24E1C75B7
 magnet:?xt=urn:btih:1BCC7E0DEAA036E7363242BE4F0308817AC371C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ Aiseesoft DVD Creator 5.2.36 [En]
 ```bash
 magnet:?xt=urn:btih:1FABB9F31E68A20E985DFE2A6C43FE86E938333D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:97AAE08F224E79FA8F5C83E1175C511436754A4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:0337984AB0AA6D0A328AC85516C41CDAC80807E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ VideoSolo DVD Copy - это быстрое и простое в использо
 ```bash
 magnet:?xt=urn:btih:B69135081E5BB23562D8C50974C0A8DDDFA43C28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Text Workflow 1.6.3 [En]
 magnet:?xt=urn:btih:5324FEE80E83433250D8A65D84204B83E46EA9E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:635E34639094A89EECB794D3974D4649EB32941C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Wise Care 365 – программный пакет, предназначенн�
 magnet:?xt=urn:btih:0AF7ADDF4036B68B2B7CA2CD70AB48B3209015EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:01AAF889F9DF7D6B2A4A06A1DFFEFC573A0D52A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Iridient Developer - мощное приложение для обработки
 magnet:?xt=urn:btih:A6B35E3B57E0C54F67E179ABC9EFF40FBE04E13A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 ```bash
 magnet:?xt=urn:btih:8D6CEB37513737BEA8C4663304F1F0AC7FDF0B13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

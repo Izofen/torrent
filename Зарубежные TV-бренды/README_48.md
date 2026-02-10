@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:678D78077D3A40F389F5BF26903A92389E817DB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC: Забытые царицы Египта / Egypt's Lost Queens (2014) HDTVR
 ```bash
 magnet:?xt=urn:btih:58AC377E41F142BC2C2EF539DD105F5CC23F7A35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Discovery: Сибирская рулетка (сезон 1, серии 1-4 из 
 magnet:?xt=urn:btih:45A68F723367DB0493F2EF88D1EF886EDFBEA594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ History Channel: В поисках исчезнувших великанов / S
 ```bash
 magnet:?xt=urn:btih:8B85F3C5292AB739F79F4009214F20225B302188
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC. Мрачное обаяние Адольфа Гитлера / The Dark Char
 magnet:?xt=urn:btih:60994CCCE443B406E086815AD90F444B927BC265
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 ```bash
 magnet:?xt=urn:btih:976C0636D4A0CC6CC7482DA1E2814D22779656DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NG. Осушить океан: тайны нацистов / Drain the Oceans. N
 magnet:?xt=urn:btih:AFC1CF58A7615103A79DBF31BDAF02BE32123363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:AFC1CF58A7615103A79DBF31BDAF02BE32123363
 ```bash
 magnet:?xt=urn:btih:83BF34BE10BE8D775D4B4FA036D3888CC710D2E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Discovery: Мегаперевозки / Mega Shippers (2016) HDTVRip (сезон
 magnet:?xt=urn:btih:FCDD31EA52C75A92F83D41DB1B9F1E46EB48FD28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ BBC: Забытые царицы Египта / Egypt's Lost Queens (2014) HDTVR
 ```bash
 magnet:?xt=urn:btih:B83AB32A9FAB6FFD58BC70EA0BEE4FC387897692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ BBC: Англия во времена Плантагенетов / The Plantagen
 magnet:?xt=urn:btih:1D5517504C422AE4DEC15C311E7EECEC4B95CBAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:1D5517504C422AE4DEC15C311E7EECEC4B95CBAA
 ```bash
 magnet:?xt=urn:btih:CECA8A2CF8844E445FE84E4B68267658AD5BF9C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:CECA8A2CF8844E445FE84E4B68267658AD5BF9C7
 magnet:?xt=urn:btih:66DB1BDC8073D31A87793FB8421F902D9A1C07A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Discovery:Правда о Нострадамусе / Nostradamus Decoded (2009) 
 ```bash
 magnet:?xt=urn:btih:DFFD798BD5E6EB9156D1A82F5B2FC2EB667AC96D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ NG. 20 животных, которые могут вас убить / 20 Animal
 magnet:?xt=urn:btih:D76C73D6118C782F46073297215B954B76506A93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ BBC: Топ-10 самых смертоносных чудовищ / Top Ten Dead
 ```bash
 magnet:?xt=urn:btih:863825C804CA3D65DCF876A5CD5BAE136DB6E510
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ NG: 20 животных, которые могут вас убить / 20 Animal
 magnet:?xt=urn:btih:BF09E0B2C58B37DB80A4E48342F7C77E48DCE1FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Discovery: Выжить после селфи / Still Alive (2015) HDTVRip [H.26
 ```bash
 magnet:?xt=urn:btih:8AADEA202FD23F461697B6ED2C240C9EFD755CE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:8AADEA202FD23F461697B6ED2C240C9EFD755CE5
 magnet:?xt=urn:btih:9C02BCA93BF822F19F262F9402F1102E863C4293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ magnet:?xt=urn:btih:9C02BCA93BF822F19F262F9402F1102E863C4293
 magnet:?xt=urn:btih:0E33ED2D8B94C3E490852D884C949C9B088F0B72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +538,8 @@ magnet:?xt=urn:btih:0E33ED2D8B94C3E490852D884C949C9B088F0B72
 ```bash
 magnet:?xt=urn:btih:170DEAE16ACF483CA3597EE66553FF9D556BA5A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:170DEAE16ACF483CA3597EE66553FF9D556BA5A2
 magnet:?xt=urn:btih:97B0F43D8C836CF36DB8853F52E64C52595922CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ NG: Титаник. Заключительное слово с Джеймсом 
 ```bash
 magnet:?xt=urn:btih:1F3FAED3EBD58920A46058B37E718DE80F236D87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Discovery: Один день в Освенциме / One Day In Auschwitz (2015)
 magnet:?xt=urn:btih:0509ED0A35BE481C26ED79C15DDACD91CF7E7C1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ NG: Тайны мироздания / Beyond the Cosmos (2011) HDTVRip [H.264/72
 magnet:?xt=urn:btih:D7D782ADEEC622AFED95A89133FA75560CE7E8D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ NG: Титаник. Заключительное слово с Джеймсом 
 ```bash
 magnet:?xt=urn:btih:EB3A8205F38CF860348FD417510F28A22995B963
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

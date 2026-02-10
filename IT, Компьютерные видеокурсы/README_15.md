@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:2C87F577F5F719E18FEECF54A0D0C4C40120A4E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:2C87F577F5F719E18FEECF54A0D0C4C40120A4E4
 magnet:?xt=urn:btih:FC7B560D37A4F694AE515088752C1E2639562C54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Udemy, Colt Steele | JavaScript Pro: Mastering Advanced Concepts and Techniques 
 magnet:?xt=urn:btih:CFC142E9094188A76327222B05CE70143B3435F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Udemy, Hussein Nasser | Fundamentals of Backend Engineering (2023) WEB-DL [EN / 
 ```bash
 magnet:?xt=urn:btih:0624EDDF65888145FC7E5561FBC8F0DDE15A1404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Udemy, Brad Traversy | PHP From Scratch 2024 | Beginner To Advanced (2023) WEB-D
 magnet:?xt=urn:btih:C3082DE51E015D5878D8817D68F2A3C746990B9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Podlodka Crew| Python Crew #2. Python для энтепрайза (2023) WEB-DL 
 magnet:?xt=urn:btih:9E30175D680B437BE9E4C1D0164B1B7E7169B456
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Udemy, Uzochukwu Eddie Odozi | Microservices with NodeJS, React, Typescript and 
 ```bash
 magnet:?xt=urn:btih:E3BE6971CCBA465BF1FF4C2120B67CCCCFB0B891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ Skillbox, Евгений Дмитриев | DevOps-инженер. Docker (2022-
 magnet:?xt=urn:btih:57256712458B5936D629FE23E43CC22197E15C8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ Skillbox, Александр Крупин, Евгений Дмитриев | Dev
 magnet:?xt=urn:btih:D10FC7A666D8BFC2CA75155FC7CA1BC1D4FC1337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ DevOps-инженеры используют Kubernetes (k8s) для управ�
 ```bash
 magnet:?xt=urn:btih:1E03C1F435D83B178EA5B749FAD9AE901005BE29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ Skillbox, Даниил Пилипенко, Сурен Хоренян | Python-ф
 magnet:?xt=urn:btih:FB99AE3523CDC76939509C0169763E8F690B6B97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ Excel — самая популярная программа для работы
 magnet:?xt=urn:btih:71310AA419B0DF42695D85E23A41FABE07A84CB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ Skillbox, Людмила Ганжа | Инструменты бухгалтер�
 ```bash
 magnet:?xt=urn:btih:4E02ECE2CA08D2A3332EB4EA8E2187DA635A53B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ Udemy, Lucas Bazilio | The Complete Lua Programming Course: From Zero to Expert!
 magnet:?xt=urn:btih:8B794290C4643E63E25A59490FF7E23BBAF1B88D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:8B794290C4643E63E25A59490FF7E23BBAF1B88D
 ```bash
 magnet:?xt=urn:btih:9482776CDA8004B7332951608D589090E3DD055E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ AWS Certified Developer Associate — одна из самых ценных и �
 magnet:?xt=urn:btih:82D30AD4E9646A5C576476E5864BD63E4D1DBFE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ Udemy, Nikita I. | Java Stream API полный курс с нуля для но
 ```bash
 magnet:?xt=urn:btih:9A2A3E4DC42389D79BF3FDA2D6CB688B80009A03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ Udemy, AI Sciences | AWS Essentials: Master Cloud Computing from Scratch - AWS (
 magnet:?xt=urn:btih:951E6E6280C23463AEE34308B471ADD1CA090ED6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ Udemy, Ohans Emmanuel | AstroJS 101: Build Blazing Fast Frontends! (2023) WEB-DL
 magnet:?xt=urn:btih:E556765B2D001C94A4AD3C65D8AFE69BEFF5EA81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ react.gg, ui.dev (ex. Tyler McGinnis) | The interactive way to master modern Rea
 ```bash
 magnet:?xt=urn:btih:D8076B3CE2CC64A039C50E8CD62081A949EC815E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:D8076B3CE2CC64A039C50E8CD62081A949EC815E
 magnet:?xt=urn:btih:AFA585123DA8F221FADA49B61A9413A80D90A8F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ CyberYozh, Евгений Ивченков, LastByte | Анонимность и
 ```bash
 magnet:?xt=urn:btih:CE7B08CF3FAAA5585DDDE375D2A4635E86640A83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:CE7B08CF3FAAA5585DDDE375D2A4635E86640A83
 ```bash
 magnet:?xt=urn:btih:30D5F5C22D9A3072F681F44789E3E37FDF1040AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:30D5F5C22D9A3072F681F44789E3E37FDF1040AC
 magnet:?xt=urn:btih:E76EA34636309F4E88D24243FD0EA1C2455154A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ magnet:?xt=urn:btih:E76EA34636309F4E88D24243FD0EA1C2455154A5
 magnet:?xt=urn:btih:1A6AD25932DDB231E0D0751E26EEA24541C972FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ magnet:?xt=urn:btih:1A6AD25932DDB231E0D0751E26EEA24541C972FD
 ```bash
 magnet:?xt=urn:btih:240C9CB4B7225637A25CE5AAC39D6503C0B8CCE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

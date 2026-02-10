@@ -19,6 +19,8 @@ Submarine Titans / Морские Титаны: Зов Глубин (2000) [En] 
 magnet:?xt=urn:btih:854A65829FAB9D92A7BA7BE906045F855BC48376
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ OCCT 7.2.1 Final Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3968420DE2EFC57587182F73B4399FA99DD6A72B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:3968420DE2EFC57587182F73B4399FA99DD6A72B
 magnet:?xt=urn:btih:DF1A26BBB3B504792ECF65A600ED98C8BAD69E01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Life is Strange – эпизодическое приключение, собы�
 magnet:?xt=urn:btih:2BFF732190C911F4DE9432E6D866ABAE6DD86F18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Blue Period | Голубой период [2021, TV, 12 эп.] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:D10B647A71A9ECD7A3DBCEB970A81FDD1CC51434
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:D10B647A71A9ECD7A3DBCEB970A81FDD1CC51434
 ```bash
 magnet:?xt=urn:btih:709429FACD26CA5FE28E480A6999A3C15F2048CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ VA - Mix: Rock 'N Lovers (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:0DE61D9ED832BA30566B8A8700E246C184AD8AA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Udemy.com | Photoshop CC 2020 MasterClass (2019) PCRec [H.264/720p-LQ] [EN]
 ```bash
 magnet:?xt=urn:btih:AB5EEB50EC0C4544879B883F51237AF373871FB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:AB5EEB50EC0C4544879B883F51237AF373871FB9
 magnet:?xt=urn:btih:FB20AF33FD15520E17C408464AEFC9E71C8EE72E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:FB20AF33FD15520E17C408464AEFC9E71C8EE72E
 ```bash
 magnet:?xt=urn:btih:769B6AAB57EC96522457E0A35E4D44160725EE4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:769B6AAB57EC96522457E0A35E4D44160725EE4D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:769B6AAB57EC96522457E0A35E4D44160725EE4D
 ```bash
 magnet:?xt=urn:btih:B19FB7BC6DAA0338CDADB15602C6D614EB48A352
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:B19FB7BC6DAA0338CDADB15602C6D614EB48A352
 magnet:?xt=urn:btih:8EE4111CBFF16C2F87A5EE13F4679C0F6810C654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:8EE4111CBFF16C2F87A5EE13F4679C0F6810C654
 ```bash
 magnet:?xt=urn:btih:5B9DD2C0F5ED5D5F8E5D042F830144DB82FC207B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:5B9DD2C0F5ED5D5F8E5D042F830144DB82FC207B
 magnet:?xt=urn:btih:A77BE528B317905874ACC0F6B8BE683C8A4B3F36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:A77BE528B317905874ACC0F6B8BE683C8A4B3F36
 ```bash
 magnet:?xt=urn:btih:CBBBC344443A9A0C186C7DD4E2AF54584066ED25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:0EB82FB7ACFA7D25CE451EA10D396F22A27748EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Shultais Education | Расширенные возможности SQL (2019) PC
 magnet:?xt=urn:btih:315E10E5E42C55E4A4C582E26441230210E9606D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Cinema 4D R19 предоставляет великолепные улучшен
 ```bash
 magnet:?xt=urn:btih:60A9F9C83C2CCFAFF4D2DD83D2C3127A9BC5FD21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ HTML Egg Pro  имеет уникальный drag-and-drop редактор  и
 magnet:?xt=urn:btih:4E9E72DAEB9C4A8E3D1C9D81C9762DF31A506D0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:4E9E72DAEB9C4A8E3D1C9D81C9762DF31A506D0A
 ```bash
 magnet:?xt=urn:btih:753EA6647ABCF49EC29D4D50027A02572CE77363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ MediaHuman YouTube to MP3 Converter 3.9.9.87 (1114) RePack (& Portable) by elchu
 magnet:?xt=urn:btih:3887A05F3F7F7C41E1BC973077B9748B49DED07B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:3887A05F3F7F7C41E1BC973077B9748B49DED07B
 ```bash
 magnet:?xt=urn:btih:7D24B2C42DDB506C214CEAC2E126E7B1EA7D1ED9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Hataage! Kemono Michi | За дело! «Звериная Тропа» [2019, TV
 magnet:?xt=urn:btih:635417F3D50CB1E8D38CBFC75452C8D63CF080A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:635417F3D50CB1E8D38CBFC75452C8D63CF080A8
 magnet:?xt=urn:btih:A381F84646652AAEA982923491C237C201AFAFA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:A381F84646652AAEA982923491C237C201AFAFA2
 ```bash
 magnet:?xt=urn:btih:EEB55E4EC7050B72FFE23751643C134F8C153904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

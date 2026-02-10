@@ -22,6 +22,8 @@ Tove Lo - Lady Wood (2016) [FLAC|Lossless|tracks + .cue] <Synth-pop>
 magnet:?xt=urn:btih:3E077CF8A352C2FC8253BD5490A4F3CCFE27BD2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Earthrise.ntone.1 (1995) [FLAC|Lossless|tracks + .cue] <Dub, Trip Hop, Ambi
 ```bash
 magnet:?xt=urn:btih:FC00034E6A7CD0D55BFBA0AFB92BC7EF8F2933DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Goran Geto - Diving To Deep (Dub Techno Edition) (2013) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:562F2B4A75D974B1E2DCB7DCA6047F79CC543749
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - The Annual Chillout Sessions (29 January, 2016) [MP3|320 кб/с] <Balearic
 ```bash
 magnet:?xt=urn:btih:3F5E5754AE688DEFCF6F3D3EDDB6280D1C790AC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Drum & Bass Annual 2017 [MP3|320 Kbps] <Drum And Bass>
 magnet:?xt=urn:btih:B3F8C89685709927C17318FECC4F4B5FA8BFAACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Krake #002 (2014) [FLAC|Lossless|WEB-DL]<Techno, Ambient, IDM, Abstract, Dr
 ```bash
 magnet:?xt=urn:btih:6E1F9991C1F2318642D8CB4D01FFCAF12283AA5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Acoustic Covers Of Popular Songs (2017) [MP3|320 Kbps] <Downtempo, Chillout
 magnet:?xt=urn:btih:0A5589A4835FCDDEF589DEBC60BBEFA0D0806391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ DJ Eco - Подборка синглов (2007 - 2010) [MP3|320 kbps] <Uplifting
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ Krisma - Cathode Mamma (Remastered) (1980) 2007, Polydor [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:B66A63D43595CB1198378A2B398259C95FD3CC2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ VA - Vocal Trance Classics 001 (2017) [MP3|320 Kbps] <Uplifting Trance, Vocal Tr
 ```bash
 magnet:?xt=urn:btih:0615B328DC0FE778B4171032DF61CB43B583CEEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ VA - Milano Fashion Week (Deep House Selection) (2017) [MP3|320 Kbps] <Deep Hous
 magnet:?xt=urn:btih:4EDEC58571CB0EE20E47FADDA6D499213C946E21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ VA - Re-Fresh The 90s: Club Classics (2017) [MP3|320 Kbps] <House, Euro House>
 ```bash
 magnet:?xt=urn:btih:B27C2C0CA350B1586E49D5FD852A7ADE10EFEE07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ VA - Essential Happy Hour Ibiza Lounge & Chillout Vol.3 (2017) [MP3|320 Kbps] <D
 magnet:?xt=urn:btih:5A874EA093CBA187BAE2E486A976DCDE69827530
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ VA - Midnight Lounge Vol.24 The Piano (2017) [MP3|320 Kbps] <Downtempo, Chillout
 ```bash
 magnet:?xt=urn:btih:4AC61BAAA36B64A8237B596BAFF3A389076F15B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ VA - Trance Up In A Dream (2017) [MP3|320 Kbps] <Uplifting Trance>
 magnet:?xt=urn:btih:3D29763D2D1123346F019ED0326F33CF07AB75D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ VA - Deep House Christmas Selection (2016) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:BF5DB3452FCABE5D21BAE451F6286F5105EC46DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ VA - Ibiza Chillout Songs: Best Of 2017 (2016) [MP3|320 Kbps] <Downtempo, Chillo
 magnet:?xt=urn:btih:BC7CF4FDF5D0E70B8DC54FD66132A5905A169453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ VA - Urban Lounge Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:5067ABC750D05D1C840E2E149FC823B094BB17B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ Paul Haslinger - Exit Ghost (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Electronic, C
 magnet:?xt=urn:btih:393432FFC698C8C2DC893B39311D5381CA064D18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ VA - Erotic Hush Moments: Best of Intimate Downbeat Moments and Relaxation (2016
 ```bash
 magnet:?xt=urn:btih:9D7EA6176CB45CA24CC5AF046567DC0EA19936C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ Daniel Masson - Ten Particles (2015) [MP3|320 кб/с] <Downtempo, Chillout, Aco
 magnet:?xt=urn:btih:19AE42DFC5AA96A4BB34581D1EDDCCBB8C00B1D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ Jens Buchert - Electronic Moods (2013) [FLAC|Lossless|WEB-DL|tracks] <Ambient, D
 ```bash
 magnet:?xt=urn:btih:7F1FA40F6B888258C46452FBACE0242040697CCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +657,8 @@ VA - Acoustic Pop (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
 magnet:?xt=urn:btih:2AE660A137B3722D2A300C5A99F578A9B39F720D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +686,8 @@ VA - Lounge On Stage (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:A4A49805888C40E23C3803AA4BD473127EE85087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +711,8 @@ Mano Le Tough - Changing Days (2013) [FLAC|Lossless]<Tech House, Deep House, Min
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -690,6 +740,8 @@ Peter Pearson - Making Waves (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, C
 ```bash
 magnet:?xt=urn:btih:354BBA42C06B68DEE3154938B71AD5073BCBF9E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

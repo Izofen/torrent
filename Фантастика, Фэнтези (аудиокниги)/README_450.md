@@ -1,3 +1,29 @@
+###  Публикация: 1209321   (779342) от 26.02.2018
+
+Дан Лебэл | Класс: Сталкер (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие книги происходит в самом обычном мире. Рядовой электрослесарь по имени Олег обслуживает шахтное оборудование. В одном из рукотворных подземелий ему попадается странный предмет цилиндрической формы. С этого момента жизнь простого работяги резко меняется: герой начинает видеть перед собой игровой интерфейс и понимает, что вся наша реальность – не более чем (   Читать дальше...   )Жанр: Фэнтези, ЛитРПГПродолжительность: 11:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3875163F73C8882730076AC88C9E9DB4F1C2289F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209428   (779359) от 26.02.2018
 
 Алекс де Клемешье | Клинки кардинала (2018) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:D27873D4EE95CC10F2E3B6F08B1CB8A2691DE2CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:D27873D4EE95CC10F2E3B6F08B1CB8A2691DE2CB
 magnet:?xt=urn:btih:2D60BCB409C841A103800FA1FFF44AC6D59E40B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:2D60BCB409C841A103800FA1FFF44AC6D59E40B4
 ```bash
 magnet:?xt=urn:btih:267D7C39C3D6E3D2A3D9A7C39C4AC1B67C1E950A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:267D7C39C3D6E3D2A3D9A7C39C4AC1B67C1E950A
 magnet:?xt=urn:btih:A404834C72F87FA1FB33B59AC26E1296DC7725AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:A404834C72F87FA1FB33B59AC26E1296DC7725AC
 ```bash
 magnet:?xt=urn:btih:5B7FEFBAE3811A2CDB1966E91F70BE4F00CF0AC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:5B7FEFBAE3811A2CDB1966E91F70BE4F00CF0AC8
 magnet:?xt=urn:btih:964EBA2AFE285881F8B735F04F7EF8DAD75BC419
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:964EBA2AFE285881F8B735F04F7EF8DAD75BC419
 magnet:?xt=urn:btih:532ABC6C3099EBD561BCF9C0044EB94248E57940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +226,8 @@ magnet:?xt=urn:btih:532ABC6C3099EBD561BCF9C0044EB94248E57940
 ```bash
 magnet:?xt=urn:btih:816BA2B5D0E661B04EB38EB854FEE98C2158CF21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:816BA2B5D0E661B04EB38EB854FEE98C2158CF21
 magnet:?xt=urn:btih:CB733452C60A909B5B11FC8511EBA5CFE5130143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:CB733452C60A909B5B11FC8511EBA5CFE5130143
 magnet:?xt=urn:btih:4555619D04A4C64C36DF94907BDB0BF89E8550A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:4555619D04A4C64C36DF94907BDB0BF89E8550A7
 ```bash
 magnet:?xt=urn:btih:D350A13F811714707373A0BE830C70835B01FFF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:D350A13F811714707373A0BE830C70835B01FFF2
 magnet:?xt=urn:btih:D9BC2911E919FE4EC1330359A50E71E9551237E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:D9BC2911E919FE4EC1330359A50E71E9551237E9
 ```bash
 magnet:?xt=urn:btih:311F96E9CA8FACE13B6C15BE391353F807A74FA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:311F96E9CA8FACE13B6C15BE391353F807A74FA2
 magnet:?xt=urn:btih:DE4C1D515261CAB8CCC39258665A15334A459CB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:DE4C1D515261CAB8CCC39258665A15334A459CB5
 ```bash
 magnet:?xt=urn:btih:30BA518C14C1250B449FB2EB28BBBF21F4B89981
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:30BA518C14C1250B449FB2EB28BBBF21F4B89981
 magnet:?xt=urn:btih:A4EB69A43396C53BF6A4158E800C90FF4BC5629B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:A4EB69A43396C53BF6A4158E800C90FF4BC5629B
 magnet:?xt=urn:btih:17FCADDDCE83D85E1CC8711E53668BEBF3668873
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:17FCADDDCE83D85E1CC8711E53668BEBF3668873
 ```bash
 magnet:?xt=urn:btih:15F5AACAA9C98CC059914DCBB794AEA141579DAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:15F5AACAA9C98CC059914DCBB794AEA141579DAB
 magnet:?xt=urn:btih:D9F12ACC8C13205E2E73C04D60E163E1BC49CBA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:D9F12ACC8C13205E2E73C04D60E163E1BC49CBA4
 ```bash
 magnet:?xt=urn:btih:7B918B97BEFD7C9BD8AC2685F62ED9D41D83D3A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:7B918B97BEFD7C9BD8AC2685F62ED9D41D83D3A1
 magnet:?xt=urn:btih:A300A4126E7BB8F0D20C6F96E57E36AF271A0D4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:A300A4126E7BB8F0D20C6F96E57E36AF271A0D4F
 ```bash
 magnet:?xt=urn:btih:7495BEBADF0CD354CB6845B3EFC4DF40991B9D73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:7495BEBADF0CD354CB6845B3EFC4DF40991B9D73
 magnet:?xt=urn:btih:774FD9F879E9EA478A550C3D2A72C2893F7E652C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:774FD9F879E9EA478A550C3D2A72C2893F7E652C
 ```bash
 magnet:?xt=urn:btih:000C65072F8FA696D71124713326169A76E0DA42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:000C65072F8FA696D71124713326169A76E0DA42
 magnet:?xt=urn:btih:BA8570FA318F54640DAC373FBDA49DB65B478C21
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207077   (781240) от 16.02.2018
-
-Евгений Гуляковский | Запретная зона (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_781240.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фантастическая повесть Евгения Гуляковского «Запретная зона» рассказывает о встрече земной межгалактической научной экспедиции с внеземным разумом на необитаемой планете. Как инопланетяне будут находить метод общения с человечеством? Сможем ли мы понять, что с нами вступили в контакт?Жанр: ФантастикаПродолжительность: 03:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AD1A63374DEC278903749DF8AD2E0D5FCB14575
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

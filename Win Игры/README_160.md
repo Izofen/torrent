@@ -19,6 +19,8 @@ CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.01) Scene Rune
 magnet:?xt=urn:btih:09A7BE76E0815B4F3EB78FE5EC7C368D2283198D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MARS 2120 - это приключенческая игра в жанре мет�
 ```bash
 magnet:?xt=urn:btih:5029FF60451D91F9AD1EAB1EA6D47B12C29C4D2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ VLADiK BRUTAL (2024) [Ru/Multi] (Build 15319585) Scene Doge
 magnet:?xt=urn:btih:3E24EFB450634641934A2A671B5FDAC24D61268D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Zombie Police: Christmas Dancing with Police Zombies (2024) [Multi] (1.0) Scene 
 ```bash
 magnet:?xt=urn:btih:AEA90DDC760ABC5F94C336948E910887FE26402B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ PIGROMANCE (2022) [Multi] (1.0.1) Repack FitGirl
 magnet:?xt=urn:btih:81AC7B5726F140E6C114D0107746996FB4B85525
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Mystical Riddles 5: Haunted Portraits / Мистические загадки 5:
 ```bash
 magnet:?xt=urn:btih:F67191B6077DD18A0A985D8D1215E3F7D914BAF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Thalassa: Edge of the Abyss погружает игроков в напряже�
 magnet:?xt=urn:btih:48076E1C6A5F32E2F8ECD2BFCC131DEAAA892D98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Arranger: A Role-Puzzling Adventure откажитесь от типичного
 ```bash
 magnet:?xt=urn:btih:5DA2F51C7A380566FB03EA7C6943317D768CC069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ STAR WARS: Bounty Hunter (2024) [Ru/Multi] (Build 15125379) Repack FitGirl
 magnet:?xt=urn:btih:BAAB70DA78184578B988BB5704F1D4F437BA2FE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ MeteoHeroes (2022) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:F6D03D0F2975AACBF40B860F45056FDA2FE9C5C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Kanon (2024) [Multi] (1.2.0.3) Scene Tenoke
 magnet:?xt=urn:btih:8A8ADBA4967016EC6DA81115DAB228D2D2BCCDC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Tour de France 2024 (2024) [Multi] (1.7.2.924/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:6875AFB04F8AB6E5283EED829281F0C4F9CA9D0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ World of Goo – основанная на реальной физике гол�
 magnet:?xt=urn:btih:CE41427346EB2C22A2809BBD9F82F20EC4D28580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Troop (2023) [Multi] (Build 15201092) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:2605A34DCEF9CE32123FD89C2C259C67DAEFE7A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Bee Island (2023) [Ru/Multi] (20240805) Scene Tenoke
 magnet:?xt=urn:btih:E453424909CA5FD734E2AB074ECFE7B48EDDAA59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Motordoom - это спортивный фристайл-шутер, сочет�
 ```bash
 magnet:?xt=urn:btih:35CCA608A9918773F1F5A0C3531000EBC4EFD6E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Highrise City совмещает в себе элементы как строи�
 magnet:?xt=urn:btih:9458CB3CF6DEB5A43596C1B49718A5905D538547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Contraband Police - симулятор пограничника от перво�
 ```bash
 magnet:?xt=urn:btih:4B878178EAD53D06FC1DD31AC784054538D7073F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Dakar Desert Rally переносит пользователей на пусты
 magnet:?xt=urn:btih:6306DC5ED853CEB7EDA6665276D583576E375D13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Callisto Protocol (2022) [Ru/Multi] (14745831/dlc) Repack Decepticon [Digita
 ```bash
 magnet:?xt=urn:btih:016B33B80A99DD643F4F6E70A237715A7B6ED4E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Nine Noir Lives (2022) [Multi] (1.0.3.1) License GOG
 magnet:?xt=urn:btih:A4D177851C5640B87B7E6C152AE679CFEC7439C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Age of Empires IV (4) (2021) [Ru/Multi] (11.0.0782.0/dlc) Repack dixen18 [Annive
 ```bash
 magnet:?xt=urn:btih:12FEF07B85126A874BE412C16D1C477DA4F996DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Cursed Bet (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:4887B2F5910705859F651D6C625AB8AC62AD31C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ SCHiM (2024) [Ru/Multi] (1.0.3.a) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6225A7350D62C00707A3A7180B05943A1FB4218D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Etera (2024) [En] (1.0.0) Repack FitGirl
 magnet:?xt=urn:btih:D2F0C95AE0227FC8B51155567B85333F882795DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Conscript (2024) [Ru/Multi] (1.0.0.2/dlc) Repack FitGirl [Officer Edition]
 ```bash
 magnet:?xt=urn:btih:4FB49D72D8D6414099AB5347448EE11BE05B609F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Murda Killa - Один Восемь Семь (2022) [MP3|320 Kbps] <Rap, Hip-Hop
 magnet:?xt=urn:btih:BD4D6CBA2765C748C65E8656F331C08B6A1D5CF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:BD4D6CBA2765C748C65E8656F331C08B6A1D5CF8
 magnet:?xt=urn:btih:CCAFBCEC7F6A971E3EAC8DC79557CA6F51A4866B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:CCAFBCEC7F6A971E3EAC8DC79557CA6F51A4866B
 ```bash
 magnet:?xt=urn:btih:8C6E9380B3AC7E2F4E4F96E1E9676BECCC9D55B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ CodeRunner - отличный редактор для программиста �
 magnet:?xt=urn:btih:8C05FBE3DB836EE8C681F44ABD44573F1C009047
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:8C05FBE3DB836EE8C681F44ABD44573F1C009047
 ```bash
 magnet:?xt=urn:btih:C9DE05F8E813575907DFA916923DA895F156F093
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Weight of Emptiness - Withered Paradogma (2023) [FLAC|Lossless|WEB-DL|tracks] <M
 magnet:?xt=urn:btih:ECE0679B85C58874FAB048C84E609B2CAFB937EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:ECE0679B85C58874FAB048C84E609B2CAFB937EF
 magnet:?xt=urn:btih:0F7CBD9D62DC4D4AC973D327220DD8278ED83BAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:0F7CBD9D62DC4D4AC973D327220DD8278ED83BAE
 ```bash
 magnet:?xt=urn:btih:8F6678F27BF897BFF63240155E423A1F42781B49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Vega - Battlelines (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 magnet:?xt=urn:btih:5A9C809F885F2C925F9BBFD4FBE0E779BB4EE61C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:5A9C809F885F2C925F9BBFD4FBE0E779BB4EE61C
 ```bash
 magnet:?xt=urn:btih:88BC5C715DBBE39CB3A54CCB54D8595250E4014D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:88BC5C715DBBE39CB3A54CCB54D8595250E4014D
 magnet:?xt=urn:btih:2851ADDFBE30E9E50DE61570F65C3FDDF7C4177E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:2851ADDFBE30E9E50DE61570F65C3FDDF7C4177E
 magnet:?xt=urn:btih:155351E86EB3E5A61E2C384CEE996DB64EA86141
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:155351E86EB3E5A61E2C384CEE996DB64EA86141
 ```bash
 magnet:?xt=urn:btih:098A32A31A522A9D8C378C4910DEF0F6A608EB03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ Fields Of The Nephilim - Revelations (1993) [FLAC|Lossless|image + .cue] <Gothic
 magnet:?xt=urn:btih:05FEA62E6882941B9FF510510145417E25A209EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:05FEA62E6882941B9FF510510145417E25A209EF
 magnet:?xt=urn:btih:C56E49B88E297966BAFCFA95E091889D78E5129D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ Worksheet Crafter Premium Edition 2022.3.2 [En]
 ```bash
 magnet:?xt=urn:btih:549AA3618A1A1E38EB1921AF58446EBCA21ED5D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ OS X имеет свою философию и некоторые вещи в с
 magnet:?xt=urn:btih:EF6BCA3B98EE4E508CA93AA928B9C95E166646BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:EF6BCA3B98EE4E508CA93AA928B9C95E166646BB
 magnet:?xt=urn:btih:2012209E1E4229D7C8A5C8D706F35A887BF2F200
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ AnyGo 5.9.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4CECAD38434DAE71150D7386F1FC11DBD9B08F91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:4CECAD38434DAE71150D7386F1FC11DBD9B08F91
 magnet:?xt=urn:btih:D67DACC8BD8E6B40D360E224CDE29625B77A633C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ Starchaser - Starchaser (2022) Deluxe Edition, 2023, Frontiers Records s.r.l. [F
 magnet:?xt=urn:btih:25913F4EF68DC2AE90C28DEBBEF88A5DFE89CB51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:25913F4EF68DC2AE90C28DEBBEF88A5DFE89CB51
 magnet:?xt=urn:btih:7FF1DF03693407D2FE607854A30E0D6F9DD5FF69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:7FF1DF03693407D2FE607854A30E0D6F9DD5FF69
 ```bash
 magnet:?xt=urn:btih:73551CDE8B8E4A78770A97439531A73AD0428139
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ TG Pro — контроль температуры и вентиляторов �
 magnet:?xt=urn:btih:8AF9CD09E1F6454390A687D9799BEB2E2061DE4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:8AF9CD09E1F6454390A687D9799BEB2E2061DE4E
 magnet:?xt=urn:btih:F6789B01F2C6F0FDD35ED928A29780A50C07D221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ MediBang Paint Pro 27.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6CE86957A720D21572D892A0E63DA2E65CE54730
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

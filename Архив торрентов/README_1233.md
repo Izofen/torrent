@@ -19,6 +19,8 @@ Snagit предлагает неограниченные возможности 
 magnet:?xt=urn:btih:6BC968B1F1FD619D050552D95C83BE7E40C2BCB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:87F2D541DACD463FD749720475528AB4D25AE401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ OCCT 7.2.0 Final Portable [Multi/Ru]
 magnet:?xt=urn:btih:85F96EE0A8F65907C6BA56E708AF8B42D2D7107A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Total Commander 11.01 (01.11.2023) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:5FB06F9AD8BBC5E4AEC3A13A4B858B048928EFFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:66EE2D66E0EC3D5AE93B5A532A39A478E95B924A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Mountain Duck позволяет монтировать любой удален�
 magnet:?xt=urn:btih:92A0D3FFC1432DF075D32690434DF9B9ECF86AEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Camtasia for Mac — эффективное приложение для созд
 ```bash
 magnet:?xt=urn:btih:ECFB0F75F5585574DFF980D8F7B33B5ADED530A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 magnet:?xt=urn:btih:5D8F6292F04B50D6F6B5F5B1AB752C1711EE1F59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Truecaller - представляет собой электронную теле
 ```bash
 magnet:?xt=urn:btih:323B94F8749E78924A56F879756AC3A95B3FCB88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 magnet:?xt=urn:btih:422310C0D44A0B974E5F9BA29E4A83D8455B2EC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:422310C0D44A0B974E5F9BA29E4A83D8455B2EC3
 ```bash
 magnet:?xt=urn:btih:CFFA71F089CCAE29AA02EE70EC327F6AFE409FC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Skype - бесплатная программа для текстового, г�
 magnet:?xt=urn:btih:E29A7C22813903C7691C049D0F9902BC86F4161B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:75C79C4D6405D2025F397CB9FDDE5CE012448C88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ FastStone Capture представляет собой довольно мощн�
 magnet:?xt=urn:btih:629382210C58E118DFD2492E417351CC9C47DFBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ ExtraDisks - это набор инструментов для создания 
 ```bash
 magnet:?xt=urn:btih:CC65DF8DEBA151976BD17D1A815E44B5E586D2AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 magnet:?xt=urn:btih:CF63EE3AEB4C76A2846AC6297E2B0679133138B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:354E8C5F3358404C40F1FDCA57941426FA2F0456
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:EEA4A7853693D7073EC49F255A9F0957E17543DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ FiLMiC Pro - функциональное приложения для веден
 ```bash
 magnet:?xt=urn:btih:12AD3F618CB7B5E9E60F68B358DBA31C674B3D55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:3BA9D85CE911EB60B63854EB7B388A10E2AAC706
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Topaz Video AI 4.0.2 (x64) + All Models Portable by FC Portables [En]
 ```bash
 magnet:?xt=urn:btih:FD645D3C3B68C812C861B2662D5063E2FA96BB56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Easy Data Transform 1.11.0 [En]
 magnet:?xt=urn:btih:8CC73376853987D9A513B8BA6E06BDE8AC7EC38E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ AIDA64 (Mobile) v1.84 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:166A057DB12531B0329C17F6A8507AC18298981B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ EZ CD Audio Converter - утилита для преобразования ау�
 magnet:?xt=urn:btih:D52EC6FA1C4D11B4DFE81A1955C86E3FDCA3E114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ Volume2 — альтернативный регулятор громкости, 
 ```bash
 magnet:?xt=urn:btih:44631EAF8C3F8AD2D9FF97AD22BA02E65BA266DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +673,8 @@ Windows and Office Genuine ISO Verifier - компактная утилита д
 ```bash
 magnet:?xt=urn:btih:4ED5DC7EA59181AF8A8D518AEA5CFF6B6EED00BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

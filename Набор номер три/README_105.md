@@ -20,6 +20,8 @@ One-Punch Man / Ванпанчмен [2015, TV, 12 из 12 + 1 из 6 SP] HDTV 7
 magnet:?xt=urn:btih:95D31C94F37A941DEA932000612B46B3ED49B64D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:95D31C94F37A941DEA932000612B46B3ED49B64D
 ```bash
 magnet:?xt=urn:btih:A4FD998322949024928E3AE0A043BD1DA4B8C71C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:A4FD998322949024928E3AE0A043BD1DA4B8C71C
 magnet:?xt=urn:btih:0500E43BA69E02BD1695E368FBDE44A039B62CE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ HITMAN 2 (2018) [Ru/Multi] (2.72.0/dlc) Repack Other s [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:A5B523CC7DC82CB9E0B2B05EDF783E75558991A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Stellaris (2016) [Ru/Multi] (2.5.1/dlc) License GOG [Galaxy Edition]
 magnet:?xt=urn:btih:014DD01DA0B0B0E870FAC1CD8D2D8D207E69258E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:014DD01DA0B0B0E870FAC1CD8D2D8D207E69258E
 magnet:?xt=urn:btih:4C9F0404AE4D484C043EBA9303E7A7FD49F0C39E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:4C9F0404AE4D484C043EBA9303E7A7FD49F0C39E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:4C9F0404AE4D484C043EBA9303E7A7FD49F0C39E
 magnet:?xt=urn:btih:17DC27FC840341BF0424A70A0BCC13FBBB3AD35C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Jinn'sLiveUSB - конструктор мультизагрузочной фле
 ```bash
 magnet:?xt=urn:btih:C79CC823A81CBD9C1F87BFA4C28BD179B3936933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ The Expanse: A Telltale Series (2023) [Ru/Multi] (1.0.902523.2310241203) Repack 
 magnet:?xt=urn:btih:11DCE015CCB7DC76B9E6EF93F4DDD14C5513B83D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ MInstAll by Andreyonohov & Leha342 Lite v.27.12.2020 [Ru]
 ```bash
 magnet:?xt=urn:btih:EDFDE6EC7785B5B102681D090444E9626B6C5B9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:EDFDE6EC7785B5B102681D090444E9626B6C5B9D
 magnet:?xt=urn:btih:921E3ABE1B482161D8C8BA4FBDC831EBAE54F83C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:921E3ABE1B482161D8C8BA4FBDC831EBAE54F83C
 ```bash
 magnet:?xt=urn:btih:4F2EB9C36FC377598DE327A5BC39794A463FB0E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Wondershare Filmora Effect Packs 4 RePack by elchupacabra [Ru]
 magnet:?xt=urn:btih:80A0B3852DBE94E4F7F6792CE8D0438D1AE8C039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:80A0B3852DBE94E4F7F6792CE8D0438D1AE8C039
 ```bash
 magnet:?xt=urn:btih:E77028891C0588CCBA30CEF3048E6ECBB90FA845
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:E77028891C0588CCBA30CEF3048E6ECBB90FA845
 magnet:?xt=urn:btih:83541221C621DF4D5A3C25CBC7F106B4F38219B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:83541221C621DF4D5A3C25CBC7F106B4F38219B6
 ```bash
 magnet:?xt=urn:btih:E922536B3021C20BA871E962456EFE131C803EB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:E922536B3021C20BA871E962456EFE131C803EB4
 magnet:?xt=urn:btih:6A83C95C19A489C19BEC053480E513D0C45D406E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Senyoku no Sigrdrifa | Warlords of Sigrdrifa | Полководцы Сигрдр
 ```bash
 magnet:?xt=urn:btih:4CFBE133ED70B29560DF5F2F5EA1D1CBF5D41C35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:4CFBE133ED70B29560DF5F2F5EA1D1CBF5D41C35
 magnet:?xt=urn:btih:179F3C8C245C39AD958A9049B929DB198CD1EF46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Quattroruote — великолепный, качественный глянце
 ```bash
 magnet:?xt=urn:btih:8C0CD0AD084590712B2F46B80EE7EF555A7C2107
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:8C0CD0AD084590712B2F46B80EE7EF555A7C2107
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:8C0CD0AD084590712B2F46B80EE7EF555A7C2107
 ```bash
 magnet:?xt=urn:btih:EAB1D0A71D774C59718CB386301D975A51667F8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:EAB1D0A71D774C59718CB386301D975A51667F8C
 magnet:?xt=urn:btih:84971FB5F92CE4B965F65CEB0768367947BF593B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Quantum Break - уникальный проект, состоящий из дв�
 ```bash
 magnet:?xt=urn:btih:E0C98882E3026E400275587341F1852D77DFE8C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:E0C98882E3026E400275587341F1852D77DFE8C5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

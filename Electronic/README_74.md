@@ -22,6 +22,8 @@ VA - Armin van Buuren - A State Of Trance 1167 (2024) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:61798D4E69B01823FE2E5862843B1B146FDA8805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VA - Sport - Hits for Your Workout (2024) [MP3|320 Kbps] <House, Dance>
 ```bash
 magnet:?xt=urn:btih:54267959F08C4153856CF7BE4C93F2347CE52BC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Blank & Jones - Milchbar - Seaside Season 16 (2024) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:02142F3EB3B0D9DEAB08A3F385E49FD4A1441278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Shimah - 4th Dimension (2024) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:FE252F12893EEEAD6BD2CB70D28E1B0EE2E00E97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Spag Heddy - The Noodle Effect (Re-Heated) (2024) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:7A471FBA970E6425ED100B96D2AA9E40E0C751CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ VA - A Taste of Chillout, Lounge & Lofi Music (2024) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:C34756CF03ED0AB2D9AFC9F81D9E2CD499036496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Korolova - Live @ Captive Soul, Centrum Eventowe Butelkownia Warsaw (2024-03-16)
 magnet:?xt=urn:btih:8D264DEB7D1D6D8D98840C0CA7AF7656D68B6282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ VA - Essential Chillout & Lounge Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lou
 ```bash
 magnet:?xt=urn:btih:47838D8EDC7D2DAF32EF221464451EC415CFB0DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ VA - Fiji Golden Sunrise: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:EE7D1E94545CAE742C29538F06241694FE2279F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ VA - Hardstyle Top 100 Edition 2024 [MP3|320 Kbps] <Hardstyle>
 ```bash
 magnet:?xt=urn:btih:F7E0E18C4390D0569224DA6E15B8DDFB33DC5077
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Max Cruise - Nights at Sunset Beach (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 magnet:?xt=urn:btih:EA990D0466B7345BF86A390020B8F771905376ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ VA - Uplifting Only Top 15: March 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <T
 ```bash
 magnet:?xt=urn:btih:084506BB81344012DF17296ED7A0DEA1B5457F64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ VA - Milk & Sugar House Nation Ibiza 2025 [FLAC|Lossless|WEB-DL|tracks] <House>
 magnet:?xt=urn:btih:AE189F5751BDB68229445FFFD2FA859FC21430A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ VA - Ablazing Spring Sessions 2024 [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:9B3438B041FFF8766F136B2BF68D403E3D6915E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ VA - Amsterdam Chillout 2025 (2025) [MP3|320 Kbps] <Chillout, Balearic, Downtemp
 magnet:?xt=urn:btih:723D62715849121AABAEA37D8B87459AFC1FFD71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:CDD43AF6F4E3930728B83794807835189BFA771A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ Laserdance - Mission Hyperdrive (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth
 magnet:?xt=urn:btih:F0297309D47EBB9CFCED167C0F495F2A97FF9D79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ VA - Bar Groove Analog 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 ```bash
 magnet:?xt=urn:btih:0CCE2FE6AD0475FC42794745154AB98FA83539A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ VA - Restaurant Lounge Ambient Background Music (2024) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:C5985867FFE56DB9D33580BFB0AF5D1EAB8A588B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ VA - Miami Sessions 2024 [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:1C5ECE052407C41EA30E0C624D85DF08BBA69747
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ VA - Dynamic (2024) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
 magnet:?xt=urn:btih:A67B23953850B211DE9E2283B9F428D0434EFB39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ Digital Emotion - The Maxi-Singles Collection (2023) Compilation [FLAC|Lossless|
 magnet:?xt=urn:btih:71EB81FB3F07376313407780D76E30CFE521B942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +653,8 @@ Spoq - Solace (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Breaks, DubStep,
 ```bash
 magnet:?xt=urn:btih:5D8C3B6B437F27C9365DDABF76F9C106C88FB548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +683,8 @@ Lane 8 - Spring 2024 Mixtape (2024-03-19) [MP3|320 Kbps] <Progressive House, Mel
 magnet:?xt=urn:btih:831C1975E267D87C48986DE76715F209705187BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +712,8 @@ GOODBOYS - Tomorrowland Friendship Mix (2024-03-28) [MP3|320 Kbps] <House, Tech 
 magnet:?xt=urn:btih:A34C98167536B2EE4F27C50FF128320191C873F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +740,8 @@ VA - Armin van Buuren - A State Of Trance 1166 (2024) [MP3|320 Kbps] <Trance, Pr
 ```bash
 magnet:?xt=urn:btih:9D765666157FC26788A482B8C352951BA136A9DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

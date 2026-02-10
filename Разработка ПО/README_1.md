@@ -20,6 +20,8 @@ Java Runtime Environment (JRE) - программное обеспечение �
 magnet:?xt=urn:btih:C0FF90B3A39141E9CE65E920436E908949BCB4A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Java SE Development Kit - программное обеспечение необ
 magnet:?xt=urn:btih:D7EA2351DE0E38C278820F8398CB7A8BDBB9F205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:D7EA2351DE0E38C278820F8398CB7A8BDBB9F205
 magnet:?xt=urn:btih:D75F5E10AD6C21F48E746A5555D50AFAAC0C5654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ JetBrains PyCharm Professional – это мощная и многофункци
 ```bash
 magnet:?xt=urn:btih:95D1E6F13BC59A93EEB8ADA98BF0586BCABE078C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Embarcadero RAD Studio 12 Athens 29.0.50491.5718 [En]
 magnet:?xt=urn:btih:5DDB2F491F0F31F40DE105EF07C76D3F534016C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Microsoft Visual C++ Redistributable Package – это распространя
 ```bash
 magnet:?xt=urn:btih:EBF15A201AA9442DB6CB79D7804CEDA7BA00EC5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Open Server Panel 6 — это обновлённая версия популя�
 magnet:?xt=urn:btih:2E1A136331A2290DF212270B6138B3588129C672
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ SDL Passolo - это шаблонный редактор ресурсов люб
 ```bash
 magnet:?xt=urn:btih:5B5234C4B4106C780A043020B202FF11C59DC884
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Microsoft Visual C++ Redistributable — это набор системных б
 magnet:?xt=urn:btih:01121AEB095138B145E8F2103AAF1A4485B35DD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Resource Tuner - это программа для просмотра, редак
 ```bash
 magnet:?xt=urn:btih:8727360574097D9F5E680400BC5A0BAC4A18E01D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Open Server Panel 6 — это обновлённая версия популя�
 magnet:?xt=urn:btih:F410A9FEC064C907618764731BF8681CCB5D8B5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Visual Studio — это мощное средство разработчика,
 ```bash
 magnet:?xt=urn:btih:ADAD1429991372F70AF744E68B2D88F8792B10B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ Visual Studio — это мощное средство разработчика,
 magnet:?xt=urn:btih:C513DFC509B08E60FEA644AB84F4296DD5D5732B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Microsoft Visual Studio 2026 Enterprise Insiders 18.0.0 [11116.177] (Offline Cac
 ```bash
 magnet:?xt=urn:btih:78AD6183E13C39EDA8178D6C617222CACAB90C56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Advanced Installer - приложение, с помощью которого, �
 magnet:?xt=urn:btih:42C8C6335FFFA9BC74B880716541E177CF885DBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ GoLand - это IDE от JetBrains, нацеленная на создание �
 ```bash
 magnet:?xt=urn:btih:962D3787699788596A93F8BECD892B5D47533B1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ JetBrains DataGrip – новейшее программное обеспече�
 magnet:?xt=urn:btih:A553B50D9491104C58D543493C58B5972357913B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ CLion — умная IDE, предназначенная для разработ
 ```bash
 magnet:?xt=urn:btih:B8B523BA85B74165AD786F0974A04BDE93765C96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ RubyMine — умная и удобная интегрированная сре�
 magnet:?xt=urn:btih:2C56A89FC5963EFB334821CC1B20844E2F29F344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Adaptive Server Enterprise — реляционная система управ�
 ```bash
 magnet:?xt=urn:btih:59D5F9685425A3EC1D27EF248FB4BE23AECE060C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Embarcadero RAD Studio 11.3 Alexandria 28.0.47991.2819 [En]
 magnet:?xt=urn:btih:563D61403F740D2494063CCCE75BE83A6996E542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ SDL Trados Studio - мощная программа для перевода те
 ```bash
 magnet:?xt=urn:btih:F87A18F281DF2F93469277CC4FAC6F770BF1AFE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Java SE Development Kit - программное обеспечение необ
 ```bash
 magnet:?xt=urn:btih:BB26A217977B9B49D7ABD286C2F8E9D3F6EB67EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ NeoAxis Engine - мощная универсальная среда для ра�
 magnet:?xt=urn:btih:49AB74ADE4DBAF9A82B11D59FD3C89BD4ECFA121
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ SynWrite - бесплатный мощный текстовый редактор
 ```bash
 magnet:?xt=urn:btih:6716703C0953317E5419E9D9CEB2EF5EA498CF97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +684,8 @@ PSPad — текстовый редактор с расширенными фун
 ```bash
 magnet:?xt=urn:btih:36675C3BF67AEF6BF050B122F20AB10FA011E359
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

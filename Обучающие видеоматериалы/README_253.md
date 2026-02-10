@@ -19,6 +19,8 @@ Fotoshkola | Фотография в путешествии (2014) CamRip [H.264
 magnet:?xt=urn:btih:434E7764B07E6974D46FD2825496367ED2A669BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:434E7764B07E6974D46FD2825496367ED2A669BE
 magnet:?xt=urn:btih:8AF50D02F5BB87B38CE6810683F790E55C2EADC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Dmitry Tikhonkikh | OpenGL ES 2.0 (Части 1-17) (2018) HDRip
 magnet:?xt=urn:btih:213CA88D1157E672E021C2B9C3FB077C0B2F688F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ DB15 — это комплекс коротких 15-минутных трени
 ```bash
 magnet:?xt=urn:btih:4852C425AEE4F42AC16CDE64BB87491CB65CED14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ New English Files - полностью новое издание, основан
 magnet:?xt=urn:btih:D406D2534FAE6CD35D450A9ADBB462CA76AB1401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ PIXEL | Рисование в Adobe Photoshop (2018) PCRec [H.264/1080p-LQ]
 magnet:?xt=urn:btih:144A2C84753D43B08B4D29EF70054D18C24BF77D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:144A2C84753D43B08B4D29EF70054D18C24BF77D
 ```bash
 magnet:?xt=urn:btih:5526350BDDC7F9E3C8B3C0ED762C240E1487D848
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:5526350BDDC7F9E3C8B3C0ED762C240E1487D848
 magnet:?xt=urn:btih:4D0D9E1F4D7A0E8392593B8F3B131D5BE8ABC8BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Webcademy | Сборка Gulp 4.0 (2019) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:54E67553AC67C331FE64B8951A4F39D7721273D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Hacking School, IT Security Academy | Взлом сайтов на практи�
 magnet:?xt=urn:btih:605F326663956365C2498434300BFE33012BD472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ PhLearn | A Dark Force Photoshop/Тёмная сила Photoshop. Части 1 -
 ```bash
 magnet:?xt=urn:btih:010DD1A7DC74E1A5F0D5FE074F2E1F232B52E66B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Udemy | Миграция на Exchange Server 2016 (2016) PCRec [H.264]
 magnet:?xt=urn:btih:56D5061232C643BAC8C199652DCAB5709EFA3A4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Sсоtt Sоnnоn | 6 Dеgrее Flоw (2014) DVDRip [EN]
 ```bash
 magnet:?xt=urn:btih:DAAD684BB1F1E723D30F9AF18BA867EDED3D2A1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ OTUS | Python QA Engineer (2019) PCRec [H.264]
 magnet:?xt=urn:btih:41872B9DB1AC1B0E7DBB1A40A01580330E04114D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ OTUS | Python для начинающих программистов (2018) PCRe
 ```bash
 magnet:?xt=urn:btih:7C7054DDF79FB554AFA9BA965D4DE30C426FF049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ javascript.ru | Курс по Node.JS (2018-2019) PCRec [H.264]
 magnet:?xt=urn:btih:4F8FB74765DCE24AF7F42676793538F9514056B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:4F8FB74765DCE24AF7F42676793538F9514056B6
 ```bash
 magnet:?xt=urn:btih:AB3BDE0DB9F252A5F63EEDEFA38A1FC4057B176C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:AB3BDE0DB9F252A5F63EEDEFA38A1FC4057B176C
 magnet:?xt=urn:btih:AF0D48AF0C0AAD8D43A11BB635E29DAADABA926C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ NITROX3D (Non-destructive Iterative Techniques for Rapid Object eXploration in 3
 ```bash
 magnet:?xt=urn:btih:AEC7E6D95EDCEE5237AA8871ED2F604739B28AF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ Lynda.com | Успешный проект за 12 шагов! (2014) PCRec [H.26
 magnet:?xt=urn:btih:B22D1599F098714AE368D0890D0A77D2F31B4F42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:B22D1599F098714AE368D0890D0A77D2F31B4F42
 ```bash
 magnet:?xt=urn:btih:73460CF7CBCFA8AFEF105E5B05EE048835E3B4F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:73460CF7CBCFA8AFEF105E5B05EE048835E3B4F1
 magnet:?xt=urn:btih:7F953EBF5EC6B12E13FCA340CC644DF2806942AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:7F953EBF5EC6B12E13FCA340CC644DF2806942AA
 ```bash
 magnet:?xt=urn:btih:0B91E6E27F13590DDEBD22EFAE72A5F93A967010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ Boot – это тренировки, которые сочетают в себ�
 magnet:?xt=urn:btih:7E22BACFF9A0E002AF2372FB90264382F9D4A32E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:7E22BACFF9A0E002AF2372FB90264382F9D4A32E
 magnet:?xt=urn:btih:71A41E661323E7ED0E2056AB0CE2A57648F2D530
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ Paul Katami | P90X Live - Lower  Upper Strength Workout (2016) HDTVRip [H.264/10
 ```bash
 magnet:?xt=urn:btih:D4C04005506E570E86C08B8D566A3100EAF81A13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1281705   (750022) от 09.02.2019
+
+VA - The Official UK Top 40 Singles Chart 08.02.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ariana Grande - 7 Rings 2:59
+02. Ava Max - Sweet But Psycho 3:08
+03. Sam Smith, Normani - Dancing With A Stranger 2:51
+04. Calvin Harris, Rag'n'bone Man - Giant 3:49(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE89E95A5F7ED7BD6DFFD20333BA7AC00A1F9685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396012   (750066) от 13.07.2020
 
 VA - Record Super Chart 644 (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -21,6 +50,8 @@ VA - Record Super Chart 644 (2020) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:97328CE8338802DA5B3542898ACF1DF928577F86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Summer Lovin' (2020) [MP3|320 Kbps] <Rock, Pop, R&B>
 magnet:?xt=urn:btih:44FFA5E82F36F86BA3627EB9421F8DED1D9657D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Vocalove (2020) [MP3|320 Kbps] <Pop, Rock, Other>
 ```bash
 magnet:?xt=urn:btih:1E09B142907723B14841FD241B43CBB4841E70FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - : Созвездие весеннее - 8 (2016) [MP3|256 кб/с] <Pop, Da
 magnet:?xt=urn:btih:DF9BDB7C466C74C1F812CE92EE03C0A02A4D6DAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Spacesynth 4ever (mCITY Edition) (2016) [MP3|320 кб/с] <Electronic, Spac
 ```bash
 magnet:?xt=urn:btih:C33413EAB9BF8794FAB92751FEAB2B08288F3767
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ magnet:?xt=urn:btih:C33413EAB9BF8794FAB92751FEAB2B08288F3767
 magnet:?xt=urn:btih:B97EE91B0ECF9FE818F3ADCF248FA87923EC7202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Club Funky House: Majestic Remix (2016) [MP3|320 кб/с] <Club, Electro, F
 ```bash
 magnet:?xt=urn:btih:90E6F8C327B0F4E90C27F327B165F2155DD6DD58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Trance Massive 100 Tracks May (2016) [MP3|320 кб/с] <Trance, Uplifting T
 magnet:?xt=urn:btih:EDA989E749937C437240778FC78F43526BB17393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Summer Beach Lounge Affair (Sexy Deluxe Relaxation Cafe Music) (2016) [MP3|
 ```bash
 magnet:?xt=urn:btih:6063F0BC683D5054D2D612D1E923890B06099026
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - The Best of Trance 46 (2016) [MP3|320 кб/с] <Trance>
 magnet:?xt=urn:btih:328C204AC0A336568D0C60509E3C9ABC66D03C6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Ultimate Guide to Chillout: The Only Chillout Album Youll Ever Need (2016) 
 ```bash
 magnet:?xt=urn:btih:5DB40B49B2BAE4DD7D5B9A873FF1C7291098820C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Pacific Progressive Trance (2016) [MP3|320 кб/с] <Trance, Progressive>
 magnet:?xt=urn:btih:6E2EB7C7C0C13ADC03D7C08C89EED9202C6D104D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Incepto Music. 100Th Release (2016) [MP3|320 кб/с] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:6CF3737F05EE2987EFDB72342DC585773655EF40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Music 80s - Collection от ALEXnROCK часть 1 (2021) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:A49E7AE778287D128FC5F93B8463213A3BC7B1C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +453,8 @@ In-Grid - Tu Es Foutu (2019) Remix [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:38C9CAC7327EB8FE24CC6D27C895D639140B0873
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +483,8 @@ VA - Deep House Collection Vol.163 (2018) [MP3|320 Kbps] <Deep House, Club House
 magnet:?xt=urn:btih:D379026971AEC06D38225FEBE4CC3F7F2369FE4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +511,8 @@ magnet:?xt=urn:btih:D379026971AEC06D38225FEBE4CC3F7F2369FE4C
 ```bash
 magnet:?xt=urn:btih:6B18327E41DB4AB5717697BC30F5F9C68493C8A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +541,8 @@ VA - Deep House Collection Vol.162 (2018) [MP3|320 Kbps] <Deep House, Club House
 magnet:?xt=urn:btih:04FF7F93016197FB9A4EF00247927899D5632323
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +569,8 @@ VA - Deep House Collection Vol.160 (2018) [MP3|320 Kbps] <Deep House, Club House
 ```bash
 magnet:?xt=urn:btih:3C2CEBF47A1E9F681E91C0C2E6AA894FCD141B3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +599,8 @@ VA - Baleric Soaring Inspiration (2018) [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:37D2816CC037DDF5B614C262013218E6E85ADE27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +627,8 @@ Frank Duval - Compilation (2022) [MP3|320 Kbps] <Rock, Pop Rock, Electronic>
 ```bash
 magnet:?xt=urn:btih:878888100F41DFFC711D8F83EE1CEF67639636A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +657,8 @@ Dj kolhoz - Compilation (2021) [MP3|320 Kbps] <Instrumental>
 magnet:?xt=urn:btih:1134F9E50019D4257B6BCE2053C51A1BAB2EFCB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +685,8 @@ VA - Шансон Музыкальный хит-парад (2020) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:CBEBE14705C20979F0742BBEF5CA8F57A8F8523F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +715,8 @@ VA - Сегодня на радио хиты FM Vol.4 (2019) [MP3|320 Kbps] <Pop
 magnet:?xt=urn:btih:11B5295EA63133C645A3CD4A5CC34D53EECC4B48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,32 +744,7 @@ VA - ЕвроХит Топ 40 Europa Plus 08.02.2019 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:B2A67AE8F7E4EF6EB02681868CB3D34B09FC408C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281526   (751861) от 08.02.2019
-
-VA - Beatport Top 100 Downloads January (2019) [MP3|192-320 Kbps] <House, Electro, Tech>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARTBAT – Upperground (Original Mix) (6:45)
-02. Rebuke – Along Came Polly (Original Mix) (6:29)
-03. Martin Ikin – No No (Original Mix) (5:18)
-04. Don Diablo, Keanu Silva – King Of My Castle (Original Mix) (3:37)(   Читать дальше...   )Жанр: House, Electro, Tech, Progressive, Techno, TranceПродолжительность: 10:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80BE1FD595E24700C4E91D1121768FBEC92BCE95
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

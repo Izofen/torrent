@@ -1,3 +1,30 @@
+###  Публикация: 1058919   (463603) от 03.10.2016
+
+Сергей Вишневский | Звезда в руке и шило в ... (2016) [MP3]
+
+>>След.
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463603.jpg" />
+</div>
+
+
+###  Подробнее
+
+На представление фантазии программистов и программного кода под названием "Рассвет" обычно собирались романтики или зеваки, начитавшиеся в галанете об этом прекрасном моменте.
+Да, перед вами опять ЛитРПГ, на этот раз наполненное искрометным юмором и, как всегда, головокружительными приключениями. Это последнее приключение Мотодора ЛегОласа и Таблеткина (   Читать дальше...   )Жанр: Фантастика, Киберпанк, ЛитРПГПродолжительность: 06:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AB041DA3EF9FCEFD610EE4CBC7FC15751F7200B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246300   (463617) от 10.09.2018
 
 Елизавета Дворецкая | Чуроборский оборотень (2018) [MP3]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:EDD2221C43BF58FE118C1EE667240205E71D5EAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:EDD2221C43BF58FE118C1EE667240205E71D5EAA
 magnet:?xt=urn:btih:BF462491E15A78C0674C376A09014D07D89195A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:BF462491E15A78C0674C376A09014D07D89195A1
 magnet:?xt=urn:btih:867D8C6CD4ACE5AA5BA4302E8B2B0CD01B22992A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:867D8C6CD4ACE5AA5BA4302E8B2B0CD01B22992A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:867D8C6CD4ACE5AA5BA4302E8B2B0CD01B22992A
 magnet:?xt=urn:btih:2696197625D116911DC52C4BD93DA309DC83A291
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:2696197625D116911DC52C4BD93DA309DC83A291
 ```bash
 magnet:?xt=urn:btih:3B9A42B774C96E4881F00DD75C38CE4C6C41E59E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +207,8 @@ magnet:?xt=urn:btih:3B9A42B774C96E4881F00DD75C38CE4C6C41E59E
 magnet:?xt=urn:btih:17EF7B3365626085C82F4C12041081E8E0CF95ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +234,8 @@ magnet:?xt=urn:btih:17EF7B3365626085C82F4C12041081E8E0CF95ED
 magnet:?xt=urn:btih:FC39DF29987B73B1B64410E0790CCEBDDD93DF54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +259,8 @@ magnet:?xt=urn:btih:FC39DF29987B73B1B64410E0790CCEBDDD93DF54
 ```bash
 magnet:?xt=urn:btih:4FE79B8832CB4D73C3090F7C88AAF92AE99622E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +286,8 @@ magnet:?xt=urn:btih:4FE79B8832CB4D73C3090F7C88AAF92AE99622E6
 magnet:?xt=urn:btih:0ADF5B41E1168BC5EF779AFA7D2EE711701FB118
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +311,8 @@ magnet:?xt=urn:btih:0ADF5B41E1168BC5EF779AFA7D2EE711701FB118
 ```bash
 magnet:?xt=urn:btih:472813AE811BC9ECA412191FE086BD45007F1724
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +338,8 @@ magnet:?xt=urn:btih:472813AE811BC9ECA412191FE086BD45007F1724
 magnet:?xt=urn:btih:1EF42AFD851D031EC19A1EB4098E65BB312B25AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:1EF42AFD851D031EC19A1EB4098E65BB312B25AE
 ```bash
 magnet:?xt=urn:btih:EAC547802751A0B8EB2AE6893AB67D859AA78B4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +390,8 @@ magnet:?xt=urn:btih:EAC547802751A0B8EB2AE6893AB67D859AA78B4F
 magnet:?xt=urn:btih:D0A7359877E4865604505BBDF129E4DEB543B30C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +416,8 @@ magnet:?xt=urn:btih:D0A7359877E4865604505BBDF129E4DEB543B30C
 magnet:?xt=urn:btih:10034F2EB0E16C655F3CCB43BCE5B0A197F00921
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +441,8 @@ magnet:?xt=urn:btih:10034F2EB0E16C655F3CCB43BCE5B0A197F00921
 ```bash
 magnet:?xt=urn:btih:66851F57BA601E5CED3DA34350BA1AF751C7CA7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +469,8 @@ Dazarat | Мастерская Историй [Миф о владыке мира
 magnet:?xt=urn:btih:4FBBE525AAB8A704F27F8D6672F7D734581BBB79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +494,8 @@ magnet:?xt=urn:btih:4FBBE525AAB8A704F27F8D6672F7D734581BBB79
 ```bash
 magnet:?xt=urn:btih:30036D7FC32472C9A042548E8BDA0B400C2DE833
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +521,8 @@ magnet:?xt=urn:btih:30036D7FC32472C9A042548E8BDA0B400C2DE833
 magnet:?xt=urn:btih:4A634E0ABCA137B8E80C2C5D7EEA3B58625CE4F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +546,8 @@ magnet:?xt=urn:btih:4A634E0ABCA137B8E80C2C5D7EEA3B58625CE4F6
 ```bash
 magnet:?xt=urn:btih:C53728CE9DF9682A5151F9951C6504527110180E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +573,8 @@ magnet:?xt=urn:btih:C53728CE9DF9682A5151F9951C6504527110180E
 magnet:?xt=urn:btih:E8E2D0AD648C1B01853484DAD0F479BEB43DFD5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +598,8 @@ magnet:?xt=urn:btih:E8E2D0AD648C1B01853484DAD0F479BEB43DFD5B
 ```bash
 magnet:?xt=urn:btih:095B1A0787E871AED42396A632F5AD94B0ACB48A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +625,8 @@ magnet:?xt=urn:btih:095B1A0787E871AED42396A632F5AD94B0ACB48A
 magnet:?xt=urn:btih:A6D142A1CDFE342DE8CB49EB9FB092B050D563D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +650,8 @@ magnet:?xt=urn:btih:A6D142A1CDFE342DE8CB49EB9FB092B050D563D8
 ```bash
 magnet:?xt=urn:btih:9EE8025DDA7BEAD88DAEAE6FAD5F94CE91AE2CDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +678,7 @@ magnet:?xt=urn:btih:9EE8025DDA7BEAD88DAEAE6FAD5F94CE91AE2CDD
 magnet:?xt=urn:btih:9919981AD58780ECA98F69E9232BEF3A68A5ABB6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940329   (468669) от 24.09.2015
-
-Джек Вэнс | Замок Иф (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_468669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания скучающих и пресыщенных жизнью молодых людей решается отправить одного из них в таинственный Замок Иф, реклама которого обещает незабываемые приключения. Спустя несколько недель они встречают своего приятеля внезапно разбогатевшим. В Замок Иф отправляется следующий...Жанр: ФантастикаПродолжительность: 03:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:326A11E8E6B5365904F2EF1520A88541D6D247FA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

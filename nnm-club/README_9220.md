@@ -22,6 +22,8 @@ VA - 3xA Mixed Series VI (2018) [FLAC|Lossless|WEB-DL|tracks] <House>
 magnet:?xt=urn:btih:65E2E70F1714243635F3E957824BE89A97702553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:65E2E70F1714243635F3E957824BE89A97702553
 ```bash
 magnet:?xt=urn:btih:1A23C5C574AC7058BB20A2F47234B9386655A7EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Gordian Knot - Gordian Knot (1998) Japan [FLAC|Lossless|image + .cue] <Progressi
 magnet:?xt=urn:btih:79451F9E1238F1AF93C0FEE8ED08F0879EE751CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:79451F9E1238F1AF93C0FEE8ED08F0879EE751CF
 ```bash
 magnet:?xt=urn:btih:0D5E06F2DB3731E0D77FD3D87D92DB91E1333CB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Kiyoshi Sugimoto Quartet - Country Dream (1969) 2007, Columbia Music Entertainme
 magnet:?xt=urn:btih:F68123DBA357C33FED730308B9E5A22202E7A7B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Kong - Push Comes to Shove (1995) [FLAC|Lossless|image + .cue] <Instrumental Pro
 ```bash
 magnet:?xt=urn:btih:67E48F306242FE823CBB2B7050DA5315D01C805C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:67E48F306242FE823CBB2B7050DA5315D01C805C
 magnet:?xt=urn:btih:BE431786D7115EA89C1F3795D0D503BDA09EEBE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Abi In Malam Pestem:
 ```bash
 magnet:?xt=urn:btih:189EA0E71242193AD4DE766F93079D9BC0027FA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Shintaro Nakamura Quintet - Evolution (1984) 2007, Solid Records [FLAC|Lossless|
 magnet:?xt=urn:btih:F29831D4B7A12AFD5F9B456ED2E48DF5DF4F3923
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Nicole Millar - [communication] (2016) EP [MP3|320 Kbps] <Alternative Pop, Indie
 ```bash
 magnet:?xt=urn:btih:EF9EDD051EB88242C0E4AE3FE05CB3391DD759EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Aesop Rock & Homeboy Sandman - Lice Two: Still Buggin' (2016) EP [FLAC|Lossless|
 magnet:?xt=urn:btih:5A580563017BC03BA6117496BC9C391D0B03A2D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ magnet:?xt=urn:btih:5A580563017BC03BA6117496BC9C391D0B03A2D7
 ```bash
 magnet:?xt=urn:btih:7ED7C310962AE2A5001D1CDFEDA8D4248CD2CBAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ Gram Rabbit - Music to Start a Cult to (2004) [MP3|320 Kbps] <Alternative Pop, P
 magnet:?xt=urn:btih:BE49BC1025CDD93F9E1E37F78995710D97D9E61B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +392,8 @@ magnet:?xt=urn:btih:BE49BC1025CDD93F9E1E37F78995710D97D9E61B
 ```bash
 magnet:?xt=urn:btih:EB154B2BFF1B37D5D22B5DC4877416D228EF5696
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +422,8 @@ magnet:?xt=urn:btih:EB154B2BFF1B37D5D22B5DC4877416D228EF5696
 magnet:?xt=urn:btih:1408CDBD5C1E61CCE685F2E7E1D3FD12CBDCA7F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +448,8 @@ magnet:?xt=urn:btih:1408CDBD5C1E61CCE685F2E7E1D3FD12CBDCA7F0
 magnet:?xt=urn:btih:6FA54675D852BF57BB06437F7AAC054E491EABC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +473,8 @@ magnet:?xt=urn:btih:6FA54675D852BF57BB06437F7AAC054E491EABC3
 ```bash
 magnet:?xt=urn:btih:5FCFACF2116DB2603B42860737083C3CF7CD2DC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +503,8 @@ VA - Traxsource Top 100 November (2016) [MP3|320 Kbps] <Afro House, Minimal, Sou
 magnet:?xt=urn:btih:084300E0CC0A4C90DA9B56046B9D549EFD78A59B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +529,8 @@ magnet:?xt=urn:btih:084300E0CC0A4C90DA9B56046B9D549EFD78A59B
 magnet:?xt=urn:btih:CD6CC52F796AC17C273957A7A7B9A20D55AFDC79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +554,8 @@ magnet:?xt=urn:btih:CD6CC52F796AC17C273957A7A7B9A20D55AFDC79
 ```bash
 magnet:?xt=urn:btih:78140F1ECF42B7393F1C5E02EBD30C334345BDBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +584,8 @@ Aesop Rock & Homeboy Sandman - Lice (2015) EP [FLAC|Lossless|Web-DL|tracks] <Hip
 magnet:?xt=urn:btih:DD6E3C696243FBE26DA123A5B6A73A370AF3B082
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +613,8 @@ Nina Simone - Pastel Blues (1964, 1965) 2006, Universal [FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:058A15CFE6DEE2321079445EFE4A2B259B3DE34D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +640,8 @@ Circular Studio  веселое приложение с мощными новы�
 magnet:?xt=urn:btih:B83A27D8968AA8FEC6274D1D1F71482449536679
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +666,8 @@ magnet:?xt=urn:btih:B83A27D8968AA8FEC6274D1D1F71482449536679
 magnet:?xt=urn:btih:630F3F1C0B4B04B134C01294690BD0B503F1907B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +691,8 @@ magnet:?xt=urn:btih:630F3F1C0B4B04B134C01294690BD0B503F1907B
 ```bash
 magnet:?xt=urn:btih:FB07EB608D0A70748770A9EC87E3390C84410E6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +720,8 @@ VA - Сотка модных хитов. Выпуск 8 (2016) [MP3|256 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:C489C7740B82719F6B111B2533731FEEF1E5FD10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

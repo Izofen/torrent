@@ -22,6 +22,8 @@ VA - Mambo (2000) 3CD box [FLAC|Lossless|tracks + .cue] <Mambo>
 magnet:?xt=urn:btih:EACB820689B9633E4667F1D415E229775A8EA374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Abel Korzeniowski - Nocturnal Animals / Под покровом ночи (Origin
 ```bash
 magnet:?xt=urn:btih:DED8B0599DB715708058E2F67AB51E3911DD8D83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Enya - The Very Best of Enya (2009) [FLAC|Lossless|image + .cue] <New Age>
 magnet:?xt=urn:btih:F64776E07B4B633142CD96FBF7552DFA69C01541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Abel Korzeniowski - Nocturnal Animals / Под покровом ночи (Origin
 ```bash
 magnet:?xt=urn:btih:95DA71808663618E2EF141D59B0E8B07EC72EAE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ The Red Hot Chilli Pipers - Live At The Lake (2014) Live [MP3|320 Kbps] <Folk, W
 magnet:?xt=urn:btih:155B0A8C5C07B3B2D9C45A470606CD2EA64EDBE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Enigmatica vol. 1 (2001) [FLAC|Lossless|tracks + .cue] <New Age>
 ```bash
 magnet:?xt=urn:btih:B7A0A3267AE9832282F97FA1584E3E99246FA5BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Joe Kool - Simple Meditation: The Art of Music, Vol. 1 (2016) [MP3|320 Kbps] <Ne
 magnet:?xt=urn:btih:968750D667D123CBB05386865FA93CAE13E36219
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Sax & Sex (2000) [APE|tracks+.cue]<Instrumental>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Stephen Bennett - Beatles Acoustic Guitar Solos (2005) [MP3|264~268 кб/с (V1)
 magnet:?xt=urn:btih:524D3F72F0A4F4E40F7E9B3F4CCD98707A71E89B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Carl Davis & Philharmonia Orchestra - Abba for Orchestra (2014) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:1A0AC9AF06FE61081FB89A938814C5EC3DDFCA47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Sergio Santini - Love to the Piano (2017) [MP3|320 Kbps] <Instrumental, Classica
 magnet:?xt=urn:btih:8155E48AD8B0EA739E926CE28D74ABBF13C64B8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Andrew Lockington - The Kindness of Strangers / Реальная любовь в
 ```bash
 magnet:?xt=urn:btih:80C157CEFAFE70203CA54BA3219542C7E06F7110
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Andrew Lockington - The Kindness of Strangers / Реальная любовь в
 magnet:?xt=urn:btih:82138E1C5C0AED4B0D13FD69AE4FE6252A015ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Yanni - Sensuous Chill (2016) [MP3|320 кб/с] <New Age, Electronic, Classical>
 ```bash
 magnet:?xt=urn:btih:418F39EDBC83973AD3C21924F2A80DDA8F0FA14D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ magnet:?xt=urn:btih:418F39EDBC83973AD3C21924F2A80DDA8F0FA14D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ Nathan Johnson - Knives Out / Достать ножи (Original Motion Picture S
 ```bash
 magnet:?xt=urn:btih:CDF4AE17DE26398164E635A536FFEC602AF24F91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ Nathan Johnson - Knives Out / Достать ножи (Original Motion Picture S
 magnet:?xt=urn:btih:3AC686E0C2BAE548AB67D269DCB05A8AA13CA74A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +520,8 @@ Frost Orb - Dead Bits Soundtrack (2013) [MP3|320 Kbps] <Soundtrack>
 ```bash
 magnet:?xt=urn:btih:103043D77A608655F1B5EFAFFCA6904BA84E4235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +550,8 @@ VA - Japan Romantic SAX Classics (2014) [FLAC|Lossless]<Instrumental>
 magnet:?xt=urn:btih:F91D3A04A0549C9B0403A8E2428F491B239859DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +578,8 @@ Chris Benstead - The Gentlemen / Джентльмены (Original Motion Picture
 ```bash
 magnet:?xt=urn:btih:B61DAE82FAD650FA488A2FABE03D5C0EB29E6AED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +608,8 @@ Chris Benstead - The Gentlemen / Джентльмены (Original Motion Picture
 magnet:?xt=urn:btih:27873CC278470CD5A2019CBEA003B714BD923525
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +633,8 @@ Portal 2 - Soundtrack (2011) [FLAC|Lossless|tracks] <Soundtrack>
 ```bash
 magnet:?xt=urn:btih:1BE41ECC70E71BB3BD2D62ED1EADAEBB4E22ADAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +663,8 @@ Portal 2 - Soundtrack (2011) [MP3|320 Kbps] <Soundtrack>
 magnet:?xt=urn:btih:C7540E27B8C7DAA5E5B090A3185BC520D901D601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +691,8 @@ Portal - Soundtrack (2014) [FLAC|Lossless|tracks] <Soundtrack>
 ```bash
 magnet:?xt=urn:btih:19905548DF618136E61B5464F589C6B79B0D82CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +721,8 @@ Portal - Soundtrack (2014) [MP3|320 Kbps] <Soundtrack>
 magnet:?xt=urn:btih:9C040A5B0EA53AED0E78F41079BBBA837E26AA92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ Hacknet - Soundtrack (2015) [MP3|320 Kbps] <Soundtrack>
 ```bash
 magnet:?xt=urn:btih:B8C11F512449617FE3A9093581CF80E09723C857
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

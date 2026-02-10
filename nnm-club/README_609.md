@@ -20,6 +20,8 @@ Chord Generator — это MIDI-инструмент, который генер�
 magnet:?xt=urn:btih:F567F69063BE150A7C89B1D85913E3CD77D3FA27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Harmony Bloom - это MIDI -генератор, объединяющий пол
 ```bash
 magnet:?xt=urn:btih:D64E50E7C99DC74CA919737149FF115A9368F4AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:D64E50E7C99DC74CA919737149FF115A9368F4AA
 magnet:?xt=urn:btih:0137943F0EC8376394E6E8EC5322729FDA1377FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Terraformers предлагает вам построить космическу
 ```bash
 magnet:?xt=urn:btih:FC7E805D227127AF2AA041485781D373226EB7D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:FC7E805D227127AF2AA041485781D373226EB7D8
 magnet:?xt=urn:btih:CFBFAC6D9E740F85F69054D7699BC828558AAB77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:CFBFAC6D9E740F85F69054D7699BC828558AAB77
 ```bash
 magnet:?xt=urn:btih:EFBDF3E27EABDC0C30932500B2E185CEE579C556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:EFBDF3E27EABDC0C30932500B2E185CEE579C556
 magnet:?xt=urn:btih:AA2047ABF4060B4199F4EACB5AE88B17687C81F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:AA2047ABF4060B4199F4EACB5AE88B17687C81F3
 ```bash
 magnet:?xt=urn:btih:31E94D6FFD6AE7E8F9EFF6DC8A1AB02E01E0455E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:31E94D6FFD6AE7E8F9EFF6DC8A1AB02E01E0455E
 magnet:?xt=urn:btih:142C453777EE41FCDB94B01D8277F7C4E167DAD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:142C453777EE41FCDB94B01D8277F7C4E167DAD0
 ```bash
 magnet:?xt=urn:btih:CBA6B96A243F9017259863DC568EA5F49D1980D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:CBA6B96A243F9017259863DC568EA5F49D1980D6
 magnet:?xt=urn:btih:5B9D56EE7E21C9347FD58162ED0B0EA805021D11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Astral Ascent переносит геймеров в современный фе
 ```bash
 magnet:?xt=urn:btih:FDE377009791E32E106EA200D622766E4A913F22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:FDE377009791E32E106EA200D622766E4A913F22
 magnet:?xt=urn:btih:A1185EBB98665677FECD35DC4E05CC1E7EF4D12E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Star Mission: Remote Sectors (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:2790C165421E78EC1CAA5FD1B94612273B995BF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Antonblast - это динамично взрывной платформер, в
 magnet:?xt=urn:btih:41873DC7FA5764084397492DB429E00A4618C6D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:41873DC7FA5764084397492DB429E00A4618C6D2
 ```bash
 magnet:?xt=urn:btih:37610B1AB7B7F0C97E91B25D3352D98ABB55FEC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:37610B1AB7B7F0C97E91B25D3352D98ABB55FEC0
 magnet:?xt=urn:btih:16D811FBF6C7AD27A53B4B447EE4C6F57716A218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:16D811FBF6C7AD27A53B4B447EE4C6F57716A218
 ```bash
 magnet:?xt=urn:btih:29A6B82CF9FECB6D2749B14131A4C718D4528F75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Frozenheim – сага о викингах, в которой главного 
 magnet:?xt=urn:btih:E213B52A3A07E8F0F73D3F29A1D9CF976DB1E0B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ magnet:?xt=urn:btih:E213B52A3A07E8F0F73D3F29A1D9CF976DB1E0B2
 ```bash
 magnet:?xt=urn:btih:108B3C13456FDB9BA10A2650AC191B1D6A697507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ ArchiCAD - это мощное приложение моделирования, 
 magnet:?xt=urn:btih:D05F33469DE443EB2F39D1888FE23C3893E6C4BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ magnet:?xt=urn:btih:D05F33469DE443EB2F39D1888FE23C3893E6C4BC
 ```bash
 magnet:?xt=urn:btih:0775D1C90FED44089543378B4C82033D534EDA61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:0775D1C90FED44089543378B4C82033D534EDA61
 magnet:?xt=urn:btih:9BB77D26445751D8BCFEAF438F5AFDFE44360E9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:9BB77D26445751D8BCFEAF438F5AFDFE44360E9E
 magnet:?xt=urn:btih:C8D48150541649DE299856378153623A6CBD6800
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:C8D48150541649DE299856378153623A6CBD6800
 magnet:?xt=urn:btih:3C68C2298E744DC8DC3E0F0FB436530F551130A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:3C68C2298E744DC8DC3E0F0FB436530F551130A6
 ```bash
 magnet:?xt=urn:btih:770DF0AEADDE46236BA1D8559F9ADD0B771C923F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

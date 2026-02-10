@@ -28,6 +28,8 @@ Oscar Sher - The Classical Spanish Guitar (1996) [MP3|320 кб/с]<Instrumental,
 magnet:?xt=urn:btih:2184D2637878A443D90CD1047E382DF07B95A4FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ The Simpsons - In The Key Of Springfield (1997) [MP3|320 кб/с] <OST>
 ```bash
 magnet:?xt=urn:btih:C479FC16A4D6E870357EE00047EFA332735E8213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ Christophe Heral - Beyond Good & Evil OST (2004) [MP3|256 кб/с]<Game Soundtra
 magnet:?xt=urn:btih:8BC9D573B13D6D461A4504DAA330292E8CDBA030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +133,8 @@ Roberto & Bobby Schnitzer - Lifescapes: Spanish Escape (2012) [MP3|320 кб/с]<
 magnet:?xt=urn:btih:F437E7EC0540DB15FDF8E7CFFC6FD7313B145F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +165,8 @@ CD 01:
 magnet:?xt=urn:btih:8B99971BD5EC305044AB81C8CF84F8511D77DD5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +194,8 @@ Ambra - Child Of The Universe (2003) [OGG Vorbis|480 Kbps] <Electronic, New Age,
 magnet:?xt=urn:btih:3036366191BE5907E5885EF7EE63B7F4EFA749F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +222,8 @@ Philip Wesley - The Magic of Christmas (2018) [FLAC|Lossless|WEB-DL|tracks] <New
 ```bash
 magnet:?xt=urn:btih:DF029B88C1E25A0C0A4DDC1DF8ABCDF34D415103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +258,8 @@ LEVEL 1Жанр: Music Inspired By The Film(Game), Tribute, Pop-RockПродол
 magnet:?xt=urn:btih:D8A9500510CD6C854D0FC1AE3124FD50D414E9B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +286,8 @@ Gregorian - Holy Chants (2017) [FLAC|Lossless|tracks + .cue] <New Age, Electroni
 ```bash
 magnet:?xt=urn:btih:06983BA2DF9330B979F489ECE883B6F49F2B9769
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +316,8 @@ Krishna Das - Trust In The Heart (2017) [MP3|320 Kbps] <Meditative, Mantras, Eth
 magnet:?xt=urn:btih:4ACA517BA436E103D2EE13B04432A8E49FBFFC7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +344,8 @@ Deep Forest - Deep Symphonic (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Down
 ```bash
 magnet:?xt=urn:btih:6CC1A651966C38850B7FBAE358B7B71B05BD24C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +380,8 @@ Amberfern - 4 albums (2009-2013) [MP3|320 кб/с]<New age, Relax, Meditative>
 magnet:?xt=urn:btih:9F7866C43EFF66DBE2DDEC4B5903A8110B80B008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +414,8 @@ Gregorian - Masters Of Chant Chapter V (2006)Japan [FLAC|Lossless]<Ambient>
 ```bash
 magnet:?xt=urn:btih:6F682298B7AA0BDFACA917012AD58DD278401EB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +450,8 @@ Vienna Boys' Choir - Merry Christmas (1990) [FLAC|Lossless]<Classical Christmas 
 magnet:?xt=urn:btih:D65DD685FADDDCC6F8A6BE5EDD27320CD41EA781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +478,8 @@ Firedance (David Arkenstone) - Spirit of the Drum (2008) [FLAC|Lossless]<New Age
 ```bash
 magnet:?xt=urn:btih:8F2D09E006FA67FEC743E178327FAE1AE5CB8325
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +508,8 @@ David Arkenstone, Kathleen Fisher - Celtic Sanctuary (2006) [FLAC|Lossless]<New 
 magnet:?xt=urn:btih:23C0B89ACD1A57932B9EF230A829E30717F0E7C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +536,8 @@ Tykwer/Klimek/Heil - Run Lola Run (Original Motion Picture Soundtrack) (1999) TV
 ```bash
 magnet:?xt=urn:btih:631CF91264E6C40D0E263F6F6078C34EDBD87EA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +572,8 @@ magnet:?xt=urn:btih:631CF91264E6C40D0E263F6F6078C34EDBD87EA4
 magnet:?xt=urn:btih:1558C4004828283C9972688AEB55D80D355D688A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +600,8 @@ Michael Forster - Christmas Piano Chill (2017) [FLAC|Lossless|WEB-DL|tracks] <In
 ```bash
 magnet:?xt=urn:btih:645E8C63AF497CEE7999F5245F14A5488F015AC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +630,8 @@ Trio LARUAN - Romantic Collection (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrume
 magnet:?xt=urn:btih:430B169BA8CCDDC7CD9AEF57A790A4E432E77DDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +659,8 @@ Die Toten kehren wieder mit dem Wind - Ein Wanderer (2013) [FLAC|Lossless|image 
 magnet:?xt=urn:btih:17B3DFFE38784F691FAE80EB6E90857A55F6D1AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +687,8 @@ Paul Hardcastle - The Jazzmasters 4 (2003) [FLAC|Lossless|tracks + .cue] <Smooth
 ```bash
 magnet:?xt=urn:btih:D1644967C0DF5F8A0067D7236861458FAD412A7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -679,6 +723,8 @@ Llewellyn - 43 альбома (1998-2014) [MP3|320 кб/с]<New age, Relax, Medi
 magnet:?xt=urn:btih:1E5469F7526A169B6A9DB11DADE959AD12A9BDBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -706,6 +752,8 @@ Messiah Project - Rise Above the Bustle (2017) [MP3|320 Kbps] <New age, Enigmati
 magnet:?xt=urn:btih:F953C6B7D425CBCE6B3FCCE137D5D47ADD5ACDBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -732,6 +780,8 @@ Heather Lynne Horton - Don't Mess with Mrs. Murphy (2017) [FLAC|Lossless|tracks]
 ```bash
 magnet:?xt=urn:btih:CDA72E5C4ADBE5C14BA8CA226E163C266C1D728A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -765,6 +815,8 @@ Jarboe & Kris Force - The Path (2010) [MP3|320 кб/с]<Game Soundtrack>
 ```bash
 magnet:?xt=urn:btih:D12AC822B449470F06A2681C6342DC28F30B962E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E9BCB0D9F3A335682AC05DA0C05CD667B86B6EAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:E9BCB0D9F3A335682AC05DA0C05CD667B86B6EAE
 ```bash
 magnet:?xt=urn:btih:803372D2EC23D13F1BDA08CBFFBD867EE226987F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:803372D2EC23D13F1BDA08CBFFBD867EE226987F
 magnet:?xt=urn:btih:82BFA5CBA13121EAE3EB38DFC5C9418A20D8742C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:82BFA5CBA13121EAE3EB38DFC5C9418A20D8742C
 ```bash
 magnet:?xt=urn:btih:D3D0953D2498D594135B6027489F4CCFDDD4FB56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:D3D0953D2498D594135B6027489F4CCFDDD4FB56
 magnet:?xt=urn:btih:5B22789CD739E147AE80995A1BE9E7F065A9F2AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:5B22789CD739E147AE80995A1BE9E7F065A9F2AA
 magnet:?xt=urn:btih:45DC0BBE47B80D373D95FB88748D1D6708245494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:45DC0BBE47B80D373D95FB88748D1D6708245494
 ```bash
 magnet:?xt=urn:btih:5731E385BD82C991297C0514D0E98BF230444E65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:5731E385BD82C991297C0514D0E98BF230444E65
 magnet:?xt=urn:btih:44C1E281F8AD00CBE74FB92F997F21FA64C0704C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ No Guns Life [TV-2] | Жизнь без оружия [TV-2] [2020, TV, 12 из 1
 ```bash
 magnet:?xt=urn:btih:0095F9501086816ED7985E5786E06DBB451CE123
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Lv1 Maou to One Room Yuusha | Level 1 Demon Lord and One Room Hero | Влады�
 magnet:?xt=urn:btih:E0F929D7B14F8B03A9EFDCBC326B12BF8A3FEB21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:E0F929D7B14F8B03A9EFDCBC326B12BF8A3FEB21
 magnet:?xt=urn:btih:45ED35EFEF743311A9085A79D0ECD3735FBF6575
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Jahy-sama wa Kujikenai! | The Great Jahy Will Not Be Defeated! | Великая 
 ```bash
 magnet:?xt=urn:btih:F2391E511511D506C96B7F0B43D9E83CAE1006BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou | Orejihanki | Перер
 magnet:?xt=urn:btih:3A4099538853351998BF4E1BC57AFA6E601368CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:3A4099538853351998BF4E1BC57AFA6E601368CB
 magnet:?xt=urn:btih:F55FABE32E0653542A0C7E45EDD3CD64FBEF5B0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ C Danchi | Жилой комплекс „Си“ | Housing Complex C [2022, TV,
 magnet:?xt=urn:btih:53B45CEB1B170693DE3BF9141D0C9B90490362D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Deemo Movie: Sakura no Oto - Anata no Kanadeta Oto ga, Ima mo Hibiku | Димо 
 ```bash
 magnet:?xt=urn:btih:F1B19B3CD282AFA75BC927FA7A81963FB1DC6042
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:F1B19B3CD282AFA75BC927FA7A81963FB1DC6042
 magnet:?xt=urn:btih:C4C90670BF713624BE5076058A11712EA7541F5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:C4C90670BF713624BE5076058A11712EA7541F5F
 ```bash
 magnet:?xt=urn:btih:155296BFE34914B73EA339F16898FAE8FCEC8462
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ Otonari ni Ginga | A Galaxy Next Door | Галактика по соседств
 magnet:?xt=urn:btih:7EFE1AD107DBFE150087CCC8DB1D35AA8EAB6197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 ```bash
 magnet:?xt=urn:btih:161E257BFFF7E339941641BB30BBE8D4D6C27F63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Momokuri | Момокури [2015, TV, 26 из 26] BDRip 1080p HEVC 10-bit raw+r
 magnet:?xt=urn:btih:26C674DFA1531DF100E3A077F80CBE4D8FBC51C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Grisaia no Kajitsu | The Fruit of Grisaia | Натюрморт в серых т�
 ```bash
 magnet:?xt=urn:btih:197A13D8DF927DC42BD3FDACB177BC4D2D0D70B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Grisaia no Meikyuu: Caprice no Mayu 0 | The Labyrinth of Grisaia: The Cocoon of 
 magnet:?xt=urn:btih:7C9092AAEBE31F9C0D34E4A9886252EDBBB1FB71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ Grisaia no Rakuen | The Eden of Grisaia | Рай в серых тонах [2015,
 ```bash
 magnet:?xt=urn:btih:643B4CB82DCDF7C2B8329B3AAAB84315122794AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Ousama Ranking | Ranking of Kings | Рейтинг королей [2021, TV, 23 
 magnet:?xt=urn:btih:EB9B118C00AAF7FFD3F35342BF476CA2E2E2AA29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:EB9B118C00AAF7FFD3F35342BF476CA2E2E2AA29
 ```bash
 magnet:?xt=urn:btih:A3F0714995B3E17E385577A9D65DD87217B9707E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

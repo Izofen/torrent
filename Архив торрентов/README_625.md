@@ -23,6 +23,8 @@
 magnet:?xt=urn:btih:B5E1BB0E83372C249F8643020F18BC7A1B80EDE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ magnet:?xt=urn:btih:B5E1BB0E83372C249F8643020F18BC7A1B80EDE5
 magnet:?xt=urn:btih:9B218DDA885BD8B691B727826F3F1F44B7CD2E32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ TapinRadio + Portable 1.53 [Multi + Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +110,8 @@ TapinRadio + Portable 1.53 [Multi + Русский]
 magnet:?xt=urn:btih:6D7F92F0420685FF23017EDE9D0A1BD8E134092D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ magnet:?xt=urn:btih:6D7F92F0420685FF23017EDE9D0A1BD8E134092D
 ```bash
 magnet:?xt=urn:btih:2890138D97B5C9724D156C52B40AF140BA329EA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:2890138D97B5C9724D156C52B40AF140BA329EA9
 ```bash
 magnet:?xt=urn:btih:4DBD98EA0725E7AF68AAF62A1487A6DCFE2D6807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ magnet:?xt=urn:btih:4DBD98EA0725E7AF68AAF62A1487A6DCFE2D6807
 magnet:?xt=urn:btih:F88EE7E82961695AD96EB6FB7F2F5C65AC46DDFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +227,8 @@ magnet:?xt=urn:btih:F88EE7E82961695AD96EB6FB7F2F5C65AC46DDFF
 magnet:?xt=urn:btih:F1032BF987C32CFDF4F4D9DB867D7DF34F031CEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +252,8 @@ Wooh Da Kid - No Romance (Uncensored) (2011) WEBRip(Н264 )
 ```bash
 magnet:?xt=urn:btih:DF152334542D8353BE531D0E6CAEF5760EC383AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ magnet:?xt=urn:btih:DF152334542D8353BE531D0E6CAEF5760EC383AA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +306,8 @@ DVJ Bazuka - Trash Da Disco (Uncensored) (2011) DVDRip
 magnet:?xt=urn:btih:21FC6A7851363EA9431FADA9F53677654BFA9901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ magnet:?xt=urn:btih:21FC6A7851363EA9431FADA9F53677654BFA9901
 ```bash
 magnet:?xt=urn:btih:1BCB88C8D16827C2C8AB67EC04CE2A8D4C10DE55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ Stam1na - Nocebo (2012) [FLAC|Lossless]<Progressive / Thrash / Heavy Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +392,8 @@ Stam1na - Nocebo (2012) [FLAC|Lossless]<Progressive / Thrash / Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:3F7D4AA20717E7554221EA0267B62C9DF0097000
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +419,8 @@ ArcSoft Perfect365 - удобное приложение, которое поз�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +444,8 @@ Ashampoo Photo Commander - универсальный набор средств 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +471,8 @@ Ashampoo Photo Commander - универсальный набор средств 
 magnet:?xt=urn:btih:B8F73240C904EBB8709B351431BEDACF92D515CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +496,8 @@ Marilyn Manson - Saint (Uncensored) (2004) WEBRip
 ```bash
 magnet:?xt=urn:btih:389BC80D5EBF6E34AD06E00C8C8B83F64F9FC585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +527,8 @@ magnet:?xt=urn:btih:389BC80D5EBF6E34AD06E00C8C8B83F64F9FC585
 magnet:?xt=urn:btih:4786490182F2C453E2537B402752E6A7581CF319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +552,8 @@ magnet:?xt=urn:btih:4786490182F2C453E2537B402752E6A7581CF319
 ```bash
 magnet:?xt=urn:btih:ABE58993AE18F8D6676F6F220D492FAC01404F24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +583,8 @@ magnet:?xt=urn:btih:ABE58993AE18F8D6676F6F220D492FAC01404F24
 magnet:?xt=urn:btih:A1F4E8E9AE975E3FEC49B22560CAAF6A846F8F06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +609,8 @@ magnet:?xt=urn:btih:A1F4E8E9AE975E3FEC49B22560CAAF6A846F8F06
 magnet:?xt=urn:btih:C7C82B9376F4811ABE75720283F30B5FC4B85D4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +634,8 @@ TheAeroClock – уникальные настольные часы с проз�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +664,8 @@ TheAeroClock – уникальные настольные часы с проз�
 magnet:?xt=urn:btih:1D75F56FD7ECE8877D66644FA7248E73732ABDC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +689,8 @@ magnet:?xt=urn:btih:1D75F56FD7ECE8877D66644FA7248E73732ABDC2
 ```bash
 magnet:?xt=urn:btih:03DB3AC450F2457E794BA91ADFC3BF4C1862DACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +723,8 @@ VA - Русский Хард-Рок (1990) [MP3|320 kbps]<Hard rock>
 ```bash
 magnet:?xt=urn:btih:F07875704778FF84A47AA342E819D1BE35BA647F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

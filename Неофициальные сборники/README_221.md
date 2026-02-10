@@ -1,3 +1,32 @@
+###  Публикация: 1254776   (370516) от 15.10.2018
+
+VA - Chill House: Deep Lovers Mix (2018) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_370516.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Free Pass - A Wild Wolf
+002. Urban Mode - Traffic House (Original Mix)
+003. Daniel Remì - Paris House (Original Mix)
+004. House Temperance - Blue Ridge(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 08:16:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E00CFB4735B0C1F28401821CC10CFC53D026CC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575725   (370581) от 12.09.2022
 
 VA - В машине с музыкой Vol.301 (2022) MP3 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
@@ -21,6 +50,8 @@ VA - В машине с музыкой Vol.301 (2022) MP3 (2022) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:FD89CBF0912BB86DF04A5A659C067A156E1C5201
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Blues Saxaphone (2022) 3CD [MP3|320 Kbps] <Jazz, Blues, Easy Listening>
 magnet:?xt=urn:btih:87D2C074E7929D4095046856DC994AF1031BF15A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Nonstop Night Live Party: Progressive House (2018) [MP3|320 Kbps] <Progress
 ```bash
 magnet:?xt=urn:btih:0E9C3DC3B9BB6429136DE6920B0445C9ED062D43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Music News vol.215 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:F1FB022BEE6BCE40723DC2B8CCA75E3CC2F6E5C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ Paul Mauriat - L'ete Indien (2003) Compilation, Unofficial Release, Not On Label
 ```bash
 magnet:?xt=urn:btih:95388519ED652B99FD38778E553F7E96203DEF6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Music News vol.214 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:20E6A4C01E4CAC064FB51DDBA0E56B6F24BD65BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +225,8 @@ VA - Music Exclusive And Supreme Urban (2018) [MP3|320 Kbps] <Pop, Dance, RnB, R
 magnet:?xt=urn:btih:7AAA7BB3C94C2A2632E0814AC27578B1452DBDE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +253,8 @@ VA - After Time: Electronics Music (2018) [MP3|320 Kbps] <Electronic, Techno, Ex
 ```bash
 magnet:?xt=urn:btih:BE27E0CB1D1B7F141D59E723D7953BEAB90D66F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +286,8 @@ Hits of My Soul - сборник электронной и инструмент�
 magnet:?xt=urn:btih:45635E511A22BF479B702AE6A3674903D0B13283
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +314,8 @@ Disc 01:
 ```bash
 magnet:?xt=urn:btih:45C82F07C25BE7470464D3FD9F17700FB781BB66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +344,8 @@ Airbourne - The Very Best (2016) [MP3|320 Kbps] <Hard Rock>
 magnet:?xt=urn:btih:94B95BCBB4B466879BB3964F4A77F716D92D78CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +372,8 @@ VA - Шансон Осень (2020) [MP3|320 Kbps] <Шансон>
 ```bash
 magnet:?xt=urn:btih:7D498B4C7295F26D1D0AB37B4DA70C26168860EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +405,8 @@ VA - Furious Dubstep Attacks From Evolinte Vol.2 (2012)
 magnet:?xt=urn:btih:FD3F62374C5F9F0BE52BFBC7052A148627387E0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +433,8 @@ magnet:?xt=urn:btih:FD3F62374C5F9F0BE52BFBC7052A148627387E0D
 ```bash
 magnet:?xt=urn:btih:4AA090CF2F92DF734471697861E91E858C62557F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +463,8 @@ VA - По волне моей памяти: Том 1 (Compiled by Виктор31
 magnet:?xt=urn:btih:130BA9C14318C0413E47E49DC9C2AF57CAF6FB99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +491,8 @@ VA - По волне моей памяти: Том 5 (Compiled by Виктор31
 ```bash
 magnet:?xt=urn:btih:F410711D2289B1DA62B74A181BB111A9122B7722
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +521,8 @@ VA - Music News vol.40 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:1591B3212A69B2C42FE8C05875C4C5900DA16CEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +549,8 @@ VA - Love Lyrics Songs (2020) [MP3|320 Kbps] <Pop, Rock, Lyric>
 ```bash
 magnet:?xt=urn:btih:6BC794D7A6D0597D337DB2D9F0D022789BA3DA67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +579,8 @@ VA - По волне моей памяти: Том 4 (Compiled by Виктор31
 magnet:?xt=urn:btih:583EB5E28BE800E5B1041F6A875DAB0B0F26E131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +607,8 @@ VA - По волне моей памяти: Том 2 (Compiled by Виктор31
 ```bash
 magnet:?xt=urn:btih:BE66B78EE47A189AB0DEFC93157AC2B04F6110FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +637,8 @@ VA - Популярный драйвовый хитовичок. Версия 9 
 magnet:?xt=urn:btih:5A453C9E1BBE9DB7707121080F2405D6779D0F33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +665,8 @@ VA - Любимая волна. Версия 7 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:8F95C45292CF75B3FF966DAD9C5CF6CFC2A4CF5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +695,8 @@ VA - Zumba 2020: Rumba Fitness [MP3|320 Kbps] <Latin, Bachata, Rumba>
 magnet:?xt=urn:btih:CFD5F5B455B5783F781A2D0554C296747AC286A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +723,8 @@ VA - По волне моей памяти: Том 3 (Compiled by Виктор31
 ```bash
 magnet:?xt=urn:btih:CA41FC622B2F014D22FCD19D146BECB2D1EADB66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -677,32 +754,7 @@ magnet:?xt=urn:btih:CA41FC622B2F014D22FCD19D146BECB2D1EADB66
 magnet:?xt=urn:btih:00A4C81649E72616190035CA2D51D60100763587
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176167   (371919) от 21.10.2017
-
-VA - Miss Caramelle: Classic Vocal House (2017) [MP3|320 Kbps] <Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371919.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Solid Stone & Michael Gin - Xonic
-002. Disco Fries - Moving On (Original Mix)
-003. One Second For Chill - We See the Light
-004. Forerunners - Watercolour(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 08:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73FFC8F1F01746D1409167D280E982D5C34A9C62
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

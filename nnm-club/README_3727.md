@@ -19,6 +19,8 @@ NCH Express Invoice Plus 11.05 [En]
 magnet:?xt=urn:btih:B2CDD535DFD30FB511DDB02138F14A17A389E08B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Fork 2.40.2 [En]
 ```bash
 magnet:?xt=urn:btih:2062F53711746C4F996805CCCBFBE05386B5CDBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Dropshare - приложение строки меню для Drag & Drop заг
 magnet:?xt=urn:btih:024FE48A4F3A68869B5A78C1CBABC087AC2128C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:024FE48A4F3A68869B5A78C1CBABC087AC2128C9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:982151AA7B30B637FA2B008DAD9EA216693611D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:982151AA7B30B637FA2B008DAD9EA216693611D9
 ```bash
 magnet:?xt=urn:btih:9DEB9A33EFC26C7933B45D4FDCA271F11532EF9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Imagine - это бесплатный просмотрщик изображен�
 magnet:?xt=urn:btih:46933187BDFBBD6FEFC6025B200F2B8667F4C55E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ RedNotebook - это простое GTK+ / Gnome приложение напис
 ```bash
 magnet:?xt=urn:btih:3D0070706F8AC2C6D103D344E561190F29C9E06E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ CD1 - 1.966:
 magnet:?xt=urn:btih:65161D72E7D4644DB1405AC0EECAA40A92B2E71D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ TweakPower – представляет собой единый графичес
 ```bash
 magnet:?xt=urn:btih:76F811BF1839F330387B50FAA94D8689823122FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:76F811BF1839F330387B50FAA94D8689823122FC
 magnet:?xt=urn:btih:56539904B9A478AA1FB6B587126FC3DAE22E359A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ DiskDigger - маленькая утилита, с которой можно в�
 ```bash
 magnet:?xt=urn:btih:0AEC94216F8EEEC151FF3D3CEECA81E61B6BD09D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:0AEC94216F8EEEC151FF3D3CEECA81E61B6BD09D
 magnet:?xt=urn:btih:F5284667C16E7D861082CCBD4D0FF9C57A935950
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:F5284667C16E7D861082CCBD4D0FF9C57A935950
 ```bash
 magnet:?xt=urn:btih:2FBDB7BD767CD310EA639C9E00BB08CF08CB3B7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:C27DD2423B029BD490EA590C7E8897F8316BBAD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:C27DD2423B029BD490EA590C7E8897F8316BBAD0
 ```bash
 magnet:?xt=urn:btih:7A74AB52D61DB59E7A56DF9E418CAE7049B458FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:7A74AB52D61DB59E7A56DF9E418CAE7049B458FB
 magnet:?xt=urn:btih:F6F2BD9A180F63F7965EAA5E10E217535C911A4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:024D0927BAF6C333A9BEDE58F4518CB5F5DFB14B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:024D0927BAF6C333A9BEDE58F4518CB5F5DFB14B
 magnet:?xt=urn:btih:F7BC62AD9EFD4B49AE366982DB467A0F0492389E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:F7BC62AD9EFD4B49AE366982DB467A0F0492389E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:F7BC62AD9EFD4B49AE366982DB467A0F0492389E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:F7BC62AD9EFD4B49AE366982DB467A0F0492389E
 ```bash
 magnet:?xt=urn:btih:5EA9CD8B191235D367D8ED588505BE17042B800F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Erin Ross - The Wind Will Lead Me Home (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:B6DCE573995C8D7B6A998AA865D8DC2C6B622D95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:B6DCE573995C8D7B6A998AA865D8DC2C6B622D95
 ```bash
 magnet:?xt=urn:btih:1A2C63C0B72C7C49ED9C5FE7C1073DF41751CF98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:BA6CDE766168FFF7F8C270A70D7F23FE2FEF3AD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:BA6CDE766168FFF7F8C270A70D7F23FE2FEF3AD2
 ```bash
 magnet:?xt=urn:btih:7DC2E54AABCB391C94089C9F11C5AA1442C239F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

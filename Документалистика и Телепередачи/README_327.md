@@ -1,3 +1,29 @@
+###  Публикация: 1410089   (437911) от 20.09.2020
+
+Танцы (19.09.2020) WEB-DL [H.264/1080p-LQ] (сезон 7, выпуск 4)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437911.jpg" />
+</div>
+
+
+###  Подробнее
+
+На ТНТ стартует Последний сезон проекта «ТАНЦЫ». В этот день в шоу начнется этап кастингов, которые пройдут в шести городах. Также в этом сезоне снова пройдет кастинг для второгодников – танцовщиков, которые уже пробовали свои силы в шоу – но на этот раз им придется услышать «Ты в Танцах!» минимум от двух наставников. Сохранит трио наставников Мигеля, Егора Дружинина (   Читать дальше...   )Телекомпания: Россия, Comedy Club Production, Телеканал ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 01:30:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A95A0CF293712EB1F8818FFE44637210E56C00E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410237   (437915) от 20.09.2020
 
 Мой учитель - осьминог / My Octopus Teacher (2020) WEBRip [H.264/1080p] [EN / RU, EN Sub]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7EAEACDB37850B78775FF798DFE9D460B967142B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:7EAEACDB37850B78775FF798DFE9D460B967142B
 magnet:?xt=urn:btih:04E7C72BE8C27479E4DCFB35501576D6E0562665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:04E7C72BE8C27479E4DCFB35501576D6E0562665
 ```bash
 magnet:?xt=urn:btih:E2D4B109EAFAF9020CA5742858EDC63A92E18464
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:E2D4B109EAFAF9020CA5742858EDC63A92E18464
 magnet:?xt=urn:btih:EF73B3232D516178B36CC1F3DC1A720F5573EAA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:EF73B3232D516178B36CC1F3DC1A720F5573EAA6
 magnet:?xt=urn:btih:26ED09ABDC82B74927EA85B31C31B50BA5402C5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:26ED09ABDC82B74927EA85B31C31B50BA5402C5C
 ```bash
 magnet:?xt=urn:btih:96211B0FDB0BD9989D403E9E3B324568B1969655
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:96211B0FDB0BD9989D403E9E3B324568B1969655
 magnet:?xt=urn:btih:E6D1631A3EC2DC1B4C6F935E01DBE659606F10E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:E6D1631A3EC2DC1B4C6F935E01DBE659606F10E2
 ```bash
 magnet:?xt=urn:btih:EDE261595928D5DB98861AE823F50CAD271914F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:EDE261595928D5DB98861AE823F50CAD271914F7
 magnet:?xt=urn:btih:4F5D1040DDC37DBA47C677CAFCEFD9BBF6F206F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:4F5D1040DDC37DBA47C677CAFCEFD9BBF6F206F6
 ```bash
 magnet:?xt=urn:btih:5AA16C2D5D796C0AE544CFF1B429AF31987BD650
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:5AA16C2D5D796C0AE544CFF1B429AF31987BD650
 magnet:?xt=urn:btih:335C2A13767BE6B92D8044649BAB4A96A4EB113B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:335C2A13767BE6B92D8044649BAB4A96A4EB113B
 ```bash
 magnet:?xt=urn:btih:505FA60B52DBC3357CB043B5CB76736F455CDDA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:505FA60B52DBC3357CB043B5CB76736F455CDDA2
 magnet:?xt=urn:btih:A309D2AAF26CF1171F3457079CC3550598AA58B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:A309D2AAF26CF1171F3457079CC3550598AA58B1
 ```bash
 magnet:?xt=urn:btih:899BF46FA41AF2FA0BD6F821BD630D1FDC99FD1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:899BF46FA41AF2FA0BD6F821BD630D1FDC99FD1F
 magnet:?xt=urn:btih:D09A7517FFE1CE2FCDB002FFC557D674DB04AADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:D09A7517FFE1CE2FCDB002FFC557D674DB04AADF
 ```bash
 magnet:?xt=urn:btih:FB5E503139FE6A6DFFAB997FBED7988E241EF8C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:FB5E503139FE6A6DFFAB997FBED7988E241EF8C1
 magnet:?xt=urn:btih:1103D0B0CBF1C0EDE4697B83F2FEFF3C4CF20CB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:1103D0B0CBF1C0EDE4697B83F2FEFF3C4CF20CB1
 ```bash
 magnet:?xt=urn:btih:0E664D95EF76A8FAA757CA2DF713B21CADC1BCD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:0E664D95EF76A8FAA757CA2DF713B21CADC1BCD4
 magnet:?xt=urn:btih:7A6D14E1508EE7196D8F3132782C091C8C30ACD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:7A6D14E1508EE7196D8F3132782C091C8C30ACD9
 magnet:?xt=urn:btih:9A6A40EFE10B190064D11836A398AB17BA8FDFB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:9A6A40EFE10B190064D11836A398AB17BA8FDFB1
 ```bash
 magnet:?xt=urn:btih:4B12C6BE5B6617C235E52781C6AA330CE77A9125
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:4B12C6BE5B6617C235E52781C6AA330CE77A9125
 magnet:?xt=urn:btih:20B1A2EEE4FCFF3FEA2D4AC1D0C8E39175F22BEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:20B1A2EEE4FCFF3FEA2D4AC1D0C8E39175F22BEB
 ```bash
 magnet:?xt=urn:btih:124C8708C095A2521D866B8CC21F678A318B6BBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:124C8708C095A2521D866B8CC21F678A318B6BBA
 magnet:?xt=urn:btih:A134C40953B6DA8ECEB24140FE2703CBAECB1BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:A134C40953B6DA8ECEB24140FE2703CBAECB1BD2
 magnet:?xt=urn:btih:39B42D0E459105FCE359AE6077F105DCF015D3D6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164667   (438929) от 10.09.2017
-
-Танцы (2017.09.09) WEB-DL [H.264/720p-LQ] (сезон 4, выпуск 4)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Танцы 4 сезон, в очередном сезоне любимого миллионами танцевального проекта нас ждет противостояние полов, потому что Егора Дружинина больше нет в числе членов жюри. Его место заняла знаменитый хореограф Татьяна Денисова. С появлением нового судьи будут связаны крупные изменения новых деталей проекта. В проекте окажутся хореографы Татьяны, которые станут трудиться (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 01:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60672F858182073802DAE25A9C3F3637B4CFF459
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

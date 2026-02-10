@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:8B6139F2EDF0C258571AAD41F144CAC315D0B48A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ PicWish — фоторедактор с искусственным (   Чита
 magnet:?xt=urn:btih:528E91D0ED65D93EFD96E76D8C2572A61AC6FC46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ PictureThis - Plant Identification v5.2.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DE9A48BA00D8F2F72DDD0E8DF6B9AAA9E4311611
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Smart AudioBook Player Pro v11.3.9 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:E222871C264A0F3702907D991B56CDDB2AEB5687
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ PhotoDirector v20.1.5 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9735BB096D1DA5DAC8DA95E7824EA7AF6C1E71DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Smart AudioBook Player Pro v11.3.7 Mod by Kirlif' [Ru/Multi]
 magnet:?xt=urn:btih:14D42C3181AF072011D0EC927DACC98B58FD5E95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Smart AudioBook Player Pro v11.3.1 Mod by Kirlif' [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8F972469683E39B3BF4DBD3035E10E5FB897B8C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:18DF43C2815AFAB7539088B3B7E0D0EE136BCB34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ MultiTimer - это простое и универсальное таймер-п
 ```bash
 magnet:?xt=urn:btih:928DD18DC44CAF0E54F341ED85BE9786D4A8D71B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ VideoShow предлагает отличные функции редактир�
 magnet:?xt=urn:btih:D6A5567B295F0E61485F951D0175808245F46406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Polarr v6.11.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A2B3C0844960D5DA5A518A4B475C20FA94518C2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ GeoGebra — мультиплатформенная программное об�
 magnet:?xt=urn:btih:B879700D2123B710EC9515DEE84BDC9A3FA86BF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 ```bash
 magnet:?xt=urn:btih:6AF6C76C22FBC4FB4887CB570074C43853996E30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ UFC Fight Night: Machado Garry vs. Prates (также известный как 
 magnet:?xt=urn:btih:5B0EB711F0C19355DFBCC5469861F906B73B6C3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ DLNow Video Downloader - быстрое, полезное, практичное 
 ```bash
 magnet:?xt=urn:btih:E58C02F0F29B32388C3CDDB9DBB0953C7D2723CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:E58C02F0F29B32388C3CDDB9DBB0953C7D2723CA
 magnet:?xt=urn:btih:917C521D6908A8585ACB501CDDF3089EF1750C18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ XYplorer – удобный многовкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:F3364F9B5AADB8F85D47AE0C2B606F6EFAB97781
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Draw.io 26.2.15 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:14BCF1E89D4E10D8E4F96EB76BAC296CCEB2E9C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:14BCF1E89D4E10D8E4F96EB76BAC296CCEB2E9C1
 ```bash
 magnet:?xt=urn:btih:F23E721B18288B9574C2C85C286EC96F029A9E28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ TuneIn объединяет спортивные события, музыку, �
 magnet:?xt=urn:btih:4CF7FC1CD4EC58AF8720F627D08DC525E2325340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ PowerDirector – Video Editor v15.1.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E42F550B9989DD927DFD411AC4524F8208609440
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Smart AudioBook Player Pro v11.2.8 Mod by Kirlif' [Ru/Multi]
 magnet:?xt=urn:btih:7AC57CBECA5387F0E520779E1E0A6F8410E2F149
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ TuneIn объединяет спортивные события, музыку, �
 ```bash
 magnet:?xt=urn:btih:522F0BB92FA5F98CA3274B1154A5BFB1A597BC10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:2A04096E85B169F3612AEB812C89D48501A8AB51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ VivaCut для Android - это профессиональный видеоре�
 magnet:?xt=urn:btih:76803320A6AC659B14F13F470FD0B934083392B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Screenshot Touch – это удобное и простое приложени�
 ```bash
 magnet:?xt=urn:btih:8C34FA927DE52345E89AAD53A98CFCD9B38C6A46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

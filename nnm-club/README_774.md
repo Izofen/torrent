@@ -19,6 +19,8 @@ PowerWash Simulator (2022) [Ru/Multi] (1.10.0/dlc) Repack Pioneer
 magnet:?xt=urn:btih:A9D5CC1A6FB12DF99E7409D17F48EFE5D6B4E70E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:A9D5CC1A6FB12DF99E7409D17F48EFE5D6B4E70E
 magnet:?xt=urn:btih:54BC74A40982F942EF782900AE20DBA465AC2BE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:54BC74A40982F942EF782900AE20DBA465AC2BE1
 ```bash
 magnet:?xt=urn:btih:3012096E4D32C3DA9374D7B3B10365754731FE38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Danekoo1 - Compilation Part 2 (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:55BCD0C0A5D326BC723307A0DE47593AFCAC3DBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:55BCD0C0A5D326BC723307A0DE47593AFCAC3DBF
 ```bash
 magnet:?xt=urn:btih:E8F88C531A920094D63663B6531A1BE1A1615E42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:E8F88C531A920094D63663B6531A1BE1A1615E42
 magnet:?xt=urn:btih:312730C4C4A274CC8C42C1D50A1DD0AEB982F469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Filtrr — это не просто фильтр! filtrr — это нелине
 ```bash
 magnet:?xt=urn:btih:A97BC4A61D4E147C156E5155C2CDFF49B2DD5635
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:A97BC4A61D4E147C156E5155C2CDFF49B2DD5635
 magnet:?xt=urn:btih:E17D7E60D4F638B484964C24FFC09463F8F91377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:E17D7E60D4F638B484964C24FFC09463F8F91377
 ```bash
 magnet:?xt=urn:btih:75E821A65C4E291163FF2EE20D1497107FB29B2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:75E821A65C4E291163FF2EE20D1497107FB29B2C
 magnet:?xt=urn:btih:038D3FFD5CBC51E8441518FD573DCDFBBAA52EA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Sign of the Wolf - Sign of the Wolf (2025) [MP3|320 Kbps] <Hard Rock>
 magnet:?xt=urn:btih:ED0215719A683500AF75FCC000053D073076C897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:ED0215719A683500AF75FCC000053D073076C897
 ```bash
 magnet:?xt=urn:btih:72CC4CF958AA812ABCAE4FF9ED6AE2FC2AB42158
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Daylio - Mood Tracker / Дневник - Трекер Настроения v1.61
 magnet:?xt=urn:btih:E2666DAF4976D348F304547075C7CBC4727179B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:E2666DAF4976D348F304547075C7CBC4727179B4
 ```bash
 magnet:?xt=urn:btih:67B1A9D9CDEE3CEB69A2B10F118AF8D8C4975E65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:67B1A9D9CDEE3CEB69A2B10F118AF8D8C4975E65
 magnet:?xt=urn:btih:8335789C79FB013E9C2DA2ABE9166E591F3E169F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Steel Seed - захватывающая приключенческая экше�
 ```bash
 magnet:?xt=urn:btih:88A335F7F3C8124441DB851690640B6FB0FF81D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:88A335F7F3C8124441DB851690640B6FB0FF81D1
 magnet:?xt=urn:btih:DDB0CB67CF6F32AC5896112A17E5A63B46748D82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ Brassheart - это приключенческая игра в жанре кве
 ```bash
 magnet:?xt=urn:btih:62873C2BF6CEA5B5526D4423A8369432AC27ED7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:62873C2BF6CEA5B5526D4423A8369432AC27ED7F
 magnet:?xt=urn:btih:B3BBEB9FA6ACAE107BC2BB40E1287F55BE1E395C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ The Fifth Disciple / Пятый чародей (2002) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:CB90409C79D1A350F50B41B9B7B7EBA65FB4A034
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:4A51162E24B35452A27030428B7356EE31288572
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:4A51162E24B35452A27030428B7356EE31288572
 ```bash
 magnet:?xt=urn:btih:79C74A116EA7B196861CF2513A8256E19DD21CD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:79C74A116EA7B196861CF2513A8256E19DD21CD1
 magnet:?xt=urn:btih:685196AF328EBADA05CE3F6174B6E8B9658EB0A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Allavsoft Video Downloader Converter - это мощный видео загру
 ```bash
 magnet:?xt=urn:btih:DD5D779FD055DD7F298116E420964E0132D61ABC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Gmail, Yahoo, Hotmail, FastMail, Apple, GMX, Outlook, AOL или Exchange - Aqua
 magnet:?xt=urn:btih:EBCA31BFB1AF4AA5DDA57FF56FEF397ECC9CC9F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:EBCA31BFB1AF4AA5DDA57FF56FEF397ECC9CC9F5
 ```bash
 magnet:?xt=urn:btih:16556C27225CEC9A053B6899B093B87D0C84C400
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

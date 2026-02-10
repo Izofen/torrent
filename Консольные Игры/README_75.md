@@ -19,6 +19,8 @@ Brothers In Arms: Road to Hill 30 [Wii] [Multi 5] [Pal] (2008)
 magnet:?xt=urn:btih:52C6BA6D0FCC0B80F48C79EBECAFC99CE9D675C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Contra: Shattered Soldier - трудная игра. Вы не раз будет
 magnet:?xt=urn:btih:69A0B18BC8F033476B5967B00D179E1E7EB35314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Final Fight Streetwise [PS2] [RUS, NTSC] (2006)
 ```bash
 magnet:?xt=urn:btih:5C74487D81052DC5B8EFD96521A3D532A51DF8EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Dino Stalker [PS2] [RUS, NTSC] (2002)
 magnet:?xt=urn:btih:EF816DC101877D64DE19923EF09C79815CA7C4FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Syberia 2 (2015) [PS3] [EUR] 3.30 [HEN / CFW] [Repack] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:029142E1D87F74DCBEA8B4F2FCDD8D1DA94B2683
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Dragon Ball Xenoverse – следующая часть файтингов в с
 ```bash
 magnet:?xt=urn:btih:41EE9661584A2BC60D2FA828C1F80CBE392BB40C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Midnight Club 3 DUB Edition Remix [ENG] [NTSC] (2006)
 magnet:?xt=urn:btih:F90DDCF62F20EB85F3920F2B7821EF94218F4C65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ LEGO: The Lord of the Rings [xbox360] [Русский] [Region Free] [XGD3/Lt+3.
 ```bash
 magnet:?xt=urn:btih:0E8E8858BE80E4B211C3DF62F5D5E96F9534A0B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ World Gone Sour [Xbox360] [Freeboot] [ENG] (2012)
 magnet:?xt=urn:btih:4232BFEA32D57EE5177298E91F58C0CD34089A18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Valkyrie Profile 2 Silmeria [PS2] [ENG, NTSC] (2006)
 magnet:?xt=urn:btih:633A3EA291F25571DDB0340B91C0058FF8127899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Wonderbook: Diggs Nightcrawler / Wonderbook: Детектив Диггз [PS3] [
 ```bash
 magnet:?xt=urn:btih:F470BCEC40004318FA77FB51CF8D7678B29B3C36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ TMNT Turtles in Time Re-shelled [PS3] [PSN] [USA] [En] [4.30] [3k3y ODE ISO] (20
 magnet:?xt=urn:btih:3D158C5A1D9E1C95977AAD77A8ED885F58B52B84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ Kingdom Hearts HD 1.5 Remix — сборник HD-переизданий игр 
 ```bash
 magnet:?xt=urn:btih:10BC045ECE07B444C7DF95A062C702761DECFAF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ Sled Shred  [Wii] [NTSC-U ] [Multi 5] (2010)
 magnet:?xt=urn:btih:513D05D388B5D75CF5C680397024DE5D585CA350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ Call of Juarez: Gunslinger (2019) [Switch] [USA] 9.1.0 [NSZ] [License / 1.0.5] [
 ```bash
 magnet:?xt=urn:btih:E0CC24FFE036E6AB6EB4BCA6763C1F5DD0C308A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:E0CC24FFE036E6AB6EB4BCA6763C1F5DD0C308A0
 magnet:?xt=urn:btih:AAAAA113B7E21779DB29D9676AC829C6B7A063C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Arcade Zone это ваши любимые аркады, ретро-игры и 
 ```bash
 magnet:?xt=urn:btih:588C54B5E82A6CFCB55EC09D7F95DF1A939241F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ Borderlands: The Pre-Sequel - шутер с ролевыми элементам�
 magnet:?xt=urn:btih:1A6F4AB740A484627D8299799263DC5E0E34900F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ The Evil Within – стопроцентный триллер. Неудивит�
 ```bash
 magnet:?xt=urn:btih:928F9697EE4A2342F51FFC69AE5C81DEFC90E78B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:928F9697EE4A2342F51FFC69AE5C81DEFC90E78B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ Contrast - завораживающее логическое приключен�
 magnet:?xt=urn:btih:4362107A3E4FA4BE8A8F582F770747D076C0DA87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:4362107A3E4FA4BE8A8F582F770747D076C0DA87
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ Batman: Arkham Asylum GoTY Edition [PS3] [EUR] [RUSSOUND] [4.30] [3k3y ODE ISO] 
 magnet:?xt=urn:btih:BB87113D882812E250E915436B9CB9ABC65BCAD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ Winter Sports 2011: Go for Gold - примите участие в девяти 
 ```bash
 magnet:?xt=urn:btih:6E15093AA2CC9D351D5D463B969029172F8C2F3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ The Cursed Crusade / The Cursed Crusade: Искупление (2010) [Xbox360] [
 magnet:?xt=urn:btih:AD93007745338ABF51CA8B2010B34FA6923ACDFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ Cars [Wii] [PAL] [English] (2006)
 ```bash
 magnet:?xt=urn:btih:041323B69D20CAAEBE97778ACE62F5FAAACC6E59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

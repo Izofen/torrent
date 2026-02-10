@@ -21,6 +21,8 @@ StudyGe - География мира v2.3.1 [Ru]
 magnet:?xt=urn:btih:46B262CD9661372631A51765EEBDF0E90E1E20F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:46B262CD9661372631A51765EEBDF0E90E1E20F6
 ```bash
 magnet:?xt=urn:btih:B4456062FCC1C22AC287891A0D704705D3341CC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Vovsoft Speech to Text Converter — это автоматическое про�
 magnet:?xt=urn:btih:193E90BF2571F8BA03EC10BF071E3862EA3256BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:193E90BF2571F8BA03EC10BF071E3862EA3256BD
 magnet:?xt=urn:btih:92FE5924CFB5CB8AB46DC09A0467CBA71A6229A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Tor Browser Bundle 14.0.7 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7D438E72B8A4A0EFC3E7F468D4266E67768E0F89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ updated_feb_2025_x64_dvd_16fa7261.iso
 magnet:?xt=urn:btih:C2EB794D755479B06CD7D42ED07404B862BCDA0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.0.18525) Repack FitGirl [Collector'
 ```bash
 magnet:?xt=urn:btih:5169FF73A75685C20B3E8A29D12444EAA4F54C87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Vovsoft Text to MP3 Converter 4.1 [Multi/Ru]
 magnet:?xt=urn:btih:F4DC1AE3FD03B5063FB94AFA3BB7780465FC2B38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:F4DC1AE3FD03B5063FB94AFA3BB7780465FC2B38
 ```bash
 magnet:?xt=urn:btih:7C7EE40A0C6B5DFD389DC89D2CC968BA0E959B7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Aiarty Image Enhancer (с генеративным ИИ) — это соврем
 ```bash
 magnet:?xt=urn:btih:C450C0D0663E9D925685F5422C3D25D734020C54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:C450C0D0663E9D925685F5422C3D25D734020C54
 magnet:?xt=urn:btih:CE30EA9DEE51B4EA4121A8E9DD812E6953730687
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Microsoft Visual C++ Redistributable Package – это распространя
 ```bash
 magnet:?xt=urn:btih:744D672C4F2265AA7B23FD2DE737F04D49DC0902
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.44.34918.1 [Ru]
 magnet:?xt=urn:btih:B0D7A5EBC3C971D1838CF11F1205D6126C95711A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:9388FF962F7B094AF605F3B5EA87F1D84A22E35B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:9388FF962F7B094AF605F3B5EA87F1D84A22E35B
 magnet:?xt=urn:btih:9EB3A46415E99E4E040FBD1853521816ACFFEFDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:9EB3A46415E99E4E040FBD1853521816ACFFEFDE
 ```bash
 magnet:?xt=urn:btih:A2DA0B9E0C34654504091A17D62FC12DD0518568
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:A2DA0B9E0C34654504091A17D62FC12DD0518568
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:A2DA0B9E0C34654504091A17D62FC12DD0518568
 ```bash
 magnet:?xt=urn:btih:8B44DE2E3B644D36DFD9B33A373A072631031C4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:8B44DE2E3B644D36DFD9B33A373A072631031C4A
 magnet:?xt=urn:btih:7390731CFE56E220ECA56A5FC1CAC35D3C2ED926
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:7390731CFE56E220ECA56A5FC1CAC35D3C2ED926
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ VPN Gate — академический эксперимент Дайу Нобо
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ The Pegasus Expedition - это сюжетная глобальная страт
 ```bash
 magnet:?xt=urn:btih:484F06B9FA65A6B86A3ECEFFE369670A44F4CADD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:484F06B9FA65A6B86A3ECEFFE369670A44F4CADD
 magnet:?xt=urn:btih:DBE653ABA594BFF40214F8A743AC066321AD622F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Slay the Princess (2023) [Ru/Multi] (1.4a) License GOG [The Pristine Cut]
 ```bash
 magnet:?xt=urn:btih:DCB8ECED3F546EBE738B64DB81114DD9B326642A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:DCB8ECED3F546EBE738B64DB81114DD9B326642A
 magnet:?xt=urn:btih:2A484107CC30BB16EC0950BCAA85CE84FED06B75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Broken Roads создана командой настоящих энтузиас
 ```bash
 magnet:?xt=urn:btih:A01A8092E3AFD5DF7B2AE559CF8935B71503D687
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

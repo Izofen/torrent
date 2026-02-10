@@ -1,3 +1,32 @@
+###  Публикация: 1059490   (461253) от 04.10.2016
+
+VA - Sense Of Renewal: Club House Party (2016) [MP3|320 Kbps] <Club, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461253.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Wildones Ft David Julien - You Dancing (Original Mix)
+002. Zito & Alray - Amazing (Zito s HU On The Rocks Mix)
+003. Chris Largo feat. Orry Jackson - Close To Mine (Extended mix)
+004. Alan-Lee - Give It Up (Clubmix)(   Читать дальше...   )Жанр: Club, House, DanceПродолжительность: 10:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0338D5148628DF088EC0190321BE1DF66328EDFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059479   (461255) от 04.10.2016
 
 VA - Танцевальный Экспресс (2016) [MP3|320 Kbps] <Dance, Club>
@@ -21,6 +50,8 @@ VA - Танцевальный Экспресс (2016) [MP3|320 Kbps] <Dance, Clu
 ```bash
 magnet:?xt=urn:btih:AEFF7B0D1FA64EF2A4601E97A3777955DA509F48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +86,8 @@ VA - Хит-парад Record 8 50/50 (2011) [MP3|256 kbps]<Клубная>
 magnet:?xt=urn:btih:66A82D7C26545015C7E9E3138E0FD54934C2AAA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +114,8 @@ VA - Perfect House (2018) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:63C8DCAD761C9938275B8ED1E275CD87414E7B04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +144,8 @@ VA - Euro Disco new generation: Fan Army Face Off (2017) [MP3|320 Kbps] <Disco, 
 magnet:?xt=urn:btih:7397C997D5BCECAF6E6A631DB72AF975EF4E018A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +172,8 @@ Trans-Siberian Orchestra - Best Of Classics (2016) [MP3|320 Kbps] <Symphonic Roc
 ```bash
 magnet:?xt=urn:btih:8D149075939F65B72EB875924770A9664691C9E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +202,8 @@ VA - Prelude To Decadence (2018) [MP3|320 Kbps] <Metal>
 magnet:?xt=urn:btih:E58F01C65CAFAFCBC39202B690751D2A0DC6EE1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ VA - ЭТО - РОК Unlimited Hits (2016) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:ABFC397FE814DE17E1992B6B21CCB05CD538636D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +260,8 @@ CD 1:
 magnet:?xt=urn:btih:060D8BFDD4EDD3FFAAC77887E00EC24D74E56AA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +288,8 @@ VA - Vocal Jazz Lady (2016) [MP3|320 Kbps] <Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:FCC71C5B284BDC8004C2FC9CC5789CCD4EF16117
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +318,8 @@ VA - Relaxation Well-Being and Serenity Music (2016) [MP3|320 Kbps] <New Age, Re
 magnet:?xt=urn:btih:C9C1B18371C10C7B98C01E2E6F257139835D86A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +346,8 @@ VA - Record Super Chart 06.08.2022 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:93B051A1F49C0A12E27C9999D92848F2F5EF9C64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +376,8 @@ VA - Дорожный шансон с любимой музыкой. Часть 
 magnet:?xt=urn:btih:DE6CF79F69ED63BFDD5F4227CABC5982CE39AB8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +404,8 @@ VA - Ibiza Workout 30 Fitness Hits Party (2016) [MP3|277-320 Kbps] <Reggaeton, C
 ```bash
 magnet:?xt=urn:btih:EE1DC201317FBAE618A830162298D24230611191
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +434,8 @@ VA - Trance Peper Progect (2016) [MP3|320 Kbps] <Uplifting, Vocal, Progressive T
 magnet:?xt=urn:btih:CFA24EA33E76F153401828AE5BC6AF15C9D33180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +462,8 @@ VA - My Favourite Hits of 1988 (13CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth
 ```bash
 magnet:?xt=urn:btih:430CBD7C3E48A8F7445AF677D082242772BC175D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +492,8 @@ VA - Italo Disco Hits Vol.7 (2015) [MP3|320 кб/с]<Italo Disco>
 magnet:?xt=urn:btih:622376FB082E5B6E11873494EE8286D8F6FA54DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +520,8 @@ VA - Лирика шансона (2015) [MP3|256 кб/с]<Шансон, Авто
 ```bash
 magnet:?xt=urn:btih:716B363A25F6B07C3E0B214F036A6D75DBDBCA1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +550,8 @@ VA - Ultimate Sexy Beats Vol. 2 (2015) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:97DF69EDAF2D846DE19B426C16A0C23DE6432C86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +578,8 @@ VA - 60 Hits Dance (2015) [MP3|320 кб/с]<UK Garage, Reggae Fusion, Eurodance,
 ```bash
 magnet:?xt=urn:btih:B11386B1BD04E73924B207FF55A3B892EA275B4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +608,8 @@ VA - This Merry Planet - Space Voyage #2 (2019) [MP3|320 Kbps] <Electronic, Synt
 magnet:?xt=urn:btih:B3A41781C5BD085E90FC1B935DF35168EC98339D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +636,8 @@ VA - Авторитетный хит (2015) [MP3|256 кб/с]<шансон, по
 ```bash
 magnet:?xt=urn:btih:A55E620FB2F48674E72C23711DDAE0052AFA7BB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +672,8 @@ VA - Into The Music Vol. 56 (2012) [MP3|320 кб/с]<Dubstep, Brostep, Ambient D
 magnet:?xt=urn:btih:FB25B5FE9EB80AFB6CD71465989B30A2B4FB8E0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +700,8 @@ VA - Струны Шансона (2019) [MP3|320 Kbps] <Шансон>
 ```bash
 magnet:?xt=urn:btih:8F14D27141CC2F250FBF1F5B49E7C68B29C0D509
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +730,8 @@ Guilty by Innocence - Temple of Love feat Samira K [Erotic Vocal Pop Lounge and 
 magnet:?xt=urn:btih:0D63F9D8806E872619A4FC24D3AA2C0C1ABC4ABF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,32 +759,7 @@ VA - Chill in Chill Out Sensual Lounge Music for Relaxation (2015) [MP3|320 кб
 magnet:?xt=urn:btih:F3AE43EDAC3D431E4D35D2E22BA2598013611773
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941143   (463011) от 27.09.2015
-
-VA - Ultimate Sexy Beats Vol.3 (2015) [MP3|320 кб/с]<Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Vantigo - Run From Love (Original Mix)
- 02. Stereo Flight - Mirage (Original Mix)
- 03. Irvim - Pistol Star (Original Mix)
- 04. Dmpr - Dark Kitty (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:56:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86CFEA2126C87F3C7FB55A68B01EFE10DF885A44
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

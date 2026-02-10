@@ -19,6 +19,8 @@ Mutant Mudds Deluxe [PS3] [En] [Repack] (2013) | R.G. Inferno
 magnet:?xt=urn:btih:9D03211B1F9CAE25462C56F40717D2E5E18B0466
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Ottawan - Ottawan 2 (1981) [FLAC 2.0 24/192|tracks(Vinyl-Rip)] <Disco>
 magnet:?xt=urn:btih:5C62F7703E7B8587D5C8DD05B6E9897A6655DA30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ DxO PhotoLab 2 2.1.0 build 14 [Multi]
 magnet:?xt=urn:btih:BFBD71188448A85C57224A40F78C9F34B51605D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ WhatsApp Messenger - это кросс-платформенное приложе
 ```bash
 magnet:?xt=urn:btih:20EAFA52D13DE8AC9E49688A4EDAB4240365CCA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Adobe Acrobat Reader DC — совершенно новое приложение
 magnet:?xt=urn:btih:C4414CA328438FCD6A587D88BF7C673B3412B8A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:4652FEC05FFAE61C6B89A497237DC0FE05C55A9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Tap Forms Organizer простое в использовании, абсолют
 magnet:?xt=urn:btih:648C0F4372106EDD4B69252CD170490C8E99C39C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:648C0F4372106EDD4B69252CD170490C8E99C39C
 ```bash
 magnet:?xt=urn:btih:F42B6743A71063247D08E284FB72472C715043AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:F42B6743A71063247D08E284FB72472C715043AE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:F42B6743A71063247D08E284FB72472C715043AE
 ```bash
 magnet:?xt=urn:btih:ED77953B4748E60206E4AE494B5C37C467938430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ oCam Screen Recorder - бесплатная программа, позволяю
 magnet:?xt=urn:btih:383D6EEC477ED81CA610F56C503BD0F5AC25ADE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Acrobat DC — это полностью обновленная настольн
 ```bash
 magnet:?xt=urn:btih:1DB78E6F6E67A38A0828E7D95AA5E0CD31FE5A42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:1DB78E6F6E67A38A0828E7D95AA5E0CD31FE5A42
 magnet:?xt=urn:btih:90512FF4C27CE5259289CF1E5AF4BD3E1CAEFC08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ CoolUtils Total HTML Converter — это функциональная прог�
 magnet:?xt=urn:btih:7D5F11559F9F6D12F63A6F0983144F6CA7EA672A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:7D5F11559F9F6D12F63A6F0983144F6CA7EA672A
 ```bash
 magnet:?xt=urn:btih:46C13F23530FBE94C335B001F26FF8F1B2196521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:46C13F23530FBE94C335B001F26FF8F1B2196521
 magnet:?xt=urn:btih:84002E6F5A13CB2DB957E9C9B458A6AD38F5BB67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:84002E6F5A13CB2DB957E9C9B458A6AD38F5BB67
 ```bash
 magnet:?xt=urn:btih:180F053ED512E67C57EEA373C8CDFA6157973629
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ The Bat! - популярный клиент электронной почты; 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ USB Safely Remove это надежная и удобная замена 'Без
 ```bash
 magnet:?xt=urn:btih:787544C4CA941FDF6D34D24061C6FB295F5C2F74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Workout Trainer Pro 7.7 [En]
 magnet:?xt=urn:btih:4583254376C111C737C816C64B7E721B91A681DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ uTorrent Pro 3.6.0 Build 46922 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:9B7DBA639D4BC3F53A0AD377F3A39EE7F75684E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 magnet:?xt=urn:btih:FDB57D11F89609DBDC896E3BAD487A9358B0CC88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Comedy Баттл. Суперсезон. Выпуск №38  / Комеди Кл
 ```bash
 magnet:?xt=urn:btih:6C8325D1B3F91083F753D6BC5968A1574FBD262F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ TeamViewer - программа для удалённого управления
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Arnold 4.6.6.2 (C4DtoA) for Cinema 4D 2024
 magnet:?xt=urn:btih:66925B35FCB048492536922E05F476B1CDF55B55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ iMazing – это многоцелевое программное обеспе�
 ```bash
 magnet:?xt=urn:btih:8F9B857507B3889078E0A090C6B5FAAC9BB0F904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

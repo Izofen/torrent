@@ -22,6 +22,8 @@ VA - Gym Hits 2 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:9CE76408B6B2A5FF26E28956923FB264BB2AFB77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Свежий Русский Хит от ALEXnROCK часть 5 (2019) [MP3|
 ```bash
 magnet:?xt=urn:btih:45ABB217286A636E06FF39F5841C0898D6920914
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Blues Cousins - Compilation (2020) [MP3|320 Kbps] <Rock, Blues>
 magnet:?xt=urn:btih:086360311628F4C36EBBE7904A688B24563815B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Новогоднее Настроение: Русский Популярн�
 ```bash
 magnet:?xt=urn:btih:37E01CE621C1A360A03AA67E1C893D635B9ED0A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Black and White (Compiled by Lazyra) (2015) [MP3|320 кб/с] <Trance , Upl
 magnet:?xt=urn:btih:D19F49AEA338D3396A83EEAE9F39DAA019BEE75C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Chris Bell - Compilation (2020) [MP3|320 Kbps] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:C3098E6A9207A0D994061E82A0E5A602D7D86D92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Options Remake Of Tracks December -C- (2018) [MP3|320 Kbps] <Electronic, Cl
 magnet:?xt=urn:btih:B43ABA571FAF5512B09C8B4295A07A497D924371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Stranger Blues (2018) [MP3|320 Kbps] <Blues, Soul, Jazz>
 ```bash
 magnet:?xt=urn:btih:DE85554A8962F27E0E1D87FD652831EE8FD601EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Record Super Chart Final (2018) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:9855B70480D9D63C5F56F5DEB32C70354E0396E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Kenny G - Beautiful compilation (2019) [MP3|320 Kbps] <Instrumental>
 ```bash
 magnet:?xt=urn:btih:CBA242297DE65930271501DA5451DA347E9C90D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Drum Overcome (2018) [MP3|320 Kbps] <Drum And Bass>
 magnet:?xt=urn:btih:2242776B50CBF4529A6D01FF75CDB3B50CE4419D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Saint-Preux - Compilation (2019) [MP3|320 Kbps] <Instrumental, Electronic. Easy 
 ```bash
 magnet:?xt=urn:btih:3F2000F5DD055A4C8BCD993D386664A49E382A4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Partybreaks and Remixes - All In One October 003 (2018) [MP3|320 Kbps] <Pop
 magnet:?xt=urn:btih:DEC5F2C76274A724AD76EC85C584EAC6E5F44191
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ VA - District of Trance (Compiled by sseless & Lazyra) (2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:52A8B9261AB90B322C4B55699F77C4B320FB6008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ Roland Romanelli - Compilation (2019) [MP3|320 Kbps] <Instrumental,  Electronic>
 magnet:?xt=urn:btih:66350EF4D5393A8D8802D1C567604C76245C755C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ VA - Новогодний Топ 100 От Зайцев.Нет (2015) [MP3|191 - 
 ```bash
 magnet:?xt=urn:btih:158F17911E66F111CCA46E646AC1A32691E1485E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ VA - Iron Goddess: Experimental (2018) [MP3|320 Kbps] <Ambient, Electronic, Down
 magnet:?xt=urn:btih:6CAE5691E46D32437E2BB3E5D21C9951971442E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ VA - Союз Новогодний (2017) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:49732EE328DC76C18F5591C3D1A681F0A7F3622B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ VA - XMas EDM Superparty (2019) [MP3|320 Kbps] <Dance, Club, House>
 magnet:?xt=urn:btih:6EEE9EEE3E7F3FA01B43690C64A35F41920D28B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ VA - Shazam Хит-парад Russia Top 100 Декабрь (2020) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:278C54607DB3755B04514BF3D3291FB7C65D8909
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ Disc 01:
 magnet:?xt=urn:btih:7260F8632E3D31970D49576E5D70326290D1645B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ VA - Корпоратив 2022 (mixed by Dj V) (2021) [MP3|320 Kbps] <Dance, Clu
 ```bash
 magnet:?xt=urn:btih:E4FBBDAF85304797D8469200AF327C4EF43DDCFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +657,8 @@ VA - De Top 100 Aller Tijden 1988 (RadioVeronica) (2017) [MP3|320 Kbps] <Electro
 magnet:?xt=urn:btih:785F2A0AF8E543215F3DEB087B4F6063288D992F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +685,8 @@ VA - Spotify – Top Tracks of 2017 [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:AD703D20ABF17EB721C71F021A220E9B9AECC796
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +715,8 @@ Disc 01:
 magnet:?xt=urn:btih:73B565164419C27625E07D6AB47A1BD159E9811D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ VA - Electric Oxygen Workout Music (2017) [MP3|320 Kbps] <Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:CCFC76CDF954861DCBB099460A64CBBF2C2E07A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

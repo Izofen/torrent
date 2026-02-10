@@ -22,6 +22,8 @@ VA - Supreme Lounge Chill Selection Jazzy Vibe Tunes (2024) [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:CB6D71354118ECD04A52F8BFDD1A50E6C7111307
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:CB6D71354118ECD04A52F8BFDD1A50E6C7111307
 ```bash
 magnet:?xt=urn:btih:D041CE8E08840A6D780A01F3C3282F480EFB8464
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Paramount Jazz Lounge Chilling Experience (2024) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:F49676B7614A9D9C6B81DB6B861AF4F557C4C6AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:F49676B7614A9D9C6B81DB6B861AF4F557C4C6AC
 ```bash
 magnet:?xt=urn:btih:67588DE59145E06CBF80D9B8EDD1E5A501227F56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ Irene Dresel - Rose Fluo (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <House, Tech
 magnet:?xt=urn:btih:1B77209B83F99E38AE29E94871F30561DD62658B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ A4-No Man's Land(   Читать дальше...   )Жанр: Hard-Rock, Classic
 ```bash
 magnet:?xt=urn:btih:255DEEDF973A2F1DEE041DFDD00385952846DAAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ A4 Pearl In The Shell(   Читать дальше...   )Жанр: Pop RockПр�
 magnet:?xt=urn:btih:F99B3F25BC47B13EAB7837A9EF323E9B7548D8F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Algebra - Feed The Ego (2014) [FLAC|Lossless|tracks + .cue] <Thrash Metal, Metal
 magnet:?xt=urn:btih:F096B82A1AEB7C279262D5F492B090BC25EC2C96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ Multitrack Editor: Beat Mixer 1.0.6 [Multi]
 ```bash
 magnet:?xt=urn:btih:231FE1B5E602789C115E3F42E8DE8F3ADFEAC3C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +277,8 @@ Almo - Reconciliation (2024) [MP3|320 Kbps] <Progressive Metal>
 magnet:?xt=urn:btih:FFE3F747DCFD21835527488E2785216E485FEC91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +302,8 @@ PowerPhotos - позволяет разбить ваши изображения 
 ```bash
 magnet:?xt=urn:btih:C9F1C37D702927EC511028CEA6E346CB508BD68D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ magnet:?xt=urn:btih:C9F1C37D702927EC511028CEA6E346CB508BD68D
 ```bash
 magnet:?xt=urn:btih:8631E252F01F5E106AE882B750509613BB82F42E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +360,8 @@ John Coltrane - Sheets Of Sound (1962) 2CD, 2002, Snapper Music [FLAC|Lossless|t
 magnet:?xt=urn:btih:DC2594F6B1A1E822C9B466118E561C7399A35555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ magnet:?xt=urn:btih:DC2594F6B1A1E822C9B466118E561C7399A35555
 magnet:?xt=urn:btih:D34199DDF158E897BE17BA5BF3704C119F7670A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:D34199DDF158E897BE17BA5BF3704C119F7670A7
 ```bash
 magnet:?xt=urn:btih:6298153021D7B7383F59FD25FFBAE0B8B8DB5922
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +441,8 @@ VA - Вас поздравляют звёзды! (1990) [FLAC 24/192|Lossless|tr
 magnet:?xt=urn:btih:941B09A9774DCE39C45A8297CC80046CE118DF0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +466,8 @@ magnet:?xt=urn:btih:941B09A9774DCE39C45A8297CC80046CE118DF0D
 ```bash
 magnet:?xt=urn:btih:7455FFB71937AE571F0D0CEC632516AB136D9629
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +496,8 @@ magnet:?xt=urn:btih:7455FFB71937AE571F0D0CEC632516AB136D9629
 magnet:?xt=urn:btih:4BCAF74FD1A40A4EE01256B3C0D299EE5FC3E61B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ magnet:?xt=urn:btih:4BCAF74FD1A40A4EE01256B3C0D299EE5FC3E61B
 ```bash
 magnet:?xt=urn:btih:5661E5F2677BEA7F75585BD01FFED670294D6952
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +549,8 @@ magnet:?xt=urn:btih:5661E5F2677BEA7F75585BD01FFED670294D6952
 ```bash
 magnet:?xt=urn:btih:B6033A420938598AEFAE29FC592E3276267F90FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +579,8 @@ magnet:?xt=urn:btih:B6033A420938598AEFAE29FC592E3276267F90FF
 magnet:?xt=urn:btih:FF550A794EADD651CA2985309D154B5BB59DF04D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +607,8 @@ The Yardbirds/Jeff Beck - Beck's Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 ```bash
 magnet:?xt=urn:btih:008B107933CDF62DAD157719ADEA29679219699F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +637,8 @@ Smooth Jazz Music Club, Chilled Jazz Masters - Erotic Jazz Bar: Sexy Evening wit
 magnet:?xt=urn:btih:056B80A1C911A42E3F0510070E71BEB87A6633E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +666,8 @@ magnet:?xt=urn:btih:056B80A1C911A42E3F0510070E71BEB87A6633E9
 magnet:?xt=urn:btih:AFAEEA98AEB7D6312EF2C92DBA81D3B981178052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +693,8 @@ magnet:?xt=urn:btih:AFAEEA98AEB7D6312EF2C92DBA81D3B981178052
 ```bash
 magnet:?xt=urn:btih:214DE1F0C31841487696BAE20C07935176947F04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +722,8 @@ Naoya Matsuoka - Watermelon Dandies (1985) [FLAC|Lossless|tracks + .cue] <Fusion
 ```bash
 magnet:?xt=urn:btih:8E321B1F831A91F159C09C01B06EE332A212F66A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

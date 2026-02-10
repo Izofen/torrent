@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2C576B213F3C75F2317D3C13F7A3AD217C721C28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:2C576B213F3C75F2317D3C13F7A3AD217C721C28
 magnet:?xt=urn:btih:3B288AA94A68D523F6C6EB532CF6937C531D2C77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:3B288AA94A68D523F6C6EB532CF6937C531D2C77
 ```bash
 magnet:?xt=urn:btih:58360FCD8C557DF871905C4FA3621C88FEFF2F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Shakra - 19 Albums (1992-2023) [FLAC|Lossless|image + .cue | tracks + .cue] <Har
 magnet:?xt=urn:btih:2CF36563AF7F36E6196C00F6095A58AB391D5DFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Debian GNU/Linux 10.7.0 + nonfree Buster [amd64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:ED9FF2508F0E5598A7B0DFB2785D2712D8D66754
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:ED9FF2508F0E5598A7B0DFB2785D2712D8D66754
 magnet:?xt=urn:btih:DF7889ABD11D801A5E1EBAF089C5271CC6B9BDF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ Defiant - No More Heart (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal
 magnet:?xt=urn:btih:801E98189282F12ADBC4FC097669DF11A6A4B2E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:801E98189282F12ADBC4FC097669DF11A6A4B2E1
 ```bash
 magnet:?xt=urn:btih:700F0A97F1D608E88B85B8DF527E1A87EE06771C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:700F0A97F1D608E88B85B8DF527E1A87EE06771C
 magnet:?xt=urn:btih:6BC19B16DB9A20E01EBDD743FA7FF2A6B5797003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:6BC19B16DB9A20E01EBDD743FA7FF2A6B5797003
 ```bash
 magnet:?xt=urn:btih:9A7C8F61F9A8EB521502A4E8320AEBD7EC2B9509
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:9A7C8F61F9A8EB521502A4E8320AEBD7EC2B9509
 magnet:?xt=urn:btih:130EE33E03BB2C024F37797EEFFCAC2C14E8BC5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:130EE33E03BB2C024F37797EEFFCAC2C14E8BC5A
 magnet:?xt=urn:btih:4FC15891694FDFC69E1C988B1123437B8CACACE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:4FC15891694FDFC69E1C988B1123437B8CACACE2
 ```bash
 magnet:?xt=urn:btih:E6D26541F483F18A89A17E6A3770C5853D34772F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ Sylvain Kassap Sextet - Octobres (2022) [FLAC|Lossless|tracks + .cue] <Avant-Gar
 magnet:?xt=urn:btih:E9A8A329604B4370BFDC46A3F63E3E10F9A5DE40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:E9A8A329604B4370BFDC46A3F63E3E10F9A5DE40
 ```bash
 magnet:?xt=urn:btih:3AE09106E29EAD382D95A6CB0D01F10EB290A6EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:3AE09106E29EAD382D95A6CB0D01F10EB290A6EF
 magnet:?xt=urn:btih:9B35ADCE9D357E9091402FDCF0EA3CE17D6B4A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ MyPhoneExplorer — абсолютно бесплатный продукт, пр
 ```bash
 magnet:?xt=urn:btih:449EB81707FD39C503F9D0541CC9469C89CF0E7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ Fiddler's Green - Seven Holy Nights (2022) [FLAC|Lossless|WEB-DL|tracks] <Celtic
 magnet:?xt=urn:btih:79965375765F3CF3CC018FB520E2B97D45607E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ Philosophobia - Philosophobia (2022) [MP3|320 Kbps] <Progressive Rock, Progressi
 magnet:?xt=urn:btih:77DEE899637A340D08D9BBE1111783B4B315438F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ magnet:?xt=urn:btih:77DEE899637A340D08D9BBE1111783B4B315438F
 ```bash
 magnet:?xt=urn:btih:94D0455A16153B09BD9800368B64F93DEC8D182F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ Rosanna's Raiders - Calling Down Fire (1988) [FLAC|Lossless|image + .cue] <Heavy
 magnet:?xt=urn:btih:240901F6EEF353703C93662681DDBF33F1437098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ FastStone Photo Resizer - программа для всевозможных м�
 ```bash
 magnet:?xt=urn:btih:C8B72773FD55FD336DD58643DA0872B3D0F96014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ qBittorrent - бесплатный, мощный и удобный в работ
 magnet:?xt=urn:btih:973C741011D6E74DD5A0E4E247408774D53C1195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ ImageGlass - это легкий и универсальный просмотр�
 ```bash
 magnet:?xt=urn:btih:9B63A6C12B4BFD50BCF76D53B5EF6DFB01D5AC33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ Mentalist - Freedom of Speech (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Powe
 magnet:?xt=urn:btih:D3A1220784708BAFD02BAE0EB091D49BF03C4A82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ Asterise - Two Worlds (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Meta
 ```bash
 magnet:?xt=urn:btih:EA31035BD23F98D3D306F1AFC2F2E85B46F37E1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

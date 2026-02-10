@@ -19,6 +19,8 @@ Cheat Kusushi no Slow Life: Isekai ni Tsukurou Drugstore | Drugstore in Another 
 magnet:?xt=urn:btih:0B43F902A87DF8C37F175AD3CFB6A685AEC7ECCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Back Arrow | Бэк Арроу [2021, TV, 24 из 24] BDRip 1080p HEVC 10-bit ra
 ```bash
 magnet:?xt=urn:btih:010E41BD42B9BF1DEE3A8D39D278B30F07ED71A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Bakuten!! | Backflip!! | Сальто назад! [2021, TV, 12 из 12] BDRip 1
 magnet:?xt=urn:btih:3D643E136DF0807DFFC004CBB27B0E6A81B31E5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Touhou Niji Sousaku Doujin Anime: Musou Kakyou | Touhou: A Summer Day's Dream | 
 magnet:?xt=urn:btih:A0AA2EF3E16A182C0786848FC8A4BE5BD0B812D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Psycho-Pass 3 | Психопаспорт [ТВ-3][2019, TV, 8 эп.] WEBRip 720p
 ```bash
 magnet:?xt=urn:btih:CA1EE05CB9C1E0E790521767B7887C8F33FDE7F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Kageki Shoujo!! | Девушка из оперы [2021, TV, 13 из 13] BDRip 10
 magnet:?xt=urn:btih:B2C02824DFD0820D1962B65E58CBC4403592DF48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Akuyaku Reijou nano de Last Boss o Katte Mimashita | I`m the Villainess, So I`m 
 ```bash
 magnet:?xt=urn:btih:731714EEC3C61F5EC215B0D025D857FD24419E13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Pluto | Плутон [2023, Web, 8 эп.] WEB-DL 1080p raw
 magnet:?xt=urn:btih:C5B2FE3BDB711827CACA71F4A9303B96C0678CBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Jashin-chan Dropkick X | Dropkick on My Devil!! X | Дропкик злого д
 ```bash
 magnet:?xt=urn:btih:1F094332A58DCB6C4E47EC53432EC3B4ABA88CB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Kawaii Dake ja Nai Shikimori-san | Shikimori's Not Just a Cutie | Моя дев�
 magnet:?xt=urn:btih:5B1B028F1BFFD9901AB9F36D1F508BCCEE16988C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Jashin-chan Dropkick Dash | Dropkick on My Devil!! Dash | Дропкик зло�
 ```bash
 magnet:?xt=urn:btih:5E72DF832DCABBE6E07AB8C77B7B00C14D3E7ADD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Urara Meirochou / Город предсказательниц [2017, TV, 12] BDR
 magnet:?xt=urn:btih:BE8B69667C156E2837C706AD96B1C447F22678DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Ganbare Douki-chan | Доки, ты справишься! [2021, Web, 12 эп.] 
 ```bash
 magnet:?xt=urn:btih:E33B7D7B8A7D7B4BD64B379C78DD57ED837D4FB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Obsolete | Устаревший [2019, ONA, 6 эп.] WEB-DL 2160p raw
 magnet:?xt=urn:btih:E8255BDD99FB4613D44D512E74E59EC72979CC59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Grand Blue / Grand Blue Dreaming / Необъятный океан [2018, TV, 12
 ```bash
 magnet:?xt=urn:btih:6FBC32EBCD1EC1A5AE7CC062FBF216A891825A0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Towa no Yuugure | Dusk Beyond the End of the World | Вечность Югурэ
 magnet:?xt=urn:btih:7FFDA20C05CE7E727C371F72F34CA2364CBC172B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Urahara | Урахара | Вопреки [2017, TV, 12 эп.] WEB-DL 720p raw
 ```bash
 magnet:?xt=urn:btih:74E5E9A70DD28FBCD9F2CFD17F2FE511BB3643FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Ao no Orchestra | Blue Orchestra | Синий оркестр [2023, TV, 24] WEBR
 magnet:?xt=urn:btih:B0D47CD486188DC7A86D4129DC7618E2BFD5669C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Tokyo Mew Mew | Токио Мяу Мяу [2002, TV, 52 эп.] BDRip 480p 10-bit 
 ```bash
 magnet:?xt=urn:btih:F0E2436E5466F5158ACF6F668BC69C4A0F3D95CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Toji no Miko: Kizamishi Issen no Tomoshibi | Жрицы с мечами: Раз�
 magnet:?xt=urn:btih:2ED349B80F1BC7256CED9305AEBDFC0542BF86AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Edens Zero | Нулевой Эдем [2021, TV, 25 эп.] BDRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:AE9E08FDC6746121ED67C372B6517929C691F358
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Makai Ouji: Devils and Realist | Принц Преисподней: Демоны
 magnet:?xt=urn:btih:3359F0DEB00BE7910875718F596B7E158A3B000E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Negima!? Haru Special!? | Negima!? Magister Negi Magi: Spring | Волшебны
 ```bash
 magnet:?xt=urn:btih:F71BE5CF8DFD4E913A4C1E10BF99E52DDC2AB09B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Natsuki Crisis | Кризис Нацуки [1994, OVA, 2 из 2] DVDRip 576p raw
 magnet:?xt=urn:btih:11E98BE24A04D6FA051C13A0A919FEC2075BC7B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Negima!? Natsu Special!? | Negima!? Magister Negi Magi: Summer | Волшебн�
 magnet:?xt=urn:btih:D626C17D67352AAF3EDCE441173D22021AA5EF9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Vanitas no Karte | The Case Study of Vanitas | Мемуары Ванитаса [
 ```bash
 magnet:?xt=urn:btih:687F36BAF1F3CDC783E8985911D056CB33F9A594
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

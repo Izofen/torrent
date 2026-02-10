@@ -19,6 +19,8 @@ Patsh TeodorStyle Сборка твиков и утилит для измене�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Albums, EP, Demo, Split:
 magnet:?xt=urn:btih:7B9618C76C5ADBBCA8871528B02FCBDCDFA0564F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ FoneTrans - это лучшее программное обеспечение iO
 ```bash
 magnet:?xt=urn:btih:721D6DC5F9D714C17E8BCF7F80075825F4CEE25E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Albums, Demo, Split:
 magnet:?xt=urn:btih:D347ADE611D8C4AFE8DE4F38C30E62DFE82C13B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Soft Organizer Pro 7.41 RePacK by KpoJIuK [Ru/En]
 ```bash
 magnet:?xt=urn:btih:E387A503016186BED6CFCB8320DE8685E533EFE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ Luminar - это полнофункциональный набор для ред
 magnet:?xt=urn:btih:93913E44960538DE9A8BE8173CD45F70F62595AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ Comodo Dragon - браузер, использующий последние те
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ Plaster - Platforms (2011) [FLAC|Lossless|WEB-DL]<Leftfield, IDM, Downtempo, Min
 magnet:?xt=urn:btih:FBC7AACEF942A6C894E6453FA21EBE8882AA4B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ FantaMorph - легкая в использовании программа дл�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:F00D56D9438A68C9C062EBFC8FC4566BCB151752
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ Eldur - Siggja (2014) EP [MP3|320 кб/с]<Atmospheric Black Metal, Ambient>
 magnet:?xt=urn:btih:6E997DDC5E9075DFD440F1C71B324F79933AE4ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ PhotoZoom Professional - программа является лучшей из �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ Total Commander 11.02 (23.11.2023) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:E9D1F1859D81B43A283D3AF50709B20F3FC4B5B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:BABE693B0FFFA9326D385F0B75598A33D5112D15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:BABE693B0FFFA9326D385F0B75598A33D5112D15
 magnet:?xt=urn:btih:E3A397721653AC1921DD9CF427FC02F7B0FDAB90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:D925EC525B9AFD869374022844301C7CDDFDFAAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:D925EC525B9AFD869374022844301C7CDDFDFAAC
 ```bash
 magnet:?xt=urn:btih:6F691340DDE27DDE46003CE7C5B1C00C6A7B622D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:6F691340DDE27DDE46003CE7C5B1C00C6A7B622D
 magnet:?xt=urn:btih:EAF0A07DFC972F56D440303849A8C3713C3668F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:EAF0A07DFC972F56D440303849A8C3713C3668F3
 ```bash
 magnet:?xt=urn:btih:FD6ECE2AB741046F26889F4A3C915673FD5BCA15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:FD6ECE2AB741046F26889F4A3C915673FD5BCA15
 magnet:?xt=urn:btih:496CB13ED658DD0E5DBE3FE6B30348B87701A1D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ Media Player Classic Home Cinema - удобный во всех планах м�
 magnet:?xt=urn:btih:C3E6402B614EB9BFE69EFFBF3CD6B0B855F6A4F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:C3E6402B614EB9BFE69EFFBF3CD6B0B855F6A4F6
 ```bash
 magnet:?xt=urn:btih:BEEB53DF98515605B958490A8240488DEB42B9AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:BEEB53DF98515605B958490A8240488DEB42B9AD
 magnet:?xt=urn:btih:FC05425572AD0DB6245C70ACA02631AC201F6E1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ PhotoZoom Professional - программа является лучшей из �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ Photomatix может автоматически создавать HDR изоб
 magnet:?xt=urn:btih:B105863DD89D4E73C7BD91F5884849D27D079452
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ AV Uninstall Tools Pack - это бесплатный пакет утилит, �
 ```bash
 magnet:?xt=urn:btih:9F984B92CB2BC9123989FD3F6D1BDBC0D3238E5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

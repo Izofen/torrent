@@ -20,6 +20,8 @@ P821 MDN Tape основан на личном магнитофоне Stephens 8
 magnet:?xt=urn:btih:65E4D5FF5B058E62BF70B7E1EB650F47298759B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:5A0E389DC3EDF5AF83E76A5862CA9C3DD0FF25CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ BikeComputer Pro - возможно, одно из лучших приложен
 magnet:?xt=urn:btih:56570718CB7EC506C21DA1EBFDC8FDC536D1FAC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ VRadio - Online Radio App v2.8.0 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:840FAB6E8336FC12AA6B3D32CCCB5740E99369CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ MediaHuman YouTube to MP3 Converter 3.9.9.99 (0404) RePack (& Portable) by elchu
 ```bash
 magnet:?xt=urn:btih:299131EAD07465FA5C06C1A64D7C087E0FF23BF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Balabolka 2.15.0.892 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:109409DD3CE40C3AE7852A9F951DBFDF90E0CBF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:109409DD3CE40C3AE7852A9F951DBFDF90E0CBF3
 ```bash
 magnet:?xt=urn:btih:E503E7C70EA16AE43B39886125F4CDD4118EBF28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ MediaHuman YouTube Downloader 3.9.9.99 (0404) RePack (& Portable) by elchupacabr
 magnet:?xt=urn:btih:40A08BD92761B72D490CB2FEB41BCAF0AAA7F088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Youtube Downloader HD - бесплатная и предельно проста�
 ```bash
 magnet:?xt=urn:btih:8B28212D81AF52F128F92D3D16A1C0602FC57B10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ W10Privacy - программа для изменения настроек си�
 magnet:?xt=urn:btih:8EA75C9077FE1BC681F335E9ECFAC30052AE6383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 ```bash
 magnet:?xt=urn:btih:C1E41ED31C8DFA4AE5FC3EB31B16CB9080438518
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ AdGuard — уникальный блокировщик рекламы без п
 magnet:?xt=urn:btih:259794D87C1EFD8F0A4F360D5B105A6CFDEDD974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ TV+: Бесплатное Онлайн Телевидение
 magnet:?xt=urn:btih:95ABE4456C5207FAB9AA8C251DF5023C9F8DC40E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:D9CE33750F21156A05C235E49B2EED8704DD7413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Master PDF Editor — простая, но эффективная програм
 magnet:?xt=urn:btih:5825419656E3110178D964BEACDCE559A750EA2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Malwarebytes Windows Firewall Control - утилита, с помощью кот
 ```bash
 magnet:?xt=urn:btih:CDBEEF0636DA9F4B015958479F2DB6E5216B0947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 magnet:?xt=urn:btih:05D5EAD06C96CD6AA801C4616AAD500C581AA832
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ MediaHuman YouTube Downloader 3.9.9.99 (2903) RePack (& Portable) by elchupacabr
 magnet:?xt=urn:btih:203CCBBA43C818D2D35A392CA09D86C314E8BA5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:ED5CF95FA577474A9FE868464A820F6F9FFA6A3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Activation Program 1.09 Portable by Ratiborus [En]
 magnet:?xt=urn:btih:7723CBC3AAA3F5233B5A443878ABF8DBA861E23C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:440565C12B4952F40B8EFCB45280A9455F8F3C92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ FanControl – свободно распространяемый продукт,
 magnet:?xt=urn:btih:E5DEF06BF7228118A6865B330D6045B689238372
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:7E73F37A14B0D8F9D67825298C646356288A3D15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ FreeCommander XE - это довольно-таки удобный в работ
 magnet:?xt=urn:btih:26B844E83B2ED5B84A9868D49B7E7ADC0633C14E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:19766B7EAFE7CA193E7C1044FF4607C3E0731A11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ KiCad – уникальный в своем роде программный п�
 ```bash
 magnet:?xt=urn:btih:342DF7842F34A4CA72D93380B2E7D918FBF07EF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

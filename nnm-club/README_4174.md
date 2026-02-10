@@ -19,6 +19,8 @@ Fables of the Kingdom V / Сказочное королевство V (2023) [Ru
 magnet:?xt=urn:btih:2DEBC40A01708CF87464D920F3C570CBECE22BF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:2DEBC40A01708CF87464D920F3C570CBECE22BF2
 magnet:?xt=urn:btih:D9C50E380F42A47DC8C0CE7BE6759CD2B3E0AA0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:D9C50E380F42A47DC8C0CE7BE6759CD2B3E0AA0F
 magnet:?xt=urn:btih:75DA5160955C684F7DB50F7827F59151D04E923F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:75DA5160955C684F7DB50F7827F59151D04E923F
 ```bash
 magnet:?xt=urn:btih:FF38FBA5C5A119F1FFB5F59110E8D204785898DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:FF38FBA5C5A119F1FFB5F59110E8D204785898DE
 magnet:?xt=urn:btih:02C2D6E5766572AEF94A72A327CD8E2AF80E03F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:02C2D6E5766572AEF94A72A327CD8E2AF80E03F4
 ```bash
 magnet:?xt=urn:btih:976ABEF76A199AC19878195CEE087C85F8AA8041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:976ABEF76A199AC19878195CEE087C85F8AA8041
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:976ABEF76A199AC19878195CEE087C85F8AA8041
 ```bash
 magnet:?xt=urn:btih:9E3B0431DB7985E17FCE7DEA2FAC44F516DDD8E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:9E3B0431DB7985E17FCE7DEA2FAC44F516DDD8E1
 magnet:?xt=urn:btih:BEACFDBE14228F9CB02B18EA3B4859CEC67B22C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:BEACFDBE14228F9CB02B18EA3B4859CEC67B22C8
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:BEACFDBE14228F9CB02B18EA3B4859CEC67B22C8
 magnet:?xt=urn:btih:5106BFCECCAA49B8EF12FBC01675DA310F35EF03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:5106BFCECCAA49B8EF12FBC01675DA310F35EF03
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:5106BFCECCAA49B8EF12FBC01675DA310F35EF03
 ```bash
 magnet:?xt=urn:btih:9AC9B9F7FEC04DADFF4ABDD2EA457584A924215A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:9AC9B9F7FEC04DADFF4ABDD2EA457584A924215A
 magnet:?xt=urn:btih:294088BE3668C0CD23094827DEEFE4DD8D737DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:294088BE3668C0CD23094827DEEFE4DD8D737DA4
 ```bash
 magnet:?xt=urn:btih:BF6AC559E62487EAD4783C8048F15494EA7774BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Cyberpunk 2077 — приключенческая ролевая игра, де�
 magnet:?xt=urn:btih:B5E4E8B4BC0BF91C371549176A5E51106DB12E2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:B5E4E8B4BC0BF91C371549176A5E51106DB12E2E
 ```bash
 magnet:?xt=urn:btih:F057804B38FDC2AC8FF53377EF6D4B9595E02DA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Rory Gallagher - 27 Albums, 5 Box Set (1971 - 2023) 94 CD [FLAC|Lossless|image +
 magnet:?xt=urn:btih:BFB7FEFCABF0347FA7947C15747E1B47197F3BAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:BFB7FEFCABF0347FA7947C15747E1B47197F3BAE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:BFB7FEFCABF0347FA7947C15747E1B47197F3BAE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Need for Speed: Underground (2003) [Ru/En] (1.4.0) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:134573A483695EADE7333650A4E21FF8D0651651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:134573A483695EADE7333650A4E21FF8D0651651
 magnet:?xt=urn:btih:EF88A830B3A016A28AC2B79404BA0286A14080CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:EF88A830B3A016A28AC2B79404BA0286A14080CF
 ```bash
 magnet:?xt=urn:btih:568B03F132C9CC8A7AD4FF73B589EA8B49768F94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:568B03F132C9CC8A7AD4FF73B589EA8B49768F94
 magnet:?xt=urn:btih:CC52A841A4F084F3285039F261AD825651C5A14B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:CC52A841A4F084F3285039F261AD825651C5A14B
 magnet:?xt=urn:btih:9C9378FE2EB0E4C7D7F94E39754320D1780EAA22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:9C9378FE2EB0E4C7D7F94E39754320D1780EAA22
 ```bash
 magnet:?xt=urn:btih:854747C4C067859A7E874269F92E7B3BBDD1ED93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

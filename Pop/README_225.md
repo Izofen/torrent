@@ -1,3 +1,149 @@
+###  Публикация: 910149   (623427) от 19.06.2015
+
+Александр Малинин - Выбираю тебя (2015) [FLAC|image +.cue]<Pop, Romanse, Folk>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дорогой длинною (3:40)
+02. Дон (5:02)
+03. Две души (дуэт с Е.Ваенгой) (3:37)
+04. Кони (3:31)(   Читать дальше...   )Жанр: Pop, Romanse, FolkПродолжительность: 00:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E667F11B64F8C978210CD265A18783E72A49D86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910170   (623728) от 19.06.2015
+
+Алена Апина - Золотая Коллекция (2000) [FLAC|image +.cue]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Электричка (4:35)
+02. Тополя (4:02)
+03. Узелки (3:09)
+04. Ксюша (3:13)(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8B809D7A767D3535F08BCB8272F8896F940B8CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145043   (623775) от 24.06.2017
+
+Joe Yellow - Greatest Hits & Remixes (2017) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Eurobeat, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover To Lover (7'' Version) 04:00
+02. Take My Heart (7'' Vocal Version) 05:05
+03. I'm Your Lover (Vocal Version) 05:28
+04. Love At First (7'' Vocal Version) 03:50(   Читать дальше...   )Жанр: Italo-Disco, Eurobeat, Hi-NRGПродолжительность: 02:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FE001A6938158C9F8C189329DFB844C1BE6036B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145313   (623780) от 24.06.2017
+
+Boys Town Gang - Disco Kicks (The Complete Moby Dick Records Recordings) (1994) 2CD [MP3|320 Kbps] <Electronic, Disco, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Были Диско и Хай-Энерджи группой из Сан-Франциско, Калифорния. Достигли пика популярности в 1980-х годах, когда группа получила № 5 в "Billboard's Hot Dance Club Play chart" с синглом "Cruisin' the Streets",  (№4 в чарте Великобритании) и № 1 в Нидерландах, Бельгии и Испании с их кавер-версией "Can't Take My Eyes Off You".
+В данном издании (   Читать дальше...   )01. Remember Me - Ain't No Mountain High Enough Suite (13:58)
+02. Cruisin' The Streets (13:10)
+03. You're The One (8:19)
+04. Disco Kicks (9:37)(   Читать дальше...   )Жанр: Electronic, Disco, Hi NRGПродолжительность: 02:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C4E92FEA6CCEC634FDCB1CECCFEA4A4CD6B3259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909904   (623837) от 19.06.2015
+
+Игорь Николаев - Линия жизни (2014) [MP3|256 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песня для тебя [04:06]
+02. Линия жизни [03:44]
+03. Поздняя весна [03:54]
+04. Мы совпали с тобой [03:13](   Читать дальше...   )Жанр: PopПродолжительность: 00:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBA00A69038C251FFAFA4381FB66B423631971F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294975   (623872) от 10.04.2019
 
 Belle Epoque - The Best Of (2015) DV Digital [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, 70s>
@@ -21,6 +167,8 @@ Belle Epoque - The Best Of (2015) DV Digital [FLAC|Lossless|WEB-DL|tracks] <Disc
 ```bash
 magnet:?xt=urn:btih:3EFE43441437E6F57E30043BD7B6369627727D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +197,8 @@ Andee - Black And White Heart (2015) Deluxe Version [MP3|320 кб/с]<Pop Rock>
 magnet:?xt=urn:btih:C0EE0292BDEB4AE47C7737CE345C669B73E49881
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +225,8 @@ Captain & Tennille - Come In From The Rain (1977) CD, Album, Remastered, 2005, U
 ```bash
 magnet:?xt=urn:btih:D60B13559D39BCED48B51BD38F79F1F787B3B589
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +255,8 @@ Billy - I'm Not Ok (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Electro, Downte
 magnet:?xt=urn:btih:D487866B7F7A7C49E51F29ABC4032616A7E4F53E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +283,8 @@ magnet:?xt=urn:btih:D487866B7F7A7C49E51F29ABC4032616A7E4F53E
 ```bash
 magnet:?xt=urn:btih:5564AE9C1091728C58736103BEB33B3C9F8F290E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +319,8 @@ Savage - Tonight (2009) [FLAC|Lossless]<italo-disco>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +347,8 @@ Culture Beat - технобит проект, основанный в конце
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +377,8 @@ Timecop1983 - Lovers (part I) EP (2016) [FLAC|Lossless|WEB-DL|tracks] <80's Retr
 magnet:?xt=urn:btih:6D7B6AFDCF0ABC5D14D176D7064B38C592414E33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +406,8 @@ Bad Boys Blue - House Of Silence (1991) [FLAC|Lossless|image + .cue] <Disco, Eur
 magnet:?xt=urn:btih:6D29BFA4E22183CF78AFD855F788A7EA96E9C11D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +431,8 @@ VA - Super Italo Made in Spain, 2CD (2019) Compilation [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:0763D64F06DDBEC16759EBDBEA56D13C4AAB97BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +461,8 @@ magnet:?xt=urn:btih:0763D64F06DDBEC16759EBDBEA56D13C4AAB97BC
 magnet:?xt=urn:btih:335C680F8A4C6850A7B083DC2B8BF4D10A36DDDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +489,8 @@ Sabrina - Boys: The Best Of Sabrina (2013) Compilation [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:05E6EF7DBB80548C11BC813DD196CE7536E21212
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +519,8 @@ VA - Мальчики это тоже любят (2003) [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:AAB21C69D41C24D312EC94A5F24E6A46451B0113
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +547,8 @@ magnet:?xt=urn:btih:AAB21C69D41C24D312EC94A5F24E6A46451B0113
 ```bash
 magnet:?xt=urn:btih:E422DDD9BDC1B7F5D64CB9FAEBA3C652F1D576DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +577,8 @@ Miko Mission - Greatest Hits & Remixes (2019) 2CD, Compilation [FLAC|Lossless|tr
 magnet:?xt=urn:btih:E160B51DCF3DF6410736CCCF53FDDDCEBE5A303D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +605,8 @@ Lika Star - The Best (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:13D59430C04B436E4BD4B3491459E5F9428C96BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +635,8 @@ magnet:?xt=urn:btih:13D59430C04B436E4BD4B3491459E5F9428C96BA
 magnet:?xt=urn:btih:6402243D267925C68A7AFC171CBF65B90740F722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +663,8 @@ Miko Mission - Greatest Hits & Remixes (2019) 2CD, Compilation [MP3|320 Kbps] <I
 ```bash
 magnet:?xt=urn:btih:F0083371ACEBB31229F8B6F590BBE3E0BBE37D99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +693,8 @@ Giorgio Moroder - Deja-Vu (2015) [FLAC|Lossless]<Pop, Electronic>
 magnet:?xt=urn:btih:F9B554833FFAAA455846A61A8B57E7355DDF7700
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +721,8 @@ Lenka - The Bright Side (2015) [FLAC|Lossless|WEB-DL]<Indie Pop>
 ```bash
 magnet:?xt=urn:btih:14E2D3437DD824E10AA070292D857FDD7F75C35A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,140 +751,7 @@ magnet:?xt=urn:btih:14E2D3437DD824E10AA070292D857FDD7F75C35A
 magnet:?xt=urn:btih:144C094C57712EE94E7F082D166C21B29B3323B0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294835   (626104) от 09.04.2019
-
-Герр Антон - Одинокий мужчина и другая честная попса (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Одинокий мужчина (3:30)
-02. А он её (3:15)
-03. Так тому и быть (3:33)
-04. Пухленькие девушки (3:37)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFA91040D58F83CA6EE11308AA9E8E689E5EA4DC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294809   (626110) от 09.04.2019
-
-Captain & Tennille - Song Of Joy (1976) CD, Album, Remastered, 2005, Universal Music Special Markets [MP3|320 Kbps] <Pop, Soft Rock, Blues Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song Of Joy
-02. Lonely Night (Angel Face)
-03. Mind Your Love
-04. Smile For Me One More Time(   Читать дальше...   )Жанр: Pop, Soft Rock, Blues RockПродолжительность: 00:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D7A0832FBFA5F9ED9942D38F711F4B95451422A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294857   (626112) от 09.04.2019
-
-Владимир Панченко - Побудь со мной (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А ты его ждёшь 3:48
-02. Ты плачешь по ночам 3:43
-03. Запиши мой номер (DJ Alfred Newman Remix) 4:11
-04. Незнакомка 3:32(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACA5285BC7BD46F8AEF644242BDA250E94B517FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294843   (626115) от 09.04.2019
-
-Christopher Cross - Doctor Faith (2011) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey kid 3:34
-02. I'm too old for this 4:17
-03. When you come home 4:28
-04. Dreamers 4:03(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:53:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:410FA9AA8298946BBE6C0D7AB57D0887EEB7872F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035580   (626505) от 17.07.2016
-
-Arabesque - Greatest Hits Volume 1 (1993) Unofficial Release [APE|Lossless|image + .cue] <Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_626505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Mr. Monkey
-02. Fly High Little Butterfly
-03. Buggy Boy
-04. Friday Night(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F2E5E8C05BC74F307B5E666A10DDE023DB8FCE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

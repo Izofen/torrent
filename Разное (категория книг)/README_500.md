@@ -1,3 +1,29 @@
+###  Публикация: 1395097   (758645) от 08.07.2020
+
+Иван Крастев, Стивен Холмс | Свет, обманувший надежды. Почему Запад проигрывает борьбу за демократию (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_758645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эпоха великих перемен, которая, как считалось, наступила после краха коммунизма и «конца истории», стала временем не реальной трансформации государств по западной модели, а имитации, часто – весьма поверхностной. Но притворство рано или поздно приводит к обратной реакции. Через три десятилетия игры по западным правилам многим «ученикам» надоело терпеть моральное (   Читать дальше...   )Жанр: Политология, ПублицистикаПеревод: Александр СоловьевФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C87510010303F4D528E136F4EB021A15E521579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017791   (758710) от 18.05.2016
 
 Альберт Джексон, Дэвид Дэй | Мастер золотые руки [2-е издание] (2015) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B29FFA4D182BEF765E1972091839B007EA9D5EA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:B29FFA4D182BEF765E1972091839B007EA9D5EA8
 ```bash
 magnet:?xt=urn:btih:A964ABF91A1BF61998B4D2BF3A73D29ECEA61F38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:A964ABF91A1BF61998B4D2BF3A73D29ECEA61F38
 magnet:?xt=urn:btih:C9CD449341429838ABDB46D1696FF8775A490296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:C9CD449341429838ABDB46D1696FF8775A490296
 magnet:?xt=urn:btih:C0441E1B04055CAB792F749A2B733D080CAF343E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:C0441E1B04055CAB792F749A2B733D080CAF343E
 ```bash
 magnet:?xt=urn:btih:68BB64687C3DBD4184C31E28EC0616F7A07FAC62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:68BB64687C3DBD4184C31E28EC0616F7A07FAC62
 magnet:?xt=urn:btih:95A4D4385DEB1743A09E6B1E6F30F6CD58F2E8CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:95A4D4385DEB1743A09E6B1E6F30F6CD58F2E8CA
 ```bash
 magnet:?xt=urn:btih:54EB0873C6622CE9818BC6B705F4AD521D653AA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:54EB0873C6622CE9818BC6B705F4AD521D653AA2
 magnet:?xt=urn:btih:80B3E2CCBAB7E1CB0264F42BA28E02BF51F1BE71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:80B3E2CCBAB7E1CB0264F42BA28E02BF51F1BE71
 ```bash
 magnet:?xt=urn:btih:1FE223708369580FF44F276AF51A8EA59B19A9EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:1FE223708369580FF44F276AF51A8EA59B19A9EA
 magnet:?xt=urn:btih:95520382FD8B9F730605B065F1B277ED9ED6B839
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:95520382FD8B9F730605B065F1B277ED9ED6B839
 ```bash
 magnet:?xt=urn:btih:38213EAFFBE447EC700ACD03EFD1FDEFA5DA4E09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:38213EAFFBE447EC700ACD03EFD1FDEFA5DA4E09
 magnet:?xt=urn:btih:4F213325D8F4B7F868D608BFB3455AF2B197096F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:4F213325D8F4B7F868D608BFB3455AF2B197096F
 ```bash
 magnet:?xt=urn:btih:DDC55AA00965D58BAD6F3F4B07E03D12710FB618
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:DDC55AA00965D58BAD6F3F4B07E03D12710FB618
 magnet:?xt=urn:btih:4B4886AC839F8D291C5A86507259580B31D8C0BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:4B4886AC839F8D291C5A86507259580B31D8C0BF
 ```bash
 magnet:?xt=urn:btih:98E9FBBA7FB1794699962307FD7865F95D72BA82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:98E9FBBA7FB1794699962307FD7865F95D72BA82
 magnet:?xt=urn:btih:B9ED0378C128081338E74FDD19744F6D0FDADDA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:B9ED0378C128081338E74FDD19744F6D0FDADDA5
 ```bash
 magnet:?xt=urn:btih:4364D2E231D6A6333A8F7751F8AA11D67A29A102
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:4364D2E231D6A6333A8F7751F8AA11D67A29A102
 magnet:?xt=urn:btih:869726812635A73ADE7610D25BCF67086E55E9BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:869726812635A73ADE7610D25BCF67086E55E9BD
 magnet:?xt=urn:btih:BEF9E37A6D35F04D427C621D68169BDDEFB61735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:BEF9E37A6D35F04D427C621D68169BDDEFB61735
 ```bash
 magnet:?xt=urn:btih:E9618E4FDEC887EFB97475E68EFC4FEC7175313B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:E9618E4FDEC887EFB97475E68EFC4FEC7175313B
 magnet:?xt=urn:btih:2502660B0316034A41D32ECB8A49CD93EE52BC0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:2502660B0316034A41D32ECB8A49CD93EE52BC0F
 ```bash
 magnet:?xt=urn:btih:33467AB62F568D0B9D23D27B04137E345DE5FD05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:33467AB62F568D0B9D23D27B04137E345DE5FD05
 magnet:?xt=urn:btih:E52EE2D6E4CF53156DD25E2704F97CEB51F05E7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:E52EE2D6E4CF53156DD25E2704F97CEB51F05E7C
 ```bash
 magnet:?xt=urn:btih:B6A126785D51EE458F75F0DA625AC411F6B468C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,31 +677,7 @@ magnet:?xt=urn:btih:B6A126785D51EE458F75F0DA625AC411F6B468C5
 magnet:?xt=urn:btih:C76CCC8469AD24F980DAC62186F008B9F5946736
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522232   (759927) от 06.01.2022
-
-Ричард Боллс | Какого цвета ваш парашют? Легендарное руководство для тех, кто экстренно ищет работу (2020) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_759927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Правила игры изменились. Внезапно. Без предупреждения. Особенно нелегко стало тем, кто ищет работу или хочет её сменить. Работодатели и кандидаты всё чаще не понимают друг друга, а на поиск работы уходят месяцы и даже годы.
-
-В ваших руках самая популярная книга по поиску работы в мире, которую читают в 26 странах на 20 языках, а её продажи превысили 10 000 000 экземпляров. (   Читать дальше...   )Жанр: Зарубежная деловая литература, Поиск работы / карьера, Советы от гуруПеревод: А. Д. СайфуллинаФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF0B404734F165AE7406861237C5EFBDE1847239
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

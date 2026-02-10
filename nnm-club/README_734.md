@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:23A4E3B7B4AAC42A47C43A1D4EA788950600F699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:23A4E3B7B4AAC42A47C43A1D4EA788950600F699
 ```bash
 magnet:?xt=urn:btih:CCD7E99EF9E5B0E1979B8448F72DBDD8F9F3BF31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:CCD7E99EF9E5B0E1979B8448F72DBDD8F9F3BF31
 magnet:?xt=urn:btih:17AE5348BC29DFDD9F9315BEB45CB299F73E1A92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:17AE5348BC29DFDD9F9315BEB45CB299F73E1A92
 magnet:?xt=urn:btih:7EE67D761A645D9E44B789B9CAEFD05F3F64EB0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:7EE67D761A645D9E44B789B9CAEFD05F3F64EB0E
 ```bash
 magnet:?xt=urn:btih:C35301040FBE3BB78999D2FF6FB76EA7071CD2EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:C35301040FBE3BB78999D2FF6FB76EA7071CD2EA
 magnet:?xt=urn:btih:80C93B2E658A88E290132ADF92BC7E6D93AF9D53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:80C93B2E658A88E290132ADF92BC7E6D93AF9D53
 ```bash
 magnet:?xt=urn:btih:B79C9696B546099DEEA456E71613336FB4000364
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:B79C9696B546099DEEA456E71613336FB4000364
 magnet:?xt=urn:btih:5602D7B74B36FA8FE7415B0BFDE0C2E4E5FED4E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:5602D7B74B36FA8FE7415B0BFDE0C2E4E5FED4E7
 magnet:?xt=urn:btih:600EDE3CEA629C335D7335BDE6813BB5D6454DBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:600EDE3CEA629C335D7335BDE6813BB5D6454DBB
 ```bash
 magnet:?xt=urn:btih:D2C65808F608D7914A769499E84EF3866C9D6408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ Suzanne Vega - Flying with Angels (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Fol
 magnet:?xt=urn:btih:A9D2368EA84081300B019E02CB102EA158D13B00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ VA - Midnight Chills (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:F1B9AE09BAF5538803B63D1A7E9AD27A9E7CDEF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:F1B9AE09BAF5538803B63D1A7E9AD27A9E7CDEF1
 ```bash
 magnet:?xt=urn:btih:E93A21FB283B6C97991B560BCE987489EC9B5C64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ My Party Needs An Alchemist (2025) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:893581FD1E9D0CFF611117F6A26567C6425E9C62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ A Haunting Novel 2: Surfaced Secrets (2025) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:99BF12ED98A32416943C7FDC1EC0499B8F4FE7D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:99BF12ED98A32416943C7FDC1EC0499B8F4FE7D2
 magnet:?xt=urn:btih:7AC0F450C2C106E433445B761AF981EDD9B6F0B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:7AC0F450C2C106E433445B761AF981EDD9B6F0B3
 magnet:?xt=urn:btih:DB6D68B99FA3EBA64D182EEB62BD46C51DBC844F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:DB6D68B99FA3EBA64D182EEB62BD46C51DBC844F
 ```bash
 magnet:?xt=urn:btih:FAFBB4E7BE6FF07D989148F9AAC52D19730D3645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:FAFBB4E7BE6FF07D989148F9AAC52D19730D3645
 magnet:?xt=urn:btih:AC3DD59C09536E60DCD7A64659180607AD917401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:AC3DD59C09536E60DCD7A64659180607AD917401
 ```bash
 magnet:?xt=urn:btih:A622B7D76B48406678F7F582B0209F118FEDFCEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:A622B7D76B48406678F7F582B0209F118FEDFCEE
 magnet:?xt=urn:btih:E6D823E261F7019BD7967EDAEFCF928832AF5C59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:E6D823E261F7019BD7967EDAEFCF928832AF5C59
 magnet:?xt=urn:btih:9C85C3B21490CD75CB992ADD0D0D597E30A23FA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:9C85C3B21490CD75CB992ADD0D0D597E30A23FA9
 ```bash
 magnet:?xt=urn:btih:DC2E2BC944360A0AA12A1BF8B2975C274F0BE5F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ Iron Maiden - The First Ten Years I (1990) [MP3|320 Kbps] <Heavy Metal>
 magnet:?xt=urn:btih:8BC2213D9695A6000C1451BF80325F2D4592C664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ SimRail: The Railway Simulator (2023) [Ru/Multi] (build 18316498/dlc) Repack sel
 magnet:?xt=urn:btih:C9353F3FB3159C3340D4474E04C84520BF97EF88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:C9353F3FB3159C3340D4474E04C84520BF97EF88
 ```bash
 magnet:?xt=urn:btih:55479CE2EACE4F19BA0EAE74FDEE44AC285AAE1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

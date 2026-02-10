@@ -23,6 +23,8 @@ Zventa Sventana — российский музыкальный проект Т�
 magnet:?xt=urn:btih:49F554CE61C1C80EC79F605881517A0D81C07CB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:49F554CE61C1C80EC79F605881517A0D81C07CB7
 ```bash
 magnet:?xt=urn:btih:64BFFBCA2BD1CDC127F253699FCF735EB1C1A7B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Mancol - First Look (2024) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 magnet:?xt=urn:btih:3E84D1C7977744D973ED1C6A71086C8657F80B1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:3E84D1C7977744D973ED1C6A71086C8657F80B1C
 magnet:?xt=urn:btih:21DF9D906DB380F72A577ADCD36E20E6A0101CAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:21DF9D906DB380F72A577ADCD36E20E6A0101CAE
 ```bash
 magnet:?xt=urn:btih:181383798F5E1681B35DFCF914DA5AC697ECA6BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:181383798F5E1681B35DFCF914DA5AC697ECA6BF
 magnet:?xt=urn:btih:FCFBB66C19711950CB19E2426AF13C727F1FDA34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:FCFBB66C19711950CB19E2426AF13C727F1FDA34
 ```bash
 magnet:?xt=urn:btih:C776E8BC91DB7F39C99F45C2D06ABE324399C730
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:C776E8BC91DB7F39C99F45C2D06ABE324399C730
 magnet:?xt=urn:btih:C31FC90C0797BB2DC785CED1D5DFE7B601AF4AD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:C31FC90C0797BB2DC785CED1D5DFE7B601AF4AD4
 ```bash
 magnet:?xt=urn:btih:9D945E3BFCAD7D97A40A586BB3773377C6CBBB4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ Palo — это система служебных шрифтов из 72 сти�
 magnet:?xt=urn:btih:38EDB7433FC15BCCF6ECBA5982178B0FB38897DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ Dwarven Dungeon Environment с 102 уникальными сетками. Вкл
 magnet:?xt=urn:btih:52CB31689A25B69886E5AD63915D043444364C55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Old World - это историческая стратегия, в которо�
 ```bash
 magnet:?xt=urn:btih:F819F47CFAE810C0A9087DA7DFDE9315080F9020
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ Karen Cheryl - Étonnamment Romantique - Best Of (2025) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:7F12DA0D204D0FAB0E1E3340AD33033CDB9B7409
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:7F12DA0D204D0FAB0E1E3340AD33033CDB9B7409
 ```bash
 magnet:?xt=urn:btih:18BC5D8CB2B2BA578F233857F035C2FD3407DC36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:18BC5D8CB2B2BA578F233857F035C2FD3407DC36
 magnet:?xt=urn:btih:7E946346F5F1F01BABE9CCE35EFFAF9F5EAB8A68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:7E946346F5F1F01BABE9CCE35EFFAF9F5EAB8A68
 magnet:?xt=urn:btih:12AF4CD62B6C3BC772F953D1998BEBB614939F7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ magnet:?xt=urn:btih:12AF4CD62B6C3BC772F953D1998BEBB614939F7B
 magnet:?xt=urn:btih:FF3478A43D0B13C8BAEE7FD6FCE80915265E295F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ KORG - multi/poly native 1.0.3 Standalone, VSTi 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:3C69782745E3ACEA962D890DE4AE00A8129B75C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:3C69782745E3ACEA962D890DE4AE00A8129B75C7
 magnet:?xt=urn:btih:22FAFE178928C9CA0A61FBFF2C15B09B29AA7639
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:22FAFE178928C9CA0A61FBFF2C15B09B29AA7639
 ```bash
 magnet:?xt=urn:btih:70329F856F36786D31828F83B0D94A1D65CDF965
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ Eisbrecher - Kaltfront°! (2025) [FLAC|Lossless|image + .cue] <Hard Rock, Goth R
 magnet:?xt=urn:btih:AEF088C2C08D7E6ECB7037224C8B1C2441C15B8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:AEF088C2C08D7E6ECB7037224C8B1C2441C15B8A
 magnet:?xt=urn:btih:9A3A4CD4DCE555D96F228602B4302B5ADDF0460B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:9A3A4CD4DCE555D96F228602B4302B5ADDF0460B
 ```bash
 magnet:?xt=urn:btih:7874D20BBFC897B930F512382AF91E5122B442B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:7874D20BBFC897B930F512382AF91E5122B442B6
 magnet:?xt=urn:btih:4CA68126EF1A28A5EBC905D560C94DB74365D8EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ magnet:?xt=urn:btih:4CA68126EF1A28A5EBC905D560C94DB74365D8EE
 magnet:?xt=urn:btih:FC0668FD0AE968C01233DB54364A527EB8EEF242
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ magnet:?xt=urn:btih:FC0668FD0AE968C01233DB54364A527EB8EEF242
 ```bash
 magnet:?xt=urn:btih:AA812A881CC4AF3BFCDC28101C713F907CD680CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

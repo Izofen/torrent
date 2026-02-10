@@ -22,6 +22,8 @@ Ketha - 4 Albums (2012-2022) [MP3|320 Kbps] <Progressive Metal, Experimental>
 magnet:?xt=urn:btih:78A32740D9AA9E9E4776E1CFD058FFAF27FBB86F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Orden Ogan - Final Days (Orden Ogan and Friends) (2022) [MP3|320 Kbps] <Heavy Po
 ```bash
 magnet:?xt=urn:btih:B7B387611B05AC0D5946E1DBEBAF997C37FD70AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Ruby The Hatchet - Fear Is a Cruel Master (2022) [MP3|320 Kbps] <Heavy Rock, Sto
 magnet:?xt=urn:btih:56B4039031659775A8A52FA9AB859A967AABC223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Otus - Torch (2022) [MP3|320 Kbps] <Doom, Sludge Metal>
 magnet:?xt=urn:btih:504D97C1D2B88CCEF1B7097FF697FD7581A22C6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Avantasia - Mystery Of A Blood Red Rose (2015) Single [MP3|320 кб/с] <Power M
 ```bash
 magnet:?xt=urn:btih:FF82E5441D99A26C66B99354F27BF4620C3253F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Dream Evil - The Book of Heavy Metal (2004) Limited Special 2CD Edition / 2012, 
 magnet:?xt=urn:btih:27E87DDCCB7C4ECAB3BF9B33009B32E1E12F4632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Reb Beach - A View From The Inside (2020) [FLAC|Lossless|image + .cue] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:0A05116B426E7965B371D3DC08DE911805112C18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ Teleborian - Electric Fortunes (2021) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard
 magnet:?xt=urn:btih:1EE0D7CE5B8667C5A04372A6FD890B3A96A71A8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ Grand - Grand (2022) [MP3|320 Kbps] <Rock, AOR, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:49240D0B15F15FC732A7D2EC7863E768F218689E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ Bloody Hell - Bloody Hell (2015) [MP3|320 кб/с] <Heavy Metal>
 magnet:?xt=urn:btih:262B20340222D3E57FCB8FE8F0FCF8D447B84DFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ Eternal Idol - Renaissance (2020) [FLAC|Lossless|image + .cue] <Symphonic Power 
 ```bash
 magnet:?xt=urn:btih:775563EABC92868B607B9D042FC473D4C5F2D75E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ Black Space Riders - We Have Been Here Before (2022) [MP3|320 Kbps] <Psych, Spac
 magnet:?xt=urn:btih:8BC98D1F61A9B144C9EDDDD7B88ACC1ECB6079EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ magnet:?xt=urn:btih:8BC98D1F61A9B144C9EDDDD7B88ACC1ECB6079EE
 ```bash
 magnet:?xt=urn:btih:EDEB73AD524CB7C65C413637098242D4247411FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ The End At The Beginning - 3 Albums (2014-2022) [MP3|320 Kbps] <Progressive Meta
 magnet:?xt=urn:btih:6A1304BE9A717D049D554AD20C4B626F47281532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ Snakeskin Boozeband - Open For Boozeness (2021) [FLAC|Lossless|WEB-DL|tracks] <H
 ```bash
 magnet:?xt=urn:btih:51E9AB646E56629C0218B4FEB2D79ECF57AB292B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ magnet:?xt=urn:btih:51E9AB646E56629C0218B4FEB2D79ECF57AB292B
 magnet:?xt=urn:btih:BD956F68671F2853AF8AAF05D59B1C91A862A33B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ Avatarium - Death, Where Is Your Sting (2022) [MP3|320 Kbps] <Heavy Psychedelic,
 ```bash
 magnet:?xt=urn:btih:81142B52A7A2C827CC47D1D3C2C50D9F30CF9F0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ Beto Vazquez Infinity - Mental Asylum (2021) [FLAC|Lossless|WEB-DL|tracks] <Symp
 magnet:?xt=urn:btih:0D9E178315A824182D1848C290C76AD6C6718386
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ Comedy of Errors - 5 Albums (2011-2022) [MP3|320 Kbps] <Progressive Rock, Neo-Pr
 ```bash
 magnet:?xt=urn:btih:BE2E5AF0A89A468AF2BF3C6AB3451BCD4B21A9AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ CABAL - Magno Interitus (2022) [MP3|320 Kbps] <Deathcore / Downtempo>
 magnet:?xt=urn:btih:647FA1B2BCA593080F9C5A1DF56BBBBF2E838ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ O.R.k. - Screamnasium (2022) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:216EF89AD11DE73ABAEED669E9CDD2A144D0E701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ Scarcrow - The Plague Parade (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:9A98AAFB29E974861F63B312E61BBD81A257725D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ Stereo Mammoth - EGO (2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Psych>
 ```bash
 magnet:?xt=urn:btih:BD70AB7B442BBA27F5CFE250839C800FA3887E70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +686,8 @@ Cassius King - Dread the Dawn (2022) [MP3|320 Kbps] <Doom Metal, Stoner>
 magnet:?xt=urn:btih:761DF4E04C0B4F63D24C79F35F1FDD84C0634DB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ Stryper - The Final Battle (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 magnet:?xt=urn:btih:56A187415BEC5FFB6BF548FD91588D334400441B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ The New Roses - Sweet Poison (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:FFEE5D344E12A0A8D8A9DFF116B5872E2483D192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

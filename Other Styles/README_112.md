@@ -22,6 +22,8 @@ Daniel Pemberton - The Counselor / Советник (Original Motion Picture Sou
 magnet:?xt=urn:btih:82825B6BD5A90B07E80AA40F81EA5CDD897F283D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ magnet:?xt=urn:btih:82825B6BD5A90B07E80AA40F81EA5CDD897F283D
 ```bash
 magnet:?xt=urn:btih:7352C806CBFA3DACB475AB64EEB108F76AD18669
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -88,6 +92,8 @@ Keiko Matsui - Hidamari No Ki (2000) [FLAC|Lossless]<Score, Smooth Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +125,8 @@ Lynn Wright - Total Meditation (2011) [MP3|320 кб/с]<Meditative>
 magnet:?xt=urn:btih:14861CBBB3EFDF314C4873B598B11BC6AFDEB680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +153,8 @@ Lab Report ‎ - Terminal (Original Soundtrack) (1995) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:57D910D00F668A58A6169F645DB4FE06F6B30EAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +183,8 @@ Martin Iveson - Fighting Force 2 (1999) [MP3|320 кб/с]<Score>
 magnet:?xt=urn:btih:7B458B4B9455B67E35C5BE408305802B441C49C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +211,8 @@ Bear McCreary - God of War (2018) [MP3|320 Kbps] <Score>
 ```bash
 magnet:?xt=urn:btih:E1C2C6BC63D5A74940DA71F5B17CB8F289639621
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +241,8 @@ VA - Thunderbolts and Rain Amazing Sounds of Mother Earth for Deep Meditation (2
 magnet:?xt=urn:btih:F73128EC7B329F41B6546267F2C23AC13AF34B57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +269,8 @@ Joseph Nimoh - Reflections (2018) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:365CCB82FCB7EF123BDDF314B8A611A833C46B87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +299,8 @@ Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HB
 magnet:?xt=urn:btih:7101CA02016DD1847B669C6C0C30593D1BB7533B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +327,8 @@ Ramin Djawadi - Game of Thrones / Игра престолов (Music from the HB
 ```bash
 magnet:?xt=urn:btih:D10725D38322E3AD69192FED5D4E3805D108EE2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +357,8 @@ Ivan Torrent - Immortalys (2017) [FLAC|Lossless|WEB-DL|24/44.1-88.2 kHz] <Traile
 magnet:?xt=urn:btih:9D2E5F971A5956C0A06C21D70C37EEE582C6E955
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +385,8 @@ Ivan Torrent - Reverie: The Compilation Album (2014) [FLAC|Lossless|WEB-DL|24/48
 ```bash
 magnet:?xt=urn:btih:4C117A92FBAA6718397752E541521B1377EB8D9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +415,8 @@ Marcin Przybylowicz & PERCIVAL - The Witcher 3 Wild Hunt (Pre-Order EP Soundtrac
 magnet:?xt=urn:btih:D7439BB4843F01355432FCF374C93E6B7C4C7254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +443,8 @@ VSOP (Vienna Symphonic Orchestra Project) - Symphonic Rock (1987) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:EEB525550068BA2AB63AADDF552899996B45C99C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +473,8 @@ VSOP (Vienna Symphonic Orchestra Project) - Classic & Rock - Die Neue Dimension 
 magnet:?xt=urn:btih:268056C2E40119C7AFEE78C1B14EFE2EC9D48181
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +501,8 @@ VSOP - Vienna Symphonic Orchestra Project (1986) [FLAC|Lossless|image + .cue] <I
 ```bash
 magnet:?xt=urn:btih:2D6B40AB761E450F541AC3E363C7F8CD6574474A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +531,8 @@ VSOP (Vienna Symphonic Orchestra Project) - Classic Meets Pop (1989) [FLAC|Lossl
 magnet:?xt=urn:btih:31A72142843CFD029653773E743E02C4A076F258
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +559,8 @@ VA - The Buddy Holly Story (1978) 2020 / Original Motion Picture Soundtrack / De
 ```bash
 magnet:?xt=urn:btih:F4BA1B9353C5123262AC56298282A643762F1DD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +589,8 @@ The Way Down Wanderers - illusions (2019) [FLAC|Lossless|tracks + .cue] <Country
 magnet:?xt=urn:btih:CAA1C180C41F51F4DA912CEE6BF4B417B38DC9AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +617,8 @@ Lula Wiles - What Will We Do (2019) [FLAC|Lossless|WEB-DL|tracks] <American Folk
 ```bash
 magnet:?xt=urn:btih:8CB2E14EDF44744F8DC93D4ABB60FB9B8483850E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +647,8 @@ Elevation - Days of Elijah (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instru
 magnet:?xt=urn:btih:E5DC46791D4C435EB5A9A8570194D7FA20FB7AEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +675,8 @@ Daniel Pemberton - The Counselor / Советник (Original Motion Picture Sou
 ```bash
 magnet:?xt=urn:btih:AA32286E111E232B34316E2BADAB5967CFDDC787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +705,8 @@ Harry Gregson-Williams - The Zookeeper's Wife / Жена смотрителя з
 magnet:?xt=urn:btih:38D4570EEBC430DCE287B246590BF4EF80B56C17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,6 +734,8 @@ Danny Bensi & Saunder Jurriaans - LA 92 / Лос-Анджелес 92 (Original N
 magnet:?xt=urn:btih:34F47BBC62A329F1B58C31CDCBF9884953E1EF40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -712,6 +762,8 @@ VA - Los clasicos argentinos - Tango - Vol.18 - Horacio Salgan: La magia de un c
 ```bash
 magnet:?xt=urn:btih:719A77F031D273B5A355BB12F9820E32B2C76EC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

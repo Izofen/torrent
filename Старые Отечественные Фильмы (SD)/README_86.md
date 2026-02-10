@@ -1,3 +1,29 @@
+###  Публикация: 1442625   (1036234) от 26.01.2021
+
+Восточный дантист (1982) SATRip [H.264] (серии 1-2 из 2)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1036234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм «Восточный дантист» снят армянскими кинематографистами в 1982 году. В основу комедийной музыкальной экранизации положена одноименная пьеса писателя Акопа Пароняна. Действие разворачивается в городе Константинополе в конце XIX века. Тапарникос – главный герой этой истории всеми уважаемый армянский дантист. В свое время его финансовые дела шли неважно, пришлось (   Читать дальше...   )Производство: СССР, АрменфильмЖанр: Комедия, мюзикл, семейное киноРежиссер: Эрнест МартиросянАктеры: Александр Ширвиндт, Ивета Бабурян, Карп Хачванкян, Татевик Капланян, Амаяк Акопян, Евгений Герчаков, М. Шантурян, Люсина Мартироссян, Анаит Топчян, Генрих АлавердянСубтитры: ОтсутствуютПродолжительность: 02:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9889B360AE8EE0D64466C84A2535F23F41C6DEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 382859   (1036785) от 24.01.2021
 
 Что-то с телефоном (1979) TVRip
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:64776D04BBAA431395967124330E56D3A17DD3AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:64776D04BBAA431395967124330E56D3A17DD3AF
 magnet:?xt=urn:btih:6096B591DE2A8661992E32626FA6529C4C940609
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:6096B591DE2A8661992E32626FA6529C4C940609
 ```bash
 magnet:?xt=urn:btih:0A700B8766E29D3C02DC6444A63D1BD18013A3CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:0A700B8766E29D3C02DC6444A63D1BD18013A3CB
 magnet:?xt=urn:btih:8626FFA1D40550391B083B1C8221440C54563E97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:8626FFA1D40550391B083B1C8221440C54563E97
 ```bash
 magnet:?xt=urn:btih:A3CA591EF6634A03AF89B6B1E8B19EB885D37561
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:A3CA591EF6634A03AF89B6B1E8B19EB885D37561
 magnet:?xt=urn:btih:3EDCE58A1DFFB30B96D87FD419DB6C578EA04AE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:3EDCE58A1DFFB30B96D87FD419DB6C578EA04AE5
 magnet:?xt=urn:btih:1D963B4DB82C2EFAA9222C782022A06FA29EC985
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:1D963B4DB82C2EFAA9222C782022A06FA29EC985
 ```bash
 magnet:?xt=urn:btih:4F61BA676CA0CE07558EE1F76B7C398BC7C6D2F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:4F61BA676CA0CE07558EE1F76B7C398BC7C6D2F1
 magnet:?xt=urn:btih:C84B66F1C4FFCA8368FC750721D5469F740B2AEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:C84B66F1C4FFCA8368FC750721D5469F740B2AEF
 ```bash
 magnet:?xt=urn:btih:5E8D26DA01BCF8662652CDBB0EF219B58BD4F714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:5E8D26DA01BCF8662652CDBB0EF219B58BD4F714
 magnet:?xt=urn:btih:E83DF5EDD023C58BD1BC4AA30F0184C30C3C1D55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:E83DF5EDD023C58BD1BC4AA30F0184C30C3C1D55
 ```bash
 magnet:?xt=urn:btih:14ABFEBCDD712F7869A47F82FB0AB3B16CADE24A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:14ABFEBCDD712F7869A47F82FB0AB3B16CADE24A
 magnet:?xt=urn:btih:78B6C3BBF0F3AB6C2B5021456D963A4D0F29BFC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:78B6C3BBF0F3AB6C2B5021456D963A4D0F29BFC9
 ```bash
 magnet:?xt=urn:btih:AC9BE4BE53D8CE6C081A9FDE679A23A5752FEFDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:AC9BE4BE53D8CE6C081A9FDE679A23A5752FEFDD
 magnet:?xt=urn:btih:A6A3D60805459967BD8EC1D8FAEC98C08B874535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:A6A3D60805459967BD8EC1D8FAEC98C08B874535
 magnet:?xt=urn:btih:E2B7AAD6E666FFA05D160B1EDB8B71E356BEEC7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:E2B7AAD6E666FFA05D160B1EDB8B71E356BEEC7E
 ```bash
 magnet:?xt=urn:btih:883061C2716C7FAD75BC6D45A1D8C98CA7016B77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:883061C2716C7FAD75BC6D45A1D8C98CA7016B77
 magnet:?xt=urn:btih:2E9197543620D70BC657D317874B0887E1FF7E0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:2E9197543620D70BC657D317874B0887E1FF7E0A
 ```bash
 magnet:?xt=urn:btih:EED2C0F71F9F8093BD9E0ACC1AF8940C7B1E4B68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:EED2C0F71F9F8093BD9E0ACC1AF8940C7B1E4B68
 magnet:?xt=urn:btih:DDE69AECDFAA8B996511836AD783C14A0A785CFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:DDE69AECDFAA8B996511836AD783C14A0A785CFB
 ```bash
 magnet:?xt=urn:btih:80F5323656E6FC91A24871E5720656C6617FDEF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:80F5323656E6FC91A24871E5720656C6617FDEF2
 magnet:?xt=urn:btih:529E7F86C32B92E42ABA5362801FDE0D78528C3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:529E7F86C32B92E42ABA5362801FDE0D78528C3D
 magnet:?xt=urn:btih:7244A0CECDFDB538A098933F6B0DB19AC84CAAF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:7244A0CECDFDB538A098933F6B0DB19AC84CAAF0
 ```bash
 magnet:?xt=urn:btih:8B05409473FDD25D536F110A47B0EAA867315059
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:8B05409473FDD25D536F110A47B0EAA867315059
 magnet:?xt=urn:btih:FE67D01891E5CE6FDEFACBEB07F138D7FE90EEE9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843669   (1049564) от 21.12.2025
-
-Бакенбарды (1990) DVDRemux
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1049564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Перестройка в разгаре. В уездном городе Заборске нет житья от распоясавшихся молодежных группировок. И тут в городок из Ленинграда приезжают два человека с бакенбардами, в макинтошах и котелках. Люди с тросточками и в крылатках решают вернуть российской глубинке первозданную духовность. Они цитируют Пушкина, прекрасно умеют постоять за себя при помощи трости и твердо (   Читать дальше...   )Производство: СССР, Голос, ЛенфильмЖанр: КомедияРежиссер: Юрий МаминАктеры: Виктор Сухоруков, Александр Медведев, Артур Ваха, Владлен Бирюков, Александр Лыков, О. Алабышева, О. Самарина, Анатолий Журавлев, Юрий Мамин, Елена РуфановаСубтитры: отсутствуютПродолжительность: 01:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC05D896B6840450E3CA3BD755B5D36D97BF2410
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

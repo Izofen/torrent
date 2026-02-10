@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:0088C7AE3A906523B3C6F46A02FFC45CD4767FBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Hall of Misery - Reverence to Nothing (2023) [FLAC|Lossless|WEB-DL|tracks] <Deat
 ```bash
 magnet:?xt=urn:btih:03FA8271F3C2D2341FD41DBA8BDD5DA4007BB7AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - If You Love Her - Easy Acoustic (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:D31DE28F3F28EF1BBB14EFC8BFFA32A402CB1A3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Araxis Merge – это обязательное приложение для р�
 magnet:?xt=urn:btih:72D6EBBC82B76DA9048584BCAB40BE958F14104D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:72D6EBBC82B76DA9048584BCAB40BE958F14104D
 magnet:?xt=urn:btih:D0D07CB399647590F99888A5FC347C527D6A8367
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:D0D07CB399647590F99888A5FC347C527D6A8367
 ```bash
 magnet:?xt=urn:btih:D68CEA21EC876F1E10C2B24AC49D92C37BC23B94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:D68CEA21EC876F1E10C2B24AC49D92C37BC23B94
 magnet:?xt=urn:btih:6CB4E31A818773AD3A0E770E3E3FB933DC14EB8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Graveyard of Souls - Pequeños Fragmentos de Tiempo Congelado (2017) [FLAC|Lossl
 magnet:?xt=urn:btih:CFD0C0CDB1F0537FBBA8C0C0E1E9BED56D961E3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Udemy, Денис Фадеев | Программирование игр для 
 magnet:?xt=urn:btih:A091677C0450901307B9376ACC9FB493785C053E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ MWeb поддерживает расширенный синтаксис Github: 
 ```bash
 magnet:?xt=urn:btih:21ACCFB372CEF626B80E49601902403586A14A70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ Dwell In Doom - Songs from the Deadland (2022) [FLAC|Lossless|WEB-DL|tracks] <Do
 magnet:?xt=urn:btih:B036712467E67BDA2282C4EE912E7FB499EAD6C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ Discovery: Идеальный путеводитель: Змеи / The Ultimate 
 ```bash
 magnet:?xt=urn:btih:6B135905315CE73ED529D8B09FA8CEE39C80FB0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ NIUBI Partition Editor (Repack & Portable) – программа для про�
 magnet:?xt=urn:btih:FD11518728CD0B6991DAB2C3532B7E955BCE7124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ BusyContacts приносит в управление контактами те 
 ```bash
 magnet:?xt=urn:btih:BE95F54BA51D151C73D0F3F12CFF2F71C55BC614
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ Discovery: Высадка союзников - цветная съемка / D-d
 magnet:?xt=urn:btih:4EE07CA4391A177345BD902E717C9180476E9821
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ Texifier — это редактор LaTeX, предназначенный дл�
 ```bash
 magnet:?xt=urn:btih:2D03647DF4BA70CD66BBBECB72FC79658507E01D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ VA - Rock part  12 Compilation (2022) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:B911AD68918D0639737A12FD9A352DFAADD0FBBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ Revo Uninstaller Pro 5.0.8 Portable by 7997 [Multi/Ru]
 magnet:?xt=urn:btih:10A60EC24B3624EC18578938FE28E5E9E2020F92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:10A60EC24B3624EC18578938FE28E5E9E2020F92
 ```bash
 magnet:?xt=urn:btih:7D9ADA9EC9B8807812918CFEEEFC8B87BFAB85BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ Marked 2 — универсальный превью-инструмент для
 magnet:?xt=urn:btih:C0ED9F7D18A2049AFCA3520F793035A24B1F8D8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ Screen Wonders 2.1.9 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EC10A4002B6FFB4C21BE8342562537190911BE1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:EC10A4002B6FFB4C21BE8342562537190911BE1B
 magnet:?xt=urn:btih:1A38113C11B6389F702711233C8939747A3B7D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ Milo Yip | A Study Path for Game Programmer / Путь разработчика 
 ```bash
 magnet:?xt=urn:btih:AEDADD2339562E0CF1C2C8FFF918B5B0EF626A8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:AEDADD2339562E0CF1C2C8FFF918B5B0EF626A8B
 magnet:?xt=urn:btih:935E19FA72581DFAF28C9B231928E89C0C568E98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:935E19FA72581DFAF28C9B231928E89C0C568E98
 ```bash
 magnet:?xt=urn:btih:9C05ECEC1205B65375DF3374A926E266F3A569F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:9C05ECEC1205B65375DF3374A926E266F3A569F9
 ```bash
 magnet:?xt=urn:btih:49D66DBF21EC09DCAACE456584E32A94E69DADAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

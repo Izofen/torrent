@@ -1,3 +1,29 @@
+###  Публикация: 1619890   (1032563) от 18.03.2023
+
+Вячеслав Невинный. Талант и 33 несчастья (2018) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роли второго плана, которые сыграл Вячеслав Невинный, были настолько яркими, что затмевали главных героев картин. Каждое появление этого фонтанирующего жизнью человека на экране было сюрпризом для зрителей и вызывало ощущение детской радости. Но судьба будто взимала за это плату с артиста. Как он расплачивался за успех?...Производство: Россия, ООО "Вива-Вита Фильм"Жанр: документальный, биография, история, кинематографРежиссер: Марина ИсаеваЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0D540F0A4347016D5EB132C4064CDFE8B8D46C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619927   (1032583) от 18.03.2023
 
 Главная дорога (18.03.2023) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:83BCD5D2ABA78F0D96EB50BC837FEA6DDD668869
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:83BCD5D2ABA78F0D96EB50BC837FEA6DDD668869
 magnet:?xt=urn:btih:AF5611019F02D3D3C20E1F6858B0D79FC1A2E9D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:AF5611019F02D3D3C20E1F6858B0D79FC1A2E9D1
 ```bash
 magnet:?xt=urn:btih:85F9D7110C2D1DA5D074541772E3153BD38CF5E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:85F9D7110C2D1DA5D074541772E3153BD38CF5E7
 magnet:?xt=urn:btih:27B07B7937E9A2A59E39A5022DB1E95A1291FB1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:27B07B7937E9A2A59E39A5022DB1E95A1291FB1C
 ```bash
 magnet:?xt=urn:btih:1DA5D3638520D90AF74D20582C4DEE28FE9CAAD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:1DA5D3638520D90AF74D20582C4DEE28FE9CAAD8
 magnet:?xt=urn:btih:2828A357EB2B3E88ABCA06DC91462850D80BE758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:2828A357EB2B3E88ABCA06DC91462850D80BE758
 ```bash
 magnet:?xt=urn:btih:47DE4881756A7EE5FCBD1A8C1607BD1AE56F4758
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:47DE4881756A7EE5FCBD1A8C1607BD1AE56F4758
 magnet:?xt=urn:btih:3656A0949C7E83596762E15C281751EE7803B808
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:3656A0949C7E83596762E15C281751EE7803B808
 ```bash
 magnet:?xt=urn:btih:273602B763BC8F26FC3AD63EE2F057B824FDB9FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:273602B763BC8F26FC3AD63EE2F057B824FDB9FB
 magnet:?xt=urn:btih:3D0E4B9E900D66294FFD826D8D003773006370F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:3D0E4B9E900D66294FFD826D8D003773006370F4
 ```bash
 magnet:?xt=urn:btih:4A256D3BFDEA60CF535C7EBB791693B841661581
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:4A256D3BFDEA60CF535C7EBB791693B841661581
 magnet:?xt=urn:btih:1C98FE8F63479CE00AD5227BBF6E3FD99948A293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:1C98FE8F63479CE00AD5227BBF6E3FD99948A293
 ```bash
 magnet:?xt=urn:btih:2CC61A868C3D2BBF6217969D48B45C7AC3EFBD3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:2CC61A868C3D2BBF6217969D48B45C7AC3EFBD3D
 magnet:?xt=urn:btih:9EE8849FF1FD71DBA69FD89342662E8BAFED6EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:9EE8849FF1FD71DBA69FD89342662E8BAFED6EDC
 ```bash
 magnet:?xt=urn:btih:D9FA9A369DFDBC8788595B9B0E01766886E577C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:D9FA9A369DFDBC8788595B9B0E01766886E577C0
 magnet:?xt=urn:btih:C52E4772B6FBAE63EE64D4306B96FD60A4D52140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +460,8 @@ magnet:?xt=urn:btih:C52E4772B6FBAE63EE64D4306B96FD60A4D52140
 ```bash
 magnet:?xt=urn:btih:42438CC2F1F3FED001B5C1F0202262EC4E76E4CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:42438CC2F1F3FED001B5C1F0202262EC4E76E4CA
 magnet:?xt=urn:btih:34B81594EAF02756E4B091CE857DCAD3A02558F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +512,8 @@ magnet:?xt=urn:btih:34B81594EAF02756E4B091CE857DCAD3A02558F3
 ```bash
 magnet:?xt=urn:btih:BDC4BF24BC319A83EFB5F83F5CC3807E41D27C0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:BDC4BF24BC319A83EFB5F83F5CC3807E41D27C0B
 magnet:?xt=urn:btih:CA7ABB2B58139121035B821BDBF1538AF11F5118
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +564,8 @@ magnet:?xt=urn:btih:CA7ABB2B58139121035B821BDBF1538AF11F5118
 ```bash
 magnet:?xt=urn:btih:A2C1774E45C800CF45BF8526BA7687C20D020CC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:A2C1774E45C800CF45BF8526BA7687C20D020CC0
 magnet:?xt=urn:btih:E2F5BDD8AD84E2D6CDBB9AD10A2E8F9709A42079
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +617,8 @@ magnet:?xt=urn:btih:E2F5BDD8AD84E2D6CDBB9AD10A2E8F9709A42079
 magnet:?xt=urn:btih:6C43C30B21314D7D89B35AE9F47F5B4C9DC45821
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +642,8 @@ magnet:?xt=urn:btih:6C43C30B21314D7D89B35AE9F47F5B4C9DC45821
 ```bash
 magnet:?xt=urn:btih:447783F053ACD31EB5C0AE1CA1A562E4F337A12D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,29 +670,7 @@ magnet:?xt=urn:btih:447783F053ACD31EB5C0AE1CA1A562E4F337A12D
 magnet:?xt=urn:btih:713EA93F223A158685413FBF55059809642A82F0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445222   (1033725) от 05.02.2021
-
-Вечные Помпеи / Unsterbliches Pompeji / Eternal Pompeii (2019) HDTVRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1033725.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этот день произошла одна из самых известных катастроф в истории человечества - в 79 году н.э. римский порт Помпеи был погребён под пеплом вулкана Везувия, а многие жители погибли. Здесь идеально сохранился слепок древнеримской жизни. Город стал символом целой эпохи, но его история не заканчивается ужасной гибелью. Мы узнаем, что случилось после того страшного извержения (   Читать дальше...   )Производство: Германия / Doc.station MedienproduktionЖанр: Документальный, ИсторияРежиссер: Sabine BierПеревод: Одноголосый профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAF6AE5DA2E2C5BBCB1D68668066F64FF170C2DA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Clifford Curzon, Budapest Strig Quartet - Brahms - Piano Quintet in F minor. Dvo
 magnet:?xt=urn:btih:0E5EECDDCAF9B83DE1FAB4EAF24EE4B2C6DB4957
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Sarah Alainn - Anima (2017) [FLAC|Lossless|tracks] <Classical Crossover>
 ```bash
 magnet:?xt=urn:btih:13420320A409595857318A8980F30E2EF810C6CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Alexander Scriabin (1872-1915)
 magnet:?xt=urn:btih:875D1C738493E833655BB31D8B18CF5B7F635925
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ The London Orion Orchestra - Pink Floyd's Wish You Were Here Symphonic (2016) [F
 ```bash
 magnet:?xt=urn:btih:F33F04B97FA43814C94FC87640B7D49F6BA43E51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Magical World Of Melodies. Orchestral Highlights. (1995), 3CD [FLAC|Lossles
 magnet:?xt=urn:btih:C52F6EC65B856997335707CAD1057AA52BDA1EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Nikolaus Harnoncourt Chamber Orchestra of Europe - Dvorak - Slavonic Dances (200
 ```bash
 magnet:?xt=urn:btih:B32D738187A72EA6A5DAAF4B524CE6752D948C8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Vangelis - Juno to Jupiter (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Modern-Classic
 magnet:?xt=urn:btih:67BD5A97B5BDB3F21EAE1097AA75022DECD6AC9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - The Most Popular Classical Music In The World...Ever! (2008) 6CD, Compilati
 ```bash
 magnet:?xt=urn:btih:1FFBD37386EBC159D4BE8226FABE209AE1CC16E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Chopin - 51 Mazurkas (Arthur Rubinstein) (1999) [FLAC|Lossless|tracks] <classica
 magnet:?xt=urn:btih:4CEF67FDE5094D24782FACEA1B02033D6EF8DB81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Royal Philharmonic Orchestra, Massimo Freccia
 ```bash
 magnet:?xt=urn:btih:D9590CBFFFD54354FF1152F4BD820689593CDC6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Teresa Berganza, Plácido Domingo, London Symphony Orchestra - Georges Bizet: Ca
 magnet:?xt=urn:btih:419D1D4C5FAB06311FE53612EEE78ECFDBE100EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Annie Moses Band - The Art Of The Love Song (2016) [MP3|320 кб/с] <Classical 
 ```bash
 magnet:?xt=urn:btih:3D3ADF5F3B8E846013C598875D65CA4811661F67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Wiener Philharmoniker - Highlights From Mozart's Figaro (2007) [FLAC|Lossless|im
 magnet:?xt=urn:btih:7B366F078C61F24838764C2C34B3F2603FFE982C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Daigo Hanada - Ichiru (2017) [FLAC|Lossless|tracks] <Classical,Ambient>
 ```bash
 magnet:?xt=urn:btih:F2438E559B8493DE7BA9B033C6F15196578455E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Aria with 30 Variations "Goldberg Variations" BWV 988
 magnet:?xt=urn:btih:49CE93B4AB4869D3F6A7F50B6A632BA0BD4030B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:C58F980DDAB420F7E3A9FF5B3C0D3441622E002D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Chopin - 4 Ballades, Prelude, 4 Scherzi (Ashkenazy) (2000) [MP3|320 кб/с] <Cl
 magnet:?xt=urn:btih:83C201F71A3D2D264BC6DD8F0C3261672AD95BE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Stefan Obermaier - Beethoven Reloaded (2008) [FLAC|Lossless|image + .cue] <Elect
 ```bash
 magnet:?xt=urn:btih:2F8E40861E3AFE9D889D4C651F32AD5DAD68EDFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Wolfgang Amadeus Mozart Hermitage String Trio 03:41
 magnet:?xt=urn:btih:4E1A6E756AADDD5C0848206977207D993E5F9C54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Emil Gilels, Shopin, Poulenc - Recitals in Moscow, Vol. 1 (Live) (1962) 2004, М
 ```bash
 magnet:?xt=urn:btih:D27960D52D111DF23C02B59CCD0605982891055D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Sonata for violin & continuo in C minor
 magnet:?xt=urn:btih:369818704F49F58409979D8CF9A24C2375F411A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Chopin - 4 Ballades, Prelude, 4 Scherzi (Ashkenazy) (2000) [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:608B83D840200BAE6750B5C1BD98672F9BD6011E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Sonata for violin & continuo in C minor
 magnet:?xt=urn:btih:23300C70F29327C4CB224BC2FC89C7A6DB8DBFDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Concerto in G major, RV443
 ```bash
 magnet:?xt=urn:btih:C4D2480F764C44CD08FE5B7F287B5ECFF5520D24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ magnet:?xt=urn:btih:C4D2480F764C44CD08FE5B7F287B5ECFF5520D24
 magnet:?xt=urn:btih:F2418F6AA2CE7C5DAA115EC8162EB6D11152C8D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Images Book I (1905) L105
 ```bash
 magnet:?xt=urn:btih:A3D10338304E712201B45CBC28E94E7D3CFF0AE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

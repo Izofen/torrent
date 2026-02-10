@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Dalida - 40 Succes En Or (1956 - 1997) 2CD [FLAC|Lossless]<Chanson>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Dalida - 40 Succes En Or (1956 - 1997) 2CD [FLAC|Lossless]<Chanson>
 ```bash
 magnet:?xt=urn:btih:F8BDA99B43F7C6F6472ADC63C702A740BB4C952A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:F8BDA99B43F7C6F6472ADC63C702A740BB4C952A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:F8BDA99B43F7C6F6472ADC63C702A740BB4C952A
 ```bash
 magnet:?xt=urn:btih:7B5D7EA66A9BBC5BD8A5DBA39746397FA4B5026A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Snark Busters: High Society / Охотники за Снарком 3. Высше
 magnet:?xt=urn:btih:414365290C5FF231EC94557269C8EC827D8CAD8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:414365290C5FF231EC94557269C8EC827D8CAD8D
 ```bash
 magnet:?xt=urn:btih:6C05E15EE348622D0685D6040B380529F186C1E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Live Novels. Jane Austen's: Pride And Prejudice / Джейн Остин. Гор�
 magnet:?xt=urn:btih:79E298C2D7CA6C063B2C4F0861BFE66C93884DDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:79E298C2D7CA6C063B2C4F0861BFE66C93884DDF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:79E298C2D7CA6C063B2C4F0861BFE66C93884DDF
 magnet:?xt=urn:btih:4AE78A46029EA709A00D1669F443399AB8099300
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ NG: Секретные материалы древности. Туринская
 ```bash
 magnet:?xt=urn:btih:3F26DD35F00F853773045F6C167BDC6CBE9B3155
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ King Crimson - The 21st Century Guide To King Crimson: Volume One (1969-1974) & 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ NCIS: Los Angeles — драма о сложной работе — наблюд
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ Solar Fields - 11 Альбомов (2001-2012)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ Solar Fields - 11 Альбомов (2001-2012)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ Solar Fields - 11 Альбомов (2001-2012)
 magnet:?xt=urn:btih:64A6C4A2BC7D889B43A3603B5AC6A595ADFF95EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:64A6C4A2BC7D889B43A3603B5AC6A595ADFF95EF
 ```bash
 magnet:?xt=urn:btih:60D840A68AA7D43ADD1D4492D90DDE300F8CDE26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:60D840A68AA7D43ADD1D4492D90DDE300F8CDE26
 magnet:?xt=urn:btih:A5CACB0BF686D5DFE1CB11908DB8C47EDE638716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:A5CACB0BF686D5DFE1CB11908DB8C47EDE638716
 ```bash
 magnet:?xt=urn:btih:B38ACA2DD64D57642C71788C4DD1489308789895
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +547,8 @@ Skrillex и Дэмиан Марли, младший сын Боба Марли, 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +583,8 @@ The Millennium Collection - The Best Pop Music Of The 20th Century (1950-1998 20
 magnet:?xt=urn:btih:0F33B83391209D011945CB6A19A22128CE6E45B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +608,8 @@ magnet:?xt=urn:btih:0F33B83391209D011945CB6A19A22128CE6E45B4
 ```bash
 magnet:?xt=urn:btih:C37AEA3664C12AC5B983F0943E527D8DF271B2F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +635,8 @@ magnet:?xt=urn:btih:C37AEA3664C12AC5B983F0943E527D8DF271B2F1
 magnet:?xt=urn:btih:8B5D29894F08E035D10E480890FF00424EC548A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +661,8 @@ magnet:?xt=urn:btih:8B5D29894F08E035D10E480890FF00424EC548A9
 magnet:?xt=urn:btih:F0150154E48538D3A6E94F1A400E4B2D9DE5116B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +686,8 @@ magnet:?xt=urn:btih:F0150154E48538D3A6E94F1A400E4B2D9DE5116B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +714,8 @@ magnet:?xt=urn:btih:F0150154E48538D3A6E94F1A400E4B2D9DE5116B
 ```bash
 magnet:?xt=urn:btih:1270DE4BD9F9C9C47150B97549866E7D135E739A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1318743   (492848) от 07.08.2019
+
+Архиепископ Охридский и митрополит Скопский Иоанн (Вранишковский) | Свободен в неволе (2012) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Македония - это страна, где гонения на Православие - официальная государственная политика. С византийских времён прославленная своими обителями древняя земля, в последние шестьдесят лет подверглась особым испытаниям. Бывшая Югославская Республика являет собой печальный пример эксперимента над народом: националисты, считающие, что «у отдельного народа должна быть (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8732D3E92B95824CD6504E4AF66A2D074175C54D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404427   (492892) от 25.08.2020
 
 Павел Федоренко, Илья Качай | Без антидепрессантов! Избавься от стресса, тревоги и паники. «Включай» отличное настроение (2020) [PDF]
@@ -22,6 +48,8 @@
 magnet:?xt=urn:btih:64DD4DCB52D90FC44DE6CC71B68C452F2CCEC7A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:64DD4DCB52D90FC44DE6CC71B68C452F2CCEC7A8
 ```bash
 magnet:?xt=urn:btih:5B0B248A1E3D6E28EFA7ECE0DC4B0ACFB297BA97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:5B0B248A1E3D6E28EFA7ECE0DC4B0ACFB297BA97
 magnet:?xt=urn:btih:02CDB1706A1B3773AAEF4298E862A1D2AA4B5E41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:02CDB1706A1B3773AAEF4298E862A1D2AA4B5E41
 magnet:?xt=urn:btih:4CE8A753018B8B0D493A39D8A0513FDD155B4B7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:4CE8A753018B8B0D493A39D8A0513FDD155B4B7E
 ```bash
 magnet:?xt=urn:btih:EE1546DFFEC11FE636819E184AC1F0358B6340A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:EE1546DFFEC11FE636819E184AC1F0358B6340A9
 magnet:?xt=urn:btih:59F81971FCD2BA758CE1B588941E20C0804FEDC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:59F81971FCD2BA758CE1B588941E20C0804FEDC8
 ```bash
 magnet:?xt=urn:btih:A9D80913C4E1C05D2314D189BC58D8D1413A03DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:A9D80913C4E1C05D2314D189BC58D8D1413A03DA
 magnet:?xt=urn:btih:CAB236033F62943E56B41F81D8E2E0A4E9A254BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:CAB236033F62943E56B41F81D8E2E0A4E9A254BC
 magnet:?xt=urn:btih:AAE87143E2DE3FB5B29B5ADF89AEE65ED1EEC71F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:AAE87143E2DE3FB5B29B5ADF89AEE65ED1EEC71F
 ```bash
 magnet:?xt=urn:btih:75559E9442AFE611676B8A624417562647F2C595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:75559E9442AFE611676B8A624417562647F2C595
 magnet:?xt=urn:btih:D81D4EBB7D6DF841A7523E4DFB3E95B3933018E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:D81D4EBB7D6DF841A7523E4DFB3E95B3933018E1
 magnet:?xt=urn:btih:D825E117E78D065D6807522998182D52CB1B4C6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:D825E117E78D065D6807522998182D52CB1B4C6B
 ```bash
 magnet:?xt=urn:btih:6F7F46D9B4809FDD3075B209AB3B024B24303E2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:6F7F46D9B4809FDD3075B209AB3B024B24303E2E
 magnet:?xt=urn:btih:E395D42CBA74BD80BA81579927ECFD593FE55E68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:E395D42CBA74BD80BA81579927ECFD593FE55E68
 magnet:?xt=urn:btih:679DD37E37389E306A10E30CFD4FECBD49D5E798
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:679DD37E37389E306A10E30CFD4FECBD49D5E798
 ```bash
 magnet:?xt=urn:btih:B3D203F79E7C4F30E2E23E46D44750F9628F93AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:B3D203F79E7C4F30E2E23E46D44750F9628F93AA
 magnet:?xt=urn:btih:8BE6672CB1F8CA8AC13B152AA027E92BE479457E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:8BE6672CB1F8CA8AC13B152AA027E92BE479457E
 ```bash
 magnet:?xt=urn:btih:602816B47EA1E302CBCDAAD279FCAFBB07E2A1FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +530,8 @@ magnet:?xt=urn:btih:602816B47EA1E302CBCDAAD279FCAFBB07E2A1FD
 magnet:?xt=urn:btih:9D42D3F8F6C8F6124FD50602DEA17BA3E64E38E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +557,8 @@ magnet:?xt=urn:btih:9D42D3F8F6C8F6124FD50602DEA17BA3E64E38E0
 magnet:?xt=urn:btih:EAFCE9084F9639AF28BE6A4A4FF3342677902C15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +582,8 @@ magnet:?xt=urn:btih:EAFCE9084F9639AF28BE6A4A4FF3342677902C15
 ```bash
 magnet:?xt=urn:btih:E79DF8B888BBBFFFEA00115F0D2003BA80735C81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +609,8 @@ magnet:?xt=urn:btih:E79DF8B888BBBFFFEA00115F0D2003BA80735C81
 magnet:?xt=urn:btih:72211E0B7365D03BFAF178375A24D5B2FFD55D5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +634,8 @@ magnet:?xt=urn:btih:72211E0B7365D03BFAF178375A24D5B2FFD55D5E
 ```bash
 magnet:?xt=urn:btih:70161A2AF24F0E716494A0992F3F4638B29563BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +663,8 @@ magnet:?xt=urn:btih:70161A2AF24F0E716494A0992F3F4638B29563BF
 magnet:?xt=urn:btih:74A0AE81B7848C89678306BB91FDBC8DBBD7C085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,31 +691,7 @@ magnet:?xt=urn:btih:74A0AE81B7848C89678306BB91FDBC8DBBD7C085
 magnet:?xt=urn:btih:B6BF99907BDF5BC281FA3418A9E4717596FA7682
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404225   (494928) от 24.08.2020
-
-Скотт Ким | Радикальная прямота. Как управлять не теряя человечности (2020) [PDF, FB2, EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ким Скотт – бывший топ-менеджер Google, Apple и Youtube – получила известность благодаря собственному подходу к управлению под названием «Радикальная прямота». В своей книге Ким рассказывает о принципах оптимальной работы с командой на основе полной откровенности. Такой метод позволяет вовремя обнаружить и решить проблему, не замалчивая ее.
-
-В книге изложены практические (   Читать дальше...   )Жанр: Бизнес, Маркетинг, ПредпринимательствоФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9171D992B0AF433CFF255EBFB4AEF5D2FB97347
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

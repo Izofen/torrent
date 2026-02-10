@@ -1,3 +1,29 @@
+###  Публикация: 1223141   (679169) от 02.05.2018
+
+Moby live at Main Square Festival / Moby live at Main Square Festival (2011) DVB [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень энергичное и рок-н-рольное выступление Moby на фестивале «Главная площадь», который проходит ежегодно в Аррасе, Франция. В программе концерта были все его главные хиты — от «Why Does My Heart Feel So Bad?» и «Bodyrock» до «We Are All Made of Stars» и «Extreme Ways».Телекомпания: Франция / Sequence SDPЖанр: Документальный, Искусство, МузыкаПеревод: Не требуется (нет диалогов и комментариев)Продолжительность: 01:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24CB5692512AFB164535AC368DD4BC3FCFB612CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 897603   (679213) от 16.05.2015
 
 Диверсанты (2012) WEB-DLRip [H.264/720p-LQ] (серии 1-4 из 4)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:01FA3AA1EE409F992A23C2DD515935F64282A5B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:01FA3AA1EE409F992A23C2DD515935F64282A5B6
 magnet:?xt=urn:btih:7480E154B4BB1E50239ACD210466F07888977805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:7480E154B4BB1E50239ACD210466F07888977805
 ```bash
 magnet:?xt=urn:btih:0824BB685AD39D20056A74B4BAAA23B2875BE6FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:0824BB685AD39D20056A74B4BAAA23B2875BE6FF
 magnet:?xt=urn:btih:07378AF7B860747B9928BE7215C09D90105CDA1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:07378AF7B860747B9928BE7215C09D90105CDA1C
 ```bash
 magnet:?xt=urn:btih:0BE5A0EFA5705A1FCEF56E81101C92DF31F13E12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:0BE5A0EFA5705A1FCEF56E81101C92DF31F13E12
 magnet:?xt=urn:btih:E285403C17F9B5739A45D9A12D7D680DC02403F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:E285403C17F9B5739A45D9A12D7D680DC02403F5
 ```bash
 magnet:?xt=urn:btih:E447AC135F369B07377BF1114F77893C59F0E78D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:E447AC135F369B07377BF1114F77893C59F0E78D
 magnet:?xt=urn:btih:7BFC0AC2ED877C36C91150E9A59DB5A0BADFF380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:7BFC0AC2ED877C36C91150E9A59DB5A0BADFF380
 ```bash
 magnet:?xt=urn:btih:2F633B2C6482C84A481F6D2EAE85E9F0CC963DC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:2F633B2C6482C84A481F6D2EAE85E9F0CC963DC9
 magnet:?xt=urn:btih:848E4CE8431AAE9C4F247F9D32721AA8B0C56161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:848E4CE8431AAE9C4F247F9D32721AA8B0C56161
 ```bash
 magnet:?xt=urn:btih:E261DA4CF164BEC569D398A21FC56965558A04CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:E261DA4CF164BEC569D398A21FC56965558A04CF
 magnet:?xt=urn:btih:84979ACBC208DE7586525B9E8AECAF85EA46ED89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:84979ACBC208DE7586525B9E8AECAF85EA46ED89
 ```bash
 magnet:?xt=urn:btih:7C750D8FE54384EC47C58840448F5C64F8360243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:7C750D8FE54384EC47C58840448F5C64F8360243
 magnet:?xt=urn:btih:487440F662A95555BD0E8CAA8F9845AA4B329B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:487440F662A95555BD0E8CAA8F9845AA4B329B13
 ```bash
 magnet:?xt=urn:btih:689D2D727779A01816EC262D1531820461D60BEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:689D2D727779A01816EC262D1531820461D60BEA
 magnet:?xt=urn:btih:0F69E3AA1608B1A2948D30653C405D45A45BE6C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:0F69E3AA1608B1A2948D30653C405D45A45BE6C3
 ```bash
 magnet:?xt=urn:btih:2983D984D0C874EAAF4B2FAEAFE8970B28ACE328
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:2983D984D0C874EAAF4B2FAEAFE8970B28ACE328
 magnet:?xt=urn:btih:7F2E9F944640B8FECC768F717DA47D3BAD367392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:7F2E9F944640B8FECC768F717DA47D3BAD367392
 ```bash
 magnet:?xt=urn:btih:160AD97DDA011F7A3054DFEF2ABDA63B3822EB7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:160AD97DDA011F7A3054DFEF2ABDA63B3822EB7A
 magnet:?xt=urn:btih:B1689DC50C8724EDC5C92D7766C4FDAE6F7DCA90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:B1689DC50C8724EDC5C92D7766C4FDAE6F7DCA90
 ```bash
 magnet:?xt=urn:btih:D0226A81322220D7DC6D2A0F6B83AECDAB992D62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:D0226A81322220D7DC6D2A0F6B83AECDAB992D62
 magnet:?xt=urn:btih:9A843B3DF0683BCAB999A96AED431454AFAC185B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ Discovery. Махинаторы (Автодилеры) / Wheeler Dealers (2014) 
 ```bash
 magnet:?xt=urn:btih:1A036000BAA402651E50117914229BA7E30EDEB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:1A036000BAA402651E50117914229BA7E30EDEB8
 magnet:?xt=urn:btih:D1B332C3AF7B838C83D0246DF7DC12FF57B1CB82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:D1B332C3AF7B838C83D0246DF7DC12FF57B1CB82
 magnet:?xt=urn:btih:0530D91168CC4DB9376077E986594C55236D2EDA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589261   (681412) от 16.06.2014
-
-Первый полёт человека в космическое пространство (1961) VHSRip
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм посвящен первому в мире летчику-космонавту Юрию Гагарину и технической составляющей космического аппарата ВостокЖанр: ДокументальныйРежиссер: Григорий КосенкоПродолжительность: 00:53:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82914975D7F4BA0120C13C755930294FCECF0CD4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

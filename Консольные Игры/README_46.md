@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:35AD3058BE84E3E0AADDF87C88DA3F544B5836EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ LittleBigPlanet Karting / Little Big Planet Karting [PS3] [EUR] [Ru] [4.25] [Cob
 magnet:?xt=urn:btih:DC1C7B3DB7FEECF46E844D7BCB3A8909AB6C4415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ WWE 2K16 (2015) [PS3] [EUR] 4.21 [Repack] [Multi]
 ```bash
 magnet:?xt=urn:btih:4468933E17F979C446D33001A44F70CE2B3A5266
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Batman: Arkham Origins (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] [Ru/Mul
 magnet:?xt=urn:btih:6FD9F3CD8B281E3768440A9FED0ACBE7D9FD994D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Super Mario Galaxy 2 [Wii] [PAL] [Multi 5] (2010)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ God of War® II хронологически продолжает события
 ```bash
 magnet:?xt=urn:btih:914EF2A10F6C61758C0A4AF152E063A1F147B3A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Deepak Chopra's Leela [Wii] [PAL] [Multi 3] (2011)
 magnet:?xt=urn:btih:7876868A9A43B06AD042B384E6503DAE6567BE45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Dragon Quest IV - Chapters of the Chosen (2008) [NDS] [USA] [Unofficial] [Ru]
 ```bash
 magnet:?xt=urn:btih:DD3457BDF48A968ABDDA6DEDDC643E728A653230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Terraria (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [eShop] [En]
 magnet:?xt=urn:btih:DB0085FD1E07AA7ADB5C46EB4542D926CB7EC22E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Marvel Avengers: Battle for Earth - экшен во вселенной Marvel, �
 ```bash
 magnet:?xt=urn:btih:AC9C27A4CDAB3662551D08CB33C1EE5F1AF31429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Chariot — забавный платформер, основанный на з�
 magnet:?xt=urn:btih:73D17E66AC9095AB05CF8FE50E56E3B634F8226A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Teslagrad (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [Ru/Multi]
 magnet:?xt=urn:btih:F84D4CB3B061FFADD156F0C80C5A323D91BDB4D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Resident Evil - Обитель зла, в Японии известная как
 ```bash
 magnet:?xt=urn:btih:B568D2CD105C313A7790217FDD00AB842151997E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ Kirby's Extra Epic Yarn (2019) [3DS] [JPN] 11.9 [CIA] [Unofficial] [En]
 magnet:?xt=urn:btih:844934E5F85B9CFD83A16E89497D156615B73FDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ Shovel Knight: Treasure Trove - это полноценное и заверше�
 ```bash
 magnet:?xt=urn:btih:7448DBF9003DBE00E0235B3AA79E070DAA02E6F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ Bayonetta (2010) [PS3] [EUR] 4.82 [HAN] [Repack] [Ru]
 magnet:?xt=urn:btih:690C3B3F13A34072B2546B06EEB76F3835D767A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ SnowRunner, ранее носивший название MudRunner 2, предс
 ```bash
 magnet:?xt=urn:btih:50C957AD66F5FD2EF057942E5CF9737036235965
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ Alan Wake (2010) [Xbox360] [RegionFree] FreeBoot [Repack] [Ru]
 magnet:?xt=urn:btih:D95D1C747EEC7800280725573AF42D6FD218EAFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ MultiMan Singstar-R Euro 2016 (2016) [PS3] [4.80] [Unofficial] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0D7D8EB880B46E2331D0F8F4811D8C9F0262F2FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ Anarchy: Rush Hour (2010) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN] [E
 magnet:?xt=urn:btih:D48552B9A6730AB51ED793961460597122D8E464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ Mario & Sonic at the Sochi 2014 Olympic Winter Games (2013) [WiiU] [EUR] 5.3.2 [
 ```bash
 magnet:?xt=urn:btih:49E4C21A6F9B01F358EB38CAD584487BF012804E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ Shovel Knight: Treasure Trove - это полноценное и заверше�
 magnet:?xt=urn:btih:19D71175A3836D9ECB35AF7590FC5ED2C17798FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ Greed Corp (2010) [PS3] [USA] 4.21 [Repack] [Multi]
 ```bash
 magnet:?xt=urn:btih:63C2E43567474C0C1DC9FF0E437BF10E87A46EAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ It Takes Two (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.02] [Ru/Multi]
 magnet:?xt=urn:btih:DDA33AA82F08E0DA0A142874D0701ACA87CDBD64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ The Smurfs - Mission Vileaf / Смурфики Операция «Злолист
 magnet:?xt=urn:btih:0E40BAB510FB7C9A6DEE33252AEC947F398CE220
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Valkyria Chronicles (2008) [PS3] [EUR] 4.82 [HAN] [Repack] [Ru]
 ```bash
 magnet:?xt=urn:btih:EC5199AD263C2EE0CB1B48D694FDDE0EB1D3498E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

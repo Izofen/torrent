@@ -1,3 +1,32 @@
+###  Публикация: 1104437   (880170) от 15.02.2017
+
+VA - A Day for Love: Special Valentines Day Selection. Acoustic Versions of Love Songs (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_880170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teesha - Thinking Out Loud
+02. Mark Bodino - One
+03. The Come Up - I'll Be There for You
+04. Mark Bodino - Wake Me Up When September Ends(   Читать дальше...   )Жанр: PopПродолжительность: 02:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C663D72E3B908ACB4D413FF53759D6870F4B20B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104420   (880173) от 15.02.2017
 
 VA - Chillout Hits Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -21,6 +50,8 @@ VA - Chillout Hits Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:547F7929B928F8861395F1D063423710244BE67C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Полный отрыв выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:F84AD85E4FA32C83DF1F9A49AFAC0BFAD9ABFD04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Running Electro (2017) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:013E8260EF8E0D6982873CE066F681B3C614416E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Автозвук. Отборный зимний хит. Выпуск № 5 
 magnet:?xt=urn:btih:02CA6FBA5C50A5F312846407307C5B3C950C2AA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Танцевальная зима. Снежная 100-ка выпуск №
 ```bash
 magnet:?xt=urn:btih:245965A5EC4DBB58FB4763986DC3784037CC2B46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Chill Boutique (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:EFF798C60F45005E4928737BFB278AE51737E685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - EDM Extasy: Electro Dance Mix (2021) [MP3|320 Kbps] <Club, Dance, EDM, Hous
 ```bash
 magnet:?xt=urn:btih:0F4D454466131E406FC421F62A034FB7C4203B89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Record Super Chart 11.09.2021 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:3958D19AC585182F6AC9678DDD24E195164A15A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Cardio Music 2021 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:D106B0A22CC4C89113B0C5F0920C9CEB5F15B676
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Music News vol.131 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 magnet:?xt=urn:btih:CB0AF13235A3AD34CD3521E59643F362E4EDE70F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - The Loveliness Disco (2021) [MP3|320 Kbps] <Pop, Disco, Dance>
 ```bash
 magnet:?xt=urn:btih:BD4D0DD51541DB8DF1D83D808DA9E323F97FAD31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Best Of 2021 - Herbst/Winter (2021) 2CD [MP3|320 Kbps] <Hip Hop, Latin, Dan
 magnet:?xt=urn:btih:6C65071171754BAADD2965CC2ACAE608384FD04D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Зайцев нет. Лучшие новинки марта (2016) [MP3|160
 ```bash
 magnet:?xt=urn:btih:6A6E55360538C5C2B6278B24BAC98BB3B8742B6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Beatport Techno: Sound Pack #345 (2021) [MP3|320 Kbps] <Techno, Tech House,
 magnet:?xt=urn:btih:F3D080E318CF390C124C3F5FC349EFA3A5AB35C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Beatport Deep House: Sound Pack #346 (2021) [MP3|320 Kbps] <Deep House, Ele
 ```bash
 magnet:?xt=urn:btih:340F15992927D126038049DEBE9C94F9FC17512D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - Golden Summer Party (2021) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:68242ADDCD0ECA1573372318E70CA9A9226BA1F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +515,8 @@ VA - Positive Frequency: Really Techno Sound (2021) [MP3|320 Kbps] <Clubbing Tec
 magnet:?xt=urn:btih:DB46A8D2F5A8E52F70D260F1243B272EB6ACC585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +540,8 @@ VA - Дискотека по Украински (2010) [MP3|128-256 kbps]<Рор
 ```bash
 magnet:?xt=urn:btih:F564BC07B9EA1061D9C3C0F2A3F572B15FF93912
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +570,8 @@ VA - Smooth Jazz Vocal Grooves (2016) [MP3|320 кб/с] <Smooth Jazz, Jazz>
 magnet:?xt=urn:btih:C3EDBD8D099668849FBC1884CD1BB03BE5D1C80D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +598,8 @@ VA - Музыка хорошего настроения Vol 2 (2015) [MP3|256 к
 ```bash
 magnet:?xt=urn:btih:091D40AF5E5F3FC11C8E71CE77CEE0224B5512C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +628,8 @@ VA - Праздничный душевный Шансон (2016) [MP3|256 кб/�
 magnet:?xt=urn:btih:56686BAE3718CBF45E36156452B371BFDBE606AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +656,8 @@ VA - Drum & Bass The World Of Remix (2016) [MP3|320 кб/с] <Drum & Bass, Remix
 ```bash
 magnet:?xt=urn:btih:F05CF268DE41314D13D47112AED0EF89564033EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +686,8 @@ Nu Disco Cosmic St.Tropez (2015) [MP3|320 кб/с] <Disco, Nu-Disco, Deep House>
 magnet:?xt=urn:btih:06C0D1ED40704DEBE90D96446FE426429B5610AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +714,8 @@ VA - Spring Cocktail (2016) [MP3|320 кб/с] <Grime, Tribal, Moombahton, Urban,
 ```bash
 magnet:?xt=urn:btih:9F06D4ACEFB0D2EBD2AD4A563FD5E8A9CBC447EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,32 +744,7 @@ VA - Electro House NME DJ Promo (2020) [MP3|320 Kbps] <House, Dance, Club>
 magnet:?xt=urn:btih:73D901C0D7E9B3A185D22B1436B9A7205199F7CC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373079   (881693) от 05.04.2020
-
-ACDC - 100% ACDC (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_881693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Highway to Hell
-02. Back In Black
-03. Thunderstruck
-04. You Shook Me All Night Long(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 03:37:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B2E1602663023A473D9083A8EE9CA19F77E767
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

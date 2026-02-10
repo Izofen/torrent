@@ -22,6 +22,8 @@ Belinda Carlisle - The Collection (2014) [MP3|320 кб/с] <Pop, Rock>
 magnet:?xt=urn:btih:0A4BD66BD73EA1F5C83684081A27B2C075656162
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Ronnie Scott's Jazz Quintet - Never Pat A Burning Dog (1991) Ronnie Scott's Jazz
 ```bash
 magnet:?xt=urn:btih:6ECB8DB62A5AD3F2EDB1FF366258EC41E8AE2B6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Eric Gale - Part Of You (1979) 2017, Sony Music [FLAC|Lossless|image + .cue] <Ja
 magnet:?xt=urn:btih:396B7C48BA31BC75327B58CB3BC281708129ACD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Chico Freeman - The Emissary (1996) Clarity Recordings [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:5476E939FD88A4DC76B96BF1EE14AB7A74B0CEA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Eubie Blake - Memories Of You (1973) 2003, Shout! Factory [FLAC|Lossless|tracks 
 magnet:?xt=urn:btih:7055C5D39E8514CA548D0549EFDFAA571EEF0CAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Disney - Princess Christmas Album (2009) [MP3|192 kbps]<Детские песе�
 ```bash
 magnet:?xt=urn:btih:67B7A1AAA1E213030634630549D28D14386ECE60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Tweenies - The Christmas Album (2004) [MP3|320 kbps]<Детские песенк
 magnet:?xt=urn:btih:E8D162AAC5AE224FD0683CFCD529E37C1A465674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ magnet:?xt=urn:btih:E8D162AAC5AE224FD0683CFCD529E37C1A465674
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ Optimystica Orchestra - Всё, что делает река (2016) Live [MP3|32
 magnet:?xt=urn:btih:DCBF998C4D2A8127B080C475500E4BF5344A635B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ Joshua Bell - For the Love of Brahms (2016) [FLAC|Lossless|WEB-DL|tracks] <Class
 magnet:?xt=urn:btih:212671FD5F31F6E9DD666D5FE2A82EA901189F8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +305,8 @@ magnet:?xt=urn:btih:212671FD5F31F6E9DD666D5FE2A82EA901189F8E
 ```bash
 magnet:?xt=urn:btih:9C53A91034FD72AFE6B6FF68F9B7E481D330D56D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +335,8 @@ VA - Aesthesia Vol. 2 (2015) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Ambient, Dub, Dub
 magnet:?xt=urn:btih:741C10CB496D75D8AF954F9B5AA273E2F63787E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +364,8 @@ Armik - Greatest Hits (2008) 2CD [FLAC|Lossless|image + .cue] <Instrumental, Fla
 magnet:?xt=urn:btih:56F6C6AB723B77E55B9D5BD8CF71B9DB9C1BB3E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +389,8 @@ magnet:?xt=urn:btih:56F6C6AB723B77E55B9D5BD8CF71B9DB9C1BB3E1
 ```bash
 magnet:?xt=urn:btih:71DFA186BEA5F2D2D231225BC111B526F28D832E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +419,8 @@ VA - Jamiroquai - Best275z (1993 - 2013) [MP3|320 Kbps] <Acid Jazz, Funk, Electr
 magnet:?xt=urn:btih:49F5315F0EEF801B4F4FC57272E89EF4EBFE5F6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +444,8 @@ magnet:?xt=urn:btih:49F5315F0EEF801B4F4FC57272E89EF4EBFE5F6E
 ```bash
 magnet:?xt=urn:btih:2412DAE36B567D3903F8D7818D0A22E964E3ED74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +471,8 @@ Slimjet 12.0.11.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:59F9E9C0A416C9C5D090F253845D2E45613B2153
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +496,8 @@ magnet:?xt=urn:btih:59F9E9C0A416C9C5D090F253845D2E45613B2153
 ```bash
 magnet:?xt=urn:btih:7A113EBAF2E18F9C836EF74786185AB7B7BE24F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +526,8 @@ A4. The Great 1974 Mining Disaster (4:38)(   Читать дальше...   )П�
 magnet:?xt=urn:btih:3F0AA08A7A344B5A54BBF4625937C76445773682
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +554,8 @@ magnet:?xt=urn:btih:3F0AA08A7A344B5A54BBF4625937C76445773682
 ```bash
 magnet:?xt=urn:btih:00AAB2D9FF224E4A38D40F67CE51A9BF37C6ED67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +584,8 @@ The Killers - Don't Waste Your Wishes (2016) Compilation [FLAC|Lossless|tracks] 
 magnet:?xt=urn:btih:6AF3A2F2345FBEBA294B55F5C7C0251AC9F35F0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +610,8 @@ Atrium Carceri - Archives I-II (2016) [MP3|320 Kbps] <Dark Ambient>
 ```bash
 magnet:?xt=urn:btih:6048DCF745001FED0996D99EC7C904F8E2423149
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +640,8 @@ VA - Euphoric Dream: Relax Mix (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtemp
 magnet:?xt=urn:btih:E5DCBEFCC012A139F4DCD0D1CFF666F258E35EDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +665,8 @@ Vivaldi 1.5.658.56 Final [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7D2C1650759FBCDF4D6E0DB18100FE0A902EC51B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +692,8 @@ magnet:?xt=urn:btih:7D2C1650759FBCDF4D6E0DB18100FE0A902EC51B
 magnet:?xt=urn:btih:215997309C5EF9B664DC3F79903A75DD78F78EB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +718,8 @@ Update это обновление применимо для всех пакет
 ```bash
 magnet:?xt=urn:btih:A22BE391F7ECA0AF9073A3362B58F51D1DC9ECA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

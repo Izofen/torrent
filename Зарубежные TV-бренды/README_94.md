@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:378B417C0B49930DE2AD4E41B5BB58C90755E940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC. Самые умные животные / Super Smart Animals (2012) SATRip 
 ```bash
 magnet:?xt=urn:btih:1606E00E58B3AA764C4127A9369B9D7DB146601A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ BBC: Всё, что мы знаем о Вселенной, неверно? / BBC
 magnet:?xt=urn:btih:06E9B3B5EDC28F4FD1813D2D7F3BB3EF603CE3F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ BBC: Как устроена Земля [2 из 2] / Earth Machine (2011) SATRip
 ```bash
 magnet:?xt=urn:btih:1F0CCB1B92EFB48C1A1213E4E1FA86F14796BEFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ BBC: Корень всех зол? [2 серии] / The Root of All Evil? (2006)
 magnet:?xt=urn:btih:BF2C8CD32045C4FB6F87B72E6E2BFC1561F3C931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ BBC. Мир природы. Лобо. Волк, который изменил А
 ```bash
 magnet:?xt=urn:btih:1F6C8E0B8C644F8E7B89252478D06233052FCD84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ BBC: Погружение на Галапагосах (Подводный мир
 magnet:?xt=urn:btih:C3100037458606EFCC2456E48354ED3581BAC375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:C3100037458606EFCC2456E48354ED3581BAC375
 ```bash
 magnet:?xt=urn:btih:62B57AC231C5AE4C3CE7EC42C1660C912393B508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:62B57AC231C5AE4C3CE7EC42C1660C912393B508
 magnet:?xt=urn:btih:097D8D33C21ACD551FE8931E8F102BB8F4BE6A10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ BBC. Тигр: Шпион джунглей / Tiger: Spy in the Jungle (2008) WEB
 ```bash
 magnet:?xt=urn:btih:414DCB42E0709E9291F27374D0EA764AAAD03E0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ NGW: Дикая природа. Южная Африка / Wild South Africa (201
 magnet:?xt=urn:btih:19125F48D658400D3A433AEA24D9C8294712AA81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ NG: Последствия: Перенаселенная планета / Afterm
 ```bash
 magnet:?xt=urn:btih:491AD7EBAB19A98A5C39885A998D37441B08F79F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ NGW: Дикие животные Японии / Japan's Wild Year (2014) HDTVRip
 magnet:?xt=urn:btih:9590B5EE7304B2C46D5D24C904DDF0744A1A202B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ BBC. Как устроены шикарные отели. Hacienda Hotel Vira Vi
 ```bash
 magnet:?xt=urn:btih:3342106AFF103A30D51BB38C7BC57206E29C129D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:3342106AFF103A30D51BB38C7BC57206E29C129D
 magnet:?xt=urn:btih:7241ED6E041CE06639F1EAF88A966B7AE38EA617
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ BBC: Грязные города. Средневековый Лондон [ча�
 ```bash
 magnet:?xt=urn:btih:7B0CCB5297466AEE361FE889951125855E611131
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ BBC: Белый медведь - Шпион во льдах / BBC: Polar Bear - 
 magnet:?xt=urn:btih:37FCE2FB50CF148DB05E35999AF8327F6CA83F4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ BBC. Horizon: Путешествия во времени (2003) SATRip
 ```bash
 magnet:?xt=urn:btih:38E410810CBA5ABB7C90A50E127FE7FF9039242E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Discovery: Самые крепкие инструменты / World's Toughest T
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Discovery: Самые крепкие инструменты / World's Toughest T
 ```bash
 magnet:?xt=urn:btih:6AA05AC148A10E55E717A95B20EA1EC1E4EB355F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ NG. Индия с высоты птичьего полёта / India From Above 
 magnet:?xt=urn:btih:191ED00519D522FA6BC837DE8F94E2B623C4850D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:191ED00519D522FA6BC837DE8F94E2B623C4850D
 ```bash
 magnet:?xt=urn:btih:212E6F78E876C5F5DCAE78476869B0003865E497
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ BBC: Скрытые убийцы в домах послевоенного вре
 magnet:?xt=urn:btih:B7B1201A46017985AC17999B8D1D382B003DE50E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ NGW: Смертоносная Африка. Пустыни / Africa's Deadly Kin
 ```bash
 magnet:?xt=urn:btih:3D11D1CFAE4A38A3915499F66CA4DB1C87800162
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ BBC. Всё о мире обезьян / Monkeys Revealed (2014) HDTVRip (сер
 magnet:?xt=urn:btih:F09C9A39DCE1CA6A8F3FB8C20DFEF568ECCAEB8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ NGW: Рождение прайда / Birth of a Pride (2018) HDTV [H.264/1080i-L
 ```bash
 magnet:?xt=urn:btih:23028D124601F91E1E6845891F3621644F3ADCA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

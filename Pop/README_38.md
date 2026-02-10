@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:925F306036397BE1CB13CFFFB58A7B2690C7892F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:925F306036397BE1CB13CFFFB58A7B2690C7892F
 ```bash
 magnet:?xt=urn:btih:6D2880EA6271DE76F30C10EE26E7311F1339BCDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Jasmin - От Любви До Любви (2013) [WavPack|Lossless|image + .cue] 
 magnet:?xt=urn:btih:018365C305B6DB94C6DEC159F82DB36A887CE643
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:018365C305B6DB94C6DEC159F82DB36A887CE643
 ```bash
 magnet:?xt=urn:btih:6F173D909FAB46A96E81B1028418D014D5AEC483
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Duran Duran - Do You Believe in Shame? (1989) Remaster, 2024, Rhino [FLAC|Lossle
 magnet:?xt=urn:btih:D36C012A74DDBA8B4C448D0602ADBCBB30FE5403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Jasmin - Тебе Понравится (2005) [WavPack|Lossless|image + .cue] <P
 ```bash
 magnet:?xt=urn:btih:9A052A52EF4A4061306D8AB28C092DA5CCC69A40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Happy Sovok - Happy Sovok (2009) [WavPack|Lossless|image + .cue] <Pop, Folk, Sta
 magnet:?xt=urn:btih:76B12D3FA93F70BE155C33CC1943AE4F9A563247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:76B12D3FA93F70BE155C33CC1943AE4F9A563247
 ```bash
 magnet:?xt=urn:btih:9D2BAE7DA0BFA48EDED6DEA88C58309823D9A615
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:9D2BAE7DA0BFA48EDED6DEA88C58309823D9A615
 magnet:?xt=urn:btih:8BAA710D3E201DFAA7A0A65602333527030F097B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:8BAA710D3E201DFAA7A0A65602333527030F097B
 ```bash
 magnet:?xt=urn:btih:D151BC9EF7BFD8BCDE1FA18F5F9E999E5F7BC489
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Gloria Gaynor - Never Can Say Goodbye (2005) [WavPack|Lossless|image + .cue] <Po
 magnet:?xt=urn:btih:43BC8237747C126F6C80B22AE26FE657B9A453BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ VA - Now Yearbook Extra '85 (60 More Essential Hits From 1985) (2023) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:0D6768FFB83515BBF7BCF73CB80D1F99A739CF22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ VA - Now Yearbook Extra '90 3 x CD, Compilation, Collectors Edition (2024) [MP3|
 magnet:?xt=urn:btih:D307DC1E49AEC4BF58CF156653E719242D765941
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ Army Of Lovers - Remixodus (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:DC398E76189B866B1A9970411CB209960E4D3300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ Duran Duran - All She Wants Is (1988) Remaster, 2024, Rhino [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:40C8B9E62D2C9BB3A1C9D7ACB8A23EB62214FAEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ magnet:?xt=urn:btih:40C8B9E62D2C9BB3A1C9D7ACB8A23EB62214FAEC
 ```bash
 magnet:?xt=urn:btih:6C42A6CFA0ABE4BDE910FA0283A8578E1ABD4487
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ magnet:?xt=urn:btih:6C42A6CFA0ABE4BDE910FA0283A8578E1ABD4487
 magnet:?xt=urn:btih:CF874A9B8774FFABD3D266FAC422F36C38A48AB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ Engelbert Humperdinck - Forgotten Promises 1967-1975 (2021) [MP3|320 Kbps] <Trad
 ```bash
 magnet:?xt=urn:btih:EDEF2A1E78652B15FCFEDC09A0A0178FA6FF6529
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ magnet:?xt=urn:btih:EDEF2A1E78652B15FCFEDC09A0A0178FA6FF6529
 magnet:?xt=urn:btih:6A9039C533900A311269A876CE16237232DF0FB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ Max Him - The Original Maxi-Singles Collection (2014) Remastered [OGG Vorbis|480
 ```bash
 magnet:?xt=urn:btih:025FE3F87401E3D650B968A5B37F40BA976FA13D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ Wild Cherry начинали как обычная рок-группа, игра
 magnet:?xt=urn:btih:0A5B1E97FED83C9D697029FE514BA6F86F70DD9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ VA - Crazy Disco Show Vol. 1 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro Hous
 ```bash
 magnet:?xt=urn:btih:AE1ECB4B5DB4833E66FB8440778B2D42EDD99927
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +657,8 @@ Fun Fun - Have Fun! & More... (2006) Remastered [OGG Vorbis|480 Kbps] <Electroni
 magnet:?xt=urn:btih:72C99E05273DAD3E9811C3E30B64329841601E92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +685,8 @@ Various Artists - Emozioni 2 (2007) [WavPack|Lossless|image + .cue] <Easy Listen
 ```bash
 magnet:?xt=urn:btih:E0E045A04241D6282C08F29F04DFCFBD6F744850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +715,8 @@ VA - Twelve Inch Eighties Can You Feel It (2016) 3 CD [OGG Vorbis|480 Kbps] <Ele
 magnet:?xt=urn:btih:90A86AB28E86D3810C29DC8FBE1BDB09F6A78778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ magnet:?xt=urn:btih:90A86AB28E86D3810C29DC8FBE1BDB09F6A78778
 ```bash
 magnet:?xt=urn:btih:B65CB5B418CB2B2F1868FCF0970027D42CF7934B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

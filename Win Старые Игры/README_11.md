@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:93A9993728BC66C2A17B4B66E0B468FCEFD98DEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Disciples 2 Gold (2005) [En] (2.02/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:DD60C6C3624F8356ECD5955D85529055B3536A65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Civilization 2: Test of Time [Ru] (P) 1999
 magnet:?xt=urn:btih:BF7FA97A2631BACF2C4B79CD3CD75A75CAD676CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Black Moon Chronicles (1999) [En/Fr/Ge] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:15EE6ABC13790827FFFE42CF27D38B5F3576AED6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Dragon Lore: The Legend Begins (1994) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:3CCCDB66126AECE6A958AA9EE8E42566389640A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Disciples Sacred Lands (1999) [Ru/En] (1.1) License GOG [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:7023EAE2F6C0BD840731B3B8DEB49D4D0F68BDF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Quake 2 Enhanced - это новая версия классического ш�
 magnet:?xt=urn:btih:7CD818F28B1375798F5B016C3407F73A86A41E67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ StarCraft - легендарная стратегия в реальном вре
 ```bash
 magnet:?xt=urn:btih:9B9D617053BD671BD9981C79427405ED48797CD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Pool of Radiance: Ruins of Myth Drannor - современная реинкар�
 magnet:?xt=urn:btih:415C23DA4CE236E04E3E1EAE96B9D42E18E2222B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Elasto Mania Remastered представляет собой обновленну
 ```bash
 magnet:?xt=urn:btih:ACE59C410569F38084FC06BB7B888A5AD16F91AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Harry Potter and the Chamber of Secrets / Гарри Поттер и Тайна�
 magnet:?xt=urn:btih:6AB447A5AFC8B004FDA90D8A0F77B9CE883F8DC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Warcraft Adventures: Lord of the Clans — отменённая компьюте
 magnet:?xt=urn:btih:6191B91FD343355D5F64493AD9700AC244DA8F90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ Arcatera: The Dark Brotherhood (2000) [En] (1.2) License
 ```bash
 magnet:?xt=urn:btih:470995DB595CA23E9FC921DAA2EDA8B744C026AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Grom: Terror in Tibet (2003) [Ru/En] (1.02.252) Unofficial Русский про
 magnet:?xt=urn:btih:B1D7A6066F32DAE30CFD18963AEF3A2EE54A59B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Search and Rescue: Vietnam Med Evac / Вьетнамский апокалипс�
 ```bash
 magnet:?xt=urn:btih:F9146261256995121D7ACC933951910AC9FFFE78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Plants vs. Zombies (2009) [Ru/En] (1.2.0.1096) Repack Necros [Game of the Year E
 magnet:?xt=urn:btih:D4E04385706A0F4CC835BD98E66BC4136092253E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ ales of Monkey Island Complete Pack – интереснейший компью�
 ```bash
 magnet:?xt=urn:btih:85A9FF06DABDA7C4D6387EA3DE7413923A6A0FCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Escape from Monkey Island (2000) [Multi] (1.1) License GOG
 magnet:?xt=urn:btih:D4D3D0DE77567A837DF4B11B43652CC0AD4BE27D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ The Secret of Monkey Island (2009) [Multi] (1.0) License GOG [Special Edition]
 ```bash
 magnet:?xt=urn:btih:9D41E0488FC38B35DE57AA7D5BBF980D46FAD4F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Monkey Island 2 Special Edition: LeChuck's Revenge - продолжение ус
 magnet:?xt=urn:btih:51B5A854D496F6C884FFD324C86CBDDA5B156917
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Still Life (2005) [Ru/En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:60B85BB90555D888AF8D5B55D56203889611E838
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Full Pipe / Полная труба [Ru] (RePack) 2003 |  R.G. Catalyst Old-Game
 magnet:?xt=urn:btih:9ED1A68595C09992C705C0DEBBC5EE2095902545
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Uru: Complete Chronicles (2004) [Multi] (1.0hf3) License GOG
 ```bash
 magnet:?xt=urn:btih:426EBCB1B2D4A45D6A64D69654E05CE0A764F6C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Myst V: End of Ages (2005) [Ru/Multi] (2.0.0.9) License GOG [Limited Edition]
 magnet:?xt=urn:btih:BEEB79CDCA5E27129F8574EC441A477D509F09D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ realMyst: Masterpiece Edition – это красивая обновлённая
 magnet:?xt=urn:btih:554C599D9F16F07B7CAEEA9D310CCAD57B95D8C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Return of the Phantom (1993) [En] (1.01) License GOG
 ```bash
 magnet:?xt=urn:btih:B21CC24117CBE2CB0C454A822EB75590530A99CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

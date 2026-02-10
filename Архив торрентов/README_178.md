@@ -22,6 +22,8 @@ updated_sep_2024_x64_dvd_377ddb197.iso
 magnet:?xt=urn:btih:2450518D985F377CF3163EA408DCBE729E074E3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 magnet:?xt=urn:btih:48E7ED2041762A5F725BE97F3C0CC20C67E07B0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Yaplakal.com — популярное информационно-развлек�
 ```bash
 magnet:?xt=urn:btih:244BD090FB8676C8AEDDADCD9C5970572B60EC7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ updated_sep_2024_x64_dvd_377ddb19.iso
 magnet:?xt=urn:btih:A4EECBABE5D4FEC4BD498538DB9ABE9D6971D9EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:A4EECBABE5D4FEC4BD498538DB9ABE9D6971D9EA
 ```bash
 magnet:?xt=urn:btih:AD6349B4AF5071EDA2ABD2C79A2FD6CED5927F82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ Enscape - достаточно мощное ПО для 3Д-рендеринга
 magnet:?xt=urn:btih:7952CE9CC9FA18715D8A1950219D64EE5402D9B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:6688792E832B17BC0CCDCF79F67F3B13AE5D0733
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:72A658DB93EC062AF43C9F40DDC279C070DE4764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ CherryTree - функциональная программа, которая п�
 ```bash
 magnet:?xt=urn:btih:25AF2B87835ECC13FF3A3C89B693D6685F1EF375
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Media Player Classic Home Cinema - удобный во всех планах м�
 magnet:?xt=urn:btih:9D1C67005C8AFD63BB763B8F045033D6E300DD56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 magnet:?xt=urn:btih:0D8AD9D6F6DDF116B9B84D8935840C1572DAC205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:41ECFA86172DC70FFE8480D5818145A948F8FD3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Windows Vista, 7, Windows 8, 8.1, 10, 11 Server 2008, 2008 R2, 2012, 2012 R2, 20
 magnet:?xt=urn:btih:0A17CD1B061EC4E19BAD009DAAB3330677349215
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Hazure Waku no Joutai Ijou Skill | Hazurewaku | Failure Frame | Я стал си
 ```bash
 magnet:?xt=urn:btih:4D62EAE0D2BDA7924F7799CCBF8652091ADFDB28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:4D62EAE0D2BDA7924F7799CCBF8652091ADFDB28
 magnet:?xt=urn:btih:B74B418086CA1BC0D140DEF07DD3DA1F611ED285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:C14B8C6F151D6B3FCBC54A0A2A4F055375EFECBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:D09EB76F5BBC2BE4B4CA068BC465478EE60EA79E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ KStars - бесплатное, с открытым исходным кодом, 
 ```bash
 magnet:?xt=urn:btih:13C735BCCB0E93353336799B3DC6B5E40F12947A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ T-RackS 6 - это новейшее поколение известного пр
 magnet:?xt=urn:btih:2136CE185DE7B8901188BDB99CA37BA40C707413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:2136CE185DE7B8901188BDB99CA37BA40C707413
 ```bash
 magnet:?xt=urn:btih:D2AC789DFAD8BF4B55CAF1D9016984E0B9DC5B74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:66D85AE30B70703FAADC2F986FB52B0DDD036443
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 ```bash
 magnet:?xt=urn:btih:741C6778F7CCF03265F9EC6879ED1821FCC6306F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Macrorit Disk Scanner Unlimited - инструмент для проверки �
 magnet:?xt=urn:btih:762703A490D90A0AA603F1B66A8BCB5A2520900E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Bandizip — программа для работы с архивами. Дан�
 ```bash
 magnet:?xt=urn:btih:27ED4B07A913F3B517F81B867C0BC426C74251AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Glary Utilities - функциональный набор системных т�
 magnet:?xt=urn:btih:67763905184FE4A3331AFE1E653FF6ADEC526ACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:F8F7D36C37E013718A8849E27D9875DF7E8CAF80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

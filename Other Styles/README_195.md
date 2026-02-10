@@ -22,6 +22,8 @@ VA – Ball Room Dance Collection - Tango (2001) Compilation [FLAC|Lossless|imag
 magnet:?xt=urn:btih:1D03F42018507C377B2D1EA259E6A359DB151BE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA – Exotic Guitars From The Clovis Vaults - Including "World Wide Hits" (2010
 ```bash
 magnet:?xt=urn:btih:6351903D25D6852D2FCBEDD867E19BC8C1E08117
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Liliana Barrios - Troileana (2007) [FLAC|Lossless|image + .cue] <Tango>
 magnet:?xt=urn:btih:D080D82731C070D472E4A6CB3BD676561BB59FCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Markus Klepper - Akkordeon Classics (2000) [FLAC|Lossless|image + .cue] <Classic
 ```bash
 magnet:?xt=urn:btih:EA72A07A8599DA516A80B7C8C4F5E34185B67158
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - The Best Of Mystera (2001) 2 CD [OGG Vorbis|480 Kbps] <New Age, Synth-pop, 
 magnet:?xt=urn:btih:BD6924DC8D258F964F36CCA3EBCBEFC307301106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Mystera V (2000) [OGG Vorbis|480 Kbps] <Electronic, New Age, Ambient>
 ```bash
 magnet:?xt=urn:btih:AE7221D496B8DB0B1DE0BBE26D7454D9BED1E6E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Mystera IX (2002) [OGG Vorbis|480 Kbps] <Downtempo, Synth-pop, Ambient>
 magnet:?xt=urn:btih:0B02B8AC6D07218B7F039AB4FD84BFC1F036D4D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Harry Holland ‎– Superhits '85 Im Magic Accordion-Sound (1985) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:964F111ABE7009748ACAB5B7FA0B70D7572C480A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Cosmic Chill Lounge Vol.1-4 (2007-2010) [FLAC|Lossless|image + .cue] <Chill
 magnet:?xt=urn:btih:9092AF1C9FFEC87046D39C28CAAFAEBFD474F521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Erotica (1977) [FLAC|Lossless] <Instrumental>
 ```bash
 magnet:?xt=urn:btih:F48589D2A95E0BE1E37403FDD19B7A034BFD5261
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - La collection Latina Tango (2007) Compilation, Digipak [APE|Lossless|image 
 magnet:?xt=urn:btih:CC7EED3996B8319A87BE11BB10C7D883FDEFE7C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:CC7EED3996B8319A87BE11BB10C7D883FDEFE7C9
 ```bash
 magnet:?xt=urn:btih:E4ABBE4CD0A8CBE7AA946D345E2223AB9E9FE9F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:E4ABBE4CD0A8CBE7AA946D345E2223AB9E9FE9F1
 magnet:?xt=urn:btih:8DE961A8C2B3D5037F1CDA677636D71B9BC8C11B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Tango Planet – The Best Of Tango (1998) [FLAC|Lossless|image + .cue] <Tan
 ```bash
 magnet:?xt=urn:btih:6E323A2A5ADFE709876BF18B6C60D282B3304D13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Original Musette (2000) [FLAC|Lossless|image + .cue] <Instrumental, Accordi
 magnet:?xt=urn:btih:2AE378FF2B6741713BA0298852237A6D79FC21DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Bernd Steidl - Paganiniana (2001) [FLAC|Lossless|image + .cue] <Instrumental, Gu
 ```bash
 magnet:?xt=urn:btih:09D78677D48A73194545776A0E48661E5DB5DC34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ The Harmony Group - Spanish Guitar Tribute to Abba (2007) Brisa Records, 2015 [F
 magnet:?xt=urn:btih:F2CE098FFDF270F21BC8776589B1F2904C927DC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Sina Vodjani - Священный Будда (1998) Правительство �
 ```bash
 magnet:?xt=urn:btih:F48B3DA59F5DEBE29265FDC46C3D4E41FFDA297C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Spring Break 2023: Country Hits (2023) [MP3|320 Kbps] <Country>
 magnet:?xt=urn:btih:38D2E4E0CCF1A0EC8199C89C0CE07C90E2858629
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ Go_A - Шум (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock>
 ```bash
 magnet:?xt=urn:btih:6F5AED14D17650A0C57F87EF4C3E6817B3867C90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +598,8 @@ VA - A Cup of Chocolat Piano Winter Music (2021) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:33FC095A18B9D74CDB8ABEA5203A10421FE7D0FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +629,8 @@ Blackmore's Night - Shadow Of The Moon (2023) 25th Anniversary Edition [FLAC|Los
 magnet:?xt=urn:btih:C979B485CF82F614EFC6E90A1FD22D9B6B9DBD52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ VA - Enigma-Forest-Transit 13 (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient,
 ```bash
 magnet:?xt=urn:btih:6DF19E3ECB09159F2569881BC0BDECC336ADC4BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +687,8 @@ Yulia Monastyrenko - Reflection (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, P
 magnet:?xt=urn:btih:F91A2D57C562EFC719E0041C8EF02CB34F861365
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +716,8 @@ Amure (Alexey Khatsko) - Дискография (2010-2020) [FLAC|Lossless|WEB|t
 magnet:?xt=urn:btih:80FB8D57218B437DC372F2FB3DA0225FA8E10A73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ Wardruna - Kvitravn (2021) [FLAC 2.0|24/48|tracks + .cue|WEB-DL] <Nordic, Ambien
 ```bash
 magnet:?xt=urn:btih:356F4653DFC6E6CB6CC77757BFF69952971679F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

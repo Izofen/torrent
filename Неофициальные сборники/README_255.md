@@ -1,3 +1,32 @@
+###  Публикация: 1064249   (428041) от 19.10.2016
+
+VA - Relax to House Vol. 2 (2016) [MP3|320 Kbps] <House, Chillout, NuDisco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_428041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Twitchy, C.R.O.M.I - Going Down (Jarquin & Cano Remix)
+02. Andrew Krivushkin - I Feel So Free (Original Mix)
+03. Andy Lime - If You Can (Sasha Primitive Remix)
+04. Antonia - Morena (Artur Montecci Remix)(   Читать дальше...   )Жанр: House, Chillout, NuDiscoПродолжительность: 08:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EFE282D754615F8E93BFE21055DB10FD851B646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063586   (428046) от 19.10.2016
 
 VA - Best Chillout Vol.18 (2016) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
@@ -21,6 +50,8 @@ VA - Best Chillout Vol.18 (2016) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
 ```bash
 magnet:?xt=urn:btih:44C502C29DED06CD059E984BF6C73A24C42E0CE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +86,8 @@ VA - Инструментальная музыка (2012) vol. № 101 [MP3|320 
 magnet:?xt=urn:btih:8E03A376511E5CB207B6BFF5D3D5A8E6BE6D8E33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +114,8 @@ VA - Попсовая соточка от Хит fm (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:31B72E9F268AD83078BECAADA657CC067716F06F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +144,8 @@ VA - Отдыхаем Осенним Вечером (2016) [MP3|256 Kbps] <Ша�
 magnet:?xt=urn:btih:A64E98C39907B61F58816E288F26B9AB67A7CEBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -136,6 +173,8 @@ VA - Sport Neo Trance (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 magnet:?xt=urn:btih:1E4EEA8DDC1D52C08B13A12C77451329C27621E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +201,8 @@ C.C. Catch - Good Songs (2015) [MP3|320 кб/с]<Eurodisco, Pop>
 ```bash
 magnet:?xt=urn:btih:B8D41D0A42B43294B83D93E9C05ADEF0095F1EF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +237,8 @@ VA - Инструментальная музыка (2012) vol. № 99 [MP3|320 �
 magnet:?xt=urn:btih:6747065441E3047DD2B02887AFE3F0FA25A8A5F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +265,8 @@ VA - Hendkandi: Vocal Trance (2018) [MP3|320 Kbps] <Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:83BE328060A4514BC4C51B331E5CC35FE1195EC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +295,8 @@ Dalida - Good Songs (2015) [MP3|128 кб/с]<Pop, Shanson>
 magnet:?xt=urn:btih:58875F8539292BA106FEA14689E871530E89A4BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +324,8 @@ VA - Осень на Love Radio (2020) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:63E4C824DF00B5AFE85677EABBBF2A4431038D12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +352,8 @@ VA - Techno Funk: 100 Sounds New Generation (2018) [MP3|320 Kbps] <Techno, Elect
 ```bash
 magnet:?xt=urn:btih:7AF0E32CC1D0E9D39717CFB51423F80EAD396225
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +388,8 @@ VA - Инструментальная музыка (2012) vol. № 98 [MP3|320 �
 magnet:?xt=urn:btih:355A7C6B46BC2E8250C8E43A8611639F4F7A0EDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +416,8 @@ Amanda Lear - Good Songs (2015) [MP3|160 кб/с]<Pop, Shanson>
 ```bash
 magnet:?xt=urn:btih:09B1778EB3A33E4FC804987FB2B1B32A8D7987DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +446,8 @@ VA - Music For Everyone - Chillout & Lounge Vol.4 (2015) [MP3|320 кб/с]<Chill
 magnet:?xt=urn:btih:65E5635E576A83C6F4EAB61A0A09F4F5A3021DCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +474,8 @@ VA - Громкие новинки Сентября Vol.2 (2020) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:56AFDDF25714A1240625B9FDF03E298C9353DD1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +504,8 @@ VA - Bar Lounge Relax Sexy Ambient Ultra Chillout Music (2015) [MP3|320 кб/с]
 magnet:?xt=urn:btih:C3DF906BC22354C6ACAFC4D66A5528A67F2BD5B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +532,8 @@ VA - Galactic Lounge Exclusive Music Club Selection (2015) [MP3|320 кб/с]<Dow
 ```bash
 magnet:?xt=urn:btih:740C687250544DDDC782334EDAB82F24DB280779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +565,8 @@ VA - Club Dubstep - №12 (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:71DEF6602E217FFF4291EA8A4C45EEBB2800CDAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +597,8 @@ VA - Club Dubstep №10 - Level Up (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:17EFBD37DCD8584AC8C2A118D7994387DAA79147
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +626,8 @@ VA - When Evening Falls (2019) [MP3|320 Kbps] <Jazz, Blues>
 magnet:?xt=urn:btih:02AE83FD463FBF63B4085A10342EF6A912FE8E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +654,8 @@ VA - National Pop Music (Vol.04) (2020) [MP3|320 Kbps] <Pop, Dance, Folk>
 ```bash
 magnet:?xt=urn:btih:468688CD1418CEB46760AD995B834E556D4C59B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +687,8 @@ VA - Club Dubstep №9 - Black (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:8ECFE8F204E3286717B64E4D3E228566EEEE40E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +712,8 @@ N/AЖанр: Drum and BassПродолжительность: 01:11:46
 ```bash
 magnet:?xt=urn:btih:82FA58E547EA956D89086BB2A02A8D6383DB6692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +742,8 @@ VA - ЕвроХит Топ 40 Europa Plus 06.09.2019 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:A9197B1D7B250DF8B71026B7C8E9E20CC2CF9146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,32 +771,7 @@ VA - German Top 100 Single Charts 07.09.2019 (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:31DE71973952E3170C541470509062D967B663E9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411002   (429736) от 24.09.2020
-
-VA - R&B Soul Classics Songs (2020) [MP3|320 Kbps] <R&B, Rap, Hip Soul>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429736.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Zayn - Fresh Air
-002. Jor'dan Armstrong - Lose My Number
-003. Bigg Robb - Take It Off
-004. The Boys Choir Of Harlem - Interlude Don't Compare My Singin'(   Читать дальше...   )Жанр: R&B, Rap, Hip SoulПродолжительность: 07:13:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F6F183623D5F8D661B16974A8B3CDBD8B47A2A4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

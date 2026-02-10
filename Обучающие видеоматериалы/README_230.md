@@ -20,6 +20,8 @@ Mindvalley, Джим Квик | Супермозг (2018) WEBRip
 magnet:?xt=urn:btih:7769D38DF574F365B72B3D2380E36FF0510E49B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ kalachevaschool, Анна Михеева и др. | Акварель «Ката�
 magnet:?xt=urn:btih:80FCDFB125E8CD8A5F2073CDA5004F2264F731FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ TRX TV | TRX Strenght Workout (2008) DVDRip [EN]
 ```bash
 magnet:?xt=urn:btih:A8533122920B597E26FCA1CC3D85CE3B3ECCB888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Edge Animate доступен, прост в использовании,обла
 magnet:?xt=urn:btih:4CB5857419D12D94572DCD92CB48EA3E4208CCAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:4CB5857419D12D94572DCD92CB48EA3E4208CCAA
 magnet:?xt=urn:btih:E4074330EC4F899BF874C530AF308319A7939A69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:E4074330EC4F899BF874C530AF308319A7939A69
 ```bash
 magnet:?xt=urn:btih:4C3B857F8E721523030608415921A681A8D83677
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ For over a decade, ZBrush has been the industry standard tool for digital sculpt
 magnet:?xt=urn:btih:1747F9057B5F419C320587AB03D80E7ADCC0DE97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:1747F9057B5F419C320587AB03D80E7ADCC0DE97
 ```bash
 magnet:?xt=urn:btih:CCB3E3ED21D5908E3E4EA8F513CC93F0E2A9E15F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:CCB3E3ED21D5908E3E4EA8F513CC93F0E2A9E15F
 magnet:?xt=urn:btih:2ECC364BC19E66C00F964240F47C652E5C0EEDAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:2ECC364BC19E66C00F964240F47C652E5C0EEDAD
 magnet:?xt=urn:btih:1D0204119B411A9DF86B298E49663963AAA48E0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:1D0204119B411A9DF86B298E49663963AAA48E0C
 ```bash
 magnet:?xt=urn:btih:0011C1B521FAAA653F75CC921164DAF7FCC11408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:0011C1B521FAAA653F75CC921164DAF7FCC11408
 magnet:?xt=urn:btih:5DC7F0501D5329CA019990F6E2ABCA0075EBDA06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Udemy, Gabriel Aguiar | Unreal Engine 4 - VFX for Games - Beginner to Intermedia
 ```bash
 magnet:?xt=urn:btih:0A83EE88A0D2328D3A7D52E03F9096A543A59A4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:0A83EE88A0D2328D3A7D52E03F9096A543A59A4F
 magnet:?xt=urn:btih:52BCB890CB9464034A111A729D6D5FB1F8BBDA2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:52BCB890CB9464034A111A729D6D5FB1F8BBDA2C
 magnet:?xt=urn:btih:2344062DB8B54214A1B5E4743EC682AECE8399B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:2344062DB8B54214A1B5E4743EC682AECE8399B2
 ```bash
 magnet:?xt=urn:btih:35BB9E01FD93236F66267252B89EDD0FB084A64F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:35BB9E01FD93236F66267252B89EDD0FB084A64F
 magnet:?xt=urn:btih:9BFD444885B069AD5C9D39DEB51E1B9B313AAF51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:9BFD444885B069AD5C9D39DEB51E1B9B313AAF51
 magnet:?xt=urn:btih:6AEE5EF7D1327477D4CF1F5A3F3FFB28F4AB10A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ Geekbrains | Blockchain (2017) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:3D43DAB9CF3EEEAE67AE32B5F855EDC10F9737CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:3D43DAB9CF3EEEAE67AE32B5F855EDC10F9737CF
 ```bash
 magnet:?xt=urn:btih:ADA6F0738DC3C5885F8D38D8199554F4F73B7E44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:ADA6F0738DC3C5885F8D38D8199554F4F73B7E44
 magnet:?xt=urn:btih:CF5444133D99EDBDDB00503481D8632ADC793449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ WingFox, Xiao Yan | Lady Gunslinger - A tutorial of production of a model of a f
 ```bash
 magnet:?xt=urn:btih:38003E980D7C9E5CFE43064DBD40737B92101A65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ HTML и CSS это два самых популярных языка для из
 magnet:?xt=urn:btih:B3187A544C45D835D040BD553D669F4D2A37BAAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ Zend Framework 2 – библиотека классов с открытым и�
 ```bash
 magnet:?xt=urn:btih:4B8903DCDED76A0A9F3C9AD9790F8FF5244847D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:4B8903DCDED76A0A9F3C9AD9790F8FF5244847D8
 magnet:?xt=urn:btih:E94E0C1FDA69DAF2EDDB05FDCA643F30442C7CA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ YoRender | Курс 3ds Max для начинающих (2015) PCRec
 ```bash
 magnet:?xt=urn:btih:60D26D71D89CC4F4908CDC8BDBD908083A3030D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

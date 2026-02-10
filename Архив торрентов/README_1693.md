@@ -20,6 +20,8 @@ RightFont - менеджер шрифтов с красивым интерфей
 magnet:?xt=urn:btih:84CA328EF04CA73354D90E1EF64036DA15E52D35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ YT Saver Video Downloader & Converter for Mac 7.0.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:7B5B410846200FFADACE14CDBC71585D23CA06EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ PDF-XChange Pro — универсальное решение для работ�
 magnet:?xt=urn:btih:79C11DAA3F717B8198AEF4394951EE638AE274CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ SyncTime - самое простое решение для синхрониза�
 ```bash
 magnet:?xt=urn:btih:5EE27CE1B75D1ED1B3D3C36A0E283342013D2345
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ GeoGebra — мультиплатформенная программное об�
 magnet:?xt=urn:btih:75331EAB05C8DECA41741B1259EB6FB3EF2A02D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:C252371568325E48220B69A85DE1E19B03F17889
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ n-Track Studio Suite 9.1.8 Intel/ARM [Multi/Ru]
 magnet:?xt=urn:btih:C16F186E05EA1E9D1F379C18F1CE614BA66A7A98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ iON: Internet Status 5.6 [Multi]
 ```bash
 magnet:?xt=urn:btih:7FA67252FE97BFEC4DBFC1D930D115C444732083
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Texifier — это редактор LaTeX, предназначенный дл�
 magnet:?xt=urn:btih:A7674477E932FEE7E30E4C0BAFF811BBF3470F97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 ```bash
 magnet:?xt=urn:btih:A368ACC9C9916EA9338C38640B3BA23FA736D52B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ FITLAB, А.В. Михалевский | Бои без правил для диа
 magnet:?xt=urn:btih:408DDEDD0FFD3C867DBAFF7BCACC74A375F8BD3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ File Juicer может быть использован (   Читать дал�
 magnet:?xt=urn:btih:768568E898148F29F1C2E35A61DE899BAA999B00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ XYplorer - удобный мультивкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:DE6E27EF63CBCF87A0CE33306194B74173D50E85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Permute - очень простой видео конвертер с миним�
 magnet:?xt=urn:btih:E92A2F21401E982CA0D20775AD973926DB3CC0AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:4970AFD0BC311CA8117E44B2541E1E7D5F6ECB2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ DoubleTake - приложение предназначено тем пользо
 magnet:?xt=urn:btih:F6F32B31A86AE0126CBA9943C55402501444E11D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ FSNotes - это менеджер текстовых заметок для macOS
 ```bash
 magnet:?xt=urn:btih:BD7A7CEDE65300F9D5413AE19158EA0BBE091E30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-
 magnet:?xt=urn:btih:8A4695714A5DEC1FC65CF23C20AC98BCE0D0E3C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ SiteSucker Pro - это расширенная версия SiteSucker, кото
 ```bash
 magnet:?xt=urn:btih:A094DF16C6410C3DB076C019BC15831A48ADE831
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ EdgeView 3 - это новейший просмотрщик изображени
 magnet:?xt=urn:btih:E73FC94B9E9B74BAF0941D98FAFE7C0481053694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ System Toolkit - приложение «все-в-одном» для монит
 ```bash
 magnet:?xt=urn:btih:6F8168F473A501D3335C0D23E7545176A13B17EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 magnet:?xt=urn:btih:9C4B7B8C260A0FF4DBDDE3A33F07394D54E34A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Perfectly Clear WorkBench позволяет всего за пару клико
 magnet:?xt=urn:btih:4799EA6EE0D561E4472FA15B6A987578FE8F110E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ DMG Canvas создает образы дисков (.dmg). Процедура �
 ```bash
 magnet:?xt=urn:btih:25BB5D481F108B9D17EE6E309BDBA28697777652
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ WinSCP, это FTP и SFTP клиент с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:3D494E2F8E4939D7F9F2F84A172AEB94FB944481
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +681,8 @@ Viber, вне зависимости от того каким устройств
 ```bash
 magnet:?xt=urn:btih:CA639821E069915ACEA02B9482DBD8DB0E277BB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

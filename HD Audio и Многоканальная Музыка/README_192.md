@@ -22,6 +22,8 @@ At the Gates — шведская мелодик-дэт-метал-группа,
 magnet:?xt=urn:btih:0F95D624568EF20257BD4F6B1226F564DA8B37FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Avalon — восьмой и последний студийный альбом 
 ```bash
 magnet:?xt=urn:btih:9F1CC44F4A4D57A9E3A9F5AAA8A918F34AF096CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ A3 Help! (Help!)(   Читать дальше...   )Жанр: Beat, Pop RockПр
 magnet:?xt=urn:btih:C88A6C65591CF69EDDB3F37FD061C2C53813192B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Various Artists – Telarc SACD Sampler I (2002) [DTS 5.1 44.1 /16 | .wav+.cue (
 ```bash
 magnet:?xt=urn:btih:6A34C459AC3A026A5DB8BB8D63024DC1E6FE764E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Telarc Heads Up SACD Sampler Vol 7 (2009) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] 
 magnet:?xt=urn:btih:E1F0145D314C14A655120B3B2E310342B4BAD24F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Telarc Heads Up SACD Sampler Vol 5 (2005) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] 
 ```bash
 magnet:?xt=urn:btih:5D4212292897F7A88AE1C3015010B4932F1A02E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Camel - 5 Albums (1974 - 2002) [DTS 5.1|tracks (Upmix)]<Progressive rock, sympho
 magnet:?xt=urn:btih:80AFEB5A0666EBCCADA4B06E14601EFB7E90608C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ V/A - Best of Chillout Moods (2005) [DTS 5.1|tracks (upmix)] <Blues, Electronic,
 ```bash
 magnet:?xt=urn:btih:67028093889178F1D8A726D424A92E81C45797E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Doro (Dorothee Pesch) — немецкая певица, экс-вокалист
 magnet:?xt=urn:btih:C372952D471446A3A9610BA276D7348227003990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Evile — британская трэш-метал-группа, сформир�
 ```bash
 magnet:?xt=urn:btih:F672D0A1B05F47DBEEEE2E823802ED84FCAE36A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Angelus Apatrida - трэш-метал группа из Альбасете, И�
 magnet:?xt=urn:btih:D87BCE0385384610A15E6892EE316C30AD015C24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ illenium - ILLENIUM (2023) Remixes [FLAC 16/44.1; 24/44.1; 24/48|Lossless|WEB-DL
 magnet:?xt=urn:btih:E79B2A8E0C89E4FB243B2A42C914E2DADD0B6F65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +369,8 @@ A4 Америка(   Читать дальше...   )Жанр: ChansonПродо
 ```bash
 magnet:?xt=urn:btih:92D0DD2F629618176FE3824694F0D366E7F648D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +400,8 @@ Ayreon - Universal Migrator, Pt. I & II (2000) 2022 remixed & remastered [DTS 5.
 magnet:?xt=urn:btih:8CF9EC72A945A7D35F72BB3A5DCD9060CD6F9EDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ James Blunt - Who We Used To Be (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 ```bash
 magnet:?xt=urn:btih:3524940E2773CC9148E3F7190D46B7F2F0EBF226
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +458,8 @@ Butcher Babies — американская метал группа из Лос-
 magnet:?xt=urn:btih:0DA661C389E4F781C2601AB5481DEC028227949A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +486,8 @@ A4 You And I(   Читать дальше...   )Жанр: Smooth Jazz, Soul, Fun
 ```bash
 magnet:?xt=urn:btih:D762DE48E3BE4104DB6252EB6CCE61BFD52ABD26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +516,8 @@ Battle Beast — финская хэви-метал-группа из Хельс
 magnet:?xt=urn:btih:D54000534ACA8DF8939623144159B2EB51A68A6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +544,8 @@ CD-1
 ```bash
 magnet:?xt=urn:btih:0A63579A7DB7B58E85D099C042B21FCD64B0B8DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +574,8 @@ War Curse - Confession (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Heav
 magnet:?xt=urn:btih:28FCAA72587065BDADE01C8FF84B559B7C2C53B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +602,8 @@ Empire of Disease - Shadows in The Abyss (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:7E6DCB5884F7682F9C96BB6D25749B60B6600020
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +632,8 @@ Execution Day - HEAL (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, Alte
 magnet:?xt=urn:btih:E373CF70C3C93500CB9EDF6EA4440057BD5E4E97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +660,8 @@ Portishead - Roseland NYC Live 25 (1998/2023) Remastered [FLAC 24/48|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:A4001162E704FBD0A76B0A4A02CFF8065AB122E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +690,8 @@ Secret Sphere - Blackened Heartbeat (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:58B8F3AC85A875673627B09A5D0296FED1198C8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +719,8 @@ D'Virgilio, Morse & Jennings - Sophomore (2023) [FLAC 24/48|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:3A6C6ADCB6C6AF2160BAF0D97A88C1EFEC15C6F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ Hinayana - Shatter And Fall (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodi
 ```bash
 magnet:?xt=urn:btih:AB8EEFD90DD69020A9D39C198BEBE268DCB9DE98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

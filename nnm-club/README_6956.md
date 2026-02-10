@@ -22,6 +22,8 @@ VA - Nu Disco Vol.2 [Compiled by Zebyte] (2016) [MP3|320 кб/с] <Nu Disco>
 magnet:?xt=urn:btih:FEF652AF7E40DB1882106B92DE3E43A29FA182F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:FEF652AF7E40DB1882106B92DE3E43A29FA182F7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:FEF652AF7E40DB1882106B92DE3E43A29FA182F7
 ```bash
 magnet:?xt=urn:btih:C32FAD40CB6CEC309BA186F8CBF5A8458D410FE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:C32FAD40CB6CEC309BA186F8CBF5A8458D410FE5
 magnet:?xt=urn:btih:6440A4902DEB43F3AC12E5B2DA180BC3A77DA906
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:6440A4902DEB43F3AC12E5B2DA180BC3A77DA906
 ```bash
 magnet:?xt=urn:btih:06A9C34AE30CB4721A7151EA3949284249017234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:06A9C34AE30CB4721A7151EA3949284249017234
 magnet:?xt=urn:btih:7D32AAA709C318BCC75E07E74714DB5286893124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:7D32AAA709C318BCC75E07E74714DB5286893124
 ```bash
 magnet:?xt=urn:btih:EFC093B90B34B5202D8937DDB88222DF64546C0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ SolSuite Solitaire 2022 – высококачественная игра, ко�
 magnet:?xt=urn:btih:FC4441803E7426C888F97EB4EB02BC1200A1F99E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:FC4441803E7426C888F97EB4EB02BC1200A1F99E
 ```bash
 magnet:?xt=urn:btih:D877EEE52CB755A8AA7187676511A823E4F636A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ VA - 90s Ballads (2023) [MP3|320 Kbps] <Alternative, Ballad, Soft Rock, Vocal>
 magnet:?xt=urn:btih:E1FBAD48B502460965D2D98D380F800C62B1DCEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:E1FBAD48B502460965D2D98D380F800C62B1DCEA
 ```bash
 magnet:?xt=urn:btih:2A77F090732EFE1FDD2405FA75DDD645C7D05F23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:2A77F090732EFE1FDD2405FA75DDD645C7D05F23
 magnet:?xt=urn:btih:A87A735A3E1B398A55034330B43E3A54BD597683
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:A87A735A3E1B398A55034330B43E3A54BD597683
 ```bash
 magnet:?xt=urn:btih:E319AB859FE66D1674184E2E10DD79770E639FAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Joplin - это бесплатное приложение для создани�
 ```bash
 magnet:?xt=urn:btih:2D517075F9363BD85285E19C4D17462D4640E96F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:2D517075F9363BD85285E19C4D17462D4640E96F
 magnet:?xt=urn:btih:ED0351A352E7D79CEBF3908379A65D3269E087E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:ED0351A352E7D79CEBF3908379A65D3269E087E3
 ```bash
 magnet:?xt=urn:btih:6087D96F9BAAA45259498B84194E11723B76B357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Distant Desktop - портативная утилита, которая позв
 ```bash
 magnet:?xt=urn:btih:6302D4684C55BF324144F26E024B67537ACC379D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ Media Player Classic - BE – универсальный проигрывате�
 magnet:?xt=urn:btih:CA9E422FEA551F116FA3F9C1B64909F0C0777C59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:CA9E422FEA551F116FA3F9C1B64909F0C0777C59
 ```bash
 magnet:?xt=urn:btih:6F2F5C93C341D3BE4AFEDC60F4294176C63CDCFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:6F2F5C93C341D3BE4AFEDC60F4294176C63CDCFE
 magnet:?xt=urn:btih:B0EFDF4260779ECF959AA381D86DC0D3C0DE529E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:B0EFDF4260779ECF959AA381D86DC0D3C0DE529E
 ```bash
 magnet:?xt=urn:btih:87987ADB08864D7580159F64681EAC4972FC9729
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ A Tale of Paper: Refolded — это платформер-головоломка
 magnet:?xt=urn:btih:3F479521C464B17DB21258BDA21D8E3D3A004DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:3F479521C464B17DB21258BDA21D8E3D3A004DE0
 ```bash
 magnet:?xt=urn:btih:0F8681449EE96AE31A39ECFEB4BA1D27AF1A0B39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ R-Studio Network 9.2 Build 191161 RePack (& portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:93B9935E6B1BE8986653E22E815D3BC47640987C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:93B9935E6B1BE8986653E22E815D3BC47640987C
 magnet:?xt=urn:btih:39BE763D7BB8E6CC732CF79ACB65754C69B0FFF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Total Commander 10.52 (08.01.2023) Portable by MiG [Ru/En]
 ```bash
 magnet:?xt=urn:btih:C3CC8AC0015BBC42E47864C56C2F5F6E539F7D62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Magic Deep-House, Vol. 2 (2025) [MP3|320 Kbps] <House, Deep House, Dance, C
 magnet:?xt=urn:btih:2253D389B3F84C7375C6E069BBF71A44197F7DE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:2253D389B3F84C7375C6E069BBF71A44197F7DE8
 ```bash
 magnet:?xt=urn:btih:ED464750DE968AAF37BAE684182FA44C0D622D3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Русская 30-ка хитов 16 (Новые русские песни)
 magnet:?xt=urn:btih:471D57C228BCAF3286C5D920823DE8E5D8F4F994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ VA - Лучшая дискотека шансона - 20 (2025) [FLAC|Lossless|W
 magnet:?xt=urn:btih:4F05FCEA8F810D89AE66D92210669B11CDE2C4D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ magnet:?xt=urn:btih:4F05FCEA8F810D89AE66D92210669B11CDE2C4D4
 ```bash
 magnet:?xt=urn:btih:0C76146AC36336779EB256119BB902EE0484EC25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ VA - Новые хитовые песни 2025, Часть 8 (2025) [FLAC|Lossle
 magnet:?xt=urn:btih:0CA690690A553DE8695CE9A60776C66CB522DD17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ VA - Brisa (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Afro House>
 magnet:?xt=urn:btih:78E2F4785FEA15C6EA3F63FBF6DD1A77CBA335BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ magnet:?xt=urn:btih:78E2F4785FEA15C6EA3F63FBF6DD1A77CBA335BF
 ```bash
 magnet:?xt=urn:btih:9680D8F78F8942CA399803D53946AC35501F45A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +250,8 @@ Linkin Park - The Hunting Party (2014) Australia, 9362493698 [FLAC|Lossless|imag
 magnet:?xt=urn:btih:F290F8465F828F83377EACA2301A70C0F374255C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +275,8 @@ magnet:?xt=urn:btih:F290F8465F828F83377EACA2301A70C0F374255C
 ```bash
 magnet:?xt=urn:btih:25FE483252BE994F64034F83C67C06DB20F5BAB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +305,8 @@ magnet:?xt=urn:btih:25FE483252BE994F64034F83C67C06DB20F5BAB3
 magnet:?xt=urn:btih:F2C26AE8F5DA9E8D78EE9A98AF2871EE1BEFFA13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +333,8 @@ Insania - The Great Apocalypse (2025) Japanese Edition [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:4F753F025B48CE526A266A620D25CC332B54C5A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +363,8 @@ VA - Новые хитовые песни 2025, Часть 7 (2025) [FLAC|Lossle
 magnet:?xt=urn:btih:F324DB783CE4E4EC00F73C9E302BDC1AA3AD2BF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +391,8 @@ VA - Redux Selection, Vol. 9 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tra
 ```bash
 magnet:?xt=urn:btih:E4F65F2127FEACC2D626CEC04619EEAEF929442B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +421,8 @@ magnet:?xt=urn:btih:E4F65F2127FEACC2D626CEC04619EEAEF929442B
 magnet:?xt=urn:btih:B3903A3D19A2D90639105421584E12183EFF6CFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +450,8 @@ Hans Koller - Minor Meetings (1958) 2014, Sonorama Records [FLAC|Lossless|image 
 magnet:?xt=urn:btih:BD47D61BA080AD686E066D8180BBE8E15AA7321A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +476,8 @@ magnet:?xt=urn:btih:BD47D61BA080AD686E066D8180BBE8E15AA7321A
 magnet:?xt=urn:btih:2FF0BCA0C551BAD84BD79A1492869299A30E061B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +501,8 @@ magnet:?xt=urn:btih:2FF0BCA0C551BAD84BD79A1492869299A30E061B
 ```bash
 magnet:?xt=urn:btih:C5EB0FBCA1A520F64FF856204BFBD8D779422C90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +529,8 @@ magnet:?xt=urn:btih:C5EB0FBCA1A520F64FF856204BFBD8D779422C90
 magnet:?xt=urn:btih:80C6029247861D5F4B3C33EE4AFBAC2B9BB49685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +555,8 @@ magnet:?xt=urn:btih:80C6029247861D5F4B3C33EE4AFBAC2B9BB49685
 magnet:?xt=urn:btih:2C27A6638FD675049F9A64C8290F8C45894EE692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +580,8 @@ magnet:?xt=urn:btih:2C27A6638FD675049F9A64C8290F8C45894EE692
 ```bash
 magnet:?xt=urn:btih:528B2A68F4194351BAD44BA86DF656271D610086
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +610,8 @@ Anna Zueva - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Easy Listening, 
 magnet:?xt=urn:btih:3403E8545922B31C407E99A7F28AC503C31ACB96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +639,8 @@ VA - Musical kaleidoscope part 52 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 magnet:?xt=urn:btih:BA017B798950FD3D4FA009F0E5D453F4E400861D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +664,8 @@ magnet:?xt=urn:btih:BA017B798950FD3D4FA009F0E5D453F4E400861D
 ```bash
 magnet:?xt=urn:btih:DF7F18DD6BD5676318C1D35498513A83FF862187
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +694,8 @@ Queen - Rock N Roll (2025) Remastered, 2011, UME - Global Clearing House [MP3|32
 magnet:?xt=urn:btih:FBC61A73FB2F3ADCC78DC2507183365CFA10A53E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +722,8 @@ King Diamond - Remember The Block (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Me
 ```bash
 magnet:?xt=urn:btih:C3B9730D034F7A3D9D2B3F1DA27AE85EF791894B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

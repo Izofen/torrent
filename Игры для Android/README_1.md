@@ -20,6 +20,8 @@ Wreckfest предлагает множество вариантов улучш�
 magnet:?xt=urn:btih:7A22EE36A68CA78308AD5F95E8D9A13276DECDBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ The Forest Quartet — повествовательная 3D-головолом�
 ```bash
 magnet:?xt=urn:btih:A48BD3E2E258D1E96AEBDEFAAC027D40267D5515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ A Perfect Day - это сюжетная игра-головоломка с вр�
 magnet:?xt=urn:btih:DDD738BD35C188E2DD64B4DFDA2216D333AA0600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Legacy - Reawakening v1.0.7.3 [En]
 ```bash
 magnet:?xt=urn:btih:6AD84FE1C5440F8FDFC24DD6C7496739D1F477D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Street Fighter IV CE v1.08.00 [En]
 magnet:?xt=urn:btih:3963E3CA3B21474191189F0896D761BB9DEDB0F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Bright Memory: Infinite v1.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:7B7C2B88EFC340301C446DF234A37ADE4F0C2F33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Carmen Sandiego NETFLIX v1.0.1g [En]
 magnet:?xt=urn:btih:349FB2976F042726CFE17FA2CD74B0B680E08C7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Shogun's Curse v1.1 [En]
 ```bash
 magnet:?xt=urn:btih:B87874C5A69E8D02596A0E5D6654DF70BDF80B36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Ninja Turtles: Legends v1.26.5 [En]
 magnet:?xt=urn:btih:25C776B801DD5129E2CA0051760BF1A3ED1F0B90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ ISOLAND: Pumpkin Town — это игра-головоломка, о котор�
 ```bash
 magnet:?xt=urn:btih:B10366A1503FD466AA19B4CBCD3CF59784F6475E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Cover Fire: Offline Shooting v1.32.17 [En]
 magnet:?xt=urn:btih:F405D03737B3CC8BB756FB19732315895FFEC907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Grimvalor v1.2.9 [Ru]
 magnet:?xt=urn:btih:BD8605A1D86F714737BF276BEA336A7E58883E75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Figment 2: Creed Valley – это приключенческий экшен, д
 ```bash
 magnet:?xt=urn:btih:1A73C7C96A77B07A3FBE21922ED65030AD01F577
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Dragon Quest X Offline v1.0.0 [En]
 magnet:?xt=urn:btih:59A5597A5A336A6BF04C83367621AC8CFE9ED338
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Dungeons of Dreadrock 2 v1.0.4 [Ru]
 ```bash
 magnet:?xt=urn:btih:890070CF3EE1C01D6B67CC1D7DD373A4B99D452D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Grand Mountain Adventure 2 v1.010 [En]
 magnet:?xt=urn:btih:A03C613981BDAEB6A7BB9F28C5FF29FC1F03F450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Serial Cleaner — это стелс-экшен, действие которог
 ```bash
 magnet:?xt=urn:btih:083C3BC8BBDDECA771E3EDB447073DB837F7177D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v1.7.5 Mod by v
 magnet:?xt=urn:btih:090F386C301BCCC3A60AD19830DB4436514B2CAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Ocean Match / Рыбки: Три в ряд v3.0.7 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:8A8A379860619F9AFF0AAEC87B410B73C4476D59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:8A8A379860619F9AFF0AAEC87B410B73C4476D59
 magnet:?xt=urn:btih:5DDADA952E6A7087AE6B8F7BB027C43AE3AEA212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Hero's Adventure - это ролевая игра в жанре уся с отк
 ```bash
 magnet:?xt=urn:btih:639ACAD31CF2ED33EA299751552DCD4E3F102D72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ Together We Live v1.0.1g [En]
 magnet:?xt=urn:btih:82B31EB81AA5BEB8469E6B5785C6F8DAEBA2333B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ Teslagrad –это 2D-головоломка-платформер с элеме
 ```bash
 magnet:?xt=urn:btih:E0A037DF334F2E6BFE4F558DA3E08F6A4EDBA0C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ Reaper v2.0.2 [Ru]
 magnet:?xt=urn:btih:F0B2A2418FEF29C69212A08CEC6A98E4A828782D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ Bright Memory: Infinite v1.0 b82 [Ru]
 magnet:?xt=urn:btih:89FB35D586742CBEF962CB0E5FE2CC4DD8D6ECFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Arcane Quest Legends 2 Offline v1.0.10 [Ru]
 ```bash
 magnet:?xt=urn:btih:8BA1FABC0C98A1EC1A37CAE64569DF84FA8CB42C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

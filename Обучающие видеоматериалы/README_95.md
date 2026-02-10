@@ -22,6 +22,8 @@ Foxford (Фоксфорд), Валерия Савина | Практически
 magnet:?xt=urn:btih:E0BC6EC425D43B2BFA22AA672BC27CE08BFDC034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:E0BC6EC425D43B2BFA22AA672BC27CE08BFDC034
 magnet:?xt=urn:btih:5999FADF92B43DC73BE996EB94DA58155728E576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:5999FADF92B43DC73BE996EB94DA58155728E576
 ```bash
 magnet:?xt=urn:btih:794C3AAD09B01B8D52CBA51FD3438583AFAC6F8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:794C3AAD09B01B8D52CBA51FD3438583AFAC6F8F
 magnet:?xt=urn:btih:0464DD549B1B966454D0848240102C69E54130E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ magnet:?xt=urn:btih:0464DD549B1B966454D0848240102C69E54130E1
 magnet:?xt=urn:btih:D28E039EB7FBB3B704595822A4E55434B6A91D1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:D28E039EB7FBB3B704595822A4E55434B6A91D1B
 ```bash
 magnet:?xt=urn:btih:2822525C4E1337F3EDEB95B0E015791EE52B6B05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ C# - один из немногих языков программировани�
 magnet:?xt=urn:btih:994E49786C99EF358002723E448E51DE2B1A31FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:994E49786C99EF358002723E448E51DE2B1A31FF
 ```bash
 magnet:?xt=urn:btih:0E29AAF147DEEEE349E0B607B1CE812089DD0651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:0E29AAF147DEEEE349E0B607B1CE812089DD0651
 magnet:?xt=urn:btih:042EB0AC5EC489C25EB377BEB379260CD662F093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ MasterClass.com, Гарри Каспаров | Garry Kasparov Teaches Chess / Г
 ```bash
 magnet:?xt=urn:btih:21AE21441C3253C0A669CAE965D82D4672B8C4E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ YouTube-каналПроизводство: English with MaryЖанр: Виде�
 magnet:?xt=urn:btih:56B9DA5C113C3E3892084F9CA1CB0D3A4F89C4FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ FlippedNormals, Emiel Sleegers | Ultimate Weapons Masterclass (2021) PCRec [EN]
 magnet:?xt=urn:btih:87F6E0D8A472CE7F3E894F2C48DC16E1BF776F8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ Foxford (Фоксфорд), Алла Васильева | Курс по англ
 magnet:?xt=urn:btih:AF42985F3E41D60C983C3EF01C0B6DFE0CECD481
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ Apeiron, Алексей Арестович | Семинар «Картина м�
 ```bash
 magnet:?xt=urn:btih:EEF082AE6EC1E4A042E87A55541250449AB7F633
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:EEF082AE6EC1E4A042E87A55541250449AB7F633
 ```bash
 magnet:?xt=urn:btih:86D9B08DAD7F1AE61A9E3DBF3013524B66D5B869
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:86D9B08DAD7F1AE61A9E3DBF3013524B66D5B869
 magnet:?xt=urn:btih:0C82AEA7632B3C28BB5D9DDFB8B770C22F2A43D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:0C82AEA7632B3C28BB5D9DDFB8B770C22F2A43D3
 magnet:?xt=urn:btih:231EC9376141B1DB3B51A4827F2DC7FB13649037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ Wingfox, Pierre Schiller | Stylized 2D Toon Shader in Blender (2021) PCRec [EN /
 magnet:?xt=urn:btih:E22B77D64D56BA692E953BADC944EB28BA9FF3FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ Udemy, Yassine Larayedh | Create Realistic Highlands in Blender (2023) PCRec [EN
 ```bash
 magnet:?xt=urn:btih:F1DA08F31A6FF4874F1198A663B106A61B390C6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ Wingfox, Jose Moreno | Stylized Texturing for Video Games with Blender (2023) PC
 magnet:?xt=urn:btih:4FA041E30009FD1919BFCF4FCB2BA5D850F7A446
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ Foxford (Фоксфорд), Ольга Булатицкая |  Chitty-Chitty, Ba
 ```bash
 magnet:?xt=urn:btih:8A08744A948C2E1F10326C4E588F6E10ABE3FD2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:8A08744A948C2E1F10326C4E588F6E10ABE3FD2D
 magnet:?xt=urn:btih:9B2F2F66E7E28B5298499B56B1BD639C0E96A921
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:9B2F2F66E7E28B5298499B56B1BD639C0E96A921
 magnet:?xt=urn:btih:C519E5B269FF2E051ED5B77714527E7B44EA57BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ Apeiron, Алексей Арестович | Семинар «Безжалост
 ```bash
 magnet:?xt=urn:btih:23AE726ABA19211C57B0F0685D78767F7F2AA210
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ PolskieCentrumKLD, Томаш Оманьски | Полный курс поль�
 magnet:?xt=urn:btih:85524749B5A8989C70A1058DB85E2EE1AF0D0925
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ Proko, Ahmed Aldoori | Med's Map - Your Guide to Digital Painting Mastery (2021)
 ```bash
 magnet:?xt=urn:btih:7811CBC35C666C909C6587F6694F53F77F35BDAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -23,6 +23,8 @@
 magnet:?xt=urn:btih:79C0DAADE8D07C6E4F12CF837D7FB0EA87B0F6A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Kinect Star Wars позволит вам погрузиться в игру, в�
 ```bash
 magnet:?xt=urn:btih:FD6E5C7D3E4AF73DC283CE767C1319C1E4F1AA2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:FD6E5C7D3E4AF73DC283CE767C1319C1E4F1AA2C
 magnet:?xt=urn:btih:B800D17A29A5880D3A8393F76756F6C0EAD94A11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:B800D17A29A5880D3A8393F76756F6C0EAD94A11
 ```bash
 magnet:?xt=urn:btih:526E365DCBC73C9309A8910B3CD05D8D6BE71706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:526E365DCBC73C9309A8910B3CD05D8D6BE71706
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Street Fighter x Tekken (L) [Multi11\+] 2012 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:EAD7FFB21FC8E73BF6EB4E57C62648098C9D3373
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:EAD7FFB21FC8E73BF6EB4E57C62648098C9D3373
 magnet:?xt=urn:btih:348548873B9373506F6703687AB42C1EDEADF4F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:348548873B9373506F6703687AB42C1EDEADF4F5
 ```bash
 magnet:?xt=urn:btih:2AF0886843983B045C069505B8B72D060A940104
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:2AF0886843983B045C069505B8B72D060A940104
 magnet:?xt=urn:btih:C9AA53D7DFE00422B866CC855D05B97D86984A8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:C9AA53D7DFE00422B866CC855D05B97D86984A8F
 magnet:?xt=urn:btih:FD5F00F2BFDC0A1AE849AE577C171E0B6C81980B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:FD5F00F2BFDC0A1AE849AE577C171E0B6C81980B
 ```bash
 magnet:?xt=urn:btih:D7B1D91C53B82C4EE9CF76D6DE49BB9E83E70E99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:D7B1D91C53B82C4EE9CF76D6DE49BB9E83E70E99
 magnet:?xt=urn:btih:5404924ED8CC24EEAE62963F1ED97FF8B7D7608D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:5404924ED8CC24EEAE62963F1ED97FF8B7D7608D
 ```bash
 magnet:?xt=urn:btih:2ABCC0C93DD44F5B2143162E4C8236EBEE9F2B80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:2ABCC0C93DD44F5B2143162E4C8236EBEE9F2B80
 magnet:?xt=urn:btih:A6C5CD6952CADD090580B8A329769C9835FD74C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Tales from the Borderlands (2014) [Ru/Multi] (build 6086951) Repack Necros
 magnet:?xt=urn:btih:2CABB4D38A7D31C9D029DD8F30B37CC9E5A221C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Radiolight (2025) [Ru/Multi] (0.9) Repack Necros
 ```bash
 magnet:?xt=urn:btih:C5F2C90AD3CA5AFD9CB140A530F3FC3FB06BFB2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ SK-AI project - Последнее лето (2025) [MP3|320 Kbps] <Chanson>
 magnet:?xt=urn:btih:2CB390A5E765AE5BC4FD35210CF073079DE5D909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:2CB390A5E765AE5BC4FD35210CF073079DE5D909
 magnet:?xt=urn:btih:38834889C5AB4FA0FE0980E29B9C82E6B72C66A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:38834889C5AB4FA0FE0980E29B9C82E6B72C66A8
 ```bash
 magnet:?xt=urn:btih:CF3B593D559AFECC4355CC36570341AC62725B12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:CF3B593D559AFECC4355CC36570341AC62725B12
 magnet:?xt=urn:btih:115402BBC7856651656BB6163193E95896E4D16C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:115402BBC7856651656BB6163193E95896E4D16C
 ```bash
 magnet:?xt=urn:btih:E75669948BA4CA8FDEB45D751D127DF745EB71D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:E75669948BA4CA8FDEB45D751D127DF745EB71D0
 magnet:?xt=urn:btih:FE54B931EE5F744AD4504684B4D432EF4C9E121F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ lanpirot | Товарищ «Чума» [12 книг] (2024-2025) [FB2]
 magnet:?xt=urn:btih:88C4606FF700309D3B19CC4726A8A9A816A7386C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ F.A. Kröger / Ф. Крёгер | Chemistry of Imperfect Crystals / Химия �
 ```bash
 magnet:?xt=urn:btih:657E37D4625D77A1BDF7DBC67EB83B1343B0E7CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:657E37D4625D77A1BDF7DBC67EB83B1343B0E7CC
 magnet:?xt=urn:btih:AA121511BB7D5FA7B20D1A3024F06CF92A22FDD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:AA121511BB7D5FA7B20D1A3024F06CF92A22FDD9
 ```bash
 magnet:?xt=urn:btih:6B1C2DE7C40DDA39DBAE6556D60E4BEBCE162D20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

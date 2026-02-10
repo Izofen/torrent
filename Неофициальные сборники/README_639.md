@@ -1,3 +1,32 @@
+###  Публикация: 1355852   (980529) от 29.01.2020
+
+VA - Beauty Interior Lounge Music (2020) [MP3|320 Kbps] <Lounge, Chillout, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_980529.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Carlo Peralta - Cala Carbo
+002. Silence Of The Sirens - Roberto Bronco
+003. Soulful-Cafe - Really Gone
+004. Love In Stereo - Mojardo(   Читать дальше...   )Жанр: Lounge, Chillout, RelaxПродолжительность: 11:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FAF1555A466398FD689DAD53CE363579E645117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355795   (980541) от 29.01.2020
 
 VA - Blissful Journey: Vocal Chillout (2019) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
@@ -21,6 +50,8 @@ VA - Blissful Journey: Vocal Chillout (2019) [MP3|320 Kbps] <Chillout, Ambient, 
 ```bash
 magnet:?xt=urn:btih:0D04483136ED3E629C5AA972262D7D7667ABB7CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Heaven With You: Chill House Mixtape (2020) [MP3|320 Kbps] <Chill, Deep Hou
 magnet:?xt=urn:btih:CC20FA9C894B497BB8C7D3A9B1FA375B0E519428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Beatport Progressive House Pack 03 (2020) [MP3|320 Kbps] <Progressive House
 ```bash
 magnet:?xt=urn:btih:494DCA7D28855AB8619EBD9BF7192781A9300AB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Танцевальная Зима 50/50 (2016) [MP3|320 кб/с] <Pop, Danc
 magnet:?xt=urn:btih:458FD3B78EC50211F801F4DF530ABD0A66A243A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Acoustic 90s Rock Songs (2016) [MP3|320 кб/с] <Downtempo, Chillout, Inst
 ```bash
 magnet:?xt=urn:btih:EEF177F83C04DB83BC29C42F40EA7FF1D793ABE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - (OST) Scarface Лицо Со Шрамом (1983) [MP3|320 кб/с]
 magnet:?xt=urn:btih:8D0FD5DABCE16FD5CB3F4E92A23C8C16EF105740
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Зимний Hit-Mix (2016) [MP3|256-320 кб/с] <Pop, Dance, Electro Hous
 ```bash
 magnet:?xt=urn:btih:3940C955C2B8EFF0AB273651606858EF6E261F43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - 20 Soundtrack Hits of the ‘90s (2015) [MP3|320 кб/с] <Disco, Jazz, Pop
 magnet:?xt=urn:btih:6C80FBB06C31B5A2E4EE746C35E0F55FB709DB2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Бомба Года. Шансон (2015) [MP3|256-320 кб/с] <Шансо�
 ```bash
 magnet:?xt=urn:btih:F02F0769B51D02F0312B7DCCE079707819D16008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Попсовая VIP тусовка (2015) [MP3|256-320 кб/с] <Pop>
 magnet:?xt=urn:btih:642C97315054B5BC9B614BA445B953898B44B44D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Where the Blues live (2020) 2CD [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:FE2DEC03AE98E559622784767DD92D2611A220F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ magnet:?xt=urn:btih:FE2DEC03AE98E559622784767DD92D2611A220F9
 magnet:?xt=urn:btih:976665CB6341ADA660F27D89B450C4A474C42601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Полтинник самых - самых (2020) [MP3|320 Kbps] <Pop, Danc
 ```bash
 magnet:?xt=urn:btih:638C175D38D0B93F07D0C3B27C5554A4F1510BED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +434,8 @@ Soft Jazz - Soft Jazz Sexy Music Instrumental Relaxation Saxophone Music (2013) 
 magnet:?xt=urn:btih:BAD6E5BB68B21DEE1AB91BEBFAD6822FF5FF6776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +462,8 @@ VA - не Громкие новинки недели 53 (2020) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:FF906B61475828AD2C64AF81D749446610541B15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +498,8 @@ VA - Gold Instrumental Songs (2013) [MP3|256 кб/с]<Instrumental>
 magnet:?xt=urn:btih:9F80D6E7F3F1CFD5A4CFDA724A978D912A6C54AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +532,8 @@ VA - Private Room- the Winter Lounge Session (2013) [MP3|320 кб/с]<Chillout, 
 ```bash
 magnet:?xt=urn:btih:24734D633F8CBB3E0007CC4B1ECF9F42E22CC6F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +568,8 @@ VA - Euphoric Emotions Vol.42 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Upl
 magnet:?xt=urn:btih:E12DF297E1BB2713DBB6A06ADB60A22B2C1CB4CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +596,8 @@ magnet:?xt=urn:btih:E12DF297E1BB2713DBB6A06ADB60A22B2C1CB4CD
 ```bash
 magnet:?xt=urn:btih:8F34A554B09ECC2C25E1F5D75D6F930F44D40440
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +626,8 @@ VA - Зимний Союз (2016) [MP3|256-320 кб/с] <Pop>
 magnet:?xt=urn:btih:487D4A03AA25AB476B7CE33302DBE4967F0216C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +654,8 @@ VA - The Best Of Alterportal HITS (2015) [MP3|256- 320 кб/с] <Alternative, Me
 ```bash
 magnet:?xt=urn:btih:9DEC7DA452A0AC451A45714AC6FE6C78E5CE1648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +684,8 @@ VA - Russian Club Best Of Music (2016) [MP3|320 кб/с] <Dance, Club, House>
 magnet:?xt=urn:btih:06F1618DA00EDBCDB60123BF615E5CD0456DC98A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +712,8 @@ magnet:?xt=urn:btih:06F1618DA00EDBCDB60123BF615E5CD0456DC98A
 ```bash
 magnet:?xt=urn:btih:55CC27782FE978A8B6E0C3645A4D67D5BA47628A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +742,8 @@ VA - Music For Everyone - Breaks & Breakbeat Vol.4 (2016) [MP3|320 кб/с] <Bre
 magnet:?xt=urn:btih:E5ABE54D1C7A93A9E8C884003ADA5B45E86D9A98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,32 +771,7 @@ VA - Traxsource Top 200 Tracks Of 2015 (2016) [MP3|320 кб/с] <House, Indie Da
 magnet:?xt=urn:btih:F8A6166CE0810622DB41EA1E49B0356D2EA37275
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972787   (981990) от 06.01.2016
-
-VA - Danger Club Music Christmas (2016) [MP3|264-320 кб/с] <Future House, Bigroom, Nu Disco, Progressive>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_981990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eric Costa - Miss You 07:07
-02. Power Music Workout - Ex's & Oh's (Workout Mix) 04:01
-03. Bela Brandes - Leon Diva 09:23
-04. Hiisak - Funky Love (Original Mix) 04:45(   Читать дальше...   )Жанр: Future House, Bigroom, Nu Disco, ProgressiveПродолжительность: 06:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F9E0CF5CE0CF230E832A86FD2525FC8F69B0080
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

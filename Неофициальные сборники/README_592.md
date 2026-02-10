@@ -1,3 +1,32 @@
+###  Публикация: 1370260   (898097) от 26.03.2020
+
+Rammstein - All Hits (1995-2019) Compilation by DON Music [MP3|320 Kbps] <Industrial Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_898097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wollt Ihr Das Bett In Flammen Sehen [5:17]
+ 02. Der Meister [4:09]
+ 03. Weises Fleisch [3:35]
+ 04. Asche Zu Asche [3:50](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 05:16:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB71287C33BA42DCF96AF7BBE286E224F4B60368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 637775   (898187) от 01.04.2013
 
 VA - Радио Energy - NRJ HOT30 (31.03.2013) [MP3|320 кб/с]<Pop, Dance>
@@ -21,6 +50,8 @@ VA - Радио Energy - NRJ HOT30 (31.03.2013) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:E72C168320337B3B1D3FF9BE24FA48E795F5BF1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ ZZ Top - 100% ZZ Top (2020) [MP3|320 Kbps] <Rock, Hard Rock, Blues Rock>
 magnet:?xt=urn:btih:210507E6D0F47E9C5D1F2B1EF2A3B9691B9DB268
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Beatport Trance: Electro Sound Pack #37 (2020) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:96E221AD417171690B0DC331B38870EB7C2A892F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Native American & Lounge (2020) 2CD [MP3|320 Kbps] <Native American, New ag
 magnet:?xt=urn:btih:3DC0EA4EBB7FB5A3489F72850C89704537A22E4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - The Blues Mystery (2020) [MP3|320 Kbps] <Blues, Rock Blues>
 ```bash
 magnet:?xt=urn:btih:A0B932A10DB9F6CC6D0206CC08D417AC05E7C339
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Hear My Soul: Deep House Fashion Mix (2020) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:BA6DEF14A56884343F471B2F09FF5E13A2A594AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Exotic Chill House (2020) [MP3|320 Kbps] <Chill House, Relax, Chillout>
 ```bash
 magnet:?xt=urn:btih:D1A02F13CBA1A4E9920B2087044FC185A7E2B7C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +260,8 @@ VA - Громче музыку! Жаркий хит (2013) [MP3|256-320 кб/с]
 magnet:?xt=urn:btih:CAE722234B162E073D81139099AC50AE0639ADEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +288,8 @@ VA - Rock Hits (Remastered by KronStudioLab) [4CD] (2015) [MP3|320 кб/с] <Roc
 ```bash
 magnet:?xt=urn:btih:9C468E9EBF97F835BAE55D8EA1019CCAD8802D35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +318,8 @@ VA - Top 100 Зайцев.Нет Февраль (2016) [MP3|192-320 кб/с] <Po
 magnet:?xt=urn:btih:0C6B56A1D5207FB7D21AC534638CD174AF2E5869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +346,8 @@ magnet:?xt=urn:btih:0C6B56A1D5207FB7D21AC534638CD174AF2E5869
 ```bash
 magnet:?xt=urn:btih:1398393E7CB17BC0A6BCF56917371403CEA58903
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +376,8 @@ VA - Русское радио. Весенняя дискотека по-рус�
 magnet:?xt=urn:btih:FD0EEE04F333CF33E2F349689FE936DF66AEDE1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +404,8 @@ VA - Золото Русского Диско - 18 (2015) [MP3|192-320 кб/с] 
 ```bash
 magnet:?xt=urn:btih:75031CCDA116335D2FDAF4CE94E0F13E90272CC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +434,8 @@ VA - Шальной Шансон в Дорогу (2016) [MP3|256 кб/с] <Ша�
 magnet:?xt=urn:btih:6DB96F67D36A889C236A27B4956DD2477A9A1672
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +462,8 @@ VA - How Deep Is Your Love (2016) [MP3|320 кб/с] <Deep House>
 ```bash
 magnet:?xt=urn:btih:86984FB36682813D0F11B2FC48E902DDD8FDCACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +492,8 @@ VA - Deep House Generation (2016) [MP3|320 кб/с] <Deep House, Electro, Club>
 magnet:?xt=urn:btih:3E85599EED662C35C73CCB1F4FB4996852AFFAD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +520,8 @@ magnet:?xt=urn:btih:3E85599EED662C35C73CCB1F4FB4996852AFFAD7
 ```bash
 magnet:?xt=urn:btih:01015558374D9DE4FA5A877D8A70C7B187546225
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +550,8 @@ VA - Jazz, Relax and Baby. Instrumental Music for Calm Down (2017) [MP3|320 Kbps
 magnet:?xt=urn:btih:14758094051B05E58E7A21AE4103631B4B9D0B0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +578,8 @@ VA - 100 пудовые зимние хиты от Европы Плюс Вып�
 ```bash
 magnet:?xt=urn:btih:6841899B4153AC204EABCB9EBF13AAC7F0781DAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +608,8 @@ VA - German Top 100 Single Charts 03.02.2017  [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:114DADABC31A1A168306E10E9784050551D3A2E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +636,8 @@ VA - Empire Records - Romantic Drum (2017) [MP3|256-320 Kbps] <Dubstep, Drum & B
 ```bash
 magnet:?xt=urn:btih:29403A43073418EDF3FE66D8256150E79DED29C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +666,8 @@ VA - Empire Records - Golden Drum (2017) [MP3|320 Kbps] <Dubstep, Drum & Bass>
 magnet:?xt=urn:btih:5F32D7462509E8381FD27B86588B181333C42F88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +694,8 @@ VA - Музыкальный плен. Сборник № 10 (2017) [MP3|256 Kbps
 ```bash
 magnet:?xt=urn:btih:F8B607AD15D2BD5DC03747292AA29BF338A07E23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +724,8 @@ VA - Empire Records - Club Hit 8 (2017) [MP3|256-320 Kbps] <Club, Dance>
 magnet:?xt=urn:btih:F2A73487FD0985356B972EFB173747BFB76CC633
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,32 +753,7 @@ Ozzy Osbourne - 100% Ozzy (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
 magnet:?xt=urn:btih:2B80F3B536BF06AE8E4854D3404CCCAD4680FC7E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100495   (899938) от 04.02.2017
-
-VA - Empire Records - Dancenudisco 7 (2017) [MP3|255-320 Kbps] <Disco, Dance, Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_899938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knightlore & Colin Rouge - Drowning In Your Space (Extended Mix)
-02. Free 2 Night - Under The Sun (Original Mix)
-03. Disco Sugar - Disco Roller (Milk Boys Remix)
-04. Camilo Franco - Disco(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91E2F8BEF02B465A0AF9B0D270C440FDB269CF3E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

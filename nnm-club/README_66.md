@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7F94BF2AFDB39039642A9AF1E20FB7FE6FFDB879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:7F94BF2AFDB39039642A9AF1E20FB7FE6FFDB879
 ```bash
 magnet:?xt=urn:btih:80357DE8C6F29CEF76518A67505E65410D76802F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:80357DE8C6F29CEF76518A67505E65410D76802F
 magnet:?xt=urn:btih:01E4A3E9404057BCF86BA4F239A822CED6A48DAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:01E4A3E9404057BCF86BA4F239A822CED6A48DAE
 ```bash
 magnet:?xt=urn:btih:0AA36E60B611209864FDF1CCA007DC77700D9E25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ New Panty and Stocking with Garterbelt | Труська, Чулко и прес�
 magnet:?xt=urn:btih:F5879AC8A2B46200B3BFD3532DCB8849B78E82C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:F5879AC8A2B46200B3BFD3532DCB8849B78E82C7
 ```bash
 magnet:?xt=urn:btih:554005BA691749BA3B332FBF9F99385738308197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:554005BA691749BA3B332FBF9F99385738308197
 magnet:?xt=urn:btih:4826C108E0D6A406A730D3D579DA43CECAF9B309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ S.T.A.L.K.E.R.: Call of Prypiat / S.T.A.L.K.E.R.: Зов Припяти (2010) [
 ```bash
 magnet:?xt=urn:btih:578D5D61FEEF0D54AE16F166A4147094B7326DD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ S.T.A.L.K.E.R.: Shadow of Chornobyl / S.T.A.L.K.E.R. Тень Чернобыля
 magnet:?xt=urn:btih:E48C1874B73F9E3E1F1E448443811AFF2BAFD4CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Chants of Sennaar (2023) [Ru/Multi] (1.0.0.9) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:D98B4B2CA309367360C1C5993FE4D5A33D1F3ACC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.10.0.26261) Rep
 magnet:?xt=urn:btih:5048D5B623FCE2E598BFBAA350739C3D95A0756E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Rogue Waters - это тактическая пошаговая игра в ду
 magnet:?xt=urn:btih:551600A88C994AEF24CCF5F3998E981BDABACA41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:551600A88C994AEF24CCF5F3998E981BDABACA41
 ```bash
 magnet:?xt=urn:btih:2A6FFD181103E2F61EE79F0DB4F0760A9A83F55C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Mike Zito & Albert Castiglia - Help Yourself (2025) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:4CD128E59560989EBC81A67832FB690C8E4B5E03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ OV Cotin — вневременной шрифт с засечками, имею
 ```bash
 magnet:?xt=urn:btih:9CC9A3D59728E0DF0D765BFB73DDF575BA70AB13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Piper and The Hard Times - Good Company (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 magnet:?xt=urn:btih:F2FC19E658570FF4F6737C9412BD722FC2AC23CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Esoterica - Ether Metal (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal,
 ```bash
 magnet:?xt=urn:btih:F72453BB84781DA7CDE9D35FA37A58A28896954E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Special Hot Sauce - Go Get Gone (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:D48C85FD4FC388432A84A529C7D3C054964D6219
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:D48C85FD4FC388432A84A529C7D3C054964D6219
 ```bash
 magnet:?xt=urn:btih:BDA0BAEBDBD8830714333F7AB2770A44D6E03945
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ Shirley Johnson - Selfish Kind of Gal (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 magnet:?xt=urn:btih:EF9DAE3D1F256B4E7E1897C1C40B679CE92ECBC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ Cardiacs - LSD (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
 magnet:?xt=urn:btih:92CB19BF61CCA594CF6BC0FA27745FED4D33CFAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:92CB19BF61CCA594CF6BC0FA27745FED4D33CFAA
 ```bash
 magnet:?xt=urn:btih:8034A541CBC319B0D881BEECA5D7DE6482C625A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ Robert Urban & The Evil Eyes - If I Had My Way (2025) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:90260B7D7FDCBD4690C90539ACE9751B9EA03458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ Markus Schulz - Global DJ Broadcast World Tour: Luminosity at Beachclub Fuel (20
 ```bash
 magnet:?xt=urn:btih:CE41CC7BC0DE58C09F44B261EFDD2272239A566F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ King Princess - Girl Violence (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie 
 magnet:?xt=urn:btih:578C538C0649B80FE26EC3D4D4C99C9248F8CC56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ Isen - Zaklinani posledni zimy (2025) [FLAC|Lossless|WEB-DL|tracks] <Melidic Bla
 ```bash
 magnet:?xt=urn:btih:CA6F2374373D42A038573D5583DAE7FFC9A2D107
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

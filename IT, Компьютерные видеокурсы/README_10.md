@@ -20,6 +20,8 @@ javascript.ru, Егор Сидоров | Интенсив по "продвину
 magnet:?xt=urn:btih:A1ACD321A8CD8868C6FD8274431E2A63BC82CFE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Swiftbook — это комьюнити и среда, в которой ты б
 ```bash
 magnet:?xt=urn:btih:9A2A4CCA60E585149CE204EAA4F78DEFC2564A86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Thinknetica Pro, Александр Борисов | Деплой Ruby on Rails 
 magnet:?xt=urn:btih:75ACE4A14BBB2BB23C1A2DE9CEF4F20B5C5A22C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ UNIGINE,  Андрей Аксёнов | UNIGINE C++ School 1.1 - Пишем со
 magnet:?xt=urn:btih:4B8EF58385169FADE80515CB600F3180A33BE6CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Lynda, Kevin Skoglund | Git Essential Training (2012) PCRec [EN, RU / RU Sub]
 ```bash
 magnet:?xt=urn:btih:CCF0FB2B70E74195EFD2FF4F44DF95C9C80D1E4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:CCF0FB2B70E74195EFD2FF4F44DF95C9C80D1E4D
 magnet:?xt=urn:btih:DD58984802CA031E12BA02F7E175A4AC969A9B14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:DD58984802CA031E12BA02F7E175A4AC969A9B14
 ```bash
 magnet:?xt=urn:btih:5CEF710CFD85390E5E624417157F12B65A975B10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:5CEF710CFD85390E5E624417157F12B65A975B10
 magnet:?xt=urn:btih:41715E324BE27AD58303EE110EFA5DA1E905E93A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Vueschool | Курсы по Vue3 (2024) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:325C9E81DB384E4AEA67F03C1DBE5B30F9AA2460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ HTMX - потрясающая библиотека JavaScript, которая п
 magnet:?xt=urn:btih:B4EA26C2DF9C68A31770CC77D4F849C41A58399D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ magnet:?xt=urn:btih:B4EA26C2DF9C68A31770CC77D4F849C41A58399D
 magnet:?xt=urn:btih:66085872D6B8968745F1B2AEBAB0DBB2FE46A9EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ Academind Pro, Maximilian Schwarzmüller | ChatGPT - The Complete Guide (2024) W
 ```bash
 magnet:?xt=urn:btih:0900AF8ECAF11A1F3C3303E15567E678D02ED4F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ Interview Ready, Gaurav Sen | System Design Course (2024) WEB-DL [EN]
 magnet:?xt=urn:btih:3D18B354F72B4EAC8614338E97F58052F42BB33C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:3D18B354F72B4EAC8614338E97F58052F42BB33C
 ```bash
 magnet:?xt=urn:btih:CDDD1A82B544904B065723D35912CD9FDB90AF20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:CDDD1A82B544904B065723D35912CD9FDB90AF20
 magnet:?xt=urn:btih:3E5B321BEC70DE95E22D316CAC1EF6555E0F0063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ magnet:?xt=urn:btih:3E5B321BEC70DE95E22D316CAC1EF6555E0F0063
 magnet:?xt=urn:btih:8E803D3819C8756E4AD16474DBCCF36E11206FA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ Frontend Masters, Miško Hevery | Bare Metal JavaScript: The JavaScript Virtual 
 ```bash
 magnet:?xt=urn:btih:87EE1CDD1A29E22DB8E889A98E3E8FA24D9A5055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +493,8 @@ Data Science — это применение научных методов в р
 magnet:?xt=urn:btih:4B9E958FCC5191AF8359CFEB0F1FFF85EDD30088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ magnet:?xt=urn:btih:4B9E958FCC5191AF8359CFEB0F1FFF85EDD30088
 magnet:?xt=urn:btih:ACA8081AD3CA447D238DACDD98C321A08230C550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ Karpov.courses | Продвинутая аналитика данных (2023) W
 ```bash
 magnet:?xt=urn:btih:6E7A0D243B20E05A6FA7D6B2F9438A24BEE96C46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +575,8 @@ Udemy, Александр Сокирка | Руководство по WordPress
 magnet:?xt=urn:btih:562FE9FE6F7AAC7B248806D20E46A2391C93A08C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ magnet:?xt=urn:btih:562FE9FE6F7AAC7B248806D20E46A2391C93A08C
 ```bash
 magnet:?xt=urn:btih:8A44EB9892CAFD499F0168CD6DDBADB06F5ACB72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +632,8 @@ Balun.Courses, Максим Фатин | Подготовка к алгорит�
 magnet:?xt=urn:btih:70F25292CDDAD0C453076ACD75DBD4DA632CAB02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +661,8 @@ WebForMySelf | Закрытый клуб для веб-мастеров. Под�
 magnet:?xt=urn:btih:2543A818258A478D1F9347DC6E00BAA842CB9490
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +686,8 @@ Slurm (Слёрм), Павел Калашников | Linux для разраб�
 ```bash
 magnet:?xt=urn:btih:149A3733BF8B51660A00FF67D37FE4D228312E19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +714,8 @@ ChatGPT запустился чуть больше года назад и уже
 ```bash
 magnet:?xt=urn:btih:4224D7ACB4EC657102281E419DCABF5F6A59E72F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

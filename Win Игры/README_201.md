@@ -19,6 +19,8 @@ Resident Evil 2 / Biohazard RE:2 (2019) [Ru/Multi] (11636119/dlc) Repack Other s
 magnet:?xt=urn:btih:9EE3FEE2F89DEE0D75C67C80383F9E21A29CD88D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Alone in the Dark (2024) [Ru/Multi] (1.02/dlc) Repack DjDI [Digital Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:ED86AC60DE2A1170DFCD06ECEC5B50BDEE9D6C6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Star Wars: Dark Forces Remaster был воплощен в жизнь коман
 magnet:?xt=urn:btih:6E88F434781506699B739EE93CE27D41D251AC90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Strange Horticulture (2022) [Ru/Multi] (1.1.26) License GOG
 ```bash
 magnet:?xt=urn:btih:A4EFF5E0E6B032B63528830D25561CD93F41660F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ STAR WARS: Battlefront Classic Collection возвращает любимые о
 magnet:?xt=urn:btih:DBED1D75BB54DC62DA16740CA81B552FC4206F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Resident Evil 2 / Biohazard RE:2 (2019) [Ru/Multi] (11636119/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:C7D0017FC13C45EF62497A1A852BE6655FB916A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Silverwood Bay: An Eleanor Grey Mystery (2024) [En] (1.0) Unofficial [Collector'
 magnet:?xt=urn:btih:FB940FA5669BA14110A16360A8204DD3EA7A8398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ One Piece: Pirate Warriors 4 объединяет вселенную аниме 
 ```bash
 magnet:?xt=urn:btih:45B69751399CC553637A8347AA70F93C80941904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Outcast - A New Beginning – это продолжение знаменитог
 magnet:?xt=urn:btih:8D9EE70D927ADB53D53BEB9C344F82F83EC04FAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Callisto Protocol (2022) [Ru/Multi] (13179062/dlc) Repack Other s [Digital D
 ```bash
 magnet:?xt=urn:btih:2608893326E703844FD7EDE539C3136704F19944
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Raw Metal (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:C7BC3321B59AECAAE0D01B183749B25395AAD794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Distant Bloom – постарайтесь восстановить некогд
 ```bash
 magnet:?xt=urn:btih:218C89C574E24F2EF8CA2702ACE7D569A2BF975A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Bloody Ink - это психологическая хоррор-игра от п
 magnet:?xt=urn:btih:DAE2F13B09456064B93ABFA673E7BC4DF09DC7E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Once Upon a Jester повествует о приключениях Шута и 
 ```bash
 magnet:?xt=urn:btih:0DABE17E2DC061CFD49296969D896993B901443A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Legend of Legacy HD Remastered (2024) [Multi] (1.0/dlc) Repack FitGirl [Laun
 magnet:?xt=urn:btih:A660DD55B28DCFDD7E35F21B03208CE689CBAB2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Millennia - пошаговая стратегическая игра, охват
 ```bash
 magnet:?xt=urn:btih:A1B649B68AF99623FE0300C7A89AAA6A9D521F36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Bears In Space - это динамичный шутер от первого ли
 magnet:?xt=urn:btih:7879660F5F226FCA6567337840DFE418721C928F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Alpha Protocol - приключенческая экшен/РПГ с видом 
 ```bash
 magnet:?xt=urn:btih:798144EC74B4EF13F41B70D00A03959B63C65749
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Living Legends 11: The Red Trace / Живые легенды 11: Красный 
 magnet:?xt=urn:btih:A8A769113E8B602E1DEDC125A26F7D34C03001C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Between Horizons - это крутой 2.5D приключенческий де�
 ```bash
 magnet:?xt=urn:btih:60770B373DD42F21A395FB8FFAADB42B349FC0B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Fi da Puti Samurai погружает геймеров в перестрелки
 magnet:?xt=urn:btih:D2FD83CBEFC7751553828A5DDC6FBC8C20C263D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ South Park: Snow Day! перенесет вас в хаотичный, засн�
 ```bash
 magnet:?xt=urn:btih:A066F2C690B79F829F1A3C93C1EB2EA0F2DC1F27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Alpha Protocol - приключенческая экшен/РПГ с видом 
 magnet:?xt=urn:btih:1EC0CC893CB75B2A3A7594C418A5CEE738D41BD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Silent Nights: The Pianist Collector's Edition / Безмолвные ночи. 
 ```bash
 magnet:?xt=urn:btih:0E4B8282EA5CA8F3A3863DB326F36BD2ABD1959E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ South Park: Snow Day! перенесет вас в хаотичный, засн�
 magnet:?xt=urn:btih:11E92F78032E77306AC5BB8ECFB39985822C3571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Rise of Gun (2024) [Multi] (3.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:EE68CCED16680A22A2D15A86F6DC8FD80EE5F8A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

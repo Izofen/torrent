@@ -22,6 +22,8 @@ Santiano - Haithabu - Im Auge des Sturms (2018) [MP3|320 Kbps] <Folk Rock>
 magnet:?xt=urn:btih:BCBB8B768DFF79DFE751EC54EC807F42ABA26F0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Gipsy Love - Gipsy Love (1971) Reissue, 2011, Genschman Soundroom [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:FE5DD4D8477D5EA287368FA9CA94A230C4702AD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Mystic Braves - Mystic Braves (2013) [MP3|320 Kbps] <60's Psychedelic Rock, Gara
 magnet:?xt=urn:btih:066E951A7CC94B9D210928AAA067507EA34BD89D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ The Last Days - When The Tomorrow Is A Grey Day (2010) [MP3|320 kbps]<Shoegaze, 
 ```bash
 magnet:?xt=urn:btih:3EA1F935E9E2B2FCB4830A2B9572DF8FD6FBA46A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Josie & The Outlaw - Wrong Turn (2018) [MP3|320 Kbps] <Rockabilly>
 magnet:?xt=urn:btih:768AA918B28A8CDC3A2A77933BD0FAD4446B54B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Status Quo - The Last Night of the Electrics (2017) [MP3|320 Kbps] <Classic Rock
 ```bash
 magnet:?xt=urn:btih:B2E015DB5D75C98CB2ED78624EF9B3A5FFB07299
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Glowsun - Beyond The Wall Of Time (2015) [MP3|320 кб/с]<Stoner Psychedelic Ro
 magnet:?xt=urn:btih:D9E6AA5AF047AA1DDA54AEFA77BA7CEEF0A5D9E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ Terry Reid - Bang, Bang You're Terry Reid (1968) 2000, Repertoire Records [MP3|3
 magnet:?xt=urn:btih:7C60D30AE99D943DAD114B4D0FBD812D30B8E650
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +253,8 @@ Blackfoot Sue - 2 Albums (1973, 1974) Reissue CD, Repertoire Records, 1995 [MP3|
 ```bash
 magnet:?xt=urn:btih:642CC73A6A78B7CD8B8A93BDE55300657D681EFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +285,8 @@ Taal - Skymind (2003) [MP3|320 кб/с]<Art Rock/Progressive Rock>
 magnet:?xt=urn:btih:0B536A5AC750E4FEC7CD57FACB012C5E9AD32A8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +313,8 @@ Streetmark - немецкая краут-рок группа, основанна
 ```bash
 magnet:?xt=urn:btih:391DD7396E44431D43AF71F3E857BCF4AFA3FFC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +349,8 @@ Anders Osborne - American patchwork (2010) [MP3|256 kbps]<Electric Blues, Blues-
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +378,8 @@ Anders Osborne - American patchwork (2010) [MP3|256 kbps]<Electric Blues, Blues-
 magnet:?xt=urn:btih:8734A9C23F60BFF3B2FF0DEF9F9C42B2EEDF11DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +405,8 @@ Jagannatha - 3 Albums (2016-2022) [MP3|320 Kbps] <Psychedelic Stoner Rock, Blues
 ```bash
 magnet:?xt=urn:btih:F64CB35803EB9C3E52A112795D279CE23C5B991F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +435,8 @@ Tito & Tarantula - Lost Tarantism (2015) [MP3|320 кб/с]<Rock, Blues Rock>
 magnet:?xt=urn:btih:0DCCA971C7478F247CD3F79EF16A5F55C18F85F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +463,8 @@ Archive - Call To Arms And Angels (2022) 2CD [MP3|320 Kbps] <Progressive Rock, T
 ```bash
 magnet:?xt=urn:btih:84CE6B01B42587E4326C02BECF2A124FEBB3A5B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +493,8 @@ Unitopia - More Than A Dream – The Dream Complete (3CD) (2017) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:666F89EF2D0CE21FCCCD94347766AF3B4A37CA4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +521,8 @@ Haley & Alexis - All In (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:2B5343310B47F2F7BE557C87C4D9DE45F87E7ABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +551,8 @@ VA - Ramble On (2017) [MP3|320 Kbps] <Classic Rock>
 magnet:?xt=urn:btih:5C62D7A88824DDF3DA8C8991FDE8E98D07D4E1C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +579,8 @@ The Boss Tweeds - Hot Rods To Hell (2019) [MP3|320 Kbps] <Rockabilly, Rock & Rol
 ```bash
 magnet:?xt=urn:btih:5EF946AB9A4E8CAA42E0A9C3D06F89F36F01B0EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +609,8 @@ The Cranberries - In The End (2019) [MP3|320 Kbps] <Pop-Rock>
 magnet:?xt=urn:btih:E42921FD145F4F83292EA608ED287D6F0D8C7F12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +637,8 @@ Frank Zappa - Dancin' Fool (2019) (Live) [MP3|320 Kbps] <Avantgarde, Psychedelic
 ```bash
 magnet:?xt=urn:btih:ACBD5F36D8CFCFECDC9339DA841FE3CA5D9D01F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +667,8 @@ CD 01:
 magnet:?xt=urn:btih:CDF1C24B7788CBF7F04E51B9262F5D5B17BAF2B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +695,8 @@ The Hillbilly Moon Explosion - The Sparky Sessions (2019) [MP3|320 Kbps] <Rockab
 ```bash
 magnet:?xt=urn:btih:58E058EFABF556112BB1F3C697B17A0234DB8A58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -677,6 +725,8 @@ Klabautermann - Innsia Ut (2017) [MP3|320 Kbps] <Norway Rock>
 magnet:?xt=urn:btih:A94AAB6608C5AD164A8C05E0686B72D049A40EC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -703,6 +753,8 @@ The Skys - Automatic Minds (2019) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:AC98051F3F938D97DE48B471F384B2D85C87819D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

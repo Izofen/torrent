@@ -1,3 +1,29 @@
+###  Публикация: 831727   (417181) от 16.10.2014
+
+Дорогой Эдисон! (1986) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_417181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из самых скандальных фильмов Новой "перестроичной" волны, по материалам которого была развернута дискуссия на страницах "Правды" и "Известий". Молодой талантливый ученый Одинцов, выпускник столичного ВУЗа, попадает в жернова советских "аппаратных игр". Впервые на экране подробно, реалистично и психологически достоверно показана технология вполне "законного" уничтожения талантов хитроумной и опытной командой партократов. Из цензурных соображений действие (   Читать дальше...   )Жанр: ДрамаРежиссер: Исаак ФридбергАктеры: Андрей Ташков, Анатолий Ромашин, Леонид Марков, Александр Фатюшин, Всеволод Абдулов, Владимир Меньшов, Николай Волков-мл., Мария ВиноградоваПродолжительность: 01:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:247401868AB1FC9B955593664BBEC111CC84CD35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 831106   (417331) от 16.10.2014
 
 Строгий юноша (1935) SATRip [H.264]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:36186E78E9FC5EEF94E6EFFBA8ECC59EAA18E4DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:36186E78E9FC5EEF94E6EFFBA8ECC59EAA18E4DF
 ```bash
 magnet:?xt=urn:btih:5D1C920BF09F0CCEA7F4666353C5F59FB8363E29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:5D1C920BF09F0CCEA7F4666353C5F59FB8363E29
 magnet:?xt=urn:btih:B001FFB7F524633097D80AA319C3560584B17B29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:B001FFB7F524633097D80AA319C3560584B17B29
 ```bash
 magnet:?xt=urn:btih:4299BC69763E5CD0F2C1BFB2695BC64B2B1578F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:4299BC69763E5CD0F2C1BFB2695BC64B2B1578F5
 magnet:?xt=urn:btih:AE15683C7B80890C8E243F44A4F49814187ED09D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:AE15683C7B80890C8E243F44A4F49814187ED09D
 ```bash
 magnet:?xt=urn:btih:57880EDA07C72781AC8B4B61024DF9B535ABC7E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:57880EDA07C72781AC8B4B61024DF9B535ABC7E9
 magnet:?xt=urn:btih:8B5A329AFA77499E7EE7F1BBAF5CF53FE067E99C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:8B5A329AFA77499E7EE7F1BBAF5CF53FE067E99C
 ```bash
 magnet:?xt=urn:btih:A7252806FA8CE224C39D6413194D0D7D041A4606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:A7252806FA8CE224C39D6413194D0D7D041A4606
 magnet:?xt=urn:btih:50909ACE1ABC89B07CE32BDBCB5E1E4272C1ADCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:50909ACE1ABC89B07CE32BDBCB5E1E4272C1ADCC
 ```bash
 magnet:?xt=urn:btih:08BE0FE32591A9741F145358526D3D706B32DD42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:08BE0FE32591A9741F145358526D3D706B32DD42
 magnet:?xt=urn:btih:6140EFB920F282017DDC894DD699C96BC82BAE5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:6140EFB920F282017DDC894DD699C96BC82BAE5C
 ```bash
 magnet:?xt=urn:btih:5FE5188B995D15EAA6642B442D7F090340446176
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:5FE5188B995D15EAA6642B442D7F090340446176
 magnet:?xt=urn:btih:D6E9B9A4842F1674AB7B55449D6D91C4320D059A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:D6E9B9A4842F1674AB7B55449D6D91C4320D059A
 ```bash
 magnet:?xt=urn:btih:5F7A0D2730A24BF45EBABD7D219F6C273E7822D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:5F7A0D2730A24BF45EBABD7D219F6C273E7822D9
 magnet:?xt=urn:btih:32B08E1D4F1F38C65034DC291DB60C087E08850F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:32B08E1D4F1F38C65034DC291DB60C087E08850F
 ```bash
 magnet:?xt=urn:btih:6DD40D9DDEFEB479ECB1647CA633170829D0D7E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:6DD40D9DDEFEB479ECB1647CA633170829D0D7E1
 magnet:?xt=urn:btih:69D7F638EEE919640F4A686897A88F3FD9049FAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:69D7F638EEE919640F4A686897A88F3FD9049FAE
 ```bash
 magnet:?xt=urn:btih:8A496AC3AC04C2040D82D2AB29F80E07827C804C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:8A496AC3AC04C2040D82D2AB29F80E07827C804C
 magnet:?xt=urn:btih:B55F8E6E5BF3A895C283CE9A55E138FC5A3E9B4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:B55F8E6E5BF3A895C283CE9A55E138FC5A3E9B4D
 ```bash
 magnet:?xt=urn:btih:E1DCA402562E66C466D1437BA90366FB2BD05475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:E1DCA402562E66C466D1437BA90366FB2BD05475
 magnet:?xt=urn:btih:5C41DE3AB6F847BC8EED5DB3D3537CC4393CADBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:5C41DE3AB6F847BC8EED5DB3D3537CC4393CADBA
 ```bash
 magnet:?xt=urn:btih:5A291072739E0D2B8C2FA22D92AAF1834FA1E2C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:5A291072739E0D2B8C2FA22D92AAF1834FA1E2C8
 magnet:?xt=urn:btih:3EB361A971D57DBC17CDF36DEB07DBF8073E4E95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:3EB361A971D57DBC17CDF36DEB07DBF8073E4E95
 ```bash
 magnet:?xt=urn:btih:9096E51D4B435BED038A8AC43F598408D4B2551C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:9096E51D4B435BED038A8AC43F598408D4B2551C
 magnet:?xt=urn:btih:3F1C7178510924853D2C6DA74ED78B124BB5DF17
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 706257   (424539) от 11.10.2013
-
-Обыкновенный человек (1957) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_424539.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре сюжета - амбициозные интриги: певец Ладыгин стесняется профессии своего внезапно приехавшего друга Свеколкина и представляет его членам своей семьи как крупного ученого. У Ладыгинского племянника Алексея есть невеста Кира, но её мать ссорит ее с женихом, чтобы сосватать за самого певца, разрушив его брак с Верой. Свеколкин убеждает свою дочь, тоже влюбленную (   Читать дальше...   )Жанр: Мелодрама, КомедияРежиссер: Александр СтолбовАктеры: Василий Меркурьев, Ирина Скобцева, Георгий Куликов, Евгения Козырева, Серафима Бирман, Петр Константинов, Роза Макагонова, Александра Панова, Валентина Беляева, Иван Бычков.Продолжительность: 01:34:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D05143793647BD7A282833C2D249F4B8FA56A548
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

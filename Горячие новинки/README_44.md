@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7212BF4AB4BB4397DE6758B97960CB52F74ABF28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:7212BF4AB4BB4397DE6758B97960CB52F74ABF28
 ```bash
 magnet:?xt=urn:btih:66D88F26C9B383BEEBCBDD45E930E9C065E7A507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:66D88F26C9B383BEEBCBDD45E930E9C065E7A507
 magnet:?xt=urn:btih:98229373ACCDA57C8A4C33425337976BE7817A4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:98229373ACCDA57C8A4C33425337976BE7817A4D
 ```bash
 magnet:?xt=urn:btih:2E2E82E17594531DA7CD96F239400EDDF0C54ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:2E2E82E17594531DA7CD96F239400EDDF0C54ECD
 magnet:?xt=urn:btih:5BDD89CC45A069B3DB09B19968789E4FB9C1A12E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:5BDD89CC45A069B3DB09B19968789E4FB9C1A12E
 ```bash
 magnet:?xt=urn:btih:EFE7590512EF49B7A09A605DAEE33A1D06D95F05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DL [H.264/1080p] [MVO]
 magnet:?xt=urn:btih:C16D184A89946E45F05C19A2D3F6A719B356A2E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:C16D184A89946E45F05C19A2D3F6A719B356A2E9
 ```bash
 magnet:?xt=urn:btih:8B8A1EA58D5C1FBBB40BE1E3243CF15076E8B7B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Minecraft в кино / A Minecraft Movie (2025) WEB-DL [H.264/720p] [MVO]
 magnet:?xt=urn:btih:11B142F1F7A74C0D9B879249C1142C3D1C9F3568
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:11B142F1F7A74C0D9B879249C1142C3D1C9F3568
 ```bash
 magnet:?xt=urn:btih:9320FE85C46197A21BBD9742D925E266CE144FFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:9320FE85C46197A21BBD9742D925E266CE144FFC
 magnet:?xt=urn:btih:789BFC1703AB48E2817D03BCB2734F188830A935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:789BFC1703AB48E2817D03BCB2734F188830A935
 ```bash
 magnet:?xt=urn:btih:6A730C26D1CB0DAFD05E1861AB7251365A88F83A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:6A730C26D1CB0DAFD05E1861AB7251365A88F83A
 magnet:?xt=urn:btih:F17188085607F60275EFB814E94AB50F34FDBBC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:F17188085607F60275EFB814E94AB50F34FDBBC6
 ```bash
 magnet:?xt=urn:btih:DCEBE27A112B1E92B4A37A088C7CAE976BB46496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:DCEBE27A112B1E92B4A37A088C7CAE976BB46496
 magnet:?xt=urn:btih:A05310289A9C8CD74EB18B2BED219C271C92AF9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:A05310289A9C8CD74EB18B2BED219C271C92AF9A
 ```bash
 magnet:?xt=urn:btih:5D89F11DCE4674810A724425A56EFF8D8DA006DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:5D89F11DCE4674810A724425A56EFF8D8DA006DE
 magnet:?xt=urn:btih:4D49C8212C2941340F6F4FD107FF8276726209BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:4D49C8212C2941340F6F4FD107FF8276726209BC
 ```bash
 magnet:?xt=urn:btih:DC605AB51B1A3D159BC027F8B529303C90380039
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:DC605AB51B1A3D159BC027F8B529303C90380039
 magnet:?xt=urn:btih:C0191B7DBD7382D9B4E8BD710BF2C4F44396AB10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ magnet:?xt=urn:btih:C0191B7DBD7382D9B4E8BD710BF2C4F44396AB10
 ```bash
 magnet:?xt=urn:btih:905143D500B093FEF66112631110A40F5CCD8039
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:905143D500B093FEF66112631110A40F5CCD8039
 magnet:?xt=urn:btih:0D7F15462E675A7EE53602FB19F8F3707A5862F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ magnet:?xt=urn:btih:0D7F15462E675A7EE53602FB19F8F3707A5862F2
 ```bash
 magnet:?xt=urn:btih:68993767C1FE535B6810D74D3B72AB0708E4D71C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:68993767C1FE535B6810D74D3B72AB0708E4D71C
 magnet:?xt=urn:btih:658E067E050214F19043B6DE6165E4ED4676E046
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ magnet:?xt=urn:btih:658E067E050214F19043B6DE6165E4ED4676E046
 ```bash
 magnet:?xt=urn:btih:37019500048A00A0E138C7EA823DD0E6D2DFD65B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ magnet:?xt=urn:btih:37019500048A00A0E138C7EA823DD0E6D2DFD65B
 magnet:?xt=urn:btih:036D15A18007CD2DDA3C3DACD909E70105F4FFEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ magnet:?xt=urn:btih:036D15A18007CD2DDA3C3DACD909E70105F4FFEA
 ```bash
 magnet:?xt=urn:btih:320BD869693BD19A1B66EC83A0E7C59F80A51B11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

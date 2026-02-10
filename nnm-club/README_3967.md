@@ -19,6 +19,8 @@ InfoCity - Азербайджанский ежемесячный журнал о
 magnet:?xt=urn:btih:97B954851F69B7F9D8FC415FDF98584D163576F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:97B954851F69B7F9D8FC415FDF98584D163576F0
 ```bash
 magnet:?xt=urn:btih:D780087EB40F2578B565BBB17DD5AD35BF15038E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Metallica - Unload (Bootleg) (1999) [FLAC 16/44.1|Lossless|tracks|MC-Rip] <Acous
 magnet:?xt=urn:btih:B7D945DE4278DD86451514DA3B1A535105188A64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:B7D945DE4278DD86451514DA3B1A535105188A64
 ```bash
 magnet:?xt=urn:btih:A7A94E31AC1BB285ED16640073125A0A8853BACF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ VA - Real Hits 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 magnet:?xt=urn:btih:B5EE6081D6CDCB1345354882F2BB7DF58057C37C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Korolova - Live @ Captive Soul , 2GTHR Buenos Aires (2024-01-12) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:7EFE2AC17F53C3C1E83CF8C08966022E29CD7C9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:7EFE2AC17F53C3C1E83CF8C08966022E29CD7C9C
 ```bash
 magnet:?xt=urn:btih:4147753A723E1A2935FBA1A3F0BE1273D587753B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ These Days & Those Days - Eminent Pleasurment – Fucked Into Sextasy (2024) [MP
 magnet:?xt=urn:btih:255D9B530535BDB884D412C9DC1F4EB3484F8D9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Chris Rea - God's Great Banana Skin (1992) [OGG Vorbis|480 Kbps] <Blues Rock, Co
 ```bash
 magnet:?xt=urn:btih:F36BD2B09F8E266F55EBA199D9E98A1E3B990486
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:F36BD2B09F8E266F55EBA199D9E98A1E3B990486
 magnet:?xt=urn:btih:AD2F6142A6611BB2EC48F46D0101FA5BC77BD5BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ The Tiger Lillies - Onepenny Opera (2022) [MP3|320 Kbps] <Indie Rock, Dark Cabar
 ```bash
 magnet:?xt=urn:btih:36324C6671FF9912E07756C6243977C228013EE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +329,8 @@ magnet:?xt=urn:btih:36324C6671FF9912E07756C6243977C228013EE2
 magnet:?xt=urn:btih:FB4B488EF1310501172891DD45F019209C854A3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +357,8 @@ Frozen Rain - One Mile From Heartsville (2023) Japanese Edition [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:CB236B2E07BE47E284F5E671710C1AC073241B81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +387,8 @@ Hex - From Dust To Metal (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:613B4A8AF48F1E90E30A5572CF3D2BEFDEB84061
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ Speedio: Internet Speed Test 3.9 [Multi]
 magnet:?xt=urn:btih:E6132FE9A037249289CA03BFF214B7BEB91B2D33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +441,8 @@ magnet:?xt=urn:btih:E6132FE9A037249289CA03BFF214B7BEB91B2D33
 ```bash
 magnet:?xt=urn:btih:1268E2FE0343AF27CC077F49881176A64E68240C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +471,8 @@ VA - Dance Vibes for Your Ears (2024) [MP3|320 Kbps] <Dance, Club, House, Electr
 magnet:?xt=urn:btih:DF81C3F431652CBE3050E74F4CDE1A4FF534AF42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +496,8 @@ magnet:?xt=urn:btih:DF81C3F431652CBE3050E74F4CDE1A4FF534AF42
 ```bash
 magnet:?xt=urn:btih:BC5F7AC4F9609B5E8D90375AB5BA8F0690C0A8FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +523,8 @@ magnet:?xt=urn:btih:BC5F7AC4F9609B5E8D90375AB5BA8F0690C0A8FA
 magnet:?xt=urn:btih:735F53BC16B6C06282E71883286D0A298A504F3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +549,8 @@ Live - это быстрое и гибкое программное обеспе
 magnet:?xt=urn:btih:4FEF5976596C93B0BBF5F334158E388281379B12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +574,8 @@ magnet:?xt=urn:btih:4FEF5976596C93B0BBF5F334158E388281379B12
 ```bash
 magnet:?xt=urn:btih:8D0273F056E12C5FA542C2C326B73C81C32C6D2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +603,8 @@ magnet:?xt=urn:btih:8D0273F056E12C5FA542C2C326B73C81C32C6D2B
 magnet:?xt=urn:btih:5314E905B3A03CB2D6DAE3D6450349A043118F02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +628,8 @@ UniBook - Аудиокниги v0.8.8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:0E02F7CC6987AE058C7BD734899E21E5F3A9A3AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:0E02F7CC6987AE058C7BD734899E21E5F3A9A3AA
 magnet:?xt=urn:btih:CDFBC6019F0D0C88B17E1C39415528B6B556E5FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ magnet:?xt=urn:btih:CDFBC6019F0D0C88B17E1C39415528B6B556E5FB
 magnet:?xt=urn:btih:CDE42669ABCEF0B58B170E7CFE71A21D92770F63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ magnet:?xt=urn:btih:CDE42669ABCEF0B58B170E7CFE71A21D92770F63
 ```bash
 magnet:?xt=urn:btih:1A38A9E47214B4A462D2503328761F025C26C023
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

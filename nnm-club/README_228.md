@@ -22,6 +22,8 @@ VA - The Best of Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:AD4CDB318508E887EEA516EC26E813E151CA5C6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:AD4CDB318508E887EEA516EC26E813E151CA5C6E
 magnet:?xt=urn:btih:4F6A7A99DA91E0692339794CD7874796BAAC6EBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:4F6A7A99DA91E0692339794CD7874796BAAC6EBC
 ```bash
 magnet:?xt=urn:btih:7AD0E8BD3A74A8C495A971FD1884021747894F40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:7AD0E8BD3A74A8C495A971FD1884021747894F40
 magnet:?xt=urn:btih:885B1589CE50813CB718D883838C1765AA5933D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:885B1589CE50813CB718D883838C1765AA5933D4
 ```bash
 magnet:?xt=urn:btih:98EE97F8055AE5C2CF38A653CF881112A8C37938
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Photo Pos Pro - популярный фоторедактор. В версии 3
 magnet:?xt=urn:btih:5B89D1C147611AA905F117078E408403BD45124A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ The Garden Path (2024) [Multi] (1.0) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:D2C6E6E5BEC9CC703CAB4CF714441C39DD66B9BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:D2C6E6E5BEC9CC703CAB4CF714441C39DD66B9BA
 magnet:?xt=urn:btih:3A62FECE0920963AB55B766C17800F1B5901467C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:3A62FECE0920963AB55B766C17800F1B5901467C
 magnet:?xt=urn:btih:35054CB46BA625626564E3E2D4B150CB333E161E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Uptooda (бывш. Image Uploader) – бесплатная программа �
 ```bash
 magnet:?xt=urn:btih:CA14B19FDC90C2AE44427FFC8D85CEC85B7D1FEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:CA14B19FDC90C2AE44427FFC8D85CEC85B7D1FEC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:CA14B19FDC90C2AE44427FFC8D85CEC85B7D1FEC
 ```bash
 magnet:?xt=urn:btih:57A6B19DF2EEB63FB7CE97D5A092A290AC089372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:57A6B19DF2EEB63FB7CE97D5A092A290AC089372
 magnet:?xt=urn:btih:C65D162102BF3F3903AE2C8FF18B29D0ABEF504C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:C65D162102BF3F3903AE2C8FF18B29D0ABEF504C
 ```bash
 magnet:?xt=urn:btih:DF93A1531C9C64983611EA9569208F6CB3B2B72B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Music Collection - неплохая программа для создания �
 magnet:?xt=urn:btih:12F497572AB84C9AA6370D0FE9E8715A821AB66B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Cover Commander позволяет создавать профессиональ
 ```bash
 magnet:?xt=urn:btih:DC250A600825EABEA77E5D95FDCC5BEC29B5C146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:DC250A600825EABEA77E5D95FDCC5BEC29B5C146
 magnet:?xt=urn:btih:E88F6665A7797FDDC9E620E3B1F5CFD1264B81C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:E88F6665A7797FDDC9E620E3B1F5CFD1264B81C0
 ```bash
 magnet:?xt=urn:btih:383D82D87150FD7AF36D1711C8094F1A8FCA8B7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ S.T.A.L.K.E.R.: Shadow of Chornobyl (2025) [Ru/Multi] (1.2) Repack dixen18 [Enha
 magnet:?xt=urn:btih:7FC95E02E7177D31CE79BA61FF2110813DB75851
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:7FC95E02E7177D31CE79BA61FF2110813DB75851
 ```bash
 magnet:?xt=urn:btih:F07658CE1BB0CB0F1323096A9D887A45D397864D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Ubuntu ServerPack - полный комплект серверного ПО, к�
 magnet:?xt=urn:btih:34D4D277021CA3F887AECEBC50D33D21097857F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:34D4D277021CA3F887AECEBC50D33D21097857F9
 ```bash
 magnet:?xt=urn:btih:34C8C771E6491F374B4631DF9186C1C7298E50CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:34C8C771E6491F374B4631DF9186C1C7298E50CC
 magnet:?xt=urn:btih:43868E9D887BA3A69125EBC6EDF5298CB17A4893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ FreeTube использует собственный HTTP-API YouTube с наб�
 ```bash
 magnet:?xt=urn:btih:26254A3EED354735F05A94D57FBA727F98BA9DAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Flyoobe (Ранее назывался Flyby11) — это простой пат
 magnet:?xt=urn:btih:68DB6DE67BB6E90540A944E5DEAE3994129BEC1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Blood Storm: Alien Purge (2025) [Ru/Multi] (0.5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:01AEDA88302384F2B03574EBEC5A5EEC00F2BDD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

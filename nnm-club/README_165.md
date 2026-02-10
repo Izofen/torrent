@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C5673360D3ED3C0EF7D890BBCA0C85BD03772693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C5673360D3ED3C0EF7D890BBCA0C85BD03772693
 ```bash
 magnet:?xt=urn:btih:7D8576AC1D37824C2C263E757868C1D1BDBC2FF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ updated_aug_2025_x64_dvd_65bb5415.iso
 magnet:?xt=urn:btih:2C4F1E793D120B787C9E5545ECF3FB19F2D49EF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:2C4F1E793D120B787C9E5545ECF3FB19F2D49EF5
 magnet:?xt=urn:btih:BCDB6AB48946DA1F1E9C3F7C9DED588CE800835B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack seleZe
 ```bash
 magnet:?xt=urn:btih:1BFEAF8213C5D5413DB33670688972B2C9931B05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:1BFEAF8213C5D5413DB33670688972B2C9931B05
 magnet:?xt=urn:btih:98DAE694D36F2905E957579251A28EAE1907D0AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:98DAE694D36F2905E957579251A28EAE1907D0AF
 ```bash
 magnet:?xt=urn:btih:BF9DA15D2324767213B92FF6269BD93681A794DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:BF9DA15D2324767213B92FF6269BD93681A794DE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:BF9DA15D2324767213B92FF6269BD93681A794DE
 ```bash
 magnet:?xt=urn:btih:7B68269D61C8B51F4ABCD73960114D1B5C4C525C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ KELDER (2025) [Ru/Multi] (1.0) Scene DOGE
 magnet:?xt=urn:btih:4E5B57F087BAA0644070B4AD123B7DDFE4D4D2A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:4E5B57F087BAA0644070B4AD123B7DDFE4D4D2A3
 ```bash
 magnet:?xt=urn:btih:C3B97FEEF6F85324A7C5128C49E727A1416681FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Lively Wallpaper — сравнительно простая, полностью
 magnet:?xt=urn:btih:4188B025D1D24D36B2049580983D1226317CF16C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:4188B025D1D24D36B2049580983D1226317CF16C
 ```bash
 magnet:?xt=urn:btih:11E6434E24CA1770745CCC342A52626F1827CCEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:11E6434E24CA1770745CCC342A52626F1827CCEE
 magnet:?xt=urn:btih:C083F2559B9BCABB748DBA6DB846E28F4F9EB7ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28324) Repack FitGirl
 magnet:?xt=urn:btih:227F16073CDC4AF03CCFCC0C8A7ECEF59A32BE24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Rust - это игра про выживание в открытом мире с
 ```bash
 magnet:?xt=urn:btih:0042B22F8068847459A68E3C9A4798777F8464C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Windows 11 Pro 24H2 26100.4652 x64 by SanLex [Lightweight] [Ru-En] (2025.08.06)
 magnet:?xt=urn:btih:B38EBD2963F54907957CF3A08C8901414B8913F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:B38EBD2963F54907957CF3A08C8901414B8913F3
 ```bash
 magnet:?xt=urn:btih:A7F7968E76EEB4A20756CB51A22E671EA8148E6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:A7F7968E76EEB4A20756CB51A22E671EA8148E6F
 magnet:?xt=urn:btih:1FA88BB50C805CACA0A87933F5D360417815D6E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ PowerSlave Exhumed – это полноценный порт классичес
 ```bash
 magnet:?xt=urn:btih:D1AA997962EFFD022CD6FD30DBE898FE9A572A65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:D1AA997962EFFD022CD6FD30DBE898FE9A572A65
 magnet:?xt=urn:btih:8C1D377F23121CB7AE3622E6CD7FAB1786C63960
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:8C1D377F23121CB7AE3622E6CD7FAB1786C63960
 ```bash
 magnet:?xt=urn:btih:A7BC041F072A2022E387F74B5787F060D68A2B1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Titan Quest II (2025) [Ru/En] (0.1.2-PUBLIC.99841) Repack Wanterlude [Early Acce
 magnet:?xt=urn:btih:3C6A6E42B59D04F6286317814F5F6035FD19ECE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ SnowRunner (2020) [Ru/Multi] (38.0/dlc) Repack seleZen [Premium Edition]
 ```bash
 magnet:?xt=urn:btih:B9F9C45C121DEBEB2E743A9526E4FA1584A2E941
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:B9F9C45C121DEBEB2E743A9526E4FA1584A2E941
 magnet:?xt=urn:btih:E12B8AD2D0F7B35CAB41C5BFCA2D12CC9D7DA9AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Stygian: Outer Gods (2025) [Ru/Multi] (220825) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:3CA1841B8C7FE7971F5B0B0C6A0278A9394AA6A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

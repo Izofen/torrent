@@ -1,3 +1,29 @@
+###  Публикация: 243592   (870258) от 11.04.2020
+
+Вячеслав Шалыгин - Тринадцатый сектор (S.T.A.L.K.E.R.) (2010) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вторая Вспышка породила в Зоне еще более страшных монстров, чем предыдущие катаклизмы. И среди них Хозяина — Главного Врага, обладающего могущественным артефактом, открывающим обитателям Зоны проход во внешний мир. Вольный ходок, в прошлом наемник Андрей Лунев, которому совсем недавно удалось спасти все живое в Зоне, еще не знал, что очередное задание генерала Остапенко (   Читать дальше...   )Жанр: Фантастика, АудиокнигаПродолжительность: 10:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEBE5A49303F12D7EC56AD3CEC1E9847233060F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 998474   (870264) от 19.03.2016
 
 Инна Георгиева | Гибкий график катастроф (2016) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:F828CF5CB1BB53A8232A1F54EC5F36654969500F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:F828CF5CB1BB53A8232A1F54EC5F36654969500F
 magnet:?xt=urn:btih:50C272F43863ABF26F8758DF1C34B4122231B6ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:50C272F43863ABF26F8758DF1C34B4122231B6ED
 magnet:?xt=urn:btih:FD21D752F77C7C2898CE02C5708A4787713BC89C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:FD21D752F77C7C2898CE02C5708A4787713BC89C
 ```bash
 magnet:?xt=urn:btih:794E8591644DBD2F2BCEA007E655446176529A21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:794E8591644DBD2F2BCEA007E655446176529A21
 magnet:?xt=urn:btih:5333F835F95D3EF579E95C2D305BFCC4ECC071BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:5333F835F95D3EF579E95C2D305BFCC4ECC071BE
 ```bash
 magnet:?xt=urn:btih:CBC173C654910AE09E95B208B60C5D12E9AE1F7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:CBC173C654910AE09E95B208B60C5D12E9AE1F7E
 magnet:?xt=urn:btih:062A21634904056768B87B121D8336A3020120B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:062A21634904056768B87B121D8336A3020120B4
 magnet:?xt=urn:btih:77FDED30FDF843DB82FBDDCD337BEFAAF04792BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:77FDED30FDF843DB82FBDDCD337BEFAAF04792BC
 ```bash
 magnet:?xt=urn:btih:6A6F7F5F03FFFB65446A01963B94CF73A05D13A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:6A6F7F5F03FFFB65446A01963B94CF73A05D13A0
 magnet:?xt=urn:btih:1696E67EC62E6DE37DBEEC922459C08D16750CCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:1696E67EC62E6DE37DBEEC922459C08D16750CCF
 magnet:?xt=urn:btih:FC97AB73204033C1D4326F43A8027F736685C0B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:FC97AB73204033C1D4326F43A8027F736685C0B1
 ```bash
 magnet:?xt=urn:btih:2A288157BEEEA822EF3D371D07398C3F6D2C2B4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:2A288157BEEEA822EF3D371D07398C3F6D2C2B4E
 magnet:?xt=urn:btih:D12BA5E85EC6D20C75FEAC5E9733BF7BAE942C6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:D12BA5E85EC6D20C75FEAC5E9733BF7BAE942C6D
 ```bash
 magnet:?xt=urn:btih:5315DF0A780C43BDDF7B046D98489113964EDEAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:5315DF0A780C43BDDF7B046D98489113964EDEAD
 magnet:?xt=urn:btih:40D5C7C382770E56F1B47ED1DDBEBAD87B8F0268
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:40D5C7C382770E56F1B47ED1DDBEBAD87B8F0268
 ```bash
 magnet:?xt=urn:btih:6EED7E542E9D95F9C0E0B3C2E6F0957435F905CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:6EED7E542E9D95F9C0E0B3C2E6F0957435F905CB
 magnet:?xt=urn:btih:8DE1859A6E63E7B7E7BCADA51ADDC6906855E611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:8DE1859A6E63E7B7E7BCADA51ADDC6906855E611
 ```bash
 magnet:?xt=urn:btih:3499C85659014D001814F440E7B33F3279D17D63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:3499C85659014D001814F440E7B33F3279D17D63
 magnet:?xt=urn:btih:3E985F380C2076962ACE520C8FB2A29AD16B2543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:3E985F380C2076962ACE520C8FB2A29AD16B2543
 ```bash
 magnet:?xt=urn:btih:D0207DF8B72E7839DC70C266E290634026FC80BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:D0207DF8B72E7839DC70C266E290634026FC80BF
 magnet:?xt=urn:btih:C2BF2955473E2E995F1AE4A43D9A767CEE3F5FBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:C2BF2955473E2E995F1AE4A43D9A767CEE3F5FBD
 ```bash
 magnet:?xt=urn:btih:789F1A8722D77082FCB2B30ECF68AACDFD861B0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:789F1A8722D77082FCB2B30ECF68AACDFD861B0D
 magnet:?xt=urn:btih:5ACC2EEBB1DAFC718A4CCDE0086318E90B250705
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:5ACC2EEBB1DAFC718A4CCDE0086318E90B250705
 ```bash
 magnet:?xt=urn:btih:63868891629C34B072360EC1BDE1474BD87CF918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,31 +675,7 @@ magnet:?xt=urn:btih:63868891629C34B072360EC1BDE1474BD87CF918
 magnet:?xt=urn:btih:3C3078C41798C226856CCEFF825ABDA272D6B210
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496508   (872861) от 17.09.2021
-
-Бронислава Вонсович | «Ильинск» Книга 1. Гимназистка. Клановые игры (2021) [MP3, Алевтина Жарова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872861.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Гимназистка. Клановые игры» – фантастический роман Брониславы Вонсович, первая книга цикла «Ильинск», жанр любовное фэнтези.
-
-Очнувшись после покушения, Лиза понимает, что от неё прежней не осталось ровным счетом ничего. Жизнь с чистого листа», – как сказал один из осматривавших её целителей. Только с чистого ли? Старые умения и навыки пропали, зато загадочно появились (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 14:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E811A5B2DF483A46230AAAFE3EE21741953E510
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -28,6 +28,8 @@ Tony Joe White - One Hot July (1998) [FLAC|Lossless]<Blues Rock>
 magnet:?xt=urn:btih:FA898C5004B10FA322C0B17FBB11966E64A581F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Chris Rea - Hofner Blue Notes (2003) Reissue 2019 [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:1A651E15D42FAB096C5606DBC0705712583430DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ VA - Christmas Favorites (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Folk, Pop, 
 magnet:?xt=urn:btih:14087AD85D8FC88561BF6189811061D540C99425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ Jim Stahlhut - Exit 228 (2013) Self-Released [FLAC|Lossless|image + .cue] <Post-
 ```bash
 magnet:?xt=urn:btih:1656F6B65CC142B148583333599AACF1F984E105
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ Nada - Panta Rei (2001) Naxos Jazz[APE|image+.cue] <Vocal Jazz>
 magnet:?xt=urn:btih:04F1F9066F6426BA0B9D4E4CADB7150EB68422BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ Fiona Boyes - Box & Dice (2015) [MP3|320 кб/с] <Electric Blues>
 ```bash
 magnet:?xt=urn:btih:E255FE5FFDE77A3123919FF52788C2F5E6F3D55A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ The Ray Conniff Singers - Christmas With Conniff (1959) 1990, Columbia[FLAC|Loss
 magnet:?xt=urn:btih:E840FE9B94F5027FECE09C2D0597BF3BB290B7AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ When Rivers Meet - Saving Grace (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 ```bash
 magnet:?xt=urn:btih:25835594C34D748A4DA414E43583A3CC354E93F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ Oscar Pettiford - Another One (1955) 2000, Bethlehem [FLAC|Lossless|tracks + .cu
 magnet:?xt=urn:btih:34C7AEAAD776E6F7A7B06E227F404C56F2C46A13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ Big Band Brothers - A Jazz Celebration of The Allman Brothers Band (2019) New We
 ```bash
 magnet:?xt=urn:btih:77ECE808F539AADE14BA1E451E561F85247BB894
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ Bob Lanza Blues Band - From Hero to Zero (2015) [MP3|320 Kbps] <Blues>
 magnet:?xt=urn:btih:A9962BC77CBCE99F6D635F59C8D4B60EA1F2B771
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +346,8 @@ VA - 'That's What I Call Sweet Music': American Dance Orchestras of the 1920s (1
 ```bash
 magnet:?xt=urn:btih:0EAF7066FD018F1902B909C0DD522C64B54841FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ Dwight Trible - Horace (2001) Elephant[FLAC|tracks+.cue] <Vocal Jazz, Afro-Cuban
 magnet:?xt=urn:btih:37F3585E2600FCA35616D75CB4C60A29E4438DBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +404,8 @@ Bonnie McCoy - Blues Singing Woman (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:3A8138A583AB9A25BF127EE1532443596558255A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +440,8 @@ Monica Ramey - Make Someone Happy (2010) [FLAC|Lossless]<Vocal Jazz>
 magnet:?xt=urn:btih:21AAB4F96F690054A7FF758E1873B5E4232A2D13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +468,8 @@ Mal Waldron - You And The Night And The Music (1983) 2005, King Record [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:C2B586935B184A00CD8A994C672FF01FB81AE6EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +498,8 @@ Zach Ryan - Wanderer (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
 magnet:?xt=urn:btih:F17058EB3A2CCED510E9557D2F12727EA9111164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +526,8 @@ The Good Dudes - Where Are You Going (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues
 ```bash
 magnet:?xt=urn:btih:4C145F48A4D4FC2C068561CB526F606D45B853D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +556,8 @@ CD1:
 magnet:?xt=urn:btih:6F808BE7E44077714EA155F01925458E3796CEC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +584,8 @@ Denys Lable, Christian Padovan - Dédoublé (2022) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:682E4DB3362C4B9A11E4BF0EF7D4CFBA45A1375E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +614,8 @@ Sonny Cox - The Wailer (1966) Remaster, 1998, Universal[FLAC|Lossless|tracks + .
 magnet:?xt=urn:btih:B59E816B14828EC82B0293D3DB29BAB23E29437A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +639,8 @@ Jeremiah Johnson - Hi-Fi Drive By (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 ```bash
 magnet:?xt=urn:btih:112ACED9376AAE31923EA46DF4144EF88C20F99E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +675,8 @@ Monica Ramey and the Beegie Adair Trio - Monica Ramey and the Beegie Adair Trio 
 magnet:?xt=urn:btih:A74341259FC34B8185EBE86FD11666B33AF3BB94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +703,8 @@ Dakota Staton - Time To Swing (1959) 2009, DRG Records [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:57363B81C3A03204E76FE62797C10BCB4169B76A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -685,6 +733,8 @@ James Moody - Return From Overbrook (1958) 1996, GRP [FLAC|Lossless|tracks + .cu
 magnet:?xt=urn:btih:20A887A7E2257158DEE811AD6D4D508B838FD6E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -711,6 +761,8 @@ Ben Webster Quartet - My Man: Live At Montmartre (1973) 1986, SteepleChase [FLAC
 ```bash
 magnet:?xt=urn:btih:C21EB0B624A555F1A7C048B1A16FE6915FABA816
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

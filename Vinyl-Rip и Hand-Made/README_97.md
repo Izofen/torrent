@@ -22,6 +22,8 @@ Side A:
 magnet:?xt=urn:btih:8F4027E6BB857B884D4841EF392F16EA65D6AA91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:ACD7DBB2E41222ECF1A0C998ED13E963DAF5F94B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ B - Isn’t It A Pity (6:59)Жанр: RockПродолжительность: 00
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Deep Purple - The House Of Blue Light (Дом голубого света) (1987
 ```bash
 magnet:?xt=urn:btih:09F36FFF8B65C0DB540D2481BD2AEE6CF8BFF4D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:09F36FFF8B65C0DB540D2481BD2AEE6CF8BFF4D3
 magnet:?xt=urn:btih:D24917008C646FD9D006309704719CF3F8041296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ A4. I Don't Wanna Go Home (4:51)(   Читать дальше...   )Произв
 ```bash
 magnet:?xt=urn:btih:1883993E489AEE3F250B83A177995D57B6A4DB6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ David Bowie - Blackstar (2016) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Experimental 
 magnet:?xt=urn:btih:1A0D1536CB877DF34E9B78CC33F9CF7E88B3C7B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ magnet:?xt=urn:btih:1A0D1536CB877DF34E9B78CC33F9CF7E88B3C7B1
 ```bash
 magnet:?xt=urn:btih:FFA31EAB72F224F22F2D1DFAE2BD72B3EB085A0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +250,8 @@ A4. 22.Acacia Avenue (6:36)(   Читать дальше...   )Производ�
 ```bash
 magnet:?xt=urn:btih:672DDC282EB12BDF71CEBA73C1D3783DF4BC4E36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +284,8 @@ B4. Overture Piccante 6:43Жанр: Classic RockПродолжительност
 magnet:?xt=urn:btih:336438EA30105DCE5C9EB29D9EE3EDC5049C727D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +313,8 @@ A4	Дождь(   Читать дальше...   )Жанр: Rock & Roll, Pop Rock
 magnet:?xt=urn:btih:05DBF7039DE6573EEC563F9086F6E36F72D8AEE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ Patricia Kaas - Mademoiselle Chante... (1988) [FLAC 2.0 24/96|image (Vinyl-Rip)]
 ```bash
 magnet:?xt=urn:btih:4569D68A1729E88EBF9C677A6815528BCCFFE8D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +377,8 @@ B4. Ultraviolet (Light My Way) 4:40(   Читать дальше...   )Жанр:
 magnet:?xt=urn:btih:36A890FFA649118C5568151D5A8EE3EDC5439569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +402,8 @@ magnet:?xt=urn:btih:36A890FFA649118C5568151D5A8EE3EDC5439569
 ```bash
 magnet:?xt=urn:btih:DC60A5BA2BB088F7C4F3A85FAD05C0E0ADF6D6F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +429,8 @@ magnet:?xt=urn:btih:DC60A5BA2BB088F7C4F3A85FAD05C0E0ADF6D6F0
 ```bash
 magnet:?xt=urn:btih:CB6D34B1A3435F6784CDD64BB3529566B1AE85D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +459,8 @@ Dana International - The Album (1998) [FLAC 2.0|16/44,1 |image+.cue (Vinyl-Rip)]
 magnet:?xt=urn:btih:EF85AAC73B9E8EDFB901EAB0191411010D3F11DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +487,8 @@ VA - Blues & Ballads 2 (1996) [FLAC 2.0|16/44,1|image+.cue (MC-Rip)] <Pop, Cover
 ```bash
 magnet:?xt=urn:btih:C8FC4B473CF5E93F11827BE9F0B3A10C63FA29A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +521,8 @@ B5. Wicked Ways 6:32Жанр: RockПродолжительность: 00:46:53
 ```bash
 magnet:?xt=urn:btih:A46BFC05513E57F36CC3C67C285C0D88061F7D6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +557,8 @@ C4. Damaged People 3:30(   Читать дальше...   )Жанр: Synth-popП
 magnet:?xt=urn:btih:0043B9363B5FB929FAFA7DCD46C7259F88EF7598
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +591,8 @@ Electric Light Orchestra - Discovery (1979) [FLAC 2.0 24/192|traks(Vinil-Rip)]<P
 ```bash
 magnet:?xt=urn:btih:397EC607483D91CDA4647D23B7448F3D62F88C11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +627,8 @@ magnet:?xt=urn:btih:397EC607483D91CDA4647D23B7448F3D62F88C11
 magnet:?xt=urn:btih:788853C62705A6DB44C7F01C393D0462E8AF84EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +655,8 @@ magnet:?xt=urn:btih:788853C62705A6DB44C7F01C393D0462E8AF84EC
 ```bash
 magnet:?xt=urn:btih:F0CC07C4374A94223E87EBE50F15DBE08B142442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +685,8 @@ Amadeus Veberzinke/Амадеус Веберзинке - J. S. Bach/И. С. Ба
 magnet:?xt=urn:btih:E524E0F0CA3702DC2C129FFD097E0E153AC9E7A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +714,8 @@ VA - Место встречи - Выпуск 4 (1988) [FLAC 2.0 24/192] image+.
 magnet:?xt=urn:btih:455619579D282BF72742EB0247C87405ACDD2B3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +742,8 @@ Yovanna/Иованна - 3xEP: Песни Д. Плессаса и К. Капни
 ```bash
 magnet:?xt=urn:btih:E4AC16232D0088A43E407C9B5CFDF33F03C30B62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -726,6 +776,8 @@ B4. Clean 5:29Жанр: Synth-popПродолжительность: 00:46:30
 ```bash
 magnet:?xt=urn:btih:AFE98CDF9D88713EFFB06255062F95905FC51DB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

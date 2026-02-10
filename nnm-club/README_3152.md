@@ -22,6 +22,8 @@ Høstsang (Hostsang) - I-II (2022, 2024) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 magnet:?xt=urn:btih:C9D8FD12EC502161A65C82712AF8E687B18819F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Houston Person - Christmas With Houston Person And Friends (1994) Muse Records [
 magnet:?xt=urn:btih:3316B6BC92FBCACB3F432F23D2450132E304E75F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:3316B6BC92FBCACB3F432F23D2450132E304E75F
 ```bash
 magnet:?xt=urn:btih:5F61223373C3734E5A3D1CBBF3565FC2A5DD22CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:5F61223373C3734E5A3D1CBBF3565FC2A5DD22CA
 magnet:?xt=urn:btih:01D91364433A74B0BCB7534F098CBEBE60CA9CD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:01D91364433A74B0BCB7534F098CBEBE60CA9CD3
 ```bash
 magnet:?xt=urn:btih:F903297425C97FE5560F9ECE79FCCAFE4DC00800
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Yuri Sosnin - Frank Conversation (2024) [MP3|320 Kbps] <Italo-Dance, Italo-Disco
 magnet:?xt=urn:btih:DA223B3EC590BF96BFA7D2180E766195AAF6091D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:DA223B3EC590BF96BFA7D2180E766195AAF6091D
 ```bash
 magnet:?xt=urn:btih:DBF469D24592DBA517DADC1550ECDC9686BF2815
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Michael Simon, Tibetania - Umami (Tibetania Records) (2024) [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:AB552A35306B6758A531403D1D3796B7948ECB16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:AB552A35306B6758A531403D1D3796B7948ECB16
 magnet:?xt=urn:btih:9B04CE813BA9ABA4A2B12BFD37D343B70D9B57B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ Sports.ru для Android - это вся информация о спорте с
 magnet:?xt=urn:btih:45D91FAEADC911B247F2860A1B686F941B70E11E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:45D91FAEADC911B247F2860A1B686F941B70E11E
 ```bash
 magnet:?xt=urn:btih:7A754A76D46E994FF70461D0B6B986D80B163BF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:7A754A76D46E994FF70461D0B6B986D80B163BF3
 magnet:?xt=urn:btih:6C922FAC2675A92ADB3C41C4D0CEE7A1FE92869E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ Waldorf - Blofeld 1.0.0 VSTi, VSTi 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:734CC3B77E7C689770637ADF2CD1E5CBBD91C9E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:734CC3B77E7C689770637ADF2CD1E5CBBD91C9E8
 ```bash
 magnet:?xt=urn:btih:DA0ADD9DDA7BD622FBCF033B56D183889AF9F1AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ VA - Jazz Vocalists (2024) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 magnet:?xt=urn:btih:4EFA88B3E6C6057CFA60BDE8A3D3E0C7CF7C5067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ Nancy Sinatra - Country, My Way (1967) Remastered, 2024, Boots Enterprises, Inc.
 ```bash
 magnet:?xt=urn:btih:BF854170EA112A30FA6250CB1EF8466AE8DDB38B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ VA - ROCK en todos los idiomas (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:CC664F1F75369BACE425FF76D6CB7BA052284291
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ magnet:?xt=urn:btih:CC664F1F75369BACE425FF76D6CB7BA052284291
 ```bash
 magnet:?xt=urn:btih:2956BEBFD55D2CF3156B07DCCBA086F42ED27660
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +523,8 @@ magnet:?xt=urn:btih:2956BEBFD55D2CF3156B07DCCBA086F42ED27660
 magnet:?xt=urn:btih:38DFCCFDE8C65F11BB19BB67C6859847AFDEABBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +550,8 @@ magnet:?xt=urn:btih:38DFCCFDE8C65F11BB19BB67C6859847AFDEABBE
 ```bash
 magnet:?xt=urn:btih:BC88018A195EB3E6A981BE3C47C60E5060245562
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +580,8 @@ VA - Calm Late Night Jazz Music (Instrumental Jazz Sax Piano Guitar) (2024) [FLA
 magnet:?xt=urn:btih:CF9541CB0DE31F9852828043372918C3FA7AD483
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +608,8 @@ magnet:?xt=urn:btih:CF9541CB0DE31F9852828043372918C3FA7AD483
 ```bash
 magnet:?xt=urn:btih:CF4FF085D5FA76F03114D177821D4137620E8E08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +638,8 @@ VA - NYC Jazz Bar (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:C59758F66C28098A87C97D3766A51B007992D0F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +663,8 @@ magnet:?xt=urn:btih:C59758F66C28098A87C97D3766A51B007992D0F6
 ```bash
 magnet:?xt=urn:btih:0D88FF67A1C321C0A5605C6ABEBBAC8AE46089BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +690,8 @@ magnet:?xt=urn:btih:0D88FF67A1C321C0A5605C6ABEBBAC8AE46089BE
 magnet:?xt=urn:btih:AA056A8DA29849862D7943AE1FD2B4F812CC1009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +715,8 @@ magnet:?xt=urn:btih:AA056A8DA29849862D7943AE1FD2B4F812CC1009
 ```bash
 magnet:?xt=urn:btih:7A205BB66401476532CC8648C09F8392564F25A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1023729   (722027) от 06.06.2016
+
+Что? Где? Когда? (2016.06.05) HDTVRip (Летняя серия: игра 4)
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_722027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярнейшая командная интеллектуальная игра. В элитарном телевизионном казино игроки-знатоки зарабатывают деньги своим умом, отвечая на вопросы телезрителей. Проводятся летние и зимние игры. В эфире с 1975 года. За четверть века перед глазами телезрителей прошло более 170 игр. Сначала программа обосновалась в баре телецентра в Останкино и провела там 7 лет (с 1975 (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D87C248D5063A70C3268D06742039B84508C067C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 836832   (722133) от 28.04.2017
 
 Ставка (2014) SATRip (4 серии из 4)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:A51DB91973E12868F495ACCF072DC8855C1583FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:A51DB91973E12868F495ACCF072DC8855C1583FA
 magnet:?xt=urn:btih:BD9396CDD5E960D445DF0BB78D8E659D89857F55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:BD9396CDD5E960D445DF0BB78D8E659D89857F55
 ```bash
 magnet:?xt=urn:btih:569FDEBCA7B1685068778B7158F32167DF9B5871
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:569FDEBCA7B1685068778B7158F32167DF9B5871
 magnet:?xt=urn:btih:C30A2EBD567A43EC09526E27695D716C68BC6A58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:C30A2EBD567A43EC09526E27695D716C68BC6A58
 ```bash
 magnet:?xt=urn:btih:68FD50A8F632DFF7E5B8670D9A25626155EF02AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:68FD50A8F632DFF7E5B8670D9A25626155EF02AF
 magnet:?xt=urn:btih:B91527010BCF237E638BED3F6440FA9290D0B221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:B91527010BCF237E638BED3F6440FA9290D0B221
 ```bash
 magnet:?xt=urn:btih:A2F25E4FF5522D55B4D8FBD1680C473B5CD5CE65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:A2F25E4FF5522D55B4D8FBD1680C473B5CD5CE65
 magnet:?xt=urn:btih:FCC3B6271AF46F6ADDA1991CB596C78E49DBF1BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:FCC3B6271AF46F6ADDA1991CB596C78E49DBF1BA
 ```bash
 magnet:?xt=urn:btih:303C42C57F8E9E044BBEDF72E4A49F98AD11A270
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:303C42C57F8E9E044BBEDF72E4A49F98AD11A270
 magnet:?xt=urn:btih:0564EB9318D0226B83B63D33A2A221EA0689E9B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:0564EB9318D0226B83B63D33A2A221EA0689E9B3
 ```bash
 magnet:?xt=urn:btih:1D9BF50AE873754CB7C06FBC46FE4CFFE7F144D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:1D9BF50AE873754CB7C06FBC46FE4CFFE7F144D4
 magnet:?xt=urn:btih:D6FA7B2F66B5EEA3C036C28F3F8D8FE003E69BD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:D6FA7B2F66B5EEA3C036C28F3F8D8FE003E69BD5
 ```bash
 magnet:?xt=urn:btih:4B4062B2331C0BC601F34DF97874BCB4A294C913
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:4B4062B2331C0BC601F34DF97874BCB4A294C913
 magnet:?xt=urn:btih:793F4D798AB27DA82FA527833ECD281E958CD729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:793F4D798AB27DA82FA527833ECD281E958CD729
 ```bash
 magnet:?xt=urn:btih:1EA983D7F477BB3888FA741669F17CF886095C78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:1EA983D7F477BB3888FA741669F17CF886095C78
 magnet:?xt=urn:btih:8423F34641ACD36BA22468DE460D0F86AE4108B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:8423F34641ACD36BA22468DE460D0F86AE4108B9
 magnet:?xt=urn:btih:5817C3E6FE6BF06B38EB4E183B3A3CA49C13E1F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:5817C3E6FE6BF06B38EB4E183B3A3CA49C13E1F2
 ```bash
 magnet:?xt=urn:btih:A18420E2DD5F446B68548343949F42F8546D8681
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:A18420E2DD5F446B68548343949F42F8546D8681
 magnet:?xt=urn:btih:EA08AAEF201D58B06AEE27FCA4FA51360D9844EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:EA08AAEF201D58B06AEE27FCA4FA51360D9844EE
 magnet:?xt=urn:btih:C8CC6D7EFD71D16CD3F90086F22C6D773B930E15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:C8CC6D7EFD71D16CD3F90086F22C6D773B930E15
 ```bash
 magnet:?xt=urn:btih:3A09BD73B38C81A967BBE29046D76BB309AA01C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:3A09BD73B38C81A967BBE29046D76BB309AA01C7
 magnet:?xt=urn:btih:0CEB34B2BACC288DB492A23CEC37D28C23D20A31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:0CEB34B2BACC288DB492A23CEC37D28C23D20A31
 ```bash
 magnet:?xt=urn:btih:F6CD0B4C729C71AC66A7FB90FA4FB46E347D961C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:F6CD0B4C729C71AC66A7FB90FA4FB46E347D961C
 magnet:?xt=urn:btih:06F9C14C9560535E127B4464B1431A5FCAA42E79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,30 +672,7 @@ magnet:?xt=urn:btih:06F9C14C9560535E127B4464B1431A5FCAA42E79
 magnet:?xt=urn:btih:33FE8BE62DC76A190E59AADB5234622FA55D4990
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 43858   (723860) от 14.02.2022
-
-Убийца авианосцев (2003) TVRip
-
->>Документалистика и Телепередачи
->>Флот
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_723860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм "Убийца авианосцев" расскажет о суперсекретной субмарине "К-162". Так ее прозвали натовские генералы. Эта подлодка должна была стать адекватным ответом на планы США по военно-морскому господству в мире.
-Для создания суперсекретной субмарины "К-162" была создана новая отрасль науки и промышленности — металлургия титановых (   Читать дальше...   )Жанр: ДокументальныйПеревод: ОригинальныйПродолжительность: 00:25:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:566AF5B20BB8E4EAB0D774B0BEC0D4937A561508
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

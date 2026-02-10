@@ -20,6 +20,8 @@ CD2: Roaming Far From Home ( ~ live at ProgPower 2004 ~ )Жанр: Progressive M
 magnet:?xt=urn:btih:8C3578C5B4F87B22692A1A71D90274AA30FF0B0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Sunset Surfing Lounge: Chillout Your Mind (2020) [AAC|~315 Kbps] <Downtempo
 ```bash
 magnet:?xt=urn:btih:B4D4BD57AC674E6B8FE0C06F02A7139205D8F031
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Sepsism - To Prevail In Disgust (2003) [FLAC|Lossless|image + .cue] <Brutal Deat
 magnet:?xt=urn:btih:9B7C92B6915AC7BB46398A745A93966DAC3D2913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ Wuthering Heights - Within (1999) [FLAC|Lossless|image + .cue] <Progressive Meta
 magnet:?xt=urn:btih:DD0E43F630A9D275EC3BD4060B32F14F2A91887B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:DD0E43F630A9D275EC3BD4060B32F14F2A91887B
 ```bash
 magnet:?xt=urn:btih:4374918594576A3B2C0C3192795BC5BBD1118A26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:4374918594576A3B2C0C3192795BC5BBD1118A26
 magnet:?xt=urn:btih:9C9AA448B88F193A403B613228D6A338F289CD28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:9C9AA448B88F193A403B613228D6A338F289CD28
 ```bash
 magnet:?xt=urn:btih:62C12384F8621B2A914F6C80456D848D07ECF871
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:62C12384F8621B2A914F6C80456D848D07ECF871
 magnet:?xt=urn:btih:34A0444AF349E948CF606D37D873F2F1985C60E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ CD/DVD shot 3.0 (32 bit + 64 bit) 3.0.0.1 [Русский]
 ```bash
 magnet:?xt=urn:btih:3BE7D7FF83FAC123555BC56C529B6B738184222E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Adobe Photoshop CC 2019 - новая версия программы для об
 magnet:?xt=urn:btih:468C7CB87C1313B5008814EE77EDA93401E7423A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Shichisei no Subaru / Seven Senses of the Re'Union / Семизвёздная п
 ```bash
 magnet:?xt=urn:btih:7A52C50218586AC7B68EFC4A155C66B4265ECB1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:7A52C50218586AC7B68EFC4A155C66B4265ECB1D
 magnet:?xt=urn:btih:4EF6601445F98CCE9F7446F90DBD7076C46A639A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:4EF6601445F98CCE9F7446F90DBD7076C46A639A
 magnet:?xt=urn:btih:9119A4E36A8FA4D4DDAB214903A775CA18D5E418
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Pink Floyd - Pink Floyd Collection (1980) [WavPack 2.0 24/192|image + .cue (Viny
 ```bash
 magnet:?xt=urn:btih:86507939CCFE2CC437E7CAB79C1CE31739D76BB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Dance:
 magnet:?xt=urn:btih:5593740304DEEA1DF42BE42D5AA60F43F204AA58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:5593740304DEEA1DF42BE42D5AA60F43F204AA58
 magnet:?xt=urn:btih:8B081435E9B383BDCD6845320015BBA7986411C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ Agony UNRATED — версия хоррора Agony с видом от перв�
 ```bash
 magnet:?xt=urn:btih:84E1AFBBD02AA23BC8AE784C0060E38B66C950CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:84E1AFBBD02AA23BC8AE784C0060E38B66C950CC
 magnet:?xt=urn:btih:F0334929354B993A2291D0BF0B16E94AE50D7E63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:F0334929354B993A2291D0BF0B16E94AE50D7E63
 ```bash
 magnet:?xt=urn:btih:88EE842A4C53F9CE8FAEFF3105AF92176A9AAEC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:88EE842A4C53F9CE8FAEFF3105AF92176A9AAEC5
 magnet:?xt=urn:btih:ED0C590BA195C21C5D75CD3B78F50E41154AC69D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ Panda Dome 18.06.01 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5A1CD621116E0A80A9DC5FE15A1837EF1502F414
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:5A1CD621116E0A80A9DC5FE15A1837EF1502F414
 magnet:?xt=urn:btih:289D2788BEB86909375B34CC23AA07DB47B43A72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:289D2788BEB86909375B34CC23AA07DB47B43A72
 ```bash
 magnet:?xt=urn:btih:08DC1B741086FE7706541CDAF5B230A878587BAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:08DC1B741086FE7706541CDAF5B230A878587BAD
 magnet:?xt=urn:btih:AD5E2F682C348BB6A1E18AEED91D73732EC24EA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:AD5E2F682C348BB6A1E18AEED91D73732EC24EA7
 magnet:?xt=urn:btih:85A38D7BAEF91D5B04D7413C3FB9FA7E93E065DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:990ADFE8455609D311320422891351ABB8EE5D72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

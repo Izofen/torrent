@@ -1,3 +1,29 @@
+###  Публикация: 979689   (954651) от 30.01.2016
+
+Полет Валькирии (2011) IPTVRip
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954651.jpg" />
+</div>
+
+
+###  Подробнее
+
+В трудное для России время летом 1917 года в России был сформирован первый женский батальон смерти. Духовным вдохновителем и организатором этого военного формирования была Мария Бочкарёва. Уникальная женщина - военнослужащая, писатель-мемуарист и полный Георгиевский кавалер, единственная женщина в России, удостоившаяся этого звания.Телекомпания: Россия, ООО «ДОК-Синема»Жанр: Документальный, война, история, биографияПродолжительность: 00:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF402504D62F513D491FABE143E047E351D8F5BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980959   (954761) от 30.01.2016
 
 МастерШеф. Дети (Россия) (2016.01.30) SATRip (сезон 1, выпуск 11)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:28DEFD445FC9652FEFA4944D557F1D3F6C86B3FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:28DEFD445FC9652FEFA4944D557F1D3F6C86B3FA
 magnet:?xt=urn:btih:837C5D0BDB01D9F0C831310B1BBE609058F18889
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:837C5D0BDB01D9F0C831310B1BBE609058F18889
 ```bash
 magnet:?xt=urn:btih:9E1809687C0A66FB7C93EE5024F73A549D8CF9A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:9E1809687C0A66FB7C93EE5024F73A549D8CF9A1
 magnet:?xt=urn:btih:B24DBAA68AB7B0D3A429AD93E37B5453DA877CA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:B24DBAA68AB7B0D3A429AD93E37B5453DA877CA7
 magnet:?xt=urn:btih:BDB9EA875067BAF10E28C4B6AB3C1CCA051AE1D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:BDB9EA875067BAF10E28C4B6AB3C1CCA051AE1D2
 ```bash
 magnet:?xt=urn:btih:E6AD4EDCB6AD7126976181A0231E0CD34ACAF8E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:E6AD4EDCB6AD7126976181A0231E0CD34ACAF8E1
 magnet:?xt=urn:btih:F677BA799186F10B37ECE74887D3C90E0C13E663
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:F677BA799186F10B37ECE74887D3C90E0C13E663
 magnet:?xt=urn:btih:AFE37D8717549B10E4E64669D2E665C97FA65752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:AFE37D8717549B10E4E64669D2E665C97FA65752
 ```bash
 magnet:?xt=urn:btih:0C4AFE3C393156DB9BED9E84951B03D052F70795
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:0C4AFE3C393156DB9BED9E84951B03D052F70795
 magnet:?xt=urn:btih:5A3ED6FAE25EC335CF4B5E82422E10C78616DB36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:5A3ED6FAE25EC335CF4B5E82422E10C78616DB36
 magnet:?xt=urn:btih:78B9D9F77206EA76266012DB7FC0A8A48A9E0A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:78B9D9F77206EA76266012DB7FC0A8A48A9E0A48
 ```bash
 magnet:?xt=urn:btih:4ACBFF72E8638CBAE1BE0C5E14751B42BCC47213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:4ACBFF72E8638CBAE1BE0C5E14751B42BCC47213
 magnet:?xt=urn:btih:E4612E41D6BDC2EC34C68F15C67290DDE1A91DEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:E4612E41D6BDC2EC34C68F15C67290DDE1A91DEA
 ```bash
 magnet:?xt=urn:btih:111A40242BEEBC49A00722E82EA6CAA12CA568FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:111A40242BEEBC49A00722E82EA6CAA12CA568FC
 magnet:?xt=urn:btih:C3505DA0D7F64FC6DE38FF5E97F8420ED98F668D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:C3505DA0D7F64FC6DE38FF5E97F8420ED98F668D
 ```bash
 magnet:?xt=urn:btih:8263EFA3A0837572255EA69C3F9FA4E19722595C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ IMAX: Вулканы в морских глубинах / IMAX: Volcanoes of the
 magnet:?xt=urn:btih:4389B04C69B55A2D3927BB9805A7D84D03C8054A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:4389B04C69B55A2D3927BB9805A7D84D03C8054A
 ```bash
 magnet:?xt=urn:btih:962FCCA88098D56AD44909B3A4B4FB302CB5FEDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:962FCCA88098D56AD44909B3A4B4FB302CB5FEDF
 magnet:?xt=urn:btih:1E410F430D6049EEAEE7A25EC5AE754BFF39965E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:1E410F430D6049EEAEE7A25EC5AE754BFF39965E
 ```bash
 magnet:?xt=urn:btih:EF4E3A836160F7F14916AC2548BC13CBEB4579AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:EF4E3A836160F7F14916AC2548BC13CBEB4579AF
 magnet:?xt=urn:btih:903F5BBAFBF971FAE45C18ACA18E51703BFD9D6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:903F5BBAFBF971FAE45C18ACA18E51703BFD9D6D
 ```bash
 magnet:?xt=urn:btih:7FA0A861950EB0A58E5E9EC221EEC694360F5962
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:7FA0A861950EB0A58E5E9EC221EEC694360F5962
 magnet:?xt=urn:btih:DA0CDECC62E94713DEDCD2FB9DE343256BD23E02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:DA0CDECC62E94713DEDCD2FB9DE343256BD23E02
 ```bash
 magnet:?xt=urn:btih:BF81EC5D0521AA970BA34F2DC0242BB9A591F5DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:BF81EC5D0521AA970BA34F2DC0242BB9A591F5DF
 magnet:?xt=urn:btih:D596C9FC43DCA0592DFF50CEDBC10685EE44384E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980566   (956286) от 29.01.2016
-
-Большинство с Сергеем Минаевым (29.01.2016) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956286.jpg" />
-</div>
-
-
-###  Подробнее
-
-В каждом выпуске – обсуждение актуальной темы недели с участием политиков, чиновников, представителей бизнеса и экспертов, а также тех, кто представляет «большинство» – жителей страны, неравнодушных к тому, что происходит, и готовых задавать неудобные и острые вопросы.В этом выпуске: Россия и Запад — союзники или противники?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:59:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E9C966CAA1E9A9781BC678B8C17BCDCCCE81466
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

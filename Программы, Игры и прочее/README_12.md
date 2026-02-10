@@ -20,6 +20,8 @@ Jewels Match Dragon - это захватывающая и увлекатель�
 magnet:?xt=urn:btih:E073D79B122D2C2111846415A5ADB982A24E2A75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:E073D79B122D2C2111846415A5ADB982A24E2A75
 ```bash
 magnet:?xt=urn:btih:8D9331682C6C38D0AA01D5EDF772A22EC319D621
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ IPTV Pro v9.0.9 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:562F99ADFF10C5835DAF5D0CAEA1216838BD1E94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ FBReader Premium v3.8.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1F136522EE26A6560F7A4EA2E00EB156BB6F56B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Device Info HW — это приложение для получения инф�
 magnet:?xt=urn:btih:107DE87203A80D6D0FEF847B3247618CDEB7A03F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ WiFi Analyzer v6.0 (b98) Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3DA7BA0DE64E3A5E2470AB8DCB00ADE72AFBAE74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Screen Mirroring - TV Miracast v4.0.0.73 Mod by vadj [En]
 magnet:?xt=urn:btih:D07092396BE64828B97410A644D80A40CCEE91FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Night clock / Ночные часы v2.10.43 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1DFA5DBCB95C8A8EDDDB14843C3208B9E14D1A47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Genius Art: Image AI Generator v1.2.5 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:A5EBB2BE594FBBB9931C6A6C6B93242A6E2404FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:A5EBB2BE594FBBB9931C6A6C6B93242A6E2404FC
 ```bash
 magnet:?xt=urn:btih:D9B72AD42AE9BE52989546ADE2723ECD4065376A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Circuit - Планировщик маршрутов v3.42.1 Mod by Balatan [Ru/M
 magnet:?xt=urn:btih:D194C32ADB994EF4A7CBE34820EF1A7BAF1936BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Textra SMS v4.80 Pro Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4A5ACC10F35FCA70CB396A77F6C1B2D6E0609C30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:829384B4617A3370CCE08F5B39D3075452D71526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Electrical Calculations Pro / Электрические расчеты v10.3.0 
 ```bash
 magnet:?xt=urn:btih:D82D3089B1790ACB5C5F28CE1F01F57153577DE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:D82D3089B1790ACB5C5F28CE1F01F57153577DE9
 magnet:?xt=urn:btih:8498CF8F7CB823EB692697EFBA2120B1162062BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Dual Space — Multiple Accounts & App Cloner — невероятно поле�
 ```bash
 magnet:?xt=urn:btih:4251B89F1BB151638FF685DE700D7F5DCCE786CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 magnet:?xt=urn:btih:1F3A5036C434C54124431414A23B0BF86EE3E2A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ IPTV Pro v9.0.7 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:41DE3BEF7243BF37B77AF07E04240A1C6FD368D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ PROTO - симулятор схем v1.37.0 Mod by NURIK [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8900215603E0763C125D94B1782191CA6F384A60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ TapScanner — сканер документов, это простой скан
 magnet:?xt=urn:btih:8247C8084EB6394EA09D80C1EBDA60B24593E5D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ Karing - Утилита прокси с простым и мощным инте�
 ```bash
 magnet:?xt=urn:btih:18F79A2D6EF4C768C0FC41A379312D9BAF044F94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ Picture Mushroom — распознавайте грибы мгновенно. �
 magnet:?xt=urn:btih:6BDF6EDCF2A07ED1F7646BD9181947CBCBB7E48E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:6BDF6EDCF2A07ED1F7646BD9181947CBCBB7E48E
 ```bash
 magnet:?xt=urn:btih:2BD2A5B9BF1993288CA7303EAAD4A902C9745059
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ Bad North — это очаровательный, но жестокий око�
 magnet:?xt=urn:btih:A3DD62EFB4C97E78750D172CC0F27208C0711F64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ Dandara: Trials of Fear v1.5.21 [Ru]
 magnet:?xt=urn:btih:FADF6D84B10F8F01B599099C65998908BDD5C261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Snufkin Melody of Moominvalley v0.9.2 [En]
 ```bash
 magnet:?xt=urn:btih:8DD9F86EB15C4DEE65097841F5EF8DA0E97AD0CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

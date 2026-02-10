@@ -22,6 +22,8 @@ Marcus Printup - Young Bloods (2015) SteepleChase [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:47A732A94A71B743EF08577892F5F2C695C8CE7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:47A732A94A71B743EF08577892F5F2C695C8CE7C
 ```bash
 magnet:?xt=urn:btih:CB751F8FCC45DF8C589889D2CAA3ADAD791025DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ VA - Vocal Trance Anthems Vol. 3 (2017) [MP3|320 Kbps] <Trance,Vocal Trance>
 magnet:?xt=urn:btih:1044D0D9BC7F904CB22DD03E257582BC50BBD6C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:1044D0D9BC7F904CB22DD03E257582BC50BBD6C3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:1044D0D9BC7F904CB22DD03E257582BC50BBD6C3
 ```bash
 magnet:?xt=urn:btih:B2B599889B26C7E847282E36750AB81E44EC84E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ VA - Русский хит 2003 (2002) [FLAC|Lossless|tracks + .cue]<Pop, Dance>
 magnet:?xt=urn:btih:21540E18AAC10E215FD634AFE99E8CA8E39928BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:21540E18AAC10E215FD634AFE99E8CA8E39928BB
 ```bash
 magnet:?xt=urn:btih:6640AEB2F8AA35C610E22CAE69C2C528CDEFDD07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ Jinjer - Macro (2019) [FLAC|Lossless|tracks + .cue] <Metalcore, Groove Metal>
 magnet:?xt=urn:btih:00D50D20840827DF22F7C3C5B2CAB76ABC0AB389
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:00D50D20840827DF22F7C3C5B2CAB76ABC0AB389
 magnet:?xt=urn:btih:82CCA35091C584CA97F08B9805BEBC5C85C98EA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ LAREINE - 7 альбомов+3 сингла (1997-2006) [FLAC|Lossless]<JRock, V
 ```bash
 magnet:?xt=urn:btih:2673488ADE5806D2896E332F879401D3D618274A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:2673488ADE5806D2896E332F879401D3D618274A
 magnet:?xt=urn:btih:E32533A8D855D7B6DC094E6A30E36C207B8B2F9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:E32533A8D855D7B6DC094E6A30E36C207B8B2F9C
 magnet:?xt=urn:btih:79CBD564CD9C1E4D1AF0A7999CAF57D900C39ED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ VA - The Great French Singers Collection (12CD)(2011) [MP3|320 кб/с]<French C
 ```bash
 magnet:?xt=urn:btih:921039AF776F0ACC597EFA2A0EBF678D63EAE8BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ Outlaws (1997) [En] (1.0) License
 magnet:?xt=urn:btih:BB01038EF184C8D11840BFA4BA3F87AE17E8E3A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:BB01038EF184C8D11840BFA4BA3F87AE17E8E3A7
 ```bash
 magnet:?xt=urn:btih:E31FC73F2E6A4CF5E2F3CF2376CE81D29D50E7F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:E31FC73F2E6A4CF5E2F3CF2376CE81D29D50E7F0
 magnet:?xt=urn:btih:79950D51023001D01AA8BD968E062DB946D3D2E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:79950D51023001D01AA8BD968E062DB946D3D2E8
 ```bash
 magnet:?xt=urn:btih:2EC0DB7DDDC33C19ADEA710D1340C8E84D7FEED4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ Chasm (2018) [En] (1.043) Repack Other s
 magnet:?xt=urn:btih:3CB2DC075E81ADD9F36E6AE9C82DD763F9F0BEB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:3CB2DC075E81ADD9F36E6AE9C82DD763F9F0BEB3
 ```bash
 magnet:?xt=urn:btih:F46E13EAB7DC5382F38A412ECACAA4F84FF92284
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:F46E13EAB7DC5382F38A412ECACAA4F84FF92284
 magnet:?xt=urn:btih:868EEC8C36313C831978E7D24A23150590E65F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:868EEC8C36313C831978E7D24A23150590E65F32
 ```bash
 magnet:?xt=urn:btih:FE565CEC81790B4B02BE5806CF64CB46A0F6909C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:FE565CEC81790B4B02BE5806CF64CB46A0F6909C
 magnet:?xt=urn:btih:016E788F7AF95B673575C84BC792A56DCAD05D59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ Nvidia DriverPack - это единый пакет с драйверами дл�
 ```bash
 magnet:?xt=urn:btih:3B571C03992A11C45826146853386CD856D195E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:3B571C03992A11C45826146853386CD856D195E1
 magnet:?xt=urn:btih:D613506A9C8BE8F17A285301A86D12DF72EFEA67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:D613506A9C8BE8F17A285301A86D12DF72EFEA67
 magnet:?xt=urn:btih:C0B7C3CB20AD3AC7C17A9AEFEB8A1781AE54AAC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:C0B7C3CB20AD3AC7C17A9AEFEB8A1781AE54AAC7
 ```bash
 magnet:?xt=urn:btih:9CD26C55B775CEA9F006E722092E4AE9A53A90D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

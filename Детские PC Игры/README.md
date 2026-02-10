@@ -20,6 +20,8 @@ https://t.me/izofen
 magnet:?xt=urn:btih:65A07678E26997536BC01B86111226BA15730DAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:65A07678E26997536BC01B86111226BA15730DAE
 magnet:?xt=urn:btih:210085C348CF0FEC0BCCDD7BBF6CD0FEF75E452B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ Sonic Generations (Update 1.0 r6) [RePack]  [En] (10+ лет) [2011] | R.G. Cata
 magnet:?xt=urn:btih:24F3628252AC45890442343C29F7195C5179E908
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Great Journey / Вокруг света: спасти Антарктиду! [5-1
 ```bash
 magnet:?xt=urn:btih:F29FD22E96D4A6128C6744C2974FB15A5CEA1DE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:F29FD22E96D4A6128C6744C2974FB15A5CEA1DE5
 magnet:?xt=urn:btih:4A1D2771CCC943B7E8EC923756DDEB09F3B217B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Jigsaw Puzzle 2 (3+ лет) [Ru] (L) [2008]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Jigsaw Puzzle 2 (3+ лет) [Ru] (L) [2008]
 magnet:?xt=urn:btih:FA7B4182A099C1FD9C6B346C54586C41A5870151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Robots / Роботы [4+] (P) [RU/EN] (2005)
 ```bash
 magnet:?xt=urn:btih:FACFA68BBFD3B296A028F512F4A89CCFF388B62D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:FACFA68BBFD3B296A028F512F4A89CCFF388B62D
 magnet:?xt=urn:btih:D4FF9239F05E1F7E4397CC5F88596461EFC5C652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:D4FF9239F05E1F7E4397CC5F88596461EFC5C652
 ```bash
 magnet:?xt=urn:btih:893C85E7E6FD3EDD7567797E2B603B3CC22D71C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:893C85E7E6FD3EDD7567797E2B603B3CC22D71C9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:893C85E7E6FD3EDD7567797E2B603B3CC22D71C9
 ```bash
 magnet:?xt=urn:btih:03AFA9086404E64AE1F86233B60A4270D74EF9BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:03AFA9086404E64AE1F86233B60A4270D74EF9BC
 magnet:?xt=urn:btih:4A97B5FD548494A60D8A9D3C43A938F506657C76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Tom and Jerry / Том и Джерри [4 +] (P) [Ru] (2007)
 ```bash
 magnet:?xt=urn:btih:A3768010DDCEC90AD2A8D12E3A37D65D9D63B75D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Bee movie Game / Би Муви: Медовый заговор [4+] (P) [Ru/En] (
 magnet:?xt=urn:btih:0E3879270C2F52E72FFFB27B201D50BFFC85D0B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:0E3879270C2F52E72FFFB27B201D50BFFC85D0B7
 ```bash
 magnet:?xt=urn:btih:39982E2C7832A808E2365EFF1D76CE884EE567A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:39982E2C7832A808E2365EFF1D76CE884EE567A3
 magnet:?xt=urn:btih:66E51A1A85E24DEAFF6B0B13E6C2D4195FC2D199
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ The Spiderwick Chronicles / Спайдервик: Хроники [12+] (P) [Ru/E
 ```bash
 magnet:?xt=urn:btih:8097444D8A943BA5DE01864838C7D4120F18BFFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:8097444D8A943BA5DE01864838C7D4120F18BFFC
 magnet:?xt=urn:btih:A76E184FC3B889249CC251D64D3B2AF7730D7207
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Kookabonga: Crazy Monkey Party / Кукабонга: Весёлые джунгл
 ```bash
 magnet:?xt=urn:btih:2E0F95C466CAA2D141AE0E898B67493CBDEE8E90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:2E0F95C466CAA2D141AE0E898B67493CBDEE8E90
 magnet:?xt=urn:btih:ECCE8B0DD927134DB15DA08DB89D380E50426A88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Toy story 2. Double game / История игрушек 2. Двойная иг�
 ```bash
 magnet:?xt=urn:btih:244F5439BDD5547A99227683FDFB78083D222773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:244F5439BDD5547A99227683FDFB78083D222773
 magnet:?xt=urn:btih:97887BE9265558B0C7A188BD07D7F52EA2807EE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:97887BE9265558B0C7A188BD07D7F52EA2807EE7
 ```bash
 magnet:?xt=urn:btih:49E0E714D2833C56F3AFE6BEB1E10814A87EEE5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:49E0E714D2833C56F3AFE6BEB1E10814A87EEE5F
 magnet:?xt=urn:btih:E258087DB8F6F24379546470D68BD27AB118543E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:E258087DB8F6F24379546470D68BD27AB118543E
 ```bash
 magnet:?xt=urn:btih:2750051C07BE9BC839ABF941A7A7DFAB344339F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

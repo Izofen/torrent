@@ -22,6 +22,8 @@ Feed Me - High Street Creeps (2019) [MP3|320 Kbps] <Electro House, Progressive H
 magnet:?xt=urn:btih:F36CB2D8D927DEF6339C9F4534B0AE3243C5828B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - Meditation Music for Inner Peace Vol.4 (Beautiful Ambient and Chillout Musi
 magnet:?xt=urn:btih:EFD4D7998CCA441D6456969035BD7245BF12DF09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ VA - Radio Gladiators, Vol. 2 (2019) [MP3|320 Kbps] <Melodic House & Techno, Dan
 ```bash
 magnet:?xt=urn:btih:80AD114F5B4C6F77352F772F262B523D0BA1C820
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Housework - Follow The Groove (2016) [MP3|320 Kbps] <Funky House, Club House>
 magnet:?xt=urn:btih:4F910ADE7B73BE4A8810988F740D8813A175AD1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Helena Hauff - Qualm (2018) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Techno, El
 ```bash
 magnet:?xt=urn:btih:871D72964FB38C6BA1D92466C544989F54031112
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ VA - Best Of Trance 2018 Vol.05 (2018) [MP3|320 Kbps] <Trance, Progresive Trance
 magnet:?xt=urn:btih:EB4A6A4569039B1B3B92C270DAC6CA8D8846202E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ VA - The Best 50 Drops [Summer'18] (2018) [MP3|320 Kbps] <House, Future House, F
 ```bash
 magnet:?xt=urn:btih:64CC91C56AE01CB79CFEEE08E67EA5CB444968DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ VA - The Swampilation: Volume II (2017) [MP3|320 Kbps] <Neuro Psychedelic, Psyst
 magnet:?xt=urn:btih:2EA314FD7455FF79AF8A1AD9C4D11CB95AE80773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ Martian Love - 5 Albums (2009-2014) Discography [FLAC|Lossless|WEB-DL|tracks] <E
 ```bash
 magnet:?xt=urn:btih:CD1AC75BCD30316BE95588EAF5F6010B2CB96729
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ Raphaël Marionneau - Le Classique Abstrait Volume 1 (2002) Abstrait Music [FLAC
 magnet:?xt=urn:btih:47DAE71C880C7C360355AE8E5D24E238C7D50526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ Riya - Sublimation (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:DF03A6EF0D9DC4112A773A03AF22225B8BB0DF68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ VA - Sax in the House (2015) [MP3|320 кб/с]<House>
 magnet:?xt=urn:btih:A5B26BB4B4EEEC9DD6EA714347579668A42D39E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ VA - Female Vocal Trance 2022 Vol 2 [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:4BCB9F02B801BDA7F738E12A63816AB9E7A00F3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ Korolova - Live @ Red Rock California, United States (2022-06-17) [MP3|320 Kbps]
 magnet:?xt=urn:btih:578AAAD040521E2DF5FA546D1ABC065BE2CF38CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ Joel Corry - Tomorrowland Friendship Mix (2022-06-16) [MP3|320 Kbps] <House, Tec
 ```bash
 magnet:?xt=urn:btih:885204840C990F89D458E83B08399FBFBBB47CC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ CD 01:
 magnet:?xt=urn:btih:DD261CAB4B76144110F5866EF9D1BD27CC2DD3DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ Lemon Jelly ‎ - Lost Horizons (2002) 2003, Japanese Edition [FLAC|Lossless|tra
 magnet:?xt=urn:btih:713D3608B8EFB977F07F1137C89A42022F787896
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +508,8 @@ Way Out West - Set My Mind (Single) (2016) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:069A1FF0DC15F791C242B8D7490A1FCA36348B11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +538,8 @@ VA - Disco Dance Italy (2016) [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:58EA0E067587C8241F27862FB08554664B7CDD2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +566,8 @@ VA - Coldharbour Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:08EEAD2BB097B8B7F984E3D0EBEC6A612D21BDB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +596,8 @@ VA - Future Sound Of Egypt 400 (Mixed By Aly & Fila, Standerwick & Bjorn Akesson
 magnet:?xt=urn:btih:AA0C4BC7236E319C8951D90A7BA582012A512A60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +624,8 @@ VA - Uplifting Trance Sessions Vol.2 (2017) [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:85CDA62E00C78089BCFB0F290AFC2E3650FEF64E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +654,8 @@ VA - Rooftop Dinner, Vol. 1 (Finest Lounge and Nu Jazz Tunes) (2017) [MP3|320 Kb
 magnet:?xt=urn:btih:263D56237C57DAAE7050A6EEA4FB6045C3B0EDAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +682,8 @@ VA - Ambient Chill Playlist: 14 Chilled Ambient and Downtempo Tracks (2017) [MP3
 ```bash
 magnet:?xt=urn:btih:574021B5E8F117EDB1FABCCA1BB19C1245E3A7C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +712,8 @@ Cj Stereogun - Top & New (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 magnet:?xt=urn:btih:1114AD0FB4323D9B491D034B6EF0814CD9C6B793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +740,8 @@ VA - Best Of Chill Lounge (2015) [MP3|320 кб/с]<Lounge, Chill Out, Chill Hous
 ```bash
 magnet:?xt=urn:btih:9C7C389C2298F507CAB535581914B91E57F8BC03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

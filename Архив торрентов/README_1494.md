@@ -19,6 +19,8 @@ AOMEI Backupper – программа для создания резервно�
 magnet:?xt=urn:btih:9D45C9D1BF4234FB28AE8D328A47CD145A72B013
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:73B0B8333E449229EBCB13F7039BBD51731CA3B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Spotify имеет громадный каталог музыки, поддер�
 magnet:?xt=urn:btih:42B1D0D4AC216334EA077BB7B4DBEAAA39825A54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ ASAP Utilities позволяет упростить и автоматизиро
 ```bash
 magnet:?xt=urn:btih:CE6CB364D9BCBC1D54249BB7882B3C6BBB8EB8D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ DesktopDigitalClock - простые и красивые цифровые час
 magnet:?xt=urn:btih:1668A5A686C00DFFE98E0AD31FBF0A027B0FFF31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:01A56CDB5D941B29C0C6B4A2A384DEE6B014109A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ XnView MP - мощное многофункциональное приложен
 magnet:?xt=urn:btih:803C2403264E49092189E6533C675663EAA47E26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:5931A27CF193F511737A7AECA80F0A5F4DD6B864
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 magnet:?xt=urn:btih:04C3E63E7F326DB8978AB5E8DF9197C21499BC54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ MagicMouseTrails создает треки Magic Mouse на рабочем ст�
 ```bash
 magnet:?xt=urn:btih:B04B4C6477886DBDB07AAA604E32FCC5C41C9FF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Draw.io 21.6.8 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:2B637119CBCC7598EE5D775DAB39633F0A5C4BF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ RedNotebook - это простое GTK+ / Gnome приложение напис
 ```bash
 magnet:?xt=urn:btih:8EBC18914CF1C6F1D9BFAF6BAA9EA6660261F80B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ DxO PhotoLab 5 ELITE Edition 5.13.1 [Multi]
 magnet:?xt=urn:btih:C7E5CC9CB1AD5EFA3B3656DBB646C48E76ED576A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Viber для Windows позволяет бесплатно отправлять 
 ```bash
 magnet:?xt=urn:btih:B9B7C9A22BB745C6EBBE0848CBF01E6AD5C27537
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Transcend SSD Scope - удобное приложение для работы с
 magnet:?xt=urn:btih:159A463949B78FC36390E88A151955408819B714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Visual Studio Enterprise 2019 - Интегрированное комплекс�
 magnet:?xt=urn:btih:BD34B5BE77032FECB09D8AE4494CB45C4C61CA6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ AirBrush v5.3.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D7D1210309974F41DEF0B4067AB49109D8861EF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ feb_2023_x64_dvd_909defc0.iso
 magnet:?xt=urn:btih:2ECDD7F0BE76305C7A50B602D34C4425CED1A976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ RustDesk Remote Desktop – программное обеспечение для
 magnet:?xt=urn:btih:95183FD9BA5562E7C437D62F742F7F3E7AAD8693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ AnyDesk 7.1.4 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A38F2C52092DFAA823B31B847094C01A889ADBC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:4384ADE263D69059F7EB003AABA04F6341DB6F4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ XYplorer – удобный мультивкладочный файловый м
 ```bash
 magnet:?xt=urn:btih:131D33DCD9E639050F120A38CC395235D180B00A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ feb_2023_x64_dvd_c29e4bb3.iso.
 magnet:?xt=urn:btih:3046DBB3BB43E683D5603E51A490B817D1A52588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ SOUND FORGE вот уже более 20 лет задает стандарты �
 ```bash
 magnet:?xt=urn:btih:CA908D588FFCA075FA14237BA5478696DB50D9D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ VueScan является приложением для работы со ска�
 magnet:?xt=urn:btih:1875F8858D38E02A4376814F62FE9019FC678C80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Allavsoft Video Downloader Converter поддерживает загрузку �
 ```bash
 magnet:?xt=urn:btih:2F07DB6A0BCB86FE723A19EC67041D0288567026
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

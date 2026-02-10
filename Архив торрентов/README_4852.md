@@ -1,369 +1,6 @@
-###  Публикация: 301637   (871743) от 27.02.2011
+###  Публикация: 301201   (871598) от 27.02.2011
 
-Jey and Ex - Temptation EP (2011) [MP3|320 kbps] <Psytrance, Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Jey & Ex - Temptation EP (2011)
-Год: 2011
-Жанр: Psytrance, Progressive
-Лейбл: Spintwist Records
-Продолжительность: 00:22:36
-Кодек: MP3
-Битрейт: 320 kbps
-Тип битрейта: CBRТрек лист:
-01. Engage [07:27](   Читать дальше...)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94FD5E29393E9CFE517F6B70D9C6DCC3B8D31FD6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 301296   (871744) от 27.02.2011
-
-VA - Dj Exklusive 05 (26.02.2011) [MP3|320 kbps]<Dance /  House/Disco House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Tube & Berger – Free Tribe (Original Mix)
-02. Kings Of Tomorrow Feat. April – Take Me Back (Virus J Remix)
-03. Studio Apartment Feat. Rae – Your Words (Original Mix)
-04. Olav Basoski – New Day (Original Mix)
-05. David Herrero – Spanish Lick (Original Mix)
-06. Abel Ramos Feat. Erire – Dream Come True (Dj Chus & David Penn Liberican Remix)
-07. Eddie Thoneick & Eric Morillo Feat. Shena – Nothing Better (An21 Max Vangeli Remix)
-08. Richard Grey Feat. Robin S – Bang (Dirty Secrets Grey Boom Mix)
-09. Dj Chus Feat. Mikel Curcio – La Samba (Original Mix)
-10. Tensnake – Coma Cat (Mark Knight\’s Karma Cat Remix)Жанр: Dance /  House/Disco HouseПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A29566646917AECFF862F27342FC035BE9DA880B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 301209   (871745) от 27.02.2011
-
-Dornenreich - Flammentriebe (2011) [FLAC|Lossless]<Melodic Black/Avant-garde/Neofolk Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Flammenmensch (4:57)
-02. Der Wunde Trieb (5:06)
-03. Tief Im Land (5:02)
-04. Wolfpuls (7:23)
-05. Wandel Geschehe (6:24)
-06. Fahrte Der Nacht (4:50)
-07. In Allem Weben (5:17)
-08. Erst Deine Trane Loscht Den Brand (7:55)Жанр: Melodic Black/Avant-garde/Neofolk MetalПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 301485   (871746) от 27.02.2011
-
-VA - Hot Dance vol 160 (2011) [MP3|~178 kbps]<Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. AD Men feat. Nika Lenina - Step To Another Day (Radio Edit)
-2. Andrew Cool - Dooh Dooh (Hands Up Mix 2011)
-3. Andrew Spencer - Heart Of The Ocean (Titanic Theme)
-4. Angie Be - Forever (2 French Guys Edit Mix)
-5. Avril Lavigne - What The Hell (Dale & Harms Bootleg Mix)
-6. C-NRG Feat. Kuba Jasiecki - Cool My Desire (Flashtune Remix Edit)
-7. Conrado - Should I Know (Setze & Sonny Bootleg Mix)
-8. De-Grees - Bleeding Love ( Max Farenthide Remix )
-9. Dream Rider - Summer Kiss (Extended Mix)
-10. EasyTech - All 4 You (DJ Alex Rose & Alessandro Vinai Remix)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F0061567E84AC9E29910B1583EEEA5D9479C8D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 301700   (871747) от 27.02.2011
-
-VA - Liberation Animale (Compiled by Kiriyama) (2009) [MP3|~190 kbps] <Dark Psytrance, Forest Psytrance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-VA - Liberation Animale (Compiled by Kiriyama) (2009)
-Год: 2009
-Жанр: Dark Psytrance, Forest Psytrance
-Лейбл: Inpsyde Media
-Продолжительность: 01:19:49
-Кодек: MP3
-Битрейт: ~190 kbps
-Тип битрейта: VBRТрек лист:
-01. Kluster - Bunker Mode [08:39](   Читать дальше...)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20C5DFA3373470E65D64981B5C735456FE62266E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 301670   (871748) от 27.02.2011
-
-Epsilon Sector and Keamia - Robotoxic (2011) [MP3|320 kbps]<Full On, Downtempo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Epsilon Sector and Keamia - Robotoxic (2011)
-Год: 2011
-Жанр: Full On, Downtempo
-Лейбл: Astronautic Records
-Продолжительность: 00:32:16
-Кодек: MP3
-Битрейт: 320 kbps
-Тип битрейта: CBRТрек лист:
-01. Epsilon Sector - Animal Passion [07:01](   Читать дальше...)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00D16F0F346C186ABE1B2256AA7B7F160F9E92B7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 301144   (871749) от 27.02.2011
-
-VA - House Vip (24.02.11) (2011) [MP3|320 kbps]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Brain Blast Creators - Electro Revolution (Original Mix) (6:06)
-2. Clarks Fr - Bomba Clap feat Mc Teelex (Utku S Remix) (6:53)
-3. Durty - South(Original Mix) (7:41)
-4. Funkastarz - Air (Mark Laurenz Remix) (5:28)
-5. Madzoom & Angie Cocc - Never Be Mine (Club Mix) (6:38)
-6. Mekki Martin - Let Me Go feat Vedina (Original Mix) (5:22)
-7. Owl Vision - The Black Death (Q.G. remix) (5:54)
-8. Rabbit Killer - Last Cry (Original Mix) (5:13)
-9. Stee Wee Bee feat. Snyder & Ray - Leaving (Gordon & Doyle Remix) (6:38)
-10. The Noisy Freaks - Dream (My Mom Said I Am A Freak Remix) (4:29)Жанр: Electro HouseПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57B3141148B0431D76EA97CD7195D1E22716F1C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 301636   (871750) от 27.02.2011
-
-VA - House Vip (25.02.11) (2011) [MP3|320 kbps]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-1. Chemistry vs Mikkas - Into You (Mikkas Remix) (5:28)
-2. Chris Decay - Like That (2-4 Grooves Radio Edit) (3:29)
-3. Conrado - Should I Know (Crazy Disco Sound Remix) (4:20)
-4. DJ Kravtsov - You Can Dance (Original Mix) (5:56)
-5. Fast Foot - Your mind (Original mix) (5:14)
-6. Froidz - Finally (Wobble Mix) (6:08)
-7. Global Deejays & Niels Van Gogh - Bring It Back (Radio Edit) (3:47)
-8. R.I.O - Hot Girl (Wicked DJs Remix) (4:52)
-9. Rihanna - S&ampM (Handyman feat Dj Amor Remix) (5:37)
-10. Zedd - The Anthem (DJ Maxsie Alex Speaker Remix) (6:00)Жанр: Electro HouseПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78ED4CA706A6DE87566749602C9F5B8531641806
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 301677   (871751) от 27.02.2011
-
-Sensifeel - Elle (2011) [MP3|320 kbps] <Psytrance, Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Sensifeel - Elle (2011)
-Год: 2011
-Жанр: Psytrance, Progressive
-Лейбл: Plusquam Records
-Продолжительность: 00:21:33
-Кодек: MP3
-Битрейт: 320 kbps
-Тип битрейта: CBRТрек лист:
-01. Complete Control [07:02](   Читать дальше...)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC5E104749961BA39A884D79422662AC8FF3EE5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997964   (871760) от 18.03.2016
-
-Faasoft Video Converter 5.3.22.5834 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Faasoft Video Converter — универсальная программа, объединившая видеоконвертер, плеер, загрузчик и видео редактор. Программа поддерживает конвертирование огромного количества форматов видео файлов и умеет извлекать аудио из видео, располагает множеством полезных инструментов для редактирования видео, пакетного преобразования, загрузки с YouTube и т.д. Позволяет вести (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D159A759B07DA18009A9A88296266A28BF9777FE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997799   (871764) от 18.03.2016
-
-Download Master 6.8.1.1509 RePack (&Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Download Master эффективно решает 3 главных проблемы, возникающих при закачке файлов из Интернет: скорость закачки, продолжение прерванных закачек и управление закачанными файлами. Основными чертами, выделяющими Download Master среди других программ, являются высочайшая эффективность работы и удобный пользовательский интерфейс. Download Master позволяет значительно (   Читать дальше...   )Язык интерфейса: Русский, белорусский, украинский, транслит
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77EF7C4B13D7099445A00A2806121AC69ABE32ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998076   (871768) от 18.03.2016
-
-NewFileTime 2.66 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вышла в свет новая версия очень маленькой утилиты, цель которой дать вам возможность очень легко вести редактирование даты создания любого файла или целой директории находящийся на пользовательском компьютере.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03059672BB6C78145A21957689064063BF99B4DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 644331   (871775) от 15.04.2013
-
-Журнал | ELLE №5 (Россия) [май 2013] [PDF]
+Александр Бестужев–Марлинский | Испытание (2009) [MP3, Олег Фёдоров]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
@@ -375,52 +12,24 @@ magnet:?xt=urn:btih:03059672BB6C78145A21957689064063BF99B4DE
 
 ###  Подробнее
 
-Elle - самый популярный журнал мод в мире. Его концепция уникальна: понятие «мода» выходит за привычные рамки и имеет отношение к образу жизни в целом. Elle - это новейшие тенденции в области lifestyle, самые горячие новости из мира моды и красоты, самые яркие звезды и самые актуальные статьи о психологии современной женщины, нацеленной на успех.Формат: PDF
+Серия/Цикл: Тайны и истории. Век XVIII.
+Александр Александрович Бестужев-Марлинский (1797–1837) – русский писатель, критик, публицист эпохи романтизма и декабрист.
+Повесть «Испытание» написана в 1830 году. Увлекательный рассказ о светском обществе середины XVIII века.
+Невдалеке  от  Киева,  в  день  зимнего  Николы,  многие офицеры гусарского  полка  праздновали  на  именинах (   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Вира-М (аудио)Продолжительность: 03:24:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1ED97B2D8D8E095FEF002E9C096E59D1C4D806A
+magnet:?xt=urn:btih:E1DD288B42CBF5D3F529CC9F975A8F7BFE6D1A5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 643684   (871779) от 15.04.2013
+###  Публикация: 301799   (871600) от 27.02.2011
 
-VA - Club Playlist (2013) [MP3|320 кб/с]<Club, Dance, Tech>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871779.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cyrius - sound of my room (original mix) (6:20)
-2. DJ Platinum Hand - deeper electronic 2012 (original mix) (7:43)
-3. Daniele Kama - guess (original mix) (6:41)
-4. Dirty Haters - night club kings (original mix) (5:18)
-5. Dgtalsystem & Minimal Law - alter ego (original mix) (7:15)
-6. Atom West - pon de floor (original mix) (4:23)
-7. Dj Buran - touch the light (original mix) (6:51)
-8. Magnetic Brothers - i feel (original mix) (6:02)
-9. Campana & Samper - dancing beach (original mix) (6:33)
-10. Lexlay - keep on smiling (original mix) (6:31)Жанр: Club, House, ProgressiveПродолжительность: 05:57:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F6E884AFCD1FB598245E0909FA4030BBD380028
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 644087   (871781) от 15.04.2013
-
-Mary Youngblood - 5 альбомов (2002-2008) [MP3|112-224 кб/с]<Instrumental, Folk, Native american, Flute>
+VA - Romantic Melodies: Electronic Spring (2007) [MP3|320 kbps]<Chillout, Lounge, Downtempo>
 
 >>Архив торрентов
 >>Архив Музыки
@@ -432,28 +41,33 @@ Mary Youngblood - 5 альбомов (2002-2008) [MP3|112-224 кб/с]<Instrumen
 
 ###  Подробнее
 
-Альбомы:
-
-2002 - Beneath the Raven Moon
-2003 - Heart of the World
-2004 - Feed the Fire
-2006 - Dance with the Wind
-2008 - Sacred PlaceЖанр: Instrumental, Folk, Native american, FluteПродолжительность: 04:16:52
+01. Jasmor - Taiko Chi
+02. Mo' Light - Just Like This
+03. Atex - Sunrise
+04. Batty Beats - Mute
+05. Elektric Brother - Saudade
+06. Mica - Jumo
+07. Secret Archives Of The Vatican - Guru Rabbi Teacher (Naan Mix)
+08. Glorybox - Afterlife
+09. Surfer - Chillin Until Sundawn
+10. Lava Lounge - Rausch der Tiefe(   Читать дальше...)Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:12:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50080524ACE912BA01722B95CE7DBAA3E80608AD
+magnet:?xt=urn:btih:822EFB584B9E62C9B52F00EB65F927C0FA24B516
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 644159   (871784) от 15.04.2013
+###  Публикация: 301440   (871601) от 27.02.2011
 
-NirLauncher Package 1.18.03 Portable [Русский]
+Deviant Syndrome - Inflicted Deviations (2011) [MP3|320 kbps]<Melodic Death Metal>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
   <img src="Повторная ошибка скачивания" />
@@ -462,45 +76,81 @@ NirLauncher Package 1.18.03 Portable [Русский]
 
 ###  Подробнее
 
-NirLauncher Package - это пакет из 167 небольших утилит , которые могут понадобиться при ежедневном использовании компьютера. Включает в себя программы для восстановления паролей, инструменты для работы с сетью, просмотр кеша браузеров, средства для разработчиков, системные и дисковые утилиты и многое другое. Пакет NirLauncher не требует установки и может быть использован с любого USB-накопителя. Все утилиты в пакетах - полностью свободно распространяемое программное обеспечение, без любого Spyware/Adware/Malware. Пакеты включают разнообразие инструментальных средств для своего ежедневного компьютерного использования, включая утилиты просмотра потерянных паролей, контроль сети, просмотр и извлечение cookies, кэша, и другой информации. Для каждой утилиты Вы можете легко просмотреть файл справки или перейти к Web-странице. В зависимости от разрядности системы, автоматически запускаются утилиты для x86 или x64 систем.
-
-(   Читать дальше...   )Язык интерфейса: Русский
+1. Harbingers Of Extinction
+2. Blessing The Emptiness
+3. Entire Cosmic Elements
+4. Seal Of A Star Dweller
+5. The Wicked
+6. A Day To Fall
+7. Consequence
+8. Liberation
+9. Drowned In The Frozen SunЖанр: Melodic Death MetalПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:055A8D9C4AE236ACBDE1144B850312A1C4403898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 301267   (871603) от 27.02.2011
+
+Журнал | Автомобили №2 (февраль) [2011] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+«Автомобили» – ежемесячный иллюстрированный журнал, один из старейших на российском рынке.На страницах нашего журнала вы найдете информацию о массовых, раритетных и концептуальных автомобилях, узнаете о дизайнерских разработках сегодняшнего и завтрашнего дня. Мы обсудим с вами основные тенденции автомобилестроения. Вы встретитесь с известными и просто интересными людьми, и даже познакомитесь с их кулинарными пристрастиями.Формат: PDF
 
 ## Скачать торент
 ```bash
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 644100   (871787) от 15.04.2013
+###  Публикация: 997755   (871604) от 18.03.2016
 
-Natasha St Pier & Mickael Miro - Juste comme ca (2012) HDTV [H.264/1080i-LQ]
+Mozilla Firefox 45.0.1 Final RePack (& Portable) by D!akov [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыкального Видео
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871604.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: БоевикПродолжительность: 00:03:05
+Mozilla Firefox - очень быстро работающий браузер, причем быстрота работы заметна не только во время загрузки веб-страниц, но и при поиске в закладках и истории. Сделан он на основе движка Mozilla и позволяет просматривать все веб-страницы в одном многовкладочном окне, а также обладает множеством других полезных опций, включая способность значительного расширения (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96E27C1A399619850EDE49EAD26454116EC81C4A
+magnet:?xt=urn:btih:5BE483F84C700739970D3114F12F2B12F851C021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 545545   (871788) от 15.04.2013
+###  Публикация: 301694   (871607) от 27.02.2011
 
-Joe Ely - 5 albums (1977-2011) [MP3|192-320 кб/с]<Americana, Country, Country rock, Alternative rock>
+Sychodelicious - Sex Intentions (2009) [MP3|320 kbps]<Full Power, Night Psytrance>
 
 >>Архив торрентов
 >>Архив Музыки
@@ -512,211 +162,29 @@ Joe Ely - 5 albums (1977-2011) [MP3|192-320 кб/с]<Americana, Country, Country
 
 ###  Подробнее
 
-(4:45) 01. The Highway Is My Home
-(4:12) 02. Not That Much Has Changed
-(3:52) 03. Satisfied At Last
-(5:00) 04. Mockingbird Hill
-(2:52) 05. You Can Bet I'm Gone
-(3:56) 06. Leo And Leona
-(3:49) 07. Live Forever
-(2:41) 08. Roll Again
-(3:19) 09. I'm A Man Now
-(4:54) 10. CircumstanceЖанр: Americana, Country, Country rock, Alternative rockПродолжительность: 00:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFE7ED2F20D3202DCF1DFDFEE538246CA98FFC61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 644477   (871789) от 15.04.2013
-
-VA - 40 Spring Trance Hits (2013) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-VA - 40 Spring Trance Hits (2013)
-
-Год: 2013
-Жанр: Trance 
-Продолжительность:  02:40:50Кодек: MP3
-Битрейт: 320 кб/с
+Sychodelicious - Sex Intentions (2009)
+Год: 2009
+Жанр: Full Power, Night Psytrance
+Лейбл: NeuroMind Records
+Продолжительность: 01:25:44
+Кодек: MP3
+Битрейт: 320 kbps
 Тип битрейта: CBRТрек лист:
-01. Arty, Nadia Ali & BT - Must Be The Love (Radio Edit) (4:39)(   Читать дальше...   )
+01. Subconcience (Remix) [08:01](   Читать дальше...)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D04B106E5708099D83A8DB9C64F15552488FC828
+magnet:?xt=urn:btih:AD51939B2904CBB5B635D2E4C2C70A5A7DA2DC12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 187920   (871813) от 31.03.2010
+###  Публикация: 301656   (871609) от 27.02.2011
 
-Кевин в стране драконов / Dragon Hill. La Colina Del Dragon (2002) DVDRip
-
->>Архив торрентов
->>Архив Мультфильмов
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Где-то далеко за тридевять земель раскинулась Страна Драконов. Время от времени в их мир попадают люди. Добрых и честных драконы отправляют обратно домой, а вот злой волшебник Септимус навеки застрял в темнице храма горы Драконов. Однажды он узнает, что только мальчик с добрым сердцем может помочь ему вернуться к людям. С помощью колдовских чар Семптимус находит подходящего паренька, которого зовут Кевин. Но смелый и находчивый мальчик вовсе не желает помогать злодею и с помощью своих новых друзей-драконов постарается нарушить его планы...Жанр: фэнтези, приключения, семейныйРежиссер: Анхель ИзкуэрдоПерсонажи: злой волшебник Септимус,Кевин и ДраконыПеревод: Многоголосый закадровыйПродолжительность: 01:13:45
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188118   (871815) от 31.03.2010
-
-Axara Video Converter v3.5.2.836 ML/Rus
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Axara Video Converter - это мощный и многофункциональный видеоконвертер, с помощью которого Вы сможете выполнить практически любые действия с видео: DVD риппинг, конвертировать и редакторовать видеофайлы в различные форматы и для различных устройств.С помощью Axara Video Converter можно легко сохранить фильм DVD с диска на ПК, мобильный телефон или любое мультимедийное устройство (iPhone, iPod, PSP, Zune, Creative...) или наоборот, записать видео на DVD диск.И еще одна интересная возможность: благодаря новой технологии 2PassEncoding позволяет сконвертировать DVD-фильм в стандартный XviD MPEG4 без потери качества.
-
-Уникальная технология “2-х проходного кодирования”, позволит вам сохранить фильм DVD на вашем компьютере,сократив его размер в 5-10 раз; но что удивительно, результат остается с очень высоким качеством - видео имеет превосходную цвето-передачу с очень яркими и богатыми цветами и определенным образом прорисованы мелкие детали даже в самих динамичных сценах.
-
-Возможности программы:
-• Улучшенная система (   Читать дальше...)
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188254   (871816) от 31.03.2010
-
-Бонни и Клайд / Bonnie and Clyde (1967) [H.264] HDRip
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_871816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Америка, тридцатые годы, Великая депрессия. Бонни Паркер (Фэй Данауэй) работает официанткой в жутком захолустье и не без оснований предполагает, что ее дальнейшая жизнь будет скучна, бедна и беспросветна. Поэтому когда в поле зрения Бонни вдруг оказывается обаятельный, хотя и не вполне законопослушный Клайд Бэрроу (Уоррен Битти), он сразу привлекает ее внимание тем, что не принимает законы этого чертового мира, предпочитая устанавливать свои собственные правила поведения. Клайд был молод, красив и... на редкость криминален. Он неоднократно преступал закон и уже отсидел в тюрьме, где лишился двух пальцев на ноге, которые отрубил в знак протеста против царивших в этом заведении порядков, после чего решил, что больше на отсидку не пойдет в любом случае...
-
-Бонни сразу поняла, что это - ее судьба. Потому что вкалывать за копейки в дешевой забегаловке, выйти замуж за нищего рабочего, нарожать детей, которых затем будет нечем кормить, - такой жизни Бонни не хотела. Но практически единственный вариант избежать этой лямки (   Читать дальше...)Жанр: Криминал, ДрамаРежиссер: Артур Пенн / Arthur PennАктеры: Уоррен Битти, Фэй Данэвэй, Майкл Дж. Поллард, Джин Хэкман, Эстель Парсонс, Дэнвер ПайлПеревод: Многоголосый закадровый
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188131   (871818) от 31.03.2010
-
-[EN] Изгиб с Монти / Flexing with Monty (2010) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Монти это культурист. Его тренажерный зал в самом сердце его сущности. Он настойчивый мужчина, возмутительно самовлюбленный и изувер. Разделяя этот странный мир Монти - младший брат, Бертен. Одного дня, у братьев  поселилась Лилит, католическая монахиня, и начался сбор взносов за необычного дела. прибытия Лилит является катализатором необходимых для получения важнейших перемен в отношениях Бертен с братом: изменения, что приводят к удивительным и ужасным падением ...Жанр: Комедия, Драма, УжасыРежиссер: John AlboАктеры: Trevor Goddard, Rudi Davis, Venus Le Dome, Melinda Peterson, Manny Gates, Sally Kirkland...Перевод: Оригинальный
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 187857   (871820) от 31.03.2010
-
-Могилы / The Graves (2010) HDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Две сестры, посетив отдаленный шахтерский городок, оказываются в ловушке и, чтобы выбраться, им придется приложить немало сил в противостоянии как человеческому, так и сверхъестественному злу.Жанр: Ужасы, Триллер, ПриключенияРежиссер: Брайан ПулидоАктеры: Клер С. Джонсон, Джиллиан Мюррэй, Тони Тодд, Билл Моусли, Аманда Уайсс, Пэтти Тиндел, Кэти Ранкин, Брайан Пулидо, Билл Липпинкотт, Рэнди Блайт и др.Перевод: Двухголосый закадровый
- Ссылка
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188184   (871823) от 31.03.2010
-
-O&O PartitionManager 3.0.199  Pro/Server [English]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-PartitionManager - программа является новым и передовым инструментом для работы с разделами ваших жестких дисков. С помощью данной программы вы сможете разделять жесткие диски на разделы, изменять их размер и перемещать диски в другие места. Программа разработана таким способом, что похожа на стандартный Windows Disk Manager, но, в отличии от него, включает в себя ряд передовых возможностей, таких как изменение размера разделов и перенос дисков на новое местоположение. Также стоит отметить, что программа поддерживает все типы дисков, начиная от жестких дисков и заканчивая USB носителями и картами памяти, которые так же могут быть разделены на разделы и т.д. Интерфейс программы прост и удобен в использовании.
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 766324   (871827) от 14.03.2014
-
-The French Blues Connection - Portrait In Blues (2014) [MP3|320 кб/с]<Blues Rock>
+VA - Big Air (2011) [MP3|320 kbps] <Psytrance, Progressive>
 
 >>Архив торрентов
 >>Архив Музыки
@@ -728,20 +196,643 @@ The French Blues Connection - Portrait In Blues (2014) [MP3|320 кб/с]<Blues R
 
 ###  Подробнее
 
-01 - Homesick Blues (Happy Home)
-02 - Messin' With The Kid
-03 - You Don't Love Me
-04 - Little Red Rooster
-05 - Checkin' On My Baby
-06 - The Thrill Is Gone
-07 - Hoochie Coochie Man
-08 - Snatch It Back
-09 - Ramblin' On My MindЖанр: Blues RockПродолжительность: 00:29:25
+VA - Big Air (2011)
+Год: 2011
+Жанр: Psytrance, Progressive
+Лейбл: Digital Nature Records
+Продолжительность: 01:12:04
+Кодек: MP3
+Битрейт: 320 kbps
+Тип битрейта: CBRТрек лист:
+01. Day Dream - Bass Rider [08:05](   Читать дальше...)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC9C774195CE9B3BE62DD170E796C5D238A66C10
+magnet:?xt=urn:btih:4C30AF650CE0EB9A35C506FAE2F430DACC460F70
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997919   (871610) от 18.03.2016
+
+AMD Radeon Software Crimson Edition 16.3.1 Hotfix [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871610.jpg" />
+</div>
+
+
+###  Подробнее
+
+AMD Radeon Software Crimson Edition — это новое революционное программное обеспечение AMD, предоставляющее модернизированную функциональность, высочайшую графическую производительность, выдающиеся возможности и инновации, задающие новый уровень впечатлений пользователя.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF532BF17682F71789A1B2766E38A1A2ED1EB73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 301414   (871612) от 27.02.2011
+
+VA - Car Audio Vol.12 (2011) [MP3|320 kbps]<Electro House, Club, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aboutblank & KLC - Magic (Original Mix) (6:00)
+02. Adam K & Soha - Circadian Rhythm (Original Mix) (6:44)
+03. Agnes-Release Me (A.Adams Remix) (4:30)
+04. Andy Harding - Pentaon (Dirty Alcorz Remix 2011 BiS-Katja) (5:13)
+05. Armin Van Buuren & Sharon Den Adel - In And Out Of Love (DjMax Maikon Club Mix) (5:47)
+06. Armin Van Buuren Feat. Laura V - Drowning (Avicii Remix) (7:52)
+07. Azora - Tell You A Secret (Dave King Extended Remix) (5:53)
+08. Captain Hooks - Happy Times(Club Mix) (3:38)
+09. Caro Emerald Vs. Lil Jon - What A Night Like This (Twinzz Project Rmx) (4:26)
+10. Cerf Mitiska & Jaren - Another World (Original Vocal Mix) (8:00)(   Читать дальше...   )Жанр: Electro House, Club, DanceПродолжительность: 04:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:050DC92FF0AED54D4DAC8A0AF13207C6C6297326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 301266   (871614) от 27.02.2011
+
+VA - Dance Hits Vol 160 (2011) [MP3|320 kbps]<Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 01:22:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2C83E38058BD4913731021976F9A815B704F15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 301558   (871616) от 27.02.2011
+
+Power Quest - Blood Alliance (2011) [MP3|320 kbps]<Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Battle Stations (1:47)
+02. Rising Anew (4:36)
+03. Glorious (4:58)
+04. Sacrifice (6:14)
+05. Survive (6:03)
+06. Better Days (5:24)
+07. Crunching The Numbers (7:26)
+08. Only In My Dreams (6:10)
+09. Blood Alliance (9:05)
+10. City Of Lies (6:39)(   Читать дальше...)Жанр: Power MetalПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB176F9E2F9C948CCA40B79C2D29C323DC537AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 301409   (871619) от 27.02.2011
+
+Ringo Starr - Choose Love (2005) [MP3|320 kbps]<Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Fading In And Out [03:56]
+02. Give Me Back The Beat [03:54]
+03. Oh My Lord [05:32]
+04. Hard To Be True [03:27]
+05. Some People [03:18]
+06. Wrong All The Time [03:39]
+07. Don't Hang Up [03:27]
+08. Choose Love [03:07]
+09. Me And You [02:15]
+10. Satisfied [03:19](   Читать дальше...)Жанр: RockПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EFCB7C6F87A2006C32B31C84A908B9930C935F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 298918   (871621) от 27.02.2011
+
+VA - DJ Nikita Soul & DJ Dmitry Kozlov pres.COLOURS (2011) [MP3|320 kbps]<House / Club House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+N/AЖанр: House / Club HouseПродолжительность: 02:27:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A22E3117DB818348FF16CCCAF5ED7765A68986B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 300690   (871622) от 27.02.2011
+
+Cyro Baptista - Banquet Of The Spirits - Caym - The Book Of Angels Vol. 17 (2011) [FLAC|Lossless]<Jazz, Contemporary Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Chamiel (4:27)
+02. Matafiel (5:22)
+03. Briel (4:19)
+04. Zaphaniah (3:53)
+05. Tzar Tak (3:45)
+06. Flaef (2:05)
+07. Hutriel (4:27)
+08. Yeqon (4:55)
+09. Yahel (2:26)
+10. Tahariel (4:47)(   Читать дальше...)Жанр: Jazz, Contemporary JazzПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 301369   (871625) от 27.02.2011
+
+Фактор риска. Страхование или жизнь (2010) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Документальный цикл "Фактор риска" - программа о предметах, объектах и продуктах, которые мы потребляем, которыми мы пользуемся, и которым мы доверяем, даже не подозревая о том колоссальном вреде, который они наносят нашему физическому и духовному состоянию. В новых сериях создатели программы пытаются развенчать многие мифы о полезности или, по меньшей мере, безвредности явлений или продуктов. В каждой серии не только высказывается мнение экспертов, но и рассказываются реальные истории обычных людей.Жанр: ТелепередачаПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:827706B84F2C8884352E6BECFFA0B21D2AD97B65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 301724   (871626) от 27.02.2011
+
+VA - Cosmik Chill 2006(Red) And 2007(Orange) (2006-2007) [MP3|320 kbps]<Ambient ,Dub,PsyChill>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Жанр: AmbientПродолжительность: 01:16:55
+01. Xerxes Feat. Aleah - Inhale (7:33)
+02. Scann-Tec - Hope (7:32)
+03. Flooting Grooves - Immersion (8:05)
+04. Kliment - Fairdreamers (10:33)
+05. Moravec - Kiwimango (8:00)
+06. Aes Dana - Liquid Hertz (7:19)
+07. Chilled C' Quence & Tajmahal - Power Of Plants (10:39)
+08. Lunaspice - Schamanic (Long Version) (17:15)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ACFF4C08E8A57E1EF63AD279E1A87CE040C9ADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 301445   (871627) от 27.02.2011
+
+VA - Winter Music ConferenceTrance Tunes 2011WMC Miami (26.02.2011) [MP3|320 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. Shaun Ansari - Dream Culture (Original Mix) (8:32)
+2. Mehdi Dressy - Stealth (Original Mix) (6:33)
+3. Silver J. & Catania - Key Of Heart (Crazy Minds Club Mix) (7:22)
+4. Peter Sawland - Identity (Original Mix) (7:03)
+5. DJ Harish & SID Feat InDJnous - Dusk (Original Mix) (6:23)
+6. Ben'yala - Sun Beam (Burak Harsitlioglu Remix) (7:26)
+7. Silver J. & Catania - Key Of Heart (Original Mix) (6:23)
+8. Angel Trance - Homeless Heart (Original Mix) (6:27)
+9. Mospire - The Piano (Engin Ozturk Remix) (7:46)
+10. Mattbeat - Waiting For You (Original Mix) (7:24)Жанр: TranceПродолжительность: 01:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCAE192F8417B4956CD532B37F089BF2864BD8DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 300963   (871628) от 27.02.2011
+
+VA - Future Dance Hits (March 2011)  [MP3|~307 kbps]<Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871628.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A-STUDIO - Fashion Girl (alex astero & evan sax club mix).
+2. Afrojack & Bobby Burns - Bridge (Original Mix).
+3. Afrojack Bobby Burns Bridge (Original Mix).
+4. Amloop - Caminhando E Cantando (Club Mix).
+5. Andeeno Damassy vs. Lindy - Just be good to me 2011 (Club Mix).
+6. Arnej - We Need Them (Original Mix).mp3
+7. Arnej feat. Sally Saifi - Free Of You (Arnej Club Mix).
+8. Chicane feat. Lemar - What Am I Doing Here (Walsh & McAuley Rework).
+9. Claydee Lupa & Dimension-X - Call Me.
+10. Clokx - Catch Your Fall (Extended Mix).(   Читать дальше...   )Жанр: DanceПродолжительность: 03:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86FCEA8187E0C33BE32B1A9100F41AB433418A1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997741   (871629) от 18.03.2016
+
+LINE 4.5.0.873 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871629.jpg" />
+</div>
+
+
+###  Подробнее
+
+LINE - это приложение, позволяющее делать бесплатные звонки и отправлять бесплатные SMS со смайликами где бы Вы ни находились 24 часа в сутки.
+Данное приложение занимает 1-е место среди бесплатных приложений в 52 странах, включая Японию, Тайланд, Тайвань, Испанию, Китай, Индонезию, Сингапур, Гонконг, Малайзию, Швейцарию, Саудовскую Аравию, Мексику, Россию, Макао, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B92990E83A27BD8BE3F1355083FA8E259D0175F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 301640   (871631) от 27.02.2011
+
+Pharmacore - Farmer Business (2011) [MP3|320 kbps]<Dark Psytrance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Pharmacore - Farmer Business (2011)
+Год: 2011
+Жанр: Dark Psytrance
+Лейбл: Biomechanix Records
+Продолжительность: 00:33:44
+Кодек: MP3
+Битрейт: 320 kbps
+Тип битрейта: CBRТрек лист:
+01. Sigma [08:27](   Читать дальше...)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7D88D25994BC3C2AFCA277C4D06C9CAD002B1B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 301643   (871633) от 27.02.2011
+
+Skyhigh 'n' Ting - Audio Playdough (2011) [MP3|~190 kbps] <Psytrance, Suomi>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Skyhigh 'n' Ting - Audio Playdough (2011)
+Год: 2011
+Жанр: Psytrance, Suomi
+Лейбл: Catawampus Records
+Продолжительность: 01:14:09
+Кодек: MP3
+Битрейт: ~190 kbps
+Тип битрейта: VBRТрек лист:
+01. Otherworld Oddity [08:14](   Читать дальше...)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BB76D9E21AC90642EE9BB274E8562DA0D6F0F32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 643908   (871634) от 15.04.2013
+
+Формула 1. Этап 3. Гран-при Китая. Гонка (14.04.2013) HDTV [1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Этап Formula 1 (F1) состоит из 3-х свободных практик, квалификации (3 сегмента) и гонки.
+Места пилотов на стартовой решётке (старт с места) определяются по итогам квалификации.
+Зачётные очки начисляются первым 10 пилотам по системе "25–18–15–12–10–8–6–4–2–1".
+Сезон 2013 года — 64-й сезон Формулы-1. Cтанет последним сезоном, в котором используются 2,4-литровые двигатели V8, которые в последующем будут заменены на более экологически чистые и экономичные турбированные V6 двигатели объёмом 1,6 литраЖанр: АвтоспортПродолжительность: 02:30:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F6F2C95CB351B05830BFA0E0A851D27E42FE1F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 644208   (871641) от 15.04.2013
+
+Lauge & Baba Gnohm - Daybreak Revival (2013) (WEB) [FLAC|Lossless]<Psychill, Psybient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Memories (06:38)
+ 02. Southern Hemisphere (06:18)
+ 03. Daybreak (07:22)
+ 04. Fields of Light (11:08)
+ 05. Baba Gnohm - Tales of the Giant Stones (10:03)
+
+-----------------------
+
+DON'T MODIFY THIS FILE
+(   Читать дальше...   )Жанр: Psychill, PsybientПродолжительность: 00:41:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 644343   (871643) от 15.04.2013
+
+Ermitage - Russian Memories (1998) [MP3|320 кб/с]<New Age, Enigmatic, World music, Folk rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Matushka Volga 04:00
+02. Russian Memories (Song for Lara) 04:17
+03. Poljushka 04:21
+04. Russians 04:27
+05. Why? 03:25
+06. Paranya 03:44
+07. Petropolis 03:32
+08. Czar's Bridge 04:07
+09. River Lena 04:26
+10. Jo Adin 04:00(   Читать дальше...   )Жанр: New Age, Enigmatic, World music, Folk rockПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1706BCFE000AF03E2B515D12FBE0427427BC20A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 644272   (871645) от 15.04.2013
+
+r.roo - mgnovenie (2012) [MP3|320 kbps]<IDM, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+1. vdokh 02:29
+2. medlenno 08:20
+3. kasanie 02:45
+4. otkrovenie 08:30
+5. otstuplenie 05:57
+6. on the other side of the glass 03:45
+7. au fall 05:31
+8. from you 05:33
+9. hello my reflection 05:00
+10. don't talk about it 03:33(   Читать дальше...   )Жанр: IDM, AmbientПродолжительность: 01:08:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598BB7A1D678E5FB31E3973F2B55FA9F76AC1B94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 644305   (871646) от 15.04.2013
+
+Ooze - Where The Fields Never End : Revisited (2012) [FLAC|Lossless]<Dub, Ambient, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+CD1: Where The Fields Never End:
+
+01. Quintessence 08:58
+ 02. What's Up 09:31
+ 03. Restricted Flow 09:48
+ 04. Get It Done 06:22
+ 05. Meeting With Strange Species 13:03
+ 06. Trying Outwards 10:31
+ 07. Delicate Passage 09:10
+ 08. Searching Inwards 09:33Жанр: Dub, Ambient, DowntempoПродолжительность: 01:19:56
+
+
+X Lossless Decoder version 20121013 (142.0)
+
+XLD extraction logfile from 2012-10-25 22:08:18 +0400
+
+Ooze / Where The Fields Never End : Revisited
+
+Used drive : (null) (null) (revision (null))(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

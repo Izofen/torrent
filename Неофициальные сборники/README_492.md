@@ -1,3 +1,33 @@
+###  Публикация: 1278058   (774094) от 23.01.2019
+
+VA - Русский регги от ALEXnROCK часть 2 (2019) [MP3|320 Kbps] <Reggae>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_774094.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли песни от отечественных музыкантов, исполненные в стиле регги. Слушайте и заряжайтесь энергией солнечных мелодий. Это 2я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK
+P.S Если кто то знает еще клевые вещи в стиле регги от наших исполнителей, оставляйте коменты и я сделаю продолжение сборника.01 Botanic project - Только Jah
+02 Александр Барыкин - Друг или враг
+03 Каникулы Бонифация - Тили-Бом
+04 Валерия - Бессоница(   Читать дальше...   )Жанр: ReggaeПродолжительность: 02:07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D5BEB63780F978F563162F621BF39C5060BE56E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015583   (774185) от 11.05.2016
 
 VA - Hed Kandi Tropical Nights (2016) [MP3|256 кб/с] <Funky, Club House>
@@ -20,6 +50,8 @@ VA - Hed Kandi Tropical Nights (2016) [MP3|256 кб/с] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:7FA6313F76E94CB43F48E649AB1FFA9EE050EA9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +80,8 @@ VA - Blues And Jazz Radio Grand Collection (2018) [MP3|320 Kbps] <Jazz, Blues>
 magnet:?xt=urn:btih:E7BBD226C8034712DB1799CD3FC58FF68E2C1FD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +108,8 @@ VA - Symptom Of Nature (2019) [MP3|320 Kbps] <Goa Trance, Psychedelic>
 ```bash
 magnet:?xt=urn:btih:D871E4A640D98D20C5C1ACF898C7738AB422F764
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +138,8 @@ VA - Rush Club Music Obsession (2016) [MP3|253-320 кб/с] <Tech-House, Funky, 
 magnet:?xt=urn:btih:820FAA09DFE2E69844C9A342D7D661862F355EBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +165,8 @@ VA - Heartbeats of Love (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:133B03734B53F3F200879804A47492C1AC65A549
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +195,8 @@ VA - Future Trance Energy 001 May (2016) [MP3|320 кб/с] <Trance, Melodic, Har
 magnet:?xt=urn:btih:8487442596F590C2F382A0B8C6DD161F5669C468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +223,8 @@ VA - Better Different Intro (2018) [MP3|320 Kbps] <Rap, Hip Hop, RnB>
 ```bash
 magnet:?xt=urn:btih:6743BB9E4E0A3CB8DA9CE76A9F393534970114EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +253,8 @@ VA - De Top 100 Aller Tijden 1984 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 magnet:?xt=urn:btih:54CCE4C56F49AA36385003CACC8B6904ACA1B7F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +281,8 @@ VA - Song For Isabelle (2018) [MP3|320 Kbps] <Psy, Goa, Trance>
 ```bash
 magnet:?xt=urn:btih:63B7EA3DBB1D471422A5CA3B4B68711510F609AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +311,8 @@ VA - Умная Электроника (Музыка Поднимающая На
 magnet:?xt=urn:btih:653B9541B35DA19E36E31527863E37ECAA7D0244
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +339,8 @@ VA - Радио ENERGY (NRJ) часть 3 (2015-2016) [MP3|192-320 кб/с] <Dan
 ```bash
 magnet:?xt=urn:btih:71219ACEB39861DABDF690F7AA103692F1E2ADA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +369,8 @@ VA - Волна убойных хитов (2016) [MP3|256 кб/с] <Pop, Dance>
 magnet:?xt=urn:btih:E1D5C5C08D48CBD856689ED9F2843D353B871F0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +397,8 @@ Part 1
 ```bash
 magnet:?xt=urn:btih:1450F502750227215EBCFD7610EEBFDD5CEE1793
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +427,8 @@ VA - Song For My Woman Rock Blues Academy (2016) [MP3|320 кб/с] <Rock Blues, 
 magnet:?xt=urn:btih:E31A7DA343EFAE50C823FE3A005646F8DE5688C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +455,8 @@ VA - Новые хиты №8 (2016) [MP3|256 кб/с] <Pop>
 ```bash
 magnet:?xt=urn:btih:1D15D874CDFB770F23A706F7AD25913392C5E76A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +485,8 @@ VA - Beatport Top 100 09.05.2016 [MP3|320 кб/с] <House, Electro, Tech, Nu-Dis
 magnet:?xt=urn:btih:B645ED99AB6A6523AF476F4E6A0A524D1971B3CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ VA - Top list. Dance sound (2016) [MP3|256-320 кб/с] <Pop>
 ```bash
 magnet:?xt=urn:btih:7C501A4F8AFA4B139561B52D89F187E587647793
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +543,8 @@ VA - Dance (2019)[MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:2599849E6294C3B178AFD2F05CBEECFE1CF4D252
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ Dosis - Technoir: Part 1 (2016) [MP3|320 кб/с|image+cue] <Techno>
 ```bash
 magnet:?xt=urn:btih:0A87A4C821F0D2431F5547230453393D17B08572
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +601,8 @@ VA - Deep Night: Deep House Selection (2016) [MP3|320 кб/с] <Deep House>
 magnet:?xt=urn:btih:4467AAD9299F61DC5BF96745F249BFFF4D61F663
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ VA - Luxury Chill House (2016) [MP3|320 кб/с] <Chillout, Downtempo, Chillhous
 ```bash
 magnet:?xt=urn:btih:432E9768B035E402DB8965203F4304136C835278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +659,8 @@ VA - Если Ты Меня Ждёшь: Сборник Авторской Пес
 magnet:?xt=urn:btih:E4ECFC6CACFA362E779EEEF8CBC8395A71DD9DA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +687,8 @@ VA - Morning Coffe Chillout Original Party (2018) [MP3|320 Kbps] <Chillout, Loun
 ```bash
 magnet:?xt=urn:btih:09C7C479E3563F612E457F2AB929257E53F9682E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +717,8 @@ VA - Super Disco Еxclusive Vol.5 (Новогодний) (2019) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:B5829745F8FAD880A24149F572704AFA4589E8A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,32 +743,7 @@ Roxette - Listen To Your Heart (2016) Remix [MP3|320 Kbps] <Club, Dance>
 magnet:?xt=urn:btih:6BFD024F94A845CAF77CEB819A66E3D1CD9CEB68
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276966   (775500) от 21.01.2019
-
-VA - Super Disco Еxclusive Vol.1 (2019) [MP3|320 Kbps] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775500.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dr. Alban - Its My Life (DJ SAVIN  Alex Pushkarev Remix)
-002. Above & Beyond feat. Justine Suissa - Cold Feet
-003. Michelle Andrade - Hasta la Vista
-004. Ennio Morricone - Chi Mai (A-Mase Remix)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E3A53F485E176E94A9E1226D99612AF7A8EC31
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

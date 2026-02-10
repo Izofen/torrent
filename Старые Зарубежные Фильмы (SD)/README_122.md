@@ -1,28 +1,3 @@
-###  Публикация: 1247012   (456755) от 13.09.2018
-
-Плохая компания / Bad Company (1972) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главные герои — Дрю и Джейк, постепенно понимают, что романтичная жизнь бродяг не так сладка и безмятежна, какой представляется.
-На пути их поджидают лишения, насилие, предательство и много неприятных знакомств с мошенниками и ренегатами. Дорога преподаст друзьям много жизненных уроков, которые помогут им стать взрослее и мудрее.Производство: США / Jaffilms, Paramount PicturesЖанр: Драма, Приключения, ВестернРежиссер: Роберт БентонАктеры: Джефф Бриджес, Бэрри Браун, Джим Дэвис, Дэвид Хаддлстон, Джон Сэвэдж, Джерри Хаузер, Дэймон Кофер, Джошуа Хилл Льюис, Джеффри Льюис, Рэймонд ГутПеревод: Профессиональный (двухголосый закадровый)Субтитры: РусскиеПродолжительность: 01:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A0519BE7E03C2A454903745313D6A1B04271CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942059   (457177) от 29.09.2015
 
 Миранда / Miranda (1985) DVDRip [H.264]
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:30A0519BE7E03C2A454903745313D6A1B04271CA
 ```bash
 magnet:?xt=urn:btih:89F25AEEE2E20DCC17DB1FDE003B17B86ABE7F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +45,8 @@ magnet:?xt=urn:btih:89F25AEEE2E20DCC17DB1FDE003B17B86ABE7F18
 magnet:?xt=urn:btih:209688D11E58BFA4116560A29B0AE367AEA1D9E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +70,8 @@ magnet:?xt=urn:btih:209688D11E58BFA4116560A29B0AE367AEA1D9E0
 ```bash
 magnet:?xt=urn:btih:00235208B287BD6BD349F6FD0C22E031C084E988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +97,8 @@ magnet:?xt=urn:btih:00235208B287BD6BD349F6FD0C22E031C084E988
 magnet:?xt=urn:btih:BAD9AFAF29AC38B783CF27E93A46C43CCEA5F064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +122,8 @@ magnet:?xt=urn:btih:BAD9AFAF29AC38B783CF27E93A46C43CCEA5F064
 ```bash
 magnet:?xt=urn:btih:906AA24AA45DAC4FDF926A00648BD2EC9E8258D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +150,8 @@ magnet:?xt=urn:btih:906AA24AA45DAC4FDF926A00648BD2EC9E8258D1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +175,8 @@ magnet:?xt=urn:btih:906AA24AA45DAC4FDF926A00648BD2EC9E8258D1
 ```bash
 magnet:?xt=urn:btih:089B8152B25B009628BAB39E901111015CE572F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +203,8 @@ magnet:?xt=urn:btih:089B8152B25B009628BAB39E901111015CE572F0
 magnet:?xt=urn:btih:58E0509471231EA3CAC9F8799ED1D3CFED6FCE96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +228,8 @@ magnet:?xt=urn:btih:58E0509471231EA3CAC9F8799ED1D3CFED6FCE96
 ```bash
 magnet:?xt=urn:btih:E23AC3A1A26F3F23BFE94C8DBDD666649981B49E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +255,8 @@ magnet:?xt=urn:btih:E23AC3A1A26F3F23BFE94C8DBDD666649981B49E
 magnet:?xt=urn:btih:EB4111DB0A5428DB102941015863B83B1F877056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +280,8 @@ magnet:?xt=urn:btih:EB4111DB0A5428DB102941015863B83B1F877056
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +307,8 @@ magnet:?xt=urn:btih:EB4111DB0A5428DB102941015863B83B1F877056
 magnet:?xt=urn:btih:C8A900D2DE69E6A94CA56FB1FC177B920C43AF9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +332,8 @@ magnet:?xt=urn:btih:C8A900D2DE69E6A94CA56FB1FC177B920C43AF9F
 ```bash
 magnet:?xt=urn:btih:9A237027C8BD4AEFC2F5716916EFC38B1F49B691
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +359,8 @@ magnet:?xt=urn:btih:9A237027C8BD4AEFC2F5716916EFC38B1F49B691
 magnet:?xt=urn:btih:7932AF38538487CDE6F9D570A16D4084704044B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +384,8 @@ magnet:?xt=urn:btih:7932AF38538487CDE6F9D570A16D4084704044B2
 ```bash
 magnet:?xt=urn:btih:C75BDEB60012C5A4A6256C67D0823BF75EA2B0DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +411,8 @@ magnet:?xt=urn:btih:C75BDEB60012C5A4A6256C67D0823BF75EA2B0DA
 magnet:?xt=urn:btih:31DD7DE69C5C9593A8878A1964F56C4582FE7B2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +437,8 @@ magnet:?xt=urn:btih:31DD7DE69C5C9593A8878A1964F56C4582FE7B2E
 magnet:?xt=urn:btih:9921466C49247DA0DE6249C83251F2F1573F1457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +462,8 @@ magnet:?xt=urn:btih:9921466C49247DA0DE6249C83251F2F1573F1457
 ```bash
 magnet:?xt=urn:btih:5AF3EF7A328E45A281CE5BF45300162CA265CAAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +491,8 @@ magnet:?xt=urn:btih:5AF3EF7A328E45A281CE5BF45300162CA265CAAF
 magnet:?xt=urn:btih:CE59AFF31F6A09152EC86327C90F67A6B6909E51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +518,8 @@ magnet:?xt=urn:btih:CE59AFF31F6A09152EC86327C90F67A6B6909E51
 magnet:?xt=urn:btih:6D57596A6D95C23837D6FCB2A4369ACF5877529B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +543,8 @@ magnet:?xt=urn:btih:6D57596A6D95C23837D6FCB2A4369ACF5877529B
 ```bash
 magnet:?xt=urn:btih:2B7A2767AAE84CF7A910B59563AE83CE74BFA641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +570,8 @@ magnet:?xt=urn:btih:2B7A2767AAE84CF7A910B59563AE83CE74BFA641
 magnet:?xt=urn:btih:E93B564CF62BA5C10495BF70463BF62EC5403E42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +595,8 @@ magnet:?xt=urn:btih:E93B564CF62BA5C10495BF70463BF62EC5403E42
 ```bash
 magnet:?xt=urn:btih:73C2370ABF8C840ABAA0D1B7BD1ADA52E796A539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +622,8 @@ magnet:?xt=urn:btih:73C2370ABF8C840ABAA0D1B7BD1ADA52E796A539
 magnet:?xt=urn:btih:AF2AA06CD5804941CB74782DBBF84DE4A21C0632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +647,34 @@ magnet:?xt=urn:btih:AF2AA06CD5804941CB74782DBBF84DE4A21C0632
 ```bash
 magnet:?xt=urn:btih:70FB0F1EE2827784F951B7021B1CA492F3176374
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407818   (462330) от 09.09.2020
+
+Белый охотник, черное сердце / White Hunter Black Heart (1990) WEB-DLRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_462330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон Уилсон — отчаянный храбрец, человек, склонный к безрассудным поступкам, смелый и дерзкий режиссер. Этот белый охотник известен как борец за права негров и евреев. Джон приглашает своего друга — писателя Пита Веррилла принять участие в создании нового фильма. Друзья летят в Африку на съемки. Но главной целью Джона является охота на слона…Производство: США / Malpaso Productions, Rastar Pictures, Warner Bros. PicturesЖанр: Драма, приключенияРежиссер: Клинт ИствудАктеры: Клинт Иствуд, Джефф Фэйи, Шарлотта Корнвэлл, Норман Ламсден, Джордж Дзундза, Эдвард Тудор-Поул, Родди Мод-Роксби, Ричард Уорвик, Джон Рэпли, Кэтрин НилсонПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:52:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37A14B52AF4D1B8226DD9407D328D2B3A63A99DF
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

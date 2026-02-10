@@ -19,6 +19,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:85A568F3E94949AD16B165B24E3402B988480545
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:85A568F3E94949AD16B165B24E3402B988480545
 magnet:?xt=urn:btih:19FFD9398D224F92DF5212D957D14129E6D6E926
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:19FFD9398D224F92DF5212D957D14129E6D6E926
 ```bash
 magnet:?xt=urn:btih:40DDC350E3D9A433DA608EE86E9B156726C1E86D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:40DDC350E3D9A433DA608EE86E9B156726C1E86D
 magnet:?xt=urn:btih:1F3BFA9F81ED53BDAA1DA60DB44A8FC4399ED4A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Immortal Mantis (2022) [Multi] (1.1) License GOG
 magnet:?xt=urn:btih:5AE4AFCA93958B0FB76D3A213F803F689AB16AD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:5AE4AFCA93958B0FB76D3A213F803F689AB16AD9
 ```bash
 magnet:?xt=urn:btih:3DC6B201230177E9A0FB81E61344F7B72CBE93B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ PhotoResizerOK - это инструмент, позволяющий быстр�
 ```bash
 magnet:?xt=urn:btih:53440D8B2A1BD047ECE7C94F8D004F4A2CC0AAC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ VA - Music News vol.361 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:87ACFD9425C774DCEFABD2DB6E5ACA970C1FF436
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Italian Best Shorts 7: Быть женщиной / Femminile Singolare / Feminin
 ```bash
 magnet:?xt=urn:btih:F4A4483A525AD8B72D23BEB7FCD058A5C9FA13E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ DEAD BLONDE - ПЕРЕСТРОЙКА (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:2BE0AC293EEF64C4A6E2F9DA1D2C56C8D899C3A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 ```bash
 magnet:?xt=urn:btih:2CF00F92DED9C13A71096EE34366F3BDCEE6BD8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ FurMark 2 является преемником почтенного FurMark 1..
 ```bash
 magnet:?xt=urn:btih:4F973EDB852A78FDF5833AB9A6ECE77C6C4BAE58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Crisix - Studio Albums (8 releases) (2011-2023) hand made [restored, declipped] 
 magnet:?xt=urn:btih:6158888609499D7474C497961D8C5A45CF0661D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:6158888609499D7474C497961D8C5A45CF0661D2
 magnet:?xt=urn:btih:3F02BDF999E97EB864F5BCC4C717A000CF2A2D2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ Icecream Screen Recorder – простая программа для запис
 ```bash
 magnet:?xt=urn:btih:86CCC3740136CBAFDB6308C1F6F4077921EFCC7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ DEAD BLONDE - ПЕРЕСТРОЙКА (2024) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:FD3ED82FF353878AE4BAE82D26FC8B6DABC13D93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ Trix - Index (2004) King Record [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
 magnet:?xt=urn:btih:C329718405C10A39F9740042BE407A91F50BB011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ Italian Best Shorts 4: Истории нашей жизни / Italian Best Short
 ```bash
 magnet:?xt=urn:btih:B44E4E6A37FF5C6D4BAB025AF85874077C3477BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:B44E4E6A37FF5C6D4BAB025AF85874077C3477BA
 ```bash
 magnet:?xt=urn:btih:B757E64A22B567836161F7F708A8249F1EC9D687
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ Smokie - 8 Albums (1975-1982) Reissue, 2007-2008, 7T's GLAM [FLAC|Lossless|track
 magnet:?xt=urn:btih:089B8C1FF503830DC7D95079575A48B28014623F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ SoftPerfect Cache Relocator - портативная программа, с по
 magnet:?xt=urn:btih:54F12CE22189561BA09DB01193CDC9F07377D4FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ Windows Update Viewer 0.6.0.0 + Portable [En]
 ```bash
 magnet:?xt=urn:btih:CD7D3004AE0C9ADDC51FDCECC9A4B9CACA9217FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ Lacey -  простой инструмент для поиска и скачив
 magnet:?xt=urn:btih:B57E1901D16F94A585B4D3F9017CF03BA308E5A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:86F46F636809F7D869F20357AF09057727A75466
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:86F46F636809F7D869F20357AF09057727A75466
 magnet:?xt=urn:btih:7138DA3A5B071ED6DE89341D8BC00CFF30679EB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:7138DA3A5B071ED6DE89341D8BC00CFF30679EB9
 ```bash
 magnet:?xt=urn:btih:A1536020A3B7E7F11724F92A89B40F7433BBFC99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

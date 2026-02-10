@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:9416EE359DEDBC8C16EE08B9F17A1A6E917FEF36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:9416EE359DEDBC8C16EE08B9F17A1A6E917FEF36
 magnet:?xt=urn:btih:AE1D168AF89B5D44304C54180CB4B11D803F6305
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Udemy, Dmitrii Fokeev | Курс по Adobe Photoshop 2021 - (продвинут
 magnet:?xt=urn:btih:3EEF9C59B3C4ECC2E1E7D0657AC39CFFB6E53707
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Udemy, Drozdov Sergey | Робот для торговли криптовалю�
 ```bash
 magnet:?xt=urn:btih:0DE6AEECE09FE0A14AD1E6A2CB54BA37560956F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Embacy | Курс вёрстки на Webflow (2022) WEB-DL [RU]
 magnet:?xt=urn:btih:45D23E36E49EA88C7D3024397EDCDD2AA98CF416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Udemy, Dmitrii Fokeev | Теория дизайна - для веб дизайн
 ```bash
 magnet:?xt=urn:btih:1E75918E7E9ABC7846EFB861B1EBA6AFA71CB939
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Blender Market, Josh Gambrell, Ponte Ryuurui | The Blender Bros Hard Surface Gam
 magnet:?xt=urn:btih:56D0FCF794BB04D5DE83200EA23B775723988C7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:56D0FCF794BB04D5DE83200EA23B775723988C7D
 magnet:?xt=urn:btih:27BDB24A9FC7ABE7D022F801079DDD185C08D141
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:27BDB24A9FC7ABE7D022F801079DDD185C08D141
 magnet:?xt=urn:btih:4B053B9A5F5A3A1543406C87CDECF16344291E37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:4B053B9A5F5A3A1543406C87CDECF16344291E37
 ```bash
 magnet:?xt=urn:btih:653E671D31FA48379BD814E4E11F0D343C13D130
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:653E671D31FA48379BD814E4E11F0D343C13D130
 magnet:?xt=urn:btih:45A19635F8E731771E19F119F94AB481785701B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:45A19635F8E731771E19F119F94AB481785701B8
 magnet:?xt=urn:btih:9AB0509EBA2B1511FFF74E7B326B2FE5DBB66086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ Foxford | Английский - Стань сильнее. Pre-Intermediate (A2
 ```bash
 magnet:?xt=urn:btih:72AC47441E0A7B2C76F1CB49ECFDE4E4FD3156A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:72AC47441E0A7B2C76F1CB49ECFDE4E4FD3156A1
 magnet:?xt=urn:btih:C0A691FE872341D48AC7B686A1F97D2E9F6DAB45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:C0A691FE872341D48AC7B686A1F97D2E9F6DAB45
 ```bash
 magnet:?xt=urn:btih:0306FA13F6EE971A297B36E7B7E34C8B2ACB1212
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:0306FA13F6EE971A297B36E7B7E34C8B2ACB1212
 magnet:?xt=urn:btih:86B9199CC8FC73B6C7FA175981D65C485A4D76D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ CGMA, Patrick Yeung | Character Creation for Games (2021) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:B299F5FF941ADE3FCF86DDA8EEC1F8900DBFFE0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ Oleg Lav | Бесплатная антивирусная программа Pand
 magnet:?xt=urn:btih:E958D35457E99D36F01D160A08B2119AF48C8476
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ Side FX, Moeen Sayed | VEX isn't scary (2020) PCRec [RU]
 ```bash
 magnet:?xt=urn:btih:A6CE7C82F2429809F4CEFEA5BB313C4D43703B62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ FrontendConf 2020 | Профессиональная конференция фр
 magnet:?xt=urn:btih:933286582FEFEAA4B0146AFDA634D9320B0A2EBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ Hai Phan | 3d Character Art for Games Volume 1-6 (2013) PCRec
 magnet:?xt=urn:btih:86EEDD0E306EE66071AC1CE015EDE2FFC2795D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ ITVDN | Сборник бесплатных вебинаров (2014 - 2015) PCR
 ```bash
 magnet:?xt=urn:btih:193C44C9D2FE25CE5FC5617CF2336E158445176F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +621,8 @@ FructCode, Sergei Nikonov | Курс HTML/CSS - Интерактивный ку�
 magnet:?xt=urn:btih:F0EF8EE59596E4D9773ECA23F2AC97A6C13AE142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:F0EF8EE59596E4D9773ECA23F2AC97A6C13AE142
 ```bash
 magnet:?xt=urn:btih:A4B860AAED1C40ACB8E328A7E047D65822E7D8EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ magnet:?xt=urn:btih:A4B860AAED1C40ACB8E328A7E047D65822E7D8EA
 magnet:?xt=urn:btih:15B5C41AA82F14C2C6A6CDF393A1D90D580FD55F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:15B5C41AA82F14C2C6A6CDF393A1D90D580FD55F
 ```bash
 magnet:?xt=urn:btih:45EABDABC9DA60CF3277D919330575D45251E45B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

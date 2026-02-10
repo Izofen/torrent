@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9C8569D546D515B641810F2359D53B732A127D76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:4629F54C052E57B9DE2AB093AD7656713D805BD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:4629F54C052E57B9DE2AB093AD7656713D805BD2
 ```bash
 magnet:?xt=urn:btih:D6E7E91412827791739F0A5BD87810DEA9AE40CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ VA - Classic Rock 100 Epic Songs (2024) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:3DE302566809704BE8AB3890F70A439EEE990D3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Raw Metal (2024) [En] (1.1.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:1D4721AD1CFAAD0DA35F23710700E036247F225C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ ES File Explorer (File Manager) — это полнофункциональны�
 magnet:?xt=urn:btih:AD847833D3D19ECE82D6006D2BDC641E8BC7A2C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ WinX VideoProc Converter - усовершенствованная версия, 
 ```bash
 magnet:?xt=urn:btih:5340E75B09380E2CD8B7720AA24A39C36ACDFC1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ ReThink 5 (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:9126E3B9D70A64CD99314BF00130349F6D2D5EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ HexoCity - это расслабляющая головоломка, погру�
 magnet:?xt=urn:btih:0545175F1E8CD552A895C7CBD31A43EE3F17B4B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:0545175F1E8CD552A895C7CBD31A43EE3F17B4B5
 ```bash
 magnet:?xt=urn:btih:D35EEE731A81810B20D0C00E57A4A965083E6E09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Terminal - 2 Albums (2023-2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electro
 magnet:?xt=urn:btih:1EB128E63782025146FABA99F666F3BE271670B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:1EB128E63782025146FABA99F666F3BE271670B5
 ```bash
 magnet:?xt=urn:btih:946CC013A283B3352A2699030E427BA15CE2F6BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ SupRemo 4.11.2.2629 [Multi/Ru]
 magnet:?xt=urn:btih:C02A661203F3841AF47A7C731EFA184D63A64801
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:C02A661203F3841AF47A7C731EFA184D63A64801
 magnet:?xt=urn:btih:BBE23BA1D880AF18ACD944A8C50F0E41D79B9E2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:CC6B44DDCD2F533DA990B59CB59930CADD4D2678
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ FotoJet Designer - это графический редактор, основн�
 ```bash
 magnet:?xt=urn:btih:86823187A5371BB405B0164A93447BB81ED51D4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ FotoJet Photo Editor - позволяет каждому стать экспер
 magnet:?xt=urn:btih:87F39A1F7A56533A851AC4625DE221A0F661D517
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Audacity - свободный, простой в использовании зв
 ```bash
 magnet:?xt=urn:btih:7C13D0CE7BC5CE95A628BA06F8F09D23572EFFB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ VA - La Bola De Discoteca (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:4981FDF40C5E7FF61CAD45873E6D6F788EC91B85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ n-Track Studio — кроссплатформенный аудиоредакто
 ```bash
 magnet:?xt=urn:btih:878838EB31433D0930964DEB12EA069C7A414110
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ FotoJet Photo Editor - позволяет каждому стать экспер
 ```bash
 magnet:?xt=urn:btih:924A264E1160C613ADE07AA772142866E8B40D52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ VA - TOP Non-Stop 2010-2019 - Deep House. Volume 4 (2024) [MP3|224-320 Kbps] <De
 magnet:?xt=urn:btih:EEEFD94417D7C1232C14868D2ECC667DE0E151C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:EEEFD94417D7C1232C14868D2ECC667DE0E151C6
 ```bash
 magnet:?xt=urn:btih:05506E4197F9CE179CE007A8C63E034EC9AC4B4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ Winxvideo AI  - это набор инструментов для масштаб
 magnet:?xt=urn:btih:BC0AB107154A2B8166C6A4BB793CA2DC7425C5AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ R-Studio - основанная на новейшей уникальной те
 ```bash
 magnet:?xt=urn:btih:946CE47A378C8D7B8E1E333B27911652E90C470D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +689,8 @@ OBS Студия - бесплатное программное обеспече�
 ```bash
 magnet:?xt=urn:btih:40E646F8A459BEB1BED93F073CF838545510E5F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 1395891   (751817) от 12.07.2020
-
-Скуби-ду / Scoob! (2020) BDRip [H.264/1080p] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды мальчик по имени Шэгги встречает бездомного щенка, которому дает довольно странную кличку – Скуби-ду. Это становится началом не только настоящей дружбы, но и множества удивительных событий, в которых главные герои принимают самое активное участие. При поддержке школьников Дафни, Фредди и Вельмы приятели создают частное детективное агентство, мечтая помогать (   Читать дальше...   )Производство: США / Warner Bros., Warner Animation Group, Hanna-Barbera ProductionsЖанр: Мультфильм, комедия, детектив, приключения, семейныйРежиссер: Тони ЧервонеПеревод: Многоголосый закадровыйСубтитры: Русские (Focs), английские (Full, SDH), французские (Full)Продолжительность: 01:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94278B3C1AA68295C1CADAA198C299A958BA570E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 817494   (752867) от 15.04.2015
 
 Яблочное зёрнышко: Проект Альфа / Appleseed Alpha (2014) BDRemux [1080p]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:94278B3C1AA68295C1CADAA198C299A958BA570E
 ```bash
 magnet:?xt=urn:btih:23D01D223C8A29784961F81BFF8455918939C71A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ magnet:?xt=urn:btih:23D01D223C8A29784961F81BFF8455918939C71A
 ```bash
 magnet:?xt=urn:btih:2BDF211923D856F2A579B32EDE18DDA71D79040B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:2BDF211923D856F2A579B32EDE18DDA71D79040B
 magnet:?xt=urn:btih:A9B90253FA5224C9A9855D7B082E9AB65FFFD8D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:A9B90253FA5224C9A9855D7B082E9AB65FFFD8D5
 ```bash
 magnet:?xt=urn:btih:E1A7CEF37BD0C667661814FC523DD0811B816BC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:E1A7CEF37BD0C667661814FC523DD0811B816BC5
 magnet:?xt=urn:btih:C62E6BA44994999999E8DBA679094051045F0CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:C62E6BA44994999999E8DBA679094051045F0CAA
 ```bash
 magnet:?xt=urn:btih:DE7FDC55B56EB172B72F115BA379884F939ADF54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:DE7FDC55B56EB172B72F115BA379884F939ADF54
 magnet:?xt=urn:btih:F9F66EDC7D9C0397697EFE8584A5423232A9B1BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:F9F66EDC7D9C0397697EFE8584A5423232A9B1BE
 ```bash
 magnet:?xt=urn:btih:7EA97BDB55223F27DAA387A580CAF6E1FD20848F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +231,8 @@ magnet:?xt=urn:btih:7EA97BDB55223F27DAA387A580CAF6E1FD20848F
 magnet:?xt=urn:btih:58914BD1AE2B75D356E13D3839441A16602B6F8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +256,8 @@ magnet:?xt=urn:btih:58914BD1AE2B75D356E13D3839441A16602B6F8B
 ```bash
 magnet:?xt=urn:btih:007214EA6C2588A2B02EE62A4B67C5CF809F65BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +283,8 @@ magnet:?xt=urn:btih:007214EA6C2588A2B02EE62A4B67C5CF809F65BD
 magnet:?xt=urn:btih:E7F965093BDA4BD7B36F6297D6BF1FCE74407FE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +308,8 @@ magnet:?xt=urn:btih:E7F965093BDA4BD7B36F6297D6BF1FCE74407FE7
 ```bash
 magnet:?xt=urn:btih:FACD825C6AC50F222248A6F10B12962C612E1083
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +335,8 @@ magnet:?xt=urn:btih:FACD825C6AC50F222248A6F10B12962C612E1083
 magnet:?xt=urn:btih:2EDBE70FA4835708D7FC749197775569E4E18CFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +360,8 @@ magnet:?xt=urn:btih:2EDBE70FA4835708D7FC749197775569E4E18CFA
 ```bash
 magnet:?xt=urn:btih:CD4DE4757A63328A79CBDC6A68E46AE93F96622A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +387,8 @@ magnet:?xt=urn:btih:CD4DE4757A63328A79CBDC6A68E46AE93F96622A
 magnet:?xt=urn:btih:1F6B488153EF919FF121B3AB100212CDFC503A7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +413,8 @@ magnet:?xt=urn:btih:1F6B488153EF919FF121B3AB100212CDFC503A7D
 magnet:?xt=urn:btih:5C16063AE8BC854B40D5DDCF092B1B726AC34A7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:5C16063AE8BC854B40D5DDCF092B1B726AC34A7A
 ```bash
 magnet:?xt=urn:btih:56AC1919C8BBF22F2C88188FA7156FAA74AF8146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +467,8 @@ magnet:?xt=urn:btih:56AC1919C8BBF22F2C88188FA7156FAA74AF8146
 magnet:?xt=urn:btih:99F044B6B38390D1757776DF24FC74EF2AF7F067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +495,8 @@ magnet:?xt=urn:btih:99F044B6B38390D1757776DF24FC74EF2AF7F067
 magnet:?xt=urn:btih:20774ED24D9D879E36F82CB66F044C9FFE5C119D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +520,8 @@ magnet:?xt=urn:btih:20774ED24D9D879E36F82CB66F044C9FFE5C119D
 ```bash
 magnet:?xt=urn:btih:CD402B86CCEA2EE2F6DD09D0C79388EBF6E6F43D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +547,8 @@ magnet:?xt=urn:btih:CD402B86CCEA2EE2F6DD09D0C79388EBF6E6F43D
 magnet:?xt=urn:btih:A83F6FD46CE10CE0973CA15148EAC4C861CEC9DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +572,8 @@ magnet:?xt=urn:btih:A83F6FD46CE10CE0973CA15148EAC4C861CEC9DB
 ```bash
 magnet:?xt=urn:btih:6E1D4B7CA70719ECE9237FD9F3810B5DFC791DA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +599,8 @@ magnet:?xt=urn:btih:6E1D4B7CA70719ECE9237FD9F3810B5DFC791DA8
 magnet:?xt=urn:btih:8A2A96437FE08974E1363780CB10AE585B12BCDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +625,8 @@ magnet:?xt=urn:btih:8A2A96437FE08974E1363780CB10AE585B12BCDE
 magnet:?xt=urn:btih:95E730F190CF46C8B8C2A8BD16137E397E2BB0A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +650,34 @@ magnet:?xt=urn:btih:95E730F190CF46C8B8C2A8BD16137E397E2BB0A8
 ```bash
 magnet:?xt=urn:btih:E97FAEDC244F4FA15B207A8CE29A75C7B90B0F75
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521814   (763328) от 04.01.2022
+
+Зверопой / Sing (2016) UHD BDRip [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763328.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире, который населяют звери, коала по имени Бастер Мун изо всех сил пытается предотвратить закрытие своего театра. В итоге Бастер и его друг баран Эдди устраивают конкурс певцов, предлагая принять участие каждому жителю города.Производство: Франция, Япония, США / Dentsu, Fuji Television Network, Illumination Entertainment, Universal PicturesЖанр: мультфильм, мюзикл, комедия, семейныйРежиссер: Гарт Дженнингс, Кристоф ЛурделеАктеры: Мэттью МакКонахи, Риз Уизерспун, Сет МакФарлейн, Скарлетт Йоханссон, Джон Си Райли, Тэрон Эджертон, Тори Келли, Дженнифер Сондерс, Дженнифер Хадсон, Гарт ДженнингсПеревод: Дублированный, Одноголосый любительскийСубтитры: русские, английскиеПродолжительность: 01:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E279D8E7508DA98E355ACB5B47CDAC53B0BC1E63
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

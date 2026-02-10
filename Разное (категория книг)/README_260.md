@@ -1,3 +1,29 @@
+###  Публикация: 951082   (364942) от 28.10.2015
+
+Брайан Трейси | Как управляют лучшие (2015) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_364942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лидерство – критически важный навык, обеспечивающий успех любой компании или отдельного подразделения. В этой книге бизнес-гуру Брайан Трейси обобщил опыт лучших топ-менеджеров и собственников компаний, который позволяет им добиваться поразительных результатов на конкурентных рынках. Вы узнаете, как применять самые действенные принципы лидерства, чтобы управлять, (   Читать дальше...   )Жанр: Управление, подбор персонала, деловая литератураФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C25A40D274A62D2F7D580FF46B9CD154E71DE426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177121   (365017) от 24.10.2017
 
 Тору Вилле | Глюгге. Скандинавское счастье пьем чаек в пижамке! От хюгге до сису (2017) [FB2]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:D1CE6C434E30BAD2D0C154C4F4D4A56C1D695E47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:D1CE6C434E30BAD2D0C154C4F4D4A56C1D695E47
 magnet:?xt=urn:btih:966CCCAABB54E4E8D30856F5BF22B2F620449F9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:966CCCAABB54E4E8D30856F5BF22B2F620449F9E
 ```bash
 magnet:?xt=urn:btih:60DFF69AF83CA61B6CD9EE52A8078A70A0A88AB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:60DFF69AF83CA61B6CD9EE52A8078A70A0A88AB9
 magnet:?xt=urn:btih:F8616FBA3AFBFDBE306CD16594EA3BFD5409B069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:F8616FBA3AFBFDBE306CD16594EA3BFD5409B069
 ```bash
 magnet:?xt=urn:btih:9F6E7FA28DB8A2401A2C3FE96588CDF6713EA698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:9F6E7FA28DB8A2401A2C3FE96588CDF6713EA698
 magnet:?xt=urn:btih:57774A734CEBBD20618EEFF0075F9794146862AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:57774A734CEBBD20618EEFF0075F9794146862AD
 ```bash
 magnet:?xt=urn:btih:E7D6E05509487EAA06B73EE6BF4F3687BA28DCDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:E7D6E05509487EAA06B73EE6BF4F3687BA28DCDC
 magnet:?xt=urn:btih:4C83326F42E7829869D5FD1F579DF5D9B88AF4A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:4C83326F42E7829869D5FD1F579DF5D9B88AF4A2
 magnet:?xt=urn:btih:8618EE55EF464F2B0F0C3250FC991993D21BC1B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:8618EE55EF464F2B0F0C3250FC991993D21BC1B0
 ```bash
 magnet:?xt=urn:btih:3798497E85A7F27899FE8A609359D6AE95D2A19B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:3798497E85A7F27899FE8A609359D6AE95D2A19B
 magnet:?xt=urn:btih:355A077948CFBCF153859A7FE0E2F407E581BC40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:355A077948CFBCF153859A7FE0E2F407E581BC40
 magnet:?xt=urn:btih:22BBC8FEABC226C5073DE7C9555CC47EE1A1CF5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:22BBC8FEABC226C5073DE7C9555CC47EE1A1CF5E
 ```bash
 magnet:?xt=urn:btih:CE2E3F888344D152E2380F0ACE5FC5D30DEBC1DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:CE2E3F888344D152E2380F0ACE5FC5D30DEBC1DD
 magnet:?xt=urn:btih:F94232854F396F9EFBDE503DC04C57671A1E0EFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:F94232854F396F9EFBDE503DC04C57671A1E0EFF
 magnet:?xt=urn:btih:FD84BCC56D591263F99E398C8B1D534C1BBFB7B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:FD84BCC56D591263F99E398C8B1D534C1BBFB7B5
 ```bash
 magnet:?xt=urn:btih:34FBF37EF5649E611884362E8DB5459E7A09F9BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:34FBF37EF5649E611884362E8DB5459E7A09F9BF
 magnet:?xt=urn:btih:E9BB7380F63885BD964BC6CFDF83A87276AF03DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:E9BB7380F63885BD964BC6CFDF83A87276AF03DA
 ```bash
 magnet:?xt=urn:btih:643E9F5B3ED985554819E49815A389CD64D6B6AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:643E9F5B3ED985554819E49815A389CD64D6B6AB
 magnet:?xt=urn:btih:6F265C098666E11317BE62D78C793252218036FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:6F265C098666E11317BE62D78C793252218036FF
 ```bash
 magnet:?xt=urn:btih:84A239C52596EA5C1D748008A8AC5908C58075E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:84A239C52596EA5C1D748008A8AC5908C58075E9
 magnet:?xt=urn:btih:FB3213F7ECF5FA84746BCC3BBFFD268E56172354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:FB3213F7ECF5FA84746BCC3BBFFD268E56172354
 ```bash
 magnet:?xt=urn:btih:171914178819C8F1BF112CC9DC75BC66C697E681
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:171914178819C8F1BF112CC9DC75BC66C697E681
 magnet:?xt=urn:btih:E87E6BE4D24B08D089B9B290692AFA7FF8F31533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:E87E6BE4D24B08D089B9B290692AFA7FF8F31533
 ```bash
 magnet:?xt=urn:btih:14AC4B7C0F3B9F398DB27FD4BCAE1DC00173E729
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:14AC4B7C0F3B9F398DB27FD4BCAE1DC00173E729
 magnet:?xt=urn:btih:F97D6E7C1E9C475FF64B0A62FDB95201950D173D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255363   (365710) от 17.10.2018
-
-Робин Дрик, Кэмерон Стаут | Строим доверие по методикам спецслужб (2018) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как показывает Робин Дрик, специальный агент ФБР и большой знаток тонкостей человеческого поведения, всё в нашей жизни зиждется на доверии. Без него отношения между людьми легко рушатся. Автор призывает всех лидеров следовать пяти принципам кода доверия — не быть высокомерным, не судить никого, признавать значимость других, иметь здравый смысл и проявлять великодушие (   Читать дальше...   )Жанр: ПсихологияПеревод: Людмила ГоловинаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:491EF2602818E6808A0A845CE278CBB3A1C7DB6B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

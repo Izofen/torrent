@@ -22,6 +22,8 @@ VA - Моя Любимая... (1995) German Press [APE|Lossless|image + .cue] <R
 magnet:?xt=urn:btih:16D46FA013C8AA91CEB92DB6DB6F4F55363EFB4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:16D46FA013C8AA91CEB92DB6DB6F4F55363EFB4F
 ```bash
 magnet:?xt=urn:btih:4E13265DDC1D80BA358FEF54AC2A2D19BED2E0A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:4E13265DDC1D80BA358FEF54AC2A2D19BED2E0A6
 magnet:?xt=urn:btih:4A01BF4D52BCFDA243C39F416F7DC4EA2F09879A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Хорошо сидим ! Песни русского застолья (199
 ```bash
 magnet:?xt=urn:btih:C925E3D5BBAEB2A50AD313C9FF181A1D3D260B6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:C925E3D5BBAEB2A50AD313C9FF181A1D3D260B6E
 magnet:?xt=urn:btih:1111ECEE2DCD2DAEA12F4CBF75FA6B6046A12660
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Давай попробуем вернуть (2007) [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:5B84EAD612D2F1FD7AC567816C607CD7704F0154
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Утомлённое солнце. Песни 30-50-х (2008) [FLAC|Lossles
 magnet:?xt=urn:btih:720B419015C70599667B4E88D727D8B12E7D89AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ VA - Популярные песни 60-х годов (2006) [APE|Lossless|image
 magnet:?xt=urn:btih:DC47CE364AAF90922269F1E07F282A8EEA1F559A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +253,8 @@ magnet:?xt=urn:btih:DC47CE364AAF90922269F1E07F282A8EEA1F559A
 ```bash
 magnet:?xt=urn:btih:8D3BF0A43CF6A35E8767F238BA74BB1AEDCA8B7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ magnet:?xt=urn:btih:8D3BF0A43CF6A35E8767F238BA74BB1AEDCA8B7B
 magnet:?xt=urn:btih:C0AFC5E8FA06CAA3F477D4BA5BC298CB89307CA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +317,8 @@ magnet:?xt=urn:btih:C0AFC5E8FA06CAA3F477D4BA5BC298CB89307CA4
 ```bash
 magnet:?xt=urn:btih:CAD378000967A6848F545F5C7C485823CFB1D849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +348,8 @@ magnet:?xt=urn:btih:CAD378000967A6848F545F5C7C485823CFB1D849
 magnet:?xt=urn:btih:DF7E6E55194C4BF0E2ECE068BF66C70F98B69340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +377,8 @@ magnet:?xt=urn:btih:DF7E6E55194C4BF0E2ECE068BF66C70F98B69340
 magnet:?xt=urn:btih:6F3F791A54AE4089F32BFA0B610FD619B47E5587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +402,8 @@ magnet:?xt=urn:btih:6F3F791A54AE4089F32BFA0B610FD619B47E5587
 ```bash
 magnet:?xt=urn:btih:58BB951AF557CC5F4EB4151EFEAABA95EBD018AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +432,8 @@ magnet:?xt=urn:btih:58BB951AF557CC5F4EB4151EFEAABA95EBD018AF
 magnet:?xt=urn:btih:8727C2ADC2E8AACA4AB94002200F2F63BB420B84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +460,8 @@ magnet:?xt=urn:btih:8727C2ADC2E8AACA4AB94002200F2F63BB420B84
 ```bash
 magnet:?xt=urn:btih:095F622E0975B78B13D1B68848AE80080316CC5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +490,8 @@ magnet:?xt=urn:btih:095F622E0975B78B13D1B68848AE80080316CC5F
 magnet:?xt=urn:btih:AB7C9B99B941A1CBE61C2499DD2E24C8F05AA3B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +518,8 @@ VA - Сделано в С.С.С.Р. 10xCD (2007-2010) [FLAC|Lossless] <Retro, Po
 ```bash
 magnet:?xt=urn:btih:1931ACDB733060844A660A4779C3EF21735C73A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +554,8 @@ magnet:?xt=urn:btih:1931ACDB733060844A660A4779C3EF21735C73A1
 magnet:?xt=urn:btih:C18C9F69A9A88FC375338706DC40F0B969C0ACBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +583,8 @@ Volume 5 - Лучшие песни-II 1971-1981 ВИА 70-х(   Читать д�
 magnet:?xt=urn:btih:66E78C2D4DC0567FF96F8FEE2B13C947E26F0E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +611,8 @@ magnet:?xt=urn:btih:66E78C2D4DC0567FF96F8FEE2B13C947E26F0E62
 ```bash
 magnet:?xt=urn:btih:7F2659816BF54741847E2E22FEB4C1443DAD42A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +647,8 @@ V.A. - Комсомольская Юность Моя (2008) [FLAC|Lossless]<Pop
 magnet:?xt=urn:btih:C23E94C197B7AEE2185DE4B9E2DDD4F2CB4A954A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +675,8 @@ magnet:?xt=urn:btih:C23E94C197B7AEE2185DE4B9E2DDD4F2CB4A954A
 ```bash
 magnet:?xt=urn:btih:45BB7266599682599A3849867DD37A60DF9FC0CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +705,8 @@ magnet:?xt=urn:btih:45BB7266599682599A3849867DD37A60DF9FC0CB
 magnet:?xt=urn:btih:EABC97D3453D98CB86EB2648465717AF96CD5DAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,6 +734,8 @@ magnet:?xt=urn:btih:EABC97D3453D98CB86EB2648465717AF96CD5DAC
 magnet:?xt=urn:btih:65F14F15A33E63D134705407F72BC78200AE8066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -712,6 +762,8 @@ magnet:?xt=urn:btih:65F14F15A33E63D134705407F72BC78200AE8066
 ```bash
 magnet:?xt=urn:btih:3695C260208147994DDD2D9A4B77ADB67E715AFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

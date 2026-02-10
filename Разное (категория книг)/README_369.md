@@ -1,3 +1,31 @@
+###  Публикация: 1237037   (553067) от 22.07.2018
+
+Эдуард Каневский | Хватит ЖРАТЬ! И лениться. 50 интенсивных тренировок от тренера программы «Свадебный размер» (2018) [FB2]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вернуться в размер, в котором вы женились/вышли замуж? Достать из шкафа старые джинсы? Легко. Известный российский тренер Эдуард Каневский проведет вас через короткий путь к идеальному телу. Вас ждут более сотни полезных советов, о которых никто даже и не догадывается.
+
+Благодаря предложенным системам упражнений, которые автор эффективно комбинирует друг с другом, (   Читать дальше...   )Жанр: Здоровое и правильное питание, Похудение и диеты, Спорт/фитнесФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2280EBC6FC32AA1C68EE28E8B4A14C5D41CF2A36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237306   (553143) от 22.07.2018
 
 Оксана Путан | Энциклопедия современной русской кухни. Подробные пошаговые рецепты (2018) [PDF]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:FFAFA28424C20E44BB7B032F7D2BDEFABD569A78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:FFAFA28424C20E44BB7B032F7D2BDEFABD569A78
 magnet:?xt=urn:btih:C0985860BDD2C9324D168785BB930C0B50F3B503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:C0985860BDD2C9324D168785BB930C0B50F3B503
 ```bash
 magnet:?xt=urn:btih:8535A013EC0B166CCF894462CCDF2753A4A3FF41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +127,8 @@ magnet:?xt=urn:btih:8535A013EC0B166CCF894462CCDF2753A4A3FF41
 magnet:?xt=urn:btih:B4E5AF28D2DB1BE52A0CEE88ADB90338972F6770
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +152,8 @@ magnet:?xt=urn:btih:B4E5AF28D2DB1BE52A0CEE88ADB90338972F6770
 ```bash
 magnet:?xt=urn:btih:1C01784D4FCF480BFB9F959D3233046496C6762A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +179,8 @@ magnet:?xt=urn:btih:1C01784D4FCF480BFB9F959D3233046496C6762A
 magnet:?xt=urn:btih:509F6F3D34EE18B4D7E17647AED9F8C3D0F15624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +204,8 @@ magnet:?xt=urn:btih:509F6F3D34EE18B4D7E17647AED9F8C3D0F15624
 ```bash
 magnet:?xt=urn:btih:99A9F25330831A5D03EDFDB3C24CAF151B172F9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +231,8 @@ magnet:?xt=urn:btih:99A9F25330831A5D03EDFDB3C24CAF151B172F9C
 magnet:?xt=urn:btih:6F9D20C95B0C9DF6FDF12BFE79D1D4859103E3C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +256,8 @@ magnet:?xt=urn:btih:6F9D20C95B0C9DF6FDF12BFE79D1D4859103E3C1
 ```bash
 magnet:?xt=urn:btih:FF58E697D23F1B174EB3A82CD386568DF1E65F6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +285,8 @@ magnet:?xt=urn:btih:FF58E697D23F1B174EB3A82CD386568DF1E65F6C
 magnet:?xt=urn:btih:0EF6734C3F3A0133BB689C4CA4B3D40DA9E95878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +313,8 @@ magnet:?xt=urn:btih:0EF6734C3F3A0133BB689C4CA4B3D40DA9E95878
 magnet:?xt=urn:btih:4BEB457FBAABF89FA38D2787A7E6F2107C8DA713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +340,8 @@ magnet:?xt=urn:btih:4BEB457FBAABF89FA38D2787A7E6F2107C8DA713
 ```bash
 magnet:?xt=urn:btih:7CC6A6670F98D4DBC06AA6A398F956381399A6B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +370,8 @@ magnet:?xt=urn:btih:7CC6A6670F98D4DBC06AA6A398F956381399A6B8
 magnet:?xt=urn:btih:3A32D622ABC6F6F93183F454E3AB82E7E18451D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +395,8 @@ magnet:?xt=urn:btih:3A32D622ABC6F6F93183F454E3AB82E7E18451D2
 ```bash
 magnet:?xt=urn:btih:32661EB1B8C161AC490D2184BAB571161EE7AA6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +424,8 @@ Instagram на сегодняшний момент самая динамично
 magnet:?xt=urn:btih:742C08BD3CFBF8F57159512938F86557AAB796F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +451,8 @@ magnet:?xt=urn:btih:742C08BD3CFBF8F57159512938F86557AAB796F3
 ```bash
 magnet:?xt=urn:btih:3AD8A94D2E1DEB9D4D5EBFB0427FDF1E9FBE181F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +481,8 @@ magnet:?xt=urn:btih:3AD8A94D2E1DEB9D4D5EBFB0427FDF1E9FBE181F
 magnet:?xt=urn:btih:E93FA54164D6515097CB9DA7066298A82903D9AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +506,8 @@ magnet:?xt=urn:btih:E93FA54164D6515097CB9DA7066298A82903D9AB
 ```bash
 magnet:?xt=urn:btih:18FA0E4888B7FF2720128F0B5C530A86AFB9F0E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +533,8 @@ magnet:?xt=urn:btih:18FA0E4888B7FF2720128F0B5C530A86AFB9F0E1
 ```bash
 magnet:?xt=urn:btih:DE71E1141569C754F2887C49D10A67633D37F7AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +562,8 @@ magnet:?xt=urn:btih:DE71E1141569C754F2887C49D10A67633D37F7AE
 magnet:?xt=urn:btih:26686B12757230E98966E325A68BFB159A0ED760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +587,8 @@ magnet:?xt=urn:btih:26686B12757230E98966E325A68BFB159A0ED760
 ```bash
 magnet:?xt=urn:btih:E0050A1FB3303D1BFC733C187B5290B8681FB252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +616,8 @@ magnet:?xt=urn:btih:E0050A1FB3303D1BFC733C187B5290B8681FB252
 magnet:?xt=urn:btih:9CE9EFBFDE8125334F7B0764CA622202327D551B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +641,8 @@ magnet:?xt=urn:btih:9CE9EFBFDE8125334F7B0764CA622202327D551B
 ```bash
 magnet:?xt=urn:btih:719626C10383C6D82C174155F0AF43338A26B869
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +668,8 @@ magnet:?xt=urn:btih:719626C10383C6D82C174155F0AF43338A26B869
 magnet:?xt=urn:btih:9BEF73FE53483DE6AEAA48123529D3AF5D0FD078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,31 +694,7 @@ magnet:?xt=urn:btih:9BEF73FE53483DE6AEAA48123529D3AF5D0FD078
 magnet:?xt=urn:btih:E20D15437CC9B7E43E868D16789BF605737E5BB3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307971   (554383) от 12.06.2019
-
-Харриет Лернер | Я все исправлю. Тонкое искусство примирения (2019) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всем нам приходится приносить и принимать извинения, но далеко не каждый владеет тонким искусством просить прощения. Эта книга написана для двух типов читателей: тех, кто хочет загладить вину, и тех, кто оказался в рядах обиженных. Вы узнаете много интересной и полезной информации от известного психолога и психотерапевта.
-
-К примеру, как просить прощения, чтобы обиженный (   Читать дальше...   )Жанр: Популярная психологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BA616785EA25BCF93271815C1A43C511C7532EF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

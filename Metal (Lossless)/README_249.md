@@ -1,3 +1,61 @@
+###  Публикация: 1065217   (419100) от 23.10.2016
+
+Amaranthe - Maximalism (2016) [FLAC|tracks|WEB-DL]<Modern Melodic Metal, Male and Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_419100.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:10] 01. Maximize
+[03:22] 02. Boomerang
+[03:13] 03. That Song
+[03:05] 04. 21(   Читать дальше...   )Жанр: Modern Melodic Metal, Male and Female VocalПродолжительность: 00:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC59894076F6AD49E00CBB64B152AD909BCED806
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250857   (420201) от 30.09.2018
+
+VA - Blackend - The Black Metal Compilation Vol. 1 (1995) 2CD [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_420201.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Emperor - I Am the Black Wizards (6:13)
+02. Impaled Nazarene - Hate (5:52)
+03. Mayhem - Pagan Fears (6:22)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 02:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD6FABE6E6FC22491DF2B41745C2D519EEE0AE5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412076   (420227) от 28.09.2020
 
 Whorion - The Reign Of The 7th Sector (2015) [FLAC|Lossless|image + .cue] <Symphonic Technical Death Metal>
@@ -21,6 +79,8 @@ Whorion - The Reign Of The 7th Sector (2015) [FLAC|Lossless|image + .cue] <Symph
 ```bash
 magnet:?xt=urn:btih:E8DB9B947F2CE829475E565ECDE7683DCAB35EE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +109,8 @@ Within Temptation - Интервью с Шарон ден Адель на рад
 magnet:?xt=urn:btih:15E587A6032E7FEDB6F196598F81EF1696A9C198
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +137,8 @@ VA - Black Mark Tribute Vol. II (1998) [FLAC|Lossless|image + .cue] <Thrash Meta
 ```bash
 magnet:?xt=urn:btih:26358B930061ACE556E5067C354053E0C1CA0023
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +167,8 @@ CD1:
 magnet:?xt=urn:btih:CEF972483B53AC66FC232B47EDBAB59B89C7A77A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +195,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:168845E22034A3776BA19067D99123F4A42CBC4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +225,8 @@ VA - Black Mark Tribute (1997) [FLAC|Lossless|image + .cue] <Thrash Metal, Black
 magnet:?xt=urn:btih:2E91CE0BB720E7E52E415A526828D7C55CF38647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +253,8 @@ Shaman - Ritual (2002) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:7533E67DE721DDC81E28F747CE455A5E85078EE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +283,8 @@ Frigoris - ...in Stille (2020) [FLAC|Lossless|Web-DL|tracks] <Black Metal, Atmos
 magnet:?xt=urn:btih:B147888B98ED8814DC29E38EDC2704225FD18C94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +311,8 @@ Shaman - Immortal (2007) [APE|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:56F500993A43FB8557C314B2C7319EC4C7857D83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +341,8 @@ Memoira - 3 Albums (2008-2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic-Progress
 magnet:?xt=urn:btih:BAED6378E83FE50D5559A0CA885C3DA86CB3C5E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +369,8 @@ Shaman - RituAlive (2004) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:838A79FB2E45F126454607D25AD77ED718A19316
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +399,8 @@ Shaman - Origins (2010) [APE|Lossless|image + .cue] <Power Metal>
 magnet:?xt=urn:btih:EC0CC41255BC58F600EC221A31DB5ED82B527836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +427,8 @@ Shaman - Reason (2005) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:5DE3D611C385FB6CFED120C2AFDF98BD969A082D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +457,8 @@ Raven - ExtermiNation (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:CEAAE3DCBAAFBA90B83E62C056D619411D63D12F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +485,8 @@ Neurogenic - Ouroboric Stagnation (2016) [WavPack|Lossless|image + .cue] <Brutal
 ```bash
 magnet:?xt=urn:btih:75EB12C687F59E07F92DE3CA427DEE31FEB33631
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +515,8 @@ Belphegor - Collection (1993 - 2017) 13CD [FLAC|Lossless|image + .cue] <Death, B
 magnet:?xt=urn:btih:EA5C33F47A58CFDB7ECDE293DDB08B374690B10A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +543,8 @@ Cavalera Conspiracy — Бразильско-Американская метал
 ```bash
 magnet:?xt=urn:btih:1E93379AFC4913D64671D27F9803FFA48D4F043F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +573,8 @@ Domine - Ancient Spirit Rising (2007) Japan [FLAC|Lossless|image + .cue] <Power 
 magnet:?xt=urn:btih:1EF97D4CC441F14AEAE9EF9AE492F0CA68FED5D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +602,8 @@ Domine - Stormbringer Ruler - The Legend Of The Power Supreme (2001) Japan [FLAC
 magnet:?xt=urn:btih:C69C8608BFFA425E2C16F17C7242AE3CCA15369E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +629,8 @@ Enslaved - Vikingligr Veldi & Hordanes Land (2004) 2CD [WavPack|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:7BEA1CF599B88FA7EEE6E1E9832A76B1C2B28C88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +659,8 @@ Domine - Dragonlord (Tales Of The Noble Steel) (1999) [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:B0403DB433BA9A10CDFCD8786DA7B044F906AFB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +687,8 @@ Echoes of Eternity - The Forgotten Goddess (2007) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:89525F48C504D555DC40603B5EA83AB7121E9BBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +717,8 @@ Inner Visions - Control The Past (2004) [APE|Lossless|image + .cue] <Power Metal
 magnet:?xt=urn:btih:A512524359F35D463681C769F2E181BE073F038C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,59 +745,7 @@ Chaos Divine - Africa (2012) [FLAC|Lossless|image + .cue] <Progressive Metal>
 magnet:?xt=urn:btih:D2D6F3B41A4854A64C0F1B2B89B86E72C395A823
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065159   (421641) от 22.10.2016
-
-Eden's Curse - Cardinal (2016) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock, Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prophets Of Doom
-02. Sell Your Soul
-03. The Great Pretender
-04. Messiah Complex(   Читать дальше...   )Жанр: Melodic Hard Rock, Melodic Heavy MetalПродолжительность: 01:07:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD592B563C97D1DD780471CF433796F2A5023A22
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065172   (421896) от 22.10.2016
-
-Herman Frank - Loyal To None (2009) 2016 reissue [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_421896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moon II
-02. 7 Stars
-03. Father Buries Son
-04. Heal Me(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159164A832C2A231B34FF966F47C44C1F285E9A0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

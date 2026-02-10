@@ -19,6 +19,8 @@ The Wolf Among Us (2013) [Ru/En] (1.0) Repack Seraph1 [Episodes 1-5]
 magnet:?xt=urn:btih:1F4FC14EE69E9799F181A7E12548ED843A8AA23C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:1F4FC14EE69E9799F181A7E12548ED843A8AA23C
 ```bash
 magnet:?xt=urn:btih:03CC08C0654974AEC935AE162FCE91B239D998EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:03CC08C0654974AEC935AE162FCE91B239D998EB
 magnet:?xt=urn:btih:8D41A13F515B30E2E89B5773073B480A36480D30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:8D41A13F515B30E2E89B5773073B480A36480D30
 ```bash
 magnet:?xt=urn:btih:50A9303DE58DE1BB1EE5A1D37B8E8F15EA36C414
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Christmas Memories - проект для создания слайд-шоу Ро
 magnet:?xt=urn:btih:78C3066763F64CEC964F85399471F118F6202DFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:78C3066763F64CEC964F85399471F118F6202DFC
 ```bash
 magnet:?xt=urn:btih:55FC389181EF61C8B283BE379660CF6264961707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ MX5 - новая версия веб-браузера от Maxthon для Window
 magnet:?xt=urn:btih:4BBA63BA433B2487B8A5C673A9EB1B5C964AFF2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:4BBA63BA433B2487B8A5C673A9EB1B5C964AFF2D
 magnet:?xt=urn:btih:4E3492CB19DCD0A78A68B4E3FDA838B9F5AD689D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:4E3492CB19DCD0A78A68B4E3FDA838B9F5AD689D
 ```bash
 magnet:?xt=urn:btih:BB25C45D12392CE4BFBAE79D12C15463A01496CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ FotoMagico – популярный пакет для создания слай�
 ```bash
 magnet:?xt=urn:btih:405F72D69D588F85357954658AF7BCCFB530A533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ U2 - Songs Of Experience (2017) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 magnet:?xt=urn:btih:5E3EE25134AE4DC86F1E42B6AC98ED672F913052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:5E3EE25134AE4DC86F1E42B6AC98ED672F913052
 ```bash
 magnet:?xt=urn:btih:6C7F56BDFE730DCE250AA33EC33AF006462A3905
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ VA - Pop Rock Ballads: New And Old (2017) [MP3|320 Kbps] <Pop, Rock, Old Ballad>
 magnet:?xt=urn:btih:A02E327EB069465E39E82C9AE71E8A2522965A11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:A02E327EB069465E39E82C9AE71E8A2522965A11
 ```bash
 magnet:?xt=urn:btih:2CA346A39CE00C982403DCF09759A9B01211E646
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ qBittorrent - бесплатный, мощный и удобный в работ
 magnet:?xt=urn:btih:CFA5AC3D8B9EC18B464A0557A5A9A943394FB5A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ Raxco PerfectDisk - программа для дефрагментации жё�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Mireille Mathieu - Made In France (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Cha
 magnet:?xt=urn:btih:D83D685C7925216D3ED1EC76047DAAED8EB44FB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:D83D685C7925216D3ED1EC76047DAAED8EB44FB4
 magnet:?xt=urn:btih:4EB2D1890D9C9AEF6CF1A0A282661CC7C31EED5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ WhatSize - небольшое приложение выводит на экра�
 ```bash
 magnet:?xt=urn:btih:7266FE6128EE85399D9FC649DFC95D9F94520823
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:7266FE6128EE85399D9FC649DFC95D9F94520823
 magnet:?xt=urn:btih:B07470A3F0C0AAE04CC3956492D871CA18B935D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ Comedy Woman (08.11.2019) WEB-DLRip (сезон 9, выпуск 9)
 ```bash
 magnet:?xt=urn:btih:6D80BAE0AAAA5337082B3F03B58675575271E954
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ Comedy Woman (2017.12.01) WEB-DL [H.264/720p-LQ]
 magnet:?xt=urn:btih:8C654E3987DA93B58BA851E1EC470BFE5BC21C82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:8C654E3987DA93B58BA851E1EC470BFE5BC21C82
 ```bash
 magnet:?xt=urn:btih:2595B6BF6EB82C18992202235B735BF8E0FB2329
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:2595B6BF6EB82C18992202235B735BF8E0FB2329
 magnet:?xt=urn:btih:DE75039295D1D8546DD890B5552AB0186178F764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ Lucasfilm | Артбук по фильму Звёздные войны: Возв
 magnet:?xt=urn:btih:4194923F8F8A4C97E91CBE422006E6445B791C7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:4194923F8F8A4C97E91CBE422006E6445B791C7E
 ```bash
 magnet:?xt=urn:btih:9FBBF4702A13AC8B4FE0B460866F7A76285674AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

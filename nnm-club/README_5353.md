@@ -20,6 +20,8 @@ DiskCatalogMaker  - Простая утилита для управления и
 magnet:?xt=urn:btih:434E5F4A1F2EAB26EACC8E85DBDB06E75188DD40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Edenbridge - ...Sunrise In Eden... (2000) [FLAC|Lossless|image + .cue] <Symphoni
 magnet:?xt=urn:btih:5CCF9C50442BE4782661ADE193B49BF0ED279BED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:5CCF9C50442BE4782661ADE193B49BF0ED279BED
 ```bash
 magnet:?xt=urn:btih:00E3DB53A47F1737DED9158970542EC1EA3CDAA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:00E3DB53A47F1737DED9158970542EC1EA3CDAA3
 magnet:?xt=urn:btih:0DF586357780BBA719611467A9254C4B65C9E606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 magnet:?xt=urn:btih:E0B270D54DBA971D723B5ADE1FE199078EEFF568
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:E0B270D54DBA971D723B5ADE1FE199078EEFF568
 ```bash
 magnet:?xt=urn:btih:503041B83B763F68C1AE982F2DF765EBE19C0A20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ Edenbridge - Arcana (2001) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
 magnet:?xt=urn:btih:07A7B122ED00C9821F4EE2A51521CFAE97221322
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ AnyMP4 DVD Creator – профессиональная утилита, кото
 ```bash
 magnet:?xt=urn:btih:8B32F3619145F18AE53293CD28AC18D66FE2D470
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-
 magnet:?xt=urn:btih:B176EA0C808B71A38ECE7C10F9C383EEEE346F6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:B176EA0C808B71A38ECE7C10F9C383EEEE346F6C
 ```bash
 magnet:?xt=urn:btih:385647F308F52D16D62671E8E2B00A87C269C5F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ Toshiko Akiyoshi And Charlie Mariano - East & West 1963 (1997) BMG [FLAC|Lossles
 magnet:?xt=urn:btih:621C4BFE620095CE8ECD5F1330C0C220E431290A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:621C4BFE620095CE8ECD5F1330C0C220E431290A
 magnet:?xt=urn:btih:FAC181D6C2799E1EEE963940B938267A02B47933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:FAC181D6C2799E1EEE963940B938267A02B47933
 ```bash
 magnet:?xt=urn:btih:726E311D2ACF88AA3CFD536587336BA127BB62F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ Folder Tidy 2.8.5 [En]
 magnet:?xt=urn:btih:EEA961237AFD19645753B09C4F0AEABD2A983F38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ EverWeb 3 v3.1 [En]
 ```bash
 magnet:?xt=urn:btih:9A08C0A9B7AFEDF40E62D7BA726648D0A0F2DF19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ Erroll Garner - 1946-1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 magnet:?xt=urn:btih:45829B6E55B4516E536EC941CD1104A4723261FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ AIDA64 - утилита является мощным средством для 
 magnet:?xt=urn:btih:7C4A346EAAED9950DF62012C8448768CF230F649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ Tor Browser Bundle 12.0.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A819054F752A0196F47A90CBEC821AA556FD1973
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:A819054F752A0196F47A90CBEC821AA556FD1973
 magnet:?xt=urn:btih:9037986BA997F28F0C24DA862BE8D2E048DC8813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ Steve Lacy - Duets: Associates 1982 - 1993 (1996) Felmay [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:9AB866FED459B423B63F92FCF2C9DB488B107550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ Chainsaw Man | Человек-бензопила [2022, TV, 10 из 12] WEBRip 1
 ```bash
 magnet:?xt=urn:btih:EBD200F6EFCEC5BC9EA0D41C5222AB26776D9705
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ J.J. Johnson - The Total J.J. Johnson 1966 (1997) BMG [FLAC|Lossless|tracks + .c
 magnet:?xt=urn:btih:D64B65BA42B2CC45992B00260915243637C76D4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ Mold3D Academy, Dylan Ekren | Creating Appealing Characters in 3D (2019) PCRec [
 ```bash
 magnet:?xt=urn:btih:34FD6836E74F8489FE5B1164A8457F807777F6A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ magnet:?xt=urn:btih:34FD6836E74F8489FE5B1164A8457F807777F6A0
 magnet:?xt=urn:btih:67D6C81ED62ED59BF8F87688CAAAED11F6CCA5C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ Victoria 5.35 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:18E54E6B100D31EBBA7E63A92D14EEABB75D6479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +705,8 @@ Edenbridge - Aphelion (2003) [FLAC|Lossless|image + .cue] <Symphonic Power Metal
 ```bash
 magnet:?xt=urn:btih:32D24EA03C190F42C1EC62FFC8B52A49C6BCBCEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

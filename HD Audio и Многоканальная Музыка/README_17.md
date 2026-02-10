@@ -22,6 +22,8 @@ Byzantine - Harbingers (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Groove Metal,
 magnet:?xt=urn:btih:AACE12DB13622931B6B0949AB41A5F73B49DF5D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ The Hu - Echos of Thunder (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:FD5A0821B90959EFDC232C0104E3AFF803D00356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Katatonia — шведская группа, основанная в 1991 год
 magnet:?xt=urn:btih:E9012591C944A59D0CE949CB8FFD63505E05606A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Jethro Tull - Live from Baloise Session Basel (Switzerland 15.11.2008) (2025) Li
 ```bash
 magnet:?xt=urn:btih:931A31D6D0882E4EB028D82D22E965D6F669784F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Oasis - Time Flies… (1994 - 2009) (2010) Remastered, 2025, Big Brother Recordi
 magnet:?xt=urn:btih:798DBFC6222AF8BC193EC504AF5962434DBE9CF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Charlie McCoy - Two Albums (1973, 1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] 
 ```bash
 magnet:?xt=urn:btih:5229224C856971504507DB44B3B63871D46C71DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ The Funeral Portrait - Greetings From Suffocate City (From Beyond The Abyss: Del
 magnet:?xt=urn:btih:8DD186B90C38262D9E9288FED5988E4CDD8483BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Saxon - Eagles Over Hellfest (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Me
 ```bash
 magnet:?xt=urn:btih:2D704BB31725FAD4652A32938CC7B80DD9F4DF8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ Crematory - Transmigration (1993) Reissue, Remastered, 2025, Roar [FLAC 24/44.1|
 magnet:?xt=urn:btih:3C8F257C9877839346E3B6F206CC401943FC2773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ Metallica - Load (1996) Remastered, 2025, UMC (Universal Music Catalogue) [FLAC 
 magnet:?xt=urn:btih:C8F2F5551C1A03370C9934B009A61AB09AEB8037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +305,8 @@ Till Lindemann - Und die Engel singen (2025) Single [FLAC 24/44.1|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:A6D1C82F769C2E3D610986D73083086DEF8F8DF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +335,8 @@ Cynthia Erivo - I Forgive You (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:71D848FFC35C106D020F147B9AA46B076DBA17F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +363,8 @@ Lil Wayne - Tha Carter VI (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rap, Hip
 ```bash
 magnet:?xt=urn:btih:8EE49CCBCE44980D9565B003E24BA5F4AB119C22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +393,8 @@ B1 Winter Solstice(   Читать дальше...   )Жанр: Black Metal, Ele
 magnet:?xt=urn:btih:DA43A92C43CA1A82120FB316C36DD3497DAD6A60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +422,8 @@ King 810 - Rustbelt Numetal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Met
 magnet:?xt=urn:btih:F3E4E25E7CB8F362153742FCE27DDFE8F9D40428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +449,8 @@ Sanctorium - метал-группа из России, г. Санкт-Пете�
 ```bash
 magnet:?xt=urn:btih:EC9357AEA626BFB48D29C842601BE4D596717BA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +479,8 @@ Seth MacFarlane - Lush Life: The Lost Sinatra Arrangements (2025) [FLAC 24/96|Lo
 magnet:?xt=urn:btih:1CB91A4BB31DDD6626E62240431CA3EE535E30F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +507,8 @@ J.T. & The Plastic Garden Band - The 25th Hour (2025) [FLAC 24/48|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:7022234AA0C213AC889D292A24949934D0244BE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +537,8 @@ Hotel Draw - Spirit Come Spirit Go (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 magnet:?xt=urn:btih:C0C6BC9F96AED5D36093C6E22EC485BFEA3DC071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +565,8 @@ LeSabre - LeAlbum (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:A28FDADEEE9E9968EB2CCAF69D7FDB67DD44208E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +595,8 @@ Lemon Generation - Music for Cowboys (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:5067DBEC98CF1361CDD9834D8C067B45082276DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +623,8 @@ Chris Ramey - Children's Songs for Adults Only (2025) [FLAC 24/88.2|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:B2860A1796D7364335D4AC19AE04A3280CD1781A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +653,8 @@ Gina Sicilia - Bring It On Home: A Tribute To Sam Cooke (2025) [FLAC 24/96|Lossl
 magnet:?xt=urn:btih:457502B29F9A10031881310C0FE68B679ECDDC18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +681,8 @@ Freedom Junction - Freedom Junction (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:1423C0112844F3B827AE0CD7CA1AC08BB639CA25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -663,6 +711,8 @@ Hotpot of Genres - Impress to Express (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:3D0D199316E512574CF3554B2FF817F064A6CFFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -689,6 +739,8 @@ Cat Tales - Fables and Stories (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jaz
 ```bash
 magnet:?xt=urn:btih:2D5A577CC62BD9E892CDE5F4FAE6B8C770E174FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - The Great American Songbook: 66 American Standards (2018) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:13B203B4404D916711AD0B5670D725A4FE8DE1A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Popular Melodies of Russia (2011) [MP3|192 Kbps] <Other, Instrumental, Soun
 ```bash
 magnet:?xt=urn:btih:B0749E2BBA0EFD6D345BF9A288B5FEF313ED3339
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Chris Piorkowski - Piano: Romantic Collection (2011) [MP3|320 Kbps] <Instrumenta
 magnet:?xt=urn:btih:6B2F51464A9BA26DF6962F23EA1B98931257A551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Roberto Danova - Panpipe moods (2001) [FLAC|Lossless|image + .cue] <Pop, Instrum
 ```bash
 magnet:?xt=urn:btih:97F29D0A3368ED00E4971A0A0E9CC8A999399DD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Caravelli - Caravelli in Moscow (1982) 1999, Reissue, Boheme Music [MP3|320 Kbps
 magnet:?xt=urn:btih:F0A54D4DC0B28E118F440F5056390EE37A9BB8E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Sarah Schachner - Call of Duty: Infinite Warfare (Original Soundtrack) (2016) [F
 ```bash
 magnet:?xt=urn:btih:45E2F1E3B9808ADDE778D2DB3912BBCD2B2C53EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ James Newton Howard - Fantastic Beasts and Where to Find Them / Фантасти
 magnet:?xt=urn:btih:FEC783B8217B130F3EC14A8A9C8429B36FEB1B3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Astral Dreams. Insomnia Help Sleeping Music (2017) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:51A70FEE2344AE818D5A0A24572DB8B58C2BDB62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Kike Fernandez - 100 Tangos Inolvidables (2010) [MP3|192 кб/с]<Tango>
 magnet:?xt=urn:btih:409BC030AC25D6C836116275267E7CA604D09B47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Armik - Cafe Romantico (2004) [MP3|320 Kbps] <Flamenco>
 ```bash
 magnet:?xt=urn:btih:90D9665BB4195D2A8FB80C52D0DF1C71B8CA920E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Music of the Shamans (Музыка шаманов)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ Howard Drossin & RZA - Человек с железными кулаками (20
 ```bash
 magnet:?xt=urn:btih:630D6AEC9C03854774F04D90A42AB668CAACFBC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +377,8 @@ Kasam Paida Karne Wale Ki (1985)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +406,8 @@ David Lanz - Norwegian Rain (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano
 magnet:?xt=urn:btih:DABB69AD400C84B3A3CC987BDB1C128C341DAD25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +431,8 @@ Hans Zimmer - Eclipse (OST from Dune) [Trailer Version] (2020) [FLAC 2.0|44/24|t
 ```bash
 magnet:?xt=urn:btih:DACD0C952F9C66B6FB0A4E3676215C5755CACF2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +461,8 @@ Gregorian Prayers - 50 Must-Have Mystic Gregorian Pop Remixes (2012) [MP3|320 Kb
 magnet:?xt=urn:btih:11CA38E148FE29903538BD113965F226A0EA5C84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +490,8 @@ Carpenter Brut - Blood Machines / Кровь машин (Original Motion Picture
 magnet:?xt=urn:btih:2CBDA0513D4AC097AB948B8BFEA3FA0A597CF52D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +515,8 @@ Hans Zimmer - Themyscira (OST from Wonder Woman 1984) (2020) [FLAC 2.0|44/24|tra
 ```bash
 magnet:?xt=urn:btih:53DB8C43649B8E8FC708AEB152763C3EAD698447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +542,8 @@ Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [M
 magnet:?xt=urn:btih:B5123F6ECB4719995E254054370ED545E73EFEEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +567,8 @@ Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [F
 ```bash
 magnet:?xt=urn:btih:9803936CE5F4EEA93D687D3D62D42BE9CED5D3E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +597,8 @@ Paul Haslinger - Halt and Catch Fire (2016) [MP3|320 Kbps] <Soundtrack, Score>
 magnet:?xt=urn:btih:756AF940DCCA31F94F3D32904F8AF583AA034F3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +625,8 @@ David Arkenstone - David Arkenstone: The Collection (2020) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:B348A4716B759D2B31E16ABC0279AD9826E2FABE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +661,8 @@ magnet:?xt=urn:btih:B348A4716B759D2B31E16ABC0279AD9826E2FABE
 magnet:?xt=urn:btih:0588CF84957C407C70AD20538C87181672A2571E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +690,8 @@ Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Selectio
 magnet:?xt=urn:btih:9CBE165FBA5E37CC229DDD753489E87F63E3F222
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ Constance Demby - Ambrosial Waves – Healing Waters (2011) [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:23C8F772DF2B43634CD07823DED3B3B88EE88448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -694,6 +744,8 @@ Constance Demby - Set Free (The Definitive Edition) (2006) [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:0AF95A4C93DE08DC0EAC38EB49EF2418C64B73C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ PhLearn | Photoshop Basics: The Complete Collection (2017) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:266421C5930B447A28709580A8F5F1731E3BE397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Polygon Runway, Roman Klco | 3D персонажи и иллюстрации в 
 magnet:?xt=urn:btih:57F9E0813564F61C451E155407DED8B6CC854461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Cloudlessons, Инна Гревцева | Основы коммерческой 
 ```bash
 magnet:?xt=urn:btih:C3CA53BA12CF30E35A9F5D5D4CFF4B05EBA20A80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Pixel, Таня Климань | Персонажи в Adobe Illustrator (2020) 
 magnet:?xt=urn:btih:3332BBC88531EDA5EC5A09D3B37F87F7B0D4692C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:3332BBC88531EDA5EC5A09D3B37F87F7B0D4692C
 magnet:?xt=urn:btih:DD15C595A8BAD6DB2A6B3AED32A25B801D7FE469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Master Draw, Денис Крупчатников | Конструктивный 
 magnet:?xt=urn:btih:45C879404A3F0577598831B7F376D1E164DB0675
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ Master Draw, Денис Крупчатников | Курс скетчинга �
 ```bash
 magnet:?xt=urn:btih:34DAC1F37DDC170094905087A14C26A3A1615FF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:34DAC1F37DDC170094905087A14C26A3A1615FF9
 magnet:?xt=urn:btih:C2DA5FC5A99DB8C0D3FAD0D99D65B1621EDFD6A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:C2DA5FC5A99DB8C0D3FAD0D99D65B1621EDFD6A0
 magnet:?xt=urn:btih:50853CAA4A731B6E9600C0EA6A9237D2D979614D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Stan Prokopenko | How To Draw Gesture (En) (2013) WEB-DL [En]
 magnet:?xt=urn:btih:5C270CC790510476C63FA6BB00D1281EDFE40614
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Particular Software, Udi Dahan | Advanced Distributed Systems Design (2021) PCRe
 ```bash
 magnet:?xt=urn:btih:B30B8B9F8318093335B3524F4861E96D2F11191F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ Greyscalegorilla, Nik V | Topology Crash Course (2020) PCRec [EN]
 magnet:?xt=urn:btih:E4A432147E540009510D1B8E5049A191531712E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:E4A432147E540009510D1B8E5049A191531712E0
 ```bash
 magnet:?xt=urn:btih:BFEA05C7E3AEFEA5D18064537B6097D8DA46EEC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:BFEA05C7E3AEFEA5D18064537B6097D8DA46EEC3
 magnet:?xt=urn:btih:A085F2A70286940010071C28572765BCC106BB2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:A085F2A70286940010071C28572765BCC106BB2C
 ```bash
 magnet:?xt=urn:btih:062FB37682351A124D25B14AAE552DEA130A4A27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:062FB37682351A124D25B14AAE552DEA130A4A27
 magnet:?xt=urn:btih:0E7034A6600C4BE267DEED347828976074ED1F9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:0E7034A6600C4BE267DEED347828976074ED1F9C
 ```bash
 magnet:?xt=urn:btih:324EEC6905D128AD5A106B84CAF0E7F51E805A7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:324EEC6905D128AD5A106B84CAF0E7F51E805A7B
 magnet:?xt=urn:btih:E240960BA7A597C15980CEAE6BDB7100D30B596C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ Udemy | PHP 5.5 Zend Certification - PHP Security (2016) PCRec [H.264/720p-LQ] [
 ```bash
 magnet:?xt=urn:btih:1B4882E7E829EA914417E591E8345E3D2A788E3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ Udemy | PHP 5.5 Zend Certification (OOP) (2016) PCRec [H.264/720p-LQ] [EN]
 magnet:?xt=urn:btih:431635F008547934DBBF30D4C72B9AE474C038C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ Profileschool | Жанровая съемка в путешествии (2015) P
 ```bash
 magnet:?xt=urn:btih:D8B1D57992EEDA3B6931FEBE91126FBD3B7497F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ XYZ School, Константин Файзуллин | Нарративный д�
 magnet:?xt=urn:btih:E68775C3B4E6FB97837F7735769C6B0A416643D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ Stepik, Никита Шультайс | Пакет SQL курсов (2021) WEB-D
 ```bash
 magnet:?xt=urn:btih:C4D47E947C274CEE5DC18C6E0159E1BA96DB7F2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:C4D47E947C274CEE5DC18C6E0159E1BA96DB7F2B
 magnet:?xt=urn:btih:FA330C62A51B035A5674ED86C4F842F9D751F000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ React - одна из самых интересных и популярных б
 ```bash
 magnet:?xt=urn:btih:D99566A634E90C59820B008E0D1E1E4E4CFF92B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +701,8 @@ Adobe Bridge — это универсальный просмотровщик и
 ```bash
 magnet:?xt=urn:btih:F0803B414FDD3D1573747FF679D0D6AE6A9416AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

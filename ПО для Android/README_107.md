@@ -19,6 +19,8 @@ Cross Stitch Paradise v1.3.7 [Ru/En]
 magnet:?xt=urn:btih:7508DE01674295654778C6536B518F39C42577A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:7508DE01674295654778C6536B518F39C42577A5
 ```bash
 magnet:?xt=urn:btih:2AE633B1864BE81E57CA4928CEDAA4A5F8D7D766
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:2AE633B1864BE81E57CA4928CEDAA4A5F8D7D766
 magnet:?xt=urn:btih:AD462B81882F6F94D612F8F40A9CE6E34BA06695
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ OttPlayer v2.0.9 [Ru/Multi] - бесплатный плеер для просм�
 ```bash
 magnet:?xt=urn:btih:171E8030381AB73EDC922E5A00674A5E53897061
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:171E8030381AB73EDC922E5A00674A5E53897061
 magnet:?xt=urn:btih:448ED891FDA7808B8EBCE1D1F58A117D8AACCF42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BrainBurn Тренировка Памяти v0.8 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BCA197CB0D3391127F2D8742F13E2294A5C94C25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ TrackChecker Mobile - это приложение, которое поможет
 magnet:?xt=urn:btih:4515C4D69C297A321B33BD9D674254D20E4CACC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Money Pro - это единая программа для ведения бюд�
 ```bash
 magnet:?xt=urn:btih:43179A173FA56BBDCB7BBA82B103CF7BB84B30BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Malwarebytes защищает от самых сложных вредоносн�
 magnet:?xt=urn:btih:71DEB6B820916B751BE0604A5D97EDAF5B946C98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Geeky Hacks Pro : Anti Hacking Protection v1.0.2 [En]
 ```bash
 magnet:?xt=urn:btih:8AFC4F09FFD732EC1C63D7305C90EA581C387E8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Network Signal Info Pro 5.55.14 (Paid) [Ru]
 magnet:?xt=urn:btih:FE9202ED03C5C1024D5B88B1FAF0146EFA6AA8F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Weather Live Wallpapers v1.74 [Ru]
 ```bash
 magnet:?xt=urn:btih:B0F5E9029C1B8A05EB1D9ABF9656CDE5A8ACEFD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:B0F5E9029C1B8A05EB1D9ABF9656CDE5A8ACEFD6
 magnet:?xt=urn:btih:2B6427B736FE5F11EBD58200A477D37040A05A9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:2B6427B736FE5F11EBD58200A477D37040A05A9B
 ```bash
 magnet:?xt=urn:btih:B17AD12D8039104BB12D4D7A3B4FC8E9A189E9AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Headway: Краткие содержания из книг v1.6.2.0 [En]
 magnet:?xt=urn:btih:4C6CF08914EA49DD86973419EF4BB820127E55B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Smart File Manager (File Explorer) - это самое простое, мощн�
 ```bash
 magnet:?xt=urn:btih:BDD3C8387592A6B9DF76C1A8CE8C153018A70E0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ SD Card Test Pro v1.9.2 [Ru/En]
 magnet:?xt=urn:btih:9AE27A93021F6809453B49C085DE44C8A83CFF7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Ultimate Guitar Tuner v2.14.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2EECEC9553C3FAA06407D6F3D6C0FADA7236ACCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ EZ Folder Player - альтернативный музыкальный плее�
 magnet:?xt=urn:btih:5D25F766EF386B23334910BC78E05A8BBE6581F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:5D25F766EF386B23334910BC78E05A8BBE6581F6
 ```bash
 magnet:?xt=urn:btih:237A4E9FD2FD723522162A9B35C76FF6B871ECB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:237A4E9FD2FD723522162A9B35C76FF6B871ECB1
 magnet:?xt=urn:btih:0D046A1A58F1A8205661802F1EFB803E9A51112E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:0D046A1A58F1A8205661802F1EFB803E9A51112E
 ```bash
 magnet:?xt=urn:btih:941411EB671966DED93ADBA4FEB6BA8B0363C6D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:941411EB671966DED93ADBA4FEB6BA8B0363C6D7
 magnet:?xt=urn:btih:0B4C4F19B0B08D9C937340D612CF2817004215CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:0B4C4F19B0B08D9C937340D612CF2817004215CB
 ```bash
 magnet:?xt=urn:btih:6E074B09C1B7AD507FED0059D4C3D3EDE8ED8E83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ FunEasyLearn это лёгкий и весёлый новый способ вы�
 magnet:?xt=urn:btih:592CD55DE5AF23764F7DE14965D1CB099EE55361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Metro 24 Pro v3.2.3 [Ru/Multi] - удобный навигатор по метр
 ```bash
 magnet:?xt=urn:btih:E26D186C58F67BBD6583FD8732A1603B123BD1C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

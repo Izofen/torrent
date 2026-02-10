@@ -19,6 +19,8 @@ Office Tool Plus - функциональная программа для раб
 magnet:?xt=urn:btih:6093E03DCA98BD3AEFE7DB914230970E45A1E386
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Altus поддерживает темы, несколько учётных за�
 magnet:?xt=urn:btih:454AFBD12D17243D5C4C35874B2D5C1B3606BD0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ v2rayN — это универсальный инструмент VPN и про�
 ```bash
 magnet:?xt=urn:btih:DD506E78FF2957DEC3C2E2D3807802457E28E95B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ ru-ru_windows_11_enterprise_ltsc_2024_x64_dvd_f9af5773
 magnet:?xt=urn:btih:80E30BB8F5B06C241D4762E1E042FA4AF4A1C8F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ EOBD Facile - автосканер обд2 последнего поколени
 ```bash
 magnet:?xt=urn:btih:6BECF03AC53BA77C26F17C31FD5C94AF209BBEBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:6BECF03AC53BA77C26F17C31FD5C94AF209BBEBF
 magnet:?xt=urn:btih:6B33324B6902C48643595A8A08E6FBA6496F096A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Allavsoft Video Downloader Converter - это мощный видео загру
 ```bash
 magnet:?xt=urn:btih:12B7845875B4DE0E224291AD889025FC064D9726
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:12B7845875B4DE0E224291AD889025FC064D9726
 magnet:?xt=urn:btih:9FC7AB43D677BE8EC47379E12907173341E12C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Atlantis Word Processor 4.4.4.1 Repack (& Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:2EB6B8CD0F6C107D66D6BEA15EDC03971E6D5C10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ XRecode 3 - популярный и мощный аудиоконвертер, �
 magnet:?xt=urn:btih:9A728EF991959B7B584B6D51F3FCC4EC0672C0D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:1F184AA82286E38D094C069621E149456AEEE7F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:1F184AA82286E38D094C069621E149456AEEE7F9
 magnet:?xt=urn:btih:15FA62AC1CA7EBE3A80DC68F1C8D3F7B6CDB9CE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.0.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DC73F73BA7B1405DAE1E21449B8F15CAEBB9F1DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:DC73F73BA7B1405DAE1E21449B8F15CAEBB9F1DC
 magnet:?xt=urn:btih:76857372E327DF70F772AEF60544366CAAFFA126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ eM Client - мощный клиент электронной почты. Пом�
 ```bash
 magnet:?xt=urn:btih:E27048F10153ED3863515ACB6651D2BE5D5D3AFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ WPS Office - очень полезное, офисное приложение д
 magnet:?xt=urn:btih:E80ABE6770977966F52E033A50BB6F74D2B34A84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ EasyUEFI - удобная утилита для редактирования з�
 ```bash
 magnet:?xt=urn:btih:D5363E1620880F507FE492E2C92C423D5C8376EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:D5363E1620880F507FE492E2C92C423D5C8376EF
 magnet:?xt=urn:btih:0526A07C1476A7D01BA18D9125058F0D21C89CC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:A8514ADE20B826EC5B7A9D3881AC7B087AC7D381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ FL Studio Producer Edition - это одна из лучших программ 
 magnet:?xt=urn:btih:88CC3A85F027BEC361D74670888384317E4E376E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Activation Program 1.01 b01 Portable by Ratiborus [En]
 magnet:?xt=urn:btih:11FD997EC51AA30E18C6BC06315F53C1893B7D7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:11FD997EC51AA30E18C6BC06315F53C1893B7D7A
 ```bash
 magnet:?xt=urn:btih:B095B4CB29808A350EECE2422A3E33229BE8F0D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:80545A741E8B73FBE14A2B8D4145AA67D77F1286
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ XnView MP - мощное многофункциональное приложен
 ```bash
 magnet:?xt=urn:btih:7CF413C5152C44537F22508F8D9D22DD03354807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:D04E3E8F7870390A8E64D5B985DBA210A54B0CD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:D04E3E8F7870390A8E64D5B985DBA210A54B0CD3
 ```bash
 magnet:?xt=urn:btih:FAEB1D4816DD1CA13544943081CF5C3357A26BAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

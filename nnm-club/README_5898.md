@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BAA14631AD9529123271CEF0C64DA5E5F2D59B1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:BAA14631AD9529123271CEF0C64DA5E5F2D59B1F
 ```bash
 magnet:?xt=urn:btih:A537DBCB86108DE597FE0A1FAAC47DC6216D85CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:A537DBCB86108DE597FE0A1FAAC47DC6216D85CC
 magnet:?xt=urn:btih:758501993CCFA5209F79E8B224058FD05C690841
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:758501993CCFA5209F79E8B224058FD05C690841
 ```bash
 magnet:?xt=urn:btih:A1095EB83167BD32FA4CCF9FD243989C1C3A486F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ CD01 - Nick Brignola "Baritone Madness 1977":
 magnet:?xt=urn:btih:C3A7D6C7FAD60A2F88959D8FAF664801F0AE7EA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:C3A7D6C7FAD60A2F88959D8FAF664801F0AE7EA4
 ```bash
 magnet:?xt=urn:btih:B61463D774A00A9547C55BCC48AA6117318055FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:B61463D774A00A9547C55BCC48AA6117318055FE
 magnet:?xt=urn:btih:E45AF4F9C2DFBFDA488A1D2A9F70BEC209B94038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:E45AF4F9C2DFBFDA488A1D2A9F70BEC209B94038
 ```bash
 magnet:?xt=urn:btih:8F94BF5D238351F446B27E14D598941EED5D4150
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ Malamorte - God Needs Evil (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Heavy Met
 magnet:?xt=urn:btih:26C3BDA3A98F57AE08651BF63B70A4B65D4B1542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:26C3BDA3A98F57AE08651BF63B70A4B65D4B1542
 magnet:?xt=urn:btih:12368C24CF25620D001991DAB5218BD2DB630967
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:12368C24CF25620D001991DAB5218BD2DB630967
 magnet:?xt=urn:btih:E7D3B59D26816C6BBAE9AC3C46D843CD9E77C963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:E7D3B59D26816C6BBAE9AC3C46D843CD9E77C963
 ```bash
 magnet:?xt=urn:btih:4F81C042D4D8CDFB88557BD76DB3FD73EA604699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ Danny Wilde - The Boyfriend (1986) Reissue, 2022, Bad Reputation [FLAC|Lossless|
 magnet:?xt=urn:btih:96B6AA824BD442E0B2985363639E879E4880CB55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:96B6AA824BD442E0B2985363639E879E4880CB55
 magnet:?xt=urn:btih:7B075136A9990B1666B147457E5B7FAD1C7D8FB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:7B075136A9990B1666B147457E5B7FAD1C7D8FB3
 ```bash
 magnet:?xt=urn:btih:F1D732EA942A7FAB33B00DB11CB69961F69B2EB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ Assignment - Reflections (2020) [FLAC|Lossless|image + .cue] <Progressive Power 
 magnet:?xt=urn:btih:CD34FA5AFC628662E2B894AF822C2436A4A0D84F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:CD34FA5AFC628662E2B894AF822C2436A4A0D84F
 magnet:?xt=urn:btih:FD3D0BD1B20DA54222B04F81694C97EDD7FAE9E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:FD3D0BD1B20DA54222B04F81694C97EDD7FAE9E3
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ Ali Thomson - The Last Rodeo (2022) Japanese Edition [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:56306EC52E87FE9D302BB326691DAC02C428149A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ Elettronica In - популярный итальянский журнал по �
 ```bash
 magnet:?xt=urn:btih:9D1C455A4AA21FFD1FB9E11DE013EDD6D4FA7E58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:9D1C455A4AA21FFD1FB9E11DE013EDD6D4FA7E58
 magnet:?xt=urn:btih:C71BEF80EB96277E7854FC12D261D9DE54B4F564
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:C71BEF80EB96277E7854FC12D261D9DE54B4F564
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ In Sanity - For We Triumph (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death M
 magnet:?xt=urn:btih:1B47F85E84FC8FD4EF12A420B7D1870FE0ADC2B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ ZED – это история стареющего художника, поте�
 ```bash
 magnet:?xt=urn:btih:B2C56D0B623DD3C9EB69927ADD47762A8C7AA78B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:B2C56D0B623DD3C9EB69927ADD47762A8C7AA78B
 magnet:?xt=urn:btih:53633C0385D8F66FFFDBAA1FF1BAFE4CFBE416E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:53633C0385D8F66FFFDBAA1FF1BAFE4CFBE416E9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

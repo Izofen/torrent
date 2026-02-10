@@ -1,27 +1,3 @@
-###  Публикация: 1255226   (644333) от 30.03.2019
-
-LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/upd5/dlc) License CODEX [Deluxe Edition]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644333.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хорошо быть плохим… Погрузитесь в новые приключения LEGO, став лучшим злодеем во вселенной DC. Игроки смогут создавать новых суперзлодеев и управлять ими. Они проделывают злобные выходки и сеют хаос. Лига Справедливости исчезла, оставив Землю своим коллегам из Синдиката Справедливости.Тип издания: LicenseРазработчик: TT GamesЖанр: Action, Adventure, Indie, 3DЯзык озвучки: Английский, Немецкий и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00E02405ED83C385E9BF1C02F6D6E78512C219A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227675   (644380) от 27.05.2018
 
 The Office Quest (2018) [Ru/Multi] (1.0) Repack Other s
@@ -42,6 +18,8 @@ The Office Quest — это интересное приключение с ме�
 ```bash
 magnet:?xt=urn:btih:00132536DF925BD4548713021A980A0DE6DB9AD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ In Cold Blood / Не зная страха (2000) [En/Ge] (1.0) License GOG
 magnet:?xt=urn:btih:D9D4A9AC7DFA31090F5D7460B40B4CCC5A1AE264
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ We. The Revolution – это уникальная игра с необычно�
 ```bash
 magnet:?xt=urn:btih:9E80D29C24BBE712E1B70EC41BD4BE8C7603FFCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Copoka это игра про птицу, свободно летающую в �
 magnet:?xt=urn:btih:50CDE5D58A4CE3163F7231D8E524CA238B0157A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack Other s [E
 ```bash
 magnet:?xt=urn:btih:72CE5C31E369B3E3AAD96530DEBE79FBD86C9D6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Randal's Monday (2014) [Ru/Multi] (1.0.3) License CPY
 magnet:?xt=urn:btih:C610F6857A504544C293C0FF6F5D4C1591851D27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Adam's Venture Chronicles (2012) [En/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0AF215A884E53CE392104E3F203D34212825E8D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Adam's Venture Chronicles (2012) [En/Multi] (1.0) License PROPHET
 magnet:?xt=urn:btih:AC739FDFBAA6323C90570DBEBEA9CE00EA415FA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1/upd1) License CODE
 ```bash
 magnet:?xt=urn:btih:4ADEAC57F778DDBD09BD293372873FA1B1698F43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack xatab [Epi
 magnet:?xt=urn:btih:1DFCE356066A6BEDE19CC0C8CB2B513DE3657CBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Desire (2016) [Ru/Multi] (1.0.3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7E5421DD62FFDBC548E6C11924EAD735F1916246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ FAR: Lone Sails – это приключенческая игра про пут
 magnet:?xt=urn:btih:4D1B959B5FBF7CAD04B1E9ABC2B2974BA2B1B01D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ The Room Two - продолжение замечательной игры The Ro
 ```bash
 magnet:?xt=urn:btih:2A11BC4DD1554B4BCCBAC8E596977FE1A3EE316E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ eXoDOS Collection v3.11 - Volume 1 Adventure (2018) [En] (3.11)
 magnet:?xt=urn:btih:6D2FA6349C36C81911C67071014AC9083258B99D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ The Cat Lady (2012) [Ru/Multi] (1.7) License GOG
 ```bash
 magnet:?xt=urn:btih:7A6DE1389F030C1C7A73810EFF31DC44736187B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +410,8 @@ The Perils of Man (2015) [Ru/Multi] (1.0)  License PROPHET
 magnet:?xt=urn:btih:361B4E826E5147103A25104E0B21C7D5D8073E9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +435,8 @@ AntVentor (2018) [Ru/Multi] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:A52789669DE0E5D47E11D92ECCC41FE5849DA457
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +462,8 @@ Asemblance: Oversight - это игра-исследование с элемен
 magnet:?xt=urn:btih:956833F9A596551463B5AC77ED72B2D942FCF57C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +487,8 @@ RiME (2017) [Ru/Multi] (1.01) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:4FAEFC829CA39782D717674B4D906B09F7032E28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +514,8 @@ Secret Doctrine (2017) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:56481E06840157619BEC706E433F272F0DABBB25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +539,8 @@ RiME (2017) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:07BE907C263B50489E0279F9542A5040A2BFB7A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +566,8 @@ Batman - The Telltale Series (2016) [Ru/En] (1.0.0.1) Repack xatab [Episode 1-5]
 magnet:?xt=urn:btih:4FCB7E61451310523F9B8040D49AF0232B630066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +591,8 @@ RiME (2017) [Ru/Multi] (1.0) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:FCAC10C991580DB5F772146C448FAA06DF4761FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +618,8 @@ Dark Fall 3: Lost Souls (2009) [En] (1.1) License GOG
 magnet:?xt=urn:btih:82733001A242169802837F48DBB4F1A37409D8E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +643,34 @@ Dreamfall Chapters: The Longest Journey - продолжение приключ�
 ```bash
 magnet:?xt=urn:btih:7FAA65EC680096A9CF774260919C1F08F7C2C2D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150153   (663565) от 12.05.2018
+
+Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0upd1) License GOG [Episodes 1-5]
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_663565.jpg" />
+</div>
+
+
+###  Подробнее
+
+После того, как Джесси и его команде удалось одолеть Иссушающую бурю, спасти мир и обрести всеобщее признание, их жизнь сделалась чуточку... сложнее. Обязанностей стало больше, а на старые добрые приключения времени почти не осталось, так что их дружба начала угасать. Но не тут-то было: в один прекрасный день рука Джесси застревает в жуткой перчатке, некогда принадлежавшей (   Читать дальше...   )Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8522C04668CFA9051E24A7DD4A16D95384416846
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

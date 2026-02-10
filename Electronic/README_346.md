@@ -21,6 +21,8 @@ Nick Warren & Guy Mantzur - Sad Robot (Remixes) (2016) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:0A62F6D2892F7B105E4FE71CDF653E6089087CDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ VA - Lounge Radio Deluxe, Vol. 1 (2016) [MP3|320 кб/с] <Downtempo, Lounge, Ch
 ```bash
 magnet:?xt=urn:btih:2E87249DCF4A4617C92D7E22BAB9A14EEC43AD67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ VA - Just Motivated Vol.1 (Pure Sport & Fitness Music) (2017) [MP3|320 Kbps] <Ho
 magnet:?xt=urn:btih:1808F2F05DE60120D7B5AFFF26D65E306377E953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ VA - Ibiza Lounge Funk House Music 2017, Vol. 01 [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:1659F9D78C4D703AC7051E4CE7A02F8050A4B588
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ Aly & Fila - Future Sound Of Egypt 496 (2017) [MP3|320 Kbps] <Trance,Uplifting T
 magnet:?xt=urn:btih:3232BEE19F19B7C621A0A77A5CCE061EFDD5AE59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ VA - Big Room EDM Anthems 2k17 (2017) [MP3|320 Kbps] <Electro House>
 ```bash
 magnet:?xt=urn:btih:4E1DD7451C187CC925E6302D951133A86DB2F9B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +195,8 @@ VA - Ibiza-Unique Presents Fairy Tails Vol.2 (Mixed by Nightmosphere) (2017) [MP
 magnet:?xt=urn:btih:0664DD4F1A071C7F10C56CE30A779CB3A4DA0E0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +223,8 @@ VA - Exotic Liquors Lounge Edition (2017) [MP3|320 Kbps] <Downtempo, Chillout, L
 ```bash
 magnet:?xt=urn:btih:0A090639BBEB9C2D32DBAA521B8EFE1E74E78E2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ VA - Lunch Break Vol.1 (Chilling Dining Music) (2017) [MP3|320 Kbps] <Downtempo,
 magnet:?xt=urn:btih:DAF91108BD373496C6A56A98939334ADCB3A737B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ VA - Total Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:46E18C01B1B708F81C2069DDBEBC4D212B3D4D95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ VA - The Real Silent Mode (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:926999ED2C4DCD488E526DD91C97F349C30238BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +339,8 @@ VA - Dirty Club Grooves 2018 [MP3|320 Kbps] <Electro House>
 ```bash
 magnet:?xt=urn:btih:F2720212E3DCDDF76C640CAF1487637FAA635532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +369,8 @@ VA - Spring Tube Journey. UK (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive H
 magnet:?xt=urn:btih:401F98F410FE8F4971A2EB4811FBE12798CA01C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ Aes Dana feat. MikTek - Alkaline (2015) [FLAC|Lossless|WEB-DL|24Bit]<Psybient, D
 ```bash
 magnet:?xt=urn:btih:C501D28B1A2A7DE6FB85A22E39ED24811929F139
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +427,8 @@ VA - Hipster Lounge (Deluxe Lounge and Del Mar Music Only) (2015) [MP3|320 кб/
 magnet:?xt=urn:btih:021DD2B33BE067D6433C49573720F1F30F212473
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +455,8 @@ Fourth Dimension - Harmonia (2015) [FLAC|Lossless|WEB-DL]<Psybient, Downtempo, A
 ```bash
 magnet:?xt=urn:btih:72D8878027DA65117B3E306487ED9CBDCDCF2D5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +491,8 @@ VA - Club Session Pres. Ibiza Beach Clubbing 2012 (2012) [MP3|320 кб/с]<House
 magnet:?xt=urn:btih:FF44F666753EAE3A201E72D1DBC2EC687F271E08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +516,8 @@ Ghosting Season - The Very Last Of The Saints (2012) [MP3|320 кб/с]<Deep Hous
 ```bash
 magnet:?xt=urn:btih:46A8350D325D953B52E998091A37DA51FDD1F3BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +546,8 @@ Erasure - The Neon (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 magnet:?xt=urn:btih:3882F5567546F14CB01E7A86E8DCC53AD2445590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +574,8 @@ VA - Cafe del Mar 40th Anniversary (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Li
 ```bash
 magnet:?xt=urn:btih:3872CAD8044CA337CAC189F5B38BFC989910E6CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +604,8 @@ Eisfabrik - Life Below Zero (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Futu
 magnet:?xt=urn:btih:72D458C35AF8744E7783153DBCB87701C50247C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +632,8 @@ VA - Sensual Nights Elegant Chillout Music for Sexy Time at Home (2019) [MP3|320
 ```bash
 magnet:?xt=urn:btih:8348C570A7FF20717600D42D3D0A77AFDBF91B40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +662,8 @@ Roger Shah - Magic Island - Music for Balearic People, Vol. 7 (2016) [FLAC|Lossl
 magnet:?xt=urn:btih:8E42583E405AB9C9F7FBB13FFBFF8C27E906D0D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +690,8 @@ Aivö (Aivo) - Infinite Path (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, So
 ```bash
 magnet:?xt=urn:btih:C4C596A46C0167DEA2D452B59101575F9B491FB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +720,8 @@ Tinlicker - Tomorrowland Friendship Mix (2022-02-24) [MP3|320 Kbps] <Progressive
 magnet:?xt=urn:btih:6AB2C775E2C67C5771979343982CBD0635DE6D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,6 +748,8 @@ GARRISON (Игорь Савосин) - Musical Lifeforms (2020) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:24CE674B2001674E2CD5D44351F9457CC3EF1093
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

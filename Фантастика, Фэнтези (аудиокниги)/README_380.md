@@ -1,3 +1,30 @@
+###  Публикация: 1235156   (560338) от 11.07.2018
+
+Наталья Жильцова | Ведьма темного пламени (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Академия Чёрного дракона».
+Наталья Жильцова – популярный автор в жанрах героического и романтического фэнтези. Представляем аудиоверсию первой книги её нового цикла «Академия чёрного дракона». Так называется заведение, где обучается главная героиня – молодая ведьма Лиана Тиррель. Не сказать, что она входит в число успешных адептов, скорее, твёрдая (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 07:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07364BE8D82270D0ADE658AC50786FACC82961AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235159   (560440) от 11.07.2018
 
 Александра Елисеева | Озимый цвет (2018) [MP3]
@@ -20,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:03FD398F49FAF99D9ACA5A0DEE60A956A7FB5788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +75,8 @@ magnet:?xt=urn:btih:03FD398F49FAF99D9ACA5A0DEE60A956A7FB5788
 magnet:?xt=urn:btih:F9C831E6482A571476B37D183652A629D2AF3AD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:F9C831E6482A571476B37D183652A629D2AF3AD7
 ```bash
 magnet:?xt=urn:btih:9C3E60975F5D751C39653785E751B86E24A19845
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +127,8 @@ magnet:?xt=urn:btih:9C3E60975F5D751C39653785E751B86E24A19845
 magnet:?xt=urn:btih:39B4D23013DAC5725EC19D922614DE26B470DC2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +152,8 @@ magnet:?xt=urn:btih:39B4D23013DAC5725EC19D922614DE26B470DC2C
 ```bash
 magnet:?xt=urn:btih:19E42D37769D27293C6A8C5BA45C68272E972F52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:19E42D37769D27293C6A8C5BA45C68272E972F52
 ```bash
 magnet:?xt=urn:btih:3C440EE41FDE8C47B7F283775814D75F1B66295B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +209,8 @@ magnet:?xt=urn:btih:3C440EE41FDE8C47B7F283775814D75F1B66295B
 magnet:?xt=urn:btih:F160EB96F190C393E60F20EAACB8FF637DC34FE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +236,8 @@ magnet:?xt=urn:btih:F160EB96F190C393E60F20EAACB8FF637DC34FE0
 magnet:?xt=urn:btih:E0DD411C7D1880138F115D407D17536292CDC277
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +262,8 @@ magnet:?xt=urn:btih:E0DD411C7D1880138F115D407D17536292CDC277
 magnet:?xt=urn:btih:2B5345478EBB8A37A617B1E507A353D1427681B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +287,8 @@ magnet:?xt=urn:btih:2B5345478EBB8A37A617B1E507A353D1427681B3
 ```bash
 magnet:?xt=urn:btih:350DF4E41414C6A785952C51EFAC0177AD188E0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +317,8 @@ magnet:?xt=urn:btih:350DF4E41414C6A785952C51EFAC0177AD188E0C
 magnet:?xt=urn:btih:10161EC5211A18AF0A1EB9738C7A1972264DF625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +346,8 @@ magnet:?xt=urn:btih:10161EC5211A18AF0A1EB9738C7A1972264DF625
 magnet:?xt=urn:btih:F5DD2BCFB215BF604D689F402555269ECA116034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +371,8 @@ magnet:?xt=urn:btih:F5DD2BCFB215BF604D689F402555269ECA116034
 ```bash
 magnet:?xt=urn:btih:F1836FD768475830C7190F5C63A35E64107767DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +400,8 @@ magnet:?xt=urn:btih:F1836FD768475830C7190F5C63A35E64107767DA
 magnet:?xt=urn:btih:A9A354EA37C3A4F5A1533CB0202B637C6C345978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +426,8 @@ magnet:?xt=urn:btih:A9A354EA37C3A4F5A1533CB0202B637C6C345978
 magnet:?xt=urn:btih:2E683D00620E9968B013F808CCE738D30F11451E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +451,8 @@ magnet:?xt=urn:btih:2E683D00620E9968B013F808CCE738D30F11451E
 ```bash
 magnet:?xt=urn:btih:415C7DAAE0D85D21BDA2BE3215DFD4E6121DD821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +480,8 @@ magnet:?xt=urn:btih:415C7DAAE0D85D21BDA2BE3215DFD4E6121DD821
 magnet:?xt=urn:btih:6CA8CB81E5F296F295EDBACF0326BC198A68C14B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +505,8 @@ magnet:?xt=urn:btih:6CA8CB81E5F296F295EDBACF0326BC198A68C14B
 ```bash
 magnet:?xt=urn:btih:904B1E649AE12B437AA4C5844B58C5047505432A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +532,8 @@ magnet:?xt=urn:btih:904B1E649AE12B437AA4C5844B58C5047505432A
 magnet:?xt=urn:btih:851BB0E1D747268B99DE36321A33C5B35E055940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +557,8 @@ magnet:?xt=urn:btih:851BB0E1D747268B99DE36321A33C5B35E055940
 ```bash
 magnet:?xt=urn:btih:D53B2BFABFB51443F86586B7F148635F2EE93911
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +584,8 @@ magnet:?xt=urn:btih:D53B2BFABFB51443F86586B7F148635F2EE93911
 magnet:?xt=urn:btih:6889C826F951139E4C3C655CC671C510D5D226CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +609,8 @@ magnet:?xt=urn:btih:6889C826F951139E4C3C655CC671C510D5D226CB
 ```bash
 magnet:?xt=urn:btih:399B28E9D8EBBF55DAC2C85C80AD4A8CBEBD96D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +636,8 @@ magnet:?xt=urn:btih:399B28E9D8EBBF55DAC2C85C80AD4A8CBEBD96D7
 magnet:?xt=urn:btih:DF3588DAFFA1821B17467CD15A64886E6FE6B4E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +661,8 @@ magnet:?xt=urn:btih:DF3588DAFFA1821B17467CD15A64886E6FE6B4E1
 ```bash
 magnet:?xt=urn:btih:0576D2582662391FE15E40FA865526386B2CE3BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,29 +688,7 @@ magnet:?xt=urn:btih:0576D2582662391FE15E40FA865526386B2CE3BD
 magnet:?xt=urn:btih:F9C9753D1DFA21EBE3F83F0B3872E417E09FFF2E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923209   (564499) от 31.07.2015
-
-Андрей Дашков | Чёрный ровер, я не твой (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вовчик въезжал в закрытую зону в приподнятом настроении. Впрочем, закрытой она была лишь для тех, кто не хотел возвращаться. Вовчику путь назад был заказан. Такой остроты чувств он давно уже не испытывал. Ему предстояла игра, результат которой невозможно предугадать. Нечто подобное происходило с ним в пору его спортивной молодости, когда он выходил на ответственный (   Читать дальше...   )Жанр: Фэнтези, мистический триллерПродолжительность: 01:28:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22EEE855F35B4B287DAED74D10F1C42E40847C88
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

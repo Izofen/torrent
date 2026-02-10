@@ -1,3 +1,29 @@
+###  Публикация: 1209443   (779367) от 26.02.2018
+
+Маленькие но значительные: Пауки / Little Matters: Spiders (2014) HDTVRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предположительно пауки появились в Палеозойскую эру в Каменноугольный период. Это было примерно 2-2,5 млрд. лет назад. Среди обитателей животного царства пауки относятся к группе беспозвоночных живых существ. Пауки входят в самый многочисленный тип группы беспозвоночных - тип членистоногих. Как и для других классов, относящихся к этому типу, таких как насекомые, (   Читать дальше...   )Производство: Испания, Amprods, Alvaro Mendoza ProductionsЖанр: Документальный, фаунаРежиссер: Альваро МендозаПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B477B7BA325FD39751D18A5B747489706BF23AE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209449   (779371) от 26.02.2018
 
 Маленькие но значительные: Насекомые / Little Matters: Insects (2014) HDTVRip [H.264/720p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:33A7389D3F66F1C474E2068DC54A6A00CAA240E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:33A7389D3F66F1C474E2068DC54A6A00CAA240E4
 magnet:?xt=urn:btih:1BD9B6D8A7E9D5D82942A8EAA180F881307885E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:1BD9B6D8A7E9D5D82942A8EAA180F881307885E8
 ```bash
 magnet:?xt=urn:btih:85A6E2E9A4AEF2F50AE1F2B72D9CEB94690F1D95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:85A6E2E9A4AEF2F50AE1F2B72D9CEB94690F1D95
 magnet:?xt=urn:btih:E1D2DA3AF02EFF9EA9E142DC6982B362E8B523EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:E1D2DA3AF02EFF9EA9E142DC6982B362E8B523EA
 ```bash
 magnet:?xt=urn:btih:8E03A9A9F1658C39F40A1F23C163E2886CED3BD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:8E03A9A9F1658C39F40A1F23C163E2886CED3BD6
 magnet:?xt=urn:btih:ED9235FEB1BAC6AA89480B1BACEA4626FC6EFA7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:ED9235FEB1BAC6AA89480B1BACEA4626FC6EFA7F
 ```bash
 magnet:?xt=urn:btih:150870995933FAE39E725CC82E755B986085A161
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:150870995933FAE39E725CC82E755B986085A161
 magnet:?xt=urn:btih:5C197A6BF903FE122CDC5219A34007998264CE8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:5C197A6BF903FE122CDC5219A34007998264CE8D
 ```bash
 magnet:?xt=urn:btih:9A773868646A8C62FB93DCF825D94EBD7B23EA22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:9A773868646A8C62FB93DCF825D94EBD7B23EA22
 magnet:?xt=urn:btih:2D6ABE1869F858136767D58B2F36F5496228384A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:2D6ABE1869F858136767D58B2F36F5496228384A
 ```bash
 magnet:?xt=urn:btih:2F464F025058089F6C0F329B087F0A6A332CA70A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:2F464F025058089F6C0F329B087F0A6A332CA70A
 magnet:?xt=urn:btih:CEAA197FAD8A87A939ACFA1573936BC4BC729286
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:CEAA197FAD8A87A939ACFA1573936BC4BC729286
 ```bash
 magnet:?xt=urn:btih:213C3B70792AE7CAD80E6438D4F765D7FDA500AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:213C3B70792AE7CAD80E6438D4F765D7FDA500AF
 magnet:?xt=urn:btih:F6358CC82659E727849860E2961E07F8C9997E45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:F6358CC82659E727849860E2961E07F8C9997E45
 ```bash
 magnet:?xt=urn:btih:924637FC5E90BA3ACD85483BBD4D4D384B658F12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:924637FC5E90BA3ACD85483BBD4D4D384B658F12
 magnet:?xt=urn:btih:68D7A132C0B630B100CF211F575172E1825DC96C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:68D7A132C0B630B100CF211F575172E1825DC96C
 ```bash
 magnet:?xt=urn:btih:F3A202A0B966ED1855DA8D4D6EEFF66C129BD8C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ Gimme Danger. История Игги и The Stooges / Gimme Danger (2016) HDTV 
 magnet:?xt=urn:btih:02B3C5BA9A2741CAFA3EC061DD9E7408AE1F6435
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:02B3C5BA9A2741CAFA3EC061DD9E7408AE1F6435
 ```bash
 magnet:?xt=urn:btih:0B3D7D231512AB16B213B3ABF819BC93DA018700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:0B3D7D231512AB16B213B3ABF819BC93DA018700
 magnet:?xt=urn:btih:628E5E0D962A6949C52D5ED876144B16FB7FA2A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:628E5E0D962A6949C52D5ED876144B16FB7FA2A9
 ```bash
 magnet:?xt=urn:btih:719C9E1540372873E4318EC9EDD31B8315FAE667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:719C9E1540372873E4318EC9EDD31B8315FAE667
 magnet:?xt=urn:btih:0916A4AD10A6481371E16A6756615ED1510C621F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:0916A4AD10A6481371E16A6756615ED1510C621F
 ```bash
 magnet:?xt=urn:btih:BE5071D59D79F914EBA00F569F1E69EAB70249AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:BE5071D59D79F914EBA00F569F1E69EAB70249AF
 magnet:?xt=urn:btih:80815B61D04C4DD09B0AA675DDA39E5239724205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:80815B61D04C4DD09B0AA675DDA39E5239724205
 magnet:?xt=urn:btih:BA76D219C1469EC7CD5795E7AEE209B8158BFCB0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208549   (779938) от 22.02.2018
-
-Александр Покрышкин (1985) SATRip
-
->>Документалистика и Телепередачи
->>Авиация
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_779938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Покрышкин был, да и остается одним из символов российской авиации времен Второй мировой войны. Легендарный военный лётчик, маршал авиации, трижды Герой Советского Союза Александр Покрышкин в этом фильме дал одно из последних своих интервью. Впервые он увидел самолёт в 12 лет, и с тех пор твёрдо знал, что будет лётчиком. Его имя овеяно легендой, в годы ВОВ, (   Читать дальше...   )Производство: СССР, Творческое объединение «Экран»Жанр: Документальный, биография, война, историяРежиссер: Дмитрий ДеминПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94CBC56029BD809B578CA4C31D4C76DE43218DC4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

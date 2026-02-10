@@ -22,6 +22,8 @@ VA - Top 100 - Best Radio Hits 2017 (2017) [MP3|320 Kbps] <Dance>
 magnet:?xt=urn:btih:4E7D22C219E65E661A592BF53AA9483DADA9E52D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Лучшая Дискотека 80/90. (Зарубежный выпуск) 
 ```bash
 magnet:?xt=urn:btih:A30F613146E8E72CC7A59238173FA3A48AA280B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 magnet:?xt=urn:btih:FD563FFCB71E180AEB20545A2B255474AEB5835C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - The Space Beats (2021) [MP3|320 Kbps] <Synthspace, Electronic>
 ```bash
 magnet:?xt=urn:btih:09F606DC6FDADA296641212E18484735F054F523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Music For You vol.21 (2021) [MP3|320 Kbps] <Rock, Metal, Other>
 magnet:?xt=urn:btih:DF5C182DB7B78D37C3FB9B6645EFC853082A0E4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Unknown 80's (part X) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop,
 ```bash
 magnet:?xt=urn:btih:3C32118FC2BB2836A8C42ECEDC667CBD79B1BF4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ VA - Новогодняя Дискотека 50/50 (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:38319654B8A2E6B694182F2C2FA9B13B1CE7BB93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ VA - Музыка для машины Vol.42 (2023) [MP3|320 Kbps] <Pop, Dance, 
 ```bash
 magnet:?xt=urn:btih:91AB5AB99AB3FC6F7A03C92E50732E4190CFF3EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ VA - The Death Therapy (2021) [MP3|320 Kbps] <Metal, Hard Rock, Hardcore>
 magnet:?xt=urn:btih:EB4CCF09EF842E8F0211BF00AC7BEEC66F51744C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ VA - George Michael - Best275z (1984 - 2014) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:3DC2F54D78BBE8488ED5A392023312BFECD16781
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ VA - Kiss FM Top 40: December (2017) [MP3|320 Kbps] <House, Pop, Dance>
 magnet:?xt=urn:btih:F0CA9080A9CDCC4AB363F932505FA11D7467693D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +347,8 @@ VA - Unknown 80's (part I) (2016) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop,
 magnet:?xt=urn:btih:58E0F6F232DB6497DBC2C3C5DD5E0499F4395533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +375,8 @@ VA - Качай и слушай Vol 5 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:566E8E09E00546787FB413D5F5ABEC70BADC875D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +408,8 @@ Hits of My Soul - сборник электронной и инструмент�
 magnet:?xt=urn:btih:05020C001D7214E3D44913713447E03F3D99B55B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +436,8 @@ VA - De Top 100 Aller Tijden 1974 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 ```bash
 magnet:?xt=urn:btih:881A0617FD51D796D4265E63DA6379526830E4EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +466,8 @@ VA - Empire Records - Classic Disco 2 (2017) [MP3|320 Kbps] <Disco>
 magnet:?xt=urn:btih:B81C316F1E744346F9380F689D0BDEE8D283B049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +494,8 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 ```bash
 magnet:?xt=urn:btih:83C8EBEA161440D1561AE00EEAC5AFA034B773AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +524,8 @@ VA - German Top 100 Single Charts 29.12.2017 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:4C85ED72959ED28B98AC7CCFE6DC815B5BDFD22B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +552,8 @@ magnet:?xt=urn:btih:4C85ED72959ED28B98AC7CCFE6DC815B5BDFD22B
 ```bash
 magnet:?xt=urn:btih:07269D48EF7758BD365D64F367B3FD81B0AA1560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +582,8 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 magnet:?xt=urn:btih:7A91C1ACA9EEF9036F9E811F7CC01055775B1D81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +610,8 @@ VA - Top Hits (December - 2017) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:AE0C161B04206C17CD1866337F4E708D4858084C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +640,8 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 magnet:?xt=urn:btih:0531650283652F24D2137FE3045C4C367E3332A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +668,8 @@ VA - Best 50 New Year 2019 Edition (2018) Compiled by mCITY [MP3|320 Kbps] <Euro
 ```bash
 magnet:?xt=urn:btih:844B0BA6F832EB6945AC335227C2E1F0D6CF0B39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +698,8 @@ VA - Modern Beats: Electro House (2018) [MP3|320 Kbps] <Electro House>
 magnet:?xt=urn:btih:1C93DD737A24AC058575CCA3ED404F03530CF701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -679,6 +727,8 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 magnet:?xt=urn:btih:D0B51743D7A74F860C7B7CA54E5B2D67634E31A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -705,6 +755,8 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 ```bash
 magnet:?xt=urn:btih:CB185D2C2C2F3D278E96713F60B4653A1B0992F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

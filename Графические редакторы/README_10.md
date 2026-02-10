@@ -20,6 +20,8 @@ DxO PureRAW 3.7.0 Build 28 (x64) Portable by 7997 [Multi]
 magnet:?xt=urn:btih:C2437F92934A5BFBE5B6CF7A06A6C1FF1F2EAD0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ DxO ViewPoint – это новое программное решение пос
 magnet:?xt=urn:btih:ED6CA9C040A9F8AAD01A861BB3CA5D442A49F1C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ SILKYPIX RAW Converter — это программное обеспечение,
 ```bash
 magnet:?xt=urn:btih:27834081194559F4F18F88F776F72D3F2CB30603
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ EximiousSoft Banner Maker – программа для создания рек�
 magnet:?xt=urn:btih:B04530DF130A12B3202805F907FB9788B9272250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ WidsMob AI Retoucher 2.3.0.112 RePack by OctaneS [Multi/Ru]
 magnet:?xt=urn:btih:F701E29E773905CF6295F8838D84F9DCE566F9BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ WidsMob AI Retoucher 2.3.0.112 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:10A7A769161F5D2190F383DD2D1F6243836622BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ SILKYPIX Developer Studio Pro 11 — мощная программа, котор
 magnet:?xt=urn:btih:4697FF5A53C23CFC060D4666ED48DA2C6BFE2B97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Photomatix может автоматически создавать HDR изоб
 magnet:?xt=urn:btih:18F02E06EADF1EB7183B7AA50B3B0FBB1A95CDA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ SILKYPIX Developer Studio Pro 11 — японская программа, поз
 ```bash
 magnet:?xt=urn:btih:DBCAA9AFB759DC329448A22B72FAB153C05856AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ CODIJY Recoloring 4.2.0 [Multi/Ru]
 magnet:?xt=urn:btih:880BEAAD51789FBD60D5DD475A28872B471A68AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ RF SCreater 2.3.3 [Ru]
 magnet:?xt=urn:btih:1B6BDB6929F3E1FB25033217328173E023A5EF8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Recolored - простая по своему интерфейсу програм
 ```bash
 magnet:?xt=urn:btih:BE0D20C3768E8E77E5BFF3B986880F27F95A5223
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Franzis AI Filter #1 professional — это уникальная програм
 magnet:?xt=urn:btih:68525B900D806D0587F8F5F2DD5A2CAB1A19F20C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:68525B900D806D0587F8F5F2DD5A2CAB1A19F20C
 magnet:?xt=urn:btih:89885EE20890DDF67D57AE973372E82B5378E732
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Adobe Photoshop – многофункциональный графически�
 ```bash
 magnet:?xt=urn:btih:92D366E5927C5056FE6771F672225B6A842E3AD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ SmallFoto - программа предназначена для уменьше�
 magnet:?xt=urn:btih:226E02CDAEF51ECD7D3751676580299F258C591F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Inpaint - позволяет умно удалять нежелательные 
 ```bash
 magnet:?xt=urn:btih:338AD96D90B68847A0BAA521F9D78D1B02A9988D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ SILKYPIX Developer Studio Pro 11 — японская программа, поз
 magnet:?xt=urn:btih:ED249AFE7A8CA28BFE21B27E53E99022244B8438
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ SILKYPIX JPEG Photography 11 содержит инструменты для ул
 magnet:?xt=urn:btih:E83B891E29E7C8B9AB1F2051067ACCD1EC23D974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:E83B891E29E7C8B9AB1F2051067ACCD1EC23D974
 ```bash
 magnet:?xt=urn:btih:CECA162216A442C1F612E6070D4012191415DF80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ DxO PureRAW 3.6.2 build 26 RePack by KpoJIuK [Multi]
 magnet:?xt=urn:btih:50A4CF176282E17AD7A4780EED7F60253FD99573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ TurboCollage - приложение, позволяющее генерирова
 ```bash
 magnet:?xt=urn:btih:55A2DACA3894E7E1D7D9508CA21E4C2116590672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ FotoWorks XL 2024 24.0.0 [Multi]
 magnet:?xt=urn:btih:DDB96476AC346A1616B04BE9CBE78230A25DA33C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Fotosizer Pro — программа для пакетной обработки 
 ```bash
 magnet:?xt=urn:btih:2B08C15AA6B9DDC4BFCC657A05C08EAEA25A9B11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ IcoFX - мощный редактор иконок и курсоров, обла
 magnet:?xt=urn:btih:3EE20FF23A19AB8A21E70660F39E1D3A9B2644C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ ACDSee Photo Studio Ultimate сочетает в себе поддержку с�
 ```bash
 magnet:?xt=urn:btih:56B175CADF5D26D55819E73D89AAA875EF048347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

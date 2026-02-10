@@ -22,6 +22,8 @@ Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [MP3|32
 magnet:?xt=urn:btih:3CFB1FE972900F7C910E51FD6B7ED3165370A41A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Marco Allevi - Spa Music (Music For Relaxation Meditation Massage) (2017) [MP3|3
 ```bash
 magnet:?xt=urn:btih:B7F3556559CA4267724A06A7DB756544301BDCCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Yiruma - Piano (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Solo, Modern
 magnet:?xt=urn:btih:9338C1C271840B91C7F517FECD8489F60A6E991F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:62BE3874C93B8431E0E0A3BB81EBAED69EBF7CC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Martin Ermen - Piano Dreams Collection (2017-2018) 4CD [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:D4B4C0457D502EBDD21A19E696182DA91C04EA7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Sade - The Big Unknown (From the motion picture "Widows") (2018) Single [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:6B0799FBB6ED10C363B5E3A5408FFF2C19029044
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Baguette Quartette - 5 Albums (1995-2010) [FLAC|Lossless|WEB-DL|tracks] <Folk, W
 magnet:?xt=urn:btih:5451569F3648D1D5FCF4191D0A89F6BBD81122C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Eric Chiryoku - Winter Story (2007) [FLAC|Lossless|WEB-DL|tracks] <New Age, Inst
 ```bash
 magnet:?xt=urn:btih:72D69E3EC0775DE2F2252236925B93367CCFA155
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ Francois Jolin - Alice VR  (original soundtrack) (2016) [MP3|320 Kbps] <OST, Sco
 magnet:?xt=urn:btih:1500DB8E94E6E9EB5999677480BF8F8280C059A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ magnet:?xt=urn:btih:1500DB8E94E6E9EB5999677480BF8F8280C059A4
 ```bash
 magnet:?xt=urn:btih:0B654C0122E9F57DEF12EE4515762B7F07B0FECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Tim Wynn - Freaks / Иные (Original Motion Picture Soundtrack) (2019) [FLAC|L
 magnet:?xt=urn:btih:45824C50A00A5DC1E9A30187576167C658BF026C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ Tim Wynn - Freaks / Иные (Original Motion Picture Soundtrack) (2019) [MP3|32
 ```bash
 magnet:?xt=urn:btih:9E0DEAE5A4E6F8E1BC723DB5F1C54BA93788BAEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ Gipsy Kings - 16 альбомов (1982-2006) [MP3|320 кб/с]<Rumba - Flamenco
 magnet:?xt=urn:btih:7E8E111045CA3ABB411E79F581A52CBDC5AF82A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ CD1 - Easy-Listening Favourites
 magnet:?xt=urn:btih:6E1AC035F746A1BCD86CFED1EC7ADDCE2C75F2D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +421,8 @@ Goran Bregovic - Discography (1989..2008) [MP3|320 kbps]<Balkan Ethno, World Mus
 ```bash
 magnet:?xt=urn:btih:249B7FD2ED0003BD3C953234B57C6EE9D92675A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +451,8 @@ Atlantida Project - Bezdna (2016) [MP3|320 Kbps] <Cyberfolk / Electronic / Ethni
 magnet:?xt=urn:btih:B4EE5F6404BBE81043050313A939AB055AD56ED6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +479,8 @@ Leonard Cohen - The Essential Leonard Cohen (2002) 2CD, Compilation [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:578B3A6A9E6C0E62E19BF8FBD76F18ACF81EF88F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +509,8 @@ Sean Evenett - My Peaceful Heart (2017) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:BB36A06A99834EAA452C100A9796F1D9D9CE1335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +536,8 @@ VA - Suicide Squad (Unofficial Soundtrack) (2016) [MP3|320 кб/с]<Hip-Hop, Roc
 ```bash
 magnet:?xt=urn:btih:AFDF62859174C56B1E6B0887D17B75FA8F24218B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +566,8 @@ VA - Office Christmas Party (Original Motion Picture Soundtrack) (2016) [MP3|320
 magnet:?xt=urn:btih:6FCD94613006A1DAEE4294EE25D6C9150EC62898
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +595,8 @@ magnet:?xt=urn:btih:6FCD94613006A1DAEE4294EE25D6C9150EC62898
 magnet:?xt=urn:btih:AB21ADDE019B4CEEED196533D7D466FB1CB25EE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +620,8 @@ Various Artists - Наши песни - Песни Победы (2001) [APE|loss
 ```bash
 magnet:?xt=urn:btih:9851A021B636A2C72DE7C8F2F7A1C572F908118E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +650,8 @@ Best Relaxation Music - Kundalini Yoga Music (2019) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:0A645D62AB37D002DAF6DAC9873E678C21268AD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +679,8 @@ Neil H - Syllabus Of Magic - Merlins Quest (2010) [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:4B8F5EBBE4AD889F85CC34459B816249E8998E67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +704,8 @@ magnet:?xt=urn:btih:4B8F5EBBE4AD889F85CC34459B816249E8998E67
 ```bash
 magnet:?xt=urn:btih:E055CCC5B8CDE1F4C4F6F356CB4FFEDE9F586936
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -683,6 +733,8 @@ Ramin Djawadi - Gears 5 (Original Soundtrack) (2019) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:F66027107FD7C9667FAFD9D8D3188F34C90BCCB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

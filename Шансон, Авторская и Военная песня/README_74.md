@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:62EBD3862DF896A1AFCBB4E3CBEE69001EA1E51D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Москва Бандитская (Первое Издание) (1997) [FLA
 ```bash
 magnet:?xt=urn:btih:09C7B6BB067CAE9C5FFD4E16C914EA5AE3C0E5F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:09C7B6BB067CAE9C5FFD4E16C914EA5AE3C0E5F0
 magnet:?xt=urn:btih:7DDAC7CB374890C0461C1FB673E9540668D2B6F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Памяти Михаила Круга посвящается... (2002) [FL
 ```bash
 magnet:?xt=urn:btih:D4D65AECC5A3590F5129F3F0B2A6216FCD767290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:D4D65AECC5A3590F5129F3F0B2A6216FCD767290
 magnet:?xt=urn:btih:2421275F9A4380584C379EF4580AC3E880EB32B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:2421275F9A4380584C379EF4580AC3E880EB32B4
 ```bash
 magnet:?xt=urn:btih:052286278CB31587B1DD3CAD5B96DF625FCAE1E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:052286278CB31587B1DD3CAD5B96DF625FCAE1E0
 magnet:?xt=urn:btih:65B41E89B0DBC937CEB94DCBFFEA0FDB5BBC6AA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:65B41E89B0DBC937CEB94DCBFFEA0FDB5BBC6AA9
 ```bash
 magnet:?xt=urn:btih:2A0A274C182B1FBC0DF1B06ADEA00ED649EF7278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:2A0A274C182B1FBC0DF1B06ADEA00ED649EF7278
 magnet:?xt=urn:btih:A601DF307505074E5377262304B1BCBCC8BDA47B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:A601DF307505074E5377262304B1BCBCC8BDA47B
 ```bash
 magnet:?xt=urn:btih:73B83107BD2033AB509F5ABAAB30299743976EE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:73B83107BD2033AB509F5ABAAB30299743976EE6
 magnet:?xt=urn:btih:5A8CFC0746AF4CF22C808090EF47C13C740757E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:5A8CFC0746AF4CF22C808090EF47C13C740757E9
 ```bash
 magnet:?xt=urn:btih:C8A5A06937358F8E270100292BBCFBB47920F424
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:C8A5A06937358F8E270100292BBCFBB47920F424
 magnet:?xt=urn:btih:88A60D0437606A70FD5BD7DD67906B94A1F70908
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:88A60D0437606A70FD5BD7DD67906B94A1F70908
 ```bash
 magnet:?xt=urn:btih:CCE07909470BA02B82138D283C750747AC849D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ magnet:?xt=urn:btih:CCE07909470BA02B82138D283C750747AC849D59
 magnet:?xt=urn:btih:71F41A531E3404FCF5854F26ACD38722CE27BBF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:71F41A531E3404FCF5854F26ACD38722CE27BBF3
 ```bash
 magnet:?xt=urn:btih:F00A83A0014CCAF475579F0525CBF32D057D6ED8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ magnet:?xt=urn:btih:F00A83A0014CCAF475579F0525CBF32D057D6ED8
 magnet:?xt=urn:btih:DA5AD731F316AB106F37FAFFA6D3C8487BB3495D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Шансонная осень (2002) [FLAC|Lossless|tracks + .cue]<Шанс
 ```bash
 magnet:?xt=urn:btih:251F856651970CC04ECD3E844782596BABF887CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Новое поколение русского шансона (2003) [FLAC|
 magnet:?xt=urn:btih:87993D58E3DA4EDB108D8E4CDE02326943945A47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Криминальная Россия 3 (2001) [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:D6D0D0744613E7F800A768CCD658A0B95F3481A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Шансонный хит 3 (2003) [FLAC|Lossless|tracks + .cue]<Шансо
 magnet:?xt=urn:btih:E357AEB88002D1A4C4FEC1EC834DE2F8F5D9DA85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ VA - Хорошо сидим! 20 Праздничных хитов (2004) [MP3|3
 ```bash
 magnet:?xt=urn:btih:41269D6D32E818788330B12C52026B48950F2306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ magnet:?xt=urn:btih:41269D6D32E818788330B12C52026B48950F2306
 magnet:?xt=urn:btih:C92D044249C0FAB718D6A529F71C4346B7AFA42D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ magnet:?xt=urn:btih:C92D044249C0FAB718D6A529F71C4346B7AFA42D
 ```bash
 magnet:?xt=urn:btih:2C7E3923CB246CA80EC45B79F65D6043C7D2B302
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ VA - Шоферской 12 (2002) [FLAC|Lossless|tracks + .cue]<Шансон>
 magnet:?xt=urn:btih:6B9C0C9B19B6343301CF58603B461186F88E8CB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ VA - Песни нашего времени 4 (2005) [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:74D219731311961EEC6CA08516E601A5A769320B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

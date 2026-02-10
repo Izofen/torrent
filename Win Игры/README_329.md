@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8386777DA9D6F49EBB2BA4D23D57C0276F7E85BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NecroVision (2009) [Ru/En] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:2605923FC8AD9058995C5E8E21F4C1382DD73D7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Willy-Nilly Knight - прекрасная история, основанная �
 magnet:?xt=urn:btih:4A0205B92CFDAE2BB5DCB23BB0C34B117E1424F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Paranormal Files 4: Hook Man's Legend / Паранормальные явлен�
 ```bash
 magnet:?xt=urn:btih:0F8455540B934D78041D595A54AFAF106E22BE95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NecroVisioN: Lost Company / NecroVisioN: Проклятая рота (2010) [Ru/
 magnet:?xt=urn:btih:7A1B712688B4D10CDCDE5CB62ACFEAF1EBD8C096
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Syberia 3: The Complete Journey (2017) [Ru/Multi] (1.5.07/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:403526C9170133AB58BDCD3096A493D280023E31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ TransRoad: USA (2017) [Ru/Multi] (1.0.7) Repack xatab
 magnet:?xt=urn:btih:0D77FC880585987E0AFD968E4C0B2B099231C59C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Andersen Accounts 3: A Voice of Reason / Досье Андерсена 3: Г
 ```bash
 magnet:?xt=urn:btih:44B041EC7E226836B946422F95C5F67D68DB2F87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Book of Unwritten Tales 2 - фэнтезийная история-игра, 
 magnet:?xt=urn:btih:73BA8F35E7A43D2FBF25BA4AFECF1E1C24F341BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Rampage Knights - хардкорный 2D-экшен с великолепной
 ```bash
 magnet:?xt=urn:btih:91F3EA175C3A963F265E024C51023271C97C08CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Far Cry 3 (Русификатор/1.0) [Ru] 2012 | Бука
 magnet:?xt=urn:btih:7051309CB68CEF2BC1FBC7321BD759D4E33A4ED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Willy-Nilly Knight - прекрасная история, основанная �
 ```bash
 magnet:?xt=urn:btih:9148D5C666FE62FEBBA74CFC8718F60547B86D4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Haunted Hotel 15: The Evil Inside / Проклятый отель 15: Зло в�
 magnet:?xt=urn:btih:67D937CE8691E1F5D253D51BFC4627B5D671B6FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Dark Asylum: Mystery Adventure / Загадки разума. Грани доз�
 ```bash
 magnet:?xt=urn:btih:1F348DF0897549B507A5796EB636785FE88BBA05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Ashley Clark 2: The Secrets of the Ancient Temple / Эшли Кларк. Сек�
 magnet:?xt=urn:btih:DB20601BC5B575E62D402DCA63D1567CAC740B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Dark Tales 8: Edgar Allen Poe's The Tell-tale Heart (2015) [En] Unofficial [Coll
 ```bash
 magnet:?xt=urn:btih:FF1B44FB690CFC4AAE32A8130F62658DD5CE1768
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Westmark Manor (2020) [Ru/Multi] (1.0/upd10) Repack Other s
 magnet:?xt=urn:btih:5645A5ED90CA0B50B4664FB5750A80CF1B0D3D76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Mystery Case Files 13: Ravenhearst Unlocked (2015) [En] Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:6795F2F106986DE612E3C501DB8E0BE2B45BAA4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ RollerCoaster Tycoon World - это современное воплощение 
 magnet:?xt=urn:btih:49BEC31B7C2C8C36EC319CC1F561779871C1A5EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Yesterday / Yesterday: Печать Люцифера (2012) [Ru/Multi] (1.0.0.1)
 ```bash
 magnet:?xt=urn:btih:115C4597CA81EE32D93E2D9053F579F9AA4804D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Stranded Sails Explorers of the Cursed Islands (2019) [Ru/Multi] (1.0) License H
 magnet:?xt=urn:btih:5ABA0CCC9BE07CF56272621357ACA2BE28F088A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Stranded Deep — это квест с видом от первого лица �
 ```bash
 magnet:?xt=urn:btih:8F6828104E90CB42CB6492605AF2B8FEFE8E883B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Stories Untold - это текстовая приключенческая игр
 magnet:?xt=urn:btih:6F602575E21456A25448CBEE022B55CF8A29ECCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Agents of Mayhem - шутер от третьего лица с элемента
 ```bash
 magnet:?xt=urn:btih:D4D30011879B918661A34AC2B9E377C44A6B71CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Fear For Sale 12: Tiny Terrors / Страх на продажу: Кукольн�
 magnet:?xt=urn:btih:D3585E913F8296DFAAA82B1D8A20F149BFF4620A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Mushroom 11 - экспериментальная постапокалиптич�
 ```bash
 magnet:?xt=urn:btih:B604EBF6467AC1B58FF31720CF5769A11C2FDD08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

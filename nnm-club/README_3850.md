@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A077216BC7927D0AE85712E93E6987D78CC8DA1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Timberborn v.0.5.7.0 db02fc5 gm (2021) [Multi/Ru] [macOS Native game]
 ```bash
 magnet:?xt=urn:btih:8BAE875F4969088F223DF19BCE57FECC26F47635
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:8BAE875F4969088F223DF19BCE57FECC26F47635
 magnet:?xt=urn:btih:BC7C5A3E858B50D9FFEA0B88C8012BBC7D4F754E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:BC7C5A3E858B50D9FFEA0B88C8012BBC7D4F754E
 ```bash
 magnet:?xt=urn:btih:102041AD135C04206DFF5B3D543F942544391710
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:102041AD135C04206DFF5B3D543F942544391710
 magnet:?xt=urn:btih:3FB60694017F2668DBCEE233FFBEF5942E0273F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ AnyDesk 8.0.8 Portable 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FF8B9AAB44AFDDAEEC6F9AC56860B5A22B5B975B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:FF8B9AAB44AFDDAEEC6F9AC56860B5A22B5B975B
 magnet:?xt=urn:btih:FBA5BA6D6B319A558898863C86DC9BDFA8C42C7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:FBA5BA6D6B319A558898863C86DC9BDFA8C42C7D
 ```bash
 magnet:?xt=urn:btih:4DC62EB3E5648D68EEEADB991408BC5EFAA98D4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:4DC62EB3E5648D68EEEADB991408BC5EFAA98D4E
 magnet:?xt=urn:btih:61F8B757AD98CA4EF3586A1A8207F5A071B615B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:61F8B757AD98CA4EF3586A1A8207F5A071B615B7
 ```bash
 magnet:?xt=urn:btih:A6FFA7BF5368F32273C9015A1205DED83FB65BED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:A6FFA7BF5368F32273C9015A1205DED83FB65BED
 magnet:?xt=urn:btih:1F0A8FEAB3A2DC347A22AC4B6E790E6C1DDFEBEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:1F0A8FEAB3A2DC347A22AC4B6E790E6C1DDFEBEF
 magnet:?xt=urn:btih:948DECFBF4E188839A434DA401A4F8F6ED049854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Steinberg - Cubase Pro 13 13.0.21 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:6F4F1C5384BC8FB853535D675685064B3D2A6595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ iStat Menus 6 — лучшее приложение для контроля ра
 magnet:?xt=urn:btih:6994EC4797ACE6F9F41CCBE080B090850B6B53FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:6994EC4797ACE6F9F41CCBE080B090850B6B53FE
 magnet:?xt=urn:btih:4BD8F3BC8C3B124C40CE4C2807C11ADA6C117704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:4BD8F3BC8C3B124C40CE4C2807C11ADA6C117704
 ```bash
 magnet:?xt=urn:btih:E5556681432A2CB1E25AC92D21B4672ADE6A1467
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:E5556681432A2CB1E25AC92D21B4672ADE6A1467
 magnet:?xt=urn:btih:26673CC6300136746F1576D8C749CB478932F03C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Microsoft Visual C++ Redistributable Package – это распространя
 ```bash
 magnet:?xt=urn:btih:063829E288BFB83D1CD24D95FEFB63909D2A05A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Windows 10 v22H2 19045.3930 и Windows 10 Корпоративная LTSC v21H2 
 magnet:?xt=urn:btih:1BEBB300F51EB225D2C075CBFD2B83A51050D44E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:1BEBB300F51EB225D2C075CBFD2B83A51050D44E
 ```bash
 magnet:?xt=urn:btih:3A06F0A3F948B2CB69FF08907DEAD9843C9AD6D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:3A06F0A3F948B2CB69FF08907DEAD9843C9AD6D3
 magnet:?xt=urn:btih:7AACE55D08C2A0B599DF08A5FDF8514965B839B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Factorio — это игра про добычу ресурсов, постро�
 ```bash
 magnet:?xt=urn:btih:903F8F885474D008556369DA8234C81C83129BE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:903F8F885474D008556369DA8234C81C83129BE6
 magnet:?xt=urn:btih:46A4966CAFBDAD388519E157D85F7ADE25AC6B17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:46A4966CAFBDAD388519E157D85F7ADE25AC6B17
 ```bash
 magnet:?xt=urn:btih:C07E65AD8AEF7E5FC5ACD6CC498B6A4D459BAD7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Death Stranding (2022) [Ru/Multi] (1.004/dlc) Repack dixen18 [Director's Cut]
 magnet:?xt=urn:btih:3F060E1E7B0884BF7D8B1AA60258294BDBE8019F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:3F060E1E7B0884BF7D8B1AA60258294BDBE8019F
 ```bash
 magnet:?xt=urn:btih:7B3C3661B17E00B8FB928FC250B86BC970D3C4C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

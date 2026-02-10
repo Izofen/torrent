@@ -22,6 +22,8 @@ Darren Korb - Pyre OST (2017) [MP3|320 Kbps] <Soundtrack>
 magnet:?xt=urn:btih:5277F93292D6660F13DC5E5AEF477026140737BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Country Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Country>
 ```bash
 magnet:?xt=urn:btih:4077B8D2B4E512875811504660687796666AC982
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Mystera II (1998) [OGG Vorbis|480 Kbps] <NewAge, Meditative>
 magnet:?xt=urn:btih:A14E59DA6FEE74AFA597244BCDB07EE7FF9EA79F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ The Percy Faith Orchestra - Theme From A Summer Place (2002) [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:51CA83A0DD93D638AB24FFBE31F160DBE6355CE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Evgeny Grinko - Ice for Aureliano Buendia (2014) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:8BD5FC54D44CDD9946FD9DC0D06FA3908601A04B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Золотой саксофон (2003) [FLAC|Lossless|tracks] <Instrumental
 ```bash
 magnet:?xt=urn:btih:FF2D53DC32F36C8BA837B2168FC30469F916E81B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - 100 Hits Accordeon (2008) 5CD, Box-Set [FLAC|Lossless|image + .cue] <Instru
 magnet:?xt=urn:btih:44BA2B5B94CD47C3B50C68B1CA60DF5841F3A348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ CD-1
 ```bash
 magnet:?xt=urn:btih:3305912B8F3626BB94760A626A1C71174EBFE56B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:3305912B8F3626BB94760A626A1C71174EBFE56B
 magnet:?xt=urn:btih:645BAF44F70D6993F0D72B4E6E88F6AAA54F8BBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ magnet:?xt=urn:btih:645BAF44F70D6993F0D72B4E6E88F6AAA54F8BBF
 ```bash
 magnet:?xt=urn:btih:96621891A2841174A42362D35F58BB7FB2D64405
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ VA - Вдохновение - Оттенки настроения 5 альбом
 magnet:?xt=urn:btih:FCC572B437E3DF5278DA0873CF2BA3C54A2109C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ Royal Philharmonic Orchestra - Legends (2004) 3CD Compilation [APE|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:61A89A2DAB43FC6C3C8CB9AA511E9D742C564548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ Albert Assayag - Accordion Dances: Tango Waltz Paso (2009) [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:D1D67D23DE380ACEA81ABD742580C493D4A16AD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ VA - Midnight Sax (1996) [FLAC|Lossless|tracks + .cue] <Instrumental, Saxophone>
 ```bash
 magnet:?xt=urn:btih:7EE8DA498F3DB3871377FE1FE50411870A4BEDC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ Go_A - #Ідиназвук (2016) [FLAC|Lossless|WEB-DL|tracks] <Folk, IDM>
 magnet:?xt=urn:btih:03105757EF06A5966184B0EE85A0C8F6F1E2ACC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ Dark Diva - 3 Albums (2021-2023) [MP3|320 Kbps] <Trip Hop, Folk>
 ```bash
 magnet:?xt=urn:btih:BA6E2616D33623B4E6163F871D20DE7C08E77069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ Teufelstanz - In Omne Tempus (2015) [FLAC|Lossless|image + .cue] <Medieval Folk,
 magnet:?xt=urn:btih:C6BC302CC2AB8C280CF0FF94C09516CA259319FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ The Gino Marinello Orchestra - Romantic Instrumental. Collection (1987-1998) [FL
 ```bash
 magnet:?xt=urn:btih:908E500D0EB0F7ADC5960DE865B2456C9A93B591
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ Carlos Gardel - 40 Famous Tangos (2005) 2CD Remaster [FLAC|Lossless|tracks] <Tan
 magnet:?xt=urn:btih:4BDCC909F3D16A485D0B6BC69B2374DC61299551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ Le Valedon - Sensuous Sax (1995, 1996) 2СD  [FLAC|Lossless|tracks + .cue] <Inst
 ```bash
 magnet:?xt=urn:btih:7BF0CEBE30296C0841BD1FF79E5ED87054B7CC57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ Harry Holland, Dieter Reith - Magic Accordion (1985) [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:9EF2489CAE6808876F5910DBCD114B4EADA0C2CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ VA - Romantic Guitar (1995) Compilation, Unofficial Release [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:994238C1081A2478B61B2A605BF55418CB804AB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +657,8 @@ CD - 1:
 magnet:?xt=urn:btih:8DC5DC0E110914174C6A9D262DC084941BF75036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +685,8 @@ Norrie Paramor and His Orchestra - 2 альбома (1998) Compilation [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:5BF62CDB926F75D8BD70D111631983EE78741EA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +715,8 @@ Stefan Nicolai - 2 альбома (1993, 2006) [FLAC|Lossless|tracks] <Instrumen
 magnet:?xt=urn:btih:90BA9D34BBA453B00722C11533ED7C55E227CCED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ The Royal Philharmonic Orchestra - Hits Of Elton John - The Ballads (1991) [FLAC
 ```bash
 magnet:?xt=urn:btih:06BAA109E874022C82A51964305086C05A1FDB20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

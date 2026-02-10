@@ -1,3 +1,29 @@
+###  Публикация: 1578804   (343375) от 24.09.2022
+
+Своя игра (24.09.2022) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:164BBE09C694718A9D83FBE888131D5F9CBFF128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578854   (343380) от 24.09.2022
 
 Следствие вели... (24.09.2022) WEBRip [H.264/1080p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:14C21A3AECC64539B9E42DDAD6EE4CAAD333E1BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:14C21A3AECC64539B9E42DDAD6EE4CAAD333E1BE
 magnet:?xt=urn:btih:E159A10188596F10AD0ED781AF18D0CAB5234295
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:E159A10188596F10AD0ED781AF18D0CAB5234295
 ```bash
 magnet:?xt=urn:btih:47DADD064C1A26F04D458680D5182243765BC86E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:47DADD064C1A26F04D458680D5182243765BC86E
 magnet:?xt=urn:btih:136609A963808839F2D42714B8ECC94489A637BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:136609A963808839F2D42714B8ECC94489A637BD
 magnet:?xt=urn:btih:6DBD7F5BBB0E15A19FD28328A3CEE47C92BCA6ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:6DBD7F5BBB0E15A19FD28328A3CEE47C92BCA6ED
 ```bash
 magnet:?xt=urn:btih:D926A9F48182FAFB61ABED9FA66431FBECB92EFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:D926A9F48182FAFB61ABED9FA66431FBECB92EFB
 magnet:?xt=urn:btih:E737536FF393855F1EF26C985CCDCFAEC5DC54DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:E737536FF393855F1EF26C985CCDCFAEC5DC54DE
 ```bash
 magnet:?xt=urn:btih:9FD2D390B5919CFB83C4241015C45D3564A4996A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:9FD2D390B5919CFB83C4241015C45D3564A4996A
 magnet:?xt=urn:btih:9F024D6DB2C9F82F31795B2FDF4F65DA271BE22C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:9F024D6DB2C9F82F31795B2FDF4F65DA271BE22C
 magnet:?xt=urn:btih:FEEE01533E643D626BC041AEE8681A94A87EA7F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:FEEE01533E643D626BC041AEE8681A94A87EA7F4
 ```bash
 magnet:?xt=urn:btih:1A2EC7A77D6B35539575E02724AB7A8105703483
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:1A2EC7A77D6B35539575E02724AB7A8105703483
 magnet:?xt=urn:btih:EE2D5FE3899CFF4FD5173403AF5C3E2AFE0B14D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ Brutto Nostra (2019) WEBRip
 ```bash
 magnet:?xt=urn:btih:6888A824879C1BE6B55B3F26040D8AFD383FD3A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:6888A824879C1BE6B55B3F26040D8AFD383FD3A9
 magnet:?xt=urn:btih:4D82B81D53CEBAD38F5A295C017442CBAC817BCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:4D82B81D53CEBAD38F5A295C017442CBAC817BCA
 ```bash
 magnet:?xt=urn:btih:1ADB9D157205D4519DB7C37893C8CE05CDD60C71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:1ADB9D157205D4519DB7C37893C8CE05CDD60C71
 magnet:?xt=urn:btih:EDDFA874F6E36A34C46AE1CA82B076913C908A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:EDDFA874F6E36A34C46AE1CA82B076913C908A49
 ```bash
 magnet:?xt=urn:btih:6FE30F5A7095F01AC4661452FCB5E772B399C939
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:6FE30F5A7095F01AC4661452FCB5E772B399C939
 magnet:?xt=urn:btih:19A7E09DAE39E5B661660EA3D51FD04E11748BC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:19A7E09DAE39E5B661660EA3D51FD04E11748BC0
 ```bash
 magnet:?xt=urn:btih:A3FDA9424981277C1C0B95D9F4FBAA47795DF891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:A3FDA9424981277C1C0B95D9F4FBAA47795DF891
 magnet:?xt=urn:btih:5C00E3891569B6406CC21ED18BA2E5B02E79D747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:5C00E3891569B6406CC21ED18BA2E5B02E79D747
 ```bash
 magnet:?xt=urn:btih:8F053C577EC76A137A98B64AF2C52ED4B440CC0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:8F053C577EC76A137A98B64AF2C52ED4B440CC0E
 magnet:?xt=urn:btih:2FD8FD75A6AEF6299B6BCE65AFFD58F17633E52E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:2FD8FD75A6AEF6299B6BCE65AFFD58F17633E52E
 ```bash
 magnet:?xt=urn:btih:02A98768B3F8EF48F854288A50BDFFF2C3081530
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:02A98768B3F8EF48F854288A50BDFFF2C3081530
 magnet:?xt=urn:btih:0519A492D571C5BEDFCE637EC65BB8AE6A548630
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:0519A492D571C5BEDFCE637EC65BB8AE6A548630
 magnet:?xt=urn:btih:66DAA9CEB67B07D82D8957FA171BF5D7CC74DBEA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 839115   (344460) от 08.11.2014
-
-Discovery. Махинаторы (Автодилеры) / Wheeler Dealers. Ford Thunderbird (2014) HDTVRip [XviD/720i-LQ] (Сезон 11, серия 8) [PR]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344460.jpg" />
-</div>
-
-
-###  Подробнее
-
-Суть передачи такова: ведущий покупает старенькую машину-автоклассику за небольшие деньги и передает ее механику-профессионалу, чтобы тот, в свою очередь, восстановил ее до приличного состояния, уложившись при этом в определенный бюджет. Далее ведущий попытается продать авто, за сумму перекрывающую расходы на ее покупку и ремонт, и постарается остаться даже в небольшой (   Читать дальше...   )Производство: Великобритания, Attaboy TV LTD for Discovery ChannelЖанр: Документальный, научно-познавательный, автомобилестроениеРежиссер: Уоррен ГринПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F6B8068DEF50361D39EA845CF907270352F1DFF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

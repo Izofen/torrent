@@ -19,6 +19,8 @@ Blood Bowl III (3) (2023) [Ru/Multi] (Season 7/dlc) Scene TinyISO
 magnet:?xt=urn:btih:AF38461161BC356C3146901C5FE2CEEC050763EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ SPORE Collection (2008) [Ru/Multi] (3.1.0.29/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:0234671DA10873E24430E88508F54AD5584A8A78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Railbound - это удобная игра-головоломка о паре с
 magnet:?xt=urn:btih:221E8FE42CE63EDD06D06DE08869B36531AA1EB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Ticket to Ride (2023) [Multi] (1.6.0/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:6F06A885E3E44FB8A37075C12F6D07AB68571E3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Necroking - это пошаговая тактическая ролевая ад
 magnet:?xt=urn:btih:7007572382C3D5FA120D22DBD57AE1D9E0EE4B0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Orange Season (2017) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B956BA64D3734D4E3696AC188565F461D8AA62DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Concordia (2021) [Multi] (1.3.6/dlc) License GOG [Digital Edition]
 magnet:?xt=urn:btih:C4C7BFFF343A4681775FA30A2CD5B377421E3C40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Factory Town (2021) [Ru/Multi] (2.2.7) License GOG
 ```bash
 magnet:?xt=urn:btih:6797592138DAB6D33AF5A2A9ACE6CA0378BBDCC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Dungeon Keeper (1997) [Multi] (1.01fix/dlc) License GOG [Gold]
 magnet:?xt=urn:btih:9151B949051B2C0ABC4189C0D181148140155F9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Dungeon Keeper 2 (1999) [En] (1.7) License GOG
 ```bash
 magnet:?xt=urn:btih:D9AE3BA2D5175726BC1915A5C8EB9B25B7C25DAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Farlanders - градостроительный симулятор, позвол
 magnet:?xt=urn:btih:893581A6120013904A6905808FD720834C171196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ EcoGnomix - это ролевая стратегия и градостроите
 ```bash
 magnet:?xt=urn:btih:56091168638D7323A0A49F2DD036CF859475949D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Millennia - пошаговая стратегическая игра, охват
 magnet:?xt=urn:btih:1737E74368D90E375814B2A13DD825C01B741935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Technotopia (2024) [Ru/Multi] (1.0.7.1) License GOG
 ```bash
 magnet:?xt=urn:btih:3EEE1D5ACF71538B0A2A3472B802A3CAC76C2056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Sims 4 (2014) [Ru/Multi] (1.110.294.1020/dlc) Repack FitGirl [Deluxe Edition
 magnet:?xt=urn:btih:B066595A792D5FA1A2C67A344FEE55CC2DBAAC16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Terraformers предлагает вам построить космическу
 ```bash
 magnet:?xt=urn:btih:E9ED31A7E4C6965149BC678EFE4EF3F84D3E0DD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Cities: Skylines предлагает по-новому взглянуть на 
 magnet:?xt=urn:btih:C29196DF67D2D9A1C793AE321173EDBDA08142F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Offworld Trading Company (2016) [Ru/Multi] (1.23.68800/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:1E536F867C917A5B5DF265D5FF402183A02EC642
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Citadelum (2024) [Ru/Multi] (build 16078282) Repack seleZen
 magnet:?xt=urn:btih:69B753ACA1F46EF974498C8FED0674D8A4FEBFD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ SteamWorld Build является спин-оффом франшизы Стим�
 ```bash
 magnet:?xt=urn:btih:275EF07E7FC8F33F9B754B7ACD5150DB9FB58CE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Anno 2205 – полюбившийся игрокам симулятор гор�
 magnet:?xt=urn:btih:7BD60437CF6C56AC4164FAF75FE4FF08841AD708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Anno 2205 – полюбившийся игрокам симулятор гор�
 ```bash
 magnet:?xt=urn:btih:8EBE23AD6FDE1FBB9722FD60235A8B0B8FDBC090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Anno 2205 – полюбившийся игрокам симулятор гор�
 magnet:?xt=urn:btih:3CB0CF00752707AE0CD8DF978E0422EA297A3546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Quilts & Cats of Calico - это уникальная и наполненная 
 ```bash
 magnet:?xt=urn:btih:34104A254880EC6F914D3B81B92F805F3F0E2EB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Anno 2205 – полюбившийся игрокам симулятор гор�
 magnet:?xt=urn:btih:0097CBB136C1FFAA783E15B9158B5DDF7FDDAE34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Anno 2205 – полюбившийся игрокам симулятор гор�
 ```bash
 magnet:?xt=urn:btih:98FF5B91DE2B23518128D1411D055A621A879FB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Absolver — сетевые многопользовательские сраж�
 magnet:?xt=urn:btih:B77D64A21500F41455E93D06061CD66723DBB270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Red Faction: Guerrilla Re-Mars-tered (2018) [Ru/Multi] (cs:4931) Repack R.G. Cat
 ```bash
 magnet:?xt=urn:btih:47B3EDF1A89FCC99BC59CFA58C924A202DA222BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Hero Defense - Haunted Island приглашает всех любителей M
 magnet:?xt=urn:btih:383F4C7424E1B9CF11746DC414A2FA02212BB7FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Karma. Incarnation 1 (2016) [Ru/Multi] (1.0/upd1) License HI2U
 ```bash
 magnet:?xt=urn:btih:E21E6C29AD2CE163DB973DC7069D1A242B6C23AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Stronghold Legends (2009) [Ru/Multi] (1.3) License PROPHET [Steam Edition]
 magnet:?xt=urn:btih:03C05F7564AB4AD17E9EA6042260B41105F9D0DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Shu (2016) [Multi] (1.1.0/u1) License HI2U
 ```bash
 magnet:?xt=urn:btih:FDCA66771B8DDDF4B19A643D5ADF5B6390AF59CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Dungeons 3 (2017) [Ru/En] (1.2) Repack Covfefe
 magnet:?xt=urn:btih:D6CB2C52A5B3CFA4FE232DD2F7E0DCA4F2E9BAE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Devil's Hunt (2019) [Ru/Milti] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:47D5669CA49A0C107246D75768F75F08E5FC5061
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Exorcise The Demons (2019) [Ru/Multi] (1.0) License HOODLUM
 magnet:?xt=urn:btih:878735F6754024214022D541E67774B3E3C1C6EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Crysis Wreckage - самостоятельный мод для Crysis, не тр
 ```bash
 magnet:?xt=urn:btih:2E0D9B8A9CEBA02BE521AF9C54E71024965F2B2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Of Orcs and Men [Ru/En] (RePack/1.0) 2012 | R.G. Механики
 magnet:?xt=urn:btih:AEDC73765C8A226FF6747955630DC2765A120FF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Midnight Mysteries 6: Ghostwriting / Тайны прошлого 6: Литера
 ```bash
 magnet:?xt=urn:btih:581C71BF51FA50E9D6A9540B1881ECC939CB7DA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Battlevoid: Harbinger – это сложная игра в жанре косм�
 magnet:?xt=urn:btih:46C3D1151D55B816B0AD15F5ED87F34F3568732C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ EBOLA 3 - переносит вас в великую классику ужас�
 ```bash
 magnet:?xt=urn:btih:6EC6F0B2E13347B639B76DCDCEFAF4B86D123209
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Eisenwald: Blood of November (2016) [Ru/Multi] (1.3) License GOG
 magnet:?xt=urn:btih:4B198A8965DCFA65011E20D31D3010FCC8481F6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Eipix Entertainment с гордостью представляет новейш�
 ```bash
 magnet:?xt=urn:btih:21833A938C60399AA8B691CE1B47FA14F07FA3BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ The Harvest (2013) [Multi] (1.0) Unofficial ALiAS
 magnet:?xt=urn:btih:A39A608B7A3ED54FBD2392807BD9E2BF3A69F00D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Zombie Driver: Summer of Slaughter / Смертельная гонка: Троп
 ```bash
 magnet:?xt=urn:btih:A47C0C8B7CE6369847FFB495825D3A7158AC4BF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:A47C0C8B7CE6369847FFB495825D3A7158AC4BF7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Putrefaction 2: Rumble in the hometown это отдельная кампани�
 magnet:?xt=urn:btih:C9306C9399E992C82DF6954166CE5AA3E52E672F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Putrefaction 2: Rumble in the hometown это отдельная кампани�
 ```bash
 magnet:?xt=urn:btih:DF59C6B8554BF617246140ED765C1A232B0D8261
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Monster Truck Destruction - гоняй,  разрушай и уничтожай!
 magnet:?xt=urn:btih:8BE398077B328602DFA7E8D29777198759D47ED5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Artania (2017) [Ru/Multi] (1.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:341F57C35BC5C9593AC778B81099078E6AE2CB90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Divinity: Original Sin II — долгожданное продолжение з
 magnet:?xt=urn:btih:7A86CB3CB61A7F5D2D745036069CF324A9C870B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Spirit of Revenge 6: Unrecognized Master / Месть духа 6: Непризн
 magnet:?xt=urn:btih:B27EC94B1FAD3A7C4475073829232F532DE16CCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:B27EC94B1FAD3A7C4475073829232F532DE16CCA
 ```bash
 magnet:?xt=urn:btih:A1FD4069F260BB9F9FC00CEBE5548B69499DE636
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

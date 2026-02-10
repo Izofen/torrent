@@ -1,3 +1,32 @@
+###  Публикация: 1024131   (720566) от 07.06.2016
+
+VA - Summer Club Charts (2016) [MP3|320 кб/с] <Electronic, House, UK Garage, Tropical, Progressive, Tribal, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_720566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Mix - Summer Club Charts DJ Mix 2016, Pt.1 01:07:55
+02. DJ Mix - Deep House Anthems DJ Mix 2016, Pt.2 01:17:19
+03. DJ Mix - EDM Festival DJ Mix 2016, Pt.3 01:06:46
+04. Avicii - Waiting for Love 03:50(   Читать дальше...   )Жанр: Electronic, House, UK Garage, Tropical, Progressive, Tribal, Future HouseПродолжительность: 07:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987D4C93BDEE05A4F7CC913E05DE798D98AD5E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024117   (720664) от 07.06.2016
 
 VA - House & Tech Tops Trips Times (2016) [MP3|256-320 кб/с] <Electronic, House, Funky, Tech House, Tribal, Soulful>
@@ -21,6 +50,8 @@ VA - House & Tech Tops Trips Times (2016) [MP3|256-320 кб/с] <Electronic, Hou
 ```bash
 magnet:?xt=urn:btih:B5E7D20DEA1665569AA6E3E18A46B58B3A4B6357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Eurodance Compilation (2017) [MP3|320 Kbps] <Eurodance>
 magnet:?xt=urn:btih:C1B111892CD241D8E090306AEBD9AA9CC23CC54D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Лучший русский шансон выпуск № 11 (2017) [MP3|25
 ```bash
 magnet:?xt=urn:btih:F7D3EBE99C5DE58CFA4A3227BF73AB353A5B421C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Dream Collection. Vol.1 (1996-1999) [MP3|192-320 kbps]<Dream dance>
 magnet:?xt=urn:btih:A84ACBF083B167B0CFFE6C814C5A548261E29879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +165,8 @@ Terror Squad - Lean Back (2017) Remix [MP3|320 Kbps] <G-House>
 ```bash
 magnet:?xt=urn:btih:06B237A7170F4D3EE03271AD1387BF2BBAD85A44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +195,8 @@ VA - не Громкие новинки недели 1 (2019) [MP3|320 Kbps] <Po
 magnet:?xt=urn:btih:C5CE688C92EC41BED97F0A1DB0E94DA8D827B154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +223,8 @@ VA - Love Jazz Playlist: Smooth Musical Collection (2020) [MP3|320 Kbps] <Jazz, 
 ```bash
 magnet:?xt=urn:btih:1C07107491343A4E64FC923EAED3E33695C0470A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +253,8 @@ VA - Midday Riddim (2020) [MP3|320 Kbps] <Reggae, Dancehall, Riddim>
 magnet:?xt=urn:btih:85EA990438E5388BF3BAF96BB83E7D28313F4DEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +281,8 @@ VA - Горячие хиты радиостанций (2018) [MP3|256-320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:76410F8B121CDA7AEB8E27DC8877F41F153C81BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +311,8 @@ VA - Живи стильно! Наслаждайся музыкой с Hit FM (1
 magnet:?xt=urn:btih:7BDF92DF4D1A2907B9F0EFC48E44CF5A337A2F72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +339,8 @@ VA - Vocal Jazz Collection (2018) [MP3|320 Kbps] <Jazz, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:938C4635A22967F24E1CC9135BC6C7C662AAEB68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +369,8 @@ VA - Ocean Of Love: New Generation Italo Disco (2018) [MP3|320 Kbps] <Italo Disc
 magnet:?xt=urn:btih:7A9213C902239E69F74B332372F003E6B2B2A162
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +397,8 @@ VA - Живи стильно! Наслаждайся музыкой с Hit FM (1
 ```bash
 magnet:?xt=urn:btih:EC1BA509ED498A417DEB0C688671D19A5844384B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +427,8 @@ VA - Lounge Interior: Private Mood Set (2018) [MP3|320 Kbps] <Lounge, Downtempo,
 magnet:?xt=urn:btih:8E2B1CB4A67C88CE53E7986533D61FAC8F967F78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +455,8 @@ VA - Presage Of Emptiness (2018) [MP3|320 Kbps] <Heavy, Power, Death Metal>
 ```bash
 magnet:?xt=urn:btih:2A32446C0A8BF68F15932DEB747D9825193AE06B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +485,8 @@ VA - Живи стильно! Наслаждайся музыкой с Hit FM (1
 magnet:?xt=urn:btih:9B4E52B02A4280FC3BFCAC97549136A81EEEE772
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +513,8 @@ VA - Philadelphia Sound (2018) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:9545FBC8FFA2E6846DF65C88FE52801F3664A576
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +543,8 @@ VA - От Земли и До Небес (2018) [MP3|192-320 Kbps] <Pop, Chanson>
 magnet:?xt=urn:btih:4154259BE9EC5135FEC357FE037E9F63B05947A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +571,8 @@ VA - Живи стильно! Наслаждайся музыкой с Hit FM (1
 ```bash
 magnet:?xt=urn:btih:2DCFF437EB691C5AEC0F4A8A5B39AB514B9C05F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +601,8 @@ VA - My Favourite Hits of 1982 (12CD) (2014) [MP3|320 кб/с]<Disco, Pop, Synth
 magnet:?xt=urn:btih:F6B8EA8F068C6D45D61542073E7186DE1E24E79C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +629,8 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:6074D884A95F66F4720672BDDCAD20EA9026F7B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +659,8 @@ Gary B.B. Coleman - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues, Chicago Blu
 magnet:?xt=urn:btih:BBFB4552620987D7CDE8309B2EDFC927839EFE6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +687,8 @@ VA - Acoustic Bossanova Relaxation (2016) [MP3|320 кб/с] <Jazz, Bossa Nova>
 ```bash
 magnet:?xt=urn:btih:E8B84585C8F9030841F24E77988F14147189A5DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +717,8 @@ VA - Песни Про Рыбалку (2017) [MP3|320 Kbps] <Поп, Шансо�
 magnet:?xt=urn:btih:C023233FDFE8A3D90EF2E182C77C25C74510F83D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,32 +746,7 @@ VA - New Music Generation. Vol. 1 (2016) [MP3|320 кб/с] <Club, House, Dance, 
 magnet:?xt=urn:btih:884B980B783A12B296D03FF2EF2C4D9D024FA593
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023806   (722359) от 06.06.2016
-
-VA - Keep Original - Deep Tech Vocals & Electronica (2016) [MP3|222-320 кб/с] <Indie Dance, Club, Deep, Tech, Tribalm Nu Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_722359.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dennis Grkn - Dirty In The Club (Original Mix) 05:22
-002. Man Without A Clue And Alias Rhythm - What We Had To Do (Extended Mix) 06:34
-003. Gebreski - Salvador (Original Mix) 06:20
-004. Marc Karsten - Gros Balourd (Original Mix) 07:16(   Читать дальше...   )Жанр: Indie Dance, Club, Deep, Tech, Tribalm Nu DiscoПродолжительность: 11:27:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF7E017FB8C5B799DC2CB3F069E2D2E4F24C077F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 236144   (524476) от 13.08.2017
+
+Крейсер "Варяг" (2005) DVDRip
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_524476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крейсер "Варяг" - самый знаменитый корабль Российского флота. Бой этого крейсера с японской эскадрой на рейде далекого корейского порта Чемульпо стал первым сражением Русско-японской войны 1904-1905 гг., произошедшим на глазах многочисленных иностранных наблюдателей. Неудивительно, что он вызвал огромный резонанс. Имя "Варяг" появилось на первых (   Читать дальше...   )Жанр: Документальный.Язык субтитров: Английские.Продолжительность: 01:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F018EDDBC07243CEFB1678353A942C47685EEDCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157621   (524485) от 13.08.2017
 
 Событие / Sobytie (2015) WEB-DL [H.264/720p-LQ]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:B345F6B7630B63CBCA3B072B842AFAE1B962C421
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:B345F6B7630B63CBCA3B072B842AFAE1B962C421
 magnet:?xt=urn:btih:CFF6F9CD843DB2AA7A31D5B4F8167F06F3261F22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:CFF6F9CD843DB2AA7A31D5B4F8167F06F3261F22
 ```bash
 magnet:?xt=urn:btih:2FB120AA6C9EDFD2FD3F85E4036AE5C72224DEF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:2FB120AA6C9EDFD2FD3F85E4036AE5C72224DEF5
 magnet:?xt=urn:btih:B977CD72C0986E99EBFBDFFE9F325B933CF55CAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:B977CD72C0986E99EBFBDFFE9F325B933CF55CAE
 ```bash
 magnet:?xt=urn:btih:DEC4B5A18D4A9265580A05536569438AC6DE691A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:DEC4B5A18D4A9265580A05536569438AC6DE691A
 magnet:?xt=urn:btih:4667564B5233D6E08D5044198C6721547F5FC9BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:4667564B5233D6E08D5044198C6721547F5FC9BD
 ```bash
 magnet:?xt=urn:btih:3B7A80A214D5E7A5B84D195444E0C828825634F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:3B7A80A214D5E7A5B84D195444E0C828825634F2
 magnet:?xt=urn:btih:DA8DC610353C0EAF8134109714A09104C4CD1FAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ Discovery: Полный форсаж / Fat N' Furious: Rolling Thunder (2014) HD
 ```bash
 magnet:?xt=urn:btih:197070410AC6BC6DA2DCE40782587728E23B6BA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:197070410AC6BC6DA2DCE40782587728E23B6BA0
 magnet:?xt=urn:btih:65CE0F321F876C9A4A1E034804932A0A35D435D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:65CE0F321F876C9A4A1E034804932A0A35D435D9
 ```bash
 magnet:?xt=urn:btih:181898A2153F40979B0BCD850E3A93618ED50605
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:181898A2153F40979B0BCD850E3A93618ED50605
 ```bash
 magnet:?xt=urn:btih:40EAC42C0AE6512B1A4A1FE0013D245620771111
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:40EAC42C0AE6512B1A4A1FE0013D245620771111
 magnet:?xt=urn:btih:1B2D6A44412F99D9C16882A78AEFBB09487AC39A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:1B2D6A44412F99D9C16882A78AEFBB09487AC39A
 ```bash
 magnet:?xt=urn:btih:4525D3582BA784E9C8A1040E5E97FEA2C53A2D38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:4525D3582BA784E9C8A1040E5E97FEA2C53A2D38
 magnet:?xt=urn:btih:C64BE09E22195976947181F75EDDFC90FBA3CD08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:C64BE09E22195976947181F75EDDFC90FBA3CD08
 ```bash
 magnet:?xt=urn:btih:976AF2AEE9DE94C579801851317B4012D957D210
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:976AF2AEE9DE94C579801851317B4012D957D210
 magnet:?xt=urn:btih:7999494FED71D2DA13D7F957CCBCA55CA6379040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:7999494FED71D2DA13D7F957CCBCA55CA6379040
 ```bash
 magnet:?xt=urn:btih:C7A0524CA61C0C0D4CD0A400D582AB2280483AE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:C7A0524CA61C0C0D4CD0A400D582AB2280483AE1
 magnet:?xt=urn:btih:969102B41E5EE7AF8034D2D6D799A972826C2F03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:969102B41E5EE7AF8034D2D6D799A972826C2F03
 ```bash
 magnet:?xt=urn:btih:92B64B1F82E1AD4B410A276E585AF9B434E42068
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:92B64B1F82E1AD4B410A276E585AF9B434E42068
 magnet:?xt=urn:btih:C7A5C7978F5056DE7ACE003E99F19C7AA86269CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:C7A5C7978F5056DE7ACE003E99F19C7AA86269CA
 ```bash
 magnet:?xt=urn:btih:70C9720433A671F965B0B9F6F952E140CFA9F1C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:70C9720433A671F965B0B9F6F952E140CFA9F1C6
 magnet:?xt=urn:btih:A90A0B97A5584E8525D70507280EFCFF157B54D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:A90A0B97A5584E8525D70507280EFCFF157B54D1
 ```bash
 magnet:?xt=urn:btih:0A839867B2DEB96E488C31141DE2954748BC8357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:0A839867B2DEB96E488C31141DE2954748BC8357
 magnet:?xt=urn:btih:E1C692E3019ADC0C9D8AD1E2A8F2B31ADC096669
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053521   (525915) от 17.09.2016
-
-Битва экстрасенсов (2016.09.17) DVB (сезон 17, выпуск 3)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525915.jpg" />
-</div>
-
-
-###  Подробнее
-
-С 3 сентября на ТНТ стартует долгожданный 17-й сезон «Битвы экстрасенсов» — самого мистического, непредсказуемого и загадочного проекта российского ТВ. Масштабный кастинг, новые яркие участники и высокие технологии в мире экстрасенсорики. Новый сезон обещает стать самым необычным и удивительным в истории шоу. «Мне бы очень хотелось, чтобы в новом сезоне экстрасенсы (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:338AFA056BA81848B6017A21EC57B7B2562F6924
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

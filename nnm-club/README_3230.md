@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - The Orient Collective: Journey to the Soul (2024) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:4E7E7D4B6B31FE72D529BB21E789A80462731B01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:4E7E7D4B6B31FE72D529BB21E789A80462731B01
 ```bash
 magnet:?xt=urn:btih:D9A104180490282258783E0854B1B4D06FB99DF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:D9A104180490282258783E0854B1B4D06FB99DF8
 magnet:?xt=urn:btih:AA33D54A891096C0910561211563B4308D5FE512
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:AA33D54A891096C0910561211563B4308D5FE512
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Shakira - She Wolf (2009) Expanded Edition, 2009, Epic [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:98A22819EECE5447726E8071F56BB6914EB9E8D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Cyclone B - War (2024) [MP3|320 Kbps] <Dark Electro, EBM, Industrial>
 magnet:?xt=urn:btih:E2EE49FDDCBA03E12CFC676B09F15B677F307AEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:E2EE49FDDCBA03E12CFC676B09F15B677F307AEA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ London Grammar - The Greatest Love (2024) Deluxe, 2024, Ministry of Sound Record
 magnet:?xt=urn:btih:120D8501512151007169F7D091AEF88D03F00BDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ Chicago - Chicago At The John F. Kennedy Center For The Performing Arts, Washing
 ```bash
 magnet:?xt=urn:btih:C227AFAF01DF4D14441B3CB982EF5EAC49581A9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ Babbba - Smooth jazz club (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jaz
 magnet:?xt=urn:btih:202DF0C64D41373F39186772EB2A76B4E5704515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ VA - Just Blues (Soulful Groovy Tunes, Vol. 1) (2024) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:D0D95F6128178387CDB31B160E4728FBE963BC52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +354,8 @@ VA - Always Progressive, Vol. 1 (2024) [MP3|320 Kbps] <Progressive House, Melodi
 magnet:?xt=urn:btih:2356D0440B336C19E40B0D2D89D80CE1758598E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ Frank Sinatra - A Superb 2CD Collection Of Ol' Blue Eyes Classics (2002) 2CD, Ai
 ```bash
 magnet:?xt=urn:btih:CFB9B977EF3485BB3A35FB609901FA4F119A2CAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +412,8 @@ VA - Country Blues: The Ultimate Collection, Vol. 1 (2024) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:8B6CBA2AF6B13A4F09173ECEB5D0FBA5F8F32751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +441,8 @@ VA - Pretty Little Deep-House Friends, Vol. 2 (2024) [MP3|320 Kbps] <House, Deep
 magnet:?xt=urn:btih:123CC63196131AEE55D2A1C90CA21071379DC564
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +469,8 @@ magnet:?xt=urn:btih:123CC63196131AEE55D2A1C90CA21071379DC564
 magnet:?xt=urn:btih:2C1AD89F2ABF9D116FD12C50BAFCAD3231B353F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +494,8 @@ magnet:?xt=urn:btih:2C1AD89F2ABF9D116FD12C50BAFCAD3231B353F3
 ```bash
 magnet:?xt=urn:btih:B1B2F8A28C2A02038427C6E135B82BEEF29C7973
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +521,8 @@ magnet:?xt=urn:btih:B1B2F8A28C2A02038427C6E135B82BEEF29C7973
 magnet:?xt=urn:btih:EFAE332CF58711047F53E43E08C18D48FB9115F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:EFAE332CF58711047F53E43E08C18D48FB9115F8
 ```bash
 magnet:?xt=urn:btih:6E50C9E68DCCAD9C7890DD9C30CC6EF7EFE06460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ MotoGP. Этап 16 из 20. Гран-при Японии. Гонка (06.10.202
 magnet:?xt=urn:btih:EF945C6E8F93D1244EF478B0593E057FFB05EDF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:EF945C6E8F93D1244EF478B0593E057FFB05EDF5
 ```bash
 magnet:?xt=urn:btih:C801D5DE8EAD4F5812894A309224DE2020C2AE9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +629,8 @@ Lemon Pepper Hangover - Lemon Pepper Hangover (2024) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:F32AEDC4AE4B2FDAC87B81D644825DF3F935CA5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +657,8 @@ Twelve Foot Ninja — австралийская группа из Мельбу�
 ```bash
 magnet:?xt=urn:btih:51237C2C33634F573D1C3D56111D1023A5DB5C7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +687,8 @@ Airborne Blues Virus - Get on Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:4743ACF4494281D7CD660FB553DACAAAF73DE40D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +715,8 @@ Travis Bowlin - Hooks & Grooves (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:5D244F022E71DC5BAE97D19AAA6F49BD22ECCAAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

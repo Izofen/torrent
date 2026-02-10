@@ -1,3 +1,29 @@
+###  Публикация: 1022155   (729306) от 01.06.2016
+
+Джеймс Гарни | Цвет и свет (2013) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_729306.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга адресована не только продвинутым художникам, но и начинающим. Данное подробное пособие также будет интересно всем, кто интересуется законами зрительного восприятия. Это настоящий настольный справочник для всех любителей рисования!  Великолепные иллюстрации из известной книги Джеймса Гарни «Динотопия» в данном пособии играют роль поясняющего материала. Подробные (   Читать дальше...   )Жанр: Живопись. Теория и техникаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8671A969827055F18D8E16298983D4D2B9B9F5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 324897   (729348) от 18.04.2011
 
 140 советов для мужчин [2011] [DOC]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:8153F23EE1497665116FC56BC8A3EF6EE125745D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:8153F23EE1497665116FC56BC8A3EF6EE125745D
 magnet:?xt=urn:btih:6FF6C6802DE0123199C918F525C71DCC36E5F7E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:6FF6C6802DE0123199C918F525C71DCC36E5F7E1
 magnet:?xt=urn:btih:1318F658A4F6018F381E6E5A5469713E8EF2BC7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:1318F658A4F6018F381E6E5A5469713E8EF2BC7D
 ```bash
 magnet:?xt=urn:btih:BDAFD04293FEE5A8EEF7D8E73A036A362A988840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:BDAFD04293FEE5A8EEF7D8E73A036A362A988840
 magnet:?xt=urn:btih:1DD2B60680B66644E654238BFC4FA1171B31D944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:1DD2B60680B66644E654238BFC4FA1171B31D944
 magnet:?xt=urn:btih:7EDFFF031EFC9A382C8843A8B52EB0FDF3E41068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:7EDFFF031EFC9A382C8843A8B52EB0FDF3E41068
 ```bash
 magnet:?xt=urn:btih:5720F0BA9C979D372944F71E8360C83F10386155
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:5720F0BA9C979D372944F71E8360C83F10386155
 magnet:?xt=urn:btih:C4090836C34AFFAE55773298FF23D32E02842FA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:C4090836C34AFFAE55773298FF23D32E02842FA9
 ```bash
 magnet:?xt=urn:btih:BF464D99094F68F80617E8A5057AB62DA0BFEC31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:BF464D99094F68F80617E8A5057AB62DA0BFEC31
 magnet:?xt=urn:btih:E40150D1E47C4F0D59546882A2FE1D00A127F06F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:E40150D1E47C4F0D59546882A2FE1D00A127F06F
 magnet:?xt=urn:btih:38A55D0C09636D912EFC5617DA7776864C1A3DD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:38A55D0C09636D912EFC5617DA7776864C1A3DD5
 ```bash
 magnet:?xt=urn:btih:050CEC0C57A1D78EA1C35318870AD2934F3629C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:050CEC0C57A1D78EA1C35318870AD2934F3629C6
 magnet:?xt=urn:btih:0CDE89D7091B8A4D0C3C56E553043863BAEE68F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:0CDE89D7091B8A4D0C3C56E553043863BAEE68F4
 magnet:?xt=urn:btih:B65F29BFD93D7C053A4B9ED4ABD286F1DC34A26D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:B65F29BFD93D7C053A4B9ED4ABD286F1DC34A26D
 ```bash
 magnet:?xt=urn:btih:034AD5305A0E02482462F3105E5AE6DF33B9839C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:034AD5305A0E02482462F3105E5AE6DF33B9839C
 magnet:?xt=urn:btih:E62AF9179FA2FB9941193F97CC448F659E68FE57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:E62AF9179FA2FB9941193F97CC448F659E68FE57
 ```bash
 magnet:?xt=urn:btih:2DAC53FE3D635079ED748B8EDCAE0C282685424D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:2DAC53FE3D635079ED748B8EDCAE0C282685424D
 magnet:?xt=urn:btih:1B5C08F72C0E39D20B2881D2D304A53269E8EC97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:1B5C08F72C0E39D20B2881D2D304A53269E8EC97
 ```bash
 magnet:?xt=urn:btih:E04F2BC0626BCA5B227C911AAC5D5F5D8A743EB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:E04F2BC0626BCA5B227C911AAC5D5F5D8A743EB0
 magnet:?xt=urn:btih:8B38EC808966D0E6B98376291D013F4720A8C4C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:8B38EC808966D0E6B98376291D013F4720A8C4C5
 ```bash
 magnet:?xt=urn:btih:32E74206621827E3A871EBF98E01C0E3CC2357A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:32E74206621827E3A871EBF98E01C0E3CC2357A8
 magnet:?xt=urn:btih:A364A27822E925DD5A7768C9F44BE94DFE06F277
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:A364A27822E925DD5A7768C9F44BE94DFE06F277
 ```bash
 magnet:?xt=urn:btih:6209E0267AD126249921192377865C51B0A3324D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:6209E0267AD126249921192377865C51B0A3324D
 magnet:?xt=urn:btih:65078F442AAB1A73433B2FE56592DB9B63CA08B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:65078F442AAB1A73433B2FE56592DB9B63CA08B1
 magnet:?xt=urn:btih:7EFCCFFDB2CC414D2FB9ED6E008CFECEBFC93CBE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283728   (731700) от 18.02.2019
-
-Марк Темников, Вадим Пустовой | Дача мини-люкс (2019) [PDF, RTF]
-
->>Разное (категория книг)
->>Строительство и ремонт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга о том, как модернизировать вагон-бытовку. Простые советы для простых людей. Всё можно сделать своими руками, с минимумом затратЖанр: Строительство, ремонтФормат: PDF, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6400FA9AB14888FA302480E10EE13EB6EC8DF5D2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

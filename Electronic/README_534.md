@@ -22,6 +22,8 @@ Satin Jackets - Reunion (2022) [FLAC|Lossless|tracks + .cue] <House, Deep House,
 magnet:?xt=urn:btih:7C9A829989C692E6010B56C89B3FCA3EE64DCDFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Hammock - Love in the Void (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric, Po
 ```bash
 magnet:?xt=urn:btih:4EA782727E4073B40052FD9E93DCCC6DD6D7D8CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - The Soundgarden: Winter Collection 2023 (2023) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:CA39D72570894420467DD8F681B294C9EDA04A9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Activa - Origins (2023) Expanded Edition [MP3|320 Kbps] <Trance, Progressive, El
 ```bash
 magnet:?xt=urn:btih:B9A8A6122C052F9E017CACC1EFAAA94C5F41E32B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Trance Party 2023 (2023) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:A248E836A2B8F41A932400436187350182D4412E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Cyber Attack - Cyber Agression (2010) [OGG Vorbis|480 Kbps] <Electronic, Synth-p
 ```bash
 magnet:?xt=urn:btih:13338A26C700D4C44F794E8A153A5F94555A8823
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ VA - Chillout Winter Gems 2023: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:AC0FF274D97C314330DCC36C1BA17037930A5250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ VA - Black Hole Trance Music 01-23 (2023) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:2ABE874D347A56199200D4BB19244692B8E556FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ Dj Nikk - The Millenniummmix (2000) [FLAC|Lossless|tracks + .cue] <House, Hard H
 magnet:?xt=urn:btih:8CEE52F090F6665B1AECC474F2D4123F8F93CA43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ VA - Black Hole House Music 01-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 ```bash
 magnet:?xt=urn:btih:1927FCA016E35ED9C8FA6C2E425A115CC2AC19E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +310,8 @@ Laibach - 2019 - So Long, Farewell (Single)(   Читать дальше...   )�
 magnet:?xt=urn:btih:03FAC31E41B9E153233D71840965CBAA2C104B8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ VA - Black Hole House Music 01-23 (2023) [FLAC|Lossless|WEB-DL|tracks] <EDM, Clu
 ```bash
 magnet:?xt=urn:btih:81F1770163F069F9DFE3CA8BFE3D3D8A1D0CAAA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +368,8 @@ Laibach - REvisited (2 Relises) (2020) [MP3|320 Kbps] <Industrial, Ambient, Spok
 magnet:?xt=urn:btih:340A5AB01DC827BAE3E13365AA91602BB2FC626C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ VA - Armada Chill - Winter 2023 [MP3|320 Kbps] <Progressive House, Organic House
 ```bash
 magnet:?xt=urn:btih:5BEEAD838877FC353AB42037641D93AF52BEDD20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +426,8 @@ VA - A Quiet Healing: Body & Mind Relaxing Playlist (2023) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:BAD50B0FBABDCB00CA7D0C01C1D37B9E6CC74EB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +454,8 @@ Obscurity - The Enigma TNG (2023) [FLAC|Lossless|WEB-DL|tracks] <Cyberpunk, Indu
 ```bash
 magnet:?xt=urn:btih:815958C1789F3F2EE34E778B6D41B0ED928A4E78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +484,8 @@ Violet Fears - Thrillogy (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrow
 magnet:?xt=urn:btih:C28C2838D8EE56E2A4C65FBB1BC546BE7AA1D2BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +512,8 @@ Boundless - 100Sec to Midnight (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 ```bash
 magnet:?xt=urn:btih:4C6394930EFE1FA6FD13A38112EAE41141838B39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +542,8 @@ Danilo Ercole - Profundo Collected Vol.2 (2023) [FLAC|Lossless|WEB-DL|tracks] <P
 magnet:?xt=urn:btih:D92404ADF85B8205DD049EECF1FB03B6627629D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +570,8 @@ VA - Uplifting Trance 2023 [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:53BB9610532547457BAD3579935F684A4C5DE9CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +600,8 @@ VA - Дискотека 2000 (1999) [FLAC|Lossless|tracks + .cue] <Trance, House
 magnet:?xt=urn:btih:E636DF7FC491DF818504E0BD73A62DB20E3CF601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +629,8 @@ Kraftwerk - Minimum-Maximum (2005) 2 CD [OGG Vorbis|520 Kbps] <Electronic, Elect
 magnet:?xt=urn:btih:744FB5AEABAC52C6A3D6A80FF1D7201913BFEA27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ Above & Beyond - Group Therapy Best Of 2022 pt.2 (2022) DJ Mix [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:7CF06366E462198B1CBD562AE9FEBE3F14B90AC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +686,8 @@ VA - Planeta Mix Hits 2023: Winter Edition (2023) CD, Compilation [MP3|320 Kbps]
 magnet:?xt=urn:btih:BAD40834629B8EA948F8C7A7D75EBAF8427FF2CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ magnet:?xt=urn:btih:BAD40834629B8EA948F8C7A7D75EBAF8427FF2CE
 magnet:?xt=urn:btih:94E3EC6277A06E66FC964C7937DB3971A1769BA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ Denis Kenzo & Whiteout - Intelligency (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog
 ```bash
 magnet:?xt=urn:btih:B84C2AAB40DD0E2CAB9A793E0F14EEC5A0114270
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

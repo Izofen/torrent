@@ -19,6 +19,8 @@ Cambridge English Pronouncing Dictionary (CEPD) представляет соб�
 magnet:?xt=urn:btih:C1C97F74F98EEB1280E1076294CB115C76BFE94D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Spelling Master: Spell & Vocab 2.21 [En]
 ```bash
 magnet:?xt=urn:btih:D0467790BE49A0C0A2A5BA498C6010C18EC33690
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Bright использует топ-метод интервального пов�
 magnet:?xt=urn:btih:514AA58CA9763CBF165178A70CEAB7DBDE88409E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ ElectroBox - Electronics 15 [En]
 magnet:?xt=urn:btih:C4B0F0B8C6647A0A73278038824AA132DEF5FAE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ RAR компании RARLAB способен создавать RAR и ZIP и р
 ```bash
 magnet:?xt=urn:btih:9B9448181331525B5BDD477ECD22FF15AB0F5FD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ BimmerLink for BMW and MINI - приложение, что пригодится 
 magnet:?xt=urn:btih:2E187693F235D0D852A548639F719936B8468427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ GeoZilla GPS трекер, который позволяет вам узнать
 ```bash
 magnet:?xt=urn:btih:95049A04318FEC2FBF08F3599A5DAA2647486897
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Music Editor / Музыкальный редактор - весьма и вес�
 magnet:?xt=urn:btih:F3350B9DD871227AAD19FC53CD8DB54DB5D88A17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ KineMaster - ещё один представитель когорты виде�
 ```bash
 magnet:?xt=urn:btih:792C565C87211CFCBF32CC2C282FEAF9F1A88D07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Pocket - это программа для сохранения интересу�
 magnet:?xt=urn:btih:C5E32D6B50534729C44AF464D09AD6C021FF5BA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ AirBrush - удобный, быстрый и очень результативн
 ```bash
 magnet:?xt=urn:btih:B48152A36A337A0176EEC7B6A5B1C44AA534B853
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ SmartOffice Pro - это не просто сборник офисных при�
 magnet:?xt=urn:btih:A9473600F9BB94C93595EC854BFC69448703FB9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Librera PRO: Читалка для книг - это Удобное и легк�
 ```bash
 magnet:?xt=urn:btih:3D43BA2F6B908C004AA7136C025B4F70DE01A64B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ BimmerCode for BMW and MINI - приложение, что пригодится 
 magnet:?xt=urn:btih:75E5075BCA017D74BDA1C097CB5591178A5A4C87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Briar - это приложение для обмена сообщениями, 
 ```bash
 magnet:?xt=urn:btih:DB2A32464076BF3ABDFBA0A9F9F20C855885D8E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ iScanner - Сканер Документов v3.68.3 [Ru]
 magnet:?xt=urn:btih:D4D4C0664A29AFD1ED34434E0268E2297DEA4274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ GIF Maker - GIF Editor - видеоредактор, что создан для 
 ```bash
 magnet:?xt=urn:btih:F67287C55C8FFE718C877D255E77178E8B4209EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Unit Converter - полезное приложение, инструмент, к
 magnet:?xt=urn:btih:22568942A6FBEAB6AE6F4773522C2F4B7D73D4C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Niagara Launcher - отличный проект по персонализаци
 ```bash
 magnet:?xt=urn:btih:AE7C7839B41AD9DA33C2892332BFB62B96D8C944
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:AE7C7839B41AD9DA33C2892332BFB62B96D8C944
 magnet:?xt=urn:btih:4718A165CF200EC10EE0BF60BE9D666C4C2C792D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:4718A165CF200EC10EE0BF60BE9D666C4C2C792D
 ```bash
 magnet:?xt=urn:btih:3FD37CA4BF76659FB6353C65C7022D51F7E61025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ AR GPS Compass Map 3D Pro - 3D-компас дополненной реальн�
 magnet:?xt=urn:btih:67F9C68C84320CCEACC607F74F9F7311C19DFDA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:67F9C68C84320CCEACC607F74F9F7311C19DFDA7
 ```bash
 magnet:?xt=urn:btih:F116803B9120CD1D34B2A39797991E95DBEE3586
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ VTC Radio - настоящее виртуальное дорожное ради�
 magnet:?xt=urn:btih:A23446DBC3EDE31FED0717032C3EE3DC3D0C086B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ Polarr v6.7.9 [Ru/Multi]
 magnet:?xt=urn:btih:9DFAE4BBF82A0DB0907BED27C24DB4F456A9F789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:9DFAE4BBF82A0DB0907BED27C24DB4F456A9F789
 ```bash
 magnet:?xt=urn:btih:0FA560C4B44F4B09B79B90726A2F7CF83B911CFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

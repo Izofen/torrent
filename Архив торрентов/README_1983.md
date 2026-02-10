@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:97FB3E20622F8CC4574F25275219497589301C16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VA - Escapism 4 (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:6536F3695C8A08823FFC9AA1A99B9845AFEFA83B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - 15 Years Of Secret Operations (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & 
 magnet:?xt=urn:btih:B7781F5D8188FDB2F7B54914F41917AA6DBC07AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ VA - Innovations Vol.1: Mixed by Synfonic (2017) [MP3|320 Kbps] <Trance, Psyched
 magnet:?xt=urn:btih:EF063F38946BF72B3E794DA004291344352CD862
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:EF063F38946BF72B3E794DA004291344352CD862
 magnet:?xt=urn:btih:C9996310D83470C355E16B8F723206D987ED2B1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Ableton Live 10 Suite представляет собой самое полно�
 ```bash
 magnet:?xt=urn:btih:A715AF9F7A24AB12F1BCDC1151CB62AE120FA010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:A715AF9F7A24AB12F1BCDC1151CB62AE120FA010
 magnet:?xt=urn:btih:85BA0C32E07E89CAF5692FC1D2A92B48A5C0F20B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:85BA0C32E07E89CAF5692FC1D2A92B48A5C0F20B
 magnet:?xt=urn:btih:5F78D6FCC3605C9A29039BE8D216D24D0B1BC8DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:E74732766BF4A71CBE4B36E9C275961D3847BF67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ Far manager — бесплатный файловый менеджер с под
 magnet:?xt=urn:btih:EDBBDC4B53885891E5C65DBFBBE0568C4C50E5C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Format Factory - многофункциональный конвертер ра�
 ```bash
 magnet:?xt=urn:btih:31D931CF5FCF078E57521E7F6ADA4FBBF34715F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:22ED3B9E837C0E8CF264BFD4197EE557DEB270FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:4FECB2DD19698D9C7240F8CF4F4AFCC0976C34BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ VKMusic - программа, позволяющая скачивать с ко�
 magnet:?xt=urn:btih:3E174BF157B207D82B71AE8C918E5750847E94DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ GPU Shark - небольшая бесплатная и очень простая
 ```bash
 magnet:?xt=urn:btih:D7F550AA160900148A27A29CF5B64962AC78F44E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ Studio One — Полноценный секвенсор (DAW) для созда
 magnet:?xt=urn:btih:F0090326D5C5D7DCE2D72FCA3D398F78FA49866D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:F0090326D5C5D7DCE2D72FCA3D398F78FA49866D
 magnet:?xt=urn:btih:191A3893A51E3D4E373D8EB5F2EA8CD6AE9DC0F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ SnagIt предлагает неограниченные возможности 
 ```bash
 magnet:?xt=urn:btih:DB6BE159146250F4D44BBF2D966A7C8AA187C58A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ PTE AV Studio Pro - дальнейшее развитие программы Pic
 magnet:?xt=urn:btih:F8F03E79C9846BC795ECEE9EB5D2600C4A76255D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:75299EB308B734573C080EA3488C87F480697119
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ Radiocamp - программа для прослушивания интерне�
 magnet:?xt=urn:btih:22BA6CC1B63F1BD324FDDFAC9D5B7252360DCC29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ Vidiot - простой и бесплатный нелинейный видео�
 ```bash
 magnet:?xt=urn:btih:DF30F9B041585F2521B6C8EF623FD7FDD4C00771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ Auslogics Disk Defrag - это профессиональная версия к�
 magnet:?xt=urn:btih:0F48FD34DE4EAFD1900F9B34CF0CFD5AC511B475
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ GPU Caps Viewer - информационная утилита, позволяю�
 ```bash
 magnet:?xt=urn:btih:1FD85FA05B376DC30ED2A3CCD984DB9F0D739145
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ BluffTitler - программа для создания красивых тек
 magnet:?xt=urn:btih:76C548FB0F631B470E9C93CEF420E48A2B193F5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 ```bash
 magnet:?xt=urn:btih:3E54229E3736022F54F3FA10369C6DE5954C8584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Bob Moses - Battle Lines (2018) Domino Recording [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:75ADCAD93AFF012922E03064E04AA8AFC5A8F865
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Uplifting Only: Fan Favorites 2016-2017 (Mixed By Ori Uplift) (2017) [FLAC|
 ```bash
 magnet:?xt=urn:btih:C65E9851FC9E6F535658BF874045C52D7EE45DE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Vocal Trance Gems - Best of 2018 (2018) [MP3|320 Kbps] <Trance,Vocal Trance
 magnet:?xt=urn:btih:727DB54E8F4475DB0EAEFF02E59AC50C2A6F7C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Markus Schulz:
 ```bash
 magnet:?xt=urn:btih:16E3E6D5F1AFF158628731FB1F5FCA1B61EA37E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - A State Of Trance - Future Favorite Best Of 2017 (Extended Versions) (2017)
 magnet:?xt=urn:btih:17F460346D2C51AAB2D9E6F6D9060C752CE0752B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Pantha Du Prince - Coming Home (2017) Stereo Deluxe [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:4F02E0192FE6FFA5A5817F71CE73625BB865EF18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Best Of Chillout Vol.07 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 magnet:?xt=urn:btih:DB7490C4A9AE2710363AE8E7B4A2B06D69839574
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Redux Presents: The Finest Selection (Mixed by Rene Ablaze) (2017) [MP3|320
 ```bash
 magnet:?xt=urn:btih:348D21E814FA1DEF152301312EA37E779B42D5FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Alter Future - To New Horizons (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:7AF55985B9B2BE7E36F355698A62FA16AB61015C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - TFB Records: Best Of 2017 Part 1 (Mixed  by Aldo Henrycho) (2017) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:2DDE067787AD167D07C4E9F315D72CD005BD8F85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Dark Club Vol.3 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 magnet:?xt=urn:btih:079ED9019E78550F9A82F711037F114A72FF8174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Supernatural - Dreamcatcher (2002) [FLAC|Lossless|image + .cue] <Dance Pop, Synt
 ```bash
 magnet:?xt=urn:btih:5EDBEEB7A0D6E68027D60E7FD363663982393914
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Recoverworld Trance Sessions 17.07 (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:BC308C1D7601E7CE5C51DE7DDAC771EFDEA0701F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ VA - Practikompilation Vol. 1 (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:53AAFD2CE853EBFE6D3BEE9AF71A468689417F9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ Ledo - Frozen / Under the Skin (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 ```bash
 magnet:?xt=urn:btih:0368D7CA8749E1B64F354D5FD19BA0F1F73911E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ Ice_Eyes - Discography 7 Releases (2015-2019) Seagrave, Genot Centre, Nutty Womb
 magnet:?xt=urn:btih:8BB041420F35F789BE4A166178724E87442B8A3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +480,8 @@ VA - Chill-Out - Relaxing Music, Vol. 1 (2016) [MP3|320 Kbps] <Downtempo, Chillo
 ```bash
 magnet:?xt=urn:btih:0DEC5061B0F4A0CF88CB9152B2393FA335088CAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +510,8 @@ VA - Xmax Deephouse Hot Traxx (2016) [MP3|320 Kbps] <House, Tech House, Deep Hou
 magnet:?xt=urn:btih:7C624DDE2FECBAD3BCBB7BC9B7016BAD32128F88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +538,8 @@ VA - Tea Time Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:FBB2FF56713B126302B1EA34BC2A909982955B6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +568,8 @@ VA - Hangover Music (The Relaxing Chillout Sound Migraine & Headache Remedy) (20
 magnet:?xt=urn:btih:742A636047E006DC6BDE4EF232011287D75CA125
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +597,8 @@ VA - Ambient Feelings: The Finest Ambient and Chill Music (2016) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:92851F672EF773D125DE40A1FDC9A7783D546076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +622,8 @@ Logical Elements - Discography 15 Releases (2009-2018) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:32541609CE2D3F7B60B3FC4F6A0959ED50713788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +652,8 @@ VA - Uplifting Trance 2019 (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance,Upliftin
 magnet:?xt=urn:btih:201323A86733D7D21D59AC1B11BEFAEB009E3D6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +680,8 @@ Wychdoktor - Hexen (2015) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Dark Ambien
 ```bash
 magnet:?xt=urn:btih:07FFB90AECE8162D383D445FB4E84AAB440C77D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +710,8 @@ VA - Best Of Chillout Vol.08 (2018) [MP3|320 Kbps] <Downtempo,Chillout,Lounge>
 magnet:?xt=urn:btih:68C3FA113E20C21433C7187146D6DB4C2EFBA21B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,6 +738,8 @@ VA - Best Of Deep House (Deluxe Version) (2016) [MP3|320 Kbps] <House, Deep Hous
 ```bash
 magnet:?xt=urn:btih:063AEA85CAA6D9EEBDDE97A22034A65D0032E416
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

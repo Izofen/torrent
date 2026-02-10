@@ -19,6 +19,8 @@ Nat Geo Wild: Зимний сезон / Wild Winter (2016) HDTVRip [H.264/720p-L
 magnet:?xt=urn:btih:4930548404DF6816C8B21B39DF972F3B3ABE476C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ BBC: Как искусство сотворило мир / How Art Made the Worl
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ BBC: Инстинкт человека (Человеческие инстинк�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ BBC: Волк / The Wildlife Specials: Wolf (1997) DVD-5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ BBC: Волк / The Wildlife Specials: Wolf (1997) DVD-5
 ```bash
 magnet:?xt=urn:btih:04AB96BE0A918A3A228C74FA0A26FC76D53BDB00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Discovery: Смертельный улов / Deadliest Catch (2007) TVRip (Се�
 magnet:?xt=urn:btih:C32B871EA12C39F5B449F58D9415BA77C36073E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Discovery. Большое и Ричард Хаммонд  / Richard Hammond's Bi
 ```bash
 magnet:?xt=urn:btih:68948FE947E50C93251450752013D5B2DA833115
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ BBC: Захватывающая история криминалистики / Ca
 magnet:?xt=urn:btih:7328CBA8BDF73D54EF02943184FB771BAEDDEA93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ BBC. Охота / The Hunt (2015) BDRip [H.264/720p] [Сезон 1, серия 7
 ```bash
 magnet:?xt=urn:btih:A5DC2D78836C48E55337888E9A34969774E05C1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ BBC: Что такое свет / Light Fantastic (2004) [2 х DVD5]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ BBC. Биологические часы: как они работают? / Body
 ```bash
 magnet:?xt=urn:btih:4A18C60D25A46A1EA14E2A3E51BBD02E203BF614
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:4A18C60D25A46A1EA14E2A3E51BBD02E203BF614
 magnet:?xt=urn:btih:955A61B3C48510D6000ADCF4DED7B29621E9E560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ BBC: Серенгети / Serengeti II (2021) WEBRip [H.264/720p] (сезон 2,
 ```bash
 magnet:?xt=urn:btih:56BAC460E84B0C73389FC6A861D5768F345DFCE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ NG: Дикая природа России / Wild Russia (2009) BDRip [H.264/720
 magnet:?xt=urn:btih:9CCE43DD86D64358D0E0362623D7279E8CBA7504
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ NG: Доисторические хищники / Prehistoric Predators  (2009) 
 ```bash
 magnet:?xt=urn:btih:E37E8E53A5D4C007B522F2991E8224A96470D928
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Discovery: Смертельный улов / Deadliest Catch (2005) TVRip (Се�
 magnet:?xt=urn:btih:CBC9955AA88229F89E41D0E23F3DD5AAC9BCC974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ NG: Дикая Флорида  / Wild Florida (2013) BDRip [H.264/720p] (сер�
 ```bash
 magnet:?xt=urn:btih:7392AB12FF6FBA9F491CBF6B0DFF28AF9DCE3F65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ BBC: История Единицы с Терри Джонсом / The Story of 1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Discovery: Будущее с Джеймсом Вудсом. Как стать с
 ```bash
 magnet:?xt=urn:btih:90C26EFFE98935649210DACFAD6EA3EA106B7D7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Discovery: Самогонщики (серии 1-6 + спецвыпуск) / Disc
 magnet:?xt=urn:btih:86373B03414785BD0F354D48FAA626DB7AA46BF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:86373B03414785BD0F354D48FAA626DB7AA46BF7
 ```bash
 magnet:?xt=urn:btih:7E61C77B069577421B672F96953E2E2F2E6158B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:7E61C77B069577421B672F96953E2E2F2E6158B2
 magnet:?xt=urn:btih:4F94EE51EFF2F1AFDAD2F99A477A05EA0B51D57D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ History Channel. Ланкастер на войне / The Lancaster at War (2009
 ```bash
 magnet:?xt=urn:btih:DCD0CAA99664309DC9A7E5D90FBF5354C34EA1F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Viasat History: Тени средневековья / Medieval Dead (2013-2016) 
 magnet:?xt=urn:btih:0C09CE5DAA14C154EE7E8A7382CF8321E6458FB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:0C09CE5DAA14C154EE7E8A7382CF8321E6458FB5
 magnet:?xt=urn:btih:F0C5CAC5DC36F2F6EA1172C1304303F1F60D5CC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Discovery. Гонка на вымирание / Racing Extinction (2015) BDRip
 ```bash
 magnet:?xt=urn:btih:5BF302EA517EE91E52E70B4F2D054892B188CEC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

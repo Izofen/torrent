@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:62CAA552C4F491AEDCF3F9391209B67C1BD9B0F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:62CAA552C4F491AEDCF3F9391209B67C1BD9B0F1
 magnet:?xt=urn:btih:22270A3C9CADCB83E4B5EE891C0381F58249923F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:22270A3C9CADCB83E4B5EE891C0381F58249923F
 ```bash
 magnet:?xt=urn:btih:AF575EC5723692B92E2E0B48925361775253488F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Candlemass - Sweet Evil Sun (2022) [FLAC|Lossless|WEB-DL|tracks] <Epic Doom Meta
 magnet:?xt=urn:btih:B8904ED7AD2CCEC5D828A397D295ADC93C2AC0E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Our Last Night - Disney Goes Heavy (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern 
 ```bash
 magnet:?xt=urn:btih:A61777369C2B5591A5483FBFEB1471A42231FEB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Stonehand - Rock n Roll Wizards (2023) [MP3|320 Kbps] <Hard 'n' Heavy Metal>
 magnet:?xt=urn:btih:D6FA452626FED5FB3E273D86DCCAA97C74815C1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ A4 Oh No, Don't Let Go(   Читать дальше...   )Жанр: Soft RockП�
 ```bash
 magnet:?xt=urn:btih:C5FA0771DEE15908CA0EE4D13BCEC5D787A9288F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ Headcat 13 - Headcat 13 (2020) [MP3|320 Kbps] <Rockabilly>
 magnet:?xt=urn:btih:4E6380FAB8BF1625D684F39F00F5CDE3C0BCD8D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:4E6380FAB8BF1625D684F39F00F5CDE3C0BCD8D6
 ```bash
 magnet:?xt=urn:btih:5311414133E5BB4C82A3A0E7A1ACD1E6CBD6E3BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:5311414133E5BB4C82A3A0E7A1ACD1E6CBD6E3BA
 magnet:?xt=urn:btih:4657DF8534E651593AEDCE2DDD205E6B086328BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ Autograf - Affirmations (2023) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Hou
 ```bash
 magnet:?xt=urn:btih:E4673D521FABA45DDB62C24BBF066AF715BAD6A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ Wondershare AllMyMusic для Mac позволяет записывать про
 magnet:?xt=urn:btih:3F6D78753C31CF6B7DF64CCD71FBE62B460A92FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:3F6D78753C31CF6B7DF64CCD71FBE62B460A92FE
 ```bash
 magnet:?xt=urn:btih:9E89269D0AEA670D3B79FE05BB0AED54E5FA77F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ Skype предназначен для личного и делового общ�
 magnet:?xt=urn:btih:8A3DD2048F25B733F33A0E656E10CF6F40A087A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:8A3DD2048F25B733F33A0E656E10CF6F40A087A1
 ```bash
 magnet:?xt=urn:btih:8D050C2DAB7B2B5224ACD77E106BCB4642C71ADE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ Moonlight Haze - De Rerum Natura (2019) Japanese Edition [FLAC|Lossless|image + 
 magnet:?xt=urn:btih:684F1514D23CB75493C3A6C5D9639C7CA80452A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ Color Folder Master 1.0.9 [Multi/Ru]
 magnet:?xt=urn:btih:A2FDAFBAD1E506D3683442499B98A98632B1AF16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:A2FDAFBAD1E506D3683442499B98A98632B1AF16
 ```bash
 magnet:?xt=urn:btih:0B64CC8881CBCDA4705C1E5DD99E226ABFE7E8C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ Basteiro-Bertoli - Boh (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Songwrit
 magnet:?xt=urn:btih:F4BD952D1E860EA31B3DD1C400217C2FE65E33DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ Things — приятный и простой ежедневник. Это ид�
 ```bash
 magnet:?xt=urn:btih:442BCA24981FE6E275B1754077A8902A70223E6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ Akiko Grace - New York Style (2003) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, 
 magnet:?xt=urn:btih:65C9B0C2544A059EF684701C7982369EB0811825
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:65C9B0C2544A059EF684701C7982369EB0811825
 magnet:?xt=urn:btih:30F191BD47017984AEA4536F0D5468EF5A1788BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ PullTube 1.8.4.14 [Multi/Ru]
 magnet:?xt=urn:btih:C560D8721D2D5EE3060DEDCCEB0E52F26B881923
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:C560D8721D2D5EE3060DEDCCEB0E52F26B881923
 ```bash
 magnet:?xt=urn:btih:DC450AC5DF9C4FDE9BCB68858141BF64B2568FF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ Antimatter - A Profusion Of Thought (2022) [FLAC|Lossless|WEB-DL|tracks] <Atmosh
 magnet:?xt=urn:btih:63C86B78D5EA19D3EE211E9537BED67136D27B5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ magnet:?xt=urn:btih:63C86B78D5EA19D3EE211E9537BED67136D27B5F
 ```bash
 magnet:?xt=urn:btih:B371647BC9CC900F4FD98032F2F820B4296C27C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

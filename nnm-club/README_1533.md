@@ -19,6 +19,8 @@ Drova - Forsaken Kin - это пиксельное экшен-RPG, вдохно�
 magnet:?xt=urn:btih:AB16FC2E37F0CA1500C758F3F7AAF8D65CF95F1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Starfield открывает новую главу в игровой вселе�
 ```bash
 magnet:?xt=urn:btih:A512ADF4E8AD69C9FA489373924C114A1E542445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 magnet:?xt=urn:btih:CE1EC30C1573C9591808CA0005C9DBC44F34FFB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:CE1EC30C1573C9591808CA0005C9DBC44F34FFB8
 magnet:?xt=urn:btih:FF2969F3731D8E87A9D30BFE65B14B93E38F9A60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:FF2969F3731D8E87A9D30BFE65B14B93E38F9A60
 magnet:?xt=urn:btih:729BEFDAE71EE0F01BDE94479C2546BB73534C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Elasto Mania II (2017) [En] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:C68754FBFC98053E8D2C96BC963D3A8645665397
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:C68754FBFC98053E8D2C96BC963D3A8645665397
 magnet:?xt=urn:btih:8715E2E551A6F8702D63D5F7ED8FC5377888D507
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:8715E2E551A6F8702D63D5F7ED8FC5377888D507
 ```bash
 magnet:?xt=urn:btih:DDEA59C360CC14FA5D5808C17FCECA11A2D6B96D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Stage of Reality - Digital God (2024) [MP3|320 Kbps] <Melodic Progressive Metal,
 magnet:?xt=urn:btih:A046D4D5E058DF47B17C941DDB418E0AC59CC735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ VA - Ibiza Closing 2024 (Chillout & Lounge Music) (2024) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:2E2912EEA34525F4EA44EF77FFD5600F4A039DF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:2E2912EEA34525F4EA44EF77FFD5600F4A039DF6
 ```bash
 magnet:?xt=urn:btih:0303C68DBD8D7F4362E6E68211FD83724C88C44E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ Cnvx (CoNVeX) - Unfolding (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Roc
 magnet:?xt=urn:btih:6655C435ED4FC48E7051F294C53B5946D3FCD428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:6655C435ED4FC48E7051F294C53B5946D3FCD428
 ```bash
 magnet:?xt=urn:btih:5EBA9E46AE7257E17244EC14E3F55B823C6E0B34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ La Femme - Rock Machine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, 
 magnet:?xt=urn:btih:BB4AB0D2AA75FE3C112977B8036EA12898FF1A7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:BB4AB0D2AA75FE3C112977B8036EA12898FF1A7B
 ```bash
 magnet:?xt=urn:btih:4E36EC4000724DB2F533BFAC4DEF44935A881284
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:4E36EC4000724DB2F533BFAC4DEF44935A881284
 magnet:?xt=urn:btih:7FDDE7E1DFC09986A2556FAC69920B6BA8442E0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ magnet:?xt=urn:btih:7FDDE7E1DFC09986A2556FAC69920B6BA8442E0D
 magnet:?xt=urn:btih:D136FEE4EDEE70AD9C5FEDF739C59045D88B6308
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ Nocturna - симфо-метал группа из Италии с женски�
 ```bash
 magnet:?xt=urn:btih:DE87BD46A3D347C12CD20DECBB08D3420B03F091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +517,8 @@ Dame Area - Toda la Verdad Sobre Dame Area (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:894CFA773FA6188291A9CC6377949B4553EA1579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ The Crown - Crown Of Thorns (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 magnet:?xt=urn:btih:F7418F62C7804444D27EB9D815E5B44EB3A31996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +573,8 @@ magnet:?xt=urn:btih:F7418F62C7804444D27EB9D815E5B44EB3A31996
 magnet:?xt=urn:btih:98049141FD2E134AD0E6A0F95F24D360022F7B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:98049141FD2E134AD0E6A0F95F24D360022F7B9A
 ```bash
 magnet:?xt=urn:btih:9DD9A0955705BFC8C31F6DF1A87B9844BBA1BBEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ FinePrint - многофункциональный драйвер для при�
 magnet:?xt=urn:btih:10425221F9CD9ADB49B8BCA58116B9FFC28AF47D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:10425221F9CD9ADB49B8BCA58116B9FFC28AF47D
 ```bash
 magnet:?xt=urn:btih:10A7F9ED3B787E48CCF67BCF459E6061AB5285BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:10A7F9ED3B787E48CCF67BCF459E6061AB5285BD
 magnet:?xt=urn:btih:A4B43037482C52BED8BEAAABFE61F95EA0761935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:A4B43037482C52BED8BEAAABFE61F95EA0761935
 ```bash
 magnet:?xt=urn:btih:92FC12110689A935E917CA029F2BEF0D28AD138A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

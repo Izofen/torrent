@@ -22,6 +22,8 @@ Kelly Andrew - Journey (2015) [MP3|320 кб/с]<New Age>
 magnet:?xt=urn:btih:7AA631367D74ECE1A1F6FF2953EA90B530BD5CA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ magnet:?xt=urn:btih:7AA631367D74ECE1A1F6FF2953EA90B530BD5CA2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -88,6 +92,8 @@ Lichtmond (Лунный свет) - Erwachen Fruhlingstanzerin (2010) [MP3|256 �
 magnet:?xt=urn:btih:A7602585721B1D70C0F1CED62E1EE2509CDDEC22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +126,8 @@ Mariza - 5 альбомов (2001 - 2010) [FLAC|Lossless]<Fado>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +162,8 @@ Ambra - Honour and Glory (2002) [MP3|~245 кб/с (V0)]<Electronic, Enigmatic, N
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +190,8 @@ Glenn Main - Into The Blue (2015) [MP3|320 кб/с]<Electronic, New Age>
 ```bash
 magnet:?xt=urn:btih:BFA5421C642447A572A56612B12FF4EAFDCF7BE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +226,8 @@ Lingua Mystica - Magic Secrets (2007) [MP3|320 кб/с]<New Age,Celtic,World,Eth
 magnet:?xt=urn:btih:9C8FF75E4A7C0F4876FAAD28F839CC36F6DCE057
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +255,8 @@ Marilyn Monroe - Marilyn Monroe Sings! (2CD) (2012) [MP3|320 кб/с]<OST>
 ```bash
 magnet:?xt=urn:btih:DFEE3EFB60D7D3930D3961DCBFB4B8332E57042B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +291,8 @@ Ethereal Pilgrim - Free Diving (2012) [MP3|192 кб/с]<New Age, Enigmatic, Ambi
 magnet:?xt=urn:btih:2622E9CA068BE2A2BAE908E3567827A0D89437C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +326,8 @@ Red Indian Chill - Shaman (2007) [MP3|~245 кб/с (V0)]<Native American, Ethno,
 magnet:?xt=urn:btih:FF78188E3092BF3BC1A6537B68EB49CE7B57820F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +352,8 @@ Mandala - 3 albums (2003-2009) [MP3|160-320 кб/с]<Relax, Meditative, Instrume
 ```bash
 magnet:?xt=urn:btih:6E9AE7003FFBB5955B30AB2D377EFB9579781A1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +388,8 @@ VA - Sacred Ground - A Tribute To Mother Earth (2005) [MP3|320 кб/с]<Native A
 magnet:?xt=urn:btih:6FA3F30A0A8C6B3D3A041E558DB36B1D33A3D960
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +416,8 @@ VA - Minions (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Score
 ```bash
 magnet:?xt=urn:btih:E13D0E6C15547318E3B6BCBB58C3BD98DA617D1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +446,8 @@ London Philharmonic Orchestra - The Genius of Film Music 1960s-80s (2015) Live [
 magnet:?xt=urn:btih:0D475A08B70AC05BD6CD04C46C3383360B86662B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +474,8 @@ Irfan - The Eternal Return (2015) [MP3|320 кб/с]<Ethnic, Neo-Folk>
 ```bash
 magnet:?xt=urn:btih:5A0AA07A1CDC9045978182BC9CF98CEA1FB3DB28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +510,8 @@ Nino Rota & Carmine Coppola & Al Martino - OST - Крестный отец / The
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +538,8 @@ VA - Salsa Summer Hits 2019 [MP3|320 Kbps] <Kizomba, Merengue, Sonero, Other>
 ```bash
 magnet:?xt=urn:btih:7D910AB872AD8FCBF2060A55018CD0B0D1712D21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +574,8 @@ VA - Cafe del Mar Recommends Music For Dreams (2010) [MP3|320 кб/с]<Lounge, C
 magnet:?xt=urn:btih:6E6D3FF62E6D40FF4A281A31F508C4D93E41A568
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +602,8 @@ Jean-Michel Jarre - Essential Recollection (2015) [FLAC|Lossless|WEB-DL]<Ambient
 ```bash
 magnet:?xt=urn:btih:9822F81DFA15733D0D63BA11511E8A87E5EDFDC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +638,8 @@ Paco De Lucia - 38 albums (1965 - 2005) [MP3|160-320 kbps]<Flamenco>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +666,8 @@ Francisco Canaro - Tango Collection (2010) [MP3|192 кб/с]<Tango>
 ```bash
 magnet:?xt=urn:btih:1F21341C1039622A539146BB1CA4A7FB7923EE21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +696,8 @@ Shooglenifty - The Untied Knot (2015) [OGG| 462-531 кб/с]<World, Folk Rock, C
 magnet:?xt=urn:btih:AD935525C7E75128C7BC60AF541AD5CB1AA44F35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -680,6 +724,8 @@ Phildel - Qi (2015) [MP3|320 кб/с]<Piano, New Age>
 ```bash
 magnet:?xt=urn:btih:62D594D4419E9FB05B193C5D1A6692B5D3746BFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -708,6 +754,8 @@ Alkualat - Space Journey (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditati
 magnet:?xt=urn:btih:10CD75EDF0D507DA466C7C28ACC46B072FE33C34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -735,6 +783,8 @@ Luis Berra - Before Chaos (2019) [MP3|320 Kbps] <Instrumental, Piano>
 magnet:?xt=urn:btih:A52F51A489DB00B6E035FF82B65C42486F9AF51E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -761,6 +811,8 @@ Biffy Clyro ‎ - Balance, Not Symmetry (2019) Original Motion Picture Soundtrac
 ```bash
 magnet:?xt=urn:btih:B178A9A365DEEA4B4CCFF1741971FA8B25200D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

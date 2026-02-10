@@ -22,6 +22,8 @@ Savage Garden - Truly Madly Completely: The Best Of Savage Garden (2005) [FLAC|L
 magnet:?xt=urn:btih:FA22EC7C213AC15E66F244D75D7D8527D8D409DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Much Dance 2015 (2014) [MP3|320 кб/с]<Pop, Electronic, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:CBEA40E5AFF9A1DAD53E4B77CD9B55E41C1DB025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:CBEA40E5AFF9A1DAD53E4B77CD9B55E41C1DB025
 magnet:?xt=urn:btih:0983E9C71973AB81AA095F49E8BF060C8DAE6818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - The Remixed Dance Sensations (2017) [MP3|320 Kbps] <Eurodance, Eurodisco, E
 ```bash
 magnet:?xt=urn:btih:2E80B35BB612940F88B85116E4AB379DACCFC393
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Bad Boys Blue - Tears Turning To Ice (2020) [MP3|320 Kbps] <Dance, Pop, Euro-Dis
 magnet:?xt=urn:btih:C3B6340AB80F7393C35B55FB84713B2D562A1D3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Laura Branigan - Self Control (2020) 2 CD Expanded Edition [FLAC|Lossless|image 
 magnet:?xt=urn:btih:3D909E7AC84F75CACD478DCFE87CD2E0CDC4C81D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ magnet:?xt=urn:btih:3D909E7AC84F75CACD478DCFE87CD2E0CDC4C81D
 ```bash
 magnet:?xt=urn:btih:B7DBB49203398951548F39C44FFC66AF93B81062
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ Syndicate - The Best Disco 80 (1980) [MP3|320 кб/с]<Disco>
 magnet:?xt=urn:btih:1DD89CF6FDCC0480FD5B6CF6C120B3821F7AC3BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +260,8 @@ VA - DMC - Cool Grooves 56 (2019) [MP3|320 Kbps] <Electronic, Hip Hop, Funk / So
 magnet:?xt=urn:btih:2666A33AD6C343AC693F77F60459F54DB4F8B344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ Angeleyes - ABBAdance (1999) [APE|Lossless|image + .cue] <Eurodance, Euro-House>
 ```bash
 magnet:?xt=urn:btih:B5C7DE307D29E1752195EFF9F5C3F1082DC4B2AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +324,8 @@ Tiziano Ferro - Lamore E Una Cosa Semplice (Special Edition 2CD) (2012) [MP3|320
 magnet:?xt=urn:btih:93A76D8DBC2FD92F9532947049907B98193CAAD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +352,8 @@ Frankie Valli - 6 Albums (1975-1980) LP [MP3|320 Kbps] <Funk Soul, Pop Rock, Voc
 ```bash
 magnet:?xt=urn:btih:C02CB54DCE09E04A9F04E68906746AE2814B9EFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +382,8 @@ Boney M. - Diamonds (2015) 40th Anniversary Edition [FLAC|Lossless]<Disco, Euro 
 magnet:?xt=urn:btih:0EE0BB013A2567954A2AB7F142ADE2E226DA8E47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +410,8 @@ Hi-Fi - Хорошие песни. Неизданный альбом (2018) [MP3
 ```bash
 magnet:?xt=urn:btih:893701A617E21B04D3A3DC109214E677F4EC0F30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +440,8 @@ Johnny Hates Jazz - Turn Back The Clock (2018) 30th Anniversary Edition, 3CD, RE
 magnet:?xt=urn:btih:AC508C6830F76398E0EF0BA00C4FFB87807E9DB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +468,8 @@ CD1
 ```bash
 magnet:?xt=urn:btih:65040901EFC82B99D67FD082E9C7D9B4D3D06012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +499,8 @@ magnet:?xt=urn:btih:65040901EFC82B99D67FD082E9C7D9B4D3D06012
 magnet:?xt=urn:btih:91E6FC2B8C95F3C20891FBAC35DDD9358BCB830A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +527,8 @@ Barbra Streisand - Walls (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:9789A03FEC677B5A8B73B983EA4EB8702E2813BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +557,8 @@ Carol Jiani - Hit 'N Run Lover (1994) CD, Compilation [MP3|320 Kbps] <Electronic
 magnet:?xt=urn:btih:32FEFADC49853FA14161A9FED49CC06B3D5429F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +585,8 @@ Adele - 25 (2015) Target Exclusive Deluxe Edition [FLAC|tracks+cue]<Indie Pop, N
 ```bash
 magnet:?xt=urn:btih:4032EB5A43EFD72AD828D1614BC4591A599A84B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +615,8 @@ Adele - 25 (2015) Target Exclusive Deluxe Edition [MP3|320 кб/с]<Indie Pop, N
 magnet:?xt=urn:btih:0329109142EE215CF9CD39CF72488C2D2EAD588A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +643,8 @@ VA - Disco Forever (2000) The Sound Of Underground Disco, Compiled By Dimitri Fr
 ```bash
 magnet:?xt=urn:btih:4BB8B2C4DC4D109431F63273BD363C1758A13269
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +673,8 @@ Mark Ashley - I Will Not Forget You (2017) [FLAC|Lossless|tracks + .cue] <Euro-D
 magnet:?xt=urn:btih:72BBC1187533D21B36DF3E2AA53C2EC962FCED75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +701,8 @@ magnet:?xt=urn:btih:72BBC1187533D21B36DF3E2AA53C2EC962FCED75
 ```bash
 magnet:?xt=urn:btih:BBCFF28EC269F5494BD15DD932D0AA5EC8A1DA9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -683,6 +731,8 @@ VA - Zouk Monster Vol 1. (2017) [MP3|320 Kbps] <Pop, Latin>
 magnet:?xt=urn:btih:0BEF46D4F0FC4DFE1C5C3B89C7B2326AFEDDC97A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -709,6 +759,8 @@ Sarah Brightman - A Winter Symphony (2008) [OGG Vorbis|484 Kbps] <Electronic, Po
 ```bash
 magnet:?xt=urn:btih:F5ECAC121ACBEEA1A813617C4619156BECC31DAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

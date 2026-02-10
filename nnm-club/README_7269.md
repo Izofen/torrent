@@ -22,6 +22,8 @@ No Angels - Compilation (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:E848B60A5CF1D241DB397D14DBA804D0B34B3E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:E848B60A5CF1D241DB397D14DBA804D0B34B3E99
 ```bash
 magnet:?xt=urn:btih:0B063390D8AC8C93CE0169940BB6EDE06E4AAD38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Moom 3.2.19 [En]
 magnet:?xt=urn:btih:0C77AE352DD9EC9FEBC241B06D7B5172A5B47950
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Gilrs Wallpaper Collection (06.12.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:9382D214186DF443BADC816362552FE12FB848DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Bitter-Suss - Apologize For The Past (2016) [FLAC|Lossless|WEB-DL|tracks] <Elect
 ```bash
 magnet:?xt=urn:btih:07C8ECF45DCA8D93C2F8AE76DD346E18BDE874F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Cryptal Darkness - They Whispered You Had Risen (1999) [FLAC|Lossless|image + .c
 magnet:?xt=urn:btih:1C7D96CCDCC57E5ED9EFD3955549D39DC6F4A668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ Dwight Trible - Horace (2001) Elephant[FLAC|tracks+.cue] <Vocal Jazz, Afro-Cuban
 magnet:?xt=urn:btih:37F3585E2600FCA35616D75CB4C60A29E4438DBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Lucius III (2018) [Ru/Multi] (0.181213182603.a) Repack Other s
 magnet:?xt=urn:btih:84641A7229C6FB634D8A2CAA4B04A3D854591C45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:84641A7229C6FB634D8A2CAA4B04A3D854591C45
 ```bash
 magnet:?xt=urn:btih:83ECE19198C9971E682A563B1F5F86AA9B6A788E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ SpeedTree является мощным инструментарием, испо
 ```bash
 magnet:?xt=urn:btih:82DE67DA206D162BCEE99112D87363A153DF0A71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ Synth Replicants - Real Love on the Metro (2020) [AAC|~336 Kbps] <Electronic>
 magnet:?xt=urn:btih:28791288BA88358A09EB8014B8C029F871306129
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ Headcrash - Overdose on Tradition (1995) [FLAC|Lossless|tracks + .cue] <Industri
 magnet:?xt=urn:btih:42A0829AAEA741F5E5C15D5BFCD982CC1ED92D01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:42A0829AAEA741F5E5C15D5BFCD982CC1ED92D01
 magnet:?xt=urn:btih:C2040CA8062BC1BF09C482E237F0EC6A223BFA67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:C2040CA8062BC1BF09C482E237F0EC6A223BFA67
 ```bash
 magnet:?xt=urn:btih:30AB1B347B7432F46730B11E928A2BC8685DC971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ Steelwolf - No One Gets Away (2012) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:BCD9E909A5277BA8A1E69350CFE83D07F1D6ED0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ December's Mourning - Desolate Shores (2023) [FLAC|Lossless|WEB-DL|tracks] <Deat
 magnet:?xt=urn:btih:4B6840300355905BFDE56B301864C4DC17AA37BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:4B6840300355905BFDE56B301864C4DC17AA37BF
 ```bash
 magnet:?xt=urn:btih:5839EBB5E5F148FF304850E5A64961FE1B2D5E4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:5839EBB5E5F148FF304850E5A64961FE1B2D5E4F
 ```bash
 magnet:?xt=urn:btih:F5F88996471D8B187B8ACE0283924731E5E12DCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +519,8 @@ Nanaki - Dandelion Radio Session (2015) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock
 magnet:?xt=urn:btih:A40F5744A115EC49770A4367422508DCD15EDBAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ Tri-BACKUP Pro 9 v9.1.7 [En]
 ```bash
 magnet:?xt=urn:btih:245E11176ECAC9F99DD90B658E6094D32F13B6B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ Mirror - Mirror (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:15DB9FAA767C3D94CA2CB2FB833824417E8040DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ Bonnie McCoy - Blues Singing Woman (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:3A8138A583AB9A25BF127EE1532443596558255A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +632,8 @@ DeathCollector - Death's Toll (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 magnet:?xt=urn:btih:F97637889BD6ACE6A7074500A69FF22D685D6F43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +658,8 @@ magnet:?xt=urn:btih:F97637889BD6ACE6A7074500A69FF22D685D6F43
 magnet:?xt=urn:btih:3EF04D5EAF8566283ED12EA82DB35183F6A896C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:3EF04D5EAF8566283ED12EA82DB35183F6A896C7
 ```bash
 magnet:?xt=urn:btih:351EEF3F483E7EDFDE7C220FD950689818929837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +712,8 @@ VA - Блатной шансон на любимой волне. Часть № 
 ```bash
 magnet:?xt=urn:btih:FA98B55AD518DFE235BF4BA3BB9191A4BD7A9065
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

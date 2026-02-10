@@ -21,6 +21,8 @@ JPoint - конференция для Java-программистов. Одна
 magnet:?xt=urn:btih:5B379F17F9ACDB204C0E4F90713B313F6A75D3EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:5B379F17F9ACDB204C0E4F90713B313F6A75D3EE
 ```bash
 magnet:?xt=urn:btih:CA65AC83154B881C6F85FEA970315BA2EDAD9E73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ BBC: По странам и континентам. Дикая Африка / Wi
 magnet:?xt=urn:btih:248A667D851FB6CDE1DF7B30D4FED376BC470282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:248A667D851FB6CDE1DF7B30D4FED376BC470282
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Stepik, Дмитрий Фокеев | Создание сайтов и веб д
 magnet:?xt=urn:btih:CD1FCEBC2F5264232B648C913C28A4FD3CFEE4FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Ubuntu 24.04 Noble Numbat LTS [amd64] 2xDVD
 magnet:?xt=urn:btih:3648BAF850D5930510C1F172B534200EBB5496E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:3648BAF850D5930510C1F172B534200EBB5496E6
 ```bash
 magnet:?xt=urn:btih:D281A0684047C037133A3090AA09C59EED1D010E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:D281A0684047C037133A3090AA09C59EED1D010E
 magnet:?xt=urn:btih:986E246F82C156F61019D19DE9661F87497B5A51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:986E246F82C156F61019D19DE9661F87497B5A51
 magnet:?xt=urn:btih:5E94B9EE8A16126D2C4A29341E564A2CEA6200DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:5E94B9EE8A16126D2C4A29341E564A2CEA6200DA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:5E94B9EE8A16126D2C4A29341E564A2CEA6200DA
 magnet:?xt=urn:btih:165DBD59A954B44A913A52449B350A01A843150C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Winstep Nexus — красивая бесплатная панель с крас
 ```bash
 magnet:?xt=urn:btih:190E8F927AB252EC7702E30B41602354B1CEC3DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:190E8F927AB252EC7702E30B41602354B1CEC3DB
 magnet:?xt=urn:btih:D7675AF572CFF9B9B74E6BBB4CD494B845553C56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Sons of Valhalla - приключенческий сайд-скроллер с �
 ```bash
 magnet:?xt=urn:btih:E052A47EB3FC9EFE97ADC3B43E8CC7BE47EB64C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:E052A47EB3FC9EFE97ADC3B43E8CC7BE47EB64C2
 magnet:?xt=urn:btih:FE32B931034B2BEE8453C7EF767EB89A0AC2BA70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:FE32B931034B2BEE8453C7EF767EB89A0AC2BA70
 ```bash
 magnet:?xt=urn:btih:C1BBAEE89E143BCA59791584CC5DA727866E0F09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:C1BBAEE89E143BCA59791584CC5DA727866E0F09
 magnet:?xt=urn:btih:B951EBD1B2D4DD1B1C17B9F31F758D779807BE1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:B951EBD1B2D4DD1B1C17B9F31F758D779807BE1C
 ```bash
 magnet:?xt=urn:btih:4498CC007753EFADCC0DD5B2726A85C395A5E4CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:4498CC007753EFADCC0DD5B2726A85C395A5E4CC
 magnet:?xt=urn:btih:603CD31C0B8A00E5DF342F12F708FD71BA4CE0B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:603CD31C0B8A00E5DF342F12F708FD71BA4CE0B1
 ```bash
 magnet:?xt=urn:btih:9588F49E0FD4779C2655DDD5B94416F5D3F57121
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:9588F49E0FD4779C2655DDD5B94416F5D3F57121
 magnet:?xt=urn:btih:A0CD15CFF5400788C4C8009ADFA22AD0398CF139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:A0CD15CFF5400788C4C8009ADFA22AD0398CF139
 ```bash
 magnet:?xt=urn:btih:E216A3C956B4C2311E90343551B12DB56DE64740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:E216A3C956B4C2311E90343551B12DB56DE64740
 magnet:?xt=urn:btih:5AE4FCA0E6CC650BA1DC9187458F53EB49A22A0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:5AE4FCA0E6CC650BA1DC9187458F53EB49A22A0D
 ```bash
 magnet:?xt=urn:btih:8201F317A8A4F1CB1C16593195DE2296DA4C3C95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:8201F317A8A4F1CB1C16593195DE2296DA4C3C95
 magnet:?xt=urn:btih:6952A5DCC36B0FB0DB634E278DEFD7B897717696
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Yes, Your Grace (2020) [Ru/Multi] (1.0.20) License GOG
 ```bash
 magnet:?xt=urn:btih:BB25D3969CA5B76F56D521E8459C2C78BD31538B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

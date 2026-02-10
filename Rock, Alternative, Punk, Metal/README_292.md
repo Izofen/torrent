@@ -22,6 +22,8 @@ Black Sabbath - Reunion (1998) 25th Anniversary Expanded Edition, 2023, Epic Rec
 magnet:?xt=urn:btih:6096FEF227728888FFD543DF719EA9ADAB1F4A0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:6096FEF227728888FFD543DF719EA9ADAB1F4A0C
 ```bash
 magnet:?xt=urn:btih:62DBA6E825BFA60F321E7A0366FC9CB9958B9B26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Fuzzy Grass - The Revenge of the Blue Nut (2023) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:C4C8A721F47702A5127E83E0808F0BF4C19EF56F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Whitesnake - The Purple Album: Special Gold Edition (2015) Remix, 2023, Rhino [F
 magnet:?xt=urn:btih:BAA936FA88C6BF2F24A22C49FE615E428A947343
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:BAA936FA88C6BF2F24A22C49FE615E428A947343
 ```bash
 magnet:?xt=urn:btih:399E7BF64DC94FCFEE691B68420446B54428FD87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +165,8 @@ Nakia - Signal (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Alternative & I
 magnet:?xt=urn:btih:3611382035487C9E96D703A7934F7A7C7115C745
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ Mr. M.D - Dog Days (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:88A95A04E274BEE91E65E776181A810E76EF3A27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ Kristofer Lee Bentley - It's So Good (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:E5752915B8CA548E3C0AE29C7C69E0369F562F38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ Kevin Bailey - Ride Into The Storm (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 ```bash
 magnet:?xt=urn:btih:A8572D35C5A2AA7651E8DD6C1551AFA48985E88A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +281,8 @@ David Gilmour - The Luck and Strange Concerts (2025) [MP3|320 Kbps] <Rock, Progr
 magnet:?xt=urn:btih:ED37F47FE8524DF07C434F22691442E3649990AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ magnet:?xt=urn:btih:ED37F47FE8524DF07C434F22691442E3649990AF
 ```bash
 magnet:?xt=urn:btih:910D7C80E07AAFD3B11B4C04579C5F1BD607081E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +339,8 @@ U.F.O. - One Night - Lights Out 77 - Live (2023) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:7ACF61390F5491D36642D39F9A777731BC707ED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +365,8 @@ Mournful Congregation - 2 Studio Albums (2022-2023) 2xCD, EP [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:7DA395E9A0470FDBF599BC47FA73618BB59E9003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +395,8 @@ Creeper - Sanguivore (2023) [MP3|320 Kbps] <Britpop, Glam Rock, Pop-Punk>
 magnet:?xt=urn:btih:B8AA3F1B3BADCAB9C54260F11066C5BEFF2F7CCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +423,8 @@ Blue October - Spinning The Truth Around (Part II) (2023) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:51E9697C1D58D2C0B161989888121A4D2CBF77B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +453,8 @@ Fortress Under Siege - Envy (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progre
 magnet:?xt=urn:btih:93FBE4CF44746B2C71EB2EC6DC9914E47290540A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +481,8 @@ The Dead Amigos - Denim Egos (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock,
 ```bash
 magnet:?xt=urn:btih:3AD048EA9A68C7D886E03D7CF037BD87A03CE590
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +511,8 @@ Nergard - Memorial for a Wish (2018 Version) (2018) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:A3405962ADACA048541658A4A4C4676B13F74227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +539,8 @@ The Vintage Caravan - The Monuments Tour (2023) Live [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:D5CF186A2DABB7E3BAC4932AB834455C953AE91D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +569,8 @@ Nergard - A Bit Closer to Heaven (2015) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 magnet:?xt=urn:btih:6A367F770D491EAFAFF064BC5A29BE40568155CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +597,8 @@ NovaReign - Legends (2018) [FLAC|Lossless|image + .cue] <Progressive, Power Meta
 ```bash
 magnet:?xt=urn:btih:D71DBF37F197C0A3959CA7274D3C3F82BF46A399
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +627,8 @@ Arch Enemy - (от англ. Arch Enemy - заклятый враг) шведс�
 magnet:?xt=urn:btih:B0A1F75BED39148EE4D9A00D678F855283D895C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +655,8 @@ magnet:?xt=urn:btih:B0A1F75BED39148EE4D9A00D678F855283D895C5
 ```bash
 magnet:?xt=urn:btih:98283144C98077D0435F69CC1FB6A7BF52DCD423
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +685,8 @@ Tarja Turunen - Best of: Living the Dream (2022) Remastered [MP3|320 Kbps] <Symp
 magnet:?xt=urn:btih:7E070B1B02DB9FCFE29FE880089ABCE02FB046E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +714,8 @@ Shocking Blue — голландская рок-группа из Гааги, с
 magnet:?xt=urn:btih:AEF51D3A43FA999A66FB7980F7727C2F7EDD8ADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,6 +742,8 @@ Flying Colors - Second Flight: Live At The Z7 (2015) 2CD [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:72FC36FB04102280D3D9357EB9B84AA435A6F41C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

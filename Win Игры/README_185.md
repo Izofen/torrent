@@ -19,6 +19,8 @@ Reus 2 выделяется своей уникальностью и увлек�
 magnet:?xt=urn:btih:60D395B5E2706B6BEC8038B86F76FC70FC4255B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ikonei Island: An Earthlock Adventure (2023) [Multi] (20240425/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:CE35FCE763F9B3F7D7826F20E7C25FE82369A454
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Withering Rooms отличается от многих хорроров. Во-п
 magnet:?xt=urn:btih:0F012FE198F8C18943BBA8ED9D3B93A78AEF5BD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ SpellForce 3 - идеальный гибрид RTS и RPG! 518 год. Так н
 ```bash
 magnet:?xt=urn:btih:F28F0505090C7D8887A8F45D18DEF68FF476DAEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ RAILGRADE (2023) [Ru/Multi] (6.1.56.1) License GOG
 magnet:?xt=urn:btih:86C58BB3FCFF0A9A2D482DCCB76F8434755E27CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Ozymandias: Bronze Age Empire Sim (2022) [Ru/Multi] (1.6.0.10) License GOG
 ```bash
 magnet:?xt=urn:btih:FB247E264ABCFC8AC03183058CE5A5939F70CA21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ StarCraft Remastered - это обновленная версия знамени
 magnet:?xt=urn:btih:D620ACC39B0E00B1B6F7FA3BA3908587FA0C06F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Vox Machinae – боевой экшен-симулятор, в котором �
 ```bash
 magnet:?xt=urn:btih:6AFCF4340052792059A1B01CC0DC6D47BE7F548E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Lapin (2023) [Multi] (1.8.3.2) Scene Tenoke
 magnet:?xt=urn:btih:6C5F145C7A6312D372512E16B04ADDD2D75A2F41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Sucker for Love: Date to Die For – настоящий лавкрафтовск
 ```bash
 magnet:?xt=urn:btih:A1011865B43B4A4F5F729D899FBCB98EEAB82C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ CONSORTIUM Remastered ставит вас на место Консорциума
 magnet:?xt=urn:btih:54BA8099D41DD1C67F4279A3B88AD280B69F6AE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Magic City Detective 5: The Carnival Begins (2024) [Multi] (1.0) Unofficial [Col
 ```bash
 magnet:?xt=urn:btih:93E83EAC426367C434A0FFBBC13E5232F653ED6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ CyberHoney - карточный рогалик, где вы окажетесь �
 magnet:?xt=urn:btih:A67A92D5E9E5D7FA3C24613F9B63238F889AE41A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Pre Dusk - мрачный двухмерный экшен-платформер �
 ```bash
 magnet:?xt=urn:btih:F577BEBB9B1EE47B8C73D9BCD1FADE6F61082E53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Little-Known Galaxy - приключенческая RPG с элементами
 magnet:?xt=urn:btih:5F2ADB7E1EA13AE7B269F9EE6F9054A6F6188ACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Cuphead – это в прямом смысле слова "классическ
 ```bash
 magnet:?xt=urn:btih:A6CCE533BE05B20BC9F4525992C8C59F49AFC72C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ C.A.R.D.S. RPG: The Misty Battlefield объединяет в себе карт�
 magnet:?xt=urn:btih:B92CD4C34493C59136C44FF2FB415565C216110F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Farming Simulator 22 (2021) [Ru/Multi] (1.14.0.0/dlc) Repack FitGirl [Platinum E
 ```bash
 magnet:?xt=urn:btih:3539146814678687DA7C19113411069AE9890258
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Perimeter / Периметр (2024) [Ru/En] (3.1.3) Scene Tenoke [Legate Edition
 magnet:?xt=urn:btih:FA52B061E0FE97AB8C11FC2A688D233EB5DD6373
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:9C1D179D0DB4F4A33E959148A419868ABC620521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Galacticare - это ваш шанс спасти галактику, заним
 magnet:?xt=urn:btih:7C0E81D2464DD3F60A1CC2D68ED8DEAE9C6B8FE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ TasteMaker: Restaurant Simulator – симулятор менеджмента �
 ```bash
 magnet:?xt=urn:btih:CE6C1DD1E4E4500329F51437FB32BEAC564C9A2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Imaginary Friend Asylum – это самый настоящий психоло�
 magnet:?xt=urn:btih:BD692BCF2DA23882E080CD71459FDF4C3A73063A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ City Legends 4: The Witness in the Rye / Городские легенды 4: С
 ```bash
 magnet:?xt=urn:btih:1F336081D09939C4D889F3B9A5087CBEE415B4FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The King of Fighters XV открывает мир сражений, сложны
 magnet:?xt=urn:btih:67D3449620F9B8748779CB447669F2005E287503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Dream Engines Nomad Cities – это необычный градостроит�
 ```bash
 magnet:?xt=urn:btih:CF5CDB46052856400B339F83F308BAAF90354305
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

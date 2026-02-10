@@ -22,6 +22,8 @@ Risssing - Risssing (2016) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Breaks, Do
 magnet:?xt=urn:btih:24D6839085CDD45FA070545375BB6AD9CA59CCCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:24D6839085CDD45FA070545375BB6AD9CA59CCCC
 ```bash
 magnet:?xt=urn:btih:240F1CBFB127F80003797EF8D466FD2E6982E50D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Bob Holroyd - In Motion (2013) [FLAC|Lossless|tracks + .cue] <Ambient, Downtempo
 magnet:?xt=urn:btih:221D64ECEFD18F422973DC69469BBACA925AAB21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:221D64ECEFD18F422973DC69469BBACA925AAB21
 magnet:?xt=urn:btih:F114622EFAF2E9A4692E9B06838F59258E2085A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Call of Duty Black Ops 2/II (2012) [Ru/En] (1.0.0.1 upd3) Rip R.G. Catalyst [Dig
 ```bash
 magnet:?xt=urn:btih:095118911D10F4E2C3DC321BAB6088E313192807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Trio LARUAN - Romantic Collection (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrume
 magnet:?xt=urn:btih:430B169BA8CCDDC7CD9AEF57A790A4E432E77DDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ iSoftPhone - программа представляет весьма ориги
 ```bash
 magnet:?xt=urn:btih:B356205E05E3593873DC4327DD3C90030B574A65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:B356205E05E3593873DC4327DD3C90030B574A65
 magnet:?xt=urn:btih:11377FC17CDE2E2B3A4666E9380483F7FC8596C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ Sarkrista - Summoners of the Serpents Wrath (2017) [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:7EA00052E828A19D57D97261539002747A8782D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:7EA00052E828A19D57D97261539002747A8782D1
 ```bash
 magnet:?xt=urn:btih:9276234A1564EDCCB8FD84F6268291B5C6AAC088
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:9276234A1564EDCCB8FD84F6268291B5C6AAC088
 magnet:?xt=urn:btih:E5485CDD929AB670DE9B953CBCF2C39CBA869DB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Torch Browser - браузер на платформе Chromium с расшир�
 ```bash
 magnet:?xt=urn:btih:7697E6F54F8F04322D48A85EC0FE75CDD7AE4649
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ Stonehand - Без Права На Ошибку (2016) [FLAC|lossless|image + .c
 magnet:?xt=urn:btih:B613F3EE90B163B878A7DFE354CD8DEBB4DA8B70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ Nadiwrath - Circle Of Pest (2015) [FLAC|Lossless|image + .cue] <Black Metal>
 magnet:?xt=urn:btih:C64D865DCD8781B67ED0383B77E0BD00FE612395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ magnet:?xt=urn:btih:C64D865DCD8781B67ED0383B77E0BD00FE612395
 ```bash
 magnet:?xt=urn:btih:835E8DAD45D22AC8B947DCDDE646BD6CC40654D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ Outpost Firewall Pro - вышла свежая версия персональн
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ Enen no Shouboutai Ni no Shou | Fire Force 2 | Пламенная бригада
 ```bash
 magnet:?xt=urn:btih:D6FAD5115D060ACEE2CE3C55FC942292037AB4D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:D6FAD5115D060ACEE2CE3C55FC942292037AB4D9
 magnet:?xt=urn:btih:9A84457FCDB192C2E3274E2CED9A2D19960D5BDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:9A84457FCDB192C2E3274E2CED9A2D19960D5BDC
 ```bash
 magnet:?xt=urn:btih:FA688051EF2B57443AC161A76262D369FCE87C05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ magnet:?xt=urn:btih:FA688051EF2B57443AC161A76262D369FCE87C05
 magnet:?xt=urn:btih:603C752DF05A5921C523FE493B35B012DD151DAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ GreenBrowser 6.8.1228 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:CA84732BEA9ABED32C16046B417C9A403C7FBC4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ Bulk Image Downloader (BID) - это программа для загрузки 
 ```bash
 magnet:?xt=urn:btih:D3E5ED5B0F3F54606E39F686088DF851B7C8A85E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:D3E5ED5B0F3F54606E39F686088DF851B7C8A85E
 ```bash
 magnet:?xt=urn:btih:E1B9CD11B90A2B0DB41C305F023C6FC3FCEB69F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ VA - Hardcore Bodybuilding Music 2016 (2016) [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:E25EC2B9DA72EC722AC16CC63E76C92D8C6AA5E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:E25EC2B9DA72EC722AC16CC63E76C92D8C6AA5E5
 ```bash
 magnet:?xt=urn:btih:93C50FEFF8E3D1DA02705DCC6C3712E250F9921B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +706,8 @@ Utsuro no Hako to Zero no Maria / The Empty Box and The Zeroth Maria / Пуст�
 ```bash
 magnet:?xt=urn:btih:1B089298B56AA9BE482668E1B1C7CDD402B851F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

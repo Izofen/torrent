@@ -19,6 +19,8 @@ Atomic Heart (2023) [PS4] [EUR] 5.05 [HEN] [License / 1.16 / DLC] [Ru/Multi] [Pr
 magnet:?xt=urn:btih:F6BA9DAE1668F6B19E6ECAD9C6069DA08391D93E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ EA SPORTS UFC 4 (2020) [PS4] [EUR] 5.05 [HEN] [License / 24.00] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B6ED4E52B3040EED30DAFDBC375ACB09FCFBE415
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Minecraft Legends (2023) [PS4] [USA] 5.05 [HEN] [License / 1.06] [Ru/Multi]
 magnet:?xt=urn:btih:659C655F1E7549D68781BC4D85E492468982A212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ ELDEN RING –  самый масштабный проект FromSoftware на �
 ```bash
 magnet:?xt=urn:btih:8443E5F9202D4651F7AD274BF4DE5C9B730138EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ DC League of Super-Pets: The Adventures of Krypto and Ace (2022) [PS4] [USA] 9.0
 magnet:?xt=urn:btih:4655A027664B5B889127C45B3EDB0B81E0DFDBEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Mortal Kombat 1 - двенадцатая часть в основной сери
 magnet:?xt=urn:btih:F58EC10FD434957060901A0BB01D016083ED5343
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Scars Above - научно-фантастический экшн-шутер с �
 ```bash
 magnet:?xt=urn:btih:377FF78F0649BB7052D9A6D59FDEB1B57C06957E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ DOOM Eternal (2020) [Switch] [EUR] 10.2.0 [NSP] [License / 1.2 / DLC] [Ru/Multi]
 magnet:?xt=urn:btih:BC00528A0BC5A874C2B03A791D6233BA59B4455A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Clubhouse Games: 51 Worldwide Classics (2020) [Switch] [USA] 10.2.0 [NSP] [Licen
 ```bash
 magnet:?xt=urn:btih:144C4BEC9DE697B0F5E61545A22358451B6EC606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Sam & Max Save the World (2020) [Switch] [USA] 10.2.0 [NSP] [License / 1.0.2] [R
 magnet:?xt=urn:btih:84CFA0521365AA2DD0345C0601656D73C457E391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Sonic Frontiers (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.40 / DLC] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E3491C31FE8FA31E6467019D028860F15EB6EEA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ The Witcher 3: Wild Hunt - Complete Edition (2019) [Switch] [EUR] 16.0.0 [NSZ] [
 magnet:?xt=urn:btih:380FDF9BBF5D5C67C808B760D04F0CA7EE3F4680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Street Fighter 6 - это новейшая часть серии Street Fighter,
 magnet:?xt=urn:btih:977469E94AEB0A2005F9D2F421D2B9F890D8C7C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ The Elder Scrolls V: Skyrim (2016) [PS4] [EUR] 5.05 [HEN] [License / 1.26] [Ru/M
 ```bash
 magnet:?xt=urn:btih:4A4FC70553FD808724FAF48D858757252941298A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Gal Gun (2012) [PS3] [JAP] 3.55 [License] [Jp] [MOVE]
 magnet:?xt=urn:btih:F039FE46F1D34ACC36F17508668E54AFE342771A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ The Amazing Spider-Man 2 / Новый Человек-Паук 2 (2014) [PS3] [EU
 ```bash
 magnet:?xt=urn:btih:641B33B3C9F7C7C9FB4F013AED4F052EBE5353FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Fullmetal Alchemist 2: Curse of the Crimson Elixir (2005) [PS2] [NTSC] [Unoffici
 magnet:?xt=urn:btih:CD6677B7AB4AFCB5177FE34D04E45D534977FBDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Sonic Frontiers (2022) [Switch] [US] 14.1.2 [eShop] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:54FE847C30C26890144500DA64558FB195F756C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Factorio - сложная игра, в которой вы строите фаб
 magnet:?xt=urn:btih:AAD54B383FC83ECE6E0B159A6CCDC997EDBE3469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Bayonetta 3 (2022) [Switch] [EUR] 14.1.2 [eShop / 1.1.0] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:04A7C4B48EBBDB3976455B04AE23FD51437981A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Bayonetta 2 (2014) [WiiU] [EUR] 5.3.2 / WUP Installer [Repack] [Ru/Multi]
 magnet:?xt=urn:btih:4FB6C98A4960DF7978CB2C8C532ED68BE5BC8858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Resident Evil Village (2021) [PS4] [USA] 5.05 [HEN] [License / 1.11 / DLC] [Ru/M
 ```bash
 magnet:?xt=urn:btih:0B6C1C4C67B47E1C88D68720B754792497CE7819
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ LEGO Brawls (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.01] [Ru/Multi]
 magnet:?xt=urn:btih:FD0FF5D73467C675E0CBDCAF888AF885BC724084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Earthworm Jim HD (2010) [PS3] [EUR] HEN 4.88 [PSN] [En]
 ```bash
 magnet:?xt=urn:btih:BBD212B8B828BFF622A39C751FED73174E143A2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ The Callisto Protocol Digital Deluxe Edition (2022) [PS4] [EUR] 5.05 [HEN] [Lice
 magnet:?xt=urn:btih:2DC5754C16517B248DE6487BEC526864A252E01F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:2DC5754C16517B248DE6487BEC526864A252E01F
 ```bash
 magnet:?xt=urn:btih:607C25064DD5158EEC8CA60B695C35EFC3A01323
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

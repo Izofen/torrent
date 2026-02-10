@@ -22,6 +22,8 @@ VA - Скалолазка и Последний из Седьмой колыбе
 magnet:?xt=urn:btih:473264FAC93E1C2400FCC231A32DF5D6CF73BABB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Olga Stankevich (Ольга Станкевич) - Dreamway (2011) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:B191176DA43508DC0F0CE5044A1E28236E23CD35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ David Bowie, Reeves Gabrels, Xavier Despas - Omikron: The Dreamers (Omikron: The
 magnet:?xt=urn:btih:6E5C499B112B75489064C01F4C97D2DFD25313EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Yiruma - Blind Film (2014) [FLAC|Lossless|tracks + .cue] <New Age, Piano Solo, M
 ```bash
 magnet:?xt=urn:btih:8590F544FA17B52E6641F8318FA2D0FF3B15B4EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:8590F544FA17B52E6641F8318FA2D0FF3B15B4EB
 magnet:?xt=urn:btih:60CD72E5E4BDB5E21BC32C55558FD868DB7D1A2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Orchestra Ennio Morricone - Once Upon A Time In The West (1969) /1995, RCA/ [FLA
 ```bash
 magnet:?xt=urn:btih:4FDB791B8CF5F15E22C432E978F274FCDFE68DA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Laurent Petitgand - The Salt of the Earth (Original Soundtrack) (2014) [OGG|~450
 magnet:?xt=urn:btih:5EDC668234A9C972CE5ABD6BA5A576B0FB9FD118
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:5EDC668234A9C972CE5ABD6BA5A576B0FB9FD118
 ```bash
 magnet:?xt=urn:btih:74A8E046C378CE116C122ED10ABEBA091F2E489B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Enya - Dark Sky Island (2015) Deluxe Edition [MP3|320 кб/с]<New Age, Celtic>
 magnet:?xt=urn:btih:EFC10BD59BC123AEB84491F6F0FF6DD489E49AC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Die Hit-Giganten: Instrumental Hits (2009) 2CD [FLAC|image+.cue]<Pop, Elect
 ```bash
 magnet:?xt=urn:btih:504E7ACCAF3F662D9EBC4B555BD95C0BCE928987
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Enya - Dark Sky Island (2015) Deluxe Edition [FLAC|image + .cue] <New Age, Celti
 magnet:?xt=urn:btih:F6C4874557D8317CE8EF8721961593D38C3F38B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Enya - Dark Sky Island (2015) Deluxe Edition [FLAC|tracks]<New Age>
 ```bash
 magnet:?xt=urn:btih:A4B2AF0CBE7BA4B1C119FE3923E84CC8A98A38A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Kory Caudill - Tree of Life (2015) [OGG|452-545 кб/с]<New Age, Neoclassical, 
 magnet:?xt=urn:btih:683237595ADDAD846838D5BD20D4D2CB701BF236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Crimeanization - Without Someone - (2011) [MP3|320 кб/с]<New Age, Ambient>
 ```bash
 magnet:?xt=urn:btih:ED0E01B19C303D586C07F50124E01980C747063A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ Trevor Morris - Dragon Age: Inquisition (2014) [MP3|320 кб/с]<Score>
 magnet:?xt=urn:btih:6BBD32BB9E2F8577CC546E751A680FE02EFE8FA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ Luca Stricagnoli - Luca Stricagnoli (2015) [FLAC|Lossless|WEB-DL]<Instrumental, 
 ```bash
 magnet:?xt=urn:btih:2078926272205ADD8124903A0BFA343D7A78EEE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ Deep Forest - La Selection: Best Of Deep Forest (2014) 3CD, Box Set, Limited Edi
 magnet:?xt=urn:btih:70C018530A51D5C98EAD4C5C96D6E33E4215162A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +520,8 @@ VA - TANGO. selected by Eduardo Makaroff (2007) / Wagram Music [FLAC|image+cue]<
 ```bash
 magnet:?xt=urn:btih:66C9F667DB7402B9E9CC074C1DABA4BCFD15131D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +550,8 @@ VA - Fast and Furious 7 (original motion picture soundtrack) (2015) [MP3|320 к�
 magnet:?xt=urn:btih:A863EA48A44C489A5708203C493A2A99433A46CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +578,8 @@ Rudolf Werthen, I Fiamminghi, Juan Jose Mosalini - Tango - La Elegia De Quienes 
 ```bash
 magnet:?xt=urn:btih:1FE8BBDB20325FB468539F0D16B90D88AFF1CD20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +608,8 @@ Soulwire (Ken Hill) - три альбома (2006-2011) дискография [
 magnet:?xt=urn:btih:2F3A750FE248D327A44913AF2527A4DE0517A4A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +636,8 @@ Larry Cann - Rodeo Road (2015) [MP3|320 кб/с]<Country, Country Rock>
 ```bash
 magnet:?xt=urn:btih:1CB55BC33EDFB0D2227E2495F5830AEF9AC03ABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +666,8 @@ Eric Tingstad - Mississippi (2015) [OGG|442-502 кб/с]<New Age, Contemporary G
 magnet:?xt=urn:btih:ED97761447BBB2D0477021226D2BD0AE0B8857B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +695,8 @@ Deep Forest - La Selection: Best Of Deep Forest (2014) 3CD, Box Set, Limited Edi
 magnet:?xt=urn:btih:A6B037121BD853277927EDC6B5864D0DF5B5120D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +721,8 @@ VA - Тихая ночь /3CD/ (2009) [MP3|320 kbps]<New age, Relax>
 ```bash
 magnet:?xt=urn:btih:5FBB954691C58C7957847830E5A10C03BD17505C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,6 +750,8 @@ Hans Zimmer - Interstellar (2014) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Sco
 ```bash
 magnet:?xt=urn:btih:CFC4254D9FB8107224681A958CFE44C6A3515F83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

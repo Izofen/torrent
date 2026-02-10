@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:95BA2E2D9BC47990915281A8613F4DEBD825D18C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:95BA2E2D9BC47990915281A8613F4DEBD825D18C
 ```bash
 magnet:?xt=urn:btih:0C541B7255AD830E459DDD0211938F77474D35C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dont Sleep - утилита, которая временно может откл
 magnet:?xt=urn:btih:2F0A08369EDFF82291B99AED4875C56A963F905D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:2F0A08369EDFF82291B99AED4875C56A963F905D
 ```bash
 magnet:?xt=urn:btih:C51002D647122A9518AC290D3A03A299E3E13169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ VA - Music News vol.338 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:51A8E5A23673CAB43F53B28209E7DF1F52DDC9D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ VA - Music News vol.339 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:807040DAD22B1CFDC02CDD3DBA96308156A9B11B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:807040DAD22B1CFDC02CDD3DBA96308156A9B11B
 magnet:?xt=urn:btih:B95ED67691862C46445A5F299963AF2D89E3CA38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:92E896681CC62C7549D7724ED9D08DD1A987D319
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ VA - Magic Dance Vol. 1 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
 magnet:?xt=urn:btih:2ABF2A74655A5AD832064124B37D9563563FB901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ PicPick - приложение, объединяющее в себе возмо�
 ```bash
 magnet:?xt=urn:btih:D2A3181805BF46C7237F5C4E0D8DA3C20355E992
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:D2A3181805BF46C7237F5C4E0D8DA3C20355E992
 magnet:?xt=urn:btih:A3D66D92584677B7AE9A7CF84F0253A7993633FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 ```bash
 magnet:?xt=urn:btih:182E4589A4F952ED33C73F0923B533AA2B2BC9DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:2BB6EF49AC02FF17B25FCC20904D2FB6703D4D8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:2BB6EF49AC02FF17B25FCC20904D2FB6703D4D8A
 ```bash
 magnet:?xt=urn:btih:5070D3DC68068E04A4CFD3995A5A778B6D582A24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Bob Marley & The Wailers - One Love (Original Motion Picture Soundtrack) (2024) 
 magnet:?xt=urn:btih:E581A44855514E9474C74FB90ED67FF6233D4DDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:E581A44855514E9474C74FB90ED67FF6233D4DDB
 magnet:?xt=urn:btih:889FFAC92C5C34DE873A3D1172B4F834F9B33D4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:889FFAC92C5C34DE873A3D1172B4F834F9B33D4A
 ```bash
 magnet:?xt=urn:btih:719BB37A22E5EDE26D895CF188FAE89B59ED27CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:719BB37A22E5EDE26D895CF188FAE89B59ED27CD
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:719BB37A22E5EDE26D895CF188FAE89B59ED27CD
 ```bash
 magnet:?xt=urn:btih:125AFD07DE1D07408DBDB736FD758471A32CBE2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ AutoPowerOptionsOK — небольшая по размеру утилита, п
 magnet:?xt=urn:btih:30275CDBB264238B04E339EE17FFFF6D673DB2C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ TikTok - социальное приложение для тех кто пред
 ```bash
 magnet:?xt=urn:btih:5D26DF224FEE96B8D6DF58A59321025966CA6CC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:5D26DF224FEE96B8D6DF58A59321025966CA6CC8
 magnet:?xt=urn:btih:4873AE3C8BC5F0136B21794B5BA982FB597C56FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:4873AE3C8BC5F0136B21794B5BA982FB597C56FF
 ```bash
 magnet:?xt=urn:btih:63E38F31A7C4D69572EEFF0721313F0C586E09EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ Original Album
 magnet:?xt=urn:btih:EC91C7456FAB5F0B871F80503E60C8A5DA759498
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:EC91C7456FAB5F0B871F80503E60C8A5DA759498
 magnet:?xt=urn:btih:92A5D95F39648C8F9C7F93E9F672F6AE02C422E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:92A5D95F39648C8F9C7F93E9F672F6AE02C422E1
 ```bash
 magnet:?xt=urn:btih:2E57740DA6E57A9577C98A38DC487B49F71200A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

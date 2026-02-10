@@ -19,6 +19,8 @@ Light Image Resizer - программа для изменения размер�
 magnet:?xt=urn:btih:B032189F507D18D7EE1AF8477F2ECEB727EBA24D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:B032189F507D18D7EE1AF8477F2ECEB727EBA24D
 ```bash
 magnet:?xt=urn:btih:6AE2AC04AB9625028A817DDCCB003BAE9ABC6BE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Русские Хиты 6 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:2BA8473F818FD4580D831ECE36B2C72C591306C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:2BA8473F818FD4580D831ECE36B2C72C591306C8
 magnet:?xt=urn:btih:A2AD04C4D2CA395B16CC1A554F01309DD9693DF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Image Tuner - это программное обеспечение для пак
 ```bash
 magnet:?xt=urn:btih:9AEC0BB27E09163D94CF62F3320086DAC0B472D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ Dashcam Viewer - это современный и продвинутый мен�
 magnet:?xt=urn:btih:923B6067729E3CA560F87E75FD06B3DF3D7530B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ VLC для Android - мобильная версия популярного де
 magnet:?xt=urn:btih:5893723F716209F638ECF66CEE7C0D523EC25827
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:5893723F716209F638ECF66CEE7C0D523EC25827
 ```bash
 magnet:?xt=urn:btih:5B4CEEFA65D8CF74484B6A1D689C374F362CB789
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:5B4CEEFA65D8CF74484B6A1D689C374F362CB789
 magnet:?xt=urn:btih:1864C9B3CA56483EFB9DD7BE4E43501AA54FDBA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ Extreme Picture Finder 3.65.8.0 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8D9DF638C16A3C330230152C5FAF96EEF43419D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:8D9DF638C16A3C330230152C5FAF96EEF43419D9
 magnet:?xt=urn:btih:4F547AC2EE330D616EE9F54559BE8854B8D53348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 magnet:?xt=urn:btih:9E4CED4EB7928B2839F13B8D3EEA1439C63809FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:9E4CED4EB7928B2839F13B8D3EEA1439C63809FC
 ```bash
 magnet:?xt=urn:btih:28C57B6C49C6DAC5D1AC4A48393EE67EBF365EE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:28C57B6C49C6DAC5D1AC4A48393EE67EBF365EE2
 magnet:?xt=urn:btih:C48F4CDF954D2F4B60F9A1F4600561E98E9071C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:7D5865EAB3BDDCC494072C732507B7DBC78B9504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:7D5865EAB3BDDCC494072C732507B7DBC78B9504
 magnet:?xt=urn:btih:5CCE78E2FE4FFD484DDFCAA32625E97CCA56BEA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ HomeBank можно настраивать полностью под себя, �
 magnet:?xt=urn:btih:29D39A21787AB83EBC805556E4E289960E6FB5EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:29D39A21787AB83EBC805556E4E289960E6FB5EC
 ```bash
 magnet:?xt=urn:btih:5497D86BF281BA03691A4641F0BF949B70C28182
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ Escape from Monkey Island (2000) [Multi] (1.1) License GOG
 magnet:?xt=urn:btih:D4D3D0DE77567A837DF4B11B43652CC0AD4BE27D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:D4D3D0DE77567A837DF4B11B43652CC0AD4BE27D
 ```bash
 magnet:?xt=urn:btih:1A10B505CC0070E5F0CB08925638181E91C152D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ One Desire - Midnight Empire (2020) Jараnеsе Еditiоn [FLAC|Lossless|image
 magnet:?xt=urn:btih:DF76B5B78128EC06043F3977E0E1624390CFE34E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:DF76B5B78128EC06043F3977E0E1624390CFE34E
 magnet:?xt=urn:btih:DAC3B0A2B980A267406A8A555F95DD08CEA61006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ Mystery Case Files 24: The Last Resort / За семью печатями 24: П
 ```bash
 magnet:?xt=urn:btih:9BF4D8F8187193E2A0784765088B11C3255A27E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:9BF4D8F8187193E2A0784765088B11C3255A27E1
 magnet:?xt=urn:btih:7B5D2C2579CCD099F024D8D29A511A6E8D9D3103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ Living Legends 10: The Blue Chamber / Живые легенды 10: Синяя �
 ```bash
 magnet:?xt=urn:btih:41CB85B894D37926A7BD23B6F8B9D80A27AAB8C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:41CB85B894D37926A7BD23B6F8B9D80A27AAB8C4
 ```bash
 magnet:?xt=urn:btih:E0689635E970C52AAB86459D9237DF0088E381D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

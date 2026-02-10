@@ -22,6 +22,8 @@ VA - Песни Виктора Дорохина и Любови Воропаев
 magnet:?xt=urn:btih:DBA940BC928DDC3F906FF8072977DFBCCC6CAFCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ A4 Let It Be Me(   Читать дальше...   )Жанр: Jazz, Easy Listenin
 ```bash
 magnet:?xt=urn:btih:65BBDA74124C619F8598F4FDA3F70CE3B441445B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Side A:
 magnet:?xt=urn:btih:D28430F2D8F5ED3164B693EDD253156BA3E3A793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ A3 Loved And Lost(   Читать дальше...   )Жанр: Hard RockПрод
 ```bash
 magnet:?xt=urn:btih:D9F81EC0669DBE5755D0180B914CE4DEC0635275
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ A4. Laredo Tornado (5:30)(   Читать дальше...   )Жанр: Progressi
 magnet:?xt=urn:btih:0B52D0181E9C43236D1C00AFD00CD9B51AD090D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ A4. Unhappy Girl (1:56)(   Читать дальше...   )Производст�
 ```bash
 magnet:?xt=urn:btih:21E586865A43EDCEEA57DA00059E2385A2DC694C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Diamond(   Читать дальше...   )Жанр: Jazz, Easy ListeningПро�
 magnet:?xt=urn:btih:2D96B1159D7CBF242F59C47AC06928BA6D7CF77F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ A4 Get Me To The Church On Time(   Читать дальше...   )Жанр: Pop
 ```bash
 magnet:?xt=urn:btih:48CC122481EBADF9A26BC30B274DDFBE5072DCCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ The Alan Parsons Project - The Best Of The Parsons Project (1983) [FLAC 2.0|192/
 magnet:?xt=urn:btih:4DA31FBBE59C2E269055BEB99D758534D438B3DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ A4. New World Rising / Ocean Breakup (Reprise) (4:04)(   Читать дальш
 ```bash
 magnet:?xt=urn:btih:F000FA62D86910ABA9AA879B16EB485E629FADDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ The Rolling Stones - Some Girls (1978) [DSD 128|tracks (Vinyl-Rip)]<Rock>
 magnet:?xt=urn:btih:78705E635D860CB85D04CA0E8D2F04B2E99AECB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Jimmy Webb(   Читать дальше...   )Жанр: Jazz, Big BandПродо
 ```bash
 magnet:?xt=urn:btih:FB84BF68342DF1CC9584D665E295E0CC064ADF90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Rockets - Some Other Rockets (2021) Limited Edition [FLAC 2.0|96/24|tracks|Vinyl
 magnet:?xt=urn:btih:F1C2BEE7F702FC9B9A276E71CF3A260976E24919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ A3	Буревестник · Sturmvogel
 ```bash
 magnet:?xt=urn:btih:CA2D5BE717D6373C7BB06333885474E005AA24AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ Queen - News Of The World (1977) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Hard Rock, P
 magnet:?xt=urn:btih:97472E7B1ABF53E64E1FC11981E5C04A9A743F2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ Gordon Jenkins - Johny Mercer(   Читать дальше...   )Жанр: Jazz�
 ```bash
 magnet:?xt=urn:btih:F460D95A1A04D01DC062104C8D7FDD41FE675D30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ A4 Frances Farmer Will Have Her Revenge On Seattle(   Читать дальше.
 magnet:?xt=urn:btih:433A63E1A14CD5E775E84F316C7F90EB5D3348DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +520,8 @@ Elton John - Goodbye Yellow Brick Road (2014) [LPCM2.0 96/24, DTS96/24 5.1|Audio
 ```bash
 magnet:?xt=urn:btih:0B21594CD12BD637F55575E556F1FD53A9A80800
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +550,8 @@ Side A:
 magnet:?xt=urn:btih:29620E8B9A76C9B386E26505472F6641882AB606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +578,8 @@ VA - RETROспектива, часть XIV. Мелодии и песни из к
 ```bash
 magnet:?xt=urn:btih:40EFD35BD4FF786EA5919B69C05EF998CACA6CA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +608,8 @@ A4	Страсть (Passione)(   Читать дальше...   )Жанр: Jazz, 
 magnet:?xt=urn:btih:5D91344BE128BA4E7707AAFAA8C1B1B48739E07A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +636,8 @@ A4. Take Me On And On (5:01)(   Читать дальше...   )Жанр: Progre
 ```bash
 magnet:?xt=urn:btih:A7075669EA4FE93F57AACE74FEA887A0CB7036F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +666,8 @@ Side A:
 magnet:?xt=urn:btih:858AA927F0CB1C3D96BE3612DBCC68414E724EE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +694,8 @@ A3 Andante(   Читать дальше...   )Жанр: ClassicalПродолж�
 ```bash
 magnet:?xt=urn:btih:758B21FB195E6A2868BB9C44981F05983F1924E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +724,8 @@ A4. Killer On The Loose (4:00)(   Читать дальше...   )Произво
 magnet:?xt=urn:btih:8ECBB14DFE7ECA3470324BCDF5CED82DC1C208BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +752,8 @@ magnet:?xt=urn:btih:8ECBB14DFE7ECA3470324BCDF5CED82DC1C208BF
 ```bash
 magnet:?xt=urn:btih:9A98F8D0099E1C56F5E4432BE9CD04DE618D9F5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

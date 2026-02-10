@@ -1,3 +1,29 @@
+###  Публикация: 1243041   (496019) от 25.08.2018
+
+Марина Эльденберт | Поющая для дракона. Между двух огней (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_496019.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире, где небо пронзают иглы небоскребов из огнеупорной стали, в мире, который когда-то был сожжен дотла, главенствуют иртханы – повелители драконов. Им подчиняются, их боготворят, им никогда и ни в чем не отказывают. Ну как никогда, я вот умудрилась отказать местру правящей семьи. Знать бы теперь, как сохранить работу, свою жизнь и… себя.Жанр: Любовное фэнтезиПродолжительность: 12:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:725178EE63FEB172437B89F868E07C159B468257
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243047   (496026) от 25.08.2018
 
 Марина Суржевская | Аларания (2018) [MP3]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:4F89D2222F1818C04BB02CA1BFEBE52F0FBDE9EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:4F89D2222F1818C04BB02CA1BFEBE52F0FBDE9EC
 magnet:?xt=urn:btih:4520B6FE5CAABA6B56E93FAD1E0297EAEE763AF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:4520B6FE5CAABA6B56E93FAD1E0297EAEE763AF6
 magnet:?xt=urn:btih:E12EBAAB5638DC9539A380DBBACFEB9D4601AB78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:E12EBAAB5638DC9539A380DBBACFEB9D4601AB78
 ```bash
 magnet:?xt=urn:btih:6560F249DD21DAEABE0BBAA63009BBAC087A711C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:6560F249DD21DAEABE0BBAA63009BBAC087A711C
 magnet:?xt=urn:btih:DA086FF312808C9F8702DC41509B1B741DF3F0BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:DA086FF312808C9F8702DC41509B1B741DF3F0BF
 ```bash
 magnet:?xt=urn:btih:9EEA99B8520C65901A6D1FAD5D7ECE8AE38EDF01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:9EEA99B8520C65901A6D1FAD5D7ECE8AE38EDF01
 magnet:?xt=urn:btih:0246EB38361BC3C31B323594147CD2EEEE196530
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:0246EB38361BC3C31B323594147CD2EEEE196530
 magnet:?xt=urn:btih:F07368D31DFD9EF6E4B0C4F48F534E672EB4BF0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:F07368D31DFD9EF6E4B0C4F48F534E672EB4BF0D
 ```bash
 magnet:?xt=urn:btih:54021A7D4DB3E07CA65F2804F98E344CB15A4182
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:54021A7D4DB3E07CA65F2804F98E344CB15A4182
 magnet:?xt=urn:btih:ED3C5CAB182587D42AED751284DECC4624AD7587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:ED3C5CAB182587D42AED751284DECC4624AD7587
 ```bash
 magnet:?xt=urn:btih:FBD1B60C052AB81265CFD0BD05995D1F8E5F7336
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:FBD1B60C052AB81265CFD0BD05995D1F8E5F7336
 magnet:?xt=urn:btih:DC77ADC4FFEE07FCAC96A4F152678B7C47C1A874
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:DC77ADC4FFEE07FCAC96A4F152678B7C47C1A874
 ```bash
 magnet:?xt=urn:btih:257B75954941843E80F82B935E03011507BA61AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:257B75954941843E80F82B935E03011507BA61AB
 magnet:?xt=urn:btih:4BAC050AF9E8DCC06A8CD614DB9AAA1735461018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:4BAC050AF9E8DCC06A8CD614DB9AAA1735461018
 ```bash
 magnet:?xt=urn:btih:7993BFA5124598F56DB63F777D316BC8C8FB34A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:7993BFA5124598F56DB63F777D316BC8C8FB34A2
 magnet:?xt=urn:btih:869FC5F6132181B35B6EFF9FDDAEFDBCFEC7BB10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:869FC5F6132181B35B6EFF9FDDAEFDBCFEC7BB10
 magnet:?xt=urn:btih:B931AF6C94A5257776E9629B87CE07FB1AA767F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:B931AF6C94A5257776E9629B87CE07FB1AA767F8
 ```bash
 magnet:?xt=urn:btih:03545C16D63506A71BE99F65F3783DAA037656DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:03545C16D63506A71BE99F65F3783DAA037656DF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:03545C16D63506A71BE99F65F3783DAA037656DF
 ```bash
 magnet:?xt=urn:btih:F18AC74ABCAD8D335F500621E553B7A7A446A2AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:F18AC74ABCAD8D335F500621E553B7A7A446A2AC
 magnet:?xt=urn:btih:A66FC8D7CF11FBD4E89160E6B0EF770F583EC429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:A66FC8D7CF11FBD4E89160E6B0EF770F583EC429
 ```bash
 magnet:?xt=urn:btih:DBB06CBFF97D06FC011DD0A9225E548086F137BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:DBB06CBFF97D06FC011DD0A9225E548086F137BC
 magnet:?xt=urn:btih:D116E678CE23CC254B083A665D8D4AF41E0FA23A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:D116E678CE23CC254B083A665D8D4AF41E0FA23A
 ```bash
 magnet:?xt=urn:btih:4F78D9CB8262C7C2237C32159C218F41A66E2FF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:4F78D9CB8262C7C2237C32159C218F41A66E2FF4
 magnet:?xt=urn:btih:FCF7F304708C391E0E93C4DC275FFA22EC48E39F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564795   (498532) от 20.07.2022
-
-Анна Платунова | Тень-на-свету (2022) [MP3, Александр Иванов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_498532.jpg" />
-</div>
-
-
-###  Подробнее
-
-Создания ночи живут среди нас. Все, кто являлся людям в кошмарах. Но только это не сон. Бойтесь, возможно, завтра они придут за вами! Созданиям ночи издавна противостоит Лига мастеров: только охотники могут встать на пути кровожадных тварей. Геор – охотник за чудовищами, Тень-на-свету, и у него с созданиями ночи свои счеты. Принципы Геора просты: жить, чтобы избавлять (   Читать дальше...   )Жанр: Городское фэнтези, Любовное фэнтезиПродолжительность: 07:25:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB3A3CD4182BF6F292A0E0FC9EB99A728C3EE2E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

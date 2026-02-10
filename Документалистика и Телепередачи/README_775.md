@@ -1,3 +1,29 @@
+###  Публикация: 1608409   (1043620) от 30.01.2023
+
+Марко Поло: загадки великого путешествия на Восток (Секретные материалы Марко Поло) / The Secret File of Marco Polo (2014) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043620.jpg" />
+</div>
+
+
+###  Подробнее
+
+XIII век. Молодой Марко Поло из Венеции отправляется в путешествие в Китай. Однако до сих пор многие сомневаются - добрался ли он туда? Сомнения вызывает сам масштаб его приключений, которые, будучи изложенными в "Книге чудес света", сделали её бестселлером в Средние века. Сегодня ученые всего мира пытаются найти ответ на вопрос - существуют ли неопровержимые (   Читать дальше...   )Производство: Германия, Франция, ECO Media TV-Produktion, ZDF Enterprises, ArteЖанр: документально-постановочный, историяРежиссер: Габриэль ВенглерПеревод: двуголосый профессиональный (Видеофильм ТВ), одноголосый профессиональный (SDI-Media)Язык озвучки: русскийСубтитры: английскиеПродолжительность: 00:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F8A10E244E563B62F00CC5DB972D83CDA9EF68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1545928   (1043700) от 29.01.2023
 
 Обжалованию не подлежит. Гармонист (2021) WEBRip [H.264/720p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:5F9276B874E498169C8147F27D805E3A7E4958C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:5F9276B874E498169C8147F27D805E3A7E4958C2
 magnet:?xt=urn:btih:54BEAA21F4E97526AE559863E5B0E0089269AE87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:54BEAA21F4E97526AE559863E5B0E0089269AE87
 ```bash
 magnet:?xt=urn:btih:1934366132FE4A48CFDBF466E984EB7FA1AD977D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:1934366132FE4A48CFDBF466E984EB7FA1AD977D
 magnet:?xt=urn:btih:9927F12371D2C4C8DE6BFABA2A19CE0EB4BE2BEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:9927F12371D2C4C8DE6BFABA2A19CE0EB4BE2BEA
 ```bash
 magnet:?xt=urn:btih:72E7AA1968D05B1F66E6F9E81AB0996C82227E75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ Coldplay: Голова, полная мечтаний / Coldplay: A Head Full of
 ```bash
 magnet:?xt=urn:btih:275CBBAF2F85155AE804F09CAD63CE7AD20F10DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:275CBBAF2F85155AE804F09CAD63CE7AD20F10DD
 magnet:?xt=urn:btih:460443E38B451A8CC3D64BC5D91F59BA99A60D43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:460443E38B451A8CC3D64BC5D91F59BA99A60D43
 ```bash
 magnet:?xt=urn:btih:2A9608E901D016EA4BEF8A534EF625CB5D20B372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:2A9608E901D016EA4BEF8A534EF625CB5D20B372
 magnet:?xt=urn:btih:C43E531F638A5F22981197DE3497583B760242A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:C43E531F638A5F22981197DE3497583B760242A5
 ```bash
 magnet:?xt=urn:btih:DB7E71BC25323BE8C6C136C9982467C840CEA09C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:DB7E71BC25323BE8C6C136C9982467C840CEA09C
 magnet:?xt=urn:btih:EACA203EC18DB38F056A053E1FD8B0E0984A2B78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:EACA203EC18DB38F056A053E1FD8B0E0984A2B78
 ```bash
 magnet:?xt=urn:btih:C0E7B4FF8804ED1A2870317E3EB72C1181BD99A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:C0E7B4FF8804ED1A2870317E3EB72C1181BD99A8
 magnet:?xt=urn:btih:5687E15E7D974F77D7A7CEFD87EBB549C43470ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:5687E15E7D974F77D7A7CEFD87EBB549C43470ED
 ```bash
 magnet:?xt=urn:btih:824AF09FFBB338F44513D1F1CA71ED9C3BD80EF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:824AF09FFBB338F44513D1F1CA71ED9C3BD80EF3
 magnet:?xt=urn:btih:4767EF1B3707DD36628C899F69952B114BB64F93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:4767EF1B3707DD36628C899F69952B114BB64F93
 ```bash
 magnet:?xt=urn:btih:DE03290F469365E9B4AF8DDE6093054C3433E5A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:DE03290F469365E9B4AF8DDE6093054C3433E5A7
 magnet:?xt=urn:btih:9DB110E0D04F5BAC0271440315EA6C9C8757FDB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:9DB110E0D04F5BAC0271440315EA6C9C8757FDB7
 ```bash
 magnet:?xt=urn:btih:D2816D33479BF0D7CA37BFE095A6CC0573733109
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:D2816D33479BF0D7CA37BFE095A6CC0573733109
 magnet:?xt=urn:btih:E5BA4B9D75269C3CED66A67D83765E4155EB9689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:E5BA4B9D75269C3CED66A67D83765E4155EB9689
 ```bash
 magnet:?xt=urn:btih:857453071528F9FC282370D02EB942F91CDCD54A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:857453071528F9FC282370D02EB942F91CDCD54A
 magnet:?xt=urn:btih:6804789524D225FB6014F8F297B013FCA12139CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:6804789524D225FB6014F8F297B013FCA12139CA
 magnet:?xt=urn:btih:6AF327D8C1DB4C6556CF6FB20663D6CCC23C5D6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:6AF327D8C1DB4C6556CF6FB20663D6CCC23C5D6E
 ```bash
 magnet:?xt=urn:btih:B6BEEEFCF66B2B332F89105A4F7088010A345235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:B6BEEEFCF66B2B332F89105A4F7088010A345235
 magnet:?xt=urn:btih:FBE61802E42140355752217EC5E414528DB8ABB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,30 +674,7 @@ magnet:?xt=urn:btih:FBE61802E42140355752217EC5E414528DB8ABB5
 magnet:?xt=urn:btih:FA0B840704E753C4B3CCA7B70227B1CCB8EA1514
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606350   (1044478) от 21.01.2023
-
-"Ласточки" КГБ (2023) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1044478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Актрисы, завербованные Комитетом госбезопасности.
-Актриса Лариса Кронберг вела двойную жизнь. В кино она играла роли правильных советских девушек, а по заданию КГБ – роковых соблазнительниц. Два в одном – актриса и шпионка. Девушек, которые вступали в сексуальную связь с иностранцами, представляющими интерес для КГБ, спецслужбы называли "ласточками". Манекенщица (   Читать дальше...   )Телекомпания: Россия | ТВЦЖанр: документальныйПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA658CE5798FB8623C1834DA06B84C6D3D50C8EB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

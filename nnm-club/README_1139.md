@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:CF088CA5CB837F959D60DC93FA51E7E967CCAEBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:CF088CA5CB837F959D60DC93FA51E7E967CCAEBD
 ```bash
 magnet:?xt=urn:btih:501B6C9AC1E3576C4391087A80D79E3E86F87E07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ VA - Heavy Piano Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:02AB09EC74F17C55A9C63579AF604CADD8C56BDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ VA - Italo Dance Classics Volume 1 (1990) [AAC|320 Kbps] <Electronic, Pop, Italo
 ```bash
 magnet:?xt=urn:btih:FB1E12D1E8B5666B54D83CB672012E1EB03EE9D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ VA - Italo Dance Classics Volume 2 (1990) [AAC|320 Kbps] <Electronic, Pop, Italo
 magnet:?xt=urn:btih:6547D2D00B63F2477C3F20D3B8CD3ECAE8988E3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ Dream Theater - Midnight Messiah (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:7312A4E88751A46172364A5C1B53B5ED069AE3CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:7312A4E88751A46172364A5C1B53B5ED069AE3CB
 magnet:?xt=urn:btih:C85F7F0D97892297813F4EAF81C28E83A7DF7FC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:C85F7F0D97892297813F4EAF81C28E83A7DF7FC6
 ```bash
 magnet:?xt=urn:btih:8698F63889C4D5B9887D947E1EA7EA26921ADC9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ Bloodhound Gang - Hooray For Boobies (1999) Expanded Edition, 2024, Geffen [FLAC
 magnet:?xt=urn:btih:C02BC0B0CD465A5CA83D73D3B8E288B1D9AB8C65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:C02BC0B0CD465A5CA83D73D3B8E288B1D9AB8C65
 ```bash
 magnet:?xt=urn:btih:F4FE6C40AC2FE1E268AB33FFAE8B6CEC82C1AA70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ VA - Slow Deep House Music Mix (2025) [MP3|320 Kbps] <House, Deep House, Dance, 
 magnet:?xt=urn:btih:0ED50F0E0E5DEB16D9F3B08A4889E264F1AF7F08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:0ED50F0E0E5DEB16D9F3B08A4889E264F1AF7F08
 ```bash
 magnet:?xt=urn:btih:4116343933788E521000785A1FED89EB0C4BCCFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +355,8 @@ Dream Theater - Midnight Messiah (2025) EP [MP3|320 Kbps] <Progressive Metal>
 magnet:?xt=urn:btih:9EC9BB334CBFA92D9A8205F0D82D8392176ABC39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:9EC9BB334CBFA92D9A8205F0D82D8392176ABC39
 ```bash
 magnet:?xt=urn:btih:9BA652D50B241359E12C367B76F04C2AAFE1D4E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ Grave Digger - Bone Collector (2025) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:F6FAD8D29505420BC380514F7471F125A78BE69F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ VA - Deep-House Hunters, Vol. 1 (2024) [MP3|320 Kbps] <House, Deep House, Dance,
 magnet:?xt=urn:btih:BB9E6D7D6378380C446BEC10E72F9B4FE076A594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:BB9E6D7D6378380C446BEC10E72F9B4FE076A594
 ```bash
 magnet:?xt=urn:btih:002ADCD22A78E65F17BE0A71C53C4AFF39FF7A00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:002ADCD22A78E65F17BE0A71C53C4AFF39FF7A00
 magnet:?xt=urn:btih:5B0B26F08F38D2E2E1EB85DDD3F36FD02A76A038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:5B0B26F08F38D2E2E1EB85DDD3F36FD02A76A038
 ```bash
 magnet:?xt=urn:btih:B83662F86CC9005D81E06D03E4601ECD3CB1E4AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ magnet:?xt=urn:btih:B83662F86CC9005D81E06D03E4601ECD3CB1E4AA
 magnet:?xt=urn:btih:3C826AE38104C906A58B03D0B01D3452A43ADB1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ magnet:?xt=urn:btih:3C826AE38104C906A58B03D0B01D3452A43ADB1B
 ```bash
 magnet:?xt=urn:btih:977B40E0BF6078308A103B4ECC757F311AB3934B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:977B40E0BF6078308A103B4ECC757F311AB3934B
 magnet:?xt=urn:btih:E7AF7E233E91113C020C9A88E6F006D036E9E6E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:E7AF7E233E91113C020C9A88E6F006D036E9E6E9
 ```bash
 magnet:?xt=urn:btih:EA84055B517BECEE9A1C87DF6023ECB4FE46A4D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:EA84055B517BECEE9A1C87DF6023ECB4FE46A4D4
 magnet:?xt=urn:btih:577F3D838E655DB808655D1F8A26E6D7559EF3BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ magnet:?xt=urn:btih:577F3D838E655DB808655D1F8A26E6D7559EF3BC
 magnet:?xt=urn:btih:EF9A375BE98E4D0D4842C9DE54F741DEB5D1472F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ magnet:?xt=urn:btih:EF9A375BE98E4D0D4842C9DE54F741DEB5D1472F
 ```bash
 magnet:?xt=urn:btih:04602AA5E39151AC7C11AAAF7AB170206D61FF93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

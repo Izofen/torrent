@@ -20,6 +20,8 @@ NG. Суперсооружения Третьего рейха: война с С
 magnet:?xt=urn:btih:A8F9C4DFBB04D21E2B0F790F45C987F1929988DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:A8F9C4DFBB04D21E2B0F790F45C987F1929988DA
 ```bash
 magnet:?xt=urn:btih:E91307D542BE5FF3A425A788E0C871F6866E4343
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:E91307D542BE5FF3A425A788E0C871F6866E4343
 magnet:?xt=urn:btih:1DDB1E16CC88CAA57B92433BC8CA6C2A5DB6125D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:1DDB1E16CC88CAA57B92433BC8CA6C2A5DB6125D
 ```bash
 magnet:?xt=urn:btih:FA8328ECB6F068AD3858BB5B86A2EFAC34744C3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:FA8328ECB6F068AD3858BB5B86A2EFAC34744C3F
 magnet:?xt=urn:btih:076B19126F96DB7CA5EBB83605D7EA487E8A5D66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:076B19126F96DB7CA5EBB83605D7EA487E8A5D66
 ```bash
 magnet:?xt=urn:btih:FEABAED46B1F13D9D8056CBB4E5DDAAB71DCBA10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:FEABAED46B1F13D9D8056CBB4E5DDAAB71DCBA10
 magnet:?xt=urn:btih:DB4314753BD39BAB8305439BEB5021C2A54D6997
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:DB4314753BD39BAB8305439BEB5021C2A54D6997
 ```bash
 magnet:?xt=urn:btih:AFFBD0ED8D6F335E2EC7B8A6404117931CA29453
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ NG. Очевидцы: День Д / Eyewitness: D-Day (2019) HDTV [H.264/1080i-L
 magnet:?xt=urn:btih:F34E9F8B6AC87DA748A49A74CBF74D5A2133FB80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:F34E9F8B6AC87DA748A49A74CBF74D5A2133FB80
 magnet:?xt=urn:btih:2DEF6BCBF12BFF86D39DA5369EBAFB8B27CBCAE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:2DEF6BCBF12BFF86D39DA5369EBAFB8B27CBCAE9
 ```bash
 magnet:?xt=urn:btih:66944193D047ABED356579CBFA799F8E2489EFF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ PQ-17: Катастрофа арктического конвоя / PQ17: An Arc
 magnet:?xt=urn:btih:7F1B843C315744BBA6F9F34F4E8583312B63CF5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:7F1B843C315744BBA6F9F34F4E8583312B63CF5C
 magnet:?xt=urn:btih:EE0777D95B48B56708858E1A5C8CACA0A53E28F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:EE0777D95B48B56708858E1A5C8CACA0A53E28F5
 magnet:?xt=urn:btih:A388F88B762049D6DFAF023B62785D6C4FEFCED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:A388F88B762049D6DFAF023B62785D6C4FEFCED2
 ```bash
 magnet:?xt=urn:btih:B9BAB9D1A97CB94D1467EA40938BBD4588F1A0C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:B9BAB9D1A97CB94D1467EA40938BBD4588F1A0C4
 magnet:?xt=urn:btih:3729AD139D3746F46880224091D6D056234E3B02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:3729AD139D3746F46880224091D6D056234E3B02
 magnet:?xt=urn:btih:C0C2427CA95BD69F0F21214F4A9368E08946B122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:C0C2427CA95BD69F0F21214F4A9368E08946B122
 ```bash
 magnet:?xt=urn:btih:340EE4C041887BCE40CF3619071B326F636D2E56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ National Geographic. Очевидцы: День «Д» / Eyewitness: D-Day (2019
 magnet:?xt=urn:btih:236AB8D36569011309C663E07BBB9FF5D5E7CC72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ National Geographic. Очевидцы: День «Д» / Eyewitness: D-Day (2019
 ```bash
 magnet:?xt=urn:btih:FD4A619505D982C31158D83B13F7A7DDE270B16F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:FD4A619505D982C31158D83B13F7A7DDE270B16F
 magnet:?xt=urn:btih:98CCECEFCC327F375E871B5CB2969D9B79302F6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:98CCECEFCC327F375E871B5CB2969D9B79302F6A
 magnet:?xt=urn:btih:E77BFACFF78C0BB943F7CE90F98FC5023E7E0902
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:E77BFACFF78C0BB943F7CE90F98FC5023E7E0902
 ```bash
 magnet:?xt=urn:btih:A126E6FB1E5BE22B870316CD7FEFE8D880E39144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:A126E6FB1E5BE22B870316CD7FEFE8D880E39144
 magnet:?xt=urn:btih:26666B9BB760CEE50FFED3E7E9FF223D3EF9C2B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:26666B9BB760CEE50FFED3E7E9FF223D3EF9C2B5
 ```bash
 magnet:?xt=urn:btih:C7D2277FB0AC31C68D416967BD23C310BDB0C2AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:C7D2277FB0AC31C68D416967BD23C310BDB0C2AE
 ```bash
 magnet:?xt=urn:btih:41AA03A0D4B4E99A9696CB6DD73644AD950C6B4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Smart Tools® это набор инструментов состоящий из
 magnet:?xt=urn:btih:34A46F1062E54E2ED029F0919C16ADB087D4492B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:34A46F1062E54E2ED029F0919C16ADB087D4492B
 ```bash
 magnet:?xt=urn:btih:E46CCB49795AC80B2D923C0470832131977B52DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Avium (2023) [Ru/Multi] (build 17784960 Patch 29) Repack seleZen
 magnet:?xt=urn:btih:826EACD73BF2C6117A0BA008A8E643A28DFA8901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:826EACD73BF2C6117A0BA008A8E643A28DFA8901
 ```bash
 magnet:?xt=urn:btih:A377B9E654701D482A16EF948C5C4EBF60594B34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:A377B9E654701D482A16EF948C5C4EBF60594B34
 magnet:?xt=urn:btih:151985823ABC513A6F69EA6A1B2A97FCD4EC29B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Dread Tomb - многопользовательская кооперативна
 ```bash
 magnet:?xt=urn:btih:EE00F204E56E9DA5D8E370ADE70B1BE3ADA783DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:EE00F204E56E9DA5D8E370ADE70B1BE3ADA783DF
 magnet:?xt=urn:btih:4C58DA620814A8E62B93364B25594A37240BB792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:4C58DA620814A8E62B93364B25594A37240BB792
 ```bash
 magnet:?xt=urn:btih:8B1EE93D35A5A103749B653C89C0ED4AA6CE9458
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:8B1EE93D35A5A103749B653C89C0ED4AA6CE9458
 magnet:?xt=urn:btih:EF564A2E7751AF3E48F59769CC808EB224C313FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:EF564A2E7751AF3E48F59769CC808EB224C313FC
 ```bash
 magnet:?xt=urn:btih:1CC72FA396330670DD971438115EB0C464715E14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:1CC72FA396330670DD971438115EB0C464715E14
 ```bash
 magnet:?xt=urn:btih:3C389E91A3B9F6029A0F9DD1B70481D3D07DEF77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:3C389E91A3B9F6029A0F9DD1B70481D3D07DEF77
 magnet:?xt=urn:btih:36BCF3EC74576D67BFB4BA80CAAB92640E5DBC83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:36BCF3EC74576D67BFB4BA80CAAB92640E5DBC83
 ```bash
 magnet:?xt=urn:btih:7B9B8DF0BD9786D846C25F1DF88D67A943A08E1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:7B9B8DF0BD9786D846C25F1DF88D67A943A08E1E
 magnet:?xt=urn:btih:3BD044BE835818427D1BBC349A817A6D7BF272D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ CalcKit это простая и мощная коллекция калькул�
 ```bash
 magnet:?xt=urn:btih:AAEC2BB4DC7481B9168DAFCE092558A1B4C945BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ AdGuard — уникальный блокировщик рекламы без ro
 ```bash
 magnet:?xt=urn:btih:D44769A82B4FBC611F91AAE3445604E7A41CE133
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:D44769A82B4FBC611F91AAE3445604E7A41CE133
 magnet:?xt=urn:btih:62E5D358CB2045F62E15292A1D1C3E2A9FEC5058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:62E5D358CB2045F62E15292A1D1C3E2A9FEC5058
 ```bash
 magnet:?xt=urn:btih:5B1297665BF0A5D15D2FFD8311CF65EA29B74485
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:5B1297665BF0A5D15D2FFD8311CF65EA29B74485
 magnet:?xt=urn:btih:3CE81BFD014FECE6ED8290F2D5DC512155DE34A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (build 17746622/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:1D44C56A23042687B7F76AF912A7263743611A5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:1D44C56A23042687B7F76AF912A7263743611A5C
 magnet:?xt=urn:btih:D3A7A666D9C7234BE6D96AAC8A96441B0673ABBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:D3A7A666D9C7234BE6D96AAC8A96441B0673ABBE
 ```bash
 magnet:?xt=urn:btih:C97A282A721CD303B8515D4E2A13F946007C004B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:C97A282A721CD303B8515D4E2A13F946007C004B
 magnet:?xt=urn:btih:B28FBF3E0E4B65A254CCDC3626D4BB58719E807D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Class no Daikirai na Joshi to Kekkon Suru Koto ni Natta. / I Got Married to the 
 ```bash
 magnet:?xt=urn:btih:A1E259AF388B5D9DAF2D7BCA5D71B247597937F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ MediaHuman YouTube Downloader 3.9.9.98 (1903) RePack (& Portable) by elchupacabr
 magnet:?xt=urn:btih:C0E2C5051012FA2A605E7B7B495C14EAF7FC150E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:C0E2C5051012FA2A605E7B7B495C14EAF7FC150E
 ```bash
 magnet:?xt=urn:btih:8D8FBB451C8AE0C0077EAB16BE422C741E86776F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

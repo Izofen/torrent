@@ -21,6 +21,8 @@ Geekatplay™ Studio | Vue Video Tutorials, Vue FX [2008] WEB-DLRip
 magnet:?xt=urn:btih:D222201BF9424AF78503B9C37C94E33648C4F021
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ ITVDN | Angular2 Essential (2017) PCRec
 magnet:?xt=urn:btih:1C6F335197C1BD42FA6BE84106400C59FC0DC06D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:1C6F335197C1BD42FA6BE84106400C59FC0DC06D
 ```bash
 magnet:?xt=urn:btih:5FE740B7DF8B6FD616AE621C783504529DA9859B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ ProfIT | Паттерны и антипаттерны - помощники в р
 magnet:?xt=urn:btih:5FAC8A769AC75E616A9B2786B477771682BC9BA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ loftschool | Платные видеокурсы [коллекция, 8 курс
 magnet:?xt=urn:btih:CF41B83A4322B8400BDB3DC94F9045055CA58B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ OTUS | Разработчик C# (2020) PCRec [H.264/1080-LQ]
 ```bash
 magnet:?xt=urn:btih:0425AC2220D45502DA4631CAAFC34D87806C73F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ OTUS | iOS Разработчик. Продвинутый курс v 2.0 (2020) 
 magnet:?xt=urn:btih:0E35ADA305A7D822A2B0BC4C0DE5691132A8008A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ OTUS | iOS-разработчик. Базовый курс (2020) PCRec [H.264/1
 ```bash
 magnet:?xt=urn:btih:A56DBCD41263616FB120988C4771F51FF57A3A2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:A56DBCD41263616FB120988C4771F51FF57A3A2B
 ```bash
 magnet:?xt=urn:btih:DEAB861BC8727F045BB5C28FE0FB685E05D968D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ ProfIT | "Вуду" регулярных выражений (2015) PCRec [H.264]
 magnet:?xt=urn:btih:2C05CE7EBCA3376FD092DAC546175E8B1E788D9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Udemy | Практический курс для новичков по SQL и Po
 ```bash
 magnet:?xt=urn:btih:6964F9BF12F4D75F95A0E1215ADF1AEE2BBD83AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ Udemy | Angular 9. Практический курс по созданию Ин�
 magnet:?xt=urn:btih:AB83EEEDCC9DE255FE262D95F92A20190C89D51E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:AB83EEEDCC9DE255FE262D95F92A20190C89D51E
 ```bash
 magnet:?xt=urn:btih:123FD14796BDC03F4B7010C03F08B08912732508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ ProfIT | Правильный деплой приложений на PHP (2015) 
 magnet:?xt=urn:btih:55EDD79B07F4F407629A8038B3C9525FFBB3132C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ Cisco CCNP Enterprise ENCOR от ITProTV (350-401) поможет вам изу�
 ```bash
 magnet:?xt=urn:btih:3F8A567EABBB5F3795458375EC37F42110BFA600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ Pluralsight.com | JavaScript объекты, прототипы и классы 
 magnet:?xt=urn:btih:E90E1C5B0E8E452B1404A3B02329D88BE5C7B52F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Pluralsight.com | Объединение и фильтрация данных в
 ```bash
 magnet:?xt=urn:btih:DA8F87DE397557AB245FC8FEE8D754A376184554
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ Hexlet | Практические курсы по программировани
 magnet:?xt=urn:btih:DFF216BEB0DDFD161AE3E9FBF55656B2256BC4D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ ProfIT | Git для профессионалов (2016) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:16AAC77B12E400A47C6AD6C51720759C7042779F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:16AAC77B12E400A47C6AD6C51720759C7042779F
 magnet:?xt=urn:btih:1EC81CF054655F50337151C76E28EEFB50C1033C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:1EC81CF054655F50337151C76E28EEFB50C1033C
 ```bash
 magnet:?xt=urn:btih:90A85F5FF7DD213185E571108D49F7CB675C5B4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ Shultais Education | Online-курс программирования на яз�
 magnet:?xt=urn:btih:38BDBBF6A2A3DABC32C36BC9166CB45994CC9D87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ LoftSchool | Комплексное обучение разработке на A
 magnet:?xt=urn:btih:0CDFA898D102E22FA19735A1A9DE86C20582B2E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:0CDFA898D102E22FA19735A1A9DE86C20582B2E6
 ```bash
 magnet:?xt=urn:btih:128B0FBE79B55F357267E8479AF7B9DD842A8978
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ Michael Hartl | RUBY ON RAILS TUTORIAL (3RD ED.) (2014) PCRec [H.264] [EN]
 magnet:?xt=urn:btih:3ABB87D3C1251A7875FAD12D203057042B62E7BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ ITVDN | Frontend Developer (2015-2020) PCRec
 ```bash
 magnet:?xt=urn:btih:0769769E1FF62D709EFC31B7A81ED59F05A74069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

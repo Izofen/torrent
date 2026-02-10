@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:10E33D51790A85E7BDA7ED5EEDFCF0922DDF1317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Learning Factory - симулятор, который призван созда�
 ```bash
 magnet:?xt=urn:btih:E096EFB8C90C2B813EFFADE9B06E38D42B1C895A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:E096EFB8C90C2B813EFFADE9B06E38D42B1C895A
 magnet:?xt=urn:btih:4EFF172DB453B0D4AADBE594BA5EE6971E3B2608
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:4EFF172DB453B0D4AADBE594BA5EE6971E3B2608
 ```bash
 magnet:?xt=urn:btih:D4230886754A22870174588DE9FC07E6D9A1CE84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:D4230886754A22870174588DE9FC07E6D9A1CE84
 magnet:?xt=urn:btih:BE3770A186CF0D3320738B6835AA5DFC7E5302CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Command & Conquer (2020) [Ru/Multi] (1.153.11.25007) Repack Let'sРlay [Remaster
 ```bash
 magnet:?xt=urn:btih:BE2D8A2D098E0B10756975B8A9E940DAB6D08A2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:BE2D8A2D098E0B10756975B8A9E940DAB6D08A2A
 magnet:?xt=urn:btih:8D47FB1F3B5E93955C6C50EFB5AFE885FC622B5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:8D47FB1F3B5E93955C6C50EFB5AFE885FC622B5F
 ```bash
 magnet:?xt=urn:btih:C58ECD5B991AB384B81E455F739F0664FBEFD8BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:C58ECD5B991AB384B81E455F739F0664FBEFD8BE
 magnet:?xt=urn:btih:1846EAB96111D90E8DFAB8EE3E19ADB57AEA67BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:1846EAB96111D90E8DFAB8EE3E19ADB57AEA67BB
 ```bash
 magnet:?xt=urn:btih:64B4FD03AC3FDD94694FDC4D4AB3F1714D4208BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ VA - Record Super Chart 15.03.2025 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:484A4E61BE4A180E9EA64B5786B6EDE1FCA6134D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:484A4E61BE4A180E9EA64B5786B6EDE1FCA6134D
 ```bash
 magnet:?xt=urn:btih:B774EB2E5E5CACA1FC96FFE982A449F2B96222F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:B774EB2E5E5CACA1FC96FFE982A449F2B96222F0
 magnet:?xt=urn:btih:DB0C945999C193B435D6B9D95DB0909D0D45C6A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:DB0C945999C193B435D6B9D95DB0909D0D45C6A0
 ```bash
 magnet:?xt=urn:btih:EB64FEEF750A353B5B9EC135FCA923D1D669065F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:EB64FEEF750A353B5B9EC135FCA923D1D669065F
 magnet:?xt=urn:btih:E8DC5B43B410E5087803EFB8C3C79D275FBABBB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Elisabeth Vincentelli | Артбук по мультсериалу Аркейн 
 ```bash
 magnet:?xt=urn:btih:4D16616417982864C5F2B6FBB0D2D08CE3AC4A37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Genius Art: Image AI Generator v1.2.5 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A5EBB2BE594FBBB9931C6A6C6B93242A6E2404FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:A5EBB2BE594FBBB9931C6A6C6B93242A6E2404FC
 magnet:?xt=urn:btih:C86343595A200E5DC81CBB04EB7D37FF90EC7ABC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.38/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F186A54A7BEC3A5D452BD2CD8CE29E7EF22C7E7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ DjVu Reader & Viewer (читалка дежавю на русском языке
 magnet:?xt=urn:btih:8559C848A4D597A1F7FAE72368F47085453F1DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:8559C848A4D597A1F7FAE72368F47085453F1DA4
 ```bash
 magnet:?xt=urn:btih:F0B328BED42DFD4910C54C9131D9D540EE3BC7E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Control (2020) [Ru/Multi] (Build 17677094/dlc) Repack Decepticon [Ultimate Editi
 magnet:?xt=urn:btih:44654DA8030F0809E7610382D37C210AE217039C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:44654DA8030F0809E7610382D37C210AE217039C
 ```bash
 magnet:?xt=urn:btih:A8AACCFB50AA474F7F330F49796598AFC7E25591
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Ventusky: Прогноз погоды v41.0 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:01A44D53A275DF9330DB4F1D805D079E73B09607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:01A44D53A275DF9330DB4F1D805D079E73B09607
 magnet:?xt=urn:btih:3AE55753A6378D62178089856EBBDA5CBB38686A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:3AE55753A6378D62178089856EBBDA5CBB38686A
 ```bash
 magnet:?xt=urn:btih:0AAB730839FFEEAD5FA392A03A492624D54F52B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

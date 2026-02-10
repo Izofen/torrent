@@ -19,6 +19,8 @@ Submerge 3.4.6 [En]
 magnet:?xt=urn:btih:B4FFD794F5EBF9AADF7FBDFFD3C5DF49969BAE67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Delicious Library - один из лучших каталогизаторов. �
 ```bash
 magnet:?xt=urn:btih:B7B1C7462B93B6457853F42F36BF8F10ECC8D935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Adobe Acrobat X Pro [En, Fr, De]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ iSkysoft iMedia Converter 2.0.7 [Eng]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Habit Tracker 6.0 За последние 2 года мы помогли бол�
 magnet:?xt=urn:btih:BACF740E20516245F02EC77962146B0FC19CBFBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Cisdem PDF to Word Converter станет правильным выбором, �
 magnet:?xt=urn:btih:B0C3FBA175C06F47B9E54C2FF7F927F18FF8CF45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Movavi Video Converter 8.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E77C08994EA0E2C6786014EAFD75A327D46CB2EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Mirror for Smart TV apps by AirBeamTV v2.1.7 [En]
 magnet:?xt=urn:btih:9EF55404D46E94A9B7CB3A2D5A0AD4A2DDD67677
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Fantastical - приложение представляет собой кале�
 ```bash
 magnet:?xt=urn:btih:9F431F00030F0B32FBBDBA7B9671DE4FC4FDC2A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Fenêtre позволяет визуализировать видео, изоб�
 magnet:?xt=urn:btih:43D896F83BA4396B66F721403A4FD48D5A3D9DE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Trash X - это полностью функциональная корзина 
 ```bash
 magnet:?xt=urn:btih:14C6D4B06F28BF843D8F8BB9D7464A1576F513B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Sync Checker - диагностическое приложение, которо
 magnet:?xt=urn:btih:216165081D52C042262DCD3A0DE3ED8F26DFE97E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ PrimoMusic предлагает Вам возможность перемещат
 ```bash
 magnet:?xt=urn:btih:F44660ED08A4D25DEA44FC7262F68854B60656DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ EyeTV - приложение позволяющее просматривать �
 ```bash
 magnet:?xt=urn:btih:3A5C22874268A97D60FA432F9E31D866DB5F1E10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Web2App 2.1 [En]
 magnet:?xt=urn:btih:6912100E3F2C2A764A24E0CC4179CF839892108D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ Coda 2 v2.7.7 [En]
 ```bash
 magnet:?xt=urn:btih:E27F5E8A2660392087CFB3F0D325953C5C8AD7A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ Invisible является простым в использовании и оч�
 magnet:?xt=urn:btih:25F6E5A258D366E4AA2E60119A1D9E1C370A5CB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ After Effects CC — это ведущая в отрасли программа 
 ```bash
 magnet:?xt=urn:btih:F417B7F59A04FB459D4C4282D80965EC4D05AA8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ Sketches Pro 2.0 [Multi/Ru]
 magnet:?xt=urn:btih:DFDDCB5ECA4212FF2A59964795A5EC9C85E3A309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ BitPerfect - простой, легкий в использовании, муз�
 magnet:?xt=urn:btih:11112668763FB3587BA1AF28AE63BCE0C553E68E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ Photo Formation - это фотоэффект, который автоматич
 ```bash
 magnet:?xt=urn:btih:6429189E5A937544D8C97A39197B72AAAE9C3CCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ Clear — это революционное (   Читать дальше...   
 magnet:?xt=urn:btih:BB49FA395C5E35849FDCA7A4103E89F50FCFF05D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ Network Utility X - полный набор сетевых инструмент�
 magnet:?xt=urn:btih:16F7A0EE59C8F903A46989ABB6683F676E208D4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ ToothFairy поможет вам перейти от одного выбранн
 ```bash
 magnet:?xt=urn:btih:702E33B7BBC2679541F9890B109AD84C6F05A2DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ TurnTable 3.2.8 [En]
 magnet:?xt=urn:btih:AC2E642C951E252EC4E6CF70DB954DFCAFB1B195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ ColorSnapper - инструмент «селектор» цвета для ра�
 ```bash
 magnet:?xt=urn:btih:C5ADD35DCA2B4105954A2D973049DD4C8F5C60BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

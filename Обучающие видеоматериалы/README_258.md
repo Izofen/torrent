@@ -19,6 +19,8 @@ Lynda.com | JavaScript: Замыкания / JavaScript: Closures (2018) PCRec [
 magnet:?xt=urn:btih:97522C08EEE8B9B07D88DC4BA42ACAC54B8F3B54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:97522C08EEE8B9B07D88DC4BA42ACAC54B8F3B54
 ```bash
 magnet:?xt=urn:btih:3F59DA01EAF7D4D469D27CC5B6166EAE81DD24F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -78,6 +82,8 @@ magnet:?xt=urn:btih:3F59DA01EAF7D4D469D27CC5B6166EAE81DD24F1
 magnet:?xt=urn:btih:C22F69AB608370A8B07302E450C56503CB4EAE17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -105,6 +111,8 @@ magnet:?xt=urn:btih:C22F69AB608370A8B07302E450C56503CB4EAE17
 magnet:?xt=urn:btih:2DB569CB7059E5B828DFDC55CEB1AEFFB1AC32DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:2DB569CB7059E5B828DFDC55CEB1AEFFB1AC32DE
 magnet:?xt=urn:btih:761DDF9486A8208CBEA69D2BD166066BEC3E19FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Udemy | Создание Sci-Fi ассетов в Blender 2.81 и Substance Pain
 magnet:?xt=urn:btih:DF852F8A565C155D857F92530E97684AF64B6BDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:DF852F8A565C155D857F92530E97684AF64B6BDE
 ```bash
 magnet:?xt=urn:btih:17F1BC16ACF7373F66A3F370AB6C49452DA7060B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ magnet:?xt=urn:btih:17F1BC16ACF7373F66A3F370AB6C49452DA7060B
 magnet:?xt=urn:btih:79A7F51F0AD488A55173989134701E5F5396FB59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ magnet:?xt=urn:btih:79A7F51F0AD488A55173989134701E5F5396FB59
 ```bash
 magnet:?xt=urn:btih:135902C5E58A44A37C86F95CAC423F0694606EF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:135902C5E58A44A37C86F95CAC423F0694606EF0
 magnet:?xt=urn:btih:C0188A0265E89DB92696E1A6EEB166F2E69E61A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:C0188A0265E89DB92696E1A6EEB166F2E69E61A2
 magnet:?xt=urn:btih:41880868381D69BCBEA58BB8AAA7324112685C88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ magnet:?xt=urn:btih:41880868381D69BCBEA58BB8AAA7324112685C88
 magnet:?xt=urn:btih:F0468C5322776D17079173511C9891B135A91E6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ magnet:?xt=urn:btih:F0468C5322776D17079173511C9891B135A91E6A
 magnet:?xt=urn:btih:50EB7B6A71823973EB78F86DBF3AE38F880EE3A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +392,8 @@ magnet:?xt=urn:btih:50EB7B6A71823973EB78F86DBF3AE38F880EE3A9
 ```bash
 magnet:?xt=urn:btih:D957DE1230E174A14F98F6AB19793945328E804F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +427,8 @@ magnet:?xt=urn:btih:D957DE1230E174A14F98F6AB19793945328E804F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +452,8 @@ magnet:?xt=urn:btih:D957DE1230E174A14F98F6AB19793945328E804F
 ```bash
 magnet:?xt=urn:btih:24FB8EF0A24B800A934EFD71973FB834441AD88C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ magnet:?xt=urn:btih:24FB8EF0A24B800A934EFD71973FB834441AD88C
 magnet:?xt=urn:btih:D7AEAA90EE3C141D5CD9A4A92EB73F197B0791DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +509,8 @@ imoib | Обеспечение безопасности ПДн при их об�
 magnet:?xt=urn:btih:20CA8A50126A4AC92F00DC211F004C122FAA9E37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +534,8 @@ Udemy.com | Concept Art Essentials. Digital Painting From Scratch (2019) PCRec [
 ```bash
 magnet:?xt=urn:btih:55981D3AA9025CDD380028E492D4A3B6E53E2590
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +563,8 @@ Udemy.com | Concept Art Masterclass. Create Conceptual Art from Scratch (2019) P
 magnet:?xt=urn:btih:1EF627A738F764827782F629DF5429E6C4A35CA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +588,8 @@ Udemy.com | Architectural Design & Animation in Blender (2019) PCRec [H.264/720p
 ```bash
 magnet:?xt=urn:btih:7CFC5DA22A1AC6DCFBB7D29A812E1F75DF8B3956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +615,8 @@ Lynda.com | JavaScript: Классы / JavaScript: Classes (2018) PCRec [H.264/7
 magnet:?xt=urn:btih:AADB3FDD464688DD50C4447A91E2E03E9B36E1F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +640,8 @@ Lynda.com | JavaScript: Область видимости / JavaScript: Scope (2
 ```bash
 magnet:?xt=urn:btih:89919E69D0414FF82A8A409B911DE64B20657310
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +670,8 @@ Excel — незаменимый инструмент для бухгалтер�
 magnet:?xt=urn:btih:ED912C4855470D448189FB638F96931E0F7E7B5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +699,8 @@ Yagla | SEO 4.0 (2021) PCRec [AD]
 magnet:?xt=urn:btih:52B8E67E6C15742016AA486F6327C1DA675B4ADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,6 +725,8 @@ Flutter - фреймворк, разработанный Google - позволя
 ```bash
 magnet:?xt=urn:btih:D2CFAA5151EA57C1103C512B3F50CC317B62B08F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

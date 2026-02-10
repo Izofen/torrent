@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:E173C6279867BB010CBD89CD4143BC4A0751A3AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:E173C6279867BB010CBD89CD4143BC4A0751A3AB
 magnet:?xt=urn:btih:AB85EBF6CA937DED6EAC1F134A01E5CBE8123FB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:AB85EBF6CA937DED6EAC1F134A01E5CBE8123FB5
 ```bash
 magnet:?xt=urn:btih:2C5D8B7C741FB3A2894D7C45FB8D4C97FA8BE014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ magnet:?xt=urn:btih:2C5D8B7C741FB3A2894D7C45FB8D4C97FA8BE014
 magnet:?xt=urn:btih:CED024DC7575EB2D0A6DB4FB6B61BBBD22614246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ Vanessa Mai - Für Immer Tour Live 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:BE7FE6DEDA355ACA1599A7DBC01385A84D48751A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ The Philarmonics - Philadelphia Disco (1977) LP [MP3|320 Kbps] <Disco, Instrumen
 magnet:?xt=urn:btih:46B45CF91F1A74F6358D9FCCA8110992048F0106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +201,8 @@ Elton John - The Lockdown Sessions (2021) Japanese Edition [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:A699347B7458D0A76647CBCBCB3611932849FD94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ VA - Apres Ski Party Hits 2020 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:EABB725081140C5237F0972BBEADF8BC3790B692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +259,8 @@ Riccardo Cocciante - - ... Je Chante (1999) [FLAC|Lossless|image + .cue] <Pop, C
 ```bash
 magnet:?xt=urn:btih:BE099C261E7A3BDFEB7A485AF0F1A468DFBED55B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ VA - ОДНАЖДЫ В ЛАТВИИ Песни А.Мирского и С.Нем�
 magnet:?xt=urn:btih:13ED33BF43391D6A0A1BDEDFF4EBB21BE9F94194
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +317,8 @@ magnet:?xt=urn:btih:13ED33BF43391D6A0A1BDEDFF4EBB21BE9F94194
 ```bash
 magnet:?xt=urn:btih:9D600DA9121F54C03C80F9A567ED739A12177B60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +347,8 @@ CD1
 magnet:?xt=urn:btih:933C6FC7B7E4401715E71B743588E4825C8F0E44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +375,8 @@ MC Вспышкин & Никифоровна - Sex (2004) Reissue, Remastered, 2
 ```bash
 magnet:?xt=urn:btih:902EC44F55E952D9C4F0A2469DEF12AA112C06B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +405,8 @@ CD1:
 magnet:?xt=urn:btih:71D55E916F08F6EA2DB5A7A1CB31D90D1670C146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +433,8 @@ Kelly Marie - 2 Albums (1976-1981) LP [MP3|320 Kbps] <Electronic, Funk Soul, Dis
 ```bash
 magnet:?xt=urn:btih:D18CF698751A3856B6BB48956A6887E335B9E7FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +463,8 @@ Liz Mitchell - A Christmas Rose (2001) (ex. Boney M) [MP3|320 Kbps] <Pop, Ballad
 magnet:?xt=urn:btih:2E80CDE57FBA62EE37C17EF5763A2EECD44ECC43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +491,8 @@ VA - Dance Dance  Best of 2022 [MP3|320 Kbps] <Pop, Dance, House>
 ```bash
 magnet:?xt=urn:btih:5D869147CF17ADD69E142E5FBA0F6325763FC559
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +521,8 @@ Jennifer Lopez - This Is Me...Then (2022) 20th Anniversary Edition [FLAC|Lossles
 magnet:?xt=urn:btih:2C6524F0A4DEC8D77A6E4FDAA3C57AE32B8F1B50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +549,8 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:C31C80EF385C25C78CCB7F202056527960609939
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +579,8 @@ magnet:?xt=urn:btih:C31C80EF385C25C78CCB7F202056527960609939
 magnet:?xt=urn:btih:E6E75614411A9750C9FDAF0ADE1AC097014746F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +604,8 @@ Angel Garcia DJ - If You Come Back (2023) [FLAC|Lossless|tracks] <Pop Trance, Eu
 ```bash
 magnet:?xt=urn:btih:1CFCE136701A41F59BC0F26318AFCA50FBFE6E59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +634,8 @@ magnet:?xt=urn:btih:1CFCE136701A41F59BC0F26318AFCA50FBFE6E59
 magnet:?xt=urn:btih:8E4DB5C9ABDA7D3D93EE559622F9B7AF4359D271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +662,8 @@ VA - Хиты украинской эстрады 70-х годов / Хіти у
 ```bash
 magnet:?xt=urn:btih:433DCE2B4A30ED9CC875C9610705E3AC59E5496A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +692,8 @@ magnet:?xt=urn:btih:433DCE2B4A30ED9CC875C9610705E3AC59E5496A
 magnet:?xt=urn:btih:8EE24DA631F70EB7F99FF2A983DFF91F9030C598
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +721,8 @@ Black Eyed Peas - Elevation (2022) [MP3|320 Kbps] <Rap, Reggae, Dance>
 magnet:?xt=urn:btih:FC7E90867053E8AF8AED8642FC6D311D42B7DA2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ magnet:?xt=urn:btih:FC7E90867053E8AF8AED8642FC6D311D42B7DA2E
 ```bash
 magnet:?xt=urn:btih:3CB46765BAA600873980038B6F662C09E05DA30E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

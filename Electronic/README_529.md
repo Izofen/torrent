@@ -22,6 +22,8 @@ Diary of Dreams - Melancholin (2023) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Go
 magnet:?xt=urn:btih:942910EB02635B0675407FDE025C9B98CD642F65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - The Essential Downtempo Vol.4: Chillout Your Mind (2023) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:0E84985078EA768598A64391F26E6BFF2B66E814
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Vintage Culture - Live @ UP Club Stage, Universo Paralello, Brazil (2023-01-03) 
 magnet:?xt=urn:btih:96E84C8D501E6EB231E23C40B93FB2A244BF39AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ VA - Alpha 9 Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:4914DA1969F1FD807F180C7251C0B1F78A11166C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ Diary of Dreams - Melancholin (2023) [MP3|320 Kbps] <Darkwave, Goth Industrial>
 magnet:?xt=urn:btih:0958E63E8CE4398E4B7916A8695366723C372CF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ VA - Space Odyssey - Trip Seven: New Year's Voyage 2021 (2021) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:5EC2EED720FDEE05BBC228CD013004B3E74B7C64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ CD1:
 magnet:?xt=urn:btih:A04C370DDC0B458743869BC3FBA03DE581F54B8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ VA - Inspectrum Recordings Best Of 2020 (2021) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:4333618CBC9081D0F40D20BF82820DE5AFEFEF73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ VA - Elliptical Sun Recordings - (Mixed and Compiled by Leo Lauretti) (2020) [MP
 magnet:?xt=urn:btih:F55F8B65DB3A05BA5111F736ECF707ECD16F2DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ Monflame - Voyager (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 ```bash
 magnet:?xt=urn:btih:4CF66A4A788D720EEB2E0F9B35AB5BDBC7AF6B11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +310,8 @@ VA - Black Hole Trance Music (02-23) (2023) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:130DD79798D0F6C1C8D648E10754D71F26F2E93D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ VA - Black Hole House Music 02-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 ```bash
 magnet:?xt=urn:btih:912D2E6461BE4759C24DB7BA0F653991AB115053
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +368,8 @@ Kurs - Muter (2021) [MP3|320 Kbps] <EBM, Electro, Industrial>
 magnet:?xt=urn:btih:A3F3FD9D2B5E971ECADA5486ED91EA44A606F607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ VA - Space Odyssey - Trip Seven: New Year's Voyage 2021 (2021) [MP3|320 Kbps] <S
 ```bash
 magnet:?xt=urn:btih:DCCD9A65099663A892D03E5A6E2D8D69EFF80AC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +426,8 @@ VA - Soft, Deep & Dark #1-5 (2017-2020) Seven Villas Music [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:0ED90AED385A1DF3FBB369E78EA81ECBDC9C123D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +454,8 @@ VER:WEST(Tiesto) - Aftr:hrs Sessions 01 (2021-01-14) [MP3|320 Kbps] <Tech House,
 ```bash
 magnet:?xt=urn:btih:9D3CCC10E6223E05DA722E20446C4C93384435BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +484,8 @@ VA - Dreaming Silent Worlds: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:02643BE53C3284187F74D2E9149F7E9515CAF834
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +512,8 @@ VA - A State Of Trance - Celebration Weekend (2023) [MP3|320 Kbps] <Trance, Prog
 ```bash
 magnet:?xt=urn:btih:789D05DCCA83D7CC183ABE1B978F9CF92398D95A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +542,8 @@ mind.area - No Enemy Of Progress (2020) [MP3|320 Kbps] <Electro, EBM, Industrial
 magnet:?xt=urn:btih:1A23FC871A368EA20DAFB31A4FF5907553432FE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +570,8 @@ VA - Trance 2023, Vol. 2 [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:CCF4672AA326CA203D3010FF4F9800A510D533B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +600,8 @@ VA - Xolodno Compilation [22.12] (Mixed and Compiled by Alexey Viper) (2021) [MP
 magnet:?xt=urn:btih:B4BD00E6056E3CFE3D67245DF2976AA79AB9F14A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ VA - Balearic Headspace Volume 1-5 (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <Ho
 ```bash
 magnet:?xt=urn:btih:62B3F558C1339F12A6B77E740380A39F9FC62408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +658,8 @@ VA - Uplifting Only Top 15: February 2023 (Extended Mixes) (2023) [MP3|320 Kbps]
 magnet:?xt=urn:btih:AC1E121590E87C78B29C62953990018CE8023A87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +687,8 @@ VA - The Sound of 2023 Mix 1: Hong Kong (2023) [FLAC|Lossless|WEB-DL|tracks] <Pr
 magnet:?xt=urn:btih:9756BB2A556E6CED5701D1C964FB2E190A9F1A36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +714,8 @@ VA - Defected Presents House Masters - Mr. V (2022)[FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:381C57D6C86A27659FF1194823E2ABD68EB8407C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -693,6 +743,8 @@ VA - The Sound of 2023 Mix 2: Seoul (2023) [FLAC|Lossless|WEB-DL|tracks] <Progre
 ```bash
 magnet:?xt=urn:btih:82DC7EC3732B648A7383405ECFADA9DB6DBEE857
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

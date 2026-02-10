@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:84FA7C60B0B7FFD1C6E4FD2D96C313A46B355A1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:84FA7C60B0B7FFD1C6E4FD2D96C313A46B355A1B
 ```bash
 magnet:?xt=urn:btih:8D834A6D921D0E4F0F2B5847AAA8971DA929E38F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Kenya Grace - The After Taste (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electr
 ```bash
 magnet:?xt=urn:btih:7983D5C7728616B44C0211666488A00F4F82D587
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Santana — дебютный студийный альбом американс�
 magnet:?xt=urn:btih:66C2B7087A9F28F6B8CED20C9E7CFAD582D11C6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:66C2B7087A9F28F6B8CED20C9E7CFAD582D11C6C
 ```bash
 magnet:?xt=urn:btih:16592D64AE514C7E2AF3A51ACE8205685E8581E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ Mahmut Orhan - Pangea (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, 
 magnet:?xt=urn:btih:427EE668D83D87CA2DF5F1FC96FBA5E24B23E3E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:427EE668D83D87CA2DF5F1FC96FBA5E24B23E3E4
 ```bash
 magnet:?xt=urn:btih:06955974B44F381C0D3EE2F2B661662A70461351
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ White Dog - Double Dog Dare (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 magnet:?xt=urn:btih:7D07FAF3CA10FAE0CE369BB36155A9B8B6917737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ Five Finger Death Punch - AfterLife (2022) Deluxe, 2024, Better Noise Music [FLA
 ```bash
 magnet:?xt=urn:btih:4D5096A77E7EC7BD363AFF37BA2EC58E57FA802A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -255,6 +273,8 @@ Chris Connor - Sings Lullabys of Birdland (1956) 2007, Victor Entertainment [FLA
 magnet:?xt=urn:btih:E1D76761384FB677759CFD6B0FA8CFE7ECF6F4F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ Still Corners - Dream Talk (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternati
 ```bash
 magnet:?xt=urn:btih:0778E039DB39E4082CE6DE61A79F4F4D84275D18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +331,8 @@ Till The Dirt - Outside The Spiral (2023) [FLAC|Lossless|image + .cue] <Death Me
 magnet:?xt=urn:btih:E4E36A2CE5F06C3728C4153B96B809FF5E91583D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +359,8 @@ Celtian - Secretos de Amor y Muerte (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:931A66C75A53AA7026820B20DCF8CDC2894C8639
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +389,8 @@ Little Albert - The Road Not Taken (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:60852FA5FB7A012DC84EAC120DF14FB984CB0063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +417,8 @@ The Meteors - 40 Days a Rotting (2024) [FLAC|Lossless|WEB-DL|tracks] <Rockabilly
 ```bash
 magnet:?xt=urn:btih:69B05CFD516AA75E11345649447E1F2AC3D96154
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +447,8 @@ The Drums - Jonny (2023) Deluxe, 2024, Anti - Epitaph [FLAC 24/44.1|Lossless|WEB
 magnet:?xt=urn:btih:9391EFD84344954720079A0F7F95DED4C4EED2D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +475,8 @@ magnet:?xt=urn:btih:9391EFD84344954720079A0F7F95DED4C4EED2D7
 ```bash
 magnet:?xt=urn:btih:3A2E0C8EC92D4BA1E23B55F8D956F6BAA8E1E6C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +505,8 @@ Modest Mouse - Good News For People Who Love Bad News: (2004) 20th Anniversary E
 magnet:?xt=urn:btih:F0FC0D495339C63F838CF7FD78E2E1A88D870EC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +533,8 @@ Kenny Burrell - Moon And Sand (1979) 1992, Concord Jazz [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:C552D6D5FDA144C253CB795453A49C35C3C65E56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +563,8 @@ Quinta Essentia - Evolution of Ethereal Wisdom (2024) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:8AE0305A7AC92DB439205E87A86310C613F59648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +592,8 @@ Pat Martino - We'll Be Together Again (1976) 1990, Breaktime [FLAC|Lossless|trac
 magnet:?xt=urn:btih:3638C1C4B0D8A7EB18BF3B7F933471C4B813F1B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +619,8 @@ magnet:?xt=urn:btih:3638C1C4B0D8A7EB18BF3B7F933471C4B813F1B5
 magnet:?xt=urn:btih:16E3B35B40E1222A4BD78C3CACB5CA9113E68981
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +644,8 @@ magnet:?xt=urn:btih:16E3B35B40E1222A4BD78C3CACB5CA9113E68981
 ```bash
 magnet:?xt=urn:btih:E1B07314425DFC9DB7C32E8245D2AF4530A6EC05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +672,8 @@ magnet:?xt=urn:btih:E1B07314425DFC9DB7C32E8245D2AF4530A6EC05
 magnet:?xt=urn:btih:80A66FFC4D65392B9397B039EA1CCC866E01BAD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +698,8 @@ Wavesequencer - Hyperion 1.51 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 magnet:?xt=urn:btih:A3A0937384899ECED7D18D3FB5574915F5CEA364
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +723,8 @@ magnet:?xt=urn:btih:A3A0937384899ECED7D18D3FB5574915F5CEA364
 ```bash
 magnet:?xt=urn:btih:342CFB5E4030B04ACBD1090772C7D42A43CD40F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

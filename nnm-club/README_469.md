@@ -19,6 +19,8 @@ ByeByeDPI v1.5.6 [Ru/Multi]
 magnet:?xt=urn:btih:8DDF19DDC84EFBC52E4C8241AEB337411999E11D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:8DDF19DDC84EFBC52E4C8241AEB337411999E11D
 magnet:?xt=urn:btih:F9318F4039639D4C1C59DDA3C9FFB11E516B3CA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F9318F4039639D4C1C59DDA3C9FFB11E516B3CA0
 ```bash
 magnet:?xt=urn:btih:B6DFE190740523A317B80B3FDBBFD12B3F24397F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:B6DFE190740523A317B80B3FDBBFD12B3F24397F
 magnet:?xt=urn:btih:56F304BB3D8BAEE5F4F8C265B067C9E47AB9FF5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:56F304BB3D8BAEE5F4F8C265B067C9E47AB9FF5C
 ```bash
 magnet:?xt=urn:btih:40FAD44B6BE659DF50BADCED54A4BD775A6D31CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:40FAD44B6BE659DF50BADCED54A4BD775A6D31CC
 magnet:?xt=urn:btih:0A388CFECF6AF228EBA7CABA407D6E655B36369C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ MyLanViewer — программа для сканирования и монит
 magnet:?xt=urn:btih:2DAFFC9D879F9C5CCCA16C7A3A8FCD38F961399D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ I Know This Place..? / Я знаю это место..? (2023-2025) [Ru/En] (Bui
 ```bash
 magnet:?xt=urn:btih:6C29ED287DE383A30CDD734C6DA6CC5266696249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ SD Card Test Pro v2.5 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:D4C6D9F173A5A7921A5DEC3E08281A353E3DD0A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:D4C6D9F173A5A7921A5DEC3E08281A353E3DD0A3
 magnet:?xt=urn:btih:7C16C9E50F06DC31F451CC51A9D02FCF8BF6D42C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:7C16C9E50F06DC31F451CC51A9D02FCF8BF6D42C
 ```bash
 magnet:?xt=urn:btih:935125625563BFB268C86B6635C81A2758EF27AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ updated_june_2025_x64_dvd_aace2d00.iso
 magnet:?xt=urn:btih:5BA0B38522F54F878083133DDD6D5E8D64C64DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:5BA0B38522F54F878083133DDD6D5E8D64C64DD4
 ```bash
 magnet:?xt=urn:btih:0D75EB85FB3E60AB863BFEBEA894CC5B097EFB5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:0D75EB85FB3E60AB863BFEBEA894CC5B097EFB5B
 magnet:?xt=urn:btih:16952D5CC939480BA5D43904FE277E0056C1BE8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:5CF18DF55C2357848B75CA8E08F46D637EE358B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ VA - Oriental Deep 6 (2025) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:9BC55088226B6C16403C1E03DADAAEE9AEC29A17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Double Commander - это свободный, с открытым исходны
 ```bash
 magnet:?xt=urn:btih:E4E507110B725C57B7D88B47B60E904A96992269
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:E4E507110B725C57B7D88B47B60E904A96992269
 magnet:?xt=urn:btih:9B54DDE291993F01EE6985DF3AE4AEC031420FF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:9B54DDE291993F01EE6985DF3AE4AEC031420FF5
 ```bash
 magnet:?xt=urn:btih:2CA69A051A3EB160036C8779A53D3F4C3800DAB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:2CA69A051A3EB160036C8779A53D3F4C3800DAB5
 magnet:?xt=urn:btih:F303FCD2AFA65F7857299E92C64EB40FD6189207
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:F303FCD2AFA65F7857299E92C64EB40FD6189207
 ```bash
 magnet:?xt=urn:btih:359DF419386A97C6FECC0C9C5BFC82F000616626
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:359DF419386A97C6FECC0C9C5BFC82F000616626
 magnet:?xt=urn:btih:CA6DE68FC7F867584D24B16AF5D706180D259543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Ship of Fools — это кооперативное морское приклю�
 ```bash
 magnet:?xt=urn:btih:CBE9A76E52538D82173CE0C58FF11C8236A55024
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:CBE9A76E52538D82173CE0C58FF11C8236A55024
 magnet:?xt=urn:btih:B1A3294C7EF4BC7B9D8244C47851458708DF17CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ ByeByeDPI v1.5.5 [Ru/Multi]
 magnet:?xt=urn:btih:902E078DAAD0ECE1FA1DD8523A76913C1C321491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:902E078DAAD0ECE1FA1DD8523A76913C1C321491
 ```bash
 magnet:?xt=urn:btih:F148D8C49F9EF3A4799F09E90A1840C0D414021C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

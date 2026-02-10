@@ -19,6 +19,8 @@ APK Extractor 4.1.7 [En]
 magnet:?xt=urn:btih:E850F1FDFA74712C493F65F3C9D98E86925837F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:E850F1FDFA74712C493F65F3C9D98E86925837F2
 ```bash
 magnet:?xt=urn:btih:F59F59F716E05D4B2543832E2A568F4FD07917BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Online-мобильное приложение "Фармацевт в карма
 ```bash
 magnet:?xt=urn:btih:814285A5C53D5BA138AA49695FA140E46387DDF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:814285A5C53D5BA138AA49695FA140E46387DDF1
 magnet:?xt=urn:btih:7C9D895A876E9F5CC94EAD9BDF663F8B8C370F73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:7C9D895A876E9F5CC94EAD9BDF663F8B8C370F73
 ```bash
 magnet:?xt=urn:btih:9E8F00BCE0EADC80EBF4BA4819DA35DAFBE41A2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:9E8F00BCE0EADC80EBF4BA4819DA35DAFBE41A2F
 magnet:?xt=urn:btih:5CDA3CD417ADCC7F3C8CF11C8473DA1E722B2D3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ SMD компоненты v1.7.1 [En]
 ```bash
 magnet:?xt=urn:btih:1BAD60F6489426EDE42A7FCBA964502E5E0983EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:1BAD60F6489426EDE42A7FCBA964502E5E0983EC
 magnet:?xt=urn:btih:543BCEA2278F8616B72C9FFEC6F84B8E30040CD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Bini СУПЕР АЗБУКА v2.6.9.2 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:29A7086C4B2FCDA7640A11FB0B2F54EC3C8F2AC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:29A7086C4B2FCDA7640A11FB0B2F54EC3C8F2AC9
 magnet:?xt=urn:btih:1107A4D2DA4D432B30B51A595E02FE63C15BA1BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Recorder 4 in 1 PRO - Запись входящие звонков, исходя
 magnet:?xt=urn:btih:F75D60AB5D49B46B130C90E0148C2F94D202BF1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Life-License Full версия Aнтивирус Aндроид AndroHelm Mobile 
 ```bash
 magnet:?xt=urn:btih:4062277E34A29DAC0CA946CB3E650304E577E1F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ ElectroBuddy Pro- AdFree версия Electrobuddy приложение, кот�
 magnet:?xt=urn:btih:4B09A2B45BB50A30333E288836B6F4D68CFE3CCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ Swapper for ROOT 2.0.6 [En]
 magnet:?xt=urn:btih:8C0D19BFD20572779BEB2F862EA09A19A8A2B040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ PRO PDF Reader 4.5.2 [Ru] - Читалка книг и документов фо
 magnet:?xt=urn:btih:B6A601A60478AB2E7B4209BFF293918DB3DBA321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ IP Tools - удобный и мощный инструмент для анали
 ```bash
 magnet:?xt=urn:btih:58B337037A64267068F56B35857F17A846A2E4B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Assistant Premium 3.3.9 [Ru/Multi]
 magnet:?xt=urn:btih:5300A037959595928F9B2A0739ABEFE2A3683482
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ WPS Connect 1.3.1 (Beta) [Ru]
 ```bash
 magnet:?xt=urn:btih:D9EDA494C6DCB456B2F07FB7757E1C8343C07639
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:D9EDA494C6DCB456B2F07FB7757E1C8343C07639
 magnet:?xt=urn:btih:976B31D80DC674F26656F238CA4B0036F2FFD583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ Check Engine  v1.5.8.01 [Ru] - на русском языке
 magnet:?xt=urn:btih:4D91A2084B23196CF7B5C654C1306A055DEDF7CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:4D91A2084B23196CF7B5C654C1306A055DEDF7CD
 ```bash
 magnet:?xt=urn:btih:882753E3B0B1D21C88DF2A2273DC18FB16987036
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ Adblock Plus 1.3.0.369 [Ru] - Блокировщик рекламы
 magnet:?xt=urn:btih:58263094087B3FB6AA06DADC97F805CAA5181667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:58263094087B3FB6AA06DADC97F805CAA5181667
 ```bash
 magnet:?xt=urn:btih:B323D4141863F13933F1E6BAFF9E4E8819F93599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:B323D4141863F13933F1E6BAFF9E4E8819F93599
 magnet:?xt=urn:btih:D294A441D2BB8ABA3C3661C7B109FFE73B500BAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ Canva Premium 2.47.0 [Ru]
 magnet:?xt=urn:btih:490C144B61C8837904017530C0B9C03E69819B7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Birthdays / Дни рождения v2016-01-15.34-paid Patched  [Ru/Multi] - В
 ```bash
 magnet:?xt=urn:btih:9729C91965FE657F80C4EC107FF98E038CB9B9E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

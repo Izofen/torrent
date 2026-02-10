@@ -22,6 +22,8 @@ VA - Shazam Хит-парад Russia Top 100 Ноябрь (2018) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:D2ACB3A71255CEAD86DADD7F4A6EF87F67BE6399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VA - С музыкой, в Новый Год!!! (2010) [MP3|256-320 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:4D9D5A14B05256C96B0FB9ADB06EBFA0EB1A53BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Новая сотка от Европы Плюс. Версия 50/50 (2016)
 magnet:?xt=urn:btih:A009B8DF29BB7FD4A9430DF1D4FC5341E32E195C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ VA - Счастливый случай. Сборник хитов от Русс�
 ```bash
 magnet:?xt=urn:btih:D6C44D390A755734C5993D2A999C126934F73FA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:D6C44D390A755734C5993D2A999C126934F73FA7
 magnet:?xt=urn:btih:3DAD81D95FBAA2CE9F818FB2F75561451F794344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ VA - Звездная вечеринка. Зарядись хитами. Вып�
 ```bash
 magnet:?xt=urn:btih:5874E54AEDCF98697BAE1DE25E3C7275AAF44B6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ VA - Temptation: Popular Dance Music (2019) [MP3|320 Kbps] <Dance, Pop>
 magnet:?xt=urn:btih:18FCFF0BC510C750A5D775EE9BA8D4662CE4CB21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ VA - Музыкальный плен на Europa Plus 4 (2016) [MP3|256 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:827E9685DC3825BD3DEFF603FA720147043ABE42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ VA - Best Weekend: Pop Dance Mix (2018) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:8A01DBEF18931CF0B7D5FC83CBD7A3E15E11312C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ VA - THIS is the 60's (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:2BE09C0408E17D85BBE90604B82D6EC2D48C8E99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ VA - New Music Releases Week 47 of 2018 (2018) [MP3|~229 - 320 Kbps] <Dance, Pop
 magnet:?xt=urn:btih:5C0FE2565D318D3476862C7A9DF7E80C9AB51794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ VA - New Releases of the 24th Week of 2018 (2018) [MP3|320 Kbps] <Pop, Tropical,
 ```bash
 magnet:?xt=urn:btih:A54AF428921A63DCB4348A8C2EF9FA97B0277899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ magnet:?xt=urn:btih:A54AF428921A63DCB4348A8C2EF9FA97B0277899
 magnet:?xt=urn:btih:ACFFC31516F1299320937E0B99A362868C9D861E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ VA - Хитовый бум на Europa Plus. Выпуск 50/50 (2016) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:0B135C39467FE8846C330BFE33203E82C7808F1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ VA - Автодискотека. Зимний драйв. Русская вер�
 magnet:?xt=urn:btih:397C8D951040A7ECDFE17FD93625397CE38CA348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ VA - Танцевальная пурга. Зарубежный сборник (2
 ```bash
 magnet:?xt=urn:btih:F0AF1E05CAD536364CA25809B5823AD942E8DA2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ VA - Зимний TOP 100. Русский сборник (2016) [MP3|256 Kbps] <
 magnet:?xt=urn:btih:70D01DF7BAFFBF7B39D22AC92919AD047DCA9901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ VA - Billboard Hot 100 Singles Chart 24.12. (2016) [MP3|32-320 Kbps] <Pop, Dance
 ```bash
 magnet:?xt=urn:btih:D25EB064130A13038A9CC46ABDFA3F35B0860A34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ VA - Танцевальная зима. Снежная сотка (2016) [MP3|25
 magnet:?xt=urn:btih:08ACD72366327F942DB9D6F4BC54FAF4E7716D80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ VA - Музыкальные новинки mp3. Выпуск 6 (2016) [MP3|256 K
 ```bash
 magnet:?xt=urn:btih:95F132465CDE714D7761EBA77985AC902CC23BF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ VA - Музыкальные новинки. Only Best Hits. Выпуск 2 (2016
 magnet:?xt=urn:btih:2C673594B1A1934EC9E56404A6F5DAB717E98D19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +624,8 @@ VA - Новогодние Каникулы 50/50 (2010) [MP3|256 kbps]<Pop/Dance
 ```bash
 magnet:?xt=urn:btih:8DB2B79B59084362EE6658B0297A435C3A01D11E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +654,8 @@ VA - Осенний динамит. 50Х50 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:E667B60BDF47B875B74CD75178855D1C90996EA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +682,8 @@ VA - Отрывайся с лучшими хитами выпуск 5 (2016) [MP
 ```bash
 magnet:?xt=urn:btih:F452A288B8E4B00A2EA917F0420F35DBD1BF2BFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +712,8 @@ DFM
 magnet:?xt=urn:btih:DD81C6407EF5C7052501066778B3EB4FADCF9506
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +740,8 @@ VA - Сотка модных хитов. Сборник 9 (2016) [MP3|256 Kbps] 
 ```bash
 magnet:?xt=urn:btih:F2E54294BC883C0B08ABD50EBD44845F50320046
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

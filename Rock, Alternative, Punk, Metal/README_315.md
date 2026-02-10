@@ -22,6 +22,8 @@ LVA - Ας αρχισει η τελετη (2020) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:4D5D267EA960451AD82BD9B00E7436EDAEABB10F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Slade - 70's Hits (2023) [MP3|320 Kbps] <Rock, Glam Rock>
 magnet:?xt=urn:btih:89538C0F989B3F2EFD04BE67E0902E0A20C0519B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ Till Lindemann - Zunge (2023) Single [MP3|320 Kbps] <Industrial metal>
 ```bash
 magnet:?xt=urn:btih:8916CD1B0DED16B458677B3AA5289464DB7F03E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ Dead Addiction - ...of Vice and Men (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 magnet:?xt=urn:btih:DDC369E71C2F9CE7DCA7A49BE611FE8279A3B831
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ Stalker - Tales From Heaven (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy 
 ```bash
 magnet:?xt=urn:btih:2C737EB73F6AA841E761195E8D16872DC88756DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ Jon Lord - Live (2023) [MP3|320 Kbps] <Symphonic Rock, Rock, Classical>
 magnet:?xt=urn:btih:2F813AEDBE4BE4AED6DD9CA292598E4509734AA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ V.A. - Melodic Rock 100 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:D37AD4BE22E0D9F229E8EDA9B61632C3CEF8C7ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +224,8 @@ Within Temptation - Ritual (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock,
 magnet:?xt=urn:btih:EF509CD3F93BE248536C6AB463CC1058827AF92E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +252,8 @@ Disc 03 - The Duke (2006)(   Читать дальше...   )Жанр: Hard Rock
 ```bash
 magnet:?xt=urn:btih:D42CA86F4D22400F874389DDE244BD6D12631818
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ Omega - Testamentum (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Hard
 magnet:?xt=urn:btih:5DF3337EF0DD913FCE51A5A491B5B72DB2EBC029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ Nick Cave & The Bad Seeds - Idiot Prayer (2020) Nick Cave Alone at Alexandra Pal
 ```bash
 magnet:?xt=urn:btih:684E1D206005C695BD78FB0A2DAAD348C74481E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +340,8 @@ Cliff Richard - Music ... The Air That I Breathe (2020) [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:8A3990EA3AC575D5BE1F39ED5A5BCF9EACB0E6D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ The Jeffrey Lee Pierce Sessions Project - The Task Has Overwhelmed Us (2023) [FL
 ```bash
 magnet:?xt=urn:btih:FDA85D47638BBDC140B8DCBBE0C1093C6646D706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +400,8 @@ magnet:?xt=urn:btih:FDA85D47638BBDC140B8DCBBE0C1093C6646D706
 magnet:?xt=urn:btih:BE22DD7751CC6640124F73356E18AC84C95C2876
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ H.E.A.T - Extra Force (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melo
 ```bash
 magnet:?xt=urn:btih:FF23256F727BA9ACC9F3906E02028D665A1C5C05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +458,8 @@ John Lennon - TRUTH. (2020) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:8DBC1A69E824556730AC3F21EACAFCD6663CF276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +486,8 @@ Collapse Under The Empire - Recurring (2023) [FLAC|Lossless|WEB-DL|tracks] <Post
 ```bash
 magnet:?xt=urn:btih:53AD8447CA5336B7F8C793619F05443D11AB04DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +516,8 @@ Hard Attack
 magnet:?xt=urn:btih:CB0E03AE061E17DD982EBBD3F6B9F9B3D0FA61EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +544,8 @@ Volbeat - Rewind, Replay, Rebound (2020) Live in Deutschland [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:95CE18128B844A7E95552635F72BBDB7795BD661
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +574,8 @@ Nomy - Stay (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Modern Rock>
 magnet:?xt=urn:btih:E9358AF73E59B2A021282452B7966AC40DE7A7A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +602,8 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:E9DCC6BCD604B7849D247FE85F1155B10DFDD02C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +632,8 @@ Mystery - Caught In The Whirlwind Of Time (2020) Live [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:6EA152DE8D9959D20EE214AB5E5FFA4E5DD07CD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +660,8 @@ Eclipse - Megalomanium (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 ```bash
 magnet:?xt=urn:btih:C90E21EEBE7B44554AB3FF1DA5622EFED0CEF897
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +690,8 @@ Nikki Stringfield - Apocrypha (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, H
 magnet:?xt=urn:btih:7151503C5544665E64C5C291AC1DF4347D071160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +719,8 @@ CD - 1:
 magnet:?xt=urn:btih:DC9E17F0E2A45FADD781026121638B69C42BCB1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ Giant Rev - Shine (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, Prog Relat
 ```bash
 magnet:?xt=urn:btih:4692BA80E076650F16F5113EB68D22C37EF6BF96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

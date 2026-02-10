@@ -19,6 +19,8 @@ App Icon Generator 1.3.5 [En]
 magnet:?xt=urn:btih:61851AEAD4BFA873F3271D0F0E243C6B0FA7ECAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Revo Uninstaller Pro 5.2.0 Portable by FC Portables [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B557FAECBE4E6DEFC78FC83A8E2BE2F83B0B9435
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ WinCalatog - это простая в использовании програм
 magnet:?xt=urn:btih:290FF6AB6E93AFFFC497DAA3D63DA1FE08FE9279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ QuickTextPaste 8.73 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:2179A609F08E427735245BA425E9971B3EA723FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Extreme Picture Finder - средство для автоматического 
 ```bash
 magnet:?xt=urn:btih:427FD1109CBADD66E4061F76CE341F05C37C3C55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Things — приятный и простой ежедневник. Это ид�
 magnet:?xt=urn:btih:EA1F82E5DDB5665EBACBFC1337C622AEFCC75237
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Unite позволяет быстро и легко превратить веб-
 magnet:?xt=urn:btih:9C3F215601ADAE2A66BAAA9E9AE0F72779C60E07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:A954760C3D626AF9099BE1C4B45AD4D443C65F66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Sync Folders Pro - это простое в использовании прил�
 magnet:?xt=urn:btih:7C6FA640570615AE67F5AE6A225E4D840E501DCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Revo Uninstaller Pro 5.2.0 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:931B3D1FBB68A8E8DA0293EA713697F057FC7E8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Blocs - простой способ создания красивых сайто
 magnet:?xt=urn:btih:C1C5AE37FA36B2B42B0961ADE430D25C224035B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Photo Supreme — вспомогательная программа для вл�
 ```bash
 magnet:?xt=urn:btih:20FF8DE7B00FE0C94AF064E682876038B666EE37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:A220A8FABC18BE90BC4712B0CB1DB0CC412C16AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:05FEC3E17645C1C7521FCD106DF0826B64A51F86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ BlueHarvest - утилита, помогающая автоматизирова�
 ```bash
 magnet:?xt=urn:btih:9CF7EE341D66580F6D67D65C61E56C067CCD1654
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Balabolka 2.15.0.831 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:D550EF137AF5E929972EC95E5FF30ED1344335E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Trminal - ярлык вашего терминала. Trminal быстро от�
 ```bash
 magnet:?xt=urn:btih:DD33F245D2A212421456CE5543AA9E7688F9FBD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ PullTube 1.6.1 [Multi/Ru]
 magnet:?xt=urn:btih:1140F35B03DFF766356ACE47F9FA616CCEC63597
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ ProFind 1.8.8 [En]
 magnet:?xt=urn:btih:FBAD07DF114E3825985B464038D48CB84EFF1032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ VideoTag - сделайте вашу библиотеку TV / iTunes нагля
 ```bash
 magnet:?xt=urn:btih:B3448E2D61053F5A9559CE60651360D7BFB124F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Multitouch позволяет связать пользовательское д
 magnet:?xt=urn:btih:C63D0D370E9A325E554174486B01909E695F87E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Text Editor Pro 24.1.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:96E7DA8D3E8046A19632056251806B00B64755D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:96E7DA8D3E8046A19632056251806B00B64755D4
 magnet:?xt=urn:btih:0FD790267036C4BA0D40BECCD086A2D9F1A157E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:0FD790267036C4BA0D40BECCD086A2D9F1A157E4
 ```bash
 magnet:?xt=urn:btih:E89FBAB33451943CEC404640AC7226767E4490B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:E89FBAB33451943CEC404640AC7226767E4490B9
 magnet:?xt=urn:btih:FC002971DD2AE1A53C129F956DE73C6855428800
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Bandicam позволяет записать определенную облас
 ```bash
 magnet:?xt=urn:btih:284078B4B4A8D24CEBD0826873D5C203653C4AA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

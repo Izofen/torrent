@@ -1,27 +1,3 @@
-###  Публикация: 858691   (948436) от 11.01.2015
-
-Феи. Торт и Спорт / Pixie Hollow Bake Off (2014) HDTVRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948436.jpg" />
-</div>
-
-
-###  Подробнее
-
-В честь именин королевы Глэрион в долине фей организовали кулинарный поединок. У каждой феи есть своя команда. Джелата давно известна своими кулинарными изделиями, а Динь-Динь вместе со своей командой впервые пробует свои силы в кулинарии. К её приезду герои должны испечь просто великолепный пирог.Жанр: Короткометражный, анимационныйРежиссер: Эллиот М. БурАктеры: Памела Адлон, Джефф Беннетт, Джада Де Лаурентиис, Меган Хилти, Джейн Хоррокс, Анжелика Хьюстон, Люси Лью, Роб Полсен, Рэйвен, Мэй УитманПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 00:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3B5243E74C3203FCCABD3131B14333A24BAB09
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085120   (948456) от 05.01.2017
 
 Аисты / Storks (2016) BDRip [H.264/1080p]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:1C3B5243E74C3203FCCABD3131B14333A24BAB09
 ```bash
 magnet:?xt=urn:btih:74AEC0322BCBFAF14DD260DF9E6D67E0893024F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ magnet:?xt=urn:btih:74AEC0322BCBFAF14DD260DF9E6D67E0893024F7
 ```bash
 magnet:?xt=urn:btih:511DA5C8BFE3E48C5E883332D2822FCE517598D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +73,8 @@ magnet:?xt=urn:btih:511DA5C8BFE3E48C5E883332D2822FCE517598D7
 magnet:?xt=urn:btih:F179AA88D8DB5A1F18955524FAD7107A37F70C65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +99,8 @@ magnet:?xt=urn:btih:F179AA88D8DB5A1F18955524FAD7107A37F70C65
 magnet:?xt=urn:btih:FB252C3411253116243C87EB7974A47F0FFF871C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:FB252C3411253116243C87EB7974A47F0FFF871C
 ```bash
 magnet:?xt=urn:btih:73270533594CD668C0698A114C6DD97E5F6FACB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +153,8 @@ magnet:?xt=urn:btih:73270533594CD668C0698A114C6DD97E5F6FACB1
 magnet:?xt=urn:btih:FDFB3399F947B148ED2C81C5EFF445A3FAFFD641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +178,8 @@ magnet:?xt=urn:btih:FDFB3399F947B148ED2C81C5EFF445A3FAFFD641
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +205,8 @@ magnet:?xt=urn:btih:FDFB3399F947B148ED2C81C5EFF445A3FAFFD641
 magnet:?xt=urn:btih:EB2EF5BB689E2DF64CD9535FE84A5AE48FD901A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +230,8 @@ magnet:?xt=urn:btih:EB2EF5BB689E2DF64CD9535FE84A5AE48FD901A1
 ```bash
 magnet:?xt=urn:btih:35DB80267EF084D1546270B70D4323B7F2A0512C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +257,8 @@ magnet:?xt=urn:btih:35DB80267EF084D1546270B70D4323B7F2A0512C
 magnet:?xt=urn:btih:6B650E8D421745D7B687503370477F7DBE9E7064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +282,8 @@ magnet:?xt=urn:btih:6B650E8D421745D7B687503370477F7DBE9E7064
 ```bash
 magnet:?xt=urn:btih:9EBFB3CE1CC3BD44EE32FCFFF6B041EC1ADE631D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +309,8 @@ magnet:?xt=urn:btih:9EBFB3CE1CC3BD44EE32FCFFF6B041EC1ADE631D
 magnet:?xt=urn:btih:A9AF1FF83C2D92D48819C19DCE02B37D8470FC36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:A9AF1FF83C2D92D48819C19DCE02B37D8470FC36
 ```bash
 magnet:?xt=urn:btih:A4C6B4450281B44DD5EFE0BF2ED1D3A1354E7800
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +361,8 @@ magnet:?xt=urn:btih:A4C6B4450281B44DD5EFE0BF2ED1D3A1354E7800
 magnet:?xt=urn:btih:8CFAF4A5861E0EE9E1DD9EA44D22D3D8D35A972C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:8CFAF4A5861E0EE9E1DD9EA44D22D3D8D35A972C
 ```bash
 magnet:?xt=urn:btih:9A343A3331F4048B0184BADED4A2402514DF79B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +415,8 @@ magnet:?xt=urn:btih:9A343A3331F4048B0184BADED4A2402514DF79B5
 magnet:?xt=urn:btih:D41689639E37CB6604229E1E825CB24060F5ED18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +441,8 @@ magnet:?xt=urn:btih:D41689639E37CB6604229E1E825CB24060F5ED18
 magnet:?xt=urn:btih:97B5C113B0439B9E9E5F6DC7E3E83897A0CDB881
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +466,8 @@ magnet:?xt=urn:btih:97B5C113B0439B9E9E5F6DC7E3E83897A0CDB881
 ```bash
 magnet:?xt=urn:btih:A1459F05948B96F4DBECED5C934F6227F76B99D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +495,8 @@ magnet:?xt=urn:btih:A1459F05948B96F4DBECED5C934F6227F76B99D0
 magnet:?xt=urn:btih:6E7D4967B92D6C774F5DDF86676040C23D92D543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +520,8 @@ magnet:?xt=urn:btih:6E7D4967B92D6C774F5DDF86676040C23D92D543
 ```bash
 magnet:?xt=urn:btih:4139358CBAE505EB1447B5081150C249B75AD9E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +548,8 @@ magnet:?xt=urn:btih:4139358CBAE505EB1447B5081150C249B75AD9E3
 magnet:?xt=urn:btih:CFBFFBB59279D89D8053D7A7AAFA8B7E50813E43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +573,8 @@ magnet:?xt=urn:btih:CFBFFBB59279D89D8053D7A7AAFA8B7E50813E43
 ```bash
 magnet:?xt=urn:btih:3F1F00F03453BA6DF42177554C1D57D56D7DF282
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +600,8 @@ magnet:?xt=urn:btih:3F1F00F03453BA6DF42177554C1D57D56D7DF282
 magnet:?xt=urn:btih:5A4530519FE5020636A069FD053D98A0E8E1EFA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +626,8 @@ magnet:?xt=urn:btih:5A4530519FE5020636A069FD053D98A0E8E1EFA4
 magnet:?xt=urn:btih:915CDDB2607DEE51476A884E7D6CB51A95DC5CDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +651,34 @@ magnet:?xt=urn:btih:915CDDB2607DEE51476A884E7D6CB51A95DC5CDB
 ```bash
 magnet:?xt=urn:btih:A1C082258E3644255C786A3CFBB65C2A0D7AB37A
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361118   (956601) от 18.02.2020
+
+Полный расколбас / Sausage Party (2016) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_956601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая анимационная комедия для взрослых о невероятных приключениях еды из супермаркета. Съедобным друзьям предстоит получить ответ на главный вопрос: есть ли жизнь за стенами супермаркета, и что же происходит с продуктами после того, как они попадают к людям домой?Производство: США / Annapurna Pictures, Columbia Pictures, Point Grey PicturesЖанр: мультфильм, фэнтези, комедия, приключенияРежиссер: Грег Тирнан, Конрад ВернонПеревод: Дублированный, авторскийСубтитры: русские, английскиеПродолжительность: 01:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E1C20E4A8D3E95EDCE67C5773475BC0B44D9F0C
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

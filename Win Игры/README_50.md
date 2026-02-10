@@ -19,6 +19,8 @@ MX vs ATV Legends показывает, какими могут быть инт�
 magnet:?xt=urn:btih:F6EC2D6CFAC4D669A6B3ACC93171996EF3E72C65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Strangeland (2021) [Multi] (3.3) License GOG
 ```bash
 magnet:?xt=urn:btih:7C0DA7F1F1E4E615E0910F86A2C14F1EB00F68F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Good Pizza, Great Pizza / Хорошая пицца, Отличная пицца
 magnet:?xt=urn:btih:CB25221D9E956C0373B140898A0223D998C9D6DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.814.9) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FB43E351C1F33EDBCA46B2D0A882455E97B13E9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Warhammer 40,000: Space Marine (2025) [Multi] (1.0.1038.3669/dlc) Scene Rune [Ma
 magnet:?xt=urn:btih:6CA61B66139E3C6DD43F04A70ABEE055D38C8404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ SIGNALIS (2022) [Ru/Multi] (1.2.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8C2B51579083FF798C8C8277DB67631C1A2EA213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Victory at Sea Atlantic - World War II Naval Warfare (2024) [Ru/Multi] (1.0.4.1)
 magnet:?xt=urn:btih:110F0A3BE92DDABA4072E6DE2EFD5CA77D7A3973
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Zoeti уж точно нельзя назвать типичным карточ�
 ```bash
 magnet:?xt=urn:btih:82F37FD123B4072E6896D776CDB6920F15009A76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Sinking City – игра-расследование. События про�
 magnet:?xt=urn:btih:C16A8632E7C279EBCD7AC1E749A30CFDBFE89C5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (1.01b 731056) Scene Rune
 ```bash
 magnet:?xt=urn:btih:367E27DE8E514D9437859A9E3E2E96AC96C15DA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Rayman 3: Hoodlum Havoc (2003) [Ru/En] (1.0.0) Repack Let'sРlay
 magnet:?xt=urn:btih:C97E42741B95389887FA586B9D4962C6F1D9086B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Tormented Souls - это игра, которая вновь погрузит в
 ```bash
 magnet:?xt=urn:btih:A53C6FBF23E016A066A08FA9F1DB2C300439C802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay [Demo]
 magnet:?xt=urn:btih:07304F6AB9B6566CC64417E6E611D4CD783DF8B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Morbid Metal - это экшн-rogue-lite, в котором игроки мог
 ```bash
 magnet:?xt=urn:btih:BFEF44E1B16752EA28D7BB3AC0F0860DAF721D6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Hellish Quart – реалистичный файтинг с использов�
 magnet:?xt=urn:btih:0BBD1E6D4155DE46F573C50E294425072AA6652F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Death Roads: Tournament погружает юзеров в гоночные со
 ```bash
 magnet:?xt=urn:btih:AA8259DAD234F91426E4845069244F412BDAB338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Lies Of P была вдохновлена знаменитой историей 
 magnet:?xt=urn:btih:33554350970772CE8DE6849C87FC3D14BFF25EA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Captain Blood / Приключения Капитана Блада (2025) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:218891BBC7FFA6C0D70324B325987CA520C32B10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ We Are Not Alone (2024) [En] (1.9.5.1) License GOG
 magnet:?xt=urn:btih:49239A213C40B3D2CDB8407027A7EAC4B6216F21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Lies Of P была вдохновлена знаменитой историей 
 ```bash
 magnet:?xt=urn:btih:4FD9F1175B9C959ACD9B6D9FE1F023AE409F37C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ QBoard (2025) [En] (0.9.9.3) License
 magnet:?xt=urn:btih:EC72CA4DC92CF493745E61D37C7CD47E0231929D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Out of Sight - атмосферный хоррор, сочетающий пер�
 ```bash
 magnet:?xt=urn:btih:C42D21D687C6D4E95BCAD30B82C75DA96929C4E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Synchro - пошаговая RPG о борьбе со зловещей корп�
 magnet:?xt=urn:btih:10C19844E1BE0304A20F5646B4F2F24445939DBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ ICBM: Escalation — масштабная стратегия в реальном
 ```bash
 magnet:?xt=urn:btih:2C1F20ADD4F7AA7E343A390392E370A5FE7CC0DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Take Me, Vitaly / Догони меня, Виталик (2024) [Ru/Multi] (Build
 magnet:?xt=urn:btih:DEF525177E763B684120495C2B0B6C5E5FB70790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Lethal Company - захватывающая кооперативный хорр�
 ```bash
 magnet:?xt=urn:btih:EC1783BEF1FFE4DE7C94DAC23DEBEDFB74CAFEC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

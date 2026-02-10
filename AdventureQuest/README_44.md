@@ -19,6 +19,8 @@ Dead Mountaineer Hotel / Отель "У погибшего альпиниста"
 magnet:?xt=urn:btih:DC36E45418C59209C834A68FD5CF0B4269A71B49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Nightlong: Union City Conspiracy [Ru] (RePack) 1998 | Kirill Games
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Dragon's Lair Трилогия [En] (RePack) 1991 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Hauma - это визуальный роман в стиле нуар с дед�
 ```bash
 magnet:?xt=urn:btih:EACADD59162534E0BD6507FC38A7C446CDF6CB97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Anna's Quest (2015) [Ru/Multi] (1.3.4792) Repack Let'sРlay
 magnet:?xt=urn:btih:793101AB6AE173CC648158F061993982EAA52F33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ An Airport for Aliens Currently Run by Dogs (2021) [En] (1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:F0B21DBDFB8AFB993994DB457012D45449E4AABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Don't Starve Together - это кооперативная игра на выжи
 magnet:?xt=urn:btih:653B47F21122B2FB4F44E509B281242E9A579258
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Bewitching Sinners бросает вас в хаотичный фантасти�
 ```bash
 magnet:?xt=urn:btih:DE829BB179E89D75F69C64D811A8885DAA1CA074
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Lunar Glow Stellar Dance (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:87C3646F1ACC54C6C39C9B7D35065DDAAEF42985
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Crystal Shard Adventure Bundle - это не просто обычный сбо�
 ```bash
 magnet:?xt=urn:btih:A4348E326063DDC56E8D39F46CFE4C06D5FE3E0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ A Memoir Blue – это невероятно трогательная и мил
 magnet:?xt=urn:btih:CCC86F54C9A39D900A30352AC963A8864534E16A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ No Sleep for sole - это сюрреалистическая игра в жан
 ```bash
 magnet:?xt=urn:btih:75F95509F182BD980F0B6838F3F8A26D71236FFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Echoes of Despair (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:366BCE22A4158ACA140D2371FA3CA01C02D01E8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Harmony: The Fall of Reverie - это увлекательная приключ�
 ```bash
 magnet:?xt=urn:btih:166DE722C29E64F813223D88AD5345054D90E69D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Lil' Guardsman - это восхитительная и увлекательна
 magnet:?xt=urn:btih:ADF5C1ED7BE50081A9B5EA56898A8909A78295C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ SANYA / САНЁК (2024) [Ru/Multi] (3.4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:69E820F81468CD6A12CD41802DE492D5FEB84476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Beyond the Fringe - в первую очередь шутер от третье�
 magnet:?xt=urn:btih:34374D7FD02145CBA7F3D42EAAD19ED8780441E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Invisible Fear погружает вас в леденящий душу кошм
 ```bash
 magnet:?xt=urn:btih:C77F8C6A81471682C177896C76C6409057A8A6C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Ad Infinitum – атмосферный хоррор-проект, в котор
 magnet:?xt=urn:btih:52517CFD08882CB3791A069CBB65266F64BE5DE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Nathan Morgan: Dilemma ставит вас на место детектива Н
 ```bash
 magnet:?xt=urn:btih:C9F1944C17BC988885D55816B2B3D677B813BB7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ The Witch of Fern Island - это красочный симулятор жизн
 magnet:?xt=urn:btih:17AA35BF3CBE799941497D2DCF3B4FC05451B53D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ The Expanse: A Telltale Series (2023) [Multi] (1.09) License GOG [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:DF01E218AA3F16E86BFF873C82C50C111E5E707E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ DREDGE (2023) [Ru/Multi] (1.4.2/dlc) Scene Tenoke
 magnet:?xt=urn:btih:861A378197F454538B639B025CF8A6E044F99D28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ My Lovely Daughter - симулятор алхимика, исследующий
 ```bash
 magnet:?xt=urn:btih:7E4691FB6A3AC7367E83D704043A9DC3BF38AE6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Lazaret - это напряженный психологический хорр�
 magnet:?xt=urn:btih:9CD9F2D71AC9043B89B04E524D3685C058727FA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Forgiveness – отправьтесь навстречу типичному п�
 ```bash
 magnet:?xt=urn:btih:A11E9AEEF908A432BEE071C3C882D180A6071238
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

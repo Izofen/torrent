@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:B80F5A6F227E70C31A68F7E3E613D3C75FCA6C47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:B80F5A6F227E70C31A68F7E3E613D3C75FCA6C47
 magnet:?xt=urn:btih:FFE77A7427D5D8301C10B017CEDBABFB934DAD56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:FFE77A7427D5D8301C10B017CEDBABFB934DAD56
 ```bash
 magnet:?xt=urn:btih:A488C20B669B4C4DFAE4843761D415E216DE2F3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:A488C20B669B4C4DFAE4843761D415E216DE2F3A
 ```bash
 magnet:?xt=urn:btih:D22FCCE88621418C4A3E7FCF896C5265742B3F46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Megaherz - Erdwarts (2015) EP [MP3|320 кб/с]<Industrial Metal, NDH>
 magnet:?xt=urn:btih:1FB4578ECF406AB28F094A267A9ACAAE7145D380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:1FB4578ECF406AB28F094A267A9ACAAE7145D380
 magnet:?xt=urn:btih:2AC5E77F99B5727C295D1D70D6D9F1C702C030C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:2AC5E77F99B5727C295D1D70D6D9F1C702C030C4
 ```bash
 magnet:?xt=urn:btih:9ABDBC6DFEA4130905F25B03520EE3F3D461659D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:9ABDBC6DFEA4130905F25B03520EE3F3D461659D
 magnet:?xt=urn:btih:859B8A4D4F0DA0C403725DD74713848CBB49A064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:859B8A4D4F0DA0C403725DD74713848CBB49A064
 ```bash
 magnet:?xt=urn:btih:4309D2201BDD7C6FC8FB253BE31A885ABA4979AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:4309D2201BDD7C6FC8FB253BE31A885ABA4979AF
 magnet:?xt=urn:btih:E348563D330707BDACC470AD6BBB88FB1A0DF72C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:6A29A1028F19CB738CFEFF83A9ADD738C560A69B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:6A29A1028F19CB738CFEFF83A9ADD738C560A69B
 magnet:?xt=urn:btih:C4C2DDC6C11354FB95E27E33E2D0697798F3344F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ Bauer Media Group — одна из самых успешных и передо�
 magnet:?xt=urn:btih:EB5B38E1C697E2B15D1DB9973B1F1F0B215D2A7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ Watercolor Studio - программа способна имитировать �
 ```bash
 magnet:?xt=urn:btih:46439FB81C690F6BEB2487F3CEA34A2435DB1011
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ Airbourne - Boneshaker (2019) [FLAC|Lossless|tracks + .cue] <Hard Rock>
 magnet:?xt=urn:btih:D539EABC62919FAC25D489196A8A21A70BE4DB4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ Talla 2XLC - Fascinated (2019) [FLAC|Lossless|WEB|tracks|image] <Trance>
 ```bash
 magnet:?xt=urn:btih:E3D64E273AE83D27C9B3BC739301C481F570160F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ VA - Sun:Sets 2019 (Selected by Chicane) (2019) [FLAC|Lossless|WEB|tracks] <Prog
 magnet:?xt=urn:btih:C2659645ED7C436D0F794274E778732577B14DA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ VA - Follow The Wind: Live Groove Mix (2019) [MP3|320 Kbps] <Chillout, Lounge, R
 ```bash
 magnet:?xt=urn:btih:498F60A52084454032C067216594D5D0003D3C4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ VA - Miami Hot Trance Party (2019) [MP3|320 Kbps] <Trance, Electro, Progressive>
 magnet:?xt=urn:btih:486624AC9C80AB83FA8B081BC910507DC4806C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ VA - Охота 89 (2019) [MP3|320 Kbps] <Rock, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:08CFF85609EAB521AFB34535FD9DF4F5933458B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +576,8 @@ VA - Magic Island - Music For Balearic People Vol. 9 (Mixed  by Roger Shah) (201
 magnet:?xt=urn:btih:27D3C0F4C5121A470F87BA43F1EEA1E4196BDA44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ magnet:?xt=urn:btih:27D3C0F4C5121A470F87BA43F1EEA1E4196BDA44
 ```bash
 magnet:?xt=urn:btih:47122342A22E9B79AC990370D3DA04F8C05DBC48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +630,8 @@ magnet:?xt=urn:btih:47122342A22E9B79AC990370D3DA04F8C05DBC48
 magnet:?xt=urn:btih:B603D7F0E39CC049A39B0C8C11167699E59E999D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:B603D7F0E39CC049A39B0C8C11167699E59E999D
 ```bash
 magnet:?xt=urn:btih:6833E103275BC5D14ADD6797D2317D12EDE2519C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ Punto Switcher — автоматический переключатель ра�
 magnet:?xt=urn:btih:478182274F9C9597289A03C109EDAF6E5FCEECDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ magnet:?xt=urn:btih:478182274F9C9597289A03C109EDAF6E5FCEECDC
 ```bash
 magnet:?xt=urn:btih:4FDA15F7F4D91D06A07F38C31AF6B0FE91991188
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

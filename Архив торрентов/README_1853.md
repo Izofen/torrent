@@ -19,6 +19,8 @@ uTorrent 3.1.3 Stable (build 27207) + Portable [Multi/Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ uTorrent 3.1.3 Stable (build 27207) + Portable [Multi/Русский]
 ```bash
 magnet:?xt=urn:btih:0962E3491E0A1CFB6BCF6F9F1D9E34DD4DBDB6ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Ridge Racer Unbounded + 1 DLC [Ru/En/Multi6] (RePack/1.09) 2012 l Fenixx
 magnet:?xt=urn:btih:A34A91060FB8C985CB55F8A756AD63212ADB82C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ PCStitch Pro - единственная профессиональная при�
 ```bash
 magnet:?xt=urn:btih:BC736AAC538D2006E47EEE88CABB0BBD9F7166CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:BC736AAC538D2006E47EEE88CABB0BBD9F7166CD
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG: Секретные материалы древности. Туринская
 ```bash
 magnet:?xt=urn:btih:3F26DD35F00F853773045F6C167BDC6CBE9B3155
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Dynamic Auto-Painter - программа, которая позволяет п�
 magnet:?xt=urn:btih:2175D59431376E899B22039D6DD47A4574B89D4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:2175D59431376E899B22039D6DD47A4574B89D4B
 ```bash
 magnet:?xt=urn:btih:B5BFB974DD684882E0913DD94C7D97A2EACE99D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Solaris 104 / Солярис 104 [Ru] (L) 2002
 magnet:?xt=urn:btih:E721BA53DEE16B16788CB09994D190D19638E669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ UltraISO Premium Edition - одна из лучших программ для р
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Documents To Go Full Version Key открывает дополнительные
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ King Arthur 2: The Role-Playing Wargame / Король Артур 2 + DLC [Ru] (
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ King Arthur 2: The Role-Playing Wargame / Король Артур 2 + DLC [Ru] (
 ```bash
 magnet:?xt=urn:btih:391E7189808A69B0176776054F1E0D61121805B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ VA - Vocal Trance Volume 24 (09.03.2012) [MP3|320 кб/с]<Vocal Trance>
 magnet:?xt=urn:btih:64329B890A19C52DE3AA1802951977FB360BDDDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ VA - Молодежный Хит №2 from AGR (2012) [MP3|320 кб/с]<Pop, Clu
 magnet:?xt=urn:btih:365B1087123B7EBC9DF6277C52218099FA0E2391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ BitTorrent - клиентская программа пиринговой сет
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +467,8 @@ Igor Bril & The All Star Soviet Jazz Band - Live at the Village Gate (1989) [MP3
 magnet:?xt=urn:btih:CECC6EA96A10E7F73E98DD8E17275A86D8EDB585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +502,8 @@ VA - Vocal Trance Volume 25 (03.2012) [MP3|320 кб/с]<Vocal Trance>
 magnet:?xt=urn:btih:5145B6BC67AE7AB62C8E317B5AB85D2F6C2084DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +527,8 @@ Superstars — профессиональная рестлинг шоу от м�
 ```bash
 magnet:?xt=urn:btih:B37DCE3EC6D960A3B1DEBA3226273326B36B8124
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +554,8 @@ Daniel Djokic - Like It Like This (2012) [H.264/1080р] WEBRip
 magnet:?xt=urn:btih:0A6981E820B84E1A5C96E75DFB362F013E95AB4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +579,8 @@ magnet:?xt=urn:btih:0A6981E820B84E1A5C96E75DFB362F013E95AB4F
 ```bash
 magnet:?xt=urn:btih:0B9398C1B002B0F4297BBB9DB4ACD0C56473F8EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +612,8 @@ magnet:?xt=urn:btih:0B9398C1B002B0F4297BBB9DB4ACD0C56473F8EB
 magnet:?xt=urn:btih:2F2E4D7116074A7C4808083C9C74C26F070F0851
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +638,8 @@ magnet:?xt=urn:btih:2F2E4D7116074A7C4808083C9C74C26F070F0851
 magnet:?xt=urn:btih:A3121D61FA051E2CE5D76005077C48963C518F5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +663,8 @@ magnet:?xt=urn:btih:A3121D61FA051E2CE5D76005077C48963C518F5F
 ```bash
 magnet:?xt=urn:btih:79F752BE770DBC40D89EBD357DC75B71375E0067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +699,8 @@ Antonio Cobo - Brisas (1997) [MP3|128 кб/с]<Acoustic Guitar>
 magnet:?xt=urn:btih:C1AD29EEAFD99A45A35EE9431A93AC1268F6BB28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,6 +732,8 @@ Govi - Andalusian Nights (1999) [MP3|128 кб/с]<Acoustic Guitar>
 ```bash
 magnet:?xt=urn:btih:9534E80B6268F08E4B1C56963BFCF698A145EE45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

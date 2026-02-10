@@ -21,6 +21,8 @@ HCL Safelinx - программный продукт предоставляет 
 magnet:?xt=urn:btih:E634CBDCF17509E149ED2A94931D63B1D49F7EF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ R-Studio for Linux это еще одна надежная и эффективн
 magnet:?xt=urn:btih:A9EF1241C2327F37B148EE8694283BA872075BE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Devuan — форк дистрибутива Debian, появившийся в 2
 ```bash
 magnet:?xt=urn:btih:F31AE7C852835EFB017862EA6C13C1BB07874BFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ MX Linux - это операционная система, основанная 
 magnet:?xt=urn:btih:84C354416817D3C5B2362D5025783DE0CF948234
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Ubuntu*Pack 22.04 Budgie (сентябрь 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:93BF349C7654DE4EACF450E00608584B489E9C1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Ubuntu*Pack 22.04 Unity (сентябрь 2024) [amd64] 1xDVD
 magnet:?xt=urn:btih:C4AFFA74EAA424299124D1A2511AD73F2E8CF576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Manjaro - это дружественный пользователю дистр�
 ```bash
 magnet:?xt=urn:btih:28F1442365D5824760550D0D3B8B5297FC17BD19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Zapret v.60 for Linux [x86, x86_64] (elf)
 magnet:?xt=urn:btih:C8EF70EA103933DEA7216BCB1B52BC94A82FEFA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Master PDF Editor - это простая в использовании, но м
 ```bash
 magnet:?xt=urn:btih:25976DD5F351D6571D3E0D6986CB807899CDD62A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Transmission, в отличие от многих других BitTorrent кли
 magnet:?xt=urn:btih:EECB44D091D0CBF8AF81C8C185CCFEAC6BFCDB48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Tails (The Amnesic Incognito Live System - Забывчивая Анонимна
 ```bash
 magnet:?xt=urn:btih:2F413E55E68C918DDE15AA0985DCA8F6D9FE2CD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ UALinux CyberPack FaP (digitalРазработчик: UALinuxЯзык интер
 magnet:?xt=urn:btih:CD4F442F9C48E7C529FFAFEFC1DB28CA7039E975
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ FreeBSD - это современная операционная система 
 ```bash
 magnet:?xt=urn:btih:789738CC91E882606358DDF15C1B77FDFE64970E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ Ubuntu EducationPack 22.04 (май 2024) [amd64] [Multi]
 magnet:?xt=urn:btih:9CD0305E9B5C877394A0ACD12D751BF8B0BFE08D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ Oracle Linux (прежде известная как Oracle Enterprise Linux, Un
 ```bash
 magnet:?xt=urn:btih:22A793E2F4CB7CE7AA5ABBFD33FC6FD3579544E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ Ubuntu EducationPack 20.04 (май 2024) [amd64][Multi]
 magnet:?xt=urn:btih:F96368F7E2BF278CFD6FB5D2F3671CCFE20FA69D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ Red Hat Enterprise Linux (RHEL) - популярная коммерческая 
 magnet:?xt=urn:btih:DC9C23DBED3D55EA23811E306682168DFED9F349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ Ubuntu 24.04 Noble Numbat LTS [amd64] 2xDVD
 magnet:?xt=urn:btih:3648BAF850D5930510C1F172B534200EBB5496E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ Fedora — дистрибутив Linux, спонсируемый фирмой R
 ```bash
 magnet:?xt=urn:btih:78A7100DD44ACDE0163A95AF91B61117E1FDA750
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ Ubuntu EducationPack 18.04 (апрель 2024) [amd64]
 magnet:?xt=urn:btih:0CA4590DE3E268263FC34B8819EEEAF731586B5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ GParted - мощный и бесплатный инструмент, котор�
 ```bash
 magnet:?xt=urn:btih:DDEA0B96C4C01A62E129A5BBED648F1734513476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ KDE Neon - дистрибутив Linux, который создан коман�
 magnet:?xt=urn:btih:7F30CFF968BE65C6A0C071CA4B829330EB190BF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ Rocky Linux — дистрибутив Linux, разработанный Rocky E
 ```bash
 magnet:?xt=urn:btih:4299EEEFA61E76B2BC4949C2306261B609DA9B01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ SparkyLinux - это полнофункциональная операционн
 ```bash
 magnet:?xt=urn:btih:782F27F494EF6CE5E66FC855E44EC5D6C17EF4DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ Red Hat Enterprise Linux (RHEL) - популярная коммерческая 
 magnet:?xt=urn:btih:CA83D0A604318C4E594575F60B97302F59A5092B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ Ubuntu Desktop – система с открытым исходным кодо�
 ```bash
 magnet:?xt=urn:btih:A3E9114D3CCE6D1720B9FD9BF9D83E5B2E92EA8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

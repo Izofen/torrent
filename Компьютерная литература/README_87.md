@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:08261DAC869FA0864FD78DE3B4169DAE84E41635
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Cycles — это движок рендеринга, который впервы
 ```bash
 magnet:?xt=urn:btih:0A73ADC63CDC779BF0BBAB6AFFA994482778EA07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:0A73ADC63CDC779BF0BBAB6AFFA994482778EA07
 magnet:?xt=urn:btih:BF72FB3D1D32004899D8B0ED72F484CEC0651A9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:BF72FB3D1D32004899D8B0ED72F484CEC0651A9F
 ```bash
 magnet:?xt=urn:btih:D4770D7AF0AFC2F6787063A9F13D3EBBCF56FB52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:D4770D7AF0AFC2F6787063A9F13D3EBBCF56FB52
 magnet:?xt=urn:btih:6CFDC87FA4EF6F95CE83B2B446FDE4313FEA3F24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:6CFDC87FA4EF6F95CE83B2B446FDE4313FEA3F24
 ```bash
 magnet:?xt=urn:btih:5A8D1F6A9AC0F2001FBFA242C67C2EFBC52583F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Zero To Production - это идеальная отправная точка в 
 magnet:?xt=urn:btih:051BE6A34A91F369C062A6DC8BEC3026DB5AAAA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Cycles — это движок рендеринга, впервые появив
 ```bash
 magnet:?xt=urn:btih:79C73F9D8522309FA087D48A74885D4E7D33CF94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Google Cloud, общедоступная облачная платформа о�
 ```bash
 magnet:?xt=urn:btih:8FC398EBF6FB1FF0CE827BA5BCD0F6E1AC6FA3F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Simon Høiberg | JavaScript In The Industry (2021) [PDF] [EN]
 magnet:?xt=urn:btih:F0F65AE8028EC4758CD85B17F4169965A2F4D247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Heydon Pickering, Andy Bell | Every Layout - Relearn CSS layout by example (2021
 magnet:?xt=urn:btih:4079AA01868157F684C23B7471D56577BD95E697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:4079AA01868157F684C23B7471D56577BD95E697
 ```bash
 magnet:?xt=urn:btih:E1813314EE4D8CAE431491C73785EE7450A5B3FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ Roblox – компьютерная платформа, набирающая в�
 magnet:?xt=urn:btih:CD960AFEC6D3A01EAC9DEB660B54996D045FF916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:CD960AFEC6D3A01EAC9DEB660B54996D045FF916
 ```bash
 magnet:?xt=urn:btih:3DDBB9B5DE97611E7059620BDE9BCB94B2AAB493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:3DDBB9B5DE97611E7059620BDE9BCB94B2AAB493
 magnet:?xt=urn:btih:9BFC19812DEA138BF3382D9C83DCE8157E0599AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:9BFC19812DEA138BF3382D9C83DCE8157E0599AD
 magnet:?xt=urn:btih:FC2A1A09A5B45D17F245B81B80A71636ED0E158B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Julia - это хорошо структурированный язык прог
 ```bash
 magnet:?xt=urn:btih:5FCC3247966DB0380204C1BA9DF7523065A3C573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:5FCC3247966DB0380204C1BA9DF7523065A3C573
 magnet:?xt=urn:btih:604F3DA42F2239EBB3695EA9A30E79DD240EDF3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:604F3DA42F2239EBB3695EA9A30E79DD240EDF3F
 ```bash
 magnet:?xt=urn:btih:691D3333004372205342789255825B4A7DD7040A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:691D3333004372205342789255825B4A7DD7040A
 magnet:?xt=urn:btih:9B9260041E008BAC1CA43F715EDC93B0FF10CC9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:9B9260041E008BAC1CA43F715EDC93B0FF10CC9F
 magnet:?xt=urn:btih:32B2653A3C217788F777C66AA8F51333037EB2BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:32B2653A3C217788F777C66AA8F51333037EB2BF
 ```bash
 magnet:?xt=urn:btih:8783E118E22805C7BF6193514903308F64C6554A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:8783E118E22805C7BF6193514903308F64C6554A
 magnet:?xt=urn:btih:B79924E2B05F4B64AEA3FD76E692EAF3E693C9A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:B79924E2B05F4B64AEA3FD76E692EAF3E693C9A6
 ```bash
 magnet:?xt=urn:btih:07979B718F5E1EE4A5EA09E44AF49EAF855A2639
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:07979B718F5E1EE4A5EA09E44AF49EAF855A2639
 magnet:?xt=urn:btih:04887736261DD7B6391F902370A52926E1E95080
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Clojure? Это где скобочки и нет типов? На произв�
 ```bash
 magnet:?xt=urn:btih:4A176E5712608A10799FAC233DC6F78EE7AF3F0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Andre Rieu - Romantic Moments II (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical
 magnet:?xt=urn:btih:3662B21037CB0A9248703CD1D15AAA25226E59F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - 101 Classical Greats (1998) 5CD [FLAC|Lossless|tracks] <Classical, Baroque,
 ```bash
 magnet:?xt=urn:btih:EDDA9EFBD549E1AB2472CAEFED8D2C8663119C38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Queenz Of Piano - Queenz Of Piano (2020) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:6D45B76E4A4CCACB7BDFE5E0FD0216387EFE9893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Symphony no. 3 in C major, op. 78 "Organ"
 ```bash
 magnet:?xt=urn:btih:257E5148D22592370C321B17A81950A1CC668FD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Suite in the Old Style, arranged for chamber orchestra (1972/1987) 15'49
 magnet:?xt=urn:btih:90B3DDAB27F6A4E3B31440A801BD773E0AA7585C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Dvorak - Rusalka (Fleming, Czech Philharmonic Orchestra, dir.Mackerras) (1998) 3
 ```bash
 magnet:?xt=urn:btih:D1126B04470772B7470E95ACAD31442B32B88476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Netrebko, Quasthoff, Terfel, Garanca, Pape. - The Mozart Album (2006) [FLAC|Loss
 magnet:?xt=urn:btih:D3FF29EECCE2FCD7D5825515A6A45A3E76770DA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ Magdalena Kozena & Mahler Chamber Orchestra with Marc Minkowski - French Arias (
 magnet:?xt=urn:btih:954455564C93BFF20BBFD8D55D6307AFBAB2DC53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +253,8 @@ Tessarini Consort: Joza Caras (conductor), Lisa Rautenberg (violin), Jaroslaw Li
 ```bash
 magnet:?xt=urn:btih:648D844DE8A2EE8AF13C35673156E4AE7D47A941
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +284,8 @@ magnet:?xt=urn:btih:648D844DE8A2EE8AF13C35673156E4AE7D47A941
 magnet:?xt=urn:btih:BC269A5CD7A852B56A4BD1F3EB70EC30FDF9D93F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +312,8 @@ Andre Rieu - Celebrates ABBA | Music Of The Night (2013) 2CD [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:48AC760BB3FBD7AF348305B31B0331D9E9B0C061
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +342,8 @@ magnet:?xt=urn:btih:48AC760BB3FBD7AF348305B31B0331D9E9B0C061
 magnet:?xt=urn:btih:83FF4E4C0A0BFC91F9A03260F1567F14637CBD17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +370,8 @@ L'Orfeo Baroque Orchestra, dirigent Michi Gaigg - Christoph Willibald Gluck: Fiv
 ```bash
 magnet:?xt=urn:btih:499243EFCC52B996D4F0376D289D361E2842611D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +400,8 @@ W.A. Mozart - Requiem (1976) Compilation, 1998, Teledec Classics [FLAC|Lossless|
 magnet:?xt=urn:btih:B0377C38538BC3D92EC3E3038B874EC5200F8FA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ Renee Fleming - The Art Of Renee Fleming (2012), compilation [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:00D9EAC7E24C4E5F6904B76B7EA16312E0B2CA73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +458,8 @@ Magdalena Kozena - Le Belle Immagini (2001) - Mozart, Gluck, Myslivicek; [FLAC|L
 magnet:?xt=urn:btih:BF320A2D4D16C991D1992EFFC0D681CE3AEEF531
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +486,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:1235BB61CEBD7DF10EDE7527FF018F15A18276BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +516,8 @@ Edvard Grieg - Piano Concerto a minor op 16, Sonata for Violin and Piano no 3 (2
 magnet:?xt=urn:btih:ECF26C563A925F3EB788197007C5324CCC2E5505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +544,8 @@ Richard Wagner - Tristan & Isolde (2007) [FLAC 2.0|192/24|tracks|WEB-DL] <Classi
 ```bash
 magnet:?xt=urn:btih:ECE73A9DB312010E68105D5EEB6193FD378474AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +577,8 @@ Warsaw Philharmonic Orchestra(   Читать дальше...   )Piano Concerto 
 magnet:?xt=urn:btih:DB791D45ECDFE73B9A33BBA12BDB23406541E460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +606,8 @@ Anna Netrebko - Souvenirs (2008) Deluxe Limited Edition Package, CD+DVD [FLAC|Lo
 magnet:?xt=urn:btih:C0F109F447412F7F8C52FE39B6A6D3A96B3FC6CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +633,8 @@ Chicago Symphony Orchestra - Rachmaninoff - Piano Concerto No.2 in C minor, Op. 
 ```bash
 magnet:?xt=urn:btih:3489E075638AC1B81CA36261097B5637D0C72A85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +663,8 @@ Concerto Grosso No. 2 (For Violin, Cello And Symphony Orchestra)
 magnet:?xt=urn:btih:C5500B37069D9AAC5A555D9840E5F7D51168501F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +691,8 @@ Elina Garanca, Roberto Abbado, Filarmonica del Teatro Communale di Bologna - Bel
 ```bash
 magnet:?xt=urn:btih:5C6F3FCCB437BBF358989F90075480B90DC73DFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +721,8 @@ CD1:
 magnet:?xt=urn:btih:2364BB7C280E71D0952A09BA512296F56B921358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ La Mer, L.109
 ```bash
 magnet:?xt=urn:btih:236728D0E43F0A2450FC1A5486E3DAA997B7D011
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

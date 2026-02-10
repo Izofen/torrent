@@ -19,6 +19,8 @@ Pluralsight, Alex Jerjomin | Game Environment Modeling Fundamentals (2017) PCRec
 magnet:?xt=urn:btih:37B614A332D7EF2AD09D97A1C56B116DF6E24DAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ FXPHD, Andrew Lowell | Houdini Procedural Spline Modeling (2018) PCRec [EN, RU]
 magnet:?xt=urn:btih:7FB46D5DF6BB8CAD52374404BD138808AAD3A0AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Digital Tutors, Tim Callaway | Joint-Based Facial Rigging in Maya (2013) PCRec [
 ```bash
 magnet:?xt=urn:btih:D85678591E99BD10662DFC31D8E66C35EB0E6CF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ PDG и TOP– это основные новые функции в Houdini 17.5.
 magnet:?xt=urn:btih:05C12CAEA82B27636D3871E683C4A14EBF7DF9DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ MZED, Марк Эдвард Льюис | Sound Advice Tour (2015) PCRec [RU]
 ```bash
 magnet:?xt=urn:btih:5B4E81E834C1FF35409DF2EE88856BE584FB4653
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:5B4E81E834C1FF35409DF2EE88856BE584FB4653
 magnet:?xt=urn:btih:6DB9300D4441EF952F446EA46B2FA4F0FFB93BFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:6DB9300D4441EF952F446EA46B2FA4F0FFB93BFD
 ```bash
 magnet:?xt=urn:btih:1931A73B1F6CABAECAC37A3677FFF166F5D0C6A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ SideFx, Ari Danesh | Intro to PDG (2019) PCRec [EN, RU]
 magnet:?xt=urn:btih:7AC1F5EB429E6C2EF1E09AC371D0E371B6F0DFF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:7AC1F5EB429E6C2EF1E09AC371D0E371B6F0DFF0
 magnet:?xt=urn:btih:F8EDE79C54DFAFC5517AF5C0B8AF1DC33D3A047F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:F8EDE79C54DFAFC5517AF5C0B8AF1DC33D3A047F
 ```bash
 magnet:?xt=urn:btih:2E15FCCDF9DF1AD2023A101FC119E04B57C76581
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:2E15FCCDF9DF1AD2023A101FC119E04B57C76581
 magnet:?xt=urn:btih:AD8C6DDE5665C73BF1AE02B3B4702FD210EFDFC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:AD8C6DDE5665C73BF1AE02B3B4702FD210EFDFC6
 ```bash
 magnet:?xt=urn:btih:A90BEF19C0CFAAB0F8F2A76BD44FEAC3CE10CED4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:A90BEF19C0CFAAB0F8F2A76BD44FEAC3CE10CED4
 magnet:?xt=urn:btih:C41BE700EA7A8C12559AB114B47AE79727F3AA2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Udemy, Aray Kaken | Основы DevOps (2021) HDRip
 magnet:?xt=urn:btih:79DD23007ED292ED951FD9FAEE7A4BD76F486583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Udemy, Nexttut, Arash Arefnia | Creating Next-Gen Environments in UE5 (2022) PCR
 ```bash
 magnet:?xt=urn:btih:DEFD0C34B5B19C54EFB475BE00D474BF6018E02F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:DEFD0C34B5B19C54EFB475BE00D474BF6018E02F
 magnet:?xt=urn:btih:B6A9DFBEF68770257F390EC85730914B9B56C802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Adobe Illustrator является общепризнанным стандарт
 magnet:?xt=urn:btih:888D88C70DC349479137F77E1AFEE369448431A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:888D88C70DC349479137F77E1AFEE369448431A0
 ```bash
 magnet:?xt=urn:btih:198C8AD54765DE2E43DD7B4E02D134985D952768
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ PHP входит в тройку самых востребованных и по
 magnet:?xt=urn:btih:D16DC0DED29AEA8ADB3B8C03B03412536781B027
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:D16DC0DED29AEA8ADB3B8C03B03412536781B027
 magnet:?xt=urn:btih:DA05571E6DE0C6237F472D53E20E545F0F08A227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:DA05571E6DE0C6237F472D53E20E545F0F08A227
 ```bash
 magnet:?xt=urn:btih:6AD3EF3BADEC94C32BB311FE14574866E6F8DE9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Flutter - это относительно новый набор инструме
 magnet:?xt=urn:btih:1B03F684FB542C61D6AC7F259AA73F103D012D45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ JavaScript - одна из самых важных частей каждой с�
 magnet:?xt=urn:btih:D68BDBEA6478BEDB528F82FD5F2410D5D86ED948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Jakub Krompolc | Exploring Human Muscles Setup in Maya (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:AD6724E0B764015BBBCF6E99EB418A51539FE0D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:AD6724E0B764015BBBCF6E99EB418A51539FE0D6
 magnet:?xt=urn:btih:1DD819BAA32B09EAFCEC1E1B5D4700AECD9FFEDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:1DD819BAA32B09EAFCEC1E1B5D4700AECD9FFEDE
 ```bash
 magnet:?xt=urn:btih:2DD5A446A574E22CE67555FC6B985700901D73DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - DJ Hits Vol. 26 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 magnet:?xt=urn:btih:FE0C6D4E2DAD00C5813403479B31A429317CA6A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - DJ Hits Vol. 25 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 magnet:?xt=urn:btih:DC6D29E6B14E20156E475D3291A5ED9AEE42E6AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:DC6D29E6B14E20156E475D3291A5ED9AEE42E6AA
 ```bash
 magnet:?xt=urn:btih:6632422820D0AE54ACDCC2226A1AE7BE1544B37B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ Night Wilds - All That Should Have Been (2024) [FLAC|Lossless|WEB-DL|tracks] <Pr
 magnet:?xt=urn:btih:6EEFEFF1D25F21639EC5DAF87108351A1A6D642D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:6EEFEFF1D25F21639EC5DAF87108351A1A6D642D
 ```bash
 magnet:?xt=urn:btih:F345BE71A75DFCBABB2BB5F6B31BB07284B66152
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:F345BE71A75DFCBABB2BB5F6B31BB07284B66152
 magnet:?xt=urn:btih:31172F33A18AFFEC200EAB25BC4A47FA749ADE89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:31172F33A18AFFEC200EAB25BC4A47FA749ADE89
 ```bash
 magnet:?xt=urn:btih:D2EEA13F4325B5FA23AD85AE60B910068BFE5D4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ Barock Project - Time Voyager (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Prog
 magnet:?xt=urn:btih:6447C4BDD31AD84B73273B5F8C075CEC801D64D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ Lee Ritenour - Captain Fingers (1977) 1987, Epic [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:D162758A9900C14C7E9ADAFEC3BEA828752E0C2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ A4 - Faithless(   Читать дальше...   )Жанр: Death MetalПрод�
 magnet:?xt=urn:btih:3CAF7F4591B0913976D785125AA84992A6405FE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +303,8 @@ The Acid Machine - 2024 - S.O.S Brazil (FLAC 24bit-44.1kHz)Жанр: Brazil Dese
 ```bash
 magnet:?xt=urn:btih:370B9CACC883E5E17D56BBE9301AFEF26DF94DAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +333,8 @@ Dreamgate - Dreamgate (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Meta
 magnet:?xt=urn:btih:B85AC2AD32D2C8FA4D184CD3B755B7088F29D7FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +361,8 @@ Grain Of Pain - The Moon Lights The Way (2024) [FLAC|Lossless|WEB-DL|tracks] <Me
 ```bash
 magnet:?xt=urn:btih:E70B40EF694D60415DD51D239456A9B58E6341C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +391,8 @@ Suffering Souls - An Iconic Taste Of Demise (2024) [FLAC 24/44.1|Lossless|WEB-DL
 magnet:?xt=urn:btih:E4904AC0EBAD17744E13C97BD11FD35077783981
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +419,8 @@ Deliverance - What a Joke (1991) Remastered, 2020, Retroactive Records [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:E94624D01CC4D1DDF2B0B67EE148A99132B98774
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +449,8 @@ Mary Lou Williams - A Keyboard History (1955) 2011, Poll Winners Records [FLAC|L
 magnet:?xt=urn:btih:91F49DB62E065AE0C4FC9792A6EC70C3D95F6550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +477,8 @@ VA - Slow Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ```bash
 magnet:?xt=urn:btih:EC87168C0A903DFF2B5D15C361D67CCC3BC5A05A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +507,8 @@ Avi Rosenfeld & Stefano Stex Sbrignadello - Attack (2024) [MP3|320 Kbps] <Hard R
 magnet:?xt=urn:btih:4EC75B08A40D87ECD33A297A1797984AD12FE8FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +532,8 @@ magnet:?xt=urn:btih:4EC75B08A40D87ECD33A297A1797984AD12FE8FD
 ```bash
 magnet:?xt=urn:btih:F99CAFED4539780585B8B6019AFA313F8582B138
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +559,8 @@ magnet:?xt=urn:btih:F99CAFED4539780585B8B6019AFA313F8582B138
 magnet:?xt=urn:btih:4AA425F5E0771984FC5C2004F07535FAE062EBF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +584,8 @@ magnet:?xt=urn:btih:4AA425F5E0771984FC5C2004F07535FAE062EBF5
 ```bash
 magnet:?xt=urn:btih:50BC239A208EDFFFA2E2CCD7912FE9C13B1F0922
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +611,8 @@ magnet:?xt=urn:btih:50BC239A208EDFFFA2E2CCD7912FE9C13B1F0922
 magnet:?xt=urn:btih:8AA8A553593847D4D7B6FA5781CF657AD53CFDF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +637,8 @@ magnet:?xt=urn:btih:8AA8A553593847D4D7B6FA5781CF657AD53CFDF7
 magnet:?xt=urn:btih:F00A1A26731964EC3F801C0CFCEA921DAC082CBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +662,8 @@ Lucky Patcher (Лаки патчер) – отличное решение есл
 ```bash
 magnet:?xt=urn:btih:FE05228AB58C9357FD6E6FA66740792740B4CA8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +692,8 @@ Aphex Twin - Digeridoo (1992) Expanded Edition 2024, R&S Records [FLAC|Lossless|
 magnet:?xt=urn:btih:E9287CE83926F9A7EFD614176ED3182662889B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,6 +720,8 @@ The book?s ESL lessons connect (   Читать дальше...   )Жанр: у
 ```bash
 magnet:?xt=urn:btih:C3FF2ACD96DAF3806705AB0DD56054432CD05927
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

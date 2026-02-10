@@ -22,6 +22,8 @@ VA - Cosy Lounge Vol.1: Smooth Weekend Tunes (2016) [MP3|320 Kbps] <Downtempo, C
 magnet:?xt=urn:btih:0A4651A1D4A54F4BEC55AE4384C6381458B1E68D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:0A4651A1D4A54F4BEC55AE4384C6381458B1E68D
 ```bash
 magnet:?xt=urn:btih:CB06ABD4E4F2FDD2EEFD13B46C8C1AE48C18EFD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:CB06ABD4E4F2FDD2EEFD13B46C8C1AE48C18EFD0
 ```bash
 magnet:?xt=urn:btih:ADA0D667952A5BC2964322EE1A2DB9A5B33CA88C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ VA - Lounge Atmosphere, Vol. 2 (2022) [AAC|~329 Kbps] <Lounge, Chill Out, Downte
 magnet:?xt=urn:btih:34C5FC2B81C60F2C54166FC3EA82C13117F6B783
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Silhouette - Les retranchements (2022) [MP3|320 Kbps] <Atmospheric Black Metal>
 magnet:?xt=urn:btih:592BEC9B5487E5243B77EC4E700E8558147A99A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:592BEC9B5487E5243B77EC4E700E8558147A99A0
 ```bash
 magnet:?xt=urn:btih:B85AD80F85119E6F35B7A271077C62BAE2519D4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:B85AD80F85119E6F35B7A271077C62BAE2519D4A
 magnet:?xt=urn:btih:DF42D0C60D20EC93BFF2F7938C0EFDB86ED81115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:DF42D0C60D20EC93BFF2F7938C0EFDB86ED81115
 magnet:?xt=urn:btih:E05745CD1713C2ED5048B6191E9D1B6C80029CA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ FastStone Image Viewer - вьювер, редактор и конвертор г
 ```bash
 magnet:?xt=urn:btih:EFFD74B4F3DFA6599E8F9A542BE3CFA429F17CCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ Amartia - Daylight Beauty (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock
 magnet:?xt=urn:btih:33043E662B9782DB909C4B0A2C2C738A997A4447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ VA - Ethno Sorcery (2019) [AAC|~321 Kbps] <Deep House, Organic House>
 ```bash
 magnet:?xt=urn:btih:899A1335471B638CFE10507D01367CC2FC8642CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ Heryos - The Magician (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Doom Me
 magnet:?xt=urn:btih:40645B02F80F5C880BDAF4BA42BB97A3B95CB7D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:40645B02F80F5C880BDAF4BA42BB97A3B95CB7D2
 ```bash
 magnet:?xt=urn:btih:E3E9931FEBDD5C4675773A1F7C2CCC2C5105B769
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ Phil Campbell and the Bastard Sons - Live In The North (Live) (2023) [FLAC 2.0|9
 magnet:?xt=urn:btih:D25642EC7EF7186BDA602FAD5E823760F028C543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ WinSnap позволяет делать скриншоты экрана мони
 ```bash
 magnet:?xt=urn:btih:ED94E5616A34AB45D9175EE7124F6D34334B4588
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:ED94E5616A34AB45D9175EE7124F6D34334B4588
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:ED94E5616A34AB45D9175EE7124F6D34334B4588
 magnet:?xt=urn:btih:49A551B9A58A25AF06C203182ECD5114C43D5087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ SamDrivers 23.1 LAN [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6E617E5078C6444E914BBF045E58A49071E17E12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ VA - Viva 2021.2 (2022) [AAC|~331 Kbps] <House>
 magnet:?xt=urn:btih:EF81DDF5F0D99D6D8A9BB53C1B528D070BBC1306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:EF81DDF5F0D99D6D8A9BB53C1B528D070BBC1306
 ```bash
 magnet:?xt=urn:btih:FFF98B5F7F747ECE22CBD705AC344D7C619CA48A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ Tony Kofi Quartet - Plays Monk (2004) Specific Jazz[FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:61ED511FDD1C93EF69654E1931C1F6E0BA62BBAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ magnet:?xt=urn:btih:61ED511FDD1C93EF69654E1931C1F6E0BA62BBAD
 ```bash
 magnet:?xt=urn:btih:2DAB0B06AA920615B23B8068E050EBE68FB8E9FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ Peter Gee - Pilgrim (2023) [MP3|320 Kbps] <Neo-Progressive Rock>
 magnet:?xt=urn:btih:F95089FA9200B4292DF49933954E8334B05E860B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:F95089FA9200B4292DF49933954E8334B05E860B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:F95089FA9200B4292DF49933954E8334B05E860B
 ```bash
 magnet:?xt=urn:btih:05BD2E10707940B7D2EA9A4D62870206573B3188
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +706,8 @@ Text Edit Plus — это простой, но мощный текстовый �
 ```bash
 magnet:?xt=urn:btih:DA1F7215404C106640F9AE710AC49EF9A5B201CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

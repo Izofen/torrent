@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:48A75A4FA749C3ABF0E160AA03B375B8AC4158C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Nuke Studio — мощнейший пакет для композитинга, �
 ```bash
 magnet:?xt=urn:btih:DB3BB5DD3FE308C08AC9028CD5901E257FB8EB60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ MAGIX Vegas PRO — профессиональная программа для �
 magnet:?xt=urn:btih:923E2D5BD4E9615FB3D6F8508C23C9DB72E502B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Adobe Illustrator 2023 27.0.0.602 RePack by PooShock [Multi/Ru]
 magnet:?xt=urn:btih:2F7FCEC7E7ED8C775B8990E1B1DFCEEB9B81E1DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:2F7FCEC7E7ED8C775B8990E1B1DFCEEB9B81E1DB
 ```bash
 magnet:?xt=urn:btih:5BFC4369DC1025A6D867D5BBD5A7DB3EA549390C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ vMix — это многофункциональный современный в
 magnet:?xt=urn:btih:FCF19D6F008B89962A4B5E66A2DAD82F61E50031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 magnet:?xt=urn:btih:072666D56A2C6BA1DD15274FA1DD8DE402D7DE32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:1AF17CF5919F3BAC303BB64B7311A353C8B980C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Adobe Photoshop — это приложение для редактирован�
 magnet:?xt=urn:btih:4910A2B26BC9E3186F083B6E0594A6DCC2985EF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Imagine - это бесплатный просмотрщик изображен�
 ```bash
 magnet:?xt=urn:btih:DEC7174717BA1AC72F1082955268DD159F8CE494
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 magnet:?xt=urn:btih:6F871FCC3D2E74619BC5F26D311958739C5A624E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ CorelDRAW Graphics Suite 2025 26.2.0.170 Portable by conservator [Ru/En]
 ```bash
 magnet:?xt=urn:btih:32C239D1969256BC96EC79AFE5A808FF941BFF97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:32C239D1969256BC96EC79AFE5A808FF941BFF97
 magnet:?xt=urn:btih:B51B9C0BB1C7E20B24AF8CFDA1F8CCAE6372CBF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Bridge предоставляет централизованный доступ 
 magnet:?xt=urn:btih:9E658FE19558CD800BC719B88C04AFC4CCED52CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ InDesign — ведущее в отрасли программное обесп�
 ```bash
 magnet:?xt=urn:btih:7154D56C04D4F6204570333405E82F353D21D4DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ InCopy позволяет авторам напрямую набирать те�
 magnet:?xt=urn:btih:FFFEC2EC95090476E511C322217C2B3067AF64A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Dynamic Auto-Painter — уникальный редактор, который �
 ```bash
 magnet:?xt=urn:btih:57BC6259F091EEA5D092AFBDCAC50BD0AB663B9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ MAGIX Photostory Deluxe 2023 22.0.3.149 (x64) Portable by 7997 [Multi]
 magnet:?xt=urn:btih:070291E6458C172F0560BC1413D1BBEF60FAD37F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ VEGAS Image - мощная программа для работы с вашим�
 magnet:?xt=urn:btih:808A06308E65D69C97CE96EB593040D70E84D16E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Blob Studio - это продукт, созданный на основе Twiste
 ```bash
 magnet:?xt=urn:btih:BE0CC204EE0FAE1B0EA886DD2107708B9FE604C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ HitPaw Video Editor - это простое в освоении программ
 magnet:?xt=urn:btih:BE41E233D5390BE2E89A45A99520665D2F8B1867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Pinta 2.1.1 [Multi/Ru]
 magnet:?xt=urn:btih:23704E92A7D0FAABD6AF60E497FCEE5F6CD63664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ MAGIX SOUND FORGE Audio Cleaning Lab 4 26.0.0.23 (x64) Portable by 7997 [Multi]
 ```bash
 magnet:?xt=urn:btih:93DBEF38C6D63A5851175B759BDAA06CF0AC7C26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ SOUND FORGE Audio Studio позволяет осуществлять цифро�
 magnet:?xt=urn:btih:F95C632A5BC871F668DFF45ABC0C90258A4F9943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Any Video Converter Ultimate - предоставляет пользовател
 magnet:?xt=urn:btih:C6DAEDF6F930F45C1C292BD96ED6CBAE02D9EA25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ HitPaw Photo Enhancer - это наиболее полный инструмен�
 ```bash
 magnet:?xt=urn:btih:014D3313DF13C2498A781F8D61DD7C6B3D2FD442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

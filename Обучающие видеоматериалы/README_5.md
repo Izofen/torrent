@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8E9D09090C7B0A63FBCEB840C61EA25E6CCB5857
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:8E9D09090C7B0A63FBCEB840C61EA25E6CCB5857
 ```bash
 magnet:?xt=urn:btih:1721AF259619A2A972F72CDA12A8A3FB39D9DD80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ LiveClasses, Антон Мартынов | Обзор возможностей D
 magnet:?xt=urn:btih:3DC4F909E607607B0785F2B867B6ACE94742B42E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:3DC4F909E607607B0785F2B867B6ACE94742B42E
 ```bash
 magnet:?xt=urn:btih:3AF7BD1315AC78D2D7A3AE2E943B27AD015BC69B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ LiveClasses, Артур Орлов | Создание музыки с помощ
 magnet:?xt=urn:btih:100231C12EF0E1DD3CD446141F8E9021135B2E8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:100231C12EF0E1DD3CD446141F8E9021135B2E8D
 ```bash
 magnet:?xt=urn:btih:FD13725E7FB5276B034A43A099687BEF55769590
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:FD13725E7FB5276B034A43A099687BEF55769590
 ```bash
 magnet:?xt=urn:btih:1F8752D05FFC71647CC9BD15F1FC6AB950C8647B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ The Gnomon Workshop, Victor Javier Garza | Grooming in Yeti: Hair Solutions for 
 magnet:?xt=urn:btih:618DFC3A02974B5185E26147625566C9BD96E10E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:618DFC3A02974B5185E26147625566C9BD96E10E
 ```bash
 magnet:?xt=urn:btih:70BE694F5E7D7F7ED5639CB9E8645BDC6D67482C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:70BE694F5E7D7F7ED5639CB9E8645BDC6D67482C
 magnet:?xt=urn:btih:46EB1340126C8EC9C092BD04686CF47D01EA6E3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:46EB1340126C8EC9C092BD04686CF47D01EA6E3B
 magnet:?xt=urn:btih:FFC373D6B420E714B85744ECC810D7218AE24FFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:FFC373D6B420E714B85744ECC810D7218AE24FFE
 ```bash
 magnet:?xt=urn:btih:BF8809EDAC89FD3A6D05F45A47E80E0FEB78359F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:BF8809EDAC89FD3A6D05F45A47E80E0FEB78359F
 magnet:?xt=urn:btih:EAB783DFD383BAF6CEC10F42B2CA2214A2BD5018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Udemy, Sam Parulekar | Learning AutoCAD 2026 (2025) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:95086721B58F30A7FBE29E4686BFB5A1E396BF43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ Hello I'm Julien Devile. I work as a freelance 3d designer and Blender foundatio
 magnet:?xt=urn:btih:2B9F8E72AE5671FC4870299C033AA7B50985C77E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:2B9F8E72AE5671FC4870299C033AA7B50985C77E
 ```bash
 magnet:?xt=urn:btih:ADEB4B01D73CE002CE3C8EFDD4BF22E3A6C984A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ The Gnomon Workshop, April Connors | Gesture Drawing Fundamentals (2021) PCRec [
 magnet:?xt=urn:btih:390D47BC01C6EE7FC982683F008867C219B7974B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ f5game, Ольга Грищенко | 9 загадок Шерлока Холмс
 ```bash
 magnet:?xt=urn:btih:CFD3CC2423F2D08DECDAB919F162CB47224A79AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ PurpleSchool, Антон Ларичев | Основы Git (2024) WEB-DL [RU]
 magnet:?xt=urn:btih:D3DE6BE201170710F09529E334BCEC1F98B528BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Groove3, Thomas Cochran | Serum 2: Making Synthwave (2025) WEB-DL [EN]
 magnet:?xt=urn:btih:C0452811FF012681BC2024188908F5BFD328E32E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:C0452811FF012681BC2024188908F5BFD328E32E
 ```bash
 magnet:?xt=urn:btih:5AE7EDA66C8F2E7E0402A14AAE2BA9962835C3B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:5AE7EDA66C8F2E7E0402A14AAE2BA9962835C3B5
 magnet:?xt=urn:btih:F7BD8C1257E917678E02775D90B6CC2D3C2EDBEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ CGMA, Yves Yumol | Absolute Beginners (2020) WEB-DL [EN / EN, RU Sub]
 ```bash
 magnet:?xt=urn:btih:80E6C3843D83CC7C5A0F3776550989F64AD6399E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ f5game, Ольга Грищенко | Гений вопросов (2025) WEB-DL 
 magnet:?xt=urn:btih:DAD4FAC1B238E6BBA21637D05DFB5B90437D9084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:DAD4FAC1B238E6BBA21637D05DFB5B90437D9084
 magnet:?xt=urn:btih:0E84DA2245A772258E85CDE1F218268A24B056A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ Udemy, Виктор Быстров | Как БЫСТРО находить люд
 ```bash
 magnet:?xt=urn:btih:1267B0808667BF0E6E58606797FA9E6561210998
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

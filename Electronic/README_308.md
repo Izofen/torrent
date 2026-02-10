@@ -22,6 +22,8 @@ Gëinst (Geinst) - Discography 5 Releases (2016-2019) Arts [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:1009B71D4D347288F44BA212CE2D0E4AA8DEA371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Eluize - Confide (2019) Craigie Knowes [FLAC|Lossless|WEB-DL|tracks] <House, Lef
 ```bash
 magnet:?xt=urn:btih:F152AACD41EA1222311BB6ED5ACDF0EF989495F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Blazej Malinowski - Entity (2019) Semantica Records [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:FC320DD13E0E28F4332BA32F3318F81306D598D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Nuyileq VA 001 (2018) End Of Perception [FLAC|Lossless|WEB-DL|tracks] <Tech
 ```bash
 magnet:?xt=urn:btih:7927DFA6ECEA2D42C415FE6C4A1812F0C4D72F0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Claude Challe - Nirvana Lounge 02 (2002) 2CD Box [APE|Lossless|image + .cue] <Do
 magnet:?xt=urn:btih:C4C004073DCFE92530D72A6E98A7B0685219C048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - 2004' Ambient Album (2004) [APE|Lossless|image + .cue] <Ambient>
 ```bash
 magnet:?xt=urn:btih:5218E01B990C5DAE8135D29EBF21DDACFA422DCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Dark Trance Vol. 2 (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:23F40F8F1B33E96437263199B2850503DD2A0636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Thomas Fehlmann - Los Lagos (2018) Kompakt [FLAC|Lossless|tracks+.cue] <Techno, 
 ```bash
 magnet:?xt=urn:btih:AAD6855422BB6D66F5F592EBA7A5AB5C70A91EBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - 100 % Pure Bounce (2019) [MP3|320 Kbps] <Hard House>
 magnet:?xt=urn:btih:CA560A0C56D3CB3B8CCB9C22150DDF4118D32BE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Roger Gerressen - Monoaware (2017) Sushitech Records [FLAC|Lossless|Vinyl-24Bit|
 ```bash
 magnet:?xt=urn:btih:37FB668F049F17CA0450E4B9AED04B234D11C689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Spring Lounge Vol.1 (2019) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:2A740F29EC694C44FD30865152E635C30DAD0ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Zhu - Generationwhy LP (2016) [MP3|320 Kbps] <Electronic, Deep House, House>
 ```bash
 magnet:?xt=urn:btih:F0CBD70E122B6E2577A3AAFD926C158D985F07D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Dance Zone - Top Music Hits (2016) [MP3|320 Kbps] <House, Progressive>
 magnet:?xt=urn:btih:1220529EFBA16ECEB195BCCBD4D7E0FB7116FB0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Trance Dreams (2016) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance
 ```bash
 magnet:?xt=urn:btih:C7C43E0511E27A044500BBBBE51F771311865AD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Paul Van Dyk Presents: We Are One (2015) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:7F9BC34C3B799FCA692119EB5AC5420F28DAD570
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Ibiza Beach Club (2015) [MP3|320 кб/с]<Deep House, Chill House>
 ```bash
 magnet:?xt=urn:btih:8B9EA5E74ABC529F8B1759CDFA970C6FD8922C0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ VA - Ministry Of Sound - Addicted To Bass (2012) 3CD [FLAC|Lossless]<Progressive
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +520,8 @@ Pom Pom - 35 (2018) [FLAC|Lossless|tracks|Vinyl] <Techno>
 ```bash
 magnet:?xt=urn:btih:64FB64D39AF17189052BE1DBEA2C18F4177B7792
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +556,8 @@ Goldfish - Caught In The Loop (2005) [FLAC|Lossless]<Afrobeat, Future Jazz, Deep
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +591,8 @@ VA - Ministry Of Sound - Chilled II 1991-2009 (2009) 3CD [FLAC|Lossless]<Deep Ho
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +619,8 @@ VA - Psychedelic Experiences of the Free Spirits of the Earth (2017) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:0E9B91FD58105A93202C54558EE06EDBE2DC2C5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +649,8 @@ VA - Sudbeat Showcrates 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Prog
 magnet:?xt=urn:btih:C417CF90189CB1E712A13A83957503BDAA99D23C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +677,8 @@ Kompromat - Traum und Existenz (2019) Clivage Music [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:FBA05CA05A7832123DAC1900435E68787C5C50F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +707,8 @@ Solar Fields - Origin # 02 (2015) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-D
 magnet:?xt=urn:btih:CC3E86B5E33C51E2BD2E22E7E7D0F89EE7FCB2C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,6 +736,8 @@ Mahiane - Oxycanta III (2015) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <
 magnet:?xt=urn:btih:6B9FA7F14387C136AFC52514F60C80E7A8469D18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -714,6 +764,8 @@ Fishimself - Ambrosia (2015) Ultimae Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <P
 ```bash
 magnet:?xt=urn:btih:89D7D264F9F83DAB1DFC427D875D0F55CDFFFDFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

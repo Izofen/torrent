@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5F10880BD370415B9BE3A5602678C40DB7F1A5E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 magnet:?xt=urn:btih:964CB88E3A64A6D2FDEC0C0E45176E27B4369DF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Jujutsu Kaisen | Магическая битва [2020, TV, 24 из 24] BDRip 10
 ```bash
 magnet:?xt=urn:btih:44784ABF33BC6FB0A64F9C94ACB9CCCC1088A188
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ RWBY Ледяное королевство | RWBY: Hyousetsu Teikoku | RWBY: Ice
 magnet:?xt=urn:btih:B05D31BCE7B21A86F6B5A55EECEBF139D3D11E87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Ikkitousen: Xtreme Xecutor / Школьные войны (сезон четве�
 ```bash
 magnet:?xt=urn:btih:2241D7A3DA7D7CB88F65CD27E1E91EE57EA7840A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Great Teacher Onizuka | Крутой учитель Онидзука [1999, TV, 
 magnet:?xt=urn:btih:E639FB8C2052A0D96617B51E20DE8D8C2A63813B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:E639FB8C2052A0D96617B51E20DE8D8C2A63813B
 ```bash
 magnet:?xt=urn:btih:224B7466FBCB684133E7135779B76F02BF4D331D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:224B7466FBCB684133E7135779B76F02BF4D331D
 magnet:?xt=urn:btih:FF71D6A9D10228B2D5F7D4F4702E0A5264AD56CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:FF71D6A9D10228B2D5F7D4F4702E0A5264AD56CC
 ```bash
 magnet:?xt=urn:btih:3FC820AE50791CEEB98F45AE13E8AA2DB221197D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:3FC820AE50791CEEB98F45AE13E8AA2DB221197D
 magnet:?xt=urn:btih:3D60C7026295033F3657A07F8D16243E489EE155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:3D60C7026295033F3657A07F8D16243E489EE155
 magnet:?xt=urn:btih:DAE8E731C037916712D5835AEE4BC0879041838D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:DAE8E731C037916712D5835AEE4BC0879041838D
 ```bash
 magnet:?xt=urn:btih:C168CEE41E25C0AB4DC917C90881654BF218FA53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:C168CEE41E25C0AB4DC917C90881654BF218FA53
 magnet:?xt=urn:btih:E45561082D13CF23942A50D01E14DA12B383DB56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:E45561082D13CF23942A50D01E14DA12B383DB56
 magnet:?xt=urn:btih:ACB6FC87E4B54541E70973917DE00BAD67D2D5E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Blade and Soul / Blade & Soul / Клинок и Душа [2014, TV, 13 ep + 7 SP
 magnet:?xt=urn:btih:4C9FC4546CC57FA1D1552F587E7B6158FCC0424D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Tokyo Mew Mew New | Токио Мяу Мяу [ТВ-2] [2022, TV, 12 из 12] WEB
 ```bash
 magnet:?xt=urn:btih:C2DFF5515A9EACAD18910EA0B26AD4547835C97C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:C2DFF5515A9EACAD18910EA0B26AD4547835C97C
 magnet:?xt=urn:btih:CFFF82946DA303B438BF1A916499ED3D453DFFEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:CFFF82946DA303B438BF1A916499ED3D453DFFEF
 ```bash
 magnet:?xt=urn:btih:24030C7A8CDD43AE61BF8CA85CC0D791C2F02EC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Tokyo Ghoul A / Токийский гуль [ТВ-2] [2014, TV, 12 ep] BDRip Hi1
 magnet:?xt=urn:btih:C8BDEC1C82BAFE2FC947E1391DF873BE55306761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Owari no Seraph / Seraph of the End: Vampire Reign / Последний Сера
 ```bash
 magnet:?xt=urn:btih:67C55FAE621889F4787629350397524452573C68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Monogatari Series: Second Season / Истории, сезон второй [2013
 magnet:?xt=urn:btih:26CA0EAEF67137C51C8C404F9593A69AD7EFDE6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Macross: Do You Remember Love? / Макросс: Помнишь ли ты люб
 ```bash
 magnet:?xt=urn:btih:7299467ED4562AF312805714741AF5B141935401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Kizumonogatari | Истории ран [2016-2017, Movie, 3 из 3] BDrip 720p 1
 magnet:?xt=urn:btih:E67FD9B2E971AE8A793696E90CB179E170CF6CD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Grand Blue / Grand Blue Dreaming / Бескрайняя синева [2018, TV, 
 magnet:?xt=urn:btih:75AD56DB7E987E6F299E7B9B69AD4FBFCC96F7F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Pokemon Diamond and Pearl: Battle Dimension (11 Season) / Покемон Алм�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ One Piece Movie 14: Stampede | One Piece Movie 14: Stampede | Ван Пис Фи
 ```bash
 magnet:?xt=urn:btih:5FD035DF8E70EFBA947637936706A3000472907B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

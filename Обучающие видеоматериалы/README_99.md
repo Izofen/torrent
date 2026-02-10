@@ -22,6 +22,8 @@ HOMESTYLER - это онлайн-инструмент для дизайна ин
 magnet:?xt=urn:btih:0C38BCA543CE6F593076EABFE14CEAA4407266DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:0C38BCA543CE6F593076EABFE14CEAA4407266DF
 magnet:?xt=urn:btih:FF60E30A81A277F2EB525C50F58CE85AE54BB866
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Bangbangeducation, Анна Матвеева | Дизайн мобильных �
 ```bash
 magnet:?xt=urn:btih:E971633ADC131C899A3A99A6A996BD0D1798225E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:E971633ADC131C899A3A99A6A996BD0D1798225E
 magnet:?xt=urn:btih:4EAF68C24F0DB4B498B96B8B2A2816FABA9FFB1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Nerual Dreming | Нейробуст (2023) WEB-DL [AD] [RU]
 ```bash
 magnet:?xt=urn:btih:CBD588FE6BF31EC143374676B990D5DF69AD1772
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Udemy, Web Oral | ChatGPT: Earning Money With ChatGPT - Easy Way For Beginners (
 magnet:?xt=urn:btih:34F064B966277F031A071EE0A67DBBCA937842E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:34F064B966277F031A071EE0A67DBBCA937842E2
 magnet:?xt=urn:btih:E7A8DA63180B689C338F56AFDB2BF978B17B5942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ Adobe Illustrator — популярный векторный графическ
 ```bash
 magnet:?xt=urn:btih:5E91C16C2DBF45F8F4BBAB19604588B01F8EE57C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ ivelizar_, Елизавета Иванова | Exterior atmosphere training (202
 magnet:?xt=urn:btih:FB70639B197DA84EFF812F30C98EE7092A785A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ CGcircuit, Arsen Margaryan | Discovering Houdini VOP 2 (2022) WEB-DL [Без о�
 magnet:?xt=urn:btih:594FABEDC1BA31BCB5B4332D4378BB1AA44BE101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:594FABEDC1BA31BCB5B4332D4378BB1AA44BE101
 ```bash
 magnet:?xt=urn:btih:22BE131BDF08E8F6EBF77AEDA41B3311473480CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:22BE131BDF08E8F6EBF77AEDA41B3311473480CE
 magnet:?xt=urn:btih:F3DEC92BA70B078850DA14BD8DF1EB9C84C53EF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ Udemy, Serge Lansiquot | Game Dev Math Ultimate guide to polishing your game! (2
 magnet:?xt=urn:btih:83E532CDAAD1DE8DF81E47C191FC112169756686
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ Kalacheva School, Вероника Калачева | Акварель 2.0 (2020
 ```bash
 magnet:?xt=urn:btih:FEDE0EA265454D2C1FE93A14AE3AE1BD40DCBD60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +411,8 @@ CGcircuit, Radu Cius | Houdini Tutorial Procedural Modeling – Escalator (2022)
 magnet:?xt=urn:btih:7C6244D157744346E753C53382316174E7ED3C0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +440,8 @@ CGcircuit, Tim Van Helsdingen | Aggregation – Rigid body Self Assembly (2021) 
 magnet:?xt=urn:btih:2D7641B9DEF0F28021A2D52FBF1269B2075594DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +467,8 @@ Udemy, Lincoln Margison | Procedural animation for humans in Unreal Engine 5 (20
 ```bash
 magnet:?xt=urn:btih:B8855EBBD53F2BB2B445D8643B67F632637F8280
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +497,8 @@ magnet:?xt=urn:btih:B8855EBBD53F2BB2B445D8643B67F632637F8280
 magnet:?xt=urn:btih:1749B22EC7EEADC12D3952B504D88FA3393945E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +526,8 @@ magnet:?xt=urn:btih:1749B22EC7EEADC12D3952B504D88FA3393945E3
 magnet:?xt=urn:btih:B9CE8CA56EF6AEB5DD6D69AEF08F56713C06595B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +553,8 @@ Udemy, Joakim Tornhill | All About Eevee for Blender 2.8 and above (2020) PCRec 
 magnet:?xt=urn:btih:376D98A00063A1C6722031C2B065334D959764AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +578,8 @@ Udemy, Joakim Tornhill | A Workflow to Create Realistic Material in Blender (202
 ```bash
 magnet:?xt=urn:btih:22AE55EB9AA1DDDB2BF972FC9B87A989FDE6C45B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +607,8 @@ Udemy, Joakim Tornhill | Shader Magic in Blender 3.41 and above (2023) PCRec [EN
 magnet:?xt=urn:btih:9DF7FABA86BD89E42AC0BB1CED30B814CD85615A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +633,8 @@ Udemy, Joakim Tornhill | The Emitter Particle Course for Blender 2.8 and above (
 ```bash
 magnet:?xt=urn:btih:3DAE2310FD33B1002BAC792321A1EA9CF127EB20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +663,8 @@ magnet:?xt=urn:btih:3DAE2310FD33B1002BAC792321A1EA9CF127EB20
 magnet:?xt=urn:btih:3C2906DB13723A2897DD8A520F742879586A7C56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +691,8 @@ magnet:?xt=urn:btih:3C2906DB13723A2897DD8A520F742879586A7C56
 magnet:?xt=urn:btih:E90892BE972718C948BD926E14B84EA0BC1DD963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +716,8 @@ magnet:?xt=urn:btih:E90892BE972718C948BD926E14B84EA0BC1DD963
 ```bash
 magnet:?xt=urn:btih:2930769E38D02A0AC5CBEC92D44AF339FB6AB86E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

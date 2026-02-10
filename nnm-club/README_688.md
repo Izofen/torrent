@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:409922BC69F1FB3F459870A664DAA4494B284400
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Sekirei | Сэкирэй (2004) [19 томов, 204 главы] [Манга] [Р
 ```bash
 magnet:?xt=urn:btih:EF416B721F1F4D034FD32C6374BCC59B99C7C573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:EF416B721F1F4D034FD32C6374BCC59B99C7C573
 magnet:?xt=urn:btih:A5453F48AA7163953C48C1D56F895BE6B2E123E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:A5453F48AA7163953C48C1D56F895BE6B2E123E8
 ```bash
 magnet:?xt=urn:btih:5D57FFF9CADBAAC5B3AED3DA6D56CAA71FA43AB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:5D57FFF9CADBAAC5B3AED3DA6D56CAA71FA43AB8
 magnet:?xt=urn:btih:6A730C26D1CB0DAFD05E1861AB7251365A88F83A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Cryptical Path (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 magnet:?xt=urn:btih:9CDECE5B7ABFB22A8069CF098D002F63A818DD52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ The Sinking City - это приключенческий детектив, со�
 ```bash
 magnet:?xt=urn:btih:CC88250D79616C4BC3E339624092DE845A3891CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Astra Linux Special Edition 1.7.7 UU2 [amd64] 3xDVD
 magnet:?xt=urn:btih:79A3206423433CF8D2507F008A9B897EF9E006CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:79A3206423433CF8D2507F008A9B897EF9E006CB
 ```bash
 magnet:?xt=urn:btih:F17188085607F60275EFB814E94AB50F34FDBBC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:F17188085607F60275EFB814E94AB50F34FDBBC6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:F17188085607F60275EFB814E94AB50F34FDBBC6
 ```bash
 magnet:?xt=urn:btih:DCEBE27A112B1E92B4A37A088C7CAE976BB46496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:DCEBE27A112B1E92B4A37A088C7CAE976BB46496
 magnet:?xt=urn:btih:7BCD56B08CA3BC08A9F140B8382DFD6A4DD9F5E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ VCap Downloader (VCapDL) – это универсальное программ�
 ```bash
 magnet:?xt=urn:btih:B253E6F96A6329284DCDD00D79A8BC8D671C00D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 magnet:?xt=urn:btih:2601EF2E47EBE16AC025C325C09D11A2E06FBA1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:2601EF2E47EBE16AC025C325C09D11A2E06FBA1F
 ```bash
 magnet:?xt=urn:btih:A05310289A9C8CD74EB18B2BED219C271C92AF9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:A05310289A9C8CD74EB18B2BED219C271C92AF9A
 magnet:?xt=urn:btih:06279A3B1103B8A8D6205CEBFB108023B27B79FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:06279A3B1103B8A8D6205CEBFB108023B27B79FF
 ```bash
 magnet:?xt=urn:btih:3F56F58E831CA8F4792DA8AA92950E17744B9D40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack seleZen
 magnet:?xt=urn:btih:6172A24447A12FAF04A906F0919BCC0AB03C0824
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:6172A24447A12FAF04A906F0919BCC0AB03C0824
 ```bash
 magnet:?xt=urn:btih:8F506323DFDFAA8D2E04FD6175630877A98DC032
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Atlantis Word Processor 4.4.5.5 Repack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:B002FC982B50C197D2ACD4F7E03CF2B69BB8D60F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:B002FC982B50C197D2ACD4F7E03CF2B69BB8D60F
 ```bash
 magnet:?xt=urn:btih:FFF1922BFBFED83BB22E66EE1309368D3123DEFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ George Vondriska | Создать невозможный стол (2024) WEBRip
 magnet:?xt=urn:btih:334B2F1939CECC59D2A371859DD3A3E92E4DE10B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:334B2F1939CECC59D2A371859DD3A3E92E4DE10B
 ```bash
 magnet:?xt=urn:btih:7B4057FCFEE1CC9AC837335E880139A87883462C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:7B4057FCFEE1CC9AC837335E880139A87883462C
 magnet:?xt=urn:btih:4357522F5726155F79DC8F3B4DE2192939A89FA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:4357522F5726155F79DC8F3B4DE2192939A89FA9
 magnet:?xt=urn:btih:FC5A96BAAA6B5CD278CDC7036637A6A42B7E318D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.7.0/dlc) Repack Decept
 ```bash
 magnet:?xt=urn:btih:FD22EDB58F7B1850685E6E6CE9603339EC5E0553
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

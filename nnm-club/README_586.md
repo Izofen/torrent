@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3FD7CDCC5F5645940D48DC7AF147AE671ACD6EC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Paul McCartney - Pipes Of Peace (1983) Japanese Edition, SHM-CD, Reissue, Remast
 ```bash
 magnet:?xt=urn:btih:8BC6C185057C48BA9D4CD66E1827A4DDF356AF9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Peaceful State: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Ba
 magnet:?xt=urn:btih:28095E03F8C6D65F0F09996DC2E05B6BA07B820E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:28095E03F8C6D65F0F09996DC2E05B6BA07B820E
 ```bash
 magnet:?xt=urn:btih:2D8DFA5655C6EA07C1B67EA45E82FCF8954D4215
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Disc One:
 ```bash
 magnet:?xt=urn:btih:031219CE0043C1F86758339E50FB1975C784BEF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ https://www.qobuz.com/gb-en/album/weirdo-the-rasmus/ck3vaiaz9pzfa
 magnet:?xt=urn:btih:2103AA4EDB1699DD434BE435C4E1F3761ADF7FF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ The Rasmus - Weirdo (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:CAFFECE9FE22429A07A0E838ABA552D97591515C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +220,8 @@ Volbeat - God Of Angels Trust (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy 
 magnet:?xt=urn:btih:4E139A5B116EF36F91F007D06EEE63A3793DE1F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ KIBORG (2025) [Ru/Multi] (20 2.50. 5_31: 0:01) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D0E62D02DDFB059115B696404B91242D1F99893C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:D0E62D02DDFB059115B696404B91242D1F99893C
 magnet:?xt=urn:btih:D89D5259DF7EE6F970D54ACFD0A60C5EF7D3AEBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:D89D5259DF7EE6F970D54ACFD0A60C5EF7D3AEBB
 ```bash
 magnet:?xt=urn:btih:913E54AAB0E08876F11E29746B71FA9498A644D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ Kingston SSD Manager — это приложение, предоставляющ
 magnet:?xt=urn:btih:505B2041E795DEB692201421D3F8E3ED52456DE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ R-Studio Network 9.5 Build 191520 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DC4A83834F8B6641FD66979210444E46887009C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:DC4A83834F8B6641FD66979210444E46887009C1
 magnet:?xt=urn:btih:95CE43CA05A8676283B50621132964ABEEC3F625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ Kaodi - это короткая история о шрамах, которые �
 ```bash
 magnet:?xt=urn:btih:1B140767A757DADAAA742E6CBA8DECC670DAF71E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ Oracle VM VirtualBox является многофункциональным и�
 magnet:?xt=urn:btih:69AF61DEABC11166D5C8F4D525F27888B47B8577
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ Capture One - один из лучших профессиональных кон
 ```bash
 magnet:?xt=urn:btih:DA6085184BB4822C46526FCE4475490631EBAC97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ VCap Downloader (VCapDL) – это универсальное программ�
 magnet:?xt=urn:btih:74B23B03A12A5536B44DBA9C607B5EE4A945E600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:74B23B03A12A5536B44DBA9C607B5EE4A945E600
 ```bash
 magnet:?xt=urn:btih:BC666324B70987C7A43C8263837297916FDBFC1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:BC666324B70987C7A43C8263837297916FDBFC1B
 magnet:?xt=urn:btih:E2D224BC153555826AE5D48ED9A4EF08151B7FED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ Song of The Prairie - это трехмерная фермерская игра.
 ```bash
 magnet:?xt=urn:btih:47705C82FADD90C7F2206773C799154BEACBAF89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ V.A. - 80's Best Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 magnet:?xt=urn:btih:73E33C1B92188AC27A0E508868B66986ACC45DBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:73E33C1B92188AC27A0E508868B66986ACC45DBC
 ```bash
 magnet:?xt=urn:btih:96524AB4B4DA5FCD95C81589AA8B5E43658DF252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:96524AB4B4DA5FCD95C81589AA8B5E43658DF252
 magnet:?xt=urn:btih:E34CA7CF786A8E1247091C84620A724DEC23220A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:E34CA7CF786A8E1247091C84620A724DEC23220A
 ```bash
 magnet:?xt=urn:btih:DE30CFD3805F98FAF94A9ED0F63CEE6FE29787B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:DE30CFD3805F98FAF94A9ED0F63CEE6FE29787B6
 ```bash
 magnet:?xt=urn:btih:B4A0964E7CB328AD6811810D1B9AAB4C33B1293E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

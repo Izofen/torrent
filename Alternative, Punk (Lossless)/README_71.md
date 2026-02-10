@@ -22,6 +22,8 @@ The Homesick - The Big Exercise (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock
 magnet:?xt=urn:btih:6B9A388046B7B0645472A09B34E21F033B7E1E51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Jolly Goods - Slowlife (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:4F802D9BE2D8826B1B1E8B85E5AF5F7E6240582A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Nickelback - Greatest Hits (2012) 2CD [FLAC|Lossless]<Alternative Rock, Post Gru
 magnet:?xt=urn:btih:4F7BFD7284B6F26C2BB8B9C1269E9D2A46247A26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Wolf Parade - Thin Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Altern
 magnet:?xt=urn:btih:7112221A530CBE84C1F4080AD21C36754DF5A6F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ Gemma Ray - Psychogeology (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop, Indie
 ```bash
 magnet:?xt=urn:btih:E49B78EB417D1FFA7ADB3FFD08FE4AEDED00C907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ Muse - Absolution (2003) [FLAC|Lossless]<Alternative Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +208,8 @@ Our Last Night - 5 Альбомов (2004-2012) Дискография [FLAC|Los
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +236,8 @@ The Hold Steady ‎ - Thrashing Thru The Passion (2019) [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:8E4B308FF379A6C9D167E00FF2F041639BF5AAB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +272,8 @@ Agnes Obel - Philharmonics (2010) [FLAC|Lossless]<Piano, Woman Vocal, Indie Rock
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +297,8 @@ Theory of a Deadman - 3 Альбома (2002-2011) [FLAC|Lossless]<Alternative R
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +327,8 @@ Algiers - There Is No Year (2020) [FLAC|Lossless|Web-DL|tracks] <Alternative Roc
 magnet:?xt=urn:btih:89336DCD76CEB5C86C3D8C3598ADB175AB2F3DAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +356,8 @@ magnet:?xt=urn:btih:89336DCD76CEB5C86C3D8C3598ADB175AB2F3DAC
 magnet:?xt=urn:btih:C3AABB84230557A6F2D1A4FC3B996748EBA31FA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +381,8 @@ Nirvana - With The Lights Out (3 × CD, Compilation) (2004) [FLAC|Lossless]<Grun
 ```bash
 magnet:?xt=urn:btih:0897975EEBBDA2B7E3805921ECA219447B8C545B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +417,8 @@ Misstrip - Sibylline (2006) [APE|Lossless]<Alternative Rock, Trip Hop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +445,8 @@ Nada Surf - Never Not Together (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock,
 ```bash
 magnet:?xt=urn:btih:8AF4682CB5E4D39BB6C4775B8A7B09DD8C5ADA05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +481,8 @@ The Pretty Reckless - Light Me Up (2010) Japanese Edition /2011, Interscope Reco
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +515,8 @@ Patti Smith - 14 альбомов (1975-2012) Дискография [WAVPack/FL
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +551,8 @@ Nina Karlsson - I Deny (2010) [FLAC|Lossless]<Alternative Jazz, Indie, Electroni
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +585,8 @@ Bad Religion - True North (2013) [FLAC|Lossless]<Punk Rock>
 ```bash
 magnet:?xt=urn:btih:A9D80B4BBA0752D8B6204E38B064FF9D9029EA6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +621,8 @@ Hollywood Undead - Notes From The Underground (Best Buy Deluxe Edition) (2013) [
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +656,8 @@ Dropkick Murphys - Signed And Sealed in Blood (2013) [FLAC|Lossless]<Celtic Punk
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +684,8 @@ Twenty One Pilots - TOPxMM (The Mutemath Sessions) EP (2016) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:FDABA3A5218EE7597128403A5D5B60594031B09C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +714,8 @@ Bobina - Targets (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hardcor
 magnet:?xt=urn:btih:8091760E74A41776AD694D82961DC53C82A1E391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +742,8 @@ Beach Slang - The Deadbeat Bang of Heartbreak City (2020) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:8A97E9DC40C61D52740E294C517A960BA2ECB593
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -724,6 +772,8 @@ Field Music - Making a New World (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Roc
 magnet:?xt=urn:btih:E06D73EB1DC8530F7423AD077EA548ECA1F7B71F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -750,6 +800,8 @@ The Big Moon - Walking Like We Do (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Ro
 ```bash
 magnet:?xt=urn:btih:B86BEA8ABF1FB4402FFA27C06ECB3E0DF934FFA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:79CD588490D0670241E26F16BE8B7F6B8B3DB647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 magnet:?xt=urn:btih:BF0BECEA25FBDB4BFFC7E52EB476F4D1A72C5226
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Omni Recover для macOS позволяет восстанавливать уд
 magnet:?xt=urn:btih:C98160E4C219E2AEC90B39FF880F906F5F6A38BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ DesktopClock3D - простые, но в то же время красивые 3
 ```bash
 magnet:?xt=urn:btih:238DFA9E9F320A1FD28C5645899029AA4B0D2913
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Artstudio Pro 4.0.8 [En]
 magnet:?xt=urn:btih:F3B496917A3BD50A032D5375C6A1825E71D76A56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Movavi Video Suite 2022 - все для монтажа видео на macOS: с
 ```bash
 magnet:?xt=urn:btih:FBEFE5DB25CBD85BEC2E236ABF15B67B5BCE3CBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ EXOVERB предлагает 50 реалистично звучащих акус
 magnet:?xt=urn:btih:8702D5264A6CDEF541B84F6F2F12B61378F44885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:8702D5264A6CDEF541B84F6F2F12B61378F44885
 ```bash
 magnet:?xt=urn:btih:D23DA5192D45286D7C1AA5DE4DA06BC0C92309AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ PDF Search - это утилита, которая имеет революцио
 magnet:?xt=urn:btih:860B5F3E996311EF154FFF9564980594BF820AB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Media Player Classic - Black Edition (MPC-BE) – универсальный п�
 ```bash
 magnet:?xt=urn:btih:336C3F70C140CD2D7A8CC55AF4F9F0D32EF8726E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ MEmu позволит играть в любимые игры на персон�
 magnet:?xt=urn:btih:7112F680DD2A86801021FAB4706CDE86A10CCF00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Perfectly Clear WorkBench позволяет всего за пару клико
 magnet:?xt=urn:btih:8A67092F7D1BC1B9509B36E5D651027027412623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Multitouch 1.27.3 [En]
 ```bash
 magnet:?xt=urn:btih:96CC80EEC757129BF039C47248861755EAEFE8A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Network & Battery 12.2.3 [Multi]
 magnet:?xt=urn:btih:1A847D42EB59D3DB93B02BE1C6B6D75B902F6758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Opera 97.0.4719.43 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:9256BAB5F3A59C9B1A757460DD0F5D2E307A6B39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ TuneIn объединяет спортивные события, музыку, �
 magnet:?xt=urn:btih:E028254E9CBC94A685D4E35E3D5415687BACB711
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ ImageMeter Pro - Фотоизмерение - отличное приложен�
 ```bash
 magnet:?xt=urn:btih:096E15E2CB563CA19D4F3CB02A3C77FD2482B5AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 magnet:?xt=urn:btih:2FA0ED340AEF6DDACEDC7A4A4D741EE7AAF39586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Keep It 1.11.13 [Multi]
 ```bash
 magnet:?xt=urn:btih:B5B84855C98AB1EA4A92E930E9F0D52B12B2DD44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ PatterNodes - хорошо продуманный и настраиваемый 
 ```bash
 magnet:?xt=urn:btih:65825226C07B1F51330EE5961E78D0D5028117CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ MSI Kombustor поддерживает тестирование (   Читат�
 magnet:?xt=urn:btih:445E0B58CFE3DE7FCCB0A04AA4DE483236B889C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Checksum Thing - это приложение строки меню, которо
 ```bash
 magnet:?xt=urn:btih:6EF8942F8DEE2D56FEB48B8CD71EC39C1778E8D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ Feeder - это полнофункциональное приложение дл
 magnet:?xt=urn:btih:00CFD12EA698C8D0F8D368F32DA26739AC607481
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Icecream Photo Editor - лучший бесплатный фоторедакто
 ```bash
 magnet:?xt=urn:btih:BDCFACBF8ECB1C721CE28E27FF9AC3360B23324B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Imagine - это бесплатный просмотрщик изображен�
 magnet:?xt=urn:btih:E005CC3A5A386388F741AF1A5D978FEA8F9C72C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Reverso Translation Dictionary / Переводной словарь Reverso - �
 ```bash
 magnet:?xt=urn:btih:61F003CC252735F55F5F401884E448524B49561F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

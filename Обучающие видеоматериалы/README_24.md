@@ -19,6 +19,8 @@ Udemy, Nick Stanchev | Unreal Engine 5 - The Complete Automotive Cinematic Cours
 magnet:?xt=urn:btih:043F927B73E7A9A49CC6E1BEC49625E2DF276AC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:043F927B73E7A9A49CC6E1BEC49625E2DF276AC6
 magnet:?xt=urn:btih:1A72A18769F9B27E6250EB0A6B6F175E2BEBF521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ fxphd, Liam Whitehouse | Automotive Cinematography in Unreal Engine, Part 1 (202
 ```bash
 magnet:?xt=urn:btih:B771DC6259ED065A5C4CC75791773ED29D48D57C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ DoubleJump Academy, Post Processed | Unreal Engine Complete Automotive Mastercla
 magnet:?xt=urn:btih:65B94A0B9F2F134DE24F782A18ABE4246C1633BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:65B94A0B9F2F134DE24F782A18ABE4246C1633BC
 ```bash
 magnet:?xt=urn:btih:097406D71DCAA46DB8B2718C519F623C6F8C7EB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Udemy, 3D Tudor | Blender Basics Geometry Node Brick Walls Workshop (2024) PCRec
 ```bash
 magnet:?xt=urn:btih:964B22678947256865D2CC7E9A108CDCBF44C1E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:964B22678947256865D2CC7E9A108CDCBF44C1E9
 magnet:?xt=urn:btih:DB95CD2109180BEDE7307DC496E24631F64CD0F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ ArtStation, Milad Kambari | Substance Painter Master Course (2024) PCRec [EN]
 magnet:?xt=urn:btih:3B97933F30AC2B3610304B719297C16B250FAB1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:3B97933F30AC2B3610304B719297C16B250FAB1B
 ```bash
 magnet:?xt=urn:btih:7C6D6AE0EEC50C3CB9178C1AA4EA8E646FF53339
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:7C6D6AE0EEC50C3CB9178C1AA4EA8E646FF53339
 magnet:?xt=urn:btih:257B6293E74FEE13691FEF2E1E0BD720D51EBB1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:257B6293E74FEE13691FEF2E1E0BD720D51EBB1A
 ```bash
 magnet:?xt=urn:btih:67FE0D6F4996D3BDBEB7315F2CEC169DA17DFE92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:67FE0D6F4996D3BDBEB7315F2CEC169DA17DFE92
 magnet:?xt=urn:btih:CE4ABBB8C82827AC2DA9712F930C3929AEF4CCFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:CE4ABBB8C82827AC2DA9712F930C3929AEF4CCFD
 ```bash
 magnet:?xt=urn:btih:1D1CEAC5EF5F59D7D3E5229D4358DE181B8CE161
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:1D1CEAC5EF5F59D7D3E5229D4358DE181B8CE161
 magnet:?xt=urn:btih:3E9A9DCDE700DA7192CD1079170D636D3558DC97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:3E9A9DCDE700DA7192CD1079170D636D3558DC97
 ```bash
 magnet:?xt=urn:btih:717D32CA8C6D4393AAA3DD3B5E12F8E7DB0F951E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ Linux — основная операционная система для сер
 magnet:?xt=urn:btih:64DC5196F5758837C33DDF14CC777771690B829F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ CORS Academy, Илья Отькало | Мини-курс «Начинающий
 ```bash
 magnet:?xt=urn:btih:E6D544AA662CE462BA5E8127B89C08A7778318E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ magnet:?xt=urn:btih:E6D544AA662CE462BA5E8127B89C08A7778318E5
 magnet:?xt=urn:btih:E56E8E78C9878F03ED867F2119BD61D23E7957C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ magnet:?xt=urn:btih:E56E8E78C9878F03ED867F2119BD61D23E7957C4
 magnet:?xt=urn:btih:0E7A031F5219386530A78AE00C68F364E588F7AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +548,8 @@ magnet:?xt=urn:btih:0E7A031F5219386530A78AE00C68F364E588F7AB
 ```bash
 magnet:?xt=urn:btih:958644F477B6C74367EF3378B5E12ABD8359CF5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +578,8 @@ Network for Everyone (NFE, N4E) | Open Shortest Path First (2024) WEB-DL [AD] [R
 magnet:?xt=urn:btih:DD3679A64A6206C2C9A7C00B23A0639ACE15BA60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ Udemy, Алексей Леонтьев | Магия сводных таблиц 
 ```bash
 magnet:?xt=urn:btih:0CF6E010CEDF09C81A520F9EEDE4C840E706C59E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +634,8 @@ CSS может быть забавным. Я обещаю.
 magnet:?xt=urn:btih:C2F689363D3CF5366E5FDF3CAD0EF12538CB3F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +663,8 @@ magnet:?xt=urn:btih:C2F689363D3CF5366E5FDF3CAD0EF12538CB3F32
 magnet:?xt=urn:btih:43D224101A5AE47D6517D2A1057D8FD08AB780C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +690,8 @@ Creative Shrimp, Gleb Alexandrov, Aidy Burrows | Nebula: Learn Volumes, GeoNodes
 magnet:?xt=urn:btih:9DA7292BB634C4E5DFE5B18A2414110FF4AD7656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +716,8 @@ Profileschool, Дмитрий Ларионов | Avid Media Composer. Продв
 ```bash
 magnet:?xt=urn:btih:1FF4CEEEC886B1BE41759F19AADF9E05C2B1D281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

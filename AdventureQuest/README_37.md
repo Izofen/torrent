@@ -19,6 +19,8 @@ An English Haunting - атмосферная приключенческая иг
 magnet:?xt=urn:btih:4E87C43C2DFE822BF915CF40F7788FD5B1457D79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Scholar's Mate бросает вас в огонь. Стратегия и соо
 ```bash
 magnet:?xt=urn:btih:41F2F33689C57F7D3C246CE2650A8ADB12A2419B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Wild at Heart рассказывает про двух детей, кото�
 magnet:?xt=urn:btih:394DCDCF7909E5CA205139A71FFBBE8536BF3336
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Three Goblin Wobblin – гоблинам не разрешают посещат
 ```bash
 magnet:?xt=urn:btih:157CEB5AADF32A80EF2D671F539B136D985A4F3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NUKITASHI 2 возвращает игроков на место Дзюнносу
 magnet:?xt=urn:btih:AD21885E2FB7CA5A1319856DA7F7D0343C840790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Alone in the Dark (2024) [Ru/Multi] (1.0.5b/dlc) License GOG [Digital Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:6F62A8BBCB3258D3131B1B56417C01E182EFBF94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Legend of Crystal Valley / Легенда хрустальной долин�
 magnet:?xt=urn:btih:B45BB8EEC62C056664F9C68D974508A0F528B7A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Lumnis – что может быть лучше сочетаний жанра �
 ```bash
 magnet:?xt=urn:btih:7FF02D9781A2BDEA3C29D8510E2374FFA289D10E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Medium – психологический хоррор с видом от т
 magnet:?xt=urn:btih:67D3CC24026D34013F91BA06DCA2052113467E36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ INDIKA - игра от третьего лица с историей о стра
 ```bash
 magnet:?xt=urn:btih:31773611A6EAEF61E65EA75FA8A6633926CB1412
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Invincible представляет собой приключенческу�
 magnet:?xt=urn:btih:DBA9D8DA454A93DA4F6492B9316764AB3104EE79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ DETECTIVE - Minerva case – постарайтесь раскрыть весь�
 ```bash
 magnet:?xt=urn:btih:A89B32FC96EDA3681313A423508A184A4A39972D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Tamarindos Freaking Dinner – это невероятно яркое, мест�
 magnet:?xt=urn:btih:B046486B7C03D3987E7C68D4ED3F7E99BB5BFC2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Isles of Sea and Sky – стратегическое приключение с 
 ```bash
 magnet:?xt=urn:btih:0B2CF8C617AFF0B66E5CFCFE9293DD0ADCB007F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Sisters: The Last Day of Summer рассказывает историю моло
 magnet:?xt=urn:btih:E17618169AC52E242E958666F0282AD14E24914F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Duck Detective: The Secret Salami (2024) [En] (1.0.11) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D6A551CBE90AABA73EFFC06EBAD8F2DB60C69259
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Violet погружает вас в замок с привидениями, ат
 magnet:?xt=urn:btih:AED4027227063548234CAE5DE3EAF72A781A5F42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Venatrix (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3AF72B20611B7890B60E34D7A28FB688A49CBEF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Lesson Learned – вы, будучи школьником, переносите
 magnet:?xt=urn:btih:2BE9096D050D633B4DD34DD0B7FDB26F554F84C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Echoes (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:43996294F446E1AF560D50D6063B02BD6D29F091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Back Fire – окунитесь с головой в полноценное п�
 magnet:?xt=urn:btih:15F336B72C449AD6434B10B8D6397F2599F3DA07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Harvest Hunt бросает вас в суровый мир, где каждый
 ```bash
 magnet:?xt=urn:btih:7220C4FFACB8C4E7306E8DF6B1FA4A7AA79C8714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Assassin's Creed 4: Black Flag - стелс-экшен с видом от тре
 magnet:?xt=urn:btih:F43D07EB35FD83FA0E446C8432A501331E82A05B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Starstruck Vagabond начинается с рассказа о том, как �
 ```bash
 magnet:?xt=urn:btih:DED1F5C293D6E91C376F0CD0991E1429BB6EE339
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Pre Dusk - мрачный двухмерный экшен-платформер �
 magnet:?xt=urn:btih:F577BEBB9B1EE47B8C73D9BCD1FADE6F61082E53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Imaginary Friend Asylum – это самый настоящий психоло�
 ```bash
 magnet:?xt=urn:btih:BD692BCF2DA23882E080CD71459FDF4C3A73063A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

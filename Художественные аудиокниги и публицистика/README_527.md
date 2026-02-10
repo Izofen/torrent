@@ -1,3 +1,30 @@
+###  Публикация: 1579120   (340648) от 25.09.2022
+
+Руслан Рубцов | Система подземелий (Книга 1). Эволюция монстра (2022) [MP3, Радион Нечаев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_340648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эволюция монстра – фантастический роман Руслана Рубцова, первая книга цикла «Система подземелий», жанр РеалРПГ, боевое фэнтези, городское фэнтези. Если бы заранее знал, чем обернётся рейд в E-ранговые врата, ни за что бы не согласился пойти сюда вновь! "Я не хочу умирать…" – такой была последняя мысль, когда мою плоть живьём раздирали монстры…
+Мне оставалось (   Читать дальше...   )Жанр: Боевое фэнтези, Городское фэнтезиПродолжительность: 07:15:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46191CCEC91FE4AF8814C4F253C4A64869A5A4BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579115   (340663) от 25.09.2022
 
 Aгата Фишер, Антон Войтов | Хрономаг (Книга 1). Хрономаг (2022) [MP3, Алексей Семёнов]
@@ -20,6 +47,8 @@ Aгата Фишер, Антон Войтов | Хрономаг (Книга 1).
 ```bash
 magnet:?xt=urn:btih:D7E98685DB5D2498552215E7E59FA1B2332FB0DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:D7E98685DB5D2498552215E7E59FA1B2332FB0DD
 magnet:?xt=urn:btih:CA4BE4100D693610E832CD8590AC9E80A2727004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:CA4BE4100D693610E832CD8590AC9E80A2727004
 ```bash
 magnet:?xt=urn:btih:95B4B48FDC2FD3E18541FFDDF7F55BE27B127D36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +128,8 @@ magnet:?xt=urn:btih:95B4B48FDC2FD3E18541FFDDF7F55BE27B127D36
 magnet:?xt=urn:btih:EE968398E076F28FD6B4752816CE7A38B48C4F48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:EE968398E076F28FD6B4752816CE7A38B48C4F48
 ```bash
 magnet:?xt=urn:btih:834CBC4528BA3A5608B475DCC911FB99775EB70C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +183,8 @@ magnet:?xt=urn:btih:834CBC4528BA3A5608B475DCC911FB99775EB70C
 magnet:?xt=urn:btih:D2B7788F295D6D0A8E62F0193CEB35BD4BE8D622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +208,8 @@ magnet:?xt=urn:btih:D2B7788F295D6D0A8E62F0193CEB35BD4BE8D622
 ```bash
 magnet:?xt=urn:btih:6D18FA439062AFF1E494A84DD38659327BB78150
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +235,8 @@ magnet:?xt=urn:btih:6D18FA439062AFF1E494A84DD38659327BB78150
 magnet:?xt=urn:btih:6C5B0A6ECF34B75AAA926EC5D436FC2E5B2A291C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +260,8 @@ magnet:?xt=urn:btih:6C5B0A6ECF34B75AAA926EC5D436FC2E5B2A291C
 ```bash
 magnet:?xt=urn:btih:66DC236D9331A06EDA15E19E6F11ABCD31411702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +287,8 @@ magnet:?xt=urn:btih:66DC236D9331A06EDA15E19E6F11ABCD31411702
 magnet:?xt=urn:btih:672C67F8D15A5B49848D61EAE398E1680898EC6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +312,8 @@ magnet:?xt=urn:btih:672C67F8D15A5B49848D61EAE398E1680898EC6F
 ```bash
 magnet:?xt=urn:btih:4D99FB28944F0B48BD21B02A1817321F96BD90AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +340,8 @@ magnet:?xt=urn:btih:4D99FB28944F0B48BD21B02A1817321F96BD90AA
 magnet:?xt=urn:btih:362EDF1B8128BED9D33C8FACB1394211883A6A5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +367,8 @@ magnet:?xt=urn:btih:362EDF1B8128BED9D33C8FACB1394211883A6A5A
 magnet:?xt=urn:btih:9CD30023F3B4645228178608DB33D517C16421D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +392,8 @@ magnet:?xt=urn:btih:9CD30023F3B4645228178608DB33D517C16421D8
 ```bash
 magnet:?xt=urn:btih:64830A864B8FC19B361F85C70D235D192616FC4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +419,8 @@ magnet:?xt=urn:btih:64830A864B8FC19B361F85C70D235D192616FC4D
 magnet:?xt=urn:btih:3E45856DA68896905F0CB6CD03048AFB7821BEDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +445,8 @@ magnet:?xt=urn:btih:3E45856DA68896905F0CB6CD03048AFB7821BEDE
 magnet:?xt=urn:btih:EA0ABF20EA8482EE382A6B1BED4E3FF53F0B7472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +470,8 @@ magnet:?xt=urn:btih:EA0ABF20EA8482EE382A6B1BED4E3FF53F0B7472
 ```bash
 magnet:?xt=urn:btih:31A7ADE4DC5E3262FB28F52E8AA454D5F38F790D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +498,8 @@ magnet:?xt=urn:btih:31A7ADE4DC5E3262FB28F52E8AA454D5F38F790D
 magnet:?xt=urn:btih:6C7F650783516B387847DFECDEE3DBEC8F29E588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +523,8 @@ magnet:?xt=urn:btih:6C7F650783516B387847DFECDEE3DBEC8F29E588
 ```bash
 magnet:?xt=urn:btih:2A5010AF9E9052C46609B1BFBE63E3CF23485E54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +550,8 @@ magnet:?xt=urn:btih:2A5010AF9E9052C46609B1BFBE63E3CF23485E54
 magnet:?xt=urn:btih:9A82CE29E67BE5E31BB3E47BD233B773E7B24743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +575,8 @@ magnet:?xt=urn:btih:9A82CE29E67BE5E31BB3E47BD233B773E7B24743
 ```bash
 magnet:?xt=urn:btih:30E42E365A78ACE5A14673BF0C5F13DFE7B1989F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +604,8 @@ magnet:?xt=urn:btih:30E42E365A78ACE5A14673BF0C5F13DFE7B1989F
 magnet:?xt=urn:btih:E8950ED17D9E4621B96509E821C61F31FC9B3583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +629,8 @@ magnet:?xt=urn:btih:E8950ED17D9E4621B96509E821C61F31FC9B3583
 ```bash
 magnet:?xt=urn:btih:D181634D7206239F8B05B0B5777F55786714C402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +656,8 @@ magnet:?xt=urn:btih:D181634D7206239F8B05B0B5777F55786714C402
 magnet:?xt=urn:btih:8ACA9B358B03B409D155A4EC4A0404B1E380D10B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,29 +682,7 @@ magnet:?xt=urn:btih:8ACA9B358B03B409D155A4EC4A0404B1E380D10B
 magnet:?xt=urn:btih:C28E63FF67E11790E266DDD94372A9B880D59B85
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180232   (342117) от 03.11.2017
-
-Наталья Косухина | Академия создателей, или Шуры-муры в жанре фэнтези (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_342117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что вы знаете о богах? На самом деле это выпускники Академии создателей, каждый со своей специализацией. Создать галактику? Запросто! Устроить Армагеддон? Не вопрос! Вы спросите: какое я имею к этому отношение? Да все просто: я студентка этой самой академии, а еще нежеланный ребенок и ходячая неприятность. В этом я в очередной раз убедилась, когда жизнь столкнула (   Читать дальше...   )Жанр: Романтическое фэнтезиПродолжительность: 09:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D142DF9EB1EA590713986D00AA95A65C24139634
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

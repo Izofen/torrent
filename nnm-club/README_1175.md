@@ -19,6 +19,8 @@ Revo Uninstaller Pro 5.3.5 RePack (& Portable) by Dodakaedr [Multi/Ru]
 magnet:?xt=urn:btih:426DFDE3D69427428593EE6D106EEC556F115D0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Wingspan / Крылья (2020) [Ru/Multi] (1.6.1065/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:D41AE8A4A135AB02DD9391D323B0316063E72208
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:D41AE8A4A135AB02DD9391D323B0316063E72208
 magnet:?xt=urn:btih:A99583100FB8362E74529394A406CA21FE80DDD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:A99583100FB8362E74529394A406CA21FE80DDD3
 ```bash
 magnet:?xt=urn:btih:35D767F2B34948D98EC81BA2A5F394649F4A612B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Gif Me! – это лучший способ сделать из коротко�
 ```bash
 magnet:?xt=urn:btih:47DBE2C31A7FEC81A204DC990381D427A2B4F158
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Secret Service - Spotlight (1988) [AAC|320 Kbps] <Electronic, Pop, Synth-pop>
 magnet:?xt=urn:btih:B20CDCA059C88E34120312E8FA26EB2941E86752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ VA - 40 Songs Rock Workout (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:813FCD62FADA1D5758252A3830B6904B4DF92880
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 ```bash
 magnet:?xt=urn:btih:E7A3C33452ADD1F6C45B78164316712BE78F397A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ KineMaster - Video Editor & Maker v7.5.16.34132.GP Mod by Shadow_Patcher [Ru/Mul
 magnet:?xt=urn:btih:C418CDC913E602A262A0A661409DAF2DC8447477
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:C418CDC913E602A262A0A661409DAF2DC8447477
 ```bash
 magnet:?xt=urn:btih:2C0258AD2E02672D91899BA5BE9E8A5113BADFC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ VA - 60s Memories (2025) [MP3|320 Kbps] <Pop, Rock, Jazz>
 magnet:?xt=urn:btih:D8F056C24E5CCD467732FBD303153AE999583B2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:D8F056C24E5CCD467732FBD303153AE999583B2D
 ```bash
 magnet:?xt=urn:btih:EAB52A6D23B7321BBD2352E503B067AA92144EBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ VA - 50s Memories (2025) [MP3|320 Kbps] <Pop, Rock, Jazz>
 magnet:?xt=urn:btih:E2C9D24970132359D3CFB956F6899F14D9FF9A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ The Flirts - The Best Of The Flirts (1991) [AAC|320 Kbps] <Electronic, Pop, Hi N
 magnet:?xt=urn:btih:99C383E9A0E1D0E9206F8E5F73610A2F6FB9A8E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:99C383E9A0E1D0E9206F8E5F73610A2F6FB9A8E8
 magnet:?xt=urn:btih:700042FB1D71D3B42CB2D7D9031380B4ABAF1B95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:700042FB1D71D3B42CB2D7D9031380B4ABAF1B95
 ```bash
 magnet:?xt=urn:btih:D213FD8D299AC3C5ED582E5AA628E8F16FFC8EFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:D213FD8D299AC3C5ED582E5AA628E8F16FFC8EFB
 magnet:?xt=urn:btih:F9FE283A1AD00033BA265FD95B8AC4EA2E087AF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ Papik and The Soultrend Orchestra - Now Imagine (2025) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:699FA954591007363120694BAD5257E299E070F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ VA - Under Pro Best 2024 (2025) [MP3|320 Kbps] <Progressive House, Melodic House
 magnet:?xt=urn:btih:4C7292587C4B7A7E84C99FCB2ABA0F76C278C413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ VA - Selected Trance Music 2025 (2025) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:2C2B05F60CC0FFB29D3DD32D151B1302FD69CEDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:2C2B05F60CC0FFB29D3DD32D151B1302FD69CEDA
 magnet:?xt=urn:btih:40C477014EDF342B9ED9A0EA04E1B90DED60D051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ Digiarty AIArty Image Matting — это инновационное програ
 ```bash
 magnet:?xt=urn:btih:46A111CD0362E954C9DC7A3F19ECDAE5DDA566CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:46A111CD0362E954C9DC7A3F19ECDAE5DDA566CF
 magnet:?xt=urn:btih:01FF98B8DEA6B7FD626B0FAA6EF5AEE993A9F954
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ Status One (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5050D3254EAA50BAE7A56C95743E28C83A3F2947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ Revo Uninstaller Pro 5.3.5 [Multi/Ru]
 magnet:?xt=urn:btih:DE79543948C8AB92FAD4C76F0E79EAEA00B10418
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:1ACB6EF057C9CB07B784A8ABAA01D80C6F00BA28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

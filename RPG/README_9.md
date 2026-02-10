@@ -19,6 +19,8 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack FitGirl [Deluxe Editio
 magnet:?xt=urn:btih:9B4FC9B1C394D680EE3F08CF846184C357D875D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Artifact Seeker - это 3D-игра в жанре Roguelike Survivor. Игра 
 ```bash
 magnet:?xt=urn:btih:E11FD1B2E8C82187CE38CC82D21E2DA04798CE2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (7.2.0.1/dlc) Repack seleZen 
 magnet:?xt=urn:btih:209F3C04DEA2C9B34089F0EDFD411CD9A23ED16E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Fuga: Melodies of Steel 3 разворачивает историю отчаян
 ```bash
 magnet:?xt=urn:btih:DE7F5A5F453B6FC6E9042C13C8D07BEFC81BF29D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Immortal Hunters (2025) [Ru/Multi] (0.1.1681.9f4ce919) Repack Let'sРlay
 magnet:?xt=urn:btih:3D1730940511A7FD96473F90BD73CCB6C84BEF75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Dark Souls II (2): Scholar of the First Sin (2015) [Ru/Multi] (1.03/dlc) Repack 
 ```bash
 magnet:?xt=urn:btih:3B851B4FEE4F628A8524A6B8B90A8511AFBAA9E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Axis Unseen - это игра в жанре хэви-метал хоррор
 magnet:?xt=urn:btih:08923B57E9E4337E79325C630228C9139DC7FF0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ King Arthur: Legion IX - это пошаговая RPG-стратегия, де�
 ```bash
 magnet:?xt=urn:btih:B97BC737E17F2ADAE44BA121014AACA844414253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.1/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:8F398EAAAA473BAB1F4C4F2586024F84321E399A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Core Keeper (2022) [Ru/Multi] (1.1.2.1) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:B731E0123F372E37BE499B50D8AAC0DB9C4B09F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Skelethrone: The Chronicles of Ericona (2024) [Ru/Multi] (1.5.5.0/dlc) Repack Le
 magnet:?xt=urn:btih:32920CBF2E10398A903E1EE290F1865896224E52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Zoria: Age of Shattering – тактическая групповая стра�
 ```bash
 magnet:?xt=urn:btih:9C71EDA01258EBB12FA1AF3A85C26B463E43AC81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Fabled Lands - ролевое приключение в духе старой ш
 magnet:?xt=urn:btih:DE7FCC97DC0D566DF1D454289ECCE3FE13B6817B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ DRAGON QUEST III HD-2D Remake - это потрясающая реинкарна
 ```bash
 magnet:?xt=urn:btih:E794B080930CB823F7D7EF1EDDECAA6FA3BC6FAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Survive the Fall (2025) [Ru/Multi] (1.0.1.2364/dlc) Repack FitGirl [Ultimate Edi
 magnet:?xt=urn:btih:5748A060A6CE55DFD3B48168125A05B7143036FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Fable Anniversary - это ремейк одной из самых продав�
 ```bash
 magnet:?xt=urn:btih:FA1D1F0B9A6E946EE39B25F9A361763F97791DFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Twilight Wars (2025) [Ru/Multi] (1.0.0) Repack seleZen
 magnet:?xt=urn:btih:593CCB3D36FBE01A065CB052A4F4E483D47ADDE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.0/dlc) Repack FitGirl [Su
 ```bash
 magnet:?xt=urn:btih:D2A36B3613AE6AEF7E782887577B31726C60C6E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Sea of Stars - динамичное ролевое приключение, ра�
 magnet:?xt=urn:btih:78FD4EB75E1C2DA72804C89B530017FF41410D82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Survive the Fall (2025) [Ru/Multi] (1.0.1.2364/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:F1D8021FC7ED04EB6FC7D794FF314ECFC96F603C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ FANTASIAN Neo Dimension (2024) [Multi] (29100132/dlc) Scene Rune
 magnet:?xt=urn:btih:A330B166416C2E304C8AC5BF6162093C38445F4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Dwarven Realms (2022) [Ru/Multi] (1.4.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:24F476EE65D26A24BF2EFD7CAB00D9FFF8FDC68C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Ai Limit (2025) [Ru/Multi] (1.0.022/dlc) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:57BCBBE9571B3398EAB53E96067990C780BCF53D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Tales & Tactics – перед вами классический автобат�
 ```bash
 magnet:?xt=urn:btih:B0871D60435E24B839519C118156A3303FA799E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Zoria: Age of Shattering (2024) [Ru/Multi] (1.1.8/dlc) Repack Let'sРlay [Deluxe
 magnet:?xt=urn:btih:528C4582D97165D570896D6A8BCF1FF978997037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Dark Souls: Remastered - это переиздание самой первой �
 ```bash
 magnet:?xt=urn:btih:BCB5FF454320782EDE1883579B9B67B055BF7C30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

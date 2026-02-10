@@ -1,3 +1,29 @@
+###  Публикация: 1558910   (528792) от 22.06.2022
+
+Второй фронт. Лучше поздно, чем никогда (2014) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528792.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 июня 1944 года - день высадки союзных войск в Нормандии и открытия второго фронта против армии фашистской Германии. Фильм – рассказ не только о самой десантной операции, но и предшествующих событиях – политических и военных, одни из которых мешали, а другие способствовали открытию второго фронта.Производство: Россия, т/к "Звезда"Жанр: документальный, историяРежиссер: Сергей НейлауЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFFBD0ED8D6F335E2EC7B8A6404117931CA29453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558760   (528806) от 22.06.2022
 
 Дикие люди. Эфиопия / Where the Wild Men Are (2019) HDTV [H.264/1080i]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:4AF6A12AE2AEC22863A1610B300695096CEF1F7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:4AF6A12AE2AEC22863A1610B300695096CEF1F7F
 magnet:?xt=urn:btih:72D169EEB719332A7F7DA76412A76F0B0B947DA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:72D169EEB719332A7F7DA76412A76F0B0B947DA8
 ```bash
 magnet:?xt=urn:btih:396A003675824C468E40F9F3BA51100F13198384
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:396A003675824C468E40F9F3BA51100F13198384
 magnet:?xt=urn:btih:1A9ACDE88A448BA42783A98048A10B9BE31630B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:1A9ACDE88A448BA42783A98048A10B9BE31630B7
 ```bash
 magnet:?xt=urn:btih:3F1055C6FB3350D0A28288674F8FC5DEF0689191
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:3F1055C6FB3350D0A28288674F8FC5DEF0689191
 magnet:?xt=urn:btih:9FDFC4E50AB63955B65DE1BB718DD717492B1012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:9FDFC4E50AB63955B65DE1BB718DD717492B1012
 magnet:?xt=urn:btih:41BE5DD6F244C48DD763935E3B0DAD1DE86701A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +226,8 @@ magnet:?xt=urn:btih:41BE5DD6F244C48DD763935E3B0DAD1DE86701A1
 ```bash
 magnet:?xt=urn:btih:D54D112394DA16EB7D19CB3E4676385C704AB3F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:D54D112394DA16EB7D19CB3E4676385C704AB3F2
 magnet:?xt=urn:btih:AC79AE21CF96B9BB59792413C5B117D515080234
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:AC79AE21CF96B9BB59792413C5B117D515080234
 ```bash
 magnet:?xt=urn:btih:F2BA6EED4694E08004839B3B4D270D3C1E3271A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:F2BA6EED4694E08004839B3B4D270D3C1E3271A5
 magnet:?xt=urn:btih:E9B8BF6613A12EF272ABA733032837C4D4DACFFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:E9B8BF6613A12EF272ABA733032837C4D4DACFFB
 ```bash
 magnet:?xt=urn:btih:7BD487C9B957155960DF33491F247E16FEA1CCC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:7BD487C9B957155960DF33491F247E16FEA1CCC7
 magnet:?xt=urn:btih:16A03CDE98494A1F64763381BCE847C954E21828
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:16A03CDE98494A1F64763381BCE847C954E21828
 ```bash
 magnet:?xt=urn:btih:1EA1FD92798515CB0F6FD47C3FA49E2FFF37410C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:1EA1FD92798515CB0F6FD47C3FA49E2FFF37410C
 magnet:?xt=urn:btih:BEF38222275182AFAECE9E7048C0CFBB0AD0DDA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:BEF38222275182AFAECE9E7048C0CFBB0AD0DDA6
 ```bash
 magnet:?xt=urn:btih:15C6078AEA501CFCA12B5E7DCD69EC614611E88C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:15C6078AEA501CFCA12B5E7DCD69EC614611E88C
 magnet:?xt=urn:btih:FCBF0A431B1A2E6161A536167999E9CB39B25733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:FCBF0A431B1A2E6161A536167999E9CB39B25733
 ```bash
 magnet:?xt=urn:btih:895023343D7E552D905B7BC741F5B69F5330BA64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:895023343D7E552D905B7BC741F5B69F5330BA64
 magnet:?xt=urn:btih:373BA55D21EAD71DB1C900E61AD2B22E0FCB907C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:373BA55D21EAD71DB1C900E61AD2B22E0FCB907C
 ```bash
 magnet:?xt=urn:btih:13266EAAA33865C888A6F2E271CA082442275DBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:13266EAAA33865C888A6F2E271CA082442275DBB
 magnet:?xt=urn:btih:482505ED8192F339E7359DB0BA46341C9331C77C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:482505ED8192F339E7359DB0BA46341C9331C77C
 ```bash
 magnet:?xt=urn:btih:87BC72003518999C4CD49C912E228E54B439C6E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:87BC72003518999C4CD49C912E228E54B439C6E5
 magnet:?xt=urn:btih:7AD641DF2D2685C42E452CBDAF577598C653D75B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:7AD641DF2D2685C42E452CBDAF577598C653D75B
 ```bash
 magnet:?xt=urn:btih:CB149A27633F93A3F7B8B6CA077EF9BE319B9D4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:CB149A27633F93A3F7B8B6CA077EF9BE319B9D4A
 magnet:?xt=urn:btih:CC9EA54317CB6BF096D6879EE36F6686B1E9687F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051500   (530421) от 12.09.2016
-
-Время "Ч": Чернобыль. 30 лет (2016) TVRip (серии 1-9 из 9)
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530421.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеканал «Время» представляет новый документальный проект «Время «Ч»: Чернобыль. 30 лет». Этот фильм — дань памяти, дань уважения всем и каждому, кого коснулась эта катастрофа. 26 апреля 1986 года на Чернобыльской АЭС произошла крупнейшая авария. Через семь месяцев, к 30 ноября 1986 года объект «укрытие», известный как саркофаг, был сдан. В устранении последствий (   Читать дальше...   )Телекомпания: Россия, ВремяЖанр: ДокументальныйПродолжительность: ~00:28:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E915B9A13291CCC48169C0F0F097E0716A22539D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

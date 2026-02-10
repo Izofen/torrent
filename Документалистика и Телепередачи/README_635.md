@@ -1,3 +1,29 @@
+###  Публикация: 1498654   (851143) от 30.09.2021
+
+Остров Крым (2014) HDTVRip [H.265/1080p-LQ] [HDR, 10-bit] (выпуски 1-8, 10-22 из 22)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851143.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Остров Крым" - цикл документальных фильмов, которые расскажут об удивительной истории, невероятной природе, уникальных артефактах и достопримечательностях Крымского полуострова. Мы отправимся в путешествие по самым знаковым местам полуострова вместе с ведущими - Александром Олешко, Валдисом Пельшем, Дмитрием Харатьяном, Ариной Шараповой, Геннадием Хазановым (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: Телепередача, Документальный, История, ПриродаРежиссер: Людмила Снигирева, Илья Петров, Андрей ЛиничПродолжительность: выпуски по ~00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:159DB9512B3E6A285B1088452CB115E99ABA7ADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 117885   (851260) от 22.04.2020
 
 Великая ПОБЕДА. Война и Вера (2005) DVDRip (часть 2 из 3)
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:9658934B0144EAB4C5DF3A6FB7B19213003BC276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ Museum HD расскажет о произведениях искусства и
 magnet:?xt=urn:btih:D6391782AC3CE87051DF433EEFBE1F40A1E1863E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:D6391782AC3CE87051DF433EEFBE1F40A1E1863E
 magnet:?xt=urn:btih:151362EA6B0608FBD72B48E80A8354D8FF0CEA79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:151362EA6B0608FBD72B48E80A8354D8FF0CEA79
 ```bash
 magnet:?xt=urn:btih:0B61C3417DBC3D3096CCBA1DB4E711B92F0B5B54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:0B61C3417DBC3D3096CCBA1DB4E711B92F0B5B54
 magnet:?xt=urn:btih:4E40832922858C563373CAAB9CF3857AD5018A99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:4E40832922858C563373CAAB9CF3857AD5018A99
 ```bash
 magnet:?xt=urn:btih:4215412AAC243E1B65BA2849FD5DA6CB4B789DAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:4215412AAC243E1B65BA2849FD5DA6CB4B789DAC
 magnet:?xt=urn:btih:C6C4C6281462BA70A18D66491673E2C7D8FE42AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:C6C4C6281462BA70A18D66491673E2C7D8FE42AB
 ```bash
 magnet:?xt=urn:btih:523933529C0D2D5426EB80137A5ACBDCA6779D4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:523933529C0D2D5426EB80137A5ACBDCA6779D4E
 magnet:?xt=urn:btih:F95F723DA5BFFECC12BC45C1F70B479136E5AA70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:F95F723DA5BFFECC12BC45C1F70B479136E5AA70
 ```bash
 magnet:?xt=urn:btih:1AF695FC6A27EAACB68EF11761D76E8826D1B920
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:1AF695FC6A27EAACB68EF11761D76E8826D1B920
 magnet:?xt=urn:btih:06A585546B61641910DFBDFBB946DB267FE2630D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:06A585546B61641910DFBDFBB946DB267FE2630D
 ```bash
 magnet:?xt=urn:btih:BEE22C8E63BAEE91B1109ABF34E9B6A6EA2ED346
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:BEE22C8E63BAEE91B1109ABF34E9B6A6EA2ED346
 magnet:?xt=urn:btih:14A2BC3C36B532400AED9FCDB14397A4EFE118DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:14A2BC3C36B532400AED9FCDB14397A4EFE118DA
 ```bash
 magnet:?xt=urn:btih:4A8B17A88B4614CA899A914ADD04040E9EDB6FA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:4A8B17A88B4614CA899A914ADD04040E9EDB6FA5
 magnet:?xt=urn:btih:5A381EE6538E84D3DF9B732643B508CE10C6F411
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:5A381EE6538E84D3DF9B732643B508CE10C6F411
 ```bash
 magnet:?xt=urn:btih:F822F8EB5509E505BD88BBBFBFCDF300E4232EC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:F822F8EB5509E505BD88BBBFBFCDF300E4232EC3
 magnet:?xt=urn:btih:DBD033227D0696BBFA0D0D1789AAF8B72CB74370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:DBD033227D0696BBFA0D0D1789AAF8B72CB74370
 magnet:?xt=urn:btih:349C14371FD506DA2F5195C094CE2899EACC08BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:349C14371FD506DA2F5195C094CE2899EACC08BC
 ```bash
 magnet:?xt=urn:btih:DED0C6C29E5276646AD1F557A7EDA994CA4E241B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:DED0C6C29E5276646AD1F557A7EDA994CA4E241B
 magnet:?xt=urn:btih:D180E82CD4CB813A16BEAC99C8415D49A06D8D14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:D180E82CD4CB813A16BEAC99C8415D49A06D8D14
 ```bash
 magnet:?xt=urn:btih:47A6C0F56125593A9C50A445E7AE3356C672DD12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:47A6C0F56125593A9C50A445E7AE3356C672DD12
 magnet:?xt=urn:btih:903BEBAFE02AD610E7BEE9595A669E216A00A93F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:903BEBAFE02AD610E7BEE9595A669E216A00A93F
 ```bash
 magnet:?xt=urn:btih:19A9B15FA4EF6740FA40C592FEA6EDC632971C58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:19A9B15FA4EF6740FA40C592FEA6EDC632971C58
 magnet:?xt=urn:btih:63038F2B9C51BCAF7246E19C0970856B6835DDF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:63038F2B9C51BCAF7246E19C0970856B6835DDF1
 magnet:?xt=urn:btih:B3D35AD4C6C993D11A3012BEF6A514CA3B94FE3E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001521   (853382) от 28.03.2016
-
-Без обмана. Змеиный супчик (2016.03.28) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_853382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это масштабное потребительское расследование, задача которого дать зрителям подробные советы, как не попасть в неприятности за собственные деньги. В центре программы оказываются самые разные товары и услуги потребительского рынка, их "судят" авторитетные эксперты и рядовые люди. Корреспонденты программы часто выступают в роли тайных агентов, внедряющихся (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: Документальный, расследованиеСубтитры: ОтсутствуютПродолжительность: ~ 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DCF9522594DCBB316F898D4CAB928BEDB55F7DE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

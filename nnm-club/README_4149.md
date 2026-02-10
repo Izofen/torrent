@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2E607E82F318C8C06C67681AFDDCBCE13316663B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Harsh Bhasin PhD | Python Programming Using Problem Solving (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:4C901088288F70BA6919A6F8B9CA98D0EA09CA2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:4C901088288F70BA6919A6F8B9CA98D0EA09CA2F
 magnet:?xt=urn:btih:A7B0CFD46E4BAA962C7A6EE1DF89B4C144749FDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:A7B0CFD46E4BAA962C7A6EE1DF89B4C144749FDC
 ```bash
 magnet:?xt=urn:btih:14BD9AC145427E2E3066BA6874A90FB31D66BAB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:14BD9AC145427E2E3066BA6874A90FB31D66BAB5
 magnet:?xt=urn:btih:9BADEE61DF098357161F4F2E5A4C272B235A1318
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:9BADEE61DF098357161F4F2E5A4C272B235A1318
 magnet:?xt=urn:btih:90FCC3E3FAAC18F0B2BB5DD363CF13E48E465DDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Smart Book / Параллельный перевод книг v3.3 (b1065) Mod b
 ```bash
 magnet:?xt=urn:btih:2921299B58FA7090FCC42DBB16B7B65B8C6017FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ CurrPorts – полезная бесплатная программа для с
 magnet:?xt=urn:btih:5379339FFB3A010398D0B7E8472DB039595795E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:5379339FFB3A010398D0B7E8472DB039595795E7
 ```bash
 magnet:?xt=urn:btih:B70BA8DD45C7533CD1B98102ADF07E57141E7FE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Udemy, Christ Raharja | The Future of Copywriting: Creating Ad Copy & Video with
 magnet:?xt=urn:btih:C64B4F3276FD3861DD277018A417AEBA93513D41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:C64B4F3276FD3861DD277018A417AEBA93513D41
 ```bash
 magnet:?xt=urn:btih:7C78007C91BE3492B92E87ED21228C9CD54C2D5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:7C78007C91BE3492B92E87ED21228C9CD54C2D5E
 magnet:?xt=urn:btih:67A634DBD892BBE98F6EAA25D4D23968E0B837EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Search By Image v9.0.1 Mod by vadj [En/Ru]
 ```bash
 magnet:?xt=urn:btih:5F00383AA413F3DF1E9043EA3B628B3B70C4C781
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ After Effects CC и Photoshop CC. Лучше всего использовать
 magnet:?xt=urn:btih:0FF1B2D055926FD404A8506373E3D68BADBF00D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:0FF1B2D055926FD404A8506373E3D68BADBF00D9
 ```bash
 magnet:?xt=urn:btih:E761F559A4EBC4C2101439CDBAA6C5D44CE21BE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:E761F559A4EBC4C2101439CDBAA6C5D44CE21BE6
 magnet:?xt=urn:btih:D751895CECB4C0A652B80EB8230928E4B4A572DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:D751895CECB4C0A652B80EB8230928E4B4A572DD
 ```bash
 magnet:?xt=urn:btih:EF1F44E3464FAED1FCDEC576C06E4E891D7B1D55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Vivaldi 6.5.3206.39 include standalone [Multi/Ru]
 magnet:?xt=urn:btih:D1F8B08E4E68BC295A74399CAA96AF0ABC928B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:D1F8B08E4E68BC295A74399CAA96AF0ABC928B13
 ```bash
 magnet:?xt=urn:btih:3C8C46342786CB7BEB4351CA083CF6FFE823555D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:3C8C46342786CB7BEB4351CA083CF6FFE823555D
 magnet:?xt=urn:btih:E290472277F90866643D4277C1F2E0BBFA1417DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:E290472277F90866643D4277C1F2E0BBFA1417DE
 ```bash
 magnet:?xt=urn:btih:6CEB859AD11DE35ECF9423C78A517CB4F3DAF9C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:6CEB859AD11DE35ECF9423C78A517CB4F3DAF9C3
 magnet:?xt=urn:btih:EAFC36B1E90E8CC124FDE5991B5168AF5546BAE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:EAFC36B1E90E8CC124FDE5991B5168AF5546BAE5
 ```bash
 magnet:?xt=urn:btih:3913D6780E1F1ED534CCFF128D0F16E4F2124C84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:3913D6780E1F1ED534CCFF128D0F16E4F2124C84
 magnet:?xt=urn:btih:2FD85184C2C8DA346C8C3C5198E3F5EB29DD27DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:2FD85184C2C8DA346C8C3C5198E3F5EB29DD27DF
 magnet:?xt=urn:btih:8D4615206EB7E26C8A68556D14FB609238D57C39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:8D4615206EB7E26C8A68556D14FB609238D57C39
 ```bash
 magnet:?xt=urn:btih:E7DE7A65A948976374D9D0F4E7AC82FE3DB9AAD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

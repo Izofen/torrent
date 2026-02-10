@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4E1993D15D98EF0A16C974CF2BE3C96B1138BE50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Barre3 (2020) HDRip [H.264/1080p-LQ] (серий 126) [EN]
 ```bash
 magnet:?xt=urn:btih:A9265BB4C72BE4EC4E1297E9FF09EA95C54B7085
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:A9265BB4C72BE4EC4E1297E9FF09EA95C54B7085
 magnet:?xt=urn:btih:5C87620066B9E02AE60BEFD2F32BEA7F1F9F360A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:5C87620066B9E02AE60BEFD2F32BEA7F1F9F360A
 magnet:?xt=urn:btih:6691AF7E99E73651779732D4D6C14B984737CA7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:6691AF7E99E73651779732D4D6C14B984737CA7A
 ```bash
 magnet:?xt=urn:btih:62CDC55A526F4AC792782414BF2F092BE7AD29DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Kalachevaschool, Анна Эгида и др. | Скетчинг «Катало�
 magnet:?xt=urn:btih:FD5B4B955DD807DF8515B55B0C24CE547CA7ECF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Kalachevaschool, Ирина Артамоновна и др. | Пастель «�
 ```bash
 magnet:?xt=urn:btih:CDAD2476F220C86896C1897779BFDFF671BAC558
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ TRX Performance | MMA Workout (2010) DVDRip [EN]
 magnet:?xt=urn:btih:0D7E62B880092484AD4E6655E1AC6ADE7F1F1563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ TRX Force | Tactical Conditioning Program (2011) DVD5 [EN]
 magnet:?xt=urn:btih:BB00563600C318AD0DD1023F908307C45823D47F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Udemy, Scott Smith | Cisco CCIE Enterprise Infrastructure  (2021) WEB-DL [En / E
 ```bash
 magnet:?xt=urn:btih:589A000B6F5AB12C648626C4DB27D98383217ABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:589A000B6F5AB12C648626C4DB27D98383217ABA
 magnet:?xt=urn:btih:31D46FC7E6C1738E35040B65B8E031E35B5BD677
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:31D46FC7E6C1738E35040B65B8E031E35B5BD677
 ```bash
 magnet:?xt=urn:btih:5FCE9B83543988F92B34E2530D99DA8E861CE3CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ ReactJS — популярная JavaScript-библиотека с открыт
 magnet:?xt=urn:btih:2B1F149F662FF30781DB31F72514724725121531
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ Cinema 4D – программа с мощным современным функ
 ```bash
 magnet:?xt=urn:btih:39716926709E8191EF3EF583270AFDE91334D72C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ Digital-Tutors | Explaining Complex Topics with Motion Graphics in After Effects
 magnet:?xt=urn:btih:E34AC2A7F0C2923254D7D8B9FB282221693522D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ Kubernetes - самая популярная платформа для орке�
 magnet:?xt=urn:btih:9719E14220221690411B6DF4696CF97CED117A0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ Udemy, David Bombal | The Complete Networking Fundamentals Course. Your CCNA sta
 magnet:?xt=urn:btih:8B00DFC3685B508467A756FC2431EDB45C34CE4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:8B00DFC3685B508467A756FC2431EDB45C34CE4B
 ```bash
 magnet:?xt=urn:btih:2E4EE4D32E47F70116D43E9854AA06EA2FE141F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ Udemy, Andy Bek | The Ultimate Pandas Bootcamp: Advanced Python Data Analysis  (
 magnet:?xt=urn:btih:23B6FBB7D370EEC3D08860F29D9E9D4A7BDEC732
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ Skillshare, David Jaasma | Animation for beginners: Create spherical animations 
 ```bash
 magnet:?xt=urn:btih:DABF458C26925211C05CE02CF09889DB8CD03926
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ TRX Kettlebell | Iron Circuit Conditioning (2009) DVDRip [EN]
 magnet:?xt=urn:btih:32FABF6C613CF8FB604B784BA36820426C7B9046
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ TRX для командных видов спортаПроизводство: �
 magnet:?xt=urn:btih:571F1233F7997EFCD00CB6AFAFD11D5C02AA3DFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ TRX Performance | Train Like The Pros (2011) DVDRip [EN]
 ```bash
 magnet:?xt=urn:btih:19FDC23A52E4B671029BE1AAB49FB6761DA23DD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ magnet:?xt=urn:btih:19FDC23A52E4B671029BE1AAB49FB6761DA23DD0
 magnet:?xt=urn:btih:7483D7930A8CD45566D7B5755BDCE63A10C30179
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ KNOWLEDGE Syndicate | Архитектура мобильных игр на UNIT
 ```bash
 magnet:?xt=urn:btih:686A259BFCCC9ECA0EC3439B50427D7172F66D98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +700,8 @@ Mindvalley, Джим Квик | Скорочтение (2021) WEBRip
 ```bash
 magnet:?xt=urn:btih:953CC139F111E925A5C649059FB4AB83C4317E87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

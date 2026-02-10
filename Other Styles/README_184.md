@@ -25,6 +25,8 @@
 magnet:?xt=urn:btih:76E8A35C90C3D164ED9CC4DBB1AE0D984428EB48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Lorne Balfe - Bad Boys for Life / Плохие парни навсегда (Orig
 magnet:?xt=urn:btih:C172D6C8F2C00268E006FD52D52B6BFF25D2E68F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -78,6 +82,8 @@ Lorne Balfe - Mission Impossible: Fallout / Миссия невыполнима 
 ```bash
 magnet:?xt=urn:btih:32B84431847C3354E2C710F09778A0802D61C50C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -112,6 +118,8 @@ magnet:?xt=urn:btih:32B84431847C3354E2C710F09778A0802D61C50C
 magnet:?xt=urn:btih:DA0FBA707E929ECD210FA496412479AF6B8BDB0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +146,8 @@ Lorne Balfe - Mission Impossible: Fallout / Миссия невыполнима 
 ```bash
 magnet:?xt=urn:btih:2D4080FDEE7FE3F36E9A380C8C3C1543EA5C176D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +182,8 @@ CD1:
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +211,8 @@ VA - Women's Songs - Native Traditions (2011) [MP3|320 Kbps] <Native American>
 magnet:?xt=urn:btih:B167B3A7F7FC8B8294D93F1F4D78907F22ED3180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +239,8 @@ Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (
 ```bash
 magnet:?xt=urn:btih:DD49267E11A442D8AC11F59FCE585FCBC8826B4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +275,8 @@ Ennio Morricone - The Good, the Bad and the Ugly (1966) / Хороший, пло
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +310,8 @@ Ennio Morricone - The Good, the Bad and the Ugly (1966) / Хороший, пло
 magnet:?xt=urn:btih:78261D23BC8B9462F55712753AEAB7FE4320D912
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +339,8 @@ Almudena Merino Mino - Dejolull, La Cepa Magica (2015) [MP3|320 кб/с] <New Ag
 magnet:?xt=urn:btih:4D9C0E06345E2C1808B08C77871E5703E9EDCCA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +367,8 @@ Briza (David Arkenstone) - Ambient Cafe (2006) [FLAC|Lossless|image + .cue] <New
 ```bash
 magnet:?xt=urn:btih:2D43EA98BEC65DD4C4801CDAA2906AEEA054F687
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +403,8 @@ David Arkenstone - Celtic Christmas (2006) [FLAC|Lossless]<New Age, Christmas>
 magnet:?xt=urn:btih:B0BE4696AEAB4DC9157941918C1D3E184EFD9BC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +431,8 @@ Marco Beltrami & Brandon Roberts - Underwater / Под водой (Original Moti
 ```bash
 magnet:?xt=urn:btih:898B309CE66D50197EA32AADBA7B2BC634BE2008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +461,8 @@ Marco Beltrami & Brandon Roberts - Underwater / Под водой (Original Moti
 magnet:?xt=urn:btih:AD5D4132949BBD681E9379AD1E1C6691FA635349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +490,8 @@ Guna Sangah - The Spirit of Reiki (2001) [MP3|320 kbps]<New age, Relax>
 magnet:?xt=urn:btih:D5464AF29EB7E57473E046FEA62F30951EA0C531
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +518,8 @@ Paul Cardall - Saving Tiny Hearts (2014) [MP3|320 кб/с] <New Age>
 ```bash
 magnet:?xt=urn:btih:095354472A680352FA7AFB8C560E9AF0A29B7297
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +554,8 @@ Apeiron - проект, организованный композиторои и
 magnet:?xt=urn:btih:35D783ADD573FFE7156214EC2A88D802F860B7AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +587,8 @@ CD1:
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +615,8 @@ Jim Brickman - Grace (2005) [FLAC|Lossless|tracks + .cue] <New Age, Solo Piano>
 ```bash
 magnet:?xt=urn:btih:C02209B6FEEF6E06FEE086E3A3CC56903C196318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +645,8 @@ Yuki Kajiura - Akiresu to kame (Ахиллес и черепаха) (2008) [OGG|
 magnet:?xt=urn:btih:97F2A4EE14DABE5E199082D5A488F2A779D3CD63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +674,8 @@ Bennett Salvay - Peaceful Warrior / Мирный воин (Original Motion Pictu
 magnet:?xt=urn:btih:A2DF0453FCC01355CCB306833681D6AB5D4BD60A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +702,8 @@ Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (
 ```bash
 magnet:?xt=urn:btih:DBDBADB4D60D5DE04006C74FDD34CBC9B222DB84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -692,6 +738,8 @@ VA - Vip Lounge 2014 [MP3|320 кб/с]<Chill Out, Lounge>
 magnet:?xt=urn:btih:BAC124C4069B0262DA5E98BBECB6E34EC72FAB8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -719,6 +767,8 @@ Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the 
 magnet:?xt=urn:btih:B11BB7F7FF08DACE5C7B90424983C888B5C662F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -745,6 +795,8 @@ Lorne Balfe - Bad Boys for Life / Плохие парни навсегда (Orig
 ```bash
 magnet:?xt=urn:btih:400EFB816888870B2B2DCFDDF360D75D438CBDA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

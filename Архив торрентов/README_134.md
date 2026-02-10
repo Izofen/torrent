@@ -19,6 +19,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:B27B3042F3523FCB2880B757F2A604ECAD42C657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:07DC3F3E3F3AAF7A243ED721D72C151167257700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Rosetta Stone: Изучение языков 8.30.0 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:84714F452B6C8AFCC405E58DA351C73D08127983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ v2rayN — это универсальный инструмент VPN и про�
 ```bash
 magnet:?xt=urn:btih:CEB1EAA8242861C00DDFB835353FBD9E639E7237
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Altus поддерживает темы, несколько учётных за�
 magnet:?xt=urn:btih:71CFBADC7E43D78F0E0533D06C06D39B7809DAF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ WinToUSB - позволяет устанавливать и запускать �
 ```bash
 magnet:?xt=urn:btih:D1BB5D1D6493A5198A92BEF2DEA99FAD8377A449
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Driver Booster сканирует и определяет устаревшие �
 magnet:?xt=urn:btih:CCFE0A89C5700B088E0A98D2155E950FE3DA69D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ AI Photo Editor Pro - Polish v1.603.201 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C40BA712E14AB4960535223B1E6833C664CB6960
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Sigil — программа представляет собой мощный р
 magnet:?xt=urn:btih:93C82CAF9F8E827706FA56E82DB62339EC5ABA77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:A2A9CA0F5C41087AC82C5B7E6237DD85366232F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ XYplorer – удобный многовкладочный файловый ме
 magnet:?xt=urn:btih:7565A5400DF2E135A9DBA35381C56656120B753E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:7EBB5396838387CF75C467D1C8C2A514AE977C09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ PageEdit изначально разрабатывался как замена �
 magnet:?xt=urn:btih:993C965AF9F0B373FE82F9BF9D74B77AEA4FD3A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Gallery - Photo Gallery, Album (XGallery) v1.8.8 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:017EF2A7DD640CF3A0BB5A3F88AB527B26332958
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ FacePic — приложение AI Face, приложение для легко
 magnet:?xt=urn:btih:1923FEA34851CD759FE8F7EB9EFF56E402F6498A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 magnet:?xt=urn:btih:BA86D6AEBF3CC07DFCEA316EBDD8E3B8E67776E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:3938AB3CA376ACF1E8B0DF2D39DD228B770DDAB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ eWeather HDF - это точный прогноз погоды от двух м�
 magnet:?xt=urn:btih:79B1E7070DB522D9ED187E84CED5733E944E9546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Digiarty AIArty Image Matting — это инновационное програ
 ```bash
 magnet:?xt=urn:btih:23AB488188AA6B565E5E834DDC82F2B765613FF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Open-Shell Menu - замена утилиты Classic Shell, разработк�
 magnet:?xt=urn:btih:50BFC7BC691A35FC4A13AA2F278E3204A8EAA34F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Total Commander Extended - это x86 и x64 версии Total Commander в о�
 magnet:?xt=urn:btih:F3E3895FC87CEFCA9F7C1FD36B8838102A04E43E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:90A41A5C38931D756096DF5D55E5D5AD0C3656CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Music Collection - неплохая программа для создания �
 magnet:?xt=urn:btih:A73E4C29551277E749369C0A7CF13556CB8EB413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ PhotoRoom v5.8.2 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:DF4D580C1FFE030CE958E2D4EEAF33D226171EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Vov Sticky Notes 9.4 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:64F7E22077B531653E39C00BCC50C21089BB8D81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:794B3B4B86BF5ECD2E26F7609AE65B701ADB14E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

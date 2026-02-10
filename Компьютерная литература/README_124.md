@@ -20,6 +20,8 @@ For programs that need to be small, fast, and reliable, C is the gold standard. 
 magnet:?xt=urn:btih:BEDE2518C6550E6D63613E7236821CA766229DBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:BEDE2518C6550E6D63613E7236821CA766229DBD
 ```bash
 magnet:?xt=urn:btih:055D869BFF82A70DE0818A0A04714372B54DC593
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Process input through an I/O filter to generate customized output(   Читат�
 magnet:?xt=urn:btih:624623BEC6988762DFF2480B92D38DD91084BC69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:624623BEC6988762DFF2480B92D38DD91084BC69
 ```bash
 magnet:?xt=urn:btih:3E2C8F11B469259537F5B92852DF97ED35456830
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:3E2C8F11B469259537F5B92852DF97ED35456830
 magnet:?xt=urn:btih:E058649F9B5EB077582FE6C4CC9F39223E3227EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Master VMware Workstation to create and run virtual machines, containers, and Ku
 ```bash
 magnet:?xt=urn:btih:19B7731223C966BC473A4E3ED66FDEA3394BAA2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:19B7731223C966BC473A4E3ED66FDEA3394BAA2B
 magnet:?xt=urn:btih:700C1427F2C3CC96CDE82FEEF245A96F7B0BD66B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:700C1427F2C3CC96CDE82FEEF245A96F7B0BD66B
 ```bash
 magnet:?xt=urn:btih:AF07DCE72A5EEB6F654C22DF3E2996A52DA7F590
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:AF07DCE72A5EEB6F654C22DF3E2996A52DA7F590
 magnet:?xt=urn:btih:E3A5110E5DCA9596ED4F6C878C5286EE3334C578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:E3A5110E5DCA9596ED4F6C878C5286EE3334C578
 ```bash
 magnet:?xt=urn:btih:236DD085FEF0DBE13240BCDC7ADF5B5914E67893
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ What if you never had to write another after-incident report, piece of boilerpla
 magnet:?xt=urn:btih:95C8A222D340088909F97EC3C81A5BF59F3AEA15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:95C8A222D340088909F97EC3C81A5BF59F3AEA15
 ```bash
 magnet:?xt=urn:btih:B1C6E91BA941B7FC574726F1147CB527DF155E95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ Designed for both absolute beginners and seasoned developers, this in-progress p
 magnet:?xt=urn:btih:D0523D7D478251D9CE19A5A87BD223997EAA3DAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Discover a practical, streamlined approach to systems development that focuses o
 ```bash
 magnet:?xt=urn:btih:A15D64BF29E6613ACFBE4A94079D4491890FDA6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Kimiko Lee | Terraform for Developers. Essentials of Infrastructure Automation a
 magnet:?xt=urn:btih:7D7101211B053C075424F6C0586AF727F1C2B4BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ Become an expert in implementing observability methods for legacy technologies a
 ```bash
 magnet:?xt=urn:btih:13CD3CB4BE59A8B334A28C46EF67A7D4F2631FBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Are you struggling to manage and make sense of the vast streams of data flowing 
 magnet:?xt=urn:btih:3BDE5F925D1B5577E234B2525D510D28AA57E1E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Justin Mitchel | Road to Kubernetes (2024) [PDF, EPUB] [EN]
 ```bash
 magnet:?xt=urn:btih:C5451941C37CCB1F227FC7CF5562B18242753D32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ Architects across industries are turning to Kafka for its unparalleled speed, re
 magnet:?xt=urn:btih:F2529C5A329A218CF1FFFE8DD47BE1C1C6817D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ Great (   Читать дальше...   )Жанр: Computer Systems Analysis &
 magnet:?xt=urn:btih:3E5848C41C12277386B6616D5F8EA17F21938ABF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:3E5848C41C12277386B6616D5F8EA17F21938ABF
 magnet:?xt=urn:btih:A29D7D6FA21B7267271020E6DF09BC62D8E80C62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ Mastering Flutter is ideal for the developer at the beginner level as well as th
 ```bash
 magnet:?xt=urn:btih:9CCD00C8FA805A3D2A53F7BDBB1136DCAA2FC702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +608,8 @@ Author David Pine, who focuses on .NET and Azure content (   Читать да�
 magnet:?xt=urn:btih:76E7AEAB98F4D7DDB81871930060CE7D67BE5783
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ Authors Nathaniel Schutta and Dan Vega guide your journey with (   Читать
 magnet:?xt=urn:btih:C71F6A719C62A8EFFEA808543743BABA9F5FB924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ Poor data quality can cause major problems for data teams, from breaking revenue
 magnet:?xt=urn:btih:D3308CA7D2EEDEFFB53A46CCCAF9F648C908A446
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:D3308CA7D2EEDEFFB53A46CCCAF9F648C908A446
 ```bash
 magnet:?xt=urn:btih:D8EE7A92B6F5FF81814EE61505FFE8B7B4A060BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

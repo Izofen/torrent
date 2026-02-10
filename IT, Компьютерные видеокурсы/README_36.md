@@ -20,6 +20,8 @@ You will not use any CQRS framework, but you will write every line of code that 
 magnet:?xt=urn:btih:722CEAE444F97C61398AE590F6CD58DFC708D0C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ BAS, Павел Дуглас | Создание Чекеров на BAS (2022) W
 ```bash
 magnet:?xt=urn:btih:BF8362A5FA5ED3A09243ECB9E4BDB6580472AE9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Thinknetica Pro, Александр Борисов | Безопасность п
 magnet:?xt=urn:btih:798F42DC5C214A7C962EFF22A5DABF56CE1625BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ LeadTex | Архитектор чат-ботов PRO (2021) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:A1A67A3E843AF528837A34914D6E555F6AB59733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Thinknetica Pro, Виктор Маслов | Автоматизация тест
 ```bash
 magnet:?xt=urn:btih:ADFCD5EAD5FB675B31BB453E0089C1BD62160862
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Udemy, Coding Revolution | Starting with React & Redux: Build modern apps (2nd e
 magnet:?xt=urn:btih:1FDF1D11B8D88FA8FA3FD647346ED958B6B2FD4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Udemy, Airlan Technologie Sieciowe | Mikrotik from scratch for everyone (2022) W
 ```bash
 magnet:?xt=urn:btih:0204C93960331F32208EBCEC7DA9725B65906C1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ You will learn about automating deployments with Elastic Beanstalk CLI and creat
 ```bash
 magnet:?xt=urn:btih:4941257D592FC3AB62D0168EFCDC566E47984FED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ Udemy, Roman Dushkin | Введение в компьютерную логику
 magnet:?xt=urn:btih:E4ECB2844A57D0F3CD678B9F031DC9A55FEFBB99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ In this video course, I’m going to show you how to set up DevTools PERFectly�
 ```bash
 magnet:?xt=urn:btih:D5753B7B2FEA09E0BD6E9162A6362FF43621FB04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ Our linear course is like having a smart, experienced friend sit down next to yo
 ```bash
 magnet:?xt=urn:btih:2EB97C7C7F9867708A03F1E3F4358F5846F47377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ SUITABLE FOR(   Читать дальше...   )Жанр: CourseЯзык озв�
 magnet:?xt=urn:btih:62BC12B1DB982BAA6C0E486ACCAC45267A86E3D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ We use a linear approach to take you step by step from the fundamental building 
 magnet:?xt=urn:btih:BEFBBC17795215F6AF17ED6426B0B9A9F2E69789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ What do C, Go, Python, Perl, Java, Node.js, Git, SSH, Docker, Kubernetes, MySQL,
 ```bash
 magnet:?xt=urn:btih:E3D5F0F11AA84404C9337F19572A622678099914
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ Udemy, Anand Guru | (Security Operation Centre) SOC Essentials by SOC Experts (2
 magnet:?xt=urn:btih:80EF309D9F98D18D0603263821CC907017F1683C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ Nizamov.School, Илья Низамов | 1С ZADARMA  (2022) WEB-DL [AD] [RU]
 ```bash
 magnet:?xt=urn:btih:8E89AFF5A1FD6FEF851DC9130823833980EE6656
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +466,8 @@ Udemy, John Thompson | Mastering Thymeleaf with Spring Boot (2021) WEB-DLRip [EN
 magnet:?xt=urn:btih:9DA90A4F9FA96893ADE5B113261EBF0D63E77427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ Pluralsight не является официальным партнером ил
 ```bash
 magnet:?xt=urn:btih:F8A06B18ECA1E48E8AC7183B69D88AD0D691C88A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +521,8 @@ Grid & Flexbox(   Читать дальше...   )Производство: Byte
 magnet:?xt=urn:btih:346D7651EF4E29F07396F5E93FE302B56D5619FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:346D7651EF4E29F07396F5E93FE302B56D5619FF
 ```bash
 magnet:?xt=urn:btih:340A24934D956EB19836DA357A2358A1DE45F67F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +576,8 @@ Git, GitHub, Git workflow Gulp, Pug, SCSS, BEM, UI kit, дизайн систе�
 magnet:?xt=urn:btih:11732B7E95D5D3967EEA5179A2689812F39A8803
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ ItGid, Александр Лущенко | Методы массивов JavaScr
 ```bash
 magnet:?xt=urn:btih:272585F323469B7500CBB393CC3D57DD630009C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +632,8 @@ BrainsCloud, Дмитрий Валак | Вёрстка сайта трансп�
 magnet:?xt=urn:btih:697587C57A4A69372584697DFD65FD5C70FFE111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +658,8 @@ magnet:?xt=urn:btih:697587C57A4A69372584697DFD65FD5C70FFE111
 ```bash
 magnet:?xt=urn:btih:F817D8C6B7CA6BC3C2CDB7E08EBAC00280197B52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +688,8 @@ JavaBegin, Тимур Батыршинов | Авторизация и рабо�
 magnet:?xt=urn:btih:1E162C51D35B951E54909B1758E553CB626EF10D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +714,8 @@ Linux Ubuntu и Mint Росинка для Начинающих, привыкш�
 ```bash
 magnet:?xt=urn:btih:6C7E862A14A247DCC809ED30E068C604742C15A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:F603981836D7F3AD2A4375CBAE0EAFDD48212864
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:F603981836D7F3AD2A4375CBAE0EAFDD48212864
 ```bash
 magnet:?xt=urn:btih:633D9AAAF5BB4C3D1512EA53B57F216DD123FCD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:633D9AAAF5BB4C3D1512EA53B57F216DD123FCD0
 magnet:?xt=urn:btih:116DEAFF7243178841CF2200B0A212399449D5CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Музыка Победы (2025) [MP3|320 Kbps] <Военная песня>
 ```bash
 magnet:?xt=urn:btih:FB477A261FDFBC1CC85E5C453B487B8D5CB21892
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:FB477A261FDFBC1CC85E5C453B487B8D5CB21892
 magnet:?xt=urn:btih:7EE67D761A645D9E44B789B9CAEFD05F3F64EB0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:7EE67D761A645D9E44B789B9CAEFD05F3F64EB0E
 ```bash
 magnet:?xt=urn:btih:038D3FFD5CBC51E8441518FD573DCDFBBAA52EA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:038D3FFD5CBC51E8441518FD573DCDFBBAA52EA6
 magnet:?xt=urn:btih:19025DBD53FDE643D87D16B70320B93C392F5EFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:19025DBD53FDE643D87D16B70320B93C392F5EFA
 ```bash
 magnet:?xt=urn:btih:896DCCEC1DE632A275CF855449F4EDEC7123ED70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:896DCCEC1DE632A275CF855449F4EDEC7123ED70
 magnet:?xt=urn:btih:9D3C878962CD2C3A8DA61B948A3144D99CFBAB30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:9D3C878962CD2C3A8DA61B948A3144D99CFBAB30
 ```bash
 magnet:?xt=urn:btih:987C98A7193AF26FA73A603A4331898DF93E7F7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:987C98A7193AF26FA73A603A4331898DF93E7F7F
 magnet:?xt=urn:btih:8A4B20FF0D2683CB357914784E875FC55F3B4813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:8A4B20FF0D2683CB357914784E875FC55F3B4813
 ```bash
 magnet:?xt=urn:btih:8E53030A062154558D4C79B0A51B72CEB672A23A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Шансон 90-х, Часть 3 (Избранные песни десят�
 magnet:?xt=urn:btih:81F3E6C863E733EA8013AC852D0B94D0DE40CB84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Легендарные песни русского шансона (20 лу�
 ```bash
 magnet:?xt=urn:btih:D19B746AF498750A06325A4DC3C3CB21C62CAB1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Короли шансона. Золотые Хиты (2025) [FLAC|Lossless|
 magnet:?xt=urn:btih:74A9792B33185511080B25CC4DE3A0450B32B722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Русская 30-ка хитов 12 (Новые русские песни)
 ```bash
 magnet:?xt=urn:btih:B0D8921FCC09028112D233899B5002D91C753E7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Новые хитовые песни 2025, Часть 3 (2025) [FLAC|Lossle
 magnet:?xt=urn:btih:6C9F80F29CEBB054C37F4198C40FFE526F5F380C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ magnet:?xt=urn:btih:6C9F80F29CEBB054C37F4198C40FFE526F5F380C
 ```bash
 magnet:?xt=urn:btih:BBCA359198E1F06701D62D38D1EFC547B6F515CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:BBCA359198E1F06701D62D38D1EFC547B6F515CD
 magnet:?xt=urn:btih:ADB806A018391476E889DCF8643C08D41E39C70F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Шансон премьера 2025 март (Новые песни. Нов�
 ```bash
 magnet:?xt=urn:btih:EC982173CD6CE0B576110E84C600CBE10AD4E289
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Шансон 2025 (Музыкальный хит-парад) (2025) [FLAC|L
 magnet:?xt=urn:btih:01B12CBBE88B3AA247ED77FB52962FBBC3428506
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ iSenin - Устал я... (2025) [MP3|320 Kbps] <Chanson>
 ```bash
 magnet:?xt=urn:btih:BAA8DA35CA37E9C258C0BB20DE935EEDD1372627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ VA - 50 лучших песен для любимого (2025) [FLAC|Lossless|WE
 magnet:?xt=urn:btih:63F39EB27649FF40FB3250C04C92217F24D24C48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ VA - Хит FM (Популярные хиты русского радио) (2025
 ```bash
 magnet:?xt=urn:btih:AACDF9660D97E720B9657644893000A92572F37D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ VA - 100 новых песен (2025) [FLAC|Lossless|WEB-DL|tracks] <Шансо�
 magnet:?xt=urn:btih:3341F1859731E8ABB57109EFE47FE70C5D12F0A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ VA - Русская 30-ка хитов 11 (Новые русские песни)
 ```bash
 magnet:?xt=urn:btih:95989F88A35A18A641C4F71CC09B08AC9A6DC4B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

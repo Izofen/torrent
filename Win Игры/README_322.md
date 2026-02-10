@@ -19,6 +19,8 @@ Whiplash - Crash Valley (2016) [En] (1.0) License PLAZA
 magnet:?xt=urn:btih:192F68CF2196885AAC5E051E0C516739E989B10D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ State of Mind — это футуристический триллер в дух
 ```bash
 magnet:?xt=urn:btih:644DB97C5BF15F1B3CB6E738BAACF9D9000D7438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Phantasmat 9: Insidious Dreams / Фантазмат 9: Коварные виде
 magnet:?xt=urn:btih:AF5497270D61E56B5382B185CCCD4204EF897BB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Worlds Align: Beginning / Слияние миров: Начало (2019) [Ru] (1
 ```bash
 magnet:?xt=urn:btih:95F35EC37D18A236929917D196B54821EAB0C55D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ That Dragon, Cancer – интерактивный пересказ реальн
 magnet:?xt=urn:btih:DE0AA3B3640ED1A9A6BB9861B9AAEAD6D23EF639
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Tales of Terror 5: The Fog of Madness / Трепетные истории 5: Т�
 ```bash
 magnet:?xt=urn:btih:77EF2940B0CA1BD4B950C66388D31A0AB1321D40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Vampire Legends: The True Story of Kisilova / Легенды о вампирах
 magnet:?xt=urn:btih:B9D8E73B761329D5A03BBFD7501E60B47DA7BD82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Crime Secrets: Crimson Lily / Преступные тайны: Алая Лили
 ```bash
 magnet:?xt=urn:btih:B769D0FDAFEB0955E6925C7D18E75ED52C1100C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Dark Heritage: Guardians of Hope / Мрачное наследие: Стражи
 magnet:?xt=urn:btih:7E4D9B71CCDB1437C01F5492C814A4E6BFA5B50E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Lucas Chess - лучшая из обучающих шахматных прогр
 ```bash
 magnet:?xt=urn:btih:4CA802ABD4C5E8C000E3685E1CC75D20332247F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Strategic Mind: The Pacific - пошаговая стратегия, событ�
 magnet:?xt=urn:btih:39A85FB63D2C4CF6FF1CBB238A9295843740AA5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Monster Hunter Stories 2 Wings of Ruin (2021) [Ru/Multi] (1.6.1/dlc) Repack Let'
 ```bash
 magnet:?xt=urn:btih:2036F075D54930137A43D195FF04CCD0E7E4B75E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Star Wars: Squadrons (2020) [Ru/Multi] (1.0.10.39591) Repack FitGirl
 magnet:?xt=urn:btih:531E42196AF282036B867C6D8156231A6DD79EB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:531E42196AF282036B867C6D8156231A6DD79EB5
 ```bash
 magnet:?xt=urn:btih:969BB0E6EF2424F65B6574ED94D821FE72B2B3BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Walking Dead: Season One (2012) [Multi] (1.0.0.26/dlc) License GOG [A Tellta
 magnet:?xt=urn:btih:D56152CFB0271B3EC6B787079998051681F41BCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Fear For Sale 11: The Curse of Whitefall / Страх на продажу 11: П
 ```bash
 magnet:?xt=urn:btih:916AD615BB4764A7061C628E5FA4E5A718E6E1CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Descendant — это приключенческая игра в сетти�
 magnet:?xt=urn:btih:23275557C30503549673E85250631FFA84DD18E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Darksiders III — долгожданная третья глава популя
 ```bash
 magnet:?xt=urn:btih:36FFE3CB67ACA7FCEC47ACE681EC3DD1053793B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Democracy 3 (2013) [Ru/Multi] (1.31/dlc) License GOG [Complete Edition]
 magnet:?xt=urn:btih:41E3C5B94A7D3AA85DD3532076661238B57734E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ PayDay: The Heist (2011) [Ru/En] (1.22.0/dlc) Repack Mizantrop1337
 ```bash
 magnet:?xt=urn:btih:B324431E255D713C0ECD47F33BC0200A75A82E1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Awe of Despair - игра жанра survival horror, которая стави�
 magnet:?xt=urn:btih:FA56AEE71D7350529AA23D7928070F8BC623ECA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ RollerCoaster Tycoon Classic (2017) [Multi] (1.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0574027792CAFCE4832B1CDC42FA857356745732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Beastiarium — погружение в таинственный мир, пол�
 magnet:?xt=urn:btih:3960B58043FB486CB9DC59C8D2D953C25DECA1FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ A Stroke of Fate: Operation Valkyrie / Архивы НКВД: Охота на ф
 ```bash
 magnet:?xt=urn:btih:FD0BEA85926BDDAAB174473690888BF02E3DDD2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Cursed / Проклятая (2016) [Ru] (1.0) Unofficial
 magnet:?xt=urn:btih:2AAA6B8410A03B6FC339071645AA18D359D9FD35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Haunted Hotel 18: Room 18 (2019) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:7F046A1D2470524F41891475F50FC94927C21E3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

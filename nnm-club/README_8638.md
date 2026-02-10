@@ -22,6 +22,8 @@ Anson Funderburgh & The Rockets - Blast Off: The Best Of Anson Funderburgh & The
 magnet:?xt=urn:btih:B33D353D6F44DFD779C521907BB5C51B13AA9F6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ iFinance 4 позволяет вам отслеживать доходы и ра
 ```bash
 magnet:?xt=urn:btih:A32D0050DB0B43CFF3716DEE16E352CB0540101F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Euro Disco - The Lost Legends Vol. 3 (2017) [MP3|320 Kbps] <Euro-Disco, Syn
 magnet:?xt=urn:btih:266243AE2F6C0A04197AFFD6CACCB098AEE6ECC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Chontaraz - Rondamauh (2017) [MP3|320 Kbps] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:5D5F1F15791C4ACB831E817B4C75BF899B5D3032
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ VA - Euro Disco: The Lost Legends Vol. 6 (2017) [MP3|320 Kbps] <Euro-Disco, Synt
 magnet:?xt=urn:btih:99E029E0D9469C41D85AFEA89584AA4EF757DCC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Enrico Pieranunzi, Marc Johnson, Joey Baron - Play Morricone (2001) Cam Jazz [FL
 ```bash
 magnet:?xt=urn:btih:EE96A9F5BE00DC9E7E2A4B425348858C12E6B3A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Oliver Nelson - Black, Brown And Beautiful (1969) 2017, Solid Records [FLAC|Loss
 magnet:?xt=urn:btih:D9635221558ECAA43C5004947B5486965B642001
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ VA - Euro Disco - The Lost Legends Vol. 5 (2017) [MP3|320 Kbps] <Euro-Disco, Syn
 ```bash
 magnet:?xt=urn:btih:9189F4E02AC1DB5CE9D8F4DDF9266459EA47E473
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ VA - Markus Schulz - Global DJ Broadcast - World Tour - Best of (2017) [MP3|320 
 magnet:?xt=urn:btih:B97DF54CD8F8E97B6D8B36B83AE529FA98FA4B2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ VA - House Party (2017) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:532C2D8A96EE3356BC33A158665EA947EE17608B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ The Auranaut - Divine Ordinance (2012) Power Circle Records [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:ED994382CD1FD5BDFCF4ACC6B74BBFE4CD669CE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ Konstantin Klashtorni - Smooth Jazz I-IV (2011-2017) 4CD [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:3B08A95ADAAA319A1581A07E5FE5833BF6B2EE96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ VA - Ori Uplift & Darren Porter - Uplifting Only 254 (2017) [MP3|320 Kbps] <Tran
 magnet:?xt=urn:btih:CE4B4FF09F5D2943EEBD4B66A2B942ACE9881730
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ VA - Euro Disco: The Lost Legends Vol.9 (2017) [MP3|320 Kbps] <Euro-Disco, Synth
 magnet:?xt=urn:btih:ABADA4B8CF1A84D57DE05E1C92820BBFB5BA4265
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +423,8 @@ magnet:?xt=urn:btih:ABADA4B8CF1A84D57DE05E1C92820BBFB5BA4265
 ```bash
 magnet:?xt=urn:btih:F9683C3D1DFF8032C9F2F295AFF11CA1D59A524C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +453,8 @@ VA - MNMN FOR HAPPY ANIMALS (2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Breaks, B
 magnet:?xt=urn:btih:D25CB180F307E50AABE6590AAB83CB4D599A31B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +481,8 @@ ViceVersa - The Electric Flame (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:1E34CCC0A760C706AAFE2E2B690E27EB23685944
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +511,8 @@ Telefon Tel Aviv - Map of What Is Effortless (2004) Japan Reissue, 2017 [FLAC|Lo
 magnet:?xt=urn:btih:2B1878B836CC5E3F9906FF2BA969246E6AD06868
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +538,8 @@ magnet:?xt=urn:btih:2B1878B836CC5E3F9906FF2BA969246E6AD06868
 ```bash
 magnet:?xt=urn:btih:2CA591B22E117E6A022CB701333B13D09A3CD8FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +568,8 @@ VA - Spectral Decay (2017) City Forest Records [FLAC|Lossless|WEB-DL|tracks] <Am
 magnet:?xt=urn:btih:E517ED2E07913A6F41B7A21653A5B04455C36290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +596,8 @@ Oliver Nelson - Skull Session (1975) 2002, Flying Dutchman [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:19CD718BE19123445BFF30C25B3EBB22D22723D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +626,8 @@ VA - Best of Lifted (Mixed bi Azima) (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:9736FACE3D8D421E45A4827DEF5E327B34B1C5C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +654,8 @@ Ahmad Jamal - Macanudo (1959, 1962) 2014, Solar Records [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:B5442132D0185DCD2EF7EB64DEDF6D216E6A4D0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +684,8 @@ VA - Black Hole House Music 12-17 (2017) [MP3|320 Kbps] <House, Progressive Hous
 magnet:?xt=urn:btih:239EC99DE0B3DF23FFDC1766FCE753F27F4BA8A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +713,8 @@ VA - Digital Society Recordings 2017: The Yearmix (Mixed by Chis Sx) (2017) [MP3
 magnet:?xt=urn:btih:82A7D344B259792FB1E6F56DC6371BCE54A4E3DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +741,8 @@ VA - Recoverworld Trance Sessions 17.10 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:BC86D17D6CDFBB214BFB91FBFA7713E965725C6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

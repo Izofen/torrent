@@ -19,6 +19,8 @@ Zaycev.fm - приложение онлайн радио, которое отк�
 magnet:?xt=urn:btih:9214D83652E2D1B46A4C5408CE7B9AC9BC408EF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ ImageMeter предоставляет инструменты, которые п�
 ```bash
 magnet:?xt=urn:btih:57830580CD8A92396C22B38C8959F7BC0C5D088B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Universal Copy — это самый быстрый способ копиров�
 magnet:?xt=urn:btih:DEF2F8312E78679EB7E6D5E30E77A879AD27A853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ DNS Changer Android — это первый уровень интернет-бе
 ```bash
 magnet:?xt=urn:btih:820E0A740CC2D5AE2378965FCEB5CDF4BD231D51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Ultimate Background Eraser v2.2 [Ru/Multi]
 magnet:?xt=urn:btih:8F642AE772A85F3E58C7FA64AF599B19B65F5C91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:8F642AE772A85F3E58C7FA64AF599B19B65F5C91
 ```bash
 magnet:?xt=urn:btih:55A865B8BC1CFA7821748D54D838A67E3CFBF129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Battery Alert 40-80 Pro 1.48 [Ru/En] (обновляемая)
 magnet:?xt=urn:btih:F2B9FDCFD40478868C444A0122926C85ADE62A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ HandWriter v1.4.7 [Ru/Multi] - Конвертер текста в рукопис
 ```bash
 magnet:?xt=urn:btih:932C9150A9907396E7E99EB32D342325B3B4479B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ YouCut - лучшее приложение для редактирования �
 magnet:?xt=urn:btih:61E675B93556EE99C9D1C175D5CB8E3303623229
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Photo Sherlock v1.107 Mod by Alex.Strannik  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A27752F7CE0051946A8E1B845C7A768508930F4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ ABBYY FineReader PDF – ваш умный карманный сканер с и
 magnet:?xt=urn:btih:99E018E705138C5870E8CE8F19774973D5A99842
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ WiFi Analyzer v4.2 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:67116464F4C59BA0000A88BA373AD14E576C2ED4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ The Clock: Alarm Clock & Timer 8.4.8 [Ru]
 magnet:?xt=urn:btih:65F3C748AEDE1CCE57D35EA7FFF1F5EED48A0A00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Dictionary 15.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4874B2D902C9FE3C79AF0ABE8AFD9DDEFA595F5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ ALTLAS: Trails, Maps & Hike 3.3.9 [Ru]
 magnet:?xt=urn:btih:CA5FFC6F2011CA8DEF538643DBB0F4F0C16167BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:CA5FFC6F2011CA8DEF538643DBB0F4F0C16167BF
 magnet:?xt=urn:btih:B3569A1CC71D8845142AC66E7081BDA30E265162
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ XY VPN — это абсолютно бесплатный VPN! Быстрое и
 ```bash
 magnet:?xt=urn:btih:4DB0154C11193BBABE9D198C067B8B1381786077
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Shopping List SoftList v2.6.0 [Ru/Multi]
 magnet:?xt=urn:btih:C8D58F722C3D391CC8BFE5594B5D9726AA775085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ PDF Utils v15.0 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:82BBDFE8DBF51C9CCBFEBC016DAF7CA1B647C792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:82BBDFE8DBF51C9CCBFEBC016DAF7CA1B647C792
 ```bash
 magnet:?xt=urn:btih:B29A98B9077263DF8BD6CAEF948203B8B82E3C54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Camera ZOOM FX Premium v6.3.8 [Ru/Multi]
 magnet:?xt=urn:btih:F1634BFBF980230C0EAEA26225190E1448175415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ English-Russian Dictionary v3.4.1 [Ru/En]
 magnet:?xt=urn:btih:2DC67E49C139C7A101D1EBCBE1F6B6C0840DB72D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Universal Copy — это самый быстрый способ копиров�
 ```bash
 magnet:?xt=urn:btih:A551C1F644AECC9E8AEE39C007FB19ED37AC3435
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Ocean Aquarium - это живые обои. Вы можете увидеть 3D
 magnet:?xt=urn:btih:A6ED5B2F40A0C53EF6407905F27A7039294629F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ vRGB LED IR Remote Control v4.7 [Ru/Multi]
 magnet:?xt=urn:btih:6FD4C3F23DA3D17916117BE72DEAA2BACE184DC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:6FD4C3F23DA3D17916117BE72DEAA2BACE184DC7
 ```bash
 magnet:?xt=urn:btih:65DFE2634C723941FE0F6435E6E59ADC3061FEE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

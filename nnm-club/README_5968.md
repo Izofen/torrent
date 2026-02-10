@@ -22,6 +22,8 @@ Mariah Carey - Greatest Hits (2001) 2 CD [OGG Vorbis|480 Kbps] <Hip Hop, Funk / 
 magnet:?xt=urn:btih:C72BA3BA0806DB1EDE0BF76C19BA83C69D71D543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Elvenking - Reader Of The Runes - Divination (2019) Japanese Edition [FLAC|Lossl
 magnet:?xt=urn:btih:F596635E894E3C5EA1591882667B268FCCF29AEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:F596635E894E3C5EA1591882667B268FCCF29AEC
 ```bash
 magnet:?xt=urn:btih:F62E5D1008345EFA03E2D7E81297581E496F43DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:F62E5D1008345EFA03E2D7E81297581E496F43DC
 magnet:?xt=urn:btih:C462CAE44813863BAE8EE5FB3AD9766131FED1FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 ```bash
 magnet:?xt=urn:btih:656EE481C0CC416CC92DBF32073754E2A303C282
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Disc 1:
 magnet:?xt=urn:btih:23879C2AAA9C51782C86D00692599D20F96C6B85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ W. P. Alex Remark / Space Blaster - Pyramid / Magic Fly (1996) [OGG Vorbis|450 K
 ```bash
 magnet:?xt=urn:btih:19BDB367DCA37A2DAB6E52A4640508F8AE277EC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:19BDB367DCA37A2DAB6E52A4640508F8AE277EC7
 magnet:?xt=urn:btih:FDB7780918B8ABCAFB95E743A756CD835D07C6A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:FDB7780918B8ABCAFB95E743A756CD835D07C6A5
 ```bash
 magnet:?xt=urn:btih:00DA58FD48816D3705A3359D31E4A1562DE10653
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Tomislav Goluban - 20 Years on the Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Bl
 magnet:?xt=urn:btih:D0C7A98BE9812CAFA3FF8F848D5535D840A412DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Whirlwind - 1714 (2022) [MP3|320 Kbps] <Heavy Metal>
 magnet:?xt=urn:btih:33C5BD7E056E03F9CFB4F1993E96811F747EDD43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ magnet:?xt=urn:btih:33C5BD7E056E03F9CFB4F1993E96811F747EDD43
 magnet:?xt=urn:btih:3CED683E10CD94414C909816221E479901B64AD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ RadioMaximus 2.32 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6F8F7945EB9C699A544C599D12E361D80DF4D259
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Plus Messenger - неофициальное приложение для обме
 magnet:?xt=urn:btih:3D5E11F3E8AC1DB79789D1CF39EB4723BCB23587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:3D5E11F3E8AC1DB79789D1CF39EB4723BCB23587
 ```bash
 magnet:?xt=urn:btih:048045257B82C275C8A9351640C8B14A7D9C52D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:37B51453A3A1FE74A89C91FB31D42533CD15EB90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ Anima Hereticae - Descended from the Mountains (2023) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:1691BE8C8AFABF7D3F07D10E2550D5EA0C5CCAC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:1691BE8C8AFABF7D3F07D10E2550D5EA0C5CCAC5
 ```bash
 magnet:?xt=urn:btih:A2EE0BAB0E0DC48AA8D739CE1248C722E95CA1A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:A2EE0BAB0E0DC48AA8D739CE1248C722E95CA1A7
 ```bash
 magnet:?xt=urn:btih:3EDC49818995B7F10B451866FA20063D6B0D38E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ Black Stone Cherry - Screamin' At The Sky (2023) [MP3|320 Kbps] <Southern Rock, 
 magnet:?xt=urn:btih:EDD11E935CFDFEB5B2613FC5B5A4002846DB60F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +573,8 @@ Paragon - Controlled Demolition (2019) [FLAC|Lossless|image + .cue] <Power, Spee
 magnet:?xt=urn:btih:DE6DEF15C56C57AB6EA1457D32383922D4E83040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:DE6DEF15C56C57AB6EA1457D32383922D4E83040
 ```bash
 magnet:?xt=urn:btih:A251DAB37C9DCDA08F639BED6D5E601F1E5896F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:A251DAB37C9DCDA08F639BED6D5E601F1E5896F3
 magnet:?xt=urn:btih:ACDC034B934E52146F4CAF99E18108C7548C0DAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:ACDC034B934E52146F4CAF99E18108C7548C0DAB
 ```bash
 magnet:?xt=urn:btih:E276A113288C542165FE36754C88A9B1DC5A1B9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:E276A113288C542165FE36754C88A9B1DC5A1B9D
 magnet:?xt=urn:btih:5D6A10E7514EA8FB20AF8F8164F8158B23058EB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ Microsoft Visual Studio Professional 2019 - полный набор инстру
 ```bash
 magnet:?xt=urn:btih:A06A999E37B15F2F01182E67A88DC9355D2EF67F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

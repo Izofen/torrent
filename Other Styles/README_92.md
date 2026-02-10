@@ -22,6 +22,8 @@ VA - Mirror's Edge (Collection Original Soundtrack) (2008-2016) [MP3|320 кб/с
 magnet:?xt=urn:btih:DFD0A59C54F4EB4A537772B5F4414991658DA40E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Vartra - Luna Noua (2019) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Ethereal, Do
 ```bash
 magnet:?xt=urn:btih:7A7CD6B0FEF44F6E8D49723DED58157380439533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Michael Giacchino - Star Trek Beyond / Стартрек: Бесконечнос�
 magnet:?xt=urn:btih:988DB1F52AD8FE0EC354C1E2E9B7A5EEE8BFE53F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Deep Forest & Gaudi - Epic Circuits (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambien
 ```bash
 magnet:?xt=urn:btih:1A46CEB1A0BFDF0392C0B7E0CD2DA815D41B6B07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA & Daniel Hart - Pete's Dragon  / Пит и его дракон (Original Moti
 magnet:?xt=urn:btih:7BC25BB8D15609D2BE62169B7038C40CD18A1B89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ VA & Daniel Hart - Pete's Dragon  / Пит и его дракон (Original Moti
 magnet:?xt=urn:btih:CD17C13FBFDF1B71C7FAFCADF9A2849A00A83499
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ Ilyin - EP-0002. Enemy (2019) [MP3|320 Kbps] <Instrumental, Neo-Classic, Metal>
 ```bash
 magnet:?xt=urn:btih:3FE38AEB34C5FB197F2665D5E2B402EACC2097AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +230,8 @@ X Cultures - One World, One People (1999) [MP3|320 кб/с]<New Age, Ethnic, Fol
 magnet:?xt=urn:btih:A171A0C7A8B4E93EE8A94CAA344ECFA7210C3078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +258,8 @@ Andrew Lockington - Землетрясение в Сан - Андреас / Ра
 ```bash
 magnet:?xt=urn:btih:94A5E1D27C772AE4E142AE7A574C61E89C4BC42D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +288,8 @@ Deva Premal & Miten with Manose - Songs For The Sangha (2015) [FLAC|Lossless]<Ne
 magnet:?xt=urn:btih:A941B857E4FAA4506D831795656F682C5C866C54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +316,8 @@ Catherine Duc - Voyager (2015) [MP3|320 кб/с]<New Age, Ambient, Celtic>
 ```bash
 magnet:?xt=urn:btih:C5408E3A8BE17A9659E2AD7BDECB020C09BF7143
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +346,8 @@ Shinnobu - The Enigma V (Masterminds) (2018) [MP3|320 Kbps] <New Age, Enigmatic>
 magnet:?xt=urn:btih:26EC4359CF115E8443CF54FA85531C5A276570AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +375,8 @@ Deep Forest, Gaudi - Epic Circuits (2018) [MP3|320 Kbps] <New age, Enigmatic>
 magnet:?xt=urn:btih:60BEE267885DFF2B710F0E677FE589CFEFE5834F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +400,8 @@ VA - Romantic & SAX (2011) [MP3|320 kbps]<Instrumental / saxophone>
 ```bash
 magnet:?xt=urn:btih:BFD8EAF296C8490010521E5F9FE296BB20DFD790
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +435,8 @@ World Hits Instrumental Vol.1
 magnet:?xt=urn:btih:D8B31C2B5AB839259B1EB4D28AE35D499FE96B70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +463,8 @@ Ennio Morricone - Allonsanfan (1978) [FLAC|image+.cue]<OST>
 ```bash
 magnet:?xt=urn:btih:F9E4B18F085F2AF8F5FE8F0EF606907BF71BAE05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +493,8 @@ Vartra - Basma (2022) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Ethereal, Doom M
 magnet:?xt=urn:btih:AB36687E5C7E950E8FC7DFE524A19C431B43A864
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +521,8 @@ Michael Forster - Piano Chill (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental
 ```bash
 magnet:?xt=urn:btih:0C26B3EEDBCB3C035718ED7CE181CB1B7D615A7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +551,8 @@ Jamestown Revival - San Isabel (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock>
 magnet:?xt=urn:btih:5B57AA23C5EB58C2F2821F2859A82ACA0DE49D99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +580,8 @@ VA - Simply Spa Chill (2010) 4CD[FLAC|image+.cue]<New Age, Meditative, Peaceful 
 magnet:?xt=urn:btih:E3B9581BFD6CDF8270D54151A2AF35025181C8D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +605,8 @@ Yogeshwara - 2 albums (1997, 2003) [MP3|112-256 kbps]<New age, Meditative, Mantr
 ```bash
 magnet:?xt=urn:btih:ED10BB6A1F21BDACDBA52DBFE66CC611FB7B4541
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +635,8 @@ VA - Latino Fitness 2017 (The Ultimate Latin Keep Fit Workout) [MP3|320 Kbps] <L
 magnet:?xt=urn:btih:ED636F73E34A8E381A430355E1C1AFAF2B0FA01D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +663,8 @@ Gregorian - Masters Of Chant Chapter II (+bonus tracks) (2001) [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:DB8C761DDC848ADC7C71C40DB819FB1675157458
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +693,8 @@ The Blue-Gold Shore of the Beyond (Лазурно-Золотой Берег За
 magnet:?xt=urn:btih:576FEF36A3FF23015185EA3DC3C81434CA1A0A6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +722,8 @@ Michael Giacchino - Мир Юрского периода / Jurassic World (Origi
 magnet:?xt=urn:btih:D9A320A68F498A9E7323C4ACF3B2E631D784CBD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ Midori - Island Paradise (2015) [MP3|320 кб/с]<New Age>
 ```bash
 magnet:?xt=urn:btih:99949D17355FCE711C8475FACA97AD2B394D9A34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

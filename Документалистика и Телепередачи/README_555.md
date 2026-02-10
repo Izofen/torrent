@@ -1,3 +1,29 @@
+###  Публикация: 1521762   (763447) от 04.01.2022
+
+Пир тварей. Круговорот жизни / Banquet of the Beasts - The Cycle of Life (2021) HDTVRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что происходит, когда в чаще леса погибает животное? Наука преследует мрачную задачу: изучить во всех подробностях то, что происходит с мертвыми животными в дикой природе.Производство: Германия, Marco Polo Film AGЖанр: документальный, природа, флора, фаунаРежиссер: Даниэла Пульверер, Борис РаимПеревод: одноголосый профессиональный (Iyuno-SDI Group Russia)Субтитры: отсутствуютПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:368620CFEFED4F3DCDF965BB6CC3FEBF0C072200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280124   (763516) от 01.02.2019
 
 Храмы Ангкор, Камбоджа / Temples of Angkor, Cambodia (2015) WEBRip [VP9/2160p] [4K, UHD]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:247EABED577F12B474B2B4CFDA3F4CA456D5FF45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:247EABED577F12B474B2B4CFDA3F4CA456D5FF45
 magnet:?xt=urn:btih:0DE9E00DFF776EEF502937D42680CAED152D7F4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:0DE9E00DFF776EEF502937D42680CAED152D7F4B
 magnet:?xt=urn:btih:EE4FE02064B94205FE4C78C93548F2BD94AFB80B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:EE4FE02064B94205FE4C78C93548F2BD94AFB80B
 ```bash
 magnet:?xt=urn:btih:DED847C47207DA9A9D6AD8C7E3388413B2EB41D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:DED847C47207DA9A9D6AD8C7E3388413B2EB41D4
 magnet:?xt=urn:btih:DDBCE763AC9064C52908A5C9F3DDD359625A7F5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:DDBCE763AC9064C52908A5C9F3DDD359625A7F5D
 ```bash
 magnet:?xt=urn:btih:2814CD0FC4FD3E517605D221041C98DAF9ACD2AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:2814CD0FC4FD3E517605D221041C98DAF9ACD2AA
 magnet:?xt=urn:btih:DE3B3875AC9308C417CA83496DD841D364C570BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:DE3B3875AC9308C417CA83496DD841D364C570BB
 ```bash
 magnet:?xt=urn:btih:8B4F86CF397724A58FF7FADFBF1EE2E46A929F1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:8B4F86CF397724A58FF7FADFBF1EE2E46A929F1D
 magnet:?xt=urn:btih:2983726A5E63D8E9467F6B9A985E8AC266935B5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:2983726A5E63D8E9467F6B9A985E8AC266935B5B
 ```bash
 magnet:?xt=urn:btih:D7E5CE94D2E4C056DFBEE2E4E6FEB0FB40C446F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:D7E5CE94D2E4C056DFBEE2E4E6FEB0FB40C446F7
 magnet:?xt=urn:btih:C3D190062C7115E9C7AD9F2B2130E2CDDFFF6EC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:C3D190062C7115E9C7AD9F2B2130E2CDDFFF6EC9
 ```bash
 magnet:?xt=urn:btih:56D2F5AB4693224B4AEE3D9A81E699C8DF0D4A6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:56D2F5AB4693224B4AEE3D9A81E699C8DF0D4A6E
 magnet:?xt=urn:btih:D238FD0A221E7ACA98F746303A78290BB0ED5771
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:D238FD0A221E7ACA98F746303A78290BB0ED5771
 ```bash
 magnet:?xt=urn:btih:33C6019172332280BBFBF330D3804198D3FA374B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:33C6019172332280BBFBF330D3804198D3FA374B
 magnet:?xt=urn:btih:A5362CAF5D777CFC83196EB70675F14397149778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:A5362CAF5D777CFC83196EB70675F14397149778
 ```bash
 magnet:?xt=urn:btih:89B1A6E9F70DAC81B6D0B0FC47BDBC5F23D64CF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:89B1A6E9F70DAC81B6D0B0FC47BDBC5F23D64CF3
 magnet:?xt=urn:btih:EE08662238F13D376A445D3CBDB47D7F886A7CCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:EE08662238F13D376A445D3CBDB47D7F886A7CCE
 ```bash
 magnet:?xt=urn:btih:79ECD534C3BC01AC19C4E160AFEA7496699DB277
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:79ECD534C3BC01AC19C4E160AFEA7496699DB277
 magnet:?xt=urn:btih:D1A7E8B35F8C1EE2679CBA2CA94C8D56CB3ECC29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:D1A7E8B35F8C1EE2679CBA2CA94C8D56CB3ECC29
 ```bash
 magnet:?xt=urn:btih:BDB50D21C9E7D20A247E4674DBFFB79C2B25A063
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:BDB50D21C9E7D20A247E4674DBFFB79C2B25A063
 magnet:?xt=urn:btih:8738AB62A19CF7FFD25242111D84D3E22F4CEBEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:8738AB62A19CF7FFD25242111D84D3E22F4CEBEE
 ```bash
 magnet:?xt=urn:btih:FE4431D8D36E4E21F58F2960F1E09EAA7D7D68D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:FE4431D8D36E4E21F58F2960F1E09EAA7D7D68D7
 magnet:?xt=urn:btih:ECDC5A956A9D77A9314CFFEDBC881C41770B1BA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:ECDC5A956A9D77A9314CFFEDBC881C41770B1BA4
 ```bash
 magnet:?xt=urn:btih:A0E13481D7C4AEB5E32BE3F1155FF1F9A1D18677
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:A0E13481D7C4AEB5E32BE3F1155FF1F9A1D18677
 magnet:?xt=urn:btih:F08F7F54CC43BD7CAFAA1DEA9B89B2ABC3B18F38
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521737   (764416) от 03.01.2022
-
-Рита Морено: девушка, решившая рискнуть / Rita Moreno: Just a Girl Who Decided to Go for It (2021) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_764416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рита Морено сияет на сцене и киноэкране вот уже более 70 лет. На пути своего становления титулованная актриса бросила вызов своему пуританскому воспитанию и откровенному расизму. В документальном фильме «Рита Морено: девушка, решившая рискнуть» рассказывается не только о расизме, с которым пришлось столкнуться легендарной актрисе, но и об испытаниях, выпавших на (   Читать дальше...   )Производство: США, Act III Productions, Artemis Rising Foundation, Maramara Films, WNETЖанр: документальный, биография, кинематографРежиссер: Мариэм Перес РиераПеревод: многоголосый профессиональныйСубтитры: русскиеПродолжительность: 01:30:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D7413965B0A65F4A12AD3CDD3C9E82BD660A2A0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

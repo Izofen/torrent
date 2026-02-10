@@ -19,6 +19,8 @@ World Championship Boxing Manager 2 является продолжением в
 magnet:?xt=urn:btih:9333A2063620729E925EEE185EB560E1F7362C0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Clone Drone in the Danger Zone – увлекательная аркада, в �
 ```bash
 magnet:?xt=urn:btih:F0ABBCBF39EB079A80BC87F4E9B12202407523B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PixARK - это огромный мир дикой природы, злобны�
 magnet:?xt=urn:btih:1E24752BF193D9EACFB257AAAF761A03CDCF6759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Antivine - это приключенческая головоломка с тр�
 ```bash
 magnet:?xt=urn:btih:0EC07CDCF50ADF93D566BD096A44040A148C9712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ There Is No Light (2022) [Ru/Multi] (1.1.7.1 ) License GOG
 magnet:?xt=urn:btih:4FD1F3ADE834159EEA7010333A8010D53073FADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Criminal Expert (2023) [Multi] (1.4) License GOG
 ```bash
 magnet:?xt=urn:btih:E4630128B4B87243714D9D0C98DFA1085C1563C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Prison Princess (2020) [Multi] (1.1) License GOG [18+]
 magnet:?xt=urn:btih:FA3998D02244B067216938E87A68D2E264B9DE81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Unforeseen Incidents — интерактивная детективная иг�
 ```bash
 magnet:?xt=urn:btih:1AF94693D525A61E945D5501C4AEA7CF7677A48F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ FixFox - это научно-фантастическая приключенче
 magnet:?xt=urn:btih:155D23C5BAD7C907CF531F94B7F6498CFB599787
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Broken Pieces - приключенческая игра, сюжет которо
 ```bash
 magnet:?xt=urn:btih:3EAFF2EDDEC5757C9300CA1B62DF63A1E7881F5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The friends of Ringo Ishikawa – это сплав из RPG, beat 'em up и с�
 magnet:?xt=urn:btih:7608F9318BCD895F77339461882A2DC85A0B041E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Skater XL - The Ultimate Skateboarding Game – симулятор скейтб�
 ```bash
 magnet:?xt=urn:btih:9B8D0E2FF29588FEC07AB1BE4EA40D7C934D77C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Din's Legacy - изометрическая RPG, выполненная в ду�
 magnet:?xt=urn:btih:BA9B359DE31590165FD113C9C5B6F681862F6BD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ B.I.O.T.A. (2022) [Ru/Multi] (59744/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:42FB5DD0D778CCD9615E0B1B5583BCB82E3AD864
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Lost in Play (2022) [Ru/Multi] (1.0.45) License GOG
 magnet:?xt=urn:btih:2CB1858A46D9BF850EBDD773D40B8CA7C81DD872
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Autobahn Police Simulator 3 позволяет вам играть за офиц
 ```bash
 magnet:?xt=urn:btih:F1E549EDBA1D12CD84A5876B9C6B24F9611649F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Indoorlands (2022) [Multi] (1.0.0f3) License GOG
 magnet:?xt=urn:btih:2780B8875BEE32CEF130CA1035D6AD3C26A43804
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (20221017_1052/dlc) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:7D756C67B3DC1FA12AEDF3BC0A8FEFD3C18BB410
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ We Happy Few - история шайки не слишком приятных, �
 magnet:?xt=urn:btih:C507FF8655B10F27194346D9C36C6CCB94F6B1D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Demetrios - The BIG Cynical Adventure (2016) [Ru/Multi] (1.2.1) License GOG
 ```bash
 magnet:?xt=urn:btih:BBBFA80943A5A0C0D3FB0003D6E1051D22E3124A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Plague Doctor of Wippra (2022) [Multi] (1.0.3) License GOG
 magnet:?xt=urn:btih:7F5D2AB68968F22B1163C015B0AF00189D365981
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Stellaris (2016) [Ru/Multi] (3.5.1/dlc) License FAiRLIGHT [Digital Anniversary E
 ```bash
 magnet:?xt=urn:btih:759973AFFF3BA83A4546E1F7C0E80E42E446AAFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ As Dusk Falls — это оригинальная интерактивная д�
 magnet:?xt=urn:btih:AB13018EE0FCEB293F75C57B7975690AAAC1397B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ TV189 – это название биологического оружия, в�
 ```bash
 magnet:?xt=urn:btih:7113424E0ECD5F8073E6222F25A65B93AA678BD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Last Call BBS переносит геймеров во времена эпохи
 magnet:?xt=urn:btih:BFA3B2D16FEB569A3747538EF1FEFF80A4543936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Sins of a Solar Empire: Trinity (2010) [En] (1.38) License GOG
 ```bash
 magnet:?xt=urn:btih:1D31E8F7EF5A9163E0DA9A18AFAD4E83F01B53FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -28,6 +28,8 @@ Grollo-Capitanata - Aura Magic (2006) [MP3|320 кб/с]<New age>
 magnet:?xt=urn:btih:525540B6EC57A5FCFDA9F6EBD60C0E7030EFB8C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ Inti Cesar Malasquez - Searching For The Trail (1995) [MP3|320 кб/с]<New age,
 ```bash
 magnet:?xt=urn:btih:38E1813CAD7A929762DBE91B7A8053C15037F2C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ Eivoer Polsdoeter - 7 albums (2004-2010) [mp3|256-320 kbps] <Folk Rock, Jazz, Al
 magnet:?xt=urn:btih:CEDFD51E35C8EF52475E15B483AEA8C066CC10B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +122,8 @@ AguaFlames - Ti Qua? (2008) [MP3|320 кб/с]<Chillout/Lounge>
 ```bash
 magnet:?xt=urn:btih:66EC147031054990E34BE8EA09FD5F5451D8FFA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +157,8 @@ Vergissmeinnicht - 2 albums (2008-2011) [mp3|320 kbps] <Neofolk, Ambient>
 magnet:?xt=urn:btih:5DA5BB37DDF3DAE69C203F1369E14D6C8E968144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +185,8 @@ VA - Arcane League of Legends: Season 2 (Soundtrack from the Animated Series) (2
 ```bash
 magnet:?xt=urn:btih:130573064FD08C595A2340D0D76C4D1439285A5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +215,8 @@ VA - The Orient Collective: Moon Over Marrakesh (2025) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:8E0D25C226198371A95568100572BE0BBB0722ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +242,8 @@ VA - Брат-1, Брат-2. Музыка к фильму, Брат-2. За ка
 ```bash
 magnet:?xt=urn:btih:C9C7A3F1B17AD42460F81D33CEA9CC7ABDB5EFA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +272,8 @@ Iana - Native Dancer, Vol. 2 (2013) [MP3|320 Kbps] <Native American, New Age, Wo
 magnet:?xt=urn:btih:38D409E1E3D3B4BBC8556613B505C846523A3266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +300,8 @@ VA - The Orient Collective: Skylands (2024) [FLAC|Lossless|WEB-DL|tracks] <World
 ```bash
 magnet:?xt=urn:btih:5FED498FA70FA3B38E35B48E0E0A0A357D4100E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +330,8 @@ VA - The Orient Collective: The Guardian (2024) [FLAC|Lossless|WEB-DL|tracks] <W
 magnet:?xt=urn:btih:82C4969557B1D22E1784BAA505C00A5D44D4504F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +359,8 @@ Radio Wolf and Parallels - Proximity (2020) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:3387063CCDB14FC04E17AEA03A27A3126FA20315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +386,8 @@ Songs 4 Hate  & Devotion: (01:01:26)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +422,8 @@ The Soil Bleeds Black - 8 albums (1996-2009) [mp3|192-320 kbps] <Medieval, Neofo
 magnet:?xt=urn:btih:A43E5B2EA1B225C506B9C33E8C89CE7AB6D665ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +447,8 @@ Wolfenmond - 5 альбомов (2001-2009) [MP3|192-320 кб/с]<Medieval/Folk>
 ```bash
 magnet:?xt=urn:btih:8F0BED7245815104830118D2ECF625AB9FD0FC8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +483,8 @@ VA - Relax. Anti Stress Vol. 2 (2012) [MP3|320 кб/с]<Relax, Meditation>
 magnet:?xt=urn:btih:9895AB776287663E1645B246DCE6F08B47246254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +517,8 @@ Bob Dylan - World Gone Wrong (1993) [FLAC|Lossless]<Folk, Blues>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +553,8 @@ Blackmore's Night - Shadow Of The Moon (1997) [FLAC|Lossless]<Folk Rock>
 magnet:?xt=urn:btih:70737AF0AE11F549F68F7CB9442D8785510C2ECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +581,8 @@ Wynonna Judd - Wynonna (1992) CD, Album, Club Edition [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:7E77B7D48BF35A3EE3E73D780683A5512AC55484
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +611,8 @@ Danny Wright - Curtain Call (1993) [FLAC|Lossless|tracks + .cue] <New Age, Conte
 magnet:?xt=urn:btih:5857EDE7A4FEFB4F9DE34943D3D9C1EA67BE1FF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +639,8 @@ VA - The Orient Collective: Winter Collection 2024 [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:F26B5410614E35299F2B6E39906EF6EA08F82521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +669,8 @@ Ani DiFranco - Evolve (2003) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Jazz>
 magnet:?xt=urn:btih:DEBE1D42D6F945FC94769CBC6F17BECC3B61F405
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +697,8 @@ VA - The Orient Collective: The Ancient (2024) [FLAC|Lossless|WEB-DL|tracks] <Wo
 ```bash
 magnet:?xt=urn:btih:72BB068E1FD67FF7AA123F523477C8558ED433E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -681,6 +727,8 @@ VA - The Orient Collective: The East (2024) [FLAC|Lossless|WEB-DL|tracks] <World
 magnet:?xt=urn:btih:44B604422C97BE20BA3E7C58035C8FC7FC1E932A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -708,6 +756,8 @@ VA - The Orient Collective: Shadow Seeker (2024) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:8A8670DE0F62645115BE45B39C2DEA58BE5A49F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -734,6 +784,8 @@ Tim Janis - The Promise (2005) [FLAC|Lossless|tracks + .cue] <New Age, Instrumen
 ```bash
 magnet:?xt=urn:btih:0636AFC3C6F0E3D2BA99C26CF42C3D7BA4251DD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Keep It Disco Vol. 01 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funk
 magnet:?xt=urn:btih:F200323114F8AA81784FAD2ED7373E6647100755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Consequential - MicroComposed 1980-86 (2018) LP [MP3|320 Kbps] <Electronic, Synt
 ```bash
 magnet:?xt=urn:btih:1287522F66F161F9BC94F537DB988FA193DC30CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Keep It Disco Vol. 03 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funk
 magnet:?xt=urn:btih:E9DAAA7BEEB5E8002854DBDD227C5611BF8BBE7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Keep It Disco Vol. 02 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funk
 ```bash
 magnet:?xt=urn:btih:FD80131ACE5E49064A2F6DB0DC4E7E6CA44839B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Ellie Goulding - Delirium (Deluxe Edition) (2015) [FLAC|Image+cue]<Pop>
 magnet:?xt=urn:btih:8EEB9CB2422AB13B9C6008554F83F4AB93CFD392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:8EEB9CB2422AB13B9C6008554F83F4AB93CFD392
 ```bash
 magnet:?xt=urn:btih:6C93395CC89387399DA37874E580C7A796A725CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ The Dark Tenor - Symphony Of Light (2014) Deluxe Version [OGG|469-528 кб/с]<N
 magnet:?xt=urn:btih:0BEACF71E5AD62014B0191AA249BB92ABB585C4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:0BEACF71E5AD62014B0191AA249BB92ABB585C4A
 ```bash
 magnet:?xt=urn:btih:769CFE1C5DD3ED3122EA139AC2295D8E282B7DB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Hedley - Hello (2015) Deluxe Edition [FLAC|tracks|WEB-DL]<Pop,Punk,Rock>
 magnet:?xt=urn:btih:CD9DF2E0FA903890C028F4EC395F9DDAD591DDBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ VA - Acoustic Classic Rock Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop
 magnet:?xt=urn:btih:E3CE7D4AE91B19B59EBFA2F87ABBDA58BE9AAA9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ Karel Gott - Hinter Der Sonne-Lieder, Die Ich Im Herzen Trage (2011) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:23ACB17975236D83206542466500D24342896A83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ magnet:?xt=urn:btih:23ACB17975236D83206542466500D24342896A83
 magnet:?xt=urn:btih:5F245ECC271921F8A79ED4FACC2A42BC7522A3C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ VA - Best Radio Tracks, Vol. 24 (2022) [MP3|320 Kbps] <Dance, Pop, Electronic>
 ```bash
 magnet:?xt=urn:btih:3A4C034FF75238FBD09BF20CB51D28EBE64F30BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ Bjork (Björk) - Fossora (2022) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Art Pop
 magnet:?xt=urn:btih:E3F47079A342391C7900580481C90B5D1E93A9AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ Bjork (Björk) - Fossora (2022) [MP3|320 Kbps] <Electronic, indie, Experimental,
 ```bash
 magnet:?xt=urn:btih:F204AC3C2658273AF352557D45BD76652D962D5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ magnet:?xt=urn:btih:F204AC3C2658273AF352557D45BD76652D962D5C
 magnet:?xt=urn:btih:4807E153A1F2D6718777F641FDE6948E6DB21335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ Ricky Martin - Ricky Martin (1999) [FLAC|image + .cue]<Pop, Latin>
 ```bash
 magnet:?xt=urn:btih:D9BB3E4A05B33719AAB71FC8C48CDFA92903DFD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ CD - 1:
 magnet:?xt=urn:btih:2AADC518161972748C92F266E1A991891D1AD546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ VA - Романтические дуэты 2 (2005) [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:07141BDEB8FA1B1603AFE7256A79782D32EAA96D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ VA - Высшая лига 3 (2004) [FLAC|Lossless|tracks + .cue]<Pop>
 magnet:?xt=urn:btih:797BB298AE51A93751187E1F2530AA088BEBA9B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ magnet:?xt=urn:btih:797BB298AE51A93751187E1F2530AA088BEBA9B3
 ```bash
 magnet:?xt=urn:btih:DF7C62664F97BF1463CC1C4B38FFB8569CFE50C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ VA - Holiday Christmas 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
 magnet:?xt=urn:btih:065CD4D63DA354B29E735FD7C490CFAFC4592C14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ VA - 50 Chart Hits of 2018: The Winter Workout Soundtrack [MP3|320 Kbps] <Euro D
 ```bash
 magnet:?xt=urn:btih:47FB24DD8A108E34401E068E6FE28DD0F38E2471
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +686,8 @@ Army of Lovers - Massive Luxury Overdose (1992) U.S. Edition [MP3|320 Kbps] <Pop
 magnet:?xt=urn:btih:49A6209D4C0CF0BA42D3E60402A6C698447ED130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ VA - The Best Pop Music Of The 20th Century: The Millenium Collection (1998) 20C
 magnet:?xt=urn:btih:1D509BD32446FF3719BA6B0C6C2B2B35BC4236DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ Johnny Hates Jazz - Magnetized (2013) InterAction Music [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:597C7A1005188AB29BC10B4D76B4324CB9954161
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

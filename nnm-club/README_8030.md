@@ -22,6 +22,8 @@ B.O.S.C.H. - Parasit (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial-Metal, Roc
 magnet:?xt=urn:btih:FB87657D33A6DCED0B3BC650362AFF5201267F01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:FB87657D33A6DCED0B3BC650362AFF5201267F01
 magnet:?xt=urn:btih:AA95B657959C03B527844655AC6DEC1A6CC101E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:AA95B657959C03B527844655AC6DEC1A6CC101E9
 ```bash
 magnet:?xt=urn:btih:C9082DF7C610F97C2D0E2E9157FCD334EEFBB4DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Majesty - Back To Attack (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 magnet:?xt=urn:btih:5E55FF0CE8B7BAC82DC1702FE3D4DD4EB5300264
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Northlane - 6 альбомов + 1 EP (2010-2022) [MP3|320 кб/с]<Progressive 
 magnet:?xt=urn:btih:3D75C6BE85F9350A75CD806AE797E82997FD843C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Paste хранит всё, что вы когда-либо копировали 
 magnet:?xt=urn:btih:45C33F29DA15AC08EDB746DBD04FF52934CB9968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:45C33F29DA15AC08EDB746DBD04FF52934CB9968
 ```bash
 magnet:?xt=urn:btih:01E0C4F3836C4F680777D991F438867454558958
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:01E0C4F3836C4F680777D991F438867454558958
 magnet:?xt=urn:btih:4543CFB46710C34E99F791A36051EE546F7FE13E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:4543CFB46710C34E99F791A36051EE546F7FE13E
 ```bash
 magnet:?xt=urn:btih:7F25C9EF401CF26D8D188A227C3E87733FB3AA70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ VA - Record Super Chart 08.04.2023 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:B1C190B90217B5EBBB504E24D877FD33AF16D332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ ZippO - Фитиль 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:0F71399FF688B89C535A711299293771DE1CA50F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ CD1:
 magnet:?xt=urn:btih:E7B072C523F8B2328B48F6A836F04EB72C9F5D9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ Icecream Screen Recorder – простая и бесплатная програ
 ```bash
 magnet:?xt=urn:btih:8CA80825674FC4B0E36CD1A3B2B206070A8DF661
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:8CA80825674FC4B0E36CD1A3B2B206070A8DF661
 magnet:?xt=urn:btih:FE920DAEC494F3D8345F2C6B2B1046D85AECB946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:FE920DAEC494F3D8345F2C6B2B1046D85AECB946
 ```bash
 magnet:?xt=urn:btih:B76D8A9C5C68C6BEF62C2ECC354C08DE2CDC4F1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:B76D8A9C5C68C6BEF62C2ECC354C08DE2CDC4F1C
 magnet:?xt=urn:btih:E4CBB552B3B2549761FDA1FC4D02F27D53B86BB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ MotoGP. Этап 02. Гран-При Дохи. Квалификация. (03.04.
 ```bash
 magnet:?xt=urn:btih:325AC5A7352BCDBBBF68C69C24552B1488C1023D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ Hetman Uneraser Home / Office / Unlimited Edition 6.7 RePack (& Portable) by Try
 magnet:?xt=urn:btih:3B9A848E5ADAF1CEFEC716B8A2A2EA6B773C80EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ AnyMP4 Mac Blu-ray Player 6.3.32 [En]
 magnet:?xt=urn:btih:340426B535A9CC2321E8EE798F48567C6D2F7424
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:340426B535A9CC2321E8EE798F48567C6D2F7424
 ```bash
 magnet:?xt=urn:btih:3C8397D7A15E83DB19B8355CB071FC322078B35A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ Woody Herman - 1940 (2002) Classics [FLAC|Lossless|image + .cue] <Swing, Big Ban
 magnet:?xt=urn:btih:939056A82BCF48628FC1FE15FA89FD3FAFDB2C3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ VA - 50 Hits Spring (2023) [MP3|320 Kbps] <Latin Dance, Reggae, Dancehall, Synth
 magnet:?xt=urn:btih:7BA27F1B539091EBAE6DD12C1F19045E1562BC2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ Metal Fighter Miku | Металлический воин Мику [1994, TV, 13 
 magnet:?xt=urn:btih:F373A3F7800E053816322BAD70E50B33E0EEF727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:F373A3F7800E053816322BAD70E50B33E0EEF727
 ```bash
 magnet:?xt=urn:btih:2DE9B1A90E884E014DAB44982B0CDAA7279DEE06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ Schoolism, Wouter Tulp | Digital Painting Workout with Wouter Tulp Part 1 (2020)
 magnet:?xt=urn:btih:743089BA27268F1A5F5F17586CA22E5BA371D26D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ KCNcrew Pack  -  это огромнейший сборник серийнико
 ```bash
 magnet:?xt=urn:btih:2FADB1917228D03D955B0E04D4883BD23C15A9BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

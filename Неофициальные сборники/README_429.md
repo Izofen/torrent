@@ -1,3 +1,32 @@
+###  Публикация: 1221893   (689310) от 27.04.2018
+
+VA - The Rhythms Of Disco (2018) vol.2 [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A' La Carte - Price Of Love (3:58)
+02. Abba - Gimme! Gimme! Gimme! (A Man After Midnight) (4:50)
+03. Afric Simone - Todo Pasara Maria (3:16)
+04. Anthony Monn - Johnny Und Mary (3:36)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 05:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263889797B0E009A9A0AC27A3FB5AD625A31C4B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134302   (689371) от 15.05.2017
 
 VA - Hot Future Dancefloor Tracks (2017) [MP3|320 Kbps] <R&B, New Jack Swing, Latin, Future House, Reggae, Trap>
@@ -21,6 +50,8 @@ VA - Hot Future Dancefloor Tracks (2017) [MP3|320 Kbps] <R&B, New Jack Swing, La
 ```bash
 magnet:?xt=urn:btih:7A890D823FFCD1C1D37409669459F7E245CA9581
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ magnet:?xt=urn:btih:7A890D823FFCD1C1D37409669459F7E245CA9581
 magnet:?xt=urn:btih:232FF4B10F3D9C372E304C2D8E64E15BB99A917C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ VA - The Light And Warm (2018) [MP3|320 Kbps] <New Age, Ambient, Relaxation,>
 magnet:?xt=urn:btih:AF5AF612D8180E5B347A60480B864A3FDFB72C9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +137,8 @@ VA - Hed Kandi Beach Body (2016) [MP3|320 Kbps] <House, Deep House, Disco>
 ```bash
 magnet:?xt=urn:btih:792C1C6821414E0CDBAAD536E01F5AB2BE57E86C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +173,8 @@ VA - Калина Красная - Лучшее (2012) [MP3|128 кб/с]<Шан�
 magnet:?xt=urn:btih:E6621C6371BE4C960DB804330A9A4C53EA8008D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +202,8 @@ VA - Time Paradox: Psy Trance Compilation (2018) [MP3|320 Kbps] <Psychedelic Tra
 magnet:?xt=urn:btih:10F8F60A912D216BF3EBD9B9D1BAE617C7CCCCC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +227,8 @@ Elton John - Sorry Seems To Be The Hardest Word (2019) Radio Remix [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:6DB34C9E17E1507CE85C5D3B2E0F770184B20ECF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +257,8 @@ VA - Легенды ВИА 70-80-х мы из СССР (2016) [MP3|320 кб/с] 
 magnet:?xt=urn:btih:EE48712BDD2D6E6B054C4B0B324511D5B3B99F59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +285,8 @@ VA - Romantic 80s (2016) [MP3|320 кб/с] <Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:9F4F784F290826A7459727377EC33A68871220FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +321,8 @@ VA - Шоферской хитовичок в дорогу Vol. 3 (2012) [MP3|25
 magnet:?xt=urn:btih:2B982CC655123DB8DABABF176843C4A2D4A2E182
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +349,8 @@ VA - Magic Moment: Original European Dance Mix (2019) [MP3|320 Kbps] <Pop, Dance
 ```bash
 magnet:?xt=urn:btih:210C9FDADFD43BF98E3E578F8E8EF9AB7BA3A317
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +379,8 @@ VA - Hits of My Soul Vol. 01 (2016) [MP3|320 кб/с]<Deep House, House, Progres
 magnet:?xt=urn:btih:23B8B6C9C22092B07FAE97E3EFB4FD77CB2AD208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +407,8 @@ Billy F Gibbons - Vagabond Man (2022) 2CD, Compilation [MP3|320 Kbps] <Blues Roc
 ```bash
 magnet:?xt=urn:btih:E97A5DF46B93954E27C52884E5C9C89B4A4172C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +437,8 @@ VA - Make Love, not War (2022) 2CD [MP3|320 Kbps] <Rock, Pop, Blues>
 magnet:?xt=urn:btih:91AE1E9F60027A15DBD85B65F299340353716B7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +465,8 @@ VA - Music News vol.170 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
 ```bash
 magnet:?xt=urn:btih:0CBAB15852F322A03DF0B64EA25B341B01598096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +495,8 @@ VA - Ambient Jazz: Most Popular Jazz Sounds for Restaurant and Time for Dinner (
 magnet:?xt=urn:btih:649D7D2AA25C0018EE565E5903E44ED281978B55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +523,8 @@ VA - Дискотека забытых хитов (2017) [MP3|320 Kbps] <Disco, 
 ```bash
 magnet:?xt=urn:btih:C687F25602693816194CAA8FDEDCA6D260BC9DD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +553,8 @@ VA - Лучшие хитовые треки в стиле Electro, Deep, Techno 
 magnet:?xt=urn:btih:A9E67AE3F1578FF1352D43F95C33685A5824F08B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +581,8 @@ VA - Music For Easy Running (2016) [MP3|320 кб/с] <Uplifting, Progressive Tra
 ```bash
 magnet:?xt=urn:btih:2A5890FFEC801B0F14D06B490EFCF549E6D210BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +611,8 @@ VA - African Daydreamer: Relax Set (2016) [MP3|320 кб/с] <Downtempo, Chillout
 magnet:?xt=urn:btih:BB332ECAB2428351131090C4727FADC0270A3669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +639,8 @@ VA - Woman Vocal In Jazz (2017) [MP3|192-320 Kbps] <Jazz, Smoot, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:E46FB1BAE88B69ACEDC6779E9CA226C81EDC1F43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +669,8 @@ VA - Disco Dance 90’s (2017) [MP3|320 Kbps] <EuroDance , Disco>
 magnet:?xt=urn:btih:1D12276DC78841005BF0B965DCFE62E868139296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +697,8 @@ VA - Melodic Techno [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Melodic Techno>
 ```bash
 magnet:?xt=urn:btih:AFAF2B913B7B02E48B8471E57CA05D6964650DC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +727,8 @@ VA - Весна Танцевальная (2017) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:69773E143C0952BC9A06776F5B02065F1E23F4E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -679,32 +756,7 @@ VA - Vocal Deep House Vol.28 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Deep Ho
 magnet:?xt=urn:btih:D30B86092E46CB6DB1F09C48A4DF07CD68C322CE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133621   (691308) от 14.05.2017
-
-VA - Весенний хит русского шансона. Сборник № 9 (2017) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691308.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Михаил Борисов - За Друзей 2:54
-002. Игорь Тузов - Ты Пацан По Жизни Не Грусти 4:03
-003. Эдуард Колбасин - Виза В Страну Любви 3:14
-004. Сергей Вольный - Поздняя Любовь 4:05(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14EDC421677514FFF371DE9A7348B12933FEFD00
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

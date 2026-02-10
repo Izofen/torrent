@@ -1,3 +1,32 @@
+###  Публикация: 1848907   (1053322) от 20.01.2026
+
+VA - Euro Hits 2024 (2024) [MP3|320 Kbps] <pop,dance,electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053322.jpg" />
+</div>
+
+
+###  Подробнее
+
+[5:06]. 001-Purple Disco Machine & Yung Bae & Tobi - Contact
+[3:32]. 002-Orville Peck & Kylie Minoque & Diplo - Midnight Ride
+[2:51]. 003-Jessie Murph - Cold
+[3:30]. 004-Dua Lipa - Training Season(   Читать дальше...   )Жанр: pop,dance,electronicПродолжительность: 6:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DD2287D7E749E4EFCED316F38A393A101E01E7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1848282   (1053479) от 23.01.2026
 
 RetroVinyl80 - Collection (2026) [MP3|~245 Kbps (V0)] <Disco, Dance, AI Music>
@@ -21,6 +50,8 @@ RetroVinyl80 - Collection (2026) [MP3|~245 Kbps (V0)] <Disco, Dance, AI Music>
 ```bash
 magnet:?xt=urn:btih:28635743BFC73D7B9F7BAC520811FB255346D1D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Summer Dance Explosion (2025) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:DDC4E50467A98D4D18B76F2064880432D8AF62A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ CosmoDance - Collection (2026) [MP3|320 Kbps] <Spacesynth, Synthdance>
 ```bash
 magnet:?xt=urn:btih:6FDBB27FDF0E1D3B4CDD0A6BF459275B4D0598BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - The Best Of Italo-Disco 2025 (2026) [MP3|320 Kbps] <Italo-Disco>
 magnet:?xt=urn:btih:C576008FAC30ED5801A7938C727F76C81BF8B12B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Music News For Forum vol.158 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:7870F21D302CAC5A2C4F55971B6B8E3345A886A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - No name compilation part 44 Electronic Assorted (2026) [MP3|320 Kbps] <Elec
 magnet:?xt=urn:btih:751C9842A9A9EB8533A1BD6AB9EC1BD6802C0B63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - No name compilation part 45 Electronic Assorted (2026) [MP3|320 Kbps] <Elec
 ```bash
 magnet:?xt=urn:btih:7210E10252E0BF7F2FDF09A01871730FE9AAFE19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ Ai - No name compilation part 46 Slow Pop Rock Ballad (2026) [MP3|320 Kbps] <Slo
 magnet:?xt=urn:btih:7328AC30A97698F808926E3B32DC411D50BFA8BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ Jupiter Panic - Collection [MP3|320 Kbps] <New Age, Ambient>
 ```bash
 magnet:?xt=urn:btih:05B678CCD23B786461B3CA1715DC21A33B18B641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Solo Projects From The Rolling Stones (1971-2024) [MP3|320 Kbps] <Rock, Blu
 magnet:?xt=urn:btih:52D1AA621BB1565ED077719970AFAAE09D525997
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ Elise - Favorites Collection Part 3 (2026) [MP3|320 Kbps] <Vocal, Easy listening
 ```bash
 magnet:?xt=urn:btih:73CC4C67612674AB819C6B3B84C5AF4E295FE906
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Winter Drive On FM Waves (2026) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:0764271979D9E17BEADF535E9402E2E3DB346AD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Music News For Forum vol.159 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:5CF5BBED8C7E908808372A2F570D22922CC4856C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Russian Rock (2021-2022) [MP3|320 Kbps] <rock>
 magnet:?xt=urn:btih:089EC6BD2CE8097B5DAAFCD29B09374067741A2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Yello & Dieter Meier & Boris Blank best (1980-2024) [MP3|320 Kbps] <electro
 ```bash
 magnet:?xt=urn:btih:15EB4C14D706289674F648F28EC92C09C223F0FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ Booker T. & the M.G.'s - Super Collection (2026) [MP3|320 Kbps] <R'B, Soul, Jazz
 magnet:?xt=urn:btih:443D1451824B244EC1BC409883F1AE4E0DF7F0D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ VA - Sensual Dark Blues (2026) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:88D2766511E51D1CF64B931F1A66E7AF92A79EC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ VA - Record Super Chart 31.01.2026 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:9C7A79FA5A73D2A4C835EF7279EB66C0F8BE3F53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ VA - Vocal Trance NNM 7 (2026) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:484ABD612990697AF8F1A12BF6F4B690BEA34D08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ VA - No name compilation part 46 Assorted (2026) [MP3|320 Kbps] <Italodisco, Ita
 magnet:?xt=urn:btih:7E47AE90CD2E9001E6867779D4DD04369ABD730C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ VA - Music News For Forum vol.160 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:FB4AE6AA525962B1B813D39B6034DA72F2C5E765
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ VA - Spacesynth Forever 6 (2025) [MP3|320 Kbps] <Spacesynth, Synth-Dance>
 magnet:?xt=urn:btih:C5A0A7F5BAC5A83305E1A16B2FABFF13A953DCE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ Frezee - Favorites Collection Part 6 (2026) [MP3|320 Kbps] <Swing Jazz, Nu Jazz,
 ```bash
 magnet:?xt=urn:btih:65BADB35FD9EA13E7C6195F21BC626836D100C3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ Romantic Dreams - Favorites Collection Part 10 (2026) [MP3|320 Kbps] <Italodisco
 magnet:?xt=urn:btih:F8E01DF9D3ADEB28E6F9079FF71743FE20113640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ VA - Music News For Forum vol.161 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:6A5A4FBA0E2BE60B77CB113E07E861A0152121EE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851349   (1055458) от 
-
-VA - Euro Hits 2023 (2023) [MP3|320 Kbps] <pop,dance,electronic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055458.jpg" />
-</div>
-
-
-###  Подробнее
-
-[2:36].001- Alle Farben & Flynn - I Need To Know
-[2:53]. 002-Alex Gaudino - Don't Talk To Me
-[3:01]. 003-Robin Schulz & Fil Bo Riva - Killer Queen
-[2:54]. 004-Tiesto & Ar-Co - Back Around(   Читать дальше...   )Жанр: pop,dance,electronicПродолжительность: 07:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECECAEA9CD6A15D67F076E6154B54DFD41D29458
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

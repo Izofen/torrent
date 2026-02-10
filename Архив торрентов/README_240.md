@@ -19,6 +19,8 @@ Icecream Video Editor - простой редактор видео для Window
 magnet:?xt=urn:btih:1F7271DB8792E2990B1F82BA2D96656D06FE3DBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:8CDB848495AE06C96E174CE27CD6D616627D47B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Driver Booster сканирует и определяет устаревшие �
 magnet:?xt=urn:btih:8C49BABC3C8B423CA3B7F2540FA75DB15C214623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:8C49BABC3C8B423CA3B7F2540FA75DB15C214623
 ```bash
 magnet:?xt=urn:btih:C12E3FBB1F33EA7D11B0FEAB9090B32FE8DFBA47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Windows 7 SP1 x64 (3in1) by Updated Edition (14.06.2024) [Ru]
 magnet:?xt=urn:btih:8FCEA0AD0568A1278C5202AE5F2743AA1722B8AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Revo Uninstaller Pro 5.3.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:19582CDF137F361103A55E30033E42F0BD549FB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ NetLimiter - программа, решающая проблему контро�
 magnet:?xt=urn:btih:859BCA37FA6BCE6DF70A75CB0D5B6A4EBE99904B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 ```bash
 magnet:?xt=urn:btih:97D1EABC969451F0F72CF166E9227EACE357DB00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ PhotoRoom v5.0.1 b1446 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:35EF31FDEDF0014F3162C66F0F3FDFAE607C2EFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Duolingo: изучай языки 5.154.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:75E150AECC77A5467669E842D26500ECB0BD6C78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:75E150AECC77A5467669E842D26500ECB0BD6C78
 magnet:?xt=urn:btih:7225D9D7D8FD45BD1FE353E400B3D948A226774B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:1C474704F4DCF26E1CEE4A4E7EF638A1FD0CD5C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ WinCatalog - это простая в использовании програм�
 magnet:?xt=urn:btih:97B12B84E718FE9DD02BE6B9806B30796E6CEA2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ MemTest86 - бесплатная программа, позволяющая пр
 ```bash
 magnet:?xt=urn:btih:98E35C9141D6F078B869E8050B8443A498C20141
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:98E35C9141D6F078B869E8050B8443A498C20141
 magnet:?xt=urn:btih:DD3C01D0DC3CDDA7084640A4F0061A1C816DE29A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:DD3C01D0DC3CDDA7084640A4F0061A1C816DE29A
 magnet:?xt=urn:btih:7314C0B0529117895F70D920E2110793680173C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 ```bash
 magnet:?xt=urn:btih:1860B1F49625EB8593E9AC486703C1DF3371A076
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Mullvad Browser подойдет для пользователей, которы
 magnet:?xt=urn:btih:400641C753DC7720B1ECF1A855033B72AD204B35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Files Inspector Pro 4.05 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:30CF4ABCD27E02AE63C504CE87ACEE8EB5F14FC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Double Commander - это свободный, с открытым исходны
 magnet:?xt=urn:btih:002C65214D181E20CEBFE5934E0414D489D4B044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Vivaldi 6.7.3329.41 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C14261D8D38C4CDF89A7ED071BF9E780F18D3A6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Floorp Browser – это модифицированная версия Firefox,
 magnet:?xt=urn:btih:DC375F876FB51C7951831E250E96C3B4A5568B1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ TranslucentTB 2024.1 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:18CA778814E9E4E369BBA72685C0C0E7EDBE5173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ AIMP 5.30 Build 2554 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:9FF72AC7BEF06C82FDA239F1102AE6FDBD80E1BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ IPTV Pro v8.0.2 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:EBEBD907556BA195A3B2CDF06F0A774513B00CD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:9CAF33B6D67DDC94427232DC8AC123C02C4B765D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

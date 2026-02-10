@@ -19,6 +19,8 @@ Jikan no Shihaisha / Chronos Ruler / Повелители Времени [2017, 
 magnet:?xt=urn:btih:9B5F68946716A80DFB665982ADB549FB82D94B18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Ikemen Sengoku: Toki o Kakeru ga Koi wa Hajimaranai | Красавчики из 
 magnet:?xt=urn:btih:DEE019510109FBAA046FEA36E8AEF5013602C99E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Kaito x Ansa | Кайто и Анса [2017, TV, 12 из 12] WEBRip 720p rus
 ```bash
 magnet:?xt=urn:btih:199D0DB266475E3A4424F067811E2C65D5BB4007
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Action Heroine Cheer Fruits | Героиня поддерживает фрукт
 magnet:?xt=urn:btih:85B7116A04FE533961D8FAB6E167A232D1C3E88D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Clannad After Story / Кланнад. Продолжение истории / К
 magnet:?xt=urn:btih:FF88943AF3DD4D12A8FD0C8B01398B7587934026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Pokemon: Master Quest (5 season) / Покемон: Путь Мастера (5 с
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Knight's & Magic / Рыцари и Магия [2017, TV, 13 ep] WEB-DL 720p Raw+
 ```bash
 magnet:?xt=urn:btih:C31817B6496743E78EFD18624EEB945F42F8C420
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Dive!! / Дайв!! [2017, TV, 12 ep] WEB-DL 720p Raw+Rus
 magnet:?xt=urn:btih:B2DB83732F4E257DADB09E2C64F9438B9F21B94C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Saiyuuki Reload Blast / Saiyuki Reload Blast / Путь на запад: Взр�
 ```bash
 magnet:?xt=urn:btih:0448F5BD15CAC0D839C1FFA6628A9E9F81F128D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Coquelicot-zaka kara | Со склонов Кокурико [2011, Movie] BDRip 
 magnet:?xt=urn:btih:3CC9C451B65D200982F618E617EB623787DD980B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Coquelicot-zaka kara | Со склонов Кокурико [2011, Movie] BDRip 
 ```bash
 magnet:?xt=urn:btih:0BE9CF4D07CFC770A82E4ACEE6BE833EEAEFD324
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ Juubee Ninpuuchou / Ninja Scroll / Манускрипт ниндзя [1993] BDRi
 magnet:?xt=urn:btih:09359109D58535026CCCA3C2A740BE91852CE4CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:09359109D58535026CCCA3C2A740BE91852CE4CA
 magnet:?xt=urn:btih:8065B61840866E1E37B2A7DE203387521EA6BED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ Violence Jack: Harem Bomber Hen / Violence Jack: Slum King / Жестокий Д
 ```bash
 magnet:?xt=urn:btih:512465B374A855A0ED7F40C78F764721CB8EBDFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ Violence Jack: Hell's Wind Hen / Violence Jack: Hell's Wind Chapter / Жесто
 magnet:?xt=urn:btih:7335E4D88DE958D6176C3277C7CDF6C5EFD453C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ Violence Jack: Jigoku Gai / Violence Jack: Evil Town / Жестокий Джек
 ```bash
 magnet:?xt=urn:btih:C0888FDC2C764125922CD8D5B5406F4E15A9D5CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Towa no Quon / Вечность вечного [2011, MV, 6 из 6] BDrip 1080p 
 magnet:?xt=urn:btih:CDD73943057CB674860FF9C6DA6D94B2BC70495E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ Isekai Shokudou / Restaurant to Another World / Ресторанчик из ин
 ```bash
 magnet:?xt=urn:btih:4782362A692C4E6DFD7F0312A3A9F3638751A3FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ Koi to Uso / Love and Lies / Любовь и ложь [2017, TV, 12] WEB-DL 720p
 magnet:?xt=urn:btih:005699FFDE2A573C0CB61C0398113BFB29395D1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ Re:Creators / Воссоздающие [2017, TV, 22 ep] HDTV 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:2030C015C582A1BC208ABEBE001306243EABA116
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ Keppeki Danshi! Aoyama-kun / Cleanliness Boy! Aoyama-kun / Чистюля Аоя
 magnet:?xt=urn:btih:B53BFC7C69164476CAD12725BB561F59E723683F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ Overlord III / Повелитель [ТВ-3] [2018, TV, 13 ep] WEB-DL 720p Raw+R
 ```bash
 magnet:?xt=urn:btih:1EF89228A6FBB3FEBE8A93CE3C4AA3A412F1CB33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ Boku no Hero Academia the Movie 2: Heroes Rising | My Hero Academia the Movie 2:
 magnet:?xt=urn:btih:9C835F911B5F9E23E3950D61DC2870D531E7E116
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Dakaretai Otoko 1-i ni Odosarete Imasu | Dakaichi: I'm Being Harassed by the Sex
 ```bash
 magnet:?xt=urn:btih:AAEEF43E2F0DF8AAFE85C7E1FFB6EBCFFBE7E13D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Choujikuu Kidan Southern Cross | Super Dimensional Cavalry Southern Cross | Ги
 magnet:?xt=urn:btih:0596FE1D0F7830070049244541D86367650028A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ The God of High School / Бог старшей школы [2020, TV, 13 ep] WEB-
 ```bash
 magnet:?xt=urn:btih:FEEF82D5CDCDC19924823B555DCFB042344382F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

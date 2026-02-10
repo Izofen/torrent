@@ -19,6 +19,8 @@ Paragon Домашний Эксперт 12 10.1.19.16240 Portable by SoftLab-Por
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Duplicate File Remover – мощная утилита для поиска и о
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Nitro Pro – программа, которая является альтерн
 magnet:?xt=urn:btih:37EA1C139ABD155546EEF70AF54D5DB37D870E01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Ashampoo WinOptimizer 18.00.18 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:44C1F2392E386216696F48C4A504242145B698AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Maxlim New Year 2020 - подборка из 4-х программ от Maxlim �
 magnet:?xt=urn:btih:30C5382528BD621CCF8CBFFDA188AD8989C72606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ PDF Combine — объединение PDF, или слияние PDF, пред�
 ```bash
 magnet:?xt=urn:btih:F93D97635FF730AF050B23C4CCE05DAE9048D545
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Auslogics Duplicate File Finder поможет Вам избавиться от 
 magnet:?xt=urn:btih:C380F5F1D67FFA76AFE9B50866BDBA2443FEBD21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:3511F5602B19F122B712BF567DB1E699F6DB3910
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Auslogics File Recovery — простая и эффективная в испо
 magnet:?xt=urn:btih:5088AEBB4089A9A7AD8BAEF9E98934F35F722BD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ MediaHuman YouTube to MP3 Converter 3.9.17 (1510) RePack (& Portable) by elchupa
 ```bash
 magnet:?xt=urn:btih:C073FAF9CFBC93F0D13860202E778D865244CCC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Chromium – веб-браузер с открытым исходным кодо
 magnet:?xt=urn:btih:8B09F7A9672815D786D091DACFC7397D470B3518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ MathType - это интерактивный инструмент, которы�
 ```bash
 magnet:?xt=urn:btih:03ECA369F0FAFC15A53DFDBE2DB9717DD1BA5B73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ DBF Viewer 2000® - приложение для просмотра и редак
 magnet:?xt=urn:btih:137BE0D58D61987F54AC3F0440D4584A872F0C47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ MassTube — очень простая в использовании прогр�
 magnet:?xt=urn:btih:CB669615C743809FD93DD8E8AB69F1E8B70D7C00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:1597A6CFD220953B2A0A4C689329E38F46B635B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ FurMark 2 является преемником почтенного FurMark 1..
 magnet:?xt=urn:btih:364DFD7D9A8537900BF7E260D6C827D7F585479D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ OCCT 15.0.1 Portable [En]
 ```bash
 magnet:?xt=urn:btih:A85071952902E1781B4341F7372916F60EC2E949
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ O&O Defrag Professional – инструмент дефрагментации д
 magnet:?xt=urn:btih:3613DF625AE54B1119CEE2E3AC2EBF6A887650CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ FreeTube использует собственный HTTP-API YouTube с наб�
 magnet:?xt=urn:btih:FE10B8D45A8CC0E095B2624CC1E03DF86E436315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ MediaHuman YouTube Downloader 3.9.17 (1510) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:2F13A7E474AE2DE13BEB2A669BF2B379F94F7868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Reg Organizer® - это многофункциональная программ
 magnet:?xt=urn:btih:B7774091FBA32672AFE60BD61F045E6C698A14AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ MAX Desktop 25.13.3 [Ru]
 ```bash
 magnet:?xt=urn:btih:D6778A0E59FA84AC867B5ABD28D16FD5B08C7FCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:D89292B653AB8AEA1E08561747DA6045015C7A9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:D89292B653AB8AEA1E08561747DA6045015C7A9D
 ```bash
 magnet:?xt=urn:btih:AD0E7A280DDEC4FA77B50E2146DEAAA9BF99C30E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ MediaHuman YouTube Downloader 3.9.17 (1510) RePack (& Portable) by Dodakaedr [Mu
 magnet:?xt=urn:btih:DE99E06573DE3E6BCD2F2D26AA1F9189A110F963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ MediaHuman YouTube Downloader 3.9.17 (1510) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1BDAE212CDBDC6B5F57CF1B833623842C91BE1D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

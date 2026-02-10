@@ -22,6 +22,8 @@ Manuel Rocheman - misTeRIO (2016) Bonsai Music[FLAC|Lossless|tracks + .cue] <Pos
 magnet:?xt=urn:btih:F1E6D477BE235B4A5187E26D641B35F2799385F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:F1E6D477BE235B4A5187E26D641B35F2799385F5
 magnet:?xt=urn:btih:29748975B9B0CAAF9221FB7EBCBF63BD8087F4E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Aiseesoft Mac Blu-ray Player - удобный в работе, медиа про
 ```bash
 magnet:?xt=urn:btih:5CD6EF9B88C20BE883CE88E22A34799E9722BAA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ CD01:
 magnet:?xt=urn:btih:67E08CAA7FBF6B32429887F0F8193E1A1E087ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ VA - Deep Voyage 2 (2020) [AAC|~319 Kbps] <House>
 magnet:?xt=urn:btih:2A6361D3740C79560BF9AEB8F71C9DE25564E7A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Zhen Hun Jie: Bei Luo Shi Men Pian 2021 | Rakshasa Street 2 | Ракшаса: у
 magnet:?xt=urn:btih:8FE17792840F79A045E6E80BABDD17C3E9EC155F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Opera 97.0.4719.28 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:51DE15EB28F1D2129F8339B1A493D00AD5CFC5B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ VA - Zuckerschlecken Vol.6: Deep Electronic Sounds (2016) [MP3|320 Kbps] <Deep H
 magnet:?xt=urn:btih:ED3B88A92E90ADFF79B4747289E579A4D5FE90DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Marco Bernard (The Samurai Of Prog) - The Boy Who Wouldn’t Grow Up (2023) [MP3
 magnet:?xt=urn:btih:BDD5C8C6646763937C83DB60776395589FBF8BCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Perfectly Clear WorkBench позволяет всего за пару клико
 ```bash
 magnet:?xt=urn:btih:AD4273094E7EB2E44177E685268AE4E251C074F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ Mantovani and His Orchestra - Compilation (2023) [MP3|320 Kbps] <Easy Listening>
 magnet:?xt=urn:btih:E98296878C4097BAF8CF19877F806225E71D5EDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:E98296878C4097BAF8CF19877F806225E71D5EDF
 ```bash
 magnet:?xt=urn:btih:01410063BFDC8D111862EE22A9FBCBABBA429414
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ Bellatrix - Travel (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Spacesynth>
 magnet:?xt=urn:btih:C9FA57B17D90EEFC470EBA51C7093887D3B81541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:C9FA57B17D90EEFC470EBA51C7093887D3B81541
 ```bash
 magnet:?xt=urn:btih:CE28C22D7C7FC76AB3FB61A616A36711D646071C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:CE28C22D7C7FC76AB3FB61A616A36711D646071C
 magnet:?xt=urn:btih:DAD5BE3F9A831DFD461BDFBF9F56197A14737835
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ djay Pro обеспечивает полный инструментарий дл
 ```bash
 magnet:?xt=urn:btih:036720AA32DCCF71B61143B498FA2AF1F3064DB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ Sharp Edges - Slice of Life (1983) [MP3|320 Kbps] <AOR, Pop Rock>
 magnet:?xt=urn:btih:70C8E6AAE1BDB36F89F90A84F3CB2859B2A566C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ FSNotes - это менеджер текстовых заметок для macOS
 ```bash
 magnet:?xt=urn:btih:766AF488F2832F960A998A8FAD690A7F81F84098
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:766AF488F2832F960A998A8FAD690A7F81F84098
 magnet:?xt=urn:btih:8AACB6C83624D9731A1704FA24B94FE25E212E55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ magnet:?xt=urn:btih:8AACB6C83624D9731A1704FA24B94FE25E212E55
 ```bash
 magnet:?xt=urn:btih:57D5EA8F68991D4155FE7A2C92F0A038613F6EFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ Babymetal - The Other One (2023) [FLAC|Lossless|WEB-DL|tracks] <J-Metal, Modern 
 magnet:?xt=urn:btih:DB93C0FE70533125BA81C5E8979A955E52FAF4B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:DB93C0FE70533125BA81C5E8979A955E52FAF4B6
 ```bash
 magnet:?xt=urn:btih:922292277E9A627F290E3C4866D3EF0D725D102B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +628,8 @@ Dave Douglas - Dark Territory (2016) Greenleaf Music[FLAC|Lossless|tracks + .cue
 magnet:?xt=urn:btih:148692075C27FC93F87CD71DD11D8E0CCF2E12F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ Brackets - удобный и простой редактор исходного 
 ```bash
 magnet:?xt=urn:btih:90E64EFD51AB5DB00B71688E020D86D1461D1281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +684,8 @@ VA - Nightflight Dubai, Vol. 2 - 22 Premium Downbeat & Lounge Trax (2015) [AAC|~
 magnet:?xt=urn:btih:E9E8C30E4067CB06BA69656025558C2C92A743C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ The Adekaem - 5 Albums (2015-2023) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
 ```bash
 magnet:?xt=urn:btih:FCC149DDA75D13D072C92444E4AF327CDE5EBD2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

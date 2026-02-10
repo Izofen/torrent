@@ -22,6 +22,8 @@ CD1:
 magnet:?xt=urn:btih:3D473D768423485F24B78F798300D90AD8A5D2C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:3D473D768423485F24B78F798300D90AD8A5D2C9
 ```bash
 magnet:?xt=urn:btih:931B48CEBB8ADC751C7B2CDFC13D2540BEF4A9DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Arrival Of Autumn - Kingdom Undone (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalco
 magnet:?xt=urn:btih:B298CCBAEDD60C42230F710D5A5E0E81B2EF8007
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Fancy - Sail Away (2020) [AAC|~329 Kbps]<Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:DE7F420A97A63EE8A99710D14B7F7D86B64CDFEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Rainlendar Lite — календарик для рабочего стола с �
 magnet:?xt=urn:btih:76FBDE1B69113B6126A3D6F75914FF06D8E27777
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:76FBDE1B69113B6126A3D6F75914FF06D8E27777
 ```bash
 magnet:?xt=urn:btih:39562180191B64132D0B0A606F1636DD0EAD0EDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Cloud Outliner позволяет с легкостью создавать ау�
 magnet:?xt=urn:btih:52914993453B0D25E6B1126942F2216CEE1C3075
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Colossal Order | Артбук по игре Cities: Skylines / Cities: Skylines 
 ```bash
 magnet:?xt=urn:btih:E62E1B51C1D9ADD4FB750D474101EAE6E05665DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Pixelmator представляет собой мощный инструмент
 magnet:?xt=urn:btih:1D9C9E85A3A6D583E765B929DBBF049A01C5BC6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:1D9C9E85A3A6D583E765B929DBBF049A01C5BC6C
 magnet:?xt=urn:btih:26C3107E66711BDF9B8DA11E87274C0B4733BD0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:26C3107E66711BDF9B8DA11E87274C0B4733BD0F
 ```bash
 magnet:?xt=urn:btih:0DA037174FD7ADDB4A2C9CF3951C6BAF9DE6B2C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ Xubuntu 22.04 под кодовым названием Jammy Jellyfish — эт�
 ```bash
 magnet:?xt=urn:btih:23D897CD86C6230F27E3D790DC727D7A0ABF51D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ John Goldsby - Viewpoint (2001) [FLAC|Lossless|tracks + .cue] <Post-Bop>
 magnet:?xt=urn:btih:05D989E98749D620B6017E44F336B8EB1875BEB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:05D989E98749D620B6017E44F336B8EB1875BEB4
 ```bash
 magnet:?xt=urn:btih:B0C85597F02B7F0CD3BB6798429031060834AD4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ Róisín Murphy - Róisín Machine (Deluxe) (2020) [AAC|~321 Kbps]<Electronic, P
 magnet:?xt=urn:btih:B7317886BAFB6EE5265C21B2B5DBB222D0425D07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:B7317886BAFB6EE5265C21B2B5DBB222D0425D07
 magnet:?xt=urn:btih:6DACE89384B66AB73E1BE09DBCFC7047E0D901FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:6DACE89384B66AB73E1BE09DBCFC7047E0D901FB
 ```bash
 magnet:?xt=urn:btih:E6813D3EB9F6A5D628C09D12F24A171D3BD57AC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:E6813D3EB9F6A5D628C09D12F24A171D3BD57AC2
 magnet:?xt=urn:btih:6DA47CA85FEC5AAE25C4214672D5148FCD929352
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ EazyDraw от Dekorra Optics – графическая программа, со
 ```bash
 magnet:?xt=urn:btih:DE3493E3648EBD548E582067487F75C52A0298CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:DE3493E3648EBD548E582067487F75C52A0298CD
 magnet:?xt=urn:btih:14984DE97910BD89CD5AD0DDD0026B9F4365DDC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ NIUBI Partition Editor (Repack & Portable) – программа для про�
 ```bash
 magnet:?xt=urn:btih:AC40CBBDD2E4DCE079FACA76D70B366386B9417E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ Black Sabbath - Live Evil (1982) 2023, 4CD, 40th Anniversary Super Deluxe, Sanct
 magnet:?xt=urn:btih:4F63AFAF9BB8826FC1EC79A05875CECE051BF179
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:4F63AFAF9BB8826FC1EC79A05875CECE051BF179
 ```bash
 magnet:?xt=urn:btih:E48262AFE3499A0C0BC21540C4DF57594DD5AE70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ CD1:
 magnet:?xt=urn:btih:B9E1868FA0757219537B20D3300B2E2C08645C9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ TreeSize Professional - мощное и гибкое средство визуа
 ```bash
 magnet:?xt=urn:btih:E5A134FEE435A8B39AEDBB6652DC847369878124
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ Lucky Thompson - 1944 - 1947 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop,
 ```bash
 magnet:?xt=urn:btih:646A296F0D1A94061C271E017A7BD0A0E9F6C12A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

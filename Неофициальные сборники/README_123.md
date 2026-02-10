@@ -22,6 +22,8 @@ VA - Music News vol.153 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 magnet:?xt=urn:btih:214E508C7D944B06342CAAF524B332F0A2602980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Beatport Synth Electronic: Sound Pack #378 (2021) [MP3|320 Kbps] <Syntwave,
 ```bash
 magnet:?xt=urn:btih:3E921524BC5BDCFBAE72B27100CC84E942C02865
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Frozen Deep House (2021) [MP3|320 Kbps] <Deep House, Electro>
 magnet:?xt=urn:btih:9AA605B820CBE29C89EF254D861FC5434FAEF536
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Beatport Funky House: Sound Pack #375 (2021) [MP3|320 Kbps] <Funky, Disco H
 ```bash
 magnet:?xt=urn:btih:6785DD3650A10210CDEB756BF6DEF5A09352C7D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Итоговый Superchart Radio Record 2008 (100 Best) [MP3|159 - 320 Kbp
 magnet:?xt=urn:btih:79FCFC7BACC1BD5F060B65C7B052381998614A7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Clubbing Techno Energetic Mix (2021) [MP3|320 Kbps] <Techno, Tech House, Cl
 ```bash
 magnet:?xt=urn:btih:9A408882A3698997D2111F2F11D986C57CBF2A50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Deep Impact Positively: Clubbing Electro House (2021) [MP3|320 Kbps] <Club,
 magnet:?xt=urn:btih:89AFA7F3F65002FB8CB7D5927F624BE6B94DA196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Golden Hits Of Soulful Dynamics / Disco (2019) [MP3|320 Kbps] <Dance Disco,
 ```bash
 magnet:?xt=urn:btih:AE0755DF0AE03F42E6A5287343EDA165F202A9C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Hyperlandia Night Party (2021) [MP3|320 Kbps] <Club, Dance House, Electro>
 magnet:?xt=urn:btih:8058F5DBB0BF029BFA7F1C782295EE519BAD03F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - E-Dance: Clubbing Electro House (Vol.07) (2021) [MP3|320 Kbps] <Club, Dance
 ```bash
 magnet:?xt=urn:btih:0AE0AC51B02AB4978A3EB921EEEF61D0407284E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Hypnotic Techno (2021) [MP3|320 Kbps] <Techno, Electro Minimal>
 magnet:?xt=urn:btih:F90F8DA44847EB1CD3FB380C1411EA98F6E2586A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - D&B: Best New Electro Bass Hype Mix (2021) [MP3|320 Kbps] <Drum And Bass, E
 ```bash
 magnet:?xt=urn:btih:6FD5CCCBC8215CBEF3E7F10212F7BB2A15C3B7B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Google Play хит-парад (November) (2015) [MP3|320 кб/с] <Pop, Р�
 magnet:?xt=urn:btih:FA6F8558637C6B56956E587F7FE3E0480A274F59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Glamorous Sport Music (2022) [MP3|320 Kbps] <Uplifting, Vocal-Trance>
 ```bash
 magnet:?xt=urn:btih:65BABE987E4A92E549AD8F776BAC2997A74F2645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Beatport Electro House: Sound Pack #563 (2022) [MP3|320 Kbps] <House, Elect
 magnet:?xt=urn:btih:81341DFC1F4B3D16FB2D999F3B26142C81F23DF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Deep House Collection Vol.101 (2016) [MP3|320 Kbps] <Deep House, Club House
 ```bash
 magnet:?xt=urn:btih:0819E5A46A5862B65FE60932DE6B365E9945028C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Magic Instrumental Music Vol. 3 (2016) [MP3|320 Kbps] <Instrumental, New Ag
 magnet:?xt=urn:btih:57553CA5EAA85013B2697D5C0452A54175AFE412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Autumn Light Deep (2022) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:F70A39FFD321A1E1AAD9F26B1427C3247C7E5235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Русские свежаки радиостанций. Топ новино
 magnet:?xt=urn:btih:15F91CFC85BD565214CED135D6BC578964D1D713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Madjestic Drum And Bass (2019) [MP3|320 Kbps] <Drum And Bass>
 ```bash
 magnet:?xt=urn:btih:9EC584B038A9ADDD602A2211A6D4AF1C78DFCFC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Jazz Sax and Piano (2016) [MP3|320 Kbps] <Instrumental Jazz>
 magnet:?xt=urn:btih:B6C44AD00602B8BF29BF2F71B3CCA0E9A1EB51CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ VA - The Heavenly Wanderers (2022) [MP3|320 Kbps] <Ambient, Downtempo, Relax, Me
 ```bash
 magnet:?xt=urn:btih:D3FE4B919B3EEA983EB71CB9E51911064FE21896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ VA - Top 100 Зайцев.нет Ноябрь (Repack) (2019) [MP3|320 Kbps] <Po
 magnet:?xt=urn:btih:50A054A77D29CA9F4236E2808AAB93535FFB351B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ VA - Alternative Classic Rock (2016) [MP3|320 Kbps] <Alternative, Progressive, H
 ```bash
 magnet:?xt=urn:btih:F7D695CA3D53C0B0DE8F4ADBCA5AF1B83A6E170C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ VA - Music News vol.50 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:402DF2746907079925ADE6989B4D20AF7CDD8CAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ VA - ЕвроХит Топ 40 Europa Plus 20.11.2020 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:68FE648EB06841AD89182451F5515FE699D28E93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

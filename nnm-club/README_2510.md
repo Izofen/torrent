@@ -22,6 +22,8 @@ Nostrum - Infernal Tomb (2017) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom, Sludg
 magnet:?xt=urn:btih:7BF98646B467F3800FC4C18273233FB97488EBE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ KinKobra - Kobra's Forever (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:C389D0E3640E19D9095B7AC3198403080995C22F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Little Barrie & Malcolm Catto - Electric War (2025) [FLAC 24/48|Lossless|WEB-DL|
 magnet:?xt=urn:btih:4C235038F9E5F989C6D9C17CC4DCF123A2CCDEC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:4C235038F9E5F989C6D9C17CC4DCF123A2CCDEC8
 magnet:?xt=urn:btih:95ACCA2E9E4C6E9F2C76777BF90D2B28F1A00493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:95ACCA2E9E4C6E9F2C76777BF90D2B28F1A00493
 ```bash
 magnet:?xt=urn:btih:3BF765B921540D1222A01C1EDFF2BF068F2EEECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ The Kinks - Come Dancing With The Kinks: The Best of The Kinks 1977–1986 (1986
 magnet:?xt=urn:btih:76E6BFAA4E860A87419132C974E64912741C820B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:76E6BFAA4E860A87419132C974E64912741C820B
 magnet:?xt=urn:btih:A3023290AF6BC9EE1AF868D277CEC8FD111F5068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:A3023290AF6BC9EE1AF868D277CEC8FD111F5068
 ```bash
 magnet:?xt=urn:btih:993B3761A48C18EA64F0B8557FDD78FCF8BC7F9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ RPS - Annihilation (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:8CA15E51A2DC513901F53D1B986F45C045646510
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ Ritos Paganos - Eternal Hate (2025) [MP3|320 Kbps] <Death, Thrash Metal, Hardcor
 ```bash
 magnet:?xt=urn:btih:C522D9ED996E78344C918DFE318B217B1DF3A671
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +303,8 @@ magnet:?xt=urn:btih:C522D9ED996E78344C918DFE318B217B1DF3A671
 magnet:?xt=urn:btih:4856B269175655CD450C3C89FBE6DA9A2199C759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ Duran & Aytek - In Sight E.P. (2005) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 magnet:?xt=urn:btih:F0B6B93153E47ED9C46A226FE393C294B72F6584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ magnet:?xt=urn:btih:F0B6B93153E47ED9C46A226FE393C294B72F6584
 ```bash
 magnet:?xt=urn:btih:70897536471CB62D1BE304AB1DB1143F6C44D8F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +386,8 @@ Sabbrabells - Sabbrabells Complete Box (2018) Japanese Edition, Box Set, 9XCD, C
 magnet:?xt=urn:btih:32D680676158FB82EDE0605E78F45EE79BAA9D6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ Van Morrison - Remembering Now (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues
 ```bash
 magnet:?xt=urn:btih:C00F15B345B1B03760804B52EDD02F5799A274F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +444,8 @@ Tres Pistoleros e Dona Kay - On another level (2025) [FLAC 24/44.1|Lossless|WEB-
 magnet:?xt=urn:btih:4831D61C073499E933AEE393E2998E0009F570BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +473,8 @@ Van Morrison & The Chieftains - Irish Heartbeat (1988) CD, Album [FLAC|Lossless|
 magnet:?xt=urn:btih:2689FFC7BFC786A5832CCD905593CE567ED7490E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +498,8 @@ magnet:?xt=urn:btih:2689FFC7BFC786A5832CCD905593CE567ED7490E
 ```bash
 magnet:?xt=urn:btih:94DCAFCA729593EE19177B104EAD49A7276BC35A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +528,8 @@ Larry McCray - Heartbreak City (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 magnet:?xt=urn:btih:99964EC9A39AC0CCA8EE7281DBCEFCB0C611B8DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +556,8 @@ Inglorious - V (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:B3051468623B7A32BD091F3DA81BC346CB63835C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +586,8 @@ Gasoline Lollipops - Kill The Architect (2025) [FLAC 24/48|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:3A217624A1A032EA1BC93399C9EB7DD6B455BEED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +614,8 @@ Michael Kaeshammer - The Pianist (2015) Self-Released [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:8014EE2606C818F4306ABF1386DFF0D1A69EF56E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +644,8 @@ Dustin Douglas & the Electric Gentlemen - IV (2025) [FLAC 24/48|Lossless|WEB-DL|
 magnet:?xt=urn:btih:C8276A0EB3D50132B5182F43E4CA38FA8B007CB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +669,8 @@ magnet:?xt=urn:btih:C8276A0EB3D50132B5182F43E4CA38FA8B007CB6
 ```bash
 magnet:?xt=urn:btih:4F1FA464C803DA37191FAEFBCB0E0105B1F34234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +698,8 @@ magnet:?xt=urn:btih:4F1FA464C803DA37191FAEFBCB0E0105B1F34234
 magnet:?xt=urn:btih:820BE5FB1E1D051970BC7EA31DEDECB38124BA29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +726,8 @@ V.A. - Best of BOSSA NOVA COVERS (2025) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nov
 ```bash
 magnet:?xt=urn:btih:2CE81F5A7F85D0F73126D1FB2C078CF3CE44877F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

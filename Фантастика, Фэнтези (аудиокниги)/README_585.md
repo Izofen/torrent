@@ -1,3 +1,29 @@
+###  Публикация: 1852296   (1055770) от 
+
+Александр Зайцев | Сатурн, Змея и Амариллис (2024) [MP3, Лариса Иванова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бостон, конец XIX века. Адам – талантливый, но безуспешный художник, чьи странные и пугающие картины не могут добиться признания, встречая лишь взгляды, полные тревоги и отвращения. Не найдя себе места в обществе, став добровольным затворником в собственной мастерской, меланхоличный художник, однако, не оставляет попыток создать полотно, способное донести до людей (   Читать дальше...   )Жанр: МистикаИздательство: ЛитРесПродолжительность: 07:07:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC3E56C9952AF12C9A535EC6F67EE9BBB665E9DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852294   (1055771) от 
 
 Юрий Винокуров, Антон Чернов (Cyberdawn) | Краб (Книга 5). Апофеоз (2024) [MP3, Егор Федотов]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:A9ACB923E11D1534D31A34E55F2A6BC32299F726
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +76,8 @@ magnet:?xt=urn:btih:A9ACB923E11D1534D31A34E55F2A6BC32299F726
 magnet:?xt=urn:btih:CA52DF823E757738D3D97E34EAC2E42F787074F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +102,8 @@ magnet:?xt=urn:btih:CA52DF823E757738D3D97E34EAC2E42F787074F2
 ```bash
 magnet:?xt=urn:btih:D326DB373097D45C6C398CEDF0426E6A6BDDBB8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +132,8 @@ magnet:?xt=urn:btih:D326DB373097D45C6C398CEDF0426E6A6BDDBB8E
 magnet:?xt=urn:btih:0954D12CAB6B23E77B83087D8AB9C919B96123D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +159,8 @@ magnet:?xt=urn:btih:0954D12CAB6B23E77B83087D8AB9C919B96123D5
 ```bash
 magnet:?xt=urn:btih:330E48922DD3B17B08BF407856D976B208D383B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +188,8 @@ magnet:?xt=urn:btih:330E48922DD3B17B08BF407856D976B208D383B3
 magnet:?xt=urn:btih:123F878CAE0E635765E6990C181A7E84E266EA74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +215,8 @@ magnet:?xt=urn:btih:123F878CAE0E635765E6990C181A7E84E266EA74
 ```bash
 magnet:?xt=urn:btih:E1B5B131E1CE7AE50E5117FF7EF791A137F387AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +244,8 @@ magnet:?xt=urn:btih:E1B5B131E1CE7AE50E5117FF7EF791A137F387AA
 magnet:?xt=urn:btih:1F5B6EEA380829781C6648348FF8DB6D0304155A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +272,8 @@ magnet:?xt=urn:btih:1F5B6EEA380829781C6648348FF8DB6D0304155A
 magnet:?xt=urn:btih:B7A2C6D123376E2C92DB2469A95E0757F23138FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +297,8 @@ magnet:?xt=urn:btih:B7A2C6D123376E2C92DB2469A95E0757F23138FA
 ```bash
 magnet:?xt=urn:btih:07F9DAD0EB6880767BE0A197210B9E3B1D8FA1CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +324,8 @@ magnet:?xt=urn:btih:07F9DAD0EB6880767BE0A197210B9E3B1D8FA1CD
 magnet:?xt=urn:btih:4A0EDD60EBEF1E2328BB7B026F773C96E542B9D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +349,8 @@ magnet:?xt=urn:btih:4A0EDD60EBEF1E2328BB7B026F773C96E542B9D9
 ```bash
 magnet:?xt=urn:btih:0BFC243BBE12F26EF0E5FA1683FBE8685D7B9862
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +376,8 @@ magnet:?xt=urn:btih:0BFC243BBE12F26EF0E5FA1683FBE8685D7B9862
 magnet:?xt=urn:btih:E987FBBA5BCB1FF4C8D662DF4726BADD390FE83D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +401,8 @@ magnet:?xt=urn:btih:E987FBBA5BCB1FF4C8D662DF4726BADD390FE83D
 ```bash
 magnet:?xt=urn:btih:40BBD3ABB8E0A3EC93001950DA82649F1570E419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +430,8 @@ magnet:?xt=urn:btih:40BBD3ABB8E0A3EC93001950DA82649F1570E419
 magnet:?xt=urn:btih:6B6ED48197405116533B04EB1AA7A18C1C469099
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +456,8 @@ magnet:?xt=urn:btih:6B6ED48197405116533B04EB1AA7A18C1C469099
 magnet:?xt=urn:btih:40A6CFB84D4F80AB942ED7FD1C19A0630EDE8B4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +481,8 @@ magnet:?xt=urn:btih:40A6CFB84D4F80AB942ED7FD1C19A0630EDE8B4C
 ```bash
 magnet:?xt=urn:btih:5569235166F4AD112E029CC7E8627C32489A757B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +510,8 @@ magnet:?xt=urn:btih:5569235166F4AD112E029CC7E8627C32489A757B
 magnet:?xt=urn:btih:377240A4ED8BBB32F2D6DB7847C0BE9B15C7FA74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +537,8 @@ magnet:?xt=urn:btih:377240A4ED8BBB32F2D6DB7847C0BE9B15C7FA74
 magnet:?xt=urn:btih:E0D596C6680A82D6CCE28D89F284BB47620FDAD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +562,8 @@ magnet:?xt=urn:btih:E0D596C6680A82D6CCE28D89F284BB47620FDAD0
 ```bash
 magnet:?xt=urn:btih:AA27028723FC543BA8DB40D693D20B72A1B59785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +589,8 @@ magnet:?xt=urn:btih:AA27028723FC543BA8DB40D693D20B72A1B59785
 magnet:?xt=urn:btih:D5FFE3890A695A9DC16628E28CB2DF126D16273B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +614,8 @@ magnet:?xt=urn:btih:D5FFE3890A695A9DC16628E28CB2DF126D16273B
 ```bash
 magnet:?xt=urn:btih:CC9392BB5D4AE01D121087DDE2770AC17C2FEA24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +642,8 @@ magnet:?xt=urn:btih:CC9392BB5D4AE01D121087DDE2770AC17C2FEA24
 magnet:?xt=urn:btih:6D6FDDA4C2844A00E382CF6963D7CB20C57D75AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +667,8 @@ magnet:?xt=urn:btih:6D6FDDA4C2844A00E382CF6963D7CB20C57D75AF
 ```bash
 magnet:?xt=urn:btih:0577C5E0B68AB6ABAA335D48D0CB28E671DD9634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,32 +694,7 @@ magnet:?xt=urn:btih:0577C5E0B68AB6ABAA335D48D0CB28E671DD9634
 magnet:?xt=urn:btih:BD139517585131E1EBCA2C72583FB4B8ED26DB33
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852250   (1055874) от 
-
-Ксения Баштовая, Виктория Иванова | Тёмный принц (Книги 1-5) (2025) [MP3, Анастасия Болотина]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все произведения цикла «Темный принц» в одном томе (3 романа+2 рассказа).
-Младший сын Темного Властелина сбегает учиться в Светлые земли, прихватив с собой команду пленных героев.
-Ироничное фэнтези о приключениях юного аристократа, жаждущего доказать свою самостоятельность.
-Что делать, если ты самый младший сын Темного Властелина, тебе уже целых семнадцать лет, а (   Читать дальше...   )Жанр: Приключенческое фэнтези, ироническое фэнтезиИздательство: Аудиокнига (АСТ)Продолжительность: 33:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF34CB147ACD93828F812E06E1FCE92ADFE5CD3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

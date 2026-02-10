@@ -19,6 +19,8 @@ IXION (2022) [Ru/Multi] (1.0.2.3) Repack dixen18
 magnet:?xt=urn:btih:FD09215DDD7F2E119C7EB4D6B448CB33F0F3FBA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Lillusion - это ролевая игра с традиционной 2D-гра
 ```bash
 magnet:?xt=urn:btih:F020448D7FBA1D4C21E46FA388E4D5750AD26BFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Racine (2023) [Multi] (1.0.1) License GOG
 magnet:?xt=urn:btih:3E99E6613CDF36FC92CEE814DBCFE0D1CB2EB388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ City of Stories: Stephan's Journey / Город Историй: Путешест
 ```bash
 magnet:?xt=urn:btih:10F187BFABCE2E2821D70112AD9CC69AC04B42F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Company of Crime – это игра с пошаговыми тактическ�
 magnet:?xt=urn:btih:3DB4BE40BE290DEE9ECB41FEC274E396FAB84C3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ DreamWorks All-Star Kart Racing (2023) [Multi] (1.0/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:EF807A4168E2DD042A8544B9B84162210CCE37D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Incredible Dracula 10: Dark Carnival / Невероятный Дракула 10:
 magnet:?xt=urn:btih:67F47608DFCC536AB1824A7A24E8234DB650FD7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Tiny Thor предлагает 16-битную графику и геймпле�
 ```bash
 magnet:?xt=urn:btih:CE75C793CAAA31E3AC31A9DC3870A20D2375ED49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Moviehouse позволяет игрокам стать владельцами �
 magnet:?xt=urn:btih:179C44CF502C24A3A4134233A6CEAE869E25D82D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ HighFleet (2021) [Ru/En] (1.163d) License GOG
 ```bash
 magnet:?xt=urn:btih:CDED8906676B0DA53E777883AD08C6DA9367091A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Parking Tycoon: Business Simulator - стратегия, погружающая 
 magnet:?xt=urn:btih:836540FCE4123DF51CC1568AD77D25D72C570801
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Fading Afternoon (2023) [Ru/Multi] (20231009) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B6B52C579A23DB565FD583A0A3611DFCA8DF4758
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ One eleven — это мрачный детектив о двенадцати о
 magnet:?xt=urn:btih:87770F086BFA4E48084FC872E526CEE5E6FD9FAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Beast Inside (2019) [Ru/Multi] (1.05) License GOG
 ```bash
 magnet:?xt=urn:btih:755EC97D09D62E6D3978C750E058E1E5A6F2F91B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Expanse: A Telltale Series (2023) [Multi] (1.0.902523.2310241203) Scene Rune
 magnet:?xt=urn:btih:82490826DDD17BCD5176CF40E319DD03179202F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Everyone Must Die: A Western Standoff - захватывающая игра-го
 ```bash
 magnet:?xt=urn:btih:167933BE0B1B88021ACB0675B947488B2900BA27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Little Goody Two Shoes - увлекательное приключение в ж
 magnet:?xt=urn:btih:F1AD5C794B31C1DEF6D14799FCFB4F7206B9CCB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Enypnion Redreamed представляет собой удивительное 
 ```bash
 magnet:?xt=urn:btih:7D8D0AE71D6B40D9A47BAD41A3942FC2C82D3057
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (0.0.31/dlc) Scene FAi
 magnet:?xt=urn:btih:A59C8E33DCB8F37F674EC45F5AA58E661CFD2BF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Salt and Sacrifice (2023) [Multi] (1.0.1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5DAB1A8BBF07292BEB8655D5825AA555F24960B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (0.0.31/dlc) License G
 magnet:?xt=urn:btih:86815B64F39CAC5A95A3D61AF847E0A8C87387E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ A Quest That Became Legend (2023) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:3EFE673421F3087E4E6E5B135A5DAD85DB3D313A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Legacy: Witch Island 4 Last Bastion / Наследие: Остров Ведьм�
 magnet:?xt=urn:btih:783C8AF9C6369C8ABE19876281C95F67579B7568
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Halloween Stories 5: The Neglected Dead / Хеллоуинские истори�
 ```bash
 magnet:?xt=urn:btih:58ACDE336E8D1E0ECF40AF915935FD9099A80A44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Gray Zone – RTS шутер с элементами RPG. Это одиссея 
 magnet:?xt=urn:btih:B30E0E31652485994F272DE7F6973C8C772C1CB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Skabma - Snowfall погружает нас в мир преданий и кул
 ```bash
 magnet:?xt=urn:btih:84BC7D106F7E7CC565362A5B84F200F2EF656BA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

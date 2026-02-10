@@ -22,6 +22,8 @@ VA - Nothing But... Liquid Drum & Bass Vol.2 (2016) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:DF0089A5A8BA6A1F5D9A55B644B77577A34D9FBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - AMF 2016: Amsterdam (2016) [MP3|320 Kbps] <House, Progressive House, Big Ro
 ```bash
 magnet:?xt=urn:btih:B374BF53594680C1CDE416672CF37F52C6C7AC5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Deep Ambient & Chillout Dream (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:7070BEE834E9226B25F4D678DC4899E78DE2210C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Schiller - Morgenstund (2019) Super Deluxe Edition [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:A83077FA5CD628BC0505297475E9A31E5CC0F623
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Nero - Between II Worlds (2015) [FLAC|tracks+.cue]<Dubstep, Electro House>
 magnet:?xt=urn:btih:8C39B7E26406699CA4055A252AD2FB818A948F98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Who's Afraid Of 138?! Top 15 - 2017-10 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:11A7B54C99A90F8FE9188CC5F328734C84D677B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Schiller - Die Einlassmusik 17 (2019) [FLAC|Lossless|image + .cue] <Ambient>
 magnet:?xt=urn:btih:FD2969303BB9327D4E7E7A54B272C56DA1F5BDB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Armada Chill (2019) [FLAC|Lossless|WEB|tracks] <Lounge, Ambient>
 ```bash
 magnet:?xt=urn:btih:04B1B14ABB51E626D0B015B081B55E2733D220BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ deadmau5 - mau5ville - Level 3 (2019) [FLAC|Lossless|WEB|tracks] <Progressive Ho
 magnet:?xt=urn:btih:AD6968387ED21592E93CD71DC2BAB2FAB85903D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Aly & Fila - The Chill Out (2015) [FLAC|Lossless|WEB-DL]<Chillout, Downtempo>
 ```bash
 magnet:?xt=urn:btih:F773F8AFE4CEA91C16C0EBF449CB1AC0E4AB703E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Ethereal Techno #007 (2019) [FLAC|Lossless|WEB|tracks] <Techno, Tech House>
 magnet:?xt=urn:btih:CA9E49FFBE06E12A9D435725A44A2690CA08E8BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Psychedelic Selections Vol. 003 (Compiled by Ritmo) (2018) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:2F84E633E55AE338DE7CD22D7417A213DF421FC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ V.A. - Cafe Del Mar XXVIII (Volumen Veintiocho) (2022) 2CD [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:00C9B1C835098C56578A5CB7C6644ADBF5228AFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Moon Zero - Discography 7 Releases (2013-2017) Denovali Records, Futuresequence 
 ```bash
 magnet:?xt=urn:btih:F08DCF6AAE698A7659DEF96B7CAE1C385AAB4434
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Vocal Trance Top 50 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting 
 magnet:?xt=urn:btih:D2377F402A878FF5D41F5D25EE70726884110034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Redux Amsterdam Selection (Mixed by The Enlightment) (2018) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:BC862B967AE7EFD6A94053BA31CF46B55B0C9217
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Meta Meat - Metameat (2016) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Industrial, T
 magnet:?xt=urn:btih:16AE4A5F008F8FF970D04BC677986CE180749143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +513,8 @@ Circular - Discography 7 Releases (1997-2020) Origo Sound, Ultimae Records [FLAC
 ```bash
 magnet:?xt=urn:btih:6D6F98CA525FFEB29857732B5D13024652DDBA2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +543,8 @@ Satori - Maktub (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo, Wor
 magnet:?xt=urn:btih:DAE88C69A8D3834FA66B6AEFA372725CE61EC850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +571,8 @@ VA - A State Of Trance Ibiza 2019 (Mixed by Armin van Buuren) (2019) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:D5A14D14F450E095FF93A9260E525DFAC2CDDD64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +601,8 @@ Giuseppe Ottaviani - Evolver (The Extended Mixes) (2019) [FLAC|Lossless|WEB|trac
 magnet:?xt=urn:btih:E5BBC398D67CE039380EE5063FEEA995E638499B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +629,8 @@ VA - Black Hole Trance Music 10-17 (2017) [MP3|320 Kbps] <Trance, Progressive>
 ```bash
 magnet:?xt=urn:btih:75F1556D0010E86E6CF430EEF082171341AB23A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +659,8 @@ Rat & Co - Discography 9 Releases (2012-2017) [FLAC|Lossless|tracks+.cue, tracks
 magnet:?xt=urn:btih:BBFE107C9C45473DD2D0CE4880C6864B039177D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +687,8 @@ VA - Solarstone presents Pure Trance 7 (Extended) (2019) [FLAC|Lossless|WEB|trac
 ```bash
 magnet:?xt=urn:btih:B9E42AF5E5CE04C4CC93737F754E2970A8FEA168
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,6 +717,8 @@ VA - JOOF DJ Sessions Volume 4 (Mixed by Fonarev) (2017) [FLAC|Lossless|WEB|trac
 magnet:?xt=urn:btih:86AE9C0C033FB42165F4E168AA09A90B27BCA7AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ VA - ADE Trance Collection (2017) [MP3|320 Kbps] <Trance, Uplifting Trance, Prog
 ```bash
 magnet:?xt=urn:btih:9060CA0377CC4112F8591D2C8EED1F05FC27A77E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

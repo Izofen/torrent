@@ -1,3 +1,29 @@
+###  Публикация: 740718   (984670) от 02.01.2014
+
+Николай Белов | Все секреты сильного пола (2014) [RTF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Поскольку женщины во взаимоотношениях с мужчинами повторяют одни и те же ошибки, автор этой книги предлагает своим читательницам стать на точку зрения мужчин и уже оттуда разобраться в причинах своих горестей и невзгод.Формат: RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E56584949BFA9E81158F0EC5B09786140E059939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355061   (984733) от 25.01.2020
 
 Дэн Бюттнер | Голубые зоны. 9 правил долголетия от людей, которые живут дольше всех (2015) [FB2]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:FE10DF3768A47900ADD4E4F70A5BA5AC3DD38BC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:FE10DF3768A47900ADD4E4F70A5BA5AC3DD38BC5
 ```bash
 magnet:?xt=urn:btih:A374851548BAB54CD26337EB7A068A8BEE5E044E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:A374851548BAB54CD26337EB7A068A8BEE5E044E
 magnet:?xt=urn:btih:FE4E8EA756DEBFE22B61016BBD8BE396F67023DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:FE4E8EA756DEBFE22B61016BBD8BE396F67023DC
 ```bash
 magnet:?xt=urn:btih:24E1F8025CF049A993534C3534B1A8D9AFEDFC0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:24E1F8025CF049A993534C3534B1A8D9AFEDFC0F
 magnet:?xt=urn:btih:8D08A4D0B683C7442D45ABF0135BE25A359CEB43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:8D08A4D0B683C7442D45ABF0135BE25A359CEB43
 ```bash
 magnet:?xt=urn:btih:34B44C08776AA03276056ED1422440020736407F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:34B44C08776AA03276056ED1422440020736407F
 magnet:?xt=urn:btih:AC6542F6C2AE379F373777E2D6C64A793342C225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:AC6542F6C2AE379F373777E2D6C64A793342C225
 ```bash
 magnet:?xt=urn:btih:8664025B7D299A58609C6BB93E41FE16935F79B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:8664025B7D299A58609C6BB93E41FE16935F79B4
 magnet:?xt=urn:btih:9762144C0AA2E1F2C1181EA674CB001A1B26DC15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:9762144C0AA2E1F2C1181EA674CB001A1B26DC15
 ```bash
 magnet:?xt=urn:btih:F3F816B991CC8796FE5B7B504ED0E9DC5ACFF7B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:F3F816B991CC8796FE5B7B504ED0E9DC5ACFF7B0
 magnet:?xt=urn:btih:1A4168644265DA481761695F5FC22A81B9223674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:1A4168644265DA481761695F5FC22A81B9223674
 magnet:?xt=urn:btih:E89B33DA73EAF858BCA6CA59420D4169931B757B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:E89B33DA73EAF858BCA6CA59420D4169931B757B
 ```bash
 magnet:?xt=urn:btih:F30D7DE321F0FC7B416FBD2CE7C0039DDD9D293F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +393,8 @@ magnet:?xt=urn:btih:F30D7DE321F0FC7B416FBD2CE7C0039DDD9D293F
 magnet:?xt=urn:btih:92E8983B57E62F83FE44BE20A2EA522033E7985D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:92E8983B57E62F83FE44BE20A2EA522033E7985D
 ```bash
 magnet:?xt=urn:btih:9E28A898648C26DBC39100AED9F05D1D227AB94C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +449,8 @@ magnet:?xt=urn:btih:9E28A898648C26DBC39100AED9F05D1D227AB94C
 magnet:?xt=urn:btih:B5FF8A2075572369836E3660AADD8B0FFBE813A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +475,8 @@ magnet:?xt=urn:btih:B5FF8A2075572369836E3660AADD8B0FFBE813A8
 magnet:?xt=urn:btih:283C789B6710367580CF4F41AD25DE66D6B6C830
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +500,8 @@ magnet:?xt=urn:btih:283C789B6710367580CF4F41AD25DE66D6B6C830
 ```bash
 magnet:?xt=urn:btih:5F66121936DFA24D478183993733BA3E48EAEE0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +531,8 @@ magnet:?xt=urn:btih:5F66121936DFA24D478183993733BA3E48EAEE0A
 magnet:?xt=urn:btih:CF802D1C818811118CEBA3AA5FDAA74A2CE7CE59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +557,8 @@ magnet:?xt=urn:btih:CF802D1C818811118CEBA3AA5FDAA74A2CE7CE59
 magnet:?xt=urn:btih:7F8CFD77404491CBA6A7F04A4B71A94FEC4E772C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +582,8 @@ magnet:?xt=urn:btih:7F8CFD77404491CBA6A7F04A4B71A94FEC4E772C
 ```bash
 magnet:?xt=urn:btih:9F562ACC47A4C8EF2FB9770276ECCE9CDED8F081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +611,8 @@ magnet:?xt=urn:btih:9F562ACC47A4C8EF2FB9770276ECCE9CDED8F081
 magnet:?xt=urn:btih:0C35EAC7514CC4071180C613997B61E699ACDCAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +636,8 @@ magnet:?xt=urn:btih:0C35EAC7514CC4071180C613997B61E699ACDCAD
 ```bash
 magnet:?xt=urn:btih:07CFA5EF836A417954C2A03821E349D18CEA7308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +663,8 @@ magnet:?xt=urn:btih:07CFA5EF836A417954C2A03821E349D18CEA7308
 magnet:?xt=urn:btih:72DC439B0806A3474B5491B76A8955CC5728F3C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,31 +689,7 @@ magnet:?xt=urn:btih:72DC439B0806A3474B5491B76A8955CC5728F3C4
 magnet:?xt=urn:btih:F4A491FE979F9733D17DD8458C4828F9AC8ACF6B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 435216   (984994) от 11.01.2012
-
-Е.В. Исаева, З.А. Шестопал | Атлас болезней плодовых и ягодных культур [1991] [DJVU]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-В книге описаны основные инфекционные (грибные, бактериальные, вирусные, микоплазменные) и неинфекционные болезни (нарушение питания, механические, химические, морозные и солнечно-морозные повреждения и др.), а также цветковые полупаразиты и паразиты. По каждому заболеванию рекомендованы агротехнические, биологические и химические методы борьбы.
-На 107 цветных таблицах изображены симптомы заболеваний.
-В данном издании (предыдущее выпущено в 1977 г.) дополнительно описан ряд болезней, приведены данные об устойчивости новых сортов плодовых и ягодных культур к заболеваниям, увеличено количество цветных иллюстраций.1991Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11CBCF4E4ABC29F5836F6D04FB45437F59B3670C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - GOA Vol.59 (2016) [MP3|320 кб/с] <Trance, Psy-Trance>
 magnet:?xt=urn:btih:EC65EFF20CF9946D7D54CA1EFD1A3FEF3B47FDDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Lustmord - First Reformed (Extended Motion Picture Soundtrack) (2019) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:4B8615720F25D7568A271A2567A8ABBADB00AEA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Lowering - Happiness (2016) EP [FLAC|Lossless|Web-DL|tracks] <Experimental, Ambi
 magnet:?xt=urn:btih:6BA619E9ED9288EFEC9CFF251FFD03082B860F78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - 2496, Vol. 1 (2019) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks] <Psybi
 ```bash
 magnet:?xt=urn:btih:1C5BB20F7CB58ACC866B3B504497E0FF84573718
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Memphidos - Discography 10 Releases (2009-2018) [FLAC|Lossless|WEB-DL]<IDM, Ambi
 magnet:?xt=urn:btih:94843FF0EA30C7BA485D16D8F64833E62A51650D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Fitness & Jogging Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Electro
 ```bash
 magnet:?xt=urn:btih:D3270826F581064A62430447A2CACE41FDB1676A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Lazarus - Rise Above 363 (Yearmix) (2018) [MP3|320 Kbps] <Trance, Progressi
 magnet:?xt=urn:btih:C4EA53E514A3F3CC3362441C91B03CFE19F6BC65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2019) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:8A598163F4286AD6F1C4ED0E3A689ED61975E01D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Armin van Buuren - A State of Trance 800 (The Official Compilation) (2017) 
 magnet:?xt=urn:btih:8BA9A21F1C71DA9D1930645B29C855286B1A4A78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Chilled House Session 9 (2018) 2CD [FLAC|Lossless|tracks + .cue] <Club Hous
 ```bash
 magnet:?xt=urn:btih:E889E9A09A15BF4B336849DDC716831C80E59DF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Scam. - Reminiscence (2018) Monolith Records [FLAC|Lossless|WEB-DL|tracks] <Tech
 magnet:?xt=urn:btih:F422EBDA6B92EB4CDB655C4F8A25771D4C1B3C48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Yaroslav Kulikov - Once In A Dream (2011) [FLAC|Lossless|WEB|tracks] <Uplifting 
 ```bash
 magnet:?xt=urn:btih:AB0A08D937F588EEA5F4AEB48E0DD454CF0C230E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Peter Bjargo - Animus Retinentia (2017) [MP3|320 Kbps] <Ambient>
 magnet:?xt=urn:btih:73E25AEC3EF3DBC1BB283304A81AA454E503D263
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Recoverworld Radio 009 (Mixed by Rich Smith) (2017) [FLAC|Lossless|WEB|trac
 ```bash
 magnet:?xt=urn:btih:B5A15E770DF60CD39D551804C69636AFB171D53A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Germind - Thoughtform (2017) [MP3|320 Kbps] <Psybient, Ambient, Downtempo>
 magnet:?xt=urn:btih:2E846A6614EA80F8942534A0F22C3BD8EFDA2B50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +455,8 @@ Ricardo Donoso - Beginning Of The Shape (2014) [MP3|320 кб/с]<Experimental, A
 ```bash
 magnet:?xt=urn:btih:CD87870B6FC7121007959DC2659D191A6760AE71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +485,8 @@ VA - Best Of Cafe De Anatolia (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 magnet:?xt=urn:btih:CDF60D804F7ABEE4BFE6905916957019D2201B7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +513,8 @@ Hybrid Leisureland - Discography 9 Releases (2007-2016) Ultimae Records, Double 
 ```bash
 magnet:?xt=urn:btih:21764FB873D6766276B673C6BEEE19B90CD102BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +543,8 @@ Lowering - Brooklyn (2018) [FLAC|Lossless|Web-DL|tracks] <Experimental, Dark Amb
 magnet:?xt=urn:btih:A3A05E0392AF741A52647F33A193639F739415CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +571,8 @@ VA - We Love House Music Vol. 1 (40 Sexy Tunes) (2016) [MP3|320 кб/с] <Dance,
 ```bash
 magnet:?xt=urn:btih:CE8CF3353801B2BB25A976C85106DFF51042CD59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +601,8 @@ VA - Ibiza Winter Island 2019 (2018) The Deep-House Edition [MP3|320 Kbps] <Deep
 magnet:?xt=urn:btih:D414E6E94A7DCCFD4DA4F4AF8BDD43CF60EE2075
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +629,8 @@ VA - Vocal Dance Vol. 5 (2019) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:C32EC58DB1E6E21D696F68E8B3D011E9A73400C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +659,8 @@ VA - Tea Leaves (2019) Compiled by DJ V ++ [FLAC|Lossless|WEB-DL|tracks] <Downte
 magnet:?xt=urn:btih:510067ABFA62D1878CAB7BB5140775A2C0D75ECE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +687,8 @@ Ness - Moving Through Illusions (2018) TGP [FLAC|Lossless|WEB-DL|tracks] <Techno
 ```bash
 magnet:?xt=urn:btih:D40791219EF4A8E0EF82D85D0B4F1A43CF1388B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,6 +717,8 @@ Prince of Denmark - 8 (2016) Forum [FLAC|Lossless|Vinyl|tracks] <Dub Techno, Tec
 magnet:?xt=urn:btih:7974F3034B5F6304FFAA3401B874F0A2464E2D9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ VA - Ibiza Cafe Del Sol - Chill Lounge Club Sessions (2018) [MP3|320 Kbps] <Down
 ```bash
 magnet:?xt=urn:btih:51216573D39D60B9BEF3A3AC3F08FD55FB74DAFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

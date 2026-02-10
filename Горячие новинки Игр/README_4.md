@@ -19,6 +19,8 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (1.0.2/dlc) Repack Othe
 magnet:?xt=urn:btih:35654EAFB2AE997D08E5541B481650644D6CC945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (1.0.2/dlc) Repack Dece
 ```bash
 magnet:?xt=urn:btih:5BC04FFAF4077A306FDF9F0C01336141C0633024
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (1.0/dlc) Repack FitGir
 magnet:?xt=urn:btih:EBE3FFFBDE8488695154E3A9B24C9BD2C2214E14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Castle of Heart Retold (2025) [Multi] (Build 19960600) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:36E6BCC2745927EEE33A88A81268A16F4B8C09F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Bytebond (2025) [Ru/Multi] (1.0.0.6/dlc) Repack FitGirl [Supporter Edition]
 magnet:?xt=urn:btih:8D8EB9EB7CBD0AB29DE45EA55A7315028F5C83DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:92275D4C11F45553B6832FB3A6FCB9A7C4B31C1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Moros Protocol (2025) [Ru/Multi] (1.0.5) License GOG
 magnet:?xt=urn:btih:6058DC110DE9044132D7C4FEB67F8E836F3DE1E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Derailed ставит перед героем задачу раскрыть 
 ```bash
 magnet:?xt=urn:btih:06E29EDB05D5670E74EC25120D825222A4B4E600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ No, I'm not a Human (2025) [Ru/Multi] (1.1.3) Repack seleZen
 magnet:?xt=urn:btih:86E8A183AA83D403E9A34C90C8E53E74258B3ACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Eclipsium (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1ADA097D6C3544C54F671E5B1A7E16151C1B05B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ M.A.S.S. Builder - это ролевая игра, в которой игрок�
 magnet:?xt=urn:btih:76A1BD887B5BBAD352D7701FEE0102D2F407F7BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Blood of Mehran (2025) [Ru/Multi] (1.0.16+34cdf77) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:EBB165BD1F909F91D966EF245BB26E87CE014BC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.380186.0) License GOG
 magnet:?xt=urn:btih:6352989CC44FEC76A7243A9EF3CE74EFBEA2C907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Blood of Mehran переносит легендарного воина Мехр�
 ```bash
 magnet:?xt=urn:btih:19A5949982E6DDD91BB398A6C5382D3251E648EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Blood of Mehran переносит легендарного воина Мехр�
 magnet:?xt=urn:btih:EF2AB516B5043D354F708A9B7CB4D3EED994508F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Blood of Mehran переносит легендарного воина Мехр�
 ```bash
 magnet:?xt=urn:btih:3F6B7AB53DC828CF6F699563A6696CB84651342E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Blood of Mehran переносит легендарного воина Мехр�
 magnet:?xt=urn:btih:3EFA3EC97690E3F463D5BAD87E4350634A3B682A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ SWORN - это кооперативный roguelike-экшен для 1–4 иг
 ```bash
 magnet:?xt=urn:btih:161ADCD743BE10884385E22EA16CEEA39FF9C58A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Arcane Path (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 magnet:?xt=urn:btih:58C5B3C66796D3D329970A034D1DE4781BC690BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Absolum создана с любовью командой мечты, котор
 ```bash
 magnet:?xt=urn:btih:D4544BAFE3CB28DA9816CE9B554B677686D12A27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Yooka-Replaylee - это усовершенствованная версия и�
 magnet:?xt=urn:btih:CAFCB7B514E6E70B4BEFA80F5E6AE75D6D7B1349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Little Nightmares III - это новая часть серии, предста�
 ```bash
 magnet:?xt=urn:btih:D9DF81E2384DFCF4E8727422E4700CD6F22A7AF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Dreams of Another - это экшен-игра с исследованием о�
 magnet:?xt=urn:btih:4CD1473C5919ABDBD57EE17329F168FE6342ECDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Little Nightmares III - это новая часть серии, предста�
 ```bash
 magnet:?xt=urn:btih:1F44D5F66C34AA390A0F34A46E35E984C8B84055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Yooka-Replaylee - это усовершенствованная версия и�
 magnet:?xt=urn:btih:A48406EB46B9A2B7B99DE9BE123291B5012F6140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6) Scene Rune
 ```bash
 magnet:?xt=urn:btih:91CD082FF552A1B59C7A3F44580F68D1DD5081AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

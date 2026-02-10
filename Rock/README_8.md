@@ -22,6 +22,8 @@ Johnny Hallyday - Made in Rock'n'Roll (2023) [MP3|320 Kbps] <Pop-Rock, Rock'n'Ro
 magnet:?xt=urn:btih:B32A2F6777E09D94EB8A50A6B0776674D67F5F14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Slade - The Other Side of Slade - The 80s (2023) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:17CC7073532BCCE625A12A9F186C3E405142B077
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Heavy Electric Guitar (2023) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:3E9DFCB433C2DC7970F6DB77041DBE1709CBB971
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Off Grid - Reign Of The Architect (2023) [MP3|320 Kbps] <Progressive Rock, Class
 ```bash
 magnet:?xt=urn:btih:49267584EA2F04A250ACB6AFCCA9DC866E579CB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Slade - The Other Side of Slade - The 70's (2023) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:40A4468383481E5D52669FE3D8E6BA639B1E26F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Radio FM Rock Hits (2023) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:473CE875A921552D98A3F5AB7E29EAD8FE3BBA48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ Winter In Eden - Echoes Of Betrayal (2012) [MP3|256 кб/с]<Symphonic/Gothic Me
 magnet:?xt=urn:btih:4E776C4CE8F58B975186A1A880304C266096B05D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +236,8 @@ Raccomandata Ricevuta Ritorno - Il Pittore Volante (2010) [MP3|320 кб/с]<Prog
 ```bash
 magnet:?xt=urn:btih:5E5B93E6B7BE850D9E20C44BAC919B987853F3F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +272,8 @@ The Big Pink - Future This (2012) [MP3|320 кб/с]<Folk, Indie Rock>
 magnet:?xt=urn:btih:74C5B3A5BE94A458DC4A1B16DB12BDB348D365C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +307,8 @@ Loredana Berte - E La Luna Busso (1988) [MP3|320 кб/с]<Rock, Pop-Rock>
 magnet:?xt=urn:btih:A1DFEFF2DF7F2EDB1CE4DD9D31DFFDC2C7BE0943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +335,8 @@ Porcupine Tree - Closure / Continuation.Live (2023) [MP3|320 Kbps] <Progressive 
 ```bash
 magnet:?xt=urn:btih:9586C522BC7945E17EF7B385580775361573D6F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +365,8 @@ Widespread Panic - Boone 1999 (Live) (2023) [MP3|320 Kbps] <Southern Rock, Blues
 magnet:?xt=urn:btih:F3EDBCBA8B1A46E3F1FC12F25BDD7E6FBDB3BB49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +393,8 @@ Peter Gabriel - i/o (2023) [MP3|320 Kbps] <Art-rock, neo-folk, progressive-rock,
 ```bash
 magnet:?xt=urn:btih:DE333510BC55210E2BAD011F71B9BAA41B563F63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +429,8 @@ Hinder - 3 альбома (2003, 2008, 2010) [MP3|320 кб/с]<Hard-rock, Altern
 magnet:?xt=urn:btih:25688080B2A7AEA444C40A934E766196527D742F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +464,8 @@ Hard Rain - Два альбома (1997 - 1999) [MP3|320 кб/с]<Melodic Hard R
 magnet:?xt=urn:btih:3FF4F08433568583FA6CA9FE1BA6B2700701B66E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +492,8 @@ The Doors - Back In Town (Live) (1968) Reissue, 2023, Vision [MP3|320 Kbps] <Roc
 ```bash
 magnet:?xt=urn:btih:D4AA8EB4AC9A2365F33088DF467E1B9FACA91676
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +528,8 @@ Pride Of Lions - Immortal (2012) [MP3|320 кб/с]<Melodic Rock | AOR>
 magnet:?xt=urn:btih:083A02A423E832B3B6591BE8FF027D23255C48C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +560,8 @@ The Hedons - Tomb Of Stars (2012) [MP3|320 кб/с]<Stoner Rock / Metal>
 ```bash
 magnet:?xt=urn:btih:5E8088709267195760F5BC8C461993AD9B89F6A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +594,8 @@ Planet X - Quantum (2007) [MP3|320 кб/с]<Progressive Fusion Rock>
 ```bash
 magnet:?xt=urn:btih:43FF798163B7C3B3F4B16009854F22135D220A0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +630,8 @@ Heat - Heat (2012) [MP3|320 кб/с]<Old School Stoner Rock>
 magnet:?xt=urn:btih:028D5D64CAB606F37E050E7A17C39BB071C81399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +658,8 @@ Tankus The Henge - Luna Park! (2020) [MP3|320 Kbps] <Classic Rock, Jazz Rock>
 ```bash
 magnet:?xt=urn:btih:4D5E7D16D573CE9E1AA0187B99F81226B0486534
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +688,8 @@ Nicolette Larson - Nicolette (1978) Remastered, 2013, Warner Bros. Records [MP3|
 magnet:?xt=urn:btih:1612E058448692A254603762BD9A2544975C5BD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +716,8 @@ The Noble Manes - Hysteria Of Being (2020) [MP3|320 Kbps] <Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:D63EF88FCF028CC6DD28BBC2D6BB482CE5E4BBC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,6 +746,8 @@ Slade - Merry Xmas Everybody (2023) [MP3|320 Kbps] <Rock, Glam Rock>
 magnet:?xt=urn:btih:9EE78E9A212084E98155F80805F7E38C265EB097
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -727,6 +775,8 @@ VA - Best of 2021: Rock [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:73263515CEBBCD0F9CBA390597F5A85DF26E0642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -753,6 +803,8 @@ Lindi Ortega (Линди Ортега) - Faded Gloryville (2015) Last Gang Recor
 ```bash
 magnet:?xt=urn:btih:4A93041051F57C71CAB7C52444D6217DDE71ED92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

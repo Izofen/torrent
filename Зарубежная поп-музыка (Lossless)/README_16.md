@@ -22,6 +22,8 @@ VA - Female Pop Ballads (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul>
 magnet:?xt=urn:btih:B5E31E4EA3F0EAF5DB7B6434238B380EFF06E7C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ George Michael - 14 альбомов (1987-2006) [FLAC|Lossless] <R&B, Pop, Funk
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ a-ha - Hunting High And Low (1985) 2CD, Remastered, 2010, Warner Bros. Records [
 magnet:?xt=urn:btih:6D8853AD8CA9F296272E5B76F858260940813F78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Absolutely - Cerebrum (2023) Explicit Content [FLAC|Lossless|WEB-DL|tracks] <Pop
 ```bash
 magnet:?xt=urn:btih:3BD999F3F514EACEF71B0E6B1940F9DC7B305268
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Stars On 45 - The Best Of (2005) [FLAC|Lossless|tracks + .cue]<Pop, Disco>
 magnet:?xt=urn:btih:C6E94A93CAECB98DC260B1A451DEB812098A53F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Sandra - The Wheel Of Time (2002) [FLAC|Lossless|image + .cue] <Pop, Europop>
 ```bash
 magnet:?xt=urn:btih:B9E56D42FE4AE09FF1C8023378AA963CA9C53442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Glory of Love: Classic Love Ballads (2020) [FLAC|Lossless|WEB-DL|tracks] <P
 magnet:?xt=urn:btih:B10166A282221458C683DD01C27FF9EDDD87F407
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Neoton Familia - Marathon (1980) 1998, Remastered, Gong [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:7E35C485AB971956E9A0E2DB4649910B20BE4E01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Milli Vanilli - The Best of Milli Vanilli (2023) 35th Anniversary [FLAC|Lossless
 magnet:?xt=urn:btih:496E84370BED269FBA14414CC7FAECCF21EF4EC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ Josh Groban - Closer (2003) 20th Anniversary Deluxe Edition, 2023, Reprise [FLAC
 ```bash
 magnet:?xt=urn:btih:B705530AD2DEA635927812C2F5F2726F3D82FDA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ Thomas Anders & Florian Silbereisen - Alles funkelt! Alles glitzert! (2023) EP [
 magnet:?xt=urn:btih:07CB357959481E9C5D3FE982301BB45BDD26232D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +339,8 @@ Bryan Ferry - Mamouna (1994) Deluxe, 2023, BMG Rights Management [FLAC 24/44.1|L
 ```bash
 magnet:?xt=urn:btih:D9331A7FFA9AAE22BE14363ABC6EB7902C9B8309
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +369,8 @@ Vanessa Amorosi - Memphis Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, 
 magnet:?xt=urn:btih:713D92E1AEEB4B5901650A791B91191832F27A8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +397,8 @@ Jewel - Spirit (1998) Deluxe Edition, 2023, Craft Recordings [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:5373A752147A1A88293C1AA3E308547211350936
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +427,8 @@ Jerry Vale - Have Yourself a Merry Little Christmas (2003) [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:E5D69167FB98CA4D722F2BA7B425B20049042547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +455,8 @@ Vaya Con Dios - Shades of Joy (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop-Ja
 ```bash
 magnet:?xt=urn:btih:493C1FD545622B4DAE488D240D815E826BB450E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +485,8 @@ Thomas Anders - …Sings Modern Talking: Romantic Warriors (2025) [FLAC|Lossless
 magnet:?xt=urn:btih:D67B04E09C9168FB9B0FBE456EFEC50B186E4C92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +513,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:D24CBF1D428864E8C028C74D7FD82D5CC13A6EDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +543,8 @@ Sam Ryder - Heartland (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:49C71997F5FD5264A53ED09D233F30A38A9B56D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +571,8 @@ Lara Fabian - Lockdown Sessions (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:464ECE385D5C3693AEA93F2E5AB8AFAAD30483B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +601,8 @@ Kylie Minogue - Kylie Christmas (2016) Snow Queen Edition [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:79C068BA25433CD3D949C4F5D55AFB076757A011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +629,8 @@ John Travolta & Olivia Newton-John - This Christmas (2012) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:D553908AEAE99758DF3DB94741DE084DECD3EA38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +665,8 @@ Gianna Nannini - Hitalia (2014) [FLAC|Lossless]<Pop, Italian Pop, Pop-Rock>
 magnet:?xt=urn:btih:20C1A7761A6273ED5283C680767F106CBFAAA8D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +696,8 @@ George Baker - Seventy (2014) 2CD [FLAC|Lossless]<Pop, Pop-Rock, Nederpop, Palin
 magnet:?xt=urn:btih:04B14171A9D1C8C6720ACF68A25106B1E5E1D475
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -677,6 +725,8 @@ VA - Last Christmas (2012) [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock, Easy Li
 magnet:?xt=urn:btih:1D7650A6603778C364EC81A659AA207BEC986165
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -703,6 +753,8 @@ Laura Pausini - Laura Xmas (2016) [FLAC|Lossless|WEB-DL|tracks] <Christmas, Pop,
 ```bash
 magnet:?xt=urn:btih:858D7FCED3F761CA8834A5C5605F2FBE1F85E77A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

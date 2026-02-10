@@ -1,3 +1,32 @@
+###  Публикация: 899442   (672717) от 19.05.2015
+
+Аквариум & БГ - GreAtest Hits (2015) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Поезд в огне (4:01)
+02. Стаканы (2:10)
+03. Сестра (4:22)
+04. Человек из Кемерова (3:47)(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12AA2D2D504AA7BACE2D6F8FD914D04215517C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536545   (672783) от 13.03.2022
 
 Сколот - Эхо Времён (2021) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Neo Folk>
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:DB69557B1BBB761F92ADB2B4D85A416A1A9F7BCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Louna - Behind A Mask (2013) [FLAC|image + .cue]<Alternative Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:0893B641F2BD7986E24F7244C96B49AD099B1418
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +144,8 @@ magnet:?xt=urn:btih:0893B641F2BD7986E24F7244C96B49AD099B1418
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +172,8 @@ magnet:?xt=urn:btih:0893B641F2BD7986E24F7244C96B49AD099B1418
 ```bash
 magnet:?xt=urn:btih:7B25E90E3A7147E8DF3B31F3D3065EF00BA57CDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +208,8 @@ magnet:?xt=urn:btih:7B25E90E3A7147E8DF3B31F3D3065EF00BA57CDD
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +236,8 @@ magnet:?xt=urn:btih:7B25E90E3A7147E8DF3B31F3D3065EF00BA57CDD
 ```bash
 magnet:?xt=urn:btih:55064384E3DB42A2517D90F6C34D7D74F1009BC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +266,8 @@ Auto-De-Fe - Стихия (2010) [FLAC|Lossless|image + .cue] <Doom Gothic Metal
 magnet:?xt=urn:btih:ED0B20F1901FBE8FA50E4740D8D99BC7827FC519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +294,8 @@ magnet:?xt=urn:btih:ED0B20F1901FBE8FA50E4740D8D99BC7827FC519
 ```bash
 magnet:?xt=urn:btih:57137907351BFE09013F0B893BDA0EAD49CBF1B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +324,8 @@ magnet:?xt=urn:btih:57137907351BFE09013F0B893BDA0EAD49CBF1B9
 magnet:?xt=urn:btih:D4B3461EFC46A139F4762FD6E344BA4A0AE734B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +352,8 @@ magnet:?xt=urn:btih:D4B3461EFC46A139F4762FD6E344BA4A0AE734B4
 ```bash
 magnet:?xt=urn:btih:830E0B0C1E7BA168F8015BF4F410D4E7793C0DB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +382,8 @@ Main CD
 magnet:?xt=urn:btih:EFE636A18CFD5515FBC4999CCCBD68543E47E289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +410,8 @@ magnet:?xt=urn:btih:EFE636A18CFD5515FBC4999CCCBD68543E47E289
 ```bash
 magnet:?xt=urn:btih:CB8A32EEECB5DB668B3AC16C643C9FA72180F5FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +440,8 @@ magnet:?xt=urn:btih:CB8A32EEECB5DB668B3AC16C643C9FA72180F5FE
 magnet:?xt=urn:btih:EA978220E2B22910672219B7293D8A222B7816F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +468,8 @@ Nokturnal Mortum - Істина (2017) [FLAC|Lossless|image + .cue] <Folk,Pagan,
 ```bash
 magnet:?xt=urn:btih:D008D9F269DAA0C87D28033A405D1CE4A75C5E95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +498,8 @@ magnet:?xt=urn:btih:D008D9F269DAA0C87D28033A405D1CE4A75C5E95
 magnet:?xt=urn:btih:82B9A862065715674F9DE19F12DEE7304BEBDA3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +526,8 @@ Branikald - Тингов Наслаждаясь Распрей (2013) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:56B0BBD858DF09423EE2362FCF3A28A51C5820D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +556,8 @@ magnet:?xt=urn:btih:56B0BBD858DF09423EE2362FCF3A28A51C5820D4
 magnet:?xt=urn:btih:4E3D9CFD77257639746867F51D75547CEFF2E006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +585,8 @@ Maestro Nosferatu - Maestro Nosferatu (2020) [FLAC|Lossless|WEB-DL|tracks] <Goth
 magnet:?xt=urn:btih:4931C05E0EBBA828D157A3AD0AF13361D0B64145
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +610,8 @@ Segregate - 2 Album/2 Singles (2019-2020) [FLAC|Lossless|WEB-DL|tracks] <Progres
 ```bash
 magnet:?xt=urn:btih:61A4BE59D0E445DC279CFC9DC8F5F8F3CE828B66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +640,8 @@ magnet:?xt=urn:btih:61A4BE59D0E445DC279CFC9DC8F5F8F3CE828B66
 magnet:?xt=urn:btih:16F20463C162591ECBAA69E9BBB1BE3D0A86564D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +667,8 @@ Neutrino, Нейтрон - 7 релизов (2012-2017) [FLAC|tracks+.cue]<Melod
 ```bash
 magnet:?xt=urn:btih:78A8C49539434F7388FF3482C3DA967EC3A23610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +697,8 @@ Unholy Night - Succubus (2020) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Rock'
 magnet:?xt=urn:btih:32E3383057101FEACC404E57CD133553009AB404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +725,8 @@ Drops of Heart - Stargazers (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death 
 ```bash
 magnet:?xt=urn:btih:9DDD7F741A2FA5FE73E80DF60909E825DC2A84A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -678,32 +755,7 @@ Coated With Filth - Like Sacrificial Lambs (2020) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:2BD6A72A7DE97ADC8103DB82A8E02E38E724363F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402599   (699936) от 15.08.2020
-
-Megakill Paranoise - Total Fucking Shame (2019) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_699936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bubonic Metal [00:02:54]
-02. Pesonal Damien Thorn [00:03:47]
-03. Total Fucking Shame [00:03:59]
-04. Croatoan for Anybody [00:04:57](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:419080B2B4D2213A423555D92984030874FE07EC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Argishty - В начале было дыхание (2016) [MP3|320 Kbps] <Armeni
 magnet:?xt=urn:btih:FC9095617590D2FE1178A2D251A63B4A72F6AE95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ The Northern Lights - City Of Angels (2016) [FLAC|Lossless|WEB-DL|tracks] <Synth
 ```bash
 magnet:?xt=urn:btih:26A8D7DB654BFB84CEE1DD25EE29FAF4CE9A7606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Super Runabout - San Francisco Edition (2000) [MP3|320 кб/с]<Score>
 magnet:?xt=urn:btih:772F9DE3D19AC1A9C2E856E106BAC0CB7A24D2A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Jim Brickman - Blessings (2014) [MP3|320 Kbps] <New Age, Piano, Christian & Gosp
 ```bash
 magnet:?xt=urn:btih:7EEE4AD081B45F930CA63AADE88E55BD0B4CE68F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Alistair Lindsay - Rimworld OST (2013-2018) [MP3|~210-270 Kbps] <light guitar in
 magnet:?xt=urn:btih:AE3BA866691D3606E91E145AD1AE0E3482EAEC7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ The Fabulous Johnny Cash
 ```bash
 magnet:?xt=urn:btih:BA35FB8CDE25DDF7CD0951908836C7E94641CE04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ VA - Золотые Хиты Советского Кино - 2 Альбома (2
 magnet:?xt=urn:btih:D4988B1C8155DF6751FDF9C72B712AC20DE6968E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +231,8 @@ Loreena McKennitt - Lost Souls (2018) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:CF54873E889E9CC7D6309EE38FA80EB79D37289D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +259,8 @@ magnet:?xt=urn:btih:CF54873E889E9CC7D6309EE38FA80EB79D37289D
 ```bash
 magnet:?xt=urn:btih:EB21847BF950E16EE6EBE34EDF84286E22FB88D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +293,8 @@ VA - Essential Guitar - 33 Guitar Masterpieces (2002) 2CD [WavPack|Lossless]<Cla
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +329,8 @@ VA - Адажио для арфы / Harp Adagios (2005) [FLAC|Lossless]<Classica
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +364,8 @@ Jorgen Ingmann - Guitar Romantic Collection, vol. 3 (1990) [MP3|320 кб/с]<Ins
 magnet:?xt=urn:btih:9AB3FDF880E2580208917F13C039F5CF6E1982C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +392,8 @@ VA - E-Scape 2015 (2015) [MP3|320 кб/с]<New Age>
 ```bash
 magnet:?xt=urn:btih:FBA03776726512EDF814825D96056B7353019B7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +422,8 @@ VA - The Melodic Relaxing Piano Collection Vol. 1 (2014) [MP3|320 Kbps] <Instrum
 magnet:?xt=urn:btih:BA491C06702E6B75E3043F1F9107ED2336FA642F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +450,8 @@ Jacob Pavek - Illume (2015) [FLAC|Lossless|tracks] <Modern Classical, Ambient, P
 ```bash
 magnet:?xt=urn:btih:6353A7850A8D0EF79773EA10B0FE3276F12FE3E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +486,8 @@ Dan Gibson's Solitudes - Blue sky classics (2008) [MP3|256 kbps]<Релакс, N
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +514,8 @@ Amy Lauren - Sulla Riva (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:12E84847938C33BE8AF513E245D8507CEDE05374
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +544,8 @@ John Fluker - 11:11 (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 magnet:?xt=urn:btih:A28922E367850679542B0DFB60295157DEA24D8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +572,8 @@ magnet:?xt=urn:btih:A28922E367850679542B0DFB60295157DEA24D8E
 ```bash
 magnet:?xt=urn:btih:E9C61AC253B1F978E92A7C46E0D30B4DB7B1470F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +602,8 @@ VA - Defected Accapellas Deluxe Vol. 15 (2019) [MP3|320 Kbps] <Acapellas, DJ Too
 magnet:?xt=urn:btih:8526C06D5AB67E8DCACB047CB826EB350F9D621D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +630,8 @@ The Romantic Strings Orchestra - Thanks For The Memory (1995) [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:4F4636160286BC03F56C69C8AD8BCF7BE2E4EA83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +660,8 @@ VA - Кунг Фьюри / Kung Fury (Original Motion Picture Soundtrack) (2015)
 magnet:?xt=urn:btih:5EE7FC5D27AD75F829FFB2D38EBE626AF61FA512
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +688,8 @@ VA - Кунг Фьюри / Kung Fury (Original Motion Picture Soundtrack) (2015)
 ```bash
 magnet:?xt=urn:btih:981D12B5B84C58A5030FB1CACC0542F485E15BBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -678,6 +724,8 @@ Henry Mancini - Trail Of The Pink Panther / След Розовой Пантер
 magnet:?xt=urn:btih:1BA18428E0F1D0C97D60BBD46F0B77F3865B9710
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -704,6 +752,8 @@ Enigma - Enigma 4 - Metamorphosis (2013) Reworked Bootleg [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:B5A6E980DE39110DF61F8422770C4830E7EEF0AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -732,6 +782,8 @@ The New Paul Mauriat Grand Orchestra - Still Blue (Best Collection Dedicated to 
 ```bash
 magnet:?xt=urn:btih:533FC8CE9F1A0F7607FDF743E829EE15F470178B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

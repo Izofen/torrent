@@ -19,6 +19,8 @@ IntelliJ IDEA — самая умная среда разработки для J
 magnet:?xt=urn:btih:8C00EB71D6DE59D405DAD677B589420386D7E57D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ IObit Uninstaller представляет собой удобный инстр�
 ```bash
 magnet:?xt=urn:btih:81294959B2553390C756618BA096ABAAFF2EEB39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 magnet:?xt=urn:btih:5651FEBE79F20A6055D3D0EFCBCBA0D03603983D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ MediaInfo — позволит узнать техническую информ�
 ```bash
 magnet:?xt=urn:btih:7E97F3A8E8464E3E5119481BE303A57AF4CA22DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ NIUBI Partition Editor (Repack & Portable) – программа для про�
 magnet:?xt=urn:btih:1303EC874D161EE9B3567362DD968C3C4FCBD521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ VPN Russia - VPN сервера в России 1.182 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:87DA5F2505B0B7801F7A7BB23A52CEA31FDE4FB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Opera One 104.0.4944.54 Portable by Cento8 [Ru/En]
 magnet:?xt=urn:btih:E92E2F19FD401F235BD375E46CBF534D0BF82E4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:3138071054F4F8F642FE9CFFC5BE95BE454E8F38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ WebStorm - Легкий, но мощный IDE, прекрасно оборуд�
 ```bash
 magnet:?xt=urn:btih:04D0070EE6E075AE86F87730D09583348BF693CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Capture One Pro один из самых мощных профессиональ
 magnet:?xt=urn:btih:8F2B17847C3B384DD7144D7595F4BC1B8D516958
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 ```bash
 magnet:?xt=urn:btih:97F9A94332EFEF92831F8D29D21B93663C8A23EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Opera One 104.0.4944.54 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:B95407247B231242C5CFF32C754B422D213E13FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ MediaHuman YouTube Downloader 3.9.9.87 (0811) RePack (& Portable) by elchupacabr
 magnet:?xt=urn:btih:DE11DEF4927093DB66BA14EB1A7602DC0B3F1E69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:67E0D3063E5CA53EA787BC008C5A09FF49A632B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ RSS Guard предоставляет строгий и лаконичный по
 magnet:?xt=urn:btih:3BAB4F906D9AEB15BC46A3C8F7105BC0FA2386D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:5E81C6A891D21E7518EF43EA8264E33CBA1C9B90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:DFDBAF3C9ACBF8495506A329AE106276F8CE38A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ MediaHuman YouTube Downloader 3.9.9.78 (2212) RePack (& Portable) by Dodakaedr [
 ```bash
 magnet:?xt=urn:btih:0D045886A7C918F1EC30D9F3EBDACF69F30891D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Daum PotPlayer - бесплатный мультимедийный проигр�
 magnet:?xt=urn:btih:70775BD69B6FB4997336A46D27F89FA4B51EB27B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Easy Data Transform 1.38.1 [En]
 ```bash
 magnet:?xt=urn:btih:71A203295A6455997624667E3DB74C7E01D26E58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ ExamDiff - мощная и легкая в использовании прогр
 magnet:?xt=urn:btih:52629AF3CDFD6E40A104458D865C192A7950C5C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Audacity - свободный, простой в использовании зв
 ```bash
 magnet:?xt=urn:btih:B45D92868238F85ECE4A173998C8A874FB3021C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:765A40BDC8F365887CD7B5213FF81B1302F6D29C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Duplicate File Finder - утилита, которая находит дубли
 magnet:?xt=urn:btih:852FD9575480F1CCC44DCD227A7CE7C8BAEF0051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Valentina Studio - это идеальный инструмент управле
 magnet:?xt=urn:btih:797FA14EEAB983BE9FE97CC5E995177B4AB2B748
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ MediaHuman YouTube to MP3 Converter 3.9.9.87 (0811) RePack (& Portable) by elchu
 ```bash
 magnet:?xt=urn:btih:8E2F6B142ABD7C20775D65743E21992FEC4968E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

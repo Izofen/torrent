@@ -19,6 +19,8 @@ iA Writer 7.0.6 [Multi/Ru]
 magnet:?xt=urn:btih:25D7584B142CE1344AA34ABAEAE34E18A767DD50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Bjorn (Bjørn)  Berge - Introducing SteelFinger Slim (2024) [FLAC 24/44.1|Lossle
 ```bash
 magnet:?xt=urn:btih:C65134935EE4494FDC58A7E970DEB81D7A35A51E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Thunder - Live at Islington Academy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:043EFE4F8560474257AB0ECEB78397C5A56A5AC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:043EFE4F8560474257AB0ECEB78397C5A56A5AC5
 ```bash
 magnet:?xt=urn:btih:709FF28E263651DB917895DC476BC5FE19959B6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Emerald Table - Book of illusion's fragments (2023) [FLAC 24/48|Lossless|WEB-DL|
 magnet:?xt=urn:btih:7E7F55300749D043FCE75F921D03F19A43AD0633
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ Sleater-Kinney - Little Rope (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie
 magnet:?xt=urn:btih:F76E7DFFA9DF28707E84DDCE6AA0E3B67A6D899B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:F76E7DFFA9DF28707E84DDCE6AA0E3B67A6D899B
 ```bash
 magnet:?xt=urn:btih:731341B670216ABB6E2755C9DE10A816353CE5C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ Charles Mingus - Four Classic Albums Plus (1954 - 1959) 2CD, 2011, Avid Jazz [FL
 magnet:?xt=urn:btih:C278CBE8E0C9BB02FA1D4281C3811E0BD9A883F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ Dust & Bones - Mission Back to the Forbidden Planet (2024) [FLAC 24/48|Lossless|
 ```bash
 magnet:?xt=urn:btih:0C728E7B62E8515B88780D47D9ACC121F957832E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ Oblivion - Called To Rise (2013) [FLAC|Lossless|image + .cue] <Technical Death M
 magnet:?xt=urn:btih:2033DD58E7B294FF520BC71475C442A09474DA50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ magnet:?xt=urn:btih:2033DD58E7B294FF520BC71475C442A09474DA50
 ```bash
 magnet:?xt=urn:btih:3C23B12C57E6E8AF4624D03EEB20C0A2EDC37CFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ Louis Mezzasoma - Good or bad time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:495CE40EC59501E29D44946D850A7B4F8D03D883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ Bogobes - Катабасис (2024) [FLAC|Lossless|WEB-DL|tracks] <Blackened dea
 ```bash
 magnet:?xt=urn:btih:F98818FE63537EDE3B87C87F85496713E6AF24D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +388,8 @@ Feline Melinda - Seven (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal
 magnet:?xt=urn:btih:31D628E766A5C842B1808A4089D59865BED11411
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +417,8 @@ Skrizhali - Дети огня (2024) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:99A2FB187AA26675A6344FC326FC9A984E3FA6E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +442,8 @@ magnet:?xt=urn:btih:99A2FB187AA26675A6344FC326FC9A984E3FA6E9
 ```bash
 magnet:?xt=urn:btih:ACA83138959C8ACF9C279E160BDE080D599E0BD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +469,8 @@ magnet:?xt=urn:btih:ACA83138959C8ACF9C279E160BDE080D599E0BD2
 ```bash
 magnet:?xt=urn:btih:B39E2AC67BFE81B553C7920B26C83F29A3BB6DFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +499,8 @@ Erasure - The Neon (Live) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synth-pop,
 magnet:?xt=urn:btih:42E0E85B9CF5CAE509200897551A1B87895E4885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +528,8 @@ Etta James - Late Night Etta James (2024) Compilation [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:4B58A856A7C23B0801AF3A7646C97122348F8508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +554,8 @@ magnet:?xt=urn:btih:4B58A856A7C23B0801AF3A7646C97122348F8508
 magnet:?xt=urn:btih:D496D2CE1215DB608E5FBFE133F5D19C5CB6C0B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +579,8 @@ PowerDirector – Video Editor v13.1.2 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:98FF2B8A682A085653D66C6BA76EF7D95D8BA207
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +609,8 @@ VA - Uplifting Only Top 15: January 2024 (Extended Mixes) (2024) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:F0FA3019E1FD1E8A24919D8B52007197073BCB42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +634,8 @@ magnet:?xt=urn:btih:F0FA3019E1FD1E8A24919D8B52007197073BCB42
 ```bash
 magnet:?xt=urn:btih:8F54F02E6ECAF4C2F13C44C442A59C0010F3BBA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +662,8 @@ magnet:?xt=urn:btih:8F54F02E6ECAF4C2F13C44C442A59C0010F3BBA3
 ```bash
 magnet:?xt=urn:btih:B45A600D5436147E2E9ED95C070432B7C4D11508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +692,8 @@ magnet:?xt=urn:btih:B45A600D5436147E2E9ED95C070432B7C4D11508
 magnet:?xt=urn:btih:747A4A67F1BC4244C9FEC0C307F0D5F8DBA29AC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,6 +720,8 @@ Mel Torme - An Evening With Mel Torme: Live from The Disney Institute (1996) Con
 ```bash
 magnet:?xt=urn:btih:B78EA06CD6267FF9E75CCD19753CB7FF6CBEE87F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

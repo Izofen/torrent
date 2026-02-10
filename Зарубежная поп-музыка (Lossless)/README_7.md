@@ -22,6 +22,8 @@ The Dark Tenor - 2 Albums (2014, 2025) [FLAC 16/44.1|Lossless|WEB-DL|tracks] <Ne
 magnet:?xt=urn:btih:8F94303AE8A8FA80E265F790E53AE16FC8004538
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Bordeaux - Pesa tutto il mondo addosso (2025) [FLAC|Lossless|WEB-DL|tracks] <Ita
 magnet:?xt=urn:btih:3F8384FA398E01B19DB09C5767908659B149BF38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ RaiNao - Capicu (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, jazz, R&B
 ```bash
 magnet:?xt=urn:btih:2A86AB1D624839D671B4BE5704358525CBA11B23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ Karen Cheryl - Étonnamment Romantique - Best Of (2025) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:7F12DA0D204D0FAB0E1E3340AD33033CDB9B7409
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ Heidi Montag - Superficial (2010) Anniversary Edition, 2025, Pratt Productions [
 ```bash
 magnet:?xt=urn:btih:7989613652ABF4F1DD01024486792258AA8AC3AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ Anastacia - Not That Kind (25th Anniversary) (2025) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:DA56D2495D855E896E71C2C9CE57E9ED82802E2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ V.A. - Viva Italia (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:4E2EB3A568F7AE2B570EA31A1AE999F6D465C7BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:4E2EB3A568F7AE2B570EA31A1AE999F6D465C7BD
 magnet:?xt=urn:btih:E4AF1A4932D59C997514BCBD91D60FDA3714351F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +252,8 @@ Nej (Nej') - SOS IV (Paranormal) (2025) [MP3|320 Kbps] <Soul, Funk, R&B>
 ```bash
 magnet:?xt=urn:btih:5B78860EB53A6109B652CAE0CC0FD0C91D9E4746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ VA - Valentines Day 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:D355E215F1A781DD74D7371A912E7AA26C83AD64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ Banshee - FABLES (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:77EB93CDE3ED7B1BFF78DEF19133CCFC0C721D1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +340,8 @@ Michael Medrano - The Penthouse (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Dan
 magnet:?xt=urn:btih:A9F1139FD17358E13BEAA2FE79BBB8A10CF98E5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ Cock Robin - американская поп-рок-группа, наиболе
 ```bash
 magnet:?xt=urn:btih:9746079D70220EF1CF3637AF4AA0C872A928546D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +404,8 @@ Palast Orchester & Max Raabe - Super Hits (2000) [APE|lossless]<Europop, Big Ban
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +430,8 @@ Highland - Nicole Heiland, Dean Burke и Patrice "Lady Scar" Gansau (учавс�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +460,8 @@ CD4 - Musica e:Жанр: PopПродолжительность: 01:57:12
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +496,8 @@ Lana Del Rey - Born To Die (Deluxe Edition) (2012) [FLAC|Lossless]<Indie Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +530,8 @@ VA - Compact Disc Club - Wonderful Life [4CD Box Set] (2011) [FLAC|Lossless]<Pop
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +566,8 @@ ABBA - The Love Songs (1989) [FLAC|Lossless]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +600,8 @@ Louis Clark conducting Royal Philharmonic Orchestra - The Best Of Hooked On Clas
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +636,8 @@ The Steve Miller Band - Abracadabra (1982) [FLAC|Lossless]<Pop Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +670,8 @@ Lady GaGa - The Singles (2011) [FLAC|Lossless]<Pop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +706,8 @@ George Michael - 5 Студийных альбомов (1987 - 2004) /Japan/ [FL
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +741,8 @@ Mustafa Sandal - Best Album (2007) [APE|Lossless]<Pop, Dance>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -721,6 +769,8 @@ Sting - Desert Rose featuring Cheb Mami (1999) [FLAC|Lossless]<Pop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -754,6 +804,8 @@ Clout - Substitute (2000) [FLAC|Lossless]<Pop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

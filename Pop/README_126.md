@@ -22,6 +22,8 @@ Ricchi E Poveri - The Collection (1998) [FLAC|tracks+.cue]<Italo-Disco, Disco>
 magnet:?xt=urn:btih:9102AD6E31DC3427128183FEA7F9DE41464AA2BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Backstreet Boys - Greatest Hits - Chapter One (2001) [FLAC|tracks+.cue]<Europop,
 ```bash
 magnet:?xt=urn:btih:F11777354596852338D1AF3DDD0BEAE15227DADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ CD1
 magnet:?xt=urn:btih:098E64C748C81CDC791F5973AD87C6645540F96A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Absolute Music 79 (2015) 2CD [FLAC|track+.cue]<Top 40, Pop Compilation, Pop
 ```bash
 magnet:?xt=urn:btih:BBB96BC35FFF69BAF2282D753ADE4E1BBAC19F23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Taylor Swift - reputation (2017) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:D5B1BBA573168F5B551E5947E2DA47A32DA1A88C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Now That's What I Call Music! 98 (2017) Sony Music [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:4CEBF575808362D362C9917433EB052FD0E3B05B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:4CEBF575808362D362C9917433EB052FD0E3B05B
 magnet:?xt=urn:btih:584D0B79982E5791E721FDC2D522A2185F371956
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ ZAZ - Effet Miroir (2018) [MP3|320 Kbps] <Nu Jazz, Chanson, Soul>
 ```bash
 magnet:?xt=urn:btih:95E662C3B04B3AFED9E71ED10302F50037E569BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:95E662C3B04B3AFED9E71ED10302F50037E569BE
 magnet:?xt=urn:btih:E9C1C040A214C10A2A15D6B748B97CCD41E3F0BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:E9C1C040A214C10A2A15D6B748B97CCD41E3F0BA
 ```bash
 magnet:?xt=urn:btih:50570FAD9EE12E8DCAB3C6CDB9EC4A0B212244D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Wolfgang Maus Soundpicture - Children Of The Universe (1979) LP [MP3|320 Kbps] <
 magnet:?xt=urn:btih:C36F99CDF5ADB917C61B8C47250AF347CC614524
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Bjork (Björk) - Utopia (2017) [MP3|320 Kbps] <Electronic, indie, Experimental, 
 ```bash
 magnet:?xt=urn:btih:7A66AC07A440C4257400839A74F1F66D200D1AE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Mariah Carey - Caution (2018) [MP3|320 Kbps] <Pop, R&B>
 magnet:?xt=urn:btih:7E7DF94DDF68F9941CA550297E6DC3F744E90E81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Eros Ramazzotti - Eros Duets (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:579494ADC9AF5E57380B2810231F3C6EB918C884
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Little Mix - LM5 (2018) Japanese Edition [MP3|320 Kbps] <Pop, R&B, Hip-Hop>
 magnet:?xt=urn:btih:189B39DC142E4B1147DB495D3EC8112190A1463A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Tom Jones - The Best Of... Tom Jones (1997) [FLAC|tracks+.cue]<Vocal>
 ```bash
 magnet:?xt=urn:btih:38A3F6F9EF8C121C7B3777F568EAE3141634D24A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ magnet:?xt=urn:btih:38A3F6F9EF8C121C7B3777F568EAE3141634D24A
 magnet:?xt=urn:btih:91E040F8E644167C53C3382A09561E8BB7B42F34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ magnet:?xt=urn:btih:91E040F8E644167C53C3382A09561E8BB7B42F34
 ```bash
 magnet:?xt=urn:btih:F54B710E17119404B6A34FFF25CF8618B914FB04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Gloria Estefan - Greatest Hits Vol. II (2001) [FLAC|tracks+.cue]<Latin, Pop>
 magnet:?xt=urn:btih:A7B8C57B071A5BEEC485BB7C62AA0A2EF4709E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +573,8 @@ Total Coelo - I Eat Cannibals & Other Tasty Trax (1996) CD [MP3|320 Kbps] <Elect
 magnet:?xt=urn:btih:3F7050D52DF723124EB11DD80C8269F88EF51E3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +601,8 @@ VA - 100 Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:6A3FB4E2737ED9DAC70C82202BFD7968E0072D38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +633,8 @@ Air Supply была дуэтом вокалистов Рассела Хичко�
 magnet:?xt=urn:btih:590D39BED924461518F91AF852E87DDF0F806FF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +661,8 @@ VA - Instrumental Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Instr
 ```bash
 magnet:?xt=urn:btih:D5357F9D32360F6C7C65D4C585E8F03C8C4C9364
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +691,8 @@ VA - Instrumental Covers: Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Po
 magnet:?xt=urn:btih:BFD25EC6DAD86154A4B7826D44A145D87E51CA88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +720,8 @@ Supermax  - World Of Today (1977) Reissue, 1987, Atlantic [FLAC|Lossless|tracks 
 magnet:?xt=urn:btih:7058093D7C87BCF119F673AA253B433D6E157D5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,6 +748,8 @@ VA - Coffee Shop Instrumental Greatest Hits (2020) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:5D196111CE9FB557FEF667FE60A1A46A02067301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

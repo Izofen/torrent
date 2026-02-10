@@ -22,6 +22,8 @@ VA - Italian Vacation: Radio Italo Disco (2017) [MP3|320 Kbps] <Disco, Italo Dis
 magnet:?xt=urn:btih:F23DB7D68ECAABF17C6032C72CFC77DD22025AA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Arrayan Path - Dawn Of Aquarius (2017) [MP3|320 Kbps] <Epic Power Metal>
 ```bash
 magnet:?xt=urn:btih:88007C3F068B9E72A568D1DB8F38B296D53994BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - EDM Lover: Rave Ultimate Dance Party (2017) [MP3|320 Kbps] <Club, Dance, El
 magnet:?xt=urn:btih:2D3A261159CE6DA55A60FB515CD3C4CB84F780A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Rare Gems - Million Dollar Disco (1978) LP [MP3|320 Kbps] <Funk-Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:03541882FA1EB306F11879CE32CCA41181A402BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:03541882FA1EB306F11879CE32CCA41181A402BA
 magnet:?xt=urn:btih:6741A4590B9AB9C6416F927E1387C2427FD3C23E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ magnet:?xt=urn:btih:6741A4590B9AB9C6416F927E1387C2427FD3C23E
 ```bash
 magnet:?xt=urn:btih:101BA93D209AB6DBA2CF40E92F9C7BD214134C86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +195,8 @@ VA - Your Bass List (2019) [MP3|257-320 Kbps] <DnB, Bass>
 magnet:?xt=urn:btih:69E55BA224272EB7B8AE6F701BB2E8DECCE1F987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ Crystal Ball - 2020 (2CD) (2019) [FLAC|Lossless|image + .cue] <Hard 'n' Heavy>
 ```bash
 magnet:?xt=urn:btih:878605A5334356D136AF7249D6A2991DA6983651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:878605A5334356D136AF7249D6A2991DA6983651
 magnet:?xt=urn:btih:F50153F1228FDD3E386676675440CDCD3D5A6771
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ Yesterday / Yesterday (2019) BDRip [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:A2E717CEC6292ABD14F8A4669663F92C5A711293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:A2E717CEC6292ABD14F8A4669663F92C5A711293
 magnet:?xt=urn:btih:6F6FCFE3962A664C02C31D7D8B4134B4BD57AD52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:6F6FCFE3962A664C02C31D7D8B4134B4BD57AD52
 ```bash
 magnet:?xt=urn:btih:C2FBC0D13F1B07A1E0AD20169433DA0C055DFEBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:C2FBC0D13F1B07A1E0AD20169433DA0C055DFEBC
 magnet:?xt=urn:btih:25059C06EED665794BA72BD6AE7A08C6B3F5105E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:25059C06EED665794BA72BD6AE7A08C6B3F5105E
 magnet:?xt=urn:btih:D27E01CD09B817B9EDFA7630F27D143BA5C557D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ Noise Machine - это генератор белого шума и звуков�
 ```bash
 magnet:?xt=urn:btih:D7CDCD9D2A3D45B667DD27B10632A60B0A16731A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ Steve Hauschildt - Nonlin (2019) Ghostly International [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:49BD707D4AADF477EC8FB9E44281FD744E10746A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ Airmail – это почтовый клиент для операционной
 ```bash
 magnet:?xt=urn:btih:2463CD474CC4227A02A37CD28CE080E048809B5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +491,8 @@ Matthew Collings - Uzonia (2019) Denovali Records [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:216EA0F11FF6B5E1B130DD266E545C9EEB8A6F6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 magnet:?xt=urn:btih:DE1E9D81E98ECA194B65A4E7DFB2F70BD4CBA8F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ magnet:?xt=urn:btih:DE1E9D81E98ECA194B65A4E7DFB2F70BD4CBA8F3
 ```bash
 magnet:?xt=urn:btih:B67CD4DC4A9109BCE3AB0D457218B1900606862E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ Record Lectures 3.1.3 [Multi/Ru]
 magnet:?xt=urn:btih:C642B37F5F8048962B5602E31B3C1E80DCA67710
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ Go64 1.0.5 [En]
 magnet:?xt=urn:btih:83819C9B0CC0F4CC521779F4BEB674D588DDE736
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ File Cabinet Pro - файловый менеджер строки меню Mac O
 ```bash
 magnet:?xt=urn:btih:4F4391AFE09AE9EE9A5FA05020220C4C9B820A9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ File Juicer может быть использован (   Читать дал�
 magnet:?xt=urn:btih:B53E913DD60E7B37A90D771A44D8F3CFA3A3B0CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:B53E913DD60E7B37A90D771A44D8F3CFA3A3B0CB
 ```bash
 magnet:?xt=urn:btih:CE923AF1F44AE698335EEFF1D9D5F9EEA81528E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +712,8 @@ Anibal Palazolo - Flamenco Entre Cuerdas (2009) [MP3|320 кб/с]<Instrumental, 
 ```bash
 magnet:?xt=urn:btih:B382B98F1A383AFDB68B59EB1675D9316B4C5068
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

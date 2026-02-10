@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:970953ABD0556B80A2E7A8A9EC58B8F31F184CCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:970953ABD0556B80A2E7A8A9EC58B8F31F184CCC
 magnet:?xt=urn:btih:8376CEC3B7EA3D2BDDFB06101D72A5FDDC025589
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Juntao Qiu | Test-Driven Development with React and TypeScript, 2nd Edition (202
 ```bash
 magnet:?xt=urn:btih:2DBB955CF6F62306C14E1DD91B949FDC9365A6B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Vaskaran Sarcar | Simple and Efficient Programming with C#, 2nd Edition (2022) [
 magnet:?xt=urn:btih:90F0F177F7BD675CA48B5DA99526EB020A5C294F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ BK Sarthak Das, Virginia Chu | Security as Code (2023) [PDF][EN]
 magnet:?xt=urn:btih:9F77290F9A44BEA206A68757D48E03CD34EEA930
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Dusan Petkovic | Microsoft SQL Server 2019: A Beginner's Guide, 7th Edition / Mi
 ```bash
 magnet:?xt=urn:btih:8756E4BFF1959ED1F371C8BC03B727A31948EE8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:8756E4BFF1959ED1F371C8BC03B727A31948EE8C
 magnet:?xt=urn:btih:8C0F352C3D1453983FE6E347D8E6A42AF90DFB3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:8C0F352C3D1453983FE6E347D8E6A42AF90DFB3C
 ```bash
 magnet:?xt=urn:btih:1AC0EEF0D40CEF899C6760C5354556BE941CBE1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Raymond Lacoste, Bradley Edgeworth | CCNP Enterprise Advanced Routing ENARSI 300
 magnet:?xt=urn:btih:D11FB9F3C1065249ADDA3490A4CD761C70AD8756
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:D11FB9F3C1065249ADDA3490A4CD761C70AD8756
 ```bash
 magnet:?xt=urn:btih:C3535270A014222F90D9109223347358EFBC9A7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Wendell Odom | CCNA 200-301 Official Cert Guide, Volume 1 / Официально
 magnet:?xt=urn:btih:D5E8E6F5BE6ECF3C2A63FEFDC647B970B6083E92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Wendell Odom | CCNA 200-301 Official Cert Guide, Volume 2 / Официально
 magnet:?xt=urn:btih:4C06914AEA589D912F34DA2C367415FB1950FF77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Todd Lammle | Understanding Cisco Networking Technologies: Volume 1 Exam 200-301
 ```bash
 magnet:?xt=urn:btih:F7FC65795F7478D66971FD0874EFB2D71D3C8689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:F7FC65795F7478D66971FD0874EFB2D71D3C8689
 magnet:?xt=urn:btih:7A5E6346BD02C3098DBF8B5B782A53F6919D0248
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Mustafif Khan | Rust for C++ Programmers (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:9D31BD1354CA9BCAE97DA238E9F60C343BF98B80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Yong Cui | Python How-To (2023) [PDF][EN]
 magnet:?xt=urn:btih:6D05DD748DEA76D03FF036340F54DBEBDFB31E7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Anthony Onyekachukwu Okonta | React.js Design Patterns (2023) [PDF][EN]
 magnet:?xt=urn:btih:EC11F295EBE5DFFCD017C0533AB0E35CB8F0E4ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Paul Richard | Введение в AutoCAD 2020 / Introduction to AutoCAD 2020: 
 ```bash
 magnet:?xt=urn:btih:2CEDD5B0D8B4D9D95DF35483A939D2A5A597E671
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:2CEDD5B0D8B4D9D95DF35483A939D2A5A597E671
 magnet:?xt=urn:btih:8A2CEA9F5651D24FF1A59DBE47537ECDA46CF281
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Adobe Photoshop продолжает развиваться, и ваши нав�
 ```bash
 magnet:?xt=urn:btih:5E3E292D17AD7447F8089D32CC1A3FE2D404B387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Pradeepta Mishra | PyTorch Recipes, 2nd Edition (2023) [PDF][EN]
 magnet:?xt=urn:btih:E290060FB313E16896B12E0D03A8A8397062CA44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:E290060FB313E16896B12E0D03A8A8397062CA44
 ```bash
 magnet:?xt=urn:btih:3865181AA90C19E6F5985E313062706FB66F85D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:3865181AA90C19E6F5985E313062706FB66F85D9
 magnet:?xt=urn:btih:98ED1C8CD46C92806A7ABB5A8DE91C6D59062CDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Ali Madani | Debugging Machine Learning Models with Python (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:8CE0CEFED6D7846CDB4ED3E718DB1D6DE4659326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Moataz Nabil | Mobile DevOps Playbook (2023) [PDF][EN]
 magnet:?xt=urn:btih:318C1689B72D6D34F501EEE647A11B5C67842080
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:318C1689B72D6D34F501EEE647A11B5C67842080
 ```bash
 magnet:?xt=urn:btih:96B89067A2CB26C4D80AF5E699C7F4CD5966D345
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

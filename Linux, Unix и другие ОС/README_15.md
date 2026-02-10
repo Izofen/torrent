@@ -20,6 +20,8 @@ Ubuntu*Pack 20.04 (сентябрь 2020) [amd64] DVD
 magnet:?xt=urn:btih:09D0E11B6A01272C8BC6D2A1BB2E396913C05D3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Ubuntu*Pack 20.04 Budgie (сентябрь 2020) [amd64] DVD
 ```bash
 magnet:?xt=urn:btih:CE958DC32494638162B31025E5DA2475D4FEBC96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Ubuntu*Pack 20.04 GNOME Classic (сентябрь 2020) [amd64] DVD
 magnet:?xt=urn:btih:4973EE2BFC0F4343309B3057D5E4BBEBEA2E8BE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Ubuntu*Pack 20.04 GNOME (сентябрь 2020) [amd64] DVD
 magnet:?xt=urn:btih:2225DE1123A56FF511BD29F280750507293EE302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Linux Mint 21 Custom Xfce с доп. пакетами [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:99B3D72E2CD85700AE28A23D3536F995D0A03C76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Bodhi Linux 2.4.0 [x86, x86-64] (3xCD)
 magnet:?xt=urn:btih:E440B847276A2850A8CB24AA1D8EC8F3D5C850D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Pinguy OS 14.04.3 - это дистрибутив на базе Ubuntu 14.04.3 L
 ```bash
 magnet:?xt=urn:btih:2C63E1F7E1B91214048205358BD5B6DA61A4A95C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Pinguy OS 14.04.3 - это дистрибутив на базе Ubuntu 14.04.3 L
 magnet:?xt=urn:btih:217A886DBF5888DCE19E0D7F5B5EB90B7D3BF914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Manjaro Linux 2015.9 MATE [i686, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:0859F2C4AA109962FD90F1640611A987B66534BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Sabayon 15.09 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE) [amd6
 magnet:?xt=urn:btih:C7B9C5C35D303BE7DC4A9141437F1971EE39B54C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:8F350E163BACD71D901BB09B854282531A0F748C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ BackBox - дистрибутив Linux для пентеста, основанн
 magnet:?xt=urn:btih:EA7FC3B1564B6B3B93A2E415BAC3A4E7DA965E33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ FreeBSD - это современная операционная система 
 ```bash
 magnet:?xt=urn:btih:846B3359D189F175B1537B0C4F195C5463B9D090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ GhostBSD 10.1 Ève (Xfce; MATE) [i386, amd64] 4xDVD
 magnet:?xt=urn:btih:D0EBFAC7711BAC2FA003486FC94BA1DDC1C07A2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Debian GNU/Linux 8.6.0 Jessie [i386] 3xDVD, 1x netinstCD
 ```bash
 magnet:?xt=urn:btih:682580E8FA48299945BE52B89E787D4B8BF51E34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ FreeNAS 8.2.0 [x86, x64] (2xCD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ Slackel Openbox 6.0.7 Live (Легкий дистрибутив) [x86, x86-64] 2
 magnet:?xt=urn:btih:93609EB44411B1D684CB19D4B93AF992FE471124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Debian Linux 8.2 Jessie [i386] 3xDVD + 1xCD
 ```bash
 magnet:?xt=urn:btih:7D4EA940CD7F91FE1C47FFC9CBFA7571050D543A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ Manjaro Linux 0.8.13.1 (Arch + несколько рабочих столов) [
 magnet:?xt=urn:btih:7A302A3AE83B23120A70FE8C66FA3D6F4AD7F204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:19F378E3701EF4250514BB63C76B15C19AAC66EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ Mageia 7.1 [x86-64] 4xDVD
 magnet:?xt=urn:btih:0D1F8579171E30EE35DA3652E9DAA1A080497ED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ Mageia 7.1 [i586] 2xDVD
 magnet:?xt=urn:btih:FEF58BDD62D29328CBF376812617E951DE3FC708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ POSIX-совместимая операционная система реаль�
 ```bash
 magnet:?xt=urn:btih:3BCD7F32FC07F5FF5086785E49E75A55DBFDDC61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ POSIX-совместимая операционная система реаль�
 magnet:?xt=urn:btih:7B9F102C45182B30C68CF3526BA09C10B40105FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ Tor Browser for Linux - удобная и простая модификация 
 magnet:?xt=urn:btih:7C72F3C5584AB1C75F2B3522DF609D8FC308C0FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Microsoft Office – самый популярный в мире пакет оф
 ```bash
 magnet:?xt=urn:btih:B23EE2199742D745A60B2D758EB582D6125B1FB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

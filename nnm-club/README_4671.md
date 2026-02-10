@@ -19,6 +19,8 @@ MInstAll v.25.12.2020 By Andreyonohov & Leha342 (ISO) [Ru]
 magnet:?xt=urn:btih:FE7C40E71A749818DBEA2BEA5BF6E2591E00E4F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ The Yashin - Miles Away But Getting Closer (2008) EP [FLAC|Lossless|tracks + .cu
 magnet:?xt=urn:btih:30EC346085EE0050812DA59492DD08224CE1BB67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:30EC346085EE0050812DA59492DD08224CE1BB67
 ```bash
 magnet:?xt=urn:btih:65AC7AEFC36F9AA5D4C1871532E67D22EE0B0E65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Xiaoice - это система искусственного интеллект�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Xiaoice - это система искусственного интеллект�
 ```bash
 magnet:?xt=urn:btih:0BD6D891B94928CA04326B755F61014B9A102CFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:0BD6D891B94928CA04326B755F61014B9A102CFF
 magnet:?xt=urn:btih:CE4ACA5BC08F7638F35D46A28AD0C6CB254A9067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:CE4ACA5BC08F7638F35D46A28AD0C6CB254A9067
 ```bash
 magnet:?xt=urn:btih:DD63C052DFA2A717C45AA221743312B25065646D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:DD63C052DFA2A717C45AA221743312B25065646D
 magnet:?xt=urn:btih:AD0A8BFBF4F03313B755F9F82E511A8E4CBC0DB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ R-Studio Network 9.3 Build 191259 RePack (& portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:1C0E8E4EF636891EBA96B5E9F7AA48324C89F6C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:1C0E8E4EF636891EBA96B5E9F7AA48324C89F6C1
 ```bash
 magnet:?xt=urn:btih:03723EDBE0689D6340F2AD4D874DE27BDB45B4E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:03723EDBE0689D6340F2AD4D874DE27BDB45B4E1
 magnet:?xt=urn:btih:FD2E9FB7BAD8650E4F40CF4E14583413D505B5B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:FD2E9FB7BAD8650E4F40CF4E14583413D505B5B6
 magnet:?xt=urn:btih:3F2D8C79763A9ADE918AB028DA11668A3E755FC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ GIF Converter - программа представляет удобный ин�
 ```bash
 magnet:?xt=urn:btih:73EE62B250B49FEC2A36FC4313D9ED33C9121558
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:73EE62B250B49FEC2A36FC4313D9ED33C9121558
 magnet:?xt=urn:btih:BE36EB552FAC83E15307D7896783CA6748FE9620
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:BE36EB552FAC83E15307D7896783CA6748FE9620
 ```bash
 magnet:?xt=urn:btih:B226D36E1F1D1BBCDF60E7EA7B36A0A5B8F0C509
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:B226D36E1F1D1BBCDF60E7EA7B36A0A5B8F0C509
 magnet:?xt=urn:btih:4514D431FBCEF573FC0A29589A61874A02377EBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Daum PotPlayer - бесплатный мультимедийный проигр�
 magnet:?xt=urn:btih:C4E757FCA3E46998FCF4E1989D6B72FB22FF8F85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:C4E757FCA3E46998FCF4E1989D6B72FB22FF8F85
 ```bash
 magnet:?xt=urn:btih:6BE46872DD05BFB406D00EFD190C490EB50E8BB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:6BE46872DD05BFB406D00EFD190C490EB50E8BB3
 magnet:?xt=urn:btih:A07932B990510DB22BFFB12B2C166B9A7625AE41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ VA - 100 Greatest Workout Songs (2019) [MP3|320 Kbps] <Pop, Rock, EDM>
 magnet:?xt=urn:btih:C2C9D43C6F73D8499340A4CD93A60F08CD61A568
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:C2C9D43C6F73D8499340A4CD93A60F08CD61A568
 ```bash
 magnet:?xt=urn:btih:43930EF3AFEDFAFA775CB2B8D5CD7B8E6734FE35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:43930EF3AFEDFAFA775CB2B8D5CD7B8E6734FE35
 magnet:?xt=urn:btih:84CE10CE15F6F9CC548D89542F5E8680320F596E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:8124102FC23B958CD4AE0D874201904D354107DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:8124102FC23B958CD4AE0D874201904D354107DF
 ```bash
 magnet:?xt=urn:btih:8EA86BF3DA1C5F10F549565906CF1FFC8DD30205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:8EA86BF3DA1C5F10F549565906CF1FFC8DD30205
 magnet:?xt=urn:btih:81E23DDC236D791B6C468D97642E8AB1ED362BD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:81E23DDC236D791B6C468D97642E8AB1ED362BD4
 ```bash
 magnet:?xt=urn:btih:2A636E6FCC76EC38827488BEBE614CAE36660207
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

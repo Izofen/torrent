@@ -1,3 +1,31 @@
+###  Публикация: 1003836   (839760) от 05.04.2016
+
+Слав Олехник и др. | Старинные занимательные задачи (2005) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_839760.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге собраны занимательные задачи из русских летописей и книг, опубликованных в России до 1800 года.
+Как правило, задачи решаются с привлечением минимальных сведений из арифметики, алгебры и геометрии, но требуют сообразительности и умения логически мыслить.
+В книге содержатся как задачи, доступные детям, так и задачи, представляющие интерес для взрослых читателей. (   Читать дальше...   )Жанр: Головоломки, ребусы, кроссвордыФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6031383CA57CAC82B392DDD0FF93B6BF23538706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113133   (839770) от 10.03.2017
 
 Усовершенствованный способ хлебное вино и спирт очищать [оригинальное издание + репринт] (1852, 2013) [PDF]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:25AB523E40398765E63C863DD91215D3527CEB80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:25AB523E40398765E63C863DD91215D3527CEB80
 magnet:?xt=urn:btih:6155B3FC531ED89B1E8620D10372261E091AF327
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:6155B3FC531ED89B1E8620D10372261E091AF327
 ```bash
 magnet:?xt=urn:btih:30D2AD3D70D96CD0759CD15B22537BFFC027D0A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +127,8 @@ magnet:?xt=urn:btih:30D2AD3D70D96CD0759CD15B22537BFFC027D0A8
 magnet:?xt=urn:btih:477D4751E3C2CB327C5F5D4FD3F2B5A50C7B20FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +153,8 @@ magnet:?xt=urn:btih:477D4751E3C2CB327C5F5D4FD3F2B5A50C7B20FA
 magnet:?xt=urn:btih:3ADD756125FF4FD550CDAFB6D60D90ED9E7532D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +178,8 @@ magnet:?xt=urn:btih:3ADD756125FF4FD550CDAFB6D60D90ED9E7532D6
 ```bash
 magnet:?xt=urn:btih:442F66F47A524C871D32D6D6EF361139B3F69B6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +206,8 @@ magnet:?xt=urn:btih:442F66F47A524C871D32D6D6EF361139B3F69B6A
 magnet:?xt=urn:btih:7472CC1954BE6B1A693AC44973AFB1478869BB20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +231,8 @@ magnet:?xt=urn:btih:7472CC1954BE6B1A693AC44973AFB1478869BB20
 ```bash
 magnet:?xt=urn:btih:A8886265B4CDD73FE5CB16C24621F9859AAEFECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +258,8 @@ magnet:?xt=urn:btih:A8886265B4CDD73FE5CB16C24621F9859AAEFECD
 ```bash
 magnet:?xt=urn:btih:6812EB9075582E6040A883BB806FC36B2AA0D7A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +287,8 @@ magnet:?xt=urn:btih:6812EB9075582E6040A883BB806FC36B2AA0D7A9
 magnet:?xt=urn:btih:3C782BBC1A19BBB8BC1111397F46D7A619468E26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +312,8 @@ magnet:?xt=urn:btih:3C782BBC1A19BBB8BC1111397F46D7A619468E26
 ```bash
 magnet:?xt=urn:btih:D0D56995CC567C79A63BE7229A2AA60F3480D07C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +339,8 @@ magnet:?xt=urn:btih:D0D56995CC567C79A63BE7229A2AA60F3480D07C
 magnet:?xt=urn:btih:E4459E3032A7928835D1726F17FE7FBA2563C61B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +364,8 @@ magnet:?xt=urn:btih:E4459E3032A7928835D1726F17FE7FBA2563C61B
 ```bash
 magnet:?xt=urn:btih:2C426B00D2F4FB9E4233642E7E177C55297B1045
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +391,8 @@ magnet:?xt=urn:btih:2C426B00D2F4FB9E4233642E7E177C55297B1045
 magnet:?xt=urn:btih:22DBB07ECA82234D870F725818AB9CAED9692455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +416,8 @@ magnet:?xt=urn:btih:22DBB07ECA82234D870F725818AB9CAED9692455
 ```bash
 magnet:?xt=urn:btih:90690DB1ABED578E2EB5C6AF51AF1DBC1D4BA218
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +443,8 @@ magnet:?xt=urn:btih:90690DB1ABED578E2EB5C6AF51AF1DBC1D4BA218
 magnet:?xt=urn:btih:EA31C3A4CC95534D0A8B07FDC735E04F35CDE976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +468,8 @@ magnet:?xt=urn:btih:EA31C3A4CC95534D0A8B07FDC735E04F35CDE976
 ```bash
 magnet:?xt=urn:btih:D96F2F80A15D768D3955159DC8E0CB67B9EEEA2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +497,8 @@ magnet:?xt=urn:btih:D96F2F80A15D768D3955159DC8E0CB67B9EEEA2A
 magnet:?xt=urn:btih:24130AA139F757314E589B4E85B0A26D530A98A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +524,8 @@ magnet:?xt=urn:btih:24130AA139F757314E589B4E85B0A26D530A98A9
 magnet:?xt=urn:btih:D4A2097B781FAF7E159615006EFDAFEA7EE6B890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +550,8 @@ magnet:?xt=urn:btih:D4A2097B781FAF7E159615006EFDAFEA7EE6B890
 magnet:?xt=urn:btih:6B5D62D10CA0E6F9286263A1F0DCA6EF8E9568FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +575,8 @@ magnet:?xt=urn:btih:6B5D62D10CA0E6F9286263A1F0DCA6EF8E9568FA
 ```bash
 magnet:?xt=urn:btih:9A1FE2EC064245C1CA662B66C950C3C677C85F90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +603,8 @@ magnet:?xt=urn:btih:9A1FE2EC064245C1CA662B66C950C3C677C85F90
 ```bash
 magnet:?xt=urn:btih:AE91172145102166AAA11A8D3EB63493BB837867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +633,8 @@ magnet:?xt=urn:btih:AE91172145102166AAA11A8D3EB63493BB837867
 magnet:?xt=urn:btih:62FA4CA33060A972D39A9EC0ABE628CB90AA6703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +660,8 @@ magnet:?xt=urn:btih:62FA4CA33060A972D39A9EC0ABE628CB90AA6703
 magnet:?xt=urn:btih:2A350A2EC30DD9035F4D096FEEB08981F98BBFF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +686,7 @@ magnet:?xt=urn:btih:2A350A2EC30DD9035F4D096FEEB08981F98BBFF0
 magnet:?xt=urn:btih:04C0DE69FB37969303F24949B57D721D1D4052D5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1112698   (841220) от 09.03.2017
-
-Ника Белоцерковская | Сделано в Италии. Гастрономические рецепты. Книга вторая (2013) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_841220.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Во второй книге серии "Белоника и Шефы" разговор снова пойдет о простых и легких рецептах. Только на этот раз речь будет с сильным итальянским акцентом. Нашими виртуальными собеседниками будут замечательные шеф-повара и их мамы, бабушки, и даже дочери - все как в большой итальянской семье. И рецепты будут очень домашние, хотя их в полной мере (   Читать дальше...   )Жанр: Европейская кухняФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92BFAE3A08609E01F8FEEC70223265B646D4C1EF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

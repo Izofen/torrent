@@ -19,6 +19,8 @@ Live Wallpaper & Themes 4K позволяют использовать живы�
 magnet:?xt=urn:btih:B8425EB7D76BA6A125BBA1666F9156708826F885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:B8425EB7D76BA6A125BBA1666F9156708826F885
 ```bash
 magnet:?xt=urn:btih:E7CE26CF70786DAB0368E77DEC197E92ECB416DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Rudiger (Rüdiger) Krause - Parallel Real (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:C131F54019D41057B024855D6DC34F6B03AFD5E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Alterium - Of War And Flames (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Pow
 ```bash
 magnet:?xt=urn:btih:534561718AB4B074890D733E3539C33A8C279093
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ V.A. - In Paris Highlights. CD, Compilation (1995) [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:10C68BCEA59253C13203AD6065BBFA02B09C399A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Wade Black's Astronomica - The Awakening (2024) [FLAC|Lossless|WEB-DL|tracks] <H
 ```bash
 magnet:?xt=urn:btih:7D2C00F618ED029E7FD201FE89B25A68F2B62F76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:7D2C00F618ED029E7FD201FE89B25A68F2B62F76
 magnet:?xt=urn:btih:F8388361ADF770ED5863A5F38354B2AEACB8D4F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ Antar Goodwin - The Game (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:4B4ED0D8B93991D6FF46F9BD41CDA321625CC520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +246,8 @@ Downie поддерживает более 1,000 популярных сайто
 ```bash
 magnet:?xt=urn:btih:C4033B01BC239D33056AADE7E3185F2CD5D6115D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -258,6 +276,8 @@ magnet:?xt=urn:btih:C4033B01BC239D33056AADE7E3185F2CD5D6115D
 magnet:?xt=urn:btih:9754B4A958649221AC652DC0C27DE45F43C618F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +305,8 @@ Wynton Marsalis & The Lincoln Center Jazz Orchestra - Experience Jazz Like Never
 magnet:?xt=urn:btih:45BECD51A726C324FFB7425F7893D147FE61E8F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +330,8 @@ magnet:?xt=urn:btih:45BECD51A726C324FFB7425F7893D147FE61E8F1
 ```bash
 magnet:?xt=urn:btih:2245E258F748109EAFD99CB1EE2789B53FB76CD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +357,8 @@ EagleFiler позволяет создавать, (   Читать дальше
 ```bash
 magnet:?xt=urn:btih:A02C94C02A594FCAEFF5805AD8EA3AD7A459A798
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +387,8 @@ Paul Winter (Пол Уинтер) - Concert For The Earth (Концерт Зем
 magnet:?xt=urn:btih:1724DCF1C790729F91E7114C0A378FA8EF263D55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ Eric Warren - Reminisce (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock, 
 ```bash
 magnet:?xt=urn:btih:5E45570109618A907C283EFDDB3527A2BB3E4FC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +445,8 @@ Dan Patlansky - Movin' On (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock
 magnet:?xt=urn:btih:F10AAF684575FC3DB0B45573E4E6BBBEE8301C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +473,8 @@ Handsome Jack - A Good Thing (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues
 ```bash
 magnet:?xt=urn:btih:D22B93BB315F7E7889ADA74CF63F40355E2431CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +503,8 @@ Stephane Grappelli - Just One Of Those Things (1973) 1992, Black Lion [FLAC|Loss
 magnet:?xt=urn:btih:B9C7E4F8D12CB6086F9BE5B333B0EDBE56FBB31D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +531,8 @@ Dick Haymes - Till The End Of Time (1940 - 1950) 2CD, 2004, Living Era [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:01C0F88FF050FD98A89C5D6D1FCDDE7D9CD19920
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +561,8 @@ The End Machine - The Quantum Phase (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 magnet:?xt=urn:btih:F2010D32463107EBE9330F76DB00D503D00C1C02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +587,8 @@ magnet:?xt=urn:btih:F2010D32463107EBE9330F76DB00D503D00C1C02
 magnet:?xt=urn:btih:480F7FF35CA8675DDFB551B9B8EADB92AB084F04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +612,8 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:AADC141F7E03F3F1998450EBE7D65CCCEBF2A11B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +642,8 @@ Dion - Girl Friends (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock, Sin
 magnet:?xt=urn:btih:13DA278495BB8A3D94B4A56BE558D2989AAE26F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +671,8 @@ Black Cat Bone - Tales of the Amplified (2024) [FLAC 24/48|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:828DC1B5AD2F913D4180DBEC465E75D44802EFD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +699,8 @@ magnet:?xt=urn:btih:828DC1B5AD2F913D4180DBEC465E75D44802EFD5
 magnet:?xt=urn:btih:FD120BDB03BC5AD228C9B56A6C4C1FE757FAF401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +724,8 @@ magnet:?xt=urn:btih:FD120BDB03BC5AD228C9B56A6C4C1FE757FAF401
 ```bash
 magnet:?xt=urn:btih:2B6D5837FBB6C52EE5C815A6878CAEC6792F8575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

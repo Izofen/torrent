@@ -19,6 +19,8 @@ InShot - Мощный видеоредактор и фоторедактор н�
 magnet:?xt=urn:btih:3162338BDCDEBD4D15B868C0A59597D9000D7A9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ventusky: Прогноз погоды v31.0 Mod by maxi123444 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7BEEB02281AA556FA15BF4367B34EE111F9BDA52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Spyglass v3.9.9 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:D4BF8893F62DAED39E27273A44C030EAA87FC5E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ ToonMe v0.6.109 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:453CF9ED7CF3D9C8E846E44669DAEBC67C4FF899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:453CF9ED7CF3D9C8E846E44669DAEBC67C4FF899
 magnet:?xt=urn:btih:F4E0523C912ACC897E46800392BCAA41FF1CA6C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Reverso Translation Dictionary / Переводной словарь Reverso - �
 ```bash
 magnet:?xt=urn:btih:D244FD88639F8C4A4C2B1A679A93D04B1B438224
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Ultra GPS Logger - удобное, функциональное и универ�
 magnet:?xt=urn:btih:1EE40947545575B50CA0C9F874B3E191D6F9A8E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ MyBible поможет вам внимательно изучать, разби�
 ```bash
 magnet:?xt=urn:btih:3939A14B41EF79C60D976B18363EEBAC5875317F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Adobe Photoshop Express - ещё одно крайне нужное и поле�
 magnet:?xt=urn:btih:1E74BE09004FEA37A8ADE9F23D9704B6681731D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Textra SMS v4.70 Pro
 ```bash
 magnet:?xt=urn:btih:DBC2CAD723E8D924FC043FC266FBECE9D76D4B32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:DBC2CAD723E8D924FC043FC266FBECE9D76D4B32
 magnet:?xt=urn:btih:F49B4984E0EFA6AADF6439593834C592C5FE2B74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ AudioLab: Audio Editor Recorder – это самый продвинутый к�
 ```bash
 magnet:?xt=urn:btih:545D6E089AF6034A1350BDA5DE3314534F955A5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:545D6E089AF6034A1350BDA5DE3314534F955A5A
 magnet:?xt=urn:btih:91EE81C678F75A15812BA99A93B54C6756F530E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:2F654E83099F51D9D882782FF9744998D8D9AF76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Clean Master 9.4.9.3479 Mod by Dymonyxx [Ru/Multi]
 magnet:?xt=urn:btih:D75D47D1724F345FE7A2838409375271B4905255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Simply Piano - это одно из лучших приложений для о�
 magnet:?xt=urn:btih:624312BC00112ECCA9987F1CEB3358EADBAB912E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +434,8 @@ Rock Identifier - Stone ID v2.3.36 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:17798905BA13235343887E9ED95F63A946B271A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:17798905BA13235343887E9ED95F63A946B271A4
 magnet:?xt=urn:btih:1FE6610755D6E05DAAB212BD14579B3AB99182F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Bazaart: Photo Editor & Graphic Design v2.4.5 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3D11AAA2036FE2CC70C5D51884CAB3266EC6600E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ InShot - Мощный видеоредактор и фоторедактор н�
 magnet:?xt=urn:btih:9AB6EC6AEE00BC2D2D8B238560566383D085952C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Strava: бег, велоезда, хайкинг v345.7 Mod by ReVanced Team [Ru
 ```bash
 magnet:?xt=urn:btih:19B8878B596234C610C32119350921AC13CCC06D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ ToonMe v0.6.106 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:F72F2B701E96CD0CC9519268954836116394BDAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ LightX - это мобильный редактор фото, в котором 
 ```bash
 magnet:?xt=urn:btih:49F924F93A8E451B32B8E246E608E2496F11E262
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Lumii - Фоторедактор, Фильтры v1.621.148 Mod by maxi123444 [R
 magnet:?xt=urn:btih:1BBAE8619C4582C1A49BFE4781FC3829E45C5A71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ ViewBox - приложение для Android устройств (в том чи
 magnet:?xt=urn:btih:192E87A3125B441356CEDE782BA4689F6EC6AADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ RUTUBE — официальное приложение одноименной о
 ```bash
 magnet:?xt=urn:btih:73B215DAFEB122F0D3598B599840F32EEDA86238
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

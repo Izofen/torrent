@@ -1,27 +1,3 @@
-###  Публикация: 1521425   (765146) от 02.01.2022
-
-Взлом / El Crack / The Crack (1981) BDRip [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765146.jpg" />
-</div>
-
-
-###  Подробнее
-
-Частный детектив Херман Арета находит неизлечимо больного клиента, который хочет увидеть свою давно потерянную сбежавшую дочь перед своей смертью. Но когда Арета начинает расследование дела, это приводит его в темную изнанку Мадрида, где он обнаруживает, что не только он ищет девушку. Кто-то другой тоже заинтересован в ней, кто-то могущественный и опасный, который (   Читать дальше...   )Производство: Испания, Acuarius Films S.A., Impala, Nickel OdeonЖанр: Триллер, драма, криминал, детективРежиссер: Хосе Луис ГарсиАктеры: Альфредо Ланда, Мария Касанова, Мануэль Техада, Мигель Рельян, Мануэль Лоренсо, Рауль Фрайре, Хосе Бодало, Франсиско Видаль, Мэйти Бласко, Хосе Мануэль СервиноПеревод: Авторский (Роман Янкелевич)Субтитры: отсутствуютПродолжительность: 02:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C91981A4201A14B40499321E3534F3D65F903E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521477   (765150) от 02.01.2022
 
 Замёрзший / Out Cold (1988) WEB-DLRip [H.264]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:96C91981A4201A14B40499321E3534F3D65F903E
 ```bash
 magnet:?xt=urn:btih:CEE31B22F583A4A68808E3DC57D67758CBE593D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:CEE31B22F583A4A68808E3DC57D67758CBE593D4
 magnet:?xt=urn:btih:C6FD96C583EFCFE2920CFFEFE156DAA29B623A19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:C6FD96C583EFCFE2920CFFEFE156DAA29B623A19
 ```bash
 magnet:?xt=urn:btih:663F9C84015B1E0045D2E4D1034347B8EDB30B05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:663F9C84015B1E0045D2E4D1034347B8EDB30B05
 magnet:?xt=urn:btih:6C02E08EBD6FC75892B689BC01E0169B00B2CB3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:6C02E08EBD6FC75892B689BC01E0169B00B2CB3E
 magnet:?xt=urn:btih:E764FAF7A3445F481DEA75F3C791563ED5C5EA26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +148,8 @@ magnet:?xt=urn:btih:E764FAF7A3445F481DEA75F3C791563ED5C5EA26
 ```bash
 magnet:?xt=urn:btih:A53843B44DA72AACBB3A044FDB34E411FAB35573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:A53843B44DA72AACBB3A044FDB34E411FAB35573
 magnet:?xt=urn:btih:B33AED1E4A6825DA7F5CDD32829243C264C5935D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:B33AED1E4A6825DA7F5CDD32829243C264C5935D
 ```bash
 magnet:?xt=urn:btih:9A445683E1138C222F9B5549F2FDE387F6D5709C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:9A445683E1138C222F9B5549F2FDE387F6D5709C
 magnet:?xt=urn:btih:3DBFD286F5D8F64EC79E785F3391174954492E43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:3DBFD286F5D8F64EC79E785F3391174954492E43
 ```bash
 magnet:?xt=urn:btih:838C69D993C9CF7E80D04CDDE120298F3B34A994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +281,8 @@ magnet:?xt=urn:btih:838C69D993C9CF7E80D04CDDE120298F3B34A994
 magnet:?xt=urn:btih:8F67B9F6EBB3FD78F52CED7BE5FB8573EBEAA067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:8F67B9F6EBB3FD78F52CED7BE5FB8573EBEAA067
 ```bash
 magnet:?xt=urn:btih:875E592189F82A5A1D639FD2D60155ED6D3F437B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +333,8 @@ magnet:?xt=urn:btih:875E592189F82A5A1D639FD2D60155ED6D3F437B
 magnet:?xt=urn:btih:CA027C128CD25A76E85115BD024E37FA076AE087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:CA027C128CD25A76E85115BD024E37FA076AE087
 ```bash
 magnet:?xt=urn:btih:92486F1484C8DAFA40AF3194E35A0B63FD444CC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +385,8 @@ magnet:?xt=urn:btih:92486F1484C8DAFA40AF3194E35A0B63FD444CC6
 magnet:?xt=urn:btih:DF85885FDD69E738B84FEFBFE1F9F98501D4D682
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +410,8 @@ magnet:?xt=urn:btih:DF85885FDD69E738B84FEFBFE1F9F98501D4D682
 ```bash
 magnet:?xt=urn:btih:C7CC6A4BB24E061E7D4BDBF564A930C79E6DB181
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +437,8 @@ magnet:?xt=urn:btih:C7CC6A4BB24E061E7D4BDBF564A930C79E6DB181
 magnet:?xt=urn:btih:2BC89E481BF57AC4DB45A8D1DC900FC250BAEF28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +462,8 @@ magnet:?xt=urn:btih:2BC89E481BF57AC4DB45A8D1DC900FC250BAEF28
 ```bash
 magnet:?xt=urn:btih:71C56DE5B896C0249F55578B7FAB8132332CD568
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +489,8 @@ magnet:?xt=urn:btih:71C56DE5B896C0249F55578B7FAB8132332CD568
 magnet:?xt=urn:btih:D5BD8F39D730441C89FB032019EDA4340331C563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +514,8 @@ magnet:?xt=urn:btih:D5BD8F39D730441C89FB032019EDA4340331C563
 ```bash
 magnet:?xt=urn:btih:2A9901302FA5A6EB21DA78082A507057977A1FF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +541,8 @@ magnet:?xt=urn:btih:2A9901302FA5A6EB21DA78082A507057977A1FF9
 magnet:?xt=urn:btih:875921ED2FB8F8515D36AC02044510E2B79575AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +566,8 @@ magnet:?xt=urn:btih:875921ED2FB8F8515D36AC02044510E2B79575AE
 ```bash
 magnet:?xt=urn:btih:21F0BFFBC07878326209BA0BF695AA1294C5CD7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +593,8 @@ magnet:?xt=urn:btih:21F0BFFBC07878326209BA0BF695AA1294C5CD7C
 magnet:?xt=urn:btih:C23676C77092767EDC7A12BB3B463C20BC077463
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +619,8 @@ magnet:?xt=urn:btih:C23676C77092767EDC7A12BB3B463C20BC077463
 magnet:?xt=urn:btih:8106AFCDCDCE0364F7C45438A276114910DDB54A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +644,34 @@ magnet:?xt=urn:btih:8106AFCDCDCE0364F7C45438A276114910DDB54A
 ```bash
 magnet:?xt=urn:btih:53AEA68CAC40603EF31EC9C7020E0E5F7FE5A615
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 201988   (768629) от 18.05.2010
+
+Крепкий орешек / Die Hard (1988) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768629.jpg" />
+</div>
+
+
+###  Подробнее
+
+В суперсовременном небоскребе Лос-Анджелеса полицейский Джон Макклейн ведет смертельную схватку с бандой политических террористов, взявших в заложники два десятка человек, в число которых попадает и его жена. Началось все с того, что парень приехал в город к жене, оказался на рождественском приеме, а кончилось настоящей войной…Жанр: Боевик, Криминал, ТриллерРежиссер: Джон МакТирнан / John McTiernanАктеры: Брюс Уиллис, Реджинальд ВелДжонсон, Бонни Беделиа, Александр Годунов, Пол Глисон, Уильям Этертон, Деворо Уайт, Харт Бокнер, Алан Рикман, Дэннис Хейден, Кларенс Гильярд мл., Андреас Висневски, Джеймс Шигета, Роберт Дави, Гранд Л. Буш, Мэтт Лэндерс, Энтони Пек, Аль ЛеонгПеревод: ДублированныйПродолжительность: 02:12:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

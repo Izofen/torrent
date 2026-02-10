@@ -1,3 +1,29 @@
+###  Публикация: 1001192   (855818) от 27.03.2016
+
+С миру по нитке. Новосибирск-рекордсмен (2016) HDTVRip [720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_855818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новосибирск-рекордсмен. Как выглядит «сибирский Колизей», где обитают лигры и зачем советские ученые поселились в глухой тайге? Наши путешественницы Вика и Люда приехали в третий по величине город России. Новосибирск внесен в Книгу рекордов Гиннесса как самый быстрорастущий «миллионник» в мире. Чем же удивит туристов это место?Транссибирская магистраль - самая длинная железная дорога в мире и обязательная достопримечательность в любом путеводителе по России. Проехать по Трассибу с остановками в городах и деревнях большой страны - об этом мечтают любители приключений по всему миру. В России Транссиб мало кто воспринимает, как туристический аттракцион. Ведущие «С миру по нитке» исправят (   Читать дальше...   )Телекомпания: МИР ТВЖанр: ТелепередачаПродолжительность: 00:24:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA51BC3675C4B0FF5217CDAE0C73007AA4113F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001022   (855935) от 27.03.2016
 
 Без страховки. №6 выпуск  (27.03.2016) SATRip
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:AE93CF4EED42C59FD32B26D080041E431D083B96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:AE93CF4EED42C59FD32B26D080041E431D083B96
 magnet:?xt=urn:btih:34089A0D251D12AC8734ECCA3D08499F05850D54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:34089A0D251D12AC8734ECCA3D08499F05850D54
 magnet:?xt=urn:btih:72DC090F615FE498507D88BEABF3EBD77E01B44F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:72DC090F615FE498507D88BEABF3EBD77E01B44F
 ```bash
 magnet:?xt=urn:btih:6BD0954BBAD1F1AB448423E32B23EABF8D998685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:6BD0954BBAD1F1AB448423E32B23EABF8D998685
 magnet:?xt=urn:btih:74133DD698B1D90E0921C63A4058E8607DC6EA73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:74133DD698B1D90E0921C63A4058E8607DC6EA73
 ```bash
 magnet:?xt=urn:btih:39F610A3AB393951AEFF8D69C01D9558B110A11B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:39F610A3AB393951AEFF8D69C01D9558B110A11B
 magnet:?xt=urn:btih:D48B059D62F54BBBA80A547C120A39C4D56969A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +236,8 @@ magnet:?xt=urn:btih:D48B059D62F54BBBA80A547C120A39C4D56969A8
 magnet:?xt=urn:btih:40B6A18580141048CCB55DC4681998510A6BE810
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:40B6A18580141048CCB55DC4681998510A6BE810
 ```bash
 magnet:?xt=urn:btih:48587C8AB4513CAD3C74FEC303EA7D8184A8F11C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:48587C8AB4513CAD3C74FEC303EA7D8184A8F11C
 magnet:?xt=urn:btih:D97969D1EB0F876F30EC847EF03B7606B488DA15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:D97969D1EB0F876F30EC847EF03B7606B488DA15
 ```bash
 magnet:?xt=urn:btih:2DF860C31B49DD841FB2D56D72E3812329340DEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:2DF860C31B49DD841FB2D56D72E3812329340DEF
 magnet:?xt=urn:btih:DF220FAC4C87CD35B2E3A4CFB04699A32C78E189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:DF220FAC4C87CD35B2E3A4CFB04699A32C78E189
 ```bash
 magnet:?xt=urn:btih:FF9BDFFA32EF313748D6634A86A343F11084F4BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:FF9BDFFA32EF313748D6634A86A343F11084F4BF
 magnet:?xt=urn:btih:66B2FE3C58DDE866F86E9CB06449CDC594CCA6E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:66B2FE3C58DDE866F86E9CB06449CDC594CCA6E0
 ```bash
 magnet:?xt=urn:btih:6460C4F2A74683EA149659C3EBE66A839479E6F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +446,8 @@ magnet:?xt=urn:btih:6460C4F2A74683EA149659C3EBE66A839479E6F0
 magnet:?xt=urn:btih:6784743D23560F34CF4F9FF7227D5B48FE50AC68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:6784743D23560F34CF4F9FF7227D5B48FE50AC68
 ```bash
 magnet:?xt=urn:btih:589FBDBEC4F0ECE3D9C8E2ACF863BCD3FAE919F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:589FBDBEC4F0ECE3D9C8E2ACF863BCD3FAE919F0
 magnet:?xt=urn:btih:2482002981437CA07AB22BB9727AFA98B6F61350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:2482002981437CA07AB22BB9727AFA98B6F61350
 ```bash
 magnet:?xt=urn:btih:597FEE796C3961A758CCDE36DC526A8F9B74CE70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:597FEE796C3961A758CCDE36DC526A8F9B74CE70
 magnet:?xt=urn:btih:CF170ED884C6B5995CA187D29FADEE578AF01299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:CF170ED884C6B5995CA187D29FADEE578AF01299
 ```bash
 magnet:?xt=urn:btih:DEF1F955C0A2E18FF37E4A3340867109630E3466
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:DEF1F955C0A2E18FF37E4A3340867109630E3466
 magnet:?xt=urn:btih:AC98BFF7874AFD36A070F2BC7226F05299FCCC8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:AC98BFF7874AFD36A070F2BC7226F05299FCCC8F
 ```bash
 magnet:?xt=urn:btih:6096A6FA57AA313AE80E58255B3F2674F5F80D94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:6096A6FA57AA313AE80E58255B3F2674F5F80D94
 magnet:?xt=urn:btih:FD902028B4EA0984BCDD7CD6EA2D7CC1C3634F22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:FD902028B4EA0984BCDD7CD6EA2D7CC1C3634F22
 magnet:?xt=urn:btih:00D70FE1E3AEBF83E57D55DD3F682295C81D3C38
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000613   (857430) от 26.03.2016
-
-Научное расследование Сергея Малозёмова. Еда живая и мертвая (2016.03.26) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857430.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Еда живая и мертвая» – новый научно-популярный цикл Сергея Малозёмова, репортера с медицинским образованием, автора и ведущего программы «Чудо техники» и научных расследований о климате, технологиях, бессмертии и экологии.Производство: НТВЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E518F66CE3B35944ACBBFDF7C27A4485C5E8C54
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

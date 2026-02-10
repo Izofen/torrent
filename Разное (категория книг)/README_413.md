@@ -1,3 +1,29 @@
+###  Публикация: 912975   (608917) от 27.06.2015
+
+Э.В. Штейнгольд | Охотничье ружье (1968) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_608917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга написана мастером спорта по стрельбе - Эмилем Вольдемаровичем Штейнгольд, знакомит читателей с различными системами охотничьего ружья. Приводится техническая характеристика ружей и боеприпасов; рассказывается о факторах, влияющих на бой ружей, и о том, как правильно снаряжать патроны; объясняется методика доводки боя ружья по резкости и кучности. Содержатся (   Читать дальше...   )Жанр: ОхотаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:283FF61D7FAD3032BEB898F3E828E206D5361D1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230870   (609028) от 16.06.2018
 
 Протоиерей Сергий Овсянников | Книга про свободу. Уйти от законничества, дойти до любви (2018) [FB2, RTF, EPUB, MOBI]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:306FE6E6FB542822EC14BDFC2C2F0D35B6EB6D83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:306FE6E6FB542822EC14BDFC2C2F0D35B6EB6D83
 magnet:?xt=urn:btih:F81199A2312EDAFDB7B9FFE1D5FF66AFA6DCE7D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:F81199A2312EDAFDB7B9FFE1D5FF66AFA6DCE7D8
 ```bash
 magnet:?xt=urn:btih:5E845E9D264EE1928EEC8B51AC1739CD55AAD67B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:5E845E9D264EE1928EEC8B51AC1739CD55AAD67B
 magnet:?xt=urn:btih:FAC290E9EDCA22640D0140F41CA65FC2B0695156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:FAC290E9EDCA22640D0140F41CA65FC2B0695156
 magnet:?xt=urn:btih:3C11FAC6143FD8AEC8B8D134076D182AB98A329A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:3C11FAC6143FD8AEC8B8D134076D182AB98A329A
 ```bash
 magnet:?xt=urn:btih:FDFBFF7530C6DF9D7C7AE8B162D14C7FB4054229
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:FDFBFF7530C6DF9D7C7AE8B162D14C7FB4054229
 magnet:?xt=urn:btih:BE97B70760BD1C99545EB0B82B8F3835320774BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:BE97B70760BD1C99545EB0B82B8F3835320774BA
 magnet:?xt=urn:btih:E00E494FD85C1C2976A0C142331ADE134AD3ABE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:E00E494FD85C1C2976A0C142331ADE134AD3ABE3
 ```bash
 magnet:?xt=urn:btih:F11E28C66E818DCE3B83DA2413C2C9C3CC207FC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:F11E28C66E818DCE3B83DA2413C2C9C3CC207FC1
 magnet:?xt=urn:btih:FDB0D3D8B6CA1BB6F2ED9455E75DE7C1E5597124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:FDB0D3D8B6CA1BB6F2ED9455E75DE7C1E5597124
 magnet:?xt=urn:btih:6B99515013839AF94106941474625CC336E279CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:6B99515013839AF94106941474625CC336E279CB
 ```bash
 magnet:?xt=urn:btih:4189ADBAFA72D26D932F3C592C2A4B692C8F370C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:4189ADBAFA72D26D932F3C592C2A4B692C8F370C
 magnet:?xt=urn:btih:063522930F6BE94B907B5D39C9473B8250113FC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:063522930F6BE94B907B5D39C9473B8250113FC2
 ```bash
 magnet:?xt=urn:btih:C24ADE51D12A1263B3F75CCB18DD4F0FE47B70D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:C24ADE51D12A1263B3F75CCB18DD4F0FE47B70D8
 magnet:?xt=urn:btih:E0ED45B60095367D244A3913D60CD94C0385CD4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:E0ED45B60095367D244A3913D60CD94C0385CD4D
 ```bash
 magnet:?xt=urn:btih:5A1890F6AC0EBEF6B2ECBD5194AB4E9EEDA13731
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:5A1890F6AC0EBEF6B2ECBD5194AB4E9EEDA13731
 magnet:?xt=urn:btih:90182FEC5DE3045DDC210591A5D3D458FDFC3EED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:90182FEC5DE3045DDC210591A5D3D458FDFC3EED
 ```bash
 magnet:?xt=urn:btih:6845B0FF0391F8FE5B5775E6307788A45A9B3E49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:6845B0FF0391F8FE5B5775E6307788A45A9B3E49
 magnet:?xt=urn:btih:43172F625D5F97D16669B1E88C022998D1F9CCA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:43172F625D5F97D16669B1E88C022998D1F9CCA4
 ```bash
 magnet:?xt=urn:btih:C026679B300F2A06DFD686BE01C6895504571FD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:C026679B300F2A06DFD686BE01C6895504571FD0
 magnet:?xt=urn:btih:94734F7AC33E351CC9E5D24620AC443857F8D3ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:94734F7AC33E351CC9E5D24620AC443857F8D3ED
 ```bash
 magnet:?xt=urn:btih:93E5F38E9D6A9E436B17A058792C8F394F9ECEF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:93E5F38E9D6A9E436B17A058792C8F394F9ECEF2
 magnet:?xt=urn:btih:79BCDB36782085B8A3E505764930034784766D15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:79BCDB36782085B8A3E505764930034784766D15
 ```bash
 magnet:?xt=urn:btih:C4542BCF755C5700368F3981AB8680ED9671A754
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:C4542BCF755C5700368F3981AB8680ED9671A754
 magnet:?xt=urn:btih:95311800AE048BFF47D0F4E7202C3AD588BAFF37
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912701   (610401) от 26.06.2015
-
-Касильда Жета, Кристофер Райан | Секс на заре цивилизации (2015) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_610401.jpg" />
-</div>
-
-
-###  Подробнее
-
-В традициях лучших исторических и научных трудов эта книга бесцеремонно и аргументированно расправляется с безосновательными допущениями и ошибочными заключениями в вопросах эволюции человеческой сексуальности, предлагая революционное объяснение тому, почему мы сегодня живём и любим именно так, а не иначе.Жанр: Психология, Секс и семейная психологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7FC184850EDF10005B9C8B644166C9E8F94031D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

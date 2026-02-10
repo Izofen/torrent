@@ -19,6 +19,8 @@ UniBook - Аудиокниги v0.9.6 Beta [Ru/En]
 magnet:?xt=urn:btih:6CE7886E68023DE46432FACBD9A67BEC5F7A1080
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ DailyArt - Daily Dose of Art v3.2.2 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:A1D1A9C0392CE01246A424EC0D4ECC67AABF9657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Rutube v29.1.1 Mod by vadj [Ru/En]
 ```bash
 magnet:?xt=urn:btih:6319A5D50B1289926458AE5E8D0A704FDC18816A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:6319A5D50B1289926458AE5E8D0A704FDC18816A
 magnet:?xt=urn:btih:77A2134D4F70CAAD9A56D2E55E86C11EBB6871C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Easy Notes - записная книжка, блокнот бесплатно, �
 ```bash
 magnet:?xt=urn:btih:3678913461BDA4613F86124C570B0AF4AA4F72D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Easy Voice Recorder Pro ваш ежедневный компаньон для з
 magnet:?xt=urn:btih:49ACB896D0D36D3DC76088B231E49C1F9EE834BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Psiphon Pro дает вам беспрецедентный доступ к ва�
 ```bash
 magnet:?xt=urn:btih:B28CD93765FCA9B38BCA9CE70C97FAFC685AFA60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ ToonMe v0.7.3 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:24BB06867C6EC3AE827DE56CFB24075D8DC729CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:ACDBE192FE17420C452C47F48F6F2A9194A8C9E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Melon VPN - это быстрый, неограниченный, стабиль�
 magnet:?xt=urn:btih:9066AB74A79EBB83743C39B7BBAB8CC144198443
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Plus Messenger - неофициальное приложение для обме
 magnet:?xt=urn:btih:FF3BC0917BBA776B807814E5895C7C21DF207E07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:FF3BC0917BBA776B807814E5895C7C21DF207E07
 ```bash
 magnet:?xt=urn:btih:CFC6F86C447C7F608039A53901320473B28B1DCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ OsmAnd - озвучка альтернативными голосами TTS [Ru]
 magnet:?xt=urn:btih:473FE783F855FCC45B4AB51A8AFCA774FCF5D67E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:473FE783F855FCC45B4AB51A8AFCA774FCF5D67E
 magnet:?xt=urn:btih:C4D89AC046B9BEC7D8394FC6563B49C5F3CB8453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:C4D89AC046B9BEC7D8394FC6563B49C5F3CB8453
 ```bash
 magnet:?xt=urn:btih:3345CAA0117DB1AD4C68F880409C6E7E51F6065B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:A1D5E10A7C1A1EB32BF406B61728DFB8C20D9232
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ PlayerPro Music Player - аудиоплеер, что предоставляет
 ```bash
 magnet:?xt=urn:btih:A2A50AF91CBE52974305E30EE6CB46B47D0710BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ PictureThis - Plant Identification v3.79 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:7A237C06B727FFD4183C514CD3ED7C2F327EFA8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:7A237C06B727FFD4183C514CD3ED7C2F327EFA8E
 ```bash
 magnet:?xt=urn:btih:C2840093325CF6C7D54CEFBA72FBB2DEEC6CFD77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Lighting calculations / Расчеты освещения v6.0.0 Mod by Balatan 
 magnet:?xt=urn:btih:BB5C2492321FDEF13F9E9B6FA689EF573D28A994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ IPTV# (ex. LazyIPTVDeluxe) v3.08 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E4800459601D1F56EA5693486E3DBAE3E1BB4F38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:E4800459601D1F56EA5693486E3DBAE3E1BB4F38
 magnet:?xt=urn:btih:DB25B8403F584DC3B539E80B20170C6F489DBFDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ NokoPrint v5.24.2 Mod by derrin [Ru/Multi]
 magnet:?xt=urn:btih:1AB842F7337ADD691142B386BD63B8E164504608
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:1AB842F7337ADD691142B386BD63B8E164504608
 magnet:?xt=urn:btih:01466D66B338F1C1521B151D8CCEA4655AB0F5C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:01466D66B338F1C1521B151D8CCEA4655AB0F5C1
 ```bash
 magnet:?xt=urn:btih:9923B72393FB24F6DE1D78B775A44658EBB07672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +682,8 @@ TapScanner — сканер документов, это простой скан
 ```bash
 magnet:?xt=urn:btih:6EA2DD0D911EEDEC905F5E2E5385423974BAC1B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

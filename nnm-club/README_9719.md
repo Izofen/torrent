@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:DC300F333562B6AA8A45D688FD64F4F501165EFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:DC300F333562B6AA8A45D688FD64F4F501165EFA
 ```bash
 magnet:?xt=urn:btih:F0CAB631E21FAE1092157C430412DC0D96F08380
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F0CAB631E21FAE1092157C430412DC0D96F08380
 magnet:?xt=urn:btih:7A39B6201AF3338DEB50F7C5976282CD0A6ABE70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:7A39B6201AF3338DEB50F7C5976282CD0A6ABE70
 ```bash
 magnet:?xt=urn:btih:E1E6AF87E5B7837B2BAAFF6746A60BC2E66663A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Iron Savior - Skycrest (2020) [MP3|320 Kbps] <Power Metal>
 magnet:?xt=urn:btih:9F142E0D773B574A53464B1F495A6E4B9959E70C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:9F142E0D773B574A53464B1F495A6E4B9959E70C
 ```bash
 magnet:?xt=urn:btih:809485B41BB13C3D863060BA050476792CED210B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:809485B41BB13C3D863060BA050476792CED210B
 magnet:?xt=urn:btih:204F91247F089FD0DF8088EB6032336507D9A19A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:204F91247F089FD0DF8088EB6032336507D9A19A
 magnet:?xt=urn:btih:8442CF5D8E90355C33B068BDEFF1499FCED2650B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:8442CF5D8E90355C33B068BDEFF1499FCED2650B
 ```bash
 magnet:?xt=urn:btih:A0A77D9621B74F8A2AD1E0E91655251890D6136C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Jeff Scott Soto - Wide Awake (In My Dreamland) (2020) [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:D7ECCE3EE42387FDB8ED26A2E68538CA772BA743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:D7ECCE3EE42387FDB8ED26A2E68538CA772BA743
 magnet:?xt=urn:btih:9A0DA4B9FC8B83A2E514FCF6B7E2E8EEE8207E5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:9A0DA4B9FC8B83A2E514FCF6B7E2E8EEE8207E5A
 magnet:?xt=urn:btih:5E7EB3F6C39454BDD016083ED70BFB52AA9AF2D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:5E7EB3F6C39454BDD016083ED70BFB52AA9AF2D8
 ```bash
 magnet:?xt=urn:btih:59B854F8B2F9815AEA13CAA15724EAEDC7526D17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:59B854F8B2F9815AEA13CAA15724EAEDC7526D17
 magnet:?xt=urn:btih:5F44BA3CBE6A04245BB53A9992FB8BB488531571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:5F44BA3CBE6A04245BB53A9992FB8BB488531571
 ```bash
 magnet:?xt=urn:btih:CCDC4FBF162B89D927F276E5B7D03407B315F374
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ David Guetta - Live @ Amsterdam Music Festival, Netherlands (2020-11-07) [MP3|32
 magnet:?xt=urn:btih:36336344185CF28CE5C687F9C5194D700C873BCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ Ane Brun - After The Great Storm (2020) [FLAC|Lossless|WEB-DL|tracks] <Art-Pop, 
 ```bash
 magnet:?xt=urn:btih:6C2551FB90695BCBE52DDD2B56303E6E3133DE28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ Band of Heysek - Bad Ideas (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:7D3C07F261C1AF3CDDB300F4E3997EBC17E00254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:7D3C07F261C1AF3CDDB300F4E3997EBC17E00254
 ```bash
 magnet:?xt=urn:btih:F1E02BBD295B43785003272BDE094808CFB09566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ CherryPlayer - уникальный проигрыватель аудио -, в�
 ```bash
 magnet:?xt=urn:btih:6E1FC5855C73E0AEA9B7AA28C1F457B142B88D45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ VA - Deep Blue Sea Lounge: Chillout Your Mind (2020) [AAC|~305 Kbps] <Downtempo,
 magnet:?xt=urn:btih:EBCCE4D26C9E8D6F25148439C05131CFD3755611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:EBCCE4D26C9E8D6F25148439C05131CFD3755611
 ```bash
 magnet:?xt=urn:btih:6C876BDC4EA3B0015274D5C8122172F445236173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ Iron Angel - Emerald Eyes (2020) [FLAC|Lossless|image + .cue] <Power Metal, Spee
 magnet:?xt=urn:btih:9AF6F29C490D6399BC9E5B37937DE652E187E616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:9AF6F29C490D6399BC9E5B37937DE652E187E616
 magnet:?xt=urn:btih:EF5831863BC0C057A84F6FA0CD34946B38136132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:EF5831863BC0C057A84F6FA0CD34946B38136132
 ```bash
 magnet:?xt=urn:btih:310437C3876F701DDD81A609F205E2A07294AE08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ VA - NoCopyrightSounds (NCS) Label Music Vol. 01-09 (2013-2016) (Обновля�
 ```bash
 magnet:?xt=urn:btih:0CBA670DCE6D02AF721A94A868EB91B2D480BDEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

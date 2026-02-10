@@ -21,6 +21,8 @@ CGcircuit, Arihant Gupta | Houdini Essentials - Flip Rendering (2021) WEB-DL [EN
 magnet:?xt=urn:btih:3C2E9A9CE0AA582C123F0EA7BD4BF8CB1C3FC463
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Enterclass, Константин Стерхов | Путешествие в Ки
 ```bash
 magnet:?xt=urn:btih:BFBC10E2ACF1ED6EEA0ED31C7406905E781337E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ CGcircuit, Ciobanu Razvan | Advanced Particles 2 : Demon Fire Trails (2022) WEB-
 magnet:?xt=urn:btih:99E98EC7509CFB41CBFCBFA608DAF90087AFBB87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Creature Art Teacher, Aaron Blaise | Как рисовать хищных пти
 ```bash
 magnet:?xt=urn:btih:813060B030DA71432EB635DCF11BA583C2827C2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ CGcircuit, Ciobanu Razvan | Advanced Particles 1: Geometry Based Simulations (20
 magnet:?xt=urn:btih:AFFE94139B15A5078B1D5FB6E19847CE2C7ADA8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ New Masters Academy, Steve Huston | Художественная анатоми�
 ```bash
 magnet:?xt=urn:btih:DACED13699628EF87719F4F65A93F3D0A0134B91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Enterclass, Сергей Лысый | Солнце за костелом (2023) 
 magnet:?xt=urn:btih:7739D73271CF9BEB2293E8D81D9A19D0084B08E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Enterclass, Анна Иванова | Ахалтекинец (2023) WEB-DL [AD] 
 ```bash
 magnet:?xt=urn:btih:47EB82BFE86814ADCE0C9242A33BC4022B6AC1DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ CG Forge, Tyler Bay | Pyro III – Large Explosions (2022) WEB-DL [EN]
 magnet:?xt=urn:btih:59B4EFCC26A176595C4BEF203E9CA6C7473C9092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ CGcircuit, Stefan Bredereck | FX MAYHEM 102 - Smokeless Fire & Flames (2021) WEB
 magnet:?xt=urn:btih:718132163B72D8A9A4895BFF464AEF2985184ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Wingfox, David Masana Lafuente | 3D Game-Ready Environment In Unreal Engine 4 (2
 magnet:?xt=urn:btih:D86EF3CF2626126B87CE59671045C3E7BBD224E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Wingfox, MikeHong | Creating a photorealistic character Joan of Arc (2021) PCRec
 ```bash
 magnet:?xt=urn:btih:F86DF555F6452C8658A22DB37268E787560CDD60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ Granich.Design, Вадим Гранич | Графсистема UI-дизайн
 magnet:?xt=urn:btih:F756DB44F7DF0FBCD8F5488249E7D9D4F0AACC4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Wingfox, Steffen Hampel | Creating a Photorealistic Japanese Alleyway with Maya 
 magnet:?xt=urn:btih:67708FFAAA8B0022D30094D2DC4368448D142110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ Udemy, Алексей Злотник | Как начать карьеру на �
 ```bash
 magnet:?xt=urn:btih:A38F06C1BF2588C4719C48592A328D3F7F94077D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:A38F06C1BF2588C4719C48592A328D3F7F94077D
 magnet:?xt=urn:btih:534A8A71F38A6BB752E76F261EF9D494612317D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ English With Lucy | The Business English Challenge (2023) WEB-DL [AD] [EN / EN S
 magnet:?xt=urn:btih:2BD1764C4EE31287F2663C54E5BB5E01B90331A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ VEX — важный навык для создания реалистичных
 ```bash
 magnet:?xt=urn:btih:23385CD904F050912728E63EFD43DC7C90EC4F86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:23385CD904F050912728E63EFD43DC7C90EC4F86
 magnet:?xt=urn:btih:E932C1A8176E69AEE3AAD67F76CFF82DD6E4DB56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ Legal Academy, Никита Иванов  | Защита интеллектуа�
 ```bash
 magnet:?xt=urn:btih:67ACD3F0DC241FFA6A47AA7789A5DC079F0B8BDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ Rebelway, Val David | Using Solaris in Houdini (2022) WEB-DL [EN]
 magnet:?xt=urn:btih:1FD4CD9C874BF6948E4518ADEA23968966019324
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ Liveclasses, Анатолий Ясинский | Массовый человек
 magnet:?xt=urn:btih:40B125C2D04388BBAC5EC9E75E80A5B9B090409D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ CGcircuit, Bishoy Khalifa | Sand Bag Tearing in Houdini (2021) WEB-DL [EN]
 magnet:?xt=urn:btih:A79FE2640C34A8BBFC1C78DD8124D2AD73404727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ Udemy, Andrei Neagoie и др. | Полный веб и мобильный ди�
 ```bash
 magnet:?xt=urn:btih:41230E1CCBD8F6902DE89164AF97EA5F0232ACB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ LinguaTrip, Веня Пак и др. | От Elementary до Intermediate за 30
 magnet:?xt=urn:btih:F68BA2F06EDD1003DCEA080C1B20F738BE9CF5D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ Geekbrains | Дизайн и проектирование интерфейсов
 ```bash
 magnet:?xt=urn:btih:EDC833CD49993C91CCCB1FC662B5C4DF113A9E7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

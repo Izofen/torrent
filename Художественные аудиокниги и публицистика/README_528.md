@@ -1,3 +1,29 @@
+###  Публикация: 1180232   (342117) от 03.11.2017
+
+Наталья Косухина | Академия создателей, или Шуры-муры в жанре фэнтези (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_342117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что вы знаете о богах? На самом деле это выпускники Академии создателей, каждый со своей специализацией. Создать галактику? Запросто! Устроить Армагеддон? Не вопрос! Вы спросите: какое я имею к этому отношение? Да все просто: я студентка этой самой академии, а еще нежеланный ребенок и ходячая неприятность. В этом я в очередной раз убедилась, когда жизнь столкнула (   Читать дальше...   )Жанр: Романтическое фэнтезиПродолжительность: 09:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D142DF9EB1EA590713986D00AA95A65C24139634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953782   (342150) от 07.11.2015
 
 Шеннон Хейл | Вышибала "Козла–Зубоскала" (2015) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:D825BB36A5779C881E96EF43E42EE2573454829A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:D825BB36A5779C881E96EF43E42EE2573454829A
 magnet:?xt=urn:btih:95BB931A9C9CDC1BDCF646CAF974F5929E8EAC99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:95BB931A9C9CDC1BDCF646CAF974F5929E8EAC99
 ```bash
 magnet:?xt=urn:btih:5AFEA3CFED958E3F9EFB2CCF1C9656A07A533D71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:5AFEA3CFED958E3F9EFB2CCF1C9656A07A533D71
 magnet:?xt=urn:btih:42414F9A371A9F541A09FB772DF14BBF16BC5BAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:42414F9A371A9F541A09FB772DF14BBF16BC5BAF
 ```bash
 magnet:?xt=urn:btih:B3E305DAC5503C616F8AE375E5CD39D907EA11E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:B3E305DAC5503C616F8AE375E5CD39D907EA11E1
 magnet:?xt=urn:btih:244835189B08BE1F168081CDE08C91F30682C04B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:244835189B08BE1F168081CDE08C91F30682C04B
 magnet:?xt=urn:btih:121C2DB35AB5D50A911530609DC4104A9771037D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:121C2DB35AB5D50A911530609DC4104A9771037D
 magnet:?xt=urn:btih:9E174915E61481EF8D854DEA088ADDE1ADA52C8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:9E174915E61481EF8D854DEA088ADDE1ADA52C8F
 ```bash
 magnet:?xt=urn:btih:BB65AFB9AFA26927C5D99A39083083635FD58325
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:BB65AFB9AFA26927C5D99A39083083635FD58325
 magnet:?xt=urn:btih:352EBB2B94B1DF7EE87D4E2F3E4C82989BD83613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:352EBB2B94B1DF7EE87D4E2F3E4C82989BD83613
 ```bash
 magnet:?xt=urn:btih:A5B3AC3C634248267397CD4C2688EBC2055E859F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:A5B3AC3C634248267397CD4C2688EBC2055E859F
 magnet:?xt=urn:btih:52C60BB5EA8BB399C83BB43B0E24E0E7FE8C5A7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:52C60BB5EA8BB399C83BB43B0E24E0E7FE8C5A7F
 ```bash
 magnet:?xt=urn:btih:F85D1761221CB5122052F26EB5FA1DE0CA67741B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:F85D1761221CB5122052F26EB5FA1DE0CA67741B
 magnet:?xt=urn:btih:533FE9DF215AE1BFD2F6C78487EC03287C2B4AA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:533FE9DF215AE1BFD2F6C78487EC03287C2B4AA6
 ```bash
 magnet:?xt=urn:btih:56CC537117703E46F7886292D117C2ADE8891AB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:56CC537117703E46F7886292D117C2ADE8891AB9
 magnet:?xt=urn:btih:DCB486FE0F60A92CDACDF4BAFCF6FBB5B8C6E7A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:DCB486FE0F60A92CDACDF4BAFCF6FBB5B8C6E7A6
 ```bash
 magnet:?xt=urn:btih:092BFC7F274F5397DA4E1315A743C67FA04E0F4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:092BFC7F274F5397DA4E1315A743C67FA04E0F4B
 magnet:?xt=urn:btih:97A79C47B0EA3BFAC32621ADFC476546179BCBF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:97A79C47B0EA3BFAC32621ADFC476546179BCBF8
 ```bash
 magnet:?xt=urn:btih:AA7C321D8AEE774E8E804CDB54865B679BB7A89A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:AA7C321D8AEE774E8E804CDB54865B679BB7A89A
 magnet:?xt=urn:btih:7B79D3AF16AD90B290DA3ACEDA8AD79A20BB6C3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:7B79D3AF16AD90B290DA3ACEDA8AD79A20BB6C3B
 ```bash
 magnet:?xt=urn:btih:289A86F1EB6E5D7F22C93F4470512510690C49E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:289A86F1EB6E5D7F22C93F4470512510690C49E2
 magnet:?xt=urn:btih:4B22CEDA22E95F7B0BE2D09DEDAAFDAC079218BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:4B22CEDA22E95F7B0BE2D09DEDAAFDAC079218BD
 magnet:?xt=urn:btih:19371AE5F09803914BD8B2C2DA24326D90B4E3F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:19371AE5F09803914BD8B2C2DA24326D90B4E3F2
 ```bash
 magnet:?xt=urn:btih:A12B0327B3C2AC6789E74069A8AB335D5BC1F5E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:A12B0327B3C2AC6789E74069A8AB335D5BC1F5E4
 magnet:?xt=urn:btih:87642B56F5F6F15A0999593D95E3A13013E41663
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578837   (343219) от 24.09.2022
-
-Михаил Усачев | Автократия гоблинов (Книга 3) (2022) [MP3, Михаил Алексеев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343219.jpg" />
-</div>
-
-
-###  Подробнее
-
-Много гоблинов и часто с пушками. Иногда тупых, иногда даже очень. Иногда с матом, иногда за дело. Если горит костёр – значит сожгли хату. На нём готовится енот – за ним три дня как посылали танки. Атаман зовёт – караул в ружьё! Люди пришли – сами виноваты! Их скоро перебьют – простая ситуация. Это Гоблин ОПГ – запрещённая на территории всех королевств организация.Жанр: Боевое фэнтези, Попаданцы, Юмористическое фэнтезиПродолжительность: 07:57:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA622322B27561BB62848021672AF1E8FE9639B5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

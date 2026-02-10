@@ -1,3 +1,32 @@
+###  Публикация: 1468192   (1017184) от 07.05.2021
+
+Радагор Воронов | Драгорн. Том 1 (2021) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никита оказался в ином мире, где история, развивалась несколько иначе, чем та, в которой он жил.
+    Современной Россией, вместо президента, правит Император. Общество поделено на сословия, существуют княжеские, влиятельные кланы.
+    Среди людей рождаются одаренные. Там, с их помощью, научились открывать порталы в иные миры, где Земля создает свои колонии.
+    Только воображение (   Читать дальше...   )Жанр: Героическое фэнтези, попаданцыЯзык озвучки: РусскийПродолжительность: 12:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C042804589D4AB75E5E8A1A09C5862B67E99AC68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468340   (1017228) от 07.05.2021
 
 Галина Гончарова | Цикл. Маруся (Книга 1-3) (2020-2021) [MP3]
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:091001D3CDCF39E619F5E4B1A837442A12A29885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +78,8 @@ magnet:?xt=urn:btih:091001D3CDCF39E619F5E4B1A837442A12A29885
 magnet:?xt=urn:btih:4AD45CFDFA8CD3BCA0D0ECA5FD78B6FA44109C06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +103,8 @@ magnet:?xt=urn:btih:4AD45CFDFA8CD3BCA0D0ECA5FD78B6FA44109C06
 ```bash
 magnet:?xt=urn:btih:E7753EB2DC4B5C74AF66AB9489256CE724693F86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +133,8 @@ magnet:?xt=urn:btih:E7753EB2DC4B5C74AF66AB9489256CE724693F86
 magnet:?xt=urn:btih:3FE1A6ACB3533E5E3103689B29E2CCD3CFB55BEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +158,8 @@ magnet:?xt=urn:btih:3FE1A6ACB3533E5E3103689B29E2CCD3CFB55BEA
 ```bash
 magnet:?xt=urn:btih:984FFC6152DD780A33F88FEAFF9EA824B4EEA552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +185,8 @@ magnet:?xt=urn:btih:984FFC6152DD780A33F88FEAFF9EA824B4EEA552
 magnet:?xt=urn:btih:7BC41E4ED3AB2E8C483DA6FFB2159C29577A1B2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +210,8 @@ magnet:?xt=urn:btih:7BC41E4ED3AB2E8C483DA6FFB2159C29577A1B2E
 ```bash
 magnet:?xt=urn:btih:BB7044D233AF4C8DFAD41E64F2CBABD6D59BE832
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +238,8 @@ magnet:?xt=urn:btih:BB7044D233AF4C8DFAD41E64F2CBABD6D59BE832
 magnet:?xt=urn:btih:99C08361AB0F043C0FF6AD66D7F9314FE3FC14A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +264,8 @@ magnet:?xt=urn:btih:99C08361AB0F043C0FF6AD66D7F9314FE3FC14A4
 magnet:?xt=urn:btih:DB4CA39B7408B5B8C7669936445B01783C0A4BED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +289,8 @@ magnet:?xt=urn:btih:DB4CA39B7408B5B8C7669936445B01783C0A4BED
 ```bash
 magnet:?xt=urn:btih:82B251D4860C9A6ACE879D6E2D5DC3D098F383E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +318,8 @@ magnet:?xt=urn:btih:82B251D4860C9A6ACE879D6E2D5DC3D098F383E5
 magnet:?xt=urn:btih:EB55DD9E9BF8D708232DAAA161D47C3E9378BEF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +345,8 @@ magnet:?xt=urn:btih:EB55DD9E9BF8D708232DAAA161D47C3E9378BEF6
 magnet:?xt=urn:btih:3B61B9F83797D746B779DB9E97FC2953E9F81834
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +370,8 @@ magnet:?xt=urn:btih:3B61B9F83797D746B779DB9E97FC2953E9F81834
 ```bash
 magnet:?xt=urn:btih:266D0D5F5B72FF6D5106EF863695C586D1118A5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +400,8 @@ magnet:?xt=urn:btih:266D0D5F5B72FF6D5106EF863695C586D1118A5F
 magnet:?xt=urn:btih:65B90D1BF765A1D435D22BA4DA68E9E92C8C4061
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +425,8 @@ magnet:?xt=urn:btih:65B90D1BF765A1D435D22BA4DA68E9E92C8C4061
 ```bash
 magnet:?xt=urn:btih:D8724CFB5229FA247ED1611C862F42DD8215ACBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +454,8 @@ magnet:?xt=urn:btih:D8724CFB5229FA247ED1611C862F42DD8215ACBD
 magnet:?xt=urn:btih:48EF69D7B0A209FEB050B395B7D5D7AA3EDFB64D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +479,8 @@ magnet:?xt=urn:btih:48EF69D7B0A209FEB050B395B7D5D7AA3EDFB64D
 ```bash
 magnet:?xt=urn:btih:1220B57E959025AB6427E6B74CC9BAF07DE45122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +509,8 @@ magnet:?xt=urn:btih:1220B57E959025AB6427E6B74CC9BAF07DE45122
 magnet:?xt=urn:btih:17C145230AB7A20081355139B1D3B1972A17CD4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +536,8 @@ magnet:?xt=urn:btih:17C145230AB7A20081355139B1D3B1972A17CD4F
 magnet:?xt=urn:btih:C47B141E3984CFA72F8924EAE0D8C26E577B9B19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +561,8 @@ magnet:?xt=urn:btih:C47B141E3984CFA72F8924EAE0D8C26E577B9B19
 ```bash
 magnet:?xt=urn:btih:59843B806DB7EB7958AC2EF751412B6B097505D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +588,8 @@ magnet:?xt=urn:btih:59843B806DB7EB7958AC2EF751412B6B097505D6
 magnet:?xt=urn:btih:9AA3B7F5D57328D15AA7B265F7E5B3E4206D1E31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +613,8 @@ magnet:?xt=urn:btih:9AA3B7F5D57328D15AA7B265F7E5B3E4206D1E31
 ```bash
 magnet:?xt=urn:btih:765736C30EDBCA118F5E97519D14E96AFF8F1043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +641,8 @@ magnet:?xt=urn:btih:765736C30EDBCA118F5E97519D14E96AFF8F1043
 magnet:?xt=urn:btih:979446F4B373FFFF2E3E53BEE7A226EC7E989A61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +668,8 @@ magnet:?xt=urn:btih:979446F4B373FFFF2E3E53BEE7A226EC7E989A61
 magnet:?xt=urn:btih:D3D702C68283F66457498CEAB001D75DB5A27EED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,29 +694,7 @@ magnet:?xt=urn:btih:D3D702C68283F66457498CEAB001D75DB5A27EED
 magnet:?xt=urn:btih:0C83677EA4A2AD22235DCFE5CAE11D35A9DF986B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466561   (1018348) от 30.04.2021
-
-Владимир Сорокин | Доктор Гарин (Книга 2). Доктор Гарин (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1018348.jpg" />
-</div>
-
-
-###  Подробнее
-
-Десять лет назад метель помешала доктору Гарину добраться до села Долгого и привить его жителей от боливийского вируса, который превращает людей в зомби. Доктор чудом не замерз насмерть в бескрайней снежной степи, чтобы вернуться в постапокалиптический мир, где его пациентами станут самые смешные и беспомощные существа на Земле, в прошлом – лидеры мировых держав. (   Читать дальше...   )Жанр: Современная русская литература, Социальная фантастикаИздательство: Аудиокнига (АСТ)Продолжительность: 17:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6EEA5807CD7E26A850952FCC65227831FC1117A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

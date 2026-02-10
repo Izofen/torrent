@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:0ABEA522FF652625BE0C41890DCDCCB6C64A27F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:0ABEA522FF652625BE0C41890DCDCCB6C64A27F1
 magnet:?xt=urn:btih:9C7D77303E7048FDE9770915AF3A6BF9218C85D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Fun Titles - современный проект с 6 текстовыми за�
 magnet:?xt=urn:btih:E0EAF26B30F52FAD20280F81E8840BC2D6DF80DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Unique Titles - В шаблоне представлены 10 анимирова
 ```bash
 magnet:?xt=urn:btih:701AE4783FD7AD3175C05E6A67CE89B20910B1BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:701AE4783FD7AD3175C05E6A67CE89B20910B1BA
 magnet:?xt=urn:btih:909B4641A4D418229BE2E5157081AD56FFFD5198
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Snapshot представляет собой шаблон Adobe After Effects, �
 ```bash
 magnet:?xt=urn:btih:2C3C8327710B55BAA575745719DAD79FC34D7BDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:2C3C8327710B55BAA575745719DAD79FC34D7BDC
 magnet:?xt=urn:btih:DF63D820D7AE2EC573D9C3B5027E652490FEAEF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ HUD Typo Graphics Pack - уникальный в своем роде пакет 
 ```bash
 magnet:?xt=urn:btih:F2436BD49F8F45C2DE1B93A01BB92DE2DED1F5B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Globe Map Pro Kit - предназначен для создания впеча�
 magnet:?xt=urn:btih:7A38D69EBB89597A6A971D8A4D0CD5CEDDB036A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Droste Studio - это новая и фантастическая идея дл�
 magnet:?xt=urn:btih:8A83CBF0127B85103C5FF3750D29C29796EB66E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Plexus Inspire Corporate Tech Intro - Сплетение вдохновляющ�
 ```bash
 magnet:?xt=urn:btih:398C220952EFFD7B71F64CB2D0B2F78A3A190829
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Arrow Slide - проект, который подойдет для корпор�
 magnet:?xt=urn:btih:190BACBDF140131D14342C15C36AFAEDE90DDE36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Motion Design Package - пакет из 150 элементов дизайна: �
 magnet:?xt=urn:btih:627DF7D9EA6CE995BC1B652F9EDDD1437F52DD0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Vintage Studio - Making Of - этот проект состоит из неск�
 ```bash
 magnet:?xt=urn:btih:3BA3FD3D9F4D9F2E08EF8D11953AA9DB6C02E6D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:3BA3FD3D9F4D9F2E08EF8D11953AA9DB6C02E6D8
 magnet:?xt=urn:btih:AC5E51B1EE6AA9D64FBD64A90F2B8069B2F31B77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ VideoHive - The Hunters - 5982022 [AEP]
 ```bash
 magnet:?xt=urn:btih:628F6030F1EC820F4512374F0CAE943420855A25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Flame Logo - еще один вариант эффектного огненно�
 magnet:?xt=urn:btih:B37D186D523D17042EAF9D1F7FBF1D12F91EDBC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:B37D186D523D17042EAF9D1F7FBF1D12F91EDBC7
 ```bash
 magnet:?xt=urn:btih:B77EF31B0AA279264CD3C0A05E72EFBFD62B8567
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:B77EF31B0AA279264CD3C0A05E72EFBFD62B8567
 magnet:?xt=urn:btih:F9014748B2C076D3B1020EA797F568268E8D3BD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:F9014748B2C076D3B1020EA797F568268E8D3BD9
 ```bash
 magnet:?xt=urn:btih:F5EDDD526A827665E2EBC70AC39B998B4FD982D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Parallax Intro - кинематографическая, элегантная и
 magnet:?xt=urn:btih:3CED90913FF5FF5E6E3AC99AD8D085B5C41E190D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:3CED90913FF5FF5E6E3AC99AD8D085B5C41E190D
 ```bash
 magnet:?xt=urn:btih:45FD064FD796DC068D5CDCFF8C135E016996E5CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Frozen Heart Slideshow проект для быстрого создания к�
 magnet:?xt=urn:btih:C152504AC22F17FA2C615A7088312552E06FEB89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:C152504AC22F17FA2C615A7088312552E06FEB89
 ```bash
 magnet:?xt=urn:btih:DC99D8A568681840BDA6C5C7485E7CBFCBBAC262
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:DC99D8A568681840BDA6C5C7485E7CBFCBBAC262
 magnet:?xt=urn:btih:4A4FD81338054E5B916D3C7A9C7BC88A18862070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Fxfx | Multi-Purpose Intro Opener - это универсальный и сти�
 ```bash
 magnet:?xt=urn:btih:40F48CFB545872E6783A8E026022FB8A1EF48B87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

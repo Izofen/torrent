@@ -1,3 +1,32 @@
+###  Публикация: 1066747   (408391) от 28.10.2016
+
+VA - Promo Only Dance Radio October (2016) [320] <Tropical, Indietronica, Club, Progressive>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_408391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Britney Spears F./G-Eazy - Make Me (Marc Stout & Tony Arzadon Radio Edit) 03:56
+02. Cash Cash & Digital Farm Animals F./Nelly - Millionaire (Ftampa Remix - Clean) 02:40
+03. Christina Aguilera - Telepathy (Rare Candy Radio Edit) 03:11
+04. Deorro F./Pitbull & Elvis Crespo - Bailar (Remix) 02:37(   Читать дальше...   )Жанр: Tropical, Indietronica, Club, ProgressiveПродолжительность: 01:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15DAEFFD2CF03AE7156B93F23063874D65B6BBB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067275   (408393) от 28.10.2016
 
 VA - Популярный драйвовый хитовичок. Выпуск 8 (2016) [MP3|256 Kbps] <Pop>
@@ -21,6 +50,8 @@ VA - Популярный драйвовый хитовичок. Выпуск 8 
 ```bash
 magnet:?xt=urn:btih:37090EBF160D1174C2D8DB3ABB4386288F0970A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Осенняя позитивная 100-ка. Сборник 6 (2016) [MP3|
 magnet:?xt=urn:btih:7F78FEACD03DD0095D5697D1FC2D9368CB56899F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Aquarell Herbst (2015) [MP3|320 кб/с]<Lounge, Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:6FDB6DF4CDCBC091ABE1CE93280D979D03BF23CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Auto RU Collection (2017) [MP3|320 Kbps] <Русский Рок, Автор
 magnet:?xt=urn:btih:383D6C25B5B652A83246EECF049FD7F4CB927EC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Осенняя клубничка №10 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:0B4412D4A7588C45B49646A65B9C9FA82935FE44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +211,8 @@ CD 1
 magnet:?xt=urn:btih:9AA3655697E3FF95FE71820D2EB1071BB18635AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +255,8 @@ CD1
 magnet:?xt=urn:btih:B1090D83733236D83783E747448FD807A267BB10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +290,8 @@ VA - Радио Шторм - Русский Шторм - 73 (2012) [MP3|320 кб
 magnet:?xt=urn:btih:9841F7CD86729F5760EC7C033E4C529DDEF05AE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +318,8 @@ VA - Illusion: Techno Sound Mix (2020) [MP3|320 Kbps] <Techno, Minimal>
 ```bash
 magnet:?xt=urn:btih:4DB7C9686563270BBD2F3B03E0888F5320479AFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +348,8 @@ VA - 1000 Разных Групп & ВИА ХХ Века (от Ovvod7) Vol.06 (2
 magnet:?xt=urn:btih:D4F2A83E08B609476AA4787CE05201AF9336C7AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +376,8 @@ VA - не Громкие новинки недели 35 (2019) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:6267566311FF99A9404F9F94AC541E3459019180
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +406,8 @@ Doro - I Am What I Am (Compilation) (2017) 2CD [MP3|320 Kbps] <Heavy Metal, Hard
 magnet:?xt=urn:btih:7F911F0BC9B4F9E72E90364B8FC61B198608CF80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +434,8 @@ VA - Lust And Love Vol.2: Alternative Rock Revue (2017) [MP3|192-320 Kbps] <Alte
 ```bash
 magnet:?xt=urn:btih:1C3199113DEDA38383DC69001F91A060A53EB162
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +464,8 @@ VA - Record Super Chart #504 (2017) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:C5FAB956B6715A05CD60BDDA080F103DF7053498
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +492,8 @@ VA - 200 Hits Of The Pops (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:F6AB8272696B2F170B01190262AB43E092EB2803
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +522,8 @@ VA - Top 100 Зайцев.Нет Сентябрь 2018 [MP3|320 Kbps] <Pop, Danc
 magnet:?xt=urn:btih:C5544A21066707184F113744B79303EC72A50BDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +550,8 @@ VA - Rap: All Facts (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:42BEAA491D9DD2413D02B6B2A0CD1E81A9408EF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +580,8 @@ Eros Ramazzotti - Next Steps (2018) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:4A7B7F7FD831D1FEBCC04655C1E7918E10ABEC47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +608,8 @@ VA - Black Dog: Metal Compilation (2018) [MP3|320 Kbps] <Metall>
 ```bash
 magnet:?xt=urn:btih:AA51E0078BDD37EE9CAF6BECF8EC41E4B98FBC53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +638,8 @@ VA - Most Uplifting Trance Music (2018) [MP3|320 Kbps] <Uplifting, Vocal Trance>
 magnet:?xt=urn:btih:C7E543D0AD2F70D8BF9D67653E30EB3C15B4643A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +666,8 @@ VA - Рок впрок 3 (2015) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:95350BCE81E9F65B8DDA1F0FF8BFC8AED0A186B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +696,8 @@ VA - New Order Of Chaos: Hardcore Monstr Mix (2018) [MP3|320 Kbps] <Hardcore, El
 magnet:?xt=urn:btih:2A3B82AC5E6B2668D2FD9E431A5935903D659D86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +724,8 @@ Compiled by ZeByte01. Redders - Vintage (feat.MC DRS) [04:54]
 ```bash
 magnet:?xt=urn:btih:4F2FDC013596A02FD7381019149F58679993DE02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -679,6 +754,8 @@ VA - Новинки Шансона 38 (2015) [MP3|320 кб/с]<Шансон, А�
 magnet:?xt=urn:btih:31458D4EA7B38FAD52980C2900AD37232BAFEBB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -706,32 +783,7 @@ VA - The most fun Disco, let's dance! (2020) 5CD [MP3|320 Kbps] <Pop, Rock, Disc
 magnet:?xt=urn:btih:80D570AE2FE2710BDF415FAE1ABAF5E954D41F62
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948686   (409639) от 21.10.2015
-
-VA - Halloween Witch Party Best of Chill Deep and House (2015) [MP3|320 кб/с]<Deep House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klankman - Requiem - Jason Philips Remix
-02. Las Chicas Professionales - Colour Your Sins
-03. Mono & Lisa - Passenger - G. Mojo Remix
-04. Self Explanatory - Circles in Circles(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 02:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C91558D57E3C215F2BCEDA0901F721F8E4EE79
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

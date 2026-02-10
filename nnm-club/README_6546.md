@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4CD1F529ECCEADC85AF0914FD0A78A2D2E376F7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ WhatsApp Messenger - это кроссплатформенное приложе�
 magnet:?xt=urn:btih:D094752DF37DDF78B3694BB49BFF034326B7C621
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:D094752DF37DDF78B3694BB49BFF034326B7C621
 ```bash
 magnet:?xt=urn:btih:8A3DBB8445F8DC91A18381F75DB33FA84A2F3A2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:8A3DBB8445F8DC91A18381F75DB33FA84A2F3A2A
 magnet:?xt=urn:btih:3C2B406857B5FA5EC6E687ABD538E3EB443A771C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:3C2B406857B5FA5EC6E687ABD538E3EB443A771C
 magnet:?xt=urn:btih:F3065ADC704D655F36F0EECC530C7864C1019C91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:F3065ADC704D655F36F0EECC530C7864C1019C91
 ```bash
 magnet:?xt=urn:btih:A070F3A1C063E19E3772D68FBFF2A16AC3C38CA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:A070F3A1C063E19E3772D68FBFF2A16AC3C38CA9
 magnet:?xt=urn:btih:4BAF8A75E866801E5C9D6C5AAA5B7E006BF9BA0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ C++ - это язык, не похожий ни на один другой, уд
 ```bash
 magnet:?xt=urn:btih:4B5E581CAC4FD31ED3A92449737A9DA8433BC831
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:4B5E581CAC4FD31ED3A92449737A9DA8433BC831
 magnet:?xt=urn:btih:D80D2C99E0A2C02D1902B1A612D1C61D1E1FD882
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 magnet:?xt=urn:btih:969AF906716FD18A0E2B2816A4AEB1D84F8B46CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Valerio De Sanctis | ASP.NET Core 6 and Angular: Full-stack web development with
 ```bash
 magnet:?xt=urn:btih:E9D37564DF0FD86970A609702331A66498A805BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:E9D37564DF0FD86970A609702331A66498A805BA
 magnet:?xt=urn:btih:3F3F85F7AD5C956C335A10D99ED8A46FB28FF7CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:3F3F85F7AD5C956C335A10D99ED8A46FB28FF7CC
 ```bash
 magnet:?xt=urn:btih:06E7BB22BFA3F1F13744838660444893EAEE8424
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ WinAudit Freeware 3.4.3 Portable [Multi/Ru]
 magnet:?xt=urn:btih:6BC4308E0F66245262DA8D0C6B14F0C55308D879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:6BC4308E0F66245262DA8D0C6B14F0C55308D879
 magnet:?xt=urn:btih:1CCA8081F42BCC25155416B2B3763E1C5E61E425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:F5F0B067F2A14E2D3EC9FAC5FFAC006AA06A5143
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Ricardo - Klangschalen-Musik (2009) [FLAC|Lossless|tracks + .cue] <Meditative, T
 magnet:?xt=urn:btih:97CE5CE60AA9CBF2991DD54FD22C1BE1E0DFA3D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:97CE5CE60AA9CBF2991DD54FD22C1BE1E0DFA3D2
 magnet:?xt=urn:btih:A8B05966439165219DF32233624BD34E1B27C3B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:A8B05966439165219DF32233624BD34E1B27C3B6
 ```bash
 magnet:?xt=urn:btih:6016F0EE3FD38DF3912AC772F7680F09F1A913A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ Openschool, Олег Самойлов, Ксения Соловьева | Фот�
 magnet:?xt=urn:btih:5F11A7D6AB453F4500ACC9C3C894EFBEA7A5811C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:5F11A7D6AB453F4500ACC9C3C894EFBEA7A5811C
 ```bash
 magnet:?xt=urn:btih:4A15138044054CBCE7B6EA440DAF12026194E367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ Vintage & Morelli - My Rose Enchanted Destiny (2016) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:BB88C64DA434E8FB91D93F80320893497F8317BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ An Atypical ASP.NET Core 6 Design Patterns Guide, Second Edition подходи�
 ```bash
 magnet:?xt=urn:btih:91C58A08E72A441F1CC69ED4C578BD5F42FA2EDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:91C58A08E72A441F1CC69ED4C578BD5F42FA2EDF
 magnet:?xt=urn:btih:6816958DF80858F0FB43678D795324E9F22D3141
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ Trevoir Williams | Microservices Design Patterns in .NET: Making sense of micros
 magnet:?xt=urn:btih:33C7BE9595D8B452282B1DB306037122DA7B1F9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:33C7BE9595D8B452282B1DB306037122DA7B1F9E
 ```bash
 magnet:?xt=urn:btih:0E975397A9F9290820A8BDF7191928009751A66C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

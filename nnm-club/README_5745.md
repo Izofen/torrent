@@ -19,6 +19,8 @@ Twinkle Tray позволяет легко управлять уровнями �
 magnet:?xt=urn:btih:9ACDAC6FB8A8B2B242C2CDF883C9CB54B6E00482
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Rain - Singularity (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
 magnet:?xt=urn:btih:89F7FF38D573C863227D6604677E9DD276EAAD75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:89F7FF38D573C863227D6604677E9DD276EAAD75
 ```bash
 magnet:?xt=urn:btih:FE4FBE10522E9F9687FEE189E649A432B902C1EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Oceans Of Slumber - Oceans Of Slumber (2020) [FLAC|Lossless|image + .cue] <Progr
 magnet:?xt=urn:btih:90CF194E5ADEB025F9922DA23DE94A5562992204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ George Coleman - The Quartet (2019) Smoke Sessions Records [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:C7DDD4202F23DE7BE852EAB8865EBFB790529ED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Mephistopheles - Songs Of The Desolate Ones (1999) [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:F8316306661C6BE14A09434733F6A3649CEA16DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ AYVY 1.7.0 [Multi]
 magnet:?xt=urn:btih:D3160F13F8324CECDD6A008A94CE444423BBCEC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:D3160F13F8324CECDD6A008A94CE444423BBCEC0
 ```bash
 magnet:?xt=urn:btih:A4AF0ECDF9CF9BB9AE801B7F17C0DFCCE3F49543
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ VA - The R&B and SOUL Room (2020) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk, R&B
 magnet:?xt=urn:btih:6798AA6820FB732E4236A211B723F8D03FB60576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ Meteora - Our Paradise (2017) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 magnet:?xt=urn:btih:11988D5F2ACD082931F989ECC062DF55187AA690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:11988D5F2ACD082931F989ECC062DF55187AA690
 ```bash
 magnet:?xt=urn:btih:C13D2B428444108FB2F7991D51366BD4978F6584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Opera One 103.0.4928.26 Portable by Cento8 [Ru/En]
 magnet:?xt=urn:btih:7145BF942C12FB0412524255987CB81D9975B298
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:7145BF942C12FB0412524255987CB81D9975B298
 ```bash
 magnet:?xt=urn:btih:8EDDB796ABFBFE986CB97891D637354238C662FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Hazel Scott - 1939 - 1945 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 magnet:?xt=urn:btih:37BA7D0E6C94F8381C2854E304815AEE96039FC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:37BA7D0E6C94F8381C2854E304815AEE96039FC9
 magnet:?xt=urn:btih:D53EEF06D8CE00B8AE338E975C0CEC6E07190504
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ RarmaRadio - программа для прослушивания и запис�
 ```bash
 magnet:?xt=urn:btih:0B34B51310812E3B70FD84DA30B81F4F98BE8C36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:0B34B51310812E3B70FD84DA30B81F4F98BE8C36
 ```bash
 magnet:?xt=urn:btih:727CFDBF8FDCA028320EA6C46C2858E720920ED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ VA - Best of Smooth Lounge, Vol. 1 (A Finest Selection of Chill & Modern Bar Tra
 magnet:?xt=urn:btih:2C2C527E6F49AF7F05EA37FA639368F598A1E0C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ Moon Shepherd - Between The Circles (2022) [Mp3|320kbps] <Heavy, Stoner Metal>
 ```bash
 magnet:?xt=urn:btih:969737FCC71E5FDD571C1B178FF386C793E75B5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +548,8 @@ VA - Beatport Tech House: Electro Sound Pack #205 (2020) [MP3|320 Kbps] <Edm, Te
 magnet:?xt=urn:btih:A050D7B4D7A439A172C2664F89E8A70EF3E98D86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +576,8 @@ Bark - Rambler of Aeons (2022) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Deat
 ```bash
 magnet:?xt=urn:btih:7DE7A0FED19BA3FD90E047478152BA9E192314C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +606,8 @@ Pale King - We Are but Memories (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic De
 magnet:?xt=urn:btih:37EDB540283508AF93DB5BDE0D413AC113356B1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ magnet:?xt=urn:btih:37EDB540283508AF93DB5BDE0D413AC113356B1E
 ```bash
 magnet:?xt=urn:btih:E5259049883D13CB201151C2ECEA8A849D7B779F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +661,8 @@ The Thanatonauts - Зов (2022) [FLAC|Lossless|WEB-DL|tracks] <Post Metal, Alte
 magnet:?xt=urn:btih:45221A878D397C8C192B4F2089F8756B4D60B3A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +690,8 @@ Mephistopheles - Landscape Symphonies (1997) [FLAC|Lossless|image + .cue] <Melod
 magnet:?xt=urn:btih:E8F2D36DC1CD201C0D21B07AC27FA8263587C067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +715,8 @@ Twinkle Tray позволяет легко управлять уровнями �
 ```bash
 magnet:?xt=urn:btih:CD4388936B27E0600D807D192D2B7DED8DBACD3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

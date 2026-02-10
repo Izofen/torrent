@@ -22,6 +22,8 @@ Donna Lewis - Now In A Minute (1996) [FLAC|Lossless|tracks + .cue] <Pop Rock, So
 magnet:?xt=urn:btih:4FCACD420350E73939A549DF06CD1CC429B64C70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Taylor Dayne - Greatest Hits (1995) CD, Compilation, Club Edition [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:715EC4072F786E820B473D12CAC9F2F4464EEFFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:715EC4072F786E820B473D12CAC9F2F4464EEFFC
 magnet:?xt=urn:btih:03AC81EF637F762B366775D9396D0E6E406F9479
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:03AC81EF637F762B366775D9396D0E6E406F9479
 ```bash
 magnet:?xt=urn:btih:B4E4720B07BECDA627862122698B29E1EBC313CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:B4E4720B07BECDA627862122698B29E1EBC313CB
 magnet:?xt=urn:btih:23DC42CEE3DAABF1E3F5AA0ABDB6845013366BA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Patrick Cowley - From Behind (2024) [FLAC|Lossless|WEB-DL|tracks] <Disco, Hi NRG
 ```bash
 magnet:?xt=urn:btih:9065B19AF722F1F27DD11014F6C3A11A67ED16B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Lara Fabian - Je suis La (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:73EDDDF8DB7B111175DA1E4AEE3322218D9F4689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Olivia Newton-John - Angels In The Snow (2008) Reimagined, 2024, Primary Wave Mu
 ```bash
 magnet:?xt=urn:btih:AC56AC86B7206A5C1433A227A61A4241B805BDDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Naomi Sharon - Obsidian (2023) Extended, 2024, OVO Sound [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:DE013297F9058F4C79CA2D7A7871383AC0A83C21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - трибьют арбенина (2024) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:3378CAEA96A810322B9E135B6846FC46EA1FD97B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:3378CAEA96A810322B9E135B6846FC46EA1FD97B
 magnet:?xt=urn:btih:ACD0F0D7F2D857E604EE7D19AA45EA805F7BA375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Hottest Hits 100 Greatest Songs of All Time (2024) [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:0C5269B49211FC46A2851AA29428F204A20CB581
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Союз 19 Альбомов (1998-2007) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:631E2D89283AC8029B869F0444739BE34BBC2AEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ magnet:?xt=urn:btih:631E2D89283AC8029B869F0444739BE34BBC2AEB
 magnet:?xt=urn:btih:CB643D0A66FE59162F855175A09CD051C99B79A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ Michael Jackson - Love Never Felt So Good (2014) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:6E2B95F6FB6EA3BB50A313B5572A00E903EEB48E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ Steve Lawrence & Eydie Gorme - The Best of Steve & Eydie (1990) CD, Compilation 
 magnet:?xt=urn:btih:406A75F777970812DB5C338994C03CC41479D5B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ Bette Midler - Sings The Rosemary Clooney Songbook (2003) [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:D1A0BD3765EF8687B361C707E41E76CB6A3B92DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ Android (Marc Hartman and Imro van Hetten) - Spaceman's Return (2022) [FLAC|Loss
 magnet:?xt=urn:btih:F8E2B942F279AF691276800D46D84FF6FC4454D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ magnet:?xt=urn:btih:F8E2B942F279AF691276800D46D84FF6FC4454D2
 ```bash
 magnet:?xt=urn:btih:6C0E32A59238993A094A7AA62E6BBEE4F5D15751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +571,8 @@ Boney M. - Christmas With Boney M. (2007) Compilation, Reissue, Remastered [FLAC
 magnet:?xt=urn:btih:A6929F028C5960314B2BCC068E7701417CB8484C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ magnet:?xt=urn:btih:A6929F028C5960314B2BCC068E7701417CB8484C
 magnet:?xt=urn:btih:2208532D6B20828C10B02A43CDE8D0C64F89D6FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +626,8 @@ VA - Пахмутова: Любовь моя – спорт (1980) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:22BD81D64F8D039C8DD0F4388478BD6AB8C0B3DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +656,8 @@ magnet:?xt=urn:btih:22BD81D64F8D039C8DD0F4388478BD6AB8C0B3DA
 magnet:?xt=urn:btih:A4C4B298BBC01EEF59D188362B5F3D0A87E1B21F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +684,8 @@ Cheryl - Only Human (2014) [FLAC|Lossless|tracks + .cue] <Pop, Dance-pop>
 ```bash
 magnet:?xt=urn:btih:BCCD2602F79CCE056C311D98218D4E861C29FDFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -666,6 +714,8 @@ Live On Air 1967 - 1968Жанр: PopПродолжительность: 3 CD, 03
 magnet:?xt=urn:btih:34E916B9FCD279F28A2DA78E122A88BA09FE7B34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,6 +742,8 @@ VA - Союз 8 Альбомов (1994-1997) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:6DAAA761CE61BF3EEDB89BE7E7FCC4F7314A013D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

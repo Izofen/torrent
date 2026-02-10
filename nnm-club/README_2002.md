@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B6FFC9675A941CAFFA367BAAFBEF132ECF26FFFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:B6FFC9675A941CAFFA367BAAFBEF132ECF26FFFD
 ```bash
 magnet:?xt=urn:btih:8BBC00C1FA3DAEB37B98938F8D28319AE3984F7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:8BBC00C1FA3DAEB37B98938F8D28319AE3984F7F
 magnet:?xt=urn:btih:AA4DA2073B836232E7F03C5466639C98AB804EA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:AA4DA2073B836232E7F03C5466639C98AB804EA8
 ```bash
 magnet:?xt=urn:btih:17B8493F29CA5D3BA9A0D6E6BA8DCF508A472828
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:17B8493F29CA5D3BA9A0D6E6BA8DCF508A472828
 magnet:?xt=urn:btih:9CBBFA28602137818BEEB1A923526AE81A955ED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:9CBBFA28602137818BEEB1A923526AE81A955ED1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:9CBBFA28602137818BEEB1A923526AE81A955ED1
 magnet:?xt=urn:btih:3B9911460F33C8CC7F6780537AAA19CB38D53182
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:3B9911460F33C8CC7F6780537AAA19CB38D53182
 ```bash
 magnet:?xt=urn:btih:6BA8F060D53BF3BC029F2826B4F576E01FD0F6B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:6BA8F060D53BF3BC029F2826B4F576E01FD0F6B0
 magnet:?xt=urn:btih:C8535CEBF443DB8D1A46B0F7B5E7762CC62F869D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:C8535CEBF443DB8D1A46B0F7B5E7762CC62F869D
 magnet:?xt=urn:btih:04096C200C9B9BCA309FAF93CAC0CAE53D82E81B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ OsmAnd+ является приложением с открытым исходн
 ```bash
 magnet:?xt=urn:btih:79B1C4FC98E90553883E9A492E12E493997CA8C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:79B1C4FC98E90553883E9A492E12E493997CA8C7
 magnet:?xt=urn:btih:CA7EC9EB16829F95527B20FEA2F7AC7BA1882B06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ OB-E - это больше, чем просто эмуляция, он пред�
 magnet:?xt=urn:btih:CD69BFD62B57492BC397E1D6A1E1ED51D901C990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ CopyQ это легкий, но многофункциональный мене�
 ```bash
 magnet:?xt=urn:btih:56CD6E6D2A12E6FF740AA4460B086361649A036A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:56CD6E6D2A12E6FF740AA4460B086361649A036A
 magnet:?xt=urn:btih:047F87C27B360F7F47974D7558F3FE5F1C5CFB83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:047F87C27B360F7F47974D7558F3FE5F1C5CFB83
 ```bash
 magnet:?xt=urn:btih:99C549A42FD660F76030479A26CC6E6F9BAAED36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:99C549A42FD660F76030479A26CC6E6F9BAAED36
 magnet:?xt=urn:btih:D4BE9F75AF97286F9513B78A5625C37208DF5E64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:D4BE9F75AF97286F9513B78A5625C37208DF5E64
 magnet:?xt=urn:btih:F3204562C242AE8D11664E366272AF5E69F6C7E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Warhammer 40,000: Boltgun (2023) [Ru/Multi] (1.21.67207.27/dlc) Scene Doge
 ```bash
 magnet:?xt=urn:btih:FFA8EB06251AE5AAA9DEBAAA7DD292F32F8833C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ Luminar Neo – это отдельный редактор, который вк�
 magnet:?xt=urn:btih:0471E088AC9FA61E64B7E1A8055E19629C5318DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ Fossilfuel 2 забрасывает игроков в затопленный и�
 ```bash
 magnet:?xt=urn:btih:F94C5F4A91CE5E4C5219974CEE6A0691BE7EB4C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ The I of the Dragon / Глаз дракона (2002) [Multi] (1.02) License GOG
 magnet:?xt=urn:btih:F8078DCE1DF72D0B9BAD6837179FEF6E26B2C47B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:F8078DCE1DF72D0B9BAD6837179FEF6E26B2C47B
 ```bash
 magnet:?xt=urn:btih:44A7151F386D0146E3601F1D287CC8DE14AD7A0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ magnet:?xt=urn:btih:44A7151F386D0146E3601F1D287CC8DE14AD7A0E
 magnet:?xt=urn:btih:2BA9FE379F71E31442093BECEF752458E43ADAEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ Tropico 6 (2019) [Ru/Multi] (22/dlc) Scene Doge [El Prez Edition]
 ```bash
 magnet:?xt=urn:btih:9360AB6F970A9B13502E67F0C6C4911504D0E479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:9360AB6F970A9B13502E67F0C6C4911504D0E479
 ```bash
 magnet:?xt=urn:btih:CEC5141ECA06FD6C023320FDD89C995B1F9A6520
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

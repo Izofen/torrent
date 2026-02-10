@@ -20,6 +20,8 @@ PicWish — фоторедактор с искусственным (   Чита
 magnet:?xt=urn:btih:528E91D0ED65D93EFD96E76D8C2572A61AC6FC46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:528E91D0ED65D93EFD96E76D8C2572A61AC6FC46
 ```bash
 magnet:?xt=urn:btih:6CC2474CC6C94EF1B6E535DEC087D43F922D6650
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ PictureThis - Plant Identification v5.2.0 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:DE9A48BA00D8F2F72DDD0E8DF6B9AAA9E4311611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Suzy - Come back (2025) WEBRip [H.265/2160p]
 ```bash
 magnet:?xt=urn:btih:9FF5D4FC67D7BA04AAA4D0FFE5EC7CBBE3F69475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:9FF5D4FC67D7BA04AAA4D0FFE5EC7CBBE3F69475
 magnet:?xt=urn:btih:136AA3B9266F8E8D49B39C6D2C0216C57C2D8B62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Smart AudioBook Player Pro v11.3.9 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E222871C264A0F3702907D991B56CDDB2AEB5687
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Rokets - Bad Choices (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Ston
 magnet:?xt=urn:btih:C5E523B0E630BF664F8F6C6447C105003E014AC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Rufige Kru, Goldie & Submotive - Alpha Omega (2025) [FLAC 24/44.1|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:11B5B7FEDD0828C4F441DB6A19010B685221B8EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ Slow Danse With The Dead - Eternl Mourning (2025) Remastered [MP3|320 Kbps] <Col
 magnet:?xt=urn:btih:0B01CA001BBCDD5AB5DE04F52806C89763091163
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:0B01CA001BBCDD5AB5DE04F52806C89763091163
 magnet:?xt=urn:btih:6F82678C0328119A8ED8EA7D87C9F281077382F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:6F82678C0328119A8ED8EA7D87C9F281077382F1
 ```bash
 magnet:?xt=urn:btih:0C107FD1865B4D88C2C219BB6515FACD0A051471
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ Nytt Land - Songs of the Shaman (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Da
 magnet:?xt=urn:btih:1680ED7C033909E68EDE3CAA5C7CCB911E5AF895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:1680ED7C033909E68EDE3CAA5C7CCB911E5AF895
 ```bash
 magnet:?xt=urn:btih:E65D976E87784B7DB73DA58016758977B4D70C68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ Hundredth - Faded Splendor (2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Indi
 magnet:?xt=urn:btih:EC63B0B391AEF9BE0BC8BC93E72C6E7E441C7CD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ Bury Tomorrow - Will You Haunt Me, With That Same Patience (2025) [FLAC 24/44.1|
 ```bash
 magnet:?xt=urn:btih:55F7972C56CAE95FE395788E5C38C9A5F6B955FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ Machine - Take Control (2025) [MP3|320 Kbps] <Thrash Metal>
 magnet:?xt=urn:btih:298CE14CEC2BA40CB8F3BBD4C432E4E2A51613ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ B1 - The MessageЖанр: Death Metal, Ambient, Progressive MetalПродолж�
 magnet:?xt=urn:btih:CAEF53C8D9392704DEDE2EC2EDD598E3C36B976D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:CAEF53C8D9392704DEDE2EC2EDD598E3C36B976D
 magnet:?xt=urn:btih:5B9361EAADE4FA5EED87D42E97B6A05170AA0BF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:5B9361EAADE4FA5EED87D42E97B6A05170AA0BF0
 ```bash
 magnet:?xt=urn:btih:52E6F458CFAE092EE9FE91FDBE22A64B2A3AB35E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:52E6F458CFAE092EE9FE91FDBE22A64B2A3AB35E
 magnet:?xt=urn:btih:C6334D96BD00BFE8B2A88BF80DE68D30390BCBDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +573,8 @@ Jazzetz Zukovsky - Время (2025) [MP3|320 Kbps] <Gothic-Rock, Post-Punk>
 magnet:?xt=urn:btih:58BF98F408C1BDC6FADB8EF93BB30DAD335C6103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:58BF98F408C1BDC6FADB8EF93BB30DAD335C6103
 magnet:?xt=urn:btih:7E5E17163593025A56D8CF046E62E8440A7EE1C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:7E5E17163593025A56D8CF046E62E8440A7EE1C9
 ```bash
 magnet:?xt=urn:btih:BCAF8EEF3FBCF5E4EEF5232006ABDC6A9F1B56B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ Karfagen - Omni (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Progressiv
 magnet:?xt=urn:btih:1275BB0C13A5D0F861CAD7B02146B2D00C10A4C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:1275BB0C13A5D0F861CAD7B02146B2D00C10A4C5
 magnet:?xt=urn:btih:447933EFA088589F27270B4915E9D248A9AC6621
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:447933EFA088589F27270B4915E9D248A9AC6621
 ```bash
 magnet:?xt=urn:btih:EFB6532BAA4056D34F1BB5E378AFB87C9B4136FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

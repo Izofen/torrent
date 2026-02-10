@@ -19,6 +19,8 @@ KCNcrew Pack - это огромнейший сборник серийников
 magnet:?xt=urn:btih:D7AF56E96C848D12CC3C08DB218F759B7F9070B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:D7AF56E96C848D12CC3C08DB218F759B7F9070B1
 magnet:?xt=urn:btih:9784124163BE00118E295F78D3D6FE8B75AB386D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:9784124163BE00118E295F78D3D6FE8B75AB386D
 ```bash
 magnet:?xt=urn:btih:BD2FAA80077813CFA9C204B9C1CD54D52EA4C522
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:BD2FAA80077813CFA9C204B9C1CD54D52EA4C522
 magnet:?xt=urn:btih:80511E17C017BA33087280E52C169193319E13AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:80511E17C017BA33087280E52C169193319E13AF
 ```bash
 magnet:?xt=urn:btih:B78467200955E4A4C5EF3BB8C00AFC8E75D338B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Manntra - Meridian (2017) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 magnet:?xt=urn:btih:5787AE1409044BBC2A62469070D86A367CB9B32A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ PDF Merge and PDF Splitter - это очень простое в использ�
 ```bash
 magnet:?xt=urn:btih:235130066017805386CA37F17A9B5AB93DCE5FEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Manntra - Horizont (2012) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 magnet:?xt=urn:btih:46B0773286DF841BE11AB8D4A4898EAA3A41076B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Speech объединяет все функции синтезатора реч�
 ```bash
 magnet:?xt=urn:btih:62E3F87BF76CDAE7915D5EB48672BB867DE0973A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ Manntra - Venera (2015) [MP3|320 Kbps] <Folk Metal, Industrial Metal>
 magnet:?xt=urn:btih:8B50EDA78AA5725B8E62D3C33938E384C9178903
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Tomb Mold - The Enduring Spirit (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 ```bash
 magnet:?xt=urn:btih:FC0079797A54EFF51DD64DCFAC4B38C6DAE684D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ Burner - Hittin' The Target (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:75B7E1BA1D385D4F4A8750C1463E4283A3BF29DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:75B7E1BA1D385D4F4A8750C1463E4283A3BF29DE
 magnet:?xt=urn:btih:0379BF614314EDEFCFB47DEDBEF0FA105E7E609A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ NetShred X - утилита не просто для удаления кэша �
 ```bash
 magnet:?xt=urn:btih:2F21B815B5B96C0853F3FD2C75DE3274D866CF53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ Brujeria - Esto Es Brujeria (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Groove 
 magnet:?xt=urn:btih:C08108A69B9748DD96E97994EE5A0AFC2F315385
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:C08108A69B9748DD96E97994EE5A0AFC2F315385
 magnet:?xt=urn:btih:BEE486A81FB870D55A61BB9190D675FF199B4EA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:BEE486A81FB870D55A61BB9190D675FF199B4EA2
 ```bash
 magnet:?xt=urn:btih:CD0668C29D682B2DACE3E4C2A600D4B20B5CD5FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ PowerPhotos - позволяет разбить ваши изображения 
 magnet:?xt=urn:btih:C931D0277B6A283961FEE283FE244D8572892A21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:C931D0277B6A283961FEE283FE244D8572892A21
 ```bash
 magnet:?xt=urn:btih:AA07FEEAA92370F19AF04D9023452FA51DC33AAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:89A2780F76ECED0173DAB205480E7643F4AE863F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ Vindictiv - прогрессив-метал группа из Стокгольм
 magnet:?xt=urn:btih:DF08D1759784C11927F4FAAC539A42BA7AE0D34B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:DF08D1759784C11927F4FAAC539A42BA7AE0D34B
 ```bash
 magnet:?xt=urn:btih:28D2257B73C36E66DEA30BF18576E1AE97BEE34E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ Roadwolf - Midnight Lightning (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, 
 magnet:?xt=urn:btih:A740F44CBAD657048F92A583D26A9DB6DFF59928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ Pansophic - The 2023 Massacre (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 magnet:?xt=urn:btih:1F71024D76EF50DD8F35BD061AE702889D318F07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ magnet:?xt=urn:btih:1F71024D76EF50DD8F35BD061AE702889D318F07
 magnet:?xt=urn:btih:D640A03E5C1CD4ACA30413C85D61C98D069F03B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ magnet:?xt=urn:btih:D640A03E5C1CD4ACA30413C85D61C98D069F03B9
 ```bash
 magnet:?xt=urn:btih:08B2431E31BA7002A6B37CB9E6319053CCCC36B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

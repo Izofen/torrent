@@ -1,3 +1,29 @@
+###  Публикация: 1570329   (444324) от 16.08.2022
+
+Microsoft Windows 11 [10.0.22000.856], Version 21H2 (Updated August 2022) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_444324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ED7947A771475ED69E13D4CD3825426FB1D16AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570138   (444337) от 16.08.2022
 
 Windows 10 21H2 (19044.1889) x86 (6in1) by Brux [Ru]
@@ -18,6 +44,8 @@ Windows 10 21H2 (19044.1889) x86 (6in1) by Brux [Ru]
 ```bash
 magnet:?xt=urn:btih:5888D759606870D0E002FF05078BC935382DFE3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ Microsoft Windows 10.0.19041.508 Version 2004 (Updated Sept 2020) - Оригин
 ```bash
 magnet:?xt=urn:btih:A227816EA65321EF84A0CABBC8A05BA8CB339351
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +101,8 @@ Windows 10 May 2021 Update (под кодовым названием "21H1") я�
 magnet:?xt=urn:btih:E74D9B81C0C810F614FEA8EB98A30979B2EDE0DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +128,8 @@ Windows 7 Профессиональная SP1 x64 [OA CIS and GE] (Original) 6/
 magnet:?xt=urn:btih:2498AA0E8B88B709A832FB5577AC4F6FCB8D1064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +154,8 @@ Windows Server 2019 LTSC Version 1809 Build 17763.1457 (Updated Sept 2020) Ор�
 magnet:?xt=urn:btih:CDF72519DE64669DA1AB104A1DFB081084FDDA2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 ```bash
 magnet:?xt=urn:btih:84038C8B21BD1CCD2921F0BE1B5A1FFF0BA0F7B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +207,8 @@ Microsoft Windows 10.0.19041.508 Version 2004 (Updated Sept 2020) - Оригин
 magnet:?xt=urn:btih:C7BFB3438CBF15FB2892679165BB5058000003CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +233,8 @@ Microsoft Windows 10.0.18363.1082 Version 1909 (Updated Sept 2020) - Ориги�
 ```bash
 magnet:?xt=urn:btih:BAF89F3A17985E7DF2A8F64218D2EB13EDDFB035
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +261,8 @@ Microsoft Windows 10.0.17763.1457 Version 1809 (Updated Sept 2020) - Ориги�
 magnet:?xt=urn:btih:43CF4BDCB023338A29042B6C074A138A62FE49F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +287,8 @@ Microsoft Windows 10.0.18362.1082 Version 1903 (Updated Sept 2020) - Ориги�
 ```bash
 magnet:?xt=urn:btih:FA36CF9A14CDCEA73F169E9FC94D59375FFA00D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +315,8 @@ Microsoft Windows 10.0.17763.1457 Version 1809 (Updated Sept 2020) - Ориги�
 magnet:?xt=urn:btih:433C77FC72B38F843D9FEB659EF31D06DAFD1F09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +340,8 @@ Windows 7 Professional VL SP1 x64 (build 6.1.7601.26065) by ivandubskoj 11.08.20
 ```bash
 magnet:?xt=urn:btih:55BA3AF2D061E23D40292583BED4765A9407A127
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +367,8 @@ Windows 7 (ранее известная под кодовыми названи�
 magnet:?xt=urn:btih:FAE177F36CF3D4201E5EE53AB22DDE1BFC3B61A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +392,8 @@ Windows 10 x64 Full-Lite Release by StartSoft USB 18-2019 [Ru]
 ```bash
 magnet:?xt=urn:btih:FA1328E0EEC4A37B1B6640CDA719F4CE8F2CB1CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +424,8 @@ Recovery DVD for Dell Inspirion N5050 / Windows 7 Home Basic (х64) SP1 [Рус�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +453,8 @@ Windows 10 November 2021 Update (под кодовым названием "21H2"
 magnet:?xt=urn:btih:F660B9EF7BC117B956CBC0B5FFF2CA515DB51695
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +479,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:854B3EC10F3ECA20B8A20B37493920C9F0A8047F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +504,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 ```bash
 magnet:?xt=urn:btih:CD0D75096131CA4EEFBFBB3BF3ABBE53A980B865
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +534,8 @@ Windows 10 May 2021 Update (под кодовым названием "21H1") я�
 magnet:?xt=urn:btih:26A3D1F07326FEF40F266A694164E49943E38D96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +563,8 @@ Windows 10 May 2021 Update (под кодовым названием "21H1") я�
 magnet:?xt=urn:btih:0014FBA3C4A4CE168E18B7ED69A9BFED2AC853D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +589,8 @@ Windows 7 Professional VL SP1 x86 (build 6.1.7601.26022) by ivandubskoj 14.07.20
 magnet:?xt=urn:btih:EA098504A43F1DD147ED83CEAA07ACC711CA4E2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +614,8 @@ Windows Server 2012 (кодовое имя «Windows Server 8») - версия 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +644,8 @@ Recovery USB-flash for Acer One 10 S1002 / Windows 8.1 (х86) [Ru]
 magnet:?xt=urn:btih:89E5B6987D0B6E2A61C1F98A420C0A20A0B790DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +672,8 @@ Recovery USB-flash for Asus T100TAM / Windows 8.1 with Bing (х86) 6.3 (сбор
 ```bash
 magnet:?xt=urn:btih:947608F251A560F94C5AFC7C6A28EB88C0C640D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,29 +702,7 @@ Recovery USB-flash for Acer Aspire E5-521 / Windows 8.1 (х64) [Ru]
 magnet:?xt=urn:btih:8EF5D8E82418151343A2DBCD7EF9DB3016A8EB1B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931202   (512495) от 25.08.2015
-
-Раздел восстановления (RECOVERY) ноутбука ASUS K53SJ Windows 7 Home Premium (x64) OA CIS and GE [Multi/Ru]
-
->>ОС Windows
->>Windows OEM Recovery СD/DVD
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512495.jpg" />
-</div>
-
-
-###  Подробнее
-
-Копия скрытого раздела восстановления (RECOVERY FAT32), созданная в программе Acronis True Image 2014, в посекторном режиме копирования. Образ в формате tib. После развертывания образа размер раздела составит 21,4 GB.Язык интерфейса: Русский, Украинский.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11622D0DCA8A9BA4DE5417C4E5ECFE8ABA0556D3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

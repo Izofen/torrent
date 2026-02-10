@@ -19,6 +19,8 @@ Auslogics Driver Updater – программа представляющая с�
 magnet:?xt=urn:btih:5AA96A9D516166025B25D5D88A1A6096E1996CB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Oofhours Media Tool — утилита для создания установо�
 ```bash
 magnet:?xt=urn:btih:370D8DB0877042A0D678515A74AB6AD960163960
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ LiteManager Free - бесплатная программа для удаленн
 magnet:?xt=urn:btih:4FAE546DF1008D3AD43023FCAD52AF9FDBD168F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Icecream PDF Editor PRO - программа для поистине прост�
 ```bash
 magnet:?xt=urn:btih:A6759FB0487956D45176A94A843AC776E517BBE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Rename Expert - программа предназначена для быстр�
 magnet:?xt=urn:btih:89675352F3DE415AD7C3B2F0BDD99B5EDFB716F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ KeepStreams — это удобный и мощный инструмент дл�
 ```bash
 magnet:?xt=urn:btih:A5DE96BE2AF25A76BB2BE01DA3FB2A7CD137CC3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ PasteBar 0.6.0 [Multi/Ru]
 magnet:?xt=urn:btih:0FE896321A10ACDF6D78B01AD2C9F77BCB734DA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ KeepBeats (Repack & Portable) — это инновационное и прос�
 magnet:?xt=urn:btih:406EFB429362B1C52D6AB4621BDF96B632C05C8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:406EFB429362B1C52D6AB4621BDF96B632C05C8E
 ```bash
 magnet:?xt=urn:btih:D73F6242F4436857C6DC9C8BD4699183A348D99C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ File Viewer Plus (   Читать дальше...   )Язык интерфей�
 magnet:?xt=urn:btih:F545A431C1BBEFA4AAD7088BC0378E45F5126E51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Ashampoo UnInstaller 15 — это мощная программа для уда
 ```bash
 magnet:?xt=urn:btih:26283A4DFAC824C3F723E0407D25FDD500083688
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Anthemion Jutoh - программа для создания электронн�
 magnet:?xt=urn:btih:4A6EDDC25B2A1EE8308CAF96E269E6843503AEF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ PowerISO - программа позволяет создавать, конве�
 ```bash
 magnet:?xt=urn:btih:E33BA3CD098B16ED3AA4C6E181331697B6B18C80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 magnet:?xt=urn:btih:EF58519BD674000F52D419AAFD17E01D044E36C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Punto Switcher — автоматический переключатель ра�
 ```bash
 magnet:?xt=urn:btih:98F354C8586A2AE3963146D6F7FC49C114150CEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Vovsoft 3D Box Maker  - простенькая, небольшая и удобн
 magnet:?xt=urn:btih:296A685F140DA9BEFF1E2B55E7E5184F6E339FB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Ashampoo UnInstaller 15 — это мощная программа для уда
 ```bash
 magnet:?xt=urn:btih:A5B85540F55AA1CC6DCD828FFA80CEB2DC33AF9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:A5B85540F55AA1CC6DCD828FFA80CEB2DC33AF9A
 magnet:?xt=urn:btih:BA9C621EE47FD8F45CFCB3EB435BD7F766E5444A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:BA9C621EE47FD8F45CFCB3EB435BD7F766E5444A
 ```bash
 magnet:?xt=urn:btih:9B37113EC876569DE5DB79876433999BB73BDF32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:1189A4F6A22E9510D96BF553D464F4A1E2394FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:1189A4F6A22E9510D96BF553D464F4A1E2394FEA
 ```bash
 magnet:?xt=urn:btih:761258C8CCD10ADBEC4040A2761851A6646F073F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 magnet:?xt=urn:btih:013D4468271484336AF92E10B5F567CB8FBB4949
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ MetaProducts Offline Explorer Enterprise — мощнейшая программ
 ```bash
 magnet:?xt=urn:btih:05040C4945CD029E7F45E2E07AE6867CC256066E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ MediaInfoXP - это проект с открытым исходным кодо�
 ```bash
 magnet:?xt=urn:btih:BE112E0CEEF26AEEB194B88F16FF23D5A7220878
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Optimizer рекомендуется использовать после све�
 magnet:?xt=urn:btih:53E4CEF78A0ACFC1EE1AAF2DF678DDF9E62669AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:09829B9DD49C0B8052BC24B792FED72A53C2D0AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

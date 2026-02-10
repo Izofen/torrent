@@ -20,6 +20,8 @@ Ubuntu*Pack 20.04 Xfce / Xubuntu (май 2023) [amd64] 1xDVD
 magnet:?xt=urn:btih:88B12F04F91AB64BD712D1B67D022713BD3DA0B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Ubuntu*Pack 20.04 (май 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:4D7A5C7C629EDE6FF5253A5E10B9417203ECCF78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Ubuntu*Pack 20.04 MATE (май 2023) [amd64] 1xDVD
 magnet:?xt=urn:btih:4D4740446D3A15490C24EF93638999F8C13BF071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Slax это миниатюрный дистрибутив, базирующий�
 ```bash
 magnet:?xt=urn:btih:4CC24980799ACF7FD0BFC1306134A6CACEAA3276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Kubuntu 22.04 LTS (Jammy Jellyfish) [amd64] 1xDVD
 magnet:?xt=urn:btih:3ECED065042115825725E081C81084DA29FA7802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Maximum - (   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:B9B0935225FD773B58AB81E754FD36145C2045FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Ultra - самая (   Читать дальше...   )
 magnet:?xt=urn:btih:08B5FBE4BE78B030B5DBB1E6B8815E2D18F337CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Debian Edu, также известный как Skolelinux, является д
 ```bash
 magnet:?xt=urn:btih:F3B2D7CC84E5DFC0827920A5FFDC45ED81FF178D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ SUSE Linux Enterprise Desktop Server Workstation 15.4
 magnet:?xt=urn:btih:A1F724A0634FF18D72586A23E7009CBF4815D5ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Kali Linux 2022.2 (ex. BackTrack) [amd64, i386, arm] 8xDVD, 3xCD Аудит бе
 ```bash
 magnet:?xt=urn:btih:261D3B849CABE30A4D686F99929E8252B36DEE61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ openSUSE — это стабильный, легкий в использован
 magnet:?xt=urn:btih:A24086F96E23828D950F08DF85F66A12A076ACE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ PCLinuxOS 2014.12 KDE FullMonty [x32, x64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:BF7A493ADCDD8F0BC71693355CE6C72FD1C2EB15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ Ubuntu*Pack 20.04 GNOME LikeWin (ноябрь 2021) [amd64] DVD
 magnet:?xt=urn:btih:F6047C666B97DEEE637536D96A05628B9C9A8FEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:FB2080798C7C90C438F27DD3D23348A4A2873890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ Sabayon 14.01 [amd64] 4xDVD, 1xCD
 magnet:?xt=urn:btih:2E99422D40E247168F9476B3F328EE159034C45C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ Sabayon 14.01 [x86] 4xDVD, 1xCD
 magnet:?xt=urn:btih:479EA1463F4DA2E940492442507C8C2EB6AD7403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Ubuntu*Pack 20.04 Xfce / Xubuntu (ноябрь 2021) [amd64] DVD
 ```bash
 magnet:?xt=urn:btih:443AC5340F4580BC6C40CAD59AB8742208C7609F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ Ubuntu*Pack 20.04 Unity (ноябрь 2021) [amd64] DVD
 magnet:?xt=urn:btih:8786AD6F3E0B2822530C466F906DA366FF91A0EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ Ubuntu*Pack 20.04 KDE / Kubuntu (ноябрь 2021) [amd64] DVD
 ```bash
 magnet:?xt=urn:btih:019692B6B6C4E8477A050106E3BDA233CC4FF902
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ Ubuntu*Pack 20.04 MATE (ноябрь 2021) [amd64] DVD
 magnet:?xt=urn:btih:F2B50EA622FA42E28A3CEC03C26E289697922F81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ Ubuntu*Pack 20.04 LXqt / Lubuntu (ноябрь 2021) [amd64] DVD
 ```bash
 magnet:?xt=urn:btih:C8E51CC07AD756978B35C96076A8C908521D6E21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ Ubuntu*Pack 20.04 GNOME Flashback (ноябрь 2021) [amd64] DVD
 magnet:?xt=urn:btih:B4202285DA4E91BF38961B44E6346BB0243A0737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ Ubuntu*Pack 20.04 DDE (ноябрь 2021) [amd64] DVD
 ```bash
 magnet:?xt=urn:btih:BDDDB3520EC29B20DFC57DC4C75B105A669365E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ Ubuntu*Pack 20.04 GNOME Classic (ноябрь 2021) [amd64] DVD
 magnet:?xt=urn:btih:7D9BD727BDC9F136419099849B7113B62F6E83B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ Ubuntu*Pack 20.04 Cinnamon (ноябрь 2021) [amd64] DVD
 magnet:?xt=urn:btih:C787FDD5C2D0062267FD3B802B2AF8643CFC98C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Ubuntu*Pack 20.04 (ноябрь 2021) [amd64] DVD
 ```bash
 magnet:?xt=urn:btih:7C9760F1290940654EF355E26FC2FEAAA9B57CBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

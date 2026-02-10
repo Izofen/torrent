@@ -19,6 +19,8 @@ The Lost and Found — приключенческий платформер (Metr
 magnet:?xt=urn:btih:D4F3D1F081124ED3EDEE876F1191F234C003A262
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Pankapu (2016) [Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:4E805EED095D822178F6586DB51ACE656DD54E5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Street Fighter V (2019) [Ru/Multi] (4.070/dlc) Repack xatab [Arcade Edition]
 magnet:?xt=urn:btih:B277FA8B4FAA0E55D0159226BC2741B3997EF66C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Spiritfarer - это уютная игра о смерти. Вам предст�
 magnet:?xt=urn:btih:202AD73E1D738C7972A979AAC04A19C6E86485DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Street Fighter V (2016) [Ru/Multi] (4.070/dlc) License CODEX [Arcade Edition]
 ```bash
 magnet:?xt=urn:btih:C6A5EFD20BBD7D0760488EC3E0E9BF83A5B8DF2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Gatling Gears [En] (RePack) 2011 | DyNaMiTe
 magnet:?xt=urn:btih:2CE107001476AB8A56CC3607DFF5AD4F24F5ACA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Hamilton’s Great Adventure - качественная аркадная гол�
 ```bash
 magnet:?xt=urn:btih:8504002BC829BDBC5819A7EC165CED0DAF36B783
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Onikira: Demon Killer - это аркадный двухмерный экшен,
 magnet:?xt=urn:btih:927081DC0D19ECF431C6B1AB6F12E0A42E88D996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Lumini (2015) [Ru/Multi] License RELOADED
 ```bash
 magnet:?xt=urn:btih:3C4D750E5C8726A9F828EBD2770DDA3706B6A31F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ LOST ORBIT повествует о космических просторах. В
 magnet:?xt=urn:btih:1F9170D9BD065DF91100C1BEBA76E237716C43FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Tinertia (2015) [En/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:7811780F33A2857A2611F8D121C2ECBD28BC562F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ LOST ORBIT повествует о космических просторах. В
 magnet:?xt=urn:btih:E568CC7BE25DC5160EB82D2DE5FBCCCF92C33CF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Expendables 2: The Video Game - загружаемая игра по мотив�
 ```bash
 magnet:?xt=urn:btih:0A3D55B3BAD8C5B25B285D10F5777B121DF05C4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Fantasy Strike — это файтинг с максимально просты�
 magnet:?xt=urn:btih:36FABF40F23CC6C2C16E80531D2ADD1127CB3B8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ One Piece: Pirate Warriors 3 - это очередная часть приклю
 ```bash
 magnet:?xt=urn:btih:2BF700E1A9D08557EBD166953131245F4F83A444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Aaru's Awakening - это двухмерный аркадный платформ
 magnet:?xt=urn:btih:1BEAC2253996A3CD3B1FE56FA60F0040C817782A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Swords & Souls: Neverseen (2019) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E9AFE6052E7A9CC7B51B0E36702A5D273ED1B732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Trine 3: The Artifacts of Power (2015) [Ru/Multi] (1.0.1.3005) Repack R.G. Ме�
 magnet:?xt=urn:btih:A51F84049A63B41EA6A5D4E3E11C02DFFC4F0DB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Legend of Kay Anniversary (2015) [En/Multi] (Build cs:6416) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9F70B3D91E0683612DD766DBF29984DAB6D145A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ TerraTech (2018) [Ru/Multi] (1.3/dlc) License PLAZA [Deluxe Edition]
 magnet:?xt=urn:btih:DA769BA54579F29D0A16DC23648101A2C0A01CAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ BRAWL (2015) [En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:B1EA65DC4DAA04AACDC4B0DA0568A12CB2B7CBC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ The King’s Bird (2018) [En] (1.0) Repack Other s
 magnet:?xt=urn:btih:8CBE2D0CCE5F4D4487C4D897A816BBB181D4BD32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Furi (2016) [Ru/Multi] (1.7.224/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:ECAD5C3CFF93E91BEB2D52C5D51F376D0AE67A93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ SWIV 3D [En] (RePack) 1996 | RG Games/Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Tyler: Model 005 —боевик-платформер в стиле 1950 год�
 magnet:?xt=urn:btih:23BF429956D0FE538F4E73B7634A8E61F6337A9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Ori and The Blind Forest – мультяшный платформер от не
 ```bash
 magnet:?xt=urn:btih:50987BCB0FFAB0FD6B7091A1D0D8BD30B7E88A60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

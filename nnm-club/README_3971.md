@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6BB4A81DEDDF400C101600048ED280746A99433C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Netmonitor: Cell & WiFi  v1.20.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:27E57F3922260643F8F584FE82E7F5E7708C5E27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:27E57F3922260643F8F584FE82E7F5E7708C5E27
 magnet:?xt=urn:btih:1EAB394FB4D2C0FF812493337A45C2BB388591EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:1EAB394FB4D2C0FF812493337A45C2BB388591EB
 ```bash
 magnet:?xt=urn:btih:0C768ED4BF1BCC7F45BD638D71BA71C7F0B2F743
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:0C768ED4BF1BCC7F45BD638D71BA71C7F0B2F743
 magnet:?xt=urn:btih:4E75BE5AE8E9478A2ECE9F2FACBBCCC86F9F2D33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:4E75BE5AE8E9478A2ECE9F2FACBBCCC86F9F2D33
 ```bash
 magnet:?xt=urn:btih:0C9095D4A01517E3097B0A6DA15FD6C0855C8645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ First Feudal (2021) [Ru/Multi] (1.4.6) License GOG
 magnet:?xt=urn:btih:6EE1F00A8428FCC8DDBF45C8F08401D36FAD353A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:6EE1F00A8428FCC8DDBF45C8F08401D36FAD353A
 magnet:?xt=urn:btih:D28707B300D03C51A1D0B1F06EE0190CAE69E2D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ magnet:?xt=urn:btih:D28707B300D03C51A1D0B1F06EE0190CAE69E2D8
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:D28707B300D03C51A1D0B1F06EE0190CAE69E2D8
 magnet:?xt=urn:btih:9362BC49B9C8131B57B5195F08BBB43532E96EB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Stellar Tactics – увлекательное путешествие по ко�
 ```bash
 magnet:?xt=urn:btih:294F52AF5C406344DD41CDD07F653C0657199205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:294F52AF5C406344DD41CDD07F653C0657199205
 magnet:?xt=urn:btih:EB91FA5CD225BAA403FB4998C68704AE85798235
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:EB91FA5CD225BAA403FB4998C68704AE85798235
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ The Clamps - Megamouth (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock>
 magnet:?xt=urn:btih:A0B2429A10B3A62B04C0A7CAA2F4072858B53640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:A0B2429A10B3A62B04C0A7CAA2F4072858B53640
 ```bash
 magnet:?xt=urn:btih:74D0962B457CB0E42F9861DC8FEBC389690D0827
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Depraved Entity - Angels of Sin (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 magnet:?xt=urn:btih:4E3D0793742D97E35BE8F735DCC54E42D5C04E24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Temperance - Temperance (2014) [FLAC|Lossless|image + .cue] <Melodic Heavy, Powe
 ```bash
 magnet:?xt=urn:btih:C2A07041C6BBE59FBA4634CEBDF0C9725E148B7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Serocs - Vore (2020) EP [FLAC|Lossless|image + .cue] <Brutal Technical Death Met
 magnet:?xt=urn:btih:9E4D90933D013602E798A7051B3A64B5429C9C99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ Serocs - The Phobos / Deimos Suite (2018) [FLAC|Lossless|image + .cue] <Brutal T
 magnet:?xt=urn:btih:B05B146D9D07DBE5E9BE407E4A9F87A117320FDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ MarsEdit 5.1.2 [En]
 ```bash
 magnet:?xt=urn:btih:650EBEFA42C6D06EAD9FCB36CE0CEA99DD918DD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ Noir — это расширение для Safari, которое автома�
 ```bash
 magnet:?xt=urn:btih:3F1242117968EAF65D57CDD3FD18687A459E29DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ Henry "Red" Allen - 1933 - 1935 (1990) Classics [FLAC|Lossless|tracks + .cue] <D
 magnet:?xt=urn:btih:D9201F5313DE40F4CA76E305F5C5F89D4664D4BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ Alluvial - Death Is But A Door (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progr
 magnet:?xt=urn:btih:68782000C7C6A69452E5A3EA3748F4ADDB2B7FBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ SiteSucker умеет загружать (   Читать дальше...   )Т
 magnet:?xt=urn:btih:7F5C0105FAF572412E97A12F17CA568F05721AD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ Boxy SVG 4.21.1 [En]
 ```bash
 magnet:?xt=urn:btih:D6B2A97F293F1AF69E0A4434DC5412CAC26449FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +696,8 @@ Serocs - The Next (2013) [FLAC|Lossless|image + .cue] <Brutal Technical Death Me
 ```bash
 magnet:?xt=urn:btih:AA52F5B3329F5D1C42A6755080A0D885910D0377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

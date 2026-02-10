@@ -22,6 +22,8 @@ VA - Moments to Chill: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:0C3F13D796D9264EB55D9A4DB5EB26A1C059E9AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Sufjan Stevens - Meditations (2021) Asthmatic Kitty [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:648D63ED79515A2FF6A3C9E8F01A537A5706850E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Steve Roach - Skeleton Era Volume 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambien
 magnet:?xt=urn:btih:705829497CC0C4235922A12812C0FB51C89EA698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ VA - Nagual 4 (2017) ...txt [FLAC|Lossless|WEB-DL-USB Drive|tracks] <Ambient, Dr
 ```bash
 magnet:?xt=urn:btih:04D730E19112528F7AD11335601E2D4209DC384C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Maps and Diagrams (Maps & Diagrams) - Discography 50 Releases (2002-2021) Handst
 magnet:?xt=urn:btih:AFE850A2202A39CC4BBB8D91DBD9F86B0CD99770
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Room of Wires - Discography 8 Releases (2014-2021) Section 27, Ant-Zen [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:355DC28C1B15AE8822EE312060B80C290E352986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Korolova - Live @ Tanzania (2021-04-09) [MP3|320 Kbps] <Deep House, Progressive 
 magnet:?xt=urn:btih:B9D3C1226AB66BF4E181BAF35971878462F201FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Korolova - Live @ Zanzibar, Tanzania (2021-03-26) [MP3|320 Kbps] <Deep House, Pr
 ```bash
 magnet:?xt=urn:btih:35795DA14C2C7E9748313D7E82781F2FEA3E32FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ Maps and Diagrams - _Modulus (2021) Handstitched* [FLAC 2.0|44.1/48/24|tracks|WE
 magnet:?xt=urn:btih:1B2FC60FFF0E5EC37DF7FF9BC025CEEABE829397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Modeselektor - Discography 41 Releases (2002-2021) [FLAC|Lossless|tracks+.cue, t
 ```bash
 magnet:?xt=urn:btih:69DC24F46B688A2C4DC45F3F0CA82D128E2D39B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ VA - Spacechillers Vol. 4 (Compiled by Maiia) (2021) Mystic Sound Records [FLAC|
 magnet:?xt=urn:btih:3A8CC1D6D21D3264FC25D4BFFDD36C7BC27AC491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ Nora En Pure - Live @ Graubünden, Switzerland (2021-04-03) [MP3|320 Kbps] <Deep
 ```bash
 magnet:?xt=urn:btih:244B86C44661D0EC75EE470867543A91CF33AC42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ Ferrein - Openclose (2012) Farver [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Dow
 magnet:?xt=urn:btih:77226741911A0A82C32C69704E4EC302C2527E17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ Junior Boys - Collection 5 Releases (2004-2016) [FLAC|Lossless|tracks + .cue] <E
 magnet:?xt=urn:btih:7D94635C76D217AD37BE0626E813CE6B6F1812E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +423,8 @@ How To Disappear Completely (HTDC, FOG & HTDC) - Discography 33 Releases (2012-2
 ```bash
 magnet:?xt=urn:btih:2EC91A72D92890AF1A5366358905AC1816A7EB13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +453,8 @@ Keef Baker | Nimon | Slipdrive - Discography 20 Releases (2004-2021) Ant-Zen, Hy
 magnet:?xt=urn:btih:4E70E47BC5A3A27F36BFA399BFDC21B06E39F314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +478,8 @@ Melodium - Discography 36 Releases (2001-2021) Audio Dregs [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:E9F49293D09B79E2707334B70BD11B1BAD48E3BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +508,8 @@ Jean-Michel Jarre - Amazonia (2021) Columbia [FLAC|Lossless|tracks+.cue] <Ambien
 magnet:?xt=urn:btih:F74CADFB0053AA0582B645E015AE4872EAB58606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +536,8 @@ Armin van Buuren - One World Radio Armin's Weekend Kick-Off 100 (Extended Specia
 ```bash
 magnet:?xt=urn:btih:62E15754FABB0DF33D7E0116AB6A0B1C644D114D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +566,8 @@ VA - Forest Prog (2020) [FLAC|Lossless|WEB-DL|tracks] <Psy-Trance, Forest>
 magnet:?xt=urn:btih:CFB586F20CA6990F643E7BBED4D75D7F31AF5EB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +594,8 @@ not even noticed - Muted Noises (2021) Gated Recordings [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:9185AFF91222FDA3686E87C12BDDF9AFF73168D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +624,8 @@ New Arcades - Returning Home (The Instrumentals) (2020) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:E31181C064C353840A4FFDF906CC9E7B39D405CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +652,8 @@ W O L F C L U B (Wolfclub) - 6 Albums (2017-2021) [MP3|320 Kbps] <Electronic, Sy
 ```bash
 magnet:?xt=urn:btih:996F3580801507344EF6425444A8265B04C80560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +682,8 @@ VA - Pure Synthpop, Vol. 1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retr
 magnet:?xt=urn:btih:5492A4DB3A08508BFAA9498AB3BAC119700884DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +711,8 @@ W O L F C L U B (Wolfclub) - Just Drive - Part 1 (2021) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:6B825EEBD8445F877FE7103D07AAF5AABE8B22A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -689,6 +739,8 @@ Faithless - All Blessed (2020) [FLAC|Lossless|image + .cue] <Dance, House, Tranc
 ```bash
 magnet:?xt=urn:btih:9062F5A36AE2CA960ED3BAA132C58728005F6388
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

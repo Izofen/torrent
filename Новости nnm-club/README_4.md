@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:862B417898C37766BD99F044B74BD3FA342A3D90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dr.Web CureIt! определяет и удаляет почтовые и сет
 magnet:?xt=urn:btih:435FC05203184EAE124B991A1FCB104BEE4B59DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:435FC05203184EAE124B991A1FCB104BEE4B59DD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:435FC05203184EAE124B991A1FCB104BEE4B59DD
 magnet:?xt=urn:btih:9B27B5D0E782AAF3DBEBC0A79AE9117C4D0B62BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:9B27B5D0E782AAF3DBEBC0A79AE9117C4D0B62BD
 magnet:?xt=urn:btih:0868C1F1D3046A6EA2EAE7641FB073647EC826B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:0868C1F1D3046A6EA2EAE7641FB073647EC826B3
 ```bash
 magnet:?xt=urn:btih:4E15060561EE806CC67FFA435D1CCA26FA3DA240
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:4E15060561EE806CC67FFA435D1CCA26FA3DA240
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.5.1/dlc) Repack FitGir
 ```bash
 magnet:?xt=urn:btih:3563EAA14F2D444D69DF172B277D12C34834360F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:3563EAA14F2D444D69DF172B277D12C34834360F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:3563EAA14F2D444D69DF172B277D12C34834360F
 magnet:?xt=urn:btih:BE5588A62971D3ED2D99ECEF0BA5060CC5EC0A68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:BE5588A62971D3ED2D99ECEF0BA5060CC5EC0A68
 ```bash
 magnet:?xt=urn:btih:204C9811E607041C3BEA6A6E5D30C7724E71A45E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:204C9811E607041C3BEA6A6E5D30C7724E71A45E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ MInstAll v.03.07.2025 By Andreyonohov (ISO) [Ru]
 magnet:?xt=urn:btih:34BC2D137561A078E9D303F6000AFF9FA8094FB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:34BC2D137561A078E9D303F6000AFF9FA8094FB7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:34BC2D137561A078E9D303F6000AFF9FA8094FB7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:34BC2D137561A078E9D303F6000AFF9FA8094FB7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Medieval Dynasty (2020) [Ru/Multi] (2.4.0.4/dlc) License GOG [Digital Supporter 
 magnet:?xt=urn:btih:F9744DF235034D7223FC8DA8006239B75949E14F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:F9744DF235034D7223FC8DA8006239B75949E14F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:F9744DF235034D7223FC8DA8006239B75949E14F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:F9744DF235034D7223FC8DA8006239B75949E14F
 magnet:?xt=urn:btih:719F3D25E5064457EA4D58315B4375E09DCAFD61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:719F3D25E5064457EA4D58315B4375E09DCAFD61
 ```bash
 magnet:?xt=urn:btih:732F0756F5D6304ADFA8532A8C1F6DDD3A753AC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:732F0756F5D6304ADFA8532A8C1F6DDD3A753AC6
 magnet:?xt=urn:btih:B390D432BB26A97E24C2FAE8B2B5297F4691012B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:B390D432BB26A97E24C2FAE8B2B5297F4691012B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:B390D432BB26A97E24C2FAE8B2B5297F4691012B
 magnet:?xt=urn:btih:BDF5016DCC3A7A49B9756C2854ABA78E2954D5A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:BDF5016DCC3A7A49B9756C2854ABA78E2954D5A8
 ```bash
 magnet:?xt=urn:btih:FFBABAAA558183719B1A2F1069B7C5EB6EA77F33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

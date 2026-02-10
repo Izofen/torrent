@@ -22,6 +22,8 @@ Python 3.6 превосходит любую другу версию во мно
 magnet:?xt=urn:btih:E5CE43C689AAB04C74F584A475F8E6EF2C0E4C43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Lynda.com | JavaScript (2011-2014) [PCRec] [EN]
 magnet:?xt=urn:btih:FA395AFCE37D1D7CCB3056B0160409D395B5E0C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Lynda.com | CSS (2009-2013) [PCRec] [EN]
 ```bash
 magnet:?xt=urn:btih:AB78659193B728857725CED1F437EC3185EA2EB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Python Intermediate - 03:36:36(   Читать дальше...   )Жанр: Ра
 magnet:?xt=urn:btih:24645654BD6D53F568799856090736B4DCC49D06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:24645654BD6D53F568799856090736B4DCC49D06
 ```bash
 magnet:?xt=urn:btih:50EF97595736BDB5F8D8BD880ABDAFC0D3A4DB3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ ITVDN | Unity3D Написание игрового сервера и созда
 magnet:?xt=urn:btih:C54F7BE039488A61247224DB1CC33692E9D41851
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Lynda.com | HTML (2010-2014) [PCRec] [EN]
 magnet:?xt=urn:btih:2D9E7AB0D7C41D6D07DCDD03FF7896737A4B541D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Lynda.com | Foundation (2014) [PCRec] [EN]
 ```bash
 magnet:?xt=urn:btih:C3A19A75546A32FE3676BEFD830FD95C338D2520
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ Tony Hillerson | Developing Android Applications with Java. Part 1. [2010] PCRec
 magnet:?xt=urn:btih:9F8F1AC8D1B59CDF4603890D29AD3918617A6F24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:9F8F1AC8D1B59CDF4603890D29AD3918617A6F24
 magnet:?xt=urn:btih:2E9A3D8EBE91AF11FACF51D02714765BBFA76072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ ITVDN | Разработка пользовательского граф. инт
 ```bash
 magnet:?xt=urn:btih:71767C98D2777ACB80056B237C39784C1932BDE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ ITVDN | Unity3D Создание Clicker (2016) PCRec
 magnet:?xt=urn:btih:00D829CE4AF811AD3BD30C6F47295973E3828F19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ CyberMarketing | Онлайн-конференция по SEO и веб-анал
 magnet:?xt=urn:btih:49ED823FAE48394802809C3355D67C0A71CB02EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:49ED823FAE48394802809C3355D67C0A71CB02EB
 ```bash
 magnet:?xt=urn:btih:0FA9E6990FD7ED968ADEAF08B2BE850F68DD2D45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ HighLoad | Профессиональная конференция разраб�
 magnet:?xt=urn:btih:51FFD7FC75CD79715C1F37CDBDFCF997DB21C7A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ HTML и CSS — основные языки разметки и стилей, с
 ```bash
 magnet:?xt=urn:btih:DDF58F72F6E7C78C8129E96AE54C8F53948A0795
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ GeekBrains | nginx Создание веб-серверов (2015) PCRec [H.264/
 magnet:?xt=urn:btih:D4265F55806743A29D3FF2B9A287E1B4C0E77C11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ SEO-ПРАКТИКУМ 17-20 марта. 1-ЫЙ ЕЖЕГОДНЫЙ ВСЕРОС�
 ```bash
 magnet:?xt=urn:btih:BC7B4A4F29BAB0F370AED9DD806784AA94332739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ Entity Framework позволяет разработчикам получать 
 magnet:?xt=urn:btih:71FA51FF33AB33B213694DD53371BF8FBF7DF420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ AngularJS один из самых популярных JavaScript Фреймв�
 ```bash
 magnet:?xt=urn:btih:2498E11F7C65DDE011B07C9EC52A30AA5BF1B451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ Hyper-V — технология доступная в Windows Server 2008 R2, �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ Hyper-V — технология доступная в Windows Server 2008 R2, �
 ```bash
 magnet:?xt=urn:btih:032B07D81A5B744E21770AD5B7BCF23AA6EBCC8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:032B07D81A5B744E21770AD5B7BCF23AA6EBCC8A
 magnet:?xt=urn:btih:4767296CEDB240F9991853BD7F1A169F1EEACD18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ Geekbrains | SEO. Оптимизация и продвижение сайтов 
 magnet:?xt=urn:btih:59F61030CC53B15819604DA3A8D596F5E0D10544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ foreven.ru | Конференция: Взгляд через объектив 2.
 ```bash
 magnet:?xt=urn:btih:8F30E8913A936B6E28E7958ADB1D40CBA6D161FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +700,8 @@ Microsoft System Center Service Manager — программный компле�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

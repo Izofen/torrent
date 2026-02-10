@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:27C2843129E0B7390DE051CB764B8FAF88DA3751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:27C2843129E0B7390DE051CB764B8FAF88DA3751
 ```bash
 magnet:?xt=urn:btih:EBD89125651F23A2FC216FD9D201D8A5927713D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Beholder: Conductor передает управление старшим про�
 magnet:?xt=urn:btih:7A500A58E203DA87CDE0233CD744A9FD52836938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:7A500A58E203DA87CDE0233CD744A9FD52836938
 ```bash
 magnet:?xt=urn:btih:08F18AAF7D306F90938E72038106E64E834F9F73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Minecraft в кино / A Minecraft Movie (2025) WEBRip [H.265/1080p] [10-bit]
 magnet:?xt=urn:btih:A2CB24F113FD9969D86608147B3DE6AFCD782113
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:A2CB24F113FD9969D86608147B3DE6AFCD782113
 ```bash
 magnet:?xt=urn:btih:5A1444AD37A45861FE4A3AAA257AD6491219F9C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:5A1444AD37A45861FE4A3AAA257AD6491219F9C6
 magnet:?xt=urn:btih:7218E8715369461D898BC205F1E7ADB2A7E6C344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:7218E8715369461D898BC205F1E7ADB2A7E6C344
 ```bash
 magnet:?xt=urn:btih:A9397F13EC795CC70A6910A31D516324168C3CDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:A9397F13EC795CC70A6910A31D516324168C3CDD
 magnet:?xt=urn:btih:40CE7C38920D478A2F878110B9B547F317EC3543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:40CE7C38920D478A2F878110B9B547F317EC3543
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:40CE7C38920D478A2F878110B9B547F317EC3543
 magnet:?xt=urn:btih:C4C0EB6B850C3205795B19BFB55AFE5E2FFD5EBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:C4C0EB6B850C3205795B19BFB55AFE5E2FFD5EBC
 ```bash
 magnet:?xt=urn:btih:E0E0880E0F461EE2513454FA37F269DEE48610F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:E0E0880E0F461EE2513454FA37F269DEE48610F3
 magnet:?xt=urn:btih:EEF9077B58DECD897523A5AEBACE1C5FB6C2794A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:EEF9077B58DECD897523A5AEBACE1C5FB6C2794A
 magnet:?xt=urn:btih:552D3F3A2CF9AC92F06AC0372500E0B89B7DDC18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ magnet:?xt=urn:btih:552D3F3A2CF9AC92F06AC0372500E0B89B7DDC18
 ```bash
 magnet:?xt=urn:btih:357471C287D3BD76111AD36E0D6370CEA66F2C88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:357471C287D3BD76111AD36E0D6370CEA66F2C88
 magnet:?xt=urn:btih:A5BAED51F93B3EEB963117EFE7067DFACF5188E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:A5BAED51F93B3EEB963117EFE7067DFACF5188E7
 ```bash
 magnet:?xt=urn:btih:059D48BDE7675958F0B9D1E375AACD13B5855B08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:059D48BDE7675958F0B9D1E375AACD13B5855B08
 magnet:?xt=urn:btih:2E64DB5F07EAF9A682061A0A1743C4683739243C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:2E64DB5F07EAF9A682061A0A1743C4683739243C
 magnet:?xt=urn:btih:CCB4CFA0D1BEDE492A5B7B4BFDD68AD05E643022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ magnet:?xt=urn:btih:CCB4CFA0D1BEDE492A5B7B4BFDD68AD05E643022
 ```bash
 magnet:?xt=urn:btih:099BBBA48FE918BB091A9068AF9CDB0D295790D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ VA - 50s Best Hits (2025) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:31979AEA2D822D14450325649FB25CB27588185A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:31979AEA2D822D14450325649FB25CB27588185A
 ```bash
 magnet:?xt=urn:btih:E23579618F39E94FE048A35BE7E1449D96419D83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:E23579618F39E94FE048A35BE7E1449D96419D83
 magnet:?xt=urn:btih:F17C8B2181E22F2691FC936B6C0CF451A2415321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ King’s Man: Начало / The King's Man (2021) BDRip [AV1/2160p] [4K, HDR, 1
 magnet:?xt=urn:btih:82F072EA37D71B018184D45A88B826FC38744054
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:82F072EA37D71B018184D45A88B826FC38744054
 ```bash
 magnet:?xt=urn:btih:D0C3218DDD116E4F3F8A5BF8DA7FD3CF0619E1A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +674,8 @@ John Beltran - Serendipia, Serendipia Remixed (2023, 2024) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:C66C103D846929450CECBF53B50E8C2ADA0B875A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

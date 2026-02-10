@@ -1,27 +1,3 @@
-###  Публикация: 1380813   (831229) от 04.05.2020
-
-Серебряное седло / Sella d'argento (1978) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831229.jpg" />
-</div>
-
-
-###  Подробнее
-
-На глазах мальчика убивают его отца. Годы спустя он становится «охотником за головами», внушающим ужас бандитам. Но однажды он узнает тайну своего прошлого…Производство: Италия / Rizzoli Film S.p.a.Жанр: Боевик, ВестернРежиссер: Лучио ФульчиАктеры: Джулиано Джемма, Свен Вальсекки, Этторе Манни, Джанни Де Луиджи, Чинция Монреале, Личиния Лентини, Альдо Самбрель, Филипп Эрсен, Дональд О’Брайэн, Серджо ЛеонардиПеревод: Многоголосый профессиональный, авторскийСубтитры: ОтсутствуютПродолжительность: 01:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7700763264696996DF4E8CD6A1E681FC8643650
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114512   (831683) от 15.03.2017
 
 Под несчастливой звездой / Starcrossed (1985) DVDRip [H.264]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:F7700763264696996DF4E8CD6A1E681FC8643650
 ```bash
 magnet:?xt=urn:btih:DDA99AC4A2ABA61A5AFDEC401A359E3CB2F4CA1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:DDA99AC4A2ABA61A5AFDEC401A359E3CB2F4CA1A
 magnet:?xt=urn:btih:B0A754E145B3D7D089701E36A449179DD3A1BC6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:B0A754E145B3D7D089701E36A449179DD3A1BC6B
 ```bash
 magnet:?xt=urn:btih:01E0F697030ADB2E3474F80933FFC2B079A210D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:01E0F697030ADB2E3474F80933FFC2B079A210D2
 magnet:?xt=urn:btih:E571945AE696B212D4013E1610FE136A0B9F9763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:E571945AE696B212D4013E1610FE136A0B9F9763
 ```bash
 magnet:?xt=urn:btih:B2DB6C7776438B0195943E36FE54B7C1DA8580E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +151,8 @@ magnet:?xt=urn:btih:B2DB6C7776438B0195943E36FE54B7C1DA8580E5
 magnet:?xt=urn:btih:0546DB68C01292F1B1051C17C352F84004CB9FFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:0546DB68C01292F1B1051C17C352F84004CB9FFA
 ```bash
 magnet:?xt=urn:btih:08648FB9F5AAB7D0D512359C74F748D7F4C17293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +203,8 @@ magnet:?xt=urn:btih:08648FB9F5AAB7D0D512359C74F748D7F4C17293
 magnet:?xt=urn:btih:42BC8272202BEF4F05D6260BA25C48B1DB6A34F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:42BC8272202BEF4F05D6260BA25C48B1DB6A34F2
 ```bash
 magnet:?xt=urn:btih:616ED8D281CE3FF512A72DCA30CF43EE5605F695
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:616ED8D281CE3FF512A72DCA30CF43EE5605F695
 magnet:?xt=urn:btih:377B898B44E0502E98F5E6A0C150269D7C2FB900
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:377B898B44E0502E98F5E6A0C150269D7C2FB900
 ```bash
 magnet:?xt=urn:btih:F3992A6CDF814D9A44AAED83A2251D24C022FBA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:F3992A6CDF814D9A44AAED83A2251D24C022FBA7
 magnet:?xt=urn:btih:208C33254376EDCB3C58F586DDA2468D073A0902
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:208C33254376EDCB3C58F586DDA2468D073A0902
 ```bash
 magnet:?xt=urn:btih:843239E0D2C4D3C200F9E2436F1582A29F1A7B72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +360,8 @@ magnet:?xt=urn:btih:843239E0D2C4D3C200F9E2436F1582A29F1A7B72
 magnet:?xt=urn:btih:7D6690A3849AB99A077AC87962A59602FECF6463
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +385,8 @@ magnet:?xt=urn:btih:7D6690A3849AB99A077AC87962A59602FECF6463
 ```bash
 magnet:?xt=urn:btih:7629DC377841E9FD3C00279B8FA49223EC19C6A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +412,8 @@ magnet:?xt=urn:btih:7629DC377841E9FD3C00279B8FA49223EC19C6A6
 magnet:?xt=urn:btih:6458D2C5066D9B0C8D9CC75DEDB89D214DC6D35C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +437,8 @@ magnet:?xt=urn:btih:6458D2C5066D9B0C8D9CC75DEDB89D214DC6D35C
 ```bash
 magnet:?xt=urn:btih:A2DBE9D1E36F1FE996EBCD13B6FF7750E8972585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +464,8 @@ magnet:?xt=urn:btih:A2DBE9D1E36F1FE996EBCD13B6FF7750E8972585
 magnet:?xt=urn:btih:76E41D81DE4E036E9CAC5A82692D02E839F07A7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +489,8 @@ magnet:?xt=urn:btih:76E41D81DE4E036E9CAC5A82692D02E839F07A7D
 ```bash
 magnet:?xt=urn:btih:B5B25F50D6A548C29B647DEB543A39113629FBFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +517,8 @@ magnet:?xt=urn:btih:B5B25F50D6A548C29B647DEB543A39113629FBFF
 magnet:?xt=urn:btih:7A9A064627EFA1104E507C1EADE804A9E319DDBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +542,8 @@ magnet:?xt=urn:btih:7A9A064627EFA1104E507C1EADE804A9E319DDBE
 ```bash
 magnet:?xt=urn:btih:AE732AE5B7C42DB552A6FBB6098081D9B3DD672C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +571,8 @@ magnet:?xt=urn:btih:AE732AE5B7C42DB552A6FBB6098081D9B3DD672C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +599,8 @@ magnet:?xt=urn:btih:AE732AE5B7C42DB552A6FBB6098081D9B3DD672C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +625,8 @@ magnet:?xt=urn:btih:AE732AE5B7C42DB552A6FBB6098081D9B3DD672C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +650,35 @@ magnet:?xt=urn:btih:AE732AE5B7C42DB552A6FBB6098081D9B3DD672C
 ```bash
 magnet:?xt=urn:btih:A47B6FBE8199AF7BCC9942684B3DD80ED9C61E95
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113243   (837590) от 11.03.2017
+
+Венера в мехах / Le malizie di Venere / Devil in the Flesh (1969) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_837590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ее тело было создано для любви. Его мозг — для поисков извращенной страсти. Ей нравилось заниматься любовью. А ему — еще и подглядывать. Видение обнаженнойкрасавицы в роскошных мехах и внезапно вспыхнувшее воспоминание детства рождают бурю эмоций в душе молодого писателя Северина.
+Странная, неодолимая страсть влечет его к Ванде. «Ты станешь моим рабом, а я постараюсь (   Читать дальше...   )Производство: ФРГ, Швейцария, Италия, VIP Production, Roxy FilmsЖанр: ДрамаРежиссер: Массимо ДалламаноАктеры: Лаура Антонелли, Режис Валли, Лорен Юинг, Рената Каше, Вернер Похат, Мади Раль, Вольф Аква, Петер Хег, Йозиль Ракель, Майкл КроллПеревод: Авторский одноголосыйСубтитры: OтсутствуютПродолжительность: 01:22:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE5BB779142535D921664D5D1FD8C9A3BFF800CB
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

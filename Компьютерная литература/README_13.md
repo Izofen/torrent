@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:998B28BF2D44C52C9C9E8E13F44E3BDA8E9E07A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Cеть Lightning (Lightning Network, LN) – это быстро развива
 ```bash
 magnet:?xt=urn:btih:BD65EB445F3B909F9BFC04AA81C1374D365C331D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:BD65EB445F3B909F9BFC04AA81C1374D365C331D
 magnet:?xt=urn:btih:F41E2FFB6CC9B22B1527884766E772AC404B22D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:F41E2FFB6CC9B22B1527884766E772AC404B22D9
 magnet:?xt=urn:btih:6273F9FEBCFE3C6CB441E7623CFE4F200B7308F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ FPGA (Field-Programmable Gate Array, программируемые пользо
 ```bash
 magnet:?xt=urn:btih:358884DAC434A7D77144D5399A2B11D75DEAC87B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Josh Steele, Renan Dias | Real-World iOS by Tutorials (2022) [PDF][EN]
 magnet:?xt=urn:btih:4675FF1086FE4B7BA20F02D2CA9F70D66E85104C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ James Gough, Daniel Bryant, Matthew Auburn | Mastering API Architecture (2022) [
 magnet:?xt=urn:btih:250DE521C3BD339634A60F800A8B4ADEAACF8C63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:250DE521C3BD339634A60F800A8B4ADEAACF8C63
 ```bash
 magnet:?xt=urn:btih:570BE8EDF31C0BCF3093EA08D64193BB0E6885AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:570BE8EDF31C0BCF3093EA08D64193BB0E6885AE
 magnet:?xt=urn:btih:A8984BD1EC9495325B538E5039C751C203B1635E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:A8984BD1EC9495325B538E5039C751C203B1635E
 ```bash
 magnet:?xt=urn:btih:5F2926739ED882585286C2DAF5810602F9EC7407
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Ivor Horton, Peter Van Weert | Beginning C++23, 7th ed. Edition (2023) [PDF][EN]
 magnet:?xt=urn:btih:000F0F10BF6EFCB6DE6B08723F1D347085B99E7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:000F0F10BF6EFCB6DE6B08723F1D347085B99E7E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ TinyML – технология, призванная расширить исп�
 magnet:?xt=urn:btih:1A6490AA0D1B85C8E6A01026BA32ED2024458C6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Vinci J Rufus | Building Micro Frontends with React 18 (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:07046E6D64A11C0BF1A28A875653F7F036F8172E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Oswald Campesato | Python for Absolute Beginners (2023) [PDF][EN]
 magnet:?xt=urn:btih:65E4158257DD6AD3D4349847606C53885D7F9330
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:65E4158257DD6AD3D4349847606C53885D7F9330
 ```bash
 magnet:?xt=urn:btih:99F574BF539395F69CEB7941689E588CC861E85A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Matthias Develtere | Дизайн и моделирование робота / D
 magnet:?xt=urn:btih:43A7AC08A8AFEADA03BB1B73AAA91E98686A4D0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:43A7AC08A8AFEADA03BB1B73AAA91E98686A4D0D
 ```bash
 magnet:?xt=urn:btih:C06199F37A12884D7CD95B571D5AE52897FCC5CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:C06199F37A12884D7CD95B571D5AE52897FCC5CA
 magnet:?xt=urn:btih:751B36DAA0E31B23E093ABA0CF1561E9C86A001F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Maximiliano Contieri | Clean Code Cookbook (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:A8DD1B131F0E56C939FF51B984F21097962AE599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ James Reinders, Ben Ashbaugh | Data Parallel C++, 2nd Edition (2023) [PDF, EPUB]
 magnet:?xt=urn:btih:5800FE1F66D6348AD99868F0E0873B4B301CD02D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:5800FE1F66D6348AD99868F0E0873B4B301CD02D
 ```bash
 magnet:?xt=urn:btih:77E83FB73D99064803238FBCB999762354A72022
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:77E83FB73D99064803238FBCB999762354A72022
 magnet:?xt=urn:btih:286715300EA2C7EE2A67BA7C12427DBD679715BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ Brij Kishore Pandey, Emily Ro Schoof | Building ETL Pipelines with Python (2023)
 ```bash
 magnet:?xt=urn:btih:DF2B5B69AEFC653CBEE311F6BAB9692B2CEAE357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ Mickael Maison, Kate Stanley | Kafka Connect (2023) [PDF][EN]
 magnet:?xt=urn:btih:724F450A881E9CAFD984BDC49EFE81926C01BEF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Bruce M. Van Horn II, Quan Nguyen | Hands-On Application Development with PyChar
 ```bash
 magnet:?xt=urn:btih:7A50D2C575D4A5FD029C26FE6B9E307A9FEF82DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

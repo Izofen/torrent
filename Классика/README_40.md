@@ -22,6 +22,8 @@ Cello Concerto in E minor, Op 58
 magnet:?xt=urn:btih:D7C1C0EC83DABC53DBEABF0BFC683ABEE11345E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ The keyboard transcription is an anonymous arrangement authorised by Haydn.
 ```bash
 magnet:?xt=urn:btih:C795E6CD7C5579B91C65B47666759C488095C44B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Suite No. 1 in A major - in A-Dur - en la majeur(   Читать дальше...
 magnet:?xt=urn:btih:4841958D7110F4D8AB6F9D83A95F3BC9ED30DB26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Sophie Hutchings - Scattered On The Wind (2020) [FLAC 2.0|96/24|tracks|WEB-DL] <
 magnet:?xt=urn:btih:80AD740C6FA89FB2D4C59D8C1C253232FEBD170C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ VA - Masters of Classical Music (2008) 10CD [FLAC|Lossless]<Classic>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Piano Sonata No 1 in C minor Op 4 [24'46]
 magnet:?xt=urn:btih:4D7E42C22F8AF0C4D69956919E854D6ECA9172AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Viktor Merzhanov - Russian Piano School (1995) [FLAC|Lossless|tracks] <Classical
 ```bash
 magnet:?xt=urn:btih:6C31B8515D2F2BA21E6AC229211226E6F976FFDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ Schnittke
 magnet:?xt=urn:btih:8410EE70FD938C7E63E2542749A3980770DF7AFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ Elina Garanca - Elina (2013) [FLAC|Lossless|image + .cue] <Classical, Opera>
 ```bash
 magnet:?xt=urn:btih:66244D046611927183743C95808B4D4AD3BB8797
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ Elina Garanca - Meditation (2014) [FLAC|Lossless|image + .cue] <Classical, Opera
 magnet:?xt=urn:btih:65968525AFAFE447E341A7BBE839179E4BDD3E59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ Elina Garanca - Mozart - Opera & Concert Arias (2005) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:EB65A6EAA79C2A4AF0A5CDF3B47F1F3CBB93ADE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ Elina Garanca - Aria Cantilena (2007) [FLAC|Lossless|image + .cue] <Classical, O
 magnet:?xt=urn:btih:745596E62A72E57EBF1E935D801C2CF55B9F314D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ Wolfgang Amadeus Mozart:
 ```bash
 magnet:?xt=urn:btih:165CE16FFF09D8933B6E522B048DD0656B73E689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ Elina Garanca - Romantique (2012) [FLAC|Lossless|image + .cue] <Classical, Opera
 magnet:?xt=urn:btih:2A7CF47D7BAE46FE71733C85656EBE5E9D3F88C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ Chatham Baroque - Sol y Sombra: Baroque Music Of Latin America (1999) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:CDDB5015A2F400A127C891FFD98855B86F0B6A41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ Storgards, Helsinki Philharmonic Orchestra - Korngold: Much Ado About Nothing & 
 magnet:?xt=urn:btih:6274853E4565BFAE740D6CF4B95AC0442FD879D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ List - Piano Concerto No.1in E flat Major (Geneva, 8.7. 1939)
 ```bash
 magnet:?xt=urn:btih:21135724653FD3D7FA743E4DA3699247D7EC9573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ magnet:?xt=urn:btih:21135724653FD3D7FA743E4DA3699247D7EC9573
 magnet:?xt=urn:btih:D5D87792FEE8F9661116014DC413581FC8DE2393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +537,8 @@ Bolshoi Theatre Orchestra - 20th Century Russian Classical Hits (2016) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:5C3B028DEFE8A21129C58033E755BBFC2CC74077
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +567,8 @@ Robert Woolley - Purcell - Complete Harpsichord Music (1991) 2CD [FLAC|Lossless|
 magnet:?xt=urn:btih:FCCB386D0FA35770A9DD67AEA19C42D37E774A0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +595,8 @@ Ludovico Einaudi - Waves: The Piano Collection (Jeroen & Sandra van Veen) (2013)
 ```bash
 magnet:?xt=urn:btih:1AD7DB97E8EF59840C8219420C57C04101CB9CD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +625,8 @@ Nils-Erik Sparf, The Drottningholm Baroque Ensemble - Antonio Vivaldi: The Four 
 magnet:?xt=urn:btih:B5A9DFB7841986AD4D61E6874E63A13AE37B78CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +653,8 @@ Anne Sofie von Otter - Music for a While, Baroque Melodies (2004) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:6B379BBD974C1A58B9D09FB1E6DC6F35F2B790BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +683,8 @@ Alan Cuckston - HANDEL: Harpsichord Suites Nos. 1- 5 (1994) [FLAC|Lossless|image
 magnet:?xt=urn:btih:D25D7385B67027FF400524193D625CFD2B509CA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +712,8 @@ Michele Benuzzi - Christoph Nichelmann: Harpsichord Sonatas (2015) 2CD [FLAC|Los
 magnet:?xt=urn:btih:6062D3C786A4C9118BD320FA7A80AEA1FDA4338C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +740,8 @@ Ewald Demeyere - Arne: Eight Sonatas or Lessons for the Harpsichord (2002) [FLAC
 ```bash
 magnet:?xt=urn:btih:31DB237F6D19A56DC9384522FCAB7C82067B1A2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

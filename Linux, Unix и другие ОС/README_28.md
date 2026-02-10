@@ -20,6 +20,8 @@ Parted Magic - дистрибутив на основе Linux, предназн�
 magnet:?xt=urn:btih:FC162367331F7A31BE39F773AF8EF36709151205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Manjaro Linux 0.8.9 Ascella (Arch + зоопарк рабочих столов) 
 ```bash
 magnet:?xt=urn:btih:516B4096A56C902AF39E849603363993B1082DB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Manjaro Linux 0.8.9 Ascella  (Arch + зоопарк рабочих столов)
 magnet:?xt=urn:btih:5D7E5B900A864BF5D98DD72E87CC1F3B34051278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Manjaro Linux 0.8.11(12) (Arch + зоопарк рабочих столов) [i6
 ```bash
 magnet:?xt=urn:btih:84CD119116BA8D17AF579BBC6BC91D6EA1E04327
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Manjaro Linux 0.8.11(12) (Arch + зоопарк рабочих столов) [x8
 magnet:?xt=urn:btih:C70C7B4D81265E3983BB6E81F58D932B13E142DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Ubuntu — это разрабатываемая Canonical, основанная
 ```bash
 magnet:?xt=urn:btih:1D3FDA784387A5532AB00E29397FFF8043F24F78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ Lubuntu — это свободная операционная система н
 magnet:?xt=urn:btih:ACAE07DA9DFB097C073798F9CE6CE3D9A25568F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Kubuntu 14.04 Beta I [i386, amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:70D58F96E437A2EFAA07D690AF3C15A90C31B592
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ BlackArch Linux — специализированной Live модификац
 magnet:?xt=urn:btih:B49951DC2D8199E85ECB7E640638D25A369D876B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Parrot Security OS - это операционная система, ориен�
 ```bash
 magnet:?xt=urn:btih:2BE8363F8E7B575FF6AC98004BECBD29DD052282
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ Window Maker Live 0.95.7-3 - Live-дистрибутив на основе Debia
 magnet:?xt=urn:btih:8772280AA5F7F3512D2683738935012226B52166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ Sabayon 16.03 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDV
 ```bash
 magnet:?xt=urn:btih:6F7583C9738A9EA142C3C79B6EEDD524DF54A35C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ Ubuntu*Pack Cinnamon 18.04 (февраль 2020) [amd64] 1xDVD
 magnet:?xt=urn:btih:AB76D58E0292DC8BA2BCFE2C550D214E57EA9978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ Ubuntu*Pack Unity 18.04 (февраль 2020) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:AD4833B9849A50F3B84C4C90AA3BDAE96D7D3944
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ Linux Mint Debian Edition (LMDE) является альтернативным �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ Zentyal может быть развёрнут в качестве шлюза, �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ Linux UsefulPack 16.02 (L) [Русский] (2016) [x86 + amd64]
 magnet:?xt=urn:btih:0173A257E511B0DD5D563307D2BD52AA0A5E34B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ Edubuntu — дистрибутив операционной системы Linu
 magnet:?xt=urn:btih:0DFEABC5FB529015DC1DF18D471E13BD83475B0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ BlackArch Linux 2021.09.01 [Хакинг, аудит, безопасность] 
 magnet:?xt=urn:btih:539FDD69A760DA1EDB69BFCCD35841306B85EC69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ EuroLinux 8.4 [совместим с Red Hat Enterprise Linux] [amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:CF542AD21C10EF5F4CC89A2E53AEA0394DD75CA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ Ctlos Linux — базируется на Arch Linux, iso образ собра�
 magnet:?xt=urn:btih:FC9D45FFFC78D6DC32E7AFC78CA2A0519CBEBB7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ Xubuntu — дистрибутив Linux, основанный на проект
 ```bash
 magnet:?xt=urn:btih:306049D0D4935D2D82662C0E5960C84357A48C15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ Lubuntu — это свободная операционная система н
 magnet:?xt=urn:btih:EA56FA40CD474C95DF81C12AD08EDF52650476C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ Kubuntu 14.04.4 LTS [i386, amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:C9A52AC68590C8A323D5ED8CDDD7FC785B755AD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +696,8 @@ Ubuntu*Pack Xfce (Xubuntu) 18.04 (февраль 2020) [amd64, i386] 2xDVD
 ```bash
 magnet:?xt=urn:btih:67499268CBBFE9DD85FFB7FBA82178E607D451AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

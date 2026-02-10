@@ -1,3 +1,29 @@
+###  Публикация: 1621660   (1030743) от 26.03.2023
+
+Александр  Беляев | Ариэль (2023) [MP3, Александр Котов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то давным-давно в детстве, Александр Беляев мечтал научиться летать, но не на каких-то аэропланах, а просто так, парить в свободном полете, как птица. Но для этого нужны были крылья, и он мастерил их из различного материала. В одном из многочисленных вариантов были веники, которые он привязывал к рукам, пытаясь взлететь. Прыгал он и с отцовским зонтом с крыши. (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 07:52:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9157730537863C940B2E4EF325CE9F3E2BE0281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448410   (1030804) от 17.02.2021
 
 Сергей Тамбовский | Империя на краю (2021) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0133AE0FD6CCC558C333A0713B65CA52FFBC7B86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:0133AE0FD6CCC558C333A0713B65CA52FFBC7B86
 magnet:?xt=urn:btih:3C3593078ABC6AEFDDE60E2D0702F113CC62691B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:3C3593078ABC6AEFDDE60E2D0702F113CC62691B
 ```bash
 magnet:?xt=urn:btih:6D9B8A4CB4C235A01A86CE68B23ACCDFA0F42C73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:6D9B8A4CB4C235A01A86CE68B23ACCDFA0F42C73
 magnet:?xt=urn:btih:63C1F3550A3EFA0CDEDBC4046CC8C8B6082B50D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:63C1F3550A3EFA0CDEDBC4046CC8C8B6082B50D6
 magnet:?xt=urn:btih:F265C8C352DF7933B103739A25731BBD8E3FE365
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:F265C8C352DF7933B103739A25731BBD8E3FE365
 ```bash
 magnet:?xt=urn:btih:C20E741E2E7197A2AEA97DF84949D65F438C271C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:C20E741E2E7197A2AEA97DF84949D65F438C271C
 magnet:?xt=urn:btih:64309DA0EC3E1D648BFD98CC54EE9B775E37EA32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:64309DA0EC3E1D648BFD98CC54EE9B775E37EA32
 ```bash
 magnet:?xt=urn:btih:3D68D1A452B770E5A0F6357D2EC61C28803D1AB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:3D68D1A452B770E5A0F6357D2EC61C28803D1AB3
 magnet:?xt=urn:btih:733EB6BB537F1AA13191E54249D7A9293FDA8C74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:733EB6BB537F1AA13191E54249D7A9293FDA8C74
 ```bash
 magnet:?xt=urn:btih:2238DE8CE47763AB60DB475F66D576C48853CB14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:2238DE8CE47763AB60DB475F66D576C48853CB14
 magnet:?xt=urn:btih:D7F53C0D640FF0172B5606C7F3FC1C2FFCCE00A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:D7F53C0D640FF0172B5606C7F3FC1C2FFCCE00A4
 ```bash
 magnet:?xt=urn:btih:02C87F2D11C34DF40C0335F0FC7AC5A857345BE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:02C87F2D11C34DF40C0335F0FC7AC5A857345BE9
 ```bash
 magnet:?xt=urn:btih:AB9D3A8AE4E78B05AB916CCDCFE798C69D6F2273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:AB9D3A8AE4E78B05AB916CCDCFE798C69D6F2273
 magnet:?xt=urn:btih:CEA51CCC9408FA743D0CE060083FBD42D6CDEA61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:CEA51CCC9408FA743D0CE060083FBD42D6CDEA61
 ```bash
 magnet:?xt=urn:btih:866C217F0A29B1122B75436E844256F615B71E16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:866C217F0A29B1122B75436E844256F615B71E16
 ```bash
 magnet:?xt=urn:btih:CC4B6E6C0DBBD56ADC94898721621A74CD24770A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +475,8 @@ magnet:?xt=urn:btih:CC4B6E6C0DBBD56ADC94898721621A74CD24770A
 magnet:?xt=urn:btih:45C156872B4F89248AF952887363CCA252D4846D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:45C156872B4F89248AF952887363CCA252D4846D
 magnet:?xt=urn:btih:75F2A5666DBB06C235D74688A96309DD7F0A7390
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:75F2A5666DBB06C235D74688A96309DD7F0A7390
 ```bash
 magnet:?xt=urn:btih:04B5EBC3B8447CEEB668AAF46F760CF9B79D07B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +555,8 @@ magnet:?xt=urn:btih:04B5EBC3B8447CEEB668AAF46F760CF9B79D07B0
 magnet:?xt=urn:btih:CC6D8848103B0A7749C24FF0D91D0D459B508F77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:CC6D8848103B0A7749C24FF0D91D0D459B508F77
 ```bash
 magnet:?xt=urn:btih:42542E443E6D713C9DC54DDAAF76D15D18F6BC11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +610,8 @@ magnet:?xt=urn:btih:42542E443E6D713C9DC54DDAAF76D15D18F6BC11
 magnet:?xt=urn:btih:3B3DC17B0FD9FE18CE6A4B784D1A9DE10C6589A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +636,8 @@ magnet:?xt=urn:btih:3B3DC17B0FD9FE18CE6A4B784D1A9DE10C6589A9
 ```bash
 magnet:?xt=urn:btih:96E1E0D49187DCC1AEBA35295046407E00E3E472
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +666,8 @@ magnet:?xt=urn:btih:96E1E0D49187DCC1AEBA35295046407E00E3E472
 magnet:?xt=urn:btih:1104A0DB329DCD15849E28BFD7E74C600D6DC249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,29 +694,7 @@ magnet:?xt=urn:btih:1104A0DB329DCD15849E28BFD7E74C600D6DC249
 magnet:?xt=urn:btih:10D22EDC7726666C8E1AFD0A8408FD542ED3F743
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447796   (1031628) от 14.02.2021
-
-Клэр Макфолл | Нарушители (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Истинная любовь способна на невозможное, даже бросить вызов сверхъестественным силам и обмануть саму судьбу. После ужасной железнодорожной катастрофы, в которой погибла юная Дилан, проводник между мирами живых и мертвых Тристан доставляет девушку на тот свет. Молодые люди полюбили друг друга и сумели вернуться в реальный мир, где могут находиться, только пока их (   Читать дальше...   )Жанр: Зарубежное фэнтези, МистикаПродолжительность: 07:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB6FCA9EEDDD87186BDC44421EAE4E7DE3384EA6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

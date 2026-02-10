@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:A1F6C469F3329638A8DD599EF8774DB6DA9FC9A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Il Volo - Ad Astra (2024) International Edition, 2024, Masterworks [FLAC 24/44.1
 ```bash
 magnet:?xt=urn:btih:99437D027E8F5CCA6979FB48D0BF188E59D034C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Linkin Park - Live In Texas (2003) Japan, WPZR-30036~7 [FLAC|Lossless|image + .c
 magnet:?xt=urn:btih:07A1677104B96F94526C269D16C6B6805A66FCD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Larry Fuller Trio - Easy Walker (1998) 2003, Pony Boy Records [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:12114DC12594FEA76606CD016103329521A66326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Donna Lewis - Now In A Minute (1996) [FLAC|Lossless|tracks + .cue] <Pop Rock, So
 magnet:?xt=urn:btih:4FCACD420350E73939A549DF06CD1CC429B64C70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Gert Records 1000 - Celebration Dj Mix (Mixed By Vito Von Gert) (2024) [MP3
 ```bash
 magnet:?xt=urn:btih:1D73D636CA9F95C189602843AB46910BDCA7FDDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ CYN - Valley Girl (2024) Extended [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Euro
 magnet:?xt=urn:btih:62314942B3E1DAE3B4E7D8573FD43761CEE72D61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:62314942B3E1DAE3B4E7D8573FD43761CEE72D61
 ```bash
 magnet:?xt=urn:btih:17BD5EB75D93DA4191309666F4AAC0CAC98C69BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Nocturnal Knights Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:FE56D27138D2E00517966AFEF4DF80A28FEB4FAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Megan McDuffee - Crimson Legacy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sy
 ```bash
 magnet:?xt=urn:btih:1187B6A393DFF7BC0088761ED5762A1EBF67A150
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Etta James - The Right Time (1992) CD, Album, Club Edition, BMG [FLAC|Lossless|t
 magnet:?xt=urn:btih:7F54D077D5AACC410A923319ABF3DDCAFD8253B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ magnet:?xt=urn:btih:7F54D077D5AACC410A923319ABF3DDCAFD8253B9
 ```bash
 magnet:?xt=urn:btih:A9FAFC4DF17231C4FCF0759CA2F39334F7EBE275
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +365,8 @@ magnet:?xt=urn:btih:A9FAFC4DF17231C4FCF0759CA2F39334F7EBE275
 ```bash
 magnet:?xt=urn:btih:3229A17AF151E0AD88AAAFAADF80581FDEF672F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +395,8 @@ Beck - Mutations (1998) CD, HDCD, Album [FLAC|Lossless|tracks + .cue] <Rock, Alt
 magnet:?xt=urn:btih:E34BE71C7A67F83D6BAB7B2E0DDDA160FA744F8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ magnet:?xt=urn:btih:E34BE71C7A67F83D6BAB7B2E0DDDA160FA744F8C
 magnet:?xt=urn:btih:5845C458C01E9C61298A392CDE9130E9FD8F598D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +449,8 @@ magnet:?xt=urn:btih:5845C458C01E9C61298A392CDE9130E9FD8F598D
 ```bash
 magnet:?xt=urn:btih:7AA3C4EE22D9D468D6D71D0EFD04529AABCCC50D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +476,8 @@ Magic Eraser - это революционное приложение для р�
 magnet:?xt=urn:btih:27C93B18A2B3C2E824575869652CB40849040F39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +502,8 @@ magnet:?xt=urn:btih:27C93B18A2B3C2E824575869652CB40849040F39
 magnet:?xt=urn:btih:9E09739340FA3EBB12C51966C1E3233815CE4DAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +527,8 @@ magnet:?xt=urn:btih:9E09739340FA3EBB12C51966C1E3233815CE4DAC
 ```bash
 magnet:?xt=urn:btih:B9FB9C97205142763CFAE99AC0E5F24FD220B1F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +557,8 @@ VA - Modern Power Ballads (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Ballad
 magnet:?xt=urn:btih:DEBA3534808C76D284D4B3BE3969107B322EBB9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +584,8 @@ magnet:?xt=urn:btih:DEBA3534808C76D284D4B3BE3969107B322EBB9B
 magnet:?xt=urn:btih:DB2E34D048C3DB43409BBCC38F83875EB3D46FBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +609,8 @@ magnet:?xt=urn:btih:DB2E34D048C3DB43409BBCC38F83875EB3D46FBD
 ```bash
 magnet:?xt=urn:btih:9C38D68035F190F1953F758E5527DDE1C7563B72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +637,8 @@ magnet:?xt=urn:btih:9C38D68035F190F1953F758E5527DDE1C7563B72
 magnet:?xt=urn:btih:2CC937FD600CCB65555338198EEA25045C52D1A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +662,8 @@ magnet:?xt=urn:btih:2CC937FD600CCB65555338198EEA25045C52D1A2
 ```bash
 magnet:?xt=urn:btih:5EFBD1AF93A6B6DB2D9BC97AF42BB598996BD966
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +692,8 @@ magnet:?xt=urn:btih:5EFBD1AF93A6B6DB2D9BC97AF42BB598996BD966
 magnet:?xt=urn:btih:56A488E57CBC18694C5A2346AD78E0EC50C84849
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ magnet:?xt=urn:btih:56A488E57CBC18694C5A2346AD78E0EC50C84849
 ```bash
 magnet:?xt=urn:btih:4B5AEB3B77E78066C11ECAE75EBFB016487AA317
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

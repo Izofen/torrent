@@ -21,6 +21,8 @@ Puzzle - Nothing But The Rain (2012) [MP3|320 кб/с]<Post-Rock, Experimental, 
 magnet:?xt=urn:btih:AACD7BBC8F06AB309F21519C60E068AC0743276A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Strangefish - Fortune Telling (2006) [MP3|320 кб/с]<Neo Progressive Rock>
 magnet:?xt=urn:btih:B336A5FE443FDA357E62B08E4168B953EAAEDB67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -77,6 +81,8 @@ Radical Face - 6 альбомов (2003-2012) Discography [MP3|320 кб/с]<Indi
 ```bash
 magnet:?xt=urn:btih:6AAA449DAE20ED8C9E870D734157F3D732828D76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +110,8 @@ Landing - Wave Lair [EP] (2012) [MP3|320 кб/с]<Post Rock, Shoegaze, Dream Pop
 ```bash
 magnet:?xt=urn:btih:88087E62DA18AC1946DE09497B3F4AAF517CAA93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -133,6 +141,8 @@ Cockpit - Mission To Rock [EP] (2008) [MP3|320 кб/с]<Rock>
 magnet:?xt=urn:btih:0F82FF72CA92738B7A3A6FFD990BA3AD9605BD4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -160,6 +170,8 @@ Alex  Band - After The Storm (EP) (2012) [MP3|224 kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:CD124F16CC1F92EA3B8EF83C9D52F1E7048E28B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +204,8 @@ Takara - Perception Of Reality (2002) [MP3|320 kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:75AC82F53B7B36C969B9A243D157CDFF1BDC0631
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +240,8 @@ Don Felder - Road To Forever (2012) [MP3|320 кб/с]<Classic Rock>
 magnet:?xt=urn:btih:D23A721D4A75EF2F81AB79BB4F0098095ED83DA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +275,8 @@ Second Hand Stereo - Travelers (2012) [MP3|320 кб/с]<70's Rock>
 magnet:?xt=urn:btih:A3B2CD18DA222E8096D87DEFC4B2E9A5F33DF383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +301,8 @@ Black Cat Bones - Barbed Wire Sandwich (1969) [MP3|320 kbps]<Heavy Blues-Rock>
 magnet:?xt=urn:btih:F980C59C70ECF331B414B776C6B7DC3B3DA88106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +326,8 @@ Jace Everett - 4 CDs (2006..2011) Discography [MP3|320 kbps]<Country Rock, Blues
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +362,8 @@ Jonestown Revival - Brand New Dad (2012) [MP3|320 кб/с]<Psychedelic Jazz / Pr
 magnet:?xt=urn:btih:024886525E8D60EB379FDCFB31FED31A549D79AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +396,8 @@ Mondo Generator - Hell Comes To Your Heart (2012) [MP3|320 кб/с]<Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:6E9699EA45169E44ECB68BF98097C004C2DFB33C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +432,8 @@ magnet:?xt=urn:btih:6E9699EA45169E44ECB68BF98097C004C2DFB33C
 magnet:?xt=urn:btih:919C37B41A520137CBF5E33AB8D9E9130EC50854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +460,8 @@ Gila - Дискография (3 альбома) (1971-1973) [MP3|320 Kbps] <Pro
 ```bash
 magnet:?xt=urn:btih:CDC16946A98EFA3FF3258943EBC94538CC37725A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +490,8 @@ Deep Purple - Live in London 2002 (2021) Remastered [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:FD7696739029878C0E13614E1A1D1874090DF963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +518,8 @@ Feuerschwanz - Die letzte Schlacht (2021) [MP3|320 Kbps] <Folk Rock>
 ```bash
 magnet:?xt=urn:btih:7719C972FA3F40AA9ADC7BDF4A7BD292989958A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +548,8 @@ Santiano - Top Hits - die größten Santiano Hymnen (2021) EP [MP3|320 Kbps] <Fo
 magnet:?xt=urn:btih:BAD366C0B7E8B7B03CFA172DD9689AB193CD608F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +576,8 @@ Paul Mccartney - Mccartney III (2021) Deluxe Edition [MP3|320 Kbps] <Classic Roc
 ```bash
 magnet:?xt=urn:btih:F668E60B2C6F52599A49DD8A69703E889A4A3128
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +606,8 @@ Green Grey - 9 Albums (1997-2016) [MP3|320 Kbps] <Rock, Funk, Dub>
 magnet:?xt=urn:btih:DAD2D9E0F8CA21D197106D54B52C6ABBE15B0465
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +634,8 @@ CD - 1 - Main Album:
 ```bash
 magnet:?xt=urn:btih:A1E99B2E9AA5D89E4F98014AA493902C7E981637
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +664,8 @@ Katherine Priddy - The Eternal Rocks Beneath (2021) [MP3|320 Kbps] <Folk, Folk-R
 magnet:?xt=urn:btih:F8FEF4AF62C410E43D2D28E918973B37248494B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +692,8 @@ The Rolling Stones - Playing With Fire (2021) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:C5A5DA246669C29B87F1731E295E83BD201BA19B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +722,8 @@ Mudhoney - 2 Albums (2021) [MP3|320 Kbps] <Alternative Rock, Grunge, Garage Rock
 magnet:?xt=urn:btih:04F66669D57C1E66BFE89FBF8A6F0B43894E8D13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -703,6 +751,8 @@ Dear Mr Time - Grandfather: The Dear Mr Time Anthology (2021) Expanded Edition [
 magnet:?xt=urn:btih:6788D75498D0EEF220A2D75245508153EEE67831
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -729,6 +779,8 @@ Babe Ruth - Greatest Hits (2021) Japanese Edition, Compilation [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:2C6B14C0CC64A2F9036D3AE903F1630020CF251A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

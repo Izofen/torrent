@@ -22,6 +22,8 @@ DBF Viewer 2000® - приложение для просмотра и редак
 magnet:?xt=urn:btih:BE40F8ADB71FE4FFE7F643E1AAE07E33C712A782
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:BE40F8ADB71FE4FFE7F643E1AAE07E33C712A782
 magnet:?xt=urn:btih:91F82AB0A99FC7931A0790A6599F59DE2EAF8F2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Ao no Orchestra Season 2 | The Blue Orchestra 2 | Синий оркестр [Т�
 ```bash
 magnet:?xt=urn:btih:459846DE4708355FF540FAB67F71366EAA4D0C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Stateside Red - Far From The Delta (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <B
 magnet:?xt=urn:btih:B031B0C105477046758EDE6621DD7BA0DF13982A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Ninja to Gokudou | Ninja vs. Gokudo | Ниндзя и якудза [2025, TV, 1 
 magnet:?xt=urn:btih:D3BA656E6030801730126D2B6233C67D0CAD9CB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:D3BA656E6030801730126D2B6233C67D0CAD9CB7
 magnet:?xt=urn:btih:446FCF00C3F1F9C035A48E422EDE73E1F905AC57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:446FCF00C3F1F9C035A48E422EDE73E1F905AC57
 ```bash
 magnet:?xt=urn:btih:01D28576DAA7CC64C25EFA92495C649B3EC14324
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ VA - Lounge O'Clock, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill 
 magnet:?xt=urn:btih:B8444BFC65903FDB3AD71A392D53D4CA58B57C73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:B8444BFC65903FDB3AD71A392D53D4CA58B57C73
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:B8444BFC65903FDB3AD71A392D53D4CA58B57C73
 magnet:?xt=urn:btih:AC0A338497169617B10F9783963E9756575314F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:AC0A338497169617B10F9783963E9756575314F2
 magnet:?xt=urn:btih:0E4C5DE025FD848D1A207F7D07B536894EE5018C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:0E4C5DE025FD848D1A207F7D07B536894EE5018C
 ```bash
 magnet:?xt=urn:btih:6307085B4D2F15B6D49F7966DD11C50C5F4491B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ L.A. Guns - The Dark Horse (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam-Ha
 magnet:?xt=urn:btih:A93A9DCF848F7D4CFE9522502F8F2C6E6DCF7AE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ Serious Sam 3: BFE — это великолепное возвращение в
 ```bash
 magnet:?xt=urn:btih:3CB700EDD2363E1D4C2C96C7C73F6551F2C007DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:3CB700EDD2363E1D4C2C96C7C73F6551F2C007DE
 magnet:?xt=urn:btih:D8ACC5ED081F9CAFE3A533729DDB151A91C070C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:D8ACC5ED081F9CAFE3A533729DDB151A91C070C8
 ```bash
 magnet:?xt=urn:btih:624DEAAB7F7E2D087124F5E2FF5A83BB34B1FC60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:624DEAAB7F7E2D087124F5E2FF5A83BB34B1FC60
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:624DEAAB7F7E2D087124F5E2FF5A83BB34B1FC60
 magnet:?xt=urn:btih:FF27E30183E3970F442F8245DF46E4EB8678856D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:FF27E30183E3970F442F8245DF46E4EB8678856D
 ```bash
 magnet:?xt=urn:btih:B9EF628BBD47CE6CCA1FC5E103301D8137E39918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ Anna Zueva - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Easy Listening, 
 magnet:?xt=urn:btih:8DA6691EA0566133FFEA076596362B1B61AF9758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ Background Music Masters, Instrumental Jazz Music Guys - Evening Revelry Harmoni
 magnet:?xt=urn:btih:4C58D6735C16FC4882B3B987D7BF2FD4B97B1E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:4C58D6735C16FC4882B3B987D7BF2FD4B97B1E82
 ```bash
 magnet:?xt=urn:btih:7FFCDC44581C257F706D7A6EA573278CC82C8506
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:7FFCDC44581C257F706D7A6EA573278CC82C8506
 magnet:?xt=urn:btih:496E6243F7CF62B5493221FDBD7EC8823A3BEF96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:496E6243F7CF62B5493221FDBD7EC8823A3BEF96
 ```bash
 magnet:?xt=urn:btih:0C060AB97E79DA542EA32FCC1D297BAA3F9E79FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ Pirate Hymn - Explorer (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
 magnet:?xt=urn:btih:E87C37156E9A6489947D8F11E770053FF74C8FFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ magnet:?xt=urn:btih:E87C37156E9A6489947D8F11E770053FF74C8FFB
 ```bash
 magnet:?xt=urn:btih:39B3AE4ABF98F8082950BB9ACABEBF4FDAE87CF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

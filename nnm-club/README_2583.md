@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7F942DB4479E5FEAE94AFC0FA8C9C5919938D9D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:7F942DB4479E5FEAE94AFC0FA8C9C5919938D9D3
 ```bash
 magnet:?xt=urn:btih:D889BF8E68F5AD83904BFE9BF4E4EF4DCEB7BCB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Manowar - Hail to England (1984) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Met
 magnet:?xt=urn:btih:CD689E523DCE48849A86356F3737C82E714E1BE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ VA - ЖЖ Was Here [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:2BF6B69280155587F7E82DC863251097F6B8B085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:2BF6B69280155587F7E82DC863251097F6B8B085
 ```bash
 magnet:?xt=urn:btih:C06627087EBAB2F5D418D1AA5F278083F2166C6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:C06627087EBAB2F5D418D1AA5F278083F2166C6D
 magnet:?xt=urn:btih:766FC570E45834389A65581CFCE0506CE656B44E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:766FC570E45834389A65581CFCE0506CE656B44E
 ```bash
 magnet:?xt=urn:btih:B1B2A295CB050C6BC6FC5366117544613C84703B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Nightwish - Human. :||: Nature. (2020) [FLAC|24/192|image + .cue|Vinyl-Rip] <Sym
 magnet:?xt=urn:btih:A2F40D7463340ACB4CC674DB740EFF55E5027CEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ VA - Armin van Buuren - A State Of Trance 1220 (2025) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:FCFF8144651D2BB6FDE799F1D1BD6F04AFA929FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:FCFF8144651D2BB6FDE799F1D1BD6F04AFA929FA
 ```bash
 magnet:?xt=urn:btih:980FCC2AEBD3E4C6A9320096DA0005AF1B319E1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ Magnolia Park - Vamp (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt. Metal, Met
 magnet:?xt=urn:btih:40D26E4627ACD39DCD0318EAFCC389CF204C3787
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:40D26E4627ACD39DCD0318EAFCC389CF204C3787
 magnet:?xt=urn:btih:89CEDE8FF0CA30E0EDEB1E9E8DCE98CA21C77040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:89CEDE8FF0CA30E0EDEB1E9E8DCE98CA21C77040
 ```bash
 magnet:?xt=urn:btih:B4D1612B489363B742149C9B663D5A63CE1D4650
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ Bob Sinclar - Born in 69 (2009) Remixed, 2024, Yellow productions [MP3|320 Kbps]
 magnet:?xt=urn:btih:7D5B9011DAE30460216681B69AF17FF02ED6669E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ The Man-Eating Tree - Night Verses (2025) [MP3|320 Kbps] <Atmospheric Gothic Met
 magnet:?xt=urn:btih:53A3DE5286952E7675E745AF2CCDDBE357C4AE84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:53A3DE5286952E7675E745AF2CCDDBE357C4AE84
 ```bash
 magnet:?xt=urn:btih:AE24D7E261071AF96D429B45F8086947074CED47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:AE24D7E261071AF96D429B45F8086947074CED47
 magnet:?xt=urn:btih:1A664FB15A1FCDAB659DDB4864BC2C555B7BE583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:1A664FB15A1FCDAB659DDB4864BC2C555B7BE583
 ```bash
 magnet:?xt=urn:btih:EB9C211DC013DF659429EDFAB4856403DBD5231C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:EB9C211DC013DF659429EDFAB4856403DBD5231C
 magnet:?xt=urn:btih:671971AC067A5D5CF116462B705AA8CB7DB996E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:671971AC067A5D5CF116462B705AA8CB7DB996E3
 ```bash
 magnet:?xt=urn:btih:AC21DD4A56F4FB244FED79852DE63CE925676305
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:AC21DD4A56F4FB244FED79852DE63CE925676305
 magnet:?xt=urn:btih:C014D79A9F094B2250276C246991DCAA468A2CC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:C014D79A9F094B2250276C246991DCAA468A2CC1
 ```bash
 magnet:?xt=urn:btih:F3EC6AD478A866A72D42E73FD69D19B3598A7257
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:F3EC6AD478A866A72D42E73FD69D19B3598A7257
 magnet:?xt=urn:btih:D4E20DB2D43AD9AA154DA7F387CC26D06C83A367
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:D4E20DB2D43AD9AA154DA7F387CC26D06C83A367
 ```bash
 magnet:?xt=urn:btih:60A120221AD0EC54BF784D6B86D395F919A619B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:60A120221AD0EC54BF784D6B86D395F919A619B5
 magnet:?xt=urn:btih:8FF087CE22F4C0CDECA893FA75A2C80D34E96B64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:8FF087CE22F4C0CDECA893FA75A2C80D34E96B64
 ```bash
 magnet:?xt=urn:btih:94EEABDD797E99ED3763964BA50076CE190D2F47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

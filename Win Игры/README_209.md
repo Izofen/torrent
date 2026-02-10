@@ -19,6 +19,8 @@ Archipelagoes / Ух-ты, бухты! (P) [Ru] 2011
 magnet:?xt=urn:btih:EF64A80ECE415F4B44E5A473B91FE76A7826EB03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Liong. Утраченные амулеты - уникальная игра, ко
 ```bash
 magnet:?xt=urn:btih:25150E0F6ECDC7C2CED7963AE6DA4CF54ABE360F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | Fenixx
 magnet:?xt=urn:btih:29E617CB559A1A86FF1E8286F79E08889C1968C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Living Legends: Ice Rose Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:1794E80AE5BBD2E4E9972D967A2EA66565BBDB46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Solitaire Mystery: Stolen Power (P) [En] 2012
 magnet:?xt=urn:btih:CD812BA290568832B70B0765EC0F90502E0B236C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ House of 1000 Doors: The Palm of Zoroaster Collector’s Edition / Дом 1000 �
 ```bash
 magnet:?xt=urn:btih:4B2DE9F5A366FB48138914AAD195DA0949C099E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Limbo представляет собой платформер, в которо�
 magnet:?xt=urn:btih:FCD6E16DC718E0788BE51D87EB1640B14C22ADF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ House of 1000 Doors: The Palm of Zoroaster. Collector's Edition / Дом 1000 д
 ```bash
 magnet:?xt=urn:btih:9662050E2C9547685948FDD511E7180FC802F724
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | shidow
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ Earache Extreme Metal Racing / Адские гонки [Ru/En] (L) 2007
 ```bash
 magnet:?xt=urn:btih:1C7DDDB7B56C8B94B32FF6D9AC293F0CB3EBE2C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Battlefield: Bad Company 2 + DLC Vietnam [Ru] (RePack/795745) 2010 | Naitro
 magnet:?xt=urn:btih:E6F10505F13EA6E253CD4D7B15607C0B3CC5CB2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Phenomenon: City of Cyan (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:B1142BF1125465B4568CA5DF6AE48582B9D30B55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Easter Eggztravaganza  / Пасха "eggztravaganza". Поиск яиц (P) [Ru]
 magnet:?xt=urn:btih:060D5943625D23AF2F4F738ED649D19DEBB22EED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ The Chronicles of Shakespeare: Romeo & Juliet / Хроники Шекспира.
 magnet:?xt=urn:btih:D2D375041F4F1A26112D6B7A9B41D4320709239D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Big Fish Legend / Легенда о большой рыбе (L) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:DEA0912B9C6D2D5026B7666656860E9BB578FB35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Sid Meier's Railroads! (RePack) [Ru/En] 2006 | R.G. Catalyst
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Sid Meier's Railroads! (RePack) [Ru/En] 2006 | R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:E82BEC584018AA93083A3CBA0612E1C7064DF3AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ Wing Commander Saga: The Darkest Dawn делала команда преданн
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Ghost Encounters: Deadwood (P) [En] 2012
 magnet:?xt=urn:btih:DDC7726DDC8E809DB2B2BB3088E04588EB9F7DA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Jewel Quest Mysteries 4: The Oracle of Ur Collector's Edition / Тайны др�
 ```bash
 magnet:?xt=urn:btih:98E38698530DAC851304D872D6A9CF132601B978
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Gatling Gears [Ru] (RePack) 2011 | Naitro
 magnet:?xt=urn:btih:381477D0AC66BFA5C84162EC25DE993D3B118FD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Coloropus (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:598D1A0769599CE96CE069BD3553E673FF5E98D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Monument Builders: Titanic (P) [En] 2012
 magnet:?xt=urn:btih:B2D06EBA935DDA8B6AF90C1CBDDF2B1DD5AC5483
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ Princess Isabella: Return of the Curse. Collector's Edition / Принцесса
 ```bash
 magnet:?xt=urn:btih:7D1ED2BF99021C0C8F8E08A5B5C9B3CE0CF6F52E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Bloodline Champions / Братство Чемпионов (L) {ver. 2.3.0.0} [En
 magnet:?xt=urn:btih:DAF9BC21D54328ADAC7F1F8B02DAA0C667F46E1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Solitaire Mystery: Stolen Power / Магия пасьянса (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:6D60C8EBCA0A7AD16E328F4A2AA4BB12ACE32D83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

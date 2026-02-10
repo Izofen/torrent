@@ -1,54 +1,3 @@
-###  Публикация: 1076046   (311880) от 26.11.2016
-
-Звезды о небе. 4 истории о встрече (2015) DVDRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311880.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Звезды о небе» - это четыре фильма-монолога о встрече. Встрече человека с человеком, встрече с обстоятельствами и испытаниями жизни, встрече с самим собой истинным и сокровенным. О встрече с Богом. Эти фильмы визуальное решение титульных интервью журнала «Фома».Телекомпания: Россия / ГТРК "Культура"Жанр: ДокументальныйПродолжительность: 4 х ~00:27:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:148A322BD2EA0BD69929F50F70A1991E44DF26FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076473   (311883) от 26.11.2016
-
-VA - Лучший Хит. Дорога Дальняя (2016) [MP3|256 Kbps] <Шансон>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_311883.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Сергей Сорокин - Цепи 3:45
-002.Андрей Карат - Ты Мое Сокровище 4:28
-003.Сергей Куренков - Сочи 3:17
-004.Никита Хазановкий - Осень Наступила 3:17(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:708918A8D1C6321977103E4D6D1EDC747217C422
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076374   (311885) от 26.11.2016
 
 Rumer (Sarah Joyce) - This Girl's In Love: a Bacharach and David Songbook (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Easy listening, Soul, Smooth Jazz>
@@ -73,6 +22,8 @@ Rumer (Sarah Joyce) - This Girl's In Love: a Bacharach and David Songbook (2016)
 magnet:?xt=urn:btih:7C1DBCF3D47F682462265DFC9B57FEFE330F5A4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +47,8 @@ magnet:?xt=urn:btih:7C1DBCF3D47F682462265DFC9B57FEFE330F5A4B
 ```bash
 magnet:?xt=urn:btih:3F9A631A4E778FFB8B157CC753F555C0A79A7919
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +77,8 @@ Sixx: A.M. - Prayers For The Blessed Vol.2 (2016) [FLAC|Lossless|image + .cue] <
 magnet:?xt=urn:btih:8285B7C889FCD61828896F68C4C9B4D181BEB5D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +102,8 @@ PhraseBox PRO - это 1100+ тщательно подобранных фраз 
 ```bash
 magnet:?xt=urn:btih:D1B282A19D8EE24F00B7A5FD29E9B30D0CB0CF39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +132,8 @@ VA - Высшая Лига Хитов Радио Шансон 6 (2016) [MP3|256 
 magnet:?xt=urn:btih:1A695CECDDDC2E188BEA1B3277CC4029A5282C1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +160,8 @@ The Millionaires - The Millionaires (1980) LP [MP3|320 Kbps] <Electronic, Disco,
 ```bash
 magnet:?xt=urn:btih:9316EAD580FFA2955EA99F44C196EDF5623B7D98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +190,8 @@ VA - New Blood 013 (2013) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:0C6B8840721747D812E8244BBFB660CB5E9DF1EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +219,8 @@ Skillet - Интервью с Джоном Купером на радио УЛЬ
 magnet:?xt=urn:btih:C64D6EAC4C642DB82ACC81389F144189A6777608
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +245,8 @@ magnet:?xt=urn:btih:C64D6EAC4C642DB82ACC81389F144189A6777608
 ```bash
 magnet:?xt=urn:btih:0FC8795BC47636552D44A94C3FCB725FC8C2E76A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +274,8 @@ magnet:?xt=urn:btih:0FC8795BC47636552D44A94C3FCB725FC8C2E76A
 magnet:?xt=urn:btih:C8AF5B2C5252F847952236A772BA93413133F8B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +299,8 @@ magnet:?xt=urn:btih:C8AF5B2C5252F847952236A772BA93413133F8B8
 ```bash
 magnet:?xt=urn:btih:2A6D0F2744D0A6A1D024FC121397059BBB591774
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +329,8 @@ VA - Убойные Хиты На Радио Шансон 2 (2016) [MP3|256 Kbps
 magnet:?xt=urn:btih:CC99DDC0EACD0DDC580096D1B42938EF76FBCC62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +354,8 @@ magnet:?xt=urn:btih:CC99DDC0EACD0DDC580096D1B42938EF76FBCC62
 ```bash
 magnet:?xt=urn:btih:FDEA68C28AF0B3B5399D2CF2F40ACF7FA354D42D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +384,8 @@ Peter Cincotti - Peter Cincotti (2003) [FLAC|Lossless|image + .cue] <Vocal Jazz>
 magnet:?xt=urn:btih:114335BFEC33769B195A46EBD16AFFCD196B04ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +413,8 @@ magnet:?xt=urn:btih:114335BFEC33769B195A46EBD16AFFCD196B04ED
 magnet:?xt=urn:btih:64818FE23425FCF2EDD817A99814B3993C802072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +438,8 @@ magnet:?xt=urn:btih:64818FE23425FCF2EDD817A99814B3993C802072
 ```bash
 magnet:?xt=urn:btih:4EFD963081F5B1BB28F76CB6093538F318424495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +466,8 @@ magnet:?xt=urn:btih:4EFD963081F5B1BB28F76CB6093538F318424495
 magnet:?xt=urn:btih:87CF092E83BACB12BFAE31F3FB32D84C1730C814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +493,8 @@ magnet:?xt=urn:btih:87CF092E83BACB12BFAE31F3FB32D84C1730C814
 magnet:?xt=urn:btih:184179F0DC4B2C560E3A1866F86D91E252A29D24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +518,8 @@ magnet:?xt=urn:btih:184179F0DC4B2C560E3A1866F86D91E252A29D24
 ```bash
 magnet:?xt=urn:btih:E211FCFA27832B14C7C19669607F306F621F3B44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +546,8 @@ magnet:?xt=urn:btih:E211FCFA27832B14C7C19669607F306F621F3B44
 magnet:?xt=urn:btih:5F3CBCED47CD03BCEFECB635036A3FD08858D870
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +571,8 @@ Paul Levesque | WWE Power Series: Triple H (2014) DVDRip [H.264] [EN]
 ```bash
 magnet:?xt=urn:btih:7739250D1E5B5E16C0CC1798D17CBA52388722DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +601,8 @@ VA - Blues Collection 13 (The End) (2017) [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:D03617B8C9E4526DC3659456EFF979CED5839B51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +626,8 @@ magnet:?xt=urn:btih:D03617B8C9E4526DC3659456EFF979CED5839B51
 ```bash
 magnet:?xt=urn:btih:105E90314B143269B8ED702C98F21312BE263C97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +653,60 @@ magnet:?xt=urn:btih:105E90314B143269B8ED702C98F21312BE263C97
 ```bash
 magnet:?xt=urn:btih:BBC995D1BD55AD75211570D3659C3B3E5DAF81E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183112   (311911) от 12.11.2017
+
+Stand Up (2017.11.12) SATRip (сезон 7, выпуск 7)
+
+>>Архив торрентов
+>>Архив Юмора
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое юмористическое шоу в жанре стендап. Здесь люди рассказывают о своих проблемах. Слава богу, что они у нас есть!Телекомпания: ТНТЖанр: Юмористическое шоу, Stand up comedyАктеры: Руслан Белый, Слава Комиссаренко, Юлия Ахмедова, Дмитрий Романов, Стас Старовойтов, Тимур Каргинов, Виктор Комаров, Александр ШаляпинСубтитры: ОтсутствуютПродолжительность: ~ 00:47:10Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB58B7054FC319CA3F10B74689D541C54B3A05CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182816   (311912) от 12.11.2017
+
+MusicBee 3.1.6512 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_311912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Функциональный бесплатный музыкальный проигрыватель с широким набором разнообразных опций. В программе присутствует возможность работы с плейлистами, мощный редактор тегов, встроенный Аудиоконвертер и CD-риппер, имеется поддержка подкастов и аудиокниг, а также автоматическая загрузка информации из сети Интернет (обложки альбомов, тексты песен, сведения об артистах (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ECB5FEEA416F6976515CA3A17AC8AD836109956
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

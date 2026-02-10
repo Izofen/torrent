@@ -1,55 +1,3 @@
-###  Публикация: 1421904   (315067) от 06.11.2020
-
-VA - Территория ДДТ (2020) [MP3|320 Kbps] <Rock, Pop & etc.>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315067.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Amatory - Родина
-2. Animal ДжаZ - Предчувствие гражданской войны
-3. Fontaliza - За тобой пришли
-4. Sellout - Песня о свободе(   Читать дальше...   )Жанр: Rock, Pop & etc.Продолжительность: 03:09:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FE34B35E33ECDFC2913881EA6C22C264005F066
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421828   (315068) от 06.11.2020
-
-Coda 2 v2.7.7 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315068.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редактор для веб-разработчиков. Сделайте свой код красивым вместе с Coda!
-Текстовый редактор, передача файлов, SVN, CSS-редактор, терминал, доступ к книгам по разработке и многое другое. Всего насчитывается порядка ста функций, например, встроенный редактор MySQL, живые подсказки кода, в CSS редактор встроены всплывающие палитры цветов и внедрен режим просмотра результата (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.11.2020Разработчик: Panic, IncПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E27F5E8A2660392087CFB3F0D325953C5C8AD7A0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421771   (315069) от 06.11.2020
 
 Цеппелин. Назад в будущее / Zeppelin, retour vers le futur (2017) HDTVRip [H.264/720p-LQ]
@@ -70,6 +18,8 @@ magnet:?xt=urn:btih:E27F5E8A2660392087CFB3F0D325953C5C8AD7A0
 ```bash
 magnet:?xt=urn:btih:A0ABC5F54A000A238A215C8CDBB95987ABE28FED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +46,8 @@ magnet:?xt=urn:btih:A0ABC5F54A000A238A215C8CDBB95987ABE28FED
 magnet:?xt=urn:btih:BAE4589216F664FF8B2328113569B1B08AD52ACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +71,8 @@ PowerISO - программа позволяет создавать, конве�
 ```bash
 magnet:?xt=urn:btih:58E7960C0D03BA990CF39F66003D9D5C6C4E4329
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +98,8 @@ XVII век, встреча представителей самых влияте
 magnet:?xt=urn:btih:93EEDAA373AB2A84941ED5F853ECD9403F481C45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +123,8 @@ magnet:?xt=urn:btih:93EEDAA373AB2A84941ED5F853ECD9403F481C45
 ```bash
 magnet:?xt=urn:btih:201776A33827CB9FAFDC5FDB3C601CD2C1A3834B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +150,8 @@ magnet:?xt=urn:btih:201776A33827CB9FAFDC5FDB3C601CD2C1A3834B
 magnet:?xt=urn:btih:F61EC33563F5F8508F6F190464BA47567F9F5121
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +175,8 @@ magnet:?xt=urn:btih:F61EC33563F5F8508F6F190464BA47567F9F5121
 ```bash
 magnet:?xt=urn:btih:00DD26EFEF59CF704D91C4ED5DE5E5A39E40E59E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +202,8 @@ magnet:?xt=urn:btih:00DD26EFEF59CF704D91C4ED5DE5E5A39E40E59E
 magnet:?xt=urn:btih:28E50002F8BF0A0DEC1EEB3D4D54639A3AB6D74D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +227,8 @@ magnet:?xt=urn:btih:28E50002F8BF0A0DEC1EEB3D4D54639A3AB6D74D
 ```bash
 magnet:?xt=urn:btih:D899280CB30D864A5F1FFF5085082F8F83BCC10D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +254,8 @@ magnet:?xt=urn:btih:D899280CB30D864A5F1FFF5085082F8F83BCC10D
 magnet:?xt=urn:btih:A4C57F153183259CD56B6BA6EBB80E9CF2A147E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +279,8 @@ magnet:?xt=urn:btih:A4C57F153183259CD56B6BA6EBB80E9CF2A147E7
 ```bash
 magnet:?xt=urn:btih:CF4E32A4F3A76073819D29F92CAD99AFBAAABB09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +306,8 @@ magnet:?xt=urn:btih:CF4E32A4F3A76073819D29F92CAD99AFBAAABB09
 magnet:?xt=urn:btih:416CA315C3B7282CAADF11BC3DF988DE64BB38C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +331,8 @@ Comedy Woman (2017.11.10) WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:7E177AABD37A9F27EA12803DE9F33D9852521577
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +361,8 @@ Larry Carlton + SWR Big Band - Lights On (2017) 335 Records/SWR [FLAC|Lossless|i
 magnet:?xt=urn:btih:4148BD53FA26B8FD21C5943829AB5146917320B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +388,8 @@ magnet:?xt=urn:btih:4148BD53FA26B8FD21C5943829AB5146917320B7
 ```bash
 magnet:?xt=urn:btih:CED5E370E27312324E9DD9DFEF6049EAE57CD591
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +418,8 @@ VA - The Official UK Top 40 Singles Chart 10.11.2017 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:B2F230E756D459B3846DEB1A37C48F6B9391174E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +443,8 @@ Slimjet 16.0.5.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D077ACF79A564D551D0C8D1DF49683F24C0DC177
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +470,8 @@ magnet:?xt=urn:btih:D077ACF79A564D551D0C8D1DF49683F24C0DC177
 magnet:?xt=urn:btih:532A5B51977F1B219830C0C6F62C8C617501EE4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +496,8 @@ magnet:?xt=urn:btih:532A5B51977F1B219830C0C6F62C8C617501EE4E
 magnet:?xt=urn:btih:77AC4F4343422DC99D59FBBC6FFA8C8A16AB472E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +521,8 @@ magnet:?xt=urn:btih:77AC4F4343422DC99D59FBBC6FFA8C8A16AB472E
 ```bash
 magnet:?xt=urn:btih:916D9E6C1D3A41A13D7E43EFF68E18EB02D57FB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +549,8 @@ Invisible является простым в использовании и оч�
 ```bash
 magnet:?xt=urn:btih:25F6E5A258D366E4AA2E60119A1D9E1C370A5CB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +579,8 @@ VA - Techno Acid: Tech House Electro Party (2017) [MP3|320 Kbps] <Tech House, Cl
 magnet:?xt=urn:btih:F4DDC0DF2063BB2E77242C7DF43D1F83B275AFC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +607,8 @@ magnet:?xt=urn:btih:F4DDC0DF2063BB2E77242C7DF43D1F83B275AFC8
 magnet:?xt=urn:btih:13A67B5462EFFFD15203D0E4275550B301092652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +634,66 @@ magnet:?xt=urn:btih:13A67B5462EFFFD15203D0E4275550B301092652
 ```bash
 magnet:?xt=urn:btih:E1BF51A416949DE233AADC31E943B00DABE05BDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182618   (315105) от 11.11.2017
+
+VA - Spaceship (2017) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Vais - Lonely Planet (Original Mix)
+02. Ricky Rondi - Looking Hot
+03. Daktrin - Solaris
+04. Roni Iron - Guitar Spirit (Matthias Freudmann Remix)(   Читать дальше...   )Жанр: HouseПродолжительность: 07:25:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F9201EC9784587E4BDC1AAE70527AAF3B3A1A6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182534   (315106) от 11.11.2017
+
+VA - Global DJ Broadcast: Top 20 November (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Markus Schulz Presents Dakota - In Search Of Something Better (Extended Mix)  6:39
+02.  Nifra - Never Forget (Extended Mix)  6:15
+03.  Cosmic Gate & JES - Materia (Extended Mix)  7:11
+04.  Gai Barone - Bus-Hill (Extended Mix)  8:56(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B2E3B60BBD507EE795605AAF32611BEA32A927
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

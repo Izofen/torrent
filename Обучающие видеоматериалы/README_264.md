@@ -20,6 +20,8 @@ Masterclass, Judd Apatow | Judd Apatow teaches comedy (2018) PCRec
 magnet:?xt=urn:btih:8C5C2DD8A7070DAC2A28AF81617049AAD7F4050B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Lifexpert, Алексей Губанов | Защиты. На все случа�
 ```bash
 magnet:?xt=urn:btih:69F2CE7DCF52D5F86D985E7B1AB7305F164A095C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Udemy, Josh Werner, Learn Tech Plus | Front End Web Development Ultimate Course 
 magnet:?xt=urn:btih:25F718D253CB1B3CBDD74CA5977B7C1A42CAE752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ SVS, Will Terry | Painting Texture and Details (2018) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:8FC43E6191513E8C3C9891BABABFB7B84820FBE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ SVS, Jake Parker, Will Terry | Working With Color (2015) PCRec
 magnet:?xt=urn:btih:1F746BC0659F41D70222011A5984F8A21B4C1782
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Udemy, Oleh Koturha | Мобильная съемка и монтаж (2021) WEB
 ```bash
 magnet:?xt=urn:btih:62F10E5CCB368D1BB62353951977C09809BF8573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ c. Целостность информации; структура модели;
 magnet:?xt=urn:btih:FC5500DFE2C900EC291E50A09F3A30F55BBB75F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:FC5500DFE2C900EC291E50A09F3A30F55BBB75F4
 magnet:?xt=urn:btih:329E2094F6D90E9D659EE2FCD8804A0F8F90B213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Udemy, Cristian Calinescu | Windows Server 2019 Hyper-V, Storage, Clustering and
 ```bash
 magnet:?xt=urn:btih:88525572C7763E26479AB65228B1926C07DBD739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ ZBrush – программа для цифрового рисования и «
 magnet:?xt=urn:btih:57B351A6B6202ED29C176407C830A5911A51DCC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Gumroad, Tom Newbury | Texturing Realistic Skin for Characters (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:67638FBA2826E1328616FE8E15AF88F570D28DE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ Gumroad, Tom Newbury | Xgen Hair for Characters (2016) PCRec
 magnet:?xt=urn:btih:879969EA016D5C39DDB9BD53C76A8A92A696A9C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ Gumroad, Tom Newbury | Look Dev Realistic Skin for Characters (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:ACB45F7EBD45F0635CA8F2BFEFF1727851C8EFE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:ACB45F7EBD45F0635CA8F2BFEFF1727851C8EFE9
 magnet:?xt=urn:btih:2AEABE9113DB6F47CE92C6F5F583F86634E87FC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ SVS, Jake Parker | How To Draw Everything version 2 (2017) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:DC00B32EF0375A5970B71CA584DF1B69E2B0D82F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ Udemy, Catalin Stefan | Complete Kotlin development masterclass (2021) PCRec [En
 magnet:?xt=urn:btih:0696CE9A4B8304D64604601D1CD840719EC3AC65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ Udemy, Prateek Narang и др. | Graph Theory Algorithms for Competitive Program
 magnet:?xt=urn:btih:E10467FF1B4529283C5D7DCED1482E93802C23D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ A Cloud Guru / LinuxAcademy | Kali Linux Deep Dive (2021) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:894A98C604C63FA66724C90835E528DDAB6336F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ Unrealskills, Даниил Лихоманов | Unreal Engine 4 (2018) PCRec
 magnet:?xt=urn:btih:E46C9CBCC49E7F2D2AB060D877C729590BC6467A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ Academind Pro, Maximilian Schwarzmüller | Начало работы с Golang /
 magnet:?xt=urn:btih:D7A2DE5CAAFD4AC58D18EB90CF41E6BA070838C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ A Cloud Guru / LinuxAcademy | Introduction to LVM (2021) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:A2E826E092440A47A1BAF0D6552B899F57C844EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ Skillbox, Сергей Корниенко и др. | Веб-вёрстка (2020
 magnet:?xt=urn:btih:41F26AD7EC04A85C09FB78FDDED0F785FADE5620
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:41F26AD7EC04A85C09FB78FDDED0F785FADE5620
 magnet:?xt=urn:btih:6B3F10C7F446FA73B29729051D2FA94F60F4F2DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ JavaScript.Ninja | Мастер-класс: ﻿тестирование Vue-пр
 ```bash
 magnet:?xt=urn:btih:7693E58F9F246085F5C2D057CEDE52FEAB279E98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ Russian Permaculture, Елена Арифулина | Проектируем л�
 magnet:?xt=urn:btih:392E0AB50A3B2A730C9580E7108C67409B072A4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ ReactJS (или просто React) - популярная библиотека 
 ```bash
 magnet:?xt=urn:btih:083BA2D0F2F962E3ED846200408DFCC2D586DBB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Hand of Fate 2 - это «ползание по подземельям» в ст
 magnet:?xt=urn:btih:CFE442186EF56E8FEAD335B4D5B931DE7898C663
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:CFE442186EF56E8FEAD335B4D5B931DE7898C663
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ RG Soft, Uploader 100+
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ RG Soft, Uploader 100+
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ RG Soft, Uploader 100+
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ RG Soft, Uploader 100+
 ```bash
 magnet:?xt=urn:btih:FDA253649AA0A793593D375B15C67BC0160D9894
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Windows 1.0 вышла  40 лет назад — ей хватало 256 Кба�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Windows 1.0 вышла  40 лет назад — ей хватало 256 Кба�
 magnet:?xt=urn:btih:4A295FAFBAD2D96EF241A52B8A1C8BF5DB1ED940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:4A295FAFBAD2D96EF241A52B8A1C8BF5DB1ED940
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:4A295FAFBAD2D96EF241A52B8A1C8BF5DB1ED940
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Metal Gear Solid - The Twin Snakes (RePack/Emul) [En] 2004 (2012) | MarkusEVO
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Left 4 Dead 2 (RePack/2.1.0.3) [Ru/En] 2009 | R.G. BoxPack
 magnet:?xt=urn:btih:24AE660421D68F577878A95660ADA0B09058092E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:24AE660421D68F577878A95660ADA0B09058092E
 magnet:?xt=urn:btih:392EB8C45C7BACFB0AA4E34D309250CA90244E19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:392EB8C45C7BACFB0AA4E34D309250CA90244E19
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ Torchlight 2/II [En] (RePack/Beta/0.22.82) 2012 | Ali213
 magnet:?xt=urn:btih:4EC7CC1BA2EA6F448AC0A5649E45F8AF868BA40C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:4EC7CC1BA2EA6F448AC0A5649E45F8AF868BA40C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:4EC7CC1BA2EA6F448AC0A5649E45F8AF868BA40C
 ```bash
 magnet:?xt=urn:btih:D1D526C26C56387E81A7A40A79D3E0E28FCF58F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:D1D526C26C56387E81A7A40A79D3E0E28FCF58F3
 magnet:?xt=urn:btih:779BBBB3AAD7359C42829E8664B169589B542988
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:779BBBB3AAD7359C42829E8664B169589B542988
 ```bash
 magnet:?xt=urn:btih:2C597596DDAEC67545CEF5E8D28D4338F645D05D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:2C597596DDAEC67545CEF5E8D28D4338F645D05D
 magnet:?xt=urn:btih:4BF90ACF4DC1F32C11CBC18E5C0C47B73B6CC058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:4BF90ACF4DC1F32C11CBC18E5C0C47B73B6CC058
 ```bash
 magnet:?xt=urn:btih:09BF607F59146317DEF5031DBF67D38C865250FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:09BF607F59146317DEF5031DBF67D38C865250FA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:09BF607F59146317DEF5031DBF67D38C865250FA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:09BF607F59146317DEF5031DBF67D38C865250FA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +685,8 @@ Iron Front: Liberation 1944 [Multi6/+] (L) 2012 | RELOADED
 ```bash
 magnet:?xt=urn:btih:47AFA555619E385F11FAB7E01C13E5769828DC48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

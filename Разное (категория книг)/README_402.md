@@ -1,3 +1,29 @@
+###  Публикация: 1039691   (595609) от 01.08.2016
+
+Гай Дойчер | Сквозь зеркало языка. Почему на других языках мир выглядит иначе (2014) [FB2]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595609.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Сквозь зеркало языка» – один из главных научно-популярных бестселлеров последних лет. Почему в некоторых культурах синий и зеленый цвета обозначаются одним и тем же словом? Почему Гомер называл море «виноцветным»? Почему коренные жители Австралии вместо «правый» и «левый» говорят «западный» и «восточный»? Как язык определяет образ жизни человека и судьбу народа? (   Читать дальше...   )Жанр: Популярная лингвистикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9646D1DC789E5DFED04D048895DD5C3A6219ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914858   (595669) от 03.07.2015
 
 Сергей Лачинян | Пиролизная печь "Лачинянка" (2015) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:5DC72E3FDB47232B66E2B13E889924F0493224FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:5DC72E3FDB47232B66E2B13E889924F0493224FE
 magnet:?xt=urn:btih:36C303E4F109D2A756410CF5D1BBC7493953C577
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:36C303E4F109D2A756410CF5D1BBC7493953C577
 ```bash
 magnet:?xt=urn:btih:25280DAC37D720231785C005062B0CF06D4A7794
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:25280DAC37D720231785C005062B0CF06D4A7794
 magnet:?xt=urn:btih:C019C2A59F425A5902C6B8FC2BD3CE8C16BF1D2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:C019C2A59F425A5902C6B8FC2BD3CE8C16BF1D2A
 magnet:?xt=urn:btih:373396823ABD02888953BF3AE986B1F4FE4A2284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ magnet:?xt=urn:btih:373396823ABD02888953BF3AE986B1F4FE4A2284
 ```bash
 magnet:?xt=urn:btih:CFCD1854A733EBA84FE482FE9DD98A988E56C34D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:CFCD1854A733EBA84FE482FE9DD98A988E56C34D
 magnet:?xt=urn:btih:16176A53F0EF16BB7DD281B974A4DD60FBBF8827
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:16176A53F0EF16BB7DD281B974A4DD60FBBF8827
 ```bash
 magnet:?xt=urn:btih:5BEB78AED0945A11DD7972F8E590A0C90ECFFB40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:5BEB78AED0945A11DD7972F8E590A0C90ECFFB40
 magnet:?xt=urn:btih:16272CA8A50D64A6203BC72D3832FD86D9A596F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:16272CA8A50D64A6203BC72D3832FD86D9A596F1
 ```bash
 magnet:?xt=urn:btih:73A67EF86423370B557BF6BEC293D326CC9AC94D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:73A67EF86423370B557BF6BEC293D326CC9AC94D
 magnet:?xt=urn:btih:E5F3C77967B646F5A5D9FDC5BFF10EC93E0EDE24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:E5F3C77967B646F5A5D9FDC5BFF10EC93E0EDE24
 ```bash
 magnet:?xt=urn:btih:2C7B76A2B6A6D8C80DFB6F88F19CE59CB7046D0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:2C7B76A2B6A6D8C80DFB6F88F19CE59CB7046D0C
 magnet:?xt=urn:btih:2E0EC69485EB6F15E7E9F8F231D73653C946BEAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:2E0EC69485EB6F15E7E9F8F231D73653C946BEAA
 magnet:?xt=urn:btih:90B4FA29C2CC18731245D99DCA25C359CAFAF7DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:90B4FA29C2CC18731245D99DCA25C359CAFAF7DA
 ```bash
 magnet:?xt=urn:btih:AE9E1DA8114ABB69C7CE5075F25E8DD4E219D2F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +446,8 @@ magnet:?xt=urn:btih:AE9E1DA8114ABB69C7CE5075F25E8DD4E219D2F2
 magnet:?xt=urn:btih:A30E11256F369220EBB050E68C9198B9B50DE644
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:A30E11256F369220EBB050E68C9198B9B50DE644
 ```bash
 magnet:?xt=urn:btih:F445CB5615286D63CF86674C2E007129328A1188
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:F445CB5615286D63CF86674C2E007129328A1188
 magnet:?xt=urn:btih:27DA2C2FBA57661FF39A6EB41BB55944AD597B78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:27DA2C2FBA57661FF39A6EB41BB55944AD597B78
 ```bash
 magnet:?xt=urn:btih:FE6F5B1A9AF0099B9F00BE0DD9FFF6E6370023CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:FE6F5B1A9AF0099B9F00BE0DD9FFF6E6370023CC
 magnet:?xt=urn:btih:61B7A1E731FCC58B1CB6F0C2E6F4E1F33942483D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:61B7A1E731FCC58B1CB6F0C2E6F4E1F33942483D
 ```bash
 magnet:?xt=urn:btih:8955A875A67444F5CB798AA6B8FB4E7BF05313BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:8955A875A67444F5CB798AA6B8FB4E7BF05313BD
 magnet:?xt=urn:btih:097ABBE5FCFFB887D42AD2067296E0FB356A0673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:097ABBE5FCFFB887D42AD2067296E0FB356A0673
 ```bash
 magnet:?xt=urn:btih:8B235B07B6A6DDD1CEFF0227A12E360607A93D33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:8B235B07B6A6DDD1CEFF0227A12E360607A93D33
 ```bash
 magnet:?xt=urn:btih:CC6ED19A80CE7966EB83E0C4531E68365CE5C783
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:CC6ED19A80CE7966EB83E0C4531E68365CE5C783
 magnet:?xt=urn:btih:8EA2DAD6E9C47B24AEBB12DF05F82B906A003825
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038560   (596982) от 31.07.2016
-
-Клинт Эмерсон | Выживание по методике спецслужб. 100 ключевых навыков (2016) [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_596982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Угроза терроризма, рост криминала, стрельба на улицах - наш мир не становится безопаснее... Как защитить себя, вовремя заметить опасность и избежать ее? Мастер-класс по выживанию в чрезвычайных ситуациях дает один из самых профессиональных спецагентов на планете. Клинт Эмерсон, отставной офицер ВМФ, несколько лет прослуживший в Агентстве национальной безопасности, (   Читать дальше...   )Жанр: Выживание. СпецслужбыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5BA6B10BBD1072237D4FD20425484C2967E7DCE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

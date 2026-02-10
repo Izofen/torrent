@@ -20,6 +20,8 @@ Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi | The Great Cler
 magnet:?xt=urn:btih:6FE6284C5403D801BAE8FD929DB1958A9C2E2567
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ From North - Raven Banner (2023) [FLAC|Lossless|image + .cue] <Folk, Viking Meta
 magnet:?xt=urn:btih:0A5928A18402E482DBF14FAF8379F41CF783D244
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:0A5928A18402E482DBF14FAF8379F41CF783D244
 ```bash
 magnet:?xt=urn:btih:2F5A58964B35DA8168BB1AB273AB05CAA0913997
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Bessemer Saints - This Is BS Too (2024) [MP3|320 Kbps] <Hard Rock>
 magnet:?xt=urn:btih:621BC231937AE16D521213C926314C77D50013FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:621BC231937AE16D521213C926314C77D50013FB
 magnet:?xt=urn:btih:699B1CBD37DB766219EFB9C5CE572DE28D76397B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:699B1CBD37DB766219EFB9C5CE572DE28D76397B
 ```bash
 magnet:?xt=urn:btih:B15FB7A7C2ED2CAF9DBD670716D720FFA67444F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Meldis - Отдохни, волшебник (2006) [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:BCD7F125A7A3FF1C24453563256BFA0A6ABC306D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:BCD7F125A7A3FF1C24453563256BFA0A6ABC306D
 magnet:?xt=urn:btih:55D8780D56AC893BF4813F2A13E833A21E1F4969
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:BD4149CF0287E9D6BB2D9F049D49ADBBFD68941E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:BD4149CF0287E9D6BB2D9F049D49ADBBFD68941E
 ```bash
 magnet:?xt=urn:btih:768D2C1B51C1CDB792DF819AE1E7679A3E4D4FCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:768D2C1B51C1CDB792DF819AE1E7679A3E4D4FCE
 magnet:?xt=urn:btih:B650D1FBB89FBB513934054EFEB68267821FE868
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:B650D1FBB89FBB513934054EFEB68267821FE868
 ```bash
 magnet:?xt=urn:btih:163F4E10CAF128159753A825528CFAB3160AF502
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ Jitsu wa Ore, Saikyou Deshita? | Am I Actually the Strongest? | Я что, си�
 magnet:?xt=urn:btih:A1F894B8BC835E2A6992E06545A178A43CE7CFD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:A1F894B8BC835E2A6992E06545A178A43CE7CFD8
 magnet:?xt=urn:btih:2C9130B9C5C6A9386F0B5F256D22BC693C3673D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:78618380DE217D3CE5E21DA7DF2AC97CE7F5FE80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:78618380DE217D3CE5E21DA7DF2AC97CE7F5FE80
 magnet:?xt=urn:btih:97E7AE8E76FFD61AAAA42E446D47235ADE00EF57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ The Quintessential Quintuplets ∽ | Go-Toubun no Hanayome~ | Пять неве�
 ```bash
 magnet:?xt=urn:btih:478C5B6AC7DCB73308E76E51A26066DE466C3890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:478C5B6AC7DCB73308E76E51A26066DE466C3890
 magnet:?xt=urn:btih:FC2274558EBF0471B9F79FBA88ADCA55C808D767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ Yumemiru Danshi wa Genjitsushugisha | The Dreaming Boy is a Realist | Из ме�
 ```bash
 magnet:?xt=urn:btih:954EBCE88BA2C7C157A4E88551A5D1C4372A989E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 magnet:?xt=urn:btih:77A26A797E298BB6B1A436A8D1312D182D5979A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ Liar Liar | Лжец Лжец [2023, TV, 12 эп.] BDRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:2EF90FCE6E0C85E538C0E46014AC8018210A8E9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:2EF90FCE6E0C85E538C0E46014AC8018210A8E9F
 magnet:?xt=urn:btih:4F374BD6171BC757A62565883CB95A7F22EC2E7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ Lv1 Maou to One Room Yuusha | Level 1 Demon Lord and One Room Hero | Однуш�
 ```bash
 magnet:?xt=urn:btih:C4A486169107C109D1FD3BCEEB1ACF2A59973953
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:C4A486169107C109D1FD3BCEEB1ACF2A59973953
 magnet:?xt=urn:btih:643A0AE56D905C969E36BEB71AB33712E1E9E4BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ Oshi no Ko | Звёздное дитя [ТВ-1] [2023, TV, 11 эп.] BDRip 1080p
 ```bash
 magnet:?xt=urn:btih:933E02BCA1BAE7148C3FE33E81F2753455806698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +692,8 @@ Tenpuru | Храм [2023, TV, 12 эп. + 2 SP] BDRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:AC2459A6406B6231C077F63FF3FB580582F37FF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

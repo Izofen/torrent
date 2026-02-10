@@ -22,6 +22,8 @@ VA - Electronica Confessions, Vol. 3 (2014) [MP3|320 Kbps] <Electro, House>
 magnet:?xt=urn:btih:445E4C86A07431877A12A7D3E8E2B7F43E318A62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:445E4C86A07431877A12A7D3E8E2B7F43E318A62
 ```bash
 magnet:?xt=urn:btih:7B791C2D7E630BB526DED5DD58600469497FFCD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Koan - The Queen of Spades (Side A) (2024) [FLAC|Lossless|WEB-DL|tracks] <Chillo
 magnet:?xt=urn:btih:C5D4B2D1B6312A79A59C089743AD975B8199A3E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 ```bash
 magnet:?xt=urn:btih:C74072842F842E328D66B1A1472F455F55CA532F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:C74072842F842E328D66B1A1472F455F55CA532F
 magnet:?xt=urn:btih:4692B786A51324C4BB6B4265058FFB3828B82B8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:4692B786A51324C4BB6B4265058FFB3828B82B8D
 ```bash
 magnet:?xt=urn:btih:170CCA00508F37A916425240526EF5D1600A52D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ VA - Electronica Confessions, Vol. 2 (2014) [MP3|320 Kbps] <Electro, House>
 magnet:?xt=urn:btih:FD585FD3D174032A00C4A60A263182B8683A05F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Catalepsia - World of Cliche (2015) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom,
 ```bash
 magnet:?xt=urn:btih:2AE536AAA8666B98393F2AD03F004505917F54F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ A4 - Future Tense - Nightmare(   Читать дальше...   )Жанр: Thras
 magnet:?xt=urn:btih:8962A3FA23FAF082D27D98356F9FDD801CB07B00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:8962A3FA23FAF082D27D98356F9FDD801CB07B00
 ```bash
 magnet:?xt=urn:btih:DECDFFC282FF2DD7FAC7FB9FCAC8CA5ABFC181DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ Catalepsia - Pavisam (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Doom, Death M
 magnet:?xt=urn:btih:C0DD3476F71165003ADF27858C59849A9C4C675B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ Malachi Thompson & Africa Brass - Buddy Bolden's Rag (1995) Delmark Records [FLA
 ```bash
 magnet:?xt=urn:btih:C789486F88EE2C8289B4DD8B40B34678EA66B1E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +358,8 @@ Ricky Ford - Manhattan Blues (1989) Candid [FLAC|Lossless|tracks + .cue] <Hard B
 magnet:?xt=urn:btih:981CD43EDC0584BC31FFD5F339817E11CF9CBFA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ Bismarck - Vourukasha (2024) [FLAC|Lossless|WEB-DL|tracks] <doommetal, stoner, s
 ```bash
 magnet:?xt=urn:btih:C9957F0FEA4462AE88BC1439F57E16C67574F0C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +416,8 @@ Alex Sipiagin - Balance 38-58 (2015) Criss Cross Jazz [FLAC|Lossless|tracks + .c
 magnet:?xt=urn:btih:2C91258379944A7A632284EB78339D420E189037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +441,8 @@ Soul Browser - добротный браузер, что несмотря на �
 ```bash
 magnet:?xt=urn:btih:FE210966B11A17F9A4041D3B6585F78D7638F008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +468,8 @@ magnet:?xt=urn:btih:FE210966B11A17F9A4041D3B6585F78D7638F008
 magnet:?xt=urn:btih:C07EADA22DF5CEE101F48ADBF7DBDF7AECF0DAF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ magnet:?xt=urn:btih:C07EADA22DF5CEE101F48ADBF7DBDF7AECF0DAF2
 ```bash
 magnet:?xt=urn:btih:51710D923E6BABF1F2CA33D68353D762E6CCD0F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +523,8 @@ Sensual Lounge Music Universe, Jazz Lounge Zone - Deep Sexy Jazz Lounge (2024) [
 magnet:?xt=urn:btih:8E775D19CEB5D8A30A1A6C59BC2ACBB552CC67CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +549,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 magnet:?xt=urn:btih:326CFCFCFA635723CB7B44672909FE6250B0CC2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +574,8 @@ Pixomatic - это мощный фоторедактор для Android устр
 ```bash
 magnet:?xt=urn:btih:2F9C86C4A3DA493C03723A99365D61EE1FCB20E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +604,8 @@ VA - Good Morning Best Chillout Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Loun
 magnet:?xt=urn:btih:4A5669BC3B8A8A1E8B36812949BA0586891C6867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ TAL-Pha — инструментальный плагин, имитирующи�
 magnet:?xt=urn:btih:23CE95B731FCF1B810A6E2630F7EFBAB0E29915A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +656,8 @@ TAL-J-8 от популярного разработчика эмуляций в
 ```bash
 magnet:?xt=urn:btih:E66DAAD4BEB8CB3181816BD0F4A72AD6A0614B09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +686,8 @@ Karsten Bagge, Claus Waidtløw, Jesper Bodilsen - The Song Remains (A Jazz Tribu
 magnet:?xt=urn:btih:D90CCD034E24CA5AE28A097F3BC03C5E3081E27F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ magnet:?xt=urn:btih:D90CCD034E24CA5AE28A097F3BC03C5E3081E27F
 ```bash
 magnet:?xt=urn:btih:91D19C869020CF116330B8CF932A86C74F1032C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

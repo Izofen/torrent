@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E2D7961AC16377A73C7CDAB46CE81C59A9D98836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Half-Life 2 / Rock 24 [Ru/En] (P/Mod) 2004-2007
 magnet:?xt=urn:btih:8DC8C0B62FD53EEA944F0CD179A28360AF2655BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:8DC8C0B62FD53EEA944F0CD179A28360AF2655BC
 ```bash
 magnet:?xt=urn:btih:8DC3AE23A228DB6E697162A42E61615529172512
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ A Boy and His Blob [Wii] [PAL] [Multi 5] (2009)
 magnet:?xt=urn:btih:996DE9DA6DD972ADE19234E8D7CAF1369DFDEF04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:996DE9DA6DD972ADE19234E8D7CAF1369DFDEF04
 magnet:?xt=urn:btih:126F6FB6F5D88B9AB1DB327F135F0E31AA4C399B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:126F6FB6F5D88B9AB1DB327F135F0E31AA4C399B
 ```bash
 magnet:?xt=urn:btih:264E209A734A27A1A44B442DD8A01650B6168896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:264E209A734A27A1A44B442DD8A01650B6168896
 magnet:?xt=urn:btih:EE4165D383A4AB0860B59F543EA8630A26FD27FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Opera 57.0.3098.91 [Multi/Ru]
 magnet:?xt=urn:btih:3075D84FB0B8C2DA71CF72759937A8EC151EA8C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:3075D84FB0B8C2DA71CF72759937A8EC151EA8C9
 ```bash
 magnet:?xt=urn:btih:E9D72D884BC74457C1C1EA69E460F5F3024488C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Paul Van Dyk - Music Rescues Me (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:60DD4FF16A5478FB91CA018892A41705E96C540F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:60DD4FF16A5478FB91CA018892A41705E96C540F
 magnet:?xt=urn:btih:A9FBAE5527E5990E05F10205BA26561E6F2100A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:A9FBAE5527E5990E05F10205BA26561E6F2100A7
 magnet:?xt=urn:btih:04AC63185AAE682353C75778005E856E6B2FA896
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:04AC63185AAE682353C75778005E856E6B2FA896
 ```bash
 magnet:?xt=urn:btih:0475C40EA4CB5785A9373218040BAF55CF821637
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ VA - Time Of Revelation: Hard Rock Box (2018) [MP3|320 Kbps] <Hard Rock, Alterna
 magnet:?xt=urn:btih:D3F464BE55ED4C30DBCEB1623CB975BC5EE3BED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:D3F464BE55ED4C30DBCEB1623CB975BC5EE3BED1
 ```bash
 magnet:?xt=urn:btih:C343BF903B507F3531011A8C27065D8410843956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ Van Morrison - The Prophet Speaks (2018) [MP3|320 Kbps] <Blues, Jazz>
 magnet:?xt=urn:btih:7502D5606A34E9F530D4D1CFE031C3881B813BE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:7502D5606A34E9F530D4D1CFE031C3881B813BE7
 magnet:?xt=urn:btih:E02C58EAED41CAD7037D81D1F5FF445FD935F0A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:E02C58EAED41CAD7037D81D1F5FF445FD935F0A4
 ```bash
 magnet:?xt=urn:btih:18EED00DD00D3BC36E1250BB28C9CE5D009AA830
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:18EED00DD00D3BC36E1250BB28C9CE5D009AA830
 magnet:?xt=urn:btih:BD2571F93BC29253EDD9EF84E145688F392D9E4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ WinUtilities - системный набор для настройки ваше�
 magnet:?xt=urn:btih:555337B0013E7832865558116F8F420414B91A00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:555337B0013E7832865558116F8F420414B91A00
 ```bash
 magnet:?xt=urn:btih:AFE9EB6B1AD55F16F1A450CFB1C4A4E79AA7F2C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ VA - Sunset Meditation: Relaxing Chill Out Music Vol.6 (2018) [MP3|320 Kbps] <Do
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ Sweet Inspirations - Hot Butterfly (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:8170B535D37028528EF5020D9409A51C98F1200A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ Soulfly - Ritual (2018) [WavPack|Lossless|image + .cue] <Groove Thrash Metal>
 magnet:?xt=urn:btih:0BBF7C53EFF913809EBC75638B0DCC4351AC9DDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ VA - Billboard Hot 100 Singles Chart 08.12.2018 (2018) [MP3|320 Kbps] <Pop, Danc
 magnet:?xt=urn:btih:CE5474F0062E94BFB1E9AAC153C5D2FE9DEEDA6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:CE5474F0062E94BFB1E9AAC153C5D2FE9DEEDA6B
 ```bash
 magnet:?xt=urn:btih:B0E82AF2BC7D9CFCAA01087D73843B17B87E90E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

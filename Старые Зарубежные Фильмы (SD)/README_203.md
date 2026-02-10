@@ -1,27 +1,3 @@
-###  Публикация: 1369658   (901614) от 24.03.2020
-
-Жесткач / Hardcore (1978) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отправившись в школьную поездку, единственная дочь-подросток из кальвинистской семьи пропадает без следа. Полиция бессильна, отец убит горем. Проходит время, и в руки нанятого частного детектива попадает порнофильм, где девушка занимается сексом с двумя парнями. Теперь, чтобы найти беглянку, её отцу придётся лично столкнуться с бурно цветущей секс-индустрией Америки (   Читать дальше...   )Производство: США / A-Team, Columbia Pictures CorporationЖанр: Драма, КриминалРежиссер: Пол ШредерАктеры: Джордж К. Скотт, Питер Бойл, Сизон Хабли, Дик Сарджент, Леонард Гейнс, Дэйв Николс, Гари Грэхэм, Ларри Блок, Марк Алаймо, Лесли ЭкерманПеревод: Одноголосый любительский, Никита СевастьяновСубтитры: Русские, английскиеПродолжительность: 01:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B379315A22ADCABBF31FF188226EF0CF11850150
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 866937   (902322) от 08.02.2015
 
 Голубая бездна / Le grand bleu (1988) BDRip [H.264] [Director's Cut]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:B379315A22ADCABBF31FF188226EF0CF11850150
 ```bash
 magnet:?xt=urn:btih:E880CF667DAFC444F81993324BF33BC8B50E124D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:E880CF667DAFC444F81993324BF33BC8B50E124D
 magnet:?xt=urn:btih:A79324A7CFB13E09AA06C996B05683FF2EBB8E56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:A79324A7CFB13E09AA06C996B05683FF2EBB8E56
 magnet:?xt=urn:btih:ABF0587C0E72E4287F93EBA674AEC407CD7B5233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +96,8 @@ magnet:?xt=urn:btih:ABF0587C0E72E4287F93EBA674AEC407CD7B5233
 ```bash
 magnet:?xt=urn:btih:1DE91959C590E72D79F3984D4E5073518F260BDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:1DE91959C590E72D79F3984D4E5073518F260BDF
 magnet:?xt=urn:btih:EC1C657A13DA8521D7DAAB0DD94BD757FDC541B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:EC1C657A13DA8521D7DAAB0DD94BD757FDC541B0
 ```bash
 magnet:?xt=urn:btih:62201F96F13699D4B5E6F2D5865E58616C298BA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:62201F96F13699D4B5E6F2D5865E58616C298BA4
 magnet:?xt=urn:btih:D39A189C5D2E098A5053C66FE2AA1141150788DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:D39A189C5D2E098A5053C66FE2AA1141150788DB
 ```bash
 magnet:?xt=urn:btih:C56415B291C27817C542D6DDD486641ECA2C24DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:C56415B291C27817C542D6DDD486641ECA2C24DA
 magnet:?xt=urn:btih:D6C8545F74946B43997FC4846A94EF47144F9733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:D6C8545F74946B43997FC4846A94EF47144F9733
 ```bash
 magnet:?xt=urn:btih:5B1C92A16A5D10491EF7209D374A5C04BF863463
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:5B1C92A16A5D10491EF7209D374A5C04BF863463
 magnet:?xt=urn:btih:02EB6B62DA396FC32554F0A34DAA7E6D575A792C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:02EB6B62DA396FC32554F0A34DAA7E6D575A792C
 ```bash
 magnet:?xt=urn:btih:EC27AE92B521AC92D3C4853AB811A355D145FD67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +333,8 @@ magnet:?xt=urn:btih:EC27AE92B521AC92D3C4853AB811A355D145FD67
 magnet:?xt=urn:btih:3F329B2BBB7FE96C876A28D1A4773DA1EE576FF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:3F329B2BBB7FE96C876A28D1A4773DA1EE576FF2
 ```bash
 magnet:?xt=urn:btih:A9301A7D054B24C210B128F93673A4DAB8A5E5C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +385,8 @@ magnet:?xt=urn:btih:A9301A7D054B24C210B128F93673A4DAB8A5E5C3
 magnet:?xt=urn:btih:6B48B05D54048530459A25F0F77DE05D3767B5A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +410,8 @@ magnet:?xt=urn:btih:6B48B05D54048530459A25F0F77DE05D3767B5A3
 ```bash
 magnet:?xt=urn:btih:A55B8DA08C2DD21A35AE5B438CD92755AB9B5685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +439,8 @@ magnet:?xt=urn:btih:A55B8DA08C2DD21A35AE5B438CD92755AB9B5685
 magnet:?xt=urn:btih:0D81E05862A3B126F6B5809647B1620C4D01667D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +464,8 @@ magnet:?xt=urn:btih:0D81E05862A3B126F6B5809647B1620C4D01667D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +491,8 @@ magnet:?xt=urn:btih:0D81E05862A3B126F6B5809647B1620C4D01667D
 magnet:?xt=urn:btih:CA72784D7AE62CA8C12C5BD79BE0320223681FA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +517,8 @@ magnet:?xt=urn:btih:CA72784D7AE62CA8C12C5BD79BE0320223681FA2
 magnet:?xt=urn:btih:0F50B3DCEA18FF5895E1EE5671DADB3B0C3822DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +542,8 @@ magnet:?xt=urn:btih:0F50B3DCEA18FF5895E1EE5671DADB3B0C3822DD
 ```bash
 magnet:?xt=urn:btih:1434BD4B950C8A15BA0815657B7FA3B85E598220
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +570,8 @@ magnet:?xt=urn:btih:1434BD4B950C8A15BA0815657B7FA3B85E598220
 magnet:?xt=urn:btih:2375DE259EA5EFE62D43EEE925462C5B7EBD0C58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +595,8 @@ magnet:?xt=urn:btih:2375DE259EA5EFE62D43EEE925462C5B7EBD0C58
 ```bash
 magnet:?xt=urn:btih:FB4D46B5018FA95CFF3BC6312F23088AD955DA5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +623,8 @@ magnet:?xt=urn:btih:FB4D46B5018FA95CFF3BC6312F23088AD955DA5C
 magnet:?xt=urn:btih:493C5559CA1B7EE6BEA283F2F212877FF5291F49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +648,34 @@ magnet:?xt=urn:btih:493C5559CA1B7EE6BEA283F2F212877FF5291F49
 ```bash
 magnet:?xt=urn:btih:C9A766A22808C0CE027999A114EF699ED6E75B4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991710   (905844) от 28.02.2016
+
+Шпион, встань / Espion, leve-toi (1981) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жил-был шпион, который вовсе не шпионил, а тихо занимался своей буржуазной работой в офисе и давно уже позабыл, что он "засланный" и когда-нибудь придет время и о нем вспомнят. Таковым был Себастьен Гренье (Вентура). Но прошлое вторглось в его обывательское существование и перевернуло все с ног на голову. Вокруг стали погибать знакомые люди, погибла и подруга (   Читать дальше...   )Производство: Франция, Швейцария, Cathala Productions, TF1 Films ProductionЖанр: Триллер, Драма, ШпионскийРежиссер: Ив БуассеАктеры: Лино Вентура, Мишель Пикколи, Бруно Кремер, Кристина Янда, Дитер Моор, Пьер Боффети, Филипп БризарПеревод: Двуголосый закадровыйПродолжительность: 01:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D634A2F3A6BCD9ECCB7B8EFB5F79273804614AF
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

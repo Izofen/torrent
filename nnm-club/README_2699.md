@@ -22,6 +22,8 @@ Drohkaal - Divinity Within (2024) [MP3|320 Kbps] <Thrash, Heavy Metal>
 magnet:?xt=urn:btih:3F53E36E7E7155E0A3242740D16BE4E1A347FE49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Dick Hyman - Face The Music: A Century Of Irving Berlin (1988) Musicmasters [FLA
 ```bash
 magnet:?xt=urn:btih:CAC47447E064C8191648AFFA4ACC2AB87C1D81DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Bill Moio - Try This (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:6AC878647C4AB8A8A7F8C6ABFD38B838FBA98789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Nico's Trio - Standard's Line (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz
 ```bash
 magnet:?xt=urn:btih:4C6316D6F733E33A33529BCC0D2723BB042277DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Kimmo Salminen - Love House (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:F3A2784B8C9BEDE03AA137470083C804A068DD1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ The Buddy Rich Big Band - Mercy, Mercy (1968) 1997, Pacific Jazz [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:0795046B0B694D972E056907C36F82451CDC4CEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Jean-Maxime Pinta Quintet - For the Peace (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:E1BA949307E9E8779EA76AA73970571057AFD57D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ John Hicks Quartet - Naima's Love Song (1988) DIW Records [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:D0DB5C042E4D70F2229C5DAF1C4A4C8296E2E126
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ The James Williams Magical Trio - Awesome! (1997) 2000, DIW Records [FLAC|Lossle
 magnet:?xt=urn:btih:FC7FB81C21FB9773F65B19EA0C971540CAA8787E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ Art Farmer & Slide Hampton - In Concert (1984) 1995, Enja Records [FLAC|Lossless
 magnet:?xt=urn:btih:26E6D055A95FE63487323AF55F09E8A261AEDBA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ Artisinal, не путать с термином artisanal, это наше во
 magnet:?xt=urn:btih:8DDB230FC748D44AC13B65AE79B69B41C8665EAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ magnet:?xt=urn:btih:8DDB230FC748D44AC13B65AE79B69B41C8665EAC
 ```bash
 magnet:?xt=urn:btih:A0714B253483A8B4B4FEAB2A0F9477417626B643
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +363,8 @@ Broken Rules — это дерзкий антидизайнерский шриф
 magnet:?xt=urn:btih:7E78DEF45CFA0C7351A60854720D399AD678BA52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +391,8 @@ magnet:?xt=urn:btih:7E78DEF45CFA0C7351A60854720D399AD678BA52
 magnet:?xt=urn:btih:F324FE704BC5DF58EB6A41F8777694FC3DE39C0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +416,8 @@ magnet:?xt=urn:btih:F324FE704BC5DF58EB6A41F8777694FC3DE39C0A
 ```bash
 magnet:?xt=urn:btih:0BBACA1CFCF93E62C4DFF6E6C25FA91DE6CC11BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +443,8 @@ magnet:?xt=urn:btih:0BBACA1CFCF93E62C4DFF6E6C25FA91DE6CC11BC
 ```bash
 magnet:?xt=urn:btih:514E3F90E186F0B7EE938A84FD466A8F76AC8D2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +472,8 @@ magnet:?xt=urn:btih:514E3F90E186F0B7EE938A84FD466A8F76AC8D2A
 magnet:?xt=urn:btih:EF35C94E2C0727FCC65791660CA28C7244DD66F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +498,8 @@ magnet:?xt=urn:btih:EF35C94E2C0727FCC65791660CA28C7244DD66F5
 ```bash
 magnet:?xt=urn:btih:26D6CE9A0CAEEA59AD8A8B639ED1AEEB0CBFD634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +528,8 @@ magnet:?xt=urn:btih:26D6CE9A0CAEEA59AD8A8B639ED1AEEB0CBFD634
 magnet:?xt=urn:btih:7E51731D7A71AD27F965FFD7ADF1CAB73622378F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +556,8 @@ Days of Jupiter - The World Was Never Enough (2025) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:876E79B18088AF978E56892DD3923D8909785469
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +586,8 @@ Wild Love Tigress - On The Prowl (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Fun
 magnet:?xt=urn:btih:16E4E93B244307CBE15517D32AFA1DB88E989DA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +614,8 @@ Natia - The Album (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:183BA2B0B4CFBACA211F6EF85D015303D4F2C538
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +644,8 @@ Sharks - Live In Providence / The Car Crash Tapes (2025) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:3CB068A13B6DE6B15CC262694822677E5CBF4FDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +672,8 @@ VA - Into the Holiday Groove - A Qobuz Exclusive (2024) [FLAC 24/44.1|Lossless|W
 ```bash
 magnet:?xt=urn:btih:B70FFB3463D23A77ECFA1460BA14B63B20E8A530
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +702,8 @@ Thy Row - Unchained (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy 
 magnet:?xt=urn:btih:E3EF8F533CA232D6CA9590F09D9C445612B7060E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -680,6 +730,8 @@ To Be or Not - Echoes of Answer (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vo
 ```bash
 magnet:?xt=urn:btih:76724FFDD5AEC79BF467FB56F80E931C35369BE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

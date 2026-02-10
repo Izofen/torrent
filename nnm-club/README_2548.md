@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:1CABBA9333CC6B2AA75A26F200D4559038104483
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Tom Wax - The Future Is Now (2025) [MP3|320 Kbps] <Techno, Hard Trance, House>
 ```bash
 magnet:?xt=urn:btih:A931B0F79ACAD9BFC7CF1B98D0079FD42664B0C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Tom Wax - The Future Is Now (2025) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Tec
 magnet:?xt=urn:btih:ABC2A2EBAC17608C892E214073340527EE13D164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:ABC2A2EBAC17608C892E214073340527EE13D164
 ```bash
 magnet:?xt=urn:btih:C231BEFBB3D49B0E62BBDEB88D579E633E9C6794
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Finch - Galleons Of Passion (1977) Japanese Edition, Reissue, Remastered, 2007, 
 magnet:?xt=urn:btih:B65A3EA9A691988D7BDD5FB44858D0737DBF3CFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:B65A3EA9A691988D7BDD5FB44858D0737DBF3CFE
 ```bash
 magnet:?xt=urn:btih:2CA5726D9841EDC2A90156A5A3506FFD388078B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:2CA5726D9841EDC2A90156A5A3506FFD388078B5
 magnet:?xt=urn:btih:7282B4E7DD6CABAC8794C18F54E685C0752A4A75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:7282B4E7DD6CABAC8794C18F54E685C0752A4A75
 ```bash
 magnet:?xt=urn:btih:233DEC8D524FEDF63A8801E9371C58D3CD5FFC5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Eric Bell - Authenticity (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:61B74DA9231EB5E82EF78A6B05CF58A8B973DE57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Mateo Ortega - Close To Me (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:270C8073D97D63951F609CD5C3FE2AAF6FE295A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Jimmy Adler - It's Hot! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:7166EC09B34F47333242AE64D395C8A522D68506
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ Bloodtooth - Bloodtooth (2025) [MP3|320 Kbps] <Industrial Black, Death Metal>
 magnet:?xt=urn:btih:95A36FE7FA53A60244C754AFB8DA04E043DAFBD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ magnet:?xt=urn:btih:95A36FE7FA53A60244C754AFB8DA04E043DAFBD4
 magnet:?xt=urn:btih:B834BFA02CAC90C84DBB640F47DC935083580049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +393,8 @@ magnet:?xt=urn:btih:B834BFA02CAC90C84DBB640F47DC935083580049
 ```bash
 magnet:?xt=urn:btih:C1B1A32296BA8959743B280CB681996872D23DC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +423,8 @@ She Brought Me Gasoline - Songs from the Cliff (2025) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:02069CCDDCE5FAB4BD6278D5364EF8172DF8D0C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +451,8 @@ Ricky Byrd - NYC Made (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:C307F0E633F1029CDA898E09FD0222C3DFFEEA09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +481,8 @@ The Gliding Faces - Veritas (2025) [MP3|320 Kbps] <Electropop>
 magnet:?xt=urn:btih:15F84501F958667804F90A9E98B182975EC862BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +506,8 @@ magnet:?xt=urn:btih:15F84501F958667804F90A9E98B182975EC862BB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +533,8 @@ magnet:?xt=urn:btih:15F84501F958667804F90A9E98B182975EC862BB
 ```bash
 magnet:?xt=urn:btih:B06B73AD18B50AE2A95155AA03B378A38A3D5B8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +563,8 @@ Christopher Cross - Christopher Cross (1979) Expanded Edition, 2025, Warner Reco
 magnet:?xt=urn:btih:E2734FBF22D41CFBA6779378FA0CA98EC4EE724E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +591,8 @@ The Love Dogs - Get Off My Lawn (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:901CF732DEB38BD69431AE01FBC2227F06D12E78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +621,8 @@ Adam Beyer & Vintage Culture - Drumcode Radio 769(The Drumsheds London, United K
 magnet:?xt=urn:btih:76043B1DA335A8F4B0C21B64CAB01FB5EBB6FE56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +649,8 @@ Arch Enemy - Deceivers (2022) [FLAC|24/96|tracks|Vinyl-Rip] <Melodic Death Metal
 ```bash
 magnet:?xt=urn:btih:4462BA1B631DF2D8E68FCFE6C155D06431F4DFE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +679,8 @@ CD4 - The Meaning Of Life(   Читать дальше...   )Жанр: Thrash Me
 magnet:?xt=urn:btih:B4DCA57F6CAE20A240B7CE1806D901C7935A581E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +708,8 @@ The DownShifters - Blues / Roots / Wellness (2025) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:EE6E309054A31FD936670EC0C0BE4D48799D0DC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,6 +736,8 @@ Oli Zangl - Take me home (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:1C2A8E21B349FE60D044AB6780CD6EB4401F1A51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

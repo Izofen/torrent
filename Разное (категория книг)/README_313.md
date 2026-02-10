@@ -1,3 +1,29 @@
+###  Публикация: 1162389   (458768) от 01.09.2017
+
+Е. Афанасова | Готовим вино, наливки, настойки (2017) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_458768.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы начнете процесс приготовления вина или настойки в июне, то уже через пару месяцев сможете удивить своих близких и друзей ароматным малиновым вином или сливовой настойкой с персиками. В период осенней непогоды вы насладитесь ароматами лета, частичкой его тепла и хорошего настроения.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D24DECD6E30F2149523354DE05B47935E230D91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162290   (458774) от 01.09.2017
 
 Бор Стенвик | Все мы врём. Как ложь, жульничество и самообман делают нас людьми (2016) [PDF, EPUB]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:E3CC5787A968A5DAB0FFAE3DFBC9EC6AB7A22ED4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:E3CC5787A968A5DAB0FFAE3DFBC9EC6AB7A22ED4
 ```bash
 magnet:?xt=urn:btih:C2E15358833DD501E6BF81A927208CB3DA5DD631
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:C2E15358833DD501E6BF81A927208CB3DA5DD631
 magnet:?xt=urn:btih:3D9D6AFFC6BA37340214D0F6B571DABECB209E6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:3D9D6AFFC6BA37340214D0F6B571DABECB209E6A
 magnet:?xt=urn:btih:8A42940DEEB27C3342E9BFA513CC0D0A438100D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:8A42940DEEB27C3342E9BFA513CC0D0A438100D4
 ```bash
 magnet:?xt=urn:btih:45448D706C93F36B02667AAF9C9BD52BE33443DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:45448D706C93F36B02667AAF9C9BD52BE33443DD
 magnet:?xt=urn:btih:C1AC72AC6DF1EB8D717231E6531782EF89B4D08C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:C1AC72AC6DF1EB8D717231E6531782EF89B4D08C
 magnet:?xt=urn:btih:5990DBAF4728BECCD5D7189C32F8B56C78731ED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:5990DBAF4728BECCD5D7189C32F8B56C78731ED2
 ```bash
 magnet:?xt=urn:btih:92450FFD8D4FF46977E36C78346E537BFBF08E72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:92450FFD8D4FF46977E36C78346E537BFBF08E72
 magnet:?xt=urn:btih:D122ACF8400139DF6A668B9549C5C44F7941CB90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:D122ACF8400139DF6A668B9549C5C44F7941CB90
 ```bash
 magnet:?xt=urn:btih:604DD3C546395E73C05220001AAF387ED75ED13A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +316,8 @@ magnet:?xt=urn:btih:604DD3C546395E73C05220001AAF387ED75ED13A
 magnet:?xt=urn:btih:B19141D389EEE728476CD1086DC6C5CA882AF14B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +342,8 @@ magnet:?xt=urn:btih:B19141D389EEE728476CD1086DC6C5CA882AF14B
 ```bash
 magnet:?xt=urn:btih:FACBBC4997BABD934FE3E416F8C3FB0448C35B1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +371,8 @@ magnet:?xt=urn:btih:FACBBC4997BABD934FE3E416F8C3FB0448C35B1B
 magnet:?xt=urn:btih:758C3EA0696144467ED2F9ACAB3F9C20901F0856
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +399,8 @@ magnet:?xt=urn:btih:758C3EA0696144467ED2F9ACAB3F9C20901F0856
 magnet:?xt=urn:btih:D5A02AAD4A5DB95F3F23AE2AF669FAFB06DF2D24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +426,8 @@ magnet:?xt=urn:btih:D5A02AAD4A5DB95F3F23AE2AF669FAFB06DF2D24
 magnet:?xt=urn:btih:32F805D0352CF17EA7351198E620DFC3D3FF925A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +452,8 @@ magnet:?xt=urn:btih:32F805D0352CF17EA7351198E620DFC3D3FF925A
 magnet:?xt=urn:btih:4AA6A8FA1FCEA5F423E65EAC5127CBBD7835CDBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +477,8 @@ magnet:?xt=urn:btih:4AA6A8FA1FCEA5F423E65EAC5127CBBD7835CDBF
 ```bash
 magnet:?xt=urn:btih:0AA4C6E7BDC712C608CB898A9E6B5B5681543D51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +505,8 @@ magnet:?xt=urn:btih:0AA4C6E7BDC712C608CB898A9E6B5B5681543D51
 magnet:?xt=urn:btih:E5DBC56A4533F78D36ED4D8706535BCDA3F3E9A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +530,8 @@ magnet:?xt=urn:btih:E5DBC56A4533F78D36ED4D8706535BCDA3F3E9A2
 ```bash
 magnet:?xt=urn:btih:7170A4CEB2DE4B06CFEFFD7E041200F73D1A65D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +560,8 @@ magnet:?xt=urn:btih:7170A4CEB2DE4B06CFEFFD7E041200F73D1A65D7
 magnet:?xt=urn:btih:5F30A1AA9D605E4DEA4B0926F0A9531556344017
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +585,8 @@ magnet:?xt=urn:btih:5F30A1AA9D605E4DEA4B0926F0A9531556344017
 ```bash
 magnet:?xt=urn:btih:589F27F70A83A4846CB0661CF4996433B8E64AA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +612,8 @@ Corpus Scriptorum Ecclesiasticorum Latinorum - критическое издан
 magnet:?xt=urn:btih:85B038AFF37130CFEEA46E5A17F0FB0777B55245
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +637,8 @@ magnet:?xt=urn:btih:85B038AFF37130CFEEA46E5A17F0FB0777B55245
 ```bash
 magnet:?xt=urn:btih:2AA487387C1865798BDDDE76C4D81C7D3E52024D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +665,8 @@ magnet:?xt=urn:btih:2AA487387C1865798BDDDE76C4D81C7D3E52024D
 magnet:?xt=urn:btih:C93A58BCE6F72A31FF3CF77D9AD127411D0245D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,29 +691,7 @@ magnet:?xt=urn:btih:C93A58BCE6F72A31FF3CF77D9AD127411D0245D6
 magnet:?xt=urn:btih:79CBA8E0BAC635201833261AC52CD76D402FE5AC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568735   (459758) от 09.08.2022
-
-Атле Нэсс | Эдвард Мунк. Биография художника (2021) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459758.jpg" />
-</div>
-
-
-###  Подробнее
-
-Творчество знаменитого норвежского художника-экспрессиониста Эдварда Мунка (1863–1944) таит в себе множество загадок, драматически воплощает «дух времени» – атмосферу Европы тех десятилетий, на которые пришлась его долгая жизнь. Самая известная из его картин «Крик» для многих стала трагическим символом рубежа XIX и XX веков, предвестником мировых войн и катаклизмов (   Читать дальше...   )Жанр: биографии и мемуары, зарубежная литература о культуре и искусстве, зарубежная публицистика, изобразительное искусствоПеревод: Анна Турунтаева, Елена РачинскаяФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:922E48A83D0E6DD2335DC75DFB2A139D37F5706A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

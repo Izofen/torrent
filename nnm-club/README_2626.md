@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:7C87CFA6EAC480D4961C17231722D2DA0440702C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ TikTok - социальное приложение для тех кто пред
 ```bash
 magnet:?xt=urn:btih:BB2826401397423292DDB29B60BEF04A35AB9BCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:BB2826401397423292DDB29B60BEF04A35AB9BCE
 magnet:?xt=urn:btih:2D2DCD60886F76BC86CD1AC18A382F0F7EFF92C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:2D2DCD60886F76BC86CD1AC18A382F0F7EFF92C4
 ```bash
 magnet:?xt=urn:btih:0877F4830A27586CBF70F5D9A21EF080CFC615C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:0877F4830A27586CBF70F5D9A21EF080CFC615C4
 magnet:?xt=urn:btih:0C301F0ACC7F2667109A056A4982052D8486CA09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:0C301F0ACC7F2667109A056A4982052D8486CA09
 ```bash
 magnet:?xt=urn:btih:AA0C00BFCB0C944FC1EB81A516A899F09D627929
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:AA0C00BFCB0C944FC1EB81A516A899F09D627929
 ```bash
 magnet:?xt=urn:btih:3CD53CE58FEEF5B8F5596831328ED7BE74DB9C30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Defile The Crown - Tooth And Nail (2021) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:CBF29BD330FB69CA3CB66302561BD9D93016CADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:CBF29BD330FB69CA3CB66302561BD9D93016CADE
 magnet:?xt=urn:btih:7677C0B2025FD4B3555DF47AF88E4F8CA5C95D74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:00752333DF11D0023E43123A6555BC6B1D66C3C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Phil Woods - Four Classic Albums (1956 - 1961) 2CD, 2015, Avid Jazz [FLAC|Lossle
 magnet:?xt=urn:btih:4EBE867D70B7A6578657F467EDF949E76C5DC33A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ ECZ (Istanbul) - VVM (Milano)
 magnet:?xt=urn:btih:746E5C5BA8099B71FD2844C0F1244AE55CD25BA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:746E5C5BA8099B71FD2844C0F1244AE55CD25BA5
 ```bash
 magnet:?xt=urn:btih:D00BF4D978AFE6FB55AFF319B7F974A71B8EACA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:D00BF4D978AFE6FB55AFF319B7F974A71B8EACA4
 magnet:?xt=urn:btih:5B2C013C8C48AC4272E8E8B3874A028C9498A668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:5B2C013C8C48AC4272E8E8B3874A028C9498A668
 ```bash
 magnet:?xt=urn:btih:533C05A3244E7F115678AAEFE5686F8697E512B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ River of Magma - Into the Unknown (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <He
 magnet:?xt=urn:btih:EA11B3CB5999F83A5FE2012CF5CF5B39EF33E389
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:EA11B3CB5999F83A5FE2012CF5CF5B39EF33E389
 ```bash
 magnet:?xt=urn:btih:92A2769F270A62C474453E28EC52D10CE34B3FC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ Anita O'Day - Live At Basie (1978) 2007, Ratspack Records [FLAC|Lossless|image +
 magnet:?xt=urn:btih:1C03EB73553C50E6E0971D1B9065F0128E248688
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ Wayne Shorter - Juju (1964) 2024, Universal [FLAC|Lossless|tracks + .cue] <Hard 
 ```bash
 magnet:?xt=urn:btih:F921E81DB95A71744333B2E130AF99DC7599A82E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ Bat - Under the Crooked Claw (2024) [FLAC|24/192|image + .cue|Vinyl-Rip]<Heavy, 
 magnet:?xt=urn:btih:D5A288FA5F177452F98525446DCA667D3EB7DF3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +574,8 @@ Celestial Scourge - Observers of the Inevitable (2025) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:656051E61E9EA6F9B360416E97632F1A35D69153
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +604,8 @@ A4 Salipsism(   Читать дальше...   )Жанр: Symphonic Black Metal,
 magnet:?xt=urn:btih:36D3E118E0EEDA51858FD9786C791EA073AB2626
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +632,8 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:1FD547C183B0A6A1C877E26E2765866AF757658F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +662,8 @@ A4 September (När Hjärtat Blöder)(   Читать дальше...   )Жанр
 magnet:?xt=urn:btih:77DAAA6B5271AA5C046ED5A0777F6DA08867175E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +691,8 @@ VA - Jazztronical 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
 magnet:?xt=urn:btih:297E6FB2D6F7BC4D95D273192BC62DD2714722FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +718,8 @@ magnet:?xt=urn:btih:297E6FB2D6F7BC4D95D273192BC62DD2714722FB
 ```bash
 magnet:?xt=urn:btih:773514AC1CD7D5227E1A8415E28CABE5F41EED1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

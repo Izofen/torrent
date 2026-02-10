@@ -22,6 +22,8 @@ VA - Soft 80er (2022) CD, Compilation [MP3|320 Kbps] <Synthpop, Disco, Soft Rock
 magnet:?xt=urn:btih:31F0AED8C0C96A34383EF51E55989F31E48B12A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - The Official UK Top 100 Singles Chart 07.10.2022 [MP3|320 Kbps] <Pop, Dance
 ```bash
 magnet:?xt=urn:btih:92CA2D21A775E8416347906A8F3206657217E4A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -79,6 +83,8 @@ Hits of My Soul - сборник электронной и инструмент�
 magnet:?xt=urn:btih:417A2C3F7F7D634DB82C4C9D41B685C94A31503D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -105,6 +111,8 @@ VA - Disco Boogie Mood (2022) CD, Compilation [MP3|320 Kbps] <Synthpop, Disco, S
 ```bash
 magnet:?xt=urn:btih:30D8BC2A70EF754D15911BC82329E3F4CE6E592B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -133,6 +141,8 @@ VA - В машине с музыкой Vol.308 (2022) MP3 [320 Kbps] <Pop, Dance
 magnet:?xt=urn:btih:F95AE0D894627AD68B32AA5DCB58CC225843DD4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +169,8 @@ VA - Love Is Endless: Blues Rock Collection (2018) [MP3|320 Kbps] <Blues, Rock B
 ```bash
 magnet:?xt=urn:btih:9C696C9D45930F656DD07B25A507B61F1F506D74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +199,8 @@ magnet:?xt=urn:btih:9C696C9D45930F656DD07B25A507B61F1F506D74
 magnet:?xt=urn:btih:CBE1A7ED035B8E0FB4991323DD4381988CA6B04C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +227,8 @@ magnet:?xt=urn:btih:CBE1A7ED035B8E0FB4991323DD4381988CA6B04C
 ```bash
 magnet:?xt=urn:btih:418C42FE1FB9AD172D79FBF2D3A62FB7963894CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +257,8 @@ VA - Trance October Week 001 (2022) CD, Compilation [MP3|320 Kbps] <Euphoric, Pr
 magnet:?xt=urn:btih:3C3CB624F3B30376BB1170B87048A6B3E10DEBBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +286,8 @@ VA - Infatuation Blues (2017) [MP3|320 Kbps] <Blues, Rock Blues>
 magnet:?xt=urn:btih:6EFB8481C5FA2B8E9FD9F70A6949DF6A1B0EA67F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +311,8 @@ VA - South Beach Clubbing Vol. 31 (2022) [MP3|320 Kbps] <Electronic, Future Disc
 ```bash
 magnet:?xt=urn:btih:1BD285B1E3DC871A63B07BCEC0600FFB4B56F586
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +341,8 @@ VA - Jazz It Up: Autumn Collection (2017) [MP3|320 Kbps] <Jazz>
 magnet:?xt=urn:btih:7E433F4102E73A01C8C8E3E4A50B962F8E5AD29F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +369,8 @@ VA - Morphological Patterns: Techno Electrozombies (2018) [MP3|320 Kbps] <Techno
 ```bash
 magnet:?xt=urn:btih:FE9C3982AF703712751BEEE35C85DB1766E9B16F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +399,8 @@ VA - Beatport Top 100 20.11.2015 (2015) [MP3|320 кб/с]<House, Electro, Progre
 magnet:?xt=urn:btih:168213731E1F41CB19C7459FE1A77FA02A49B65F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +427,8 @@ M-Tracking - Огромный мир (2017) [MP3|320 Kbps] <Eurodance, Eurodisco
 ```bash
 magnet:?xt=urn:btih:DBD30928209160FDFFE62C6943B166E9E6942FBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +457,8 @@ VA - All Stars: Singles Chart Hot 150 (2017) [MP3|320 Kbps] <Pop, Dance, RnB>
 magnet:?xt=urn:btih:96A7D88F32837F27445DCE1F127D49E0AE169DC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +485,8 @@ VA - Dance Charts - Dance 50 (Dazu Tanzt Ganz Deutschland) 05.11.2017 [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:C19244CEE233A7294D42367F5A971FE3B9E4B07C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +515,8 @@ VA - Trance Dreamcatcher Crystal (2017) [MP3|320 Kbps] <Uplifting, Melodic, Prog
 magnet:?xt=urn:btih:905F66E78D46B929DF788EAE1BA757D2A75B0CC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +543,8 @@ DJ Sveta - Magic Time (2015) [MP3|320 кб/с]<House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:33C394D9DA42296BD7275BBDA09004E749F46BB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +573,8 @@ VA - Private Lounge Cafe, Vol. 1 (25 Delicious Lounge Anthems) (2015) [MP3|320 �
 magnet:?xt=urn:btih:9E764A9484B26BC8DB872AA2E529B4DEC155F662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +601,8 @@ VA - Winterzeit Chillout and Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout
 ```bash
 magnet:?xt=urn:btih:E3EC5E5B6497C6C54D66AA6AF364B4EBA220A72A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +631,8 @@ Olga Stankevich - Compilation (2022) [MP3|320 Kbps] <Instrumental>
 magnet:?xt=urn:btih:AA8D444DE742AA89AAD9CB42B42C1C56658A8354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +659,8 @@ VA - Music News vol.220 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:E456DA7578A158A44CA7BE67A55465F58F4E4758
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +689,8 @@ VA - В машине с музыкой Vol.307 (2022) MP3 [320 Kbps] <Pop, Dance
 magnet:?xt=urn:btih:B6D89F8B27F66E5F0C841F136FBEDE6CFAE0488E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,6 +718,8 @@ VA - Дальнобойщики (2013) [MP3|256 кб/с]<Шансон, Поп>
 magnet:?xt=urn:btih:BFADE8EBC3E89035BAB0AECF0A8094EC2D533CBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ VA - Top 100 singles 9000 (2015) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:EF4009CA6B14843E49C802589A1264E0A3A9B9CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

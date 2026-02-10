@@ -22,6 +22,8 @@ Manfred Mann’s Earth Band - Angel Station (1979) Japanese Edition, Reissue, 20
 magnet:?xt=urn:btih:F2251CE0938F6791F88172CBDE23780D1BE43F99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Ice Howl - Darkness From Beyond (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ston
 ```bash
 magnet:?xt=urn:btih:61F4EC0F27585051A77E3401A1571EA786EFCB1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Phantom Spell - Immortal's Requiem (2022) [FLAC|Lossless|WEB-DL|tracks] <Progres
 magnet:?xt=urn:btih:B77A5675475787CDD9CD03145DBFA16924943E94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Sonata Arctica - Acoustic Adventures (Volume Two) (2022) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:B961CDA72C94FF0F71B87ED46411C8C3827BBB50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Rain Of Acid - Ghost Town (2014) [FLAC|Lossless|image + .cue] <Melodic Death Met
 magnet:?xt=urn:btih:0D5900F8B60B976015F7FEB73C5E7E5FC63981C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Free Spirit - Pale Sister Of Light (2008) Japanese Edition, Reissue, 2009, Avalo
 magnet:?xt=urn:btih:1E7BC540968F26F1C6F032B0721C466CC9B61768
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ magnet:?xt=urn:btih:1E7BC540968F26F1C6F032B0721C466CC9B61768
 ```bash
 magnet:?xt=urn:btih:39ACCF8D7E3AB25807091FF8A27BFCD427A5392C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +227,8 @@ magnet:?xt=urn:btih:39ACCF8D7E3AB25807091FF8A27BFCD427A5392C
 magnet:?xt=urn:btih:C53ED7FA69B342156390B2E739072B7C4D52A59B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +255,8 @@ Monster Truck - Warriors (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Southe
 ```bash
 magnet:?xt=urn:btih:D1F7F917CE362B3C91CC7A0CA4538D35376670D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +285,8 @@ Free Spirit - All The Shades Of Darkened Light (2014) [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:14BE3DB141D2CB52236E451057C6DE77A0C3B0C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +311,8 @@ Elysian Fields - Gateway (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 ```bash
 magnet:?xt=urn:btih:417BB76916CEBE77F58FBB7E8689FF103A406D01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +341,8 @@ Dark Divine - Halloweentown (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore, 
 magnet:?xt=urn:btih:74C623FD2CA16A01C22B3BB1150F81AD816D50EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ Black Tongue Reverend - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psy
 ```bash
 magnet:?xt=urn:btih:611D104488264BF11B39BE927A867BBE7A94E87B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +397,8 @@ Nylist - Divine Vision Torn Apart (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcor
 magnet:?xt=urn:btih:6ECE917B84F0CE7E05E21434996D7D43B8F12CB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ Tankard - Pavlov's Dawgs (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:5441765F3EC4BEB97045D6792018665A20931A1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ Ian Blurton's Future Now - Second Skin (2022) [FLAC|Lossless|WEB-DL|tracks] <Har
 magnet:?xt=urn:btih:7CB6169BFA3E5D3147CC3B433B01C223C03BB13E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ Acausal Intrusion - Seeping Evocation (2022) [FLAC|Lossless|WEB-DL|tracks] <Tech
 ```bash
 magnet:?xt=urn:btih:4A3CE252F48BE784B2624F43C2B070D237775E54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ Runelord - The Battle For Greatness (2018) [FLAC|Lossless|image + .cue] <Heavy M
 magnet:?xt=urn:btih:3B4AE1FEA65FC947F296D78AC45CA34FF0CEA46F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ Butchery - Ferocious Rampage (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:D09DBA34539040C5C5E1DD0CEF1475F7B83729C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +571,8 @@ Dolphin (Дельфин) - Андрей (2014) Remastered Deluxe Version, 2015 [
 magnet:?xt=urn:btih:94EB092008D52061EFBE5CC38CAD7D82B3FB5A86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +599,8 @@ VA - Рок против шерсти (приложение к журналам 
 ```bash
 magnet:?xt=urn:btih:C1EB43215AC7D978808EC4F0607E609B4BAF1E27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +629,8 @@ Rod Stewart - Another Country (Deluxe Edition) (2015) [FLAC|Image+cue]<Classic R
 magnet:?xt=urn:btih:42F90A0FC24332E4C321B55D3B1BD42522BA2F0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ Lifeline - Scream (2015) Japanese Edition [MP3|320 кб/с]<Melodic Hard Rock>
 ```bash
 magnet:?xt=urn:btih:6D6798DDBE511067D76B6C8C4B7ACC823D2D1CFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +687,8 @@ Sara Lov - Some Kind of Champion (2015) [MP3|320 кб/с]<Alternative, Dream Pop
 magnet:?xt=urn:btih:1A670BEC0D264FAC82DFC38134DC5D2492C70623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +716,8 @@ ParkingLotGrass - Tusk at Hand (2015) [MP3|320 кб/с]<Alt. Rock, Modern Hard R
 magnet:?xt=urn:btih:12C8DC035455BA9C891990103C021F5475F1C3FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ Moonspell - From Down Below - Live 80 Meters Deep (2022) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:4AD4F971CCBDC55D7DB2992878F358EA4790AE49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

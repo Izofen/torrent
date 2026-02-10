@@ -19,6 +19,8 @@ Streets of Rogue – это облегченный роглайк о выбор�
 magnet:?xt=urn:btih:6A1E849C06E711475C10EC10DE8A3EB9C51A5299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.1.107761/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:EB2DD777BACA5D38E51FB4BF31059377C1E6155F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.1.107761/dlc) Scene Tenoke
 magnet:?xt=urn:btih:CA0E5492C954D9C4907583A127CFBEE6197E7DFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (20250814/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:2D96BDD7ECF81D56066D4D3376ADA9D412E02D76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Ikarus Parkour (2025) [Ru/Multi] (2.83) License GOG
 magnet:?xt=urn:btih:33321804ADC0E8AE7AC65AA4B0CE840122F3591F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Estranged: Act I / Estranged: The Departure (2014, 2020) [Ru/Multi] (Build 16907
 ```bash
 magnet:?xt=urn:btih:0E568C9670C5154C2367A0567B4096FAE89F9646
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.1.10776-250723/dlc) Repack FitGirl
 magnet:?xt=urn:btih:BEB2EBF667BBA4FC3C4D43E05D2CB3F7AA925BA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Dread Flats (2025) [Ru/Multi] (2.10.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2A40EE9B5122B7AA05C06FB43FB38F50CBD15642
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Slayer: the Demon Haunted World представляет мир, выходящ�
 magnet:?xt=urn:btih:6FA5042E1401BD23090B38F34BE0B08A3C8F2792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Runway 66 (2025) [Ru/Multi] (build 19368702) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BB22F8CBCBDF11FC17A49F61F58463B7CE5B29C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Inkshade (2025) [En] (1.0.004) Repack AIexandro
 magnet:?xt=urn:btih:C142AF1A5AF0644C867D798F0D23EBF6643E0A8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Empyrion - Galactic Survival – это приключение с выживан
 ```bash
 magnet:?xt=urn:btih:3C483885B0D341FF8BA3388FF56F19ACAE5CFDEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ A Fistful Of Yankees (2025) [Ru/Multi] (1.42) Repack AIexandro
 magnet:?xt=urn:btih:8F0CD666EC8FE87882B129FCEC382795A30AC03E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Runway 66 (2025) [Ru/Multi] (build 19368702) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:9358CFA95349D06F52FC726548B7EB9F55AF880A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Unfinished Business - это новое самостоятельное прик�
 magnet:?xt=urn:btih:63C593A3878DDB0C1B3EAC073CD69608341351FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Survive the Fall (2025) [Ru/Multi] (1.1.4.2506/dlc) License GOG [Ultimate Editio
 ```bash
 magnet:?xt=urn:btih:A3A31F8D3DA34083E829FEC15750CC0CC61AD213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ World War Z VR – это иммерсивный однопользовател�
 magnet:?xt=urn:btih:CFC7B653449E80DFD79984C3C2079D331EAE13BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Warhammer 40,000: Dawn of War (2025) [Ru/Multi] (2.0.889.0) Repack FitGirl [Defi
 ```bash
 magnet:?xt=urn:btih:F372C4A629979DADDBAF090C13E9CB047316B313
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Shields of Loyalty - это пошаговая стратегия в мире т
 magnet:?xt=urn:btih:DA12F107E42090495C1191C17B2CCB59B4430D07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Somerville (2022) [Ru/Multi] (Patch 4 Build 11993672) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C9CF747852D3042D6673275A2ABE27955D675758
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Ninja Gaiden: Ragebound - совершенно новая игра с боков
 magnet:?xt=urn:btih:E058AF6C1239F9EB8D274F59265B48B459F5A4F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ DREADZONE (2025) [Ru/Multi] (1.4.5.2) Repack AIexandro [Early Access]
 ```bash
 magnet:?xt=urn:btih:B757399BEAFD7659400CCFDDF7A2691C0A907E9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Warhammer 40,000: Dawn of War (2025) [Ru/Multi] (build 19595286) Repack seleZen 
 magnet:?xt=urn:btih:C4B354785912E69FE417F3E71F2FA5D3536721CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 ```bash
 magnet:?xt=urn:btih:4CB4C0ABE65D3EC7BE10B0D924F7EADAC084D103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Tales & Tactics – перед вами классический автобат�
 magnet:?xt=urn:btih:D3AD8CC4CC2E17AC12EEF0EEDFB67A7DD153E225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Deadzone: Rogue - это roguelite-шутер от первого лица, де
 ```bash
 magnet:?xt=urn:btih:21EBB2C680F5F7A9BA8BE3D3C50F81BD14BFB807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

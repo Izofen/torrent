@@ -22,6 +22,8 @@ Jon Anderson Feat. The Band Geeks - True (2024) [FLAC 24/96|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:23A50D77A41D6B40A47F2C3E931935BF27449E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Furnace - Trojan Hearse (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:26CB9A1CC508050706EC20AA837FB1D220F8C7DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Peoria Jazzband - In a Jam (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:606D8C485AB6ACE172BB0386B3A8248CE2C0FED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Meital Waldmann - Between Worlds (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <V
 magnet:?xt=urn:btih:5EB817370E368456CFAF82DAF1E413C503D81C12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ Andrea Giuditta - Code-258 (2019) [FLAC|Lossless|tracks] <Techno, Peak Time Tech
 ```bash
 magnet:?xt=urn:btih:078D123B0E20189C2B3E59C570581F35B36C1318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +165,8 @@ Nate Najar - Meet The Graingers (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Cont
 magnet:?xt=urn:btih:628AC6D1BFC26A890CF2D8597A8391FF91365BA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ magnet:?xt=urn:btih:628AC6D1BFC26A890CF2D8597A8391FF91365BA0
 ```bash
 magnet:?xt=urn:btih:FA09085993DAEE9C425AAE97C5385C19B286685B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ Delta Heavy - Midnight Forever (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dru
 magnet:?xt=urn:btih:9EC037FDB2F702AE561104B7DEEADB75AB3F47F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ VA - The Orient Collective: Alchemy (2024) [FLAC|Lossless|WEB-DL|tracks] <World,
 ```bash
 magnet:?xt=urn:btih:60791D80D87E6DA83264BB71A1CE502C1C01D3AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +281,8 @@ VA - Balearic Bar & Beach Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ch
 magnet:?xt=urn:btih:CE5B8842DFAD4636916F12B18457278450AE2215
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ Static-X — американская метал-группа из Лос-Анд
 magnet:?xt=urn:btih:CF90C96A3C362A316F5209825AA81ACAD0830347
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +335,8 @@ magnet:?xt=urn:btih:CF90C96A3C362A316F5209825AA81ACAD0830347
 ```bash
 magnet:?xt=urn:btih:0545C2CB06C931FC5CEA12CC392FC937E29C4BBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +365,8 @@ magnet:?xt=urn:btih:0545C2CB06C931FC5CEA12CC392FC937E29C4BBF
 magnet:?xt=urn:btih:BD2978B87B45223EEDF23A679DBC5835DB883CFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +394,8 @@ magnet:?xt=urn:btih:BD2978B87B45223EEDF23A679DBC5835DB883CFF
 magnet:?xt=urn:btih:D9F9EB2032DFEA5DC2496C6AB2DF230F59A34E2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +419,8 @@ PhotoRoom v5.2.6 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7E20568B0C4604F9760D743AC75E33CB9F9847D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +449,8 @@ Duran Duran - Girls On Film (1981) Remaster, 2024, Rhino Records [FLAC|Lossless|
 magnet:?xt=urn:btih:4528BA6D40765584C9C529ABD1B972C706DB5CB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +475,8 @@ magnet:?xt=urn:btih:4528BA6D40765584C9C529ABD1B972C706DB5CB2
 magnet:?xt=urn:btih:C29C14BECC09DF3073F435BC716AA40516F422FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +500,8 @@ magnet:?xt=urn:btih:C29C14BECC09DF3073F435BC716AA40516F422FA
 ```bash
 magnet:?xt=urn:btih:CF6C8DFAC866A2A09E724597A883ABDE07E1A191
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +530,8 @@ Glass Spells - Crystals (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synthpop>
 magnet:?xt=urn:btih:63091467967FF552D9B3CCA17B57BDF69A593B51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +555,8 @@ magnet:?xt=urn:btih:63091467967FF552D9B3CCA17B57BDF69A593B51
 ```bash
 magnet:?xt=urn:btih:DEE3E5D7F37D434DB29E6F6F8B2FB476E0CB824D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +585,8 @@ magnet:?xt=urn:btih:DEE3E5D7F37D434DB29E6F6F8B2FB476E0CB824D
 magnet:?xt=urn:btih:557CF93F0B48DC13C47A31E8A82BA7E857B4E741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +613,8 @@ Duran Duran - Planet Earth (1981) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:1F7F55982875440633B1F3D2742F8E54DFC6ADEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +643,8 @@ Soen - прогрессивная рок/метал группа из Стокг
 magnet:?xt=urn:btih:877852EBAD88A61CC6DD85F96CF4471BEEE052B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +671,8 @@ magnet:?xt=urn:btih:877852EBAD88A61CC6DD85F96CF4471BEEE052B1
 ```bash
 magnet:?xt=urn:btih:E96E0E0D3B856A692E70F55565532FE99DD142AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +701,8 @@ The Emperor Machine - Island Boogie (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:8CFB6A78C5F4A36E1A4DEA6BE391BDE6DDE4FC37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +728,8 @@ magnet:?xt=urn:btih:8CFB6A78C5F4A36E1A4DEA6BE391BDE6DDE4FC37
 ```bash
 magnet:?xt=urn:btih:F9FF118245EA460329FF46F7C7A416EB1D5F9D31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B12ACE4B14F65237F5DA527E5DB0CE015F65C974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:B12ACE4B14F65237F5DA527E5DB0CE015F65C974
 ```bash
 magnet:?xt=urn:btih:939E3CC0C5331EB7E8104BC29BEC85913EB2C77E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:939E3CC0C5331EB7E8104BC29BEC85913EB2C77E
 magnet:?xt=urn:btih:66EC6911875CF4DDC67215DD8AE91E066517BF04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ OTT Онлайн прямое телевидение, в котором вы н�
 ```bash
 magnet:?xt=urn:btih:586E4C27621ABA4D9C78E23654B065B7A338F475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:586E4C27621ABA4D9C78E23654B065B7A338F475
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:55F24D0E81043D14BDD4A6E557243351CCD98E8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:55F24D0E81043D14BDD4A6E557243351CCD98E8E
 magnet:?xt=urn:btih:B4751DF3022D093F5E7790F145133B427EDF73FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:B4751DF3022D093F5E7790F145133B427EDF73FC
 ```bash
 magnet:?xt=urn:btih:96B34CEBB9992A7A6D46D680A1E0B3E11110A0AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:B5A4C1FF55ED8B2A177DB9022F252C4E17E9DF2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Synchro - пошаговая RPG о борьбе со зловещей корп�
 ```bash
 magnet:?xt=urn:btih:10C19844E1BE0304A20F5646B4F2F24445939DBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:10C19844E1BE0304A20F5646B4F2F24445939DBD
 magnet:?xt=urn:btih:063BB179D6F7927A3F4E4D8FBA8B52EE5152F6EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:063BB179D6F7927A3F4E4D8FBA8B52EE5152F6EC
 ```bash
 magnet:?xt=urn:btih:285B6268AC00C0DD7549C08C796633EB677005B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:285B6268AC00C0DD7549C08C796633EB677005B6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ EasyUEFI - удобная утилита для редактирования з�
 ```bash
 magnet:?xt=urn:btih:F721A2AEBA5F82AD18158B0FBFC6A01302377A85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ ICBM: Escalation — масштабная стратегия в реальном
 magnet:?xt=urn:btih:2C1F20ADD4F7AA7E343A390392E370A5FE7CC0DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Take Me, Vitaly / Догони меня, Виталик (2024) [Ru/Multi] (Build
 ```bash
 magnet:?xt=urn:btih:DEF525177E763B684120495C2B0B6C5E5FB70790
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:DEF525177E763B684120495C2B0B6C5E5FB70790
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:DEF525177E763B684120495C2B0B6C5E5FB70790
 magnet:?xt=urn:btih:DB61D765464B7131649B2DD1EF3DDEFBC36BA943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Lethal Company - захватывающая кооперативный хорр�
 magnet:?xt=urn:btih:EC1783BEF1FFE4DE7C94DAC23DEBEDFB74CAFEC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Deltarune - спин-офф головоломки Undertale, о чем гово
 ```bash
 magnet:?xt=urn:btih:5FA65E4D88DDE34DC710EEB1E6116FFB165CD4BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:5FA65E4D88DDE34DC710EEB1E6116FFB165CD4BB
 magnet:?xt=urn:btih:53E7264FAB5A5B458855C58A5E0E08BBE31D8946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:53E7264FAB5A5B458855C58A5E0E08BBE31D8946
 magnet:?xt=urn:btih:1237E63CC8BAAEB7652F47382C6F0F8CF59A0F6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:1237E63CC8BAAEB7652F47382C6F0F8CF59A0F6A
 ```bash
 magnet:?xt=urn:btih:A7D4944886AAD60207C235D7835916EF5C4A1CD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:A7D4944886AAD60207C235D7835916EF5C4A1CD4
 magnet:?xt=urn:btih:38731853839C2588EA5F23EA1566FF03EBFB8579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:38731853839C2588EA5F23EA1566FF03EBFB8579
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Anoxia Station - игра об управлении подземной горн�
 ```bash
 magnet:?xt=urn:btih:6668A8876269DD31224B22F4BF60B77D4F5A2B2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

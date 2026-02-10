@@ -19,6 +19,8 @@ Hibi wa Sugiredo Meshi Umashi / Food for the Soul / Дни проходят, а 
 magnet:?xt=urn:btih:B2EE346E6F734E3404448929D16844EE25BB1DD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ mono | Моно [2025, TV, 12 эп.] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:4441DFE60DE1D66BBF07F34B59DD1D1833A79EBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Teogonia | Теогония [2025, TV, 12 эп.] WEBRip 720p raw
 magnet:?xt=urn:btih:020234602234B065228BEEA7DDE52D106FFC843D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Kowloon Generic Romance | Обычная романтика в Цзюлуне [2
 ```bash
 magnet:?xt=urn:btih:31DAEE5F98851FE500181DCC87A922059B55A0CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ A Rank Party o Ridatsu Shita Ore wa, Moto Oshiego-tachi to Meikyuu Shinbu o Meza
 magnet:?xt=urn:btih:F6F26C28BA3982973B56B5EE58FCD53FECD10013
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Aharen-san wa Hakarenai Season 2 | Непостижимая Ахарэн [ТВ-2
 ```bash
 magnet:?xt=urn:btih:E223A7D01B4A0060AB25520524CA3AAE310DF2B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Ninja to Koroshiya no Futari-gurashi | A Ninja and an Assassin Under One Roof | 
 magnet:?xt=urn:btih:125272225FD3EC3C6C568D824035C286FD666357
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Chuuzenji-sensei Mononoke Kougiroku: Sensei ga Nazo o Toite Shimau kara. | Жу�
 ```bash
 magnet:?xt=urn:btih:A2FBD687C4EF880D5DDC1D9F61C61C8E77E9E6A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Kimi to Boku no Saigo no Senjou, Arui wa Sekai ga Hajimaru Seisen Season II | Ki
 magnet:?xt=urn:btih:452570472DEA0E67D17B16827511224956D420F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Shiunji-ke no Kodomo-tachi / The Shiunji Family Children / Дети семьи �
 magnet:?xt=urn:btih:9DECD44D0D702F3720721FEA8DA4D02971A82DB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Nazotoki wa Dinner no Ato de | The Dinner Table Detective | Разгадыван
 ```bash
 magnet:?xt=urn:btih:5171B7FE142E4069B7AB531E69BC8542343FFCDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Kakushite! Makina-san!! | Makina-san's a Love Bot?! | Прячься, Макин
 magnet:?xt=urn:btih:DCFF0C371EDA75BBF5606924129B57D78287AF76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Apocalypse Hotel | Апокалипсис: Отель [2025, TV, 12 эп.] WebRi
 ```bash
 magnet:?xt=urn:btih:76F552BD143C41739549FF8930F6456FC325E504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Aharen-san wa Hakarenai 2 / Непостижимая Ахарэн-сан 2 [2025
 magnet:?xt=urn:btih:9FF787B4041D8729B4A92E253698FA75A7EB82E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Maebashi Witches | Ведьмы Маэбаси [2025, TV, 12 эп.] WebRip 720p 
 ```bash
 magnet:?xt=urn:btih:5AA27FFF37778B470D63BBE5883EF36844EB3266
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Gorilla no Kami kara Kago Sareta Reijou wa Ouritsu Kishidan de Kawaigarareru | T
 magnet:?xt=urn:btih:7E1035425815B72A8FC557734B7C4FB7A7440572
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Zatsu Tabi: That's Journey / Это путешествие [2025, TV, 12] WEBRip
 ```bash
 magnet:?xt=urn:btih:B921443C8CF0AD16CB1FAD4BDB08A0AD013FAC8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Katainaka no Ossan, Kensei ni Naru / From Old Country Bumpkin to Master Swordsma
 magnet:?xt=urn:btih:562C7A07B703C79D83EDC6D7B7CFE2D7E6A71AC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Shoushimin Series / How to Become Ordinary / Как стать обычным ч
 ```bash
 magnet:?xt=urn:btih:81345ECDBDCC9C9D056027A76CBC08D1CE31681A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Slime Taoshite 300-nen, Shiranai Uchi ni Level Max ni Nattemashita 2 / Убив�
 magnet:?xt=urn:btih:FEA08A54CD73DB3E3B6E93EE518035AE7F49B71E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Danjo no Yuujou wa Seiritsu Suru? (Iya, Shinai!!) / Can a Boy-Girl Friendship Su
 magnet:?xt=urn:btih:37E10BDAE4B9614CCB34221A4E598D298B3C5024
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Enen no Shouboutai San no Shou | Fire Force (2025) | Пламенная бриг
 ```bash
 magnet:?xt=urn:btih:EE6F7121CCFC9C9FAF0EA98BE72C0C966DB0249B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Kanpeki Sugite Kawaige ga Nai to Konyaku Hakisareta Seijo wa Ringoku ni Urareru 
 magnet:?xt=urn:btih:BD20D584CFB0E01D16F850D40D5E5407879D7130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Wind Breaker Season 2 | Ветролом 2 [2025, TV, 12 эп.] WEBRip 720 raw
 ```bash
 magnet:?xt=urn:btih:410295744FFA9A3435DBB0C605B9BE8307FE59AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Aru Majo ga Shinu Made / Once Upon a Witch's Death / Пoкa вeдьмa нe ум�
 magnet:?xt=urn:btih:8E7761E554AFF29D67DB2A3F3997E29E21E2F3F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Ballpark de Tsukamaete! | Catch Me at the Ballpark! | Ловец бейсбол�
 ```bash
 magnet:?xt=urn:btih:881CF6533A0770BE23FE21F97E931B191F34D634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

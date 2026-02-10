@@ -22,6 +22,8 @@ Timesavervfx, Александр Ежов | Анимация фотографи�
 magnet:?xt=urn:btih:F4B47B307E4E7F819725C556F87E138735E448A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Resident Evil 4 (2023) [Ru/Multi] (1.0/dlc) Repack Decepticon [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:6C0D26602954F130A48855C02D86042293A4488D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:6C0D26602954F130A48855C02D86042293A4488D
 magnet:?xt=urn:btih:B24EF7D7999E06D55E045E01B73D02FE48FFE7A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Florian Rappl | Modern Frontend Development with Node.js (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:896BFF2A13AFF210659947816296ABBC130897ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:896BFF2A13AFF210659947816296ABBC130897ED
 magnet:?xt=urn:btih:9DFA851C59BFB0048D2621A7C2248E80CE2182A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:9DFA851C59BFB0048D2621A7C2248E80CE2182A6
 ```bash
 magnet:?xt=urn:btih:F0F69FE25C30E316DE7C562324B6FF2F4218584C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Udemy, Nikolay Naydenov | Absolute Beginners Substance Painter Course (2020) PCR
 magnet:?xt=urn:btih:775DCDE7C37E81543B96E885A38B379E0FD14A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Nik Collection by DxO – это наиболее полная коллекци�
 ```bash
 magnet:?xt=urn:btih:ED44E3C07601E31432A6849C64BD0E6CEF7CF6B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:ED44E3C07601E31432A6849C64BD0E6CEF7CF6B1
 magnet:?xt=urn:btih:10368E934B922EC1C5C1871D08B146336B917FBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:10368E934B922EC1C5C1871D08B146336B917FBC
 ```bash
 magnet:?xt=urn:btih:0FD740CE2E7163212DF9B5C57B26D68C6CFDAFD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Windows 10 22H2 (Build 19045.2965) (40in2) x86/x64 by Sergei Strelec [Ru]
 magnet:?xt=urn:btih:F7E9CAA4E56ACDAAC7226D29193F0B8FC711CDFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:F7E9CAA4E56ACDAAC7226D29193F0B8FC711CDFF
 ```bash
 magnet:?xt=urn:btih:0797FC407151E38491742C4FF28131576E6FFCA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:0797FC407151E38491742C4FF28131576E6FFCA6
 magnet:?xt=urn:btih:4E767B9F07F5CEFF5EA4C98B41683912ADFF3A25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Air: Большой прыжок / Air (2023) WEB-DLRip [H.264] [MVO]
 ```bash
 magnet:?xt=urn:btih:12F002721B4137DA88D0D2EB46F57DF6D8C984C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ Timesavervfx, Юлия Корчагина| Моушн-графика в Davinci 
 magnet:?xt=urn:btih:9A9B6E7C44D6BB2E842C8E2B86385F9D5F49111A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:9A9B6E7C44D6BB2E842C8E2B86385F9D5F49111A
 ```bash
 magnet:?xt=urn:btih:72C85E50D00CDDF1E40C1C21E1EC5D2167518D12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ Windows 7 Professional с интегрированным пакетом обно
 ```bash
 magnet:?xt=urn:btih:B71BBAA9F1B405A3D2E6D6E9B1CDA7F87C28F883
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ Alexcode, Алексей Леонов | Разработчик 1С с нуля (
 magnet:?xt=urn:btih:4773D321E7E75B380E2F9CA8000E5A2394DA12A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:4773D321E7E75B380E2F9CA8000E5A2394DA12A7
 ```bash
 magnet:?xt=urn:btih:E25F23AA0BE2FD6CC45D5B89F072819D567A7634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ Prototype (2009) [Ru/Multi] (1.0.0.1) License
 magnet:?xt=urn:btih:4522EE202E2AA6EF3C3AAB5873C7A26C44EEC601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:4522EE202E2AA6EF3C3AAB5873C7A26C44EEC601
 ```bash
 magnet:?xt=urn:btih:D406E91C753E3CA44D9F5F0D5D0931BE81FED782
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:D406E91C753E3CA44D9F5F0D5D0931BE81FED782
 magnet:?xt=urn:btih:80B45EAE214BC17DCE970E596F6C4140FF9950F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:80B45EAE214BC17DCE970E596F6C4140FF9950F5
 ```bash
 magnet:?xt=urn:btih:3265CDF450F661BCCBB2C9471A2DC7C71F9146B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:3265CDF450F661BCCBB2C9471A2DC7C71F9146B2
 magnet:?xt=urn:btih:2953C5A9C272CB64E24040EB4596F1843BD6CC48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ Windows Server 2022 впервые обеспечивает расширенну
 magnet:?xt=urn:btih:5C6BD6A37D3884D6DF572674DADAB78AE952D2F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 16.05.2023) [Ru]
 ```bash
 magnet:?xt=urn:btih:045BA8443B9529E88D9310E9C24B288C7A8A63FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

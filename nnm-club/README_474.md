@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3DD5D7B9832A9D220A28B1D38C78A5BBC06B704F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:3DD5D7B9832A9D220A28B1D38C78A5BBC06B704F
 ```bash
 magnet:?xt=urn:btih:C28DD3D3F59E7CC43DA15D9B2FCFF30EAC80C59B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Perfect Heist 2 – это соревновательный шутер на те
 magnet:?xt=urn:btih:B7C095702E91A9E93D82D8F804EEF5AE0D11066C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:B7C095702E91A9E93D82D8F804EEF5AE0D11066C
 ```bash
 magnet:?xt=urn:btih:B59A5EDED60534E9DD0F8C311C310177AFEE9122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:B59A5EDED60534E9DD0F8C311C310177AFEE9122
 magnet:?xt=urn:btih:A05BBDFA7E5CADFB7FA409C81A85C9075B59404E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:A05BBDFA7E5CADFB7FA409C81A85C9075B59404E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Blood Bowl III (3) (2023) [Ru/Multi] (Build 52126/dlc) Repack FitGirl [Brutal Ed
 magnet:?xt=urn:btih:31C803359C83537E3447E47D79460F23D8890A29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ FIN-RA, Дмитрий Толстяков | Инвест-зарплата (Та�
 magnet:?xt=urn:btih:E3443615F7A107FE1D79A28503D35D713B1079EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ magnet:?xt=urn:btih:E3443615F7A107FE1D79A28503D35D713B1079EF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ VA - Deep House Summer Mix (2025) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:8AFCF7A1F3E21BA0D6F3152A1D1CDD3A6CA7D668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:8AFCF7A1F3E21BA0D6F3152A1D1CDD3A6CA7D668
 ```bash
 magnet:?xt=urn:btih:BE78EE68BA9BBD257896AF63488E749E1A43936E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:BE78EE68BA9BBD257896AF63488E749E1A43936E
 magnet:?xt=urn:btih:AA7DAC151B2FC5B9A0330DB467408927A6075D3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Frog Jump ставит игроков под контроль амфибии с 
 ```bash
 magnet:?xt=urn:btih:FE4F5F5041F36FF08EFA1678AD71C65CC0573C01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:FE4F5F5041F36FF08EFA1678AD71C65CC0573C01
 magnet:?xt=urn:btih:F11A194D1A8803866C0C4FB8FC8B4E0DECE22DBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:F11A194D1A8803866C0C4FB8FC8B4E0DECE22DBA
 magnet:?xt=urn:btih:89C49A5A9ED6B40DF586B11B1BBF40B995600947
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Medieval Dynasty (2020) [Ru/Multi] (2.4.0.4/dlc) License GOG [Digital Supporter 
 ```bash
 magnet:?xt=urn:btih:F9744DF235034D7223FC8DA8006239B75949E14F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Windows 10 Pro 22H2 19045.5965 x64 by SanLex [Lightweight] [Ru-En] (2025.07.04)
 magnet:?xt=urn:btih:8CD478F416AFC90EF1659E34F8A7D68EA50119F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Tales of Maj’Eyal – это ролевая игра в стиле roguelike �
 ```bash
 magnet:?xt=urn:btih:62CEB84881376E09D411E21EBFA7A1201CAFE802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:62CEB84881376E09D411E21EBFA7A1201CAFE802
 magnet:?xt=urn:btih:73B341F5F2FB05C365868B65AFA49A17B65DCB7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:73B341F5F2FB05C365868B65AFA49A17B65DCB7C
 ```bash
 magnet:?xt=urn:btih:B225E21B47E1A8A4B132D8F97EEB865B2CEBEFD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:B225E21B47E1A8A4B132D8F97EEB865B2CEBEFD6
 magnet:?xt=urn:btih:7F0BF3747CCE6CE5811252899B7146E4E05C5344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Moonstone Island – это более 100 островов для исслед�
 ```bash
 magnet:?xt=urn:btih:5CAC1136B5E8807A5FA14DC32FBA6A20B2CCD485
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:5CAC1136B5E8807A5FA14DC32FBA6A20B2CCD485
 magnet:?xt=urn:btih:327A1E0A09FA42FFE32668CA1CEEFC60C3467EDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:327A1E0A09FA42FFE32668CA1CEEFC60C3467EDA
 magnet:?xt=urn:btih:8B856956D3933F20ADF1BA0C4DE2D225FEB3B2FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ Kainga: Seeds of Civilization (2022) [Multi] (1.2.21) License GOG
 ```bash
 magnet:?xt=urn:btih:47046E6E05B2335F2146359614CB174605382957
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +674,8 @@ Kusuriya no Hitorigoto (2025) | The Apothecary Diaries (2025) | Записки �
 ```bash
 magnet:?xt=urn:btih:99AC3463BCB9696CF3205857C919F2EAE817DA35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Beyond The Edge Of Owlsgard (2022) [Multi] (1.2) License GOG
 magnet:?xt=urn:btih:D47AC1AC89730C44BEF83FF6BD065985102F9CF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Rauniot - приключенческий квест, представленны�
 ```bash
 magnet:?xt=urn:btih:930593D59FB601A7C6A5B13312F10A4D0A17179B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ El Hijo - A Wild West Tale – это увлекательная игра в с�
 magnet:?xt=urn:btih:D461BDA6BDD9BF2C46E1BAB2A41DE7ACDF16EE49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Slay the Princess (2023) [Ru/Multi] (1.0z) License GOG [The Pristine Cut]
 ```bash
 magnet:?xt=urn:btih:5EE16D1E8B0C5BD17C90C6F6DAA510F2073271EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Strange City (2024) [Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:0584E0C6B738DE2B952544527E7C17D2B90B9516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Beyond Hanwell - это насыщенная, детальная и атмосф
 ```bash
 magnet:?xt=urn:btih:82D288B1C64EAD37095D167CA4FCBF1A7031DA6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Sam & Max: Beyond Time and Space – это обновленная часть с
 magnet:?xt=urn:btih:EDF9D91DAAE8E5714A356CC54B681B0E6F47E00C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Beyond: Two Souls (2019) [Ru/Multi] (Build 5117920) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:186C970A5A5AAD2A7A727772E15C64E20A8F090E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Heavy Rain (2019) [Ru/Multi] (Build 5236766) Repack Let'sРlay
 magnet:?xt=urn:btih:9B32CDE80571BA7811ACF699EF84DF096E14D66E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Journey of AutUmn – перед вами традиционное прик�
 ```bash
 magnet:?xt=urn:btih:DB7CCB6E7B9A9C2D603BE3A068C5142484B505C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Detroit: Become Human (2019) [Ru/Multi] (Build 12158144) Repack Let'sРlay
 magnet:?xt=urn:btih:A46813C37357D3599A2B32A0A8E363FA981B647C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Sam and Max Save the World – первый сезон в серии игр, а 
 ```bash
 magnet:?xt=urn:btih:1E6CBE5F0C88C7F69243EDEE62E82326248018E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ A Quiet Place: The Road Ahead — это однопользовательска�
 magnet:?xt=urn:btih:2D95063116FB4E9238545F78205290BCCCB7EFD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Once Alive (2024) [Ru/Multi] (0.9.9.8) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7041E0BFF2BD1B96FA5E768E063AB561CF3CFA24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Once Alive (2024) [Ru/Multi] (0.9.9.8) Scene Tenoke
 magnet:?xt=urn:btih:36BEFEFD76DEE459A97B06556DE9A8A6A97CE011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Disney Dreamlight Valley – это симулятор жизни с элеме�
 ```bash
 magnet:?xt=urn:btih:B0A870EE4CE919B07AC61F817DE97A0949989B34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Depersonalization (2022) [Multi] (2.0.30) Scene Tenoke
 magnet:?xt=urn:btih:3EC9C8E99D8C7920C15A4775FB0BA1ADB4E3E818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Oregon Trail™ от Gameloft - такого The Oregon Trail™ вы еще
 ```bash
 magnet:?xt=urn:btih:60905001B947F561DBD6F6B24898348B405629D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ VED - это сюжетное RPG, сочетающее вручную нари�
 magnet:?xt=urn:btih:FB30AB8A5A2EC18D48C080FE9427F024EBE326EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Beyond The Darkness - это мрачная история, которая ок�
 ```bash
 magnet:?xt=urn:btih:7AF66DFF47474C7A6F3491B0D680EF41FE04CFA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Evil Awaits (2024) [En] (1.0) Scene Skidrow
 magnet:?xt=urn:btih:83B33324230EBDFA314982D2F8495213E28B77F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Potion Permit (2022) [Ru/Multi] (1.5/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:B25401E4F3BBE418AD1C30DAA2ADB0D6E81886EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Leisure Suit Larry 7: Love for Sail! / Ларри 7: Секс под парус�
 magnet:?xt=urn:btih:A9A04E52F6EF7B28962AAD24036305EBBAE3D791
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Dave the Diver - это казуальная приключенческая RPG 
 ```bash
 magnet:?xt=urn:btih:C2AAEC2B703087C6845B1B508A44FD236CB77AF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Beyond The Darkness - это мрачная история, которая ок�
 magnet:?xt=urn:btih:8D4085F7C3DB4BF2AA6E6B2A0BB8601E306450E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Beyond The Darkness - это мрачная история, которая ок�
 ```bash
 magnet:?xt=urn:btih:515782352BD11B471638C39036CFE92B176CC8F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

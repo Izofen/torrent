@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:3E450D3230E9B76B248EB734AED837F23C0FCC1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:3E450D3230E9B76B248EB734AED837F23C0FCC1E
 ```bash
 magnet:?xt=urn:btih:64B691E7873E8701047D9CC996DF0EC37ED68694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:64B691E7873E8701047D9CC996DF0EC37ED68694
 magnet:?xt=urn:btih:379FA3C47EC9CFE763A0ADAA42CF0E23BD1EFD1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ NG. Самые лучшие суперкары / Ultimate Supercar (2019) HDTV [
 ```bash
 magnet:?xt=urn:btih:1A1CA17E93A40E211D6CBCD3846D5254088E3C5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ BBC: Маленькие гиганты / Tiny Giants (2014) UHD BDRemux [H.265/2
 magnet:?xt=urn:btih:5369F7C4B39D1BDB1F735BB419403B988D298D2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ BBC: Это Слейд / It's Slade (1999) TVRip [EN]
 ```bash
 magnet:?xt=urn:btih:D20B08A95E88BA566D452674BCB1A3C4DC290149
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:D20B08A95E88BA566D452674BCB1A3C4DC290149
 magnet:?xt=urn:btih:DB7693519F2A7FDA9DA516CC92D7C25E665B156B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:DB7693519F2A7FDA9DA516CC92D7C25E665B156B
 magnet:?xt=urn:btih:7A543311BC7968FC11DA8468B9B88DABEFEC0ACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ History Channel: Древние пришельцы / Ancient Aliens (2020) WEBRi
 ```bash
 magnet:?xt=urn:btih:A5F04F7BD2C44015BC4670EAA42C181118F98BBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ NGW: Удивительные большероты / Incredible Gulpers (2016) H
 magnet:?xt=urn:btih:797663697A40DB1D9670BB4C9FE9B4C5A797BEE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:797663697A40DB1D9670BB4C9FE9B4C5A797BEE2
 ```bash
 magnet:?xt=urn:btih:C8F2A6DCB7A38DC404E5B44D5D5AFBB6BED1EEFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:C8F2A6DCB7A38DC404E5B44D5D5AFBB6BED1EEFE
 magnet:?xt=urn:btih:28985A02B49CE3D192A1A5BE1BDC6EF8A005522B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:28985A02B49CE3D192A1A5BE1BDC6EF8A005522B
 ```bash
 magnet:?xt=urn:btih:116D977811891B97A352B02A53B7334917AC3D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:116D977811891B97A352B02A53B7334917AC3D59
 magnet:?xt=urn:btih:6A831050C8580F369C02496F07E17F135D22194B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ NG: Свидетели катастроф / Witness to Disaster (2019) HDTV [H.2
 ```bash
 magnet:?xt=urn:btih:A7C76FF86149D6765E7D69E1563ED18492B7A6E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:A7C76FF86149D6765E7D69E1563ED18492B7A6E1
 magnet:?xt=urn:btih:2D9AE8E08BBC01E88ECE31A2E2EDD41E8E474EAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:2D9AE8E08BBC01E88ECE31A2E2EDD41E8E474EAC
 ```bash
 magnet:?xt=urn:btih:CC7904538285AB782CDD013673961C2CF749532C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:CC7904538285AB782CDD013673961C2CF749532C
 magnet:?xt=urn:btih:9DF39D654508243967A468F4BD26811C48C74AE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:9DF39D654508243967A468F4BD26811C48C74AE1
 ```bash
 magnet:?xt=urn:btih:B6EBF045B7218016A3160898FD81957C6390D408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:B6EBF045B7218016A3160898FD81957C6390D408
 magnet:?xt=urn:btih:FC958CE54DA00641873B9B1CD3B535636C429A3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:FC958CE54DA00641873B9B1CD3B535636C429A3B
 magnet:?xt=urn:btih:5DB25DE579E3B29578E20C0084717B4CB7E9C497
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:5DB25DE579E3B29578E20C0084717B4CB7E9C497
 ```bash
 magnet:?xt=urn:btih:FEFF1B678ECB67A7D523CF22CAA9A54356ACB935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ History Channel: Тетрис: Из России с любовью / TETRIS. Fro
 magnet:?xt=urn:btih:A5153CC338A57E416DBB7A5859FF53CDC294310F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:A5153CC338A57E416DBB7A5859FF53CDC294310F
 ```bash
 magnet:?xt=urn:btih:B7E1F873A3260972A1408C26A390041581CD2AB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:B7E1F873A3260972A1408C26A390041581CD2AB3
 magnet:?xt=urn:btih:06BCC86A29E7C033AE94AACCC4E49ABFA998E29C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:06BCC86A29E7C033AE94AACCC4E49ABFA998E29C
 ```bash
 magnet:?xt=urn:btih:422B5E7900877842EAF693D4BE69612243C747B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

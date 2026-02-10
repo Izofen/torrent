@@ -19,6 +19,8 @@ Resource Builder — профессиональный редактор ресу�
 magnet:?xt=urn:btih:65D316F5C2BDBF435D9E40735CED5B90F3E43C26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FontLab Studio 5.2.2.5714 Portable by XpucT [En]
 ```bash
 magnet:?xt=urn:btih:5024F920811341DA07E5B5357E7038A2C7CED76F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ WinDjView — лёгкая, но функциональная программа
 magnet:?xt=urn:btih:796F8DC839CF9B28291E349AD4531EC13F14FEF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Aml Maple это индикатор языка (раскладки клавиа�
 ```bash
 magnet:?xt=urn:btih:E9FFACD1B34964EBB9929545E19A4E5EC03D9D10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ ConfigFox — удобная утилита для управления скры
 magnet:?xt=urn:btih:80CC1828F0E341AE0FB10F6829A09F0AF4606398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ AnyMP4 Screen Recorder - программа предназначена для з
 magnet:?xt=urn:btih:1A7D2FFA3531B65E03910B78221DCF4EC52A19CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Alternate QR Code Generator 1.760 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:22C7DF1918656E8BA2ACD7D4C6102E91C40BD097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Movavi Screen Recorder (ex. Capture) Studio - программа для захв
 magnet:?xt=urn:btih:BF7DCA37B4C31EAE6D449EF2DB702E60FC189F2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Eltima Recover PDF Password позволяет подбирать пароли �
 ```bash
 magnet:?xt=urn:btih:CCFCB322E5D529C204C4976F73AC35BF5CE7956A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ DirectX – это ряд технологий, благодаря которы�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ ColorMania является подборщиком цвета для Windows. Э
 ```bash
 magnet:?xt=urn:btih:2C5C66F673E4D8E44C5BC13C5D52CE530D8F482B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ ClickTeam Install Creator Pro - очень простой и в то же вре
 magnet:?xt=urn:btih:6218366EE93C9DCB23ACCECEB2910AAFBCE5558B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ MInstAll Portable-Soft by Bombokot 08.04.2018 [Ru]
 ```bash
 magnet:?xt=urn:btih:0E6B8492F2C5CFCCD98C87DE3FD7AA1495780B16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Free Countdown Timer 5.2.0.0 [Multi/Ru] + Portable
 magnet:?xt=urn:btih:5E1A9E0DDF84CDEF9BD2974CD848644D3462F269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ FontMassive – бесплатный, функциональный менедж�
 magnet:?xt=urn:btih:672C357E82EADED6601EAD549743E895C1B785A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Aml Pages - это электронная записная книжка, опе�
 ```bash
 magnet:?xt=urn:btih:E546989AD04C28257A1A42720BE83833A9FF6256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ HashCheck Shell Extension - бесплатная программа с откр�
 magnet:?xt=urn:btih:4649967CD099A60AC619C933A37C0312DFAB0774
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Screenshot Captor - мощная бесплатная программа для 
 ```bash
 magnet:?xt=urn:btih:184903C69882E1614166BB4DB902D08C3108EF29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Debut Video Capture - программа для захвата видео с э�
 magnet:?xt=urn:btih:F23E0F797E6AA4AFBCCC98543EADB15946329A77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Dexpot 1.6.14 Build 2439 Stable + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6DA93C8B34864875D57073A451C677308E3FB975
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ C-Organizer Professional - красивый и мощный персональн
 magnet:?xt=urn:btih:F50FDE964BE1324B163C343A86574546D8318E12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Duplicate Photo Finder – софтверный инструмент, предн
 ```bash
 magnet:?xt=urn:btih:DE743E4F43BDCB8BB66FE48E523F51A6C6CE36BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Reg Converter 1.2 Portable [Multi/Ru]
 magnet:?xt=urn:btih:F6E891297F8542CB6BE0FD511C5ADAB1866769D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:F6E891297F8542CB6BE0FD511C5ADAB1866769D6
 ```bash
 magnet:?xt=urn:btih:E151F91EAF162D6980E8314A9A792D0F2A39D4FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ addLEDs - крошечная, не требующая установки, ути
 magnet:?xt=urn:btih:10792CAB6B28FAB2ACC71AE767F5D82037F3D6C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ oCam Screen Recorder - бесплатная программа, позволяю
 ```bash
 magnet:?xt=urn:btih:2962A29C6575ED3564DD4DDEE4DCB7BFCBA9C33B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

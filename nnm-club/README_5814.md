@@ -22,6 +22,8 @@ VA - Music News vol.53 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:115058100D4A9F781C09B9B6EF299199E082A856
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:115058100D4A9F781C09B9B6EF299199E082A856
 ```bash
 magnet:?xt=urn:btih:B9B46A56BC1C81C0A4CFF8FAA79762E3366A903D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:B9B46A56BC1C81C0A4CFF8FAA79762E3366A903D
 magnet:?xt=urn:btih:9AA744E679A6FC869B12448B7221E3AB359ED300
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Skeleton Crew – новый захватывающий платформер, г
 ```bash
 magnet:?xt=urn:btih:4517E65980779B542C8807B9BDDB2E490941F10E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:4517E65980779B542C8807B9BDDB2E490941F10E
 magnet:?xt=urn:btih:0D142322FB9EE788CA667D4077CAF8E316203074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:0D142322FB9EE788CA667D4077CAF8E316203074
 magnet:?xt=urn:btih:25D3FD1ECEA661E41F5CC534154CF48D33E5182D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:25D3FD1ECEA661E41F5CC534154CF48D33E5182D
 ```bash
 magnet:?xt=urn:btih:CF01F7126773805CEAB4058436D82BD597DA30A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Ufo - Hot N’ Ready In Texas Live 1979 (2011) Remaster, 2023, Cleopatra Records
 magnet:?xt=urn:btih:7ECE768AAE1D2B3CC5C353500C5E2C0994BC98AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:7ECE768AAE1D2B3CC5C353500C5E2C0994BC98AC
 magnet:?xt=urn:btih:0AC163B22CA40534F9E5F01F082C09B0E4650529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:0AC163B22CA40534F9E5F01F082C09B0E4650529
 ```bash
 magnet:?xt=urn:btih:021C958608CB83FB65DB8E71CEDE58D9645AFBA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:021C958608CB83FB65DB8E71CEDE58D9645AFBA5
 magnet:?xt=urn:btih:CF760B2354BDB053353B7D74D7B9AB0508F5AD73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:CF760B2354BDB053353B7D74D7B9AB0508F5AD73
 ```bash
 magnet:?xt=urn:btih:B4442A9F58909781A4201740BFB151BC61ED9FF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Jon Anderson - Independent Stateside (1982) BROADCAST, 2023, Wickerman [FLAC|Los
 magnet:?xt=urn:btih:72AD2BBF754C77F530C15DB87CB9F3F8ABD41173
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ VA - Levitated Trance: Autumn (2023) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:AEF9E244C164C622054E6D4260DDA2350F8493CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ Eleventyseven - Gloom & Bloom (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Po
 magnet:?xt=urn:btih:E6E0D7612CE94EA77BC3EF876E641203B9F93F0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:E6E0D7612CE94EA77BC3EF876E641203B9F93F0E
 ```bash
 magnet:?xt=urn:btih:9AE61EEAE63CCCDFD97E291DA8D37505F523D0C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:9AE61EEAE63CCCDFD97E291DA8D37505F523D0C1
 magnet:?xt=urn:btih:B25D9342B5B3219BF9D007C81F514EE6B9B6EA2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:B25D9342B5B3219BF9D007C81F514EE6B9B6EA2E
 ```bash
 magnet:?xt=urn:btih:4F7D743B60F4987E38BDA51639E405B9F3B4784B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:4F7D743B60F4987E38BDA51639E405B9F3B4784B
 magnet:?xt=urn:btih:E7AEA29FABAE931AA71DB49E3328E0BCCC4DA34E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:E7AEA29FABAE931AA71DB49E3328E0BCCC4DA34E
 magnet:?xt=urn:btih:A7D7637DACD7F2700427622B316F098BEE76E2CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:A7D7637DACD7F2700427622B316F098BEE76E2CB
 ```bash
 magnet:?xt=urn:btih:A84D550BCF203D382A4F77EC9F008774B164EB74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:A84D550BCF203D382A4F77EC9F008774B164EB74
 magnet:?xt=urn:btih:2B19A08DEA17CE4A87F5A69F651B5BB626E9AAF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:2B19A08DEA17CE4A87F5A69F651B5BB626E9AAF9
 magnet:?xt=urn:btih:0025E069FC88EEF11A00C322277328A52FBC7A0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:0025E069FC88EEF11A00C322277328A52FBC7A0E
 ```bash
 magnet:?xt=urn:btih:56D0C245953BCC7E6B79C32E38EB12A5FED59015
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:56D0C245953BCC7E6B79C32E38EB12A5FED59015
 magnet:?xt=urn:btih:1A64D82FAF62D6B4DE86B3D876577E61841429A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ Office 2013-2021 C2R Install + Lite 7.4.9.1 b01 ++ Portable by Ratiborus [Multi/
 ```bash
 magnet:?xt=urn:btih:CF2E8F99A7DBE1BD1AC4EE2056FF5724FC89DE79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Total - 4 albums + 7 singles + Bonus (2002-2021) [MP3|128-320 kbps] <Alternative
 magnet:?xt=urn:btih:4DE5E1AD8CFCBECB106DAB58AC26DA55230EBF73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:4DE5E1AD8CFCBECB106DAB58AC26DA55230EBF73
 ```bash
 magnet:?xt=urn:btih:28C0438C70A9AF252A4E8FDC0F3DCCC8302572AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:28C0438C70A9AF252A4E8FDC0F3DCCC8302572AC
 magnet:?xt=urn:btih:4A778D935204C4D9A7D68BEBFCC38220D6D0262E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ NCH Crescendo Masters 6.13 [En]
 ```bash
 magnet:?xt=urn:btih:2D3188183FCB86F29CC150FA4627B2368D257FCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:2D3188183FCB86F29CC150FA4627B2368D257FCE
 magnet:?xt=urn:btih:632A1F1B38FB153DDAB22AEF6057B415BC6F4ECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:632A1F1B38FB153DDAB22AEF6057B415BC6F4ECB
 ```bash
 magnet:?xt=urn:btih:80842DDAA7F73BD388C94489599EC9B009A39325
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Danas Rising - Morgengrauen (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death Me
 magnet:?xt=urn:btih:E59A13863FCECF532B3639477AFB96CF28E48F4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ VA - Smooth Jazz n Chill 6 (2021) [AAC|~347 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:08E21DD9C51C87F374DADD16F6D82FE1266567B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ VA - Norsk Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:F9A17640D48D80AD7D74C854F8286FC62B62917C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ The Snuts - Burn The Empire (2023) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Altern
 magnet:?xt=urn:btih:C1D8A56B940B5F44F6D523D90FFF57A7C6F85303
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ Michael Pavlovich | Substance Designer Quick Start (2015) PCRec [EN, RU]
 magnet:?xt=urn:btih:3550358C45C4648F0A833B336F1A42CB8E4E41C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:3550358C45C4648F0A833B336F1A42CB8E4E41C2
 ```bash
 magnet:?xt=urn:btih:5E0C1431FA4BD3E76060740C4FCA25A4B4964094
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ Zynaptiq Orange Vocoder - это вокодер со множеством алг
 ```bash
 magnet:?xt=urn:btih:7719CC0BB36C3D4B1FCE96FF2CB514EA77CC7860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ VA - Fifty Shades of Lounge, Vol. 2 - 50 Smooth & Sexy Chill Tunes 4 Erotic Mome
 magnet:?xt=urn:btih:E33F8145F22418D8D499E702238A669EB5EE7443
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:E33F8145F22418D8D499E702238A669EB5EE7443
 ```bash
 magnet:?xt=urn:btih:FBAE980700A2F26BF0B3F2FD76714C7A80A13480
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ VA - Убойная Сила. Любимые песни из телесериа�
 magnet:?xt=urn:btih:F1400E62F41648F4FAA2221D1A194DEE66AA2B4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ Cristallight iBarcoder - профессиональный генератор ш�
 ```bash
 magnet:?xt=urn:btih:C5B526B1CB57994CDF194AB3DA63D8CD98A7B7FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ RTG. Приокско-террасный заповедник (2014) HDTV [H.264
 magnet:?xt=urn:btih:7900E4A34B55F275208028E4EEBF7399017C69D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:7900E4A34B55F275208028E4EEBF7399017C69D2
 ```bash
 magnet:?xt=urn:btih:F9FD43B373CCE7CCF68F31973DE1EEF20E9ED8A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:F9FD43B373CCE7CCF68F31973DE1EEF20E9ED8A3
 ```bash
 magnet:?xt=urn:btih:EDF2CE23716ADA5FE8D0AE5E57D647A3D9AE6F04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ Necrodeath - Singin' in the Pain (2023) [FLAC|Lossless|WEB-DL|tracks] <Black, De
 magnet:?xt=urn:btih:1A6B2D0FD5FE9311C85F03D3E7CC34ADD3634252
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ magnet:?xt=urn:btih:1A6B2D0FD5FE9311C85F03D3E7CC34ADD3634252
 magnet:?xt=urn:btih:D24457ECA75417C275ED905321500037C4FBE8FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:D24457ECA75417C275ED905321500037C4FBE8FF
 ```bash
 magnet:?xt=urn:btih:5BD3CFEBCDC13F938B8A789C03C3655033491D58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +650,8 @@ VA - Fireplace Chill, Vol. 2 (2020) [AAC|~313 Kbps] <Lounge, Chill Out, Downtemp
 magnet:?xt=urn:btih:515B0EA03AB4F1C8A024A96E522DEF48CCC78219
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ WonderPen - приложение для как для профессиональ
 ```bash
 magnet:?xt=urn:btih:023A9318D70AB17AED77F7D3231CE1041F027584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +704,8 @@ VA - soft pop 2023 (2023) [OGG Vorbis|480 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:C63473B2B44932A230943A6AC1867BB8741B3692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

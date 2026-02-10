@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:AB7C9B99B941A1CBE61C2499DD2E24C8F05AA3B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:AB7C9B99B941A1CBE61C2499DD2E24C8F05AA3B5
 magnet:?xt=urn:btih:3503A6D65665596AB795616202B775EEA1765716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:3503A6D65665596AB795616202B775EEA1765716
 ```bash
 magnet:?xt=urn:btih:214BC94F4DFFB47390E88549CEFA2C86305D28C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +109,8 @@ magnet:?xt=urn:btih:214BC94F4DFFB47390E88549CEFA2C86305D28C4
 magnet:?xt=urn:btih:F0D2F9A98052B4F68F543B6D9EC21706008DFDE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:F0D2F9A98052B4F68F543B6D9EC21706008DFDE8
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Dr. Gabriel N. Schenker | The Ultimate Docker Container Book, 3rd Edition (2023)
 magnet:?xt=urn:btih:CA823C77CF68D2BE444DF37E0C4A01D8CBA2089B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Shingeki no Kyojin: The Final Season (2023) | Attack on Titan The Final Season (
 ```bash
 magnet:?xt=urn:btih:A5B1AC8B4248CD2E3D1810C10A2848074898EA33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ One eleven — это мрачный детектив о двенадцати о
 magnet:?xt=urn:btih:87770F086BFA4E48084FC872E526CEE5E6FD9FAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ The Beast Inside (2019) [Ru/Multi] (1.05) License GOG
 ```bash
 magnet:?xt=urn:btih:755EC97D09D62E6D3978C750E058E1E5A6F2F91B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:755EC97D09D62E6D3978C750E058E1E5A6F2F91B
 magnet:?xt=urn:btih:2CCECB80A76EC3BC24BFE3D2544200404E968DFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:2CCECB80A76EC3BC24BFE3D2544200404E968DFE
 magnet:?xt=urn:btih:29C4C450047158B8D852EB265AF52F19B30B9809
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ SIGNALIS (2022) [Ru/Multi] (1.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7E540F1AD16BFB460B883486287BACCEA06E4D00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ podlodka.io | Podlodka Python. Асинхронность (2023) WEB-DL [RU]
 magnet:?xt=urn:btih:33569EBA452638D5BB8645EC9F9F0D3CC557AB1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:33569EBA452638D5BB8645EC9F9F0D3CC557AB1D
 ```bash
 magnet:?xt=urn:btih:606050AC99CD1CAA09DD26FC98B5C99686E06786
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:606050AC99CD1CAA09DD26FC98B5C99686E06786
 magnet:?xt=urn:btih:C2C0DFD6D2459570650E6888EAB93D8B18812041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:C2C0DFD6D2459570650E6888EAB93D8B18812041
 ```bash
 magnet:?xt=urn:btih:7CE4BB0EB33D8B4590AB0D1D0DD51E7AF43FCD86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ Proglib.Academy, Наталья Кайда, Александр Пупышев | 
 magnet:?xt=urn:btih:CA20CE33CD25BD65A63E3B30A5E63C25B25E38E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:CA20CE33CD25BD65A63E3B30A5E63C25B25E38E3
 ```bash
 magnet:?xt=urn:btih:BA2769124AD53C0B16FA195E953B3AE6C4B2605A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ The Expanse: A Telltale Series (2023) [Multi] (1.0.902523.2310241203) Scene Rune
 magnet:?xt=urn:btih:82490826DDD17BCD5176CF40E319DD03179202F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:82490826DDD17BCD5176CF40E319DD03179202F2
 ```bash
 magnet:?xt=urn:btih:B91E4D4FE86DC0D11B3D2D06A045C1B93CEF302F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:B91E4D4FE86DC0D11B3D2D06A045C1B93CEF302F
 magnet:?xt=urn:btih:D3195FAAAF8C878D4B4046D981F03ED9AD54AFA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:D3195FAAAF8C878D4B4046D981F03ED9AD54AFA7
 ```bash
 magnet:?xt=urn:btih:6F27F093F7C6E7B6A5D280304957243CF333BC2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:6F27F093F7C6E7B6A5D280304957243CF333BC2E
 magnet:?xt=urn:btih:2ACC38E8F559184C6D582261154CFCF2C536957F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:2ACC38E8F559184C6D582261154CFCF2C536957F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ Everyone Must Die: A Western Standoff - захватывающая игра-го
 ```bash
 magnet:?xt=urn:btih:167933BE0B1B88021ACB0675B947488B2900BA27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +693,8 @@ Render.Camp, Daniel Nagaets, Irena Poliakova and etc. | Professional Visualizati
 ```bash
 magnet:?xt=urn:btih:59375CDC1970FA3A94901EF4400EC6421BFD5462
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

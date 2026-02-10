@@ -1,3 +1,32 @@
+###  Публикация: 1017139   (763133) от 16.05.2016
+
+Marsyas - Pieces Of Favour (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Folk Rock, Acoustic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_763133.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	The Last Moment (Na Poslední Chvíli)
+A2	Early Evening Blues (Blues Navečer)
+A3	Gold And Diamonds (Zlato A Stříbro)
+A4	From The Beginning(   Читать дальше...   )Жанр: Folk Rock, AcousticПродолжительность: 00:40:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BE2B58A0091EC59AE800ED616BBD1FF06EB039D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394384   (763679) от 05.07.2020
 
 Boney M. - Hooray! Hooray! It's A Holi-Holiday (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Disco>
@@ -21,6 +50,8 @@ B Ribbons Of Blue
 ```bash
 magnet:?xt=urn:btih:17032F2F3921B09E6FE8487BD89DEF10377ABBDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ A4 You(   Читать дальше...   )Жанр: RockПродолжитель
 magnet:?xt=urn:btih:1529B5A8CAACC68161392192D59F1F0D85678103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - The Absolute Sound (2018) [DSD64 2.0|1bit/2822,4kHz |SACD-R]<Classical>
 ```bash
 magnet:?xt=urn:btih:1A7AC211001E63569A95EE26B6397A0634D14427
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ Mr. Big - Lean Into It (1991) remastered 2021, Evoxs, 30th Anniversary Edition [
 magnet:?xt=urn:btih:F5152486EDE676445F9114E1D7570282AC7202F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ A4 Gudbue Gudbue(   Читать дальше...   )Жанр: Glam RockПрод�
 ```bash
 magnet:?xt=urn:btih:B25FFBD682E9A89D16461FC92806138C4DF1C1BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +197,8 @@ Kraftwerk - Minimum-Maximum (2005) 2CD, Upmix [DTS 5.1|44.1/24|tracks|CD-Audio] 
 magnet:?xt=urn:btih:63BAC0D161521B7143664E800ED1F8D9C74F08A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +225,8 @@ A4. Tear It Up (2:29)(   Читать дальше...   )Производств�
 ```bash
 magnet:?xt=urn:btih:278675164DBCBB51AD4772275427EE1D5F4651B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +255,8 @@ Nirvana - Nevermind (1991) (Upmix) [DTS] <Grunge>
 magnet:?xt=urn:btih:F60201231EA8A30CB4FAD83A9A57208DDB26F67D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +284,8 @@ Abba - 7 Альбомов (1975-1981) /Polar-Disco mate, Japan/ [FLAC 2.0 24/192
 magnet:?xt=urn:btih:3F46A3A0C00943AFC55E458B73EAFF845F873126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +310,8 @@ Vaya Con Dios - Night Owls (1990) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop, Pop-J
 magnet:?xt=urn:btih:DA3F0249265CBB61A1FF2B0A8C30AB9302B5DC7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +335,8 @@ magnet:?xt=urn:btih:DA3F0249265CBB61A1FF2B0A8C30AB9302B5DC7F
 ```bash
 magnet:?xt=urn:btih:EBCF3778D92E0673B6A03A8630B32D552E81D453
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:EBCF3778D92E0673B6A03A8630B32D552E81D453
 ```bash
 magnet:?xt=urn:btih:6AD6BAC84384FED12CF8400D3A33D813975AFC40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +393,8 @@ The Beatles - Let It Be (1970) [FLAC 2.0|192/24|tracks|Vinyl-Rip]<Pop Rock>
 magnet:?xt=urn:btih:9B1F26D630AF5C5EB577FAF4E2AB95463A30728F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +422,8 @@ magnet:?xt=urn:btih:9B1F26D630AF5C5EB577FAF4E2AB95463A30728F
 magnet:?xt=urn:btih:4B170818E4BB94D80B712BDFC4BE6C5DB9DDD178
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +450,8 @@ magnet:?xt=urn:btih:4B170818E4BB94D80B712BDFC4BE6C5DB9DDD178
 ```bash
 magnet:?xt=urn:btih:A2CD66E8A5ED1CFFE72699A595E97ABF2795062F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ Dead Can Dance - In Concert (2013) [FLAC 2.0 16/44.1|Tracks (Web-DL)]<Rock / Dar
 magnet:?xt=urn:btih:81BB7570030DC04447DF5925D8A4125BDE24ADE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ A4 A Woman Who Sings · Женщина Которая Поeт(   Читать д
 ```bash
 magnet:?xt=urn:btih:F99F729BD77B67D57886CDFD2742E31DB8E336C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ Pink Floyd - The Dark Side Of The Moon (1973) Repress, 1974, Harvest [FLAC 2.0|1
 magnet:?xt=urn:btih:3165A902D9E0EAA39B5C3CCCA330F85F1C9CD7DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ Imagine Dragons - Night Visions (2012) [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <
 ```bash
 magnet:?xt=urn:btih:5A5388CE1B361B85EDF1692D9AC925DA26CFDB4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ Lindsey Stirling - Shatter Me (2014) [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <Du
 magnet:?xt=urn:btih:7B90C59C319DD4A7CA29272EDF7F763173D0ACD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ Within Temptation - Hydra (2014) [FLAC 2.0|192/24|image + cue|Vinyl-Rip] <Rock>
 ```bash
 magnet:?xt=urn:btih:8404BFE1F2EAC5D41638FAB2B010C58864E49E66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ Lindsey Stirling - Brave Enough (2016) [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Mo
 magnet:?xt=urn:btih:BB9E73B1F759B061B09727E85848AA367F1C36DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ Queen - The Game (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
 ```bash
 magnet:?xt=urn:btih:917FEFB453720A6BF0F4E87012394F4F45DA796B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ A3 Good Days Have Gone(   Читать дальше...   )Жанр: Pop, FolkП�
 magnet:?xt=urn:btih:FE47DCD164DDA7F43736DEFB744B22B3844689A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ Robert Plant - Digging Deep (2020) [DSD 128|tracks|Vinyl-Rip] <Pop/Rock>
 magnet:?xt=urn:btih:88D7BEDC507C9AD409BF258406862B15A172F150
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205577   (783152) от 11.02.2018
-
-Teruo Yoda and Moody Kings - The Season Of Love (1968) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <Easy Listening, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Koi No Kisetsu (3:23)
- 02. Yuzuki (2:25)
- 03. Shinjuku Sodachi (2:57)
- 04. Hoshi O Minaide (2:28)(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8BB63C9B9B6E6158E22B89E710F00C29593D927
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

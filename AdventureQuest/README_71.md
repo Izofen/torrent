@@ -19,6 +19,8 @@ The 9th Gate (2018) [En/Ch] (1.0) Repack Other s
 magnet:?xt=urn:btih:7B999FE87CF02AF28D06769C0B168520008623FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Jack Keane / Джек Кейн (2008) [En] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:CD6859E93C25722C10B0F53095C21015042B03F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Park – одиночный хоррор для PC. Funcom описывае�
 magnet:?xt=urn:btih:55498BA45D6F2380844C7FA900165D4F4963FC18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/dlc) Repack xatab [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:A857E2E918C38A6F74A2FC8EF8D778F4B1F94659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Fahrenheit: Indigo Prophecy Remastered является переизданием
 magnet:?xt=urn:btih:6B21E53391B816B5B42BA38043DC9A10ED298F3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Dreamfall Chapters — это сюжетно-ориентированная эп
 ```bash
 magnet:?xt=urn:btih:06098479BC3408AFFB8975E60FF7A6B2936195F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Intruders: Hide and Seek — игра в жанре стелс от первог
 magnet:?xt=urn:btih:B0F0244A4143A290C312E9584246432812EE23D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ The Shattering (2020) [Ru/Multi] (1.1.9/dlc) License GOG (обновляемая
 ```bash
 magnet:?xt=urn:btih:78DE382F74943BB2064173BB50774177A098ABF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Rabbit Hole (2022) [Ru/Multi] (Build 9481229) Repack Other s
 magnet:?xt=urn:btih:17D43B48A9D1B04FCEFE68EB0A6B5F331B1D134E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ MIAZMA or the Devil's Stone (2018) [En] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:4E0B5C8B0255C16BF190040A064ACB8276033C04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Virginia — триллер от первого лица про маленьки
 magnet:?xt=urn:btih:0CE0966F1632D81E4F7BA5312A66286BE72BB14E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ The Inner World - The Last Wind Monk (2017) [Ru/Multi] (96894D) License PLAZA
 ```bash
 magnet:?xt=urn:btih:DCBEB0FC3C382DF947736E44CAD2CC220292B2AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ DUMMY LIFE - игра-головоломка из научной фантаст�
 magnet:?xt=urn:btih:D8A6346DB892D0200C35EBA6FCEE158053298BDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ The Long Dark – это хардкорный симулятор выживан�
 ```bash
 magnet:?xt=urn:btih:091A02552BCFA792E938C5C4DD4FC756F89C9EBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Painted Memories — это приключенческая игра, в кото
 magnet:?xt=urn:btih:D4E4FE5983F28EE7E88C0C15C129869CF0F7C584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Alpha Polaris: A Horror Adventure Game (2015) [Ru/Multi] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:9C02DDE521B68D18CBDFA27987FABBD196F4AA11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Lucid Dream — история о маленькой Люси и её путеш
 magnet:?xt=urn:btih:BFB1E59D4AD12CAFED1F2AAF5F96D450F0895BC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Little Big Adventure 2 (1997) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:CA36B6F796A93E677D513A683ECDC3E0D5E3A626
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ The First Tree — красивый квест от третьего лица, �
 magnet:?xt=urn:btih:194405E376806DAF5333854C4D0B5FDCA19FD057
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Palmyra Orphanage — это паранормальный хоррор от пе
 ```bash
 magnet:?xt=urn:btih:DC1505B6048AEE6FA13041259DB066176193D73D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Teenagent (1994) [En] (1.0) License GOG
 magnet:?xt=urn:btih:26D0BD427165D429B8971997786E6AF2DD7C782C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ The Light / Свет (2012) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5665AFF4110F62ADD9D06759ED867899F4E72935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ The Train / Поезд (2013) [Ru/En] (1.1) Repack Other s
 magnet:?xt=urn:btih:8F5896455347024D270D59B680BE5AEDD591FC9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ B A S E M E N T (2017) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:73EBFF6C3D3BF7EF846996E58CA10C20614D4CD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Loco Parentis — сюрреалистичный survival-horror, где вам 
 magnet:?xt=urn:btih:C7C351E39BF0B5C026D597BBA445143CA9F872B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Manual Samuel - забавная приключенческая аркада о 
 ```bash
 magnet:?xt=urn:btih:829316A116F54B34AA0D4A684D84C5006F237081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

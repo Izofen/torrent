@@ -22,6 +22,8 @@ Loonypark - Strange Thoughts (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 magnet:?xt=urn:btih:1B105D505B8190B0893E6E95E0D5C9CFA829EFF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:1B105D505B8190B0893E6E95E0D5C9CFA829EFF3
 ```bash
 magnet:?xt=urn:btih:33085E2EC85A9E38A603308D9DA2C12E4469584F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Big Bus Dream - C'mon Dream (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 magnet:?xt=urn:btih:E35B03118CF56F428CEC6B643577D129DE00AF8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:E35B03118CF56F428CEC6B643577D129DE00AF8D
 magnet:?xt=urn:btih:A7909885A52DE2BD27F2BE5F58B9CA4508361C09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Reg Organizer - это многофункциональная программа
 ```bash
 magnet:?xt=urn:btih:37C0615E3149C93394FCD8EDE79437C310615C17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:37C0615E3149C93394FCD8EDE79437C310615C17
 magnet:?xt=urn:btih:55A4EA6E06902FA2A301BFDA2D5EAFC503CDB7A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:55A4EA6E06902FA2A301BFDA2D5EAFC503CDB7A3
 ```bash
 magnet:?xt=urn:btih:4E7C8CA8CD0959136B44720D4ED709F7EBEE6CD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:4E7C8CA8CD0959136B44720D4ED709F7EBEE6CD5
 magnet:?xt=urn:btih:874B420FA37F075171AA53B8C9DD4AD9747079AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:874B420FA37F075171AA53B8C9DD4AD9747079AA
 ```bash
 magnet:?xt=urn:btih:FA408580B5FF800B588861F32D8DB9A466E41DF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Robert Connely Farr - Country Supper (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues
 magnet:?xt=urn:btih:1DE218B70D3AC75DC3BADB1D7BEB2F911C21B8A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:1DE218B70D3AC75DC3BADB1D7BEB2F911C21B8A2
 magnet:?xt=urn:btih:22EB299CA48930E15DF1021AA2EE1AE34578D5D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Udemy, Sergey Dragunov | Room Persistance Librar - Приложение Shopping
 ```bash
 magnet:?xt=urn:btih:85B72D5013C3277DF6772599DD0B3C37E28EE3A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Grymheart - Hellish Hunt (2023) [MP3|320 Kbps] <Melodic Death, Folk Metal>
 magnet:?xt=urn:btih:167F0A8C8333FD206C929EAB6CCF1C89E5DA0B68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:167F0A8C8333FD206C929EAB6CCF1C89E5DA0B68
 ```bash
 magnet:?xt=urn:btih:BB6E81E8CA581ECD6D893CF2061D4E3FC0992351
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:BB6E81E8CA581ECD6D893CF2061D4E3FC0992351
 magnet:?xt=urn:btih:BC1186FBC82E944EE98931EB5B4E651FA4A97D27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:BC1186FBC82E944EE98931EB5B4E651FA4A97D27
 ```bash
 magnet:?xt=urn:btih:218737C3555D198D5C6043030332210D655D504B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:218737C3555D198D5C6043030332210D655D504B
 magnet:?xt=urn:btih:4D1D917E4D45B840BF17F4B4BD154EB9951AE067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:4D1D917E4D45B840BF17F4B4BD154EB9951AE067
 magnet:?xt=urn:btih:25AF9311F6B2F60ECF30ECE1DCD6A8A2B0DCFF8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:4ABA4E966A8FC7DF44F7693E303DF717D9408091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ Candleblack - The Passage of Time and Suffering (2023) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:AD9C6871EB408CF4703E4F0932B41D8E40852E2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:AD9C6871EB408CF4703E4F0932B41D8E40852E2F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ NG. Охотники за вирусами / Virus Hunters (2020) IPTV [H.264/10
 ```bash
 magnet:?xt=urn:btih:9CF33CD29F28303D2BE18F223F2178182B2F6DA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ Vibravoid - Edge of tomorrow (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, 
 magnet:?xt=urn:btih:591B13CA06B0D8A3740337D50964966326A812C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:591B13CA06B0D8A3740337D50964966326A812C5
 ```bash
 magnet:?xt=urn:btih:728D5525F57E0098CF11F39E4AE1ABC208D0A10F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:728D5525F57E0098CF11F39E4AE1ABC208D0A10F
 magnet:?xt=urn:btih:495E410CE04AB65E0DFBCDEDE5A19642A3021196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:495E410CE04AB65E0DFBCDEDE5A19642A3021196
 ```bash
 magnet:?xt=urn:btih:B7D270B5943460C405B8F2E15090B1D6E155735E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

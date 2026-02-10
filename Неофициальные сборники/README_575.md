@@ -1,3 +1,32 @@
+###  Публикация: 1496406   (873202) от 17.09.2021
+
+VA - Chill House Travel Session (2021) [MP3|320 Kbps] <Chill, Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873202.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Smhrs - I Belong Here
+002. Tee Zed - Retro Fifth
+003. Leftfield Funk - 1990
+004. Sam Pills - Waterfront(   Читать дальше...   )Жанр: Chill, Deep House, ElectroПродолжительность: 09:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C63BB356CC7C41A4593ABCF626B4E13B55FF835F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496399   (873204) от 17.09.2021
 
 VA - Beatport Drum & Bass: Sound Pack #348 (2021) [MP3|320 Kbps] <Drum And Bass, Bassline, Dubstep>
@@ -21,6 +50,8 @@ VA - Beatport Drum & Bass: Sound Pack #348 (2021) [MP3|320 Kbps] <Drum And Bass,
 ```bash
 magnet:?xt=urn:btih:EC107CB78B9758F909AB709D01B5F81F12FD1A86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - The Time Elapsed (2021) [MP3|320 Kbps] <Techno, Electro>
 magnet:?xt=urn:btih:B76175233DDC355EA63AC1948F08DFC641F449A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Beatport Electro House: Sound Pack #347 (2021) [MP3|320 Kbps] <Electro Hous
 ```bash
 magnet:?xt=urn:btih:8320C4565B9536922FE9C74B59CE69FABFD9BEE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Beatport Psychedelic Trance: Sound Pack #349 (2021) [MP3|320 Kbps] <Psy, Go
 magnet:?xt=urn:btih:DD61B2DB14A0014492806E50C52A77E60B771C1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - NRW: Ethnic Electro House (2021) [MP3|320 Kbps] <House, Electro, Ethnic Dan
 ```bash
 magnet:?xt=urn:btih:33C3629E70BBA19F425B0834F75305E0E1EA077B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Sound Of Quasicrystal (2021) [MP3|320 Kbps] <Techno, Minimal, Electro>
 magnet:?xt=urn:btih:66863600DA6B861EC7B77961889A453E5854EB39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Empire Records - New Age 2 (2017) [MP3|320 Kbps] <New Age, Relax>
 ```bash
 magnet:?xt=urn:btih:2A7EF46C63CE22E2E84733F78685F179D2DDD527
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Золотые Медляки (2016) [MP3|320 кб/с] <Pop, Rock>
 magnet:?xt=urn:btih:969361978CCCE84E4B007CE3C5EAFBD062EB2C2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - I Love Music! - Trap Edition Vol. 35 (2017) [MP3|320 Kbps] <Trap>
 ```bash
 magnet:?xt=urn:btih:CA177840A5973D40D4B3D6A018D12A524F9448F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Record Super Chart #475 (2017) [MP3|320 Kbps] <House, Club, Danc>
 magnet:?xt=urn:btih:B1E1748728C2B4588263552370CE1250A843C9FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ magnet:?xt=urn:btih:B1E1748728C2B4588263552370CE1250A843C9FD
 ```bash
 magnet:?xt=urn:btih:53CA341C437E3D86A4BF2B866707C630D5DB77A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Empire Records - Club Hit 10 (2017) [MP3|320 Kbps] <Club, Dance>
 magnet:?xt=urn:btih:7B14B45A5895706A89D68478231BB6579A87BE5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +396,8 @@ VA - I Love Music! - Trap Edition Vol. 36 (2017) [MP3|320 Kbps] <Trap>
 ```bash
 magnet:?xt=urn:btih:3E502AC562F63B560DCABF72FF449B79B01A0C1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +426,8 @@ VA - German Top 100 Single Charts 17.02.2017  [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:87F0C667AB260AF86E5A0C19AB8B84D14CD7B39F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +454,8 @@ VA - Лучшие блатные хиты года. Выпуск № 7 (2017) [M
 ```bash
 magnet:?xt=urn:btih:10F3173D13FFC158E95A88952D5E5800D8F1BE28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +484,8 @@ VA - Deep Meditation 50 Tracks - Healing Sounds of Nature (2016) [MP3|320 кб/�
 magnet:?xt=urn:btih:A60F6EED5AEA299E7AFBB2CE58F623EFD697CB59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +512,8 @@ VA - Снегопад новинок. Выпуск 10 (2017) [MP3|256 Kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:4DA616AFA3F40BB20843CA67B825D9F6F40CB2C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +542,8 @@ VA - Club Dance Ambience Vol.102 (2017) [MP3|320 Kbps] <House, Mash Up, Dance, C
 magnet:?xt=urn:btih:118E13D67190E0AB98075F61A18D1E8F2B7D79EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +570,8 @@ VA - Зимние лучшие блатные песни. Сборник № 8 (
 ```bash
 magnet:?xt=urn:btih:14F73D4EB070ABA602760758A573243AB6C8204A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +600,8 @@ VA - Euphonic Traveller: Tropical Chill Zoone (2017) [MP3|320 Kbps] <Downtempo, 
 magnet:?xt=urn:btih:F0A5ACE72CF916A7CD2D5F45D66E1575C7BA7C95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +628,8 @@ VA - Empire Records - Dancenudisco 9 (2017) [MP3|243-320 Kbps] <Disco, Dance, Nu
 ```bash
 magnet:?xt=urn:btih:25B6AC856AFF6291A0C868DF52696952BD7B6D68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +658,8 @@ VA - Зимняя сотка хитовая. Часть № 6 (2017) [MP3|256 Kb
 magnet:?xt=urn:btih:D208147425645150281E7C875C36A034B1134813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +686,8 @@ VA - 100 Hits Winter  Vol.2 (2016) [MP3|320 кб/с] <Pop, Dance, Hip-Hop, RnB>
 ```bash
 magnet:?xt=urn:btih:4EC16C2CB9FD1B546FCFA96A29115D9B84AA2F62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +716,8 @@ VA - Зимняя русская радиоволна. Часть № 2 (2017) [
 magnet:?xt=urn:btih:97C1E325ABF4FDFFA36A0E5F7AA550ED1D58DD2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,38 +745,7 @@ VA - Ultimate Pop Grand Theme (2016) [MP3|320 кб/с] <Country, R&B, Hip Hop, R
 magnet:?xt=urn:btih:E4195415C2A23382DF1A040DD3E445A45075AC08
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 643226   (873860) от 14.04.2013
-
-VA - Delicate Lounge (2013) [MP3|320 кб/с]<Lounge, Lo-Fi, Downtempo>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_873860.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Reunited - Sun Is Shining (7:28)
-2. Cafe Royale - Atlantic Highway (3:56)
-3. Zelonka - Impossible Dream (4:28)
-4. Ambray - The Light (4:28)
-5. Christophe Goze - Dream (5:41)
-6. Pure Sound Destiny - Silk Words (4:15)
-7. Sakai Asuka Feat. Ely Bruna - Fashion (4:19)
-8. Playgarden Feat. Anne K - Driving In Your Car (3:53)
-9. Shakrag - Rainy Days In Shanghai (5:04)
-10. Sol Y Luna Aventura - Verano De Lluvia (3:39)Жанр: Lounge, Lo-Fi, DowntempoПродолжительность: 08:30:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF630EFBDDEDC93FDCF318AA3AF8E1B3EE244137
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Janosik 2 – продолжение истории, начатой в перв�
 magnet:?xt=urn:btih:DD9D6ECABA211D9589F84793919C18271D65361C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:DD9D6ECABA211D9589F84793919C18271D65361C
 ```bash
 magnet:?xt=urn:btih:57F18386C47642D9FB1DAFE9CFE034D00BDF684F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Song of Farca (2021) [Ru/Multi] (1.0.2.25) License GOG
 magnet:?xt=urn:btih:739A3DF0518E07672C29BE884A9826E4567B5760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:739A3DF0518E07672C29BE884A9826E4567B5760
 ```bash
 magnet:?xt=urn:btih:95972A9F9F694CAFB211061B1801B4EAADBEC3DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ MInstAll v.23.12.2024 By Andreyonohov (ISO) [Ru]
 magnet:?xt=urn:btih:77FBFA85037E4254A674F218B9652B8D2CE5C051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:77FBFA85037E4254A674F218B9652B8D2CE5C051
 ```bash
 magnet:?xt=urn:btih:012B3461E98794EED647B758EB150F00D3D22198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Shadow Warrior - шутер от первого лица от создателе
 magnet:?xt=urn:btih:A8058D2326DD1058F760A44AEC78F62622521E2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:0529A8BA4E24336EDE047271CD7E3C3B252C40A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:0529A8BA4E24336EDE047271CD7E3C3B252C40A1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ STAR WARS: Bounty Hunter (2024) [Ru/Multi] (1.1 patch 2) License GOG
 ```bash
 magnet:?xt=urn:btih:B0FB3FCD4899741C1BCCE9B8FD25A51481CCDF14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:B0FB3FCD4899741C1BCCE9B8FD25A51481CCDF14
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:B0FB3FCD4899741C1BCCE9B8FD25A51481CCDF14
 magnet:?xt=urn:btih:4AFFEB527AFCEAA4F7734D08603C1815D28F7295
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ Airship: Kingdoms Adrift - это симулятор торговли и бое�
 ```bash
 magnet:?xt=urn:btih:5E4F105C0253F9DBF9C287C150168043B1CBFDB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:5E4F105C0253F9DBF9C287C150168043B1CBFDB5
 magnet:?xt=urn:btih:FD5AF2757BAD8515B35D107E9E6589D6C8149235
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:FD5AF2757BAD8515B35D107E9E6589D6C8149235
 ```bash
 magnet:?xt=urn:btih:97331361D839AEDADC8896FCEAB1C2C72DD79FDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Windows Vista, 7, Windows 8, 8.1, 10, 11 Server 2008, 2008 R2, 2012, 2012 R2, 20
 magnet:?xt=urn:btih:F11522BF4A51CFC6D1F8123F6E67DC2F08E3DFCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Star Trail - это верный ремейк классического про�
 ```bash
 magnet:?xt=urn:btih:82A8776833FDF1D639B74E5604A1439CF8E685F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:82A8776833FDF1D639B74E5604A1439CF8E685F7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:82A8776833FDF1D639B74E5604A1439CF8E685F7
 ```bash
 magnet:?xt=urn:btih:13CFA1E2E649C65153B6CEE38F43713DABEE12CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:13CFA1E2E649C65153B6CEE38F43713DABEE12CF
 magnet:?xt=urn:btih:90B43AD09E57E58D7978C0C3518B338260CE819B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:90B43AD09E57E58D7978C0C3518B338260CE819B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Repack seleZen
 magnet:?xt=urn:btih:B23EBABE61956EF2A17091D2636332C8E02DB787
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ magnet:?xt=urn:btih:B23EBABE61956EF2A17091D2636332C8E02DB787
 ```bash
 magnet:?xt=urn:btih:054BAE87FD6D38CF8AEFED499C16183D2256C8E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:054BAE87FD6D38CF8AEFED499C16183D2256C8E4
 magnet:?xt=urn:btih:722A8A1CD1BE9DEED8D82F409C1B6F18D4D44CEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:722A8A1CD1BE9DEED8D82F409C1B6F18D4D44CEC
 magnet:?xt=urn:btih:B50F07B541734A6B9633B4470B68F830D0F4F069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:B50F07B541734A6B9633B4470B68F830D0F4F069
 ```bash
 magnet:?xt=urn:btih:3FBC4767153D5053E2D742E5EF06799E1E85F0F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

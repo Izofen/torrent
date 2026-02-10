@@ -19,6 +19,8 @@ Duplicate File Finder Pro 2404 [Multi/Ru]
 magnet:?xt=urn:btih:2A1657B522E5EDDDC3290325C0F24D562901C920
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tor Browser Bundle 13.5.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:53480F83C194620F76832B4B1BF7791DE77993B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ AnyDesk 8.0.11 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:B55A91375FC24CBFDA819348D26FF2A8D82D8BB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:EF68536A1129D49E8158F6E5C49DA6052042C683
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Maplesoft Maple 2024.1 [En]
 magnet:?xt=urn:btih:93933AA447F7C5EC963A384F1BC034438ADC7C04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Cyberlink PhotoDirector Ultra — многофункциональный ред�
 ```bash
 magnet:?xt=urn:btih:12DD8788F7D07964CEE87B0B82249F936B172923
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ CPU-Z способен показать различную информацию 
 magnet:?xt=urn:btih:97FC9DD73FCFFB9624F208EB6B1A9FE3B0791153
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ DxO PhotoLab Elite 7.7.2 build 234 RePack by KpoJIuK [Multi]
 ```bash
 magnet:?xt=urn:btih:17877ACD460E7DB58A3A1754CE4B5FE0B102F8A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Nitro Pro – программа, которая является альтерн
 magnet:?xt=urn:btih:5D59C2B3EC68E6CA0FD64C5F33838ED2A1D48212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Eassos DiskGenius - программа для управления раздел�
 ```bash
 magnet:?xt=urn:btih:A037865696C39572C63819096E33FBF2DC50F175
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Free Download Manager - кроссплатформенный менеджер з
 magnet:?xt=urn:btih:8B46EAC51089D444C72B6CB2EBDB4D9F3F7B7ABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Microsoft .NET 8.0.7 Runtime [Ru/En]
 ```bash
 magnet:?xt=urn:btih:3AA3432176CDD8B93DCB8A4FFAF7D57202515A11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ AIMP 5.30 Build 2560 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:B40AF2AAE62402C710F66B661C51C2D9F0910E02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:A635FC53DFFF9A83C40A8DB057945DC3CBB3D4FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ CPU-Z способен показать различную информацию 
 magnet:?xt=urn:btih:FEBEB9837B02F17A4A806515E8225560C970FF34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ DefenderKiller - программа для удаления/восстановл
 magnet:?xt=urn:btih:8515B329D4207BB5B793E1633A348448DF18FD62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 ```bash
 magnet:?xt=urn:btih:6BB947614C3B3F88296AE91D734E653FFA2C80F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Ashampoo Music Studio 10 - это Швейцарский армейский но
 magnet:?xt=urn:btih:994DDE7A577A1E230D966DEE596D38B22FF355ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:DF701F4856AEB4577F73E98D4F1061029F6F790F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Media Player Classic Home Cinema – удобный во всех планах �
 ```bash
 magnet:?xt=urn:btih:F3F82088E8A28283EEB2AA8B33C5B8316F44EAB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ AllDup - бесплатный инструмент для поиска и уда
 magnet:?xt=urn:btih:91114A4DB345E773F09293AD02B5B305B7AEFE62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ RadioMaximus 2.33.00 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AA77D04F5BB0B47298145790DC9DC3EC8876BC0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ v2rayN — это универсальный инструмент VPN и про�
 magnet:?xt=urn:btih:4FEFB35CE2E1D91FE516C58F11F07B9B0C23BE40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:2B49B456CA9D8F495BD463084CCD217F118630CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:F61DA89754829806BEAE378A158078E512A065ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ DefenderKiller - программа для удаления/восстановл
 ```bash
 magnet:?xt=urn:btih:B6F0EAE0D82E487282F34FF639B7DFDBBE5A35DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

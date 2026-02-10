@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:A3C1941083BEDA06CD0A8BDD6B111BA59D636A25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:A3C1941083BEDA06CD0A8BDD6B111BA59D636A25
 ```bash
 magnet:?xt=urn:btih:767CA5D72BF0BBBC784A4CA31F131BEFB6CD0444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:767CA5D72BF0BBBC784A4CA31F131BEFB6CD0444
 magnet:?xt=urn:btih:997BD193549EE1D9404791198B4D98905359B2E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - КИНОпробы - tribute Виктор Цой (2000)[APE|lossless]<rock>
 ```bash
 magnet:?xt=urn:btih:EE78E5BCE473C86331ED35A9510F05677ECD8327
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ The Neighbourhood - (((((ultraSOUND))))) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:B738E75193E7CC7730D2B61CDF6C717A1739BE44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Megadeth - I Don't Care (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal
 ```bash
 magnet:?xt=urn:btih:8A95FFB4EFEC14EACC5FCD160C9ACB2804EFD9A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Various Artists - No Life 'Til Leather - A Tribute To Metallica’s Kill ‘Em A
 magnet:?xt=urn:btih:5D0B77EEA5F61C2962C303C4F4C933EB2A8C4177
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Michael Schenker Group - Don't Sell Your Soul (2025) Japanese Edition [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:D50893FD1F414FA328CDA2086DF129E96AA012E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ magnet:?xt=urn:btih:D50893FD1F414FA328CDA2086DF129E96AA012E3
 magnet:?xt=urn:btih:D7B0D3C17FF46CD822A236F57426711B6B3AC267
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ magnet:?xt=urn:btih:D7B0D3C17FF46CD822A236F57426711B6B3AC267
 magnet:?xt=urn:btih:E3E5535DE1CC8FE770ACFAE222378052CBC16CBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ magnet:?xt=urn:btih:E3E5535DE1CC8FE770ACFAE222378052CBC16CBC
 ```bash
 magnet:?xt=urn:btih:58BFE4F4FBEC18F1F1A0A370BAAEDB50BC35D993
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +343,8 @@ VA - Glory Days Of Rock 'n' Roll ( 5 x 2CD) (1999) [FLAC|Lossless]<Rock & Roll>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +380,8 @@ Six Feet Under - Undead (2012) [MP3|320 кб/с]<Death Metal, Death'n'Roll>
 magnet:?xt=urn:btih:B5D7743A0D7BB035431EC57B7E2E1D01E535B6EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +414,8 @@ Sonata Arctica - Stones Grow Her Name (Deluxe Edition) (2012) [FLAC|Lossless]<Po
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +450,8 @@ CD 1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +485,8 @@ Oomph! - Des Wahnsinns Fette Beute (2012) [MP3|320 кб/с]<Industrial Metal>
 magnet:?xt=urn:btih:52E26F78DBEA97B2331CC133A4F203E2E2E8948A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +513,8 @@ Linkin Park - Burn It Down (Single) (2012) [MP3|320 кб/с]<Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:EFD389A0D2ACAE97B28BBF61DA314C19BA209595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +549,8 @@ VA - A Tribute To Queen (2012) [MP3|320 кб/с]<Rock, HardRock>
 magnet:?xt=urn:btih:ED4F7420EEE8E4D429241EF3E3B1DEB7502BB9AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +584,8 @@ The Rasmus - The Rasmus (2012) [FLAC|Lossless]<Rock, Alternative Rock, Symphonic
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +612,8 @@ Portugal. The Man - Shish (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Rock
 ```bash
 magnet:?xt=urn:btih:B35595DD8FCA45D55911CE165BD59A2FC5F452A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +648,8 @@ Roger Waters - The Best (1995) [FLAC|Lossless]<Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +682,8 @@ Roger Waters - The Best (1995) [FLAC|Lossless]<Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +710,8 @@ Kauan - Wayhome (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric Black 
 ```bash
 magnet:?xt=urn:btih:6177DA53638433E01C2DF512815D68983EA0C1AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -694,6 +740,8 @@ Back Jack - Certainly In Neverland (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 magnet:?xt=urn:btih:637FB132FBCB7FC0C187243C99001C8271771AA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -721,6 +769,8 @@ Feanor - Hellhammer (2025) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:62865CCA91B33718C03741E2226732078167477E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -747,6 +797,8 @@ Heavyone - Heavyone (2011) [MP3|224 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:EDD659A36A375727D2EC92FB825F1A7BF75DDAD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

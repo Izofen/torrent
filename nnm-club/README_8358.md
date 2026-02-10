@@ -19,6 +19,8 @@ Adventures of Robin Hood [En] (RePack) 1992 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ VA - Playbox На Европе Плюс (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:340DE51E6C746FFB8F7B82E90E7E8074316EB731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:340DE51E6C746FFB8F7B82E90E7E8074316EB731
 ```bash
 magnet:?xt=urn:btih:2C83C7B34F314FAD321C454D4C177633BF705CD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:2C83C7B34F314FAD321C454D4C177633BF705CD7
 magnet:?xt=urn:btih:D38C3C4E506F5163183B20A9530EA4FAE270E94D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:D38C3C4E506F5163183B20A9530EA4FAE270E94D
 ```bash
 magnet:?xt=urn:btih:A571B3A36E7E225574B6F08475851C8314DF4912
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:A571B3A36E7E225574B6F08475851C8314DF4912
 magnet:?xt=urn:btih:CF9A6970FFEF5E8B4448AFB88E474242B4973337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ VA - Инструментальная музыка (2012) vol. № 36 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:6F512B5264CE791976C015CBA064C16DDA55EA21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ VA - Инструментальная музыка (2012) vol. № 35 [MP3|320 �
 magnet:?xt=urn:btih:3505239F5A0834BFA2C5E41E1547AAEA04FDCEFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:3505239F5A0834BFA2C5E41E1547AAEA04FDCEFC
 ```bash
 magnet:?xt=urn:btih:191609EB9BB2AB57B529A2D4D67C15EE7D5215D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ Elijah Prophet - 2 альбома(2006, 2011) [MP3|192 кб/с]<Reggae>
 magnet:?xt=urn:btih:485CC3AFEECDF4F59FDC5BD57AECD24B243EC4B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:485CC3AFEECDF4F59FDC5BD57AECD24B243EC4B4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:485CC3AFEECDF4F59FDC5BD57AECD24B243EC4B4
 ```bash
 magnet:?xt=urn:btih:E51B22A485D73D1AC0CCE716F6BB0DA49074E049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:E51B22A485D73D1AC0CCE716F6BB0DA49074E049
 magnet:?xt=urn:btih:10FCB5FA8CF528F1946CBEB6C1B3A16D8AF94908
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:10FCB5FA8CF528F1946CBEB6C1B3A16D8AF94908
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:10FCB5FA8CF528F1946CBEB6C1B3A16D8AF94908
 ```bash
 magnet:?xt=urn:btih:5648E82CD4E5C5CBFD264BCB0D8C2CA636DB484F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:5648E82CD4E5C5CBFD264BCB0D8C2CA636DB484F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:5648E82CD4E5C5CBFD264BCB0D8C2CA636DB484F
 ```bash
 magnet:?xt=urn:btih:CA4B2D6D5B54D5E5B90A99570ABBED4E5B24E078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ Accept - Stalingrad (2012) 2LP [WavPack 2.0 32/96|image (Vinyl-Rip)]<Heavy Metal
 magnet:?xt=urn:btih:ED416EC19D27D3AD0626D6BE3018BF611B0041C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:ED416EC19D27D3AD0626D6BE3018BF611B0041C2
 ```bash
 magnet:?xt=urn:btih:3C36D793A4EEEB7377CB08656A27A3DD30E39DEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ Fort Boyard: La Legende [Ru] (RePack) 1996 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ Fort Boyard: La Legende [Ru] (RePack) 1996 | Pilotus
 ```bash
 magnet:?xt=urn:btih:1C0FC10AC0EEBECF87903B1BC6BFE6513A9051D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:1C0FC10AC0EEBECF87903B1BC6BFE6513A9051D7
 magnet:?xt=urn:btih:8D836821EDFC538E05AD6A11E0883A458A5D72A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:8D836821EDFC538E05AD6A11E0883A458A5D72A9
 ```bash
 magnet:?xt=urn:btih:0E9A5EEF28D9E0AC8D8D6A4D3764289B6B8F5D2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ magnet:?xt=urn:btih:0E9A5EEF28D9E0AC8D8D6A4D3764289B6B8F5D2F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:0E9A5EEF28D9E0AC8D8D6A4D3764289B6B8F5D2F
 ```bash
 magnet:?xt=urn:btih:4D5179A8B5F7B3EB1C4D094F1773A0067EC04D98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +696,8 @@ StaxRip - инструмент для кодирования видео "все-
 ```bash
 magnet:?xt=urn:btih:B2BA0C20675911B7EED32DDA64EE41A2BEA77497
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

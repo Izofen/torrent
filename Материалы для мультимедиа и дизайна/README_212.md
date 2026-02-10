@@ -1,3 +1,136 @@
+###  Публикация: 1064367   (427560) от 19.10.2016
+
+Пресеты - VideoHive - Gold & Silver Presets [FFX, AEP]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используется для создания профессионального вида названий или логотипов с золотом, серебром или текстурой хрома. Вы можете выбрать глянцевый или матовый вариант текстуры и размер скоса. Кроме того, вы можете легко анимировать блики.Формат: FFX, AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E85E9C659B881AA038A05F749467BED4DA07E1B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166092   (427885) от 15.09.2017
+
+Экшены - GraphicRiver - Portfolium - Post Processing Photoshop Action [ATN, ABR]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Portfolium - Post Processing - универсальный экшен фотошоп для пост обработки вашего фотоматериала.  Очень детализированный результат, много возможностей для улучшения конечного результата.
+Для достижения наилучшего результата, используйте фотографии с размером от 3000–4000px (рекомендуется 3500px) разрешение 240-300dpi (рекомендуется 300pdi).Формат: ATN, ABR
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63FFF5D2E8DD01390A91C7AEC8DA9A3BDFF4D04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 708866   (427953) от 09.10.2013
+
+Растровый клипарт - Новый Год и Рождество / Christmas & New Year [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427953.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотосток на тему: "Новый Год и Рождество"Формат: JPEGРазрешение файлов: 1900х2100-8500х5600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2462785E50BCDCAC37B313BF5C6EC53EBFA70B45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 708587   (427959) от 09.10.2013
+
+Векторный клипарт - Детишки и книжки / Kids and books [EPS]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Детишки и книжкиФормат: EPS и превью в JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE401958324B5613B41DB2111A41F8ADEECDC706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553359   (427988) от 04.10.2012
+
+3D модели - Evermotion - Archmodels Vol. 093 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_427988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной сборник 3d моделей от Evermotion!
+
+Данный сборник содержит 12 высокополигональных и полностью затекстуренных моделей мотоциклов и других типов "железных коней"!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D96FD9C223CE8BD6281AB6246D3EB12766427A8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250087   (428774) от 26.09.2018
 
 Экшены - GraphicRiver - Shadow Fighter Photoshop Action - 22557845 [ATN, ABR]
@@ -19,6 +152,8 @@ Shadow Fighter - боец из полумрака, тени. Он появляе
 ```bash
 magnet:?xt=urn:btih:C538EF9CD04DC43ECBFB87FECDDFD982E4F74930
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +179,8 @@ magnet:?xt=urn:btih:C538EF9CD04DC43ECBFB87FECDDFD982E4F74930
 magnet:?xt=urn:btih:313D2353047F54E6B59DF76BCE3BAFF2CA0D6820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +204,8 @@ magnet:?xt=urn:btih:313D2353047F54E6B59DF76BCE3BAFF2CA0D6820
 ```bash
 magnet:?xt=urn:btih:220C9848D99522E72EA674FA9508F7789FC5AEA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +231,8 @@ magnet:?xt=urn:btih:220C9848D99522E72EA674FA9508F7789FC5AEA7
 magnet:?xt=urn:btih:9DD79001B5C9D338FA158CDFD0EC2606CF37A38F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +256,8 @@ magnet:?xt=urn:btih:9DD79001B5C9D338FA158CDFD0EC2606CF37A38F
 ```bash
 magnet:?xt=urn:btih:5BC94E6F2D092594E719F6CA44A008636D01F73F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +283,8 @@ magnet:?xt=urn:btih:5BC94E6F2D092594E719F6CA44A008636D01F73F
 magnet:?xt=urn:btih:50808E707CD857BD4C3B9713E5A14ED0B0F17D05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +308,8 @@ magnet:?xt=urn:btih:50808E707CD857BD4C3B9713E5A14ED0B0F17D05
 ```bash
 magnet:?xt=urn:btih:A7EEAC6B0542C2061A1C0BBE79FD3FACE75ABDD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +338,8 @@ magnet:?xt=urn:btih:A7EEAC6B0542C2061A1C0BBE79FD3FACE75ABDD1
 magnet:?xt=urn:btih:25349A919DB7D6A8331DEE237278F4F4B3701BFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +364,8 @@ magnet:?xt=urn:btih:25349A919DB7D6A8331DEE237278F4F4B3701BFF
 ```bash
 magnet:?xt=urn:btih:71E8E0D9C85F41940307B979B8746A5D4A708805
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +392,8 @@ magnet:?xt=urn:btih:71E8E0D9C85F41940307B979B8746A5D4A708805
 magnet:?xt=urn:btih:FE3B7C0151901F65CF4A9719EC58641E4E2ED676
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +417,8 @@ magnet:?xt=urn:btih:FE3B7C0151901F65CF4A9719EC58641E4E2ED676
 ```bash
 magnet:?xt=urn:btih:4A22E5A0CA9751C11A3A888D3AF70B333600D56D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +445,8 @@ magnet:?xt=urn:btih:4A22E5A0CA9751C11A3A888D3AF70B333600D56D
 magnet:?xt=urn:btih:EC28F077D6FCA0F0A7DDA817DD374D4DF764069C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +471,8 @@ magnet:?xt=urn:btih:EC28F077D6FCA0F0A7DDA817DD374D4DF764069C
 magnet:?xt=urn:btih:7EB470D610BDAE46AD51A0453476571374410CBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +496,8 @@ Multiple Scene Hero Images [PSD]
 ```bash
 magnet:?xt=urn:btih:CCC74CAF9FBDDA09F4E9A06A89DF3BAE5FDC239E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +524,8 @@ Acrylic Paint Art - экшен фотошоп превратит вашу фот
 magnet:?xt=urn:btih:6F1F5B9F5906E01E1E77BED9F95A6C0B4345E196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +549,8 @@ magnet:?xt=urn:btih:6F1F5B9F5906E01E1E77BED9F95A6C0B4345E196
 ```bash
 magnet:?xt=urn:btih:C50CFF61C40A7122085870BBD5ECFCB608B3EDCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +576,8 @@ magnet:?xt=urn:btih:C50CFF61C40A7122085870BBD5ECFCB608B3EDCA
 magnet:?xt=urn:btih:F3161BA039033AD460647771BA5B0C9EEE007FAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +601,8 @@ magnet:?xt=urn:btih:F3161BA039033AD460647771BA5B0C9EEE007FAB
 ```bash
 magnet:?xt=urn:btih:6426A0CC30CDB3A1E3DD256600E2FA304C04308A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +628,8 @@ magnet:?xt=urn:btih:6426A0CC30CDB3A1E3DD256600E2FA304C04308A
 magnet:?xt=urn:btih:CBC37CD2B4757ADF2EF6C29A49E06D4F77CC8948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +653,8 @@ magnet:?xt=urn:btih:CBC37CD2B4757ADF2EF6C29A49E06D4F77CC8948
 ```bash
 magnet:?xt=urn:btih:3A0C71BD51605005EF57B1FF17A6284E33D4542B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,125 +680,7 @@ magnet:?xt=urn:btih:3A0C71BD51605005EF57B1FF17A6284E33D4542B
 magnet:?xt=urn:btih:2D9A1B4477E0434359DE3E4576D5125A65EA11CB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411180   (429554) от 24.09.2020
-
-Растровый клипарт - Elements Collage 144 [PNG, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429554.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, JPGРазрешение файлов: 202x229-2105x2162
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B26159C9943DE2DCB9F5C874E58FA61A1FE5863A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411171   (429615) от 24.09.2020
-
-Растровый клипарт - Elements Collage 140 [PNG, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, JPGРазрешение файлов: 53x500-2627x1250
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DC0C69D4867C0DB05A162D6179FC84C63EABB1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411152   (429623) от 24.09.2020
-
-Растровый клипарт - Elements Collage 132 [PNG, PSD, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 268x238-1600x1843
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:891D1916524D87AE5133FA3445E7388796DD8080
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411151   (429624) от 24.09.2020
-
-Растровый клипарт - Elements Collage 131 [PNG, PSD, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 26x603-3498x784
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B9753AA954D92784C5A32679569FEA2E244060
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411164   (429626) от 24.09.2020
-
-Растровый клипарт - Elements Collage 138 [PNG, PSD, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429626.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 183x546-1800x1413
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE847C7D38CFE047A1D376F3455FA961092148F8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

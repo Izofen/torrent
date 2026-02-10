@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:BC58E02161B1AC5F50470F8A5A67117CCB897A25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:BC58E02161B1AC5F50470F8A5A67117CCB897A25
 magnet:?xt=urn:btih:753C9A197D14F890DE6534168B75E5F4958BF37E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:753C9A197D14F890DE6534168B75E5F4958BF37E
 magnet:?xt=urn:btih:A02367E9FABD1C7215537214FACF9963A260013F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:A02367E9FABD1C7215537214FACF9963A260013F
 ```bash
 magnet:?xt=urn:btih:3B522B2FC6E2473F0072631F66C8974BC84B441E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:3B522B2FC6E2473F0072631F66C8974BC84B441E
 magnet:?xt=urn:btih:F8A98F5A57AF02F969EE8DD609665F32C9490996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ XXIX Мемориал имени Ивана Ромазана 2020 — 29-й ст
 magnet:?xt=urn:btih:DB8B90BD0B100D2A0F2A2258B581387B31D3B7FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:DB8B90BD0B100D2A0F2A2258B581387B31D3B7FB
 magnet:?xt=urn:btih:AE32CEECC8CF51A7165E3F6783F304FDF0B0E16D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:AE32CEECC8CF51A7165E3F6783F304FDF0B0E16D
 ```bash
 magnet:?xt=urn:btih:5071D4B1EB1FD376F4FA3483FF6F168B2B0CEC6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:5071D4B1EB1FD376F4FA3483FF6F168B2B0CEC6A
 magnet:?xt=urn:btih:5B9E31EB28768F9291A529E56FB53165F5F74B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:5B9E31EB28768F9291A529E56FB53165F5F74B13
 ```bash
 magnet:?xt=urn:btih:7692FDCA6912CB382B78AF55A965047286EA208B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ magnet:?xt=urn:btih:7692FDCA6912CB382B78AF55A965047286EA208B
 magnet:?xt=urn:btih:FB5BF80C2E91B18D4B87F519179958106954E6CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ magnet:?xt=urn:btih:FB5BF80C2E91B18D4B87F519179958106954E6CA
 ```bash
 magnet:?xt=urn:btih:37E86E4A2CD17FFE696C07A2FDBD977C28DE5C30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +357,8 @@ magnet:?xt=urn:btih:37E86E4A2CD17FFE696C07A2FDBD977C28DE5C30
 magnet:?xt=urn:btih:0F36FA85B957C3581CBED714C30DC1EDD3A6D9DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ magnet:?xt=urn:btih:0F36FA85B957C3581CBED714C30DC1EDD3A6D9DC
 ```bash
 magnet:?xt=urn:btih:93F42B0251910E94966F789EFF39F2083BB851D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +413,8 @@ Parimatch Sochi Hockey Open 2020 - предсезонный хоккейный �
 magnet:?xt=urn:btih:7D0B3A1701C3AE49CD7E8BC939394C10CCE810FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +442,8 @@ Parimatch Sochi Hockey Open 2020 - предсезонный хоккейный �
 magnet:?xt=urn:btih:2B67D0423F8DA64F06FE8C53FEE949821FB37039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +470,8 @@ magnet:?xt=urn:btih:2B67D0423F8DA64F06FE8C53FEE949821FB37039
 magnet:?xt=urn:btih:98631797D8006B6FEC41D9994C235A76A3D3A020
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +497,8 @@ magnet:?xt=urn:btih:98631797D8006B6FEC41D9994C235A76A3D3A020
 ```bash
 magnet:?xt=urn:btih:77ED7CB50A8CB1AECAD9C3907F2F031E37162740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +527,8 @@ magnet:?xt=urn:btih:77ED7CB50A8CB1AECAD9C3907F2F031E37162740
 magnet:?xt=urn:btih:1F923FFF50EB710D4F3B63417FB9A9DCD1D73829
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +555,8 @@ magnet:?xt=urn:btih:1F923FFF50EB710D4F3B63417FB9A9DCD1D73829
 ```bash
 magnet:?xt=urn:btih:DBF9E3685FADAFA83C06A80F1CD9DA98D6C48F19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +585,8 @@ Parimatch Sochi Hockey Open 2020 - предсезонный хоккейный �
 magnet:?xt=urn:btih:4557F32399AFFCD50B43E085816021F21C7D4288
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +613,8 @@ magnet:?xt=urn:btih:4557F32399AFFCD50B43E085816021F21C7D4288
 ```bash
 magnet:?xt=urn:btih:B989FB60838C79898844EFEC53E069565EC41504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +643,8 @@ magnet:?xt=urn:btih:B989FB60838C79898844EFEC53E069565EC41504
 magnet:?xt=urn:btih:68F693C06A963EB7BA971C74E7617C3621B7A2D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +671,8 @@ magnet:?xt=urn:btih:68F693C06A963EB7BA971C74E7617C3621B7A2D9
 ```bash
 magnet:?xt=urn:btih:7BB5C7E16AF14BDB5BB95A7E88DEB031A1171867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +701,8 @@ magnet:?xt=urn:btih:7BB5C7E16AF14BDB5BB95A7E88DEB031A1171867
 magnet:?xt=urn:btih:79821B19E06DB29AC031AACE5D09C32BDD2D4831
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +726,8 @@ magnet:?xt=urn:btih:79821B19E06DB29AC031AACE5D09C32BDD2D4831
 ```bash
 magnet:?xt=urn:btih:8E318D8A2178DBFF98D9879B35A7494E86C8CA14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

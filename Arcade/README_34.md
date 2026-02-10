@@ -19,6 +19,8 @@ Iron Brigade + DLC [Ru/En] (RePack/1.0) 2012 | Audioslave
 magnet:?xt=urn:btih:E22EF20FF72C12681363D0F57C0310717BB32AEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Brave: The Video Game / Храбрая сердцем [Ru/En] (RePack/1.0.0.3) 2
 ```bash
 magnet:?xt=urn:btih:28C2120C48986BEA1C8C8E9F9FDC93F059623302
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Death Point – это классический стэлс-экшн, котор�
 magnet:?xt=urn:btih:05E426F57FD8CF2A7C86F42514E860A237F5EC63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM 2 - это все самое яркое, 
 ```bash
 magnet:?xt=urn:btih:59DEF85610C55A23AB4C2AF8F7D11AD040210442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Unravel Two (2018) [En] (1.0) License CODEX
 magnet:?xt=urn:btih:16D388A125324DB350BB45AD5C997465B1C103D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Unravel Two продолжает тему оригинальной игры, н�
 ```bash
 magnet:?xt=urn:btih:24649FEC1D51B9BF189BDC49298968C15D0C5D3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Assault Android Cactus - это футуристический аркадный 
 magnet:?xt=urn:btih:7C91AA89031A46F2EB36FD955E7BDFE4134A6006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Cannon Brawl - революционный тауэрдеф с полной ра�
 ```bash
 magnet:?xt=urn:btih:A8F564289CC2A8B71E8E47C19A7C066D54D07DB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Zombotron (2019) [Ru/En] (1.2.1) Repack Other s
 magnet:?xt=urn:btih:B369559068232129E599716A0E73C96B0072223D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ LASTFIGHT: возвращение 3D-боя в режиме 2х2! Подбери
 ```bash
 magnet:?xt=urn:btih:0E4AB4B01A70A6FAD66D1ECD45048BDBFCFFE789
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Insanely Twisted Shadow Planet - это аркада про то, как учё�
 magnet:?xt=urn:btih:A73619197B67C4DC9861C322508C55CC012058FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Masterplan (2015) [En/De] (1.1.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:92CFD5228CB640FE91661E52715CF3F68C788A03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Goo Saga - HD Edition — необычный платформер с массо�
 magnet:?xt=urn:btih:764D245E4CC1FC983A5632C732E09A42AE3B0946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Office Freakout – экшен от первого лица, где вам пр�
 ```bash
 magnet:?xt=urn:btih:8ABFB940EE4BA5B192E921116B3748FF8822E6C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Distrust (2017) [Ru/Multi] (1.0) Repack xatab
 magnet:?xt=urn:btih:887A77B095D4DBB6F5A9E3E40AD084FB9D8F7604
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Distrust (2017) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:C35A03BA1A969298C87EFD0EBC8140169CCA9F46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Escapists 2 (2017) [Ru/Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:3B00D4A056DC7541A9004042ADAD104BF6026122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Super ComboMan (2017) [Ru/Multi] (1.04) License PLAZA [Smash Edition]
 ```bash
 magnet:?xt=urn:btih:34C56F27659BF16ECA8C0D82B85CA6261354B5BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Galactic Junkers (2022) [Multi] (1.0.1.0) License FAiRLIGHT
 magnet:?xt=urn:btih:D61557E107FBBC15FEF4FB63B150F37C5ECD221E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Swords & Souls: Neverseen (2019) [Ru/Multi] (1.14) License GOG
 ```bash
 magnet:?xt=urn:btih:7B13B7E71ECE8BBF5475663BAFF9BC9FCA282535
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Monster Boy and the Cursed Kingdom (2019) [Ru/Multi] (1.0_rc4) License GOG
 magnet:?xt=urn:btih:79BC044B6712AF64EA9B49B409440B82935A8CD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Hatred - это безжалостный изометрический шутер
 ```bash
 magnet:?xt=urn:btih:029A92A6489391E7C489E4198FBFCB3C6192D7E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Hero of the Kingdom III (2018) [Ru/Multi] (1.00) Repack Other s
 magnet:?xt=urn:btih:67CE9D81EBCD24FED9B12C139D61861832D48382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Sundered – ужасающая борьба за выживание и здра
 ```bash
 magnet:?xt=urn:btih:DA3FABFE9EFDDB85D401D619630FA91C135C01E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Sundered – ужасающая борьба за выживание и здра
 magnet:?xt=urn:btih:4A90A2A2272B8AC682F4FE6F35376E2DEE453905
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Absolute Drift – гоночная инди аркада, в которой в�
 ```bash
 magnet:?xt=urn:btih:855D4584978136523D302E4F283F6522DCF5F8EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

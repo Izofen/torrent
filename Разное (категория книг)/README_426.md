@@ -1,3 +1,29 @@
+###  Публикация: 909442   (627391) от 17.06.2015
+
+Игорь Прокопенко | Тайны Космоса (2015) [FB2, EPUB, PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627391.jpg" />
+</div>
+
+
+###  Подробнее
+
+С чем сталкивались космонавты на орбите и почему об этом принято молчать? Правда ли, что все известные на Земле вирусы, включая ВИЧ, попали на нашу планету из космоса? Какая судьба ждет человечество после того, как изменятся магнитные полюсы планеты? Есть ли связь между падением метеоритов и эпидемиями, которые уносят миллионы жизней? Конец света, который предрекали (   Читать дальше...   )Жанр: История, ГеографияФормат: FB2, EPUB, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE6450B9B62256FC8025FDC0FE14295FEF787E9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909385   (627499) от 17.06.2015
 
 А. В. Михеева | Скрапбукинг. Изысканные подарки своими руками (2013) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:5CCEF64E27411C00EDECED25C23027EDA82F11AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:5CCEF64E27411C00EDECED25C23027EDA82F11AE
 magnet:?xt=urn:btih:B84CBE7FC5934BB27B3B975BBB8C8DCB72F05DD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:B84CBE7FC5934BB27B3B975BBB8C8DCB72F05DD2
 ```bash
 magnet:?xt=urn:btih:0B14C62B53F1A0BDCD39C3AF6A1D3A370BE2B66A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:0B14C62B53F1A0BDCD39C3AF6A1D3A370BE2B66A
 magnet:?xt=urn:btih:BABADF6623FF769355FF83E6E20C721807E2843C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:BABADF6623FF769355FF83E6E20C721807E2843C
 magnet:?xt=urn:btih:8B80736C7CCFAE5F03CC92DD7243A959A0F8CCB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:8B80736C7CCFAE5F03CC92DD7243A959A0F8CCB8
 magnet:?xt=urn:btih:F031CCCCE81426EA1FDED68E4F4E79ABFF170EBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:F031CCCCE81426EA1FDED68E4F4E79ABFF170EBA
 ```bash
 magnet:?xt=urn:btih:3598AEB5282E5E8777B74A5DC93BC2E531292521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:3598AEB5282E5E8777B74A5DC93BC2E531292521
 magnet:?xt=urn:btih:E85808FE606F96A294EA4111B0B78FBA7C307ACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:E85808FE606F96A294EA4111B0B78FBA7C307ACF
 ```bash
 magnet:?xt=urn:btih:6CAC4A075D9E4E18991655AA630A46E41E8224A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:6CAC4A075D9E4E18991655AA630A46E41E8224A6
 magnet:?xt=urn:btih:C8E775C89FC0824B0646D9E1D3C2D6A411B80285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:C8E775C89FC0824B0646D9E1D3C2D6A411B80285
 ```bash
 magnet:?xt=urn:btih:892BFC8670FC0DC2E9A8569DA1A5E7CEA9A1B60D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:892BFC8670FC0DC2E9A8569DA1A5E7CEA9A1B60D
 magnet:?xt=urn:btih:2479DCBA7C0690501FAD94F411607DB2626A3A72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:2479DCBA7C0690501FAD94F411607DB2626A3A72
 ```bash
 magnet:?xt=urn:btih:2E96A23D2CA0945043BA261F7EC542420A64AD6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:2E96A23D2CA0945043BA261F7EC542420A64AD6D
 magnet:?xt=urn:btih:613A22E6B3ED7EEBA05922AA128545C63BAC7C14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:613A22E6B3ED7EEBA05922AA128545C63BAC7C14
 ```bash
 magnet:?xt=urn:btih:A36002C6FFAAD9A6B5AE3435D9D38FCE7582682A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:A36002C6FFAAD9A6B5AE3435D9D38FCE7582682A
 magnet:?xt=urn:btih:BAEC80E5BA1A894D5BCAD8D656B5C11A44CE171F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:BAEC80E5BA1A894D5BCAD8D656B5C11A44CE171F
 ```bash
 magnet:?xt=urn:btih:1BC643A6AF4B4B353B3DF5B63AAD44253D4097E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:1BC643A6AF4B4B353B3DF5B63AAD44253D4097E9
 magnet:?xt=urn:btih:59F5B300275A6EC9E32E38C72A7021A99A665B61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:59F5B300275A6EC9E32E38C72A7021A99A665B61
 ```bash
 magnet:?xt=urn:btih:5E7A4275120AFE88DEACB731ADFC46FE2DE7D8E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:5E7A4275120AFE88DEACB731ADFC46FE2DE7D8E6
 magnet:?xt=urn:btih:B1568EEA221008AD2943455A56DF68F255FEE8AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:B1568EEA221008AD2943455A56DF68F255FEE8AF
 ```bash
 magnet:?xt=urn:btih:50D6767EAC00678B24C588360DC21A69423CA026
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:50D6767EAC00678B24C588360DC21A69423CA026
 magnet:?xt=urn:btih:380F5C2625DCDE193F7AA8DB0271FF447FAD8AB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:380F5C2625DCDE193F7AA8DB0271FF447FAD8AB5
 ```bash
 magnet:?xt=urn:btih:48EB318645162B549364A6C28EADB85EC673AB96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:48EB318645162B549364A6C28EADB85EC673AB96
 magnet:?xt=urn:btih:1237DC02B815A0C2DC494F0CFAEFCAD5DE63CFA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,31 +681,7 @@ magnet:?xt=urn:btih:1237DC02B815A0C2DC494F0CFAEFCAD5DE63CFA2
 magnet:?xt=urn:btih:5835A9C342DF668DE3318B5770E246534CAE5A97
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294442   (627960) от 08.04.2019
-
-Ярослав Глазунов | Анти-Титаник. Как выигрывать там, где тонут другие. Руководство для CEO (2018) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627960.jpg" />
-</div>
-
-
-###  Подробнее
-
-Покупайте конкурентов, усиливайте команду, предлагайте новые продукты и услуги. Все эти предложения для большинства собственников и руководителей компаний актуальны в период роста, когда график продаж неуклонно идет вверх, а на лицах членов совета директоров по итогам отчетных собраний из полугодие в полугодие непременно играет улыбка.
-
-Автор придерживается иного (   Читать дальше...   )Жанр: Бизнес, Менеджмент, Подбор персоналаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCE191CE5239AA41A9EDA926B68C25648C67DD28
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

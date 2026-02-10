@@ -28,6 +28,8 @@ Laura Fygi - At Ronnie Scott's (2002) [APE|Lossless]<Vocal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ Beegie Adair & Friends - Cocktail Party Jazz (2011) [FLAC|Lossless]<Jazz,Bop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ Lil Hardin Armstrong - Lil Hardin Armstrong (1936-1940) (1991) [FLAC|Lossless]<V
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +123,8 @@ Eddie Higgins Solo Piano - Standards By Request 1st Day & 2nd Day (2 CD) (2008) 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +159,8 @@ Beegie Adair - Quiet Romance (2006) [FLAC|Lossless]<Bop, Piano Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +190,8 @@ Earth, Wind & Fire - Original Album Classics (5xCD Box Set) (2008) Sony BMG / Le
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +215,8 @@ Ella Fitzgerald - Ella Fitzgerald (1935 - 1940) 5-CD (1990, 1991) [FLAC|Lossless
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +251,8 @@ Gianluigi Trovesi Ottetto - Fugace (2003) /ECM/ [APE|Lossless]<Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +285,8 @@ Big Time Operator - The Game (2001) [FLAC|Lossless]<Swing, Neo-Swing, Big Band>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +321,8 @@ Meena - Feel Me (2012) [FLAC|Lossless]<Blues, Blues Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +356,8 @@ Richard Bargel & Klaus 'Major' Heuser - Men in Blues (2012) [MP3|320 кб/с]<Ro
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +389,8 @@ Melvin Sparks - I'm A 'Gittar' Player (1997) [FLAC|Lossless]<Smooth Jazz, Blues>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +425,8 @@ Melody Gardot - Два альбома (2009-2012) [FLAC|Lossless]<Jazz, Smooth J
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +454,8 @@ Boney James - ‘Tis The Season (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sm
 magnet:?xt=urn:btih:80BFDAD0400456E0F8F54F8F1F56E5DC83B87089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +482,8 @@ John Scofield & Dave Holland - Memories of Home (2025) [FLAC 24/48|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:6A87B651BEBD1690E78BA30091637A2A91C7584B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +518,8 @@ Antonio Carlos Jobim - Complete Collections - 11 CD + 2 Boxset (1959 - 2011) [FL
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +552,8 @@ VA - Verve Jazz Masters - Vol. 01-60 (1994-1996) [MP3|320 кб/с]<Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +580,8 @@ Will Russell - Ghost (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:1CC4B56D221DC908092A64B12E70D63D97A59681
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +610,8 @@ VA - The Chess Records Christmas Album (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 magnet:?xt=urn:btih:A5901BD150CBD5F2C50FAE0634D2DC0A41A1447B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +638,8 @@ The Tasty Kings - The Kindness of Numbers (2025) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:F092FEB3B1F0C0560076251030571244C0E3B3B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +668,8 @@ The Lucky Losers, Cathy Lemons, Phil Berkowitz - Arrival (2025) [FLAC|Lossless|W
 magnet:?xt=urn:btih:C74CAA156E44E8040BF80A21F48E7A5378A7EB34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +696,8 @@ Steve Hooker - Smokin' Guitar (remastered) (2025) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:612BCE548B749B6B272B7291A8F4F366EEC99DD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -682,6 +726,8 @@ Southbound Snake Charmers - 1000 Cuts (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 magnet:?xt=urn:btih:720E839344A822A1AC3D663E977CACFB34BC2E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -708,6 +754,8 @@ Rich Wendel's Fat Fish Logic - The Last Comeback (2025) [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:4A987BA3072CC45C39765C286FB54F21DB49D16E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -736,6 +784,8 @@ Matthew Patrick - Authentico (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:D7CDB1010494B089D7BBECFFA53C38567DAA21C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -762,6 +812,8 @@ Luke - The Truth Remains The Same (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:CA5E6AB8E7D2B3FD26617594A5655006A82B72C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

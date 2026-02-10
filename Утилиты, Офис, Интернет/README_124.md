@@ -19,6 +19,8 @@ Wise Disk Cleaner 11.3.1.851 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:8BC34F63DF2A937431E4F6DD37C6AFC2CD976E11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MediaHuman YouTube Downloader 3.9.18 (2612) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:FD6FB75B199C9B087CCF6A75114F719FB9BB668F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:B6C5F35E44BAA83EA59C9C4848E524DCD2026762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ VueScan - программа предназначена для замены ст
 magnet:?xt=urn:btih:464AC29E9FDB881BB5441FBF7A13377C365517CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Master PDF Editor — простая, но эффективная програм
 ```bash
 magnet:?xt=urn:btih:0DA19F2A0AC9402B244915F6EFF55249A74B550B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Typora — это лёгкий и удобный редактор для соз�
 magnet:?xt=urn:btih:38D48FA3CC8294BD3DB53AAF82C8FBFF238C2A2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Ashampoo Burning Studio 27.0.0.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:F9FFA8FFA69375323144F4D5B96BE234E4995A5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:0D6F13AA49568E60257743F5059D2F68F2B793E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ iTubeGo YouTube Downloader 10.11.1 RePack (& Portable) by elchupacabra [Multi/Ru
 magnet:?xt=urn:btih:EB79979C38A52403C7505F66EA7A7A61C386E716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:9FC2BDFCD6901648FD3B70AB9FF18CD980286BF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:B116B159BFE445C82176E77148D2EF40D3BD8860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ The Bat! – общепризнанная система обработки эл
 magnet:?xt=urn:btih:4C304CBC051DCBA8FD7D96184697F4B047E67FA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ SoftMaker Office Professional 2024 Rev. S1230.1206 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FEADE73CF5A71C85AE8483EA770DE3903B1D71FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Bandicam поможет вам сделать запись игры с высо�
 magnet:?xt=urn:btih:2F9FBBCF6B3B0FECC37F9CA730655446CEBC9F5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ AOMEI Partition Assistant – мощная программа для работ�
 magnet:?xt=urn:btih:B47A7FA3B7E538969545565891C694BC368F25CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Aomei Partition Assistant – программа для работы с жёст
 ```bash
 magnet:?xt=urn:btih:B6F086C56B211B5DA66BD4668BC4933B94E39C71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Social Video Downloader обладает понятным и (   Читать �
 magnet:?xt=urn:btih:289DE8D7CE7FA433AC89F566C60C8DABBCEA08BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Social Video Downloader обладает понятным и (   Читать �
 magnet:?xt=urn:btih:DAE8B31D22503615CDDC2DE49DD80CD66764B5CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:52247C7AFF3BD669D9133BECEE0653666F2E690C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:E40937409B66DC856175213C641F0E7FB9F049C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:0B3D9AABB48410CCBCAA8EE274EDBE5B1CF18E54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Hard Disk Sentinel Pro — отличная программа для монит
 magnet:?xt=urn:btih:F692DEA5DF47D292CA4FC34BA6F1A026A8F773B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:F692DEA5DF47D292CA4FC34BA6F1A026A8F773B1
 magnet:?xt=urn:btih:C7633091681E35B0273B7EBBE26EB25D3E2F3586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ AOMEI Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:DBA76F61DEDBFE683BB99FAC96A1FC99BC6510BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ NVCleanstall - портативная утилита от интернет-по�
 magnet:?xt=urn:btih:16C656DB032D9327BAADCB404661C6ED8085537B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ MediaHuman YouTube Downloader 3.9.18 (3012) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:30615405D865E2AAB2E2138DE53C8B5E2EDD6D5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

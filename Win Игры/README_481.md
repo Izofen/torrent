@@ -1,27 +1,3 @@
-###  Публикация: 1202803   (789347) от 30.01.2018
-
-Rusty Lake Hotel (2016) [Ru] (1.0) Repack Other s
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rusty Lake Hotel – это детективный квест с необычной игровой механикой. Сюжет игры завязывается с момента прибытия гостей в отель. Особенность отеля в том, что он находится на острове, на котором, по сути, больше ничего и нет. Сразу стоит обратить внимание на то, что главные герои - животные, что вместе с необычным саундтреком придает игре некого сюрреализма. Сам (   Читать дальше...   )Тип издания: RepackРазработчик: Rusty LakeЖанр: Adventure (Point-and-click), Logic, CasualЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E65011B7C2980C3AB5E68B10D050090BDD3732F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275910   (789382) от 13.01.2019
 
 Punished Talents 3: Dark Knowledge / Наказанные талантом 3: Темные знания (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -42,6 +18,8 @@ Punished Talents 3: Dark Knowledge / Наказанные талантом 3: Т
 ```bash
 magnet:?xt=urn:btih:FD85945751C86DB3906C16374193584852C1F68A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ The Legacy 2: Prisoner / Наследие 2: Пленник (2018) [Ru] (1.0) Un
 magnet:?xt=urn:btih:2E562EDE7411F58A8C1F66EB049F08513ADFF0E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Call of Duty: Modern Warfare 3 (2011) [Ru/Multi] (1.9.446/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:2E0551957FB4E5C451F9DF54D234EC5D691B7AA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Chimeras 11: Cherished Serpent (2020) [En] (1.0) Unofficial [Collector's Edition
 magnet:?xt=urn:btih:DE43BD2840B9EFBD173CAC1C1A63035B04065EEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ DYSMANTLE (2021) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:23FD71B7C245E088EA9C26EF60FE3DC3EEB941C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Unforgiving - A Northern Hymn (2017) [Ru/Multi] (1.1.0) License PLAZA
 magnet:?xt=urn:btih:ABFE569BA305D4A3166BEA5BE021E145E3719378
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ STAR OCEAN - THE LAST HOPE - 4K & Full HD Remaster (2017) [Multi] (1.0) License 
 ```bash
 magnet:?xt=urn:btih:4A6AD85E6DBBC12240630B4EDE1BB1A867468F90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Dead Rising (2016) [Ru/En] (1.0.0.1) Repack R.G. Механики
 magnet:?xt=urn:btih:C44758E1C86C9159988865A42FC59AF982D4B9D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Christmas Stories 10: Yulemen (2021) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:E75A0B9BF4FDC71477C787B0D67618EC65D28EF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Betrayer рассказывает историю героя, оказавшег�
 magnet:?xt=urn:btih:92A2CF2FB0D9525D1A6D50AF012F40D37E3E0A3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Sonic Forces (2017) [Ru/Multi] (1.04.79/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:D3B2122888DBD45CE7B6928B9F087CCC63F46F86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Decay: The Mare (2015) [Ru/Multi] (1.1.1) Repack Other s [Chapter 1-3]
 magnet:?xt=urn:btih:972A5040D89904C932A5311DB8412FD3B98A2EA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Ancestors Legacy – это историческая стратегия в ре�
 ```bash
 magnet:?xt=urn:btih:B6944ACB2A69E9883FA96E8AC0E8DBD4D6D6B816
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Divinity: Original Sin – это новая RPG в духе старой шко
 magnet:?xt=urn:btih:F3BE674AACA8FB3D426F76B1152521FA06B16DE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Sonic Forces (2017) [Ru/Multi] (1.04.79/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:0E1A04F75BC9F7663DF3EFC54F36373B28457D4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ A Hat in Time — это милейший 3D-платформер о мален�
 magnet:?xt=urn:btih:1592AEA6FB68FD0EDB3035747FFA1F2192DCDF3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Capsized – это динамичный двумерный платформер
 ```bash
 magnet:?xt=urn:btih:0A1AC165DD5F83610B7FD02847AA5A9F7742155C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ When They Arrived (2019) [Ru/Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:4078A94425B88524207608DF17946F28FEB2D96A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Halfway – пошаговая стратегическая ролевая иг�
 ```bash
 magnet:?xt=urn:btih:99460AF1813ECB1FE70EA8CC975BB798345EC4AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ DECA (2018) [En] (0.1) License HOODLUM
 magnet:?xt=urn:btih:47045EE4693DDF1D074A77913B6102B3E563FA0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Dave (2018) [Ru/En] (1.0.2) License
 ```bash
 magnet:?xt=urn:btih:2AE94AF373DC8EA7B87D8A687934FDAB7B7C5859
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Labyrinths of the World 9: Lost Island (2019) [En] (1.0) Unofficial [Collector's
 magnet:?xt=urn:btih:1101EB101F303486F1D8CD9CB5B7C54B25B78DEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Reflections of Life 7: Slipping Hope / Отражения жизни 7: Уско
 ```bash
 magnet:?xt=urn:btih:E1BD329046075253A29CCF4BDBC2D47061021EC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ Mystery Trackers 16: The Fall of Iron Rock (2019) [En] (Beta) Unofficial
 magnet:?xt=urn:btih:CBF237B9EBFB96BA21D3825E9E5CEE78994F7C2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ Total War Anthology (2009-2013) [Ru/En] Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:2EE9ABBAB3C4FB2A8377D5D81CC622FD72F6D119
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201878   (791431) от 26.01.2018
+
+DreadOut (2014) [Ru/Multi] (2.2.18/dlc) License PROPHET
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_791431.jpg" />
+</div>
+
+
+###  Подробнее
+
+DreadOut - на удивление весьма страшная хоррор-адвенчура от индонезийских разработчиков! Когда группа студентов на каникулах, отклоняются от запланированного пути их путешествия, они обнаруживают старый безлюдный город. Вскоре они понимают, что здесь происходит нечто зловещее... Вы будете играть за Линду, которая вскоре понимает, что с ней происходит что-то странное... (   Читать дальше...   )Тип издания: LicenseРазработчик: Digital HappinessЖанр: Action (Survival horror), 3D, 1st Person, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9C46368C2F54E6273D7096D8B7DD9CF970FF664
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

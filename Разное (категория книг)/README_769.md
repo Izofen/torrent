@@ -1,3 +1,29 @@
+###  Публикация: 1479098   (1009797) от 22.06.2021
+
+Эрин Ниими Лонгхёрст | Японизм. Маленькая книга японской жизненной мудрости (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совсем не обязательно родиться в Японии, чтобы найти свой икигай (цель, предназначение в жизни), познать прелесть мимолетного и незаконченного (ваби-саби), увидеть красоту в несовершенстве и воздать должное тем трудностям и испытаниям, которые оставляют на нас свой след (кинцуги). От синрин-ёку («лесных ванн»), каллиграфии и икебаны до чайной церемонии, устройства (   Читать дальше...   )Жанр: Культура государств и регионов, Психология, Мотивация, СаморазвитиеПеревод: Эвелина МеленевскаяФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DCC3FB09EE9FE46C08B24AF0A53AEAAEC65FA82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478132   (1009897) от 21.06.2021
 
 Лао Минь | Большой самоучитель исцеляющих точек. Подробный атлас, приемы и упражнения (2021) [EPUB]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:59A4511A4AA59CE41A1EFE4135FE9DDA86B76870
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:59A4511A4AA59CE41A1EFE4135FE9DDA86B76870
 ```bash
 magnet:?xt=urn:btih:6F3055EDF68C625AC75DFCD12C97C4F449766AB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:6F3055EDF68C625AC75DFCD12C97C4F449766AB5
 magnet:?xt=urn:btih:E1BFCFF24BCE7D99B530121F26AE77CCDF9B7AD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:E1BFCFF24BCE7D99B530121F26AE77CCDF9B7AD7
 magnet:?xt=urn:btih:1A591AB77595A7CBDE4DCFE80464BAB9770F18F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:1A591AB77595A7CBDE4DCFE80464BAB9770F18F3
 ```bash
 magnet:?xt=urn:btih:4FBDDF598C0E574BFC8F22FC786E665668BB5FD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:4FBDDF598C0E574BFC8F22FC786E665668BB5FD3
 magnet:?xt=urn:btih:3D8EC1383DAC17AD1B71CA5C444A5248E599A4F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:3D8EC1383DAC17AD1B71CA5C444A5248E599A4F6
 ```bash
 magnet:?xt=urn:btih:5CBBBA5D2D04A260099D8463701D1E131CA14B39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:5CBBBA5D2D04A260099D8463701D1E131CA14B39
 magnet:?xt=urn:btih:93329661D80F8A251E37C858F0856992AE42DB00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:93329661D80F8A251E37C858F0856992AE42DB00
 magnet:?xt=urn:btih:93F60DB5F7FCD6A3D2BC13737C6297861D314B09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:93F60DB5F7FCD6A3D2BC13737C6297861D314B09
 ```bash
 magnet:?xt=urn:btih:40523BA85A7F226C67E4B78479B0769EDFC3DCCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:40523BA85A7F226C67E4B78479B0769EDFC3DCCB
 magnet:?xt=urn:btih:BFBA588CF9B98EB8A161153AB57EB022E4829BBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:BFBA588CF9B98EB8A161153AB57EB022E4829BBC
 ```bash
 magnet:?xt=urn:btih:09A7246B82B65503CC42FD1AC40CB211DBCE1221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:09A7246B82B65503CC42FD1AC40CB211DBCE1221
 magnet:?xt=urn:btih:046D18FEC6CEC0B2159AEE4EBD8BC4C2BD6F709E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:046D18FEC6CEC0B2159AEE4EBD8BC4C2BD6F709E
 ```bash
 magnet:?xt=urn:btih:F15548AAC2A22CB933E9DE1A6CB62E559FE57DA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:F15548AAC2A22CB933E9DE1A6CB62E559FE57DA3
 magnet:?xt=urn:btih:A65718D5809CA11D7F0512B08C986156BAFEE2D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:A65718D5809CA11D7F0512B08C986156BAFEE2D6
 ```bash
 magnet:?xt=urn:btih:5EACF8793F4209FA0ED7563E24402E09A12FAA9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:5EACF8793F4209FA0ED7563E24402E09A12FAA9D
 magnet:?xt=urn:btih:742E0D50155918077C792D8BE803B6E8A93E2D21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:742E0D50155918077C792D8BE803B6E8A93E2D21
 magnet:?xt=urn:btih:41CF64B5A999CA2E524E55A4B95BB87612377FC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:41CF64B5A999CA2E524E55A4B95BB87612377FC5
 ```bash
 magnet:?xt=urn:btih:AF1272F7C5467D3AD4B179173BFCC6D0A976E52F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:AF1272F7C5467D3AD4B179173BFCC6D0A976E52F
 magnet:?xt=urn:btih:F6726C7A19DD79B47EBBB69CF40906DEC3C98B44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:F6726C7A19DD79B47EBBB69CF40906DEC3C98B44
 ```bash
 magnet:?xt=urn:btih:844906E87227E9D15A950CD7529F1B5F8C2EE1C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:844906E87227E9D15A950CD7529F1B5F8C2EE1C6
 magnet:?xt=urn:btih:06E8BA5B404B70CA7D8EBE03CB6FA0D257235163
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:06E8BA5B404B70CA7D8EBE03CB6FA0D257235163
 ```bash
 magnet:?xt=urn:btih:A711A84A1635AAECE5EC825844F53313B9DC4B87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:A711A84A1635AAECE5EC825844F53313B9DC4B87
 magnet:?xt=urn:btih:B596ABF5D90ADDEB4838F8A08224651189485A29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,30 +683,7 @@ magnet:?xt=urn:btih:B596ABF5D90ADDEB4838F8A08224651189485A29
 magnet:?xt=urn:btih:6CE434A2D14EB77148FED318D4F71B7D6191B090
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477583   (1010937) от 15.06.2021
-
-Анастасия Соколова-Буалле | Франция изнутри. Как на самом деле живут в стране изысканной кухни и высокой моды? (2021) [FB2]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1010937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франция – невероятно романтическая страна с богатой историей, красивыми замками, соборами, средневековыми улочками и великолепной кухней. На протяжении многих веков она привлекала все новых и новых туристов. Но как на самом деле живут люди в стране вина и сыра?
-Анастасия Соколова-Буалле живет во Франции больше 8 лет, ведет блоги в инстаграме и на ютубе, а также является (   Читать дальше...   )Жанр: Книги о путешествияхФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D405FCCC1277ED0468B5E01D14DB55C45961E4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

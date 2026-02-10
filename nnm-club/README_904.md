@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8AB4C3CFC99FB201B6A08518EE3C1701B6C32CD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Avium (2023) [Ru/Multi] (Build 17756139) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:71765E9B5B540DF7C78E5EA539F824115D456FBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:71765E9B5B540DF7C78E5EA539F824115D456FBB
 magnet:?xt=urn:btih:D97819BFA69E78FD2D1DE57B49A74DCBEB2027D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Proprofiling, Алексей Филатов | Практикум по профа
 ```bash
 magnet:?xt=urn:btih:8E941A7F0247DA55F936E49C7454A2171FF90E8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:8E941A7F0247DA55F936E49C7454A2171FF90E8D
 magnet:?xt=urn:btih:85C42D3D2653E6E1D791546372733890A0FA6FED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.1f) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:641EF82DDCEE00D21E81B8CB6F58658791CE239F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ InPixio Photo Editor - редактор графики, который улуч�
 magnet:?xt=urn:btih:F080FCA9A3394719F5FA9063ABDF9B830A5D0E7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Lost Lands X / Затерянные земли Х (2025) [Ru] (1.0) Unofficial [
 ```bash
 magnet:?xt=urn:btih:852A33141259EBA76062BEAA04241B4C65ABF4F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:852A33141259EBA76062BEAA04241B4C65ABF4F2
 magnet:?xt=urn:btih:AE6C44B75A04A1BFFF61D3DF573FB219E13322B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ iDownerGo – это приложение для загрузки мультим
 ```bash
 magnet:?xt=urn:btih:1955DD1D2F0D2677D827462A0DF61542896A7AD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:1955DD1D2F0D2677D827462A0DF61542896A7AD4
 magnet:?xt=urn:btih:BAF6B1751A6F22858B2E460745E8F22F85AB0ACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:BAF6B1751A6F22858B2E460745E8F22F85AB0ACA
 ```bash
 magnet:?xt=urn:btih:3CCDD982645458367B91E065F3F4A8B991154160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:3CCDD982645458367B91E065F3F4A8B991154160
 magnet:?xt=urn:btih:7E9318F74FD879C6C8187E30F2046367FC220554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:7E9318F74FD879C6C8187E30F2046367FC220554
 ```bash
 magnet:?xt=urn:btih:8FE722F017867CFF4F89D2D93A7EF391CFDBE6A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:8FE722F017867CFF4F89D2D93A7EF391CFDBE6A4
 magnet:?xt=urn:btih:1F63F8E02D81ECACBF11749EF89D71087A2FD282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:1F63F8E02D81ECACBF11749EF89D71087A2FD282
 ```bash
 magnet:?xt=urn:btih:BE8FD3781F5C55411E69B456BD358D799C984DF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:BE8FD3781F5C55411E69B456BD358D799C984DF7
 magnet:?xt=urn:btih:D6191B212788EFD60687D7F3E2DDAD2929657B7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Cities: Skylines II - это живая экономическая систем�
 ```bash
 magnet:?xt=urn:btih:3670E337587751EB7440B9FE8B92DCFF6974C27C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ The Mansion of The Macabre (2024) [Multi] (1.1.0) License GOG
 magnet:?xt=urn:btih:54C28C08B9C91A5065EC5E37B2605B7BAE490698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:54C28C08B9C91A5065EC5E37B2605B7BAE490698
 ```bash
 magnet:?xt=urn:btih:ADDFC456C0E552FA98636FBA472195AEFCBE7D00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:ADDFC456C0E552FA98636FBA472195AEFCBE7D00
 magnet:?xt=urn:btih:4FC7491B8816D731923B5A17023D9D4697BDEA8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ SoftMaker Office Professional 2024 rev. S1224.0308 RePack (& portable) by KpoJIu
 ```bash
 magnet:?xt=urn:btih:8B2DC0A4D17F14084A90ABB537D5C4E04AAFB370
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ v2rayN — это универсальный инструмент VPN и про�
 magnet:?xt=urn:btih:476EE67032FFDE03880ECD23C49D1F41B121DF39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:476EE67032FFDE03880ECD23C49D1F41B121DF39
 ```bash
 magnet:?xt=urn:btih:1B096532E0B2F0D032D3F5A6A46179A49FEF7D40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:1B096532E0B2F0D032D3F5A6A46179A49FEF7D40
 magnet:?xt=urn:btih:AF3641CE4BA038A4FE4DFC29F06D3979BE221DBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Okinawa de Suki ni Natta Ko ga Hougen Sugite Tsura Sugiru / Девушка, в �
 ```bash
 magnet:?xt=urn:btih:4D043BA1AD02B34BA4853AE142CBA3CF50CC78EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

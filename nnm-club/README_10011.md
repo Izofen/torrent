@@ -1,51 +1,3 @@
-###  Публикация: 958017   (325733) от 19.11.2015
-
-Обои - Сборник обоев. Макро. 2560x1440 - 120 шт [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новая подборка качественных обоев на тему макро для вашего рабочего стола.Формат: JPGРазрешение файлов: 2560x1440
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:996552E3C32F6F03AFFE165AB03DD54ECEBE82AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956274   (325734) от 19.11.2015
-
-Виталий Вавикин | Добро пожаловать в будущее (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мир мертв. Уцелевшие люди, утратив способность к деторождению, нашли формулу бессмертия, но время изнашивает их сознания, а тела начинают разлагаться. Чтобы не сойти с ума, они стирают себе воспоминания, а благодаря генератору, передающему в мозг иллюзии, не замечают внешнего упадка. Понимая неотвратимость конца, ученые стремятся сохранить цивилизацию и начинают (   Читать дальше...   )Жанр: Социальная фантастикаПродолжительность: 06:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA72CE2BA79438D9151115158BF3B4D0A39CCBA5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956463   (325735) от 19.11.2015
 
 Михаил Задорнов. Неформат 78. (13.11.2015) WEB-DLRip [H.264/720p-LQ]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:EA72CE2BA79438D9151115158BF3B4D0A39CCBA5
 ```bash
 magnet:?xt=urn:btih:718C6859E952BB1C5CDF9BD0403D97C31C4F0A57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +45,8 @@ magnet:?xt=urn:btih:718C6859E952BB1C5CDF9BD0403D97C31C4F0A57
 magnet:?xt=urn:btih:311C7F13FD33553B89F2B3EA9A53D39DC7820BE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +71,8 @@ magnet:?xt=urn:btih:311C7F13FD33553B89F2B3EA9A53D39DC7820BE7
 magnet:?xt=urn:btih:3F7899B7570B236B5F6A33652C927BE5B351AEAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +96,8 @@ magnet:?xt=urn:btih:3F7899B7570B236B5F6A33652C927BE5B351AEAB
 ```bash
 magnet:?xt=urn:btih:2B048E0BA0304BF8808BE49B4509DE429954AD26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +124,8 @@ magnet:?xt=urn:btih:2B048E0BA0304BF8808BE49B4509DE429954AD26
 ```bash
 magnet:?xt=urn:btih:1621391F56A1E139A6BD2A05A2CD1C54601C4227
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +154,8 @@ Adele - 25 (2015) [FLAC|tracks|Web-DL] <Pop>
 magnet:?xt=urn:btih:70A01D9C1C46A7072CB8C3EC75C2CFE1023DB39A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +179,8 @@ magnet:?xt=urn:btih:70A01D9C1C46A7072CB8C3EC75C2CFE1023DB39A
 ```bash
 magnet:?xt=urn:btih:542C825FB1381FAA8B90D9F1BC96A39068560D11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +206,8 @@ magnet:?xt=urn:btih:542C825FB1381FAA8B90D9F1BC96A39068560D11
 magnet:?xt=urn:btih:25BE6CFCD8AEC7876BB38C63AAA08271D877C553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +232,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:2C7D62378BBAB12A94815C5A6A7938B94D1B65E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +257,8 @@ magnet:?xt=urn:btih:2C7D62378BBAB12A94815C5A6A7938B94D1B65E3
 ```bash
 magnet:?xt=urn:btih:6F5D1487D1391F2D0F6F983689003BCB7856952A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +287,8 @@ Bon Jovi - Tokyo Road Live In Japan (1985) VHSRip
 magnet:?xt=urn:btih:1C32316ABD770505E08E66AE9F37C339354A686F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +314,8 @@ magnet:?xt=urn:btih:1C32316ABD770505E08E66AE9F37C339354A686F
 ```bash
 magnet:?xt=urn:btih:0DE6AAB628E0B4C93309724290B61635D31BA0BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +343,8 @@ magnet:?xt=urn:btih:0DE6AAB628E0B4C93309724290B61635D31BA0BD
 magnet:?xt=urn:btih:2012CFD5CF9E0A1D92122562CC98058D14B9F692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +368,8 @@ magnet:?xt=urn:btih:2012CFD5CF9E0A1D92122562CC98058D14B9F692
 ```bash
 magnet:?xt=urn:btih:6910F00990E8A6E1FCF9284A7267E527FB4ADA40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +398,8 @@ Slade - Live In London (1975) Bootleg [MP3|192 кб/с]<Rock, Hard Rock, Glam Ro
 magnet:?xt=urn:btih:62FBD908A7C4490F10B233B83A5B637CAD4427E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +423,8 @@ magnet:?xt=urn:btih:62FBD908A7C4490F10B233B83A5B637CAD4427E9
 ```bash
 magnet:?xt=urn:btih:3EF4DC4DB8B3D84FF189CED97DDFB829C9613C66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +450,8 @@ magnet:?xt=urn:btih:3EF4DC4DB8B3D84FF189CED97DDFB829C9613C66
 magnet:?xt=urn:btih:8AEE9633AFEC72F0A4D49619AD5837E2B8A736C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +475,8 @@ PDF Combine - это шустрая программа для склеивани
 ```bash
 magnet:?xt=urn:btih:717795008F99A58764AA5D8658B2DC4964264CAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +502,8 @@ magnet:?xt=urn:btih:717795008F99A58764AA5D8658B2DC4964264CAC
 magnet:?xt=urn:btih:891022299CEE6D8C6AD034EF92C6F60D9E908363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +527,8 @@ magnet:?xt=urn:btih:891022299CEE6D8C6AD034EF92C6F60D9E908363
 ```bash
 magnet:?xt=urn:btih:E9A354EC313DF642DB7196780B4A2F28A2AF3B71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +558,8 @@ magnet:?xt=urn:btih:E9A354EC313DF642DB7196780B4A2F28A2AF3B71
 magnet:?xt=urn:btih:AD69B660DEBFCEB12095F80BDB1BDAF4F6BA75DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +583,8 @@ Tiny Monsters - интересный клон игры Angry Birds.2011Жанр:
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +610,8 @@ Tiny Monsters - интересный клон игры Angry Birds.2011Жанр:
 magnet:?xt=urn:btih:76A9C7555C4BFE6829DA3C0785917693BF0493F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +635,62 @@ magnet:?xt=urn:btih:76A9C7555C4BFE6829DA3C0785917693BF0493F0
 ```bash
 magnet:?xt=urn:btih:7FEA7451F8136479692183AF7A11D28B5442460A
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957879   (325787) от 19.11.2015
+
+Alfred Powerpack 2.8.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_325787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лаунчер приложений для Mac OS X. Было бы неправильно сказать, что Alfred предназначен только для запуска приложений. Среди его функций можно выделить поиск по приложениям (это и так понятно), панелям системных настроек, закладок Safari, контактам, папками и даже скриптам ActionScript.
+
+Вызвать окно Alfred очень просто — по-умолчанию используется сочетание клавиш (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 ноября 2015Разработчик: Running with Crayons LtdПоддерживаемая ОС: OS X 10.6 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E37520D803D5635EA923D42D3ED746DBFD7EDB3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957934   (325788) от 19.11.2015
+
+USDownloader 1.3.5.9 (19.11.2015) Portable [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_325788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal Share Downloader - это программа для скачивания файлов. В первую очередь оптимизирована под скачивание (в том числе полностью автоматическое) с различных файлообменных серверов типа rаpidshаrе.cоm, LetitBit, Deposit и прочих, сайтов с видео YouTube.com, RuTube.com и прочих. Universal Share Downloader поддерживает более 120! Вам достаточно добавить в программу (   Читать дальше...   )Язык интерфейса: Русский, Английский.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A75BFE29223C134056430ACE3D947411120718
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

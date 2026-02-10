@@ -1,27 +1,3 @@
-###  Публикация: 1495334   (882393) от 11.09.2021
-
-Мэри Пикфорд. И пришел свет / The Light That Came (1909) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882393.jpg" />
-</div>
-
-
-###  Подробнее
-
-Душещипательная история. Три родные сестры, как в сказке, две симпатичные, веселые, легкомысленные(одна из них Пикфорд), а третья чистая душой, но с лицом обезображенным шрамом. Для двух сестер - веселье, танцы, кавалеры, а удел третьей - грустить дома. Но один раз ее уговорили пойти на вечеринку, где она познакомилась с молодым человеком, тоже своего рода изгоем (   Читать дальше...   )Производство: США, Biograph CompanyЖанр: Драма, короткометражный, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Мэрион Леонард, Оуэн Мур, Рут Харт, Кейт Брюс, Мэри Пикфорд, Фрэнк Эванс, Френсис Дж. Грэндон, Джозеф Грейбилл и др.Перевод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:073DF64BC1EF4F1FE498C94755C39D53ABF5DF42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 297705   (882537) от 20.02.2011
 
 Будь на высоте / Встать / Будь сверху / UP (1976) DVDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:073DF64BC1EF4F1FE498C94755C39D53ABF5DF42
 ```bash
 magnet:?xt=urn:btih:B80A1E0EB4FEC82887595D92F29133BE0F4023E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:B80A1E0EB4FEC82887595D92F29133BE0F4023E4
 magnet:?xt=urn:btih:AE82DC754B58D2D1144627FD42393C3288476F88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:AE82DC754B58D2D1144627FD42393C3288476F88
 ```bash
 magnet:?xt=urn:btih:015C2AF4601B495BB8833E46FF80C8632B63696D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:015C2AF4601B495BB8833E46FF80C8632B63696D
 magnet:?xt=urn:btih:AA4F6A2D13CE4B65E178B5406AD5A620E7D2684F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:AA4F6A2D13CE4B65E178B5406AD5A620E7D2684F
 ```bash
 magnet:?xt=urn:btih:75DE3EBC78E13E7B99358657188C691666268FE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:75DE3EBC78E13E7B99358657188C691666268FE2
 magnet:?xt=urn:btih:79296C250FD8414FCF5ABA5C7D9ED1ACE43A789A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:79296C250FD8414FCF5ABA5C7D9ED1ACE43A789A
 ```bash
 magnet:?xt=urn:btih:26503FD198493BC08E7DA992B4169D3072FBB7AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:26503FD198493BC08E7DA992B4169D3072FBB7AD
 magnet:?xt=urn:btih:7A5DA929DC64040FB6E826668AC8EA5EC3FC8844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:7A5DA929DC64040FB6E826668AC8EA5EC3FC8844
 ```bash
 magnet:?xt=urn:btih:BBC2B87E1CABDD21C22565C5A83D02A73F7BFD2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:BBC2B87E1CABDD21C22565C5A83D02A73F7BFD2B
 magnet:?xt=urn:btih:D78DADFCCB1583F247B9321CC3F6C7F439A45478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:D78DADFCCB1583F247B9321CC3F6C7F439A45478
 ```bash
 magnet:?xt=urn:btih:1D9A6E6EB5AED8AAFCF015A2CCA3945BBA468AE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:1D9A6E6EB5AED8AAFCF015A2CCA3945BBA468AE5
 magnet:?xt=urn:btih:33840A13E52DECD14C61E60429DA6434ABCB1D81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:33840A13E52DECD14C61E60429DA6434ABCB1D81
 ```bash
 magnet:?xt=urn:btih:148C2A6885EDF3D36EEA8C55A0011941BDADE260
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:148C2A6885EDF3D36EEA8C55A0011941BDADE260
 magnet:?xt=urn:btih:0E54B31ED253DB7DB0335B71C3380DA07554EF5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:0E54B31ED253DB7DB0335B71C3380DA07554EF5D
 ```bash
 magnet:?xt=urn:btih:BDCAF3962968E057C12650EDF4339EB8B989ACC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:BDCAF3962968E057C12650EDF4339EB8B989ACC5
 magnet:?xt=urn:btih:A67C3434D96A7417FD833D9A7811F64E099416DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:A67C3434D96A7417FD833D9A7811F64E099416DA
 ```bash
 magnet:?xt=urn:btih:5DC9A71B73BF9C59E07E6E53D09C0F4F9E883A92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:5DC9A71B73BF9C59E07E6E53D09C0F4F9E883A92
 magnet:?xt=urn:btih:17D5525569E77B0D45E0199922C5824133ACF974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +488,8 @@ magnet:?xt=urn:btih:17D5525569E77B0D45E0199922C5824133ACF974
 ```bash
 magnet:?xt=urn:btih:40A64FF515AAEFD9E0DFF111932FC25AB0C307C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:40A64FF515AAEFD9E0DFF111932FC25AB0C307C6
 magnet:?xt=urn:btih:90B2FD17C3D869F42366435FEFD8665EA64FD54D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +540,8 @@ magnet:?xt=urn:btih:90B2FD17C3D869F42366435FEFD8665EA64FD54D
 ```bash
 magnet:?xt=urn:btih:E12F8E3B49C64E60CB256F4B8D9C8EEB63A710C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:E12F8E3B49C64E60CB256F4B8D9C8EEB63A710C4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +592,8 @@ magnet:?xt=urn:btih:E12F8E3B49C64E60CB256F4B8D9C8EEB63A710C4
 ```bash
 magnet:?xt=urn:btih:273B44882278BB87B9F46274B9E53953FE9CB735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +619,8 @@ magnet:?xt=urn:btih:273B44882278BB87B9F46274B9E53953FE9CB735
 magnet:?xt=urn:btih:37DFA3333122116542832B976FAC538C406528F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +644,34 @@ magnet:?xt=urn:btih:37DFA3333122116542832B976FAC538C406528F4
 ```bash
 magnet:?xt=urn:btih:F78DF4250FEF43B0D9BF3A529EDF905A3CAB47F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 297282   (887092) от 18.02.2011
+
+Маскарад / Maskarada (1970) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Дина, жена крупного чиновника Гантара, не может справиться со своей страстью по отношению к студенту Луке, который даёт частные уроки её сыну. На торжестве в честь дня рождения мальчика Гантар добивается от жены признания в связи с молодым репетитором, а потом в порыве мести собирается подвергнуть её изнасилованию. Лука пытается воспрепятствовать этому. Вместе с тем сына пытается соблазнить молодой симпатичный человек...Жанр: Драма, ЭротикаРежиссер: Боштьян ХладникАктеры: Вида Ерман, Игор Гало, Миха Балох, Бланка Енко, Боян СетинаПеревод: Одноголосый закадровыйПродолжительность: 01:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CACF34CCA2FD270E9882A1849040B6758F160E4E
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Reg Organizer® - это многофункциональная программ
 magnet:?xt=urn:btih:2B648ADBAC4BAE4511095573FDB5144588D03311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Revo Registry Cleaner Pro - это мощное и эффективное про
 ```bash
 magnet:?xt=urn:btih:DFE2C5AFF28DD2A8AE0021EE4F057450A85BDF1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Auslogics Registry Cleaner - поможет вам избавиться от о�
 magnet:?xt=urn:btih:3D17A23233F8E60F3A4A8494712156BE49F290D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ DriverMax - утилита, предназначенная для загрузк
 ```bash
 magnet:?xt=urn:btih:61E8B7C0D38B3E3272F0B1626F778CD22E357CFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:186E4E72B061F30358B57FFBA321CF95065E50FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Auslogics Duplicate File Finder поможет Вам избавиться от 
 ```bash
 magnet:?xt=urn:btih:FB13E5CBDA3A07D34FD6F3B2A86FC9681F488F19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Driver Booster сканирует и определяет устаревшие �
 magnet:?xt=urn:btih:AAE689C5E7AE633D59F9C0939E225A93DB02B12D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Wise Registry Cleaner - утилита для безопасной чистки 
 ```bash
 magnet:?xt=urn:btih:63BEA9774E0A1E9D99063F331770AB9492DAEC33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Bulk Crap Uninstaller (BCUninstaller) - деинсталлятор програ�
 magnet:?xt=urn:btih:B32D18E439CA87B9D4DC55F2269D83DF846CC57C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ TweakPower – представляет собой единый графичес
 ```bash
 magnet:?xt=urn:btih:162F3BA664E243E4F459784833470CDC2F4DDB8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Auslogics Driver Updater – программа представляющая с�
 magnet:?xt=urn:btih:7589F2C7431451EF442ED70E4BA57B4590C3270D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Revo Uninstaller Free 2.6.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:23EB5C7BB656F69CE754C0FF2F9490EE6C012E18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:D792FB384DC7AADD253235D98387527E7381DCD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Privacy Eraser Free - комплексный инструмент для защ�
 magnet:?xt=urn:btih:4EDE17C6D41CB684036A264B256D5B5CE9CBA606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Revo Uninstaller Pro 5.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0A53D5D436C10D258F58BF7AFB1A347731FDA049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Ashampoo Driver Updater обеспечивает обновления для ш�
 magnet:?xt=urn:btih:24510098769EFB72B886A05CF356335D20376DAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Revo Uninstaller Pro 5.4.0 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0006F7A7382FC5C0E6727B3B7C7514A8811F23A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Revo Uninstaller Pro 5.4.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:A6DF27A62E334BFDB93BDBC2CE5DC9C46316D4A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Ashampoo WinOptimizer - новая линейка пакета программ,
 ```bash
 magnet:?xt=urn:btih:8158967EFE97A7083045E42BF2B0BD98388E4035
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 magnet:?xt=urn:btih:374B996518B650C6C02631CDBBE098BF37BC51AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ UniTweaker (Universal Tweaker) — универсальный инструмен
 ```bash
 magnet:?xt=urn:btih:B361CB531F091664833E0AB41F66E2E6038356B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Duplicate File Detective - программа от Key Metric Software, кото
 magnet:?xt=urn:btih:6FD119C8566BB45E8E1331A5D6BFB2BA087876B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ Duplicate Files Search & Link (Duplicate Searcher) - это приложение
 ```bash
 magnet:?xt=urn:btih:0206954C27425199A263A586F3CE4E62DC20B96C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Auslogics Registry Cleaner поможет вам избавиться от ош�
 magnet:?xt=urn:btih:9B54CE4DB5AD51C82525A1A623C9C570BBE3A9CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Auslogics Driver Updater – программа представляющая с�
 magnet:?xt=urn:btih:3702FF13F078357ACBB7DC5B7703DA8784B306BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:937203F5A0F808DFC390F59AD92B7AEB5B0BAE36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

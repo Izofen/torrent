@@ -1,3 +1,29 @@
+###  Публикация: 1139535   (660181) от 02.06.2017
+
+Александр Калягин. "За дона Педро!" (2017) HDTV [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_660181.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он блестяще сыграл десятки ролей в кино и театре и всегда был разным, но сам с иронией признается: помнить меня будут по тетке Чарли. В 1974 году неизвестного молодого актера Сашу Калягина пригласил сняться в комедии режиссер Виктор Титов. В это же время он снимался у Михалкова в «Рабе любви». Но именно «тетка» сделала его знаменитым. Будут и другие блестящие роли: (   Читать дальше...   )Телекомпания: Россия / Первый каналЖанр: Документальный, БиографияЯзык субтитров: РусскийПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0700A68D5FFC67A2729A9E68A84222628C4CB5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139345   (660192) от 02.06.2017
 
 Вечерний Ургант (2017.06.01) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:36DAA4C7C35673AF92A5D2CC5E375F2490A9289E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:36DAA4C7C35673AF92A5D2CC5E375F2490A9289E
 magnet:?xt=urn:btih:5D763D5C25D4DBA910ADBE4F7B94C936F48899DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:5D763D5C25D4DBA910ADBE4F7B94C936F48899DF
 ```bash
 magnet:?xt=urn:btih:C7DA3499AA3DB4CD2D9291CDE765D84DF84BEB3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:C7DA3499AA3DB4CD2D9291CDE765D84DF84BEB3F
 magnet:?xt=urn:btih:698E14F22F0395A8079FCB43355F276BE8FC0762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:698E14F22F0395A8079FCB43355F276BE8FC0762
 ```bash
 magnet:?xt=urn:btih:DDA75B2ECDF1B00B5017115DD7C06ED33804A504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:DDA75B2ECDF1B00B5017115DD7C06ED33804A504
 magnet:?xt=urn:btih:62BE27B1399F3FD5D037BF7C7114AFE21120B7F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:62BE27B1399F3FD5D037BF7C7114AFE21120B7F0
 ```bash
 magnet:?xt=urn:btih:F315FBD7F3E15F1DC1405EF152C54C0B702A788A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:F315FBD7F3E15F1DC1405EF152C54C0B702A788A
 magnet:?xt=urn:btih:6830BAF5967267A1017B4F8AD6D8AE6936EA368C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:6830BAF5967267A1017B4F8AD6D8AE6936EA368C
 ```bash
 magnet:?xt=urn:btih:486C7ECEE6F8CB93CF23B883F03BBD28CB838A8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:486C7ECEE6F8CB93CF23B883F03BBD28CB838A8C
 magnet:?xt=urn:btih:C8F763E95AB69A18C7BF274471D63690C68FB103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:C8F763E95AB69A18C7BF274471D63690C68FB103
 ```bash
 magnet:?xt=urn:btih:7E26101BC97998EC043DC37EB57B685B3B9F7557
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:7E26101BC97998EC043DC37EB57B685B3B9F7557
 magnet:?xt=urn:btih:6435C29A7680F558882AEDDB74C2BA6E926C7F8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:6435C29A7680F558882AEDDB74C2BA6E926C7F8E
 ```bash
 magnet:?xt=urn:btih:96AE194387FE998673A9B717CA670F1374BE7F95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:96AE194387FE998673A9B717CA670F1374BE7F95
 magnet:?xt=urn:btih:E8CDB612157279F10F0478E310E430F5B22AC68A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:E8CDB612157279F10F0478E310E430F5B22AC68A
 ```bash
 magnet:?xt=urn:btih:D239F1B33409D6166ACFAE574B2A1AC2E00C0047
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:D239F1B33409D6166ACFAE574B2A1AC2E00C0047
 magnet:?xt=urn:btih:0EA9440977F6F775A250C2FD55BC5EE5ACAF2E27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:0EA9440977F6F775A250C2FD55BC5EE5ACAF2E27
 ```bash
 magnet:?xt=urn:btih:4D20C073B941718964BDE2B74EB071B2D66CAE34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:4D20C073B941718964BDE2B74EB071B2D66CAE34
 magnet:?xt=urn:btih:F2C7BCF8D6D01254D861492D818D557FBD4DAC72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:F2C7BCF8D6D01254D861492D818D557FBD4DAC72
 ```bash
 magnet:?xt=urn:btih:A630C16D247EDC363D6FC2436281AFE5C2C7B4D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +543,8 @@ Discovery: Братья Дизель / Diesel Brothers (2017) HDTVRip [H.264/108
 magnet:?xt=urn:btih:C96791268E519573DE15D4758B8A36087381B612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:C96791268E519573DE15D4758B8A36087381B612
 ```bash
 magnet:?xt=urn:btih:F26E182D167FDACCE5F0600CFF89A497D423C081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:F26E182D167FDACCE5F0600CFF89A497D423C081
 magnet:?xt=urn:btih:820C582F99D6D5FBF04E55986E87F5AC35E68171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:820C582F99D6D5FBF04E55986E87F5AC35E68171
 ```bash
 magnet:?xt=urn:btih:78671AE0F7C2B2A42B55E77111A72A85CB9B8C04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:78671AE0F7C2B2A42B55E77111A72A85CB9B8C04
 magnet:?xt=urn:btih:6B25CBBE8B8967E3C23D8873F0D28229493EDD37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:6B25CBBE8B8967E3C23D8873F0D28229493EDD37
 magnet:?xt=urn:btih:DBAB7BAB480CAF8A6E2B4D6A96F7E9B47D734A62
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138877   (662120) от 31.05.2017
-
-Джон Кеннеди. Становление президента / JFK: The Making of a President (2017) HDTV [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_662120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот фильм расскажет о ранних этапах жизни Джона Кеннеди, и событиях, которые сделали этого человека президентом, о его семье, путешествиях по нацистской Германии и фашистской Италии в предвоенные годы, о том, как формировалось мировоззрение Джона Ф. Кеннеди в его молодые годы, когда он страдал от плохого состояния здоровья и семейной трагедии.Производство: ВеликобританияЖанр: Документальный, история, биографияРежиссер: Эдуард КоттериллПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E7E111A65D233D338A0530221CD85F7780D7FEE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

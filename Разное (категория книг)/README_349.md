@@ -1,3 +1,29 @@
+###  Публикация: 535218   (517525) от 15.08.2012
+
+А.Доминэ | Вино. Самая полная иллюстрированная энциклопедия [2010] [DJVU]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_517525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга вмещает в себя все, что необходимо знать о вине. Атлас, справочник и путеводитель, книга "Вино" проведет вас по всему мира, знакомя со странами и регионами, занимающимися виноделием. "Вино" также подойдет вам, если вы собираетесь заниматься покупкой вина. Желающие получить более подробные знания о вине найдут в книге исчерпывающую информацию (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5C1A6011DF5390549D4371ABE1230EA2A2FA32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 535120   (517693) от 15.08.2012
 
 В.И. Кузнецов | Правильные сроки посева-посадки овощных культур [2007] [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:FAB5829E723550F0525B3AC86A2C6979C3285BB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:FAB5829E723550F0525B3AC86A2C6979C3285BB0
 magnet:?xt=urn:btih:77F806AE9AEA46F7E3DB1F2FF44217B91BB5784D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:77F806AE9AEA46F7E3DB1F2FF44217B91BB5784D
 ```bash
 magnet:?xt=urn:btih:9B54364E198BCDEBCA94D666B8D54742FEB0061E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:9B54364E198BCDEBCA94D666B8D54742FEB0061E
 magnet:?xt=urn:btih:FCD621DC6B5CEE824E5C3E65551E1E274AC2614C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:FCD621DC6B5CEE824E5C3E65551E1E274AC2614C
 ```bash
 magnet:?xt=urn:btih:FBE21CD45C83DC1ED5098BAD5A881D03CC5D4E49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +181,8 @@ magnet:?xt=urn:btih:FBE21CD45C83DC1ED5098BAD5A881D03CC5D4E49
 magnet:?xt=urn:btih:365D3A76557694EA03D4198B31D58A15A08651CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:365D3A76557694EA03D4198B31D58A15A08651CA
 magnet:?xt=urn:btih:6027D23EE723F3C5888C80D808BAFBFC2D1E5130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:6027D23EE723F3C5888C80D808BAFBFC2D1E5130
 magnet:?xt=urn:btih:73AF763A81119C778CCC4B628FA8943538B2703F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:73AF763A81119C778CCC4B628FA8943538B2703F
 ```bash
 magnet:?xt=urn:btih:3D482E169E0333B725B7265E167D734016745CFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:3D482E169E0333B725B7265E167D734016745CFD
 magnet:?xt=urn:btih:AB9171382C4CCC1AD02BFF7E2C433B90752C0A4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:AB9171382C4CCC1AD02BFF7E2C433B90752C0A4A
 ```bash
 magnet:?xt=urn:btih:DB8DDDEEDFC502218E49B68A0ACADEEDDC427703
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:DB8DDDEEDFC502218E49B68A0ACADEEDDC427703
 magnet:?xt=urn:btih:A4C319CDBD63442DEA60F588FC7E9C1C4CA0D176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:A4C319CDBD63442DEA60F588FC7E9C1C4CA0D176
 ```bash
 magnet:?xt=urn:btih:3435D04BA570F00BCFDFDF15B1FCCCB420FFEEEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:3435D04BA570F00BCFDFDF15B1FCCCB420FFEEEA
 magnet:?xt=urn:btih:C9FE50E983E70EDD95FA9D01E4843BA751331856
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:C9FE50E983E70EDD95FA9D01E4843BA751331856
 ```bash
 magnet:?xt=urn:btih:7F504AABA47677166C89D1A86F5AC6C20A5135FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:7F504AABA47677166C89D1A86F5AC6C20A5135FB
 magnet:?xt=urn:btih:FF721684F7C41692C07948FC5BB8BA6D9D3C91DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:FF721684F7C41692C07948FC5BB8BA6D9D3C91DB
 magnet:?xt=urn:btih:5D2FE28902EF82644DC6D3E33E29B25F476CD22E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:5D2FE28902EF82644DC6D3E33E29B25F476CD22E
 ```bash
 magnet:?xt=urn:btih:C4C04279B2DC7F3F66B897EFE93E060BEA9FACB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:C4C04279B2DC7F3F66B897EFE93E060BEA9FACB2
 magnet:?xt=urn:btih:808BE44B51AB198956EBCF7664186102DCE49238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:808BE44B51AB198956EBCF7664186102DCE49238
 magnet:?xt=urn:btih:37FFCB35E3433A0FB671A5D04D789EEBBC7579BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:37FFCB35E3433A0FB671A5D04D789EEBBC7579BC
 ```bash
 magnet:?xt=urn:btih:51825AD4B55344DC92053E41A51E67C38F25BF34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:51825AD4B55344DC92053E41A51E67C38F25BF34
 magnet:?xt=urn:btih:4E8F44D57A8934A3603F5885F72F4B567A9602FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:4E8F44D57A8934A3603F5885F72F4B567A9602FB
 ```bash
 magnet:?xt=urn:btih:41FC340F9750CA21B165E55CC4D30022D7FEF73F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:41FC340F9750CA21B165E55CC4D30022D7FEF73F
 magnet:?xt=urn:btih:FBF9CB491CF166374D1B8E4263D8C85FA2A3B249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:FBF9CB491CF166374D1B8E4263D8C85FA2A3B249
 magnet:?xt=urn:btih:83B67C1EE42BAF6778335074931AD72A62941DC9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928987   (520411) от 18.08.2015
-
-Федор Евсевский | Библия бармена. Все о напитках. Барная культура. Коктейльная революция (2014) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_520411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самая продвинутая книга о напитках, барах и коктейлях. Виски, текила, коньяк, водка, вино... - узнайте абсолютно всё о всех напитках и об их марках. Научитесь готовить исключительные смешанные напитки: от классики до революционных творений лондонских миксологов. Узнайте анекдоты и интересные истории, которые сопутствовали созданию таких смешанных напитков, как "Кровавая (   Читать дальше...   )Жанр: Кулинария, напитки, алкогольФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A9E8104D38E0AA4F81D6CB87815B324A436EA7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

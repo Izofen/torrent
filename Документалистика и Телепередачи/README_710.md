@@ -1,3 +1,29 @@
+###  Публикация: 978453   (963637) от 23.01.2016
+
+Право знать! (23.01.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_963637.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Право знать!" – общественно-политическое ток-шоу без купюр и без протокола, о людях и событиях, которые меняют нашу жизнь.В этом выпуске: Падение курса рубля! Как Россия будет жить без сверхприбылей от экспорта энергоресурсов?Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 01:07:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:089D1937E30E036207A5338190449B462126B428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978390   (963712) от 23.01.2016
 
 Вести в субботу с Сергеем Брилевым (23.01.2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0070A02FAFFBED4F70070462C3D6A986108ED3C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:0070A02FAFFBED4F70070462C3D6A986108ED3C0
 magnet:?xt=urn:btih:8DB7A27DBE94D6FC51F3E3BC262E6BDCE41EAB8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:8DB7A27DBE94D6FC51F3E3BC262E6BDCE41EAB8D
 ```bash
 magnet:?xt=urn:btih:7861EA6CF40EBD73321989F46F04223D9506A206
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:7861EA6CF40EBD73321989F46F04223D9506A206
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:7861EA6CF40EBD73321989F46F04223D9506A206
 ```bash
 magnet:?xt=urn:btih:686C8EE6694AA1A37C8105C3F0DB32A451289330
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:686C8EE6694AA1A37C8105C3F0DB32A451289330
 magnet:?xt=urn:btih:4F68CBFEE5795FC485FE646D44ECC570431A476D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:4F68CBFEE5795FC485FE646D44ECC570431A476D
 ```bash
 magnet:?xt=urn:btih:4D3FB97262D155CFF14FD2187B35F5849FA6B924
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:4D3FB97262D155CFF14FD2187B35F5849FA6B924
 magnet:?xt=urn:btih:81F291CEC56AA290E6EEC89292E1D82964E129B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:81F291CEC56AA290E6EEC89292E1D82964E129B1
 ```bash
 magnet:?xt=urn:btih:847ABCA0A03D81F99CCA87F0B34B17423FEDC6BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:847ABCA0A03D81F99CCA87F0B34B17423FEDC6BB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:847ABCA0A03D81F99CCA87F0B34B17423FEDC6BB
 ```bash
 magnet:?xt=urn:btih:92481597427B77ADB65AEAB413832C88BB718825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:92481597427B77ADB65AEAB413832C88BB718825
 magnet:?xt=urn:btih:8207ABBF1AAAB0607F5CAB7B006ECD4A5B8F29FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:8207ABBF1AAAB0607F5CAB7B006ECD4A5B8F29FB
 ```bash
 magnet:?xt=urn:btih:88FE3533EC0C6ED640806B92335775E015664CD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:88FE3533EC0C6ED640806B92335775E015664CD8
 magnet:?xt=urn:btih:4BE6EA9659A9B5063F0A0EB11E98EA4A1F7717D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:4BE6EA9659A9B5063F0A0EB11E98EA4A1F7717D6
 ```bash
 magnet:?xt=urn:btih:1DE444652F4760FB6D2BC7282A3ADA62E0D04ADD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:1DE444652F4760FB6D2BC7282A3ADA62E0D04ADD
 magnet:?xt=urn:btih:90439D453106F4391B9C68574EDA730305C6FF3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:90439D453106F4391B9C68574EDA730305C6FF3B
 ```bash
 magnet:?xt=urn:btih:6D1708DB7BBEB47C4D2D9CBB49BF6F85FD915735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:6D1708DB7BBEB47C4D2D9CBB49BF6F85FD915735
 magnet:?xt=urn:btih:FB2537C11D6BC3BC68CCDC42FB5C47F35A00FF68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:FB2537C11D6BC3BC68CCDC42FB5C47F35A00FF68
 ```bash
 magnet:?xt=urn:btih:C44CCA6E5D6C275E918F3410F20C067E9002FA94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:C44CCA6E5D6C275E918F3410F20C067E9002FA94
 magnet:?xt=urn:btih:56F0F3785032A129F908ACF68F81987D066C12AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:56F0F3785032A129F908ACF68F81987D066C12AB
 ```bash
 magnet:?xt=urn:btih:EF2843D3FFAC37E5AFF78F229652711604ED3A1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:EF2843D3FFAC37E5AFF78F229652711604ED3A1F
 magnet:?xt=urn:btih:E171530D32CE464AA8E1106A915835F50780EA0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:E171530D32CE464AA8E1106A915835F50780EA0F
 ```bash
 magnet:?xt=urn:btih:76507DBCB3D598EF5CB171BB789EAE6DB259DF36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:76507DBCB3D598EF5CB171BB789EAE6DB259DF36
 magnet:?xt=urn:btih:3A59904356E38745D6A61058E3A505647A75EE51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,30 +672,7 @@ magnet:?xt=urn:btih:3A59904356E38745D6A61058E3A505647A75EE51
 magnet:?xt=urn:btih:C39B601FDBA61A8B9BCE165D38F261E9D285F737
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977817   (965478) от 21.01.2016
-
-Вечер с Владимиром Соловьевым (21.01.2016) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гости в студии обсудят главное политическое событие минувших дней.
-В частности будут обсуждать государственный переворот в Молдове; последние новости из Украины и Донбасса; военную операцию в Сирии; новые антирекорды цены на нефть и курса российского рубля по отношению к доллару США."Мы ставили задачу сделать программу для умного, неравнодушного зрителя, которая позволит обсуждать актуальные проблемы в разных форматах: от интервью "один на один" до "круглого стола". Надеемся, она будет такой же острой, как политическое ток-шоу "Поединок". Но если в "Поединке" сталкиваются две полярные точки зрения, (   Читать дальше...   )Телекомпания: РоссияЖанр: ТелепередачаПродолжительность: ~ 02:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5006E836EA8571D18E33E6869438F0FA8992DBC4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

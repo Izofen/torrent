@@ -22,6 +22,8 @@ Danielle Nicole - Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
 magnet:?xt=urn:btih:AB2F936D8DAF0EC3D4AF64DB63459246F34DE1DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Teresa James & The Rhythm Tramps - Compilation (2023) [MP3|320 Kbps] <Rock, Blue
 ```bash
 magnet:?xt=urn:btih:CB0B6185DBD6CC2B4F3F46108560E24D71E8B5F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - For Those About to Rock (2023) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:9141A16FEEB275A075334C97608E1733070A79DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - 90's Indie (2023) [MP3|320 Kbps] <Alternative, Rock>
 ```bash
 magnet:?xt=urn:btih:47EC0431DC1ED2B9A3EADB07338258E16786AE30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Free And Romantic Country (2023) [MP3|320 Kbps] <Country, Folk, Rock>
 magnet:?xt=urn:btih:15D8CD11016D79597C6999456DBC1267F4A4E1A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Blues Rock Compilation Part 23 (2023) [MP3|320 Kbps] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:7A927037A228932B319D3913CF838290EEE58D46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Tony Tucker - Compilation (2023) [MP3|320 Kbps] <Rock, Ballads, Blues>
 magnet:?xt=urn:btih:EEE9AA697170F8F07E295B5AADB87730C08B4CCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Larry Miller - Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:CA1129C2FED0B4DDE35E00591383B3B82A729CC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Deep Purple - Live Archive 1972 Vol. 1 (1972) 7CD  [MP3|320 Kbps] <Rock, Hard Ro
 magnet:?xt=urn:btih:809EC49180956DFCCB27188B824FD9DD01DCB3D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Rock Classics (2022) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:C2363F2FABA2011B76C14268387BF671B9C0D0A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Gary Moore - Compilation (2022) [MP3|320 Kbps] <Rock, Blues Rock>
 magnet:?xt=urn:btih:24C8E037EB3140964669BB69A897C13C5B0C4E8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Rainbow - The Platinum Collection (2019) 3CD [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:B159DD7718B0B0F5767837FD8606C9B40D16BDF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Flower Power - Children of Flowers Best Of (2023) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:C60F2DECF11CF0D401C0E4D4C77F54749B531B79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Fest Rebel Rock Radio, Vol.02 (2022) [MP3|320 Kbps] <Rock, Alternative, Ind
 ```bash
 magnet:?xt=urn:btih:409FD184B8EA64C48A5616D7517F55BCC8E3BEBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Советская Психоделика 1970-80х (1988) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:B05ED77879487C6F1D8D9AEF36056B00EB21A646
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Kingdom Come - Collection (2022) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:5CA9422CA3CD2E39A87BC8174E1EFEBC41CC28E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Europe - Collection (2022) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:658849567290F4A0E609FDBA276B1A8E2BE789B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Cinderella - Collection (2022) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:2E845487F04B56F49F73E7403BD3F010135420C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +550,8 @@ magnet:?xt=urn:btih:2E845487F04B56F49F73E7403BD3F010135420C7
 magnet:?xt=urn:btih:494D487599C1A256AC3C77CE622808B842752E67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +579,8 @@ Bryan Adams - Collection (2022) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:AEF6EA0B48CE4674477554C6E2E734AD468B8595
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +607,8 @@ VA - Best Russian Echoes of Screamo.vol. 14 (2025) Compilation [MP3|320 Kbps] <A
 ```bash
 magnet:?xt=urn:btih:CDFC5E56497C547F2C4DEA79309EF35486EDEC38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +643,8 @@ magnet:?xt=urn:btih:CDFC5E56497C547F2C4DEA79309EF35486EDEC38
 magnet:?xt=urn:btih:F057434F057F677D8107B69F24090CEB80D64192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +677,8 @@ magnet:?xt=urn:btih:F057434F057F677D8107B69F24090CEB80D64192
 ```bash
 magnet:?xt=urn:btih:555654EC7AB70C759C0068163217B79FB602F218
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +713,8 @@ magnet:?xt=urn:btih:555654EC7AB70C759C0068163217B79FB602F218
 magnet:?xt=urn:btih:A146820A032BAF7D39B08A7F49AB83EE60A200F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +741,8 @@ VA - Рок в Авто (2012) [MP3|160-320 кб/с]<Heavy Metal , Hard Rock , G
 ```bash
 magnet:?xt=urn:btih:3ECC6580AA6B9B54AF411DAE9B5A62284E22433C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -726,6 +776,8 @@ magnet:?xt=urn:btih:3ECC6580AA6B9B54AF411DAE9B5A62284E22433C
 ```bash
 magnet:?xt=urn:btih:81120722E3BCF2467899EA64158C2B1E2FA2EFFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

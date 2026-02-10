@@ -19,6 +19,8 @@ AutoCAD Architecture — это версия AutoCAD, созданная спе�
 magnet:?xt=urn:btih:938B52999B03EF1E674EF55A9B985EA96EDD381E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ AutoCAD Electrical — это AutoCAD для проектирования эле
 ```bash
 magnet:?xt=urn:btih:0568A3ED71F7437BABFA2DD26FD98CF26C0DC755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ AutoCAD Mechanical – это AutoCAD для машиностроительно�
 magnet:?xt=urn:btih:1D5BA43A88737A779CC22F8541F9225F3C7685CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Autodesk AutoCAD Plant 3D 2019 (M046.04)  [Ru/En]
 ```bash
 magnet:?xt=urn:btih:804CDDDE0EE711637D4BBE071125C7C50B1E0BA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ SecurOS™ Lite - бесплатная полнофункциональная р
 magnet:?xt=urn:btih:7C1AB42A2FDF00D08E915F1FF6107F47833871FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Skype for Business Server 2015 x64 MSDN 6.0.9319.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:F39BDCD99ADC2EA64667C2A9494AAB8F0471CBB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Ultimate Boot CD — образ загрузочного компакт-диск
 magnet:?xt=urn:btih:9E78AB6DF0B01BB9090B4E209C0BA478C6A36C18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ MTS CNC-System - это моделирование с ЧПУ, программа
 ```bash
 magnet:?xt=urn:btih:BD02DA8CA39CCC3BE062C5E0992D8A286C9BF6D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ AspenTech AspenONE 8.8 [En]
 magnet:?xt=urn:btih:DAAF9F7E3A09A6D7701153DED1A8CBADB21F323A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Autodesk СПДС модуль – новое дополнение к проду
 ```bash
 magnet:?xt=urn:btih:954AD9F4D2FC53E11CE0624BDF6B26D7A046A313
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ IMSI Turbocad Pro Platinum - это качественная профессио�
 magnet:?xt=urn:btih:FF623EE00E409BF3C1C3759D863430378F83EAF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ QR-Code Studio 1.0.2.20600 [Ru]
 ```bash
 magnet:?xt=urn:btih:BA1A03D90461EE7BC66FAEA246A6F604AFBA886D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ WinToFlash — это приложение, позволяющее полнос�
 magnet:?xt=urn:btih:BDF2113C8C0C326CEAEA6CE1F0E6238110701789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Advanced Installer - это мощное и простое в использов
 ```bash
 magnet:?xt=urn:btih:2715FD2ECD8874C1A7147A4B2B8C58544E8CFF87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Stardock ShadowFX 1.2 [En]
 magnet:?xt=urn:btih:927EF91FB31EC219033C7034B9F7260A7A7C14BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Bentley MicroStation CONNECT Edition 10.00.00.25 [En]
 magnet:?xt=urn:btih:864EC14922B51ABB9A0FF257A30712B984E4FAF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +434,8 @@ SQLyog Ultimate являет собой расширенной версией о
 ```bash
 magnet:?xt=urn:btih:92C6AB318433373FEBD933EBF811685E15DC0D4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:92C6AB318433373FEBD933EBF811685E15DC0D4E
 magnet:?xt=urn:btih:0AAB49730337CD48FEEF47B6FF4834A1820A4BB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ SystemTools Hyena 12.0.0 [En]
 magnet:?xt=urn:btih:62D38A3C295487D33F20AC2D31C84613C99B4A14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:62D38A3C295487D33F20AC2D31C84613C99B4A14
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ AutoCAD® Raster Design является надстройкой. Для уста
 magnet:?xt=urn:btih:B3BC8B505217278357E5084A652B5BA012BCD1EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ WinHex 19.6 SR-6 PortableAppC by Joo Seng's [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:377CCE54EB5042B7A87D7F05968BB08EC05969F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ AutoHotkey — бесплатная программа с открытым ис�
 magnet:?xt=urn:btih:EAE8C7B6378A645B8A8C09B4AB0F0A6093FBFD5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Themida - это передовая система защиты программ
 ```bash
 magnet:?xt=urn:btih:E0E89DA4B667154879C510ECCAC6A1B551A75467
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ CodeTwo QR Code Desktop Reader & Generator 1.1.2.4 [En]
 magnet:?xt=urn:btih:914F63E14D6426C6C17F76A7C299BEE756744416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ AutoHotkey — бесплатная программа с открытым ис�
 ```bash
 magnet:?xt=urn:btih:01BFFF904B237D32FBEAB085EC1C2F90B562624C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

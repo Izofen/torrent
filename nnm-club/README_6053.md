@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:796066F347603EC8C1E880446B1BC673C1CFDAD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Winterstorm - Everfrost (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Folk 
 magnet:?xt=urn:btih:817A1C3D8AB8EAF00E2944ED79B197523699EB47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:817A1C3D8AB8EAF00E2944ED79B197523699EB47
 ```bash
 magnet:?xt=urn:btih:588E703747C524A360F4196D82A9E87CECA85C7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Rising Wings - Reach (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AO
 magnet:?xt=urn:btih:5A2EAB28A10BE2F1005EE03A5A904C9EE20CF460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Renee Rosnes - As We Are Now (1997) Blue Note [FLAC|Lossless|tracks + .cue] <Pos
 ```bash
 magnet:?xt=urn:btih:101187098566B426493958EF0B77DE6AE63136B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Askheimr - Askheimr (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black, Death M
 magnet:?xt=urn:btih:BC1548E49E7E65D9826FD2D6A74DD16DAD58C09C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ By Fire & Sword - Glory (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Metal
 ```bash
 magnet:?xt=urn:btih:AB277986040A741D926260E6CACB8C24756782A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ Abigor - (Totschlager) Totschläger (A Saintslayer's Songbook) (2020) [FLAC|Loss
 magnet:?xt=urn:btih:3D2CF568681038E560F9584F3B61F1810394018A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ Vengeance - Sewer Surge (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Spe
 ```bash
 magnet:?xt=urn:btih:CE22CAFB4374698F7F29FE144D81F08F2BD55A59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ Orbiter - Hollow World (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
 magnet:?xt=urn:btih:D3E9D4FF86F71E34F45DC9639A48DD70394E97CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ Akiavel - Vae Victis (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 magnet:?xt=urn:btih:5E162B678EAAC6A872CD3B7E8210E129061031E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ magnet:?xt=urn:btih:5E162B678EAAC6A872CD3B7E8210E129061031E8
 ```bash
 magnet:?xt=urn:btih:997B793FA6E4CEAED801F7AD7BC024EE634C834D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +364,8 @@ Alkaloid - Numen (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
 magnet:?xt=urn:btih:5A0DBC50F04F850E6AF149D52962CA6B57FB2F1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +393,8 @@ Sahib Shihab - Summer Dawn (1963) 2008, Rearward [FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:30AA929E44AD1D3C4CA85114EE8F1FE72F4416D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +418,8 @@ magnet:?xt=urn:btih:30AA929E44AD1D3C4CA85114EE8F1FE72F4416D6
 ```bash
 magnet:?xt=urn:btih:BDFFB35834C1A90D63414A401B8F7E1C05C1D7DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +445,8 @@ magnet:?xt=urn:btih:BDFFB35834C1A90D63414A401B8F7E1C05C1D7DB
 magnet:?xt=urn:btih:DDAE26B3A0362084BD27E637F7F1C6DE24D4A348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +470,8 @@ Symantec Endpoint Protection объединяет Symantec AntiVirus™ и ус�
 ```bash
 magnet:?xt=urn:btih:4B51EE1142CA4AC29EC8C1319ECCB6ADA6EE5AC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +497,8 @@ magnet:?xt=urn:btih:4B51EE1142CA4AC29EC8C1319ECCB6ADA6EE5AC8
 magnet:?xt=urn:btih:E1281DEBC95BD63879949FC876DA5117C804269E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +522,8 @@ magnet:?xt=urn:btih:E1281DEBC95BD63879949FC876DA5117C804269E
 ```bash
 magnet:?xt=urn:btih:E9CD5200120CEFBA5C1B3E2B5E66A66B77892DF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +552,8 @@ Slurm (Слёрм), Егор Лукьянов, Александр Вагнер |
 magnet:?xt=urn:btih:C5F74A8CC7362CBEF0B2AAE62BEE3CC2C3016605
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +579,8 @@ magnet:?xt=urn:btih:C5F74A8CC7362CBEF0B2AAE62BEE3CC2C3016605
 magnet:?xt=urn:btih:45ED35EFEF743311A9085A79D0ECD3735FBF6575
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ magnet:?xt=urn:btih:45ED35EFEF743311A9085A79D0ECD3735FBF6575
 ```bash
 magnet:?xt=urn:btih:D9F8571636E79593E0D072CA295F32B8D290E971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +631,8 @@ magnet:?xt=urn:btih:D9F8571636E79593E0D072CA295F32B8D290E971
 magnet:?xt=urn:btih:A95CD60766ABF41256C7A5A1A8B840B57711BF8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:A95CD60766ABF41256C7A5A1A8B840B57711BF8F
 ```bash
 magnet:?xt=urn:btih:BDD7E1B531F6B3D148285B7015429A547D183E3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:BDD7E1B531F6B3D148285B7015429A547D183E3D
 magnet:?xt=urn:btih:F149C635D1E09D6A0882824AB58E8F199E189B94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ magnet:?xt=urn:btih:F149C635D1E09D6A0882824AB58E8F199E189B94
 ```bash
 magnet:?xt=urn:btih:DF23D808AE98A33C8F343D553D410819C687C02E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

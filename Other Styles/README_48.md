@@ -22,6 +22,8 @@ Electric Youth - Breathing (Original Motion Picture Soundtrack From A Lost Film)
 magnet:?xt=urn:btih:B6C8EC7D9C140D4483C14E15E96B2695754CC690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Monica Pereira - Mulher Do Sol (2017) [MP3|320 Kbps] <World, Folk>
 ```bash
 magnet:?xt=urn:btih:47BC3C5D023F05D43174725180EE2E0C3A98C160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Mystical Travel (2007) [MP3|320 Kbps] <Native american, Ethnic, World>
 magnet:?xt=urn:btih:91AB3D4CA80C3B2C5F0B006C615F9AD9AA14CA77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Electric Youth - Breathing (Original Motion Picture Soundtrack From A Lost Film)
 ```bash
 magnet:?xt=urn:btih:141378520F75BB3E46C284416AC333B32D906D35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:141378520F75BB3E46C284416AC333B32D906D35
 magnet:?xt=urn:btih:15703C6A1D6F435CB372E5ED3A543AD3B8341EF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Bear McCreary - Outlander / Чужестранка: Season 1,2 (Original Televis
 ```bash
 magnet:?xt=urn:btih:21FDF88CB5AF4687759C2A065AB0C9B368970E03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:21FDF88CB5AF4687759C2A065AB0C9B368970E03
 magnet:?xt=urn:btih:BE5F0DBC05FC5E53E495719C988BCE03D6883D27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Bear McCreary - Outlander / Чужестранка: Season 1,2 (Original Televis
 ```bash
 magnet:?xt=urn:btih:3450BF1DA0919F5BD7C6A91FE23C95E7D39E2DEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Richard Clayderman - Super Best (2015) [FLAC|24/192|Lossless|WEB-DL|tracks] <Eas
 magnet:?xt=urn:btih:B6C0FF8A3F91C29150A5D55E0A89DFAEA3561EBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Spa Relaxation Ambient Music, Vol. 2 (2016) [MP3|320 Kbps] <Downtempo, Bale
 ```bash
 magnet:?xt=urn:btih:323FE427DA5059EC055DA1A14A43FC27D192D8E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Emmanuelle (The Original Soundtrack Music) (1974) [FLAC|image + .cue]<Sound
 magnet:?xt=urn:btih:3E58A7A69521ABB59350F3F15EB7BEAFBF71D437
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock Vol. 2 (1990) [FLA
 ```bash
 magnet:?xt=urn:btih:805C197E0565551272415A2D05EB7A6BAF2035BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Road House (The Original Motion Picture Soundtrack) (1989) [FLAC|image + .c
 magnet:?xt=urn:btih:D4998A896658F6519A8E85F2AD2CCD946B88EAD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Master & Mistress  Tango 50 Original Favourites (2010) [MP3|192 кб/с]<Ta
 ```bash
 magnet:?xt=urn:btih:9DF296D69DEB2D27BF92E468FFC17A0FAEE33941
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Electric Youth - Breathing (Original Motion Picture Soundtrack From A Lost Film)
 magnet:?xt=urn:btih:2AE3A68A9B8DB1D88ACD8892FBF5965A90F3BD9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Kevin Kern - Always Near / A Romantic collection (2014) [FLAC|image+.cue]<New Ag
 ```bash
 magnet:?xt=urn:btih:6BF0C2682D439E2CEB9121B384367A71C035614B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ Anibal Palazolo - Flamenco Entre Cuerdas (2009) [MP3|320 кб/с]<Instrumental, 
 magnet:?xt=urn:btih:B382B98F1A383AFDB68B59EB1675D9316B4C5068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +520,8 @@ Tantric Massage Experts - Open New Erotic Feelings of Pleasure and Excitement (2
 ```bash
 magnet:?xt=urn:btih:2D81116F10EC976C2BFC5A72D4803B6CDDE08573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +550,8 @@ VA - Classic Christmas (2020) [FLAC|Lossless|WEB-DL|tracks] <Christmas Music>
 magnet:?xt=urn:btih:547C7AEBA2ACC62F7A00D17EEABD9D4E00845626
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +578,8 @@ Theodor Bastard - Pathologic 2 OST (2019) [FLAC|Lossless|tracks] <Soundtrack>
 ```bash
 magnet:?xt=urn:btih:9A9BC3AFF8F525B5D468A22EEC10839E46DA988E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +608,8 @@ Wychazel - Tao: A Path of Peace (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, R
 magnet:?xt=urn:btih:24B09BC2961379726796C7F3C25903647375705F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +636,8 @@ Pachuly & Friends - Collection (3 альбома) (2003-2013) [MP3|320 CBR ~245 
 ```bash
 magnet:?xt=urn:btih:D8A9E0BB6AA0BCDCA8017FE0D6273F7B0427B84F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +666,8 @@ Tantric Music - Tantric Art of Love - New Age Music 2020 [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:84EBD3892037E53204C6FE29BED540EC3BEF2C30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +694,8 @@ Music From Turtle Island - Contemporary Native American Music (2006) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:B10E89F476C035D4C2083AA1B04310D9BFE90170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +724,8 @@ Queen - Bohemian Rhapsody (The Original Soundtrack) (2018) [MP3|320 Kbps] <Sound
 magnet:?xt=urn:btih:DC4FC73AFD540EEA649655DC293A22E926F4D79C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +752,8 @@ Arranged By – Louis AblazzoComposed By – Bach Conductor, Arranged By – Joh
 ```bash
 magnet:?xt=urn:btih:19F1705B4D4E0A51702CBC536087F8B4F519B4AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

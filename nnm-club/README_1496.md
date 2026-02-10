@@ -22,6 +22,8 @@ Pounder - Thunderforged (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:346FCE4C6173BEDE3ABE12E21C6702271C4FCA48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Lee Konitz - In Paris And London (1995) Hobby & Work [FLAC|Lossless|tracks + .cu
 magnet:?xt=urn:btih:61C42A917C6B2479738C84E4CB384D1D110EF7E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:61C42A917C6B2479738C84E4CB384D1D110EF7E0
 ```bash
 magnet:?xt=urn:btih:9156B4721D4C42B1D821D0E458FA700D67DBB74B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Ellen Andrea Wang - Closeness II (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Con
 magnet:?xt=urn:btih:F83DDDBAE426266AC5DB0140375331E3A3B0A066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:F83DDDBAE426266AC5DB0140375331E3A3B0A066
 magnet:?xt=urn:btih:83B2DE50097A961962B9B995F8A00FFF7797A8A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:83B2DE50097A961962B9B995F8A00FFF7797A8A2
 ```bash
 magnet:?xt=urn:btih:DD660A062DE13A18A336164DA9FD82D7C4875A2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:DD660A062DE13A18A336164DA9FD82D7C4875A2D
 magnet:?xt=urn:btih:824A5534588D6D9B94C68AB09B64DAB56EBAC7F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:824A5534588D6D9B94C68AB09B64DAB56EBAC7F9
 ```bash
 magnet:?xt=urn:btih:962541EE051A3C70062D841B07119D9E61D6CE3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ Disc 1 - Into The Light (2024 Remix):
 magnet:?xt=urn:btih:BBB00567431F85EB348B1D1658643106DABE4DCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ Desktop Calendar – бесплатный календарь рабочего с
 magnet:?xt=urn:btih:2F9D5D8B99B97CB3A4D559594F36F76E04F0D533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:2F9D5D8B99B97CB3A4D559594F36F76E04F0D533
 ```bash
 magnet:?xt=urn:btih:AEDE0952493EC38E9DBDF1EBC4AA0152A4D0DC4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ VA - A Romantic World (2024) [MP3|320 Kbps] <Pop, Rock, Ballad, Lyric>
 magnet:?xt=urn:btih:2EBE8901582206CD5784F9A3E5FD0A0202AE01D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:2EBE8901582206CD5784F9A3E5FD0A0202AE01D2
 ```bash
 magnet:?xt=urn:btih:05B3C37BBEBF4E98BDAF961C068F7E738C9C03F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ Boney M - Диско 80-х (2008) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
 magnet:?xt=urn:btih:68AEC08EBE5228081DD130924E10438573F32BA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:68AEC08EBE5228081DD130924E10438573F32BA7
 ```bash
 magnet:?xt=urn:btih:31161CC1653DE0641FA717E3B5C5D6FF82C9252D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ Joplin - это бесплатное приложение для создани�
 magnet:?xt=urn:btih:FEA078609C16E5AB2B762A846793B12CF316EDD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:FEA078609C16E5AB2B762A846793B12CF316EDD3
 ```bash
 magnet:?xt=urn:btih:FC8C4A1C800997E4D7214395CA80F44587844B90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ VA - Music News For Forum vol.035 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:F7083A6AB89B38A165F1D6888A92FE4A48AC181B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ RustRover - это мощная и удобная среда разработк�
 magnet:?xt=urn:btih:A739F7A8204E3D924C251ABD7A7FEE9DF729289B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ ISO Workshop - удобный и простой в использовании и
 ```bash
 magnet:?xt=urn:btih:89AD25BE46BB8B62FE790283B04C41D04DDDCF62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:89AD25BE46BB8B62FE790283B04C41D04DDDCF62
 magnet:?xt=urn:btih:22EADC70D7A27E2746FBB0568C60AD0CAA10075D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:22EADC70D7A27E2746FBB0568C60AD0CAA10075D
 ```bash
 magnet:?xt=urn:btih:6D2B7CADCE21B578BB59106AD6AF91B1CA591CCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ VA - The Intrigue Of Jazz (2024) [MP3|320 Kbps] <Jazz, Blues>
 magnet:?xt=urn:btih:E20A35DDCFA134330C549D6E8AD218182DC7579F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ VA - Best Rock Songs for Aerobic Workout (Fitness Version) (2017) [FLAC|Lossless
 magnet:?xt=urn:btih:AAFD1B24F5510085AAC6D97EA154528D8D85C682
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:AAFD1B24F5510085AAC6D97EA154528D8D85C682
 magnet:?xt=urn:btih:71A4F476999151126AE46C0C87196CD6D1EA0807
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:71A4F476999151126AE46C0C87196CD6D1EA0807
 ```bash
 magnet:?xt=urn:btih:C050CCFB0FC532C91ADD0C38CD4D8B976EBCC30D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

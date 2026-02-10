@@ -1,3 +1,32 @@
+###  Публикация: 1845949   (1051083) от 04.01.2026
+
+Nina Blaze - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Blues Ballad, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Echoes in the Hollow
+02 - Endless Nights
+03 - Storm Where My Heart Should Be
+04 - Blue Remains(   Читать дальше...   )Жанр: Blues Ballad, Blues Rock, AIПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E7F9ED25871888295684927E4D175B7AC1141A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845952   (1051086) от 04.01.2026
 
 Nina Blaze - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Blues Ballad, Blues Rock, AI>
@@ -21,6 +50,8 @@ Nina Blaze - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Blues Ballad, Bl
 ```bash
 magnet:?xt=urn:btih:E4E82B41DEB98E87236C40454B60394BBFA20F58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Blues compilation part 4 Blues Ballad (2025) [MP3|320 Kbps] <Blues Ballad>
 magnet:?xt=urn:btih:EB302C9056C07DE3CE89B1BB644650C7C00AB1F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ Ai - Inspired Blues & Soul Songs Part 3 (2025) [MP3|320 Kbps] <Blues & Soul Song
 ```bash
 magnet:?xt=urn:btih:06B6B2A0847FA8E67292939EA17D7F66DFD8F30C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ Ai - Inspired Blues & Soul Songs Part 4 (2025) [MP3|320 Kbps] <Blues & Soul Song
 magnet:?xt=urn:btih:E2DA77A9FE01B36827F11DB978CBEDB53FF2234B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ Etta James - Favorites Collection (2025) [MP3|320 Kbps] <Blues Ballad>
 ```bash
 magnet:?xt=urn:btih:A8F9F13C70470157184947E263337EC65F082AA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ Ai - No name compilation part 40 Slow Pop Rock Ballad (2025) [MP3|320 Kbps] <Slo
 magnet:?xt=urn:btih:B63CEBB026ED5A884AAA623EA559FE82EA383F14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ CYRIE - Favorites Collection (2025) [MP3|320 Kbps] <Blues Ballad>
 ```bash
 magnet:?xt=urn:btih:EC8F8C93D3190F3180A77A427C688EB99FF31844
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ Giza Larue - Favorites Collection (2025) [MP3|320 Kbps] <Blues Ballad & Soul Son
 magnet:?xt=urn:btih:AE3A6CE5ADA3BCBDF1D32F8A4E160249A8361ED6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Music News For Forum vol.154 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:7F3E9AA41DD7CDF0B880E5332B653856678FFECF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ Nina Blaze - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Blues Ballad, Bl
 magnet:?xt=urn:btih:C0F4B26B5D7A6F5A10346D14A9FDE6C42415B44F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ Nina Blaze - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Blues Ballad, Bl
 ```bash
 magnet:?xt=urn:btih:558B03F1A54DA8B08781975FCFE6259EEBF38FF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Лучшие песни Европа Плюс за 2025 год (2026) [MP3|
 magnet:?xt=urn:btih:925F3917D910734C2FE48A9DD22D2205289F9584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Лучшие песни Love Radio за 2025 год (2026) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:23A9E932DDA13AE6D03882002BF0DE01585F36C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Лучшие песни Радио DFM за 2025 год (2026) [MP3|320 Kbp
 magnet:?xt=urn:btih:DB69AB15A40F1C287399AC86B5A561581320FD2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - No name compilation part 41 Assorted (2026) [MP3|320 Kbps] <Italodisco, Ita
 ```bash
 magnet:?xt=urn:btih:2861FA5A2F71E9D2AAEA699DC942C9610B241EB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - Music News For Forum vol.155 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:882F8C311F516A31E790351BB3885D44717961D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ VA - No name compilation part 42 Soft Rock Ballad (2025) [MP3|320 Kbps] <Soft Ro
 ```bash
 magnet:?xt=urn:btih:8A6E9834E148C796F881A095DD71CF1184F7ACB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ Tom Media - Blues Every Night (Compilation) (2026) [MP3|320 Kbps] <Blues, Blues 
 magnet:?xt=urn:btih:89AEDB7708EB4BF826D8DA046988EDE2AA47A456
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ VA - Music News For Forum vol.156 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:DBE5A4D1E8BC5D0E5872F181B727458119952FD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ VA - No name compilation part 43 Soft Rock Ballad (2025) [MP3|320 Kbps] <Soft Ro
 magnet:?xt=urn:btih:59C374FAFA8FB917394C54944160C9146BDA6089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ VA - Euro Hits 2025 (2025) [MP3|320 Kbps] <Pop, Dance, Electronic>
 ```bash
 magnet:?xt=urn:btih:84E467C8677A08CF0C923F9FA626C551EC6715BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ AI.KA Digital Singer - Collection (2025) [MP3|320 Kbps] <Pop, AI Music>
 magnet:?xt=urn:btih:3F4A3463DCBFB4CF906D40C243676D1F64DD4D11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ Ruby Mae Holloway - Favorites Collection (2026) [MP3|320 Kbps] <Soul Blues, Soul
 ```bash
 magnet:?xt=urn:btih:99505E167C5326EE49E9FBD417DB7F5F93635C00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ VA - Music News For Forum vol.157 (2026) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:A4341CD5384C6FED9A42C2FCE06E17DB1F3C6E55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ VA - Russian Rock 2023-2024 (2023-2024) [MP3|320 Kbps] <rock>
 magnet:?xt=urn:btih:B2BF763C56CEA043F952F4ED880BA486857483E8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848907   (1053322) от 20.01.2026
-
-VA - Euro Hits 2024 (2024) [MP3|320 Kbps] <pop,dance,electronic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053322.jpg" />
-</div>
-
-
-###  Подробнее
-
-[5:06]. 001-Purple Disco Machine & Yung Bae & Tobi - Contact
-[3:32]. 002-Orville Peck & Kylie Minoque & Diplo - Midnight Ride
-[2:51]. 003-Jessie Murph - Cold
-[3:30]. 004-Dua Lipa - Training Season(   Читать дальше...   )Жанр: pop,dance,electronicПродолжительность: 6:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD2287D7E749E4EFCED316F38A393A101E01E7C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

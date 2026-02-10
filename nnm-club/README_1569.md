@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4F2E44017C74F9BFDE999187C16A035A5357B094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:4F2E44017C74F9BFDE999187C16A035A5357B094
 ```bash
 magnet:?xt=urn:btih:820168FBC81B4A6E392FEED21790A84FEEED1A60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Media Player Classic - BE – универсальный проигрывате�
 magnet:?xt=urn:btih:5FDAC06236CDBC320720B5D1EEDC6F7DBF6710B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:5FDAC06236CDBC320720B5D1EEDC6F7DBF6710B5
 ```bash
 magnet:?xt=urn:btih:F8CB803CA9BEDCA8484B19225AB9AAF537283DAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Stretcher Men (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:64819539D081C7CDC2D48C7382C1CBD45B82D664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:64819539D081C7CDC2D48C7382C1CBD45B82D664
 ```bash
 magnet:?xt=urn:btih:CDCA83CC0A2502E445E961EF5F9F9A0AD1E0C580
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:CDCA83CC0A2502E445E961EF5F9F9A0AD1E0C580
 magnet:?xt=urn:btih:717B21F77262005609412C8616F389DFDE3CDC96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:717B21F77262005609412C8616F389DFDE3CDC96
 ```bash
 magnet:?xt=urn:btih:B57D9393D8EAB80A946333FEA230497CEB72D509
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ VA - Суперхиты Дискотеки 90-х Vol.5 (2013) [OGG Vorbis|480 Kb
 magnet:?xt=urn:btih:8258938774CC44D09417436911843D09CE13EFC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Dorling Kindersley | Как объяснить ребенку географию
 ```bash
 magnet:?xt=urn:btih:84C4C32EBA7D93DBF345C122A2D00049AEBB9DA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Chris De Burgh - 50 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop Rock, Soft Ro
 magnet:?xt=urn:btih:538A523F2C737188CBCFFACF0A43DD00BF2E5791
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Slimjet 44.0.2.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:61D921887E992A94363A609C8C4E58F9B49EBF12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ A2  Валентина Легкоступова - Капля В Море(   Чи
 magnet:?xt=urn:btih:76863F6018B4B30CCD5C9186C5077AFF96E7BDB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:76863F6018B4B30CCD5C9186C5077AFF96E7BDB1
 magnet:?xt=urn:btih:E7887F053BFB03E960C974C09C297CBE9F85D5C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:E7887F053BFB03E960C974C09C297CBE9F85D5C2
 ```bash
 magnet:?xt=urn:btih:5EE569DD41FBDB90C9E355C684D94231EEDDB723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ VA - Союз 16  (1995) [FLAC|Lossless|tracks + .cue] <Pop>
 magnet:?xt=urn:btih:B0E5627C3B2B9DC372E5BB37A1A2DEC1846A9948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:B0E5627C3B2B9DC372E5BB37A1A2DEC1846A9948
 ```bash
 magnet:?xt=urn:btih:85D021124E9D61CAC5516B9B22C4B6C67EB543BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ Live синхронизирует все и работает в режиме р�
 magnet:?xt=urn:btih:0BC93B4E3B7DDD5FE54C6C7AFA325DC1367AE7E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ Dwarven Realms - это ориентированная на действия 3D 
 ```bash
 magnet:?xt=urn:btih:A3CB85BE288CEF69B273DDF18801C5FEEE84529E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:A3CB85BE288CEF69B273DDF18801C5FEEE84529E
 magnet:?xt=urn:btih:CE72C8555B668A96350A400014EF6F6ED670E36A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:CE72C8555B668A96350A400014EF6F6ED670E36A
 ```bash
 magnet:?xt=urn:btih:E9FBB1979A7E6EA2DB9FC73A3A2E7D5DB94A62B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:E9FBB1979A7E6EA2DB9FC73A3A2E7D5DB94A62B5
 magnet:?xt=urn:btih:8283B16252E4F96CE15F74CB819BB3C983D76EAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Repack FitGirl [Digital
 ```bash
 magnet:?xt=urn:btih:FB88F26BD640E0C43A7503419568E12BE21A9098
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:FB88F26BD640E0C43A7503419568E12BE21A9098
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:FB88F26BD640E0C43A7503419568E12BE21A9098
 ```bash
 magnet:?xt=urn:btih:D496A02454269790A13160C2FA5D2E3BA220023B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +689,8 @@ The Complete Unity C# Bootcamp (Часть 1 из 2) - единственный 
 ```bash
 magnet:?xt=urn:btih:4988F288EB3F0085A1E6F951D54FCDBAB48F11F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

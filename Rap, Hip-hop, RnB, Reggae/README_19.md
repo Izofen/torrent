@@ -1,3 +1,32 @@
+###  Публикация: 1294684   (627317) от 08.04.2019
+
+2 Mello - Mindstreaming, Vol. 1 (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumental Hop, Beats, Chillhop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_627317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty Intro (1:58)
+02. Kaiju Things (3:19)
+03. Cruise In Neon (1:49)
+04. Cover Charge (2:05)(   Читать дальше...   )Жанр: Hip-Hop, Instrumental Hop, Beats, ChillhopПродолжительность: 00:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91E8B2ACDC6345B7DE40933C5BAEFAA62FD684FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168996   (627684) от 08.04.2019
 
 Слава КПСС - 7 Альбомов, 2 Микстейпа, 3 EP (2015-2019) [MP3|192-320 Kbps] <Hip-Hop, Rap>
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:F97BFE13E85AAFAB1920762603075F13F4363E27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ magnet:?xt=urn:btih:F97BFE13E85AAFAB1920762603075F13F4363E27
 magnet:?xt=urn:btih:8B24D8228C98F762BE54A6E6BB22D289A65B2264
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ Guf - Опять (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:BE45BA46D3CBDEBF41EE7F7B7BF53A81B9208FF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ N1NT3ND0 (Баста) - Папа на рэйве (2019) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:70501BDF79BEB4326B89B0DDA2C4C316DCAFFC6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ magnet:?xt=urn:btih:70501BDF79BEB4326B89B0DDA2C4C316DCAFFC6A
 ```bash
 magnet:?xt=urn:btih:AB14552E8420DC3C4FB1081FF4D6A2F97BA29CEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ Guf, Slim - GuSli (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:BBA58BD2A2C9892BAADEBE0340990A628FCA21DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ Two Feet - Momentum (2017)  EP [MP3|320 Kbps] <Trap, ChillTrap>
 ```bash
 magnet:?xt=urn:btih:CDD7887D58E9A2CD8A2D37E34F56D5AE298100C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ magnet:?xt=urn:btih:CDD7887D58E9A2CD8A2D37E34F56D5AE298100C3
 magnet:?xt=urn:btih:BCF992FFBFB8C73FEA129DB6C5DC270E92387D4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +280,8 @@ Noize MC - Хипхопера: Орфей & Эвридика (2018) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:F5CEF52C6C9D631FDC6BB32C6A0F0FE76D72122B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +310,8 @@ N1NT3ND0 (Баста) - Папа на рэйве (2019) [MP3|320 Kbps] <Rap, Hip
 magnet:?xt=urn:btih:67D6CDBD52A7F46C5EA0B9638C4FD19C28E2AB6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +338,8 @@ Becko - You Are (Not) Alone (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic Roc
 ```bash
 magnet:?xt=urn:btih:126B0F7DD5B46DB1D6215324E49E854380EF7D2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +368,8 @@ Alai Oli, Хмыров - Последний из ушедших (2022) [MP3|320 
 magnet:?xt=urn:btih:6D5269534D6FEDD898DFAE7EE981A6773744A6F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +396,8 @@ VA - Romantic Soul Music (2019) [MP3|320 Kbps] <R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:5B736BB1926C484189AAE426133915866E72D3BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +426,8 @@ VA - Ladies Of Soul 80S & 90S (2019) [MP3|320 Kbps] <Soul, Disco, Rhythm & Blues
 magnet:?xt=urn:btih:06DD8614E4E011F6CE7C5522213C2C92540F1A4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +454,8 @@ MATRANG - ЭЙА (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:E2F61D5932EBA4F093857E6F2EA6D2B89579CC3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +484,8 @@ magnet:?xt=urn:btih:E2F61D5932EBA4F093857E6F2EA6D2B89579CC3F
 magnet:?xt=urn:btih:14C1E750224B1CFA4CCD56280026715F371E986F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +512,8 @@ Billy Milligan - Геном (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 ```bash
 magnet:?xt=urn:btih:C8C3DC0D8261C6E836346284ACD51C95EE6FC74D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +542,8 @@ Noize MC - Чайлдфри (2017) Single [MP3|320 Kbps] <Rap, Hip-Hop, Rock>
 magnet:?xt=urn:btih:5277D059BDEAE0E66F1B28B5645D79CAA3B9800F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +570,8 @@ magnet:?xt=urn:btih:5277D059BDEAE0E66F1B28B5645D79CAA3B9800F
 ```bash
 magnet:?xt=urn:btih:7FEB440B1D0D6B1588FD7D4411C0D068AE94AF17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +600,8 @@ Machine Gun Kelly - Mainstream Sellout (2022) Explicit [FLAC 2.0|48/24|WEB-DL|tr
 magnet:?xt=urn:btih:48AA6FC4EF40512354580E8B546D6DE1CCBA2351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +628,8 @@ magnet:?xt=urn:btih:48AA6FC4EF40512354580E8B546D6DE1CCBA2351
 ```bash
 magnet:?xt=urn:btih:E46C34E9159254CB073F30CE11A4BCF359507AE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +658,8 @@ magnet:?xt=urn:btih:E46C34E9159254CB073F30CE11A4BCF359507AE9
 magnet:?xt=urn:btih:CE745695A9B2F7DB365C2C1392B6FF0980A34F36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +686,8 @@ Desmond Dekker - The Best Of (2004) Compilation [FLAC|Lossless|image + .cue] <Re
 ```bash
 magnet:?xt=urn:btih:72235F4EFC9144D6F40B9F6B6A2190803B9C14C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +716,8 @@ Jah Khalib - E.G.O. (2018) [MP3|320 Kbps] <Rap, Hip-hop>
 magnet:?xt=urn:btih:80945D8EC4959546F60B94AE93BF526C7D37D6B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,32 +745,7 @@ magnet:?xt=urn:btih:80945D8EC4959546F60B94AE93BF526C7D37D6B0
 magnet:?xt=urn:btih:C3C9D0A79B97ECE39F85A39A31FE8DC7B5A4E85F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225270   (661781) от 14.05.2018
-
-Смоки Мо - День Первый (2018) [MP3|320 Kbps] <Rap, Hip-hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_661781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сила вибраций (вступление)
-02. Из 8-1-2
-03. Вечно
-04. Макиавелли(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1CCC945A117BFB371CD9D6437AD12BE7771B92E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

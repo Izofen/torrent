@@ -19,6 +19,8 @@ A Plague Tale: Innocence (2019) [Ru/Multi] (1.07/dlc) Repack Other s
 magnet:?xt=urn:btih:43157305533A6BDC5E1A6EF81502959E0C34077E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - По волне моей памяти  70', 80', 90' (2019) [MP3|254-320 Kb
 magnet:?xt=urn:btih:B790CE513B78528294F1073B0540FEF2F6EEB089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Gorky 17 / Горький-17: Запретная зона (1999) [Ru/Multi] (1.0
 ```bash
 magnet:?xt=urn:btih:C8785E2CBFEB979FB4AA9430E641EA109B0B5ADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:C8785E2CBFEB979FB4AA9430E641EA109B0B5ADF
 magnet:?xt=urn:btih:60F27BECF2DC850CFDD2546086BBD91B5FE4F3A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:60F27BECF2DC850CFDD2546086BBD91B5FE4F3A7
 magnet:?xt=urn:btih:5F61FC627E9882753A9739A4019810970FB81B05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:5F61FC627E9882753A9739A4019810970FB81B05
 ```bash
 magnet:?xt=urn:btih:A1D199A48076E9651C3583CD32023F893243BDD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ The Legend of Zelda: Link's Awakening (2019) [Switch] [EUR] 9.0.1 [License / 1.0
 magnet:?xt=urn:btih:3A9C2A8A97AE0FEBF6790DF1E152CA9F2ACD3D21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:3A9C2A8A97AE0FEBF6790DF1E152CA9F2ACD3D21
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:3A9C2A8A97AE0FEBF6790DF1E152CA9F2ACD3D21
 magnet:?xt=urn:btih:85BB8E49BFAFBD713D5DE4E4203CB8926C29C7CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:85BB8E49BFAFBD713D5DE4E4203CB8926C29C7CE
 ```bash
 magnet:?xt=urn:btih:9BC588489C3896DCD9998FD867905EC44F4A5D05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:9BC588489C3896DCD9998FD867905EC44F4A5D05
 magnet:?xt=urn:btih:4FB74B9D05BFD58EA775A0A92738069B59F19B90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ VIP MP3 Player (ZK.FM Player) v4.1 (96) Mod [Ru]
 ```bash
 magnet:?xt=urn:btih:95D599F59FAF0B2D9AD77908BAE853F225C76557
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:95D599F59FAF0B2D9AD77908BAE853F225C76557
 magnet:?xt=urn:btih:AD5C059E6CDBCB4F6849610B7762D03606F08ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:AD5C059E6CDBCB4F6849610B7762D03606F08ADF
 magnet:?xt=urn:btih:3C69530359E10CF4B170DB94907D44E359770334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:3C69530359E10CF4B170DB94907D44E359770334
 ```bash
 magnet:?xt=urn:btih:B533330E1EBFACD5BD6ED2FBCAE313E8886CB1E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ V.A. - The World's Greatest Audiophile Vocal Recordings Vol. III (2019) [FLAC|24
 magnet:?xt=urn:btih:73E85F4EAD981022B7A7275A7500855BC9C7E7A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:73E85F4EAD981022B7A7275A7500855BC9C7E7A4
 ```bash
 magnet:?xt=urn:btih:CFD51E98D6E5961CCAAAA218645C2C0EF2EAC6F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:CFD51E98D6E5961CCAAAA218645C2C0EF2EAC6F9
 magnet:?xt=urn:btih:A5C3F0EC318660BB0DF7E3BC9AEE9F5A30FCD77B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:A5C3F0EC318660BB0DF7E3BC9AEE9F5A30FCD77B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:A5C3F0EC318660BB0DF7E3BC9AEE9F5A30FCD77B
 magnet:?xt=urn:btih:C1A1DCECBDE711DB4ED1FDB1D2F9EFB9B75810B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:C1A1DCECBDE711DB4ED1FDB1D2F9EFB9B75810B6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:C1A1DCECBDE711DB4ED1FDB1D2F9EFB9B75810B6
 magnet:?xt=urn:btih:D4B24FCD1A01D9483436EC7E8FDC55A5F9B88417
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:1F12751B941B9469940C2CE217145CF5ADC4408C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ Mirror for Samsung TV 2.1.7 [En/Ru]
 magnet:?xt=urn:btih:BF98B0BF8B9CC99FBAB0C73F37936C2F70F3BFA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ magnet:?xt=urn:btih:BF98B0BF8B9CC99FBAB0C73F37936C2F70F3BFA6
 ```bash
 magnet:?xt=urn:btih:81CFDF17F9A1DE52ECCD1B9F75D3E9022A26D685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:81CFDF17F9A1DE52ECCD1B9F75D3E9022A26D685
 ```bash
 magnet:?xt=urn:btih:EEC35EEA87BBB11A8280747BE55BB483B1FB5857
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

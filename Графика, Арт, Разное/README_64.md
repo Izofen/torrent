@@ -1,51 +1,3 @@
-###  Публикация: 1246535   (461410) от 11.09.2018
-
-Обои - Desktop Wallpapers 4K Ultra HD Part 23 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31B89B3FDB6FC1BD3E1251B121D173419AF09454
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246529   (461482) от 11.09.2018
-
-Обои - ЖИВОТНЫЕ. ЛЮБИМЫЕ ПИТОМЦЫ [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои с выразительными портретами собак. Они такие преданные, ласковые, доверчивые... Кто любит, тот оценит.Формат: JPGРазрешение файлов: 1920x1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B7A4223EAA46D47839EFA0F81E89B0EF3162A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246534   (461487) от 11.09.2018
 
 Обои - Wallpapers Full HD  Кошачьи #26 [JPG]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:06B7A4223EAA46D47839EFA0F81E89B0EF3162A4
 ```bash
 magnet:?xt=urn:btih:106DED328A6475CB9281FFBFE6737B9B49C59C0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +45,8 @@ magnet:?xt=urn:btih:106DED328A6475CB9281FFBFE6737B9B49C59C0B
 magnet:?xt=urn:btih:E99AC32E975A001C5FFA7664E919943F50EF94C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +70,8 @@ magnet:?xt=urn:btih:E99AC32E975A001C5FFA7664E919943F50EF94C2
 ```bash
 magnet:?xt=urn:btih:B734125E21EA65CFDE0F74AA527FAD81298B3AD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +97,8 @@ magnet:?xt=urn:btih:B734125E21EA65CFDE0F74AA527FAD81298B3AD9
 magnet:?xt=urn:btih:9528B5409E55317A9F576E252B264ECB79275EBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +122,8 @@ magnet:?xt=urn:btih:9528B5409E55317A9F576E252B264ECB79275EBE
 ```bash
 magnet:?xt=urn:btih:E00936128F10FD98669C3A63D7742841B4A10E6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +149,8 @@ magnet:?xt=urn:btih:E00936128F10FD98669C3A63D7742841B4A10E6E
 magnet:?xt=urn:btih:27CF0549B7EA7AFE0A8E2F278D218319765FD13E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +174,8 @@ magnet:?xt=urn:btih:27CF0549B7EA7AFE0A8E2F278D218319765FD13E
 ```bash
 magnet:?xt=urn:btih:7D090D405C5AF94B4450ED593137735D4DF6EE89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +201,8 @@ magnet:?xt=urn:btih:7D090D405C5AF94B4450ED593137735D4DF6EE89
 magnet:?xt=urn:btih:E973B0C8B2CC424B88025E5488154F8FCC4246F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +226,8 @@ magnet:?xt=urn:btih:E973B0C8B2CC424B88025E5488154F8FCC4246F9
 ```bash
 magnet:?xt=urn:btih:D4E26A6E791CC56C0BE6089019F08542F0C66D08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +253,8 @@ magnet:?xt=urn:btih:D4E26A6E791CC56C0BE6089019F08542F0C66D08
 magnet:?xt=urn:btih:F786E0C59ECD9FF97F5A10BFAA8611A012E08322
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +278,8 @@ magnet:?xt=urn:btih:F786E0C59ECD9FF97F5A10BFAA8611A012E08322
 ```bash
 magnet:?xt=urn:btih:64BE16F7B54DED97AFD6AEE45145D4A69997F73F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +305,8 @@ magnet:?xt=urn:btih:64BE16F7B54DED97AFD6AEE45145D4A69997F73F
 magnet:?xt=urn:btih:E028C0148B92B111979B78EB99DE22A89F302761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +330,8 @@ magnet:?xt=urn:btih:E028C0148B92B111979B78EB99DE22A89F302761
 ```bash
 magnet:?xt=urn:btih:C58496DD701767AA23480EA5852D678A82894B4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +357,8 @@ magnet:?xt=urn:btih:C58496DD701767AA23480EA5852D678A82894B4D
 magnet:?xt=urn:btih:C0289DF31595265FD8E389D0C6D92E1D451F4409
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +382,8 @@ magnet:?xt=urn:btih:C0289DF31595265FD8E389D0C6D92E1D451F4409
 ```bash
 magnet:?xt=urn:btih:8AF57D1584D3C9C3F409585D5E88D471DE1EF8FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +409,8 @@ magnet:?xt=urn:btih:8AF57D1584D3C9C3F409585D5E88D471DE1EF8FB
 magnet:?xt=urn:btih:55AB5482F36E27063BB3856BFC17903E9C3BC009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +434,8 @@ magnet:?xt=urn:btih:55AB5482F36E27063BB3856BFC17903E9C3BC009
 ```bash
 magnet:?xt=urn:btih:39FF73AC9B9311298F5C4E9877E5B71205F4DDE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +461,8 @@ magnet:?xt=urn:btih:39FF73AC9B9311298F5C4E9877E5B71205F4DDE5
 magnet:?xt=urn:btih:9B8A774A1FF98BC54E9669F9C4364BE0E68C94B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +486,8 @@ magnet:?xt=urn:btih:9B8A774A1FF98BC54E9669F9C4364BE0E68C94B2
 ```bash
 magnet:?xt=urn:btih:FB72652F82FAAB7D2C3EB0D291605A8CA4C2A888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +513,8 @@ magnet:?xt=urn:btih:FB72652F82FAAB7D2C3EB0D291605A8CA4C2A888
 magnet:?xt=urn:btih:7B346633600DD8A88E1AAC66D8AC5FD6F74A0B27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +538,8 @@ magnet:?xt=urn:btih:7B346633600DD8A88E1AAC66D8AC5FD6F74A0B27
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +565,8 @@ magnet:?xt=urn:btih:7B346633600DD8A88E1AAC66D8AC5FD6F74A0B27
 magnet:?xt=urn:btih:C4B5687BCE544237DB7EF369A29EBF37125D4819
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +591,8 @@ magnet:?xt=urn:btih:C4B5687BCE544237DB7EF369A29EBF37125D4819
 magnet:?xt=urn:btih:C87A457D8B8DA2B25FD102A83FD6CF3EB7C4F7EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +616,61 @@ magnet:?xt=urn:btih:C87A457D8B8DA2B25FD102A83FD6CF3EB7C4F7EB
 ```bash
 magnet:?xt=urn:btih:AFC2A38A84D1B25BFE521052A5B47CDCA48F0F62
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940348   (466735) от 25.09.2015
+
+Картинки - Как мимолетное виденье. 7680x4320 - 50 шт [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466735.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Я помню чудное мгновенье: передо мной явилась ты"...) Если бы Пушкин был еще и талантливым художником, он бы обязательно запечатлел того "гения чистой красоты" ).
+Женский мимолетный образ глазами современных художников. Интересные "воздушные" работы, выполненные акварелью, карандашом или в другой технике.Формат: JPGРазрешение файлов: 7680x4320
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E03DD7023529E9B376753F86DE014A467A573A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940597   (466854) от 25.09.2015
+
+Обои - Жемчужные сети тумана. 2560x1440 - 100 шт [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_466854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои под настроение, затягивающие в призрачный мир прохладных сизых туманностей, полных тайн и сюрпризов. Глядя на них, сразу вспоминается "Ёжик в тумане" - величайший шедевр на все времена. Необычное, завораживающее состояние природы - туман, словно трещинка, скользит между мирами и ловит наши души в свои тончайшие жемчужные сети.Формат: JPGРазрешение файлов: 2560х1440
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC4556F772B502D6D9427AC0C07D45E3E9A7EB7
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,31 @@
+###  Публикация: 519632   (637043) от 06.07.2012
+
+Сергей Рязанцев | Танатология (Учение о смерти) [1994] [Pdf]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Танатология – учение о смерти, ее причинах, механизмах, признаках и отношении к ней человека (в психиатрии, религиях и парапсихологии).
+ В книгу вошли "Танатология - наука о смерти" Сергея Рязанцева, "Мы и смерть" и "По ту сторону принципа наслаждения" Зигмунда Фрейда.
+ Для психологов, философов, психиатров, суицидологов, социальных работников.Жанр: Психоаналитика, эзотерикаФормат: Pdf
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66E84387CBDB8D4F432A5CC328C8DF2AABADB9CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519343   (637054) от 06.07.2012
 
 Гари Крэйг | Техника эмоциональной свободы. Акупрессура и депрограммирование подсознания [2011] [PDF]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:94EACEBD763D0840B5871DCFC2BD14111849C03F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:94EACEBD763D0840B5871DCFC2BD14111849C03F
 magnet:?xt=urn:btih:60B6E9E712C7B0A776A7D9F7F31A15AB09A1A3E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:60B6E9E712C7B0A776A7D9F7F31A15AB09A1A3E4
 ```bash
 magnet:?xt=urn:btih:720C7FEACF89D52F58287B1420BD176FDF7638FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +127,8 @@ magnet:?xt=urn:btih:720C7FEACF89D52F58287B1420BD176FDF7638FD
 magnet:?xt=urn:btih:DAE3691028E2CAD801E0EB6554A08CE08D5667F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +155,8 @@ magnet:?xt=urn:btih:DAE3691028E2CAD801E0EB6554A08CE08D5667F0
 magnet:?xt=urn:btih:1428FE1FA4EC2C2626FEB0ECEA90FF1E1E2B40FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +180,8 @@ magnet:?xt=urn:btih:1428FE1FA4EC2C2626FEB0ECEA90FF1E1E2B40FF
 ```bash
 magnet:?xt=urn:btih:DABC6F3939DF4CEFD2156E997C3462634477094E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +209,8 @@ magnet:?xt=urn:btih:DABC6F3939DF4CEFD2156E997C3462634477094E
 magnet:?xt=urn:btih:03D324647EBF7B2C6E448554B2D30553B1701CCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +234,8 @@ magnet:?xt=urn:btih:03D324647EBF7B2C6E448554B2D30553B1701CCA
 ```bash
 magnet:?xt=urn:btih:3094FCA5CE9C03E0E28FA139D14DEAF461FE0E99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +262,8 @@ magnet:?xt=urn:btih:3094FCA5CE9C03E0E28FA139D14DEAF461FE0E99
 magnet:?xt=urn:btih:E50E64E3F1D1FD7C2F964A69DCFB7EBFBF6A3D46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +287,8 @@ magnet:?xt=urn:btih:E50E64E3F1D1FD7C2F964A69DCFB7EBFBF6A3D46
 ```bash
 magnet:?xt=urn:btih:DC25C5B56CDB1C9684A513BBAAB4CD4FAA0750C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +314,8 @@ magnet:?xt=urn:btih:DC25C5B56CDB1C9684A513BBAAB4CD4FAA0750C9
 magnet:?xt=urn:btih:3E45A3AFCDDB58C95AAD257674C1FBDC55B00836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +339,8 @@ magnet:?xt=urn:btih:3E45A3AFCDDB58C95AAD257674C1FBDC55B00836
 ```bash
 magnet:?xt=urn:btih:98ED9A6D756C08779DFA8F3A5BAE0633D37C4DB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +367,8 @@ magnet:?xt=urn:btih:98ED9A6D756C08779DFA8F3A5BAE0633D37C4DB5
 magnet:?xt=urn:btih:02140568E15A51A8CDC2EB83BA6E45F2C0398E36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +392,8 @@ magnet:?xt=urn:btih:02140568E15A51A8CDC2EB83BA6E45F2C0398E36
 ```bash
 magnet:?xt=urn:btih:00952FFA9A340099C3E92E8BE4727F972EAB8106
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +420,8 @@ magnet:?xt=urn:btih:00952FFA9A340099C3E92E8BE4727F972EAB8106
 magnet:?xt=urn:btih:1D7C0A443C00E1418509771A26A0CF3F90CDC098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +446,8 @@ magnet:?xt=urn:btih:1D7C0A443C00E1418509771A26A0CF3F90CDC098
 ```bash
 magnet:?xt=urn:btih:B06C60ECDF8B0779A44E9AB52EC5BC61BA72968F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +476,8 @@ magnet:?xt=urn:btih:B06C60ECDF8B0779A44E9AB52EC5BC61BA72968F
 magnet:?xt=urn:btih:818EFD9389423404740732DA0F9AF9D6C234DAB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +504,8 @@ magnet:?xt=urn:btih:818EFD9389423404740732DA0F9AF9D6C234DAB1
 magnet:?xt=urn:btih:E2852908D90DDCFFDDD41BBDB386BD2F2BF9C7F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +530,8 @@ magnet:?xt=urn:btih:E2852908D90DDCFFDDD41BBDB386BD2F2BF9C7F8
 magnet:?xt=urn:btih:2F9C9CD4FE10386745B2D21AF205F70B61741DF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +555,8 @@ magnet:?xt=urn:btih:2F9C9CD4FE10386745B2D21AF205F70B61741DF6
 ```bash
 magnet:?xt=urn:btih:6867A7DFE6C9ECFE42059627BD08873B16D7DAE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +584,8 @@ magnet:?xt=urn:btih:6867A7DFE6C9ECFE42059627BD08873B16D7DAE9
 magnet:?xt=urn:btih:24466739B60A8BDB28E5551DB74905AD1A52A4B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +609,8 @@ magnet:?xt=urn:btih:24466739B60A8BDB28E5551DB74905AD1A52A4B6
 ```bash
 magnet:?xt=urn:btih:5AA4A0C14402D50286B7480B6C58C89A31FD97B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +636,8 @@ magnet:?xt=urn:btih:5AA4A0C14402D50286B7480B6C58C89A31FD97B6
 magnet:?xt=urn:btih:24FEDCE15FBC06E7F50482E8FD90FE7A76D25431
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +661,8 @@ Storytelling буквально переводится с английского
 ```bash
 magnet:?xt=urn:btih:6AC33D6237E2E06D718BE6E75689E269A1A2DD3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,31 +688,7 @@ magnet:?xt=urn:btih:6AC33D6237E2E06D718BE6E75689E269A1A2DD3C
 magnet:?xt=urn:btih:202C85E49EC75A45F4ECC6CEA3172DC132DBEAC4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292972   (637573) от 03.04.2019
-
-О.Л. Есаянц (сост.) | О крестном знамении (2016) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_637573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящая брошюра рассказывает о сути, силе и значении крестного знамения для каждого православного христианина. Отдельное место в издании уделено формам крестного знамения в истории Церкви, а также правилам и порядку наложения крестного знамения во время разных богослужений в храме и во внебогослужебное время.
-
-Издание рассчитано на широкий круг православных читателей. (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB7D38971A8EC24A8D685680BB8BBEB028AE2E79
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

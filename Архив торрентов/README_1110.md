@@ -20,6 +20,8 @@ SYNTHEVER - 3 Releases (2018) [MP3|320 Kbps] <Spacesynth, Synthpop>
 magnet:?xt=urn:btih:B5D7BCD05128E87BC835AA610A1DFDEA6136CC4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Boilsoft Video Joiner - замечательный инструмент для �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Focus Matrix Pro 1.3.3 [En]
 magnet:?xt=urn:btih:26C4828C428BCDF7745106A4E6C2BF62BC8AE337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Call of Juarez The Gunslinger перенесет вас на просторы л
 ```bash
 magnet:?xt=urn:btih:77F8522EEA3184FF94675CBD4C579E8DF645C9B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ ON1 Photo RAW включает в себя ключевые обновления
 magnet:?xt=urn:btih:7EC71208F0ADBFD6B43EFF082E9F028E61AA7D6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Allavsoft Video Downloader Converter - профессиональный инст
 ```bash
 magnet:?xt=urn:btih:CCE369EA02F2A8EF1DE6AA8F7537A787FE689A55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ DJ Kevlar - Mics Out: The Best Raps of 2019 [FLAC|Lossless|Web-DL|tracks] <Hip-H
 magnet:?xt=urn:btih:02B00BB8070677DD85B9E1B9FAB4E057E2504032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:02B00BB8070677DD85B9E1B9FAB4E057E2504032
 magnet:?xt=urn:btih:55671A919E69FDE132F48DE85D160E99EC713083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:55671A919E69FDE132F48DE85D160E99EC713083
 ```bash
 magnet:?xt=urn:btih:CA2438EB1A6FE0B36124BB790556736BBAA44409
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Marlowe (L'Orange & Solemn Brigham) - Marlowe (2018) [FLAC|Lossless|Web-DL|track
 magnet:?xt=urn:btih:E1F484925FFEB14C44E0BF4F219BAA1B40618076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ PeakHour идеально подходит для мониторинга ваш�
 magnet:?xt=urn:btih:33795B6EFCED7C3261479C2D886653A285523B3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ RX уже давно является популярным пакетом для
 magnet:?xt=urn:btih:59B60BF4414A04BF6BB3ADC1D2666998B73B4F35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:59B60BF4414A04BF6BB3ADC1D2666998B73B4F35
 magnet:?xt=urn:btih:CCB6068D52893C7AD60FF54D5A7665F71B15A130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ AweEraser - это безопасный «ластик» данных Mac. Он 
 ```bash
 magnet:?xt=urn:btih:2B8DE25DD3795DAC3768374CF5C033339146920E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Sublime Text не является свободным или открытым п
 magnet:?xt=urn:btih:D7A7B16F5F4B7A57FDF5E989C7CEA55200431711
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:D7A7B16F5F4B7A57FDF5E989C7CEA55200431711
 ```bash
 magnet:?xt=urn:btih:CB22947833639418E945E23424B4D787F597EFD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:CB22947833639418E945E23424B4D787F597EFD3
 magnet:?xt=urn:btih:297455676240D863CB716D146EF26D962A656F86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Wattagio информирует вас о текущем состоянии ба
 ```bash
 magnet:?xt=urn:btih:5B782488F0D607D6ED025063EF9B7D97453D97FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Postbox является почтовым клиентом, в основу со
 magnet:?xt=urn:btih:B30CC83D4D78E990AF72E01124C82A3F5EF1973B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Scanitto Pro - это легкое, быстрое и не перегружен�
 ```bash
 magnet:?xt=urn:btih:56423FA24E4A9A537C5C56A806754521139D3C9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ Davante Bell, Аллена Кейси, Доминик Конти, Corey Deshon, 
 magnet:?xt=urn:btih:329D7D549C784388B088B386288DB2AB18241C2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ Animals as Leaders - The Madness of Many (2016) [FLAC|Lossless|image + .cue] <In
 magnet:?xt=urn:btih:2EBDE23E5DEB92F02B84AEA4EDD2096F2F1B789C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:2EBDE23E5DEB92F02B84AEA4EDD2096F2F1B789C
 magnet:?xt=urn:btih:B1D3BAF8BD90C44E910C5849513DA4DF7803EF01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ Aiseesoft Screen Recorder 2.9.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6D6D33E8681F9E69E53F43F9754DE6C409907F68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:6D6D33E8681F9E69E53F43F9754DE6C409907F68
 magnet:?xt=urn:btih:9B24072C6FED05078F5D184BBD701088088CDF65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ GOM Player - мультимедийный плеер для систем Windows
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:31B513A4FF419272525E0402C36A0B42F457823D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Gumroad, Jorge Barrero | Storyboarding in Blender 2.9 (2021) PCRec [EN]
 magnet:?xt=urn:btih:EFC5556A0CB0E4588EE3DB9352317208EF06EFB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:EFC5556A0CB0E4588EE3DB9352317208EF06EFB8
 ```bash
 magnet:?xt=urn:btih:668E7AC8CA0A89C0D640A54883C787E0DBC6FD83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ IAMAG Master Classes, Jorge Barrero | Creating Cinematic Frames (2020) PCRec [EN
 magnet:?xt=urn:btih:D7BE29F019D358DF2681CD58B049A1889F4E6250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:D7BE29F019D358DF2681CD58B049A1889F4E6250
 ```bash
 magnet:?xt=urn:btih:B778D5BABF175DD0D88DB80C787B266D0A18A9E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Allan McKay | FX Technical Director Transformation Module 14 (2015) PCRec
 magnet:?xt=urn:btih:A3FB45CF66E7E9D44D03FA2824FE5B1F727220FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Allan McKay | FX Technical Director Transformation Module 13 (2015) PCRec
 magnet:?xt=urn:btih:67305F3F5CD4FF01AF490B697AE49F91D7C5B133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Golang создавался для внутренних нужд Google, а се
 ```bash
 magnet:?xt=urn:btih:C448193128B6ECC5717823E809971899433E7DCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Vlad Palagin | Palagin on the course (2022) WEB-DL [Тариф "Proдвинут�
 magnet:?xt=urn:btih:7882F757A53102D40274625C6465DA45542EC1C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:7882F757A53102D40274625C6465DA45542EC1C0
 magnet:?xt=urn:btih:13AD644CE29BAC070B9F1D797910A1C457694CCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:13AD644CE29BAC070B9F1D797910A1C457694CCE
 ```bash
 magnet:?xt=urn:btih:2DD3EFF75CBC8B34929635A624B70953A1D4CC9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:2DD3EFF75CBC8B34929635A624B70953A1D4CC9A
 magnet:?xt=urn:btih:BE6F5338151CCBC76B560ADF75BB0DAB0E585D21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ OTUS | Product Manager IT-проектов (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:2AF1F18FB83F63806A648AE8F5274B6DCE21B61F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ OTUS | Архитектура и шаблоны проектирования [Ч
 ```bash
 magnet:?xt=urn:btih:CDD86D0AD55306AF9DEE14A7562A977F8F5C151F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ OTUS | React.js разработчик (2020) PCRec
 magnet:?xt=urn:btih:E38E1F6678B312248512EC314EBDA847EDC87F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:E38E1F6678B312248512EC314EBDA847EDC87F1A
 magnet:?xt=urn:btih:CC633991724D41151642E9E762D30CA9A37389B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ Python и PostgreSQL являются двумя наиболее востреб
 ```bash
 magnet:?xt=urn:btih:C91567014C24F0FD0BD6DCA2FDD358E7A22E648A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ magnet:?xt=urn:btih:C91567014C24F0FD0BD6DCA2FDD358E7A22E648A
 magnet:?xt=urn:btih:6AA7B358518F68A9C4017E339BFB6A281CC4CB5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ Docker - это инструмент, позволяющий пользоват�
 magnet:?xt=urn:btih:31EDB0B31114E43A81E491267E9E5104849F9E09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ Udemy, Dzianis Matveyenka | JDBC (2022) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:4EBD6DCD5B0E93DF246E8D0C81EF599A5DE10C99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ kts.studio, Александр Опрышко | Асинхронное прог�
 magnet:?xt=urn:btih:45A0D2BDA11ABC8FD4DB6B57F86C646BA23990FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:45A0D2BDA11ABC8FD4DB6B57F86C646BA23990FF
 ```bash
 magnet:?xt=urn:btih:18FC390852E578427CC61DB9CA5BB15706B0D62A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:18FC390852E578427CC61DB9CA5BB15706B0D62A
 magnet:?xt=urn:btih:3BEAF26803BBCAF4CCA63B7D2EB375E66BCF7B09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ Levelup.Digital, Pauline Boiteux | Advanced Pattern & Fabric Creation in Substan
 magnet:?xt=urn:btih:7599D40FCB14A33106356F5F92FCF14D648684C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ Udemy, Too Much Sugar Productions, Emilio Padulo | The Psychology of Color in Ga
 ```bash
 magnet:?xt=urn:btih:8F0D36241264ABDDF2E51850AF770A118266B0F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +705,8 @@ magnet:?xt=urn:btih:8F0D36241264ABDDF2E51850AF770A118266B0F5
 ```bash
 magnet:?xt=urn:btih:C8C0148525A41DAE7D8C84E50214B1A44E75776A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

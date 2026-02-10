@@ -19,6 +19,8 @@ Spy x Family | Семья шпиона [2022, TV, 25 эп.] WEBRip 720p raw
 magnet:?xt=urn:btih:F39007FDBF29A7762245701599225150468E69C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:F39007FDBF29A7762245701599225150468E69C1
 ```bash
 magnet:?xt=urn:btih:0A0B96B1CAADCB56013A1A0450E13B750E482D7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Akiba Maid Sensou / Akiba Maid War / Война горничных Акибы [2
 magnet:?xt=urn:btih:B7F3B8CBCFF119002D40018BA8EE4DA8C9D991BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:CE761E07048EC621AA4B63ED374C186784460FCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ IXION (2022) [Ru/Multi] (1.0.2.3) Repack Other s
 magnet:?xt=urn:btih:2C111E74F49A4E03ED6547EB0D0472F581873028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:2C111E74F49A4E03ED6547EB0D0472F581873028
 ```bash
 magnet:?xt=urn:btih:5594B37B02829414B30B73EDA67F94DA15D10CEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:5594B37B02829414B30B73EDA67F94DA15D10CEC
 magnet:?xt=urn:btih:5A89781616028C2C5D5D0816AF8D8955B8200C63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:5A89781616028C2C5D5D0816AF8D8955B8200C63
 ```bash
 magnet:?xt=urn:btih:C1B153E85E538C3A9A8136CBFBFEA5939EDC751D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Discovery. Как устроена Вселенная / How the Universe Works (
 magnet:?xt=urn:btih:8DB956EAD683F565710A87EC67B0275311037CA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:8DB956EAD683F565710A87EC67B0275311037CA9
 ```bash
 magnet:?xt=urn:btih:E5A23065B446E1FC3CFFB46632CF0FA9737426A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:E5A23065B446E1FC3CFFB46632CF0FA9737426A2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:E5A23065B446E1FC3CFFB46632CF0FA9737426A2
 ```bash
 magnet:?xt=urn:btih:B609E5FB3110D0BB08B95ECF4F2EC50C625CC475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:B609E5FB3110D0BB08B95ECF4F2EC50C625CC475
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:B609E5FB3110D0BB08B95ECF4F2EC50C625CC475
 ```bash
 magnet:?xt=urn:btih:48303D712C5273B6FC7DE6D7A2DE6D9CB5A00692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Tropico 6 (2019) [Ru/En] (1.11/dlc) Repack xatab [El Prez Edition]
 magnet:?xt=urn:btih:38039ECD26EEA5D2B9030A8849142F5E299B79F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:38039ECD26EEA5D2B9030A8849142F5E299B79F7
 ```bash
 magnet:?xt=urn:btih:271FB9927BB7F0C63223C494D71AC5E6491D4B42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Call Recorder - SKVALEX предназначен для автоматическ
 magnet:?xt=urn:btih:2DF1829A31EF0D4670474633248B0C2401FB6443
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:CACD05F4619AD08F2B394ABEE5DDDDB73DBD0989
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ b_igor1-1(   Читать дальше...   )
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ b_igor1-1(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:76890098A1CAD0A02A3711E952960637ACCFAB62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:76890098A1CAD0A02A3711E952960637ACCFAB62
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Ballance / Баланс (2004) [Ru] (1.0) License
 ```bash
 magnet:?xt=urn:btih:DF23F221699BD257D9E77826AE40434EB1753D52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:DF23F221699BD257D9E77826AE40434EB1753D52
 magnet:?xt=urn:btih:586725FFD387D6FA9F141B2D811BD34ED97A88D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:586725FFD387D6FA9F141B2D811BD34ED97A88D0
 ```bash
 magnet:?xt=urn:btih:BBFCFA6797BE1933527B4C8952156B4F5C45E3FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:BBFCFA6797BE1933527B4C8952156B4F5C45E3FA
 magnet:?xt=urn:btih:F39A3FDC6F507229BC14BEF0EEAB3FF78544125C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:F39A3FDC6F507229BC14BEF0EEAB3FF78544125C
 ```bash
 magnet:?xt=urn:btih:FA561CCB20F6B08D3ADEB2692F60D26A7FBA0C68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ SnapEdit — одно из лучших приложений для редакт
 magnet:?xt=urn:btih:02C82E1DDC1D63A2CBA86C74A19A71C723650B5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ AirBrush: ИИ Фоторедактор v7.22.0 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:69AFE3C7B991F60AF61D7AA5B33ECC3B12DEF90F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:69AFE3C7B991F60AF61D7AA5B33ECC3B12DEF90F
 magnet:?xt=urn:btih:9F78E79234E218F14D313F7C9403D45623526361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:6A2C804C5C04FAAEB09A434A8426F727E7BB2C95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Remini / Улучшение Фото v3.7.1213.202518225 Mod by Mixroot [Ru/Mult
 magnet:?xt=urn:btih:C1ADBEE90322F937A65D24BD1ECF86BEAF86D0C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Listen Audiobook Player v5.4.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CBEC2EDC53EC17ADD276E26EA1D3EA1594E94C2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:CBEC2EDC53EC17ADD276E26EA1D3EA1594E94C2D
 magnet:?xt=urn:btih:55348FC4F5C78A6BA241748D231A1600C9F33C4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:55348FC4F5C78A6BA241748D231A1600C9F33C4A
 ```bash
 magnet:?xt=urn:btih:2F2C1443693AB9A54CFC8CE2A2E8CA84BAA42184
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Moon+reader относится к категории универсальных 
 magnet:?xt=urn:btih:0D2A77DA7BF37C6F83379E71A4B53BD658F7EF4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ MobiOffice - это полнофункциональный офисный пак
 ```bash
 magnet:?xt=urn:btih:1284A7FAB8F1B54AB13A48C0F740D7257232B42E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v16.5.6 Mod b
 magnet:?xt=urn:btih:B298667CB340ADB4A709E5CC4C255EDFC54A8E71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Universal Copy — это самый быстрый способ копиров�
 ```bash
 magnet:?xt=urn:btih:3B188F6C65922957C4499DD7902FA758CBC8143E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ HiPER Calc Pro v11.2.9 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:0E58DC303CA995CBF00EBC81079DF41A35A42662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:0E58DC303CA995CBF00EBC81079DF41A35A42662
 ```bash
 magnet:?xt=urn:btih:93C8BDA299E8EDB1501088C170263F8E33421919
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Photo Editor - уникальная программа для обработки
 magnet:?xt=urn:btih:60F6CB32AB83E0889E86B080BB97DDB483B2CF34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:CC7390CBBA47B0869D83C2DE7A357A8E0CE4F7F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Universal Copy — это самый быстрый способ копиров�
 magnet:?xt=urn:btih:68AF6A00FEA91722835CE4C25165C0579F3A5A4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:68AF6A00FEA91722835CE4C25165C0579F3A5A4E
 ```bash
 magnet:?xt=urn:btih:739288694D7C7466EB3AF6B05D0FE7E6B92E835A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:DBFFC7EB48BB08A0130E2F58089E9609D1C39698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:4F41CFDF9AD39EB940CF69645A0164E4347AD947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:DDA0542C14AE26BA6626A66BCAEF958F465D64AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ magnet:?xt=urn:btih:DDA0542C14AE26BA6626A66BCAEF958F465D64AF
 ```bash
 magnet:?xt=urn:btih:950420F12BCF78C1FE8065099145DE6C3E0B09B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Sketchbook — это то, что вам нужно, — от быстрых э
 magnet:?xt=urn:btih:F1C927524CDFA95891EA9947025EF2823C825FE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Universal Copy — это самый быстрый способ копиров�
 ```bash
 magnet:?xt=urn:btih:A0B67D2E0A314D0CD744424E01CBC374BAD53786
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Mi Home - это приложение для управления умным д�
 magnet:?xt=urn:btih:2B426ACB32F73D5C29C4200C0747D6E9021492BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:8BFC86CD50CD9CBC5D760E623F07C1264BD6589D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

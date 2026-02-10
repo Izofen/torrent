@@ -1,27 +1,3 @@
-###  Публикация: 1197527   (815007) от 07.01.2018
-
-Dungeon Defenders (2011) [Multi] (8.3/dlc) License PLAZA [Collection Edition]
-
->>Win Игры
->>RPG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_815007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Является смесью двух популярных жанров: экшен-РПГ и Tower Defense. В игре вы выступите в роли одного из четырех героев, чье призвание - защитить свой замок от орд противников. Однако вам предстоит не только расставлять защитные сооружения и ловушки, но и непосредственно принимать участие в боях. Также вы будете повышать характеристики персонажа, собирать различный (   Читать дальше...   )Тип издания: LicenseРазработчик: Trendy EntertainmentЖанр: RPG, Action, 3DЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6337B80B82459736F9E9A681D6AAF2C148288257
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473118   (815237) от 21.10.2021
 
 Nanotale - Typing Chronicles (2021) [Ru/Multi] (1.95) License GOG
@@ -42,6 +18,8 @@ Nanotale - Typing Chronicles (2021) [Ru/Multi] (1.95) License GOG
 ```bash
 magnet:?xt=urn:btih:0D1B0EEDE5F6CBBCCB10597D758B5EBAEA1A2B3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Dice Legacy (2021) [Ru/Multi] (1.2.5) License GOG
 magnet:?xt=urn:btih:DD8A6A19946D56C9DFE2124C288CC87714054093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ NieR Replicant ver.1.22474487139... (2021) [Multi] (7396468) License CODEX
 ```bash
 magnet:?xt=urn:btih:16F58A0DB0DEA001BB772EB66D92A91413C6CDE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Monster Train (2020) [Ru/Multi] (12921/dlc) License GOG
 magnet:?xt=urn:btih:697EED3EC504947F48C81EC6B84BCA557D31ED82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Into the Pit (2021) [Multi] (368) License GOG
 ```bash
 magnet:?xt=urn:btih:0BCB404ACCEC33DC7BB325643EC8AE31A63FC61E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Myths of the World 13: Behind the Veil / Мифы народов мира 13: З
 magnet:?xt=urn:btih:69EE7C35BE8B5E320E462A58365B7FCC299A14FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Darkheart: Flight of the Harpies / Темное Сердце: Полет гар�
 ```bash
 magnet:?xt=urn:btih:4E865230B4A124A56E06B34AF67340709AE15564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Jars (2021) [Ru/Multi] (1.0.1018) License GOG
 magnet:?xt=urn:btih:E2B623A3CBE7A404E4D653F4EACE82E62083A48F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ Legends of Dawn – ролевая инди-игра, действие кото�
 magnet:?xt=urn:btih:263C3E912A0CEDE7F256760C0A690C34947D5615
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +252,8 @@ Real Boxing дарит тебе самый восхитительный, бес�
 ```bash
 magnet:?xt=urn:btih:1884548F932A2A3895E431902A9BC3BD9371C6F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +281,8 @@ Game of Thrones: A Telltale Games Series – эпизодическая игра
 magnet:?xt=urn:btih:D4782B4C07A62FD2FA12100CE9B79C0E04493213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +306,8 @@ F1 Race Stars (2012) [Ru/Multi] (1.1/13dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:F660D08A41E99A0154A34C8F8645FCCCD524BBAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +333,8 @@ MewnBase (2017) [Ru/En] (0.34.1) Repack VseTop
 magnet:?xt=urn:btih:FB53207CE0FDBB4F36E3F602BFF5723CB4CC126C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +358,8 @@ Wolfenstein: The Old Blood – предыстория игры Wolfenstein: The 
 ```bash
 magnet:?xt=urn:btih:8E7B67EB9B878DE558E0181C34B14788D36CA80F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +385,8 @@ Dragon's Dogma: Dark Arisen (2016) [Ru/En] (1.0.0.18) Repack xatab (обновл
 magnet:?xt=urn:btih:184AEF1679B4E9D1FE168DFAF453841BA6CFF640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +410,8 @@ VODKA (2017) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:71773AD97A742366D72C6CAAEBB199485B5B7B07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +437,8 @@ Driver: San Francisco (2011) [Ru/En] (1.04) Rip xatab
 magnet:?xt=urn:btih:A4346D6B45667AB0ECD74D89B85437B440232CC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +462,8 @@ Persian Nights 2: The Moonlight Veil (2020) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:41E0BEB51774F28F168F8C8EC3338FF55807BE2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +489,8 @@ Impostor Factory (2021) [Ru/Multi] (1.0) License GOG [The Screw-It-Just-Gimme-Ev
 magnet:?xt=urn:btih:3DE6E2BDA2290C9483571F840A9DFAEAB7E03D76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +514,8 @@ White Night- приключенческий хоррор от бывших ра�
 ```bash
 magnet:?xt=urn:btih:BF38FB4F71421E26EA3513CDB970E7E7269EECF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +541,8 @@ Blades Of Time (2012) [Ru/Multi] (1.6/dlc) SteamRip Let'sPlay [Limited Edition]
 magnet:?xt=urn:btih:2D2DA787BF55DF077E635C2E47063356B1ED3F36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +566,8 @@ Oceanhorn: Monster of Uncharted Seas (2015) [Ru/Multi] (3.4.51.419) License GOG
 ```bash
 magnet:?xt=urn:btih:E13ED7A918D1C208515CB5CA86C253EE19FF21A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +593,8 @@ Owlboy - это аркадная приключенческая игра, где
 magnet:?xt=urn:btih:70D2A62A33169307806DCAA1AD0DC9D1B08D8424
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +619,8 @@ White Noise 2 (2017) [Ru/Multi] (1.0/upd46/dlc) License PLAZA [Complete Edition]
 magnet:?xt=urn:btih:417B5E21145240588FBEE2649FB83736841B4ABD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +644,34 @@ Grim Tales 18: The Generous Gift / Страшные сказки 18: Щедры�
 ```bash
 magnet:?xt=urn:btih:E3A1FEA53B9C62A34EE726E1C005DE5E420E1DF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007946   (818716) от 16.04.2016
+
+Worst Case Z (2016) [En/De] (1.0) License CODE
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_818716.jpg" />
+</div>
+
+
+###  Подробнее
+
+Видео игра Worst Case Z на компьютер - это новый экшен с элементaми horror и неплохой грaфикой с видом от первого лицa. Игроков ждет множество мрачных и пугающих локaций, страшных монстров, но от этого играть хочется только больше! Игрокам предстоит взять на себя роль работника, который трудится нa aтомной электростaнции. Все кaк всегдa, как ему казалось, очередная (   Читать дальше...   )Тип издания: LicenseРазработчик: BME Digital StudiosЖанр: Action, horrorЯзык озвучки: Английский, НемецкийЯзык субтитров: Английский, НемецкийЯзык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F6D822189CD120B931D1357153795BF76925AF
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

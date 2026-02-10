@@ -19,6 +19,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 magnet:?xt=urn:btih:DC405BCF88FD29E328982A96A01BB44AA1AD5515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ R-Drive Image — является эффективной утилитой дл�
 ```bash
 magnet:?xt=urn:btih:BB46687805408AB7D65AC9B4A9C6A91D1C946280
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ O&O Defrag – инструмент дефрагментации дисков, �
 magnet:?xt=urn:btih:A3E2A762B1A658DE0958F61A9306A4984A2EE697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:F329F220106DB31A32F0A7A93A23DCC5E7DE61B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:F329F220106DB31A32F0A7A93A23DCC5E7DE61B9
 magnet:?xt=urn:btih:D015A5CCB20DF90C798B355E24A7698740B51BF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ WindowManager - программа от разработчиков EarthView и 
 ```bash
 magnet:?xt=urn:btih:546F898F19C35742243993D577C983F421A22A82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ NirLauncher Package - универсальный пакет из более че
 magnet:?xt=urn:btih:4E54FCF10DF88F3D4F2197293B36C28BAA865F31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ AnyDesk 9.6.3 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2C4CE550B3839ACB13A7637E4EC9D05096004128
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ RedCrab Calculator 8.3.1 Portable [Multi]
 magnet:?xt=urn:btih:D6541D2B76F08FD7E525C7F1106B93470AD6203B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ ScreenPic - это самый простой и легкий способ дел
 ```bash
 magnet:?xt=urn:btih:EAE45C529C3FFD1E5AF09D01123C1685AFED8518
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Deluge - полнофункциональный кросс-платформен�
 magnet:?xt=urn:btih:727C9753605D8DCCBD9376BDC315874D92CFC482
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:727C9753605D8DCCBD9376BDC315874D92CFC482
 ```bash
 magnet:?xt=urn:btih:5C0BB8ADDDFF565C48392C06193035C674ED93E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:20B78D554D560451DF0026EA39F33122562B275A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:D25B8543AFC0A579428917E50C3964B55AEE7EBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ ABBYY Screenshot Reader — простая и удобная программа 
 magnet:?xt=urn:btih:698A21F0AA2EC5E9F8E4D3113D8A72C80BE3841F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Floorp Browser – это модифицированная версия Firefox,
 ```bash
 magnet:?xt=urn:btih:00C4F3999DAB08047FF9A2D4CF79EB5624865DA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:00C4F3999DAB08047FF9A2D4CF79EB5624865DA9
 magnet:?xt=urn:btih:1B1A087C32DB3352F9C870A7D07055A52A6DB26A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Hetman Partition Recovery - программа восстанавливает д
 ```bash
 magnet:?xt=urn:btih:76F681B53B23E1158F7F9A25130360AFBEFEE849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Screen Translator - экранный переводчик который поз�
 magnet:?xt=urn:btih:81CC58CE601658F9A742E3CF2925DF97F7FCF405
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Scrivener — мощный текстовый редактор для тех, к
 ```bash
 magnet:?xt=urn:btih:81D7EFDA6451062D155379CAEC8D0A1AE299A704
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Nekonverter — это конвертер величин для Windows, поз�
 magnet:?xt=urn:btih:C850FCD212B50A0B3E5C01BB0B29C438A9173AC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ GenoPro используется генеалогами, врачами, (   Ч
 magnet:?xt=urn:btih:7F9343092B9BC42AC8B600047D548174BD40176C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Total Uninstall - утилита, предназначенная для корр
 magnet:?xt=urn:btih:C514D7FD74B5CFE65F828A17A2013B32B2BAD731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ Total Uninstall - утилита, предназначенная для корр
 ```bash
 magnet:?xt=urn:btih:2FB9DBC97CCDE2E103651C47FA2F9F54BB2D6EDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ WinExt - это набор бесплатных утилит для Windows. С 
 magnet:?xt=urn:btih:21A8AEEBD5D86D34D90BE23ADD8806900B88E260
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ USB Oblivion 1.17.0.0 Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:9941EF2CFA2AA61C72C08632B04FB5975AC4BDFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

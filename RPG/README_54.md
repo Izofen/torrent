@@ -19,6 +19,8 @@ Revenant (1999) [En/Fr] (1.22L) License GOG
 magnet:?xt=urn:btih:A692BFD35ED4242AFD3AE99D9B194A75D82C9D8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Shadows: Awakening — это продолжение знаменитой сер
 ```bash
 magnet:?xt=urn:btih:50D02B304AEABCDCC5CF3C6A95A969A7DA591EBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Expeditions: Viking (2017) [Ru/Multi] (1.0.7.1/dlc) Repack Other s
 magnet:?xt=urn:btih:C474D8CF4471494B74259155354A9364917FAC32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Ashen – экшен-РПГ с открытым миром, что расска�
 ```bash
 magnet:?xt=urn:btih:A8C830516FC4EE5283285A04385FD76562D62550
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ God Eater: Resurrection (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst
 magnet:?xt=urn:btih:7F84D4EFD9954CAC12BC06A6E9B6E28602F84144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Dragon Fin Soup совмещает несколько жанров в одной
 ```bash
 magnet:?xt=urn:btih:805C30BD8C45A2AB8210517935D80EEC58719D3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Veil of Crows – крутая стратегия по совместитель�
 magnet:?xt=urn:btih:E4C938FCC1748B046E37C540265EE7B7548E22D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Gauntlet (2014) [Ru/En] (2.2/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:FC1B20AFE68AEA90CF1873ACA6962E7CC467BD62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Nights of Azure 2: Bride of the New Moon (2017) [En/Ja/Ch] (1.0) License CODEX
 magnet:?xt=urn:btih:2D17DE01062DD554308ED2B463D7C93224FECEC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ WARSAW – это увлекательная тактическая RPG на у�
 ```bash
 magnet:?xt=urn:btih:0CA5D062C31BE09B55B393D6345C29523D400A2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Disciples: Liberation - это история в жанре «тёмное фэ�
 magnet:?xt=urn:btih:EEE3D9059C183380423B61EE8DDF5C7AAF02CD22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Fall: Last Days of Gaia / The Fall: Последние дни мира [Ru] 
 ```bash
 magnet:?xt=urn:btih:68F4F928253B8C196419D4C3A0C2628AEDAA2F53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Final Fantasy VII – это культовая jRPG, первая игра из
 magnet:?xt=urn:btih:8D7957208885C1ACE0EC59AB6D43FB149D5D0EFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Wasteland Remastered (2020) [Ru/Multi] (1.24) License GOG (обновляема�
 ```bash
 magnet:?xt=urn:btih:A6E0786550FC1B95B0E9D2F0250B35274F6C266C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Anachronox (2000) [Ru/En] (1.0) Repack R.G. Catalyst
 magnet:?xt=urn:btih:3C3CD8FE9597A24B828FC82C48CA9495723436F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Marvel’s Avengers (2020) [Ru/Multi] (1.3) License CPY
 ```bash
 magnet:?xt=urn:btih:A4051EBF6DEF5FFFB801E59C37725357D39B2C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Dark Souls: Remastered (2018) [Ru/Multi] (1.0.3/Reg 1.04) License CODEX
 magnet:?xt=urn:btih:B6C1604EB84AA4702D01C6EBA39703E2EC20ADA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Sword Art Online Re: Hollow Fragment — ролевая игра с элемен
 ```bash
 magnet:?xt=urn:btih:F968D9DF820438B3999AFE61A6081B49C5660A7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Pool of Radiance: Ruins of Myth Drannor - современная реинкар�
 magnet:?xt=urn:btih:F19B232874C582EB39F196C6A9394404A55861A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Final Fantasy IV (2014) - ремейк культовой игры 1991 года
 ```bash
 magnet:?xt=urn:btih:0A7ED3BA94D229EFA88A9D69FF0D32AF0059C3C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Book of Demons — это гибрид Hack & slash и карточной игр
 magnet:?xt=urn:btih:B39A848A23C5C52E7CF268718A0FE8080B17379E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ RESONANCE OF FATE / END OF ETERNITY (2018) [Multi] (1.0) License CODEX [4K / HD 
 ```bash
 magnet:?xt=urn:btih:9C86D2BE58D5109F4F54F209EAB0FE506A1F64CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ BloodLust Shadowhunter - это ролевой dungeon crawler, в которо�
 magnet:?xt=urn:btih:CD30A4DB6785E32A04E4116CCD995935C625748C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Blade & Sword 2 [Ru] (RePack) 2005 l IGALLARDOI
 ```bash
 magnet:?xt=urn:btih:D744F1A1E145D362FF2D5E0492D519332354075A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Ikenfell (2020) [En] (1.0.1) License GOG
 magnet:?xt=urn:btih:C240E4C117DE1176EFB61C9D3957D26F2DA81E8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Stygian: Reign of the Old Ones (2019) [Ru/Multi] (1.0) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:057061D96F0737A23BF9BD313C07D457BE49CFC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

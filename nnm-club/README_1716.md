@@ -19,6 +19,8 @@ People Playground – инди-игра, своеобразный симулят
 magnet:?xt=urn:btih:9C3AF24F7C35B6F03AE52DF38CE591EA0A88EA35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:9C3AF24F7C35B6F03AE52DF38CE591EA0A88EA35
 ```bash
 magnet:?xt=urn:btih:47F7AD2432DD59BED7C817B2DF2CA00AC6F39FC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Vesperfin, Арина Веспер и др. | Личные финансы (2021)
 magnet:?xt=urn:btih:EDE30F4503FDB29FC21495134369024C5DD11B24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ OceanXplorers приглашает зрителей на борт передов
 magnet:?xt=urn:btih:9123CC46417AF2A5D7A6E579BDA947FD2B20E741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:9123CC46417AF2A5D7A6E579BDA947FD2B20E741
 ```bash
 magnet:?xt=urn:btih:5F884EEC118D9DD3F465F9A89C7FE2D18A9B393B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ VA - TOP Non-Stop 2010-2019 - Deep House. Volume 7 (2024) [MP3|192-320 Kbps] <De
 magnet:?xt=urn:btih:65B9586E31AC98A668547DB88993A3482D4910FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:65B9586E31AC98A668547DB88993A3482D4910FF
 ```bash
 magnet:?xt=urn:btih:2FCE44EC41AB7D6989C21F17A8B8A6DDA21BA16B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:2FCE44EC41AB7D6989C21F17A8B8A6DDA21BA16B
 magnet:?xt=urn:btih:5F874A581E923A5B328A2BC4BFA4D8E99B777795
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:B7D57CF58B669877A2F5DB7D99B6BF34B8B179C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ HomeBank можно настраивать полностью под себя, �
 magnet:?xt=urn:btih:4B251982BB0A4701A11CB8933ECCD68746EE0F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:4B251982BB0A4701A11CB8933ECCD68746EE0F10
 ```bash
 magnet:?xt=urn:btih:6911DED51CF472A160B48954238A6FFC212D606C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Bryan Adams - War Machine (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:C09C89B91587C2DC94FD56895C20067A93B5AE0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:C09C89B91587C2DC94FD56895C20067A93B5AE0A
 magnet:?xt=urn:btih:B6C36A6FB5C89B3B16CB75D2915EC43A860FEDD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:B6C36A6FB5C89B3B16CB75D2915EC43A860FEDD6
 ```bash
 magnet:?xt=urn:btih:019E970E179C01FAC84C83BDBC9B776A2151EA43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ MediaHuman YouTube to MP3 Converter 3.9.9.95 (3008) RePack (& Portable) by elchu
 magnet:?xt=urn:btih:19717C0C8F6C82732A35C13922F2D9836A663DF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ UltraSearch Professional находит файлы и папки на локал
 ```bash
 magnet:?xt=urn:btih:DDFB01597F7FF551E76575D302D69A5619681C4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:671DD295EB85641957CD1C84D867523A2DA93D91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:671DD295EB85641957CD1C84D867523A2DA93D91
 ```bash
 magnet:?xt=urn:btih:F51AD438F7D76E0C0CC37E2883B51B4AA812989B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:F51AD438F7D76E0C0CC37E2883B51B4AA812989B
 magnet:?xt=urn:btih:F0C3912936ADB18C4ABF41341DD77A20F8BCCE93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:EF3ADDF5830249A377922B78777D78FE08FA4D2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ Draw.io 24.7.8 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:442A4DC41883360CB2E614274166B1680D89E165
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ PdfSAM - бесплатная и простая в использовании у
 ```bash
 magnet:?xt=urn:btih:C18849619F325991B3623C5DBC966681177006C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:C18849619F325991B3623C5DBC966681177006C0
 ```bash
 magnet:?xt=urn:btih:0D1EAC32A8CE4C2017F74ECD264FC9BB78C0ED43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ CD1:
 magnet:?xt=urn:btih:DB68DB84452F88E4CB691CDEF897EE867E213F51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:DB68DB84452F88E4CB691CDEF897EE867E213F51
 ```bash
 magnet:?xt=urn:btih:C9678F95819891182B8868FE8ADEC1BDF918A003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +692,8 @@ VA - Iconic Pieces of Classical Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Clas
 ```bash
 magnet:?xt=urn:btih:ECC367225DD9BBA0AE6F885DFE7A57D7E357CDF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

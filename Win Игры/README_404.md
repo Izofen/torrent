@@ -1,27 +1,3 @@
-###  Публикация: 919364   (581698) от 20.07.2015
-
-Star Hammer: The Vanguard Prophecy [Pacth] (2015) (1.0.2) Official RezMar
-
->>Win Игры
->>Patch/Tweak/Trainer/Other для Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный Update позволяет обновить игру до версии 1.0.2. Исправлен ряд ошибок игры, к тому же улучшены текстуры прорисовки кораблей, и много прочих вкусностей. Приятной игры.Тип издания: Официальный патчРазработчик: Black Lab Games
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:423F7397242EE2370B4237FDBC21692B18599E24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269231   (582009) от 14.05.2019
 
 Frostpunk (2018) [Ru/Multi] (1.3.3) Repack R.G. Catalyst
@@ -42,6 +18,8 @@ Frostpunk – первая игра в жанре "выживание общес
 ```bash
 magnet:?xt=urn:btih:6B6A677685EF69AE55680EE387018716D18571A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Sniper Elite V2 Remastered (2019) [Ru/Multi] (1.0.2712) License CODEX
 magnet:?xt=urn:btih:7699FC8136EE0FC8845A0E162D2CD043072C7F2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Dead Space - по-настоящему жуткая штука. Она не те
 ```bash
 magnet:?xt=urn:btih:B617CA63A9E3B33183DB59797D3FCE1A9E40022F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:B617CA63A9E3B33183DB59797D3FCE1A9E40022F
 magnet:?xt=urn:btih:4E309404831CF928C005309D00C2B8696DE67A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ LEGO Star Wars - The Complete Saga (2009) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:B602F119500EC69CDB2E041008F3C3680C43BAFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Thea 2: The Shattering (2019) [En] (1.0) License CODEX
 magnet:?xt=urn:btih:87830C6C9633A2835AC3E48F53A5FD8833AB0C66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Puyo Puyo Champions (2019) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:20F8D6F7BDCC91705C7838A06F8F916428D813F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Inked - это платформер со множеством головолом
 magnet:?xt=urn:btih:0CCC64CE75ADA35701C129D21910E96491B7AC29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Apartment 666 — цикличный инди-хоррор по мотивам P
 ```bash
 magnet:?xt=urn:btih:A6D3C7072088E9A83C7F8AF011446B2A73B0C2F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Phantasmat 4: The Dread of Oakville / Фантазмат 4: Ужас Оукви�
 magnet:?xt=urn:btih:EDAB967093B8BBF2A4ABFE012C7F6BAFC475F636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ LEGO Indiana Jones 2: The Adventure Continues (2010) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:8D91891CBE98523E2ED982A208F7C1FDAB00A63C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Five Dates (2020) [Ru/Multi] (public 10) Repack 3v01ut10n
 magnet:?xt=urn:btih:263A9550E2CC5D5B478BC84B512F008D9F73D54E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Fell Seal: Arbiter's Mark – пошаговая тактическая роле
 ```bash
 magnet:?xt=urn:btih:5B39CF8BEBFFD811FE8112194D965FC2235D8017
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Fell Seal: Arbiter's Mark – пошаговая тактическая роле
 magnet:?xt=urn:btih:A5963C623A12369CF7DD583E108D28B3D8074431
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Lacuna - A Sci-Fi Noir Adventure (2021) [Ru/Multi] (1.3.0.1) License GOG [Save t
 ```bash
 magnet:?xt=urn:btih:0C073FDCC9DFE2DC036F0F1FBB03FFC19212EC2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Fear for Sale: Nightmare Cinema / Страх на продажу. Пленник
 magnet:?xt=urn:btih:4A0571E0DF0C27EDC62210776716E6B74AC0934B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack R.G. Catal
 ```bash
 magnet:?xt=urn:btih:B284224A06DA0C74875A538BF531A0D37754BED6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Grim Tales 16: The Nomad / Страшные сказки 16: Четыре спо
 magnet:?xt=urn:btih:26D394C5512C5ED608199B2B493E255AD02B29E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ The Long Dark (2017) [Ru/Multi] (1.49) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:C75A8847155ECE4A46104EEC93CD715C11CFCBD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Little King’s Story (2016) [En/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:B120082DC8273A73E48C34EC9D787ED5EA65BB3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Little King’s Story (2016) [En/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:3868FE66790D5238335916647139D330DA7BF90A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +566,8 @@ Colin McRae Rally переносит захватывающую атмосфер
 magnet:?xt=urn:btih:BEF3DC9639091881552387A4EEF4BCDB53BBC884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +591,8 @@ Sherlock Holmes Chapter One (2021) [Ru/Multi] (7839_1.4/dlc) License GOG [Deluxe
 ```bash
 magnet:?xt=urn:btih:353C27456D5B11A8121C83D24DDF9C41B0792142
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +618,8 @@ AR-K: The Great Escape (2015) [En/Sp] License
 magnet:?xt=urn:btih:1FF48C3326722500F2457AEA56D4F2B53938B6C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +644,34 @@ GooseGogs - это забавная игра, созданная 17-летним
 ```bash
 magnet:?xt=urn:btih:7F75FD4F9E9E6A6D1ECCDC714FCABF4623DF8CD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918720   (585805) от 16.07.2015
+
+Natural Threat 2 / Город оживших лиан (2013) [Ru] Unofficial
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585805.jpg" />
+</div>
+
+
+###  Подробнее
+
+В результате неудачного лабораторного эксперимента на свободу вырвалась загадочное существо, способное управлять растениями и превращать их в огромных безжалостных убийц. Во время апокалипсиса, который устроили на улицах города мутировавшие цветы, травы и деревья, бесследно исчезли муж и дочь главной героини, а сама она оказалась инфицирована спорами, которые грозят (   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: Butterfly iSoftЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F80A9074C7DC4E5EC92926EED82B878CC39F21C
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

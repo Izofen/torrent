@@ -20,6 +20,8 @@ Lectoroom, Елена Базанова | Зимний этюд акварель�
 magnet:?xt=urn:btih:264DA211256354FEDD37A1AAE80F6D154135E444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ The problem is: (   Читать дальше...   )Производство: C
 magnet:?xt=urn:btih:BC601F83F64FD93C23EB91F6D14767D901CE3413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Udemy, Bo Andersen | Complete Guide to Elasticsearch (2022) WEB-DL [EN / EN Sub]
 ```bash
 magnet:?xt=urn:btih:342807D948147E95564C4B70F63B25C2743C187D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Udemy, StudyEasy Organisation, Chaand Sheikh | Full Stack Java-разработ�
 magnet:?xt=urn:btih:89D084154BD5E673243B548181122CA6589A3924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Udemy, Imran Teli | DevOps Beginners to Advanced | Decoding DevOps with Projects
 ```bash
 magnet:?xt=urn:btih:B230A916D1C5CAB086944842895EC36320C72E70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:B230A916D1C5CAB086944842895EC36320C72E70
 magnet:?xt=urn:btih:4B18E1E607FD0FE0813C50AADE7B8A1812134649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Django 4 Masterclass 2022: от разработки до развертыван
 magnet:?xt=urn:btih:A7D115A49E11BA6B9B66CFEAA5623C2DEC7DF387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Udemy, Catalin Stefan | Complete FastAPI masterclass from scratch (2022) WEB-DL 
 ```bash
 magnet:?xt=urn:btih:C2C452129FF1AAC2C84DAB10756533D6D104AD9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ FastAPI — The Complete Course 2022 (Beginner + Advanced) — это учебн
 magnet:?xt=urn:btih:66E726FFD172A32204283A23E94E85DEFB27F52E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ Artstation, Florian Neumann |  Stylized Game Character (2022) PCRec [Tutorial] [
 ```bash
 magnet:?xt=urn:btih:2A5842A261D6C6FC0C2F920929B7BA719444B08F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ Thinknetica Pro, Максим Данилов | Возможности Django Adm
 magnet:?xt=urn:btih:ECD8FFBA8A4EBA223442D016C18D186D9E380BA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ The next time your resume is on someone's desk—be it a promotion at work or a 
 ```bash
 magnet:?xt=urn:btih:24B019EC9FB6F1C58A050826472296DF10BD0060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ Infostart, Николай Бондаренко | Базовый курс по р
 magnet:?xt=urn:btih:6A54B88DBCCDFB8720E015FF2CBE36A5CB354175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ Gumroad, Mohammad Fakhri | Texturing And Shading Realistic Skin In Maya Mari And
 ```bash
 magnet:?xt=urn:btih:2011F65EDA0431A3CA2749BECA6EA79C67A902A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ Angular 13 simply - это последняя версия Angular 2, в это�
 magnet:?xt=urn:btih:81F2992BD28160710124D0E3CBC73569287ACD82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ Flipped Normals, Nexttut, Abraham Leal | Complete Guide to Marmoset Toolbag 4 (2
 ```bash
 magnet:?xt=urn:btih:E9954163B78EB6401902411AD475F1067714D410
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ The AWS Certified Cloud Practitioner certification is a great entry-level certif
 magnet:?xt=urn:btih:7922665083A9EE667AA8EC06946D366365ACF696
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ Udemy, Maximilian Schwarzmüller, Manuel Lorenz | 100 Days Of Code - 2021 Web De
 ```bash
 magnet:?xt=urn:btih:702B27BE10580A0ABFBCED9D845055BDC0E1169D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:702B27BE10580A0ABFBCED9D845055BDC0E1169D
 magnet:?xt=urn:btih:7B69EED9F10506CAA152B1E5825F2909D0B841D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:7B69EED9F10506CAA152B1E5825F2909D0B841D3
 ```bash
 magnet:?xt=urn:btih:2DF1AF9EDB171E378EF1AF32D13FEE122A55B886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +575,8 @@ Profbuh8.ru, Елена Грянина | ЗУП 3.1 кадровый и зарп
 magnet:?xt=urn:btih:392DF23B1099B36FF04D4B301CC4B4E1CB4753BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ Liveclasses, Анатолий Ясинский | Субкультуры и ко�
 ```bash
 magnet:?xt=urn:btih:8FE89CD4735264134457EF2D637C21C456684F90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +630,8 @@ Level Up 2.0 Material Corona Render(   Читать дальше...   )Жанр:
 magnet:?xt=urn:btih:CEDDDDFF47DB8F1E5091B8350176DEA470FB7EE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +657,8 @@ Liveclasses, Андрей Журавлев | Adobe Photoshop: все форма�
 ```bash
 magnet:?xt=urn:btih:7010087588C1B6F5CD433EC91327A45FAA1D77E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +686,8 @@ ModelingЖанр: ВидеокурсЯзык озвучки: РусскийПр�
 magnet:?xt=urn:btih:380FB44A8FBDEE804E22F38F17288D3219300D35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ Udemy, Awesome Tuts | The Most Comprehensive Guide To Unity Game Development Vol
 ```bash
 magnet:?xt=urn:btih:110EFAAD9C7CBDDB003D3077C6A08BCDACD4BFAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

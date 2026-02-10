@@ -22,6 +22,8 @@ Charlie Barnet - 1939-1940 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 magnet:?xt=urn:btih:F88498E111B1ACF1EC8D0E815A42291872146587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Lee Morgan - Expoobident (1960) 1995, Charly Records [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:0492369EB553E569092140535C2B0DE0A31D149B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ Dianne Reeves - 3 альбома (2001-2004) [FLAC|Lossless]<Vocal Jazz, Post Bo
 magnet:?xt=urn:btih:9B8BF5774EA23DE46D183A4EF1AEBF8037DF27E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ Stan Getz - Quartets (1950) 1991, Original Jazz Classics [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:6408401D246BA80F91847E5D32579C0C4BA82484
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ CD1:
 magnet:?xt=urn:btih:902032F74C35991036CAE368C76E40873785900C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ Ozgur Hazar - Sad and Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:B4694B899EDE8DA1114772EB034E904BCD46AF72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ Stan Kenton - City Of Glass (1947 - 1953) 1995, Capitol [FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:B4E401A198837D2D1EF0DB8FCE9E83700564BD27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ TG Gray - TG Gray EP (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:4FC1BF65141362746867A07950A95AAD31AA926A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ Harry Allen - The Bloody Happy Song (2020) [FLAC|Lossless|image + .cue] <Mainstr
 magnet:?xt=urn:btih:8CFCE830E74A0DD4B5DF06DF8887840BA57A6C54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ Stavros Papadopoulos - Rare Tracks (Freerock Sessions) (2020) [MP3|320 Kbps] <Bl
 ```bash
 magnet:?xt=urn:btih:ECC3798F3C74575702608DD70B938A72B648BAAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ The Striders - Out of the Blues (Int. Edition) (2020) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:6CCA815B35D45F61622CCC85B9F5D2BC9A7CB498
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +346,8 @@ John Roush - The Cry of the City (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 ```bash
 magnet:?xt=urn:btih:DC41E8D251B5D93A99D6005AE03975920CCAD084
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ Andy Lindquist - Heartbreak Inc (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 magnet:?xt=urn:btih:89149688748EDCD5D3CC4E5975CDE6DC18377AEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +404,8 @@ Nite Train with Thomasina Winslow - Cat on a Mission (2020) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:6670D6F5ABB3A72F04304F099625B84B18CD015B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +440,8 @@ Oleta Adams - 3 альбома (1993-1996) [FLAC|Lossless]<Smooth Jazz, Swing, B
 magnet:?xt=urn:btih:12F915D1EF298788F6404D09B124E87784EB3A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +468,8 @@ John Oscar Atkinson - Kingsnake Runnin' with the Devil (2020) [FLAC|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:945006469089EBD93533F5C3EA9E84AF11A10574
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +498,8 @@ magnet:?xt=urn:btih:945006469089EBD93533F5C3EA9E84AF11A10574
 magnet:?xt=urn:btih:21E5BEEAF0369267F64AA4EF85AD28937D8319F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +527,8 @@ Enrico Pieranunzi & Horns - Evans Remembered (2001) Via Veneto Jazz [FLAC|Lossle
 magnet:?xt=urn:btih:13612E2ED709E83A8CCE57409CDBA406DABA0887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +555,8 @@ Enrico Rava - Rava l'opera va (1993) Label Bleu [FLAC|Lossless|tracks + .cue] <P
 ```bash
 magnet:?xt=urn:btih:00288127ECC5564D8F3D4B0C02F1F7CAB95A11D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +591,8 @@ Jack Jezzro & Friends - Bossa Nova Christmas (2009) [FLAC|Lossless]<Jazz, Christ
 magnet:?xt=urn:btih:018C137B10183B27F6B3DB42EBEB2C49D747BB40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +621,8 @@ Ben Prestage - One Crow Murder (2011) [MP3|320 кб/с]<Acoustic Blues, Slide Gu
 magnet:?xt=urn:btih:CDC6F77315E473C01EC98A638FB76FADD34C73AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +650,8 @@ CD1:
 magnet:?xt=urn:btih:1344711316EA48EB0D81DCECFBC0318566583CC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +678,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:ACAD522BC0F4B50F0773F060F692D889F8F39EC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +714,8 @@ Ralph Alessi - Baida (2013) [FLAC|Lossless]<Jazz, ECM>
 magnet:?xt=urn:btih:5223193DE082632EC91C324EEA352B034EE33D25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -701,6 +749,8 @@ Leif Shires - Cool Jazz Christmas (2010) [FLAC|Lossless]<Jazz, Christmas>
 magnet:?xt=urn:btih:EB8D5925924582A8572A21C12C35D4A34900B80A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -733,6 +783,8 @@ Yeahwon Shin - Lua Ya (2013) [FLAC|Lossless]<Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:79963844B2632B10CEBF806A92F80533FF304B4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1056677   (468323) от 01.10.2016
+
+L'One - Гравитация (2016) [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468323.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Выход в открытый космос
+2. Дорога ft. Jasmine
+3. Ракета ft. Влади & Баста
+4. Огонь и вода(   Читать дальше...   )Жанр: RapПродолжительность: 00:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:393BEBF91953F2713E759E92D2544D792048370F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406392   (473074) от 04.09.2020
 
 Полумягкие - Ять (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:67771D1ADFB376F40FB26B847ED8C45BE8D816B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ DK - SYNONIM (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:CE4F600B94D1986D5D39D45B637F42777E8B8E1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ Stephan Pie - Не паникуй! (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:2162F802F49D14382E559DFCA36171DBA7397517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ magnet:?xt=urn:btih:2162F802F49D14382E559DFCA36171DBA7397517
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ The Maytals - The Best Of The Maytals (2016) 2CD, Compilation [MP3|320 Kbps] <Re
 ```bash
 magnet:?xt=urn:btih:DFC6D2FCE00047AC6C6E5EFCA0383371BB6856D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ ATL - Карма x Кома (2016) [MP3|320 Kbps] <Rap>
 magnet:?xt=urn:btih:878B1CA311DC5FA7D8D0E9FCA726B1BA4AE1768B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ Eminem - Kamikaze (2018) [MP3|320 Kbps] <Hip-Hop, Rap>
 ```bash
 magnet:?xt=urn:btih:F68BB30DE8C494C5192D1BC9AAEF78CC5DC5F597
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ Eminem - Kamikaze (2018) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
 magnet:?xt=urn:btih:58C11C202A30A054949A88FF60BC8E1649A23719
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ Beastie Boys - Licensed to Ill (1986) 1999, Def Jam Recordings [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:8078EDA39A4B12FEC0E5B0FDE78FA79A91429187
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ Toni Braxton - Spell My Name (2020) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul>
 magnet:?xt=urn:btih:9138D62192D2A4CB1855F5A6ABB950EC50F193C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ magnet:?xt=urn:btih:9138D62192D2A4CB1855F5A6ABB950EC50F193C8
 ```bash
 magnet:?xt=urn:btih:EC74AE622369461091615D33D7CF19D975F996AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ NANA - Greatest Hits (2005) [APE|image+.cue]<Rap/Hip-Hop>
 magnet:?xt=urn:btih:18E40B5E5B7325239253C894AA3915072E3DCDA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ magnet:?xt=urn:btih:18E40B5E5B7325239253C894AA3915072E3DCDA6
 ```bash
 magnet:?xt=urn:btih:C489E7D4CFA5237B2C7A0431D8844B78294C644D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +434,8 @@ magnet:?xt=urn:btih:C489E7D4CFA5237B2C7A0431D8844B78294C644D
 magnet:?xt=urn:btih:5878105E6FE827F2DB2674F1500B86CE75CFB801
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +462,8 @@ magnet:?xt=urn:btih:5878105E6FE827F2DB2674F1500B86CE75CFB801
 ```bash
 magnet:?xt=urn:btih:D23C1581899112688A08F41B8970747214BA808D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +492,8 @@ MiyaGi & Эндшпиль - HAJIME Part.2 (2016) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:B85810B0C198B28AE0B4573E1645F81EB2DED6F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +520,8 @@ Die Antwoord - Mount Ninji and Da Nice Time Kid (2016) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:C5504BA87C1C2371A2BA5207F77911A96A7B90AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +550,8 @@ magnet:?xt=urn:btih:C5504BA87C1C2371A2BA5207F77911A96A7B90AB
 magnet:?xt=urn:btih:4A3DA0A123EFD75016BDF724DC534DAE79D70F41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +578,8 @@ UB40 feat. Ali Campbell & Astro - Unprecedented (2022) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:EFCAD409E61DEC1487FFBF793251ACC87F2E96BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +608,8 @@ magnet:?xt=urn:btih:EFCAD409E61DEC1487FFBF793251ACC87F2E96BF
 magnet:?xt=urn:btih:CCFD9A65F2D7622E06ABCEE50206C7B9798E3ABF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +636,8 @@ Guf & Murovei - PART 2 (2022) EP [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:A7887CCA6FBE397EAFA73245B1A6F6159200C604
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +666,8 @@ magnet:?xt=urn:btih:A7887CCA6FBE397EAFA73245B1A6F6159200C604
 magnet:?xt=urn:btih:E19E8A7774947BC04D4AAFFF427C63F47A0F5EBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +694,8 @@ UB40 featuring Ali Campbell & Astro - Unprecedented (2022) [FLAC 2.0|48/24|WEB-D
 ```bash
 magnet:?xt=urn:btih:170A05F00E2C5B49A3F19F4E58B2A9094A6668BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +724,8 @@ magnet:?xt=urn:btih:170A05F00E2C5B49A3F19F4E58B2A9094A6668BF
 magnet:?xt=urn:btih:DFD6683858AC8018D3A8D151081D1F2A16DC0A6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,32 +753,7 @@ Alai Oli - Снег и пепел, Volume 1: синглы и раритеты (2
 magnet:?xt=urn:btih:49EEAB6700CDF229A3BBB2BE2FF9DD278FB36F76
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929075   (519349) от 19.08.2015
-
-Shahmen - All In The Circle (2015) [MP3|320 кб/с]<Abstract Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirt (Remastered) (03:07)
-02. No Slippin' (02:41)
-03. Many Miracles (01:42)
-04. Mice (04:40)(   Читать дальше...   )Жанр: Abstract Hip-HopПродолжительность: 00:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D140BDAED2208272F9BCC22266313B643634C8B6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

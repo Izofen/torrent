@@ -22,6 +22,8 @@ Rachael Yamagata - Happenstance (2004) [MP3|320 кб/с]<Soft Rock, Pop Rock, In
 magnet:?xt=urn:btih:71F1D2D05149C926832EC0193CA18BE0DA977591
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Year Of The Goat - The Unspeakable (2015) [MP3|320 кб/с]<Occult Rock>
 ```bash
 magnet:?xt=urn:btih:1BC9F4D62CEE4C0100A752EF40B925D50F589C3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Jimmy LaFave - Texoma (2001) [MP3|320 кб/с]<Rock, Folk, Americana>
 magnet:?xt=urn:btih:2DB725DE8F30150708CE481DED54B5E2F9F0FF52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Michael Bundt - Neon (1979) LP [MP3|320 Kbps] <Electronic, Krautrock, Experiment
 ```bash
 magnet:?xt=urn:btih:642AD3F5779635833AFDC5295FD0294DCA405FA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Jones Street - Out Of The Gutter (2022) Compilation [MP3|320 Kbps] <Hard Glam Ro
 magnet:?xt=urn:btih:51A1C69195860881B317CFD14C5F610BA44879B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Gwil Owen - The Road To The Sky (2022) [MP3|320 Kbps] <Classic Rock>
 ```bash
 magnet:?xt=urn:btih:34FDD9C564CBBAAF48051CC3CB4C91B49460D49D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ The Open Mind - The Open Mind (1969) Reissue, 2006, Second Battle [MP3|320 Kbps]
 magnet:?xt=urn:btih:46217F78BFAB8F90C2329C90BE4A68AAE7E12DB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Honeyblood - In Plain Sight (2019) [MP3|320 Kbps] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:9D4444F614287B8F6B5623F80066D3701D3C6996
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ The Amazons - Future Dust (2019) [MP3|320 Kbps] <Indie Rock, Alternative Rock>
 magnet:?xt=urn:btih:309D3A764637CD187F5AF8E431E56689966C3F36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Phoenix - Journey From Night to Day (1979) [MP3|320 кб/с]<Krautrock, Prog Roc
 ```bash
 magnet:?xt=urn:btih:0F93C5D2415B2336C47E46C83B86ACF88A4BA943
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Sting - My Songs (2019) Deluxe Edition [MP3|320 Kbps] <Rock, Pop>
 magnet:?xt=urn:btih:4EB86639F9FC6BA0AE46AC2C750CB91FDCE3DE4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Santana - Diamonds Are Forever (2017) 2CD Set [MP3|320 Kbps] <Rock, Latin Rock>
 ```bash
 magnet:?xt=urn:btih:E2E9044974CE6A260FAE30D7E1B3148445FC1E88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - While My Guitar Gently Weeps III (2005) [MP3|320 Kbps] <Rock, Rock-N-Roll>
 magnet:?xt=urn:btih:BC87AFEB75B8BBB924F00861E214F1B8C2AEE1A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Lance Richards - Friends (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:4ADC0A9F87E3F1221FF85E32B55ECED88ACE0C87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Motorhead - Les Genies du Rock - Ace Of Spades (1995) [MP3|320 кб/с]<Rock & R
 magnet:?xt=urn:btih:C2FFFA5CF84C8C9561A915C8EC91870B6398CF91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Best Of Rock - Les Genies du Rock (1995) [MP3|320 кб/с]<Rock,Pop>
 ```bash
 magnet:?xt=urn:btih:D9C022FE44D2AC827A0ED8832E3B703A0BB050CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Iggy Pop - Les Genies Du Rock - Live (1993) [MP3|320 кб/с]<Punk, Garage Rock>
 magnet:?xt=urn:btih:83B529712547938B7FB5291F03033EB7D39C7B51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +515,8 @@ The Nice - Les Genies Du Rock - Rondo (1993) [MP3|320 кб/с]<Prog Rock, Psyche
 magnet:?xt=urn:btih:E7935ABBB4C7623939128FE97051545BDCB2FCD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +543,8 @@ Magma  - Art Zoyd - Les Génies Du Rock - Mekanik Destruktiv Kommandoh (1993) [M
 ```bash
 magnet:?xt=urn:btih:21C51F45880708F939A2BED85EC927231141A0CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +579,8 @@ The Beatles - Tomorrow Never Knows (2012) (Compilation)[MP3|320 кб/с]<Rock>
 magnet:?xt=urn:btih:A7450AE5413C8FDC53921BF3A45FDDABED8A1844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +608,8 @@ Piper - Piper (1977) Reissue, 1990, A&M Records [MP3|320 Kbps] <Rock, Hard Rock>
 magnet:?xt=urn:btih:8FC60EE3372F37273D996830F992D46CE349BDEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +633,8 @@ Rod Stewart - You Wear It Well. The Collection (2011) [MP3|320 kbps]<Rock>
 ```bash
 magnet:?xt=urn:btih:CF3FF6573827A2EBB18972C39981D58F71C77206
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +661,8 @@ Robert Plant - More Roar (2015) Vinyl, EP[MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:0B228CB0F1283C0FE3BF3CADBDD4B75F4C7398E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +691,8 @@ Gene Vincent - Les Genies Du Rock - Be-Bop-A-Lula (1993) [MP3|320 кб/с]<Rock 
 magnet:?xt=urn:btih:EA79746C5BEE399F00F5EC684648DB612865796C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +720,8 @@ Flamin' Groovies - Les Genies du Rock - Shake Some Action (1993) [MP3|320 кб/�
 magnet:?xt=urn:btih:E9686D04F0EBA88F93FEFF1C01185B3B5F834A93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,6 +748,8 @@ Gun Club - Les Genies Du Rock - Death Party (1993) [MP3|320 кб/с]<Alternative
 ```bash
 magnet:?xt=urn:btih:5B8466BC7B414DC1C67516A94D42063E92060691
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

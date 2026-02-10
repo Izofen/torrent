@@ -19,6 +19,8 @@ DuplicateViewer Pro 4.0 [En]
 magnet:?xt=urn:btih:23420FDE379456F39B4B1607F6ECA03423166519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:23420FDE379456F39B4B1607F6ECA03423166519
 ```bash
 magnet:?xt=urn:btih:4F1187EF2D3911CF0936E168FABFA5916D7888B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:4F1187EF2D3911CF0936E168FABFA5916D7888B7
 ```bash
 magnet:?xt=urn:btih:B72E5C4E822803B93FEAAA15254FED60C7F8A15A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Foo Fighters - But Here We Are (2023) [FLAC|Lossless|tracks + .cue] <Alt. Rock, 
 magnet:?xt=urn:btih:438F609EA1DDFA13EAFCA3B3D0B3A68317F8AD2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Lachaise - Silent Cries for Help (2009) [MP3|320 Kbps] <Symphonic Gothic Metal>
 magnet:?xt=urn:btih:6EF8EC1092AF684938746A0A911DD65E87C1EABC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:6EF8EC1092AF684938746A0A911DD65E87C1EABC
 ```bash
 magnet:?xt=urn:btih:71D65E19D5090BB12BDDD5F5635680ECBF0B7EF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ VA - Levitated Trance - Summer (2023) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:89374DE0DDCB8163F94E47B642CA8019486A0F54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Wondershare UniConverter - это полный набор инструменто
 ```bash
 magnet:?xt=urn:btih:32F2428D2A49539D1E702F404DA81894DBB14E6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ Joe Bonamassa - An Acoustic Evening At The Vienna Opera House (2013) DVD9 + DVD5
 magnet:?xt=urn:btih:AB4EF765830CAD46B8E1B720E101E3CD7A14069D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ Dawnlight - Eternity (2017) EP [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:03E0589BCB7F897813E7893E30D605E672D33B4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ Graywolf - Graywolf (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:5539B6D7E08900F64F2FF6F2339A3975BA0BB39D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:5539B6D7E08900F64F2FF6F2339A3975BA0BB39D
 ```bash
 magnet:?xt=urn:btih:130C6257D1460F60B0FC97A42B28BEC397C72E6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +354,8 @@ Zorormr - The Monolith (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Black Metal
 magnet:?xt=urn:btih:6AE8F1322E964DBB45C1FB74ADE185E45FFCC2DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:6AE8F1322E964DBB45C1FB74ADE185E45FFCC2DD
 magnet:?xt=urn:btih:6077A76E79565080F576A5CBF42F752D199EB7A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:F473A304FA5BED8BDB284CCF493746C991A1D222
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ Demonic Sacrifice - Enter the Realm of Pure Darkness (1997) [MP3|320 Kbps] <Deat
 magnet:?xt=urn:btih:55BEE85711CA9AE56BC4890097AE8C01A96FABB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ PixelStyle Photo Editor легко редактирует фотографии �
 magnet:?xt=urn:btih:EAAB8DE81263FAB294FB60B427279728ACD9733F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ VN - это видеоредактор предназначенный специ
 ```bash
 magnet:?xt=urn:btih:B22EE7EFBDFE43FEFCD2ACE1A1B7D4E809E1D276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:B22EE7EFBDFE43FEFCD2ACE1A1B7D4E809E1D276
 magnet:?xt=urn:btih:D024F9F1A8C55CAA2DB671C4D53B95D21546E871
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:D024F9F1A8C55CAA2DB671C4D53B95D21546E871
 ```bash
 magnet:?xt=urn:btih:43DCE72A6B682FAFFE5DEEAFF9FB0B82847259AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:43DCE72A6B682FAFFE5DEEAFF9FB0B82847259AD
 magnet:?xt=urn:btih:F8C7358133C469F67CF764F0CC18676C52090D86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ MacMagic может помочь очистить гигабайты диско�
 magnet:?xt=urn:btih:51B71324E5B33FCB724D39535D74E6EC70265293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:51B71324E5B33FCB724D39535D74E6EC70265293
 ```bash
 magnet:?xt=urn:btih:2D8C77574E43A1E3A8CD18733A2D448D025EEA32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ magnet:?xt=urn:btih:2D8C77574E43A1E3A8CD18733A2D448D025EEA32
 magnet:?xt=urn:btih:FCC3A62D9655421349DCA120F035CEF3E981E73B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ Wanted - Late Attraction (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:3ED8E973656217F637EA4D1E1A4EBC504E35BF7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ Overlord IV | Повелитель [ТВ-4] [2022, TV, 13 эп.] WebRip HEVC 108
 ```bash
 magnet:?xt=urn:btih:40EBD877BEBBBCCB76D2E6AB30DC43B7269A1CC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

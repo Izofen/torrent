@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:37325477F05AC16D7A906737B36D778B6D13F6C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:37325477F05AC16D7A906737B36D778B6D13F6C9
 ```bash
 magnet:?xt=urn:btih:E38FBF1F4F3A35D1F9CE64074E4D27C9D96C2D1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:E38FBF1F4F3A35D1F9CE64074E4D27C9D96C2D1E
 magnet:?xt=urn:btih:AB6206F7755CDBDBAB6CC237926BC81CFE46A19C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:AB6206F7755CDBDBAB6CC237926BC81CFE46A19C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:AB6206F7755CDBDBAB6CC237926BC81CFE46A19C
 magnet:?xt=urn:btih:6DB8BCAA288C355F923481F53ADB266B6214F7C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:6DB8BCAA288C355F923481F53ADB266B6214F7C3
 ```bash
 magnet:?xt=urn:btih:92CEC1277E37A0DD9A3B641CD2F22366FECB7EFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ VA - Хозяйка Бара.Сборник Лучшего Шансона - (200
 magnet:?xt=urn:btih:DEBA70DD095BF82A46B839FD98B43766FC8E4786
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:DEBA70DD095BF82A46B839FD98B43766FC8E4786
 magnet:?xt=urn:btih:EE4BD0055C9DF2DE122DB8057FAF84E80E96797C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:EE4BD0055C9DF2DE122DB8057FAF84E80E96797C
 ```bash
 magnet:?xt=urn:btih:6D0A84A068D50153250006B450246163FE06C41C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:6D0A84A068D50153250006B450246163FE06C41C
 magnet:?xt=urn:btih:7B5131DB13F4B5241683DDECECD45D00D3460110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:7B5131DB13F4B5241683DDECECD45D00D3460110
 ```bash
 magnet:?xt=urn:btih:8670A80D4ABD65AB44127E8757CFA0CA177BB66C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:8670A80D4ABD65AB44127E8757CFA0CA177BB66C
 magnet:?xt=urn:btih:F0E7D82D883B34FD7FB26776A3019A5EF7FA810E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:F0E7D82D883B34FD7FB26776A3019A5EF7FA810E
 magnet:?xt=urn:btih:AB22B178A8340B9BC18EE63E4A1EFF069B8D033E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Network Security Scanner — это приложение, которое кон�
 ```bash
 magnet:?xt=urn:btih:2B40A52F779656F78C8A2D56AC9B06A9B1550244
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Kenny G - Innocence (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:511208B844C981F70E33AB5E7BB04F5E39E399B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ Hekasoft Backup & Restore  - утилита для резервного копи
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ MediaInfo — программа для получения подробной т
 magnet:?xt=urn:btih:CBE8A9B38BA723CD608C1F81E2520B2556E0A8C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:CBE8A9B38BA723CD608C1F81E2520B2556E0A8C5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:CBE8A9B38BA723CD608C1F81E2520B2556E0A8C5
 magnet:?xt=urn:btih:3698395E033DFAF5A51003DD9D562C945CE749C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:3698395E033DFAF5A51003DD9D562C945CE749C9
 ```bash
 magnet:?xt=urn:btih:8981307560EAF2E649C0D2F822711E0A36D9AF08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:8981307560EAF2E649C0D2F822711E0A36D9AF08
 magnet:?xt=urn:btih:A42A8DF26C86D31C8215DD9E34631EB1CCF47F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Handy Start Menu 1.80 [Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Handy Start Menu 1.80 [Русский]
 magnet:?xt=urn:btih:DEC593C4FD60A510DE66C9C53E9DFFFCE609D094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:DEC593C4FD60A510DE66C9C53E9DFFFCE609D094
 ```bash
 magnet:?xt=urn:btih:1249B131A23BAF4D8096CFB0DF273F422A7475B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:1249B131A23BAF4D8096CFB0DF273F422A7475B5
 magnet:?xt=urn:btih:FF9CB9DC165D539D25A9B16DA32BB42DE699744D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:FF9CB9DC165D539D25A9B16DA32BB42DE699744D
 ```bash
 magnet:?xt=urn:btih:631DC7460546F751CDAE6A0360C2F1FF0C3C52AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1099499   (905317) от 01.02.2017
+
+VA - Молодежный бум хитовый (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_905317.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Андрей Ковалев - Сама Виновата 3:33
+002. Нюша - У Меня Появился Другой 3:34
+003. Mseven & Simon Grey - Лучшее Во Мне 3:33
+004. Mainstream One - Любил Так Жить 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13BC96A1EB4D372C48F48520D3A9AD0B66A6A13A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099511   (905428) от 01.02.2017
 
 VA - Русский зимний музобоз выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
@@ -21,6 +50,8 @@ VA - Русский зимний музобоз выпуск № 5 (2017) [MP3|2
 ```bash
 magnet:?xt=urn:btih:6DAA87F4ED03977F718A61D71742CA66CA7CBC17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Полный отрыв. Часть № 6 (2017) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:EA34C75592B45C28AE89D356E6460157D505B757
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Танцевальная зима. Снежная сотка. Версия 
 ```bash
 magnet:?xt=urn:btih:D54A33826F6FEE82B4D98A827385C16F0D7DE986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - German Top 100 Single Charts 20.03.2020 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:49473A52F1FDF0B48FC8A8771965EE5896E85053
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Русская жажда скорости (2016) [MP3|256-320 кб/с] <Po
 ```bash
 magnet:?xt=urn:btih:E817C2D362EC5B887420AF3E94DF69EC3986257F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ Michael Learns To Rock - Super Hits Collection (2016) [MP3|320 кб/с] <Pop , P
 magnet:?xt=urn:btih:A26A3D97ECEDE3093DC82AA4AF86BC97370AEF9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Top Hits (2017) [MP3|217-273 Kbps] <Tropical, Nu Disco, Indie Dance>
 ```bash
 magnet:?xt=urn:btih:5A7E7F53532267D7C4D7F9D7CC22DAEC53CC2BC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Новички в попсе Vol 10 (2021) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:1E27337B9AF7FC2B14047DCDEF662DF47311944B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - 100-ка танцевальной музыки (2016) [MP3|256 кб/с] <Po
 ```bash
 magnet:?xt=urn:btih:CD985DCEFE33D9B6F08068D4634E07BEC7B4707C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Auto Dance Party N1 (2016) [MP3|320 кб/с] <Dance>
 magnet:?xt=urn:btih:7AB5C3F1CF03B14174D74D4E3E27236A037E1AC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Singles Chart Hot 100 Billboard (04 February) (2017) [MP3|32-320 Kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:11D433757FE940D5D4A9C23E16818613CEF711B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Unknown 80's (part III) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpo
 magnet:?xt=urn:btih:576D496A80A156799DC3D0E01BD8812AE42E982E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Singles Chart Hot 100 Billboard (28 January) (2017) [MP3|32-320 Kbps] <Danc
 ```bash
 magnet:?xt=urn:btih:8BB8DD3A57C6C1D14854C3D1A88875D05A055A0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - German Top 50 Official Dance Charts 27.01.(2017) [MP3|320 Kbps] <Pop , Danc
 magnet:?xt=urn:btih:480AA82A56F54F8D491603209F691A44D3EFE8A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Дискотека зимних дорог. Русские хиты вып�
 ```bash
 magnet:?xt=urn:btih:9FDAB47251A7B0560669A0DF387D6E9FDBA806AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - За рулем. Хиты зимы. Русский сборник (2017) [M
 magnet:?xt=urn:btih:FBE0D26529957FED03891E5CE366C5AE1A62FD21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +515,8 @@ VA - German Top 40 DBC Deutsche Black Charts 27.01.(2017) [MP3|192-320 Kbps] <Hi
 magnet:?xt=urn:btih:672EF6215EA3D0285D71BDF32826923579FA0BC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +540,8 @@ VA - Now Thats What I Call Music 84 (2CD) (2013) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:33FBDB38C1B2ABAE8BEFB14951E9742E3151532E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +570,8 @@ VA - Дискотека 80-90 годов по - новому (Зарубежны
 magnet:?xt=urn:btih:F678CE7E06B521811C5A8720A0AB11599DBAD38F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +598,8 @@ VA - 100 пудовые зимние хиты на Europa Plus. Версия 6 (
 ```bash
 magnet:?xt=urn:btih:C79BA18218AFCE6A4ECA972296A970771ECDC9AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +628,8 @@ VA - German Top 100 Single Charts 27.01.2017 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:8DF2BA77C40E817449F27C4C17466377FC4CF332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +656,8 @@ VA - Музыкальное потрясение зимы на Русском р
 ```bash
 magnet:?xt=urn:btih:D827EBBEF0ED734687DD820BD111AA5107AB3E06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +686,8 @@ VA - The Official UK Top 40 Singles Chart (24-03-2013) [MP3|320 кб/с]<Pop, Da
 magnet:?xt=urn:btih:75E518443CA0E6564D0E4AA750B36B44D5110891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +714,8 @@ VA - Лучшие хиты дискотек. 50/50 (2016) [MP3|256 кб/с] <Pop
 ```bash
 magnet:?xt=urn:btih:F6A7023E8DFB21A4965ECFFB28DF3BBA3E70CE3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,32 +744,7 @@ VA - Музыка к 8 Марта (2010) [MP3|128-320 кб/с] <Pop>
 magnet:?xt=urn:btih:1E5B3984FEAE66F5D7AFD9D6C42039AB2068DD91
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990114   (911998) от 25.02.2016
-
-VA - Ultimate Drive (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_911998.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01. Meat Loaf - Bat Out Of Hell
-02. Bonnie Tyler - Holding Out For A Hero
-03. Cyndi Lauper - I Drove All Night(   Читать дальше...   )Жанр: PopПродолжительность: 04:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F1EF5EF5E13A00F0CB380D13EE97E73644F1970
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

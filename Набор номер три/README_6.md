@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Tunshi Xingkong | Swallowed Star | Пожиратель звёзд | Погло�
 magnet:?xt=urn:btih:32F14456E5B984E71D2C52E49DD1D44A8EE24EDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:32F14456E5B984E71D2C52E49DD1D44A8EE24EDB
 ```bash
 magnet:?xt=urn:btih:FACB4A07C7E2C7D2E849E3ED189EF0D0D25A41AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ VA - Workout Motivation (Deep Edition) [Mixed by Sergey Sychev] (2018-2025) Deep
 magnet:?xt=urn:btih:E95890A071B5009A51F8FB58C533AB685860408B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:E95890A071B5009A51F8FB58C533AB685860408B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Warhammer 40,000: Rogue Trader – это изометрическая роле�
 ```bash
 magnet:?xt=urn:btih:5AA79DED9188FE700F4052A8998E6CA1A95DEBB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:5AA79DED9188FE700F4052A8998E6CA1A95DEBB7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Tunguska: The Visitation (2021) [Ru/Multi] (1.94-4/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:673715F966FFC500EC1D6F0CE312A58C3EC558E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Launcher for zapret 2.9.1 [Ru/En]
 magnet:?xt=urn:btih:63A209C6C434187624F3E8370DC2D585CD8487F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ MAX Desktop 25.8.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:04446F3CEE5C620BE7AC5D4316FB5023D5CE8C90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:04446F3CEE5C620BE7AC5D4316FB5023D5CE8C90
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Northgard (2018) [Ru/Multi] (3.7.30.42250/dlc) License GOG [The Viking Age Editi
 ```bash
 magnet:?xt=urn:btih:808A16BC4460BD41C7A0343D49AD8AB1D7D0E099
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Songs of Conquest - пошаговая стратегия, вдохновлен�
 magnet:?xt=urn:btih:EFD6001C88B2FB703C70D036DA1FDFD452C46481
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:EFD6001C88B2FB703C70D036DA1FDFD452C46481
 ```bash
 magnet:?xt=urn:btih:FE9921EB0F1FFD42F4AEFC9964A7BD174A075CFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Incubation: Time Is Running Out / Incubation: Космодесант [Ru] (L) 19
 magnet:?xt=urn:btih:0C88A7D41D7DC787A4C1722359120BB4D1E17D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:0C88A7D41D7DC787A4C1722359120BB4D1E17D20
 ```bash
 magnet:?xt=urn:btih:F1FD618AC39F2933E30408DCCDC327B23D6F08BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ NASA сообщило о завершении подготовки космич�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.16.02/dlc) Licens
 ```bash
 magnet:?xt=urn:btih:B9BC4FCC81D46AB6431C879CE5C27D509399C364
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Project Zomboid - многообещающая Survival-RPG, в которой �
 magnet:?xt=urn:btih:38F677AA504594460DE4485EE95E7971F337B939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ SpellForce: Conquest of Eo (2023) [Ru/Multi] (1.9.6/dlc) License GOG
 magnet:?xt=urn:btih:26526B8BFDD8D543362D2DB065AB3397852E8C2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Grim Dawn (2016) [Ru/Multi] (1.2.1.6/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:8F2F8A77EC29BA40DD3F11CFDAB03D77A9B98AEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Windows 10 Pro 22H2 19045.6093 x64 by SanLex [Lightweight] [Ru-En] (2025.08.05)
 magnet:?xt=urn:btih:2D77AE2E69BEDB4496833436E0B46655D2009E8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:2D77AE2E69BEDB4496833436E0B46655D2009E8F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:2D77AE2E69BEDB4496833436E0B46655D2009E8F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:2D77AE2E69BEDB4496833436E0B46655D2009E8F
 ```bash
 magnet:?xt=urn:btih:96A02183B6C6B117D7DD94022CF7C99770C98296
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

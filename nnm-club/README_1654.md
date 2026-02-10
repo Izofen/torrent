@@ -19,6 +19,8 @@ Granny Remake - это игра-ужастик, в которой вам пре�
 magnet:?xt=urn:btih:1826E251ABE1E0EC4FA1E102A42FB377EC21D384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ simplewall 3.8.4 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:8C7C85E31BF01D48FFAADEAFE502B35AE93C5014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:8C7C85E31BF01D48FFAADEAFE502B35AE93C5014
 ```bash
 magnet:?xt=urn:btih:629C81297B426A77C5B1B954A0DE7C4B6C197CA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 magnet:?xt=urn:btih:993E87C03C9E9D4144E568315C6F417E74C8738C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Assassin's Creed - игра нового поколения, разработа�
 magnet:?xt=urn:btih:7D18580ADA34EFBA86FA4D5B87847A010DCD45CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:7D18580ADA34EFBA86FA4D5B87847A010DCD45CE
 ```bash
 magnet:?xt=urn:btih:5C1005A9A506BC0F261EB799438200C1718FB2B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 magnet:?xt=urn:btih:20AEAEB18A1177E8118494828C83BA637EA987D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:20AEAEB18A1177E8118494828C83BA637EA987D4
 ```bash
 magnet:?xt=urn:btih:520EBF33CEA21D893C8C4549CF648C45495DC385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Ubuntu*Pack 22.04 Unity (сентябрь 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:C4AFFA74EAA424299124D1A2511AD73F2E8CF576
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ VA - Rock, the best (2024) 2CD [MP3|320 Kbps] <Rock, Hard Rock, Metal>
 magnet:?xt=urn:btih:55BD424485CF25D5A01E945C85C73E311B077FE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ The Land of the Magnates (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:BEC76AB1D919BD214AA6232DC3EAB43F55103270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Bioshock Dilogy / Дилогия Bioshock (2007-2010) [Ru/En] (1.1/1.1/dlc) Repa
 ```bash
 magnet:?xt=urn:btih:6153C9FBC4EA7FBB21C2052E839EAED6716FF614
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 magnet:?xt=urn:btih:6DCCA3BB2692C74F326DBEC44F5828ED389707C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 magnet:?xt=urn:btih:1374BD540010885F0E0B214DD1DAAECC3F8A85C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:1374BD540010885F0E0B214DD1DAAECC3F8A85C1
 ```bash
 magnet:?xt=urn:btih:5B3470FABB4D2CD7FB213B3E4EA685EF302FCE82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:5B3470FABB4D2CD7FB213B3E4EA685EF302FCE82
 magnet:?xt=urn:btih:6D5B13B0574EAAB68BD79C03EB0D68BA2B86E784
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:6D5B13B0574EAAB68BD79C03EB0D68BA2B86E784
 ```bash
 magnet:?xt=urn:btih:C2E0CC0C3D567B99312F6D2D57C49167B068B917
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ Hard Disk Sentinel — отличная программа для монитор
 magnet:?xt=urn:btih:B41FF6BAD0B1FEA66DD5CE1860CF84F581445F33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ Fears to Fathom: Woodbury Getaway (2024) [Ru/Multi] (1.3) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:5697DEE6F5B8D88B57C9A52758EBA0B3455665D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:5697DEE6F5B8D88B57C9A52758EBA0B3455665D4
 magnet:?xt=urn:btih:8090777D2F0A1D5DE7CA79D25C342877BCC06EE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:8090777D2F0A1D5DE7CA79D25C342877BCC06EE1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:8090777D2F0A1D5DE7CA79D25C342877BCC06EE1
 magnet:?xt=urn:btih:3070D387F8B4325EDD4EA8AE3384E21AAFBF7DF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ Call of Duty Коллекция (2003-2010) [Ru] (1.0) Repack R.G. ReCoding
 ```bash
 magnet:?xt=urn:btih:0418FF8E8B0E87C3F9A8E7AAA91BC61035675A47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:0418FF8E8B0E87C3F9A8E7AAA91BC61035675A47
 magnet:?xt=urn:btih:0AD7594AD5302F7E8DAE8455A3D670828B459A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ Roadwarden (2022) [En] (1.2.0) License GOG
 magnet:?xt=urn:btih:C5AE533D07C8AB31526FE41A058C067A42437689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ METAL DOGS (2023) [Multi] (1.5.0/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:3B0ACDB49F036FB039E0BFC7CAAC22649DBAC67C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

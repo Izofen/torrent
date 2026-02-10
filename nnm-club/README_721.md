@@ -19,6 +19,8 @@ Auslogics SSD Optimizer - специальный инструмент, разр�
 magnet:?xt=urn:btih:ADC95064EF07B7A9D9E1D4481EA0F52E0CA20E6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:ADC95064EF07B7A9D9E1D4481EA0F52E0CA20E6D
 ```bash
 magnet:?xt=urn:btih:34BCDC512E1EF3C5184A5C1A48F399136280BA56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:34BCDC512E1EF3C5184A5C1A48F399136280BA56
 magnet:?xt=urn:btih:D1496DC5F47B3D0800D69D332D6002DF7A9EF680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Terminator: Dark Fate – Defiance позволяет окунуться в су
 ```bash
 magnet:?xt=urn:btih:5BF9DA3034B8A3D68BFF5BB26ADE3C7F911C5691
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Pacific Drive - это атмосферное автомобильное при�
 magnet:?xt=urn:btih:25677E6CEC19747FF1EDA235F74B3FF40E8AC1AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:25677E6CEC19747FF1EDA235F74B3FF40E8AC1AE
 ```bash
 magnet:?xt=urn:btih:40CD0032A5F16D131B8AFB946F62D02F2BC7FA9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:40CD0032A5F16D131B8AFB946F62D02F2BC7FA9C
 magnet:?xt=urn:btih:9F33375DC9DC7009D47322855955A24745BC6600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (143421/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:5A5E09B2631B9E63F1679D86C016ACA07FE2220D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Womanizer (2024) [Ru/Multi] (1.32/dlc) Repack Other s [18+]
 magnet:?xt=urn:btih:62305DDA9D2900600FA16315A692EAB17856C2CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Telegram выбыл из топ-5 самых безопасных мессенд
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Telegram выбыл из топ-5 самых безопасных мессенд
 magnet:?xt=urn:btih:7D095D605FCBA7E84FB5C2AC95F5ADD7202A0F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:7D095D605FCBA7E84FB5C2AC95F5ADD7202A0F80
 ```bash
 magnet:?xt=urn:btih:77D63324A7864578CDD7D8CB8E11AAA2EDEE9A03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:77D63324A7864578CDD7D8CB8E11AAA2EDEE9A03
 magnet:?xt=urn:btih:CC32309E03D6A89F88DEAE740C6027105DAEF3CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ The Last of Us Part II (2) (2025) [Ru/En] (1.3.10430.406/dlc) Repack Decepticon 
 magnet:?xt=urn:btih:7D01B0D8BA60F787876B67F7467F243018C9188D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ magnet:?xt=urn:btih:7D01B0D8BA60F787876B67F7467F243018C9188D
 ```bash
 magnet:?xt=urn:btih:AF1B8DBC43DE62B5431815132373D9564123AE3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:AF1B8DBC43DE62B5431815132373D9564123AE3A
 magnet:?xt=urn:btih:B3B4F180121541CDBF2189CF3A8782BB4102224B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:B3B4F180121541CDBF2189CF3A8782BB4102224B
 ```bash
 magnet:?xt=urn:btih:52E8A91F21BD8E97C8BCFC2B86BFAB31875B04B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:52E8A91F21BD8E97C8BCFC2B86BFAB31875B04B5
 magnet:?xt=urn:btih:F904E565F6F9F72E5E7268E3EC663BC8154DB927
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:F904E565F6F9F72E5E7268E3EC663BC8154DB927
 ```bash
 magnet:?xt=urn:btih:3D9942DF89056B4EAA6098E222F293A4F64DA95E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Slavania - двумерная метроидвания, включающая в 
 magnet:?xt=urn:btih:57555E0AE0DBF25064907267795FB42B1C98B906
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:57555E0AE0DBF25064907267795FB42B1C98B906
 magnet:?xt=urn:btih:83C569F72B6796A5A4B8C801F93D615FA83BC391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:83C569F72B6796A5A4B8C801F93D615FA83BC391
 ```bash
 magnet:?xt=urn:btih:4FB717C566E03D02ED3E778FF888CC73CC64255F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:4FB717C566E03D02ED3E778FF888CC73CC64255F
 magnet:?xt=urn:btih:63B293127E5257A54FC52D4327B9E2578EA15516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Sakasama no Patema | Patema Inverted | Патэма наоборот [2013, Movi
 magnet:?xt=urn:btih:96CD7088E4B48FA8F608CBC0DC4E1E65C0C4AD7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:96CD7088E4B48FA8F608CBC0DC4E1E65C0C4AD7A
 ```bash
 magnet:?xt=urn:btih:9C9B0597BDE6CFC4B54D4E09CE90B241FF1D1863
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ VA - Apathy (2025) [MP3|320 Kbps] <Metal, Hard-Rock>
 ```bash
 magnet:?xt=urn:btih:4316DC132A46D729CA532ABB99783DCBC3C30125
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

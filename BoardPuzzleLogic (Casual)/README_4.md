@@ -19,6 +19,8 @@ Klocki (2016) [Ru] (1.5) Repack WetGrapesStudio
 magnet:?xt=urn:btih:D7B40DAEA5906F33F3FE51CF6E3EAC573918C7B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Fort Meow (2015) [En] (1.0.0) Repack ZEKE
 ```bash
 magnet:?xt=urn:btih:9193F9BAFDB938E5156AAF9B5696765655FA3E60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Pirate Jigsaw (2015) [En] (1.0) Repack ZEKE
 magnet:?xt=urn:btih:2573EE767EBED030493263B433254ECD8B2EB6D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Turner (2016) [En/Es] (1.5) Repack Other s
 ```bash
 magnet:?xt=urn:btih:12B56B8872E7EE452037E477E95AE672CDCDAAC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Pirates of New Horizons: Planet Buster (P) [En] 2012
 magnet:?xt=urn:btih:9D239EFB9D03A5A8B0713043E9BB9A2CAA58265D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Runic One (2005) [En] (1.04) Unofficial
 ```bash
 magnet:?xt=urn:btih:58BA3464B3F8796BA9EAC43E65B8EB8A487A9EEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Puyo Puyo Champions (2019) [Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:20F8D6F7BDCC91705C7838A06F8F916428D813F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ VELONE - увлекательная головоломка, вдохновлен
 ```bash
 magnet:?xt=urn:btih:8857197D8CE1854B9C74E118810BE537E5E3BF60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Armello сочетает три стиля игры: карточную такт
 magnet:?xt=urn:btih:A723614A6AAF5D554F9E834610D9ADCAD63A5EE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Clue/Cluedo: The Classic Mystery Game — игра, в которой вы ок�
 ```bash
 magnet:?xt=urn:btih:6EAB464CB638E46D3C61D7E18B644F93B380463C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Chess Ultra (2017) [Ru/Multi] (4.15.1) Repack R.G. Catalyst
 magnet:?xt=urn:btih:B832C44FD24A61D604D3CC7D2CECEE5A9E9AAC0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ History2048 - 3D puzzle number game — это знакомая логическ
 ```bash
 magnet:?xt=urn:btih:7B8D19AD95EA05D8216E49A854FE8DC0130C11E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Obulis (Eng) [P] (2008)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Armello сочетает три стиля игры: карточную такт
 ```bash
 magnet:?xt=urn:btih:4F46E629D793FB94C499CB60AE3BB01559402569
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Old Clockmaker's Riddle {0.1.20} (P) [Ru] 2012
 magnet:?xt=urn:btih:C973C2F873DDF445623E7ED4E9E17DC661EC4224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Burnstar — это захватывающая экшн-головоломка, 
 ```bash
 magnet:?xt=urn:btih:037F98F2C0CA08F67827769FDCE99162C9F1A1D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Burnstar — это захватывающая экшн-головоломка, 
 magnet:?xt=urn:btih:B502596FDE50DF12E7ABA6CAC6803A6D3E31F3B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Chess Ultra — современный подход к величайшей ст
 ```bash
 magnet:?xt=urn:btih:AD7890F24DE0AD28DEAFA59F5C656053CD1D33A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Electric Circuit (2015) [Ru/En] (1.0) Repack Other s
 magnet:?xt=urn:btih:4C078DFEAE1AFE5ED062E06BB288795A02DA2F40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Burnstar — это захватывающая экшн-головоломка, 
 ```bash
 magnet:?xt=urn:btih:5D0712DDE8CFFFD3025E403A18B6B3978C48620B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Star Vikings – это ролевая игра-головоломка для л
 magnet:?xt=urn:btih:200F9AE3FF1D699C46FAAEB59223FB63B7E8218E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Lucas Chess - лучшая из обучающих шахматных прогр
 ```bash
 magnet:?xt=urn:btih:75E362A522E4D32052AB6AD0ED29618780698F01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Metamorphic — аркадный 3D-платформер от первого л�
 magnet:?xt=urn:btih:D899893D2AAE1FEDD86EC0A2319790F272324915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Hieroglyphika – это отчаянная попытка спастись из
 ```bash
 magnet:?xt=urn:btih:C0B014F6826FEDDB86377576CEAEDB9966B2E247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Pretty Snails / Спаси улиток! (2017) [Ru] (1.0) Unofficial
 magnet:?xt=urn:btih:BDF47199C0E07EDCB66B194120CEFC7E4F897ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Getting Over It with Bennett Foddy - это карательная игра в �
 ```bash
 magnet:?xt=urn:btih:53FE5AF6221D58A71566DF6B1E5623A889CB64B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

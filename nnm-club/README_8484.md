@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3138D6B60791FBC78D1FE2734E3CB268B825853D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Ventoy - это инструмент с открытым исходным код
 magnet:?xt=urn:btih:E30CD5761502311A1BA88DFC911ECBD18F048A50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Stephen DeStefano | Animating SwiftUI Applications (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:B6D5CA99800EEB22B48A346FE6BAEA6F822D7779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:B6D5CA99800EEB22B48A346FE6BAEA6F822D7779
 magnet:?xt=urn:btih:493A1656AC59DE76B72547454702AC67727899F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:493A1656AC59DE76B72547454702AC67727899F1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:493A1656AC59DE76B72547454702AC67727899F1
 magnet:?xt=urn:btih:6635B73D179E0409CD90F38EAB18FE1320EDCF12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Max Cruise - Night Cruise (2022) [MP3|320 Kbps] <Synthwave, Retrowave>
 magnet:?xt=urn:btih:7E3C66369982D0AB6331BE4EEF18D7CBDC51A94C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 ```bash
 magnet:?xt=urn:btih:3B0F594D61F011150169FC95CF5D1EB7E4F95B90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:3B0F594D61F011150169FC95CF5D1EB7E4F95B90
 magnet:?xt=urn:btih:87ED8716A66F0D85C10DC91677603EC9D0ABA40A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ System Dashboard Pro — это современная интерпретаци�
 ```bash
 magnet:?xt=urn:btih:31D9ADB65E699B50B0AD4CCBA141655A78AE70DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ Melanie Martinez - Portals (2023) [FLAC|Lossless|tracks + .cue] <Pop>
 magnet:?xt=urn:btih:527B208B3B910AD98412D1940AFFD3DBE809966A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Switch Audio File Converter Plus, помимо конвертирования, �
 magnet:?xt=urn:btih:407765AEEB6EFE1B8F2F6B431E7A4D1CB5CE4D77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:407765AEEB6EFE1B8F2F6B431E7A4D1CB5CE4D77
 ```bash
 magnet:?xt=urn:btih:70624B738E13D17FCEE5C06617D094557289AE2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:70624B738E13D17FCEE5C06617D094557289AE2D
 magnet:?xt=urn:btih:8614E8213256BA87C9880475A98D732EBB2AF157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:8614E8213256BA87C9880475A98D732EBB2AF157
 magnet:?xt=urn:btih:86727B5DED609AAA3F87E9EA16A264CFDF5B3113
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:86727B5DED609AAA3F87E9EA16A264CFDF5B3113
 ```bash
 magnet:?xt=urn:btih:FD8B521026EA758147007455F5F3F03BC28040A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ VA - Dance Workout (2023) [MP3|320 Kbps] <House, Dance>
 magnet:?xt=urn:btih:A07CEBC2CA662ED832064A1FC9F1CC93DB49C974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:A07CEBC2CA662ED832064A1FC9F1CC93DB49C974
 ```bash
 magnet:?xt=urn:btih:7313918A6EDD4616CD1980E284A2CEC0D7D35CD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ Lafleur –	Dance Till We Drop(   Читать дальше...   )Жанр: Elec
 magnet:?xt=urn:btih:36C9E0021C95E737A6D918DC2A50EDEF9B9AAB73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ Marta and Tricky - When It's Going Wrong (2023) [FLAC|Lossless|WEB-DL|tracks] <T
 magnet:?xt=urn:btih:29DB8569A7CEA64F497E09FD4DD6B9ECB63C88B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ Windows 10 Pro 22H2 19045.2728 x64 by SanLex [Lightweight] [Ru/En] (2023.04.04)
 ```bash
 magnet:?xt=urn:btih:3CC471CA9663773AF874B58FB9547C12680F2A1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ Animal Planet. Переводчик с собачьего (7 сезонов, 138
 magnet:?xt=urn:btih:4727EE50FBAC287482B6E51AE55FA0F0551EEF0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ Altium Designer — это мощная система, позволяющая �
 ```bash
 magnet:?xt=urn:btih:7257BB1FC42D6385148A705F94BB178CDC272714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ Microsoft® Windows® 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy 03.2023 1DVD
 magnet:?xt=urn:btih:A3EE669580A77A179D1EAF1DEF11C2DC92E9DE71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:A3EE669580A77A179D1EAF1DEF11C2DC92E9DE71
 magnet:?xt=urn:btih:C837B93D2E66B5C6B4C3D6303AB89C6934A36207
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:C837B93D2E66B5C6B4C3D6303AB89C6934A36207
 ```bash
 magnet:?xt=urn:btih:FEFAE159FDC57F29E1A9A2115D86F6B276B22FBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

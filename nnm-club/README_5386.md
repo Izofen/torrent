@@ -19,6 +19,8 @@ Mylene Farmer 2019 – Le Film (2019) BDRip [H.264/1080p-LQ] [PR]
 magnet:?xt=urn:btih:F6B92D114A46C16DA189EC7CB615AE07EA6F6B2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ MyGrain - MyGrain (2011) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 magnet:?xt=urn:btih:142B9881989DC73688E9906E3439995209DA171E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:142B9881989DC73688E9906E3439995209DA171E
 ```bash
 magnet:?xt=urn:btih:3D39BBCD9DE4034F6ED0ED7983FD1BE85996563E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Saltpig - Saltpig (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Psych Stoner Doom/
 magnet:?xt=urn:btih:4C249F250338993B7BF692C0AC3140C9CA75576E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:4C249F250338993B7BF692C0AC3140C9CA75576E
 ```bash
 magnet:?xt=urn:btih:835BE03C38093E2C21D33CCCE2AD95F731BE5D80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ VA - A Touch of Sensual Chillout (2021) [AAC|~293 Kbps] <Lounge, Chill Out, Down
 magnet:?xt=urn:btih:CF8AEDCA1F31D74BF82E388676453730204F39FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:CF8AEDCA1F31D74BF82E388676453730204F39FE
 ```bash
 magnet:?xt=urn:btih:66BA14A9C33129B88801FE5F8556E70292107C59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Fleshworks - Diabolus ex Machina (2023) [MP3|320 Kbps] <Death Metal>
 magnet:?xt=urn:btih:9CF91D838DD18824C4F13E94634DF4F4ACE6441E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Sweet & Lynch - Heart & Sacrifice (2023) [FLAC|Lossless|image + .cue] <Hard Rock
 ```bash
 magnet:?xt=urn:btih:BC8CB2F2AE5E48774AFF979E0881CBA4317899A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ VA - Chill out Mood, Vol. 4 (2021) [AAC|~315 Kbps] <Lounge, Chill Out, Downtempo
 magnet:?xt=urn:btih:79EB06CB0DF6C8F8B685036BED3C2A471559F067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ magnet:?xt=urn:btih:79EB06CB0DF6C8F8B685036BED3C2A471559F067
 magnet:?xt=urn:btih:35829D05AD16DDB972F40B009EC817DA4F382FE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:35829D05AD16DDB972F40B009EC817DA4F382FE1
 ```bash
 magnet:?xt=urn:btih:03207A6906C4EBD7B8FB01F70ED7939D66E57A02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ Acker Bilk - Stranger On The Shore (The Best Of) (2001) Sanctuary Records [FLAC|
 magnet:?xt=urn:btih:DE79D60D07AF7E8C22596EE7C3EAB29388A371D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +385,8 @@ Mygrain - Signs Of Existence (2008) [APE|Lossless|image + .cue] <Melodic Death M
 magnet:?xt=urn:btih:3C4278A5023FE425728949B80E2E757014766D13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:3C4278A5023FE425728949B80E2E757014766D13
 magnet:?xt=urn:btih:493EA68A794E8DFF21F19F11428DF1308C3C60B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:493EA68A794E8DFF21F19F11428DF1308C3C60B3
 ```bash
 magnet:?xt=urn:btih:8A966E5DFCC0F8EFA9313CB4244ADA66CA775C95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +466,8 @@ Baltak - Kral Na Dva Svetoj (King Of Two Worlds) (2000) [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:24E54A6DC1D735F93B89D5D999F98C4622911362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +494,8 @@ magnet:?xt=urn:btih:24E54A6DC1D735F93B89D5D999F98C4622911362
 magnet:?xt=urn:btih:DEC7ECFDB4B9A602B31BFF58EBCC9D6607105584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ Snappy Driver Installer (SDI) - портативная программа для
 ```bash
 magnet:?xt=urn:btih:0E101BEA6360D1B0202A97ED42067FB239BA9083
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +549,8 @@ VA - New Age Style - Enigmatic 30 (2019) [MP3|320 Kbps] <Electronic, New age, En
 magnet:?xt=urn:btih:ECF001B891F07C3BDC28DA7F821B35AE5EB8DB91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +574,8 @@ PhotoDirector - функциональный, но весьма простой �
 ```bash
 magnet:?xt=urn:btih:F856188718304CEE9B0B0FCAF0D1D0D627E03C57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +604,8 @@ Mygrain - Orbit Dance (2006) [APE|Lossless|image + .cue] <Melodic Death Metal>
 magnet:?xt=urn:btih:2E1E021E3EB6A19E332368E7113C66E698565F31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ AllWinUSB Constructor by SmokieBlahBlah 10.06.20 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:65711CEDC16138E11697867226B2E9696D6FB2FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +661,8 @@ Battle Born - Blood, Fire, Magic And Steel (2023) [FLAC|Lossless|image + .cue] <
 magnet:?xt=urn:btih:60D019D8457535E21EC498B6136237CB5A9678E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +686,8 @@ magnet:?xt=urn:btih:60D019D8457535E21EC498B6136237CB5A9678E7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -665,6 +715,8 @@ VA - Chill out Mood, Vol. 3 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:35F36030B754137C2D8142D01DF9E1BAEC887E9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

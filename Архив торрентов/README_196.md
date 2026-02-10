@@ -19,6 +19,8 @@ Auslogics Driver Updater – программа представляющая с�
 magnet:?xt=urn:btih:8D9C31C8F3B8F1DE24C866AFB759D738BFBB93F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ UltraSearch Professional - находит файлы и папки на лока
 ```bash
 magnet:?xt=urn:btih:9A269C0E89A681DBFD4034BF6ACE8663FEB5FFAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Advanced Renamer хоть и бесплатная (   Читать дальше
 magnet:?xt=urn:btih:0B9C6B631177F87028686618184E27DD64EE2314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:B1CA0793482FCB22F5C12D5AD39E9837158779C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:D1A45A3ADF79135040B5ECD3529375B599DEC1BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Bulk Image Downloader – это программа для загрузки из
 ```bash
 magnet:?xt=urn:btih:6A28BAA231020D6BF06019EEE9D3841077ECBF41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Turbo Studio - это программа, которая служит для в�
 magnet:?xt=urn:btih:7B54897CFED6DBF22C5F39F8FBBF2693F6139FF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:CBB3D038CBD48426A5E16030BDDA0C6C7EAD6DA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ CareUEyes служит для изменения цветовой темпера
 magnet:?xt=urn:btih:B604B83EBCBFE93D6480EE301D48287AB711C7B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 ```bash
 magnet:?xt=urn:btih:DA1F95768BCEB1C4FB10D3A809BF2E46323865B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Office Tab Enterprise новая версия небольшой, но очен�
 magnet:?xt=urn:btih:4688E8F142D64049DFA5F36F83FD817396B2BAC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 ```bash
 magnet:?xt=urn:btih:C35683D189EE56C111C9A100270AAF509927CD75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ PhpStorm – это интегрированная среда разработк
 magnet:?xt=urn:btih:6A61F1E6F50EE774910150C03F408113231F64D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ XnView MP - мощное многофункциональное приложен
 ```bash
 magnet:?xt=urn:btih:173CA57E468F104A6202AED51D5E9CB4BA8E48A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ JetBrains IntelliJ IDEA Ultimate - это профессиональный ин�
 magnet:?xt=urn:btih:C3E99E403E3C6C8B272259FC7F1160D9C7B5D5C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Office Tab Enterprise новая версия небольшой, но очен�
 ```bash
 magnet:?xt=urn:btih:44E0629E6B82B1290F00082503E5831CF673331A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ JetBrains PyCharm Professional – это мощная и многофункци
 magnet:?xt=urn:btih:CD40A58E7CDEB1DE7380AB5813C0E1D1C27689C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:B7D57CF58B669877A2F5DB7D99B6BF34B8B179C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ HomeBank можно настраивать полностью под себя, �
 magnet:?xt=urn:btih:4B251982BB0A4701A11CB8933ECCD68746EE0F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ MediaHuman YouTube to MP3 Converter 3.9.9.95 (3008) RePack (& Portable) by elchu
 ```bash
 magnet:?xt=urn:btih:19717C0C8F6C82732A35C13922F2D9836A663DF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ UltraSearch Professional находит файлы и папки на локал
 magnet:?xt=urn:btih:DDFB01597F7FF551E76575D302D69A5619681C4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:671DD295EB85641957CD1C84D867523A2DA93D91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ WinTools.net – набор инструментов для оптимизаци
 magnet:?xt=urn:btih:EF3ADDF5830249A377922B78777D78FE08FA4D2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Draw.io 24.7.8 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:442A4DC41883360CB2E614274166B1680D89E165
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ PdfSAM - бесплатная и простая в использовании у
 magnet:?xt=urn:btih:C18849619F325991B3623C5DBC966681177006C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Ocenaudio — аудиоредактор, распространяемый ав�
 ```bash
 magnet:?xt=urn:btih:A04BAD92053BD80AC16C6CC973007B83F48A2F57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

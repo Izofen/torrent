@@ -22,6 +22,8 @@ VA - Miami Downtempo Hits 2023 [FLAC|Lossless|tracks] <House>
 magnet:?xt=urn:btih:341B4A61ACA8D58F601C0EA84B2C4343FABBE1AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:341B4A61ACA8D58F601C0EA84B2C4343FABBE1AD
 ```bash
 magnet:?xt=urn:btih:BF1886FEB522916441883402CC51C0C0411FD41B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ CameraBag позволяет мгновенно применить одну из
 ```bash
 magnet:?xt=urn:btih:7E7662197EB3EF80203D7819376E0AA6D099A60A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ VA - Black Hole House Music 03-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 magnet:?xt=urn:btih:1471790A7E0F7BC757F311B258AEC7A5F9ED351C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:1471790A7E0F7BC757F311B258AEC7A5F9ED351C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Paloma Faith ‎ - Do You Want the Truth or Something Beautiful? (2009) [FLAC|Lo
 magnet:?xt=urn:btih:1114BF7B69BAD76A7E271F59787825512483E599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ VA - WMC Miami 2017: Deep & Chill Beats (2017) [MP3|320 Kbps] <Deep House, Chill
 magnet:?xt=urn:btih:13ECC772EE9E53C8F409C2DDF9B305B83DAF1496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Rename Expert - программа предназначена для быстр�
 ```bash
 magnet:?xt=urn:btih:B7E389DE1450261B478641BC8593A824CA785DBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ DISC 3:Жанр: KrautrockПродолжительность: 3 CD, 03:39:45
 magnet:?xt=urn:btih:8B700738AFEAE0A0D81E3440A579441F3D74BF76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:8B700738AFEAE0A0D81E3440A579441F3D74BF76
 ```bash
 magnet:?xt=urn:btih:84459764EA5DBE06008CC3FFF599CE5696478338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ VA - Uplifting Only Top 15: April 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <T
 magnet:?xt=urn:btih:EE1FF54E0C4BB355C6327A678ABE959EC3BF7506
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:EE1FF54E0C4BB355C6327A678ABE959EC3BF7506
 ```bash
 magnet:?xt=urn:btih:B39C67F4351E7FEF47509C982DF4DE1B8EA69948
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +355,8 @@ VA - Best Of Disco Balls Records 2019, Pt. 3 (2020) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:ACA5EB574BA3FD5E59CCE24BC0F6D1EDE15C7A81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +384,8 @@ VA - Makes Sense To Me Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillou
 magnet:?xt=urn:btih:C4C894CF809B73B0CCE41597A2454A2CB2BD5F58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ magnet:?xt=urn:btih:C4C894CF809B73B0CCE41597A2454A2CB2BD5F58
 ```bash
 magnet:?xt=urn:btih:9AA5A8C2B54D9E78100EFBE094332C5912614FE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +439,8 @@ Suicide Silence - Remember... You Must Die (2023) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:080444218A41A532864E8DB02E85D80A92DD0F70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +468,8 @@ VA - The Best 50 of Romantic Classical Music (2023) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:64CC2A4988139527B824224F330CE525CCE28405
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ InstantGrid - это быстрый и мощный инструмент для 
 ```bash
 magnet:?xt=urn:btih:6FFD7DDD2809B1D7408DB5A1B3BEE0884CFE8216
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +521,8 @@ magnet:?xt=urn:btih:6FFD7DDD2809B1D7408DB5A1B3BEE0884CFE8216
 magnet:?xt=urn:btih:C6B200B8DC5DB7C6617B7172D4041AC02DF987E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +547,8 @@ Photo Supreme — вспомогательная программа для вл�
 magnet:?xt=urn:btih:051F2F18971639355569B5264ED00F29BF75A1E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:051F2F18971639355569B5264ED00F29BF75A1E3
 ```bash
 magnet:?xt=urn:btih:3A240A5F681D952E5A2C6A7EBE808C85FE1AF0F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +602,8 @@ VA - Cafe Tropicana Vol.2 (30 Well Selected Lounge Tracks) (2017) [MP3|320 Kbps]
 magnet:?xt=urn:btih:DD9B0477D21C46DD977B91156CDACD379A09E57E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +630,8 @@ VA - Rock 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:2F459D98AABA468969E27D9BABF15A46505B3CCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +660,8 @@ Harry Allen - Blue Bossa (2013) Swingbros Co. [FLAC|Lossless|image + .cue] <Main
 magnet:?xt=urn:btih:5C2874BAA87F3B87FD96627FF8B91D87A7B8E486
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +685,8 @@ magnet:?xt=urn:btih:5C2874BAA87F3B87FD96627FF8B91D87A7B8E486
 ```bash
 magnet:?xt=urn:btih:446723C2033D036D3CCD0836A12B98CDAA47A2DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +714,8 @@ Rainbow - The Platinum Collection (2019) 3CD [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:B159DD7718B0B0F5767837FD8606C9B40D16BDF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

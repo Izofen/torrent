@@ -19,6 +19,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:2F7586FDCB17E5DD38ECBEA13DF9E3B05092186A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Discovery: В поисках Святого Грааля / In Search of the Holy
 ```bash
 magnet:?xt=urn:btih:8D518E41497C80D86E0D85F836C77C35A5F4838B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ FastCopy - инструмент для быстрого копирования/�
 magnet:?xt=urn:btih:F2231F63B14FFE0ABDF1B22D2AD66208FFCC0976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:F2231F63B14FFE0ABDF1B22D2AD66208FFCC0976
 ```bash
 magnet:?xt=urn:btih:08CDB018A01B087864CE5B93A745C6B7E0C222B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:08CDB018A01B087864CE5B93A745C6B7E0C222B2
 magnet:?xt=urn:btih:D7F05E503645E3454A90F408605DE98F3469A045
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:D7F05E503645E3454A90F408605DE98F3469A045
 ```bash
 magnet:?xt=urn:btih:073BB5A4A41AF7A2487FA5C7843F081A048D2E11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:073BB5A4A41AF7A2487FA5C7843F081A048D2E11
 magnet:?xt=urn:btih:C70A386C6FEA7A8ED4A686B97C89F37427BCEC1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ CopyQ это легкий, но многофункциональный мене�
 ```bash
 magnet:?xt=urn:btih:40F01DE3C8D2CF0B0B15A20982EE2AF1240580AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:18CA7140BA2545DE7F841326C53656BC567052B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:18CA7140BA2545DE7F841326C53656BC567052B4
 ```bash
 magnet:?xt=urn:btih:C8CC52E9B62CE5175C219DF6CEFD0C5B772B96EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:C8CC52E9B62CE5175C219DF6CEFD0C5B772B96EF
 magnet:?xt=urn:btih:0F1140F6C50B6E921EC4FB9EB73EE1FBBB1888A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:0F1140F6C50B6E921EC4FB9EB73EE1FBBB1888A0
 ```bash
 magnet:?xt=urn:btih:BC020DCCACE204C5DA0EFD1B53AED6DDB00A547B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Dark voice of Angelique - Adult Content (2022) [FLAC|Lossless|WEB-DL|tracks] <El
 magnet:?xt=urn:btih:3DCD0EE4424E41006B3E239BDF39D2A9BF3C346D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:3DCD0EE4424E41006B3E239BDF39D2A9BF3C346D
 ```bash
 magnet:?xt=urn:btih:5B4F3C9F6CD3008E247A3DC972B2F63CDF81A6D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ CD1:
 magnet:?xt=urn:btih:90ADE174527A83E66EBA88422A8D639D8576ED88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ Edenbridge - Shangri-La (2022) [FLAC|Lossless|image + .cue] <Symphonic Power Met
 magnet:?xt=urn:btih:A49F39AB72F025E5C414B4B132B8943AAD8A76E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:A49F39AB72F025E5C414B4B132B8943AAD8A76E4
 ```bash
 magnet:?xt=urn:btih:BB62DCFB8EBF9AB245D589FA74440AF20D66F77B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ Riven Earth - 3 Albums (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Ro
 magnet:?xt=urn:btih:2D2C64369E1B2AED43B27EFDAAC5A10C7E48023C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:2D2C64369E1B2AED43B27EFDAAC5A10C7E48023C
 magnet:?xt=urn:btih:61AE5A4A117C20DBB42FA5DDFC20C617AD7F89F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:61AE5A4A117C20DBB42FA5DDFC20C617AD7F89F8
 ```bash
 magnet:?xt=urn:btih:DCEA4210CAFEFAA2A5DDFF0F4BA039F5BEB5C3FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:DCEA4210CAFEFAA2A5DDFF0F4BA039F5BEB5C3FA
 magnet:?xt=urn:btih:EB8DA458E4170E0BBF1A98F962F85C02F7E75F8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ Grimskull - Awake Asleep (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:8460C4CEFF7A73062A32018FB980BA07ED6596DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:8460C4CEFF7A73062A32018FB980BA07ED6596DA
 ```bash
 magnet:?xt=urn:btih:93CDFF0AEF887A06726251FAFC54686D7A477649
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:93CDFF0AEF887A06726251FAFC54686D7A477649
 magnet:?xt=urn:btih:02CC86273BE3447358416ED417C55074952B4DFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:02CC86273BE3447358416ED417C55074952B4DFA
 ```bash
 magnet:?xt=urn:btih:3C5B8596A168A22CCB5733323B687BB8704ECC08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:3C5B8596A168A22CCB5733323B687BB8704ECC08
 ```bash
 magnet:?xt=urn:btih:E1A3783E350E514B5B527C87584DA463B8ACE149
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

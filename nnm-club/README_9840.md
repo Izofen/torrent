@@ -1,55 +1,3 @@
-###  Публикация: 1259981   (316917) от 05.11.2018
-
-Primus - Sailing the Seas of Cheese (1991) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seas Of Cheese (0:42)
- 02. Here Come The Bastards (2:55)
- 03. Sgt. Baker (4:16)
- 04. American Life (4:33)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05DDCE4D6FF680585BC83FCA380596EE5950250
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259823   (316918) от 05.11.2018
-
-Алексей Сливицкий | Разоренное гнездо (1897) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_316918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повести и рассказы русских писателей.
-Рассказы для младшего и среднего школьного возраста.Жанр: Образование, обучение и развитие детейФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21E01EE03D78A44B045BB303429605199E685B0B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259784   (316919) от 05.11.2018
 
 Crazy Backwards Alphabet - Crazy Backwards Alphabet (1987) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Avantgarde, Free Improvisation>
@@ -73,6 +21,8 @@ Crazy Backwards Alphabet - Crazy Backwards Alphabet (1987) [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:1EAFB80124E77BA10B524EA5220FF5512FA53C00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +51,8 @@ Agora - Zona De Silencio (2005) [FLAC|Lossless|image + .cue] <Progressive Metal>
 magnet:?xt=urn:btih:6F9F28E4A96C125E926AE535ABA773204FA23399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +79,8 @@ Agora - Silencio Acustico (2008) [FLAC|Lossless|image + .cue] <Progressive Metal
 ```bash
 magnet:?xt=urn:btih:B4BF4EC47EE210FF03B289800074513112AE0A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +109,8 @@ Ari Brown - Live At The Green Mill (2007) Delmark [FLAC|Lossless|image + .cue] <
 magnet:?xt=urn:btih:6F775BE4CAC48F75D410481758F51AA957515091
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +138,8 @@ Dim Vision - Epidermis (2006) [FLAC|Lossless|image + .cue] <Death Metal>
 magnet:?xt=urn:btih:2EA68820131D66754559729126214B55C8B7BA07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +163,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:A2EA4B2F221C76CBC6157C3014F9333BBADA2A03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +190,8 @@ MediaHuman YouTube Downloader 3.9.8.17 (0611) RePack (& Portable) by ZVSRus [Ru/
 magnet:?xt=urn:btih:9D924FD4973C5AFEF968AA4825A9B5D6DC8AC179
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +215,8 @@ magnet:?xt=urn:btih:9D924FD4973C5AFEF968AA4825A9B5D6DC8AC179
 ```bash
 magnet:?xt=urn:btih:BD06880EBA98BCA6C4332B26297582E8DD29D73C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +245,8 @@ Gwen Stefani - You Make It Feel Like Christmas (2017) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:716095D7C749DDEB058FC57C4398BAF670DDDC18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +270,8 @@ magnet:?xt=urn:btih:716095D7C749DDEB058FC57C4398BAF670DDDC18
 ```bash
 magnet:?xt=urn:btih:3E7BA966C5732C5B7225DCF96C40CBF5565437AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +300,8 @@ VA - KuschelRock Christmas (2017) 2CD [FLAC|Lossless|WEB-DL|tracks] <Pop, Christ
 magnet:?xt=urn:btih:2D95F36C60F64629A5387457C154A83E053489C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +325,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:C8043FC1B0AEC5C2A899BE9C2FAD8385915ADB1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +354,8 @@ magnet:?xt=urn:btih:C8043FC1B0AEC5C2A899BE9C2FAD8385915ADB1A
 magnet:?xt=urn:btih:7E1F7B8D6A23A54F9F30840BBFFA962D3417B9EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +379,8 @@ magnet:?xt=urn:btih:7E1F7B8D6A23A54F9F30840BBFFA962D3417B9EC
 ```bash
 magnet:?xt=urn:btih:ED612BEC5E7F10C2934656DCB983213E4079C6BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +409,8 @@ Midnight Rider - Beyond The Blood Red Horizon (2022) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:4F19721D4D8FE9E2F69B1C94E493D76B77ECE48A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +435,8 @@ Chromium – веб-браузер с открытым исходным кодо
 magnet:?xt=urn:btih:74D824AD2B275C06D770B53F277FCC3122B8B09B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +460,8 @@ magnet:?xt=urn:btih:74D824AD2B275C06D770B53F277FCC3122B8B09B
 ```bash
 magnet:?xt=urn:btih:8C6212784988D9E8D326A995D6CF91DB501DBAC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +490,8 @@ Silver People - Gnome Country (2022) [FLAC|Lossless|WEB-DL|tracks] <psychedelic 
 magnet:?xt=urn:btih:E3970525C7C729449829EDD8E06693665C90477F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +518,8 @@ Joe La Barbera, Jim De Julio, Paul Smith - Jazz On Broadway (2001) Recording Art
 ```bash
 magnet:?xt=urn:btih:A082AD2D653B5476B38E0466A58666102F0405ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +548,8 @@ Royal Hell - Second Sight of the Grand Seer (2022) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:F31C7616CDD1C907285AA1045896D188E04291AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +577,8 @@ magnet:?xt=urn:btih:F31C7616CDD1C907285AA1045896D188E04291AD
 magnet:?xt=urn:btih:0A25FBC6E1AF2800263C0564392BFF37424A6AB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +602,8 @@ magnet:?xt=urn:btih:0A25FBC6E1AF2800263C0564392BFF37424A6AB9
 ```bash
 magnet:?xt=urn:btih:CC45B27612193759669C9ED7B5138761FBEB55AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +632,8 @@ The Flow - A Change Of Seasons (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 magnet:?xt=urn:btih:8079954DC3CB6842009924B86CDFA0B90492F7B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +660,60 @@ Suspyria - The Valley Of Despair (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore
 ```bash
 magnet:?xt=urn:btih:556B5FF42440916A5BA0304A37E224ABCA6E009F
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182276   (316944) от 10.11.2017
+
+Avast Clear 17.8.3705.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иногда невозможно полностью удалить антивирус Avast стандартным способом - с помощью компонента панели управления «Установка и удаление программ». В этом случае можно воспользоваться фирменной утилитой для удаления Avast.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C62EDD220661FD9A0E3AD256F426B4A17CFAFA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182369   (316945) от 10.11.2017
+
+Студия Союз (2017.11.09) WEB-DL [H.264/720p-LQ] (выпуск 14)
+
+>>Юмор (ТВ)
+>>ПостКВН
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_316945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Участники шоу «Студия СОЮЗ» будут меряться музыкальностью, чтобы сделать зрителю очень смешно. По задумке сценаристов, на шоу работают постоянные ведущие, а также регулярно приглашаются другие звезды ТНТ. Их задача: обсудить и максимально удачно высмеять популярную в данный момент песню. На обсуждение выносится все до мелочей: текст, музыка, манера исполнения и другие (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-шоу, юмор, импровизацияСубтитры: ОтсутствуютПродолжительность: ~ 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B6206A79E5654C2ECB8215AB3EF864B03A1D7B1
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

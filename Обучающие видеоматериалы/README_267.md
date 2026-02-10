@@ -19,6 +19,8 @@ Angular – это современный фреймворк от компани
 magnet:?xt=urn:btih:4A818E4349ADB98A400AAF8149CB1ED6F35F3237
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:4A818E4349ADB98A400AAF8149CB1ED6F35F3237
 magnet:?xt=urn:btih:71FFB75F5FC4AF08FE9BAFA552327AFA49E56C8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Udemy, Dmitry Zinoviev | Несложно о сложных сетях для п
 ```bash
 magnet:?xt=urn:btih:574E4A68C6663CEF51ADE01875484316180347B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:574E4A68C6663CEF51ADE01875484316180347B3
 magnet:?xt=urn:btih:363728D4E3F114FB2ABC1CBBCB541C7515F28F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Alan Ayoubi | Мега-курс Adobe Illustrator - от новичка до п�
 ```bash
 magnet:?xt=urn:btih:37C4870AFFC7AC6745744FC4C75BA8B697A16E34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ WordPress – одна из самых популярных CMS для созд�
 ```bash
 magnet:?xt=urn:btih:EA2F5DBF5B6ECD43D6E367EE8171E531184FAB8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Justin Marshall | Quick Start to Modeling in Maya.Volume 2 PCRec [EN, RU]
 magnet:?xt=urn:btih:3B5ED4951CC738361219A6E51EBB0F87AF46735B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Udemy, Rob Tuytel | Создание 3D окружения в Blender 2.81 / Cre
 ```bash
 magnet:?xt=urn:btih:6EDF29504BDAB9CBB0F0C08CCCBE5EE893AE8013
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Stephen Silver | Fundamentals of Character Design (2014) PCRec
 magnet:?xt=urn:btih:F14032BD081AC6F37E50A0318862DC9096C48722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Sam Nielson | Fundamentals of Lighting (2014) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:A5BE555730376831B063DC6BB54A6EE77DB564A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Daniel Arriaga | Characters for Animated Film (2014) PCRec
 magnet:?xt=urn:btih:33E0097B872A6FD9ACCB288EEB40B83C292F8944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Dice Tsutsumi и Robert Kondo | Painting with Light and Color (2015) PCRec
 ```bash
 magnet:?xt=urn:btih:2456E19246F791DB64C2184546C7F1F6C9C6D49E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Digital tutors, Delano Athias | Introduction to Animation in Maya (2015) PCRec
 magnet:?xt=urn:btih:19431AAD6288C10A502984CDF7217DA36FF00905
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:19431AAD6288C10A502984CDF7217DA36FF00905
 ```bash
 magnet:?xt=urn:btih:57ACBC6324D53FC1D4BB554D176499370BBF168B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:57ACBC6324D53FC1D4BB554D176499370BBF168B
 magnet:?xt=urn:btih:B00D0454AD46E05AAB7D2FAF7A2F93AD97C3175E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ MongoDB — документоориентированная СУБД с отк�
 magnet:?xt=urn:btih:1557EEC74867CCD7FF0FED9F1DE388AF9776A224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ Maher Haddad | MikroTik RouterOS Security Engineer with LABS (2019) PCRec [En /E
 ```bash
 magnet:?xt=urn:btih:F5E92FB55A16A5888251D08A66407D574DF4BCDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ Terryl Whitlatch | Creature Anatomy (2016) PCRec [En, Ru]
 magnet:?xt=urn:btih:45CE35AE3B3CAF81E48B39CB9C232569596EA42D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ Udemy, Mrawan Hussain | Создание реалистичного BMW 507 от
 ```bash
 magnet:?xt=urn:btih:594486982FE4A35A646A2DC9779D6FF3C2C35EBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ Christoph Rumpel | Освоение PhpStorm / Mastering PhpStorm (2021) PCRec [
 ```bash
 magnet:?xt=urn:btih:F092D7AD39DB9DCC586971F270A62B6923F58ED8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ Redshift для Cinema 4D: Ч.2 – это ваше полноценное (ви
 magnet:?xt=urn:btih:B032680B4D96C696487F5AB5F75EA992A84CDD34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ Trevor Kerr, Chad Ashley | Guide to Redshift (2018) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:38B029F9D0EF5F607B0D53716250972BF71199CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ Tellama | Медицинский английский (2021) WEB-DL
 magnet:?xt=urn:btih:FF667437D7D54DDB79BE7006298C3C45DCEFA5AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ Jake Parker | How To Draw Everything (2016) PCRec
 magnet:?xt=urn:btih:A1941C2D722AB5647C5F5AD7B3DAC775C0536011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ Maciej Kuciara | Environment for Video Games: Production Illustration (2014) PCR
 magnet:?xt=urn:btih:435B441AEB5C29657B74E58A778E6469839AE156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ Marek Okon | Part Two: Illustrating Colossus (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:F3094F075A075895A69EF3E2187A71767141341F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

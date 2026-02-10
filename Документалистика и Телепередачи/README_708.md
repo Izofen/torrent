@@ -1,3 +1,29 @@
+###  Публикация: 979298   (959974) от 26.01.2016
+
+Время. Первый канал 21-00 (25.01.2016) HDTVRip [720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Информационно-аналитическая программа Первого канала Время - выходит в эфир в 21:00 по Московскому времени. Производится Дирекцией информационных программ ОАО «Первый канал». Практически в первые годы вещания программы сформировалась концепция очерёдности подачи новостей, которая сохранилась до наших дней: первые лица государства, вести с периферии, экономика, культура, (   Читать дальше...   )Телекомпания: Первый каналЖанр: Информационно-аналитическая программаПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F35B9D14E393AD8A03A77A9E6216FB9F1B4F501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979515   (959975) от 26.01.2016
 
 Открытая студия. «Молдавия: призрак революции»  (26.01.2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:C9477722D2CCB29FB3B2619865A43A9148E9CED8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:C9477722D2CCB29FB3B2619865A43A9148E9CED8
 magnet:?xt=urn:btih:2C27CDDB38E9144F02F03DDE7BE4E7AB42C7789E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:2C27CDDB38E9144F02F03DDE7BE4E7AB42C7789E
 ```bash
 magnet:?xt=urn:btih:7A781DD89F2AC2D756D3EC23C5A956ACE29BA24C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:7A781DD89F2AC2D756D3EC23C5A956ACE29BA24C
 magnet:?xt=urn:btih:18823DA3902349BC1D4F5235E31E89DBAD3C4405
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:18823DA3902349BC1D4F5235E31E89DBAD3C4405
 ```bash
 magnet:?xt=urn:btih:C19D7DFF2E1E219D558BBA1F83ABBA1F2896F66E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:C19D7DFF2E1E219D558BBA1F83ABBA1F2896F66E
 magnet:?xt=urn:btih:9F0898FB07CED79EABFC7C1C16F65FECF991BA8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:9F0898FB07CED79EABFC7C1C16F65FECF991BA8F
 ```bash
 magnet:?xt=urn:btih:BC5B59B2E87F3DE71B27473CFFAE1B0846281EE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:BC5B59B2E87F3DE71B27473CFFAE1B0846281EE5
 magnet:?xt=urn:btih:F79116FA1EA98FD66BB23576CF70E32BFCC19AB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:F79116FA1EA98FD66BB23576CF70E32BFCC19AB5
 ```bash
 magnet:?xt=urn:btih:B303589DE03384C08A17ADCC9A84710D3DBCC395
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:B303589DE03384C08A17ADCC9A84710D3DBCC395
 magnet:?xt=urn:btih:C09F08768C4BFE9E7038D753DEA92E169D43EC1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:C09F08768C4BFE9E7038D753DEA92E169D43EC1B
 ```bash
 magnet:?xt=urn:btih:18096E2274640E5EAD0CB47B22A09E7172AC2CF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:18096E2274640E5EAD0CB47B22A09E7172AC2CF7
 magnet:?xt=urn:btih:2A1E77698F1A7E29EEAB3A34DA16F7FCB2D6F906
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:2A1E77698F1A7E29EEAB3A34DA16F7FCB2D6F906
 ```bash
 magnet:?xt=urn:btih:42C152D3C2E05971E19ECCB1B9AC57CB16CB5D7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:42C152D3C2E05971E19ECCB1B9AC57CB16CB5D7B
 magnet:?xt=urn:btih:D18CC18BAD06F4C0631DFE53B9A7FAD1D2E16B9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:D18CC18BAD06F4C0631DFE53B9A7FAD1D2E16B9F
 ```bash
 magnet:?xt=urn:btih:55CE095393C616652FA2E95221587D5F4B4183F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:55CE095393C616652FA2E95221587D5F4B4183F3
 magnet:?xt=urn:btih:E3DB8421920380D91F4EF28F41E68F94CDBF81BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:E3DB8421920380D91F4EF28F41E68F94CDBF81BF
 ```bash
 magnet:?xt=urn:btih:78E79D68B68095CB2FD2032514099E773AC7710D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:78E79D68B68095CB2FD2032514099E773AC7710D
 magnet:?xt=urn:btih:8167C4E2A7B73346235D1AE1A35B7CCE21B333B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:8167C4E2A7B73346235D1AE1A35B7CCE21B333B6
 ```bash
 magnet:?xt=urn:btih:938608318DC2176DF04B4C13D9B4DA12C6FBEE17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:938608318DC2176DF04B4C13D9B4DA12C6FBEE17
 magnet:?xt=urn:btih:19C498D9267C8E8DFA362B35F77C1625C09E56FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:19C498D9267C8E8DFA362B35F77C1625C09E56FD
 ```bash
 magnet:?xt=urn:btih:DB09051C5B330E7C064F27B5BB10E480544BBFE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:DB09051C5B330E7C064F27B5BB10E480544BBFE8
 magnet:?xt=urn:btih:EEA5C2BBC8BB301186934F0C28F455630D6966B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:EEA5C2BBC8BB301186934F0C28F455630D6966B0
 magnet:?xt=urn:btih:C76EF008AD32AD3E35DE4C4FD27BD1D513F897B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:C76EF008AD32AD3E35DE4C4FD27BD1D513F897B4
 ```bash
 magnet:?xt=urn:btih:8A752DAAF820FD71CDBD1D75F6878AFFB13E9FE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:8A752DAAF820FD71CDBD1D75F6878AFFB13E9FE2
 magnet:?xt=urn:btih:976149D4BA5F8E569EE5715C31CD5753F36E2EC3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978828   (962295) от 24.01.2016
-
-Вести недели (24.01.2016) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962295.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вести недели» - еженедельная итоговая информационная программа Всероссийской государственной телерадиокомпании, выходящая в эфир по воскресеньям в 20.00, с хронометражем от 1 часа 10 минут до 1 часа 30 минут. Программа «Вести недели» не имеет рубрик, но внутри неё может показываться в кратком виде фрагменты из программы «Специальный корреспондент».Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 01:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73BC7049AE6D18BE92A0185984EA9AF9704FED2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ A4 It Could Be Sweet(   Читать дальше...   )Жанр: Trip HopПро
 magnet:?xt=urn:btih:A6902D2FA54D225761699AFFA2FC04E7EA9361DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Warwolf - The Apocalyptic Waltz (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <He
 ```bash
 magnet:?xt=urn:btih:26082B17B761D64110F33158E827A63FBA1B5931
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Diablo — финская мелодик-дэт/грув-метал группа
 magnet:?xt=urn:btih:100F36BE192373B50EC264E0DA07BE6F3FF8BBAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ A4 Marras IV(   Читать дальше...   )Жанр: Atmospheric Black Meta
 ```bash
 magnet:?xt=urn:btih:866859237EE73B837E31A8575A50C5D43C9EC52E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ A4 Передай По Кругу • Pass It Around(   Читать дальш�
 magnet:?xt=urn:btih:E0718BE65DF1F601E27263ED05CC94FAF316A20C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ DISC 02Жанр: IDM, Electro, House, TechnoПродолжительность: 
 ```bash
 magnet:?xt=urn:btih:A1BB07EB0915DB8BF4B6EB0C820358E3C1EE2085
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +195,8 @@ Nina & Ricky Wilde - Scala Hearts (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:B3AEC8FA08C8A3ADD5D0BF31081B510F2021A098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +223,8 @@ KK's Priest - The Sinner Rides Again (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:D1E288E367D0D2E502FC477F161088CF63C2B97C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ Stam1na - X (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive, Thrash, H
 magnet:?xt=urn:btih:82B096B1E7851E67B6CF05F9D7C848CC7AEF4A9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ Blackbriar - A Dark Euphony (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphoni
 ```bash
 magnet:?xt=urn:btih:30B447CB66805D376947ACD5679D9C93B0909FC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ Bullant - Late Life Circ (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Techno, E
 magnet:?xt=urn:btih:C311F82582F5A38D8E4C7D93E6619BD3032F0B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +339,8 @@ Fat Freddy's Drop & Kings - Blackbird Returns (2023) [FLAC 24/44.1|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:CCDAF022DB4A027A504AD33A8ECE9A1A068B0BAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +369,8 @@ The Hirsch Effekt - Urian (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Mathcore
 magnet:?xt=urn:btih:AC273EB87600ACAF799EA0990CD35F1EF0A8AEEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +397,8 @@ Psychework - Spark of Hope (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy M
 ```bash
 magnet:?xt=urn:btih:EEDBB48E176FCC3994EE047554737A7A39F6873D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +427,8 @@ Surrender The Crown - IV - The Healing (2023) [FLAC 24/44.1|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:0A5477FAD9654CCEC1C0733B83C706387383B3E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +455,8 @@ Sleeping With Sirens - Complete Collapse (2022) Deluxe Edition [FLAC 24/48|Lossl
 ```bash
 magnet:?xt=urn:btih:26626CD8EA73B89A54FCD6F37CA7ED6A50614F9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +485,8 @@ Dyecrest - Once I Had A Heart (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heav
 magnet:?xt=urn:btih:DE78EBC993EB0397F64D9E698F5FA2D66F7E40CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +513,8 @@ A4 Harvest(   Читать дальше...   )Жанр: Atmospheric Black Metal,
 ```bash
 magnet:?xt=urn:btih:286D147BF5175D13BBB35059C4C2EEA5C0C1B24C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +543,8 @@ Atena - Subway Anthem (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive 
 magnet:?xt=urn:btih:50267A417E405875D734BE0AABC4BEA48D428420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +568,8 @@ Green Day - Dookie (1994) 30th Anniversary Deluxe Edition, 2023, Reprise [FLAC 2
 ```bash
 magnet:?xt=urn:btih:875BEF69C6A17BB82E6323F296C0E105B6BEA922
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +598,8 @@ Martin Simson’s Destroyer of Death - Eternal Reign (2023) [FLAC 24/48|Lossless
 magnet:?xt=urn:btih:C4A00286A0FB36A6B151A9FC4E3EF766B93525E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +626,8 @@ Maneskin - Rush! (2023) [FLAC 24/44.1|WEB-DL|tracks] <Glam-rock>
 ```bash
 magnet:?xt=urn:btih:C1A625EDF3BD5E00DD9BE20B186D8F32140A1D8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +656,8 @@ LP (Laura Pergolizzi) - Love Lines (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:FDBEC5DF9FD29A735488F1C4F5EE88DE622477CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +684,8 @@ Nancy Sinatra - Keep Walkin': Singles, Demos & Rarities 1965-1978 (2023) [FLAC 2
 ```bash
 magnet:?xt=urn:btih:5504FA1391480DBAC149DB67730818BCEDE90335
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -666,6 +714,8 @@ Ed Sheeran - Autumn Variations (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:DDF4D5DEE1B9AC1D57B7A923200420D1DB6A629B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,6 +742,8 @@ Alter Bridge — американская рок-группа из Орланд�
 ```bash
 magnet:?xt=urn:btih:D246219CCD7C28187966639CE45A61F82177B0DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

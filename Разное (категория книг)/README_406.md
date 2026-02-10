@@ -1,3 +1,29 @@
+###  Публикация: 1299112   (600706) от 30.04.2019
+
+Арнольд Эрет | Живое питание по методу доктора Эрета (2019) [PDF]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Целебная бесслизистая диета профессора Эрета – природный метод лечения, предусматривающий потребление «живой» пищи – свежих фруктов, овощей, орехов и семян. То, что он называет «слизью», является накапливающимися в организме отходами неестественной пищи, приправ, искусственных витаминов, минеральных веществ. Целебная диета, сыроедение, правильный выбор и обработка (   Читать дальше...   )Жанр: ЗдоровьеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAF6703EFEB3C87BD494EA431D693D34E29EBDFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1299104   (600748) от 30.04.2019
 
 Владимир Воронов | Рассекречено. Правда об острых эпизодах советской эпохи (2018) [FB2]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:697C1DFD341F5AC32A513CDA4487B3CBE2B60FE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:697C1DFD341F5AC32A513CDA4487B3CBE2B60FE8
 magnet:?xt=urn:btih:481F76E655C3E53836462DBFD7C26950A14A8A8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:481F76E655C3E53836462DBFD7C26950A14A8A8D
 ```bash
 magnet:?xt=urn:btih:7852C01299891453B4F4D1E65763B353A1DE2B3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:7852C01299891453B4F4D1E65763B353A1DE2B3F
 magnet:?xt=urn:btih:29F61D0F8F90267E0093C7BC40C04CA920E52979
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:29F61D0F8F90267E0093C7BC40C04CA920E52979
 ```bash
 magnet:?xt=urn:btih:390F0C4CA17EFEF8F496D1B40C495E9C538C2773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:390F0C4CA17EFEF8F496D1B40C495E9C538C2773
 magnet:?xt=urn:btih:AA27921256065E562FFE2533BEF3DA7B4120078F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:AA27921256065E562FFE2533BEF3DA7B4120078F
 ```bash
 magnet:?xt=urn:btih:309C909EF6F1598F1264A0250F59B4193273508C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:309C909EF6F1598F1264A0250F59B4193273508C
 magnet:?xt=urn:btih:4D2D1021EDFA6992FEC203A5FACF8DDF7036BDE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:4D2D1021EDFA6992FEC203A5FACF8DDF7036BDE1
 ```bash
 magnet:?xt=urn:btih:AE94885FEA1CE9B07A409EA03B55F91531AF6B81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:AE94885FEA1CE9B07A409EA03B55F91531AF6B81
 magnet:?xt=urn:btih:35EED632A7CC1FEEFAFDCB9DD94EFC26328366E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:35EED632A7CC1FEEFAFDCB9DD94EFC26328366E6
 ```bash
 magnet:?xt=urn:btih:69E7B25F63CE3B8CCD9CD5897A94AAAF9E56B33D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:69E7B25F63CE3B8CCD9CD5897A94AAAF9E56B33D
 magnet:?xt=urn:btih:E7D4895B59743E7931002B168F8586840356332D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:E7D4895B59743E7931002B168F8586840356332D
 ```bash
 magnet:?xt=urn:btih:A010899E5C5A9AF2793F7D6589CA95073E79118F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:A010899E5C5A9AF2793F7D6589CA95073E79118F
 magnet:?xt=urn:btih:A05CA12E12AE915E625A50869CB98E1633C92FCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:A05CA12E12AE915E625A50869CB98E1633C92FCA
 ```bash
 magnet:?xt=urn:btih:0D6232911234BD1CCCDE238680ECD768634470BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:0D6232911234BD1CCCDE238680ECD768634470BE
 ```bash
 magnet:?xt=urn:btih:BE221E18B14543A41F6A643EC35AEAF1ED0EB75F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:BE221E18B14543A41F6A643EC35AEAF1ED0EB75F
 magnet:?xt=urn:btih:3819E53CC82F9DEE6CE6DBBF376DEA52FA8B031C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +502,8 @@ magnet:?xt=urn:btih:3819E53CC82F9DEE6CE6DBBF376DEA52FA8B031C
 magnet:?xt=urn:btih:1763DA930DA33696631D6F73D0DD915EFE439D6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:1763DA930DA33696631D6F73D0DD915EFE439D6D
 ```bash
 magnet:?xt=urn:btih:3772C56E1A1EDA201261AC1A45C277AA1E84C714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:3772C56E1A1EDA201261AC1A45C277AA1E84C714
 magnet:?xt=urn:btih:8DF275B2EC8FD3780A9BFE1F267348D466E15104
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:8DF275B2EC8FD3780A9BFE1F267348D466E15104
 ```bash
 magnet:?xt=urn:btih:6DD597CC6BB02D0B636BCA6294FECB8CF6184CFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:6DD597CC6BB02D0B636BCA6294FECB8CF6184CFF
 magnet:?xt=urn:btih:B69E392F8EB68E18C5B03DD2E61E811FBE2E3C90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:B69E392F8EB68E18C5B03DD2E61E811FBE2E3C90
 ```bash
 magnet:?xt=urn:btih:F352D5885EB78C91C32361360E09BE928207438F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:F352D5885EB78C91C32361360E09BE928207438F
 magnet:?xt=urn:btih:B7506DDA323389972FF35B2F4261A7158449569B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,30 +684,7 @@ magnet:?xt=urn:btih:B7506DDA323389972FF35B2F4261A7158449569B
 magnet:?xt=urn:btih:F92B9D31FCF60F7F9500C29F3D07ED3A0E7601B8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298902   (601548) от 29.04.2019
-
-Дейл Карнеги | Как найти выход из любой конфликтной ситуации (2017) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601548.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассматривается природа конфликтов и способы их разрешения. Вы узнаете, как выявить источник конфликта, урегулировать конфликт, сохранив при этом отношения, научиться смотреть на вещи глазами других людей, создать атмосферу взаимного доверия и прийти к взаимному согласию.
-Для широкого круга читателей.Жанр: ПсихологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B422F0432993F21D9221DFB66EEDE16F990DAC8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

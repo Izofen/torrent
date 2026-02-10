@@ -22,6 +22,8 @@ Roman Ilyin - Pieces 2 (2020) [MP3|320 Kbps] <Classical, Neo-classical, Encemble
 magnet:?xt=urn:btih:5CE542A88A94C9ED5C515DF4201604421CC86E1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Murray Perahia -  Mozart • The Complete Piano Concertos (2006) 12CD Box Set [F
 ```bash
 magnet:?xt=urn:btih:CDD9F89912B24D583C5D90CE79D5FAE5F62370D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - J S Bach: Complete Harpsichord Concertos on Antique Instruments (2009) 3CD 
 magnet:?xt=urn:btih:31974B6EC213ACD2472C8D5004903FB3B0BC90AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Francesco Cera - Trabaci: Music for Organ and Harpsichord (2014) 2CD [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:1F56C57511DF84C1612465605996BC2EEC2ABAFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Zuzana Ruzickova; - Harpsichord music from England, Spain and Portugal (2012) 2C
 magnet:?xt=urn:btih:B89033A90870DD6DD08950D46F234421365168DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Ton Koopman, Musica Antiqua Amsterdam - Haydn: Complete Harpsichord Concertos (1
 ```bash
 magnet:?xt=urn:btih:43AB370F7B676719C03A0ED65CBB97F42186F315
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Tatiana Sergeeva - Russian Harpsichord Music of the XIX century. (1997) [FLAC|Lo
 magnet:?xt=urn:btih:89568C70D7B25A25D5CCBABFC64047DEC1000D4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Sextet for strings in D, Op. 10
 ```bash
 magnet:?xt=urn:btih:2419C4DF915F48EE5CA4DEE4E5B9E42B2C7E0D06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Piano Concerto in A minor, Op.16
 magnet:?xt=urn:btih:15DC0F41731795F7D7C2D99E734A4D4AC1285426
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Ludovico Einaudi - Taranta Project (2015) [FLAC|Lossless|tracks + .cue] <Modern 
 ```bash
 magnet:?xt=urn:btih:07C7C9546A5849C32C49418F94BC5D330962BAC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ D-dur Concerto Lantra, Vonoszenekarra Es Csembalora. F. XII.No.15
 magnet:?xt=urn:btih:4A077B6E4E1C45B4B932E949DEAB3D907CC00E64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Piano Concerto in F major
 ```bash
 magnet:?xt=urn:btih:0BC7C8BE97AC7233DB27BE04A133D1BF642A468C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Concerto for violin, strings & continuo No. 1 in A minor, BWV 1041
 magnet:?xt=urn:btih:CE2D07D3C63B1C2D48BF8C6464740CAC32483622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Alexander Scriabin 12 Etudes op. 8
 ```bash
 magnet:?xt=urn:btih:97577AA26C15DC3FC9A48A727A5CEA061A9A9815
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Piano Concerto No. 14 in E flat major, K. 449
 magnet:?xt=urn:btih:5BC8F557EEE1E80138A93FE60957EE0C0DAAFA22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Symphony no. 2 in C minor, op. 29
 ```bash
 magnet:?xt=urn:btih:B77DE3E9F730468B4F4A3CB79F743F40D122DE87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Academy of Ancient Music - Christopher Hogwood - The Baroque Experience (1991) 5
 magnet:?xt=urn:btih:175659D2316ED34CA2E64866C1B97A5983A74CEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Symphony no. 3 in C minor, op. 43 'Le divin Poeme'
 ```bash
 magnet:?xt=urn:btih:74DE07B1D021B4E120FE06EA41499382EF2CF07C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Glinka - Music Of Glinka (1969) [FLAC|Lossless|tracks] <Classical>
 magnet:?xt=urn:btih:6171AFBB0C9B0912507914FE12FE01EAB9795D79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Wynton Marsalis - Baroque Music For Trumpets (1988) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:DB398FCF35904FC27E8F2EF9CA14E3DBAF1BD027
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Ex Cathedra, Jeffrey Skidmore - New World Symphonies: Baroque Music From Latin A
 magnet:?xt=urn:btih:0B629B7C82331DBBFF0BA52401C8D33FC9ED8918
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Sonata of Scots Tunes (James Oswald)
 ```bash
 magnet:?xt=urn:btih:B04F1FB3CB0E33DFD77A488B46E1FFAFA92B23DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Silvius Leopoldo Weiss
 magnet:?xt=urn:btih:17BBAB50AABD794CDC19175810B5EAFF7FA7FF99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ VA - Шедевры русской классики. (2002) [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:A6F6528FA57E6128F815A8CD11F96E3A3EB18F72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Concerto alla rustica, for strings & continuo in G major, RV 151
 magnet:?xt=urn:btih:36973F12FA0A5E720DAC3F94EF4D9F1844ECCD22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Janet Baker, Geoffray Parsons - Baker (2002) "BBC Legends" Series [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:F9ACACB187197B08105949FA4D75D2BDCF3BD02E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

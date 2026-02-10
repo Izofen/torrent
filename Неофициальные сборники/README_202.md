@@ -22,6 +22,8 @@ VA - Beatport Trance: Electro Sound Pack #190 (2020) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:9E37CFC3710F2976008C67FB888EDB63AA1F370A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Beatport Electro House: Sound Pack #191 (2020) [MP3|320 Kbps] <Electro Hous
 ```bash
 magnet:?xt=urn:btih:6BD595AD1C3E9344F1E3BD46056530B8C159EF50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Beatport Electro House: Sound Pack #192 (2020) [MP3|320 Kbps] <Electro Hous
 magnet:?xt=urn:btih:208A64E0B1555F6004087E14F1A148684D3EE05F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Funk & Soul: Jackin Club Model (2020) [MP3|320 Kbps] <Funk, Soul, Pop, R&B,
 ```bash
 magnet:?xt=urn:btih:D226FE77BD6135F327FBECF9F2B1C0221C2B0385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - The Best Of  The Alternative (2020) [MP3|320 Kbps] <Indie Rock, Alternative
 magnet:?xt=urn:btih:FAFB9F9447D9C689781688C16B02BA1048322F45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - The Music Liveshow (2020) [MP3|320 Kbps] <Vocal, Deep House>
 ```bash
 magnet:?xt=urn:btih:ABA1B8A697C1961CF6AAA865ABE9218E9CE4153D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Eurobeat Classic (Vol.2) (2020) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:AF46F3305BE66AA29EE201193A5FBD4A4B7CD4A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ VA - Open Air House (2020) [MP3|320 Kbps] <Club, Dance, Future House>
 magnet:?xt=urn:btih:6A0B8329EDED890CBD521833F473A8D53E5C77A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +253,8 @@ VA - Listen To Your Heart: Vocal House Session (2020) [MP3|257-320 Kbps] <Vocal 
 ```bash
 magnet:?xt=urn:btih:5B2FAFCA11226E150F505502ABB79450FBB2158A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ VA - Танцевальный рай Dream House (2007) [MP3|320 кб/с]<Dance,
 magnet:?xt=urn:btih:C1559CFA68529CF686E5B338230488B47405CA68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +317,8 @@ VA - ЕвроХит Топ 40 Europa Plus 23.10.2020 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:1787742CC8F27AFC50E5DEACD375F8B6DDF03F06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +347,8 @@ VA - Yellow Day: National Pop Music (Vol.04) (2020) [MP3|320 Kbps] <Pop, Dance, 
 magnet:?xt=urn:btih:624A4E917A513AEDA8D3D144E4E1AA750F536E22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +375,8 @@ VA - Record Super Chart 659 (2020) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:5A68F4EDF501191A61F37CD9C4C417BE524EF9BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +405,8 @@ VA - Exotic Lounge: Relax Selection (2017) [MP3|320 Kbps] <Chillout, Lounge, Dow
 magnet:?xt=urn:btih:023AA5F7CF8754E77F9559F25465324CC8E6F887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +433,8 @@ VA - Empire Records - Chill Clinic (2017) [MP3|320 Kbps] <Chillout, Downtempo, L
 ```bash
 magnet:?xt=urn:btih:1BEE21244BEFF4F4E110D97072741E46940C732D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +463,8 @@ VA - До утра vol.2 (mixed by Dj V) (2015) [MP3|320 кб/с]<Club House, Di
 magnet:?xt=urn:btih:B0D426B9B9267FF2ED952F7BBA22730BCFAFFE5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +492,8 @@ VA - Extra Trance: Bonus [02] (2015) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:3D7637F954B202B356D717D1904231218E9A2295
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +519,8 @@ VA - Fantastic Running (Best of Jogging Music) (2014) [MP3|320 кб/с]<Electro,
 ```bash
 magnet:?xt=urn:btih:2BBCE900F0281388C6918591E2C710364FEE2CFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +555,8 @@ VA - Сборник дабстепа с женским вокалом (2010-2012
 magnet:?xt=urn:btih:BBADFF51AB22DB035A5DCD05011CF991BA0F71C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +583,8 @@ VA - White Night Affair (2020) [MP3|320 Kbps] <Deep House, Electro>
 ```bash
 magnet:?xt=urn:btih:6351DAAD6F1B40E34ADE8E754957729D814DD05A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +613,8 @@ VA - Urban Inspiration: Trance Session (2020) [MP3|320 Kbps] <Trance, Progressiv
 magnet:?xt=urn:btih:D386280F015B9D7F1E416305BC2B4DC2FDDEA521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +642,8 @@ VA - Summer Chillout Area (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Re
 magnet:?xt=urn:btih:59F7D3883C31D473FCB4F0D79A2C8E92C1B488A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +667,8 @@ The Prodigy - No Good (2016) Remix [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:327C1CBC6127D67F84155CA94878CB771F3D3034
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +697,8 @@ Leonard Cohen - Hits (Presents: Elgujakviso) (2016) [MP3|256 Kbps] <Folk; Rock>
 magnet:?xt=urn:btih:E73A7CE2128B7AD53264B6E158845159096A2904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +726,8 @@ VA - Collection Chillhouse Beats (2015) [MP3|320 кб/с]<Deep House, Chill Hous
 magnet:?xt=urn:btih:EDE6BFF2AF3B9BAC34500BA1A876F2F409CA58D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -704,6 +754,8 @@ VA - Trance Serpent Vol. 07 (2015) [MP3|320 кб/с]<Trance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:A659D9BA99B45D0D181087EB4D8384D30442F844
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

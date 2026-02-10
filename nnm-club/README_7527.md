@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C2A008E3C7C31B8250C9A2E8DC1CA878B177D5BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VA - Milk & Sugar House Nation Ibiza (2022) CD, Compilation [MP3|320 Kbps] <Soul
 ```bash
 magnet:?xt=urn:btih:41BC57CDA5047503D718E673B969C99204F36932
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Mildred Bailey - Smoke Dreams 1935 - 1939 (1999) Definitive Records [FLAC|Lossle
 magnet:?xt=urn:btih:CE618562713412ACC538EFDFEE9EB4C41082B6A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ VA - Шансон под водочку 2 (2002) [FLAC|Lossless|tracks + .cue]<�
 magnet:?xt=urn:btih:DADEFE521261A9A48ACA0DE755F5AA75FCE326DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:DADEFE521261A9A48ACA0DE755F5AA75FCE326DC
 ```bash
 magnet:?xt=urn:btih:191F7F3BCE1F16DF7FBF673EF0C9B1C8291052FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ VA - Melodica, Vol. 1 (2020) [AAC|~325 Kbps] <Deep House, Progressive House>
 magnet:?xt=urn:btih:0C090EC7BC9C34491934922B94C85EAC87AA0DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:0C090EC7BC9C34491934922B94C85EAC87AA0DA4
 magnet:?xt=urn:btih:F4F905A2C80CD8F9DDD9E6C1187D97E57440502E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:F4F905A2C80CD8F9DDD9E6C1187D97E57440502E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ GarageSale 8 v8.0.6 [Multi]
 ```bash
 magnet:?xt=urn:btih:3E90AE8D90BA045344C00227A4482319952DB524
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Voltage Arc - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Glam Hard Rock
 magnet:?xt=urn:btih:A4FA15599E6B2F6787766B92FF5C4F9FBF59CD98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ VA - Melodica, Vol. 9 (2021) [AAC|~331 Kbps] <Deep House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:2B6CD56E1AAA7CB372C5706ECD79438D40BE53EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +329,8 @@ The Firebirds - Dance All Night Long (2023) [FLAC|Lossless|WEB-DL|tracks] <Rocka
 magnet:?xt=urn:btih:70E0ADF5B64FD5087C744A5323845A11EE3696D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +357,8 @@ Eruption - Ансамбль Ирапшн (1980) [FLAC 2.0 24/192|tracks(Vinyl-Ri
 ```bash
 magnet:?xt=urn:btih:45A5FA839A3BA8784EA5DBFD90310AF74010359B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +387,8 @@ VA - Party Hits 2022 - Party Hit Mix (2022) CD, Compilation [MP3|320 Kbps] <Elec
 magnet:?xt=urn:btih:854A0E318705C43923AD37937158B23D57C773B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ Red Baron Band - Last Chance (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Prog Roc
 ```bash
 magnet:?xt=urn:btih:3E08D403717FAD30B22F1A08C0DBD0C7425F3404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +445,8 @@ VA - Keep Chilling (2021) [AAC|~287 Kbps] <Lounge, Chill Out, Downtempo>
 magnet:?xt=urn:btih:B02054522407DA91D1D0AC34622BD0CA8B029FDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +471,8 @@ magnet:?xt=urn:btih:B02054522407DA91D1D0AC34622BD0CA8B029FDD
 magnet:?xt=urn:btih:3333DC8640B0391D0796D041AF9A449773AA8E06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +496,8 @@ AdwCleaner - программа, которая ищет и удаляет ре�
 ```bash
 magnet:?xt=urn:btih:1E6896CE39D5006D266C5D3F3988914C70D50F3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +526,8 @@ Arch Blade - Kill The Witch (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:7C76D808548F7FFAE9FEACEA07A4AEF5C4C92030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +554,8 @@ Benny Barksdale, Jr. - The Heart & Soul of Benny Barksdale, Jr. (2021) [AAC|~342
 ```bash
 magnet:?xt=urn:btih:7DCB75D3F6C6C595260072B4D5F2F53D5BCDB814
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +584,8 @@ Domain - Before The Storm (1989) [FLAC|Lossless|image + .cue] <Hard Rock>
 magnet:?xt=urn:btih:B89976E37CB8F83FE84F211EC63980DB5E8086BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +609,8 @@ magnet:?xt=urn:btih:B89976E37CB8F83FE84F211EC63980DB5E8086BF
 ```bash
 magnet:?xt=urn:btih:CD52907E4E0B73FF2F41FE99B4488C4198B14D02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +639,8 @@ Ian Moss - Rivers Run Dry (2023) [FLAC|Lossless|image + .cue] <Melodic Rock>
 magnet:?xt=urn:btih:0199343F9311E46939BA2100550EE71E11A34063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +668,8 @@ Ohth (Óð) - None Shall Escape Death (2022) [FLAC|Lossless|WEB-DL|tracks] <Extr
 magnet:?xt=urn:btih:65AEE02B06D25831B072054714A1B8B2F035FC28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +696,8 @@ Battery - Armed with Rage (2014) [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:38BFC70F944CDE25CD6BE5CB150E285343C6FA9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -681,6 +731,8 @@ Triskell - Telenn Vor (2003) [MP3|320 кб/с]<Instrumental, Celtic, Harp>
 ```bash
 magnet:?xt=urn:btih:6C25EC42C447963CE6F6169FEA1A94DD54DECFED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

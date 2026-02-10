@@ -1,27 +1,3 @@
-###  Публикация: 1046664   (551659) от 27.08.2016
-
-Горячая жевательная резинка 4: Трое в армии / Sapiches (1983) DVDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_551659.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом фильме наши друзья идут в армию, где и продолжаются их весёлые приключения. Три «героя» на три месяца идут на сборы в армию. Но ни одного из них не взволновала строгая дисциплина армейской жизни, они придумали как можно смутить и надуть офицеров. Результат? Полный хаос и неразбериха. Подглядывания за девушками в раздевалках, танцы-шманцы-обниманцы, разговоры (   Читать дальше...   )Производство: Израиль, Германия (ФРГ)/ Cannon, Golan-Globus Productions Ltd., KF KinofilmЖанр: Мелодрама, КомедияРежиссер: Боаз ДэвидсонАктеры: Ифтах Кацур, Цахи Ной, Йонатан Сэгаль, Двора Кедар, Менаш Варшавски, Соня Мартин, Йосси Шиллоах, Моше Иш-Кассит, Девора Бакон, Беа ФидлерПеревод: Авторский (А.Гаврилов, А.Михалёв)Продолжительность: 01:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F5CFFB72156596BDE658C32F27FD1895DCAF75D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046600   (551673) от 27.08.2016
 
 Горячая жевательная резинка 3 / Shifshuf Naim (1981) DVDRip [H.264]
@@ -43,6 +19,8 @@ magnet:?xt=urn:btih:1F5CFFB72156596BDE658C32F27FD1895DCAF75D
 ```bash
 magnet:?xt=urn:btih:283AC38C5D181B4858250A8C6A9A0E222A7257C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +46,8 @@ magnet:?xt=urn:btih:283AC38C5D181B4858250A8C6A9A0E222A7257C0
 magnet:?xt=urn:btih:A586936E4F102DAC70D264E1B6F56824264DE0C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:A586936E4F102DAC70D264E1B6F56824264DE0C6
 ```bash
 magnet:?xt=urn:btih:404E603AA12515383D1BC143C30A4FD5D04CB2A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +99,8 @@ magnet:?xt=urn:btih:404E603AA12515383D1BC143C30A4FD5D04CB2A4
 magnet:?xt=urn:btih:1A6DDDD0DB845B20DCEB95F10E0BAB9240829BF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:1A6DDDD0DB845B20DCEB95F10E0BAB9240829BF9
 ```bash
 magnet:?xt=urn:btih:F36FBDAA8E131DF9A28F11AD3749F9BBBBA8A4ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +152,8 @@ magnet:?xt=urn:btih:F36FBDAA8E131DF9A28F11AD3749F9BBBBA8A4ED
 magnet:?xt=urn:btih:6928EB225556238C2C1B5FE38968469BE9AAB494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +179,8 @@ magnet:?xt=urn:btih:6928EB225556238C2C1B5FE38968469BE9AAB494
 magnet:?xt=urn:btih:83BCD79885E5592F1C9A21EFA2F1915EEF8D8147
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +204,8 @@ magnet:?xt=urn:btih:83BCD79885E5592F1C9A21EFA2F1915EEF8D8147
 ```bash
 magnet:?xt=urn:btih:E6CFF42F7A24A28E0AA98D86ACA0F0B051561C5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +231,8 @@ magnet:?xt=urn:btih:E6CFF42F7A24A28E0AA98D86ACA0F0B051561C5B
 magnet:?xt=urn:btih:DF12CE5B6C33E20423CAEC7FB65B5266146DA254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +256,8 @@ magnet:?xt=urn:btih:DF12CE5B6C33E20423CAEC7FB65B5266146DA254
 ```bash
 magnet:?xt=urn:btih:8F56321CDC9796F58892DFB52F286348A7939300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +283,8 @@ magnet:?xt=urn:btih:8F56321CDC9796F58892DFB52F286348A7939300
 magnet:?xt=urn:btih:237A4E74CAA87C298FBC57C2677ECBB0155AC0D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +308,8 @@ magnet:?xt=urn:btih:237A4E74CAA87C298FBC57C2677ECBB0155AC0D5
 ```bash
 magnet:?xt=urn:btih:2F475A11452B9079FE0314F2AC0AAD9556206B50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +336,8 @@ magnet:?xt=urn:btih:2F475A11452B9079FE0314F2AC0AAD9556206B50
 magnet:?xt=urn:btih:EDFEA10DC22A63A2A75F55CC9E1D0E7C5644D96B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +361,8 @@ magnet:?xt=urn:btih:EDFEA10DC22A63A2A75F55CC9E1D0E7C5644D96B
 ```bash
 magnet:?xt=urn:btih:977A756D2C865146B1D620FC3444FB40E059B190
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +388,8 @@ magnet:?xt=urn:btih:977A756D2C865146B1D620FC3444FB40E059B190
 magnet:?xt=urn:btih:42FFD5CA49F1AB1D92F9F5369FDB684EAC168F41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +414,8 @@ magnet:?xt=urn:btih:42FFD5CA49F1AB1D92F9F5369FDB684EAC168F41
 magnet:?xt=urn:btih:B298B2064412B5390E70EFAD450E721C1004BA80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +439,8 @@ magnet:?xt=urn:btih:B298B2064412B5390E70EFAD450E721C1004BA80
 ```bash
 magnet:?xt=urn:btih:0B5A61A426BB3475FB3140A8286EE6E650AE24E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +467,8 @@ magnet:?xt=urn:btih:0B5A61A426BB3475FB3140A8286EE6E650AE24E0
 magnet:?xt=urn:btih:F2E7D66F84CB95293027C0D463B85138EAFB4629
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +492,8 @@ magnet:?xt=urn:btih:F2E7D66F84CB95293027C0D463B85138EAFB4629
 ```bash
 magnet:?xt=urn:btih:A70FDD8A10E5DB97130CB65AF530A26C206488C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +522,8 @@ magnet:?xt=urn:btih:A70FDD8A10E5DB97130CB65AF530A26C206488C3
 magnet:?xt=urn:btih:C7804A553A08ADB15FDC6BD3BBAEB0BB03CCC8A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +549,8 @@ magnet:?xt=urn:btih:C7804A553A08ADB15FDC6BD3BBAEB0BB03CCC8A5
 magnet:?xt=urn:btih:A5CF3DCF99A334DCA0B45905033F4E3A2474DB44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +574,8 @@ magnet:?xt=urn:btih:A5CF3DCF99A334DCA0B45905033F4E3A2474DB44
 ```bash
 magnet:?xt=urn:btih:C8AA52889363887F7C41EDB9B57A6A78DF5BD94B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +601,8 @@ magnet:?xt=urn:btih:C8AA52889363887F7C41EDB9B57A6A78DF5BD94B
 magnet:?xt=urn:btih:64C3301534F0C4FF7CCEC50654046D4807A3A28B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +627,8 @@ magnet:?xt=urn:btih:64C3301534F0C4FF7CCEC50654046D4807A3A28B
 magnet:?xt=urn:btih:E594151F1D60487DE18B940421545F9B19309E37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +652,34 @@ magnet:?xt=urn:btih:E594151F1D60487DE18B940421545F9B19309E37
 ```bash
 magnet:?xt=urn:btih:11278930818E8CCD2DDD4ADE89C3DA0933CEDAE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557135   (556543) от 12.06.2022
+
+Луи Фейад. Порок / La Tare (1911) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_556543.jpg" />
+</div>
+
+
+###  Подробнее
+
+У Фейада есть несколько фильмов, которые он объеденил в одну серию - "Жизнь как она есть / La Vie telle qu’elle est". Этот фильм один из них. Между собой фильмы не связаны ни сюжетом, ни героями. Общее между ними то, что режиссер пытался в них показать жизнь и людей в этой жизни без кинематогрофических приукрашиваний и условностей, без однозначности героев (   Читать дальше...   )Производство: Франция, Société des Etablissements L. GaumontЖанр: Драма, короткометражный, немое киноРежиссер: Луи ФейадАктеры: Жан Эме, Рене Карл, Генри Коллен, Макс Дартини, Мари Дорли, Полин Ройер, Алис ТиссоПеревод: Немой с интертитрамиСубтитры: Французские интертитры, русские встроенные отключаемыеПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E615E239D6A581DDBF2ED599B69582F9445E5A7C
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

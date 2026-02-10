@@ -19,6 +19,8 @@ Asterix & Obelix Slap Them All! 2, захватывающее приключен
 magnet:?xt=urn:btih:1D359FA91A7CA142AAC9DC808C5712577F2B8BCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:1D359FA91A7CA142AAC9DC808C5712577F2B8BCF
 magnet:?xt=urn:btih:0D8126D605FC6AE199339D2A985BDF954863E91E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Suzerain (2020) [En] (3.0.9/dlc) Scene Tenoke [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:72278E4797E7BF50B444369DFFFAAF1976DC0943
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ B.B. King & Friends - A Night of Blistering Blues (2005) DVD5 <Blues>
 magnet:?xt=urn:btih:7CE2BAD3B7C2F9C379DFB48DF1795FF49BD03AAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:7CE2BAD3B7C2F9C379DFB48DF1795FF49BD03AAB
 ```bash
 magnet:?xt=urn:btih:83066302DF5B48F8DF66FEC4D2FAE9594965C583
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:83066302DF5B48F8DF66FEC4D2FAE9594965C583
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:83066302DF5B48F8DF66FEC4D2FAE9594965C583
 ```bash
 magnet:?xt=urn:btih:B380DF2C4954A39574C5E44603733FA7C8F16840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:B380DF2C4954A39574C5E44603733FA7C8F16840
 magnet:?xt=urn:btih:47EB4AC7126F4498F6B46EDCBAC33539AE2213E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:47EB4AC7126F4498F6B46EDCBAC33539AE2213E0
 ```bash
 magnet:?xt=urn:btih:4819FEEA526A0AF2D4EFA9ACE1E275B4A2ADD937
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:4819FEEA526A0AF2D4EFA9ACE1E275B4A2ADD937
 magnet:?xt=urn:btih:F65FB25793D299DF4E0FF8F0B0B9C23FB2A17CD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:F65FB25793D299DF4E0FF8F0B0B9C23FB2A17CD2
 ```bash
 magnet:?xt=urn:btih:DD50DD233CC8CD76D3D34CCBEB1FC7E2F70B1A82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:DD50DD233CC8CD76D3D34CCBEB1FC7E2F70B1A82
 magnet:?xt=urn:btih:81F7C07DFC5A1ABB6A9E5C974B8B28414430022E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ ESET Endpoint Security — это комплексное решение для �
 ```bash
 magnet:?xt=urn:btih:239864146D2B4831D3EE365765658F5930D6FB9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:239864146D2B4831D3EE365765658F5930D6FB9B
 magnet:?xt=urn:btih:CF7DA586624A9AE4B5039AAF2ECC2AC108A445B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:E90E4A0E846679EF7034A4BA3E5ABA1CC91CF903
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:E90E4A0E846679EF7034A4BA3E5ABA1CC91CF903
 magnet:?xt=urn:btih:E38B24B3E77B629565B5AB8853D643E8C227D682
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Corel VideoStudio Ultimate 2023 26.2.0.311 (x64) [Multi]
 ```bash
 magnet:?xt=urn:btih:2F40E82FB0E762FBA0AC4763D50B12C03B92B5FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:2F40E82FB0E762FBA0AC4763D50B12C03B92B5FA
 magnet:?xt=urn:btih:22FA4FBBCEBE67BA55F61C2666338A77CF6DD49D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Nobody Wants to Die с головой окунает вас в Нью-Йорк �
 ```bash
 magnet:?xt=urn:btih:E01CCCA1B733BE851976B7F264B0ABAEAEDE6B75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ The Thaumaturge - изометрическая ролевая игра с глу
 magnet:?xt=urn:btih:F69CA39B82D4AC9D8282254E225A3C4F2B4932C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:F69CA39B82D4AC9D8282254E225A3C4F2B4932C5
 ```bash
 magnet:?xt=urn:btih:9D62B99EA8EB8E35B0E69FDA4B73283DCCC1ECFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:9D62B99EA8EB8E35B0E69FDA4B73283DCCC1ECFD
 magnet:?xt=urn:btih:CFCCC5593531D84E53939CFC21C987D33BF61F66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:CFCCC5593531D84E53939CFC21C987D33BF61F66
 ```bash
 magnet:?xt=urn:btih:E47DF5CC97FBDCD1F2B07AAFDE6689AFD60CD31B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:E47DF5CC97FBDCD1F2B07AAFDE6689AFD60CD31B
 magnet:?xt=urn:btih:A241367CCAEAD70870EB879B13E6BB8D45BB7EB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:A241367CCAEAD70870EB879B13E6BB8D45BB7EB9
 magnet:?xt=urn:btih:5D1D5E7664021AFD702E1A870B462FEC152BEE40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:5D1D5E7664021AFD702E1A870B462FEC152BEE40
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ A3 Nummern 3:00
 magnet:?xt=urn:btih:185DAB655B3FD287507241D596DE1DB6D312785A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Europe — шведская рок-группа, основанная вокал
 ```bash
 magnet:?xt=urn:btih:9E1E4070308C69FA7EA93A66BD1ACB0DBB28783E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Beseech — шведская готик-метал-группа из город�
 magnet:?xt=urn:btih:211078102857C9AF767475658DA88269C087CCFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Fishbone - Fishbone (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Reggae>
 ```bash
 magnet:?xt=urn:btih:377807057B1E5E3B09C4CFFB907E7458C84EB9CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ A4 Nothing Rhymed(   Читать дальше...   )Жанр: Pop RockПрод�
 magnet:?xt=urn:btih:E1AF7D07A4FF897612C46534F2AF3883BE931A0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ A4 Le Secret Farida 3:17(   Читать дальше...   )Жанр: Synth-pop�
 ```bash
 magnet:?xt=urn:btih:2A20B056CFF437D1DA437C695FAF5CAB9CAD60C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:2A20B056CFF437D1DA437C695FAF5CAB9CAD60C8
 magnet:?xt=urn:btih:FDF8CAFA6CD121221CCDD1C4DF82D6354C657EF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Thunder — английская рок-группа из Лондона. Осн
 ```bash
 magnet:?xt=urn:btih:1BD5E3292C062BACC5A1B5441B74A76E40B3DF74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:1BD5E3292C062BACC5A1B5441B74A76E40B3DF74
 magnet:?xt=urn:btih:DD16EB57D724FF98A3C033448138801106671ACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Heretic - американская пауэр-метал группа из Ло�
 ```bash
 magnet:?xt=urn:btih:800744C29636105CC849E27C2B23158D2EF05028
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ A4 П. Нечепоренко - Наигрыш Владимирских Роже
 magnet:?xt=urn:btih:11E5CF22E869351C78A846E76F1C8C0586F1413C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ A4 Desert Inn 3:30(   Читать дальше...   )Жанр: ElectronicПро
 ```bash
 magnet:?xt=urn:btih:145DCD8D2CBA70C79D0C6A55D926360B6B106E64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ A4 Maybe I'm Dreaming 4:23(   Читать дальше...   )Жанр: Synth-po
 magnet:?xt=urn:btih:7D8A61895B0FC82BA45E281A48A90FCF017F2724
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:B682B62B24B39B2BA0E92A97DCF50B1A537F3223
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ A4	Е. Семенова -	На Минутку(   Читать дальше...   
 magnet:?xt=urn:btih:6CE0E7A934960643F398F9CD49EE3A6DCDD36852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ A4	Локомотив ГТ -	На Релси(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:478255D319B255DD31D6D6CFAE804A56040F0228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ magnet:?xt=urn:btih:478255D319B255DD31D6D6CFAE804A56040F0228
 magnet:?xt=urn:btih:5F58369FED6DDF88C9431CDCD7A4BE081BDEA9C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ A4 Тайфун Над Кагосимой (Typhon Sur Kagoshima)(   Читать
 ```bash
 magnet:?xt=urn:btih:BD29B15E3D3D3C545BC9D4F02D6F0772A978AA64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Для Вас, Женщины! (1975 - 1989) Серия 13LP [FLAC 2.0|96/2
 magnet:?xt=urn:btih:9DFE70E25FBE7BAFBFED3C7DC454C1C7948648FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ A3 Танец • Dance(   Читать дальше...   )Жанр: Classical, 
 ```bash
 magnet:?xt=urn:btih:8C31A62EF58657C3F36CFC4CDE2FF26DAB380AE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Место Встречи Дискотека. Выпуск 4 (1988) [FLAC 2
 magnet:?xt=urn:btih:0021F9F5C6A6B45209431AF991C6FCC9C5603033
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ A4 I'll Drown In My Own Tears(   Читать дальше...   )Жанр: Fusio
 ```bash
 magnet:?xt=urn:btih:870CCC4AEC2CFDDB9256C0A841EED98487B4E19D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ The Alan Parsons Project - I Robot (1977) (2022) [DSD 128|image+.cue|Vinyl-Rip] 
 magnet:?xt=urn:btih:540B7805436D59B21B712C6A8EF19504A106173B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ A2 Love Cannot Be Wrong 2:53(   Читать дальше...   )Жанр: Electr
 ```bash
 magnet:?xt=urn:btih:A0AEE7B7496BEBF2E16E72A476987597A1982B36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Side A:
 magnet:?xt=urn:btih:FA844F0F87A5271B2A70BF0F697A865BDC188928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ A4 Heartstrings 4:12(   Читать дальше...   )Жанр: Pop RockПро
 ```bash
 magnet:?xt=urn:btih:7AC8B698DFA02D4A202F04037009F6B22199B0F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

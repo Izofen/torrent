@@ -22,6 +22,8 @@ VA - I Love ZYX Italo Disco Collection 14 (2012) 3 CD [OGG Vorbis|480 Kbps] <Ele
 magnet:?xt=urn:btih:9976FC572D5707B5DF5FD242CBFD341AC2A2C6D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Clueless - The Album (1998) [FLAC|Lossless|WEB-DL|tracks] <Eurodance>
 magnet:?xt=urn:btih:336A1135E63D1A9E0F10030C24478DC94E74205A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:336A1135E63D1A9E0F10030C24478DC94E74205A
 ```bash
 magnet:?xt=urn:btih:D3DA43BE2E9ED9DEACCDEF0826BA7D4448708D81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Popa Chubby - I Love Freddie King (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 magnet:?xt=urn:btih:A861D0CFC067098A7CABCBE793706FDCECFB5C59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ Quiz Show черпает вдохновение из изысканного ру
 ```bash
 magnet:?xt=urn:btih:5EE40386A110EFC2C868EDCC09D1E292B1FF86B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ Feona — мягкий, женственный шрифт с засечками,
 magnet:?xt=urn:btih:6BA69177A65C17A923AEFB8364A3A699B874E689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:6BA69177A65C17A923AEFB8364A3A699B874E689
 magnet:?xt=urn:btih:57E2896E53A26CD3F30030C09DFF99DAD0F08662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:57E2896E53A26CD3F30030C09DFF99DAD0F08662
 ```bash
 magnet:?xt=urn:btih:918C4E1D493C4011E866574EACB094635311F788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ Nightwish - Century Child (2002) Released, 2015, Spinefarm Records [FLAC|24/192|
 magnet:?xt=urn:btih:CD31883508A9DBDE2F31EA8BA8AD110031E65DFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:CD31883508A9DBDE2F31EA8BA8AD110031E65DFB
 magnet:?xt=urn:btih:7A71BF54F9D8B36E9576A500E5270C16AB0B2947
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Mistur Sleuth - жирный шрифт без засечек от Timelesstype.
 ```bash
 magnet:?xt=urn:btih:F30321192610CD066311990517CBE1C10AD2854A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ Lane 8 - Spring 2025 Mixtape (2025-03-19) [MP3|320 Kbps] <Progressive House, Mel
 magnet:?xt=urn:btih:30969BEDB2F4F2F24ADF1F4A05794B224A6455EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ VA - Redux Selection, Vol. 4 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tra
 ```bash
 magnet:?xt=urn:btih:82AB4DE6D5C59EA61A655D0CC6925779DA5950D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +388,8 @@ Maya Delilah - The Long Way Round (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Al
 magnet:?xt=urn:btih:3BEB1CB3FFF76013C5320FBF77FD3B351E4021FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +413,8 @@ magnet:?xt=urn:btih:3BEB1CB3FFF76013C5320FBF77FD3B351E4021FB
 ```bash
 magnet:?xt=urn:btih:2F3129C18C175A3573256F3BEFA5ECA52EC4121E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +443,8 @@ Mechina - Bellum Interruptum (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmos
 magnet:?xt=urn:btih:FB351C25706FC20139CC4C03321744A38D23C4E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +468,8 @@ magnet:?xt=urn:btih:FB351C25706FC20139CC4C03321744A38D23C4E8
 ```bash
 magnet:?xt=urn:btih:BC404E35065CE7D271E4ABEA5F42916551CA9062
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +497,8 @@ Soncara Futuristic Soft Serif Font — это современный и глад
 magnet:?xt=urn:btih:39C08BE53445E7A4A850C4213669E8E96D587A4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +522,8 @@ magnet:?xt=urn:btih:39C08BE53445E7A4A850C4213669E8E96D587A4A
 ```bash
 magnet:?xt=urn:btih:70987D5CFA373FDC969D9AE1618A2969F3B352BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +552,8 @@ Ancient Silence - The 1st Album (2025) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco
 magnet:?xt=urn:btih:6AF11D269BCBC80F589241A19A05452591593EF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +578,8 @@ magnet:?xt=urn:btih:6AF11D269BCBC80F589241A19A05452591593EF6
 magnet:?xt=urn:btih:A6C3988ED99040F40D82B5EA99DE65571C0B8ED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ Dear Reality - dearVR PRO 2 2.1.0 VST 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:C4A0866DB1414BDA4D96A1F9AB1FCD419384C6E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +633,8 @@ Covered in Hits - A Tribute to Modern Talking (2010) [MP3|320 Kbps] <Euro-Disco,
 magnet:?xt=urn:btih:18162B5F70AEA02722834C1EA625FF8C956DEBD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +658,8 @@ Dear Reality - dearVR MIX 1.17.0 VST 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:59034AC550A7EF91D4E05BD9F86D5D73C552CA27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +688,8 @@ Santana - Sentient (2025) Compilation [FLAC|Lossless|WEB-DL|tracks] <Jazz, Latin
 magnet:?xt=urn:btih:9391CA0802FE0AE511925F1079E70A803F03253B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +713,8 @@ magnet:?xt=urn:btih:9391CA0802FE0AE511925F1079E70A803F03253B
 ```bash
 magnet:?xt=urn:btih:31523CD0EE6F70189DAFE40FBD4C8DF8BC943BCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

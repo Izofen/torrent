@@ -19,6 +19,8 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 magnet:?xt=urn:btih:99402BA712EFE62C8E413F6C36F5FFBB8B308516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ System Shock 2023 - ремейк легендарного иммерсив-си�
 ```bash
 magnet:?xt=urn:btih:323A0A545CD2100BF627267B6CE2472A1418166A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Venture to the Vile переносит геймеров в загадочный 
 magnet:?xt=urn:btih:36641483E171062677CEA2CD19847C5D6FC30317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 ```bash
 magnet:?xt=urn:btih:72A8A2FF38C3DB8A2812E35B340884B0664CBCD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Venture to the Vile переносит геймеров в загадочный 
 magnet:?xt=urn:btih:C4956F092766A7874EDC619F7119904100CF7A8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:49AFCE858437A41D67C3B987B506E4DF323F7C8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Turbo Sloths – это гонки, использующие научно-фан
 magnet:?xt=urn:btih:326B134636EEE711FE5188F3AAA9DE848D44432D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ BroodStar представляет собой аркадный шутер с rog
 ```bash
 magnet:?xt=urn:btih:398787AC8AAD30F8E70B6D9F20C6858CCA878CDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Back 4 Blood (2021) [Ru/Multi] (20240515/dlc) Scene Rune
 magnet:?xt=urn:btih:16DD75361F1E8D860B4FDB932232E1A944CE7EEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.0.0515.2048/dlc) Repack seleZen [Direc
 ```bash
 magnet:?xt=urn:btih:AB42A94D9A61DAC9F6B9752286F9BD7D266D0165
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Morbid: The Lords of Ire - продолжение игры Morbid: The Seven Aco
 magnet:?xt=urn:btih:3723CCBAE6D647E06ACD2E596AE50125C34AF208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ MechWarrior 5: Mercenaries (2019) [Ru/Multi] (1.1.361/dlc) Repack Decepticon [Ju
 ```bash
 magnet:?xt=urn:btih:BC5E9BB8901FECBD4BEC01D2CCB7F393EB977BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Gedonia (2022) [Ru/En] (1.48b) Repack dixen18
 magnet:?xt=urn:btih:0E2E44855DC22C7FFDAA3C717965E4D1C1757723
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1.0/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:593CB2174C96C8397E408F650B4F62AE68E5D888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1.0/dlc) Scene FairLight
 magnet:?xt=urn:btih:6DEEC89AEC3E0839270C15AC197B2D6E75CD6F49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Kingdom Rush (2014) [Ru/Multi] (5.6.12) License GOG
 ```bash
 magnet:?xt=urn:btih:0B5C9AFCF13E89FC5D985ECF3C42DD97AF79878D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Scene Investigators (2023) [Ru/Multi] (20250503/dlc) Scene Tenoke
 magnet:?xt=urn:btih:C5AA342F69690B6D9600B0F2ACB37C7CDA4C2A2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ AMANATSU ~Perfect Edition~ (2024) [Multi] (1.0.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:0A4A40326F4DD5A8978DD94CE0391DCD24F4C6C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Kingdom Rush: Frontiers, новая глава в серии милых и не�
 magnet:?xt=urn:btih:16C1C715A009F9EB05C73C78F33C40FA66018073
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ It Happened Here 3: A Storm is Brewing / Это случилось здесь 3:
 ```bash
 magnet:?xt=urn:btih:F56425F5748D193DBD0CC5E57DF475813304AE91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Athenian Rhapsody - это свежая комедийная ролевая иг
 magnet:?xt=urn:btih:6464AD705D77BAC3718B1413238F2B18D258D9A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Morbid: The Lords of Ire - продолжение игры Morbid: The Seven Aco
 ```bash
 magnet:?xt=urn:btih:BE63815A0E79C93A7B24404BA979ABAF1CC525F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Tchia сама по себе воспринимается как легкая п
 magnet:?xt=urn:btih:3FEC8A703D72BAC140B6D76E25E8358D72E325FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Maid of the Dead представляет собой сценарий, в кот
 ```bash
 magnet:?xt=urn:btih:BDE5F7541FABEADB0187A3797671A690911DEBA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Lorelei and the Laser Eyes – посетите невероятное стар�
 magnet:?xt=urn:btih:68884573ACBED3DE959C2A30C14F0B19B5B0592B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ StarCraft Remastered - это обновленная версия знамени
 ```bash
 magnet:?xt=urn:btih:75FCC71AD4BAD1E9957AF36DC9CE7BE0220F7788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

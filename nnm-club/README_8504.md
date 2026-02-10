@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:AA999EB85666511C4AAD9A548555366CFCB32A4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:AA999EB85666511C4AAD9A548555366CFCB32A4B
 ```bash
 magnet:?xt=urn:btih:917958DDAE2A6BABD8623C5EC335591E9CE22AAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ Pink Floyd - 14 альбомов 63CD, 8 изданий (1967-1994) Диског
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Victoria 4.46b [Английский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ Adobe® Creative Suite® 6 Master Collection [En, Jp]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ Adobe® Creative Suite® 6 Master Collection [En, Jp]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ Adobe® Creative Suite® 6 Design & Web Premium [Multi/Rus]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Adobe® Creative Suite® 6 Design & Web Premium [Multi/Rus]
 ```bash
 magnet:?xt=urn:btih:26D98BB0D46D82992DAECEA7C6BF4819735BBE7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ ObjectDock Plus 2.01.743 [English, Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ ObjectDock Plus 2.01.743 [English, Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ Burnout Paradise: The Ultimate Box / Russian Vanity [Ru] (RePack/Mod/1.1/1.4) 20
 magnet:?xt=urn:btih:BCE68B79BB65E823DF6BE9CE8DB2731B4726424A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:BCE68B79BB65E823DF6BE9CE8DB2731B4726424A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ Corporate Identity Package - это красивый и универсальны
 magnet:?xt=urn:btih:C1534451A3775AF1E74B89B8CB794323172AE6A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ Silent Hill (яп. ‰сайрэнто хиру) — игровая серия �
 ```bash
 magnet:?xt=urn:btih:02B26DA51921FEAEA93B6A7FF59C50E5B1BE3C0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ Magic Partition Recovery от East Imperial Soft предназначен для
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ Bosch ESI[tronic]2012 (DVDU+DVDU1) Электронный каталог зап�
 magnet:?xt=urn:btih:75A97CEF9AB3019F8D59CF93D9090FAA8B96BE24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:75A97CEF9AB3019F8D59CF93D9090FAA8B96BE24
 ```bash
 magnet:?xt=urn:btih:B3482AF33B87642E37F5513112407BC7D3D2B91C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:B3482AF33B87642E37F5513112407BC7D3D2B91C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ Paradise Cracked / Код доступа: РАЙ [Ru] (RePack) 2002 | RG Games (
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ Gas Guzzlers — динамичные захватывающие гонки на
 ```bash
 magnet:?xt=urn:btih:C61D2A8A44BB44305C563078770A0B13EB7A8A94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ Bernd Reiter Quartet feat. Roman Schwaller - Live At The Jazzland-Vienna (2007) 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +629,8 @@ VA - Клубные Новинки Vol.81 from AGR (2012) [MP3|320 кб/с]<Club
 magnet:?xt=urn:btih:234B09B3FF4D3FF4E5EC9E9CE5032C8D92D3B24E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ Joy — развлекательный глянцевый женский жур�
 ```bash
 magnet:?xt=urn:btih:2E4BE262C8D54AF7366D40527AEE6EC120D895AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ Joy — развлекательный глянцевый женский жур�
 magnet:?xt=urn:btih:23342051EDD8AB33C2FB362807CEDEB4EE777B4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:23342051EDD8AB33C2FB362807CEDEB4EE777B4D
 ```bash
 magnet:?xt=urn:btih:911E5E96F3769ABD0845EC06F4A008C5BDF5FE27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

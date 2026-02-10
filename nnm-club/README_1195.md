@@ -19,6 +19,8 @@ Gold Mining Simulator (2017) [Ru/Multi] (1.8.2.858/dlc) Repack Let'sРlay [Gold 
 magnet:?xt=urn:btih:015BEC26E9344F8F8D0BEBA05C3059C7283B599F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:015BEC26E9344F8F8D0BEBA05C3059C7283B599F
 ```bash
 magnet:?xt=urn:btih:AE960A8520FE3FAFAF866CE1AB24C2631AC34EDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Secret Service - Top Secret* (*Greatest Hits) (2000) [AAC|320 Kbps] <Electronic,
 magnet:?xt=urn:btih:B15B74AA6A372D54DA01563379BF0F66366CE850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:B15B74AA6A372D54DA01563379BF0F66366CE850
 ```bash
 magnet:?xt=urn:btih:0C4F1266AC62B2065D31A1BF9B58907C78270B1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:185D43FEEB263FC846CB001BB10A9334042E7651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ The Halo Effect - March Of The Unheard (2025) [FLAC 24/48|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:C84992B19E112EE12001EFDED88AD42DF3A7CDA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:C84992B19E112EE12001EFDED88AD42DF3A7CDA2
 ```bash
 magnet:?xt=urn:btih:B109222E87A1C417B3263ECC6B2B18BD6BDBAF19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:B109222E87A1C417B3263ECC6B2B18BD6BDBAF19
 magnet:?xt=urn:btih:9E07882E3D87536C2C84796BF29FA99627E51DDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:9E07882E3D87536C2C84796BF29FA99627E51DDB
 magnet:?xt=urn:btih:745E472DB8AC660F8C267545759292960B19A2C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:745E472DB8AC660F8C267545759292960B19A2C7
 ```bash
 magnet:?xt=urn:btih:68DFA8E7E407AC42467A042A82A8CD28B4D32D83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ Sevendust - американская рок-группа из Атланты, Д
 magnet:?xt=urn:btih:9E0BC8293CADA9E7A6C024203F19C040FD5798FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:9E0BC8293CADA9E7A6C024203F19C040FD5798FB
 ```bash
 magnet:?xt=urn:btih:F9913BAC2C626B9D9C9F70554CACE082F56E55E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:F9913BAC2C626B9D9C9F70554CACE082F56E55E4
 magnet:?xt=urn:btih:9A4B61DD7ED2F66E62F2814C67251DD2C7167559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:9A4B61DD7ED2F66E62F2814C67251DD2C7167559
 magnet:?xt=urn:btih:5A9C7EBC7446E20BA0FD025A8773B59A66833DC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ PhotoDirector - функциональный, но весьма простой �
 ```bash
 magnet:?xt=urn:btih:741937EBA3D02A6AE454AED8787BF59A862BD925
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:741937EBA3D02A6AE454AED8787BF59A862BD925
 magnet:?xt=urn:btih:11C86DAA89CAE8AAF54F23305B6FF784DCE0B192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:11C86DAA89CAE8AAF54F23305B6FF784DCE0B192
 ```bash
 magnet:?xt=urn:btih:7C9AF0BE451E4A690CACE8EA9EFF4B4E4A8534C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ Blind Golem - Wunderkammer (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Roc
 magnet:?xt=urn:btih:05A264CFD41598E48C00040CE4247F75D32F8498
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ Marta Prell - Versus Songs (2012) [MP3|320 Kbps] <Chaotic Hardcore, Post Hardcor
 ```bash
 magnet:?xt=urn:btih:C935526AB19E42B3E7F80BEDBF692BF4C21657B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ Theaters des Vampires — итальянская группа, известна�
 magnet:?xt=urn:btih:646BAAA9256AAE3C08BCF7B0F87D21797D0FB85E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ Tremonti - The End Will Show Us How (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:6DB43A32BE03B754BB7C19F4FD2BBE676AF106E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ Conquer Divide - металкор/пост-хардкор-группа, обра
 ```bash
 magnet:?xt=urn:btih:9FB123D138774B2872581C8BDBFE4D52E6C0644F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +626,8 @@ My Arrival - Lost 3mbers (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 magnet:?xt=urn:btih:6CC2A61658E4044A95484CE73B277ECA4926D726
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ Iskald - Innhostinga (2018) [FLAC|Lossless|image + .cue] <Melodic Black Thrash M
 ```bash
 magnet:?xt=urn:btih:2708DA6EB886A99255C47D6CA75AD41126B68F7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +684,8 @@ Anita O'Day - Cool Heat: Anita O'Day Sings Jimmy Giuffre Arrangements (1959) 199
 magnet:?xt=urn:btih:245B061C1D36BC24CE0BC3532EDCEB042C1B11C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ Atreyu — американская группа из округа Ориндж,
 ```bash
 magnet:?xt=urn:btih:0DEF3DBD049D016F76E5CA9945AD101DD6633FC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

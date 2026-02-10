@@ -21,6 +21,8 @@ Telemaster2 2.07 [Ru]
 magnet:?xt=urn:btih:19889130B969E6767393B202F8577F4ED704AEAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ DjVuReader - программа для просмотра файлов в фор
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Stardock Start10 – утилита, предназначенная для пр�
 ```bash
 magnet:?xt=urn:btih:72C771FC3BCD88898B5237616B775189B2D3AFCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Crossword Creator - развлекательное приложение, кот�
 magnet:?xt=urn:btih:1F1227C1310FA348701AE6820C5F39CA35CED022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ RapidTyping Tutor - бесплатная программа-тренажер п�
 ```bash
 magnet:?xt=urn:btih:9CF27E7EA5931EB16A049D6D7BD287F92B916397
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ NewWeather - это информер с перекидными часами и �
 magnet:?xt=urn:btih:13B0E8116CC94BC177E0605F720EBC2D45A05FEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Volume Activation Management Tool (VAMT) 3.1 Version 10.1.10586.0 [En]
 magnet:?xt=urn:btih:F323FF448092DBA397A01FEDC85F5F74A794504F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ NuttyBoot предназначен для запуска из флешки/SD д
 ```bash
 magnet:?xt=urn:btih:0E3353D4EC10090E8B17CFDA9E3A9414750EC781
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Linux Live USB Creator 2.9.4 Portable [Multi/Ru]
 magnet:?xt=urn:btih:A0353D2A9884B0C09945CC5B2EC544094790E397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ StartIsBack++ возвращает в Windows 10 полнофункционал�
 magnet:?xt=urn:btih:34CBE615E4825528FCBA8D30A9166BED162297E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Windows 10 Login Changer - простая портативная програм�
 ```bash
 magnet:?xt=urn:btih:EAB432A15E1B2FE3F4FB4757AE7B673BCB85D75C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ WinDjView — лёгкая, но функциональная программа
 magnet:?xt=urn:btih:94DF94A20E155A749D8DB84A88FE698438A6F433
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Font Renamer 2.1.6 Portable [En]
 ```bash
 magnet:?xt=urn:btih:49049DB2E6AC4436F9B57024D3DA5B194659DD58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:49049DB2E6AC4436F9B57024D3DA5B194659DD58
 magnet:?xt=urn:btih:DE024FBE61F46B08E1284D2CAEF33910C61E6354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ SkyChart — замечательный бесплатный атлас звёз
 ```bash
 magnet:?xt=urn:btih:49EA60F2BDA679EE5B71CA32788C69DA1BEA7F24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Hasher - это программа предназначенная для выч�
 magnet:?xt=urn:btih:DDA1A9942DA3DECE488BD6F9ED83FBE7EBC8CD03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Spartan - это мощный буфер обмена. Micrоsoft Officе и д�
 ```bash
 magnet:?xt=urn:btih:976BF2E5DEDD185EDD74A161DA7C43335807EDFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Xpadder — программа для симуляции нажатия клав
 magnet:?xt=urn:btih:7DD73330223B0B27842BAEDDBD54B81D261C6D30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Stardock CursorFX - утилита для создания новых или р�
 ```bash
 magnet:?xt=urn:btih:D8106A81AF4AFE5FBF985AEA672C6A59B80B94EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ HelpSmith - инновационная программа-помощник, по
 magnet:?xt=urn:btih:A50CE1250C40340118EAB5494BF350D056204A37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ SnagIt предлагает неограниченные возможности 
 ```bash
 magnet:?xt=urn:btih:5375B124B3A1C79E51A93678540C44E14F7CF706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ File Association Fixer v2 for Windows 10 Portable [En]
 magnet:?xt=urn:btih:BBD88C8AF898A3F24A37C25BBB51FB6A530AF16C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:BBD88C8AF898A3F24A37C25BBB51FB6A530AF16C
 ```bash
 magnet:?xt=urn:btih:8707C9BE84DD76B788CCD01B6355F83EDD71591C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ System Font Size Changer - небольшая портативная утили�
 magnet:?xt=urn:btih:5D1A1497DEAA0B57FC7CFF3B8984D7A41A28BE04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ HashTab - программа для определения контрольны�
 magnet:?xt=urn:btih:8DC7CF00C3C4CCB5A58BCDF5E3444F49C167A2BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Image Dupe 1.2.2.0 RePack by вовава [Ru]
 ```bash
 magnet:?xt=urn:btih:93E82B538E685252C9D6C1D30655F26E35FAD96E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

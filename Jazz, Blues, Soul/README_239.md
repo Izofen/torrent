@@ -22,6 +22,8 @@ Bart&Baker - Electro Swing Tribute (2016) [MP3|320 Kbps] <Swing, Electro Swing, 
 magnet:?xt=urn:btih:77A2F5CAF84AF320EDD7DD9EEABC6CF775C3F078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Art Pepper & Blue Mitchell - The Dolo Coker Sessions (1976) 2008, Synergy Record
 ```bash
 magnet:?xt=urn:btih:081F54F1B1BFFBF02DBDF5E6BA71DEAD74FC7277
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Marcus Printup - Song For The Beautiful Woman (1995) Blue Note [FLAC|Lossless|tr
 magnet:?xt=urn:btih:AABB1808A52A6C9D2A8C322ED8E4656A9758B642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Darrell Mansfield - I Am Not Alone (2014) [FLAC|Lossless|tracks + .cue] <Christi
 ```bash
 magnet:?xt=urn:btih:45327921DC32053C081C53C854B2022B95366E6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Steve Lacy & Eric Watson - Spirit of Mingus (1992) Free Lance[FLAC|Lossless|trac
 magnet:?xt=urn:btih:F80AAF03F4F11775C9A195D9E2FDEE3132502C94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Sonny Stitt - At The Hi-Hat vol.I (1954) 1992, Roulette Records[FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:6B4C3D597F85DF294BEED30AD70D66A4F936A9D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ CD1 - The Princess:
 magnet:?xt=urn:btih:BE1A7FE056C922C70FC09FDAEE34E10AD45EACB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Bob James Trio - Espresso (2018) Evosound [FLAC|Lossless|tracks + .cue] <Post-Bo
 ```bash
 magnet:?xt=urn:btih:EA726BE52834D9AF06A924ABBBC13312292762F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Greg Marvin - I'll Get By (1991) [FLAC|Lossless|image + .cue] <Hard Bop, Neo-Bop
 magnet:?xt=urn:btih:5CC728DB5FF060E346250DF7861F4CD02DE15A76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Ben Webster - Story 1934-1944 (1996) Jazz Archives [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:211DEF4EE6306590B1AC43082536FA79A3584B94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Jelly Roll Morton - The Best Of Jelly Roll Morton 1926-1939 (1993) Jazz Archives
 magnet:?xt=urn:btih:E2B20194B8D28B0C5B20301EEDBC2764728BF796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ Antonio Hart - For Cannonball And Woody (1993) Novus [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:FF4EE38171507A18C01052CCB52FC3F3F6CC5E5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +369,8 @@ Tanja Raich - Twenty-Four Reasons (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Ja
 ```bash
 magnet:?xt=urn:btih:0A34442DCB5C0CE7BE9043C4D3BF6E7E5563CF60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +402,8 @@ Glitterbox Presents Pump The Boogie! MIXED
 magnet:?xt=urn:btih:3B8348450D9181F03109D367EE5B3A8307D71547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +430,8 @@ Jiro Inagaki - Woodstock Generation (1970) 2009, P-Vine Records [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:0B828303A1834D46CB25BB907E92CD6FE0F8D582
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +460,8 @@ Gil Evans - The Honey Man (1986) 1994, New Tone Records [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:C80C3C28F368074B4015EF5EAA9A44DEDA4FBF44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +488,8 @@ Gil Evans Orchestra - Live at Umbria Jazz 87, Vol.2 (2000) Egea [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:66419D6C67365DD1B78BDAEE9FBCF3149791CFF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +518,8 @@ Gil Evans Orchestra - Live at Umbria Jazz 87, Vol.1 (2000) Egea [FLAC|Lossless|i
 magnet:?xt=urn:btih:8682ACB2579AC66D7E0009B4B47F5052BCCED55F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +546,8 @@ Ghalia & Mama's Boys - Let The Demons Out (2017) [FLAC|Lossless|tracks] <Harmoni
 ```bash
 magnet:?xt=urn:btih:23E7067E2C580C4095B521B2656CF8856B0DC260
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +576,8 @@ Carl Verheyen Band - Trading 8s (2009) [APE|Lossless|image + .cue] <Blues Rock, 
 magnet:?xt=urn:btih:40E705C80B6A5597ED434AACE5A0A9082843A6FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +604,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:F8EFC0C373B8130CF32C2A06260774E73BF4479D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +634,8 @@ Bodil Niska - Night Time (2008) Bare Jazz Records [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:0CC2F47207C59D57A2683D613984596CCFC0D8FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +662,8 @@ Dakh Daughters - IF (2016) [MP3|320 Kbps] <Cabaret>
 ```bash
 magnet:?xt=urn:btih:C4AFD9C4DB022C60F3B5630A2F7EC571936E4A97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +692,8 @@ Bodil Niska - First Song (2000) Hot Club Records [FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:A64F27FBF422B28E94FEBE168D6DFA54148A27CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +721,8 @@ Bodil Niska - Blue (2004) Bare Jazz Records [FLAC|Lossless|tracks + .cue] <Mains
 magnet:?xt=urn:btih:DF41A934E8AA9928CED78742DCE386DACCBD2CEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ Caecilie Norby - Sisters in Jazz (2019) [FLAC|Lossless|tracks + .cue] <Vocal Jaz
 ```bash
 magnet:?xt=urn:btih:8D5D43541E712DF831947BD39DA2DE22599C0B3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

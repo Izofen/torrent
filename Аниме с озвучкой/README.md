@@ -20,6 +20,8 @@ https://t.me/izofen
 magnet:?xt=urn:btih:FBC9292EB4125D0E6315B3AC3B163E795C047D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:FBC9292EB4125D0E6315B3AC3B163E795C047D72
 magnet:?xt=urn:btih:A12FE680244F4350DEB68BD0FBFBFD02B1E20C28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:A12FE680244F4350DEB68BD0FBFBFD02B1E20C28
 magnet:?xt=urn:btih:5D7578AE63966446BF5DFB9366329C17F32013A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:5D7578AE63966446BF5DFB9366329C17F32013A9
 ```bash
 magnet:?xt=urn:btih:DAB952AAA261D5924839BD0B5BF773D1CFE0F3D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:DAB952AAA261D5924839BD0B5BF773D1CFE0F3D0
 magnet:?xt=urn:btih:F42860D362F552327ABE54EAEEC0651F4750B43E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Busamen Gachi Fighter | Вотурод Мегавоин | Uglymug, Epicfighter |
 ```bash
 magnet:?xt=urn:btih:1D0762D860CB46D375E2D8E99AE9EA86078C0DDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:1D0762D860CB46D375E2D8E99AE9EA86078C0DDB
 magnet:?xt=urn:btih:3D031F471941EEF9AD0823D2DFA43D43F400CE08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:3D031F471941EEF9AD0823D2DFA43D43F400CE08
 ```bash
 magnet:?xt=urn:btih:BD0CA8952D9BD305992BF4FA0E7C9D33C3266B0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Kaizoku Oujo | Fena: Pirate Princess | Фена: Принцесса пирато
 magnet:?xt=urn:btih:672258E0CECFA4DB686D8DB7BC5A3A76B124535F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Kanchigai no Atelier Meister: Eiyuu Party no Moto Zatsuyou-gakari ga, Jitsu wa S
 magnet:?xt=urn:btih:65CFB2BDC1AA90644531BBA827B4ECA8F4737541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Kizetsu Yuusha to Ansatsu Hime | Обморочный герой и принце
 ```bash
 magnet:?xt=urn:btih:0326F26948AD32CF1BF0723A20023271EF44A89A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:0326F26948AD32CF1BF0723A20023271EF44A89A
 magnet:?xt=urn:btih:F90D424D9E268B64158599BBC796CB383599CED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:F90D424D9E268B64158599BBC796CB383599CED3
 ```bash
 magnet:?xt=urn:btih:A737682F85A58C0013977102568BE75DD7F099EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:A737682F85A58C0013977102568BE75DD7F099EF
 magnet:?xt=urn:btih:A61AA11FADE6C7E59E059606CC884151D521B2B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:A61AA11FADE6C7E59E059606CC884151D521B2B6
 ```bash
 magnet:?xt=urn:btih:9AF9BD5F3594DD012B343E1E3A291269F2ADE228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Tsuihousha Shokudou e Youkoso! | Welcome to the Outcast's Restaurant! | Добр
 magnet:?xt=urn:btih:B0763686BED68F27D7B3DD5B04D9895FDEF4F8AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Higurashi no Naku Koro ni | Higurashi When They Cry | Когда плачут ц
 ```bash
 magnet:?xt=urn:btih:74DCE4BF62507D131C07FC8BBD15E224E6E69E6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Higurashi no Naku Koro ni Kai | When They Cry: Kai | Когда плачут ц�
 magnet:?xt=urn:btih:E7D9C9697759A83559CBA48913E57487BE35F3BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:E7D9C9697759A83559CBA48913E57487BE35F3BE
 ```bash
 magnet:?xt=urn:btih:83EB182AE9293D22CB537BAD8E7D42C632F91379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou 2nd Season | Orejihanki |
 magnet:?xt=urn:btih:714ACBBBEC29A4B5004C8CA9B088406003EEA14A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:714ACBBBEC29A4B5004C8CA9B088406003EEA14A
 ```bash
 magnet:?xt=urn:btih:5FBA89385EDF2EAF210CC68CA3261F7AAC1AA857
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Clevatess: Majuu no Ou to Akago to Shikabane no Yuusha | Клеватесс: К�
 magnet:?xt=urn:btih:760468B0D0B7C3BE3A3B026267063E26EEF2322D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Bad Girl | Плохая девочка [ТВ-1] [2025, TV, 10 из 12] WEBRip 10
 ```bash
 magnet:?xt=urn:btih:1EC366654960D862814B3EE1CE503F1842B6C7D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Berserk: Ougon Jidai Hen - Memorial Edition | Berserk: The Golden Age Arc - Memo
 magnet:?xt=urn:btih:E17FC1E010EA56D46CEBF16A132F4E1CC9C4C0BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Yofukashi no Uta Season 2 | Call of the Night Season 2 | Песнь Ночных
 magnet:?xt=urn:btih:4CADCE07388B1D95F76015C52C0F4E7619DC7875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:4CADCE07388B1D95F76015C52C0F4E7619DC7875
 ```bash
 magnet:?xt=urn:btih:2FB2003A98E27CF517D43CA8EDE8826AAF3B209F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

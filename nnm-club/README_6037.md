@@ -22,6 +22,8 @@ Bang Camaro - Bang Camaro I-III (2007-2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 magnet:?xt=urn:btih:A21107725F17C413B62B9742629382486A6A4449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Ronin - Valak the Defiler (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:BDA925421A09C8837D8DBF876CFE022E677AA0E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Paquito D'Rivera - Este Camino Largo (1978) 2002, Yemaya Records [FLAC|Lossless|
 magnet:?xt=urn:btih:5502108C575D580404089AD010F1A3F17FB772E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ VA - Музыка РУ. Шансон (2005) [FLAC|Lossless|tracks + .cue]<Шан
 magnet:?xt=urn:btih:C44BB5D40DD6A2AFF1B3CE19FAE8EE39B30D1BFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:C44BB5D40DD6A2AFF1B3CE19FAE8EE39B30D1BFB
 magnet:?xt=urn:btih:6CEBFA742AD6A7258DC99FB54098E92369621AAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:6CEBFA742AD6A7258DC99FB54098E92369621AAA
 ```bash
 magnet:?xt=urn:btih:7970B2EA9EF205D3B24E91A5513EB4D5A2F897A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ Ataraxie - Live Doomination (2003) Demo [FLAC|Lossless|image + .cue] <Funeral Do
 magnet:?xt=urn:btih:66B0595FD1E8FFA67ED18E99FF545C2B6040E9F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ XYplorer - удобный мультивкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:3972309C75793FEDA96481966761D2F3DCFCEB58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ VA - Sexy Love (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Chillout>
 magnet:?xt=urn:btih:622ED24B8A14C0CB3E5DD4C7D046179D74D9F093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ Bhargest - Ritual of Death (2017) [FLAC|Lossless|image + .cue] <Doom, Death Meta
 magnet:?xt=urn:btih:C9896F2F2BBD3D01F0CC1FF4F7D2511B7F8F603B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:C9896F2F2BBD3D01F0CC1FF4F7D2511B7F8F603B
 ```bash
 magnet:?xt=urn:btih:1DC3EEFBBE714EB3B61F33D62E29FF308F8AB54D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:1DC3EEFBBE714EB3B61F33D62E29FF308F8AB54D
 magnet:?xt=urn:btih:B57CDE392767D2825E83AA1B0BEF702ED59C6AE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:B57CDE392767D2825E83AA1B0BEF702ED59C6AE1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:B57CDE392767D2825E83AA1B0BEF702ED59C6AE1
 magnet:?xt=urn:btih:8AA7055131B70215DB9E66E4D5E07858F35531DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:8AA7055131B70215DB9E66E4D5E07858F35531DC
 ```bash
 magnet:?xt=urn:btih:CCF3168754E6561E15B48570428330FDFF6A179E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:CCF3168754E6561E15B48570428330FDFF6A179E
 magnet:?xt=urn:btih:D3A3908D71E392C3A935DCCD178C3B3E498114EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ Total Audio Converter - мощный конвертор всех музыкал�
 ```bash
 magnet:?xt=urn:btih:F34458F305A8E12DE5155BF391CF359039802B6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:F34458F305A8E12DE5155BF391CF359039802B6E
 magnet:?xt=urn:btih:C4F4B075642294166A501A6BC3F9F52A7C57B05A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ Manhunt (2004) [Ru/Multi] (1.1) Repack Necros
 ```bash
 magnet:?xt=urn:btih:8ED421416E1BABB4DD9195D5BA851836F877C14D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ MakeMKV - программа позволяющая в один клик кон�
 magnet:?xt=urn:btih:401DECB6E430A0469BBCDB63B1A5B5820EAAAD4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.1.0/dlc) Repack Let'sРlay [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:4F16DF6C46614E8A5C86B4D9A0ADA93E93313419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ Thief's Shelter - это 3D Point and Click Psychological Adventure, где ми
 magnet:?xt=urn:btih:BEBF70C10E2B2110D8CB3F98E75B35D239CC0A38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ Lessaria - это наследник Majesty. Мы возвращаем на с�
 ```bash
 magnet:?xt=urn:btih:9C437E5743F385ECD7D9717E5C89DE113F75ED4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:9C437E5743F385ECD7D9717E5C89DE113F75ED4A
 magnet:?xt=urn:btih:B3EC9D45C700FFFEF9DC857697D9ADE7D9DCCF85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ History Opener — это высококачественный шаблон дл
 magnet:?xt=urn:btih:683167D7C5BE67D43CB790AF4B5F33D8C5DDEFBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:683167D7C5BE67D43CB790AF4B5F33D8C5DDEFBE
 ```bash
 magnet:?xt=urn:btih:3A1474C10F85D5919B73077B674CC781817AABA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1340130774B0AD2A8C6F3641A8AEC1FA654B821D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Fausto Papetti - Isn't it Saxy? (1988) 2CD [FLAC|image + .cue]<Jazz, Easy Listen
 ```bash
 magnet:?xt=urn:btih:6D7FCB3A5D7C25492D0A08A4C2B28B99ABF9FB8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -79,6 +83,8 @@ Avishai Cohen - Triveni II (2012) [FLAC|Lossless]<Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ EZ CD Audio Converter - утилита для преобразования ау�
 magnet:?xt=urn:btih:7452ECBC86F5EF11BEA6C32E9E9E5DA0A335904A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:7452ECBC86F5EF11BEA6C32E9E9E5DA0A335904A
 ```bash
 magnet:?xt=urn:btih:4F212D36A2D04D634EDEDA95A9EA098C949BF569
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Marillion - With Friends From The Orchestra (2019) [FLAC|24/96|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:7B8B1F266866BDBC8A2CC6EB2777FC2205D10498
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ VA - Ibiza 2019 Winter Clubbing (2018) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:05C7228E081DD87CA5A9398EF5F3BA83DB49C93B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:05C7228E081DD87CA5A9398EF5F3BA83DB49C93B
 magnet:?xt=urn:btih:44111654E6D92D782B00D25671EC39372CA99175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:44111654E6D92D782B00D25671EC39372CA99175
 ```bash
 magnet:?xt=urn:btih:9AB32AF445127AF524A797FF581417027F8CF0E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 magnet:?xt=urn:btih:D9E31738434B834040C9CC253A59B6FB5708A73F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:D9E31738434B834040C9CC253A59B6FB5708A73F
 ```bash
 magnet:?xt=urn:btih:427A2046FAAD932FCCC80C469E87FC58AC3BF13D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:427A2046FAAD932FCCC80C469E87FC58AC3BF13D
 magnet:?xt=urn:btih:50DBDB9802B1E438883D690E6D325F68977BC362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:50DBDB9802B1E438883D690E6D325F68977BC362
 ```bash
 magnet:?xt=urn:btih:4226FFC5A410660C034E158A5B5B869B0C4E138B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Nirvana - Under The Covers (2019) [FLAC|Lossless|tracks] <Alternative Rock>
 magnet:?xt=urn:btih:95E126C57C2164F0905917C3AE18686AE3D3C2C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:95E126C57C2164F0905917C3AE18686AE3D3C2C2
 ```bash
 magnet:?xt=urn:btih:744B4A94FE40AE224C1CEB552BB9218BF87BB281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ VueScan - программа для работы со сканерами HP, Min
 magnet:?xt=urn:btih:CD325C56487A5A8E7593622F7DDD51702F6F2D96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:CD325C56487A5A8E7593622F7DDD51702F6F2D96
 ```bash
 magnet:?xt=urn:btih:39FFF529AB3230D5189C82B93EF58B048FB42F5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:39FFF529AB3230D5189C82B93EF58B048FB42F5E
 magnet:?xt=urn:btih:3330AECF8FF8AC3E1CDCCF4BEF1BEF2277F2616D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ FoneDog iOS Unlocker — это мощный инструмент, которы�
 ```bash
 magnet:?xt=urn:btih:90565034FD8588A666F846D39FCEAF32C9297821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ Beth Adams - Always Christmas (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Christm
 magnet:?xt=urn:btih:E4F3EA801A9DC0A3E08ECCA109C7744B79818A17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:E4F3EA801A9DC0A3E08ECCA109C7744B79818A17
 ```bash
 magnet:?xt=urn:btih:E247C6D5533DA87AC9DBEE54C5C6E83B0499D25B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ FinePrint - многофункциональный драйвер для при�
 magnet:?xt=urn:btih:BBABDF20A4444438B49EB4DD5497C340069A302D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:BBABDF20A4444438B49EB4DD5497C340069A302D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ VA - Морозная вечеринка декабря (2012) [MP3|320 кб/с]
 magnet:?xt=urn:btih:80630533C904971C4940BBB3DAC85B29DAE067A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ Swing Of the Dead - 1 альбом (2013) [FLAC|Lossless] <Touhou, Vocal, Doujin
 magnet:?xt=urn:btih:1EE4037753F52EAC3520367C641017994C82A0B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ Movavi Slideshow Maker – это простая и удобная програ�
 ```bash
 magnet:?xt=urn:btih:79C89DD117DD1B279C7514958DEB5BE103C976CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

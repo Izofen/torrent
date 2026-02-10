@@ -22,6 +22,8 @@ VA - Рок впрок 15 (2020) [MP3|320 Kbps] <Rock, Pop-Rock>
 magnet:?xt=urn:btih:679F535A69326DDB3A7D405C825C92564E092315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Русская Дискотека. Волшебный Фонарь (2015) [
 ```bash
 magnet:?xt=urn:btih:9A230E9891EF596DEA3D4CBEF990EF60FC6C0723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Maximum Best Music. Осенние новинки суперхитов (201
 magnet:?xt=urn:btih:74974F52F8F38FD328417F3771303427E926B3B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Robert Plant - Funny In My Mind (2CD Compilation) (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:DA5BC997055E32A2B6D9FED439FEDAD027F1148E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Top Club 40 - October (2015) [MP3|224-320 кб/с]<Dance, Club, Electro, Re
 magnet:?xt=urn:btih:5FE2F72CEBD5BB1E8224AE008C0B4D25552D3224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Beat, Bass, Melody (mixed by Dj V) (2020) [MP3|320 Kbps] <Bass House, Club 
 ```bash
 magnet:?xt=urn:btih:6C55EE1CF69BDD32146928C6ABC2F9418BE6F73C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 009 (2017) [M
 magnet:?xt=urn:btih:C3124DB487E6584E2329B33079A94D14227C9A73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 005 (2017) [M
 ```bash
 magnet:?xt=urn:btih:0742E994260C60A2F5F7687DFB1A4257153203B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +256,8 @@ VA - The Official UK Top 40 Singles Chart (09-11-2014) [MP3|320 кб/с]<Pop, Da
 magnet:?xt=urn:btih:1177F55387B3385A052D301F8308D17CE23022B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +284,8 @@ VA - Beatport Indie Dance / Nu Disco Top 100 October (2015) [MP3|320 кб/с]<In
 ```bash
 magnet:?xt=urn:btih:8EFE662F58A6CBEC367C2AE74719D10C0D8F878B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +314,8 @@ VA - Sojuz Techno & Trance vol. 4 (1996) [MP3|112-320 кб/с]<Electronic, Hard 
 magnet:?xt=urn:btih:71D4EA6BFC222B24D1FB2A804B0E1A13224F7E3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +342,8 @@ VA - Beatport Top 100 Deep House October (2015) [MP3|320 кб/с]<Deep House, Ho
 ```bash
 magnet:?xt=urn:btih:7F9B49B1E3058AE7F03F7872E9671BC4CE29D14C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +372,8 @@ VA - не Громкие новинки недели 85 (2020) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:5778B977BBEDFDDC83F082951706EE278C66E02F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +400,8 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 006 (2017) [M
 ```bash
 magnet:?xt=urn:btih:AE0D3CBF53AD0F3C9EF01BA13F15B8BE9A1CEEA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +430,8 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 007 (2017) [M
 magnet:?xt=urn:btih:5CE4E9B6C86E3AE50F4A2090F3AF33D98EF995BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +458,8 @@ VA - 150 Dubstep Miscellany (2017) [MP3|320 Kbps] <Dubstep, Electro>
 ```bash
 magnet:?xt=urn:btih:21EC1447B876029BB89F3425B65D68DADCA89303
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +488,8 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 008 (2017) [M
 magnet:?xt=urn:btih:B31C85F33FC3C2BA13656CDB136B92A6851BDF37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +516,8 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 004 (2017) [M
 ```bash
 magnet:?xt=urn:btih:CFA8FFBE8177908EFABCFB139DF5208855012D0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +546,8 @@ VA - Resident Advisor Top 50 Charted Tracks October (2015) [MP3|320 кб/с]<Ele
 magnet:?xt=urn:btih:694F1C55CF1EB772637C6971B80F85E1EF0983FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +574,8 @@ VA - Bassleader (07.11.2015) [MP3|320 кб/с]<Techno, Hardstyle>
 ```bash
 magnet:?xt=urn:btih:329084195A4132638D4C550CA3891711F527601F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +604,8 @@ VA - Feuerwerk der Schlagerhits (2015) [MP3|320 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:DAECD8EAED6489E036DEA192E5A4ED45D5214E2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +633,8 @@ VA - Deep House Collection Vol.189 (2018) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:29D3A2849734186CE44C96C034E7ED0B6AE47CB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ Don Omar - Danza Kuduro (2017) Remix [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:9982012F132B5A6331D22F341F115501D0774279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ VA - Time Never Tells: Synthwave Electronic Music (2017) [MP3|320 Kbps] <Synthwa
 magnet:?xt=urn:btih:CF42B48E1353CD8E84FE881D4329B0CC15BE07B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ VA - Осторожно!!! Лавина хитов (2016) [MP3|256~320 Kbps] <Po
 magnet:?xt=urn:btih:1FA412DD8F14F1235DF78E3A3DF034D63A132B8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ VA - EDM Top 50 [Compiled by Zebyte] (2016) [MP3|320 Kbps] <EDM>
 ```bash
 magnet:?xt=urn:btih:6EDB24957C0F340A75B19FCEB7E2C25C5AB9CB8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

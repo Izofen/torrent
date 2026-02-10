@@ -22,6 +22,8 @@ A4 Insidious Repression(   Читать дальше...   )Жанр: Brutal Deat
 magnet:?xt=urn:btih:76EA09B73307699C8A9EA7937EFA8396C76CFF4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Toxic Holocaust — американская трэш-метал-группа, �
 magnet:?xt=urn:btih:78627459D5244934FE0EA2284DBF475A522B020C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ Atrophy - американская трэш-метал группа, образ�
 ```bash
 magnet:?xt=urn:btih:06D3BF7C0E4AE31CD33B18046936EB14BF7D67B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ A4 The Lemon Pipers – Jelly Jungle(   Читать дальше...   )Жанр
 magnet:?xt=urn:btih:37DFED17E6073EB62A7E8FC3819F09C9FDF099FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ A3 Seguidilla: Pres Des Rampart De Seville(   Читать дальше...   )Ж
 ```bash
 magnet:?xt=urn:btih:B5B8E051941F5B10140DEC7251090EEEC3D4E70F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ Kreator - Terrible Certainty (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash
 magnet:?xt=urn:btih:DA834B1AE0427B304A8D19C590199FBAEDADFC33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ Channel Zero — бельгийская метал-группа, образов�
 ```bash
 magnet:?xt=urn:btih:38A5F19740E499FA19EC48ED9D579F25ECAA0F42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +224,8 @@ A4 - Faithless(   Читать дальше...   )Жанр: Death MetalПрод�
 magnet:?xt=urn:btih:3CAF7F4591B0913976D785125AA84992A6405FE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +252,8 @@ Dark Sarah — финская симфо-метал группа, созданн
 ```bash
 magnet:?xt=urn:btih:C204351EE67680F5559F4D08EAF1CAA0F4B32D7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ A4 - Confessor - The Secret(   Читать дальше...   )Жанр: Thrash,
 magnet:?xt=urn:btih:A2ADBDBDC9F1DCF71A974BD381AB5116B6D18BA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ A4 - Assassin's Blade - The Demented Force(   Читать дальше...   )Ж
 ```bash
 magnet:?xt=urn:btih:54EAA49E2DEC69DC522740842889ACEFE8A3DC3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +340,8 @@ A4 - Many Suffer - The Trees Die Standing(   Читать дальше...   )Ж�
 magnet:?xt=urn:btih:BD170013916B7E70821EA3EE61234EA8B7377925
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ P.O.D. (сокращение от Payable on Death) — американская
 ```bash
 magnet:?xt=urn:btih:3674AFD02131E9454ACC28B6741FC99BBF13D2E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +398,8 @@ A4 EKG(   Читать дальше...   )Жанр: Pop Rock, Electro, New Wave�
 magnet:?xt=urn:btih:150177370F96B72B4AE71AE725FB293B084562DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ A4 - Dissenter - Blood Under Heaven(   Читать дальше...   )Жанр:
 ```bash
 magnet:?xt=urn:btih:65DABCD965CE38B96A0D5832E146B763619C5EF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ A4 Walk Through The Bottomland(   Читать дальше...   )Жанр: Rock
 magnet:?xt=urn:btih:ED76F9235E230ED312C6C4DC38FDC9C8C0E3A27E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ A4 - Fatal Violence - Violence Is Golden(   Читать дальше...   )Жа
 ```bash
 magnet:?xt=urn:btih:B36F4B727F418FDC3BC9C4B9D35C444900863152
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +514,8 @@ A4 - Krank - Rented Heat(   Читать дальше...   )Жанр: Thrash, Sp
 magnet:?xt=urn:btih:D9002D80ECC9982273D32EE09C88DE0632ED5102
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ Arrayan Path (ранее Arryan Path) — проект певца и автор�
 ```bash
 magnet:?xt=urn:btih:D7DAF4E9EF2F2CF14A41AB9D6E9E96B4DF6F1EC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +572,8 @@ Municipal Waste — кроссовер-трэш-группа из Ричмонд
 magnet:?xt=urn:btih:8CA737E179C9A6F8932A72CC8956D44374A9A614
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ A4 A Minute Of Your Time(   Читать дальше...   )Жанр: Pop, Sound
 ```bash
 magnet:?xt=urn:btih:87697D718378201E8898F829A22DB47E0EAD4974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +630,8 @@ Exhorder — американская метал-группа образован
 magnet:?xt=urn:btih:668C15937FE087A799B38D6CE08753D4727B6E69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ A4 - Mayhem - Tear Down The Walls(   Читать дальше...   )Жанр: H
 ```bash
 magnet:?xt=urn:btih:5BDD69A33E6F4F80DD3B0E7FAE0D064A7818CE9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ Prong — американская грув-метал-группа, образ�
 magnet:?xt=urn:btih:A121860FEDB92B93B2FE2D84776AFA9CF1425DD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ A4 Papa Was A Rolling Stone(   Читать дальше...   )Жанр: Reggae,
 magnet:?xt=urn:btih:DD509BA9E5922A29369568083E5D855111810324
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ A4 - Future Tense - Nightmare(   Читать дальше...   )Жанр: Thras
 ```bash
 magnet:?xt=urn:btih:8962A3FA23FAF082D27D98356F9FDD801CB07B00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

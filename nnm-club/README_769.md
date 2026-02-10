@@ -19,6 +19,8 @@ NekoBox for Android 1.3.9 [Ru] (Обновляемая)
 magnet:?xt=urn:btih:F54FF15FAF53C6709BD9AD92F2DC0C0082508EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56180/dlc) Repack FitGirl [Deluxe
 ```bash
 magnet:?xt=urn:btih:EBF2058B52A2FAA9CC6BA774DE07F134E96A8ECA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PurpleSchool, Антон Ларичев, Сергей Краснолобов | R
 magnet:?xt=urn:btih:63298F3DB3719B5A256BC6F422C3F2A766B161E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Everdream Valley (2023) [Multi] (5.0423.1455/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:75111A58333DA219AFFDEE2812B57D87AF3D2AA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:75111A58333DA219AFFDEE2812B57D87AF3D2AA7
 magnet:?xt=urn:btih:7D3247FDDBD82E90345E965FA743577BE61C1DF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:7D3247FDDBD82E90345E965FA743577BE61C1DF0
 ```bash
 magnet:?xt=urn:btih:81287585D4525F8CF61B4DCB87D69AF465E6F1AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Activation Program 1.11 Portable by Ratiborus [En]
 magnet:?xt=urn:btih:06712C1C9182322DC86E23BE3EB0909008C00A8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:06712C1C9182322DC86E23BE3EB0909008C00A8A
 ```bash
 magnet:?xt=urn:btih:19470A677BBB58AC36BA27F6A07424F95F68DAC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:19470A677BBB58AC36BA27F6A07424F95F68DAC4
 magnet:?xt=urn:btih:48E44E10C991F6F7D5D9AE4A8DA3305018C02344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:48E44E10C991F6F7D5D9AE4A8DA3305018C02344
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:48E44E10C991F6F7D5D9AE4A8DA3305018C02344
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:48E44E10C991F6F7D5D9AE4A8DA3305018C02344
 ```bash
 magnet:?xt=urn:btih:1301B655A5F2EF1FF5D5B14DFB81C018ED4AC473
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:1301B655A5F2EF1FF5D5B14DFB81C018ED4AC473
 magnet:?xt=urn:btih:8472CE4CDEA75FF51C39D1CB901E966D049BF331
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:8472CE4CDEA75FF51C39D1CB901E966D049BF331
 ```bash
 magnet:?xt=urn:btih:5F9F68BBA76AA28A56C202C24B4D5A6024C35C1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:5F9F68BBA76AA28A56C202C24B4D5A6024C35C1A
 magnet:?xt=urn:btih:5EEADA8F539AA0D197565DA26E0066F38D321B06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:5EEADA8F539AA0D197565DA26E0066F38D321B06
 ```bash
 magnet:?xt=urn:btih:DA08B9CAAE785B50CCC1CB6D19C92B6F4BD2CADC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Steve Blayer - Vermont Wanderer (1996) Ermatell Records[FLAC|Lossless|image + .c
 magnet:?xt=urn:btih:495FD9FEBAFB2A5A8FF6BBE0881ED67C82BAD1BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ It Happened Here 4: If Walls Could Talk / Это случилось здесь 4
 ```bash
 magnet:?xt=urn:btih:A0278008E9BC2A245E021F325D501A0FA00A2977
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Rosario to Vampire | Розарио + Вампир (2004) [10 томов, 40 г�
 magnet:?xt=urn:btih:E02ACD84FF131D4D08F6E1657AE9C44A092665C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Smart AudioBook Player Pro v11.2.8 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BB531A2F027A5F673D17D4EFD6A4DA6C374B0447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ PhotoDirector v20.1.2 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:A93454F9BBBFF94D2233FD9DE150B4D4F280B3E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Sante DICOM Editor — ведущее в отрасли приложение п�
 ```bash
 magnet:?xt=urn:btih:6A3FFB0D7B9A6DBF9CA6FF14213988D058D49E84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Mr Salama - Compilation (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:6F0585CB05F5F3C3F0B8913FFFD818F288181A88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Super Lovers | Больше, чем возлюбленные [2016, TV, 10 из 
 magnet:?xt=urn:btih:7CA01836A7817144D3100B832A0996012C8D019F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:7CA01836A7817144D3100B832A0996012C8D019F
 ```bash
 magnet:?xt=urn:btih:225061D49ABDA195ED6B791AFB8BD9A8333B4780
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:225061D49ABDA195ED6B791AFB8BD9A8333B4780
 ```bash
 magnet:?xt=urn:btih:260F928BB93D26A5C7336F6AFAEB85C583757DC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

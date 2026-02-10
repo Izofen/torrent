@@ -1,3 +1,30 @@
+###  Публикация: 954235   (341280) от 07.11.2015
+
+Firmin-Didot et Ciz (изд.) | Восточная патрология [Patrologia orientalis] [XXIII Тома] (1904-1926, 1930-1932, 1943) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_341280.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Patrologia Orientalis" является попыткой создать полную коллекцию сочинений отцов восточной церкви на сирийском, армянском, арабском, коптском, грузинском и славянских языках. Разработана в дополнение к "Patrologia graeca" и "Patrologia latina".
+Издание продолжается.Жанр: ПатрологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6ECEC5F09562A53012ACFC711ECF0BCF975618F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954500   (341290) от 07.11.2015
 
 Католическая типография Миня (изд.) | Латинская патрология [Patrologia latina] [221 Том] (1844-1855) [PDF]
@@ -18,6 +45,8 @@ Patrologia Latina (Латинская патрология) - отредакти
 ```bash
 magnet:?xt=urn:btih:4058A88A417E40E7C90A37F573D9F139E382088A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:4058A88A417E40E7C90A37F573D9F139E382088A
 ```bash
 magnet:?xt=urn:btih:D46D76BD97C47FB9421BF58D8BB746B1CB5E20BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:D46D76BD97C47FB9421BF58D8BB746B1CB5E20BE
 magnet:?xt=urn:btih:1986C113568B3F7BB20EC217F78EEC3241341AD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +128,8 @@ magnet:?xt=urn:btih:1986C113568B3F7BB20EC217F78EEC3241341AD7
 magnet:?xt=urn:btih:A80C8EF1B7CA7461B20C26E12EEF1AFAFB471116
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:A80C8EF1B7CA7461B20C26E12EEF1AFAFB471116
 ```bash
 magnet:?xt=urn:btih:D72E19FE812739A797D261F951058E3031391AD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +182,8 @@ magnet:?xt=urn:btih:D72E19FE812739A797D261F951058E3031391AD3
 magnet:?xt=urn:btih:EB34B5691B239C8085EF66DECF694F75876B1BEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +209,8 @@ magnet:?xt=urn:btih:EB34B5691B239C8085EF66DECF694F75876B1BEE
 magnet:?xt=urn:btih:CCE706E7EB9662EF9EAAF1E4ECE33B2C237CBB15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +234,8 @@ magnet:?xt=urn:btih:CCE706E7EB9662EF9EAAF1E4ECE33B2C237CBB15
 ```bash
 magnet:?xt=urn:btih:60966D9E8571759FEA518E9435B556FDF1CCACB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +261,8 @@ magnet:?xt=urn:btih:60966D9E8571759FEA518E9435B556FDF1CCACB0
 magnet:?xt=urn:btih:688618D64DC924B15B952682B55FBB0FBB1D1392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +286,8 @@ magnet:?xt=urn:btih:688618D64DC924B15B952682B55FBB0FBB1D1392
 ```bash
 magnet:?xt=urn:btih:2C7C4C27B4C9EBE806B6F196063C6E8F5B73C56E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +314,8 @@ magnet:?xt=urn:btih:2C7C4C27B4C9EBE806B6F196063C6E8F5B73C56E
 magnet:?xt=urn:btih:DD9DBB7E777D414DB808F441D721C7284AE7D47D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +339,8 @@ magnet:?xt=urn:btih:DD9DBB7E777D414DB808F441D721C7284AE7D47D
 ```bash
 magnet:?xt=urn:btih:AE78587A357FAB113119640ACFF4E4E55F4AC130
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +366,8 @@ magnet:?xt=urn:btih:AE78587A357FAB113119640ACFF4E4E55F4AC130
 ```bash
 magnet:?xt=urn:btih:E7EED2E5603AB7015176A077C28B85ACB450913B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +395,8 @@ magnet:?xt=urn:btih:E7EED2E5603AB7015176A077C28B85ACB450913B
 magnet:?xt=urn:btih:0E8B8AE7A40EE6451CAF9748DCB55CBA31DDC54C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +420,8 @@ magnet:?xt=urn:btih:0E8B8AE7A40EE6451CAF9748DCB55CBA31DDC54C
 ```bash
 magnet:?xt=urn:btih:ACD25CF830F293F009239BB6F6657F4E4F76584D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +447,8 @@ magnet:?xt=urn:btih:ACD25CF830F293F009239BB6F6657F4E4F76584D
 magnet:?xt=urn:btih:80B0BEDA40BEE20D3A757A3FEBA05446C0CB642A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +472,8 @@ magnet:?xt=urn:btih:80B0BEDA40BEE20D3A757A3FEBA05446C0CB642A
 ```bash
 magnet:?xt=urn:btih:370D0ACF6B71ADD1E32ABAE0AA2B9D9A992B57BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +499,8 @@ magnet:?xt=urn:btih:370D0ACF6B71ADD1E32ABAE0AA2B9D9A992B57BC
 ```bash
 magnet:?xt=urn:btih:347D00AD03439F5D1F44BB1D5B52A4B871EF9A59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +530,8 @@ magnet:?xt=urn:btih:347D00AD03439F5D1F44BB1D5B52A4B871EF9A59
 magnet:?xt=urn:btih:2C82FA7357B6A2E26662D1FC4304F3BA3FB8C1B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +556,8 @@ magnet:?xt=urn:btih:2C82FA7357B6A2E26662D1FC4304F3BA3FB8C1B2
 magnet:?xt=urn:btih:38EEE01F8DA719CCEC9704F413F7C9CA9EF8A8DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +581,8 @@ magnet:?xt=urn:btih:38EEE01F8DA719CCEC9704F413F7C9CA9EF8A8DD
 ```bash
 magnet:?xt=urn:btih:2DBDF5DADADFB3C9A470DBAB8FEC71C8BD0BA9CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +609,8 @@ magnet:?xt=urn:btih:2DBDF5DADADFB3C9A470DBAB8FEC71C8BD0BA9CC
 magnet:?xt=urn:btih:C1ED91E64606E3FD168F706A554248D28D043F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +635,8 @@ magnet:?xt=urn:btih:C1ED91E64606E3FD168F706A554248D28D043F46
 magnet:?xt=urn:btih:4BA94CE33BF4C808844218E5A08681B7F4E7E435
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +660,8 @@ magnet:?xt=urn:btih:4BA94CE33BF4C808844218E5A08681B7F4E7E435
 ```bash
 magnet:?xt=urn:btih:3C41278394ED5063769AD8C7F8F3E711008C5D6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,30 +689,7 @@ magnet:?xt=urn:btih:3C41278394ED5063769AD8C7F8F3E711008C5D6A
 magnet:?xt=urn:btih:B653E6DDDBE1CE1B9A8550E05F869AC2AF9C5B8F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257732   (343123) от 27.10.2018
-
-Мила Холоша, Мария Демяненко | Типология сотрудников ресторана. Как сформировать команду, которая работает на результат (2018) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_343123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ключ к успеху ресторана – взаимопонимание и взаимодействие собственника, управляющего и шеф-повара. В книге выделены прикладные типы собственников и сотрудников в контексте практической работы в ресторанной отрасли. Рассмотрены их мотивы, наиболее вероятное поведение, точки воздействия и их совместимость с точки зрения результатов совместной работы.
-Выделены различные (   Читать дальше...   )Жанр: О бизнесе популярноФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA78ED168B396F0EC9F0180348DA9B69F6FC0594
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

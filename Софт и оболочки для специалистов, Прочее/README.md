@@ -20,6 +20,8 @@ Microsoft Visual C++ Redistributable — это набор системных б
 magnet:?xt=urn:btih:614CF2A65469C2CA02252C39E3571D0A8BB74ECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ RED CAD сочетает интуитивное управление с прак
 magnet:?xt=urn:btih:04A3FD86D17C17FC2F6EEB92765201A1D5263506
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Microsoft Visual C++ Redistributable Package – это распространя
 ```bash
 magnet:?xt=urn:btih:E463479ABA0AA8CECF537201EA70F613983F199C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ WinPE 11-10 Sergei Strelec (x64) 2025.09.29 [Ru]
 magnet:?xt=urn:btih:4E006860E82DE769DE04DF0E4DD12B66134FA335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ MInstAll v.21.09.2025 By Andreyonohov (Unpacked) [Ru]
 ```bash
 magnet:?xt=urn:btih:C534D649CF0B8C25A0E5D8C708D69A42B05E83BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Prism представляет новые способы организации,
 magnet:?xt=urn:btih:5315EFBD40FB51CC01058DCD7369E2E51682F334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ isual Studio — это мощное средство разработчика, 
 ```bash
 magnet:?xt=urn:btih:8A5EE96932CBDDAFEAB7CCC534DF9ECBB6A386AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Open Server Panel 6 — это обновлённая версия популя�
 magnet:?xt=urn:btih:545F0B3A526AC8126C4482187D92476D74358689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Visual Studio — это мощное средство разработчика,
 ```bash
 magnet:?xt=urn:btih:E9D36F6ED6EDCD85C86B27D26C956D0239CA5042
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ WinToUSB — лучший Windows To Go (WTG) Creator, который позво
 magnet:?xt=urn:btih:89CA23206492265AC7C83230B45A66912B548038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ SolarWinds Platform — это единая интегрированная пл�
 ```bash
 magnet:?xt=urn:btih:83A1CFBFCDCD8BAD226D880656DA75544ACACA9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 magnet:?xt=urn:btih:D7014B428F12CFD2D8AD1F7EFC4D7C5F4A0DF025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:D7014B428F12CFD2D8AD1F7EFC4D7C5F4A0DF025
 ```bash
 magnet:?xt=urn:btih:4E35A6571A220D7395457D60E9754F33872CDF3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ MSActBackUp - программа для сохранения и восстано
 magnet:?xt=urn:btih:1559D3A4CD8CFED31B5BC18B2BB545D543889352
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Microsoft Visual Studio 2026 Enterprise Insiders 18.0.0 (Offline Cache) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:03EE6FA240DDEF6A78C4378B040BF6B47EF71BAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Oracle VM VirtualBox является многофункциональным и�
 magnet:?xt=urn:btih:CED50F94CA5D8C932C2512BD37D042B2E9449A8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ ArchiCAD - это мощное приложение моделирования, 
 magnet:?xt=urn:btih:EC2A03A40F17FBA0847B64906D7CA4439E880573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Silent Install Builder позволяет автоматизировать за�
 ```bash
 magnet:?xt=urn:btih:C1E3F623416C64EA586A3EAD5028DD430D2A6BB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Lively Wallpaper — сравнительно простая, полностью
 magnet:?xt=urn:btih:4188B025D1D24D36B2049580983D1226317CF16C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ WinToUSB - позволяет устанавливать и запускать �
 ```bash
 magnet:?xt=urn:btih:E6FA15F356492CB4445AA1A4EE311F456952131C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ FontViewOK 8.99 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:B876E4F337DFB6B973FD392DD020AEA360A27902
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Adobe Dreamweaver - профессиональная программа для �
 ```bash
 magnet:?xt=urn:btih:B6E0488BAFB3785D0BCAC8ACC7426A7BE8E33557
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Snappy Driver Installer Origin (SDI Origin) - главная ветвь порт
 magnet:?xt=urn:btih:EC9FB92DF9B31E9A24804D5F8CE1740A630EC724
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ ProfiCAD - программа, которая будет очень полезн
 ```bash
 magnet:?xt=urn:btih:500FAF6679897D349C57C968EF8051A6185BC310
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ PilotEdit можно использовать для редактировани�
 magnet:?xt=urn:btih:2A95A03FDADF34C29066E4AFD98A263D2B378AD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ RubyMine — умная и удобная интегрированная сре�
 ```bash
 magnet:?xt=urn:btih:D168CD5E55DF9E0A029E29F433398E3CA63FF20B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

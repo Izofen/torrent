@@ -22,6 +22,8 @@ electron7 - The singularity (2025) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Elec
 magnet:?xt=urn:btih:BF18D3EA89AF5077B9A2DCF89F79F9F1E6E04989
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - One Shot '80 Volume 19 (2007) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, S
 ```bash
 magnet:?xt=urn:btih:37939F605989B1F2A3770A0CB531E424F2F49820
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - One Shot '80 Volume 18 (2006) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, S
 magnet:?xt=urn:btih:597821DE14CEBFD73A10D774E98686204FC8BC3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:597821DE14CEBFD73A10D774E98686204FC8BC3F
 magnet:?xt=urn:btih:CE0622486E9AFA738BF713BC33E47344CADB65FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:CE0622486E9AFA738BF713BC33E47344CADB65FF
 ```bash
 magnet:?xt=urn:btih:8BBCCFA53124331C8220CDFAB06BEEFC12EF2C55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:8BBCCFA53124331C8220CDFAB06BEEFC12EF2C55
 magnet:?xt=urn:btih:207BE89F1E06F07D0CA34A10E54AA879C73D1482
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:207BE89F1E06F07D0CA34A10E54AA879C73D1482
 ```bash
 magnet:?xt=urn:btih:974671B65E4ABDC1B52C0B75042E172C1283F9CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ Downhome Kin - Muddy River Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:89381834D23E01A33BD3CDE71AEC3F5B7BB90003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ Ernestronix (Ernesto) - Synths Earth Orbit (New Dimensions) (2025) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:0A5AD2FEA934211B0961F3958614C08A7ECE4817
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -255,6 +273,8 @@ VA - Deep & Soul 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 magnet:?xt=urn:btih:653378D2D80C4E90C9444520D3F514C302F5CDDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +302,8 @@ Downhome Kin - Backroads & Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:8CD8175D5F319D9E484E42135A8BA806B973341C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ magnet:?xt=urn:btih:8CD8175D5F319D9E484E42135A8BA806B973341C
 ```bash
 magnet:?xt=urn:btih:26D4D009994FCF8632673AA0EC36905B02A796FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +357,8 @@ Fantas Braz - Reversal (2025) [MP3|320 Kbps] <Electroclash, Synthwave, Synthpop>
 magnet:?xt=urn:btih:AC8D15CA467811454016A20E5766C204F38CA458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ magnet:?xt=urn:btih:AC8D15CA467811454016A20E5766C204F38CA458
 magnet:?xt=urn:btih:BA1093A988342AAF4A39075DD41A22BA544CC1D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ magnet:?xt=urn:btih:BA1093A988342AAF4A39075DD41A22BA544CC1D8
 magnet:?xt=urn:btih:79D8DEB3490A0AC8F2493BC4AAA1DD25AAD75D1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:2F0ED014B55AB1E8A55C8C6BC554589755D96BE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +466,8 @@ Worms Ultimate Mayhem является совмещением двух друг�
 magnet:?xt=urn:btih:56340BB06D21E9238427138B30CE6EC7EEDC61E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ R-Wipe & Clean - программа для невосстановимого уд
 magnet:?xt=urn:btih:E8EDEFF7A9C54EE8CF2C1C30F2A6C3E03CFDEE23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ Main card турнира "UFC 313", прошедшего в T-Mobile Arena in Pa
 ```bash
 magnet:?xt=urn:btih:D48731EBADBA93F3C65AC56BD7E3E3A073225940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:1B33595C81914434BEE553F06FC88DBD8927CC56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +575,8 @@ magnet:?xt=urn:btih:1B33595C81914434BEE553F06FC88DBD8927CC56
 magnet:?xt=urn:btih:E46EF0DFFA41198FCE9701C20ABAF1849C8443E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ Pack 5 попадает во все нужные места с ярким цве
 ```bash
 magnet:?xt=urn:btih:065BBCF64EFD2827FBC6939CC6D41293B26E477F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ PianoMeter – Piano Tuner v3.4.2 Mod by Alex.Strannik [Ru/En]
 magnet:?xt=urn:btih:FCEE020242E67AB9C632A9AEECF73B4E76B98F7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ Nine Sols (2024) [Ru/Multi] (Build 7c478ba3) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:E3437ED7E76B8A18A9E868B9B5755587B9E627D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ FLEURS COLOR это 7 пресетов для коррекции зеленых 
 magnet:?xt=urn:btih:02652D1B2BD6BA496F70C6422E6947C2C475B20D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:02652D1B2BD6BA496F70C6422E6947C2C475B20D
 ```bash
 magnet:?xt=urn:btih:574E6E8D3FAD8E505E0982C8F9319FB9D7BEF6F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

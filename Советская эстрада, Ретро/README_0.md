@@ -28,6 +28,8 @@ Georgia Gibbs - The Complete Original Hits Of Georgia Gibbs (2007  (1950-1958)) 
 magnet:?xt=urn:btih:2F4C37046F2FDD534284FBC0672A8A522DF2151F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ VA - Рождественский романс (2015) [MP3|320 Kbps] <Роман
 ```bash
 magnet:?xt=urn:btih:C3A2DC5C8107EA3B913E83C6AEC4FEAD8C106507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ magnet:?xt=urn:btih:C3A2DC5C8107EA3B913E83C6AEC4FEAD8C106507
 magnet:?xt=urn:btih:FFB990D49DC4B671FA059C5D2AE14301D2A5F798
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ magnet:?xt=urn:btih:FFB990D49DC4B671FA059C5D2AE14301D2A5F798
 ```bash
 magnet:?xt=urn:btih:E9B0940C0B41FA17E731B6BEF8DF5B4087AF460F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ magnet:?xt=urn:btih:E9B0940C0B41FA17E731B6BEF8DF5B4087AF460F
 magnet:?xt=urn:btih:76558602654603E9CB02DD5944C2E6FACF766C2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ magnet:?xt=urn:btih:76558602654603E9CB02DD5944C2E6FACF766C2A
 ```bash
 magnet:?xt=urn:btih:E4C073C8F0F41F0A92388E4F4DDFDE7D2A12755C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ magnet:?xt=urn:btih:E4C073C8F0F41F0A92388E4F4DDFDE7D2A12755C
 magnet:?xt=urn:btih:4794B0A832352F89A4EA624D1641783515C5E59D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ VA - Новогодний подарок (2005) [MP3|320 Kbps] <Ретро>
 ```bash
 magnet:?xt=urn:btih:113639C44A2D0D8661CA4B2A5DFA2030615F81FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ VA - Хит-парад 70-х. Выпуск 2 (1998) [MP3|320 кб/с] <Сове�
 magnet:?xt=urn:btih:B865D9582296682B9FBE1FB1C35ECBCF9AE0BFFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ magnet:?xt=urn:btih:B865D9582296682B9FBE1FB1C35ECBCF9AE0BFFC
 ```bash
 magnet:?xt=urn:btih:E34A89E0CF2006678450C91F2B9F5EF65D3F9FDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ VA - Эти песни запевает молодёжь - Любимые пес
 magnet:?xt=urn:btih:28A243CCBFDD093ADD03D640A89012BCF77FF015
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +346,8 @@ magnet:?xt=urn:btih:28A243CCBFDD093ADD03D640A89012BCF77FF015
 ```bash
 magnet:?xt=urn:btih:8860FAE91AB1C710458FC15F65B27C8A7B4B5ED7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ magnet:?xt=urn:btih:8860FAE91AB1C710458FC15F65B27C8A7B4B5ED7
 magnet:?xt=urn:btih:04A3B8F31E6DA7F435734C8B8D0C1AACDBF77839
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +404,8 @@ magnet:?xt=urn:btih:04A3B8F31E6DA7F435734C8B8D0C1AACDBF77839
 ```bash
 magnet:?xt=urn:btih:D372BCC9DA1A9E85AD779F18553F24C640198843
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ VA - Ретро Шлягер Новогодний (2006) [MP3|320 Kbps] <Рет�
 magnet:?xt=urn:btih:0A7609B79C6C8FDE5BB033992315BC057869A592
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ magnet:?xt=urn:btih:0A7609B79C6C8FDE5BB033992315BC057869A592
 ```bash
 magnet:?xt=urn:btih:B89CCFB21C68FAE0689A4C0E2476F696EFFE904A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ magnet:?xt=urn:btih:B89CCFB21C68FAE0689A4C0E2476F696EFFE904A
 magnet:?xt=urn:btih:45B1EF6F270552060999785BB49F70FB98798D35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +520,8 @@ magnet:?xt=urn:btih:45B1EF6F270552060999785BB49F70FB98798D35
 ```bash
 magnet:?xt=urn:btih:0476FC7D5F53B04B33779D43CF752E113A11DA2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +550,8 @@ VA – Мамина пластинка 2. Лучшие хиты 70х-80х (2003)
 magnet:?xt=urn:btih:1FAE44DE0324A4AF72146FFB5F60A9013409B163
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +578,8 @@ magnet:?xt=urn:btih:1FAE44DE0324A4AF72146FFB5F60A9013409B163
 ```bash
 magnet:?xt=urn:btih:974F3230A4C16A88889BDEDBAD3A6C48C1D84EBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +608,8 @@ VA - Лучшие песни 1969-1980 В.И.А. 70-х Vol.3 (1995) [MP3|320 Kbp
 magnet:?xt=urn:btih:6A3F158E713FCC8D40375003A5871481612F5E70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +636,8 @@ magnet:?xt=urn:btih:6A3F158E713FCC8D40375003A5871481612F5E70
 ```bash
 magnet:?xt=urn:btih:15301631AA9F6EDCD3ADFE90453AEABEA7029810
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +666,8 @@ VA - Ромашки спрятались•Песни Евгения Птичк�
 magnet:?xt=urn:btih:D3536C70216A6247B48649FB38D418D5204CA7DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +694,8 @@ magnet:?xt=urn:btih:D3536C70216A6247B48649FB38D418D5204CA7DE
 ```bash
 magnet:?xt=urn:btih:D13C302CCE530AF0521749E07632B181F8199B91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +724,8 @@ magnet:?xt=urn:btih:D13C302CCE530AF0521749E07632B181F8199B91
 magnet:?xt=urn:btih:073CF7870939F1B409F5128F655BFAB3389E7A15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +752,8 @@ magnet:?xt=urn:btih:073CF7870939F1B409F5128F655BFAB3389E7A15
 ```bash
 magnet:?xt=urn:btih:93D4ECDD29918DD092B5368A3577D383C7E0616B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ RTG. Курская магнитная аномалия (2014) HDTV [H.264/1080i
 magnet:?xt=urn:btih:A410379013337DB148BFAFB69AD9C3951C96526B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Snowblind - Behind The Snow (2023) [MP3|320 Kbps] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:0ABC6CE8DD43A7C85C29598C1758EB0C8860FDDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - After Work Chillout, Vol. 1 (2018) [AAC|~311 Kbps] <Lounge, Chill Out, Down
 magnet:?xt=urn:btih:2F06EF84616BFD4DE0B6DEACDC61E929A71B1412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:2F06EF84616BFD4DE0B6DEACDC61E929A71B1412
 ```bash
 magnet:?xt=urn:btih:E7D4C6995570DB9B07694999D461C54D73C5A73A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Bud Shank - The Pacific Jazz Studio Sessions (1956 - 1961) 5CD, 1998, Mosaic Rec
 magnet:?xt=urn:btih:F371025F1EC53D563C40566236A632CAB3B493BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ Monje - Culto al Fin de los Tiempos (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner
 magnet:?xt=urn:btih:37D72C7FEB31D70724BD513110885D067CFC9175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 magnet:?xt=urn:btih:A368ACC9C9916EA9338C38640B3BA23FA736D52B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:A368ACC9C9916EA9338C38640B3BA23FA736D52B
 ```bash
 magnet:?xt=urn:btih:9BBF511997C5CA50A4CB4627311E343DAB1517B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ VA - Deep-House Carnival, Vol. 2 (2022) [AAC|~316 Kbps] <House>
 magnet:?xt=urn:btih:6C010480A91AEA2BCC03CD3E665647A53BC54E5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ FITLAB, А.В. Михалевский | Бои без правил для диа
 ```bash
 magnet:?xt=urn:btih:408DDEDD0FFD3C867DBAFF7BCACC74A375F8BD3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ Sulfure - Anthropocene (2023) [MP3|320 Kbps] <Death, Thrash Metal>
 magnet:?xt=urn:btih:F05AFE8B6B5FDC70BBDF07BF029BA9E755CF1758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:F05AFE8B6B5FDC70BBDF07BF029BA9E755CF1758
 ```bash
 magnet:?xt=urn:btih:2EC3F98C29CC4AFBCF457F093BD77F0633F1CADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +355,8 @@ Lew Soloff - Yesterdays (1986) King [FLAC|Lossless|image + .cue] <Hard Bop, Post
 magnet:?xt=urn:btih:6440573E6611753E8675E7F4DCF725FD01F9F589
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:6440573E6611753E8675E7F4DCF725FD01F9F589
 ```bash
 magnet:?xt=urn:btih:9A01672504C88FCB02EFD4BFE6DD0720E50C9448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ File Juicer может быть использован (   Читать дал�
 magnet:?xt=urn:btih:768568E898148F29F1C2E35A61DE899BAA999B00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:768568E898148F29F1C2E35A61DE899BAA999B00
 ```bash
 magnet:?xt=urn:btih:2B543249D2D161D53BBD2D8E5233CB4BFCE512B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ Eleanore Begin - 3 Albums (2016-2023) [MP3|320 Kbps] <Alternative Metal, Alterna
 magnet:?xt=urn:btih:E92574E8B7E860DDCEC475BC1377E2F2CD37843F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +494,8 @@ Structure - Structure (2022) EP, Remastered [FLAC|Lossless|WEB-DL|tracks] <Atmos
 magnet:?xt=urn:btih:95B337C5324157246A497DDB70F6398AF66FF011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ magnet:?xt=urn:btih:95B337C5324157246A497DDB70F6398AF66FF011
 ```bash
 magnet:?xt=urn:btih:5940A5EDF9DE824B419A66790BBEFE7230409245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:5940A5EDF9DE824B419A66790BBEFE7230409245
 magnet:?xt=urn:btih:3604D711ABA5B35188DEEBA1EA18CA868CADBB13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:3604D711ABA5B35188DEEBA1EA18CA868CADBB13
 ```bash
 magnet:?xt=urn:btih:56C6437078738AE232648AC013DDB3BCFD2A3444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +602,8 @@ Ohrima - Catoblepas (2023) [MP3|320 Kbps] <Progressive Metal>
 magnet:?xt=urn:btih:3DE45C5B854D8309A64974231779794434A63167
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:3DE45C5B854D8309A64974231779794434A63167
 ```bash
 magnet:?xt=urn:btih:062094A14DBE2750D1055CD8D174E4C9A558ED1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ Cadaveria - Collection (2002 - 2022) 6CD [WavPack|Lossless|image + .cue] <Gothic
 magnet:?xt=urn:btih:A0C1847A2AAC621DB999FFABD0C3D5901E230A66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +686,8 @@ A Ride to Heaven - A Ride to Heaven (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:77C59E1E5F20C8DF9F3E6D114E834ACD2371FE66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +714,8 @@ A Gram Trip - Long Overdue (2023) [MP3|320 Kbps] <Stoner, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:8E3749F5FDFE6DE91EC7D93C285443C02BC05805
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

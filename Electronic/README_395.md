@@ -22,6 +22,8 @@ Midnight Danger - Malignant Force (2018) [MP3|320 Kbps] <Darksynth, Retrowave, S
 magnet:?xt=urn:btih:9EBBB76971F9CBE76F6B3FF29B74842DFE619A31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Midnight Danger - Malignant Force (2018) [FLAC|Lossless|WEB-DL|tracks] <Darksynt
 ```bash
 magnet:?xt=urn:btih:2EB9C3503897C88DB03F44E19C32B6E064073F2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Ladies Of Synth (Compiled by Scott Forte) (2017) [MP3|320 Kbps] <Synthpop, 
 magnet:?xt=urn:btih:FCD92A606BB87BD17E2807EA29B11E35C2F796CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:FCD92A606BB87BD17E2807EA29B11E35C2F796CA
 ```bash
 magnet:?xt=urn:btih:A6AC40A212BFCDB5CF356175763F1ABE700BC0BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Sam Feldt - After The Sunset (2018) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:5874450711664DFA1A3CB1918D1F78B8B457B839
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Schwefelgelb - Den Umgekehrten Atem (2017) Fleisch [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:5B4407FC220F134324528604A283D319FEA29AC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Fresh Squeezed Chillout (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:BA2671C1E1E3749948710C3FD975063174F0936F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Manuel Rocca - The Soul Healer (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:E3612F44700FA0370A039DC99230E265152A0CE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Nothing But... Essential House Music Vol.01 (2018) [MP3|320 Kbps] <House, D
 magnet:?xt=urn:btih:4CF3FC60BF429AFC3AEE5BD36731CE7227139159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Nothing But... The Future Of Trance Vol.06 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:07F96138C9BF66874FD376942DD7445B34C71861
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Autumn of Communion - Streams (2018) ...txt [FLAC 2.0|44.1/24|tracks|WEB-DL] <Am
 magnet:?xt=urn:btih:B6625DFF448A6755FE43CDA75DB2AB6AB0A3EFE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Future Vocal Trance Vol.1 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:97E83221E1790655608169B24428E2BE7DAFD312
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Vocal House Traxx Vol. 1 (2018) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:B69DFE0802FF023C8069BFF2C0290E126FB6219E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Black Hole Trance Music 02-18 (2018) [MP3|320 Kbps] <Trance, Progressive Tr
 ```bash
 magnet:?xt=urn:btih:8484CC35A415717E0197DF1373343D63C6C054F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Melodic Trance Vol.3 (2018) [MP3|320 Kbps] <Uplifting Trance, Melodic Tranc
 magnet:?xt=urn:btih:97B830FDAAFE48E182AA54C5DFF6BBB3185A661D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Global DJ Broadcast - Top 20 February (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:6460E47489308D893E6A39501A9B983D3BF4BBB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Lane 8 - Little By Little (2018) This Never Happened [FLAC|Lossless|tracks+.cue]
 magnet:?xt=urn:btih:098194B75D1ADC8A386F7B0C01D220415915E175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ magnet:?xt=urn:btih:098194B75D1ADC8A386F7B0C01D220415915E175
 ```bash
 magnet:?xt=urn:btih:6952ABD60E1A103525826549F76BB0AC46203193
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Running Electronica, Vol. 10 (For a Cool Rush of Blood to the Head) (2018) 
 magnet:?xt=urn:btih:A30054084E10B8F3930DFBD48866019B7F3A0380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Relax At The Fireplace Vol.2 - Warm & Sensitive Lounge Music (2018) [MP3|32
 ```bash
 magnet:?xt=urn:btih:0F69F5B12AEECEB922EFD34F17D889E1E8CE6F86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Lullaby Ambient (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:3A3F3AA16698B9B559FA5D4622EAA004C211ADE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +631,8 @@ Zetandel & Tiff Lacey - Songs Under Moonlight (2020) RNM Bundles [FLAC|Lossless|
 magnet:?xt=urn:btih:4E681A36A5083DBF34D549FDF618276FE3B19D66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ Magnetik - Body Language (2018) Cosmicleaf Records [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:A36AB9A33C272BEF8DABF3C9220F1166F00E24A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +687,8 @@ Anenon - Discography 9 Releases (2010-2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, 
 magnet:?xt=urn:btih:89D04191B04D21BEDCDB711A2101CEB9774F69B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +716,8 @@ VA - Deep Progressive House Set | Mixed by Johnny M (2018) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:A98CA3BA4109400723AEED5866D75D37527ECCA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ VA - Dave202 - Backstage Hits (2018) [MP3|320 Kbps] <House, Future House, Big Ro
 ```bash
 magnet:?xt=urn:btih:655303D3294844E7536DF1F99C4118757935B34A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

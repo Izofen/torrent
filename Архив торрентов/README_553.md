@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:8F8CC328CC3AAA4FA0675A644E3C8FB3B84C65E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ A story of incomprehensible abuse delivered by an explosively violent mother of 
 magnet:?xt=urn:btih:B4495694D8DE850CBC4D2EFA02F34534BAEA81A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:B4495694D8DE850CBC4D2EFA02F34534BAEA81A6
 magnet:?xt=urn:btih:1ECD84347E74FBF555FDF3675C3FE3C745F6268A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Beyonce feat. J.Cole. Party (2011)[H.264/1080р] HDTVRip
 ```bash
 magnet:?xt=urn:btih:E37F412154DBA036DD4AE227312CCB8B295557D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ P.S. Некоторые из этих видео могут оказаться �
 magnet:?xt=urn:btih:28793A096239DB1391337BFB8BE4BDE8D4BCBCDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ VA - Ultrasound (1997) [FLAC|Lossless|tracks] <Drum & Bass>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ SAS (Streets All Salute) - Narnia Ep The Grind, The Trips, And The Wardrobe (201
 magnet:?xt=urn:btih:CFD31ECC3EC54AAA296B114F2F147E14E3FCAD1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:CFD31ECC3EC54AAA296B114F2F147E14E3FCAD1F
 ```bash
 magnet:?xt=urn:btih:90A4E44530C41F112C6F2035FA94D34331A99A16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +278,8 @@ Electrypnose - Bloomy Trap (2012) [MP3|320 кб/с]<Dark Psytrance>
 magnet:?xt=urn:btih:30F93F017839B6C50DBFE92EBDC17E38B0B03D8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +307,8 @@ magnet:?xt=urn:btih:30F93F017839B6C50DBFE92EBDC17E38B0B03D8E
 magnet:?xt=urn:btih:C1F7BF2221DBF03850AE3A1100D6C9BBBCD83BEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +332,8 @@ magnet:?xt=urn:btih:C1F7BF2221DBF03850AE3A1100D6C9BBBCD83BEB
 ```bash
 magnet:?xt=urn:btih:09638716898DEB7B8287535270AF5A34F9DBD86B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +360,8 @@ Butterfly Temple - Степная кобылица [Single] (2012) [MP3|320 кб
 magnet:?xt=urn:btih:65D72486E340C543DA4ED0708F4A683B3D8957D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +387,8 @@ magnet:?xt=urn:btih:65D72486E340C543DA4ED0708F4A683B3D8957D9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +423,8 @@ Logistics - Fear Not (2012) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:18309EF67885327F42B4E8C53747A5791E278D14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +449,8 @@ AntiDupl.NET 2.2.0.495 [Rus|Eng]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +474,8 @@ Free Video Dub - это бесплатная программа для реда�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +510,8 @@ Far Corporation - Star Collection (2009) [FLAC|Lossless]<Pop-Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +535,8 @@ Paperboy 2 [En] (RePack) 1991 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +563,8 @@ LPS 1.3.3 – корректирующий релиз, обновлено вхо
 ```bash
 magnet:?xt=urn:btih:D2F68CE595071C74774E5203C0D73EF69B793EB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +595,8 @@ magnet:?xt=urn:btih:D2F68CE595071C74774E5203C0D73EF69B793EB9
 magnet:?xt=urn:btih:516FEE0BC5ADF55FF768D6E8444E6FA5D3F6F94B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +620,8 @@ FontViewOK - дает возможность быстрого визуально
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +656,8 @@ Gaudi - Everlasting (2012) [FLAC|Lossless]<Electronic>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +683,8 @@ KUBANA 2012 пройдет 1,2,3,4,5 августа.Жанр: Музыка:  п�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +716,8 @@ KUBANA 2012 пройдет 1,2,3,4,5 августа.Жанр: Музыка:  п�
 magnet:?xt=urn:btih:DB74378A9012E6CF3BD1A7ADAD7C6A6E37D22E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ Artweaver 3.0.4 [RUS+ENG]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

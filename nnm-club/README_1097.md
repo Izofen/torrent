@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7FDCDB9620586A10CB201668978EDE4E05DF8A53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Sarah Brightman - The Harem World Tour: Live From Las Vegas (2004) DVDRip [H.264
 magnet:?xt=urn:btih:42CB4D294999C0EC39C0B7B22471A286D9EA6D21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:42CB4D294999C0EC39C0B7B22471A286D9EA6D21
 ```bash
 magnet:?xt=urn:btih:4F380B68275AADF5C14C22BA32F105EE302F4AD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ SoftMaker Office Professional 2024 rev. S1222.1129 Portable by 7997 [Multi/Ru]
 magnet:?xt=urn:btih:6B18875641F977AACD6FD908A501CFE53E7AB696
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.130.1.0/dlc) Repack DjDI [Digital Del
 magnet:?xt=urn:btih:A202DED153F515DA75F75C92019F78607F598276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:A202DED153F515DA75F75C92019F78607F598276
 ```bash
 magnet:?xt=urn:btih:6FF7E16E0A27BB81B57D7FBE5727E6F1F06213CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:6FF7E16E0A27BB81B57D7FBE5727E6F1F06213CC
 magnet:?xt=urn:btih:E8B4503CB4BBB766284FF66B551706880D907A69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:E8B4503CB4BBB766284FF66B551706880D907A69
 ```bash
 magnet:?xt=urn:btih:62522E4DBC6C06194BB3C7FE11F795D1558B5ED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Metal Savior Black (2025) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:5A270E11654DD23DF265873F8E287F758057E81C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Code Alkonost: Awakening of Evil (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8DEA07D9D1674FCCAADFAD23664BF92845F2FD14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:8DEA07D9D1674FCCAADFAD23664BF92845F2FD14
 magnet:?xt=urn:btih:04C2CF35991047FA8540C6415C436DE3C0EA2922
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Foundation: Новая эра в средневековых строительн
 magnet:?xt=urn:btih:D3B7C3C2B6FB7B0AB037CAECF3ED6D1B42BD7454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Deliver Us Mars - продолжение получившей множество
 ```bash
 magnet:?xt=urn:btih:1D56A7FA97B864628256D8DDB9790585C8E8F455
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:1D56A7FA97B864628256D8DDB9790585C8E8F455
 magnet:?xt=urn:btih:FDBB74B0C936145830E52820FAB0CEF25CF90538
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Ji Jia Shou Shen: Baolie Feiche 5 | Screechers Wild 5! | Дикие Скриче
 magnet:?xt=urn:btih:0D1AD50E2C07CE89362E270DFA9922A393ACA98D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:0D1AD50E2C07CE89362E270DFA9922A393ACA98D
 ```bash
 magnet:?xt=urn:btih:693045394FEB6CA673A8F0FD48A432C30E964F46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:693045394FEB6CA673A8F0FD48A432C30E964F46
 magnet:?xt=urn:btih:931A579783CA506CB54E83F543BCF592B46A18C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:931A579783CA506CB54E83F543BCF592B46A18C1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:931A579783CA506CB54E83F543BCF592B46A18C1
 magnet:?xt=urn:btih:51B29C94B021B873F0C472394FD0EBC856CE603D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:51B29C94B021B873F0C472394FD0EBC856CE603D
 ```bash
 magnet:?xt=urn:btih:78711FE3C781F640E2467BAE74F807BBFBE95E81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Mika and The Witch's Mountain (2024) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:BC6559F1362B0279273DB33DFC4AA43E7AB01B76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ NINJA GAIDEN 2 Black (2025) [Multi] (1.0.5.0) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:5031AE921A074E82BE7D025EC57E6D1302CB0022
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:5031AE921A074E82BE7D025EC57E6D1302CB0022
 magnet:?xt=urn:btih:E5DA834A6FA12F9CC2386A637EF4BBCEF1874E5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:E5DA834A6FA12F9CC2386A637EF4BBCEF1874E5B
 ```bash
 magnet:?xt=urn:btih:2420424DAA03DCE416D92B71467A6534E52C6F7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:2420424DAA03DCE416D92B71467A6534E52C6F7D
 magnet:?xt=urn:btih:FAFF7CF7A9B6AB86271F377A3AE976FF094A53B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:FAFF7CF7A9B6AB86271F377A3AE976FF094A53B9
 ```bash
 magnet:?xt=urn:btih:C2279978794B58FD007DBAB092A33F2ED026426E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

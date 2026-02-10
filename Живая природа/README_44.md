@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:EB5149BA4775AF0899AC86B31F7A9D0D176A7CAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:EB5149BA4775AF0899AC86B31F7A9D0D176A7CAD
 ```bash
 magnet:?xt=urn:btih:3EEDA6D5E15CFD778F5CB838AD4F204B09B46F4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Nat Geo Wild: Самые странные в мире (3 из 3) / World`s Weird
 magnet:?xt=urn:btih:20DCBC7842784A8D69B7D169FC9A30E61755D1F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:20DCBC7842784A8D69B7D169FC9A30E61755D1F8
 ```bash
 magnet:?xt=urn:btih:6F0C77541977E41D219EDEE40CC3582C675C0FD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:6F0C77541977E41D219EDEE40CC3582C675C0FD3
 magnet:?xt=urn:btih:8613493CED56426B6A08383B4A3EFF8CB5D6AE2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:8613493CED56426B6A08383B4A3EFF8CB5D6AE2B
 ```bash
 magnet:?xt=urn:btih:919C255C1867CACE87FCA4C797EDE13232523252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:919C255C1867CACE87FCA4C797EDE13232523252
 magnet:?xt=urn:btih:53E2F4562AE2F7C196B18A1D12F38A07504CAD72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:53E2F4562AE2F7C196B18A1D12F38A07504CAD72
 ```bash
 magnet:?xt=urn:btih:A7601E6282BB24BD3FA68564EC88177761236076
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:A7601E6282BB24BD3FA68564EC88177761236076
 magnet:?xt=urn:btih:18823DA3902349BC1D4F5235E31E89DBAD3C4405
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:18823DA3902349BC1D4F5235E31E89DBAD3C4405
 ```bash
 magnet:?xt=urn:btih:19C498D9267C8E8DFA362B35F77C1625C09E56FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:19C498D9267C8E8DFA362B35F77C1625C09E56FD
 magnet:?xt=urn:btih:686C8EE6694AA1A37C8105C3F0DB32A451289330
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ PBS Nature: Триумф Жизни / Triumph of Life (2001) SATRip [6 из 6] [
 ```bash
 magnet:?xt=urn:btih:6B67EEDDD69E11DBAB4BC9ED04CB29BDB88251C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:6B67EEDDD69E11DBAB4BC9ED04CB29BDB88251C5
 magnet:?xt=urn:btih:76507DBCB3D598EF5CB171BB789EAE6DB259DF36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:76507DBCB3D598EF5CB171BB789EAE6DB259DF36
 ```bash
 magnet:?xt=urn:btih:3FCE79A8EC880339D6C542F59821E8E9CB1FE156
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:3FCE79A8EC880339D6C542F59821E8E9CB1FE156
 magnet:?xt=urn:btih:92401B706BB9B378C43F2801B79E068F0988292F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:92401B706BB9B378C43F2801B79E068F0988292F
 ```bash
 magnet:?xt=urn:btih:B71A5EFBB8E490379999F3D31787891F0CAF695F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Nat Geo Wild: Неизвестная Бразилия. Дикий Пантана
 magnet:?xt=urn:btih:234E172F6040CBFFCF0B0E06C60AD8A1B2D9F8EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Nat Geo Wild: Неизвестная Бразилия. Пантанал без �
 ```bash
 magnet:?xt=urn:btih:388401B1EAC180A52882CD3A8221A2D402F39F70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:388401B1EAC180A52882CD3A8221A2D402F39F70
 magnet:?xt=urn:btih:18E858759CDFA23705F233CF7730C596CB0391D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ IMAX: На глубине морской 3D / IMAX: Under the Sea (2009) Blu-ray
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Nat Geo Wild: Пума / Puma! (2012) HDTVRip
 magnet:?xt=urn:btih:AAAEAA749E4CD4BB77F1004478F54096BB10FBA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:AAAEAA749E4CD4BB77F1004478F54096BB10FBA2
 ```bash
 magnet:?xt=urn:btih:A92D722B31CEC3761D36B18CA647C71024B0A712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:A92D722B31CEC3761D36B18CA647C71024B0A712
 magnet:?xt=urn:btih:BB5F0FFCD009F3FEA7EB3ADB287289D7C589E0AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:BB5F0FFCD009F3FEA7EB3ADB287289D7C589E0AF
 ```bash
 magnet:?xt=urn:btih:7480F8D0DA23F7DCB0DBB2E62DF2A9E4164978CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:7480F8D0DA23F7DCB0DBB2E62DF2A9E4164978CB
 magnet:?xt=urn:btih:2E1B086988FCA9FF699562BB03C6661B2CF6FDA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ BBC: Мир природы. Заповедник Бен-Эй / The Natural World
 ```bash
 magnet:?xt=urn:btih:B98B3D5DD50C4B4029F57B460902B121A1774F28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

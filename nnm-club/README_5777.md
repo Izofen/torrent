@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:606AAB8DCD15CFED324F544E13349D4CEEDFA1C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Kevin DePetrillo - Magic Storm (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard
 magnet:?xt=urn:btih:83F9B99B788333D83D92ABAA35F3CF5EA22833E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:83F9B99B788333D83D92ABAA35F3CF5EA22833E2
 ```bash
 magnet:?xt=urn:btih:E13E9B731B6DC70064AF0BB1B53C5FF6DEA085FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Meteora - …of Shades and Colours (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 magnet:?xt=urn:btih:FA36736260D736BF257735B79E57A93DD503CABF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:FA36736260D736BF257735B79E57A93DD503CABF
 ```bash
 magnet:?xt=urn:btih:F3A6057A2592F60E1ECABE9601536FCADA71C891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Threshold - Dividing Lines (2022) [FLAC|Lossless|image + .cue] <Progressive Meta
 magnet:?xt=urn:btih:C1A341928873C27F6E8F4FEDFE5BF70964DA45F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:C1A341928873C27F6E8F4FEDFE5BF70964DA45F5
 magnet:?xt=urn:btih:1E8045D57F95167620263BE520D075D78DAD0049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:1E8045D57F95167620263BE520D075D78DAD0049
 ```bash
 magnet:?xt=urn:btih:88003F5E2F99184851D4BCB42EFC3C32DFBE9BBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ Softline - Маяки (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, M
 magnet:?xt=urn:btih:B40AF169C1F808C6B544FED7C6A30A2630E8B58B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:B40AF169C1F808C6B544FED7C6A30A2630E8B58B
 ```bash
 magnet:?xt=urn:btih:F91AA053CFFDA428E077A156413C798D2B53CB5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ Synestia - Maleficium (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Deathcore,
 magnet:?xt=urn:btih:E43A812FCF5024C64A3156186568EAC9503A72CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:E43A812FCF5024C64A3156186568EAC9503A72CE
 magnet:?xt=urn:btih:B943D689E048777277BF0A99F46ADE43D33CD536
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:B943D689E048777277BF0A99F46ADE43D33CD536
 ```bash
 magnet:?xt=urn:btih:05A83DF992FAD456291166BA16F5A31C3321BCD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Who Dies in Siberian Slush - 4 Albums (2013-2020) [MP3|320 Kbps] <Funeral Doom, 
 magnet:?xt=urn:btih:48AEF70E1C0A99016439B9873C1398F1D2AFC26F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ Panzerkreuzer - 2 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Old School D
 ```bash
 magnet:?xt=urn:btih:9B9C086EE6DED90AD2472D050C47E60D35852621
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ Node Микросервисы / Node Microservices
 magnet:?xt=urn:btih:5D79A34FF87B5B5A4407F2223D3B3BA26D08A514
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +466,8 @@ Newman - Into The Monsters' Playground (2021) [FLAC|Lossless|image + .cue] <Melo
 magnet:?xt=urn:btih:2735986341748BC65DDB8F84BE3DA1E66290CE42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:2735986341748BC65DDB8F84BE3DA1E66290CE42
 ```bash
 magnet:?xt=urn:btih:1AEEE471C686FF4522475417E6EDE434704D72F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +521,8 @@ Manuel Sirgo Alvarez | Бумажные жуки и другие экзотич�
 magnet:?xt=urn:btih:9E5DF34F00EFE2713FEC701A73AB7B0ADD599B54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:9E5DF34F00EFE2713FEC701A73AB7B0ADD599B54
 ```bash
 magnet:?xt=urn:btih:FC975DCB7876750CDB7EA9D18C8B681830AA1593
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ magnet:?xt=urn:btih:FC975DCB7876750CDB7EA9D18C8B681830AA1593
 magnet:?xt=urn:btih:1B306D06B480E4ED4A9C0092DCE961076793EC59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:1B306D06B480E4ED4A9C0092DCE961076793EC59
 ```bash
 magnet:?xt=urn:btih:B772D881CF4F44717158F2C8483B5D1171520354
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:B772D881CF4F44717158F2C8483B5D1171520354
 magnet:?xt=urn:btih:FC002971DD2AE1A53C129F956DE73C6855428800
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ magnet:?xt=urn:btih:FC002971DD2AE1A53C129F956DE73C6855428800
 magnet:?xt=urn:btih:B80A61076B7E63912F1D4FCC9B91F6FB59B6EB9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ Christmas Stories 9: The Christmas Tree Forest / Рождественские и
 ```bash
 magnet:?xt=urn:btih:0219F5205B792FF730515CBFB40D0C7EEFDCF438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +704,8 @@ magnet:?xt=urn:btih:0219F5205B792FF730515CBFB40D0C7EEFDCF438
 ```bash
 magnet:?xt=urn:btih:BC1A4FC356ADBFA2B786981700FB5D87DA087767
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

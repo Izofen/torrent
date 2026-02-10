@@ -1,3 +1,31 @@
+###  Публикация: 447920   (581291) от 10.08.2016
+
+Говард Филлипс Лавкрафт | Рассказы (2008) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американский писатель, поэт и журналист, писавший в жанрах ужасов, мистики и фэнтези, совмещая их в оригинальном стиле. Родоначальник Мифов Ктулху.
+Наряду с Робертом Говардом считается одним из основателей жанра фэнтези.
+При жизни Лавкрафта его произведения не пользовались большой популярностью, однако уже после его смерти они оказали заметное влияние на формирование (   Читать дальше...   )Жанр: Фантастика, ужасыПродолжительность: 05:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63AF8CF6436E0CAB4817E51D9E682EB21A36618B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 359665   (581664) от 06.07.2011
 
 Иван Ефремов | Лезвие бритвы [Вячеслав Герасимов] [2011] [MP3]
@@ -20,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:F7172C9FC291B110D73930C74577BAE382E7EC60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +75,8 @@ magnet:?xt=urn:btih:F7172C9FC291B110D73930C74577BAE382E7EC60
 magnet:?xt=urn:btih:7587EF022518D4D377CA51D1F7BCAEF0371EF544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +100,8 @@ magnet:?xt=urn:btih:7587EF022518D4D377CA51D1F7BCAEF0371EF544
 ```bash
 magnet:?xt=urn:btih:F1C1FFEEC05AED860CD9985D623AAC1C6DFC8E8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +127,8 @@ magnet:?xt=urn:btih:F1C1FFEEC05AED860CD9985D623AAC1C6DFC8E8A
 magnet:?xt=urn:btih:59285737939E19A61EF036E38404212BE4F1BD9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +152,8 @@ magnet:?xt=urn:btih:59285737939E19A61EF036E38404212BE4F1BD9C
 ```bash
 magnet:?xt=urn:btih:F130E9386CC9AFF6F5AAC917D0545BFBA2C97E0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +179,8 @@ magnet:?xt=urn:btih:F130E9386CC9AFF6F5AAC917D0545BFBA2C97E0E
 magnet:?xt=urn:btih:E800DC51E9E42CA1762D0FDBBEF650DBAA370222
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +204,8 @@ magnet:?xt=urn:btih:E800DC51E9E42CA1762D0FDBBEF650DBAA370222
 ```bash
 magnet:?xt=urn:btih:7A1ED03DA5D4FD0BF1B9AD9622FF0F00B4EEE4CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +231,8 @@ magnet:?xt=urn:btih:7A1ED03DA5D4FD0BF1B9AD9622FF0F00B4EEE4CF
 magnet:?xt=urn:btih:92C1279F083832D0CFA8007520989DB83C3FE277
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +256,8 @@ magnet:?xt=urn:btih:92C1279F083832D0CFA8007520989DB83C3FE277
 ```bash
 magnet:?xt=urn:btih:8C016398FB47E186DB3CCB7D0499D60954D3E251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +284,8 @@ magnet:?xt=urn:btih:8C016398FB47E186DB3CCB7D0499D60954D3E251
 magnet:?xt=urn:btih:F54B28911F4251434E297134001F4E2EA862E151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +309,8 @@ magnet:?xt=urn:btih:F54B28911F4251434E297134001F4E2EA862E151
 ```bash
 magnet:?xt=urn:btih:228D6E9B4254182C1EFE2CA145056B18D6805A8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +336,8 @@ magnet:?xt=urn:btih:228D6E9B4254182C1EFE2CA145056B18D6805A8F
 magnet:?xt=urn:btih:8B9F3639F63245D244E25F6F61A974676D22CAC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +361,8 @@ magnet:?xt=urn:btih:8B9F3639F63245D244E25F6F61A974676D22CAC2
 ```bash
 magnet:?xt=urn:btih:5BC5B64ED61E97C5BA726247588FE5A841F766DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +388,8 @@ magnet:?xt=urn:btih:5BC5B64ED61E97C5BA726247588FE5A841F766DF
 magnet:?xt=urn:btih:FBC101DC36801B61611C068532F640EE14CB8FD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +413,8 @@ magnet:?xt=urn:btih:FBC101DC36801B61611C068532F640EE14CB8FD6
 ```bash
 magnet:?xt=urn:btih:6089EB784F4F335ED3CBFA5D84DD951A49DA33AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +442,8 @@ magnet:?xt=urn:btih:6089EB784F4F335ED3CBFA5D84DD951A49DA33AC
 magnet:?xt=urn:btih:A2E71DA3828126FBABE68011568C90020AC2F3E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +469,8 @@ magnet:?xt=urn:btih:A2E71DA3828126FBABE68011568C90020AC2F3E0
 magnet:?xt=urn:btih:9F3CE9D9F642BCD4BFFB621B3D1F83B34F7CD857
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +494,8 @@ magnet:?xt=urn:btih:9F3CE9D9F642BCD4BFFB621B3D1F83B34F7CD857
 ```bash
 magnet:?xt=urn:btih:7E113B1C168112775926E9335FC57D5BAC4BE348
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +521,8 @@ magnet:?xt=urn:btih:7E113B1C168112775926E9335FC57D5BAC4BE348
 magnet:?xt=urn:btih:A114AC0A8F76026A8454D21E727DFF2CCDEFA1F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +547,8 @@ magnet:?xt=urn:btih:A114AC0A8F76026A8454D21E727DFF2CCDEFA1F2
 magnet:?xt=urn:btih:569992549AC472CC793290821D2CEE6E739ED803
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +572,8 @@ magnet:?xt=urn:btih:569992549AC472CC793290821D2CEE6E739ED803
 ```bash
 magnet:?xt=urn:btih:A95FBCCF18B38573DF5C639A62DFA5E3AFBC2961
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +600,8 @@ magnet:?xt=urn:btih:A95FBCCF18B38573DF5C639A62DFA5E3AFBC2961
 magnet:?xt=urn:btih:A343B1D6B9CC7313DE56AF9686DDBB1B127DB7DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +625,8 @@ magnet:?xt=urn:btih:A343B1D6B9CC7313DE56AF9686DDBB1B127DB7DE
 ```bash
 magnet:?xt=urn:btih:2343BFCF5A0C55145DEE00CB22F6910D4492D933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +652,8 @@ magnet:?xt=urn:btih:2343BFCF5A0C55145DEE00CB22F6910D4492D933
 magnet:?xt=urn:btih:FA69EA61D8BF52CF7E362A727C272555C78C0938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +678,7 @@ magnet:?xt=urn:btih:FA69EA61D8BF52CF7E362A727C272555C78C0938
 magnet:?xt=urn:btih:FF4B964DD56B727BD0D78641FBA7B988453321A9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301603   (585183) от 11.05.2019
-
-Елена Звездная | Сияние Чёрной звезды (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждая девушка мечтает стать первой леди страны, но что делать той, для кого высокое положение лишь сделка, условия которой кесарь начинает безжалостно менять по собственному усмотрению? И у жены Властителя Эрадараса отныне нет права на ошибку, нет права на вольности, нет права на эмоции. Она – императрица поднимающейся с колен империи пресветлых. Её деяния безупречны, (   Читать дальше...   )Жанр: Романтическое фэнтези, ПопаданцыПродолжительность: 08:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:353CD3B69BD8465B2BAED41C3687BCBBCEC3C067
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

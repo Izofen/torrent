@@ -19,6 +19,8 @@ Athena OS amd64 [Хакинг, аудит, безопасность] 22.11.04 [a
 magnet:?xt=urn:btih:9FF33E3988F31CDFC917A96D7AB2B3015BB7C0FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Mageia 9 [x86-64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:D87CEF7605F501C07AE033089FC52EC2344B2EFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Mageia 9 [i586] 2xDVD
 magnet:?xt=urn:btih:4DF62B644A9693F94148643619C01FDA31B456AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ AltLinux 8 СП [amd64] 3xDVD
 ```bash
 magnet:?xt=urn:btih:891552B57EA36117B9FB3FB12BD05E2DA7512E9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Kali Linux 2023.2 [amd64, i386, arm64] 8xDVD, 3xCD
 magnet:?xt=urn:btih:272EF1FF7E4130FC541624AE5CC42E764C495792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Red Hat Enterprise Linux 9.2 [x86-64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:C8FF2491D84C1D68781B754F3EEDA1474F1DFB15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ openSUSE — это стабильный, легкий в использован
 magnet:?xt=urn:btih:3BE6652A22A181B7AE7FDCF2F7C9E4631D332FC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Uncom OS — операционная система для компьютеро
 ```bash
 magnet:?xt=urn:btih:98480C85897EB96820784EADD31AE61917F5104B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Debian GNU/Linux 11.7.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 magnet:?xt=urn:btih:D30F4B7C031AE4BA0898745F13236BA12E52B341
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Debian Edu, также известный как Skolelinux, является д
 magnet:?xt=urn:btih:8CDC4EA20DA278FA6AC19656591567427B50A060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Kali Linux 2023.1 [amd64, i386, arm64] 8xDVD, 3xCD
 ```bash
 magnet:?xt=urn:btih:3F66A9826F1E330EBB30FC8ADFA40DA20A86CBED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Debian GNU/Linux 11.7.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 magnet:?xt=urn:btih:EED3913C30DB3C47858953AAD28132BA7EE6D6E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Fedora — дистрибутив Linux, спонсируемый фирмой R
 magnet:?xt=urn:btih:6EEDAD76369616373DD304927CFF1CAD3C08AE73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Kali Linux 2022.3 [amd64, i386, arm] 8xDVD, 3xCD
 ```bash
 magnet:?xt=urn:btih:CBD11516D761121144676DB86DEE7DFBE7B442F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Zorin OS разработана так, чтобы быть простой, по
 magnet:?xt=urn:btih:DE3F59354D40DCE68E2D6B2C127ABDCF2A71D1AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Network Security Toolkit (NST 36 SVN:13232) 36-13232 [x86 x64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:FE41A7A8667CBCAF76D801958A7D728A8C378687
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Parrot Security OS 5.1 [Хакинг, аудит, безопасность] 1xDV
 magnet:?xt=urn:btih:7DEE3B886CB010C4DA20E7D039EAD9466BFEAABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Slax это миниатюрный дистрибутив, базирующий�
 ```bash
 magnet:?xt=urn:btih:4CC24980799ACF7FD0BFC1306134A6CACEAA3276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Kubuntu 22.04 LTS (Jammy Jellyfish) [amd64] 1xDVD
 magnet:?xt=urn:btih:3ECED065042115825725E081C81084DA29FA7802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Debian Edu, также известный как Skolelinux, является д
 ```bash
 magnet:?xt=urn:btih:F3B2D7CC84E5DFC0827920A5FFDC45ED81FF178D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ SUSE Linux Enterprise Desktop Server Workstation 15.4
 magnet:?xt=urn:btih:A1F724A0634FF18D72586A23E7009CBF4815D5ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Kali Linux 2022.2 (ex. BackTrack) [amd64, i386, arm] 8xDVD, 3xCD Аудит бе
 ```bash
 magnet:?xt=urn:btih:261D3B849CABE30A4D686F99929E8252B36DEE61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ openSUSE — это стабильный, легкий в использован
 magnet:?xt=urn:btih:A24086F96E23828D950F08DF85F66A12A076ACE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ PCLinuxOS 2014.12 KDE FullMonty [x32, x64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:BF7A493ADCDD8F0BC71693355CE6C72FD1C2EB15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Sabayon 14.01 [amd64] 4xDVD, 1xCD
 magnet:?xt=urn:btih:2E99422D40E247168F9476B3F328EE159034C45C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Sabayon 14.01 [x86] 4xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:479EA1463F4DA2E940492442507C8C2EB6AD7403
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

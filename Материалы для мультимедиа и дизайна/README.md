@@ -21,6 +21,8 @@ Seenonim - это шрифт без засечек с обратным конт�
 magnet:?xt=urn:btih:B10DDA5DF474A9293B1ABB2E71A57926CC1B9F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Normatica - это нейтральный шрифт, вдохновленный
 magnet:?xt=urn:btih:9C20DE113C591F59DE50F8E3CE81AF761D9A5A21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:9C20DE113C591F59DE50F8E3CE81AF761D9A5A21
 ```bash
 magnet:?xt=urn:btih:2F879B38B36FC9F8440D0D171B57E00E3010918E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:2F879B38B36FC9F8440D0D171B57E00E3010918E
 magnet:?xt=urn:btih:A780A449BB2256E62BD9AEA3E86C16030AFA67C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Quam - это современный шрифт без засечек, пред�
 ```bash
 magnet:?xt=urn:btih:96C92C34B37AA7D464B9B3F24D53580C955E7D65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:96C92C34B37AA7D464B9B3F24D53580C955E7D65
 magnet:?xt=urn:btih:244B93F23A7C85650E138B86428D369C7DF2EBAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:244B93F23A7C85650E138B86428D369C7DF2EBAF
 ```bash
 magnet:?xt=urn:btih:D4249E7CAA2983DF2042A7A62D04AFD7305B1F71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:D4249E7CAA2983DF2042A7A62D04AFD7305B1F71
 magnet:?xt=urn:btih:C588866E0F5D13D827645236F8CB11624513FB1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:C588866E0F5D13D827645236F8CB11624513FB1E
 ```bash
 magnet:?xt=urn:btih:48AE74C8446D903FA061AFD7DEE8D2112B0BAD00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Bella Sans — современный гуманистический шрифт 
 magnet:?xt=urn:btih:31474BD1FDE411F5E252C36AF9A3B14739FA4C70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Murs Memes - это инновационный эксперимент, кото�
 ```bash
 magnet:?xt=urn:btih:42A84F157BB59EA7DDEAAD1FF79E0BE5A5C092B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:42A84F157BB59EA7DDEAAD1FF79E0BE5A5C092B5
 magnet:?xt=urn:btih:B2A79208901B3C1F016EF72410110578EEEF5FF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:B2A79208901B3C1F016EF72410110578EEEF5FF5
 magnet:?xt=urn:btih:B535CDB0EB9898D66E310D50C5A9C48E824622E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:B535CDB0EB9898D66E310D50C5A9C48E824622E3
 ```bash
 magnet:?xt=urn:btih:891E560F7943FF2C2027155A22CD9FE53B685323
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:891E560F7943FF2C2027155A22CD9FE53B685323
 magnet:?xt=urn:btih:F42F35D2F07F57DE37654C445B5425A3C6B0147A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:F42F35D2F07F57DE37654C445B5425A3C6B0147A
 ```bash
 magnet:?xt=urn:btih:BFE23A8F1A8FA73C4EC70667FCEE3301E996B809
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:BFE23A8F1A8FA73C4EC70667FCEE3301E996B809
 magnet:?xt=urn:btih:3B9AE393B24A7B74766B3B9C4DA58F888A6DD03F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:3B9AE393B24A7B74766B3B9C4DA58F888A6DD03F
 magnet:?xt=urn:btih:AC5A0B3B95100CA7E21A06DA6DB1D5ABBE63095D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:AC5A0B3B95100CA7E21A06DA6DB1D5ABBE63095D
 ```bash
 magnet:?xt=urn:btih:731CB0FE9E25C75C749858727A155A6B538E1B1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ ZT Yaglo сочетает в себе простой гротескный сти
 magnet:?xt=urn:btih:169013FBCE9D6ADBD77A549E2DB17AAC375227E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:169013FBCE9D6ADBD77A549E2DB17AAC375227E2
 magnet:?xt=urn:btih:E059D2916E51438CC93B5BB06811127381231CBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:E059D2916E51438CC93B5BB06811127381231CBA
 ```bash
 magnet:?xt=urn:btih:52B2C7FECC4FBCF41F6A9BBA50829CF86C8E1A3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:52B2C7FECC4FBCF41F6A9BBA50829CF86C8E1A3B
 magnet:?xt=urn:btih:56FC0D9578196C032FDFEE442E0BCC230A95819A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:56FC0D9578196C032FDFEE442E0BCC230A95819A
 magnet:?xt=urn:btih:2442E449187D490A940CBDC6DD204A5532F5A165
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Ozana Pro — это семейство шрифтов с засечками, а
 ```bash
 magnet:?xt=urn:btih:08C67C122E8A0D27563E4B54883F43E4B1AA29A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +679,8 @@ Ui Kits - UI8 - Lumen Loops [SVG, WEBM, MP4, FIG]
 ```bash
 magnet:?xt=urn:btih:D58A4373D0EBD5BE571649877DCDCA3E41D91CE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

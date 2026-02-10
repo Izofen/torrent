@@ -19,6 +19,8 @@ DP Animation Maker 3.5.38 RePack (& Portable) by elchupacabra [Ru/En]
 magnet:?xt=urn:btih:6B4C2B1040C7A8C56F687573C633D15938AB50A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.9.200 Gol
 magnet:?xt=urn:btih:454B5674E32E521C0C36C15935538E3A5A878EE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Adobe Photoshop Lightroom Classic 2025 14.3.0.8 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E7969BEDB5CDB0BE8D4176CC0C1F11E36BA412A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ FreeTube использует собственный HTTP-API YouTube с наб�
 magnet:?xt=urn:btih:A43F0CF74D8B0B3B4F8A1B560CFED86FA94B6643
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ EOBD Facile - автосканер обд2 последнего поколени
 ```bash
 magnet:?xt=urn:btih:52FBF0E6C4C6DF693ED08E06A4C80C4CEE83D114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:CF3D8366E55030CB1F23D9428E8BDC8E7685EE32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 magnet:?xt=urn:btih:BD7567483E449D90A11DA403D741C3F429CDBFF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:C9D2463729ED51C6EE8E823A7D25832DF54AABCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ PilotEdit можно использовать для редактировани�
 magnet:?xt=urn:btih:27495E85B91D42942D9AD93BC71A8352057FB48E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ WinMerge является весьма полезной для определе�
 ```bash
 magnet:?xt=urn:btih:F0964DE4D8A3E07C43AF5C5BC5A2D77F04EB636B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Balabolka 2.15.0.894 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:6215CB0D6089CD478B82EAF31B0C635E14FB6E9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:11F4A41503C60C26199ECFA46AE8538C3453CEE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 magnet:?xt=urn:btih:F4A83EAE60A8C9B3B3C254B4D177E47653FF9A4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Extreme Picture Finder - средство для автоматического 
 ```bash
 magnet:?xt=urn:btih:B9FFBF7207F204C4627AE814E36E17539E386820
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 magnet:?xt=urn:btih:9C9D7FCAC0762D9A35578AF107CEC67CC03C19E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:61193993AD89B06380F97791E816C7A7C0071112
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 magnet:?xt=urn:btih:DFDB29A03F0DE36E5591E34A37609487E655D427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Adobe InDesign — профессиональный продукт для про
 ```bash
 magnet:?xt=urn:btih:FC86113947896A3DAB2863DAE977041FB052B03C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:ECC204587A912DF8F18EF657075F31B2A052EC8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:1137B8AD48494155D2D90901DD27FC2B8B2A19CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 magnet:?xt=urn:btih:9B661DED373E982490F9490B880C6FBED06A9F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Adobe Premiere Pro 2025 - профессиональная программа д
 ```bash
 magnet:?xt=urn:btih:C78E65E619862190CF9F08EEBE005AA6A9E9C141
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Text Editor Pro 32.1.0 + Portable + Bonus [Multi/Ru]
 magnet:?xt=urn:btih:F80B87AAFFE02542B5166AA532AEF33CA9554422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:7F0BAA2A7A2BE641DB9C555A409BBBCC75634EE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Process Lasso позволяет вручную или автоматическ�
 magnet:?xt=urn:btih:3E24F196529F40AC8091328CBD1DC2DDDE0CE9C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ R-Wipe & Clean - программа для невосстановимого уд
 ```bash
 magnet:?xt=urn:btih:6AC716092AAE67001806DD5454527BA5485E9A9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

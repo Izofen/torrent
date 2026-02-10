@@ -19,6 +19,8 @@ NGW: Выживание в Серенгети / Surviving the Serengeti (2015) H
 magnet:?xt=urn:btih:B8340A15562CBC5B0747ADC2D1D441B73383A360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC. Умные обезьяны / Clever Monkeys (2008) HDTVRip [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:9D0AAC445465128C24F197EB78F3BBA1E65D25C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG. Десятка лучших фотографий National Geographic / Nat G
 magnet:?xt=urn:btih:3190352084009F65B2EC2A5FA6D69C13325D489C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC. Horizon. Играя роль Бога / Horizon. Playing God (2012) HDTVRip
 ```bash
 magnet:?xt=urn:btih:1066F2B8A161BD63A023273823A40329BA7BD404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Discovery: Почему? Вопросы мироздания. Существуе
 magnet:?xt=urn:btih:7ECFC3EFB2B636B9A2C9135D36C3C06EE3295DAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BBC: Horizon. Жизнь без старости / Don't Grow Old (2009) HDTVRip
 ```bash
 magnet:?xt=urn:btih:5F5339B453588670FC787685484831127CCC5F49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Discovery: Почему? Вопросы мироздания. Наступит �
 magnet:?xt=urn:btih:D711494541450F4B2C035E36AF5AF39EF5557797
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NG: Мафия кобры / Cobra Mafia (2014) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:CDCAC103D4E27624B914AB8E7C63C39828C4D0A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ BBC. Чудеса живой природы с Дэвидом Аттенборо
 magnet:?xt=urn:btih:BE0D184E7F33168435010CD6C04E4A4892051C1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:BE0D184E7F33168435010CD6C04E4A4892051C1A
 ```bash
 magnet:?xt=urn:btih:164AF697DB97C4F9EB1187CFB25AE5B0CD56F81E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NG. Вдоль Великой Китайской стены / Trekking The Great
 magnet:?xt=urn:btih:C0283BDAE028944A7F7184351C9C6EAEC028E822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ BBC. Кухня против науки. Кулинарный вызов / Chef 
 ```bash
 magnet:?xt=urn:btih:A6CE28546BC3E42B7A491154B0F07EC166F69888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ BBC Earth. Чудо-яйца с Дэвидом Эттенборо / Attenborough
 magnet:?xt=urn:btih:F35E8C94A2426AFCDB09E3AFB39DCF97DAC5045C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:F35E8C94A2426AFCDB09E3AFB39DCF97DAC5045C
 ```bash
 magnet:?xt=urn:btih:2006FD4FF9C912C200FB902143E1C68904CB7C67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ NGW: Власть царицы / Regime of the Queen (2018) HDTV [H.264/1080i-LQ
 magnet:?xt=urn:btih:5BC89040DB0F0DADC0FA4C5CB1CD5FEA7895443B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ NGW. Человек против пумы / Man vs. Puma (2018) HDTV [H.264/1080
 ```bash
 magnet:?xt=urn:btih:12444079820FCDB86F47C62E76529A6BD336E86E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ NGW: Переменчивые животные. Свирепые семьи / Mo
 magnet:?xt=urn:btih:6D2BA68C962D5B7A03550D6833AADEA5D041950E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ NGW: Смертельная игра. Великий побег / Deadly game. E
 ```bash
 magnet:?xt=urn:btih:1EE07A2A1B15AC53C05CF0C0F35FE0AF553F9F8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ NGW: Африканская кровавая река / Africa's blood river (20
 magnet:?xt=urn:btih:A5B34D53F5F6EBF4D5CDE4809A251B83E584AA1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ BBC. Тигр: Шпион джунглей / Tiger: Spy in the Jungle (2008) HDT
 ```bash
 magnet:?xt=urn:btih:EE052055537CA02E389D5C19F10A2A13F69932B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ BBC. Horizon. Эволюционируем ли мы сейчас? / BBC. Horizo
 magnet:?xt=urn:btih:6DC3F65794E37EF73776164FDA047F958B2A46EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ BBC. Horizon. Смертельно опасные ошибки / Horizon. How to
 ```bash
 magnet:?xt=urn:btih:94923F898F3A59B09F020DD76C8A56B8830658F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Animal Planet: Cинее царство (Лазурная страна). Гиг�
 magnet:?xt=urn:btih:4C6D2DCC0667B4528EB8E1227245B784AD0381E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Animal Planet: Cинее царство (Лазурная страна). Цел�
 ```bash
 magnet:?xt=urn:btih:D096DDB3178ECA1F0E407676716B5A69D9CC0447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ BBC. Horizon. Жизнь без старости / Horizon. Don't Grow Old (2010
 magnet:?xt=urn:btih:330A5EF19CF6EEF879C0341F16FB7F6063FD70AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ NG. Бушующие миры: Солнечная буря / Storm Worlds: Cosmi
 ```bash
 magnet:?xt=urn:btih:115745EEDFC4EFA8277D0EEC1BCFD4E6E8577607
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

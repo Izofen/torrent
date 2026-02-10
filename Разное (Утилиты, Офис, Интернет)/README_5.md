@@ -19,6 +19,8 @@ Rainlendar Lite — календарик для рабочего стола с �
 magnet:?xt=urn:btih:8E7371C9C5B50A9A93CD16CA99B8DB9DF1154AA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ ElevenClock — это бесплатное программное обеспе�
 ```bash
 magnet:?xt=urn:btih:CE7E473283C9E639AD79D0A39FA3390420B30E56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ KMS_VL_ALL_AIO-52 Portable by abbodi1406 [En]
 magnet:?xt=urn:btih:2079FE5C7A4E00B1E090AD9603C34AF9E6A1ADAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ WakeMeOnLan - небольшая бесплатная утилита, котор
 ```bash
 magnet:?xt=urn:btih:9200B3A4A84CA9BD671103651CE68EA63669E0AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Twinkle Tray позволяет легко управлять уровнями �
 magnet:?xt=urn:btih:468CCFCF85552FBBC84BD2160492B087070D9828
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ O&O DeskInfo – вся самая необходимая информация �
 ```bash
 magnet:?xt=urn:btih:1451A6FF05F0113AA52E9E9314B0C9E31121B02D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:1451A6FF05F0113AA52E9E9314B0C9E31121B02D
 magnet:?xt=urn:btih:959EEC7FF297F6EA9A979A008C84B89291152DA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Colormania - это продвинутая утилита для выбора ц
 magnet:?xt=urn:btih:1DD5ECA1605784000582D49724D414E7DC8401E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Alt SwitchER - программа для автоматического испр
 magnet:?xt=urn:btih:4EBF4D639CBD526512098E961E82EBD0D51255A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Abelssoft Win11PrivacyFix - позволяет включать и выключ�
 ```bash
 magnet:?xt=urn:btih:19794FDE222B4C9B06B0773F4091227CF799D55D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Folder Marker - помощник, который может маркироват
 magnet:?xt=urn:btih:CE34EBA166C4C496BC35FDC68FE541626F4C72C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ MainType — это мощный, но простой в использован�
 magnet:?xt=urn:btih:C44029AEC15D9D21417EF4EA3A8FAF91C15F9C5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Windows Update Viewer 0.6.1.0 + Portable [Multi]
 ```bash
 magnet:?xt=urn:btih:98A454CA33919005661FF7DFD90AD2F96B7311AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Windows Auto Dark Mode X 10.4.1 Maintenance Release [Multi/Ru]
 magnet:?xt=urn:btih:EC093DE08521701761E4372AEA3644EDEA027A83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ WinDynamicDesktop 5.5.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:92B87E90328F0D03D4D0E5F8F7134586FD48361D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Windows and Office Genuine ISO Verifier - компактная утилита д
 magnet:?xt=urn:btih:FDC1D74FB9C1910A3214FACCAFEACBE7C3EE4B56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ KeePassXC — программа для управления паролями. �
 ```bash
 magnet:?xt=urn:btih:1D7781E8F696A9F982EF827B4C6B34F060CDAC33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Abelssoft Win11PrivacyFix - позволяет включать и выключ�
 magnet:?xt=urn:btih:90AB60A329D27207A32575800AEEBC0B8526DFEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ SpeedyFox - небольшая утилита для популярных бра
 ```bash
 magnet:?xt=urn:btih:4BD0D58B1FD5B0473E12BB11212FD7BE100BB501
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ KeePass Password Safe - удобный менеджер паролей. Хран
 magnet:?xt=urn:btih:7C4AF9E9B0C788280F626417F27882DE754F9F05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ FanCtrl — это программное обеспечение, которое
 ```bash
 magnet:?xt=urn:btih:8422CF8039E57AC1C3E3B0DDCE274303E886F21F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ QuickTextPaste 8.83 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:B531E5D1815D6D727446F95C2E48F69C944B2DCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ MSMG ToolKit позволяет создавать облегченную вер
 ```bash
 magnet:?xt=urn:btih:9393F7AAA5D3BD97F3D3C248D6D8D09885EE48A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Universal USB Installer – портативная программа для с�
 magnet:?xt=urn:btih:C3C37273096653CF5CE45E2FEA1457C6A1EFACF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ YUMI (Your Universal Multiboot Installer) - бесплатная програм�
 magnet:?xt=urn:btih:B7CDC904744E49D35F3D2D0687DCBE3157BC7EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Quick Search 6.0.1.9 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7EE4943A782DFE2EF6D6DECFC9FEC8779AD9FBAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

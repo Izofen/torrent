@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:6E48F21BE9ABA6DE79A7C041789392E546CC5EFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Rumors — смелый и привлекающий внимание шрифт,
 ```bash
 magnet:?xt=urn:btih:C78FB28F60F57704D5C98BE3D9FF61D348459EC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ HD Pura: ваш идеальный шрифт для веселья и смел�
 magnet:?xt=urn:btih:4CC67B9A25D18F7CB4FE852F798150486CD384F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:4CC67B9A25D18F7CB4FE852F798150486CD384F5
 ```bash
 magnet:?xt=urn:btih:F1BF4362BD74B159E494848135A94D66C97C25E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ CS Watson Drawn — это современный шрифт без засече
 magnet:?xt=urn:btih:C38CBF89E921E157253F45FCDD14B02FEB5988F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:C38CBF89E921E157253F45FCDD14B02FEB5988F3
 ```bash
 magnet:?xt=urn:btih:C071C015D98D938B155D00E80BAA0C2D407213B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:C071C015D98D938B155D00E80BAA0C2D407213B0
 magnet:?xt=urn:btih:81C64CBF984E03355F1238CAE633DC8D6B102364
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ Cavero — смелый и яркий современный ретро-шриф
 ```bash
 magnet:?xt=urn:btih:20A4EFC0F3291AEF051EF9840A7B016EABFFAE50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:20A4EFC0F3291AEF051EF9840A7B016EABFFAE50
 magnet:?xt=urn:btih:C391CB350BD886C34F8400E64ED7FFD884FB7D82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:C391CB350BD886C34F8400E64ED7FFD884FB7D82
 magnet:?xt=urn:btih:D427535C0BA581C60740B124E31D75D65E4FF11C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:D427535C0BA581C60740B124E31D75D65E4FF11C
 ```bash
 magnet:?xt=urn:btih:C6F19F503ACC95F386F87A4E79343E38A8235221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ magnet:?xt=urn:btih:C6F19F503ACC95F386F87A4E79343E38A8235221
 magnet:?xt=urn:btih:95453046A9C800B07B4A05FF6E7978FAC96CB074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:95453046A9C800B07B4A05FF6E7978FAC96CB074
 ```bash
 magnet:?xt=urn:btih:A4CD701EF0AF01143EE47E585DB50154BAF0F68B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ Belitha — очаровательный рукописный шрифт, кот
 ```bash
 magnet:?xt=urn:btih:D1E9B85DB9C0203B07B5A1758457DB97DB50F05C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:D1E9B85DB9C0203B07B5A1758457DB97DB50F05C
 magnet:?xt=urn:btih:C2026687E1A3032D1CCFB4218D491CDCC01183A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +440,8 @@ magnet:?xt=urn:btih:C2026687E1A3032D1CCFB4218D491CDCC01183A5
 magnet:?xt=urn:btih:7585DA779071FAF480121BBF4B375059542BD914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ magnet:?xt=urn:btih:7585DA779071FAF480121BBF4B375059542BD914
 ```bash
 magnet:?xt=urn:btih:5759646DCE0FF78E4ED5EFF72D38753F5599905C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +495,8 @@ magnet:?xt=urn:btih:5759646DCE0FF78E4ED5EFF72D38753F5599905C
 magnet:?xt=urn:btih:9EFE00EE8939204A67DD1FC982A8F493ACF32C2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +524,8 @@ magnet:?xt=urn:btih:9EFE00EE8939204A67DD1FC982A8F493ACF32C2D
 magnet:?xt=urn:btih:CFF8FDB6830A1FBB19BA5F98001533648F921751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +550,8 @@ magnet:?xt=urn:btih:CFF8FDB6830A1FBB19BA5F98001533648F921751
 ```bash
 magnet:?xt=urn:btih:C84FF07DDDF2509D6370C7C09A21F131415F8E16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +579,8 @@ Coretan Komedi — игривый и смелый шрифт-кисть, кот�
 magnet:?xt=urn:btih:A40C8E9FA563C6D40FBC9BCBB78BCDBE7FCE14D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +606,8 @@ magnet:?xt=urn:btih:A40C8E9FA563C6D40FBC9BCBB78BCDBE7FCE14D8
 ```bash
 magnet:?xt=urn:btih:81F82FF70F54391CA6093E8343EFFE97910C680A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +635,8 @@ Trapix — это шрифт с засечками с уникальным пи�
 magnet:?xt=urn:btih:C93E9F8D7C6D8E98546C7FF69A62B9BD268F6EE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +662,8 @@ Heritage Angles — это округлые шрифты без засечек �
 ```bash
 magnet:?xt=urn:btih:047601BD7F04D76714CEA22D43F2AA8E9014DB45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +691,8 @@ Rustlime Brush — смелый и энергичный шрифт-кисть, �
 magnet:?xt=urn:btih:B08A85EFA9BF944F9E841EBEFDF35F5C2DC32C15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +718,8 @@ Alderlite — элегантный шрифт-кисть. С классичес�
 ```bash
 magnet:?xt=urn:btih:3DF165243A349756516DACD05429C7E87DCF4119
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

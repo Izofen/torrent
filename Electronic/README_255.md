@@ -22,6 +22,8 @@ Forrest Fang | Sans Serif - Discography 18 Releases (1982-2020) Ominous Thud, Pr
 magnet:?xt=urn:btih:000D6AE5B119C126031155CC348F425A0517D862
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Ministry Of Sound: Chilled Electronic 80s (2016) Box Set, 3CD [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:76433EB9F83F41FF0C843E4E2F1B7341B61948FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Pessimist - Atyeo (2020) Ilian Tape [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, 
 magnet:?xt=urn:btih:4BB46674ACB3E21DAF3713DB4AC316559FC0EE93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Alexander Volosnikov - All These Melodies (2015) [MP3|320 кб/с]<Downtempo, Ch
 ```bash
 magnet:?xt=urn:btih:AA00BB652A7B85E2FE5F52514233E319FF559112
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Molar Hard Trance (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 magnet:?xt=urn:btih:149E25849551D36671995F540AE06450833F1F1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ VA - KSHMR - Materia (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 magnet:?xt=urn:btih:A3218763DC38C4C13733D552CC75CD7FB1DE585D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Michael A - Dark Mirror Session, Vol.1 (2022) DJ Session [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:61B2CB1C7AD918BD69090D55A411603DA8A11B62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ Carsten Nicolai (Alva Noto, ANBB, Aleph-1, Noto, Diamond Version) - Discography 
 magnet:?xt=urn:btih:D9FF6F4CC87D27A18EAF1109926C09E483C58C5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ Takayuki Shiraishi (白石隆之) - Collection 4 Releases (2002-2020) Studio Mul
 ```bash
 magnet:?xt=urn:btih:06A4101B19B2337C927AB9C5F37D690229BE58B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ Steffi - Discography 18 Releases (2009-2020) Ostgut Ton [FLAC|Lossless|tracks+.c
 magnet:?xt=urn:btih:EC0BC5452811D9679EC5F79DE19C4C5E736F6851
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ Groundwork Recordings - Label Pack 12 Releases (2017-2020) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:AACA833237470F13CFC4A6C04294AEEB59DCD7D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ Ryoji Ikeda (池田亮司) - Discography 18 Releases (1995-2018) Raster-Noton, T
 ```bash
 magnet:?xt=urn:btih:F549B606D53C225F858A65473D21EB391432FE14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +364,8 @@ VA - Workout Motivation 2020 (Ideal For Cardio, Gym, Running & Aerobics) [MP3|32
 magnet:?xt=urn:btih:CC6C84BCD2F26FF37B8D54BAD730CFE35CB3209F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +392,8 @@ VA -Jean-Michel Jarre - Remix EP [1] (2015) [FLAC|tracks]<Electronic, Industrial
 ```bash
 magnet:?xt=urn:btih:2395105B263FD6E038FB770B6C47D30DC666BB0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +422,8 @@ VA - Workout Motivation 2020 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 magnet:?xt=urn:btih:DDEA2E298E673F303799B7CE735751ABD068A67B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +450,8 @@ VA - Women Secrets (A Lounge & Chill Out Deluxe Collection Vol 1) (2016) [MP3|32
 ```bash
 magnet:?xt=urn:btih:97216BF26D4E928FBDFD3C68809EAAE64CF10C7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +480,8 @@ VA - Suanda Music Radio Top 20 (August / September 2018) (2018) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:239680CEFB3290BDAA6166669359EA042B7EED57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +508,8 @@ VA - Balearic Deep-House Anthems Vol.1 (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:EB9C8A0A60505C9960385C85CF1882FEB222E8D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +538,8 @@ VA - Lounge Music Market (Amazing ExquisiteTunes) (2017) [MP3|320 Kbps] <Downtem
 magnet:?xt=urn:btih:798DDDA6A60279CCE8DD4A806F92463398769D0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +566,8 @@ Roderic - Perfect Mirror Remix (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Deep Hou
 ```bash
 magnet:?xt=urn:btih:941BAF5675683175040E10FF2FAB4792C5FCF5A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +596,8 @@ VA - Deep Dream (2017) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:B42C2CD4EB31C3C1F36255F04C4CEE7783A89FF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +624,8 @@ ISAN - Discography 23 Releases (1996-2020) Morr Music [FLAC|Lossless|tracks+.cue
 ```bash
 magnet:?xt=urn:btih:8A4752EA242EDF92A037DBF46F6CFCC9E8C1DD21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +654,8 @@ VA - A State Of Trance, Ibiza 2020 (Mixed By Armin Van Buuren) [MP3|320 Kbps] <T
 magnet:?xt=urn:btih:A273B977613CB67A1685DAA491D05F076C576A58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +682,8 @@ VA - Voices Of Chillout (Sensuale Female Soul Edition) (2019) [MP3|320 Kbps] <Ba
 ```bash
 magnet:?xt=urn:btih:785CC45B9CBDE97BBA3B8C85ED6B6DB615E1C3C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +712,8 @@ VA - A Decade Of Uplifting Vocal Trance (2010-2020) (2020) [MP3|320 Kbps] <Tranc
 magnet:?xt=urn:btih:EBFCB85DF0DE005633BD21CC926A63A0E9767611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +740,8 @@ VA - Markus Schulz - Global DJ Broadcast -Top 20 August (2020) [MP3|320 Kbps] <T
 ```bash
 magnet:?xt=urn:btih:65797E3C5E36C3FC32905DE490A6D47104255E22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

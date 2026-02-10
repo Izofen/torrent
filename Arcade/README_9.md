@@ -19,6 +19,8 @@ Apocalypse Party - 3D-рогалик с видом сверху вниз, дей
 magnet:?xt=urn:btih:84876AADBBEA0F0C04F82FA96C2651D48155EA80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ GUNDAM BREAKER 4 (2024) [Multi] (1.07/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:6C110D8A8A7CED83D071BD88389AC38DBAD2481E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Awaken - Astral Blade (2024) [Ru/Multi] (202411181541/dlc) Scene SKIDROW
 magnet:?xt=urn:btih:32B4DC6246071731FEB7C442B0EE3BFC55A580BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.2.0.0) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:E6F4BC8DB72EC3C1C7A10170728CD58789E1E9ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ MEGATON MUSASHI W: WIRED бросает вас в кабину гигантск�
 magnet:?xt=urn:btih:377F846D44FC4E6FF604350122262271B89236DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.6/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:815F18101AD6E39CA36682EA5A4774D7D6730B02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Bullet Runner (2024) [En] (1.2.0) License GOG
 magnet:?xt=urn:btih:23742E7A2288C466CC8478AE0D0436B582D378FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Devil Within: Satgat предлагает погрузиться в атмо
 ```bash
 magnet:?xt=urn:btih:8EE79E7745E029B6C7989DB5C45371A1435CA5AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Fall (2024) [Ru/Multi] (0.1.1) Repack FitGirl
 magnet:?xt=urn:btih:CE27F9DDB8E131E9AEC91ADF82763F05A9CCA163
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Bicycle Board Games - это лицензированный сборник на�
 ```bash
 magnet:?xt=urn:btih:268B7428BC3D1D3A13CB7039C44A256C0BB9890A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.1.0.0) Scene Rune
 magnet:?xt=urn:btih:368F84C98E1101BEFBFBF746C441975D21A25C58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.6.596/dlc) Repack Let'sРlay [The One Wh
 ```bash
 magnet:?xt=urn:btih:F885B74B2DC2D83670E85A6124CB03DA599EB24D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Tyrian 2000 (1999) [En] (3.01) License GOG
 magnet:?xt=urn:btih:F983A9B486D7BD71A495A5ACE57C49DF4C29DCB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ OTXO (2023) [Ru/Multi] (1.106) License GOG
 ```bash
 magnet:?xt=urn:btih:AB2F32AEE289FACF96B420FC4D560122BE77593F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.5.593/dlc) Scene Tenoke
 magnet:?xt=urn:btih:A7F738EE5B341FAF1658066C7536820979F932F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Valley Peaks - это превосходный симулятор скалола
 ```bash
 magnet:?xt=urn:btih:C46CB9951E36F3DFD318663A5DC6BD140EFBD0BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Smurfs - Dreams (2024) [Ru/Multi] (0.0.18/dlc) Repack FitGirl
 magnet:?xt=urn:btih:333E41920BE0413DCD71AC9AB714FB918AF6D2F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Call of Sentinels (2024) [Ru/Multi] (1.0.0.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A4609AFCBE2226A4696217DD3F90F073CF2B2896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Zombie Flick / 僵尸快打 (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:55C768163B32423AE0D4E2AF572D8F3D2FA884F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Beat Hazard 3 (2024) [Ru/Multi] (1.028) License GOG
 ```bash
 magnet:?xt=urn:btih:E9FE939E27A59F0604E718B8C75C6716B1E16557
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Heart of Darkness (1998) [Ru/En] (1.1) Repack Ma2012ks
 magnet:?xt=urn:btih:24A7585F14383153D29CF7A254598BEFD54D3F83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ SOS OPS! – отправьтесь навстречу забавной кооп
 ```bash
 magnet:?xt=urn:btih:89CA4C5E6D6C386866FF12A7E16FF49E9728DB66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Air Raid: This Is Not a Drill! (2003) [Ru/En] (1.0/dlc) Repack 1nomok
 magnet:?xt=urn:btih:C34FF629162518330998472B33DB955BC9BD5C64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Chicken Run (2000) [Ru/Multi] (1.0) Repack 1nomok
 ```bash
 magnet:?xt=urn:btih:9DDEA8D738307E2CB34F81BF1BE6A5CA40E56B92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Voidwrought (2024) [Ru/Multi] (0.27.56) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:2073C0E5ED61170903AAF71D74F37CCE432C6952
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Monster High Skulltimate Secrets (2024) [Multi] (1.12) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:C96E3FD1F140892316C3ACD0756499CFA9139379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

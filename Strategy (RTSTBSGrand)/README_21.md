@@ -19,6 +19,8 @@ Imperium Galactica 2: Alliances (2000) [Multi] (1.83) License GOG
 magnet:?xt=urn:btih:E1568098544E09409B9D978B1B18ED9D2C5E899E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Alder's Blood — это мрачная и темная тактическая �
 ```bash
 magnet:?xt=urn:btih:9E5D8A5B44987B8EA17D0E9651A51A340C6AE4DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Tiberian Sun продолжает развивать тему противост
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Age of Mythology (2014) [Ru/En] (2.6/dlc) Repack R.G. Механики [Extended
 ```bash
 magnet:?xt=urn:btih:A3B742E5EBD1037982FBC9A4FD53D50252A4D57A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Realpolitiks – это масштабная стратегия в реальн�
 magnet:?xt=urn:btih:E5D8486B093863E03F4CB9A45DA08FAD7413881E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Wartile — это тактическая стратегия про викинг
 ```bash
 magnet:?xt=urn:btih:58921A1A6BE3BA888C3465F9E316DE262A2CDCF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Planetary Annihilation: TITANS (2015) [Multi] (1.0.0.86422) License CODEX
 magnet:?xt=urn:btih:F6C0D267D9DC02F03033921A0ED6772364186FDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Alder's Blood — это мрачная и темная тактическая �
 ```bash
 magnet:?xt=urn:btih:5DE84284112E34DCC0740B3350F701DD1117039F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Victory and Glory: Napoleon игра в стиле Grand strategy где вам 
 magnet:?xt=urn:btih:98383B5E247E6FC6A029F1FF74960BD7708D46AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ KKND 2: Krossfire (P) [En+Ru] 1998
 ```bash
 magnet:?xt=urn:btih:32C2A2D0E61BEB4FA5076D2F7CD089C7DC27FC00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Total Annihilation: Commander Pack (1997) [En] (3.1.0.0/dlc) License GOG
 magnet:?xt=urn:btih:8A4A9DCA9CC52B72D1A9D6C633F24BF9616B8B00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Okhlos: Omega (2016) [Ru/Multi] (2.0.1) License GOG [Omega Olympus Edition]
 ```bash
 magnet:?xt=urn:btih:99310EF57B0A519068BE9369A07D6C71C379986A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ RISK™: Factions (2011) [En/Multi] (1.0) Repack R.G. Механики
 magnet:?xt=urn:btih:31EB0146FD69D081AF661288F3DBE7E0DC205D35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Braveland Pirate – третья, завершающая часть трило�
 ```bash
 magnet:?xt=urn:btih:89553112D179560B31C4F4FC411E441CF1E0EFF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Braveland Wizard (2014) [Ru/Multi] (1.1.4.14) License GOG
 magnet:?xt=urn:btih:D31A73DEF0A4A3AE3474DB9676B0B9E0FFF6AA0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Braveland - это пошаговая игра, созданная по моти
 ```bash
 magnet:?xt=urn:btih:AA053824C5226B5094D8BE009B56BDEF4B52C3EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ S2: Silent Storm (2004) [Ru/En] (1.2/1.1) License GOG [Gold Edition]
 magnet:?xt=urn:btih:9D965EF2815A892188F57CD152B815701B2F0F5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Spartan / Спартанцы. Легион 3 (2004) [Ru] (1.017) License
 ```bash
 magnet:?xt=urn:btih:E6139E2A7AAC6AB5A42030720C19EFEA9317EABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ King Arthur / Король Артур (2011) [Ru/En] (1.07/1.0.0.6/dlc) License 
 magnet:?xt=urn:btih:39C9F01560ABC8CC6DEC208B90C0A7C8522093A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Galactic Civilizations III – самая глобальная игра-песо
 ```bash
 magnet:?xt=urn:btih:A31CADFFC6C07A93D5A788EB8FF85861CCCD1990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Life in Bunker - это симулятор строительства бунке
 magnet:?xt=urn:btih:7A18F5370E37257AA50F51BAE5F83CFC28D35487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Constructor (1997) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:B611E63CC0E96395D6C7E128A3DC066B2ACD4E09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Sid Meier's Civilization V (2011) [Ru/En] (1.0.3.279/dlc) Repack R.G. Механ
 magnet:?xt=urn:btih:0B6D457AC55507CF1B1B348D4EF0D48F89EF18F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Endless Legend - 4X-стратегия от создателей Endless Space. 
 ```bash
 magnet:?xt=urn:btih:1328868736D5CF058838BB87CD197157F2B196E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Galactic Civilizations является космической пошагово�
 magnet:?xt=urn:btih:53719C9DA5273E91D5837625CF4126CAC08865CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Fantasy Wars / Кодекс войны (2007) [Ru/En] (1.0.9) License GOG
 ```bash
 magnet:?xt=urn:btih:665A710FDF9FF2A9A1E767510ED9B21E847B1980
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

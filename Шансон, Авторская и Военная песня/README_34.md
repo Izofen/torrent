@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:900B585C35D1A2ADB89B25E31AD08819DDCB41C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:900B585C35D1A2ADB89B25E31AD08819DDCB41C0
 ```bash
 magnet:?xt=urn:btih:F389DCD0A4996AF23CB6734FC28710489B2E1539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Ангел снов (Эхо Души) (2011) [MP3|320 кб/с]<Шансон
 magnet:?xt=urn:btih:204C4B81ED6ADA8D61332A6B9E0FC6EB5C0246D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Top 30 - Золото Шансона (2015) [MP3|320 кб/с]<Шансон,
 ```bash
 magnet:?xt=urn:btih:95853FC299C2B53DF60ECA0AC28D65B1B3F83564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Авторские песни (Эхо Души) (2011) [MP3|192 кб/с]<Ш
 magnet:?xt=urn:btih:1904D742138B9D8AB072B910166FA5E5E7F4FBED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ VA - Вне закона (Эхо Души) (2011) [MP3|320 кб/с]<Шансон
 magnet:?xt=urn:btih:3A18AE85494BFBFF2E27343973E22B228484B6BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ magnet:?xt=urn:btih:3A18AE85494BFBFF2E27343973E22B228484B6BD
 ```bash
 magnet:?xt=urn:btih:F67CE2BCEC53AE3372A6B69FC8C1250A1BDAF6E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ magnet:?xt=urn:btih:F67CE2BCEC53AE3372A6B69FC8C1250A1BDAF6E7
 magnet:?xt=urn:btih:647D0DE1E4C0DC173C5746B60F6BE273638BC36B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +259,8 @@ magnet:?xt=urn:btih:647D0DE1E4C0DC173C5746B60F6BE273638BC36B
 ```bash
 magnet:?xt=urn:btih:5454C5DB6F5FA4A5050A07C97DDA0350DBCDA9B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ magnet:?xt=urn:btih:5454C5DB6F5FA4A5050A07C97DDA0350DBCDA9B1
 magnet:?xt=urn:btih:D29152738D5F4710AEDBBC159868865A09582A2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +318,8 @@ magnet:?xt=urn:btih:D29152738D5F4710AEDBBC159868865A09582A2E
 magnet:?xt=urn:btih:8177671BBBD84E2B139534D183739D38BBB55816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +346,8 @@ CD2 - 01:10:44
 ```bash
 magnet:?xt=urn:btih:46D038779895192B1F3663BA13B5C574A30412D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +382,8 @@ magnet:?xt=urn:btih:46D038779895192B1F3663BA13B5C574A30412D4
 magnet:?xt=urn:btih:E58E4B69D69325B5AD3DCA9D060C23FD27C2E8DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +410,8 @@ magnet:?xt=urn:btih:E58E4B69D69325B5AD3DCA9D060C23FD27C2E8DE
 ```bash
 magnet:?xt=urn:btih:AEBB1EB1044D58C11435F54E54DE974CA31166EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +440,8 @@ magnet:?xt=urn:btih:AEBB1EB1044D58C11435F54E54DE974CA31166EB
 magnet:?xt=urn:btih:FA6A25D5C123E567D95ECCD9A6D9F942C35FB2E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +468,8 @@ magnet:?xt=urn:btih:FA6A25D5C123E567D95ECCD9A6D9F942C35FB2E0
 ```bash
 magnet:?xt=urn:btih:657D3D8CBE6DE8F2088398ED99EA152331E4460D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +498,8 @@ magnet:?xt=urn:btih:657D3D8CBE6DE8F2088398ED99EA152331E4460D
 magnet:?xt=urn:btih:E6781D9CCDF1154B2572B7847162E78F4171099B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +526,8 @@ magnet:?xt=urn:btih:E6781D9CCDF1154B2572B7847162E78F4171099B
 ```bash
 magnet:?xt=urn:btih:D12C60143997E48AE51D78E0D87E4802D7392154
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +556,8 @@ VA - Письма матери (2006) [FLAC|Lossless|tracks + .cue]<Шансон
 magnet:?xt=urn:btih:9A33CEDA4CC716A1B751321160821FCE0FFCA2BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +584,8 @@ magnet:?xt=urn:btih:9A33CEDA4CC716A1B751321160821FCE0FFCA2BF
 ```bash
 magnet:?xt=urn:btih:910F46849188C817212340CCD43263960E3CD331
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +614,8 @@ magnet:?xt=urn:btih:910F46849188C817212340CCD43263960E3CD331
 magnet:?xt=urn:btih:79EC0F7E6E0BAFA28229A5038741D609663F0A7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +642,8 @@ magnet:?xt=urn:btih:79EC0F7E6E0BAFA28229A5038741D609663F0A7A
 ```bash
 magnet:?xt=urn:btih:7338629B25FF69F7FDD688B6D5B1AC99367EA695
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +672,8 @@ magnet:?xt=urn:btih:7338629B25FF69F7FDD688B6D5B1AC99367EA695
 magnet:?xt=urn:btih:7429B0A87581E387D53C38210A144C58BD831A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +700,8 @@ VA - Самые сливки шансона 2 (2002) [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:9113C3606A528213FC8D67DA22AE454F0CBC148C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -682,6 +730,8 @@ magnet:?xt=urn:btih:9113C3606A528213FC8D67DA22AE454F0CBC148C
 magnet:?xt=urn:btih:E7E5D6F52817E879FC62A55E24EA143ACEEE8C21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -708,6 +758,8 @@ magnet:?xt=urn:btih:E7E5D6F52817E879FC62A55E24EA143ACEEE8C21
 ```bash
 magnet:?xt=urn:btih:552819CC671221DC53D1C487A2732BD2D62CD52E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ A4 MPO Blues(   Читать дальше...   )Жанр: Blues RockПродол
 magnet:?xt=urn:btih:BF8086AA473E2A386A93B4DAA40853E5D2DBEAC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ A4. Lost In Paradise (Extended Version) 5:05(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:FD24E1CD66A198AF5A6AC49156FEE5D0C6E12513
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Sheavy — канадская группа, образованная в 1993 г�
 magnet:?xt=urn:btih:1E64BB1176D53B40C64F57A3C34A02AFBC73F9D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Bob Catley - Studio Albums (6 releases) (1998-2008) hand made [restored, declipp
 ```bash
 magnet:?xt=urn:btih:9876342E36D4E11DFFDC08EB0B147A5D33EF14AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ A4. Do You Want Me • Нужен ли я тебе(   Читать дальше.
 magnet:?xt=urn:btih:8948462218AF8523624C54057C3BA079C5E73471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ MaYaN — нидерландская симфоник-дэт-метал-груп
 ```bash
 magnet:?xt=urn:btih:118C5DB1E4923A9775AE82F07134C253BDD4BADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - I Can't Complain But Sometimes I Do EP (2021) Regelbau [FLAC 2.0|44.1/24|tr
 magnet:?xt=urn:btih:E59D09A006049E5D5774A47C49853CC0D07A7951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Wisdom — венгерская пауэр-метал-группа из Буда
 ```bash
 magnet:?xt=urn:btih:E6438FAD4E4516FEF1C2A0B2E0FA85EBFEECAB8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Italian Pop Music (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
 magnet:?xt=urn:btih:7E36B68997E1A4D1E01BD7C2942A9A48E1A0B23E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:7E36B68997E1A4D1E01BD7C2942A9A48E1A0B23E
 ```bash
 magnet:?xt=urn:btih:29C2D944B9DAA233782085AFCF9DB5A7BC4EEE28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +313,8 @@ KYPCK — финская концептуальная дум-метал-груп
 magnet:?xt=urn:btih:50FBD0E897F2FA12073D5FEA9203D1DE88BDDD6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ Dimmu Borgir — норвежская группа, играющая в жанр
 ```bash
 magnet:?xt=urn:btih:7C81AE2EDE65045BCCE29CDD0DCBF27DE29C0A38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +371,8 @@ VA - Алексей Мажуков – Песни Любви (1983) [FLAC 2.0|19
 magnet:?xt=urn:btih:A4292920DF906823BAF83E4D49F043AA4FA1BBCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ magnet:?xt=urn:btih:A4292920DF906823BAF83E4D49F043AA4FA1BBCD
 ```bash
 magnet:?xt=urn:btih:35C3B4CC76A76978711873EEC5BDD1DE5B869C29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +429,8 @@ The Verve — британская рок-группа, образованная
 magnet:?xt=urn:btih:7786679D3A83B3BCD4A4E9ABA6283C0D5148E3DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ A4 Szombatesti Szivtipro(   Читать дальше...   )Жанр: RockПро
 ```bash
 magnet:?xt=urn:btih:B531F24191ECDCC901C567BAAC7E3139A07AB739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +487,8 @@ Mark Knopfler - Down The Road Wherever (2018) 2LP [DSD128 2.0|5,6MHz/1bit|tracks
 magnet:?xt=urn:btih:58592041013DB29AC5E67E57DE0393A99BF0E287
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +515,8 @@ Mist Of Misery - шведская симфоник-блэк-метал груп�
 ```bash
 magnet:?xt=urn:btih:B71D38FAF446F5C82C1CA9DCCF90A8F7B38A8E52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +545,8 @@ Catamenia — финская мелодик-блэк-метал-группа и�
 magnet:?xt=urn:btih:5C53D90BBD81CA7A1A40DD2E3D05722F2A0AADC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Tracker — восьмой сольный студийный альбом бри
 ```bash
 magnet:?xt=urn:btih:6FC3415C8A6125F97E81A46578E483192425E70F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +601,8 @@ A3 Не Уходи(   Читать дальше...   )Жанр: шансонПр
 ```bash
 magnet:?xt=urn:btih:CA2FA90A47B2C7627CD93A4D0A9E2F3119EEE91B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +632,8 @@ Soilwork (англ.) («Земледелие») — шведская групп�
 magnet:?xt=urn:btih:A848C968B9D76F7EFD0561C5F38E2F3FFE9D44CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +660,8 @@ Beyond the Black — немецкая метал-группа, исполняю�
 ```bash
 magnet:?xt=urn:btih:E5730B564F27F9B2BA76D1724B4318711BF71FDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +690,8 @@ A4 Лабиринт - Из Композиции «Сакартвело»(   Чи
 magnet:?xt=urn:btih:106756CF4651A459CFE50AFD256ECA59293C0D68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +719,8 @@ magnet:?xt=urn:btih:106756CF4651A459CFE50AFD256ECA59293C0D68
 magnet:?xt=urn:btih:CD3654D172170AF48F6FC9169C4425D801B3CBDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ A4 (Sitting On) The Dock Of The Bay(   Читать дальше...   )Жанр:
 ```bash
 magnet:?xt=urn:btih:940B4EA19BA495BA8D9C3CB20E6DB82AB6DA766C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

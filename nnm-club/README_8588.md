@@ -19,6 +19,8 @@ Master of Orion 2: Battle at Antares [Ru] (RePack) 1996 | Pet9948
 magnet:?xt=urn:btih:F22DE73EEFDA4CEFC99C24C285E56CD0872DB7C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:F22DE73EEFDA4CEFC99C24C285E56CD0872DB7C2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:F22DE73EEFDA4CEFC99C24C285E56CD0872DB7C2
 ```bash
 magnet:?xt=urn:btih:6D3F5B8133E970D5834063343DED8A6E87FEB8B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Voyager 12.04 [i386, x86_64] (2xDVD)
 magnet:?xt=urn:btih:3AA2AEA8BEF6EE7720756934C854F7E1CB5CFE40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:3AA2AEA8BEF6EE7720756934C854F7E1CB5CFE40
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:3AA2AEA8BEF6EE7720756934C854F7E1CB5CFE40
 magnet:?xt=urn:btih:44F8AEDA1404002E806CE2E00041DFDDDB373A3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:44F8AEDA1404002E806CE2E00041DFDDDB373A3E
 ```bash
 magnet:?xt=urn:btih:A96C3C6EAD673F49E307C0B53DA98068A5233F28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:A96C3C6EAD673F49E307C0B53DA98068A5233F28
 magnet:?xt=urn:btih:849D3C53AAA69619ECE84A7762DA49CE80DC7829
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:849D3C53AAA69619ECE84A7762DA49CE80DC7829
 ```bash
 magnet:?xt=urn:btih:ABC3209D05228B3D10A8665A63CE719777CC3E48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:ABC3209D05228B3D10A8665A63CE719777CC3E48
 magnet:?xt=urn:btih:CFABD07A91C8C2843F52F4F5420210049931AFF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:CFABD07A91C8C2843F52F4F5420210049931AFF9
 ```bash
 magnet:?xt=urn:btih:04F7EA2B66EB09F03697DF8F9B677E768C48D3F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ MathType - это мощный интерактивный инструмент, 
 magnet:?xt=urn:btih:ADE9B71E5086FD253D25EB974CC02E69FB115A09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:ADE9B71E5086FD253D25EB974CC02E69FB115A09
 ```bash
 magnet:?xt=urn:btih:7DFDA32B6EC3F347C6DEF37DCBD6251AAE398CD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:F7485970C89508CCD128CA3D653D703AEF59DFC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:F7485970C89508CCD128CA3D653D703AEF59DFC2
 ```bash
 magnet:?xt=urn:btih:E7CE9E4E6E769C8C4BDDC5D39D28FE34B1262C3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ MediaHuman YouTube Downloader 3.9.18 (1711) RePack (& Portable) by elchupacabra 
 magnet:?xt=urn:btih:342EDD1510726843CD3975FB085D39F00E8ABEAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:342EDD1510726843CD3975FB085D39F00E8ABEAE
 ```bash
 magnet:?xt=urn:btih:7FF65570846CD292A2CD52C335BEF9D053F4C672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:7FF65570846CD292A2CD52C335BEF9D053F4C672
 magnet:?xt=urn:btih:8937955C9D8588A6F803B83D7B9F9FF3436CBE47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:8937955C9D8588A6F803B83D7B9F9FF3436CBE47
 ```bash
 magnet:?xt=urn:btih:1826D0381287B18E7FFD4ECF34F0F267073394B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:1826D0381287B18E7FFD4ECF34F0F267073394B6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:1826D0381287B18E7FFD4ECF34F0F267073394B6
 ```bash
 magnet:?xt=urn:btih:4DB65D66A1F752B32DC57BD0E47247FDA69FEC7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:4DB65D66A1F752B32DC57BD0E47247FDA69FEC7C
 magnet:?xt=urn:btih:4704A882630F5FA7949A944D1C9DCEFF0EB6D425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Reentry - это симулятор космических полётов, ос�
 ```bash
 magnet:?xt=urn:btih:E870C43FBE33DD7222C94AAA9D8F93D9B500BC99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Reentry - это симулятор космических полётов, ос�
 magnet:?xt=urn:btih:D53F3AC492B13D3C4AD4AC011E2D68F8F0EEDDD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Rue Valley (2025) [Ru/Multi] (1.0.0v2) Repack Other s [Digital Deluxe Edition]
 magnet:?xt=urn:btih:F5BD2314E1D76CC75D8EF5F8DF429DDB9D237ED9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Adobe Premiere Pro 2025 - профессиональная программа д
 ```bash
 magnet:?xt=urn:btih:CB18C6C1F928B434768834204649BE5B740F04F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

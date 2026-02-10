@@ -19,6 +19,8 @@ Venatrix (2024) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:3AF72B20611B7890B60E34D7A28FB688A49CBEF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Thriving City: Song предлагает перенестись в прошло�
 ```bash
 magnet:?xt=urn:btih:F27BC690C7743B5B1D10571D39C8D17F51E18221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Little-Known Galaxy - приключенческая RPG с элементами
 magnet:?xt=urn:btih:CCFD2ED81007EA6EF01A74B518198E5D2D9F21A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Esports Godfather (2024) [Multi] (1.0.10) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A99C7EF309EE8C1CEE99752B8996A9E074D5284A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Lesson Learned – вы, будучи школьником, переносите
 magnet:?xt=urn:btih:2BE9096D050D633B4DD34DD0B7FDB26F554F84C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Echoes (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:43996294F446E1AF560D50D6063B02BD6D29F091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Umbraclaw – события нашей игры вращаются вокруг
 magnet:?xt=urn:btih:C959FE9E0B23A1BAD7C53075B44D537B9281BB9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Rocket Rumble бросает геймеров в безумный мир, где
 ```bash
 magnet:?xt=urn:btih:17AE0D924C7BF6D1B1F7E82D3C2FD2B6CF7D1E72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Dark Souls 2: Scholar of the First Sin - это ролевой экшен, в к
 magnet:?xt=urn:btih:C8008561192730C9580760039110442E43B04C50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Medieval Kingdom Wars Story (2023) [Ru/Milti] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:95AA113AA74406D134027857EFEB4D187DF48922
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 magnet:?xt=urn:btih:23A0380DB6960D040E2B5F255ABF4415E3530DE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Tiny Terry's Turbo Trip - безумная аркада про Терри, ге�
 ```bash
 magnet:?xt=urn:btih:56D6E6ADAC2A69283BFC8353D299F6F1F37F1A57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ CONSORTIUM Remastered ставит вас на место Консорциума
 magnet:?xt=urn:btih:A7F12C66F211D9691B43A41B575C7F1C1023476F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Crown Wars: The Black Prince - пошаговая стратегия, дейст
 ```bash
 magnet:?xt=urn:btih:AD47409E6E66560661A7CFEC4DEDD74A721E6EFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Touhou Mystia's Izakaya (2021) [Multi] (4.1.2/dlc) Scene Tenoke
 magnet:?xt=urn:btih:C6DA2478AE099FA710EC4A16BAB21DEF07CD37C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ F.I.S.T.: Forged In Shadow Torch (2021) [Ru/Multi] (1.200.002) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:A9B2CF991B8ECF23FA3920F0C2824B51808D81FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 magnet:?xt=urn:btih:35F93B7C0592A57F76C29EE300D725EFC00A2EC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Relaxing Simulator - это не типичная высокооктановая
 ```bash
 magnet:?xt=urn:btih:11236FAA23CC5EC9F66686271D7D111196437300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ ReConnect Exit LOOP бросает пользователей в недоуме�
 magnet:?xt=urn:btih:435D9A99056BE5A7E34ED988921086F07B53206B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Back Fire – окунитесь с головой в полноценное п�
 ```bash
 magnet:?xt=urn:btih:15F336B72C449AD6434B10B8D6397F2599F3DA07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Harvest Hunt бросает вас в суровый мир, где каждый
 magnet:?xt=urn:btih:7220C4FFACB8C4E7306E8DF6B1FA4A7AA79C8714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Assassin's Creed 4: Black Flag - стелс-экшен с видом от тре
 ```bash
 magnet:?xt=urn:btih:F43D07EB35FD83FA0E446C8432A501331E82A05B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Borderlands 2 - это приключенческий ролевой экшен,
 magnet:?xt=urn:btih:EFD97F660F1A7B94D7CA418B6EA8054D8D905ED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ BioShock Infinite - продолжение атмосферного шутера
 ```bash
 magnet:?xt=urn:btih:13C84D572ACB00353AF6C6F62F3D2069CA5170DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ RIPOUT - это хоррор-шутер с режимом совместной �
 magnet:?xt=urn:btih:186466CF1388484970B125CF734D08B2EB048FAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Kingdom of Arcana погружает вас в мир, полный опасно
 ```bash
 magnet:?xt=urn:btih:CA3F55569D6365CB3B8E3F94EF1367B585811C07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:97E56CA8CFFA5FBEA07451EA714AA069ED7ECD61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Goat - Levitation Sessions (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:CE805B6CD0FAD9A78D328A2C3AFD21694EA1AEC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Golden Earring - The Hole (1986) Remastered & Expanded Edition, 2023, Red Bullet
 magnet:?xt=urn:btih:0CF06F42BC208187BE6804096D6BCF6C2FA059EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Desespere - Furor Ab Intus, Caeleste Stragem Desuper (2023) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:427D3C9F15591CAA46D21224D3BEE5732776D6AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Jack and the Axes - Proof Is In The Poison (2023) [FLAC 24/44.1|Lossless|WEB-DL|
 magnet:?xt=urn:btih:9C6EF387A954974FCBEBA4103D8017B759B01F79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Frank Morgan & Rodney Kendrick Trio - Bop! (1997) Telarc [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:09A839AF655398EC7DAD370C1825C9D9F1A2C9E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Eagle - Come Under Nancy's Tent (1970) Remastered, 2023, Janus Records [FLAC 24/
 magnet:?xt=urn:btih:BFD25F85FBD24463DB3CD1E8E3EB830CA39AF2B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ R.E.M. - Santa Monica 1991 - live (2023) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:088D7B9545E36038A89E5DF9B4B17B6622FA422D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +252,8 @@ magnet:?xt=urn:btih:088D7B9545E36038A89E5DF9B4B17B6622FA422D
 ```bash
 magnet:?xt=urn:btih:A8349DEC7AC1591EC18D49C73CB7413EE9B9A92E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:A8349DEC7AC1591EC18D49C73CB7413EE9B9A92E
 magnet:?xt=urn:btih:37F2A035F8B271C794171AA7F72377818DD342C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ Children Of Bodom - A Chapter Called Children of Bodom (2023) Final Show in Hels
 ```bash
 magnet:?xt=urn:btih:1C75BD9DEDCA78CCD79501DA3E2A01DD18F9F387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +340,8 @@ Neil Levin - Cosmic Blues (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:C3949B28361FFC4C98E7C6C278DAF658E5146000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ magnet:?xt=urn:btih:C3949B28361FFC4C98E7C6C278DAF658E5146000
 ```bash
 magnet:?xt=urn:btih:0759F420B8DEA5F9D60143DE7DE76823A19E2E73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +394,8 @@ magnet:?xt=urn:btih:0759F420B8DEA5F9D60143DE7DE76823A19E2E73
 ```bash
 magnet:?xt=urn:btih:37047617A97C4B49BB30FB2BD0F39A3A3D83C3B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +424,8 @@ Glass Hammer - Arise (2023) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Sym
 magnet:?xt=urn:btih:F707202466678A626DCF85440626B7FDB42A245F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +450,8 @@ Grateful Dead - Winter Solstice (Live) (2023) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:2BD7ADBEE2D1AC1108B2E361FCD84701DBB08636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +475,8 @@ magnet:?xt=urn:btih:2BD7ADBEE2D1AC1108B2E361FCD84701DBB08636
 ```bash
 magnet:?xt=urn:btih:034A0E7B750BD2C0D15CA1DD825C3B0D5992DD46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +505,8 @@ Freya Ridings - Blood Orange (Live at Apollo) (2023) [FLAC 24/48|Lossless|WEB-DL
 magnet:?xt=urn:btih:EBF90C16D41FCC5668921C1DBB04CE941345DF12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +532,8 @@ magnet:?xt=urn:btih:EBF90C16D41FCC5668921C1DBB04CE941345DF12
 ```bash
 magnet:?xt=urn:btih:357A96EF7ACA5662F017806834989E58BB137170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +562,8 @@ magnet:?xt=urn:btih:357A96EF7ACA5662F017806834989E58BB137170
 magnet:?xt=urn:btih:FC920985C839C221EF6F544B3B766AF6AAF64C5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +589,8 @@ magnet:?xt=urn:btih:FC920985C839C221EF6F544B3B766AF6AAF64C5A
 ```bash
 magnet:?xt=urn:btih:1668B96DC2093CBD94E6A752CDDB36BAA6CFFC6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +619,8 @@ Rustik Mode - In The Desert Air (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:496950063E48FE3D5436C4BD7EEA27A86C066B8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +644,8 @@ magnet:?xt=urn:btih:496950063E48FE3D5436C4BD7EEA27A86C066B8B
 ```bash
 magnet:?xt=urn:btih:3AD5EED421335B2210D823023497B24A40180CAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +674,8 @@ Demon - British Standard Approved (1985) Japanese Edition, Reissue, Remastered, 
 magnet:?xt=urn:btih:B624D14D05A16585535072029002D1D91AAF8D30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +703,8 @@ magnet:?xt=urn:btih:B624D14D05A16585535072029002D1D91AAF8D30
 magnet:?xt=urn:btih:CFC55F56B4911A65622E2E678E28FB5B51EAD3DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,6 +731,8 @@ Vibe Brothers Band - Everyday (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 ```bash
 magnet:?xt=urn:btih:281356F1A5F3C5FACBB9FD5CD49DC516BA6BD758
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

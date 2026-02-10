@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5AF218A3D2A6546B4CB84C8BF5DE39A727B45647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC: Символика церквей / Churches: How to Read Them (2010) SATRi
 ```bash
 magnet:?xt=urn:btih:12F17C7DBC5027C305FEBF7C538CA364AD39AFCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NGW: Самые смертоносные змеи в мире / World's deadlies
 magnet:?xt=urn:btih:17BF9D7903913510E1ABBCDC6F735B84F4A92540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NGW. Змеи-убийцы / Killer snakes (2021) HDTV [H.264/1080i] [hand made 
 ```bash
 magnet:?xt=urn:btih:50858CD57E39607087F3CA26E8055CDDFCFB69AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:50858CD57E39607087F3CA26E8055CDDFCFB69AC
 magnet:?xt=urn:btih:F1841CCA07CA76C4A3F45E87296E3F51425C6084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:F1841CCA07CA76C4A3F45E87296E3F51425C6084
 ```bash
 magnet:?xt=urn:btih:18D4321A7025F8B7505A63AE98EA20D3E1F2B7B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NG. Путешествие на край Вселенной / Journey to the Edg
 magnet:?xt=urn:btih:20E33C2EAE6C8596A6BB9F9FD8F5020750026EBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Discovery: Последние тайны долины Царей / Valley of the
 ```bash
 magnet:?xt=urn:btih:2BD326EF5D01B89C8FBA58ED576E354F7C12C4B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Discovery: Nasa и SpaceX: путешествие в будущее / NASA and S
 magnet:?xt=urn:btih:07F7E33E43B6B554FCB1FE7EC149F7697309041D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:07F7E33E43B6B554FCB1FE7EC149F7697309041D
 ```bash
 magnet:?xt=urn:btih:D8710E6BEFE0C9513DDDB0D63B6DFA1A4E341F9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ BBC: Шкала времени. Кто убил Сталина? / Time watch. Wh
 magnet:?xt=urn:btih:043CA2F6776BA8C07EEC6AAF40DA2CA6F4CF5BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:043CA2F6776BA8C07EEC6AAF40DA2CA6F4CF5BD2
 ```bash
 magnet:?xt=urn:btih:B3DB7181A6603267452D16B8A02B8E50F26EA487
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Animal Planet. Неизведанная Мексика / Wild Mexico (2014) HDTV
 magnet:?xt=urn:btih:75BB8839AFCC31E1DBBE7024B335967CEC009913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:75BB8839AFCC31E1DBBE7024B335967CEC009913
 ```bash
 magnet:?xt=urn:btih:3EE8EBBB89A8AEA1827DDA9FD5CE3400FD96D32E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:3EE8EBBB89A8AEA1827DDA9FD5CE3400FD96D32E
 magnet:?xt=urn:btih:F59EBC54FD38867E3F72144D1485B479F50089B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ BBC. Google и всемирный мозг / Google and the World Brain (2013) W
 magnet:?xt=urn:btih:3F9BBC7898DD9ED91AC43AFD34DE413F064D075C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +434,8 @@ PBS: Природа. Природа секса / Nature. The Nature of Sex. Sex 
 ```bash
 magnet:?xt=urn:btih:8D8430BCD48505F85347C9ECA46CB8E8751C263D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ BBC. Экватор с Воздуха / Equator from the Air (2020) HDTV [H.264/
 magnet:?xt=urn:btih:C615C039B0FB84066C387447BE17DB0EDF0EEB24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ BBC. Шпион в снегах: Тайны снежных обитателей 
 ```bash
 magnet:?xt=urn:btih:7216F689AED6C0144910152CE243CF1750C4BC64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:7216F689AED6C0144910152CE243CF1750C4BC64
 magnet:?xt=urn:btih:7CC70D89AE84C58901E05F2AA32B33663D7722C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:7CC70D89AE84C58901E05F2AA32B33663D7722C0
 magnet:?xt=urn:btih:1DF18726CEE5991EF877248558DA04D614B961DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Discovery. Автомир Майка Брюера / Mike Brewer's World of Cars 
 ```bash
 magnet:?xt=urn:btih:243858E6553404A8E56E864E2C92C8CE6C63F6E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ BBC. Идеальная планета / A Perfect Planet (2021) UHD BDRip [H.26
 magnet:?xt=urn:btih:1139AE64B611599D8D219757007FBCA808227D98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ BBC. Уродливая красота / Ugly Beauty (2009) DVB
 magnet:?xt=urn:btih:668D8091F84E7BE58CE965FC7826460EC57D1425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:668D8091F84E7BE58CE965FC7826460EC57D1425
 magnet:?xt=urn:btih:4A29C01218F59E8E1F8C791DF9DA6312FF17D744
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:4A29C01218F59E8E1F8C791DF9DA6312FF17D744
 ```bash
 magnet:?xt=urn:btih:DCB198CDC90B0A16DE7197630449DAA6FB7BEE4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

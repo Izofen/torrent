@@ -1,27 +1,3 @@
-###  Публикация: 1198843   (804005) от 13.01.2018
-
-Принцесса-лягушка: Тайна волшебной комнаты / The Frog Kingdom 2: Sub-Zero Mission (2016) WEBRip [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_804005.jpg" />
-</div>
-
-
-###  Подробнее
-
-С давних пор в уютном живописном и скрытом от посторонних глаз месте раскинулось Лягушачье Королевство - страна, в которой лягушки живут в мире и согласии, и каждый их день наполнен радостью и весельем. Однако злодеи вознамерились выкрасть магический амулет - Хрустальную лягушку, без которого жители королевства не смогут пережить зиму. Чтобы помешать им, король собирает (   Читать дальше...   )Производство: США, Китай, Bang Zoom! Entertainment, Grindstone Entertainment GroupЖанр: Компьютерная анимация, Приключения, КомедияРежиссер: Чан Гуанси, Пэн ФэйПерсонажи: Энтони Падилья, Иэн Хэкокс, Эмбир Чилдерс, Джон Ловиц, Чун Чижэнь, Райан Де Алвис, Джошуа Йохан, Брайан Зиммерман, Джей ШелдонПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:23:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA7B86B786C1A3F77946E92A817CD80217FB27A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505183   (804120) от 27.10.2021
 
 Мы — монстры 2 / Monster Family 2 (2021) WEB-DL [H.264/1080p] [DVO]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:AA7B86B786C1A3F77946E92A817CD80217FB27A6
 ```bash
 magnet:?xt=urn:btih:0F1F649CF91E256E6F8EF4A7BF385AA2B9FB4337
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:0F1F649CF91E256E6F8EF4A7BF385AA2B9FB4337
 magnet:?xt=urn:btih:C299F9F53B4230BB4E5BA35DC12EC60C585D250B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:C299F9F53B4230BB4E5BA35DC12EC60C585D250B
 magnet:?xt=urn:btih:919085E55373AB62FCC351FA5866A5B544D25F5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +96,8 @@ magnet:?xt=urn:btih:919085E55373AB62FCC351FA5866A5B544D25F5F
 ```bash
 magnet:?xt=urn:btih:EC134E12F3E1B67566E757825313DA033C77E1C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +125,8 @@ magnet:?xt=urn:btih:EC134E12F3E1B67566E757825313DA033C77E1C9
 magnet:?xt=urn:btih:8CED9F25504CD33AE761B03FABCBE5DE94C89FEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:8CED9F25504CD33AE761B03FABCBE5DE94C89FEB
 ```bash
 magnet:?xt=urn:btih:CB965E9C81E16BCE5EDF6E46E282F04B5F1FB715
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +177,8 @@ magnet:?xt=urn:btih:CB965E9C81E16BCE5EDF6E46E282F04B5F1FB715
 magnet:?xt=urn:btih:DC63C43F696AC215E803090CDB3384C308C84473
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:DC63C43F696AC215E803090CDB3384C308C84473
 ```bash
 magnet:?xt=urn:btih:26327D02ED730FE26968923DDDD7DBA82BDA898A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +229,8 @@ magnet:?xt=urn:btih:26327D02ED730FE26968923DDDD7DBA82BDA898A
 magnet:?xt=urn:btih:2FDCC7AA16CD378C2D104D93F973F92F10D1C778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:2FDCC7AA16CD378C2D104D93F973F92F10D1C778
 ```bash
 magnet:?xt=urn:btih:3C0F1855693D1CFE2BFA1A0945DFFD48A0F591AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +281,8 @@ magnet:?xt=urn:btih:3C0F1855693D1CFE2BFA1A0945DFFD48A0F591AA
 magnet:?xt=urn:btih:90D5079BFF635398C9833A70F28CA579FEAC451D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:90D5079BFF635398C9833A70F28CA579FEAC451D
 ```bash
 magnet:?xt=urn:btih:522840FE06B04F2AE9EC5539E9B5D567D875074E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +333,8 @@ magnet:?xt=urn:btih:522840FE06B04F2AE9EC5539E9B5D567D875074E
 magnet:?xt=urn:btih:5F062EEF7336ACA35C5AC3A0A7BF450C27645B33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:5F062EEF7336ACA35C5AC3A0A7BF450C27645B33
 ```bash
 magnet:?xt=urn:btih:016957CFD78E32938E9296132336AC7076A78A9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +385,8 @@ magnet:?xt=urn:btih:016957CFD78E32938E9296132336AC7076A78A9B
 magnet:?xt=urn:btih:1BBFDB5C75F857F0365BDE1BC542A663EABE2D91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +410,8 @@ magnet:?xt=urn:btih:1BBFDB5C75F857F0365BDE1BC542A663EABE2D91
 ```bash
 magnet:?xt=urn:btih:6FA599F3FD76BA55C9A4799282880C39927D6F38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +437,8 @@ magnet:?xt=urn:btih:6FA599F3FD76BA55C9A4799282880C39927D6F38
 magnet:?xt=urn:btih:F6864BAE5F9BA895EF2A68BE680096EEA0AA978F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +462,8 @@ magnet:?xt=urn:btih:F6864BAE5F9BA895EF2A68BE680096EEA0AA978F
 ```bash
 magnet:?xt=urn:btih:C50222BFC96FF61326C6FFD79EEAAF92BE799EF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +490,8 @@ magnet:?xt=urn:btih:C50222BFC96FF61326C6FFD79EEAAF92BE799EF3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:C50222BFC96FF61326C6FFD79EEAAF92BE799EF3
 ```bash
 magnet:?xt=urn:btih:F763BC2B60C0DA1FC8A5F897D72FBEE29AE2691C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +542,8 @@ magnet:?xt=urn:btih:F763BC2B60C0DA1FC8A5F897D72FBEE29AE2691C
 magnet:?xt=urn:btih:D5351B6866EA4745C85716FCFFACD5832BD0E445
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:D5351B6866EA4745C85716FCFFACD5832BD0E445
 ```bash
 magnet:?xt=urn:btih:BA75944FDBF6D688769465D49E8B7D5033A7EF8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +594,8 @@ magnet:?xt=urn:btih:BA75944FDBF6D688769465D49E8B7D5033A7EF8A
 magnet:?xt=urn:btih:04D7A3210B8DA2FF787E0B306324857B5B7492AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:04D7A3210B8DA2FF787E0B306324857B5B7492AD
 magnet:?xt=urn:btih:09877B9B42B31E5F6671AD3DC84E7B1687281E30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +645,34 @@ magnet:?xt=urn:btih:09877B9B42B31E5F6671AD3DC84E7B1687281E30
 ```bash
 magnet:?xt=urn:btih:39C5E9A502C2AC3AC07D64FABC5BBC1F3E22C981
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504414   (811980) от 23.10.2021
+
+Золушка и заколдованный принц / Cinderella and the Secret Prince (2018) WEB-DLRip [H.264/720p-LQ] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время королевского бала, Золушка и ее друзья-мыши узнают невероятную тайну: злая ведьма превратила настоящего принца в мышь, а "принц" на королевском балу - подделка. Теперь Золушка и ее друзья отправятся в приключение, чтобы спасти настоящего принца и помочь ему одолеть злые чары.Производство: США / Gold Valley FilmsЖанр: Мультфильм, фэнтези, приключения, семейныйРежиссер: Линн СаузерлендПеревод: Профессиональный, многоголосый закадровый (HDRezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:27:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1D509948184E809311BE71BB02ADD511EA30C3A
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

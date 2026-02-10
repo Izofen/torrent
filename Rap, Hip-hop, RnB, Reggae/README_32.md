@@ -1,3 +1,32 @@
+###  Публикация: 1365583   (929024) от 08.03.2020
+
+VA - Ingenious Pleasure, Vol. 4 (2019) [MP3|320 Kbps] <Rap, Hip-Hop, Instrumental>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_929024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sofasound - Low Low [02:06]
+02. AedFX - Strive [03:08]
+03. Fungi - Rhealest [02:28]
+04. capshun - Ode to Sammy G [04:04](   Читать дальше...   )Жанр: Rap, Hip-Hop, InstrumentalПродолжительность: 00:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8383305770704041AB0A7F67911FFB21F2EF09E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1365605   (929145) от 08.03.2020
 
 Juelz Santana - #FREESANTANA (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -21,6 +50,8 @@ Juelz Santana - #FREESANTANA (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:1A0A860B516D8EC4CB36840A90EA18FC73C7553B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +86,8 @@ magnet:?xt=urn:btih:1A0A860B516D8EC4CB36840A90EA18FC73C7553B
 magnet:?xt=urn:btih:050F791443CA62DCBACAB665353EB212C46EBA88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -82,6 +115,8 @@ magnet:?xt=urn:btih:050F791443CA62DCBACAB665353EB212C46EBA88
 magnet:?xt=urn:btih:3701A91E34E697B81945BF505E02A032F9A07904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +143,8 @@ magnet:?xt=urn:btih:3701A91E34E697B81945BF505E02A032F9A07904
 ```bash
 magnet:?xt=urn:btih:04D63A0C38A1F183E64CBBCF71117B2A433B440E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:04D63A0C38A1F183E64CBBCF71117B2A433B440E
 magnet:?xt=urn:btih:9DF593AEF8EB5AF2C47205E46109BFDFAB1B8095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +214,8 @@ Rihanna - Rated R (2009) [FLAC|Lossless]<R'n'b>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +242,8 @@ Rick Ross (Rick Ro$$) - Port Of Miami 2 (2019) [FLAC|Lossless|tracks + .cue] <Hi
 ```bash
 magnet:?xt=urn:btih:DEA71F4BE63C113E4A314FEC40280C10C7C005DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +272,8 @@ Leon Bridges - Coming Home (2015) [MP3|320 кб/с] <R&B, Soul>
 magnet:?xt=urn:btih:B24C54DC34043B7AB28E4FDE2DA304464974786F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +300,8 @@ Rihanna - ANTI (2016) Deluxe Edition [FLAC|Lossless|image + .cue] <R&B, Pop>
 ```bash
 magnet:?xt=urn:btih:BC0455FA78B24CF9A5BC5BB7FDEA18236CD55648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +330,8 @@ magnet:?xt=urn:btih:BC0455FA78B24CF9A5BC5BB7FDEA18236CD55648
 magnet:?xt=urn:btih:B394C0925838E5A1D7C76DBECB5378B35B00065F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +358,8 @@ N.W.A - Straight Outta Compton (1988) Reissue, 2002, Priority Records [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:071BAA3C6C780108DDC28C526C9B22C5EDE1CA0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +388,8 @@ Apollo Brown & Ras Kass - Blasphemy (2014) [FLAC|Lossless] <Hip-Hop, Boom Bap, C
 magnet:?xt=urn:btih:481E819B2021FC6B988C7194BAB88D28D84F4FD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +416,8 @@ VA - 100 Greatest 90s R&B (2020) [MP3|320 Kbps] <R&B>
 ```bash
 magnet:?xt=urn:btih:D823505872DCB64F0D90A8FDBFF6354782249CAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +446,8 @@ VA - 100 Greatest R&B Love (2020) [MP3|320 Kbps] <R&B>
 magnet:?xt=urn:btih:244E3DA21EDF9EC1EF97447F1C4B3C6EFD8CD306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +474,8 @@ magnet:?xt=urn:btih:244E3DA21EDF9EC1EF97447F1C4B3C6EFD8CD306
 ```bash
 magnet:?xt=urn:btih:B6A3018FC0A4BC071AA06F29ED4755615067FE5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +504,8 @@ Rihanna - ANTI (2016) Deluxe Edition [MP3|320 кб/с] <R&B, Pop>
 magnet:?xt=urn:btih:704AF388719C77E19B4DE75F1B7CFC4921450C8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +529,8 @@ magnet:?xt=urn:btih:704AF388719C77E19B4DE75F1B7CFC4921450C8D
 ```bash
 magnet:?xt=urn:btih:9D9B80EC16E43935630F234B3F48AFFC4CFB32DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +559,8 @@ magnet:?xt=urn:btih:9D9B80EC16E43935630F234B3F48AFFC4CFB32DA
 magnet:?xt=urn:btih:332935BD2B4919B83E4AAD185A27523777D97EAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +587,8 @@ VA - 100 Greatest 90s Hip Hop (2020) [MP3|320 Kbps] <Hip Hop, Rap>
 ```bash
 magnet:?xt=urn:btih:7475D1CBB411C6CA551587BAE6C1875E5FCD03A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +617,8 @@ magnet:?xt=urn:btih:7475D1CBB411C6CA551587BAE6C1875E5FCD03A9
 magnet:?xt=urn:btih:A3261D007807B2145CB3587DEB9BD4E6769FE832
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +645,8 @@ magnet:?xt=urn:btih:A3261D007807B2145CB3587DEB9BD4E6769FE832
 ```bash
 magnet:?xt=urn:btih:8E3DB7CA6C4424CC820D828EFAE51F8DE4D2C0FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +675,8 @@ VA - Старая пластинка: Ритм-н-Блюз (2013) [MP3|256 кб/
 magnet:?xt=urn:btih:6319AA1736F01AF66E56317A2B46800CCC353C89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +703,8 @@ VA - Black Tracks (2000) [FLAC|Lossless|tracks + .cue] <Rap>
 ```bash
 magnet:?xt=urn:btih:185A5E6309553A9E0E01FD82D69B6591BC4D51EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +733,8 @@ Method Man - The Meth Lab (2015) [FLAC|Lossless|tracks + .cue] <Hip Hop>
 magnet:?xt=urn:btih:D086476939DAC2E768A3858FA9FF514A9BAEA3FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -683,32 +760,7 @@ VA - Reggae Anthology - The Definitive Collection of Federal Records (1964-1982)
 magnet:?xt=urn:btih:729135B7C1C52F021843A78F21F976E0DBA0F290
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975442   (971764) от 15.01.2016
-
-The Weeknd - Beauty Behind the Madness (2015) [MP3|320 кб/с] <R&B, Soul>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_971764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Real Life
-02. Losers (feat. Labrinth)
-03. Tell Your Friends
-04. Often(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 01:05:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB85D60B29D2CD3D79F7CADFAE946BE884E53B45
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

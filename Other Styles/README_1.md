@@ -22,6 +22,8 @@ Jean Michel-Jarre - Oxygene 3 (2016) [MP3|320 Kbps] <Ambient, New-Age, Synth-pop
 magnet:?xt=urn:btih:DCCC42147FABDCEDA268B6C2C68DFD6B3D5ABF61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Arcane League of Legends: Season 2 (Soundtrack from the Animated Series) (2
 ```bash
 magnet:?xt=urn:btih:B427A59769F8192C4E672B5AFDA08CEE9059CAD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ John Sokoloff - Дискография (1993-2024) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:BD8B07BED810F183D08B6559FB878DBEF91355A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Autogenic Training Channel - Ayurveda Music (2022) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:7D1B97CB1167544D2617F35128E29DA8C05E2D0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:7D1B97CB1167544D2617F35128E29DA8C05E2D0D
 magnet:?xt=urn:btih:FEE4B52B176CDE3055AF726EA02F83F01C3AE107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Enya - And Winter Came... (2008) [FLAC|Lossless|WEB-DL|tracks] <Celtic New Age>
 ```bash
 magnet:?xt=urn:btih:CDF992A38D6CE714A62F16A8C0FC21A7AA1E9861
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Dan Seals - The Best (1987) CD, Compilation [FLAC|Lossless|tracks + .cue] <Folk,
 magnet:?xt=urn:btih:0851BB520E8D4364AA075F245CA87ECBC822167A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Trisha Yearwood - The Song Remembers When (1993) CD, Album, Club Edition [FLAC|L
 ```bash
 magnet:?xt=urn:btih:BE8EF961DD337ED9F29F3462BF25C3D46FB09D79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ The Chieftains - Tears of Stone (1999) [FLAC|Lossless|tracks + .cue] <Folk, Worl
 magnet:?xt=urn:btih:E0164106C91981893C5E288C0A1A59D2310AB675
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Andrés Segovia - The Segovia Collection (Vol. 9): The Romantic Guitar (1991) CD
 ```bash
 magnet:?xt=urn:btih:83814E612EE5159ED003BEBDA5FB696BD5C85236
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ David Antony Clark - Spirit Dance - Freeing the Primal Soul (2013) [MP3|320 Kbps
 magnet:?xt=urn:btih:C92909C9343F094E2816B92F859210B62CA1C571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Travis Tritt - Greatest Hits: From the Beginning (1995) CD, Compilation [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:6B097F17851C75F5C40FE0644976E9F8F2FD2C7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Can't Hardly Wait (Music From The Motion Picture (1998) CD, Compilation [FL
 magnet:?xt=urn:btih:B5E5B83A4472C6ADD266CB91A5F7B8C83A01C59E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Michael Hedges - Aerial Boundaries (1984) [FLAC|Lossless|tracks + .cue] <New Age
 ```bash
 magnet:?xt=urn:btih:20AF706D60735A9586D054571F7C4A5D81758532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ The Cherokee Spirit - Meditation (2011) [MP3|320 Kbps] <Native American, New Age
 magnet:?xt=urn:btih:B67B26F9DC492A23AD203ED7FB6F131F9E4F1266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - The Orient Collective: Timeless Sands (2024) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:83E29249EF16395536298D0B476E160BECD2EC6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ magnet:?xt=urn:btih:83E29249EF16395536298D0B476E160BECD2EC6C
 magnet:?xt=urn:btih:56A488E57CBC18694C5A2346AD78E0EC50C84849
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +515,8 @@ David Arkenstone - In The Wake Of The Wind (1991) [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:0C7C0F00BBB111BA0F1FAA46F4E9DA2511D27346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +543,8 @@ Les Paul & Mary Ford - The Best of the Capitol Masters (1992) [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:78E9FA1E19EC19D91861D55890DED35BADF9AD4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +575,8 @@ DUSKLAND – это эпическое аудиоприключение на с�
 magnet:?xt=urn:btih:E9E3B67E2B6598220EAF6E3D53CB2EC6B6DD8834
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +603,8 @@ Herencias - Spirit Songs (2008) [MP3|320 Kbps] <Native American, New Age, World>
 ```bash
 magnet:?xt=urn:btih:2FFDBD61D226CD6AA8DA36DC81F3C87BEEBFD206
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +633,8 @@ magnet:?xt=urn:btih:2FFDBD61D226CD6AA8DA36DC81F3C87BEEBFD206
 magnet:?xt=urn:btih:55D733582C1482944F05519CC7C8A0D2AB81A10C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +661,8 @@ VA - Tantric ASMR Bliss: Sensual Voice of Passion (Seductive Edition) (2024) [FL
 ```bash
 magnet:?xt=urn:btih:A576EED91DF420EA254D7527A8B732DE5057553D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +691,8 @@ Joe Berluck - The Erotic Voice of Joe Berluck (1970) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:88B7AD14048F8F8A98A3EDD2C45E02550D351DC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +720,8 @@ Conor Oberst - Conor Oberst (2008) [FLAC|Lossless|tracks + .cue] <Folk Rock, Ind
 magnet:?xt=urn:btih:1B40910D3247A9CCB02CD266EF5DD200802A708B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,6 +748,8 @@ Enigma - The Screen Behind the Mirror (2000) [FLAC|Lossless|tracks + .cue] <New 
 ```bash
 magnet:?xt=urn:btih:31E90A1AA72E1B72BE654EF08F25843C8335AB01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Haunted Hotel 10: The X Collector's Edition / Проклятый отель 10. 
 magnet:?xt=urn:btih:191094EC0348A22FB282EDCB1DFB4EFAEB2204DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Pro Basketball Manager 2019 (2018) [Multi] (1.10) License CODEX
 ```bash
 magnet:?xt=urn:btih:896C05CA900CA7F3E64A6A0F18EF8D53B5CD921A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Mystery Case Files 18: The Countess (2018) [En] (1.0) Unofficial [Collector's Ed
 magnet:?xt=urn:btih:39B0F4AE984F556F83A37E364EE8FC436FEFE63B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Black Mirror (2017) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:7AD47907BEDBF2A0D51A1B0FAE823B367B334E94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ PayDay 2 - продолжение игры PayDay: The Heist, рассказыв
 magnet:?xt=urn:btih:384E90EABDB3A00FBFA8DB90D3536D2A6F7377F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Dwarves (2016) [Ru/Multi] (1.1.2) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:0A8BFE863FFF0BE5D378DB41616AA14F5A20335D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Super Dungeon Tactics – тактическая пошаговая страте
 magnet:?xt=urn:btih:433B0BD5944409C6314F890A4C8597C0539AC827
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Watchmen: The End is Nigh / Хранители (2009) [Ru/En] (1.0) Repack Serap
 ```bash
 magnet:?xt=urn:btih:7A931AC870B429B20A8D2F2366466F42D6FEA2F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Coma 2: Vicious Sisters — атмосферная сюжетная игра
 magnet:?xt=urn:btih:073CE5938EEAFB1EFAE8AD8B7823A755720B4F99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Edna & Harvey: Harvey's New Eyes (2012) [Ru/Multi] (3.0.0442) License GOG
 ```bash
 magnet:?xt=urn:btih:CAE4AECCB2E6DE5159E59FEF33BC4111802F3CAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Lost Lands 4: The Wanderer / Затерянные земли 4: Скиталец
 magnet:?xt=urn:btih:924D4801CF643864AC8C7FCAFBAC44B38CE3AA5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Wolf Among Us (2013) [Ru/En] (1.0) Repack Seraph1 [Episodes 1-5]
 ```bash
 magnet:?xt=urn:btih:1F4FC14EE69E9799F181A7E12548ED843A8AA23C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Aerie - Spirit of the Forest / Эри - дух леса (P) [Ru] 2010
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Demon Hunter 2: New Chapter / Охотник на демонов 2: Новая �
 ```bash
 magnet:?xt=urn:btih:867B82FD2BBD072D5C0B2FD127DACBEA14B2EDE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Rite of Passage 9: Bloodlines (2019) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:57AA13AFFC483736245FD446239B8985A6FE68A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Warlock: Master of the Arcane - новая стратегическая игра
 ```bash
 magnet:?xt=urn:btih:61925F511A2F2433FC483A9019B460AC24715458
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Lost: Via Domus / Lost. Остаться в живых (2008) [Ru/En] (1.0) Lice
 magnet:?xt=urn:btih:F5BE060FACD395F7D0268C02471A9ABADB95FB79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.0.6/dlc) Repack Covfefe
 ```bash
 magnet:?xt=urn:btih:CEE829379EB2A396A3F2CFD505754FFE056549B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ SPACE RIFT — захватывающее космическое приключ�
 magnet:?xt=urn:btih:089A85BB3D27E1FACC8E9429167673DAED8726D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Resident Evil® Revelations — популярная игра в жанре "у�
 ```bash
 magnet:?xt=urn:btih:1F8A276193173AE2049CF8D25025EA506EEB97BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Drift Into Eternity (2016) [En] (1.0) License PLAZA
 magnet:?xt=urn:btih:6808D7943EF2A2ABAE47B9AED2C2F27D40EF0FFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ War For The Overworld (2015) [Ru/Multi] (1.5.0f3/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:2C8FD9390FEE25859A0197E8E9A889C03DB45DA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Oddworld: New 'n' Tasty (2015) [Ru/Multi] (1.3/dlc) License GOG
 magnet:?xt=urn:btih:08A61A4CA3896F1B5642C47588829FF9D4B6CB8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Infinite Air with Mark McMorris (2016) [En] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:32987BCCB64B77D30C2CCC4607B69271B7BDCC58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Bombshell – шутер, сделанный с применением техн�
 magnet:?xt=urn:btih:0E58CCE60EA5459D5CB4F527F4D6EDB66108F286
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Mount and Blade: With Fire and Sword / Mount & Blade: Огнём и мечом: 
 ```bash
 magnet:?xt=urn:btih:36496B5E570855D659EFB6CDFB23B206120EF18B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

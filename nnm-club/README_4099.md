@@ -19,6 +19,8 @@ IPTV Pro v7.1.3 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:21F589925982A5C1E2089FB8ED7136FB19B42D99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:21F589925982A5C1E2089FB8ED7136FB19B42D99
 magnet:?xt=urn:btih:FA79B129F4AC06556872F44B2EFB1FB1EC20CF61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Tearmoon Teikoku Monogatari / Tearmoon Empire / Хроники империи Т
 ```bash
 magnet:?xt=urn:btih:517D640D2F54751CB07758E5E406BFCD371088E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:517D640D2F54751CB07758E5E406BFCD371088E6
 magnet:?xt=urn:btih:7DEFE9901F5BB201B6D5BE39E6404605DB0DB820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:7DEFE9901F5BB201B6D5BE39E6404605DB0DB820
 magnet:?xt=urn:btih:F2A4BAE95AEFEE031A672AD7D27AC45DEFA14A85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ CamToPlan / Рулетка измерительна v4.2.1 Mod by derrin [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:C1F32680326A703C06F4F79BE0621BC3E8A47393
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:C1F32680326A703C06F4F79BE0621BC3E8A47393
 magnet:?xt=urn:btih:5E8D9FA0EE062BB227957802BD8B9A7D68540EE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:5E8D9FA0EE062BB227957802BD8B9A7D68540EE6
 ```bash
 magnet:?xt=urn:btih:A9FD4A5F037FD19EEF28485BB157996A9519A37A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Aomei Partition Assistant – мощная программа для работ�
 magnet:?xt=urn:btih:E7D3C998A5B52632C3CD59BCD553FF27DCC6FF90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:E7D3C998A5B52632C3CD59BCD553FF27DCC6FF90
 ```bash
 magnet:?xt=urn:btih:184B633CB9C1587A4439DD83C4959000AB190F59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:184B633CB9C1587A4439DD83C4959000AB190F59
 magnet:?xt=urn:btih:DC57A90CF32122B81F36F8C62E87D04B4555C593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:DC57A90CF32122B81F36F8C62E87D04B4555C593
 ```bash
 magnet:?xt=urn:btih:3B762143D8D5BFEEFD59FF8A600BC44D6DE06DB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:3B762143D8D5BFEEFD59FF8A600BC44D6DE06DB0
 magnet:?xt=urn:btih:348267DC6656FD25806866CE66ACDBB9FEC4443F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:348267DC6656FD25806866CE66ACDBB9FEC4443F
 ```bash
 magnet:?xt=urn:btih:FA3B2C2F48C043650035351F32BF342B02ED39CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:FA3B2C2F48C043650035351F32BF342B02ED39CD
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ SysAdmin Software Portable v.0.6.5.0 by rezorustavi (Update 24.12.2023) [Ru] (а
 ```bash
 magnet:?xt=urn:btih:C9EC72C52D4B3D636AC655ECE490B0D25071B6D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:C9EC72C52D4B3D636AC655ECE490B0D25071B6D1
 magnet:?xt=urn:btih:825F4707F1AB5CBACF94C19A6B19049A043C88A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Need For Speed: Rivals (2013) [Ru/En] (1.4.0.0/dlc) Repack Decepticon [Complete 
 ```bash
 magnet:?xt=urn:btih:F4C3E1808FB82B019BE3D5C592837082422B8D89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:F4C3E1808FB82B019BE3D5C592837082422B8D89
 magnet:?xt=urn:btih:8F5563235E2D1F973353179DB95641E32F9F2B77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:8F5563235E2D1F973353179DB95641E32F9F2B77
 ```bash
 magnet:?xt=urn:btih:85C947F255BD39A184AA92E8582F055A575A6EF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Skillbox, Даниил Пилипенко, Сурен Хоренян | Python-ф
 magnet:?xt=urn:btih:FB99AE3523CDC76939509C0169763E8F690B6B97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:FB99AE3523CDC76939509C0169763E8F690B6B97
 ```bash
 magnet:?xt=urn:btih:591551E5AA3105FE7C82EAB450C25B1E7414CF66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Buried Alive погружает игроков в клаустрофобичес
 magnet:?xt=urn:btih:C2E664F2F5E8E0F11A2B3895EE14D45550B746E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Trinity Fusion – это выполненный в 2.5D научно-фанта
 ```bash
 magnet:?xt=urn:btih:58D0AA660455A21606A6F1818B5E11F358D63A44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:58D0AA660455A21606A6F1818B5E11F358D63A44
 magnet:?xt=urn:btih:68EF0903EF6D6552B10F2A0A4D98EE625D973827
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:68EF0903EF6D6552B10F2A0A4D98EE625D973827
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

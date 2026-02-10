@@ -19,6 +19,8 @@ PHOTO — это шрифт, посвященный мировой фотогр�
 magnet:?xt=urn:btih:68B722483D622202EE8EC1F34904F0F089F29D46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Arturito - это типографическое семейство шрифто
 ```bash
 magnet:?xt=urn:btih:5B8D9D9F7F877591C1C6629581FFF435AAE53273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:5B8D9D9F7F877591C1C6629581FFF435AAE53273
 magnet:?xt=urn:btih:CF6C9F9B5D98390B3C280162C2AE0FD2DAAAF0B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:CF6C9F9B5D98390B3C280162C2AE0FD2DAAAF0B7
 ```bash
 magnet:?xt=urn:btih:8F8A188D95A9497CE4CC56AE4F3AAC070E6D02A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Luxury Stylish — это современный шрифт с засечкам�
 magnet:?xt=urn:btih:C048E31AEF7DB16EC9F94DB75C84D81CE40FD8E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ HypeNowa Psychedelic — это смелый и игривый ретро-мод
 magnet:?xt=urn:btih:DF4B9ECC19DDD85E5646EEAF02E7306D5C94DAC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:DF4B9ECC19DDD85E5646EEAF02E7306D5C94DAC3
 ```bash
 magnet:?xt=urn:btih:E166B30BFB5382E90ABE6840857A7A12396601DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Soundtrack — это очаровательный шрифт, написанн�
 magnet:?xt=urn:btih:6EC3775A964D31AC33CB29F03EBB0F174021424B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:6EC3775A964D31AC33CB29F03EBB0F174021424B
 ```bash
 magnet:?xt=urn:btih:2840B1C39B19A431AB723A8A72D41E845349EC37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Asoka — это современный жирный шрифт без засе�
 magnet:?xt=urn:btih:E648C18765CFE07CF53CEB7389F637B2277CCB62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Recorda Script — это декоративный рукописный шриф
 ```bash
 magnet:?xt=urn:btih:A8AA02EC4F916E01178BB49A11F21804FA96AF6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Reckless — это гибридный геометрический шрифт, 
 magnet:?xt=urn:btih:EF2D72884917CC064459B7E666FE58740318A309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:EF2D72884917CC064459B7E666FE58740318A309
 ```bash
 magnet:?xt=urn:btih:3D8D38E9E5A6028AA7BD20A628AD5B3376950B9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:3D8D38E9E5A6028AA7BD20A628AD5B3376950B9D
 magnet:?xt=urn:btih:2F5CAA4D3085E156A8264AAE1307B1BC1C58C73D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ PF DIN Mono — это новейшее дополнение к постоянн
 ```bash
 magnet:?xt=urn:btih:D96EA82CA9436157FFCB2D2ACCF0630F53A44D7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:D96EA82CA9436157FFCB2D2ACCF0630F53A44D7C
 magnet:?xt=urn:btih:1FAB8BB158124A3E977EF0C9F3C8329E9408B664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Gluten — это экспериментальный шрифт, разрабо�
 ```bash
 magnet:?xt=urn:btih:A6227B0F6DF9688FB19ED29AFFA5E7E5C6DFC7BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Ode — это приятное и яркое семейство шрифтов 
 magnet:?xt=urn:btih:628BDF915EB92A493B799F6365B40851E05A2ADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Konga претерпела различные изменения. Первая �
 ```bash
 magnet:?xt=urn:btih:09903A0FB9085FB2E82A7DCFFCB2DD5B371C7494
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Dixplay — шрифт, основанный на пиксельной сетк�
 magnet:?xt=urn:btih:8804D84D11A43D1A210246F4541040DD6A7B5F06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Millie — это выразительный, геометрический шр�
 ```bash
 magnet:?xt=urn:btih:4853D3571A96D06F1A7A4630482B183E4A29B4CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:4853D3571A96D06F1A7A4630482B183E4A29B4CA
 magnet:?xt=urn:btih:9A33B8064858BF11781B33F4630C6363CDBEB203
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Lilex — это расширенный шрифт, созданный на ос
 ```bash
 magnet:?xt=urn:btih:90840D606B02C05648244A4D7161B872FC29504B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ NORD — это минималистичный и современный шри�
 ```bash
 magnet:?xt=urn:btih:C6BE620C5292263EB8EBB8684633F94D8E66649C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

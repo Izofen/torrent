@@ -19,6 +19,8 @@ BAKERU (2024) [Multi] (1.0) Repack FitGirl [Soundtrack Edition]
 magnet:?xt=urn:btih:7DA29D64DE50FE755CF3D2A51B5DE32C5F549727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MARVEL vs. CAPCOM Fighting Collection: Arcade Classics собирает колл
 ```bash
 magnet:?xt=urn:btih:918F696453AB8A286C212234CD841E3F4D5ADB9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Spyro: Year of the Dragon (2000) [Ru] (2.0) Repack Ma2012ks
 magnet:?xt=urn:btih:467947BBC69C2C927BC7BD4398742CFB3D74C6A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Go Mecha Ball - захватывающий двухстрелочный шуте
 ```bash
 magnet:?xt=urn:btih:89102C04EE22497E469009062B40152F4C537508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ MARVEL vs. CAPCOM Fighting Collection: Arcade Classics собирает колл
 magnet:?xt=urn:btih:316B4D32F09E492CCF271E11A2824829F5B3DF3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Forts (2017) [Ru/Multi] (2.34/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:52E203B66D33A7FEDAF403DA7D76F4F35FE3B0AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Spyro 2: Ripto’s Rage! (1999) [Ru] (2.0) Repack Ma2012ks
 magnet:?xt=urn:btih:174404233873119B1AD6D6F5B87F8C03C5365696
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Spyro the Dragon - первая игра от Insomniac Games о драконе 
 ```bash
 magnet:?xt=urn:btih:36542CF52D358C5B2C29F8B250993DBD30190A9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Nickelodeon All-Star Brawl 2 - продолжение оригинальной �
 magnet:?xt=urn:btih:F0C14939CCB3116C588E2692B7EFD9DEC5716462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Plank Builders (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:373AB47D1110CA8A72DE092A0CEB932DF94E7BEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Spyro: Enter the Dragonfly (2002) [Ru/Multi] (1.2) Repack Ma2012ks
 magnet:?xt=urn:btih:5D7EBFE3DCF1D60E670DB2A230A2EDCDA4E26E79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Kamikaze Lassplanes - это визуальная новелла, в котор�
 ```bash
 magnet:?xt=urn:btih:8CD2C5767A77A63F7CC3A0004417F49D8CD72FDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Kamikaze Lassplanes - это визуальная новелла, в котор�
 magnet:?xt=urn:btih:F3C1821E8EC558E3AAF2B595CADE170A073DEEAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ GUNDAM BREAKER 4 (2024) [Multi] (1.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:125D673FAC58A9AC4614E1C3387EEECFF37C598F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Akimbot (2024)[Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:FB70C8C4BC132C96BAF76D9847D4C3357F214580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Akimbot (2024)[Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:473A994914DDED786D2F1AFBBBA54B35FD54D1CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.01) Repack FitGirl
 magnet:?xt=urn:btih:E0055F269A801C1C755EFF50193BBE41BC10D241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Cult of the Lamb (2022) [Ru/Multi] (1.4.4/dlc) Repack Wagner
 ```bash
 magnet:?xt=urn:btih:888CCDCF7874EC6F60325E111E447229CE40A7B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Call of Sentinels (2024) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:11BC0D0E3B96713F2CBED69FFA92C94AAA744173
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Action SuperCross – это динамичные мотогоночные за�
 ```bash
 magnet:?xt=urn:btih:FABD215AD9D476FD498FDE4B39097A7D840078BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Golf Club Wasteland / Golf Club Nostalgia (2021) [Ru/Multi] (1582) License GOG
 magnet:?xt=urn:btih:B4411B02648F167438DA7F3308424351C620E544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Phantom Spark - это бешеная скоростная гонка, прох�
 ```bash
 magnet:?xt=urn:btih:8C6843861FDBA7CB748815C842F16981AAF7D90D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Super Antonio – что может быть лучше инновационно
 magnet:?xt=urn:btih:B2EAED190CD425366ABF3079C4D913AB92FE17AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Frontiers Reach – это аркадный и космический авиас
 ```bash
 magnet:?xt=urn:btih:E07E2ED805070D78E459E931EDD18A84A92779F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ UFO Taxi ставит игроков в необычное положение. �
 magnet:?xt=urn:btih:8182A83743D12C386CBFBC69889EEE91BA5DDAC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Double Dragon Gaiden: Rise Of The Dragons отправляет в захваты
 ```bash
 magnet:?xt=urn:btih:E9EC986AF3B47A0BA5EBE4E8852DF892A48AA699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

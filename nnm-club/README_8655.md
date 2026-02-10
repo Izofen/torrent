@@ -22,6 +22,8 @@ VA - Remix Voyage Vol.1 (2017) [MP3|320 Kbps] <Pop, House, Dance>
 magnet:?xt=urn:btih:7FB765EF3A50FD2730F79B2DC89CC1432601BC0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:7FB765EF3A50FD2730F79B2DC89CC1432601BC0E
 magnet:?xt=urn:btih:91DC22224F19AE91336E9059527EE6861C9F0049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:91DC22224F19AE91336E9059527EE6861C9F0049
 ```bash
 magnet:?xt=urn:btih:C936EFEB277637AF32DB413678FE3DA1B9F4BF5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ VA - Future Noir - A Collection - Beats For A New Dark Age (1998) Credo [FLAC|Lo
 magnet:?xt=urn:btih:9819B5CAC66D2F2BBE4D52BFD268AF5D1E1588D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:9819B5CAC66D2F2BBE4D52BFD268AF5D1E1588D4
 ```bash
 magnet:?xt=urn:btih:34A539B54624C76181DC7B850EBE5CB50A6450AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ VA - De Top 100 Aller Tijden 1973 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 magnet:?xt=urn:btih:5FCDC0761ACCBAE1F82344D6740DF86FE036B6BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:5FCDC0761ACCBAE1F82344D6740DF86FE036B6BA
 ```bash
 magnet:?xt=urn:btih:1637EA28175EAB33DD08DCE6270B41594AAF09A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:1637EA28175EAB33DD08DCE6270B41594AAF09A2
 magnet:?xt=urn:btih:4F39159F9878DD1EB8F488BF34DF57729D830953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:4F39159F9878DD1EB8F488BF34DF57729D830953
 ```bash
 magnet:?xt=urn:btih:B81D69C18CEDD4E1B1702D31C835508149EF7CB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Audirvana Plus - мощный аудиофильский плеер с широ�
 magnet:?xt=urn:btih:AD048B3E1203FF949A5C8117A2C72B07B84B8D36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:AD048B3E1203FF949A5C8117A2C72B07B84B8D36
 magnet:?xt=urn:btih:2FBAEF8E2E18124935E7537CA08E6664D10B9D65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Translatium - одно из самых мощных приложений пер�
 ```bash
 magnet:?xt=urn:btih:5DD4DCBF87B267A4D7E21943EFD356F994DAA74C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Burshtyn - Безвірник (2017) [MP3|320 Kbps] <Black Metal>
 magnet:?xt=urn:btih:EE88E7DF835F01AB401DBDF702180C15538D97C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.20 (Compiled by Викто
 ```bash
 magnet:?xt=urn:btih:716E32CB5DA71B78C3B35E67427B8842BC31643C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.19 (Compiled by Викто
 magnet:?xt=urn:btih:DCAF4268D6FE9FD0C310A8F71EB91F7909C4FD03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ Downie поддерживает более 1,100 популярных сайто
 ```bash
 magnet:?xt=urn:btih:D76BDB7E8DD462F796A56C9D3E61C36DFD333163
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ Ziyal - Discography 6 Releases (2013-2017) [FLAC|Lossless|WEB-DL|tracks] <Drum n
 magnet:?xt=urn:btih:B0303A2F96945B08A5151F9B5BCBBF9B127A1016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ VA - Best Of Trance Vol.07 (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:519DE949B19E9ECEDE6B8D200490049142B6F27D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:519DE949B19E9ECEDE6B8D200490049142B6F27D
 ```bash
 magnet:?xt=urn:btih:BEC2EEB86D0C16639C1D2148F72E1EAFAA234903
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ Automatic Peacock (A T M P K) - Discography 6 Releases (2013-2017) We Only Share
 magnet:?xt=urn:btih:5F82F8DBC31C8099F81930F0E0E93551ACC4F4BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +573,8 @@ NX-Trance - Angst: The Seventh Album (2017) [MP3|320 Kbps] <Trance, Tech Trance>
 ```bash
 magnet:?xt=urn:btih:BEE90001FB9A56DA90CC6F975264F175B2935D5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +603,8 @@ VA - The Best Of Suanda Dark (Mixed by  Roman Messer) (2017) [MP3|320 Kbps] <Tra
 magnet:?xt=urn:btih:F22F96E871575AA17B0030E0DFB4AA75417D384E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ Application - Discography 3 Releases (2014) Dust Science Recordings [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:16A5B49F040A60EBC3023A8A6F34B70928E8829A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +661,8 @@ Second Storey - Lucid Locations (2017) Houndstooth [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:ED50ABBC21E2E91CCEE50D1D9F1DCE976EEA2342
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +690,8 @@ magnet:?xt=urn:btih:ED50ABBC21E2E91CCEE50D1D9F1DCE976EEA2342
 magnet:?xt=urn:btih:DAE32DB08F5F0A4BFBC5D87D3EF7AD66C424C052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +718,8 @@ magnet:?xt=urn:btih:DAE32DB08F5F0A4BFBC5D87D3EF7AD66C424C052
 ```bash
 magnet:?xt=urn:btih:FE96A70501A36BD2E33E7A8E4C3E84476E48F15D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

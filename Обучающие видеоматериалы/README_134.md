@@ -21,6 +21,8 @@ it-black, Виктор Черемных | Администрирование б�
 magnet:?xt=urn:btih:77E1037835A9B0B3DC9C1CC5E54A3D4EDFF1360B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Astra Linux Team, Александр Соболев, Сергей Третьяк
 ```bash
 magnet:?xt=urn:btih:01DFAA539BB85976572376152938F67FF90DBA39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -78,6 +82,8 @@ magnet:?xt=urn:btih:01DFAA539BB85976572376152938F67FF90DBA39
 magnet:?xt=urn:btih:4C0B10BF27B54BC46AF83CA40036BE7FBCFBB506
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ This comprehensive Blender animation course covers the principles of animation, 
 ```bash
 magnet:?xt=urn:btih:3C634618B19E8A50268CB757B5040FD9113AF660
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ magnet:?xt=urn:btih:3C634618B19E8A50268CB757B5040FD9113AF660
 magnet:?xt=urn:btih:BFC7C2B5713A8278BE2099414DF28B7F3969B6E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Telegram является современным мессенджером с ш�
 magnet:?xt=urn:btih:9202869ABF519775B2E1A47B44FDED9FD2FED99A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ magnet:?xt=urn:btih:9202869ABF519775B2E1A47B44FDED9FD2FED99A
 ```bash
 magnet:?xt=urn:btih:26A9EF3CEB0D18F6BA537F0CB575938C3BA34503
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:26A9EF3CEB0D18F6BA537F0CB575938C3BA34503
 magnet:?xt=urn:btih:DA8C39E447C8133C1F6D7F69EB6A547D15AA4D5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ Stepik, Герман Янгалин | Экспресс-курс по Arduino, э
 magnet:?xt=urn:btih:C6DE5CBFFE6FA222FFAA7CE4AA5E4AB1C461C38A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +277,8 @@ Udemy, Rob Tuytel | Creating a fir and pine forest in Blender (2023) PCRec [EN]
 magnet:?xt=urn:btih:4BE187F167F83811782C4B28195D5ECC9C7BD7CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +302,8 @@ Udemy, Андрей Кудлай | Telegram bot интернет-магазин.
 ```bash
 magnet:?xt=urn:btih:953D7509633CDF4ACCF82BBDDA166A6B235577B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +332,8 @@ magnet:?xt=urn:btih:953D7509633CDF4ACCF82BBDDA166A6B235577B5
 magnet:?xt=urn:btih:256D151E873C601AFCDE52DB83B598F1A65E9DE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +360,8 @@ magnet:?xt=urn:btih:256D151E873C601AFCDE52DB83B598F1A65E9DE4
 ```bash
 magnet:?xt=urn:btih:BC0BC41ECAB656168F780C900E57BA45B2A27F48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +390,8 @@ HiEng, Ирина Кузьмина | Базовый английский для 
 magnet:?xt=urn:btih:DA3E35DB58031EBAF5257E17B4845A2EAE315A0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ Welcome to the ultimate Python learning experience! The Python Mega Course is de
 ```bash
 magnet:?xt=urn:btih:A154A9444D1213539F8CB8F9286A394CD4E930A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +443,8 @@ magnet:?xt=urn:btih:A154A9444D1213539F8CB8F9286A394CD4E930A8
 magnet:?xt=urn:btih:074CCA9DE39B97D79E9CDB76C665F93C90DE3460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +470,8 @@ Zabbix — это готовое программное решение с отк
 ```bash
 magnet:?xt=urn:btih:346C872BAB4943D270EBBA9816CE6589A6095BAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +500,8 @@ Slurm (Слёрм), Всеволод Севостьянов, Павел Сели
 magnet:?xt=urn:btih:D3B67B9CB5A7E96BF245154687A5B6BF9F6C5311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +526,8 @@ Udemy, Neville Adams | The Unreal Arsenal: Learn C++ and Unreal Engine (2023) PC
 ```bash
 magnet:?xt=urn:btih:9F1BD84828631BA6DC4952D410774618D3278DD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +556,8 @@ Foxford (Фоксфорд), Валерия Петросян | Курс по не
 magnet:?xt=urn:btih:6E7C8398DA00CE76A69FD222D00423F2A33A7858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +582,8 @@ CG Boost, Zach Reinhardt | Master 3D Sculpting in Blender - Version 2.0 [Chapter
 ```bash
 magnet:?xt=urn:btih:D10E048BF735891D678A65C6F92D7CE174D61260
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +612,8 @@ magnet:?xt=urn:btih:D10E048BF735891D678A65C6F92D7CE174D61260
 magnet:?xt=urn:btih:B57615A79DE1CE567856EBAE190DE0B6522123F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +637,8 @@ ProFinansy, Наталья Котовская, Иван Пунга | Банкр�
 ```bash
 magnet:?xt=urn:btih:9754B55568E234F062F7696669C6DDD0A6B35014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +665,8 @@ Vertex, Дмитрий Зиновьев | Основы конструирова�
 magnet:?xt=urn:btih:4DD4F613920583966A04EC0047DDE066C4157B20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +691,8 @@ magnet:?xt=urn:btih:4DD4F613920583966A04EC0047DDE066C4157B20
 magnet:?xt=urn:btih:34AE41CF66E2BA66F4CE0667B2191A914AF13783
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +716,8 @@ magnet:?xt=urn:btih:34AE41CF66E2BA66F4CE0667B2191A914AF13783
 ```bash
 magnet:?xt=urn:btih:0B2683C6BDC3519F0E24D3EDECCCCBC055EF5EE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

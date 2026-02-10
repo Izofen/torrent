@@ -1,3 +1,29 @@
+###  Публикация: 1043611   (572836) от 16.08.2016
+
+Александр Каверзнев. Афганский капкан (2006) DVBRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572836.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журналист Александр Каверзнев был легендой отечественного телевидения. Его умению привлекать зрителя, его обаянию завидовали и поражались все. Он ломал правила и стереотипы. Этого удивительного человека до сих пор считают своим учителем звезды российской тележурналистики. Александр ушел из жизни внезапно, после командировки в Афганистан. Что там произошло? Какая (   Читать дальше...   )Телекомпания: Россия, Студия-АЖанр: ДокументальныйЯзык субтитров: РусскийПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AE7FBC591814C4A7CA05B07EBDDE71D903B4035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 361980   (572968) от 12.07.2011
 
 Команданте / Comandante (2003) WEB-DLRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:1FBA1D6819F814C40D1C6D7DDE9EF9E3B7899694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:1FBA1D6819F814C40D1C6D7DDE9EF9E3B7899694
 magnet:?xt=urn:btih:12809DE84E71951CDE4A045BE5993AFD066BE1F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:12809DE84E71951CDE4A045BE5993AFD066BE1F3
 magnet:?xt=urn:btih:48F4E45A32E994E64D3397DDE920C948D563EFC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:48F4E45A32E994E64D3397DDE920C948D563EFC0
 ```bash
 magnet:?xt=urn:btih:AEADA37DC9B8AAD2A0058A64227DC651DC89BAFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:AEADA37DC9B8AAD2A0058A64227DC651DC89BAFA
 magnet:?xt=urn:btih:9D70B575BD4593AA7633AED87DFA8B44D60E5325
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:9D70B575BD4593AA7633AED87DFA8B44D60E5325
 ```bash
 magnet:?xt=urn:btih:8AC9E871402AC3D3D57031D88A547C64E1FC4A5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:8AC9E871402AC3D3D57031D88A547C64E1FC4A5A
 magnet:?xt=urn:btih:57C34D8BD293BB9B8BA6B7CFF8A92E88C37F6788
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:57C34D8BD293BB9B8BA6B7CFF8A92E88C37F6788
 ```bash
 magnet:?xt=urn:btih:C73957CAD220CE533E61CA82A6B0803CAFABD6E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:C73957CAD220CE533E61CA82A6B0803CAFABD6E2
 magnet:?xt=urn:btih:47218A311FFC03074CDD7BD0FE88C7E8C0E4B6CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:47218A311FFC03074CDD7BD0FE88C7E8C0E4B6CD
 ```bash
 magnet:?xt=urn:btih:6FB517B0B789EA996E730A41356863A63F2587F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:6FB517B0B789EA996E730A41356863A63F2587F2
 magnet:?xt=urn:btih:B3E75DE110B732409E27BC9856015C47A61CC987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:B3E75DE110B732409E27BC9856015C47A61CC987
 magnet:?xt=urn:btih:E1FDAE2928C06EEFC2C45F26FC313EE74CA66247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:E1FDAE2928C06EEFC2C45F26FC313EE74CA66247
 ```bash
 magnet:?xt=urn:btih:005BE74CEFA39A32A86C2FFCC70B33D836A27ADD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:005BE74CEFA39A32A86C2FFCC70B33D836A27ADD
 magnet:?xt=urn:btih:A65F0AADB71B34835FE826D12C061CF25C381D1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ NG. Египет: тайны мертвых / Egypt Underworld (2009) SATRip
 ```bash
 magnet:?xt=urn:btih:B6C34E1ECF43843EAB2107154DF615815DD5CA9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:B6C34E1ECF43843EAB2107154DF615815DD5CA9F
 magnet:?xt=urn:btih:D5EE51FBB016E64D5D9E8A5963A1DA34C9D7162E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:D5EE51FBB016E64D5D9E8A5963A1DA34C9D7162E
 ```bash
 magnet:?xt=urn:btih:275791BF0D1629B4225B0C0A39408C836F6D8D55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:275791BF0D1629B4225B0C0A39408C836F6D8D55
 magnet:?xt=urn:btih:81AC8F538768EB13CD6B7AF307A0251912BD8577
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:81AC8F538768EB13CD6B7AF307A0251912BD8577
 ```bash
 magnet:?xt=urn:btih:75C5EE448113ED5917BF80AB8C65309B60FC96AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:75C5EE448113ED5917BF80AB8C65309B60FC96AB
 magnet:?xt=urn:btih:5CB0121AF35103FAAC88482F7E46E3BFA7F852B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:5CB0121AF35103FAAC88482F7E46E3BFA7F852B2
 magnet:?xt=urn:btih:FB677C6ADB2E34CBDED6E5A3024FCAC358C3A7E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:FB677C6ADB2E34CBDED6E5A3024FCAC358C3A7E3
 ```bash
 magnet:?xt=urn:btih:6C651D39C150DC4E50DF620DC1DF057C37787076
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:6C651D39C150DC4E50DF620DC1DF057C37787076
 magnet:?xt=urn:btih:2278E11068813604F7C7E5A1DA79D37201F54792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:2278E11068813604F7C7E5A1DA79D37201F54792
 ```bash
 magnet:?xt=urn:btih:F878810628A4695DF24DA058F38F099C2C70E57C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:F878810628A4695DF24DA058F38F099C2C70E57C
 magnet:?xt=urn:btih:6DA4E145CD363E44D22527684C314EFD2D428ED3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557273   (575417) от 25.07.2015
-
-Непознанное / Круги на полях (26.09.2012) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_575417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти загадочные явления трудно назвать проделками природы. Удивительно симметричные круги словно кем-то нарисованы на полях. Откуда они берутся? И почему их появление вызывает целую волну мистификаций? Попытаемся разобраться.Жанр: ДокументальныйПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E71BB7FA9B237C2184D2D4B53F9B40BAE12EF7A8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

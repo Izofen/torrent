@@ -19,6 +19,8 @@ MotoGP. Этап 11 из 22. Гран-при Германии. Гонка (13.07
 magnet:?xt=urn:btih:88598051E045E38127841E3C434C4598BDD941F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Bernard Sellam & The Boyz From The Hood - Barnyard Boogie (2025) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:C72042D5D9AC7CFBDDC9BFA734C1A8DF37861C73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ In The Woods... - Otra (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Gothic
 magnet:?xt=urn:btih:6AA92722799E6E91D787F60194D15B6B94672E68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Cabin AI - Memphis Soul (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:B8898C08A67481AB899416C12AAF1924F4820B3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Bluerock Junction - Thrift Store Queen (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 magnet:?xt=urn:btih:B19223037869248D28499F81935255980B97EEEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ Restive Plaggona - Manipulation Techniques (2025) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:90CEF82E214AFF3585B40354D58D63ED1636EF22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ Morgan Giosa - Supernova: A Blues Odyssey (2025) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:C94EF4DF657A01B2EBE0191B3C3C3667D6F6AAC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ Mighty Dead Rabbits - Fly High Again (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:AADC500BF6D8F33DBA60F52CEED9B5AE44A326FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ magnet:?xt=urn:btih:AADC500BF6D8F33DBA60F52CEED9B5AE44A326FB
 magnet:?xt=urn:btih:6F3E8A7004065A15E9CE074FA581C9A559529CA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +277,8 @@ Exvamon - Odyssey of Fate (2025) [FLAC|Lossless|WEB-DL|tracks] <Power, Heavy Met
 ```bash
 magnet:?xt=urn:btih:8E0C2D55EE97AA4E5C7BD88C6DA7574CA2A393A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +307,8 @@ Tropical Fuck Storm (TFS) - Fairyland Codex (2025) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:833AE4AFD7578BEE2264E79D4D2B6664A74D28D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +332,8 @@ MotoGP. Этап 11 из 22. Гран-при Германии. Спринт (12.
 ```bash
 magnet:?xt=urn:btih:BF4620219E6757D11A428FF64A3D0EC8DD6C622F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +362,8 @@ Frank Walker - Live @  Progressive House Never Died Tour, REBEL Toronto, Canada 
 magnet:?xt=urn:btih:571D4136E76C02B6199ADCAE00D6A8CFC7C20A66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +387,8 @@ MotoGP. Этап 11 из 22. Гран-при Германии. Квалифик�
 ```bash
 magnet:?xt=urn:btih:3CFDF9EF49081B628FC5F2061DA3DAA19D521CC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +417,8 @@ Formless - Eon (2016) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Metal>
 magnet:?xt=urn:btih:4D0FDC961082AF5A7C9EC07C0CAF319C3D83509D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +446,8 @@ Gruesome - Fragments of Psyche (2017) (EP) [FLAC|Lossless|WEB-DL|tracks] <Progre
 magnet:?xt=urn:btih:96B13E02069B4164135304C2342B9144DE0D8812
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +473,8 @@ magnet:?xt=urn:btih:96B13E02069B4164135304C2342B9144DE0D8812
 magnet:?xt=urn:btih:28C339DDDE4536E4CBFB6F50468B084900275178
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +499,8 @@ magnet:?xt=urn:btih:28C339DDDE4536E4CBFB6F50468B084900275178
 magnet:?xt=urn:btih:D259383AEEE1020E210663C9882A0CFBC7846798
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +524,8 @@ magnet:?xt=urn:btih:D259383AEEE1020E210663C9882A0CFBC7846798
 ```bash
 magnet:?xt=urn:btih:B7B579868EA58F05451A5B5F7A4B989441E6B3C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +554,8 @@ magnet:?xt=urn:btih:B7B579868EA58F05451A5B5F7A4B989441E6B3C0
 magnet:?xt=urn:btih:9B0C81502DE753B5FA20FCCD552D70C2C99C69BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +583,8 @@ VA - Suanda Ibiza 2025 (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
 magnet:?xt=urn:btih:993F7D8EF778A5622E3BA3E2807C432262089962
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +608,8 @@ magnet:?xt=urn:btih:993F7D8EF778A5622E3BA3E2807C432262089962
 ```bash
 magnet:?xt=urn:btih:949B5975928D77DC2FEA805C645C7880E1DA0708
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +638,8 @@ VA - Vocal Anthems Ibiza 2025 (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
 magnet:?xt=urn:btih:4EFF3F154FC44A9B66203A9D66DD66E84A9D95F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +663,8 @@ magnet:?xt=urn:btih:4EFF3F154FC44A9B66203A9D66DD66E84A9D95F8
 ```bash
 magnet:?xt=urn:btih:DC345F2EAB1B16B26117D827563EC9F099F7FC5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +693,8 @@ MY-RO - Краса Руси (2025) [MP3|320kbps] <Pop>
 magnet:?xt=urn:btih:A965679515BCE70803A9CBEE49D6EA0314F7C5E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +719,8 @@ magnet:?xt=urn:btih:A965679515BCE70803A9CBEE49D6EA0314F7C5E4
 ```bash
 magnet:?xt=urn:btih:1F10385DD05E8CA45D8B1D0B1FA51CB1B69F0D86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

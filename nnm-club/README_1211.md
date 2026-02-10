@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7B853DF0EC2C76AABE2BA917F388F594F83008D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:7B853DF0EC2C76AABE2BA917F388F594F83008D3
 ```bash
 magnet:?xt=urn:btih:749B6AA5444CB86C13CFE49923445C4E1DA1DA16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Udemy, Vassilyi Gudomarov | JavaScript с нуля: Уверенный стар�
 magnet:?xt=urn:btih:3E8E20AACD55D1D820A8C34A6781BAEAD26A13F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:3E8E20AACD55D1D820A8C34A6781BAEAD26A13F5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Samsung и Google выпустят бесплатный заменитель Dol
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Samsung и Google выпустят бесплатный заменитель Dol
 magnet:?xt=urn:btih:0FF91E8801B52C0E53FDD3190E75C9B970214157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:0FF91E8801B52C0E53FDD3190E75C9B970214157
 ```bash
 magnet:?xt=urn:btih:DE01066ECB7A6ADE10516889091086F54B0B73A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:DE01066ECB7A6ADE10516889091086F54B0B73A0
 magnet:?xt=urn:btih:21794CDE56BC6283DBAD06784E4DCEA8A4574B3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:21794CDE56BC6283DBAD06784E4DCEA8A4574B3F
 ```bash
 magnet:?xt=urn:btih:4CA5AB1BC9CA4EB17DE93207A948801BEDC88F43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:4CA5AB1BC9CA4EB17DE93207A948801BEDC88F43
 ```bash
 magnet:?xt=urn:btih:A6F29D4B2CF31BFEDE317D8D07BE596383EC1CAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ VA - Hello, 2025 (The Ultimate Party Mix) (2024) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:A00E9C349DF11E7D7526C987A44E7863A2854BBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:A00E9C349DF11E7D7526C987A44E7863A2854BBD
 ```bash
 magnet:?xt=urn:btih:D78F2F5215FFBD0D6CB70581F210FAC258E57192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Black - Wonderful Life (1987) [FLAC|Lossless|tracks + .cue] <Electronic, Synthpo
 magnet:?xt=urn:btih:D253BCA3B932D181A937DC69F532ACF155068405
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:D253BCA3B932D181A937DC69F532ACF155068405
 ```bash
 magnet:?xt=urn:btih:F0F4BCB0835B1071D3FCE1B07485B1A1ED05570A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ Pink Floyd - Live At Théâtre de Plein Air (Colmar, France, 22 June 1974) (2024
 magnet:?xt=urn:btih:AC3761133FAAD8EA06DDC7595EF94E315A7BDB1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ Pink Floyd - Live At Usher Hall (Edinburgh, UK, 4 November 1974) (2024) Live [FL
 magnet:?xt=urn:btih:71E2CB56E232EC17BCEF5EA14533351ED19FFF6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:71E2CB56E232EC17BCEF5EA14533351ED19FFF6A
 ```bash
 magnet:?xt=urn:btih:DA0A5C35C8AB3FFE9507184A4EF8F845AB62CDDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ Pink Floyd - Eclipsed By The Moon - Studio Outtakes 1972 (2022) EP (Live)[FLAC 2
 magnet:?xt=urn:btih:2ACA7C1F6A7DC84648FA829EF34F14ED1C6E1B9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ VA - Songs To Make You Sweat (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance>
 ```bash
 magnet:?xt=urn:btih:08A6C1CD0503A0F4A66F8213FC5F5561AF472943
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ VA - The Best Of Italo Disco Vol. 13 (1989) [OGG Vorbis|480 Kbps] <Electronic, I
 magnet:?xt=urn:btih:B15F93E0965E8CE0053C7F2153115982F21B35D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ Pink Floyd - Live at Trentham Gardens (Stoke-On-Trent, UK, 19 Nov 1974) (2024) L
 magnet:?xt=urn:btih:FE671097BE01DD17475FF5ACB9DDEA6CEE48E8B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ magnet:?xt=urn:btih:FE671097BE01DD17475FF5ACB9DDEA6CEE48E8B5
 ```bash
 magnet:?xt=urn:btih:C466DC054F9132D242861430E38EB9EA4EB2FEF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ VA - Morning Chill Lounge Vibes (Relaxing Background Music) (2025) [FLAC|Lossles
 magnet:?xt=urn:btih:0FE57F4D8F335C185F79509B44810C9EE6AE82D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:0FE57F4D8F335C185F79509B44810C9EE6AE82D6
 ```bash
 magnet:?xt=urn:btih:F085B21CE675CBB8180AD326A50BA71B6DF9E242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:F085B21CE675CBB8180AD326A50BA71B6DF9E242
 magnet:?xt=urn:btih:AAE27FC164BEE4B1BE23D7E91DDE4EB9DE6DFCC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ Pink Floyd - Live At The Hippodrome (Bristol, UK, 14 December 1974) (2024) Live 
 ```bash
 magnet:?xt=urn:btih:ABC447C9B269FD1DDAA220AF47D0D608050C02BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

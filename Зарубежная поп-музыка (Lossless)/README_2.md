@@ -22,6 +22,8 @@ CD1:
 magnet:?xt=urn:btih:B893CAF145DA18F27EE88435690B4C250F5F38FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Laid Back - FOREVERGREEN (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:DD6D640888DC186C85CFBDF2F052523C72EC7098
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Игорь Крутой - 70 (трибьют-альбом) (2024) [FLAC|Los
 magnet:?xt=urn:btih:CE551D476BC763C0FC81D4756BF5C227F1A2134F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Michael Jackson - Off the Wall (1979) CD, Album, Reissue, Remastered, Special Ed
 ```bash
 magnet:?xt=urn:btih:267D9D8B91967A7364C8EAB8404A00D26DEAA808
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ Roxette — вторая по популярности (   Читать дал�
 magnet:?xt=urn:btih:A00E22D364F1586EA0983A0D241B11CBFA81EF25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Kylie Minogue - Tension II (Extended Edition) (2024) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:CA7505BCC255487950DEE1CED48C72BF15E99F33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ CD1:
 magnet:?xt=urn:btih:33240C6BA2133A205C72C6F21D16137B57D0F90D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ VA - Pure Pride Vol. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance, Indie Pop>
 ```bash
 magnet:?xt=urn:btih:5FC32898625C8971F31C895CE3D5EC808690D71B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +255,8 @@ Donna Lewis - Now In A Minute (1996) [FLAC|Lossless|tracks + .cue] <Pop Rock, So
 magnet:?xt=urn:btih:4FCACD420350E73939A549DF06CD1CC429B64C70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ Taylor Dayne - Greatest Hits (1995) CD, Compilation, Club Edition [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:715EC4072F786E820B473D12CAC9F2F4464EEFFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +313,8 @@ Lara Fabian - Je suis La (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:73EDDDF8DB7B111175DA1E4AEE3322218D9F4689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ Olivia Newton-John - Angels In The Snow (2008) Reimagined, 2024, Primary Wave Mu
 ```bash
 magnet:?xt=urn:btih:AC56AC86B7206A5C1433A227A61A4241B805BDDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +371,8 @@ Naomi Sharon - Obsidian (2023) Extended, 2024, OVO Sound [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:DE013297F9058F4C79CA2D7A7871383AC0A83C21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +400,8 @@ VA - Hottest Hits 100 Greatest Songs of All Time (2024) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:0C5269B49211FC46A2851AA29428F204A20CB581
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ Michael Jackson - Love Never Felt So Good (2014) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:6E2B95F6FB6EA3BB50A313B5572A00E903EEB48E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ Steve Lawrence & Eydie Gorme - The Best of Steve & Eydie (1990) CD, Compilation 
 magnet:?xt=urn:btih:406A75F777970812DB5C338994C03CC41479D5B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ Bette Midler - Sings The Rosemary Clooney Songbook (2003) [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:D1A0BD3765EF8687B361C707E41E76CB6A3B92DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +514,8 @@ Cheryl - Only Human (2014) [FLAC|Lossless|tracks + .cue] <Pop, Dance-pop>
 magnet:?xt=urn:btih:BCCD2602F79CCE056C311D98218D4E861C29FDFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ VA - WORKOUT HITS (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:63D63F801A4D209D4A470043559F6604379EE1CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +572,8 @@ Gwen Stefani - Bouquet (2024) [FLAC|Lossless|WEB-DL|tracks] <RnB/Swing, Electron
 magnet:?xt=urn:btih:EFB4FEE2F4CDFF279FF7B80AB701AF72BB3633F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ VA - 80s Summer Chillout (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop/Rock>
 ```bash
 magnet:?xt=urn:btih:7D19C3F76B9F61D951C466F9CFC0B34C58C93D7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +630,8 @@ VA - 90s Nostalgia 90s Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:438854B549F3004FCAEDD2C3BB1ACFD2F330D4C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ VA - best music all the time (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:9D5A28FD10B3C1AF2AB8A05A6F1DE4C05A60F96D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ Leddra Chapman - Telling Truths (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:717CA997DC95B69A1B76E1A31C9EE21F4E1E0AEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ Lama (Лама) - 4 Albums + 11 Single's (2006-2023) [APE, FLAC|Lossless|image +
 magnet:?xt=urn:btih:B78D79A4D5FF1DF7EBC02BB0C70EFC2B616B3763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ ABBA - The Singles (The First Fifty Years) (2024) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:CA518A24EF0BE322A36CF60ACC2A7BE8715C602C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

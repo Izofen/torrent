@@ -1,3 +1,29 @@
+###  Публикация: 1374418   (872172) от 10.04.2020
+
+Испанские города - объекты Всемирного наследия / Ciudades Patrimonio De La Humanidad De Espana (2016) IPTVRip (серии 10 из 10)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_872172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испания известна всему миру как страна, обладающая уникальными памятниками благодаря своей удивительной истории, в результате которой, в архитектуре испанских городов сочетаются черты различных культур, начиная от античной, пришедшей сюда во времена Римской империи, включая исламскую, оставшуюся от периода арабского владычества, заканчивая европейской, в том числе (   Читать дальше...   )Производство: Испания, RTVE 4KЖанр: Документальный, история, искусствоРежиссер: Белен МоринероПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 10 x ~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A96F2085BDA748DEC445B421FB4D2C1F8379C2C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 482143   (872270) от 10.04.2020
 
 Штурм Кёнигсберга (1945)  VHSRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:724A4429A98A938AC9A0F56C698A9F23E2D0BC75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:724A4429A98A938AC9A0F56C698A9F23E2D0BC75
 ```bash
 magnet:?xt=urn:btih:51790615B9301A088BD191BB86AB7A79C948F613
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:51790615B9301A088BD191BB86AB7A79C948F613
 magnet:?xt=urn:btih:740FAA5DB9684C514FE0B815A609B998CE9FF5AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:740FAA5DB9684C514FE0B815A609B998CE9FF5AC
 magnet:?xt=urn:btih:65D32847F0FD6FE92C89CF6582EBBF611F51A297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:65D32847F0FD6FE92C89CF6582EBBF611F51A297
 ```bash
 magnet:?xt=urn:btih:D6C824C90F0D22B014D998FE87999D2A49B8F67A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:D6C824C90F0D22B014D998FE87999D2A49B8F67A
 magnet:?xt=urn:btih:8D9C26150F8C6CCDFE718AD644D9A4E560CB0B00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:8D9C26150F8C6CCDFE718AD644D9A4E560CB0B00
 ```bash
 magnet:?xt=urn:btih:FB9410F15857303BEBC07F565A3943321A63A192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:FB9410F15857303BEBC07F565A3943321A63A192
 magnet:?xt=urn:btih:26620BBC71BC16D76A97FA20D6AE613C0AC8D2B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:26620BBC71BC16D76A97FA20D6AE613C0AC8D2B1
 magnet:?xt=urn:btih:E23DAA9579D0A3A551CB58D75724C500FD8A0467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:E23DAA9579D0A3A551CB58D75724C500FD8A0467
 ```bash
 magnet:?xt=urn:btih:8BF79B727D21AA49BA53CBAE28EAADFC1D34D0A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:8BF79B727D21AA49BA53CBAE28EAADFC1D34D0A0
 magnet:?xt=urn:btih:89EC6DADC580C11C63DCEAF3FC0930960E4F6361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:89EC6DADC580C11C63DCEAF3FC0930960E4F6361
 magnet:?xt=urn:btih:9DB6BB1AC99A54305E0A32D52A7317A6C43A4106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:9DB6BB1AC99A54305E0A32D52A7317A6C43A4106
 ```bash
 magnet:?xt=urn:btih:BBE97D067BA7B62AB4E0477BFEC453317F158C4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:BBE97D067BA7B62AB4E0477BFEC453317F158C4A
 magnet:?xt=urn:btih:6420F88653979BF63711E956E76DA0ED5BFE56A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ H2нОль (2016) WEBRip
 magnet:?xt=urn:btih:E17F68EA8F62CB97496B326A93422AC2A99ECF1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:E17F68EA8F62CB97496B326A93422AC2A99ECF1D
 ```bash
 magnet:?xt=urn:btih:410A5762D57793F9F34CADF4B66B8DAE191F7560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:410A5762D57793F9F34CADF4B66B8DAE191F7560
 magnet:?xt=urn:btih:B8B58C58E671E3A0CBD5FBFAF80B0698EEAC8BD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:B8B58C58E671E3A0CBD5FBFAF80B0698EEAC8BD1
 ```bash
 magnet:?xt=urn:btih:258AAF906201E84F8993D114496F4E7A66D1DEAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:258AAF906201E84F8993D114496F4E7A66D1DEAC
 magnet:?xt=urn:btih:D1480C20B4E441DA2FEB665DB794777D3163D25C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:D1480C20B4E441DA2FEB665DB794777D3163D25C
 ```bash
 magnet:?xt=urn:btih:B5EF81E25E27BDDBBA973EA77DCC59B9A4D51266
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:B5EF81E25E27BDDBBA973EA77DCC59B9A4D51266
 magnet:?xt=urn:btih:5FC73EC3A12E9742633D4F86A22C79B477322CF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:5FC73EC3A12E9742633D4F86A22C79B477322CF1
 ```bash
 magnet:?xt=urn:btih:75069B7B9FD74B1F5729567A3F01A235DBDCC91D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:75069B7B9FD74B1F5729567A3F01A235DBDCC91D
 magnet:?xt=urn:btih:618CE944355CF74368B792D19F045C7B74BF482B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:618CE944355CF74368B792D19F045C7B74BF482B
 ```bash
 magnet:?xt=urn:btih:619623115B62155B7AE5C086102FB81FDDEA35B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,29 +676,7 @@ NG. Ядовитый остров / Venom Islands (2012) HDTVRip [H.264/720p]
 magnet:?xt=urn:btih:A0449E3C653BD7182D249E635DE964CB55CAADCC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106440   (873743) от 19.02.2017
-
-Лучше всех (2017.02.19) SATRip (сезон 2, выпуск 2)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_873743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое детское телевизионное шоу талантов, куда приглашаются юные участники от трех до 12 лет. Если ваш ребенок проявляет экстраординарные способности, то его ждут в нашем шоу!Телекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 01:16:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E34F1D7EB93DD0E90931736F905A511FDD04E8B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

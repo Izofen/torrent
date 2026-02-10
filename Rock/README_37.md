@@ -22,6 +22,8 @@ Kadavar - The Isolation Tapes (2020) [MP3|320 Kbps] <Progressive Rock, Psychedel
 magnet:?xt=urn:btih:DBE49B4971B366B6398AE45C222E1F298CB627E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ On-The-Go - 4 альбома + 6 синглов + 3 EP`s (2008-2016) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:2F1A45992D4C45AE29BC38F8E9CE8943056974A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Millenium - Tales from Imaginary Movies (2022) [MP3|320 Kbps] <Progressive Rock,
 magnet:?xt=urn:btih:1AA5935EB3171CEAB6CA4F0D42684D736EEA30B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Grace From Gadgets - Grace From Gadgets (2022) [MP3|320 Kbps] <Progressive Rock,
 ```bash
 magnet:?xt=urn:btih:50C680002E247A58F961DC73107C73EF6FECF7FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Grydgaard - Secrets from the Palace (2022) [MP3|320 Kbps] <Progressive Rock>
 magnet:?xt=urn:btih:F7907952715AA320FB052976A38C8DA8855051EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Shanghai - Shanghai (1982) LP [MP3|320 Kbps] <Rock, Pop Rock>
 magnet:?xt=urn:btih:05D72C6C2C6AB8310061DFC24D811965F7024374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ Marillion - Holidays In Eden (1991) 3CD, Deluxe Edition, 2022 [MP3|320 Kbps] <Pr
 ```bash
 magnet:?xt=urn:btih:3C2D84938010B0F90B2F7674D788355E7D6C94B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ Roger Taylor - 5 albums (1981-2013) [MP3|320 кб/с]<Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +259,8 @@ Blond Viper - Crash (2021) [MP3|320 Kbps] <Classic Rock, Hard Rock>
 ```bash
 magnet:?xt=urn:btih:085797BAE24B97171A5286FC5FA99191624C1799
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ Atan - Ugly Monster (2022) [MP3|320 Kbps] <Progressive Rock, Djent, Prog-Metal>
 magnet:?xt=urn:btih:F29FE758B825C7664306389A00578605E36C8C48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +317,8 @@ Mobius - Le Ne Merd Irni (2022) [MP3|320 Kbps] <Progressive Rock, Art Rock, Fema
 ```bash
 magnet:?xt=urn:btih:AF3932E400B3869DDAA2860265CBE65DD8ED8816
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +348,8 @@ Country: Trondheim, NorwayПродолжительность: 00:42:37
 magnet:?xt=urn:btih:7356FA7A2D843EBD8FF6493B5721614650BB211F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +376,8 @@ High Grind - The Loud Bong Chronicles (2022) [MP3|320 Kbps] <Heavy Psych, Stoner
 ```bash
 magnet:?xt=urn:btih:34A437207E1E5C9C2A67BBD2BCA6C60D98AE06B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +406,8 @@ Josh Ward - Holding Me Together (2015) [MP3|320 кб/с]<Country, Country Rock>
 magnet:?xt=urn:btih:B48B607138F171B7D011F479FF5A2E64EDB60CCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +434,8 @@ Fear Itself - Fear Itself (1968) / 2006, World In Sound / [MP3|320 кб/с]<Psyc
 ```bash
 magnet:?xt=urn:btih:F34AEC2EC9F3D05B63DA7ABF846730F474091322
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +464,8 @@ Marcus Hook Roll Band - Tales Of Old Grand-Daddy (1973) Reissue, 1994, Albert Pr
 magnet:?xt=urn:btih:09E5E34EBC634D6061CA5561AF6506C8B251B88C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +489,8 @@ The Rolling Stones - Grrr! (2012) [MP3|~190 кб/с (V2)]<Rock>
 ```bash
 magnet:?xt=urn:btih:C97031C33EFEEA088C85373621DEEE42904B7FA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +519,8 @@ Lachy Doley - Double Figures (2020) [MP3|320 Kbps] <Classic Rock, Blues Rock>
 magnet:?xt=urn:btih:893373F70D15786D5758A906571D7B61E945E73C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +547,8 @@ Ricochet - Pieces of the Ricochet (2020) [MP3|320 Kbps] <Progressive Rock, Heavy
 ```bash
 magnet:?xt=urn:btih:4EC186CEFD004B3119110B40840A10A806B534FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +577,8 @@ Spirit Of John Morgan - Spirit Of John Morgan (1971) /1993, Repertoire Records /
 magnet:?xt=urn:btih:A8919C8C5EBC69C5F61BBAF7D5D17155C15A4B89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +605,8 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:3F633930459FC90F9ADBFBC3792659BEEF5AC3EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +635,8 @@ Jonah Whale - VI (2020) [MP3|320 Kbps] <Progressive Rock, Hard Rock>
 magnet:?xt=urn:btih:29F32D11E09A45AC584F5E2495764A284448308B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +663,8 @@ Elvis Presley with The Royal Philharmonic Orchestra - If I Can Dream (2015) [MP3
 ```bash
 magnet:?xt=urn:btih:4B561A462EFEA946BCC8B84789D352FD889F53C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +693,8 @@ The Betty Brothers - Hey Kid... (2015) [MP3|320 кб/с]<Progressive, Psychedeli
 magnet:?xt=urn:btih:D2BA3C50318049AFAF89FF460C0EF89A39CBC196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +722,8 @@ Sting - 57TH & 9TH (2016) Deluxe Edition [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:BCB2F4BA4CEE44BB29AA3F373DEBA43EEE35E516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,6 +750,8 @@ Backstreet Girls - Don't Mess With My Rock'N'Roll (2017) WEB, Voices Of Wonder [
 ```bash
 magnet:?xt=urn:btih:F16B3AC20B722966244EB7EE8D0782C1A49F1CCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

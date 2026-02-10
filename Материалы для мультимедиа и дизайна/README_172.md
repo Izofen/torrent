@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:91A1B3E8263C59525D00CF5BE2E5926BB5BB16C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Tetroid - экшен для Вашего творчества.Формат: ATN
 magnet:?xt=urn:btih:4F6C730EB0D4CE1C144117ED7042F99C67EE6726
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Luxe Lace - экшен для Вашего творчества.Формат: AT
 ```bash
 magnet:?xt=urn:btih:0BA556A318ECC7D4CEB82A5F95B140F99812DBF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Calendar New Year 2020 design template [AI]
 magnet:?xt=urn:btih:187D3A53D33164A0FFA59CAB9ABB468A8BA109E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ After the Storm - экшен для Вашего творчества.Форма
 magnet:?xt=urn:btih:22057B5D9F10ED9007810626AE60DA93B3195FB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ olorFall - экшен для Вашего творчества.Формат: ATN
 ```bash
 magnet:?xt=urn:btih:91525A2657F94F2CBA5353BFF83A62B1BE7C2E37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Light Leaks Pack - это уникальный набор элементов, к
 magnet:?xt=urn:btih:1B9D9C6E6886F1FD5988F6B3B0BDD926A30E7807
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:1B9D9C6E6886F1FD5988F6B3B0BDD926A30E7807
 ```bash
 magnet:?xt=urn:btih:24735467E7AFD8C6ED2BADCF239AE79223E30A5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:24735467E7AFD8C6ED2BADCF239AE79223E30A5C
 magnet:?xt=urn:btih:AADBB6D1A1784A641D908FF0CBC2D2ED7BFAD898
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:AADBB6D1A1784A641D908FF0CBC2D2ED7BFAD898
 ```bash
 magnet:?xt=urn:btih:84D1E27048C0A069578E0DAD123C635A1F0835B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:84D1E27048C0A069578E0DAD123C635A1F0835B2
 magnet:?xt=urn:btih:574CE40713E74FF414EA2920A8C05C147587BD88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:574CE40713E74FF414EA2920A8C05C147587BD88
 ```bash
 magnet:?xt=urn:btih:647A050C730A26C42A4B517661CF0F5621BDCFBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Architecture - многофункциональный, простой в исп�
 magnet:?xt=urn:btih:80CDD53FCD60FCDE6CFB89A580B42614576643FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ PSD Format Vol 03 - часть 3 из 55. Все файлы безукоризн
 magnet:?xt=urn:btih:BE7B5EF061BD92E68C10A99C68DF33A2136663A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ PSD Format Vol 02 - часть 2 из 55. Все файлы безукоризн
 ```bash
 magnet:?xt=urn:btih:F895E80A988CD5928BC4B154751FF0B211D99F65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:F895E80A988CD5928BC4B154751FF0B211D99F65
 magnet:?xt=urn:btih:D30EC96B4B15678385D569BEC8F14917ED11B393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:D30EC96B4B15678385D569BEC8F14917ED11B393
 ```bash
 magnet:?xt=urn:btih:B10EAA792FC1AF903A8364C9A6E04BC00F951363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:B10EAA792FC1AF903A8364C9A6E04BC00F951363
 magnet:?xt=urn:btih:35C9FC0BB7B7C3DC3102651B0C4376915012ADAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:35C9FC0BB7B7C3DC3102651B0C4376915012ADAB
 ```bash
 magnet:?xt=urn:btih:8EED272D6F59974F1A72C109E7AAA2412E09C371
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:8EED272D6F59974F1A72C109E7AAA2412E09C371
 magnet:?xt=urn:btih:DC9D1C345197F3FEEC0028FD5ABBF0CAD0F30BF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:DC9D1C345197F3FEEC0028FD5ABBF0CAD0F30BF3
 magnet:?xt=urn:btih:CA53E8159B00BB04D799DB472A56E69E8D0B21AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:CA53E8159B00BB04D799DB472A56E69E8D0B21AB
 ```bash
 magnet:?xt=urn:btih:230E099FE80D701633C2B9B0CF5DF7F9617D9513
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:230E099FE80D701633C2B9B0CF5DF7F9617D9513
 magnet:?xt=urn:btih:93B77DFB09F00EC22410E209F2BC8C976A54E63C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Silk Embroidery Effect - Это действие Photoshop позволит со
 ```bash
 magnet:?xt=urn:btih:00396603BBD19E060BAC88A1ED78650493645377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Pencil Sketch - данный экшен поможет Вам создать р�
 magnet:?xt=urn:btih:FA0DE2E0B0BB0C1030AE94EBA43BBC487C60DCDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:FA0DE2E0B0BB0C1030AE94EBA43BBC487C60DCDD
 ```bash
 magnet:?xt=urn:btih:FDD8E9FC95311CE5F157E054BB56755DD4D68C13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

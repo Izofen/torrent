@@ -22,6 +22,8 @@ VA – Блатной хит (1999) [FLAC|Lossless|image + .cue]<Шансон>
 magnet:?xt=urn:btih:21076D4CEAAB1597D9541AC88A1477E922E5BD6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:21076D4CEAAB1597D9541AC88A1477E922E5BD6A
 ```bash
 magnet:?xt=urn:btih:9575B4A2DCDB7F6C65BDF97F43A1CCD045CA73E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:9575B4A2DCDB7F6C65BDF97F43A1CCD045CA73E5
 magnet:?xt=urn:btih:53B506F513D5D5F2C814377986A9E0D2759A16A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ magnet:?xt=urn:btih:53B506F513D5D5F2C814377986A9E0D2759A16A3
 magnet:?xt=urn:btih:2E799A45D6A3E30EFDEBF4EE46A566E05B2D5272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:2E799A45D6A3E30EFDEBF4EE46A566E05B2D5272
 ```bash
 magnet:?xt=urn:btih:A9BFAA8C3DA56D1968D5A1A4DFD081D762B7C924
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +170,8 @@ Joe Dassin - Best Of 3 CD L'Album Souvenir (2010) [FLAC|Lossless]<Pop, Chanson>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +205,8 @@ Joe Dassin - Best Of 3 CD L'Album Souvenir (2010) [FLAC|Lossless]<Pop, Chanson>
 magnet:?xt=urn:btih:66984F2E7798D2C8817067918CBC3FA77A1124B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +233,8 @@ magnet:?xt=urn:btih:66984F2E7798D2C8817067918CBC3FA77A1124B4
 ```bash
 magnet:?xt=urn:btih:15564AD9FD868B0A3D56A10118E09051157663C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +263,8 @@ magnet:?xt=urn:btih:15564AD9FD868B0A3D56A10118E09051157663C7
 magnet:?xt=urn:btih:B6D8F50A167C253A3B782A71497B7620649EE03E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +292,8 @@ magnet:?xt=urn:btih:B6D8F50A167C253A3B782A71497B7620649EE03E
 magnet:?xt=urn:btih:FD8CC9A5872C513B04C3A6A5F5F278D60C3E816E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +320,8 @@ magnet:?xt=urn:btih:FD8CC9A5872C513B04C3A6A5F5F278D60C3E816E
 ```bash
 magnet:?xt=urn:btih:916A9DAFCA8E8246E0460C84B080D5679CBF95C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +356,8 @@ magnet:?xt=urn:btih:916A9DAFCA8E8246E0460C84B080D5679CBF95C7
 magnet:?xt=urn:btih:182E328FC5E62B7C7A3BBDD83C55E6C2B40F7A2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +384,8 @@ magnet:?xt=urn:btih:182E328FC5E62B7C7A3BBDD83C55E6C2B40F7A2F
 ```bash
 magnet:?xt=urn:btih:B69776C7372FA32AAFCD70243704EBF8DEC7A8C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +420,8 @@ magnet:?xt=urn:btih:B69776C7372FA32AAFCD70243704EBF8DEC7A8C8
 magnet:?xt=urn:btih:DA623417C1AE9046E93644E1FB1B0A62DECE578B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +448,8 @@ magnet:?xt=urn:btih:DA623417C1AE9046E93644E1FB1B0A62DECE578B
 ```bash
 magnet:?xt=urn:btih:C9206DC45EB3DF45E21C211F27AF1FE2D3DC3949
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +478,8 @@ magnet:?xt=urn:btih:C9206DC45EB3DF45E21C211F27AF1FE2D3DC3949
 magnet:?xt=urn:btih:67CDBF21043AA69EEF41286D7145DCB83D585690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +507,8 @@ magnet:?xt=urn:btih:67CDBF21043AA69EEF41286D7145DCB83D585690
 magnet:?xt=urn:btih:58B89A1984A87592753F65F802DC3F43735C59B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +532,8 @@ magnet:?xt=urn:btih:58B89A1984A87592753F65F802DC3F43735C59B3
 ```bash
 magnet:?xt=urn:btih:DBD50855A794B425FB2E1E0A7796D90B48D23C4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +559,8 @@ magnet:?xt=urn:btih:DBD50855A794B425FB2E1E0A7796D90B48D23C4F
 magnet:?xt=urn:btih:24C57202DB4B300077B27456E97263C035AD42B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +584,8 @@ magnet:?xt=urn:btih:24C57202DB4B300077B27456E97263C035AD42B5
 ```bash
 magnet:?xt=urn:btih:C504ACEBDFD0E9C342FC45EE74131FA5EEF8154F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +614,8 @@ magnet:?xt=urn:btih:C504ACEBDFD0E9C342FC45EE74131FA5EEF8154F
 magnet:?xt=urn:btih:117E580D6AD474A03393F2828EE71CB738993B55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +643,8 @@ magnet:?xt=urn:btih:117E580D6AD474A03393F2828EE71CB738993B55
 magnet:?xt=urn:btih:E0BB87F40A561F159C977DEEF5E598787D243A5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +671,8 @@ magnet:?xt=urn:btih:E0BB87F40A561F159C977DEEF5E598787D243A5A
 ```bash
 magnet:?xt=urn:btih:FC8EA1A93CCE6C9E74A7EAB2D16D9B03A1FB91A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +707,8 @@ VA - Патриаршие пруды (сборник авторской песн
 magnet:?xt=urn:btih:546FC3413B5B8A6D6D89DA313A414A510922FDD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,6 +736,8 @@ magnet:?xt=urn:btih:546FC3413B5B8A6D6D89DA313A414A510922FDD2
 magnet:?xt=urn:btih:2F92FB27E6DBF22E1EB7E3B416A5D4E0DF5DE557
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -711,6 +761,8 @@ magnet:?xt=urn:btih:2F92FB27E6DBF22E1EB7E3B416A5D4E0DF5DE557
 ```bash
 magnet:?xt=urn:btih:5D99AE49F77637A77B96146DB3D49836DD9B0FDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

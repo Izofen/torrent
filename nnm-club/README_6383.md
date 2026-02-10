@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7A2B5D4CB9338C4CB307B9B2B2C73F967D4A4D63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:7A2B5D4CB9338C4CB307B9B2B2C73F967D4A4D63
 magnet:?xt=urn:btih:635D3AFB0B0B6BEC0B027A06A139BD22292DD3B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:635D3AFB0B0B6BEC0B027A06A139BD22292DD3B4
 ```bash
 magnet:?xt=urn:btih:4D413433F97ACB6A400C76FBD5E7F76E0F007293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:4D413433F97ACB6A400C76FBD5E7F76E0F007293
 magnet:?xt=urn:btih:A4E2607A3681D771B7521A210E6A9AC48BD6C5B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:A4E2607A3681D771B7521A210E6A9AC48BD6C5B4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:A4E2607A3681D771B7521A210E6A9AC48BD6C5B4
 magnet:?xt=urn:btih:91B7A0D8C3FCE48CFFC6E069E3989331EDBF0A50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:91B7A0D8C3FCE48CFFC6E069E3989331EDBF0A50
 ```bash
 magnet:?xt=urn:btih:00ABCAF68D892427C316D430593C0257501F25C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:00ABCAF68D892427C316D430593C0257501F25C0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Corona Renderer - это популярный визуализатор для р
 magnet:?xt=urn:btih:FEA9C55A46112D30602A691650A7546ECE9AF9DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:FEA9C55A46112D30602A691650A7546ECE9AF9DA
 ```bash
 magnet:?xt=urn:btih:8745C2BF4F240C69D645E384E0A9F6ACFCBC9B77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:8745C2BF4F240C69D645E384E0A9F6ACFCBC9B77
 magnet:?xt=urn:btih:FCE326E952CB3EFBDDD7DCBF868D20A2F917ED11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ VA - Музыка для машины Vol.34 (2023) [MP3|320 Kbps] <Pop, Dance, 
 magnet:?xt=urn:btih:96D1DE2749C732D5C55B0EC66C0AEA4F9177F5AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Ben Weidig | A Functional Approach to Java (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:86301F5D61F265A829056E48A32FDD40BD8255B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:86301F5D61F265A829056E48A32FDD40BD8255B9
 magnet:?xt=urn:btih:5A7959CE24726F3558127E5EF85674394B0DB3CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:5A7959CE24726F3558127E5EF85674394B0DB3CC
 ```bash
 magnet:?xt=urn:btih:7BA0C7E5262ADD87FAD7E7D14D80BF66C0D581B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ SophiApp — это графический наследник Sophia Script for 
 magnet:?xt=urn:btih:0FC4A2B8B4949EE5ED4BCC3D4D16D747741A117D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:0FC4A2B8B4949EE5ED4BCC3D4D16D747741A117D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ IntelliJ IDEA — самая умная среда разработки для J
 ```bash
 magnet:?xt=urn:btih:8E9D3EC547695E030D603BFF5E390225B96B8C2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Maxthon Browser — многофункциональный браузер со �
 magnet:?xt=urn:btih:5A5F3F1D01A73391CE7F71F8D4DBE730C809920D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Ape Out - динамичный и яркий smash ‘em up про велики�
 ```bash
 magnet:?xt=urn:btih:021B1B4D03D3FA16C6C06DB067624E5853264AAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ SanDisk (Western Digital) SSD Dashboard - официальная програм�
 magnet:?xt=urn:btih:B54717A2B5BDC4FF68C05D7947F5F73F15EB1CBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:B54717A2B5BDC4FF68C05D7947F5F73F15EB1CBF
 magnet:?xt=urn:btih:445B2CA0219A2E54C552A993D28EAFCCC65DB9DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ macOS 14 Sonoma Public 1 Beta (Installer) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4A85FB8D69763A5B84655F6320C90F16393BE763
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:4A85FB8D69763A5B84655F6320C90F16393BE763
 magnet:?xt=urn:btih:DDEFD8147B035DB97053E00FCCC857DD9B668A9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 magnet:?xt=urn:btih:FD38CC5D1669689A66200E9A070A79865FE2A7DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:FD38CC5D1669689A66200E9A070A79865FE2A7DB
 ```bash
 magnet:?xt=urn:btih:8D9778BA56E53CAE23A1BFD5656D2AD6EA61993C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

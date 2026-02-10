@@ -1,27 +1,3 @@
-###  Публикация: 1063226   (429779) от 18.10.2016
-
-Принцесса Лебедь: Пират или принцесса? / The Swan Princess: Princess Tomorrow, Pirate Today! (2016) WEB-DL [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429779.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда родители уезжают на лето, юная любительница приключений принцесса Алиса остается под присмотром королевы Уберты, которая пытается воспитывать ее в лучших монарших традициях. Но принцесса скучает и мечтает сдать удалым пиратом. Вместе с лордом Роджерсом, лягушонком Джин-Бобом и черепашкой Спедом она отправляется в полное удивительных приключений, опасностей (   Читать дальше...   )Производство: США, Nest Family EntertainmentЖанр: Мультфильм, семейныйРежиссер: Ричард РичАктеры: Лора Бэйли, Юрий Ловенталь, Максин Блу, Келлен Гофф, Гарднер Джаэс, Клэйтон Джеймс, Катрин Лавин, Джозеф Медрано, Дженнифер МиллерПеревод: Профессиональный многоголосый (iTunes)Субтитры: Русский (Forced), русские, украинские, английские – вшитые, отключаемыеПродолжительность: 01:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA2D281C1D4C01DFCC84AAC8DB76F331CA3718D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063525   (429782) от 18.10.2016
 
 Барби и её сестры / Barbie & Her Sisters in a Puppy Chase (2016) WEB-DLRip [H.264/720p-LQ]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:9AA2D281C1D4C01DFCC84AAC8DB76F331CA3718D
 ```bash
 magnet:?xt=urn:btih:113E50B4DBBDEBA989DF93AB19B2220270B0427D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +47,8 @@ magnet:?xt=urn:btih:113E50B4DBBDEBA989DF93AB19B2220270B0427D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:113E50B4DBBDEBA989DF93AB19B2220270B0427D
 ```bash
 magnet:?xt=urn:btih:B99F0E014559E1A5FD84F05833A108D48BDCC92D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +99,8 @@ magnet:?xt=urn:btih:B99F0E014559E1A5FD84F05833A108D48BDCC92D
 magnet:?xt=urn:btih:7DA8C7137D5906BD13369D884760C31EC50FDB5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:7DA8C7137D5906BD13369D884760C31EC50FDB5C
 ```bash
 magnet:?xt=urn:btih:3611E96FECE5C03B81999FFF8FB13C5C5FF1296C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +151,8 @@ magnet:?xt=urn:btih:3611E96FECE5C03B81999FFF8FB13C5C5FF1296C
 magnet:?xt=urn:btih:3C6ADD2D7FD317FF697DC3487072939EEB99978D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:3C6ADD2D7FD317FF697DC3487072939EEB99978D
 ```bash
 magnet:?xt=urn:btih:EB1B65E2018B0EA718CCB3B17BF9DEDBEBAF9445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +203,8 @@ magnet:?xt=urn:btih:EB1B65E2018B0EA718CCB3B17BF9DEDBEBAF9445
 magnet:?xt=urn:btih:5DC8CD550388301F93828616AF4AF8C425E14DFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:5DC8CD550388301F93828616AF4AF8C425E14DFD
 ```bash
 magnet:?xt=urn:btih:EF64B9E7F51B2D361E53425CBC600278DC7A3865
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +255,8 @@ LEGO DC: Бэтмен - Семейные дела / LEGO DC: Batman - Family Mat
 magnet:?xt=urn:btih:12A5D6415003BF58F2DE6092C055F78FEF668A81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:12A5D6415003BF58F2DE6092C055F78FEF668A81
 ```bash
 magnet:?xt=urn:btih:0A7BD403ADC95564449781CC44877CED8F3DD46E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:0A7BD403ADC95564449781CC44877CED8F3DD46E
 magnet:?xt=urn:btih:636BF683B8F7568BE569DF0A624D71C4BCB149A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:636BF683B8F7568BE569DF0A624D71C4BCB149A4
 ```bash
 magnet:?xt=urn:btih:6A5B6EE4967D30BF8BC488C54F41834D3B13D85A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:6A5B6EE4967D30BF8BC488C54F41834D3B13D85A
 magnet:?xt=urn:btih:AE359C586966EC181AA128D331A93ED621BC4314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:AE359C586966EC181AA128D331A93ED621BC4314
 ```bash
 magnet:?xt=urn:btih:1559B05409CC30448B52362350D827B39E2570B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:1559B05409CC30448B52362350D827B39E2570B4
 magnet:?xt=urn:btih:5ACF08D4E08ECB45726DCA301CED64FEF57DAD72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:5ACF08D4E08ECB45726DCA301CED64FEF57DAD72
 ```bash
 magnet:?xt=urn:btih:3CE585AC0B2B2285613F062BDA45B28A41AAD3C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:3CE585AC0B2B2285613F062BDA45B28A41AAD3C2
 magnet:?xt=urn:btih:CB123A3665B17D5B665564B169FFE9A28A403B99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +488,8 @@ magnet:?xt=urn:btih:CB123A3665B17D5B665564B169FFE9A28A403B99
 ```bash
 magnet:?xt=urn:btih:2C23748451158B0B909E98CFCB8655BE1FC64AC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:2C23748451158B0B909E98CFCB8655BE1FC64AC9
 magnet:?xt=urn:btih:897D70FC3D4A107B02672824837905934A4064EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +540,8 @@ magnet:?xt=urn:btih:897D70FC3D4A107B02672824837905934A4064EB
 ```bash
 magnet:?xt=urn:btih:4D9DE0F5AED6FE8FF7AF1814278F8645D47864BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:4D9DE0F5AED6FE8FF7AF1814278F8645D47864BE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +592,8 @@ magnet:?xt=urn:btih:4D9DE0F5AED6FE8FF7AF1814278F8645D47864BE
 ```bash
 magnet:?xt=urn:btih:C158376F0B88D82CBA4B8FDCEA9EE433933EC590
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +619,8 @@ magnet:?xt=urn:btih:C158376F0B88D82CBA4B8FDCEA9EE433933EC590
 magnet:?xt=urn:btih:0BCA68A37C7CAA32CACA0A9D1F4E79AFA93C5C9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +644,34 @@ magnet:?xt=urn:btih:0BCA68A37C7CAA32CACA0A9D1F4E79AFA93C5C9C
 ```bash
 magnet:?xt=urn:btih:71AE6AFD741D737C93F7A43E23FF259AC7F4E8B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164376   (441202) от 09.09.2017
+
+Беовульф / Beowulf (2007) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_441202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действие фильма разворачивается в Дании VI века. Король Хротгар празднует завершение строительства медового зала — Хеорота. Звуки музыки и веселья пробуждают и злят монстра Гренделя, который нападает на праздновавших. Но когда Хротгар вызывает его на битву, чудовище возвращается к своей матери — демону воды. Король закрывает свой зал и предлагает половину своего (   Читать дальше...   )Производство: США | ImageMovers, Paramount PicturesЖанр: мультфильм (компьютерная анимация), фэнтези, боевик, драма, приключенияРежиссер: Роберт ЗемекисПерсонажи: Рэй Уинстоун, Энтони Хопкинс, Робин Райт, Джон Малкович, Криспин Гловер, Брендан Глисон, Анджелина Джоли, Костас Мэндилор, Пол Бэйкер, Джон БилезикджянПеревод: Дублированный (лицензия)Субтитры: Русские, английскиеПродолжительность: 01:54:42Реклама: Отсутствуют
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9BAA94A1A6AE9B043B2D39BA4B41F0A610FA0D0
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack Decepticon [Comp
 magnet:?xt=urn:btih:BCDC140D03522530BA15D3483DB90AA2EADA8638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Pentiment выделяется своей двухмерной рисованн�
 ```bash
 magnet:?xt=urn:btih:3F844D5682E1EE10A83E5639155F387B152455DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Surge - киберпанковая RPG от немецкой студии De
 magnet:?xt=urn:btih:6F05BF7C35C63F1E28AABBB9B0C28C04596DF47C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Disgaea 7: Vows of the Virtueless (2023) [Multi] (1.0/dlc) Scene Rune [Ultimate 
 ```bash
 magnet:?xt=urn:btih:9D267BF2AAD6A9DA457953645577BAFF8B6E6FF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Chronos: Before the Ashes (2020) [Ru/Multi] (1.0) Repack xatab
 magnet:?xt=urn:btih:9287D10D2DBDBC8F717B76F3645C73D681B9F55A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Dragon Quest XI: Echoes of an Elusive Age (2018) [Ru/Multi] (1.0/dlc) Repack xat
 ```bash
 magnet:?xt=urn:btih:0F4CB91620C7911B29EF062773B2116DEA6BC304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Dust to the End (2021) [Ru/Multi] (1.0.1) Repack Other s
 magnet:?xt=urn:btih:E88AC4EDEEACCFC14848310F32BECBD15B3AB89D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ UFO: Extraterrestrials Platinum (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:2E5362D6D2BAC4D3F26E4C61F57E8976C1BDA5E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Abomi Nation (2021) [Multi] (1.3.1) License GOG
 magnet:?xt=urn:btih:5F7492251E13097DFC634EF654CB2E8DA0EBE81B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Bound By Blades сочетает в себе элементы RPG и рогал�
 ```bash
 magnet:?xt=urn:btih:63423784FDB69841C2A1A3747D88C7065B2C5475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Earthlock - приключенческая ролевая инди-игра с �
 magnet:?xt=urn:btih:470B103CCCB9A3AF6DD5C0B4D1EA6C12B6FAD999
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Legend of Nayuta: Boundless Trails (2021) [Multi] (1.0.7) Scene Rune
 ```bash
 magnet:?xt=urn:btih:95DC44EA11F88357E4B159B8476F09C61ADC61D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Lelie Navigation (2021) [Multi] (v2/dlc) License GOG [18+]
 magnet:?xt=urn:btih:F39433D5B071F01039A7C87CA97A87F4EF25A350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Mondealy (2023) [Ru/Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:132B6884A2CD7A9ACF097B0E7D56E40ADA5D88F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Relayer Advanced (2022) [Multi] (01.10.04/dlc) License GOG
 magnet:?xt=urn:btih:4C99AF2D8B7EAFE20AAB9A4F6C434EE8198BB2D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Diablo 2 — продолжение легендарного ролевого э
 ```bash
 magnet:?xt=urn:btih:38A0CAEF5CA16DF349BF7373D36CFB2C2A588E39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ PAYDAY 3 (2023) [Ru/Multi] (1.0.0.0.624677) Repack DjDI
 magnet:?xt=urn:btih:9D8602642290AAD7F866907A89E49E4AFD5FE2E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Alder Forge (2023) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E881CF20C552A31E2C0714BD6DDC02057A0EB07E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Sword and Fairy 7 - китайская приключенческая ролев
 magnet:?xt=urn:btih:F9DC93F15843F623FCA05417B3CD87F7289A72AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ XEL - это научно-фантастическое приключение в
 ```bash
 magnet:?xt=urn:btih:2FACC856D02874D54A0CE1A00AA04428C2B0AE8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ XEL - это научно-фантастическое приключение в
 magnet:?xt=urn:btih:2FACC856D02874D54A0CE1A00AA04428C2B0AE8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Icewind Dale 2 (2002) [Ru/Multi] (2.1.0.13/dlc) License GOG [Complete]
 ```bash
 magnet:?xt=urn:btih:DCF88B60B35E991AD819C038760CFCE32D786BAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ God Of Weapons (2023) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:B86254BB8BC696670D02F96D92245D334DB1D8BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ ANONYMOUS;CODE (2023) [Multi] (1.0/dlc) Scene Tenoke [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:7886A22CD77B2691610BB996E260A752CED52D88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Gordian Quest (2020) [Ru/Multi] (1.4.2) License GOG
 magnet:?xt=urn:btih:0DB57E2159C06D600DCCBF231C8873EB44BD9B52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Fall of the Dungeon Guardians - Dungeon Crawler RPG с видом от пе�
 ```bash
 magnet:?xt=urn:btih:EDB94796D57B93B708C5F5BECB3F4C5946091114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

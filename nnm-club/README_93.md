@@ -19,6 +19,8 @@ Berserk: Ougon Jidai Hen - Memorial Edition | Berserk: The Golden Age Arc - Memo
 magnet:?xt=urn:btih:E17FC1E010EA56D46CEBF16A132F4E1CC9C4C0BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:E17FC1E010EA56D46CEBF16A132F4E1CC9C4C0BB
 ```bash
 magnet:?xt=urn:btih:AAA8E17865239A9F82BF5766F2BDBD43E61D5257
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:AAA8E17865239A9F82BF5766F2BDBD43E61D5257
 magnet:?xt=urn:btih:DBC179D5FE8442225B4B3F04F320398AB83FC848
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:DBC179D5FE8442225B4B3F04F320398AB83FC848
 ```bash
 magnet:?xt=urn:btih:2C3E6AD7C8085B7B695DC1D215AB10A3F71B49C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:2C3E6AD7C8085B7B695DC1D215AB10A3F71B49C6
 magnet:?xt=urn:btih:D56227A46DE4800BBD93C0882596E110076A2EEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Circus of Rock - Hellfire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:7795EF56CCDDD1FD85BD329FB2C831B0CED1400F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ Airborn - Lizard Secrets: Part 3 - Utopia (2025) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:EB231CBDC14CB67275A1F1314239A0178F8E6694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ TG Frida Mono представляет собой современный циф�
 ```bash
 magnet:?xt=urn:btih:DF5E94BCE5C8481C596BF678F1BC4269430AC71A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ Prestino оснащён несколькими функциями OpenType: ко
 magnet:?xt=urn:btih:E4B56614DE385AF2D9D2FFD78B4747229AEBC818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ Zuori Qing Kong | Crystal Sky of Yesterday | Хрустальное небо в�
 magnet:?xt=urn:btih:BD8AC88DC51FE998A790162FD0FC5E1C12709882
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Letrismo — это шрифт с засечками, вдохновлённый
 ```bash
 magnet:?xt=urn:btih:95E4265EDC49B4BB73FAEDA9B35C3E85F7BDF399
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ The Rusties Blues Band - disCOVERing the White Blues (2025) [FLAC 24/96|Lossless
 magnet:?xt=urn:btih:35523487BB28D4FA3CBF8E84E9BB23658E8080EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:35523487BB28D4FA3CBF8E84E9BB23658E8080EC
 ```bash
 magnet:?xt=urn:btih:D346947A8F8AC5E89B7318D4850586BE1BB2C2DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ A4 Танц За Теб • A Dance For You • Танец Для Тебя(   Ч
 magnet:?xt=urn:btih:E38686F333013CC66C9DF98679E3721D24DBBB50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ magnet:?xt=urn:btih:E38686F333013CC66C9DF98679E3721D24DBBB50
 ```bash
 magnet:?xt=urn:btih:37C59799F6B811D85FF9B2CDEC7B2A3816402352
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ Helstar - The Devil's Masquerade (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Met
 magnet:?xt=urn:btih:B9A96FC53F3B07E3C9737501B4D1B073D759E2E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ magnet:?xt=urn:btih:B9A96FC53F3B07E3C9737501B4D1B073D759E2E7
 magnet:?xt=urn:btih:A5E66BCFC2690F016B11BEF632669A086CC55EF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ magnet:?xt=urn:btih:A5E66BCFC2690F016B11BEF632669A086CC55EF6
 ```bash
 magnet:?xt=urn:btih:D2ACD4FC1D294DA0408969234806EEB1917AB035
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:D2ACD4FC1D294DA0408969234806EEB1917AB035
 magnet:?xt=urn:btih:6486D63EBE71C1181E578DAD5C7D3759EB3C979E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:6486D63EBE71C1181E578DAD5C7D3759EB3C979E
 ```bash
 magnet:?xt=urn:btih:66FB09E401279A1CA6A4CAF5C868AD4C438279B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:66FB09E401279A1CA6A4CAF5C868AD4C438279B9
 magnet:?xt=urn:btih:950AB0626FD1F5CDBB28D1352B5DF66478B64BA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ Windows Server, версия 23H2 - это первый выпуск ежего�
 ```bash
 magnet:?xt=urn:btih:3A8D884DBDDE91F1F42C34464248ABFAC8B117C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +621,8 @@ DVDFab – мощный, многофункциональный программ
 magnet:?xt=urn:btih:8FB161E57C0BC3E2981E7FCFBE85A77FC16011C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ Visual Studio — это мощное средство разработчика,
 ```bash
 magnet:?xt=urn:btih:0D0E5C8F282578E80E07E6B200B9D148230B3E9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ Hauser - Cinema (2025) [FLAC|Lossless|image + .cue] <Soundtrack, Instrumental, E
 magnet:?xt=urn:btih:D586C50F5B8BE44D5E6B6490384B7F158FC1810F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ magnet:?xt=urn:btih:D586C50F5B8BE44D5E6B6490384B7F158FC1810F
 ```bash
 magnet:?xt=urn:btih:DBAD4D9E4F115096A1F9C899A895FDA2980A9C03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

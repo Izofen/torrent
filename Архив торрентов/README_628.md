@@ -24,6 +24,8 @@
 magnet:?xt=urn:btih:7ECDB644FD6AFAECC6813A34DCB660F0D7B73430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ magnet:?xt=urn:btih:7ECDB644FD6AFAECC6813A34DCB660F0D7B73430
 ```bash
 magnet:?xt=urn:btih:B6F365F218109714FBF1D8F92AD41D400CEE1479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ Piris Eliyahu - Tehilim (Psalms) (2005) [WV|Lossless] <World, Persian>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -112,6 +118,8 @@ Piris Eliyahu - Tehilim (Psalms) (2005) [WV|Lossless] <World, Persian>
 magnet:?xt=urn:btih:0A4C1F5D3B1E2B8D22315C84F71188A96111605B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -136,6 +144,8 @@ magnet:?xt=urn:btih:0A4C1F5D3B1E2B8D22315C84F71188A96111605B
 magnet:?xt=urn:btih:2088ABF630B82104B5A9EA7051601DDAE4A66CBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +169,8 @@ Nat Geo Wild: Муравьи, которые съели Америку / The Ant
 ```bash
 magnet:?xt=urn:btih:9E9ACF17F8687312A6D404E3E3A7EB6D2DEBF8C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +205,8 @@ VA - FearFM Hardcore Top 100 2011 (2012) [MP3|320 kbps]<Techno, Hardcore>
 magnet:?xt=urn:btih:8A0DBDD836AE4027E5F66D7920EC59FCED8EFBDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ magnet:?xt=urn:btih:8A0DBDD836AE4027E5F66D7920EC59FCED8EFBDB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +258,8 @@ magnet:?xt=urn:btih:8A0DBDD836AE4027E5F66D7920EC59FCED8EFBDB
 magnet:?xt=urn:btih:4490377CF9833BC9CDE4BC7B87A3BF19ED6B17B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ magnet:?xt=urn:btih:4490377CF9833BC9CDE4BC7B87A3BF19ED6B17B9
 ```bash
 magnet:?xt=urn:btih:BAB1AB5B5E16E66F6BDE51334E1AA93E968D0D90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +319,8 @@ Sorrowful Angels - Omens (2012) [MP3|256 kbps]<Gothic Metal>
 magnet:?xt=urn:btih:AD0A4D15011AA9AA6371843819BE543B17551769
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +350,8 @@ magnet:?xt=urn:btih:AD0A4D15011AA9AA6371843819BE543B17551769
 magnet:?xt=urn:btih:3E0EAF7F34334640C4A56F3B74C00491EA815C67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +379,8 @@ Tubby Hayes Big Band - 200% Proof (1992) [FLAC|Lossless]<Big Band>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +414,8 @@ Tubby Hayes Big Band - 200% Proof (1992) [FLAC|Lossless]<Big Band>
 magnet:?xt=urn:btih:B80BC639C2BB325C093305FB35B2BA6DE7FAF850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +446,8 @@ Mystic - Grace (2011) [MP3|320 kbps]<Progressive Metal/Fusion>
 ```bash
 magnet:?xt=urn:btih:829B2E59511FB1A2C848DE7C726C16B2BAD3B868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +481,8 @@ Concrete Sun - Sky Is High (2011) [MP3|320 kbps]<Southern Metal>
 magnet:?xt=urn:btih:BBB57F79990572C43DE07B7164B246905D89A33B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +510,8 @@ magnet:?xt=urn:btih:BBB57F79990572C43DE07B7164B246905D89A33B
 magnet:?xt=urn:btih:E5FCCFD913759B9522374DD446EC54B25C0D7595
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +535,8 @@ IsoBuster - программа, с помощью которой можно по
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +571,8 @@ Zero Illusions - Oblivion (2011) [MP3|320 kbps]<Progressive Metal / Power Metal>
 magnet:?xt=urn:btih:53F7BCEFB1CC32BBCC9FF2D499915724DB4A51AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +601,8 @@ Woody Shaw - Woody III (2011) [FLAC|Lossless]<Hard Bop, Post Bop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +637,8 @@ Biosfear - Antes De Que Todo Cambie (2011) [MP3|320 kbps]<Heavy/Progressive Meta
 magnet:?xt=urn:btih:6893A82615C2A55916BED18725333194E8819A28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +671,8 @@ Interactive Noise - Synthetik Pleasure (2012) [MP3|192-320 kbps]<Psychedelic / P
 ```bash
 magnet:?xt=urn:btih:D492412342D3767453C92172306CA25DF47F0267
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -663,6 +707,8 @@ Fantazista - До востребования (2012) [MP3|320 kbps]<Hip-Hop>
 magnet:?xt=urn:btih:97533ED6A2D353DEE690AA356884854E216D6EAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +741,8 @@ SadDoLLs - Happy Deathday (2012) [MP3|256 kbps]<Melodic Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:74FA6F4C5689528F60CAB17731B3658D59F09A34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -729,6 +777,8 @@ VA - Хитовая дискотека по-русски (2012) [MP3|256 kbps]<P
 magnet:?xt=urn:btih:DDBC901308E2CA3E16F0688BBD06C5B78882B57C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -759,6 +809,8 @@ Twilight Ophera - 4 альбома (1997 - 2006) Дискография [MP3|320
 ```bash
 magnet:?xt=urn:btih:72FE419B753C5C2D07164D1D268507B582AEAAC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

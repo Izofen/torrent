@@ -22,6 +22,8 @@ Grasser, Алёна Ижак | Курс по пошиву нижнего бел�
 magnet:?xt=urn:btih:059491836CC5D2B4A4AC7D9518B2FD7E286A332C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Udemy, Александр Малейко | Тестирование API (Postman
 ```bash
 magnet:?xt=urn:btih:B46BBA99FB035DFBB810EB324DCBBDCE15B7148D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:B46BBA99FB035DFBB810EB324DCBBDCE15B7148D
 magnet:?xt=urn:btih:242EE6C2A0B42525A528C5B6AA52A5A2598F0CE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Blender Market, Jean-yan BABOIS | The Ride - A Blender Car Animation Course (202
 ```bash
 magnet:?xt=urn:btih:13169DE648A3A949DC2F2244EE836A31C445765B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Zrobim architects | Авторский курс интерьерного диз�
 ```bash
 magnet:?xt=urn:btih:3EE5C2B8F68FAC6E43104AA641524DD42EAB937D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ Product University, Аркадий Морейнис, Алексей Черняк
 magnet:?xt=urn:btih:ABE9DA7057CFBF89D4A050673A17AA91B95D4F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ Product University, Аркадий Морейнис, Алексей Черняк
 ```bash
 magnet:?xt=urn:btih:67A69F695B5069A9F0D1F39276675DD00BEAF3BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -207,6 +221,8 @@ Product University | Анализ данных с AI (2023) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:7AA9583A3E76FB0067F999639C758A4385537845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ Product University, Аркадий Морейнис, Алексей Черняк
 ```bash
 magnet:?xt=urn:btih:920964F3E0632534807E3FD233FFEF7B4BD47F91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +278,8 @@ Product University | Антистартап (2024) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:264E77D3D9AB26532EFAFD433E807930F3C946C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +303,8 @@ DevEducation | Курс Frontend 2.0  (2022 -2023) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:8DC511F341035A161B54EA7597B5CCD0F66687C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +333,8 @@ Product University | UX/UI Design. Дизайнер интерфейсов  (202
 magnet:?xt=urn:btih:128993A4F9877FE7BB4DBFA1847C509E471A8D3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +362,8 @@ Product University | Основы контент-маркетинга (2024) WEB
 magnet:?xt=urn:btih:89BBB28C50EC76228931DA70DF1ED3A14EC4A2C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +390,8 @@ Product University | Telegram-бот Developer (2022) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:6AA61915D2F863D530ACADAD35A9A2541227BF68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ Pat Warner | Универсальный ручной фрезер (The Versatile
 ```bash
 magnet:?xt=urn:btih:9E15E16E2AA52CCC984621799F32889947A7B10B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +443,8 @@ Product University, Аркадий Морейнис, Алексей Черняк
 ```bash
 magnet:?xt=urn:btih:891D5AC5050CDC793DFB0AE01EFB5859CDAC165A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +473,8 @@ Product University, Аркадий Морейнис, Алексей Черняк
 magnet:?xt=urn:btih:9C5F0C471D7F4AE940F604FF978283B1C1B3DB81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +502,8 @@ Product University, Аркадий Морейнис, Алексей Черняк
 magnet:?xt=urn:btih:EBF5B59D039B2AACB8A2DBAE9F480A72A4C7D4CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +529,8 @@ Product University, Аркадий Морейнис, Алексей Черняк
 ```bash
 magnet:?xt=urn:btih:5D26359415689B2CFE9C54DA8F7832D4D5C3ECCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +559,8 @@ Product University, Алексей Черняк, Павел Сидоров | Blo
 magnet:?xt=urn:btih:2ACEC73C611E8A1C385D1331200A9EA0D8B2DDE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +587,8 @@ Telegram Web App – это удобный инструмент для разр�
 ```bash
 magnet:?xt=urn:btih:084C4BE10DD4B4482241F3D83557A696C4FC1283
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +617,8 @@ Learn Python, М. Корнеев, И. Лебедев, В. Филонов и др
 magnet:?xt=urn:btih:9D05DDFD50957F912149F3CF8B98FED3122B040B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +643,8 @@ magnet:?xt=urn:btih:9D05DDFD50957F912149F3CF8B98FED3122B040B
 magnet:?xt=urn:btih:6BE0ECFF6B089E8FB49289B9D147038794454BE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +668,8 @@ Scott Eaton.com, Scott Eaton | Portraiture and Facial Anatomy. Week 1-6 (2014) P
 ```bash
 magnet:?xt=urn:btih:6B9C7E877C9860E4CA8AE180371C2F9AB585FE3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +698,8 @@ Stepik | HTML CSS (pro) (2024) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:FE6C8263468B1103F0C76E81D0F0230C58CBFF20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +726,8 @@ LinguaTrip, Марина Могилко, Веня Пак, Анжела Пиро�
 ```bash
 magnet:?xt=urn:btih:B17728BDCF804706CA9B34ED25BD4B86758BFA71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1466858   (1018193) от 01.05.2021
+
+Эллисон Шрагер | Заходит экономист в публичный дом. Необычные примеры управления риском для повседневной жизни (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1018193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга научит вас оценивать риски, а значит, принимать лучшие решения во всех областях жизни. На примерах необычных профессий Эллисон Шрагер подробно и доходчиво разбирает пять правил управления рисками. Они помогут повысить вероятность удачного исхода и не полагаться на волю неопределенности.Жанр: Экономика и бизнес, финансовые рискиПеревод: Василий ГороховФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1254E69C4E1359EF45698AFBAF76859C7D86883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466859   (1018199) от 01.05.2021
 
 Светлана Иванова | Не продают? Будут! Всё об управлении отделом продаж (2021) [EPUB]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:E6FD55663B1BBE2B5A7483ABDC92DE0B9B62E089
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:E6FD55663B1BBE2B5A7483ABDC92DE0B9B62E089
 ```bash
 magnet:?xt=urn:btih:1A2B8BD429C77BC45D7007D29F7C71A06F484DD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:1A2B8BD429C77BC45D7007D29F7C71A06F484DD3
 magnet:?xt=urn:btih:D8667DB139D6A1C2D20988439A3E48684895CE68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:D8667DB139D6A1C2D20988439A3E48684895CE68
 magnet:?xt=urn:btih:E6EB18CDB47E332B2E24DBC8D8CFDCB769B1DDB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:E6EB18CDB47E332B2E24DBC8D8CFDCB769B1DDB0
 magnet:?xt=urn:btih:DDFB3794F17BEACE67563CC39DC2D061E08315FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:DDFB3794F17BEACE67563CC39DC2D061E08315FC
 ```bash
 magnet:?xt=urn:btih:2CA0F696523FEAE33705B04E402FD8E0C16D5F55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:2CA0F696523FEAE33705B04E402FD8E0C16D5F55
 magnet:?xt=urn:btih:DC7B6E95526354D5F618DA52FFF51297EBD1CB5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:DC7B6E95526354D5F618DA52FFF51297EBD1CB5B
 ```bash
 magnet:?xt=urn:btih:E33E142C3D35AE9EDAFF2C947EB90656FE7A5A02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:E33E142C3D35AE9EDAFF2C947EB90656FE7A5A02
 magnet:?xt=urn:btih:69355B0A543C7AFB2C674C4BD64D7090CCF7F9E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:69355B0A543C7AFB2C674C4BD64D7090CCF7F9E2
 magnet:?xt=urn:btih:0B857ECC96B3684F1F2F9B626FEB966FEEDCD245
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:0B857ECC96B3684F1F2F9B626FEB966FEEDCD245
 ```bash
 magnet:?xt=urn:btih:D6E82A3B87BD81C27C44A5D87A199C13A95CA811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +343,8 @@ magnet:?xt=urn:btih:D6E82A3B87BD81C27C44A5D87A199C13A95CA811
 magnet:?xt=urn:btih:F249C4159D92898E1DAC7F30726946D90D6CE095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +370,8 @@ magnet:?xt=urn:btih:F249C4159D92898E1DAC7F30726946D90D6CE095
 magnet:?xt=urn:btih:AE53D11676AC8439294860835AD68772CD6ACEB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:AE53D11676AC8439294860835AD68772CD6ACEB6
 ```bash
 magnet:?xt=urn:btih:F26E03511E81E7EEABA04D9B35E34231A2F66286
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +422,8 @@ magnet:?xt=urn:btih:F26E03511E81E7EEABA04D9B35E34231A2F66286
 magnet:?xt=urn:btih:8BB7E0ECB429F41F1C5AE3CA97214A5BFE547EDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:8BB7E0ECB429F41F1C5AE3CA97214A5BFE547EDA
 ```bash
 magnet:?xt=urn:btih:CFDA16216AC23E1985ECE79D8AF4810F49F0605E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:CFDA16216AC23E1985ECE79D8AF4810F49F0605E
 magnet:?xt=urn:btih:2887839C83C8A01269FB3EC3E152EADE607C918A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:2887839C83C8A01269FB3EC3E152EADE607C918A
 ```bash
 magnet:?xt=urn:btih:2F707F83866E4C459B4BD41BC571C9F6C8D07BF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:2F707F83866E4C459B4BD41BC571C9F6C8D07BF0
 magnet:?xt=urn:btih:226348A928C36E9C9A44C42CC83BCE0A1A48E736
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +553,8 @@ magnet:?xt=urn:btih:226348A928C36E9C9A44C42CC83BCE0A1A48E736
 ```bash
 magnet:?xt=urn:btih:687774B2A702D9BBBE86FF810F9C9AD613BC6F30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:687774B2A702D9BBBE86FF810F9C9AD613BC6F30
 magnet:?xt=urn:btih:7158D0AFC86D9038FF5823A7DAA07E94AAD6333D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:7158D0AFC86D9038FF5823A7DAA07E94AAD6333D
 magnet:?xt=urn:btih:86B514C524A2A295221803A24A0455C3A6FF87CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:86B514C524A2A295221803A24A0455C3A6FF87CC
 ```bash
 magnet:?xt=urn:btih:BDB80094E09F06DEAFB0C78F7ADA3EA7EC3F82E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +660,8 @@ magnet:?xt=urn:btih:BDB80094E09F06DEAFB0C78F7ADA3EA7EC3F82E9
 magnet:?xt=urn:btih:CD4BEA66ECAD1CDE6C6D42E6E8C3B8E36D323D59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,32 +686,7 @@ magnet:?xt=urn:btih:CD4BEA66ECAD1CDE6C6D42E6E8C3B8E36D323D59
 magnet:?xt=urn:btih:F87F4C2245B98B9CFF93D54B008643F43049624B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464889   (1019213) от 25.04.2021
-
-Александр Барышев | Биофакер (2020 (с редакцией 2021)) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1019213.jpg" />
-</div>
-
-
-###  Подробнее
-
-ОБНОВЛЕНИЕ 2021: Книга больше на 25-30%: больше конкретики, графиков и уточнений! Так как западный мир декриминализует некоторые запрещенные вещества - разобрал их подробнее. Добавлены комбинации из ноотропов + еще больше про управление гормонами!
-Больше 450 научных источников и 1,5 года работы над книгой (с обновлением от 2021 года уже 544 источника)
-
-Фундамент (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7454DC3A825317E16F1C059C66DF861B11CA4EF7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

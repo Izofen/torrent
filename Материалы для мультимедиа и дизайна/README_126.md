@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E85B3EB459ECF29D3D311EF8F33E75D8BD012DE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:E85B3EB459ECF29D3D311EF8F33E75D8BD012DE4
 ```bash
 magnet:?xt=urn:btih:243D4A865CF0C4BBD3413E8E973F3327EECAAA06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:243D4A865CF0C4BBD3413E8E973F3327EECAAA06
 magnet:?xt=urn:btih:C4FF1251CDA21CE9D81330596CE288976438B4F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:C4FF1251CDA21CE9D81330596CE288976438B4F0
 ```bash
 magnet:?xt=urn:btih:175183A19196CC33D3EFDF0784C68C8240CDF2A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:175183A19196CC33D3EFDF0784C68C8240CDF2A8
 magnet:?xt=urn:btih:7F5841442034AE709E9D3C6D071B3BC70F917454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:7F5841442034AE709E9D3C6D071B3BC70F917454
 ```bash
 magnet:?xt=urn:btih:E9390948D6104C6A53C4AA881065D7DF96543387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:E9390948D6104C6A53C4AA881065D7DF96543387
 magnet:?xt=urn:btih:704927F8F417E3D7BFDBDC273B1B499FF12D8A10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:704927F8F417E3D7BFDBDC273B1B499FF12D8A10
 ```bash
 magnet:?xt=urn:btih:95D9D895485E6A2F49061724D809A1678DB48D7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:95D9D895485E6A2F49061724D809A1678DB48D7F
 magnet:?xt=urn:btih:E0E4004AD178A021B1D3428CF987112C13BC79EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:E0E4004AD178A021B1D3428CF987112C13BC79EF
 ```bash
 magnet:?xt=urn:btih:B475748BFB5DA31BDC743FC0F0EFB4DDEB583AD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Garota Serif — это новое семейство шрифтов, вопло
 magnet:?xt=urn:btih:4F941D1E8FA40CA0B9F35A7FB70EA3DB3CBCEBD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:4F941D1E8FA40CA0B9F35A7FB70EA3DB3CBCEBD9
 ```bash
 magnet:?xt=urn:btih:C02D757DAC41DEE26387B2874EC00DDAFBDFF488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Revard - акцидентный шрифт, идеально подходящи�
 ```bash
 magnet:?xt=urn:btih:AC56A6B42AD46CD9C0B6E8072073C6674BE6A482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:AC56A6B42AD46CD9C0B6E8072073C6674BE6A482
 magnet:?xt=urn:btih:5D05B27169260E3B0F52189369A7017CE9E6854A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:5D05B27169260E3B0F52189369A7017CE9E6854A
 ```bash
 magnet:?xt=urn:btih:3249EA559B8229F4F82850E3F76D5938E4E5967A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Oxona Caps — это обновлённая и стилизованная ве�
 magnet:?xt=urn:btih:0258BF7D319D5ADE629EF0EBC35F16C76FEECA30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:0258BF7D319D5ADE629EF0EBC35F16C76FEECA30
 ```bash
 magnet:?xt=urn:btih:92EF4255F2D704B91F142EF6A9EFDDC36983FFAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Garota Sans отличается слегка узкими пропорциям�
 ```bash
 magnet:?xt=urn:btih:D3F53EBC30C135D17BDAEFF646FA5FE01E6E2907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:D3F53EBC30C135D17BDAEFF646FA5FE01E6E2907
 magnet:?xt=urn:btih:2E82297C9F94B6D8C42E72D8E76E9FBABAC25F01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ Camero — это современный, хорошо структуриров�
 magnet:?xt=urn:btih:D2387C6FB225F50A8013ED34CF993E3F4DB62BAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:D2387C6FB225F50A8013ED34CF993E3F4DB62BAE
 ```bash
 magnet:?xt=urn:btih:DFF70AB28E2B215EDB31475E38C37558FE07FFB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ Skandal - это декоративный шрифт в стиле модерн 
 magnet:?xt=urn:btih:2C4E1FC649C50833D346D108D94FCF43CD606DB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:2C4E1FC649C50833D346D108D94FCF43CD606DB1
 magnet:?xt=urn:btih:4E9EEB2D81B7F4CC2C096171D72BEBD610551FE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:4E9EEB2D81B7F4CC2C096171D72BEBD610551FE5
 ```bash
 magnet:?xt=urn:btih:237F213411FBC5AC37AABFC4FDE0223923F6C69C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:237F213411FBC5AC37AABFC4FDE0223923F6C69C
 magnet:?xt=urn:btih:D3B04034BF4594C2E17426AD3E14FE453D7B2F60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Rowcha сочетает (   Читать дальше...   )Формат: OTF, 
 ```bash
 magnet:?xt=urn:btih:8B41AA4070DAE2B848D45201C2EB1BC5B51FA6DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

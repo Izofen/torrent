@@ -21,6 +21,8 @@ Unity3DSchool | Комплексное обучение созданию игр 
 magnet:?xt=urn:btih:83DB73A4052EB7EDBA5D949CFB9C1FAA790D4261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ unity 3d уровень 1(   Читать дальше...   )Производс�
 magnet:?xt=urn:btih:8505032EE544CA717C6E19D2ACDEBF72ABAB34D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ itProger | Профессия FULL STACK разработчик (2021) WEB-DL [A
 ```bash
 magnet:?xt=urn:btih:9141BEB734FDC7E8BB806EEB6880C0C15C1CED63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:9141BEB734FDC7E8BB806EEB6880C0C15C1CED63
 magnet:?xt=urn:btih:C7E1372DCA8C17C8CFC7E02040EBA056C30B3C40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:C7E1372DCA8C17C8CFC7E02040EBA056C30B3C40
 magnet:?xt=urn:btih:51EA2B6BD433B6F3F9DCBCE3B7EAB9F0DA72D931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:51EA2B6BD433B6F3F9DCBCE3B7EAB9F0DA72D931
 ```bash
 magnet:?xt=urn:btih:BE064C6B66AF24C80A1059EF7A0C852B3E6AB55A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Swift - новый язык от Apple, появился в середине 201
 magnet:?xt=urn:btih:A371C1263D76B376525CE0E33C05367FFB8107A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Profileschool | Калибровка принтера: от А до Я (2015) PC
 ```bash
 magnet:?xt=urn:btih:2A5AA4C903EB10062600B06DE65333D46D7CB213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Lectrum | Продвинутый курс по Redis (2019) PCRec [H.264]
 magnet:?xt=urn:btih:7879A75F337D308C86D3A488EF386190F271AF05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Lectrum | Продвинутый курс по Webpack v4, с чистого л�
 ```bash
 magnet:?xt=urn:btih:4477ABB948BE549ACD61A15F3CCE8443D7275952
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:4477ABB948BE549ACD61A15F3CCE8443D7275952
 magnet:?xt=urn:btih:6234F35208DD6962C8FFDA45BC0806C699D82C00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:6234F35208DD6962C8FFDA45BC0806C699D82C00
 ```bash
 magnet:?xt=urn:btih:7DD944F18F9F91FB8AF8CEE0164D83792D8BF940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:7DD944F18F9F91FB8AF8CEE0164D83792D8BF940
 magnet:?xt=urn:btih:EADECAB6E055C959C5FA4FC24726458AE4B9FAB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Lectrum | Продвинутый курс по Docker, полное погруж
 ```bash
 magnet:?xt=urn:btih:07E1A4D5F213B7A02C5CE54F95F602365DED93A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:07E1A4D5F213B7A02C5CE54F95F602365DED93A4
 magnet:?xt=urn:btih:2CE5CD186D93C8DEA084066E173D64FDDEFB68F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ Lectrum | Введение в веб-разработку JavaScript, c глуб
 ```bash
 magnet:?xt=urn:btih:9A48D6D665BD6DED96D551DD0D86CF1DB5A38669
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Lectrum | Видеокурс по GraphQL (2019) PCRec [H.264]
 magnet:?xt=urn:btih:2BB8AF57CF485FA34B4535767E4A7CE8DE365BBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ Lectrum | Видеокурс по TypeScript (2020) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:75720BCA7E8AC7DD9E59711D276E7F739ED8E64E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ Lectrum | Продвинутый видеокурс по Redux, с фундам�
 magnet:?xt=urn:btih:0BF1A32EB4B4F7246E067C61440E088ECD26DB13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:0BF1A32EB4B4F7246E067C61440E088ECD26DB13
 magnet:?xt=urn:btih:EB4546F492BA77A9CC4A16D6169010A916E692E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ Stepik | Основы программирования на Python (2020) PCRec 
 ```bash
 magnet:?xt=urn:btih:E913D3E31558A948F859BF73922D4ED991831B39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ Flutter - фреймворк, разработанный Google - позволя
 magnet:?xt=urn:btih:DAA265B14285989104111FB8D8448AEFBDD0518E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ Webflow | Официальный курс для начинающих по со�
 ```bash
 magnet:?xt=urn:btih:5FC9D4A567ECE80F291F1B9851E1F81F236EEDC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ Geekbrains | Видеокурс Excel 2.0 (2021) PCRec [AD]
 magnet:?xt=urn:btih:B3EBF4943C6F2991F1A65B17EF3D9909F88490D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:B3EBF4943C6F2991F1A65B17EF3D9909F88490D9
 ```bash
 magnet:?xt=urn:btih:717C458217014E413E180737F7B7F978B145138A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +692,8 @@ Udemy, Dr. Angela Yu | The Complete 2021 Flutter Development Bootcamp with Dart 
 ```bash
 magnet:?xt=urn:btih:53226DE578AC7CCE137AF2CE7352D40E13931A80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

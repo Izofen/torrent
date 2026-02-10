@@ -19,6 +19,8 @@ Lenka - Shadows (2013) [FLAC|Lossless]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Demis Roussos - 20 Golden Hits (1995) Unofficial Release [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:CC6C92E0EE8F88D5033BFE004CC510540848BF3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Nelly Furtado - The Best Of Nelly Furtado (2010) Geffen Records [FLAC|Lossless|t
 magnet:?xt=urn:btih:F7E2830D38029B2D85427AE890679B20A1B295DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Donna Summer - Live And More (1978) 1990, Reissue [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:44F125752368853F745C150B617A37D3A0FEC6AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:44F125752368853F745C150B617A37D3A0FEC6AE
 magnet:?xt=urn:btih:0FCDEB010579D4F22BAC7DE01A5E999EE7E4298C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ VA - Italian Golden Ballads (2000) Unofficial Release [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:D17974C851813E39D7997D22ADA9301266FDB76F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Meghan Trainor - The Love Train (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, Da
 magnet:?xt=urn:btih:57C73163427E66BCBC0BF6ADFC34E1C07D913A9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ The Dip - The Dip Delivers (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:0989A55AFA39B31B353513864933B9072A837BF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ magnet:?xt=urn:btih:0989A55AFA39B31B353513864933B9072A837BF8
 ```bash
 magnet:?xt=urn:btih:19F64A26420CEAB4EEF15DDBF1DFFA70753F81BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +281,8 @@ CD2 - 00:30:17
 magnet:?xt=urn:btih:3DE65DF8EC5A93BFB63526783F9A93EE9743D7A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ VA - Abbamania (1999) Compilation [FLAC|Lossless|tracks + .cue] <Pop, Europop>
 ```bash
 magnet:?xt=urn:btih:B638A5625E816E5A532C85843776BE47258A70FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +339,8 @@ Steps - Tears on the Dancefloor (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Europ
 magnet:?xt=urn:btih:1C7765165C190A9779BA1DBFBAB159814B1FCF8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ Rico Seith - Ich zeig dir meine Welt (2009) [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:A97B6FA5F84F6022E73A81236B2B0EA90B6680ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +397,8 @@ Minacelentano - The complete recordings (2021) 2xCD, Compilation, Remastered, So
 magnet:?xt=urn:btih:15648CA7CE5657A0D173CDD0A0D0D9C929BD2224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ Ariana Grande - thank u, next (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Hip-Hop
 ```bash
 magnet:?xt=urn:btih:2A8448677C845CFE762D759FDF4C14AADD754218
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ Lara Fabian - Papillon (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:629C6DFB84A0F72E1AE15D0451C558A4D7BD77CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ Shania Twain - Still The One: Live From Vegas (2015) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:E95FC3E985DA1898A065B9DD1B33C1B0A56CA0B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ The Beloved - Where It Is (1988) Compilation [FLAC|Lossless|tracks + .cue] <Pop 
 magnet:?xt=urn:btih:E3081A86161D24E0B7E325CC9B930992373D77AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ Lara Fabian & Igor Krutoi - Mademoiselle Zhivago (2010) [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:8CA0D9AB89BEDD41BE20B87034A5657BC6BFF61B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +571,8 @@ Ke - I Am [...] (1996) [FLAC|Lossless|image + .cue] <Rock, Funk, Pop>
 magnet:?xt=urn:btih:72144767B98B361C6C365C1DC4787188FD7F4341
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +599,8 @@ George Baker - Diamond Star Collection (1996) Unofficial Release [APE|Lossless|i
 ```bash
 magnet:?xt=urn:btih:7195846E09C37D37E3A0C07D48080EEB5C509233
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +629,8 @@ VA - The 80s (2003) [FLAC|Lossless]<Pop, Disco>
 magnet:?xt=urn:btih:5E4F1D3834CB64C6CEE316FC3B9B459FF34FDF20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ VA - Pure... 80s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Electronic, Sof
 ```bash
 magnet:?xt=urn:btih:375769D9CC04976F03BAE269B54FEA90F6D1D4D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +687,8 @@ VA - Best Of The 70's (2002) [FLAC|Lossless|tracks + .cue] <Rock, Reggae, Pop>
 magnet:?xt=urn:btih:A76EDE5AC949840B748EC95E868B91E3CAACD5A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +716,8 @@ Jamala - Подих (2015) [FLAC|Lossless|tracks + .cue] <Pop>
 magnet:?xt=urn:btih:71B0F6E1220A52E4ECE2DEDB38F78119B64DD5AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +741,8 @@ Dusty Springfield - 7 альбомов (1963-2000) [FLAC|Lossless]<Pop, Soul>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

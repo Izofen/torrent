@@ -19,6 +19,8 @@ Adobe Acrobat Reader — приложение Reader для самых важн�
 magnet:?xt=urn:btih:E568490C2ECF5CCE0319046FC223571B6D18E9A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ VirtualBox — является мощным продуктом виртуали
 ```bash
 magnet:?xt=urn:btih:4195B46BB1CF650CFBA804E4DE9E00C2A42022EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Adobe Audition 2024 24.0.0.46 RePack by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:CFB9EEA25B98AB9CB907A925B9A934A0FC6140D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Advanced SystemCare PRO - это мощный пакет для оптимиза
 ```bash
 magnet:?xt=urn:btih:6F40758BF69539EBD7E16E2C508751B6FBCA2818
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Adobe Animate, пришедший на смену Flash Professional - это м
 magnet:?xt=urn:btih:D9806A2766BE30CA7938A78EC0B32C9603B429C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ After Effects — это ведущая в отрасли программа д�
 ```bash
 magnet:?xt=urn:btih:24FE1A3DF19A017971AEF7D65596619781C681D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 magnet:?xt=urn:btih:84426A69BC832E17524EC45D0895704869DD0FAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ BlueStacks App Player — бесплатное программное решен
 ```bash
 magnet:?xt=urn:btih:008936CD97CBE1CB5722C5ABED6A05DC1E14D475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Windows 11 Manager - это универсальная утилита специ
 magnet:?xt=urn:btih:90A854031D798DFD981F573E44C28A8E32FC9BB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ ZWCAD 2024 SP1 Professional [En]
 ```bash
 magnet:?xt=urn:btih:D05B54AE7B1A02891CD0B36C7FE3837D8EA3D281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 magnet:?xt=urn:btih:C5446B93813062FF6F2314FAAA7A16FD4F392E5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Adobe Media Encoder - это программа кодирования, кото
 ```bash
 magnet:?xt=urn:btih:58B15C4E99F448518E461DF1F8E20B153AC78544
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Opera One 103.0.4928.34 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:73856423AAEBCEAE3AF3533FFE0F34CE555984FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Adobe DNG Converter - удобный в использовании инстру�
 ```bash
 magnet:?xt=urn:btih:F067EAD235BEC17DD3ADD6A56667BF9C7F5A7854
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:1662F48A3DCCDA975E62F34B6D78D0C9603D459D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:0EE3B760A9242C5DB48D85F0053DF8599C108E21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ AnyTrans, не в пример iTunes, прост и интуитивен. Ка�
 magnet:?xt=urn:btih:67CA30E0EF1470E3B1A8A7FFF9DF9E9FD03F8A78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:5BDE239E69205EA64911A0750B4CDC5C155ECC2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ IceCream Ebook Reader Pro 6.39 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:2F2D8D9B2D84B4FBF7BF0CD99F01A2048D7238BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Icecream Ebook Reader - программа для чтения электрон�
 ```bash
 magnet:?xt=urn:btih:8B419CBAD88804ACD814C476B0BDE90E6488B003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Alt SwitchER - программа для автоматического испр
 magnet:?xt=urn:btih:68E65E934B2FCA9A11E0ED31B6745DEA1C4918C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ GOM Player Plus - мультимедийный плеер со множеств�
 ```bash
 magnet:?xt=urn:btih:018ECDDBAAAC03367ACE131191073EA9A797C839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ IceCream Ebook Reader Pro 6.39 [Multi/Ru]
 magnet:?xt=urn:btih:1F55EA7757E4CB959F668C3FA31DC27EF2F33EC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Kdenlive - бесплатный нелинейный видеоредактор,
 ```bash
 magnet:?xt=urn:btih:A1B8D6431A9722DE26776837BF59B77AA80B81CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:5864270FA8B60F153CFF45FFA95D9373149B3CFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Glary Tracks Eraser - полезный инструмент для защиты 
 ```bash
 magnet:?xt=urn:btih:3ABB79C64FC5312A51A291A1664D07FAC431D297
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Forgotten Realms: The Archives - Collection Two (1988-1993) [En] (1.0/1.3/1.2/1.
 magnet:?xt=urn:btih:3FC95089AA3EB55A9B0866BD301DB84130E5D913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Impossible Creatures (2003) [Ru/En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:5799D7BFB63923BDF99F33B6D3EE86E102EC01C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ RollerCoaster Tycoon 2: Triple Thrill Pack (2002) [Ru/En] (1.0/dlc) License GOG
 magnet:?xt=urn:btih:90439BCF00680A1D8593288826F5B9E80969503D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Gish (2004) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:DA3B45B39BC5C5FCE1951A91EA61DF81C0D76F1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Perimeter / Периметр (2004) [Ru/En] (1.03.19064) License GOG
 magnet:?xt=urn:btih:5664BC4CD59096179C4463C89BCC8EF6A082FB39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Massive Assault: Phantom Renaissance / Massive Assault: Расцвет Лиги 
 ```bash
 magnet:?xt=urn:btih:23168FED878019504FF5313C3C4CC8FBAD7AE627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Massive Assault (2003) [En/Fr] (1.2.204) License GOG
 magnet:?xt=urn:btih:853D61060B4C4F0AD57471DF4B140504FF85D370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ SimCity 3000 Unlimited (2000) [Ru/Multi] (16.07.2016) License GOG
 ```bash
 magnet:?xt=urn:btih:DCEE95ADD607C0E4016037B39C847DC213FDD151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Outcast – не игра. Это одно гигантское приключе
 magnet:?xt=urn:btih:155B9DB109FF88EF5FC45F61845C1C1888809463
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Aquaria (2007) [En] (1.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:30CFB69193DAF061B58EBFDEBBCE4AB26BED78C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Tom Clancy's Rainbow Six + Eagle Watch [Ru] (RePack) 1998-1999 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Attack on Pearl Harbor / Атака на Перл-Харбор (RePack) [Ru/En] 
 ```bash
 magnet:?xt=urn:btih:2AFD68132CB100A6D48F3C04E14AA1AD98827B22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Blood 2: The Blood Group (1998) [En] (2.1/1.0.233/dlc) License GOG
 magnet:?xt=urn:btih:BD39AEFBAD7001BD8FE08D86594E1F945C53423B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Call of Cthulhu: Shadow of the Comet (1993) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:BB0AB3157D88B434CDB7C656D322B482F04BABC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ ABZÛ — это красочное приключение в подводном
 magnet:?xt=urn:btih:73FFD50CE788AA5DEDCADD6859A790DCBFC3DE27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Merchant Prince II - пошаговая стратегия, предоставл
 ```bash
 magnet:?xt=urn:btih:9D90671D43FD81A7FAEE8952127A222B44B79F4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ The Last Blade (1997) [Ru/Multi] (1.0.12541) License GOG
 magnet:?xt=urn:btih:5E31C4033ADDD809E2D4D37310199EAAB531574C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ In Cold Blood / Не зная страха (2000) [En/Ge] (1.0) License GOG
 magnet:?xt=urn:btih:D9D4A9AC7DFA31090F5D7460B40B4CCC5A1AE264
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Warcraft: Orcs and Humans (1994) [En] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:936818D5777D971920181F8F8823DD7BC1C33BD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ The Fall: Last Days of Gaia / The Fall: Последние дни мира + Mod
 magnet:?xt=urn:btih:2A045C7A485FBE29D5A46D0E1D93B5878A4BF6DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ GX UltraMoria [Ru] (L/0.9.9c) 1985
 magnet:?xt=urn:btih:F8940ED63C2F80486E1A8A41034F72F7BE9A8012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Sid Meier's SimGolf / Магнат Гольфа [Ru/En] (P) 2002
 ```bash
 magnet:?xt=urn:btih:D098FB91C48F3C4AFD30F8213A6243DD1118154E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ EuroCops / Полиция Европы: Спецподразделения [Ru] 
 magnet:?xt=urn:btih:7C54E9D2EE6CE25C457F0582885D935B8F7CDD04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ eXoDOS Collection v3.11 - Volume 1 Adventure (2018) [En] (3.11)
 ```bash
 magnet:?xt=urn:btih:6D2FA6349C36C81911C67071014AC9083258B99D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Company of Heroes (2006) [Ru/En] (2.700.2.43/dlc) SteamRip Let'sPlay
 magnet:?xt=urn:btih:56D5873E6298D6E688CEB3DCA93B3228937A763C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Sid Meier's Pirates! (2004) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:D346AE04E7E1C8BB4CA4485B9A63B98BA84711CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

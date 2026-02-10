@@ -1,3 +1,55 @@
+###  Публикация: 1197626   (813364) от 08.01.2018
+
+Вина / Blame (2017) WEB-DLRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запретные отношения учителя литературы с психически нестабильной студенткой вызывают приступ ревности у ее завистливой одноклассницы и толкают последнюю на осуществление коварного плана мести. В водовороте событий, происходящих в старшей школе маленького городка, просматриваются параллели с сюжетом пьесы Артура Миллера "Суровое испытание".Производство: США / Reel EnigmaЖанр: ДрамаРежиссер: Куинн ШепардАктеры: Надя Александр, Крис Мессина, Триесте Келли Данн, Тейт Донован, Женева Карр, Куинн Шепард, Оуэн Кэмпбелл, Тесса Альбертсон, Сара Меццанотте, Марсия ДеБонисПеревод: Профессиональный многоголосый (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:38:24Реклама: Присутствуют вставки текстовой рекламы!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5307CDD2958EEA799093D9510B1C1852E2361DA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1504262   (813371) от 22.10.2021
+
+Космическая любовница: Космические чары / Femalien: Cosmic Crush (2020) WEBRip [H.264/720p-LQ] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Путешествующие по просторам космоса альтерианцы вернулись к своим космическим приключениям. Когда древний голод пробуждается в дальних уголках космоса, Высший Совет Альтериана посылает новоиспеченного агента Мэкси Прайм для расследования со своей проворной помощницей Габби Джинкс. Там они обнаруживают сумасшедшего профессора и её учеников в тисках танагарианской (   Читать дальше...   )Производство: США / Full Moon Features, Longshadow ProductionsЖанр: Фантастика, фэнтезиРежиссер: Линдси ШмитцАктеры: Джиллиан Янсон, Кира Нуар, Denise Milfort, Lilly Fairfield, Рэйчел Грубб, Пэрис Уайт, Lexy Marie, Madeline Fleming, Tyler Borresch, Luke A. SchmitzПеревод: Многоголосый профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:21:29Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE50F5EE798BBACA6AFA6ABD02C94F647F0E1C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504270   (813524) от 22.10.2021
 
 Эммагеддон / All Earthly Constraints (Emmageddon) (2020) WEB-DLRip [H.264/720p-LQ] [MVO] [AD]
@@ -18,6 +70,8 @@
 ```bash
 magnet:?xt=urn:btih:56CD673BCA10DB6CEEEC46D55853230B5DC105C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +97,8 @@ magnet:?xt=urn:btih:56CD673BCA10DB6CEEEC46D55853230B5DC105C7
 magnet:?xt=urn:btih:56C3000896C7D58020AC07283289D25EFDD30ACE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +122,8 @@ magnet:?xt=urn:btih:56C3000896C7D58020AC07283289D25EFDD30ACE
 ```bash
 magnet:?xt=urn:btih:6A24E78EA532AD0D09F0BF38E5C1545FE05E42A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +149,8 @@ magnet:?xt=urn:btih:6A24E78EA532AD0D09F0BF38E5C1545FE05E42A8
 magnet:?xt=urn:btih:9E323F7C2C0084AF00EE2D1554550513127153C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +174,8 @@ magnet:?xt=urn:btih:9E323F7C2C0084AF00EE2D1554550513127153C1
 ```bash
 magnet:?xt=urn:btih:0293DC65D69C9E2C97B1723CD4731CB46164AAAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +201,8 @@ magnet:?xt=urn:btih:0293DC65D69C9E2C97B1723CD4731CB46164AAAB
 magnet:?xt=urn:btih:564F5C3F3DEF2B7B5725F411C1A8ECE7B20A85CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +226,8 @@ magnet:?xt=urn:btih:564F5C3F3DEF2B7B5725F411C1A8ECE7B20A85CC
 ```bash
 magnet:?xt=urn:btih:646891592111812ACB6AA7AEC774B052F9743664
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +253,8 @@ magnet:?xt=urn:btih:646891592111812ACB6AA7AEC774B052F9743664
 magnet:?xt=urn:btih:63B836833C1A9A29D6D2EAA366BE4F346D83488B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +278,8 @@ magnet:?xt=urn:btih:63B836833C1A9A29D6D2EAA366BE4F346D83488B
 ```bash
 magnet:?xt=urn:btih:2D3848E557C87081965DBE459DA8142121B9C776
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +305,8 @@ magnet:?xt=urn:btih:2D3848E557C87081965DBE459DA8142121B9C776
 magnet:?xt=urn:btih:D6405BCAEB3358A84DBBF2C18155D4C4189123A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +330,8 @@ magnet:?xt=urn:btih:D6405BCAEB3358A84DBBF2C18155D4C4189123A3
 ```bash
 magnet:?xt=urn:btih:103FD34E0EDB63FA58CC616931B2813EC3780C86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +358,8 @@ magnet:?xt=urn:btih:103FD34E0EDB63FA58CC616931B2813EC3780C86
 magnet:?xt=urn:btih:F8D7DA2C555B268C4227F8F756E3DCE2E137624B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +383,8 @@ magnet:?xt=urn:btih:F8D7DA2C555B268C4227F8F756E3DCE2E137624B
 ```bash
 magnet:?xt=urn:btih:0B10F3B6B15656FB698AC204C262D2123D9D90D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +410,8 @@ magnet:?xt=urn:btih:0B10F3B6B15656FB698AC204C262D2123D9D90D1
 magnet:?xt=urn:btih:7F6B78A5092738553ADBE81082B86890C8F25894
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +435,8 @@ magnet:?xt=urn:btih:7F6B78A5092738553ADBE81082B86890C8F25894
 ```bash
 magnet:?xt=urn:btih:6A215662CF254F2700929E1D3F674E5037850CA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +462,8 @@ magnet:?xt=urn:btih:6A215662CF254F2700929E1D3F674E5037850CA7
 magnet:?xt=urn:btih:BE9831DEAEFED3A21DF875027C51FB2D49679311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +487,8 @@ magnet:?xt=urn:btih:BE9831DEAEFED3A21DF875027C51FB2D49679311
 ```bash
 magnet:?xt=urn:btih:EEC2A265A544500302BF9E1A962E8DC4C1137945
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +514,8 @@ magnet:?xt=urn:btih:EEC2A265A544500302BF9E1A962E8DC4C1137945
 magnet:?xt=urn:btih:E3CA6759D83C31FC55E812E57AAFE9126EAFF415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +539,8 @@ magnet:?xt=urn:btih:E3CA6759D83C31FC55E812E57AAFE9126EAFF415
 ```bash
 magnet:?xt=urn:btih:7D3DCBEF0EEDED4BD5B5F56BE219CD806FD0EC84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +566,8 @@ magnet:?xt=urn:btih:7D3DCBEF0EEDED4BD5B5F56BE219CD806FD0EC84
 magnet:?xt=urn:btih:03F915D06740DA8A717F231E214A18F66F6164CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +591,8 @@ magnet:?xt=urn:btih:03F915D06740DA8A717F231E214A18F66F6164CB
 ```bash
 magnet:?xt=urn:btih:E654C99CE0064663BF1F07F64324C76CC9801A76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +618,8 @@ magnet:?xt=urn:btih:E654C99CE0064663BF1F07F64324C76CC9801A76
 magnet:?xt=urn:btih:CFA3543F52A5AA8B6D0531D7FD040F32453194CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +643,8 @@ magnet:?xt=urn:btih:CFA3543F52A5AA8B6D0531D7FD040F32453194CD
 ```bash
 magnet:?xt=urn:btih:92E7A207E85A1851EFD30799C66C1221F10F5F0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,56 +670,7 @@ magnet:?xt=urn:btih:92E7A207E85A1851EFD30799C66C1221F10F5F0E
 magnet:?xt=urn:btih:A5D2E8DCE0ADB965FA440566926C653F21F75CC8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197164   (816754) от 06.01.2018
-
-Викинги в осаде / Viking Siege (2017) WEB-DLRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раннее средневековье, тёмные времена, монахи сильны как-никогда и занимаются всем, что приносит прибыль, а больше всего ценятся - рабы. На монастырь, занимающийся продажей людей викингам, нападает нечто невообразимо мерзкое, пришедшее из глубины горящих лесов.Производство: Великобритания / Tornado FilmsЖанр: Боевик, приключенияРежиссер: Джек БертонАктеры: Розанна Холт, Саманта Шнитцлер, Крэйг Расселл, Овайн Риз Дейвис, Жан-Поль Ли, Стив Мео, Анджела Розмари Питерс, Ричард Элис, Ричард Сэндлинг, Клер РичардсонПеревод: Профессиональный многоголосый (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:38:39Реклама: Присутствуют вставки текстовой рекламы!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EF66E35EA4FC12A365170F5CD6DB32A6D3CAAA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196967   (817003) от 06.01.2018
-
-Сборник клипов - Best of Hits 90s от ALEXnROCK (2017) WEBRip (часть 3)
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817003.jpg" />
-</div>
-
-
-###  Подробнее
-
-000 Intro
-116 DJ Bobo - Take Control
-117 Haddaway - What About Me
-118 Ricky Martin - Livin' La Vida Loca(   Читать дальше...   )Жанр: PopФормат: AVIПродолжительность: 03:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C483A27D224E01B806612F47904FE16DB0BE42
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

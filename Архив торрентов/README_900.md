@@ -19,6 +19,8 @@ Reg Organizer® - это многофункциональная программ
 magnet:?xt=urn:btih:E41E757840E2686DA97D19D1784617D90799210C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ UsbTreeView маленькая утилита, реализующая больш
 ```bash
 magnet:?xt=urn:btih:07198665B9CA203A6977FE3D7B5AF44B0701B87F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Spotify имеет громадный каталог музыки, поддер�
 magnet:?xt=urn:btih:0FFA1AD4308267CDE262F8A6B64801CAC99AE3D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ SamDrivers 24.2 Expert [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C05194D10D7DBB208EC64BD0AAD1C9C7B765A294
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ VMware Workstation Pro™ позволяет техническим специа
 magnet:?xt=urn:btih:5CE7C430FF2DC6ADD39194BEBC8E9FF16871D629
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ MiniTool Power Data Recovery - это инструмент предназнач�
 magnet:?xt=urn:btih:2D92E593D0CCF449D12401C63C5F6274C23A058E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Revo Uninstaller Pro 5.2.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B7B58EA4C5CDE76C7B359490DC2274A182224239
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:B7B58EA4C5CDE76C7B359490DC2274A182224239
 magnet:?xt=urn:btih:E01860A2577C4B15A04A7C782AB32A5FF9A64ADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Defender Remover Portable 12.7.0 [En]
 ```bash
 magnet:?xt=urn:btih:7519850D510E0C7FF2009E254EFAC77F9CBA4DE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ GoodbyeDPI 0.2.2 Launcher 6.7 [Ru]
 magnet:?xt=urn:btih:8F638F22427251387B99729169A077487E78BB9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ CudaText — абсолютно бесплатный мультиплатфор�
 ```bash
 magnet:?xt=urn:btih:80830D09BEE91F590E5104ADE7A7BC80BB885C58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Wondershare Recoverit - профессиональное приложение, �
 magnet:?xt=urn:btih:D1DD22EE041DA8CE88BD2E47FEA16E0E9F8C9992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:566FEA750460A00293C08C19E0EDA8A98388FE5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ Wondershare Repairit 5.5.1 [En]
 magnet:?xt=urn:btih:3087516C0B90BB37E1A59B7F21FC2C18327E5AA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ VidCoder - небольшая утилита, с помощью которой �
 ```bash
 magnet:?xt=urn:btih:D4A1B674BD90793A9B1AC40BA3A1E36855387D0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ PeaZip — бесплатный архиватор и графическая о�
 magnet:?xt=urn:btih:FE5280B17AA583425879552462E776EEA1B90907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Castbox является победителем в категории "Лучш�
 magnet:?xt=urn:btih:DD49FB78E7E3F55B2187855D498816549712DBE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Kodi (ранее известный как XBMC) — бесплатное и с 
 ```bash
 magnet:?xt=urn:btih:9164956C438F9B995C65692931E0E39301D743F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ GoodbyeDPI 0.2.2 Launcher 6.6 [Ru]
 magnet:?xt=urn:btih:F3AB796F12C848575F04E2C96D6BD28F79EF25CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ CyberLink PowerDVD - один из самых мощных на данный м�
 ```bash
 magnet:?xt=urn:btih:85783DF1BE9531EECB05B9A7BDD26EAC77ABEEC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ BetterMouse — это утилита для macOS, улучшающая про�
 magnet:?xt=urn:btih:B785A473C17750A81E75111EB9F6F892D99DD1B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ FBackup — это свободно распространяемое прогр�
 ```bash
 magnet:?xt=urn:btih:03D2901A61E0CCEEAA79D0A4E79C450852DA255A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Monkey's Audio — данная утилита предназначена для
 magnet:?xt=urn:btih:114F8FB13DD7EE6DAB22D5754434428B541089DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ doPDF — программа для преобразования докумен�
 magnet:?xt=urn:btih:9A7ED4CB221633AFFE7BEE8D78AC2AF09EB6BCE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ AirBrush: ИИ Фоторедактор v6.2.1 Mod by ImanAlien [Ru/Multi]
 magnet:?xt=urn:btih:3AB976BD4509C83374433F1E6602ADF56AE37FFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ FreeCommander XE - это довольно-таки удобный в работ
 ```bash
 magnet:?xt=urn:btih:D2D32371DA0C5835A084B63C9B91DD54EB3636AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

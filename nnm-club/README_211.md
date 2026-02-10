@@ -19,6 +19,8 @@ Tomb Raider I-III Remastered Starring Lara Croft (2024) [Switch] [EUR] 18.1.0, A
 magnet:?xt=urn:btih:559FCE2A498C9A593C28CA8CFE0CB495619C2A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ COCOON – новая игра от Йеппе Карлсена, ведущег�
 ```bash
 magnet:?xt=urn:btih:4EBC528EA2F6E1A57C713D51661765B0B3A355FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Vivaldi 7.5.3735.66 include standalone [Multi/Ru]
 magnet:?xt=urn:btih:99E70F417D2C52D956EB19E9FBA0EC3AFC0B2AC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:99E70F417D2C52D956EB19E9FBA0EC3AFC0B2AC2
 ```bash
 magnet:?xt=urn:btih:162A2C949F785274D9330B0FCF91E4F096289A38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:162A2C949F785274D9330B0FCF91E4F096289A38
 magnet:?xt=urn:btih:78C665481B8C2A912D5CE9D5673890B4E7D70854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Shotcut - мощное кроссплатформенное приложение
 ```bash
 magnet:?xt=urn:btih:038B74B8AF094A4EDC20CA293B18366DF44AED3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:038B74B8AF094A4EDC20CA293B18366DF44AED3D
 ```bash
 magnet:?xt=urn:btih:0CE7B09D10CDEE2286AB77132A2951BE659A4135
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:0CE7B09D10CDEE2286AB77132A2951BE659A4135
 magnet:?xt=urn:btih:762B6B530B803D61E8369B8EED96E00F23E1CC41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Stranded: Alien Dawn (2022) [Ru/Multi] (build 18840735) Repack seleZen
 magnet:?xt=urn:btih:6391BEBD807484B5D95CC3249E838C8A0DBE7437
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Whitney Houston - Концерт в Южной Африке / Whitney Houston - 
 ```bash
 magnet:?xt=urn:btih:C8F0EA4A996212D8984AFD7002E91BC75D9AF597
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:C8F0EA4A996212D8984AFD7002E91BC75D9AF597
 magnet:?xt=urn:btih:DC8EF27B0D68F5E0E9AACF4F500FCD73CD0B1EA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:DC8EF27B0D68F5E0E9AACF4F500FCD73CD0B1EA3
 magnet:?xt=urn:btih:97EF8C2CBA750B71DA3411FFEF0A08872E4B2CAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:97EF8C2CBA750B71DA3411FFEF0A08872E4B2CAD
 ```bash
 magnet:?xt=urn:btih:DEC3D481DA5F62F420185B4470E511BBC3B1A1D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:DEC3D481DA5F62F420185B4470E511BBC3B1A1D9
 magnet:?xt=urn:btih:2EB7F0629EBB0E9BA624E093E10BE61548C407E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Relic Hunters Legend - это быстрая RPG в жанре looter-shooter, �
 ```bash
 magnet:?xt=urn:btih:0DDA220FAABE60A34481B73687AB7464ECED8697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Lanpirot | Собрание произведений [2 книги] (2022-2025) 
 magnet:?xt=urn:btih:A89AF4EB05D28A1B6B47B696583A5592AEFECFE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Frozenheim – скандинавский градостроительный с�
 ```bash
 magnet:?xt=urn:btih:3CA81190B8D797595177713214830F8A9C560C77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Yield! Fall of Rome (2025) [Ru/Multi] (1.0.1.3/dlc) Repack FitGirl
 magnet:?xt=urn:btih:1AF65510F65B0343BFB4AF08ED1E06A7DAFF5FB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Prince of Persia The Lost Crown (2024) [Switch] [EUR] 17.0.1, Atmosphere 1.6.2 [
 ```bash
 magnet:?xt=urn:btih:3539FE15846F75D52C639D2BD555FB5FD3B65D49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:3539FE15846F75D52C639D2BD555FB5FD3B65D49
 magnet:?xt=urn:btih:7C71C05F3A69F21E84894008648502DD7F8B3F8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:7C71C05F3A69F21E84894008648502DD7F8B3F8F
 ```bash
 magnet:?xt=urn:btih:F19B9B749D6C72836EBD06194F829F7533F797A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ W10Privacy - программа для изменения настроек си�
 magnet:?xt=urn:btih:DCE37620170D56DB8842A09B32C6996C37427629
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:DCE37620170D56DB8842A09B32C6996C37427629
 ```bash
 magnet:?xt=urn:btih:34E773D5CC7566C0E544622B3E7E5DF805F1D45F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Opera One 121.0.5600.38 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:47658C46E9D15C5B7F63BDAB2E91EEBD70E77565
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Adobe Media Encoder - это программа кодирования, кото
 magnet:?xt=urn:btih:B9828F67E1E9288557E307A437CB7328B87ED793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:B9828F67E1E9288557E307A437CB7328B87ED793
 ```bash
 magnet:?xt=urn:btih:B274E256E5286756528FB04BB718F0E40F61E9A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

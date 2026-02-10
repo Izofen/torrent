@@ -22,6 +22,8 @@ VA - The Journal Of Organic Music (2018) ...txt [FLAC|Lossless|WEB-DL|tracks] <A
 magnet:?xt=urn:btih:E13D2B71CE0E9C06740F5711356612D665A6E38B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Ten And Tracer - Companion (2004) U-Cover [FLAC|Lossless|tracks+.cue] <IDM, Down
 ```bash
 magnet:?xt=urn:btih:5FC05339A54B9357722F6DBF7CD1B926E89FE825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Balancé (Balance, NOYA Project) - Discography 19 Releases (2014-2020) [FLAC|Los
 magnet:?xt=urn:btih:50B746BE8657868620BF6DF74EB03686A907CD9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Ingrained Instincts - Invent the Future (2020) Sangoma Records [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:9CFF75DDC24B07FE04BFF4B806895CAFF27B840F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Hello Strange Story Series #1-#8 (2016-2020) hello▼strange [FLAC|Lossless
 magnet:?xt=urn:btih:4B05BBF66E1D6B05F545BAE3062B8736860C26A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ CiM - Series Two (Reissue) (2020) Delsin [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, 
 ```bash
 magnet:?xt=urn:btih:EF899642474C713073BCD2CF0AD82543D7938272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Robot Says Y (2020) What Robot Says [FLAC|Lossless|tracks|Vinyl] <Tech Hous
 magnet:?xt=urn:btih:AF33E280B53D236F283E5BA04380A5FC74887973
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ KMRU - Peel (2020) Editions Mego [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experim
 ```bash
 magnet:?xt=urn:btih:E8C969EED0063477E60B3A2CE4FB473FC1852737
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Robin Schulz - Sugar (2015) [MP3|320 кб/с]<Vocal House>
 magnet:?xt=urn:btih:33DF1D0F2148B5E475FDD36501533B9FFE91D667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ VA - Ibiza 2016 Closing Party (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, 
 magnet:?xt=urn:btih:DBF5DB1C056EE66D39BCE9DF79C70696A09DCCE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +311,8 @@ Lustmord - Dark Matter (2016) Touch [FLAC|Lossless|WEB-DL|tracks] <Dark Ambient,
 magnet:?xt=urn:btih:C737D29A8010C4D6507799A720B80F44223E1368
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +336,8 @@ Govinda – творческий псевдоним талантливого к�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +365,8 @@ Kaskade - Automatic (2015) [MP3|320 кб/с]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:5AAAD145AB73AADDFF5D0E2A261D482F5A380FF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +401,8 @@ Emika - Emika (2011) [FLAC|Lossless]<Trip-Hop, Electronic, Abstract, Dubstep>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +430,8 @@ Moebius - Moebius (1979) LP [MP3|320 Kbps] <Electronic, Synth-pop>
 magnet:?xt=urn:btih:C53B206B7E2CD60AD638D2CF2CC54386B69F9B93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +455,8 @@ Utah Jazz - Vintage (2010) [MP3|320 кб/с]<Drum & Bass / Liquid Funk>
 ```bash
 magnet:?xt=urn:btih:7EE0F65EE2FCB895B4A166F09FD683279CEB95F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +485,8 @@ Eschaton - Carina (2017) EP [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:03687491877162B727B8F91CD5B25D0FCC592F4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +513,8 @@ Yotto - Hyperfall (2018) Anjunadeep [FLAC|Lossless|WEB-DL|tracks] <Progressive H
 ```bash
 magnet:?xt=urn:btih:CD2F95A7BB5B1CE4E4A299289A9730930AAE45CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +543,8 @@ Paul van Dyk - My World (In The Mix) (2002) [FLAC|Lossless|image + .cue] <Trance
 magnet:?xt=urn:btih:A89EA9256A2F9912F3AFE586CF8673461E86AB49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +571,8 @@ VA - Aurosonic - Best Of Trance (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:4E79C9C07C437A322A935BCEA94F24E6973A6BDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +601,8 @@ VA - Silk Music Pres. Trance Treasures 11 (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:A00218BA908167FEB97D395E0DC67C7BBAD22192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +629,8 @@ VA - Essential Vocal Trance (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:F5C740E985BECCC564B517F85479C4EF8CFAAD8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +659,8 @@ VA - Ori Uplift - Uplifting Only 291 (2018) [MP3|320 Kbps] <Trance,Uplifting Tra
 magnet:?xt=urn:btih:A7B68518752A4B869D48830CA10FAB7EE283BAB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +687,8 @@ ScAnDroid Experiment's - We Will Make You Happy (2022) авторская раз
 ```bash
 magnet:?xt=urn:btih:448F898FAB41AAD90441095157D480363819FB85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,6 +717,8 @@ Parov Stelar - Voodoo Sonic (The Trilogy, Pt. 3) (2020) [FLAC|24/44,1|Lossless|W
 magnet:?xt=urn:btih:2168FCBAAF508E152E51758F86CB3DDB6E8751B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ VA - Beautiful Vocal Trance: Chapter 5 (2020) [FLAC|Lossless|tracks] <Trance, Vo
 ```bash
 magnet:?xt=urn:btih:175EC7247BD86FAB8F1D28DC89C6963806C787C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

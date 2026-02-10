@@ -1,3 +1,29 @@
+###  Публикация: 1036221   (622667) от 19.07.2016
+
+Наш человек в Ватикане (2016) DVB
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_622667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о судьбе удивительного человека, проживавшего в 13 странах мира и носившего более 20 чужих имен, фамилий и псевдонимов. Факты и легенды из жизни советского разведчика Иосифа Григулевича.Телекомпания: Россия, ФГУП ТТЦ "Останкино"Жанр: Документальный, РазведкаПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BC2B5E45C2438E4045FE6A78CD3B8F254C0E4F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036210   (622745) от 19.07.2016
 
 Семиречье в огне. История одного восстания (2016) HDTVRip [720p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:42332136245F6A1FB3456F4D1E8DE38EE2EF5552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:42332136245F6A1FB3456F4D1E8DE38EE2EF5552
 magnet:?xt=urn:btih:75650A80EDE72ECE13F37AEFFC47FCB8E3050347
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:75650A80EDE72ECE13F37AEFFC47FCB8E3050347
 magnet:?xt=urn:btih:FB15DFF0D1ABCF9A06D0D0DADAF1C489B0AA055F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:FB15DFF0D1ABCF9A06D0D0DADAF1C489B0AA055F
 ```bash
 magnet:?xt=urn:btih:CB1254665AB2DD8B897A0663EE6C9E033F155BF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:CB1254665AB2DD8B897A0663EE6C9E033F155BF2
 magnet:?xt=urn:btih:4E558D7ADE253B8D88EA25484F4C3F06137DB737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:4E558D7ADE253B8D88EA25484F4C3F06137DB737
 magnet:?xt=urn:btih:C91916893479B80D4065AA427D54A296822E528F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:C91916893479B80D4065AA427D54A296822E528F
 ```bash
 magnet:?xt=urn:btih:BDEF6F9818102F3DCD55B3B81762D8183DD3B1A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:BDEF6F9818102F3DCD55B3B81762D8183DD3B1A8
 magnet:?xt=urn:btih:E7CDEB33C107881074194CA7BB4624C1D530F784
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:E7CDEB33C107881074194CA7BB4624C1D530F784
 ```bash
 magnet:?xt=urn:btih:EC78E05B2C4C40C06FA6B499AA4D03F30F138BD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:EC78E05B2C4C40C06FA6B499AA4D03F30F138BD7
 magnet:?xt=urn:btih:39C05D8E8A6305D8D8AD3EA998E739B0243629C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:39C05D8E8A6305D8D8AD3EA998E739B0243629C8
 magnet:?xt=urn:btih:79136558B07A96200C71942FABF1D457E943207F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:79136558B07A96200C71942FABF1D457E943207F
 ```bash
 magnet:?xt=urn:btih:D1F0558ED8D8C25226015EBD5470452689A64F93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:D1F0558ED8D8C25226015EBD5470452689A64F93
 magnet:?xt=urn:btih:C246C69FDF3B362EEDA847166EC45093648E6BA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:C246C69FDF3B362EEDA847166EC45093648E6BA8
 ```bash
 magnet:?xt=urn:btih:1A89EC0857EF8B7276A6A26A5C7679944CA38FC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:1A89EC0857EF8B7276A6A26A5C7679944CA38FC1
 magnet:?xt=urn:btih:0D8603C2F75586E72B8C51BEEE86605B59204A87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:0D8603C2F75586E72B8C51BEEE86605B59204A87
 ```bash
 magnet:?xt=urn:btih:BB1713E0023F4121057F50C3C0DE83650B86B38A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:BB1713E0023F4121057F50C3C0DE83650B86B38A
 magnet:?xt=urn:btih:441D16E923454C47840B45A88675EBA706F89EBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:441D16E923454C47840B45A88675EBA706F89EBD
 ```bash
 magnet:?xt=urn:btih:63A5EA37B4622222158D5ACE985E188B35794A67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:63A5EA37B4622222158D5ACE985E188B35794A67
 magnet:?xt=urn:btih:848A528C9A02F3A6E93EF2F34808B8D700CE1F23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:848A528C9A02F3A6E93EF2F34808B8D700CE1F23
 ```bash
 magnet:?xt=urn:btih:3AA502332260F772C2BB5F158CDCEF22B69B1209
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:3AA502332260F772C2BB5F158CDCEF22B69B1209
 magnet:?xt=urn:btih:F6BFE02C8D33578D1A4EADA427A1C80947EC604A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:F6BFE02C8D33578D1A4EADA427A1C80947EC604A
 ```bash
 magnet:?xt=urn:btih:5AA76C48DE3E039C77006C957F0F2138EED4A8E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:5AA76C48DE3E039C77006C957F0F2138EED4A8E7
 magnet:?xt=urn:btih:FE71B00E3554C07AD11246DFF95D2C100010AB77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:FE71B00E3554C07AD11246DFF95D2C100010AB77
 ```bash
 magnet:?xt=urn:btih:1FE381D0A09102A97BF973F6AFF302665CE8151C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:1FE381D0A09102A97BF973F6AFF302665CE8151C
 magnet:?xt=urn:btih:C48A93E9E54F48B8FAA1E437DA998B3644B1E3BE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229582   (624436) от 07.06.2018
-
-Диктор Советского Союза (2018) DVB [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624436.jpg" />
-</div>
-
-
-###  Подробнее
-
-Их имена знала вся страна. Народная любовь к ним была как к особому отделу космонавтов. Они являлись образцом вкуса, манер, поведения и правильной речи. Эти люди создавали телевидение, были его голосом и лицом. Более того, то, что ими создавалось, востребовано и сейчас. Своими воспоминаниями делятся знаменитые дикторы Советского Союза: Игорь Кириллов, Анна Шатилова, (   Читать дальше...   )Телекомпания: Россия / ВГТРК, Творческая мастерская "Студия-А"Жанр: Документальный, Тележурналистика, БиографияСубтитры: отсутствуютПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:596A6FA6ACE42BA08AFECC916BBB01BD6EA08C68
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

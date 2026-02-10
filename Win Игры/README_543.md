@@ -1,27 +1,3 @@
-###  Публикация: 1482630   (1007350) от 09.07.2021
-
-Viking Heroes 2 / Герои викинги 2 (2021) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Strategy/Manager/Business (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007350.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение увлекательной игры Viking Heroes. Редко сразу у всех героев викингов выпадают спокойные деньки. А когда это, наконец, случилось, братья Эваранд и Боромир и их сестры Хельга и Брунгильда отправились в соседнее поселение на ярмарку. Кому мечи заточить, кому доспехи подлатать, кому купить семян лечебных трав, да и просто вместе меда попить.Тип издания: UnofficialРазработчик: Yustas Game StudioЖанр: Симулятор, Стратегия, ПостройкаЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C02F4EAF584152EEBBA59D0119D1E14F4F4AF57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482579   (1007377) от 09.07.2021
 
 Paranormal Files 7: Ghost Chapter (2021) [En] (1.0) Unofficial [Collector's Edition]
@@ -42,6 +18,8 @@ Paranormal Files 7: Ghost Chapter (2021) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:D03FE1FF4629C6E8B724A4D2E9448D1613EBCA97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Overboard! (2021) [En] (1.3.1) License GOG
 magnet:?xt=urn:btih:E06DD0651EB86D0483E6EF3E8C3861E95DD536A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Enchanted Kingdom 8: Master of Riddles / Зачарованное королев
 ```bash
 magnet:?xt=urn:btih:E5C91913CC7FD05231F37FAE30B4976AA86EE208
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Fairy Godmother Stories 2: Dark Deal / Истории Крестной Феи 2:
 magnet:?xt=urn:btih:A59FA4636279FD38AF00F046869C8594C2C3EC37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Minute of Islands (2021) [Multi] (1.0) License GOG [Digital Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:B1EB20D22DA3CBD19FCAFE8695BF3F6D7C32FE8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Ender Lilies: Quietus of the Knights (2021) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:D52B7B62E8266A1B60B77DC4966D052F77D9EAE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Builder's Journey - это лирическая головоломка, кото
 ```bash
 magnet:?xt=urn:btih:0760AF114D3909E2BF8BA518F0CCC66B319E1CBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Sherlock Holmes: The Devil’s Daughter - это захватывающее пр
 magnet:?xt=urn:btih:F3CFBBF3190FCCA32BA2D0917533B786C18928ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Spellcaster University (2021) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:3C2BB75C64E1D7F0EFC4F9150DDF2DE6B234F50C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Fareo Shadowlands (2021) [Multi] (1.0) License DARKSiDERS
 magnet:?xt=urn:btih:5D87C23DBF2CD4F75732D82237A175313577D168
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ The Sisters - Party of the Year (2021) [Multi] (1.0) License DOGE
 magnet:?xt=urn:btih:5E17C1D37350D67B91F509E400E2C4145BA5F62B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +304,8 @@ Alekon (2021) [En] (1.0) License DOGE
 ```bash
 magnet:?xt=urn:btih:6452EDCD050AD24A00F96F2B33A0B8E249985F9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +332,8 @@ Exit From - это хардкорная хоррор-стелс игра с эл
 magnet:?xt=urn:btih:2E572E1D8EA030655431D52D5FEB9679728E5B8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +357,8 @@ Red Solstice 2: Survivors (2021) [Ru/Multi] (6877287) License Fairlight
 ```bash
 magnet:?xt=urn:btih:A08B4DD9DA35A4DF5016B092BBD6CE7E3EACE625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +384,8 @@ World of One (2017) [Ru/Multi] (1.5.0 B22) Repack Other s
 magnet:?xt=urn:btih:D097AF468291B0DAEFE8824583D3234F548F3EB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +409,8 @@ Hidden Expedition: A King's Line (2021) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:E2EF8196B271E985BB80D614E38EA628B926C7F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +436,8 @@ Lumberhill (2021) [Ru/Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:C4F3253D00A3A4D6B70BD9D5A26D82921F533250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +461,8 @@ WE ARE FOOTBALL (2021) [Ru/Multi] (1.0h) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E5D552213C07A9179EE6224614EF423F41F73F68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +488,8 @@ Icewind Dale: Enhanced Edition — это улучшенная версия ку
 magnet:?xt=urn:btih:A8BF3550D29C17B54BB4294A9341BAB203A1D578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +513,8 @@ Minute of Islands (2021) [Multi] (6616315) License Skidrow
 ```bash
 magnet:?xt=urn:btih:735B4D4E9ADECFDB2E5CCE4A0C5C83141F3D4F45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +540,8 @@ Spirit Legends 5: The Aeon Heart / Легенды Духов 5: Сердце Э�
 magnet:?xt=urn:btih:5A0CF406CF65BFD6FC9452F6CDFB50E56BFD26F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +565,8 @@ Vengeance. Lost Love / Возмездие. Потерянная любовь (20
 ```bash
 magnet:?xt=urn:btih:CACC39CC12E6AAAB83E8DBE58A9D45A28EC7E62A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +592,8 @@ Guilty Gear -Strive- (2021) [Multi] (Build 6841150/dlc) License Fairlight
 magnet:?xt=urn:btih:D842D6CBD7A1C8B0FCFC46FB97CCCB2319196073
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +618,8 @@ Pacify (2019) [Ru/Multi] (4.24) Repack Other s
 magnet:?xt=urn:btih:79C748F0C03DCFA0B0A337AB3EE3B20AC32882B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +643,34 @@ Secret City 5: Mysterious Collection / Тайный город 5: Загадоч
 ```bash
 magnet:?xt=urn:btih:347F158CB0C5C0F646AADBE8DCE615549D827D0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476340   (1011558) от 11.06.2021
+
+Thief (2014) [Ru/Multi] (1.7) License GOG [Definitive Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Thief является четвёртой игрой в легендарной стэлс-экшен серии Thief. Вам вновь предстоит выступить в роли знаменитого вора Гарретта, от рук которого не скрыть ни одно сокровище. В Городе, где происходят события, назревает конфликт между его жителями и тираном-правителем Бароном.Тип издания: LicenseРазработчик: Eidos-MontrealЖанр: Action, Adventure, Horror, StealthЯзык озвучки: Русский, Английский, Немецкий, Французский и другиеЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3313D64498BE093360DB045D42CDCB045CAD1F9F
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

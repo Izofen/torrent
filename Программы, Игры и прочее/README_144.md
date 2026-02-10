@@ -19,6 +19,8 @@ Human: Fall Flat 2019 – в этой игре вы будете управля�
 magnet:?xt=urn:btih:439CF6EADDE777140C570CD4B4D15261A4165AAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Audio MP3 Cutter Mix Converter – качественное приложение
 ```bash
 magnet:?xt=urn:btih:B0DD83A60A3E01DCEDB72D161AB0E57A882E54CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Fake GPS Location v3.5 [En/Ru]
 magnet:?xt=urn:btih:E0B6A9DC97122F44C20E62317D39CE4D9A1E8A2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Terraria (Террария) – это знаменитая игра из жан
 ```bash
 magnet:?xt=urn:btih:E1D012998CA421A89E442614EDB4B21079763915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Shadow Fight 2 Special Edition – продолжение одного из са
 magnet:?xt=urn:btih:ABCB35818B2BAC6DB36AA447A9932D3D05031770
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ ABBYY Business Card Reader Pro v4.21.1.1 [Ru/Multi]
 magnet:?xt=urn:btih:8A1D5C6A04B62570D74270B4210E818B84A6FBB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Money Pro - это единая программа для ведения бюд�
 ```bash
 magnet:?xt=urn:btih:58FC4D10E46C34AC595AAB8208102298FA5D2DC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Add Watermark Pro v3.0 (build 3004) - Водяные знаки в изобра�
 magnet:?xt=urn:btih:69C2273AEBC41E5DF7B49FAA7F729D0C68DCA5B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:69C2273AEBC41E5DF7B49FAA7F729D0C68DCA5B0
 magnet:?xt=urn:btih:F3C148F5953669B8DE599B61D7A1575FCC3C018D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:F3C148F5953669B8DE599B61D7A1575FCC3C018D
 ```bash
 magnet:?xt=urn:btih:02A0D539B49220FF1A247B827441544172687C3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:02A0D539B49220FF1A247B827441544172687C3C
 magnet:?xt=urn:btih:F944E09056CF76CE6E81CCA87ED1CBB9E1A9310B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Alien Shooter: Последняя надежда - на мир обрушила�
 ```bash
 magnet:?xt=urn:btih:DD32A86E114E6DCC0B31F26A8CD44158FB6FF0D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Photo Translator v8.4.5 [Ru]
 magnet:?xt=urn:btih:5DA97613FE6E0BA065E945B311FBDBD94233CFCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ File Converter v12.1.14 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8A9C1D8AF0836D336E58A8C91F129890976031E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Picture Fish - Fish Identifier v2.2 [Ru/Multi]
 magnet:?xt=urn:btih:AC662988F83D054BD3502D4D8E91F83117477859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:AC662988F83D054BD3502D4D8E91F83117477859
 ```bash
 magnet:?xt=urn:btih:1DF1FFF4E4A1FBA098A67BE87EFC09B20F1B6E11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Blokada для Android - мобильное приложение для блок
 magnet:?xt=urn:btih:F0FF65C329FA14C2FF82C786E1B453A67950E05A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Measure Map - это приложение, поддерживающее каль
 ```bash
 magnet:?xt=urn:btih:F461AA63F0DCED6A181534CE7806BE28D09D4314
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Correct spelling v11.0 [En] - English learning app
 magnet:?xt=urn:btih:631F0D0A418BFC8EC3D2ADE3BD5945C1F1C31667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Get aCC_e55 – увлекательная головоломка на андр�
 ```bash
 magnet:?xt=urn:btih:8A58E8E851947E81D1CAAD0FC111A2EB5BEF39ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Shadow Fight 2 – файтинг от компании Nekki - Action and Fight
 magnet:?xt=urn:btih:8A2C2141C67871E1999CE71F85AEC448E76A7224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:8A2C2141C67871E1999CE71F85AEC448E76A7224
 magnet:?xt=urn:btih:A255B818FD8273548CE8778D1F073FEFE97F1745
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Eon Music Player Pro - это мощный и удобный аудиоплее�
 ```bash
 magnet:?xt=urn:btih:33D6D7163B1094AEBADB89EF064DDDDD139E3962
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ MuseScore v2.8.46 [Ru] - view and play sheet music
 magnet:?xt=urn:btih:B64DD436EC07239E4415792989A0244B736CF465
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Bike Tracker v2.3.05 [Ru/Multi] - Велокомпьютер (обновляем
 magnet:?xt=urn:btih:D5531DE00CB3C181992BF144CF283E50519DCC1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ WeNote - Заметки, задачи, напоминания и календа�
 ```bash
 magnet:?xt=urn:btih:9E4A7E7DFB33FCE432447941C82DAC18821F4273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

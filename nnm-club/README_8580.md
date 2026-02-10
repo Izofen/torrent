@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:36DE98EA9CD4C75BF2C703B389E063DE77CC9D27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Alan Wake's American Nightmare - экшен с элементами хоррор
 magnet:?xt=urn:btih:7A5E560088C434DBB56584D304BE4EBD93659BC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Windows XP Alternative v12.5.2 [RUS]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Crusader Kings 2 [Ru/En] (RePack/1.05e) 2012 | R.G. Catalyst
 magnet:?xt=urn:btih:D4004645071869987F625F503A2E11103EC42425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Grotesque Tactics 2: Dungeons & Donuts – увлекательная весьм
 magnet:?xt=urn:btih:31DF2C5E54FE247DF93C228C404F04204FFDD1CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:31DF2C5E54FE247DF93C228C404F04204FFDD1CE
 ```bash
 magnet:?xt=urn:btih:883CE3F7E0096741335C3FE0FD6A173C16109188
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Total Commander 8.0 Final x86+x64 [MAX-Pack 2012.5.4] Ru+En + тихая уст�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Total Commander 8.0 Final x86+x64 [MAX-Pack 2012.5.4] Ru+En + тихая уст�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Total Commander 8.0 Final x86+x64 [MAX-Pack 2012.5.4] Ru+En + тихая уст�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Total Commander 8.0 Final x86+x64 [MAX-Pack 2012.5.4] Ru+En + тихая уст�
 magnet:?xt=urn:btih:4DEB183A280EB1DE12CFD219DDE0871A13DFA196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:4DEB183A280EB1DE12CFD219DDE0871A13DFA196
 ```bash
 magnet:?xt=urn:btih:F38ACCAF5E656A06D8E0B3397556F3F12A238863
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:F38ACCAF5E656A06D8E0B3397556F3F12A238863
 magnet:?xt=urn:btih:ABB8CAFCA38722A875883C4E9BE19C1E4ED6255B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:ABB8CAFCA38722A875883C4E9BE19C1E4ED6255B
 ```bash
 magnet:?xt=urn:btih:C5C3134933D12DA2DBF39A1C2F73DD5D98B8E339
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Disappears - Pre Language (2012) [MP3|320 кб/с]<Post-Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:1558AE0BE37B33A4D950978E8FF83544878F52B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ Dimness Through Infinity - Nymph (2003) [FLAC|Lossless] <Atmospheric Doom Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +442,8 @@ Truбкамиrа (Трубкамира) — Рас100яние (2011)[MP3|320 kbp
 magnet:?xt=urn:btih:CB2659633A6673AF507316FAFCD4E95B21DF1EA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +467,8 @@ magnet:?xt=urn:btih:CB2659633A6673AF507316FAFCD4E95B21DF1EA4
 ```bash
 magnet:?xt=urn:btih:87E56E7BEDAE95F7AA685A355A1DB87D00FC72C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +497,8 @@ magnet:?xt=urn:btih:87E56E7BEDAE95F7AA685A355A1DB87D00FC72C5
 ```bash
 magnet:?xt=urn:btih:83EF63BBE11E4E1B56F04B025E37EB5D321A1682
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +530,8 @@ Synkletos - Spiritual Alchemy (2011) [FLAC|Lossless] <Melodic Doom / Death Metal
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +566,8 @@ Gianluigi Trovesi Ottetto - Fugace (2003) /ECM/ [APE|Lossless]<Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +591,8 @@ Gianluigi Trovesi Ottetto - Fugace (2003) /ECM/ [APE|Lossless]<Jazz>
 ```bash
 magnet:?xt=urn:btih:46D6E84958FEBE4AAA4B166FEEB86BAE991738E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +625,8 @@ Tiesto - Tiesto's Club Life 269 (27.05.2012) [MP3|320 кб/с]<Progressive House
 ```bash
 magnet:?xt=urn:btih:CB6B333D7C43D8F21CF77874B22242ADE4C23FE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +661,8 @@ VA - The Official UK Top 40 Singles Chart (20.05.2012) [MP3|320 кб/с]<Рop, R
 magnet:?xt=urn:btih:3BB20B8CC43D12E13231E0F4037ABDA5FEC48B3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +689,8 @@ Wise Registry Cleaner - безплатная утилита для чистки 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ Wise Registry Cleaner - безплатная утилита для чистки 
 ```bash
 magnet:?xt=urn:btih:BDD80FF9094D30E7BFD7F95BC7BD646B15ED9A71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -699,6 +749,8 @@ Tristitia - 4 albums (1995-2002) [FLAC|Lossless] <Doom Metal, Gothic Metal>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

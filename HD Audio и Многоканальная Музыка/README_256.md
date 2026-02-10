@@ -1,3 +1,32 @@
+###  Публикация: 1093929   (930459) от 17.01.2017
+
+Камерный оркестр Латвийской государственной филармонии, скрипка В. Зариньш, дирижер Т. Лифшиц - Антонио Вивальди - Времена года (1977) [WavPack|192/32|tracks|Vinyl-Rip] <Classical, Baroque>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_930459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Концерт №1 Ми Мажор «Весна»
+01. Allegro  3:20
+02. Largo E Pianissimo Sempre  2:36(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:589C997DF13C3AB2E0145E339B178A345581DFFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 986285   (930906) от 14.02.2016
 
 Калинов мост - Дарза (1992) Not On Label [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:CA048C84A7B3E6E28B541B41379CA89C081A2C4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Pink Floyd - The Dark Side of the Moon (2003) 1973 [DTS 5.1 CD-DA|44.1/16|image+
 magnet:?xt=urn:btih:1C1EE1C70F09CF273920ECA5BF97E0E1BBF264F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA (Various Artists) - Greenpeace Rocks (1993) SNC [FLAC 2.0|192/24|image+cue|Vi
 ```bash
 magnet:?xt=urn:btih:D7E1B51AA84A88AA25A804CBFF584C8F30C0F778
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ Def Leppard - High'N'Dry 1981 (1984) Vertigo [FLAC 2.0|192/24|image+cue|Vinyl-Ri
 magnet:?xt=urn:btih:E1B6F5468CC3B0923BFE6B06257685E5D6D16A8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ Rainbow - Ritchie Blackmore's Rainbow (1975) Phonogram [FLAC 2.0|192/24|image+cu
 ```bash
 magnet:?xt=urn:btih:2DB2F78D40949239894E3EBFA48A132A840EA78A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ The Crystal Method - Divided By Night (Upmix) (2009) [DTS]<Breakbeat/Electronic>
 magnet:?xt=urn:btih:F5C059CC51ED6EE319A76CE477EF4C9FE3B1B993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +225,8 @@ Pink Floyd - Wish you were here (2011) 1975 [DTS 5.1 CD-DA|44.1/16|image+cue|SAC
 magnet:?xt=urn:btih:7D14AAB7C825E882A9F6D425B9A48896F330B719
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +250,8 @@ magnet:?xt=urn:btih:7D14AAB7C825E882A9F6D425B9A48896F330B719
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +280,8 @@ A4. Breakfast In America (2:39)(   Читать дальше...   )Жанр: Roc
 magnet:?xt=urn:btih:EADE775C4C119D980E8AC7E45A697BC49B26E0B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +309,8 @@ Europe - The Final Countdown (Upmix) (1986) [DTS]<ROCK>
 magnet:?xt=urn:btih:BBE10AAF1A8C964EA09FE536820BFC5823C6269C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +334,8 @@ magnet:?xt=urn:btih:BBE10AAF1A8C964EA09FE536820BFC5823C6269C
 ```bash
 magnet:?xt=urn:btih:1E7F4EC240E47DAE7840D372745C0DE32FF37E07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +364,8 @@ Michael Jackson - Thriller (1982) Japan [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Funk 
 magnet:?xt=urn:btih:BD5DDCE3A0B0C1C5A7A6E931DF6B17FD86F1A2C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +392,8 @@ Boney M - Ma Baker, Sunny, Daddy Cool (1977) Japan [WavPack 2.0|192/32|tracks|Vi
 ```bash
 magnet:?xt=urn:btih:CECA1DC88959E5B08A4C21111C5F6133239EBEB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +424,8 @@ Fiona Joy Hawkins (род. 1964) австралийская композитор
 magnet:?xt=urn:btih:4FA2430EC69D99EE7C46050088112CC5F3335F12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +452,8 @@ A4   Action Lady  (3:01)(   Читать дальше...   )Жанр: Electronic
 ```bash
 magnet:?xt=urn:btih:BFDABC9F4D57F1675E28B397A9093B3754752951
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +482,8 @@ magnet:?xt=urn:btih:BFDABC9F4D57F1675E28B397A9093B3754752951
 magnet:?xt=urn:btih:42E23248726A484D194DA36E1C0BDE604537663C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +510,8 @@ Bee Gees - Size Isn't Everything (1993) [FLAC|24Bit/96kHz] <pop-rock>
 ```bash
 magnet:?xt=urn:btih:ACA23A69194F656517C72AC23134A407C7EEB865
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +540,8 @@ VA - RETROспектива, часть VII: Эстрадные оркестры 
 magnet:?xt=urn:btih:AAC92B358757DC74DAA57697AF19AE67F1EC7578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +568,8 @@ Supertramp - The Very Best Of (1992) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pr
 ```bash
 magnet:?xt=urn:btih:765744893737E078A9B71E1425439F59545B8026
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +598,8 @@ Dire Straits - Dire Straits (1978) Phonogram [FLAC 2.0|192/24|image+cue|Vinyl-Ri
 magnet:?xt=urn:btih:8AB81131B695136D0A311CD203087858A122DDC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +626,8 @@ Black Sabbath - Группа Блэк Саббат (1989) [FLAC 2.0|192/24|track
 ```bash
 magnet:?xt=urn:btih:B4F7CA1DFB055F827D8A4D5B3632AE2936C4CE02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +656,8 @@ VA - RETROспектива, часть V: Эстрадные оркестры V 
 magnet:?xt=urn:btih:F64EC1438CFF672E72B126F86D5C54F55209E3FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +684,8 @@ A4. I Wish It Would Rain Down (5:26)(   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:A83C0E242383563370901987D24639BC1F65DDE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +714,8 @@ A4. Stay by Me (6:26)(   Читать дальше...   )Производств�
 magnet:?xt=urn:btih:2F90EFB35DE2E7ADE63B7B4637B29FD79445BDAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,32 +743,7 @@ Yello - The New Mix In One Go (Upmix) (1980-1985) [DTS]<Electro, Synth-pop>
 magnet:?xt=urn:btih:DCBAD84BED350E8EF134E553B31CE8B0A25A0EC0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089953   (948549) от 05.01.2017
-
-Chris Rea - 9 Albums (1979-1989) [WavPack 2.0|192/32|image + .cue|Vinyl-Rip] <Pop-Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948549.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Road To Hell (Part I)
-A2 The Road To Hell (Part II)
-A3 You Must Be Evil
-A4 Texas(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 07:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FAB54180658E49682BA09E4CE562340867C4279
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

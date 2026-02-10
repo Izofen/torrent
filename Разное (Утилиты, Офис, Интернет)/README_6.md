@@ -19,6 +19,8 @@ Dont Sleep - утилита, которая временно может откл
 magnet:?xt=urn:btih:D57ACD1CC6CB2CE090516E3CC1AB674FD752E80E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Start Menu X — профессиональная замена системно�
 ```bash
 magnet:?xt=urn:btih:9369A52B1FB6AF46F837638AF0CC13EBBAFB4278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ DVDInfo - программа для быстрого получения инфо
 magnet:?xt=urn:btih:2D30CB99B87F10DC4538F93EC75A6F17F699940D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ ScrollNavigator - программа, которая поможет вам пр�
 magnet:?xt=urn:btih:B70FA90EEEE9E7A8C2DF0F383DE16EB1E361552D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ TreeSize Free 4.7.3.550 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B9592DC34A0D95DFC2DA6C68FE69BDEDFDA9FB43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Windows EducationPack - все для образования и организа
 magnet:?xt=urn:btih:266069F848FA5B9AD8B279784508645B47377B48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Snooper - программа-шпион по-тихому пишет все зв
 ```bash
 magnet:?xt=urn:btih:0E9990F4823AF1E4F69AD5707CC944A544D7A2A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Delete.On.Reboot - небольшая и эффективная бесплатн
 magnet:?xt=urn:btih:72C72ADF4B323F718D02ED024DE138DE0DB34427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ NewFileTime 7.21 Portable [Multi/Ru]
 magnet:?xt=urn:btih:F35FEB4BE8FD3D73F771C113C23E8226AB2DB201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ AutoPowerOptionsOK — небольшая по размеру утилита, п
 ```bash
 magnet:?xt=urn:btih:AC17AA40C4633D957AB399FFF5146CD4978B3DEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Unlocker 1.0.2 Portable by Eject [Ru]
 magnet:?xt=urn:btih:D7CD3EAEC651D3BE2E9767E7C4F02039D9331CBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Winstep Nexus — красивая бесплатная панель с крас
 magnet:?xt=urn:btih:190E8F927AB252EC7702E30B41602354B1CEC3DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Hasleo Windows ISO Downloader 2.0 Portable [En]
 ```bash
 magnet:?xt=urn:btih:5A2475FB5C323244BB2EB6DA1437CC0CBC4DD843
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Free Alarm Clock — бесплатный, многофункциональны�
 magnet:?xt=urn:btih:E89B8ED472E852202E8FA3693287F1E1913918CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Hot Alarm Clock позволяет настроить будильник так,
 ```bash
 magnet:?xt=urn:btih:849A5A6E66A866F79E5C6B5846634EC3CC1A1806
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ ASUS Armoury Crate — это программная утилита, предн�
 magnet:?xt=urn:btih:EDA6C684D1C940B5FEDC5895B152E6807DDBA7CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ AutoHideDesktopIcons - небольшая и простая в использо�
 ```bash
 magnet:?xt=urn:btih:54F16AF2F579698140A36312148217E8D52580EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ TheAeroClock - портативная программа, благодаря к�
 magnet:?xt=urn:btih:0840B749A09A3FBAF5D1D303C4C573CAE252E4DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ iVentoy — новая утилита для Windows и GNU, позволяющ�
 magnet:?xt=urn:btih:A02E6BF4386F44457C25816B24657B4E8FF51796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ StopUpdates10 – бесплатная утилита для Windows 10 и Windo
 ```bash
 magnet:?xt=urn:btih:42692A67882A9548D87264FF0ABFC48ECE263C0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ GetWindowText - маленькая и портативная программа,
 magnet:?xt=urn:btih:C0659FEAC4B030C10BF0569ABC01B12205054082
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Edge Blocker – бесплатная портативная утилита дл
 ```bash
 magnet:?xt=urn:btih:240E2E4C234865EC87EEAAACE941BCCE7D8EB62B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ PointerStick 6.35 Portable [Multi/Ru]
 magnet:?xt=urn:btih:9418C9D4C9E3F3A969543E23F6B672EE0EDE2BB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:9418C9D4C9E3F3A969543E23F6B672EE0EDE2BB0
 ```bash
 magnet:?xt=urn:btih:DDC4963AD43C1BE8C7CCEA5BEB86878D903CC7DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Desktop.Calendar.Tray.OK 4.06 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:EC21E866F61F4E2460D9DD0FAB46207224B7C0C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Print.Test.Page.OK - это альтернативная портативная 
 ```bash
 magnet:?xt=urn:btih:0D0A82C7D07907E47A69A92427EF2B9D6244C6FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

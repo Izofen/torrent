@@ -19,6 +19,8 @@ Soft Organizer Pro 10.1 [Multi/Ru]
 magnet:?xt=urn:btih:DD86DDCC3A9D7DF87E1429187EE9314F676ACAFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Gekijouban Mononoke: Karakasa | Mononoke the Movie: The Phantom in the Rain | М
 magnet:?xt=urn:btih:847D07D77FC7A1F871CED75A0E6E24A3929AB0CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:357C24DE208A1D2145DFB7A71B9E133A74955491
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Fatboy Slim - Right Here, Right Then (A Big Beach Boutique Celebration) (2022) C
 magnet:?xt=urn:btih:82395425D9228C15910E6FA679EFE13C5D71D2FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:82395425D9228C15910E6FA679EFE13C5D71D2FB
 ```bash
 magnet:?xt=urn:btih:CA5F9F53751ED930D857869601F7F42BD46A6618
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:CA5F9F53751ED930D857869601F7F42BD46A6618
 ```bash
 magnet:?xt=urn:btih:9CA4D89C34AC67F15A7B5CBEFE8F7F66347D0E85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Beans & Fatback - Hold Fast (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Ro
 magnet:?xt=urn:btih:5564E1041A584774F1C5790C53857B5635DB22B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Dreamland — группа из Швеции, играющая в стиле м�
 ```bash
 magnet:?xt=urn:btih:CEB62A4D72FF04AC9CFEBF47D5A2FBE15E9213F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ VA - Uplifting Only Episode 626 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
 magnet:?xt=urn:btih:5AB80E4BEF608E8F9E416036A4B1417530993C3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Beans & Fatback - Hold Fast (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:9F96DC1C148017E9A1C742F2043BFACEA0448522
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ John Hicks & Elise Wood - Beautiful Friendship (2000) Hi Wood [FLAC|Lossless|tra
 magnet:?xt=urn:btih:CCC4F596375DD857C13F02E61E17A0F7EFC0671B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ Pentagram - Lightning In A Bottle (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom Met
 magnet:?xt=urn:btih:9A5415EBBCE94AAF45F6C8055C2CCACBB8BB8A90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:9A5415EBBCE94AAF45F6C8055C2CCACBB8BB8A90
 ```bash
 magnet:?xt=urn:btih:529E7273D89640D42C0EFDA52566AD8C1CF1BF14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +382,8 @@ Art Farmer Quintet - Live At Sweet Basil (1992) 1994, Evidence [FLAC|Lossless|tr
 magnet:?xt=urn:btih:693DD8CE09FA8BCDE8A4CF85F2849F602D593ED5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ magnet:?xt=urn:btih:693DD8CE09FA8BCDE8A4CF85F2849F602D593ED5
 ```bash
 magnet:?xt=urn:btih:2C138F05AD639FB756640526CAE02F9C9CD4A447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +439,8 @@ VA - The Orient Collective: Dunes & Dreams (2025) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:FF6D199CD5F8DF21668644AE87BC563BF760D162
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:FF6D199CD5F8DF21668644AE87BC563BF760D162
 ```bash
 magnet:?xt=urn:btih:FC278B6D039072FC44ECA2238458E6973443398E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +494,8 @@ Majestica - Power Train (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic 
 magnet:?xt=urn:btih:4ADC7DE29F1BE887B28C2CFA05D59B671EF1A42F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +523,8 @@ VA - Armin van Buuren - A State Of Trance 1211 (2025) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:FD8F92E19ADABAB6F6C24A82F4A1FF5BB9CD3DC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +550,8 @@ Bulleto Typewriter переносит редкую индивидуальнос�
 ```bash
 magnet:?xt=urn:btih:631C13820B814947F9C403B316AEFE5059589AC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +580,8 @@ Vargas Blues Band - Blues The Healer (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 magnet:?xt=urn:btih:C1B473F50AE3039CE8EDB11AFC03C247FF3B42AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +608,8 @@ magnet:?xt=urn:btih:C1B473F50AE3039CE8EDB11AFC03C247FF3B42AC
 ```bash
 magnet:?xt=urn:btih:8CE8F9DCF1DDB8FB0A586533D5EC7256A0341A01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +638,8 @@ Majestica - Power Train (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Me
 magnet:?xt=urn:btih:3547DCCAD51C6DCC8EF6E098442C96310EBF41BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +667,8 @@ Sellout - Все, во что я верю, Сторона А (2025) [MP3|320 Kbp
 magnet:?xt=urn:btih:95247CFA408B1C955AB519D0656D61C15F787E31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +692,8 @@ magnet:?xt=urn:btih:95247CFA408B1C955AB519D0656D61C15F787E31
 ```bash
 magnet:?xt=urn:btih:1C03EBE12DB62EDD2DEED7FA336B343712C35670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +720,8 @@ Rhumba начинался как оцифровка киношрифта от Le
 ```bash
 magnet:?xt=urn:btih:47240DA5D3B20BC7FC1921C05FE8DB5FAE6F0E7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

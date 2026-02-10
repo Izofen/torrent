@@ -1,3 +1,32 @@
+###  Публикация: 1464889   (1019213) от 25.04.2021
+
+Александр Барышев | Биофакер (2020 (с редакцией 2021)) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019213.jpg" />
+</div>
+
+
+###  Подробнее
+
+ОБНОВЛЕНИЕ 2021: Книга больше на 25-30%: больше конкретики, графиков и уточнений! Так как западный мир декриминализует некоторые запрещенные вещества - разобрал их подробнее. Добавлены комбинации из ноотропов + еще больше про управление гормонами!
+Больше 450 научных источников и 1,5 года работы над книгой (с обновлением от 2021 года уже 544 источника)
+
+Фундамент (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7454DC3A825317E16F1C059C66DF861B11CA4EF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465192   (1019228) от 25.04.2021
 
 Джейн Бурка, Ленора Юэнь | Прокрастинация: почему мы всё откладываем на потом и как с этим бороться прямо сейчас (2020) [EPUB]
@@ -19,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:416446CBC55A840BA6F47DD9AC7F77A2DE56D98A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +75,8 @@ magnet:?xt=urn:btih:416446CBC55A840BA6F47DD9AC7F77A2DE56D98A
 magnet:?xt=urn:btih:C35634C3851BDB56C0E3166DE6093A8829945C01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +100,8 @@ magnet:?xt=urn:btih:C35634C3851BDB56C0E3166DE6093A8829945C01
 ```bash
 magnet:?xt=urn:btih:019187C6D8910F6E32CC46E6DA81164C9F63FCFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +128,8 @@ magnet:?xt=urn:btih:019187C6D8910F6E32CC46E6DA81164C9F63FCFC
 magnet:?xt=urn:btih:EACBC8B563DBB0FDB2A11C0C1AB40D4D1D019453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +153,8 @@ magnet:?xt=urn:btih:EACBC8B563DBB0FDB2A11C0C1AB40D4D1D019453
 ```bash
 magnet:?xt=urn:btih:7C75435023181EC077419AED9670DF55CCECD445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +180,8 @@ magnet:?xt=urn:btih:7C75435023181EC077419AED9670DF55CCECD445
 magnet:?xt=urn:btih:0F29DC3611D4E3A4CD45CCF5C54F4AC3CE2866CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +205,8 @@ magnet:?xt=urn:btih:0F29DC3611D4E3A4CD45CCF5C54F4AC3CE2866CC
 ```bash
 magnet:?xt=urn:btih:A0DD96AE12B5B2BDB67DF5210310BCF224AB0DD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +233,8 @@ magnet:?xt=urn:btih:A0DD96AE12B5B2BDB67DF5210310BCF224AB0DD1
 ```bash
 magnet:?xt=urn:btih:9AA7DEF57D23CDEEFB5872CA64BA63CEB1C21E57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +263,8 @@ magnet:?xt=urn:btih:9AA7DEF57D23CDEEFB5872CA64BA63CEB1C21E57
 magnet:?xt=urn:btih:EEB936878F1575F37034C4C72F7AFB860B8CC031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +288,8 @@ magnet:?xt=urn:btih:EEB936878F1575F37034C4C72F7AFB860B8CC031
 ```bash
 magnet:?xt=urn:btih:53BA226EE117D2C656D4A4D52BCB363AB5956897
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +315,8 @@ magnet:?xt=urn:btih:53BA226EE117D2C656D4A4D52BCB363AB5956897
 magnet:?xt=urn:btih:5D4317CD1887C5084F172C825B96BAC79AA41891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +340,8 @@ magnet:?xt=urn:btih:5D4317CD1887C5084F172C825B96BAC79AA41891
 ```bash
 magnet:?xt=urn:btih:EDBFD7552ABEE318680496054BC4C15436FD5768
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +367,8 @@ magnet:?xt=urn:btih:EDBFD7552ABEE318680496054BC4C15436FD5768
 magnet:?xt=urn:btih:46C2AEE0EC098E3178A6343B77B6D53361EC2700
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +392,8 @@ magnet:?xt=urn:btih:46C2AEE0EC098E3178A6343B77B6D53361EC2700
 ```bash
 magnet:?xt=urn:btih:3AA6E5575D8A30AD1EE163F26EB40F63DD9FA4B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +419,8 @@ magnet:?xt=urn:btih:3AA6E5575D8A30AD1EE163F26EB40F63DD9FA4B3
 magnet:?xt=urn:btih:63B358257A795F4A52F0A5BCE251CF32D220A615
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +444,8 @@ magnet:?xt=urn:btih:63B358257A795F4A52F0A5BCE251CF32D220A615
 ```bash
 magnet:?xt=urn:btih:E135B4FC6F4977183E8141673DB016099C7F120C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +471,8 @@ magnet:?xt=urn:btih:E135B4FC6F4977183E8141673DB016099C7F120C
 magnet:?xt=urn:btih:DF6C4FB22984CA00FA5E1D04E5C389311F54E5E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +496,8 @@ magnet:?xt=urn:btih:DF6C4FB22984CA00FA5E1D04E5C389311F54E5E4
 ```bash
 magnet:?xt=urn:btih:39B30969BD43E293827FDEE788D2ED4BC06256C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +523,8 @@ magnet:?xt=urn:btih:39B30969BD43E293827FDEE788D2ED4BC06256C5
 magnet:?xt=urn:btih:F703B424440F3C7C038929BD9F4D8CD974D0EE45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +548,8 @@ magnet:?xt=urn:btih:F703B424440F3C7C038929BD9F4D8CD974D0EE45
 ```bash
 magnet:?xt=urn:btih:A383197CBE1491DCF95D5BFB5069BE2F82E31C83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +575,8 @@ magnet:?xt=urn:btih:A383197CBE1491DCF95D5BFB5069BE2F82E31C83
 magnet:?xt=urn:btih:E7B1934F018A0ACBE6EA5C5CED1000520A4F7BB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +600,8 @@ magnet:?xt=urn:btih:E7B1934F018A0ACBE6EA5C5CED1000520A4F7BB2
 ```bash
 magnet:?xt=urn:btih:8B0B4FE58DDE27EBDCF0B3FD544BBA19116F308D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +629,8 @@ magnet:?xt=urn:btih:8B0B4FE58DDE27EBDCF0B3FD544BBA19116F308D
 magnet:?xt=urn:btih:766BB06041ED28FCB83DC88A571CA6431738D8BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +657,8 @@ magnet:?xt=urn:btih:766BB06041ED28FCB83DC88A571CA6431738D8BC
 magnet:?xt=urn:btih:203B9C702CFDF706851C94DD7FFADD7FAEF16413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,29 +683,7 @@ magnet:?xt=urn:btih:203B9C702CFDF706851C94DD7FFADD7FAEF16413
 magnet:?xt=urn:btih:95AD8167215690B12372A912B335CF9E132A94BC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463297   (1020677) от 17.04.2021
-
-В.В. Артёмов | Православные чудеса (2006) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Светлые, благодатные, всегда нежданные и радостные чудеса издревле свершались у мощей святых, в храмах и кельях, на путях паломнических странствий. В ответ на искреннюю и сердечную молитву люди получали исцеление, чудесное избавление от бед и скорбей. Но не только в прошлом происходили такие события, и в наши дни (причём особенно часто в России последнего десятилетия) (   Читать дальше...   )Жанр: Православие. Научно-популярное изданиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E818B246F7AE3A8BF7CE401265FFCB3A6DB58707
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

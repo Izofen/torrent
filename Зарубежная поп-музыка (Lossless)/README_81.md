@@ -28,6 +28,8 @@ Amanda Somerville - Windows (2008) [FLAC|Lossless]<pop>
 magnet:?xt=urn:btih:3F4ED4A95E94B4D0E5ECC3CAA2FEC00C9477BAFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ DJ Bobo Greatest Hits Megamix:
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +96,8 @@ Kylie Minogue - Kylie (1988) Deluxe Edition, 2CD/2015, PWL Records/ [FLAC|Lossle
 magnet:?xt=urn:btih:C071474E0BC60FC88D98B12CF5C4E6F9334504C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +121,8 @@ VA - PRO FM Super Hits Vol. 1 (2014) [FLAC|Lossless]<Pop, Dancepop, Eurodance, H
 ```bash
 magnet:?xt=urn:btih:0D6DEFC605D9047289B8B198C08048DA81DFB59F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +152,8 @@ Shania Twain - Greatest Hits (2004) [APE|Lossless]<Country,Pop>
 magnet:?xt=urn:btih:6B00C639300B888AAD4B0B4986A5BEFE0DB35F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +180,8 @@ VA - Dance Your Ass Off (Salsoul Remixes) (2013) Remixes+Continuous Mix [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:9471EAF2981638EC3AE40552C9A3498F0A461F97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +210,8 @@ Arabesque - Grand Collection (2004) [FLAC|Lossless|tracks + .cue] <Europop, Disc
 magnet:?xt=urn:btih:6EAD9B7E571016505D39BD025DB931C83C0E649F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +239,8 @@ Nena - Oldschool (2015) [FLAC|Lossless|WEB-DL]<Pop, Pop Rock, New Wave>
 ```bash
 magnet:?xt=urn:btih:571BE903FE384B3A5EE2C6CE7B35BB7968E3EB6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +275,8 @@ VA - NRJ Snow Hits (2014) [FLAC|Lossless|2xCD]<Pop, Dance>
 magnet:?xt=urn:btih:396DCAC2A0F4F170C182E31F020D92C1AB79B6AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +309,8 @@ George Michael - Symphonica (Deluxe Edition) (2014) /Scene/ [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:EB2AE53C762B497EF2EFEF56D33495D4F3B8D36D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +345,8 @@ Enrique Iglesias - Sex and Love (2014) /International Deluxe Edition/ [FLAC|Loss
 magnet:?xt=urn:btih:C9024ABCE209DB2421AD906AED1361C13AE3B55F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +379,8 @@ Julio Iglesias - 12 Albums Collection (13CD • 1980-2006 • Non-remastered) [W
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +415,8 @@ Kylie Minogue - Kiss Me Once (2014) Special Edition [FLAC|Lossless]<Pop>
 magnet:?xt=urn:btih:33AE1DEC0775BB0CFFB9B8C234256EC9EA1E76E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +450,8 @@ Kylie Minogue - Kiss Me Once (2014) [FLAC|Lossless]<Pop, Dancepop>
 magnet:?xt=urn:btih:8238BD33B7697339AF27F8FB7BAEAD5FB2E3DEF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +480,8 @@ Purity Ring - Another Eternity (2015) [FLAC|Lossless]<Electronic, Indie Pop>
 magnet:?xt=urn:btih:54C3EF6288E94C0914A3DA5422A641423FD0228A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +508,8 @@ Annie Lennox - Cold + (1992) 3CD Box set, Singles, Japanese Edition, 1993, BMG V
 ```bash
 magnet:?xt=urn:btih:C71C6843F58CD3462384C95A9C23368624578907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +538,8 @@ She Is We (ex. He Is We) - War (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative
 magnet:?xt=urn:btih:53DAA8BF13161F520A1C52E84472FB872CDADFE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +567,8 @@ The Weeknd ‎ - After Hours (2020) [FLAC|Lossless|tracks + .cue] <R'n'B, Pop>
 magnet:?xt=urn:btih:99698FC10052AF26513C96EEC7A71C5D3F6A6900
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +595,8 @@ Falco - Falco 60 (2017) Limited Premium Edition [FLAC|Lossless|tracks + .cue] <P
 ```bash
 magnet:?xt=urn:btih:D861DA4C60D3E86AC1EB9B02F0EA3A019BDB6013
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +627,8 @@ VA - Number 1's: The Ultimate Collection (2014) Box Set, 5CD [FLAC|Lossless|trac
 magnet:?xt=urn:btih:C8B0AC665CC8148300FBAD9486FA3E04D17A41CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +655,8 @@ Gwen Stefani - This Is What The Truth Feels Like (2016) International Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:7D51668A014ED8AE8937D50FE59CA561D41FD191
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +685,8 @@ VA - Radio 538: Hitzone 68 (2014) 2CD [FLAC|Lossless]<Pop, Dance>
 magnet:?xt=urn:btih:05675B27F50942A0F28FC20E221CFE3BCE476455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +713,8 @@ Supermax - 25 Years Of Magic Dance Music 1977-2002 (2002) Limited Edition, 6CD B
 ```bash
 magnet:?xt=urn:btih:812DA548EFBA97A3DB482CBA4116B9989B1654C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -703,6 +749,8 @@ Greyson Chance - Hold On 'Til The Night (2012) /Special Asia Edition/ [FLAC|Loss
 magnet:?xt=urn:btih:73B33F75EE14A925F73E0840406B17F99FA676D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -729,6 +777,8 @@ VA - Best Of The 90s (2016) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:7C9D3E5221FFE41B232344C4E0A546CDDF2C2273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -758,6 +808,8 @@ VA - The Greatest Ever! Love Songs (2014) 3CD [FLAC|Lossless]<Pop, Rock, Contemp
 ```bash
 magnet:?xt=urn:btih:5CB9AB50DFF6D06697154C23985F722E9D71EF21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

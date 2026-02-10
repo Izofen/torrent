@@ -20,6 +20,8 @@ Fstoppers | Введение в видео -  Руководство по кин
 magnet:?xt=urn:btih:5901E95232AD2619871CAFA3864870EFF2CD1250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Dvxuser | Освещение для кино и телевидения (2019) PC
 magnet:?xt=urn:btih:2A8C8B83DE48C4CBFD29BA65AFB2F3A5E5293459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Udemy | Аве Кодер: Практический Курс по Продвин
 ```bash
 magnet:?xt=urn:btih:1D4BD85A533258A34346DC21BB90A6F677EA4EC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Stepik, Иосиф Дзеранов | Алгоритмы поиска и сор�
 magnet:?xt=urn:btih:12E67DA6605A7B9B8B9D734A183FE6F7A6F0F447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Zero To Mastery Academy (ZTM), Jayson Lennon | Rust Programming: The Complete De
 ```bash
 magnet:?xt=urn:btih:7DCC5D68445445FB41F3A16140496A4434E9BD4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Angular и Spring Boot - две из самых популярных техно�
 magnet:?xt=urn:btih:8A4E9356522067E143200135DA7FCE1AD78C4603
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Udemy,  Dr. Angela Yu  | 100 Days of Code - The Complete Python Pro Bootcamp for
 magnet:?xt=urn:btih:4A0A3A09A268B9DA566B82EA89EBF413002BEE86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Unity - это невероятный 3D-пакет, используемый д
 magnet:?xt=urn:btih:3DC8E8207722880D3BF57B8CA0C6F19FE115594F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:3DC8E8207722880D3BF57B8CA0C6F19FE115594F
 ```bash
 magnet:?xt=urn:btih:0125282CA305F7FB6C20D2A91E9E5E35B0F65DEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:0125282CA305F7FB6C20D2A91E9E5E35B0F65DEC
 magnet:?xt=urn:btih:51C1E98892EAEA6CB38A0971C0CD17FDFD2A1A1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:51C1E98892EAEA6CB38A0971C0CD17FDFD2A1A1C
 ```bash
 magnet:?xt=urn:btih:87AD86765DD2BDEC6936387A0FDFE6CF2FD92DD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ Angular разрабатывалась Google почти десять лет. У
 magnet:?xt=urn:btih:EF923E8BE56DD2B102253C94333D893466454578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:EF923E8BE56DD2B102253C94333D893466454578
 ```bash
 magnet:?xt=urn:btih:6FC2C60E76C547260F61AE4F2894CE82398BFAF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ MakeWeb | Практический курс «Javascript Fullstack разраб�
 magnet:?xt=urn:btih:470FC7D19C88E2D52A243722484367D19E29FE90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ Udemy, ZTM Academy, Andrei Neagoie | The Complete Junior to Senior Web Developer
 ```bash
 magnet:?xt=urn:btih:FA56DA34EA78D11B4491458E10207CFB06B8B3E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:FA56DA34EA78D11B4491458E10207CFB06B8B3E9
 magnet:?xt=urn:btih:4D0708CD46990F40D49FEF8EE4359B54876CDFBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ Udemy, Stephen Grider | React и Typescript: создание портфолио
 magnet:?xt=urn:btih:40CD10197A99945B89DA5758B834D26C6B853422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ Flatlay - это съёмка с верхней точки, вид сверху.
 ```bash
 magnet:?xt=urn:btih:83120A4DF411FF768CF330493F8092774B1C5BA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:83120A4DF411FF768CF330493F8092774B1C5BA9
 magnet:?xt=urn:btih:DE6307F1A30EC797A58BC598A40C04D552D89504
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:DE6307F1A30EC797A58BC598A40C04D552D89504
 ```bash
 magnet:?xt=urn:btih:150554278AE7BC1ABE2540CA67B95A77EFEA3B07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:150554278AE7BC1ABE2540CA67B95A77EFEA3B07
 magnet:?xt=urn:btih:01AE01009C34F1195171E3AB0943299F303FC582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:01AE01009C34F1195171E3AB0943299F303FC582
 ```bash
 magnet:?xt=urn:btih:FF57B8D5AD1C2A2A8AB2B527B3606AB411B79B82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:FF57B8D5AD1C2A2A8AB2B527B3606AB411B79B82
 magnet:?xt=urn:btih:443EA70ECC6B0945C239AECE085604ED1E49299A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ Smirnov School, Марина Пахомова | Рисование в Procreate 
 magnet:?xt=urn:btih:642CCFD32B152EDE9471B192A6267CDF3C72629A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ Total TypeScript Core Volume подходит для любого разрабо
 magnet:?xt=urn:btih:DEDBB759755F7B9727F69231BF24DAF0CD379205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ OTUS, Наталья Науменко | Супер-интенсив "CI/CD ил�
 ```bash
 magnet:?xt=urn:btih:64F9F1DE6A71010E0A8E212801A6EE30040E8227
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Sovereign Syndicate (2024) [Ru/En] (1.1.11) Repack Wagner
 magnet:?xt=urn:btih:965627A24EE2973840BDC697CBCEFBD1740235E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Neckbreak (2019) [Ru/Multi] (1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:40C2ECF3B7DB22A1532D5474487E35A532D30525
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sniper Ghost Warrior Contracts 2 - самая сложная игра в про�
 magnet:?xt=urn:btih:E703FB7C53396B20C5196FD2416B2EE3CF7D2F18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Rogue Prince of Persia – экшен-платформер в жанре rog
 ```bash
 magnet:?xt=urn:btih:81E95FB4745665444D034E9E1C65A4FA25DF95AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Deep Inside (2024) [En] (Build 16288203) Repack Other s
 magnet:?xt=urn:btih:3BD508A983E260EED1353CB6B01CCFA9AA892209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Hive Jump 2: Survivors - научно-фантастическая ролева�
 ```bash
 magnet:?xt=urn:btih:66E0752EF3B134A1D19C812084C4FC4E1721E05E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ ASKA - это ролевой экшен от 3-го лица, в котором 
 magnet:?xt=urn:btih:9938C4367ECCBA2FC4B9D99F4E5C9B56E7BB58CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Shredders (2022) [Ru/Multi] (Glacier/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:0F0812D429B2786110CACAA626043C1DFAF22DB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Town of Light повествует о девушке по имени Рен�
 magnet:?xt=urn:btih:A31F6D56CE6C4765514878760E7BE0B58F5CD4C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ KAKU: Ancient Seal предлагает стать на место Каку, г�
 ```bash
 magnet:?xt=urn:btih:9F19E15BD00D6F438B62A18C5FBFDCDAE3AAED50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ THE MULLER-POWELL PRINCIPLE (2023) [Ru/En] (1.1.5.9) Repack Let'sРlay
 magnet:?xt=urn:btih:97FCA364F7ED091A8C7A343B7C80C85AF130E3F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Half-Life 2 официально исполнилось 20 лет, и по сл�
 ```bash
 magnet:?xt=urn:btih:C35115AF82BEF109EC0C3B636C3EDF31F0F20C68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Half-Life 2 официально исполнилось 20 лет, и по сл�
 magnet:?xt=urn:btih:0CF3E406C6380E596CB8C02D0E44C301FE5F89E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Cypress Ridge - 28 сентября 1999 г. Вернитесь к началу 
 ```bash
 magnet:?xt=urn:btih:3289CFC6647CA006A86ECF260DA9A9CC3CEC67B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Pacific Drive - это атмосферное автомобильное при�
 magnet:?xt=urn:btih:0E3C23BEEAFA37B6973DB8F883A3BFF9FEC69D90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Concordia (2021) [Multi] (1.3.6/dlc) License GOG [Digital Edition]
 ```bash
 magnet:?xt=urn:btih:C4C7BFFF343A4681775FA30A2CD5B377421E3C40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ House Flipper – увлекательный и интересный в своё
 magnet:?xt=urn:btih:7465FD0EB8EA1E24EE7CBF7D32AD27428FD93591
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Beyond The Darkness - это мрачная история, которая ок�
 ```bash
 magnet:?xt=urn:btih:FE7B045C46185E602AE7C040710CE203CE0739D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Be Your Cat (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:A281A58A5633D822E8097A7279D50E0BC14EDEE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Beyond The Edge Of Owlsgard (2022) [Multi] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:D47AC1AC89730C44BEF83FF6BD065985102F9CF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Rauniot - приключенческий квест, представленны�
 magnet:?xt=urn:btih:930593D59FB601A7C6A5B13312F10A4D0A17179B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Beat Hazard Ultra - это ни на что не похожая игра, кот
 ```bash
 magnet:?xt=urn:btih:2DDC1C4ACABA9838092C876D920AE19BC9E363E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ El Hijo - A Wild West Tale – это увлекательная игра в с�
 magnet:?xt=urn:btih:D461BDA6BDD9BF2C46E1BAB2A41DE7ACDF16EE49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Frontier Hunter: Erza's Wheel of Fortune (2022) [Ru/Multi] (1.1.02/dlc) Repack L
 ```bash
 magnet:?xt=urn:btih:9AF979CA2E109E4B530D05EA6AEABA88EAB498EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.80/dlc) Scene FairLight
 magnet:?xt=urn:btih:51D86616DC40A796ABC880BE8CC9E4DBF4CA2CBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Slay the Princess (2023) [Ru/Multi] (1.0z) License GOG [The Pristine Cut]
 ```bash
 magnet:?xt=urn:btih:5EE16D1E8B0C5BD17C90C6F6DAA510F2073271EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

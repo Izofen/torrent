@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:E8D0EB22F10BC379B4216B20E669DA47CE564F6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:E8D0EB22F10BC379B4216B20E669DA47CE564F6C
 ```bash
 magnet:?xt=urn:btih:9B3BA764E3940753D2EC33DCBA4D04075232E3E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Finding Paradise (2017) [En/Ch] (1.2c) License GOG
 magnet:?xt=urn:btih:9D2A3846813F18F7CA4A00F73BEB0B6977016BAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Yagate Kimi ni Naru / Bloom Into You / В конечном счёте я ста�
 ```bash
 magnet:?xt=urn:btih:87A16437C39439E0B3E0AFD8BB103312DEF8800B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Darkest Dungeon - сложная пошаговая ролевая roguelike-и�
 magnet:?xt=urn:btih:7493EEC032159C56D1C4F1E3CCE6ECC05D2029C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:7493EEC032159C56D1C4F1E3CCE6ECC05D2029C2
 ```bash
 magnet:?xt=urn:btih:759802C1438100F403EE6723D85F9492B0281F80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:759802C1438100F403EE6723D85F9492B0281F80
 magnet:?xt=urn:btih:28B5A133FD72E90927D96CC9B9530953C01D90FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:28B5A133FD72E90927D96CC9B9530953C01D90FE
 magnet:?xt=urn:btih:344DF98F2C2AE58063715FC08AA0597D70338AB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Irozuku Sekai no Ashita kara | Iroduku: The World in Colors | Из завтра�
 ```bash
 magnet:?xt=urn:btih:02F37040B4E973807AB9A61C554FA97C116F7183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:02F37040B4E973807AB9A61C554FA97C116F7183
 magnet:?xt=urn:btih:166D3B1A9598E533EF9EE68E276D795AD6343F30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ MIT GEOMATICS LTD представила новый формат карт для
 magnet:?xt=urn:btih:2C8FAA3CB05F7A53A76A9DE5FCC84280B044E429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:2C8FAA3CB05F7A53A76A9DE5FCC84280B044E429
 ```bash
 magnet:?xt=urn:btih:60844B609355C99C2A4C785FB2DCF06C70BE77E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:60844B609355C99C2A4C785FB2DCF06C70BE77E2
 magnet:?xt=urn:btih:EA49EBDFD69FCF0CF403383A4E9F3DE0E76E2F65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ proDAD Mercalli V4 Plugins - лучший видео стабилизатор, �
 magnet:?xt=urn:btih:3A817AD77EC15DF8934A7B81D7C0E7F4B09AD5A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:3A817AD77EC15DF8934A7B81D7C0E7F4B09AD5A1
 ```bash
 magnet:?xt=urn:btih:27A920E03D201F0837D0B7AE340EBA80442E4595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:27A920E03D201F0837D0B7AE340EBA80442E4595
 magnet:?xt=urn:btih:5FA3045E644277E77EDB5564188528DC77096D49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Navitel / Навител Навигатор v9.6.1978 RePack [Ru/En] - толь�
 ```bash
 magnet:?xt=urn:btih:3811A7082973EAB3315288A4A1FBA074A28C11B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Duke of Alpha Centuri – космический шутер с красочно�
 magnet:?xt=urn:btih:0359144B9001493E065463EA9D8FFF9CA5917FEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:0359144B9001493E065463EA9D8FFF9CA5917FEC
 magnet:?xt=urn:btih:4B05FFEF91D531328B1271F4CDAE50042F45A0F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:4B05FFEF91D531328B1271F4CDAE50042F45A0F2
 ```bash
 magnet:?xt=urn:btih:F2314098023A4080A20F37C8B3FD7F0B6EA18EB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:F2314098023A4080A20F37C8B3FD7F0B6EA18EB3
 magnet:?xt=urn:btih:0A64009F7DEB3170CC911449396897922A40B548
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:0A64009F7DEB3170CC911449396897922A40B548
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ uTorrent 3.5.5 (build 44954) Portable by SanLex [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:019F141D7B554A75BC63B0FD9BDEBBC9EA31BB83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:019F141D7B554A75BC63B0FD9BDEBBC9EA31BB83
 magnet:?xt=urn:btih:BA4A53CE0E3DA0AD6F32C5354868FC4D0FB6218D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:BA4A53CE0E3DA0AD6F32C5354868FC4D0FB6218D
 magnet:?xt=urn:btih:300A5FC6115061BF8FAB399BA3FA0AFB4230E6A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:300A5FC6115061BF8FAB399BA3FA0AFB4230E6A1
 ```bash
 magnet:?xt=urn:btih:F48FE490654F0555EB8AD19F53F09A362A1575CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

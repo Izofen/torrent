@@ -19,6 +19,8 @@ IMMORTALITY (2022) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:ACDBE02A3E2C4EDF43B2C8E0A346466B8EAC1E65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ REVEIL (2024) [Ru/Multi] (1.0.3f4/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A804BDCD072961732C1798DBD895A8E64EE92803
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Saints Row (2022) [Ru/Multi] (1.1.2.4374033/dlc) Repack dixen18
 magnet:?xt=urn:btih:AEF98383B39C21711302927F7F6E3C7F53870E2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Evil Nun: The Broken Mask (2023) [Ru/Multi] (1.671) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FEFC0BC00D9530825EFE37B26985E06AA2BCDD35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Bunker 69 – приключенческая игра, что обладае
 magnet:?xt=urn:btih:3EC83A04B291508CE29E5AF5A2E7C21DDE1E8C10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Divine Invasion (2020) [Ru/Multi] (Build 20224638) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:CD2BBCE2BEA5CD2149105B6EE62222F7C465EED5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Villages & Dungeons (2025) [Ru/Multi] (10033/dlc) Repack Let'sРlay [Crystal Edi
 magnet:?xt=urn:btih:DF59411652450BC7090CC7E9C89C8A85460587B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Halloween Stories 9: The Death Card (2025) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:B761EBADF6876A1C9898046998782E86F965E115
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Unseen Fears 7: Inner Darkness (2025) [En] (1.0) Unofficial [Collector's Edi
 magnet:?xt=urn:btih:D753A9C4CAF048780DB5511A99AF7077D12A01C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Sun Haven – увлекательный проект, разработанны�
 ```bash
 magnet:?xt=urn:btih:75B6A34CA6CB5895D5140610CE7E95FFE57E26A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Ever 17 - The Out of Infinity (2025) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:54AECE2A3A74F89F0C27842D655B059D563DE074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ WYRMHALL: Brush and Banter (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3C92CBA8643AE240C6D2090704D505A449CF77EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Hungry Lamb: Traveling in the Late Ming Dynasty / Epiao: Ming Mo Qianli Xing
 magnet:?xt=urn:btih:4BC6FCF5ADC58BBD62193722CA74122DF2166E45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Papers, Please (2013) [Ru/Multi] (1.4.11.124) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:FC5B69103DAC4AD3A5210DA3F9AF8E8F6FAD426F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Teardown – симулятор проведения ограбления в р�
 magnet:?xt=urn:btih:AB5B3FF825CB415F793887FFF39DEF69E16ABC74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Teardown – симулятор проведения ограбления в р�
 ```bash
 magnet:?xt=urn:btih:07682DCC4E3A54CEB772E4CDFEE6F0FE245F7FD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Tesla Effect: A Tex Murphy Adventure рассказывает о приключ�
 magnet:?xt=urn:btih:366EE537612133B8B1BAE1488817DF79F669E555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Warhammer 40,000: Rogue Trader – это изометрическая роле�
 ```bash
 magnet:?xt=urn:btih:CAA01CA5E08FBE7CF44478C30BFDFF6E2FE201B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Sally Face (2016) [Ru/Multi] (1.5.44) Repack EXROW
 magnet:?xt=urn:btih:D535CC94DE880F8BFCE7037C4BA93D4EB55429A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Leafing Home - это уютное приключение, которое пер
 ```bash
 magnet:?xt=urn:btih:114B57CCE602B925E6059C64ED08B3311EE484AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Castle Crashers - двумерный платформер от студии Behe
 magnet:?xt=urn:btih:190CE860BB8A48E3B86BB9B169C1F3EEAF543479
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.0.3.1) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:D5FF6C3B0A9C52248611204665992EBE058651A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Firefighting Simulator: The Squad (2020) [Ru/Multi] (1.0.41.0) Repack FitGirl
 magnet:?xt=urn:btih:6B018821940AD26C0BD1D0645B87492806022BC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Delivery INC (2023) [Ru/Multi] (1.8.3/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:383D930444D3E4B53B5C49104ADA8E6AC30D1565
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Synergy – это градостроительный симулятор в су
 magnet:?xt=urn:btih:D98FE8FDA55CACD6584D1DC25AB67BA8E47776F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Slime Rancher 2 - это продолжение удостоенной нагр�
 ```bash
 magnet:?xt=urn:btih:CB4CE6D378F67C2E2AB9B0BC1748D225B1A030E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

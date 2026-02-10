@@ -22,6 +22,8 @@ VA - Новогодняя дискотека Русского радио (2016) 
 magnet:?xt=urn:btih:14935189309C85B226C58A945EFA739D2B92C40D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Новогодний Союз (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:457090A2F9551C64944F780438360547C7A5A76F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ El Bimbo (1975)
 magnet:?xt=urn:btih:09B55E4C1448DBCB5D510D973DDC01B0107BC71E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ VA - PromoDJ Top 100 Remix (2015) [MP3|224-320 кб/с] <Club house, Vocal house
 ```bash
 magnet:?xt=urn:btih:DAA5DB52730C4D917BE68F000C66A1DDD444B03B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -133,6 +141,8 @@ VA - Cборник популярной музыки (2012) [MP3|320 кб/с]<Po
 magnet:?xt=urn:btih:A40C4CB3B9E9D5CFD9D80A54C80351EB45CD55F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +169,8 @@ The Savage Rose - Her Story (Compilation) 2CD (2016) [MP3|320 Kbps] <Progressive
 ```bash
 magnet:?xt=urn:btih:E61EF7234F47EB6BE6D317C845501720F96AA614
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +205,8 @@ VA - Зимний Hit (2012) [MP3|320 кб/с]<Pop,Dance>
 magnet:?xt=urn:btih:01283863CDD4204C63CDB206FBA9EA779B24347E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +233,8 @@ VA - Royal Lounge: Relax Partitura (2016) [MP3|320 Kbps] <Chillout, Lounge, Down
 ```bash
 magnet:?xt=urn:btih:EA4F132972CD7A69D5651155D198F3AB279EE888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +263,8 @@ VA - SVS Collection vol. 7 by MR.DJ (2021) [MP3|320 Kbps] <Deep House, Electro H
 magnet:?xt=urn:btih:C36560D4B6964460E9EA49DDD3EAA5788E29BC78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +291,8 @@ VA - A Jazzy Little Christmas: 50 Jazz and Swing Holiday Favorites (2016) [MP3|3
 ```bash
 magnet:?xt=urn:btih:D5543609A9DCB301FDC4D002B5CE51DE4D81CA7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +321,8 @@ VA - Top 100 Amnezia Hits (2016) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:0842CF0EA8275CFBE2208D073FF7F0F98259418E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +349,8 @@ VA - Mega Party Hits - Headlights Message (2015) [MP3|192-320 кб/с] <Club, Eu
 ```bash
 magnet:?xt=urn:btih:7B594FC2303D0C7943CD6A3B30B214A55329CD20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +379,8 @@ VA - Dance Fight Track Hits (2015) [MP3|251-320 кб/с] <Club, Happy Sound, Voc
 magnet:?xt=urn:btih:C0653715E421ED04BD1E29D30AFCD5CA7A0391ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +407,8 @@ LOVE радио - Тор 20
 ```bash
 magnet:?xt=urn:btih:5AA5340743FA6901E107F3A9EDEEB375CEAC12A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +437,8 @@ VA - Bedroom Chillout and Ambient (2015) [MP3|320 кб/с] <Downtempo, Chillout,
 magnet:?xt=urn:btih:A63677845196C8BE473A7F44F5F074299B2D1934
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +465,8 @@ VA - Soft Pop (2021) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:AE9C09FFC75A40B5FAB4365E5327B6C57424FC16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +495,8 @@ VA - After Christmas Lounge Chilled and Relaxed Lounge Tunes (2015) [MP3|320 к�
 magnet:?xt=urn:btih:2DA69742005F0764ACFC6A1723F984F712602DF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +523,8 @@ VA - Gum Rot Funk: Hip Hop Line (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:C4297A599BA32DE271295ED0D1A36728EA7C616C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +559,8 @@ VA - Радио Шторм - NeРусский Шторм - 82 (2012) [MP3|320 к
 magnet:?xt=urn:btih:8A61BC3E64F28F09CB51E92B0C62BB2E320D6048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +587,8 @@ VA - Happiness In The Air (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:1269C1CAB957C0C5A712367FC74F8DEBCA3A84AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +617,8 @@ VA - Exclusive Offer Christmas Approach (2018) [MP3|320 Kbps] <Big Room, Dance, 
 magnet:?xt=urn:btih:40969D8E6B2BF0A3AA4E0EAC2E0EBDB7857A9252
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +645,8 @@ Dance:
 ```bash
 magnet:?xt=urn:btih:6B8E52B7C3FD637AC6A0180DFBC0BEF0DC79668C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +675,8 @@ VA - Hard Dance Electro Extra Mixes (2019) [MP3|320 Kbps] <Hardstyle, Hard Edm>
 magnet:?xt=urn:btih:2E19E4E5662A30639CF73450A0B37E22545227B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +703,8 @@ VA - Дискотека 2022 Dance Club Vol. 213 (2022) от NNNB [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:F9DB92769EC174362D6DC0567536534BCE24CECE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -685,6 +733,8 @@ VA - Понемногу отовсюду by Yuridar #T (1957-2021) Compilation A
 magnet:?xt=urn:btih:0114858B82EA83BF74EF3446A60CE9C161766111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -711,6 +761,8 @@ VA - В машине с музыкой Vol.312 (2022) MP3 [320 Kbps] <Pop, Dance
 ```bash
 magnet:?xt=urn:btih:E2FF676C7630282576928548AEE38FCC5DDA30C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

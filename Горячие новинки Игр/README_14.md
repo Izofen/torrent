@@ -19,6 +19,8 @@ Hail to the Rainbow (2025) [Ru/Multi] (Build 20964708) Repack Other s
 magnet:?xt=urn:btih:F97EE366F0A2FCBF54C94BE4629A4E4E13640D45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Hail to the Rainbow (2025) [Ru/Multi] (Build 20964708) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:4F985E0AF0F93DECEB9EDB3FC5478783E469AA79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Lost Paws (2023) [Ru/Multi] (1.0.5) Scene Tenoke
 magnet:?xt=urn:btih:1D9E04EAE013685CD19C19BAF3AB3E7927FE75D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Monsters are Coming! Rock & Road (2025) [Ru/Multi] (1.0.8.0) License GOG
 ```bash
 magnet:?xt=urn:btih:21EA40B9A6E5834B9CD7FC2A513ADC732904B5D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ A.I.L.A - хоррор от первого лица в сеттинге неда
 magnet:?xt=urn:btih:B8F1C84D3A37D522A725663FD0C3716E462324E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Salt 2 - пиратская игра с открытым миром про ис�
 ```bash
 magnet:?xt=urn:btih:8DDE40DC94EB74FF5D8F2968BFA197C0F1383E24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Dominova переосмысляет roguelike-декбилдер с тактич
 magnet:?xt=urn:btih:6B9AC4AFD341295CF8CEC71F6C96C173B11F98E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Hunter’s Moon: A Sovereign Syndicate Adventure - это карточный rog
 ```bash
 magnet:?xt=urn:btih:E18399F38FE82B194A5FA88C1515E58C65DD05C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Verho Curse of Faces - мрачный мир, скованный смертел�
 magnet:?xt=urn:btih:6C28D575980966CEACAEDCAB8F54159E7AFF5E3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Sacred 2 Remaster (2025) [Multi] (CL16183) Repack Necros
 ```bash
 magnet:?xt=urn:btih:2AA24CA379DD9DDB614EEF8823B9213EE8AFFE42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Possessor(s) - это стремительный сайд-скроллер с б
 magnet:?xt=urn:btih:6728AC5C24182FAD7B58216658BEEB7C9809C1FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ MARVEL Cosmic Invasion (2025) [Ru/Multi] (1.0.0.12208) Repack Necros
 ```bash
 magnet:?xt=urn:btih:7F9B04DE62381D0F8F457730FD32AAC9026C164C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Unmourned - это игра в жанре психологического уж�
 magnet:?xt=urn:btih:64AACBDC3E6378BF5661C74A6CBE9FF8935EE392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Construction Simulator 4 (2025) [Ru/Multi] (1.0) Repack FitGirl [Pocket Edition]
 ```bash
 magnet:?xt=urn:btih:83781487D4F072742788035C6DA89A0B561041F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ MARVEL Cosmic Invasion - это динамичный 2D-битемап в сти
 magnet:?xt=urn:btih:107EC19CDEF9E3752ED412561092192572AB4A22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Lost Ember: Rekindled Edition (2025) [Ru/Multi] (1.0.5.20808/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:75CAB0F2465C99A6F3DFE3F2FA21B3442FDAEA55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Sleep Awake - завораживающий психоделический хор
 magnet:?xt=urn:btih:B02B507A66167875AFAEF33FF7D8D1C856BFD784
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Hunter’s Moon: A Sovereign Syndicate Adventure - это карточный rog
 ```bash
 magnet:?xt=urn:btih:4CB27344755A4E3F940D5BFCDF20379DDC908E78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Tormentor отправит вас в путешествие по извраще�
 magnet:?xt=urn:btih:532E4A288D207F14CFA9A52ADEB35B203957A794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Last Case of John Morley погружает игроков в роль де�
 ```bash
 magnet:?xt=urn:btih:72D97F24920BB2869D9E4F6E4ADF94C6B907A295
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ ROUTINE – это sci-fi хоррор от первого лица в стил�
 magnet:?xt=urn:btih:E508B31615E4E7F9C37896E360DB44B3DA113CA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Inazuma Eleven: Victory Road открывает возможность собр�
 ```bash
 magnet:?xt=urn:btih:8955C65F1A461728884D2F3A187D9B68BB10B8C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ SpaceBourne II (2) (2023) [Ru/Multi] (1.0.0) Repack FitGirl
 magnet:?xt=urn:btih:BD74361D4B08E0CB20F8E8A988B2D9413E5D1D71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Lost Ember: Rekindled Edition (2025) [Ru/Multi] (1.0.5/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:5814DD55C00BE8AC7E11AD2D6B4FBE5C30BB7845
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ HELL OF FEAR Mind Breach (2025) [Ru/Multi] (165.5.1.f) Repack Let'sРlay
 magnet:?xt=urn:btih:8CC1CFDEF381FD51FA046417A8BADD2AC050F699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ FEROCIOUS (2025) [Ru/Multi] (Build 21077857) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:0B7BA8B7DFD7DEF0AEEE90BABA37C4F1A17B5B1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

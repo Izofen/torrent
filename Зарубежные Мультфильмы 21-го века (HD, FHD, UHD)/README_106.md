@@ -1,27 +1,3 @@
-###  Публикация: 1507402   (798398) от 04.11.2021
-
-Напо / Napo (2020) WEBRip [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джон, неспособный понять болезнь, которая гонит его дедушку между прошлым и настоящим состояниями, натыкается на старый альбом, полный фотографий. Образы направляют его воображение, превращая воспоминания его деда в рисунки, которые формируют их отношения в историю создания памяти и воспоминаний.Производство: БразилияЖанр: Короткометражный, мультфильмРежиссер: Густаво РибейроПеревод: Не требуется (нет диалогов и озвученных комментариев)Субтитры: ОтсутствуютПродолжительность: 00:16:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D10BCC323060C72EE5EE1125E9231A70D3195688
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507174   (798595) от 03.11.2021
 
 Айнбо. Сердце Амазонии / AINBO: Spirit of the Amazon (2020) BDRip [H.264/1080p]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:D10BCC323060C72EE5EE1125E9231A70D3195688
 ```bash
 magnet:?xt=urn:btih:ABE1810B6A59DB761232DA1DB4944318675016D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:ABE1810B6A59DB761232DA1DB4944318675016D4
 magnet:?xt=urn:btih:817B3A7F9CA3B0B6A0D84416EEB36B4150F5AF1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:817B3A7F9CA3B0B6A0D84416EEB36B4150F5AF1F
 ```bash
 magnet:?xt=urn:btih:894DFBB61E00FFE6002D8646E6AA10D8A284B281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:894DFBB61E00FFE6002D8646E6AA10D8A284B281
 magnet:?xt=urn:btih:EE4064C779FD151823D1F0F0F6A648D40C3208D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:EE4064C779FD151823D1F0F0F6A648D40C3208D8
 ```bash
 magnet:?xt=urn:btih:A64F2A1283666B4FD086F27669E398AF60E0FC8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:A64F2A1283666B4FD086F27669E398AF60E0FC8F
 magnet:?xt=urn:btih:C42EDE81ACB68A35E174F2F6E259E99CEF460EF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:C42EDE81ACB68A35E174F2F6E259E99CEF460EF4
 magnet:?xt=urn:btih:C436DCE24F594DB939ABBABDE7B735D99682827D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +200,8 @@ magnet:?xt=urn:btih:C436DCE24F594DB939ABBABDE7B735D99682827D
 ```bash
 magnet:?xt=urn:btih:1C5745956DD3BB3A12A4D3B3F249B8CF3EC7A952
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:1C5745956DD3BB3A12A4D3B3F249B8CF3EC7A952
 magnet:?xt=urn:btih:CA6B50C6839EF7A36550A4453C2956764ECF0AE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:CA6B50C6839EF7A36550A4453C2956764ECF0AE3
 ```bash
 magnet:?xt=urn:btih:B794ED97095A1F6E8E998223847B5E7E3B85B9D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:B794ED97095A1F6E8E998223847B5E7E3B85B9D2
 magnet:?xt=urn:btih:1AF3667EEEB759E5FFE2F978C11B30D650CEB96D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:1AF3667EEEB759E5FFE2F978C11B30D650CEB96D
 ```bash
 magnet:?xt=urn:btih:306214237B3FE3538B3D4BFEE0CBCF3AAD19F543
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:306214237B3FE3538B3D4BFEE0CBCF3AAD19F543
 magnet:?xt=urn:btih:71520F89DA84546F762D48109C5012EA8D3FA621
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:71520F89DA84546F762D48109C5012EA8D3FA621
 ```bash
 magnet:?xt=urn:btih:C93A05BE2BFA4B192BDC1219CCA340DD440A95E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:C93A05BE2BFA4B192BDC1219CCA340DD440A95E6
 magnet:?xt=urn:btih:4783FA9CA83B63BD662C586559782631BE728052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:4783FA9CA83B63BD662C586559782631BE728052
 ```bash
 magnet:?xt=urn:btih:5B3A603F69090CA16809C806434A308139E6AC6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:5B3A603F69090CA16809C806434A308139E6AC6A
 magnet:?xt=urn:btih:B6E9C33BB11178CA243C312A5B3B361BC359DB6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:B6E9C33BB11178CA243C312A5B3B361BC359DB6F
 ```bash
 magnet:?xt=urn:btih:4E210BC16EB5D1D1A5D44A378EF468BEE71C06B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +488,8 @@ magnet:?xt=urn:btih:4E210BC16EB5D1D1A5D44A378EF468BEE71C06B4
 magnet:?xt=urn:btih:6059612896F4CDA075CC0ECDCCB5A25B34FDCD92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +513,8 @@ magnet:?xt=urn:btih:6059612896F4CDA075CC0ECDCCB5A25B34FDCD92
 ```bash
 magnet:?xt=urn:btih:F177DC4F663E49CF380D1EF7BFBDDA2E05387DFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +540,8 @@ magnet:?xt=urn:btih:F177DC4F663E49CF380D1EF7BFBDDA2E05387DFA
 magnet:?xt=urn:btih:9BBC55222CC69C6341015D1766B8BC7EC7BD13DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +565,8 @@ magnet:?xt=urn:btih:9BBC55222CC69C6341015D1766B8BC7EC7BD13DE
 ```bash
 magnet:?xt=urn:btih:1EAE3BE938E84B3A6C3E520879168F30B2FB3647
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +592,8 @@ magnet:?xt=urn:btih:1EAE3BE938E84B3A6C3E520879168F30B2FB3647
 magnet:?xt=urn:btih:1FFE8794299E13086441368FB61D2C6F7FE4F2DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +617,8 @@ magnet:?xt=urn:btih:1FFE8794299E13086441368FB61D2C6F7FE4F2DE
 ```bash
 magnet:?xt=urn:btih:DC3B52245D7D5FC8B6F5F371EAAAA693AF1A2345
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +645,34 @@ magnet:?xt=urn:btih:DC3B52245D7D5FC8B6F5F371EAAAA693AF1A2345
 ```bash
 magnet:?xt=urn:btih:DF136B68562853FE070EF1E0B86C801F74D7A111
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198843   (804005) от 13.01.2018
+
+Принцесса-лягушка: Тайна волшебной комнаты / The Frog Kingdom 2: Sub-Zero Mission (2016) WEBRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804005.jpg" />
+</div>
+
+
+###  Подробнее
+
+С давних пор в уютном живописном и скрытом от посторонних глаз месте раскинулось Лягушачье Королевство - страна, в которой лягушки живут в мире и согласии, и каждый их день наполнен радостью и весельем. Однако злодеи вознамерились выкрасть магический амулет - Хрустальную лягушку, без которого жители королевства не смогут пережить зиму. Чтобы помешать им, король собирает (   Читать дальше...   )Производство: США, Китай, Bang Zoom! Entertainment, Grindstone Entertainment GroupЖанр: Компьютерная анимация, Приключения, КомедияРежиссер: Чан Гуанси, Пэн ФэйПерсонажи: Энтони Падилья, Иэн Хэкокс, Эмбир Чилдерс, Джон Ловиц, Чун Чижэнь, Райан Де Алвис, Джошуа Йохан, Брайан Зиммерман, Джей ШелдонПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA7B86B786C1A3F77946E92A817CD80217FB27A6
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

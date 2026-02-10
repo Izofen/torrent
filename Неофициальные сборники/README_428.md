@@ -1,3 +1,38 @@
+###  Публикация: 506467   (687528) от 06.06.2012
+
+VA - Инструментальная музыка (2012) vol. № 65 [MP3|320 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_687528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А.Петров - Танец воспоминаний
+02. Tony Andeson - Red Light Lady Love
+03. Yvette Horner - Belle Napolitaine
+04. Armik - Golden Waves
+05. Quinn - Siochain Agus Jonannas
+06. Pipeline - Chantays
+07. С.Панкратов & Б.Леготин - Юнона и Авось
+08. Danny Wright - Whispers In The Dark
+09. Анс. Мелодия - Попурри
+10. Stefan Nicolas - Moonlight Rhapsody(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51F6F910C890F625956DE67C4EBBCE645CDAB127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134649   (687575) от 16.05.2017
 
 VA - Just For Fun: Spring Deep House Party (2017) [MP3|320 Kbps] <Deep House>
@@ -21,6 +56,8 @@ VA - Just For Fun: Spring Deep House Party (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:AA9DE5A027CCB861419B2F0E5CA169B379D97825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +92,8 @@ VA - Инструментальная музыка (2012) vol. № 66 [MP3|320 �
 magnet:?xt=urn:btih:AFA0A2DDF58C8922FBC8962ACF28391A081D4DE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -87,6 +126,8 @@ VA - Инструментальная музыка (2012) vol. № 63 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:31FA9A8D341235E0E4548F68E35B606CC2B63D5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +162,8 @@ VA - Звёзды Шансона - Избранное (2012) [MP3|320 кб/с]<�
 magnet:?xt=urn:btih:87271457C4F6D1D9036CC75E8371A521C56BE11F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +191,8 @@ VA - Хиты под водочку: В кругу друзей (2017) [MP3|320 
 magnet:?xt=urn:btih:46BBBF69FD0D1B0D76CD5FA5258E220413191151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +218,8 @@ VA - Дискотека 2016 Dance Club Vol. 153 (2016) [MP3|320 кб/с] <Elect
 ```bash
 magnet:?xt=urn:btih:B71B440F1B3D2B831F657A079EDCE2FE60FC9FEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +248,8 @@ VA - Club Dance Ambience Vol.71 (2016) [MP3|320 кб/с] <House, Electro House, 
 magnet:?xt=urn:btih:C3C8B665A58ECFC198D9A5E4C8CC98576FE4C865
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +276,8 @@ VA - Club Dance Ambience Vol.74 (2016) [MP3|320 кб/с] <House, Electro House, 
 ```bash
 magnet:?xt=urn:btih:9119F6022AEC2FD12E3256BB499ED5EF1EB910E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -255,6 +306,8 @@ VA - Club Dance Ambience Vol.72 (2016) [MP3|320 кб/с] <House, Electro House, 
 magnet:?xt=urn:btih:148834C67C3BC158775EC131D9A35CEE1617044A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +335,8 @@ VA - Positive Smile: Pop Eurodance Music (2020) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:45B542F4B9C946225AA539C518AA08306CE0FA25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +363,8 @@ VA - Муть (не для старперов) (2020) [MP3|320 Kbps] <Pop, Dance
 ```bash
 magnet:?xt=urn:btih:313252CB41A39FF7B08A46D70ADFD6CF15DBC9F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +399,8 @@ VA - Maximum зажигательный музон (2012) [MP3|256 кб/с]<Danc
 magnet:?xt=urn:btih:8503F6A3E3F958653E0DE63E19FD4D536DC21BE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +427,8 @@ VA - Honey Baby (2020) [MP3|320 Kbps] <R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:B1CABD92811B7A9A1B34F021D3C9A2FCD8AD96F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +457,8 @@ VA - Beatport Drum & Bass: Electro Sound Pack # 149 (2020) [MP3|320 Kbps] <Drum 
 magnet:?xt=urn:btih:653A268CA10F0C08C76612446BFF4FE4F56D2462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +485,8 @@ VA - Beatport Dance House: Electro Sound Pack #148 (2020) [MP3|320 Kbps] <Club, 
 ```bash
 magnet:?xt=urn:btih:08BAD90608AC114D06A3458BBF944C2C869AB067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +515,8 @@ VA - Beatport Bass House: Electro Sound Pack #147 (2020) [MP3|320 Kbps] <Dub Hou
 magnet:?xt=urn:btih:578076ED00C542E7280057117BD7D9EBB14FFADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +543,8 @@ VA - На острие судьбы. Академия новинок шансо�
 ```bash
 magnet:?xt=urn:btih:938D59ACBE7845EB22E6E1799FE190EA0A135539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +573,8 @@ VA - Sunny Surprise: Ibiza Dance Party (2016) [MP3|320 кб/с] <Dance, House, F
 magnet:?xt=urn:btih:3C4CC00E73FE74EB869BE256123B09CA085679AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +601,8 @@ VA - Sensual Evening with Piano Jazz: Hot Lounge Music Sensual Steps Emotional J
 ```bash
 magnet:?xt=urn:btih:DBEE919A8C443DDB5E86CFC4DE6F91154FAC73FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +631,8 @@ VA - Premium Electro Lights: Electro House Mix (2016) [MP3|320 кб/с] <Electro
 magnet:?xt=urn:btih:AFBDC527551C76C786169B1BD37EF85C28C9E126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +659,8 @@ VA - Dream Music for Deep Sleep (2016) [MP3|320 кб/с] <Downtempo, Chillout, A
 ```bash
 magnet:?xt=urn:btih:310628CD86826D84A89D3CBB33DBF08CA634D240
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +689,8 @@ VA - Vocal Trance Charts (2016) [MP3|232~277 кб/с] <Trance, Vocal Trance>
 magnet:?xt=urn:btih:973C504FB6467F397B39BFDAD7EA83F620912663
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +717,8 @@ VA - American Pop Rock Music (2018) [MP3|256 Kbps] <Pop-Rock, Folk, Step Country
 ```bash
 magnet:?xt=urn:btih:53A05A6306026AC97EE4A5B3CC55AAD7DC43E121
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +753,8 @@ VA - Русская Дискотека 80-90-Х Remix DJ (2012) [MP3|256 kbps]<D
 magnet:?xt=urn:btih:CA59E9905AEC1C8F96A8C2A729A9F8EFAA5B86FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,32 +782,7 @@ VA - Bass Killer 12 (2017) [MP3|320 Kbps] <Dubstep, Trap, Electro House, Big Roo
 magnet:?xt=urn:btih:3EDDDE86554E9CBEB93CB640FA6551CC3565CEC2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221893   (689310) от 27.04.2018
-
-VA - The Rhythms Of Disco (2018) vol.2 [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_689310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A' La Carte - Price Of Love (3:58)
-02. Abba - Gimme! Gimme! Gimme! (A Man After Midnight) (4:50)
-03. Afric Simone - Todo Pasara Maria (3:16)
-04. Anthony Monn - Johnny Und Mary (3:36)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 05:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:263889797B0E009A9A0AC27A3FB5AD625A31C4B9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

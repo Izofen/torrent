@@ -28,6 +28,8 @@ Adham Shaikh (+ Ekko & Dreamtree Project) - 10 albums (1993-2010) [FLAC|Lossless
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ VA - Beauty & Spa Chill Out: Relaxation Wellness Lounge Music (2015) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:09D154CACF0B2DD756C296B54EB59373AD005241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ VA - Spring Chill Mirage: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:BBF225E7FCA3286BBB24FBB805596720D13F1D8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ VA - Endless Music (Mixed & Compiled by Paul Lomax) Vol. 1,2 (2016-2017) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:ED7EA59B8BFD52B8F55D6E1F3C3651364DF88EA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ VA - Enormous Tunes - Ibiza Nights 2017  [MP3|320 Kbps] <Funky, Club House>
 magnet:?xt=urn:btih:1D306E2BCF24834014CED0008C405AEBFC2414C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ VA - Running Beats Vol.14 - Musik Zum Laufen (Inkl 5 KM & 10 KM Mix) (2017) [MP3
 ```bash
 magnet:?xt=urn:btih:91BE6150DDA16A5A76CD33F18C9F6DF76FAD19BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ VA - Sperrstunde Chill Out (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:41BD6D6B8A9E62502804FBDE79344A50E5087FD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ VA - Summer Bike Boot Camp 2017 (2017) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:8EB3A36D5D1E72B7BC548C011B2C8EA99060257E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ VA - Miami Deep House Essentials 2018 (2018) Deluxe Version [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:306AA134DC2C9D08D161C86ED6A4ED860072924C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ Lemongrass - Unite (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chil
 ```bash
 magnet:?xt=urn:btih:69F61EC5C7097153DFFCD60D04D455205C3FB9F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ VA - Vocal Trance: London (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:A1B5A62210C4274A574AB25F09D0EA0CCFF3E251
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +346,8 @@ VA - Dark Uplifting Vol.4 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:EFE2B54A64AA09329CEAC019A6F9BA2F7F1FEE81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ Culture Shock - Sequel (2022) RAM Records [FLAC|Lossless|WEB-DL|tracks] <Drum & 
 magnet:?xt=urn:btih:31F4ED47CDAE6DF5E013CCE3C017CD42DC888496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +404,8 @@ Aly & Fila - Future Sound Of Egypt 498 (2017) [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:8A27EF419C7A6BD2FDBCB0126F6486D32E76DE58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ VA - Total Trance Selections Vol. 11 (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:A5990E302E12BA5D01EE6137CBCAD5474A611FFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ VA - Monte Carlo Vip Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:B69CB9056456321B9DF3D99DAF8E0C1E1657C35B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ Spacekraft - То падая, то взлетая (Сон) (2016) [FLAC|Lossless
 magnet:?xt=urn:btih:1DAEC1D738FDF9AB05F8FB0C9DA2E8851161B6E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +520,8 @@ VA - Deep House Music (2017) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:2FD3253E6B3B4C9F46D1772DD362C3069231E3AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +550,8 @@ VA - Summer Chill. Smooth Beach Lounge Grooves for Easy Listening (2017) [MP3|32
 magnet:?xt=urn:btih:249A7FC954EA5B918B89B95888FC619873C01C15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +578,8 @@ VA - Blue Lounge 3: Bossa Lounge and Chillout Moods Selection (2017) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:2887A535036F0AABD50AAD712703ABA7EEAD610D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +608,8 @@ VA - Masters Of Dance 8 (2017) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:C57AEDECACB909A3B673C81ADB16B1F69E11E085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +636,8 @@ VA - Ambient Nectar (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:617059E88683690FD879526CB3C7C697F42881B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +666,8 @@ Ovnimoon - Voyage (2017) [FLAC|Lossless|WEB|tracks] <Psy-Trance, Goa Trance>
 magnet:?xt=urn:btih:0D607A3836B7C78FBD0E8B2C3C256E1DFE70A19F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +694,8 @@ VA - Techno Club Vol. 52 (Mixed by Talla 2XLC & ReOrder) (2017) [FLAC|Lossless|C
 ```bash
 magnet:?xt=urn:btih:926794AD2B4AE62C9F1473224E0C7025FBB82D1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +724,8 @@ Rammstein - Remixes (2020) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Elec
 magnet:?xt=urn:btih:275DA5A48AA3DAC47F15792B64D3A71CED989840
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +752,8 @@ VA - All Gender Bodybuilding Music Spring (2017) [MP3|320 Kbps] <House, Progress
 ```bash
 magnet:?xt=urn:btih:EE88A17CEED7801B289112B094AD729939EFC539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

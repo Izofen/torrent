@@ -22,6 +22,8 @@ A4. Breakfast In America (2:39)(   Читать дальше...   )Жанр: Roc
 magnet:?xt=urn:btih:EADE775C4C119D980E8AC7E45A697BC49B26E0B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:EADE775C4C119D980E8AC7E45A697BC49B26E0B6
 ```bash
 magnet:?xt=urn:btih:1E7F4EC240E47DAE7840D372745C0DE32FF37E07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Michael Jackson - Thriller (1982) Japan [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Funk 
 magnet:?xt=urn:btih:BD5DDCE3A0B0C1C5A7A6E931DF6B17FD86F1A2C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Boney M - Ma Baker, Sunny, Daddy Cool (1977) Japan [WavPack 2.0|192/32|tracks|Vi
 ```bash
 magnet:?xt=urn:btih:CECA1DC88959E5B08A4C21111C5F6133239EBEB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ A4   Action Lady  (3:01)(   Читать дальше...   )Жанр: Electronic
 magnet:?xt=urn:btih:BFDABC9F4D57F1675E28B397A9093B3754752951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:BFDABC9F4D57F1675E28B397A9093B3754752951
 ```bash
 magnet:?xt=urn:btih:42E23248726A484D194DA36E1C0BDE604537663C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Bee Gees - Size Isn't Everything (1993) [FLAC|24Bit/96kHz] <pop-rock>
 magnet:?xt=urn:btih:ACA23A69194F656517C72AC23134A407C7EEB865
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ VA - RETROспектива, часть VII: Эстрадные оркестры 
 ```bash
 magnet:?xt=urn:btih:AAC92B358757DC74DAA57697AF19AE67F1EC7578
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ Supertramp - The Very Best Of (1992) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Pr
 magnet:?xt=urn:btih:765744893737E078A9B71E1425439F59545B8026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Dire Straits - Dire Straits (1978) Phonogram [FLAC 2.0|192/24|image+cue|Vinyl-Ri
 ```bash
 magnet:?xt=urn:btih:8AB81131B695136D0A311CD203087858A122DDC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Black Sabbath - Группа Блэк Саббат (1989) [FLAC 2.0|192/24|track
 magnet:?xt=urn:btih:B4F7CA1DFB055F827D8A4D5B3632AE2936C4CE02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ VA - RETROспектива, часть V: Эстрадные оркестры V 
 ```bash
 magnet:?xt=urn:btih:F64EC1438CFF672E72B126F86D5C54F55209E3FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ A4. I Wish It Would Rain Down (5:26)(   Читать дальше...   )Жанр
 magnet:?xt=urn:btih:A83C0E242383563370901987D24639BC1F65DDE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ A4. Stay by Me (6:26)(   Читать дальше...   )Производств�
 ```bash
 magnet:?xt=urn:btih:2F90EFB35DE2E7ADE63B7B4637B29FD79445BDAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ magnet:?xt=urn:btih:2F90EFB35DE2E7ADE63B7B4637B29FD79445BDAA
 magnet:?xt=urn:btih:2743DB71521680C4B2496053C2ACDF6ACCB75877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ A4 Texas(   Читать дальше...   )Жанр: Pop-RockПродолжит
 ```bash
 magnet:?xt=urn:btih:4FAB54180658E49682BA09E4CE562340867C4279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ VA - RETROспектива, часть IV: Эстрадные оркестры I
 magnet:?xt=urn:btih:74FC521C0E5B5E509B7017D8E7D7430E9CFA2FD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ VA - RETROспектива, часть III: Эстрадные оркестры 
 ```bash
 magnet:?xt=urn:btih:84F4C7F50EB9BAA08B435D8DF13429EF11BEBCB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ Side 1
 magnet:?xt=urn:btih:5145FF0DE54B82D40ED6154FCFD717424B65EC68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ A4 For You(   Читать дальше...   )Жанр: Progressive RockПрод
 ```bash
 magnet:?xt=urn:btih:29D411AEF677457DE19BDA8A1EE856D68E0A80C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ Deep Purple - Fireball (1971) [FLAC 2.0|96/24|image|Vinyl-Rip]<Hard Rock>
 magnet:?xt=urn:btih:36219E842A0EB29653998B21E08677746F611F56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ U.D.O. (UDO) - Mean Machine (1988), RCA [FLAC 2.0|192/24|image + cue|Vinyl-Rip] 
 ```bash
 magnet:?xt=urn:btih:3B248EEA22ABE092461027C53F75E2B6AEFC4DFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +657,8 @@ VA - RETROспектива, часть I: Эстрадные оркестры (1
 magnet:?xt=urn:btih:36A37D576E29EFA08FFE94A48F31A609899DA25E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +685,8 @@ Deep Purple - Burn (1974) 1976, Warner Bros. [FLAC 2.0|192/24|image + .cue|Vinyl
 ```bash
 magnet:?xt=urn:btih:AE22D8276D101065D658732D6D027A6762FC244B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +715,8 @@ magnet:?xt=urn:btih:AE22D8276D101065D658732D6D027A6762FC244B
 magnet:?xt=urn:btih:5BEB7F9DB9FC925823683F3F2ABEE0E8E14A1C7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ Deep Purple — британская рок-группа, образованна
 ```bash
 magnet:?xt=urn:btih:3439B28045E7A250E0610961A1789E8999961474
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

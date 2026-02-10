@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ VA - Музыка Экрана. Коллекция Ридерз Дайджест
 magnet:?xt=urn:btih:4E987CEF5AA8A1A0B5CB82FC96F3D6C9FDA1FC80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -79,6 +83,8 @@ Celtic Woman - Celebration (2020) [MP3|320 Kbps] <Celtic, New age>
 magnet:?xt=urn:btih:F5946B06C6FB016DD528D1E1EE47F7AA5EAEFD66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -105,6 +111,8 @@ Felix Slovacek - Classic Essential (1994) [FLAC|Lossless|tracks + .cue] <Classic
 ```bash
 magnet:?xt=urn:btih:8C54821FD953F43F04CBF6948634E04BE4829BEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +147,8 @@ VA - Magic Accordeon (2010) [FLAC|Lossless]<Instrumental, Accordion>
 magnet:?xt=urn:btih:E6057FF4BC12B680B090118F5272674E4F9D9769
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +175,8 @@ Felix Slovacek - World Melodies (2014) [FLAC|Lossless|tracks + .cue] <Instrument
 ```bash
 magnet:?xt=urn:btih:89DE0960F1906C5E4336943345A2F619C708DC11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +211,8 @@ VA - Sax For Lovers. Romantic Melodies (2004) [MP3|320 кб/с]<Instrumental, Sa
 magnet:?xt=urn:btih:C7D53C9C92F9F16CF2635B5F32AA13D009066429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +239,8 @@ Max Arnald - Piano Covers (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern 
 ```bash
 magnet:?xt=urn:btih:FCB2DA294991813E5999D5DE705A26CE5B74BEF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +269,8 @@ Felix Slovacek - Con amore (1998) [FLAC|Lossless|tracks + .cue] <Instrumental>
 magnet:?xt=urn:btih:37A02CC919E7CD474F332A53F534F4727F505C96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +294,8 @@ Kristopher Carter, Michael McCuistion, Lolita Ritmanis and Shirley Walker - Су
 ```bash
 magnet:?xt=urn:btih:AED81E3D0FC3F0D130FB498BF67C75602C6ADC0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +326,8 @@ Ravi Shankar - The Master (3CD Box Set) (2010) [MP3|320 кб/с]<Ethnic, World>
 magnet:?xt=urn:btih:02C436D27DA03E0FF63C1B8A0D71B71FD2626C06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +351,8 @@ magnet:?xt=urn:btih:02C436D27DA03E0FF63C1B8A0D71B71FD2626C06
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +382,8 @@ Richard Ginns - In Float (2014) [FLAC|Lossless]<Ambient, Sound Art>
 ```bash
 magnet:?xt=urn:btih:96DFA7F8C8E9F31C96DD33863076A167A8677A2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +418,8 @@ Jason Graves - Tomb Raider 2013 (2013) [MP3|128-320 кб/с]<Score, OST>
 magnet:?xt=urn:btih:D1C59C70AB5E76A3C0387EA07E4EE87A473244CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +453,8 @@ Klaus Doldinger and Giorgio Moroder - The Neverending Story (1984) [MP3|128 кб
 magnet:?xt=urn:btih:E1C43B18BDC75D8F1F32B27DDF08344D124177B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +481,8 @@ VA - Бильядрная братия / The Rack Pack (Music From The Mition Pi
 ```bash
 magnet:?xt=urn:btih:D7CFE41EAA39230234D96B98C293045195F4CC0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +517,8 @@ Original Sound Track
 magnet:?xt=urn:btih:669D3B09CA16116DAFF8B56A9BA6E295B54CBCDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +545,8 @@ Giorgio Costantini - Dreamers (2017) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:48DB9BB30646540EE5D7BFC02D4850A3B6CA1324
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +581,8 @@ James Newton Howard - The Sixth Sense (1999) [MP3|80-170 кб/с]<OST>
 magnet:?xt=urn:btih:9F37D65CD2A261C310236AE66EBCF9CA9A0F13BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +616,8 @@ Sound City -  Real to Reel (2013) [MP3|320 кб/с]<Alternative Rock>
 magnet:?xt=urn:btih:5CB423D3F319951BE5F6A765AC994CABBF7378B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +645,8 @@ Ethereal in E - Up. (2017) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:DBE624EC82EC73EF4ABED21CB93F82EDB3421962
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +673,8 @@ Ylric Illians - Celtic Zen 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celt
 ```bash
 magnet:?xt=urn:btih:FE9D84215CED2A9F86CE7B6E8020DD66CF160F3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -665,6 +709,8 @@ VA - Body & Soul Series 6CD (2010) [MP3|320 kbps]<Ambient, New Age, Meditation, 
 magnet:?xt=urn:btih:598C116F44103C580CE4A4373D8A3B89C673AFF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +743,8 @@ Gustaf Grefberg - The Darkness (2007) [MP3|320 кб/с]<OST,Ambient,Instrumental
 ```bash
 magnet:?xt=urn:btih:1880A20F4A3CDEFC785AFADB70EB612481ACE22B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -731,6 +779,8 @@ Fall on Your Sword - Another Earth (2011) [MP3|320 кб/с]<OST>
 magnet:?xt=urn:btih:2C74F4B1A00D9FD29ACAAABA7CE61550709AB2D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -754,6 +804,8 @@ SAINT PREUX - ДИСКОГРАФИЯ 23 альбома (1969-2008) [MP3|256-320 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Hi Tech Trailer - трейлер в стиле высоких технологи
 ```bash
 magnet:?xt=urn:btih:8D952591CE6511C897B3DF5554AA5640A24789C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:8D952591CE6511C897B3DF5554AA5640A24789C0
 magnet:?xt=urn:btih:08E4F64F85EA10E747B2CF33069FAC6D5BCC5147
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Logo Slam - таинственный, темный , эпический пока
 magnet:?xt=urn:btih:82004116584C66635D3701B48DC19C3EC28AF6DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Smooth Slideshow - простое, чистое слайд-шоу. Являет�
 ```bash
 magnet:?xt=urn:btih:E3E4A0082ED09AD8A6778BA71892712E72536746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:E3E4A0082ED09AD8A6778BA71892712E72536746
 magnet:?xt=urn:btih:590C66064CEF399E09E39869693CF358E373FB27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Fire Dance Logo Reveal - проект, который может помочь в
 ```bash
 magnet:?xt=urn:btih:505A95DBE58D09283F88BF841C727BEB855BAF58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Save the Date - красивый шаблон After Effects, с привлека
 magnet:?xt=urn:btih:3A509209007D39DE9228296298582B6626143F6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:3A509209007D39DE9228296298582B6626143F6C
 ```bash
 magnet:?xt=urn:btih:A88DA2F7C37894A73459D02BCECCA83BAB028DA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:A88DA2F7C37894A73459D02BCECCA83BAB028DA2
 magnet:?xt=urn:btih:808CA1292AA9D1DCECD29CDC0DB05D430D9940C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:808CA1292AA9D1DCECD29CDC0DB05D430D9940C5
 ```bash
 magnet:?xt=urn:btih:1803A812FC4C296A8EEC6FCADAB299B1714F3919
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Frames - это кинематографический проект для After
 magnet:?xt=urn:btih:BF1B0F5B7476F9D70FE7F28ECF3084FB1C2E4B46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:BF1B0F5B7476F9D70FE7F28ECF3084FB1C2E4B46
 ```bash
 magnet:?xt=urn:btih:ED5F0D816B59E5814250A7846E91879F0D5E56E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Glow TV - это вступление для ваших презентаций, 
 magnet:?xt=urn:btih:D09D6A74DEF73390E7A359E4F5902D9395052E89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ The Dynamic Slideshow - это стильный шаблон After Effects. Он
 ```bash
 magnet:?xt=urn:btih:C7066FCB11D502EE4187365B7C5005EBFAD0C3D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ VideoHive - Mosaic Photo Reveal v.1.0 [AEP]
 magnet:?xt=urn:btih:E12D8AB25044FD5A6720F8F9CFCF1775DC333E02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ VideoHive – Grunge Epic Promo - 4608279 [AEP]
 ```bash
 magnet:?xt=urn:btih:17E7F109B7642F4762E28F7119A36B6806400295
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ The Epic Action Trailer - Вы можете использовать это в �
 magnet:?xt=urn:btih:FB7B808B5984EF930A5BD288211D736FCB12FC75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:FB7B808B5984EF930A5BD288211D736FCB12FC75
 ```bash
 magnet:?xt=urn:btih:F50DCF89F35236B12D9BCD8275FDFFC1289BAA39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Monex Historical Title - Эта двойная экспозиция специа
 magnet:?xt=urn:btih:F5D0507D16D2FEA1468E704A42229711AE25290C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Hand Drawn Infographics Toolkit - набор анимированных инфо
 ```bash
 magnet:?xt=urn:btih:B5BCD60FCD6E882905B2B9954CA1453B7667BB7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:B5BCD60FCD6E882905B2B9954CA1453B7667BB7D
 magnet:?xt=urn:btih:94E13CCD63CE2AF68AAFBC7B4CF045F8F95E6721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Photo Projection Kit - анимируйте любое изображение п
 magnet:?xt=urn:btih:A0FF2AB6A5854D44E027912A768C03E8693841BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ VR Glasses Opener - это показ логотипа и видео-презе�
 ```bash
 magnet:?xt=urn:btih:EB0B6E68DDA1F8ABD87D2D3CAD9AE6A62485C1BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Lensflare-Transitions - это проект с переходами-вспышк
 magnet:?xt=urn:btih:3515CF00A449705548544A5B44F2E7179BFC61B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Lower Thirds - набор из 70 текстовых подложек для в�
 ```bash
 magnet:?xt=urn:btih:9F40C31D54AB363CA0C2DB9D6A971C0C26FF3517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

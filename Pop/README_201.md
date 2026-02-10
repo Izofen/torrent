@@ -1,3 +1,148 @@
+###  Публикация: 923921   (560908) от 02.08.2015
+
+Natalie Imbruglia - Male (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Instant Crush
+ 02. Cannonball
+ 03. The Summer
+ 04. I'll Follow You Into The Dark(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA2D37683855EA2FA6D025309845166CD768AAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923910   (560919) от 02.08.2015
+
+VA - Ibiza Lounge Deluxe (2015) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_560919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Tokeo - Riva (Restart the Game) (03:00)
+02. Vibe2Vibe - Cheerleader (03:05)
+03. Vibe2Vibe - Lean On (02:57)
+04. DJ Tokeo - Ain't Nobody (Loves Me Better) (03:06)(   Читать дальше...   )Производство: Sugar & Lime RecordsЖанр: Pop, DanceПродолжительность: 01:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:396E7C242D15BF324B52FD39A103BFB763E9BBAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923870   (561030) от 02.08.2015
+
+Juli Fabian & Zoohacker - Shine (2015) [MP3|320 кб/с]<Euro Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girly
+02. Sizzlin’
+03. Don’t Even Wanna Teach Me
+04. Liberation(   Читать дальше...   )Жанр: Euro PopПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF7C019229965BAAB257F2C7689DBCC8F0A1446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153176   (561615) от 25.07.2017
+
+Men At Work - 3 Albums (1981-1985) CD [MP3|320 Kbps] <Electronic, New Wave, Pop Rock, Synth pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Men at Work - австралийская поп-рок группа, основанная  Колином Хэйем в 1979 и добившаяся признания в 1982-1984 годах. Музыкальный стиль группы сочетал элементы новой волны, регги и в дальнейшем синти-попа. Men at Work остаётся единственной австралийской группой, синглы  которой занимали первые места и в США, и в Великобритании, и, до 2011 года, единственной австралийской (   Читать дальше...   )Список альбомов:
+1981 - Business As Usual
+1983 - Cargo
+1985 - Two Hearts(   Читать дальше...   )Жанр: Electronic, New Wave, Pop Rock, Synth popПродолжительность: 01:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41156E491CF6248D6D9750FEF32E3127EC0FC969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304665   (561708) от 27.05.2019
+
+Laid Back - Healing Feeling (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthpop, Reggae, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give It Free (3:44)
+ 02. Keep on Loving (3:27)
+ 03. Love is a Flower (3:45)
+ 04. Walk with the Dreamers (4:18)(   Читать дальше...   )Жанр: Electronic, Synthpop, Reggae, DowntempoПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31CF0ADB7FE3C202D41D34647C6822FA0B85E54A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304777   (562075) от 27.05.2019
 
 Power Play - Come On Take Me Higher - Do It One More Time (1977) LP, Mixed [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -21,6 +166,8 @@ Power Play - Come On Take Me Higher - Do It One More Time (1977) LP, Mixed [MP3|
 ```bash
 magnet:?xt=urn:btih:3EE41411B11D06E1B0BFD24F911C1616D01B8E46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ Stensound Party Group - Vom Zillertal bis Arenal (Unknown) [FLAC|Lossless|image 
 magnet:?xt=urn:btih:040572FB5F530800865AA862A9ED58C74CAF0DF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ Michael Jackson - Thriller: 25th Anniversary Edition (1982) Remastered, 2008, Ep
 ```bash
 magnet:?xt=urn:btih:BC30F5871375BF187FD1600A2E6901150A1EA309
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ Britney Spears - Glory (2016) Deluxe Version [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:AF82A9E6ACF1AC5ADB9689C8F6603600CF7DE12D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +282,8 @@ VA - BRAVO Hits 98 (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:FD92409AA76EC1B6747E21C0C55608D9110E90E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +312,8 @@ VA - The Best Nostalgia Album. In The World... Ever! (1997) Compilation [FLAC|Lo
 magnet:?xt=urn:btih:49785D97E822F6F4230992E06DBA246CD3D7E799
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +340,8 @@ Rosebud - Discoballs (A Tribute To Pink Floyd) (1978) LP [MP3|320 Kbps] <Electro
 ```bash
 magnet:?xt=urn:btih:F506173B365C27DB91ECFA1BE65669B91CFB9F12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +370,8 @@ Laid Back - Healing Feeling (2019) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Pop, R
 magnet:?xt=urn:btih:83C351AEB688BBF2D05F450FEEE910C9DA9046E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +398,8 @@ Trix - 2 Albums (1981, 1982) LP [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:A083A0E04BD767956B024485D3FE08F38787ED21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +428,8 @@ Smash - Viva Amnesia (2019) [MP3|320 Kbps] <Electro-House, Club-House, Pop>
 magnet:?xt=urn:btih:6796EEE6B17485BE91392EF360495FDF395D606D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +456,8 @@ C.C. Catch - The Album -Remastered (2017) [FLAC|Lossless|tracks + .cue] <Electro
 ```bash
 magnet:?xt=urn:btih:B860C3944F2DB2832E7C7FDC152C8996C0A830D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +486,8 @@ Claude-Michel Schonberg - Harmonie Du Couple (La Musique) (1982) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:1476E644C53F7DAA5953A69D71807915B16529B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +515,8 @@ VA - Acoustic Love Songs (2018) [MP3|320 Kbps] <Pop, Folk, Pop Rock>
 magnet:?xt=urn:btih:54FA8E110E66CCA9EB1E5717AD9B42784618C580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +543,8 @@ Selena Gomez - Stars Dance (Deluxe Edition) (2013) /Scene/ [FLAC (tracks)|Lossle
 ```bash
 magnet:?xt=urn:btih:A604CF12C691A9737841104A7839D26C6C8E7E56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +579,8 @@ Olialia Pupytes - Išpildyk mano norus (2009) [MP3|~225 кб/с (V1)]<Pop>
 magnet:?xt=urn:btih:D40547345E0327E296443516AB1C011AF718D292
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +607,8 @@ magnet:?xt=urn:btih:D40547345E0327E296443516AB1C011AF718D292
 ```bash
 magnet:?xt=urn:btih:DC93CA59337CA0573D075F9AA7C1CF8601B3B32A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +637,8 @@ VA - Now That's What I Call Music! 69 (2019) USA Series [FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:5AE9C0B963F8516421CE6A183DBC82255CD72461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +665,8 @@ Digital Emotion - Best Of (2015) Compilation [FLAC|Lossless|tracks + .cue] <Elec
 ```bash
 magnet:?xt=urn:btih:28A2F098E8026273027D7559201B0D62492D6802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +695,8 @@ Snoopy - Snoopy (1979) LP [MP3|320 Kbps] <Electronic, Disco, Reggae, Pop>
 magnet:?xt=urn:btih:BAE595CF1C068EF653FFE3C16CEC111838CF4E4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +723,8 @@ Benelux & Nancy Dee - Benelux & Nancy Dee (1980) LP [MP3|320 Kbps] <Electronic, 
 ```bash
 magnet:?xt=urn:btih:10F9C800D0CCF8B5F85887FDC889CAE4C04A4176
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,140 +753,7 @@ Christina Aguilera - Aguilera (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:10BBFBA1EC23459B07518708CBF16FFEDF4CA02A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304305   (565528) от 25.05.2019
-
-Diva Gray And Oyster - Hotel Paradise (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. St. Tropez (5:29)
-02. Up And Down (6:12)
-03. Hotel Paradise (5:13)
-04. Good Good Tequila (6:29)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43D25639786D0AEEAD47D447B0A17B65AA86F21C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304400   (565532) от 25.05.2019
-
-Venus Dodson - Night Rider (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's My Turn (6:48)
-02. Shining (7:35)
-03. Night Rider (6:43)
-04. Where Are We Headed (4:14)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:31:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:758C449A8D2B585B9D42DC275E53DA13278EC560
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304251   (565560) от 25.05.2019
-
-Plastic Mermaids - Suddenly Everyone Explodes (2019) [FLAC|Lossless|WEB-DL|tracks] <Dream-pop, Indie-rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glow
-02. 1996
-03. Floating in a Vacuum
-04. 10,000 Violins Playing Inside an Otherwise Empty Head(   Читать дальше...   )Жанр: Dream-pop, Indie-rockПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A51BF5A0E5DC831C3895B75374750F56E8BF29F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234628   (565829) от 08.07.2018
-
-Daryl Hall & John Oates - Whole Oats (1972) 2008, American Beat Records [FLAC|Lossless|tracks + .cue] <Pop Rock, Folk Rock, Country Rock, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Sorry
-02. All Our Love
-03. Georgie
-04. Fall In Philadelphia(   Читать дальше...   )Жанр: Pop Rock, Folk Rock, Country Rock, SoulПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3274FC50BC928A3FEADD7E30A2BFF1E0B686793E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234909   (565918) от 08.07.2018
-
-Michelle - Tabu (Deluxe) (2018) 2CD [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565918.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Tabu
-02. Meine Welt
-03. Lieben, Lieben, Lieben(   Читать дальше...   )Жанр: PopПродолжительность: 01:25:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E795789C0F5A0091876941647482C7B3D4A4D6AA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

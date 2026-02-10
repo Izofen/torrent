@@ -20,6 +20,8 @@ The Last Story [Wii] [PAL] [Multi 5] (2012)
 magnet:?xt=urn:btih:C027D4BE3A83F701FA0BEAED6435EC4A48772097
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:C027D4BE3A83F701FA0BEAED6435EC4A48772097
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:C027D4BE3A83F701FA0BEAED6435EC4A48772097
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:C027D4BE3A83F701FA0BEAED6435EC4A48772097
 magnet:?xt=urn:btih:26D05B34B0B32450A051E20562868E8C6D115FFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:26D05B34B0B32450A051E20562868E8C6D115FFF
 ```bash
 magnet:?xt=urn:btih:1115326E5E526C66920FFE6DF8CB4D17E4EC6732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Sinclair MacOSX Linux Build v.20120217 [x86] (1xDVD)
 magnet:?xt=urn:btih:AC8033CC3B9A6B41C4E5BC395AFA1E800F0D2D3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:AC8033CC3B9A6B41C4E5BC395AFA1E800F0D2D3E
 ```bash
 magnet:?xt=urn:btih:5320F08A9A3A83FBB1C6AAA953C0EA6AE0820E2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:5320F08A9A3A83FBB1C6AAA953C0EA6AE0820E2D
 magnet:?xt=urn:btih:CB112C0C63D024583AD41F8F4D100B11CFC47BF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Serious Sam: The Second Encounter [Wineskin] [Rus]
 ```bash
 magnet:?xt=urn:btih:B38C0BED7969E4DB7A4DB6ECC85055CCD8D142CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ VA - Playboy Jazz - In a Smooth Groove (2004) [FLAC|Lossless]<Jazz, Smooth Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +302,8 @@ CD1:
 magnet:?xt=urn:btih:D4E504BAD290A3B1B13A7DD4E88FE2702DBD2CEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ Art-Афера - серия остросюжетных книг: авантюр�
 ```bash
 magnet:?xt=urn:btih:D3249655BA7D853269C5215629FB24F978DC0E04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +354,8 @@ magnet:?xt=urn:btih:D3249655BA7D853269C5215629FB24F978DC0E04
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:D3249655BA7D853269C5215629FB24F978DC0E04
 magnet:?xt=urn:btih:133FB05B88F5BDB7A4104E7AB66755765663C17B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ magnet:?xt=urn:btih:133FB05B88F5BDB7A4104E7AB66755765663C17B
 ```bash
 magnet:?xt=urn:btih:4FBB2B95F2D7723C658FC5B361E06BA92EBF05BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ Mylene Farmer - Du Temps Remixes (CDM) (2012) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:EA41F798A24F881D22853FE8FC69015AAFEAF1C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +472,8 @@ Kiss - 5 Albums (1978-1982) [FLAC|Lossless]<Hard Rock, Classic Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +507,8 @@ Rod Stewart - 3 альбома (1996-2010) [APE|Lossless]<Hard Rock, Classic Roc
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +532,8 @@ Rod Stewart - 3 альбома (1996-2010) [APE|Lossless]<Hard Rock, Classic Roc
 ```bash
 magnet:?xt=urn:btih:464EEE63E16DCA02CDDD222F23706437153602A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +563,8 @@ Ozzy Osbourne - 00:30:26
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +588,8 @@ Ozzy Osbourne - 00:30:26
 ```bash
 magnet:?xt=urn:btih:7862649348D2AC1981767984B3E5CC479C46A3D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +615,8 @@ magnet:?xt=urn:btih:7862649348D2AC1981767984B3E5CC479C46A3D0
 magnet:?xt=urn:btih:9DFE8289437A22086B293D87F00327F8EE650A0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +640,8 @@ magnet:?xt=urn:btih:9DFE8289437A22086B293D87F00327F8EE650A0C
 ```bash
 magnet:?xt=urn:btih:38363030A67BC9A56A6388F3D2B7817E2447CEB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +671,8 @@ magnet:?xt=urn:btih:38363030A67BC9A56A6388F3D2B7817E2447CEB6
 magnet:?xt=urn:btih:6924758606197C212EF08BF35A793DF6EBF992CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +696,8 @@ magnet:?xt=urn:btih:6924758606197C212EF08BF35A793DF6EBF992CC
 ```bash
 magnet:?xt=urn:btih:9B79E6C6D292C9C26AED6FF060B82CC1A0344453
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -681,6 +731,8 @@ VA - Золотой фонд. Мое последнее танго  - Кумир
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

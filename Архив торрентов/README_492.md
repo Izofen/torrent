@@ -27,6 +27,8 @@ VA - The Dark Side of the Moon (The 8-bit Album) (2011) [MP3|256 Kbps]<Electroni
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ Andrea Bocelli - Concerto One Night in Central Park (2011) [FLAC|Lossless]<Class
 magnet:?xt=urn:btih:73F56C203F93171749A418DBC305D5A1355AA46C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -85,6 +89,8 @@ SpeedyFox — это небольшая утилитка, которая исп�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -109,6 +115,8 @@ Photoinstrument - редактор для обработки цифровых ф
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -132,6 +140,8 @@ Photoinstrument - редактор для обработки цифровых ф
 ```bash
 magnet:?xt=urn:btih:6E2B74197834A3E07448A500854EAB13422AB956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +176,8 @@ Culprate - Flatline (2011) [FLAC|Lossless]<Dubstep>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +201,8 @@ Culprate - Flatline (2011) [FLAC|Lossless]<Dubstep>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +228,8 @@ Culprate - Flatline (2011) [FLAC|Lossless]<Dubstep>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +254,8 @@ Culprate - Flatline (2011) [FLAC|Lossless]<Dubstep>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ SmackDown! — профессиональная рестлинг програм�
 ```bash
 magnet:?xt=urn:btih:348CC91F2C92491F3A27B52A9E74EE9AC8B979E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +310,8 @@ K-Lite Codec Pack - бесплатный набор кодеков и инстр
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +335,8 @@ K-Lite Codec Pack - бесплатный набор кодеков и инстр
 ```bash
 magnet:?xt=urn:btih:B177753956B946F793DA6FE4DBAF6451268B0A7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +363,8 @@ magnet:?xt=urn:btih:B177753956B946F793DA6FE4DBAF6451268B0A7D
 magnet:?xt=urn:btih:650E154A547A840D849EE5F6D373129D3C235E77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +389,8 @@ magnet:?xt=urn:btih:650E154A547A840D849EE5F6D373129D3C235E77
 ```bash
 magnet:?xt=urn:btih:ECD9D255F4AF70C4FDBFEA41A881AC9FC5666A5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +417,8 @@ XVI век. Славная эпоха географических открыт�
 magnet:?xt=urn:btih:6A7CF3684A086E09E4BFE9A7ECA27975772D7113
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +443,8 @@ magnet:?xt=urn:btih:6A7CF3684A086E09E4BFE9A7ECA27975772D7113
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +468,8 @@ magnet:?xt=urn:btih:6A7CF3684A086E09E4BFE9A7ECA27975772D7113
 ```bash
 magnet:?xt=urn:btih:B287D2201BFD7D4051DCB0162F1C972BE47196C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +504,8 @@ CD 1: Продолжительность (01:16:50)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +530,8 @@ Dicter – программа переводчик осуществляющая 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +558,8 @@ Comedy Woman. Новый формат. Выпуск №71 (2012.03.24) SATRip
 magnet:?xt=urn:btih:990DA0827E218F225464A6764339104CA69CC493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +584,8 @@ Playboy — легендарный журнал для мужчин, основ�
 magnet:?xt=urn:btih:EC10EC55F8A9173CAB41549F0EE15C9F84450C5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +609,8 @@ magnet:?xt=urn:btih:EC10EC55F8A9173CAB41549F0EE15C9F84450C5A
 ```bash
 magnet:?xt=urn:btih:D6B5C6781D121063E2509D1B0449ACDA052576D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +641,8 @@ magnet:?xt=urn:btih:D6B5C6781D121063E2509D1B0449ACDA052576D6
 magnet:?xt=urn:btih:CA30441D8F12340CC9F4A854E09893816C5BB37A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +668,8 @@ magnet:?xt=urn:btih:CA30441D8F12340CC9F4A854E09893816C5BB37A
 magnet:?xt=urn:btih:0B470F4B35CCCE48BA6CD62894ECBCDC0B693242
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +693,8 @@ magnet:?xt=urn:btih:0B470F4B35CCCE48BA6CD62894ECBCDC0B693242
 ```bash
 magnet:?xt=urn:btih:17EBB1CAA007AA80C3DBFA4E99E27CFBC5ED284A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -678,6 +728,8 @@ Blondie - Autoamerican (1980) /24-Bit Remastered 2001/ [FLAC|Lossless]<Pop Rock,
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

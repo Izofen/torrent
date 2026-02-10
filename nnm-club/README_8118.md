@@ -22,6 +22,8 @@ VA - Dirty Weekend (25 Groovy House Tunes), Vol. 5 (2019) [AAC|~331 Kbps] <House
 magnet:?xt=urn:btih:A74689C9967B8AD93E2E6F3887483B7DF5F8504D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:A74689C9967B8AD93E2E6F3887483B7DF5F8504D
 ```bash
 magnet:?xt=urn:btih:6565AC30407680B983678E7A2C7F1EBEEFDD1D2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Pasadena Roof Orchestra - Roots Of Swing (2008) [FLAC|Lossless|tracks + .cue] <B
 magnet:?xt=urn:btih:DC68262FC629D70A30EAC47A91E83F562A05D239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Fearer - Backfire (2005) [APE|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:6AE216BAB5A0DF55318F2A5489384D3A894240A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ A4 - Poor Man's Moody Blues - 6:57(   Читать дальше...   )Жанр: 
 magnet:?xt=urn:btih:08E539E3075190C0CD52FB0717FAA74B039D6333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ MediaHuman YouTube Downloader 3.9.9.81 (1205) RePack (& Portable) by elchupacabr
 magnet:?xt=urn:btih:2163F3EDBA544878524221F10F08D31EEE3F14C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ GoodSync - программа из серии высоконадежного, у
 ```bash
 magnet:?xt=urn:btih:A98A03F4609A6EDA768FCDB534BD456D73905DF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ VA - Dirty Weekend (25 Groovy House Tunes), Vol. 1 (2022) [AAC|~322 Kbps] <House
 magnet:?xt=urn:btih:93DF67186BB93F0A34BBC7D4735610724250A694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:226344F0E7EA118885679E5435BC46DAED4D4410
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:226344F0E7EA118885679E5435BC46DAED4D4410
 ```bash
 magnet:?xt=urn:btih:E5CBA8652E4926157D32B12C04770B836CB12F8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ Jeremy - Trivial Life (2003) [FLAC|Lossless|image + .cue] <Progressive Metal>
 magnet:?xt=urn:btih:450FEE3919E16917F5ED6894F9F61AADA6383F2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:450FEE3919E16917F5ED6894F9F61AADA6383F2D
 ```bash
 magnet:?xt=urn:btih:20EF50568F474DBD10D1DE68B4F49E3E9D1FFDA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:20EF50568F474DBD10D1DE68B4F49E3E9D1FFDA4
 magnet:?xt=urn:btih:B6B4AB27D077A52DAF5056E805F6C252B861D92D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ O&O DiskImage позволяет создавать резервные копи�
 ```bash
 magnet:?xt=urn:btih:4BC3DAF204F0BFDB291F88E68D0E4971471629C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ VA - Space Odyssey - Trip Five: New Year's Voyage 2019 (2018) 2 CD [OGG Vorbis|4
 magnet:?xt=urn:btih:BF2DC185484E90D7B08AB26CC2DFA9ADA7CFE872
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ Narrow Head - Moments of Clarity (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock,
 magnet:?xt=urn:btih:5A8BA86694DBC3823FF8B7F601065CCD3EEEF4E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:5A8BA86694DBC3823FF8B7F601065CCD3EEEF4E2
 magnet:?xt=urn:btih:20D100C7C1D64DE3F555A9DD6935909DDD4BEE90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:20D100C7C1D64DE3F555A9DD6935909DDD4BEE90
 ```bash
 magnet:?xt=urn:btih:107634BB5D8C4C4FC41ED37D9519347D4879F3AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:107634BB5D8C4C4FC41ED37D9519347D4879F3AD
 magnet:?xt=urn:btih:DE74EDC024CD7DE8800C670E12B68AA87F4D32CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ Lansdowne - Medicine (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 magnet:?xt=urn:btih:79DA7621067544638A883AC16D584F6325EBD86E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ Cisdem PDFCompressor является программным обеспечен�
 magnet:?xt=urn:btih:4C90D9A0C09E68BA19EFFF4361602626CE6F15F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ magnet:?xt=urn:btih:4C90D9A0C09E68BA19EFFF4361602626CE6F15F5
 ```bash
 magnet:?xt=urn:btih:248DA015D93CBFF2688BF4E9C6A0A2E965490173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:248DA015D93CBFF2688BF4E9C6A0A2E965490173
 magnet:?xt=urn:btih:6BCD848C5CF7BD157CBB739E59A4263917426CBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +656,8 @@ Enterclass, Марина Ласаева | Дачное настроение (202
 magnet:?xt=urn:btih:65138A38520C2A721162C5748C6ADC36ACFFCFB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ magnet:?xt=urn:btih:65138A38520C2A721162C5748C6ADC36ACFFCFB1
 magnet:?xt=urn:btih:78746728AFCC6F1F5A36EA9FFA6A31EF24F6034E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ magnet:?xt=urn:btih:78746728AFCC6F1F5A36EA9FFA6A31EF24F6034E
 ```bash
 magnet:?xt=urn:btih:87AC26F78AACD500AF86008C409A71C0D4EF62FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

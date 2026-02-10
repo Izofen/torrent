@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1741D90F294DC40D9E3409B13211906A49AEC93C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG: Добро пожаловать на Землю / Welcome to Earth (2021) WE
 ```bash
 magnet:?xt=urn:btih:1432FD0AE767860239B1704855C0A7632AAEB486
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG. Экстремальное путешествие: Вторая мирова
 magnet:?xt=urn:btih:E9AC95411556847E3855AF2D3C9DF62FD6CFEF36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:E9AC95411556847E3855AF2D3C9DF62FD6CFEF36
 ```bash
 magnet:?xt=urn:btih:B40A653493DB7720C95D87738D8F9FE5D5A3A17F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NG: На Марс: история марсохода Персеверанс / Bu
 magnet:?xt=urn:btih:879D4E3F969CE6DA78E78F3CFA8004CEEE62DD86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:879D4E3F969CE6DA78E78F3CFA8004CEEE62DD86
 ```bash
 magnet:?xt=urn:btih:4959190DC8F321EC267F4E59FEE66B4856C8CDEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:4959190DC8F321EC267F4E59FEE66B4856C8CDEB
 magnet:?xt=urn:btih:BEE92125BA7DD407AE87979408B5003C2D883D61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NG. Потерянный мир Майя / Lost World of the Maya (2019) HDTV [H
 ```bash
 magnet:?xt=urn:btih:6225AF7FD59F7C14723B1A1153CBD33B839E3EC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NG: Неразгаданные тайны Солнца / Dark Secrets of the Sun
 magnet:?xt=urn:btih:1EC3BD30DA038322C6BF3756FA864EEAED17D53D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ NG: С точки зрения науки: Предотвратить конец
 ```bash
 magnet:?xt=urn:btih:CCDDCF197C6ABA6BBB91AF7DBDA130D81667D9F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NG: Война Гитлера против прессы / Hitler's Battle Agains
 magnet:?xt=urn:btih:4E36933423E780D56046A7574152F6DCCE9620BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ NGW: Скрытые чудеса Африки / Africa's Hidden Wonders (2020) W
 ```bash
 magnet:?xt=urn:btih:0992CF2030C4CF83D2DABE4590F9BFCD39350002
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ NG. Ледяная дорога / Ice Road Rescue (2021) HDTV [H.264/1080i] (с�
 magnet:?xt=urn:btih:10A91925243D0AE5BF30B3701F1E0C49C97701D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ NGW: Драконы Комодо / Komodo Dragons (2018) WEBRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:DF01DB9CC001AF88918E0DBB735AC9BAB9C8CD33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ NG. Эпические приключения с Берти Грегори / Epi
 magnet:?xt=urn:btih:DEEB1E963B9F32735294E16C26FF59A407567A43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ NGW: 700 Акул / 700 Sharks (2018) WEBRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:A1F1D94051C32657623FA6FDB6E97F6B4B8F506C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ NG: Последствия: Мир без нефти / Aftermath: World without 
 magnet:?xt=urn:btih:BD27E274C1B1AA5C0B10FE21583DB02C891005AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ NG. С Точки Зрения Науки: Полёт в систему Юпит
 ```bash
 magnet:?xt=urn:btih:65EF533F71F784E4931178A909640E3BB75CEC82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ NG: Чужие миры / Alien Worlds (2009) HDTVRip [720p]
 magnet:?xt=urn:btih:D9A785C95DFE5F7EBFBD67900E33FC398721ECD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ NG: Момент смерти / Moment of Death (2008) DVDRip
 ```bash
 magnet:?xt=urn:btih:9C39A21FD739CE9EF2EE214DB991B8A6C0C5C9BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:9C39A21FD739CE9EF2EE214DB991B8A6C0C5C9BF
 magnet:?xt=urn:btih:B51A014B786A9C7B891045E1A365D81E36286E01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ magnet:?xt=urn:btih:B51A014B786A9C7B891045E1A365D81E36286E01
 ```bash
 magnet:?xt=urn:btih:81E02E25595820AF80CB6E07416FDAD98AD790A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ NG. Охотники за вирусами / Virus Hunters (2020) IPTV [H.264/10
 magnet:?xt=urn:btih:9CF33CD29F28303D2BE18F223F2178182B2F6DA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ NG: Безграничный / Без границ: с Крисом Хемсво
 magnet:?xt=urn:btih:FF15A8ACEC0D101C12CF935DC6239B7446CA71D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +642,8 @@ magnet:?xt=urn:btih:FF15A8ACEC0D101C12CF935DC6239B7446CA71D9
 ```bash
 magnet:?xt=urn:btih:C24F388A9494CE147C12FAD34BEECE17F6D9894E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +671,8 @@ NG: 11 сентября - хроника террора / Inside 9/11 (2007) TVR
 ```bash
 magnet:?xt=urn:btih:5D9B9DF21431BF836B21309D8D43885E940E79FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

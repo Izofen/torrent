@@ -1,3 +1,148 @@
+###  Публикация: 1066878   (409757) от 27.10.2016
+
+Christina Aguilera - Stripped (2002) [APE|Lossless|image + .cue] <Pop, RnB, Pop Rap>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stripped (intro)
+02. Christina Aguilera feat. Lil’ Kim / Can't Hold Us Down
+03. Walk Away
+04. Fighter(   Читать дальше...   )Жанр: Pop, RnB, Pop RapПродолжительность: 01:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79BC38AF21E897F81A59C6E8A5E33F0335D38B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066947   (409759) от 27.10.2016
+
+Oonagh - Märchen enden gut (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Ethno-Pop, Pop-Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aulë und Yavanna (3:36)
+02. Numenor (3:44)
+03. Das Mädchen und die Liebe (feat. Santiano) (2:56)
+04. Niënna (3:35)(   Читать дальше...   )Жанр: Pop, Folk, World, Ethno-Pop, Pop-Folk, Ethnic Fusion, Celtic, Fantasy MusicПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DEEB14C4531832D3BC4D7F90449D3D13493F2D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066463   (409907) от 27.10.2016
+
+VA - Shut Up And Dance (2016) 3CD [MP3|320 Kbps] <Electronic, Reggae, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409907.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1: HITS
+01. Alan Walker - Faded (3:30)
+02. Willy William - Ego (3:27)
+03. Flume feat. Kai - Never Be Like You (3:54)(   Читать дальше...   )Жанр: Electronic, Reggae, PopПродолжительность: 03:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10F4DD9149DCEC636AB110849B095A4F992F6447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066729   (409931) от 27.10.2016
+
+Gram Rabbit - Miracles & Metaphors (2010) [MP3|256 Kbps] <Alternative Pop, Psychedelic Space Rock, Space Dance Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_409931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Of Our Lives
+02. Candy Flip
+03. Falling Debris
+04. Hyena(   Читать дальше...   )Жанр: Alternative Pop, Psychedelic Space Rock, Space Dance RockПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:855E51F2CA54DAB6E471B72525873426A73380FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413303   (410002) от 03.10.2020
+
+Robson Green - Moment In Time (2002) [FLAC|Lossless|image + .cue] <Rock, Pop Rock, Folk Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410002.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:13] 01. Love Hurts
+[3:31] 02. Make It With You
+[3:18] 03. Me And Mrs. Jones
+[3:45] 04. If Tomorrow Never Comes(   Читать дальше...   )Жанр: Rock, Pop Rock, Folk Rock, BalladПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62F36DC1CA284E146E27FDC937AAC1D90FAAD061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066702   (410177) от 27.10.2016
 
 Buck Lucky - The American Way (2015) [MP3|320 Kbps] <Traditional American Pop, Country Pop>
@@ -21,6 +166,8 @@ Buck Lucky - The American Way (2015) [MP3|320 Kbps] <Traditional American Pop, C
 ```bash
 magnet:?xt=urn:btih:4BE53776A715B9C8191A2861959B3EF93A1AC150
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ Modern Talking - In The Middle Of Nowhere - The 4th Album (1986) [OGG Vorbis|485
 magnet:?xt=urn:btih:522C021F848BB4C14D8E3AAB6AE6DEDC3A01E647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +225,8 @@ Fergie - Double Dutchess (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:FA49AA2576545E221EF97FD7B31F7F194301B47E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +250,8 @@ Ace Of Base - 25 Best Songs (2012) [MP3|320 кб/с]<Pop,Eurodance>
 ```bash
 magnet:?xt=urn:btih:B2F96B1D8829D5F31A7B6F37F627EACF3A1114BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +280,8 @@ VA - Latin Party Hits 2018 [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Latin>
 magnet:?xt=urn:btih:530CF13AD5DADF40C2415D6EFD752D7BFD4785C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +308,8 @@ Maroon 5 - Singles (2015) [FLAC|tracks|WEB-DL]<Pop, Pop Rock, Soft Rock>
 ```bash
 magnet:?xt=urn:btih:99983FBFEEA6E439B27775F16CA93FE7B7F0B9A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +338,8 @@ magnet:?xt=urn:btih:99983FBFEEA6E439B27775F16CA93FE7B7F0B9A2
 magnet:?xt=urn:btih:D008A7454D365AC5622DD16C3A4A0DB93F2D7BF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +366,8 @@ magnet:?xt=urn:btih:D008A7454D365AC5622DD16C3A4A0DB93F2D7BF9
 ```bash
 magnet:?xt=urn:btih:0AEB3F5FD2D31E4673B00520F68FD410F8A22F0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +396,8 @@ VA - Guilty Pleasures|The Songs You Secretly Love (2011) 2CD [FLAC|tracks + .cue
 magnet:?xt=urn:btih:F7B2B9C6D0B07198C231D53CC5FBE866377754C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +424,8 @@ VA - 35 Top Songs For Gym & Weight Lifting 2020 Edition [MP3|320 Kbps] <Euro-Dan
 ```bash
 magnet:?xt=urn:btih:26BF30B17C610F5518D0F4B04E6C8E64849FF6BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +454,8 @@ VA - ZYX Italo Disco: Doubles Vol. 1 (2011) 2CD, Compilation [FLAC|Lossless|imag
 magnet:?xt=urn:btih:0791ADBF454D7E2E0D8C455DAB2F4838008EC3C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +482,8 @@ VA - Heartbreak Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:084CEC7DEF07994B89632AA4BDC3AEC438512F72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +512,8 @@ VA - Lazy Morning (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:D22B3608F97FEB13A48FEE64AE3847D56F33BC2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +540,8 @@ magnet:?xt=urn:btih:D22B3608F97FEB13A48FEE64AE3847D56F33BC2F
 ```bash
 magnet:?xt=urn:btih:12032E7926376E7675DFF4EB494B858C50232FA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +570,8 @@ Bumblebee Unlimited - Sting Like A Bee (1979) Reissue CD, Unidisc, 2000 [MP3|320
 magnet:?xt=urn:btih:44D76DBD8764F1BF1C7CC9C08B524D098DFE8946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +598,8 @@ magnet:?xt=urn:btih:44D76DBD8764F1BF1C7CC9C08B524D098DFE8946
 ```bash
 magnet:?xt=urn:btih:A80AC9F163C784899FF9119E4B686B0F0A99A09A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +628,8 @@ VA - I Love Success, Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Hi-NRG, Italo-
 magnet:?xt=urn:btih:BB40230C6CB8EE2FF95D7231F2C164A5DCDCF075
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +656,8 @@ Space Pilots - Space Music (1978) [MP3|320 Kbps] <Electronic, Disco, Synth-pop>
 ```bash
 magnet:?xt=urn:btih:338CDF37278F9DDE622B7C5F98D537A6B8009E5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +686,8 @@ Love Committee - 2 Albums (1978, 1980) [MP3|320 Kbps] <Funk-Soul, Disco>
 magnet:?xt=urn:btih:926C04ABE1B9D822618C14AC43F9356393B274F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +714,8 @@ VA - Pure... Legends (2013) Box Set, 4 CD [FLAC|Lossless]<Retro, Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:97F281764E12B421EA52C3C6C4C63840C5D404A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,140 +744,7 @@ Mr.President - Up'n Away - The Album (1995) Remastered, 2022, Maschina Records [
 magnet:?xt=urn:btih:8EE1746965386AF0FC806BC9ED8D51A8B266A303
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325263   (414481) от 14.09.2019
-
-Liz Mitchell With The Czech Orchestra - Sings The Hits Of Boney M (2005) CD [MP3|320 Kbps] <Electronic, Pop, Vocal>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Woman No Cry (3:39)
-02. Mary's Boy Child (3:13)
-03. Heart Of Gold (3:27)
-04. Mandela (4:11)(   Читать дальше...   )Жанр: Electronic, Pop, VocalПродолжительность: 00:59:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8728FEF74777C0FD8DBFBBCF46F49D7A493504C4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573285   (414638) от 30.08.2022
-
-Various - The Best Of Italo-Disco Vol. 4 (1985) [OGG Vorbis|485 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Betty Miranda – Dance	6:17
-02. Max-Him – Lady Fantasy (Remix)   6:33
-03. Koto – Visitors	6:18
-04. Camaro's Gang – Fuerza Major	5:36(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7DA0F3099DAA596BECE05EFDDB8F96B10801311
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167791   (414709) от 21.09.2017
-
-VA - Retro Futurism - Italo Is Still Alive (2017) Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Synthwave, Nu-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digital Emotion - Full Control (Original Mix) 06:07
-02. Maxthor - Hunters (Extended Edit) 05:30
-03. Italoconnection - Neon Disco (Also Playable Mono Remix) 07:00
-04. Magic System DJ - Frozen Hearts (Extended Version) 06:22(   Читать дальше...   )Жанр: Italo-Disco, Synthwave, Nu-DiscoПродолжительность: 01:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF4A7596B5AB25DA7BF8FC96FD422C7BEBFE32B4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573246   (414770) от 30.08.2022
-
-FIZICA - Доппельгангер (2022) Deluxe Edition [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414770.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Доппельгангер (Intro)
-3. Бизнес-класс (Intro)
-4. Бизнес-класс(   Читать дальше...   )Жанр: PopПродолжительность: 01:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:424106AA7759937776F04158A6334B176448AAB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167890   (414870) от 21.09.2017
-
-VA - Bravo Hits Vol. 99 (2CD) (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_414870.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.  P!nk - What About Us  4:32
-02.  Kay One - Senorita (feat. Pietro Lombardi)  3:59
-03.  J Balvin & Willy William - Mi Gente  3:09(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:32:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B7B506891F5FBB0067B80F51032DA76A08A716
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 924983   (372511) от 14.10.2018
-
-Отрезанные от мира / Marooned (1969) HDTVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_372511.jpg" />
-</div>
-
-
-###  Подробнее
-
-После завершения миссии в космосе корабль с тремя космонавтами на борту вышел на земную орбиту, чтобы вернуться. Но двигатель дал сбой и командир Джим Пруе, ученый Клайтон Стоун и пилот Базз Ллойд оказались в безвыходном положении в открытом космосе. Чарлз Кейт, шеф космической программы и старший космонавт Тед Догерти составляют невероятный план спасения, а весь (   Читать дальше...   )Производство: СШАЖанр: Фантастика, триллер, драма, приключенияРежиссер: Джон СтёрджесАктеры: Грегори Пек, Ричард Кренна, Дэвид Джэнссен, Джеймс Франсискус, Джин Хэкмен, Ли Грант, Нэнси Ковак, Мэриетт Хартли, Скотт Брейди, Фрэнк МартПеревод: Профессиональный многоголосыйПродолжительность: 02:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5141611195CCADF455D17F45910375460B3056A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254591   (372821) от 14.10.2018
 
 Шпион, встань / Espion, leve-toi (1981) DVDRip [H.264] [DVO]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:C5141611195CCADF455D17F45910375460B3056A
 ```bash
 magnet:?xt=urn:btih:303859F8EB70B56647FB3D9EB816197E6A286DD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:303859F8EB70B56647FB3D9EB816197E6A286DD5
 magnet:?xt=urn:btih:9337F3ECEB23D073AE79F10F63791C885657B879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:9337F3ECEB23D073AE79F10F63791C885657B879
 ```bash
 magnet:?xt=urn:btih:F121C31540530321D2A2199BE6D1FA9F977FC9D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:F121C31540530321D2A2199BE6D1FA9F977FC9D4
 magnet:?xt=urn:btih:078FA3789D2175B1C2F20E315B76F4C2BE778530
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:078FA3789D2175B1C2F20E315B76F4C2BE778530
 ```bash
 magnet:?xt=urn:btih:1D9403AE1401A6BD8C4B0871776E4D00D0911C54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:1D9403AE1401A6BD8C4B0871776E4D00D0911C54
 magnet:?xt=urn:btih:C8A2AC26AE2245E7D50C819BF95C9C8B4666970F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:C8A2AC26AE2245E7D50C819BF95C9C8B4666970F
 ```bash
 magnet:?xt=urn:btih:A35D3220F73876C0887202AC0C4D28802ABA6062
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:A35D3220F73876C0887202AC0C4D28802ABA6062
 magnet:?xt=urn:btih:FF7D68941FE248E47A116F6E12256BFA5411FF9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:FF7D68941FE248E47A116F6E12256BFA5411FF9C
 ```bash
 magnet:?xt=urn:btih:43897E30AED7329AC193ECF54B4A721272A6B285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:43897E30AED7329AC193ECF54B4A721272A6B285
 magnet:?xt=urn:btih:7591712B5E98ACD138B891A76B1D685503071496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:7591712B5E98ACD138B891A76B1D685503071496
 ```bash
 magnet:?xt=urn:btih:0EEE30BA45F8B2DE766BA9425A9E4622AAAAD8D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:0EEE30BA45F8B2DE766BA9425A9E4622AAAAD8D5
 magnet:?xt=urn:btih:7EEC817663818CA7E5AA269E25A76E14A92A0183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ magnet:?xt=urn:btih:7EEC817663818CA7E5AA269E25A76E14A92A0183
 ```bash
 magnet:?xt=urn:btih:F8A9354978B166D73FD7E25DC74B828A45E67A4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:F8A9354978B166D73FD7E25DC74B828A45E67A4F
 magnet:?xt=urn:btih:01369FF118077F95AAD9FE43B359B5CBB1F58FE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:01369FF118077F95AAD9FE43B359B5CBB1F58FE5
 magnet:?xt=urn:btih:46A5FB540CDB5C9DD700D073FF634CE79F6E9596
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:46A5FB540CDB5C9DD700D073FF634CE79F6E9596
 ```bash
 magnet:?xt=urn:btih:30533308E868C7C52585385ADBE0DEB3B63F91E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +437,8 @@ magnet:?xt=urn:btih:30533308E868C7C52585385ADBE0DEB3B63F91E6
 magnet:?xt=urn:btih:D6DB1262D4BB4809F74341A3D31F1AB883B4EF58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +462,8 @@ magnet:?xt=urn:btih:D6DB1262D4BB4809F74341A3D31F1AB883B4EF58
 ```bash
 magnet:?xt=urn:btih:516D79B4730752071A8381678153AE158604C0CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +489,8 @@ magnet:?xt=urn:btih:516D79B4730752071A8381678153AE158604C0CD
 magnet:?xt=urn:btih:7920486E9C57F01D502F8CC3000B001874CDF716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +514,8 @@ magnet:?xt=urn:btih:7920486E9C57F01D502F8CC3000B001874CDF716
 ```bash
 magnet:?xt=urn:btih:9EDFB091EDDE3BB3CB7DBC285E4FD2E6EF1A21F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +541,8 @@ magnet:?xt=urn:btih:9EDFB091EDDE3BB3CB7DBC285E4FD2E6EF1A21F7
 magnet:?xt=urn:btih:779A3B05C13A318A099A54DB35D5F9FB14A35AAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +566,8 @@ magnet:?xt=urn:btih:779A3B05C13A318A099A54DB35D5F9FB14A35AAA
 ```bash
 magnet:?xt=urn:btih:F61D2B778C168EEF9B10A4FD9051E9E86FE2A68F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +595,8 @@ magnet:?xt=urn:btih:F61D2B778C168EEF9B10A4FD9051E9E86FE2A68F
 magnet:?xt=urn:btih:D58DC3A1EAD7A6943D45EEDDEB28D30C96368DCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:D58DC3A1EAD7A6943D45EEDDEB28D30C96368DCA
 ```bash
 magnet:?xt=urn:btih:9F65DA07A4EE3CE9CFCAE98A6152DE8F555BCC67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +647,34 @@ magnet:?xt=urn:btih:9F65DA07A4EE3CE9CFCAE98A6152DE8F555BCC67
 ```bash
 magnet:?xt=urn:btih:3B601EC27A75CD76931C0959B8AD62CD33EF327E
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575458   (377203) от 09.09.2022
+
+Эрнст Любич. Ромео и Джульетта в снегу / Romeo und Julia im Schnee (1920) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фарсовая кoмедия по мотивам бессмертной пьесы Шекспира. Действие картины перенесено из Вероны в отдаленную немецкую деревушку.Производство: Германия, Ebner & Co., Maxim-Film GmbHЖанр: комедия, короткометражный, немое киноРежиссер: Эрнст ЛюбичАктеры: Лотта Нойман, Густав фон Вангенхайм, Якоб Тидтке, Марга Колер, Эрнст Рюкерт, Пауль Бинсфельдт, Юлиус Фалькенштайн, Герман Пиха, Йозефина Дора, Пауль Пассарге, ИскадновскийПеревод: Немой с интертитрамиСубтитры: Немецкие интертитры, русские отдельным файломПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEFD4E425EA26C0E9983FF82E2215CA49F17A799
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

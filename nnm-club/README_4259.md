@@ -28,6 +28,8 @@ David Jacobs-Strain - Live from the Left Coast (2011) [FLAC|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ Christmas Stories 12: The Legend of Toymakers (2023) [En] (1.0) Unofficial [Coll
 ```bash
 magnet:?xt=urn:btih:48A07DA622B14483324FACA58088575F0CC4B521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:48A07DA622B14483324FACA58088575F0CC4B521
 magnet:?xt=urn:btih:31CE401402F65FE1E3CFBD6CD9E1D08A93B169B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:31CE401402F65FE1E3CFBD6CD9E1D08A93B169B4
 magnet:?xt=urn:btih:E88F9A5F173EF3F803E8E9DF614FCD808F4FF8A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Nature Wallpapers (31.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:E03364138CF1BDCCC45FD349305E238BC94D43C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:E03364138CF1BDCCC45FD349305E238BC94D43C1
 magnet:?xt=urn:btih:9AB3E52B75D46E41FB3419D9E06A55774E1C2AC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:9AB3E52B75D46E41FB3419D9E06A55774E1C2AC2
 magnet:?xt=urn:btih:6D0A4E4AC1590CBDEBC81B3AAC07BFB61395908E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:6D0A4E4AC1590CBDEBC81B3AAC07BFB61395908E
 magnet:?xt=urn:btih:C45A11BBEDA6B6FD3FCBF1A797DCA23136B6CD4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:8FE8F47206D26C298DFB3FCA8A4D9EAAA90366E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:8FE8F47206D26C298DFB3FCA8A4D9EAAA90366E2
 magnet:?xt=urn:btih:B82DF38639B53AD4A32BF3A0551A2F2F39AE71A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:B82DF38639B53AD4A32BF3A0551A2F2F39AE71A1
 ```bash
 magnet:?xt=urn:btih:F7AC1FD5074BEED9C47EFD329F970C40893DC88C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ VA - Chillhop Essentials Winter (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 magnet:?xt=urn:btih:80600D428C848E438E66407D0782648AD7209173
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ The Killers - Rebel Diamonds (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alterna
 ```bash
 magnet:?xt=urn:btih:885C417086ED6029383797E8D6445AD55E85F211
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ Dr. Hector & The Groove Injectors - Bad Connection (1998) [APE|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +412,8 @@ Dr. Hector & The Groove Injectors - Bad Connection (1998) [APE|Lossless]<Blues>
 magnet:?xt=urn:btih:129CAD0F5D3B6FAB22CAAFF3C5CEAE7EBFF44E43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ magnet:?xt=urn:btih:129CAD0F5D3B6FAB22CAAFF3C5CEAE7EBFF44E43
 magnet:?xt=urn:btih:863EA44B4E37F9F07D726B11CB76A64B21D026D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ magnet:?xt=urn:btih:863EA44B4E37F9F07D726B11CB76A64B21D026D0
 ```bash
 magnet:?xt=urn:btih:FABAAB24818BC00216868B51802290BE5D86574F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:FABAAB24818BC00216868B51802290BE5D86574F
 ```bash
 magnet:?xt=urn:btih:D5EB1EB36E67F7F0D0FE1F25BC601032E28D2AF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +527,8 @@ Dave Fields - Detonation (2010) [FLAC|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +552,8 @@ Dave Fields - Detonation (2010) [FLAC|Lossless]<Blues>
 ```bash
 magnet:?xt=urn:btih:7095D20725BB10B464388F4173251DFA05D0B0CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +579,8 @@ magnet:?xt=urn:btih:7095D20725BB10B464388F4173251DFA05D0B0CC
 magnet:?xt=urn:btih:9AE9B89FF6D799015F800C4FBF5620009231C0CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:544F781C90F3A3A6CF6F99231BA51DD0819B202D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +633,8 @@ Neil Young - Before and After (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classi
 ```bash
 magnet:?xt=urn:btih:F738B24A0005E9B24CE37E70AF518E707695C8C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +669,8 @@ Lagooshkee - Live in London Club (2011) [MP3|320 кб/с]<Avant-Punk, Freak-Pop,
 magnet:?xt=urn:btih:2EE7F57AE6F340551B319E4C9DD2F1DB30BB2C2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +698,8 @@ Kameleon - Kameleon (1981) LP [MP3|320 Kbps] <Electronic, New Wave, Synth-pop, D
 magnet:?xt=urn:btih:9CCC0388F554B23F3E9910EB3546D6E7534BB681
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +723,8 @@ magnet:?xt=urn:btih:9CCC0388F554B23F3E9910EB3546D6E7534BB681
 ```bash
 magnet:?xt=urn:btih:8553D9FEAB2532DC0BA07B4AAA7F829CA0482E48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

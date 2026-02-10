@@ -19,6 +19,8 @@ BBC: Планета людей / BBC: Human planet (2011) BDRemux [H.264/1080p] 
 magnet:?xt=urn:btih:AF143BCF02AB6BE66CB5C5295C547156BC124752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Grand Theft Auto: The Trilogy (2021) [Ru/Multi] (1.113.49697469) Repack Deceptic
 ```bash
 magnet:?xt=urn:btih:D4C65C1E604119A07556FC86858337BE5DAD380E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ WinPE 11-10 Sergei Strelec (x64) 2025.01.19 [Ru]
 magnet:?xt=urn:btih:7D4E07C3144CDBEEB71DD04FEA84A5DA24D6704A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:7D4E07C3144CDBEEB71DD04FEA84A5DA24D6704A
 ```bash
 magnet:?xt=urn:btih:5C7E86DB2AD8D3BFE145C405A5694F83AA765D94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:5C7E86DB2AD8D3BFE145C405A5694F83AA765D94
 magnet:?xt=urn:btih:37F50C83B5B86299CAC94475FD971FDC4C45595C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:37F50C83B5B86299CAC94475FD971FDC4C45595C
 ```bash
 magnet:?xt=urn:btih:52B407F1E404237B4EE1BCB44961FF7C5ECCC4A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ VPN by Tony — ваш проводник в мир свободного инт�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ VPN by Tony — ваш проводник в мир свободного инт�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Wondershare Filmora - удобный видеоредактор, содержа�
 magnet:?xt=urn:btih:3959D2A7521C102D5B376FEB4C06C38DA5719D76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:3959D2A7521C102D5B376FEB4C06C38DA5719D76
 ```bash
 magnet:?xt=urn:btih:191870CB1C0C5710D6E5FD69C72D99CACBF71533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ AreaWeb, Михаил Протасевич, Ярослав Мурашкин | PH
 magnet:?xt=urn:btih:B03B9903E93EAB6EA48F66B90B0B00BDFD650A29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:B03B9903E93EAB6EA48F66B90B0B00BDFD650A29
 magnet:?xt=urn:btih:9702CDE189B744C83F2344D5589B8FA1CDC5A426
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:9702CDE189B744C83F2344D5589B8FA1CDC5A426
 ```bash
 magnet:?xt=urn:btih:0D0E934086FB95C62CF1442280846EE01450F701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ liveclasses, Михаил Кашкин | Какой язык программи�
 magnet:?xt=urn:btih:F684DF9FC2E1C3090070E38B99BF65D1673BB6E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:F684DF9FC2E1C3090070E38B99BF65D1673BB6E9
 ```bash
 magnet:?xt=urn:btih:670F3B5504A1078BA0FFD93B7E71F118C65C25FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ Mirror Lab стремится быть самым веселым, простым
 magnet:?xt=urn:btih:748331E6FF6AFA2C5721BD7A630DE9136182311E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:748331E6FF6AFA2C5721BD7A630DE9136182311E
 ```bash
 magnet:?xt=urn:btih:7CCB06A33500D00A535BB84557B85EB6CE13C36E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ U.D.O. - Compilation (2025) 2 CD [MP3|320 Kbps] <Rock, Hard Rock, Metal>
 magnet:?xt=urn:btih:299355F2049AF6936A408F1AD516F1C1956D2DA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:299355F2049AF6936A408F1AD516F1C1956D2DA3
 ```bash
 magnet:?xt=urn:btih:FCA0FC450E3B4FEB6E3B313C56203F405D3C785D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ Linkin Park - From Zero: A Cappellas (2025) [MP3|320 Kbps] <Alternative & Indie>
 magnet:?xt=urn:btih:83B96CA09284FEC0993FD2C4773D0EFF27681C26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:83B96CA09284FEC0993FD2C4773D0EFF27681C26
 magnet:?xt=urn:btih:B3BA701F3F46EC6F7A94654E5AE7FDC94E63F608
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ Fragrance Point (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A4D2716FA3932A8FE08F261D9978B6D6F22AED1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:A4D2716FA3932A8FE08F261D9978B6D6F22AED1B
 magnet:?xt=urn:btih:25BD801543268E63E11D2168ABADD02C254471A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ Euromartina - Part 2 compilation (2025) [MP3|320 Kbps] <Eurodisco, Eurodance>
 magnet:?xt=urn:btih:6BFE5DA52BD537C2DB6EC76DD9CD10FFAB442964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:6BFE5DA52BD537C2DB6EC76DD9CD10FFAB442964
 magnet:?xt=urn:btih:0EA8CFBD2FC0E9450C72E39A3D9DDB28FB6E329F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:0EA8CFBD2FC0E9450C72E39A3D9DDB28FB6E329F
 ```bash
 magnet:?xt=urn:btih:DBFFA6C0C6F499BEE9385CF2AF40C84ECA67EF5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

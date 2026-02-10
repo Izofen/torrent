@@ -1,3 +1,29 @@
+###  Публикация: 1056285   (481759) от 25.09.2016
+
+Голос (2016.09.24) HDTV [H.264/1080i] (сезон 5, специальный выпуск 4)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_481759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наставники продолжают набирать свои команды, преуспели в этом нелегком деле Дима Билан и Леонид Агутин, отобравшие себе по семь вокалистов. У Григория Лепса и Полины Гагариной пока по пять конкурсантов. Кому удастся занять вакантные места в четвертом выпуске Слепых прослушиваний?Телекомпания: Первый канал HDЖанр: ТВ-шоу, музыкальный, развлекательныйПродолжительность: 02:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E2F7C158699C1AE563EC193118B1727DE7B75C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056337   (481761) от 25.09.2016
 
 Танцы (2016.09.24) DVB (сезон 3, выпуск 6)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:60800C3FE2D3CE4ECAE89CB11A8380B9D81B5505
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:60800C3FE2D3CE4ECAE89CB11A8380B9D81B5505
 magnet:?xt=urn:btih:FAB24967256BB1BB07160210DEABEC747FF1D0E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:FAB24967256BB1BB07160210DEABEC747FF1D0E5
 ```bash
 magnet:?xt=urn:btih:34F4BF04C67464AC796289B2AC0527F6E324112B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:34F4BF04C67464AC796289B2AC0527F6E324112B
 magnet:?xt=urn:btih:7B844388F6EA318644F6B3305C5EE2E17481DB1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:7B844388F6EA318644F6B3305C5EE2E17481DB1D
 ```bash
 magnet:?xt=urn:btih:7062018FB9C627DB3593F0F73BB139958711378A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:7062018FB9C627DB3593F0F73BB139958711378A
 magnet:?xt=urn:btih:3561444403E666400A738EC26A5348931C11F605
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:3561444403E666400A738EC26A5348931C11F605
 ```bash
 magnet:?xt=urn:btih:573DEE666CA5D601E565771B38AE3086C8DE5046
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ NG: Нерассказанные истории второй мировой во
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ NG: Нерассказанные истории второй мировой во
 ```bash
 magnet:?xt=urn:btih:51D9D5EFBF765173679D291062B7824BDF3DF767
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:51D9D5EFBF765173679D291062B7824BDF3DF767
 magnet:?xt=urn:btih:EA788EA55BD2BAD8DDD366E9DAA8C9F31C219DC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:EA788EA55BD2BAD8DDD366E9DAA8C9F31C219DC2
 ```bash
 magnet:?xt=urn:btih:9939E9C1AD05D01213D7016762D57DADAE837777
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:9939E9C1AD05D01213D7016762D57DADAE837777
 magnet:?xt=urn:btih:AC8B38C99FF1D7DAC3411404AE138E0369CC05D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:AC8B38C99FF1D7DAC3411404AE138E0369CC05D3
 ```bash
 magnet:?xt=urn:btih:2CEC019820116A78AE96D795F64BEEC656D5D34E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:2CEC019820116A78AE96D795F64BEEC656D5D34E
 magnet:?xt=urn:btih:C4E15823437B18CD3FD422A7302E35D1AF4ED734
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:C4E15823437B18CD3FD422A7302E35D1AF4ED734
 ```bash
 magnet:?xt=urn:btih:65D3E7E764F057663AE3795114F368F0B0E5A6C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:65D3E7E764F057663AE3795114F368F0B0E5A6C7
 magnet:?xt=urn:btih:A145BEA75070A8486F4E6D03DECEFA94441DEA38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +460,8 @@ magnet:?xt=urn:btih:A145BEA75070A8486F4E6D03DECEFA94441DEA38
 ```bash
 magnet:?xt=urn:btih:96BF05778B0998C7618A10B7812C3B89B0CCFC9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:96BF05778B0998C7618A10B7812C3B89B0CCFC9A
 magnet:?xt=urn:btih:A13E79BFBDA07AD5E35E1718E98EC3E4F5B227DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +512,8 @@ magnet:?xt=urn:btih:A13E79BFBDA07AD5E35E1718E98EC3E4F5B227DD
 ```bash
 magnet:?xt=urn:btih:E403DBF1B0B5D25865739B2CEFF9EAB610659CAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:E403DBF1B0B5D25865739B2CEFF9EAB610659CAB
 magnet:?xt=urn:btih:973410163048D1592EE9B821F3B164457A661BC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +564,8 @@ magnet:?xt=urn:btih:973410163048D1592EE9B821F3B164457A661BC5
 ```bash
 magnet:?xt=urn:btih:AAB221C110BFC7791A6CA55B859ACE8520134CC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:AAB221C110BFC7791A6CA55B859ACE8520134CC6
 magnet:?xt=urn:btih:A100BA21CFD6D92D98958D3586549D77BE20887F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +616,8 @@ magnet:?xt=urn:btih:A100BA21CFD6D92D98958D3586549D77BE20887F
 ```bash
 magnet:?xt=urn:btih:23451FEB0FE6E4AB19BF2C2EF2F668DDA220F603
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +643,8 @@ magnet:?xt=urn:btih:23451FEB0FE6E4AB19BF2C2EF2F668DDA220F603
 magnet:?xt=urn:btih:792FE49EE47AC1C55DB859A1A53BAAB227941959
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,29 +669,7 @@ magnet:?xt=urn:btih:792FE49EE47AC1C55DB859A1A53BAAB227941959
 magnet:?xt=urn:btih:B41A822F21D515F3215DA0972C99BF421AA24E9A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938440   (482089) от 18.09.2015
-
-Анатолий Вассерман. Открытым текстом (18.09.2015) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Анатолий Александрович Вассерман — журналист, политический консультант, известен как многократный победитель интеллектуальных телеигр в программе «Новости24. Открытым текстом» за 10 минут даёт свой обзор главного в прошедшей неделе...Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68A2A63ECCF8C0FB3B8B6EB585826DF9A8E35EDC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

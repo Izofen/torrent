@@ -19,6 +19,8 @@ SlavicPunk: Oldtimer - изометрический шутер, основанн
 magnet:?xt=urn:btih:04A0C67D0BB1D7A6FA10E05ECDEBB02C101FEFB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Flashback 2 отправляет геймеров в умопомрачител�
 ```bash
 magnet:?xt=urn:btih:630159C543696A2713C6B1B62359D70349755579
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Good Company — это симулятор менеджера в жанре «т
 magnet:?xt=urn:btih:DFE80D5428BB5766CA3D554E4D24C16F6D605195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ KUNAI - динамичная смесь экшн-платформера и ме�
 ```bash
 magnet:?xt=urn:btih:EC780C2BA7F4555230E100F3062778B53EE1760A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Winkeltje - игра о строительстве, украшении и упр
 magnet:?xt=urn:btih:3A0DAD4B90CBDA6C5183B1E1BBAB9C8AF6731E80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ IXION (2022) [Ru/Multi] (1.0.7.0) License GOG
 ```bash
 magnet:?xt=urn:btih:1E994F2F057EB03B703686F04E3FFE0695FAAD98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Stray Gods: The Roleplaying Musical (2023) [Multi] (8863.1/dlc) License GOG
 magnet:?xt=urn:btih:BCA8D94878C8CADBF47EF19DF8CB97031043B62C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Doodle Adventure of Chameleon (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:31B09603B06B15D4A862568B24453B177FC303F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Crab God – это увлекательная подводная крабост
 magnet:?xt=urn:btih:D89B644777655BB807AD86E9017CC0EE1A6162C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Supreme Ruler 2030 - это политический симулятор, в ко
 ```bash
 magnet:?xt=urn:btih:E33C66553847A1817A324E09EE81353BD01E4C7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ STUFFED - это процедурно-генерируемый шутер от �
 magnet:?xt=urn:btih:DE7B78AB22DEE0C0FEEAB8C75A44D12ACD88F8F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Mushoku Tensei: Jobless Reincarnation Quest of Memories (2024) [Multi] (1.0.3) R
 ```bash
 magnet:?xt=urn:btih:02E3F13C0CF4E48D2D870B81853AE4731588BC63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ New Yankee 13: Mary's Dark Side / Янки 13: Темная сторона Мэ�
 magnet:?xt=urn:btih:75ABA1DCF8EB3C6323563B4187027E3BF362D282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:75ABA1DCF8EB3C6323563B4187027E3BF362D282
 ```bash
 magnet:?xt=urn:btih:964DD65637BC9B26739A90E312B77D28C353E73F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Train Life: A Railway Simulator – это симулятор поезда и ж
 magnet:?xt=urn:btih:222EB1DDA97ECDA80CE223FBCFE0C00001660A6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ SPY×ANYA: Operation Memories ставит вас на место очарова
 ```bash
 magnet:?xt=urn:btih:17C3E524C43651BF51594935D1A16BAC7286F3B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Astrox Imperium - космический симулятор с элемента�
 magnet:?xt=urn:btih:A8DF4134143137345D6876B3B6324FC6C1BAA42C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Thief Simulator 2 (2023) [Ru/Multi] (1.27c) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F37F2C75A1DF2638DB63C08BD5EC799E30B68E45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ GASPING.2 - это однопользовательская игра на выж
 magnet:?xt=urn:btih:72B42B9596D6182E7E52AA3E90BE5D9055D1A014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Windstorm: Start of a Great Friendship - Remastered (2024) [Multi] (0.7.3) Repac
 ```bash
 magnet:?xt=urn:btih:EAAEFE61C9D34F9E4725A85A86344CDD4F98835C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Ludus Mortis переносит вас в мрачную фэнтезийную 
 magnet:?xt=urn:btih:12B5B21E9F9A4E2608FF4C9CCDF6C8CEF61D033C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Chornobyl Liquidators - симулятор ликвидатора Чернобы
 ```bash
 magnet:?xt=urn:btih:DC1B06398248CB12611D2AB2578E61C73CFCD3A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Nightshade Mysteries: Eternal Moon (2024) [En] (1.0) Unofficial [Collector's Edi
 magnet:?xt=urn:btih:368B73240551DC5E5596C535D490E90973693C5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ New Yankee 14: Through the History Mirror / Янки 14: Сквозь зерка
 ```bash
 magnet:?xt=urn:btih:E702A97658362DA414B8309637FA1FEC31913C4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Undeadly - это пошаговая стратегическая игра на 
 magnet:?xt=urn:btih:55B170B3007331C7539A99582847CB61A4AEB942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Alaskan Truck Simulator – уникальная игра, в которой в�
 ```bash
 magnet:?xt=urn:btih:4628E4309401493DFB756DFF145DFDA8B2C12FA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

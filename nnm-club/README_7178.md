@@ -22,6 +22,8 @@ Shinnobu - The Enigma VIII (What Once It Was) (2019) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:9B7EBBF650DF9947762DA382DA0579A154D08AA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:9B7EBBF650DF9947762DA382DA0579A154D08AA0
 magnet:?xt=urn:btih:E1DCE8B9FD2843A259A8E7028BD5DD7C2860A7B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ LIMBO (2011) [Ru/Multi] (3.0.0.1a) License GOG
 ```bash
 magnet:?xt=urn:btih:1EF151CB551ABBE5A89A70254088707A854F39DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:1EF151CB551ABBE5A89A70254088707A854F39DF
 magnet:?xt=urn:btih:BD791369B0D2A142082A07A80BB8B820C2135111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:BD791369B0D2A142082A07A80BB8B820C2135111
 ```bash
 magnet:?xt=urn:btih:DF7AEBB9953E290854A12E844D908A2A193AD490
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:DF7AEBB9953E290854A12E844D908A2A193AD490
 magnet:?xt=urn:btih:946CB702D58C6F7CCC20BF8391F2FB65E886A010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ They Always Run (2021) [Ru/Multi] (1.0.15.920) License GOG
 ```bash
 magnet:?xt=urn:btih:AEF97F51D23F5D08B83715663681FB78DA7AEAD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ CD1:
 magnet:?xt=urn:btih:11D7FA0969A2BA929CC1323C861C9FFEECE79397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ The Sims™ 2: Super Collection v1.2.4 (2005) [Multi] [macOS Native game]
 ```bash
 magnet:?xt=urn:btih:2452B8A9347993009A01BCA0CC72320A49ABF949
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Mp3tag - утилита, для быстрого редактирования ID
 magnet:?xt=urn:btih:9A1B2A2A5E931FA94C4F5AD657A484CBABDDA06E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:9A1B2A2A5E931FA94C4F5AD657A484CBABDDA06E
 ```bash
 magnet:?xt=urn:btih:11831EA021EB3EE1F22B52C726F9862077411DE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Playboy - легендарный журнал для мужчин, основа�
 magnet:?xt=urn:btih:876586F2E23213E76326FE8C17AF6A7206D59777
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:876586F2E23213E76326FE8C17AF6A7206D59777
 ```bash
 magnet:?xt=urn:btih:BCAEFD010E61E1CB22D41EEF02910616EAB2C577
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Monster Truck - Furiosity (2013) [FLAC|Lossless]<Hard Rock/Stoner Rock>
 magnet:?xt=urn:btih:FABFA6FCA949C1FED2E36DE05FC95C0375DE119C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:FABFA6FCA949C1FED2E36DE05FC95C0375DE119C
 magnet:?xt=urn:btih:0FA8937C7802CD852B2437468C0F914A4537C9F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:0FA8937C7802CD852B2437468C0F914A4537C9F6
 ```bash
 magnet:?xt=urn:btih:2ED95AA9C563DEC70A09FB07BC26013652132CB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ Test Drive®: Ferrari Racing Legends [En] (RePack) 2012 | R.G.Games
 magnet:?xt=urn:btih:80DCA235F75471968EE755799779618331CA2C0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:80DCA235F75471968EE755799779618331CA2C0C
 ```bash
 magnet:?xt=urn:btih:6DB65E7919FC5F4525C4C06BBB12C318B6CA41EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ Enya - Christmas Secrets (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celtic, 
 magnet:?xt=urn:btih:F73A138A92482CB3ABA0520DBA8D7186D6D749A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:F73A138A92482CB3ABA0520DBA8D7186D6D749A0
 magnet:?xt=urn:btih:88245CEDBF3F7EFCBBE59472A4B9EC4D04B5E58C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ Windows 11 3in1 VL (x64) Elgujakviso Edition (v.25.10.22) [Ru]
 magnet:?xt=urn:btih:C659A152522CE823EC7E070E935BDA99BF1C401F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:C659A152522CE823EC7E070E935BDA99BF1C401F
 ```bash
 magnet:?xt=urn:btih:C3F868F52687EF5913D4CFA90486854C74E832D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ Paula Atherton - Can You Feel It (2020) [FLAC|Lossless|image + .cue] <Smooth Jaz
 magnet:?xt=urn:btih:985AC448C897B1EA958F270DBFC955C26721853D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ magnet:?xt=urn:btih:985AC448C897B1EA958F270DBFC955C26721853D
 magnet:?xt=urn:btih:A6250B58A851944B18B91176E27E3CD57E0F98F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:A6250B58A851944B18B91176E27E3CD57E0F98F2
 ```bash
 magnet:?xt=urn:btih:BC6D2949A7AE14185E92FFCC509112D0E18CA69C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +698,8 @@ VA - Christmas Cafe (2016) [FLAC|Lossless|tracks] <Pop, Soul, Folk>
 ```bash
 magnet:?xt=urn:btih:9481DE3B44914BD429C5C34819616492352E0170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

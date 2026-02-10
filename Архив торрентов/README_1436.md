@@ -19,6 +19,8 @@ Office Tool Plus - функциональная программа для раб
 magnet:?xt=urn:btih:6013C0D1D0AF31C35F168176C220962F443EE5F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ AutoPowerOptionsOK — небольшая по размеру утилита, п
 ```bash
 magnet:?xt=urn:btih:BFF743AEDF3FD7E336883C98BE9C3FB213C7087F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 magnet:?xt=urn:btih:3F87ADA0094CFAC5B087F50FE36680FA363C008F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:80CC5D5CCC085A529F971C1D3639ADC460DBA416
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Winaero Tweaker - системная утилита для настройки в
 magnet:?xt=urn:btih:ADEB0857A2CEBB1B9506F27089429CB4FD061E12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:29DF528076CD9B5A401B372AA3F5461BE5EB6CED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ CrossOver 22.1 [Multi/Ru]
 magnet:?xt=urn:btih:03FC91C4AD66CD09BC08226A0C1BD0FD008B7242
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ OCCT 12.0.0 Portable [En]
 ```bash
 magnet:?xt=urn:btih:192DC6314DCD3A190A83D283242875FB29EF8250
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ uTorrent Pack 1.2.3.69 Repack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:505E5A628AF4C73FD6E1737600D0E7DEB679C9CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 magnet:?xt=urn:btih:9B4F25A8F4F2E119E731D43223ED7720139A4692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Ant Download Manager - отличный менеджер загрузки сам
 ```bash
 magnet:?xt=urn:btih:4E3576A1CCA2461D0B6A0E60607E738F156DF138
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Wolfram Mathematica 13.2.1 [x86_x64] (.sh)
 magnet:?xt=urn:btih:4BE58E8AB19AB878AF14BDCEE13677743C8E87ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:4BE58E8AB19AB878AF14BDCEE13677743C8E87ED
 ```bash
 magnet:?xt=urn:btih:B831B30BC2681AB3A7377C11E4BA86A79B888B83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Revo Uninstaller Pro 5.1.4 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:906ACA8D4102835FF57E85D5F22371779331AF19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Tor Browser Bundle 12.0.6 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E5575E75E5486CA422846753325CD0AA38282812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ SIV (System Information Viewer) - мощнейшая утилита, показ�
 magnet:?xt=urn:btih:4E61133E7DEC85A5D9745E66898BB88E0D44D2FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Media Player Classic - Black Edition (MPC-BE) – универсальный п�
 ```bash
 magnet:?xt=urn:btih:97D59B50E202DA5C0CE6CBBDFCC3F8E9F93A3D03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ AquaSoft Stages представляет собой мощный инструм�
 magnet:?xt=urn:btih:CEC5EE889E7C1FFB6992E5F8927F315A03EF18F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ BitComet - это функциональный, быстрый и простой
 ```bash
 magnet:?xt=urn:btih:3CC45E5E5969F48FC18712E1425267B805C79C29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:3CC45E5E5969F48FC18712E1425267B805C79C29
 magnet:?xt=urn:btih:9FC741AF4CB2E86DC3629E75D4FC5230CEEABD01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ uTorrent Pro 3.6.0 Build 46812 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:6084F565535667C2911D3F204CEDC334DB57B463
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ OpenVPN – мощная программа для работы с частны�
 magnet:?xt=urn:btih:AACF7967C74ED7BC4CAAB606E1FC2D0C255E4BF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:657F8E1938E685F3B5AD2E2F9C6BACD9635810D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ OCCT 11.0.23 Final Portable [Multi/Ru]
 magnet:?xt=urn:btih:B469F93777ABD6559234B73D47702D57E447BA91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ Text Editor Pro 27.2.0 + Portable + Bonus [Multi/Ru]
 magnet:?xt=urn:btih:E7F43843AC0E879E408F6051C67EB46C71F8286E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ PowerDirector - самое быстрое и передовое программ
 ```bash
 magnet:?xt=urn:btih:33381799F8BCD4A0006D222FE88C151E89BC144C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

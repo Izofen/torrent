@@ -22,6 +22,8 @@ Diana Ross - Thank You (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul>
 magnet:?xt=urn:btih:C6CFFC1DF2E3630793B37A332B9A292CF94E57EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ ABBA - Voyage (2021) [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:EF0C460E3FF37E2D1F9E306F5C17893EE7E19BE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ ABBA - Voyage (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:A954D8FCA97188C542DEFEBF21AF8C315A4F4704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Fancy - Hit Party (1998)(Compilation)[FLAC|Lossless|image + .cue] <Euro-disco, S
 ```bash
 magnet:?xt=urn:btih:19B2A605627524887A6F1E1BB5B082E18D85DBBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -132,6 +140,8 @@ magnet:?xt=urn:btih:19B2A605627524887A6F1E1BB5B082E18D85DBBA
 magnet:?xt=urn:btih:666794ED9A4BD964208AE03322AF5029F025A541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -158,6 +168,8 @@ Duran Duran - Future Past (2021) Japanese Edition [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:18C6E65FC1FF79C4B8CBE5A44486D7F94C386F2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -186,6 +198,8 @@ Sonic - Seasons (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B>
 magnet:?xt=urn:btih:5E702E44567141C1C54460F03F05F14824F38C07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +226,8 @@ VA - Best Clean Pop Hits (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:D33A3C4FE8A8E2D436E9D0084C3BCECE6D840E1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +256,8 @@ Dalida - Ciao ciao mon amour (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
 magnet:?xt=urn:btih:F6AE67DCC3B0FFD46D7F21D16B9E6A1BC797F0D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +284,8 @@ Charlotte Gainsbourg - 5:55 (2007) US Edition [FLAC|Lossless|tracks + .cue] <Ind
 ```bash
 magnet:?xt=urn:btih:AF6C97FBEEAC1208A81D219CEC7D7625D419DC98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +314,8 @@ Fernando Express - Unser traum darf nicht sterben (2004) [FLAC|Lossless|image + 
 magnet:?xt=urn:btih:AF8A710F9E414ECC932BCECC26567D868C909559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +342,8 @@ VA - Absolute Music 74 (2013) 2CD [FLAC|Lossless]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:208264977BA598FCE2F1E525CD01894A1059B3E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +372,8 @@ Poppy - Poppy.Computer (2017) [FLAC|Lossless|tracks] <Pop, Electronic>
 magnet:?xt=urn:btih:C386F3A4137F25860D16C31F832B02CB86EC4858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +400,8 @@ Jamiroquai - Automaton (2017) [FLAC|Lossless|tracks + .cue] <Pop, Funk>
 ```bash
 magnet:?xt=urn:btih:9016CD0E73795E290BB9BF0E86B70FB0FF844F54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +430,8 @@ In Memory Of George Michael - Tribute Album (2017) [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:368FB9CB5379A7EFAB0C60992AC1948F64BCF68D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +458,8 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:EA79CE29719B9E091B42276D39F7E68182209C09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +488,8 @@ Dami Im - My Reality (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:B6664DD5763864228703DCF004DBEB857A4D16E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +516,8 @@ Michael Jackson - Xscape (2014) Deluxe Edition [FLAC|Lossless|image + .cue] <Pop
 ```bash
 magnet:?xt=urn:btih:8115C3C8A96798FE09C93453B88953B2239E924B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +546,8 @@ Beyonce - Lemonade (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, Soul>
 magnet:?xt=urn:btih:17EDA400AB0A31EE91C6B10502F9412B7F5BABCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +575,8 @@ VA - Eurovision Song Contest Stockholm 2016: Come Together (2016) 2CD [FLAC|Loss
 magnet:?xt=urn:btih:9D0DAF73F8CAE49A5AA50988FE01A27C5CFEE56C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ Roxette - It Just Happens (2016) Single [FLAC|Lossless|WEB-DL|track] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:F5E3996E369F52F850CB22881B9A22CF917FAA89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +630,8 @@ Lena Anderssen - Eagle In The Sky (2015) [FLAC|Lossless|tracks] <Pop, Alternativ
 magnet:?xt=urn:btih:03410EE691B1B0B95CA58C937C83FA5790FCF606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ The Lockdown Sessions - четвертый совместный альбом а�
 ```bash
 magnet:?xt=urn:btih:58052941865018C16C2D97C14D4DB72BCC10A01E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ Nelly Furtado - The Ride (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, R'n'B>
 magnet:?xt=urn:btih:78F0AB7259E3C6683EF786D25608EBFD39384244
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ Dami Im - Classic Carpenters (2016) [FLAC|Lossless|tracks] <Pop>
 magnet:?xt=urn:btih:6D3A5937221E02BAD0F6830F6C130ED4511EDE68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:29B76D573A5E63E56ED7961D5CC159C022859A41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

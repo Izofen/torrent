@@ -20,6 +20,8 @@ InnoExtractor - это мощное приложение, которое пом�
 magnet:?xt=urn:btih:3292C135C07C987BF30C2CF269F0F461E02794BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:3292C135C07C987BF30C2CF269F0F461E02794BB
 magnet:?xt=urn:btih:1304491322E15433AA28569C1514C0162FDE4B97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Smart AudioBook Player Pro v11.2.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:053863DC29A36DBDD8E1AE89528A68B05B48430C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Shazam (шазам) распознает любую песню за секунд
 magnet:?xt=urn:btih:C62556ED19E61B1BFE4D2BF9B9795CBA30EAE0EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ OCCT 14.0.3 Portable [En]
 ```bash
 magnet:?xt=urn:btih:29500B21C72433CE896A4F81D9904AE4D762501D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Photo Studio — не просто приложение для редактир�
 magnet:?xt=urn:btih:90698FA6FB0FECEB5ED15DAE0935AF4F081E1DB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ ToonApp карикатура фоторедактор лучшее прилож�
 ```bash
 magnet:?xt=urn:btih:E44AA8FD72E9902560E23B6FE182E1DF8E8B3FAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 magnet:?xt=urn:btih:5587E1CB13444BD67580F665BDAF80FA8E94E2FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ AIMP 5.40 Build 2674 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9E558FD15C2226156C4FD93736F6ACA0AC9480FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Genius Art: Image AI Generator v1.3.0 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:674C9FBAA89CDC3B7C27905D3A6AFF701D4F9D4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:674C9FBAA89CDC3B7C27905D3A6AFF701D4F9D4A
 ```bash
 magnet:?xt=urn:btih:D89BFC802D4A5C341C3BE29FAC16D3CE586CB547
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ PictureThis - Plant Identification v5.1.8 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:ABC48D93976CC4DCBDD79EF8C9DD8EAF3E4097CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ InShot - Мощный видеоредактор и фоторедактор н�
 ```bash
 magnet:?xt=urn:btih:F3BB07B7CD2C37C3EE9E7DAD9C776209A43DB3BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Smooth Operator Pro - Спектральный балансировщик сиг
 magnet:?xt=urn:btih:643C25A6FFB0EBEF4B7AAD80C2F660B955716B1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Material Pods: батарея AirPods v6.65 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2C67EBF7229055637C0D5E3DD12B463560CBC005
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:F409A538E2A3DCA0C396C4BD3C2A91724CCB5ED9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:F409A538E2A3DCA0C396C4BD3C2A91724CCB5ED9
 ```bash
 magnet:?xt=urn:btih:784CD3D4B5C817EC09616BD94CECAB246C5652B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ HiPER Calc Pro v11.1.3 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:99BA11B7B1B45821E54E89D94C290DDC3AE7A434
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ PictureThis - Plant Identification v5.1.7 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D4E41D4BAEFD1903CDB11F5B2B22D7E2FAC0E1B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:D4E41D4BAEFD1903CDB11F5B2B22D7E2FAC0E1B4
 magnet:?xt=urn:btih:1C0C7191B5D6FE9A6E4DC80B23D71E7FA556F144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Smart AudioBook Player Pro v11.2.2 Mod by Kirlif' [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:481CF69B6E2C7B7A818F10034C6577C5A119495C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Smart AudioBook Player Pro v11.2.2 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:BB71AEB9A22B61162A8B65259D2D21E88A5F0C96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ PowerDirector – Video Editor v15.0.2 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:46421C592556058A64C48BED11272212C36C3A4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:325A06BC69A84CB1814F2256905E1159471610B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ OB-Xd — это классический синтезатор с неподвл
 magnet:?xt=urn:btih:3DDFBB218FFF388D632466765F38A22D7E9D009D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ XYplorer – удобный многовкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:B45F4E15F00C251D9188F7E56B080BA8E1659304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

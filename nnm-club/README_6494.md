@@ -19,6 +19,8 @@ R-Drive Image — является эффективной утилитой дл�
 magnet:?xt=urn:btih:DFE7F04238C34817793B9CCE5023EC0601A4A144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ OnionFruit Connect 2023.521 [En]
 ```bash
 magnet:?xt=urn:btih:A74D53BD58D18400FDBEED01A9616C0BDB8CD9FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:A74D53BD58D18400FDBEED01A9616C0BDB8CD9FC
 magnet:?xt=urn:btih:07747AC7037FF04ABD76809719A6261A7E8391E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ StopUpdates10 – бесплатная утилита для Windows 10 и Windo
 ```bash
 magnet:?xt=urn:btih:F0EB145DA5415C78030F0849D45F8C9AC65BCD5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:F0EB145DA5415C78030F0849D45F8C9AC65BCD5F
 magnet:?xt=urn:btih:6CC27E3D3466A994AE9DBB8A35A2421F1DCBE181
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:26D2B5EFCF51227755BCCBE1D0B5154AD1FC163E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:26D2B5EFCF51227755BCCBE1D0B5154AD1FC163E
 magnet:?xt=urn:btih:E1246780E8814A37F38FAD07831EBF750BB65006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:E1246780E8814A37F38FAD07831EBF750BB65006
 ```bash
 magnet:?xt=urn:btih:F95A969BABCA6DA351DAA5DA5A971F74635DB4F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:F95A969BABCA6DA351DAA5DA5A971F74635DB4F7
 magnet:?xt=urn:btih:B83CF721D5C37EDAA0E19BCB52F9EE0C00E295AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:B83CF721D5C37EDAA0E19BCB52F9EE0C00E295AD
 ```bash
 magnet:?xt=urn:btih:0128A3B6E4FBF28F5E328FA0B6737E57B3D8D9E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:0128A3B6E4FBF28F5E328FA0B6737E57B3D8D9E7
 magnet:?xt=urn:btih:E64F29D393516431EA5F40D6CF4E727D9634F77B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ R-Studio Network 9.2 Build 191153 RePack (& portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:579D10D54177D13178384956D6FB4FC671C6431C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:579D10D54177D13178384956D6FB4FC671C6431C
 magnet:?xt=urn:btih:3E1352E61589166A8384848FA0DC69C0E152F585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:3E1352E61589166A8384848FA0DC69C0E152F585
 ```bash
 magnet:?xt=urn:btih:160B7BCFF352B10E74C5A078847ED86B8237F7C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:160B7BCFF352B10E74C5A078847ED86B8237F7C6
 magnet:?xt=urn:btih:097DABB0F85990861F5B62398EF797A34F9ADB0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:097DABB0F85990861F5B62398EF797A34F9ADB0F
 ```bash
 magnet:?xt=urn:btih:2A9729501CF41608713F45C105D8D33997015CE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:2A9729501CF41608713F45C105D8D33997015CE8
 magnet:?xt=urn:btih:F4CCA7725A2DA5B4E57904A8D51FC0CCC2F74FC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:F4CCA7725A2DA5B4E57904A8D51FC0CCC2F74FC1
 ```bash
 magnet:?xt=urn:btih:B2F3384480C3A7F58CDDE467F0EE4D6029A80684
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:B2F3384480C3A7F58CDDE467F0EE4D6029A80684
 magnet:?xt=urn:btih:4956681E7E67B4AD1606F7E980DDDBA2B1AA0AD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ magnet:?xt=urn:btih:4956681E7E67B4AD1606F7E980DDDBA2B1AA0AD2
 ```bash
 magnet:?xt=urn:btih:BAFBC2DEE17E1613C5DEC0D106C33AE8B3F21E73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:BAFBC2DEE17E1613C5DEC0D106C33AE8B3F21E73
 magnet:?xt=urn:btih:DE243F8431B8D2305998E5A432DC8472F17BD962
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ magnet:?xt=urn:btih:DE243F8431B8D2305998E5A432DC8472F17BD962
 ```bash
 magnet:?xt=urn:btih:A479D93A7D8C0810488CA6972B6419A0932D1139
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Windows 10 Debloater – небольшая утилита для тонкой �
 magnet:?xt=urn:btih:52C2E0B55C631AB5A597108235FEF274EBC4FB3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ magnet:?xt=urn:btih:52C2E0B55C631AB5A597108235FEF274EBC4FB3F
 ```bash
 magnet:?xt=urn:btih:D2191E37C40F47099F8A5B66DA7A69CAE6D4E91F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ magnet:?xt=urn:btih:D2191E37C40F47099F8A5B66DA7A69CAE6D4E91F
 magnet:?xt=urn:btih:6908A7273CDC8AC17E35FA0DDEED7F53D4EF906E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ magnet:?xt=urn:btih:6908A7273CDC8AC17E35FA0DDEED7F53D4EF906E
 ```bash
 magnet:?xt=urn:btih:4C43479F0B2ACEE34A1E3586EBA472CA4B13426A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

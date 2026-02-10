@@ -1,3 +1,29 @@
+###  Публикация: 1150857   (577559) от 16.07.2017
+
+Линда Холмс | Шерлок Холмс. 5 минут на расследование (2017) [FB2]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_577559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Под обложкой этой книги собраны двадцать увлекательных криминальных историй и сорок шесть головоломных задач различной степени сложности. Это – прекрасный способ интересно и пользой провести досуг, поупражнять свой мозг и развить интеллект.Жанр: Зарубежная прикладная литература, Развлечения, ГоловоломкиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4076B8261F8373DAFE49B666190EB595AAAEB59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303029   (577707) от 18.05.2019
 
 Уилл Сторр | Селфи. Почему мы зациклены на себе и как это на нас влияет (2019) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:DBD8F762ED1FF7494D876F0EBD322C89F149C83A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:DBD8F762ED1FF7494D876F0EBD322C89F149C83A
 magnet:?xt=urn:btih:9DFE063D5AD52CD19286434D8FBE022AA00C5FD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:9DFE063D5AD52CD19286434D8FBE022AA00C5FD9
 magnet:?xt=urn:btih:882AEF22DEBC7D40D49678155AA46A6B466A2BE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:882AEF22DEBC7D40D49678155AA46A6B466A2BE4
 ```bash
 magnet:?xt=urn:btih:53184C31EA2DE31128F8FE9D7236B76025370DD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:53184C31EA2DE31128F8FE9D7236B76025370DD1
 magnet:?xt=urn:btih:C7789CD7A32F7E4CEAA00D3A05E47D673FAE1DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:C7789CD7A32F7E4CEAA00D3A05E47D673FAE1DE0
 ```bash
 magnet:?xt=urn:btih:18E9CA02713A6BE8D20F16AD76AB692C10FB3B77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +209,8 @@ magnet:?xt=urn:btih:18E9CA02713A6BE8D20F16AD76AB692C10FB3B77
 magnet:?xt=urn:btih:5A7FC796687D791C7F685623313C3BB4B8DEB1DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:5A7FC796687D791C7F685623313C3BB4B8DEB1DF
 ```bash
 magnet:?xt=urn:btih:2F06A6C96FCACA5B4C107E1D8A936436D4D15274
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:2F06A6C96FCACA5B4C107E1D8A936436D4D15274
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:2F06A6C96FCACA5B4C107E1D8A936436D4D15274
 ```bash
 magnet:?xt=urn:btih:3EEE24577A409BF0A242CAC6293C0D13C2E6CCB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:3EEE24577A409BF0A242CAC6293C0D13C2E6CCB0
 magnet:?xt=urn:btih:4D4F5FA51D541752346FA84645190C25E30DD58D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:4D4F5FA51D541752346FA84645190C25E30DD58D
 ```bash
 magnet:?xt=urn:btih:492BEF931B7B78E742BA5DF3C3708BB5D5216FF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:492BEF931B7B78E742BA5DF3C3708BB5D5216FF1
 magnet:?xt=urn:btih:80F6E8A82F2A05CB5730115DF09E68FEC62BE56C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:80F6E8A82F2A05CB5730115DF09E68FEC62BE56C
 magnet:?xt=urn:btih:9DAB59E0B160CBBF231A9BCFE271141338637CCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:9DAB59E0B160CBBF231A9BCFE271141338637CCE
 ```bash
 magnet:?xt=urn:btih:FA36A4C20AFC600CF0618050501759AA7DC84EB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:FA36A4C20AFC600CF0618050501759AA7DC84EB3
 magnet:?xt=urn:btih:3BBCCA3F95155F75B7A78AD135B0B10D16E1BCFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:3BBCCA3F95155F75B7A78AD135B0B10D16E1BCFF
 ```bash
 magnet:?xt=urn:btih:B8825B13680CD94643C6F40CF0198703A54AC004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:B8825B13680CD94643C6F40CF0198703A54AC004
 magnet:?xt=urn:btih:AFEF62E5D4B632DB40607DB1F14C006438E3AE36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:AFEF62E5D4B632DB40607DB1F14C006438E3AE36
 ```bash
 magnet:?xt=urn:btih:990D19F013106CEF949B66BD4E2D1754F73C907D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:990D19F013106CEF949B66BD4E2D1754F73C907D
 magnet:?xt=urn:btih:64EBBB90E9A7859F4C01A236CBF5E071C54C02BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:64EBBB90E9A7859F4C01A236CBF5E071C54C02BC
 ```bash
 magnet:?xt=urn:btih:FACF9AC9A2BC4717243C9A4968F998810D0EB1E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:FACF9AC9A2BC4717243C9A4968F998810D0EB1E4
 ```bash
 magnet:?xt=urn:btih:6BC0CA1E406A764562ED03FBD33BBD7E139BDBE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:6BC0CA1E406A764562ED03FBD33BBD7E139BDBE7
 magnet:?xt=urn:btih:D042BCF5349E57D7E07DC18F0161DC1D38EF1F6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:D042BCF5349E57D7E07DC18F0161DC1D38EF1F6C
 ```bash
 magnet:?xt=urn:btih:330D575FA6D38C5B7528E2634C8AE5904D2F4576
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,31 +687,7 @@ magnet:?xt=urn:btih:330D575FA6D38C5B7528E2634C8AE5904D2F4576
 magnet:?xt=urn:btih:456E00F904BE4FF582118EE43CBFED22FCD367EE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302677   (579382) от 17.05.2019
-
-К. Маркс | Восемнадцатое брюмера Луи Бонапарта (1935) [DJVU, PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_579382.jpg" />
-</div>
-
-
-###  Подробнее
-
-В работе на основе материалистической диалектики дан анализ основных этапов французской революции 1848 года, объясняются причины контрреволюционного переворота Луи Бонапарта в декабре 1851 года. На конкретном примере Франции классовая борьба рассматривается как движущая сила истории.
-
-Маркс подчёркивает глубокое различие между фразами и иллюзиями тех или иных политических (   Читать дальше...   )Жанр: История, политология, экономика, социология, публицистикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07FC69EE5E049FD035FAA45425F328E826BE456C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

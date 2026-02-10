@@ -19,6 +19,8 @@ WinUtilities - набор утилит WinUtilities Professional для наст
 magnet:?xt=urn:btih:5C3DE4CA19ED68687A230C823AA4D7890A7E6143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:7452ECBC86F5EF11BEA6C32E9E9E5DA0A335904A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:7452ECBC86F5EF11BEA6C32E9E9E5DA0A335904A
 magnet:?xt=urn:btih:44111654E6D92D782B00D25671EC39372CA99175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:44111654E6D92D782B00D25671EC39372CA99175
 ```bash
 magnet:?xt=urn:btih:44C61586CFE85AD31FC690D7A33D7E6DBB075210
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 ```bash
 magnet:?xt=urn:btih:D9E31738434B834040C9CC253A59B6FB5708A73F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:D9E31738434B834040C9CC253A59B6FB5708A73F
 magnet:?xt=urn:btih:B309B7A766949F9F9EBE3119F294A308F7CB958B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:CD325C56487A5A8E7593622F7DDD51702F6F2D96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ DVDFab – многофункциональное приложение для к
 magnet:?xt=urn:btih:29640E896AA044FB55B83EC39E149E3C30BFDB34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ FinePrint - многофункциональный драйвер для при�
 ```bash
 magnet:?xt=urn:btih:BBABDF20A4444438B49EB4DD5497C340069A302D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Movavi Slideshow Maker – это простая и удобная програ�
 magnet:?xt=urn:btih:79C89DD117DD1B279C7514958DEB5BE103C976CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:625868F4C6B3941D06E3A88945BCA44879D9BC76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ NIUBI Partition Editor (Repack & Portable) – программа для про�
 ```bash
 magnet:?xt=urn:btih:7FD52F6AE3E1E0D1527D15730C8A8F4BAD2E83CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Chocolat для Mac OS - Редактор текста и исходного к�
 magnet:?xt=urn:btih:7B8671C73B097265DA35DB296854395F94E72E7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ Ashampoo Uninstaller 6.00.13 RePack by D!akov [Ru/En]
 ```bash
 magnet:?xt=urn:btih:0C536209FC9672B974D2DF7439CED3CB3C46FA72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ Apollo Brown & Joell Ortiz - Mona Lisa (2018) [FLAC|Lossless|Web-DL|tracks] <Hip
 magnet:?xt=urn:btih:4D7C9F11B72851FF09670584763D0061EC50017C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:6D84913213F7C244B6FC67390A281013EFD0659C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:6D84913213F7C244B6FC67390A281013EFD0659C
 magnet:?xt=urn:btih:C6B463059B34D89060EAA12FD3DC072E3A7EC3E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:C6B463059B34D89060EAA12FD3DC072E3A7EC3E2
 ```bash
 magnet:?xt=urn:btih:42104F8A026F518F3C66F9F9D04AE0E5DD0B8870
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:42104F8A026F518F3C66F9F9D04AE0E5DD0B8870
 magnet:?xt=urn:btih:7C4551383BA176DD4080420966C0D182C73F6DD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:4EFB90A451457553C613D29569A8F7087ADF1781
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ Curren$y, Freddie Gibbs & The Alchemist - Fetti (2018) [FLAC|Lossless|Web-DL|tra
 magnet:?xt=urn:btih:7EB1C0F0125057086DB9FE67EA717D6F85A35FB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:FC1937C1A635CEF359B032473C8A55E2FFB5841F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:FC1937C1A635CEF359B032473C8A55E2FFB5841F
 ```bash
 magnet:?xt=urn:btih:A2B5A6A1277F204E9FF211142A0EB408BE7A1A0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ VA - Aranya (2013) [FLAC|Lossless|WEB-DL]<Psy-Trance, Darkpsy, Forest>
 magnet:?xt=urn:btih:DD759DEEAC5094617C2972FCCAF848DE733CB04B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:A6A883595785B30519F39591A2F66884408A5828
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:A6A883595785B30519F39591A2F66884408A5828
 ```bash
 magnet:?xt=urn:btih:EA84C222F6DAB347B6A85EA31FB5721C21C2166B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

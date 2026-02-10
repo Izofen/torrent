@@ -19,6 +19,8 @@ LIMBO - мультиплатформенная компьютерная игра
 magnet:?xt=urn:btih:5CBEB37C53C63CA3BC9FE7B871BD48C107FF9502
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ SHAREit - Connect & Transfer v5.3.52_ww [Ru/En]
 magnet:?xt=urn:btih:AC6198C619CE9AD5B4E7186195776D499A30B82D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Sci-Fi Launcher Pro позволит вам почувствовать себя 
 ```bash
 magnet:?xt=urn:btih:496DA6108D9E8A5666CEE0A82A676B7324E4C9D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Diaro - личный дневник v3.20.0 Pro [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:23DEB5AB7BF8DA73590D395814E5E44956CB65C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ LOCKED - Секретный Альбом v1.3.3 [Ru/Multi] - Спрятать Ф
 magnet:?xt=urn:btih:7390C582FD65D3C3AA8FC476A58F6B25273E6561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Screen Stream Mirroring - Транслируйте ваш экран в реал
 ```bash
 magnet:?xt=urn:btih:00DA2F7B40A9949437EDAB554A2D76A8F130A0ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Apex Launcher – быстрый, красивый с большим колич�
 magnet:?xt=urn:btih:B9257F03EF2209F2CB599A097FB95F99E93030D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:B9257F03EF2209F2CB599A097FB95F99E93030D9
 ```bash
 magnet:?xt=urn:btih:B7DB710244F65504B7FF24DACD6B750952B989DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ App Cloner - Хотите играть сразу с нескольких акк
 magnet:?xt=urn:btih:8CD3E33523E35830BFD4E916D13CA3DB0109975E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ AIDE Premium Key - это приложение, представляет соб�
 ```bash
 magnet:?xt=urn:btih:04ED0CE1FD275E443793088AF7EDD65C1B46243B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ DraStic DS Emulator – быстрый эмулятор на андроид, с 
 magnet:?xt=urn:btih:578C0168A46E140B4238F6775FC52D23F62F54D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ SimpleRockets 2 – трехмерный космический симулято
 ```bash
 magnet:?xt=urn:btih:F54B9AB4FED2852743F15BF3CFBC59984423F605
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ PhotoPills v1.5 [Ru/En]
 magnet:?xt=urn:btih:E4829B5DAF91ED37E1220DBFC7C436C56AF3C616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ iGO Primo NextGen 9.18.27.682862  arimi @ Vamibg skin mod [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B4A1208B8A9EB9698B919D3ECABE2D36C56BAA3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ HD Camera Pro превратит ваш телефон в профессиона
 magnet:?xt=urn:btih:B0A61C6CFDEE4370A78E59694122D899EA33F567
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Speedcam Downloader - очень полезная программа котор�
 ```bash
 magnet:?xt=urn:btih:656BF62CC2659FC44D3C8165D1F22895EDACC9C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Mod Master For Minecraft v3.9.5 [Ru/En]
 magnet:?xt=urn:btih:4E8B91DEA3BBB568E1775D6F042B0F70F9F37914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Hungry Shark VR - В этой игре вы сможете побывать на
 ```bash
 magnet:?xt=urn:btih:E680132C14917BE592E9F347AEC3D4B5F85DD2BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Gym Pro - Домашние тренировки v112.5 [Ru/Multi]
 magnet:?xt=urn:btih:DF9655F286685AE2B8B846509B2E182B30F4DB12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ GT Recovery - Undelete,Restore 2.6.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:E453CCB78B851724D1B9C61A0E47C1FB52D7A9D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Analog Electronic Toolbox v3.77 [En] - набор инструментов дл�
 magnet:?xt=urn:btih:526FFD66A27887C8F5605EA09F4B778F3AE514B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Life Quotes and Sayings - Очень часто мы в своих реплик�
 magnet:?xt=urn:btih:86C2D70ECBD93FDAB263E05FC3535FC55606B205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Oreny - Icon Pack v1.6.2.4.1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:61F3743434F5944865DAE85C5DE0E749D2C26FC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Groovepad – это простое приложение для создания
 magnet:?xt=urn:btih:61BDF18C26A9243686527BB6C4AAB27CA618682A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ GameKeyboard – это простое и надежное приложение 
 magnet:?xt=urn:btih:72E2762724DF09106A4C6FD18DDE0255D5E879B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Star Wars: KOTOR – вот уже четыре тысячи лет идет в�
 ```bash
 magnet:?xt=urn:btih:23BBCA35362EA5A25578E61EF441196B1A14EEA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

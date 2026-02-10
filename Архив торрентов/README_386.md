@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:DEFDCF1FDF2A5E3FB08BDB87ACFFDFB98B652189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Freemake Video Converter - простая в использовании прог
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -80,6 +84,8 @@ BatWithParameters - бесплатное приложение для управ�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -106,6 +112,8 @@ BatWithParameters - бесплатное приложение для управ�
 magnet:?xt=urn:btih:CD93080E787ECD57FB8EF84738D08D2D62A31C32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ magnet:?xt=urn:btih:CD93080E787ECD57FB8EF84738D08D2D62A31C32
 ```bash
 magnet:?xt=urn:btih:D3287A3F42F13C831DA1A6402BD9A84DBDDDB2EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -162,6 +172,8 @@ PcBoost 4.2.13.2012 + portable [Английский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -185,6 +197,8 @@ PcBoost 4.2.13.2012 + portable [Английский]
 ```bash
 magnet:?xt=urn:btih:3FA0907C536D89D6D7028AA1AAB1DA827C6649A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +226,8 @@ magnet:?xt=urn:btih:3FA0907C536D89D6D7028AA1AAB1DA827C6649A9
 magnet:?xt=urn:btih:6A39869D44B2B4BDD00B69F547404B92C19C19B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ magnet:?xt=urn:btih:6A39869D44B2B4BDD00B69F547404B92C19C19B4
 ```bash
 magnet:?xt=urn:btih:B92D96577FE2B3EF560F04A0B25F02A3171D1453
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +278,8 @@ magnet:?xt=urn:btih:B92D96577FE2B3EF560F04A0B25F02A3171D1453
 magnet:?xt=urn:btih:D429AC7B2676B7744370C1812EAB870289A2E3FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +303,8 @@ magnet:?xt=urn:btih:D429AC7B2676B7744370C1812EAB870289A2E3FD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +331,8 @@ magnet:?xt=urn:btih:D429AC7B2676B7744370C1812EAB870289A2E3FD
 magnet:?xt=urn:btih:5B25B99AC45D643745B8C3DF9CE8B775CD1153C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ magnet:?xt=urn:btih:5B25B99AC45D643745B8C3DF9CE8B775CD1153C2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +388,8 @@ FB2, TXT, Comic Book Archive (CBR или CBZ), TCR, PalmDoc(PDB), DCX и фор�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +413,8 @@ Otogizoushi  / Otogi Zoshi / Отогидзоси [2004, 26, TV] DVD5 540p raw+r
 ```bash
 magnet:?xt=urn:btih:C461C91593FAF82352FC1621183C06AC6E5A3395
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +440,8 @@ magnet:?xt=urn:btih:C461C91593FAF82352FC1621183C06AC6E5A3395
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ magnet:?xt=urn:btih:C461C91593FAF82352FC1621183C06AC6E5A3395
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ Easy CD-DA Extractor - один из самых универсальных па�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ Miranda IM №rd pack 1.0 [Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ Miranda IM №rd pack 1.0 [Русский]
 magnet:?xt=urn:btih:55DA372EFC231F39D7CE5E2A256B11D89ABF00A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ magnet:?xt=urn:btih:55DA372EFC231F39D7CE5E2A256B11D89ABF00A5
 magnet:?xt=urn:btih:F6A1E59C0689A0147248B7272F37B9072FF77709
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ PC Wizard предоставляет обширную информацию об�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ PC Wizard предоставляет обширную информацию об�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ PowerISO - позволяет создавать, конвертировать, 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ Dark Secrets [En] (P) 2012 | RELOADED
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ Glastonbury Festival of Contemporary Performing Arts, часто сокраща�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

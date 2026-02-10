@@ -22,6 +22,8 @@ Ramin Djawadi - Игра престолов Сезон 7 / Game of Thrones Seaso
 magnet:?xt=urn:btih:E1B4F7FB27668A82DEA609C3CD27E15EE07C6625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ John Tesh - Tour De France-The Early Years (1990) [FLAC|Lossless|tracks + .cue]<
 ```bash
 magnet:?xt=urn:btih:AD16E0671300A20765FCA35792F6A6F006CBCE0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Yanni - Inspirato (2014) [FLAC|Lossless]<New Age, Classical crossover>
 magnet:?xt=urn:btih:A35B6BF94B826EBF07F728DFFD337F0DC7C06C28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Too Much Heaven
 ```bash
 magnet:?xt=urn:btih:9776F60F2104D98612C77B9EB2835E94910F89C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Pianochocolate - Blueberry (2016) [MP3|320 Kbps] <Instrumental, Chillout>
 magnet:?xt=urn:btih:10D7FA46C1C74413477045F321D12230BDDE290B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Cafe India Lounge (Retail 2006) (2006) [MP3|~190 Kbps (V2)] <New Age, Lo-Fi
 ```bash
 magnet:?xt=urn:btih:F2C85B1E18318FCDD3D61F0C2D07BB6D6EDE92E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ The Greatest Saxophone Hits Ever - Golden Saxophone (1994) [FLAC|Lossless] <Easy
 magnet:?xt=urn:btih:1BDA68C6341FB0F27A5E4FB08F1FCC7FFCE787B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ Dr. Jeffrey Thompson - Ambient Music For Sleep (2004) [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:69B332EF11C5B2803A37E48ECA7C1AE52F46EAD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ Trailer Radio - Country Girls Ain't Cheap (2016) [MP3|320 кб/с] <Country>
 magnet:?xt=urn:btih:ED64DA8CF560CCFE48C11718DACD410B2CDB1F79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ The Soft Music Box - Classic Piano Lullabies - U.S. Edition (2020) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:861C82C5FEF96ED4AD2FA15B1E7FD7FBF7560C5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +310,8 @@ Myristica - Waiting for Yesterday (2014) [FLAC|Lossless|tracks] <New Age, Ambien
 magnet:?xt=urn:btih:BB661F4CD47B99250FCDD3B3F62823F4FB3BB3D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ Daniel Waples & Friends (Hang In Balance) - 'Lisn (2013) [FLAC|Lossless|Web-DL|t
 ```bash
 magnet:?xt=urn:btih:5B1711633D528E741473BE0B76C11E50D93F6182
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +368,8 @@ Daniel Waples & Friends (Hang In Balance) - 'Lisn: The Remixes (2014) [FLAC|Loss
 magnet:?xt=urn:btih:3819D3DB1C880EB2076F3EEF59C43878171371F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ Michael Reimann - Eine entspannende Reise (2017) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:30C49F35AD059050027F34700F5391E434072FD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +426,8 @@ Bill Brown, Mikael Sandgren - Command & Conquer: Generals+Command & Conquer: Gen
 magnet:?xt=urn:btih:DB28678B22D2EE0031872EDE36D693D5D5C8EF83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +454,8 @@ VA - La La Land / Ла-Ла Ленд - The Complete Musical Experience (2017) [F
 ```bash
 magnet:?xt=urn:btih:0ED91AC80A84E8DF8D9EB0AEBEE7F8F09432B631
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +484,8 @@ VA - La La Land / Ла-Ла Ленд - The Complete Musical Experience (2017) [M
 magnet:?xt=urn:btih:A218F52D16017FE6FE88E53E4E48527378BB66D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +512,8 @@ VA - Intimate Piano: Moonlight Love (1999) [FLAC|Lossless|image + .cue] <Instrum
 ```bash
 magnet:?xt=urn:btih:FFC1BB326DA39ACF2FC39DAEE1B858DD739F9B31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +542,8 @@ Ryan Farish - United (2017) [FLAC|Lossless|tracks] <Electronic, New Age, Downtem
 magnet:?xt=urn:btih:2A93B7AD97752C0F2C74FB92444BEF24D897429F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +570,8 @@ VA - Sensual Meditation: Emotional Music, Deep Feeling Connection, Tantra Medita
 ```bash
 magnet:?xt=urn:btih:5F8A9806FAC7D1B6E68320FF3D83BC6FFE4B570E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +600,8 @@ Hidehiko Matsumoto & Yoshio Kimura - Festival of Enka (1969) [MP3|320 Kbps] <Ins
 magnet:?xt=urn:btih:424ABA3B1160F541FA46B1F08BC3882F96D5EBA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ Chicago Afrobeat Project, Tony Allen - What Goes Up (2017) [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:483E0046F7CEF910479E754CD693DB134612E4C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +658,8 @@ Wychazel - Runecaster - The Very Best of Wychazel (2017) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:5AA32906844ED94D6BC997E48376485668F309F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +686,8 @@ Kathryn Kaye - Songs of Changing Light (2018) [FLAC|Lossless|WEB-DL|tracks] <New
 ```bash
 magnet:?xt=urn:btih:E4EE97FD60F2F10445864768A393B7950088A5BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +716,8 @@ Faranak Shahroozi - Eternal Love (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, 
 magnet:?xt=urn:btih:DDB338ABB881AF819E20A1067BBCEBB280032049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ Arsenal - De Poolreizigers (Soundtrack) (2007) [MP3|320 Kbps] <Cinematic Themes,
 ```bash
 magnet:?xt=urn:btih:AAA2A9382F9E7CA24FF325D7105DD26AE279B6FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ CleanMyMac позволяет избавиться от разнообразно
 magnet:?xt=urn:btih:E289C0FF2B25D5A0CF5D8053A3DDADE241932AA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:E289C0FF2B25D5A0CF5D8053A3DDADE241932AA3
 ```bash
 magnet:?xt=urn:btih:E6B8F332879BB592C2749559A92C7D5FEB31F616
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:E6B8F332879BB592C2749559A92C7D5FEB31F616
 magnet:?xt=urn:btih:66B075595C08145DBF31D5EF7F03C7335F471957
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ VA - German Top 100 Single Charts 25.11. (2016) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:E969FD3C006226771AE72A7412D40434B9CDA27B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:E969FD3C006226771AE72A7412D40434B9CDA27B
 ```bash
 magnet:?xt=urn:btih:7654CA6F1F4CBE17B9AD66D1B35672414E590003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:7654CA6F1F4CBE17B9AD66D1B35672414E590003
 magnet:?xt=urn:btih:19CA892AE9E016C9E7AE8034BB6DA81C5A97368F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:19CA892AE9E016C9E7AE8034BB6DA81C5A97368F
 ```bash
 magnet:?xt=urn:btih:6BB015CB3F611E6D67080D761A3BA431CD537776
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ VA - Ibiza 2016. Soulful Deep-House. Vol.1 Summer Beach [Compiled by Mistik] (20
 magnet:?xt=urn:btih:C39BF25BA9F779BC167A9A614354E4FBE9BB06BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:C39BF25BA9F779BC167A9A614354E4FBE9BB06BF
 ```bash
 magnet:?xt=urn:btih:5EEA81CA1C3F315979AFBA6E7E5AE4EC1831393D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +274,8 @@ VA - Paul Oakenfold – DJ Box November (2016) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:4F24DF7E895E75170573BAA3C98DC84E18C7B665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:4F24DF7E895E75170573BAA3C98DC84E18C7B665
 ```bash
 magnet:?xt=urn:btih:A4CE751EAD68E04557EA4D51D77764B9DCA9BE0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:A4CE751EAD68E04557EA4D51D77764B9DCA9BE0A
 magnet:?xt=urn:btih:2392E5585573A9EAC2CE3E836594C0B54C971FB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:2392E5585573A9EAC2CE3E836594C0B54C971FB4
 ```bash
 magnet:?xt=urn:btih:3C1CB2682B225FE8E694B2913FC3501E2D8F4082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +382,8 @@ VA - Midnight Turbulence: 25 Sexy Lounge Tunes Vol.4 (2016) [MP3|320 Kbps] <Down
 magnet:?xt=urn:btih:C5A5F23B014DA10107DA65B8CB3752CC576C170E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:C5A5F23B014DA10107DA65B8CB3752CC576C170E
 ```bash
 magnet:?xt=urn:btih:B5BDDA8F8985BD3CD3E2553D5724308CC65FC826
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ VA - Ibiza 2016. Soulful Deep-House. Vol.2 Intoxicated Vibe [Compiled by Mistik]
 magnet:?xt=urn:btih:19104A85E727EF8A8C8CF2CBA001E3A873C89EF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:19104A85E727EF8A8C8CF2CBA001E3A873C89EF6
 ```bash
 magnet:?xt=urn:btih:F02C7CAFFE6A4D744B5240B39FF93FEE8F8FC019
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ VA - Ibiza 2016. Best of Techno-House [Compiled by Mistik] (2016) [MP3|320 Kbps]
 magnet:?xt=urn:btih:33FB8DDA62C462B34F36CA4F26B0015A6D4D65F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +520,8 @@ Carolyn Southworth - By the Sea (2016) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:2C67C392913BA6B961A4F77DE62180E0D4630AE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +550,8 @@ magnet:?xt=urn:btih:2C67C392913BA6B961A4F77DE62180E0D4630AE1
 magnet:?xt=urn:btih:1AE54A9FB71979018C961B6B58343ABCC57FB92A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +576,8 @@ magnet:?xt=urn:btih:1AE54A9FB71979018C961B6B58343ABCC57FB92A
 ```bash
 magnet:?xt=urn:btih:77CF5E07BE08400EA5D141CB20ADA1B347AE146B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +604,8 @@ magnet:?xt=urn:btih:77CF5E07BE08400EA5D141CB20ADA1B347AE146B
 magnet:?xt=urn:btih:AD5158A804F33796DC09AFDD37BA6173AFE756F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ magnet:?xt=urn:btih:AD5158A804F33796DC09AFDD37BA6173AFE756F9
 ```bash
 magnet:?xt=urn:btih:164934E368C5D462696F5585DA6E7C2A454FFF6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +656,8 @@ NGW: Каждый тигр на счету / Counting Tigers (2019) HDTVRip [H.2
 magnet:?xt=urn:btih:05916DCFC12B86D95E1D32429F7AD57E5BFB3387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ League of Legends: Начало / League of Legends: Origins (2019) WEB-DL [H.26
 ```bash
 magnet:?xt=urn:btih:E51B65449CF2044ABDB8CFAD4D6DACA7F38BD961
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +711,8 @@ VA - Let's Hit To Road (2019) [MP3|320 Kbps] <Country, Blues, Rock Blues>
 ```bash
 magnet:?xt=urn:btih:090FB1F2B0056A836734B0429D2E3C277B5087BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

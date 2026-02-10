@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D40822BDC79A1BF214FC2E453AB0E5002E2E7B8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:D40822BDC79A1BF214FC2E453AB0E5002E2E7B8E
 magnet:?xt=urn:btih:9E431668BB396C418390E7162B769B5FA96AB088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:9E431668BB396C418390E7162B769B5FA96AB088
 ```bash
 magnet:?xt=urn:btih:AD7E510D01D16B66D9EF4E3D91D67080259659C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:AD7E510D01D16B66D9EF4E3D91D67080259659C6
 magnet:?xt=urn:btih:308BA0054F70A2694ABB6E9EAD564D0217B8523B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ TranslucentTB — это небольшая утилита, позволяюща
 magnet:?xt=urn:btih:75F3A8A2E0635A31478A34CD0D3A0382196E6C1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:75F3A8A2E0635A31478A34CD0D3A0382196E6C1A
 ```bash
 magnet:?xt=urn:btih:13E7B99818C5A5735D1C170093A3E19ADFEBC7BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:13E7B99818C5A5735D1C170093A3E19ADFEBC7BA
 magnet:?xt=urn:btih:C82956FB922EF39A592B44FF327DADD8F7C9F188
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:C82956FB922EF39A592B44FF327DADD8F7C9F188
 ```bash
 magnet:?xt=urn:btih:39FCF89B7E1B138932B29EB313840CF4EF760B08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:39FCF89B7E1B138932B29EB313840CF4EF760B08
 magnet:?xt=urn:btih:5212085C49806C34781C6D89E50C9D49DE4A63DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Dragon's Dogma: Dark Arisen (2016) [Ru/En] (1.0.10.8756) Repack R.G. Механ�
 magnet:?xt=urn:btih:913A1CF1FA32733305D53124EEE8A93160D50450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ AIDA64 - данная программа является многофункци
 ```bash
 magnet:?xt=urn:btih:4F49D0F05F18E2552EBCE8C7656AD3A96CCBE7C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:4F49D0F05F18E2552EBCE8C7656AD3A96CCBE7C6
 magnet:?xt=urn:btih:B00DDA1BE94106FD5FCE00DA3DD3E84525910409
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:B00DDA1BE94106FD5FCE00DA3DD3E84525910409
 ```bash
 magnet:?xt=urn:btih:01AA7BBDB6C57478408E676B68168AA2E07B6B26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Itproger | Изучение Java (2018) PCRec [H.264/1080p-LQ]
 magnet:?xt=urn:btih:21D44429D951E60076CA08F71D478E89516730EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Aero Glass for Windows 10 RS 1.5.1 RePack by PainteR [En]
 ```bash
 magnet:?xt=urn:btih:690523ABCDC3A782E2EC27366E1612AEDD3B61BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip
 magnet:?xt=urn:btih:BCAE96B4C4FA1DFAC9CF89D73F1E786F9CA99B30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Niffelheim (2018) [Ru/Multi] (1.0.12) License GOG
 ```bash
 magnet:?xt=urn:btih:34F0B1D546D43185757C2A81BD012692465C7AF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:34F0B1D546D43185757C2A81BD012692465C7AF2
 magnet:?xt=urn:btih:38FEBD549C77B7825019268764D266016175DCFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Itproger | Создание Андроид игры на Unity 5 (2018) PCRec [H
 ```bash
 magnet:?xt=urn:btih:B27F285FEBDACFE70CC7EE99A5897A5F19D58567
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Ajin 2 (2016) / Полулюди [ТВ-2] [2016, TV, 13 ep] HDTV 720p Raw+Rus
 magnet:?xt=urn:btih:040A1095141852EF1442C4DEC85D85BA36B732B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:040A1095141852EF1442C4DEC85D85BA36B732B6
 ```bash
 magnet:?xt=urn:btih:58F6F73310EE5E2F89D7CBB54B82D02B8F5E6194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Microsoft Office Word на протяжении многих лет являет
 magnet:?xt=urn:btih:4C27A67DE4EDC33E59B66D9CF2DD52F10368605D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:4C27A67DE4EDC33E59B66D9CF2DD52F10368605D
 ```bash
 magnet:?xt=urn:btih:39DF2A506DDA206191F86FDD024F4FCEAE8065EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Goblin Slayer | Убийца гоблинов [ТВ-1] [2018, TV, 12 из 12] WE
 magnet:?xt=urn:btih:09DAC23B0A6DD7CDFA8E4C8B330D41B6A3AA6EED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Tom Clancy’s H.A.W.X. является авиасимулятором, кот�
 magnet:?xt=urn:btih:7646B8778162784FF8007D6AEC063D4D8C419252
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:7646B8778162784FF8007D6AEC063D4D8C419252
 ```bash
 magnet:?xt=urn:btih:AB009C89E7E52A491A1598D45A5378FC3C392F9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

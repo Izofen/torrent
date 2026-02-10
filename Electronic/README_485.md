@@ -22,6 +22,8 @@ VA - Lounge Deluxe, Vol 2 (50 Fantastic Lounge Grooves) (2016) [MP3|320 кб/с]
 magnet:?xt=urn:btih:9B5B875B70331DD112880F1A58726FB4C7C5A2EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Germind - Elusive Shadows (2016) [MP3|320 кб/с] <Psybient, Breaks, Downtempo,
 magnet:?xt=urn:btih:7B1B2BB055C1CF49533B4A5B150EF14E4285818C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Arno Hoddinghaus (A/R/N/O, Höddinghaus) - Дискография (1994-2000) [M
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ VA - The Seeds Of Love Vol.1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Dow
 magnet:?xt=urn:btih:8292C8BBC47E94E5D205CE81914552F2E440CDBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Massive Attack - Ritual Spirit (2016) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, E
 ```bash
 magnet:?xt=urn:btih:0D916D1D17FC7085DAC714D63154E4448D889A9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ likeicare - Discography 8 Releases (2010-2014) [FLAC|Lossless|WEB-DL]<IDM, Dark 
 magnet:?xt=urn:btih:D6AB491B0311F36685991A12246F26864F057A93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ Syntec - Collection 2 Releases (2016) Infacted Recordings [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:93F1D1C7C42C27883FBB1D29CE6C9735C6F97176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ Azaleh - Discography 31 Releases (2015-2020) [FLAC|Lossless|WEB-DL|tracks] <Futu
 ```bash
 magnet:?xt=urn:btih:FCC4D2E13D6EFB16CC6B8BF082F238FE68A5B731
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +248,8 @@ CD1 Rrose Selection
 magnet:?xt=urn:btih:65B7509A08BB67D1BE9A2054A086971869243C85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +276,8 @@ Blacktree - The Beginning Of Summer - The Beginning Of The Party (2016) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:2153053CC0D69C43F1DF3BED1CC2B02B6DC13F23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +306,8 @@ Tiesto - Club Life 351 - 460 (Обновляемая) (2013-2016) [MP3|128-320 �
 magnet:?xt=urn:btih:657EB75E46E4D0B0D3F057721F7B2240007F1636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +335,8 @@ Boytronic - Love For Sale (1988) Remastered, Deluxe Edition, 2014, SP Records [F
 magnet:?xt=urn:btih:E6FCE81E3F8BEED617D7180D744753FB4E75AD7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +360,8 @@ Ultra SKM - Southern Shaman (2020) [FLAC|Lossless|WEB-DL|tracks] <Uplifting Tran
 ```bash
 magnet:?xt=urn:btih:FD800B782BDB98FC4CAE36C399E0D4540641DA26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +390,8 @@ VA - Progressive MEGA Mix vol.2 (2003) [MP3|320 Kbps] <House, Progressive House>
 magnet:?xt=urn:btih:B13B51861BED40C8F7BCF95740050F593E9C4D47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +418,8 @@ VA - Chill Out Smoothies (Relaxed & Calm Chill Out Sounds) (2016) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:9E30C2D0114E003FB583DC98BAAA2A9B7277A46E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +448,8 @@ Omauha - Discography 17 Releases (2011-2020) Morphosis Records [FLAC|Lossless|WE
 magnet:?xt=urn:btih:0931BEC034EA907208FEAE14074E15B452533E77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +476,8 @@ Depeche Mode - 101 (2006) 2CD, Gala Records, RE. [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:D199C8A68FC21090550220EE43287BD322F8F360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +506,8 @@ DJ Aligator Project - The Sound Of Scandinavia (2002) [MP3|320 Kbps] <Trance, Eu
 magnet:?xt=urn:btih:741E56E46C4E871D8DCEC517C638A3147A959992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +535,8 @@ R-Tem - Voiceless (2004) [MP3|320 Kbps] <House, Progressive House>
 magnet:?xt=urn:btih:2020BC6CCC9BF9ADEFBA6239199C75965BFEFF36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +560,8 @@ Massive Attack - Heligoland (2010) [MP3|320 kbps]<Trip-Hop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +590,8 @@ Boytronic - The Original Maxi-Singles Collection (2014) [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:880E41B7841959876D6DA8A96479666F929A3A9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +618,8 @@ magnet:?xt=urn:btih:880E41B7841959876D6DA8A96479666F929A3A9B
 ```bash
 magnet:?xt=urn:btih:3A7D89B522B97572C68CF8D0B64B1FD21F718A97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +648,8 @@ Dubfire - HYBRID: A Decade Of Dubfire (2017) Compilation [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:4105CCAF071C9F7C276AC482EC89231CEE43471A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +676,8 @@ Dub FX - ROOTS (2020) [FLAC|Lossless|Web-DL|tracks] <Drum'n'Bass, Dub, Dubstep, 
 ```bash
 magnet:?xt=urn:btih:9BB70BCEAB5C890C6E3F209662A40968AFD06FC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +706,8 @@ VA - TECHNO (mixed by Dj Arseniy) (2002) [MP3|320 Kbps] <Techno>
 magnet:?xt=urn:btih:E33D050EF8F4643771883C1383AD37B9FFD76F0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -684,6 +734,8 @@ VA - Erotic Lounge Selection (2020) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:DB874D76DED0F5AFDDCC4D0FA85E6743B5F9EC6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

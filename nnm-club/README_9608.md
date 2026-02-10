@@ -19,6 +19,8 @@ BluffTitler - программа для создания красивых тек
 magnet:?xt=urn:btih:883005F6FC501867E07FD38C1B9411E09D100612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Дискотека 2017 - Осенний Бодрячок (Compiled by ZeBy
 magnet:?xt=urn:btih:1D87C740081AC595E8A684E6C893109ADACA847E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:1D87C740081AC595E8A684E6C893109ADACA847E
 magnet:?xt=urn:btih:A56DFCF89C30B8C2537E5172C935CF3A388DFDB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:A56DFCF89C30B8C2537E5172C935CF3A388DFDB7
 ```bash
 magnet:?xt=urn:btih:22E43258E324BED8887780F25673BB70C79A9579
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ VA - Armin Van Buuren presents: Armind - Best Of (2015) [MP3|320 кб/с]<Trance
 magnet:?xt=urn:btih:23D379D5EFA92B041B87D26AF4D8B7B6DFA59703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:23D379D5EFA92B041B87D26AF4D8B7B6DFA59703
 magnet:?xt=urn:btih:9B2E6A4D6BF49E0A394001553D840E9D3A294F23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:9B2E6A4D6BF49E0A394001553D840E9D3A294F23
 ```bash
 magnet:?xt=urn:btih:46B5B26AAC290A09B6D21DF087074203FC722245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:46B5B26AAC290A09B6D21DF087074203FC722245
 ```bash
 magnet:?xt=urn:btih:B2268DFCAE2D2CE4FF9AC96E93F891C6C03AE150
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ Blank & Jones - Chilltronica No. 5 (2015) [FLAC|tracks|WEB-DL]<Chillout, Downtem
 magnet:?xt=urn:btih:333EAAF6676361AC7253CAE3720556429FFEB872
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:333EAAF6676361AC7253CAE3720556429FFEB872
 ```bash
 magnet:?xt=urn:btih:F3FA329EE1CC3EF6811540FDBF9A5DFB6E7C2A53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:F3FA329EE1CC3EF6811540FDBF9A5DFB6E7C2A53
 magnet:?xt=urn:btih:5D1C6AD5F39B6771E6C424A35FBD027B370C83BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:5D1C6AD5F39B6771E6C424A35FBD027B370C83BB
 ```bash
 magnet:?xt=urn:btih:DB4A8E696F5CFD06EC625FF58F0AF729341EC75E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:DB4A8E696F5CFD06EC625FF58F0AF729341EC75E
 magnet:?xt=urn:btih:0239B78294BE27DA59691681636BD9F12862D9F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:0239B78294BE27DA59691681636BD9F12862D9F7
 ```bash
 magnet:?xt=urn:btih:CF60D081074FE25541C1BF191602A8B7E554DFC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:CF60D081074FE25541C1BF191602A8B7E554DFC0
 magnet:?xt=urn:btih:08117909452C355AFEE2C909CA4A8A22B8E74B21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:08117909452C355AFEE2C909CA4A8A22B8E74B21
 ```bash
 magnet:?xt=urn:btih:661A501492389A1AA6B5475F2C2FDBDC617F567E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ F1 2015. Этап 19, Автодром "Яс Марина" (Абу-Даби, О�
 ```bash
 magnet:?xt=urn:btih:5749754A26D288B3AE13343E2D1563A5DD15A1F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ Chris Isaak - First Comes the Night (2015) Deluxe Edition [FLAC|tracks + .cue] <
 magnet:?xt=urn:btih:3D93BD2546C72002702EE789F5CCC391A41692F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:3D93BD2546C72002702EE789F5CCC391A41692F5
 magnet:?xt=urn:btih:BFEB98E112375B23D18D263FDCDB21F461E0F78A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:BFEB98E112375B23D18D263FDCDB21F461E0F78A
 ```bash
 magnet:?xt=urn:btih:CAB6AEAD40F13BE7420C84E37A6679A1898A34A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:CAB6AEAD40F13BE7420C84E37A6679A1898A34A4
 ```bash
 magnet:?xt=urn:btih:CFB9C575574AFE121CED7F7C654A92A67C4AC923
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ The New Division - Gemini (2015) [FLAC|image +.cue]<Synthpop, New wave>
 magnet:?xt=urn:btih:35D4105CAF7ABBA02B7BB32D36ACB9301C92E4D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ Music Instructor - Electric City (Maxi-Single) (1999) [FLAC|tracks+.cue]<House, 
 ```bash
 magnet:?xt=urn:btih:4DAE532D328A853D433A7248EFD4173C15758955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ Mirko Hirsch - Power of Desire (2015) [MP3|320 кб/с]<Italo Disco>
 magnet:?xt=urn:btih:7A04B1EFEF486E89BDA95B89CA619566B412EE9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ VA - ЕвроХит Топ 40 Europa Plus 09.11.2018 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:C31D11653FA56A10201079612985AABAEEC2A112
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ VA - Richard Durand - The Air We Breathe (2018) [FLAC|Lossless|WEB-DL|tracks] <T
 ```bash
 magnet:?xt=urn:btih:502A9C1027110D6D79F03CAC330D3792E64FBCD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

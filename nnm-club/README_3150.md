@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:CA543906E6EFE401E580068FB37D306992061E2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:CA543906E6EFE401E580068FB37D306992061E2C
 ```bash
 magnet:?xt=urn:btih:3482393C0DB9074434F232C7B239160060315A6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Glitz Machine - Next Generation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 magnet:?xt=urn:btih:8F047CFC74F9D4A1A6352094E178DD0D9A78F788
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Zavala Sol - Bad Habits (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock
 ```bash
 magnet:?xt=urn:btih:D99B788BD6B75C65A8F8848E2E71D9A16C4DA6E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:D99B788BD6B75C65A8F8848E2E71D9A16C4DA6E8
 magnet:?xt=urn:btih:FA61EF63393C5081C69F1853A536692E84899B27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:FA61EF63393C5081C69F1853A536692E84899B27
 ```bash
 magnet:?xt=urn:btih:44A871BF36E3603675D648BA69BA5E8E659AC955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ Jaxon Turner Trio - All That Jazz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 magnet:?xt=urn:btih:B8C0666BEEC8F42FD7BCEA29B82260C723F63A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ Samara Joy - Portrait (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:36F874666BAAC23614D94AF75E387AD0ADB229F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +248,8 @@ Murat Osman, Seif Allah Kaak and Curly Cuts Collective - Eastbound Jazz (2024) [
 magnet:?xt=urn:btih:2BA512226871830C4E29CB649098A14DCE81B89D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +276,8 @@ Sam Cole - Let's Dance the Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blu
 ```bash
 magnet:?xt=urn:btih:5DE7D9F98022FFDD5A1F8F0969D31E6250F71609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +306,8 @@ Bernard Barrett - Alt. Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:0F651DFD90F3D1EF6743AEC8DB3259334968EAEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ magnet:?xt=urn:btih:0F651DFD90F3D1EF6743AEC8DB3259334968EAEF
 ```bash
 magnet:?xt=urn:btih:F55D2AABBCAE05C11BA91CCAEDAF4ADA9B477575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +359,8 @@ magnet:?xt=urn:btih:F55D2AABBCAE05C11BA91CCAEDAF4ADA9B477575
 ```bash
 magnet:?xt=urn:btih:3E4B9418B8881CF3477214CFE06B220D7700F181
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +389,8 @@ Karel Formant - Hungry for Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 magnet:?xt=urn:btih:F0B76AAAB4FE13FB98872BDAFFA8EF7C98520144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +417,8 @@ The Smoothies - My Cozy Winter in Soul (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:BC9A138F9AD025B67E6428E2BB0B4DCD0C63DD90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +447,8 @@ Yuri Sosnin - The Night (2024) [MP3|320 Kbps] <Italo-Disco, Instrumental>
 magnet:?xt=urn:btih:E29A863596F4F3C9538932A4935C7D355C2E02ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +472,8 @@ magnet:?xt=urn:btih:E29A863596F4F3C9538932A4935C7D355C2E02ED
 ```bash
 magnet:?xt=urn:btih:2239313377F011B2C5C8DF7B40FE9CC9E62794A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +502,8 @@ Everdune - The Aces Strike Back (2024) [MP3|320 Kbps] <Spacesynth, Synthdance>
 magnet:?xt=urn:btih:EA57DC45AC8DA81A5A10E89E27574FDA0C2E48DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +527,8 @@ Cтарец Иосиф Ватопедский | О кончине века и а
 ```bash
 magnet:?xt=urn:btih:18B12B64994FDF6FA0DB250F8C62D37127F7F319
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +557,8 @@ After Evolution - War of the Worlds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:D10F4C7ECF9D7EA3A2C0AB6F9C70DEECDAEEB026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +586,8 @@ Everdune - The Aces Strike Back (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth
 magnet:?xt=urn:btih:66AAD87245E2CCE97B8BED29472F08985921C0C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +611,8 @@ magnet:?xt=urn:btih:66AAD87245E2CCE97B8BED29472F08985921C0C3
 ```bash
 magnet:?xt=urn:btih:4621A69B116A4C17C1E282C87CC00586EC6F4B54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +638,8 @@ magnet:?xt=urn:btih:4621A69B116A4C17C1E282C87CC00586EC6F4B54
 magnet:?xt=urn:btih:A8043DD5FAF56EDDCFB620462625A9DF94A6C6E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +663,8 @@ magnet:?xt=urn:btih:A8043DD5FAF56EDDCFB620462625A9DF94A6C6E1
 ```bash
 magnet:?xt=urn:btih:6E2BE7232C33E9087720B75BB6A980BE69BCC60D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +690,8 @@ magnet:?xt=urn:btih:6E2BE7232C33E9087720B75BB6A980BE69BCC60D
 magnet:?xt=urn:btih:FDDC6E449C67A672256F2800827E56F727E9032B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +715,8 @@ magnet:?xt=urn:btih:FDDC6E449C67A672256F2800827E56F727E9032B
 ```bash
 magnet:?xt=urn:btih:59E170A7B221ED4574F494EC0DC4AE83F03677AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

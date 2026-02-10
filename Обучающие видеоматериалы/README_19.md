@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:14F10AFD8F1E33B0A2F378239406D30BF5AC5026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:14F10AFD8F1E33B0A2F378239406D30BF5AC5026
 magnet:?xt=urn:btih:6DCC6FD6BDC5FE95BDACE8B1BEA0CED515E7E0F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Coursera, Dr. Tim Chamillard | C# Programming for Unity Game Development Special
 magnet:?xt=urn:btih:E987053607DABC5B07CCFF0A6A49A852CA35A780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Udemy, Code Monkey | Ultimate Unity Overview (70+ Tools and Features Explained!)
 ```bash
 magnet:?xt=urn:btih:BDE5CA4380FC084D9FFEBDDD432A3163DE74A5E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Coursera, Dr. Tim Chamillard | C++ Programming for Unreal Game Development Speci
 magnet:?xt=urn:btih:422CAA62B9FBEDFCBC103BCA6148CAB86089777F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:422CAA62B9FBEDFCBC103BCA6148CAB86089777F
 magnet:?xt=urn:btih:ACE9584361741FD8671009A407B9F8666BA1C830
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Sinclair Intimacy Institute, Марк Шон | Pro секс: Взрослые и
 ```bash
 magnet:?xt=urn:btih:CEA0A4441C46B008D20F4605FA18D794AA5B4B35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ VFX Grace | Blender Creature Effects - The Complete WorkFlow - Modeling (2024) P
 magnet:?xt=urn:btih:FBBDBBB9D486D36CBD6446885141AD0AD39484E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ VideoSmile, Артём Слаква | Супер Blender (2024) PCRec [AD] [RU]
 magnet:?xt=urn:btih:1DEE2ECC1BEBAB7594C37622F721412CDBF14621
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ George Vondriska | Необходимые техники заточки (2015) W
 ```bash
 magnet:?xt=urn:btih:425977B2443012442D335E2331B28E1875A7C0C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:425977B2443012442D335E2331B28E1875A7C0C0
 ```bash
 magnet:?xt=urn:btih:297E0C2FFDC075E67ED9BACC151F346454483BA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ EducationMarine, Василий Березовский | Chief officer on oil ta
 magnet:?xt=urn:btih:6041D0ED977EC2BE74610671993780CB34373693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ remontkv.pro, Александр Смолин | Новейший курс по �
 magnet:?xt=urn:btih:7D464B0DB2993C13D82236BDC8A5DDDBACC1FEF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:7D464B0DB2993C13D82236BDC8A5DDDBACC1FEF5
 ```bash
 magnet:?xt=urn:btih:9B326AB2BD6335B00FE7CE6AEFB32DD26DFFE221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ Udemy, Pete Jepson | Make a Multiplayer Game in Unity 2024-1 (2024) WEBRip [EN]
 magnet:?xt=urn:btih:F21ED2097FA4329FB2271266CDF16A7F1960D306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ Linkedin.com, Brenda Romero | Основы игрового дизайна, ча
 ```bash
 magnet:?xt=urn:btih:F78905571D07A546A4A4FB0582D54D179A295A0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ The Complete Unity C# Bootcamp (Часть 1 из 2) - единственный 
 magnet:?xt=urn:btih:4988F288EB3F0085A1E6F951D54FCDBAB48F11F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ The Complete Unity C# Bootcamp (Часть 2 из 2) - единственный 
 ```bash
 magnet:?xt=urn:btih:0C5C41E958C6E51C231993D1C9D908B4E164101D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ Udemy, GameDev.tv Team, Gary Pettie, Ben Tristem | Математика для �
 magnet:?xt=urn:btih:CEDAC75223E2F6AD1A1727CCA290D98AE4CC3CF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ George Vondriska | Делайте качественные двери (2015) WEB
 ```bash
 magnet:?xt=urn:btih:63391119D19DEEB131F16CE57661A169B51251B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:63391119D19DEEB131F16CE57661A169B51251B2
 magnet:?xt=urn:btih:632F81C13110056B85A77050CAF35DB34AE95EB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:632F81C13110056B85A77050CAF35DB34AE95EB3
 magnet:?xt=urn:btih:C6A3A56E7182C3CF18A9CA98187906CF88CEF3B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ George Vondriska | Основы изготовления шкафа (2015) WEBRi
 ```bash
 magnet:?xt=urn:btih:3A83E331D3ED3D4C0D7D0E015FB189DB201DF196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +647,8 @@ BLNDR v.6 записывается на актуальных версиях Blen
 magnet:?xt=urn:btih:594424955596FB83237093996E08787D25E0FDD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ magnet:?xt=urn:btih:594424955596FB83237093996E08787D25E0FDD0
 magnet:?xt=urn:btih:02987F6BECD9E2BDDCA0214F352F42D94F4E589C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ George Vondriska | Основы изготовления мебели (2015) WEB
 ```bash
 magnet:?xt=urn:btih:87D832A5E868ABD01030629866E3885386C7A48B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

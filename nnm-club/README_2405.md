@@ -20,6 +20,8 @@ DxO PhotoLab 7 ELITE Edition 7.5.1 [Multi]
 magnet:?xt=urn:btih:5BDB90B3F153FE3EAAA757170A86476B7378D77E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:FF3BC0917BBA776B807814E5895C7C21DF207E07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:9BB88FA384F3D17264DB9EC57819C081C0E22593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:9BB88FA384F3D17264DB9EC57819C081C0E22593
 magnet:?xt=urn:btih:A3F4FA3E56C5C02BE8DA5FCF72D24519283A8F2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:A3F4FA3E56C5C02BE8DA5FCF72D24519283A8F2D
 ```bash
 magnet:?xt=urn:btih:753B94A1016494BABBDAE1A3F6D1B9CCC293DE1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:73A568C9166C70F81594C8A708DB47976174D1EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:2D790EB14670B07D9A951B7B7B35EEA8167D9163
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Ubuntu*Pack 20.04 KDE / Kubuntu (март 2024) [amd64] 1xDVD
 magnet:?xt=urn:btih:365863E24F200EBAC73CCFDD4A18F25CDF4F75DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:365863E24F200EBAC73CCFDD4A18F25CDF4F75DF
 ```bash
 magnet:?xt=urn:btih:31D7EEA3A8E7041EA731FF1BA71CC456185A386A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 magnet:?xt=urn:btih:6BD89EA37B029A23F52BF2C7FE6E96CA279A554B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:390EC2E97EC014751D38C8AE39BDF6BC7D4B8E40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ CopyQ это легкий, но многофункциональный мене�
 magnet:?xt=urn:btih:016B2BC908792DF437A3098D47745CD9CF750D6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:016B2BC908792DF437A3098D47745CD9CF750D6C
 magnet:?xt=urn:btih:E999C7C327551AA1E49641258853FBE33E454256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:E999C7C327551AA1E49641258853FBE33E454256
 ```bash
 magnet:?xt=urn:btih:A58F0C17B3F8719FBF873341C48D2B52128605B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Ubuntu*Pack 20.04 GNOME (март 2024) [amd64] 1xDVD
 magnet:?xt=urn:btih:02FA2B5E33D566BD4A2CA02B5A341D08A2891151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Ubuntu*Pack 20.04 Cinnamon (март 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:7672A312011EEBD0ECA78354CE162B79C03656F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ I сторона
 magnet:?xt=urn:btih:3FB6A01139B3F3A95C8EEA49DB337232782F839C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ BoltAI — это мощный помощник ИИ, предназначенн
 magnet:?xt=urn:btih:AD6732BE53D6425E8DBA647751C5CAE58CEDC0D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:AD6732BE53D6425E8DBA647751C5CAE58CEDC0D3
 ```bash
 magnet:?xt=urn:btih:34CB00B641F4B63A06773D8812B372E6A7F34555
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:34CB00B641F4B63A06773D8812B372E6A7F34555
 magnet:?xt=urn:btih:B49FE8859A596E7E928CE44ABA7B1514164EA82B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Office Installer - программа предназначена для online �
 ```bash
 magnet:?xt=urn:btih:395AFB4CC103A7D7FF6B2AD319B30638D0EA01EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:395AFB4CC103A7D7FF6B2AD319B30638D0EA01EC
 magnet:?xt=urn:btih:46FB6D25814C96BB2CE50A0D2B24F4E15224F1C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:4F92FCD81CF9FCEAADA11F0D3916E1161CCCF940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 magnet:?xt=urn:btih:D2B50564E056C9C767955348EC8970EED20C9DAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:D2B50564E056C9C767955348EC8970EED20C9DAF
 ```bash
 magnet:?xt=urn:btih:A33A4916829C412069920432FF6AB2CB643F4342
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +680,8 @@ Ubuntu*Pack 20.04 LikeWin (март 2024) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:657BA7F1172AE8EEA47C2BEE0F45CBA15603EFEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

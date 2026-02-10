@@ -1,3 +1,29 @@
+###  Публикация: 1488493   (1002024) от 11.08.2021
+
+Борис Батыршин | Коптский крест (Книга 1) (2021) [MP3, Игорь Ломакин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1002024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наверное, каждый хотел бы побывать на экскурсии в прошлое. Героям книги это более чем удалось, ведь для них открыт временной портал и теперь всей семьёй можно заглянуть в XIX век. Вот только взрослым не стоит забывать, что дети всегда могут выкинуть нечто неожиданное, то, что в незнакомой эпохе может иметь для путешественников самые неприятные последствия, да и временные (   Читать дальше...   )Жанр: Историческая фантастика, попаданцыПродолжительность: 12:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D068708BE187AE663512232F44B84334D3D71076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488443   (1002025) от 11.08.2021
 
 Руслан Рубцов | Подземный владыка (Книга 2). Копатель 2 (2021) [MP3, Александр Поликарпов]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0F8A4DF2D7C9FB4AAC3F491BC6B4A4573D162D4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:0F8A4DF2D7C9FB4AAC3F491BC6B4A4573D162D4B
 magnet:?xt=urn:btih:98B093CA9EF9F147F00CAED5A32DD14265AB8FAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:98B093CA9EF9F147F00CAED5A32DD14265AB8FAA
 ```bash
 magnet:?xt=urn:btih:82F45CB68E284D0D26DC09BFCF100310259AF907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:82F45CB68E284D0D26DC09BFCF100310259AF907
 magnet:?xt=urn:btih:4F7C1705051D890FF33FF089E1717B93359FF268
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:4F7C1705051D890FF33FF089E1717B93359FF268
 magnet:?xt=urn:btih:B1FFF904F82FBE45E89F9891B138E37F454CD9A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ magnet:?xt=urn:btih:B1FFF904F82FBE45E89F9891B138E37F454CD9A1
 ```bash
 magnet:?xt=urn:btih:90DD80228A0125593E085C1D21F1FF699FAB5453
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:90DD80228A0125593E085C1D21F1FF699FAB5453
 magnet:?xt=urn:btih:ECA11E47FFD9672DFD5336657F7D503178AB64FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:ECA11E47FFD9672DFD5336657F7D503178AB64FC
 ```bash
 magnet:?xt=urn:btih:D58AFF40DB130B51FF7DE02A19BA85DF7AA45DCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:D58AFF40DB130B51FF7DE02A19BA85DF7AA45DCB
 magnet:?xt=urn:btih:B0F599107360DE1BDC71697C22C07BD585387263
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:B0F599107360DE1BDC71697C22C07BD585387263
 magnet:?xt=urn:btih:5E3BBA3ECC8E1D5F2C6707263DB3CEF60D6D51FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:5E3BBA3ECC8E1D5F2C6707263DB3CEF60D6D51FA
 ```bash
 magnet:?xt=urn:btih:AA4E130B8AD5B74D58988202416C5685A117F94D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:AA4E130B8AD5B74D58988202416C5685A117F94D
 magnet:?xt=urn:btih:E53BD2E69972A79CE02DF5EF3BE658FA10C040D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:E53BD2E69972A79CE02DF5EF3BE658FA10C040D1
 magnet:?xt=urn:btih:0E0A9A6F28EDFF2EB8762417490BB261DFD7A879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:0E0A9A6F28EDFF2EB8762417490BB261DFD7A879
 ```bash
 magnet:?xt=urn:btih:B6AB43AFA38F757AA5569A0B285070F9A6D28E73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:B6AB43AFA38F757AA5569A0B285070F9A6D28E73
 magnet:?xt=urn:btih:633F4A2D059A14D8CD75AED91975708D07123268
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:633F4A2D059A14D8CD75AED91975708D07123268
 ```bash
 magnet:?xt=urn:btih:34C1CA5A1E7279C9F20A9B96F78453269400CE20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:34C1CA5A1E7279C9F20A9B96F78453269400CE20
 magnet:?xt=urn:btih:B468EC8696885F66A40CF1A747C44C0B24D89324
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:B468EC8696885F66A40CF1A747C44C0B24D89324
 ```bash
 magnet:?xt=urn:btih:47AFF0458778A43B39AAC9ADAC2AC2BE1F1C8C33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:47AFF0458778A43B39AAC9ADAC2AC2BE1F1C8C33
 magnet:?xt=urn:btih:53145EBAE033F3207840CC6E0A7BCEB526544A00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:53145EBAE033F3207840CC6E0A7BCEB526544A00
 ```bash
 magnet:?xt=urn:btih:B57D449D1E6A25604C8161A07218B97FDF35A026
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:B57D449D1E6A25604C8161A07218B97FDF35A026
 magnet:?xt=urn:btih:1B0693C9847E0DA37B55159C9A51C6E001CE4974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:1B0693C9847E0DA37B55159C9A51C6E001CE4974
 ```bash
 magnet:?xt=urn:btih:6015F1D58997BCCF74AB8CB7F6F920F9DDC62031
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:6015F1D58997BCCF74AB8CB7F6F920F9DDC62031
 magnet:?xt=urn:btih:D4D08FE0E79796D31548442E09D6FE7F49DA9E72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:D4D08FE0E79796D31548442E09D6FE7F49DA9E72
 ```bash
 magnet:?xt=urn:btih:4C9BE5D8BE6BBE2F9678E373B867587F3D4C4404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,31 +683,7 @@ magnet:?xt=urn:btih:4C9BE5D8BE6BBE2F9678E373B867587F3D4C4404
 magnet:?xt=urn:btih:177E12E7F50B6BD859331AA6516861D4E0D1B8DA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487927   (1002858) от 08.08.2021
-
-Джо Хилл | Странная погода (Сборник) (2019) [MP3, Дмитрий Рыбин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что окружает нас в повседневной жизни? Семья, работа, обязанности?
-Повести Джо Хилла заставят вас взглянуть на мир иначе.
-Вместе с его героями вы будете молиться о спасении. Вам придется переосмыслить жизнь, как ставшему взрослым мальчишке – свои воспоминания о больной деменцией няне. Осознать глубину одиночества чужеродного разума. Замереть от ужаса под прицелом (   Читать дальше...   )Жанр: Хоррор, мистикаПродолжительность: 14:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B99740C3CA4A5F7B40CFE9A06288408DAAE869
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

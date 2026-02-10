@@ -1,3 +1,29 @@
+###  Публикация: 1541304   (646947) от 02.04.2022
+
+Пятеро на одного (05.03.2022) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звездных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F84873FBB90A6836EC890A6652E1DD95CCB788
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541314   (646951) от 02.04.2022
 
 Пятеро на одного (19.03.2022) WEBRip [H.264/720p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:EF2F312D9D7E11A64F833305B31E8A01016DEAD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:EF2F312D9D7E11A64F833305B31E8A01016DEAD1
 magnet:?xt=urn:btih:1CD73590B223D83E28C758AEED02EF353065F539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ Nat Geo Wild: Дикая Колумбия / Wild Colombia [серии 1-3 из 3
 ```bash
 magnet:?xt=urn:btih:DF28E602BD7DF9FBC97BAA369804967F5CEE8B2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ Nat Geo Wild: Мафия кобр / Cobra Mafia (2014) HDTVRip [H.264/720p]
 magnet:?xt=urn:btih:11004B6AAD9DE82C3B998EE8F661D3A0425D54C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:11004B6AAD9DE82C3B998EE8F661D3A0425D54C0
 ```bash
 magnet:?xt=urn:btih:94A71CAE93D6E618D8BE422C3E70B5931B13AB13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:94A71CAE93D6E618D8BE422C3E70B5931B13AB13
 magnet:?xt=urn:btih:654341368760F3079D114E7ED0273DAA5EF1B957
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:654341368760F3079D114E7ED0273DAA5EF1B957
 ```bash
 magnet:?xt=urn:btih:3366CF8BA92DB6655FBAF1A7A6E9DD412439C131
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:3366CF8BA92DB6655FBAF1A7A6E9DD412439C131
 magnet:?xt=urn:btih:BC666A0A2E9E2C5F01E4FDDC240435E18E141964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:BC666A0A2E9E2C5F01E4FDDC240435E18E141964
 ```bash
 magnet:?xt=urn:btih:AE2AEB14953CA986229DB9B544CD2F214C1F503F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:AE2AEB14953CA986229DB9B544CD2F214C1F503F
 magnet:?xt=urn:btih:7B7E5AB9154FAF7F9CCCCF93622FBB4A48BB6AAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:7B7E5AB9154FAF7F9CCCCF93622FBB4A48BB6AAD
 ```bash
 magnet:?xt=urn:btih:23AB8FCFE4B8BE227809F2B078F959227AFE93A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:23AB8FCFE4B8BE227809F2B078F959227AFE93A3
 magnet:?xt=urn:btih:EAA8AA2E07B2CB6E712B373C05C2E1D54923D8CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:EAA8AA2E07B2CB6E712B373C05C2E1D54923D8CE
 ```bash
 magnet:?xt=urn:btih:41424C3C199B3A50C143B5961CAE5A8FEBCA87FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:41424C3C199B3A50C143B5961CAE5A8FEBCA87FF
 magnet:?xt=urn:btih:C10D2BD780DBEE7A157031C2D4DC82F157E1BB4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:C10D2BD780DBEE7A157031C2D4DC82F157E1BB4E
 ```bash
 magnet:?xt=urn:btih:A85FEEAE7925FB177644FD0F226DC9CBD5B706FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:A85FEEAE7925FB177644FD0F226DC9CBD5B706FC
 magnet:?xt=urn:btih:B7A0E8ACD74A059D18482DD66E4A281968591B56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:B7A0E8ACD74A059D18482DD66E4A281968591B56
 ```bash
 magnet:?xt=urn:btih:E7D4181A30E869746F27A2466DA7EE8236C87B6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:E7D4181A30E869746F27A2466DA7EE8236C87B6A
 magnet:?xt=urn:btih:39A86352DA61C7C8AC1A03686EEE9304CEDC69DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:39A86352DA61C7C8AC1A03686EEE9304CEDC69DA
 ```bash
 magnet:?xt=urn:btih:92B2CA74149DA88A36F42785758AA46A7591FBCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:92B2CA74149DA88A36F42785758AA46A7591FBCD
 magnet:?xt=urn:btih:088549C1264DFA2F259464174FDC0246B05A9175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:088549C1264DFA2F259464174FDC0246B05A9175
 ```bash
 magnet:?xt=urn:btih:2F84E3D504929B74D3B94869CAE483A6D3DA0182
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:2F84E3D504929B74D3B94869CAE483A6D3DA0182
 magnet:?xt=urn:btih:4981E4B73D08DB4308B42197E33409A035E6CDAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:4981E4B73D08DB4308B42197E33409A035E6CDAE
 magnet:?xt=urn:btih:73513B1735BAD175840117ABEA04A944F8AB957F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:73513B1735BAD175840117ABEA04A944F8AB957F
 ```bash
 magnet:?xt=urn:btih:EE3DDC882230D205F4F22110BBA8EF10941AF680
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:EE3DDC882230D205F4F22110BBA8EF10941AF680
 magnet:?xt=urn:btih:580986270860B7FBC9DFD657AA5DD3CA52610DB7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136374   (648258) от 11.06.2017
-
-Прекрасный полК (2017) SATRip (2 сезон: 4-7 серия) (Обновляемая)
-
->>Документалистика и Телепередачи
->>Вторая Мировая война
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Война подтвердила, что женщины не только могут сражаться наравне с мужчинами, но порой превосходят их в мужестве. Документальный сериал рассказывает о женщинах, участвовавших в сражениях Великой Отечественной войны.Производство: Россия, ООО «ТВ Студия Август»Жанр: Документальный, война, историяРежиссер: Александр КапковПродолжительность: 4 х ~ 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CC104CDFE01A211B8C91CAB0AF83DCC4CB5B233
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

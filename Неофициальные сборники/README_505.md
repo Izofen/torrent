@@ -1,3 +1,32 @@
+###  Публикация: 1204866   (784406) от 07.02.2018
+
+VA - Empire Records - House Swinging 2 (2018) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Swingrowers  -  Butterfly (Phibes Remix)  3:56
+02.  Jaques Le Noir  -  Boy (Push My Botton) (Radio Edit)  3:16
+03.  Faul & Wad Ad vs. Pnau  -  Changes (Radio Mix)  3:21
+04.  Freddy Verano feat. Natalia Doco  -  Comets (HUGEL Remix)  4:27(   Читать дальше...   )Жанр: HouseПродолжительность: 01:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C27CC1F782AB53F0AE04EE2D6BC073B5FCFE1C6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204858   (784411) от 07.02.2018
 
 VA - Empire Records - Electro Chill 3 (2018) [MP3|320 Kbps] <Chillhouse, Chillelectro, Downtempo>
@@ -21,6 +50,8 @@ VA - Empire Records - Electro Chill 3 (2018) [MP3|320 Kbps] <Chillhouse, Chillel
 ```bash
 magnet:?xt=urn:btih:B28747396C47C5C8414985354B16D99E391FA06A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - не Громкие новинки недели 70 (2020) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:9E8D06E438F59E9420FFC34413913B5E9285FA73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +107,8 @@ Enigma - Sadeness (2017) Remix [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:46AA3E2212E742D720E3C3B2946233A487E79457
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +136,8 @@ Benny Benassi - Satisfaction (2017) Remix [MP3|320 Kbps] <G-House>
 magnet:?xt=urn:btih:B34BA93CDA0E63F659D5FA33B34CDD2F3C25589C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +163,8 @@ Alan Walker - Sing Me to Sleep (2017) Remix [MP3|256 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:E5B44BC59F53BD81C81666484FEE8106924E4153
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +193,8 @@ VA - Music News vol.18 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
 magnet:?xt=urn:btih:0A43053D3D9B375A0488E472C3E304D2E9FFBDEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +221,8 @@ VA - Music News vol.17 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
 ```bash
 magnet:?xt=urn:btih:4C611A921996157D8F1D49E45E231E5443ACAED3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +251,8 @@ magnet:?xt=urn:btih:4C611A921996157D8F1D49E45E231E5443ACAED3
 magnet:?xt=urn:btih:329CA9DCD1D0FD6F96D44F8325AF81A8BD53AAA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +279,8 @@ VA - Earth Mass: New Age Compilation (2018) [MP3|256-320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:E26F71625F3234B146C3834F6818241A800BAB65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +309,8 @@ VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0020 (
 magnet:?xt=urn:btih:539E08E44908AD462456AF03067A68E6B969608F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +337,8 @@ VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0019 (
 ```bash
 magnet:?xt=urn:btih:229CDEE1736A60017515AE0979E31F407454D811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +367,8 @@ VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0018 (
 magnet:?xt=urn:btih:41CD97EFB58153818C722206684ABA1C1053E171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +395,8 @@ VA - Romantic Drum Vol 2 (2018) [MP3|320 Kbps] <Drum & Bass, Drumfunk, Techstep>
 ```bash
 magnet:?xt=urn:btih:DFAC3A896D983CC4E23B83208E37A102FA2EFE1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +425,8 @@ VA - Deep House Collection Vol.156 (2018) [MP3|320 Kbps] <Deep House, Club House
 magnet:?xt=urn:btih:7CFAFD9BB716F48A5F1A8713750E3C4713BBEBB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +453,8 @@ VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0011 (
 ```bash
 magnet:?xt=urn:btih:59CB82CE2D8B49848416E83AD3AAA1624599F44F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +483,8 @@ VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0017 (
 magnet:?xt=urn:btih:583BA5BFE615E372789E1EC34F717FD8E6155BEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +511,8 @@ VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0014 (
 ```bash
 magnet:?xt=urn:btih:15CDCE11E0B0E3B8B447C37B38E4E789D087DD19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +541,8 @@ VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0016 (
 magnet:?xt=urn:btih:177B4876F9E407816D2DDAA062270A8B7F02E82D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +569,8 @@ VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0012 (
 ```bash
 magnet:?xt=urn:btih:8DBDBFED3CC4B184F08477321F28FB2E579202AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +599,8 @@ VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0015 (
 magnet:?xt=urn:btih:9F868466746452191D03E5BFB2284FF870EB6376
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +627,8 @@ VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0013 (
 ```bash
 magnet:?xt=urn:btih:26BBC04906458EAB9F5DE5B8C467CE05821D95AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +657,8 @@ VA - Progressive Psychodelic Trance (Exlusive Tracks) Vol.3 (2018) [MP3|320 Kbps
 magnet:?xt=urn:btih:8DE6EC83DE290F3013189C8067E9A8F05DACF48B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +686,8 @@ VA - Music News vol.16 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
 magnet:?xt=urn:btih:2F991A6C18B347130D6038C8EDD6FA9C94FECE21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +711,8 @@ Daft Punk - Technologic ★ G-House Remix ★ Tony Ferrera ♫ Up MusicЖанр:
 ```bash
 magnet:?xt=urn:btih:87283D589CD1DCA00E50335611D068B2CF8D0AAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,32 +744,7 @@ Hits of My Soul - сборник электронной и инструмент�
 magnet:?xt=urn:btih:93F6AC78ABFE06600316D8D6AC9F904F27E57264
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204215   (784886) от 05.02.2018
-
-VA - Rock Burning Sounds (2018) [MP3|320 Kbps] <Rock, Alternative, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_784886.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Moles - Out of Control
-002. NRBQ - Yes, I Have A Banana
-003. David West - Reds for the Blues
-004. Guano Apes - Open Your Eyes(   Читать дальше...   )Жанр: Rock, Alternative, Hard RockПродолжительность: 08:04:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3424632F3F64263C07BA066B194C9713961CEDF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

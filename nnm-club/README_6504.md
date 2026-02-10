@@ -19,6 +19,8 @@ Magic City Detective 3: Rage Under Moon / Волшебный город 3: Яр�
 magnet:?xt=urn:btih:753D6FB551507F53036900E1D7BAFD161C447961
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:753D6FB551507F53036900E1D7BAFD161C447961
 ```bash
 magnet:?xt=urn:btih:1910D903F2BADFCB5D907D5A80873BA3ED2EADCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:1910D903F2BADFCB5D907D5A80873BA3ED2EADCE
 magnet:?xt=urn:btih:11A3850A8486D2793BE5E037FE6CE21148205C9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:11A3850A8486D2793BE5E037FE6CE21148205C9D
 ```bash
 magnet:?xt=urn:btih:5832134D157920C832C22C8C20878C182C980FB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ SamDrivers 23.5 Expert [Multi/Ru]
 magnet:?xt=urn:btih:DC717652D744081C0FBFEFB5D87BFF30398EC78F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:DC717652D744081C0FBFEFB5D87BFF30398EC78F
 ```bash
 magnet:?xt=urn:btih:EDD5A4CE02E6217A9760635353BA993078C113C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:EDD5A4CE02E6217A9760635353BA993078C113C2
 magnet:?xt=urn:btih:726BCFE9D078487B46512BD96C922C9053E62D31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Cliff Sharif | Game Development with Unreal Engine 5 (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:A38774838214CC324FFEB5CEBF19BAC7A5EEAC7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:BDD04BE0C4EEFE7223553B42497130DF3A6B1AB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:BDD04BE0C4EEFE7223553B42497130DF3A6B1AB3
 ```bash
 magnet:?xt=urn:btih:4296C3750F78C06FF4F730A178CDBA6E535D331B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ PortScan & Stuff - бесплатная утилита, которая дает 
 magnet:?xt=urn:btih:62C7BC635BEB5E1EA9EEF2AA5B51829991F5F5E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:62C7BC635BEB5E1EA9EEF2AA5B51829991F5F5E2
 ```bash
 magnet:?xt=urn:btih:609572F560F04005E004DF6708499487477A67D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ ZBrush - программа для трёхмерного моделирован
 magnet:?xt=urn:btih:949798CE267288760EC96F8D0A1437F5AC64F923
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:949798CE267288760EC96F8D0A1437F5AC64F923
 magnet:?xt=urn:btih:CC855C444920BA6773414640C6A4E12B429BA0E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ magnet:?xt=urn:btih:CC855C444920BA6773414640C6A4E12B429BA0E3
 ```bash
 magnet:?xt=urn:btih:052C75B2F5BA33B1309D3EEA7928766CD96BD7E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Bengala.art, Ирина Глушкова | Мини-курс NFT (2023) WEB-DL [
 magnet:?xt=urn:btih:D09E252C99F1B37171A3F7C388CFA10E181EE81C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:AC7AB877ED58AAB7C4E9380EA485DAE28F794EA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:AC7AB877ED58AAB7C4E9380EA485DAE28F794EA4
 magnet:?xt=urn:btih:18C4DBC7B244BEBAC32E44937D9E8E69696549C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:18C4DBC7B244BEBAC32E44937D9E8E69696549C0
 ```bash
 magnet:?xt=urn:btih:529B9113CE670F18E0CB0428DA8ECF9F5AB87AEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:529B9113CE670F18E0CB0428DA8ECF9F5AB87AEE
 magnet:?xt=urn:btih:041A23A651E9C0522F568E0D1D14C12F4999C5F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Celestia - бесплатная трёхмерная астрономическ�
 magnet:?xt=urn:btih:3248D20934202C265CA5F734D13B5ABB802AFB89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:3248D20934202C265CA5F734D13B5ABB802AFB89
 ```bash
 magnet:?xt=urn:btih:DF16E0C4C09E92F6DA8A34C63F67A0EFAF5B72A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ DAEMON Tools Lite - программа для работы с образами �
 magnet:?xt=urn:btih:126DB81382A01A803F907338A6229F9A9511280E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Phase One Capture One - один из лучших профессиональн�
 ```bash
 magnet:?xt=urn:btih:01E3F68908FDBA1F805C3EBD75B5F7CB0284F88B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Revo Uninstaller Pro 5.1.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:1C7C47CEE82F462E16EC42C804F98AC4F66F8951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ QuickMemoryTestOK 4.55 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EA2DFA621038061EF47A9BA727F71A14E6B0F553
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

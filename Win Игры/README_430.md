@@ -1,27 +1,3 @@
-###  Публикация: 1226490   (655642) от 20.05.2018
-
-Rite of Passage 8: Hackamore Bluff / Обряд посвящения 8: Хакамор Блаф (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_655642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Увлекательное продолжение мистической серии игр Rite of Passage. Последний телефонный разговор Дженни с мужем неожиданно прервался. А ведь он хотел сообщить ей о какой-то совершенно потрясающей находке! Что же произошло? Дженни отправляется в городок со странным названием Хаккамор, где Карлос проводил раскопки. Приехав, она обнаруживает, что ее муж бесследно исчез, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Mad Head GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2BDECBFBE95E86EF2431A074FC10340BB290CBD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904037   (656302) от 01.06.2015
 
 Sable Maze 4: Twelve Fears / Темный лабиринт 4: Двенадцать страхов (2015) [Ru] Unofficial [Collector's Edition / Коллекционное издание]
@@ -42,6 +18,8 @@ Sable Maze 4: Twelve Fears / Темный лабиринт 4: Двенадцат
 ```bash
 magnet:?xt=urn:btih:68CD7DCD8F3E6F6694359D470782634AE44ECF53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Fernbus Coach Simulator - первый симулятор, позволяющи�
 magnet:?xt=urn:btih:2ABF4874C63ED97F82CD8999A4F90F31A12EA428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Creepy Road (2018) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:EF2CB63FBFDB58766F2A90C18A213047FFE48748
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Koloro (2018) [Ru/Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:2B9CC7CF300D8E3928B3B1AC0FA82B2441F02B49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ The Cat Lady (2012) [Ru/Multi] (1.7) License GOG
 ```bash
 magnet:?xt=urn:btih:7A6DE1389F030C1C7A73810EFF31DC44736187B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ The Perils of Man (2015) [Ru/Multi] (1.0)  License PROPHET
 magnet:?xt=urn:btih:361B4E826E5147103A25104E0B21C7D5D8073E9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ Brothers in Arms: Hell's Highway является третьей частью в
 ```bash
 magnet:?xt=urn:btih:77E159040DB4D8A9580AD6DBC603C616604E03B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ Cold Waters (2017) [En] (1.0) License CODEX
 magnet:?xt=urn:btih:4C9FE39CEBE8B65156EE4948C4517B3F6B2DE88D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ Ominous Objects 5: The Cursed Guards / Зловещие вещи 5: Прокля
 ```bash
 magnet:?xt=urn:btih:FC6682741FB677B73AD7ED38B984D66DB2340797
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ Resident Evil 4 специальному агенту Леону С. Кенне�
 magnet:?xt=urn:btih:0129E81439B02F720A8C3AC975F67CB28E1A835B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ Ghostwire: Tokyo (2022) [Ru/Multi] (1.0/dlc) License FAIRLIGHT [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:A61909FD40910884AAF47A5E3EEC49C840E2D776
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ AntVentor (2018) [Ru/Multi] (1.0) License SKIDROW
 magnet:?xt=urn:btih:A52789669DE0E5D47E11D92ECCC41FE5849DA457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ F1 2017 (2017) [Ru/En] (1.13/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:199AD66BBBC6ACC80A1A76AD1D72DFF1729C1AA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +358,8 @@ BATTLETECH (2018) [En] (1.0.3-280R/dlc) Repack Other s [Digital Deluxe Edition]
 magnet:?xt=urn:btih:637E997C5B312DB2CC44567ECB0ED6B1280B018B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +383,8 @@ Tom Clancy's Ghost Recon: Future Soldier (NoDVD/v1.0 + FIX) 2012 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:F6EDB13C73AFA2108C5ACF4AC1FC210E8A888AF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +410,8 @@ Lara Croft GO предлагает довольно необычный взгл�
 magnet:?xt=urn:btih:DA3A25A2ABEAB6B1E05D325FB56C85A7979D1199
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +435,8 @@ Castlevania: Lords of Shadow - Антология (2013-2014) [Ru/En] (1.0.2.9u2
 ```bash
 magnet:?xt=urn:btih:11E8F0A896748F5E209E68FC4E199BD92B49B7CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +462,8 @@ Sheltered (2016) [Ru/Multi] (1.6) Repack Other s
 magnet:?xt=urn:btih:5640120E1186862887231A4C823BCEB9C1EEAEFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +487,8 @@ Cadenza 2 : The Kiss of Death / Каденция 2: Поцелуй смерти 
 ```bash
 magnet:?xt=urn:btih:61251BFE81788CF181E6A75A46D735FA2E7B7C28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +514,8 @@ Fairy Kingdom 2 / Сказочное Королевство 2 (2017) [Ru] (1.0) 
 magnet:?xt=urn:btih:A45E5EE1B0FA097A2A6ADF7B0441C3C78B8722F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +539,8 @@ Mary Knots: Garden Wedding (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:6D96C27B6D13E584546388E44D8378F3043D992D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +566,8 @@ Ominous Objects 5: The Cursed Guards / Зловещие вещи 5: Прокля
 magnet:?xt=urn:btih:0D1D0DD19F3296E73BD655E17A8F089E0242A600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +591,8 @@ Ominous Objects 4: Lumina Camera / Зловещие вещи 4: Камера 'Lu
 ```bash
 magnet:?xt=urn:btih:69D5C3B40BCD2631629069C59F556E62CE5D9968
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +618,8 @@ Mystic Diary 3: Missing Pages (P) [En] 2012
 magnet:?xt=urn:btih:6CF8B5F6C614B7E6060B3575589BC5912B93C447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +643,34 @@ Pride & Prejudice: Hidden Anthologies (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:EACABF663D3083256BAE46972EF2E376A430C833
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225775   (658473) от 17.05.2018
+
+Asemblance: Oversight (2018) [En] (1.01) License SKIDROW
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Asemblance: Oversight - это игра-исследование с элементами головоломки от первого лица. Вы являетесь частью команды ученых и инженеров, которым поручено использовать секретную технологию, помогающую воссоздать человеческий разум. Ваш успех основан на распутывании правды, связанной с истоками этой странной технологии.Тип издания: LicenseРазработчик: Nilo StudiosЖанр: Adventure, Puzzle, 1st Person, 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956833F9A596551463B5AC77ED72B2D942FCF57C
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

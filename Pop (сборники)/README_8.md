@@ -28,6 +28,8 @@ VA - The Best Pop Albums of 2011 on Amazon (2011) [MP3|320 кб/с]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ VA - Студенческая Вечеринка Русский (2012) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:308E1359008F627B7A3FD5ABD4E9B24EF9B2AAD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ VA - Максимальный Отрыв (2012) [MP3|256 кб/с]<Pop. Dance>
 magnet:?xt=urn:btih:E69D30F858E998FFAAD013A088F011D4851EEAAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +127,8 @@ Romantic Dreams - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Italodisco,
 magnet:?xt=urn:btih:C897ED702DFD002BC64B0E92A23F24546BA716AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +155,8 @@ Sofia Bellini - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Italodisco, I
 ```bash
 magnet:?xt=urn:btih:7BACB26D48733FB929F6B06DD7B532A17B3DF956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +191,8 @@ VA - Самые горячие новинки этого года (2012) [MP3|25
 magnet:?xt=urn:btih:CB676E47723878ADC8746EA4D255847C8B1EE054
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +225,8 @@ VA - Лучшие Хиты Радио Европа Плюс Часть 8 (2012) 
 ```bash
 magnet:?xt=urn:btih:F816AB9F600C2D6A12AAA401BB5FBE1F9BD52A96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +261,8 @@ VA - Восточная Сказка (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:953D6230EA8BF66719796D77E4A99A5C866EE71D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +289,8 @@ VA - Warm Melodies And Rhythms (2024) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:7C3A1704B5E093EC4709E4B2AFF1D97133A7DD46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +319,8 @@ VA - New Music Releases Week 29 (2024) [MP3|320 Kbps] <Pop, Dance, Rock, Hip-Hop
 magnet:?xt=urn:btih:33A57985A3094DBFB838187005032743F9655E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +347,8 @@ VA - National Pop Dance Music Vol.79 (2024) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:E11CEA6FF7301FF73997D3BDE84B0E1DF962FA91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +377,8 @@ Mode - One  Compilation (2024) [MP3|320 Kbps] <Euro Disco /Pop Dance>
 magnet:?xt=urn:btih:9BC85A90834731F87453E6E8B6111058325979FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +405,8 @@ Kovacs - Compilation (2024) [MP3|320 Kbps] <Pop, R&B>
 ```bash
 magnet:?xt=urn:btih:6AE9DD42C07CFD9AEB2882F41C62966CF99D05BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +435,8 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 07 (2022) [MP3|320 Kbps] <D
 magnet:?xt=urn:btih:EF7279A1C76C03FA0E9CC66B2D9FD1283431224F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +463,8 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 05 (2021) [MP3|320 Kbps] <D
 ```bash
 magnet:?xt=urn:btih:4367399DF793441F36A7C573B1E3C2B9EF6CE891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +493,8 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 06 (2022) [MP3|320 Kbps] <D
 magnet:?xt=urn:btih:DD261111B520647C27971E33BBA17B411A57DBC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +521,8 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 02 (2021) [MP3|320 Kbps] <D
 ```bash
 magnet:?xt=urn:btih:5E253834986C6ACF5ECD67C2FA1A4118AB1F6A3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +551,8 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 01 (2021) [MP3|320 Kbps] <D
 magnet:?xt=urn:btih:AD8151E2DA0873F4BDD1EE1668C0DBFCD0BD10E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +579,8 @@ VA - Dario Caminita: Classic Revibes Collection Vol. 03 (2021) [MP3|320 Kbps] <D
 ```bash
 magnet:?xt=urn:btih:8FF7551008F6289A5413BB7E96282340348D1B9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +609,8 @@ VA - Bohemian Soul (2024) [MP3|320 Kbps] <Rhythm And Blues, Soul>
 magnet:?xt=urn:btih:7117ACA27BD8E087602CB09C60B8E331D78BD87A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +637,8 @@ VA - Ласковый Май в инструментальных версиях 
 ```bash
 magnet:?xt=urn:btih:B3DAFEA8596460F9B34F09CC227AF26D1B9F77CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +667,8 @@ Paloma Faith - Compilation (2024) [MP3|320 Kbps] <Pop, Soul,>
 magnet:?xt=urn:btih:80CAEEEDFB791CA45F1C9B34A489ED659AE726D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +695,8 @@ VA - Winter Ukrainian Calm Songs (2024) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:FFF1821BA420A6B637BF7DACFFD1946DCB1DF34F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -679,6 +725,8 @@ magnet:?xt=urn:btih:FFF1821BA420A6B637BF7DACFFD1946DCB1DF34F
 magnet:?xt=urn:btih:269CFB0B30A03FC296117F37953A291CC48C3F4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -706,6 +754,8 @@ VA - Hot songs to make out to (2024) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:4A653F04B2A325556C1A6C240DDBE2C0CD08AE62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -732,6 +782,8 @@ VA - Зима на Love Radio (2024) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:9D0FA4B6FA6C2C1A6F47E0F160E884D64FB86C6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

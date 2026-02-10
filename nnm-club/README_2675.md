@@ -22,6 +22,8 @@ CD1:
 magnet:?xt=urn:btih:82139FDCB1F74F372C7B20B4A65213A854DFFC40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Spacesynth.de Contest TraxX (2007) [FLAC|Lossless|tracks + .cue] <Spacesynt
 ```bash
 magnet:?xt=urn:btih:0A7D9E3F96299517F093E946D8D0B200CDCB0A50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ LMsc - Mystery Flow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:9B388DECC858D4C228A90D0F35FD35BF09DAA5FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ David Rose - Add More Life (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:87B5F3F93EA8A4BCB3A47277930080310EA6D2B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Dionigi - Hot Oxygen (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep-House, Nu-Disco>
 magnet:?xt=urn:btih:3C0AE7BC6E0197309CD164C2006BC8D8BEB1F521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:3C0AE7BC6E0197309CD164C2006BC8D8BEB1F521
 ```bash
 magnet:?xt=urn:btih:EBA50287B9807F3B8F04BFE8DDB3B191419FD0FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Eddie Blues Barney - Blues on the other side (2025) [FLAC 24/48|Lossless|WEB-DL|
 magnet:?xt=urn:btih:8D051E297FA03FFDD4F82047862E581020D3D10D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ magnet:?xt=urn:btih:8D051E297FA03FFDD4F82047862E581020D3D10D
 ```bash
 magnet:?xt=urn:btih:EB114CC0BC5E9C3F06EDDAC09CA81E17968D84E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +250,8 @@ magnet:?xt=urn:btih:EB114CC0BC5E9C3F06EDDAC09CA81E17968D84E2
 magnet:?xt=urn:btih:6DBA835D82608E87FA5B8329E7534D19D5626653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +278,8 @@ Chris James - Cj (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:BA82006AEF681F5462914882A49E1D5D27437146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +308,8 @@ Ritual был сформирован в 1992 году в Стокгольме, �
 magnet:?xt=urn:btih:39709344AA50CB2FE2B26C5FCB2CF9DE66F5DF4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ magnet:?xt=urn:btih:39709344AA50CB2FE2B26C5FCB2CF9DE66F5DF4A
 ```bash
 magnet:?xt=urn:btih:117B273DBD52B4501668CBBA64FCDEF8DC7FD4AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +362,8 @@ magnet:?xt=urn:btih:117B273DBD52B4501668CBBA64FCDEF8DC7FD4AC
 ```bash
 magnet:?xt=urn:btih:8ED1E5FC4A567EC917EFE4E26F831B02E43F16F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +392,8 @@ Wretch - Visitors (2025) [MP3|320 Kbps] <Doom Metal>
 magnet:?xt=urn:btih:721637B1985F02AA8CE95D7044EDF77C1F3B10A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +420,8 @@ New Translations - Vacation (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Altern
 ```bash
 magnet:?xt=urn:btih:4978F674BDB3EF9326C554D95C1B659DA713787D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +450,8 @@ Brothers Harvest - The True Vine (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 magnet:?xt=urn:btih:AFCEDBF6F57D5A41173A1DC85D40ED8F2B50BF85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +475,8 @@ magnet:?xt=urn:btih:AFCEDBF6F57D5A41173A1DC85D40ED8F2B50BF85
 ```bash
 magnet:?xt=urn:btih:4C7E7A7619EC48336C45ADD2A20416EEAF834899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +505,8 @@ Saor - Amidst The Ruins (2025) [FLAC|Lossless|image + .cue] <Atmospheric Black M
 magnet:?xt=urn:btih:E194E574C22D82EEA51503FE01B31D5FCE01869B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +533,8 @@ Manhattan Jazz Quintet - The Sidewinder (1987) ProJazz [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:AB4FCF2AE169429978C1BD8EAB3435B12826143D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +563,8 @@ Bishop Gunn - Live With Bishop Gunn (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:D681B74727ADCC58E5C0CB3150DA54BC76DFED73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +591,8 @@ Kenny Barron - Beyond This Place (2024) Artwork Records [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:41D9218E935C89C599B7A25965E9168776DACF8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +621,8 @@ Nick Brignola & Sal Salvador - A Tribute To Gerry Mulligan (1982 - 1984) 1993, S
 magnet:?xt=urn:btih:077857BC6CFFC997FFEF24A304E08A2E9E311389
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +650,8 @@ Kenny Burrell - Prestige Profiles (1956 - 1963) 2005, Prestige [FLAC|Lossless|tr
 magnet:?xt=urn:btih:D749DD8B82D2474218AB7B380285D84540D24695
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +677,8 @@ magnet:?xt=urn:btih:D749DD8B82D2474218AB7B380285D84540D24695
 ```bash
 magnet:?xt=urn:btih:80F17A902A352C79620F3F8C482F555CDBB82B29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +707,8 @@ djdtime - Relaxing Deep House & Melodic Techno Vol. 3 (2025) [FLAC|Lossless|WEB-
 magnet:?xt=urn:btih:C737B307015A1289D26D8028EF85F0C909FCCFFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,6 +732,8 @@ FreeFileSync - это утилита, которая была разработа
 ```bash
 magnet:?xt=urn:btih:31E4E484BF290D9FC08D52B7E3D9056A964409A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

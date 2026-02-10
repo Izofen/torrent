@@ -1,3 +1,29 @@
+###  Публикация: 1206158   (782493) от 13.02.2018
+
+Ю.А. Высоцкая | Воскресные завтраки (2015) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_782493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Идеальное утро! Каждый, наверное, представляет его по-своему. Для Юлии Высоцкой это утро столь желанного выходного дня, когда никуда не нужно спешить. В такой день ты предоставлен самому себе, своим любимым и родным и можешь сделать из утренней еды целое событие, считает Юлия и предлагает читателям интересные, яркие и запоминающиеся рецепты для воскресного завтрака (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5A61239E20C6F327FC3512864D59886ABF57D13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206157   (782494) от 13.02.2018
 
 Ю.А. Высоцкая | Стройные завтраки (2013) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:3BAA2B7C084ABC3E242A5CD01288F55FC0C25004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:3BAA2B7C084ABC3E242A5CD01288F55FC0C25004
 magnet:?xt=urn:btih:43D4DE4244222EF185A5CC68A9450D8466E16D6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:43D4DE4244222EF185A5CC68A9450D8466E16D6C
 ```bash
 magnet:?xt=urn:btih:E792CA8B5E53A1B5D74F47D7296D9CFD59F62D15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:E792CA8B5E53A1B5D74F47D7296D9CFD59F62D15
 magnet:?xt=urn:btih:BEBDD4775881367DA07E9930619D0DECFC6C5475
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:BEBDD4775881367DA07E9930619D0DECFC6C5475
 ```bash
 magnet:?xt=urn:btih:1C58923521A561269AD3EB2731ECA6FE0CB23B7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:1C58923521A561269AD3EB2731ECA6FE0CB23B7C
 magnet:?xt=urn:btih:5CCDEF3CE699ECFAFC7F18FE8B92FA59973C818A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:5CCDEF3CE699ECFAFC7F18FE8B92FA59973C818A
 magnet:?xt=urn:btih:02C018DEC69600DA8EC69CDF743F5A537A4DF5A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:02C018DEC69600DA8EC69CDF743F5A537A4DF5A8
 ```bash
 magnet:?xt=urn:btih:45C652250E09643305E23E064FF6BFEDF6D9DA8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:45C652250E09643305E23E064FF6BFEDF6D9DA8B
 magnet:?xt=urn:btih:31AB344ABD7115521683A61CEB84108164B95A7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:31AB344ABD7115521683A61CEB84108164B95A7C
 ```bash
 magnet:?xt=urn:btih:C15758BBB2018886DCBB85B17138BBD564B73CDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:C15758BBB2018886DCBB85B17138BBD564B73CDA
 magnet:?xt=urn:btih:07BE3FEEFAEA7E2F4FFD4C217EE8F8E977E10FC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:07BE3FEEFAEA7E2F4FFD4C217EE8F8E977E10FC3
 ```bash
 magnet:?xt=urn:btih:699E027BCF16DF4A2133DB21596FFCC061F537AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:699E027BCF16DF4A2133DB21596FFCC061F537AC
 magnet:?xt=urn:btih:836C95BCA4D798EF960EE003275108793313DD48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:836C95BCA4D798EF960EE003275108793313DD48
 ```bash
 magnet:?xt=urn:btih:11CDC510D9FA89903FCF1879542D1A82556B9DCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:11CDC510D9FA89903FCF1879542D1A82556B9DCC
 magnet:?xt=urn:btih:AFFFC802238F29C2CDC64CF0C9777AA7EBAA76FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:AFFFC802238F29C2CDC64CF0C9777AA7EBAA76FA
 ```bash
 magnet:?xt=urn:btih:CC632BBF93B7A20037908F9690437402ACE14BB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:CC632BBF93B7A20037908F9690437402ACE14BB3
 magnet:?xt=urn:btih:FB0198EB53C666296BCC61F470CE779BEFB60A24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:FB0198EB53C666296BCC61F470CE779BEFB60A24
 ```bash
 magnet:?xt=urn:btih:945BA71409C967075FFA1F311F1311E8699270DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:945BA71409C967075FFA1F311F1311E8699270DA
 magnet:?xt=urn:btih:BB416C7FA09146D0FD627D51B4E4547C5D1B69B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:BB416C7FA09146D0FD627D51B4E4547C5D1B69B2
 ```bash
 magnet:?xt=urn:btih:3AF9CD82CA81A813C06AB7363D136BED1547629A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:3AF9CD82CA81A813C06AB7363D136BED1547629A
 magnet:?xt=urn:btih:8B9C3755343501C354F38BA2919E0E0A4758C6D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:8B9C3755343501C354F38BA2919E0E0A4758C6D3
 magnet:?xt=urn:btih:62ACDF9A4E24EBAC1C60C8B6AC1F3997AF45D45E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:62ACDF9A4E24EBAC1C60C8B6AC1F3997AF45D45E
 ```bash
 magnet:?xt=urn:btih:CBB083DEE7BE6DE5F5F6D635AF4DA2F52630C492
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:CBB083DEE7BE6DE5F5F6D635AF4DA2F52630C492
 magnet:?xt=urn:btih:464C3A294FE6FEFA66D02E34A523EC9BAF491AD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,31 +678,7 @@ magnet:?xt=urn:btih:464C3A294FE6FEFA66D02E34A523EC9BAF491AD3
 magnet:?xt=urn:btih:B55E0F0446D77AA970D350B273BFA4533D8B0171
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205947   (783141) от 11.02.2018
-
-Максим Серебренников | Что такое Биткоин и как не потерять все на криптовалюте (2018) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_783141.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данная книга является стартовым путеводителем по миру криптовалют. Она не является книгой в базовом понимании с исчерпывающим описанием технологий или рынка криптовалют, а скорее служит методическим пособием по самостоятельному изучению и погружению в мир криптовалют.
-
-Она не является руководством по инвестированию и тем более не призывает к этому, но даёт базовые (   Читать дальше...   )Жанр: КриптовалютыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05C126BF7CEE453E867AD48D72790C717599E89
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

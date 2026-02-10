@@ -1,3 +1,31 @@
+###  Публикация: 1481581   (1008176) от 04.07.2021
+
+Иеромонах Киприан (сост.) | Ищите Царствия Божия (2003) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008176.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге собраны проповеди, наставления, духовные стихи приснопоминаемого отца Валентина Мордасова († 19.07.1998), а также воспоминания о нём его духовных чад.
+
+Да упокоит Всеблагой Господь душу праведника в вечных Своих селениях!Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43514735ED2D39829E1207A068784F2ABD6437E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1481393   (1008287) от 03.07.2021
 
 Мустафа Акийол | Исламский Иисус. Как Царь Иудейский стал у мусульман пророком (2019) [FB2]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:71608976E9572B33C497DD3BED86B702073B4D5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:71608976E9572B33C497DD3BED86B702073B4D5D
 magnet:?xt=urn:btih:400F800E1EC98150061AFE7BFE8D44083F62B848
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +99,8 @@ magnet:?xt=urn:btih:400F800E1EC98150061AFE7BFE8D44083F62B848
 magnet:?xt=urn:btih:483F5C305FD8C56B7D16C5E82123BDA4E74AF24C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +124,8 @@ magnet:?xt=urn:btih:483F5C305FD8C56B7D16C5E82123BDA4E74AF24C
 ```bash
 magnet:?xt=urn:btih:6DF0B961BEF44FD2B8C78CA0BA19452BDCF0BB73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +153,8 @@ magnet:?xt=urn:btih:6DF0B961BEF44FD2B8C78CA0BA19452BDCF0BB73
 magnet:?xt=urn:btih:F1147EBEB7C38FA5B7E76E80BF3B4611342A6835
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +181,8 @@ magnet:?xt=urn:btih:F1147EBEB7C38FA5B7E76E80BF3B4611342A6835
 magnet:?xt=urn:btih:E8EF78B5A2CDC023D49F0EC915FD0292AEF77B1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +207,8 @@ magnet:?xt=urn:btih:E8EF78B5A2CDC023D49F0EC915FD0292AEF77B1B
 magnet:?xt=urn:btih:E448344A0D294D9A536FFC38A47CB14742030FD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +232,8 @@ magnet:?xt=urn:btih:E448344A0D294D9A536FFC38A47CB14742030FD1
 ```bash
 magnet:?xt=urn:btih:38BD6442FCE306B20623A79B39B2E3D4143E0F90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +260,8 @@ magnet:?xt=urn:btih:38BD6442FCE306B20623A79B39B2E3D4143E0F90
 ```bash
 magnet:?xt=urn:btih:0449CEA4614FF80F187D520519D10ABFA1DBEB38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +290,8 @@ magnet:?xt=urn:btih:0449CEA4614FF80F187D520519D10ABFA1DBEB38
 magnet:?xt=urn:btih:5ABA9E0FED1D63954AAEDA000BE200BDCE7EAE52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +316,8 @@ magnet:?xt=urn:btih:5ABA9E0FED1D63954AAEDA000BE200BDCE7EAE52
 ```bash
 magnet:?xt=urn:btih:F142B281C712C3564C71E1506C9DA6EE2AEB7C9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +344,8 @@ magnet:?xt=urn:btih:F142B281C712C3564C71E1506C9DA6EE2AEB7C9A
 ```bash
 magnet:?xt=urn:btih:75269077C13CC5F1B06F514B8AB402516B11E584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +374,8 @@ magnet:?xt=urn:btih:75269077C13CC5F1B06F514B8AB402516B11E584
 magnet:?xt=urn:btih:C2EA7B5145FC0DFDB52E398F868E8E138F048CA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +399,8 @@ magnet:?xt=urn:btih:C2EA7B5145FC0DFDB52E398F868E8E138F048CA7
 ```bash
 magnet:?xt=urn:btih:A5B0D5C9D805ADB90C485B06912A61182EB36C86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +426,8 @@ magnet:?xt=urn:btih:A5B0D5C9D805ADB90C485B06912A61182EB36C86
 magnet:?xt=urn:btih:C25E83FF9A14048F97C65CD5895AF0F4C74A3B64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +451,8 @@ magnet:?xt=urn:btih:C25E83FF9A14048F97C65CD5895AF0F4C74A3B64
 ```bash
 magnet:?xt=urn:btih:1405828F37DE0E45B1B3BD0DA67FB1EB02DE827C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +478,8 @@ magnet:?xt=urn:btih:1405828F37DE0E45B1B3BD0DA67FB1EB02DE827C
 ```bash
 magnet:?xt=urn:btih:13D56C047A0CD3441868810548544C26F9014097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +508,8 @@ magnet:?xt=urn:btih:13D56C047A0CD3441868810548544C26F9014097
 magnet:?xt=urn:btih:DFDD83EB9B8D9308CAD5359D99DCC82B1C223FD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +533,8 @@ magnet:?xt=urn:btih:DFDD83EB9B8D9308CAD5359D99DCC82B1C223FD5
 ```bash
 magnet:?xt=urn:btih:6E84408EAD8A7D1BFC00D1757E461E387D1BC598
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +561,8 @@ magnet:?xt=urn:btih:6E84408EAD8A7D1BFC00D1757E461E387D1BC598
 magnet:?xt=urn:btih:EA53F118BF3D70BFBD1C4B723498C6D141685FF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +586,8 @@ magnet:?xt=urn:btih:EA53F118BF3D70BFBD1C4B723498C6D141685FF6
 ```bash
 magnet:?xt=urn:btih:9F5FE91786F26E8E5709009668F5C505DFF617B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +614,8 @@ Harvard Business Review (HBR) | Коучинг (2020) [EPUB]
 magnet:?xt=urn:btih:2426792B67D3EFEBA0AAAA295CCE14EF0036BABF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +640,8 @@ magnet:?xt=urn:btih:2426792B67D3EFEBA0AAAA295CCE14EF0036BABF
 ```bash
 magnet:?xt=urn:btih:3639906C3D81C0AA60DF5785EC75FFD8A77D55D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +669,8 @@ magnet:?xt=urn:btih:3639906C3D81C0AA60DF5785EC75FFD8A77D55D6
 magnet:?xt=urn:btih:4C1CA29119FE5BAC459FFA1941AD93B412FC0380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,29 +696,7 @@ magnet:?xt=urn:btih:4C1CA29119FE5BAC459FFA1941AD93B412FC0380
 magnet:?xt=urn:btih:7EF36C67D9ACA334A4A48943062C42BB3376BF37
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479098   (1009797) от 22.06.2021
-
-Эрин Ниими Лонгхёрст | Японизм. Маленькая книга японской жизненной мудрости (2021) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совсем не обязательно родиться в Японии, чтобы найти свой икигай (цель, предназначение в жизни), познать прелесть мимолетного и незаконченного (ваби-саби), увидеть красоту в несовершенстве и воздать должное тем трудностям и испытаниям, которые оставляют на нас свой след (кинцуги). От синрин-ёку («лесных ванн»), каллиграфии и икебаны до чайной церемонии, устройства (   Читать дальше...   )Жанр: Культура государств и регионов, Психология, Мотивация, СаморазвитиеПеревод: Эвелина МеленевскаяФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DCC3FB09EE9FE46C08B24AF0A53AEAAEC65FA82
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

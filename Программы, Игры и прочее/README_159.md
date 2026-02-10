@@ -19,6 +19,8 @@ Car Launcher AG - Никогда еще управление мультимед�
 magnet:?xt=urn:btih:308462580EE82C573D3EAC025705A7E177FE9A26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:308462580EE82C573D3EAC025705A7E177FE9A26
 ```bash
 magnet:?xt=urn:btih:0F7D3D92CCB158C4B890C1F0E986AD7E0F74E498
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Clash of Robots - настоящие роботизированные глади
 magnet:?xt=urn:btih:083932371F481DEC4784FAC0C979391FB13E4884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Vengeance RPG – одиночная ролевая игра на андроид
 ```bash
 magnet:?xt=urn:btih:F45250CA518CB6B5301851D4E13018280F374BB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Levelhead - вы несете ответственность за подгото
 magnet:?xt=urn:btih:F5A253D0DB0A993D837D85C3420A6B3ED6D7E7A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Bike Computer v1.8.4.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:102E6A6D4192B1F5D8F482B0A1C4576CCFC13F3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:102E6A6D4192B1F5D8F482B0A1C4576CCFC13F3D
 magnet:?xt=urn:btih:8DE4D9B21BB4C59FEFDF4EEA756157FF32C9C5C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Don't Push The Wrong Button 2 - Самый реалистичный и слож�
 ```bash
 magnet:?xt=urn:btih:37E3174F56934C1FAA4A1E98F84DD3DD84A9C7ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:37E3174F56934C1FAA4A1E98F84DD3DD84A9C7ED
 magnet:?xt=urn:btih:28EF3EA1A8D8F341C023B1D71519A99C850C5243
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ CHUCHEL – комедийная игра в жанре приключения �
 magnet:?xt=urn:btih:7C43489CF79F294804BD1271775B1DA48EF8D263
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Grand War: European Conqueror - новая стратегия от извест�
 ```bash
 magnet:?xt=urn:btih:FC129C88AFDC2400DBC9CE0092654FA8DADE537C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ DAILY NOTE v4.2.2 Premium [Ru/Multi] - Ежедневные заметки, дн
 magnet:?xt=urn:btih:134A0D9A987F7D8AA2C6269B714EFB308D944DF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:134A0D9A987F7D8AA2C6269B714EFB308D944DF3
 magnet:?xt=urn:btih:5EF265324029D994CB7FAE49DA03949F8897CB08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Best Fiends Stars - Вас ожидает совершенно новое при
 ```bash
 magnet:?xt=urn:btih:F664DA1BD46BB0E67DBF8CCE065A11619379A5B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:F664DA1BD46BB0E67DBF8CCE065A11619379A5B7
 magnet:?xt=urn:btih:2AE4F013D82ED9A8ADB6CF00EF6A1BC327DB3C9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ GnaCAD – отличное приложение для работы с черт
 magnet:?xt=urn:btih:FF9D310B1D415F54F99BCDFCD34197BE0FB6E0D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Folio - Каждый, кто использовал официальное пр�
 ```bash
 magnet:?xt=urn:btih:576404459800F2CFCB846AB754D6D7F46CABC9F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Garmin: Adria TOPO v5 PRO [En]
 magnet:?xt=urn:btih:C318C5AD9449BA9B751E02DD66E9FACED94EA469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Garmin: TOPO Great Britain v2 PRO [En]
 magnet:?xt=urn:btih:B328C71C6394B20D18121C9A3E683A1B2E544D40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ FINAL FANTASY III - Поклонники игры Final Fantasy могут ра�
 ```bash
 magnet:?xt=urn:btih:D5C973DC0FC9AD77E6FB82ED2FA1AD8D5DFE9817
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:D5C973DC0FC9AD77E6FB82ED2FA1AD8D5DFE9817
 magnet:?xt=urn:btih:A4A73A8710E1CA5C757D563FB935F908D044A0EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ MobiDic Chords – это иллюстрированный словарь акк
 ```bash
 magnet:?xt=urn:btih:75E579C531EEBAF96B3506E4C13D238027F55A33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Fender Tune - это приложение для точного тюнера с 
 magnet:?xt=urn:btih:4416390A5846D5CC74C2B1263EB4D4E4A97CF49D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:4416390A5846D5CC74C2B1263EB4D4E4A97CF49D
 ```bash
 magnet:?xt=urn:btih:BFFA455576B5E6D70221685A8C0DD1855013642B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Solar System Scope - представляет собой виртуальный 
 magnet:?xt=urn:btih:6550B0541E4F4DCD0FB4A1488B4C80E410F95C81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Stickman Dragon Fight - Super Stick Warriors - экшн-файтинг с эле
 ```bash
 magnet:?xt=urn:btih:98A671D4BB88187688C4FBADE7ECA57773BD82C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

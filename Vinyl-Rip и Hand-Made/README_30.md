@@ -22,6 +22,8 @@ Kobra and the Lotus (KATL) — канадская хэви-метал групп
 magnet:?xt=urn:btih:F27B09F64047BFF22507B494009DECF1D777AD80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ A4 Si On Chantait(   Читать дальше...   )Жанр: Pop, Sound-alike�
 ```bash
 magnet:?xt=urn:btih:C668C239C5237EF2C9AC043A292F1035680A2DB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ A4 Persephone(   Читать дальше...   )Жанр: Ethereal, Post-PunkП
 magnet:?xt=urn:btih:F88E39BD6C7A5C708763044BE006C15D8662A670
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ A4 - Sceptre - Taken By Force(   Читать дальше...   )Жанр: Heavy
 ```bash
 magnet:?xt=urn:btih:0C34EB4B8465C25CC130A4CDA22EC5CC6AAC9B1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ A4 - Medusa - Piranahs(   Читать дальше...   )Жанр: Heavy Metal,
 magnet:?xt=urn:btih:5996F447F29D79F27C94B7B0E181CF5110616AF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ A4 - Obsession - Shadows Of Steel(   Читать дальше...   )Жанр: T
 ```bash
 magnet:?xt=urn:btih:35C1617AB2EE576FD0036BA5EF3A22255F71FF36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ A4 Girls Like You)(   Читать дальше...   )Жанр: Rock, AORПро�
 magnet:?xt=urn:btih:D9B9F7FC7F5E4D94440627A31CC3B7FD38F2CAC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Sinner — немецкая хэви-метал группа, образован
 ```bash
 magnet:?xt=urn:btih:E242B7904CABA9742E337938A69F64E56EDE9626
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ A4 - Avatar - Octave(   Читать дальше...   )Жанр: Heavy Metal, H
 magnet:?xt=urn:btih:03F06BC36E1AA4F30250E1BC51530B826585CFD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ A4 Calling You(   Читать дальше...   )Жанр: Soft Rock, Pop Rock�
 ```bash
 magnet:?xt=urn:btih:A7B8781127FD652CFA383F36639CBF0CA6FB1AEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Foo Fighters — американская рок-группа, основанн�
 magnet:?xt=urn:btih:FBD777DE3720436C7D4B0B11215EC9AF4E67A75B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ A4 I'll Be There(   Читать дальше...   )Жанр: Electro, Synth-pop
 ```bash
 magnet:?xt=urn:btih:F36E5BD2807137261A82BC4E177394887ED4A85D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ A4 Painless Saturday(   Читать дальше...   )Жанр: Rock, Power Po
 magnet:?xt=urn:btih:08CF3344BB4D85B9F6EAF97231318CE41197FF5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ A4 Into The Night(   Читать дальше...   )Жанр: Synth-popПрод
 ```bash
 magnet:?xt=urn:btih:899AA2E0691E2EE87FCD1B0B268DC648237D016C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ A4 Empty Eyes(   Читать дальше...   )Жанр: Heavy MetalПродо
 magnet:?xt=urn:btih:49B65DBAAD63F95508154A788EC552207CBC2A91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Mekong Delta — немецкая группа, играющая прогрес�
 ```bash
 magnet:?xt=urn:btih:44AE7492408E445D7280CF7B12FBDC01224062A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ A4 Future Is The Reason Why(   Читать дальше...   )Жанр: Heavy M
 magnet:?xt=urn:btih:86529A13DDBC643461F0CB523B436A114F32D560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ B2 Mr.Manic And Sister Cool (Coolest Cuts)
 ```bash
 magnet:?xt=urn:btih:0DBE8080503F300D1318982414D7D84E6B63567B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Pagan's Mind — прогрессив-пауэр-метал-группа из Ш
 magnet:?xt=urn:btih:F60BA97EEAC7248769C2AFCB66CE30B6588387DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ A4 In The Heat Of The Night(   Читать дальше...   )Жанр: Heavy M
 ```bash
 magnet:?xt=urn:btih:177683999F4E23A3BBA4A2F864FB76812DEAF171
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Moonsorrow — финская фолк/викинг/блэк-метал-груп
 magnet:?xt=urn:btih:4943BF7775ED7E8BBE971F7A3D7A92CA996D19FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ Mayfield Four (aka MF4) - рок-группа, образованная в Сп�
 ```bash
 magnet:?xt=urn:btih:5395A9C980C1032B5665DBB2F937C8A958646F0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +659,8 @@ After Forever — голландская группа, игравшая музы
 magnet:?xt=urn:btih:5F086759B5C23C58F13296B292A6A40677B029CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +687,8 @@ A4 Infected(   Читать дальше...   )Жанр: Heavy MetalПродол
 ```bash
 magnet:?xt=urn:btih:4F0338B7092D5F6CEF233FEB980B79E9E7AF6F9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,6 +717,8 @@ Aggressor - Procreate the Petrifactions (1993) Released, 2012, Roundsound [FLAC|
 magnet:?xt=urn:btih:07B6856692434CD8262EFA6E9E9F3B7089D8E247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ A4 Dance(   Читать дальше...   )Жанр: Hard Rock, Arena RockПр�
 ```bash
 magnet:?xt=urn:btih:77F674647C58623CB1816A4780308B3CD99FEC2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

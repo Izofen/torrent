@@ -22,6 +22,8 @@ Age of History 3 1.035 [Ru]
 magnet:?xt=urn:btih:D1065F4E011FDFD6BE7FA6FC6AD66CF5D268065E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Little Nightmares 124 [Ru]
 magnet:?xt=urn:btih:9EEE66ECE1919B7D3B8D69C7F85D83EB08866C1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ Kovoclak 1.12 [En]
 magnet:?xt=urn:btih:2F02FE521AB14188E7C16C5CC1A1848E503CFBC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Machinarium 3.1.8 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6AC53199E342FACB8CCC0CD7D7878F982045C0AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Monument Valley 3 v1.0.14999 [Ru]
 magnet:?xt=urn:btih:6711DABF7332F3C0E81015C2880DF40A7756EB7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ PicLab - Photo Editor v2.10.0 Mod by Balatan [En]
 ```bash
 magnet:?xt=urn:btih:A305E451587923FE5925564329698EC3AE8A1719
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ Blasphemous 1.0.0 [Ru]
 magnet:?xt=urn:btih:BA9ACDE0ED30A0DBA2BDDCA2F3EAFFE61C319450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ MiHome v9.10.700 Mod by Vevs [Ru]
 magnet:?xt=urn:btih:944C880B6EDE2402002A5C0E690022994BD2617B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:944C880B6EDE2402002A5C0E690022994BD2617B
 magnet:?xt=urn:btih:C538E8E868E9E372EA4F92E43FA0912032C60351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Hear Clear / Услышать на расстоянии v1.1.9.1 Mod by 0x7d [Ru
 ```bash
 magnet:?xt=urn:btih:616CD09CF7DB48238CDF72E7564A55939FFFBDF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ WPS Office - очень полезное, офисное приложение д
 magnet:?xt=urn:btih:9B68B58523B6F4554131A98133F2F1FF9E914D05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:9B68B58523B6F4554131A98133F2F1FF9E914D05
 ```bash
 magnet:?xt=urn:btih:55284C06E7B7964EDA9F3879A53F5A47EE8C3DE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Xcast.tv / Трансляция на телевизор v2.3.8.2 Mod by vadj [Ru
 magnet:?xt=urn:btih:6D971CCCCCC793CF3A2C825492E898DF4F580DCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ AI Chat Bot на базе ChatGPT, ChatGPT-4, GPT-4o и Gemini, лучший п�
 ```bash
 magnet:?xt=urn:btih:212AD244686F01ED9F2E5D30E6C9A64AE3029FB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ YTDLnis — это бесплатный загрузчик видео/аудио
 magnet:?xt=urn:btih:31837D0B64BAEC46D943DB2FD493713FABBB42F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ Sleep as Android: отличный сон v20241122 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7E33C3063FAC00E1A64C6CDC5FC1113F502D37E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ Electrical Calculations Pro / Электрические расчеты v10.2.1 
 magnet:?xt=urn:btih:8C5013BFB88D22A62871489DADCF9E5FC208CB12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ HiPER Calc Pro v10.5.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:739E400565908B3E2653B227E62199B50AFCBB1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ Root Booster v4.0.9 Mod by Balatan [Ru]
 magnet:?xt=urn:btih:3B88C552674F358E8DD3AF463EF49B4B8FF134FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Alight Motion v5.0.271.1002592 Premium Mod by MustHave [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4A6CB573E3063C0B708A4282C2655608E5238548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ Listonic / Список покупок v8.16.1 Mod by NURIK kz [Ru/Multi]
 magnet:?xt=urn:btih:D3AE9775A78C77798B02A76B6691A464F44AA79D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ Words – это лучшее приложение для изучения сл�
 magnet:?xt=urn:btih:85DFC6410BFA22AB872D1FD82F10C1680C3F30DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ Words – это лучшее приложение для изучения сл�
 ```bash
 magnet:?xt=urn:btih:4C892D93DB0AE09F612041A84DB34B5D8484FAC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:8CCAB6DA0CA0DD05BCBAA3CED67A7E5BAE8E21CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ tinyCam Monitor PRO - удобное приложение для работы с
 magnet:?xt=urn:btih:19C43A5511635963C278EB11C6C4DAEE196FEEC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.32.8 Gold
 ```bash
 magnet:?xt=urn:btih:A9A6C99FBF04D3AF92BE632C9F96F8611C4268FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

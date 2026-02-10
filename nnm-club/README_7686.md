@@ -22,6 +22,8 @@ Suotana - Ounas I (2023) [MP3|320 Kbps] <Melodic Black, Death Metal>
 magnet:?xt=urn:btih:3FC154B74916BEC45ED36ECB62DFF939A03FEB59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:3FC154B74916BEC45ED36ECB62DFF939A03FEB59
 ```bash
 magnet:?xt=urn:btih:B66B21DD7D43F239F8D52CEADD7C9BF7021BB405
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Найкращі пісні солов'їною (2022) [MP3|320 Kbps] <Pop,
 magnet:?xt=urn:btih:6BB3C4B1401119B399266D77422CD45534594ABD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Sola Rosa - Low and Behold, High and Beyond (2012) [WavPack|Lossless|WEB-DLRip|t
 ```bash
 magnet:?xt=urn:btih:23BC562E158B3A3429A2E9E4EFF2889EC8754E4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Admiral Justice - Admiral Justice (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 magnet:?xt=urn:btih:9756547B2A1619212C50ABFFEF3E4D2E03D9408F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:9756547B2A1619212C50ABFFEF3E4D2E03D9408F
 ```bash
 magnet:?xt=urn:btih:37D99B249921A6CC0909C3FA2208DFDBA1F827B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ The Animal State - 3 Albums (2020-2023) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 magnet:?xt=urn:btih:490DD77B679F468ED5CA0A997DAE5E022B9BB104
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ Elegant Weapons - Horns For A Halo (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy M
 magnet:?xt=urn:btih:A8DA5E66221AC074EB6E3AB23F3115A4D9161226
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:A8DA5E66221AC074EB6E3AB23F3115A4D9161226
 ```bash
 magnet:?xt=urn:btih:8F8E4BCA12D5A7D0F320BBB0C7ABE3836792E874
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +274,8 @@ King Howl - Homecoming (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:C98C1E14651A3E5479AE5BD99234D48C402D6B74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ magnet:?xt=urn:btih:C98C1E14651A3E5479AE5BD99234D48C402D6B74
 magnet:?xt=urn:btih:6FE3A9058FE4C120AF3E2E60F87FD8E75B972D9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:6FE3A9058FE4C120AF3E2E60F87FD8E75B972D9A
 ```bash
 magnet:?xt=urn:btih:BEA2AAD5D1103E7DDCF8A0B49F6548A42CBB53B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +359,8 @@ CD4: - 00:53:30
 magnet:?xt=urn:btih:B63EBD0D2986D6BCE1E2F9D6E68F73FDFC33B6C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +388,8 @@ Taskforce Toxicator - Skull Splitting Force (2023) Compilation [FLAC|Lossless|WE
 magnet:?xt=urn:btih:CB10C7D967E58AB863C72F6E8974E437EB124C1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ magnet:?xt=urn:btih:CB10C7D967E58AB863C72F6E8974E437EB124C1A
 magnet:?xt=urn:btih:502FC83E1AFA2846DB44B6D69AA98811EE8262B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ magnet:?xt=urn:btih:502FC83E1AFA2846DB44B6D69AA98811EE8262B6
 ```bash
 magnet:?xt=urn:btih:3285E939577F81F72B15390773B0D67ABC2959A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +469,8 @@ The Black and Blues Band - Bootleg Live! (2023) [FLAC|Lossless|WEB-DL|tracks] <B
 magnet:?xt=urn:btih:F00D130E96AE38A2C72A6AF4302D43497D20A794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +494,8 @@ magnet:?xt=urn:btih:F00D130E96AE38A2C72A6AF4302D43497D20A794
 ```bash
 magnet:?xt=urn:btih:8805AAE030966E668C0116B2F6C79CF7DF335944
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +521,8 @@ magnet:?xt=urn:btih:8805AAE030966E668C0116B2F6C79CF7DF335944
 ```bash
 magnet:?xt=urn:btih:E0847E85576220D69CA36D55A33FF721B9F2DD4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +551,8 @@ Talizman - Taken by Storm (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heav
 magnet:?xt=urn:btih:A4F73937FEB8CC1C06238ECE1E395BA2381EA014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +578,8 @@ magnet:?xt=urn:btih:A4F73937FEB8CC1C06238ECE1E395BA2381EA014
 ```bash
 magnet:?xt=urn:btih:8CA23ED9BFB8B05DE7FCBBE8C98DF9D29AE66E58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +608,8 @@ CD1:
 magnet:?xt=urn:btih:CF5A1A951C6259BB381C684A3E395C556CA28099
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +637,8 @@ Metal Church - Congregation of Annihilation (2023) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:4BBF58C48D22EEAE118A6E82E13F58CF60F4AAA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +662,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:910D7F1BF8D212DBDCBFB38D5B474B74381A4401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +689,8 @@ Artstudio Pro 5.1.14 [En]
 magnet:?xt=urn:btih:79009666BD4B6B88FDC07AB80AFB9D12F4991566
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +714,8 @@ magnet:?xt=urn:btih:79009666BD4B6B88FDC07AB80AFB9D12F4991566
 ```bash
 magnet:?xt=urn:btih:63DBA585B7780FEAA996312CC0B27749F2EAF4E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

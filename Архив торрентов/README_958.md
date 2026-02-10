@@ -27,6 +27,8 @@ VA - Crowd Rocker Cuts (2012)
 magnet:?xt=urn:btih:5881CB66B60165DF3DA6BFCC967EDE29AA41E0A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ magnet:?xt=urn:btih:5881CB66B60165DF3DA6BFCC967EDE29AA41E0A8
 ```bash
 magnet:?xt=urn:btih:4D449B8609AB976B125E35D995621CC20E56FCA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:4D449B8609AB976B125E35D995621CC20E56FCA9
 magnet:?xt=urn:btih:B8E3B3B67ACD46E500A4BDC2D75880CCDD9C3EBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ uTorrent 3.5.5 Build 46148 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:2E77B095D9F26D2E55D8B225CE3F9E95290D1E7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:7621E0F12CEDF054CBE1100C72C2C33E118ED120
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +167,8 @@ Mordor - Жажда! (2010)[APE|lossless]<Industrial Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Daum PotPlayer - качественный проигрыватель файло�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +226,8 @@ Edge of Sanity - Kur-Nu-Gi-A (2012) [FLAC|Lossless]<Death Metal>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +262,8 @@ HMR - Контрольный выстрел (2012) [MP3|320 кб/с]<Heavy Metal
 magnet:?xt=urn:btih:5C4661BA1A42C5FB950257D4BC2C3F642D57D602
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +313,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 ```bash
 magnet:?xt=urn:btih:58B41635F529C8D614C3B39869E5BCFE4AE26235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +342,8 @@ magnet:?xt=urn:btih:58B41635F529C8D614C3B39869E5BCFE4AE26235
 magnet:?xt=urn:btih:82C9D62F613A2256CA4081AA12EB8FFFB40ABE28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +369,8 @@ magnet:?xt=urn:btih:82C9D62F613A2256CA4081AA12EB8FFFB40ABE28
 ```bash
 magnet:?xt=urn:btih:0AC32CEEC74DD52F00CD2D28FF253CDB4DB852D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +402,8 @@ Rick Wade - Never Ending Reflections (2011)
 ```bash
 magnet:?xt=urn:btih:8E144C9067ABB37702B297AA763D6B4222EDF52D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +438,8 @@ VA - Русские Новинки Vol.47 from AGR (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:780141333BAE204B8E53658A4EE20C03AD8F2D17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +464,8 @@ magnet:?xt=urn:btih:780141333BAE204B8E53658A4EE20C03AD8F2D17
 magnet:?xt=urn:btih:9E3C19B9B3A3ED7B5D861B91EA7031883773D88B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +489,8 @@ magnet:?xt=urn:btih:9E3C19B9B3A3ED7B5D861B91EA7031883773D88B
 ```bash
 magnet:?xt=urn:btih:27C38386D42C4E4B0CECE5BD3492D919560AF2FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +519,8 @@ magnet:?xt=urn:btih:27C38386D42C4E4B0CECE5BD3492D919560AF2FB
 ```bash
 magnet:?xt=urn:btih:202565CF45F7CDBFCEFD6804A9D41AEF516FAD5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +555,8 @@ SouthDown - Chronicles Of Hunter Greene (2010) [MP3|320 кб/с]<Modern Rock | A
 magnet:?xt=urn:btih:29CD350EA7122A3788B9FBA54BE40420D748EBD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +580,8 @@ magnet:?xt=urn:btih:29CD350EA7122A3788B9FBA54BE40420D748EBD3
 ```bash
 magnet:?xt=urn:btih:03DE9B6C3F14581EFF58518277777C223C1EC472
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +616,8 @@ MsDos & Friends - Swing LP (2012) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:2A4DCEE21F92666A78BD5E8DBBF94C4273D7D310
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +645,8 @@ magnet:?xt=urn:btih:2A4DCEE21F92666A78BD5E8DBBF94C4273D7D310
 ```bash
 magnet:?xt=urn:btih:55BA551C6610523EE1332C55FE7CDD37836D041D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +676,8 @@ Terminal State - Confessions EP (2012) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:93E9EB411AE83DFF2A7BE7C7968B97C565012F0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +701,8 @@ magnet:?xt=urn:btih:93E9EB411AE83DFF2A7BE7C7968B97C565012F0B
 ```bash
 magnet:?xt=urn:btih:EEF6BD0B1B34D9799DBAE0E11B0D8DA5E1A71298
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -680,6 +728,8 @@ FAR Manager - мощнейший известный всем консольны�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -703,6 +753,8 @@ FAR Manager - мощнейший известный всем консольны�
 ```bash
 magnet:?xt=urn:btih:121C5C54B92BDAC3C4F190A28810E0A6C0DE0AE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

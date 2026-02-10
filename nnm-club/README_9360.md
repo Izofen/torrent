@@ -22,6 +22,8 @@ Santiano - MTV Unplugged (2019) [MP3|320 Kbps] <Folk Rock, Folk>
 magnet:?xt=urn:btih:CFB527D439BBA25D0B92A112FB83CBC6F9E5F94A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:01AA300DCA76BF63CCE7B356C23F241EA22C4B99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:01AA300DCA76BF63CCE7B356C23F241EA22C4B99
 magnet:?xt=urn:btih:57C017D7D4056A505897B98FE8AD0FB299FB7F6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:57C017D7D4056A505897B98FE8AD0FB299FB7F6E
 ```bash
 magnet:?xt=urn:btih:CE98999C568A6FD4BD10F3B190F0410877343628
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:CE98999C568A6FD4BD10F3B190F0410877343628
 magnet:?xt=urn:btih:9EACDD8CF9D1B1F58A8A589DAC55AA97DBF2F547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ National Geographic Traveler - это журнал о путешествиях �
 magnet:?xt=urn:btih:F77F656DF015BE21271C68EB46FC3BD611DD47AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:F77F656DF015BE21271C68EB46FC3BD611DD47AE
 ```bash
 magnet:?xt=urn:btih:D4172119CF05BE3E1075E906FC1C0C70902F7E7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Cisdem PDF Converter OCR- быстро и аккуратно конвертир�
 magnet:?xt=urn:btih:F566DC0263C0DDA81A90E965F840FFC2E61C5ACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:987B80FE7402E42CBEEA66AEC666B2C4816C47D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ AnyMP4 MXF Converter 7.2.22 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:32E055D743876EDD185C89730C831AEADA468071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:32E055D743876EDD185C89730C831AEADA468071
 ```bash
 magnet:?xt=urn:btih:447CA41FD7689EA6EE1AF4D97EE150C94488E663
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:447CA41FD7689EA6EE1AF4D97EE150C94488E663
 magnet:?xt=urn:btih:9CB1A0F8BD66D7EC1712E91BFEBB8622A5E64E98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Zoc terminal - является довольно известным telnet/SSH/S
 ```bash
 magnet:?xt=urn:btih:6F3EFEF43EFC27F381A17065A431847ADCE62B9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Microsoft Visual Studio — линейка продуктов компании M
 magnet:?xt=urn:btih:B12DAE440726B0672AC5BC23D3E27F4D0E971F0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:B12DAE440726B0672AC5BC23D3E27F4D0E971F0A
 ```bash
 magnet:?xt=urn:btih:BEC89D4249C4BE4970A487A7C0C988B8182C5A97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Polarr - единственный редактор фотографий, кот�
 ```bash
 magnet:?xt=urn:btih:C86753BF6888D002730B7675CC053D44C6F0033C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Bryan Adams - Room Service (2004) [FLAC|Lossless|image + .cue] <Pop Rock>
 magnet:?xt=urn:btih:22C7F9517E6ABDBE64C0EB61F58EB90F9E2F4C8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Star Wars / Звёздные войны (Dark Horse Comics) (464 выпуска)
 ```bash
 magnet:?xt=urn:btih:CDE82166D062BC1569E0309981F7921FFCF83549
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ VA - Ностальгия по семидесятым (CD 1-9) (2009) [MP3|256 k
 magnet:?xt=urn:btih:87C85051AB5BBBFFC58B0B8D86F354CCB51B5520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:87C85051AB5BBBFFC58B0B8D86F354CCB51B5520
 ```bash
 magnet:?xt=urn:btih:D7176AE983CDBD61C123EA97A8BFD2E165547F6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:D7176AE983CDBD61C123EA97A8BFD2E165547F6E
 magnet:?xt=urn:btih:43DB71F8775EB7029BB84A223F0EAE054A43C0B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:43DB71F8775EB7029BB84A223F0EAE054A43C0B1
 ```bash
 magnet:?xt=urn:btih:98670E9B4DAF2CDE19A907B969102CB4D2E12400
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:98670E9B4DAF2CDE19A907B969102CB4D2E12400
 magnet:?xt=urn:btih:9FC50E4DA18BF72C52497DD14162352E12D9DC3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:9FC50E4DA18BF72C52497DD14162352E12D9DC3D
 magnet:?xt=urn:btih:F2B8C7B9BC7D2F0EBFF62A391BF52C53E3431ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ Dizzy - Prince of the Yolkfolk - Возвращение яйце-приключ�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +696,8 @@ Dizzy - Prince of the Yolkfolk - Возвращение яйце-приключ�
 ```bash
 magnet:?xt=urn:btih:A68E61D7E16B2576B34B0B0F520A98FB55CE6B1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

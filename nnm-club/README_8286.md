@@ -28,6 +28,8 @@ The Frank Wess Orchestra - Entre Nous (1990) (1991) [FLAC|Lossless]<Big Band>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -56,6 +58,8 @@ The Frank Wess Orchestra - Entre Nous (1990) (1991) [FLAC|Lossless]<Big Band>
 magnet:?xt=urn:btih:FCB1B0018497ADBE3172CEF82298C63996C4B9D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -79,6 +83,8 @@ magnet:?xt=urn:btih:FCB1B0018497ADBE3172CEF82298C63996C4B9D7
 ```bash
 magnet:?xt=urn:btih:8C6DC3C99D32717D24DE8067B14D07A2E6DEDE96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -113,6 +119,8 @@ Avenue Blue - Naked City (1996) [FLAC|Lossless]<Smooth Jazz, Contemporary Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -136,6 +144,8 @@ ISO Workshop – небольшая программа для работы с о
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ Elegy & Suduaya - Light Source (EP) (2012) [MP3|320 кб/с]<Psychedelic / Progr
 ```bash
 magnet:?xt=urn:btih:2F233973E1FDAF93B9DDF5198EE9CD935D8C8C96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +209,8 @@ Erroll Garner - The Original Misty (1954) (1988) [FLAC|Lossless]<Bop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +235,8 @@ Erroll Garner - The Original Misty (1954) (1988) [FLAC|Lossless]<Bop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +260,8 @@ Erroll Garner - The Original Misty (1954) (1988) [FLAC|Lossless]<Bop>
 ```bash
 magnet:?xt=urn:btih:2335323477152A0FBCE564C05E6BCADD521601F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +288,8 @@ SMPlayer - свежий мультимедиа проигрыватель, по�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +320,8 @@ Sonny Clark - Cool Struttin'/Sonny Clark (1958) [FLAC|Lossless]<Jazz/Hard-bop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +346,8 @@ Sonny Clark - Cool Struttin'/Sonny Clark (1958) [FLAC|Lossless]<Jazz/Hard-bop>
 ```bash
 magnet:?xt=urn:btih:B3E922385F83EB2E3872B9BE7A381F12CBDD9C79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +382,8 @@ Nat King Cole, George Shearing - Nat King Cole Sings / George Shearing Plays (19
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +408,8 @@ Hekasoft Backup & Restore – это небольшая утилита для с
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +436,8 @@ Hekasoft Backup & Restore – это небольшая утилита для с
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ Hekasoft Backup & Restore – это небольшая утилита для с
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +490,8 @@ Hekasoft Backup & Restore – это небольшая утилита для с
 magnet:?xt=urn:btih:B3FC6C0BDDC80B274DF0513A272F3676D0EB4E7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +516,8 @@ magnet:?xt=urn:btih:B3FC6C0BDDC80B274DF0513A272F3676D0EB4E7C
 magnet:?xt=urn:btih:2BB31037BBCBF88561C66D2E78D3ADC2692A355E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ Oiynsoft Alarm Clock - простой в использовании будиль
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +577,8 @@ FireLake - The Temptation Journey (2005) [MP3|320 кб/с]<Progressive Melodic D
 magnet:?xt=urn:btih:AE50D1462A1C1C03C290EBD378ED240153C74F8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +612,8 @@ VA - Maxi. Танцевальный расколбас Europa Plus (2012) [MP3|3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +637,8 @@ VA - Maxi. Танцевальный расколбас Europa Plus (2012) [MP3|3
 ```bash
 magnet:?xt=urn:btih:9EF5F872B5D4F5205CAE20FFD6E345185C8F1D1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +664,8 @@ magnet:?xt=urn:btih:9EF5F872B5D4F5205CAE20FFD6E345185C8F1D1C
 magnet:?xt=urn:btih:AAB9E6DE4D0EF625FC5EFE6304E4A1A6151486A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +689,8 @@ RapidComposer – это универсальная программа для н
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ RapidComposer – это универсальная программа для н
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ RapidComposer – это универсальная программа для н
 ```bash
 magnet:?xt=urn:btih:130A835ABC52969617EA59E410403786ACD516E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

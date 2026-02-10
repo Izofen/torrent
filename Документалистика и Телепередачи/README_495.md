@@ -1,3 +1,29 @@
+###  Публикация: 1222738   (683022) от 30.04.2018
+
+Все дороги ведут в Африн (2017) WEB-DLRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_683022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушка переходит границу с Сирией, чтобы увидеть отца и его новую семью. В городе ещё держится мир. Война где-то рядом, а здесь и сейчас главное — это тот самый вопрос. И дочь, наконец, задаёт его отцу.Производство: РоссияЖанр: Документальный, короткометражный, драмаРежиссер: Арина АджуСубтитры: русскиеПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4B9271B4ED95F0185E65A80F420A9F6D82DAAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135158   (683045) от 18.05.2017
 
 Вечерний Ургант (2017.05.17) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0D93ABC239F2CE9ACCECB264A69ED903921A47E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:0D93ABC239F2CE9ACCECB264A69ED903921A47E2
 magnet:?xt=urn:btih:0BF0C68A667F5B51E41BF34338B98130F34D2800
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:0BF0C68A667F5B51E41BF34338B98130F34D2800
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +129,8 @@ magnet:?xt=urn:btih:0BF0C68A667F5B51E41BF34338B98130F34D2800
 magnet:?xt=urn:btih:B7F6FB92AC6ED41F98D3050FCB29C29A67BFDC25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:B7F6FB92AC6ED41F98D3050FCB29C29A67BFDC25
 magnet:?xt=urn:btih:920A0A009C6DB87B554EA11E4D073ECC2302118B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:920A0A009C6DB87B554EA11E4D073ECC2302118B
 ```bash
 magnet:?xt=urn:btih:CE86FF89F6B5029A0D9501F3DC586F43A9CA7900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +212,8 @@ magnet:?xt=urn:btih:CE86FF89F6B5029A0D9501F3DC586F43A9CA7900
 magnet:?xt=urn:btih:FB2C0EC36D88B1312D3D8987171CC3CC271F5988
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +237,8 @@ NG: Властелины бездны / Diving With Aliens (2004) DVDRip
 ```bash
 magnet:?xt=urn:btih:C6FA2F4C43100F2491A4EC10CB0F5786794168A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +264,8 @@ magnet:?xt=urn:btih:C6FA2F4C43100F2491A4EC10CB0F5786794168A0
 magnet:?xt=urn:btih:88DA108DFACA8500F882F533B4BD32CFFA84DB4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:88DA108DFACA8500F882F533B4BD32CFFA84DB4D
 ```bash
 magnet:?xt=urn:btih:C007D89E933DCB5D706354ACB47CA312F4157203
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +316,8 @@ magnet:?xt=urn:btih:C007D89E933DCB5D706354ACB47CA312F4157203
 magnet:?xt=urn:btih:905FDCA9472745AF718C78AD382CF0C790CFA58B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +342,8 @@ magnet:?xt=urn:btih:905FDCA9472745AF718C78AD382CF0C790CFA58B
 magnet:?xt=urn:btih:BFCDEDB42AC453C16789864DBA0858A3773BFC8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:BFCDEDB42AC453C16789864DBA0858A3773BFC8F
 ```bash
 magnet:?xt=urn:btih:67E27653994213359378EA8BFB93F5D4B08F09EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +397,8 @@ magnet:?xt=urn:btih:67E27653994213359378EA8BFB93F5D4B08F09EC
 magnet:?xt=urn:btih:AE4FBB4557DD5131EBD4FA8D8176A5F9E356C613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +422,8 @@ magnet:?xt=urn:btih:AE4FBB4557DD5131EBD4FA8D8176A5F9E356C613
 ```bash
 magnet:?xt=urn:btih:9932E5E8E1F311E0265F1DEF88556733FB37B7F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +450,8 @@ magnet:?xt=urn:btih:9932E5E8E1F311E0265F1DEF88556733FB37B7F9
 magnet:?xt=urn:btih:FA19F6500CCBA2975B87FBEEB3F58D45E04064D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +475,8 @@ magnet:?xt=urn:btih:FA19F6500CCBA2975B87FBEEB3F58D45E04064D6
 ```bash
 magnet:?xt=urn:btih:0F122048E9C1B4DFD3E77656F91A36142F5AD14A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +502,8 @@ magnet:?xt=urn:btih:0F122048E9C1B4DFD3E77656F91A36142F5AD14A
 magnet:?xt=urn:btih:669DEB12034159B14D635E934BEC541402042BE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:669DEB12034159B14D635E934BEC541402042BE6
 ```bash
 magnet:?xt=urn:btih:5F6DA68D6BB0B9ABF7B461FBD21FD727FCE4C18F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:5F6DA68D6BB0B9ABF7B461FBD21FD727FCE4C18F
 magnet:?xt=urn:btih:DFE2BC520A861BE42D45D04B1668004CB6983A22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:DFE2BC520A861BE42D45D04B1668004CB6983A22
 ```bash
 magnet:?xt=urn:btih:FEA204889E61DC9D2AEA23E314B4BDD44A9759DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:FEA204889E61DC9D2AEA23E314B4BDD44A9759DD
 magnet:?xt=urn:btih:7156A99F7BED4A199237195551910781F632F1A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:7156A99F7BED4A199237195551910781F632F1A1
 ```bash
 magnet:?xt=urn:btih:730859E12BDC5E00185BB1C1D9A03355EDC63227
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:730859E12BDC5E00185BB1C1D9A03355EDC63227
 magnet:?xt=urn:btih:B31555E7CBAD83A41546E368CBC92D47DAB2530B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:B31555E7CBAD83A41546E368CBC92D47DAB2530B
 magnet:?xt=urn:btih:5FD3184B890E39A332897D67776E84D7005EE89C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029217   (684533) от 25.06.2016
-
-Постскриптум с Алексеем Пушковым (25.06.2016) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_684533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельная аналитическая программа, посвящённая важнейшим событиям, происходящим в России и за её пределами. Гостями автора и ведущего программы Алексея Пушкова становятся видные российские и зарубежные политики, общественные деятели, представители науки и культуры. Программу отличают взвешенность оценок и выводов, компетентность экспертов, точность фактов и анализа. (   Читать дальше...   )В этом выпуске: 22 июня - как усвоен главный урок начала войны? Brexit - что изменится после референдума в Великобритании? Специальный репортаж из Лондона. Свобода слова, или свобода лжи - информационная война против России. А также... Наш ответ на санкции - сумели ли наши сельхозпроизводители использовать свой шанс? Германия - дружить или враждовать с Россией? Какой подход возьмёт (   Читать дальше...   )Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C40415BCB1CE56F4BA334AA16B48EBCE68249BBA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ BBC: Мир природы: Королева снежных обезьян / Nat
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ BBC: Постигая звёздное небо / BBC: Stargazing Live (2013) SA
 magnet:?xt=urn:btih:BD44828F6A0D16FD0FC9B01403DA61D439A2072A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:BD44828F6A0D16FD0FC9B01403DA61D439A2072A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ BBC: Сокровища Древнего Египта / Treasures of Ancient Egy
 magnet:?xt=urn:btih:08B194E077DC53BBA1AEBD98DDFA1919FD7C7FEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:08B194E077DC53BBA1AEBD98DDFA1919FD7C7FEB
 ```bash
 magnet:?xt=urn:btih:F84DC97BFD51C7699BFDD6A141B7750A55DA7069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ BBC: Невидимое простым глазом / Da Vinci Learning: BBC: Be
 magnet:?xt=urn:btih:288D567254F9B2E2514ECDC17C491353E3D80FB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:288D567254F9B2E2514ECDC17C491353E3D80FB8
 ```bash
 magnet:?xt=urn:btih:E97F023D76EF19E3636626E24B7D31DD6A966482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ BBC. Чудеса животного мира / The Wonder of Animals (2014) SAT
 magnet:?xt=urn:btih:6ABFD6EBAB8BD117C5B5948A93B64153F08694E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ BBC. Horizon: Тайны солнечной системы / Secrets of the Sola
 ```bash
 magnet:?xt=urn:btih:1A783EEC44717F1B1CE99EBD39733CBE0C203290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ BBC: Живой мир. Шри-Ланка: Остров слонов / Sri Lanka
 magnet:?xt=urn:btih:C306622F636DCCDDB1FD852A2BE8CDDE4D43DFD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ BBC. Horizon: Мой домашний динозавр / My Pet Dinosaur (2007) 
 ```bash
 magnet:?xt=urn:btih:F768E9EBF9598FD170BCFD3919D341A92F21D42D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ BBC: Древние затерянные города. Тёмные правит
 magnet:?xt=urn:btih:67CD29974AE27816ED38790E42C17E087AEA5CDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ BBC: Инки: Владыки облаков / The Inca: Masters of the Clouds (
 ```bash
 magnet:?xt=urn:btih:7F7BB0705CF687C31C071BE55D48FBDC98A434EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ BBC: Пираты Карибского моря. Черная борода / Bla
 magnet:?xt=urn:btih:D3DE15060EA04FD052DB85444DFE1ADFF9032F4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ BBC. Город под водой. Павлопетри / City Beneath the Waves
 ```bash
 magnet:?xt=urn:btih:272B0C54F2D113B015E10142121E605160734AD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ BBC. Жизнь млекопитающих / The Life of Mammals (2002) HDTVRip 
 magnet:?xt=urn:btih:10ADEEF934FAC86DBDC55A5634754B515DB79AF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ BBC: Лететь ли нам на Марс? Мысли о будущем / The 
 ```bash
 magnet:?xt=urn:btih:6925553CE8668912BE5B419065219DAA7F959A02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ BBC. Большое австралийское приключение / Coast Au
 magnet:?xt=urn:btih:ED0FC74E3F7A33E7AE37E8AB53B82231EAB7A08A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 ```bash
 magnet:?xt=urn:btih:B20CFE882937F3AFEDD2806E5948AC8E4734F533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 magnet:?xt=urn:btih:D69916E8B07E20E1D7311E6748C37894F86E3FEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 ```bash
 magnet:?xt=urn:btih:3FD338D810BADC4C29D38D0DCA1A13000FAB938E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ BBC: Зараженный. Жизнь с паразитами / Unfested! Living
 magnet:?xt=urn:btih:93ECFE6C5BAF77EC45C666D53143C4EB96128EDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ BBC.Империя царей: Россия при Романовых с Люс�
 ```bash
 magnet:?xt=urn:btih:9DE8FDA6CA15BDCE098FFFA5B6AF852E1395029F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ BBC: Horizon. Океаны Солнечной системы / Oceans of the Sol
 magnet:?xt=urn:btih:9BCD4D09601025ED2CD559FDD492DE5801E5881B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:9BCD4D09601025ED2CD559FDD492DE5801E5881B
 magnet:?xt=urn:btih:A0470B6CAF82060D04A5B3F921F92E725D185758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ BBC: Империя / BBC: Empire (2012) HDTVRip (Серии 1-5 из 5)
 ```bash
 magnet:?xt=urn:btih:B240CF0DCEA0C270354051BC1097A82B048A81C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

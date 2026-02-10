@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3F795C37BAA6420918598D46E5EE9B06831CF692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:3F795C37BAA6420918598D46E5EE9B06831CF692
 ```bash
 magnet:?xt=urn:btih:6CCE4036E2C0F636E922AC4EAAF03CCB36AC3D5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:6CCE4036E2C0F636E922AC4EAAF03CCB36AC3D5B
 magnet:?xt=urn:btih:00B99E7070B67CE8398CB837D71C52700BF90410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Keiken Zumi na Kimi to, Keiken Zero na Ore ga, Otsukiai Suru Hanashi | Исто�
 ```bash
 magnet:?xt=urn:btih:D33A56D55ECA13532549D67322EB3CD3E848A9EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:D33A56D55ECA13532549D67322EB3CD3E848A9EA
 magnet:?xt=urn:btih:7DFFAA36C53C83D0DCC5330EA4EDA2D04EF0C50F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:7DFFAA36C53C83D0DCC5330EA4EDA2D04EF0C50F
 magnet:?xt=urn:btih:0FD1FE6E7FBE88FA5B390545B5E2430092E189C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:0FD1FE6E7FBE88FA5B390545B5E2430092E189C0
 ```bash
 magnet:?xt=urn:btih:F4AF4F00ACCD1903EF1F5323C5ED3003E76767EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:F4AF4F00ACCD1903EF1F5323C5ED3003E76767EE
 magnet:?xt=urn:btih:754EEB570003E9DF8B0890D618D2EA273C050549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:754EEB570003E9DF8B0890D618D2EA273C050549
 magnet:?xt=urn:btih:998DF8589D22CBFA9548D5C250B6E3C79C3B63C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:998DF8589D22CBFA9548D5C250B6E3C79C3B63C7
 ```bash
 magnet:?xt=urn:btih:2E556940C1C561B97EF9825BA261B4B9F32A1BD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:2E556940C1C561B97EF9825BA261B4B9F32A1BD1
 magnet:?xt=urn:btih:D2DFB3CFD62984B0625B61F3D9920F6605C95D34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Kyokou Suiri Season 2 | In/Spectre Season 2 | Ложные выводы [ТВ-2]
 magnet:?xt=urn:btih:37BA6AF2800065E2707A034DB50D5504BA03A3E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Isekai Yakkyoku | Parallel World Pharmacy | Аптека в другом мир�
 ```bash
 magnet:?xt=urn:btih:35DEF869717EDF396009A0F85081731B85A418FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:35DEF869717EDF396009A0F85081731B85A418FE
 magnet:?xt=urn:btih:DBF5C65D3B3A4A99EDF35347F486F9D40C38AEAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:DBF5C65D3B3A4A99EDF35347F486F9D40C38AEAB
 ```bash
 magnet:?xt=urn:btih:DDBBD5792F0B6E8A8FE62CE05E9696D08EBAF038
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Komada Jouryuusho e Youkoso | Добро пожаловать на вискар�
 magnet:?xt=urn:btih:0AB7BCC1261C81F530425BFDB2BD109CA799B647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Isekai Nonbiri Nouka | Farming Life in Another World | Фермерская жи
 ```bash
 magnet:?xt=urn:btih:2370835DADE6130E1101ACBE7204BE2C37244F33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Jujutsu Kaisen (2023) | Jujutsu Kaisen Season 2 | Магическая битв�
 magnet:?xt=urn:btih:48E33A0634CD80AD078E586BA8BEB2A8E96170A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:48E33A0634CD80AD078E586BA8BEB2A8E96170A8
 ```bash
 magnet:?xt=urn:btih:A7F89B6A65818198D289A572E83EDBC863C8D4CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:A7F89B6A65818198D289A572E83EDBC863C8D4CA
 ```bash
 magnet:?xt=urn:btih:FE30D29812C21D8A7D1590FA90A8D06815DE1CDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ NHK ni Youkoso! | Добро пожаловать в NHK [2006, TV, 24 эп.] DV
 magnet:?xt=urn:btih:DF802106A1D5536AC812EC8554E34589E519480A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Hachi-nan tte, Sore wa Nai deshou! | The 8th Son? Are You Kidding Me? | Вось
 ```bash
 magnet:?xt=urn:btih:CF19586D17B623C6DC895A5A5BB6DD947AF2EFA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:CF19586D17B623C6DC895A5A5BB6DD947AF2EFA5
 magnet:?xt=urn:btih:B134C2C76962A330A13DC01FB4CA384ADF0AF7FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ Kaiko Sareta Ankoku Heishi (30-dai) no Slow na Second Life | Неспешная 
 ```bash
 magnet:?xt=urn:btih:EC93A672992453C6C991FB7351468FB700A05B44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Majo to Yajuu | The Witch and the Beast | Ведьма и зверь [2024, TV, 
 magnet:?xt=urn:btih:6B0C7D94C5AF4D41127280695EB50A43CD0EF057
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Bleach: Sennen Kessen Hen Ketsubetsu Tan | Bleach: Thousand-Year Blood War - The
 ```bash
 magnet:?xt=urn:btih:7A6E3ABA02F8A5DF7CD2FBF88BC132701810C101
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

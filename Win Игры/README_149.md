@@ -19,6 +19,8 @@ Mount & Blade: Warband – самостоятельное дополнение, 
 magnet:?xt=urn:btih:B8191DC1D0ACDCA144FFF8A3C77641F552BEB9BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Borderlands: Trilogy (2013-2019) [Ru/Multi] (1.5.0/1.8.5/1.0.9/dlc) Repack dixen
 ```bash
 magnet:?xt=urn:btih:E7B4A176B54B2ED6BDD7B480BF7BDF4F79C92444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Leo: The Firefighter Cat (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:76284B94D7101730B5082E16D4670EBC32FFF68C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Go Mecha Ball - захватывающий двухстрелочный шуте
 ```bash
 magnet:?xt=urn:btih:89102C04EE22497E469009062B40152F4C537508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Repack Wagner
 magnet:?xt=urn:btih:D6BC2C0FA215D4C9D9D9B3EB67088A7D44374E49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Yarimono, ролевая игра, что познакомит геймеров 
 ```bash
 magnet:?xt=urn:btih:CC077D9FA93DDD1CB30304FD5CF8F126F4CE05F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Everlasting Flowers - Where there is a will, there is a way - это истор�
 magnet:?xt=urn:btih:681A8B8D9CE57A7DF39A2B53E2EBD963723782AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ LUNARiA -Virtualized Moonchild- адвенчура, основанная на п
 ```bash
 magnet:?xt=urn:btih:3508732EE59B741B9C9757CEA36B948CB570C946
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ MARVEL vs. CAPCOM Fighting Collection: Arcade Classics собирает колл
 magnet:?xt=urn:btih:316B4D32F09E492CCF271E11A2824829F5B3DF3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Forts (2017) [Ru/Multi] (2.34/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:52E203B66D33A7FEDAF403DA7D76F4F35FE3B0AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Kingdom Rush Vengeance – это стратегия в реальном вре�
 magnet:?xt=urn:btih:141527882C344B55C16F2A8C7E70743ACA3A5D19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ MULLET MADJACK (2024) [Ru/Multi] (1.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8411E7CE917A5365C3804ED227598C9098375237
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Stardiver - это научно-фантастическая игра в жан�
 magnet:?xt=urn:btih:57F03B46E2DB403B546B423AB2EB9731179CA6FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Crysis 2 (2011) [Ru/En] (1.9) Repack dixen18 [Limited Edition]
 ```bash
 magnet:?xt=urn:btih:389CA7301EB48E7355C8D745E3239288D57D0AB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Selfloss (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:4CF4261A0948197FC8CA0C5C2374C2C0C12BDD8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Caravan Sandwitch переносит на вымышленную пустынн�
 ```bash
 magnet:?xt=urn:btih:EAA9C3954BDE6F9AD3331F604591C237E07A1158
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Caravan Sandwitch переносит на вымышленную пустынн�
 magnet:?xt=urn:btih:357BE2DE9CFCBA2EC68EF5E8A8A43E6860C12E3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Sunrise GP - это гоночная адвенчура, которая пред
 ```bash
 magnet:?xt=urn:btih:24E809FB5A5522700656D393F1C10F038D5E462C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Kanji Legends - казуальная обучающая игра, которая
 magnet:?xt=urn:btih:B98D172082D69C9D48941838D99109F9F7BC4332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ USC: Counterforce (2023) [Multi] (1.01.0a1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:5E3FC96C77E4A82C9E0955AE42F0E18673A80958
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Dreamlike Love with Seira – окунитесь с головой в легки
 magnet:?xt=urn:btih:55F82935217F0D7A6ECEE12F7603DDE41C4F8410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ We Heist Too (2024) [En] (5.3.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:6FC7697031215A3E0AD18B27769716897B79981F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Grocery Store Simulator ставит вас на место управляюще
 magnet:?xt=urn:btih:8007DE89EF375F18D3A8F136DDD08FF3A36F9CAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Nickelodeon All-Star Brawl 2 - продолжение оригинальной �
 ```bash
 magnet:?xt=urn:btih:F0C14939CCB3116C588E2692B7EFD9DEC5716462
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Plank Builders (2024) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:373AB47D1110CA8A72DE092A0CEB932DF94E7BEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Spiritfall - экшн-платформер с элементами рогали�
 ```bash
 magnet:?xt=urn:btih:DA0CC1CE9CD5D8BB6714FDE269FB8DC5A2F76CD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

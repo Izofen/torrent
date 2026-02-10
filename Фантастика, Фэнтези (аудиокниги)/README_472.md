@@ -1,3 +1,29 @@
+###  Публикация: 1502663   (826801) от 15.10.2021
+
+Лада Кутузова | «Младшие боги» Книга 2. Костяное царство (2021) [MP3, BrainDeLook]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_826801.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навья метка еще отравляет, хоть призрак быстрой смерти и отступает от Лады. А потому дорога девушки и ее спутников лежит дальше – в Серебряное царство. Впереди их ждет смертельная схватка с прислужниками темных богов, предательство и потери. И перед Ладой встает выбор: следует ли продолжать путь ценой жизни тех, кем она дорожит? Не слишком ли велика цена за ее спасение (   Читать дальше...   )Жанр: Героическое фэнтези, Русское фэнтезиПродолжительность: 07:20:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC64B2120ABF258601A889BC2B19E551606382D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502637   (826805) от 15.10.2021
 
 Лада Кутузова | Птица несчастья (2021) [MP3, Илья Сланевский]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:7C6EBCDFFAB758F22CBC4F1C0F224A2EE64F70F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:7C6EBCDFFAB758F22CBC4F1C0F224A2EE64F70F2
 magnet:?xt=urn:btih:55D808C380C860AE8BD3D063838863ED446A4B35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:55D808C380C860AE8BD3D063838863ED446A4B35
 ```bash
 magnet:?xt=urn:btih:C6F5F1A33037D4C0D613EB6D1933B642F022AAFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:C6F5F1A33037D4C0D613EB6D1933B642F022AAFD
 magnet:?xt=urn:btih:B1C18A58FD74597078578E37170E9721F5D005AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:B1C18A58FD74597078578E37170E9721F5D005AC
 ```bash
 magnet:?xt=urn:btih:22105E7D937E01D6ED83DD053FC86A014821BE76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:22105E7D937E01D6ED83DD053FC86A014821BE76
 magnet:?xt=urn:btih:42033E908610DFEC7B563C0C75ED1A99C6413775
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:42033E908610DFEC7B563C0C75ED1A99C6413775
 magnet:?xt=urn:btih:91656BCE65F1D4CA6B509F2D8E49143D67E98475
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:91656BCE65F1D4CA6B509F2D8E49143D67E98475
 ```bash
 magnet:?xt=urn:btih:C565DC8D31F75B0E6FE4ED46C93F9D10C71CA69D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:C565DC8D31F75B0E6FE4ED46C93F9D10C71CA69D
 magnet:?xt=urn:btih:1D6DEFC31449561450E15A242318B0E4FB8F97CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:1D6DEFC31449561450E15A242318B0E4FB8F97CB
 ```bash
 magnet:?xt=urn:btih:AB88E23EDA446F4A8162D54197009DB964D84C0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:AB88E23EDA446F4A8162D54197009DB964D84C0C
 magnet:?xt=urn:btih:EAB3846F50D1BBA260E722A83807FC0388530B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:EAB3846F50D1BBA260E722A83807FC0388530B6B
 ```bash
 magnet:?xt=urn:btih:679D8BD8FD11DD738CD280FF3EF8FAB0B39A4596
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:679D8BD8FD11DD738CD280FF3EF8FAB0B39A4596
 magnet:?xt=urn:btih:3CC8AC57E3317740B89B405384B1BFEBE830AAEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:3CC8AC57E3317740B89B405384B1BFEBE830AAEA
 ```bash
 magnet:?xt=urn:btih:69848C29B634E71B93445C091A2B7BCA85B6EA1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:69848C29B634E71B93445C091A2B7BCA85B6EA1B
 ```bash
 magnet:?xt=urn:btih:98EDC2977A676D4C14CD65B92F590D11475E97FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:98EDC2977A676D4C14CD65B92F590D11475E97FF
 magnet:?xt=urn:btih:B2AF7C714D7A01028428A892895B09DC1E2AA83A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:B2AF7C714D7A01028428A892895B09DC1E2AA83A
 ```bash
 magnet:?xt=urn:btih:2F6C3524837683CCE56F1C869F8D387D03145A9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:2F6C3524837683CCE56F1C869F8D387D03145A9B
 magnet:?xt=urn:btih:5BC63CA19B61AD09FA1EA58AF3750662A2AA01E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:5BC63CA19B61AD09FA1EA58AF3750662A2AA01E1
 magnet:?xt=urn:btih:74A5FCBE530999C2B1E9362AE59ACC1D2EBE82CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:74A5FCBE530999C2B1E9362AE59ACC1D2EBE82CA
 ```bash
 magnet:?xt=urn:btih:3936D9375C2563F70FBF9339F0A0864896241AE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:3936D9375C2563F70FBF9339F0A0864896241AE1
 magnet:?xt=urn:btih:120E978950DEC0EFADAB57EEA5ECC84CAB285B5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:120E978950DEC0EFADAB57EEA5ECC84CAB285B5B
 magnet:?xt=urn:btih:B3C91A43FB090DBF69BD5F651735E32F4B9A5485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:B3C91A43FB090DBF69BD5F651735E32F4B9A5485
 ```bash
 magnet:?xt=urn:btih:13921279717EAEE4E367D49FCE8589257D8ECC55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:13921279717EAEE4E367D49FCE8589257D8ECC55
 magnet:?xt=urn:btih:47826C9493A38E4F18D71D616169E87CEF905152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:47826C9493A38E4F18D71D616169E87CEF905152
 magnet:?xt=urn:btih:F11B03C71FE6CD86809E8702A226F5D2A4401E3F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502007   (829817) от 13.10.2021
-
-Андрей Земляной | Один на миллион (Книга 2). Шагнуть за горизонт (2021) [MP3, Александр Чайцын]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алексей Белый через портал попал в другой мир, где на основе выдвинутых частей Красной армии образовано некое военизированное государство. Причем это оказалось не изолированное государство, а являющееся частью высокоразвитой империи Алат. Но и здесь нет спокойной жизни, так как уже не одну сотню лет продолжается вялотекущая война. Естественно Алексей оказывается (   Читать дальше...   )Жанр: Боевая фантастика, космическая фантастикаПродолжительность: 11:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D34E10DABBBAB6228BEBBCDA7D8D73BFD4F8DC4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Homeworld 3 (2024) [Ru/Multi] (1.22-CL363716/dlc) Repack Decepticon
 magnet:?xt=urn:btih:7AE8B47003EBA3670EB8058E7ECAF754CAE07D43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ INDIKA - игра от третьего лица с историей о стра
 ```bash
 magnet:?xt=urn:btih:BF94492FB334957718CFE1983D9E52438440339F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.0.0.38f) Repack FitGirl
 magnet:?xt=urn:btih:687FD92BECB8CAE59D006573487B4BC144EFFCD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Bloodstained: Ritual of the Night – это смесь готического �
 ```bash
 magnet:?xt=urn:btih:8ED7326198D49BB3BE40EBEBB9117F28E45B21C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Alan Wake 2 (II) (2023) [Ru/Multi] (1.2.2/dlc) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:F8C65A805CD8098A28190586AD4ACF0329144788
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Metaphor: ReFantazio (2024) [Ru/Multi] (1.02/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:37C6C1932884AEE94F580508061C44663E01D7A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) Repack seleZen
 magnet:?xt=urn:btih:0D0B31089844FB82A582084F09CE164D278C467C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Metaphor: ReFantazio (2024) [Ru/Multi] (1.02/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:1D798CA389D0CB303F222ACD7FF9825315C423E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.005.26813) Repack Wanterlude
 magnet:?xt=urn:btih:504B5E65F080C2EEAE237EECF1462C80936334B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Rogue Waters - это тактическая пошаговая игра в ду
 ```bash
 magnet:?xt=urn:btih:BDA355E7D19E57014B4DA05DAFAE022AF03A7BB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Stargate: Timekeepers — тактическая игра, в которой в�
 magnet:?xt=urn:btih:A7B2987D3A6DDB999812FAB4F7D3124D8E82FA5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Welcome to Empyreum - видеоигра, в которую можно буде�
 ```bash
 magnet:?xt=urn:btih:8413B5E5B6C2681A9814814599C59253431D5A6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Europa Universalis IV (4) (2013) [Multi] (1.37.5.0/dlc) License GOG
 magnet:?xt=urn:btih:DF3F5DB55D643765903C37640F5DFB26948C2F9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Slave Zero X - это биопанк-экшен, выполненный в по�
 ```bash
 magnet:?xt=urn:btih:382C1C666C812D1B3347D83B657542EBBFE5D331
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Strategic Command: American Civil War - долгожданное продолж�
 magnet:?xt=urn:btih:B36D5AD3E7735AB6671BB3B9C6EC9E8DCB6F8353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Harold Halibut - созданная вручную нарративная игр
 ```bash
 magnet:?xt=urn:btih:246DF8E731272775017E8BCD3A96126BE55FB091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Factorio – игра, в которой вы строите и обслужив
 magnet:?xt=urn:btih:3F803539AA7449C47590E9FF8C1006F55D0D501B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Northend Tower Defense – динамичное приключение, собы
 ```bash
 magnet:?xt=urn:btih:DFE2451A12A7A3F210943C349F9FB63CA7DBC065
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Factorio – игра, в которой вы строите и обслужив
 magnet:?xt=urn:btih:C1BC4AFD26E60A1CD30A7C2E15108E8BDC1C08F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Europa (2024) [Ru/Multi] (build 16022486) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:3FD5B682135C48BD6E855D1A58168A63CC5B5456
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Road 96: Mile 0 - приключение с сильным упором на п�
 magnet:?xt=urn:btih:854ACB775F328A15D1AD4AB333CF5CCEB31A324D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Ereban: Shadow Legacy в быстро развивающемся стелс-пл
 ```bash
 magnet:?xt=urn:btih:C09E14C583134F13B5E0749C1017B1FB315B36FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Epstein 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:2318F439C94D5039699FCA59E07E011B95B8C97D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Talos Principle 2 предлагает увлекательный и зас�
 ```bash
 magnet:?xt=urn:btih:26C3148B4B039FE65E6DA8E760B352EEE1D9CB8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Townscaper (2021) [Ru/Multi] (1.2.1) License GOG
 magnet:?xt=urn:btih:F4EAA5B705EA644F32DD89FB2EF2FD3A2F0597D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Rugrats: Adventures in Gameland (2024) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:66BBC6D34344285E7BC6E82A22EB8F56AF21F1EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

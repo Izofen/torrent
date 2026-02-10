@@ -1,3 +1,154 @@
+###  Публикация: 921935   (573794) от 26.07.2015
+
+Fear of Tigers - Zoipa (2014) EP [MP3|320 кб/с]<Electronic, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weekend In Harlem
+02. Ailuropoda Melanoleuca
+03. Golden Age
+04. Twisted Biscuit(   Читать дальше...   )Жанр: Electronic, Indie PopПродолжительность: 00:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EB7D938AD7F3559FA6FCBD068B111D54E96CE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554926   (573810) от 01.06.2022
+
+Gilla - Disco Collection (2001) [FLAC|Lossless|tracks + .cue] <Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_573810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny
+02. Tom Cat
+03. The Heat Is On
+04. Go Down Mainstreet(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:468423F962DF40367908675996375FC591EBD0F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151300   (574177) от 18.07.2017
+
+VA - New Generation Italo Disco - The Lost Files Vol.4 (2017) [MP3|320 Kbps] <Italo Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mrs. Blue - Never Enough (BCR Extended Disco Mix)  7:43
+02.  Mimosa - In Love (BCR Extended Dance Mix)  5:39
+03.  Rovigo - Don't Let Me Go (BCR Vocal Remix)  6:12
+04.  Italian Boy - Italian Girl (BCR Extended Dance Mix)  6:26(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 01:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF0466015F523991678A1AD54FB26ABB148702F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527499   (574306) от 27.07.2012
+
+Adriano Celentano - The Best (2012) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574306.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Soli (3:59)
+ 2. Pay, Pay, Pay (4:14)
+ 3. Amore No (5:08)
+ 4. Qua La Mano (3:59)
+ 5. Stivali E Colbacco (4:12)
+ 6. Un Poґ Artista Un Poґno (4:56)
+ 7. L'orologio (4:42)
+ 8. Il Tempo Se Ne Va (3:46)
+ 9. Una Parola Non Ci Scappa Mai (4:17)
+ 10. Conto Su Di Te (4:13)(   Читать дальше...   )Жанр: PopПродолжительность: 04:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9EB501ACF8C191EF767D1817ED3E45B9692ADFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151098   (574341) от 18.07.2017
+
+John Paul Young - Greatest Hits (1997) CD [MP3|320 Kbps] <Electronic, Disco, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is In The Air - 1978 (3:28)
+02. Lost In Your Love - 1978 (3:11)
+03. Here We Go - 1978 (3:40)
+04. Hot For Your Baby - 1980 (4:09)(   Читать дальше...   )Жанр: Electronic, Disco, Pop RockПродолжительность: 00:57:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42AB2422674AE927B8467E6A5BBA246347F07398
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151357   (574353) от 18.07.2017
 
 Joe Yellow - Yellowgraphy (2016) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Eurobeat, Hi-NRG>
@@ -21,6 +172,8 @@ Joe Yellow - Yellowgraphy (2016) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, E
 ```bash
 magnet:?xt=urn:btih:21A78AA099E889FADE054B84C50A5FE9F01FA367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +208,8 @@ VA - I Love Italo Disco Legends Vol.1-5 (2011) 5CD [MP3|320 кб/с]<Italo-Disco
 magnet:?xt=urn:btih:A54DC6978DE2AD115DC7F95F2EF1C870D8C39018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +236,8 @@ Radiorama - The Second (1987) Reissue, Deluxe Edition, 2016, Deluxe CD Music [FL
 ```bash
 magnet:?xt=urn:btih:31ACAF7FACB0F8B04E6C6E13D5E2AC04FF299D53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +266,8 @@ VA - Take On Me: 80's the Collection (2012) [FLAC|Lossless|WEB-DL|tracks] <Pop, 
 magnet:?xt=urn:btih:0DEC0F882D7F739AFAE6DDE4261F5A64CE08CE46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -136,6 +295,8 @@ The New York Community Choir - The New York Community Choir (1977) Funkytowngroo
 magnet:?xt=urn:btih:2D4843DF2963F620C005E33CD0405D4D85ECA9F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +323,8 @@ VA - Pop Decades: 80s (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:9317E5095D56A928E5571DC7A77F4585FAB25EA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +357,8 @@ Arabesque - Best Three (1995) Japan [FLAC|Lossless]<Disco>
 ```bash
 magnet:?xt=urn:btih:6DA324C803819EE16E60D14627817D270976002B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +393,8 @@ C.C. Catch - Welcome To The Heartbreak Hotel (1986) Germany, 1st Press [FLAC|Los
 magnet:?xt=urn:btih:B85A95700A6DDFBB2F9222D4C32945572F0AC86A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +428,8 @@ Teach In - The Best of the Best (2012) [MP3|320 кб/с]<Disco, Pop, Pop Rock>
 magnet:?xt=urn:btih:5B9944DCE74F50CAFD069B543626B4667F13FCDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +460,8 @@ Francesco Salvi - Megasalvi (1989) [MP3|320 кб/с]<Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:472ADE2B378C47C505A07543361D1288467C9E11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +496,8 @@ Luv - You're The Greatest Luver (1996) [MP3|320 кб/с]<Disco>
 magnet:?xt=urn:btih:F1B390227AFD9A5C1905B9E24AF14714E2019760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +530,8 @@ Luv' - Gold (1993) [MP3|320 кб/с]<Disco>
 ```bash
 magnet:?xt=urn:btih:C97A14B469B5B1AA0C901BA579BD65366966F34F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +566,8 @@ Luv' - Gold (1993) [FLAC|Lossless]<Disco>
 magnet:?xt=urn:btih:E2696D53E4D00840FFAADED150C5CE77B1C87F2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +601,8 @@ Luv - You're The Greatest Luver (1996) [FLAC|Lossless]<Disco>
 magnet:?xt=urn:btih:030DACAB1310465A1FDE149D667AC46A0059139C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +634,8 @@ Francesco Salvi - Megasalvi (1989) [APE|Lossless]<Italo-Disco>
 magnet:?xt=urn:btih:C8E6369DA6B1B716CBBE9B3C62D839F3BEABC6C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +660,8 @@ Alcazar - Disco Defenders (2015) [MP3|320 кб/с]<Europop, Disco>
 ```bash
 magnet:?xt=urn:btih:03A684172F704631D3251B013A66BACFB6E28E72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +690,8 @@ Sparks - The Seduction of Ingmar Bergman (2009) Deluxe Edition, 2022, BMG [FLAC|
 magnet:?xt=urn:btih:DC8E2F8688D7F34BEE9C7AE02F103725C519935A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +718,8 @@ Sparks - Exotic Creatures of the Deep (2008) Deluxe Edition, 2022, BMG [MP3|320 
 ```bash
 magnet:?xt=urn:btih:58BAC0F6039FF34A3154DBC023AFC2FA8A5F7890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +748,8 @@ VA - From Disco to Disco 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco
 magnet:?xt=urn:btih:24D324EF886E225BAEAF419569513FA9D4E03B11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +776,8 @@ VA – Мой адрес-море (2005) [FLAC|Lossless|image + .cue]<Совет
 ```bash
 magnet:?xt=urn:btih:1F117B9F140F8A0C3F7505DE1B4A67FE64D4D01C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,161 +806,7 @@ CD1:
 magnet:?xt=urn:btih:ADB4C6EB22B1A865057A7753AE8AF51BC6532C02
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233711   (576185) от 02.07.2018
-
-Виктория Дайнеко - Смайлы (2018) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Смайлы
-02. Иду
-03. Бьётся сердце
-04. Таешь(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB96D6EA3AB4EDA3FA7C6532B144C79DCBF9928
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233747   (576190) от 02.07.2018
-
-VA - Speech №3-Новогодний бал (1994) [FLAC|Lossless|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Фантастический бал - Фантастический бал
-02. Светлана Владимировская - Пусть длится ночь
-03. Ван Моо - Народное техно
-04. Кабаре-дуэт Академия - Тома(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C84DB116BBFF0A8D4C3217B13D8DB9FD76BD07
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527458   (576192) от 26.07.2012
-
-VA - Ретро FM представляет: Русская, Зарубежная Дискотека 90-Х (2CD) (2012) [MP3|256 кб/с]<Pop, Disco>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576192.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01. О. Газманов - Эскадрон
-02. Д. Маликов - Ты Одна, Ты Такая
-03. Hi-Fi - За Мной
-04. Андрей Губин - Было Но Прошло
-05. Жасмин - Головоломка
-06. Кар Мэн - Because Love You
-07. Глюк'oza - Невеста
-08. Нэнси - Милая
-09. Иванушки Int. - Тополиный Пух (Remix)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 06:42:59
-01. Radiohead - Creep
-02. Cb Milton - A Real Love
-03. Kaoma - Lambada
-04. Depeche Mode - I Feel Loved
-05. Intrance - Te Quierro Puta (Original Mix)
-06. Ivan - Fotonovella
-07. Whitney Houston - I Learned From The Best
-08. Maxi Priest - Close To You
-09. White Town - Your Woman(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E27A0666F739A2DAC2AC7D9C393ED4720B8FDE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233977   (576207) от 02.07.2018
-
-Andrea True Connection - 2 Hit Albums (1976, 1977) [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576207.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторами и продюсерами этих альбомов, достигнувших в свое время высоких рейтингов в чартах, от исполнительницы и бывшей кино-дивы "фильмов для взрослых", стали не безызвестные Michael Zager и Gregg Diamond.01. Party Line (6:49)
-02. Keep It Up Longer (4:36)
-03. More, More, More (6:19)
-04. Fill Me Up (Heart to Heart) (10:22)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:05:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B17C1EDCA244E24F80140431D75B23D059D4159
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527323   (576212) от 26.07.2012
-
-Bee Gees - 21 cтудийный альбом (1967 - 2001) [MP3|320 кб/с]<pop, poprock, disco, blue-eyedsoul, softrock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: pop, poprock, disco, blue-eyedsoul, softrockПродолжительность: 00:52:29
-
- 01. This Is Where I Came In 04:56
- 02. She Keeps On Coming 03:57
- 03. Sacred Trust 04:53
- 04. Wedding Day 04:43
- 05. Man In The Middle 04:21
- 06. Deja Vu 04:19
- 07. Technicolor Dreams 03:04
- 08. Walking On Air 04:05(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1147380   (609610) от 02.07.2017
+
+Орел и решка. Перезагрузка (2017.07.02) WEB-DL [H.264/720p-LQ] (сезон 14: Берлин)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шесть лет назад команда проекта "Орел и решка" впервые отправилась в большое путешествие по самым интересным городам нашей планеты. За прошедшее время в них столько всего изменилось, что создатели шоу решили приехать сюда снова. "Орел и решка" объявляет перезагрузку! Телезрителей ждет встреча с невиданными чудесами, новыми незабываемыми впечатлениями (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA96049C2B03F0951DF8906051F147860D75166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546107   (609621) от 22.04.2022
 
 Корни и кроны. По городам и весям / Des Racines et des Ailes. Des Racines & des Ailes (2008-2013) DVB (часть 1, серии 1-20 из 20) [FR / RU Sub]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:6B476D9705F23C5EC27C51ECA27D4743CFF9769B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:6B476D9705F23C5EC27C51ECA27D4743CFF9769B
 magnet:?xt=urn:btih:E4C9C07B6B9C698186C131D9FAC32B978868CD58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:E4C9C07B6B9C698186C131D9FAC32B978868CD58
 magnet:?xt=urn:btih:567D77C458086EB432265279AF5224159003CBAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:567D77C458086EB432265279AF5224159003CBAC
 ```bash
 magnet:?xt=urn:btih:F0536E21738BF903AFD6040912DE5100BCC1C8E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:F0536E21738BF903AFD6040912DE5100BCC1C8E9
 magnet:?xt=urn:btih:A850B108B240763C3F4C73F9A110DAFD7A5F7EF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:A850B108B240763C3F4C73F9A110DAFD7A5F7EF2
 ```bash
 magnet:?xt=urn:btih:C6B07EEF4FE3458D0883A9A0CEC766F87D5B2769
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:C6B07EEF4FE3458D0883A9A0CEC766F87D5B2769
 magnet:?xt=urn:btih:75E9A83B60C57DF37F882F8D0D0B3CF420A2D619
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:75E9A83B60C57DF37F882F8D0D0B3CF420A2D619
 ```bash
 magnet:?xt=urn:btih:8C1DCB60A478325F3859331BA79A455AEF855A3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:8C1DCB60A478325F3859331BA79A455AEF855A3C
 magnet:?xt=urn:btih:C71F02918338651C91A60F6158CD44D04F294C4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:C71F02918338651C91A60F6158CD44D04F294C4A
 magnet:?xt=urn:btih:72DE2B9191C33A14C04A51C1FD323AD9519C4751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ Nat Geo Wild: Дикая Иберия / Wild Iberia [сезон 1 серии 1-4
 ```bash
 magnet:?xt=urn:btih:9B1E505511AAACAF642F60CEE216239BD1DF9274
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:9B1E505511AAACAF642F60CEE216239BD1DF9274
 magnet:?xt=urn:btih:E3AD880BA373888E0B3AF5C8ECC4BE1648B3C7EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:E3AD880BA373888E0B3AF5C8ECC4BE1648B3C7EA
 magnet:?xt=urn:btih:D6815B3464BA08C9BC24EE9B175D899D34D1A543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:D6815B3464BA08C9BC24EE9B175D899D34D1A543
 magnet:?xt=urn:btih:39DFD949E7C586BE507372411CB4C2774DE52CF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:39DFD949E7C586BE507372411CB4C2774DE52CF9
 ```bash
 magnet:?xt=urn:btih:566272A094B3FBD931798D3BF1C49A17BC5ACD2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:566272A094B3FBD931798D3BF1C49A17BC5ACD2F
 magnet:?xt=urn:btih:90650463B2D40FBF3A7FECF1EA75E345C43FD6DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:90650463B2D40FBF3A7FECF1EA75E345C43FD6DC
 ```bash
 magnet:?xt=urn:btih:F03C09A104CFECA69BB61FE2DD8D6157B8C06913
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:F03C09A104CFECA69BB61FE2DD8D6157B8C06913
 magnet:?xt=urn:btih:C916CA617B4358E907E8AFD9F8CE9B9FE4EE084C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:C916CA617B4358E907E8AFD9F8CE9B9FE4EE084C
 ```bash
 magnet:?xt=urn:btih:356B4D32B0F86077EA75F903E7FCA49229B195B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:356B4D32B0F86077EA75F903E7FCA49229B195B7
 magnet:?xt=urn:btih:11510D41D7C224285C252ECE7F127A7A40C20113
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:11510D41D7C224285C252ECE7F127A7A40C20113
 ```bash
 magnet:?xt=urn:btih:B9BB6A27D999414220B82176069C5E9291D3D4E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:B9BB6A27D999414220B82176069C5E9291D3D4E6
 magnet:?xt=urn:btih:87535EB49F42AEBD18B4D31C656AB82B450DDBAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:87535EB49F42AEBD18B4D31C656AB82B450DDBAC
 ```bash
 magnet:?xt=urn:btih:B37452A5929BC6211D49ACE9507DBFDECF4F77FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:B37452A5929BC6211D49ACE9507DBFDECF4F77FE
 magnet:?xt=urn:btih:D763944AE548B7CA96684EAB4D5F014AFDB60D61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:D763944AE548B7CA96684EAB4D5F014AFDB60D61
 magnet:?xt=urn:btih:C5F5C6720A646B50848ACE1AAD6784C4CDB4BB21
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 524919   (611061) от 19.07.2012
-
-Мастер путешествий (Лучшие путешествия) [Сезон 1: 13 из 13] [Сезон 2: 13 из 13] [Сезон 4: 1-4 из 13] [Сезон 5: 13 из 14] / SmartTravels. Europe with Rudy Maxa (2002-2010) HDTVRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_611061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видеопутеводитель «Smart travels» предлагает Вам совершить путешествия по самым красивым городам и странам, по самым живописным уголкам нашей планеты. Известный телеведущий, писатель и путешественник Руди Макса научит Вас, как стать «умным туристом». В каждой стране и в каждом городе он покажет Вам те места, которые следует посетить в первую очередь. И объяснит, как получать удовольствие от каждой минуты Вашего круиза.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 43 x ~ 00:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:971A709E9F7BC3CC62F1F7465C704DE6CCCB03AB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

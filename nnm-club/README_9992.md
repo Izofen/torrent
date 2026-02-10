@@ -1,53 +1,3 @@
-###  Публикация: 158204   (324561) от 27.11.2011
-
-Генералы песчаных карьеров / The Sandpit Generals (1971) DVDRip
-
->>След.
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Картина снята по роману Жоржи Амаду «Капитаны песка».
-Тысячи покинутых беспризорных детей скитаются по просторам Южной Америки. В Бразилии они роются в отбросах, попрошайничают и воруют. Их дом - улица, они озлоблены и одиноки. Чтобы не пропасть поодиночке, они сбиваются в шайки и терроризируют благополучных горожан.
-Одна такая шайка нашла пристанище среди песчаных (   Читать дальше...   )Производство: СШАЖанр: Драма, Криминал, МелодрамаАктеры: Алехандро Рей (Alejandro Rey), Кент Лейн (Kent Lane), Тиша Стерлинг (Patricia Ann Sterling), Бутч Патрик (Butch Patrick)Перевод: ДубляжСубтитры: НетПродолжительность: 01:30:00
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 843473   (324568) от 22.11.2014
-
-Пейзаж в тумане / Topio stin omichli / Landscape in the Mist (1988)  BDRip [H.264/720p-LQ] [Hi10P]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ДрамаРежиссер: Тео АнгелопулосАктеры: Михалис Зик, Таня Палайологу, Стратос Цорцоглу, Ева Котаманиду, Алики Георгули, Василис Коловос, Василис Буйиуклакис, Илиас Логотетис, Вангелис Казан, Стратос ПахисПеревод: ДвухголосыйЯзык субтитров: РусскийПродолжительность: 02:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1BCD8F1F198876FF047E9A239BAE0C09CDE8A15
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 843129   (324571) от 22.11.2014
 
 James Last - With Compliments (1970) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Easy Listening>
@@ -78,6 +28,8 @@ James Last - With Compliments (1970) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Eas
 magnet:?xt=urn:btih:5DD2D5A6E1311620EAFA9775CF28329A2426C987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -104,6 +56,8 @@ Caravan - Back To Front (1982) Japanese Edition, Reissue, 2022, Belle Antique [F
 ```bash
 magnet:?xt=urn:btih:C1D4325A107C530E8D69A361AF5C05239D56EC1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -132,6 +86,8 @@ Sarah Brightman - Eden (1998) Reissue, 1999, EastWest [OGG Vorbis|484 Kbps] <Ele
 magnet:?xt=urn:btih:253D5EEBE8A7B3F4EDC7F6AAA78C1DA93D9288A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -158,6 +114,8 @@ Sarah Brightman - Symphony (2007) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classi
 ```bash
 magnet:?xt=urn:btih:7341D82EA3F41F260F6F3364196E66EEDFBCD03E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -186,6 +144,8 @@ Sarah Brightman - Classics (2001) [OGG Vorbis|484 Kbps] <Electronic, Pop, Classi
 magnet:?xt=urn:btih:47595C5B9CABB7A10882F2D15208E014A440405F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +172,8 @@ Magic Dance - New Eyes (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Mel
 ```bash
 magnet:?xt=urn:btih:F317B754AA2D5BB5AE820C597BEDA134EF6A28F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +202,8 @@ magnet:?xt=urn:btih:F317B754AA2D5BB5AE820C597BEDA134EF6A28F0
 magnet:?xt=urn:btih:A5C27217993F66053682E9902ACF2C4697989D71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +230,8 @@ Taboo - Taboo (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard
 ```bash
 magnet:?xt=urn:btih:3C8F68A5EDE63DE062D4A76A0D9A63E05A153495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +260,8 @@ Sarah Brightman - Harem (2003) [OGG Vorbis|484 Kbps] <Electronic, Classical, Amb
 magnet:?xt=urn:btih:6C1E9F62EA8ABF110AF5944B182B0E1DC8E5014C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +288,8 @@ I Drink My Coffee Alone - Nichts (2022) [FLAC|Lossless|WEB-DL|tracks] <Experimen
 ```bash
 magnet:?xt=urn:btih:F8CBA610DC7845D30B434E112901C852C1D6972D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +318,8 @@ Sarah Brightman - Fly (1996) [OGG Vorbis|484 Kbps] <Rock, Pop, Classical>
 magnet:?xt=urn:btih:CEE711268CAEBDACA0DD2A1AC9A562379CE289CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +346,8 @@ Queensryche - Digital Noise Alliance (2022) [FLAC|Lossless|WEB-DL|tracks] <Progr
 ```bash
 magnet:?xt=urn:btih:1CC25C721D9B1588315DD3B15EEA50F408EDB9AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +376,8 @@ Wednesday 13 - Horrifier (2022) [MP3|320 Kbps] <Heavy Metal, Horror Punk, Glam M
 magnet:?xt=urn:btih:FB126FE9A97002AE138F44F7E421A906B3F74F9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +404,8 @@ Haven of Echoes (Frequency Drift family) - he Indifferent Stars (2022) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:4B26CDA6C810437523739989985372FF9D6D0CC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +434,8 @@ She Bites - Super Hero (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 magnet:?xt=urn:btih:F4A5A3A2DB489A95CF1A2915A147C8B81A81EAF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +462,8 @@ Sarah Brightman - Dive (1993) [OGG Vorbis|484 Kbps] <Pop, Downtempo, Synth-pop>
 ```bash
 magnet:?xt=urn:btih:2489F02AA8A7E8512D8070C4658C1D94B0D4BAC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +492,8 @@ Sarah Brightman - Dreamchaser (2013) [OGG Vorbis|484 Kbps] <Pop, Classical>
 magnet:?xt=urn:btih:F7C28080549BD9D1F713E66D37DB245E76BD9DC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +520,8 @@ Sleeping Romance - We All Are Shadows (2022) [FLAC|Lossless|WEB-DL|tracks] <Symp
 ```bash
 magnet:?xt=urn:btih:5C8EB291B4D3E8FFDE0A587B5D68C67CF8C643B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +550,8 @@ Big Mouth - Hands Of Time (1997) Japanese Edition, Reissue, 1998, Avalon [FLAC|L
 magnet:?xt=urn:btih:24C37FB43AF72A1A3E4D51B7476B9B1B0E628651
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +578,8 @@ King Gizzard & The Lizard Wizard - Ice, Death, Planets, Lungs, Mushrooms and Lav
 ```bash
 magnet:?xt=urn:btih:AD42BAEBEFB6ABCF2051249417FB03E3D98B1C9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +608,8 @@ Knorkator - Sieg der Vernunft (2022) [FLAC|Lossless|WEB-DL|tracks] <Neue Deutsch
 magnet:?xt=urn:btih:2B2160909CF592579E0C2BA01F9CD3417D714D0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +635,8 @@ magnet:?xt=urn:btih:2B2160909CF592579E0C2BA01F9CD3417D714D0C
 magnet:?xt=urn:btih:F593A3E1DDFDFE50D24E902462096102895E9AB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +661,8 @@ magnet:?xt=urn:btih:F593A3E1DDFDFE50D24E902462096102895E9AB2
 magnet:?xt=urn:btih:B04E387C2DCA06F47BFCB657A4491EA5FCCFD1AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +686,60 @@ Vista-like - это коробочные продукции распростра
 ```bash
 magnet:?xt=urn:btih:A179AABDFD463E406A4847FFC2481405408464D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958158   (324627) от 20.11.2015
+
+Человек-муравей / Ant-Man (2015) BDRemux [H.264/1080p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_324627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вооружившись удивительной способностью уменьшаться в размере, но обладать при этом большой силой, мошенник Скотт Лэнг должен стать героем и помочь своему наставнику, доктору Хэнку Пиму, сохранить в тайне существование костюма Человека-муравья от угроз нового поколения.Производство: США / Marvel Studios Inc.Жанр: Фантастика, Боевик, КомедияРежиссер: Пейтон РидАктеры: Пол Радд, Майкл Дуглас, Эванджелин Лилли, Кори Столл, Майкл Пенья, Бобби Каннавале, Ти-Ай, Давид Дастмалчян, Эбби Райдер Фортсон, Джуди ГрирПеревод: Дублированный (iTunes Russia)Язык субтитров: Русский, АнглийскийПродолжительность: 01:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90368A77F824C7697D8E7BDCD85605E703D4EBFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958232   (324628) от 20.11.2015
+
+Левша / Southpaw (2015) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_324628.jpg" />
+</div>
+
+
+###  Подробнее
+
+У боксера Билли Хоупа все было прекрасно: звание чемпиона, красавица-жена и любимая дочка. Но фортуна отворачивается от него: при трагических обстоятельствах погибает любимая жена, дисквалификация на ринге, нулевые доходы, суд лишает его родительских прав… Хоуп должен отстоять звание чемпиона и вернуть дочь. Есть ли у Хоупа шансы на победу? Все решит его знаменитый (   Читать дальше...   )Производство: США / Escape Artists, Fuqua Films, Riche Productions, The Weinstein CompanyЖанр: Боевик, Криминал, Драма, ТриллерРежиссер: Антуан ФукуаАктеры: Джейк Джилленхол, Рэйчел Макадамс, Наоми Харрис, Форест Уитакер, Кёртис "50 Cent" ДжексонПеревод: Дублированный (Лицензия BD RUS)Язык субтитров: АнглийскийПродолжительность: 02:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F390884F92B77D1EE8EAA43309F1B37956E5312
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

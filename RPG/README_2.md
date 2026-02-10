@@ -19,6 +19,8 @@ Caves of Lore - это мрачная тактическая ролевая иг
 magnet:?xt=urn:btih:7FD8C368173F982E09C5E552DEF5F3E45AB25A88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kynseed - это ролевая игра в приключенческом жа�
 ```bash
 magnet:?xt=urn:btih:8C05DD5C415CD4610BB45922003E8639B3562198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Legends of Amberland 2: The Song of Trees - это увлекательная Р
 magnet:?xt=urn:btih:D3C658B4F235400317E7205EF48353DFF99315E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Elden Ring – фэнтезийное экшен-РПГ приключение, 
 ```bash
 magnet:?xt=urn:btih:A2FBD093AAEFDE70BAED10DB773C583C2D41AF37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Telepath Tactics Liberated позволяет использовать стра�
 magnet:?xt=urn:btih:840C76528CBFF7D011DCB6D212DBE179BF758BE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Skyrim + West of Loathing + Supraland. RPG-lite приключение с нам
 ```bash
 magnet:?xt=urn:btih:CD5E835B70C0A217978A49F623B4E5894E80FFBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.07a/dlc) Scene Rune
 magnet:?xt=urn:btih:3ED36EE98197ECCEEAC8F59716E13491575CAE25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Lords of the Fallen представляет совершенно новое э�
 ```bash
 magnet:?xt=urn:btih:56600C0966FD6640EE7791713533E76847FECDB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Assassin's Creed: Valhalla (2020) [Ru/Multi] (1.7.0/dlc) Repack Wanterlude [Comp
 magnet:?xt=urn:btih:CC30DA458A1F0E282548B5F15DD685808535984F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Rogue Loops — это roguelite-экшн, где семья, оказавшая
 ```bash
 magnet:?xt=urn:btih:E7015FBB2D569676F0DD5A6993D6F1236EB01123
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Survive the Fall (2025) [Ru/Multi] (1.2.0.2534/dlc) Repack Let'sРlay [Ultimate 
 magnet:?xt=urn:btih:DA04A584F45FFD7FD90DA162E6440ED219B20111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Sengoku Dynasty (2024) [Ru/Multi] (1.1.0.12/dlc) Repack Let'sРlay [Ultimate Edi
 ```bash
 magnet:?xt=urn:btih:87C4273C0A767BEBEAAF4BEC7F730F3994D5EDA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:87C4273C0A767BEBEAAF4BEC7F730F3994D5EDA7
 magnet:?xt=urn:btih:11C862FE57F148B4C478FB74ABB30170E55615D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Black Geyser: Couriers of Darkness (2021) [Ru/Multi] (1.2.64) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:125C84678784D9E843CFDAA61A9824ACF4D4CFFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 magnet:?xt=urn:btih:DFA7A25DC178A1DF50A1A8C455E097B067F6FB00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Dark Envoy объединяет классическую механику RPG с
 ```bash
 magnet:?xt=urn:btih:7EC7EB4C71AD6FF90A0B35480FAC0C39BB8EF68C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 magnet:?xt=urn:btih:13C6C7AFE8509B12A302A6EECEEA9D96D6844974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Black Geyser - изометрическая партийная РПГ, вдох�
 ```bash
 magnet:?xt=urn:btih:5D74C249137F6A8AE42B07EC201E5525E850B8F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Echoes of Yi : Samsara - это мрачная игра в жанре боевы
 magnet:?xt=urn:btih:26C396029E4A6575D16A023F9F29135157469A56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ V Rising (2024) [Ru/Multi] (1.1.9.0/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:07CBC10F95BB43D854C4F147CA4082BA4634F284
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Dark Envoy объединяет классическую механику RPG с
 magnet:?xt=urn:btih:FFD60074843F59D0E53B28719BC1332A5E5EEA95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Last Epoch – приключенческая экшен-игра с глубо�
 ```bash
 magnet:?xt=urn:btih:7759643EF97E6D82AB612BD6A7F2A6536C678E9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ To the Eden начинается с падения таинственных об
 magnet:?xt=urn:btih:EA583DB2DA49C810967D2CAA148E143D37F0CB72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Last Flame (2024) [Ru/Multi] (1.0.3) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:7ED13E7E211BA9902B24B2114F9BE296C913819E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Tale of Immortal, песочница с открытым миром, глубо�
 magnet:?xt=urn:btih:30A9EA5F6BD3501727954666B324AD442DD3AB8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Grand Emprise 2: Portals Apart (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:2143F6C6E9F2C0BEA06A44081BBE2C64A345CF84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C73A045848FCAD558B4267F5EA88A5F048C55BF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C73A045848FCAD558B4267F5EA88A5F048C55BF6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:C73A045848FCAD558B4267F5EA88A5F048C55BF6
 magnet:?xt=urn:btih:90AB150B421ECBBA47BB5B5C5F47E48A952E0904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:90AB150B421ECBBA47BB5B5C5F47E48A952E0904
 ```bash
 magnet:?xt=urn:btih:51DA15807FEB3B3988E07605F8C896E50845A68D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Wastewalker - Funeral Winds (2016) [MP3|320 Kbps] <Technical Melodic Death Metal
 magnet:?xt=urn:btih:8EAFE11206145CA838CD40B854E903D31A779B8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:8EAFE11206145CA838CD40B854E903D31A779B8E
 ```bash
 magnet:?xt=urn:btih:2BDE0213769C5CBF52DEBAEA6945C4F25C92EA5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:2BDE0213769C5CBF52DEBAEA6945C4F25C92EA5E
 magnet:?xt=urn:btih:A04D2BB4210E6AA04FFF79F04701F7FDAC6165CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:A04D2BB4210E6AA04FFF79F04701F7FDAC6165CD
 ```bash
 magnet:?xt=urn:btih:719F39134B5005C2BA0B0D8796EF821B7AE0C3EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ VA - Notes from the Depth, Vol. 7 (2019) [AAC|~306 Kbps] <House>
 magnet:?xt=urn:btih:24F63FD57CD3640AE46FCEC55329D85107826890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:24F63FD57CD3640AE46FCEC55329D85107826890
 ```bash
 magnet:?xt=urn:btih:4A4B1D8A8C8F97CCEB0A9A7AD752013CB7A1072E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ VA - USA Top Hits (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
 magnet:?xt=urn:btih:0B72A5B5DBC0272385A72EBD680C231AC66EB098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Blur n Bokeh - это инструмент, позволяющий выдели�
 ```bash
 magnet:?xt=urn:btih:DFB5299CF43F85EC14A2DB0D320439902742BC93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ VA - Introdance: European EDM Mix (2016) [MP3|320 Kbps] <Club, Dance, House>
 magnet:?xt=urn:btih:B2EF40031453FEC16B3725729D2A5D05C63BCDA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ Martin Hiska - Blue Times (2022) [AAC|~360 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:0DDEF6BBABA160AA49F6CBC713DC8D5E2BA4CD73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ Witch Piss - Witch Piss (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Metal, Slud
 magnet:?xt=urn:btih:023CF1118C312925A571FDCDC32FD8F6454240E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:023CF1118C312925A571FDCDC32FD8F6454240E9
 ```bash
 magnet:?xt=urn:btih:870A355C33175EE883A372F0F0340CEA0EEAFFD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:870A355C33175EE883A372F0F0340CEA0EEAFFD9
 magnet:?xt=urn:btih:8BCA0952F464635F4D97F15AE754B0EA5D0EDDC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ MC Eiht - Lessons 2 (2023) Blue Stamp Music [MP3|320 Kbps] <Rap, West Coast Hip-
 magnet:?xt=urn:btih:6550905BA5A8CE01DB66BD8736D9282E217797DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ Zombie Army 4: Dead War (2020) [PS4] [EUR] 5.05 [HEN] [License / 1.44 / DLC] [Ru
 ```bash
 magnet:?xt=urn:btih:87D7AB9BE35F1B8DD965F6EE03CED13D3F94B92C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ tobyMac - Portable Sounds (2007) [FLAC|Lossless|image + .cue] <Pop, Hip-Hop>
 magnet:?xt=urn:btih:22AD556F658D3BD5D1F6A39C58F01489139E9278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ the Poor - High Price Deed (2023) [MP3|320 Kbps] <Hard Rock , AOR>
 ```bash
 magnet:?xt=urn:btih:080161AF0338DE7BDB244FECC01A2A13914406ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ Art Blakey And The Jazz Messengers - Soul Finger (1965) 2009, Universal[FLAC|Los
 magnet:?xt=urn:btih:6530DC82F76ACEDABB71581983B101395C450CE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +628,8 @@ Sunken Lands - Sunken Lands (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:731A3480FE6D010581E016F31A3DC305DFB96EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:731A3480FE6D010581E016F31A3DC305DFB96EDC
 ```bash
 magnet:?xt=urn:btih:13168EE7037E0DDCD32090FD52D54A80A0C02B4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ The John Colianni Trio - Blues-O-Matic (1989) Concord Jazz[APE|Lossless|tracks +
 magnet:?xt=urn:btih:147BDEF2F49CC46CA9F43C6A4F776796AEEDC0EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ magnet:?xt=urn:btih:147BDEF2F49CC46CA9F43C6A4F776796AEEDC0EF
 ```bash
 magnet:?xt=urn:btih:44C5FD300C07EBD56E81511132B0C350C043B48D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

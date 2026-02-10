@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:EE136C519015C89E84B33DD665FF75A2ED86ED56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Sunset Jazz Mood (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:2D7E1DA0F48A68900010633AC579F10168651331
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:2D7E1DA0F48A68900010633AC579F10168651331
 magnet:?xt=urn:btih:36250938312A661B0F2A9B23377A5580038C0B0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:36250938312A661B0F2A9B23377A5580038C0B0E
 ```bash
 magnet:?xt=urn:btih:A271BB400B83430BFA329E6D40BACCE82C81B327
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ TJ Edit - Disco Funk Archive (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 magnet:?xt=urn:btih:B526CDCF81290063CA14DCBCB9C8B1CA173672C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Passengers In Panic - Amnesia (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk Metal, 
 ```bash
 magnet:?xt=urn:btih:60A67197BECBE2C92E29BDB79AE4ABF843121F70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Trick or Treat - Ghosted (2025) [MP3|320 Kbps] <Power Metal>
 magnet:?xt=urn:btih:2CFC716B6EEB4F8EAF394FD5C4C2F3578F1D71AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:2CFC716B6EEB4F8EAF394FD5C4C2F3578F1D71AE
 ```bash
 magnet:?xt=urn:btih:A1F156942836DB2483720C054A0F6EC803E59B2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ Funk Windows - Funk Tape (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
 magnet:?xt=urn:btih:F164EA685C5B92981B2291D37E3362B4A54AB42F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:F164EA685C5B92981B2291D37E3362B4A54AB42F
 ```bash
 magnet:?xt=urn:btih:79C9A70B2C2591C283F5A4C8DA63EE08804A9110
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:79C9A70B2C2591C283F5A4C8DA63EE08804A9110
 magnet:?xt=urn:btih:0246C6139E17241F25DCEFBBF4D95715CB4156C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Sun Haven – увлекательный проект, разработанны�
 ```bash
 magnet:?xt=urn:btih:75B6A34CA6CB5895D5140610CE7E95FFE57E26A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:75B6A34CA6CB5895D5140610CE7E95FFE57E26A2
 magnet:?xt=urn:btih:60D9B66A07B0FE56F2DBC303C9D795F9FB748278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:60D9B66A07B0FE56F2DBC303C9D795F9FB748278
 ```bash
 magnet:?xt=urn:btih:47E9E3E91A79ED41B141860A93F5869FE3D488AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:47E9E3E91A79ED41B141860A93F5869FE3D488AF
 magnet:?xt=urn:btih:8E10E4E90F28DF42BB71D9958FD1F0948EF4EE60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:8E10E4E90F28DF42BB71D9958FD1F0948EF4EE60
 ```bash
 magnet:?xt=urn:btih:8679F864BF69BEBB5F289DFC967162B577D24B6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:8679F864BF69BEBB5F289DFC967162B577D24B6E
 magnet:?xt=urn:btih:E05A94A0008A4C529D62DBA13721567D88322463
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:E05A94A0008A4C529D62DBA13721567D88322463
 ```bash
 magnet:?xt=urn:btih:B69C10A557D98620247C4A38DD114957C01D7F59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:B69C10A557D98620247C4A38DD114957C01D7F59
 magnet:?xt=urn:btih:16CADBDC7737156FAED156919AB47B8DB18162EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:16CADBDC7737156FAED156919AB47B8DB18162EB
 ```bash
 magnet:?xt=urn:btih:B4E63F0F7BBE6B70782309E3F8D873387656D9D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:B4E63F0F7BBE6B70782309E3F8D873387656D9D0
 magnet:?xt=urn:btih:8D2DF45159BF7D23C3C4173F52CFCF21C0C51A2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:8D2DF45159BF7D23C3C4173F52CFCF21C0C51A2F
 magnet:?xt=urn:btih:712DF167BCDF506516C57C9312CF1624B28810F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:712DF167BCDF506516C57C9312CF1624B28810F7
 ```bash
 magnet:?xt=urn:btih:863A30C55BD0430F649D12FC2C11186D5B101285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:863A30C55BD0430F649D12FC2C11186D5B101285
 magnet:?xt=urn:btih:364D2E8B03BFB228B66E56793376403AFD4EC0BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:364D2E8B03BFB228B66E56793376403AFD4EC0BA
 magnet:?xt=urn:btih:958BEC1A03AC68AAD09EF75ECEED0FEF80332F39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:958BEC1A03AC68AAD09EF75ECEED0FEF80332F39
 ```bash
 magnet:?xt=urn:btih:5A924D05100131BEDF1B87B38739B14C29E5F57C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

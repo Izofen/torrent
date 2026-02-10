@@ -20,6 +20,8 @@ Find Any File не содержит никаких подменю с настр�
 magnet:?xt=urn:btih:DA7709A43B04BE521FC2DC42552183569E4BDC8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ RAW Converter 2 v2.6 [En]
 ```bash
 magnet:?xt=urn:btih:C9A184AA237B4C224CF57D99172A2B4DACD497AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Sensei - это приложение, которое охватывает как
 magnet:?xt=urn:btih:9F5232F3E8788B60C4653A9789C457E30BD8A839
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ FoneLab Data Retriever - это безопасный и удобный инст�
 ```bash
 magnet:?xt=urn:btih:B5A33B33397F618CECD37427AFABBA2520A3B82D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Sparkle 5 — очень простой и удобный конструктор
 magnet:?xt=urn:btih:A94C5172999700F2367AE5E30A4419B73EDB3F1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ VideoSolo BD-DVD Ripper 2.0.12 [Multi]
 ```bash
 magnet:?xt=urn:btih:28C9A704A872286990D77F13B2A44EA4D7D9E53E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Picview – просмотр изображений напрямую, нажат
 magnet:?xt=urn:btih:F338D4473F9429886A744CEAEB10956827E7DAAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Pastello - программа предлагает всем почувствов
 ```bash
 magnet:?xt=urn:btih:F76AE9AED2CB3B62B6F1CAE32895EFF0FD263993
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Contacts Sync for Google Gmail  позволяет быстро и легко с
 magnet:?xt=urn:btih:FF11011485DD22D96CCF901C0017235F29F9FF6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:FF11011485DD22D96CCF901C0017235F29F9FF6D
 ```bash
 magnet:?xt=urn:btih:F53D0D00CDC67DC989EBCEF4C17D34DD52C89EE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ SQLiteFlow 6.2.1 [Multi]
 magnet:?xt=urn:btih:5A53D6133FCC6B839A40C7820D5190332AA4F611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Timemator 3.0.4 [En]
 magnet:?xt=urn:btih:DA909C416CF24B87DCEC03BF220FDBDF7C151347
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Cisdem Video Player - это видео и аудиоплеер, который 
 ```bash
 magnet:?xt=urn:btih:AAF24FBB9A2D8D0645FCEE2BC7254714BF485CB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Tuner позволяет передавать музыку из YouTube, с др
 magnet:?xt=urn:btih:78B1BBEC9D719A3630CB31C54DDB2B0E3CC4493E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Benchmark AI - System Monitor for Mac 1.1.2 [Multi/Ru]
 magnet:?xt=urn:btih:D3808FE4A92AD336C6A5E1943EA0F864D3181BF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Audio Editor - Merge, Split And Edit - программа для редакти�
 ```bash
 magnet:?xt=urn:btih:4A51619A8C3E1F68203659D76366A943C59516C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Fashion Art 1.3.5 [En]
 magnet:?xt=urn:btih:F00176B3105A094D2E8287801FB2410027EFD872
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Duplicate Finder и Cleaner помогут вам избавиться (   Чи
 magnet:?xt=urn:btih:A3CCC0FD901D55541B34BDD189FAB11AE8A26F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Scrollow позволяет управлять различными параме
 ```bash
 magnet:?xt=urn:btih:9F2AD3B12C3FBB038F609AFF996A7180848A5CA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Easy App Locker может защитить паролем отдельные п
 magnet:?xt=urn:btih:956B8B58460AFCFC72E4D8B5320D753377044A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ WidsMob Viewer 2.10 (1266)[Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:45849B87D82A9B17FFF7D72660232FA34A6CD2D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Symantec Endpoint Protection - это клиент-серверное решен
 magnet:?xt=urn:btih:1328FBC38431094945BBD087CD3E573CA5D44E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Omni Group славится своими качественными програ
 ```bash
 magnet:?xt=urn:btih:001C950FEEAA1F1A32A3A5E963E2E241037A6985
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Adobe Dreamweaver CC 2017 (17.0.1) [Multi/Ru]
 magnet:?xt=urn:btih:BCED89191CA2F6ED748B3B711B51BCE05CBAE533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Adobe Muse CC - создавайте великолепные веб-сайты 
 magnet:?xt=urn:btih:186CCFB646E4604468551F33636D2DB8793C4392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Live Home 3D, преемник Live Interior 3D, является мощным, 
 ```bash
 magnet:?xt=urn:btih:85974FE2A3FA63D48111C8CB7962D38B7A120736
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

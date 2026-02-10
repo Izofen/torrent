@@ -19,6 +19,8 @@ Animal Planet: Дом для рептилий. Семья древолазов /
 magnet:?xt=urn:btih:CA56C2570AE1989BE04C9213F789250BA2FCB944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Animal Planet: Дом для рептилий. Принцесса и Питон 
 ```bash
 magnet:?xt=urn:btih:48A6A7F45AC0DA332F07AF7714D9B3575053E9ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Animal Planet: Дом для рептилий. Подпольный бар дл�
 magnet:?xt=urn:btih:20F3F67704E4E75215F03F5465E19645D4FF38FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NGW: Пир гризли / Feast of the Grizzly (2016) HDTV [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:385807A1B814C071DF1934CDBAC8E40A0A7CD1FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NG: Инстинкт выживания. Острова / Primal survivor. Islan
 magnet:?xt=urn:btih:458885A384EEE5A1A840687E807EDCB3263C533F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:458885A384EEE5A1A840687E807EDCB3263C533F
 ```bash
 magnet:?xt=urn:btih:04A4269F9734AC9016969378F0703201280A5A49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ NGW: Рожденные в Африке. Школа выживания / Born in
 magnet:?xt=urn:btih:3089EC0D2DFB34BF83CE477C3DFD4391474176FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ BBC: Шпионы в дикой природе / Spy in the Wild (2017) BDRip [H
 magnet:?xt=urn:btih:7EF70199B157A1ED9A55D49D4FF1A649A4C316EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ BBC: Вулканы Солнечной системы (Космические В
 ```bash
 magnet:?xt=urn:btih:15FD28DABCB6409F63E943F38FE78AE6E4409665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ BBC. Живая природа Японии / Japan: Earth's Enchanted Islands (
 magnet:?xt=urn:btih:46CE009673688AB5B0C747F2791DE43E4804C9BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ NGW: Дикая Корея. Голос природы / Wild Korea. Voice of nat
 ```bash
 magnet:?xt=urn:btih:AC039A2577EC4820911322B24DBB86709552056E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ NG. История десятилетий / The '80s and '90s Greatest (2018) SA
 magnet:?xt=urn:btih:61D72D1619EBC36BF93457400C05EC3D0D944EDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ NGW: Дикая Миссисипи, лучшее / Wild Mississippi (2018) HDTVR
 ```bash
 magnet:?xt=urn:btih:31D83E1A639BBEA761B71FDD1EB96CC544516A00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ NG. Аляска: Новое Поколение / Life Below Zero: Next Generati
 magnet:?xt=urn:btih:7243AF29E64D5E2A264A677220B5F68AF61655F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ NGW: Львицы: борьба за выживание / Lions: The Hunt For Su
 ```bash
 magnet:?xt=urn:btih:6288A028B895397F4A1D6A7C4DF9DE50CB84F2CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:6288A028B895397F4A1D6A7C4DF9DE50CB84F2CA
 magnet:?xt=urn:btih:9AFD7EAC07DDBF5BAF1305A8FF42B61723D8F564
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Animal Planet. Кошек не любить нельзя / Must love cats (2012)
 ```bash
 magnet:?xt=urn:btih:F5017E199C68C4DC0A1354B5C4C4E4643CB468AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ History Channel: Тайны коптских мумий / Coptic Mummies of Anti
 magnet:?xt=urn:btih:B29985672BCF4D8FD0B6F87118A763BCDFF0F675
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ NGW: Тигриная королева Тару / Tiger Queen of Taru (2020) WEB
 ```bash
 magnet:?xt=urn:btih:554573D162FF09C76F2650FCB4FF1CD8B3AB67B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:554573D162FF09C76F2650FCB4FF1CD8B3AB67B3
 magnet:?xt=urn:btih:989B2294BEEBAE02504425EF2E5552866D7F1B22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Discovery. Тонущие города / Sinking Cities (2018) HDTVRip [H.264/72
 ```bash
 magnet:?xt=urn:btih:561351C446D03744A53D6434A816102839E16575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ BBC: Борьба за выживание / The Trials of Life (1990) 4*Blu-ray 
 magnet:?xt=urn:btih:D3ACEFA7E0091EAD90696392A5CEB6658B3BA8BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ DV: "Вояджер" - полет за пределы Солнечной сис�
 ```bash
 magnet:?xt=urn:btih:412A82642D2A941B93CF4CC54F2FFE24AD417B9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ BBC. Время / Time (2006) DVDRip [H.264] (серии 1-4 из 4)
 magnet:?xt=urn:btih:322AF982AEDE5B8B05CA274C28381B81A4DE0CAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ magnet:?xt=urn:btih:322AF982AEDE5B8B05CA274C28381B81A4DE0CAF
 magnet:?xt=urn:btih:B98D0B488A6BF61B6ECC197D8F24B39002C368FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ NG: Космос: Возможные миры / Cosmos: Possible Worlds (2020) W
 ```bash
 magnet:?xt=urn:btih:3592EAEF3B558B064B27AF0F57B35E76C96C0010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Shadow of the Tomb Raider (2018) [Ru/Multi] (1.0.1.0/dlc) License GOG [Definitiv
 magnet:?xt=urn:btih:D1E6EACFE5FA829E2D5906BD1C7D856F1AAE4B21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D1E6EACFE5FA829E2D5906BD1C7D856F1AAE4B21
 ```bash
 magnet:?xt=urn:btih:DCCE98B4EE88C6667EAD6AA2693D0DDF3A479B41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:DCCE98B4EE88C6667EAD6AA2693D0DDF3A479B41
 magnet:?xt=urn:btih:15E3FF896EE154E8B65B7BC45F72E4189C79CDB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:15E3FF896EE154E8B65B7BC45F72E4189C79CDB1
 ```bash
 magnet:?xt=urn:btih:4E58741E94EB11DF5EE889A612BEF489C4E21753
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:4E58741E94EB11DF5EE889A612BEF489C4E21753
 magnet:?xt=urn:btih:23F0971D69693B006396840823EA65A202696619
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:23F0971D69693B006396840823EA65A202696619
 ```bash
 magnet:?xt=urn:btih:714CB5B61014DC359EF0395BC015BB76D14E4AB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Watari-kun no xx ga Houkaisunzen / Watari-kun's ***** is About to Collapse / XX 
 magnet:?xt=urn:btih:536190050D94D0F15DE02215F5697349CFF83BE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:536190050D94D0F15DE02215F5697349CFF83BE5
 ```bash
 magnet:?xt=urn:btih:012228F3B4B13A1BCFFA6CEC3359F38A35835FA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:012228F3B4B13A1BCFFA6CEC3359F38A35835FA9
 magnet:?xt=urn:btih:AB9F99483DE5B8C2E864F1A75ED5364935E9BE9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:AB9F99483DE5B8C2E864F1A75ED5364935E9BE9A
 ```bash
 magnet:?xt=urn:btih:48F46C7137549C704F47AB101BA6D01BE6CB3CEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Knock on the Coffin Lid - ролевая игра с элементами стр
 magnet:?xt=urn:btih:3C81370AD047B3A05677A75166B418EBAF30ABD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Yofukashi no Uta Season 2 | Песнь ночных сов [ТВ-2] [2025, TV, 1
 ```bash
 magnet:?xt=urn:btih:C17F4597F756B3FB0347EC21B35592FCFF2D2F9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:C17F4597F756B3FB0347EC21B35592FCFF2D2F9B
 magnet:?xt=urn:btih:B649FE97A79CD87C604E6CEFD90EF7705E29E909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:B649FE97A79CD87C604E6CEFD90EF7705E29E909
 ```bash
 magnet:?xt=urn:btih:6590E40E91BB53ACAC4A84CFB5080AAFD7E0BBF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.8.0) Repack FitGirl
 magnet:?xt=urn:btih:7536CA034DBC9DA3C27A7E11C2DAEA0850BDA838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Police Simulator: Patrol Officers - симулятор полицейского,
 magnet:?xt=urn:btih:616549AFDEC7D66D6E8AD99A6721873441B990F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +434,8 @@ magnet:?xt=urn:btih:616549AFDEC7D66D6E8AD99A6721873441B990F5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ NoBorderVPN — анонимный и стабильный VPN. 3 дня бес�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Car Dealer Simulator открывает путь в сферу торговли 
 ```bash
 magnet:?xt=urn:btih:A97A204B3A6E4BA0A0DD5CBFB392340580A079F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:A97A204B3A6E4BA0A0DD5CBFB392340580A079F3
 magnet:?xt=urn:btih:E1F591156300E03FC1B4681C3CDC09289B95D869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:E1F591156300E03FC1B4681C3CDC09289B95D869
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:E1F591156300E03FC1B4681C3CDC09289B95D869
 magnet:?xt=urn:btih:055E5345E8F36F37B7F66CD96571BF304735E5FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ HELLCARD – это карточный «рогалик», поддержива�
 ```bash
 magnet:?xt=urn:btih:B67CAAF7EBA082845F99B91DCB0E94015154C7C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:B67CAAF7EBA082845F99B91DCB0E94015154C7C8
 magnet:?xt=urn:btih:55A48C88F3C797A51972398B47F85A70D6954638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (1.173s) Repack Pioneer
 magnet:?xt=urn:btih:E7CCDB86DAADE599371E6FA624ECD5DC1E5BA3CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Reus 2 выделяется своей уникальностью и увлек�
 ```bash
 magnet:?xt=urn:btih:1FF8F4DF91739934238CDD243C67561270AEB94D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Record Super Chart 616 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 magnet:?xt=urn:btih:67393C7254D18104444DDB479CEF93A52BFA5DC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:67393C7254D18104444DDB479CEF93A52BFA5DC8
 magnet:?xt=urn:btih:7E9C54CE3527CB7D6F00FD47AA9BEF911B994A99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:7E9C54CE3527CB7D6F00FD47AA9BEF911B994A99
 ```bash
 magnet:?xt=urn:btih:EBC18D8CB2C4C58D255564F7FFC97085BB21BF84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ VA - Cosy Christmas Lounge, Vol. 1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, L
 magnet:?xt=urn:btih:457B8E9009069CF1BBBA9DC9785DBC59037FC75B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:457B8E9009069CF1BBBA9DC9785DBC59037FC75B
 magnet:?xt=urn:btih:DACB01893443567C2547834249F043786B4195FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:DACB01893443567C2547834249F043786B4195FF
 ```bash
 magnet:?xt=urn:btih:078A79BEB6A028B8A7774128D38ADF99F41F2118
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ VA - Christmas and Chill Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 magnet:?xt=urn:btih:B4F7A2929C04467E2A03EA93188FAD0D6FD85AE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:B4F7A2929C04467E2A03EA93188FAD0D6FD85AE5
 magnet:?xt=urn:btih:0019CCAB091EFD4A1F9C9A94F46F3605D7C5694B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:0019CCAB091EFD4A1F9C9A94F46F3605D7C5694B
 ```bash
 magnet:?xt=urn:btih:BAA8EE257363D6A4431BD99D17978B9D3AC3E7B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ VA - Love Pop Songs (2020) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:202D621927FC6F330B5650D7A72F147C2949A9FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:202D621927FC6F330B5650D7A72F147C2949A9FB
 ```bash
 magnet:?xt=urn:btih:AC48D367DD16F0D51C0D90E2E0357C777AF2EED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:AC48D367DD16F0D51C0D90E2E0357C777AF2EED2
 magnet:?xt=urn:btih:60AFF619D331E81DC83AAF4FACC0549CB5F8E6CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ WinCatalog - это простая в использовании програм�
 ```bash
 magnet:?xt=urn:btih:254F3D1F237A356F327592B1943A352E3E5CFCDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:254F3D1F237A356F327592B1943A352E3E5CFCDF
 ```bash
 magnet:?xt=urn:btih:4A918B1696EA599CE477E930435FFDB0BAA8A7DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ VA - Festival Indie Pop Rock Music (2019) [MP3|320 Kbps] <Indie, Pop, Rock, Alte
 magnet:?xt=urn:btih:77FEEC37BBDB74E1E976CDE8E4372EA785D71529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ VA - Sensual Christmas Chill (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:D1FA81DD37A4B4F83EBE7A58BDDBEA69AF8C40C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:D1FA81DD37A4B4F83EBE7A58BDDBEA69AF8C40C8
 ```bash
 magnet:?xt=urn:btih:4112E49344DA48D73C42EA715E666A34400959AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:4112E49344DA48D73C42EA715E666A34400959AC
 magnet:?xt=urn:btih:22DACA02A36DF84DF9C7A863250890999A7F02B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:22DACA02A36DF84DF9C7A863250890999A7F02B7
 magnet:?xt=urn:btih:F584415D747609308216813EADBE668B11684160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ Highrise Mogul - игра про магнатов о строительстве 
 ```bash
 magnet:?xt=urn:btih:9F3126D92E02AD4244305C68A8EF5620D0963AFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ Jack Pashley - The Music of Ollundra (2016) [FLAC|Lossless|WEB-DL|tracks] <Sound
 magnet:?xt=urn:btih:3E7EDE2B66A69CBCF11D7598310ACAE59392FFC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ VA - Portal: New Synthwave Music (2019) [MP3|320 Kbps] <Synthwave, Synthspace, E
 magnet:?xt=urn:btih:47517339F7C8CB83DC23B6ED2BF4E010CA6F521E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:47517339F7C8CB83DC23B6ED2BF4E010CA6F521E
 ```bash
 magnet:?xt=urn:btih:BFB66BEEFC7F23E58268F4DC610CC14C0F62B64D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ Volbeat: Let's Boogie Live From Telia Parken (2018)  Blu-ray [H.264/1080i] [EN]
 magnet:?xt=urn:btih:093392801416DD4A88EDEEB617136F21CA628287
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:093392801416DD4A88EDEEB617136F21CA628287
 magnet:?xt=urn:btih:86136BD545B716676D3A5818000A9A46B0BF476F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:86136BD545B716676D3A5818000A9A46B0BF476F
 ```bash
 magnet:?xt=urn:btih:E75F5231DB22E4B3814E083696FCA79F7E833605
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

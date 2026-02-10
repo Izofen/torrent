@@ -19,6 +19,8 @@ Celemony - Melodyne Studio 5 5.3.0.011 STANDALONE, VST 3 (x64) [En]
 magnet:?xt=urn:btih:2BAAF9BDE9B4C1E9CEC11C6DC02D1F896CF9E6F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ W.A.Production - CHORDS Pro 1.0.0 VSTi, VSTi3, AAX (x64) [En]
 magnet:?xt=urn:btih:01FF1C7550D0A0062128ECA2B593C56A946F6CD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Leawo Total Media Converter Ultimate - это идеальное приложе�
 magnet:?xt=urn:btih:9BED17DE67EC9580A57C0F6B248246E353728918
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Elevate — это самый продвинутый плагин для мас�
 ```bash
 magnet:?xt=urn:btih:2C3F23134268304CBFB909FD478920F884B50EDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Plugin Boutique & Samplify представляют - Carbon Electra - мощн�
 magnet:?xt=urn:btih:4DEB5815D229C8780BE333DD91FAA6095A320071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ VideoProc включает 4 модуля: Видео-конвертер, DVD Р
 magnet:?xt=urn:btih:01138134D4F8B5651E134FF84052AE8C80C70369
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ MAGIX - ACID Pro Next Suite 1.0.3 (Build 26) (x86/x64) [Multi]
 ```bash
 magnet:?xt=urn:btih:DDF4658133472CAC2EE4B3AABE6F7F6B7DEEA0A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ GRANULIZER 2 - это программный синтезатор гранули
 magnet:?xt=urn:btih:840E104FB520BAD55A315C78F700782E1DAEC214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Soundop - универсальный звуковой редактор, кото
 magnet:?xt=urn:btih:15860D0B739D3FF9CE75F8C68B45665E9762F9C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Tipard DVD Creator - это одна из лучших профессионал�
 ```bash
 magnet:?xt=urn:btih:D182504A5DB1F9E80424FA50353889E419C35E02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ AnyMP4 DVD Creator – профессиональная программа, ко
 magnet:?xt=urn:btih:DE99509DB954CD9D2664EA32F53CAED5AC8BC49D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ AnyMP4 MXF Converter 8.0.10 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:67CFCF80E58D567F3CD3F44007D7B5C71BCCD540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ zplane - Elastique & PPM Bundle (2019.9) STANDALONE, VST, RTAS, AAX RePack by VR
 ```bash
 magnet:?xt=urn:btih:082E9214241754066DA06BC3E7FACAE8E87E67E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Pulsar Echorec - это программная эмуляция легендар
 magnet:?xt=urn:btih:D757B2EFA13C89773F8E1C0F9C98E005EDF33207
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Arturia - 3 Preamps & Filters 1.1.0 VST, VST3, AAX (x86/x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:E864A18A8DB5CC0C0D8747E0B09839187FD9F0C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Minimal Audio - Rift Filter Lite 1.3.2 VST, VST 3 (x64) [En]
 magnet:?xt=urn:btih:0227BAC65A53421429D5DA38E2EEEFFC4192E678
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Minimal Audio - Rift Feedback Lite 1.1.0 VST, VST 3 (x64) [En]
 magnet:?xt=urn:btih:028FF6DEE4CF442F490137973E590E4C0DCD63BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ Aurora HDR 2019, которая идеально подходит для фот�
 ```bash
 magnet:?xt=urn:btih:CEE7DA84B5D319A20EFE1627144DC951FBCD5678
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ VideoSolo DVD Creator - это программа для создания соб
 magnet:?xt=urn:btih:86BA3D22992A5A3ADB0CE818E8923BF737D63B01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Studio V5 LogoMaker – программа является инновацион
 ```bash
 magnet:?xt=urn:btih:8916A32C93C93C93D9DBEE192EF1880F7F87A868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ MIDIRenderer- это простая в использовании програм
 magnet:?xt=urn:btih:FA7FBEFD701F374774817E49744D7193D572E14F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ Ashampoo ActionCam 1.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:FC21C8D68118FA7C920E7A51EB1AD662FE8BEE80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Winyl — минималистичный аудиоплеер с открыты�
 ```bash
 magnet:?xt=urn:btih:D65B91DA3307385B66D484746A40BBB06E9A4F90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ Parallel Compressor - также известное как «New York compressio
 magnet:?xt=urn:btih:A0429BC10E0DFBD82A5A47C593592A25E5A701F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ iSkysoft iMedia Converter Deluxe 10.3.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B346E86309ED82876FD5A449F179034744462460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +683,8 @@ Analog Lab дает вам упрощенный доступ к 6500+ из са�
 ```bash
 magnet:?xt=urn:btih:2AAE7F613EBA0CF9CE4B45346575BF9BC3777A72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

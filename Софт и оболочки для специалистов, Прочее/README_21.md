@@ -19,6 +19,8 @@ Safe Mode Launcher - бесплатная портативная програм�
 magnet:?xt=urn:btih:D2513816BC8E4C9B5F222ADF1CC0CE6B35726BFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ AMIDuOS — это новейший продукт от американской
 ```bash
 magnet:?xt=urn:btih:0A818704CE8F064797B893EA215903B6E4FFE6E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Advantage Database Server (ADS), созданный компанией Extended 
 magnet:?xt=urn:btih:D2905AC28059652722EC28300C565457C6CBE59D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Shutter Pro 4.2 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6DE076179CF39925A7BBECC1C6B6C8E3D20A2523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Radialix Localizer - это программа для перевода прил�
 magnet:?xt=urn:btih:0154DAF3D224F592010595E94DBA3DCA2013F7E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ SDL Passolo Collaboration 2016 16.0.391.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:E55AAA1458AEE9E10510F0E56E272C50D938225A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ KDevelop - мощная интегрированная среда разрабо
 magnet:?xt=urn:btih:227664CCF0A84E3BC63D4AE4B818EA4F21B4C0D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ BricsCAD V18 – единственная в мире САПР, которая �
 ```bash
 magnet:?xt=urn:btih:2C33776607605C16F88F8C0C95BF4E037677C468
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ T-FLEX CAD - профессиональная конструкторская п�
 magnet:?xt=urn:btih:A00A3F1B1B87D78F0278C1E0857163DC169D55C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ PascalABC.NET – это язык Delphi (Object Pascal) для платформ
 ```bash
 magnet:?xt=urn:btih:6F2A23D8E235FA9968013C76CD723D70F248A690
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Autodesk EAGLE - это комплексное средство для разр�
 magnet:?xt=urn:btih:B384D9D831796CA560A5326C250773083F6C752F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ CD-версия "2k10 Live", содержит только C9PE и сокращ�
 ```bash
 magnet:?xt=urn:btih:EE873997697FE5859DEEC4E49A23C5BB185235FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ MD(UEFI) версия 2k10, адаптированная под размер 1,4
 magnet:?xt=urn:btih:45E80B6E45623F03BEF245B1E56949F5979A78F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Visual Studio 2019 - полнофункциональная и расширяе�
 ```bash
 magnet:?xt=urn:btih:5F42B40EB3C6EE561187E319C1DCDA547E2BD19D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Muscle Premium 4.0.09 Portable [Multi]
 magnet:?xt=urn:btih:75CB5DDE770A0E194D7F84B667FAA78A65A7C1D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:75CB5DDE770A0E194D7F84B667FAA78A65A7C1D0
 magnet:?xt=urn:btih:98A52FAC4410FA3B20B8CFFF43FF36CEEFA9E64C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ JOSM — Это полнофункциональный, бесплатный и 
 magnet:?xt=urn:btih:66391B344732377682FCCC5BDC228369246549F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ ChemOffice Professional — это самый надежный в мире на�
 ```bash
 magnet:?xt=urn:btih:FFD8AFCE500D9D9DCD4A02C9E0EF1FDB39272DF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ Posteriza – это бесплатное программное обеспеч�
 magnet:?xt=urn:btih:0848FBF542D3EF40F57EFF4C0ABF8F7E29EC2FD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ VanDyke SecureCRT 8.0.1 (x64/x86 build 1082) April 26, 2016. Эмулятор т
 ```bash
 magnet:?xt=urn:btih:F86E142EE47A37621C4D44725173BE45A3B4C232
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ Ieshua's Live-DVD/USB 2.16 [Ru]
 magnet:?xt=urn:btih:DF6DEEFC967D10AB99E8029EAC870DE2371E9F8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:DF6DEEFC967D10AB99E8029EAC870DE2371E9F8E
 ```bash
 magnet:?xt=urn:btih:08C390A8171A8F4C82511A6F869A643C81085A7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ WinSetupFromUSB позволяет создать загрузочную USB-ф�
 magnet:?xt=urn:btih:2D8EA1D37FBB96DB5FD253FF9EB6DAA3986CFFBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ USB Drive Factory Reset Tool – помогает восстановить ил�
 ```bash
 magnet:?xt=urn:btih:AE491FA6B9E0AB5753990AE86BF0EBAB10093EF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ Atmel Studio 7 - полнофункциональная, бесплатная и
 magnet:?xt=urn:btih:92E37DCF9EF92526DF7E82044192092F873B59DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ JetBrains Intellij IDEA 2018.3.2 [En]
 ```bash
 magnet:?xt=urn:btih:47BC0F2B0BCDAB26BEC12382E36697360C3CB528
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

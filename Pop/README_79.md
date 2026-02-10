@@ -22,6 +22,8 @@ C.C.Catch - Heartbreak Hotel (2000) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Euro
 magnet:?xt=urn:btih:BE9E4113E46A537B01FCA7D7971F853DEDAE559F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Lufthaus & Robbie Williams - Visions, Vol. 1 (2023) [FLAC 24/44.1|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:A8F7DBEBDE17DA4091C7039A737B058C72228863
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:A8F7DBEBDE17DA4091C7039A737B058C72228863
 magnet:?xt=urn:btih:4AAEBFC98632F52D9F04E2E8DEA2EDABE92277B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:4AAEBFC98632F52D9F04E2E8DEA2EDABE92277B4
 ```bash
 magnet:?xt=urn:btih:9F1FB4E915C203FD075BE918BAC0BB84237DCB72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Olivia Newton-John - Just The Two Of Us: The Duets Collection (Vol. 2) (2023) [F
 magnet:?xt=urn:btih:7AEE9D84E62673C84E814A9706F95A511F8A0AA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:7AEE9D84E62673C84E814A9706F95A511F8A0AA2
 ```bash
 magnet:?xt=urn:btih:F2C91683BF97A95EA406F5022928817E912154FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Dorian Electra - Fanfare (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:A26BDD0227A884983B5CAC32086AD8B2C412C2C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Giorgio Moroder - On The Groove Train Volume 1 - 1975 - 1993 - Best Of (201
 ```bash
 magnet:?xt=urn:btih:56E1EDABBC0C98BAFF7FF0C2DAA36B222A0F80D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Bad Boys Blue - The Fifth (1989) [OGG Vorbis|700 Kbps] <Electronic, Disco, Synth
 magnet:?xt=urn:btih:1D36BCD3877C0754C9037A716E59F3C3100C34FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Fancy - Flames Of Love (1988) [OGG Vorbis|600 Kbps] <Electronic, Disco, Synth-po
 ```bash
 magnet:?xt=urn:btih:041F3C15170B1B563EA68DED6274B9DFBB95D293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Fancy - Contact (1986) [OGG Vorbis|550 Kbps] <Electronic, Pop, Disco>
 magnet:?xt=urn:btih:E0158AEABE3A81A279F096AF8C056112604E33FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ Funny Twins - You And Me (1987) [OGG Vorbis|700 Kbps] <Electronic, Disco, Italo-
 ```bash
 magnet:?xt=urn:btih:F8BE832A9C0E0B3E424C1C8C9E7D202F93B47FD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +368,8 @@ Bad Boys Blue - Game Of Love (1990) [OGG Vorbis|650 Kbps] <Electronic, Pop, Disc
 magnet:?xt=urn:btih:4C32B1DFF8D17174B6C58BF1D3A717C9997CE548
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ magnet:?xt=urn:btih:4C32B1DFF8D17174B6C58BF1D3A717C9997CE548
 ```bash
 magnet:?xt=urn:btih:3BF9D870C0CB333E882F98A35A078EF7357F8550
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +426,8 @@ Sade - Promise (1985) Portrait RK40263 [FLAC|Lossless|image + .cue]< Sophisti-Po
 magnet:?xt=urn:btih:007953AD302DEDA08CFD39EAA9B6A309A8EF70F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +454,8 @@ VA - Disco Made Me Do It, Vol. 4 [MP3|320 Kbps] <Electronic, Nu-Disco>
 ```bash
 magnet:?xt=urn:btih:2ACFB23297661137FAA7C8537009B0045BAFBFD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +484,8 @@ VA - The Greatest Love Songs (2020) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:A2220D4ED9736A931871712DE17BA18993C1440E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +512,8 @@ magnet:?xt=urn:btih:A2220D4ED9736A931871712DE17BA18993C1440E
 ```bash
 magnet:?xt=urn:btih:5160F7440D9E11023451564908AD5A5D826EDA7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +542,8 @@ VA - Sex Music 2023 [MP3|320 Kbps] <Pop, RnB, Other>
 magnet:?xt=urn:btih:00CC462EB7CC9B142D29B7769DFBC6418E726FD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +570,8 @@ magnet:?xt=urn:btih:00CC462EB7CC9B142D29B7769DFBC6418E726FD4
 ```bash
 magnet:?xt=urn:btih:54978FF69C1E04B83D326D2230D8C7A2E28D9FA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +600,8 @@ VA - 50 Highway Drive Evergreen Hits (2020) All Tracks Remastered [MP3|320 Kbps]
 magnet:?xt=urn:btih:C8B3E5C34BE47E251D4523DC9D19428EA542B395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ Patti Brooks - Party Girl (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco
 ```bash
 magnet:?xt=urn:btih:01A28804E4647312C3D5E1F5B5B617470435E3FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +658,8 @@ Wham! - The Singles: Echoes from the Edge of Heaven (2023) Expanded Edition [FLA
 magnet:?xt=urn:btih:AA5EE587B10702756A82C1C378FE9F6FBD039009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +686,8 @@ Kylie Minogue - Tension (2023) Deluxe [FLAC|Lossless|image + .cue] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:8340832DDF2C290DEE2D12B69027F8B92C5DED04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +716,8 @@ Mae Muller - Sorry I’m Late... Again (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop
 magnet:?xt=urn:btih:98FBD4CC6DC5B2C4FC4A7A3937630938C2ADE152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ Momo Yang - Salsa Jeans (1977) LP [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:55088C0714C4A72947A6C30B8EC6A9236BD1A823
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

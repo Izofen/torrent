@@ -1,3 +1,29 @@
+###  Публикация: 1279686   (764469) от 31.01.2019
+
+Михаэль Фукс-Гамбёк, Торстен Шац | Rammstein. Горящие сердца (2018) [FB2]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_764469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта неофициальная биография рассказывает всю историю Rammstein – с создания до их последнего альбома Liebe ist für alle da. Подробно, непредвзято, взвешенно. Эпатажные тексты их песен нарушают все мыслимые табу, а специфический ритм, фирменный стиль и сценические выступления узнаваемы во всем мире. Где бы они ни выступали, их везде встречают на ура. Культовая (   Читать дальше...   )Жанр: Биографии и мемуары, МузыкаПеревод: В. Щербакова, А.Е. ХреноваФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACCC58751EED4416581DE9156CAE432E3F9587D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394355   (764510) от 04.07.2020
 
 Джеймс Альтушер | Выбери себя! (2018) [EPUB]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:BE27815A55FB11888DE1BE7BBA17A22183ED10C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:BE27815A55FB11888DE1BE7BBA17A22183ED10C8
 magnet:?xt=urn:btih:48A8732E0A910C2A574430E04541C904A7F28911
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:48A8732E0A910C2A574430E04541C904A7F28911
 ```bash
 magnet:?xt=urn:btih:734E3D588B3EFF7BE0F144871AA7983AFB4E6FE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:734E3D588B3EFF7BE0F144871AA7983AFB4E6FE5
 magnet:?xt=urn:btih:C18E58091297404606C953A91846AD7FC30C4116
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:C18E58091297404606C953A91846AD7FC30C4116
 ```bash
 magnet:?xt=urn:btih:97B513B75E599150C3ADAABE93A670628E011A27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:97B513B75E599150C3ADAABE93A670628E011A27
 magnet:?xt=urn:btih:1BE6C70B767581F2F6ABBEE44C722DA5F2277DCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:1BE6C70B767581F2F6ABBEE44C722DA5F2277DCE
 ```bash
 magnet:?xt=urn:btih:546BA0566B0D21A721D7D4B4B01FCBAD9C10E26E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:546BA0566B0D21A721D7D4B4B01FCBAD9C10E26E
 magnet:?xt=urn:btih:25003EF0356C7390F6C8FF5C2EFB0E52E6548B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:25003EF0356C7390F6C8FF5C2EFB0E52E6548B13
 ```bash
 magnet:?xt=urn:btih:C876BB291D27BCAEBE5744B348FCA1351660C86B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:C876BB291D27BCAEBE5744B348FCA1351660C86B
 magnet:?xt=urn:btih:074441C4169743B63444A6E798995BE1497B9773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:074441C4169743B63444A6E798995BE1497B9773
 magnet:?xt=urn:btih:C5A668F932EDA2E3C65751E93DDBC1A534EB924E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:C5A668F932EDA2E3C65751E93DDBC1A534EB924E
 ```bash
 magnet:?xt=urn:btih:C0BE1B7B1783BA6E20E16E6EDB71C143A4E44464
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:C0BE1B7B1783BA6E20E16E6EDB71C143A4E44464
 magnet:?xt=urn:btih:517C28946C28CF331EA8DCF5F33BF51000907CD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:517C28946C28CF331EA8DCF5F33BF51000907CD0
 magnet:?xt=urn:btih:63F3D827E0F7A74669607D0F521E579BF7AD6794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:63F3D827E0F7A74669607D0F521E579BF7AD6794
 ```bash
 magnet:?xt=urn:btih:B5A598F9C3EA2C32D532CE604369CD6CA6D1D0CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:B5A598F9C3EA2C32D532CE604369CD6CA6D1D0CF
 magnet:?xt=urn:btih:A391F31BD38D81CF036B8C9A4585DCA7969445E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:A391F31BD38D81CF036B8C9A4585DCA7969445E7
 ```bash
 magnet:?xt=urn:btih:451E1FF9BBD3BBC4812E0A8EC17D3E2ADCBEAC6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:451E1FF9BBD3BBC4812E0A8EC17D3E2ADCBEAC6D
 magnet:?xt=urn:btih:7AE897BBA09CBF34D06EF0670E5619D7CCF4A8AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:7AE897BBA09CBF34D06EF0670E5619D7CCF4A8AF
 ```bash
 magnet:?xt=urn:btih:80146DD3A3C12367069950BBD28ED787E6ED6722
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:80146DD3A3C12367069950BBD28ED787E6ED6722
 magnet:?xt=urn:btih:734964DFCE91E8098DC65C5EDB7F1AB793AA1E57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:734964DFCE91E8098DC65C5EDB7F1AB793AA1E57
 ```bash
 magnet:?xt=urn:btih:25D9265EA8A5D5B645E5FD69B1D5DB02495A6D1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:25D9265EA8A5D5B645E5FD69B1D5DB02495A6D1C
 magnet:?xt=urn:btih:ED6967510AB1BA661DB73DA82BE2BD64D1B6303D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:ED6967510AB1BA661DB73DA82BE2BD64D1B6303D
 ```bash
 magnet:?xt=urn:btih:1CF264310143BF192CD4474429A3B8AC8BE52008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:1CF264310143BF192CD4474429A3B8AC8BE52008
 magnet:?xt=urn:btih:48031D18B95CEFB04022993AED26FA51E3172415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:48031D18B95CEFB04022993AED26FA51E3172415
 magnet:?xt=urn:btih:3358C9091F963A829594687FD31621A9F4C2C903
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214045   (765672) от 20.03.2018
-
-Кэролайн Уилльямс | Мой продуктивный мозг. Как я проверила на себе лучшие методики саморазвития и что из этого вышло (2018) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_765672.jpg" />
-</div>
-
-
-###  Подробнее
-
-В очередной раз, опоздав на встречу в новом кафе, вы шутите, что страдаете географическим кретинизмом? Связки ключей разложены по всем сумкам и курткам, но вы их все равно не можете найти, когда нужно? Постоянно забываете, когда день рождения у свекрови и годовщина вашей свадьбы? Не отчаивайтесь, это лечится! Кэролайн Уилльямс, журналист и редактор, взяла на себя (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12556ED079693CD5D8F89B163913805FE5BE1391
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

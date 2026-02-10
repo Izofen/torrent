@@ -19,6 +19,8 @@ Broken Sword 5: The Serpent's Curse (2014) [Ru/Multi] (3.0.5) License GOG [Episo
 magnet:?xt=urn:btih:F6D068CFF42A3D62D2736DC300E27992B0B57754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:F6D068CFF42A3D62D2736DC300E27992B0B57754
 ```bash
 magnet:?xt=urn:btih:B0437257D3F4FF31B0004EC52B3288D98F4E03A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:B0437257D3F4FF31B0004EC52B3288D98F4E03A3
 magnet:?xt=urn:btih:7561780608548DA99FE9E789F5E14BF019747F24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:7561780608548DA99FE9E789F5E14BF019747F24
 ```bash
 magnet:?xt=urn:btih:A716DD3362C5FDF04282C82D8BC903F1F4585688
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:A716DD3362C5FDF04282C82D8BC903F1F4585688
 magnet:?xt=urn:btih:4F3C94450A195082C376BA193FDBE80273177392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:4F3C94450A195082C376BA193FDBE80273177392
 magnet:?xt=urn:btih:9D60332AE408E30F899CCF45575F8AAEE54A1D50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Discord может быть заблокирован или замедлен в 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Discord может быть заблокирован или замедлен в 
 magnet:?xt=urn:btih:BCC10240E7355B46FA60D42020889EC3EB8446F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Vivaldi 6.9.3447.48 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:48CEEC3008F25D88128FB0869DA2141B40364157
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:48CEEC3008F25D88128FB0869DA2141B40364157
 magnet:?xt=urn:btih:E0B50A556C6270F3A07E3A41208B385DD5A1A37C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:E0B50A556C6270F3A07E3A41208B385DD5A1A37C
 ```bash
 magnet:?xt=urn:btih:182043DBDD5BF791AE75CADC6EF2E81D55D12ADC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:182043DBDD5BF791AE75CADC6EF2E81D55D12ADC
 magnet:?xt=urn:btih:CBDD74FB3118E71AAFDF03C4752C96E6254E136D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ pdfFactory Pro - удобное приложение, представляюще
 ```bash
 magnet:?xt=urn:btih:55711D6E65E7F1E6B393C429CA727EF06E5B0B07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:55711D6E65E7F1E6B393C429CA727EF06E5B0B07
 magnet:?xt=urn:btih:3703C8BADA24327ADD73B9FA89083C9CE2E293FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ A3 There's No Me Without You(   Читать дальше...   )Жанр: Pop Ro
 ```bash
 magnet:?xt=urn:btih:46A04E0A43A43BFE63F7531C1AF2E3D1CA592D2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:46A04E0A43A43BFE63F7531C1AF2E3D1CA592D2A
 magnet:?xt=urn:btih:023BBCED2414B79B17785C238FD0F9E0F9855ADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ Whisky of Blood - Diablesse Of Revolution (2024) [MP3|320 Kbps] <Hard Rock, Rock
 ```bash
 magnet:?xt=urn:btih:DF5BC753BE679FFA75EC24D6B588D1F8195939C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ VA - Folktronic & Organic (2022) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 magnet:?xt=urn:btih:08EABD6F280748567E227537A55685A3125EF152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:08EABD6F280748567E227537A55685A3125EF152
 ```bash
 magnet:?xt=urn:btih:AFF391B98BC906E38EC2598032C7F54EEA942728
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:AFF391B98BC906E38EC2598032C7F54EEA942728
 magnet:?xt=urn:btih:0C4FCE6ABAF832C2905A906646F5366C4C9ED7AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:0C4FCE6ABAF832C2905A906646F5366C4C9ED7AD
 ```bash
 magnet:?xt=urn:btih:EC7FB23D45A5B3653BAE7A254D2DA6B0287013D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:EC7FB23D45A5B3653BAE7A254D2DA6B0287013D3
 ```bash
 magnet:?xt=urn:btih:B773B77ACC3BA4737B5B31787D85461AC6F14B4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ VA - This Is Uplifting Trance Vol. 1 (2024) [MP3|320 Kbps] <Trance, Uplifting Tr
 magnet:?xt=urn:btih:5C151E22826320D86B2DCCD0A5CAF2F73AB21836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ VA - Cafe Oriental (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 ```bash
 magnet:?xt=urn:btih:85C2F79EC32432923EE01797404A76E9CA6BB148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ VA - Arab Lounge Grooves (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
 magnet:?xt=urn:btih:5417EE8657D33D187B401B84AF4DC131EEAA406A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ Grimgotts - The Time of the Wolfrider (2024) [FLAC|Lossless|WEB-DL|image + .cue]
 ```bash
 magnet:?xt=urn:btih:19281F7F3CBDC72E7AB573D2BD7B94F0989F31F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

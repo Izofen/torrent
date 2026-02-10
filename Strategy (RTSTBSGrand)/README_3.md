@@ -19,6 +19,8 @@ WarCraft II (2) (1995) [Ru] (2.02b/dlc) Repack EXROW [Battle.net Edition]
 magnet:?xt=urn:btih:B1D551184FCD941B996A3D06DCFF5444CBE2A1F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ StarCraft — легендарная стратегия в реальном вр
 ```bash
 magnet:?xt=urn:btih:5781FF1F9FA7D2A97F64B93CAC45413889DA1C69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Bulwark - это создание своей крепости и расшире�
 magnet:?xt=urn:btih:D4376A831374E072A1F435CA3BB85EB3B29D3571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Age of Mythology: Retold - игра от создателей культовой
 ```bash
 magnet:?xt=urn:btih:A8FA0764788AC6EE73DCD5163880043904C34A53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Renaissance Kingdom Wars (2024) [Ru/Multi] (1.0) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:8E274D6C1418E881BFAF09DB9196A3D720351351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Bulwark - это создание своей крепости и расшире�
 ```bash
 magnet:?xt=urn:btih:EFB01BDBA4AFFB52FBF44E9F504C9A5BD638F72B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Fallen Enchantress (2012-2013) [En] (1.32/3.01) License GOG [Ultimate Edition]
 magnet:?xt=urn:btih:1543AD9C094AAA0B91E37B2D738FC13E318B677D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Plague Inc: Evolved (2016) [Ru/Multi] (1.20.0.0/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:6F10E603B85C87F15FEC83A55DDAB4BBFABCE1DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Assault Squad 2: Men of War Origins – новая часть знаменито
 magnet:?xt=urn:btih:35B36D883D68C82163D01D4DF69CCFB0C93F6836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Warcraft III: Reforged - это потрясающая переработанн�
 ```bash
 magnet:?xt=urn:btih:5D115B9A8C2A0D259AA6EAECD8BAAF47C5C11A64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Dead Season (2024) [Ru/Multi] (build 15673615) Repack seleZen
 magnet:?xt=urn:btih:0215304D5A95B13AD32B3DF2ED81875A0A2390F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Dead Season (2024) [Ru/Multi] (1.0.0.9) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:93FD74F699FD19FCBDB54C1315BF530BAD5B413E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dead Season (2024) [Ru/Multi] (1.0.0.9) Repack Let'sРlay
 magnet:?xt=urn:btih:B1948723527487A73F861F7871204EE8A7EBD0C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Battle Realms: Zen Edition (2001) [Ru/Multi] (1.59.1 HF5) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:EA2A1D133CD570C55145E5585281DFB3BC1C164F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Battle Realms: Zen Edition (2019) [Ru/Multi] (1.59.1) Repack FitGirl
 magnet:?xt=urn:btih:580EEE79C3EC7FEFA1FE10094D1F805B66A343BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Empire of the Ants (2024) [Ru/Multi] (1.03.20053/dlc) License GOG [Digital Delux
 ```bash
 magnet:?xt=urn:btih:3D8EC297AFE9E726E12CCAAA8BF172EF298AC98D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Company of Heroes 2 (2014) [Ru/En] (4.0.0.23468/dlc) Repack dixen18 [Master Coll
 magnet:?xt=urn:btih:120CC6B50EF55668E22A29A40CA25FEFC2B2D2F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Age of Darkness: Final Stand - это стратегия в реальном в�
 ```bash
 magnet:?xt=urn:btih:1A2F7C4BDC88DC6F18AA618837F1C03D4077EEA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Ultimate General: American Revolution (2024) [Ru/Multi] (1.0.3/dlc) Repack FitGi
 magnet:?xt=urn:btih:4B9581F4880F2F4B28DE30A290B0E2F1079CD3A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Age of Darkness: Final Stand - это стратегия в реальном в�
 ```bash
 magnet:?xt=urn:btih:6955F79C38F39EB7A3AA9ADE2C90419C41D4E74B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Wingspan / Крылья (2020) [Ru/Multi] (1.6.1065/dlc) Repack seleZen
 magnet:?xt=urn:btih:D41AE8A4A135AB02DD9391D323B0316063E72208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Touch Type Tale: Strategic Typing (2024) [Ru/Multi] (1.2.68) Repack FitGirl [Del
 ```bash
 magnet:?xt=urn:btih:DF7E9D6F040B7BF8A32519E17F6786079A0C48B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ S.W.I.N.E. HD Remaster - новое издание классической S.W.
 magnet:?xt=urn:btih:D6B8CC088932889D12FD3D9097D1429FC8CC5C9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Stellaris (2016) [Ru/Multi] (3.14.15926/dlc) Repack Decepticon [Galaxy Edition]
 ```bash
 magnet:?xt=urn:btih:A1344E5EE139753A4AF1C7BA40A362F3E81B6BA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ WARNO (2024) [Ru/Multi] (141373/dlc) Repack FitGirl
 magnet:?xt=urn:btih:0D8068E4FC549B17C0E58925DCB700E67FBB133D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ magnet:?xt=urn:btih:0D8068E4FC549B17C0E58925DCB700E67FBB133D
 ```bash
 magnet:?xt=urn:btih:9DED39A80B92B33E58AC47F4A91305007DF57B0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

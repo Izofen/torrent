@@ -1,3 +1,29 @@
+###  Публикация: 1478463   (1010305) от 19.06.2021
+
+Kore ga UFO da! Soratobu Enban | That is an UFO! The Flying Saucer | Это НЛО! Летающая тарелка [1975, Movie] BDRip 360p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1010305.jpg" />
+</div>
+
+
+###  Подробнее
+
+НЛО и пришельцы из-за пределов звезд - обычные темы в средствах массовой информации, развлечениях и других формах научной фантастики. Однако многие люди клялись, что видели НЛО и были похищены в реальной жизни! Устройтесь поудобнее и наблюдайте, как создатели Mazinger отправят вас в путешествие по историям об НЛО. Неужели НЛО реальны и инопланетяне наблюдают за нами (   Читать дальше...   )Производство: студия Toei Animation / 東映アニメーションЖанр: фантастикаРежиссер: Сигэно КадзукиёПеревод: VallЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 16 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF0D873308667ED6D37DBB58708633246BB6C222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478462   (1010333) от 19.06.2021
 
 Uchuu Enban Dai-Sensou | The Great Battle of the Flying Saucers | Великая война летающих тарелок [1975, Movie] BDRip 760p raw
@@ -18,6 +44,8 @@ Uchuu Enban Dai-Sensou | The Great Battle of the Flying Saucers | Великая
 ```bash
 magnet:?xt=urn:btih:AB6EA8E5773CA8B5A7501B1A39E6557653E22281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ Mashiro no Oto | Those Snow White Notes | Чистый звук [2021, TV, 12 э
 magnet:?xt=urn:btih:6F9893269548D95D3D035C71266A4072AD31BCC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ Shakunetsu Kabaddi | Burning Kabaddi | Пламенное кабадди [2021, 
 ```bash
 magnet:?xt=urn:btih:6A4B7070097438DA25839E9098195B28C1719135
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ Pop Team Epic | Попсовый эпос [2018, TV, 12 эп.] BDRip 1080p 10-bi
 magnet:?xt=urn:btih:8F29BF9FFDF67D28BB0766C54C06DFC40F38B7B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ Jouran: The Princess of Snow and Blood | Joran: The Princess of Snow and Blood |
 ```bash
 magnet:?xt=urn:btih:460EFC6735C449C28830372232DAF7156D08FEA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ Kuroko no Basuke / Kuroko's Basketball / Баскетбол Куроко [2012, 
 magnet:?xt=urn:btih:0AA7B97CAC2D2DE5C9EBF962879B06CF1BF48003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ Kamisama Hajimemashita | Kamisama Kiss | Очень приятно, Бог [2012
 ```bash
 magnet:?xt=urn:btih:B1C202EAB11147E74E666C6D6BE2FD5915112746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ Zoku Touken Ranbu: Hanamaru | Танец мечей: Цветочный круг
 magnet:?xt=urn:btih:9D3362C9D29E9166E87FE4E70CB6C34280A6FA86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ Kuroko no Basuke 3rd Season | Баскетбол Куроко [ТВ-3] [2015, TV
 ```bash
 magnet:?xt=urn:btih:978056F88811BAE1A3FD70525ECB0AED0EE721ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ Ame-iro Cocoa: Rainy Color e Youkoso / Какао цвета дождя [ТВ-2]
 magnet:?xt=urn:btih:2C271B997EB39A24B8603190616DBBDC02D7C08D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ Eyeshield 21 / Забрало 21 [2005, TV, 145 из 145] TVRip 480p Raw
 ```bash
 magnet:?xt=urn:btih:3547C53C3C53DB49696C8A9E9BA57AE87372DB88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ Soukou Kihei Votoms | Armored Trooper Votoms | Бронированные вои
 magnet:?xt=urn:btih:1A7642EAF9EC59C18790226BEA9E31DDDA0BE7B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ Soukou Kihei Votoms: Big Battle | Armored Trooper Votoms: Big Battle | Брон�
 ```bash
 magnet:?xt=urn:btih:5BF756F10271BB6607510DC70131C921C7D820D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ Soukou Kihei Votoms: Gen-ei Hen | Armored Trooper Votoms: Phantom Arc | Брон
 magnet:?xt=urn:btih:71EE23AEC1664FA947976F5ADD171CBA2DCD341C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ Soukou Kihei Votoms: Pailsen Files | Armored Trooper Votoms: Pailsen Files | Б�
 ```bash
 magnet:?xt=urn:btih:77976AF6182DBE2EF2A50B6B4CF97A281B89787C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ Soukou Kihei Votoms: The Last Red Shoulder | Armored Trooper Votoms: The Last Re
 magnet:?xt=urn:btih:915BC6F9FC372DD7CCCD819E2E91E1FAA58AF88F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ Soukou Kihei Votoms: Red Shoulder Document - Yabou no Roots | Armored Trooper Vo
 ```bash
 magnet:?xt=urn:btih:3B4E257A309D7F3082F7D80D288C175124F94D00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ Soukou Kihei Votoms: Pailsen Files - Gekijouban | Armored Trooper Votoms: Pailse
 magnet:?xt=urn:btih:CD691AECF6CAD9F49024A909E1E6BF29305C70AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ Niji-iro Days | Rainbow Days | Радужные деньки [2016, TV, 24 + OVA
 ```bash
 magnet:?xt=urn:btih:A72F55BEC417F772F9228D45066CEB422DB3564D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +542,8 @@ Soukou Kihei Votoms: Kakuyaku taru Itan | Armored Trooper Votoms: Brilliantly Sh
 magnet:?xt=urn:btih:97B6D521217EC3C0FBEC3F847A338C2939E785B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +567,8 @@ Rainy Color открывает новую кофейню на Гавайях, и
 ```bash
 magnet:?xt=urn:btih:D4CF390FC0C6E5EB37CC2BB0D10CE85206916EC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +594,8 @@ Aldnoah.Zero | Альдной.Зеро [2014, TV, 24 эп.] BDrip 1080p raw
 magnet:?xt=urn:btih:80EA26744BA47244088A7040FF7CF0BCBD6D7831
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +619,8 @@ Shimoneta: A Boring World Where the Concept of Dirty Jokes Doesn`t Exist / Ск�
 ```bash
 magnet:?xt=urn:btih:4A3AC70AF6B29C4B3F21DB68E7E106E81C537322
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +648,8 @@ Hataraku Saibou | Cells at Work! | Клетки за работой! [2018, TV, 
 magnet:?xt=urn:btih:4E8542D2CA095F59FDF37AE910DB0173B4624CB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,31 +674,7 @@ Dai 501 Tougou Sentou Koukuu Dan Strike Witches: Road to Berlin | Strike Witches
 magnet:?xt=urn:btih:6018EBA140E9D04987DBA9D4C82F8151371CA539
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476569   (1011700) от 11.06.2021
-
-Eiga Sayonara Watashi no Cramer: First Touch | Farewell, My Dear Cramer: First Touch | Прощай, мой дорогой Крамер (фильм) [2021, Movie] WEBRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нозоми Онда перешла в среднюю школу и продолжила заниматься своим любимым спортом. И если в детстве она могла спокойно играть с мальчишками, то теперь это попросту опасно, ведь разница в силе и сложении стала очевидна. Тренер не хочет рисковать её здоровьем, но Нозоми сделает всё, чтобы доказать, что она футболист ничуть не хуже парней.
-
-Рекомендуем так же посмотреть (   Читать дальше...   )Производство: Студия Liden Films / ライデンフィルムЖанр: комедия, спортРежиссер: Такуно СэйкиПеревод: официальный (Crunchroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 105 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1ECD216AFFF9E1EB331CA967B723B7DB7F5AC74
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

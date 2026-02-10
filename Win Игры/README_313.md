@@ -19,6 +19,8 @@ Hades II (2025) [Ru/Multi] (1.133066) Repack Necros
 magnet:?xt=urn:btih:A25ECD2309C90B9F358DEB4A0B6A6963D244411B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Of Ash and Steel (2025) [Ru/Multi] (1.04) Repack Necros
 ```bash
 magnet:?xt=urn:btih:735C0D5D0F4C30E2E3F3C3C981985871DA6993BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Hand of Fate 2 — это «ползание по подземельям» в с
 magnet:?xt=urn:btih:B0E01B25B01596043E8FA1C93013C3278B9A3101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) Repack xatab [Episode
 ```bash
 magnet:?xt=urn:btih:8A27A59BDEC7C35DAA72C64618C01CA981A89FC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Friday the 13th: The Game – игра (с одиночным и коопера�
 magnet:?xt=urn:btih:87FE679DB228565DA0768A7B9CE74C323188445C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Black Mirror (2017) [Ru/Multi] (1.1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:A2FA14B1E7E7518451D0C6DC32F5395EC77F6AB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Project Cars 2 – это вторая часть мегауспешного г�
 magnet:?xt=urn:btih:EC921FE12EAF005DF548A947752649A58D2AD044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Mind: Path to Thalamus – головоломка с видом от перво�
 ```bash
 magnet:?xt=urn:btih:B1F2920DC68F62C428CE227B1259DEC4DDE48A8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Dark Tales 12: Edgar Allan Poe's Morella / Темные истории 12: Эд�
 magnet:?xt=urn:btih:C1D7A32450F416EB918EE1DBFEB5CEBCBC66C63D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Vaporum — однопользовательская ролевая игра о�
 ```bash
 magnet:?xt=urn:btih:47A682E1A85121328CBCEBC19DFD79B246A61A64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ IL-2 Sturmovik: Cliffs of Dover / Ил-2 Штурмовик: Битва за Б�
 magnet:?xt=urn:btih:1FD9BEDF92963419A1AE81CFBA41009230F7B3C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Vaporum — однопользовательская ролевая игра о�
 ```bash
 magnet:?xt=urn:btih:A6672A8722F57839CEE9F7B004DC64FBB57FB23D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dawn of Man - уникальная историческая стратегия �
 magnet:?xt=urn:btih:DC37A4323BCE958D6650FA486F51571F0C82BC83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Wonder Boy: The Dragon's Trap - это неожиданное возвращен
 ```bash
 magnet:?xt=urn:btih:EF2BC52762B93578D801F635457743D183CA4D41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Dark City: London / Мрачный Город: Лондон (2017) [Ru] (1.0) Un
 magnet:?xt=urn:btih:9849AF07AAED219BC9B07AD7A768F23F4A9C4D0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Mystery Case Files 20: Black Crown (2019) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:93D83A1B4B157CE6ACC7BCC131B28D1E912460C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Trine Anthology (2009-2015) [Ru/Multi] (1.09/2.12/2.01/1.11) Repack R.G. Мех�
 magnet:?xt=urn:btih:6A753E7F6A9700646DE535BED96094FD5D8929B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Lift (2018) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A27BF9280F15B144A10EF8D9517866234F4E433B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Fictorum (2017) [En] (2.0.4) Repack Other s
 magnet:?xt=urn:btih:A26687DDB8100A683D8A8754813BF92371EF7BA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Dark Tales 16: Edgar Allan Poe's. Ligeia / Тёмные истории 16: Эд�
 ```bash
 magnet:?xt=urn:btih:33CF64EE6D2E13AD79EA4F7B44D145ACB90B810F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ X Rebirth: Home of Light (2016) [Ru/Multi] (4.30/dlc) License GOG [Complete Edit
 magnet:?xt=urn:btih:665E2232B0CF3242BD2637958E9F7FFDE2F49E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Renowned Explorers: International Society – это стратегическа�
 ```bash
 magnet:?xt=urn:btih:282903C536BBBB555CF516AC600F36D67202E2B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Lost Grimoires 3: The Forgotten Well / Утерянные Гримуары 3: З
 magnet:?xt=urn:btih:2470583B40C04CF2CB489BBFEC03CB9424ECFE82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Sniper: Ghost Warrior 2 - единственный кроссплатформе�
 ```bash
 magnet:?xt=urn:btih:7A2566F8247DBC4B2BCF70B4DC7D1B7EE3C44AE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Sniper: Ghost Warrior (2010) [Multi] (1.2/dlc) License GOG
 magnet:?xt=urn:btih:9A942B8F3C6B88EE6157F8643C7DD1A6F4E9E14F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Masters of Anima - это оригинальная приключенческа�
 ```bash
 magnet:?xt=urn:btih:33702B2C42355E934E5A6CD964BD8CC012E4A043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

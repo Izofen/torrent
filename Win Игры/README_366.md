@@ -1,27 +1,3 @@
-###  Публикация: 1162773   (456254) от 02.09.2017
-
-Death Point (2017) [Ru/En] (1.0) License HI2U
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_456254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Death Point – это классический стэлс-экшн, который должен не только увлечь игрока, но и удивить его. Это приключение, наполненное и азартом, и сопереживанием. На первый взгляд вы получаете почти традиционную игру, крепко укомплектованную трудно проходимыми уровнями и разнообразными задачами. На деле, вы погружаетесь в отдельный мир, полностью ассоциируя себя с главным (   Читать дальше...   )Тип издания: LicenseРазработчик: Andiks LTD.Жанр: Action (Top-Down), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F939F3CA4EA7BC6FA8439A12C661AB423BFE17C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162808   (456365) от 02.09.2017
 
 Planet Coaster (2016) [Multi] (1.3.6.45104/dlc) License STEAMPUNKS
@@ -42,6 +18,8 @@ Planet Coaster представляет собой реалистичный си
 ```bash
 magnet:?xt=urn:btih:41E894F468CE04A534D1FFF82953CBB67D89AE27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Unravel Two (2018) [En] (1.0) Repack xatab
 magnet:?xt=urn:btih:D479C4E198B841F15272B7F6678CB0155217CBDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Turok 2: Seeds of Evil - Remastered (2017) [Multi] (1.5.9/upd6) Repack Other s
 ```bash
 magnet:?xt=urn:btih:E42D07EFB9C7046C9339036EB3E739F88DAC4140
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Mines of Mars (2018) [En] (1.0) Repack Other s
 magnet:?xt=urn:btih:D12D8B582704DB4CD78E2F453B41AFB6A553FD0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Torchlight (2009) [Ru/En] (1.15(a)) License GOG
 ```bash
 magnet:?xt=urn:btih:6911179B6AEA97E049DB289406DC4B5EF61C4D1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Royal Detective 3: Legend of the Golem / Королевский детектив
 magnet:?xt=urn:btih:AC66A7DEDEDC7B701015B89AF5D8807B61F76825
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Duke Grabowski, Mighty Swashbuckler - это рисованный приключ
 ```bash
 magnet:?xt=urn:btih:C45C590BA536044808D61D66828BDAA6AB433039
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Iron Brigade + DLC [Ru/En] (RePack/1.0) 2012 | Audioslave
 magnet:?xt=urn:btih:E22EF20FF72C12681363D0F57C0310717BB32AEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Brave: The Video Game / Храбрая сердцем [Ru/En] (RePack/1.0.0.3) 2
 ```bash
 magnet:?xt=urn:btih:28C2120C48986BEA1C8C8E9F9FDC93F059623302
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Hooked on You: A Dead by Daylight Dating Sim (2022) [Ru/Multi] (1.0.15) Repack O
 magnet:?xt=urn:btih:73C856239D9DD122934FB7122C83E08669BE502C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Stairs - это атмосферный психологический хорро
 ```bash
 magnet:?xt=urn:btih:8C7F04955B96A0F3C3667FD1CBA41AEC34B5D5F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Death Point – это классический стэлс-экшн, котор�
 magnet:?xt=urn:btih:05E426F57FD8CF2A7C86F42514E860A237F5EC63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ NARUTO SHIPPUDEN: Ultimate Ninja STORM 2 - это все самое яркое, 
 ```bash
 magnet:?xt=urn:btih:59DEF85610C55A23AB4C2AF8F7D11AD040210442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Darksiders 2 (2015) [Ru/Multi] (2.1.0.4/dlc) Repack xatab [Deathinitive Edition]
 magnet:?xt=urn:btih:153DDF918A0BE80364D57762145EC6990368C889
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Unravel Two (2018) [En] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:16D388A125324DB350BB45AD5C997465B1C103D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ The Secret Order 6: Bloodline / Тайный Орден 6: Кровные узы
 magnet:?xt=urn:btih:17023ED668F76C0A01DC337B0E75158C2FB2CE0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ The Seven Chambers / Семь Залов (2018) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:AE7B7ECA47962D4A88EBF52ABD17E078D0FB7CF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Unravel Two продолжает тему оригинальной игры, н�
 magnet:?xt=urn:btih:24649FEC1D51B9BF189BDC49298968C15D0C5D3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ The Keeper of Antiques 3. The Last Will (2017) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:D6F5AB6F6318CCC0D82B7FFB4E236738D203CD1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Vermillion Watch 6: Parisian Pursuit / Алый Дозор 6: Погоня по 
 magnet:?xt=urn:btih:626BC426EAC5A898887F8686B71538E5757EA529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Phantasmat 11: Déjà Vu / Фантазмат 11: Дежавю (2018) [Ru] (1.0)
 ```bash
 magnet:?xt=urn:btih:1F8DB9933AFF97CC36F5B1ECCB100B5A132CE604
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +567,8 @@ F1 2012 — это новая часть всемирно известной с�
 magnet:?xt=urn:btih:638CC0C3725AB5F7EB07C6C2EAB079F0B4B15D89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +592,8 @@ Necromunda: Underhive Wars (2020) [Ru/Multi] (1.0.4.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9F220707C7F50F5C99E9058FB74F3A9BD434FA34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +623,8 @@ Castlevania: Lords of Shadow 2 (2014) [Ru/Multi] (1.0.0.1/4dlc) Repack R.G. Reve
 magnet:?xt=urn:btih:C41E61636240DD180B9474C9C15C05886A52EFEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +652,34 @@ Tony Hawk's Pro Skater HD [En/Multi5] (Lossless Repack/1.0.u.1) 2012 | R.G. Reve
 ```bash
 magnet:?xt=urn:btih:78CF9FCBAAFC47462D97C10F37334220E321EC62
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 241423   (459904) от 01.10.2010
+
+Zombie Pirates - Collector's Edition [Eng] (P) 2010 | THETA
+
+>>Win Игры
+>>Strategy/Manager/Business (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_459904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультяшная игра в жанре аркадной стратегии, по механике напоминающаяТип издания: ПираткаРазработчик: Dust Devil StudiosЖанр: Strategy, Arcade, Real-time Strategy, Action, CasualЯзык озвучки: Язык интерфейса: 
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

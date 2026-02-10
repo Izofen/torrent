@@ -25,6 +25,8 @@ Tony O'Connor - 26 albums (1989-2007)[MP3|192-320 kbps]<New Age>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Amy Lynne Johnson - Piano Poetry, Vol. 2: Music to Calm the Mind and Lift the He
 magnet:?xt=urn:btih:0CC3278BB5A3E45B82288328B785694CBFD115B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -78,6 +82,8 @@ Peaceful Piano - Soothe: Solo Piano (2016) [MP3|320 Kbps] <New Age, Solo Piano>
 ```bash
 magnet:?xt=urn:btih:3743044204EA00905E6127552546F66F9A64A6BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -112,6 +118,8 @@ Disc 1:
 magnet:?xt=urn:btih:C4E78BDD67A9F3D957206A0B6B14017569A33BE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +146,8 @@ Frank Squillante - Take Me There (2016) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:33FB564614F31D253E0DF982138A7EAD13CA2050
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +176,8 @@ magnet:?xt=urn:btih:33FB564614F31D253E0DF982138A7EAD13CA2050
 magnet:?xt=urn:btih:3133FBC00FBEFF99E7C13E983E42D3AF9C4B613E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +205,8 @@ John Williams - Звёздные войны: Пробуждение силы / S
 magnet:?xt=urn:btih:B3C331E234D0E7C22C1009578E8C26F5837522DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +231,8 @@ Dr. Jeffrey Thompson - 2 albums (1995, 2001) [MP3|320 кб/с]<Ambient, Relax, H
 ```bash
 magnet:?xt=urn:btih:CC52E2BF5D87EACB5D5392AD05C9C9F57B15ADF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +261,8 @@ John Williams - Звёздные войны: Пробуждение силы  / 
 magnet:?xt=urn:btih:86AB016E7670B3D19FE9159B4F2F01836D2CAF4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +289,8 @@ magnet:?xt=urn:btih:86AB016E7670B3D19FE9159B4F2F01836D2CAF4A
 ```bash
 magnet:?xt=urn:btih:526D54CD891E5896CD3F360AF169EE0EF56CD1FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +319,8 @@ Enya - Enya / The Celts (1992) Unofficial Release, 2015, Chinese Dragon Music [F
 magnet:?xt=urn:btih:337BFED10803B3E3FB11A469F1569A74D50B9C7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +347,8 @@ VA & Christophe Beck - Trolls / Тролли (Original Score + Original Soundtra
 ```bash
 magnet:?xt=urn:btih:743455973098DEC56887CC5EFF9D1C06564F16E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +377,8 @@ VA - Великие и неповторимые. Звезды советског
 magnet:?xt=urn:btih:80317B591BE11B22215DBF107343B3BFB9E48702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +405,8 @@ David Arkenstone & Charlee Brooks - Loveren (2013) [FLAC|Lossless]<New Age, Worl
 ```bash
 magnet:?xt=urn:btih:5DC91A6CAD61A7D7168069B2F1C2AD8A5DF34A2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +435,8 @@ VA & Christophe Beck - Trolls / Тролли (Original Score + Original Soundtra
 magnet:?xt=urn:btih:DBDEEACC5CAF91E196BEE5FCB9D2248F4630003F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +463,8 @@ VA - Александр Зацепин Золотая коллекция (2003) 
 ```bash
 magnet:?xt=urn:btih:7B50A2358922CCC798F9BA62DB22C9DFA07FE903
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +493,8 @@ magnet:?xt=urn:btih:7B50A2358922CCC798F9BA62DB22C9DFA07FE903
 magnet:?xt=urn:btih:1856F99DA2281C58B3129FA198B09D32B86D8349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +521,8 @@ Die Schnitter - Saat und Ernte (2000) [FLAC|Lossless|image + .cue] <Folk Punk>
 ```bash
 magnet:?xt=urn:btih:D731F4B8453E4F9218187BF995E313AAD25B9071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +551,8 @@ Tom Barabas - It s A New Life (1998) Remaster, 2004, ТМЕ/Правительс
 magnet:?xt=urn:btih:25BAEF2416E7AE10BA09B408DF14B7B8E1FD5482
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +580,8 @@ Tom Barabas - Magic In December (1991) [FLAC|tracks + cue] <New Age, Piano>
 magnet:?xt=urn:btih:0E5C2485CACA82541991F093475A57DCD5BF75EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +608,8 @@ Tom Barabas - Piano Impressions (1994) [FLAC|Lossless|tracks + .cue] <New Age, P
 ```bash
 magnet:?xt=urn:btih:BD2BAC9C4A76A2A9CBD2FDD84EBC0131B50119C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +642,8 @@ Fridrik Karlsson - Feng Shui (2006) [MP3|320 кб/с]<New age, Relax, Nature sou
 magnet:?xt=urn:btih:988E2229A89B6158D4E3D12608C2FAEEF9ABA1B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +670,8 @@ Danheim - Runagaldr (2018) [MP3|320 Kbps] <Nordic Folk, Dark Folk>
 ```bash
 magnet:?xt=urn:btih:99D17C9A9B3E2402088F84AC1E8B7BECDCECE552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +700,8 @@ Musica Antiqua Koln, Reinhard Goebel - Le Roi Danse 2CD Box Set (2004) Original 
 magnet:?xt=urn:btih:CE3969704C73E3E3337C64D94539103E46EA194F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -680,6 +728,8 @@ Dornenreich - In Luft geritzt (2008) 3CD [FLAC|Lossless|image + .cue] <Dark Acou
 ```bash
 magnet:?xt=urn:btih:1CCAD725236867EB21D91CD25D4999DF74069CA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -713,6 +763,8 @@ Two Steps From Hell - Two Steps From Heaven/SkyWorld (2012) /WEB/ [FLAC (tracks)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

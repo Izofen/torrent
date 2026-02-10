@@ -19,6 +19,8 @@ Smart Launcher - лаунчер являющийся одним из самых 
 magnet:?xt=urn:btih:BA5B9D08774BACF2C5C4B4F62F6C8AAB7FAD630F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Glary Utilities - комплексный набор инструментов д�
 magnet:?xt=urn:btih:E3D05E9FC0BB48396870A9A71FC56F573B49A0FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:E3D05E9FC0BB48396870A9A71FC56F573B49A0FF
 ```bash
 magnet:?xt=urn:btih:852450C02EA9648C4B38BF4B8A6A487383B7475D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ CareUEyes служит для изменения цветовой темпера
 magnet:?xt=urn:btih:C87F8CF9882890AEED5DFAA507F293C1D0476D32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Big cats wallpaper (24.12.12) [Wallpapers]
 magnet:?xt=urn:btih:DD97BA8C280E313E9D14386B9AD39CF11E5E7E3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ AlDente Pro fo Mac 1.24 U2B [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:73C2F861A881DB58DAD905862BD1DFA19D3D766B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ VA - Зимняя вечеринка RuTV Русская 1 (2012) [MP3|128 кб/
 magnet:?xt=urn:btih:3FF0D8F64F3B2C7025BAAA95DC7E46131AE11203
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ FX Player Pro - универсальный медиаплеер который �
 ```bash
 magnet:?xt=urn:btih:F0B36BF2EE0C4ADB03C0A97B2F9E7FADB0E9B1F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +246,8 @@ Freddie & The Screamers - Death Letter Blues (1992) [WavPack|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +277,8 @@ Freddie & The Screamers - Death Letter Blues (1992) [WavPack|Lossless]<Blues>
 magnet:?xt=urn:btih:7AE7D58D1422D159186C0519992583844445F336
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +302,8 @@ magnet:?xt=urn:btih:7AE7D58D1422D159186C0519992583844445F336
 ```bash
 magnet:?xt=urn:btih:02B8F600B7648C2C6A0B834FFC6EDBEFE0CCDCF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +332,8 @@ VA - Autumn Light Deep (2023) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:E025311AEBBB00DB9F139CE4037981ED631971C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +357,8 @@ magnet:?xt=urn:btih:E025311AEBBB00DB9F139CE4037981ED631971C4
 ```bash
 magnet:?xt=urn:btih:0FBFE182B646F398F8A950FAC7023A72BEB85D3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +384,8 @@ Mickael Maison, Kate Stanley | Kafka Connect (2023) [PDF][EN]
 magnet:?xt=urn:btih:724F450A881E9CAFD984BDC49EFE81926C01BEF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:724F450A881E9CAFD984BDC49EFE81926C01BEF7
 magnet:?xt=urn:btih:EAF99EB2A018C4537D4839E28467AB670F64F57D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:EAF99EB2A018C4537D4839E28467AB670F64F57D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +466,8 @@ Sandra Hall - 2 альбома (1997, 2001) [MP3|320 кб/с]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ Sandra Hall - 2 альбома (1997, 2001) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:6E9DAF2FBEC6026C54EEB5CF9756DA020ED935EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +520,8 @@ AM 1984 - Compilation (2023) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:B7BC18B1EA3031BC80AE7EC2F02A7E81742311B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +556,8 @@ VA - Дискотека 2012 Dance Club Vol. 97 (2012) [MP3|320 кб/с]<Pop, Cl
 magnet:?xt=urn:btih:4EDFBEECE40E94E7CDADFFBBE636678B3EEE54CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +582,8 @@ magnet:?xt=urn:btih:4EDFBEECE40E94E7CDADFFBBE636678B3EEE54CF
 magnet:?xt=urn:btih:E5702A5DBDD7B2B6DDEBEE9EE2700830F3AE12FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +607,8 @@ magnet:?xt=urn:btih:E5702A5DBDD7B2B6DDEBEE9EE2700830F3AE12FC
 ```bash
 magnet:?xt=urn:btih:F2EB7D2423D9EC3CF30A1D1200A161390CB2168B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +635,8 @@ magnet:?xt=urn:btih:F2EB7D2423D9EC3CF30A1D1200A161390CB2168B
 magnet:?xt=urn:btih:3C34D3BCAA252D2F8F32F781FCAF42675EF674DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +660,8 @@ magnet:?xt=urn:btih:3C34D3BCAA252D2F8F32F781FCAF42675EF674DF
 ```bash
 magnet:?xt=urn:btih:34B02ABEA8821B9B4BB34610B56E40E5B6E2D016
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +696,8 @@ Slice The Cake - The Man With No Face (2012) [FLAC|Lossless]<Progressive Deathco
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +722,8 @@ FileOptimizer — бесплатная утилита с открытым исх
 ```bash
 magnet:?xt=urn:btih:E7CE3E8BB3F21695A06E051A3A31CBD3E96A3680
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Мелодии экрана, 17 серия (1968) [FLAC 1.0|96/24|tracks|Vi
 magnet:?xt=urn:btih:7F1847AC70BDA4AAAE0EF665A615F953436BB96C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ A4 Take Me To The Pilot(   Читать дальше...   )Жанр: Pop RockП�
 ```bash
 magnet:?xt=urn:btih:8B6A5C76EDC4B147114E5666F003D6092DE7319A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - RETROспектива часть XXI. Зарубежные исполнит
 magnet:?xt=urn:btih:02AF04C9BF7A7499A0397B6A9426AA131106CF9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ LP1
 ```bash
 magnet:?xt=urn:btih:8C24632EB75B7B83B40E4204A830CFA1C6EBE7EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ B  Александр Градский - Памяти Джордано Брун�
 magnet:?xt=urn:btih:87FB0F582AB4026A874A9029F2DF0EF5D2CE59C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Shakra — швейцарская рок-группа, основанная в �
 ```bash
 magnet:?xt=urn:btih:817EAB28176C895D92D157F58724122BEE6215DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Amon Amarth — шведская метал-группа, играющая в ж
 magnet:?xt=urn:btih:5951C6CF42EB48D5DADE0E5EF44A5514BEAC3E60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ A4 A Matter Of Feeling(   Читать дальше...   )Жанр: Pop RockПр
 ```bash
 magnet:?xt=urn:btih:B18B0B3CA005E4E029B8627AEA5DB9DBB3F4830C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Royal Hunt — англоязычная рок-группа из Дании, о�
 magnet:?xt=urn:btih:A0B0B5087FB0EB57093151DDDB49017BE5EA1041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:A0B0B5087FB0EB57093151DDDB49017BE5EA1041
 ```bash
 magnet:?xt=urn:btih:B19C1FCFBBC3002FDEF648B93FA5516B968A9E22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:B19C1FCFBBC3002FDEF648B93FA5516B968A9E22
 magnet:?xt=urn:btih:81AE1EECB178B2C91858083605D08BE16C8DEBA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ A3 Nummern 3:00
 ```bash
 magnet:?xt=urn:btih:185DAB655B3FD287507241D596DE1DB6D312785A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Europe — шведская рок-группа, основанная вокал
 magnet:?xt=urn:btih:9E1E4070308C69FA7EA93A66BD1ACB0DBB28783E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Beseech — шведская готик-метал-группа из город�
 ```bash
 magnet:?xt=urn:btih:211078102857C9AF767475658DA88269C087CCFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ A4 Nothing Rhymed(   Читать дальше...   )Жанр: Pop RockПрод�
 magnet:?xt=urn:btih:E1AF7D07A4FF897612C46534F2AF3883BE931A0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ A4 Le Secret Farida 3:17(   Читать дальше...   )Жанр: Synth-pop�
 ```bash
 magnet:?xt=urn:btih:2A20B056CFF437D1DA437C695FAF5CAB9CAD60C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ magnet:?xt=urn:btih:2A20B056CFF437D1DA437C695FAF5CAB9CAD60C8
 magnet:?xt=urn:btih:FDF8CAFA6CD121221CCDD1C4DF82D6354C657EF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Thunder — английская рок-группа из Лондона. Осн
 ```bash
 magnet:?xt=urn:btih:1BD5E3292C062BACC5A1B5441B74A76E40B3DF74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:1BD5E3292C062BACC5A1B5441B74A76E40B3DF74
 magnet:?xt=urn:btih:DD16EB57D724FF98A3C033448138801106671ACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Heretic - американская пауэр-метал группа из Ло�
 ```bash
 magnet:?xt=urn:btih:800744C29636105CC849E27C2B23158D2EF05028
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ A4 П. Нечепоренко - Наигрыш Владимирских Роже
 magnet:?xt=urn:btih:11E5CF22E869351C78A846E76F1C8C0586F1413C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ A4 Desert Inn 3:30(   Читать дальше...   )Жанр: ElectronicПро
 ```bash
 magnet:?xt=urn:btih:145DCD8D2CBA70C79D0C6A55D926360B6B106E64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ A4 Maybe I'm Dreaming 4:23(   Читать дальше...   )Жанр: Synth-po
 magnet:?xt=urn:btih:7D8A61895B0FC82BA45E281A48A90FCF017F2724
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:B682B62B24B39B2BA0E92A97DCF50B1A537F3223
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ A4	Е. Семенова -	На Минутку(   Читать дальше...   
 magnet:?xt=urn:btih:6CE0E7A934960643F398F9CD49EE3A6DCDD36852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ A4	Локомотив ГТ -	На Релси(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:478255D319B255DD31D6D6CFAE804A56040F0228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

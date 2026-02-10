@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:ED243E994FB70E9D2106CB8A192C2C591B47F654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Sagath - Страшные сказки (2022) [MP3|320 Kbps] <Alternative, Hip-H
 ```bash
 magnet:?xt=urn:btih:1FBF13066A5AE808A7DA962CDD579A90BA0EF9A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:1FBF13066A5AE808A7DA962CDD579A90BA0EF9A1
 magnet:?xt=urn:btih:650E2E51CF6796034EA89698BEA34B6D564A00EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ L'One - Дом (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:19C1E3C94C6D4E4C5B1EB20E514E48022F5C58BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Eminem - Curtain Call 2 (Explicit) (2022) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop
 magnet:?xt=urn:btih:F202B414EDD76284E09D32970BE0AB899D4A33B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ MC Eiht - Lessons 2 (2023) Blue Stamp Music [MP3|320 Kbps] <Rap, West Coast Hip-
 ```bash
 magnet:?xt=urn:btih:6550905BA5A8CE01DB66BD8736D9282E217797DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ bollywoodFM - Магия (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:D2B46556536D604014EB5C803DD19173932F1B00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:D2B46556536D604014EB5C803DD19173932F1B00
 ```bash
 magnet:?xt=urn:btih:BA43DDED9694F8C424613BEE505356BAFD185D0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Chillhop Essentials Spring (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 magnet:?xt=urn:btih:50C2F11E452EBA555C77E9176649F84BF7C772BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Yopt - 404 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:DAE30972A43D30EA06E7DB3E35B7B8C40C2BF461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Рэп для любимых женщин (2023) [MP3|320 Kbps] <Rap, Hip-H
 magnet:?xt=urn:btih:342221C575A2AD9698292C210B1C464C9D1123E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Feduk - Весёлая музыка (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:843FC7474C2E6C261D19D316E53FFAD3605DEE4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:843FC7474C2E6C261D19D316E53FFAD3605DEE4B
 magnet:?xt=urn:btih:332371E0FC57AE1238531F71F8221D74507842E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:332371E0FC57AE1238531F71F8221D74507842E9
 ```bash
 magnet:?xt=urn:btih:87ED8716A66F0D85C10DC91677603EC9D0ABA40A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Anacondaz - Ночь с астраханцем (2025) [FLAC 24/48|Lossless|WEB-D
 magnet:?xt=urn:btih:786E605546B0A6E0A7BB349E2C12C5B63FFAE6FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ Anacondaz - Ночь с астраханцем (2025) [MP3|320 Kbps] <Rap, Hip-H
 magnet:?xt=urn:btih:B282A671B67996828A27ED0894DCCE46DBC79811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +485,8 @@ Outkast - Stankonia (2000) [MP3|320 kbps] <Rap>
 ```bash
 magnet:?xt=urn:btih:9FB946049C727A6616B00D275DF51FFB99574D32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +521,8 @@ Ruben - Огонь и Лед (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 magnet:?xt=urn:btih:F9A90C0B5D50DC912840E2E78D4D0C2F5DC63AD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +546,8 @@ Rihanna - Magic (2012) [MP3|320 Kbps] <R&B, Pop>
 ```bash
 magnet:?xt=urn:btih:9EB82E56A03616495C5D188DC091A75B99C44810
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +576,8 @@ VA - The French Touch Connection - Soul Machinist (2016) [FLAC|Lossless|Web-DL|t
 magnet:?xt=urn:btih:770C1096966D7784F06D77460C512ECE411E1485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +604,8 @@ Eminem - Revival (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:4181B30B915D8D41D6D90268A6BDC1F566DC90B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +634,8 @@ Eminem - Revival (2017) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:AB5D708076B070F0ECA085D7B1B1A238CBCB08BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +662,8 @@ Omarion - Sex Playlist (2014) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:F822A3AE423B5D111C1BCC8C1D22D3CA57AFB9C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +692,8 @@ magnet:?xt=urn:btih:F822A3AE423B5D111C1BCC8C1D22D3CA57AFB9C1
 magnet:?xt=urn:btih:CB5B3CA902725133EAAA653374572CF171FCDFBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +721,8 @@ Eminem - Kamikaze (2018) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Rap>
 magnet:?xt=urn:btih:0F0028CD4B107A47394290FB80F4E88397558ECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ magnet:?xt=urn:btih:0F0028CD4B107A47394290FB80F4E88397558ECB
 ```bash
 magnet:?xt=urn:btih:5AD78B0737CD3D72AFDA073409622444050661D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

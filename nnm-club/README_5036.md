@@ -22,6 +22,8 @@ Bon Jovi - Keep The Faith (1992) Reissue, Remastered, 2017, Mercury [OGG Vorbis|
 magnet:?xt=urn:btih:123C521CB14F54C00846A43F26643AF73E55DBEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:123C521CB14F54C00846A43F26643AF73E55DBEE
 ```bash
 magnet:?xt=urn:btih:0BB15DF316BF9F5B4E9B11BBFD96D8610DB9F05E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Dark Reality - Blossom of Mourning (1995) [FLAC|Lossless|image + .cue] <Death, F
 magnet:?xt=urn:btih:97699F4E62CF93712497FFA2824E80AE75DA0FD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ VA - Summer Hemisphere (2018) [MP3|320 Kbps] <Indie, Alternative, Synthpop, Nu D
 magnet:?xt=urn:btih:35C81251273D6DBC183E427C199629E0A8B9BCFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ magnet:?xt=urn:btih:35C81251273D6DBC183E427C199629E0A8B9BCFB
 magnet:?xt=urn:btih:E7F33A78C649328475FDC1EBC487429B5DC791E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ G.I. Joe: Бросок кобры 2 / G.I. Joe: Retaliation (2013) [1080p] HDTVR
 magnet:?xt=urn:btih:C93167433D19CD992F9AB7828CF29546D3D5E849
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:C93167433D19CD992F9AB7828CF29546D3D5E849
 ```bash
 magnet:?xt=urn:btih:A5EF499DD660C6BF3F7C03CAD76F33F139131A3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ VA - Saturday Feel Good (2021) Explicit [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:2DCD5191DEF23EA1E7E49C099BEAAE67F52D82DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:2DCD5191DEF23EA1E7E49C099BEAAE67F52D82DB
 ```bash
 magnet:?xt=urn:btih:1484C8F8AE6926F29C0C43C9ABCD9E902E35A55F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ FxFactory Pro включает  фильтры, генераторы и пере
 magnet:?xt=urn:btih:95B24B458AF838D87FC66EC5AAEF4B72EB867213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:95B24B458AF838D87FC66EC5AAEF4B72EB867213
 magnet:?xt=urn:btih:2035E7D2DA8F21E9E60F457CDD6CD1D9856F301B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:2035E7D2DA8F21E9E60F457CDD6CD1D9856F301B
 ```bash
 magnet:?xt=urn:btih:158895898830645B008E974D3DA77D196E83E529
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:158895898830645B008E974D3DA77D196E83E529
 magnet:?xt=urn:btih:999AD379F0F2B49F22A58C29562B60C3E3EAA27F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:999AD379F0F2B49F22A58C29562B60C3E3EAA27F
 magnet:?xt=urn:btih:5B6FBAF9D6EC42C41E0A2CACAD1A85A64EC019B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ Scherlokk является утилитой для быстрого поиска
 magnet:?xt=urn:btih:74E29825B95F3F0E34F71EC0FEA020CC2EEBB328
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ AdFender - бесплатный, мощный, надёжный и просто�
 ```bash
 magnet:?xt=urn:btih:F84F16C8CEDFAD7E29713712C44BA3CFFEF784D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:F84F16C8CEDFAD7E29713712C44BA3CFFEF784D7
 magnet:?xt=urn:btih:87AC82A9AEDD482B6F18E2C79F069B143E2054C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ FSNotes - это менеджер текстовых заметок для macOS
 ```bash
 magnet:?xt=urn:btih:3351F511C99EA0640E4CF81D6600D826122D464F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +517,8 @@ VA - Inner Harmony Vol.1 (Find The Inner Peace With These Super Calm Electronic 
 magnet:?xt=urn:btih:98299E03E7CCA628BFB95BA23FF88B37561A8249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:98299E03E7CCA628BFB95BA23FF88B37561A8249
 magnet:?xt=urn:btih:E573FD12BD028F74C25AB2CFC38510C6C5259FD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ The Clock - The Best World Clock 4.6.3 [Multi/Ru]
 magnet:?xt=urn:btih:65FF565C876F1C2CA128DF8BE3F1244A69A7D47D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:65FF565C876F1C2CA128DF8BE3F1244A69A7D47D
 magnet:?xt=urn:btih:D01B6B908FBF19B0D0AD65EC3444CD298A91915F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:D01B6B908FBF19B0D0AD65EC3444CD298A91915F
 ```bash
 magnet:?xt=urn:btih:5FA7C9919D56BFB026F71AE7EB2708FBC26F7C1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ Led Zeppelin - Celebration Day 2007 (2012) [1080i] Blu-Ray
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ Led Zeppelin - Celebration Day 2007 (2012) [1080i] Blu-Ray
 magnet:?xt=urn:btih:19BC1D7055350D0D7E8AA57B7C23D7BC89ABF7FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:19BC1D7055350D0D7E8AA57B7C23D7BC89ABF7FD
 ```bash
 magnet:?xt=urn:btih:1EFAE2CA13F568CD9068E290EBEA1B43C982F171
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

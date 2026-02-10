@@ -22,6 +22,8 @@ Joe Hisaishi - Symphonic Best Selection (1992) [FLAC|Lossless|tracks] <Score, Cl
 magnet:?xt=urn:btih:11F792ED8535591D101D4FF176FC6FBE7983D203
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Piano Concerto no. 1 in E minor, op. 11
 ```bash
 magnet:?xt=urn:btih:A5B3FA292282BA5BCB2B56BFA1FAA28C240EFD2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Dan Laurin - Telemann, Corelli & Bach (2017) [FLAC|Lossless|WEB-DL|tracks] <Clas
 magnet:?xt=urn:btih:E0FDB82EBBFDDA050D97CC85A963578740526E7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Rick Wakeman - Piano Portraits (2017) [MP3|320 Kbps] <Classical, Piano>
 ```bash
 magnet:?xt=urn:btih:EBCB9FEFA53DB7ED90ED51F16AEC3EAFD684635E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Escala - Quadrasonic (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, 
 magnet:?xt=urn:btih:1B716EB0CAA352129E2E8C2A8D3F008CE30CAD3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Khatia Buniatishvili - Kaleidoscope - Mussorgsky, Ravel, Stravinsky (2016) [MP3|
 ```bash
 magnet:?xt=urn:btih:9E67DEB7026F00746BB417082847B16CBE6B9723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Strato-Vani - Ballroom 1 (2015) [MP3|320 кб/с] <Classical, Pop>
 magnet:?xt=urn:btih:18AAC15412C21ED54877DB4A1EBC0EE520156870
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Federico Albanese - The Blue Hour (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern C
 ```bash
 magnet:?xt=urn:btih:C3CD989538229046C68A5C9B8215575BBAA540C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Daniil Trifonov - Transcendental - Daniil Trifonov Plays Franz Liszt (2016) [FLA
 magnet:?xt=urn:btih:562C8EDFB085DF87804A54F6F2FFE1D763A54189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Symphony no. 3 in C major, op. 78 "Organ"
 ```bash
 magnet:?xt=urn:btih:E5ADADC77874E07BB8589A8390EB8F7C09822EE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Enrico Caruso - Grand Collection (2006) [FLAC|Lossless|tracks + .cue] <Classical
 magnet:?xt=urn:btih:CF94C9CCC49D17AEC61C178F416A3DFB5C5F1D8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ W.A. Mozart - Missae Breves k.49, 65, 194 & 220: Nikolaus Harnoncourt, Concentus
 ```bash
 magnet:?xt=urn:btih:DC59A871D18D728803622414B55D6B4BCA000808
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ Erik Satie performed by Pascal Rogé - 3 Gymnopédies & Other Piano Works (1984)
 magnet:?xt=urn:btih:F8A9407E2B376920E5EC95328694855A1FC2FCFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ Enrico Caruso / Энрико Карузо - Caruso Starportrait (1993) Nota Blu 
 ```bash
 magnet:?xt=urn:btih:C402234A52F973E872CFF5F1DA801E64A7FD9F0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ Craig Armstrong - Sun On You (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classi
 magnet:?xt=urn:btih:7D8B27EB17C740C54604133438DB96B7E50008F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ Mozart - Julia Fischer, Gordan Nikolić, Netherlands Chamber Orchestra, Yakov Kr
 ```bash
 magnet:?xt=urn:btih:EA41E9FA530200E58D15B601536D02659238909A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ Helene Grimaud - Water (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 magnet:?xt=urn:btih:C674D965BD32888A8BEDAC266AE94E0915689518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ Helene Grimaud - Water (2016) [MP3|320 кб/с] <Classical, Piano>
 ```bash
 magnet:?xt=urn:btih:0C7552B7AE1CC7E0D1F8825D9F53A8CC91BF1B7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ III. Dialogue du vent et de la mer   (23:16)(   Читать дальше...   )
 magnet:?xt=urn:btih:D5DD2030A667037A5213134A7995554C0469BDAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ Russian Symphony Orchestra - Mark Gorenstein
 ```bash
 magnet:?xt=urn:btih:7A16A0CE22087BEBF239EB5679BD19272C64F0F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ Enrico Caruso / Энрико Карузо - Prima Voce: Caruso (1989) Nimbus Rec
 magnet:?xt=urn:btih:FAFE4180B7D52258D4DD5F453E53A69CDFADC224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ Arturo Toscanini - Toscanini Collection Vol.71 - La Scala Orchestra Acoustic Rec
 magnet:?xt=urn:btih:52493460952E07073EFE3B8DE868323377888E2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ Johann Strauss - Rosen aus dem Suden. Staatskapelle Dresden, Carl Von Garaguly (
 ```bash
 magnet:?xt=urn:btih:CC4A8854C93A2765DCA3A57E4A67DB2473EA9EFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ Sempre Libera - второй сольный альбом оперной дивы
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ Antonio Lucio Vivaldi - Flute Concerto I Solisti Veneti solist Jean-Piere Rampal
 magnet:?xt=urn:btih:B3A159E35BDA364DC3B49B3EC29EF8F4CC2BCE3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ Vitalij Margulis / Виталий Маргулис - Frederic Chopin / Фред�
 ```bash
 magnet:?xt=urn:btih:4546C1506A9C290C96CC4CFB25FDEA2819EAD212
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

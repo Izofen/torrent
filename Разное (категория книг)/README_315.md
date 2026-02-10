@@ -1,3 +1,29 @@
+###  Публикация: 1059430   (461631) от 04.10.2016
+
+Джек Ботерманс, Джерри Слокум | Бoльшая книга загадoк, фoкуcoв, гoлoвoлoмoк (2007) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_461631.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Магия этой книги заключается в удивительных свойствах нашего мозга интерпретировать различные изображения порой самым неожиданным образом. С давних времен люди используют оптические эффекты в архитектуре, живописи и, конечно, для развлечений. Представленные в этом издании шарады и картинки-загадки, фокусы и головоломки, зашифрованные послания и магические (   Читать дальше...   )Жанр: Кроссворды, головоломкиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6140BDDEC5E17A794DC8BCE75C54D82F809C7E6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940703   (461758) от 27.09.2015
 
 Кристоф Морен, Патрик Ренвуазе | Тренинг по нейромаркетингу. Где находится кнопка «Купить» в сознании покупателя? (2015) [EPUB, FB2, MOBI]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:0F4CEA24A94E14A83D1E148E4111A3992243937B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +75,8 @@ magnet:?xt=urn:btih:0F4CEA24A94E14A83D1E148E4111A3992243937B
 magnet:?xt=urn:btih:81EE7351B59553E3A5B951534E9F4A2C49BCDEB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:81EE7351B59553E3A5B951534E9F4A2C49BCDEB3
 ```bash
 magnet:?xt=urn:btih:D80B99BF604CA2566BB7F598CE6B73C6EE7FB158
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:D80B99BF604CA2566BB7F598CE6B73C6EE7FB158
 magnet:?xt=urn:btih:8DF65BA084E7C970C91D9EF5A9CEDEF3DC35E717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:8DF65BA084E7C970C91D9EF5A9CEDEF3DC35E717
 ```bash
 magnet:?xt=urn:btih:B321FEC99EA9D389F012C81D2F978CEFB207E553
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:B321FEC99EA9D389F012C81D2F978CEFB207E553
 magnet:?xt=urn:btih:FC245F57BCFCF743A567ABC147F05337B8686D4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:FC245F57BCFCF743A567ABC147F05337B8686D4D
 magnet:?xt=urn:btih:D43479C582EC9C1F106E13BFA8A4AB994DB4152E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:D43479C582EC9C1F106E13BFA8A4AB994DB4152E
 ```bash
 magnet:?xt=urn:btih:ED514E97E6CCB02B5018FC21F143105A6E2C95A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:ED514E97E6CCB02B5018FC21F143105A6E2C95A9
 magnet:?xt=urn:btih:70593C045300EFBBDDE7B31917403FEC85B74E9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:70593C045300EFBBDDE7B31917403FEC85B74E9D
 magnet:?xt=urn:btih:835320642B344849EEC32AF197F492A448A331BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:835320642B344849EEC32AF197F492A448A331BA
 ```bash
 magnet:?xt=urn:btih:A2A41BAF0EE865B1137201C9F15DA2548BCB7369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:A2A41BAF0EE865B1137201C9F15DA2548BCB7369
 magnet:?xt=urn:btih:EC232F404CB06E13E9B20B7C166C14E08C323A90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +369,8 @@ magnet:?xt=urn:btih:EC232F404CB06E13E9B20B7C166C14E08C323A90
 magnet:?xt=urn:btih:8836C29EA05D67747C9754D02827E02174FD0250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:8836C29EA05D67747C9754D02827E02174FD0250
 magnet:?xt=urn:btih:258D4636FBDD7852C14165F969227C7DE699233B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:258D4636FBDD7852C14165F969227C7DE699233B
 ```bash
 magnet:?xt=urn:btih:3F36B2CB5092DBD1A298BDE56DD2358FB251A76B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +449,8 @@ magnet:?xt=urn:btih:3F36B2CB5092DBD1A298BDE56DD2358FB251A76B
 magnet:?xt=urn:btih:8AE7B7E9D826F89BA27FB471F51756BB7A801332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +477,8 @@ magnet:?xt=urn:btih:8AE7B7E9D826F89BA27FB471F51756BB7A801332
 magnet:?xt=urn:btih:07AE3135079BBEE8056C20D1477E5334CD1429A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +504,8 @@ magnet:?xt=urn:btih:07AE3135079BBEE8056C20D1477E5334CD1429A7
 magnet:?xt=urn:btih:4B354105FEE92E2EEADA28C3CB09147B97DFF806
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +529,8 @@ magnet:?xt=urn:btih:4B354105FEE92E2EEADA28C3CB09147B97DFF806
 ```bash
 magnet:?xt=urn:btih:2C153474C27F53377148B593290FADF794CC33C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +556,8 @@ magnet:?xt=urn:btih:2C153474C27F53377148B593290FADF794CC33C8
 ```bash
 magnet:?xt=urn:btih:E143288A941B3197BCD82E9F4C518DF34EC2E995
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +585,8 @@ magnet:?xt=urn:btih:E143288A941B3197BCD82E9F4C518DF34EC2E995
 magnet:?xt=urn:btih:3F0E557B3CE17ECBB3DBFF3671053EAFA1EE2E75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +613,8 @@ magnet:?xt=urn:btih:3F0E557B3CE17ECBB3DBFF3671053EAFA1EE2E75
 magnet:?xt=urn:btih:44DEEB4BB6607ACD94EF3015E9776D8A7F3954EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +638,8 @@ magnet:?xt=urn:btih:44DEEB4BB6607ACD94EF3015E9776D8A7F3954EA
 ```bash
 magnet:?xt=urn:btih:F566D01BF83FEE6E7F384FDF0ED458039CF64737
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +666,8 @@ magnet:?xt=urn:btih:F566D01BF83FEE6E7F384FDF0ED458039CF64737
 magnet:?xt=urn:btih:581C7C23DF3BEEE0034A036F5BD5AC574BFD9348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,32 +692,7 @@ magnet:?xt=urn:btih:581C7C23DF3BEEE0034A036F5BD5AC574BFD9348
 magnet:?xt=urn:btih:C1AF1EEAD758BBFFE24C235012289F385F40751C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059154   (463729) от 03.10.2016
-
-Валерий Корж | Полный справочник пчеловода (2010) [FB2]
-
->>Разное (категория книг)
->>Сад, огород, животноводство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Справочник поможет пчеловодам получить невиданный медосбор со своей пасеки и всю зиму угощать и лечить семью и друзей ароматным медом.
- В издании рассматриваются такие темы:
- - основные приемы содержания и разведения пчел;
- - влияние внешних условий на жизнедеятельность пчел;(   Читать дальше...   )Жанр: Пчеловодство, ХоббиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C745A8E6EDF42D7E9E740C4EB38695938F27B0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

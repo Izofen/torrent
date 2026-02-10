@@ -19,6 +19,8 @@ WPI by Viktor-VDV 03.2012 [Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ WPI by Viktor-VDV 03.2012 [Русский]
 ```bash
 magnet:?xt=urn:btih:CDB1A1E6F96DEF115AD6D4AF261A70FB131CE34F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Prince of Persia [En] (RePack) 1989 | pet9948
 ```bash
 magnet:?xt=urn:btih:A3449614A896B468E9E87226FC6468B4E5948D16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | shidow
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (RePack) 2012 | shidow
 magnet:?xt=urn:btih:C41A2B7D0E3359CDB6149C2440CD888CA4B7574B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:C41A2B7D0E3359CDB6149C2440CD888CA4B7574B
 magnet:?xt=urn:btih:6C1D18730AB21504A25900C313169E382B0A3353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:6C1D18730AB21504A25900C313169E382B0A3353
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:6C1D18730AB21504A25900C313169E382B0A3353
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:6C1D18730AB21504A25900C313169E382B0A3353
 ```bash
 magnet:?xt=urn:btih:FF1C74DF860711BCCACBE6B3F9C3A4CEBB41B527
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:FF1C74DF860711BCCACBE6B3F9C3A4CEBB41B527
 ```bash
 magnet:?xt=urn:btih:3CEA13ED5BFC89437D38DAFAB5A0455721015B6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +307,8 @@ Pythia - 2 альбома (2009 - 2012) [FLAC|Lossless]<Power Metal,Symphonic Me
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +342,8 @@ VA - Блатной Хит. Только лучшее (2012) [MP3|192 кб/с]<�
 magnet:?xt=urn:btih:08559440F9693403C162716564C5707062A7A0C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ PC Magazine/RE «Персональный компьютер сегодня» �
 ```bash
 magnet:?xt=urn:btih:0AC58AB956A84BC9A9AB69CBC35EAC945B5BBDBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +394,8 @@ magnet:?xt=urn:btih:0AC58AB956A84BC9A9AB69CBC35EAC945B5BBDBD
 magnet:?xt=urn:btih:419DAAE01DBB8EEE00E0CBEC992A6A7BBF52A23E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +419,8 @@ magnet:?xt=urn:btih:419DAAE01DBB8EEE00E0CBEC992A6A7BBF52A23E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ magnet:?xt=urn:btih:419DAAE01DBB8EEE00E0CBEC992A6A7BBF52A23E
 magnet:?xt=urn:btih:44C202BFCFC09DF9032AB4544F4D488D7A96CE84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +490,8 @@ Great Jazz Trio - Standard Collection Vol.1 - Summertime (1988) [FLAC|Lossless]<
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +515,8 @@ Great Jazz Trio - Standard Collection Vol.1 - Summertime (1988) [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:1313834AA51A07F775ECA4F584E62D5FA1075939
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +546,8 @@ magnet:?xt=urn:btih:1313834AA51A07F775ECA4F584E62D5FA1075939
 magnet:?xt=urn:btih:3467E5A9D967C921635833C62836988D7C45984A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +573,8 @@ magnet:?xt=urn:btih:3467E5A9D967C921635833C62836988D7C45984A
 magnet:?xt=urn:btih:25A148FED0C621F326C4490E1E6DC5A5684A029E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ magnet:?xt=urn:btih:25A148FED0C621F326C4490E1E6DC5A5684A029E
 ```bash
 magnet:?xt=urn:btih:1215E35B7698E172D15BE43AD301E84A901A1CA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +625,8 @@ True Sound Midi - Huge outbreak [MIDI Pack][английский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +651,8 @@ True Sound Midi - Huge outbreak [MIDI Pack][английский]
 magnet:?xt=urn:btih:8310741DBE7BDF1E798E6595DC2B6919FED30F26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +676,8 @@ CD 1Жанр: Pop,  VocalПродолжительность: 01:09:07
 ```bash
 magnet:?xt=urn:btih:FAB94ADAF5D9AABBCC1EC3DD73FB5EBDD412BB66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +707,8 @@ Hawkwind - Ridicule (1985) [APE|Lossless]<space/prog rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -684,6 +734,8 @@ Hawkwind - Ridicule (1985) [APE|Lossless]<space/prog rock>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

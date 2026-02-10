@@ -1,27 +1,3 @@
-###  Публикация: 1507804   (798262) от 05.11.2021
-
-Мэри Пикфорд. Природа женщины / The Female of the Species (1912) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четверо поселенцев из разорённого шахтёрского городка — женщина с мужем и сестрой и молодая девушка — вынуждены отправиться в опасное путешествие через пустыню. Муж главной героини умирает вскоре после того, как она узнаёт, что у него есть чувства к их молодой спутнице. Три женщины продолжают свой путь, но тяготы пустыни и жажда мести неумолимо наращивают напряжение (   Читать дальше...   )Производство: США, Biograph CompanyЖанр: Драма, короткометражный, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Чарльз Уэст, Клер Макдауэлл, Мэри Пикфорд, Дороти БернардПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A71B9D9F990862271828B7FC8D4FFD2B571BD320
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 373865   (798351) от 04.11.2021
 
 Холодные закуски / Buffet froid (1979) DVDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:A71B9D9F990862271828B7FC8D4FFD2B571BD320
 ```bash
 magnet:?xt=urn:btih:C58C2DB54A792BC8E270E40565C12FB81C986018
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:C58C2DB54A792BC8E270E40565C12FB81C986018
 magnet:?xt=urn:btih:1194B1F72039194D7DA375BDC707B2F6FD41729D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:1194B1F72039194D7DA375BDC707B2F6FD41729D
 ```bash
 magnet:?xt=urn:btih:CF4F06D517182D91B6BBDB737BF5F2D50971E771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:CF4F06D517182D91B6BBDB737BF5F2D50971E771
 magnet:?xt=urn:btih:86C9C94B25E09F976FF583A687C335D6E6AA2DD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:86C9C94B25E09F976FF583A687C335D6E6AA2DD2
 ```bash
 magnet:?xt=urn:btih:E3D1C2E7ECE562DAF45797CA2E524B0CC4B4D88B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:E3D1C2E7ECE562DAF45797CA2E524B0CC4B4D88B
 magnet:?xt=urn:btih:7E58EE05C96C37C2D9A8AAE9E8F38F013A06A889
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:7E58EE05C96C37C2D9A8AAE9E8F38F013A06A889
 magnet:?xt=urn:btih:8A33E867A1EBC04271868DF2DE4BED1828AD133B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:8A33E867A1EBC04271868DF2DE4BED1828AD133B
 ```bash
 magnet:?xt=urn:btih:37FA5C34CCDCAFC2F18733E151B26144B9674F98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +229,8 @@ magnet:?xt=urn:btih:37FA5C34CCDCAFC2F18733E151B26144B9674F98
 magnet:?xt=urn:btih:260452FB34D9760E4A07BF20AD9BD7371799EE34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:260452FB34D9760E4A07BF20AD9BD7371799EE34
 ```bash
 magnet:?xt=urn:btih:58B91C8162CF5661D5E1944F126ED81FAB2EC974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +283,8 @@ magnet:?xt=urn:btih:58B91C8162CF5661D5E1944F126ED81FAB2EC974
 magnet:?xt=urn:btih:3E0CAB31E6F1F7AA716DA995DB2BCA33AD8B0B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +308,8 @@ magnet:?xt=urn:btih:3E0CAB31E6F1F7AA716DA995DB2BCA33AD8B0B13
 ```bash
 magnet:?xt=urn:btih:C928EF2C7CDA8E1657DFE56CB8C096781F0C46B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +335,8 @@ magnet:?xt=urn:btih:C928EF2C7CDA8E1657DFE56CB8C096781F0C46B4
 magnet:?xt=urn:btih:54A13836C8DDC885B8510CC7136620A220D90E0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +360,8 @@ magnet:?xt=urn:btih:54A13836C8DDC885B8510CC7136620A220D90E0A
 ```bash
 magnet:?xt=urn:btih:A0CD886E3B513C86E0D231C6861C514D835A83CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +387,8 @@ magnet:?xt=urn:btih:A0CD886E3B513C86E0D231C6861C514D835A83CC
 magnet:?xt=urn:btih:1948E7212FB96F81F029F5783A1564BFCD7287F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +412,8 @@ magnet:?xt=urn:btih:1948E7212FB96F81F029F5783A1564BFCD7287F7
 ```bash
 magnet:?xt=urn:btih:66BA31BD52EC0A05CC71E0BA317841A711E93117
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +440,8 @@ magnet:?xt=urn:btih:66BA31BD52EC0A05CC71E0BA317841A711E93117
 magnet:?xt=urn:btih:7BFC210D91424B36EC99F6C8F4F7EF1128ECB0A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +465,8 @@ magnet:?xt=urn:btih:7BFC210D91424B36EC99F6C8F4F7EF1128ECB0A9
 ```bash
 magnet:?xt=urn:btih:EC5D718DA3473574C38D46DE0828012B1FBC85DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +492,8 @@ magnet:?xt=urn:btih:EC5D718DA3473574C38D46DE0828012B1FBC85DC
 magnet:?xt=urn:btih:95657A3D1937DB0A7577F40FFDF3AB8004719D86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +517,8 @@ magnet:?xt=urn:btih:95657A3D1937DB0A7577F40FFDF3AB8004719D86
 ```bash
 magnet:?xt=urn:btih:923B7427DC5F6568FE3EE9D84BFA6D038A8AAE97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +544,8 @@ magnet:?xt=urn:btih:923B7427DC5F6568FE3EE9D84BFA6D038A8AAE97
 magnet:?xt=urn:btih:0DDFFFD1265594516912D9C92BC135F4D0D4CA20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +569,8 @@ magnet:?xt=urn:btih:0DDFFFD1265594516912D9C92BC135F4D0D4CA20
 ```bash
 magnet:?xt=urn:btih:EEB9E7430BE25372BC9330B84AE4A7709158DBED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +596,8 @@ magnet:?xt=urn:btih:EEB9E7430BE25372BC9330B84AE4A7709158DBED
 magnet:?xt=urn:btih:BA0EDF4A049A17C5EB29470E11AC22D264C1D649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +622,8 @@ magnet:?xt=urn:btih:BA0EDF4A049A17C5EB29470E11AC22D264C1D649
 magnet:?xt=urn:btih:D6DA337EEA0222F2A389B98285E77644CEA54F67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +647,35 @@ magnet:?xt=urn:btih:D6DA337EEA0222F2A389B98285E77644CEA54F67
 ```bash
 magnet:?xt=urn:btih:12E21089774CCF5D0E3818C2344194CD1EFD7BBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384720   (801527) от 21.05.2020
+
+Лани / Les Biches (1968) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скучающая дама Фредерика на парижской улице знакомится с юной художницей Вай и увозит ее на свою роскошную виллу в Сен-Тропез. Там любовницы живут тихо и мирно, пока однажды случайно не знакомятся с архитектором Полем.
+У Вай начинается с ним роман и тут же заканчивается, потому что Поль вступает в связь с Фредерикой, но безумно влюбленная и брошенная девушка мириться (   Читать дальше...   )Производство: Франция, Италия / Alexandra Produzioni Cinematografiche S.r.l., Les Films de la BoétieЖанр: ДрамаРежиссер: Клод ШаброльАктеры: Жан-Луи Трентиньян, Жаклин Сассар, Стефан Одран, Нан Жермон, Серж Бенто, Генри Фрэнсис, Анри Атталь, Доминик Зарди, Лор Валме, Клод ШаброльПеревод: Многоголосый профессиональныйСубтитры: РусскиеПродолжительность: 01:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98AFCE470C663A31A69420B907380F55C3E34A4
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

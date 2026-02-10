@@ -19,6 +19,8 @@ Spirits of Mystery 2: Song of the Phoenix Collector's Edition (P) [En] 2012
 magnet:?xt=urn:btih:106D68B60E1B5F30B918BB3AE4AC6A9136F011D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tiger Eye 2: The Sacrifice (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:02ED635AAEE8D3993158559FF3B05CCFD35DA349
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ M.A.S.S. Builder - это ролевая игра, в которой игрок�
 magnet:?xt=urn:btih:76A1BD887B5BBAD352D7701FEE0102D2F407F7BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Theatre of The Absurd Collector's Editon (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:95D8439C1E747CA1DC91CC1B6A8D3CA1FC8A01FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Candleman: The Complete Journey (2018) [Ru/Multi] (1.1.0) License GOG
 magnet:?xt=urn:btih:031C03E68C982F5733D00AD3CEBD4B2C4F769342
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Steel Rain - уникальная инди-игра, которая в равн�
 ```bash
 magnet:?xt=urn:btih:735C87CC5ABDB9B970B2D365118B8BBA48F0CDE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Hauma - это визуальный роман в стиле нуар с дед�
 magnet:?xt=urn:btih:EACADD59162534E0BD6507FC38A7C446CDF6CB97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Anna's Quest (2015) [Ru/Multi] (1.3.4792) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:793101AB6AE173CC648158F061993982EAA52F33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ An Airport for Aliens Currently Run by Dogs (2021) [En] (1.3) License GOG
 magnet:?xt=urn:btih:F0B21DBDFB8AFB993994DB457012D45449E4AABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Into the Dead: Our Darkest Days представляет собой сайд-с�
 ```bash
 magnet:?xt=urn:btih:04F18744D930DA7CFD3204AE76588B9E97163D94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Luck & Loot - динамичный рогалик с кубиками, где с
 magnet:?xt=urn:btih:5B22273539820C19CDBF1B01D2FA109E9D23A691
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Talisman: Волшебное приключение от Games Workshop - это
 ```bash
 magnet:?xt=urn:btih:BE309DBDF9D08B079245E7732FC524955DBBEBF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Tainted Grail: Conquest - мрачная ролевая игра с пошаго
 magnet:?xt=urn:btih:8DF4E760DDF0354F391B9F0A083C55AA6BD897AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Sker Ritual (2022) [Ru/Multi] (1.3.2.25602/dlc) Repack Let'sРlay [Anniversary E
 ```bash
 magnet:?xt=urn:btih:4E520F1DCAF1EB561122C85CF3D35638DD677249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ GNOG - тактильная игра с трехмерными паззлами,
 magnet:?xt=urn:btih:A28A89F6B5F8F1CC7A4371509B5D91D2D2D387C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Book Travelers 3: A Gothic Story / Книжные странники 3: Готи
 ```bash
 magnet:?xt=urn:btih:7DC6299B3416E42A44F8136F4C87C256696719FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.15.0/dlc) Repack 
 magnet:?xt=urn:btih:941B6EC7E3498C040AF76AB6AFF2BE8ABF48F6F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Thief Simulator (2018) [Ru/Multi] (1.8/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A84E9A17C9C8DA2499E703FF50EA5DF4F063EB63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ A Haunting Novel: Burton Hotel / Проклятый роман: Отель "Ба
 magnet:?xt=urn:btih:09416A84E426878B1671BDCF8FD008DF25505EFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Royal Romances 6: Fortunes and Foes / Королевские романы 6: У�
 ```bash
 magnet:?xt=urn:btih:A8F309BF4A05F388F4C1AC5C07F5B8295550F500
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Metel - Horror Escape (2020) [Ru/En] (1.01) Repack Necros [Early Access]
 magnet:?xt=urn:btih:C00CF5E879BAC5C4E066CAD2F98BC2DB4BF306E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Blood of Mehran (2025) [Ru/Multi] (1.0.16+34cdf77) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:EBB165BD1F909F91D966EF245BB26E87CE014BC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Fireburst – зажигательная гоночная игра, в кото�
 magnet:?xt=urn:btih:F89105270EBE329959CB1FE01C6708B64D7EB013
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Surprising Adventures of Munchausen / Невероятные Приключ�
 ```bash
 magnet:?xt=urn:btih:1A58113549D98D6E31FB922A357EAA75348346EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Xbox LIVE Arcade хит "Toy Soldiers" приходит на PC!
 magnet:?xt=urn:btih:C270C45761171B3A07BAE5EEE8BC0B89FF07C639
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ MUD: FIM Motocross World Championship (L) [Multi5/-] 2012
 ```bash
 magnet:?xt=urn:btih:BDD29E69472144708F29E5D145B3C2D35DAB8303
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

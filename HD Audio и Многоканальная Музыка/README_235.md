@@ -1,3 +1,29 @@
+###  Публикация: 691399   (559913) от 20.08.2013
+
+The Flirts - Blondes, Brunettes & Redheads (1985) US [FLAC 2.0|24/192|image|Vinyl-Rip]<Hi NRG, Synth-pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_559913.jpg" />
+</div>
+
+
+###  Подробнее
+
+С начала 80-х годов маленькая независимая компания "O"Records заняла лидирующие позиции на американском, а затем и европейском рынке популярной музыки. Записи звёзд "O"Records, таких как Divine и The Flirts спродюсированные Бобби Орландо (Bobby ORLANDO) пользовались хорошим спросом по обе стороны Атлантического океана. В это время танцевальная (   Читать дальше...   )Жанр: Hi NRG, Synth-pop, DiscoФормат: Vinyl, LP, AlbumПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D7177BBC3582D38A31AF8DD0A25CD038A2DA89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303670   (565125) от 25.05.2019
 
 Baba Yaga  (Баба Яга) - Where Will You Go (Куда Ты Пойдешь?) (1996) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk Rock, Blues Rock>
@@ -21,6 +47,8 @@ A4 Red Bird (Красная птица)(   Читать дальше...   )Жа�
 ```bash
 magnet:?xt=urn:btih:B769561943A34700E8816A33302557EC72CFB03A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +77,8 @@ SIDE A:
 magnet:?xt=urn:btih:3379715825309C0F79E6D50C159268B4B7604447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +105,8 @@ A4. Pass It Around (3:06)(   Читать дальше...   )Производс�
 ```bash
 magnet:?xt=urn:btih:330A5ED060902A2D62E337C1C9AEA05968DFC2A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +135,8 @@ Al Bano & Romina Power - Аль Бано и Ромина Пауэр (1982) [FLAC
 magnet:?xt=urn:btih:9E2642248F866BAE628B1936C17ED1C6C37C63F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +163,8 @@ A1.  Watermark [02:23]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +193,8 @@ A4 Джамбалая(   Читать дальше...   )Жанр: Pop, FolkПр
 magnet:?xt=urn:btih:58C066592730F242B641B27E1AC2BE9C1287FB1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +221,8 @@ Various Artists – SACD Ultimate Collection (vol. 1 & 2) (2001) [DTS 5.1 CD-DA|
 ```bash
 magnet:?xt=urn:btih:9A703FEA1B8C99B9220169D5012E46C5EC7B84CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +251,8 @@ Linn Records - The Super Audio Collection Volume 2 Sampler (2006) [DSD 5.1, 2.0|
 magnet:?xt=urn:btih:C39F3C8247981DC84A795F3BAC1DD1BA73312969
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +279,8 @@ Mannheim Steamroller - Fresh Aire 8 (2000/2016) [DTS 5.1 CD-DA|44.1/16|image+cue
 ```bash
 magnet:?xt=urn:btih:B613A9C7EB39B41940F165DB6D1834E4DA2E0476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +309,8 @@ A4. 4:39 AM (For The First Time Today, Part 2) (2:03)(   Читать дальш
 magnet:?xt=urn:btih:93CE33C2983B52713AE3425C77A1A017D3784D97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +337,8 @@ magnet:?xt=urn:btih:93CE33C2983B52713AE3425C77A1A017D3784D97
 ```bash
 magnet:?xt=urn:btih:8A8EE0016A1C65E072726249166D16EC7674B003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +367,8 @@ Symphony X — американский музыкальный коллекти�
 magnet:?xt=urn:btih:8402E328F819AADD68A333A75729DE890F8E6575
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +395,8 @@ magnet:?xt=urn:btih:8402E328F819AADD68A333A75729DE890F8E6575
 ```bash
 magnet:?xt=urn:btih:639C17E001100EAA9D34922B9FE87D5F0A9C9387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +425,8 @@ VA - Честно говоря-2 - Советская Эстрада 70-80 гг.
 magnet:?xt=urn:btih:99DEDAF61DEDDF2E9CA07D49D81ED5C191CA1719
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +453,8 @@ Manfred Mann's Earth Band - Chance (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Ri
 ```bash
 magnet:?xt=urn:btih:A99E1AEBCB21360BF049A3E2384BB45C9261A1B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +483,8 @@ magnet:?xt=urn:btih:A99E1AEBCB21360BF049A3E2384BB45C9261A1B5
 magnet:?xt=urn:btih:1D8FA1CF173D7C6736ECED467DDEAEEDEC882BA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +511,8 @@ A4. Bonnie (5:39)(   Читать дальше...   )Производство: A
 ```bash
 magnet:?xt=urn:btih:15F840FC44121FF0E328E6774C5C2D9CF99DCE46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +541,8 @@ Rammstein - Rammstein (2019) [FLAC|192/24|Lossless|tracks|Vinyl] <Industrial Met
 magnet:?xt=urn:btih:7AF67764A229D91956D541E6046AE755E136003E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +570,8 @@ A4. This Guitar(   Читать дальше...   )Жанр: Classic Rock, Hard 
 magnet:?xt=urn:btih:EF43303927AE49C36F90EDDB911E2110F73B111D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +598,8 @@ Uriah Heep - Firefly (1977) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:A18598CB474D2996289B3A154775FAF9A1859A05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +632,8 @@ Sandra - Into A Secret Land (1988) [APE 2.0 24/96|image (Vinyl-Rip)]<Synth-pop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +668,8 @@ B4 (Do Not) Stand In The Shadows [03:12](   Читать дальше...   )1983
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +696,8 @@ A4. Shooting Star (6:17)(   Читать дальше...   )Жанр: Hard Rock�
 ```bash
 magnet:?xt=urn:btih:C5DCA37F860681E62F864175C74038B3DA628726
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +726,8 @@ Luciano Pavarotti - Ti Adoro (2003) [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <Clas
 magnet:?xt=urn:btih:3C85C521834722C39DBCE5FFBC9D672195C3EDB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,32 +755,7 @@ A3 Freddie "Fingers" Lee - Down On The Farm(   Читать дальше...   )�
 magnet:?xt=urn:btih:6EB95A32E2486E3A6FA6DFC163170B0380014B35
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041078   (584150) от 07.08.2016
-
-Amy Winehouse - Back to Black (2013) [DTS-HD MA, LPCM, Dolby TrueHD 2.0|96/24|Blu-ray] <Soul, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Blu-ray Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_584150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Back to Black — второй и последний студийный альбом британской певицы Эми Уайнхаус, выпущенный 4 октября 2006 года на Island Records. Большинство музыкальных критиков положительно отозвались об альбоме, оценив талант автора в песнях, написанных Уайнхаус под влиянием классического соула и спродюсированных Саламом Реми и Марком Ронсоном. На 50-й церемонии «Грэмми» (   Читать дальше...   )01. Rehab
-02. You Know I'm No Good
-03. Me & Mr. Jones
-04. Just Friends(   Читать дальше...   )Жанр: Soul, JazzПродолжительность: 00:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F70B632E8E3AAACD753BA1AA7915891210D206
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

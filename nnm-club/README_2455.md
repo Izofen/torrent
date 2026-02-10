@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:FBBEE47C26EF056B31FE333120C9D7F88A7F6277
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:FBBEE47C26EF056B31FE333120C9D7F88A7F6277
 ```bash
 magnet:?xt=urn:btih:CF9DC092B81B6E2A7EEF7A13AFDE6CBA97EC715B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:CF9DC092B81B6E2A7EEF7A13AFDE6CBA97EC715B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:CF9DC092B81B6E2A7EEF7A13AFDE6CBA97EC715B
 ```bash
 magnet:?xt=urn:btih:399DE2E601F8D6CD3C3D5AC528AF0AC1BCD93196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:399DE2E601F8D6CD3C3D5AC528AF0AC1BCD93196
 magnet:?xt=urn:btih:33986F756079EDCE4F6E0B80DF464FB33F7509F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:33986F756079EDCE4F6E0B80DF464FB33F7509F5
 ```bash
 magnet:?xt=urn:btih:8F637239DD639F4F12D656623946B6F4008ECCB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:8F637239DD639F4F12D656623946B6F4008ECCB0
 ```bash
 magnet:?xt=urn:btih:17EBBA1B2EED2D73555282DB5141ABAC766E4861
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:17EBBA1B2EED2D73555282DB5141ABAC766E4861
 magnet:?xt=urn:btih:7D3ECB97A11292F38C5B090CF90AA8A3ADF0C623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ VA - Anjunadeep Explorations Vol. 1 (2025) [MP3|320 Kbps] <Progressive House, Me
 magnet:?xt=urn:btih:F11893E96DB42E8A289F2CB07573E05C3BC8AB3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:F11893E96DB42E8A289F2CB07573E05C3BC8AB3C
 ```bash
 magnet:?xt=urn:btih:DE8EE3D9DD06C952076614E05084275258F130F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ VA - Armin van Buuren - A State Of Trance 1236 (2025) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:A5111A17F668F209F7887E09FCB1928B8C08B31B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ VA - Rimini Summer Party, Vol. 1 (2025) [MP3|320 Kbps] <Progressive House, Melod
 ```bash
 magnet:?xt=urn:btih:D111C56461181EFABF660B8E6B1F3B5E5A1ED962
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ VA - 25 Years Of Anjuna Mixed By Dom Donnelly (2025) [MP3|320 Kbps] <Progressive
 magnet:?xt=urn:btih:0C6ACFB1385AF55B4AD2A6CD6F2CB37565F1BFC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:0C6ACFB1385AF55B4AD2A6CD6F2CB37565F1BFC4
 magnet:?xt=urn:btih:6A08DE54067A88AA4574F8D8B073521FE345850F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:6A08DE54067A88AA4574F8D8B073521FE345850F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ A3 I'm In Love(   Читать дальше...   )Жанр: Electronic, New Wave
 magnet:?xt=urn:btih:D2127C96833163B25D9A419C8EF12198A11B1ADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:D2127C96833163B25D9A419C8EF12198A11B1ADD
 ```bash
 magnet:?xt=urn:btih:8EDA21F53072A105277D4C1C1C7BF4A618C16977
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:8EDA21F53072A105277D4C1C1C7BF4A618C16977
 magnet:?xt=urn:btih:A6D0E94F8D0BBFD70B6CA98D403DA1A00896F197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ The Unseen Fears 7: Inner Darkness (2025) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:D753A9C4CAF048780DB5511A99AF7077D12A01C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:D753A9C4CAF048780DB5511A99AF7077D12A01C4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:D753A9C4CAF048780DB5511A99AF7077D12A01C4
 ```bash
 magnet:?xt=urn:btih:C8CA13032C5E77BB575812C81F5F6ABDB71B2A71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:C8CA13032C5E77BB575812C81F5F6ABDB71B2A71
 magnet:?xt=urn:btih:2C6E90BD0880851709651E52B390AE9E70509E17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:2C6E90BD0880851709651E52B390AE9E70509E17
 ```bash
 magnet:?xt=urn:btih:66505F8C5019E034CDAC2CF89B53B454F476E599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ Metallica - ...And Justice for All (1988) [APE|Lossless|image + .cue] <Thrash Me
 magnet:?xt=urn:btih:A657931DA125E310E51326F87F714D6E1CFEFF8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ VA - On the Beach: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Bale
 magnet:?xt=urn:btih:7C7C48118486FFB1D3E3881D5FAB472E15135CE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ Paul McCartney - Paul Is Live (1993) SHM-CD, Japanese Edition, Reissue, Remaster
 ```bash
 magnet:?xt=urn:btih:6B539CD3ECC1CC3A06ECD8E2E3C895DEE432E9C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ FastStone Capture - мощная и многофункциональная пр
 magnet:?xt=urn:btih:E6D1C736400E12F3118EA1EC4B1B843896EBE87B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Balabolka 2.15.0.860 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:754C3DE1F9889AC5E0F3C395BDEFD0409FB8CDA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:63DF0EFA045DB17C1BFE01DCEA2F3A5CC4407B36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:63DF0EFA045DB17C1BFE01DCEA2F3A5CC4407B36
 ```bash
 magnet:?xt=urn:btih:410299A714B06222E81DDD468025B3563AA3697B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 magnet:?xt=urn:btih:A7CDB6EB6DA7BBE089CFFB8A8796A684D8853588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:A7CDB6EB6DA7BBE089CFFB8A8796A684D8853588
 ```bash
 magnet:?xt=urn:btih:DBFC730EAAD511EA4EA2EEBC22D0F52E686B1957
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ IDE GoLand предлагает широкий спектр инструмент
 magnet:?xt=urn:btih:F2B0B124A1D3F6EF08C86A64906126DE0D6CDD7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ BlueStacks App Player — бесплатное программное решен
 ```bash
 magnet:?xt=urn:btih:AB3D29207F1CC62850FBBFCEB3179C3246DB4E08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ IPTV Pro v7.1.3 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:21F589925982A5C1E2089FB8ED7136FB19B42D99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:E7D3C998A5B52632C3CD59BCD553FF27DCC6FF90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ SysAdmin Software Portable v.0.6.5.0 by rezorustavi (Update 24.12.2023) [Ru] (а
 magnet:?xt=urn:btih:C9EC72C52D4B3D636AC655ECE490B0D25071B6D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ PhotoRoom - приложение, что будет одинаково поле�
 ```bash
 magnet:?xt=urn:btih:12DF052984D004C7C58B5229468951DFA3C16FA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ PhotoRoom v4.7.9 b1216 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:7580CB6D77A11F0B513078124F6F935F90270361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:D45CE0BD1F2B7492579E62E740566F2D565E93C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ RubyMine — умная и удобная интегрированная сре�
 ```bash
 magnet:?xt=urn:btih:8C207590A3F952B4CC8831CB9C1E54A112A9FFAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:C9F6E01E8A606D251623948C1182890396E51976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Opera Crypto Browser 106.0.4998.19 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:4E26FDEEB58AC2F730F13815245197B1EC211DBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Duolingo: изучай языки 5.132.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0F217EDCA0DAC67A751965E7F95FD2891E99589E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Opera One 106.0.4998.19 Portable by Cento8 [Ru/En]
 magnet:?xt=urn:btih:5333DB0B3FD49FAB9A2ACEE31562B7D6C3EF2532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Reface v4.1.0 Mod by Mixroot [Multi]
 magnet:?xt=urn:btih:7864B694DE49BB6E884DA5908D2E6B6C099C11C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Smart Launcher - лаунчер являющийся одним из самых 
 ```bash
 magnet:?xt=urn:btih:E1EBAB5167F9250E75BEFDED03E08417ED523BEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:466E3DB519F008261CCF96F45658706E05AF45F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ DiskDigger - маленькая утилита, с которой можно в�
 ```bash
 magnet:?xt=urn:btih:4D32FD3118A621A748D7C27C709A2566CC99B2A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Reverso Translation Dictionary / Переводной словарь Reverso - �
 magnet:?xt=urn:btih:6554A4115FCA155F1C27454B937039F3D0A72320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Ventusky: Прогноз погоды v30.2 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:3BDBD7FE9ABB49F19039ABD1D881F62BE5114724
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 ```bash
 magnet:?xt=urn:btih:77816A2585C69295C5D7CC8EE0F2C2F5C703D1A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

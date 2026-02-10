@@ -19,6 +19,8 @@ NG. Пирамиды смерти / Pyramids of Death (2005) HDTVRip [H.264/720p
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG: 80-е: Десятилетие, которое сотворило нас / Th
 ```bash
 magnet:?xt=urn:btih:3951B43C4E447E1BF402EE47A457B15820DA81E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NGW: Дикое море России / Russia's Wild Sea (2018) HDTV [H.264/108
 magnet:?xt=urn:btih:39BF9F7A81E87CAA631916D389360F0498AE2653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC. В краю муссонов: Потоп / Wonders of the Monsoon: Deluge (
 ```bash
 magnet:?xt=urn:btih:E652B36CB8C75D14447995A8988DE92AD9B0F434
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Discovery: Хаос в действии: кадры очевидцев / Chaos c
 magnet:?xt=urn:btih:0EA0D6069D2459F4EAC21D9EC5112DE7D561DDD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ History Channel: Вселенная. Глубокая заморозка / The U
 ```bash
 magnet:?xt=urn:btih:040689AB1F4CA577755A31F04DC2C7D6A010867F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Animal Planet: Дикая (Суровая) Арктика [4 из 4] / Wildest A
 magnet:?xt=urn:btih:DC31C13FDA37BB90863FB44C328C25510920BA45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NG: Секретные материалы древности: Загадка М�
 ```bash
 magnet:?xt=urn:btih:1BC121919315761D8BFB9EB5B4A7046B67FEC8CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ History Channel: Военная машина Гитлера / Hilter's War Machi
 magnet:?xt=urn:btih:A57D7D1ED47F0128BC9592F634BBC34B0658B9AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Discovery: Скрытое - Самые страшные темницы / Hidden 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ BBC. История Жизни / Life Story (1-6 серии из 6)  (2014) BDRi
 magnet:?xt=urn:btih:C48BD33A68C53C1C0BA63250E76A39F4289F3B2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Discovery. Из любви к машинам / For the Love of Cars (2014) HDTVR
 ```bash
 magnet:?xt=urn:btih:2FDCACEBBB712B546FDFBFDE33E1186F8E0A55B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ NG. Американская пума / American Cougar (2011) HDTV [H.264/1080i
 magnet:?xt=urn:btih:906AF1D4D9E690A889063E61910D1F332D061452
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Discovery. Гаражное золото / Garage Gold (2013) HDTVRip [Сезо�
 ```bash
 magnet:?xt=urn:btih:35A9D30D78048EF2FBF285216129CDB28CDC6B11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ NG: Explorer (Исследование). Наука о кошках / Explorer. 
 magnet:?xt=urn:btih:DCAA69E0DCC6F68E781B25B12D5C8DB566857319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Animal Planet. Человек и львы (История одного сафа�
 ```bash
 magnet:?xt=urn:btih:DA6A506DCE1993F3DDE4FC3AA71F59CF5D1CB26F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ BBC. Как устроена Земля / Earth Machine (Der rastlose Planet) (2
 magnet:?xt=urn:btih:518B36A3D5F0CB1E37EF2FB44402B798517218D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:518B36A3D5F0CB1E37EF2FB44402B798517218D9
 ```bash
 magnet:?xt=urn:btih:DF7647DD1C516BED3A8B5CC25908E89F5CA5502B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Discovery. Из любви к машинам / For the Love of Cars (2014) HDTV 
 magnet:?xt=urn:btih:95C1D084A7E43174B3EBFB9F5F0ABF83356961D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Animal Planet: Земля динозавров (Юрский период) / Whe
 ```bash
 magnet:?xt=urn:btih:AF05EE069499B9D9952DEC27015046995D0AF5B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Discovery: Выжить любой ценой [сезон 1] / Ultimate Survival
 magnet:?xt=urn:btih:22C0ED4BF6F0197558857FEC98279C6E9D100066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Bacardi Limited — крупная компания, базирующаяся н
 ```bash
 magnet:?xt=urn:btih:0EFBC790031E1F0B313EDC6979A3A0D56B88F349
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ History Channel. Бойцовский клуб Юрского периода / J
 magnet:?xt=urn:btih:DF0C09D2F3D76D137A8D89F658A17BA7FD034391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ NG: Вызов бездне / Deepsea Challenge (2014) BDRemux (1080p)
 ```bash
 magnet:?xt=urn:btih:5CE235221CDC2EA7992F576FA15432DD853A7198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ History Channel. Бойцовский клуб Юрского периода / J
 magnet:?xt=urn:btih:BA6E930D312B85775BAC3534CA4479E8DC2AAA9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ NGW: Самые опасные животные Африки: Ботсвана /
 ```bash
 magnet:?xt=urn:btih:F342157C215BBE87DE0C7A9001AE4A263F91A771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

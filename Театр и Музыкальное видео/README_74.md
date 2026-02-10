@@ -1,3 +1,205 @@
+###  Публикация: 1329376   (354308) от 04.10.2019
+
+Popa Chubby - Wild (2005) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354308.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт американского блюзмена Popa Chubby (настоящее имя - Ted Horovitz), прошедшего 27 марта 2004 года в Le Plan, La Fnac Evry, Meridien Hotel, France.01. Intro
+02. Un-American Blues
+03. I Can't See The Light Of Day
+04. Top Ten Reasons Why I Can't Sleep At Night(   Читать дальше...   )Производство: США,DixiefrogЖанр: БлюзПеревод: ОтсутствуетСубтитры: АнглийскиеПродолжительность: 01:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C826B06B9767560504BF20387E3F59B19A1F58B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 255918   (354389) от 08.11.2010
+
+Юрий Антонов - От печали до радости... (2005) DVD-9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354389.jpg" />
+</div>
+
+
+###  Подробнее
+
+18-19 февраля 2005 г. в Государственном Кремлевском Дворце состоялись юбилейные концерты Юрия Михайловича Антонова, приуроченные к 60-летию мэтра отечественной эстрады. Первый канал неоднократно показывал их телеверсии, но всякий раз демонстрировались различные варианты. Здесь представлена полная телеверсияЖанр: поп, рокРежиссер: ОРТАктеры: Юрий Антонов +Перевод: оригиналСубтитры: нетФормат: DVD-9Продолжительность: 02:25:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94CB1FDF0E1CABFC43C50B49C06AF92B9930323A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577993   (354760) от 20.11.2012
+
+Led Zeppelin - Celebration Day (Live at London O2 Arena 2007) (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_354760.jpg" />
+</div>
+
+
+###  Подробнее
+
+Led Zeppelin - Celebration Day (Live at London O2 Arena 2007)
+
+01. Good Times Bad Times
+02. Ramble On
+03. Black Dog
+04. In My Time Of Dying
+05. For Your Life
+06. Trampled Under Foot
+07. Nobody's Fault But Mine
+08. No Quarter(   Читать дальше...   )Жанр: RockПродолжительность: 2:04:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 577882   (354767) от 20.11.2012
+
+Led Zeppelin - Celebration Day (Bonus DVD) (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_354767.jpg" />
+</div>
+
+
+###  Подробнее
+
+A bonus DVD in the deluxe versions features the dress rehearsal at Shepperton Studios, filmed a few days before the O2 concert. The band play the entire set that was to be performed at the O2, and this DVD gives the customer a unique insight into the final rehearsal. The rehearsal is filmed by a single camera in SD and recorded in stereo.1. Shepperton Rehearsal 06.12.07
+2. Zeppelin Media Moment
+3. Tampa Opening FilmЖанр: Hard RockПродолжительность: 1:56:45 + 0:03:39 + 0:01:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 91100   (355091) от 01.11.2015
+
+AC/DC - Live At Donington (1991) DVD-9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_355091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard RockПеревод: ОригинальныйПродолжительность: 01.57.55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177957   (355490) от 28.10.2017
+
+Сборник клипов - Лучшие казахстанские от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355490.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые лучшие клипы от казахстанских исполнителей. Я очень старался выбирая клипы. Надеюсь вам понравится моя работа. Смотрите слушайте и наслаждайтесь. Все лучшее для вас.  ALEXnROCK000 Intro
+001 Кайрат Баекенов & Формат тобы - Махаббат
+002 Lashyn - Казагымнын арулары-ай
+003 Шамси - Ханшасы(   Читать дальше...   )Жанр: ПопПродолжительность: 03:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8698F3A2EF367629A11356F0C0F8A4F47BACEFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178133   (355640) от 28.10.2017
+
+Kreator - Gods Of Violence: Live At Wacken 2014 (2017) BDRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление Kreator на Wacken Open Air в 2014 году, вошедшее в состав специального издания альбома Gods Of Violence на DVD и Blu-Ray01. Mars Mantra
+02. Phantom Antichrist
+03. From Flood Into Fire
+04. Warcurse(   Читать дальше...   )Производство: Nuclear Blast (Germany)Жанр: Thrash MetalПродолжительность: 01:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0566A4843182D902D037F1BEF090A6E8326BF885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177761   (355931) от 28.10.2017
 
 Testament - Dark Roots Of Thrash (2013) BDRip [H.264/1080p-LQ]
@@ -21,6 +223,8 @@ Testament - Dark Roots Of Thrash (2013) BDRip [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:DEA1EAAEE7A5D6A8298EF3C793FEEBA12E8961F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -51,6 +255,8 @@ SUBLIMINAL(   Читать дальше...   )Производство: Япон
 magnet:?xt=urn:btih:C644555862398FC4618AA4A69EC2C4124C1F8D1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -80,6 +286,8 @@ GAIA2012(   Читать дальше...   )Производство: Япони
 magnet:?xt=urn:btih:D9A4E75CF6B82120BE1382FD7A838A80D850490C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -107,6 +315,8 @@ The Beatles: Концерт на стадионе Шей / Shea stadium concert 
 ```bash
 magnet:?xt=urn:btih:AF4EE25CD1FD7B2BEDBF47441633EBE3F756ED0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +346,8 @@ ID
 magnet:?xt=urn:btih:9C903CDEC3EEE6843AAA009D4E159AE81CDFB07C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +374,8 @@ Evanescence - Synthesis Live (2018) DVD5 [hand made]
 ```bash
 magnet:?xt=urn:btih:ACE99537EC82453852A24D13B66391C20BF7B63A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +405,8 @@ Gregorian представляет последнюю главу своего п
 magnet:?xt=urn:btih:664593BE416C4406ED00B56F73F779CBF526CBFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +431,8 @@ magnet:?xt=urn:btih:664593BE416C4406ED00B56F73F779CBF526CBFB
 magnet:?xt=urn:btih:42C6CD197062D94A4C8C34B61AC18F48B66E1FC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +456,8 @@ magnet:?xt=urn:btih:42C6CD197062D94A4C8C34B61AC18F48B66E1FC3
 ```bash
 magnet:?xt=urn:btih:E3DA872F32C2A549FF0E717A18C3EFE38EB73981
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +486,8 @@ magnet:?xt=urn:btih:E3DA872F32C2A549FF0E717A18C3EFE38EB73981
 magnet:?xt=urn:btih:83CC56709C631FAE05611CEBCB801C0C0D41F257
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +513,8 @@ Tarja Turunen - Act 1 (2012) Blu-Ray [1080i]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +538,8 @@ Money Trump - Boss In My City (Uncensored) (2012) [H.264/1080p] WEBRip
 ```bash
 magnet:?xt=urn:btih:36A429A398A9220B521F5E7E6D1207F94EA584B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +565,8 @@ LOBODA - 40 ГРАДУСОВ (Нравится) (2012) [H.264/1080p] HDTVRip
 magnet:?xt=urn:btih:7B66AC015A41ED6E8B1AC2DE08D164086E985CA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +590,8 @@ magnet:?xt=urn:btih:7B66AC015A41ED6E8B1AC2DE08D164086E985CA6
 ```bash
 magnet:?xt=urn:btih:A925DE36A15880209E09A867F34A41920674C7D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +626,8 @@ magnet:?xt=urn:btih:A925DE36A15880209E09A867F34A41920674C7D0
 magnet:?xt=urn:btih:B74C74BA30BF5FE56CE1BC5E2AFB6425B75AA7C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +652,8 @@ magnet:?xt=urn:btih:B74C74BA30BF5FE56CE1BC5E2AFB6425B75AA7C0
 magnet:?xt=urn:btih:B938B13A4FACA98A15F43F61570A2694822BB88E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +677,8 @@ Metallica и Симфонический оркестр Сан-Франциско
 ```bash
 magnet:?xt=urn:btih:DDF642F40FA9BF9ED09CC6930C95329AA03435B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +707,8 @@ magnet:?xt=urn:btih:DDF642F40FA9BF9ED09CC6930C95329AA03435B5
 magnet:?xt=urn:btih:CE796891A152D99CFAA45A17D337073F3C32B863
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,176 +733,7 @@ Tiesto x Melanie Iglesias - Sounds Of The Night (2012) [H.264/1080p] WEBRip
 magnet:?xt=urn:btih:78A5DA3D1739FC818788EA452AD3B9B2C8C19ECE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577908   (358028) от 19.11.2012
-
-Jennifer Lopez - Goin' In ft. Flo Rida (2012) [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4166F2CA86DF4FE41E93457C63BD100B60D12BB5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577886   (358038) от 19.11.2012
-
-Чай Вдвоем - Время-вода (2012)  [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358038.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59E6F19898E2419CDCB352C34C7F13A37A30D2D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577730   (358040) от 19.11.2012
-
-ПРЕМЬЕРА! Анастасия Стоцкая - Преступник (2012)  [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA4C4415D7F5BD586D6521D6FA3734D7309EBCE0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577916   (358044) от 19.11.2012
-
-Madonna - Turn Up The Radio (Explicit) (2012)  [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CDEA2F3A68C4C92CE99E6A651E6EBC29E1C6412
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577463   (358052) от 19.11.2012
-
-Kelly Rowland - ICE (Explicit) ft. Lil Wayne (2012)  [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F056F05B267065B23067D29E1FE6C66F102EF304
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577526   (358056) от 19.11.2012
-
-No Doubt - Push And Shove ft. Busy Signal, Major Lazer (2012) [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FC21FF70F15E98B5B3E1442D766A2856620D43F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177822   (358124) от 27.10.2017
-
-Celebrating Jon Lord. Live at The Royal Albert Hall (2014) 2хDVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Celebrating Jon Lord - волшебная ночь памяти великого человека и музыканта. Включает DEEP PURPLE, BRUCE DICKINSON, GLENN HUGHES, PAUL WELLER, RICK WAKEMAN и многих других. Концерт состоялся и был записан 5 апреля 2014 года в Royal Albert Hall в Лондоне. Великий копмозитор и музыкант Джон Лорд, к сожалению, скончался в 2012 году. Ян Пэйс вспоминает о "Celebrating (   Читать дальше...   )Disc 1 "The Composer"
-01. Fantasia
-02. Durham Awakes
-03. All Those Years Ago feat.Steve Balsamo & Micky Moody(   Читать дальше...   )Производство: Германия, earMUSICЖанр: Рок
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9273700461D86785D08506391D25CEDA7D79AD1E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

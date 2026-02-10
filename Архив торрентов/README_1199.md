@@ -22,6 +22,8 @@ updated_dec_2022_x64_dvd_5e52ebd1.iso
 magnet:?xt=urn:btih:3430CC8852D6B1EFD1BA62922362B41B2A848F1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:04ECD8E86AFC7B4029A38E5E5127EE082FAD7546
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ PIDKey Lite предназначена для просмотра, обновле
 magnet:?xt=urn:btih:052A171B6024706735FA9923AD30ACE0EE6F92B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:D8BBBB9FC5A738B5EBF01DC0DC46171069763F86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ DVDFab StreamFab — это удобный и мощный инструмент 
 magnet:?xt=urn:btih:2EB85B3D380C39875272BAB9F10D38833C5072F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:091EEED535CBAED596731904C13E3303E131A05D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ MailWasher Pro включает антивирусную защиту, обес�
 magnet:?xt=urn:btih:FC94B54F205E40EA9C115D7BFE7D4D68B0957967
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Image Uploader - бесплатная программа для Windows c отк
 ```bash
 magnet:?xt=urn:btih:D7392D717E126905654ECF3CF287A4BFF8DC8F6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Cockos Reaper является одной из самых продвинутых
 magnet:?xt=urn:btih:AA0B0FF392117CB71C3FA752B0220C636A34A98E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:2114C765FA89D501E4653C5984CF6447979FB4B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Pipette — данный продукт пригодится дизайнера�
 magnet:?xt=urn:btih:A2FA75CA85A95ED8B05CD10396C62806F26BBF0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Wondershare Filmora 12.0.6  [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:912223B90BE99B3AF7B5F2FF210807858CFEBFB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ PictureThis - Plant Identification v3.69 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:2B162E96FCAC70960923493E0C8B580CEC344DB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Fitify: Фитнес тренировки дома 1.59.1 Mod by Balatan [Ru/En]
 ```bash
 magnet:?xt=urn:btih:20C8ADD9057BD4DF64FD5AF3E7F6868BFF9AF0DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ PDFelement Pro - профессиональный инструмент, кото
 magnet:?xt=urn:btih:D2B0AFD423C81C392AE9A490A06D94FBC2A6C6D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:30801692394450FF9D2EB253F2FD84E278D97AD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 magnet:?xt=urn:btih:59C29BD9127D0B3AA482A45257E47FA68AF059F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Lunar управляет той же яркостью, которую вы мо�
 ```bash
 magnet:?xt=urn:btih:EC7821A7E13379632CBCF3E2A879305E3792BB34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ YouCut - один из самых удобных и оптимальных по 
 magnet:?xt=urn:btih:167481CC6D09D953717DE1ACE525C6762F71547C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Flyingbee PDF to Word for Mac 8.5.6 [En]
 ```bash
 magnet:?xt=urn:btih:B9FA1D8B31A10E8AE2033D713D6251359F355FDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:70378C8CFB6978980F62C0D3BBFC067EB4D9F50B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Live Wallpaper & Themes 4K позволяют использовать живы�
 ```bash
 magnet:?xt=urn:btih:19E686D01977A10D3CF6F43511FAA394431F22DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ VivaVideo - это простой в использовании видеоред
 magnet:?xt=urn:btih:343C6226673EEB2EF13AAE8D926639B4BC08FDAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Seal 1.11.0-rc.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2C3BE52F8BD7B35C75555233E5B4A6DD219976DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ MediaInfo — программа для получения подробной т
 magnet:?xt=urn:btih:25BE31F3C4BD9AA38A497C63479250AF6B2A1893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Battery Indicator for Mac 2.14.1 [En]
 ```bash
 magnet:?xt=urn:btih:CC80F1D84AEA327E6C40AC269254650E06890FEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

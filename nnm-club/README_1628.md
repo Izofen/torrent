@@ -19,6 +19,8 @@ Photo Studio — не просто приложение для редактир�
 magnet:?xt=urn:btih:1E0E2E9A6D74A785B692FF59703E2E50B1078431
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:1E0E2E9A6D74A785B692FF59703E2E50B1078431
 ```bash
 magnet:?xt=urn:btih:34F10EB42C22033E9ABA606CAB897F87E9E252FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Classical Piano Masters (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:7DFEB8DC50EF5182C643B6D1871507A7A0ECA9E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Purple Disco Machine - Paradise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <El
 ```bash
 magnet:?xt=urn:btih:A9E710B64C1881E978A0E30BA410215236CE14F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Bob Dylan & The Band - The 1974 Live Recordings Sampler (2024) [FLAC|Lossless|WE
 magnet:?xt=urn:btih:177FC265B0C664D102EC8882BFE5DEAECD3E522B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ VA - DJ Hits Platinum 97 (1997) [OGG Vorbis|480 Kbps] <Electronic, Pop, Eurodanc
 ```bash
 magnet:?xt=urn:btih:131DCCC8532867B3478A228FDF69BB23993DF9B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ VA - Trance Emotions, Vol 13 (Best Of EDM Playlist Compilation 2025) (2024) [MP3
 magnet:?xt=urn:btih:5E4B650B4F7CD8836C12E8A9F4461968DFBBDAEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ VA - Mega-Mix Dance Hits Vol. 1 (1989) 2 CD [OGG Vorbis|480 Kbps] <Electronic, A
 magnet:?xt=urn:btih:C3599E4D55D21AB8E269305C7EDA46F6C130F75E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:C3599E4D55D21AB8E269305C7EDA46F6C130F75E
 ```bash
 magnet:?xt=urn:btih:64844207C644EE993FED5B2A96245567434034A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Footgun: Underground (2024) [Ru/Multi] (1.0.1.0e) License GOG
 magnet:?xt=urn:btih:FA2676646518CFD1A89CC9214CE68AEB8D90F2DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:FA2676646518CFD1A89CC9214CE68AEB8D90F2DB
 ```bash
 magnet:?xt=urn:btih:87BEEE03880F7FB3F6A6ABFA7BCDDB99CC1476A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ VA - Tribal Fusion Harmonie (2024) 2CD [MP3|320 Kbps] <Enigmatic, New Age, Elect
 magnet:?xt=urn:btih:4E1A1500FEC0E1C0E741DE7E1B7F312960333DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:4E1A1500FEC0E1C0E741DE7E1B7F312960333DE0
 ```bash
 magnet:?xt=urn:btih:3CCFF5F4C506D30AB2DE2EEC89705D1FAE9CDEEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ Gimmick! 2 - это платформер, рассказывающий о при
 magnet:?xt=urn:btih:47E01A68D9C3FA632CDF85A93E8751F99CD2DF8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:47E01A68D9C3FA632CDF85A93E8751F99CD2DF8C
 ```bash
 magnet:?xt=urn:btih:2B9C70D6286E6A61D4669FC1B3FB538D085799B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:2B9C70D6286E6A61D4669FC1B3FB538D085799B4
 magnet:?xt=urn:btih:7FB3A04DA2A9ECD3C91E950CA1F1E4D245226440
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ PictureThis - Plant Identification v4.4.1 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BC42E9D547632B598F600B334F018DB008F23E00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:BC42E9D547632B598F600B334F018DB008F23E00
 magnet:?xt=urn:btih:4A4A41B4E7472DEB9EC67C85256EE1124E5D25CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:4A4A41B4E7472DEB9EC67C85256EE1124E5D25CC
 magnet:?xt=urn:btih:DDA00FFFFCE538AE02A9A3C9A3477617511B49BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:DDA00FFFFCE538AE02A9A3C9A3477617511B49BA
 ```bash
 magnet:?xt=urn:btih:4E10B68B28FCDCD7C3839EFED7BE95A7337326A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ Nightwish - Yesterwynde (2024) Limited edition earbook, 2024, Napalm Eagles [MP3
 magnet:?xt=urn:btih:7483D5C1F286D79D7C1EF3321B4016708C659266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:7483D5C1F286D79D7C1EF3321B4016708C659266
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:7483D5C1F286D79D7C1EF3321B4016708C659266
 ```bash
 magnet:?xt=urn:btih:FF0C095153F39F8A599B0BEC6FA43B3769C8CC97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ Picture Mushroom — распознавайте грибы мгновенно. �
 magnet:?xt=urn:btih:4BA9B8013DE886F6F57C30DD731109B5FB33BBEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:4BA9B8013DE886F6F57C30DD731109B5FB33BBEB
 magnet:?xt=urn:btih:D0882968FFE69C1810A3DA7BC1364F365496A794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ magnet:?xt=urn:btih:D0882968FFE69C1810A3DA7BC1364F365496A794
 ```bash
 magnet:?xt=urn:btih:D35A99E94C938665EB189291097B9945D04E715D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

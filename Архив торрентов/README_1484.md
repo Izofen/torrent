@@ -21,6 +21,8 @@ Yate был разработан для людей, которые серьез�
 magnet:?xt=urn:btih:A590CDD64D8C2FA76165B1382FEEB48F8767B928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ TechSmith Snagit облегчает захват изображений с эк�
 ```bash
 magnet:?xt=urn:btih:F50CA7FE6A8722ECF0C2DA5E58408FABAC2999FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ InShot - впечатляющее своими возможностями и у�
 magnet:?xt=urn:btih:E3FF03523C543950A675C338D1CA289E5DA15E86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ PhotoDirector - функциональный, но весьма простой �
 magnet:?xt=urn:btih:AB1293FBFFBA38AC66DEC199C9247442A7480661
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ OmniReader - полифункциональное приложение для ч
 ```bash
 magnet:?xt=urn:btih:39A91F80B4C9CBC08D67252DD0D888FA0E39949F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Dropshare - приложение строки меню для Drag & Drop заг
 magnet:?xt=urn:btih:7C104D5A1DDD85C78782A0515DD8F3D520BF8DCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Lucky Patcher (Лаки патчер) – отличное решение есл
 ```bash
 magnet:?xt=urn:btih:22C5CBE756ADEF12DC073ABDF346676795075996
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ InShot - впечатляющее своими возможностями и у�
 magnet:?xt=urn:btih:455CFA6883110EEA85CA3DAFD3E6F31F529233D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.34.31921.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:FC3AB33ED3DEA6FD616281206F601AF94CC1EF83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Photomath - настоящий подарок для всех, кто регул
 magnet:?xt=urn:btih:C5502CF0225F2F8B361C45C2CC11C3917A7FB673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ```bash
 magnet:?xt=urn:btih:8AA54FE1BD1E46DF275DB12B81013BB9058316EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ FontXChange  - приложение для конвертирования шри
 magnet:?xt=urn:btih:358DC5FC5D1263A03164FC43120C9748F4042F55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ CINEMA 4D задействуют при разработке игр, в моде
 magnet:?xt=urn:btih:CD8BE67E86673F9BC74984AF242E269E24930DB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ WonderPen - приложение для как для профессиональ
 ```bash
 magnet:?xt=urn:btih:341B93B9E0581252DB1CB369311F347AE8F4ADBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Chaos выпустили новейшую версию своего CPU-ренд
 magnet:?xt=urn:btih:D59B5E420C4241320E212F3B3E24961E713C8766
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ RJ TextEd - мощный текстовый редактор с большим �
 ```bash
 magnet:?xt=urn:btih:2DAA72E76B77E95B4B3C99878F3B4679D86A3540
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Widgetter - Custom Desktop — это прямая линия, позволяю�
 magnet:?xt=urn:btih:E7CFBA403C55889DF769D63C7CCE957CA3B5B47E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ PhotoRoom - приложение, что будет одинаково поле�
 ```bash
 magnet:?xt=urn:btih:FAC204B0F0F6CDAAC113C5ECB664A26AC09FC70D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Windows 11 Media Creation Tool – официальное приложение M
 magnet:?xt=urn:btih:E4546D69C7EDF4A91AFBF4D1E46DAC1B0B53060C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Persecond - это простой и увлекательный способ с�
 ```bash
 magnet:?xt=urn:btih:58AD1DD671CF051E479E98F3C3F0AB8F00268E3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ Everyone Piano 2.5.8.14 [Multi/Ru]
 magnet:?xt=urn:btih:17391A5C392E7C60E01D0D1CF31B841B5A764B9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:EC05F9D0FAF507A4A817ADFE96B9EBAA299F524B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Mirillis Action! 4.36.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A88F8FBA6AF8FC1453E3377EBFBF4A1EDDC0F0C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ ru-ru_windows_11_business_editions_version_22h2_x64_dvd_64f7a2da.iso
 magnet:?xt=urn:btih:518EB9776BCD96E932F3CCA515D62351B60EB7FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ PeaZip — бесплатный архиватор и графическая о�
 ```bash
 magnet:?xt=urn:btih:32ADD28159D91823E2B9B85D1F9B27694D441650
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +685,8 @@ Capture One Pro один из самых мощных профессиональ
 ```bash
 magnet:?xt=urn:btih:DAA0D49B46485CE8CFC49BEBE54F2A96E8F5A971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Spatial Touch™ 1.1.1 Mod by IndAlok [Ru]
 magnet:?xt=urn:btih:BC4340EFCF547EBF2A8EFBC342155431CF4A789F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MX Player Pro v1.78.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F01304E08A8B2CC383451D85F63423687147B9B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Denoise it - ИИ фоторедактор v1.1.8 Mod by srajawwal09 [Ru/Multi]
 magnet:?xt=urn:btih:2268D5C3400ABC1A3130DA202981EAEC9D7FA17F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ FX Player Pro - универсальный медиаплеер который �
 ```bash
 magnet:?xt=urn:btih:120F4817A801F3DFD0A661266DE0F3DE44DFABBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Abstruct - это официальное приложение для обоев,
 magnet:?xt=urn:btih:D8FB37A8BE1C19B197BC917AAEA7143BBACC81DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ AccuWeather - невероятно популярный погодный про�
 ```bash
 magnet:?xt=urn:btih:8CE924BC09E3D469379715324F7B741DE762DDBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ CalenGoo - это замечательный вариант календаря �
 magnet:?xt=urn:btih:6FB86411872AC8D5D7564866C75E7A1058CBE2A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Onvier - IP Camera Monitor (Ранее. Onvifer) 19.11 Mod by Alex.Strannik [Ru/
 ```bash
 magnet:?xt=urn:btih:16EABE6F76619BFAADF3A1D75E1F14A6E039765D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ CamScanner - Мощное приложение для сканирования. 
 magnet:?xt=urn:btih:F80703E45AD106DD875EC9CCF55533029A08ED07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Memrise - шикарный образовательный проект пред�
 ```bash
 magnet:?xt=urn:btih:6849209E12C22BDA32605A6DABEE700B209322D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:6849209E12C22BDA32605A6DABEE700B209322D2
 magnet:?xt=urn:btih:A2112FE582EBDA1819ECD5DB07C703AD333F3139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ WiFi Analyzer v5.4 Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C7BBAC417D0399ACC0E5A82DFE334F9A8A8DE6C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ PicWish — фоторедактор с искусственным (   Чита
 magnet:?xt=urn:btih:85A67107808940F3A1E07D25996D1D9DC4635316
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:85A67107808940F3A1E07D25996D1D9DC4635316
 ```bash
 magnet:?xt=urn:btih:393B1AF7A20B5BD8CAAE1D4B727A0F52F65A7D2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Adobe Photoshop Express - ещё одно крайне нужное и поле�
 magnet:?xt=urn:btih:9EE3BF96CE6D04D22662A458F358FB3D9F9993D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:9EE3BF96CE6D04D22662A458F358FB3D9F9993D5
 ```bash
 magnet:?xt=urn:btih:61F0F0F74D8AEC0F76D0170D426907F5739101E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Colorize Images - это сервис, основанный на автомат�
 magnet:?xt=urn:btih:DA179F82C72C82B7DFA28334D5C5124AD4661B10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ PhotoTune - Улучшитель фото v4.6.0 Mod by Mixroot, 0x7d [Multi]
 ```bash
 magnet:?xt=urn:btih:E143C25FB2AF0A757D4B5A2ED0B28D35F8C4F389
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:E143C25FB2AF0A757D4B5A2ED0B28D35F8C4F389
 magnet:?xt=urn:btih:A8D70C79B1FE4931CC2A2E6721E0BEA76265AA68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Adobe Acrobat Reader - знаменитое приложение названи�
 ```bash
 magnet:?xt=urn:btih:675CE111F67FB2BFC1D728167AFAF063CB7F9476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ ibis Paint X - известное благодаря своим качества
 magnet:?xt=urn:btih:69C81500265D3F651E6E589A3E68875B39649040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Via - весьма популярный и востребованный Брау
 ```bash
 magnet:?xt=urn:btih:4A8732984480F0588522DEDD55A6BEDFA03AA5F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Via - весьма популярный и востребованный Брау
 magnet:?xt=urn:btih:DCBCB96D4668265E6A079D8F97293417F2C6FBA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Via - весьма популярный и востребованный Брау
 ```bash
 magnet:?xt=urn:btih:8A0755156FB390D5D6604B02F62CC8550695DA77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ D Notes - крайне симпатичный блокнот, что, как и 
 magnet:?xt=urn:btih:C82FC2882C156FC503F911718BEEC089275CA96B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ ibis Paint X - известное благодаря своим качества
 ```bash
 magnet:?xt=urn:btih:1A0EAFCAAA1AD020E718427158F3114F7FBAEB04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Tom Scott - Flashpoint (1988) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion>
 magnet:?xt=urn:btih:A67DFDB1DE769A2BA0F0B180A5D7F7B1027E6CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ P.O.S. - Deeper Tales (2023) [MP3|320 Kbps] <House, Progressive House>
 magnet:?xt=urn:btih:730E0D3288E5DF95010821C94EBF46CA638085F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:730E0D3288E5DF95010821C94EBF46CA638085F2
 ```bash
 magnet:?xt=urn:btih:6ADE8A2F685726A01B560D33D1B499A39AB2FE81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Scorpions - Wind Of Change (The Collection) (2013) [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:9701992B4498DC91902FFC86421B29ABC334B227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ VA - Hotel Skt. Petri - Boxed Pleasures, Vol. 2 (2014) [AAC|~320 Kbps] <Lounge, 
 ```bash
 magnet:?xt=urn:btih:2CC6D6AEE3E91908D7C12216B9BE98718BB730D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Altar Of I - Human Resources (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 magnet:?xt=urn:btih:AF6F1364ED31EBEC2A89627C05C4B683AD6BCDEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ iThoughtsX – программа, позволяющая визуализиро
 ```bash
 magnet:?xt=urn:btih:AADBB6BCAA226EF1B08E54A6F6A758E72B752C2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ L'One - Дом (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:19C1E3C94C6D4E4C5B1EB20E514E48022F5C58BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ Elle, женский журнал о моде и моде в мире. Его с
 ```bash
 magnet:?xt=urn:btih:F0C888C74E891ACAD22FBC568F3607E12216EC71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Typora дает вам безупречный опыт как читателя, 
 magnet:?xt=urn:btih:D3E366E0E045934D88D12AD49398192082B74E64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:D3E366E0E045934D88D12AD49398192082B74E64
 magnet:?xt=urn:btih:A743365BA61EFABC451138026D7CA3BDA83AADE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:A743365BA61EFABC451138026D7CA3BDA83AADE6
 ```bash
 magnet:?xt=urn:btih:59D02DBEEF294D20E64055BC783E4EC8233C2C03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ Naughty Professor - In the Flesh (2016)[FLAC|Lossless|WEB-DL|tracks] <Contempora
 magnet:?xt=urn:btih:6CC36AB4DFE7A114AB3C6ED5208EF7F2E4BEBF96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ Ellie Goulding - Higher Than Heaven (2023) Deluxe [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:E99CF33D84AE25F83510F6940DE5C951D95E5F7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ Tang - Big Bright Empty Nothing (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Doo
 magnet:?xt=urn:btih:E662D84A2852EAC634626E5FA6F634AE5FE4FC5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ Elle — французский женский журнал о моде, кра�
 ```bash
 magnet:?xt=urn:btih:7D1CD289157561E83005CD4315D8FB735B473B15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ Venom Inc. - There's Only Black (2022) [FLAC|Lossless|image + .cue] <Heavy Metal
 magnet:?xt=urn:btih:601DC67B3913EA995EFE4550501BC648A2D64234
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +494,8 @@ Antonio Carlos Jobim And Friends - Live at the Free Jazz Festival in Sao Paulo (
 magnet:?xt=urn:btih:7D44267C6724F3A9D537D21B9142CF7F6F8CA2E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ magnet:?xt=urn:btih:7D44267C6724F3A9D537D21B9142CF7F6F8CA2E1
 ```bash
 magnet:?xt=urn:btih:19B190109A9E0A11EB72498D59AE336967B84F1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:19B190109A9E0A11EB72498D59AE336967B84F1B
 magnet:?xt=urn:btih:40EBF02FC181B1DF673BB3CD61BA6F4A8433B9AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:40EBF02FC181B1DF673BB3CD61BA6F4A8433B9AF
 ```bash
 magnet:?xt=urn:btih:1F005BBAAD6853B32BDE79999BF8407EED6E3084
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ AllDup - бесплатный инструмент для поиска и уда
 ```bash
 magnet:?xt=urn:btih:44463E4AD0810EF1009A418C13C986633778446C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +628,8 @@ Biopsyhoz (Биопсихоз) - Перерождение (2021) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:5EB9127C73E5200E99E564EC59805FA575035E3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:5EB9127C73E5200E99E564EC59805FA575035E3B
 magnet:?xt=urn:btih:7AAD6E1B2B1359633BCF3D2FC6AFD410B584A0D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:A3142A4D353338980BF5774AD75F08A1C77ACB00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +708,8 @@ PeroPero - Massive Tales of Doom (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-Gar
 ```bash
 magnet:?xt=urn:btih:2E15F1DB90958D9CF6BEFA276AA79DF428E2971E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

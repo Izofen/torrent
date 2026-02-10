@@ -19,6 +19,8 @@ Thick Air (2016) [Ru/En] (0.1/Early Access) Repack Other s
 magnet:?xt=urn:btih:DACFCE5F74BDF27E2964D0A35DE80E83715C855E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Agony — хоррор с видом от первого лица, в котор
 ```bash
 magnet:?xt=urn:btih:46012C4470FAB67177F5DCA6B17ECC788B97BBA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Stranded Deep — это квест с видом от первого лица �
 magnet:?xt=urn:btih:8F6828104E90CB42CB6492605AF2B8FEFE8E883B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Bus World - игра о пассажирских перевозках, от пр
 ```bash
 magnet:?xt=urn:btih:9130FF4A0FAF02063FC87B25C85698CA9ACE2C80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ In Silence (2020) [Ru/Multi] (0.43) Repack Pioneer [Early Access]
 magnet:?xt=urn:btih:483B4D805C8D31D5A2ED469FF8629B5E68E213DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Salt - это приключенческая survival-песочница про 
 ```bash
 magnet:?xt=urn:btih:CF540DE96EB98D572D5C18DCA83A5F75B50FE953
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ REVERSE SIDE / ОБРАТНАЯ СТОРОНА (2015) [Ru/En] (1.0.2.6.F) SteamR
 magnet:?xt=urn:btih:59F200DF65EEBC495ADAE4FB30FDEAEE3496843A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Killsquad (2019) [Ru/En] (0.7.3) Repack Mizantrop1337 [Early Access]
 magnet:?xt=urn:btih:BECDAD023F6F8732807759DADB971678B5E81A39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ Vagante это приключенческий 2D рогалик. Ключево�
 ```bash
 magnet:?xt=urn:btih:7783FF6FC314A55F791F7B98325EA33DD631F2B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Spacebase DF-9 (2013) [En] (early access alpha 2 taste oddity) Repack Elektra
 magnet:?xt=urn:btih:9A453033B40924699C1870D99D7604FF726AC78C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Hack_me – это игра про жизнь обычного хакера. Г�
 ```bash
 magnet:?xt=urn:btih:9898BDB1FE2B320E0F1E823B05BB732DBAD486C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Stranded Deep — это квест с видом от первого лица �
 magnet:?xt=urn:btih:AC1CCD6DEB4FD63D73FEAF6BB8E189EC75ADC429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ The Wild Eight (2017) [Ru/Multi] (0.7.28) Repack Other s
 ```bash
 magnet:?xt=urn:btih:57ADFCCB9C637669CE5DDD1D4D195C94490E555A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:57ADFCCB9C637669CE5DDD1D4D195C94490E555A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ EBOLA 3 - переносит вас в великую классику ужас�
 magnet:?xt=urn:btih:6EC6F0B2E13347B639B76DCDCEFAF4B86D123209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Mashinky - это совершенно новый транспортный си�
 ```bash
 magnet:?xt=urn:btih:3ADD44C7CD172D4DFEC3818D8EB1EBCB839DDC48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Euro Truck Simulator 2 дарит вам опыт управления самы�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Man O' War: Corsair, просоленный морской экшен в зна�
 ```bash
 magnet:?xt=urn:btih:67CD17895C4C06699397AA79FC5A9E98C0FE396C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ BLOCK'HOOD (2016) [En] (0.80.16) License GOG
 magnet:?xt=urn:btih:A46072E1CA2CDF1E3DF0094E2D78161873555C21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Wolcen: Lords of Mayhem, ролевая игра с элементами экш�
 ```bash
 magnet:?xt=urn:btih:C38D143445062CEF4043D0CF446A4DFB10015430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Blockscape - очень красивая песочница с возможно�
 magnet:?xt=urn:btih:B5B64EEBB2186ED79132E656BD60A4FE8046896E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Dead Age 2 - это уникальный сплав из выживания, у�
 ```bash
 magnet:?xt=urn:btih:BD64894539A11010E0FCA4159A8819D883345B97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Chernobylite (2019) [Ru/Multi] (31663) Repack xatab [Early Access]
 magnet:?xt=urn:btih:98E809ED0EB811F42294F01C930E29B4BB87BACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Breathedge – это ироничная приключенческая игра
 ```bash
 magnet:?xt=urn:btih:603865DE5A59127700E353D065816B5FF374EBC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Metel - Horror Escape — это 3D-игра от первого лица в ж�
 magnet:?xt=urn:btih:62DFC2DA68257B10E1D1436166116F6E711B16C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ DRAG представляет новый вид физики транспорт�
 ```bash
 magnet:?xt=urn:btih:75ADE58EC48516AF1F750176DB6BC2CACEC39CFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

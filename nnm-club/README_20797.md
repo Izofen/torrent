@@ -1,660 +1,720 @@
-###  Публикация: 1200500   (795649) от 21.01.2018
+###  Публикация: 1274045   (795048) от 05.01.2019
 
-Meat Beat Manifesto - Impossible Star (2018) MBM [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Techno, Dub, Big Beat, Ambient>
+VA - Abriss Ski Hits 2018 - Die XXL Apres Ski Schlager Discofox Hits bis zum Karneval und Fasching 2019 (2018) [MP3|320 Kbps] <Schlager, Pop, Party>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jägermeister DJ Alex, Matty Valentino - Auffe aufn Berg
+02. Ingo ohne Flamingo - Saufen morgens, mittags, abends
+03. DJ Apres Ski Hits - Johnny Däpp
+04. Isi Glück feat. Jägermeister DJ Alex - Ich will zurück zu Dir (Hände hoch Après Ski)(   Читать дальше...   )Жанр: Schlager, Pop, PartyПродолжительность: 05:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CADC41C4F1DE02DAC80AF0D8C29D498E91C6A68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274025   (795049) от 05.01.2019
+
+VA - Best of Hands Up Freaks 2k18 (Deejay Edition) (2018) [MP3|320 Kbps] <Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Luke Smash - Erase You (Hands Up Freaks Remix Edit)
+02.  Grrtz - Light up the Night (Hands up Edit)
+03.  Marious - Dragons (Radio Mix)
+04.  Jinpachi Futushimo - Maximum Overload 2k18 (Radio Edit)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D7B62FBAC65CD0606F74486F3F91E00FC4AA440
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274127   (795050) от 05.01.2019
+
+Dreamtime - Farout (2009) [APE|Lossless|image + .cue] <Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleeping Prophet Part One (2:18)
+02. Ghosthack (5:47)
+03. Escape to the Past (6:16)
+04. New Horizons (6:51)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 01:13:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:867A0498C0149BEA0D1929DA1990C43BE6AF6D78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273504   (795051) от 05.01.2019
+
+А. Б. Вербицкий, В. В. Броунштейн (сост.) | Знатные люди Страны Советов о религии (1939) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высказывания о религии знатных людей нашей страны: депутатов Верховных Советов СССР и союзных республик, героев Советского Союза, ученых, стахановцев социалистической промышленности и сельского хозяйства, врачей, артистов и др.
+
+Книга раскрывает антинаучную и реакционную сущность всякой религии: христианской, мусульманской, иудейской и других, мешающих строительству (   Читать дальше...   )Жанр: История, политология, религиоведение, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E55D8C518AD8520C64D98A6832C572FB210D4A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273978   (795052) от 05.01.2019
+
+Money Pro 2.0.1 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795649.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795052.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ONE (02:41)
- 02. Bass Playa (02:43)
- 03. We Are Surrounded (06:00)
- 04. Unique Boutique (03:03)(   Читать дальше...   )Жанр: IDM, Experimental, Techno, Dub, Big Beat, AmbientПродолжительность: 01:04:02
+Money Pro сократит расходы и покажет полную картину Ваших финансов. Money Pro - это единая программа для ведения бюджета, отслеживания операций по счетам и напоминания о предстоящих платежах. Money Pro отлично подходит для ведения домашнего бюджета, а также для финансового планирования малого бизнеса.
+
+Удобная синхронизация (iPhone, iPad, Mac). Money Pro является (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.01.2019Разработчик: iBear LLCПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7699923810A874F527A5EBB38DA0496274D8145
+magnet:?xt=urn:btih:63917E76C448718752C42A55623D23E36FCDE8F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200543   (795650) от 21.01.2018
+###  Публикация: 1273969   (795053) от 05.01.2019
 
-Барбара Картленд | Флирт (2017) [MP3]
+App Tamer 2.4.2 [En]
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795650.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795053.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Потеряв сначала мать, а затем отца, умершего от тяжелой болезни, Анцелла Уинтон осталась одна, без средств к существованию. Выбор у девушки невелик: либо ехать приживалкой к теткам, суровым незамужним дамам, которым везде и во всем чудится порок, либо попытаться устроиться в жизни самостоятельно… И она принимает предложение отправиться на юг Франции и стать сиделкой (   Читать дальше...   )Жанр: Исторические любовные романыПродолжительность: 06:06:27
+App Tamer — держим производительность под контролем!
+При работе за компьютером очень часто вы можете обнаружить большое количество открытых программ, половина из которых вам уже не нужна. В такой ситуации выход только один — закрыть ненужные приложения и освободить системные ресурсы. Но с App Tamer у вас появится еще одно решение этого вопроса!
+
+App Tamer — это небольшая (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.01.2018Разработчик: St. Clair SoftwareПоддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:442555D73F7590A1129DC29481B7C88E1D275D77
+magnet:?xt=urn:btih:D93B92DE50C7E39ABA87C3EB78BA021B6E0205EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200544   (795651) от 21.01.2018
+###  Публикация: 1274172   (795054) от 05.01.2019
 
-В.П. Авенариус (сост.) | Образцовые сказки русских писателей (1910) [PDF]
+VA - FSOE Clandestine: Best Of (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Stoneface & Terminal - Berlin 2000 (Original Mix)
+02.Darren Porter - Whiplash (Original Mix)
+03.David Forbes & Paul Denton - Blizzard (Original Mix)
+04.Paul Denton - Revolution (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7AD9A588C203525019740E25D40716E9D259A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274054   (795055) от 05.01.2019
+
+Лидия Обухова | Давным-давно (1986) [FB2]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795651.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795055.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник сказок для детей младшего возраста.Жанр: Детская проза, СказкиФормат: PDF
+Книга о жизни славянских племен.Жанр: Детская прозаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9C87E43BF2BD7F82170E932BDB15FA101DF08A1
+magnet:?xt=urn:btih:0B157F40B692C77DC17BF36D6CB097F6AFEFE7BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200591   (795652) от 21.01.2018
+###  Публикация: 1274077   (795056) от 05.01.2019
 
-MediaHuman YouTube Downloader 3.9.8.20 (1901) RePack (& Portable) by ZVSRus [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.Язык интерфейса: Русский | Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CD6A827B0E6806F4C8867D56B51AC9A7A4F960C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200528   (795653) от 21.01.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0002 (2018) [MP3|320 Kbps]<Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
+VA - The Official UK Top 40 Singles Chart 04.01.2019 [MP3|320 Kbps] <Pop, Dance, Other>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795653.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795056.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tony Costa feat. Charly Danone - Go! ( 2017 )
-02. Den Harrow - Italian Megamix ( 1999 )
-03. Mode One - Ocean Of Love ( 2016 )
-04. Alan Cook - Running Away ( Remix 1987 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:57:31
+01. Ava Max - Sweet but Psycho
+02. Ariana Grande - thank u, next
+03. Post Malone & Swae Lee - Sunflower
+04. Mark Ronson, Miley Cyrus, Chris Elliott - Nothing Breaks Like a Heart(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:18:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11C7C04DA1924A23E1A7EB46906A0FBB79BD636D
+magnet:?xt=urn:btih:DBB7888D2EE9260D4756003D14BB801BB41FD20A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200530   (795654) от 21.01.2018
+###  Публикация: 1274176   (795057) от 05.01.2019
 
-Василий Андреевич Жуковский | Сказка о Иване-царевиче и сером волке (1909) [PDF]
+С.В. Чапнин | Церковное возрождение. Итоги (2018) [PDF, FB2, EPUB]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795654.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795057.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Сказка о Иване-царевиче и Сером Волке» – произведение русского поэта, одного из основоположников романтизма в русской поэзии В. А. Жуковского (1783 – 1852).Жанр: Детская проза, СказкиФормат: PDF
+Эта книга – описание отдельных событий и процессов, происходящих внутри и вокруг сообщества, которое сегодня принято называть Русской Православной Церковью. Каковы характеристики того типа религиозности, который здесь поддерживается? Как соотносятся религиозные и идеологические установки в современном российском обществе? Что представляет собой руководство этого (   Читать дальше...   )Жанр: Публицистика, религиоведениеФормат: PDF, FB2, EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E1CC71546E9E837B8AE6FE3CEE1D2C87B7DDD86
+magnet:?xt=urn:btih:4D6BFB81983D909329FA0F5B0B3CAD68E1B8D8D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200621   (795655) от 21.01.2018
+###  Публикация: 1274163   (795058) от 05.01.2019
 
-VA - Empire Records - Sound Clinic 9 (2017) [MP3|320 Kbps] <Club, House>
+Д.А. Клименко | Образ Ватикана в СМИ в период понтифика Бенедикта XVI (2015) [PDF, DJVU]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795655.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795058.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Danny-S & Relanium Feat. Laila - Intoxicated 2.1 (Taito Remix)
-02. AC Slater & Chris Lorenzo - Fly Kicks (Wax Motif Remix)
-03. Nick Olivetti & Sly Turner - 247 (LiTek Remix)
-04. Xairun - Sub Bass(   Читать дальше...   )Жанр: Club, HouseПродолжительность: 01:59:35
+С точки зрения изучения образа страны, Ватикан представляет собой уникальный случай: Государство Град Ватикан – одна из самых маленьких стран в мире, но в то же время, Святой Престол объединяет под своим духовным управлением более одного миллиарда католиков. Сегодня Ватикан – активный участник мирового информационного пространства. Это выражается не только в том, (   Читать дальше...   )Жанр: МонографияФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E34F4466E167655CDB434CCDF0C068B014756E4
+magnet:?xt=urn:btih:65041B1846FCC2CC837D6AA348F2B16BB2987FDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200445   (795656) от 21.01.2018
+###  Публикация: 1274160   (795059) от 05.01.2019
 
-Iron Savior - Reforged - Riding on Fire (2017) 2CD (Japanese Edition) [FLAC|Lossless|image + .cue] <Power Metal>
+Алексей Бодров, Михаил Толстолуженко (ред.) | Богословие красоты (2013) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Понятие красоты — одно из центральных для христианского богословия. Оно относится не только к миру природы, но и к области творческой активности человека. Более того, христианская мысль придает красоте трансцендентное измерение: творение прекрасно, потому что прекрасен Творец; прекрасное в мире - это знаки божественного присутствия в нем.
+
+Авторы этой книги (в числе (   Читать дальше...   )Жанр: БогословиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC5FBB33B49A9B55AA347F48AE859ECCEFBAC1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273879   (795060) от 05.01.2019
+
+Газета | Сезон у дачи №24 (277) (Декабрь 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795060.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F1C4A6DC5E043395943FD7D09D3CCED77E5C28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274079   (795061) от 05.01.2019
+
+VA - The House of House (2019) [MP3|320 Kbps] <House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mykel Mars - Sonic (Festival Rework)
+02. Epic Beat - Sax Party (Original Mix)
+03. Toxotis - Catch Me (Extended Mix)
+04. Cash & Love - Missing (Club Mix)(   Читать дальше...   )Жанр: House, Club HouseПродолжительность: 05:54:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF30C66EDC81DA7FD240196C1400690D449004E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273878   (795062) от 05.01.2019
+
+Газета | Сезон у дачи №23 (276) (Декабрь 2018) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F90E96D60EDB9A1362913170B30F12F89C1119E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274030   (795063) от 05.01.2019
+
+А. К. Дрезен (ред.) | Царизм в борьбе с революцией 1905-1907 гг. (1936) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795063.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящем сборнике собраны документы, извлеченные сотрудниками ЛОЦИА из архивов царских учреждений. Документы вскрывают картину борьбы против первой русской революции и ее деятелей со стороны царской полиции, органов юстиции и т.п., показывают также участие войск в подавлении революционных выступлений 1905-1907 гг.
+
+Материал систематизирован и разбит по девяти (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E312028FAEE259B634301FECE8FE83A2B5308DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274128   (795064) от 05.01.2019
+
+Drexciya - Neptune's Lair (1999) Tresor [FLAC|Lossless|tracks+.cue] <Electro, Detroit Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro: Temple Of Dos De Agua (1:00)
+02. Species Of The Pod (3:53)
+03. Andreaen Sand Dunes (6:15)
+04. Running Out Of Space (1:54)(   Читать дальше...   )Жанр: Electro, Detroit TechnoПродолжительность: 01:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F047C61C339118569404440F9007C6BC5A0B9FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274130   (795065) от 05.01.2019
+
+VA - Best Of Soulful (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlie - Switch The Sound (Latouche Finale Remix) 4:10
+02. Jerem A - I Need You (Dj Hakuei Nu Disco Remix) 7:52
+03. Darren Studholme - I Like Your Eyes (Deep Disco Mix) 9:36
+04. Manjit Feat. Leah Uk - Give You A Chance (Original Mix) 6:55(   Читать дальше...   )Жанр: HouseПродолжительность: 03:14:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6C2D4837276B3FF315EE46926E1B96D504DE88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274031   (795066) от 05.01.2019
+
+С. Ааронович | Правящий класс (1962) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795066.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своей книге "Правящий класс" прогрессивный английский экономист Сэм Ааронович на богатом фактическом материале показал всесилие горстки монополистов в Англии, методы и формы их обогащения за счет эксплуатации трудящихся Англии, а также колоний и зависимых стран, их связи и соперничество с монополистическими группами других империалистических государств, (   Читать дальше...   )Жанр: История, политология, экономика, публицистика, психология, социологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC3058848A83B00D63F04955B01F5209960E0940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274159   (795067) от 05.01.2019
+
+Хуан Матеос, Роберт Тафт | Развитие византийской литургии (2009) [PDF, DJVU, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга состоит из двух небольших, но очень важных работ современных литургистов: архимандрита Роберта Тафта и его учителя отца Хуана Матеоса. Авторы -выдающиеся западные ученые, существенно повлиявшие на развитие литургической науки, известные во всем мире своими фундаментальными исследованиями в области истории богослужения на христианском Востоке, которые все еще (   Читать дальше...   )Жанр: ЛитургикаФормат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9014A872337FF224AC20119C0CB0C71219B44532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274161   (795068) от 05.01.2019
+
+System 7 & Derrick May - Mysterious Traveller (2002) A-Wave [FLAC|Lossless|tracks+.cue] <Techno, Detroit Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. System 7 / Derrick May - Altitude (Mayday Mix) (07:42)
+ 02. System 7 / Derrick May - Mysterious Traveller (Groovy Intent Mix) (08:04)
+ 03. System 7 / Derrick May - Big Sky City (Mayday Mix) (09:29)
+ 04. Rhythim Is Rhythim - Icon (Montage Mix) (08:49)(   Читать дальше...   )Жанр: Techno, Detroit TechnoПродолжительность: 01:08:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBD8DF03380372DD33CFB4702EB4FC4C38173123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274173   (795069) от 05.01.2019
+
+В.Н. Ерохин | Английское католическое сообщество в XVI — первой половине XVII века в современной британской историографии (2012) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795069.jpg" />
+</div>
+
+
+###  Подробнее
+
+В монографии представлена характеристика изучения истории английского католического сообщества в постреформационный период в XVI — первой половине XVII вв. в современной британской историографии. Рассмотрены положение в церкви Англии накануне Реформации и деятельность английских католиков во второй половине XVI в. и в первые десятилетия XVII в. накануне Английской (   Читать дальше...   )Жанр: Монография, историяФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54CA3AA940CD18233884750E9326A7153CFCDB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273962   (795070) от 05.01.2019
+
+Amarok - Devoured (2018) [FLAC|Lossless|tracks + .cue] <Sludge Metal, Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795656.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795070.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Warrior
-02. Iron Savior
-03. Tales of the Bold
-04. No Heroes(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:37:34
+01. VI Sorceress (21:24)
+02. VII Rat Tower (23:03)
+03. VIII Skeleton (11:15)
+04. IX Devoured (13:45)Жанр: Sludge Metal, Doom MetalПродолжительность: 01:09:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8334583DFC17437AD54D6D4BDD418D1A2BF0A4D8
+magnet:?xt=urn:btih:79B9B36338FE07B19478DAC0B8F7F71CCDD0EFF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200536   (795657) от 21.01.2018
+###  Публикация: 1274051   (795071) от 05.01.2019
 
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0004 (2018) [MP3|256 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danny Keith - I Feel Right ( Day Version 1986 )
-02. Leopold Nord & Vous - C'est L'Amour ( Love Remix 1987 )
-03. Afroside - Lady Come Down ( 1988 )
-04. Telex23 - Phaeton ( 2017 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:57:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B27A440E9138BA005D598D83490825B2375A7D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200531   (795658) от 21.01.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0003 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lala - Johnny, Johnny ( Extended Version 1986 )
-02. Monte Kristo - Sherry Mi-Sai ( Maxi Version 1986 )
-03. Savage - And You Are ( 2016 )
-04. Alan Barry - Hie Hie Hie ( 1987 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E68A5142FD4190A9D698DF60F6769101EC7CD5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200607   (795659) от 21.01.2018
-
-Laliya - The Middle Way (2017) [MP3|320 Kbps] <Lounge, New Age>
+Tears Of Change - Road To Beijing (2015) Rohs! Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Deep House>
 
 >>Electronic
->>Easy listening
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795659.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795071.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dragonfly (6:04)
-02. Breathe (4:38)
-03. Weave (4:04)
-04. Mind Finding Form (3:42)(   Читать дальше...   )Жанр: Lounge, New AgeПродолжительность: 00:52:57
+01. Road To Beijing (05:53)
+ 02. Road To Beijing (Raffaele Attanasio LFJ Version) (04:16)Жанр: Techno, Deep HouseПродолжительность: 00:10:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F86CF719E4F4171BD363233DA5106963CE79775
+magnet:?xt=urn:btih:697C307082D9964A129CCAA0E7079073D4CE398C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509179   (795660) от 11.11.2021
+###  Публикация: 1274080   (795072) от 05.01.2019
 
-Wondershare PDFelement Pro 8.5.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795660.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDFelement Pro - профессиональный инструмент, который является решением «все-в-одном» для всех необходимых задач при работе с документами PDF. Вы можете легко создавать новые PDF-файлы с веб-страниц (.html, .htm), изображений (png, .jpeg, jpg, bmp, .tiff, .bmp) и текстовых файлов (.rtf, .rtfd, .txt). Вновь созданные PDF-файлы на 100% совместимы с Adobe Reader, Acrobat (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2021Разработчик: © 2021 Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96DCE4608DECE0E37CE7D3A01726F8CBD321380A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509195   (795661) от 11.11.2021
-
-Журнал | Street Trucks [Canada] №3 (март 2021) [PDF] [En]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Street Trucks фокусируется на всем, что касается кастомизированных грузовиков, включая самые горячие тенденции, обновления послепродажного обслуживания и специальные приемы настройки.Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49AD681C0C4C1776A5AAAA8255976B52527316A6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509248   (795662) от 11.11.2021
-
-Журнал | Street Machine [Australia] №10 (октябрь 2021) [PDF] [En]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Street Machine - самый продаваемый, самый читаемый и самый уважаемый журнал о модифицированных автомобилях. Сочетая великолепные фотографии с точным и профессиональным освещением австралийской модифицированной автомобильной сцены и подробными техническими характеристиками, Street Machine воспевает страсть Австралии к старым автомобилям, двигателям V8 и образу жизни, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C001589A551096BD35137FCD098FBD47633F5AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509193   (795663) от 11.11.2021
-
-Журнал | Street Trucks [Canada] №4 (апрель 2021) [PDF] [En]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Street Trucks фокусируется на всем, что касается кастомизированных грузовиков, включая самые горячие тенденции, обновления послепродажного обслуживания и специальные приемы настройки.Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F8A529904FACAD8F38A4CE424CC3CBE1A25DA05
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509118   (795664) от 11.11.2021
-
-Danger Danger - The Return of the Great Gildersleeves (2000) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grind
-02. When She's Good She's Good (When She's Bad She's Better)
-03. Six Million Dollar Man
-04. She's Gone(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EF95660EF8D5EEB142A37D67EA2932DC2BF0BAF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509242   (795665) от 11.11.2021
-
-Журнал | Street Machine [Australia] №4 (апрель 2021) [PDF] [En]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Street Machine - самый продаваемый, самый читаемый и самый уважаемый журнал о модифицированных автомобилях. Сочетая великолепные фотографии с точным и профессиональным освещением австралийской модифицированной автомобильной сцены и подробными техническими характеристиками, Street Machine воспевает страсть Австралии к старым автомобилям, двигателям V8 и образу жизни, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A286DA32BB20F0E6B45C0C6868BE4D06EAEE4B8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509245   (795666) от 11.11.2021
-
-Журнал | Street Machine [Australia] №5 (май 2021) [PDF] [En]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Street Machine - самый продаваемый, самый читаемый и самый уважаемый журнал о модифицированных автомобилях. Сочетая великолепные фотографии с точным и профессиональным освещением австралийской модифицированной автомобильной сцены и подробными техническими характеристиками, Street Machine воспевает страсть Австралии к старым автомобилям, двигателям V8 и образу жизни, (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F24EB2223DD2021DCC81E85802549AFE02E1A69
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508987   (795667) от 11.11.2021
-
-VA - Café del Mar XXVII (Vol. 27) (2021) [AAC|~347 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795667.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.01. Eric Hilton - The Impossible Silence (3:06)
-1.02. Kraak & Smaak, iogi - All I Need (4:32)
-1.03. Bent - Friends (5:39)
-1.04. Till Von Sein - Kalifornien Luv (5:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:07:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AAAB5919817C6FC4912D50B2129EA305D4EE702
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509190   (795668) от 11.11.2021
-
-Журнал | Street Trucks [Canada] №10 (октябрь 2021) [PDF] [En]
-
->>Автомобили
->>Автомобильные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795668.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал Street Trucks фокусируется на всем, что касается кастомизированных грузовиков, включая самые горячие тенденции, обновления послепродажного обслуживания и специальные приемы настройки.Жанр: Автомобильный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0239B27D4B630FB7BBD59F10E41089A14DF5980C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509225   (795669) от 11.11.2021
-
-Игорь Ланда | Динозавр Амвросий (2021) [MP3, Игорь Ланда]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая сказка про маленького динозавра Амвросия с большой, невидимой душой.Жанр: Детская литература. СказкаПродолжительность: 00:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:937555EEF6456465C1EEB3CB4BFA1C091E80382B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509126   (795670) от 11.11.2021
-
-Benny Goodman - Three Classic Albums Plus (1958 - 1962) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+Teddy Edwards - Sunset Eyes (1959, 1960) 1998, Pacific Jazz [FLAC|Lossless|image + .cue] <Hard Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795670.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795072.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Introduction into Let's Dance [1:23]
-02. Mission to Moscow [3:01]
-03. Meet the Band [5:05](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:38:29
+01. Tempo de Blues [4:46]
+02. Vintage '57 [7:13]
+03. I Hear a Rhapsody [3:32]
+04. Up in Teddy's New Flat [3:07](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:46:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:150875B31298242FBAA4EEDD80F5D2D01227DC27
+magnet:?xt=urn:btih:E76050854602AF25F55C0B557204FC3F2A41C1A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509124   (795671) от 11.11.2021
+###  Публикация: 1284440   (795073) от 28.05.2020
 
-Benny Goodman - Three Classic Albums Plus (1949 - 1958) 2CD, 2010, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+Metro: Exodus / Метро: Исход (2019) [Ru/Multi] (1.0.0.7/HotFix/dlc) Repack Other s [Gold Edition]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795671.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_795073.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Let's Dance [1:02]
-02. Don't Be That Way [3:14]
-03. Hallelujah [4:15](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:37:56
+2036 год. Прошло четверть века с тех пор, как ядерная война опустошила землю. Москва лежит в руинах, и несколько тысяч выживших вынуждены бороться за существование в тоннелях метро. Их не убила отравленная природа и мутировавшие чудовища, они пережили сверхъестественный кошмар и ужасы гражданской войны. Теперь в роли Артема вы должны покинуть метро и возглавить бойцов (   Читать дальше...   )Тип издания: RepackРазработчик: 4A GamesЖанр: Adventure, Action (Shooter), 3D, 1st PersonЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A783161F3B5A048F9D3C2180DF0A7CC5FD366791
+magnet:?xt=urn:btih:DC0AFDC9A7998E444CC7140F8628836493A19F72
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509076   (795672) от 11.11.2021
-
-Things 3 v3.15.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
-«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.11.2021Разработчик: © 2021 Cultured CodeПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34CD39E1B09352F9704E61C0DBCC1D3C737AD6FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509227   (795673) от 11.11.2021
-
-Вероника Коссантели | Изумительная Страна Снергов (2021) [FB2, EPUB, MOBI]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, вдохновившая Дж. Р. Р. Толкина!
-Пип и Флора в беде. Они убежали из приюта «Солнечная бухта» – и оказались в изумительной Стране Снергов.
-Это волшебная страна восхитительных пиров и медведей, пахнущих корицей. Вот только есть здесь и мрачные пещеры, есть прожорливые великаны и коварные шуты, а ещё ведьма, с ног до головы облачённая в пурпурные одежды.
-Добрый, (   Читать дальше...   )Жанр: Детская литература/ФантастикаПеревод: В.Т. БабенкоФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFB7DA294C63F088267935FBE75D4F5207711E59
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509200   (795674) от 11.11.2021
-
-Screenium 3 v3.3.1 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_795674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запишите то, что вы видите на экране, и превратите это в скринкаст. Screenium 3 позволяет делать записи с частотой 60 кадров в секунду, предлагая оптимальное качество для ваших учебных материалов, записей игрового процесса или содержимого экрана, которое вы хотите записать. Если вы работаете с ультра-высоким разрешением 4K или 5K дисплея, или Retina Mac, Screenium (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.02.2021Разработчик: © 2021 Synium Software GmbHПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DD676A2A3B04F19BBE3B1AA24D56C252437AEF8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

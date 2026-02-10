@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5B79B4274785172B04FBDD1C35347349B19F56F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Advanced System Font Changer 1.2.0.36 Portable [En]
 ```bash
 magnet:?xt=urn:btih:2D733F89A1978E768406BACA0E5A717FAB485DE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ FileFusion анализирует файлы, которые находятся 
 magnet:?xt=urn:btih:ECE477320A896DFA586645BE0DE472094DDBC7BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ MOBILedit! Forensic – это программа, которая позволя
 ```bash
 magnet:?xt=urn:btih:AD138C36FFD2701AC020FE1CBA0CC23362F11D9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ iMazing – это многоцелевое программное обеспе�
 magnet:?xt=urn:btih:06B1C8F569F9E343DB160F92938277BD0280425A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Kindle DRM Removal позволяет пользователю быстро и �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Windows Defender Tuner 1.4 [Ru] (обновляемая авторская ра�
 magnet:?xt=urn:btih:23C2B89CA3D10436C3A06237A40526A2AE7E7688
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ vJoy – драйвер виртуального устройства, эмул�
 ```bash
 magnet:?xt=urn:btih:4E5E71CD2626A058BA51E7D6663C2090F233D7EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ WhereIsIt? 2014 Build 220 Portable by Willi Karbacher [Multi]
 magnet:?xt=urn:btih:9C10943B7B91474C96C7B9BEB2E6EE0A2FD86FB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ Advanced Grapher 2.2 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:3C6A5DD6D39F4AAE43FA52FC890F2E855302E52D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Directory Monitor позволяет отслеживать изменения �
 magnet:?xt=urn:btih:4A24FC7368E23027AA8D74EACAB7429055E7F395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Insofta 3D Text Commander - самая удобная программа для 
 ```bash
 magnet:?xt=urn:btih:F5D128F91B10498803DD3C70841FDDDEC3DA892F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ HTC Home - это бесплатный виджет для Windows с откры
 magnet:?xt=urn:btih:194C87E36D960456F174005A2312C2832C4F5E7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ PromptPal — заменяет консоль командной строки г
 ```bash
 magnet:?xt=urn:btih:5921B8784F22335968906490A659FB20DE34C2AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ ReIcon сохраняет и восстанавливает макет знач�
 magnet:?xt=urn:btih:38FD5B9A49621F78E65263EB60786E284005E786
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ SARDU Multiboot Creator - программа для создания загру�
 ```bash
 magnet:?xt=urn:btih:81C9166220CD96CAD042C97874E94D4081A3FE3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Removable Access tool является очень простым в исполь
 magnet:?xt=urn:btih:2FBC322ECC483E021AA5D89E9A1CBADC04F39709
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ iSpring Suite 9 является дополнением к PowerPoint, поэт�
 ```bash
 magnet:?xt=urn:btih:A64A413D212B12F353E032DD928911777D866302
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ iSpring Suite 9 является дополнением к PowerPoint, поэт�
 magnet:?xt=urn:btih:C0D8C7514B5E1363A267E77F9832ED351258A8E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Yellowpile - программа для создания разноцветных
 ```bash
 magnet:?xt=urn:btih:C68D916B598B6F791131A447BDD2A92551D4A6DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Replay Video Capture - это приложение, которое позвол�
 magnet:?xt=urn:btih:841B343ADB4930367F7F179BEC127D6BEE527DAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ StartIsBack++ возвращает в Windows 10 полнофункционал�
 ```bash
 magnet:?xt=urn:btih:2661ACBFC6A608B3E91F0B10976628125E94B980
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Destroy Windows Spying это автоматическая утилита, ко�
 magnet:?xt=urn:btih:45292784A03C130AC66F19F71714E96DD4929637
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Lingobit Localizer — профессиональный инструмент д�
 ```bash
 magnet:?xt=urn:btih:3FFC7E954190E6004E87C1F73924DD13DFB9B5C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Video Booth Pro - создаст из снимков небольшой виде
 magnet:?xt=urn:btih:9081F307E1E3246E4FFB8E54B75075AF96140D52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Professional Renamer - незаменимая программа для пере
 ```bash
 magnet:?xt=urn:btih:A477CC22199CA62906C70C37D7FDDC7F694390E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

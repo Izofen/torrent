@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:214787B669825F97F43B9A78078D3403B1C8D831
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:214787B669825F97F43B9A78078D3403B1C8D831
 ```bash
 magnet:?xt=urn:btih:19DC56111EAA7F7882DEAC783758B6E8BEF3B8F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:19DC56111EAA7F7882DEAC783758B6E8BEF3B8F0
 magnet:?xt=urn:btih:1C561228E88EF493380DF502900012E1BC515DB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:1C561228E88EF493380DF502900012E1BC515DB5
 magnet:?xt=urn:btih:237F213411FBC5AC37AABFC4FDE0223923F6C69C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:237F213411FBC5AC37AABFC4FDE0223923F6C69C
 ```bash
 magnet:?xt=urn:btih:EDDA4FE799F3FFCDACF9E31F35D747A71786C85F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ VA - Lounge Pool (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <Hou
 magnet:?xt=urn:btih:E72C0012CE2CBB8A9C6BB5280F4FA7690D28AE8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:E72C0012CE2CBB8A9C6BB5280F4FA7690D28AE8A
 ```bash
 magnet:?xt=urn:btih:6B32B6E34FED4F9932A6AC2721968C108AFC5BBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:84790B4C4815886EF55804A113619F3DF4DB72BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ It’s a Wrap! - бросающий вызов 2D-платформер с эле
 ```bash
 magnet:?xt=urn:btih:26040EA86675F5488A521E3DDB730FBE1074F72F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Metal Eden – научно-фантастический адреналинов�
 magnet:?xt=urn:btih:A0A2AC120EA0678D3484C0393960E2151D897CF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Dispatch (2025) [Ru/Multi] (1.0.14864/dlc) Repack Other s [Digital Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:EA2741383A34D6AC843A5FB90FF90A7C15B9F6B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:EA2741383A34D6AC843A5FB90FF90A7C15B9F6B0
 magnet:?xt=urn:btih:BA61BF0E6B1C1B9A89D739909D33DAD129DDACC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:BA61BF0E6B1C1B9A89D739909D33DAD129DDACC0
 ```bash
 magnet:?xt=urn:btih:7F93C4362DEE6D2C8D6855F78FF00B3FDD46267F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Deep Purple - Machine Head (1972) Remaster SMRP, Russia, 2020, De-Noised [MP3|32
 magnet:?xt=urn:btih:755B919261509F40BFF06B108B6159983156CEFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru/En] (2.100.00:739578) Repack Fi
 ```bash
 magnet:?xt=urn:btih:8564AF14244C8DFA1B0657BDFAE878ED7BA26DC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:8564AF14244C8DFA1B0657BDFAE878ED7BA26DC2
 magnet:?xt=urn:btih:389A9CF85317F2E3E4808E0777485847B62023C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Onirism (2025) [Ru/Multi] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:95502885601C731261D7E82D243D795DBF2C29D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Lady Mabel Mysteries: Death on Board (2025) [En] (1.0) Unofficial [Collector's E
 magnet:?xt=urn:btih:FF0732185C1EFAB2795B8A235AD0E26614A68976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:FF0732185C1EFAB2795B8A235AD0E26614A68976
 ```bash
 magnet:?xt=urn:btih:DA8FA234B5BAAAA43617D538D5505BF6B66A2B19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Stepik, Павел Коган | Google-таблицы. от А до Я (2023) WE
 magnet:?xt=urn:btih:B6273EA12166CAAA24B1446784C1CE34536ADC9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Total Commander – самый популярный файловый менед�
 ```bash
 magnet:?xt=urn:btih:B6055C21AC1A0224BC00FE168298400977F0CDC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:B6055C21AC1A0224BC00FE168298400977F0CDC4
 magnet:?xt=urn:btih:1ADAFC656869F4A3854CC23662EF84001CD1C356
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:1ADAFC656869F4A3854CC23662EF84001CD1C356
 ```bash
 magnet:?xt=urn:btih:86266DF8DBE3B03CEFAD137154C53D38615EB8CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:57040A8194A8D67E74032AB300A93C669F229378
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:57040A8194A8D67E74032AB300A93C669F229378
 magnet:?xt=urn:btih:D32DBFBB925F8101695795A416D1D9E170478084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:D32DBFBB925F8101695795A416D1D9E170478084
 ```bash
 magnet:?xt=urn:btih:96361442C460FDD3CF7431C0E25E0B495FB3C624
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

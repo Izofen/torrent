@@ -1,3 +1,29 @@
+###  Публикация: 912371   (612690) от 25.06.2015
+
+Специальный корреспондент. Развод (2015.06.24) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_612690.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Специальный корреспондент" - это популярная публицистическая программа, которая выходит на телеканале "Россия" с сентября 2002 года. Каждую неделю один из ведущих рассказывает в своем фильме-репортаже о какой-либо актуальной проблеме, существующей в современном обществе, посвящает зрительскую аудиторию в подробности наиболее значимых для страны (   Читать дальше...   )Телекомпания: ВГТРК, Новая КомпанияЖанр: ДокументальныйПродолжительность: 01:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D25E5519AAF52B50DD9A6A08B1051649E7964B85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912086   (612803) от 25.06.2015
 
 Её война: женщины против ИГИЛ (2015) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:8D84788E56E3909AFE4F8EAD651CDAB2FE7F914B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:8D84788E56E3909AFE4F8EAD651CDAB2FE7F914B
 magnet:?xt=urn:btih:D3BCE4F19DCAF6186490DA87934F40A5E61C73DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:D3BCE4F19DCAF6186490DA87934F40A5E61C73DE
 ```bash
 magnet:?xt=urn:btih:06F689A827FA65A04B825FF864F9EE8624DA6BF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +129,8 @@ magnet:?xt=urn:btih:06F689A827FA65A04B825FF864F9EE8624DA6BF8
 magnet:?xt=urn:btih:4492F9EC7A42AECBEE0959DCFF85D3DDC5C78758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:4492F9EC7A42AECBEE0959DCFF85D3DDC5C78758
 ```bash
 magnet:?xt=urn:btih:A1C9D351B41DBE1284C94157BA48EB40AA3E0909
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +184,8 @@ magnet:?xt=urn:btih:A1C9D351B41DBE1284C94157BA48EB40AA3E0909
 magnet:?xt=urn:btih:13DBCB71A62C108797E5A99ABC8991FFCC8E160F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +209,8 @@ magnet:?xt=urn:btih:13DBCB71A62C108797E5A99ABC8991FFCC8E160F
 ```bash
 magnet:?xt=urn:btih:845F532955E638B0FE52432D66BCD8098ACC6062
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +237,8 @@ magnet:?xt=urn:btih:845F532955E638B0FE52432D66BCD8098ACC6062
 magnet:?xt=urn:btih:4C1F44BB65BE7EA5A816068953D97C44E2868499
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +262,8 @@ magnet:?xt=urn:btih:4C1F44BB65BE7EA5A816068953D97C44E2868499
 ```bash
 magnet:?xt=urn:btih:9E45114230922EBD736523045AF6A922CD18F5AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:9E45114230922EBD736523045AF6A922CD18F5AC
 magnet:?xt=urn:btih:9B8658DFD5E2C9EACBA807CE04DA8833D964BA51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:9B8658DFD5E2C9EACBA807CE04DA8833D964BA51
 ```bash
 magnet:?xt=urn:btih:C4DC74B2E110867EF4717DA668B0BCF410258E81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:C4DC74B2E110867EF4717DA668B0BCF410258E81
 magnet:?xt=urn:btih:84509409048B27A3F3EF4FB69D32BA4F40357B15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:84509409048B27A3F3EF4FB69D32BA4F40357B15
 ```bash
 magnet:?xt=urn:btih:183597CB4367054EA54E9958B3859344925BFAB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +393,8 @@ magnet:?xt=urn:btih:183597CB4367054EA54E9958B3859344925BFAB2
 magnet:?xt=urn:btih:B72AE236506A06C80C6FFC25F633912878EA9AE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:B72AE236506A06C80C6FFC25F633912878EA9AE0
 ```bash
 magnet:?xt=urn:btih:EADB625B7D8259C21216973490ED6B19F5045DA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +446,8 @@ magnet:?xt=urn:btih:EADB625B7D8259C21216973490ED6B19F5045DA3
 ```bash
 magnet:?xt=urn:btih:5ED6F2BB732396EE764299362AEADEAD6F7446E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +476,8 @@ magnet:?xt=urn:btih:5ED6F2BB732396EE764299362AEADEAD6F7446E1
 magnet:?xt=urn:btih:2C307EA74CCF3CBACD77D98AD528090866FCFA9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:2C307EA74CCF3CBACD77D98AD528090866FCFA9C
 ```bash
 magnet:?xt=urn:btih:3C9884C7C3A20F243F8562A8F0213A767AE4D7C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +529,8 @@ magnet:?xt=urn:btih:3C9884C7C3A20F243F8562A8F0213A767AE4D7C7
 magnet:?xt=urn:btih:2B31682B23FE03B2FCD217AF4DCA4873FE97E54F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:2B31682B23FE03B2FCD217AF4DCA4873FE97E54F
 ```bash
 magnet:?xt=urn:btih:4435D139CD05430ADD473C7FFEEBC3D4C151FD1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +581,8 @@ magnet:?xt=urn:btih:4435D139CD05430ADD473C7FFEEBC3D4C151FD1F
 magnet:?xt=urn:btih:DB24493129D909AFD5E63F1CE07449278EE08A17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:DB24493129D909AFD5E63F1CE07449278EE08A17
 ```bash
 magnet:?xt=urn:btih:6B1FCBFFF67601F5199B8C4F780885BE3BC16CFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:6B1FCBFFF67601F5199B8C4F780885BE3BC16CFB
 magnet:?xt=urn:btih:55A70EC78305FAE6B0248C2B732BC7F43F3DB33E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:55A70EC78305FAE6B0248C2B732BC7F43F3DB33E
 ```bash
 magnet:?xt=urn:btih:F40E418D054DC2D354E85419FFAF6FDB36EAAE39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,29 +685,7 @@ magnet:?xt=urn:btih:F40E418D054DC2D354E85419FFAF6FDB36EAAE39
 magnet:?xt=urn:btih:1F9BFC9F3F78EC96AC6B09E4F03E0C92C33ED39A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912095   (614591) от 24.06.2015
-
-Косовский исход (2015) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_614591.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Исход» – это слово часто используется для описания массовой эмиграции жителей Косова. Люди бегут из страны, за независимость которой тысячи косоваров заплатили жизнью. В новой миграционной волне преобладают косовские албанцы. Они покидают свои дома в поисках работы и достойной жизни, так и не дождавшись обещанной свободы и процветания на родине. Какая судьба ждет (   Читать дальше...   )Телекомпания: RTДЖанр: ДокументальныйПродолжительность: 00:26:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44EB287D845C039E9DFDDD6229D0092EB7F82137
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ NG: Осушение океана: Вторая мировая война / Drai
 magnet:?xt=urn:btih:EA7FE4EE66A7A4D93C540F465B0A9E95E8AD93F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NGW: Дикая Франция с Рэем Мирсом / Wild France with Ray M
 ```bash
 magnet:?xt=urn:btih:EEAF184E7A93D648828939D82B2E2CF02AEF4605
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NGW: Секретный кубинский риф / Cuba's Secret Reef (2015) HD
 magnet:?xt=urn:btih:F46264C1FA33B1FEA814AB49F5EBD9FD1C06DCDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NGW: Царство больших акул / Big Sharks Rule (2018) HDTV [H.264
 ```bash
 magnet:?xt=urn:btih:3F15514BC47CBC2A0086DA8696F886CD6B68D71D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:3F15514BC47CBC2A0086DA8696F886CD6B68D71D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ BBC: Белый медведь - Шпион во льдах / BBC: Polar Bear - 
 magnet:?xt=urn:btih:B404401F2A21FA90B34167ED092D1F9C8FFF6E0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ NG: Фараоны, которые построили Египет [2 серии
 ```bash
 magnet:?xt=urn:btih:A07BCBDCC835DE2696D91366678087D33837CAF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ BBC: Невероятные приключения температуры / From
 magnet:?xt=urn:btih:5AA06FD544F6D0C7BED3EE8716208EA4E2820D3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ DV: Ада Лавлейс: первая леди программировани�
 ```bash
 magnet:?xt=urn:btih:8A378DB2ED03D8943B4541EC9DA57CA21ED08E0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ BBC. Секс по интернету. Безопасно? / Websex: What's the 
 magnet:?xt=urn:btih:CCB506A3A61C66CCF13996D3E4077E95E897D07C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Discovery: Трой / Troy (2015) HDTVRip (2 сезон, 1-4 серия из 4)
 ```bash
 magnet:?xt=urn:btih:F793D0DEAB37DB4DC7BD6DEF0C1B7BE3CBAC13E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Discovery: Трой / Troy (2014) HDTVRip (1 сезон, 1-5 серия из 6)
 magnet:?xt=urn:btih:DF414D21C95CFAA27702EC25416FB630A57D2249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ NG: История города пиратов / История города п�
 ```bash
 magnet:?xt=urn:btih:43E27AA7719B5F842C696D524294E61E4A351E11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ NG: Бойцовский клуб для животных / Animal Fight Club (2
 magnet:?xt=urn:btih:6DFECD8ED02FF7F95C32B567719F27AE22F60B56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Animal Planet: Суперзмея-людоед / Man-Eating Super Snake (2014) H
 ```bash
 magnet:?xt=urn:btih:60F638CA2D6A6A79A14924665237E67CDF9ED545
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ NG: Лесное царство / Kingdom of the Forest (2010) SATRip
 magnet:?xt=urn:btih:4F8BDBE0675834F5AE0F11EB056B574C5561B280
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ National Geographic. Зона риска. Фестиваль байкеров в
 ```bash
 magnet:?xt=urn:btih:E676BE60D22F3883252D9E02985AC20858729C20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ NGW: Анаконда. Тихий убийца / Anaconda. Silent killer (2014) 
 magnet:?xt=urn:btih:3AA3630EC3E8AAA3C0298E8D2F71BD4E1B1E68E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ History Channel: Полководцы / Война вождей / Warlords (2005
 ```bash
 magnet:?xt=urn:btih:D92594F62221D716632C97ED32F6284C99546865
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ BBC: Нюрнбергский процесс. Нацистские престу�
 magnet:?xt=urn:btih:24E6B8C03017800C1D436DBAE596F7252DE52309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ NG: Дикая природа Таиланда / Wild Thailand (2013) HDTVRip (2
 ```bash
 magnet:?xt=urn:btih:63E12416FBFF7B74E4E60161987EDD7727F853FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ NG: Осушить океан: Корабли-призраки Атлантик�
 magnet:?xt=urn:btih:E2919EA7915DC4AE843ADB0655BCC9CD8995B29E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Discovery: Раскрытие загадки могилы короля Тута 
 ```bash
 magnet:?xt=urn:btih:570EAE8747FAA4A7B64968832F78C50E815C1D83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ Discovery. Затерянные викинги Америки / America's Lost V
 magnet:?xt=urn:btih:1E35B365F7F69EA20B0A7195EBC51D5016445C1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ DV: Магия Гудини / Alan Davies: The Magic of Houdini (2014) IPTVRip [
 magnet:?xt=urn:btih:883C4F8B82C9ADFE0E4CA30F57BB7E6069AF5BA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ History Channel: Человек-калькулятор / The Human Calculator (2
 ```bash
 magnet:?xt=urn:btih:9F2A156FE5CBB6D889D4D4CF26119B1A6AFAA68C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

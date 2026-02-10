@@ -20,6 +20,8 @@ Sid Meier's Railroads! (RePack/1.1) [Ru/En] 2006 | R.G. ILITA
 magnet:?xt=urn:btih:71F93B1DA705CC364AE360DD73F210F515ABF685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Traffic Giant - это удивительная игра-симулятор, к�
 ```bash
 magnet:?xt=urn:btih:93C7A51FD62C367211EBC7D16B9321B29F52F600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ The Game of Life 2 (2020) [Multi] (567387/dlc) License CODEX
 magnet:?xt=urn:btih:5279EA6FB339E8EF071E7389BC9A1CFB836CD045
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Omerta - City of Gangsters – симулятор гангстера, дейст
 ```bash
 magnet:?xt=urn:btih:2136357E1EA725CF292FD4CA57839FCD668C8DB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ SuperPower 3, долгожданная новая игра из серии Super
 magnet:?xt=urn:btih:35D929193C06CA0BD0EE4367B315B19DA364BAD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Godlike Burger (2022) [Ru/Multi] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:EF76CD91FC1840BDDD41D54DC21AD4216E772CE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Glory of the Roman Empire / Величие Римской Империи [Ru] (R
 magnet:?xt=urn:btih:FB79A39FF850E204F709FF51375F4A548463E7BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Industry Giant 2 / Промышленный гигант 2 (2002) [Ru/Multi] (2.
 ```bash
 magnet:?xt=urn:btih:A5AD6AF61E6F891FADEB72599820BB730510D9B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Roman Triumph объединяет самые лучшие черты градо
 magnet:?xt=urn:btih:F9D2FCAEE63CE537632DB3B3E2D4AAE6D0C26B85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Dwarf Fortress (2022) [En] (53.02) Repack Necros
 ```bash
 magnet:?xt=urn:btih:9B41F041D268E5AE8EF79252937059D99BF87A6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Railway Empire 2 (2023) [Ru/Multi] (1.0.1.52027/dlc) Repack DjDI [Digital Deluxe
 magnet:?xt=urn:btih:86E2E57598B6C5BAF728E7CA186BE1A10EC7A56A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Thea 2: The Shattering – продолжение истории из перво
 ```bash
 magnet:?xt=urn:btih:77208DCDC6F8676590FFE6FF0B2D7A47676FF67E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Acres - это уход за посевами и забота о земле дл
 magnet:?xt=urn:btih:07C11652E91C125CDBF847D1AD1AD69F28408B0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Tropico 4 [Ru] (1.05/RePack) 2011 l UltraISO
 magnet:?xt=urn:btih:BA3C03D7760CB9764773864883716DE0D0092966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Moon's Creed (2025) [Ru/Multi] (1.6) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:416894DB91795C775679A6A9D0296AE337B18DE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Port Royale 3: Pirates & Merchants [Ru/En] (RePack/1.1.2.24556) 2011 l R.G. Cata
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ A-Train (RePack) [En] 1992 | RG Games (Pilotus)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Port Royale 3: Pirates & Merchants + DLC (RePack/1.1.2.24556) [Ru/En] 2012 l Fen
 magnet:?xt=urn:btih:F5E5E11F92DC96A12BC8B9436FB7F0861755658C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Rebel Inc: Escalation (2021) [Ru/Multi] (1.4.0.12/dlc) Repack Necros [Mega Editi
 ```bash
 magnet:?xt=urn:btih:0D21EBF17C0D6A11BBB13DA27BC5775971B889B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Farthest Frontier (2025) [Ru/Multi] (1.0.5) Repack Necros
 magnet:?xt=urn:btih:192665FE4547DAD0E7ADE9B2A2AB12ACF35404D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Rise of Industry (2019) [Ru/Multi] (2.1.0.1211a/dlc) Repack R.G. Механик�
 magnet:?xt=urn:btih:AE3B3120F6589A61977C9F0734FC4C04029AA9B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Evolution: The Game of Intelligent Life (1997) [Ru] (1.0) Repack R.G. Games
 ```bash
 magnet:?xt=urn:btih:B27964C78F0AF8400F0EB7499E9A221DF2FE0C5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Blood Bowl: Legendary Edition – дополнение к Blood Bowl, котор
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ Startopia (2001) [En] (1.00) License GOG
 ```bash
 magnet:?xt=urn:btih:3E157027D03177351E5CF4CE2C51426CB19F1050
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Motorsport Manager (2016) [Ru/Multi] (1.53/dlc) Repack R.G. Catalyst
 magnet:?xt=urn:btih:D43EADD6B52049450FE54111DF4F2F9C8BB27526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Prison Architect - симулятор тюремного магната, с по
 ```bash
 magnet:?xt=urn:btih:A4115553AE05FFD2C4D6E0D4AC348F6F545756EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

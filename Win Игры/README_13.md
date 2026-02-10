@@ -19,6 +19,8 @@ SPORE Collection (2008) [Ru/Multi] (3.1.0.29/dlc) Repack Yaroslav98
 magnet:?xt=urn:btih:538FD7E33BE7ABC0A64ECB7FBD4B366125F95E90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Indiana Jones and the Great Circle (2024) [Ru/Multi] (1.0.9.0/dlc) Repack FitGir
 ```bash
 magnet:?xt=urn:btih:9A4CDCA0577A413E87476DA22AB0A9196249DE29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Chaos on Wheels предлагает автомобильные бои, где �
 magnet:?xt=urn:btih:46A5170F952211E41664ED7EBB8B62A1E7D4B6D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Sword of the Sea (2025) [Ru/Multi] (build 19645438) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9F4E0D3BFDBE983FA39BC3C5656C5475867B1899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Three Kingdoms Mushouden переносит геймеров в 182 год на�
 magnet:?xt=urn:btih:47719A7ED8B53BD0CC6810982E0642CA09BA3AC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (10.0.0.1/dlc) Repack Wanterl
 ```bash
 magnet:?xt=urn:btih:9CB29F2B0313BE6044532F4943ABBC29F701A2A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Terraforming Mars – официальная адаптация популярн
 magnet:?xt=urn:btih:3DD4BE8454DCCE0C74A304A7BC40E2BACDA41619
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ SnowRunner (2021) [Ru/Multi] (38/dlc) Repack Let'sРlay [4-Year Anniversary Edit
 ```bash
 magnet:?xt=urn:btih:1AF8ADA31E36BC2EF430A6FA0469005159B70A2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (Update 12/dlc) Repack Let'sРla
 magnet:?xt=urn:btih:AD5F67362FB6A76179317C30C27C08D7F4E5FFB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Daemon X Machina: Titanic Scion (2025) [Ru/Multi] (1.0.3/dlc) Repack Let'sРlay 
 ```bash
 magnet:?xt=urn:btih:1CCDE71A5DBDB7BBC7B49C32EF7BACF95AB55D2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Big Adventure: Trip to Europe 11 / Большое приключение: Пое
 magnet:?xt=urn:btih:4DCFA452AF9913A71EB5CE6CA4680E4994118301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Artifact Seekers: Season 2 / Искатели артефактов: Сезон 2
 ```bash
 magnet:?xt=urn:btih:73919EF4ACBC6AEAD042A80C80036C759B14898A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack seleZen
 magnet:?xt=urn:btih:E86403A4AB76B7C7B9449B99EA1648E1D4360406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Northgard (2018) [Ru/Multi] (3.7.30.42250/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:FA9E233A35B69527807F30918A201C9A099CBCC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Dead Rising Deluxe Remaster (2024) [Ru/Multi] (1.3.0.0/dlc) Repack Wanterlude
 magnet:?xt=urn:btih:112AACFF3DD9F327CB94D2A42C66897F420D3C58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7214A458E7FBF6DBDCEA9A07721F8D1556E708B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Human: Fall Flat – приключенческая головоломка с п
 magnet:?xt=urn:btih:8D2216E92E0A7E3D9966D5EC4796C3E462527382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ KELDER (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D2F9E5AD3DBE3E715C6B18939BE73725F392CCD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Dungeons & (and) Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi
 magnet:?xt=urn:btih:9D84997BDF043305DF8F6B49724371B5EF7E4E5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Lies of P (2023) [Ru/Multi] (1.11.0.0/dlc) Repack Wanterlude [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:78A1FD6BCD991B53C54D9B53CFBBE9AB31A36292
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.11.0.1/dlc) Repack Other s
 magnet:?xt=urn:btih:90CC32B466D1A5CC932B32A86FF8970C0358FFAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Through the Ages (2018) [Ru/Multi] (2.19.1120/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:6DE472CDD72BFD6B8EBB81E9BE5F7D4048D1E20C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Universe Sandbox - основанный на реальной физике си�
 magnet:?xt=urn:btih:B90BB2306ACB61329100FDB76FC93218CF1CFD6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Travellers Rest (2020) [Ru/Multi] (0.7.2.2) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:64EAB9575D76FC59BB02D72179AEE1F8536D3728
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Wolfenstein: Youngblood – новое приключение с режимом 
 magnet:?xt=urn:btih:E5CF0E94AC4B56EE621F50B2F6FC7D13B397B5D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Galaxy Trucker (2019) [Ru/Multi] (3.6.908/dlc) License GOG [Extended Edition]
 ```bash
 magnet:?xt=urn:btih:218E1D11A05A9DF903519D93B6FC7F3F3B961BD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

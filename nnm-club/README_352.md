@@ -22,6 +22,8 @@ Pink Floyd - История легенды 3 (2017) DVDRip [H.264/1080p] [VO, ha
 magnet:?xt=urn:btih:509B6D035464FF9766024FA9161BC0B85AD2CA28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Pink Floyd - История легенды 2 (2017) DVDRip [H.264/1080p] [VO, ha
 ```bash
 magnet:?xt=urn:btih:3CC902598ED9FE42CB8C9434902A73B5A82B98E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Apache Kafka представляет собой ведущий брокер с�
 magnet:?xt=urn:btih:01FB0E864088007D66FD57B66452EF74B5E79564
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:01FB0E864088007D66FD57B66452EF74B5E79564
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Rail Route – экономический симулятор, в котором 
 ```bash
 magnet:?xt=urn:btih:BBC8F948DA702390CD0A84A8B51D0845C69F46B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Yesdress nostress, Анастасия Кульбацкая | Самый крут
 magnet:?xt=urn:btih:6A63B73BFC92269C0FB04D394BBCBF889162A07A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:6A63B73BFC92269C0FB04D394BBCBF889162A07A
 magnet:?xt=urn:btih:D95AE52B2284A50D29F7B75DD23AB5BEBCA05F4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:D95AE52B2284A50D29F7B75DD23AB5BEBCA05F4A
 ```bash
 magnet:?xt=urn:btih:3C5C6063857D4E0FD5AC10A5CE6CA77CD04C9A5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ J. Stewart | Calculus, 8th edition (2016) [PDF] [En]
 magnet:?xt=urn:btih:33E2A372D9BDFBBDCE90287B31F40DA2E4F65D44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:33E2A372D9BDFBBDCE90287B31F40DA2E4F65D44
 ```bash
 magnet:?xt=urn:btih:D89D1C9EDEC320B6936FB4005B88685B9970E260
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:D89D1C9EDEC320B6936FB4005B88685B9970E260
 magnet:?xt=urn:btih:ED0B93E1995AF1531F5A228FA8E5A53B51A9E192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:ED0B93E1995AF1531F5A228FA8E5A53B51A9E192
 ```bash
 magnet:?xt=urn:btih:8DE9E4E1385F2173B1F1E842F7A69871E10D6AD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ A.H. Robbins, W.C. Miller | Circuit Analysis: Theory and Practice (2012) [PDF] [
 magnet:?xt=urn:btih:43069B4A4E55EB7A6BCF93382107E63A43EC795B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:43069B4A4E55EB7A6BCF93382107E63A43EC795B
 ```bash
 magnet:?xt=urn:btih:BD738FC9375ACF3B00D0DF7B2FFA46C4C7918C09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ FireAlpaca - достаточно простой, но удобный графи
 magnet:?xt=urn:btih:FC9654614D154B332322E35C39F40E370BAF393E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:FC9654614D154B332322E35C39F40E370BAF393E
 ```bash
 magnet:?xt=urn:btih:5401E6E152847C8233DD07B16F17F4A8E826A135
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ VA - Music News For Forum vol.121 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:CA529E00FB38EF6651B70B913A67C9BFD435FE68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:CA529E00FB38EF6651B70B913A67C9BFD435FE68
 ```bash
 magnet:?xt=urn:btih:E6963131368A47343AC98C337EC21173D9784C94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:E6963131368A47343AC98C337EC21173D9784C94
 magnet:?xt=urn:btih:0A0DD08B7968FBF72810A0F68A1C9411DCDDF954
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ J. Stewart, L. Redlin, S. Watson | Algebra and Trigonometry, 4th edition (2016) 
 ```bash
 magnet:?xt=urn:btih:113BF2278034796D3C7FA09CB13018BFC39C4923
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:113BF2278034796D3C7FA09CB13018BFC39C4923
 magnet:?xt=urn:btih:5591B8823699745B0B167B5D733CAB7F3C09104A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:5591B8823699745B0B167B5D733CAB7F3C09104A
 ```bash
 magnet:?xt=urn:btih:EB26FB1AAAA3B4E0DC734E312A575E39C2B3D551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:EB26FB1AAAA3B4E0DC734E312A575E39C2B3D551
 magnet:?xt=urn:btih:C280E7356C12B08006BAC2DBEF752F87C7B3C1B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ magnet:?xt=urn:btih:C280E7356C12B08006BAC2DBEF752F87C7B3C1B9
 ```bash
 magnet:?xt=urn:btih:7920DA989F4F6028F71ED64C892E6F6BCEA475B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:7920DA989F4F6028F71ED64C892E6F6BCEA475B2
 magnet:?xt=urn:btih:3F2C2736892EE18BC83AEACC85D0E812D5730658
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:3F2C2736892EE18BC83AEACC85D0E812D5730658
 ```bash
 magnet:?xt=urn:btih:DBA2C8E7A603508D4D398D3923980D33B2837967
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

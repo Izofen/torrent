@@ -1,3 +1,29 @@
+###  Публикация: 952875   (353667) от 02.11.2015
+
+М.Ю. Реутин | Мистическое богословие Майстера Экхарта (2011) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга является первым русскоязычным исследованием творчества великого средневекового мистика и мыслителя Иоанна Экхарта из Хоххайма. Экхартовское богословие рассматривается на широком культурно-историческом фоне. При этом особое внимание уделено сопоставлению доктрины Экхарта с доктриной его современника идеолога византийского исихазма Григория Паламы. В приложении (   Читать дальше...   )Жанр: Философия, богословиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4C50C46558B6537CB1D797C241BDE0A583164B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178842   (353706) от 29.10.2017
 
 В. М. Кувенева | Критика ревизионистской фальсификации научного атеизма [2-е изд.] (1988) [DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:2B2262EC08C58897559B3D6D63B41075EBCC417E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:2B2262EC08C58897559B3D6D63B41075EBCC417E
 magnet:?xt=urn:btih:188D8A6C6A684C3E62C00C5DB33F3C884F901E36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:188D8A6C6A684C3E62C00C5DB33F3C884F901E36
 ```bash
 magnet:?xt=urn:btih:710321D77DE1C2A7D944155CE47C653C82AA8638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ Alicia Plummer, Melissa Schaschwary | Plum Dandi Knits: Simple Designs for Luxur
 magnet:?xt=urn:btih:99B978895497795216B5FE203A64541F5E657755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:99B978895497795216B5FE203A64541F5E657755
 ```bash
 magnet:?xt=urn:btih:AF3E787EBDC389BDAE4695F56184D1AF5B220FF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:AF3E787EBDC389BDAE4695F56184D1AF5B220FF6
 magnet:?xt=urn:btih:1DF6D007E6467B354712FA35D2E235D08219344F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:1DF6D007E6467B354712FA35D2E235D08219344F
 ```bash
 magnet:?xt=urn:btih:CE55650D0DA392D4735F3A50E5E0B00F386B6BF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:CE55650D0DA392D4735F3A50E5E0B00F386B6BF8
 magnet:?xt=urn:btih:A34160A6967FA9B5393A0C5D6E6166CD391DA08A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:A34160A6967FA9B5393A0C5D6E6166CD391DA08A
 magnet:?xt=urn:btih:E33703767C2B48C47E9013E46FBF21665906F2F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:E33703767C2B48C47E9013E46FBF21665906F2F7
 ```bash
 magnet:?xt=urn:btih:B1FFEEF3128C58E91D8ADB1253C3E219F6006BEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:B1FFEEF3128C58E91D8ADB1253C3E219F6006BEA
 magnet:?xt=urn:btih:A32270FE3F684F847F693A9A4E86A1BDFA94F26E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:A32270FE3F684F847F693A9A4E86A1BDFA94F26E
 ```bash
 magnet:?xt=urn:btih:3C4C56A56775FD68D9E8CDAC3339CCEAB63820D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:3C4C56A56775FD68D9E8CDAC3339CCEAB63820D4
 magnet:?xt=urn:btih:ECEFD5744164E79AD6E6378F5C818C30596F8B1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:ECEFD5744164E79AD6E6378F5C818C30596F8B1C
 magnet:?xt=urn:btih:0FDBC610563A81ABDE89E9C16C506AB0CD07E381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:0FDBC610563A81ABDE89E9C16C506AB0CD07E381
 ```bash
 magnet:?xt=urn:btih:6AC1452A9F2DACDF89CA354355A5142FC5D156F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:6AC1452A9F2DACDF89CA354355A5142FC5D156F2
 magnet:?xt=urn:btih:C6362F3AD64DC3DA34403D9F8D45C01F96A6933B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:C6362F3AD64DC3DA34403D9F8D45C01F96A6933B
 magnet:?xt=urn:btih:F2843B44702A8738138A015482C3A2E2AEDBB898
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:F2843B44702A8738138A015482C3A2E2AEDBB898
 ```bash
 magnet:?xt=urn:btih:5931010E4A49B5DD964C1C53259B3C2632305CBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:5931010E4A49B5DD964C1C53259B3C2632305CBA
 magnet:?xt=urn:btih:50B8DD41C17985F52204F731B1E425BD31763260
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:50B8DD41C17985F52204F731B1E425BD31763260
 magnet:?xt=urn:btih:F85FDBE540EEDB7FEBECBE430E9CCEE3B9EFA375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:F85FDBE540EEDB7FEBECBE430E9CCEE3B9EFA375
 ```bash
 magnet:?xt=urn:btih:C18D210857392F007101AC6866398270BEC95CEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:C18D210857392F007101AC6866398270BEC95CEC
 magnet:?xt=urn:btih:0CB0CF706AC8DC390EC552D2059F25E11D8A45E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:0CB0CF706AC8DC390EC552D2059F25E11D8A45E7
 ```bash
 magnet:?xt=urn:btih:9CC90914C4A3D83B758F1E002CFF47BD47ADADD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:9CC90914C4A3D83B758F1E002CFF47BD47ADADD8
 magnet:?xt=urn:btih:3308400E10B1082FE057D9FF8A5BAE29AAE082BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:3308400E10B1082FE057D9FF8A5BAE29AAE082BA
 magnet:?xt=urn:btih:AE53A7A688463E4872043F3E95F75CD707EEEC74
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417599   (355622) от 21.10.2020
-
-Л. Геллер, Б. Фогараши (ред.) | Положение рабочего класса в капиталистических странах за 20 лет [1917-1937] (1938) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_355622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемая книга, написанная группой рабочего движения Института мирового хозяйства и мировой политики Академии наук СССР, сравнивает положение рабочего класса в капиталистических странах и Стране Советов. Она наглядно показывает обнищание рабочего класса в капиталистических странах, — подъем у нас.Жанр: История, экономика, политология, социология, публицистикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A02C8698D41761AED6221A2B2E3FE6EC60BC2DCB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

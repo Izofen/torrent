@@ -19,6 +19,8 @@ Bang-On Balls: Chronicles (2023) [Ru/Multi] (1.1.1a) License GOG
 magnet:?xt=urn:btih:C684885C72AE97BA74334C25678AB662F798A184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Grounded (2022) [Ru/Multi] (1.4.0.4495) Repack FitGirl [Fully Yoked Edition]
 ```bash
 magnet:?xt=urn:btih:F8C573A6D266411383CB12DA9DA1DFACB7720DA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Boti: Byteland Overclocked (2023) [Multi] (1.11.0e) License GOG
 magnet:?xt=urn:btih:359B77E16CE9B3F6B631D6FF1C90C83B00ED3090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Born of Bread (2023) [Multi] (r3.2.4d) License GOG
 ```bash
 magnet:?xt=urn:btih:C2DC0B9676F5FDC29AE748C44397D8BFB41C500C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Shadow Hush (2024) [En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:4949E1A70744E0BBB3210414321B8C59CAEE839D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Who Wants To Be A Millionaire? (2020) [Multi] (1.3.0.1/dlc) Repack FitGirl [Delu
 ```bash
 magnet:?xt=urn:btih:F4092C3ECFFA6B8F60171ED1E159360F947DA92A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Wander Hero - это увлекательный карточный рогали�
 magnet:?xt=urn:btih:62CF15A919F10B118A867B7C1607BD4F798594B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Bloodstained: Ritual of the Night – это смесь готического �
 ```bash
 magnet:?xt=urn:btih:3CC2A520855F3F2276EC176D3CE94E9CB5E0E493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Star Stuff – сыграйте роль инженера Михи, которы
 magnet:?xt=urn:btih:EC23AE57D29E12999F7FFBD548308676B992F2D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Who Wants To Be A Millionaire? (2020) [Multi] (1.3.0.1/dlc) Scene SKIDROW [Delux
 ```bash
 magnet:?xt=urn:btih:0B7529C04CDF43B6B9E607EB2FBA7C7A6ACA21CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Lost Lands 9: Stories of the First Brotherhood / Затерянные земли
 magnet:?xt=urn:btih:015ECC6A29CBCDFF7A0DDB1D7B19240B12ADAF40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ SpiriTTea (2023) [Multi] (1.7.5) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:2DC1E3C5B0C9BFA280293E825D6A8EAB1F2010AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Potty Knight Saga бросает вас с головой в сложное пр
 magnet:?xt=urn:btih:8BE57072E4BB75F1E84909956045DC8CD8C1FB4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Simpler Times (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:AD8547CA094AB078A8183EDF3B3A4752D3FF0F8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Kamaeru: A Frog Refuge – в этом по-настоящему расслаб�
 magnet:?xt=urn:btih:DA4635DCC4CABE70BD7C858B81C3CBC248101A0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Fallen Seeds отправляет игроков на Ультар, планет
 ```bash
 magnet:?xt=urn:btih:74F2FE942FED1A436C4D7E3FDF8A6EFE445DF502
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Legendary Tales возвращаются с новой историей-прик
 magnet:?xt=urn:btih:749698840AB106D41A342BF852E17AF965F580EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Wizard with a Gun - это кооперативная онлайн-игра в �
 ```bash
 magnet:?xt=urn:btih:32C47067E765493A020D88E24E50BC49C5F3EECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Escape from Hata / Побег из Хаты (2024) [Ru/Multi] (1.0) Repack FitGi
 magnet:?xt=urn:btih:20DB09FBBAC00590BD28B20DB2A156D5310B09F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Hood Story: Kaito Yamazaki - вы сыграете за Кайто Ямадза�
 ```bash
 magnet:?xt=urn:btih:8C7F6850100A674EED3DA41392296BF1F98CBD56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Outer Wilds – приключенческий экшен от первого л
 magnet:?xt=urn:btih:19D925094C6A6953DC0CCE5AE68303D92CEE249E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ ECHOSTASIS бросает вас в глубины цифрового созна
 ```bash
 magnet:?xt=urn:btih:09BE988909D803D74E6682ACFC64A7D95795391B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ A Game's Tale (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:DFB6DE562C3166DFA56344779BDBC9CCF46B5F84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Enigma Quest – отправьтесь навстречу таинственн�
 ```bash
 magnet:?xt=urn:btih:77E98E04BB76E478A19F57BE4ABFE377D62B5F4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Baisu (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:3DCF6FFD9D79F10351188DE2170F763A30D979A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ House Flipper – увлекательный и интересный в своё
 ```bash
 magnet:?xt=urn:btih:4A0FB423C76F092E36313D12DCADEB2B2F5CD42D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

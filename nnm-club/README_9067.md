@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:23EB725A228FA527602BC4BFAEC8B5B09CEC2E1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:23EB725A228FA527602BC4BFAEC8B5B09CEC2E1B
 magnet:?xt=urn:btih:B07B159FC70205EFA2DBCEB085601CE8A3999900
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:B07B159FC70205EFA2DBCEB085601CE8A3999900
 ```bash
 magnet:?xt=urn:btih:63B85EDBDD720E3314C9992B69A54C1C7EB771B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Starsailor - All This Life (2017) [FLAC|Lossless|tracks + .cue] <Brit Pop, Indie
 magnet:?xt=urn:btih:5DB88CCC1A6FDB5016DB04BD18FF4B67A5A1C2C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ VA - Oceanic Lounge (50 Chillout Song Drama) (2017) [MP3|320 Kbps] <Chillout, Lo
 ```bash
 magnet:?xt=urn:btih:37BE5618400933AC0654F7B780F43C37570F6497
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ CD1:
 magnet:?xt=urn:btih:F8EFC0C373B8130CF32C2A06260774E73BF4479D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ CD1
 ```bash
 magnet:?xt=urn:btih:514A86BF81751B7967CEF1AB0C600752DFB41644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ VA - Coastal Selections 005 (2017) [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:7F7B25883BFDCE9AA2C7480B3F024EDCA823D2F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ Bodil Niska - Night Time (2008) Bare Jazz Records [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:0CC2F47207C59D57A2683D613984596CCFC0D8FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:0CC2F47207C59D57A2683D613984596CCFC0D8FC
 magnet:?xt=urn:btih:16063B7A1566D96D0827311F113D2529C3322A23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:16063B7A1566D96D0827311F113D2529C3322A23
 ```bash
 magnet:?xt=urn:btih:E606BA76B51C08A1132B65911A1DAB167A34F152
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ Linux Mint — дистрибутив операционной системы Li
 magnet:?xt=urn:btih:31F36166BB5B5194B106088BF1E0023D1415A576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ magnet:?xt=urn:btih:31F36166BB5B5194B106088BF1E0023D1415A576
 magnet:?xt=urn:btih:2AE201B303041BC8A1FEA0E84CDB86875650720D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:2AE201B303041BC8A1FEA0E84CDB86875650720D
 ```bash
 magnet:?xt=urn:btih:C4CD4353BE9A85E0AA186DB370CC8D727EA63AE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ Linux Mint — дистрибутив операционной системы Li
 magnet:?xt=urn:btih:1EEA79BA37DB327913013D20CD3F9382EDAD375F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:1EEA79BA37DB327913013D20CD3F9382EDAD375F
 ```bash
 magnet:?xt=urn:btih:7BCC4B0B25DDBAD2FCCFC783BEF31BAA39C5D972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ magnet:?xt=urn:btih:7BCC4B0B25DDBAD2FCCFC783BEF31BAA39C5D972
 ```bash
 magnet:?xt=urn:btih:841AE116E70C93EB804B054F72D193141B75F07C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +493,8 @@ Supermax - Terminal 2002 (2001) [FLAC|Lossless|image + .cue] <Pop, Funk, Soul>
 magnet:?xt=urn:btih:98FD599AC47CAB58AF5E109ADBA28C3FFBD81FB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ magnet:?xt=urn:btih:98FD599AC47CAB58AF5E109ADBA28C3FFBD81FB0
 magnet:?xt=urn:btih:E9604D2933E39BA6B965C80D370C76A2CEED74BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:E9604D2933E39BA6B965C80D370C76A2CEED74BD
 ```bash
 magnet:?xt=urn:btih:871B6FB7F73DC8D80209C6A9601AAA01495EBD50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ magnet:?xt=urn:btih:871B6FB7F73DC8D80209C6A9601AAA01495EBD50
 magnet:?xt=urn:btih:8A4C1DA6D2915D777F1B3D887F739706DFE7F254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ magnet:?xt=urn:btih:8A4C1DA6D2915D777F1B3D887F739706DFE7F254
 magnet:?xt=urn:btih:2634807AB01B14FECBF4592FFB64C26B8BDEFD08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:2634807AB01B14FECBF4592FFB64C26B8BDEFD08
 ```bash
 magnet:?xt=urn:btih:222DEB5494AA514F6ABBA57ACCB3DC1DC93FD903
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:222DEB5494AA514F6ABBA57ACCB3DC1DC93FD903
 magnet:?xt=urn:btih:5A458EF29B3DCE8CAF39AF55A5C45CB43EB66634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:5A458EF29B3DCE8CAF39AF55A5C45CB43EB66634
 magnet:?xt=urn:btih:DA5D03B13171C57A4CD8A78ACDC978505AE6B38B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:DA5D03B13171C57A4CD8A78ACDC978505AE6B38B
 ```bash
 magnet:?xt=urn:btih:A7326B955169DBDF631E08918CF4628D901F9E31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,38 @@
+###  Публикация: 529590   (564716) от 01.08.2012
+
+VA - Шедевры инструментальной музыки #32 (2012) [MP3|256 кб/с]<Instrumental>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_564716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fausto Papetti - Life Is Life
+ 02. Edward Simoni - Abendstille
+ 03. Alex Bollard & LSO - Radar Love
+ 04. Bill Douglas - Flow Gently, Sweet Afton
+ 05. Tom Barabas - Reach for Your Dreams
+ 06. Gandalf - A Place in the Sun
+ 07. 3rd Force - You Gotta Be Real
+ 08. Wonderful - Tonight
+ 09. Paul Mauriat - Mrs Robinson
+ 10. Lazerdance - Moon Dusk(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 06:09:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55689D069751C01CDAAB95C023B0D25D2AE6A85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304258   (564848) от 25.05.2019
 
 VA - Лучшие новинки Мая. Зайцев.нет, но есть MP3 (2019) (Релиз от BiSHkek iNT) [MP3|320 Kbps] <Pop>
@@ -21,6 +56,8 @@ VA - Лучшие новинки Мая. Зайцев.нет, но есть MP3 
 ```bash
 magnet:?xt=urn:btih:9314F3848FFCADBAF067B522086D869219D668C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +86,8 @@ Bon Jovi - 100% Bon Jovi (2020) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:7FDB891C6264EB204FB0441B4EDCE0DA895902C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +114,8 @@ VA - 80s Rock Anthems (2022) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:2BBD9C37FC0D391013E41B6C83F7E09F3F9071CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +144,8 @@ VA - Soft Rock (2022) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:DDBA5E9FE4ED3F090A5CA2DC124881C55A02F351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +172,8 @@ Godsmack - Collection (2022) [MP3|320 Kbps] <Nu-metal>
 ```bash
 magnet:?xt=urn:btih:18FE370C97242A0DE6236406F0669086DC341810
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +202,8 @@ VA - Retro Party 70-80' (2017) [MP3|320 Kbps] <Pop, Disco, Rock>
 magnet:?xt=urn:btih:05F4F0EFD8821D74897379FD5B325E08601B7646
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +231,8 @@ VA - Rock Blues And Country Compilation (2017) [MP3|320 Kbps] <Rock Blues, Count
 magnet:?xt=urn:btih:70B7C3BA03ED2B0ECBE373C57B043BF86C61D4C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +259,8 @@ VA - Record Deep (2017) [MP3|320 Kbps] <House, Deep House>
 ```bash
 magnet:?xt=urn:btih:D00577D7203C7F3C49AF85432B6B5C1D54F2C425
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +295,8 @@ VA - Пляжная Кукарача (2012) [MP3|128-320 кб/с ]<Поп, Evrod
 magnet:?xt=urn:btih:36FE0EEFE1A5CFD9580347F4BF2E04D4CF5F6A2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +323,8 @@ VA - Billboard Hot 100 Singles Chart (04.06.2022) [MP3|320 Kbps] <Pop, Rock, Hip
 ```bash
 magnet:?xt=urn:btih:8A679CCEBA0DF14587182753F5ECFBC74DDD8348
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +353,8 @@ VA - Todays Top Hits (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:7CF949A85FAADA71A003E7FA6B844DF0D174866B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +381,8 @@ VA - Tropical Thunder House Massive (2016) [MP3|320 Kbps] <House, Electro House,
 ```bash
 magnet:?xt=urn:btih:93A54EC8B0DD716DD30264AAAD78E60B025EC54D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +417,8 @@ VA - Энергия Mega хитов 3 (2012) [MP3|256 кб/с]<Dance>
 magnet:?xt=urn:btih:E99D05B60D45F0C4FFA02A741FFC50FC740F0651
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +451,8 @@ VA - Солнечный Дэнс Музон. Зарубежный (2012) [MP3|25
 ```bash
 magnet:?xt=urn:btih:5DE02002C56BA47472CB570DC9AD5F201166F920
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +487,8 @@ CD1 Продолжительность 01:18:59
 magnet:?xt=urn:btih:91DA7A984E25D8ECF4BEC50CF113BB2EC2661A99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +515,8 @@ VA - Хит сезона на Шансоне. Выпуск 8 (2016) [MP3|256 Kbp
 ```bash
 magnet:?xt=urn:btih:0137A2B7F83617523BF253BB35F501BEB943AC80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +545,8 @@ VA - Bass Booster - Не По-Детски Давят Децибелы (2016) [M
 magnet:?xt=urn:btih:E76234A260432DB05ABC2F274B5F1128D5CB8969
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +573,8 @@ VA - Soft Pop Hits (2022) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:DEF02473E8DDD9C14E3BC162BF848C79350F1B95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +603,8 @@ VA - Euphoric Essential Space Uplifting (2016) [MP3|320 Kbps] <Trance, Melodic, 
 magnet:?xt=urn:btih:9E788CD20B5DE8EDA137968F6AA3011982E91123
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +631,8 @@ VA - The Golden Soul (2022) [MP3|320 Kbps] <Pop, Jazz, RnB, Soul>
 ```bash
 magnet:?xt=urn:btih:E1BC88FBF401192E949B5CDF5C722ADEB24056C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +661,8 @@ VA - Record Super Chart #495 (2017) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:5616BA134DBC5F2F7E49A5DC025FD995451EF006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +689,8 @@ VA - Impulse 5 (2017) [MP3|320 Kbps] <House, Trap, Chillout, Dubstep>
 ```bash
 magnet:?xt=urn:btih:0019E4699BBDA190E3956F94DFB3D1BED303857B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +719,8 @@ VA - Hits Cocktail Vol.10 (2017) [MP3|320 Kbps] <Club, Dance>
 magnet:?xt=urn:btih:B9F917B29195B3BAF07721A07CAE3BB466319B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +747,8 @@ VA - Deep House Collection Vol.85 (2016) [MP3|320 Kbps] <Deep House, Club House,
 ```bash
 magnet:?xt=urn:btih:9BBA474DA05C38A763C79AECA75B7B894BEE9C7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -694,32 +777,7 @@ VA - Жаркие Танцы 5 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:3F80FFB6AC220B814A0BE6353B6B6C463DA47DDD
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044416   (565545) от 20.08.2016
-
-VA - In The Club (2016.2) (2016) [MP3|249~291 Kbps] <House, Electro House, Progressive, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_565545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tujamo & Taio Cruz  -  Booty Bounce (Radio Edit)  3:16
-02. Dimitri Vegas & Like Mike & Steve Aoki vs. Ummet Ozcan  -  Melody (Radio Mix)  3:44
-03. Axwell  -  Barricade (Club Mix)  6:20
-04. Martin Solveig feat. Sam White  -  +1 (Radio Edit)  3:12(   Читать дальше...   )Жанр: House, Electro House, Progressive, Dance, ClubПродолжительность: 05:15:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170DC81F4EAD6B0BECD728F867A00716032F1F83
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

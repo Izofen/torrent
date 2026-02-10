@@ -1,57 +1,3 @@
-###  Публикация: 956861   (329367) от 15.11.2015
-
-VA - Italo Disco Hits Vol.8 (2015) [MP3|320 кб/с]<Italo Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Key West - Jesahel (04:59)
-02. Roger Meno - What My Heart Wanna Say (03:53)
-03. Johnny M5 - Moscow Nights (Maxi Version) (05:58)
-04. Lala - Johnny Johnny (Radio Version) (03:27)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 04:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9956E11CFB057E5E097B38EE42F0540CA3626331
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956124   (329368) от 15.11.2015
-
-Aesthetic Perfection - 'Til Death (2014) [OGG|486-536 кб/с]<EBM, Industrial, Synthpop, Futurepop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happily Ever After
-02. Antibody
-03. Lights Out (Ready To Go)
-04. Death Rattle(   Читать дальше...   )Жанр: EBM, Industrial, Synthpop, FuturepopПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EABFF6F949A560339E46455777D0AD37362E1E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956582   (329369) от 15.11.2015
 
 Журнал | В мире науки №11 (ноябрь 2015) [PDF]
@@ -72,6 +18,8 @@ magnet:?xt=urn:btih:2EABFF6F949A560339E46455777D0AD37362E1E7
 ```bash
 magnet:?xt=urn:btih:FADDE46B1B7A562026BFC7EC90ABE0B5A5F24090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +45,8 @@ magnet:?xt=urn:btih:FADDE46B1B7A562026BFC7EC90ABE0B5A5F24090
 magnet:?xt=urn:btih:00357DCA6259C8ED9A3E7274F6A9567D615E0FF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +70,8 @@ magnet:?xt=urn:btih:00357DCA6259C8ED9A3E7274F6A9567D615E0FF8
 ```bash
 magnet:?xt=urn:btih:28701D28E0E0383EC8D42E551D01103A3680571C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +98,8 @@ magnet:?xt=urn:btih:28701D28E0E0383EC8D42E551D01103A3680571C
 magnet:?xt=urn:btih:D0043515CF23FFEF8CA3CEC4AAFC01FF1827AA10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +125,8 @@ magnet:?xt=urn:btih:D0043515CF23FFEF8CA3CEC4AAFC01FF1827AA10
 ```bash
 magnet:?xt=urn:btih:6C89E39E18D21EA840B0995B0DAF75B60004BB5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +155,8 @@ Rod Stewart - Another Country (Deluxe Edition) (2015) [FLAC|Image+cue]<Classic R
 magnet:?xt=urn:btih:42F90A0FC24332E4C321B55D3B1BD42522BA2F0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +182,8 @@ magnet:?xt=urn:btih:42F90A0FC24332E4C321B55D3B1BD42522BA2F0B
 ```bash
 magnet:?xt=urn:btih:1BD25005999D4ADBD666669F75004B9456A931C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +212,8 @@ PDF Expert - это один из лучших инструментов для �
 magnet:?xt=urn:btih:FD6516E6F4DA6914F375A2CD490CF18E4C52836D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +237,8 @@ magnet:?xt=urn:btih:FD6516E6F4DA6914F375A2CD490CF18E4C52836D
 ```bash
 magnet:?xt=urn:btih:7DA39A63C4CF730B9568281D6E99438AAA55F898
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +267,8 @@ magnet:?xt=urn:btih:7DA39A63C4CF730B9568281D6E99438AAA55F898
 magnet:?xt=urn:btih:897DAB0C9955363DB84E609037EC14B39DD6BFDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +294,8 @@ magnet:?xt=urn:btih:897DAB0C9955363DB84E609037EC14B39DD6BFDD
 ```bash
 magnet:?xt=urn:btih:AB2E50553C2BE85B6B95C04F3449AC1CF28C049D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +324,8 @@ VA - Lounge Music Classics 2016 Sexy Soft Lounge Chillout Music (2015) [MP3|320 
 magnet:?xt=urn:btih:260CB256DADE60BEC23358AEEF2915017975863F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +349,8 @@ magnet:?xt=urn:btih:260CB256DADE60BEC23358AEEF2915017975863F
 ```bash
 magnet:?xt=urn:btih:ED3BFB18B21C00981E9C1161AC2A37B86315F257
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +377,8 @@ magnet:?xt=urn:btih:ED3BFB18B21C00981E9C1161AC2A37B86315F257
 magnet:?xt=urn:btih:7008EB5A73D7C5A32B070195DB8C0884BE1288C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +403,8 @@ magnet:?xt=urn:btih:7008EB5A73D7C5A32B070195DB8C0884BE1288C5
 magnet:?xt=urn:btih:27C0D85B362F3D9EA0C8CC67774669DCBCC9B088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +428,8 @@ magnet:?xt=urn:btih:27C0D85B362F3D9EA0C8CC67774669DCBCC9B088
 ```bash
 magnet:?xt=urn:btih:FCEE80EB69A7B577FBC3501BA0275A6B36A2FCAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +456,8 @@ magnet:?xt=urn:btih:FCEE80EB69A7B577FBC3501BA0275A6B36A2FCAC
 magnet:?xt=urn:btih:D6D51DCAAFB4698AF4C096AE5CDD49EE51A906C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +481,8 @@ magnet:?xt=urn:btih:D6D51DCAAFB4698AF4C096AE5CDD49EE51A906C3
 ```bash
 magnet:?xt=urn:btih:47069AEBB35455E16143B6DA5D4B7C224195E7B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +511,8 @@ VA - Deep House Sexy Collection (2015) [MP3|320 кб/с]<House>
 magnet:?xt=urn:btih:9CC49499E9A507D7A4ACD90E8163266C7165E6BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +537,8 @@ magnet:?xt=urn:btih:9CC49499E9A507D7A4ACD90E8163266C7165E6BB
 ```bash
 magnet:?xt=urn:btih:F59B61B8E6967A403BCFC937E69E9CAB43C4C8E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +567,8 @@ VA - Audio Treasures (Healing & Soothing Chillout Vol 1) (2015) [FLAC|tracks]<Lo
 magnet:?xt=urn:btih:E62AC76F73159FA14C2AC7B439FDF1E540D170D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +593,8 @@ magnet:?xt=urn:btih:E62AC76F73159FA14C2AC7B439FDF1E540D170D7
 ```bash
 magnet:?xt=urn:btih:5B33B19E9B5886D56A6680007BC9094E186D9744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +622,8 @@ magnet:?xt=urn:btih:5B33B19E9B5886D56A6680007BC9094E186D9744
 magnet:?xt=urn:btih:949BBB2719FA61589D64F04DB4251241C85B59FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +650,63 @@ VA - Lounge Selection - The 50 Best Hits (2015) [MP3|320 кб/с]<Electronic, Do
 ```bash
 magnet:?xt=urn:btih:F01DC351F31BD0B20F94F98B3959F9701F1CE36E
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956648   (329413) от 15.11.2015
+
+Lifeline - Scream (2015) Japanese Edition [MP3|320 кб/с]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fear No More
+02. Far From Home
+03. Jezebel
+04. Nightmare Dream(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D6798DDBE511067D76B6C8C4B7ACC823D2D1CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956538   (329414) от 15.11.2015
+
+Лев Балаян | Сталин и Хрущев (2009) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329414.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роль Хрущева, первым бросившего увесистый ком грязи в имя Сталина, вызывает определенный общественный интерес. И на главный вопрос: «Что же вынудило Хрущева так нещадно оклеветать И. В. Сталина?» — исчерпывающего ответа пока не найдено. До сих пор коварная версия о «преступлениях Сталина», придуманная политическим пигмеем, стоявшим у власти в течение почти одиннадцати (   Читать дальше...   )Жанр: Отечественная историяФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D9C60C112DD3F098A800FE12034D977A9DAA57
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Caribbean Legend (2024) [Ru/Multi] (1.5.0/dlc) Repack Let'sРlay [Complete Editi
 magnet:?xt=urn:btih:5D5872BE891FA513961CAB401F19E744D8C868CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:5D5872BE891FA513961CAB401F19E744D8C868CD
 magnet:?xt=urn:btih:091511AD62921B4F205F1EB9C529FDE76509BDFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:091511AD62921B4F205F1EB9C529FDE76509BDFF
 ```bash
 magnet:?xt=urn:btih:4800FDC87B46772F5DDB300FF4D4A6F2D06D6560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:4800FDC87B46772F5DDB300FF4D4A6F2D06D6560
 magnet:?xt=urn:btih:6160E0C86A14705A9025C2737863B3C02875050C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Bloodshed - это захватывающий сплав элементов уп
 ```bash
 magnet:?xt=urn:btih:5751D2C0444B26B3C6DA238F4AF5E2AD63777095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:5751D2C0444B26B3C6DA238F4AF5E2AD63777095
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Motor Town Behind The Wheel – отличное сочетание аркадн
 ```bash
 magnet:?xt=urn:btih:DE69D248B8970BEE245D04A2FF7D1B4A10A2444D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:DE69D248B8970BEE245D04A2FF7D1B4A10A2444D
 magnet:?xt=urn:btih:890DC47C99FACF4E9985609568B66D7708C8DE8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:890DC47C99FACF4E9985609568B66D7708C8DE8C
 ```bash
 magnet:?xt=urn:btih:D4837807503EAA89788416D760A1C28BE316D861
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:D4837807503EAA89788416D760A1C28BE316D861
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:D4837807503EAA89788416D760A1C28BE316D861
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:D4837807503EAA89788416D760A1C28BE316D861
 magnet:?xt=urn:btih:099E95C830F2D7B72548B832BD51C8C6E143F97E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:6240203881622F46CF9C47A389A8C18263CD6FFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:6240203881622F46CF9C47A389A8C18263CD6FFD
 magnet:?xt=urn:btih:91008A494B5FF09C16B2D55454FE3CAE6BD5BA14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Spiritfall - экшн-платформер с элементами рогали�
 ```bash
 magnet:?xt=urn:btih:7959DDBC64733E9D74066613D99A1C6E94A267E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Chord Generator — это MIDI-инструмент, который генер�
 ```bash
 magnet:?xt=urn:btih:C6F3F5D5C5461B3255DEEF9988084F5042926EAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Cottonfield Blues - Silent Porch (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:49AC58BEF6A4D635E42E6474BE01604C7E32D651
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Harmony Bloom - это MIDI -генератор, объединяющий пол
 ```bash
 magnet:?xt=urn:btih:D554A20A6E7C1F9AA67A2D12F36037BACAA95D28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:D554A20A6E7C1F9AA67A2D12F36037BACAA95D28
 magnet:?xt=urn:btih:453A4F3E6B7317E6A3C08E5C09251DE5BA3368CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:453A4F3E6B7317E6A3C08E5C09251DE5BA3368CD
 magnet:?xt=urn:btih:0E472D334D773ACB517560B4ED38BE9AA9A302FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Newfangled Audio - Pendulate 1.7.0 VSTi, VSTi 3, AAX (x64) [En]
 magnet:?xt=urn:btih:C8029735FED5DCB1E07C336E3516A880F8D13B33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:C8029735FED5DCB1E07C336E3516A880F8D13B33
 ```bash
 magnet:?xt=urn:btih:3EF50A49AC85A718D4841D8F247BAF528D9424B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ Dyer Davis - Kiss The Ring (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:32996EF01F7E3D85B9EEE36702A6230B0147FC0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ Olav & The Blues Cruise - Fulltime Lover (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 ```bash
 magnet:?xt=urn:btih:92384686A53F6873F6CF48A73AF8BF288C23C53A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ Leanne Binder - I Got Something To Say (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 magnet:?xt=urn:btih:1A364725F0987033E4EAB42A42913221CF02A251
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ Nate Hammer - Dirty Pennies (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:053E0BAE7207D83A80FECD837C4843EDA9E649D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

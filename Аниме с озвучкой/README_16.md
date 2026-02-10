@@ -19,6 +19,8 @@ Lucky Star | Счастливая звезда [2007, TV, 24 эп. + OVA] BDRip 
 magnet:?xt=urn:btih:AB536BA68F30581F6B6EDF7B03FD6D2710000FE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Miami Guns | Пушки Майами [2000, TV, 13 из 13] DVDRip 576p 10-bit r
 ```bash
 magnet:?xt=urn:btih:109DC7A1E7B19BBEDD28D1877AD30DD206F369D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:109DC7A1E7B19BBEDD28D1877AD30DD206F369D4
 magnet:?xt=urn:btih:A57B4EAF4F6908A9C1901B86F6B1987BE1A9F92C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Koukaku Kidoutai: The Laughing Man | Ghost in the Shell: Stand Alone Complex - T
 magnet:?xt=urn:btih:FF39B35E66BEE23C48BC28FA0AEA4E341959010E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Riki-Ou: Toukatsu Jigoku | Riki-Oh: The Walls of Hell | Рики-О: За сте
 ```bash
 magnet:?xt=urn:btih:5D1158ED923486A0803D869E3A862236C19DE742
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Seija Musou: Salaryman, Isekai de Ikinokoru Tame ni Ayumu Michi | The Great Cler
 magnet:?xt=urn:btih:98B7B1B9F703D7DB0BC0208121FFFDAF61593B17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Level 1 Dakedo Unique Skill de Saikyou Desu | My Unique Skill Makes Me OP Even a
 ```bash
 magnet:?xt=urn:btih:7C9AAE707430F5B9ADD2A041F7D0D52B7DA23A22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:7C9AAE707430F5B9ADD2A041F7D0D52B7DA23A22
 magnet:?xt=urn:btih:4BF1B6068B61792980843C040CE383C3256A6BC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:4BF1B6068B61792980843C040CE383C3256A6BC9
 magnet:?xt=urn:btih:961B99DC54F2AD0AE47D78656CD4A9C87F955F8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Peach Boy Riverside | Персиковый мальчик с того берег
 ```bash
 magnet:?xt=urn:btih:6AA5EC785665EA040FD4B628181B1C9161F85C33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Wiki, World-ArtЖанр: спорт, повседневностьРежиссе�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Eureka Seven Astral Ocean / Eureka Seven Ao / Эврика 7: Ао [2012, TV, 24
 magnet:?xt=urn:btih:E93D62F8D74BB1D0E9033044A340AC6FD0281EE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Golden Kamuy (2020) / Золотое божество [ТВ-3] [2020, TV, 12 ep]
 ```bash
 magnet:?xt=urn:btih:86A5504FCA8F6B87AEAEA00D0DAB8BB85A5999BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Chainsaw Man | Человек-бензопила [2022, TV, 12 из 12] WEBRip 7
 magnet:?xt=urn:btih:C9585581C71E4947111D6D7E19FC5BB22A905615
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Shokugeki no Souma: Shin no Sara / Food Wars! The Fourth Plate / Кулинар�
 ```bash
 magnet:?xt=urn:btih:A596E4233A82C22A19446BC58DF1E706D50FF6CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Grenadier: Hohoemi no Senshi | Grenadier The Beautiful Warrior | Гренаде�
 magnet:?xt=urn:btih:F8298FCAD35090071EF50BC9F4A7584C7ACD4E61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Code:Realize Sousei no Himegimi / Код: Осознание [2017, TV, 12 ep] W
 magnet:?xt=urn:btih:D2B4F25AF1BE7C642E336D61726E755A6BC67418
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Imouto sae Ireba Ii / A Sister's All You Need / Сестра - всё, что т
 ```bash
 magnet:?xt=urn:btih:8C243D9B3C213485AFD5C279EA7CBE2FB2ED38F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ TV-1 (AniDub), (Anilibria), (Animedia), (SovetRomantica) - внешними фа
 magnet:?xt=urn:btih:85FF80A2F7D6BE64239C2EA54A865D8C0E8C5891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Houseki no Kuni / Land of the Lustrous / Сказания о самоцвета�
 ```bash
 magnet:?xt=urn:btih:78DCD13435CBBD9403B20154E38C578B8FD84738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ Ajin 2 (2016) / Полулюди [ТВ-2] [2016, TV, 13 ep] HDTV 720p Raw+Rus
 magnet:?xt=urn:btih:040A1095141852EF1442C4DEC85D85BA36B732B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Valkyrie Drive: Mermaid / Сила Валькирии: Русалочка [2015,
 ```bash
 magnet:?xt=urn:btih:DD1C87C0CD7FDB4A847CC1C5CCAFE3606C46C8D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Kujira no Kora wa Sajou ni Utau / Children of the Whales / Поющие в Пе�
 magnet:?xt=urn:btih:ED4283BAE9524F29AA7F648CC93CE0575F58EB76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ Himouto! Umaru-chan R / Двуличная сестрёнка Умару [ТВ-2
 ```bash
 magnet:?xt=urn:btih:BECB4309CC62B5EAF78229E59AE9E6FF7F3FF3AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Mob Psycho 100 II | Моб Психо 100 II [2019, TV, 13 эп.] BDRip 1080p ru
 magnet:?xt=urn:btih:EE26D94EEDBD73A4422053AD737277F3678907F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Kimi to, Nami ni Noretara | Ride Your Wave | На твоей волне [2019, M
 ```bash
 magnet:?xt=urn:btih:841F918032ADCCB44470BEBDF365DDCCDB19C955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

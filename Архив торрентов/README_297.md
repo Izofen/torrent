@@ -19,6 +19,8 @@ CPU Temp 1.6.1.0 [En]
 magnet:?xt=urn:btih:B57072F12D3AF5CEB4E9218792E26A3C52DB1B42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:D634D734B7BA917A70BCF6B73DCBFAFB772ACCE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Opera One 108.0.5067.24 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:ECD4A6962DD8354A42230AE6BDE0C76D1820782C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:78EC691CF690F1BAB35517C77F1C255B44659AB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ UsbTreeView - маленькая портативная утилита, реал
 magnet:?xt=urn:btih:403E40F21D572831161BC624C6E845BB5CF1ECEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ FastCopy - инструмент для быстрого копирования/�
 ```bash
 magnet:?xt=urn:btih:FE97F7154A9C83DB901D7F27B5C57A0E4B1022A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Kdenlive - бесплатный нелинейный видеоредактор,
 magnet:?xt=urn:btih:F9265D6BBA9C425808A4C2AEA22622F3E1EA85D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Joplin - это бесплатное приложение для создани�
 ```bash
 magnet:?xt=urn:btih:7BC74D86B90F0B280DC47F7CA017E9211FCD9A68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ PortableApps.com Platform - это функциональная платформ
 magnet:?xt=urn:btih:3CDC0B23C2864A8A875E66057ED9944A72B3CA76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Dynamic Wallpaper Engine позволяет использовать живые 
 ```bash
 magnet:?xt=urn:btih:9DE3AFA5497C786ABF31712302C0884BFF64DA9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ MKVToolnix - функциональный набор инструментов д
 magnet:?xt=urn:btih:3B72A29F73762B0BF9E6042D83C92A38B7D6CF19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ KeePassXC — программа для управления паролями. �
 ```bash
 magnet:?xt=urn:btih:61DD92FED01C93FCDF4ECF4ACBDA60C808618885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:348E96ADCAFF0BEAC549CC947B296ED9F68D7D6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Windows Firewall Control - утилита, с помощью которой, в�
 ```bash
 magnet:?xt=urn:btih:04152DA1C6884D7D02D7615EAD0E5286C7A84295
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ IceCream Ebook Reader Pro 6.48 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:F7D72FE95018F85684504922A20FF8B90EBBA994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ ShareX - программа для снятия снимков и видеоза
 ```bash
 magnet:?xt=urn:btih:06271A3D94CF608611AA2FB7B3F092EC9F62B3A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ OCCT 12.1.16 Final Portable [En]
 magnet:?xt=urn:btih:DE71A86E1BB9138C2647995D7E1BA830458D3669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:DE71A86E1BB9138C2647995D7E1BA830458D3669
 ```bash
 magnet:?xt=urn:btih:E5460476A863BB2E7016AC71048595C56C7384A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:DED611E101D481A6E10C15A3968A84726784A180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 ```bash
 magnet:?xt=urn:btih:49DC63BBEE81FE4DE18E78A8AC84F95458C7BAA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Ashampoo Driver Updater обеспечивает обновления для ш�
 magnet:?xt=urn:btih:935EFCEF77F87A398078D88E0FA9811E76D5C23C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Maple - программный пакет, система компьютерно
 ```bash
 magnet:?xt=urn:btih:9D847520E9D423A2C57595697642BE672A3EBE01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Capture One - один из лучших профессиональных кон
 magnet:?xt=urn:btih:0A3334D885A1424B4CBA2E50E575583316C6F691
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ WinRAR - один из самых известных архиваторов. Т�
 magnet:?xt=urn:btih:1A3A0A6A67E2FABD16F7739534E09367A5A4818E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ FxSound (ранее DFX Audio Enhancer) - отличное приложение,
 ```bash
 magnet:?xt=urn:btih:E5AE85FCD6E94A176CAE0EF01C0E1571F0A57E33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +673,8 @@ CrossOver создаётся компанией CodeWeavers на основе и
 ```bash
 magnet:?xt=urn:btih:25BC807C88334867D62D62FA8B6F8CF21617713B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

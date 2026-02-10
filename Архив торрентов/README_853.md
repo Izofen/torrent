@@ -20,6 +20,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:9BABC02A9EB2F445FE6F8D13BC7F847C6F97BE83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Extreme Picture Finder - средство для автоматического 
 ```bash
 magnet:?xt=urn:btih:EA96F42CBB679FCBEFEB3E45FA19F540D2918CA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 magnet:?xt=urn:btih:D9BFF89493A3408194642A3B57E193865CFE3C4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:D9BFF89493A3408194642A3B57E193865CFE3C4A
 ```bash
 magnet:?xt=urn:btih:43CC44F0E7C29A0427CC7E2C5426C42060651C1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ FastCopy - инструмент для быстрого копирования/�
 magnet:?xt=urn:btih:CC68B11190AFAC6E238214B7F4D180FD87DE3F9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ PhotoDirector - функциональный, но весьма простой �
 ```bash
 magnet:?xt=urn:btih:CC2C092B165A3E0A0BEC0EBD142F73E313E90A85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Icecream Video Converter Pro 1.43 [Multi/Ru]
 magnet:?xt=urn:btih:D78010006AC37A4D0FE37E580B13ED712643EBA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Icecream PDF Editor PRO - программа для поистине прост�
 ```bash
 magnet:?xt=urn:btih:75242E456471823DB4A121AE9B9190F3FBE37255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ InnoExtractor - это мощное приложение, которое пом�
 ```bash
 magnet:?xt=urn:btih:BFB2A5DC64E6B3727E97F186A44829AF8997976D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 magnet:?xt=urn:btih:3629954B515579462B1B156AB70086B18A39B9C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:65DC23E977ADC092627D938FFDD70487C0094021
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Icecream Slideshow Maker - это приложение для создания �
 ```bash
 magnet:?xt=urn:btih:3D50E3394AEDA8D21CD6E832123A9E922C209D75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Icecream PDF Editor PRO - программа для поистине прост�
 magnet:?xt=urn:btih:8D98484A25857054874402308C7D7D743F4940AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Steinberg Nuendo 13.0.30.226 (x64) Portable by 7997 [Ru]
 ```bash
 magnet:?xt=urn:btih:FD7A489A09F687391477C241EF93E5F23000FB56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Cyberlink PhotoDirector Ultra — многофункциональный ред�
 magnet:?xt=urn:btih:C5AB3FB38C827399B7A3617C2D993B7DFB2B7C99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ FocusWriter 1.8.7 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DFE51DF4E3C1C7CC7863676FC9C6B1BA00DE5996
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ MAGIX Samplitude Music Studio X8 19.1.3.23431 (x64) Portable by 7997 [Multi]
 magnet:?xt=urn:btih:1D23ADFF3C668447741EDBE7F9ABB065429299A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ MediaHuman YouTube Downloader 3.9.9.91 (0503) RePack (& Portable) by Dodakaedr [
 ```bash
 magnet:?xt=urn:btih:BB27BA11C84BB4EEAB9016F9085A1BCFA51657C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Icecream PDF Editor PRO - программа для поистине прост�
 magnet:?xt=urn:btih:7D859467F5FEA6DA1999EC757C5C75D5E5334B20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:C23CBC8DD4764781D591F31C024E3C5F7822932C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Affinity Publisher - программное обеспечение нового 
 magnet:?xt=urn:btih:A7D9B2830541F6657647CA5D0C92943ABC1F4833
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:F762285F502D87ADF93CBC5AC19A20FB3C2E2163
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Samplitude Pro X предлагает звукозаписывающим и ми
 magnet:?xt=urn:btih:4CF06F98041DE223C5EE6D3D6AF20D45DCEBB01C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Icecream Photo Editor - лучший бесплатный фоторедакто
 ```bash
 magnet:?xt=urn:btih:AF36058CEA2F28BD72E41868ECBDC4DA550C1181
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Privacy Eraser Free - комплексный инструмент для защ�
 magnet:?xt=urn:btih:FCA29BD60D01DC15235DFB3281A67FAB43032F64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Icecream Video Converter Pro 1.43 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:29555ABEE04C2348BD2569B5EC1AB4D04E709A75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

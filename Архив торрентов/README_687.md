@@ -23,6 +23,8 @@
 magnet:?xt=urn:btih:E469E82B311FDEC57EA0F72015E376641D89C24E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:E469E82B311FDEC57EA0F72015E376641D89C24E
 ```bash
 magnet:?xt=urn:btih:CD19EC5EC9531E3CCB86079D93649ECAEB4E2B1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ magnet:?xt=urn:btih:CD19EC5EC9531E3CCB86079D93649ECAEB4E2B1F
 magnet:?xt=urn:btih:DB103E23B0F532334AA217CE12DCB3FFA1D00217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:DB103E23B0F532334AA217CE12DCB3FFA1D00217
 magnet:?xt=urn:btih:61512071C60A417E4FC016C55907B028FE29BE07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:61512071C60A417E4FC016C55907B028FE29BE07
 ```bash
 magnet:?xt=urn:btih:E9CEE955FF1E6FAE6125616415A92BE857330379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +168,8 @@ Nookie & Larry Heard - Paradise (1998) [MP3|320 кб/с]<Jungle, Intelligent, D'
 magnet:?xt=urn:btih:CA593121CC3401D0E91ACD0E98AFF22D9980C174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +203,8 @@ KISS - Dressed To Kill (1975) [MP3|320 кб/с]<Hard Rock, Rock>
 magnet:?xt=urn:btih:F8C788A85D4C5B4D5DAF3EAA38C3B579BD90A514
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +231,8 @@ magnet:?xt=urn:btih:F8C788A85D4C5B4D5DAF3EAA38C3B579BD90A514
 magnet:?xt=urn:btih:3193196B27390DA467952DFD81041252C9F7BC0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +256,8 @@ magnet:?xt=urn:btih:3193196B27390DA467952DFD81041252C9F7BC0E
 ```bash
 magnet:?xt=urn:btih:B5603ECB35B325A4152A2872819D8996D82E0429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +285,8 @@ magnet:?xt=urn:btih:B5603ECB35B325A4152A2872819D8996D82E0429
 magnet:?xt=urn:btih:CFB89080C21334B34F2B7CB77BE34DA463AE1BF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ magnet:?xt=urn:btih:CFB89080C21334B34F2B7CB77BE34DA463AE1BF5
 ```bash
 magnet:?xt=urn:btih:BCC5EB4AA308AFC95CF4352A5D0900CAF72862D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +342,8 @@ Side 1
 magnet:?xt=urn:btih:BCD0FDD83B69184FAFF737BF7EF010912B379A67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +372,8 @@ magnet:?xt=urn:btih:BCD0FDD83B69184FAFF737BF7EF010912B379A67
 magnet:?xt=urn:btih:063CED8917014093062F0EFD6DB3943B610ED13F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +397,8 @@ magnet:?xt=urn:btih:063CED8917014093062F0EFD6DB3943B610ED13F
 ```bash
 magnet:?xt=urn:btih:29C610D941C0D39F7CA0766329A34CE0CC876B2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +424,8 @@ magnet:?xt=urn:btih:29C610D941C0D39F7CA0766329A34CE0CC876B2A
 magnet:?xt=urn:btih:172B2B40C62E1081EEC61A79D901908CF498EEEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +450,8 @@ magnet:?xt=urn:btih:172B2B40C62E1081EEC61A79D901908CF498EEEE
 magnet:?xt=urn:btih:6BC9DA88B8BC78DDD872D872D2F8E2D1488D41B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +475,8 @@ magnet:?xt=urn:btih:6BC9DA88B8BC78DDD872D872D2F8E2D1488D41B9
 ```bash
 magnet:?xt=urn:btih:6716C7350AD56338583B42AB14D61A1B8B84E202
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +510,8 @@ Gradient - 2 альбома, 2 EP (2009-2011) [MP3|320 kbps]<Dub Techno, Minimal
 magnet:?xt=urn:btih:026B52E79034DC6939B3FB554FCF7069F9D85679
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +536,8 @@ magnet:?xt=urn:btih:026B52E79034DC6939B3FB554FCF7069F9D85679
 magnet:?xt=urn:btih:55BEC2399682F419335B425B47BB9DACCE98D192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +561,8 @@ magnet:?xt=urn:btih:55BEC2399682F419335B425B47BB9DACCE98D192
 ```bash
 magnet:?xt=urn:btih:77B83518E06323409E618D3E69EF1C398B6E0D94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +592,8 @@ magnet:?xt=urn:btih:77B83518E06323409E618D3E69EF1C398B6E0D94
 magnet:?xt=urn:btih:B11FBBBA5071835D443B3E1EC648FB391C96CDAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +617,8 @@ magnet:?xt=urn:btih:B11FBBBA5071835D443B3E1EC648FB391C96CDAA
 ```bash
 magnet:?xt=urn:btih:B8696C95B8187E985BC477E8E1E91754206419C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +644,8 @@ LS · 2-НДФЛ_АДВ-6-2_РСВ-1 2.00 от 10.02.2012 [Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +680,8 @@ VA - Trance In Motion vol.109 (Mixed By E.S.) (2012) [MP3|320 кб/с]<Trance, V
 magnet:?xt=urn:btih:1C3DD3E2C974F944F3FCD81AA07208BB155D26DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +709,8 @@ magnet:?xt=urn:btih:1C3DD3E2C974F944F3FCD81AA07208BB155D26DC
 ```bash
 magnet:?xt=urn:btih:3D8F28AC8DAF64392623FE9C086D8437D44F4521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -694,6 +744,8 @@ VA - Ночная Дискотека 50/50 (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:0723F05DBC25A3E634FE8659DA89BBCF1DF8AA28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

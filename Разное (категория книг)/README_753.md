@@ -1,3 +1,29 @@
+###  Публикация: 606397   (995273) от 21.01.2013
+
+Е. Устинова (ред.) | Все о выпечке [2002] [DJVU]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+В книге дается описание выпечки с фруктами и овощами, с разнообразными кремами и глазурями, начинками и посыпками, рецептов для будней и праздников, самых вкусных рецептов пирогов, тортов, кексов, пирожных, печенья, пряников, а также выпечки для больных диабетом.Формат: DJVU
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 606424   (995276) от 21.01.2013
 
 Альпийская кухня на нашем столе [2002] [DJVU]
@@ -18,6 +44,8 @@
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@
 magnet:?xt=urn:btih:8721644F0271F972A2F3A03F2D8E25A1F54DC1F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:8721644F0271F972A2F3A03F2D8E25A1F54DC1F4
 ```bash
 magnet:?xt=urn:btih:260D1374EFA81D54C24B169BDB14677449D7B2A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:260D1374EFA81D54C24B169BDB14677449D7B2A8
 magnet:?xt=urn:btih:B040984E0A4779D7755C0FC9F2FEF0D551E9CC75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:B040984E0A4779D7755C0FC9F2FEF0D551E9CC75
 ```bash
 magnet:?xt=urn:btih:32B6FA9456891F9C459C08D1BDABB793D06C6115
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:32B6FA9456891F9C459C08D1BDABB793D06C6115
 magnet:?xt=urn:btih:1B341323595CC7DA10849F3D1BDD67E457EF4B72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:1B341323595CC7DA10849F3D1BDD67E457EF4B72
 magnet:?xt=urn:btih:80FF62A6F79C3A1D4F7FCE3DCCB0D06486ACE4EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:80FF62A6F79C3A1D4F7FCE3DCCB0D06486ACE4EA
 magnet:?xt=urn:btih:7E7780635CFFE53ED3979C9AF18BDB885EE4045D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:7E7780635CFFE53ED3979C9AF18BDB885EE4045D
 ```bash
 magnet:?xt=urn:btih:12D8F0DE682383A04C3FE2B5EE17521B57ED479D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +291,8 @@ magnet:?xt=urn:btih:12D8F0DE682383A04C3FE2B5EE17521B57ED479D
 magnet:?xt=urn:btih:6D88E221C643F8FBD578B46241D49E80E4D73149
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +319,8 @@ magnet:?xt=urn:btih:6D88E221C643F8FBD578B46241D49E80E4D73149
 magnet:?xt=urn:btih:AF164857C3D486468296BEC3AF980CC90A287BB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +344,8 @@ magnet:?xt=urn:btih:AF164857C3D486468296BEC3AF980CC90A287BB5
 ```bash
 magnet:?xt=urn:btih:3E716A613AFE17AFB71B0DF681281DFAB0B5D6C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +371,8 @@ magnet:?xt=urn:btih:3E716A613AFE17AFB71B0DF681281DFAB0B5D6C8
 magnet:?xt=urn:btih:4A36F9C47EFA218523EA06EEF4159BB17E22066C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +397,8 @@ magnet:?xt=urn:btih:4A36F9C47EFA218523EA06EEF4159BB17E22066C
 magnet:?xt=urn:btih:BA854215752BA59204A5AD217A2FCC74BA5F4CEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +422,8 @@ magnet:?xt=urn:btih:BA854215752BA59204A5AD217A2FCC74BA5F4CEB
 ```bash
 magnet:?xt=urn:btih:77973074E417F729BCC0ACA891CEFB0499BBF56D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +451,8 @@ magnet:?xt=urn:btih:77973074E417F729BCC0ACA891CEFB0499BBF56D
 magnet:?xt=urn:btih:8E380B82165109DEE46285398E3F60D4DA1F85D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +478,8 @@ magnet:?xt=urn:btih:8E380B82165109DEE46285398E3F60D4DA1F85D1
 magnet:?xt=urn:btih:74E950B4BB1AF300F115F3DBDCE7A4C920436DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +503,8 @@ magnet:?xt=urn:btih:74E950B4BB1AF300F115F3DBDCE7A4C920436DE0
 ```bash
 magnet:?xt=urn:btih:8851C254435229748DFB6FE1527E0CE5E9061F09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +530,8 @@ magnet:?xt=urn:btih:8851C254435229748DFB6FE1527E0CE5E9061F09
 ```bash
 magnet:?xt=urn:btih:D0097F6FBC7AE660FCE3E6E28F066BB4DEED040E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +562,8 @@ magnet:?xt=urn:btih:D0097F6FBC7AE660FCE3E6E28F066BB4DEED040E
 magnet:?xt=urn:btih:1628256EC58CD925785E70A4C96A9B35BB9D07FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +587,8 @@ magnet:?xt=urn:btih:1628256EC58CD925785E70A4C96A9B35BB9D07FB
 ```bash
 magnet:?xt=urn:btih:A5695BF20025A213FF50123FE6AA4C25E4E51A8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +614,8 @@ magnet:?xt=urn:btih:A5695BF20025A213FF50123FE6AA4C25E4E51A8B
 magnet:?xt=urn:btih:43BBED1F6D4ABE5C0D76009E704042CA95BEC2CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +639,8 @@ Renato Parolin | Оригинальные схемы вышивки крести
 ```bash
 magnet:?xt=urn:btih:3C99D50DD89CA16D727556613A1734FCA3199CAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +666,8 @@ magnet:?xt=urn:btih:3C99D50DD89CA16D727556613A1734FCA3199CAF
 magnet:?xt=urn:btih:85FCD9AF73FDAF811F70C457A624D2116FD3DD8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,29 +692,7 @@ magnet:?xt=urn:btih:85FCD9AF73FDAF811F70C457A624D2116FD3DD8F
 magnet:?xt=urn:btih:1AF4DC3ED3ECD2D575EE73164BF753F916DD0B13
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604822   (996125) от 18.01.2013
-
-Вера Куликова | Вкуснейшие начинки для пирогов, пирожков, вареников, блинчиков [2010] [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Книга поможет читателю разнообразить свое меню с помощью пирогов, пирожков, вареников и блинчиков с самыми разными начинками: мясом, грибами, рыбой, морепродуктами, овощами, крупами, дикорастущими травами, традиционными и экзотическими фруктами. На страницах издания даются полезные советы по обработке продуктов, приводятся рецепты приготовления теста.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAD353EC87E99A3AA70C1386C7DDEEB5156C1EB4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

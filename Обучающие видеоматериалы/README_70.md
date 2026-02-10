@@ -19,6 +19,8 @@ Lynda.com | JavaScript: Прототипы / JavaScript: Prototypes (2018) PCRec
 magnet:?xt=urn:btih:F9CCAC1E6F0F9361E3D27F2E5F30937C245BC424
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:F9CCAC1E6F0F9361E3D27F2E5F30937C245BC424
 ```bash
 magnet:?xt=urn:btih:4254BFD5B4F21D78106F1632CDB9B57DBDB25857
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ HTML/CSS - технология, которую легко освоить "по 
 ```bash
 magnet:?xt=urn:btih:58290A7C4F683CDC3435D2AFBCBBCB33E5A7DB1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Epic React - это серия интерактивных семинаров п�
 magnet:?xt=urn:btih:1C26403D8AA1E2E096DD6A6A5948219BC94AA09C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:1C26403D8AA1E2E096DD6A6A5948219BC94AA09C
 magnet:?xt=urn:btih:E26B090A23916C74E807910CED81609CC1AFC1F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:E26B090A23916C74E807910CED81609CC1AFC1F9
 magnet:?xt=urn:btih:180829E35C71F3AA7CAC67F42EC14DA0E2C63418
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ JS Mastery | Ultimate Next.js 13 Course + eBook (2023) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:1914DA01406840F8BE37A253295CBD8E98AECDCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Kent C. Dodds | Epic Web. Ship Modern Full-Stack Web Applications (2023) WEB-DL 
 magnet:?xt=urn:btih:2C46114E6F09AF7D22F4CF37293E31D35D4F173E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:2C46114E6F09AF7D22F4CF37293E31D35D4F173E
 ```bash
 magnet:?xt=urn:btih:6F56283C1F8E511EC1114A343B9FA87AC15AE668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Podlodka Crew | PHP Crew #2 (2023) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:6BAC90207D452B2E7E464E72364BB3A824CCA187
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:6BAC90207D452B2E7E464E72364BB3A824CCA187
 magnet:?xt=urn:btih:096EF03E5BA049ABAA65E78A73E5B15D5BFCCA1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ Autodesk Maya является ключевым инструментом ани�
 magnet:?xt=urn:btih:493B13BBCF04FBE15E85CF1EAACCF417726BBA10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ Udemy, Peter Sidoriak | Advanced VFX Compositing with Nuke: Green Screen Keying 
 magnet:?xt=urn:btih:505853F58CF078278D301DFF9E2A39CF2C5B677F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ Pluralsight, Stephen Wells | ZBrush FiberMesh Fundamentals (2018) PCRec
 ```bash
 magnet:?xt=urn:btih:FBCF0ADBAE2AA5F6A83724CE0F4C3A0732E9A004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ FXPHD, Jon Gress | Production in Unreal Engine 4 (2015) PCRec
 magnet:?xt=urn:btih:8D93979965A796E72ED74B828F129C4989B47E0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ My goal is to create engaging courses where you will learn programming and under
 magnet:?xt=urn:btih:62399CCBAA3BC341050F4D8FEE45332A4FC729F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:62399CCBAA3BC341050F4D8FEE45332A4FC729F3
 ```bash
 magnet:?xt=urn:btih:F915BAD3CE31DE5BF88F3B77646FA6FB6EEA655C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ Udemy, Haytham Omar-Ph.D | Revenue and Pricing Analytics with Excel & Python (20
 magnet:?xt=urn:btih:8B45CE4D731BACF5CDB7890C957836126E2F2A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:8B45CE4D731BACF5CDB7890C957836126E2F2A1D
 magnet:?xt=urn:btih:FF5EB2B7C4F48E603B3881731F9B5D85EF8D5CBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:FF5EB2B7C4F48E603B3881731F9B5D85EF8D5CBE
 magnet:?xt=urn:btih:21906FB937C1901896B5BC9DB01E508BF3E22D3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:21906FB937C1901896B5BC9DB01E508BF3E22D3A
 ```bash
 magnet:?xt=urn:btih:65CB6AD7968EA338FA67952DE1BFD9E38F864E4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +597,8 @@ Udemy | Android разработка на Kotlin - с нуля до продви
 magnet:?xt=urn:btih:4C7B045F884FA3011CFB04EC2EB9681445176E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ OTUS | AWS для разработчиков (Часть 1-3) (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:CF5791C3EBAA08DF5520D9681A1F084B3C8F1BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ Roman Grom | Evernote Другими глазами. Организация ра
 magnet:?xt=urn:btih:71F70F26738859556375CC9ED03F4A846CB70FFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ Podlodka QA Crew | Карьерный рост и процессы тестир�
 magnet:?xt=urn:btih:FA544EFFE697C2357E86DEAC5BABB69C3379B8D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ Podlodka QA Crew | Сезон 2. Мобильное тестирование и 
 ```bash
 magnet:?xt=urn:btih:C5F25573FE3DF1BE8311D913BBF0EFB735BFD431
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

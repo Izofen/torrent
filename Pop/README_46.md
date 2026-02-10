@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:17F3B2A47DB6FF0FCBBE980099E08A5FC7154361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Beyonce - Cowboy Carter (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Country
 ```bash
 magnet:?xt=urn:btih:D7398DF616D2D57A104C1A16243A640B5AFAC5C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Modern Heroes - Magic-The 1st Album (2024) [MP3|320 Kbps] <Euro-Disco>
 magnet:?xt=urn:btih:BE89A2BF932140218662AA7AC7C3EDF98D7E4A3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Disco 70’s Medley.
 ```bash
 magnet:?xt=urn:btih:89D22D371CA437FB24EE01F65310CF1C4FBF55DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ PNAU - Hyperbolic (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electropop>
 magnet:?xt=urn:btih:6A62316F9BC75DC072D64C6451B0FB81FEC50958
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Mike Mareen - The Maxi-Singles Collection (2009) Compilation, Remastered [FLAC|L
 ```bash
 magnet:?xt=urn:btih:6A292C14F7DCA7575F0939424D8D3676B9F6AF79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Mike Mareen - The Maxi-Singles Collection Part 2 (2023) Compilation, Remastered 
 magnet:?xt=urn:btih:1D45DBB737DB2DCE1997BFF48734C6E36321720C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Bravo Hits 14 (1996) CD, Compilation [FLAC|Lossless|WEB-DL|tracks] <Electro
 ```bash
 magnet:?xt=urn:btih:6516C299B5C0B58A15F6F7FFC72C8ED645F6D159
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Gym Cardio Workout 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:48FEF653CB3E146C2BF58526EB2445E6D702F747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Shakira - Las Mujeres Ya No Lloran (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, La
 ```bash
 magnet:?xt=urn:btih:ABA067DA72B2339C92814A390D80B016653162BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Fantastique - Fantastique (1982) Reissue, Remastered, 2024, Maschina [FLAC|Lossl
 magnet:?xt=urn:btih:19763A1566F8286AD848D63CD0ABD35C1C45C031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ Omar Khorshid - Belly Dance Volumes 1 & 2 (1992) 2CD [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:8DB225BD55E805D68F7ACE4C510E669CBDD3DADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ magnet:?xt=urn:btih:8DB225BD55E805D68F7ACE4C510E669CBDD3DADF
 ```bash
 magnet:?xt=urn:btih:2E9E97576EF1DD7D0FFC06748571432EC934F448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +398,8 @@ Cherry Laine - The Singles Collection - B’ Sides (2023) [FLAC|Lossless|image +
 magnet:?xt=urn:btih:145E39D9DEDFA6D7D17BC4C2EB9F39BFB5ACA6ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ VA - That's Eurobeat Non-Stop Mix (1987) LP [MP3|320 Kbps] <Italo-Disco, Euro-Di
 ```bash
 magnet:?xt=urn:btih:9A7FE79118F49160AE8C37F26E316BCE3A65D131
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ Justin Timberlake - Everything I Thought It Was (2024) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:09173A796D16D34BAC98A3079BFF8C7D71E022AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ Fun Fun - Double Fun (1987) Reissue, 2023, ESonCD [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:5B9A1038BB34255E7C1B23E2688F084FEB113E82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +514,8 @@ Ariana Grande - eternal sunshine (2024) slightly deluxe, 2024, Republic Records 
 magnet:?xt=urn:btih:2DDEF374E03F2B05A9DAF01E6715EE53B9ACA752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ Jackie DeShannon - Little Bit Of Heaven: The 1964 Metric Music Demos (2023) [FLA
 ```bash
 magnet:?xt=urn:btih:A3248C2602AC0AA08AF867ED72F208F6EEFA580F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +572,8 @@ The Crystals - Unforgettable Legends (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:6EEE50194DE579E59A98E65DCAB203AE99F53DC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ VA - К прошлому-не ревнуй (1997) [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:B6F581409AD5AE261CF570E1677E3F563D6E4AFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +630,8 @@ Ariana Grande - eternal sunshine (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:BAF64F97FBA3EF56729090EAA664411FE5BDF1D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ VA - Cover Sanremo 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:503DF0FDC4E90CD4440BF573D41249727CAB0022
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ magnet:?xt=urn:btih:503DF0FDC4E90CD4440BF573D41249727CAB0022
 magnet:?xt=urn:btih:1A400B98EE50EDE89998296BF4E1C946AD24CC8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ Ricki-Lee - On My Own (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:E4631B12E2379F7DCC8B4FD46EBB7DC916385C3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ magnet:?xt=urn:btih:E4631B12E2379F7DCC8B4FD46EBB7DC916385C3E
 ```bash
 magnet:?xt=urn:btih:931FDF975AE38A8F6460AA81E4019C2FA51F2FA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

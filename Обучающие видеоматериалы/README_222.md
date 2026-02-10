@@ -21,6 +21,8 @@ Ctrl + Paint, Matt Kohr | Design Basics (2014) PCRec [En, Ru]
 magnet:?xt=urn:btih:4115F487D7FF3567BC522AB8D2E277F2F1A464DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Ctrl + Paint, Matt Kohr | Game Icons (2015) PCRec [En, Ru]
 magnet:?xt=urn:btih:B13D0DB8B3398EECDF9A6C667683AB39D0561C29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Ctrl + Paint, Matt Kohr | Boss Monster (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:B23458554CBA17E08CF582BB473F096990DE0274
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Ctrl + Paint, Matt Kohr | Design Basics 2: Shape (2014) PCRec [En, Ru]
 magnet:?xt=urn:btih:7A048F5EDC252E383878C5FCBA8D1F72A6737227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Skillbox, Анжела Каменская и др. | Продуктовый ма
 magnet:?xt=urn:btih:D6FCBDB9F10BBEF0177A0A5EB81E0FE59C0360B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Udemy, Motion Guru | Create and Animate Tank & Machine in Blender 2.93 (2021) PC
 ```bash
 magnet:?xt=urn:btih:C86F183FA1D7B6D932906EBAE008F4A2BA3D9510
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Ctrl + Paint, Мэтт Корр | Цифровая живопись от "Ctrl +
 magnet:?xt=urn:btih:FD11664345DEF9B8179E1B7DB7D63C6E0FA5E55D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Ctrl + Paint, Matt Kohr | Basic Photoshop Rendering Volumes 1-4 (2014) PCRec [En
 ```bash
 magnet:?xt=urn:btih:60D88ECC2893E9209C0E8DD470A8F487EB22BD05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Udemy, Motion Guru | Complete Curse of Blender version 2.93 (2021) PCRec [EN]
 magnet:?xt=urn:btih:F13EB15983E8DC01F415C2E29D9C27CC1C1809BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Ctrl + Paint, Matt Kohr | World Design (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:1F8BF72A0D439A4B491D56473C6439843270EE62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ Ctrl + Paint, Matt Kohr | Perspective Sketching 1 The Basics (2012) PCRec [En, R
 magnet:?xt=urn:btih:24C5C495960D6F012D38CB00A4CEC23B565FC72E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ Ctrl + Paint, Matt Kohr | Perspective Sketching 2 Form and Design (2012) PCRec [
 ```bash
 magnet:?xt=urn:btih:F5C16629411FDCCFCDF6738B7105FA4395F32B54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ Ctrl + Paint, Matt Kohr | House Design (2015) PCRec [En, Ru]
 magnet:?xt=urn:btih:9F6F6DC4ECC481BE113B0EE7F84BFA9E1EC59840
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ Ctrl + Paint, Matt Kohr | 3D For Illustrators 01: First Steps (2016) PCRec
 magnet:?xt=urn:btih:5AA15807A4CF860B4B6FBD5D4085CEF8F2337D2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ Ctrl + Paint, Matt Kohr | 3D For Illustrators 06: Paintover Demo (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:F65088FCA5C89957727B1008DB666F172ABABEA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ Photoshop в первую очередь был создан для фотогр
 magnet:?xt=urn:btih:2B9689257EAAEF169DE0C88838EE0965DE642EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ Ctrl + Paint, Matt Kohr | 3D For Illustrators 04: Texturing (2016) PCRec
 magnet:?xt=urn:btih:EC3F19FA23CD33CC2AD643F3721652780D7AAEA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ Ctrl + Paint, Matt Kohr | 3D For Illustrators 02: What's Possible (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:7AFC5083B633C58885DFD9423AD2AD60D498C42B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:7AFC5083B633C58885DFD9423AD2AD60D498C42B
 magnet:?xt=urn:btih:84961DB23E6C5EA2845A85A9E765288B810CC520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Skillshare, Neil Bettison | Blender to Unreal Engine 5 - 3D Props - Medieval Mar
 ```bash
 magnet:?xt=urn:btih:3BD1EB825914DBF4CDC5613A1F9738A37C12DD39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ Udemy | Познавая вёрстку HTML, CSS и кое что ещё (2018)
 magnet:?xt=urn:btih:60EA859983149E2C7AB1713423D5FCA12A7B5974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:60EA859983149E2C7AB1713423D5FCA12A7B5974
 ```bash
 magnet:?xt=urn:btih:B2E127DAB75A98CEAEF4687C769112B9DEBEF4F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ Flutter - фреймворк, разработанный Google - позволя
 magnet:?xt=urn:btih:FC2A57F8DAC3D89C58195FBF45BE8B897CE97597
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ React -  чрезвычайно популярная библиотека, и р
 ```bash
 magnet:?xt=urn:btih:B604C5A8A799CDAC1E2F70F159A17BD72C240496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:B604C5A8A799CDAC1E2F70F159A17BD72C240496
 magnet:?xt=urn:btih:F4828B30E6DA048791515E218EB5B02E8F95C4A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:F4828B30E6DA048791515E218EB5B02E8F95C4A2
 ```bash
 magnet:?xt=urn:btih:8AA77E44139A3D4A06417238FEAFA38F5D8A1F51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

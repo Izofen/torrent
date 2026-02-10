@@ -22,6 +22,8 @@ El Jetta - Monkeys Do What They See (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:9B2C7A81C43625D12C88AE6DD7FC48E92BFB6096
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Aaron Searle - In Idle Hours (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:D5F771F14D619B5E10169C406AD24E90E97F9C69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Kai Craig - A Time Once Forgotten (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Co
 magnet:?xt=urn:btih:27FE01AD6F54C516AECB5827104AB689CF9A50E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:27FE01AD6F54C516AECB5827104AB689CF9A50E7
 ```bash
 magnet:?xt=urn:btih:28FAB53CD2AD13517242DC2B0877CB16273129F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Architects — металкор-группа, сформирована в 2004 �
 magnet:?xt=urn:btih:8A892276B5387AC3A070AE92593EC742A57CE13C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:8A892276B5387AC3A070AE92593EC742A57CE13C
 ```bash
 magnet:?xt=urn:btih:11248B0BBB53201CE554A5B567A1DC2FFA393E09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:11248B0BBB53201CE554A5B567A1DC2FFA393E09
 magnet:?xt=urn:btih:23606EFBD46C2A61E93D6A5FA0023DE8AEB64B06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:23606EFBD46C2A61E93D6A5FA0023DE8AEB64B06
 ```bash
 magnet:?xt=urn:btih:A45D522167F063658D143F5254A6100BFB8AC093
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:A45D522167F063658D143F5254A6100BFB8AC093
 magnet:?xt=urn:btih:BD9B00688CD31C7951FC71A247D1C0FBD7EEE512
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:BD9B00688CD31C7951FC71A247D1C0FBD7EEE512
 ```bash
 magnet:?xt=urn:btih:EFC5CDF972C4A6824C1C959600F58E9A517B582E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ VA - Soul and Funky Stars (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul, Fu
 magnet:?xt=urn:btih:95886835C1C0796D946C4230A058A8F009F2FDB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ Filter - The Algorithm (Ultra Edition) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:C041743DBED4C680ECA7D2328ED916FC2D27F4E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +354,8 @@ Zayden Larkell - Endless Problems (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:BAEA0D485E19F5D416A845B16578983BA52EFE59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ Linkin Park - Living Things + (2012) E.U., 9362-49450-0, 2013 [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:B2E735FA20728FC4228FB6F1DF0A8542CB396D4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +412,8 @@ Kellan Broadridge - Craves It All (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:ACCEC4FEA822B97451CFBB3857E8FD149CCFB827
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +440,8 @@ Linkin Park - A Thousand Suns + (2010) Brazil, 9362495889, AB0002000 Pressing, 2
 ```bash
 magnet:?xt=urn:btih:ABE85330BEEE4682DB56C7CEF3628E5BCA2AEDBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +470,8 @@ magnet:?xt=urn:btih:ABE85330BEEE4682DB56C7CEF3628E5BCA2AEDBE
 magnet:?xt=urn:btih:6A6D4456DBB41D167CA4BCA838162BAC65DA2F7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +495,8 @@ magnet:?xt=urn:btih:6A6D4456DBB41D167CA4BCA838162BAC65DA2F7A
 ```bash
 magnet:?xt=urn:btih:62FC5AE1F8E6924D5CE30E7CFD4B677DADACB374
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +525,8 @@ magnet:?xt=urn:btih:62FC5AE1F8E6924D5CE30E7CFD4B677DADACB374
 magnet:?xt=urn:btih:0FF8DDD3E2264CB241867EE46C25649236338D47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +553,8 @@ magnet:?xt=urn:btih:0FF8DDD3E2264CB241867EE46C25649236338D47
 ```bash
 magnet:?xt=urn:btih:BF835FC44FF025C86A52D997CD1AB5EB0466A862
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +583,8 @@ The Book Of Revelations - группа основана мультиинстру
 magnet:?xt=urn:btih:17F8823F87482023CA37FADE8B35E7841CAC0173
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +612,8 @@ Leander Thistle - Ending Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blu
 magnet:?xt=urn:btih:2F23ED70EE334C244F6A576029E377F8BF4B73AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +640,8 @@ magnet:?xt=urn:btih:2F23ED70EE334C244F6A576029E377F8BF4B73AB
 magnet:?xt=urn:btih:C00D3691ADC26E0A293E67FC7A0ED530A4D78D91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +666,8 @@ magnet:?xt=urn:btih:C00D3691ADC26E0A293E67FC7A0ED530A4D78D91
 magnet:?xt=urn:btih:9AB714676832D9E4EC148FC6A309A9FC1FBF42FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +691,8 @@ magnet:?xt=urn:btih:9AB714676832D9E4EC148FC6A309A9FC1FBF42FB
 ```bash
 magnet:?xt=urn:btih:ACE1E34A9DA111409A3A611E5EC6AD0D845FE2A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +720,8 @@ magnet:?xt=urn:btih:ACE1E34A9DA111409A3A611E5EC6AD0D845FE2A1
 ```bash
 magnet:?xt=urn:btih:F22C536B5197B26A586487B0A85EBE2D2E4C395F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

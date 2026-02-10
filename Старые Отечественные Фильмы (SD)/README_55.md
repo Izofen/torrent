@@ -1,3 +1,29 @@
+###  Публикация: 1141354   (650097) от 10.06.2017
+
+Миражи любви (1986) VHSRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бухара времён средневековья. Мастер гончарного ремесла Муфаззал имел несколько жён, но ни одна не смогла родить ему сына, которому гончар смог бы передать своё дело. Увидев на базаре юную рабыню Алтынбюбю, Муфаззал понял, что именно она должна родить ему сына, и пообещал девушке свободу, если она исполнит его мечту. Когда, наконец, родился наследник Мани, Алтынбюбю (   Читать дальше...   )Производство: Киргизфильм, Таджикфильм, Ганемфильм (Сирия)Жанр: Драма, МелодрамаПеревод: Не требуетсяПродолжительность: 01:32:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25FD51E5556B3CA7AEE921E14447C0EFBE32711F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 839237   (650100) от 10.06.2017
 
 Двое (1965) TVRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7AEA2081751C9A383CA9292B7FC0BE2B87A0D6AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:7AEA2081751C9A383CA9292B7FC0BE2B87A0D6AF
 magnet:?xt=urn:btih:AE41D7A90D99BDB54BD37AA1B94543E6C31B3E3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:AE41D7A90D99BDB54BD37AA1B94543E6C31B3E3C
 ```bash
 magnet:?xt=urn:btih:A5EDCCD41668EFC4A7C94A67FA702FB262DFA233
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:A5EDCCD41668EFC4A7C94A67FA702FB262DFA233
 magnet:?xt=urn:btih:82810E86350327600D5BD1EE23EA357CA5898450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:82810E86350327600D5BD1EE23EA357CA5898450
 ```bash
 magnet:?xt=urn:btih:5833205966EED8B39801281E79E3D85C2C3939E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:5833205966EED8B39801281E79E3D85C2C3939E0
 magnet:?xt=urn:btih:A4002EBF0EC2983D5B437D0BBDDB4EC93E37A793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:A4002EBF0EC2983D5B437D0BBDDB4EC93E37A793
 ```bash
 magnet:?xt=urn:btih:5930FFC2A7AB0552D487EEBF360DAE7A88257BDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:5930FFC2A7AB0552D487EEBF360DAE7A88257BDD
 magnet:?xt=urn:btih:B03A88C653406A49B2B725C7B97CF1D471F35515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:B03A88C653406A49B2B725C7B97CF1D471F35515
 ```bash
 magnet:?xt=urn:btih:A8945AB14AF460682CC394932C71FF964F5C4C45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:A8945AB14AF460682CC394932C71FF964F5C4C45
 magnet:?xt=urn:btih:20D9B0220277C2A17D40784C876CBD701D2E7A79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:20D9B0220277C2A17D40784C876CBD701D2E7A79
 ```bash
 magnet:?xt=urn:btih:351C8B66FC1F092C25470CB1DCEAF4EAF4388567
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:351C8B66FC1F092C25470CB1DCEAF4EAF4388567
 magnet:?xt=urn:btih:EE849F0B267C5DBC0F8C15FDB54F2E8C2F53E2FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:EE849F0B267C5DBC0F8C15FDB54F2E8C2F53E2FC
 ```bash
 magnet:?xt=urn:btih:D63FD1017AAF97088B64646D38AC8FD53DB24E03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:D63FD1017AAF97088B64646D38AC8FD53DB24E03
 magnet:?xt=urn:btih:D29898DA75B4241226BAC8E0C2FDFB2C74859B9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:D29898DA75B4241226BAC8E0C2FDFB2C74859B9D
 ```bash
 magnet:?xt=urn:btih:23196D253A5AE599ABB1BD86F459280FF0463DDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:23196D253A5AE599ABB1BD86F459280FF0463DDC
 magnet:?xt=urn:btih:75FC5A5D113E7B55F4BF480CDDDB7290484FFFD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:75FC5A5D113E7B55F4BF480CDDDB7290484FFFD8
 magnet:?xt=urn:btih:FF3E1A9B355FE628BB662EB19A4017AD6477398C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:FF3E1A9B355FE628BB662EB19A4017AD6477398C
 ```bash
 magnet:?xt=urn:btih:DB149937D2852DEA83A46A8178A11DD9257CFF0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:DB149937D2852DEA83A46A8178A11DD9257CFF0C
 magnet:?xt=urn:btih:3F073C3BD53F9CEE3826F4899F3C84FA1D46D882
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:3F073C3BD53F9CEE3826F4899F3C84FA1D46D882
 ```bash
 magnet:?xt=urn:btih:7FCF07027706D79AEFEBA254B49BA6D8737D2604
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:7FCF07027706D79AEFEBA254B49BA6D8737D2604
 magnet:?xt=urn:btih:D490F2FC57AAE3FE203E9E39FAE8B10D5233EDC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:D490F2FC57AAE3FE203E9E39FAE8B10D5233EDC9
 ```bash
 magnet:?xt=urn:btih:F11BA8328EE34BE77C3F9763A9D8BF6C74EBA5BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:F11BA8328EE34BE77C3F9763A9D8BF6C74EBA5BC
 magnet:?xt=urn:btih:1EB53BE9EB524979A14EA9636E09C3756BF3B36E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:1EB53BE9EB524979A14EA9636E09C3756BF3B36E
 ```bash
 magnet:?xt=urn:btih:C9A22219C3BE949879EEBB2512231377ADF303B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:C9A22219C3BE949879EEBB2512231377ADF303B1
 magnet:?xt=urn:btih:417ABFEEA18D865C6F070FC39E085FAE8B869191
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030237   (674149) от 30.06.2016
-
-Дорога (1955) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_674149.jpg" />
-</div>
-
-
-###  Подробнее
-
-На одной из автостанций горной дороги Дальнего Востока из-за снегопадов застряли десятки машин с пассажирами и срочным грузом. Под вечер на станцию прибывают еще два пассажира - капитан госбезопасности и "иностранный турист". Утром, несмотря на пургу, автоколонна направляется на штурм перевала. Никто не подозревает, что капитан сопровождает диверсанта, (   Читать дальше...   )Производство: СССР / МосфильмЖанр: Боевик, ПриключенияРежиссер: Александр СтолперАктеры: Андрей Попов, Виталий Доронин, Николай Гриценко, Тамара Логинова, Лев Свердлин, Виктор Авдюшко, Евгений Матвеев, Евгений Леонов, Григорий Михайлов, Владимир Кенигсон, Тахир Сабиров, Павел Винников, Николай Сергеев, Борис Битюков, Николай Борисенко...Продолжительность: 01:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DACBA10E6B06DBB8E9CFD01DDF6766A58323FED4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ AIDA64 v2.08 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:EE293DA4C54FFC0F28FADC4EC839F479CAA7355B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:EE293DA4C54FFC0F28FADC4EC839F479CAA7355B
 magnet:?xt=urn:btih:10A0B4AAD17B6D8D027891F04261813B3E7F0FCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:10A0B4AAD17B6D8D027891F04261813B3E7F0FCA
 ```bash
 magnet:?xt=urn:btih:A0ACA6903B1F32268AA4D2ED1254F649CEDA869C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Jigsawscapes® - Пазлы v3.8.5 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:18138D63645940D00212584DE62E29FE857790DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Ashampoo Music Studio - это Швейцарский армейский нож 
 ```bash
 magnet:?xt=urn:btih:608BD768A672B99FB8B444F63BC64EFA179303CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Devil May Cry (2025) | И дьявол может плакать (2025) [2025, W
 magnet:?xt=urn:btih:3E1F3769A483CADCFFCDB2FFAF6671AB12740388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ AOMEI Partition Assistant – мощная программа для работ�
 magnet:?xt=urn:btih:714CE17AE01F7F54CF58032CB8A61F6AFADDE529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ MediaHuman YouTube Downloader 3.9.9.99 (0604) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:7D762BFBC06C9D1D1E30A7E94C29245D51287DA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:7D762BFBC06C9D1D1E30A7E94C29245D51287DA1
 magnet:?xt=urn:btih:BA77C5587EF5336C72CF9EA896268DFA42AD61A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ AirBrush: ИИ Фоторедактор v7.7.0 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C8AABFDDEDC1A231914C94FAD4782AEB11605510
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ StaxRip - инструмент для кодирования видео "все-
 magnet:?xt=urn:btih:92BF32355987288B501C42117EB9CFA8601A35D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ FolderSizes 9.7.515 Enterprise [En]
 ```bash
 magnet:?xt=urn:btih:428CC0E03A3BD7818E704F3CE488F6F3C3F5BCC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ KineMaster - Video Editor & Maker v7.6.6.34564.GP Mod by Shadow_Patcher [Ru/Mult
 magnet:?xt=urn:btih:7C3720403F8E571EF55505F5E6399B77EA7AED03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ MediaHuman YouTube Downloader 3.9.9.99 (0604) RePack (& Portable) by Dodakaedr [
 ```bash
 magnet:?xt=urn:btih:54970F2B5037D35C0229B38903263D829137D79B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Extreme Picture Finder - средство для автоматического 
 magnet:?xt=urn:btih:90B2B2B1101C68E0B7F60B959F002123EA4B153B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:90B2B2B1101C68E0B7F60B959F002123EA4B153B
 ```bash
 magnet:?xt=urn:btih:26A82A1236EEB42FD7B6B5583893C0990845ACC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 magnet:?xt=urn:btih:0DD8733E14F2CE66767EF7D440D92E4D092DDC0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ MediaHuman YouTube Downloader 3.9.9.99 (0504) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:34FE5CD21AC5DF2006A3A551A347C4389BE1B6F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:34FE5CD21AC5DF2006A3A551A347C4389BE1B6F0
 magnet:?xt=urn:btih:151D90EB8FAEAE7B40DB544301927EC4A072908A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Ventusky: Прогноз погоды v43.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:874A0541FE3ECAE34487690031E613E22B3A25B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:327EE39DF2A4BFA6A84EF6F365D719062CDEDB69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:441638390495930C0591AFB6F64B82FAF91FF63B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 ```bash
 magnet:?xt=urn:btih:093FA0EEA67D061C06828FA9065458B149C59955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Free Download Manager - кроссплатформенный менеджер з
 magnet:?xt=urn:btih:4AE2AE05EE7B90A9E1D3C619E617ABDEE57CAD20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:4AE2AE05EE7B90A9E1D3C619E617ABDEE57CAD20
 ```bash
 magnet:?xt=urn:btih:1E54C55FCBEB9B7E97661A415B2433B7C98275E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:1E54C55FCBEB9B7E97661A415B2433B7C98275E2
 ```bash
 magnet:?xt=urn:btih:BD096804E4EE2C6D53618B390EA7D9C2540A8798
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A34799D39D752558C91E8D6A500D8BD10B129B92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:A34799D39D752558C91E8D6A500D8BD10B129B92
 magnet:?xt=urn:btih:5CD21D203E18F6E66E63E7A5272029D7ECC0E9E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:5CD21D203E18F6E66E63E7A5272029D7ECC0E9E1
 ```bash
 magnet:?xt=urn:btih:4352BCB3275B3E1DB922AC75AC34587749D1CDF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:4352BCB3275B3E1DB922AC75AC34587749D1CDF2
 magnet:?xt=urn:btih:5B7C9DA3813223975F10B1B149FA5FAD8FE8A6D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:5B7C9DA3813223975F10B1B149FA5FAD8FE8A6D5
 ```bash
 magnet:?xt=urn:btih:983AF0B484CF5EAEB449831D35BD5E7B033DE7C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:983AF0B484CF5EAEB449831D35BD5E7B033DE7C3
 magnet:?xt=urn:btih:F6118F0DEF4AA2CF67709E2E2C8FAD905C51359D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:F6118F0DEF4AA2CF67709E2E2C8FAD905C51359D
 ```bash
 magnet:?xt=urn:btih:E870E8CBD920D11D2250EA2435FD5E5B810DEA46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ VA - A State of Trance - Classics Top 10, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:260BD97C5BC6A07DDB95D0F269DFEB5CB46BC342
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:260BD97C5BC6A07DDB95D0F269DFEB5CB46BC342
 magnet:?xt=urn:btih:C904DA6986FB96EFC01E5D3584CF27914258E5B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:C904DA6986FB96EFC01E5D3584CF27914258E5B9
 ```bash
 magnet:?xt=urn:btih:3DFC3C131472F0664C19852B4EA947BA811C9776
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Bloody Dice - 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:6D0A3690483395A8ACEA744683A508C7B5766975
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:6D0A3690483395A8ACEA744683A508C7B5766975
 ```bash
 magnet:?xt=urn:btih:0F92BC3F5BE199DA12874BCD73116984118C77DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Fever Ray - The Year of The Radical Romantics (2025) [FLAC 24/48|Lossless|WEB-DL
 magnet:?xt=urn:btih:416DBA55A7E4D3989B0A3AE61E767FDBDC86AB67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ Charlie Haden Quartet West - In Angel City (1988) Verve Records [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:BB2AF48D20B1E088BD21F11BF1A9D6D2987A2826
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ Lights of Vimana - Neopolis (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Do
 magnet:?xt=urn:btih:8061C26B6105807655035867AF4FA6DD0B527850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ Mass Deception - Resurrections (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 ```bash
 magnet:?xt=urn:btih:13080DCC83802A4A93744D16DF38556E95B2E1A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ Paramore - All We Know Is Falling (2005) Deluxe Edition, 2025, Fueled By Ramen [
 magnet:?xt=urn:btih:54F9BD1074CB06498EE1F0AFF9CA1BA2EF14DEA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ Gloombound - Dreaming Delusion (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Atmos
 magnet:?xt=urn:btih:D0ED1B717D7296FB5B764937EB9AAEA7FB04581F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:D0ED1B717D7296FB5B764937EB9AAEA7FB04581F
 ```bash
 magnet:?xt=urn:btih:C61CDBFAF9BD69C861CBCF5DFE747E8497E23E49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ Baroness - Purple (2015) [FLAC|Lossless|image + .cue] <Stoner Rock, Progressive 
 magnet:?xt=urn:btih:3942F192A2F3A5803EF37F2B0CBEF70F4AFEF044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ magnet:?xt=urn:btih:3942F192A2F3A5803EF37F2B0CBEF70F4AFEF044
 magnet:?xt=urn:btih:6C62694EA5C116935F0168135D5D0BD3D01D60D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:6C62694EA5C116935F0168135D5D0BD3D01D60D9
 ```bash
 magnet:?xt=urn:btih:9B74DFC5B0EE078C23070C9322595637891FC792
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ Jibaku Shounen Hanako-kun 2 | Toilet-bound Hanako-kun Season 2 | Туалетн�
 magnet:?xt=urn:btih:7F49A3FAB49E9D0860CC51F1D888C5DCB7E809B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:7F49A3FAB49E9D0860CC51F1D888C5DCB7E809B4
 ```bash
 magnet:?xt=urn:btih:5DE1DDCB7245F4DC6A8F559296B487E3D6600C0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:5DE1DDCB7245F4DC6A8F559296B487E3D6600C0A
 magnet:?xt=urn:btih:688F99E619A87C1B8D5856B6055CD990D0B6C940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:688F99E619A87C1B8D5856B6055CD990D0B6C940
 ```bash
 magnet:?xt=urn:btih:356A0E36BB5E36462125A56EDB166C3BBD3CC5A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Microsoft® Windows® 11 Professional VL x64 23H2 RU by OVGorskiy 03.2024
 magnet:?xt=urn:btih:A969AF1DA0D2A9CC695FA4BA2370D9E44CABB557
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MInstAll v.10.03.2024 By Andreyonohov (Unpacked) [Ru]
 ```bash
 magnet:?xt=urn:btih:B451CF26B37908BB1C8A138AFA2A18E026E75931
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:B451CF26B37908BB1C8A138AFA2A18E026E75931
 magnet:?xt=urn:btih:2C7D8CF833C2C065467F65EA36EEAA33C76B7A79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 ```bash
 magnet:?xt=urn:btih:E6D0F9B371C7F1ECE352C76684C38C7ABE9403C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Gord (2023) [Ru/Multi] (1.5.0/dlc) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:A0F5FCD6F00B812FD89546C1F5CEB7C5CB0F35C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Contra: Operation Galuga, последняя часть легендарной �
 ```bash
 magnet:?xt=urn:btih:AF48D58250D995F1B40288FB0CC4ABF593C85493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:AF48D58250D995F1B40288FB0CC4ABF593C85493
 magnet:?xt=urn:btih:58B657A03D73F3B9EC20CDE012BA52F5FC53BDAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ AMID EVIL (2019) [En] (2628/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:E7FDA35CBA863F337B7D379A23CAA44D4773B85C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Sepultura - Discography(1986-2009)[APE,FLAC|Lossless] <Thrash Metal>
 magnet:?xt=urn:btih:4077AC5F2B22947550A93B1A04FCF7321DA72894
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Space Rangers HD: A War Apart / Космические рейнджеры HD: Р
 ```bash
 magnet:?xt=urn:btih:1FAB99F4A3B3489A5FB3BDC3CA9EBECC5C79092B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:1FAB99F4A3B3489A5FB3BDC3CA9EBECC5C79092B
 magnet:?xt=urn:btih:1BA5D06F6C670EA3D252A531E135B73D0B4C118D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Outcast - A New Beginning – это продолжение знаменитог
 ```bash
 magnet:?xt=urn:btih:F5AE587D0B3A6ADAB7EAB60B1AD9708D907A4F6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:F5AE587D0B3A6ADAB7EAB60B1AD9708D907A4F6F
 magnet:?xt=urn:btih:4FA7706F6CD61B66710C04661386324CA52A410D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ WinRAR - один из самых известных архиваторов. Т�
 magnet:?xt=urn:btih:60E5C0794FBFCD3F59EA5FB4DD105B24AD4CD4EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:60E5C0794FBFCD3F59EA5FB4DD105B24AD4CD4EB
 ```bash
 magnet:?xt=urn:btih:7DEF587710EA69943C2F476F934C472A924E55AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Procol Harum - 12 Studio Albums, 1 Live, 17 Compilation (1967 - 2019) 97 CD [FLA
 magnet:?xt=urn:btih:914B9B2D91385D57F1B314599DF473123A71E7F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:914B9B2D91385D57F1B314599DF473123A71E7F4
 ```bash
 magnet:?xt=urn:btih:BE3B0C6347738EFD1EC4EF71002A34A7616B8643
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Unlocker 1.0.1 Portable by Eject [Ru]
 magnet:?xt=urn:btih:238A61E5244A01231B9B6A583F6850A507FB54A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ OCCT 12.1.17 Final Portable [En]
 ```bash
 magnet:?xt=urn:btih:54349398AE87C911396A345C6092D6A9EC925439
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:54349398AE87C911396A345C6092D6A9EC925439
 magnet:?xt=urn:btih:11E7B48657CE0FCA6DFC72112AA62883E09C0909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Easy Voice Recorder Pro ваш ежедневный компаньон для з
 ```bash
 magnet:?xt=urn:btih:49ACB896D0D36D3DC76088B231E49C1F9EE834BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Urusei Yatsura (2022) | Lum, the Invader Girl | Несносные пришел�
 ```bash
 magnet:?xt=urn:btih:1440E1DD9798D8BAFF50D3F00625021D5093F01F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:1440E1DD9798D8BAFF50D3F00625021D5093F01F
 magnet:?xt=urn:btih:8C2426D6D3F802F44D6C0F4FA3C54F261487DA23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Living Legends 11: The Red Trace (2024) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:DD0FF5F26451D1CC90EDF3C88D9CECBCB507C785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:DD0FF5F26451D1CC90EDF3C88D9CECBCB507C785
 magnet:?xt=urn:btih:62C0B8C7E281BD07FDAAFD1573C2200EB335D159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:62C0B8C7E281BD07FDAAFD1573C2200EB335D159
 ```bash
 magnet:?xt=urn:btih:10ADDE911A9AC176CDD68EEC6DEE64E8416A5609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

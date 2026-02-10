@@ -22,6 +22,8 @@ VA - Fireplace Chill, Vol. 5 (2020) [AAC|~322 Kbps] <Lounge, Chill Out, Downtemp
 magnet:?xt=urn:btih:AA4EB42F4B86108771ACF6788A48528D797E2215
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ PCalc (   Читать дальше...   )Тип издания: macOS Software
 ```bash
 magnet:?xt=urn:btih:E4BB98F0A76FF2F45D0ACFB02D6F4E6E8370EBB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Mac FoneLab for Android восстановление данных мобильн
 magnet:?xt=urn:btih:190621DC03C10AD0EE9495BC507C04F5CFD185CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Araxis Merge – это обязательное приложение для р�
 ```bash
 magnet:?xt=urn:btih:685DCA8EE012228B470D962D4F8FDFCD31F02F7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Trash - Burnin' Rock (1985) [FLAC|Lossless|image + .cue] <Hard Rock>
 magnet:?xt=urn:btih:526A09B2161280C5E91633EF93EF145A0995C958
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:526A09B2161280C5E91633EF93EF145A0995C958
 magnet:?xt=urn:btih:D132FB6AF069417F178FFA8466867739B711C576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ GraphicConverter 11 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:07A628AD3C573CABA2EDA64587955ECC4A75D14E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Sarah Vaughan & Woody Herman - On The Radio: The 1963 'Live' Guard Sessions (200
 magnet:?xt=urn:btih:ECDD0BA38768F8929939321F6D48317D2E9BCF7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Microsoft .Net Framework 14.09.22 RePack by xetrin [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E1E427B524B097BA3ECB39ADF355BFC1E0F0CC5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ Caro Emerald - The Shocking Miss Emerald (Acoustic Sessions) (2013) [AAC|~301 Kb
 magnet:?xt=urn:btih:FBBCBE5BE88CFE3EAC4506D7CAFD0C14E5FEA8A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ VA - Los Angeles Beach Lounge, Vol. 2 (2018) [AAC|~335 Kbps] <Chill Out, Lounge,
 ```bash
 magnet:?xt=urn:btih:42E4D7A1BBAB450ADFEFCA1564B11657A09603E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ Dan Cummins - The New World (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Ro
 magnet:?xt=urn:btih:B6EF0621A35CAB8F11699B2A38F3399819D0E113
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:B6EF0621A35CAB8F11699B2A38F3399819D0E113
 ```bash
 magnet:?xt=urn:btih:22B610D338B46C55EB2601361AA71F055F9D7096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +382,8 @@ Adversvm - Dysangelion (2019) [FLAC|Lossless|WEB-DL|tracks] <Funeral Doom Metal>
 magnet:?xt=urn:btih:0D1A8038C4FC2B8F9C777D4A0B6900135E42805D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ magnet:?xt=urn:btih:0D1A8038C4FC2B8F9C777D4A0B6900135E42805D
 magnet:?xt=urn:btih:D0DE5592BF2B6C5E2000BCC8EBBBDDB3825BFB98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-
 ```bash
 magnet:?xt=urn:btih:3B6CDD849D52457649103C0ABBC15F5555EB12F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ VA - Electro Swing New Generation 01 by Bart&Baker: The Best New Electro Swing M
 magnet:?xt=urn:btih:6827BF22540BD7F4968422C33191FB104F1EE902
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ VA - Spiritual Spa, Vol. 1 (2021) [AAC|~314 Kbps] <Downtempo, Balearic, Chill Ou
 ```bash
 magnet:?xt=urn:btih:3E6C1645F6C5D0C046DA5C3D51DCCA354B0C89BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +523,8 @@ Paula Abdul - The Greatest (1998) [OGG Vorbis|480 Kbps] <Pop>
 magnet:?xt=urn:btih:D8BB63335BB3E4CDAAB9611BCF79F49E2F4F190E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +548,8 @@ magnet:?xt=urn:btih:D8BB63335BB3E4CDAAB9611BCF79F49E2F4F190E
 ```bash
 magnet:?xt=urn:btih:865F686A3CC7082F21F164E79087C893E5FEC5ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +578,8 @@ VA - Striking Tunes Vol 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:51C35DC2D1288C667E643D5357674AB768A3C8DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +606,8 @@ Bob Brookmeyer - The Dual Role Of Bob Brookmeyer (1954, 1955) 2014, Prestige [FL
 ```bash
 magnet:?xt=urn:btih:00CF03A264A04767C576D83CF543BFC1A8FE3C08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +636,8 @@ magnet:?xt=urn:btih:00CF03A264A04767C576D83CF543BFC1A8FE3C08
 magnet:?xt=urn:btih:18459ED6E23F9DF7049C53CDE3EABA7EADA6A4D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +664,8 @@ Dorian Gray - Journey Of Mind (1998) [FLAC|Lossless|image + .cue] <Melodic Heavy
 ```bash
 magnet:?xt=urn:btih:0740CABF63A1FA8B8D4AAC1C6F1493058CDBA13B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +694,8 @@ Chillhop Guitar - Lo-fi Beat & Smooth Guitar (2020) [AAC|~307 Kbps] <Chill Out, 
 magnet:?xt=urn:btih:C6C69D8F28175EABE42F93FC80544AAC89892C82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +719,8 @@ Graphic Inspector предоставляет исчерпывающую инфо
 ```bash
 magnet:?xt=urn:btih:45E8BB08236ADAB25520D336A50A4E8E7934E88D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

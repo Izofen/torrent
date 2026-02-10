@@ -22,6 +22,8 @@ Shakira - Las Mujeres Ya No Lloran (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <P
 magnet:?xt=urn:btih:D6E3EFAB32BFF09618CEB0B2E2C88606CB0AE9A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ BA-1 - это синтезатор аналогового моделирован
 ```bash
 magnet:?xt=urn:btih:7B758F59434DC9C99D21F781EB9418E1C81EA9F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:7B758F59434DC9C99D21F781EB9418E1C81EA9F1
 magnet:?xt=urn:btih:6CC9132FDCBB54C20492ADED48C7FC179BC7A1E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:6CC9132FDCBB54C20492ADED48C7FC179BC7A1E8
 magnet:?xt=urn:btih:7059BDBA47A3905F200AC6CD9579645FFF3A7038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:7059BDBA47A3905F200AC6CD9579645FFF3A7038
 ```bash
 magnet:?xt=urn:btih:82939FD18192B106AF1FC8608E11BE2D26859762
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ A4 Black Victory Of Death(   Читать дальше...   )Жанр: Black Met
 magnet:?xt=urn:btih:08EA6D3000AA85465EB42CD484FF4C06C622749A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ Carnival Of Dreams - Des Kaisers Alte Kleider (2024) [FLAC 24/44.1|Lossless|WEB-
 magnet:?xt=urn:btih:018BD9CEF9BA0CC15729D7BB1447F36345B34F42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:018BD9CEF9BA0CC15729D7BB1447F36345B34F42
 ```bash
 magnet:?xt=urn:btih:19C8D734616CF57EF3655F8ECF7853D3E0C5BEC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ Cruzh - The Jungle Revolution (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:9906C5D6C61F88C254289881A764A23D765C8BCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ Brodequin - Harbinger of Woe (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death 
 ```bash
 magnet:?xt=urn:btih:5DBE888B371162BE5834E6CB62A6382ABC02B457
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ Don't Drop the Sword - Path to Eternity (2017) [FLAC|Lossless|WEB-DL|tracks] <Po
 magnet:?xt=urn:btih:D58CA22B20F026A4CDA07103EF945151F462F664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ Brodequin - Harbinger of Woe (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Brutal 
 ```bash
 magnet:?xt=urn:btih:0F2332204E394E3B46DD7257DD8016BDFB9FEDD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +359,8 @@ Alestorm - Voyage of the Dead Marauder (2024) EP [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:627C9FCBBC01A7DB06191FB1BBA25FEE377CD15A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +387,8 @@ Alestorm - Voyage of the Dead Marauder (2024) EP [FLAC 24/48|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:4921416CE29AE38BDCC5D50BB41DAAC3D2AA9616
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +417,8 @@ Hammer King - König und Kaiser (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 magnet:?xt=urn:btih:E345C7D08B04980F04CB1CC411661C144E5BE561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +445,8 @@ Samson - Head On (1980) Reissue, 2004, Earmark [FLAC|24/96|image + .cue|Vinyl-Ri
 ```bash
 magnet:?xt=urn:btih:9A064CE7859AD6D760B950A268A1699C2EA4C3DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +475,8 @@ A4 Blood Lust(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, 
 magnet:?xt=urn:btih:8F05F6041EB18C64CD76CD47F8D8CCAC34CBB837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +500,8 @@ magnet:?xt=urn:btih:8F05F6041EB18C64CD76CD47F8D8CCAC34CBB837
 ```bash
 magnet:?xt=urn:btih:44FDC2F6DAC0A94C1216C00F55C937A7A930E100
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +530,8 @@ magnet:?xt=urn:btih:44FDC2F6DAC0A94C1216C00F55C937A7A930E100
 magnet:?xt=urn:btih:07FE918F54092368419075F0BAE1FC992E427C29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +555,8 @@ magnet:?xt=urn:btih:07FE918F54092368419075F0BAE1FC992E427C29
 ```bash
 magnet:?xt=urn:btih:669B6445436C108629B53AF8E2056307BE017F01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +585,8 @@ Cruzh - The Jungle Revolution (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock
 magnet:?xt=urn:btih:7636DDC3AAC9B0604B41C7FB9AD7F57D5CB07B23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +613,8 @@ Misanthrope - ΑXΩ (Le Magistère De L'Abnégation) (2017) [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:0BD9FE3FF0EA01EDB863D0E08AAAF1725B155EFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +643,8 @@ Morta Skuld - Creation Undone (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 magnet:?xt=urn:btih:D9B0DF4AAAB57B7A7CFB18067FA3946E2EF6E494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +671,8 @@ Zoot Sims - In Copenhagen (1978) 2007, Storyville Records [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:FC28A788F4041E2A5016A403BF00EB76E257ECDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +701,8 @@ Benny Golson - Quartet "Live" (1989) 1991, Dreyfus Jazz [FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:B9B211D364070045872A06738E6F69DB250D358B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -679,6 +729,8 @@ Benny Golson - California Message (1980) 1995, Timeless [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:711EB3C1AEC7D730F8A4C45E79846D3848BEC847
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

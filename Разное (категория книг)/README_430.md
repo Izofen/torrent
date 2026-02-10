@@ -1,3 +1,29 @@
+###  Публикация: 908595   (632119) от 15.06.2015
+
+Лайонел Корбетт | Священный котел. Психотерапия как духовная практика (2014) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632119.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основная идея книги заключается в том, что процесс психотерапии является по-настоящему духовной работой как для терапевта, так и для пациента. Психика становится пространством выражения сакрального и формирует особое трансперсональное поле, внутри которого осуществляется терапевтическая работа. В этой книге описаны различные варианты того, как чувствительность к (   Читать дальше...   )Жанр: Психотерапия и консультирование, Зарубежная психологияПеревод: В. И. ФроловФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BCACEEF26164F39D85523C39D33504E39BE8C10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908260   (632123) от 15.06.2015
 
 Николай Покровский и др. | Иконы России (1909 (2009)) [FB2, EPUB]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:8B31A8DFEA4F3F66D381F90F895484E7156A050F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:8B31A8DFEA4F3F66D381F90F895484E7156A050F
 magnet:?xt=urn:btih:0CF42A544D2DECF22A144993A671DBB8F70F097B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:0CF42A544D2DECF22A144993A671DBB8F70F097B
 ```bash
 magnet:?xt=urn:btih:1D77B17036FB642D5901891B370AF825792DC9D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:1D77B17036FB642D5901891B370AF825792DC9D1
 magnet:?xt=urn:btih:76B4EC46372F036A3912B0C082519B110263C690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:76B4EC46372F036A3912B0C082519B110263C690
 ```bash
 magnet:?xt=urn:btih:A6D8DCA6C5C38F0410E392901515BBDC2C9CD7AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:A6D8DCA6C5C38F0410E392901515BBDC2C9CD7AD
 magnet:?xt=urn:btih:A0441A8476DD9FCAD8EDD2AF8E2AA4148BE51D3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:A0441A8476DD9FCAD8EDD2AF8E2AA4148BE51D3B
 ```bash
 magnet:?xt=urn:btih:5847922E918B6331093CEBDCEE736441781C4ADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:5847922E918B6331093CEBDCEE736441781C4ADB
 magnet:?xt=urn:btih:58C5CAF88F8DAE016F44D6282FFC5CA160BED4E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:58C5CAF88F8DAE016F44D6282FFC5CA160BED4E5
 ```bash
 magnet:?xt=urn:btih:61F53112D4A584820C5ED798081A1B13A52D7272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:61F53112D4A584820C5ED798081A1B13A52D7272
 magnet:?xt=urn:btih:F01DEF5A647AF0427D93CF6D83F73C5FBF83FD7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:F01DEF5A647AF0427D93CF6D83F73C5FBF83FD7E
 ```bash
 magnet:?xt=urn:btih:5CDD7901A0BCCC5442DA94CA3000BCAF5CE5C539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:5CDD7901A0BCCC5442DA94CA3000BCAF5CE5C539
 magnet:?xt=urn:btih:A40D0876A4601CECD8AF356FE325FD931DFA1715
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:A40D0876A4601CECD8AF356FE325FD931DFA1715
 magnet:?xt=urn:btih:A429D2CFBD46432E4B3D0710A783CC4BFBE6784C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:A429D2CFBD46432E4B3D0710A783CC4BFBE6784C
 ```bash
 magnet:?xt=urn:btih:C8B5226AA955F9CA7273BD1213F492FBA55B85AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:C8B5226AA955F9CA7273BD1213F492FBA55B85AD
 magnet:?xt=urn:btih:937EBA3FC3F60D08A3B6A1FA270A01615C26D884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:937EBA3FC3F60D08A3B6A1FA270A01615C26D884
 ```bash
 magnet:?xt=urn:btih:0D7320DAB4287507A184FBEBE3A89EF2011C77E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:0D7320DAB4287507A184FBEBE3A89EF2011C77E2
 magnet:?xt=urn:btih:310518A57906D9F4231F8074D89F837900A4DD62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:310518A57906D9F4231F8074D89F837900A4DD62
 ```bash
 magnet:?xt=urn:btih:F6C87EF9BFBC3E93052A3D724DD065CEF28FC414
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:F6C87EF9BFBC3E93052A3D724DD065CEF28FC414
 ```bash
 magnet:?xt=urn:btih:27F4B89C4DD85B1EA8EA5DD931B8562BC99EBFA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:27F4B89C4DD85B1EA8EA5DD931B8562BC99EBFA3
 magnet:?xt=urn:btih:6E2DE80B659FEFAF13E114B3BE74AF7A60E655E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:6E2DE80B659FEFAF13E114B3BE74AF7A60E655E2
 ```bash
 magnet:?xt=urn:btih:4E7E6E606740AC0EE4AA466532E0CCE268F2280A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:4E7E6E606740AC0EE4AA466532E0CCE268F2280A
 magnet:?xt=urn:btih:3044ACCE8CA302819526151851EE2B6401603B50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:3044ACCE8CA302819526151851EE2B6401603B50
 ```bash
 magnet:?xt=urn:btih:8F30A08356B2D93F1925670E4C91AA1E2FA2509B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +659,8 @@ magnet:?xt=urn:btih:8F30A08356B2D93F1925670E4C91AA1E2FA2509B
 magnet:?xt=urn:btih:FB42192C7CD836ACFEED37C00BB4A262D44FA980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,29 +686,7 @@ magnet:?xt=urn:btih:FB42192C7CD836ACFEED37C00BB4A262D44FA980
 magnet:?xt=urn:btih:50E78F2BA71628E0C2FCCAF580B5F26F6F20D61F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293743   (633489) от 05.04.2019
-
-Джон Форсайт, Георг Эйферт | Тревога приходит и уходит. 52 способа обрести душевное спокойствие (2019) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый человек переживал состояние тревожности. Вы можете почувствовать тревогу в момент пробуждения утром, по дороге на работу, на вечеринке или перед публичным выступлением. А если тревога мешает вам засыпать, это приводит к усталости и стрессу, что еще больше ее усиливает. Короче говоря, тревога может захватить управление вашей жизнью, если вы ей это позволите. (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF48012F3AA3DCCE4E2BCE62F94E7369D52420DB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

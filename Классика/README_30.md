@@ -22,6 +22,8 @@ VA - Classical Chill: Piano (2019) [MP3|320 Kbps] <Classical, Piano>
 magnet:?xt=urn:btih:9ECA9FD68FB321FB06DEA7E62B71E50BE87C44A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Wolfgang Amadeus Mozart – Serenade K.375, Harmomienmusik from Zauberfloete: Na
 ```bash
 magnet:?xt=urn:btih:526753CE70952B3314CBD2FFF9DA963E06253FD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -88,6 +92,8 @@ Henry Purcell – Songs of Welcome and Farewell: Suzie Leblanc, Barbara Borden e
 magnet:?xt=urn:btih:1B75BBF97B23FB35C40F7DEDFD0C0CA4E09EA0AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +120,8 @@ Hesperion XXI, Jordi Savall, Manfredo Kraemer, Rolf Lislevand, Michael Behringer
 ```bash
 magnet:?xt=urn:btih:4670EFADCEAA58F0D7AEDE27D6C001058192D890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +150,8 @@ Barry Wordsworth & Capella Istropolitana - Mozart: Overtures (1988) Naxos, 1989 
 magnet:?xt=urn:btih:2BFBC1DF51D597A24C3E6589E7AFB97EF9779416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +178,8 @@ Johann Sebastian Bach - Cafe Zimmermann vol. I-VI, autentic, 6CD (2001-2011) [Wa
 ```bash
 magnet:?xt=urn:btih:5CA7624B01555F7F4E1B58453BACB5152413415D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +209,8 @@ Piccolo (Flautino) Concerto, for piccolo (or recorder/flute), strings & continuo
 magnet:?xt=urn:btih:DE4D36B8049DA231F1BFC4683D844F5E28D053B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +237,8 @@ Peter Szuts, Alfredo Bernardini, Paolo Grazzi, Concerto Armonico - Tomaso Albino
 ```bash
 magnet:?xt=urn:btih:AB2EAAB96617706F28A23B26EAFE85E4CC1ABB51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +267,8 @@ Seven Bagatelles, Op. 33
 magnet:?xt=urn:btih:8EC0A2B5F33C09957FC3CFDE453CD5BFE5B8F601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +295,8 @@ Hughes De Courson - Mozart In Egypt 2 (2005) [FLAC|Lossless|image + .cue] <Class
 ```bash
 magnet:?xt=urn:btih:BCD37B17D388F46773A3F41B070575DA298D8D69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +329,8 @@ Concerto No. 1 en si bemol majeur/in B fiat major/B-dur, KV.207 1964
 magnet:?xt=urn:btih:EB527F9908C4A0676AEEDB68DAC2C41B231AB285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +359,8 @@ Johann Sebastian Bach - The 6 Motets: Nikolaus Harnoncourt (1989) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:91D5CF54A45E9AA7714777040B2767BFE4F92E42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +395,8 @@ VA - Guitar Moments : Cavatina And Other Classical Guitar Favourites (2004) [FLA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +427,8 @@ Gioachino Rossini–Famous Overtures: Academy of St Martin in the Fields conduct
 ```bash
 magnet:?xt=urn:btih:A9B4597A748161DA99FB61E8B6B6BCE16A8E2A8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +463,8 @@ Credo
 magnet:?xt=urn:btih:133E1E2F0841FE94766ECD9042B7826A14DF210B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +491,8 @@ The London Promenade Orchestra - Johann Strauss' Greatest Hits (1992) Compilatio
 ```bash
 magnet:?xt=urn:btih:8973DD276C970F2932B4267411CAC5E92D50C10D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +521,8 @@ Daniel Harding, Deutsche Kammerphilharmonie – Beethoven: Overtures (1999) [FLA
 magnet:?xt=urn:btih:96B41630A3A193573893EA9AA00DFB3E3C9F478F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +549,8 @@ I. Folias Antiguas
 ```bash
 magnet:?xt=urn:btih:E91A8209237945B2AF35BA8C203D49FA1F5389FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +579,8 @@ in F major, H. 408, Wq. 46
 magnet:?xt=urn:btih:6532017673E436B4EF36ED1B77E1DFF29B08CE0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +607,8 @@ Pieter Wispelwey, Florilegium - Vivaldi: Vivaldi Concerti (1997) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:7CC3E6F032A24FC0613798504551BD8B7683ED3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +637,8 @@ Renaud Capucon, Daniel Harding - Le Boeuf Sur Le Toit: French Works for Violin &
 magnet:?xt=urn:btih:07AA01F4112CD74A49D48086926C59D7D2B2AFA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +665,8 @@ Helene Schmitt, Jorg-Andreas Botticher, Karl-Ernst Schroder, David Sinclair - Ig
 ```bash
 magnet:?xt=urn:btih:98624FE1D5CBE1F82B64A22CFE01F1961D222766
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +695,8 @@ Maria Grinberg - Beethoven: Piano Sonatas (vol 1,2) 1968 (2 Альбома) [FLA
 magnet:?xt=urn:btih:73ED975BA8B5FF55094FEC6AABD5A77290EC8C86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -677,6 +723,8 @@ Howard Shelley & Tasmanian Symphony Orchestra - The Romantic Piano Concerto, Vol
 ```bash
 magnet:?xt=urn:btih:65F8E745D4E60088A9E8F29BBA4DD9622C300533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -705,6 +753,8 @@ Vanessa Perez - Chopin: The Complete Preludes (2012) [MP3|320 Kbps] <Classical, 
 magnet:?xt=urn:btih:B81F423C59EF957BD0ADB7BD4CD714EC5A111014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -730,6 +780,8 @@ VA - Top 30 Most Popular Wedding Classics (2018) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:A77F2A139B735AB05E2E38260B60132AF0CD957F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

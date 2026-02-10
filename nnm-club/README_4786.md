@@ -19,6 +19,8 @@ Chimeras 10: The Price of Greed / Химеры 10. Цена алчности (20
 magnet:?xt=urn:btih:35003BD14B52CB63C60BF50D7F61ED2CFB6A86A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:35003BD14B52CB63C60BF50D7F61ED2CFB6A86A8
 magnet:?xt=urn:btih:42C60E4763533AFE9ECEDDFC2C9767697E99594C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ TunePat Apple Music Converter для Mac - это мощный инструме�
 ```bash
 magnet:?xt=urn:btih:E5DCBA23DC2C2936D1E3A5DD6EBB0EBD0F544835
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:E5DCBA23DC2C2936D1E3A5DD6EBB0EBD0F544835
 magnet:?xt=urn:btih:C8FB79B2B3A76C0C42965E15BC5162377D85C1E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:C8FB79B2B3A76C0C42965E15BC5162377D85C1E2
 ```bash
 magnet:?xt=urn:btih:069FF84FAB53D732B72FB44A70DBF05317A694CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:069FF84FAB53D732B72FB44A70DBF05317A694CC
 magnet:?xt=urn:btih:B6B3BFEF0EAC03E692F456C6F8865C4F347A4B55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ UPgrade – журнал о компьютерах и компьютерных �
 magnet:?xt=urn:btih:0FEA7E00E3AD20D6640224B35532EC0E219D9A0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:0FEA7E00E3AD20D6640224B35532EC0E219D9A0D
 ```bash
 magnet:?xt=urn:btih:8D794AC830EF384611EE0A1CEC46485852700E6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:8D794AC830EF384611EE0A1CEC46485852700E6F
 magnet:?xt=urn:btih:81497F502970B69E536FD61DDC28BF8CE67BAD84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Playboy (Плейбой) — имя, ставшее легендой. Попул
 ```bash
 magnet:?xt=urn:btih:2FB1B02581046B4B37FC06BDD728EE3EDAD2F837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:2FB1B02581046B4B37FC06BDD728EE3EDAD2F837
 ```bash
 magnet:?xt=urn:btih:25C37B72F07E3AF945B87DA182503C3796E7EC52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:25C37B72F07E3AF945B87DA182503C3796E7EC52
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ ConceptDraw Office – пакет приложений для бизнес-пр�
 ```bash
 magnet:?xt=urn:btih:80CF1942BC32B9A7587B0493A62C34E481B0C185
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:80CF1942BC32B9A7587B0493A62C34E481B0C185
 magnet:?xt=urn:btih:9B0F736974B96CA98550C10E819530D1CA2D9C16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:9B0F736974B96CA98550C10E819530D1CA2D9C16
 ```bash
 magnet:?xt=urn:btih:DB3A3A0A20FCD5ABD0019D20F43646D96FDC2382
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ Doug Westberg - I Get the Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 magnet:?xt=urn:btih:73AE13BDB72C5B9FA2F5EECF4CF549A67ADBDCCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:73AE13BDB72C5B9FA2F5EECF4CF549A67ADBDCCE
 ```bash
 magnet:?xt=urn:btih:B6E9EB630AE8723E89D8871D4ED5394FC3BD77E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:B6E9EB630AE8723E89D8871D4ED5394FC3BD77E6
 magnet:?xt=urn:btih:5A3F7986B46290B319A138B4C0F89CDB0E6B2C96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:5A3F7986B46290B319A138B4C0F89CDB0E6B2C96
 ```bash
 magnet:?xt=urn:btih:00A56A006D1E5C7519D81E7DE41B08D23CDDF5F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:00A56A006D1E5C7519D81E7DE41B08D23CDDF5F1
 magnet:?xt=urn:btih:029F05724C91543004D0A630144BCB93FFBBBE0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ RasterStitch - утилита для соединения (сшивания) н�
 ```bash
 magnet:?xt=urn:btih:C8AEDCC6402EBFE86EB19B08FA3D7CE2DBD00713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ Gary Batchelor - I Am The Eye (2020) [MP3|320 Kbps] <Progressive Rock, Progressi
 magnet:?xt=urn:btih:7BD195AB9850192E7B7A64F4F1456940CC57FD51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:7BD195AB9850192E7B7A64F4F1456940CC57FD51
 ```bash
 magnet:?xt=urn:btih:3C5EF260E50FB8C24288C85EA290970A9FAE07B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ Ashampoo Burning Studio 20.0.2.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:0BAA831FFAB1D358C3EDE4972B3DDF6519B47106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:0BAA831FFAB1D358C3EDE4972B3DDF6519B47106
 magnet:?xt=urn:btih:8E42CC1D9ECC022A76B3D7EB43E62327DD6A51D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:8E42CC1D9ECC022A76B3D7EB43E62327DD6A51D2
 ```bash
 magnet:?xt=urn:btih:8636D22B29692FD04092C8120914510B0CA7A86F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

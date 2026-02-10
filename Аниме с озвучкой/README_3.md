@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:076482658A2FE45C1C43C81CBE4BF8288E431DDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Gosick | Готика [2011, TV, 24 из 24] BDRip 1080p HEVC 10-bit raw+rus
 ```bash
 magnet:?xt=urn:btih:C6985E1B4F40D0B62436B41D2336F7C3EAF725BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Akuyaku Reijou Tensei Ojisan | From Bureaucrat to Villainess | Пeрeрoждeн�
 magnet:?xt=urn:btih:993608717DB755347FAD1A2F577000CEE02DF1D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:993608717DB755347FAD1A2F577000CEE02DF1D5
 ```bash
 magnet:?xt=urn:btih:CEA64D63D91320CCD2D52EF72FE40B00F72ADE09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:CEA64D63D91320CCD2D52EF72FE40B00F72ADE09
 magnet:?xt=urn:btih:8D36BC9B46021A9F462BE00846CB120B58767690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:8D36BC9B46021A9F462BE00846CB120B58767690
 ```bash
 magnet:?xt=urn:btih:CC7F2D1F1DE047654CB5297AB2921628CA90D6FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:CC7F2D1F1DE047654CB5297AB2921628CA90D6FF
 magnet:?xt=urn:btih:D68C7235C6B3B5A129072414A3C1668AB6E6FFDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:D68C7235C6B3B5A129072414A3C1668AB6E6FFDD
 ```bash
 magnet:?xt=urn:btih:956A84B1E3C9D6F6FB87E18B06E14B177811550F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:956A84B1E3C9D6F6FB87E18B06E14B177811550F
 magnet:?xt=urn:btih:CFC1A7DAC30EB30B7D342E3427875EA706474EB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:CFC1A7DAC30EB30B7D342E3427875EA706474EB4
 ```bash
 magnet:?xt=urn:btih:6522CE85AE8B98E290808F0AA4AC2BB360D4C60F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Shokei Shoujo no Virgin Road | The Executioner and Her Way of Life | Жизнь 
 magnet:?xt=urn:btih:37136546A8F0998DB5F714A2710FB7326C16454A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Isekai Shikkaku | No Longer Allowed in Another World | Дисквалифици�
 ```bash
 magnet:?xt=urn:btih:5481012C8DAAF1DA3362F2AF564997C5DAE5325E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Class no Daikirai na Joshi to Kekkon Suru Koto ni Natta | Kura-Kon | Я жени
 magnet:?xt=urn:btih:118DC43FF7DAD5FEC4B99126FC901C7F8C230401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Salaryman ga Isekai ni Ittara Shitennou ni Natta Hanashi | Истoрия o сл�
 magnet:?xt=urn:btih:D6C0A4EEDE487C0A9E6A4F4197C8620138D24460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:D6C0A4EEDE487C0A9E6A4F4197C8620138D24460
 ```bash
 magnet:?xt=urn:btih:B28FBF3E0E4B65A254CCDC3626D4BB58719E807D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:B28FBF3E0E4B65A254CCDC3626D4BB58719E807D
 magnet:?xt=urn:btih:AB9B4FD57EC3B64AFA7DF4544C4F75657A4DBA41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Genjitsu Shugi Yuusha no Oukoku Saikenki 2 | How a Realist Hero Rebuilt the King
 ```bash
 magnet:?xt=urn:btih:60F3B75622161EAD3484C834BF59BB057EA4ABE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Genjitsu Shugi Yuusha no Oukoku Saikenki | How a Realist Hero Rebuilt the Kingdo
 magnet:?xt=urn:btih:F89C10D63AC46EF8EF456EB6003CA3345DEB8989
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:F89C10D63AC46EF8EF456EB6003CA3345DEB8989
 ```bash
 magnet:?xt=urn:btih:7860E5040DD3CEBD8A0390901C2AC91EF8F87CCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:7860E5040DD3CEBD8A0390901C2AC91EF8F87CCC
 ```bash
 magnet:?xt=urn:btih:C2CD565641591B5AE906FF2847BBE8D8235CD0BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ Beyblade Burst Super King | Beyblade Burst Sparking | Бейблэйд Взры�
 magnet:?xt=urn:btih:1EE78EA12019EAB036AA40B51FF1799EFB2494F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Make Heroine ga Oosugiru! | Makeine: Too Many Losing Heroines! | Слишком 
 magnet:?xt=urn:btih:2BA13C7A9821FA5EB491873A1EC7170A168A10EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Higeki no Genkyou to Naru Saikyou Gedou Last Boss Joou wa Tami no Tame ni Tsukus
 ```bash
 magnet:?xt=urn:btih:79593B0723058AB5F32CBAB27A696B53A13E3897
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ Gekijouban Spy x Family Code: White | Spy x Family Code: White | Семья шп
 magnet:?xt=urn:btih:446E888566C87A63E7794CC206F2F7F32BEBC070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ Isekai Shoukan wa Nidome Desu | Summoned to Another World for a Second Time | П
 magnet:?xt=urn:btih:92D9C3F077CA2831C0E20CDBAA1888D425C3D0AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Kikansha no Mahou wa Tokubetsu Desu | A Returner's Magic Should Be Special | М�
 ```bash
 magnet:?xt=urn:btih:F58BB53CC91E8BDBCD8A0B08A41B9D91A2A2F34F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

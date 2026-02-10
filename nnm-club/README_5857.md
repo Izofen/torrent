@@ -19,6 +19,8 @@ WinX HD Video Converter Deluxe - профессиональное приложе
 magnet:?xt=urn:btih:76D9E996D2E80F87B7072AC287B5E54883C71EED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ OnionFruit Connect 2022.1123 [En]
 ```bash
 magnet:?xt=urn:btih:2AE4590A9DB9AFFB37B5167058E0BF12952942C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Desktop Calendar – бесплатный календарь рабочего с
 magnet:?xt=urn:btih:5EA0BA64961E489279E7872C8A6D563ABC766332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ tinyCam Monitor PRO - удобное приложение для работы с
 ```bash
 magnet:?xt=urn:btih:2C2404290AF8F82D249ED96D763186AC172D6588
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Restless Spirit - Afterimage (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal,
 magnet:?xt=urn:btih:9A66CF1EB359FE4A23869ACD00F0AED524B6EF5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:9A66CF1EB359FE4A23869ACD00F0AED524B6EF5A
 ```bash
 magnet:?xt=urn:btih:1ACCEBBEB28F8FEC50612E5A722CD440E1627088
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ A4 Hardbreaks(   Читать дальше...   )Жанр: Heavy MetalПродо
 magnet:?xt=urn:btih:78D5BDD0DA815AC715F26E84E79DD415E55EFE73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ StopUpdates10 – бесплатная утилита для Windows 10 и Windo
 ```bash
 magnet:?xt=urn:btih:BD978B3A380758345B9680AFDB94EF0A2494E52B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:BD978B3A380758345B9680AFDB94EF0A2494E52B
 magnet:?xt=urn:btih:1DE44ED82CD21913A369962BE049207F11B6FDDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:1DE44ED82CD21913A369962BE049207F11B6FDDA
 magnet:?xt=urn:btih:4A28E3B9DA9843B78303F535C0D524BBBB10E478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:4A28E3B9DA9843B78303F535C0D524BBBB10E478
 ```bash
 magnet:?xt=urn:btih:F25954CD342C1911F305AE42A50C506FB5837F4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:F25954CD342C1911F305AE42A50C506FB5837F4B
 magnet:?xt=urn:btih:D9DF7AD03216AAB4149357E6ED9807B71173487A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ A4 Icecold(   Читать дальше...   )Жанр: Heavy MetalПродол�
 magnet:?xt=urn:btih:09FA6A4EB2F2B5EED9F5AE6DAC3534E56D07C001
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:09FA6A4EB2F2B5EED9F5AE6DAC3534E56D07C001
 magnet:?xt=urn:btih:8A564D7D35EB9F2C2EDB030C64E5DC0E083427E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:8A564D7D35EB9F2C2EDB030C64E5DC0E083427E9
 ```bash
 magnet:?xt=urn:btih:2C6C406BD4BBCBB69CED0362E962FE7629D6C811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ VA - Громкие новинки Декабря (2020) [MP3|320 Kbps] <Pop, Da
 magnet:?xt=urn:btih:29153A9843C8D51C1199CE272506EC70840674BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ Hanged Ghost - Knowledge of the Occult (2011) [FLAC|Lossless|image + .cue] <Doom
 ```bash
 magnet:?xt=urn:btih:BE8F2D336A4974FFE704928E2B756C0BFA445B89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ Prong - State Of Emergency (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal / 
 magnet:?xt=urn:btih:29BB96C753DE279FD48075ECD6D52A8CB4643CF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ Christmas Stories 9: The Christmas Tree Forest (2020) [En] (1.0) Unofficial [Col
 ```bash
 magnet:?xt=urn:btih:F4C0E2623A04D0F590643A80DBE850665C7E9A16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ Office 2013-2021 C2R Install 7.4.9 b03 ++ x64 Portable by Ratiborus [Multi/Ru]
 magnet:?xt=urn:btih:70FB012D1263C63274E5716AE9133C99B1A255E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ PDF Expert - редактор  PDF
 ```bash
 magnet:?xt=urn:btih:4E3A6513533E2629D02F0907CBA44DCE222DBB6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ Mob Rules - Among The Gods (2004) [FLAC|Lossless|image + .cue] <Melodic Power Me
 magnet:?xt=urn:btih:668B4C3A6CF01B5F0327C40A9A8B3E42EC8CFE37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:668B4C3A6CF01B5F0327C40A9A8B3E42EC8CFE37
 ```bash
 magnet:?xt=urn:btih:4F5FC7FB1B3B85B0D32FD31B3A2BD97690329580
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ Psychework - Spark of Hope (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:494DCF91F0EB687273D964F65E88D068F224CB84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ magnet:?xt=urn:btih:494DCF91F0EB687273D964F65E88D068F224CB84
 magnet:?xt=urn:btih:E997A4E930DFB106637720952C55E6C841FEC443
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ Revo Uninstaller Mobile - полезное приложение для любо�
 ```bash
 magnet:?xt=urn:btih:4A7A14660A00A7E1E0513E1A9ACC790DE00C3F1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

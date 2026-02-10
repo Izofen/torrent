@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1D98BB44FF426D234C2FCF78A030AF02C60DCCD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Accept - Humanoid (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:94DE49ED22E3DFDC2342DD2452017B8CC20045F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:94DE49ED22E3DFDC2342DD2452017B8CC20045F9
 ```bash
 magnet:?xt=urn:btih:FD449982EBF59C1FE88C3CCF5D788E4FB30F08F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ GeoGebra — мультиплатформенная программное об�
 magnet:?xt=urn:btih:59090EA2D6D0634928F74A475D626D44936558A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:59090EA2D6D0634928F74A475D626D44936558A8
 ```bash
 magnet:?xt=urn:btih:7A7270D8E692E64C72A31E112486DB47B8746F8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Stormborn - Zenith (2024) [MP3|320 Kbps] <Heavy, Power Metal>
 magnet:?xt=urn:btih:BBAB68A216D691908A26D89E9940FFCEC5D984B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Six By Six - Beyond Shadowland (2024) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:030707B32BBD02FFA625BED962EAE514D1FB3CA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Ethereal Flames - Myths And Legends Of Our Land (2024) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:44CC3363F5CBA76C96B95FF60C4DB22E10E2E8BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ Coal Chamber — ню-метал-группа из Лос-Анджелеса, о
 magnet:?xt=urn:btih:41B72A56C833363BEBE51953C32867257415C412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:41B72A56C833363BEBE51953C32867257415C412
 ```bash
 magnet:?xt=urn:btih:6D6777DDDB28B63D79A8ECFB9EACEC63F7959E8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ U.D.O. - Mastercutor (2007) Released, 2010, Night Of The Vinyl Dead Records [FLA
 magnet:?xt=urn:btih:5596CAD36DFEA7841F1C1279046B8553F04AF409
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:5596CAD36DFEA7841F1C1279046B8553F04AF409
 ```bash
 magnet:?xt=urn:btih:89A9ACD18FE708A319952306A09B831299988894
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +354,8 @@ Pectora - Twilight Knights (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:9CCF936FC00075EB66E7DE87171EAB434C7BC706
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ Kickin Valentina - Star Spangled Fist Fight (2024) [FLAC 24/44.1|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:3CC9A548AB99FBD221E694C222CD7069D555826C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +412,8 @@ Susannah McCorkle - I'll Take Romance (1992) Concord Jazz [FLAC|Lossless|tracks 
 magnet:?xt=urn:btih:AE9DB86A747A4FFDDAA55893976CAA253648213F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ magnet:?xt=urn:btih:AE9DB86A747A4FFDDAA55893976CAA253648213F
 magnet:?xt=urn:btih:652AA308C2002D91C465AF062460D438D2A50087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ magnet:?xt=urn:btih:652AA308C2002D91C465AF062460D438D2A50087
 ```bash
 magnet:?xt=urn:btih:6CEDE67054DF71962B662A4F2B53F434DDAAF480
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +495,8 @@ Gerald Albright - Giving Myself To You (1995) Atlantic Jazz [FLAC|Lossless|track
 magnet:?xt=urn:btih:FB08F7B1E92820F46F7EAD82760240C917AFA7DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +524,8 @@ Dave Eshelman's Jazz Garden Big Band - When Dreams Come True (1993) Sea Breeze J
 magnet:?xt=urn:btih:2F1ECC0BF5D32C56803C256A39A8F62C5DC67CF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +550,8 @@ magnet:?xt=urn:btih:2F1ECC0BF5D32C56803C256A39A8F62C5DC67CF5
 ```bash
 magnet:?xt=urn:btih:C5379A281B1D3A84B0E156B85155849708ED99A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +578,8 @@ magnet:?xt=urn:btih:C5379A281B1D3A84B0E156B85155849708ED99A0
 magnet:?xt=urn:btih:4C1F5F19E4C97AA2062D1BAA8FB1214172795D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ magnet:?xt=urn:btih:4C1F5F19E4C97AA2062D1BAA8FB1214172795D20
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ magnet:?xt=urn:btih:4C1F5F19E4C97AA2062D1BAA8FB1214172795D20
 ```bash
 magnet:?xt=urn:btih:4E27627CC8BE596DBB11B92A327110F078590BBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +659,8 @@ Accept - Humanoid (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:B99D0556F96D0F44A41DC4E73D6E92681F1BB20C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +685,8 @@ magnet:?xt=urn:btih:B99D0556F96D0F44A41DC4E73D6E92681F1BB20C
 magnet:?xt=urn:btih:AA5E191C44497C589CE1B0F2BCA63BDFF3EB0539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ magnet:?xt=urn:btih:AA5E191C44497C589CE1B0F2BCA63BDFF3EB0539
 ```bash
 magnet:?xt=urn:btih:DA00D17F763683C43408BB119EA5192CCAA8A2D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

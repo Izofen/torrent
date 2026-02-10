@@ -1,3 +1,29 @@
+###  Публикация: 1213160   (772934) от 15.03.2018
+
+Александр Сапегин | Три войны [Том 1-2] (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_772934.jpg" />
+</div>
+
+
+###  Подробнее
+
+Благодаря обстоятельствам Андрей попадает на Нелиту, планету куда ушли драконы после закрытия межпланетных порталов. Здесь он встречает своих родственников, находит свою любовь и новые приключения. Помогая близким он организует исход недовольных существующей властью на ставший ему родным мир Иланты. И попадает из одной войны в другую, ещё более страшную...Жанр: Боевое фэнтези, ПопаданцыПродолжительность: 30:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A897C0C42FC4340AD1B09E83482FB0A5CF0A6820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213172   (772936) от 15.03.2018
 
 Влад Савин | Северный гамбит (2018) [MP3]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:9B813150BA7970819C0E47DB62D101F86AA01901
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:9B813150BA7970819C0E47DB62D101F86AA01901
 magnet:?xt=urn:btih:E46B39B2B5207700DC60065D545571BA6DD4A5C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:E46B39B2B5207700DC60065D545571BA6DD4A5C4
 ```bash
 magnet:?xt=urn:btih:50AD6D209C79D6D085FBC7C35952D9A8DD723111
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:50AD6D209C79D6D085FBC7C35952D9A8DD723111
 magnet:?xt=urn:btih:E443C1689EE69B0B6CEEA685FCFF1939DAAC3820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:E443C1689EE69B0B6CEEA685FCFF1939DAAC3820
 ```bash
 magnet:?xt=urn:btih:BD06E4710D47FD2279358A6AD6C3E8B3FBA242CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:BD06E4710D47FD2279358A6AD6C3E8B3FBA242CC
 magnet:?xt=urn:btih:DFCE8D65CFB8841370E45E9CBECDEE47E2DCB753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:DFCE8D65CFB8841370E45E9CBECDEE47E2DCB753
 ```bash
 magnet:?xt=urn:btih:36B706780D82022F3866409D3F04B59057467CD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:36B706780D82022F3866409D3F04B59057467CD3
 magnet:?xt=urn:btih:5577ED41532D592B4F6720D9D4B7E8750A9B8AA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:5577ED41532D592B4F6720D9D4B7E8750A9B8AA9
 magnet:?xt=urn:btih:870D5E3543806C199AF88EB0A5B1C1D5B99F7F8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:870D5E3543806C199AF88EB0A5B1C1D5B99F7F8B
 ```bash
 magnet:?xt=urn:btih:4C034C684439E318B100D0B0F74CFB6C12312388
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:4C034C684439E318B100D0B0F74CFB6C12312388
 magnet:?xt=urn:btih:2257E0760743EBC0AA1BA8B08180905EBCFB79E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:2257E0760743EBC0AA1BA8B08180905EBCFB79E9
 magnet:?xt=urn:btih:409965C04C89393F79F0D8C27DA044E82696BFED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:409965C04C89393F79F0D8C27DA044E82696BFED
 ```bash
 magnet:?xt=urn:btih:019180FD9B51AE61DEF1745F2843E4D6D204D45F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:019180FD9B51AE61DEF1745F2843E4D6D204D45F
 magnet:?xt=urn:btih:88D3172683C78DAA71F3FA0751084AACA1C7D28C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:88D3172683C78DAA71F3FA0751084AACA1C7D28C
 ```bash
 magnet:?xt=urn:btih:650030F6304E453938EC9754F051BE607B5B1CAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:650030F6304E453938EC9754F051BE607B5B1CAB
 magnet:?xt=urn:btih:00C436DF9C4FC09690B5AABAA62F49FDB9E7510E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:00C436DF9C4FC09690B5AABAA62F49FDB9E7510E
 ```bash
 magnet:?xt=urn:btih:71B8F0395EABAB25ED168D251E07D04E43D1856D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:71B8F0395EABAB25ED168D251E07D04E43D1856D
 magnet:?xt=urn:btih:BAB1B1E9E37410B5D36DF20FEF30BCB0D1D6FC93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:BAB1B1E9E37410B5D36DF20FEF30BCB0D1D6FC93
 ```bash
 magnet:?xt=urn:btih:1F162ED43FED806B91CE93ADC3B3FE253D75AE8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:1F162ED43FED806B91CE93ADC3B3FE253D75AE8F
 magnet:?xt=urn:btih:583A3B836D5BEA4ECCD770600E3B1A97CAD4FF6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:583A3B836D5BEA4ECCD770600E3B1A97CAD4FF6A
 ```bash
 magnet:?xt=urn:btih:C11DFFA628039F30B2F1BD24FF028CE6C846C0AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:C11DFFA628039F30B2F1BD24FF028CE6C846C0AE
 magnet:?xt=urn:btih:2472F6A37DE3CDD80883D0278FD99F14866F43D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:2472F6A37DE3CDD80883D0278FD99F14866F43D5
 magnet:?xt=urn:btih:25D4F2F7E6DC66627DA4E75E56F26612C03E0669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:25D4F2F7E6DC66627DA4E75E56F26612C03E0669
 ```bash
 magnet:?xt=urn:btih:0038CA7581C79C126FB6FC13231AF49705BC990B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:0038CA7581C79C126FB6FC13231AF49705BC990B
 magnet:?xt=urn:btih:6171EB2C1FF818167B2B3EE45CE6FD7278F66CE5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014121   (776278) от 07.05.2016
-
-Виталий Зыков | Во имя потерянных душ (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_776278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Творят темные обряды культисты, призывая в мир древнее зло. Ищут забытые знания воины Церкви Последнего дня. Сражаются с демонами бойцы Башни и Школы… Заключаются и разрушаются союзы, мастера ловушек и засад охотятся на вражеских магов, а крупные кланы пробуют на зуб границы соседей. В Сосновске полным ходом идет борьба за власть. И нет никому дела до рыскающих по (   Читать дальше...   )Жанр: Попаданцы, Боевое фэнтезиПродолжительность: 16:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8D4519791F15422DD3A9449A45931FF3744AEA8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:E8875206BBC3036EF74BB23F086D26AD4A04DD3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Neal Schon - Journey Through Time (Live) (2023) [FLAC|Lossless|WEB-DL|tracks] <H
 ```bash
 magnet:?xt=urn:btih:8F89F20E8C03DC577836A214B3677381729A5ED7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Guy Barker - Timeswing (1996) 2000, Universal[FLAC|Lossless|tracks + .cue] <Main
 magnet:?xt=urn:btih:8031FDF864A8FFD57A9312F8DFCCBC385182F523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:8031FDF864A8FFD57A9312F8DFCCBC385182F523
 ```bash
 magnet:?xt=urn:btih:9B9FE940C1F5ED3809E13E4AB1DF5CA7F98DE6BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:9B9FE940C1F5ED3809E13E4AB1DF5CA7F98DE6BA
 magnet:?xt=urn:btih:E58BBC408CC07A7FF51FD65A815B9A6B7A4770C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:E58BBC408CC07A7FF51FD65A815B9A6B7A4770C1
 ```bash
 magnet:?xt=urn:btih:943EDEE2F6415CC8E8F0162B194B31FB8507B1B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:943EDEE2F6415CC8E8F0162B194B31FB8507B1B9
 magnet:?xt=urn:btih:844EE95DE6AE540A7C1FC8F2AA5BF9614A86C038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:844EE95DE6AE540A7C1FC8F2AA5BF9614A86C038
 ```bash
 magnet:?xt=urn:btih:747902AE112F920904B787FAD75DC3EA1B111F63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:747902AE112F920904B787FAD75DC3EA1B111F63
 magnet:?xt=urn:btih:E550EEA818DA31410F2541DCF596BB9B1FBC4DF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:E550EEA818DA31410F2541DCF596BB9B1FBC4DF7
 magnet:?xt=urn:btih:6CED25CF0035CAF40356EAEE8AF915DDC16F9DA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:6CED25CF0035CAF40356EAEE8AF915DDC16F9DA3
 ```bash
 magnet:?xt=urn:btih:963B269C3D76E3CAD0EEB493D5FAF8895FAA8FE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ Celtic Hills - Huldufolk (2022) [FLAC|Lossless|WEB-DL|tracks] <Power, Thrash Met
 magnet:?xt=urn:btih:74EC2D56019C6E6FC08DC2601D6565B63A96AFA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:74EC2D56019C6E6FC08DC2601D6565B63A96AFA8
 magnet:?xt=urn:btih:3E188417ABEE2003837DAD2D372479B1998EAFAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:3E188417ABEE2003837DAD2D372479B1998EAFAE
 ```bash
 magnet:?xt=urn:btih:2527628E298EAD5EA7C45C189902F6DEDF99A64B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ VA - Шансон Весна (2022) [MP3|320 Kbps] <Шансон>
 magnet:?xt=urn:btih:0337794FF481BE0FB3C3FF925E863B5690AADCC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ Paul Gonsalves - Gettin' Together! (1960) 1987, Original Jazz Classics[FLAC|Loss
 magnet:?xt=urn:btih:8E7195811996005F3C720E894FFA95D204186220
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ XYplorer - удобный мультивкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:18827E3BFCBD974A36E23EA56FDA36D94124F8A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ magnet:?xt=urn:btih:18827E3BFCBD974A36E23EA56FDA36D94124F8A0
 ```bash
 magnet:?xt=urn:btih:6FE9A6540F6F465D461B87DA854DE3B980B9C8F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ Dиверсант - Ненависть и отчаяние (2022) [FLAC|Lossless
 magnet:?xt=urn:btih:05E7720B88EE1BC4F2C8C70A7C95D688EDCC9358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ magnet:?xt=urn:btih:05E7720B88EE1BC4F2C8C70A7C95D688EDCC9358
 ```bash
 magnet:?xt=urn:btih:9BA03ED802D6964C218354302223CEE4CE8AA31A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ Sweet And Lynch - Heart & Sacrifice (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 magnet:?xt=urn:btih:2B483C803B9A23CA036BD713BA1E9C9483881A8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ BBC: Куницеобразные. Дерзкие и бесстрашные / We
 ```bash
 magnet:?xt=urn:btih:D784E2B7496CFBBC509EEC8E5E72EC811C32AD41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:D784E2B7496CFBBC509EEC8E5E72EC811C32AD41
 magnet:?xt=urn:btih:1A2BED469B01352A391F25307E17B86B1646EB3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:1A2BED469B01352A391F25307E17B86B1646EB3D
 ```bash
 magnet:?xt=urn:btih:0AC7709FEEB6C3A8C73A6E8651A25B7AFCD73BFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ CD - 1 - Legend In A Loungeroom:
 magnet:?xt=urn:btih:E0D2988067DB1BD23FB3DC4B175C8BD329FE75D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ magnet:?xt=urn:btih:E0D2988067DB1BD23FB3DC4B175C8BD329FE75D8
 ```bash
 magnet:?xt=urn:btih:6070DFE6106D851C400CE39CD0AF704DCDB388B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

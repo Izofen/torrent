@@ -19,6 +19,8 @@ Granblue Fantasy: Relink - приключение в просторах Небе
 magnet:?xt=urn:btih:C9BE6D6E48D9A42F721E1811394AAAE3C03F20E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Big Adventure: Trip to Europe 7 (2024) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:C1B4C261547FAD6579DD907C399412074DF6B73A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Beyond the Fringe - в первую очередь шутер от третье�
 magnet:?xt=urn:btih:34374D7FD02145CBA7F3D42EAAD19ED8780441E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Intra - Tower Defense представляет своим игрокам обш�
 ```bash
 magnet:?xt=urn:btih:4601D77A4C9484C61FF5173FE0E0B64CFFFA1E6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Hospital of the Undead погружает вас в леденящую душу 
 magnet:?xt=urn:btih:95D6E87582108B8B5745E0FBDA0599C44D6B2878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Brew Barons приглашает в мир, охваченный беспо�
 ```bash
 magnet:?xt=urn:btih:D346663C6F804A071E4602A3920F25E87498D344
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Crossroads 4: Fatal Truths (2024) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:FF010DE7111C6DFEFE1A38B430E55CDB1F08EBE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Hero We Need - это стратегия в жанре tower defense, кот
 ```bash
 magnet:?xt=urn:btih:ABCA108A9059AABFAE343E46B94A70A5F0B597F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ qomp2 (2024) [Ru/Multi] (1.1.2257) License GOG
 magnet:?xt=urn:btih:93615AA79C48C1DE0E9D12DEEE61760707EA39CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Gord (2023) [Ru/Multi] (1.5.0.42146/dlc) Repack Other s [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:BBD9235A1D03B30FB36DA2A12E87105EBD8B69D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Homeseek перенесет вас в мир, где ценности уже н�
 magnet:?xt=urn:btih:83E7563ACCBE06F2D9CC3BF61EDFBBDE63A21CA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Robin Hood - Sherwood Builders – это приключенческая рол�
 ```bash
 magnet:?xt=urn:btih:F2666CB588CB5DDCDA0E6DD7DE3C7EBB2CCE1A8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Penny's Big Breakaway - это яркий 3D-платформер с иннов�
 magnet:?xt=urn:btih:0B6698D5D5C3DD307DF8FB12F63E2454CBB47864
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ ecrets of Grindea – интересная игра-приключение, в �
 ```bash
 magnet:?xt=urn:btih:8D58059EEB666C69BE5EFFAE1C35F0115535E7A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ WRATH: Aeon of Ruin – шутер от первого лица, созданн�
 magnet:?xt=urn:btih:0C949B841117C62D41F8C3182630C76CEC4FB2EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Bridge Constructor Portal (2017) [Ru/Multi] (001.04/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:A86BD7DE26A1C7AF781A88E9FFFE38F46CF664A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Invisible Fear погружает вас в леденящий душу кошм
 magnet:?xt=urn:btih:C77F8C6A81471682C177896C76C6409057A8A6C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Slave Zero X - это биопанк-экшен, выполненный в по�
 ```bash
 magnet:?xt=urn:btih:C2391D0DADD31606D3B20FB1AC7252A4542E3C7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Star Wars: Dark Forces Remaster был воплощен в жизнь коман
 magnet:?xt=urn:btih:DEC27076A224EBDCC3A9CD70AD3BEE88A2034F3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Ad Infinitum – атмосферный хоррор-проект, в котор
 ```bash
 magnet:?xt=urn:btih:52517CFD08882CB3791A069CBB65266F64BE5DE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Nathan Morgan: Dilemma ставит вас на место детектива Н
 magnet:?xt=urn:btih:C9F1944C17BC988885D55816B2B3D677B813BB7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Expeditions: A MudRunner Game (2024) [Ru/Multi] (1.0.0.0/dlc) Repack DjDI [Supre
 ```bash
 magnet:?xt=urn:btih:F288A95D4A06667D98952B7677E6F74921BBF29C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Song of Nunu: A League of Legends Story (2023) [Ru/Multi] (20231130) Scene Tenok
 magnet:?xt=urn:btih:6EE70EB001242D907E72476F4AFAF1D6D207F22C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Bus World – симулятор водителя, что развозит па�
 ```bash
 magnet:?xt=urn:btih:DBFD35B06375B2AEC36DE6B52D00C3B98BC857B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Ruff Ghanor предлагает игрокам стать на место од�
 magnet:?xt=urn:btih:2903448C8302B79F03D0F9F58E93156244CE009F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Witch of Fern Island - это красочный симулятор жизн
 ```bash
 magnet:?xt=urn:btih:17AA35BF3CBE799941497D2DCF3B4FC05451B53D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

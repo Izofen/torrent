@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:17FD886E681854FE744465B67BB698C8AE8B7464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Equalizer FX — программа поможет Вам улучшить зв�
 ```bash
 magnet:?xt=urn:btih:8E52BE84B01E7C1258A4C873FD0210D69D074BFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Pulsar - прекрасный представитель своего класс
 magnet:?xt=urn:btih:04140814C9B5C9E0D323784E3104B0E1DA5CC51C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Weather Radar Live Tracker PRO v1.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3C84E5766D5AD978C40330E84EEAF1B4AE320C65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Flat Equalizer - Bass Booster - это приложение для улучше�
 magnet:?xt=urn:btih:C3680978A009BED3B5508EC89886DFAD1B85C884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:C3680978A009BED3B5508EC89886DFAD1B85C884
 ```bash
 magnet:?xt=urn:btih:6F8C3735BBA0475A6286A4B0EB6DCB3B49846C8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Night Slashers X – Ремейк кровавой игрушки в жанре 
 magnet:?xt=urn:btih:9C08B8CE1771426F7A4E191F79BF90665DB323F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:9C08B8CE1771426F7A4E191F79BF90665DB323F4
 magnet:?xt=urn:btih:11C332463D695E31117D15BE28BAC7843151BDF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ BlackPlayer Music Player / BlackPlayer EX 20.61 Mod by Balatan, CMAPTOC [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:FB8E71034E56C1B47036BE4B569F6E43169430FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ KReader - это простое в использовании и легко на
 magnet:?xt=urn:btih:4289E4D42BBFB7A5C9B9C995ECD281B00C7FBD5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Marine Traffic отображает в реальном времени пози�
 magnet:?xt=urn:btih:09518A1FB92875054FC1962C6A386F6DDB0D9EDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Shuttle+ Music Player – это простое, удобное и минима�
 ```bash
 magnet:?xt=urn:btih:0617E20086FBF9C29296ACA1FCE1CA634A4FF994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:0617E20086FBF9C29296ACA1FCE1CA634A4FF994
 magnet:?xt=urn:btih:8814C8D20802F4154C2A026022911D91025C1EA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:8814C8D20802F4154C2A026022911D91025C1EA8
 magnet:?xt=urn:btih:DA41C9707A61403E1DFD2E2D45623D19A2081304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:DA41C9707A61403E1DFD2E2D45623D19A2081304
 magnet:?xt=urn:btih:F5B90E79B2515610804DAE2C80A819CDB06AAE44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:F5B90E79B2515610804DAE2C80A819CDB06AAE44
 ```bash
 magnet:?xt=urn:btih:F212AFC37F0C5424A71D2084BCF1C62EB600B4D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ J-Mobile разработана для ГНСС приемников JAVAD TRIUM
 magnet:?xt=urn:btih:63A36CC44CDBE42329C283C01BF48C4D0252C61A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Pixlr - фоторедактор с множеством бесплатных ф
 ```bash
 magnet:?xt=urn:btih:4844D383C12BE0ACCAE3A069DD9C33F23BECCC3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Video Converter, Compressor — это мощный видео конверте�
 magnet:?xt=urn:btih:124293D5B9A4D8BDCC8267A6E468C81E10A4A2A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:124293D5B9A4D8BDCC8267A6E468C81E10A4A2A8
 ```bash
 magnet:?xt=urn:btih:AE1569DD394A7943009A882FDD919C9CDC649840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:AE1569DD394A7943009A882FDD919C9CDC649840
 magnet:?xt=urn:btih:D386F04E5C6FECC84535EABBC99A030F31018D12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Supershift – это календарь, созданный для работа
 ```bash
 magnet:?xt=urn:btih:C1DCA551D713242952980ED1EFA856139C008444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Momo Music Player 1.5 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:947947D5DC963CF5443DDC02DF9F691B8BED74C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ PickU - AI обрезка фотографий и удаления фона, к�
 ```bash
 magnet:?xt=urn:btih:E0C2A5622A93C14849C84B11E3855A9C13A6F4AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Electronics Calculator Pro представляет собой приложен�
 magnet:?xt=urn:btih:E589B4F46591A90A116448B174E9AEFD010334A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ SMD info v1.34 [Ru]
 ```bash
 magnet:?xt=urn:btih:8419B149864F6245BE568FB57B6AFF1C59C49D46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ My Horse and Me / Моя любимая лошадка [7-12] (L) [Ru] (2008)
 magnet:?xt=urn:btih:3A14DE5B83B1279E832E70A78AB1A7A7CBAC0CAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ The Greatest Hits Vol.2 (2010)(   Читать дальше...   )Жанр: Rap,
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ The Greatest Hits Vol.2 (2010)(   Читать дальше...   )Жанр: Rap,
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ The Greatest Hits Vol.2 (2010)(   Читать дальше...   )Жанр: Rap,
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ The Greatest Hits Vol.2 (2010)(   Читать дальше...   )Жанр: Rap,
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ The Greatest Hits Vol.2 (2010)(   Читать дальше...   )Жанр: Rap,
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ The Greatest Hits Vol.2 (2010)(   Читать дальше...   )Жанр: Rap,
 ```bash
 magnet:?xt=urn:btih:DB7FD4BB2E5F28D1E050D9A1F03EC05ADD25C7F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ WRC 2: FIA World Rally Championship – новая часть в серии оф
 magnet:?xt=urn:btih:46905858806FADFB901F10E91DC61CA205564105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:46905858806FADFB901F10E91DC61CA205564105
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:46905858806FADFB901F10E91DC61CA205564105
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:46905858806FADFB901F10E91DC61CA205564105
 ```bash
 magnet:?xt=urn:btih:4A30619F8027F525A8056142CC8C6B66A2331FDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:4A30619F8027F525A8056142CC8C6B66A2331FDC
 magnet:?xt=urn:btih:A36CC4DCEB4E4FCD17B06EDDD8203D8FF8B5ABA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:A36CC4DCEB4E4FCD17B06EDDD8203D8FF8B5ABA4
 ```bash
 magnet:?xt=urn:btih:8D57397FD969A3323DB344E5FA838693010831B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ GTA: Criminal Russia – Модифицированная версия игры 
 magnet:?xt=urn:btih:B9A143F93CD063C9D8A9E006B308D7D26D78810E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:B9A143F93CD063C9D8A9E006B308D7D26D78810E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:B9A143F93CD063C9D8A9E006B308D7D26D78810E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ Windows7 Максимальная AUZsoft Yellow+miniWPI x64 v.10.12 [RUS]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ Windows7 Максимальная AUZsoft Yellow+miniWPI x64 v.10.12 [RUS]
 ```bash
 magnet:?xt=urn:btih:AE04ECD4C576B5B9A7281215E2DF1338B5B1E52B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:AE04ECD4C576B5B9A7281215E2DF1338B5B1E52B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:AE04ECD4C576B5B9A7281215E2DF1338B5B1E52B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:AE04ECD4C576B5B9A7281215E2DF1338B5B1E52B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:AE04ECD4C576B5B9A7281215E2DF1338B5B1E52B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ Front Mission Evolved + 6 DLC [Ru] (RePack/1.0.0.1u2) 2010 | Fenixx
 ```bash
 magnet:?xt=urn:btih:E3EA4E4F188BBAC35D9D22A5529FE81414FBAB4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ Flash Decompiler полностью поддерживает Flash 5, 6, 7, 8, 9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ Flash Decompiler полностью поддерживает Flash 5, 6, 7, 8, 9
 ```bash
 magnet:?xt=urn:btih:6D0B25D338C5E412108E6FC25D09584D64C2D6A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +703,8 @@ The KMPlayer - мощный бесплатный медиаплеер с под�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

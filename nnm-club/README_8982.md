@@ -22,6 +22,8 @@ Nepal - Manifiesto (1997) [APE|Lossless|image + .cue] <Thrash Metal>
 magnet:?xt=urn:btih:A3BB6D7D42985445829131E716417D79CC518470
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:A3BB6D7D42985445829131E716417D79CC518470
 ```bash
 magnet:?xt=urn:btih:0A7AC1894C08CC784A1CF4A4F7E5984085822EA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Mirzadeh - Ancient Rites (2003) [FLAC|Lossless|image + .cue] <Black Metal>
 magnet:?xt=urn:btih:6158CBAE1B25695B758555694AE0E001D0C45522
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:6158CBAE1B25695B758555694AE0E001D0C45522
 magnet:?xt=urn:btih:4DB395F0E4FB4626285B1D15B1E1BFD52FF9180C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Wirecast предлагает доступное программное обес
 ```bash
 magnet:?xt=urn:btih:74814393ACAF11C6D1B2F4FA670351D79C2BFE52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Nepal - Demos Originales + Ineditos (2012) [APE|Lossless|image + .cue] <Thrash M
 magnet:?xt=urn:btih:A86F9E7FB48821FD7ECD7030F538410F36DADAEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:A86F9E7FB48821FD7ECD7030F538410F36DADAEE
 ```bash
 magnet:?xt=urn:btih:7B6E0112B452BA6A8E7DB4150F212A2796A6E97C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:7B6E0112B452BA6A8E7DB4150F212A2796A6E97C
 ```bash
 magnet:?xt=urn:btih:6B5E3964DB2C33BC6ABF5782A7B1E50AAC4F1AAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ Duplicate Manager Pro обнаруживает, управляет и удаля
 magnet:?xt=urn:btih:A2F3343D9BFF1305B279CFD8D950CF46A3863054
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ Saul Blanch Revancha - Refugiado (2006) [FLAC|Lossless|image + .cue] <Heavy Meta
 magnet:?xt=urn:btih:0050E4B528BD361F12176BD0E8F1438F2B2F8262
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ FilePane - легкий, универсальный мультиинструме
 ```bash
 magnet:?xt=urn:btih:D5992332573C4CD40FDD0163D6D88572FA3F6D89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ VA - Euro Trance Classics (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:EF2323F3946247DB80B61A9DA9BC989720FC073A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Ph
 magnet:?xt=urn:btih:B5DC3A1B4E4CE47303572E9E7519A7126A0084A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ Music Tag Editor - редкатор музыкальных тегов помож
 ```bash
 magnet:?xt=urn:btih:3EF8DAC158ED833D9EB8CCF364E25C26C1B69F7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +413,8 @@ Master's Hammer - Ritual (1991) [APE|Lossless|image + .cue] <Black Metal>
 magnet:?xt=urn:btih:E4F4C8DE462190489675630F41091B26AC5F0F39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +442,8 @@ Nepal - Ideologia (1995) [APE|Lossless|image + .cue] <Thrash Metal>
 magnet:?xt=urn:btih:7D98B6B121206D1D787831DF2937E02CAB25C673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +467,8 @@ Smooze одушевляет ваш скролл и добавляет функц
 ```bash
 magnet:?xt=urn:btih:2E38B9FFF5236599D2862E14825B381384E79EC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +497,8 @@ Thormenthor - Abstract Divinity (1994) [APE|Lossless|image + .cue] <Progressive 
 magnet:?xt=urn:btih:BCC95211B58C382D9FA7EBED4479CAF97E7573F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +525,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:416696567786F3340D3E400D7F63BA3BC9CFC205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +555,8 @@ Blodulv - III - Burial (2005) [FLAC|Lossless|image + .cue] <Black Metal>
 magnet:?xt=urn:btih:C34FC1C21AFEFCA23A094D1855649F7FC8D7554A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +583,8 @@ Jay Thomas / Gary Smulyan - Lowdown Hoedown (2016) CUG Records [FLAC|Lossless|tr
 ```bash
 magnet:?xt=urn:btih:D8582A009BC61CEE0E90C70BBE66EC77D7850DD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +613,8 @@ Yoshiro Okazaki & Jay Thomas Quintet - Soul Summit!: Live at Mr.Kenny's (2014) C
 magnet:?xt=urn:btih:274CFC2CF30B131E5A68728DC0398ACED980ADA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +641,8 @@ magnet:?xt=urn:btih:274CFC2CF30B131E5A68728DC0398ACED980ADA5
 ```bash
 magnet:?xt=urn:btih:2810B8B75597AFA70CC327A9D6BB90C5AC09FCFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +671,8 @@ Jeff Ray - The Walkup (2003) HiPNOTIC Records [FLAC|Lossless|image + .cue] <Jazz
 magnet:?xt=urn:btih:D398A43FA1B9DB920FA49CED4B54C594042FE093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +700,8 @@ A NYC Tribute feat. Jimmy Cobb & Randy Brecker - Monk (2012) Jazz'n'Arts Records
 magnet:?xt=urn:btih:48BFB046B6AA03555D89BDA10F58A8B22C940173
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +728,8 @@ Clarence Penn - Play-Penn 2001 (2009) Criss Cross Jazz [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:6CCB41B352B4696AC7A59F0FA7A615A11C5F352B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Side one
 magnet:?xt=urn:btih:78572654FFAE4B6DAA591D91089C8C7CCF9313F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ B4. King Of Whitewater(   Читать дальше...   )Жанр: Progressive 
 ```bash
 magnet:?xt=urn:btih:D1D79F0D2F176BF1F22D1ABE5203ACFB61CD50A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ A04. Unbreakable(   Читать дальше...   )Жанр: Progressive Metal�
 magnet:?xt=urn:btih:CE706A299898C6CF1A5FE5E8D9A0FEBEAA62CF7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ ABBA - Gold (Greatest Hits) 40th Anniversary Edition [3 CD] (1992/2014) hand mad
 ```bash
 magnet:?xt=urn:btih:35A540D5D0BA4B8AAEBEA5521BAF83520A045F99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ ABBA - Voyage (2021) hand made, remastered [FLAC|44/16|tracks] <Pop, Dance, Euro
 magnet:?xt=urn:btih:9ADC408404D6B33744A367B7CA34F4C56E9C1BA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ David Coverdale - Whitesnake (1977) Japan Edition [FLAC|24/192|image + .cue|Viny
 ```bash
 magnet:?xt=urn:btih:ED0DB99FE15017F7B8CD88B777045DA6B307DFBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ David Coverdale - Snakebite (1978) [WavPack|24/192|image + .cue|Vinyl-Rip] <Blue
 magnet:?xt=urn:btih:94A0E81DF4E721EBDA49C8CD14E39E2B1CAB9954
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ B1. Numb(   Читать дальше...   )Жанр: Progressive Power MetalП�
 ```bash
 magnet:?xt=urn:btih:27BE03017CA1294C04BF4CA13EA7798BADCDA914
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ Vektor — американская прогрессив/трэш-метал г�
 magnet:?xt=urn:btih:2AD5B0B41551BF23A4268344AD8771A4A8319377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ HIM — финская рок-группа, созданная в 1991 году 
 ```bash
 magnet:?xt=urn:btih:9CE846906E176701A8A43C083589F4D1D55E0035
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Smackbound - 20/20 (2020) hand made [restored, declipped] [FLAC 2.0|Lossless|44/
 magnet:?xt=urn:btih:6BA8EFB778CDD57152F673E677A3578F02086CCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ A2 Веселые Ребята – Если Б Не Суббота
 ```bash
 magnet:?xt=urn:btih:F4330F517B6E40B67F899FFE7EAC635D59CD9A5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ B1 - Post-Truth(   Читать дальше...   )Жанр: Progressive Rock, M
 magnet:?xt=urn:btih:246AEE83850E959DFF7A93C94D0DC7BF6B17688D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ A4 - Reality Dream(   Читать дальше...   )Жанр: Progressive Rock
 ```bash
 magnet:?xt=urn:btih:CC86F13BDF95ABAEA3E89E7F2A4644B0592ABF43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ Stratovarius — финская англоязычная пауэр-метал-�
 magnet:?xt=urn:btih:3779ED687AD3D9EBE0DCD07CD9905A7BB50A4421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ In This Moment — американская группа, образованна
 ```bash
 magnet:?xt=urn:btih:70E9C98D858F5000466361A1FFC82009093AEC33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ Electric Sun - Earthquake (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Rock>
 magnet:?xt=urn:btih:EA8C75D52A4E3CE89DB5FF78902F2D5749B6C8CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ A4. Here We Go Again(   Читать дальше...   )Жанр: Blues Rock, Ha
 ```bash
 magnet:?xt=urn:btih:63AA4C8085F665DC3F5E96FEEEC2B7A9E4D0B2E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ B2. Hope(   Читать дальше...   )Жанр: Progressive Power MetalП�
 magnet:?xt=urn:btih:584311E08528C64FED8854D83F3CC5B28E56DACE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +570,8 @@ A4 Free N' Easy = Свободно И Легко(   Читать дальше...
 magnet:?xt=urn:btih:B332C759FFC0F1C225F42B8BC2FC01E6B3C80480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ magnet:?xt=urn:btih:B332C759FFC0F1C225F42B8BC2FC01E6B3C80480
 ```bash
 magnet:?xt=urn:btih:C5A3741CAC7E106A729D2B12BDF7660BD6A8663F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +629,8 @@ Fozzy — американская хэви-метал группа.
 magnet:?xt=urn:btih:46559443E0979F542F4D933AF84E9D407EA52E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ A2 Евгений Головин - Если Снится
 ```bash
 magnet:?xt=urn:btih:CA7D22189496E1CCE8E36D661D60FE6C3C44E893
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +687,8 @@ CD-1 (34:04)
 magnet:?xt=urn:btih:4459A0DE943680AD4F5845D64CAAC96AFBAEE041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +716,8 @@ Bolt Thrower — британская дэт-метал-группа, образ
 magnet:?xt=urn:btih:2F53D880D8944389925010ED692DC5015E458B4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ Death - The Sound of Perseverance (1998) Reissue 2016, Relapse Records [FLAC|24/
 ```bash
 magnet:?xt=urn:btih:44A51D6968F01296F1D835CD65C7CF20A4114E75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

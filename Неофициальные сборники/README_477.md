@@ -1,3 +1,32 @@
+###  Публикация: 1018359   (755678) от 20.05.2016
+
+VA - Радио Шансон. Союз The best (2016) [MP3|256 кб/с] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_755678.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Папа Радж - Мадам Постойте
+002. Виктор Королёв - Три Часа
+003. Сибирь - На Канарах И На Кипре
+004. Стас Притчин - Счастье(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15EF8F8222A67424546DE792BF91D7695F913FA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018295   (755683) от 20.05.2016
 
 VA - Piano and Chill: Piano for Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrumental>
@@ -21,6 +50,8 @@ VA - Piano and Chill: Piano for Chillout (2016) [MP3|320 кб/с] <Downtempo, Ch
 ```bash
 magnet:?xt=urn:btih:12DB7E4BA3E8925793C3C93FE3316C7051A74536
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Русский Популярный Хит Формат (2016) [MP3|256-320
 magnet:?xt=urn:btih:40FA99678CC1FF0B716E0B6A59F9A0A45FFED797
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Cosmic Machine - The Sequel (2016) [MP3|320 кб/с] <Electronic, Experimen
 ```bash
 magnet:?xt=urn:btih:D5AC9A2302D9558FC1907DAFAF665DB869F8D4BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Ibiza Summer (2016) [MP3|320 кб/с] <House, Club, Dance>
 magnet:?xt=urn:btih:11EB2947BC6FEC451068777D5B2C7C877044957F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Звездный летний клубный драйв (2016) [MP3|253-320
 ```bash
 magnet:?xt=urn:btih:289958F9419AA126CE9D1664321B82661BE105FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Interference -  Hardstyle Techno Mix (2016) [MP3|320 кб/с] <Hardstyle, H
 magnet:?xt=urn:btih:842CE84511068F429298B841E004F26AB55AC10F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Club Dance Switch Miracles (2016) [MP3|320 кб/с] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:DF5F1696A83506C1DDC6A9B0DE79C8A364411E26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Beach Cafe Deluxe: Ultimate Lounge and Buddha Relaxation Music (2016) [MP3|
 magnet:?xt=urn:btih:92C0515B25E1ECC1C21183D6A1EC78FE2B12CF3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Dirty Beats Funky Dancefloor (2016) [MP3|320 кб/с] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:2FC0AB19940F33848985E0071DA0ABE79D066E77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - The Magic Dream Of Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lou
 magnet:?xt=urn:btih:53230EFAB216FA6C4F01E3E5B683C48B8032DD79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Pictures Lounge Collection (2016) [MP3|320 кб/с] <Downtempo, Chillout, L
 ```bash
 magnet:?xt=urn:btih:96366B994DFD5A2D0BA4C164602B1DB8F91EF882
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Wine Lounge, Vol. 3 (25 Bar Lounge Tunes) (2016) [MP3|320 кб/с] <Downtem
 magnet:?xt=urn:btih:119B5F3DB959AB13C797F8F9692B531F01BA77C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +399,8 @@ VA - Rock & Metal Collection от ALEXnROCK часть 4 (2018) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:F0D65600696C94108282325E897BD9FD9BC10634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +427,8 @@ VA - Blessing New Age Music (2018) [MP3|256-320 Kbps] <New Age, Relax, Meditativ
 ```bash
 magnet:?xt=urn:btih:0D37384D4DF835CEF3A5A8562FD123127B9169A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +459,8 @@ VA - The Official UK Top 40 Singles Chart (27-04-2014) [MP3|320 кб/с]<Pop, Da
 magnet:?xt=urn:btih:EEABDA398D61E49BA57CC8D334DED5B4B06F57CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +487,8 @@ VA - Радио Рекорд Итоговый Суперчарт 2021 - 100 лу
 ```bash
 magnet:?xt=urn:btih:050CBC2F352B8E59E9D4C1FCDD7C40D412E28841
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +517,8 @@ VA - Music For Fitness Green Party (2018) [MP3|320 Kbps] <Pop, Dance, Electro Ho
 magnet:?xt=urn:btih:9B780A7C08A6CD7B280B46B3A3B806CF06EA62CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +545,8 @@ Leonard Cohen - Compilation (2021) [MP3|320 Kbps] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:C3F9963B9C403689AD0E14C44C8B8A34DEA51576
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +575,8 @@ Patricia Kaas - Compilation (2019) [MP3|320 Kbps] <Pop, Chanson Francaise>
 magnet:?xt=urn:btih:0094EDEBFD09573767A2FC5EA8DE9F70E0008E0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +603,8 @@ VA - Music News vol.159 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
 ```bash
 magnet:?xt=urn:btih:1558CD913DA8E9D3830FF783B2C57083FD80FE0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +633,8 @@ Gin Wigmore - Compilation (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:532C79A071488C037D183B36FCA43F249CD60716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +661,8 @@ VA - German Top 50 Party Schlager Charts 04.02.2019 (2019) [MP3|320 Kbps] <Pop, 
 ```bash
 magnet:?xt=urn:btih:F693DBEB09E911ED62306A7600A88A3DEF6E672F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +691,8 @@ VA - Jazzy Instrumentals (Instrumental Tracks Contaminated by Jazz) (2016) [MP3|
 magnet:?xt=urn:btih:D4912B0C743DA203BD03831D6947A37CAD702D76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +719,8 @@ VA - Summer Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:6473D4813FBC48A6882A26C09C12D7DE1DE9DADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -678,32 +755,7 @@ VA - Музыка для Авто from Najim Hassas 3 (2011) [MP3|320 kbps]<Elec
 magnet:?xt=urn:btih:6CCB7DA81623FC07DEA4935F1287151AE465E391
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215527   (757851) от 26.03.2018
-
-Александр Маршал - Лучшее от ALEXnROCK (2018) [MP3|320 Kbps] <Rock, Shanson>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_757851.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Александр Маршал - Дай мне руку
-02 Александр Маршал - Обещай мне
-03 Александр Маршал - Погоди, постой
-04 Александр Маршал - Как тебя найти(   Читать дальше...   )Жанр: Rock, ShansonПродолжительность: 03:20:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B626EB888570C721C1CBD9CF081D7FB3554875
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

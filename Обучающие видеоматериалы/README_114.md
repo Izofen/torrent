@@ -19,6 +19,8 @@ Pluralsight, Dan Cox | Hard Surface Modeling a Modular Structure for Games in 3d
 magnet:?xt=urn:btih:0494939C0DC17E2AF684F91B231ECD723036FEFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Gumroad, Daniel Thiger | Substance Studies Tutorial Graphic Design (2019) PCRec 
 ```bash
 magnet:?xt=urn:btih:8FA17E3DAC8A628B1BC81A67C337CA8C3653AF04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Artilike, Любовь Титова | Акварельный Новогодни�
 magnet:?xt=urn:btih:68A4932EC421CD5C2F58944ECCD2182DD722E2E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Pluralsight, Nathan Glemboski | Creating Hand Painted Textures in Substance Pain
 magnet:?xt=urn:btih:C2363E06373ACB26AEBD7B3D8864D72B21E8E39D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Udemy, David Bittorf | Substance Painter for Beginners - creating normal maps (2
 ```bash
 magnet:?xt=urn:btih:0195272EC790464B9F5ED04BE97216151D3DD9BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Antipin-STUDIO, Виталий Антипин | Искусство портре�
 magnet:?xt=urn:btih:7CA57A9A07506701D1C2C6D88C89E28DA2124215
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Granich.Design, Вадим Гранич | Графсистемы Брутали�
 ```bash
 magnet:?xt=urn:btih:1EBE968A397E630D3FB71F8ECE21D4127ACA26CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Granich.Design, Вадим Гранич | Графсистема Swiss (2021) WE
 magnet:?xt=urn:btih:AC8BF695099E2F9D27E4B9714D578AB1A06035E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:AC8BF695099E2F9D27E4B9714D578AB1A06035E1
 magnet:?xt=urn:btih:593B6FE3DFA4E9415DF3C93BDEFB6EB4278506B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ Schoolism, Nathan Fowkes | Environment Design Workout with Nathan Fowkes (2022) 
 ```bash
 magnet:?xt=urn:btih:032044C56FC971DF9FF6CB74F0478659B51B2508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ Gumroad, Frank Tzeng | Zbrush BPR RENDERING package (2017) PCRec [RU]
 magnet:?xt=urn:btih:64AD7C7962F39ED15E212952EDFECF40494FE592
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:64AD7C7962F39ED15E212952EDFECF40494FE592
 ```bash
 magnet:?xt=urn:btih:2603E5A57A2956D616D13A42437F51A54A3F9CE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ BAS, Павел Дуглас | Создание Чекеров на BAS (2022) W
 magnet:?xt=urn:btih:BF8362A5FA5ED3A09243ECB9E4BDB6580472AE9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:BF8362A5FA5ED3A09243ECB9E4BDB6580472AE9B
 magnet:?xt=urn:btih:1B44E42D90DBCE0BFE50BFD6096BB806EEFDCB08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ SideFX, Paul Esteves | Houdini 19 Nodes (2021) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:05321EF065EABFC47982EA7447438E9F4B019BC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ Game Art Institute, Adam Skutt | Character Creation For Games with Adam Skutt (2
 magnet:?xt=urn:btih:4CB9CA93B98B4D35A72234B73B414C1CD4FA4A9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ Schoolism, Iain McCaig | Drawing Workout (2020) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:D50271B9AEE24EDA01800FD5543FFDB063F66A69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ Schoolism, Nathan Fowkes | Digital Landscape Painting Workout (2021) PCRec [EN, 
 magnet:?xt=urn:btih:8D44BD259731CDEB00BAD2E165ECE3684D6460CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:8D44BD259731CDEB00BAD2E165ECE3684D6460CC
 magnet:?xt=urn:btih:109E60260C1913409B260C2E9781BF78BC0FC644
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:109E60260C1913409B260C2E9781BF78BC0FC644
 ```bash
 magnet:?xt=urn:btih:62B5B38172F9E9A9EE5B3DBF01E19C5C2857D03B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ Thinknetica Pro, Александр Борисов | Безопасность п
 magnet:?xt=urn:btih:798F42DC5C214A7C962EFF22A5DABF56CE1625BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ magnet:?xt=urn:btih:798F42DC5C214A7C962EFF22A5DABF56CE1625BD
 ```bash
 magnet:?xt=urn:btih:05BE00109B1B92ABDD5825A41C10A933070CBD93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ LeadTex | Архитектор чат-ботов PRO (2021) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:A1A67A3E843AF528837A34914D6E555F6AB59733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ magnet:?xt=urn:btih:A1A67A3E843AF528837A34914D6E555F6AB59733
 ```bash
 magnet:?xt=urn:btih:0C2B74EB62B272E36A56A41EC9142AF17D09D41B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ Yiihuu, WingFox | Movie CG Opening Concept Short Film: Ultrain-Ultrain (2021) PC
 magnet:?xt=urn:btih:C0AAE4DAFC587D8909ACD424C5F09609173AF5E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ Artstation Masterclasses, The Gnomon Workshop, Brian Recktenwald | Designing a M
 ```bash
 magnet:?xt=urn:btih:01956DEA7469E7781C4130C77F52AB4AC65CC157
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

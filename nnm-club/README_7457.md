@@ -19,6 +19,8 @@ EssentialPIM - высокофункциональный менеджер пер�
 magnet:?xt=urn:btih:F8A17D124E40582C561DDB82CF9A3FED97BF54D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:F8A17D124E40582C561DDB82CF9A3FED97BF54D2
 ```bash
 magnet:?xt=urn:btih:C1588CBD770D9632FAEE495275CBE94D863FC317
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 magnet:?xt=urn:btih:5519DD22C136A53B9BDA371E32EA779CA814665E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Proxifier — программа, позволяющая сетевым прог
 ```bash
 magnet:?xt=urn:btih:695C5741618BF8C63FA4E62BAAA3A824102B3F1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:695C5741618BF8C63FA4E62BAAA3A824102B3F1D
 magnet:?xt=urn:btih:442658F216C2391AD84F0A1E48EB7F262D026A38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Little Busters! Refrain / Маленькие проказники [ТВ-2] [2013
 ```bash
 magnet:?xt=urn:btih:333FCACAE41A26B6C8016E4FB8BC1957B806F369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:333FCACAE41A26B6C8016E4FB8BC1957B806F369
 magnet:?xt=urn:btih:96B02478AC643B91F7DFDBF3EBAC92AF8CA0EE71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Icecream Screen Recorder – простая и бесплатная програ
 ```bash
 magnet:?xt=urn:btih:8334F5F9A2F3AFD1CDF152E5128861895FE51523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Pink Floyd - Chillout (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive Ro
 magnet:?xt=urn:btih:82C91A49562B713573196AF4DCE6599B2F3E0917
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Husk — это продуманная игра в стиле Survival Horror, �
 ```bash
 magnet:?xt=urn:btih:0712906092D5319ECB3722F78C55B39CBCF7C6DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Castle Crashers - двумерный платформер от студии Behe
 magnet:?xt=urn:btih:DAFE953A11481306D133B422EA55C6A2FAE29F13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:DAFE953A11481306D133B422EA55C6A2FAE29F13
 ```bash
 magnet:?xt=urn:btih:7B67ED2FB6CDFBA3241C4FD6461C1F1F30F47F14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ ViewBox - приложение для Android устройств (в том чи
 magnet:?xt=urn:btih:303F66081CB52B90C6BC401905AD4B4ACB68AACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:303F66081CB52B90C6BC401905AD4B4ACB68AACD
 ```bash
 magnet:?xt=urn:btih:8293094AEECEE72E5DFC7FA0791F95CCE3B3A6C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Udemy, Tarkan Aguner | Python Real World Data Science Mega Project: Car Buyer Ap
 magnet:?xt=urn:btih:5E04339378BD504211E93226161B00D9ECBBD90A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Windows 10.0.17763.168 Version 1809 3in1 VL (x64) Elgujakviso Edition (v.08.12.1
 magnet:?xt=urn:btih:3D61EC70F4C0C2C02C6DC6F16CE803328A893DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Maxim является абсолютно уникальным журналом 
 ```bash
 magnet:?xt=urn:btih:2BCE9B9952AE88E4515D4AF8C9EBC6F3814AA857
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ mp3DirectCut 2.26 [Multi/Ru]
 magnet:?xt=urn:btih:76F549D368AEE878D5AF4EC71EB4254EB59621FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:76F549D368AEE878D5AF4EC71EB4254EB59621FB
 ```bash
 magnet:?xt=urn:btih:B00F915FF26B9721DA57B8CC358E988FF5B072B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Spotify 1.1.73.517 Portable by JolyAnderson [En/Ru]
 magnet:?xt=urn:btih:D683FCDE6EC65E34F74443DDF7D62C69330111D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Tor Browser Bundle 10.0.5 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:00E89DDA6F7EB299B82E58C405AFA79730248934
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:00E89DDA6F7EB299B82E58C405AFA79730248934
 magnet:?xt=urn:btih:7B795A5FCEC7B42D430DB671C3DB863CB033577D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ RarmaRadio - программа для прослушивания и запис�
 ```bash
 magnet:?xt=urn:btih:2BD6190BD60523D69AA3C97E1938A30802961670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:2BD6190BD60523D69AA3C97E1938A30802961670
 magnet:?xt=urn:btih:2ED09A79671220B9ED681EB4436FBDC61E0B7750
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 ```bash
 magnet:?xt=urn:btih:CEB5E3781B168ECD84650E62CEED6D31519A73F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +679,8 @@ CD1-CLUB MIX:
 ```bash
 magnet:?xt=urn:btih:3362FCA80CCD696EE8433A2FCB7D2BB5696881CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

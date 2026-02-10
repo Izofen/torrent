@@ -21,6 +21,8 @@ Of Orcs and Men [Ru/En] (RePack/1.0.0.2) 2012 | Audioslave
 magnet:?xt=urn:btih:173A76C3A9EAF718F183BD842213A365AC1CDD48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Stonekeep (1995) [Multi] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:ED67E269D57ED8167095104AA878F090C241A194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Might & Magic: Heroes VI. Gold Edition / Герои Меча и Магии 6. З
 ```bash
 magnet:?xt=urn:btih:222B196CF345807211657C8A8520C9AF441B84E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Of Orcs And Men [Ru/En] (Repack/1.0.0.2) 2012 | Fenixx
 magnet:?xt=urn:btih:761B347EFB54DF255E5240BDBE1FD0C34E9611D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Lichdom: Battlemage – это игра от первого лица, основ
 ```bash
 magnet:?xt=urn:btih:BF922D780FF5362D5887E14B70F9A1CD1898AB99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ R.A.W.: Realms of Ancient War / R.A.W.: Проклятье древних кор
 magnet:?xt=urn:btih:3987F1A944B769E006BF4D64D041E84E78504EF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Kingdom Hearts [En] [RePack/Emul] 2002 | MoveXX
 ```bash
 magnet:?xt=urn:btih:9317AEF6E78E65A40888E5941446EA3174437FBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Middle-earth: Shadow of Mordor (2014) [Ru/Multi] (rc2/dlc) License GOG [Game of 
 magnet:?xt=urn:btih:D04B9CEF5C50F74237EB76D2A967483F7E6D6B7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Gerda: A Flame in Winter (2022) [Ru/Multi] (1.1.14-00f6b) Repack Other s
 magnet:?xt=urn:btih:379797FD51302782C952E0E54A4A5F3355B5E6B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.2.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:3A57E003D7FCAFB44BF37C9D3417F5AA80C09779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Legends of Dawn Reborn приглашает игроков в жестокий �
 magnet:?xt=urn:btih:FB88C17BBF5F9C28E085BB1BFCF89E5032134F62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Overlord: Fellowship of Evil (2015) [En/Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:329F58366F4E71DF4BBB964C1A38977E65F4F20F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Final Fantasy XII International: Zodiac Job System (En) [RePack/Emulator] 2007 |
 magnet:?xt=urn:btih:DB67433A7460BF14D1641D9E2BFDC38EED7E70B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (SC:6879) Repack xatab (об�
 ```bash
 magnet:?xt=urn:btih:C74E8897D294F138AFAD9B3D86988699EFED15E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ Rezrog (2017) [Ru/En] (1.1.0) License GOG
 magnet:?xt=urn:btih:EEA77C5802BBB3985B47A6ABABFC37EB02856157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Wasteland 2 - постапокалиптическая ролевая игра �
 ```bash
 magnet:?xt=urn:btih:0B6E9876A1FE767258AC3EC456469367CC357486
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ Wasteland 3 (2020) [Ru/Multi] (1.1.1/dlc) License HOODLUM
 magnet:?xt=urn:btih:BF59F86C5BF4757526E3EA1930F5EC378E9A8D4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Wasteland 2: Director's Cut (2014) [Ru/En] (1.0/upd1) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:EBF24933D6B50EC06E387DF1DA1680830D9312E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Shadows: Heretic Kingdoms (2014) [Ru/En/De] (1.0.0.8172) Repack xatab
 magnet:?xt=urn:btih:51EB0107F6199C303CBAA1F06583F8B5441E81ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Pine — это приключенческий боевик с открытым 
 ```bash
 magnet:?xt=urn:btih:039027DC881D8216600AE809E2C42388527E9EA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Dragon Age - Anthology / Эпоха Дракона - Антология (2009-20
 magnet:?xt=urn:btih:10A21F3B6BF01B88F57FDAA8BE9EC598599B05D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Noelle Does Her Best - пиксельная японская ролевая иг
 ```bash
 magnet:?xt=urn:btih:E7A62D28863342347484DA9F5820ABF26CF62268
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Darkwood - это игра о выживании, исследовании и с
 magnet:?xt=urn:btih:6B17E964479BC3647B4F0EF6F5D4237CDB7D1B6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ King's Bounty II (2021) [Ru/Multi] (1.7/dlc) License GOG [Duke's Edition]
 ```bash
 magnet:?xt=urn:btih:8C96B1F24A4826D5F2DDA5C8EBFFB140E3EBFA12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Diluvion — трехмерная игра о странствиях в морс
 magnet:?xt=urn:btih:C3B5946829E3D7299C8AAB4D8814BA9C52582F12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Tower of Time — удивительная игра со множеством п
 ```bash
 magnet:?xt=urn:btih:90ACF622A10E41B4122876499D321AA426D33D02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - 100 Hits Great British Songs (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop, Rock>
 magnet:?xt=urn:btih:0BBA6AC88AACAA856E95EDC788F24713C3901241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:0BBA6AC88AACAA856E95EDC788F24713C3901241
 ```bash
 magnet:?xt=urn:btih:2B01F255E89C1BDB7BC57B3410057A94D1F13F0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:2B01F255E89C1BDB7BC57B3410057A94D1F13F0B
 magnet:?xt=urn:btih:B6131F8236B5F9B12D98871BCE0B34E612F901C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Confetti's - Greatest Hits (2001) [OGG Vorbis|480 Kbps] <Electronic, New Beat, A
 ```bash
 magnet:?xt=urn:btih:38103ED13A4C30F2E90E335C7C8F43CCFD181E34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - 101 90s Hits (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop>
 magnet:?xt=urn:btih:42F5F5851EF3B6557DCCDDCD4B8B33B7C51AE05A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - 101 Electronic 80s (2017) 5 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, 
 ```bash
 magnet:?xt=urn:btih:F18452F569ED1D8704FAD33B97B88A5596BFF5AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - 101 80s Hits (2017) 5 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Rock>
 magnet:?xt=urn:btih:9FB721CB01D1A8707D8173D327B784AC859EB4B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - 101 70s Hits (2017) 5 CD [OGG Vorbis|480 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:4E8DEBDEFB94F8744F070E82DCD6D7BE5A509618
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Agnetha Faltskog - A+ (2023) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:A78E863A1BF402B7504A0B4ECEAEE35B94061DD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Pop Christmas Songs (2023) [FLAC|Lossless|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:DC873B187D4E08F74B5A332EA06DC079A99893E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:DC873B187D4E08F74B5A332EA06DC079A99893E3
 magnet:?xt=urn:btih:EC4141D5E99DFAE8CE550B69165C5B7F135712DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Bravo Hits 19 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:2471FF8C502508B1851A0B90689570B276EB92C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Bravo Hits 20 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock,
 magnet:?xt=urn:btih:031FC464A0D1E6B51217D3326C11ED854BBCC256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +397,8 @@ Lian Ross - Say You’ll Never (Anniversary Special Edition) (2025) Single [FLAC
 magnet:?xt=urn:btih:6C25CAE081AEB17B61B927392B6D0EA3F2A2CCB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +422,8 @@ magnet:?xt=urn:btih:6C25CAE081AEB17B61B927392B6D0EA3F2A2CCB8
 ```bash
 magnet:?xt=urn:btih:10025AF4566BBE8BFF6A551B980796FFD0484F7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +452,8 @@ Roma Kenga - Там, где любовь (2008) [FLAC|Lossless|tracks] <Pop, Dan
 magnet:?xt=urn:btih:689E8B0C432B52FEC712A6588A42137053DDC2E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +480,8 @@ magnet:?xt=urn:btih:689E8B0C432B52FEC712A6588A42137053DDC2E6
 ```bash
 magnet:?xt=urn:btih:D0DB9EA1DB96AF147367BA37B2F54A1109869E32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +510,8 @@ TV Girl - Death of a Party Girl (2018) Digital Album [MP3|320 Kbps] <Hypnotic Po
 magnet:?xt=urn:btih:11B5AD1E45B0D7E6DE05336C12C4961E019D0905
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +538,8 @@ VA - The Best Of Hit News Vol.3 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro H
 ```bash
 magnet:?xt=urn:btih:F517D1327F8F1C8837BB2F4ED28B34E53C989D25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +568,8 @@ TV Girl - Death of a Party Girl (2018) Digital Album [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:459B281917CF3CAD7E101426CF739B7CC3980032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +596,8 @@ VA - Bravo Hits 18 (1997) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock>
 ```bash
 magnet:?xt=urn:btih:F82F06B42DF670D858C0A5545C33398FB3F540CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +626,8 @@ VA - The Best Of Hit News Vol.4 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro H
 magnet:?xt=urn:btih:700B376BAF29EA9D57492E5F5BAD5E1C95098CCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +654,8 @@ Maggie Lindemann - SUCKERPUNCH (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:68FFB01A2BCDE3185C0045EB6FFBC0FFB514A2A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +684,8 @@ VA - The Best Of Hit News Vol.2 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro H
 magnet:?xt=urn:btih:9B8CEACCC3F335BC6AACC12CB0B172FF021150BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +713,8 @@ VA - Now That's What I Call A Most Wonderful Christmas (2023) [FLAC|Lossless|tra
 magnet:?xt=urn:btih:14DDB6A4A551611DB8BD6FD18492FB987EB8ACD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +741,8 @@ VA - VK ПОД ШУБОЙ 2 (2023) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:68A2D870A9859DE32A501C950D26EE0FC3269F54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Stream Of Passion - Beautiful Warrior (2023) EP [FLAC|Lossless|WEB-DL|tracks] <P
 magnet:?xt=urn:btih:532ED7902DD5F65F17FE69CB1DAD94E8D51B00D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Kaguya-sama wa Kokurasetai? Tensai-tachi no Ren`ai Zunousen | Kaguya-sama: Love 
 ```bash
 magnet:?xt=urn:btih:A3A416FF20F9D2FA56FED8EE9D7F39BFF42A88D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Classic Essential Mix - это еженедельное радиошоу, где
 magnet:?xt=urn:btih:B96F339776E2354E569EC0EC13B4FF3641ACF579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:B96F339776E2354E569EC0EC13B4FF3641ACF579
 ```bash
 magnet:?xt=urn:btih:75C61A3896444D14B5505ED9E1D01EF683CAC867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ BuhoCleaner — это незаменимое приложение для очи
 magnet:?xt=urn:btih:E434FF55027501DCD31C1987EFAF3F15CB3B744A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:E434FF55027501DCD31C1987EFAF3F15CB3B744A
 ```bash
 magnet:?xt=urn:btih:AF4FE667F52618D316626D38A2606C5980D4C656
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ VA - Metal Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 magnet:?xt=urn:btih:A4DEE7C12072D0574E2458D6FC4B12841E69E0FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ TattooIN (Татуин) - Асимметрия (2022) [MP3|320 Kbps] <Alternativ
 magnet:?xt=urn:btih:909087F995E05C33CDEF9BB31F329507A9234A4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Honzuki no Gekokujou: Shisho ni Naru Tame ni wa Shudan o Erande Iraremasen | Asc
 ```bash
 magnet:?xt=urn:btih:E589E601134F143C6CE62548D0733405DBF8F3D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ King Gizzard & The Lizard Wizard - Live in Chicago '23 (2023) [MP3|320 Kbps] <Ps
 magnet:?xt=urn:btih:DC00D770695654316765C147052B911BA621E9F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:DC00D770695654316765C147052B911BA621E9F4
 ```bash
 magnet:?xt=urn:btih:13368BD14E45F1E77B802F754EFD422BA0053CB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ The Staehely Brothers - Sta-Hay-Lee (1973) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:D9E72142F26243D1521F63B4CFC9C7E7C4A799F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:D9E72142F26243D1521F63B4CFC9C7E7C4A799F2
 ```bash
 magnet:?xt=urn:btih:E94249C6761F4B844A604C7D2CD78851CB35DFC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Sarayasign - The Lion's Road (2023) [FLAC|Lossless|image + .cue] <Melodic Hard R
 magnet:?xt=urn:btih:C56090D72C60747CEAA0AE63D2337F2439011F35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ SKYE Dynamics - это многоступенчатый динамический
 ```bash
 magnet:?xt=urn:btih:2E6F413A5A58351BF7EF374AB16D59365C004356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ Street Fighter - Second Hand Hero (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n'
 magnet:?xt=urn:btih:5027173AC9279C3B78EFDCC4043022955BB3E97C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ VA - SkyTop Classic (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Dee
 ```bash
 magnet:?xt=urn:btih:DB6FD4CC608864A83189B7E66291B7AC708A5CBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ George Lynch - Guitars at the End of the World (2023) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:6E4A0A7B650715B878F743B144493BFC8C29D13E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:6E4A0A7B650715B878F743B144493BFC8C29D13E
 ```bash
 magnet:?xt=urn:btih:5A4EBB7F26F575B05340DD9E6D77EEA8D955B142
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +548,8 @@ Total Stranger - Mean Season (1986-1990) Remastered, 2023, MelodicRock Classics 
 magnet:?xt=urn:btih:BE8EAA85BE6571BBE5DC86BCC931AD25E6320253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +573,8 @@ magnet:?xt=urn:btih:BE8EAA85BE6571BBE5DC86BCC931AD25E6320253
 ```bash
 magnet:?xt=urn:btih:45D5F226A313EA0955F5A636B03E2E182E818B83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +603,8 @@ OSI — американская прогрессив-рок-группа, пе�
 magnet:?xt=urn:btih:DCA46E77299BC47155CC898F96B6AFAB5FA748A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +628,8 @@ magnet:?xt=urn:btih:DCA46E77299BC47155CC898F96B6AFAB5FA748A0
 ```bash
 magnet:?xt=urn:btih:379AFADAC035BD93DDD39E99D25584AFD3FCEBCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:379AFADAC035BD93DDD39E99D25584AFD3FCEBCE
 magnet:?xt=urn:btih:700FF2D57DC75877D2E8AFB4FEED784F9AE2DAD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:700FF2D57DC75877D2E8AFB4FEED784F9AE2DAD6
 ```bash
 magnet:?xt=urn:btih:A9AEA2470ADACC9D777EE86E17D708487CE002DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +709,8 @@ King Gizzard & The Lizard Wizard - Ice, Death, Planets, Lungs, Mushrooms And Lav
 ```bash
 magnet:?xt=urn:btih:3AC8AC77B9F7E9779F7773CD98BF5562151932AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

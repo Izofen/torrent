@@ -1,3 +1,30 @@
+###  Публикация: 914844   (595850) от 03.07.2015
+
+Дмитрий Рус | Три медведя и легион зомби (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_595850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это рассказ о Вселенной Дмитрия Руса "Играть, чтобы Жить".
+От исполнителя: "Рекомендую к прослушиванию после ознакомления с книгами Дмитрия Руса "Война" и "Исход".Жанр: Фантастический боевик, ЛитРПГПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F39C2E2CDFDF7D9A1488E8DE4DFD1E57C88259
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548866   (596044) от 04.05.2022
 
 Константин Чит | TX4 (2022). [MP3, Проводник]
@@ -20,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:62F6F06C770C6A747F0B1BFAD93EFF91B38668A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:62F6F06C770C6A747F0B1BFAD93EFF91B38668A2
 magnet:?xt=urn:btih:321AA3C58909E220D165CB97F9F0C2DC490EDDB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:321AA3C58909E220D165CB97F9F0C2DC490EDDB8
 ```bash
 magnet:?xt=urn:btih:04DF0AFB6A36575F04DAE4A56CDD9D0C09C2BA09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +129,8 @@ magnet:?xt=urn:btih:04DF0AFB6A36575F04DAE4A56CDD9D0C09C2BA09
 magnet:?xt=urn:btih:9B9959E2DF5A1B3B2AB0127DC60D87B9F1C2C544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +154,8 @@ magnet:?xt=urn:btih:9B9959E2DF5A1B3B2AB0127DC60D87B9F1C2C544
 ```bash
 magnet:?xt=urn:btih:42FB540036E68AA952851F39731DB01D1F66C944
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +181,8 @@ magnet:?xt=urn:btih:42FB540036E68AA952851F39731DB01D1F66C944
 ```bash
 magnet:?xt=urn:btih:36C532704A0CC23044C54254B7725B097F6A94DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +210,8 @@ magnet:?xt=urn:btih:36C532704A0CC23044C54254B7725B097F6A94DD
 magnet:?xt=urn:btih:82F2680DC07B66DD3B20B177B35C49DDA08C59A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +236,8 @@ magnet:?xt=urn:btih:82F2680DC07B66DD3B20B177B35C49DDA08C59A8
 magnet:?xt=urn:btih:2D0A7410282EBE42C5F7D4A6E2F8334743794EFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +261,8 @@ magnet:?xt=urn:btih:2D0A7410282EBE42C5F7D4A6E2F8334743794EFE
 ```bash
 magnet:?xt=urn:btih:30A121CB22C5505C637B2A06D7A2F7D364666703
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +289,8 @@ magnet:?xt=urn:btih:30A121CB22C5505C637B2A06D7A2F7D364666703
 magnet:?xt=urn:btih:98F46A452C3BC8F5333F6F772DA0F94402888A56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +316,8 @@ magnet:?xt=urn:btih:98F46A452C3BC8F5333F6F772DA0F94402888A56
 magnet:?xt=urn:btih:702681AA55F1D1B302F6AAAA26B310626F009CC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +341,8 @@ magnet:?xt=urn:btih:702681AA55F1D1B302F6AAAA26B310626F009CC8
 ```bash
 magnet:?xt=urn:btih:EAE7A4DF4C566CDDF97BDB354A7339033E2DAA96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +368,8 @@ magnet:?xt=urn:btih:EAE7A4DF4C566CDDF97BDB354A7339033E2DAA96
 magnet:?xt=urn:btih:C3859D9A1552A9CE47603D7416F2906504086329
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +393,8 @@ magnet:?xt=urn:btih:C3859D9A1552A9CE47603D7416F2906504086329
 ```bash
 magnet:?xt=urn:btih:5882905FDCF7AC1D7DE4487C2972D403A12BF662
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +421,8 @@ magnet:?xt=urn:btih:5882905FDCF7AC1D7DE4487C2972D403A12BF662
 magnet:?xt=urn:btih:EB1B8E2FD0EFE083BB5EE6CE356D9F05211F9301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +446,8 @@ magnet:?xt=urn:btih:EB1B8E2FD0EFE083BB5EE6CE356D9F05211F9301
 ```bash
 magnet:?xt=urn:btih:6CC28EF1CFD400EF96287F23C7A69BC0AE992B6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +473,8 @@ magnet:?xt=urn:btih:6CC28EF1CFD400EF96287F23C7A69BC0AE992B6D
 magnet:?xt=urn:btih:AE92E57787A44C6692982927DE43DDF7DEDE8465
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +498,8 @@ magnet:?xt=urn:btih:AE92E57787A44C6692982927DE43DDF7DEDE8465
 ```bash
 magnet:?xt=urn:btih:915E4C5DC621A3A316F607B869D3EC54D9F8ED24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +525,8 @@ magnet:?xt=urn:btih:915E4C5DC621A3A316F607B869D3EC54D9F8ED24
 magnet:?xt=urn:btih:6C291EF7F56BB3866535B26C283D1C9A5BC8685E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +550,8 @@ magnet:?xt=urn:btih:6C291EF7F56BB3866535B26C283D1C9A5BC8685E
 ```bash
 magnet:?xt=urn:btih:1DBEB27A59BC9E60EF8FAD732173E65131F8246C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +578,8 @@ magnet:?xt=urn:btih:1DBEB27A59BC9E60EF8FAD732173E65131F8246C
 magnet:?xt=urn:btih:1651B62785B613A14695D42C3C6314152DD2DD9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +605,8 @@ magnet:?xt=urn:btih:1651B62785B613A14695D42C3C6314152DD2DD9B
 magnet:?xt=urn:btih:EFB4810DF3B6A10B7BA1764B203C0A3C8EFA2072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +631,8 @@ magnet:?xt=urn:btih:EFB4810DF3B6A10B7BA1764B203C0A3C8EFA2072
 magnet:?xt=urn:btih:D36B35975A703887748328A89894486253C1DBED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +656,8 @@ magnet:?xt=urn:btih:D36B35975A703887748328A89894486253C1DBED
 ```bash
 magnet:?xt=urn:btih:18A85E151C9F98EB3E6B376B740124E259E79B83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,30 +685,7 @@ magnet:?xt=urn:btih:18A85E151C9F98EB3E6B376B740124E259E79B83
 magnet:?xt=urn:btih:C3AA894E668BB01307F10139FA9DE7B136818FB3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526305   (598963) от 23.07.2012
-
-Михаил Гвор | «Ребёнки» пленных не берут [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_598963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Постъядерный мир. Новосибирская разведгруппа, выдвинутая в поисках более пригодных для проживания земель, прибывает в Таджикистан, в ущелье Пасруд. И невольно эти два человека провоцируют большой передел земель, который давно назревал в расколотом на владения многочисленных баши Таджикистане. Начинается "Большая Таджикская война"...
-Где-то в этих неприступных вершинах Фан, скрываются родители, брат и сестра Бориса Юринова - некогда гроссмейстера а теперь старшего сержанта новосибирской десантной бригады. Он чувствует, что они живы и что они здесь..... Он прошел ради них тысячи километров. Удастся ли ему встретиться с ними ? Не придётся ли заплатить за это слишком большую цену?Жанр: Фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0388EBBAEDB29232EF2087D7A831A64B3F1C2809
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

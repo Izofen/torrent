@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2DFFAC28210C8074BC96F8E79353F6835B7B37E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:2DFFAC28210C8074BC96F8E79353F6835B7B37E2
 magnet:?xt=urn:btih:574E6A1BD3703772A1B6649116BD5D94FE113D6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:574E6A1BD3703772A1B6649116BD5D94FE113D6A
 ```bash
 magnet:?xt=urn:btih:651EE2E50EBE67CC10ED6F3B5C4BFB8D2F13CAF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ VI Семейный образовательный форум Леонида А�
 magnet:?xt=urn:btih:3E83F52F718C200B653AE69BF0503F0E756B0ACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Scooter - Live at Parookaville festival (2024) IPTVRip [H.265/2160p] [hand made 
 ```bash
 magnet:?xt=urn:btih:CB2F923294052CB3A4569F6216766F65D4EF9175
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Columbia Records объявляет о выходе DVD бокса AC/DC “Plug
 magnet:?xt=urn:btih:19EE71BD822670085E18AE2142551D722AE78BC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ Seogi - Nap (2022) WEBRip [H.265/2160p]
 ```bash
 magnet:?xt=urn:btih:C1CB8B7FEB24A8638D6FD9C84DE8E81E9BD42CDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ Girls' Generation - Paparazzi (2012) WEBRip [H.265/2160p] [60fps, AI Upscale]
 magnet:?xt=urn:btih:B340637EEC2328790A8C4C0FED3BDD86D586A307
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ STAYC - BEBE (2025) WEBRip [H.265/2160p]
 magnet:?xt=urn:btih:F53CDAC184A4D8F91144FBB59EFC576DAA9DF5B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:F53CDAC184A4D8F91144FBB59EFC576DAA9DF5B0
 ```bash
 magnet:?xt=urn:btih:E79C9A0C25475442529EFB5F015E683B2E4814A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:E79C9A0C25475442529EFB5F015E683B2E4814A0
 magnet:?xt=urn:btih:3E1671ECEE2EE1AC38909FCAADD6795454F5F9B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ magnet:?xt=urn:btih:3E1671ECEE2EE1AC38909FCAADD6795454F5F9B2
 magnet:?xt=urn:btih:497E3679572A77CDAE7572F8027C67429DCEAE9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:497E3679572A77CDAE7572F8027C67429DCEAE9A
 ```bash
 magnet:?xt=urn:btih:051BBFD43FC7BC4C44D12C7AFE0AB0DB858AA4B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ magnet:?xt=urn:btih:051BBFD43FC7BC4C44D12C7AFE0AB0DB858AA4B4
 magnet:?xt=urn:btih:89BE5D30974B0F9908B9B919398C5557F3D44178
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ Epica: Live at The Symphonic Synergy представляет собой мас�
 magnet:?xt=urn:btih:419120D1847BD180703FF7C2DF23F0D290274D28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:419120D1847BD180703FF7C2DF23F0D290274D28
 ```bash
 magnet:?xt=urn:btih:0E0AF66D69E8BCE554DA0ED23F61A2066ECCD51E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ Scooter - Live in Moscow (2020) CamRip [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:DFBFC81E614BA3DBA87125630FA9998F2436D55E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +496,8 @@ Rammstein - LIVE: Stadium Tour 2024 (2025) [H.264/1080p] CamRip
 magnet:?xt=urn:btih:E6D2CF6257945025FE1CB3CD7DA01D7F4D3F3146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ Devin Townsend - The Moth. Live with Noord Nederlands Orkest (2025) WEB-DL [1080
 ```bash
 magnet:?xt=urn:btih:320E22C5DB21781A134A81EC9FACDCF5ED25D7B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +549,8 @@ magnet:?xt=urn:btih:320E22C5DB21781A134A81EC9FACDCF5ED25D7B5
 ```bash
 magnet:?xt=urn:btih:A2F499EBC70291F1E08812C7E0E31098333AEE3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +579,8 @@ magnet:?xt=urn:btih:A2F499EBC70291F1E08812C7E0E31098333AEE3D
 magnet:?xt=urn:btih:777C5727FE3301F1AFE5BA7A579F6DE4D7B1529A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +608,8 @@ magnet:?xt=urn:btih:777C5727FE3301F1AFE5BA7A579F6DE4D7B1529A
 magnet:?xt=urn:btih:9E0B6B665401E60F234A38AE66F5DAA140D727D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +634,8 @@ magnet:?xt=urn:btih:9E0B6B665401E60F234A38AE66F5DAA140D727D8
 magnet:?xt=urn:btih:300FF8A56EA269872C7DD9D657E43E4A9312AA68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +659,8 @@ magnet:?xt=urn:btih:300FF8A56EA269872C7DD9D657E43E4A9312AA68
 ```bash
 magnet:?xt=urn:btih:46F2269705533F409EFD54B53F6FF61F7813FC33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +689,8 @@ magnet:?xt=urn:btih:46F2269705533F409EFD54B53F6FF61F7813FC33
 magnet:?xt=urn:btih:EFCCDCE32E19045C7E551FC56E5F09389C97A893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +714,8 @@ Gyeongree - Cherry (2024) WEBRip [H.265/2160p] [60 fps]
 ```bash
 magnet:?xt=urn:btih:353938B9021BEE1AE0784D3786936E30FAFFF37F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

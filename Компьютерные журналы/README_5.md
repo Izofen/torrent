@@ -19,6 +19,8 @@ Linux Magazine - журнал, целиком посвященный опера�
 magnet:?xt=urn:btih:900F1C6968AE199716E917E099CC20A1E7DDDA10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:900F1C6968AE199716E917E099CC20A1E7DDDA10
 ```bash
 magnet:?xt=urn:btih:A20462C2051CA4C81E82429A73EF63D67CAE2590
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:A20462C2051CA4C81E82429A73EF63D67CAE2590
 magnet:?xt=urn:btih:7155B663CA4B0D5A4E949E4D877A5A1D9FA3607A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ InfoCity - Азербайджанский ежемесячный журнал о
 ```bash
 magnet:?xt=urn:btih:8E501FA29F0D4FF1464031B28338347D802CC152
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Linux Format — первый ежемесячный журнал, целико�
 magnet:?xt=urn:btih:835BAEF01C6C30BDBFA0A46173DAEC243A942A2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:835BAEF01C6C30BDBFA0A46173DAEC243A942A2C
 ```bash
 magnet:?xt=urn:btih:A19B54194517F0C03A926DF815158C4BFA27EF25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:A19B54194517F0C03A926DF815158C4BFA27EF25
 magnet:?xt=urn:btih:0A917C5CC7D4739131D5B71E4298364FC7E40DCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:0A917C5CC7D4739131D5B71E4298364FC7E40DCF
 ```bash
 magnet:?xt=urn:btih:D02DA844D4EB0E55799FF9129080C75B25F4F080
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ NAPP - торговая ассоциация и ведущий ресурс дл
 magnet:?xt=urn:btih:1F0F60C485006757744D0F5CF6F286C695B985B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ NAPP - торговая ассоциация и ведущий ресурс дл
 ```bash
 magnet:?xt=urn:btih:FBAB5AFD281EFF8B766908D35AE8F997513C8596
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ NAPP - торговая ассоциация и ведущий ресурс дл
 magnet:?xt=urn:btih:B45595B101718DA5398A889D0776A509438278A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ NAPP - торговая ассоциация и ведущий ресурс дл
 ```bash
 magnet:?xt=urn:btih:F1EE2B16E6975707472767A1022971D61D319F92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ NAPP - торговая ассоциация и ведущий ресурс дл
 magnet:?xt=urn:btih:90AF225FB7AD14FDC60854FF376C24D8CF0DBD4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:AF6DE775DE41E3E27FA0E7B60BB0EA1E623920F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Linux Magazine - журнал, целиком посвященный опера�
 magnet:?xt=urn:btih:C6AF676D940E746BB2BCC3FD194B0DE52E445434
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:88B50DFA4B749A5E2C9DB15021CF6A80643CB26E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ NAPP - торговая ассоциация и ведущий ресурс дл
 magnet:?xt=urn:btih:5D188288F630DD225052AEACA4155E11C0334029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ NAPP - торговая ассоциация и ведущий ресурс дл
 ```bash
 magnet:?xt=urn:btih:AFF6020F167EDF1FC8B949F074A6C6450317E4FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ NAPP - торговая ассоциация и ведущий ресурс дл
 magnet:?xt=urn:btih:04735368EAF399C7AECFABDB85A3BA85DEA44E09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:04735368EAF399C7AECFABDB85A3BA85DEA44E09
 ```bash
 magnet:?xt=urn:btih:F69BA0495D249300E771FEB02DEBE9EE08C58DA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:F69BA0495D249300E771FEB02DEBE9EE08C58DA4
 magnet:?xt=urn:btih:D2514BB61C4CDD15D0FF6A8E6DDB641532D640F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Linux Format был первым журналом о Linux в Соединенн
 ```bash
 magnet:?xt=urn:btih:54A775174763C24327561B99FA7D798D986BA175
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:54A775174763C24327561B99FA7D798D986BA175
 magnet:?xt=urn:btih:CC0AD5412DA7C1F534F72F5B067A2AE131638E21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:CC0AD5412DA7C1F534F72F5B067A2AE131638E21
 ```bash
 magnet:?xt=urn:btih:DADD27891E6AC6004E072431299CC7D3132DEF7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:DADD27891E6AC6004E072431299CC7D3132DEF7C
 magnet:?xt=urn:btih:EC0BB14B88817F19DBF0A14595192432EA2DC760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:EC0BB14B88817F19DBF0A14595192432EA2DC760
 ```bash
 magnet:?xt=urn:btih:BFED92A1BBECA7F2A3BC9E5FBC59C23F2BAF41E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

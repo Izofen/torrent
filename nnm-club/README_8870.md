@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3108F9058DB731A16120E9EF84068989CB79AF47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Johannes Linstead - Azul (2017) [FLAC|Lossless|tracks + .cue] <Instrumental, New
 magnet:?xt=urn:btih:D7B79584F19C0547920189B4F02DFBE0DAB7BD60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ iCash - приложение, которое позволяет вести пе�
 ```bash
 magnet:?xt=urn:btih:AD9075D1C16AEE9801B638237A37BAE0623A8F9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ VA - По волне моей памяти 2: Том30 (Compiled by Виктор
 magnet:?xt=urn:btih:8CDE0302BAC065DC9BFBDBB28CA8CAEED4C50560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ VA - По волне моей памяти 2: Том32 (Compiled by Виктор
 ```bash
 magnet:?xt=urn:btih:F0FFCAD286611854C22756125575EE092401C41F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Mike Lazarev - Unhinged (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano Sol
 magnet:?xt=urn:btih:0523F7D3FFFA10D8147CA3B1D0C2158722A3DD41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:0523F7D3FFFA10D8147CA3B1D0C2158722A3DD41
 magnet:?xt=urn:btih:135B0D351ECECE052C81565EBBD9A703A344FBD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:135B0D351ECECE052C81565EBBD9A703A344FBD9
 ```bash
 magnet:?xt=urn:btih:5197D07566B85D9DFAFEF61913190C569E2D622A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ Bob Seger - I Knew You When (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:E8016EFEF6843D82BBE29309C9C60B9725FE025C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ InfoCity - Азербайджанский ежемесячный журнал о
 ```bash
 magnet:?xt=urn:btih:33BF63CB16921EEBA57867657654381E1B428226
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:33BF63CB16921EEBA57867657654381E1B428226
 magnet:?xt=urn:btih:A0889D37D61AA61C3BE8E23FB9E9AFF71EF8A0F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:A0889D37D61AA61C3BE8E23FB9E9AFF71EF8A0F4
 ```bash
 magnet:?xt=urn:btih:AD5595E83FDD38113FBFADBB6B3C63DF5C5FB58E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:AD5595E83FDD38113FBFADBB6B3C63DF5C5FB58E
 ```bash
 magnet:?xt=urn:btih:8E4F10492092F230D0124A6B78BD1E09282768EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ No Comment - Break The Rulez (2017) [MP3|320 Kbps] <Psy-Trance>
 magnet:?xt=urn:btih:99DC041F6F55530D145D6CF01F888D451B9F3095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ VA - Good Story Rock And Roll (2017) [MP3|256-320 Kbps] <Rock and Roll>
 ```bash
 magnet:?xt=urn:btih:576596466A56EEEA8E16F2943FA226E39B613015
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ Miwon - Discography 4 Albums (2004-2017) City Centre Offices, n5MD [FLAC|Lossles
 magnet:?xt=urn:btih:E0AE5A83344B4D94389D9A21E99CCA68E3B0ACE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ Katharine McPhee - I Fall In Love Too Easily (2017) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:8739821A684B9CC8F3B75D0008461E8D4947C438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ magnet:?xt=urn:btih:8739821A684B9CC8F3B75D0008461E8D4947C438
 magnet:?xt=urn:btih:942F90AA0194B130C2C6EFFE3E6D40D0D9ECD61C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:942F90AA0194B130C2C6EFFE3E6D40D0D9ECD61C
 ```bash
 magnet:?xt=urn:btih:BD81DBAC15F230D4CAE12633C97B50EEC77995CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +548,8 @@ VA - Хиты под водочку: Круговороты судьбы (2018) 
 magnet:?xt=urn:btih:FF84A3B4C58E4A328DC5318D15BCE3BEC2E497F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +573,8 @@ magnet:?xt=urn:btih:FF84A3B4C58E4A328DC5318D15BCE3BEC2E497F7
 ```bash
 magnet:?xt=urn:btih:1F64E1B1E69EC616F5194E41589E1F35CBD6366E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +603,8 @@ Equilibrium - Turis Fratyr (2005) [MP3|320 kbps]<Epic Folk/Viking Metal>
 magnet:?xt=urn:btih:EDA3A9990102DD60A866F1FCBE440EC07B63213A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ NNM-Club Sound Cleaner's - Cleared Music Tracks (No Watermark) - Vol.01 [MP3]
 magnet:?xt=urn:btih:19C0F1328370B81A583EA53100306225E33A4703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:19C0F1328370B81A583EA53100306225E33A4703
 ```bash
 magnet:?xt=urn:btih:2C8C6786E57D2B38F76FC4C17B496B67C95EA6E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:2C8C6786E57D2B38F76FC4C17B496B67C95EA6E1
 magnet:?xt=urn:btih:EC4150011870370018B024E302719E65125B7107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ magnet:?xt=urn:btih:EC4150011870370018B024E302719E65125B7107
 ```bash
 magnet:?xt=urn:btih:A80BEDB68F9381462B5E32D4B42B3F788B805BBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

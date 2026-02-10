@@ -1,3 +1,31 @@
+###  Публикация: 1538067   (664229) от 19.03.2022
+
+Пётр Жгулёв | Город гоблинов (Книга 5). Возвращение (Часть 2) (2022) [MP3, Амир Шакиров]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664229.jpg" />
+</div>
+
+
+###  Подробнее
+
+В наш мир пришла Великая Игра, принёсшая с собой бесчисленное количество миров. Герой книги – один из игроков. Игрок получает шанс на обретение богатства и власти, однако при этом рискует сложить голову. Игрок – лишь пешка в руках богов. Но любая пешка мечтает стать ферзём. Почему бы не попытаться?
+
+К сожалению, поставленная задача – уничтожить армию нежити – оказалась (   Читать дальше...   )Жанр: Боевое фэнтези, Попаданцы, LitRPGПродолжительность: 09:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9AE5A1F32622D1B246EA706A1135B19864F5591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538010   (664291) от 19.03.2022
 
 Вячеслав Кумин | Адам. Братский анклав (2022) [MP3, Александр Сидоров]
@@ -19,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:F83E6464428DB99E29FC4FB4ABD9E8E91428CF27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +74,8 @@ magnet:?xt=urn:btih:F83E6464428DB99E29FC4FB4ABD9E8E91428CF27
 magnet:?xt=urn:btih:77DA861B53432BFC056C28D16522F038CCDB7A2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +99,8 @@ magnet:?xt=urn:btih:77DA861B53432BFC056C28D16522F038CCDB7A2B
 ```bash
 magnet:?xt=urn:btih:AA1808EAC99AE7A842DB430E96461B8D513FCC89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +128,8 @@ magnet:?xt=urn:btih:AA1808EAC99AE7A842DB430E96461B8D513FCC89
 magnet:?xt=urn:btih:DB7BE8078F28D8322CAAF372995ABB96A204AA9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +153,8 @@ magnet:?xt=urn:btih:DB7BE8078F28D8322CAAF372995ABB96A204AA9D
 ```bash
 magnet:?xt=urn:btih:C960C4B116946A9D05C92AF47337037B82E7D679
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +180,8 @@ magnet:?xt=urn:btih:C960C4B116946A9D05C92AF47337037B82E7D679
 magnet:?xt=urn:btih:EC2179FC3CC7F83C5896B218445E5BF9551AB5F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +205,8 @@ magnet:?xt=urn:btih:EC2179FC3CC7F83C5896B218445E5BF9551AB5F9
 ```bash
 magnet:?xt=urn:btih:3962EAD93DA88CD1F6E2919D01E866133F4442A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +233,8 @@ magnet:?xt=urn:btih:3962EAD93DA88CD1F6E2919D01E866133F4442A8
 magnet:?xt=urn:btih:11A4C34F1CC6E82CCB044A8F6765BDB87AA1DD1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +258,8 @@ magnet:?xt=urn:btih:11A4C34F1CC6E82CCB044A8F6765BDB87AA1DD1E
 ```bash
 magnet:?xt=urn:btih:EAB818D11A240A00EF2E696278A37EDA9D237DE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +285,8 @@ magnet:?xt=urn:btih:EAB818D11A240A00EF2E696278A37EDA9D237DE4
 magnet:?xt=urn:btih:51CC7BAF18566ED4670D54ED6D4D037A3448E6CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +310,8 @@ magnet:?xt=urn:btih:51CC7BAF18566ED4670D54ED6D4D037A3448E6CD
 ```bash
 magnet:?xt=urn:btih:449A448250100D143E2FF303F54D9366B28ACA8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +337,8 @@ magnet:?xt=urn:btih:449A448250100D143E2FF303F54D9366B28ACA8A
 magnet:?xt=urn:btih:4E795EE94CABC42AF88CDCCE520ACB181FF5D2FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +362,8 @@ magnet:?xt=urn:btih:4E795EE94CABC42AF88CDCCE520ACB181FF5D2FA
 ```bash
 magnet:?xt=urn:btih:3042D01CAD2CC5EEE678C6F72EEBAC9EAAF83677
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +390,8 @@ magnet:?xt=urn:btih:3042D01CAD2CC5EEE678C6F72EEBAC9EAAF83677
 magnet:?xt=urn:btih:1FA610BDEE147898EE57E0F092E27695CB9AB616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +415,8 @@ magnet:?xt=urn:btih:1FA610BDEE147898EE57E0F092E27695CB9AB616
 ```bash
 magnet:?xt=urn:btih:D2F2BF3FA23F4C5B15937DF80EECCE31EED2B249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +443,8 @@ magnet:?xt=urn:btih:D2F2BF3FA23F4C5B15937DF80EECCE31EED2B249
 magnet:?xt=urn:btih:8136F8BFA2F1838AFB3F1FAF9073693A28593FB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +468,8 @@ magnet:?xt=urn:btih:8136F8BFA2F1838AFB3F1FAF9073693A28593FB4
 ```bash
 magnet:?xt=urn:btih:EBBBE50AF86580A51262E931E82DF09313D72C4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +495,8 @@ magnet:?xt=urn:btih:EBBBE50AF86580A51262E931E82DF09313D72C4B
 magnet:?xt=urn:btih:0217DD22866218138B9A9624ABFEF497C8C7F936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +521,8 @@ magnet:?xt=urn:btih:0217DD22866218138B9A9624ABFEF497C8C7F936
 magnet:?xt=urn:btih:7C8075A5E61579E171E54E43AF2AED20D3D7C38B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +546,8 @@ magnet:?xt=urn:btih:7C8075A5E61579E171E54E43AF2AED20D3D7C38B
 ```bash
 magnet:?xt=urn:btih:EC99449F3EC50A7B9E4434731E7B707447CBED90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +575,8 @@ magnet:?xt=urn:btih:EC99449F3EC50A7B9E4434731E7B707447CBED90
 magnet:?xt=urn:btih:DBD5AB6AABD6A4476559AB369309835EBE4B955B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +601,8 @@ magnet:?xt=urn:btih:DBD5AB6AABD6A4476559AB369309835EBE4B955B
 ```bash
 magnet:?xt=urn:btih:F6FA0F9150D904C53DA80FC1CB34FF4E3CD6EAF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +630,8 @@ magnet:?xt=urn:btih:F6FA0F9150D904C53DA80FC1CB34FF4E3CD6EAF0
 magnet:?xt=urn:btih:95BDADCC552074C4CF44D335E0D6B67772CFD1F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +655,8 @@ magnet:?xt=urn:btih:95BDADCC552074C4CF44D335E0D6B67772CFD1F9
 ```bash
 magnet:?xt=urn:btih:E09788F36087D2DE3AFA1F33E022881E35A7100A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +682,7 @@ magnet:?xt=urn:btih:E09788F36087D2DE3AFA1F33E022881E35A7100A
 magnet:?xt=urn:btih:CC8D8F7D9FD7EC11AB9E05FC01373A8431019F0F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537429   (667774) от 16.03.2022
-
-Кристи Голден | Звёздные войны: Ученик тьмы (2022) [MP3, Андрей Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Армии темной стороны и Республики продолжают сражаться за власть в Галактике. Стратегия бывшего мастера-джедая, а ныне повелителя ситхов, графа Дуку становится все более агрессивной и безжалостной. Несмотря на мастерство джедаев и доблесть находящихся под их командованием клонов, каждое новое поражение оборачивается огромными жертвами. После гибели огромной флотилии (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаПродолжительность: 10:57:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:825E49CE95BA4224956E681280A82CB412555A40
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

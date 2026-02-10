@@ -22,6 +22,8 @@ Fleddy Melculy - Antichlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Me
 magnet:?xt=urn:btih:7425D592ABACF21C70519F27320BD1C5C70D9E06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Hateful Abandon - группа, играющая уникальную смесь
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +85,8 @@ The Other - Alienated (2025) [FLAC|Lossless|WEB-DL|tracks] <Horror Punk, Heavy M
 magnet:?xt=urn:btih:35892A27CBC67773163C2B12949CF0C9B369D948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -107,6 +113,8 @@ Wiltwither - Pure Light (2025) [FLAC|Lossless|WEB-DL|tracks] <Chaotic Hardcore, 
 ```bash
 magnet:?xt=urn:btih:749497682498C54B2319D25D8CF38C97C4BD154A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +149,8 @@ The Rasmus - The Rasmus (2012) [FLAC|Lossless]<Alternative Rock, Melodic Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +177,8 @@ Devil's Black Shoes - Devil's Black Shoes, Vol. 1-2 (2023) 2CD [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:CF6E65AB0D1CAF94120996D7DEF032C3CE66946A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +207,8 @@ Serj Tankian - Perplex Cities (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Rock, Alt
 magnet:?xt=urn:btih:90415116C5889D3A3F67BC0A6600BE8E58D7FE5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +236,8 @@ Stereophonics - британская рок-группа. Основана в 19
 ```bash
 magnet:?xt=urn:btih:C32AFFA22C94489D2191DC0102B7F033A537A354
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +272,8 @@ The Rasmus - Greatest Hits (2008) 2CD [FLAC|Lossless]<Rock, Alternative, Metal, 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +300,8 @@ The Rasmus - Greatest Hits (2008) 2CD [FLAC|Lossless]<Rock, Alternative, Metal, 
 ```bash
 magnet:?xt=urn:btih:997BD193549EE1D9404791198B4D98905359B2E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +336,8 @@ The Rasmus - The Rasmus (2012) [FLAC|Lossless]<Rock, Alternative Rock, Symphonic
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +364,8 @@ Various - Killed By Deaf - A Punk Tribute To Motörhead (2025) Compilation [FLAC
 ```bash
 magnet:?xt=urn:btih:C1109CB036ED854440DC4D47589C261938C1BB62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +400,8 @@ Twelfth of Never была сформирована в конце 1997 года, 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +430,8 @@ Papa Roach — американская рок-группа из города В
 magnet:?xt=urn:btih:BFCB0EA693B91F02D89CBB24867D635730A2D732
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +458,8 @@ Regina Spektor - What We Saw From The Cheap Seats (2012) [FLAC (tracks+cue)|Loss
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +494,8 @@ Iggy Pop - Apres (2012) [FLAC|Lossless]<Post-Punk>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +528,8 @@ Arctic Monkeys — британская рок-группа, сформиров�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +556,8 @@ Brazzaville - Welcome to Brazzaville 2 (2012) [FLAC|Lossless|tracks + .cue] <Cha
 ```bash
 magnet:?xt=urn:btih:22386971346F49897BDDCF1C37016B6E46C7DBE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +586,8 @@ Pere Ubu - The Long Goodbye (2019) 2 CD [FLAC|Lossless|tracks + .cue] <Post-Punk
 magnet:?xt=urn:btih:1C53E98693577259BD70F1ABD19AE9B87CB23D03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +614,8 @@ My Vitriol - 2 Albums (2001-2016) [FLAC|Lossless|tracks + .cue] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:FDCAB63582FFEF5CEC6239648E0D56BD16FDCD90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +644,8 @@ Stand Atlantic - Skinny Dipping (2018) [FLAC|Lossless|tracks + .cue] <Pop-Punk, 
 magnet:?xt=urn:btih:1759E0CBF4DF1F97819AEC059367D4B92B67BF1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +672,8 @@ My Vitriol - The Secret Sessions (2016) [FLAC|Lossless|tracks] <Alternative Rock
 ```bash
 magnet:?xt=urn:btih:73674B6E9ACD16F944BC22EDA1E9E52284BD4BEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +702,8 @@ Beck ‎ - Hyperspace (2019) [FLAC|Lossless|tracks] <Indie Rock, Alternative Roc
 magnet:?xt=urn:btih:CF0DBB2D85C439999E337C5109DEF482F1C23A22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -684,6 +730,8 @@ Limp Bizkit - Collected (2008) Compilation [FLAC|Lossless|tracks + .cue] <Nu Met
 ```bash
 magnet:?xt=urn:btih:34F0AB5AB598E4D8F44CEC7AAC1215F676BCB5AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -712,6 +760,8 @@ Shadows - illuminate (2017) [FLAC|Lossless|tracks + .cue] <Melodic Hardcore, Pun
 magnet:?xt=urn:btih:7DB39D6D4240E0B63A380EC07242078E0A6CDC46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -738,6 +788,8 @@ Milky Chance ‎ - Mind the Moon (2019) [FLAC|Lossless|tracks + .cue] <Indie Roc
 ```bash
 magnet:?xt=urn:btih:2F22A29DFA39476B200A3494DAEF800606C4F080
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

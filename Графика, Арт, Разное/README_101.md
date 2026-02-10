@@ -1,51 +1,3 @@
-###  Публикация: 1138573   (658662) от 03.06.2017
-
-Иллюстрации - Art of Alphonse Mucha [JPG, PNG]
-
->>Графика, Арт, Разное
->>Книжная иллюстрация
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658662.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы известного художника-иллюстратора Альфонса Мариа Муха.Формат: JPG, PNGРазрешение файлов: 246x640 - 3572x1934
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD992ECA386ABAE626E3CB57D0D4A149EBF9D1CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1225680   (658690) от 17.05.2018
-
-Обои - Ultra HD 3840x2160 Wallpaper Pack 285 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658690.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка обоев на различную тематикуФормат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3712539248CF984DF45AC0D857F90770B1CF6EA4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225673   (658706) от 17.05.2018
 
 Обои - Сборник разнообразных обоев 1920x1200 #320 [JPG, PNG]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:3712539248CF984DF45AC0D857F90770B1CF6EA4
 ```bash
 magnet:?xt=urn:btih:0DD006F1719E75FDA2049D91F7B4200AE52F368A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +46,8 @@ magnet:?xt=urn:btih:0DD006F1719E75FDA2049D91F7B4200AE52F368A
 magnet:?xt=urn:btih:55C3C9948A4EA51D2324BC1415D2430F4D3315F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +71,8 @@ magnet:?xt=urn:btih:55C3C9948A4EA51D2324BC1415D2430F4D3315F5
 ```bash
 magnet:?xt=urn:btih:A1490D0EBF5095D07EAF4ECF9044F982BCAD5B4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +98,8 @@ magnet:?xt=urn:btih:A1490D0EBF5095D07EAF4ECF9044F982BCAD5B4F
 magnet:?xt=urn:btih:391A37764E08FBC252CF54B93443A3E6A567A26C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +123,8 @@ magnet:?xt=urn:btih:391A37764E08FBC252CF54B93443A3E6A567A26C
 ```bash
 magnet:?xt=urn:btih:78B8EA0A037EFE74ECC23F04359D3CBCAA852B1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +151,8 @@ magnet:?xt=urn:btih:78B8EA0A037EFE74ECC23F04359D3CBCAA852B1C
 magnet:?xt=urn:btih:C92A03AEA8B1533B9165A96C4C334937017754D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +177,8 @@ magnet:?xt=urn:btih:C92A03AEA8B1533B9165A96C4C334937017754D7
 magnet:?xt=urn:btih:68FC4A3E671BBFF4425DADACA0B17505B14421D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +202,8 @@ magnet:?xt=urn:btih:68FC4A3E671BBFF4425DADACA0B17505B14421D5
 ```bash
 magnet:?xt=urn:btih:9EAF7BE1E846F4D768E19701C2B929F9F6905CCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +231,8 @@ magnet:?xt=urn:btih:9EAF7BE1E846F4D768E19701C2B929F9F6905CCC
 ```bash
 magnet:?xt=urn:btih:2FE0C31DC1FBFACA4CEA1C27B3F13AAA9B92163D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +262,8 @@ magnet:?xt=urn:btih:2FE0C31DC1FBFACA4CEA1C27B3F13AAA9B92163D
 magnet:?xt=urn:btih:F65FF46328D24D97AC2F0EB0AE3B33B73069D56E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +290,8 @@ magnet:?xt=urn:btih:F65FF46328D24D97AC2F0EB0AE3B33B73069D56E
 magnet:?xt=urn:btih:5BF7067ED6B7B56E6185060F1A8091CB97789427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +315,8 @@ magnet:?xt=urn:btih:5BF7067ED6B7B56E6185060F1A8091CB97789427
 ```bash
 magnet:?xt=urn:btih:EFAA94B49D1D4BC87DC1E3F4CBD79630D545584E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +342,8 @@ magnet:?xt=urn:btih:EFAA94B49D1D4BC87DC1E3F4CBD79630D545584E
 magnet:?xt=urn:btih:F5C41D8D3F2B2ED6ABADF6C71B2AC8E5F23F5D2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +367,8 @@ magnet:?xt=urn:btih:F5C41D8D3F2B2ED6ABADF6C71B2AC8E5F23F5D2B
 ```bash
 magnet:?xt=urn:btih:E0ED2307EF950E95691B3051A8EDE6435FC09905
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +394,8 @@ magnet:?xt=urn:btih:E0ED2307EF950E95691B3051A8EDE6435FC09905
 magnet:?xt=urn:btih:E73B875436A2888E002013F97ED98E3AEA7BA3E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +419,8 @@ magnet:?xt=urn:btih:E73B875436A2888E002013F97ED98E3AEA7BA3E5
 ```bash
 magnet:?xt=urn:btih:F7D7150B9AD7BAEAE5A912C70A5EFA9F744B0275
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +446,8 @@ magnet:?xt=urn:btih:F7D7150B9AD7BAEAE5A912C70A5EFA9F744B0275
 magnet:?xt=urn:btih:F02805A7FEBDE8281E8A7F4D6A894D5C27925E2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +471,8 @@ magnet:?xt=urn:btih:F02805A7FEBDE8281E8A7F4D6A894D5C27925E2C
 ```bash
 magnet:?xt=urn:btih:EA75C569BBCBAA2B00E030A4AED9938B96969FCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +498,8 @@ magnet:?xt=urn:btih:EA75C569BBCBAA2B00E030A4AED9938B96969FCC
 magnet:?xt=urn:btih:70E933C06CD05756F5DE673466D067C89D3EFAC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +523,8 @@ magnet:?xt=urn:btih:70E933C06CD05756F5DE673466D067C89D3EFAC7
 ```bash
 magnet:?xt=urn:btih:9C356E47CB1C21C484F200DEC5523BB874AB23D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +550,8 @@ magnet:?xt=urn:btih:9C356E47CB1C21C484F200DEC5523BB874AB23D9
 magnet:?xt=urn:btih:DCB75A19AEA3427ACDE2ECCC4824753987542ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +575,8 @@ magnet:?xt=urn:btih:DCB75A19AEA3427ACDE2ECCC4824753987542ED3
 ```bash
 magnet:?xt=urn:btih:38BB2668B37B0B7FE62AFA0EF266C94569286075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +602,8 @@ magnet:?xt=urn:btih:38BB2668B37B0B7FE62AFA0EF266C94569286075
 magnet:?xt=urn:btih:64A74183583E15DAC001C020A05E952F0E59FBE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +627,62 @@ magnet:?xt=urn:btih:64A74183583E15DAC001C020A05E952F0E59FBE3
 ```bash
 magnet:?xt=urn:btih:CAE165FAAF683118BBD61DA82B99CEB07947B8A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1224190   (667113) от 09.05.2018
+
+Картинки - Сборник почтовых открыток СССР 7-15 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почтовые открытки СССР
+7-15 сборокФормат: JPGРазрешение файлов: 551x810-3345x1060
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E6CFDEA449EAD9B2BE8E6C4CE1F3CB9045F708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291503   (668511) от 25.03.2019
+
+Иконки - Good Stuff Non Nonsense - Good Idea [SVG, PNG, AI, EPS]
+
+>>Графика, Арт, Разное
+>>Иконки и аватарки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_668511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные иконки векторе и растре, рисованные вручную. Материал раздается с официальной документацией.
+Автор: Agata Kuczminska (Tarnow, Poland)Формат: SVG, PNG, AI, EPS, PDFРазрешение файлов: 64 x 64 - 512 x 512
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20066668423AEDA47EBD5EF46ACD56BF1A7D65D8
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

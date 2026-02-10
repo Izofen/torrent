@@ -1,3 +1,148 @@
+###  Публикация: 1541137   (646754) от 02.04.2022
+
+Miley Cyrus - Attention: Miley Live (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ATTENTION (01:36)
+02. We Can't Stop X Where Is My Mind? (Live) (05:35)
+03. Plastic Hearts (Live) (03:27)
+04. Heart of Glass (Live) (03:08)(   Читать дальше...   )Жанр: PopПродолжительность: 01:22:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0B75404D46E9BAB33DBEFF080D74CA565A337F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292480   (646814) от 29.03.2019
+
+Sumeria - Golden Tears (1977) LP [MP3|320 Kbps] <Electronic, Downtempo, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance And Leave It All Behind You (4:47)
+02. The Encounter (5:27)
+03. Cosmic Traveller (2:58)
+04. Somewhere, Elsewhere (4:42)(   Читать дальше...   )Жанр: Electronic, Downtempo, DiscoПродолжительность: 00:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6E55389E4B1B32A6B9C327FB93976A13D948B2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292308   (646815) от 29.03.2019
+
+Heat Exchange - One Step Ahead (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор продюсер и аранжировщик - Brian Bennett. Считается лучшим ударником "The Shadows". За первые 10 лет он написал или соавтор более 100 треков для них, а также более 20 композиций для "Cliff Richard"...01. You're Gonna Love This (7:07)
+02. Shake Down (6:55)
+03. Love Is the Reason (7:58)
+04. One Step Ahead (6:25)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:196E90891F4067D443187A376749620F170C9409
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227403   (646827) от 26.05.2018
+
+Orient Express - A Desert Fantasy (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desert Fantasy (12:53)
+02. Nights of Roses (3:40)
+03. Desert Disco (5:42)
+04. Ali's Funk (3:16)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:31:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A55CF74DAA4902FB12C8992C498C669FF07D9CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541151   (646852) от 02.04.2022
+
+Britney Spears - Circus (2008) Deluxe Version [FLAC 2.0|44.1/24|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Womanizer
+02. Circus
+03. Out From Under
+04. Kill The Lights(   Читать дальше...   )Жанр: PopПродолжительность: 00:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CAEEDE1C98C1897368BAE0B6894A1A02A8DB7EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1540874   (646857) от 02.04.2022
 
 Mad Show Boys - Чудо из ниоткуда (2020) [MP3|320 Kbps] <Pop>
@@ -21,6 +166,8 @@ Mad Show Boys - Чудо из ниоткуда (2020) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:C2450D3C8F90307813E3114402DF0E8437B9287E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +202,8 @@ magnet:?xt=urn:btih:C2450D3C8F90307813E3114402DF0E8437B9287E
 magnet:?xt=urn:btih:009CB2478A5EF00F570649CA78D93ED581442902
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -78,6 +227,8 @@ Amy Correia - Christmas in L.A. (2000) Single [FLAC|Lossless|tracks + .cue] <Pop
 ```bash
 magnet:?xt=urn:btih:7AEFDE6CA5AFE1F41EFCD6BFC457C5CB071053B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -106,6 +257,8 @@ Famous Groupies - Rehearsing The Multiverse (2019) 2020,  ATOZ [FLAC|Lossless|im
 magnet:?xt=urn:btih:614713B4DDD67011F3659F9F16752A5B6FF7D621
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -132,6 +285,8 @@ magnet:?xt=urn:btih:614713B4DDD67011F3659F9F16752A5B6FF7D621
 ```bash
 magnet:?xt=urn:btih:80C5B40F1910CA54FF23BBDCD0E6B3518B605235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +320,8 @@ Flo Rida - Wild Ones (2012) [MP3|320 кб/с]<Pop, Dance, R&B>
 magnet:?xt=urn:btih:13306F1CB388651C3B0C310D5FCE42A9FA244C75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +349,8 @@ VA - Disco Хиты 80 - 90. Выпуск 3 (2008) [APE|Lossless|image + .cue] <
 magnet:?xt=urn:btih:D888A8B3E8C008AB9D3CC60BF1D240F8B18BF07E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +374,8 @@ N/AЖанр: DiscoПродолжительность: 01:19:29
 ```bash
 magnet:?xt=urn:btih:500B33858116CBFC52B41373FBDDE98327014D55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +404,8 @@ magnet:?xt=urn:btih:500B33858116CBFC52B41373FBDDE98327014D55
 magnet:?xt=urn:btih:B74724DA49B66E5DF42C8BDFC4D08A142B9CA207
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +432,8 @@ Guru Groove Foundation - Over You (2016) EP [MP3|320 Kbps] <Dancepop, Funk, Neo 
 ```bash
 magnet:?xt=urn:btih:423727F6458B7D8B3CEA82BF18836B14461E94CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +468,8 @@ Joe Dassin - Septemberwind - Seine größten Erfolge (1991) [MP3|320 кб/с]<Po
 magnet:?xt=urn:btih:06CED3DCE950D259CDDF98F0A8923232894D1706
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +503,8 @@ Barbra Streisand - The Essential (2CD) (2002) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:2AFD190E990C0C201262DF369A737CE8DA43E388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +531,8 @@ Whigfield - Whigfield (1995) [APE|Lossless|image + .cue] <Euro House>
 ```bash
 magnet:?xt=urn:btih:A7738FC0280F87574DD4990D0756062979F459F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +561,8 @@ magnet:?xt=urn:btih:A7738FC0280F87574DD4990D0756062979F459F7
 magnet:?xt=urn:btih:78068A7AB0D8891C2AC1525CE79B24B3146630ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +589,8 @@ magnet:?xt=urn:btih:78068A7AB0D8891C2AC1525CE79B24B3146630ED
 ```bash
 magnet:?xt=urn:btih:20ABAAC29B871086A34B4EAC04A59D2FD7B9B268
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +625,8 @@ Sharon Corr - Dream Of You (2010) [MP3|320 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:742CA83F9CC11E02872A46522738D9853F10A6AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +653,8 @@ VA - N'Dance Vol. 2 (Mixed by Global Deejays) (2005) [APE|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:16A9172FE411FB78EC6E7EDE343AAA2880B1A526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +683,8 @@ VA - N'Dance Vol. 1 (2004) [FLAC|Lossless|tracks + .cue] <Eurodance, Euro-House>
 magnet:?xt=urn:btih:F6203FF93C15A104A2070AD3E67E32208CD5032C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +711,8 @@ magnet:?xt=urn:btih:F6203FF93C15A104A2070AD3E67E32208CD5032C
 ```bash
 magnet:?xt=urn:btih:B996F53B562C5229ABEC6F84D06338045AE92813
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +741,8 @@ VA - United Nations Of Disco Pop Dancers (2017) [MP3|320 Kbps] <Eurodance, Europ
 magnet:?xt=urn:btih:1C0D5CD88D4E00F39685D653B01A00DC939334FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,137 +770,7 @@ Passengers - 4 Albums (1979-1983) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disc
 magnet:?xt=urn:btih:B12DF4839A6365DA31C4CA66572671D62918EE9D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141745   (648497) от 11.06.2017
-
-Sezen Aksu - Biraz Pop Biraz Sezen (2017) [FLAC|Lossless|tracks + .cue] <Turkish Pop, Europop, Vocal, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648497.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. İsyancı
-2. Baba Evi
-3. İhanetten Geri Kalan
-4. Hakkımda Konuşmuşsun(   Читать дальше...   )Жанр: Turkish Pop, Europop, Vocal, BalladПродолжительность: 01:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1440B3F461B35529EAB52094E8977AD1D78EC546
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540991   (648533) от 01.04.2022
-
-Beppe Cantarelli - Confusione (1980) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prendimi Con Te (5:49)
-02. Milano-Madrid (7:00)
-03. Come Un Sogno (4:18)
-04. Confusione (Un'aquila) (5:02)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA4696EBB71CF96F61C3FF67286A46AD2C54D789
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540726   (648536) от 01.04.2022
-
-София Ротару - Листопад (2003) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Советская эстрада, Ретро (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Засентябрило
-02. Нет мне места
-03. Не спросишь
-04. Было время(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5676F4B9E2A5243FF51B123A5F4527CF71CDB8CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541040   (648544) от 01.04.2022
-
-Чёртово колесо инженера Ферриса - Левиафан (2022) [MP3|320 Kbps] <Power Pop, Dance Punk>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648544.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пусть крыша горит!
-2. Беги и режь!
-3. Плюнь на следы!
-4. Демоны и химеры(   Читать дальше...   )Жанр: Power Pop, Dance PunkПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEE276E87666349CCE0D0EEC3381A085476CD209
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292169   (648623) от 28.03.2019
-
-The Palladium Singers - 100 Hits from the Musicals (2007) Box Set, 5CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Cover, Stage & Screen>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_648623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Cover, Stage & ScreenПродолжительность: 05:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B5814B873FC469B8181553C458393A2F97C43D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

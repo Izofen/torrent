@@ -1,3 +1,29 @@
+###  Публикация: 926020   (537205) от 08.08.2015
+
+Геоэкономика (29.07.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бурный экономический рост стран Азии в последние десятилетия вывел их на лидирующие позиции в мире. Мировая фабрика переместилась с запада на восток. А значит, в ближайшем будущем и вся мировая техническая мысль будет развиваться именно на востоке. Туда же со временем переместятся и основные капиталы.Телекомпания: Россия 24Жанр: ТелепередачаПродолжительность: 00:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9820CD436A15DF43C1D71D9AF2A2D03EB9304D44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 926021   (537268) от 08.08.2015
 
 Горизонты атома (01.08.2015) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:A7329A3604768D4E30A4CC9423CB53B6A303D6D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:A7329A3604768D4E30A4CC9423CB53B6A303D6D9
 magnet:?xt=urn:btih:25B42C88AAFEF38C433AB3EDCDF21BB689DCAE36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:25B42C88AAFEF38C433AB3EDCDF21BB689DCAE36
 magnet:?xt=urn:btih:A388F88B762049D6DFAF023B62785D6C4FEFCED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:A388F88B762049D6DFAF023B62785D6C4FEFCED2
 ```bash
 magnet:?xt=urn:btih:71D10C484FA383FF2559A329D4F25BF571BB48D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:71D10C484FA383FF2559A329D4F25BF571BB48D6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:71D10C484FA383FF2559A329D4F25BF571BB48D6
 magnet:?xt=urn:btih:EC11A11CCDCED09B9D0C8B37B467C8662D58C344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:EC11A11CCDCED09B9D0C8B37B467C8662D58C344
 ```bash
 magnet:?xt=urn:btih:DDC6CBFC83F950A5DB6D0FD26F4B66BAD6062C29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:DDC6CBFC83F950A5DB6D0FD26F4B66BAD6062C29
 magnet:?xt=urn:btih:CD7D2D901846536B553CA77899EFEF786DF6A459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:CD7D2D901846536B553CA77899EFEF786DF6A459
 ```bash
 magnet:?xt=urn:btih:60A9834BDA5E2FB868DE9778FB7568F1118C20BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:60A9834BDA5E2FB868DE9778FB7568F1118C20BD
 magnet:?xt=urn:btih:C629BE4FADD12D020D8E992FC60A12C70B3A4AC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:C629BE4FADD12D020D8E992FC60A12C70B3A4AC9
 ```bash
 magnet:?xt=urn:btih:0F85FD1B5D5865E139EB97EFBE6F4DB844DDAAFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:0F85FD1B5D5865E139EB97EFBE6F4DB844DDAAFF
 magnet:?xt=urn:btih:B9BAB9D1A97CB94D1467EA40938BBD4588F1A0C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:B9BAB9D1A97CB94D1467EA40938BBD4588F1A0C4
 ```bash
 magnet:?xt=urn:btih:1A39666F9A80C413433FF0AC882426E1E8D45A5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:1A39666F9A80C413433FF0AC882426E1E8D45A5E
 magnet:?xt=urn:btih:C213EB0E6F27FE8607D4D11B7241ED6C2E07D945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:C213EB0E6F27FE8607D4D11B7241ED6C2E07D945
 magnet:?xt=urn:btih:574C372E7C1F2B1873B8E676790AF20DF941CA3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:574C372E7C1F2B1873B8E676790AF20DF941CA3F
 ```bash
 magnet:?xt=urn:btih:48CFBAA82ACEF1FCAF6FBA6A646F6E808E536271
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:48CFBAA82ACEF1FCAF6FBA6A646F6E808E536271
 magnet:?xt=urn:btih:3729AD139D3746F46880224091D6D056234E3B02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:3729AD139D3746F46880224091D6D056234E3B02
 ```bash
 magnet:?xt=urn:btih:F3ACB03EB0ECC22867B5DD027FC351E0ED1B8BCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:F3ACB03EB0ECC22867B5DD027FC351E0ED1B8BCC
 magnet:?xt=urn:btih:6F144D761ABE0BB1B1805A315CE286B4AF2B6188
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ Qatsi trilogy: Koyaanisqatsi, Powaqqatsi, Naqoyqatsi (1982-1988-2002) BDRip [H.2
 ```bash
 magnet:?xt=urn:btih:4AB99849857467558F495B8ADAD467E1E3A558A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:4AB99849857467558F495B8ADAD467E1E3A558A8
 magnet:?xt=urn:btih:892399D61E75AFF4916AB1CD0C7056ADD3DB62BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:892399D61E75AFF4916AB1CD0C7056ADD3DB62BF
 ```bash
 magnet:?xt=urn:btih:056F2456B685FF2BF29298DAC613F739D188DEAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:056F2456B685FF2BF29298DAC613F739D188DEAC
 ```bash
 magnet:?xt=urn:btih:C0C2427CA95BD69F0F21214F4A9368E08946B122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:C0C2427CA95BD69F0F21214F4A9368E08946B122
 magnet:?xt=urn:btih:2B4338D952DDF383D869E1E097E09238E3F07FEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,30 +681,7 @@ magnet:?xt=urn:btih:2B4338D952DDF383D869E1E097E09238E3F07FEE
 magnet:?xt=urn:btih:E9280633B42D1908A4D29981C4EE8FC8B0AC346C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925487   (539203) от 07.08.2015
-
-Сражение за Петербург (1788-1790 годы) (2011) DVDRip
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_539203.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1788-1790 годах на просторах Финского залива на Балтике происходили грандиозные морские сражения - одни из самых больших в истории мирового парусного флота.
-В видеофильме методом компьютерной анимации впервые воссозданы самые важные и драматические эпизоды сражений за Петербург.Производство: РоссияЖанр: ДокументальныйРежиссер: Л. ФишельПродолжительность: 00:25:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C60FD19C4109C0E55E531C1E21F038C2524EC51E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

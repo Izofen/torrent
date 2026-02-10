@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:ECE89C484693588F7F6A39A79B95AF7C41BFED21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Hatter Display Pro - это самая полная и окончательна�
 ```bash
 magnet:?xt=urn:btih:AE381407749251278050DA1CDB8BFB6A3C160416
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Elf - сложный ручной шрифт для элегантных над�
 magnet:?xt=urn:btih:ADCF0E992CFF08AE3C7E338D967699CB846969F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Inspecture Brush Script - это новый шрифт, обработанный
 ```bash
 magnet:?xt=urn:btih:D45FD53783C12238D30850C0B4050983BC4E6BB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:D45FD53783C12238D30850C0B4050983BC4E6BB8
 magnet:?xt=urn:btih:57B3B5B3516B026586FF618219637BF21DDD58A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Posterizer KG Sketch - это в основном рисованная верс�
 magnet:?xt=urn:btih:29A3C717B3C99171F894B6136DB3E2D9BEBE628E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Anchorage Script Typeface - это шрифта с рукописным шриф
 ```bash
 magnet:?xt=urn:btih:FFBD4AFF2BF338D5F041394EEB91D2B39F766DEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:FFBD4AFF2BF338D5F041394EEB91D2B39F766DEF
 magnet:?xt=urn:btih:591D0A35775B8A0BFC2961867228A0F617CB4CEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:591D0A35775B8A0BFC2961867228A0F617CB4CEA
 magnet:?xt=urn:btih:88375D1D959869D0D17317F6E51A11C2AA796BFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:88375D1D959869D0D17317F6E51A11C2AA796BFB
 ```bash
 magnet:?xt=urn:btih:DD9E2BB32BF2867B239AD1071EB7C541B708F9F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:DD9E2BB32BF2867B239AD1071EB7C541B708F9F8
 magnet:?xt=urn:btih:E67A7FACBBD89315EFAA9A823B0A922CEF32A809
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:E67A7FACBBD89315EFAA9A823B0A922CEF32A809
 ```bash
 magnet:?xt=urn:btih:8EC53E5F8D771B813B2C37477BDA7D10A939F45E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:8EC53E5F8D771B813B2C37477BDA7D10A939F45E
 magnet:?xt=urn:btih:C881E7804A5AE0D9A16A41A2A518CD2F9C62F461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:C881E7804A5AE0D9A16A41A2A518CD2F9C62F461
 ```bash
 magnet:?xt=urn:btih:571C96AD9161181FBA9953D16105BF697F24AAD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:571C96AD9161181FBA9953D16105BF697F24AAD9
 magnet:?xt=urn:btih:26763038E9CB3AA6D387B5A54F91C8A2EE735521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ Esencia ™ - коммерческий шрифт, сделанный по ан�
 ```bash
 magnet:?xt=urn:btih:8C3D6A0041E48DD61581D4EF198064A6B06D56B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:8C3D6A0041E48DD61581D4EF198064A6B06D56B8
 magnet:?xt=urn:btih:73A3D1D751659DF66FF50D8FF9B2BF53D7749DF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:73A3D1D751659DF66FF50D8FF9B2BF53D7749DF6
 ```bash
 magnet:?xt=urn:btih:32BD386BC720D9BB4D8B9F6598232E206A206CB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:32BD386BC720D9BB4D8B9F6598232E206A206CB0
 magnet:?xt=urn:btih:8FF5059E59FE43C40F237A182D61473ADE73707F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:8FF5059E59FE43C40F237A182D61473ADE73707F
 ```bash
 magnet:?xt=urn:btih:AC30213937E519F581359DC820EA6C4AADE6E413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:AC30213937E519F581359DC820EA6C4AADE6E413
 magnet:?xt=urn:btih:F1A6A54861AD0761281A30602F71F193F0D70D40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:F1A6A54861AD0761281A30602F71F193F0D70D40
 ```bash
 magnet:?xt=urn:btih:303368C8CBA1A14FBEA3EAD0ABFB594A6C01B779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +629,8 @@ magnet:?xt=urn:btih:303368C8CBA1A14FBEA3EAD0ABFB594A6C01B779
 magnet:?xt=urn:btih:32D0B105E3034165B6B4DDC0EE04C6B4C77EC393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:32D0B105E3034165B6B4DDC0EE04C6B4C77EC393
 ```bash
 magnet:?xt=urn:btih:C40D3670806F4717B9B510361D96FC74FCB7F262
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ magnet:?xt=urn:btih:C40D3670806F4717B9B510361D96FC74FCB7F262
 magnet:?xt=urn:btih:17EB556F5A0F8CFAFC98C3AE3FFF222D7A30D9F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ RHINOS ROCKS является кистевым шрифт, он включая �
 ```bash
 magnet:?xt=urn:btih:280D2B29BF91DD70F95409EB1D93864509C5C4D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

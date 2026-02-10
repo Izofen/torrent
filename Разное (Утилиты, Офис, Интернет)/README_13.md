@@ -19,6 +19,8 @@ Dr. Folder 2.9.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:3E6E665C207A9B88FF7E04E9225A359583E28E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ CyberLink Screen Recorder 4 обеспечивает надежный захва
 ```bash
 magnet:?xt=urn:btih:95F094D6F7F616A86970EB6E6B5A94CC370F7955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Product Key Explorer - программа позволяет расшифров�
 magnet:?xt=urn:btih:15B298FA6F438379497A51344AA581ABEEFF1C7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Screaming Frog SEO Log File Analyser 6.4 — профессиональный и
 ```bash
 magnet:?xt=urn:btih:55B2453A031A54123FEFE1F58159415B50A5C48F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ MyPhoneExplorer — абсолютно бесплатный продукт, пр
 magnet:?xt=urn:btih:35679257508863A1D84B415467B05A55785C7E3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ ManicTime автоматически записывает использован
 magnet:?xt=urn:btih:482906E1304613D999368BE39EFEE30EE1E1894B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Screaming Frog SEO Spider 23.0 — новейшая версия одного и
 ```bash
 magnet:?xt=urn:btih:F761241325F8504B49E3043A626D9C4376DDA9AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Camtasia захватывает действия и звуки в любой ч�
 magnet:?xt=urn:btih:9F84F538F9A9F3D64404EED1525D55B684679DBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ O&O ShutUp10 позволяет получить полный контроль �
 ```bash
 magnet:?xt=urn:btih:8CDFB9EC366639D470805930884F5C34B56B55D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Snagit предлагает неограниченные возможности 
 magnet:?xt=urn:btih:46C2CD58BBE379388B8379D0E99D1CC313027C91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Windows 11 приносит много новых визуальных улуч�
 ```bash
 magnet:?xt=urn:btih:28ECEB47F95017182848ECA279F6EDDD4FB273D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Password Rescuer - универсальное средство для восст
 magnet:?xt=urn:btih:AC009D577A273A4445515628922E057AF507232F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Photo EXIF Manager позволяет просматривать и редакт
 ```bash
 magnet:?xt=urn:btih:D28A25D11732C7B6AC54339EFDB05D57D6AFD3DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Pic-a-Pix Puzzle World 6.3
 magnet:?xt=urn:btih:40A47DF2BB3BFFF9CA596910820073D7909EE814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Webcam Surveyor 3.8.1 Build 1135 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:A85B09D0875FE876A25F42DB8E88743FE3D33A39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Image Comparer - утилита для поиска похожих картин�
 ```bash
 magnet:?xt=urn:btih:585E12A885FCF2D35B94641CA960EF44A7F368A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Auto Recycle Bin 1.13 [Multi/Ru]
 magnet:?xt=urn:btih:98497DB05E89E08DD69E040BD647C0C0548823BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ VoxCommando - программа, которая позволяет управл
 ```bash
 magnet:?xt=urn:btih:071C2521CD21CA17DC25D5E831EC1AA99C8043C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ PDF Compressor 2.2.0 [Multi]
 magnet:?xt=urn:btih:D32195B17F619C65F4072017E858C56753B6108D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ PDF Password Remover 2.2.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:5EE9E752C018823AF59C139E9196A437BCDFA1BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Photo Album GPS Mapping Tool - это программа, которая пом�
 magnet:?xt=urn:btih:AB4EE902F4E3C13507E1A47451F904B7540CE4BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ iObit Start Menu 8 Pro - удобный инструмент для настро
 ```bash
 magnet:?xt=urn:btih:BBF64A90EB6769908F1A48AE8789D8796C5E3C91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ FilelistCreator 23.4.23 Portable [Multi/Ru]
 magnet:?xt=urn:btih:F0FDBDBDF70B9D20E98B8FF1A4FDA4DE3700F65E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Alternate Password Generator - приложение может помочь ва
 ```bash
 magnet:?xt=urn:btih:D017031B2CEE94810539AAE82408A6B0F79E0887
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Winstep Nexus Ultimate – это расширенная версия беспл
 magnet:?xt=urn:btih:04F388392665C8EF9AF34A881C6E85005D63EE71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Winstep Xtreme – это мощная, многофункциональная �
 ```bash
 magnet:?xt=urn:btih:B29C6F4BF17B926A137ACCD39481C21AAFE12EE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

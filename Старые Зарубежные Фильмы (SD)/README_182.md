@@ -1,27 +1,3 @@
-###  Публикация: 240587   (780150) от 20.02.2018
-
-Дядя Адольф, по прозвищу Фюрер / Zio Adolfo, in arte Fuhrer (1978) DVDRip [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_780150.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в Германии времён становления фашизма и прихода к власти Гитлера. Фильм в жанре эксцентричной комедии рассказывает историю о двух братьях-близнецах. Один из них по имени Герман является фокусником и приближённым Гитлера. Другой — анархист и антифашист Густав, который пытается совершить покушение на фюрера.Производство: Италия, Dania Film, Medusa DistribuzioneЖанр: КомедияРежиссер: Франко Кастеллано, Джузеппе МоччиаАктеры: Адриано Челентано, Клаудио Бигальи, Франсуа Бастьен, Джузеппе Диаманти, Паола Орефиче, Грациэлла Гальвани, Бруно Ди Луия, Дэна Девин, Дино Эмануэлли, Джузеппе КастелланоПеревод: Двухголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:29:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A6909DC2812AD02B7B91C1B2BCF2183A89FA10E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207974   (780244) от 20.02.2018
 
 Кровавая королева / Queen of Blood (1966) DVDRip [H.264]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:1A6909DC2812AD02B7B91C1B2BCF2183A89FA10E
 ```bash
 magnet:?xt=urn:btih:D57FF49D11D9142D8F8E4689C825508E5045F5E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +46,8 @@ magnet:?xt=urn:btih:D57FF49D11D9142D8F8E4689C825508E5045F5E0
 magnet:?xt=urn:btih:0E193B79183BE2196832672968620B19970849B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:0E193B79183BE2196832672968620B19970849B7
 ```bash
 magnet:?xt=urn:btih:7D8C3AF0ACBCA22E7CD035D7E461E2DD80751ADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:7D8C3AF0ACBCA22E7CD035D7E461E2DD80751ADF
 magnet:?xt=urn:btih:A3155E1233E5F957208A390B5EEE30CA61D6632F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:A3155E1233E5F957208A390B5EEE30CA61D6632F
 ```bash
 magnet:?xt=urn:btih:9F39BBD8EBDF19363411AEDDC4802B714A4AA491
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:9F39BBD8EBDF19363411AEDDC4802B714A4AA491
 magnet:?xt=urn:btih:3834161A00BC09039A66CFBC84A9DB94BB236DA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:3834161A00BC09039A66CFBC84A9DB94BB236DA1
 ```bash
 magnet:?xt=urn:btih:312C0FDDC698598C69549FA4D1EF62A089A0E53B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:312C0FDDC698598C69549FA4D1EF62A089A0E53B
 magnet:?xt=urn:btih:D50375ABC0E54292340D0292C0A72B3DB29A7D32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:D50375ABC0E54292340D0292C0A72B3DB29A7D32
 magnet:?xt=urn:btih:3C8E083B75BE5E71B04A54F8F0E3AA79BD3EFE42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:3C8E083B75BE5E71B04A54F8F0E3AA79BD3EFE42
 ```bash
 magnet:?xt=urn:btih:AE9F665CB601D855DE3E543E833B9E236496293A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +281,8 @@ magnet:?xt=urn:btih:AE9F665CB601D855DE3E543E833B9E236496293A
 magnet:?xt=urn:btih:C212670A14474DD3AA1B4900ACB666A047859E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:C212670A14474DD3AA1B4900ACB666A047859E29
 ```bash
 magnet:?xt=urn:btih:F08869303D6F7C0840374203E5A7AE437E15BDA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:F08869303D6F7C0840374203E5A7AE437E15BDA2
 magnet:?xt=urn:btih:B554634E94DD8A1322E87B408DD81E3644BDD2D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:B554634E94DD8A1322E87B408DD81E3644BDD2D7
 ```bash
 magnet:?xt=urn:btih:4B10827126350E850D7EE97E80F901C5A01554CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:4B10827126350E850D7EE97E80F901C5A01554CF
 magnet:?xt=urn:btih:E37F57187BB5DE1A290A8113B44A55AB435D80B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +412,8 @@ magnet:?xt=urn:btih:E37F57187BB5DE1A290A8113B44A55AB435D80B0
 magnet:?xt=urn:btih:71A919C3A09AE1F7C49AA5F3C36FEDF35FDB0F2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +437,8 @@ magnet:?xt=urn:btih:71A919C3A09AE1F7C49AA5F3C36FEDF35FDB0F2B
 ```bash
 magnet:?xt=urn:btih:18A5C241678F5EB5D81DB144DF59F13987895A31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +465,8 @@ magnet:?xt=urn:btih:18A5C241678F5EB5D81DB144DF59F13987895A31
 magnet:?xt=urn:btih:2FD7A1F2CB056FB82F3A2C2DDAB4774212D954E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +492,8 @@ magnet:?xt=urn:btih:2FD7A1F2CB056FB82F3A2C2DDAB4774212D954E8
 magnet:?xt=urn:btih:F355089662FC5E078E47042AEA68DF5F573ED411
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +518,8 @@ magnet:?xt=urn:btih:F355089662FC5E078E47042AEA68DF5F573ED411
 magnet:?xt=urn:btih:A676B282AAFBC71C3CFCF7D021A58DB6CA666807
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +543,8 @@ magnet:?xt=urn:btih:A676B282AAFBC71C3CFCF7D021A58DB6CA666807
 ```bash
 magnet:?xt=urn:btih:C1D771AE0A98490DC46DECBEDA3354EF8965E7E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +571,8 @@ magnet:?xt=urn:btih:C1D771AE0A98490DC46DECBEDA3354EF8965E7E5
 magnet:?xt=urn:btih:5C684FC5F09A7A0B72F16C934AF3DFA0F15937FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +596,8 @@ Cокровище византийского купца / Poklad byzantskeho kup
 ```bash
 magnet:?xt=urn:btih:646B3A5CCA4A230A443F4C268D214AFF4853E353
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +623,8 @@ magnet:?xt=urn:btih:646B3A5CCA4A230A443F4C268D214AFF4853E353
 magnet:?xt=urn:btih:CDCD8711EF0E8DA56CE374B40381206FC010E077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +648,34 @@ magnet:?xt=urn:btih:CDCD8711EF0E8DA56CE374B40381206FC010E077
 ```bash
 magnet:?xt=urn:btih:C6BB91144BE36FE4A5D103053C69B6A06528884A
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122890   (786344) от 08.04.2017
+
+Каньон черной лошади / Black Horse Canyon (1954) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое ковбоев, Рок и Ти, помогают своей хорошенькой, но своенравной соседке Элдис изловить жеребца, много лет назад сбежавшего с её ранчо. Их соперник Дженнингс тоже хочет заполучить жеребца на племя, и, не сумев избавиться от конкурентов, пытается переманить их на свою сторону, обещая процент от будущей сделки. Тем временем Ти не на шутку увлекается Элдис, и Рок (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: ВестернРежиссер: Джесси ХиббсАктеры: Джоэл МакКри, Мари Бланчард, Рейс Гентри, Мервин Вай, Ирвинг Бэйкон, Джон Пиккард, Юинг Митчелл, Пилар Дель Рей, Харольд Гудвин, Уильям Дж. УильямсПеревод: Авторский (А.Яковлев)Субтитры: ОтсутствуютПродолжительность: 01:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7720488BE0199617482974560D8DAAF8C209FC03
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

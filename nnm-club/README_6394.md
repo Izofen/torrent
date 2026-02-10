@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:DBC1C8ADFEEFF3D562512C3FF8828F7E24AAAEAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Gnomon Workshop, Madhav Shyam | Introduction to Ziva VFX - Volume 1 (2023) W
 ```bash
 magnet:?xt=urn:btih:CB87ADA3EF0F3235AC305813A6528DDB673E15E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:CB87ADA3EF0F3235AC305813A6528DDB673E15E6
 magnet:?xt=urn:btih:3D49DE36068AD269E1C60309BAE7CB398B9297C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:3D49DE36068AD269E1C60309BAE7CB398B9297C4
 magnet:?xt=urn:btih:728457CFF689536D1E96E37FC1A8C62FC366F493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:728457CFF689536D1E96E37FC1A8C62FC366F493
 magnet:?xt=urn:btih:D635FCC76E8A7578CBF8CA90CA889740470D9D66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:D635FCC76E8A7578CBF8CA90CA889740470D9D66
 ```bash
 magnet:?xt=urn:btih:A3D8F0578AC690ABF99570C202FA5E184580FD28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Ventoy - это инструмент с открытым исходным код
 magnet:?xt=urn:btih:050F97792655860688A104923E7DEE6CF8A1B39E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Domestika, Giorgio Macellari | Motion Design with Unreal Engine 5 (2023) WEB-DL 
 ```bash
 magnet:?xt=urn:btih:14493431B2DE38328F1CD3DC591C9CB82A546DCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:14493431B2DE38328F1CD3DC591C9CB82A546DCC
 magnet:?xt=urn:btih:A24CD97ECE23B1A09D0E22BD5072E4E8B44E49F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:A24CD97ECE23B1A09D0E22BD5072E4E8B44E49F9
 ```bash
 magnet:?xt=urn:btih:32E01C0728765BC29469D7648C54DBEC943DC21A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:32E01C0728765BC29469D7648C54DBEC943DC21A
 magnet:?xt=urn:btih:3695FD355A61C862D2DBC1F337CD1C1A1564A9B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:3695FD355A61C862D2DBC1F337CD1C1A1564A9B0
 ```bash
 magnet:?xt=urn:btih:AB2196465B50CEC185C5A5DDCCDF3999D855EA3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:AB2196465B50CEC185C5A5DDCCDF3999D855EA3A
 magnet:?xt=urn:btih:0432CCC9D14F33CF7EC03C62569944569E8DCD59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:0432CCC9D14F33CF7EC03C62569944569E8DCD59
 ```bash
 magnet:?xt=urn:btih:0702DD64761F1BA6BEDBA2C572EE0257EFBF2510
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ ZBrush — программа для 3D моделирования, создан
 magnet:?xt=urn:btih:8E8280FB104F26174714A2CE88F17F502193933F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:8E8280FB104F26174714A2CE88F17F502193933F
 ```bash
 magnet:?xt=urn:btih:19768BA64044E85E6CB2077480772376BCF26FCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:19768BA64044E85E6CB2077480772376BCF26FCF
 magnet:?xt=urn:btih:933C2AC0DACA238CB51A7ABE4AA799E4FB2A522B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:933C2AC0DACA238CB51A7ABE4AA799E4FB2A522B
 ```bash
 magnet:?xt=urn:btih:640119C5C161AA7724362BF32DA28916F678C554
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:640119C5C161AA7724362BF32DA28916F678C554
 magnet:?xt=urn:btih:6E28B2FC0537CAE17035395B3EBC0BCA0ABC59A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:6E28B2FC0537CAE17035395B3EBC0BCA0ABC59A5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:6E28B2FC0537CAE17035395B3EBC0BCA0ABC59A5
 magnet:?xt=urn:btih:BB697C3B065FF391E9622A32AF63692C92B5D520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:BB697C3B065FF391E9622A32AF63692C92B5D520
 ```bash
 magnet:?xt=urn:btih:AD13352A3BA3F61A36BBFEEBE42627FB75D7DC51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Absolute Drift – гоночный симулятор с видом сверх�
 magnet:?xt=urn:btih:9AE021446A89BC488CA9507EC6CE4BDF95CC67D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:9AE021446A89BC488CA9507EC6CE4BDF95CC67D4
 ```bash
 magnet:?xt=urn:btih:7379758ED693E5DC80A592102E0BCFE1B1C3D619
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Hudozhnik Online, Дарья Куцаева, Екатерина Бердюгин
 magnet:?xt=urn:btih:47BF75110EFE1C7D5FCCB67CFD1A501A25F281F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:47BF75110EFE1C7D5FCCB67CFD1A501A25F281F5
 ```bash
 magnet:?xt=urn:btih:1A4EB21C6A8ED12F7B13CD5AAD026D96ECA80B12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

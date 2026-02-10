@@ -1,3 +1,29 @@
+###  Публикация: 1237534   (551347) от 24.07.2018
+
+Дем Михайлов | Темнотропье (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_551347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во второй книге приключения Шмыговика продолжаются. Он думал, что лестница, ведущая вверх, и солнечный свет означают выход. Но это лишь очередное испытание. Во тьме подземелий герой находит новых друзей и раскрывает новые тайны. Увлекшись выполнением заданий квеста, Михаил замечает, что постепенно они всё менее отвечают правилам, которых придерживается в игре так (   Читать дальше...   )Жанр: Боевое фэнтези, LitRPGПродолжительность: 10:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B10ECF7A012C4AB82E8E289A65635D3B647790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237461   (551466) от 24.07.2018
 
 Грег Иган | Город перестановок (2018) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:F022E0726C87EE9CAE39D67CC684727BBB031697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:F022E0726C87EE9CAE39D67CC684727BBB031697
 magnet:?xt=urn:btih:6419C3B2A997E531E5A4E1A44B6B9DE211821C50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:6419C3B2A997E531E5A4E1A44B6B9DE211821C50
 ```bash
 magnet:?xt=urn:btih:6537EF5EA17AE980D8A869B67FC67ED29FBB5238
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:6537EF5EA17AE980D8A869B67FC67ED29FBB5238
 magnet:?xt=urn:btih:69729A668045A11D57530E0F5C7EE5F1727F94AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:69729A668045A11D57530E0F5C7EE5F1727F94AD
 ```bash
 magnet:?xt=urn:btih:02D0F04A8ECB5C0B5B8910D065663BE9E3936792
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:02D0F04A8ECB5C0B5B8910D065663BE9E3936792
 magnet:?xt=urn:btih:76E5423A76BDA2400FF5422D54C1E1772F0C057A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:76E5423A76BDA2400FF5422D54C1E1772F0C057A
 magnet:?xt=urn:btih:CC379157213A543D4F88B1FDBB5DE4CE8B597F2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:CC379157213A543D4F88B1FDBB5DE4CE8B597F2D
 ```bash
 magnet:?xt=urn:btih:0F8C5988AAF39E50DC4DDB5CCD5D4C283635943A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:0F8C5988AAF39E50DC4DDB5CCD5D4C283635943A
 magnet:?xt=urn:btih:71A4146B0E0396511FADB2E3997D5642FBC3156F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:71A4146B0E0396511FADB2E3997D5642FBC3156F
 ```bash
 magnet:?xt=urn:btih:A27504D57A56F67E8F8821CDB1AF37CA963E7F88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:A27504D57A56F67E8F8821CDB1AF37CA963E7F88
 magnet:?xt=urn:btih:594C1B5ECEEC378033F1E4E38B51A0E79269B7E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:594C1B5ECEEC378033F1E4E38B51A0E79269B7E7
 magnet:?xt=urn:btih:0ADE45E5AF0ADA3A3373447122411FE6AE5E0767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:0ADE45E5AF0ADA3A3373447122411FE6AE5E0767
 ```bash
 magnet:?xt=urn:btih:3A7AB9D74FB27EB45AC2464BCE85F4ACA3DEF29B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:3A7AB9D74FB27EB45AC2464BCE85F4ACA3DEF29B
 magnet:?xt=urn:btih:0273D70B7C8D463873F059508A49F2DD0C94B374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:0273D70B7C8D463873F059508A49F2DD0C94B374
 ```bash
 magnet:?xt=urn:btih:4CFF4E745C2C94699EC6B83A9D50DF921155980E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:4CFF4E745C2C94699EC6B83A9D50DF921155980E
 magnet:?xt=urn:btih:9FD6420EB7290607FC6C5C490C5277E680DC336A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:9FD6420EB7290607FC6C5C490C5277E680DC336A
 magnet:?xt=urn:btih:8B545B8D7A0488208010519C4FE84CBCEC720999
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:8B545B8D7A0488208010519C4FE84CBCEC720999
 ```bash
 magnet:?xt=urn:btih:9E60559A2ADF4DE7C1F96A5254AF3DC39A7C4D5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:9E60559A2ADF4DE7C1F96A5254AF3DC39A7C4D5E
 magnet:?xt=urn:btih:D8D4340CDAE88B63448A1D35AA117D8B25CED7CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:D8D4340CDAE88B63448A1D35AA117D8B25CED7CA
 ```bash
 magnet:?xt=urn:btih:8CF6E61F923252BA92A7C8F69FDB898489EABCC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:8CF6E61F923252BA92A7C8F69FDB898489EABCC8
 magnet:?xt=urn:btih:6E78F23D938B2A3FBE07C3486178A83F41C8BA5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:6E78F23D938B2A3FBE07C3486178A83F41C8BA5D
 ```bash
 magnet:?xt=urn:btih:593E6686AF4BFE4089CFB93E91B481A6C23CDD77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:593E6686AF4BFE4089CFB93E91B481A6C23CDD77
 magnet:?xt=urn:btih:6114D70ED5145BA183F8B46D746BA839520EA753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:6114D70ED5145BA183F8B46D746BA839520EA753
 ```bash
 magnet:?xt=urn:btih:F2ECE9C6E1221E8094BA95F9FA60AB846A14A83E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:F2ECE9C6E1221E8094BA95F9FA60AB846A14A83E
 magnet:?xt=urn:btih:1692C17C29802463F61AAAF1794C8A4E6E519D82
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236547   (554008) от 19.07.2018
-
-Данияр Сугралинов, Максим Лагно | Level Up. Нокаут (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554008.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Плакса» Майк Хаген, как и Филипп Панфилов, был отобран и получил интерфейс дополненной реальности. Вот только его любимой игрой был файтинг боев без правил – наверное, потому, что в жизни он боялся боли и ни разу не дрался, и интерфейс подстроился под него. Сможет ли Хаген распорядиться им правильно? Поможет ли ему это выбраться из той унылой бездны, которой была (   Читать дальше...   )Жанр: Героическая фантастика, LitRPGПродолжительность: 12:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B35396B7F89DED1505D1B11C3211BFFEE614E0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

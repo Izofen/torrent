@@ -22,6 +22,8 @@ Galina Vishnevskaya, Mstislav Rostropovich/Галина Вишневская, М
 magnet:?xt=urn:btih:B0D682CB6716ADEF6604A405AEF3B8F254683E9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - Christmas With The Stars And The Royal Philharmonic Orchestra (2019) Jewelb
 magnet:?xt=urn:btih:25046305E7F726B678CA9DE708D73BF5F6A065CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:25046305E7F726B678CA9DE708D73BF5F6A065CE
 magnet:?xt=urn:btih:9CB04903CC707EBF5DC22D59055C1FD3FE5BE698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:9CB04903CC707EBF5DC22D59055C1FD3FE5BE698
 ```bash
 magnet:?xt=urn:btih:486F2B04CA0A9691062E08F1A031BEC047270FA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ Katherine Jenkins - This Is Christmas (2012) [FLAC|Lossless|tracks + .cue] <Clas
 magnet:?xt=urn:btih:06FD036229EE75B66DCF6DF00227980F42F0427B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ The Piano Guys - Live! (2015) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover
 ```bash
 magnet:?xt=urn:btih:A09FAD410773F0890DFE0D5AB68FF1D1513BA0F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ Violina Petrychenko - Winter Whispers: Ukrainian Piano Tales (2023) [FLAC|Lossle
 magnet:?xt=urn:btih:101EC89FAA883BF50146C76595D8F53052882AFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ Nino Gurevich - Piano (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
 ```bash
 magnet:?xt=urn:btih:B685EB01507BEDBF583D93C6E6DACAD775208887
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +250,8 @@ Divna Ljubojeviс / Дивна Любоевич & Melodi - In Search Of Divine L
 magnet:?xt=urn:btih:D485F91EC26C3E58A313389B9BE5F58EC84CB4C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +276,8 @@ Performer: Albert Bruggen, Frank Wakelkamp, Jaap ter Linden, Richte van der Meer
 ```bash
 magnet:?xt=urn:btih:864EA2FD208310E5BDF55099EC85862050DC3348
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +306,8 @@ Andre Rieu And His Johann Strauss Orchestra - The Christmas I Love (2011) [FLAC|
 magnet:?xt=urn:btih:2553C48ACE0B2F232D2F66E828C6FD11D90100A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ Serj Tankian - Invocations (2023) Live [FLAC|Lossless|WEB-DL|tracks] <Classical,
 ```bash
 magnet:?xt=urn:btih:B7CC58E86A251BC8826288F48F2E58824AADB57F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +364,8 @@ Peter Jablonski - Chopin: Complete Mazurkas, Vol.1 (2022) [FLAC|Lossless|image +
 magnet:?xt=urn:btih:418B61C5B92A62BD2DDCAE3423EDC89B64D6CE0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +392,8 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:CE8A0DEC3C65141DA66BF3571D30D980E492B67D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +422,8 @@ Performer:  Andreas Schmidt (Baritone), Barbara Bonney (Soprano)(   Читать
 magnet:?xt=urn:btih:8F84618034D694EFA1C43CF917F1762B3DD5840F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +450,8 @@ Bela Bartok - Bartok Complete Edition (2000) 29CD [APE|Lossless|image + .cue]<Cl
 ```bash
 magnet:?xt=urn:btih:F57BBD9F5AD8CB18F46162A583B16778750A4626
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +480,8 @@ Orchestre National De France - Georges Bizet: Carmen (1984) 3CD [FLAC|Lossless|i
 magnet:?xt=urn:btih:F42C7BB14CCCB5284BA7EBF23ADE671261D23204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +508,8 @@ Andrea Bocelli - A Family Christmas (2022) [FLAC|96/24|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:8E305D9952A5204A603BA3D297129F7E75FDF65D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +538,8 @@ magnet:?xt=urn:btih:8E305D9952A5204A603BA3D297129F7E75FDF65D
 magnet:?xt=urn:btih:AABE7C98D7138A5F12CD38AB38CB66563AB13F5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +566,8 @@ PALLADIUM Electric Band - Love Planet (2014) [MP3|320 Kbps] <Instrumental, Class
 ```bash
 magnet:?xt=urn:btih:25306E14349EC972049D0203DBB187BCCC9C3ED9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +596,8 @@ Maria Callas - DIVINA : Maria Callas (Live) (2023) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:2DD37D8F8C20B87C055EB859D2F1EBD875E57DF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +624,8 @@ Ensemble Labyrinthus - Carmina de morte (2014) [MP3|320 Kbps] <classical, chambe
 ```bash
 magnet:?xt=urn:btih:A9156E7210FE2FB50BEA14DFB5B3029ED0B7AFD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +654,8 @@ Sofiane Pamart - Noche (2023) [FLAC|Lossless|image + .cue] <Classical>
 magnet:?xt=urn:btih:06DD651DE0FEAF4F20CC2D1478EFE380DF0DEF6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +682,8 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:CB09C8E56718A081BD155E7C5CFC3C48453E8CC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +712,8 @@ Consuelo - Золотое сердце России (2023) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:11EC3FF8201809C9F5768C52F6297A600822742E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +740,8 @@ VA - The Best 50 of Piano Classical Music (2022) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:F746852BF458B6AEDDBF6799DBA95160B52F464A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Tobias Sammet's Avantasia - A Paranormal Evening With The Moonflower Society (20
 magnet:?xt=urn:btih:7BD568A63DB1D52CADCF4DFD9A8582CF353314CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Pilgrim Of Fire - An Age of Penance and Oblivion (2022) [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:4652A522C46A267925E09670FD6ADBE0E6A511FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Exterminance - The Seven Deadly Sins (1994) [FLAC|Lossless|tracks] <Death Metal>
 magnet:?xt=urn:btih:5489F8DE5C1698F8D53AE0985995684A64F14E24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Farsoth - The Plague (2022) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:1763211A5F3433D27EF38B0787652672BB3FAFB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ Illdisposed - 3 альбома (2009 - 2012) [FLAC|Lossless]<Death Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +178,8 @@ Zimmers Hole - Bound By Fire (1997) [FLAC|Lossless]<Parodic Metal / Speed Metal 
 ```bash
 magnet:?xt=urn:btih:068940D23358457D360B39299331C9FAE476CAE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +214,8 @@ Zillion - Zillion (2004) Japan [FLAC|Lossless]<Melodic Heavy Metal>
 magnet:?xt=urn:btih:559E17F9E8A9E49EABFCE837BF863414E9BC53FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +249,8 @@ Zero Hour - Metamorphosis (2003) [APE|Lossless]<Progressive Metal>
 magnet:?xt=urn:btih:05C2AA75FD91C4AA800CCA9E539651119F4EC8F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +277,8 @@ Cellar Darling - The Spell (2019) [FLAC|Lossless|image + .cue] <Progressive Folk
 ```bash
 magnet:?xt=urn:btih:F3FCD233F7F131C10D15534F3C771C0E259D8A81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +312,8 @@ Zero Hour - Dark Deceiver (2008) [FLAC|Lossless]<Progressive Metal>
 magnet:?xt=urn:btih:DD8BFABF0E7ADD29FE99150A92317B0A2185B72A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +344,8 @@ Zero Hour - Specs Of Pictures Burnt Beyond (2006) [APE|Lossless]<Progressive Met
 magnet:?xt=urn:btih:2491F5A3239FB2869359791915E1E98F45E41872
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +374,8 @@ Wet (   Читать дальше...   )1. W.A.P. (Wet Ass Plutonium) (5:05)
 magnet:?xt=urn:btih:ABE49AA2A6933D9E1AAF7D63770288E9B6B791C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +402,8 @@ APE - Human Greed (1992) [APE|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:4819883B61008AE3758382496600DB5730AEDF47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +432,8 @@ High On Fire - The Art of Self Defense (2000) Reissue, 2023, MNRK Music [FLAC|Lo
 magnet:?xt=urn:btih:6D14ADBC7BCEADB2094C0D9E78E9F97886E282B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +460,8 @@ The Shredderz - The Shredderz (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:765E86DA9A45AEB715B64999F99213ADDCF29192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +490,8 @@ Icon Of Sin - Legends (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:CB2BA5CF0E9B0B6DA4CE51BFF134AC1983C20899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +518,8 @@ magnet:?xt=urn:btih:CB2BA5CF0E9B0B6DA4CE51BFF134AC1983C20899
 ```bash
 magnet:?xt=urn:btih:EC50F85AA7D7DFEDDDCF4FA9731869CE6C7CE464
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +548,8 @@ Konvolted - Human Reification (2023) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal
 magnet:?xt=urn:btih:7264A264FEA189D1E308A63FF9F745BB60DBFB2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +576,8 @@ Atomic Dust - Eden (1992) EP [FLAC|Lossless|image + .cue] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:48C27D3831C63616130D51782815A43D1BE2E0B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +606,8 @@ Writhing - Of Earth & Flesh (2022) [FLAC|Lossless|image + .cue] <Death Metal>
 magnet:?xt=urn:btih:0BF2444965FC2D0E93612E34510A4DD097C554A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +634,8 @@ Sodom - A Handful of Bullets (2020) EP [FLAC|Lossless|image + .cue] <Thrash Meta
 ```bash
 magnet:?xt=urn:btih:05C28CD28D164E076586EF8DA0F932FB292F200F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +664,8 @@ Primal Roots - Stand Up (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Doom,
 magnet:?xt=urn:btih:AA6D3B8B83832C32CBCC47FB2823BCCB05B67051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +693,8 @@ Ira - Alma en Llamas (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
 magnet:?xt=urn:btih:162C32DD89CB8AFC377D3BEBFAF9E9C2FFA564CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +719,8 @@ Trick Or Treat - 2 Studio Albums (2012-2016) Japanese Edition [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:F53851B9BCAEF459F970242D7B8780D695C18E21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -701,6 +749,8 @@ Bloodbath - Survival Of The Sickest (2022) [FLAC|Lossless|image + .cue] <Death M
 magnet:?xt=urn:btih:B0BD98FD7F6637532BC08B2BA8EF1DB87C3E9261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -727,6 +777,8 @@ Girlschool - WTFortyfive? (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard
 ```bash
 magnet:?xt=urn:btih:46FEDB06ED06BF29E4F3566C5ECF3A2C1B7C3C33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Tropico 6 (2019) [Multi] (1290/dlc) License GOG [El Prez Edition]
 magnet:?xt=urn:btih:97BF315958E3ADA37A3E8D2FEEF2D442863B878F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ War for the Overworld (2015) [Ru/Multi] (2.1.3/dlc) License GOG [Underlord Editi
 ```bash
 magnet:?xt=urn:btih:F376A99123EA2C6B892C6D64A3FE28786CEBE200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F376A99123EA2C6B892C6D64A3FE28786CEBE200
 magnet:?xt=urn:btih:1933CCC5889C709025BABC1B64DC5C2E7385C049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Werewolf: The Apocalypse - Purgatory – откройте для себя уди
 ```bash
 magnet:?xt=urn:btih:92C93E1E4A1FCDA4EED6FA16387D11FD8B05B1FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:92C93E1E4A1FCDA4EED6FA16387D11FD8B05B1FF
 magnet:?xt=urn:btih:CD00562897C0B833B1ACF2A7403149BF13FA39C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:CD00562897C0B833B1ACF2A7403149BF13FA39C5
 ```bash
 magnet:?xt=urn:btih:8454ED02C5EF0D52D3B565D51E14EA8859967D50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:8454ED02C5EF0D52D3B565D51E14EA8859967D50
 magnet:?xt=urn:btih:67AB5F994547C2CD4970EC43B9B5C3E5430620C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:67AB5F994547C2CD4970EC43B9B5C3E5430620C3
 ```bash
 magnet:?xt=urn:btih:F111EEDD1558A2E56FD259526756F945BF8C0141
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Marvel's Spider-Man 2 (2025) [Ru/Multi] (1.401.1.0/dlc) Repack seleZen [Digital 
 magnet:?xt=urn:btih:D8480BC4C0320FB8BBBA81409BBD0E5722923855
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:D8480BC4C0320FB8BBBA81409BBD0E5722923855
 ```bash
 magnet:?xt=urn:btih:1943AFB1DB391C714DD8B191E7DB2D3CFDAA188E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Zorin OS разработана так, чтобы быть простой, по
 magnet:?xt=urn:btih:7F7A51AA7D666BEF6A425B05BE930DB090D3E0A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:7F7A51AA7D666BEF6A425B05BE930DB090D3E0A5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ The Sims 2 (2025) [Ru/Multi] (1.0.0.153/dlc) Repack dixen18 [Legacy Collection]
 magnet:?xt=urn:btih:E7977ED7CE62852DDCC0D26787C2BFC51FDD377E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ The Last of Us Part II (2) (2025) [Ru/Multi] (1.0.10402.1014/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E06924835DCACE820B1E57582CE3BD85F6B01CCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Activation Program 1.09 Portable by Ratiborus [En]
 ```bash
 magnet:?xt=urn:btih:7723CBC3AAA3F5233B5A443878ABF8DBA861E23C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Dudley Taft (родился 4 июля 1966, Вашингтон, округ Ко
 magnet:?xt=urn:btih:565581ACCC385B0124BD6B77030D7D2D6369BF36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:565581ACCC385B0124BD6B77030D7D2D6369BF36
 ```bash
 magnet:?xt=urn:btih:3A107B8BF2BD52BFBC58C4CFE4F9E64231A637ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:3A107B8BF2BD52BFBC58C4CFE4F9E64231A637ED
 magnet:?xt=urn:btih:C69DC1797FD8FCC436C0AB4FF3E94D43C40ED82D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Juusenki L-Gaim | Heavy Metal L-Gaim | Тяжёлая артиллерия Л-Г
 ```bash
 magnet:?xt=urn:btih:25462E739AD02ECD2142D6C627499B6E96CE535B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:25462E739AD02ECD2142D6C627499B6E96CE535B
 magnet:?xt=urn:btih:FB71E92F0A058AD56D5A629E21B639AEFFF1A84F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:FB71E92F0A058AD56D5A629E21B639AEFFF1A84F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:FB71E92F0A058AD56D5A629E21B639AEFFF1A84F
 magnet:?xt=urn:btih:59546FCFB167AC1348EA4FD1006E93CD4D6EA68D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Juusenki L-Gaim III: Fullmetal Soldier | Heavy Metal L-Gaim III: Fullmetal Soldi
 ```bash
 magnet:?xt=urn:btih:18EB25E2D98D64A690E009715B1C0FC047D60FA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:18EB25E2D98D64A690E009715B1C0FC047D60FA6
 magnet:?xt=urn:btih:BCCAA5D57F025EA926104F52701959F49A0F9597
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:BCCAA5D57F025EA926104F52701959F49A0F9597
 ```bash
 magnet:?xt=urn:btih:299BE72D1B67DDE10FCFFDEFA796FD030DD13F90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:299BE72D1B67DDE10FCFFDEFA796FD030DD13F90
 ```bash
 magnet:?xt=urn:btih:EC283D17AC494D6F7761B701913566DFE8063A45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

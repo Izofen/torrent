@@ -19,6 +19,8 @@ Victorian Mysteries 2: The Yellow Room (P) [En] 2012
 magnet:?xt=urn:btih:BAF26B5209B86F4CE54CEFCC5AA7CCB3B8861185
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Hidden Mysteries: Return to Titanic (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:A41A75DEE6642CB7E16BC292B5BFD5B7AE6388A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Jewel Legends: Tree of Life (P) [En] 2012
 magnet:?xt=urn:btih:DE813E8D4C7B526CB59799E4FCD4FCF0B3FA12ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NBA 2K11 продолжает популярную серию виртуальн
 ```bash
 magnet:?xt=urn:btih:15BD47940577C213AC53EE49B0D885A5844ED123
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Airport Tower Simulator 2012 [En/Ge] (L) 2012
 magnet:?xt=urn:btih:43254B7B40A4BBDB63D3AF919061FFD61E0F711E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Stone Quarry Simulator 2012 {1.2} (L) [En] 2012
 ```bash
 magnet:?xt=urn:btih:B2A2FE1973166E5FB1360F6D2C4F0CC1CB8CDDD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ MahJong Suite 2012 {v9.0} [En] (P) 2012 | THETA
 magnet:?xt=urn:btih:8452FE0337B2775FB8A5852E4363407E8E1DAE2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ There and Back - это платформер-головоломка. Главн�
 ```bash
 magnet:?xt=urn:btih:19A0EAD5795751A5364D560987333FBB2625E15A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Death Track: Resurrection / Death Track: Возрождение [Ru] (RePack/1.2
 magnet:?xt=urn:btih:EBD76EDD2B634BBF3B9AB49824DAD1A5E2E40EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ PuppetShow 4: Return to Joyville Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:F593A10D280A42D04262414BCF32B6D2B28DDCD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Cases of Stolen Beauty / Дело об украденной красоте (P) [
 magnet:?xt=urn:btih:52E3B861A84B91E781DC4EF7FAC9072DAABEB354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Hidden Expedition: Titanic / Секретная экспедиция: Титан
 ```bash
 magnet:?xt=urn:btih:3A976C11D5E74FC75A045A0F7C11AF42BB5957C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Victorian Mysteries 2: The Yellow Room / Викторианские тайны. 
 magnet:?xt=urn:btih:6170290230D3B515B8F5B8D28EE2B357EF5C8EBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:6170290230D3B515B8F5B8D28EE2B357EF5C8EBC
 ```bash
 magnet:?xt=urn:btih:B96DBA8C3F98F0C9FAB5CF4693F751A0AF8A4DB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Pole Position 2012 [Multi5-] (L) 2012 | FairLight
 magnet:?xt=urn:btih:63EF4C67BB5E404A27485992A1BFAD8332E3BFD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Small Town Terrors: Livingston / Террор в городке Ливингст
 ```bash
 magnet:?xt=urn:btih:725AC5190B362CCAFCF10610A948613243B3F8E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Shiver: Poltergeist. Collector's Edition / Дрожь. Полтергейст. �
 magnet:?xt=urn:btih:3CC2D67B89627D8FB397E41F06415932131AF372
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Runaway With The Circus (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:7E2778EFD4491F18BD935494424CBA7C2E1F4746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Azkend (P) [En] 2011
 magnet:?xt=urn:btih:BCCFA4BBF10989DB63B8C3554C25DEE37A0756BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Lord Ambermaze - это увлекательное приключение на �
 ```bash
 magnet:?xt=urn:btih:63B60D6116FBB6787E0F0838A9E58C8DA0A6D151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Heartbeat in Thailand / Сердцебиение в Таиланде (2025) [Ru/
 magnet:?xt=urn:btih:21D1907856B102ADFDA8806E49F8586DC6C2FD07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Puzzle Quest: Immortal Edition (2025) [Ru/Multi] (1.0.0.3388) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A92BC2261FD810E6CCC78F880AD89905A2A3785F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Wobbly Life - яркая и динамичная песочница, делаю�
 magnet:?xt=urn:btih:939476A43CFFE3629723D6A222B8B680955FD358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Strange Antiquities (2025) [Ru/Multi] (1.0.29) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DE3308C1DD552B3FEE899D8385B63AD2F66E3B5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (1.0.2/dlc) Repack Othe
 magnet:?xt=urn:btih:35654EAFB2AE997D08E5541B481650644D6CC945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (1.0.2/dlc) Repack Dece
 ```bash
 magnet:?xt=urn:btih:5BC04FFAF4077A306FDF9F0C01336141C0633024
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

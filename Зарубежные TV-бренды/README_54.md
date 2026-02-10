@@ -19,6 +19,8 @@ BBC. Мир природы. Королева морских дьяволов / T
 magnet:?xt=urn:btih:AD7F0A267F98FAF6A948D90283D7107413EC6D02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Discovery. Гигантские мечи / Big Giant Swords (2015) HDTVRip (1 с
 ```bash
 magnet:?xt=urn:btih:525F03B4F6D50A80FF49DAA0F1729E0C3DACAA50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NGW: Змеи-монстры / Monster Snakes (2019) HDTV [H.264/1080i]
 magnet:?xt=urn:btih:58539BAC805051FA5F6B292BEDC9BC1FEF7C7335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Discovery. Вот это странно. Кокаиновые мумии / Weird
 ```bash
 magnet:?xt=urn:btih:C32485B31980A7AEB8280F8E4B363297B3788DA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Discovery. Вот это странно Корабль-призрак / Weird or
 magnet:?xt=urn:btih:7CAA91FA51F86D250A0ED71790722718F1F1AD9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Discovery: Секреты и Заговоры / Discovery: Codes and Conspiracie
 ```bash
 magnet:?xt=urn:btih:62BE7A9FF0D843B82FF43E1E6F3E2651CD4B34DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Discovery: Секреты и Заговоры / Codes and Conspiracies (2014) SA
 magnet:?xt=urn:btih:86C5C8F29F9DA8AF51CAB927BDCC4EC0E4B40EC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ BBC. Планеты / The Planets (2019) BDRemux [H.264/1080i] (сезон 1, с
 magnet:?xt=urn:btih:06D0867EB222709BC26D891B4C9AE02B67AADDC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Discovery. Челюсти наносят ответный удар / Jaws Strike
 ```bash
 magnet:?xt=urn:btih:C7473CA1165DBFD080A3E2A69C49D7FEB9E0F61F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ BBC: Ноев Ковчег - реальная история / BBC: Noah`s Ark-T
 magnet:?xt=urn:btih:FD598FD6BA49B708E0ABF4A6299CC18F262A8881
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ BBC:  Машина Большого Взрыва / The Big Bang Machine (2008) S
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ BBC: Египет. Тайны, скрытые под землей / Egypt: What 
 magnet:?xt=urn:btih:3D9A765358FB159DA54E0AA40057B14985C811D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Discovery: Пираты / Pirates (1998) DVDRip
 ```bash
 magnet:?xt=urn:btih:9B37382E8D2925EB36C6DDFD24D48231C167C01F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ NG. Осушить океан: глубокое погружение / Drain the
 magnet:?xt=urn:btih:D81EE025BB3565A5538731882E67462ED86A8B4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Discovery. Возвращение суперзмеи-людоеда / Devoured: 
 ```bash
 magnet:?xt=urn:btih:4B28FF804CDC9B46AFCAB33B159388D661D692FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ NG. Осушить океан: глубокое погружение. Подво
 magnet:?xt=urn:btih:75C1F9CBEEBAECFC0AE7EFEAA1CF35B6D392B23F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ BBC: Мир природы. Сокровища Анд / Natural World. Treasure 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Discovery. Прирожденные короли / Brothers in Blood: The Lions 
 magnet:?xt=urn:btih:D3E6D412D7C5A34E555019A4C4DA2E59F61992D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:D3E6D412D7C5A34E555019A4C4DA2E59F61992D3
 ```bash
 magnet:?xt=urn:btih:4B0EAFD260BE35D8ADFC9CBAF9F3736CB176A197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Discovery: 100 величайших гаджетов со Стивеном Фр�
 magnet:?xt=urn:btih:891B677E7D78FD31B58C4C6566A559CF3A9BF5B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Discovery: Человеческое Тело: Грани Возможного / 
 ```bash
 magnet:?xt=urn:btih:1653521BEA8D80E481A4563C5D1D4DDCDEBF0B2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Discovery: Хроники Эйфелевой башни / La Legende Vraie de la
 magnet:?xt=urn:btih:F344CCF818B8A760C1EDBE8A4E28661DA94FED31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ BBC: Мир природы: Королева снежных обезьян / Nat
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Nat Geo Wild: Жизнь на Большом Барьерном рифе / Life 
 magnet:?xt=urn:btih:E37CE60C20B9FA95E79E21D227F99BC5616BD8C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ BBC: Постигая звёздное небо / BBC: Stargazing Live (2013) SA
 magnet:?xt=urn:btih:BD44828F6A0D16FD0FC9B01403DA61D439A2072A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Discovery: Путешествие в Малайзию / Passage To Malaysia: Int
 ```bash
 magnet:?xt=urn:btih:38F3C31D54C261EE527C272E5D84E37E81339A16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

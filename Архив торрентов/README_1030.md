@@ -23,6 +23,8 @@ XnView обладает мощными средствами (   Читать д
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Driver Genius - программа для управления драйвера�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ UltraDefrag - программа для дефрагментации диско�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -132,6 +140,8 @@ VA - Roger Shah - Magic Island: Music For Balearic People vol.4 (2012)2CD [FLAC|
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ VA - Roger Shah - Magic Island: Music For Balearic People vol.4 (2012)2CD [FLAC|
 ```bash
 magnet:?xt=urn:btih:82CE8C1B14545303E9059B1C957980CEF0127576
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:82CE8C1B14545303E9059B1C957980CEF0127576
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:82CE8C1B14545303E9059B1C957980CEF0127576
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +246,8 @@ Author: Lantana
 magnet:?xt=urn:btih:60550E8E20AE8BB09444F09A8337C6AFC615F742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:60550E8E20AE8BB09444F09A8337C6AFC615F742
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ Update это обновление применимо для всех пакет
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ Data Flow Accelerator - менеджер обмена данными, прогр
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ Data Flow Accelerator - менеджер обмена данными, прогр
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ Data Flow Accelerator - менеджер обмена данными, прогр
 ```bash
 magnet:?xt=urn:btih:F25102ACBDEF55DFE7D2A2F42776ADDCDC63276E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ Easy CD-DA Extractor поменял своё имя! EZ CD Audio Converter - у�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Easy CD-DA Extractor поменял своё имя! EZ CD Audio Converter - у�
 ```bash
 magnet:?xt=urn:btih:59E817CB28DCDC4FA9BAD31D605D65FC6D8AE5C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:59E817CB28DCDC4FA9BAD31D605D65FC6D8AE5C5
 magnet:?xt=urn:btih:CC2327D7F3DCBC791E19C77611AC8BD7C4171E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ Elle - самый популярный журнал мод в мире. Его �
 ```bash
 magnet:?xt=urn:btih:D67E8EE337D792ADF2419901B44D8B7F4480A97E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:D67E8EE337D792ADF2419901B44D8B7F4480A97E
 magnet:?xt=urn:btih:E3C5FFECD9B4745E2CF7D8FFE3A20A141ECF1EBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:E3C5FFECD9B4745E2CF7D8FFE3A20A141ECF1EBC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:E3C5FFECD9B4745E2CF7D8FFE3A20A141ECF1EBC
 magnet:?xt=urn:btih:561F308EA25C2C6E6F7ACC895FBC1875C005958D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ Billy McLaughlin - Lifescapes: Relaxing Guitar (2009) [MP3|320 кб/с]<Instrume
 ```bash
 magnet:?xt=urn:btih:1310DACDB21ACFD92111570948D287294B0BC87F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +637,8 @@ Abyssphere - Снова и снова (2012) 3 EP [MP3|320 кб/с]<Dark Metal, 
 magnet:?xt=urn:btih:BB495259D588DBE84DEBFC0A4328465B3BF304BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +663,8 @@ magnet:?xt=urn:btih:BB495259D588DBE84DEBFC0A4328465B3BF304BC
 ```bash
 magnet:?xt=urn:btih:6418DC8BBBF59B96D429487C586CDF95041C8EDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +692,8 @@ magnet:?xt=urn:btih:6418DC8BBBF59B96D429487C586CDF95041C8EDC
 magnet:?xt=urn:btih:81BDCD81AA34F7C5D4D7243AB56AE902A5EE94B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ Google Chrome - бесплатный новейший браузер, позво
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,178 @@
+###  Публикация: 604158   (994664) от 22.01.2013
+
+Joe Dolan - 4 альбома (1975-1993) [MP3|320 кб/с]<pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994664.jpg" />
+</div>
+
+
+###  Подробнее
+
+1975 - Crazy Woman1	The Answer To Everything	02:46
+2	My Own Peculiar Way	02:22
+3	Aching Breaking Heart	02:46
+4	Pretty Brown Eyes	02:53
+5	Tar And Cement	03:20
+6	The House With The Whitewashed Gable	02:15
+7	Love Of Common People	02:57
+8	Westmeath Bachelor	03:00
+9	Unchained Melody	03:36
+10	Make Me An Island	02:56(   Читать дальше...   )Жанр: popПродолжительность: 01:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F70BE60905AFB7E2DBAA2635CB408DAF3144599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605895   (994807) от 22.01.2013
+
+Viola Valentino - 4 альбома (2004-2010) [MP3|320 кб/с]<pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994807.jpg" />
+</div>
+
+
+###  Подробнее
+
+2004 - Giorno Popolare01. Le Prove Di Un'addio (3:48)
+ 02. Domani E Un'altro Giorno (4:23)
+ 03. Un Miraggio (3:33)
+ 04. Perduto Amore (4:07)
+ 05. Suoni Di Luce (4:37)
+ 06. I Tacchi Di Giada (4:03)
+ 07. Dimenticare Mai (3:44)
+ 08. Lungometraggio (4:42)
+ 09. La Musica Non C'e (3:50)
+ 10. Daisy (3:05)(   Читать дальше...   )Жанр: popПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF354984457A7D0671376066684F0FAAE9FACD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605829   (995125) от 21.01.2013
+
+Diana Ross - Love & Life - The Very Best Of Diana Ross (2CD) (2001) [MP3|320 кб/с]<pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995125.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1 - Life1. You Are Everything
+2. Touch Me In The Morning
+3. Theme From Mahogany (Do You Know Where You're Going To?)
+4. I'm Still Waiting
+5. Ain't No Moutain High Enough
+6. I'm Gonna Make You Love Me
+7. Someday We'll Be Together
+8. Remember Me
+9. Stop, Look, Listen (To Your Heart)
+10. Good Morning Heartache(   Читать дальше...   )Жанр: popПродолжительность: 01:10:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EBA22A09948AF56CDB8CAE38B2D68E0E92E3762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606017   (995171) от 21.01.2013
+
+Gianni Morandi - Rinascimento - Collezione (2011) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995171.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rinascimento (4:06)
+02. Il Tempo Migliore (3:41)
+03. Stringimi Le Mani (3:52)
+04. La Storia Mia Con Te (4:24)
+05. Abbracciami (4:47)
+06. Al Primo Sguardo (4:30)
+07. Un Altro Mondo (4:01)
+08. Dimmi Adesso Con Chi Sei (3:52)
+09. Da Qui All'eternit? (3:30)
+10. Solo Chi Si Ama Veramente (4:01)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:651B8B1E568B038CB14B638AC30A49959408482C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603817   (996007) от 18.01.2013
+
+VA - Hits Of The 60's - 250 Hits Of The Supersixties (2009) 10CD[MP3|320 кб/с]<Pop, Disco, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shangri-Las - Leader Of The Pack [02:50]
+02. Foundations - Build Me Up, Buttercup [02:40]
+03. Crystals - Da Doo Ron Ron [02:21]
+04. Eric Burdon - Don't Let Me Be Misunderstood [02:19]
+05. Small Faces - Tin Soldier [03:21]
+06. Van Morrison - Brown Eyed Girl [03:04]
+07. Gerry & The Pacemakers - Ferry 'cross The Mersey [02:46]
+08. Helen Shapiro - Walking Back To Happiness [02:32]
+09. Lee Dorsey - Working In A Coal Mine [02:45]
+10. Canned Heat - On The Road Again [04:32](   Читать дальше...   )Жанр: Pop, Disco, RetroПродолжительность: 01:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB50E14EBE2ADA83A9A7BF5ACC3A78D16D913CC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605036   (996070) от 18.01.2013
 
 Gazebo - Greatest Hits (1991) [MP3|320 кб/с]<pop, disco>
@@ -27,6 +202,8 @@ Gazebo - Greatest Hits (1991) [MP3|320 кб/с]<pop, disco>
 ```bash
 magnet:?xt=urn:btih:E4F8388D01480757DCF2A566036A2AF24DD92C49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -61,6 +238,8 @@ Francesco Napoli - Disco Italiano (2010) [MP3|~225 кб/с (V1)]<pop>
 magnet:?xt=urn:btih:635044622E30383A77728FBB5E9FDF8374265CF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +272,8 @@ Night Works - Urban Heat Island (2013) [MP3|320 кб/с]<Indie Pop, Electronic>
 ```bash
 magnet:?xt=urn:btih:4C9C9CF47E504B8CA0B8634A67D55FF5425A0360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +308,8 @@ Army of Lovers - The Best Of (1999) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:1239168E50B54B3E032F85778B10EB8630FC5F24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +342,8 @@ magnet:?xt=urn:btih:1239168E50B54B3E032F85778B10EB8630FC5F24
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +378,8 @@ Eros Ramazzotti - All The Best (2012) [MP3|320 кб/с]<pop>
 magnet:?xt=urn:btih:17942AF06991724855ED6361D11B7194AEB32F7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +413,8 @@ magnet:?xt=urn:btih:17942AF06991724855ED6361D11B7194AEB32F7D
 magnet:?xt=urn:btih:19C8DFA97FD15FDD569A68A936D9474B08C37304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +444,8 @@ magnet:?xt=urn:btih:19C8DFA97FD15FDD569A68A936D9474B08C37304
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +480,8 @@ Roberto Zanetti "Savage" - 4 альбома (1990-1994) [MP3|320 кб/с]<Pop, E
 magnet:?xt=urn:btih:AF73DF2BA7D2F18FBBB09A36AD0560F32D9C5C9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +514,8 @@ magnet:?xt=urn:btih:AF73DF2BA7D2F18FBBB09A36AD0560F32D9C5C9B
 ```bash
 magnet:?xt=urn:btih:2F6A7168A0C3E8F4077D4E71B286FC96B13C5533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +550,8 @@ Umberto Tozzi - The Best Of (2 CD) (2002) [MP3|320 кб/с]<pop>
 magnet:?xt=urn:btih:03632EFD1665DFD273D74303CC73E8693A502942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +584,8 @@ VA - Песни Марка Фрадкина. Новая жизнь (1995) [MP3|2
 ```bash
 magnet:?xt=urn:btih:890A47293588456487DD39A0FC2F6A416B294412
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +620,8 @@ CD 101. Мой Азербайджан 03:06
 magnet:?xt=urn:btih:FF056B5AE1F523CCD1093293397FBA1E523757C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +653,8 @@ Shakira - Коллекция (2007) [MP3|192 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:92AE2295316C17CE5CB53B280625D9D8D7E11904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +698,8 @@ VA - Robyx Productions Vol.01-03 (1996) [MP3|320 кб/с]<Disco, Italo-Disco, Da
 magnet:?xt=urn:btih:0338A0F7D998FB4954B78EDC3B8F4D47447FFFCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +732,8 @@ magnet:?xt=urn:btih:0338A0F7D998FB4954B78EDC3B8F4D47447FFFCF
 ```bash
 magnet:?xt=urn:btih:D641E85E30CB230BB95D7BDC467F628C1AD29C38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +768,8 @@ CD1:01. У меня в Москве купола горят (А. Журбин - 
 magnet:?xt=urn:btih:5D18499B75B527A8A2F63F2347832546DA103D55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +798,8 @@ Aura Dione - 3 Альбома (2008-2011) [MP3|320 kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:7FCCB64A3F84E5D4B93AF7826DC01869925F838D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +834,8 @@ magnet:?xt=urn:btih:7FCCB64A3F84E5D4B93AF7826DC01869925F838D
 magnet:?xt=urn:btih:A6D1848C4B29E9ACC237783AE5C07820E1C49CB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +868,8 @@ magnet:?xt=urn:btih:A6D1848C4B29E9ACC237783AE5C07820E1C49CB6
 ```bash
 magnet:?xt=urn:btih:AF22889CA334EBD04DD84F4984D0E27A48719F6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -689,170 +904,7 @@ magnet:?xt=urn:btih:AF22889CA334EBD04DD84F4984D0E27A48719F6B
 magnet:?xt=urn:btih:A7C6D02D8FD0322C0ACB1AB2F209B7AE3FEEDA32
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599915   (998821) от 08.01.2013
-
-Нэнси - #Вечерочкиночки (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Вечерочкиночки
- 02 - Ночной вокзал
- 03 - Просто выходной
- 04 - Я стану ветром
- 05 - Моя любимая женщина
- 06 - Я падаю в небо
- 07 - Розы, на краю стола
- 08 - Железнодорожная
- 09 - Прости
- 10 - Ты научи меня летать(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C6CCED5AAC33AC28CF325900E4C47B018883F4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599582   (998828) от 08.01.2013
-
-Taylor Swift - 3 альбома 1 демо (2011 - 2006) [MP3|320 кб/с]<Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucky You (Mr. Mig mix) [00:03:38]
-02. Smokey Black Nights (Mr. Mig mix) [00:03:14]
-03. American Boy (acoustic version) [00:03:20]
-04.  [00:02:23]
-05. Hopelessly Devoted To You [00:02:40]
-06. Am I Ready For Love [00:04:17]
-07. Can I Go With You? [00:02:54]
-08. One Way Ticket [00:03:28]
-09. There's Your Trouble [00:02:43]
-10. Star Spangled Banner [00:01:21]Жанр: CountryФормат: MP3 (tracks)Продолжительность: 00:30:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0EF59054BF5465EB3D33E6C597F491540BB1565
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600387   (998855) от 08.01.2013
-
-Балаган Лимитед - Кто бы мог подумать (2012) [FLAC|Lossless]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ой, да
-02. Кто бы мог подумать
-03. Свадьба
-04. Осень
-05. Сереженька
-06. Пусть говорят (ft. Белла Огурцова)
-07. Гуси-Лебеди
-08. Сон мой, сон (Монголия) (ft. Органическая Леди)
-09. День рождения
-10. Колыма(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599938   (999024) от 07.01.2013
-
-Группа Круг - Лучшие песни (2CD) (2011) [MP3|320 кб/с]<поп>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Круг друзей (гр. Круг)
-02. Чужая жена (гр. Круг & М.Файнзильберг)
-03. Музыкант (гр. Круг)
-04. Верю и не верю (гр. Круг)
-05. Африка (гр. Круг & М.Файнзильберг)
-06. Никогда-это значит скоро! (гр. Круг & М.Файнзильберг)
-07. Ни слова о любви (гр. Круг)
-08. Ты сказала, поверь (гр. Круг)
-09. Нас жизнь не щадила (Что было, то было) (гр. Круг)
-10. Африка (гр. Круг)(   Читать дальше...   )Жанр: попПродолжительность: 01:14:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D06B321CCB9F8698B772FDE367F7E0EF4D7C44D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596851   (999560) от 05.01.2013
-
-Эдуард Хиль - Лучшие Песни (2CD) (2012) [MP3|320 кб/с]<ретро>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999560.jpg" />
-</div>
-
-
-###  Подробнее
-
-СD 1
-01. Зима (Потолок Ледяной)
-02. Ходит Песенка По Кругу
-03. Человек Из Дома Вышел
-04. Как Скажи Тебя Зовут
-05. Не Плачь, Девчонка
-06. Гусары (Песенка Про Трубачей)
-07. А Туман На Луга Ложится
-08. Лесорубы
-09. Голубые Снега(   Читать дальше...   )Жанр: ретроПродолжительность: 02:22:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10F056C8C71BAB137032B12975FEAFEF829AD854
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

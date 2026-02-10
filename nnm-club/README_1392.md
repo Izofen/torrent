@@ -19,6 +19,8 @@ Exif Pilot - EXIF редактор используется для просмо�
 magnet:?xt=urn:btih:8E4A88673A8F8F01D93E50D94E52231E13BDD786
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Free Hex Editor Neo - бесплатный Редактор Шестнадцат
 ```bash
 magnet:?xt=urn:btih:0C68D749952DD72E58B7DA669E9237E40FA57C1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Marilyn Manson - One Assassination Under God - Chapter 1 (2024) [FLAC 24/96|Loss
 magnet:?xt=urn:btih:0196A7E1E1BA53562A4C0490FD8EEAE00EBB7984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:0196A7E1E1BA53562A4C0490FD8EEAE00EBB7984
 ```bash
 magnet:?xt=urn:btih:2C11462AD22A1CA0DF649A8D2490E094CDF4F2FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:133F13138A97FCD4C8A1049C0C35FF3623B32641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ VA - Пахмутова: Любовь моя – спорт (1980) [MP3|320 Kbps
 magnet:?xt=urn:btih:22BD81D64F8D039C8DD0F4388478BD6AB8C0B3DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:22BD81D64F8D039C8DD0F4388478BD6AB8C0B3DA
 ```bash
 magnet:?xt=urn:btih:57ECFEC95C28CD68B44B14F84F3678FDB1349A5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:57ECFEC95C28CD68B44B14F84F3678FDB1349A5E
 magnet:?xt=urn:btih:BE27C8EBC79DB71DE1608F6F90DA8A6D372FBEC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:BE27C8EBC79DB71DE1608F6F90DA8A6D372FBEC6
 magnet:?xt=urn:btih:5A691A6087AE7F0E529CC368C7AD6F177FD8AEE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:5A691A6087AE7F0E529CC368C7AD6F177FD8AEE7
 ```bash
 magnet:?xt=urn:btih:760E9F59C7C5815550408FD0B009BDD4A44E16BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ Jazz Romantica, Sexual Music Collection - Jazz Room of Seduction (2024) [FLAC 24
 magnet:?xt=urn:btih:3D8A73578E94610AD9CC2CDA45B7430058CEA348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:3D8A73578E94610AD9CC2CDA45B7430058CEA348
 ```bash
 magnet:?xt=urn:btih:F610F22D56CF284252241EF8680A54E0BB4A9128
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Xandria - Universal Tales (2024) [MP3|320 Kbps] <Symphonic, Gothic Metal>
 magnet:?xt=urn:btih:D1F065420F0032CBB1A9F4A17DF61EF73D6CF8FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:D1F065420F0032CBB1A9F4A17DF61EF73D6CF8FF
 ```bash
 magnet:?xt=urn:btih:0397495F9311E792D61385657524A24571866290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ VA - Emotional Rock Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:9412F597D8E21E5FB87DA4E87D851765B28C59EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ VA - Autumn Collection 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodic Ho
 ```bash
 magnet:?xt=urn:btih:03FEECABAE2812A88C9E48B4F5FB9AE67888D01C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:03FEECABAE2812A88C9E48B4F5FB9AE67888D01C
 magnet:?xt=urn:btih:A4C4B298BBC01EEF59D188362B5F3D0A87E1B21F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ Cheryl - Only Human (2014) [FLAC|Lossless|tracks + .cue] <Pop, Dance-pop>
 magnet:?xt=urn:btih:BCCD2602F79CCE056C311D98218D4E861C29FDFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ Caramba Switcher - это новый, понятный автоматическ�
 ```bash
 magnet:?xt=urn:btih:DA200AF59060332BFA856E303A3B9297085823C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:DA200AF59060332BFA856E303A3B9297085823C9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ Once Alive (2024) [Ru/Multi] (0.9.9.8) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:36BEFEFD76DEE459A97B06556DE9A8A6A97CE011
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:36BEFEFD76DEE459A97B06556DE9A8A6A97CE011
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ Bullet Runner (2024) [En] (1.2.0) License GOG
 ```bash
 magnet:?xt=urn:btih:23742E7A2288C466CC8478AE0D0436B582D378FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +647,8 @@ Marilyn Manson - One Assassination Under God: Chapter 1 (2024) [MP3|320kbps] <In
 magnet:?xt=urn:btih:F38F731B557EBC4C8864D417172DC5D50B0E17C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ CD1 - 2024 - MIX:
 magnet:?xt=urn:btih:B50C7AFB57B02F63AFC65243696E5653F6B9EC04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ magnet:?xt=urn:btih:B50C7AFB57B02F63AFC65243696E5653F6B9EC04
 ```bash
 magnet:?xt=urn:btih:99219D826C7EFC93F9BE9A1DDA52D6384CDA4FF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:14A0E1294164B905DBB3CE8C095F3DB700F593AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:14A0E1294164B905DBB3CE8C095F3DB700F593AA
 magnet:?xt=urn:btih:6A2F308FC22645D229DD9864FC77D4CB183B24A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ MobiPDF: Редактор и сканер PDF  v11.4.266982 Mod by Balatan [Ru/M
 ```bash
 magnet:?xt=urn:btih:EB324B359CA6F44B85662B59520D1711BA7AA26A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:EB324B359CA6F44B85662B59520D1711BA7AA26A
 magnet:?xt=urn:btih:3DFD6267C68C4DFD3FE56BA2C1402D98F8BF327F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:3DFD6267C68C4DFD3FE56BA2C1402D98F8BF327F
 ```bash
 magnet:?xt=urn:btih:C4BF986AA1F62103D6722063ACA2F291F08F4DE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:C4BF986AA1F62103D6722063ACA2F291F08F4DE9
 ```bash
 magnet:?xt=urn:btih:077ED9C3DE10627B3B25F06234512D45C69C0A88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:077ED9C3DE10627B3B25F06234512D45C69C0A88
 magnet:?xt=urn:btih:9FDDCBCD0308A3BA7D11A9C2F76186A001966A5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:9FDDCBCD0308A3BA7D11A9C2F76186A001966A5D
 ```bash
 magnet:?xt=urn:btih:3831A6FC5320CCFA7C5E2ED92C515FC4735ECFFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:3831A6FC5320CCFA7C5E2ED92C515FC4735ECFFC
 magnet:?xt=urn:btih:1F7F74702C0CE85BB77B10C2AB0050665AFF586F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Light & Truth — это кульминация многих лет разраб
 magnet:?xt=urn:btih:1AC42529C807028A9ABB8F015DC0A91AAF101F7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:1AC42529C807028A9ABB8F015DC0A91AAF101F7D
 ```bash
 magnet:?xt=urn:btih:64A01324D0BB4DC60186E41715C587993958F7D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:64A01324D0BB4DC60186E41715C587993958F7D0
 magnet:?xt=urn:btih:956465BDCB73524BB51B664BD0DFB2D138416A5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:5C04B0E1638A5F2E2BEAD8AE6B1F21C79BB06145
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ PEPPERED — это экзистенциальный платформер, гд�
 magnet:?xt=urn:btih:151F5AA6238E75370CB0DDC31642D0E03292DB72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:151F5AA6238E75370CB0DDC31642D0E03292DB72
 ```bash
 magnet:?xt=urn:btih:AD1159228A2F44B31FE1D73F0EEA32852DEA0C5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ LEILA (2025) [Ru/Multi] (Build 18011991) Repack Other s [Supporter Edition]
 magnet:?xt=urn:btih:E7728B4200BA1C37E8984D536C6D4879F4C6D0E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:E7728B4200BA1C37E8984D536C6D4879F4C6D0E5
 ```bash
 magnet:?xt=urn:btih:FA97C0E429A99D54D712EE837AEF549F8415CF95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:FA97C0E429A99D54D712EE837AEF549F8415CF95
 magnet:?xt=urn:btih:C46FC9A3F9A82A6712BCFA5DE16123531642700D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:C46FC9A3F9A82A6712BCFA5DE16123531642700D
 magnet:?xt=urn:btih:84AD580F215E237328352B52F8DC26C7962D7789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:84AD580F215E237328352B52F8DC26C7962D7789
 ```bash
 magnet:?xt=urn:btih:AB62ECD5AA5874FAD0D2BA97ABA4F00E847E63A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:AB62ECD5AA5874FAD0D2BA97ABA4F00E847E63A6
 magnet:?xt=urn:btih:5E357F2BD780BA84A76635CAE67DFBE8C824B430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:5E357F2BD780BA84A76635CAE67DFBE8C824B430
 ```bash
 magnet:?xt=urn:btih:B2253EFF5945B8B43F8F774A63E29525FCD27959
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ DjVu Reader & Viewer (читалка дежавю на русском языке
 magnet:?xt=urn:btih:92583D5A68707F08BE079489CF5AE034F2002D82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:92583D5A68707F08BE079489CF5AE034F2002D82
 magnet:?xt=urn:btih:E0E4C7379E71C2B540D53C44F1038ACC37CC43C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ FBReader Premium v3.8.8 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AF956C81C123F5D642617BF68DCC66C52A9BA25B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +682,8 @@ Cinematic Storm Logo Reveal - разработан для придания от�
 ```bash
 magnet:?xt=urn:btih:82C4308CD4797985553D13D4370B53A72F01483F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

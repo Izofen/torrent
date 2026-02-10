@@ -28,6 +28,8 @@ DJ Feel - TranceMission (Best Russian Tracks 2012) (20-12-2012) - INTRO
 magnet:?xt=urn:btih:69EDE11A5D14836E0E2D2BECF67F2028A55055C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ magnet:?xt=urn:btih:69EDE11A5D14836E0E2D2BECF67F2028A55055C8
 ```bash
 magnet:?xt=urn:btih:EA2230E5DEC8D84FD88DAF520A2E4E6392305844
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -88,6 +92,8 @@ Indukcia - Free Current (2012) [MP3|320 kbps]<Dubstep>
 magnet:?xt=urn:btih:A345B70A9BB0A5EFB9EB6D95FEF2EA467FF45875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +127,8 @@ Astronautalis - This Is Our Science (2011) [MP3|320 кб/с]<Hip-Hop|Experimenta
 magnet:?xt=urn:btih:FA7712038E6ADB531BD480FD4BDEB0A7A8D53D8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +153,8 @@ magnet:?xt=urn:btih:FA7712038E6ADB531BD480FD4BDEB0A7A8D53D8C
 magnet:?xt=urn:btih:5FD64960C7713D2C25066FEFE3CFB77C04BEAB2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +178,8 @@ magnet:?xt=urn:btih:5FD64960C7713D2C25066FEFE3CFB77C04BEAB2C
 ```bash
 magnet:?xt=urn:btih:525E0FE2C00E75D53F5F6ECC292416DFAE8DCB80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +211,8 @@ Alien Autopsy - Paranormal (2011) [MP3|320 кб/с]<Industrial death metal/death
 ```bash
 magnet:?xt=urn:btih:B34650FB7BFE601C40A40E26279EBD03AD8EE592
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +247,8 @@ DJ Feel - TranceMission (13-12-2012) - INTRO
 magnet:?xt=urn:btih:15D499F3965E9F1616B4450E0BBF4A419BEEB6C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +281,8 @@ Butterfly - Favorite Colors Episode 063: End of Year 2012 (Part. 1) (22.12.2012)
 ```bash
 magnet:?xt=urn:btih:86BE16CA246F5FCF078C86B4924D457E94782FBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +317,8 @@ DJ Feel - TranceMission (17-12-2012) - INTRO
 magnet:?xt=urn:btih:C92A44FA135FB85EE9787180D6DE424047E9C845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +344,8 @@ magnet:?xt=urn:btih:C92A44FA135FB85EE9787180D6DE424047E9C845
 magnet:?xt=urn:btih:38A6CFB77ED649EEAA77EB85D7147D57C724AC62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +370,8 @@ magnet:?xt=urn:btih:38A6CFB77ED649EEAA77EB85D7147D57C724AC62
 magnet:?xt=urn:btih:9B44AA19913CCA3FD49CCB81AF7BB858E5C2C970
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +395,8 @@ Animal Wallpapers (18.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:453733727F270240A62553EF4488423800B96BF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +431,8 @@ VA - Vocal Trance Volume 52 (2012) [MP3|320 kbps]<Trance>
 magnet:?xt=urn:btih:014DB0326FF0E10EE552670C0491990DE870C8D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +466,8 @@ magnet:?xt=urn:btih:014DB0326FF0E10EE552670C0491990DE870C8D4
 magnet:?xt=urn:btih:9F0C413A7FF9587839FF56F514994EDC5EC8EC27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +491,8 @@ magnet:?xt=urn:btih:9F0C413A7FF9587839FF56F514994EDC5EC8EC27
 ```bash
 magnet:?xt=urn:btih:B326C2600471EFA30267FB75E95CE73B307AFF63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +527,8 @@ magnet:?xt=urn:btih:B326C2600471EFA30267FB75E95CE73B307AFF63
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +555,8 @@ Freddy Todd - Sick in the City, Alive in the Woods (2012) [MP3|320 kbps]<Dubstep
 ```bash
 magnet:?xt=urn:btih:A4222B2A149210E9DDA3814AB5D6695B275FAA16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +591,8 @@ VA - Vocal Trance Volume 51 (2012) [MP3|320 kbps]<Trance>
 magnet:?xt=urn:btih:6D3573CDC6A862D5543885056D4E3A370003680F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +625,8 @@ VA - Vocal Trance Volume 50 (2012) [MP3|320 kbps]<Trance>
 ```bash
 magnet:?xt=urn:btih:9CAED05D4278DFB668C39FF10D1F5A2D37E33F0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +661,8 @@ ArtyomPro - Lights Please (2012) [MP3|320 кб/с]<Hip-Hop|Southern Rap>
 magnet:?xt=urn:btih:07CC3396228EA242AEDEDAC1DE9E42A45B51A6B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +696,8 @@ VA - Vocal Trance Volume 49 (2012) [MP3|320 kbps]<Trance>
 magnet:?xt=urn:btih:C51D9C114851664A0B3002E25F85622B2DA4D9B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -685,6 +729,8 @@ Rико - Вагоны [ЕР] (2012) [MP3|256-320 кб/с]<Rap>
 magnet:?xt=urn:btih:CF64CB207E4D724252531C48450A4E197820E37C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -709,6 +755,8 @@ magnet:?xt=urn:btih:CF64CB207E4D724252531C48450A4E197820E37C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -735,6 +783,8 @@ magnet:?xt=urn:btih:CF64CB207E4D724252531C48450A4E197820E37C
 magnet:?xt=urn:btih:59BC04852E1267DDEE473EA4F805327BF9E84F1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -760,6 +810,8 @@ A New Beginning - Final Cut [En] (L/1.4.4) 2012 | *HI2U*
 ```bash
 magnet:?xt=urn:btih:0E0EF99D3497D4804EDBABDBA82D1815DE95B962
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

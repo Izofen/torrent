@@ -19,6 +19,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:330337838C5CD14989C4F2CA847C3ACEAE66172F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:330337838C5CD14989C4F2CA847C3ACEAE66172F
 ```bash
 magnet:?xt=urn:btih:0912C408AB8C87E097BBA76D2DC41CA2AD377E30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Blue Iris совместима практически со всеми модел
 magnet:?xt=urn:btih:CCCD08413FD5630C6691D55B03D2C3A7AD6AE4F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Windows 11 Manager - это универсальная утилита специ
 magnet:?xt=urn:btih:A4C426E9EECFFC1A521C2837E31778003C89C226
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:A4C426E9EECFFC1A521C2837E31778003C89C226
 ```bash
 magnet:?xt=urn:btih:4BD11A446A5913EF9D8E67CA4B0840C5D222AE32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:4BD11A446A5913EF9D8E67CA4B0840C5D222AE32
 magnet:?xt=urn:btih:4F3E8590267F2EF0AA10BA87B54FEC8106300C2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Domestika, Mina Barrio | Профессиональные селфи и виде
 magnet:?xt=urn:btih:3FB88CA65C19CD29DF9EBBA0A394B2355F798D1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Hoshi no Samidare | Lucifer and the Biscuit Hammer | Люцифер и биск�
 ```bash
 magnet:?xt=urn:btih:7BCCAB955F9471BB6A6779648779B8BD818DDB50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Gekijouban Fate/Stay Night: Heaven's Feel | Судьба: Ночь схватк�
 magnet:?xt=urn:btih:D072BE8E2A666B3FAAD1294F40BD69F12D55C26D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:D072BE8E2A666B3FAAD1294F40BD69F12D55C26D
 ```bash
 magnet:?xt=urn:btih:1D22743F35693F08960186A77DAA904A78E328D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Svoboda 1945: Liberation (2021) [Multi] (1.1) License GOG
 magnet:?xt=urn:btih:4777A99B2D949650C38713ED244C1341C1013D8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:4777A99B2D949650C38713ED244C1341C1013D8A
 ```bash
 magnet:?xt=urn:btih:2E2B9BEC6498C7737AF2827BE9C50D6270EE8466
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:2E2B9BEC6498C7737AF2827BE9C50D6270EE8466
 magnet:?xt=urn:btih:AC744F17643342DECFAB2629034B5165A4BDD47A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:AC744F17643342DECFAB2629034B5165A4BDD47A
 ```bash
 magnet:?xt=urn:btih:360323F92FC636446AC515B6A76FDC9553C54158
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:360323F92FC636446AC515B6A76FDC9553C54158
 magnet:?xt=urn:btih:9356DF7705F81B683730A25AA5B3706A81CC6148
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:9356DF7705F81B683730A25AA5B3706A81CC6148
 ```bash
 magnet:?xt=urn:btih:C7C276694796898CDDAB30F2CA84EEA9910FC457
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Berserk: Ougon Jidai Hen - Memorial Edition | Берсерк: Золотой в�
 magnet:?xt=urn:btih:C0C13EA35AB57FFC505BAF3D53D78F2961A87E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:C0C13EA35AB57FFC505BAF3D53D78F2961A87E82
 ```bash
 magnet:?xt=urn:btih:E1F6D268EB1EA0293268A5FD7FC22E398D5823F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Shinmai Renkinjutsushi no Tenpo Keiei | Магазинчик начинающе�
 magnet:?xt=urn:btih:108A93A7E56B5DF86178CA6FE8AFBC149CD2C5C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Koukyuu no Karasu | Raven of the Inner Palace | Ворона в гареме [20
 ```bash
 magnet:?xt=urn:btih:24F28B6E7810E323B5DC4CD91B44CB874CDA4267
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:24F28B6E7810E323B5DC4CD91B44CB874CDA4267
 magnet:?xt=urn:btih:1943C1B989DDE101A5DC6CD93E15479021148905
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:1943C1B989DDE101A5DC6CD93E15479021148905
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ MemTest86 - бесплатная программа, позволяющая пр
 ```bash
 magnet:?xt=urn:btih:F17858522A008D5671E936A20D3AC8909BFAA75F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Ventoy - это инструмент с открытым исходным код
 magnet:?xt=urn:btih:A40795F412847786A79B899F834FB441D3310CC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Attentat 1942 – исторически точная приключенческ
 magnet:?xt=urn:btih:A897CB321059F22E56310C638FB2DB465EFD6E97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Cтражи Галактики: Праздничный спецвыпуск / Th
 ```bash
 magnet:?xt=urn:btih:EF9A524D3929DFF4CFF092D64962E23080F0D448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

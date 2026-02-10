@@ -19,6 +19,8 @@ DxO PhotoLab 3 ELITE Edition 3.1.0 (build 29) [Multi]
 magnet:?xt=urn:btih:CF473E5035F1B9D755D3EADEC4004A1288CE0707
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:D10AE5068DEA70DBA76D6F4EF221C4F17DBDA531
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:0D26EEB4BC77F6586AD451D7ACF5F6FC2B44D612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ COMSOL Multiphysics (Femlab) – пакет моделирования, кото
 ```bash
 magnet:?xt=urn:btih:9FAA78DE8973CF635449B6F6B89D969A6AE6F8FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Antivirus Removal Tool - портативный набор официальны�
 magnet:?xt=urn:btih:B35379FA48D4BE5A292A4F59D3028067878036D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:B35379FA48D4BE5A292A4F59D3028067878036D3
 ```bash
 magnet:?xt=urn:btih:64CB552A409204D45059084C837D2EA3AF478412
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Macsome iTunes Music Converter позволяет преобразовывать
 magnet:?xt=urn:btih:F8B2C76B43ECF5E807140EA388C08C8661AEA26E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ EditRocket - мощный текстовый редактор со множес�
 ```bash
 magnet:?xt=urn:btih:47021A521B6FBAD0697F67E932BE891BF9531C1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Privacy Eraser Free - комплексный инструмент для защ�
 magnet:?xt=urn:btih:2A35AF815D0E9B3F9F3A861B78F6107329B3F65C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ One Switch - это крошечное приложение, разработа�
 magnet:?xt=urn:btih:9EB844240EDF786A18612412775FE202FD62B7A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ RazorSQL – программа для управления основными �
 ```bash
 magnet:?xt=urn:btih:CEFD92ADF787610BEE286D6FCB39A8A9FE0EBF5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Scarlean - Soulmates (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Metal, Nu
 magnet:?xt=urn:btih:478EF09EDF86F423285CA68C71929EB76A01BCF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ iWork Converter 2.3 [En]
 ```bash
 magnet:?xt=urn:btih:386FD066A706147904DC31016243D1D634D4E5A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Softorino YouTube Converter 2 2.1.11 [En]
 magnet:?xt=urn:btih:8F3431BB9C1497499250F659FA60FA1E4965A935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ FontLab 7, это новая программа, для профессионал
 ```bash
 magnet:?xt=urn:btih:BA2641826F86CEDA32077FE8BDDC2D7A724B38E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Macrorit Partition Extender - утилита, доступная также в �
 magnet:?xt=urn:btih:301C829091902057EE1269BF76804593B84548E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Textify — это крошечная утилита, позволяющая с�
 ```bash
 magnet:?xt=urn:btih:5236A3A625F548EE9A2AFD498809607A48019B2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:5236A3A625F548EE9A2AFD498809607A48019B2E
 magnet:?xt=urn:btih:2966DE9A472FB23321B524281D9B4EEB0221D4A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:44D576741D4D2046520CBC9CE7D79AA1BB4BFA21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ CleanMyMac сканирует каждый уголок вашей систем�
 magnet:?xt=urn:btih:C2BCDA5B964D15AEDAD86E8E9F06345DB17477D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ OBS Студия - бесплатное программное обеспече�
 magnet:?xt=urn:btih:1FD5F8EE76312F30BA5B6FC885C8E622D6C5BA7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Opera 94.0.4606.26 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:63A682CD4C0FB5A5136B397D25E0FCF5DDDD8330
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Topaz Mask AI 1.3.7 RePack (& Portable) by TryRooM [En]
 magnet:?xt=urn:btih:BF4C34788F0C0D592D1463A6463A5B35D6EE13E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Bootstrap Studio - мощная программа для создания кр�
 ```bash
 magnet:?xt=urn:btih:FD28B03DCBE3F75E8BA55C58D5DF78A07E54B742
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ Patti Austin - Body Language (2003) [FLAC|Lossless|image + .cue] <Soul, Rhythm &
 magnet:?xt=urn:btih:63BFC2E476219F6959C49BF1CAC5760F775AF0A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Macrorit Disk Scanner Unlimited - инструмент для проверки �
 ```bash
 magnet:?xt=urn:btih:C8FDDE522367C293F00441CE716F1077CA809D0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

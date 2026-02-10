@@ -19,6 +19,8 @@ Assassin's Creed Syndicate [patch/dlc] (2015) (1.31)
 magnet:?xt=urn:btih:D7F8F0177EEE9F3F0A63DDA3F9743BB21EE62373
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D7F8F0177EEE9F3F0A63DDA3F9743BB21EE62373
 ```bash
 magnet:?xt=urn:btih:260ED0624E6BC8F619FE9E139E665B945437098E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Luminar является первым в мире редактором фото�
 magnet:?xt=urn:btih:892FC757685159A7EF944A225305D0195AFE9CAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Alpina Digital, Артемий Анцупов | Канбан-метод. Как 
 magnet:?xt=urn:btih:7D6C9FF092C1BA048A5BB8DCEF5880FFB1241AC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ DevID Agent - удобная бесплатная утилита для уста
 ```bash
 magnet:?xt=urn:btih:2EA20AD8C6D5FE932E801BD59968A0BF2B941A77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Within Nostalgia - Void & Decay (2020) [MP3|320 Kbps] <Black Metal, Doom Metal>
 magnet:?xt=urn:btih:500CAA9B1E4F93391E9A27673228230799BC1B42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ VA - Armin van Buuren - A State Of Trance 1247 (2025) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:25CCB436FC07D16F0525E9C0B37FCEE1E4EB708B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:25CCB436FC07D16F0525E9C0B37FCEE1E4EB708B
 magnet:?xt=urn:btih:EBB3F7FBB8F4EB32FE865C0E699CAF63A644C6CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:EBB3F7FBB8F4EB32FE865C0E699CAF63A644C6CB
 ```bash
 magnet:?xt=urn:btih:4C5619F0464DF6B203C096F525BFE699105D31D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:4C5619F0464DF6B203C096F525BFE699105D31D9
 magnet:?xt=urn:btih:6808DA06ED72D310E68559AAB0A007495BF1B36C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Basic Element & Dr. Alban & Waldo’s People & Elize Ryd - Life Is Now (2022) Si
 magnet:?xt=urn:btih:7A4F7EAE9E54F3A9B765282750D2A4CB4EAA5F74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:7A4F7EAE9E54F3A9B765282750D2A4CB4EAA5F74
 ```bash
 magnet:?xt=urn:btih:E7429055512E8F95369CA005D15605EA77505537
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:E7429055512E8F95369CA005D15605EA77505537
 magnet:?xt=urn:btih:877F8C42A449EABBE1ED2505A74369127D77D2BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:877F8C42A449EABBE1ED2505A74369127D77D2BB
 magnet:?xt=urn:btih:FEF498CB61F15DD8D8F75B1DF2E35B734DF4A2CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:FEF498CB61F15DD8D8F75B1DF2E35B734DF4A2CA
 ```bash
 magnet:?xt=urn:btih:7129A65F02CAF75E6C8DB97D7CDC0B7BCC0EEC9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ VA - Ori Uplift - Uplifting Only Episode 662 (2025) [MP3|320 Kbps] <Trance, Upli
 magnet:?xt=urn:btih:11A15F7AF1A40AC47AFE8A84A6494A711D0250BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:11A15F7AF1A40AC47AFE8A84A6494A711D0250BB
 ```bash
 magnet:?xt=urn:btih:C0348B54FFFC6247B29600CD7439B02503B30A52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ Hidden Machine - Djeneration II (2020) [MP3|320 Kbps] <Progressive Metal, Heavy 
 magnet:?xt=urn:btih:5DE33D720183EE457125F915AA97AA229C9E2F47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:5DE33D720183EE457125F915AA97AA229C9E2F47
 ```bash
 magnet:?xt=urn:btih:1E6C6BAFC61DC83AE770B2D5062461763C95D059
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:1E6C6BAFC61DC83AE770B2D5062461763C95D059
 magnet:?xt=urn:btih:026974E20FDBCB30DBBE6B486642F687156F28DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ Shaun White Snowboarding (2008) [Ru/En] (1.01) Lossless Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:27D612129CF2A9415D58CD1EF9D1E8B46A4FFFEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:27D612129CF2A9415D58CD1EF9D1E8B46A4FFFEF
 magnet:?xt=urn:btih:30633E724CCB18E57DAB58A81D9B997779830734
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ Chip — первый компьютерный журнал в Европе, с�
 ```bash
 magnet:?xt=urn:btih:B98A4D372794E21052B8028812C7994313FD4F8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:B98A4D372794E21052B8028812C7994313FD4F8F
 magnet:?xt=urn:btih:6AE932EFEE78F296FAFE21AE2C32F747BAF0F2EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ Danse Macabre 5: Lethal Letters / Танец смерти 5. Роковые пи
 magnet:?xt=urn:btih:FC133DB724AE296B5A241FA4D56B5AB6B23A4A89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ Expressif Systems | ESP32-C3: Беспроводное приключение: �
 ```bash
 magnet:?xt=urn:btih:5747B52018A5866060E205A8AE8C178D46D28930
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

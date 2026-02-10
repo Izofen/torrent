@@ -19,6 +19,8 @@ Bloodstained: Ritual of the Night - это игровой опыт ориент�
 magnet:?xt=urn:btih:FDB5E0CA3EB70259EAB7AEE97DCA8170F8753E08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Status One (2025) [Ru/Multi] (1.0.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:BEDE4964A1CDB7209403177C4A528D808E27D6F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Redundant (2025) [Ru/Multi] (build 16931999) Repack seleZen
 magnet:?xt=urn:btih:ABEA12E3CB8242504239189ADAE83E86CE9BEA92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Lords of the Fallen приглашает игроков в мрачный мир
 ```bash
 magnet:?xt=urn:btih:1833F4260FBD5DED586A48C6B5C1A4ECB75B28EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Valhalla Path: Survival (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:4E79AB563C4CCF83F1EF5BE842BC3CED2E74E490
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Exsys (2020) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8733CCB02A541A89AB578557BE4BCA53D93697DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Dungeon Defenders: Going Rogue (2022) [En] (0.9.34625EA) Repack FitGirl
 magnet:?xt=urn:btih:54FF0A2A0C1FED531AA35739C1C80CCD1D2E7565
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Teenage Mutant Ninja Turtles: Splintered Fate / Черепашки-ниндзя:
 ```bash
 magnet:?xt=urn:btih:ABA4F703EF80D7608497546366F11940D08F6BC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Valhalla Path: Survival (2024) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:CA970240B46A36FAF7AB663D29F2DCC03E7DAA33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Dungeon of Naheulbeuk - это ролевая игра, основанная
 ```bash
 magnet:?xt=urn:btih:CB4C839105AFF6A7A834CB9452F6566CE5E812BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Prelude To Darkness - игра, разработанная независимо�
 magnet:?xt=urn:btih:2FB77345DAD01F1031375A28FCBE77D5CA2BFE7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ For The King II (2023) [Ru/Multi] (1.3.5) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:967984F851035E64A266B737C0A0D55C80E60373
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ G.O.P.O.T.A 2 / Г.О.П.О.Т.А 2 (2024) [Ru/En] (1.1) Repack seleZen
 magnet:?xt=urn:btih:C747864E995B719E623D8442F34D7BE9B21FE182
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Coromon – ролевое инди-приключение про прируче
 ```bash
 magnet:?xt=urn:btih:6CE877AA706CBFEFBCFC1C4DD5B97B9E3D3CCA64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Heads Will Roll: Reforged позволит игроку примерить на 
 magnet:?xt=urn:btih:A80AA153F8F8164B72C2988B90638CE69725E49B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 16179329/dlc) Repack seleZen 
 ```bash
 magnet:?xt=urn:btih:DAC3D5C4CFFA9D2BF5120B33CDC034515DC9817C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Starcom: Unknown Space - это увлекательное сочетание к
 magnet:?xt=urn:btih:EFA049055C007B2B65564E828BE16EF346CFF48C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.0.1.1) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:CDF0B283A939B34183567265D5814616000E08FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Star Trail - это верный ремейк классического про�
 magnet:?xt=urn:btih:82A8776833FDF1D639B74E5604A1439CF8E685F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:B23EBABE61956EF2A17091D2636332C8E02DB787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Ghost Treasure / Призрачные сокровища (2024) [Ru/Multi] (
 magnet:?xt=urn:btih:63365E29949DE87E77413D96CB399E9889870FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Ghost Treasure / Призрачные сокровища (2024) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:902641821B8EFC506B5CF6AC280BE2775EEA3DC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Repack FitGirl
 magnet:?xt=urn:btih:8BA28050727FE1B66C9517FB52B157F1F2AABB6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Scene Rune
 ```bash
 magnet:?xt=urn:btih:AB00D9697B233441708809DBBFC8EF10E5B08FA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Caribbean Legend - пиратская РПГ с открытым миром по
 magnet:?xt=urn:btih:C0FB7F430DC518E093A06562A03A752B780B4C2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Stray Blade (2023) [Ru/Multi] (1.8/dlc) Repack Let'sРlay [Ultimate Bundle]
 ```bash
 magnet:?xt=urn:btih:0AA10E0E57C7712F68D596F8A9947526C46FB6CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

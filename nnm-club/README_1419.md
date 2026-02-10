@@ -22,6 +22,8 @@ Voltage Arc - Sextasy (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
 magnet:?xt=urn:btih:7A34B640C4CCE5B07D5D664403A5FB0A0E82727C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Wildheart - Music to Survive (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock , H
 ```bash
 magnet:?xt=urn:btih:1AB830A724D36865FB22580AC614E610297FD2AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ George Harrison - Living in the Material World (50th Anniversary) (1973) Reissue
 magnet:?xt=urn:btih:53F1A370E309FC88D0A645563CD2F99D703B67C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Circles Of Illusion - Lionheart (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard & Hea
 ```bash
 magnet:?xt=urn:btih:D88CA71695CA603399E88C8C33BC81234BF7A288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Lilah Blackwood - White Lines (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:648BFBAA2868EE7FC5E92CB7DB88B829BD183257
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ VA - Anjunabeats presents Euphoria 01 (DJ Mix) (2024) [MP3|320 Kbps] <Progressiv
 magnet:?xt=urn:btih:76CF53FFD5DCA3F1EB287203B8FE7A39ACD24E77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:76CF53FFD5DCA3F1EB287203B8FE7A39ACD24E77
 ```bash
 magnet:?xt=urn:btih:375461C221170F98A832CE20B424079EC0029944
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ Abc - 2 Albums (2022, 2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
 magnet:?xt=urn:btih:90CD891259A585BD64645002DAA5E09B770C6E97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ Starchaser - Into The Great Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:FDF3B5C0E16ED29CCF553BB004DCAA44552DEDC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ As I Lay Dying - Through Storms Ahead (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:2ADFA0193C6B546E15C675C5C16BA5AD72ED59E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +305,8 @@ magnet:?xt=urn:btih:2ADFA0193C6B546E15C675C5C16BA5AD72ED59E7
 ```bash
 magnet:?xt=urn:btih:59CC7FFC5ECF7FD653238F3093EB234C54A2CD6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +335,8 @@ Lionville - Supernatural (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic R
 magnet:?xt=urn:btih:DF61F014944B9B8966312D7E9147AF9410716F84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +364,8 @@ di liberta - 2 Albums (2020, 2024) [FLAC|Lossless|WEB-DL|tracks] <Indi Folk, Dar
 magnet:?xt=urn:btih:9AE2BEBE35841931B76D314DD85E28460F7687C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +389,8 @@ magnet:?xt=urn:btih:9AE2BEBE35841931B76D314DD85E28460F7687C3
 ```bash
 magnet:?xt=urn:btih:3BD1354276AAF4908339D1C006A391F36D7EF1B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +419,8 @@ Nevergreen - Harag es remeny (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 magnet:?xt=urn:btih:D9ACA439B7B930E7090971583953A8265CDE236E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +445,8 @@ magnet:?xt=urn:btih:D9ACA439B7B930E7090971583953A8265CDE236E
 magnet:?xt=urn:btih:67E6F86A10BFDFD54078A34664BDB4F31936F866
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +470,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:B738C17F27683F1106C171D196AE0564C60FD600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +500,8 @@ Linkin Park - From Zero (2024) Scene [FLAC|Lossless|tracks] <Alternative Rock>
 magnet:?xt=urn:btih:5F4A823F3CFAFF4AF6007B7A47799881644E04AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +527,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:9AB211095EB80592C1351CCBD527E9399D198BDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +552,8 @@ Vivaldi 7.0.3495.14 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0B0F50E2420F6530F0139DA6B2C0CD0B45F47A6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +582,8 @@ Linkin Park - From Zero (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative 
 magnet:?xt=urn:btih:E4355E1D373ABD693AC2DED6FE33287E1FF7B3BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +607,8 @@ magnet:?xt=urn:btih:E4355E1D373ABD693AC2DED6FE33287E1FF7B3BB
 ```bash
 magnet:?xt=urn:btih:FDAD7399C2E7002CF712FA09D6DBD42DE643EABB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +637,8 @@ CD1:
 magnet:?xt=urn:btih:E77945077DBDD0BFB6F7947BB09ED90A051BC01B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +662,8 @@ magnet:?xt=urn:btih:E77945077DBDD0BFB6F7947BB09ED90A051BC01B
 ```bash
 magnet:?xt=urn:btih:3F8E142432F11360395C2FF3A0299AA5225DF3F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +692,8 @@ VA - Music News For Forum vol.042 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:83D1110324561F8E70BD82D44669FBFF1AAE1878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ eX-Driver | Экс-драйвер [2000, OVA, 6 эп.] DVDRip 480p raw+eng
 ```bash
 magnet:?xt=urn:btih:22C5510A2EF949A4F92C60E83E36726B9EA97822
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

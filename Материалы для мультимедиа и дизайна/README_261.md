@@ -1,3 +1,141 @@
+###  Публикация: 1302555   (580117) от 16.05.2019
+
+3D модели - Daz 3D - Sanjay 8 Pro Bundle - 60829 [DUF]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплект Sanjay 8 для DAZ 3D из категории People.
+Для Genesis 8Формат: DUF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D018CCDD19FA98F26EA775135571147805A9D19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042105   (580147) от 11.08.2016
+
+3D модели - Evermotion - Archmodels Vol. 110 [V-Ray|*.max]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной сборник 3d моделей от Evermotion!
+
+В данный сборник вошли 35 комплектов офисной мебели.Формат: V-Ray|*.max
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:892ED5739801FE4863EC6CB6D0065BC25042F4D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359960   (580677) от 07.07.2011
+
+Mattias Westlund - Sonatina Symphonic Orchestra (2011)
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_580677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sonatina Symphonic Orchestra является свободной библиотекой сэмплов. SSO содержит сэмплы всех инструментов, необходимых для создания виртуального оркестра.
+Основано на: свободных/CC-лицензированных/находящихся в общественном достоянии инструментальных сэмплах: The University of Iowa MIS, MSLP, Philharmonia samples, OLPC project, The Complete K2000, ldk1609 violin, stamperadam Kelon Xylophone, Corsica_S Cello Pizzicato, davidjwoll cymbal rolls, Satoration Castanets, Thores Triangle, Mystified timpani, Eddie's English Horn and a variety of classic soundfonts by Campbell Barton, Nando Florestan and Ethan Winer.
+Лицензия: Creative Commons Sampling Plus 1.0
+
+Кодек: WAV, SFZ
+Битрейт: LosslessНазвание программы: Sonatina Symphonic OrchestraЯзык интерфейса: ML
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041696   (581384) от 10.08.2016
+
+Экшены - GraphicRiver - Comic Art Style Hand Drawn Effect [ATN]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Comic Art Style Hand Drawn Effect - экшен для Вашего творчества.Формат: ATN
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:126EB7D328A69BF3DE24A1588BF80D307C41B4C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041869   (581386) от 10.08.2016
+
+Экшены - GraphicRiver - Burnt Paper with Fire Effects Photoshop Creator [ATN, ABR, ASL, PAT]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581386.jpg" />
+</div>
+
+
+###  Подробнее
+
+Burnt Paper with Fire Effects - экшен для Вашего творчества.Формат: ATN, ABR, ASL, PAT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AFD27D85F2D557E3DA382EE17DBA68FE0467169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041865   (581390) от 10.08.2016
 
 Экшены - GraphicRiver - Fire Photoshop Action [ATN, ABR]
@@ -18,6 +156,8 @@ Fire - экшен для Вашего творчества.Формат: ATN, AB
 ```bash
 magnet:?xt=urn:btih:46A5F3C55F16BD9BD8E9E806FF56240AA58C389B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +183,8 @@ ModernArt - экшен для Вашего творчества. Многие о
 magnet:?xt=urn:btih:1D43B440E2E313ADD72CD3C54425A5245FA6AE64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +208,8 @@ Energetic - экшен для Вашего творчества. Многие о
 ```bash
 magnet:?xt=urn:btih:9358C424ACB939CCE5D4AB223EB736243A1C71E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +236,8 @@ Melodic Underscore Library – Это библиотека мелодий пре
 magnet:?xt=urn:btih:4C7AEE7092EA2383DF02A5BF6024BDB03A442C79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +261,8 @@ magnet:?xt=urn:btih:4C7AEE7092EA2383DF02A5BF6024BDB03A442C79
 ```bash
 magnet:?xt=urn:btih:D75F9CC9C853087392597903BC1EF2E93AA4B308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +288,8 @@ magnet:?xt=urn:btih:D75F9CC9C853087392597903BC1EF2E93AA4B308
 magnet:?xt=urn:btih:B47C2CB6E34F55F741193108951EF7034602D821
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +313,8 @@ magnet:?xt=urn:btih:B47C2CB6E34F55F741193108951EF7034602D821
 ```bash
 magnet:?xt=urn:btih:C8328634AFB74ECD25F94376C0507698AC2BF36D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +340,8 @@ magnet:?xt=urn:btih:C8328634AFB74ECD25F94376C0507698AC2BF36D
 magnet:?xt=urn:btih:E70DF8E9B6AAB673298AD47A2B1FF8516DCE97AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +365,8 @@ magnet:?xt=urn:btih:E70DF8E9B6AAB673298AD47A2B1FF8516DCE97AA
 ```bash
 magnet:?xt=urn:btih:5F012DABA863780DA704547D13C05BB4E752ADD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +392,8 @@ magnet:?xt=urn:btih:5F012DABA863780DA704547D13C05BB4E752ADD2
 magnet:?xt=urn:btih:34F28FA346EB53D1AE589111BF11B055B8F177B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +418,8 @@ Bat Explosion - экшен для Вашего творчества.Формат
 magnet:?xt=urn:btih:663DCC5A856BAFEC82FF3518FC1D8ADBC7823FE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +443,8 @@ magnet:?xt=urn:btih:663DCC5A856BAFEC82FF3518FC1D8ADBC7823FE1
 ```bash
 magnet:?xt=urn:btih:289B487FD0394B11CC099D4A8F2ED3D396A5647B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +471,8 @@ Prairies - библиотека высокого качества звуков �
 magnet:?xt=urn:btih:0502AC36C3D3129FD7AFE259662BC3BA2B2E572F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +496,8 @@ Tropical Forests - эта седьмая библиотека звуковых �
 ```bash
 magnet:?xt=urn:btih:023C479AF14FF2285ACC434B725A8C05E00C953D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +523,8 @@ magnet:?xt=urn:btih:023C479AF14FF2285ACC434B725A8C05E00C953D
 magnet:?xt=urn:btih:F50463BE8F2F9F34FC686B6867BC7FD5816F823F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +548,8 @@ Epic Movie Trailer -  сладкий и пряный кинематографи�
 ```bash
 magnet:?xt=urn:btih:1A5F00993F6BC0AD0267D0FA369C0FAE2C6522AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +575,8 @@ magnet:?xt=urn:btih:1A5F00993F6BC0AD0267D0FA369C0FAE2C6522AB
 magnet:?xt=urn:btih:4463FDD0D6CC1F4979F12E59868859EDA9F6CC67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +600,8 @@ magnet:?xt=urn:btih:4463FDD0D6CC1F4979F12E59868859EDA9F6CC67
 ```bash
 magnet:?xt=urn:btih:D7E6E5962FE0AC91C32BCC50948A46CAC34D7CA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +627,8 @@ magnet:?xt=urn:btih:D7E6E5962FE0AC91C32BCC50948A46CAC34D7CA4
 magnet:?xt=urn:btih:7281189FB0AED63CA4F1C265DF8BE5E16ECA9A3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +652,8 @@ Realistic Pencil Sketch - экшен для Вашего творчества. �
 ```bash
 magnet:?xt=urn:btih:8705DD46546DF3EC749FFD3E5AF476DE9399DC1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,125 +680,7 @@ magnet:?xt=urn:btih:8705DD46546DF3EC749FFD3E5AF476DE9399DC1E
 magnet:?xt=urn:btih:4A36E17AA881008ECC0BD1BA3B484C11CC300167
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301888   (583270) от 13.05.2019
-
-Растровый клипарт - Happy Easter #21 [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт пасха для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 224x250-1500x1494
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDF10A75637A03EBA1729CDA64651C120F443FF2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041357   (583310) от 08.08.2016
-
-Экшены - GraphicRiver - Pro HDR Photoshop Action 3 [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pro HDR Photoshop Action 3 - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F90EC75458E40117BCF1B0D79BF209B505657B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041371   (583313) от 08.08.2016
-
-Экшены - GraphicRiver - 15 Photo Effects [ATN]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583313.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 Photo Effects - экшен для Вашего творчества.Формат: ATN
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:045A4F9265F28D99D8D89A3EB465728D1BC0D719
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041386   (583316) от 08.08.2016
-
-Экшены - GraphicRiver - Vintage Metal Sign Photoshop Action [ATN, ABR, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vintage Metal Sign - экшен для Вашего творчества.Формат: ATN, ABR, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C2287B25282966DE4E70567B4ABDFFB1B55C8F2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041380   (583321) от 08.08.2016
-
-Экшены - GraphicRiver - Points Pixelate Generator Action Set [ATN, PAT]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Points Pixelate Generator - экшен для Вашего творчества.Формат: ATN, PAT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:509ADE4BF43F344404C82F3C1487C6C2A34E225B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

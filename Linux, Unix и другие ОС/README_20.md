@@ -19,6 +19,8 @@ Antergos - современная, привлекательная и мощна�
 magnet:?xt=urn:btih:AEC99E6CCDE3FC52E78D109ED8476B334B549687
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kubuntu 13.10 Saucy Alpha II [i386, amd64]
 ```bash
 magnet:?xt=urn:btih:DEF15AD73D450D08CED64D98E6F00C16B4772B2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Lubuntu — это свободная операционная система н
 magnet:?xt=urn:btih:035593A321ADD95E0C1F5F2A0822DA0524AFDEEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ OpenMandriva Lx 3.02 PLASMA [i586, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:F33DD7A28DE71CB0866772883FDBC7C6B2242E90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Tor Browser for Linux - удобная и простая модификация 
 magnet:?xt=urn:btih:D80C21E53C9FB2DC92D305DBD4AAADBD3992D33B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:CEB28C8C7F193838B2F7D100257D7C93D53C6ADE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Manjaro Linux 0.8.13 Ascella (Arch + несколько рабочих стол�
 magnet:?xt=urn:btih:2611B7CB6316176C1EABE6E55D8DB37E92006384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Manjaro Linux 0.8.13 Ascella (Arch + несколько рабочих стол�
 magnet:?xt=urn:btih:F2C866234EC9CDA06C9615890D6B8A8A2714ED26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Debian GNU/Linux 9.0 + nonfree Stretch [i386] 4xDVD
 ```bash
 magnet:?xt=urn:btih:7951E4973E67CDD36C441EC2A3F29772F484D47E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Voyager Live X8  (легкий дистрибутив) [efi-amd64, amd64, i386] 
 magnet:?xt=urn:btih:D3EEC25C3FD490D21BA14DAC172B184F3B99BACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ KaOS Linux 2015.06 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:A2257FCDBDC65C80E7C30E25318686FE08727A89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Ubuntu — это разрабатываемая Canonical, основанная
 magnet:?xt=urn:btih:3685A753A54CEA007A2A1EE01031391804CB54F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Kubuntu 14.10 Utopic Unicorn Alpha I [i386, amd64] 2xDVD
 magnet:?xt=urn:btih:01BC3492077048C4055AAF5597753ADFBA25CDE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ OpenBSD — свободная многоплатформенная операц
 ```bash
 magnet:?xt=urn:btih:F5C875FC23122823420AFE0F976FFA70AA3AA0E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ pass: admuser
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ OpenVMS (англ. Open Virtual Memory System, или просто VMS) — пр
 ```bash
 magnet:?xt=urn:btih:999DD737CDB71B5DCA4A07193065BFC0705CF6CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Jondo Live-DVD предлагает безопасные, предварител
 ```bash
 magnet:?xt=urn:btih:65844F34FFAD8E59CFBC8C4886CA616AC807150C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ Linux Mint — дистрибутив операционной системы Li
 magnet:?xt=urn:btih:B823F60872F76030398FB4367772E84FAC6F8264
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ Parted Magic — готовое решение для работы с разде
 ```bash
 magnet:?xt=urn:btih:FFFD4593079504428387E010FCE1C7050C1D8E30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ Debian GNU/Linux 8.1.0 Jessie [amd64] 2xDLBD
 magnet:?xt=urn:btih:1578B1A5773C4FC72A94C2462AA33B57D3F58530
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ Debian GNU/Linux 8.1.0 Jessie [i386] 2xDLBD
 ```bash
 magnet:?xt=urn:btih:B12F7F4650E69852853BF8B9EFC66D06EE7F67E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ Linux Mint — дистрибутив операционной системы Li
 magnet:?xt=urn:btih:A26B7E3D22F3F0976B917599B1C24112675C5DAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ Debian GNU/Linux 8.1.0 Jessie Live [amd64] 7xDVD
 ```bash
 magnet:?xt=urn:btih:6E3B17A00E3B5863CCBF6B16B0CBA11205EB8BD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ Debian GNU/Linux 8.1.0 Jessie Live [i386] 7xDVD
 magnet:?xt=urn:btih:822937E3205741C274CAD9BE7B5AF040E308BEA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ Debian GNU/Linux 8.1.0 Jessie [i386] 3xDVD, update DVD
 ```bash
 magnet:?xt=urn:btih:33A1E89458B1B7A572DA54B04C1CF8E18C0DD50E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +692,8 @@ Ubuntu ServerPack - полный комплект серверного ПО, к�
 ```bash
 magnet:?xt=urn:btih:41283C5E8C0CC0885C2E6CDED74680026A636B57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

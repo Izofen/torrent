@@ -19,6 +19,8 @@ The Gnomon Workshop, Eric Keller | Modeling and Rendering a Realistic Jumping Sp
 magnet:?xt=urn:btih:A464353CB695FE8B5E829739E90DADB2BF0A2DC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Linguafranconia, Катерина Томилина | Курс современн
 magnet:?xt=urn:btih:E077434BFB6CB35629EC7FD74B4A2EC5CB1B53DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:E077434BFB6CB35629EC7FD74B4A2EC5CB1B53DB
 ```bash
 magnet:?xt=urn:btih:2AFC589D42AE7A65539D77511FEA620CD0844CBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Udemy, Виталий Черненко | Формы списков в 1С (2021)
 magnet:?xt=urn:btih:5F414E16C5D424504E51E33A1BA8A683E653316A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ We Teach English, Ирина Ботнарь | Teaching English from A to Z (2021
 magnet:?xt=urn:btih:74AEB59789309F7EC0359187FB527DEFCE3C1834
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ LoftSchool | Основы вёрстки (2017) PCRec [H.264]
 magnet:?xt=urn:btih:B27E9849A939763C98FD6E048CE6AE8731784DF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:B27E9849A939763C98FD6E048CE6AE8731784DF3
 ```bash
 magnet:?xt=urn:btih:4BFE9BD4205903DD5491FF23830BB3E876F573A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ Motion-графика - визуальное оформление для вид�
 magnet:?xt=urn:btih:308B7B02A2576DD3953E4A64654EA87378F33F55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ TypeScript увеличивает эффективность и надёжнос
 ```bash
 magnet:?xt=urn:btih:6B7E06550E677F30C435EBE06227232DE3A29ABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ Lynda.com | Painter 2017 Essential Training (2016) PCRec [H.264/720p-LQ] [RU/EN]
 magnet:?xt=urn:btih:713421B4F067367F821075B29BBD15AB8E61B221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Stepik, Никита Пестров и др. | Создание Web-сервис
 ```bash
 magnet:?xt=urn:btih:754DBC22B0DA507262CC2441EE770E2E2A3CD231
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ Blender Market, Midge "Mantissa" Sinnaeve | Моушн графика в реа�
 magnet:?xt=urn:btih:1DE418A4400D1044ADA0C61C847D323BAFC86316
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ Udemy, Илья Фофанов, Dmitri Nesteruk | Шаблоны проекти�
 ```bash
 magnet:?xt=urn:btih:EC53DE0D13168839D64C9B3168BABA9199AE25E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ CI/CD - универсальная штука, не привязанная к я
 magnet:?xt=urn:btih:55BFF1A7DD54E8BC6C0525738C0B41F8EE620E8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ Udemy, Anfisa Breus | Elementor 2021- от новичка до профи (2021)
 ```bash
 magnet:?xt=urn:btih:87ACC155BE1E40813A5FA024879C6AE3F0F7D6E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ Max Twain  | Insomnia (2017) PCRec [H.264/1080p-LQ]
 magnet:?xt=urn:btih:3F5143906E275ECEF6E55D60FBCAFC3E4614E3A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ PhLearn Pro | The Ultimate Guide to Retouching (2014) PCRec [H.264/1080p-LQ] [EN
 ```bash
 magnet:?xt=urn:btih:54C5DAF884AAFBB0DCD842ADF3F4E60FD91E3984
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ PhLearn Pro | Liquid Portrait (2014) TS [H.264/720p-LQ] [EN]
 magnet:?xt=urn:btih:70E4C16CE9D8C9B11829FE34FA18B026F78223C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ PhLearn Pro | Fashion (2014) TS [H.264/720p-LQ] [EN]
 ```bash
 magnet:?xt=urn:btih:32FFC742D64A09B3CF7B5EEB6F1C92B560B02F93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ PhLearn Pro | Beginners Guide to Compositing (2014) TS [H.264/720p-LQ] [EN]
 magnet:?xt=urn:btih:D34AA6D213A616512438F12890953A5868698F77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ PhLearn Pro | The Perfect Composite (2014) TS [H.264/720p-LQ] [EN]
 ```bash
 magnet:?xt=urn:btih:183C7D4C2F12AB733DB21BB8FC653B6E42317F1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ PhLearn Pro | Juicy Kicks (2014) TS [H.264/720p-LQ] [EN]
 magnet:?xt=urn:btih:CB8292899E330BA07B8C605E2499B8063E71BCA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ CG Boost, Zach Reinhardt | Blender 2.8 Стартовая площадка / Ble
 ```bash
 magnet:?xt=urn:btih:1D36926B013D82F006A75DCA3F15ACFB98E8EFFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +650,8 @@ REST API.Как правильно проектировать, версиони�
 magnet:?xt=urn:btih:F4D5E2688997BDA48321D10D8EE9F73E3E0DEACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ Udemy, CG Masters, Chris Plush, Erindale Woodford | Master Procedural Texturing 
 magnet:?xt=urn:btih:D019CC070483ACEF207AB91D6AE1E24ECE71E4C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ magnet:?xt=urn:btih:D019CC070483ACEF207AB91D6AE1E24ECE71E4C6
 ```bash
 magnet:?xt=urn:btih:0145DBE0FF888E7F24D4B3B8B44A4AD39DA2DD9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

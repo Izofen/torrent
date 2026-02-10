@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:4BD71108CDE917F296A476B4B5F64CED55C4B910
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Go Fight Fantastic - приключенческий экшен с богатым
 ```bash
 magnet:?xt=urn:btih:C8D84B6EFDCF73A735DEEE4D8534200E1856B8D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:C8D84B6EFDCF73A735DEEE4D8534200E1856B8D7
 ```bash
 magnet:?xt=urn:btih:B5685ED6BAD5EDEFF5E5FAF9EDEA8E046DC094CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:B5685ED6BAD5EDEFF5E5FAF9EDEA8E046DC094CA
 magnet:?xt=urn:btih:96BC388A098EB2A14452AF2BABF3CCFA97404EE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:96BC388A098EB2A14452AF2BABF3CCFA97404EE3
 magnet:?xt=urn:btih:E32F2ECDADA6BDC8D7F0C0907AA452F30EC006D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ ElevenClock — это бесплатное программное обеспе�
 ```bash
 magnet:?xt=urn:btih:FA843EF7A0F28CF40FB4D6D1D312DC72D9D1BB89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:FA843EF7A0F28CF40FB4D6D1D312DC72D9D1BB89
 magnet:?xt=urn:btih:FDE7E06A9051467B45CCD820DDC58A03D72067C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ SteamWorld Build является спин-оффом франшизы Стим�
 ```bash
 magnet:?xt=urn:btih:6A2C8B637C2AB8DFD3B0DADE234B629ED9B2A99D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:6A2C8B637C2AB8DFD3B0DADE234B629ED9B2A99D
 magnet:?xt=urn:btih:DD39D78C3C28AF247C204ECD184FA846B65F9CB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:DD39D78C3C28AF247C204ECD184FA846B65F9CB0
 ```bash
 magnet:?xt=urn:btih:C613D2AE116C4D810D1750A8252E178C0557729D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 magnet:?xt=urn:btih:4ABFE9ED36415663740A760464AE2BC1B29F376F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:4ABFE9ED36415663740A760464AE2BC1B29F376F
 magnet:?xt=urn:btih:46BF4E4754594CDE94207B5696743B81AA8B7FD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:46BF4E4754594CDE94207B5696743B81AA8B7FD0
 ```bash
 magnet:?xt=urn:btih:093C55E01AEF31B5BE0942600541F84D81CA1B49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:093C55E01AEF31B5BE0942600541F84D81CA1B49
 magnet:?xt=urn:btih:AA50DC10A70EEBCF4B80930A83B69C4C4FA4BA4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:AA50DC10A70EEBCF4B80930A83B69C4C4FA4BA4C
 ```bash
 magnet:?xt=urn:btih:40006D3D726E6CA5DA6FE2D595CEFBCAF7920D29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:40006D3D726E6CA5DA6FE2D595CEFBCAF7920D29
 magnet:?xt=urn:btih:DC88EE05532D92599FE47DCF12CB66C7F127D0C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:DC88EE05532D92599FE47DCF12CB66C7F127D0C7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:DC88EE05532D92599FE47DCF12CB66C7F127D0C7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ New Look: Революция стиля / The New Look (2024) WEB-DL [H.265/2160
 ```bash
 magnet:?xt=urn:btih:FFF416F5723C6D58AF079E539E9831A091213DCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:FFF416F5723C6D58AF079E539E9831A091213DCF
 magnet:?xt=urn:btih:B72D4926AC678909AD7FF133DCC8E641760887D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:B72D4926AC678909AD7FF133DCC8E641760887D4
 ```bash
 magnet:?xt=urn:btih:FE412510EA5CF172B0BE38C4715A7E0475C69613
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ BBC: Путеводитель по Марсу / Mars: A Traveller's Guide (2017)
 magnet:?xt=urn:btih:1CF43D7D8E8B50CFC1AA84B4316BBEFCDAD7DE85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Shaman King Flowers | Король-шаман: Цветы [2024, TV, 13 эп.] W
 ```bash
 magnet:?xt=urn:btih:F81ECE6D96F0EB9E36335DA97D30206E15CE3D8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:F81ECE6D96F0EB9E36335DA97D30206E15CE3D8B
 magnet:?xt=urn:btih:402F64898C3238013425A07C3EB98CC7AB4ED612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:402F64898C3238013425A07C3EB98CC7AB4ED612
 magnet:?xt=urn:btih:166820A5EE415E93ED9EA1F8E54562BD8A49CC4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:166820A5EE415E93ED9EA1F8E54562BD8A49CC4B
 ```bash
 magnet:?xt=urn:btih:811EC193D5191552E45B2AFBF8EE0AAC15881BB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

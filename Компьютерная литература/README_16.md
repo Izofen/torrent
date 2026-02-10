@@ -19,6 +19,8 @@ Dart – объектно-ориентированный язык програм
 magnet:?xt=urn:btih:F4DBC5E4973C88C9C3E3F15E9589E503DD2A398A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:F4DBC5E4973C88C9C3E3F15E9589E503DD2A398A
 ```bash
 magnet:?xt=urn:btih:A46D3A6AA67EBAB8BF5C6F9A1C20C027083D5BF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:A46D3A6AA67EBAB8BF5C6F9A1C20C027083D5BF5
 magnet:?xt=urn:btih:C916F99B2C90AF2E329A6EB486CA3169B38F39B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:C916F99B2C90AF2E329A6EB486CA3169B38F39B3
 ```bash
 magnet:?xt=urn:btih:DBCBE91D177D57E18DD2CD9853ECCDAF6BCBA76A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:DBCBE91D177D57E18DD2CD9853ECCDAF6BCBA76A
 magnet:?xt=urn:btih:B98C277C0D6C4565BE4E3FE2153BF0711D5F0391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:B98C277C0D6C4565BE4E3FE2153BF0711D5F0391
 ```bash
 magnet:?xt=urn:btih:9054FEB5B44B4D504F27E1712DAF2B22E7C33D57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Acronis | Acronis True Image 2013. Руководство пользовател
 magnet:?xt=urn:btih:F1341C674875F0016F3CAEC4D4F10621A771C8EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:F1341C674875F0016F3CAEC4D4F10621A771C8EA
 ```bash
 magnet:?xt=urn:btih:615A7CC10276790239D6D070495FEE949F677C71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Kotlin - один из самых быстроразвивающихся язы�
 magnet:?xt=urn:btih:2521118D939AEDC64BF59DF4C6BF57AA40C95413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:2521118D939AEDC64BF59DF4C6BF57AA40C95413
 ```bash
 magnet:?xt=urn:btih:9B6A2F5C3821798618E6F3953C9C611BA74B82BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:9B6A2F5C3821798618E6F3953C9C611BA74B82BB
 magnet:?xt=urn:btih:282D9E54B03F1FED618824928B99FD7FD323BF09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:282D9E54B03F1FED618824928B99FD7FD323BF09
 ```bash
 magnet:?xt=urn:btih:B9D9A3C050FB1F27386B250A5EB3F92BA142369E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:B9D9A3C050FB1F27386B250A5EB3F92BA142369E
 magnet:?xt=urn:btih:08F1A346CA10BA50955AFE796EE1AACAE44CD8CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:08F1A346CA10BA50955AFE796EE1AACAE44CD8CD
 magnet:?xt=urn:btih:5E729F335D3B3154D2F9FAB79C41482633887457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:5E729F335D3B3154D2F9FAB79C41482633887457
 ```bash
 magnet:?xt=urn:btih:67DF9BB7343B55F0EA71303D487313F9D7BBD89E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:67DF9BB7343B55F0EA71303D487313F9D7BBD89E
 magnet:?xt=urn:btih:6036E368921BCA8F725DF965AE8C584A4D26A226
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:6036E368921BCA8F725DF965AE8C584A4D26A226
 ```bash
 magnet:?xt=urn:btih:24AF789E477B63097975BF69D2E45EA6CF652393
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ MongoDB - это документо-ориентированная база да
 magnet:?xt=urn:btih:1DC72BC4814ECE182304AA66628FF6F06058DA1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Bartlomiej Plotka | Efficient Go (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:2BC37C28795EFE2111660AE09A54AFF0E5C4C18B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Julien Pivotto, Brian Brazil | Prometheus: Up and Running (2023) [PDF][EN]
 magnet:?xt=urn:btih:6ADA67C3DA624757C78E518FCE7BA9D94EEAB6CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Adobe Systems Incorporated | Руководство пользователя Ado
 magnet:?xt=urn:btih:68B629ED70D819E20D850B0B05135E094E59AF06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:68B629ED70D819E20D850B0B05135E094E59AF06
 ```bash
 magnet:?xt=urn:btih:C9CAD98D03A60B9FC18CE569FA376A77C5D47C2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ O'Reilly | Head First Сборник [18 книг] (2008-2016) [PDF]
 magnet:?xt=urn:btih:5AFA92175155B7E5B888D72DD84F6ADE74E2C544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:5AFA92175155B7E5B888D72DD84F6ADE74E2C544
 magnet:?xt=urn:btih:E10B59DFF2089CF81628934D234F50EFE84CF65B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:E10B59DFF2089CF81628934D234F50EFE84CF65B
 magnet:?xt=urn:btih:06DECCB2ABA7E2BA2D68FA161FF94788B5C15D98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:06DECCB2ABA7E2BA2D68FA161FF94788B5C15D98
 ```bash
 magnet:?xt=urn:btih:364ED7AE36AFAE52717D9134FB50C987006D4700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

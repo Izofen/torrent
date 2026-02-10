@@ -19,6 +19,8 @@ XIX век, японская деревушка, пораженная голод
 magnet:?xt=urn:btih:7BEB9E3A9D257C840A62A06208C1D60051F3FCAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Bulwark: Falconeer Chronicles (2024) [Multi] (20240405) Scene Tenoke
 magnet:?xt=urn:btih:E4BF4B2FA26C20B65D05B40B19132522DD14763E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:E4BF4B2FA26C20B65D05B40B19132522DD14763E
 ```bash
 magnet:?xt=urn:btih:4919DAE8D5AAF28712ADF84A59C5F2469C4DDB9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Five Finger Death Punch  (с англ. — «Смертельный удар
 magnet:?xt=urn:btih:83FA8ECD7604578E00BFA8BA1886F0A447926B74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:83FA8ECD7604578E00BFA8BA1886F0A447926B74
 ```bash
 magnet:?xt=urn:btih:B054C6C9F5D3F1682FEB0CA9B84E09FB537FFE95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ GoodbyeDPI 0.2.2 Launcher 7.4 [Ru]
 magnet:?xt=urn:btih:5E353A6657A8758C7083B376C5EA8AF634FE61A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:5E353A6657A8758C7083B376C5EA8AF634FE61A3
 ```bash
 magnet:?xt=urn:btih:DBDFBB6137BD1CCF43305D45B2B39D535197C3C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:DBDFBB6137BD1CCF43305D45B2B39D535197C3C1
 magnet:?xt=urn:btih:AB2825F5357CAA75D7ED5C8DE5E679CB3D6F52AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:AB2825F5357CAA75D7ED5C8DE5E679CB3D6F52AA
 ```bash
 magnet:?xt=urn:btih:DA3332DA50F3551B78B1CE9DEE0B9F3B6F6AA11F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:DA3332DA50F3551B78B1CE9DEE0B9F3B6F6AA11F
 magnet:?xt=urn:btih:8FD65729DA7FA1E25E8E64D803D3F1E76D6D83EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:8FD65729DA7FA1E25E8E64D803D3F1E76D6D83EE
 ```bash
 magnet:?xt=urn:btih:6CB5C954BA4863C24C7F7736306E5F8EC4B598F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:6CB5C954BA4863C24C7F7736306E5F8EC4B598F3
 magnet:?xt=urn:btih:AB75FC95445553B8FD855B53A57E8B07EED2EF27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:AB75FC95445553B8FD855B53A57E8B07EED2EF27
 ```bash
 magnet:?xt=urn:btih:4FA9D9ACF414782CE3C5AA0247F001DD1A003DE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Undead Unluck | Undead Unluck | Нежить и Неудача [2023, TV, 24 э�
 magnet:?xt=urn:btih:4A85114C54D06400911118636111BF1DD5278E1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:4A85114C54D06400911118636111BF1DD5278E1D
 ```bash
 magnet:?xt=urn:btih:80FADB55DEB40C8A0CEED3D42BF6F961A8808D07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Outline Client VPN 1.12.1 [Multi/Ru]
 magnet:?xt=urn:btih:74E956E075B25B65CBA3F114987C92358A4D0628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:74E956E075B25B65CBA3F114987C92358A4D0628
 magnet:?xt=urn:btih:A7E4D45190AF7F9DC78A8941DB254F789E3FD72C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:A7E4D45190AF7F9DC78A8941DB254F789E3FD72C
 ```bash
 magnet:?xt=urn:btih:E3F088A9FEA992D507FF3791E21CA7B5B7609EC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Sony и Apple показали трейлер чёрной комедии «По
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Sony и Apple показали трейлер чёрной комедии «По
 ```bash
 magnet:?xt=urn:btih:A4B090E05D01485A7A43C79CCD99477AC4F8D32B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ VA - Рок-опера А. Рыбникова и А. Вознесенского 
 magnet:?xt=urn:btih:B5BB7ED853A6E9601A7A77F137F10E5272B47B33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:B5BB7ED853A6E9601A7A77F137F10E5272B47B33
 magnet:?xt=urn:btih:2A710D0E11AB2BDF5E05107119D5D64D1CDEE9EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:2A710D0E11AB2BDF5E05107119D5D64D1CDEE9EB
 ```bash
 magnet:?xt=urn:btih:45F549426DA1B47BD5A5976B8573786B12F0123C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:45F549426DA1B47BD5A5976B8573786B12F0123C
 magnet:?xt=urn:btih:531CAD749EC2958CA0BFD5F0D0DD02D1506B98A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:531CAD749EC2958CA0BFD5F0D0DD02D1506B98A9
 magnet:?xt=urn:btih:9F26EF7FFC3FA6CC87754EFF4DB1CA6838B26853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:9F26EF7FFC3FA6CC87754EFF4DB1CA6838B26853
 ```bash
 magnet:?xt=urn:btih:B37086AAB1FBCA3C0601194BA8BB71E79C026F62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5494A112D8391AA07FD4BEC9911A7B8A455723AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ White Lion - Love Don't Come Easy (1991) CDS, Single [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:65F958BE9018B65E5D04F1A7E373EA123D0ED5C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Cadaver Shrine - Benighted Desecration (2023) [FLAC|Lossless|WEB-DL|tracks] <Dea
 magnet:?xt=urn:btih:7E13165BBF4502119999AD27D7547C6653071FBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Mind Patrol - Milking The Massess (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy, T
 magnet:?xt=urn:btih:B2A2E1BA9126F722D0AB273A38149A10082EC68D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:B2A2E1BA9126F722D0AB273A38149A10082EC68D
 ```bash
 magnet:?xt=urn:btih:757CFC014D8813E74492677E95AB4321B4FF3D5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:757CFC014D8813E74492677E95AB4321B4FF3D5A
 ```bash
 magnet:?xt=urn:btih:CB44B17F5F699E07D1996A675AB1A833ED8AD4D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ Seven Witches - Rebirth (2013) [FLAC|Lossless|image + .cue] <Heavy Metal, Power 
 magnet:?xt=urn:btih:B811DE2AFDCFEE260CB8FC74BE672C0DD5F3B016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ Povarovo - Tchernovik (2007) Reissue, 2012, Denovali  [FLAC|Lossless|Web-DL|trac
 ```bash
 magnet:?xt=urn:btih:F11D611E9F1F88ADADEF6630A7705A2D304ACDA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +246,8 @@ VA - Новички в попсе Vol 14 (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:D872DCA64FCDD91D863E932ECB7D2A8210CC8A70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ Woody Herman - Road Band (1954, 1955) 2005, Membran Music [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:62275FE4F7958F12505E67F19F61D45104096CDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +304,8 @@ magnet:?xt=urn:btih:62275FE4F7958F12505E67F19F61D45104096CDD
 magnet:?xt=urn:btih:FCA04F88F5C5A4149DE75D84271CB8F1EDE7B5FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +333,8 @@ VA - Notes from the Depth, Vol. 9 (2020) [AAC|~330 Kbps] <House>
 magnet:?xt=urn:btih:4B57AC6F24BF2F958E328059A9CD7037C5FBEBE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ magnet:?xt=urn:btih:4B57AC6F24BF2F958E328059A9CD7037C5FBEBE4
 ```bash
 magnet:?xt=urn:btih:0E1E247447A5F7EED13CAC3510D74844EB1591CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +387,8 @@ magnet:?xt=urn:btih:0E1E247447A5F7EED13CAC3510D74844EB1591CB
 magnet:?xt=urn:btih:C12AE24183E2D64D52E811EDF54887A5360F4188
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +412,8 @@ magnet:?xt=urn:btih:C12AE24183E2D64D52E811EDF54887A5360F4188
 ```bash
 magnet:?xt=urn:btih:BA5EB77D12C011AE3B6AA2D31CE941CB42891044
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +442,8 @@ VA - Between Two Points (2001) 12k / Line [FLAC|Lossless|tracks+.cue] <Experimen
 magnet:?xt=urn:btih:1E5FF60D075F3D448CF548C0F726E589DD9578AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +470,8 @@ VA - Coffee Chill Time, Vol. 3 (2017) [AAC|~320 Kbps] <Lounge, Chill Out, Smooth
 ```bash
 magnet:?xt=urn:btih:72F8D3FEEB2BD8FAEB725DF64172AFAF5781F1FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +500,8 @@ Center of the Earth - 4 Albums (2018-2023) [MP3|320 Kbps] <Psych, Stoner, Doom M
 magnet:?xt=urn:btih:E9772289BCB8FC2B4F9F74132C7D920F5657D602
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +529,8 @@ Celestial Shadows - The Tragedy of Calufrax (2023) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:7EA3F504C25C1530A894B456E523DF9B4546BFD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +554,8 @@ magnet:?xt=urn:btih:7EA3F504C25C1530A894B456E523DF9B4546BFD8
 ```bash
 magnet:?xt=urn:btih:B0F41996C4C38583DD5DEC90B90BE1F2722F5AC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +584,8 @@ Willie ''The Lion'' Smith - 1938 - 1940 (1993) Classics [FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:B701065708000A74E73C837B45732C687A03731A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +609,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:C365E319C5F194491CC0FA3EAB9A754146B7F5D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +636,8 @@ VueScan - программа для работы со сканерами HP, Min
 magnet:?xt=urn:btih:BD087169FDB9A34C4C087B7ABCF0EB45E336352C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +661,8 @@ VA - I Love The 90's - The Party (2019) 4CD, Compilation, Mixed [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:A3EB7ABECF931454C26496975B8715873588BB29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +691,8 @@ Lethvm - Winterreise (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Sludge, D
 magnet:?xt=urn:btih:4ADE3564D11CB9211B156C897BCDE49B4D2A0D28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +719,8 @@ Upsidedown Cross - 2 Albums (1991-1993) [FLAC|Lossless|WEB-DL|tracks] <Sludge, D
 ```bash
 magnet:?xt=urn:btih:7DFF5CC3B686E38DE805176C8912C18100EFCCB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

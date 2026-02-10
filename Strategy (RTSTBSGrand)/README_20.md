@@ -19,6 +19,8 @@ Warhammer 40000: Dawn of War – Soulstorm (2008) [Ru/En] (1.2) Repack xatab
 magnet:?xt=urn:btih:952FE5106E35A8B8C1C5E4A8ED0218C1DBDA7BF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Warhammer 40000: Dawn of War – Dark Crusade (2006) [Ru/En] (1.2) Repack xatab
 ```bash
 magnet:?xt=urn:btih:9F5A1A54ECA5344ACC5F910C315EC282094CEE64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Thea: The Awakening – это походовая стратегическая �
 magnet:?xt=urn:btih:9DB39458DA40A7E8930A962DB42C22EFDCD977EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Thea: The Awakening – это походовая стратегическая �
 ```bash
 magnet:?xt=urn:btih:222BA9E7A3D71381F45D23D02FC3F1ABE531F887
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Miner's Mettle (2021) [En] (1.0) License PLAZA
 magnet:?xt=urn:btih:BD58203A546049E68D9ADF0AB4F7CC570B2A5B86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ HUMANKIND – историческая пошаговая стратегия, в
 ```bash
 magnet:?xt=urn:btih:AC02406BA36CF6AF50112C610DCF7DD30027CED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Space Empires IV / Space Empires 4 / Космическая Империя 4 (20
 magnet:?xt=urn:btih:5FB1447BD66F013D461C9291ADB897997D808650
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Star Ruler 2 (2015) [En] (2.0.0/dlc) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:EC8839B4BF621A498FE6E8D4CFF0FF6609994DC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Gnomoria - песочница, в которой мы управляем гру�
 magnet:?xt=urn:btih:B47C21E6E958C83F4DA3690B76A8E0F8BADB301D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Ultimate General: Gettysburg – это тактический симулято�
 ```bash
 magnet:?xt=urn:btih:1D862320BBEF3A99135390EC54B011811745BB6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Crusader Kings II открывает перед игроками один из �
 magnet:?xt=urn:btih:B5DD8597E17B7C8F9188EDF3FE49525C3C52B9CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ War for the Overworld - это микс стратегии в реальном �
 ```bash
 magnet:?xt=urn:btih:6D698497D9DAF746DDA0CC75A17E6F59CFF0A797
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Oriental Empires (2017) [Ru/Multi] (1.0.0.5) License GOG
 magnet:?xt=urn:btih:EAF7E78E58FA3A8CB0FD160099A52B810D6C0499
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Monster Train (2020) [Ru/Multi] (12921/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:697EED3EC504947F48C81EC6B84BCA557D31ED82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Tzar: The Burden of the Crown / Огнем и мечом (2000) [Multi] (1.01) L
 magnet:?xt=urn:btih:17858DC033C1BABEBC7FCA15F4FBA21A62D80FD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Victoria (2003) [En] (2.0.0.1/dlc) License GOG [Complete]
 ```bash
 magnet:?xt=urn:btih:0FC62B34C64B366361151F740CF2E0B2EAEC41F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Europa Universalis IV – продолжение знаменитой серии
 magnet:?xt=urn:btih:1B1110162EE551C296399CED76B601A280BC4CCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Worlds of Magic (2015) [Ru/Multi] (1.0) Repack xGhost
 ```bash
 magnet:?xt=urn:btih:2538DAECB2096075CCE754D9833E14440C62B8DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Battle Realms (2001) [Multi] (1.0/dlc) License GOG
 magnet:?xt=urn:btih:A1067E018080524C99B578EB992C1B790EDA698F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Sorcerer King - Rivals (2016) [En] (2.1.0.2) License GOG
 ```bash
 magnet:?xt=urn:btih:3F2CA5FF237771B340A104E2E6D241168F5FF665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ X-Com Classic Bundle (1994-2001) [En/Multi] (30.03.2016) License GOG
 magnet:?xt=urn:btih:1C6749218EB0E28B6666C3B4472BD1CD537B6EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Dicey Dungeons (2019) [Ru/Multi] (1.11.1) License GOG
 ```bash
 magnet:?xt=urn:btih:A0C8E6CC7136E304EEF0E5C42FF0AF88DDB00273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Broken Lines — это тактическая ролевая игра с раз
 magnet:?xt=urn:btih:9FBEAF404224C11AF4C76DC195D3DF92CF6ACF38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Grand Tactician: The Civil War (1861-1865) - это стратегия в реа
 ```bash
 magnet:?xt=urn:btih:20052FA8CCE741F8EC86C025FCC1306D4667D298
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Fort Triumph (2020) [Ru/Multi] (1.0) Repack xatab
 magnet:?xt=urn:btih:8CF4C723C99067AF9C67CAE80339B111EDC88E19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Rise of Nations – классика популярного жанра исто�
 ```bash
 magnet:?xt=urn:btih:407678610D5F61FF1A96474F8C4F91F61050D3CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Carlos Segarra - Segarra Inn Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 magnet:?xt=urn:btih:8A624E7099CC23873822D2AA304CA009A5E82EF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Spotify имеет громадный каталог музыки, поддер�
 magnet:?xt=urn:btih:EB3228EF50C972DC0226350F1FFC92EDD93404A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:EB3228EF50C972DC0226350F1FFC92EDD93404A7
 ```bash
 magnet:?xt=urn:btih:4A12337BD683A96F62EB9A681EE2DA095CB8EE09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:4A12337BD683A96F62EB9A681EE2DA095CB8EE09
 magnet:?xt=urn:btih:95D4BC90BF15B3DBA7C888525479401326568AB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:55FD967A69656D9293EA3AA9F181E365F05284FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:55FD967A69656D9293EA3AA9F181E365F05284FB
 magnet:?xt=urn:btih:97AC0FB7174C32C2EFE1BC62EC131663D58DD474
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:8AAE036B21A31B1D1F82373A64A6F3A763FB67AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ ColorControl - небольшая программа которая после �
 magnet:?xt=urn:btih:5A23478591D0B357D6CA59AB0F530E34191B7E1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ App Builder позволяет создавать приложения для с
 ```bash
 magnet:?xt=urn:btih:D17EB4A100A086B6555A84BB04606A052B837B1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Grant Dermody - Behind The Sun (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:42A4445F97411A59B8A881CC016288B61A5AB20C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:42A4445F97411A59B8A881CC016288B61A5AB20C
 ```bash
 magnet:?xt=urn:btih:C7146B7958E8FCF9F6EF44ECE957B6E20AB2877E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ Lemuria - Tales, Ale and Fire (2005) [FLAC|Lossless|image + .cue] <Symphonic Bla
 magnet:?xt=urn:btih:6750744F1FA9C7CCB5A5E8D864283199A18B6A2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:6750744F1FA9C7CCB5A5E8D864283199A18B6A2A
 ```bash
 magnet:?xt=urn:btih:5DDB0EFBBE4CE46501E100F8BFE2EA3C25454837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ Warsenal - Feast Your Eyes (2019) [FLAC|Lossless|image + .cue] <Speed, Thrash Me
 magnet:?xt=urn:btih:4260E9DB99403B112B652E132036ED258B16EC80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:4260E9DB99403B112B652E132036ED258B16EC80
 ```bash
 magnet:?xt=urn:btih:87A3AC93D4658E6693AB7422DE5B72161FF434DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ Mezzrow - Then Came The Killing (1990) [FLAC|Lossless|image + .cue] <Thrash Meta
 magnet:?xt=urn:btih:4CDAC0429B205663E1383751C6CB6D8CFCFEF28F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:4CDAC0429B205663E1383751C6CB6D8CFCFEF28F
 magnet:?xt=urn:btih:B9A64EAE27982EB88C8F7A8C821845B9EBC963A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:B9A64EAE27982EB88C8F7A8C821845B9EBC963A3
 ```bash
 magnet:?xt=urn:btih:6C367C763B2B8772D4EE486E8DC1B3522E8F2843
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:6C367C763B2B8772D4EE486E8DC1B3522E8F2843
 magnet:?xt=urn:btih:74809CCC50632C0285B905B4AD8BF72488A9F7A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:74809CCC50632C0285B905B4AD8BF72488A9F7A0
 ```bash
 magnet:?xt=urn:btih:2843B1FCAC0788F30A340DB291C3226FB034076B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:2843B1FCAC0788F30A340DB291C3226FB034076B
 magnet:?xt=urn:btih:F4D214766D407BDCDCC3F0CD248FFCC3ADBEE9E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:F4D214766D407BDCDCC3F0CD248FFCC3ADBEE9E2
 ```bash
 magnet:?xt=urn:btih:46A699E62DE5948BC60A4731ECEF4B062F6E6083
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ NonVisual Desktop Access (NVDA) — свободная с открытым ис�
 magnet:?xt=urn:btih:58FBBD7F7D7C51FF4C69CADBFDED5DDEFFA69052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:58FBBD7F7D7C51FF4C69CADBFDED5DDEFFA69052
 ```bash
 magnet:?xt=urn:btih:05D56BA55211F9B5B0D39EAB8E1C750E1DB57008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:05D56BA55211F9B5B0D39EAB8E1C750E1DB57008
 magnet:?xt=urn:btih:E4D04AE2544600A82CFD4615EC37F4BD4B315327
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ Bibots – это шутер с видом сверху, в жанре rogue lit
 ```bash
 magnet:?xt=urn:btih:7BA883A40AAE2D38E89B90C855C2AF1893543E95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

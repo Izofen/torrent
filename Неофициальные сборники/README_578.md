@@ -1,3 +1,32 @@
+###  Публикация: 997055   (877557) от 15.03.2016
+
+VA - Music For Everyone - Chillstep & Dubstep Vol.4 (2016) [MP3|320 кб/с] <Chillstep, Dubstep, Future Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_877557.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. SizzleBird - Wheel Of Time (Original Mix)
+2. Kid Zion – Awaken Here (Original Mix)
+3. Didrick - A Part Of You (WRLD Remix)
+4. Jex – You (Original Mix)(   Читать дальше...   )Жанр: Chillstep, Dubstep, Future BassПродолжительность: 01:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0606A4BA65EBAB86D9A684BD020D42965BEC560B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996802   (877561) от 15.03.2016
 
 Студия Даниленко"Кореш" - Бродяга из СибЛага (2015) [MP3|320 кб/с] <Shanson>
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:AB99A77A2F18FE578FAB75F99849B300BF0BC186
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Радио Шансон. Здравствуй, весна! (2016) [MP3|256-
 magnet:?xt=urn:btih:C86BFC6C387C649D9F94619727C45FF8438A746D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Beautiful Now: Minimal Tech House NRJ (2016) [MP3|262-320 кб/с] <Minimal
 ```bash
 magnet:?xt=urn:btih:454770B33CE400696F118FBF061281D9C40A3C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - House Nation Volume 7 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
 magnet:?xt=urn:btih:70B5E214DB6A1E6D806495D8E673755470B53E69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Velvet and Night: The Deephouse Selection (2016) [MP3|320 кб/с] <Deep Ho
 ```bash
 magnet:?xt=urn:btih:7690BA8DA9099020491129846C6F2AB92AC09B06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ magnet:?xt=urn:btih:7690BA8DA9099020491129846C6F2AB92AC09B06
 magnet:?xt=urn:btih:3401A664187B78B5EC1B2E84716BCD4C100AB3F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +221,8 @@ VA - The Lounge Legend Ballroom Collection (2009) [MP3|320 kbps]<Instrumental | 
 ```bash
 magnet:?xt=urn:btih:670DEB0177456238FF382D0DB3EA4B9BA4F812CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +251,8 @@ VA - New Age Style - Erotic  Lounge 11 (2017) [MP3|320 Kbps] <Chillout, Downtemp
 magnet:?xt=urn:btih:9D1FF3A3959AE2F9FAEBF03708FD60929E69703B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +279,8 @@ VA - Территоря Нежности. Медляки Для Влюблённ
 ```bash
 magnet:?xt=urn:btih:A0E9F7C52BA374B53801597CF17C4EA7A5C41281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +309,8 @@ VA - Absolute Acoustic (2017) [MP3|320 Kbps] <Acoustic>
 magnet:?xt=urn:btih:88B29B0B8E81FE1A878C2DDF19FC645F01CABACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +337,8 @@ VA - Astral Trance Challenger Vocals (2017) [MP3|320 Kbps] <Trance, Uplifting Tr
 ```bash
 magnet:?xt=urn:btih:8C6F56D9C7D1ABA0C7316B04AAE54D8F58E5FB3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +367,8 @@ VA - Русский шансон лучший (2017) [MP3|256 Kbps] <Шансо�
 magnet:?xt=urn:btih:531F23DB5869C866F4E03040633FD6C2F19105F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +395,8 @@ VA - Blueas About It  (2017) [MP3|256-320 Kbps] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:C7B5F581CE28BE9EA46450BEFF2B966982ABE843
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +425,8 @@ VA - Ресторан Кураж для друзей. Сборник № 4 (2017
 magnet:?xt=urn:btih:23D0E5F5C79C1CD9835CCAA31858B7D658F9885D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +451,8 @@ VA - Big Room Dance House (2017) [MP3|320 Kbps] <Electro, Dance House>
 ```bash
 magnet:?xt=urn:btih:F5F3E44DD78EB18CBC50E4D6496DB4608E3742CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +481,8 @@ VA - New Age Style - Best Of Indian's Songs (2020) [MP3|320 Kbps] <Native Americ
 magnet:?xt=urn:btih:06A178BB516AF28A8863EE3907CBABF13E285E1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +509,8 @@ Kenny G - 100% Kenny G (2020) [MP3|320 Kbps] <Pop, Jazz, Rock>
 ```bash
 magnet:?xt=urn:btih:2B551F49B0F7084D09CE36C5C9EA46B9AAE1ADFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +539,8 @@ CD 1:
 magnet:?xt=urn:btih:B6DFE65D8C0CB901E45FABB4504A47DDD534EB00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +567,8 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:C1CE027E93EFC42968BEF87F85C1B8CF1B7E7F98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +597,8 @@ CD 1:
 magnet:?xt=urn:btih:A8ED95AC05873E9268658D6567A799B9D7209D67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +625,8 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:425A83F74B6611B0D0DFB16BFAD3F92CE05D5AE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +655,8 @@ VA - Beatport Psy Trance: Electro Sound Pack #46 (2020) [MP3|320 Kbps] <Psychede
 magnet:?xt=urn:btih:9CEE01F1841D1F8B0A15D7A6AE4A9F5FB41C0554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +683,8 @@ VA - Get a Rock! (2021) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:78F5C0129143C381AB1D106F134375980E17F1F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +713,8 @@ VA - Самые Лучшие. Медленные Песни Vol.2 (2016) [MP3|32
 magnet:?xt=urn:btih:E5ACD3FA9B7B66A97110606CC2F513AA549CAE57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,32 +739,7 @@ magnet:?xt=urn:btih:E5ACD3FA9B7B66A97110606CC2F513AA549CAE57
 magnet:?xt=urn:btih:182AAF0E1CE2E615A0FA322668AF3870EFC12FD7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495687   (878922) от 13.09.2021
-
-VA - Новинки С Разных Популярных мп3 Сайтов ver. 111 (2021) [MP3|192-320 Kbps] <Club, Dance, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_878922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dance:
-01. Alok & Hollaphonic - Sunglasses At Night (Extended Mix)
-02. Alok, Sofi Tukker & Inna - It Don't Matter (Yudzhin Radio Remix)
-03. David Guetta & The Egg - Love don't let me go (Ayur Tsyrenov DFM Remix)(   Читать дальше...   )Жанр: Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 05:27:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC5237C4CA0CBDA5020B17C35D63D4B7EF96277
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

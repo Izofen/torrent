@@ -22,6 +22,8 @@ JD McPherson - Nite Owls (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:A5D1A22E4E10D72BBE9A9832399802EA3C4607FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Randall Bramblett - Paradise Breakdown (2024) [FLAC 24/44.1|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:88A59BC809CE9DA39FE763E4125C978D5C33270C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Glorious Bankrobbers - Rock'n'Roll Church (2024) [FLAC 24/44.1|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:8E4584C73AE047D15E9DB47FBBC760E44AD4E6F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Morgana Lefay - шведская трэш/пауэр-метал-группа и�
 ```bash
 magnet:?xt=urn:btih:B23A1FF9892AF579EFB3DC2FE988F2AC4B90003B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Sleeper's Keep - Tales Beyond the Past (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:15219A4E248DF15B684B0A693BDA5C33D328FE7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:15219A4E248DF15B684B0A693BDA5C33D328FE7C
 ```bash
 magnet:?xt=urn:btih:A00120CF7B5521E979C93B954BFF384CF90D9740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Walter Smith III - three of us are from Houston and Reuben is not (2024) [FLAC 2
 magnet:?xt=urn:btih:B4C1CEB95A3C222941FDFEF1FE48DDBDDEBACB72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ magnet:?xt=urn:btih:B4C1CEB95A3C222941FDFEF1FE48DDBDDEBACB72
 ```bash
 magnet:?xt=urn:btih:4A3A57B442045885CA4220730FD0D6200B4F635E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:4A3A57B442045885CA4220730FD0D6200B4F635E
 magnet:?xt=urn:btih:25D2961A730826A1810ADB11EDBA78AFF389DC71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:25D2961A730826A1810ADB11EDBA78AFF389DC71
 ```bash
 magnet:?xt=urn:btih:1A6A25306E00A82EE4963E013C28CB30F4EC914C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:1A6A25306E00A82EE4963E013C28CB30F4EC914C
 ```bash
 magnet:?xt=urn:btih:B6AD23A7D3F7D5C21BC120F28B206B164C3F2FB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ Heart 2 Heart - Alley of Dreams (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ha
 magnet:?xt=urn:btih:6D5C92839C451374F1E9C84E7C71A13189B4C3A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ magnet:?xt=urn:btih:6D5C92839C451374F1E9C84E7C71A13189B4C3A1
 ```bash
 magnet:?xt=urn:btih:E1861476922BD7978C171736A45C0A74691C943F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ magnet:?xt=urn:btih:E1861476922BD7978C171736A45C0A74691C943F
 magnet:?xt=urn:btih:84FAA98C4A3CAE511822C1F2A355E1192892346A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:84FAA98C4A3CAE511822C1F2A355E1192892346A
 ```bash
 magnet:?xt=urn:btih:79636CE613441307EA87C366F4181B734C41EFC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +439,8 @@ magnet:?xt=urn:btih:79636CE613441307EA87C366F4181B734C41EFC3
 magnet:?xt=urn:btih:94F71E53942A8C4C60B959E4D7702D54F23CD960
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ magnet:?xt=urn:btih:94F71E53942A8C4C60B959E4D7702D54F23CD960
 ```bash
 magnet:?xt=urn:btih:11217A56DDA856673F50330C75847EF58F76C4F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +495,8 @@ Bad Love Junkie - The Fool Is On The Ledge (2024) [FLAC 24/44.1|Lossless|WEB-DL|
 magnet:?xt=urn:btih:292EE378E183FA1744B7A4E9B0C6102DFEFC795C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ magnet:?xt=urn:btih:292EE378E183FA1744B7A4E9B0C6102DFEFC795C
 ```bash
 magnet:?xt=urn:btih:55318693E3D39B00536D6245B329BC370971318B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +549,8 @@ magnet:?xt=urn:btih:55318693E3D39B00536D6245B329BC370971318B
 ```bash
 magnet:?xt=urn:btih:F03CF567CD37A3BEDC70ED6D85753F20539F3CF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +579,8 @@ Iterum Nata - From the Infinite Light (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock
 magnet:?xt=urn:btih:E4E6AC2B76477D65626B8F86E4E76074031E88CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +606,8 @@ magnet:?xt=urn:btih:E4E6AC2B76477D65626B8F86E4E76074031E88CF
 ```bash
 magnet:?xt=urn:btih:C847097E3881A2E79EC0A341BD3B0E5C900FD782
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +636,8 @@ Jesse "The Rad Hatter" Bedard - Lonely Busker Blues (2024) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:35C903C8B675B2CFD96FC6B346A74EE6B8C5321F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +664,8 @@ Glenn Gatsby - Mission Prohibition (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro
 ```bash
 magnet:?xt=urn:btih:A1FFFD392A3923FA2BF404F39C9E6E617B9C1C96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +694,8 @@ Helloween - The Time of the Oath (1996) Remastered, 2024, Sanctuary Records [FLA
 magnet:?xt=urn:btih:426411A990DB7F5C3F3190355EF83CD355802D35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +722,8 @@ Aisha Khan - The Magnificent Twelve (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:C590744AF295E731210023F5270845DD6180EA64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

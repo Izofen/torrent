@@ -19,6 +19,8 @@ NG: Огромный морской змей / Giant sea serpent (2015) HDTVRip 
 magnet:?xt=urn:btih:2E28F39BD51D5B03D2F8B2737C01550BBCEA22B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Discovery: Войны за моллюсков / Dive Wars Australia (2014) HDTVR
 ```bash
 magnet:?xt=urn:btih:BADA4DFAD6809DA2DE748C8768E568DAED265FC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG: Больше, чем тираннозавр / Bigger Than T.Rex (2014) SATRi
 magnet:?xt=urn:btih:FE14551022B6CCE6EFFD0099B27183B79A105154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG. Жизнь до рождения: Собаки / In The Womb. Dogs (2009) HD
 ```bash
 magnet:?xt=urn:btih:DD3FC40F1AB05AA07858272ACD9B0591BE19AD33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NG. По его собственным словам / In His Own Words (2019) HD
 magnet:?xt=urn:btih:629CD1FA33308AA59B756FE091FA8F9DD694A499
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Discovery: Люди: Кто мы? Нашествие людей / People: Who ar
 ```bash
 magnet:?xt=urn:btih:793BCD1CBE5E8784AA91E8DA6DA1F213239FF624
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Discovery: Неделя акул / Shark Week (2017) HDTVRip [H.264/720p-LQ] (С
 magnet:?xt=urn:btih:587DF39765F97D4CC60CBA3F8B0A1293B8B91C1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Discovery. Инженерия невозможного / Impossible Engineering 
 ```bash
 magnet:?xt=urn:btih:7D907EBCB45D275F2F7D2D44CCC3B602B18C006B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:7D907EBCB45D275F2F7D2D44CCC3B602B18C006B
 magnet:?xt=urn:btih:A616908BF8C53068B99D403D10AA6898F2DF362B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:A616908BF8C53068B99D403D10AA6898F2DF362B
 ```bash
 magnet:?xt=urn:btih:D5AED882BFB9EE3D6EBC57E3A491DF289C13B10C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ NG. С точки зрения науки: Секс / Naked Science: What's Sexy
 magnet:?xt=urn:btih:81A5F45A62FED2CF492A19DB4D83ABA21CED610F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Discovery. Новые захоронения Египта / Egypt's New Tomb Rev
 ```bash
 magnet:?xt=urn:btih:C014D29EC1F5DC939029A8D40735D8CD15ABA3EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ BBC: Древние затерянные города. Тёмные правит
 magnet:?xt=urn:btih:67CD29974AE27816ED38790E42C17E087AEA5CDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ NG. С точки зрения науки: Пули / Naked Science: Bullets (20
 magnet:?xt=urn:btih:8C24E7B3BA07A1A3BD8BA16D2D9B957F643D7A8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ BBC: Инки: Владыки облаков / The Inca: Masters of the Clouds (
 ```bash
 magnet:?xt=urn:btih:7F7BB0705CF687C31C071BE55D48FBDC98A434EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:7F7BB0705CF687C31C071BE55D48FBDC98A434EE
 magnet:?xt=urn:btih:F313FD48E4F6BF91938FA87CD0832B677300B8AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ NG. Осушить океан: Тайны начала операции / Drain 
 ```bash
 magnet:?xt=urn:btih:79D8133F8898B91DE141159877CB248BD97DAE5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ NG. Осушить океан: Тайны начала операции / Drain 
 magnet:?xt=urn:btih:A82015CDF92D7620292DB6F40B2C7C22D62427EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ BBC: Пираты Карибского моря. Черная борода / Bla
 ```bash
 magnet:?xt=urn:btih:D3DE15060EA04FD052DB85444DFE1ADFF9032F4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Discovery: Искусство выживания Рэя Мирса / Ray Mears B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Discovery:  Жизнь отвратительных животных / Nasty by 
 magnet:?xt=urn:btih:6F93038F70D92C8587A9F92AD94F67B320BE90F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ NG: Как это связано? От мечей до беспилотнико�
 ```bash
 magnet:?xt=urn:btih:7AB241E2C20EDFFEE5521E5A69C3E26EB0A646FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:7AB241E2C20EDFFEE5521E5A69C3E26EB0A646FA
 magnet:?xt=urn:btih:8AA56A25E4C880A4D3657A1CF447A77AFF890A1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ NG. Хранители Природы / Guardian of Nature (2005) HDTVRip [H.264
 magnet:?xt=urn:btih:49D819CDD1F33DCE922E9413CFE06A95083F59FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ BBC. Город под водой. Павлопетри / City Beneath the Waves
 magnet:?xt=urn:btih:272B0C54F2D113B015E10142121E605160734AD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ NG. Настольная книга диктатора / Dictators Rulebook (201
 ```bash
 magnet:?xt=urn:btih:BC31741E58EE841F3C1DC3BC03E4B9E8AE3ECA62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

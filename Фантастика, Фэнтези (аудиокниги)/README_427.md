@@ -1,3 +1,30 @@
+###  Публикация: 1220146   (707995) от 17.04.2018
+
+Джон Фланаган | Волшебник Севера (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключения Уилла продолжаются в пятой книге серии. Пять лет прошло с заключения мирного договора между скандианами и аралуианцами. Уилл наконец становится рейнджером и отправляется на место своей службы. И скоро понимает, что даже на маленьком острове могут быть проблемы, которые не дадут ему расслабиться.
+Уилл и его давняя подруга Элис отправляются в новое опасное (   Читать дальше...   )Жанр: Героическое фэнтезиПродолжительность: 09:22:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26F709B43CF839D8B7CB33605FFFB2824D97D9F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130190   (708355) от 05.05.2017
 
 Игорь Власов | Запретный Мир. Исход (2015) [MP3]
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:C0542E3436812763DF83B72748ED6E6BFA6366E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:C0542E3436812763DF83B72748ED6E6BFA6366E3
 magnet:?xt=urn:btih:43F490C0FC7BAF4D2E3F242EED8EB70AC662D387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:43F490C0FC7BAF4D2E3F242EED8EB70AC662D387
 ```bash
 magnet:?xt=urn:btih:0B7FEAF81F8566BBD4A29E7193822FABE7550023
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:0B7FEAF81F8566BBD4A29E7193822FABE7550023
 magnet:?xt=urn:btih:5854CEF8A39490F5AF08389E386D2F1E857DA55C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ magnet:?xt=urn:btih:5854CEF8A39490F5AF08389E386D2F1E857DA55C
 ```bash
 magnet:?xt=urn:btih:B4C45EAC3C077DBD7F1241113BC2F1077BEA14F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +177,8 @@ magnet:?xt=urn:btih:B4C45EAC3C077DBD7F1241113BC2F1077BEA14F1
 magnet:?xt=urn:btih:C7D781534E072206A76975F03DC8FEDA08CC20B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +202,8 @@ magnet:?xt=urn:btih:C7D781534E072206A76975F03DC8FEDA08CC20B0
 ```bash
 magnet:?xt=urn:btih:41442944CFC226436BF3A964D1C3B339A39728DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ magnet:?xt=urn:btih:41442944CFC226436BF3A964D1C3B339A39728DB
 magnet:?xt=urn:btih:FBD6E538CF18A0AEDC4AAA8506D9D125E954B7EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +256,8 @@ magnet:?xt=urn:btih:FBD6E538CF18A0AEDC4AAA8506D9D125E954B7EC
 ```bash
 magnet:?xt=urn:btih:B103A88BCCBD40C3618B066A6B8A2E7432276EF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +283,8 @@ magnet:?xt=urn:btih:B103A88BCCBD40C3618B066A6B8A2E7432276EF7
 magnet:?xt=urn:btih:FEE44A3320B9444E156D53B3DB44ABAAD0354E2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +309,8 @@ magnet:?xt=urn:btih:FEE44A3320B9444E156D53B3DB44ABAAD0354E2A
 magnet:?xt=urn:btih:11BFD381BCC0F7FD05C5A19B71803B03F956D76D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +334,8 @@ magnet:?xt=urn:btih:11BFD381BCC0F7FD05C5A19B71803B03F956D76D
 ```bash
 magnet:?xt=urn:btih:439DA2DB50A07871CA9C4096CA7BB52AAD567C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +362,8 @@ magnet:?xt=urn:btih:439DA2DB50A07871CA9C4096CA7BB52AAD567C62
 magnet:?xt=urn:btih:96043A2F80C7336B69B862653D77704443AC010E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +388,8 @@ magnet:?xt=urn:btih:96043A2F80C7336B69B862653D77704443AC010E
 magnet:?xt=urn:btih:4757DD8475239DFAE45662A6974B0C7E40A94F2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +413,8 @@ magnet:?xt=urn:btih:4757DD8475239DFAE45662A6974B0C7E40A94F2F
 ```bash
 magnet:?xt=urn:btih:BBA9AE435B4F94919D24C3D6A0501712C810281B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +441,8 @@ magnet:?xt=urn:btih:BBA9AE435B4F94919D24C3D6A0501712C810281B
 magnet:?xt=urn:btih:0A5A7E8826D2F63BFE206B430668D51021FBD4B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +468,8 @@ magnet:?xt=urn:btih:0A5A7E8826D2F63BFE206B430668D51021FBD4B9
 magnet:?xt=urn:btih:D8BAEB15F4201D0C07D65BD78CAA6420647C26F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +493,8 @@ magnet:?xt=urn:btih:D8BAEB15F4201D0C07D65BD78CAA6420647C26F3
 ```bash
 magnet:?xt=urn:btih:9E2BD2D5C714276B4F4B45452130E57EE21CE05C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +520,8 @@ magnet:?xt=urn:btih:9E2BD2D5C714276B4F4B45452130E57EE21CE05C
 magnet:?xt=urn:btih:852B339B8E88E8B294D9297657FFA6E09B3C8441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +545,8 @@ magnet:?xt=urn:btih:852B339B8E88E8B294D9297657FFA6E09B3C8441
 ```bash
 magnet:?xt=urn:btih:C114A72CE890D5CDB1D1ED8988E63CA4C36D588B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +573,8 @@ magnet:?xt=urn:btih:C114A72CE890D5CDB1D1ED8988E63CA4C36D588B
 magnet:?xt=urn:btih:A9B4EA3896B6EFE31D4018D694FA9CB59C6DCC89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +598,8 @@ magnet:?xt=urn:btih:A9B4EA3896B6EFE31D4018D694FA9CB59C6DCC89
 ```bash
 magnet:?xt=urn:btih:8F5EE8D24A30F55B465F1C5DE7466FD9017E85D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +625,8 @@ magnet:?xt=urn:btih:8F5EE8D24A30F55B465F1C5DE7466FD9017E85D8
 magnet:?xt=urn:btih:882CA3DD527E0F1E44831ACBB11F6423EE61C04A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +650,8 @@ magnet:?xt=urn:btih:882CA3DD527E0F1E44831ACBB11F6423EE61C04A
 ```bash
 magnet:?xt=urn:btih:99B4909A842B0CD15CE5CD42D6ACC92DAE1DC4DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +678,7 @@ magnet:?xt=urn:btih:99B4909A842B0CD15CE5CD42D6ACC92DAE1DC4DD
 magnet:?xt=urn:btih:5B12574273EC903FB31BE047BB86DFDFFECE5151
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286286   (712615) от 02.03.2019
-
-Михаил Ланцов | Безумный Макс: Ротмистр Империи. Книга 2 (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наш человек нигде не пропадет! Попал в прошлое? Не беда… Прогулялся по вражеским тылам и сорвал немцам все планы начала Первой мировой, за что получил новое звание, десяток орденов и большую денежную премию! Правда, довеском к наградам пошли несколько ранений, но «на войне, как на войне», не так ли? Минул год. Наступила весна 1915 года. Подлечившись и хорошенько (   Читать дальше...   )Жанр: Боевая фантастика, Историческая фантастика, ПопаданцыПродолжительность: 09:34:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55D02540E5CA01ECDAC7B9841D35AFAC27B69875
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

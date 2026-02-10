@@ -1,678 +1,721 @@
-###  Публикация: 1123668   (786379) от 08.04.2017
+###  Публикация: 1124438   (785829) от 11.04.2017
 
-VA - Sunrise Energy Morning Meditation (Deep Meditation Music) (2017) [MP3|320 Kbps] <Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Interstellar Meditation Music Zone - Sunrise Energy (Morning Meditation)  3:43
-02.  Mantra Yoga Music Oasis - Open Your Eyes (Power Day)  3:55
-03.  Relax Time Universe - Relax For Mind And Body  3:17
-04.  Relax Time Universe - Breathing Technique (Slow)  3:36(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 03:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB96F21987582C67091329B7C37C2ACFB560102D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123536   (786380) от 08.04.2017
-
-Little Green Machine II - самый маленький в мире суперкомпьютер на сегодняшний день
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_786380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа исследователей из Лейденского университета, Нидерланды, при содействии специалистов компании IBM, не так давно закончили процесс создания нового суперкомпьютера. Этот суперкомпьютер получил название Little Green Machine II, его вычислительная мощность равна 0.2 Пфлопс. Суперкомпьютер будет использоваться для математических расчетов из области океанографии, (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123354   (786381) от 08.04.2017
-
-Доля интернет-пользователей в России достигла 75%
-
->>Поговорим
->>Новости
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_786381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Средний стаж пользования интернетом в России составил 9 лет
-Доля интернет-пользователей в России в 2017 году составила 75% - таким образом, она выросла почти в полтора раза с 2011 года, когда составляла 51%, сообщает ВЦИОМ.Среди молодежи 18-24 лет практически ежедневно заходят в сеть около 90%, среднее время пользования интернетом в России составляет 9 лет, показал (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123487   (786382) от 08.04.2017
-
-Спиридон Вангели | Приключения Гугуцэ (1972) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786382.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы и сказки о простом молдавском мальчике по имени Гугуцэ, в которых с глубокой мудростью, ненавязчиво автор ведет разговор о том, «что такое хорошо и что такое плохо».Жанр: Детская прозаПеревод: Валентин БерестовФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C581F8F11BEC31278423D2CFCB5E9BA510EB496
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123783   (786383) от 08.04.2017
-
-Алексей Зардинов - Разбитые мечты (1995) [FLAC|Lossless|image + .cue] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хочу остаться
-02. Созвездие гончих псов
-03. Последний теплоход
-04. Обними(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:56:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61DDE4D0C68B87663565D2A0438E226D77A1D960
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123504   (786384) от 08.04.2017
-
-Открытый микрофон (2017.04.07) HDTV [H.264/1080i] (выпуск 11)
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786384.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 января на ТНТ начнется новое оригинальное юмористическое шоу талантов – «Открытый микрофон». Участниками проекта станут молодые (и не очень), никому неизвестные стендап-комики, которые будут бороться за возможность попасть в основной состав одного из самых популярных комедийных шоу в России – Stand Up на ТНТ. Несмотря на то, что многие участники «Открытого микрофона» (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: ЮморСубтитры: ОтсутствуютПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F75527EB9DFE426ECCDCE4BE6C4C4EE3228707F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123548   (786385) от 08.04.2017
-
-VA - Body Shaper Vol.1 (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Loreley - Written In The Sky (Radio Edit)  3:30
-02.  Feanor - Locked & Load (Radio Edit)  2:52
-03.  Dave Gate - Take Me Away (Radio Edit)  3:26
-04.  Brothers - Escape (Radio Mix)  3:14(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:16:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763E22B1C27A37DBF0635787492BD89F090E1C01
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123691   (786386) от 08.04.2017
-
-Военная тайна с Игорем Прокопенко (2017.04.08) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786386.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 03:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87D8F7D172C4B0B9258A917A12530B1A00CDF8C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123585   (786387) от 08.04.2017
-
-Oceans of Slumber - Winter (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Death Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter (07:58)
-02. Devout (05:08)
-03. Nights in White Satin (05:45)
-04. Lullaby (01:56)(   Читать дальше...   )Жанр: Progressive Metal, Death MetalПродолжительность: 01:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7E08954DF1961F3A2ACAE75F28C41B11B9809E7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123300   (786388) от 08.04.2017
-
-А. И. Кащенко и др. (ред.) | Закон стоимости в социалистическом обществе (1957) [DJVU, PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий сборник подготовлен коллективом преподавателей политической экономии высших учебных заведений г. Ярославля. Его цель — рассмотреть различные стороны действия закона стоимости в сфере производства, обращения и распределения общественного продукта, а также показать, как Коммунистическая партия и Советское государство используют закон стоимости в хозяйственной (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A885DB1C3EECA5A4A1FBFAE2BF996D23154DB52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123483   (786389) от 08.04.2017
-
-Martin Buttrich - Collaborator Vol.1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Tech, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Buttrich & DJ Tennis - Perpetual (Original Mix) [12:49]
-02. Martin Buttrich & Ramon Tapia - Evita (Original Mix) [08:36]
-03. Martin Buttrich, Timo Maas - Nach Acht [03:29]
-04. Martin Buttrich, Loco Dice - Damn U Made It [03:26](   Читать дальше...   )Жанр: Tech House, Deep Tech, MinimalПродолжительность: 02:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:990E5DD6E1E06314BF652CEB288A662F02217962
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123369   (786390) от 08.04.2017
-
-Mattias IA Eklundh Freak Guitar - The Smorgasbord (2013) 2CD [FLAC|Lossless|image + .cue] <Experimental Progressive Metal, Rock, Shred>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amphibians Night Out 03:31
-02. Musth 03:11
-03. Mattias - The Beautiful Guy 02:27
-04. Hells Bells 03:39(   Читать дальше...   )Жанр: Experimental Progressive Metal, Rock, ShredПродолжительность: 01:53:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D2B48BF6EB765D4955E36CC5C3D233DEA40ADFA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123535   (786391) от 08.04.2017
-
-Сверхчистые кристаллы алмаза позволяют объединить в один мощный луч лучи нескольких лазеров
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_786391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа ученых из университета Маккуори (Macquarie University), Австралия, продемонстрировала способ умножения мощности луча лазерного света при помощи сверхчистого кристалла алмаза. Этот кристалл позволяет сложить в один интенсивный луч лучи нескольких менее мощных лазеров, и все это сильно напоминает технологию, использованную в космической боевой станции "Звезда (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123489   (786392) от 08.04.2017
-
-Прем Чанд | Змеиный камень (1957) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786392.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге собраны рассказы выдающегося индийского писателя Прем Чанда.Жанр: Детская прозаПеревод: Юрий Антонов, Михаил Лавриненко, Юрий ЛукичФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEBB0F4DB2A14EA23C47BFCE2FB618A9DE30E49E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123156   (786393) от 08.04.2017
-
-The Red Earth Blues Band - The Red Earth Blues Band (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain Song (3:41)
-02. Retro Man (3:28)
-03. No Brew (4:50)
-04. Wild Eyed Gypsy Man (4:15)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:252643305E0865443DC2317B8C485DF1D8006D57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123736   (786394) от 08.04.2017
-
-SkyLab Studio 2.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786394.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Вдохновленный своей собственной любовью к красивому небу".
-SkyLab Studio - изменит ваше представление о небе на фотографии.
-Представьте себе  ошеломляющее небо на ваших фотографиях с этим инновационным новым приложением.
-(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 апреля 2017Разработчик: BrainFeverMedia LLCПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F4D6CBB3CA41FC15FD0D2AAE22595B08D29D0F0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123752   (786395) от 08.04.2017
-
-VA - Second Envizion (2009) [FLAC|Lossless|tracks+.cue] <IDM, Abstract, Glitch, Downtempo, Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Auskeur - Film (07:37)
- 02. Culprate - Slipper (05:53)
- 03. IJO - The Avials (04:13)
- 04. Sintetic-Collage - Siguiendo El Camino (04:02)(   Читать дальше...   )Тип издания: CD •Жанр: IDM, Abstract, Glitch, Downtempo, Experimental •Продолжительность: 01:10:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED96CF73604EADF7F099DB6882C1A8C61A004ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123157   (786396) от 08.04.2017
-
-Rockin' Blues - Make it Right (2012) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Times A Rollin' (3:50)
-02. A Little Love (4:00)
-03. Sentenced To Smile (3:03)
-04. One-Way Kind Of Love (4:20)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3111099A048B7296BE24331394893B1D13DB89D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123529   (786397) от 08.04.2017
-
-VA - Весенние заводные хиты. Выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786397.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Миша Майер - Вспоминай 3:29
-002. Alex Kafer & Lera - Я У Твоих Ног 3:36
-003. Proвокация - Два Сердца 3:35
-004. Елка - Впусти Музыку 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F219625DA59877AAADC70F17D8C09B01E2EE18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123603   (786398) от 08.04.2017
-
-Oceans of Slumber - Blue (2015) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786398.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Solitude (A Candlemass) (06:21)
-2. Turpentine (reprise) (04:36)
-3. The Emperor (Variation on a Theme by Samoth) (06:04)
-4. Memoriam (Blue Studio Edition) (01:54)(   Читать дальше...   )Жанр: Progressive Metal, Death MetalПродолжительность: 00:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031633EC4C7F12551ED5AFE5A21597EF34B92F30
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123619   (786399) от 08.04.2017
-
-Furious Few - Furious Few (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hail Mary (03:04)
-02. Purity Gone (03:12)
-03. A Tale of Two (04:31)
-04. The Devil Makes Five (04:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:800873F8E13A2512AD3E09A9C20C5A3FCC1C0265
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123645   (786400) от 08.04.2017
-
-Threshold - For The Journey (2014) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786400.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Watchtower On The Moon (05:32)
-2. Unforgiven (05:37)
-3. The Box (11:59)
-4. Turned To Dust (04:19)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4615C2A7139FBF342A8B66B1799CFBAAB1361732
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123511   (786401) от 08.04.2017
-
-VA - Популярные весенние новинки (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786401.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Жанна Прохорихина - Стилистам 3:31
-002. Алиса Кожикина - В Стране Чудес 3:32
-003. Caravella - Твой Последний Уикенд 3:24
-004. Виктор Поплеев - Половина Мира 3:21(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4FFF823DDC6B81916687EBFD88E13FDACFAA0E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123633   (786402) от 08.04.2017
-
-Thelonious Monk - Six Classic Albums, Vol.2 (1957 - 1959) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+Chet Baker Quartet - Jazz At Ann Arbor (1954) 2002, Toshiba [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786402.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785829.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1 - Brilliant Corners & Thelonious in Action:
-01.Brilliant Corners [07:46]
-02.Ba-Lue Bolivar Ba-Lues-Are [13:07]
-03.Pannonica [08:51](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 04:31:21
+01.Line For Lyons [07:33]
+ 02.Lover Man [06:00]
+ 03.My Funny Valentine [05:31]
+ 04.Maid In Mexico [05:17](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 00:46:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E07E5939E584CC57D4E755530519622E34BD2C30
+magnet:?xt=urn:btih:6DFE0DC210FD69115CC58DFEEA293BE799CED41B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123596   (786403) от 08.04.2017
+###  Публикация: 1124417   (785830) от 11.04.2017
 
-Oceans of Slumber - Aetherial (2013) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Death Metal>
+VA - When The Sun Goes Down Vol.6 (Deep House Essentials) (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Soap Bubbles - I Remember U & Me (Extended Mix)  5:13
+02.  Bildertal - Sunder Uul (Soundspretty Remix)  4:53
+03.  Sak Chaime - Swag (Extended Mix)  5:08
+04.  After Sunrise - Time To Chill  7:48(   Читать дальше...   )Жанр: HouseПродолжительность: 02:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8CDC344706388AA0A39936F0E55AC2BB9952939
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124565   (785831) от 11.04.2017
+
+VA - Lone Scapes: Chillout and Relaxation (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enrico Donner - Golfinhos
+02. Don Gorda Project - Greenwood
+03. Cane Garden Quartet - Erotisme
+04. Cane Garden Quartet - Into the Green(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B61D183DEB1544385F43487E9F2DE753EE856EBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124239   (785832) от 11.04.2017
+
+QuickPhotos for Google 1.1.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785832.jpg" />
+</div>
+
+
+###  Подробнее
+
+QuickPhotos for Google - это самый простой способ использования Google Фото на Mac.
+QuickPhotos for Google - это приложение для Mac, в котором пользователи могут загружать, просматривать и загружать фотографии в облаке Google. Это приложение даст вам быстрый доступ к вашим фотографиям Google в компактном макете приложения, откуда пользователи смогут загружать и загружать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 04.04.2017Разработчик: AppEaseПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773CFAE75E6B795901A98374FD54EE5BD5D86A72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124538   (785833) от 11.04.2017
+
+Takeri - Imagination Vol. 7 (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above The Ocean (07:06)
+02. In The Quest Of An Angel (10:31)
+03. Sunrise (06:48)
+04. Beyond Reality (03:25)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F868F966AACB8A94E5C1F7EA222C3023FC42DA4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124412   (785834) от 11.04.2017
+
+А. И. Лобачев | Против тьмы (1990) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785834.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге освещается деятельность профсоюзов республик Средней Азии по утверждение социального равенства женщин в период построения социализма. Через призму критического осмысления опыта прошлых лет даются рекомендации по совершенствованию работ партийных, профсоюзных, государственных и хозяйственных органов среди женщин на современном этапе.Жанр: История, политология, культурологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0195BE7946E5F7D39915F60C3755BD98487AE82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124429   (785835) от 11.04.2017
+
+VA - Just Slow Music: 10 Exclusive Selected Electronic Tracks (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armanda Carlay - Paris - Dakar - Slow Beat Mix
+02. St. Robert - Inner Light
+03. Ann Carola - Feel the Presents
+04. Maya Girl - Rain Forrest(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:46:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C93853DA05C9D34DAA1ECF352343FB31C918AF7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124308   (785836) от 11.04.2017
+
+VA - Lounge Expression. Chillout Selection (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rawback - Web Dream - Bunny Mix
+02. Inside Soul - Grassland - Rose Extended
+03. Roben Bucks - Falling Apart - Mirror Version
+04. Vintage Bullet - Dance Hole - Soul Cut(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B8CA35134DBA3BE64130ABA154D534CA9B0C760
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124296   (785837) от 11.04.2017
+
+VA - Lounge Sensations Vol.3 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Deeper Sublime - La Musica Sei Tu  5:58
+02.  Fade - Aguhja  7:06
+03.  Mark One - Out Of Touch  4:05
+04.  Marc Hartman - People Of Beijing  4:36(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB403258BC4DD24C84D0894CD9BD5F79B82A49D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124516   (785838) от 11.04.2017
+
+Волейбол. Лига Чемпионов 2016-2017. Мужчины. Плей-офф-Раунд 12. 2-й матч. ЗАКСА (Польша) — Белогорье (Россия) (22.03.2017) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785838.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 марта 2017 года
+Лига Чемпионов 2016-2017. Мужчины. Плей-офф  «Раунд 12-ти».. 2-й матч
+ЗАКСА (Кендзежин-Козле, Польша) — Белогорье (Белгород, Россия)
+Стадион:	Дворец спорта "Кендзежин-Козле" (Кендзежин-Козле, Польша), 2700 зрителей(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE64BB05BA28521F0BDFF372D2CF4E9EB2B80FBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124367   (785839) от 11.04.2017
+
+Taliandorogd - Neverplace (2002) [APE|Lossless|image + .cue] <Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786403.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785839.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. God In Skin (05:05)
-2. Coffins Like Kites (07:22)
-3. Memoriam (05:28)
-4. Remedy (04:47)(   Читать дальше...   )Жанр: Progressive Metal, Death MetalПродолжительность: 00:58:47
+01. De Profundis 02:21
+02. Progeny 04:39
+03. Utopia Sworn 05:25
+04. The Glimpse 07:29(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:31:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20BF1DAC2139E5BF0135C18B467AA9C90C977BB9
+magnet:?xt=urn:btih:9ABAF866A9883AC6687B0E00CAECFFC2D3480190
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123660   (786404) от 08.04.2017
+###  Публикация: 1124503   (785840) от 11.04.2017
 
-Devon Allman - Ragged & Dirty (2014) [FLAC|Lossless|image + .cue] <Blues Rock, Southern Rock>
+Lou Donaldson - The Righteous Reed! The Best Of Poppa Lou (1967 - 1973) 1994, EMI [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786404.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785840.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Half The Truth  (03:07) 
-02. Can't Lose 'Em All  (03:45) 
-03. Leavin'  (02:42) 
-04. I'll Be Around  (03:56) (   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:48:12
+01.Alligator Bogaloo [06:54]
+ 02.Rev. Moses [06:26]
+ 03.Peepin' [08:19]
+ 04.Midnight Creeper [06:32](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:16:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35E807FBB1CDCB1493648C583D60CA40CD359B37
+magnet:?xt=urn:btih:3AF826B68E985E0C0113B31CD4B026E81EB48993
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124505   (785841) от 11.04.2017
+
+Волейбол. Лига Чемпионов 2016-2017. Мужчины. Плей-офф-Раунд 12. 2-й матч. Динамо (Россия) — Аркас (Турция) (21.03.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785841.jpg" />
+</div>
+
+
+###  Подробнее
+
+21 марта 2017 года
+Лига Чемпионов 2016-2017. Мужчины. Плей-офф  «Раунд 12-ти». 2-й матч
+Динамо (Москва, Россия) — Аркас (Измир, Турция)
+Стадион:	СК Динамо (Москва, Россия), зрителей: 1900 (вместимость: 5000)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7005F08F497D97D5F63479A0533C8591A231DD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124435   (785842) от 11.04.2017
+
+Johnnie Pate Trio - Complete Recordings 1955-1956 (2013) Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Oo, You're A Livin' Doll [02:10]
+ 02.Midnight Sun [03:12]
+ 03.Montoona [02:51]
+ 04.A Foggy Day [02:48](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:024DE7037FCEA870505600BF0DEE0176F8BF85C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124280   (785843) от 11.04.2017
+
+Valery Ponomarev - The Messenger (2001) Reservoir [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Driving To A Gig II [06:15]
+ 02.Messenger From Russia [09:05]
+ 03.Long Distance Relationship [06:11]
+ 04.Escape From Gorki Park [09:43](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCCBAE7BD5472BA685E7EAFC7B307BA2903A5316
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124443   (785844) от 11.04.2017
+
+Paul Bley - Live In Haarlem (1966) 1999, DA Music [FLAC|Lossless|image + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blood [18:41]
+ 02.Mister Joy [23:53]Жанр: Avant-Garde Jazz, Free Improvisation, Piano JazzПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302E913289D6E97CC9FB4E88E30DE3AF1FB12D7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124114   (785845) от 10.04.2017
+
+Navitel / Навител Навигатор v9.8.3 RePack для карт релиза Q1-2017 [Ru/En]
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Навигационная программа Навител отображает текущее местоположение пользователя на карте и способна с помощью отображения маневра на экране навигатора и голосом подсказать водителю, когда и куда необходимо повернуть на автоматически проложенном маршруте для скорейшего прибытия в необходимое место. Также Навител может предсказать время прибытия в точку назначения, (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 09.04.2017Разработчик: NAVITEL ®Поддерживаемая ОС: Android 2.0 +Язык интерфейса: Русский / Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FB7F2D43D26C805698C76DABF28BE11855EA9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123825   (785846) от 10.04.2017
+
+Need for Speed: Undercover (2008) [Ru/Multi] (1.0.1.18/dlc) Repack ivandubskoj
+
+>>След.
+>>Racing
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто бы мог подумать, что твоя жизнь обернется погоней, где ты - то дичь, то охотник. Садись за руль, чтобы внедриться в безжалостный международный преступный синдикат и обрушить его изнутри. Тот, кого ты преследуешь, - настоящий маньяк на колесах. Он гоняет, словно от этого зависит его жизнь, и, возможно, так оно и есть. У него ответы на все твои вопросы, и твоя (   Читать дальше...   )Тип издания: RepackРазработчик: EA Black BoxЖанр: Arcade, Racing (Cars), 3DЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A342085DDA195A239F3DA780A352C2703EB23F00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124297   (785847) от 10.04.2017
+
+Red Giant Knoll Light Factory for Photoshop CS5 - CC 2017 (в составе пакета Effects Suite) v3.2.3 [En]
+
+>>След.
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Red Giant Effects Suite 11 представляет собой набор из 9 инструментов, которые служили сообществу визуальных эффектов в течение многих лет, обеспечивая творческую свободу для получения профессиональных эффектов.
+
+ В сборник вошли следующие компоненты: Knoll Light Factory 3.0, Knoll Light Factory 3.2.3 for PS, Composite Wizard 1.4.6, Toonlt 2.1, Holomatrix 1.2, Image (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2014Разработчик: Red GiantПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1A5703E12206C420B4DA46547C5E8A791C4D5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123924   (785848) от 10.04.2017
+
+Profileschool | Основы аналоговой фотографии (2017) PCRec [H.264/1080p]
+
+>>След.
+>>Фотография и Видео (видеокурсы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ваши пленочные кадры смотрятся хуже цифровых? Вы делаете много лишних дублей в надежде угадать экспозицию? В лаборатории вам портят черно-белые пленки плохой проявкой? Вам кажется, что съемка на пленку — дорогое удовольствие? Узнайте, как правильно определять экспозицию, что нужно знать о ручной проявке фотопленок и какое вспомогательное оборудование сделает процесс (   Читать дальше...   )Жанр: ФотоПродолжительность: 06:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A29FB8CC3E743FB1E20A1271A17D40E65D2D25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124347   (785849) от 10.04.2017
+
+Hide Folders 5.5 Build 5.5.1.1161 RePack by KpoJIuK [Multi/Ru]
+
+>>След.
+>>Разное (остальные программы по безопасности)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hide Folders - это удобный инструмент для сокрытия вашей конфиденциальной информации от посторонних. Программа позволяет скрывать целые папки на компьютерах под управлением Windows® XP/Vista/7/8. Очень удобна и проста в использовании, достаточно просто перетащить скрываемую папку в окно программы и нажать всего одну кнопочку. Программа Hide Folders была специально (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DD1CFAE7AA8D7801E35C10891F02B19F81FC370
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124178   (785850) от 10.04.2017
+
+Что? Где? Когда? (2017.04.09) SATRip (Весенняя серия: игра 3)
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Популярнейшая командная интеллектуальная игра. В элитарном телевизионном казино игроки-знатоки зарабатывают деньги своим умом, отвечая на вопросы телезрителей. Проводятся летние и зимние игры. В эфире с 1975 года. За четверть века перед глазами телезрителей прошло более 170 игр. Сначала программа обосновалась в баре телецентра в Останкино и провела там 7 лет (с 1975 (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0EFB0355493DEA7E11EA4B8EE2517D34D191294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124299   (785851) от 10.04.2017
+
+ZiL Truck RallyCross (2017) [En] (1.0) License TiNYiSO
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Брутальные Советские грузовики ЗИЛ на трассе! Примите участие в соревнованиях по ралли-кроссу на грузовиках ЗИЛ на трассах, расположенных в разных регионах мира. В игре есть ЗИЛ-164, ЗИЛ-130 и ЗИЛ-433360 в различных вариантах дизайна и технических характеристиках. RallyCross - это соревнования, которые проводятся на кольцевых трассах, расположенных на пересеченной (   Читать дальше...   )Тип издания: LicenseРазработчик: Ara InteractiveЖанр: Racing, Simulator, 3DЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:062E5902F1975B15DFD5832FBED29229F4961B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124157   (785852) от 10.04.2017
+
+Гора 2 / Dag II / The Mountain II (2016) WEBRip [H.264/720p-LQ] [AD]
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает историю секретного отряда спецназа Позывной «Приносящий бурю». После событий первого фильма Бекир и Огуз, стали лучшими друзьями, побывали во всемирно известном, постоянно изнурительном турецком спецназе. Их первая миссия начинается шесть лет спустя - проникнуть в самый варварский район Ирака для спасательной миссии.Производство: Турция, 3leven, CaglarArts Entertainment, Insignia ProductionsЖанр: Драма, Военный, ИсторияРежиссер: Алпер КагларАктеры: Аджак Озан, Бедий Акин, Мурат Аркин, Эйлюль Арулар, Уфук Байрактар, Эмир Бендерлиоглу, Джаглар Эртугрул, Атилган Гюмюс, Ахмет Пинар, Мурат Серезли...Перевод: Профессиональный, многоголосый закадровый (Синема УС)Субтитры: ОтсутствуютПродолжительность: 02:10:06Реклама: Присутствуют вставки голосовой, видео и текстовой рекламы!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAB6D13F6232C07BCFA3CFF21FADC5BD283AF1C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 666399   (785853) от 10.04.2017
+
+Дежа вю / Deja Vu (2006) BDRemux [1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый из нас хотя бы раз в жизни испытывал эффект дежа вю, когда нам вдруг начинает казаться, что мы знакомы с людьми, которых на самом деле раньше никогда не видели, и уже бывали в местах, где на самом деле никогда не были. И, возможно, в такие моменты кому-то приходила в голову мысль, что эти ощущения — не что иное, как предупреждения, посланные нам из прошлого, (   Читать дальше...   )Производство: Scott Free ProductionsЖанр: Фантастика, Боевик, ТриллерРежиссер: Тони СкоттАктеры: Дензел Вашингтон, Пола Пэттон, Вэл Килмер, Джеймс Кэвизел, Адам Голдберг, Элден Хенсон, Эрика Александр, Брюс Гринвуд, Рич Хатчмэн, Мэтт КрэвенПеревод: Дублированный (Русский, Украинский), Многоголосый закадровый, Двухголосый закадровый, Одноголосый закадровыйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский, украинский, английскийПродолжительность: 02:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D544D3E21F5BB6A008AA7C7716937D69E7A6795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124169   (785854) от 10.04.2017
+
+Mafia: The City of Lost Heaven / Мафия (2002) [Ru] [macOS WineSkin]
+
+>>Игры для macOS
+>>Action, FPS для macOS
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_785854.jpg" />
+</div>
+
+
+###  Подробнее
+
+Есть люди, которые не подчиняются чужим правилам, они создают свои собственные.
+1930-й год. Америка. Томми Анджело - простой водитель такси. Он занят любимым делом, и ничто в его жизни не предвещает беды. Однако случайное знакомство с двумя гангстерами, Поли и Сэмом, навсегда меняет его судьбу. В жизни Томми грядут большие перемены.
+
+Простому таксисту суждено стать (   Читать дальше...   )Тип издания: macOS WineSkinРелиз состоялся: 2002Разработчик: Illusion SoftworksПоддерживаемая ОС: macOS Sierra 10.12Жанр: Action (Shooter) / Racing (Cars) / 3D / 3rd PersonЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C7F412A7A6270A26DB26B1CEBD76F8551E198D8
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

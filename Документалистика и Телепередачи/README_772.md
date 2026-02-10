@@ -1,3 +1,29 @@
+###  Публикация: 1438318   (1041117) от 08.01.2021
+
+Среди древних - Калифорния / Among the Ancients - California (2016) WEBRip [H.264/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041117.jpg" />
+</div>
+
+
+###  Подробнее
+
+Горный хребет Восточная Сьерра предлагает чрезвычайно широкий спектр уникальных природных особенностей, от самых старых живых деревьев в мире до необычных пустынных арок. Помимо невероятного ландшафта, этот район Калифорнии также предлагает потрясающие яркие виды на Млечный Путь и ночное небо.Производство: СШАЖанр: Документальный, видовойРежиссер: Майкл ШейнблюмПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2CA3E1909D303313DCA2DECDC2333F70BFAD5BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438419   (1041140) от 08.01.2021
 
 Любимые памятники французов 2020 / Le monument prefere des Francais 2020 (2020) HDTVRip [H.264/720p-LQ] [FR / RU Sub]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:53DAD544C2A13558E0C2AD655EA0B1CF6241C4E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:53DAD544C2A13558E0C2AD655EA0B1CF6241C4E0
 magnet:?xt=urn:btih:466AE28C957C64B67BA558B98129B322CDA0BEF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:466AE28C957C64B67BA558B98129B322CDA0BEF5
 ```bash
 magnet:?xt=urn:btih:EADB7439BA75073A59AE6CC0B3996424B07A77B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:EADB7439BA75073A59AE6CC0B3996424B07A77B0
 ```bash
 magnet:?xt=urn:btih:0411E7F8D449074BE41A2B8A26845660CF18CD45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:0411E7F8D449074BE41A2B8A26845660CF18CD45
 magnet:?xt=urn:btih:96C826009DC96A1AE4906A41E016E79DA989193A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:96C826009DC96A1AE4906A41E016E79DA989193A
 ```bash
 magnet:?xt=urn:btih:3720D2F059043F7CE145E2CF0B2615C8AF75F08F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:3720D2F059043F7CE145E2CF0B2615C8AF75F08F
 magnet:?xt=urn:btih:5312904E2B1F97DB04DC30A70BDC6EE18335ABDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:5312904E2B1F97DB04DC30A70BDC6EE18335ABDF
 ```bash
 magnet:?xt=urn:btih:B20F8FF78B4B40D0F1AAF53C9E989A9CD35D8E74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:B20F8FF78B4B40D0F1AAF53C9E989A9CD35D8E74
 magnet:?xt=urn:btih:FFB3CD4B354D9E78A0385A216ABFF9751EEC49F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:FFB3CD4B354D9E78A0385A216ABFF9751EEC49F1
 ```bash
 magnet:?xt=urn:btih:A0EA771F559A702E1738E6D6D182D7FC9D151988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:A0EA771F559A702E1738E6D6D182D7FC9D151988
 magnet:?xt=urn:btih:056C30CA1A03BC0079801F0AF13B2B4AD9C1F611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:056C30CA1A03BC0079801F0AF13B2B4AD9C1F611
 ```bash
 magnet:?xt=urn:btih:A1B63563D2EB2264F4D99E1C90F083C8A21D56F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:A1B63563D2EB2264F4D99E1C90F083C8A21D56F4
 magnet:?xt=urn:btih:85634E60F5F8CDC9365D3E4037A6A48031449D91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:85634E60F5F8CDC9365D3E4037A6A48031449D91
 ```bash
 magnet:?xt=urn:btih:51036553BC5A44394FE34ECFBAA1ABDCDFACF3D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:51036553BC5A44394FE34ECFBAA1ABDCDFACF3D1
 magnet:?xt=urn:btih:9DB1B75498469D17D29AFC604A43576616621CFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:9DB1B75498469D17D29AFC604A43576616621CFC
 ```bash
 magnet:?xt=urn:btih:F7F0941489BAF450602FC7C5E90FD541782FC8EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:F7F0941489BAF450602FC7C5E90FD541782FC8EE
 magnet:?xt=urn:btih:4B56374251A8D748A82BD12FE8117F224A379E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:4B56374251A8D748A82BD12FE8117F224A379E82
 ```bash
 magnet:?xt=urn:btih:7C957D79BC0BF10D35F5E961537D3EE7809F1018
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:7C957D79BC0BF10D35F5E961537D3EE7809F1018
 magnet:?xt=urn:btih:88E13AAF142B5CC2FB75CC090EA34B12338889BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:88E13AAF142B5CC2FB75CC090EA34B12338889BA
 ```bash
 magnet:?xt=urn:btih:8D034119DB0C4B34B27DAF7B91E8A40C836179E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:8D034119DB0C4B34B27DAF7B91E8A40C836179E5
 magnet:?xt=urn:btih:254213C27F53892F2A12497CE3EA9F0438783D23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:254213C27F53892F2A12497CE3EA9F0438783D23
 ```bash
 magnet:?xt=urn:btih:0E60DB97651E7FC6554209D77794D415479CA397
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:0E60DB97651E7FC6554209D77794D415479CA397
 magnet:?xt=urn:btih:88ADCEE17B79AED2CB2EC23D9B5B546682477212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:88ADCEE17B79AED2CB2EC23D9B5B546682477212
 ```bash
 magnet:?xt=urn:btih:D93C0E0F7FC4CC0ACB177E078BA473F3104785F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:D93C0E0F7FC4CC0ACB177E078BA473F3104785F6
 magnet:?xt=urn:btih:EE94DFCAF6CFBF7A0B6CFC9D18B47A9EBC630866
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437597   (1042012) от 05.01.2021
-
-Город женщин. Ужасы колумбийской войны (2020) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042012.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Они приезжали в нашу деревню и насиловали жительниц, убивали на их глазах мужей и забирали детей». Из-за гражданской войны в Колумбии миллионы семей были вынуждены покинуть свои дома в поисках более безопасного места. Женщины, пережившие этот кошмар, устали бояться. Они решили объединиться и построить город-убежище. Но удастся ли им оставить прошлое позади и создать (   Читать дальше...   )Производство: Россия, RTДЖанр: Документальный, расследованиеРежиссер: Олег НекишевПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5658D6F1B9C02893B4F6FEF90F4D401BE6D28E5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Apollo 100 - Golden Instrumental Hits (1989) Compilation [FLAC|Lossless|image + 
 magnet:?xt=urn:btih:5DF0BC161AFA2DA8E3A502985ECA1548B4386B7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Jackie Evancho - Two Hearts (2017) 2CD [FLAC|Lossless|tracks + .cue] <Classical 
 ```bash
 magnet:?xt=urn:btih:7312144DA4DE634AA4297B441439E99E9F1A37AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Piano Cloud Series - Volume Two (2016) [FLAC|Lossless|WEB-DL|tracks] <Moder
 magnet:?xt=urn:btih:4627024D95B8964592DDA18DF88605A4F41749A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Telarc: Sampler Five Plus, Sound Effects Library [1996] [flac] <Classical>
 ```bash
 magnet:?xt=urn:btih:6648C7EA95E09C097F5C87F8ECEFC959E7C46C48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Concerto for 2 Harpsichords in C major, BWV 1061
 magnet:?xt=urn:btih:3DBA9268199177AF8AE0BB1D23095559F12CC40F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Piano Quartet in G major, Op. 202, No. 1
 ```bash
 magnet:?xt=urn:btih:5D95F7530825EA162A7C6A6648331332CC2ADB4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Ilyin - Lie (2019) [MP3|320 Kbps] <Neo-Classical, Baroque>
 magnet:?xt=urn:btih:8456A10349F0C5959AAF0EA5642B3E56BE5BF025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Sonata for violin & piano No. 1 in G major ("Regen"), Op. 78
 ```bash
 magnet:?xt=urn:btih:391F6DDCF7D58373D8C7659D58E36673C00AE999
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ Sonata for solo violin No. 1 in G minor, BWV 1001
 magnet:?xt=urn:btih:1FAA936D6884DD02E3064C3D61A1EC6085019015
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Symphony In G Minor
 ```bash
 magnet:?xt=urn:btih:492CCE400A10D9C210A8A77498844565837FB0AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Appassionante - Nell'aria (2017) [MP3|320 Kbps] <Pop, Classical, Crossover, Voca
 magnet:?xt=urn:btih:CC1EC5134244A35BAA5F4310917F48D0B25825F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ Jackie Evancho - Two Hearts (2017) [MP3|320 Kbps] <Classical Crossover, Vocal Po
 ```bash
 magnet:?xt=urn:btih:83FCA86A17C360C91E008058CA0BA3EE438FF2BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ Jackie Evancho - Two Hearts (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical Cros
 magnet:?xt=urn:btih:58B025A1FD4D75FC3C047409632DD5758C0063D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ Narcis - Narcis (2016) Limited Edition [FLAC|Lossless|tracks + .cue] <Pop, Class
 ```bash
 magnet:?xt=urn:btih:4097508498F6D41143C2D896012330FCB5747582
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ David Garrett - Caprice (2014) [FLAC|Lossless]<Classical Crossover>
 magnet:?xt=urn:btih:5A056E496E26077C1F1B7D07995DF4EBFEB0AA5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ Vivaldi J.S. Bach A. Marcello Telemann-Concertos for oboe and orchestra Vladimir
 ```bash
 magnet:?xt=urn:btih:22831F7DDACCEF675622671004AB3D055321A321
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ Vanessa Mae - My New Classic (2012) [MP3|320 кб/с]<Pop, Classical>
 magnet:?xt=urn:btih:D03A717E11F27309EE7B1A8533C12C747446F51C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ Johannes Bornlof - The 50 Greatest Epic Piano Pieces (2018) [MP3|320 Kbps] <Clas
 ```bash
 magnet:?xt=urn:btih:2E355482D0367ED961E4E9BEF83D403762FCD713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ VA - Beach Dating (2018) [MP3|320 Kbps] <Vocal, Indie, Acoustic>
 magnet:?xt=urn:btih:BB67324C24F70F89DA7C2E67E085E4E768D510CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ Khachaturian - Spartacus, Gayaneh (excerpts) – Bournemouth SymphoKirill Karabi
 ```bash
 magnet:?xt=urn:btih:B1C31386CCEFFA4BA2F7572C61CD74081E139A8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ for 4 trumpets, timpani, 2 recorders, 3 oboes, bassoon, strings and basso contin
 magnet:?xt=urn:btih:9AA5833B14FF6336DE7B4F511DE153D0762DE89B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ Sergei Rachmaninov - The Complete Works (2014) Decca Records, 32CD [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:77DF49E6EAB1DCE83FED83E1FC317E74A9AEB4AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +657,8 @@ VA - 20 Classic Christmas Carols (2004) Promo, Cardsleeve [FLAC|Lossless|image +
 magnet:?xt=urn:btih:2CF1DDF701FB9C5C3707560459D000348D93898A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +685,8 @@ Luigi Boccherini: Sonata No. 1 in A Major, G. 13
 ```bash
 magnet:?xt=urn:btih:748254FC3FC313E75A9D1F9AC04B520C8731379E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +715,8 @@ Bruno Sanfilippo - Piano Textures 1 (2007) [MP3|320 Kbps] <Neoclassical, Experim
 magnet:?xt=urn:btih:BE2A72C2BBA3F75B13CB3BF1AC92B5FECC1CB3CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ Bruno Sanfilippo - Claroscuro (2014) [MP3|320 Kbps] <Neoclassical, Ambient>
 ```bash
 magnet:?xt=urn:btih:E51E33936CE19367AC19419ED670F313C7889083
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@ Jean-Michel Jarre - Paris Stadium (2024) EP, Live [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:BE47D56AFCD9A1FE0027CC5D24D147CD500E7AB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:BE47D56AFCD9A1FE0027CC5D24D147CD500E7AB3
 ```bash
 magnet:?xt=urn:btih:E69F63A014CDA7A618F200E016197F96BC15554F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ VA - compilation part 119 Euro-Dance Assorted (2024) [MP3|320 Kbps] <Eurodisco, 
 magnet:?xt=urn:btih:F9B23CA1F1220F85CCF61779A3978C02A1524DB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:60C26F9E4259F4FCD1E3112FBCBA145DA7CE1D3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ VA - 50 Classical Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:7F7E09CA21F168119EAFED5703C1E97A19C362F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Reveal Sound основана музыкантами и программиста
 ```bash
 magnet:?xt=urn:btih:040280BD34B5916BC36EF139B3A38407CD82F6A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ IK Multimedia называет ToneX «полноценной программн
 magnet:?xt=urn:btih:A67BD78AA38FDB223762A4E27976A8298759B030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ RegCool 2.012 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:74CC403FCA0DA10EB2DF212B98F6A734E9DD75D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Audacity - свободный, простой в использовании зв
 magnet:?xt=urn:btih:0D8D84C361547B955560F78B4465F0A8A55DBC0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:0D8D84C361547B955560F78B4465F0A8A55DBC0D
 ```bash
 magnet:?xt=urn:btih:F0A2DCC16ABB29E2D4C58A03898F515B284A0D5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:F0A2DCC16ABB29E2D4C58A03898F515B284A0D5B
 magnet:?xt=urn:btih:350B8AA2C2ABEB7D2795A87AA960CFA9DB7801D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:350B8AA2C2ABEB7D2795A87AA960CFA9DB7801D1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ VA - compilation part 121 Electronic (2024) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:EBCE0E3D6AEF310E7AEE963FE76CE3CE2AE52A2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ VA - compilation  part 120  Electronic Assorted (2024) [MP3|320 Kbps] <Electroni
 magnet:?xt=urn:btih:6D47A96DAAA42DE96AE8EAC299293D4DDDC16FBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:60A1C648EB4A06AB0810424C78A3D4C896BE17FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ Caramba Switcher - это новый, понятный автоматическ�
 ```bash
 magnet:?xt=urn:btih:795726C51C7A5642DAC542B2A9AE53224C048C59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:795726C51C7A5642DAC542B2A9AE53224C048C59
 magnet:?xt=urn:btih:FDD28E6F44B7F4C3215025AD2370E9951B20BECE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:FDD28E6F44B7F4C3215025AD2370E9951B20BECE
 ```bash
 magnet:?xt=urn:btih:EC62031AD925A2D78F8A55CE10018A6F7B9E5F6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:EC62031AD925A2D78F8A55CE10018A6F7B9E5F6B
 magnet:?xt=urn:btih:E8E1F4F37C39761CC5A56804A61C0FEB58A684AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:E8E1F4F37C39761CC5A56804A61C0FEB58A684AB
 ```bash
 magnet:?xt=urn:btih:4AE9E5CE9EF88AFD9D13A9D508579FC65B5EAA5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:4AE9E5CE9EF88AFD9D13A9D508579FC65B5EAA5B
 magnet:?xt=urn:btih:1F963C6DDB4FBC9BAF751EDBBB8BE4F8346B18C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:1F963C6DDB4FBC9BAF751EDBBB8BE4F8346B18C0
 ```bash
 magnet:?xt=urn:btih:268BDE66294AB4C38695A5FABDF6031B15570C03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:268BDE66294AB4C38695A5FABDF6031B15570C03
 magnet:?xt=urn:btih:82C18CA7817BAA0C588D83E935392942A7D1EFD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:82C18CA7817BAA0C588D83E935392942A7D1EFD9
 ```bash
 magnet:?xt=urn:btih:7688E355F8E81B15D89BC65E680E07CEA1224EE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:7688E355F8E81B15D89BC65E680E07CEA1224EE0
 magnet:?xt=urn:btih:4C099F72F8DBA49E3321D253684D0DD28B5773E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ Avidemux - небольшой, простой редактор для работ
 ```bash
 magnet:?xt=urn:btih:07F3EB83F5EC4E44CFF24767B0C7858F178BB18C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

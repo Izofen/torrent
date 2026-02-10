@@ -19,6 +19,8 @@ OTUS | JavaScript для начинающих программистов (2019) 
 magnet:?xt=urn:btih:16089AA4EF80BEF4503D9C57B0E0197F7A4ADC72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dmitry Tikhonkikh | OpenGL ES 2.0 (Части 1-17) (2018) HDRip
 ```bash
 magnet:?xt=urn:btih:213CA88D1157E672E021C2B9C3FB077C0B2F688F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:213CA88D1157E672E021C2B9C3FB077C0B2F688F
 magnet:?xt=urn:btih:5526350BDDC7F9E3C8B3C0ED762C240E1487D848
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:5526350BDDC7F9E3C8B3C0ED762C240E1487D848
 magnet:?xt=urn:btih:4D0D9E1F4D7A0E8392593B8F3B131D5BE8ABC8BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Webcademy | Сборка Gulp 4.0 (2019) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:54E67553AC67C331FE64B8951A4F39D7721273D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Hacking School, IT Security Academy | Взлом сайтов на практи�
 magnet:?xt=urn:btih:605F326663956365C2498434300BFE33012BD472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Udemy | Миграция на Exchange Server 2016 (2016) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:56D5061232C643BAC8C199652DCAB5709EFA3A4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ OTUS | Python QA Engineer (2019) PCRec [H.264]
 magnet:?xt=urn:btih:41872B9DB1AC1B0E7DBB1A40A01580330E04114D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ OTUS | Python для начинающих программистов (2018) PCRe
 ```bash
 magnet:?xt=urn:btih:7C7054DDF79FB554AFA9BA965D4DE30C426FF049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ javascript.ru | Курс по Node.JS (2018-2019) PCRec [H.264]
 magnet:?xt=urn:btih:4F8FB74765DCE24AF7F42676793538F9514056B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:4F8FB74765DCE24AF7F42676793538F9514056B6
 magnet:?xt=urn:btih:9A827C283AF207552D55E53163A48FFE3F859144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:9A827C283AF207552D55E53163A48FFE3F859144
 ```bash
 magnet:?xt=urn:btih:3D4374640F57F27779D7AEDFA35D8B062C7E5F5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:3D4374640F57F27779D7AEDFA35D8B062C7E5F5D
 magnet:?xt=urn:btih:544C567AD3ADFF3295F6261DDFD7E7F9F3158DC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Udemy | Practical PHP - Master the Basics and Code Dynamic Websites | Brad Husse
 magnet:?xt=urn:btih:5881B891468C58D4E991206C449BC987F5BE88EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:5881B891468C58D4E991206C449BC987F5BE88EF
 ```bash
 magnet:?xt=urn:btih:4AA98E0ABF73AEC42543ADBCF574F3DA31D913B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:4AA98E0ABF73AEC42543ADBCF574F3DA31D913B7
 magnet:?xt=urn:btih:825F5DD2FAEA0074800A36E4FE1EC6261D300848
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:825F5DD2FAEA0074800A36E4FE1EC6261D300848
 ```bash
 magnet:?xt=urn:btih:AE689045F745F79CF50CAB1A6CCB9F774DF4CB95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:AE689045F745F79CF50CAB1A6CCB9F774DF4CB95
 magnet:?xt=urn:btih:0042DE764093063E1B5C03262EDAD4BD3FE59D0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:0042DE764093063E1B5C03262EDAD4BD3FE59D0E
 ```bash
 magnet:?xt=urn:btih:0B29052C0BCEFC171FB8D166FA6BA9FFD2460A32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ Google Best Practices | Кампании Google AdWords для мобильны�
 magnet:?xt=urn:btih:D628ACB71F329C7680AF3EC25FCB4443D5B9D170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ Udemy | The Ultimate Web Designer and Developer Course | Brad Hussey (2015) [H.2
 magnet:?xt=urn:btih:A0BB5FC9C96C4B290A79841A679E9D732CAA4FEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ Google Best Practices | Расширения в Google AdWords (Ad extensions Go
 ```bash
 magnet:?xt=urn:btih:DEA82F15386657F2DE3F284B7422940BA11AF22B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:DEA82F15386657F2DE3F284B7422940BA11AF22B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ Shadrus | Джанго фреймворк видеоурок / Django framework 
 magnet:?xt=urn:btih:046A5CEF1C1104BEECB23116FCA9E0636A6E3455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ Al Sweigart | Автоматизация скучной работы прогр�
 ```bash
 magnet:?xt=urn:btih:F7367A8DE2C8B4D644A84D3584A96C8EBAB27F20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +685,8 @@ React предназначен, чтобы помочь разработчика
 ```bash
 magnet:?xt=urn:btih:E94FAD723C7A72BFC830FF3FE10A5F9AFD2A8976
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

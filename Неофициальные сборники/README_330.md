@@ -1,3 +1,32 @@
+###  Публикация: 924395   (558773) от 03.08.2015
+
+VA - Top 100 Самых Красивых Песен 2015 (2015) [MP3|320 кб/с]<Pop, Dance, Club, Blues, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_558773.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. One Direction - Drag Me Down
+002. Mike Posner - I Took A Pill In Ibiza
+003. Turbotronic - Kick Some Ass
+004. Team BS - Case Depart(   Читать дальше...   )Жанр: Pop, Dance, Club, Blues, RockПродолжительность: 08:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B90D1D3EADBDAD5F4757AFBE25BE5D0B2C50A782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 530524   (558848) от 04.08.2012
 
 VA - Жаркое Лето На Европе Плюс (2012) [MP3|256 кб/с]<Pop, Dance>
@@ -27,6 +56,8 @@ VA - Жаркое Лето На Европе Плюс (2012) [MP3|256 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:69D93360C3F746C44E1639897F91CC3984589FBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -61,6 +92,8 @@ VA - Night Party. Зарубежный Сборник (2012) [MP3|256 кб/с]<D
 magnet:?xt=urn:btih:701F864E6C071037F7D4F37F9572FAD43C9EB0B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +127,8 @@ VA - Летняя туса на радио Record 9 (2012) [MP3|192 кб/с]<Clu
 magnet:?xt=urn:btih:E29BDB53C025BA220C954F835D6BA1F3582CF036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +161,8 @@ VA - XXXL Dance Энергетик. Зарубежный (2012) [MP3|256 кб/с
 ```bash
 magnet:?xt=urn:btih:05F37C3D02154599BE818089F37F94F721A4BB15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +206,8 @@ CD1
 magnet:?xt=urn:btih:3253F1E5371677CAEC3FEB7F9D445E5094982FB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +234,8 @@ VA - Летящей Походкой В Лихие 90е (2016) [MP3|320 Kbps] <�
 ```bash
 magnet:?xt=urn:btih:8264232E31129EB8284CA86E68100A6830C81003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +264,8 @@ VA - Blues Collection 2 (2016) [MP3|320 Kbps] <Blues, Blues Rock, Jazz>
 magnet:?xt=urn:btih:FCE71DA2DB8668DC4265D3E279679DF06B01EB6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +292,8 @@ VA - Atom 17.0 (DJ Mix by Deeper82) (2015) [MP3|320 кб/с]<Atmospheric Breaks,
 ```bash
 magnet:?xt=urn:btih:900E2B6A47855DC79ACA57BC58856EEC80AB8AC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +322,8 @@ VA - Summer Beach Party (2015) [MP3|320 кб/с]<Euro, Dance, Club, Vocal, Progr
 magnet:?xt=urn:btih:0BF1DA74464DBEFC7A652E7B35A9FFA791BCF163
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +350,8 @@ VA - Meet Me At The Pool (2015) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:104A253B15F553CB9BDE5E061FF6B564D1D8F6AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +380,8 @@ VA - Tomorrow Night (2015) [MP3|320 кб/с]<Deep, Chill House>
 magnet:?xt=urn:btih:967E19BC855B0EEDF7954F49D88E2495C91094A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +408,8 @@ VA - Rome Lounge Sensation (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:89287051494DF4CC1D5A3F0E4ABAF5A05ACD14F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +438,8 @@ VA - 90s Chart Hits - Extended Versions (2016) [MP3|320 Kbps] <Eurodance, Techno
 magnet:?xt=urn:btih:B9D3B12C53BDC482D11454573FFBFC2594BF5E4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +466,8 @@ VA - The Night Piano and Sweet Classical Moments (2016) [MP3|320 Kbps] <Lounge, 
 ```bash
 magnet:?xt=urn:btih:B5DEAC384D2E1BBE0E2B5ED9A47D785BF0D84BE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +496,8 @@ CD1:
 magnet:?xt=urn:btih:0CF9B672109540C47A2C0D275328F63F60598BAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +524,8 @@ VA - Music For The Club - Devotion Sounding (2016) [MP3|248-320 Kbps] <House, Pr
 ```bash
 magnet:?xt=urn:btih:B012324FF523F5F2C798C5A59958A1E172218A22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +554,8 @@ VA - Jazz on the Beach (2016) [MP3|320 Kbps] <Jazz, Latin, Easy Listening>
 magnet:?xt=urn:btih:439C48B79B8EF143DB725CCD130491850B2CCF13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +582,8 @@ VA - Дорожный шансон с любимой музыкой. Часть 
 ```bash
 magnet:?xt=urn:btih:72523BD57F20C53C19F59FBB0AE09A9B8FFA87DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +612,8 @@ VA - 100% Running Beats (2016) Ruli Media [MP3|320 Kbps] <Fitness, Sports, Futur
 magnet:?xt=urn:btih:8143CBAAA52972CD1A00F973C8A9B2918ADBC834
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +640,8 @@ VA - Golden Vinil Time: Popular Disco Music Of The 70s (2019) [MP3|320 Kbps] <Po
 ```bash
 magnet:?xt=urn:btih:41CB42E03D800D1685FCE5E0B798A146BDA9AA6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +670,8 @@ VA - I'm Listening Now (2022) [MP3|320 Kbps] <Club, House, Other>
 magnet:?xt=urn:btih:8E07FD7BD1E6D6ECDCD863BE2C14379C37A9CD2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +698,8 @@ VA - Portrayed Trance Synth - Epic Discovery (2016) [MP3|320 Kbps] <Trance, Melo
 ```bash
 magnet:?xt=urn:btih:86079F80381A7B58ED33F49970441353306B7CE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +728,8 @@ VA - Bass House Vol.1 (2016) [MP3|224~284 Kbps] <House, Progressive>
 magnet:?xt=urn:btih:B401C935AAE5B181321F56F55B555506CBE00616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,6 +756,8 @@ VA - Italo Disco Retro Mix: New Generation (2017) [MP3|320 Kbps] <Disco, Italo D
 ```bash
 magnet:?xt=urn:btih:AFE083FA79C455253C0F9FCE7B9E90A80A05C0A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -709,32 +786,7 @@ VA - Right To Life: Punk Rock Collection (2019) [MP3|231-320 Kbps] <Punk Rock>
 magnet:?xt=urn:btih:37469F444C70CF16F9400E9135F6C160A37DE401
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304916   (559944) от 28.05.2019
-
-VA - Spring Sounds' Electro House (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_559944.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bolier & Trobi - In The Water
-002. Biomin H - A New Day (Original Mix)
-003. Don Paolo - Make Your Body Move
-004. Jason Rivas - Supergroove(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 09:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B7226F53FCD0DF4C9110A5912C5A71A60A91D9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

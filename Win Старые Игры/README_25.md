@@ -19,6 +19,8 @@ Kane and Lynch: Dead Men / Kane and Lynch: Смертники (2007) [Ru] Licens
 magnet:?xt=urn:btih:2816413BF85342C41A08952476D036396F217CFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Terminal Velocity (1995) [En] (1.2) License GOG
 ```bash
 magnet:?xt=urn:btih:69647512D73A870D8271A8787FF64C4DAD4AAA1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Kane and Lynch: Dead Men (2007) [Multi] (1.0.0.129) License GOG
 magnet:?xt=urn:btih:80464219AFA9DFE6688F94D5046988A3D45D8EFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Pilot Brothers / Братья Пилоты: По следам полосатог
 ```bash
 magnet:?xt=urn:btih:D6E1AAD66A1A0C01886B9247402CDA650635E29B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Painkiller / Painkiller: Крещёный кровью (2004) [Ru] (1.64) Licens
 magnet:?xt=urn:btih:27E342EFFAFC306F938537C590B8F461B5EBBF41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ eXtinction / Тотальное истребление [Ru] (L) 2003
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Prey [Ru/En] (Repack/1.4) 2006 | R.G. Origami
 magnet:?xt=urn:btih:8F812C867032E47E45277D02B8CE256964F5B11E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Marvel Comics Spider-Man: The Sinister Six [En] (RePack) 1996 | RG Games/Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ State of War / Военное положение [Ru/En] (RePack) 2001 | RG Game
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ The Broken Land / Заброшенные земли [Ru] (RePack) 2000 | RG game
 magnet:?xt=urn:btih:826A0E4E894AD737394999FBE4BDB030EE2F5F4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ SWIV 3D [En] (RePack) 1996 | RG Games/Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Inherit the Earth (1994) [En/Ge] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:EEC415D56DD261B087CF25593002633F7AFDBBBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Theme Hospital (1997) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:8B8F2D9A8B1B437C3B80A9D35A3E10274C04B34D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ BioShock (2007) [En] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:95996735210C35ABDA944F1E6E55B00278FE52B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ NASCAR Racing 4 (2001) [Ru/En] (1.0.0.0) Repack WinterKiss
 magnet:?xt=urn:btih:9BD1D04F0E589D3E3232595DDB20F94B2FD65CF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ The Original Strife: Veteran Edition – это возрожденный кла�
 ```bash
 magnet:?xt=urn:btih:BD671A775DEA8FA5B6F717155F132965AE8B054B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Syberia / Сибирь [Русификатор] (2002) [ui/dub] License 1С (Л�
 magnet:?xt=urn:btih:0BC5444FC78654CD37E57B4D749AA2186340D23E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Hundred Swords [Ru] (RePack) 2001 | RG Games/Pilotus
 ```bash
 magnet:?xt=urn:btih:999C620C7D56273BA70601B3D85BEB04B03D22B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Hexen и Hexen: Deathkings of the Dark Citadel [En] (RePack/1.01) 1995 | RG game
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Subwar 2050 (1993) [Multi] (1.2/dlc) License GOG [Complete]
 ```bash
 magnet:?xt=urn:btih:28FDE231E6FCA99D3A130C63A513591DF4047FBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ NASCAR Racing 3 - гоночный симулятор, посвященый че
 magnet:?xt=urn:btih:BB25DA423530B474E7510A58B41B0ECA5A91160D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Earthworm Jim Pack (1995-1999) [En] License I KnoW
 ```bash
 magnet:?xt=urn:btih:290DE1C5C6167EF8489D68FEABB96B63DFE8CF83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Star Wars: Empire at War Gold (2006) [Ru/En] (1.5/1.1) Repack R.G. Механи�
 magnet:?xt=urn:btih:DD30DFC5423DE920773258356D859C2E72490122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Star Wars: Galactic Battlegrounds Saga (2001) [Ru/En] (1.1) Repack R.G. Меха
 ```bash
 magnet:?xt=urn:btih:2D11F3F4255FBC5BC61DEB3D3D66E83033E8E7F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Panzer Elite (2001) [En] (1.07) License GOG [Special Edition]
 magnet:?xt=urn:btih:BB6114E622058B11D7E73F24C94A5329538D0639
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Legacy: Dark Shadows – это трехмерная приключенческ�
 ```bash
 magnet:?xt=urn:btih:58DAC472E0F05F0DEE0F0C6D5446F627D2A835BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

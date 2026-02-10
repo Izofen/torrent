@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E63BA37C7398F90A1606BD330F2ED787C0DF74EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:E63BA37C7398F90A1606BD330F2ED787C0DF74EF
 ```bash
 magnet:?xt=urn:btih:2D498617A2F38EDD883B82E5E473A2EBC30122FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Elli de Mon - II (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:7D67F538D2CC4611ADFA8C429B1835B65025A81C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:7D67F538D2CC4611ADFA8C429B1835B65025A81C
 magnet:?xt=urn:btih:A0694F56569A73E65F635386DAAFC44EEBB8673A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:A0694F56569A73E65F635386DAAFC44EEBB8673A
 ```bash
 magnet:?xt=urn:btih:491BD5612E507F429EEFF2CF767BBEEC6FBF1405
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:491BD5612E507F429EEFF2CF767BBEEC6FBF1405
 magnet:?xt=urn:btih:CA1F7204EE70F9B35A093B2556DB45D6DCA670E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:CA1F7204EE70F9B35A093B2556DB45D6DCA670E9
 ```bash
 magnet:?xt=urn:btih:77EC71E55B42A8B4E05CC66D9D16592D128E3418
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Randy Waldman - UnReel (2001) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-B
 magnet:?xt=urn:btih:05D043792DB71A9DE1707336E5A721D70684843A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:05D043792DB71A9DE1707336E5A721D70684843A
 ```bash
 magnet:?xt=urn:btih:14E3FD4404F511B4B612DCC8BBD482954C7CB334
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ We Are Resolute - Only Human (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 magnet:?xt=urn:btih:CE2AD31E6ABDBED5741A421A8721DF486C607E2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:CE2AD31E6ABDBED5741A421A8721DF486C607E2E
 ```bash
 magnet:?xt=urn:btih:022BF25EB0D7B4EE8548A4C93666720C2A79381C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:022BF25EB0D7B4EE8548A4C93666720C2A79381C
 magnet:?xt=urn:btih:1B6672B6AE086221268746667DE64955E63AB9BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:1B6672B6AE086221268746667DE64955E63AB9BD
 ```bash
 magnet:?xt=urn:btih:5B6FFD633720A2F7C5389FF0C01AE767CF9B45F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ Kerosene Drifters - The Gun Announced Go (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 magnet:?xt=urn:btih:0D0F41EEE4872CB2D7BC926CF5BB0E484E8ADA88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ Rocket Typist Pro 3.0.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4EADFA190D5142845C2B9ED591D3DB6EF36CE707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ Necroscum - Gates of Misery (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 magnet:?xt=urn:btih:7C446269E5DA281F69C5B3E0D12E3389D8EC7700
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ Adrian - One Step Into The Uncertain (1987) Reissue 2014, Karthago Records [FLAC
 magnet:?xt=urn:btih:D22AC354112CA2A1870BAC4188D78A93A0AB8852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ MediaHuman YouTube Downloader - удобное приложение с помо�
 ```bash
 magnet:?xt=urn:btih:9BCCB6BC9EBF1006B0A1221DDED27932D9E9E00E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ Collection of paper craft projects for Christmas tree: The Snow Maiden, Santa (
 ```bash
 magnet:?xt=urn:btih:AAD49438BF98CC8CD383739A556C92884445D152
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ Blue Largo - Got to Believe (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues,  Soul>
 magnet:?xt=urn:btih:B72B7470400F7D1B74EEECA4C18BA0A65A690C7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ Aeon Zen - Self Portrait (2013) [FLAC|Lossless|image + .cue] <Progressive Metal>
 ```bash
 magnet:?xt=urn:btih:6E967BC7BB06A85F9E4C17ED1B5727A51C75FBC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +600,8 @@ magnet:?xt=urn:btih:6E967BC7BB06A85F9E4C17ED1B5727A51C75FBC2
 magnet:?xt=urn:btih:CF733A61DCA30FD42F7EAB1E74F9C863A7FBD5FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:CF733A61DCA30FD42F7EAB1E74F9C863A7FBD5FF
 ```bash
 magnet:?xt=urn:btih:CC40D1BF8F6E7C500C60AF56D31426BB911AC04D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:CC40D1BF8F6E7C500C60AF56D31426BB911AC04D
 magnet:?xt=urn:btih:C86BCC1DE7983D1983CC36CAD72D04CF3D0D8B7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ Amadine - это программное обеспечение для векто
 ```bash
 magnet:?xt=urn:btih:FF1A5D93E0237DBECAC6DE9A5555C745981645BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +707,8 @@ Highlord - The Warning After (2013) [FLAC|Lossless|image + .cue] <Power Metal, H
 ```bash
 magnet:?xt=urn:btih:F3FD92E8CBF2D508D6EAEBFDAB13F67BA5E6847F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

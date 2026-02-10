@@ -22,6 +22,8 @@ Project Zero: Maiden of Black Water - леденящий душу хоррор, 
 magnet:?xt=urn:btih:85E7E7C955793F2093B2B7929226183C8D866B8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ The Wolf Among Us станет приквелом к комиксу Fables (ко
 ```bash
 magnet:?xt=urn:btih:20D2651B1481174EE27492BEF05EAD3AD184DEBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ HITMAN: Game of the Year Edition / HITMAN: издание «Игра года» 
 magnet:?xt=urn:btih:400625ABE808D62B7F0D09194C5C2D886F59707E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (0
 ```bash
 magnet:?xt=urn:btih:6F8577B3CBB5C2F5606C5FD82C4C0A63ED2ACED1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ God Eater 2: Rage Burst (2016) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/Multi
 magnet:?xt=urn:btih:A9B4956F432722F75CE89CC2637793047168BEB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Pro Evolution Soccer 2013 [PS3] [RUS] [PAL] [3.55] (2012)
 ```bash
 magnet:?xt=urn:btih:EDE068B238566E069AEA1273290F37E580A1044B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ PS3-эксклюзив по мотивам знаменитой манги One P
 magnet:?xt=urn:btih:1F0703A35AB998D8823CD42DA417FC5993E87C62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Call of Duty: Black Ops 2 [Xbox 360] [ENG] (RegionFree) (LT+2.0/15574) (2012)
 ```bash
 magnet:?xt=urn:btih:6C82B9BEAA93C33DA822D5E5015A4B23CCBE6BA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ The Legend of Zelda: A Link to the Past [Wii] [Virtual Console] [RUS] [Pal] (200
 ```bash
 magnet:?xt=urn:btih:D8A2211812A8E3F123DB666D62A26661067E02F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ Disney Epic Mickey 2: The Power of Two является продолжением
 magnet:?xt=urn:btih:4036D3EB551007702922021F75F7AC4BDE045299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Avatar: The Legend of Aang - The Burning Earth [Wii] [PAL] [Multi 2] (2007)
 ```bash
 magnet:?xt=urn:btih:DE6941FA25B442036EEAE66F66E3412E91D3020C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ From Dust
 magnet:?xt=urn:btih:DA93FB45304895240F14D85DC0FD3DFC8F293F86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Borderlands 2 [PS3] [ENG] [NTSC] [FULL] [3.55] (2012)
 ```bash
 magnet:?xt=urn:btih:C10D9A09DD923D7B2091995D5047B22C772A3C13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Resistance: Burning Skies (2012) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru/En]
 magnet:?xt=urn:btih:F04EF090BB0461B6155EEBCC7D230B14C56AD380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ Pro Evolution Soccer 2013 – продолжение знаменитой сер
 ```bash
 magnet:?xt=urn:btih:1D87B07FD5014D43A56B76A36856B941B0E0641D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ Doom 3 BFG Edition [PS3] [ENG] [PAL] [FULL] [3.55] (2012)
 magnet:?xt=urn:btih:25D2A1241B72BB8C91BDFF7A130BB445D941512E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ FIFA 18 - новая часть футбольного симулятора, р�
 magnet:?xt=urn:btih:5BB2419896DC6238F354C6FEAA1C122935DCBEA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ FIFA 18 Legacy Edition (2017) [PS3] [EUR] 4.21 [Repack / 1.02] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6CEFE846E426635B20F3EE06E197E67042B01052
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ Dark Souls: Prepare To Die Edition [XBOX360] [PAL] [En] [LT+3.0] (XGD3 / 15574) 
 magnet:?xt=urn:btih:7C09227F42B5E401267747349ACED9C5A1C89840
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ DOOM 3 BFG Edition (2012) [PS3] [EUR] 3.40 [Repack / 1.01] [Ru/En]
 magnet:?xt=urn:btih:B3DD81A617B8F897F7A398014C5F633B70E6AEA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ Pro Evolution Soccer 2018 - это очередная часть серии фу
 ```bash
 magnet:?xt=urn:btih:113D47FEA9C468EB568276F59F9650F9E3E40940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ Halo 3 - компьютерная игра в жанре шутера от пе�
 magnet:?xt=urn:btih:A941F1945C58C1D245AA8142C5C4F4061C3DF0F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ Kega Fusion, потомок славного Kega Lazarus - самый лучш�
 ```bash
 magnet:?xt=urn:btih:00B58431FE0D1DA2A81AAD72CAE7E90D58FB79EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ The Adventures Of Tintin: The Game - приключенческая аркада
 magnet:?xt=urn:btih:BAE1C5F2B267101A3083515F6CF1F41008B54C46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ Metro: Last Light [PS3] [Ru/En] [Repack / 1.02 / 7 DLC] (2013) | R.G. Inferno
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ Pinball Hall of Fame: The Williams Collection [Wii] [NTSC-U] [ENG] (2008)
 ```bash
 magnet:?xt=urn:btih:8DF30F6B5CA3E1BA928476E65259AD927FAA3779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Dune: Imperium (2024) [Ru/Multi] (2.2.10.1211/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:3639379FEB409539F40BF86C2E13F8A199D33B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Skelethrone: The Chronicles of Ericona – в этом достаточно не
 ```bash
 magnet:?xt=urn:btih:1CAAA7C7728D142429A876923A8FE4F1FF86458B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:1CAAA7C7728D142429A876923A8FE4F1FF86458B
 magnet:?xt=urn:btih:52ABE06AAC2A928C528F036BC1E78B51B87E9335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:52ABE06AAC2A928C528F036BC1E78B51B87E9335
 ```bash
 magnet:?xt=urn:btih:E012DAC38D763D9E44514C51933BA5C44D619DE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:E012DAC38D763D9E44514C51933BA5C44D619DE2
 magnet:?xt=urn:btih:93F43E5E50FFE3E0E79D7D9B5E3EF50A26BA54D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:93F43E5E50FFE3E0E79D7D9B5E3EF50A26BA54D4
 ```bash
 magnet:?xt=urn:btih:6921FC0AA71F94ABCB46257217D00DF31C169668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ ByeByeDPI 1.4.10 [Ru/En]
 magnet:?xt=urn:btih:A23B6C8B739A1D288E8E02C2FD2D697F2E5FBB1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:A23B6C8B739A1D288E8E02C2FD2D697F2E5FBB1A
 magnet:?xt=urn:btih:55684C7426B78D4E8CA5242F07C757FBD1F0406B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:55684C7426B78D4E8CA5242F07C757FBD1F0406B
 ```bash
 magnet:?xt=urn:btih:81292A0ADFF1C738406C49CCC6D2698C527FF6A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ VA - SHAZAM TOP HITS 2025 [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:21C43D7AE28B8CCE9C398ADAB9FBE03981D16B2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:21C43D7AE28B8CCE9C398ADAB9FBE03981D16B2C
 ```bash
 magnet:?xt=urn:btih:DEA8A4D7D49335CD7E94D7E141E9DCC5DB807C0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ Disc 1:
 magnet:?xt=urn:btih:6CEC17168878F475A4985406039D53D33562C620
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:6CEC17168878F475A4985406039D53D33562C620
 ```bash
 magnet:?xt=urn:btih:57B45B5855FC38CE7BACD67366D1EC665F01092E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Tush - Thunder Road (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:3B0C1B53EEBF10A9BD211C355A82F7FF8070A1F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:3B0C1B53EEBF10A9BD211C355A82F7FF8070A1F9
 ```bash
 magnet:?xt=urn:btih:95425F1944A8DA0C824EFBDF3CA4A4AEE7A9EF26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ WinCatalog - это простая в использовании програм�
 magnet:?xt=urn:btih:D8700EDB3F71DF9996F6BDAB575934AEE62A91D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ FBReader Premium v3.8.12 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:471FB62100842DC07CB506A24A4C33BC442CA738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:471FB62100842DC07CB506A24A4C33BC442CA738
 magnet:?xt=urn:btih:1314C680DDA921E433B2E73B57A5ACA6EDCD93F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:1314C680DDA921E433B2E73B57A5ACA6EDCD93F0
 ```bash
 magnet:?xt=urn:btih:60448DD04B54D499385DFAE1A526A9FB958BE363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:60448DD04B54D499385DFAE1A526A9FB958BE363
 magnet:?xt=urn:btih:DB4ED964372D36BFC6BBE81EE578133B9A0A9652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:DB4ED964372D36BFC6BBE81EE578133B9A0A9652
 ```bash
 magnet:?xt=urn:btih:83A94F71C85C82BE366F36512E78EAB8034C16A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ VRadio - Online Radio App v2.8.2 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:9F7247A2339ACB5ACA599B00612EAF7D7E2DA08B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:9F7247A2339ACB5ACA599B00612EAF7D7E2DA08B
 magnet:?xt=urn:btih:809566E1BA78FDA40A97D22F54324AB8F42FD2D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:809566E1BA78FDA40A97D22F54324AB8F42FD2D6
 ```bash
 magnet:?xt=urn:btih:200B609FE5EF2D78A55A83833B00ABA3948D5360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:200B609FE5EF2D78A55A83833B00ABA3948D5360
 magnet:?xt=urn:btih:15523E1363D0307939D64C7E77B95F1E79DA5AED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:15523E1363D0307939D64C7E77B95F1E79DA5AED
 ```bash
 magnet:?xt=urn:btih:AB420255D694541B14508D5427BC472C3A0EE159
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

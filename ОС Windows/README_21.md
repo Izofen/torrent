@@ -1,3 +1,30 @@
+###  Публикация: 1328074   (365078) от 29.09.2019
+
+Microsoft Windows 10.0.18362.356 Version 1903 (September 2019 Update) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Музей Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1903 Build 18362.356 (Updated September 2019).
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2B3268D01B09938E30F13C8E3D9EDF55D6B65FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328075   (367391) от 28.09.2019
 
 Microsoft Windows 10.0.18362.356 Version 1903 (September 2019 Update) - Оригинальные образы от Microsoft MSDN [En]
@@ -19,6 +46,8 @@ Microsoft Windows 10.0.18362.356 Version 1903 (September 2019 Update) - Ориг
 ```bash
 magnet:?xt=urn:btih:00DE6C44DCDAF1DDF99B929D6702620F3786B17E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ Windows x64 Plus Office Release by StartSoft 03-2020 [Ru]
 magnet:?xt=urn:btih:E95344F8A707535045332A90FE1E593CA6281E15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ Windows 10 — операционная система для персональ
 ```bash
 magnet:?xt=urn:btih:CF10F5B5E32E0D060E105D04D2BD818D9A130AC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +125,8 @@ Asus Transformer book trio (Asus TX201LA) usb recovery [Multi/Ru]
 magnet:?xt=urn:btih:5DD363EFB69216280EAC3E48B67B1FE83EA184EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +151,8 @@ Windows 7 Ultimate SP1 x86x64 By Vladios13 v.09.10 [Ru]
 magnet:?xt=urn:btih:26F49764FB92E945AA3AF5E6CA214EFDFA6C7A1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +176,8 @@ Microsoft Windows 10 10.0.16299.15 Version 1709 (Updated Sept 2017) - Ориги
 ```bash
 magnet:?xt=urn:btih:014A8EE069EE089C08F51FEE6FE6F4D2AF62CBF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +204,8 @@ Recovery Partition for Samsung 300E5A / Windows 7 Home Basic (х64) SP1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +234,8 @@ Recovery USB-Flash for Lenovo IdeaPad 300-15IBR / Windows 10 Home (х64) [Ru]
 magnet:?xt=urn:btih:C19FB41E5077FACF775F9D8E540B73C37DEF2732
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +260,8 @@ magnet:?xt=urn:btih:C19FB41E5077FACF775F9D8E540B73C37DEF2732
 magnet:?xt=urn:btih:C73F07219F4FFE0DF1CBC9DE0FC5104E18F6BCD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +285,8 @@ Microsoft Windows Server 2008 — это операционная система
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +315,8 @@ EWF и FBWF компонентыНазвание программы: Обнов�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +341,8 @@ Windows 10, Version 2004 with Update [19041.546] AIO (x86-x64) by adguard (v20.0
 magnet:?xt=urn:btih:011A799EF3A900AFCAF328153422B6FBCF2AB22A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +366,8 @@ Windows Server 2012 (кодовое имя «Windows Server 8») - версия 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +400,8 @@ Recovery DVD for Toshiba Satellite L730 / Windows 7 Home Premium (х64) SP1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +427,8 @@ Recovery Partition for Samsung RC720 / Windows 7 Home Premium (х64)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +456,8 @@ Windows 10 включает “универсальную” архитекту�
 magnet:?xt=urn:btih:369E0306EF42BA0A1463E914C8819C3E575EBE8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +482,8 @@ Windows Server 2019 - это операционная система, котор
 magnet:?xt=urn:btih:423EA2650899BB730D065E8431529CEFC26BD3EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +507,8 @@ Windows Server 2019 - это операционная система, котор
 ```bash
 magnet:?xt=urn:btih:188D441BCF6FAC56F9FDC5BD53330E6BA38FF399
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +536,8 @@ Windows 10 включает “универсальную” архитекту�
 magnet:?xt=urn:btih:71296812961C38BC11BC6793BF9CF4BD1C865521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +563,8 @@ Windows 10 (версия 1809) - крупное обновление функц�
 magnet:?xt=urn:btih:E68B535D0A163A52B9F131450F965768325EB050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +588,8 @@ Windows Server 2012 R2 - это проверенная масштабируем�
 ```bash
 magnet:?xt=urn:btih:350FD967DFD26BEC5849B53919EB8D9B73A69CF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +618,8 @@ Windows Media Center - Мне он не нужен, а вам?
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +643,8 @@ Windows 10 (версия 1809) - следующее крупное обновл�
 ```bash
 magnet:?xt=urn:btih:FAEF79F82FB2C848DC34F484C7819D21116AE7A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +670,8 @@ Microsoft Windows 10.0.18362.295 Version 1903 (August 2019 Update) - Ориги�
 ```bash
 magnet:?xt=urn:btih:780E59D8EA62F569EE3381CD24E65EB99F358F60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,29 +700,7 @@ Windows 10 November 2021 Update (под кодовым названием "21H2"
 magnet:?xt=urn:btih:43F22AD56C8E9051BAB6A2705CE995FDC6716763
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570329   (444324) от 16.08.2022
-
-Microsoft Windows 11 [10.0.22000.856], Version 21H2 (Updated August 2022) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444324.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 11 - это серия операционных систем, разработанных корпорацией Майкрософт. Корпорация Майкрософт описала Windows как "операционную систему как службу", которая будет получать постоянные обновления своих функций и функций, дополненные возможностью для корпоративных сред получать некритические обновления более медленными темпами или использовать долгосрочные (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED7947A771475ED69E13D4CD3825426FB1D16AA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

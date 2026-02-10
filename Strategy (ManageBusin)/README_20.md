@@ -19,6 +19,8 @@ Dice Legacy (2021) [Ru/Multi] (7195733) License CODEX
 magnet:?xt=urn:btih:A362508DC22AA99C627B0381C250EE84DA2B0267
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Fallout Shelter дает возможность каждому желающем�
 ```bash
 magnet:?xt=urn:btih:636323872118D7900B345010841EB4A0CE2C4C4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ As Far As The Eye (2020) [Ru/Multi] (1.0.5c2) License GOG [Supporter Bundle]
 magnet:?xt=urn:btih:5D09FA88F77B52FBC03AD32A38DE17B791898739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Cultures:The Discovery of Vinland / Деревня Викингов [Ru] (P) 200
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Emperor: Rise of the Middle Kingdom (2002) [En] (1.0.1.0) License GOG
 magnet:?xt=urn:btih:5ABC8CCED250898E2D3BE023237FF7E118B705B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Caesar II - это прежде всего отличнейший продума
 ```bash
 magnet:?xt=urn:btih:4ADB7B42F91DF8A5E15880A19F2636CCC43713EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Caesar - компьютерная игра в жанре стратегия, р�
 magnet:?xt=urn:btih:5459C7BB053A17A0E77D9F3640B51E6E2FB97699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Hell Architect — игра, в которой вы можете создава�
 ```bash
 magnet:?xt=urn:btih:C09C7633F6B21DD58282E945C5CF55479AA3D2AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Wonderburg / Вандербур (2009) [Ru] (1.0) Unofficial
 magnet:?xt=urn:btih:A887A405D0B977AE782F9BF0D6FD5982AF65CC14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Impire – стратегия, в которой вы выступаете пр�
 ```bash
 magnet:?xt=urn:btih:164B065E3743ED6762B44D81E139FE54BBD1F710
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Cities XL Platinum позволяет проектировать, строить
 magnet:?xt=urn:btih:52FCD5546B9C8AB4F77CCE6F4919A3327344C9EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Tropico 5 - игра в жанре экономического/градостр
 ```bash
 magnet:?xt=urn:btih:0AC90A70BC00E1590934E8BB1697C52AAAEB5004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Tropico 5 (2014) [Ru/En] (1.10/dlc) Repack xatab
 magnet:?xt=urn:btih:AC0BAE477F27C54FD4F366AFD7683172EF7F47B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Prison Architect - симулятор тюремного магната, с по
 ```bash
 magnet:?xt=urn:btih:56E808B2BE5C390947470227B3955C0CAA39DF61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Kingdom: New Lands, расширенное и дополненное издан�
 magnet:?xt=urn:btih:F9C4B91BA0E4E6197E6032D425555CA10F8606A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Impire – стратегия, в которой вы выступаете пр�
 ```bash
 magnet:?xt=urn:btih:699BD6C057847D668D543F23FC2800F3D968A25F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Sid Meier's Railroads! (2006) [Multi] (1.100) License GOG
 magnet:?xt=urn:btih:AE81E557DB456F2B1763A1CE85572CD294D59129
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Railroad Tycoon 3 / Железнодорожный магнат (2003) [En] (1.0
 magnet:?xt=urn:btih:C28292EC29A72BB279704F29CE37257E7748B017
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Railroad Tycoon 2 (1998) [En] (1.55/dlc) License GOG [Platinum Edition]
 ```bash
 magnet:?xt=urn:btih:A95CD27FE212DD28BBD3BD4241FF7E66DBDA8633
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Cities XL Platinum позволяет проектировать, строить
 magnet:?xt=urn:btih:9F315B9DFFDBA8028E38B84453C7C7DB2C5499AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Sol 0: Mars Colonization - фантастическая стратегия-си�
 ```bash
 magnet:?xt=urn:btih:FEF3C4FAF9AFFD407D361A778D0A0BA5247A204E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Zoo Tycoon [Ru/En] (P) 2001 | 7Wolf
 magnet:?xt=urn:btih:7782EA1E4FE7F2A11B74A3385D0149C7584D2A00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Rockefeller Das schwarze Gold [En/Gr] (L) 2013 | 0x0007
 ```bash
 magnet:?xt=urn:btih:C02571BAB12C5EFAC688ECC2576D8F20A95CDD14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Call to Power 2 (2000) [En] (1.1) License GOG
 magnet:?xt=urn:btih:53BD52A183354A0699B0D6F3241B172047B750E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Spellcaster University (2021) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:3C2BB75C64E1D7F0EFC4F9150DDF2DE6B234F50C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Slipways берёт жанр космической грандиозной ст�
 ```bash
 magnet:?xt=urn:btih:CE2F8F32ACAD0D768C05E2D744C7E9ED63D25759
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

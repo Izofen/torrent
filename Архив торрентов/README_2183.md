@@ -1,30 +1,3 @@
-###  Публикация: 959818   (312266) от 26.11.2015
-
-Сергей Софрин | Проект «Асгард» (2012) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_312266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая книга цикла «Легенды Фонарщика Лун».
-
-Между подводной лодкой Третьего Рейха, найденной у бере­гов Южной Америки, дневником Чарльза Виндхаузера, британ­ского масона, жившего в XIX веке, и ритуальным самоубий­ством на вершине пирамиды в Городе богов есть связь. А узнать об этом — равносильно смерти.
-Марат — мастер боевых искусств, и ему есть за что сражаться. (   Читать дальше...   )Жанр: Фантастика, МистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F0113EA0E8252A56A9C049AFB8A471BD2B7716
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076983   (312313) от 26.11.2016
 
 VA - Acid Singularity Temptation Music Vol. 1 (2016) [MP3|320 Kbps] <Trance>
@@ -48,6 +21,8 @@ VA - Acid Singularity Temptation Music Vol. 1 (2016) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:2E1F63DEFD8776080AAA6B31CC8766C0405B08E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +51,8 @@ magnet:?xt=urn:btih:2E1F63DEFD8776080AAA6B31CC8766C0405B08E0
 magnet:?xt=urn:btih:DED0E9F625C1AB1BD7D0DBF6E879BD6C5D125E2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +77,8 @@ iSubtitle - приложение позволяет создавать проф�
 ```bash
 magnet:?xt=urn:btih:8B336918952CC5D666F5ACD04AA6BF99D8EA3217
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +107,8 @@ magnet:?xt=urn:btih:8B336918952CC5D666F5ACD04AA6BF99D8EA3217
 magnet:?xt=urn:btih:568EF8ACAEAACC614958D6142E6D130688A628F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +135,8 @@ magnet:?xt=urn:btih:568EF8ACAEAACC614958D6142E6D130688A628F8
 ```bash
 magnet:?xt=urn:btih:A35F10C3944D55A8B9F1241376A73F1E8A239190
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +165,8 @@ magnet:?xt=urn:btih:A35F10C3944D55A8B9F1241376A73F1E8A239190
 magnet:?xt=urn:btih:51723A955357563D7C26589DF21A82DBCDD720F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +190,8 @@ ExactScan – современное решение для сканирован�
 ```bash
 magnet:?xt=urn:btih:2C94E7283238619B81790B9A853B425804C2318B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +219,8 @@ Shapes отлично подходит для программистов и ве
 magnet:?xt=urn:btih:98BDF573C6789AFF961065C103EC2BBFAE451127
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +247,8 @@ Serial Box 12-2013 [En]
 magnet:?xt=urn:btih:A40E1A6122FFE53490FB0501E0932A2ED43AA0A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +272,8 @@ uTorrent Pro 3.5.5 Build 45828 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:C2321011192AB2BB48763EEF31DDC5F6D03880E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +299,8 @@ magnet:?xt=urn:btih:C2321011192AB2BB48763EEF31DDC5F6D03880E0
 magnet:?xt=urn:btih:2B771BD16FE4874233AA46EA0B6994EB54191487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +324,8 @@ magnet:?xt=urn:btih:2B771BD16FE4874233AA46EA0B6994EB54191487
 ```bash
 magnet:?xt=urn:btih:43AE7C1793636F82258D3F3F2C6E276A16DB35CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +352,8 @@ magnet:?xt=urn:btih:43AE7C1793636F82258D3F3F2C6E276A16DB35CD
 ```bash
 magnet:?xt=urn:btih:185F111421DC3A7DA80F47FBBFCE309768BE8EE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +382,8 @@ magnet:?xt=urn:btih:185F111421DC3A7DA80F47FBBFCE309768BE8EE5
 magnet:?xt=urn:btih:F29F08FEE28E71A0A04BFCFD31F9B688EA7EB360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +410,8 @@ magnet:?xt=urn:btih:F29F08FEE28E71A0A04BFCFD31F9B688EA7EB360
 ```bash
 magnet:?xt=urn:btih:0E24AD283CFE736F78E103145FF72D7E0AF8178D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +440,8 @@ L'indecis - Celeste (2015) EP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazzy Hip-
 magnet:?xt=urn:btih:7BDAF58FEDE230CBCCEB0188B1679F12387B7C81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +465,8 @@ magnet:?xt=urn:btih:7BDAF58FEDE230CBCCEB0188B1679F12387B7C81
 ```bash
 magnet:?xt=urn:btih:53BBAC61CD3BCEF5E8BA1AF41E6F18F564415BDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +492,8 @@ magnet:?xt=urn:btih:53BBAC61CD3BCEF5E8BA1AF41E6F18F564415BDF
 magnet:?xt=urn:btih:716FF08B4F9D028450EC0E20ECAE64411F8E9E7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +518,8 @@ Seba & Alaska - Sandpoint (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:0CAAA7A5F1551EEBC961534638C814FA0A73D477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +547,8 @@ magnet:?xt=urn:btih:0CAAA7A5F1551EEBC961534638C814FA0A73D477
 magnet:?xt=urn:btih:E05B3207CD887F2CB72E3051A62493C341A348E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +575,8 @@ magnet:?xt=urn:btih:E05B3207CD887F2CB72E3051A62493C341A348E0
 magnet:?xt=urn:btih:AC44587D3F456D8F3B6832838876622B2EF2AA29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +601,8 @@ QQ Browser 9.0 версии - это современный и удобный б
 magnet:?xt=urn:btih:C15B106ECC39044CD992874988C1C050E282C661
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +626,8 @@ Icecream Slideshow Maker 1.39 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:631BA7A2FD3C957F4922633729862CE1B7F6ED23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +656,8 @@ Chris Isaak - First Comes The Night (2015) [FLAC|tracks|WEB-DL]<Pop Rock>
 magnet:?xt=urn:btih:A30C531DE29D8F879B4E1903D06E6DFBFC7AD9C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +684,37 @@ Bop - Clear Your Mind (2009) [FLAC|Lossless]<Leftfield Drum & Bass, IDM>
 ```bash
 magnet:?xt=urn:btih:F4D2E19AFA99065949124E3EDE5DDC4565374049
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958522   (312558) от 26.11.2015
+
+VA - Unsung Heroes 6 (2015) [MP3|320 кб/с]<Drum & Bass, Liquid Funk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_312558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arlow - Come Back (06:09)
+02. Changer Ltd - Emily’s Call (05:40)
+03. Critical Event - Romance (05:04)
+04. Surplus - Desperate Day Dream (05:20)(   Читать дальше...   )Жанр: Drum & Bass, Liquid FunkПродолжительность: 01:09:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE3884D2C956C98AD98408382B3F4BF21F4D844
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

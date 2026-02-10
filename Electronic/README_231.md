@@ -22,6 +22,8 @@ Halftribe - Cloud Dreaming And Shadows (2020) [FLAC|Lossless|tracks] <Ambient, E
 magnet:?xt=urn:btih:010FA82638A19F310633243448481B099B7ADE86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Mathieu Karsenti - Bygones (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:EFDB694F02770F45EC7F1B4B8F445B7CB814101D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Henrik Meierkord - Refuge (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, 
 magnet:?xt=urn:btih:43793EB8310A46A88653B51455C4AE59A334D201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Lost Frequencies - Less Is More (2016) [FLAC|Lossless|WEB-DL|tracks] <House, Dan
 ```bash
 magnet:?xt=urn:btih:26A92479874BE705526B7141080135C78FA746CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Fossil Hunting Collective - Vacancy (2020) Ambientologist [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:A412894618A1EA164B2497C5182B140ACC5B8897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Islands, Pt. 1 - Jupi/ter (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, 
 ```bash
 magnet:?xt=urn:btih:C97C8C42334A64EE82893E6315EF97EDD71A9BFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Chris Otchy - Recursive (2020) Ambientologist [FLAC|Lossless|WEB-DL|tracks] <Amb
 magnet:?xt=urn:btih:2580A9D62725DB5C15829DF5E22AA07278FFC0CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Schiller - Symphonia (2014) [FLAC|Lossless]<Ambient , Downtempo , Trance>
 ```bash
 magnet:?xt=urn:btih:C66A75847E37DDE1333E691E6E7BFCAE6FFFC100
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Kingside Main Stage 2017 (Compilation) [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:48CA29306F405F2C4AC96393199CD50EF7FA5373
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - A State Of Trance Classics Vol.12 (The Full Unmixed Versions) (2017) [MP3|3
 ```bash
 magnet:?xt=urn:btih:8716DE5B6911DFCD7B0B985E9266BFAAE62519FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Tricky - Ununiform (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trip-Hop, D
 magnet:?xt=urn:btih:52851B70A46A24D3BEEC9571E183E5B4C24EC420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Black Hole presents: Best Of Vocal Trance Volume 1 (2017) [MP3|320 Kbps] <V
 ```bash
 magnet:?xt=urn:btih:8B6CA69560CCC088EB4E0C136B41E3DC69A2149F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Pop Vocal Lounge (Chillout Your Mind) (2019) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:5B0CC0BF3C649238D29BA951B99CE4F92F7F2D77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ VA - Formentera Solaire Chill (Wonderful Lounge and Chillout Music) (2019) [FLAC
 magnet:?xt=urn:btih:6A4E75F10EEE2EC636D8A47F3AB4E47569612805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ Michael Stearns - Planetary Unfolding (1981) Remastered, 2015, Earth Turtle Musi
 ```bash
 magnet:?xt=urn:btih:78F1C797AE0CE74A70B33B0345E9A04E573959C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ VA - Deep House Relax (2018) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:A42BD967E71B5BF4C094855993428F742C9DF000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ VA - Suanda Chillout Vol.2 (Mixed by Seven24) (2017) [MP3|320 Kbps] <Chillout, B
 ```bash
 magnet:?xt=urn:btih:F3CA9AB57C5C2173D6F413B6CBF497D28FCAF987
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ VA - Ori Uplift & Nord Horizon - Uplifting Only 241 (2017) [MP3|320 Kbps] <Tranc
 magnet:?xt=urn:btih:79174915F8F136262272AF3B6F3DE26DABC63C82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ Fading Language - Vessels of Time (2018) Insight Music [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:C97E4536F7B2025C5801C4BC35238F4E4763AB2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +571,8 @@ VA - Golden Glamour Lounge Vol.1 (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:BAA5BD2A4FF7ED1F3C390121B57D599526F6C11D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +599,8 @@ magnet:?xt=urn:btih:BAA5BD2A4FF7ED1F3C390121B57D599526F6C11D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +629,8 @@ Nebula - Astronomy (2017) Scientific Wax [FLAC|Lossless|tracks+.cue] <Drum n Bas
 magnet:?xt=urn:btih:7A7E2EE74127C2714523050938BC7D5750E2CD48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ Topic @ DJ Mag Top 100 DJs Virtual Festival 2020-09-12:
 ```bash
 magnet:?xt=urn:btih:8CD1A2CE1F53620159029B0F149F2BB96640639D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +687,8 @@ VA - Chillout Now Best Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout
 magnet:?xt=urn:btih:035B50BCC9EC63D9E3A818A159393F388694581A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +716,8 @@ VA - Chillout Break Best Lounge Traxx (2015) [MP3|320 кб/с]<Downtempo, Chillo
 magnet:?xt=urn:btih:798EC4745347FA83B3A5F4BF00FF1D42355EA64A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ Excision - Virus (2016) [MP3|320 Kbps] <Drumstep, Dubstep, Trap>
 ```bash
 magnet:?xt=urn:btih:91B3A660D250985DC69AADE2182E8067206E2555
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

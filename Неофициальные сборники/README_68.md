@@ -22,6 +22,8 @@ VA - Big Room Dance (2022) [MP3|320 Kbps] <Big Room, Dance, Hands Up>
 magnet:?xt=urn:btih:8E221A3FD65069EEE09140810F8E8312E318C036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - 60 Minutes. Old School Dance Music vol.6 (2021) mixed by Dj V [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:DE06CC1DD19204A0EE4E6BEE31460A03E4E0F360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ VA - Trance Symphony Volume 10 (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:885390C0F768DDAA5B740EDBDDB24F7810DE4C93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -109,6 +115,8 @@ VA - Beatport Chill House: Sound Pack #396 (2022) [MP3|320 Kbps] <Chill, Deep Ho
 magnet:?xt=urn:btih:CA93D57CF64822FA06B81F11BB9B05506041DD2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ VA - Techno Minimal: Special Party (2022) [MP3|320 Kbps] <Techno, Electro>
 ```bash
 magnet:?xt=urn:btih:5A84EB7857D78AED3149E1797B7925FDBC80FB22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +179,8 @@ VA - Club Charts Vol.2 (2012) [MP3|256 кб/с]<Dance, Club>
 magnet:?xt=urn:btih:9568692BAD42A9891BC700683FFCECA2BCE24963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +214,8 @@ VA - Клубные Новинки Vol.65 from AGR (2012) [MP3|320 кб/с]<Club
 magnet:?xt=urn:btih:6BD8E45E5C3C818E1F36777961A99F4167E6C0A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +242,8 @@ VA - Fresh & Chill (2022) [MP3|320 Kbps] <Pop, Chillout>
 ```bash
 magnet:?xt=urn:btih:F3EB8DFB4E417C328FE501F0AD88BF8DDEFCFFDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +278,8 @@ VA - Посвящение Друзьям (2012) [MP3|256 кб/с]<Шансон>
 magnet:?xt=urn:btih:96BE57D7A32B66AC34651AECFBD10E9646A86868
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +312,8 @@ VA - Дискотека: Весенний отрыв №100 (2012) [MP3|256 кб
 ```bash
 magnet:?xt=urn:btih:7A488965B875C381775B0D38558DAB166D495D28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +348,8 @@ VA - Клубные Новинки Vol.67 from AGR (2012) [MP3|320 кб/с]<Club
 magnet:?xt=urn:btih:991E5D0287EA3BB2FB906DABBB6F23392ED80E7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +383,8 @@ VA - Deep Club Booms (2012) [MP3|320 кб/с]<House, Club>
 magnet:?xt=urn:btih:77D374A75047B02456F5046213CFAF86EABA5BEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +411,8 @@ VA - Dance Rising (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:0D647F6C20A37245768D1A537745618FE99E6EB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +447,8 @@ Rene LaVice - Все треки 2010-2012 (2010-2012) [MP3|320 кб/с]<Drum and
 magnet:?xt=urn:btih:0520FD85D1F8A16B07820DCAF90F01AA18E27421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +481,8 @@ VA - Офигенное Радио (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:895CDA71D4DCCA649394CA92CDC7624D4949F515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +517,8 @@ VA - Автозвук От Русских Диджеев (2012) [MP3|224 кб/с
 magnet:?xt=urn:btih:7F3EDD941924C5BD4E65CD9C688C8FBBAFF8497C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +551,8 @@ VA - Лучший Top-чарт (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:8923AD2F0B746E79CB97C62BBD6B942A89087B98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +587,8 @@ VA - Top Club Hits Vol.2 (2012) [MP3|320 кб/с]<Dance, Club>
 magnet:?xt=urn:btih:7351DCE890F2CE865F00739C8B4DB0CF75F755FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +622,8 @@ VA - Танцевальная Сенсация Русский выпуск (2012
 magnet:?xt=urn:btih:73275F1E5B67932D34F26A535313312AF12B1250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +650,8 @@ VA - Music News vol.322 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:109B07A13220D700FDF94E7AA2BA84D70B432A9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +686,8 @@ VA - Gold Disco 50+50 (2012) [MP3|256 кб/с]<Pop,Dance>
 magnet:?xt=urn:btih:DBDF7F4B88F0AE50D3600E069FB522D4A25D8E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +720,8 @@ VA - Зарубежные Новинки Vol.46 from AGR (2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:F37860A1294A6B3E15F6C94D98EF6FE93A8B9D86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -712,6 +756,8 @@ VA - Wise Up (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
 magnet:?xt=urn:btih:E17A25DB1553B425AA89E6B7E3B4CF23083CAF37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -738,6 +784,8 @@ VA - Steampunk Hotel (2023) [MP3|320 Kbps] <Electro, Swing, Cabare>
 ```bash
 magnet:?xt=urn:btih:C324B9506136EF4017D04D233619D070660B313B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -772,6 +820,8 @@ VA - Русские Новинки Vol.49 from AGR (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:3E3B3A18D65B81E939B039CE10A3F0F42A525289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -804,6 +854,8 @@ VA - Русские Новинки Интернета (2012) [MP3|256 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:57876E29175D4FACA497DF98C4FE8BE1463A7E73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

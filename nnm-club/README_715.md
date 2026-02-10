@@ -19,6 +19,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.10.5 Gold
 magnet:?xt=urn:btih:F5255C95A0695956763758132F77B4A5F744F3D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Through the Darkest of Times v1.0.18 [Ru]
 ```bash
 magnet:?xt=urn:btih:C1F747ECDC9858009E1D25F78767E9A7B0F81581
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Homeland - The Stone of Night (2000) [En] (1.0.3z) License
 magnet:?xt=urn:btih:E4953FCDD4E1BF274E37525F0E63B7A9B08E3950
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:E4953FCDD4E1BF274E37525F0E63B7A9B08E3950
 ```bash
 magnet:?xt=urn:btih:D099171239909089AED1841E0D1BA8CBB11ECC3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:D099171239909089AED1841E0D1BA8CBB11ECC3D
 magnet:?xt=urn:btih:C21008FA458A80599D64F7D2951146E34074D443
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ BikeComputer Pro - возможно, одно из лучших приложен
 magnet:?xt=urn:btih:63E6B32C9C66B4BB4A33020F98B455B1D03C8DA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Sunset Hills v1.0.22 [En]
 ```bash
 magnet:?xt=urn:btih:6ED32FE3D8156140D608BE54A79C9E9126C08514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Brave People WW2 Point & click / Храбрые люди vBuild 265 [Ru]
 magnet:?xt=urn:btih:4BFF935AD080A3118360F9ED962F29AE3318D601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Logic Circuit Simulator PRO предоставляет вам место для 
 ```bash
 magnet:?xt=urn:btih:789AD1BD9CB91017D77B7BB7490954139439A940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Voodoo Detective v0.0.33 [En]
 magnet:?xt=urn:btih:37E288F2C15201BAD67D8A8BAE577E35960CC822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:37E288F2C15201BAD67D8A8BAE577E35960CC822
 ```bash
 magnet:?xt=urn:btih:DA0FFCED4AF523594B5F5130AF424F4D72756DF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ InnoExtractor - это мощное приложение, которое пом�
 magnet:?xt=urn:btih:81CC1FE7EB83E3239EC17B2648390BA58051BE6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Teardown – симулятор проведения ограбления в р�
 ```bash
 magnet:?xt=urn:btih:0FC807EBBBC9EC8789B6D08E2BDFC707FE49EC49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Builders of Greece (2024) [Ru/Multi] (1.0.0 build 18361871) Repack seleZen
 magnet:?xt=urn:btih:70C9E35802915DC3591551D4D60DD0C8F1E5C622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ MediaHuman YouTube Downloader 3.9.11 (0605) RePack (& Portable) by Dodakaedr [Mu
 ```bash
 magnet:?xt=urn:btih:8972AC9747DC35B4CA75378586694FEF1A239A52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ TMNT: Shredder's Revenge v1.2.15 [En]
 magnet:?xt=urn:btih:E356290A375052719DF268E8A1C946BB695FE236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Drop Duchy - это легендарная геометрическая голо
 ```bash
 magnet:?xt=urn:btih:6B88DD9732AB6F9786A507E244B4CEC77C63E197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:6B88DD9732AB6F9786A507E244B4CEC77C63E197
 magnet:?xt=urn:btih:FD4F15FCB90114F0C495D3BC3A30846F9DFE8444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Starlink обогнал ракеты: спутниковый интернет п
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Starlink обогнал ракеты: спутниковый интернет п
 magnet:?xt=urn:btih:41FE46C8B8A4DD1962D25FC421A8766C6EE4846A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ HDRezka TV — это неофициальный клиент для просм�
 ```bash
 magnet:?xt=urn:btih:A01CBDD14D80D98A8B2509E816D7D36A2229F095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:A01CBDD14D80D98A8B2509E816D7D36A2229F095
 magnet:?xt=urn:btih:C804996A06B5E6E01F2101C24686D590D3B2DFB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ PIDKey Lite предназначена для просмотра, обновле
 ```bash
 magnet:?xt=urn:btih:0AF236D6524757F4A139A096D79BF313BCB4EA18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:0AF236D6524757F4A139A096D79BF313BCB4EA18
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:0AF236D6524757F4A139A096D79BF313BCB4EA18
 magnet:?xt=urn:btih:B348B14E7EDB39C0414C40C0F2C635D8C96786E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:B348B14E7EDB39C0414C40C0F2C635D8C96786E0
 ```bash
 magnet:?xt=urn:btih:ACD32C3019643CF51499FEF6FD2A3FF19B17B1CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

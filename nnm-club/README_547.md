@@ -20,6 +20,8 @@ HeadUp Display (HUD) – это возможность использовать 
 magnet:?xt=urn:btih:E2C33933841332A76F5242D7450F84C1B7EA6AAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.109/dlc) Repack Other s [Digital Col
 ```bash
 magnet:?xt=urn:btih:A541D4AF38108676510CB02D546059E140C928B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ GPS АнтиРадар v49.0 Mod by СМАРТОС [Ru]
 magnet:?xt=urn:btih:D9F6872F98F30F5FF91E9A43CFA1672CDDA1CFE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:D9F6872F98F30F5FF91E9A43CFA1672CDDA1CFE1
 ```bash
 magnet:?xt=urn:btih:E038FEECF49CC85E800F30B0579872E04F839C0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:E038FEECF49CC85E800F30B0579872E04F839C0C
 magnet:?xt=urn:btih:8B2A1E480B8961193EC7AB417101AB5458ECCD82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:8B2A1E480B8961193EC7AB417101AB5458ECCD82
 ```bash
 magnet:?xt=urn:btih:6DE3A4015B6E7403B5F9F622A3D04804458431D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:6DE3A4015B6E7403B5F9F622A3D04804458431D4
 magnet:?xt=urn:btih:1ABDE5BF8D895CB5B1B20B66D9566563B53EC522
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:1ABDE5BF8D895CB5B1B20B66D9566563B53EC522
 ```bash
 magnet:?xt=urn:btih:82458F25D671FEDD3AF4F31CBB6ED7777A7DA587
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:82458F25D671FEDD3AF4F31CBB6ED7777A7DA587
 magnet:?xt=urn:btih:4E7E062BB2F72EC658D910259804C8B2F8DEB18A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Kanchigai no Atelier Meister / The Unaware Atelier Master / Не знающий 
 ```bash
 magnet:?xt=urn:btih:AECA61C97D8497E5E1DF9EA034B2A7D797ABD1AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Carrier Command 2 – стратегический игровой проект, 
 magnet:?xt=urn:btih:231C42F23A0B9E93023F38366748D1B02D8B347B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:231C42F23A0B9E93023F38366748D1B02D8B347B
 ```bash
 magnet:?xt=urn:btih:64AB70116FDCFB4B6236A182EC4620EEC0846306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Micron объявила о сворачивании производства DDR
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Micron объявила о сворачивании производства DDR
 ```bash
 magnet:?xt=urn:btih:520BEA037B0B9B704E4B76E4103735E8B36DAABB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:520BEA037B0B9B704E4B76E4103735E8B36DAABB
 magnet:?xt=urn:btih:1E1CA0D1A84540C1EE65088DB6BAB8BAB9E86717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ MX Player Pro v1.93.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FA4B32E74F9EC807F59CB278360B03BA6B83461A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Smuta / Смута (2024) [Ru] (2.1.0/dlc) Repack Other s
 magnet:?xt=urn:btih:04475076F58152BFEBE4F7D1CBA79F0DC4DA98B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ The Alters (2025) [Ru/Multi] (1.0.1.46) Repack FitGirl
 magnet:?xt=urn:btih:1DBB492FC235DB7F96F82FBE6A60605DFBA74DDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:1DBB492FC235DB7F96F82FBE6A60605DFBA74DDC
 ```bash
 magnet:?xt=urn:btih:2C3F56C5D1638CA1516C811C120CA77F8614C537
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:2C3F56C5D1638CA1516C811C120CA77F8614C537
 magnet:?xt=urn:btih:D9752273AF77852C472508709683565D29122CEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Adobe Photoshop Lightroom Classic 2025 14.4.0.8 (x64) Portable by 7997 [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:C344BF17AC256815FBA04B36E4F1D7CDEDECD7D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:C344BF17AC256815FBA04B36E4F1D7CDEDECD7D5
 magnet:?xt=urn:btih:9D1518A26F5F4E57F3602FF3D40F977786F62734
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:9D1518A26F5F4E57F3602FF3D40F977786F62734
 ```bash
 magnet:?xt=urn:btih:2ED3C958067AA0EBA02F6628D0503F932CF2611C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ VA - Hits All Time. Volume 1-60 (Compiled by Codename87) (~2000-2025) [MP3|128-3
 magnet:?xt=urn:btih:3D894BE5D6D3C55D125FD275C89DC1798F9FB616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:3D894BE5D6D3C55D125FD275C89DC1798F9FB616
 magnet:?xt=urn:btih:AA646705B7CF1D3C91C0871DE818A0F79F88ECDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:AA646705B7CF1D3C91C0871DE818A0F79F88ECDD
 ```bash
 magnet:?xt=urn:btih:8CA76A7D7934DF86B9726B85B6F04594EB5FBB52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

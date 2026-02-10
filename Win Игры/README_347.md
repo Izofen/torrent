@@ -19,6 +19,8 @@ Outbreak: The Nightmare Chronicles (2018) [En] (1.3/dlc) License PLAZA [Complete
 magnet:?xt=urn:btih:50220BBB19611A954A831EB8D5D5164E97A68EC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ My Memory of Us – это воспоминание о дружбе между �
 ```bash
 magnet:?xt=urn:btih:2C36A3467651912C512B80D03BEB77D5BFBFB6DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Conjuring House – это приключенческая хоррор-иг�
 magnet:?xt=urn:btih:921B981963F512D1189CCF9FA692A87689C18867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Through the Woods — это приключенческая игра от тре
 ```bash
 magnet:?xt=urn:btih:436CAC40213A810713E3B0DFBC1F994A52E3395D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Mark of the Ninja (2012) [Ru/Multi] (1.0) Repack R.G. Revenants [Special Edition
 magnet:?xt=urn:btih:F4B085E6907FFDF398B23B0D2BB38C30BD922B44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Toby: The Secret Mine - красивый приключенческий пазз
 ```bash
 magnet:?xt=urn:btih:05ECBDC3DB960ADB41381A1CD5012ED5CC240E30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Albert and Otto: The Adventure Begins (2015) [En] (1.0) Repack R.G. Механи
 magnet:?xt=urn:btih:3DC14A3A4977217B6096954BC168CC797B6EB232
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ NBA 2K13 является продолжением серии баскетбол
 ```bash
 magnet:?xt=urn:btih:D41B2175CBFCF3EC0044699FA25BA77E2CE274A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ James Bond 007: Blood Stone [Ru/En] (RePack/1.0) 2010 | R.G. Shift
 magnet:?xt=urn:btih:77E88AC0600DAADB3F7A3C5FBAFAD0839C97CD16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Car Mechanic Simulator 2018 - All Cumulative Patches (2017) [Ru/Multi] (1.0.0-1.
 ```bash
 magnet:?xt=urn:btih:3F8426DF8C8AAB4E2C715464435E9965752F659D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Hell Yeah! Wrath of the Dead Rabbit [En] (RePack/1.0u1/2 DLC) 2012 | R.G. Shift
 magnet:?xt=urn:btih:D7C779AC7280799C07AE040BF0EE38C2ECF62CCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Conan Unconquered (2019) [Ru/Multi] (1.143 build 703634) Repack xatab
 ```bash
 magnet:?xt=urn:btih:A1D0EC3D9137E405F685C0875E3FE89DF7234084
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Chroma Squad – тактическая ролевая игра о пяти тр
 magnet:?xt=urn:btih:FDA1C259B6555B0A75A541C79D3EE1065C77F4B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Halloween Stories: Invitation / Хэллоуин: Приглашение на в
 ```bash
 magnet:?xt=urn:btih:F5C0A8C7D8A68945B379F18E3C4B18646D2A9D0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Legacy 3: Witch Island Origin / Наследие 3: Происхождение �
 magnet:?xt=urn:btih:7DC7EBCE380BD9EE59970BE4C43EFEAD2615FC34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Destroy All Humans! 2 - Reprobed (2022) [Ru/Multi] (1.0.362/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:CF6AEE2A74132C5FCC88AA10B1CA931E78A6067D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Darkness and Flame 4: Enemy in Reflection (2019) [En] (1.0) Unofficial [Collecto
 magnet:?xt=urn:btih:42218BE6C6DCE0DA3ACDC2CCC30FC61B06EA88CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Wolfenstein (2009) [Ru] (1.2) Rip xatab
 ```bash
 magnet:?xt=urn:btih:687E6412681511D65CBC74FFD1B3B71C4E554E3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Achtung! Cthulhu Tactics (2018) [Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:E0CABBFB91755B27F28CADB20C7AD132F3B822AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Space Hulk: Tactics – новый взгляд на старую добрую �
 ```bash
 magnet:?xt=urn:btih:CC802DBF3099CDF386B15CC7827515FFC0A7148C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Manual Samuel - забавная приключенческая аркада о 
 magnet:?xt=urn:btih:829316A116F54B34AA0D4A684D84C5006F237081
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Overland (2019) [Ru/Multi] (1.0) License SKIDROW
 magnet:?xt=urn:btih:01CDA18AF16901BDABCD16282F2137E69D1C036F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ The Evil Within 2 (2017) [Ru/En] (1.0/dlc) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:D1B4E3954AE222220B8E00CEB8649A0F34411338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Chaos on Deponia - это продолжение чарующего двухме
 magnet:?xt=urn:btih:DDD5E32E436E714E7732026E79FD92C5F087B073
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Dungeons 3 (2017) [En] (1.2.1/dlc) License CODEX
 magnet:?xt=urn:btih:8177EE43AF100AF38D1CAA78A6D14CB9FAB720F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:8177EE43AF100AF38D1CAA78A6D14CB9FAB720F4
 ```bash
 magnet:?xt=urn:btih:EE9046C688833DF2A795AFF58F7DDC6734E4E0A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

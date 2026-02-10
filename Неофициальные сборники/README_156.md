@@ -22,6 +22,8 @@ Within Temptation - Edge of the World (Compilation) (2019) 2CD [MP3|320 Kbps] <S
 magnet:?xt=urn:btih:BE437DB8802A6F4E8B850399499D41D39F063AF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Finding Around Blessing (Energy Tech Trance) 011 (2017) [MP3|320 Kbps] <Tra
 ```bash
 magnet:?xt=urn:btih:12E091675D04E7FB539208891A99D3DDDBA82EDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Hit Music от Мяу: Зима (2018) [MP3|260-320 Kbps] <Pop>
 magnet:?xt=urn:btih:4F89D47319FF72B26CF74CC64EE643C56B84E81A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Radio DFM: Top 30 D-Chart 23.11 (2018) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:0E866B36933A9B810DA7071D58FEECEE7334D664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ Di Young - Listen To Your Heart (2018) [MP3|320 Kbps] <Trap>
 ```bash
 magnet:?xt=urn:btih:70B64D4946113C439790E19938C0C2D318365D19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ VA - Tech Of Access (2019) [MP3|320 Kbps] <Techno>
 magnet:?xt=urn:btih:0A131FE1A5E6FA8D16B2044414A244A2D14E726D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ VA - Natural Order: Progressive Trance Edition (2019) [MP3|320 Kbps] <Trance, Pr
 ```bash
 magnet:?xt=urn:btih:C84BC56E03C08886C2950F43E5622A817D41EAB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -207,6 +221,8 @@ VA - Pure Winter Bass (2019) [MP3|320 Kbps] <Drum & Bass, Bassline>
 magnet:?xt=urn:btih:BB1CF8A74E958EB6EBED9E275DED20E6DA873ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +249,8 @@ VA - Holiday Of City (2019) [MP3|320 Kbps] <House, Trance, Techno>
 ```bash
 magnet:?xt=urn:btih:A53599B57D67547108EE259A3D6EB123B6B9DBB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +279,8 @@ VA - Record Super Chart 564 (2018) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:0E419F806D4AE70F6E6F356CD566102E4B90DF8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +307,8 @@ VA - По волне моей памяти 2: Том33 (Compiled by Виктор
 ```bash
 magnet:?xt=urn:btih:F336CAE4C36B5A88D2A8CB7436B5A9339DD6ACCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +337,8 @@ CD1:
 magnet:?xt=urn:btih:0D9EE6A5AAB9860A6C36BD8625D5949E18C3CB36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +365,8 @@ VA - По волне моей памяти 2: Том31 (Compiled by Виктор
 ```bash
 magnet:?xt=urn:btih:0ED310777C099519CFA0CB716427566FE0C00168
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +395,8 @@ VA - По волне моей памяти 2: Том30 (Compiled by Виктор
 magnet:?xt=urn:btih:8CDE0302BAC065DC9BFBDBB28CA8CAEED4C50560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +423,8 @@ VA - По волне моей памяти 2: Том32 (Compiled by Виктор
 ```bash
 magnet:?xt=urn:btih:F0FFCAD286611854C22756125575EE092401C41F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +453,8 @@ VA - Good Story Rock And Roll (2017) [MP3|256-320 Kbps] <Rock and Roll>
 magnet:?xt=urn:btih:576596466A56EEEA8E16F2943FA226E39B613015
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +481,8 @@ VA - Хиты под водочку: Круговороты судьбы (2018) 
 ```bash
 magnet:?xt=urn:btih:FF84A3B4C58E4A328DC5318D15BCE3BEC2E497F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +511,8 @@ VA - Лучшие клубные новинки Vol.5 (2017) [MP3|320 Kbps] <Hou
 magnet:?xt=urn:btih:5CFEB5D9E67AEFF7427D681A85800C3DAF54FECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +539,8 @@ VA - Dance Charts - Dance 50 (Dazu Tanzt Ganz Deutschland) (26.11.2017) [MP3|192
 ```bash
 magnet:?xt=urn:btih:24A005795D75DD12D09B541988F527C7FE696C3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +569,8 @@ VA - Seasons To Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:9D8E6F56E7D68061FF1D4D0DD8578E79427D7610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +597,8 @@ VA - Trance In The Road (2017) [MP3|320 Kbps] <Trance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:AFF2DC7256C5D9AE483BA3E91C6080A74261463D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +627,8 @@ VA - 50 Лучших Баллад Навсегда (2014) [MP3|320 кб/с]<Rock
 magnet:?xt=urn:btih:6166ACDD1403D5DBE069FBB8DBF7523FE6BD2ACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +655,8 @@ VA - Shazam Хит-парад Russia Top 100 Ноябрь (2018) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:D2ACB3A71255CEAD86DADD7F4A6EF87F67BE6399
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +685,8 @@ VA - Новая Современная Классика Выпуск № 1-4 (20
 magnet:?xt=urn:btih:85D3C25C71E52C1C59DA0DB0647E7269E38048AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +714,8 @@ VA - Collection Of Great Songs: RnB & Soul (2018) [MP3|320 Kbps] <R&B, Soul>
 magnet:?xt=urn:btih:01B3F3710B54E2B86CE894E1359602B7C076548E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,6 +742,8 @@ VA - The Official UK Top 40 Singles Chart 30.11.2018 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:F5FC7D320291053E092862BF8F82A7ABEE3BD384
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

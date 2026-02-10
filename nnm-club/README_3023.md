@@ -19,6 +19,8 @@ Dekolte - Без тебя (2012) [H.264/1080p] WEBRip
 magnet:?xt=urn:btih:D20CE3B64AA6867C5059AA4451C7C09859BB0FFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D20CE3B64AA6867C5059AA4451C7C09859BB0FFE
 ```bash
 magnet:?xt=urn:btih:1A2D745A4C8B3BA9CD71652E7C803F32DB3A7A3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:1A2D745A4C8B3BA9CD71652E7C803F32DB3A7A3C
 magnet:?xt=urn:btih:0BA163510E2942C425A2BC5AEA348DBC10ABB982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:0BA163510E2942C425A2BC5AEA348DBC10ABB982
 ```bash
 magnet:?xt=urn:btih:FD0909A01E958CC705F62649B2C2945EF394B13D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ DJ Kocmoc - Electro Sensation vol.19 (23.02.2012) [MP3|320 кб/с]<Electro Hous
 magnet:?xt=urn:btih:47253484BC4654624719BA2AFBA3458D02F2A2FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Ben Kweller - Go Fly A Kite (2012) [MP3|-V0 ~245 кб/с]<Indie Rock>
 ```bash
 magnet:?xt=urn:btih:1BC61418D7B74360546AA8E0232327004710D9FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ VA - 10 Full Moons (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 magnet:?xt=urn:btih:07B511F179D9E6581F8B6BE5330A46F9B4CFF1BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +237,8 @@ ASM - Platypus Funk (2010) [MP3|192-320 kbps]<Hip Hop / Funky Breaks / Reggae>
 magnet:?xt=urn:btih:B291C0D1D571685A6BC470AF62E596D8C36D28C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +270,8 @@ My Best Fiend - In Ghostlike Fading (2012) [MP3|320 кб/с]<Alternative, Rock, 
 ```bash
 magnet:?xt=urn:btih:98AE53462F98882F5392520CC6FD65B6D6586D8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +306,8 @@ The Beautiful South - Superbi (2006) [MP3|320 кб/с]<Pop-Rock, Country>
 magnet:?xt=urn:btih:9785E2520A8672318F8797BFA8EACC8C3C3565BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +341,8 @@ CD1 :
 magnet:?xt=urn:btih:5A99090431420AA5D76BA67D6BF7D878F5041EF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +370,8 @@ Dort lernt er Katja kennen...
 magnet:?xt=urn:btih:2C5233922999A2609D7BE44FEF5C764A93223620
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +395,8 @@ magnet:?xt=urn:btih:2C5233922999A2609D7BE44FEF5C764A93223620
 ```bash
 magnet:?xt=urn:btih:1CC78A99957A6B3A0E1DCC82DB3FC8FE8A95951F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +431,8 @@ Armen Chakmakian - Caravans (2004) [FLAC|Lossless]<Contemporary Jazz, New Age, F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +456,8 @@ Armen Chakmakian - Caravans (2004) [FLAC|Lossless]<Contemporary Jazz, New Age, F
 ```bash
 magnet:?xt=urn:btih:D31F7198F51722F8ED42E0F4042B73B9F1E40345
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +484,8 @@ Drm Алексеев | Знаки [2011] [MP3]
 magnet:?xt=urn:btih:7456F4B573B3034067B6B78981C60FD2BE85CF53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +509,8 @@ TagScanner - мощная программа для организации и у
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +543,8 @@ Nerso - Exploration of Infinity (2011) [MP3|~265 кб/с (V0)]<Psychedelic / Pro
 ```bash
 magnet:?xt=urn:btih:3ADBE36E581A7BC26C9068FE873488AA0982DFCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +579,8 @@ VA - Progressive Music (20.02.2012) [MP3|320 kbps]<Progressive House>
 magnet:?xt=urn:btih:CDD9F888C57903B51D72C45C78B504CF348DEA84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +614,8 @@ VA - Minimal Art v.11 (19.02.2012) [MP3|320 kbps]<Minimal>
 magnet:?xt=urn:btih:25E95BCE5B94CBE4FCC3C63E090C95714D07F61F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +647,8 @@ VA - Progstorm 3 (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
 ```bash
 magnet:?xt=urn:btih:3DA1C7C37A85A4EC9016AA93C27B12F5C94B2BAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +683,8 @@ Audiomatic - Weekend Society (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +711,8 @@ Changelog:
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -701,6 +747,8 @@ Delizioso - Italian Swing Sisters (2004) [FLAC|Lossless]<Vocal Jazz, Swing>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -734,6 +782,8 @@ Nox Arcana - House Of Nightmares (2010) [MP3|320 kbps]<Neo-Classical, Dark Ambie
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -766,6 +816,8 @@ George Gakis - Too Much Ain't Ever Enough (2012) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:5044F19F431B210EBC5D27F5D4AF74FA74F7240D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:572985A62F88231D848A93B41B1ED813967B8CD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:572985A62F88231D848A93B41B1ED813967B8CD0
 magnet:?xt=urn:btih:060524CFC44D5B2AAE16E77506DE73C300242BE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ After Effects Kickstart- это идеальный вводный курс After
 ```bash
 magnet:?xt=urn:btih:639294676ABC5273BFBDF52CB4DAF6EB93471E2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Kimvoronin, Ким Воронин | PowerPoint Ниндзя (2022) WEB-DL [RU]
 magnet:?xt=urn:btih:B151FBB569980E37A29EFAD1E0B126E6C9E5E92A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Udemy, Victory 3D, Mieszko Lacinski | Create a Prop for VFX Pipeline with Maya, 
 ```bash
 magnet:?xt=urn:btih:7718957BF0510D89EC839A0566BA7A07694423D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Podlodka Crew | PHP Crew #1 (2022) WEB-DL [RU]
 magnet:?xt=urn:btih:DF1C05C51697898B9530773D357D553841C095AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ Udemy, Mrawan Hussain | BLENDER: Learn how to create utility knife from A to Z (
 ```bash
 magnet:?xt=urn:btih:E8C90ECD9DC899EEC3DB3EF74DEBE494E83A451E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ ArtStation, Armored Colony | Sci-Fi Crate - Model & Texture a Game Asset - Full 
 magnet:?xt=urn:btih:6E7C8D53514CC155CBE0A366A6FEF5A696879075
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Artstation, Tyler Smith | Intro to UE4 lighting Exterior and Interior (2020) PCR
 ```bash
 magnet:?xt=urn:btih:455DEC81AEE4E03D9B20172544D868F886DAFE99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Saif Alshrideh | The Ultimate weapon course (Create Sniper in Blender 3.4 ) (202
 magnet:?xt=urn:btih:C2ED35600BF86EE3C80362C0C1C99E7D4E397BCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ Udemy, Hamidreza Afshari | Texturing a Scene with Substance 3D Painter (2023) PC
 ```bash
 magnet:?xt=urn:btih:5E3159772CA16DBCAF6063A7F6E4D24958E4E07F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ Dmitri Nesteruk | Паттерны проектирования C# и .NET (2021
 magnet:?xt=urn:btih:83727D4CD2183719B81BD19334D5C2605DCBA328
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ Outgang, Laura Gallagher | Outgang - Become a Better Character Artist (2022) WEB
 ```bash
 magnet:?xt=urn:btih:7655AA1F4CE0F2D56E8AD3C44541BB13A19193B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Yaakov Young | Полный курс иврита от А1 до С2 (2023) WEBRi
 ```bash
 magnet:?xt=urn:btih:7AB82372AE40C7825B72F7E100747D1F23B04083
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ Ryan Laley (Райан Лейли) - разработчик, консульта�
 magnet:?xt=urn:btih:CF29963902A8CEEEADF1EB8343460E299714324B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ Udemy, AR Shankar | Valaxy Technologies | DevOps Project - 2022: CI/CD with Jenk
 magnet:?xt=urn:btih:BA9AC0FD05CF20C64106D5526BE2F626B0C104DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ Docker — это инструмент для упаковки и разверт
 magnet:?xt=urn:btih:09C572BD3795D777B9A99AAC3DC3ACC19BE52F27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ Udemy, Laith Harb | Docker and Kubernetes - The Complete Developers Guide (2022)
 ```bash
 magnet:?xt=urn:btih:DA9E8FF1403C3B7392C1D07189F6D20A3FE963C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ Udemy, iwayQ Technology | Project in DevOps: Jenkins CI/CD for Kubernetes Deploy
 magnet:?xt=urn:btih:28B8854AB06A28E983DF0483921601BF9AB6C896
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ ardanlabs.com, Miki Tebeka | Practical Go Foundations (2022) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:91DB653AEAE59000FE0E053FE8534DF31AF33BA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ React это быстро! Да. Но любое приложение, кото�
 magnet:?xt=urn:btih:FAB753EF5AC50FAE99C99F2A250DDB5B61965FFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ NestJS — один из самых современных фреймворко�
 ```bash
 magnet:?xt=urn:btih:50B3994C30B4A7DF88766AB3876BD8A1C334BB1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ We do not teach a surface-level course that tells you the basics of the exam. To
 magnet:?xt=urn:btih:9A636E65828513F59A1E64ED6C2BC0C1346B2FB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ Udemy, Kevin Nguyen | JavaScript & LeetCode | The Interview Bootcamp (2019) WEB-
 magnet:?xt=urn:btih:E7FB767921E81525773C87307F2958364E7A7CBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ Udemy, MA Applied Linguistics & DELTA, James Castleden | IELTS Step-by-step | MA
 ```bash
 magnet:?xt=urn:btih:B48A2F37065EFFE2BEE4E5B9110BC54926DBA01E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +701,8 @@ In this course we're focusing on the core of any great RPG, giving your players 
 ```bash
 magnet:?xt=urn:btih:EC902ECD449B3DFBBE4D6C009AEE94735F5B6EF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ PentestIT | Тестирование на проникновение с испо
 magnet:?xt=urn:btih:F8448DE4E1706389C3C3477BB7DAC8D4E45D699C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ PowerShell – средство автоматизации, позволяюще
 magnet:?xt=urn:btih:E36D6EBC3AD01A493BE569BA05C48D8559E7EAF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:E36D6EBC3AD01A493BE569BA05C48D8559E7EAF8
 magnet:?xt=urn:btih:10C10A503DF94608F614D790DC8ADCB11DEF7FFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:10C10A503DF94608F614D790DC8ADCB11DEF7FFC
 ```bash
 magnet:?xt=urn:btih:A9F202C19E3FB1DD823EE6EA744DC62370B05E30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:A9F202C19E3FB1DD823EE6EA744DC62370B05E30
 magnet:?xt=urn:btih:1DBEE113FE8D5B2E57165360F0AC059B94040A9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:1DBEE113FE8D5B2E57165360F0AC059B94040A9E
 ```bash
 magnet:?xt=urn:btih:D17BE45A4CB4B53002610710BFEFA4580D7A34B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ magnet:?xt=urn:btih:D17BE45A4CB4B53002610710BFEFA4580D7A34B2
 magnet:?xt=urn:btih:040C1B0A32D0FF621789B383ADDFF36903F66595
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ magnet:?xt=urn:btih:040C1B0A32D0FF621789B383ADDFF36903F66595
 ```bash
 magnet:?xt=urn:btih:069CA082804173F8CC69312714A4577539F222BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:069CA082804173F8CC69312714A4577539F222BD
 magnet:?xt=urn:btih:13498B110EB3CD4540B56D54CC1B379612EF4B12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:13498B110EB3CD4540B56D54CC1B379612EF4B12
 ```bash
 magnet:?xt=urn:btih:41120A43E45BCDF99E4B80CC6EAB7B254C2FAAE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ Udemy | The Complete Android Oreo Developer Course - Build 23 Apps! (2020) PCRec
 magnet:?xt=urn:btih:874BA1914F36CAA2B464159B6ACD17FF8F32BF0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ Cybrary - Advanced Penetration Testing
 ```bash
 magnet:?xt=urn:btih:641400B304612F97B26272013FA459ED3C6A44B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +358,8 @@ GeekBrains | Основы сетей передачи данных. Модель
 magnet:?xt=urn:btih:F007EF77DF585DAE39AAFB77F2CCBF1A0108DC12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ PostgreSQL – одна из самых популярных свободно р
 ```bash
 magnet:?xt=urn:btih:AE67C24F8EF6636413A0552AAD9DCA57A0B74074
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ OTUS | Pазработчик BigData (2018) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:3309E50DA1C228721C1C506E410E5BDA56F0504B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:3309E50DA1C228721C1C506E410E5BDA56F0504B
 ```bash
 magnet:?xt=urn:btih:1E58C689B3FAB259ACCFA077742A1BA72BA7C737
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +466,8 @@ magnet:?xt=urn:btih:1E58C689B3FAB259ACCFA077742A1BA72BA7C737
 magnet:?xt=urn:btih:9B067A5C0F064AC307575D330B2AC02E06725863
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ ITVDN | HTML5 И CSS3 STARTER (2018) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:10F289B57660EBFDA70D63C04B043ECA48E74541
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +520,8 @@ magnet:?xt=urn:btih:10F289B57660EBFDA70D63C04B043ECA48E74541
 magnet:?xt=urn:btih:210476F5142392A91FDF3E80DF8C8068B6B4458C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +547,8 @@ magnet:?xt=urn:btih:210476F5142392A91FDF3E80DF8C8068B6B4458C
 ```bash
 magnet:?xt=urn:btih:C79FB116906A3080FF4B527D82B1EFC7D092F606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +577,8 @@ magnet:?xt=urn:btih:C79FB116906A3080FF4B527D82B1EFC7D092F606
 magnet:?xt=urn:btih:AD56B0C6AAFC34F6A5470DF1CDD39DDC7C8A6C20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ ITVDN | Онлайн курс Golang (2018) PCRec [H.265]
 ```bash
 magnet:?xt=urn:btih:01CD182660383FD5579B51A191A81169C0E0ED7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +631,8 @@ magnet:?xt=urn:btih:01CD182660383FD5579B51A191A81169C0E0ED7C
 magnet:?xt=urn:btih:C8C642B79E3C3E0D4C88661BC5C3E48518E947EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +657,8 @@ magnet:?xt=urn:btih:C8C642B79E3C3E0D4C88661BC5C3E48518E947EE
 ```bash
 magnet:?xt=urn:btih:A693E322C96869F101A0A6E61E4C264083F142C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +685,8 @@ Beonmax | Курс Полный курс Python для начинающих – 
 magnet:?xt=urn:btih:1B7B14B71A3DD44DA840514999ACD6E5F9FD608A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ Beonmax | Курс PHP / MySQL (2019) PCRec [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:030975175FDFAC76833D0D1E836DB080F6A4A9C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

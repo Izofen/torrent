@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C3FE8E715987FC99994CE0528D5F18684F524C94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG: Как Нерон спас Рим / How Nero saved Rome (2009) SATRip
 ```bash
 magnet:?xt=urn:btih:8C5D3457E63A30FF174464C41F8A395C6DA77452
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:8C5D3457E63A30FF174464C41F8A395C6DA77452
 magnet:?xt=urn:btih:4DAB7A5B42A16A08E559F21115639D7CC229EDC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:4DAB7A5B42A16A08E559F21115639D7CC229EDC2
 magnet:?xt=urn:btih:7B8A853BF38516C51A72F78C6B92D36B0BE722F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:7B8A853BF38516C51A72F78C6B92D36B0BE722F9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:7B8A853BF38516C51A72F78C6B92D36B0BE722F9
 magnet:?xt=urn:btih:87D99EA5497696C1CF4758FA87422729AE5A5078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Magic Candle Антология [En] (RePack) 1989-1993 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Magic Candle Антология [En] (RePack) 1989-1993 | Pilotus
 ```bash
 magnet:?xt=urn:btih:23135E928660EAE38FAB39815D9C5CAC415CB4F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ VA - Сборник тяжёлых песен 9 (2012) [MP3|128-320 кб/с]<Met
 magnet:?xt=urn:btih:A11ABD909811B190D81B47B49E47CAB3688534C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:A11ABD909811B190D81B47B49E47CAB3688534C6
 ```bash
 magnet:?xt=urn:btih:7C099C234E1D7255861033C9E606E629976B1940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:7C099C234E1D7255861033C9E606E629976B1940
 magnet:?xt=urn:btih:6F8AFF21583ED51D956B630BE4ECAF4E5BA9F982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:6F8AFF21583ED51D956B630BE4ECAF4E5BA9F982
 magnet:?xt=urn:btih:20BBB9816EC16D9D616BE887B2818D1FBEA30214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:20BBB9816EC16D9D616BE887B2818D1FBEA30214
 ```bash
 magnet:?xt=urn:btih:B8E85D86B77A13FAE38BCB8AEE876EA81A8CB83F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:B8E85D86B77A13FAE38BCB8AEE876EA81A8CB83F
 magnet:?xt=urn:btih:2C4676B76437EE251E120EDF4289E2F09BF06281
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ Grml 2012.05-rc1 (инструментарий системного админи
 magnet:?xt=urn:btih:7A80D7CA43B9667445D7C9D092717A0E35462DAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:7A80D7CA43B9667445D7C9D092717A0E35462DAF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:7A80D7CA43B9667445D7C9D092717A0E35462DAF
 magnet:?xt=urn:btih:9AB416FFE4856F835B8EE8674856BDBBA379BE72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ BBC: Дельфы. Почему они так важны? / Delphi. Why it Matte
 magnet:?xt=urn:btih:82E72EC1F46179296EC25F6F729360D58EE1C140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:82E72EC1F46179296EC25F6F729360D58EE1C140
 ```bash
 magnet:?xt=urn:btih:EC3C670674D06B4D2BA04F3F6A0F7A977D8D835C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ VA - Музыка для хорошей компании Vol 3 (2012) [MP3|256 �
 magnet:?xt=urn:btih:D3866F78249F2A1D5B76F1C0AC7BAA2BDECC75B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:D3866F78249F2A1D5B76F1C0AC7BAA2BDECC75B9
 magnet:?xt=urn:btih:DB8CD807EAAF5F259BF13EFD920911B3379922A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:DB8CD807EAAF5F259BF13EFD920911B3379922A7
 magnet:?xt=urn:btih:3F307DA839FEF1E0C273AB7A81D36B0ECD31AEC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:3F307DA839FEF1E0C273AB7A81D36B0ECD31AEC9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:3F307DA839FEF1E0C273AB7A81D36B0ECD31AEC9
 magnet:?xt=urn:btih:76BB00A86C2AC9FCAF4D7430780B4D1C42EDFE8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ BBC: Как вырастить планету. Притягательная ис
 magnet:?xt=urn:btih:60C675830022DB36B17BB81C7C8889FBF224B13A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:60C675830022DB36B17BB81C7C8889FBF224B13A
 ```bash
 magnet:?xt=urn:btih:5829182AFB33FD2696C1EB8024D4114331EDCB57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

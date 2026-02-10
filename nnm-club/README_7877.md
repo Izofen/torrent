@@ -19,6 +19,8 @@ KCNcrew Pack - это огромнейший сборник серийников
 magnet:?xt=urn:btih:968456307A56E636DC18CA58C1E47B7E73AD58E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Matt Tebow - Premonitions (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:6221C6178815448A1E8993A05180D95CCC1BC97E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:6221C6178815448A1E8993A05180D95CCC1BC97E
 ```bash
 magnet:?xt=urn:btih:E4BD501ECAB73A45CE472BE47CEFD7F0BF713C69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:E4BD501ECAB73A45CE472BE47CEFD7F0BF713C69
 magnet:?xt=urn:btih:850AD57FE2094B00D1398F0E23ED61489E655034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:850AD57FE2094B00D1398F0E23ED61489E655034
 magnet:?xt=urn:btih:243E1C3B2ABF46FA6214C5091ED6CD3FA384CE4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:243E1C3B2ABF46FA6214C5091ED6CD3FA384CE4A
 ```bash
 magnet:?xt=urn:btih:D696E0EE1B1ABEB8329A2497908FBA94BE308E68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Michael Morales - Thump (1991) [FLAC|Lossless|image + .cue] <Melodic Rock>
 magnet:?xt=urn:btih:B7E526784329DE57CCB29D60CAED06657E8873CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ SpamSieve 2.9.46 [Multi/Ru]
 magnet:?xt=urn:btih:B4F96FD448CDAB7B16F4CF960C29D48467DA3FCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:B4F96FD448CDAB7B16F4CF960C29D48467DA3FCC
 ```bash
 magnet:?xt=urn:btih:07D4FC11E123F2FBF282983D3BC23EC1AE2A2F9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ NormBreaker (NormBreäker) - The Beginning (2023) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:C7106400EEF5A59F276F3DBA6F9542644EC0ED37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ VA - Deep Trance Showcase I (2023) [MP3|320 Kbps] <Trance, Progressive, Electron
 magnet:?xt=urn:btih:1E1FFE4CE9DE85A3DCA58C586D23B27BF17F9F73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:1E1FFE4CE9DE85A3DCA58C586D23B27BF17F9F73
 ```bash
 magnet:?xt=urn:btih:D5794ECA73556BC608193C7589D6F55A5DA85DF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ VA - Dancefloor Hits 2023 (Extended Mix) (2023) [MP3|320 Kbps] <Dance, Club, Hou
 magnet:?xt=urn:btih:7E4D380DF9B586D07166C13105D5E7C870CA0107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:7E4D380DF9B586D07166C13105D5E7C870CA0107
 magnet:?xt=urn:btih:9E69214C00F6F9154C3E39637ED693E0A41CCAF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:4AE04C1E1EC04F1F865F556D965F961CF3932B75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ Alex Stephens - The Path (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 magnet:?xt=urn:btih:F47E2F427774ADF19CC7DEEF3E0085FC12C9BCCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:F47E2F427774ADF19CC7DEEF3E0085FC12C9BCCD
 ```bash
 magnet:?xt=urn:btih:B83E066FE4CE18EC99623FE96D03BAB7B4D72BFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ VA - Playa del Lounge 3 (2012) [AAC|~324 Kbps] <Lounge, Downtempo, Ambient>
 magnet:?xt=urn:btih:6ED037EBCCE077B9B59A57089E02F8D5E1AE1BBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ Name Mangler — переименовываем файлы пачками. Ин�
 magnet:?xt=urn:btih:C96C7BCD9BDAABB13775849E5153D325541880E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:C96C7BCD9BDAABB13775849E5153D325541880E4
 ```bash
 magnet:?xt=urn:btih:D8C363B4F0033CC34565D702CF051830B1DE03D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:D8C363B4F0033CC34565D702CF051830B1DE03D6
 ```bash
 magnet:?xt=urn:btih:9CFA2F216E6F577117B4495C197D9A04BFCF62A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ Avarice - Avarice (2023) [MP3|320 Kbps] <Melodic Death, Thrash Metal>
 magnet:?xt=urn:btih:2DC4C6A7DD4C85476233FB47F07CEA66931C7D74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ The Herb Geller Sextette -  The Herb Geller Sextette (1955) 2005, Membran Music 
 magnet:?xt=urn:btih:9DFF705873D9D1FD5FC650D93FA3AAA50C7786FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ Gumroad, Daniel Thiger | Tree Bark Creation (2019) PCRec [RU]
 magnet:?xt=urn:btih:D10D1182EB26AB52AD7F887C5BBB09888EFEB951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:D10D1182EB26AB52AD7F887C5BBB09888EFEB951
 ```bash
 magnet:?xt=urn:btih:44286D6D228B01F9C32479BB58EB94864EC5BA33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +702,8 @@ VA - Bedroom Jams 2 (2023) [MP3|320 Kbps] <Pop, R&B, Other>
 ```bash
 magnet:?xt=urn:btih:8AC6E49750D327630D4A3034CA9F1FFAFFE3F11C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

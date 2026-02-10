@@ -22,6 +22,8 @@ Ashley McBryde - Girl Going Nowhere (2018) [FLAC|Lossless|tracks + .cue] <Folk, 
 magnet:?xt=urn:btih:52655093183FD8E5219EBDA3021F7B53BDBD9984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ LeAnn Rimes - Unchained Melody: The Early Years (1997) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:E2D0C8B896F71EF3B6BD1F0178A8917D488EF2A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ George Skaroulis - Reunion (2007) [FLAC|Lossless]<New Age, Piano solo>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ Catherine Britt - Catherine Britt & The Cold, Cold Hearts (2018) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:FEBD3B018A92761C354F1CC52C6E9BD87EA6EC8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +148,8 @@ Vitaliy Baldych - The Seagull (2011) [FLAC|Lossless]<Relax,New Age>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +184,8 @@ Big City Indians - Uncle Peyote (1999) [MP3|128 кб/с]<Native American, New Ag
 magnet:?xt=urn:btih:7A3CF860F936287B384D7B4802EA7D31263F447F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +213,8 @@ L'avventura
 magnet:?xt=urn:btih:B1584CEB4EE6BDF9BD710ED785758A38C098AEF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +238,8 @@ VA - Record Chill-Out Part 1-6 (2007-2010) [MP3|320 kbps]<Chill-Out>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +268,8 @@ Amy Janelle - Shining True (2010) [FLAC|Lossless|tracks] <New Age, Piano>
 magnet:?xt=urn:btih:2FFA5A0D1CA19955953C9AD59DF41788D5C5E04D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +296,8 @@ Audiomachine - Worlds of Wonder (2017) [MP3|320 Kbps CBR] <Soundtrack, Instrumen
 ```bash
 magnet:?xt=urn:btih:A4D932D64AAE948747AB8DC116195BCB1B04603A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +326,8 @@ Terry Oldfield and Carlos Garo - Sky Dancer (2017) [MP3|320 Kbps] <New Age, Inst
 magnet:?xt=urn:btih:237FB0B37098948431ABF6F2644C864FBA5355B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +354,8 @@ Paul Leonard-Morgan - Warhammer 40,000: Dawn of War III (Official Game Soundtrac
 ```bash
 magnet:?xt=urn:btih:5D9C34918842D297E8EA908409B64CEEF2AFF13F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +384,8 @@ Really Slow Motion - Elevation (2014) [MP3|320 Kbps CBR] <Soundtrack, Instrument
 magnet:?xt=urn:btih:0B691AC56405779263EBBEFE1397E07978639C05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +412,8 @@ Really Slow Motion - Charged (2015) [MP3|320 Kbps CBR] <Soundtrack, Instrumental
 ```bash
 magnet:?xt=urn:btih:2236BFD6CA295AAD6FEF6BDEAA44C3B09497A3A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +442,8 @@ Andrew Lockington, VA - The Space Between Us / Космос между нами 
 magnet:?xt=urn:btih:37DA65BBB141B6C45A710AA468E5CDEA0A84B8B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +470,8 @@ Really Slow Motion - Of Mist and Magic (2014) [MP3|320 Kbps CBR] <Soundtrack, In
 ```bash
 magnet:?xt=urn:btih:6F595BD6476110731F21AFA499554E7DD5514A6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +500,8 @@ Andrew Lockington, VA - The Space Between Us / Космос между нами 
 magnet:?xt=urn:btih:B546D1534C8424AB2286B48A577E96036D950C5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +528,8 @@ Brian BecVar - Once In A Life (1994) [FLAC|Lossless|image + .cue] <New Age, Neo-
 ```bash
 magnet:?xt=urn:btih:5A134EE39D3514E388E87515306E9EFA3E179BEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +558,8 @@ OST Лара Крофт: Расхитительница гробниц 2 - Ко�
 magnet:?xt=urn:btih:C79523775D98041DAF050792D56C4EB18C6A353A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +586,8 @@ VA - Beautiful Moments (1991, 1994) 2 CD [APE|Lossless|image + .cue] <Instrument
 ```bash
 magnet:?xt=urn:btih:063693CCBA35BCAB211422F4B5892F946ADB6900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +616,8 @@ Inkuyo - Window to the Andes (1998) [FLAC|Lossless|image + .cue] <New Age, Folk,
 magnet:?xt=urn:btih:7CB0741F796A07CE54BD08F589B7F7044BE998BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +644,8 @@ Power Glove - Trials Of The Blood Dragon (Original Game Soundtrack) (2016) [FLAC
 ```bash
 magnet:?xt=urn:btih:E5778E878E013AE1F84588F108EF4562F755BDEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +674,8 @@ Jupiter Panic - Distant Tomorrow (2016) [MP3|320 кб/с] <Electronic, New Age>
 magnet:?xt=urn:btih:19563F5FF36B82E55A07B5C646BEE6619C3E2906
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +702,8 @@ Power Glove - Trials Of The Blood Dragon (Original Game Soundtrack) (2016) [MP3|
 ```bash
 magnet:?xt=urn:btih:4154764632BE58EDD4AF5ABACB35180B625C5C00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -684,6 +732,8 @@ George Toward - Red Fantasies - Rhythms of Pure Romance (2018) [MP3|256 Kbps] <I
 magnet:?xt=urn:btih:2FD9C9D76DC0573E0F90404A1FE25CCFF4F2C1DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -710,6 +760,8 @@ David Osborne - Best of David Osborne: Solo Piano Performances (2018) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:D560EF3C1693AA3DB845E156C4E04E8F8D0CF9D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

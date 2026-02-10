@@ -28,6 +28,8 @@ Pentagram - MMXII (2012) [MP3|320 кб/с]<Progressive Power Metal>
 magnet:?xt=urn:btih:85FDEE1DA1E8C52CE20D0FD52A0112D350F0AEB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ magnet:?xt=urn:btih:85FDEE1DA1E8C52CE20D0FD52A0112D350F0AEB4
 ```bash
 magnet:?xt=urn:btih:A1130AD04C8FEF461133B0776BB41344B545CE10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -89,6 +93,8 @@ The Foreshadowing - Second World (2012) [MP3|320 кб/с]<Doom Metal, Gothic Met
 magnet:?xt=urn:btih:E92DDE2C29AF24D71CCD4393F4D83F385BADE28D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -112,6 +118,8 @@ magnet:?xt=urn:btih:E92DDE2C29AF24D71CCD4393F4D83F385BADE28D
 ```bash
 magnet:?xt=urn:btih:8A5CD08A3D4B24DF3C538F5B69279426296B39F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -137,6 +145,8 @@ magnet:?xt=urn:btih:8A5CD08A3D4B24DF3C538F5B69279426296B39F8
 magnet:?xt=urn:btih:F4EF000181267F432A868A1EC76A9216D499BB7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -160,6 +170,8 @@ magnet:?xt=urn:btih:F4EF000181267F432A868A1EC76A9216D499BB7F
 ```bash
 magnet:?xt=urn:btih:7A418000FD874C17139C9B80712F700274DE8DB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ magnet:?xt=urn:btih:7A418000FD874C17139C9B80712F700274DE8DB6
 magnet:?xt=urn:btih:F54C560F212284BFD6413F217234CE0C63F19815
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ magnet:?xt=urn:btih:F54C560F212284BFD6413F217234CE0C63F19815
 ```bash
 magnet:?xt=urn:btih:B8F5F918C9AB623C50CCD6DB0443CD3D72BA6879
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ magnet:?xt=urn:btih:B8F5F918C9AB623C50CCD6DB0443CD3D72BA6879
 magnet:?xt=urn:btih:46060F1300AE2CB9A8B7E705BE701ED3DADDEE39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:46060F1300AE2CB9A8B7E705BE701ED3DADDEE39
 ```bash
 magnet:?xt=urn:btih:FDADEF7D4416A0D67A3BBCC0F8CDA120E520AA6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ HyperSnap - инструмент для захвата изображения, �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ CDBurnerXP - программа для записи CD и DVD, включая Bl
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +362,8 @@ Minuala - Крики чёрных птиц (2010)[Mp3|320 kbps]<dark hardcore, n
 magnet:?xt=urn:btih:BBDD6CE7A2C1F6B243FCB2360EF889C1C5B8D2EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ magnet:?xt=urn:btih:BBDD6CE7A2C1F6B243FCB2360EF889C1C5B8D2EB
 ```bash
 magnet:?xt=urn:btih:F383665E4189E016F3A496061BAB0A92D566E7FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +431,8 @@ magnet:?xt=urn:btih:F383665E4189E016F3A496061BAB0A92D566E7FC
 magnet:?xt=urn:btih:71B2F69F13922F4660D8E1CF9F8588675D97FAF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:71B2F69F13922F4660D8E1CF9F8588675D97FAF6
 ```bash
 magnet:?xt=urn:btih:4AC03D13B2A6EB86FEB068A7B368FA08754E5C61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ PdfFactory Pro - простая и удобная в использовании 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ PdfFactory Pro - простая и удобная в использовании 
 ```bash
 magnet:?xt=urn:btih:00C9D7BDBE14861D41D71FACE36471640A49BA70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ WANT/ed - Sounds EP (2012) [MP3|320 кб/с]<Synthpop>
 ```bash
 magnet:?xt=urn:btih:48FB1A13C0FE973CE8080F4092677E1A42AB6CD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +577,8 @@ CD1
 magnet:?xt=urn:btih:1812A039348292C7E28783D0AE72D26C8DC9BA05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +602,8 @@ Car World – это интернет-журнал про автомобили. 
 ```bash
 magnet:?xt=urn:btih:3757E42E303F1C9CFEB34B0CBAEBA00789460EA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +632,8 @@ Neo 7 - Elementarium (EP) (2010) [MP3|320 кб/с]<Psychedelic / Progressive, Fu
 magnet:?xt=urn:btih:C8F15724F9268419D00CF7BB564BD30E0C694FB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ magnet:?xt=urn:btih:C8F15724F9268419D00CF7BB564BD30E0C694FB5
 ```bash
 magnet:?xt=urn:btih:ED9815A27E49783965E435FC117CE90B98FE54CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ magnet:?xt=urn:btih:ED9815A27E49783965E435FC117CE90B98FE54CA
 magnet:?xt=urn:btih:9480FFC1515BFED233202F888AB23264FD17D578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +713,8 @@ magnet:?xt=urn:btih:9480FFC1515BFED233202F888AB23264FD17D578
 ```bash
 magnet:?xt=urn:btih:08BF207EA381A4F582BF9A8CBA4A47974640F683
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -698,6 +748,8 @@ magnet:?xt=urn:btih:08BF207EA381A4F582BF9A8CBA4A47974640F683
 ```bash
 magnet:?xt=urn:btih:3069B2567D4E21AFDD4B374BEF15F8A01E5B961D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

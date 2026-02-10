@@ -20,6 +20,8 @@ Laracon Online | Laracon Online 2020. The official Laravel online conference (20
 magnet:?xt=urn:btih:EFD625FB5267C5A3DDBA9AAC5FC0F353356886E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:EFD625FB5267C5A3DDBA9AAC5FC0F353356886E3
 ```bash
 magnet:?xt=urn:btih:AB83252E00847D58D1A7F3B8A8ED5E3156FF5CB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Udemy, in28Minutes Official, Ranga Karanam | Java Programming for Complete Begin
 magnet:?xt=urn:btih:3A8FA389EFA543CEB5EA24178984A297104962A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:3A8FA389EFA543CEB5EA24178984A297104962A0
 ```bash
 magnet:?xt=urn:btih:7D87ABF8F68C960BC877C92C1FBE664C564B9D65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:7D87ABF8F68C960BC877C92C1FBE664C564B9D65
 magnet:?xt=urn:btih:129ACDB668F1DCBA3CDA52219E9C1F26A7C97C79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:129ACDB668F1DCBA3CDA52219E9C1F26A7C97C79
 ```bash
 magnet:?xt=urn:btih:465030E77F02B5144A1CAC83035E915ADDD98323
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ StudyFoto | Красивый портрет «от и до»: съемка и о
 magnet:?xt=urn:btih:6CF83703D2B78136970BDF6412A28BC52B49E3C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ AutoIt Guide RUS | Основы программирования на AutoIT (20
 magnet:?xt=urn:btih:6FC2AE4D12F22501A3E19D7512510D300D44FD87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Jan Urschel | Создание скетча 3D окружения в Blender 2.9
 ```bash
 magnet:?xt=urn:btih:3E4A8000270B20A41D727C4AB31697EF9FA2DD4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Jan Urschel | Дизайн 3D окружения для производства
 magnet:?xt=urn:btih:A5363139B1CED550A859F02BB7B95F6CEB596C3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Jan Urschel | Кинематографичный сэт-дизайн в Blender 
 ```bash
 magnet:?xt=urn:btih:5486EEC359558F66D5D83FB5F0A181E7FD8D12A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Jan Urschel | Реалистичный сэт-дизайн в Blender 2.82 / Rea
 magnet:?xt=urn:btih:350B6679DAA4423AE5523EB8EBBE7B2FB6601252
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Elementza, Mario Brajdich | Mastering 3D Modeling in Maya (2019) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:58D6FECDD742A7BF7D426D81617916F95FF9859C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:58D6FECDD742A7BF7D426D81617916F95FF9859C
 magnet:?xt=urn:btih:D14A6B23A2F70DE6F7BC41AF08BF3228749A4300
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:D14A6B23A2F70DE6F7BC41AF08BF3228749A4300
 ```bash
 magnet:?xt=urn:btih:27EF10AA497287B0993C013C02F7AA9EC4FC22A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ Expression Trip | Хардкорный курс по анимации с пом�
 magnet:?xt=urn:btih:D63ECEA03C4FDF6017E9824F035D6B63455B040E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:D63ECEA03C4FDF6017E9824F035D6B63455B040E
 ```bash
 magnet:?xt=urn:btih:630A03702F20FB036E2DB0F4C8ED9BB07D1FE3B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:630A03702F20FB036E2DB0F4C8ED9BB07D1FE3B6
 magnet:?xt=urn:btih:736096A49D12D5537038BA90A10878BEFB0EFEEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:736096A49D12D5537038BA90A10878BEFB0EFEEF
 ```bash
 magnet:?xt=urn:btih:55948356AE5A198138AD19BEC189B29E9630EC87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:55948356AE5A198138AD19BEC189B29E9630EC87
 magnet:?xt=urn:btih:488BD6C6E222C744E0E84B675FBC7A328E69F857
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:488BD6C6E222C744E0E84B675FBC7A328E69F857
 magnet:?xt=urn:btih:6003333E34ECC3601229F640F635B8A337209CB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ Udemy | Создание ретро футуристичного автомоб�
 magnet:?xt=urn:btih:E28B68EA09342883E9A7767B79907BDBE0A5E385
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:E28B68EA09342883E9A7767B79907BDBE0A5E385
 ```bash
 magnet:?xt=urn:btih:565149408BE95B3424FB4D880A21BC6F9345C303
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:565149408BE95B3424FB4D880A21BC6F9345C303
 magnet:?xt=urn:btih:746821DE47CABD4F991876F62251FD63FE0FCEEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:746821DE47CABD4F991876F62251FD63FE0FCEEB
 ```bash
 magnet:?xt=urn:btih:83293B7BDDC245094A4449FAEBE0555EA23B6EB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +689,8 @@ Broadcast Design School | Remastered Records (2015-2020) PCRec
 ```bash
 magnet:?xt=urn:btih:1586B3C899B4F3DA368F8DBCA9A0FE83D45A0785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

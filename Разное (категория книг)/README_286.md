@@ -1,3 +1,30 @@
+###  Публикация: 948443   (410807) от 20.10.2015
+
+Вадим Пономаренко | Строим дом из кирпича и блоков (2015) [PDF]
+
+>>Разное (категория книг)
+>>Строительство и ремонт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_410807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данное издание раскрывает вопросы технологии строительства дома из кирпича и бетонных блоков, в том числе затрагиваются разработка проекта, закладка фундамента, возведение стен, кровельные работы, установка дверей и окон, прокладка инженерных коммуникаций и внутренняя отделка помещений.
+С помощью этой книги вы можете спроектировать и возвести дом в соответствии с (   Читать дальше...   )Жанр: Строительство, ремонтФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D67C50E2C8350A684A2D9933A598C66C48FF47F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948681   (410811) от 20.10.2015
 
 Дмитрий Коваль | Целительные точки нашего тела. Практический атлас (2012) [FB2]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:FE2188458822B10B02AA6A841B22FD9CDCC2C471
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:FE2188458822B10B02AA6A841B22FD9CDCC2C471
 ```bash
 magnet:?xt=urn:btih:1E50EFD68A02420C87E586EA163393079F3A6D0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:1E50EFD68A02420C87E586EA163393079F3A6D0E
 magnet:?xt=urn:btih:C52E22D8D08B7572E2004FB4A7606A353D00CAB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:C52E22D8D08B7572E2004FB4A7606A353D00CAB8
 ```bash
 magnet:?xt=urn:btih:8C13333558DE62F5E68A2741414A0AEFDD6B29ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +154,8 @@ magnet:?xt=urn:btih:8C13333558DE62F5E68A2741414A0AEFDD6B29ED
 magnet:?xt=urn:btih:1807EA6196B8201948E852ED0C9D2FF468196EF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:1807EA6196B8201948E852ED0C9D2FF468196EF1
 ```bash
 magnet:?xt=urn:btih:1F18CC6BC048A24FAA3D268CE9A787C51CF95555
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +207,8 @@ magnet:?xt=urn:btih:1F18CC6BC048A24FAA3D268CE9A787C51CF95555
 magnet:?xt=urn:btih:4A531AC848B72AA0B1AE9980377CC8D64AB6CF26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:4A531AC848B72AA0B1AE9980377CC8D64AB6CF26
 ```bash
 magnet:?xt=urn:btih:3FD9E475A8124C8177D81E59D26A8F0C82B05F7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +259,8 @@ magnet:?xt=urn:btih:3FD9E475A8124C8177D81E59D26A8F0C82B05F7B
 magnet:?xt=urn:btih:CCF0FBF05B689856D91F7D536842A1BE77A73A13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +284,8 @@ magnet:?xt=urn:btih:CCF0FBF05B689856D91F7D536842A1BE77A73A13
 ```bash
 magnet:?xt=urn:btih:00B767229A90F2FBC975B71407CD64C7245FF9CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +311,8 @@ magnet:?xt=urn:btih:00B767229A90F2FBC975B71407CD64C7245FF9CE
 magnet:?xt=urn:btih:021C199A79DAFCFF2D91F5BD7C11936BBC4185E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +336,8 @@ magnet:?xt=urn:btih:021C199A79DAFCFF2D91F5BD7C11936BBC4185E8
 ```bash
 magnet:?xt=urn:btih:FDC53203FC16602F01E1AB132B746DD7B745E58F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:FDC53203FC16602F01E1AB132B746DD7B745E58F
 magnet:?xt=urn:btih:A16639C9AAAD43296D4D1D1A1F48FD422F8CBE17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +389,8 @@ magnet:?xt=urn:btih:A16639C9AAAD43296D4D1D1A1F48FD422F8CBE17
 magnet:?xt=urn:btih:864F3831F0C501EE1BB6BECF0C119728EB534523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +414,8 @@ magnet:?xt=urn:btih:864F3831F0C501EE1BB6BECF0C119728EB534523
 ```bash
 magnet:?xt=urn:btih:CFC00A6A2B9BDCD386CFE4049CDCBE419DFD4E91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +442,8 @@ magnet:?xt=urn:btih:CFC00A6A2B9BDCD386CFE4049CDCBE419DFD4E91
 magnet:?xt=urn:btih:686C72FF02953F3036275906B945C4D185291624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +469,8 @@ magnet:?xt=urn:btih:686C72FF02953F3036275906B945C4D185291624
 magnet:?xt=urn:btih:2FCE659308107CFBE0176E3308D8AB7526179126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +494,8 @@ magnet:?xt=urn:btih:2FCE659308107CFBE0176E3308D8AB7526179126
 ```bash
 magnet:?xt=urn:btih:C57BDD1B59352E4EBD47206D06838325826E24A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +524,8 @@ magnet:?xt=urn:btih:C57BDD1B59352E4EBD47206D06838325826E24A2
 magnet:?xt=urn:btih:D5F237F214753AA7C03EC675050BE0CFA7C061AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +552,8 @@ magnet:?xt=urn:btih:D5F237F214753AA7C03EC675050BE0CFA7C061AD
 magnet:?xt=urn:btih:721EB0B712B95E4FFB17B70C85C4FB3BF58FDC8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +578,8 @@ DevOps – это не просто набор (   Читать дальше...
 ```bash
 magnet:?xt=urn:btih:C2CEC932F30D2D9E4A7EA9A1958DFC092B6DB969
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +607,8 @@ magnet:?xt=urn:btih:C2CEC932F30D2D9E4A7EA9A1958DFC092B6DB969
 magnet:?xt=urn:btih:7F017E99192ED702101593DCF2E8688F36CE2E9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +634,8 @@ magnet:?xt=urn:btih:7F017E99192ED702101593DCF2E8688F36CE2E9A
 magnet:?xt=urn:btih:DADFDBEE902474CD09A87AB66F2B864EBD4CAA48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +659,8 @@ magnet:?xt=urn:btih:DADFDBEE902474CD09A87AB66F2B864EBD4CAA48
 ```bash
 magnet:?xt=urn:btih:C717A565C007A63A5A017A84227DC380049CA514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,29 +686,7 @@ magnet:?xt=urn:btih:C717A565C007A63A5A017A84227DC380049CA514
 magnet:?xt=urn:btih:6549CD5692ACEEFB2C3ED8E7A0A3F0C52CF47EFC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167810   (412470) от 22.09.2017
-
-Кадирбай Рятов | Секреты развития: Как, чередуя инновации и системные изменения, развивать лидерство и управление (2016) [FB2, EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_412470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Успех предпринимательской деятельности в современных условиях все возрастающей конкуренции во многом зависит от динамичного и планомерного развития организации. Новая книга К. Рятова, автора монографии «Функциональный менеджмент: Как из хаоса создать порядок, преодолеть неопределенность и добиться успеха» (М.: Альпина Паблишер, 2014), предлагает научно обоснованный (   Читать дальше...   )Жанр: О бизнесе популярно, Управление, Подбор персоналаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D08CF1B34B416CE34C4156023AC419B1CC6FC893
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

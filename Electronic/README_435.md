@@ -22,6 +22,8 @@ VA - Sirup House Anthems Miami (2017) [MP3|320 Kbps] <Funky, Club House>
 magnet:?xt=urn:btih:5D8E44D5128AF51F8036D7058D13C60BFEB16CE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ The New Deal - Mercury Switch (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
 ```bash
 magnet:?xt=urn:btih:D4D16A552B571BBE9C4435E71ED8FD0AC36D3283
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Driving EDM (2016) [MP3|320 кб/с] <House, Progressive House>
 magnet:?xt=urn:btih:B9620AB7B33A839F407B579F3323FD9E7F736B06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Trance Spring Essentials (2016) [MP3|320 кб/с] <Trance, Progressive Hous
 ```bash
 magnet:?xt=urn:btih:153654D602C4FDA95D043FB3995B11A9C438C3EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Future House Elements Vol.1 (2016) [MP3|320 кб/с] <House>
 magnet:?xt=urn:btih:EF055F6A0D6C4D54109FA141C7D8FF2596975F4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Progressive Nation Vol.31 (2016) [MP3|320 кб/с] <House>
 ```bash
 magnet:?xt=urn:btih:46248163ED85F5065631139D6898EC599B7C0B58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Miami House Vol.4 (2016) [MP3|320 кб/с] <House, Progressive House, Elect
 magnet:?xt=urn:btih:5F54C240620F16F8BBCFB18B98A88BCF93F46F8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Black Coffee Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:5EC9CAC30B4B0BED186346B2AA4F34E8C45C9CDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Lilac Aromas Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:F10B75721100A3ED8F8D1895DCE8188E54D70A91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Ibiza Opening Party 2020 (2020) [MP3|320 Kbps] <House, Club House, Electron
 ```bash
 magnet:?xt=urn:btih:513E3E5C610FD1760ECC3186EB9C50639712B1A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ The London Elektricity Big Band - Live In The Park (2017) [MP3|320 Kbps] <Drum &
 magnet:?xt=urn:btih:3C35F50848F5E98576A394F1E0B6B2AB168E5E42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Tiesto - Together Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 ```bash
 magnet:?xt=urn:btih:5363F9D4AC462186AE0197508CB46A92135037CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ U96 - The Dark Matter EP (2015) [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno>
 magnet:?xt=urn:btih:07A3781332DA0FBD204CD791C1C8271B17181F88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ Kraftwerk - Greatest Hits (2CD) (2008) [FLAC|Lossless]<Synthpop, Electronic>
 magnet:?xt=urn:btih:41B706C81800E0AD3EF8A5D44EB945047FF68C95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ Michael Kohlbecker (Funf D, Eternal Basement, Magnat, Masun, Paragon, S.M.I².L.
 ```bash
 magnet:?xt=urn:btih:4D1BB0AFA0C40474C3F8A558209B972B036F3EBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ Operentzia | Óperentzia - Collection 5 Releases (2011-2020) Zengőkert Records 
 magnet:?xt=urn:btih:124CE306E5D319A0EC7F8C4DB38552678A156657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ VA - I Love the Rain Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:C5E7495C0E21E057D3E4E93E2804220581ADC67E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ De/Vision - 13 (2016) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
 magnet:?xt=urn:btih:DF19EA474733FA77C3740EBCFB24C0F07ECEB1DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ Brooklyn Bounce - Best Of The 90s (2017) [MP3|320 Kbps] <House, Eurohouse, Hard 
 ```bash
 magnet:?xt=urn:btih:50B63EF4A181BC013958D9559A2945C82A56DB6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +571,8 @@ MLO - Oumuamua (2021) Compilation [FLAC|Lossless|WEB-DL|tracks] <Ambient>
 magnet:?xt=urn:btih:6774869FCDC377DCC3B7EA885A8471CDF1D275D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +599,8 @@ VA - Melodic Trance Vol.2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:6ADBC2AC7524A0B37A957D9385FE468D42CC965D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +629,8 @@ VA - Zen Tunes - Ibiza Sessions Vol 3 (2017) [MP3|320 Kbps] <Downtempo, Chillout
 magnet:?xt=urn:btih:D3720D5E7549EE60F328194DAF32B0D773E48AD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ VA - Black Hole House Music 03-17 (2017) [MP3|320 Kbps] <House, Progressive Hous
 ```bash
 magnet:?xt=urn:btih:1A02F9FAA4FC481EAED4F3DCC83186CD786AC6EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +687,8 @@ Depeche Mode - Black Celebration (1986) remastered 2007, collectors edition, CD+
 magnet:?xt=urn:btih:E27E74FE7D2621777B16BADA74A31CB76936BA23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +716,8 @@ U96 - Das Boot (1992) [FLAC|Lossless|image + .cue] <Techno>
 magnet:?xt=urn:btih:28B7A7B560E523F8F6DC3AF6F09302D81D2ADAA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ Azul y Negro, название для дуэта придумано продюс
 ```bash
 magnet:?xt=urn:btih:0CF3D71C8744A9379211D704DEEA6AFBD9F2B716
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

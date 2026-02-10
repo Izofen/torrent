@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:97778B6D34E085B2E58B055C956AE96DF087FEA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Onii-chan wa Oshimai! | Onimai: I'm Now Your Sister! | Я стал сестро�
 ```bash
 magnet:?xt=urn:btih:39A60CD278F53DE0D06E4EFA4121EB0ECA6869C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:39A60CD278F53DE0D06E4EFA4121EB0ECA6869C8
 magnet:?xt=urn:btih:5347309104DEBB119362610E6F26D66E77619C96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:5347309104DEBB119362610E6F26D66E77619C96
 ```bash
 magnet:?xt=urn:btih:5B2D86F826669629658529428FCEA7EEEEB5CA36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:5B2D86F826669629658529428FCEA7EEEEB5CA36
 magnet:?xt=urn:btih:9A1D5AB663FC13882A9E2CE6296B0D74229DA8EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:9A1D5AB663FC13882A9E2CE6296B0D74229DA8EC
 magnet:?xt=urn:btih:61AD38BE694A423F065F6E2851B2975F3654A0A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Gekijouban Bem: Become Human | Bem Movie: Become Human | Бэм: Стать че
 ```bash
 magnet:?xt=urn:btih:D47705DDD2213DC9332F223BF60517FA800EB794
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:D47705DDD2213DC9332F223BF60517FA800EB794
 magnet:?xt=urn:btih:A5B746B9C5ED941F15CD5956077B23E3F17ACFFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Dorohedoro | Дорохедоро [2020, TV, 12 из 12 + Special] BDRip 720p ru
 ```bash
 magnet:?xt=urn:btih:D143E3B62E90648B59C72EC031151FB139BAA81C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:D143E3B62E90648B59C72EC031151FB139BAA81C
 magnet:?xt=urn:btih:37966F1A5D3CB971D92E4122393B30E32243B72A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Majo no Takkyuubin | Kiki's Delivery Service | Ведьмина служба д�
 magnet:?xt=urn:btih:FC57B9846241069787B2C2E9F55AF733FDDFDF28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:FC57B9846241069787B2C2E9F55AF733FDDFDF28
 ```bash
 magnet:?xt=urn:btih:4B6A01C5F4F75F2E9CD2C614231716AE0E5EF774
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Nihon Chinbotsu 2020 | Japan Sinks 2020 | Гибель Японии 2020 [2020, 
 magnet:?xt=urn:btih:CDF4A82F62B23D88D8F7EE990CB1A10968A12D71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Ijiranaide, Nagatoro-san 2nd Attack | Don't Toy with Me, Miss Nagatoro 2nd Attac
 ```bash
 magnet:?xt=urn:btih:ED5DEBA0603562DC43A95BE4467CEA80E0AA8927
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:ED5DEBA0603562DC43A95BE4467CEA80E0AA8927
 ```bash
 magnet:?xt=urn:btih:E6325BE79630710BFB93112804FA4FCF1BAC4D63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ Psycho-Pass: Sinners of the System | Психопаспорт: Грешники 
 magnet:?xt=urn:btih:0F196121398DC4DC1ED98943DC82D6C6B0768CBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Aggressive Retsuko | Агрессивная Рэцуко (ONA-3) [2020, Web, 10 
 magnet:?xt=urn:btih:1A241B28714FBF0E5C9CCEB295B6305849EA8494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ Aggressive Retsuko | Агрессивная Рэцуко (ONA-1) [2018, Web, 10 
 ```bash
 magnet:?xt=urn:btih:3A82AADC706AE58C34FD536D6F682F1F4488A633
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ Aggressive Retsuko | Агрессивная Рэцуко (ONA-2) [2019, Web, 10 
 magnet:?xt=urn:btih:5F5B2A433DE3AD0480E06756A4A9BD2CFB453BEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ Cleopatra | Cleopatra: Queen of Sex | Клеопатра, королева се�
 magnet:?xt=urn:btih:F05BCADE0C0CAD5F7EE6CEFE0BE999AAFD926720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ Senya Ichiya Monogatari | A Thousand and One Nights | Сказки 1001 ночи
 ```bash
 magnet:?xt=urn:btih:AB12CA8E143EDC5F5AAC897429458FC3787B7EA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:AB12CA8E143EDC5F5AAC897429458FC3787B7EA4
 magnet:?xt=urn:btih:2C3E72CBF0E226A2D731C932E869085041AB35E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ Princess Connect! Re:Dive Season 2 | Связь принцесс! Новое п�
 ```bash
 magnet:?xt=urn:btih:772DA06D2A14569017430D919514201D7E9FFDAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ Kaze no tani no Naushika | Nausicaa of the Valley of the Wind | Навсикая
 magnet:?xt=urn:btih:7AC9A66E71D90641B7CB8724FA58528C7036BC4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:7AC9A66E71D90641B7CB8724FA58528C7036BC4D
 ```bash
 magnet:?xt=urn:btih:F52186D22C8B2397A6DBB0743063FCAFC028637E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:F52186D22C8B2397A6DBB0743063FCAFC028637E
 ```bash
 magnet:?xt=urn:btih:6FE4367220B51887BF970A5028A41310023F75CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

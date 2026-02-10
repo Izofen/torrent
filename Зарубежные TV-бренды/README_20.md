@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3305241B327F609867DF0CA4F169B25282D1F072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:3305241B327F609867DF0CA4F169B25282D1F072
 ```bash
 magnet:?xt=urn:btih:AF60045A54B654C7A94AB0C2E7074AC49001C403
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Discovery: Как устроена Вселенная / How the Universe Works (
 magnet:?xt=urn:btih:B0D40235320385BE18CF91A86DF210008FA2DD43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG. НЛО: Расследование неизвестного / UFOs: Investig
 ```bash
 magnet:?xt=urn:btih:446D92372205D65429B3CBF37EE47D40A2A7EB75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:446D92372205D65429B3CBF37EE47D40A2A7EB75
 magnet:?xt=urn:btih:6894648238D7AA6CE7C350F2877D2E36CAA73BE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ History Channel: Древние пришельцы / Ancient Aliens (2022) WEB-D
 ```bash
 magnet:?xt=urn:btih:63A104213DA3075A9F8C1C3E0AD9E5A8358D5F9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ History Channel: Тетрис: Из России с любовью / TETRIS. Fro
 magnet:?xt=urn:btih:9AF254CD4481E185F512FAE437CA7C199266443E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Discovery. Виагра: маленькая голубая таблетка, и�
 ```bash
 magnet:?xt=urn:btih:A83FA99F9A1ECC514ACEF3EBC4A3C912D401E9FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ NG. Реальность или фантастика? Бермудский тр�
 magnet:?xt=urn:btih:527E74E24B61B70F1892B42DB9710B59005A158F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:527E74E24B61B70F1892B42DB9710B59005A158F
 ```bash
 magnet:?xt=urn:btih:FD8A3EA56AE050D04C7DDA6051FA6C49343E47C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ NG: Чудо-юдо динозавры / Bizarre Dinos (2009) WEB-DL [H.264/1080
 magnet:?xt=urn:btih:A7B0865805F5F8C42DA5CCA9FB6BF15FE59B5987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:A7B0865805F5F8C42DA5CCA9FB6BF15FE59B5987
 ```bash
 magnet:?xt=urn:btih:3A6092697E5BE8874F78AED81DD1A69194FA38EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:3A6092697E5BE8874F78AED81DD1A69194FA38EB
 magnet:?xt=urn:btih:181C3E47C83B30F7A66D117A33F78EF6FFE74831
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:181C3E47C83B30F7A66D117A33F78EF6FFE74831
 magnet:?xt=urn:btih:E71E5D68D78D6E364643392D45AD21A5791C2639
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ NG: Безграничный / Без границ: с Крисом Хемсво
 ```bash
 magnet:?xt=urn:btih:F634DC2DEA95DB93C14203242F66E4A052ED7009
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:F634DC2DEA95DB93C14203242F66E4A052ED7009
 magnet:?xt=urn:btih:59865B492281142838A1DA3B41EAE74151BD70D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ BBC: Дикая Патагония / Wild Patagonia (2015) BDRip [H.264/720p] (�
 ```bash
 magnet:?xt=urn:btih:4117A2B5E8DAE8078FB69CFD64E33D218BC033BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:4117A2B5E8DAE8078FB69CFD64E33D218BC033BE
 magnet:?xt=urn:btih:5AA3FAD2F369D036172D5B5620D0ABF31BA2F774
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:5AA3FAD2F369D036172D5B5620D0ABF31BA2F774
 ```bash
 magnet:?xt=urn:btih:4E72A2194AFBAFAF38EE2B226AE1E7C5D635CAF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:4E72A2194AFBAFAF38EE2B226AE1E7C5D635CAF3
 magnet:?xt=urn:btih:DD654D531921A4AF24D2D41E3FD43D5FB3E4BC66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ NG: Человек-волк / The Wolfman (2006) HDTVRip [720p]
 ```bash
 magnet:?xt=urn:btih:9F4AECAF7D401DD8B83893AAAC3CDA2F49020BF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:9F4AECAF7D401DD8B83893AAAC3CDA2F49020BF9
 magnet:?xt=urn:btih:F7D38F8B3F92EDD26FFD8F06EF40D2EB48AD259B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:F7D38F8B3F92EDD26FFD8F06EF40D2EB48AD259B
 ```bash
 magnet:?xt=urn:btih:89E37708371888910852786654EEBD22D54A691E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Discovery. Отравление в Солсбери / Secrets of the Salisbury P
 magnet:?xt=urn:btih:02010BA89EA4B710F870D858DAD1189BB43DBFBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:02010BA89EA4B710F870D858DAD1189BB43DBFBF
 magnet:?xt=urn:btih:F5B61326E2BF4E5F73FF868B222DB3AA93E891CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:F5B61326E2BF4E5F73FF868B222DB3AA93E891CE
 ```bash
 magnet:?xt=urn:btih:6A2FBCCCBFAD2FFC294FF991F56D50B388B280CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

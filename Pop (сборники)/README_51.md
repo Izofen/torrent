@@ -1,3 +1,32 @@
+###  Публикация: 1055811   (485783) от 23.09.2016
+
+DJ BOBO - Mystorial (Deluxe Edition) (2016) [MP3|320 Kbps] <Pop, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mystorial 3:18
+02. Believe 2:56
+03. Hypnotized (Instrumental) 4:11
+04. Now Or Never 3:21(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 01:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93458B4F80E19B9D9D18FFCDE0DA88448E04FADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938011   (485813) от 16.09.2015
 
 VA - Топовая 100-ка Mix Осенний (2015) [MP3|256-320 кб/с]<Pоp, Dance>
@@ -21,6 +50,8 @@ VA - Топовая 100-ка Mix Осенний (2015) [MP3|256-320 кб/с]<Pо
 ```bash
 magnet:?xt=urn:btih:0AA8367CE8356C63D601A4EE49EF6083996908D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +79,8 @@ Dana Winner - Compilation (2022) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:FB8B45EB94EC47A001BE7B3BAE67A3A3B4E56736
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +115,8 @@ VA - Europa Plus 100 50/50 (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:00F0C20AF675175659C8E8EAC0CA5E8513FEEC43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +143,8 @@ VA - Rare Disco Play (2020) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:0EAB4286B10097296B40791AFEAD227DC54AAA1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +179,8 @@ VA - Горячая Сотка Новинок 50/50 (2012) [MP3|256 кб/с]<Pop
 magnet:?xt=urn:btih:F7FD5A64E91D3C879347FA2F4156B0A7587C040C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +213,8 @@ VA - Радио Шторм - NeРусский Шторм - 72 (2012) [MP3|128-32
 ```bash
 magnet:?xt=urn:btih:D6317D9F7822376A4C7A93991C3A886CB3BE4309
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +249,8 @@ VA - Радио Шторм - Русский Шторм - 71 (2012) [MP3|320 кб
 magnet:?xt=urn:btih:65899F330D4BC0D62EE4CAE892B698B582687436
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +277,8 @@ VA - Pop Summer Candy (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:2748BFAC916C524F4C9CCBE1FE6D75A1C1639947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +307,8 @@ VA - Семь морей (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:679BB0546FDF13AE50EF5CB59601F48347780131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +335,8 @@ VA - New Edition Italo Disco 80s (2016) [MP3|320 Kbps] <Disco, Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:0E35CE33D15A03DA7257C6B736BF31CAA12C71E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +365,8 @@ Geri Halliwell - Compilation (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:C9DCB6F2AB542D7CAD361DA59864CFA1926D5607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +394,8 @@ Las Ketchup - Compilation (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:BC24F1B3989925F6621075CC3117D2673E193EF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +421,8 @@ VA - Big Italian Music Album { Nagy Olasz Slageralbum } (2007-2008) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:AF7DBC686064D7D3896DB0C059B2B2F6B255F368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +457,8 @@ VA - Number 1 Hits Of The 1950's (2008) [MP3|320 кб/с]<Pop, Rock, Oldes, Retr
 magnet:?xt=urn:btih:8F7B465C0C9BBA80A93B9F3DE7341203FFA156CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +485,8 @@ VA - Top Of The Pops Summer (2019) [MP3|320 Kbps] <Pop, Eurodance>
 ```bash
 magnet:?xt=urn:btih:F29C26F2336234AE8037464A4538C308F0F86B36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +515,8 @@ VA - 200 Хитов Солнечного Лета (2017) [MP3|256-320 Kbps] <Pop
 magnet:?xt=urn:btih:80A3C7C44DEC0AA5B4FE1A95289FE31F8B247587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +543,8 @@ VA - Dance Club 2018.03 (2018) [MP3|320 Kbps] <Dance>
 ```bash
 magnet:?xt=urn:btih:2773E574E016F92C797C15531693622D57F37600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +573,8 @@ magnet:?xt=urn:btih:2773E574E016F92C797C15531693622D57F37600
 magnet:?xt=urn:btih:BAB3DED570B79D540F3B83C9233463C6CA7E69F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +601,8 @@ VA - Russian Dance (2016) [MP3|256-320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:B932D39A9C93370DBC90E581A69C2DF0842CD3B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +637,8 @@ VA - Dance Вечеринка Non-Stop. Зарубежный (2012) [MP3|256 к�
 magnet:?xt=urn:btih:BB7370A8C8F39B6BF9E53ABF72477453E1A8ED11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +666,8 @@ VA - German Top 100 Single Charts 24.08.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:35B8C308D71E2369DA38C41A51FB57473337DDB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +694,8 @@ VA - Попсовая соточка MTV. Сборник 4 (2015) [MP3|256 кб/
 ```bash
 magnet:?xt=urn:btih:B25112FD1A388C7DD6E794F60FDBD26B792FF9BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +730,8 @@ VA - Супер Хитовый Заряд Новинок Русский (2012) [
 magnet:?xt=urn:btih:2D211E1F71691E78487645A8BC5A0B36A63DC853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -680,6 +755,8 @@ VA - Arabian Club Night (2010) [MP3|256 kbps]<Pop | Club | Dance>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -708,38 +785,7 @@ VA - Осенний звездный Hit-парад (2015) [MP3|256-320 кб/с]
 magnet:?xt=urn:btih:8652420ABC1995821E52542C4729716F65A2FF53
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542848   (497484) от 04.09.2012
-
-VA - Зарубежный Парад Музон В Кайф (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_497484.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fonzerelli - Moonlight party
-002. Calvin Harris feat. Ne-Yo - Let's Go (Radio Edit)
-003. Michael Calfan - Resurrection
-004. Sway feat. Kelsey McHugh - Level up (Cahill radio edit)
-005. Shakira feat. El Cata - Addicted to you
-006. Justin Timberlake - Cry Me a River
-007. Kelly Clarkson - Stronger
-008. T-Moor Rodriguez - Welcome to the night
-009. Britney Spears - Look Who's Talking Now
-010. Chicks N Fire - Price tag (Bbop & Roksteadi mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:282A25E9C1BFB59371E0FC28B4B3E11DA9719BE7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

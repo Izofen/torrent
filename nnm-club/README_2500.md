@@ -22,6 +22,8 @@ John Summit - Live @ Club Space Miami, United States (2025-05-03) [MP3|320 Kbps]
 magnet:?xt=urn:btih:3F97BC5E8EA43AE14A3A89BB8DCE24D60F8EE543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:3F97BC5E8EA43AE14A3A89BB8DCE24D60F8EE543
 ```bash
 magnet:?xt=urn:btih:BCB50913836330B20DF475A4841F53491AE4A8D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Eddie Palmieri & Cal Tjader - Bamboleate (1967) 2007, Fania Records [FLAC|Lossle
 magnet:?xt=urn:btih:0C67FEDB530F172DA825286D646F72D6E92706C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Veil Of Conspiracy - итальянская метал-группа из Рим�
 ```bash
 magnet:?xt=urn:btih:62B1D04C4450CF5E167EDCF642FEFDF4D38795B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ B1 Ayatollah Of Rock ‘N’ Rolla(   Читать дальше...   )Жанр: 
 magnet:?xt=urn:btih:9B089E19E407AC3C4D84B16E0B1D285AAEFE379D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:9B089E19E407AC3C4D84B16E0B1D285AAEFE379D
 ```bash
 magnet:?xt=urn:btih:23919670F03FA8C5EC4BF08300AE774AB6566A6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ VA - Ibiza Summer 2025 (Deep-House Smoothies from the Heart) (2025) [MP3|320 Kbp
 magnet:?xt=urn:btih:B72CE63FA49FF5F9E8E6DA46361E490036BF2836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:B72CE63FA49FF5F9E8E6DA46361E490036BF2836
 magnet:?xt=urn:btih:89394819F55B0E189FD54A32261A883E479CD375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Plugin Alliance & Brainworx - bx_glue 1.1.0 VST, VST 3, AAX (x64) RePack by TCD 
 ```bash
 magnet:?xt=urn:btih:C6EAC643B422A8FCB7A6DEE675833C2745680319
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ George Koller - Zen Tranquility (2011) CD, Album [FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:BF594A5C1502347772390D246290CF6799253649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Markus Schulz - Global DJ Broadcast: Sunrise Set (2025-06-19) [MP3|320 Kbps] <Pr
 magnet:?xt=urn:btih:95786FE7288722C9A7825891E7910EE0B257F516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ Cheat Kusushi no Slow Life: Isekai ni Tsukurou Drugstore | Drugstore in Another 
 magnet:?xt=urn:btih:FF0CD34732E45FA53764E30189A669F8AA8DEFA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:FF0CD34732E45FA53764E30189A669F8AA8DEFA8
 ```bash
 magnet:?xt=urn:btih:CE023DD055988696A8247601E75AB5569007BCEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ VibeSeeker - Electro Swing 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Elec
 magnet:?xt=urn:btih:AC0792D333AC499AF5A077F388E8D3C2C2A738A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ Holler - Next In Line (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock
 ```bash
 magnet:?xt=urn:btih:562177693562F70CA2D90ED7006D3AC8ABA83D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +439,8 @@ Yungblud - Idols (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop Rock>
 magnet:?xt=urn:btih:90938923AA0284C8043EA6692473ABD820614456
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +467,8 @@ Ds Dream Band Stillminati - Electro Swing Classics (2025) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:6341D511EC4B3D21C02BBF48BDFFF540E500D46F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +497,8 @@ VA - Winter Anthems 2016 (2016) CD, Compilation, Mixed [FLAC|Lossless|tracks + .
 magnet:?xt=urn:btih:9CDA0A4B19EB6A28705BE90EBDC5939A610D00F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +524,8 @@ DJ Tomcraft - Silence (2000) [FLAC|Lossless|tracks + .cue] <Trance>
 ```bash
 magnet:?xt=urn:btih:0132FF0229C7590EB4078813D04EA1A9AAE9E05D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +554,8 @@ Chilly Swing Band - Study Jazz with the Feel of a Spring Breeze (2025) [FLAC|Los
 magnet:?xt=urn:btih:D93713908B6F61E454E5E7AC34EB82EC38BDAE91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +579,8 @@ magnet:?xt=urn:btih:D93713908B6F61E454E5E7AC34EB82EC38BDAE91
 ```bash
 magnet:?xt=urn:btih:788122BF2DDF0F10E865D7FA68DE570039124A15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +609,8 @@ Daniel Martin & The Infamous - Gone Days of Silence (2025) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:D6616A5710A88898FAEBD6CA22AF715F21421448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +637,8 @@ Willie Nelson - Natural Renegade: Opus Collection (2007) CD, Compilation [FLAC|L
 ```bash
 magnet:?xt=urn:btih:C876B0580DEED291F3236C11847AA8D251769BCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +667,8 @@ magnet:?xt=urn:btih:C876B0580DEED291F3236C11847AA8D251769BCE
 magnet:?xt=urn:btih:B7A1F98F184F60A96A9545FA55EE59A1501EC557
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +696,8 @@ VA - Ultimate Broadway (1998) 2 x CD, Compilation [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:D8EB27B0237F95F843416A5F4819EC390476868F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +721,8 @@ magnet:?xt=urn:btih:D8EB27B0237F95F843416A5F4819EC390476868F
 ```bash
 magnet:?xt=urn:btih:07C7A64C36B453D648F63F06F17806299523268C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

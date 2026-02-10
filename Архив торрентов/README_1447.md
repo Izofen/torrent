@@ -19,6 +19,8 @@ R-Drive Image - отличный инструмент для создания ф
 magnet:?xt=urn:btih:51CC5EB703106CA899D637F938562A74C10859AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Slimjet 38.0.9.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:6E5BF22329E6014C5E80D6F1964772BC5DF6FCD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Magic Recovery Software 2023.04 Portable by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A0700CF07C09A871014D21FCAA50F4DBCA0E1770
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Flow Simulator - это инструмент трехмерного проект
 magnet:?xt=urn:btih:449C78564EDFB18F851060BCA01D1E88E0221FFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:3F7CA593972CC81510B9A389173B87E9452DB7D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Microsoft .NET 7.0.5 Runtime [Ru/En]
 magnet:?xt=urn:btih:4E43D361700490AE84F5E6162A69F9FDB880B37C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:4E43D361700490AE84F5E6162A69F9FDB880B37C
 magnet:?xt=urn:btih:E04BD1B41345A90165430EB60B38335D109D18A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:0EF348A2853F69C8B3801B7CB9B4711827EEEDF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Microsoft .NET 6.0.16 Runtime [Ru/En]
 magnet:?xt=urn:btih:06B4701A30FE16CAA8B9B43C619D8161F36BD694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:5254152A3DC59314805E780BE2D03B9F364FEBBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ jv16 PowerTools - достаточно мощный набор утилит, п�
 magnet:?xt=urn:btih:0CA284069E8C49AD909A4F86E89F427A13E34A99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ TheAeroClock - портативная программа, благодаря к�
 ```bash
 magnet:?xt=urn:btih:F549D5B7040F77A354D8BAEB3374907655DA82ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ MSI Kombustor поддерживает тестирование (   Читат�
 magnet:?xt=urn:btih:FECA30984D992440D9D5F91C434C349BF1FFF2F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ One Commander V3 — это современный файловый менедж
 magnet:?xt=urn:btih:A992055DE4E0BD61A0DEBD9A45CCF46EAC77EBB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Windows 11 Manager - это универсальная утилита специ
 ```bash
 magnet:?xt=urn:btih:15DA17CFD34E2BFC409133A811E539FA5AD92A3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Magic Uneraser от East Imperial Soft предлагает восстановл
 magnet:?xt=urn:btih:F739BA285328CD024736C108D4C70F24636815DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Aiseesoft Blu-ray Player - универсальный в работе "все в
 magnet:?xt=urn:btih:C95EDBDB48E2B9F53A00C8CF61E5246D0C0979CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ R-Drive Image — является эффективной утилитой дл�
 ```bash
 magnet:?xt=urn:btih:2E5EAE9E16DA92A381EF20C1F9DF6C1DC3126B43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ GetWindowText - маленькая и портативная программа,
 magnet:?xt=urn:btih:824C6BD243554CE38E11B83499AE738D76A6A1F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ IsMyHdOK 3.88 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:14A23BF97FC2BBF60FB2C66A2982FA1DE662A5F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Dashcam Viewer - это современный и продвинутый мен�
 magnet:?xt=urn:btih:3A962B60C314B665D125DBBDFFA01FEB006AF63E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ DP Animation Maker 3.5.16 RePack (& Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7D96B45B4512AD80F1708AE0C8E419610A8746BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 magnet:?xt=urn:btih:E67A39F1C8AAA78CCB88D3BAB187AC8225B98A64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Hetman Partition Recovery - программа восстанавливает у
 ```bash
 magnet:?xt=urn:btih:EADE734B013F70D8BA4F023101B64564EF08FAA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:5F65D323D538E40F5044353C21C16A3A9DB8AC23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ WinSCP, это FTP и SFTP клиент с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:44A255139F467A94DE0A8F212432AD71ACADAC85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

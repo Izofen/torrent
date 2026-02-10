@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:B96C514918535AF567F1229F01AA8823DE24D601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:B96C514918535AF567F1229F01AA8823DE24D601
 ```bash
 magnet:?xt=urn:btih:3232F88A34A77EC1CD8F24E50007ED03BE35BF5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Podrich — элегантный вневременной шрифт с засе
 magnet:?xt=urn:btih:B68F24E4A67F7C3EC10C054364EF6D74B1711CFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Romantic History — это вневременной шрифт, черпающ�
 ```bash
 magnet:?xt=urn:btih:877BF38BFD664526123889D48F6C84487F385082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Trend Polaroid — это современный дуэтный шрифт, со
 magnet:?xt=urn:btih:A7B3AB18DDCE896BD1D04E047C931A50D74FE46C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:A7B3AB18DDCE896BD1D04E047C931A50D74FE46C
 ```bash
 magnet:?xt=urn:btih:8E6F9FCD30803CED0DEC34804CAD93EEED09D990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:8E6F9FCD30803CED0DEC34804CAD93EEED09D990
 magnet:?xt=urn:btih:6AB44E16676E2B18711C484EA18A1B4C9570F024
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:6AB44E16676E2B18711C484EA18A1B4C9570F024
 ```bash
 magnet:?xt=urn:btih:DA2940BC9EE9E9C119E8C56E8D905FCDA0D4DC23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:DA2940BC9EE9E9C119E8C56E8D905FCDA0D4DC23
 magnet:?xt=urn:btih:4EF6C312B6E0E084EF1C219E9DF818058234E63E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:4EF6C312B6E0E084EF1C219E9DF818058234E63E
 ```bash
 magnet:?xt=urn:btih:7006D46B5EF7ED6A497576DEF9A8881FDD4D5457
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:7006D46B5EF7ED6A497576DEF9A8881FDD4D5457
 magnet:?xt=urn:btih:6AEC6CBE741F579892D14392DDFE28E08C7FE806
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:6AEC6CBE741F579892D14392DDFE28E08C7FE806
 ```bash
 magnet:?xt=urn:btih:ED2B54C7385A8F38902B69AFAEC1C8E2A50DFBC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ Helonik состоит из 22 шрифтов, состоящих из трех 
 magnet:?xt=urn:btih:41D2C0734858E34EF42066070F1F1447FE9ADE59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ Salda Soft — это минималистичный и аккуратный ш�
 ```bash
 magnet:?xt=urn:btih:BB401614CBE8E141C4D1D3A9D40FC73CA1C1F5DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ Chunky Delight — смелый, тяжелый шрифт с полукругл
 magnet:?xt=urn:btih:A7FD8F9651D0E81A7F286FD602577582D07166A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:A7FD8F9651D0E81A7F286FD602577582D07166A1
 ```bash
 magnet:?xt=urn:btih:FCFBB66C19711950CB19E2426AF13C727F1FDA34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ Palo — это система служебных шрифтов из 72 сти�
 magnet:?xt=urn:btih:38EDB7433FC15BCCF6ECBA5982178B0FB38897DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ magnet:?xt=urn:btih:38EDB7433FC15BCCF6ECBA5982178B0FB38897DA
 ```bash
 magnet:?xt=urn:btih:76BF4ADEDAF531A0DA0714EA3D532DC48831B7AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:76BF4ADEDAF531A0DA0714EA3D532DC48831B7AC
 magnet:?xt=urn:btih:41868CC4CE1FD36294AAA31004600F1E2E4656D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:41868CC4CE1FD36294AAA31004600F1E2E4656D5
 ```bash
 magnet:?xt=urn:btih:73A4B1AE3659C73F6E36D2C8EF841B2B738A8012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ Macwine — это изысканный шрифт с засечками, раз
 magnet:?xt=urn:btih:439080D6804C3159AC7E6A1860F20F7550472CC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ Trige — это изысканный шрифт с засечками от Iwan
 ```bash
 magnet:?xt=urn:btih:FE9D575C88F22E3208DF96A4BF105C67C4ECC65F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +629,8 @@ magnet:?xt=urn:btih:FE9D575C88F22E3208DF96A4BF105C67C4ECC65F
 magnet:?xt=urn:btih:45DC1C28D234B89CC449FC515DDB972778DE3717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +656,8 @@ Fraiche — это очаровательный мягкий и округлый
 ```bash
 magnet:?xt=urn:btih:731210FA95C35F952C43D836B41784EA1FC9CEDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +685,8 @@ magnet:?xt=urn:btih:731210FA95C35F952C43D836B41784EA1FC9CEDB
 magnet:?xt=urn:btih:401BEE760DD64A38B3876D28835DD88BD0F84943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ Highland — это уплотненный брусковый шрифт с за
 ```bash
 magnet:?xt=urn:btih:9AF33F65569346CB208C93F495E66678D083AAED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

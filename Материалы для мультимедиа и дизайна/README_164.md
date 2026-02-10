@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:74D02891D3F89877958E22675EF9E6CDB955DE69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Vector Art (первая версия) - простой в использова�
 ```bash
 magnet:?xt=urn:btih:57150B29FDDC3C42133678ACC9B5D5AFB64E6225
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Premio Watercolor - данный экшен фотошоп превратит в
 magnet:?xt=urn:btih:D5FE7078D0DB7C3EF15210F46D81F947E1659130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:D5FE7078D0DB7C3EF15210F46D81F947E1659130
 ```bash
 magnet:?xt=urn:btih:0B1CEEF14A0D73EC9A5D68C762C944A4B8D54BFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:0B1CEEF14A0D73EC9A5D68C762C944A4B8D54BFB
 magnet:?xt=urn:btih:9F546FF9CA1EABEE97C8F3C254B21D1E2E84602B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Scene Creator 5K FIX IT - Desk Edition является официальным �
 ```bash
 magnet:?xt=urn:btih:03C86AFAFF0A3E3B4B16293A3E66D4F7DCED87D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Colorful Art - позволяет создать красочный эффект
 magnet:?xt=urn:btih:99EA28DAB823C4D24FEC2C151A90035E8C84432B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Color Festival - этот экшен фотошоп придаст вашим с
 ```bash
 magnet:?xt=urn:btih:5632590AD9BBB71EDA3A26F71529E1AA5D7C2144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:5632590AD9BBB71EDA3A26F71529E1AA5D7C2144
 magnet:?xt=urn:btih:6DD726B9B70FBC47D47DE6B1C707968552053D2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:6DD726B9B70FBC47D47DE6B1C707968552053D2F
 magnet:?xt=urn:btih:5297323E550E01CFA4566A37A2F37EA1B4162CDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ PSD Format Vol 19 - часть 19 из 55. Все файлы безукориз�
 ```bash
 magnet:?xt=urn:btih:ACB8692FD1278E9E5F539256B5B7E98A773E5451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:ACB8692FD1278E9E5F539256B5B7E98A773E5451
 magnet:?xt=urn:btih:7E994D63443E8F3E578CF8E1DAA9B7F51C0C0B85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:7E994D63443E8F3E578CF8E1DAA9B7F51C0C0B85
 magnet:?xt=urn:btih:66EA7E368E034070D09815D6302BBCD2C055A4E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:66EA7E368E034070D09815D6302BBCD2C055A4E1
 magnet:?xt=urn:btih:966CBDDEEC547278E4AA3086AD7D01031D0D476E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:966CBDDEEC547278E4AA3086AD7D01031D0D476E
 ```bash
 magnet:?xt=urn:btih:27E15522A077538DFF2B100A1C43A46562A50089
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:27E15522A077538DFF2B100A1C43A46562A50089
 magnet:?xt=urn:btih:E900385D10E55FF6DDFF79ED032CB07B360677CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Pixelated - с этим экшеном ваша фотография будет 
 ```bash
 magnet:?xt=urn:btih:E26FC85CD5F8A6CE0E1B5A79B644DB9B8B84DE5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:E26FC85CD5F8A6CE0E1B5A79B644DB9B8B84DE5C
 magnet:?xt=urn:btih:8C910C5046B0C27E4D3D0ED53147B1D541E76AF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Creative Dispersion - экшен с эффектом дисперсии. Все 
 ```bash
 magnet:?xt=urn:btih:63984091BBE4E10388D892356184BBF6D76F06B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:63984091BBE4E10388D892356184BBF6D76F06B3
 magnet:?xt=urn:btih:E13446E76E85627277D5D27765BC6220DE013D5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Dynamic HDR - это действие предназначено для прео
 ```bash
 magnet:?xt=urn:btih:7A26B74614E52C5147522248C4C90A18206A4CB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Realistic Ink Effects - данный стиль очень прост в исп�
 magnet:?xt=urn:btih:11AA61DD4E361671FF600C1FA77A925A251174F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Snow Pack with Transitions - пакет анимационных элемент�
 ```bash
 magnet:?xt=urn:btih:4EB36F5AF8ECC9D73863B24805FF5D9C3B1FB503
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Flash Fx Elements - набор специальных мультипликаци
 magnet:?xt=urn:btih:DE7892E5FEBC098660B471D3C5FFFE7BDCA53034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:DE7892E5FEBC098660B471D3C5FFFE7BDCA53034
 magnet:?xt=urn:btih:89D06CB16E8E2515B8FBA32141DCD768C64571CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Dark Splendor - Устали от света и яркого света? Хот�
 ```bash
 magnet:?xt=urn:btih:B9586CE307ABB7E2429D4B59490722E799DFDC22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:6DB2CF303AA7614559A7EE810E7390BDBA558BAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:6DB2CF303AA7614559A7EE810E7390BDBA558BAA
 ```bash
 magnet:?xt=urn:btih:11967A59CDA55609A5A996F135E5F60C4E4B4D49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:11967A59CDA55609A5A996F135E5F60C4E4B4D49
 magnet:?xt=urn:btih:8F26E785A827E8E5621E24C8D8F02A397E99454E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:8F26E785A827E8E5621E24C8D8F02A397E99454E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:8F26E785A827E8E5621E24C8D8F02A397E99454E
 magnet:?xt=urn:btih:D32B12EA7A74ACE3407204C2AF885B4ECDDFF55D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:D32B12EA7A74ACE3407204C2AF885B4ECDDFF55D
 magnet:?xt=urn:btih:980FB16206CBCC307E237AA4D8ED3E458CAC11B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Pine Hearts (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:99CFB79C72B4BBFDCDE8FD99122EAC0AC99EF6FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:0724310A0A72EF87CA82EB0927623A2C742C0411
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Litcube's Universe представляет собой глобальную мо
 magnet:?xt=urn:btih:2CD71DA69E5D16B6C6C7631EA31172E89EA05030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:2CD71DA69E5D16B6C6C7631EA31172E89EA05030
 ```bash
 magnet:?xt=urn:btih:4BA55E582DC2D13D6AED4626010280D163BDD592
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:4BA55E582DC2D13D6AED4626010280D163BDD592
 magnet:?xt=urn:btih:41D32BA2E2FCAA853746469776E4457443E0BCBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:41D32BA2E2FCAA853746469776E4457443E0BCBD
 ```bash
 magnet:?xt=urn:btih:2C663ADB8EDFB61C152E29174EAB373D0C25841C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:2C663ADB8EDFB61C152E29174EAB373D0C25841C
 magnet:?xt=urn:btih:2B0D548A9578E7E93D547BB247A411A2A13B2E8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:2B0D548A9578E7E93D547BB247A411A2A13B2E8F
 ```bash
 magnet:?xt=urn:btih:63FF27CE84441F501C9CD46214C6F0F8780A5C20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:63FF27CE84441F501C9CD46214C6F0F8780A5C20
 magnet:?xt=urn:btih:5E81A24D635DA1F4E45E39AD63F08AC84A2A721B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:5E81A24D635DA1F4E45E39AD63F08AC84A2A721B
 ```bash
 magnet:?xt=urn:btih:B9D70819398F380D562665D9717FD5214FCB67B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Godsmack — американская рок-группа, образованн�
 magnet:?xt=urn:btih:530EACE44110B1C828F8491AE2D00E902917651B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:530EACE44110B1C828F8491AE2D00E902917651B
 ```bash
 magnet:?xt=urn:btih:0AA5C33E4339FB701FA436F58C8376382B61F950
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:0AA5C33E4339FB701FA436F58C8376382B61F950
 magnet:?xt=urn:btih:4D41B33B0AB5CBCEC3B3A0FD7161E5F157AFD8AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:4D41B33B0AB5CBCEC3B3A0FD7161E5F157AFD8AB
 ```bash
 magnet:?xt=urn:btih:7C6974DEAFBAD3E8BA2CAB845ACB86FBE05770E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:7C6974DEAFBAD3E8BA2CAB845ACB86FBE05770E1
 magnet:?xt=urn:btih:BA1512F6392398888636395131D8DF3A9B325E8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:BA1512F6392398888636395131D8DF3A9B325E8D
 ```bash
 magnet:?xt=urn:btih:053A65D6C85B94CD1E7BD219D84C862F5128F8C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Far Cry 3: Blood Dragon - футуристический шутер с видо�
 magnet:?xt=urn:btih:96C14096FDEF5855928D411906234F4435E31C58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:96C14096FDEF5855928D411906234F4435E31C58
 ```bash
 magnet:?xt=urn:btih:8B967040FAE6DD1D97BA170083422236D5045EDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:8B967040FAE6DD1D97BA170083422236D5045EDC
 magnet:?xt=urn:btih:7A34AB75EA4CF7C4CBE72894D69C7253B962D356
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Stray (2022) [Ru/Multi] (1.5#368) Repack FitGirl [Soundtrack Edition]
 ```bash
 magnet:?xt=urn:btih:9816BA47B5757511AF120E19C4D54C0774071CA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

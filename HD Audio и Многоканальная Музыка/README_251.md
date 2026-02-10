@@ -1,3 +1,32 @@
+###  Публикация: 1008740   (813553) от 19.04.2016
+
+Smokie - The Montreux Album, The Other Side Of The Road (1978, 1979) [PCM 2.0|96/24|Audio-DVD|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_813553.jpg" />
+</div>
+
+
+###  Подробнее
+
+• The Montreux Album •
+
+01. The Girl Can't Help It  3:48
+02. Power of Love  1:58(   Читать дальше...   )Жанр: Rock
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67992160EA2E9783A7BD32C0A985BA50F6B2D98B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117989   (814903) от 24.03.2017
 
 Cinderella - Long Cold Winter (1988) [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <Hard Rock, Glam>
@@ -21,6 +50,8 @@ Cinderella - Long Cold Winter (1988) [WavPack 2.0|192/32|image+.cue|Vinyl-Rip] <
 ```bash
 magnet:?xt=urn:btih:96BE62B8CB643F25DE30384381B75B2F154AD46C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Checkfield - Surrounded (2002) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <smoo
 magnet:?xt=urn:btih:15A3C004ED197BFD75B3C70845F87362723AE935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ Inside the Music: Women on Top (2001) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio
 ```bash
 magnet:?xt=urn:btih:99858DF9575FB203A2B4017B769953F07DC2A857
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ magnet:?xt=urn:btih:99858DF9575FB203A2B4017B769953F07DC2A857
 magnet:?xt=urn:btih:63D60A49D14B3B04D4138F4963BE4BE5D5927FBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +163,8 @@ Halestorm - The Strange Case Of... (2012) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Ha
 ```bash
 magnet:?xt=urn:btih:31A6D85ADF18C078F87C9048D9EE202F12BA895B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +193,8 @@ A4. Fire Dance (4:31)(   Читать дальше...   )Производств�
 magnet:?xt=urn:btih:3ADBCE6D9ADDB527CE6AC29CE084009EFF6027DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +221,8 @@ Stravinsky - Firebird Suite - Finale(   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:1538CC06A171910FCCE198855198BC384359309A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +251,8 @@ A1. Going Backwards (5:43)
 magnet:?xt=urn:btih:09CEC420DC3E5414FF59DA2B5823983FE25E3B37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +279,8 @@ A3 Living For The City(   Читать дальше...   )Жанр: Pop Rock, So
 ```bash
 magnet:?xt=urn:btih:2906884ADBF37668CA2AD34CEE6069019342E8EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +309,8 @@ Fiona Joy Hawkins - 600 Years in a Moment (2013) [DTS 5.1 CD-DA|44.1/16|image+cu
 magnet:?xt=urn:btih:0AA554F97074C6D2723914B3346F7036251221D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +337,8 @@ Ambra – Child Of The Universe (2003) [DSD 5.1, 2.0 1bit/2822,4kHz | SACD-R] <N
 ```bash
 magnet:?xt=urn:btih:738A09E46FB9421A80006CEED6FB34A1EFA57D99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +367,8 @@ VA - Песни Виктора Дорохина и Любови Воропаев
 magnet:?xt=urn:btih:DBA940BC928DDC3F906FF8072977DFBCCC6CAFCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +395,8 @@ A4 Let It Be Me(   Читать дальше...   )Жанр: Jazz, Easy Listenin
 ```bash
 magnet:?xt=urn:btih:65BBDA74124C619F8598F4FDA3F70CE3B441445B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +425,8 @@ Side A:
 magnet:?xt=urn:btih:D28430F2D8F5ED3164B693EDD253156BA3E3A793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +453,8 @@ A3 Loved And Lost(   Читать дальше...   )Жанр: Hard RockПрод
 ```bash
 magnet:?xt=urn:btih:D9F81EC0669DBE5755D0180B914CE4DEC0635275
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +483,8 @@ Patricia Barber – Clique! (2021) [DTS 5.1 CD-Audio|44.1/16|image+.cue|DXD-DL] 
 magnet:?xt=urn:btih:97A5AF6E5D1C57BE7F46AB0DBEE001708D2AFC66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +511,8 @@ Emmylou Harris - Producers Cut (2002) [DTS 5.1 CD-Audio|44.1/16|image+.cue|DVD-A
 ```bash
 magnet:?xt=urn:btih:56869ECB38837400D90DD66019A09AC07318887C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +541,8 @@ Moya Brennan – Two Horizons (2003) [DTS 5.1 44.1/16 | .wav+.cue (SACD)] <celti
 magnet:?xt=urn:btih:A8715DEFA91F7A2131948E0B5D5407F02BB17546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +569,8 @@ A4. Laredo Tornado (5:30)(   Читать дальше...   )Жанр: Progressi
 ```bash
 magnet:?xt=urn:btih:0B52D0181E9C43236D1C00AFD00CD9B51AD090D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +599,8 @@ A4. Unhappy Girl (1:56)(   Читать дальше...   )Производст�
 magnet:?xt=urn:btih:21E586865A43EDCEEA57DA00059E2385A2DC694C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +624,8 @@ Bad Haggis - Span [DTS 5.1 CD-Audio] (2004) <Celtic, Irish, International>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +652,8 @@ Andrea Bocelli ‎– Andrea [Special Edition] (2004) [DTS 5.1 CD-DA|44.1/16|ima
 ```bash
 magnet:?xt=urn:btih:F0DF119E875426465AF55DEAF176838AADC71DE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +682,8 @@ Diamond(   Читать дальше...   )Жанр: Jazz, Easy ListeningПро�
 magnet:?xt=urn:btih:2D96B1159D7CBF242F59C47AC06928BA6D7CF77F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +710,8 @@ A4 Get Me To The Church On Time(   Читать дальше...   )Жанр: Pop
 ```bash
 magnet:?xt=urn:btih:48CC122481EBADF9A26BC30B274DDFBE5072DCCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -663,32 +740,7 @@ The Alan Parsons Project - The Best Of The Parsons Project (1983) [FLAC 2.0|192/
 magnet:?xt=urn:btih:4DA31FBBE59C2E269055BEB99D758534D438B3DD
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 773795   (832753) от 04.04.2014
-
-Electric Light Orchestra - On The Third Day (1973) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_832753.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Ocean Breakup / King of the Universe (4:06)
-A2. Bluebird Is Dead (4:43)
-A3. Oh No Not Susan (3:07)
-A4. New World Rising / Ocean Breakup (Reprise) (4:04)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F000FA62D86910ABA9AA879B16EB485E629FADDB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C8FF7BDC12144C89D6FC8D7D0D585A5A43CE0025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C8FF7BDC12144C89D6FC8D7D0D585A5A43CE0025
 ```bash
 magnet:?xt=urn:btih:599A4467E31165FFB700E050E2830A9C0704B381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:599A4467E31165FFB700E050E2830A9C0704B381
 magnet:?xt=urn:btih:4B4AF324FE8D47686777EF5222BEA0E4EFF9B9E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:4B4AF324FE8D47686777EF5222BEA0E4EFF9B9E3
 ```bash
 magnet:?xt=urn:btih:7CB39FFD27E37D973CF747A89A977E3D27975CED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:7CB39FFD27E37D973CF747A89A977E3D27975CED
 magnet:?xt=urn:btih:0DB48865D717B297D17DC39E67CC42F5A0C11083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:0DB48865D717B297D17DC39E67CC42F5A0C11083
 ```bash
 magnet:?xt=urn:btih:306F1920C09645B8108579494767BD8273698CD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:306F1920C09645B8108579494767BD8273698CD5
 magnet:?xt=urn:btih:83E6C23803EC62A2EC858B7D4789A2131958E596
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Carmine Noviello | Mastering STM32 (2017) [PDF]
 ```bash
 magnet:?xt=urn:btih:DDBB49855E5E0ECB5C024661EC26C37016FD7575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:DDBB49855E5E0ECB5C024661EC26C37016FD7575
 magnet:?xt=urn:btih:4F86EE60C7B4B30EDDD33E4209F4424EC74EC3A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:4F86EE60C7B4B30EDDD33E4209F4424EC74EC3A4
 magnet:?xt=urn:btih:B335FF6D4AF6FA2748D2CF9093B465922E5D84F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:B335FF6D4AF6FA2748D2CF9093B465922E5D84F0
 ```bash
 magnet:?xt=urn:btih:B71A578B7C7F48D4EAA0089AAB4E0662875D45BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:B71A578B7C7F48D4EAA0089AAB4E0662875D45BB
 magnet:?xt=urn:btih:81046E5A2F32908F974999F26B8E575C42930340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:81046E5A2F32908F974999F26B8E575C42930340
 ```bash
 magnet:?xt=urn:btih:00364F73359307D80E7EDC692D81786CD1FBCD08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:00364F73359307D80E7EDC692D81786CD1FBCD08
 magnet:?xt=urn:btih:95D19DA37B0DD87887F9B421E0A1EF3E3C7C60DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:95D19DA37B0DD87887F9B421E0A1EF3E3C7C60DC
 ```bash
 magnet:?xt=urn:btih:89D049EC47678E3DCEC1495EB804310FB2CD8609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:89D049EC47678E3DCEC1495EB804310FB2CD8609
 magnet:?xt=urn:btih:E7619FAA6626DE65122987FF23EF21FB42B73948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:E7619FAA6626DE65122987FF23EF21FB42B73948
 magnet:?xt=urn:btih:A182D55773827DE8C84EFF067F7431AF6E1F541B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:A182D55773827DE8C84EFF067F7431AF6E1F541B
 ```bash
 magnet:?xt=urn:btih:60D54B0C1993BE9E75825DD60D36A449A1AF70B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ JavaScript - самый популярный язык написания кли�
 magnet:?xt=urn:btih:5874A83F946B252ED5D1D3E75D2939FF1CEDCBBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:5874A83F946B252ED5D1D3E75D2939FF1CEDCBBA
 ```bash
 magnet:?xt=urn:btih:D8515B30D923741CADE91D29CEB5D89F57062B63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Metasploit - это платформа тестирования проникно
 magnet:?xt=urn:btih:20EFE57F4ED6C67671482EB00CC07EBCFD1A8512
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:20EFE57F4ED6C67671482EB00CC07EBCFD1A8512
 ```bash
 magnet:?xt=urn:btih:44A18AD709551C9993D78E65B86B40E76A91AE12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:44A18AD709551C9993D78E65B86B40E76A91AE12
 magnet:?xt=urn:btih:C66ECEBD4772B5ECD41D90DE861D2F3F876B2B32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:C66ECEBD4772B5ECD41D90DE861D2F3F876B2B32
 magnet:?xt=urn:btih:440DE2B98FC7F2707AFF7B2320D41319AB1443DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Carmine Noviello | Mastering STM32 (release 0.26) (2018) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:1A0C52E81EEA071E8BAC69E15B6D15E5F0293F0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ Excel – многофункциональная программа, котор�
 ```bash
 magnet:?xt=urn:btih:D3C0070D2700373AF8CAA010E6432EAF50957DDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

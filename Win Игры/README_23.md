@@ -19,6 +19,8 @@ The Unholy Priest предлагает захватывающее сочетан
 magnet:?xt=urn:btih:981531DA2A86B0248CBAE06EC9DA8963FBAE8A18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Beast Inside – психологический хоррор с соврем
 ```bash
 magnet:?xt=urn:btih:7A493A1C3A2C90D0B4174300DDB0251DEBED7776
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ System Shock 2 (2025) [Ru/Multi] (1.2.4244.0) Repack Let'sРlay [25th Anniversar
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Oxide Room 208 (2025) [Ru/Multi] (1.06) License GOG
 ```bash
 magnet:?xt=urn:btih:5BFCC6C983781D7EEC28D3C0D644B9140F82DEE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Bleeding Deities (2025) [En] (1.0.7) Repack Let'sРlay
 magnet:?xt=urn:btih:3D0F12368934CF0CC00903C9C911DA6C8242AD2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Dust Fleet (2023) [Multi] (6.4.5) License GOG
 ```bash
 magnet:?xt=urn:btih:CBC6686A577A1796659DD06F377607E8956ABAD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Bioweaver (2024) [Ru/Multi] (2.0.8b) Repack Let'sРlay
 magnet:?xt=urn:btih:935B4881DC07EDC6E4598F8992A83B7FA03D60F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Yes, Your Grace 2: Snowfall - кинематографичная игра про
 ```bash
 magnet:?xt=urn:btih:978C1AB36B57B9F05008A4CAA328869CB059455B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Terminator: Dark Fate – Defiance - стратегическая игра в р
 magnet:?xt=urn:btih:F849012C238BB8DDE1EDAD2A9858958EA0A7BC68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ System Shock 2: 25th Anniversary Remaster (2025) [Multi] (1.2.4546) License GOG
 magnet:?xt=urn:btih:55FD758215AA19D80FE7C03023A4888E0353E26B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ Grit and Valor - 1949 (2025) [Ru/Multi] (1.4.0/dlc) Repack Let'sРlay [Resistanc
 ```bash
 magnet:?xt=urn:btih:CC5C05BC1FCD18D7CA8FC6942EEF363D70CA0697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ JDM: Japanese Drift Master сочетает в себе реалистичную
 magnet:?xt=urn:btih:51D01F356EF173C7CB2B6845AC1F7CA8A9773D3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ inZOI - игра в жанре симулятора жизни, в которо�
 ```bash
 magnet:?xt=urn:btih:6C5844542B6F2F33D3C480473AA952FFFE0BBDFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Soulstone Survivors - это динамичный экшен-рогалик, г�
 magnet:?xt=urn:btih:E13999EDFB8324F1FB33DF42AC1A37A401BC6AC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Drill Core (2025) [Ru/Multi] (1.210.20.8.24.cadc052/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B83E9373CCD144C892B38C699CCFCDAB7E617EB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Wolfenstein II: The New Colossus (2017) [Ru/En] (6.5.0.1331/dlc) Let'sРlay Repa
 magnet:?xt=urn:btih:0753157B33E1188282F99C2A9597FFB4DB3C859E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Wolfenstein: The Old Blood – предыстория игры Wolfenstein: The 
 ```bash
 magnet:?xt=urn:btih:839FCC95EF933B90C592F9820E815244C0DFE4FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Songs of Silence погружает игроков в фантастически
 magnet:?xt=urn:btih:5F51CE364E79D1F69F36B62C8138DDCB939ACD47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Warsim: The Realm of Aslona – это симулятор управления �
 ```bash
 magnet:?xt=urn:btih:D72C32ABC6758C39FE4D38B8B6C916F1EC40198E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Twilight Monk (2025) [Ru/Multi] (1.4.0) Repack Let'sРlay
 magnet:?xt=urn:btih:88D4F72483A2C6C345BF05A8CC40DE837BEF87C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Wolfenstein: The New Order (2014) [Ru/En] (1.0.0.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:0743790CC2B40D54940CF42624923A65B35D8A73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Way of the Hunter (2022) [Ru/Multi] (1.28/dlc) Repack FitGirl [Ultimate Edition]
 magnet:?xt=urn:btih:6105221F156C11A189FD47AE690A4E8902A35B54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ The End of the Sun - это мистическая приключенческа�
 ```bash
 magnet:?xt=urn:btih:B12B74FA8127A69C9B5481CE166C48BC9EDC4457
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Oxide Room 208 (2025) [Ru/Multi] (1.05) Repack FitGirl
 magnet:?xt=urn:btih:659BDDB3F33E70269CA44BEDC707E50F3820EAAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (1.1 Build 19586234/dlc) Repack FitGir
 magnet:?xt=urn:btih:F9F47E59BD3BF08859AEA8B536D0157D61D5E4F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ PPEAK - это совместная игра о восхождении, где �
 ```bash
 magnet:?xt=urn:btih:DD9EFC73E2818AC17E3DC742D72BB00E963E1028
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

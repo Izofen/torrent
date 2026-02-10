@@ -19,6 +19,8 @@ Bayonetta 2 (2014) [WiiU] [USA] 4.1.0 [Loadiine GX2] [License] [Multi]
 magnet:?xt=urn:btih:460720E2D6AC32E5C47AAD5FAE3ECC9EB1E79731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ South Park (1999) [PS1] [USA] [License] [En]
 magnet:?xt=urn:btih:64FC349280A18F30EC07929583FA6FCF78EC7A9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Alien Resurrection (2000) [PS1] [USA] [Unofficial] [Ru]
 ```bash
 magnet:?xt=urn:btih:A5F1B9470B3F4D661C4300FC339FD704690F6FCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Dead or Alive находится в числе лучших файтингов �
 magnet:?xt=urn:btih:41D5262F5A641CDFC3E042BD5CC54BCFF3222E01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Red Dead Redemption (2011) [Xbox360] [RegionFree] FreeBoot [Unofficial] [Ru]
 ```bash
 magnet:?xt=urn:btih:98C40E19B9F9EA9923D4749F08137AEB6F4C75F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ MultiMAN является хоумбрю программой для PS3, раз
 magnet:?xt=urn:btih:D1B11BE3BB33C49527E78E0BBC599CD2BC4C017A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Smash Cars - это гонки на радиоуправляемых автом�
 ```bash
 magnet:?xt=urn:btih:F013A0551F1096FD988FCD0AD8EF2D068DD98595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ METAL GEAR SOLID V: The Phantom Pain от Kojima Productions откроет но
 magnet:?xt=urn:btih:C9BB67268538F3AF8B652D853D181ECE7294F92C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ X-Men Origins: Wolverine (2009) [Xbox360] [RegionFree] FreeBoot [Repack] [Ru]
 ```bash
 magnet:?xt=urn:btih:A9E96FF367490C6883015FAA9E34837379CB44F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Smash Cars - это гонки на радиоуправляемых автом�
 magnet:?xt=urn:btih:8E8101A11F98E9B095502656AAAF0DCEC317C42C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Kirby and the Rainbow Paintbrush (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Licen
 ```bash
 magnet:?xt=urn:btih:B64B4052A2472105A9F43C8C143041B33001DEA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Final Fantasy X HD Remaster (2014) [PSVita] [USA] 3.60 [NoNpDrm] [Repack / UnDub
 magnet:?xt=urn:btih:D8E0E23F0C139F5354B2E4C7FDC49C2CAD4DB94B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ SEGA Superstars Tennis (2008) [PS3] [EUR] 2.10 [Cobra ODE / E3 ODE PRO ISO] [Lic
 ```bash
 magnet:?xt=urn:btih:0BA3A3E0D6358BFBBB8A79BB1FEE2335EA7ACB08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Lego Jurassic World (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [En]
 magnet:?xt=urn:btih:4B482E94A2FCE5109F0C63775B75AB40FFD008B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Need For Speed: CARBON / NFS: CARBON (2006) [Xbox] [NTSC] 5101 [СофтМод] 
 ```bash
 magnet:?xt=urn:btih:071925AF2CF4052E56D868EBC5E076702F8CA401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Legend of Zelda: The Wind Waker HD - долгожданный ремейк од�
 magnet:?xt=urn:btih:AFBFC5D992263FE6B957837D644E29F1F9705E97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Tekken Tag Tournament 2 (2012) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [En]
 ```bash
 magnet:?xt=urn:btih:2E58E9289B0A8C971AD511ECCD7D7FEA7B344A4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Final Fantasy X HD Remaster (2014) [PSVita] [EUR] 3.60 [NoNpDrm] [Repack] [Ru]
 magnet:?xt=urn:btih:1436556D7641A6459C4DF6F8EEFFE69C4379B973
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Nano Assault Neo (2012) [WiiU] [USA] 5.3.2 [Loadiine GX2] [eShop] [En]
 ```bash
 magnet:?xt=urn:btih:F75F56741B1BF9AE4EE8B2060359FBF4AC056050
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Watch Dogs (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] [Ru]
 magnet:?xt=urn:btih:19B9E7F776B526D450554CD154547B81750B43ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Bayonetta (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [En]
 magnet:?xt=urn:btih:DDEA3C039E66C6BCAA8FFB047EC37D73485808E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Devil's Third (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [En]
 ```bash
 magnet:?xt=urn:btih:0773498E594484DC1FC97EC2B93058B2BE27B8FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Captain Toad: Treasure Tracker (2015) [WiiU] [USA] 5.3.2 [Loadiine GX2] [License
 magnet:?xt=urn:btih:1BC684D49BC014D385135095F79DF8E69FC83B12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Ninja Gaiden 3: Razor's Edge (2012) [WiiU] [USA] 5.3.2 [Loadiine GX2] [License] 
 ```bash
 magnet:?xt=urn:btih:55976125F434468561C559C11AD446CCE3972AE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Yoshi's Woolly World — уникальный платформер для Wii U,
 magnet:?xt=urn:btih:85D9284A8C1E584CC59B8A050FD7756C0C7A5729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ The Legend of Zelda: Twilight Princess HD (2016) [WiiU] [EUR] 5.3.2 [Loadiine GX
 ```bash
 magnet:?xt=urn:btih:5FAFA05EED5485A093C35A0A5AD054581D86CDF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

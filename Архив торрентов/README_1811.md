@@ -27,6 +27,8 @@ VA - Cool People Suck! (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ VA - Cool People Suck! (2011) [FLAC|Lossless]<Psychedelic / Progressive>
 ```bash
 magnet:?xt=urn:btih:B363C2F0CE4F370E72510F2B569E1387D1B873D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:B363C2F0CE4F370E72510F2B569E1387D1B873D0
 magnet:?xt=urn:btih:8791C86629BF4D1696CE1EB28E2DE4265F70C0D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Toolwiz Care - бесплатный набор инструментов, пре�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Toolwiz Care - бесплатный набор инструментов, пре�
 magnet:?xt=urn:btih:6971A182CA95640BB348AA71E3FDCABAF98D4D6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:6971A182CA95640BB348AA71E3FDCABAF98D4D6B
 magnet:?xt=urn:btih:620CE3846A3817EEE92F550E9050D598F4E367E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:620CE3846A3817EEE92F550E9050D598F4E367E5
 ```bash
 magnet:?xt=urn:btih:9037A30C72415F3EB20AC785B0B0076F65A02042
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ Kunz & Knobel - Die Suche (2011) [MP3|320 кб/с]<electro-pop, trip-hop, german
 magnet:?xt=urn:btih:556B5B6CAEE39B6E63D6081DB7AD84020C9EF4E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:556B5B6CAEE39B6E63D6081DB7AD84020C9EF4E6
 ```bash
 magnet:?xt=urn:btih:F196516DC4BD55DBE2F421F54A6EFE93B11E5F5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ Player-версия CoDeC включает также три медиапрои�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Player-версия CoDeC включает также три медиапрои�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +336,8 @@ Basia - On Broadway (1995) [FLAC|Lossless]<Jazz, pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +364,8 @@ Four very different high school teenagers battle trolls, ghouls and a dark leade
 magnet:?xt=urn:btih:DE3ED3AA24474971791D1D7D42B91B14EDA35D03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +391,8 @@ Cam tormented by guilt sets out to avenge his brothers death.
 ```bash
 magnet:?xt=urn:btih:714D1435F1247E1410C744951E7751B9172018D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +427,8 @@ SLOZHNIE - За шестым слоем (2012) [MP3|320 кб/с]<Underground Rap
 magnet:?xt=urn:btih:696ED0CE977461C5AA171CE6FE458EBEC9DD8F7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +452,8 @@ Preme for Windows - утилита, реализующая различные у
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +479,8 @@ VkBot 2.1.4 [Ru]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +514,8 @@ Wise Disk Cleaner может сканировать более 50 типов н�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ Yankee Pedlar Inn является один из старейших Англий
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +565,8 @@ Picasa - это программное обеспечение, с помощью
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ Various Artists - Mysteria Mithrae (1996) [mp3|320 kbps] <Apocalyptic Folk, Indu
 ```bash
 magnet:?xt=urn:btih:CF86D72775DDDA2DD550F6061C79C6AA3D4E2407
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +635,8 @@ VA - Black Hole 4 (2012) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:811DEF09992DBCCC0463F9F9350B406DB4F310D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +663,8 @@ LibreOffice бесплатен и имеет открытый исходный �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Serj Tankian - Figure It Out [Single] (2012) [MP3|320 кб/с]<Alt.Rock>
 ```bash
 magnet:?xt=urn:btih:9CEA657C7D770B9A5A3A4C3D7FA16ACB6B2D7D6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +715,8 @@ magnet:?xt=urn:btih:9CEA657C7D770B9A5A3A4C3D7FA16ACB6B2D7D6C
 magnet:?xt=urn:btih:D33267D85D87A9B6E6E8DE53A005E7DD2B46A20D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +740,8 @@ Windows 7 Manager - это мощная системная утилита, ко�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Mythos - Introspection (1995) [OGG Vorbis|484 Kbps] <Electronic, Vocal, New Age>
 magnet:?xt=urn:btih:828746BD924514CD224EDA4FA64313ABBB58ECBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ OST - Впритык / Due Date (2010) [MP3|320 kbps]<Soundtrack>
 magnet:?xt=urn:btih:EC6843319372380D85D329F561A502996DCE3BC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +85,8 @@ Saulius Petreikis & The Unit 7 Allstars - Lowlands (2014) [OGG| 405-493 кб/с]
 ```bash
 magnet:?xt=urn:btih:4C1ACD7FB917919EF4C247B2E0E4AEEE00C87056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ VA - Идеальный голос / Ultimate Pitch Perfect OST (2015) [FLAC|Los
 magnet:?xt=urn:btih:DDDFEF10540172BD2168F92AFE9B6090DD7E6176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ James Last & Richard Clayderman - Traummelodien (1990) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:9E6A4A5C869A0BD0DD21F8332E0CE8EAAC336D97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ Louis Landon - Heartfelt Solo Piano (2019) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 magnet:?xt=urn:btih:F12CAD707680494587DC7392B1280020FE167F1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +201,8 @@ VA - Идеальный голос / Pitch Perfect OST (2012) [MP3|320 Kbps] <So
 ```bash
 magnet:?xt=urn:btih:B50AC50EC1EE8CFFC9D0CB7354B863E731AF1A22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ John Powell & Lily Allen - Pan | Пэн: Путешествие в Нетлан�
 magnet:?xt=urn:btih:2339796E7DA87B9C8A8B3C7E1429F67CD514CF50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +256,8 @@ Lorne Balfe & Jesper Kyd - Assassin's Creed Revelations (2011) [MP3|320 kbps]<OS
 ```bash
 magnet:?xt=urn:btih:71BC1F125481516AF7C5340B807D0DB1410DC85F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +286,8 @@ Pulp Fiction / Криминальное чтиво - Soundtrack (1994) [ape+cue+
 magnet:?xt=urn:btih:8DDF39CC37B55E73E2340FE4399D2F2C481AB961
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +314,8 @@ Dog Music - Christmas Piano Music For Dogs, Sleeping Music For Pets, Dog Music &
 ```bash
 magnet:?xt=urn:btih:BC95372668ECC6E1C5C75B524C710EC94D72BA28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +344,8 @@ Mythos - Mythos (1998) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
 magnet:?xt=urn:btih:1C916AA29EA87687786CF8353161A0C190B00B75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +372,8 @@ Mythos - Purity (2006) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
 ```bash
 magnet:?xt=urn:btih:BC8D9AB7B103BAF63B459200D9731DDF987312C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +402,8 @@ Mythos - Eternity (2002) [OGG Vorbis|484 Kbps] <Electronic, Pop, New Age>
 magnet:?xt=urn:btih:D8338A87B33C0F11BB72B848864C5281AED06A78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +430,8 @@ Mythos - The Reality Of A Dreamer (2000) [OGG Vorbis|484 Kbps] <Electronic, New 
 ```bash
 magnet:?xt=urn:btih:7A30C193089EA1EEF5F0EB1FAA705417A2812C97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +460,8 @@ Mythos - Iridescence (1997) [OGG Vorbis|484 Kbps] <Pop, Electronic, New Age>
 magnet:?xt=urn:btih:1161BF221B3486E7F57324212D1035C644D125F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +488,8 @@ Trevor Jones / Randy Edelman - Последний из могикан / The Last
 ```bash
 magnet:?xt=urn:btih:56A555AD25703EB8EA8B850ACE1277C5E49191FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +518,8 @@ Michel Pépé - La montagne sacrée (Michel Pepe - La montagne sacree) (2019) [M
 magnet:?xt=urn:btih:9B9728FD3488B65CFB3CFA853436D698360BEAF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +546,8 @@ Richard Clayderman - The Ultimate Collection (2005) 3CD [APE|Lossless]<Instrumen
 ```bash
 magnet:?xt=urn:btih:A6F14DACDFE97D8BA9EB14B5D385F0B1E234258A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +576,8 @@ magnet:?xt=urn:btih:A6F14DACDFE97D8BA9EB14B5D385F0B1E234258A
 magnet:?xt=urn:btih:6CDD270B93EE4F1665D8EFB18AACF309BEF69848
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +604,8 @@ VA - Kontor Top Of The Clubs 2020.04 (2020) [MP3|320 Kbps] <House, Club-House, D
 ```bash
 magnet:?xt=urn:btih:8232049F49B4738917083E84F2261F57BB23B25A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +634,8 @@ VA - Los clasicos argentinos Tango - Vol.04 (1996) [MP3|128 кб/с]<Tango>
 magnet:?xt=urn:btih:6B52C4B932FA6556BB53BFCD001B4CC83ACA8A26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +663,8 @@ VA - Kontor Top Of The Clubs 2020.03 (2020) [MP3|320 Kbps] <House, Club House, P
 magnet:?xt=urn:btih:2DBEB89A7ED6D523DFED5C9C88DF257FB1E0A5B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ magnet:?xt=urn:btih:2DBEB89A7ED6D523DFED5C9C88DF257FB1E0A5B9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ VA - 24 Golden Instrumental Hits (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumen
 magnet:?xt=urn:btih:8FB87A785EAFE0A1F02E77CFF0B07F61F2991FD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Phillip Keveren - Piano Calm (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Inst
 ```bash
 magnet:?xt=urn:btih:8F74951CDB936CF0FB9CA4119300DCEFD2D6B536
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

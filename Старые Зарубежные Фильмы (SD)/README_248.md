@@ -1,27 +1,3 @@
-###  Публикация: 1847272   (1051874) от 11.01.2026
-
-Музей восковых фигур / Waxwork (1988) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1051874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неизвестно откуда в городе появляется музей восковых фигур, в котором собраны самые страшные монстры в истории мистики - Дракула, маркиз Де Сад, Призрак оперы, Франкенштейн и многие другие. Зловещий хранитель музея приглашает группу школьников, модерновых припанкованных подростков, на презентацию открытия музея, которая должна состояться ровно в полночь. Придя в (   Читать дальше...   )Производство: США, Германия (ФРГ), Великобритания / Contemporary Films, Electric Pictures, Vestron PicturesЖанр: ужасы, комедияРежиссер: Энтони ХикоксАктеры: Зак Гэллиган, Дебора Формен, Мишель Джонсон, Дэна Эшбрук, Дэвид Уорнер, Михай «Миху» Месарош, Патрик Макни, Майлз О`Киффи, Джон Рис-ДэвисПеревод: профессиональный многоголосый (OPT), авторский (Сергей Визгунов; Андрей Гаврилов)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF84C60DB7CF295D9189EA0CF3A54600C25FF1D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847331   (1052080) от 11.01.2026
 
 Секрет Делфта / Het geheim van Delft (1917) WEBRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:9CF84C60DB7CF295D9189EA0CF3A54600C25FF1D
 ```bash
 magnet:?xt=urn:btih:D7340BF4B014AB43269D7DB682C1E030627E2F58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:D7340BF4B014AB43269D7DB682C1E030627E2F58
 magnet:?xt=urn:btih:41F6B66FDBEB57599A8E44D093D68F0D8EAED8E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:41F6B66FDBEB57599A8E44D093D68F0D8EAED8E3
 ```bash
 magnet:?xt=urn:btih:4207CE75A4CD3F1FD2700537F33A6CC617348C82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:4207CE75A4CD3F1FD2700537F33A6CC617348C82
 magnet:?xt=urn:btih:C486E06442E3F4DAC70CF2E0F723108EE8CE1EFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:C486E06442E3F4DAC70CF2E0F723108EE8CE1EFC
 ```bash
 magnet:?xt=urn:btih:DA80FAAD4797193A29DB997AC9D388B4FE59AFC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:DA80FAAD4797193A29DB997AC9D388B4FE59AFC4
 magnet:?xt=urn:btih:2814A50E03D347851B26A6E27BA9596B12949DF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:2814A50E03D347851B26A6E27BA9596B12949DF5
 ```bash
 magnet:?xt=urn:btih:94D5486980556CEE31E9BFCD4CF730E52367D6B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:94D5486980556CEE31E9BFCD4CF730E52367D6B8
 magnet:?xt=urn:btih:847407C7AE6F06CD9FC469FEA37D33AD17CE67CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:847407C7AE6F06CD9FC469FEA37D33AD17CE67CC
 ```bash
 magnet:?xt=urn:btih:D618DA8760218A09A9FC100A1D8C765205FD29D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:D618DA8760218A09A9FC100A1D8C765205FD29D0
 magnet:?xt=urn:btih:B9E1F491B27D05D5DB2159AE86E85B15417A5B80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:B9E1F491B27D05D5DB2159AE86E85B15417A5B80
 ```bash
 magnet:?xt=urn:btih:C4771864348E41088B6C551A7F50A0E98ECF9EF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:C4771864348E41088B6C551A7F50A0E98ECF9EF6
 magnet:?xt=urn:btih:55BF5F48F150CC2A3F9902E7603FF0C53E76E223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ magnet:?xt=urn:btih:55BF5F48F150CC2A3F9902E7603FF0C53E76E223
 magnet:?xt=urn:btih:641256CF92E4449D30478C0E1DD859817D1D5FC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +356,8 @@ magnet:?xt=urn:btih:641256CF92E4449D30478C0E1DD859817D1D5FC3
 ```bash
 magnet:?xt=urn:btih:13F784AD43978B9B135CF5744D5C18A185C9C384
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:13F784AD43978B9B135CF5744D5C18A185C9C384
 magnet:?xt=urn:btih:6EF733539B781F363BA9C7DD04281937439BCBF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:6EF733539B781F363BA9C7DD04281937439BCBF6
 ```bash
 magnet:?xt=urn:btih:D12BDDC1B639F0A06644991B0A3345B414C4FEE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:D12BDDC1B639F0A06644991B0A3345B414C4FEE6
 magnet:?xt=urn:btih:913F3231B9A43378FF650143D5D93CFDAB4EECBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:913F3231B9A43378FF650143D5D93CFDAB4EECBB
 ```bash
 magnet:?xt=urn:btih:CAA868893D827AE4096A7E31C2BD3F0EC04A1585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +488,8 @@ magnet:?xt=urn:btih:CAA868893D827AE4096A7E31C2BD3F0EC04A1585
 magnet:?xt=urn:btih:DD1B49492EB52D8C5860320D296459B799327A0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +513,8 @@ magnet:?xt=urn:btih:DD1B49492EB52D8C5860320D296459B799327A0D
 ```bash
 magnet:?xt=urn:btih:59D649630847BE73CBA9DCC1C7804500E4679B44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +540,8 @@ magnet:?xt=urn:btih:59D649630847BE73CBA9DCC1C7804500E4679B44
 magnet:?xt=urn:btih:DC021998BD56F37D84FB0D9DF5C23131C7654EE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +565,8 @@ magnet:?xt=urn:btih:DC021998BD56F37D84FB0D9DF5C23131C7654EE7
 ```bash
 magnet:?xt=urn:btih:79ECE0BA2183003EAD2E875605BAC0BDA092FAF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +593,8 @@ magnet:?xt=urn:btih:79ECE0BA2183003EAD2E875605BAC0BDA092FAF3
 magnet:?xt=urn:btih:901AA4701786EB42452DC8B70FAA7D90BED5F14D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +619,8 @@ magnet:?xt=urn:btih:901AA4701786EB42452DC8B70FAA7D90BED5F14D
 magnet:?xt=urn:btih:E80AC51348B23059ADA7802D1E79CDE5B363D44F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +644,34 @@ magnet:?xt=urn:btih:E80AC51348B23059ADA7802D1E79CDE5B363D44F
 ```bash
 magnet:?xt=urn:btih:6D33C70ABBDA09462B7367ED46D7B98E995BB2B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850885   (1054638) от 
+
+Парк наказаний / Punishment Park (1971) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Псевдодокументальный фильм. Кучку лиц, не желающих воевать во Вьетнаме, певицу хипповских песен, борца за права чёрных и просто бородатого мужичка, не горящего желанием служить, тащат в суд, где осуждают на безумные сроки. Суд превращается в спор поколений, столкновение мировоззрений, попытку сломленных капитализмом стариков и сморщенных кошёлок навязать свои мнения (   Читать дальше...   )Производство: США / Churchill Films, Françoise FilmsЖанр: драма, триллерРежиссер: Питер УоткинсАктеры: Патрик Боланд, Кент Формен, Кармен Ардженциано, Люк Джонсон, Кэтрин Куитнер, Скотт Тернер, Стэн Армстед, Мэри Эллен Кляинхолл, Марк Китс, Глэдис ГолденПеревод: авторский (Сергей Кузнецов)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:31:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F62355A59C562A48BFA21F034BDFDE1E9DD2399
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

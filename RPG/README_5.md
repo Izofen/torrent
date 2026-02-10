@@ -19,6 +19,8 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Ru/Multi] (1.10.5/dlc) Rep
 magnet:?xt=urn:btih:99FF5E6D7E863DE43B7D2A9ADB79FB412161F3B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ M.O.O.D.S. (2024) [Ru/Multi] (1.0.03.0025) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D7C05CD63A08A2C477C06A1826BDCE8CF337B257
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Abiotic Factor - это научный экшен с видом от перво�
 magnet:?xt=urn:btih:EAAB88F76419FF72049001DE29034BFAC164D261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Rekindled Trails (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BAF69FC9C662D55DAD670F79F837CB2B97243861
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4184/dlc) Repack Let'
 magnet:?xt=urn:btih:A482FA1381466D38673B13BD7A51F68337EF6C80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (1.9.2) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:BBCEE1AA8124ABC5DC14D7C4D7EB36325DA4AA48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ SWORD ART ONLINE Fractured Daydream - это захватывающее ново
 magnet:?xt=urn:btih:1B9FB4CC4E62418C2D63177B44BD22F0B7CA4978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178067/dlc) Repack FitGirl [Deluxe E
 ```bash
 magnet:?xt=urn:btih:750052CA41368826EF079C8F995F72DCBB42638C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178067) Scene Tenoke
 magnet:?xt=urn:btih:16B9DCBC5FD39CC1E67D4161469B65CF8203F0C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Abiotic Factor - это научный экшен с видом от перво�
 ```bash
 magnet:?xt=urn:btih:FBC9F8A2C657AA3054FA090FBD08E9E02A664AEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Abiotic Factor - это научный экшен с видом от перво�
 magnet:?xt=urn:btih:0A50BB69A02BF4FFFE6ACEEAD304342CF895E258
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Abiotic Factor - это научный экшен с видом от перво�
 ```bash
 magnet:?xt=urn:btih:EFCA801CF6F63010881957FB2DD7D496C7175434
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Rangers in the South - это пиксельный экшн-рогалик, 
 magnet:?xt=urn:btih:D4C7228845C99BF5AA434C7784DE1BE9C9F06BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Dark Envoy объединяет классическую механику RPG с
 ```bash
 magnet:?xt=urn:btih:0CE31C42B177CC798640FF02CA71CFFE09B31176
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Cyberpunk 2077 приключенческая ролевая игра, дейс�
 magnet:?xt=urn:btih:C9D3921BF7017490C74D546C3D0FD6F1E0694422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2.2489/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:80DEF5F784906EE317D1A1D29D6C20C4D9F5A4D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Grim Dawn (2016) [Ru/Multi] (1.2.1.6/dlc) Repack Let'sРlay [Complete Collection
 magnet:?xt=urn:btih:C12A4D82CD935960356DCE4CF677FCEFBD14A79E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Mandragora: Whispers of the Witch Tree (2025) [Ru/Multi] (1.6.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:67C841BBF75CD8258F0BBFB2D9A0B458CB4C8B81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ DOOMER SIMULATOR погружает игрока в жизнь человека,
 magnet:?xt=urn:btih:A010F4E4557CD4C0202BB87235434B59777507DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Warspace 2 (2025) [Ru/Multi] (1.00/dlc) Repack FitGirl [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:4A758F3514D56FB50A03B9676116FC7FE4527509
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Dragon Ball Z: Kakarot – долгожданное продолжение се�
 magnet:?xt=urn:btih:24E9B21513BA3E8FCBAD9AA36DDD99F8E1869659
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Striving for Light (2021) [Ru/Multi] (1.0.0.0c) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D1192733AD6D55D870A13D95ADD6EB5A1185B6A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.1
 magnet:?xt=urn:btih:F46E4FFE4102B2767BB47AE4757575CF6E01F250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition возвращает �
 ```bash
 magnet:?xt=urn:btih:614B554D705DA854084C44AC43163C7DFDCF0E0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Dungeons & Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi] (1.1
 magnet:?xt=urn:btih:4AAF0F404720C698334728868B3243C424C99DCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ My Time At Portia (2019) [Ru/Multi] (2.0.141719/dlc) Repack FitGirl [Digital Del
 ```bash
 magnet:?xt=urn:btih:09AB23B261F61E81B7F0B15BADA88EB1EC2AC18D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

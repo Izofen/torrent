@@ -1,27 +1,3 @@
-###  Публикация: 1453606   (1026652) от 12.03.2021
-
-Райя и последний дракон / Raya and the Last Dragon (2021) WEB-DL [H.264/1080p] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1026652.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отважной воительнице по имени Райя и её верному спутнику Тук-Туку предстоит покинуть родное королевство Кумандра, чтобы отыскать последнего оставшегося в мире дракона, и с его помощью вернуть надежду на победу над могущественным врагом.Производство: США / Walt Disney PicturesЖанр: мультфильм, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Дон Холл, Карлос Лопес Эстрада, Пол БриггсПеревод: Дублированный (Line), профессиональный многоголосый (HDRezka Studio)Субтитры: Русские (Full (FOCS)), английские (SDH)Продолжительность: 01:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:577D8635F827E38CB58201B3327A29ACFCDD9AC7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452985   (1027129) от 09.03.2021
 
 Райя и последний дракон / Raya and the Last Dragon (2021) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] [Line]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:577D8635F827E38CB58201B3327A29ACFCDD9AC7
 ```bash
 magnet:?xt=urn:btih:0F86615E428E5CA8D02B28E8734B53ACDA059883
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ magnet:?xt=urn:btih:0F86615E428E5CA8D02B28E8734B53ACDA059883
 ```bash
 magnet:?xt=urn:btih:39C34EDF59E9EA66A3F709ADFDD22FC7A806DCC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:39C34EDF59E9EA66A3F709ADFDD22FC7A806DCC4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:39C34EDF59E9EA66A3F709ADFDD22FC7A806DCC4
 ```bash
 magnet:?xt=urn:btih:8152E73410FC7A3F5648DA85523FC2AFDC748EC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +125,8 @@ magnet:?xt=urn:btih:8152E73410FC7A3F5648DA85523FC2AFDC748EC7
 magnet:?xt=urn:btih:3FEB343E2F68572845DA9315CCFADBA56E8B8E68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:3FEB343E2F68572845DA9315CCFADBA56E8B8E68
 ```bash
 magnet:?xt=urn:btih:05496A0EA917323115AD7295B346D550EEE88B27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +178,8 @@ magnet:?xt=urn:btih:05496A0EA917323115AD7295B346D550EEE88B27
 magnet:?xt=urn:btih:2F778DEFB100ACC7E246C466917851F000B39443
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +204,8 @@ magnet:?xt=urn:btih:2F778DEFB100ACC7E246C466917851F000B39443
 ```bash
 magnet:?xt=urn:btih:5F7255F05FB30D951F89793D598C2E1C5D1944F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +233,8 @@ magnet:?xt=urn:btih:5F7255F05FB30D951F89793D598C2E1C5D1944F2
 magnet:?xt=urn:btih:9723FF4DE305A03DFA6D6951D7EFE8E58DA62783
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +258,8 @@ My Little Pony в кино / My Little Pony: The Movie (2017) BDRip [H.264/1080p
 ```bash
 magnet:?xt=urn:btih:1D94784F4D7CBB53EFE641104088AE2C6AB45734
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +285,8 @@ magnet:?xt=urn:btih:1D94784F4D7CBB53EFE641104088AE2C6AB45734
 magnet:?xt=urn:btih:11D0A5F97FF531DABD6CEAD59204FB534515E1E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +310,8 @@ magnet:?xt=urn:btih:11D0A5F97FF531DABD6CEAD59204FB534515E1E2
 ```bash
 magnet:?xt=urn:btih:CB3EEA452D6101F89A41E3689B13B4BF3A572F13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +337,8 @@ magnet:?xt=urn:btih:CB3EEA452D6101F89A41E3689B13B4BF3A572F13
 magnet:?xt=urn:btih:2D6542079AD2C69A5CA9449BF1CBED8651E17EC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +362,8 @@ magnet:?xt=urn:btih:2D6542079AD2C69A5CA9449BF1CBED8651E17EC7
 ```bash
 magnet:?xt=urn:btih:163773B940F8937E04D8194C546CCE23967B1585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +389,8 @@ magnet:?xt=urn:btih:163773B940F8937E04D8194C546CCE23967B1585
 magnet:?xt=urn:btih:38FFD4DB3434B38DE1F97742FFD76E4DAD70F5E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +414,8 @@ magnet:?xt=urn:btih:38FFD4DB3434B38DE1F97742FFD76E4DAD70F5E4
 ```bash
 magnet:?xt=urn:btih:50BBB163BB00B35EF63B810C0711FD9C8F43341A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +441,8 @@ magnet:?xt=urn:btih:50BBB163BB00B35EF63B810C0711FD9C8F43341A
 magnet:?xt=urn:btih:30FD6D6E96F1E92180B20EB006456F94D47F9C8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +466,8 @@ magnet:?xt=urn:btih:30FD6D6E96F1E92180B20EB006456F94D47F9C8E
 ```bash
 magnet:?xt=urn:btih:F681BABE59EF98F1C400530F041C1074E6857165
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +493,8 @@ magnet:?xt=urn:btih:F681BABE59EF98F1C400530F041C1074E6857165
 magnet:?xt=urn:btih:4686C961B306461F5691D5DB7569208B630B63BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +518,8 @@ magnet:?xt=urn:btih:4686C961B306461F5691D5DB7569208B630B63BF
 ```bash
 magnet:?xt=urn:btih:F260F69B02980E67FCB01BB62E393841E97E4E92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +545,8 @@ magnet:?xt=urn:btih:F260F69B02980E67FCB01BB62E393841E97E4E92
 magnet:?xt=urn:btih:473FDD8D86F59B59F09B24B32BF3E9FA47D5FC43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +570,8 @@ magnet:?xt=urn:btih:473FDD8D86F59B59F09B24B32BF3E9FA47D5FC43
 ```bash
 magnet:?xt=urn:btih:E4802A9B0E1582B5614ABB8221FFBC1D99CBFD34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +597,8 @@ magnet:?xt=urn:btih:E4802A9B0E1582B5614ABB8221FFBC1D99CBFD34
 magnet:?xt=urn:btih:C2F9BA93455479B9C33605585589C885A3F9BAA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +623,8 @@ magnet:?xt=urn:btih:C2F9BA93455479B9C33605585589C885A3F9BAA7
 magnet:?xt=urn:btih:4595D9B0BBF86979166EA8E5955C9A58EC593BB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +648,34 @@ magnet:?xt=urn:btih:4595D9B0BBF86979166EA8E5955C9A58EC593BB6
 ```bash
 magnet:?xt=urn:btih:5512C41C6DDABB9DDF6AC1682BDC81360CA08D0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442418   (1030078) от 20.02.2021
+
+Душа / Soul (2020) WEB-DL [H.265/2160p] [4K, HDR, 10-bit] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1030078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Школьный учитель музыки Джо Гарднер умер. Но поскольку незадолго до смерти он отыграл концерт своей мечты и получил предложение играть в крутейшем джаз-бэнде на постоянной основе, Джо с таким положением дел категорически не согласен. Чудом и настырностью он сбегает с травелатора, ведущего прямиком в Великое После, в Великое Перед – дивное местечко, где взращиваются (   Читать дальше...   )Производство: США, Walt Disney Pictures, Pixar Animation StudiosЖанр: Мультфильм, фэнтези, комедия, семейный, музыка, полнометражныйРежиссер: Пит Доктер, Кемп ПауэрсАктеры: Джейми Фокс, Тина Фей, Филисия Рашад, Давид Диггс, Анджела Бассетт, Грэм Нортон, Рэйчел Хаус, Алиси Брага, Ричард Айоади, Доннел Роулингс, Амир-Халиб Томпсон, Марго Холл, Сакина Джэффри, Фортун ФеймстерПеревод: Многоголосый закадровый (HDRezka Studio)Язык озвучки: Русский, украинский, английскийСубтитры: русские (Forced, Full), украинские (Forced, Full), английские (Full, SDH)Продолжительность: 01:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A62AA070CE24C02AFE419E03A565E06DEDF5EF88
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

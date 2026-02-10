@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2B68F338143C457325550B2B42BE62460B147CB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VA - Best Classical Piano Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ```bash
 magnet:?xt=urn:btih:D7D79E356A61BAF99369F7759FD27512614A6D27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - 80! (1999) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop Rock, Synth-pop>
 magnet:?xt=urn:btih:0465A882F4BE6DB17FD63DE8432763967087F034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:0465A882F4BE6DB17FD63DE8432763967087F034
 ```bash
 magnet:?xt=urn:btih:85173A14ACDBB193FF48A87987D915B423BDFA8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Paul Van Dyk - Live at Mayday (2000) TVRip [H.264/1080p-LQ] [hand made Upscale A
 magnet:?xt=urn:btih:01DE7C79F9554A6C02259F614EE55522583582F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:01DE7C79F9554A6C02259F614EE55522583582F0
 ```bash
 magnet:?xt=urn:btih:D3694F9DB0AB64D0D810F3898697E20C0E13BCED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:D3694F9DB0AB64D0D810F3898697E20C0E13BCED
 magnet:?xt=urn:btih:EAB54A310DB77208AD7B50550A9AF98EA996ADB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:EAB54A310DB77208AD7B50550A9AF98EA996ADB1
 magnet:?xt=urn:btih:C32182BE090C9E1979B68F72E5F6A7D2F7EF75A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Ozilic — это тщательно созданный шрифт с засеч
 ```bash
 magnet:?xt=urn:btih:685E9A8322F2C210F67FAF46C453F59ABBD08B1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Syclone шрифт от Denustudios, подходящий для любых пр
 magnet:?xt=urn:btih:838AA26E527A16A0FB6DC2BE06DE8E82BA2ECCAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:838AA26E527A16A0FB6DC2BE06DE8E82BA2ECCAF
 ```bash
 magnet:?xt=urn:btih:3E711B8B8D985CC8E91F63B6A88CE0F788BE770F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:3E711B8B8D985CC8E91F63B6A88CE0F788BE770F
 magnet:?xt=urn:btih:FBEA0145E011675586094A6F819AD278A129AAF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:FBEA0145E011675586094A6F819AD278A129AAF3
 ```bash
 magnet:?xt=urn:btih:40A63FC6BEC6FD2D446AAA97D1E4D88090200ABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ Robin McAuley - Soulbound (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic 
 magnet:?xt=urn:btih:6C0677E15EB7B89D08514C55552E7A3920770A4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ VA - Armin van Buuren - A State Of Trance 1214 (2025) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:2A1F966DB3A936460EE6238295CC40D3960BA081
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:2A1F966DB3A936460EE6238295CC40D3960BA081
 magnet:?xt=urn:btih:F85F7BAC00E0C864BBA37D67D2072589EA5CE969
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:F85F7BAC00E0C864BBA37D67D2072589EA5CE969
 ```bash
 magnet:?xt=urn:btih:205EC2E67929D931AE3E4D34EB6EF102110693F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:205EC2E67929D931AE3E4D34EB6EF102110693F5
 magnet:?xt=urn:btih:97D18FE8263F2A3013135130F083C6A485DDFA5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:97D18FE8263F2A3013135130F083C6A485DDFA5B
 ```bash
 magnet:?xt=urn:btih:95E11442136A83857BFCF17F47C5511FCF30D937
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:95E11442136A83857BFCF17F47C5511FCF30D937
 magnet:?xt=urn:btih:88FD9DF4CEC21CB16F7598E65C2F993ACE930DAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:88FD9DF4CEC21CB16F7598E65C2F993ACE930DAD
 ```bash
 magnet:?xt=urn:btih:78AF86074DCEAEC8312A445F5D0A39EC27395F87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +595,8 @@ Freddie Hubbard - Keep Your Soul Together / Polar AC / Skagly (1974, 1975) 2CD, 
 magnet:?xt=urn:btih:FF24C481F744092A20E02B8005EA8D218E1049EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ VA - Ori Uplift - Uplifting Only Episode 629 (2025) [MP3|320 Kbps] <Trance, Upli
 ```bash
 magnet:?xt=urn:btih:11CB590DC91D089C84AFFA1D4581D02F0B20A5D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ Freddie Hubbard - Bundle of Joy / Super Blue / The Love Connection (1977 - 1979)
 magnet:?xt=urn:btih:C40C8C68F63D8CADB686C44D8B39464C11891FDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ Sirrah - польская метал-группа, играющая в стил�
 magnet:?xt=urn:btih:827837427EC9DB8514073186E00439577922ABC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ magnet:?xt=urn:btih:827837427EC9DB8514073186E00439577922ABC9
 ```bash
 magnet:?xt=urn:btih:5D50B22DC51C8796DFAB187DDA1A5EC91127CC8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Yves Brouqui - Live At Smalls (2002) Elabeth [FLAC|Lossless|image + .cue] <Hard 
 magnet:?xt=urn:btih:0EE4F710884917CCED7ADA2B76EE7B59CDF89BD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - Anjunadeep The Remixes 2022 (2022) Mixed [FLAC|Lossless|WEB-DL|tracks] <Mel
 magnet:?xt=urn:btih:44A831B79CA90A4C871AB96C99F7CA98D16B6681
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ SIV (System Information Viewer) - мощнейшая утилита, показ�
 ```bash
 magnet:?xt=urn:btih:EC123BDC1F7D525053E0F95E921216214A7265E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:EC123BDC1F7D525053E0F95E921216214A7265E1
 magnet:?xt=urn:btih:5918DF3BF59402D339D5C935E72D818D64AB3497
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Skynet 2019.1.6 [En]
 ```bash
 magnet:?xt=urn:btih:B66B7A4BD7A95D4CCE1487FB3A2B948DE32EBB60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:B66B7A4BD7A95D4CCE1487FB3A2B948DE32EBB60
 ```bash
 magnet:?xt=urn:btih:180829E35C71F3AA7CAC67F42EC14DA0E2C63418
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ EIZO Japan - EIZO Japan 3 (2010) [WavPack|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:485DC9325E6554B901CF4D5DD412564280FB35AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ Starlite Campbell Band - The Language of Curiosity (2021) [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:A78F62B87D56E7FD9FF603A94C9320DBA8C9FFEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ WhatsApp Messenger - это кросс-платформенное приложе
 ```bash
 magnet:?xt=urn:btih:1976418E28025E5946BE83B924050C94E546D56A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ VA - Grum Presents: 20 Years Of Anjunabeats (2020) DJ Mix [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:8A6D5778B37CF4C0253E9F8EC4BAAC892B1A2671
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ Movavi PDF Editor 3.0.0 [Multi/Ru]
 magnet:?xt=urn:btih:2EED4CAB8A2963055F4A28D691A4A35295238D29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:2EED4CAB8A2963055F4A28D691A4A35295238D29
 ```bash
 magnet:?xt=urn:btih:5F3DEB0CF4785D7E104E219B4E9165C1C686EDF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:5F3DEB0CF4785D7E104E219B4E9165C1C686EDF1
 magnet:?xt=urn:btih:BFA073C9F3AA6BB325F0488ED19011423F05A4EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:BFA073C9F3AA6BB325F0488ED19011423F05A4EB
 ```bash
 magnet:?xt=urn:btih:1F536BC15E0FDD593DC88A6A5B3B4CABDEBA6547
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +411,8 @@ Glorious Bankrobbers - Glorious Bankrobbers (2017) [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:C85DDD8FFF60AB196FBC796B2ED687AA5564EA1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ Master Detective — серия, вся суть которой отражена
 ```bash
 magnet:?xt=urn:btih:8259948BDF6EF9F4DEF791F0EA24A889C95CEE21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +466,8 @@ magnet:?xt=urn:btih:8259948BDF6EF9F4DEF791F0EA24A889C95CEE21
 magnet:?xt=urn:btih:3CB46765BAA600873980038B6F662C09E05DA30E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ magnet:?xt=urn:btih:3CB46765BAA600873980038B6F662C09E05DA30E
 magnet:?xt=urn:btih:DD61F37F108B22244F09027C0742E5951D4C92EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:DD61F37F108B22244F09027C0742E5951D4C92EC
 ```bash
 magnet:?xt=urn:btih:D4DDCCEE69DCDB2AD5754D972BE2E9E2E04C6EF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +547,8 @@ Guardner - Somedays In My Life (2002) Elektrolux [FLAC|Lossless|tracks+.cue] <Do
 magnet:?xt=urn:btih:145EC4BD92EE85F07C5C97B7B116CBE5A83641DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:145EC4BD92EE85F07C5C97B7B116CBE5A83641DA
 ```bash
 magnet:?xt=urn:btih:E2DE5E5C66E9B3499DCEF3FE80ABFA07C466A0C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ JS Mastery | Ultimate Next.js 13 Course + eBook (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:1914DA01406840F8BE37A253295CBD8E98AECDCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:1914DA01406840F8BE37A253295CBD8E98AECDCD
 magnet:?xt=urn:btih:788A121BCC581C1053E504E5B4A5B1CADC23B7A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:788A121BCC581C1053E504E5B4A5B1CADC23B7A0
 ```bash
 magnet:?xt=urn:btih:F8696423C85DB33BFAF00BD9E61EBDA34F13907F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ EIZO Japan - EIZO Japan 2 (2009) [WavPack|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:CE3A1EF9A3A7A0471E3E8AA1813BDA91BDEB6BFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ SnippetsLab - полнофункциональный менеджер фрагм
 ```bash
 magnet:?xt=urn:btih:6415D63008DA3AD55E9A67D62A6DE2BE3AD5C551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

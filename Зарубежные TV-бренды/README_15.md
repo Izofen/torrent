@@ -19,6 +19,8 @@ BBC: Планета Земля 2. Мир чудес / Planet Earth II: A World o
 magnet:?xt=urn:btih:54DD2FBCB7CF41B208908149C1ECA66470902B07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:54DD2FBCB7CF41B208908149C1ECA66470902B07
 ```bash
 magnet:?xt=urn:btih:020BA7A714447A33AFD7A5B5E7DBE0525B327DBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG: На Марс: история марсохода Персеверанс / Bu
 magnet:?xt=urn:btih:879D4E3F969CE6DA78E78F3CFA8004CEEE62DD86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC: Археология. Тайная история / Archaeology: A Secret H
 ```bash
 magnet:?xt=urn:btih:A81D314343BC83F57B3D52AF677860D2A9CC0A3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:A81D314343BC83F57B3D52AF677860D2A9CC0A3A
 magnet:?xt=urn:btih:09624117FC4EAD4FE3F112EC74D09FDDD405E51E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:09624117FC4EAD4FE3F112EC74D09FDDD405E51E
 ```bash
 magnet:?xt=urn:btih:3A264DC1F41A0FE7ECEB3BBE20095217D3E3E3B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:3A264DC1F41A0FE7ECEB3BBE20095217D3E3E3B5
 magnet:?xt=urn:btih:4959190DC8F321EC267F4E59FEE66B4856C8CDEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:4959190DC8F321EC267F4E59FEE66B4856C8CDEB
 ```bash
 magnet:?xt=urn:btih:BEE92125BA7DD407AE87979408B5003C2D883D61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NG. Потерянный мир Майя / Lost World of the Maya (2019) HDTV [H
 magnet:?xt=urn:btih:6225AF7FD59F7C14723B1A1153CBD33B839E3EC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Discovery: Nasa и SpaceX: путешествие в будущее / NASA and S
 ```bash
 magnet:?xt=urn:btih:1FC7239AD81CDA689DD93DE935D8359A2B31CB22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NG: Неразгаданные тайны Солнца / Dark Secrets of the Sun
 magnet:?xt=urn:btih:1EC3BD30DA038322C6BF3756FA864EEAED17D53D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:1EC3BD30DA038322C6BF3756FA864EEAED17D53D
 ```bash
 magnet:?xt=urn:btih:A8483AE23442A0AA7F62E0A998E18B035F862B42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ NG: С точки зрения науки: Предотвратить конец
 magnet:?xt=urn:btih:CCDDCF197C6ABA6BBB91AF7DBDA130D81667D9F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:CCDDCF197C6ABA6BBB91AF7DBDA130D81667D9F6
 magnet:?xt=urn:btih:87C9CEFA3BAF4A61B377DBA1F481ED256A6E123E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ BBC: Западня: что сталось с мечтой о свободе? / 
 ```bash
 magnet:?xt=urn:btih:63C686D0599DB96190340EC4C3F989664A5247D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ BBC. Становление континентов / Rise of the Continents (201
 magnet:?xt=urn:btih:DBE0FAA3701801535B0D3EC3B14FA7FCD5FD9174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ NG: Война Гитлера против прессы / Hitler's Battle Agains
 ```bash
 magnet:?xt=urn:btih:4E36933423E780D56046A7574152F6DCCE9620BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:4E36933423E780D56046A7574152F6DCCE9620BA
 magnet:?xt=urn:btih:062C4DCDF5086EC8F5B19CD66362F442B8515F8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ NGW: Скрытые чудеса Африки / Africa's Hidden Wonders (2020) W
 ```bash
 magnet:?xt=urn:btih:0992CF2030C4CF83D2DABE4590F9BFCD39350002
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:0992CF2030C4CF83D2DABE4590F9BFCD39350002
 magnet:?xt=urn:btih:FCAC5BF53320C02D3D55C0904BB48B0AEB1DC303
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ NG. Ледяная дорога / Ice Road Rescue (2021) HDTV [H.264/1080i] (с�
 ```bash
 magnet:?xt=urn:btih:10A91925243D0AE5BF30B3701F1E0C49C97701D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ NGW: Драконы Комодо / Komodo Dragons (2018) WEBRip [H.264/1080p]
 magnet:?xt=urn:btih:DF01DB9CC001AF88918E0DBB735AC9BAB9C8CD33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:DF01DB9CC001AF88918E0DBB735AC9BAB9C8CD33
 ```bash
 magnet:?xt=urn:btih:8FEA6926EE76260A5DEB06179240D94C2D9096DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ BBC. Великие географические открытия / Voyages of D
 magnet:?xt=urn:btih:278B199AF8A4ED17616B4FA72A14961BDCD6DE74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ BBC: Живой мир. Осьминог в моём доме / BBC Natural Worl
 magnet:?xt=urn:btih:301BE66F3C6FEBA4914A5B592B2C745361BBE04C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ BBC: Горизонт. Что такое реальность? / Horizon. What i
 ```bash
 magnet:?xt=urn:btih:53919D050AC1AC643C9BA04A6D18E1363D8660C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

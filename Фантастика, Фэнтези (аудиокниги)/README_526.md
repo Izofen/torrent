@@ -1,3 +1,29 @@
+###  Публикация: 1478842   (1009985) от 21.06.2021
+
+Максим Дрешпак | Новые маги. Друид. Книга 1 (2021) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009985.jpg" />
+</div>
+
+
+###  Подробнее
+
+К первой трети ХХII века человечество сделало еще один виток в технологическом развитии. Широкое использование нейроинтерфейсов помогает не только жить лучше и собранее, а и веселее. «Новые маги» – игра в дополненной реальности – превращает мир вокруг в нечто невероятное и волшебное. Но что будет, если фэнтезийка разбудит в нашем мире магию? И как поведут себя те, (   Читать дальше...   )Жанр: Боевое фэнтези, городское фэнтезиПродолжительность: 08:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BC140F288575003FFA78745CE7597A25B4B2317
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 46868   (1010048) от 20.06.2021
 
 Станислав Лем | Солярис [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:CEEDEC8F0E483A609272C87C7D7F89276A5B7629
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:CEEDEC8F0E483A609272C87C7D7F89276A5B7629
 magnet:?xt=urn:btih:EECE6E1C1FB6334B7241E8A580520E184C90889F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:EECE6E1C1FB6334B7241E8A580520E184C90889F
 ```bash
 magnet:?xt=urn:btih:530D3AFC4836F7E6A7BF16F4A7774E23E1DD1B41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:530D3AFC4836F7E6A7BF16F4A7774E23E1DD1B41
 magnet:?xt=urn:btih:79C57138CE306D9C72C1BCBB6014A715C948325E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:79C57138CE306D9C72C1BCBB6014A715C948325E
 ```bash
 magnet:?xt=urn:btih:724F396905D2912142A1BD474D2C6EC7B3612941
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:724F396905D2912142A1BD474D2C6EC7B3612941
 magnet:?xt=urn:btih:2F8316980E4F4579D58105B8F38E2F9DA6C162BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:2F8316980E4F4579D58105B8F38E2F9DA6C162BC
 ```bash
 magnet:?xt=urn:btih:B9E61EB7F8AEBECBC5FAF43F057724BB4E5C7186
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +236,8 @@ magnet:?xt=urn:btih:B9E61EB7F8AEBECBC5FAF43F057724BB4E5C7186
 magnet:?xt=urn:btih:F2BBEC48760F2E490F0858BC608611C43113C264
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:F2BBEC48760F2E490F0858BC608611C43113C264
 ```bash
 magnet:?xt=urn:btih:E9B6F0E65A2825C8E1671EF4DDCA64CC79D45D66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +290,8 @@ magnet:?xt=urn:btih:E9B6F0E65A2825C8E1671EF4DDCA64CC79D45D66
 magnet:?xt=urn:btih:84A611BDA533B5B443424E1F7B54DBF48B48F733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +318,8 @@ magnet:?xt=urn:btih:84A611BDA533B5B443424E1F7B54DBF48B48F733
 magnet:?xt=urn:btih:FA6C40A2849FA5D2A5FE6EF534C77697697C0163
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +343,8 @@ magnet:?xt=urn:btih:FA6C40A2849FA5D2A5FE6EF534C77697697C0163
 ```bash
 magnet:?xt=urn:btih:8EEC0BC9070B1C4BA68080DC550BE05DD874D8D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +370,8 @@ magnet:?xt=urn:btih:8EEC0BC9070B1C4BA68080DC550BE05DD874D8D6
 ```bash
 magnet:?xt=urn:btih:871803D70311AF3488A99391F717E506DC395F6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +400,8 @@ magnet:?xt=urn:btih:871803D70311AF3488A99391F717E506DC395F6E
 magnet:?xt=urn:btih:77719D45084040D944D4C5E47266A8C11337AB08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +425,8 @@ magnet:?xt=urn:btih:77719D45084040D944D4C5E47266A8C11337AB08
 ```bash
 magnet:?xt=urn:btih:0B0AA71285FA932C6A05D7EC2A512009AC1AA125
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +452,8 @@ magnet:?xt=urn:btih:0B0AA71285FA932C6A05D7EC2A512009AC1AA125
 magnet:?xt=urn:btih:D327AA299ABB503026754CBA51109E908B63BCBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +477,8 @@ magnet:?xt=urn:btih:D327AA299ABB503026754CBA51109E908B63BCBF
 ```bash
 magnet:?xt=urn:btih:5D8C4F8E800E61C7B77EF3080A909A786F23B710
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +505,8 @@ magnet:?xt=urn:btih:5D8C4F8E800E61C7B77EF3080A909A786F23B710
 magnet:?xt=urn:btih:364A0C42804051745A76A1D2E6583E6C79476793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +530,8 @@ magnet:?xt=urn:btih:364A0C42804051745A76A1D2E6583E6C79476793
 ```bash
 magnet:?xt=urn:btih:64E67D7340F6E5DE727E68BF36558358E9939E83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +557,8 @@ magnet:?xt=urn:btih:64E67D7340F6E5DE727E68BF36558358E9939E83
 magnet:?xt=urn:btih:88DE46F2B36B515EC6CA5C94AF5827BA6566E1F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +583,8 @@ magnet:?xt=urn:btih:88DE46F2B36B515EC6CA5C94AF5827BA6566E1F5
 magnet:?xt=urn:btih:57BB34558A324EEC79C9DA74798197A65E5694D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +608,8 @@ magnet:?xt=urn:btih:57BB34558A324EEC79C9DA74798197A65E5694D0
 ```bash
 magnet:?xt=urn:btih:EBEB3E667C5E270CE98AAE37D52A44EC38066E76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +637,8 @@ magnet:?xt=urn:btih:EBEB3E667C5E270CE98AAE37D52A44EC38066E76
 magnet:?xt=urn:btih:2D61889866D636E65FC9A4146B2EFF24A31D0B8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +665,8 @@ magnet:?xt=urn:btih:2D61889866D636E65FC9A4146B2EFF24A31D0B8C
 magnet:?xt=urn:btih:3EB273811688582EFFD4FD4DD5560E4AA834952E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,29 +691,7 @@ magnet:?xt=urn:btih:3EB273811688582EFFD4FD4DD5560E4AA834952E
 magnet:?xt=urn:btih:75369D4B4074ECF7867A8FF09A1EA153454928D8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476194   (1011761) от 10.06.2021
-
-Сергей Савинов, Антон Емельянов | Царь зверей. Побег с Земли. Книга 1 (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1011761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долгожданный контакт с инопланетными пришельцами принес землянам новые технологии, в том числе и в игровой индустрии. Людям стала доступна игра Джи – единственная во Вселенной, в которую играют все разумные расы. Миллиарды миров, собранных в одну бесконечную планету. Отличный способ развлечься для старых рас и великолепная возможность заработать для новых. Количество (   Читать дальше...   )Жанр: Героическая фантастика, киберпанк, космическая фантастика, LitRPGПродолжительность: 09:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8F1D99F19AE358AC1919CB47CD46A4CFF2B919
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Manafest - Learning How To Be Human (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. R
 magnet:?xt=urn:btih:B02341AB5B3D769EE2E68A1A57293AA0C03001FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ The Used - MEDZ (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, EmoCore>
 magnet:?xt=urn:btih:278035FD6623B6E764C0E93205EF333363C0558C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:278035FD6623B6E764C0E93205EF333363C0558C
 ```bash
 magnet:?xt=urn:btih:FFD16AEEF38B34E32050A4CAA0B5A66FB845C294
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ Grateful Dead - From the Mars Hotel (1974) 50th Anniversary Deluxe Edition, 2024
 magnet:?xt=urn:btih:EB563ED95409C6744AA85A661552746B2231F888
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:EB563ED95409C6744AA85A661552746B2231F888
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ Dezperadoz - Moonshiner (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Meta
 magnet:?xt=urn:btih:A2A9001906EF575A28EAB5AF4BDEBC4B6566771B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:A2A9001906EF575A28EAB5AF4BDEBC4B6566771B
 ```bash
 magnet:?xt=urn:btih:BA68159606B23C4FD7A1ECB5E1235D4DB4A260A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:BA68159606B23C4FD7A1ECB5E1235D4DB4A260A8
 magnet:?xt=urn:btih:E6FB37AB9EB4217EE77067C8A4EA273B6888D082
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Draw.io 24.6.1 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B8CBA06782E5EB1111BD802AF9CB50D400DD6DAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ Disc 1:
 magnet:?xt=urn:btih:B57DDD83F3C833BD960B484A6476C11A37143A7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ Plugin Alliance & Brainworx - bx_glue 1.0.1 VST, VST 3, AAX (x64) RePack by TCD 
 magnet:?xt=urn:btih:EB1FE76C2B912C4378665D514D3B09727F40D271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:EB1FE76C2B912C4378665D514D3B09727F40D271
 ```bash
 magnet:?xt=urn:btih:3E78116B24565AB479E4277CD550A939E4EAE386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ VA - Двое - Песни на стихи Михаила Танича. Запи
 magnet:?xt=urn:btih:72CC987FD993FC1CBB184203C8239919D33A9F50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:72CC987FD993FC1CBB184203C8239919D33A9F50
 magnet:?xt=urn:btih:BBE15DFC745E19AE690FC8C462CF80FE203CCC7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:BBE15DFC745E19AE690FC8C462CF80FE203CCC7E
 ```bash
 magnet:?xt=urn:btih:A420088C5BF54BB90AD10AA79CAD4D8F18B49299
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:A420088C5BF54BB90AD10AA79CAD4D8F18B49299
 magnet:?xt=urn:btih:8A8429622822D4608ED4C5AB71E1CCBAB554A27F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:8A8429622822D4608ED4C5AB71E1CCBAB554A27F
 ```bash
 magnet:?xt=urn:btih:F36A1B2C068A740FA446F73772389F152E6A7C30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:F36A1B2C068A740FA446F73772389F152E6A7C30
 ```bash
 magnet:?xt=urn:btih:37A22D253F972E300005D8F557DE4051AF713043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:37A22D253F972E300005D8F557DE4051AF713043
 magnet:?xt=urn:btih:46AEC186FFABBD58C8B3B0AB04734EF811BA2296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:46AEC186FFABBD58C8B3B0AB04734EF811BA2296
 magnet:?xt=urn:btih:6692EA6B227157B203425589A738AD5F3417E1ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ magnet:?xt=urn:btih:6692EA6B227157B203425589A738AD5F3417E1ED
 ```bash
 magnet:?xt=urn:btih:41839FF1DDDB336D2FE7C9546D75980AFC337BE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:41839FF1DDDB336D2FE7C9546D75980AFC337BE7
 magnet:?xt=urn:btih:06BA2B6E1BFB58E8E3DBF31539D9540AAE43651F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:06BA2B6E1BFB58E8E3DBF31539D9540AAE43651F
 magnet:?xt=urn:btih:5AACA5F16346A914E71D74D2D7512DD8D164D897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ magnet:?xt=urn:btih:5AACA5F16346A914E71D74D2D7512DD8D164D897
 ```bash
 magnet:?xt=urn:btih:7ABD63E19958F94CA1A0EDE5C1FA99789C0C6161
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:7ABD63E19958F94CA1A0EDE5C1FA99789C0C6161
 magnet:?xt=urn:btih:C6E9E60227B50FCFBEF0B2F74623087879C14974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ VA - Ibiza Chill Vibes, Vol. 6 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chi
 ```bash
 magnet:?xt=urn:btih:FF8A10F60A217B36D1BB414C7AC8349825B7A187
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

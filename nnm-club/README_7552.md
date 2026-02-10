@@ -21,6 +21,8 @@ This War of Mine: Final Cut (2014) [Multi/Ru] [macOS Native game]
 magnet:?xt=urn:btih:21E163950AFFE24A7EB710DCE0659184CA412949
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:21E163950AFFE24A7EB710DCE0659184CA412949
 magnet:?xt=urn:btih:432ACDD0EF44DA3FF09EAA5D6F85BA1539100ADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:432ACDD0EF44DA3FF09EAA5D6F85BA1539100ADE
 ```bash
 magnet:?xt=urn:btih:8CFCD871BA7552F57EC94000650EB32535857DAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Brian Hamilton - Metro Man (1984) LP [MP3|320 Kbps] <Rock, New Wave, Lo-Fi, Elec
 magnet:?xt=urn:btih:ED239190475CB134DC124439FBA534BD937657B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:ED239190475CB134DC124439FBA534BD937657B5
 magnet:?xt=urn:btih:305E454DF8F038C4D794E66100836E3FCEF39A09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:305E454DF8F038C4D794E66100836E3FCEF39A09
 magnet:?xt=urn:btih:A9F67C4FC2A5087181900CF7C7D341F090513A6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:A9F67C4FC2A5087181900CF7C7D341F090513A6A
 ```bash
 magnet:?xt=urn:btih:8342CA889BFE55B72E03AD7426FF471D8B97A4F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ CD1 (01:20:29):
 magnet:?xt=urn:btih:BE20A13E479FBDBBBC5B079B37155A197FAF2CA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:BE20A13E479FBDBBBC5B079B37155A197FAF2CA3
 ```bash
 magnet:?xt=urn:btih:00EE0D3A0E5A9FB56250D26CDD3BA9A3F16796B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:00EE0D3A0E5A9FB56250D26CDD3BA9A3F16796B0
 magnet:?xt=urn:btih:016F6F29DB3AB473A77348292E8816F9C44B60DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ OnlineVideoTaker – это своего рода хранилище фильм�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ OnlineVideoTaker – это своего рода хранилище фильм�
 ```bash
 magnet:?xt=urn:btih:6DEDC37CC49F3EB7CBDA5A578B15D0EAEA64A75D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ Nolan Potter's Nightmare Band - Honey - Tales From the Library of the Occult (20
 magnet:?xt=urn:btih:E97FAA27EADE39F27CC76C01A9DB07B04F329478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:E97FAA27EADE39F27CC76C01A9DB07B04F329478
 ```bash
 magnet:?xt=urn:btih:4F6004EB497682EF5CCC133DA71DBD49F32184FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:4F6004EB497682EF5CCC133DA71DBD49F32184FD
 magnet:?xt=urn:btih:039DF439CC4FEDA43450C6BD5D9C38FC2F920F96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:039DF439CC4FEDA43450C6BD5D9C38FC2F920F96
 ```bash
 magnet:?xt=urn:btih:DD05BD935060E808D5E3327668E71D86F50947B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ Further Ahead Of Warp - 5 альбомов (2012-2014) Touhou Vocal /Doujin/ [MP
 magnet:?xt=urn:btih:BB49F4D480A55396F18A203F28101077AFD0F355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ magnet:?xt=urn:btih:BB49F4D480A55396F18A203F28101077AFD0F355
 ```bash
 magnet:?xt=urn:btih:3CB7B340DFEEE158875405017F80A0125B339C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:3CB7B340DFEEE158875405017F80A0125B339C62
 magnet:?xt=urn:btih:8B5B9EA6499492893B7A3C0CFF2CD2942977F0B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:8B5B9EA6499492893B7A3C0CFF2CD2942977F0B1
 ```bash
 magnet:?xt=urn:btih:B2044810BCA335CE1768E106010F2E2BB4FF3EE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ A4 R. Kelly And Public Announcement - She's Got That Vibe(   Читать дал
 magnet:?xt=urn:btih:7A45A5EB61B0B363CE7034430751BCE9E7F1167A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:7A45A5EB61B0B363CE7034430751BCE9E7F1167A
 ```bash
 magnet:?xt=urn:btih:68DB0EC1FD904F99F3E126451E16C40363287BC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:68DB0EC1FD904F99F3E126451E16C40363287BC2
 magnet:?xt=urn:btih:6C9205766F866B61EAAD6189148A4E5555486059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:6C9205766F866B61EAAD6189148A4E5555486059
 magnet:?xt=urn:btih:72FB1E7F7ED6F13C6AD33ED07B94941F60A36788
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:72FB1E7F7ED6F13C6AD33ED07B94941F60A36788
 ```bash
 magnet:?xt=urn:btih:475944D009A2D20421F375F771BA0E1E60F57DC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +700,8 @@ Hydra - Rock The World (1976) Reissue, 2010, Crossroad Productions [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:34D9C0E792A7AEC0DE4224C30C5AE1741651F89F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

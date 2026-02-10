@@ -19,6 +19,8 @@ Opera 97.0.4719.43 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:1A095C9B6F03949986BCB62ADD4EF9F4CD54B3CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:1A095C9B6F03949986BCB62ADD4EF9F4CD54B3CD
 ```bash
 magnet:?xt=urn:btih:F7649E255625A024E67E95E30AD27A9C2C7D4408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Grima - Will of the Primordial (2019) [FLAC|Lossless|image + .cue] <Black Metal>
 magnet:?xt=urn:btih:DA0CA027576DF742EF67FD014247DD295D62764C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:DA0CA027576DF742EF67FD014247DD295D62764C
 magnet:?xt=urn:btih:64620BF18B0C2996E33F0F9596FBD66B0D395C05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Prima Doll / Прима-кукла [2022, TV, 12] BDrip 1080p raw
 ```bash
 magnet:?xt=urn:btih:C4126ACFF33B34E8AFBA3CC3AF862EC6BCCAF2DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Opera GX - это специальная версия браузера Opera, с
 ```bash
 magnet:?xt=urn:btih:068591FDB1F7C7A6A9F627926B5A8573C0D00238
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ VA - Dirty Weekend (25 Groovy House Tunes), Vol. 3 (2022) [AAC|~331 Kbps] <House
 magnet:?xt=urn:btih:A10EF07B7C4AEDDB97F0D976E057812D2B037C8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ VA - Midnight Lounge Vol.13: Lounge Lunatic (2016) [MP3|320 Kbps] <Downtempo, Ch
 magnet:?xt=urn:btih:204612F3BA95813581B4C6EEDD3714DABD724496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ PlayerFab - совершенно новый проигрыватель PlayerFab
 ```bash
 magnet:?xt=urn:btih:7D9BAD24B3A8E2A0151963E5DFC07F49EBD4880C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:7D9BAD24B3A8E2A0151963E5DFC07F49EBD4880C
 magnet:?xt=urn:btih:DC5D9A313AC262E86D54C30C4DDC2D8898A52A9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Noizio - это приложение, которое заглушит уличн
 magnet:?xt=urn:btih:00CD2D33378B6070C789EAB00D39824B67991110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:91FF872F596F9F187F1B7874C6E1DBC0737C19C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ VA - Daydreamin' (Electronic Lounge Bubbles), Vol. 2 (2019) [AAC|~327 Kbps] <Lou
 magnet:?xt=urn:btih:196614911423B04C288CDFF75080DAF1C0926935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ HiPER Scientific Calculator Pro - очень полезное приложени
 ```bash
 magnet:?xt=urn:btih:098EB0C849BA64A1C5A663C3413D85030DC7A597
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ VA - Горячий хитовый драйв. Выпуск 8 (2016) [MP3|256 Kb
 magnet:?xt=urn:btih:38E690DC5930E6D6BC22B27541DE3F16D940A54D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:38E690DC5930E6D6BC22B27541DE3F16D940A54D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ Circus Of Rock - Lost Behind The Mask (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard
 magnet:?xt=urn:btih:3D45F9BC332711812D9B8CF77341D66F1F2367E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Hazer - Pessimist (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:C2103F61DD03FD77EA0FE6FD78958D072FD007BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:C2103F61DD03FD77EA0FE6FD78958D072FD007BF
 ```bash
 magnet:?xt=urn:btih:CBBD1F46793891D58DBEE22FF72A1875F0C602EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ HellBones - Crossing Borders (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, 
 magnet:?xt=urn:btih:0E019E9279C710BA942373486FC85FE8861EA093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ Void Stasis - Viral Incubation (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Ambien
 ```bash
 magnet:?xt=urn:btih:D199119ABBADE255707ACB78B5B141A0E354691D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +597,8 @@ magnet:?xt=urn:btih:D199119ABBADE255707ACB78B5B141A0E354691D
 magnet:?xt=urn:btih:BC15DD4EC33B8C577504A522B9844412838D68D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ VA - Chillax (20 Chill-Out Tunes), Vol. 2 (2017) [AAC|~311 Kbps] <Lounge, Chill 
 ```bash
 magnet:?xt=urn:btih:859EF00DC049169FE89686EBE704E772DFCEC5CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ Gwyn Ashton - Mojosoul (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:FACFC7DF4A1E6F931F9695265E61F24842BBDC6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:FACFC7DF4A1E6F931F9695265E61F24842BBDC6E
 ```bash
 magnet:?xt=urn:btih:0234211FD296614C94AB75B539349E4273BC37DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +709,8 @@ Motive Black - Auburn (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Modern Har
 ```bash
 magnet:?xt=urn:btih:96D543A8B976A2322C134C4353F192D61A74ABF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

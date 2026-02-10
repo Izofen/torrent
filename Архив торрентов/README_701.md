@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:DC2DD8DD8F082EE7F687C6E3B23A5B90EEE7E9A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ RadioMaximus - это полнофункциональный проигрыва�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ RadioMaximus - это полнофункциональный проигрыва�
 ```bash
 magnet:?xt=urn:btih:DCC6D280645594AACFB3869C9DB09126AF7E5066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ VA - Raw Exposed Vol.3 (2012) [MP3|320 кб/с]<Techno, Tech House>
 magnet:?xt=urn:btih:31556E5A3364398D14B1A9C2E0C8DD21DE84BD74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:31556E5A3364398D14B1A9C2E0C8DD21DE84BD74
 ```bash
 magnet:?xt=urn:btih:BCA54C163D4ADF098268CCE03BC145DC9DB81985
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Myon and shane 54 - International departures 119 (2012) [MP3|320 кб/с]<Trance
 magnet:?xt=urn:btih:908C7842400006E33A33C52C7DCD479D383592B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +199,8 @@ VA - Greenosophy (2012) [MP3|~237 кб/с (V0)]<Ambient , Downtempo , Electronic
 magnet:?xt=urn:btih:0074188B6297D246CCCF51134D0B185CBF64B66E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +228,8 @@ magnet:?xt=urn:btih:0074188B6297D246CCCF51134D0B185CBF64B66E
 ```bash
 magnet:?xt=urn:btih:538F42E4878A650DC7D6987711F9CD6B33634943
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +264,8 @@ VA - Dissolving Clouds (2005) [MP3|320 Kbps]<Psy Chill, Psy Dub, Ambient>
 magnet:?xt=urn:btih:16BBCB0563BB2EB909E26EAACA275430FEB0C026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +290,8 @@ magnet:?xt=urn:btih:16BBCB0563BB2EB909E26EAACA275430FEB0C026
 magnet:?xt=urn:btih:2C60840CAA5EB9B2EA72F35A334D25BF6E1A4B2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +315,8 @@ Mozilla Firefox - очень быстро работающий браузер, �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +349,8 @@ Symphonix - The Usual Suspects Remixes (2011) [MP3|320 кб/с]<Psy-Progressive>
 magnet:?xt=urn:btih:C175591FCACFDA02112B0CA4C1FEBA129CA16320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +374,8 @@ Process Lasso Pro - небольшая утилита, позволяющая в
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +401,8 @@ Process Lasso Pro - небольшая утилита, позволяющая в
 magnet:?xt=urn:btih:A205DE13D3902896CABE467E25B67A88784DC2C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +427,8 @@ magnet:?xt=urn:btih:A205DE13D3902896CABE467E25B67A88784DC2C7
 magnet:?xt=urn:btih:E113F25DD4570A754CD604F6638FAAC3BBB149E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +452,8 @@ Media Player Classic HomeCinema – удобный во всех планах м
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +480,8 @@ Media Player Classic HomeCinema – удобный во всех планах м
 magnet:?xt=urn:btih:179E1A7379B103784891CCE7CA41C69836905460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +505,8 @@ RadioMaximus - это полнофункциональный проигрыва�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +532,8 @@ RIDES - городской автомобильный журнал энтузи�
 magnet:?xt=urn:btih:671E518B060C0E8A768B6C86B6DF0FE99D210A22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +558,8 @@ magnet:?xt=urn:btih:671E518B060C0E8A768B6C86B6DF0FE99D210A22
 magnet:?xt=urn:btih:33794C303E6732672581C8DACA7327FA34EF9BC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +583,8 @@ magnet:?xt=urn:btih:33794C303E6732672581C8DACA7327FA34EF9BC1
 ```bash
 magnet:?xt=urn:btih:5556D30A00E83B31EFEF5A63E719275EC4DAADFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +612,8 @@ Apex - Omega Point EP (2012) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:9D5E778C9F61F23672D48BF94F34FB1115897AC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +648,8 @@ VA - Cosmos Just Now Beat (2012) [MP3|320 кб/с]<Dubstep, Progressive>
 magnet:?xt=urn:btih:02E4DAE89B790D594E3400631F5716CAE9AB7EE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +682,8 @@ CD1:1997Жанр: Drum'n'Bass, Jungle, IntelligentПродолжительнос
 ```bash
 magnet:?xt=urn:btih:1449E1D39F1CF75F485619CCD4DF69CECED05267
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ VA - Listen Up! 2012 [MP3|320 кб/с]<Drum'n'Bass, Soulful, Liquid Funk, Intell
 magnet:?xt=urn:btih:16487147ECC7D9AE78E4A2EB1B7F0E3408CCABF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ magnet:?xt=urn:btih:16487147ECC7D9AE78E4A2EB1B7F0E3408CCABF5
 ```bash
 magnet:?xt=urn:btih:EB140A0B72D8769EBC2D0935A1D3F0D4543E5A06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ ES File Explorer (File Manager) — это полнофункциональны�
 magnet:?xt=urn:btih:65F68DD5867C5FF18B3083CA3E965EA60EB98231
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Onvier - Монитор IP-камеры v19.55 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:883446E0A79B5A7A0080509CDFBD268665986038
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ MiHome v10.2.700 Mod by Vevs [Ru]
 magnet:?xt=urn:btih:94C703BEDBCEA9CB36634D775D2F7C6AF2145378
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Mr. Pillster / Напоминания о приеме таблеток v3.1.2 Mo
 ```bash
 magnet:?xt=urn:btih:EE3999D3FED3B234649A2B3A1E9DFB5CC6471A15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:EE3999D3FED3B234649A2B3A1E9DFB5CC6471A15
 magnet:?xt=urn:btih:E69D194F6E578E8898E7415EBC59B7917EAA1B44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Flud - простой и элегантный BitTorrent клиент для о�
 ```bash
 magnet:?xt=urn:btih:B0031553E5C76676DBBC871C03D8539267D48B77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v1.7.5 Mod by v
 magnet:?xt=urn:btih:090F386C301BCCC3A60AD19830DB4436514B2CAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:090F386C301BCCC3A60AD19830DB4436514B2CAD
 magnet:?xt=urn:btih:0F8578C32C6790C2313EAD6F27B22CE794ACD004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ BZ Напоминания и Дни Рождения PRO v3.6.3 Mod by vadj [Ru/
 ```bash
 magnet:?xt=urn:btih:16140BFDD15B1C6852C16541B3C16EB562ACFDA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Ocean Match / Рыбки: Три в ряд v3.0.7 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:8A8A379860619F9AFF0AAEC87B410B73C4476D59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ MIUI Hidden Settings Activity v1.6.6 Mod by TryRoom [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B118588C33145591EE36B856222EFF4641A7426C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:B118588C33145591EE36B856222EFF4641A7426C
 magnet:?xt=urn:btih:033F0F464FC6F525A6BC1C66A446B8E412115EE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:033F0F464FC6F525A6BC1C66A446B8E412115EE7
 ```bash
 magnet:?xt=urn:btih:854D246DC9A96CF9FEAE57D502048AF006AC3FA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ DRM-play — приложение для бесплатного просмотр
 magnet:?xt=urn:btih:E827EEB78C233E70363A9586FF7C74D6B050A0F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:E827EEB78C233E70363A9586FF7C74D6B050A0F1
 magnet:?xt=urn:btih:407324A8B5294DF643083794A0E38AE87FC63BC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ DtcFix -  универсальное приложение для диагнос�
 ```bash
 magnet:?xt=urn:btih:A7E0CEBE48B580ED3C469D21AB31B1C3A7EFACBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ VideoShow - AI Видео Редактор v10.2.5.2 Mod by AppZombie [Ru/Multi]
 magnet:?xt=urn:btih:2609DACD8E6798B35DDCAC2773486F5CC641D9DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ HeadUp Display (HUD) – это возможность использовать 
 magnet:?xt=urn:btih:EE73237B4ED1D4F91AD4417F527B899DE5B5E212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ GPS АнтиРадар v48.0 Mod by 0x7d [Ru]
 ```bash
 magnet:?xt=urn:btih:48F2A3641868B111E0342F3180024C3242BF01ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Textra SMS v4.79 Pro Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:921C5914C310D7DB7E81E21A8D4C3D9D5A75C097
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:921C5914C310D7DB7E81E21A8D4C3D9D5A75C097
 ```bash
 magnet:?xt=urn:btih:B8D766ECDCE47CB8F4597A89DD5FC19DF8BA56C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ PlayerPro Music Player - аудиоплеер, что предоставляет
 magnet:?xt=urn:btih:9A4FD1E5E67DD3F33DF007B56B74731581F7AECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ ES File Explorer (File Manager) — это полнофункциональны�
 ```bash
 magnet:?xt=urn:btih:1E3A2B8D5E75097719BA8F4EBF736C9772796E75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:1E3A2B8D5E75097719BA8F4EBF736C9772796E75
 magnet:?xt=urn:btih:3F0EC2A792672DEDD58F76B5B92C5F678DF99D38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ DailyRoads Voyager v8.1.1 (62) Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:FF8499442BE8F6A1A382732EB0466BCF3C051662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ HD Music Player v3.4.1.164 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:35E1DF516A78B4F34B8769EDF983B7DCCF6AE4F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

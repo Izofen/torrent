@@ -22,6 +22,8 @@ Sybreed (2025) Shout (Single)(   Читать дальше...   )Жанр: Indus
 magnet:?xt=urn:btih:476653598D86FF004F92668A16CC95E423FB82A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Florence + The Machine - Everybody Scream (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:7AAEA2FA1D6E6BFBCDB4E3B3DCDBD61FECDA449B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Rock Adrenaline (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:110C4CEC5E39EDCD53545121C5A31AFF8F46D818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:110C4CEC5E39EDCD53545121C5A31AFF8F46D818
 ```bash
 magnet:?xt=urn:btih:66FAEFB78CFD0B0D1A23B1CA8141E463E0A9F291
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Avatar - Don’t Go In The Forest (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Al
 magnet:?xt=urn:btih:7A75C9382FB9930425CB31729AF019C4DB0DDB03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Galactic Empire - Cinemetal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progre
 ```bash
 magnet:?xt=urn:btih:11C6A75DC4AAFC9C97EEACE8A616E0FA417C26AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Elettra Storm - Evertale (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Met
 magnet:?xt=urn:btih:D21D26890DBF0360970E4C28CE7B5294D6EE2F12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Mammoth - The End (2025) [FLAC 24/44.1|Lossless|WEB-DL] <Modern Hard Rock>
 ```bash
 magnet:?xt=urn:btih:EA8739985EA7EC21163EF17C0EF35555DBEC1EF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Biohazard - Divided We Fall (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rapcore,
 magnet:?xt=urn:btih:8E8A876D420278065648893FC942576FDB978D53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Downswing - And Everything Was Dark (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:202A12512497B603F7D578F4B16E18A4F25E4B0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Harkon - Love And Vore (2025) [MP3|320 Kbps] <Heavy Metal>
 magnet:?xt=urn:btih:1E780263B2F73EF0BDC1DA4127D0A10ED288614A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Acheode - Anxiety (2012) [MP3|320 кб/с]<Technical Death / Mathcore>
 ```bash
 magnet:?xt=urn:btih:AF741D5DE80E534FEEA40A1A474AC494779F0367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +372,8 @@ Bud Spencer - People Are Curious But From The Outside (2012) [MP3|320 кб/с]<P
 ```bash
 magnet:?xt=urn:btih:4B6CF191088C50841C2951B04EB3240DFFB96799
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +406,8 @@ Godgory - 4 альбома (1996-2001) [FLAC|Lossless]<Doom Metal, Melodic Death
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +434,8 @@ Godgory - 4 альбома (1996-2001) [FLAC|Lossless]<Doom Metal, Melodic Death
 ```bash
 magnet:?xt=urn:btih:ADD58614243E1A19BAB54EF95FB78E87CCD27D20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +464,8 @@ Extreme — американская рок-группа во главе с Gary
 magnet:?xt=urn:btih:818B669C30C976665714CDE284228235EFD98A94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +492,8 @@ The Other - Alienated (2025) [FLAC|Lossless|WEB-DL|tracks] <Horror Punk, Heavy M
 ```bash
 magnet:?xt=urn:btih:35892A27CBC67773163C2B12949CF0C9B369D948
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +522,8 @@ Wiltwither - Pure Light (2025) [FLAC|Lossless|WEB-DL|tracks] <Chaotic Hardcore, 
 magnet:?xt=urn:btih:749497682498C54B2319D25D8CF38C97C4BD154A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +550,8 @@ The Vazeline - Кризис Кроссоверов (2025) [MP3|320 Kbps] <Punk r
 ```bash
 magnet:?xt=urn:btih:D0BFF6FC7343245C388B7454CCCFF9F559503946
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +580,8 @@ Bad Rain - Louder Than Words (2025) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock, 
 magnet:?xt=urn:btih:711C198C5FF09D0FBAB6B8588054CB38FCA87EE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +608,8 @@ De Lirium’s Order - Veniversum (2012) [MP3|320 кб/с]<Technical Death>
 ```bash
 magnet:?xt=urn:btih:E3BBEE5EF92EB9DFA63FCF9C6CD519A1BF0E486B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +639,8 @@ Windhand - Windhand (2012) [MP3|320 кб/с]<Stoner Doom>
 magnet:?xt=urn:btih:FBE531A3ACE4D24812B2121E4100FFEBFD4DD375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +667,8 @@ Fallen Lillies - Cran (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Glam Metal, 
 ```bash
 magnet:?xt=urn:btih:BA3D571128F6DC2B022FF641D60BDFDD2732B7AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +703,8 @@ Alan Simon - Excalibur III - The Origins (2012) [MP3|320 кб/с]<Folk, Rock, Ce
 magnet:?xt=urn:btih:838FBDB72C1459A885BF0BB270B866FA38942F44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +738,8 @@ Russ Diapper - Kingsnake (2012) [MP3|~225 кб/с (V1)]<Hard Blues Rock>
 magnet:?xt=urn:btih:D33A067C24C958EC37A3385726B21E69BEE7A3FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -713,6 +763,8 @@ VA - Gothic Romance vol.1-4 (The Best Goth Love Songs) (2009-2011) [MP3|151-320 
 ```bash
 magnet:?xt=urn:btih:914C6429604B070DEA675B007C19E8D2C83F6BB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

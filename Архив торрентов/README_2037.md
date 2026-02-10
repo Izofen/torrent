@@ -21,6 +21,8 @@ Tweak Photos 2.3 [En]
 magnet:?xt=urn:btih:72785F2CC1A5847B19BE86931AD921F092755139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ AirRadar - приложение для сканирования WiFi сетей 
 magnet:?xt=urn:btih:73DF3A936FC9C71DB37CCC6E615406BB9EE1314C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ PowerISO - программа позволяет создавать, конве�
 ```bash
 magnet:?xt=urn:btih:60794EED6376B2B297A4E9CCFC3478C3EB607E09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ PowerISO - программа для работы с образами диско
 magnet:?xt=urn:btih:27E50943FAAC0926D7BC91FC747899F18C08BDA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Adobe Zii - это небольшая и замечательная утилит
 ```bash
 magnet:?xt=urn:btih:84026619A120AB722D6329BE5A25F45AE1290647
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Blow Up работает с Photoshop, Elements, (   Читать дальше.
 magnet:?xt=urn:btih:CB8B8B6D843D7D910E2CAB32FE4C2AB36D139760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Disk Graph - инструмент, который позволяет прове�
 ```bash
 magnet:?xt=urn:btih:32DD8172E5273ECD369924437DA36D0F15C5E9B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Folders Factory — сделай уникальными свои папочки 
 magnet:?xt=urn:btih:57786709C5FEF24AB70644D781F2645CB8A9B6B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ EazyDraw от Dekorra Optics – графическая программа, со
 ```bash
 magnet:?xt=urn:btih:A1DF025D6303A2DB55ADFA9DD37765B57242AC40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ PatterNodes - хорошо продуманный и настраиваемый 
 magnet:?xt=urn:btih:2F9724FADEDD303C269397333C1C649C37C0EFA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Find Any File не содержит никаких подменю с настр�
 ```bash
 magnet:?xt=urn:btih:A6CB8E778662DF078E56FBD23F4E93B3D73F7A02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавля�
 magnet:?xt=urn:btih:27F056C8146E688E8E87E2701D847DDBB95FA1F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ C 2009г активно разоблачает брехню о вакцинах,
 magnet:?xt=urn:btih:103CA416AF6AED47C9FA7A137BB0BA568830D53E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:103CA416AF6AED47C9FA7A137BB0BA568830D53E
 ```bash
 magnet:?xt=urn:btih:C904EA84D5D98AC340DB89695E38752AC87E196A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:C904EA84D5D98AC340DB89695E38752AC87E196A
 magnet:?xt=urn:btih:03A565CA933324D2DF58685AE8A793E96AB231C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ Opera 56.0.3051.116 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1248233055812929893096EB87FEF8EEC2EFD07A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ Auslogics Disk Defrag - программа, призванная помочь и
 magnet:?xt=urn:btih:9EE0DC9D0FC6C510CF98DCA5FD0507EE25E5F148
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:AE5F0887E366E55059C9BB60D5F547E1E88E56E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ Clint Richardson | Подкасты (2010-2018) [MP3] [En]
 ```bash
 magnet:?xt=urn:btih:10096022A8D1268D9208955929FAAF0E84E67FE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ Forrest Fang - Animism (2012) Projekt [FLAC|Lossless]<Ambient, Tribal>
 magnet:?xt=urn:btih:ABB699CCD514352681B37913BF1428BEF364652B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ AnyMP4 Video Converter Ultimate для Mac предлагает вам быст�
 ```bash
 magnet:?xt=urn:btih:2E6C8E25EB8ABE2BEFA2A85E18CFFB7B75B8F37F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ Sleipnir - быстрый и надежный браузер на базе дв�
 magnet:?xt=urn:btih:679D3CBD9D5808CEA9A8E61DB8AADB3B6EB11C77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ Hagane no Renkinjutsushi / Full Metal Alchemist: Brotherhood / Стальной 
 ```bash
 magnet:?xt=urn:btih:2457488CCACABEF69719110FBEFE827AE1100E76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ Kinza Browser - японский браузер на базе Chromium с доп
 magnet:?xt=urn:btih:92F2678A77FEB5F43C494CE92BD1223858D275B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ Kinza Browser - японский браузер на базе Chromium с доп
 ```bash
 magnet:?xt=urn:btih:E3B0A238F2C1C352DB5D128B609B2640AB1296F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +690,8 @@ MacPilot 10 v10.14 [En]
 ```bash
 magnet:?xt=urn:btih:04EAD6D83E764F5C2FEB81ACE197E4D528CB93D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

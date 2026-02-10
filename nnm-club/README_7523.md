@@ -19,6 +19,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:CA70A859A78706D8B814001FABD2D83E01EB9A1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ White Reaper - You Deserve Love (2019) [FLAC|Lossless|WEB-DL|tracks] <Garage, In
 magnet:?xt=urn:btih:2D9B38145F839BC01E1A3DD5F7095FFA5F2A5030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:2D9B38145F839BC01E1A3DD5F7095FFA5F2A5030
 magnet:?xt=urn:btih:A0647AF1A062B6043422E7414D0FB55453DD6A4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:BDFFC57E752B33D9203E91151003576971B87A99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ VA - National Pop Dance Music Vol.08 (2020) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:475A6462B4D62EBC1FEF35314C7D97B423D70C2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:475A6462B4D62EBC1FEF35314C7D97B423D70C2A
 ```bash
 magnet:?xt=urn:btih:B98B6D82836961A05D12C5DE9C03F54BEACE1D08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:B98B6D82836961A05D12C5DE9C03F54BEACE1D08
 magnet:?xt=urn:btih:A26F0892BFD1F2453DD009FDD642A7F6A9B2AFC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:A26F0892BFD1F2453DD009FDD642A7F6A9B2AFC7
 ```bash
 magnet:?xt=urn:btih:8301F61A2D137E4E7B20F1446A8151078C4B9DFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:8301F61A2D137E4E7B20F1446A8151078C4B9DFC
 magnet:?xt=urn:btih:9A85379780A725DF73592291A27BF1E01E1DE73A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:9A85379780A725DF73592291A27BF1E01E1DE73A
 ```bash
 magnet:?xt=urn:btih:F7CEB7C3EFC1BDA76CF33B6863BEEBE26B60415D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ Various Artists - The Best Of Energy Trance (2012) [MP3|320 кб/с]<Hard Trance
 magnet:?xt=urn:btih:623BEC9FD61439EAA919237CEA15BCEF40654785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:623BEC9FD61439EAA919237CEA15BCEF40654785
 magnet:?xt=urn:btih:A86037663085353544F5C67B9C3E61D09278A446
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ Remote Desktop Manager – это приложение для контроля �
 ```bash
 magnet:?xt=urn:btih:F93A907B74D345BF7E2D4D36C4C9312C9B197F33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ Blackbird Hill - Embers In The Dark (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 magnet:?xt=urn:btih:45CC184A418B29616FEBCE7F81782DE23763A6BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:45CC184A418B29616FEBCE7F81782DE23763A6BD
 magnet:?xt=urn:btih:863BD1CC748730D9C1BBE542BFFBA7401C018BA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:1BA9AB5506A7EBAE27AC833995AA0223C4513F5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ Louis Armstrong - Swing That Music 1935 - 1939 (1990) Jazz Archives [FLAC|Lossle
 magnet:?xt=urn:btih:767A07F117AA0C4D2B2175895EDC008A6706B402
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:767A07F117AA0C4D2B2175895EDC008A6706B402
 magnet:?xt=urn:btih:9DDE7A3049BC4BC92593CBA93D3500DF13DC47E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:9DDE7A3049BC4BC92593CBA93D3500DF13DC47E7
 ```bash
 magnet:?xt=urn:btih:E096311262F2893CACFA56AC69E40978B226A5D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ VA - В машине с музыкой Vol.310 (2022) MP3 [320 Kbps] <Pop, Dance
 magnet:?xt=urn:btih:EBAF8D00FED17DA2BD6D1144CCDE0A53E46724ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ magnet:?xt=urn:btih:EBAF8D00FED17DA2BD6D1144CCDE0A53E46724ED
 magnet:?xt=urn:btih:87E788A4AF00E9E14359688BD75B35969FF0DC5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:87E788A4AF00E9E14359688BD75B35969FF0DC5B
 ```bash
 magnet:?xt=urn:btih:0E6E6D35AD9C9E4D413BD8D8ADBAC664F0A7877B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:0E6E6D35AD9C9E4D413BD8D8ADBAC664F0A7877B
 magnet:?xt=urn:btih:FC21D6AA0A69697A0083A970F445E576B59395ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:FC21D6AA0A69697A0083A970F445E576B59395ED
 ```bash
 magnet:?xt=urn:btih:DE13ED12F939AE357931D6B6E188401A9D5427FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:DE13ED12F939AE357931D6B6E188401A9D5427FA
 magnet:?xt=urn:btih:92C88A894AEF6535DB55178DCAB2459A407162CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ Spectral Plugins - Spacer 1.0.0 VST, VST 3, AAX (x64) RePack by MOCHA [En]
 ```bash
 magnet:?xt=urn:btih:65084F83B314FBF40EECBE7F6C9779245695932E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

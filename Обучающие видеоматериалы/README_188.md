@@ -22,6 +22,8 @@ SDG TRADE | Старт на NYSE (2016) PCRec
 magnet:?xt=urn:btih:A424EBC076D72465952CA723560A213D4C9370A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -53,6 +55,8 @@ Six cardio and body-sculpting workouts using Sectional Progression to get slim a
 magnet:?xt=urn:btih:C2D60DEA33B38852A19C9A186B4FB83DAA8596F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ Corey Barker | KelbyTraining - Photoshop CS5 Down and Dirty Tricks [2010] DVDRip
 ```bash
 magnet:?xt=urn:btih:5759CA580793348CA42A18D19EBBB54D586A715F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ Udemy.com | Hacking School & IT Security Academy | Практический вз
 ```bash
 magnet:?xt=urn:btih:2332C7110F768FED8C940A751E46571752617B6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ magnet:?xt=urn:btih:2332C7110F768FED8C940A751E46571752617B6A
 magnet:?xt=urn:btih:E4FFB408A9D4595111769B6A4AB05BE219D41533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Oleg Lav | Создание образа системы — Acronis True Image (
 ```bash
 magnet:?xt=urn:btih:23112180E9F84D14A08254C76E4AF5F4C24C391A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ ProfiT | JavaScript с самого начала (2016) WEBRip
 magnet:?xt=urn:btih:6A2B99D54FD35699D2AAB20302C37D66103FE0EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ Profileschool | Photoshop - Curves. Работа с кривыми (2013) [PCRec
 ```bash
 magnet:?xt=urn:btih:C20023417949AD81DDFC887B4BEB48CD5E214756
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ Udemy.com | Infinite Skills | Написание безопасного PHP-ко
 magnet:?xt=urn:btih:598FC984774841961C14843B049F391E32FD33FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ SF Education | Инвестиционный аналитик (2020) WEB-DL [RU]
 magnet:?xt=urn:btih:93677879E730F840A4BA2F11C9840887F834865A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ CG Cookie, Tim Von Rueden | Piero - Animated Character Concept (Concept Art Cour
 ```bash
 magnet:?xt=urn:btih:7AC54068698AFBB58CD826FAE18E762152674035
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:7AC54068698AFBB58CD826FAE18E762152674035
 magnet:?xt=urn:btih:85CDBBFA200F7D6ADE5A309D5723C11509FBFD30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ Cryptoinside, Иван Шашков | Биткоин профи (2022) WEB-DL [A
 magnet:?xt=urn:btih:F61478A23112DFE3F760F7A75EB0AE05C12CD85D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ CG Elves, Camille Kleinman | Hoods & Hats Workshop (2016) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:C529F1222F2A64405C77DCE255F1C131338043FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:C529F1222F2A64405C77DCE255F1C131338043FF
 ```bash
 magnet:?xt=urn:btih:4BE2FC268D69D1AD04CC5A6A623E2F91B90F6D0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +438,8 @@ Digital Tutors | Основы компьютерной графики/ Learn the
 magnet:?xt=urn:btih:1FD8780F3B99EE94ECB970700BD559A2680B182E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ CGcircuit, Andy Van Straten | Skinning with nCloth Part II (2015) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:9F088D8D9751F95438822BBC1E2A25B539AEC4F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +493,8 @@ ProfiT | Мой первый сайт за 2 недели (2015) WEBRip
 magnet:?xt=urn:btih:01B2D0A0B8A7C68619C788487B74688F6DDBC858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ Lynda | 3ds Max 2015 Базовый тренинг/ 3ds Max 2015 Essential Train
 ```bash
 magnet:?xt=urn:btih:8372DFDF6F73C2E5088620679A286CDA28595F23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ Geekbrains | Основы программирования (2014) PCRec [H.264]
 magnet:?xt=urn:btih:12E87AA3521CDB31563440EA38DBF7BFCD0E74A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:12E87AA3521CDB31563440EA38DBF7BFCD0E74A5
 magnet:?xt=urn:btih:BB7D1025B4EEEC8F7968CD1D418B575718D5DA36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ Expert Trader | Обучение трейдингу (2014) PCRec
 ```bash
 magnet:?xt=urn:btih:B76209F22A065C977D68C75F69570359B1EE2199
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:B76209F22A065C977D68C75F69570359B1EE2199
 magnet:?xt=urn:btih:2BC4DA095D85275778FEF0C278C15F92357BEFBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ Udemy, Wenliang Du | Cryptography: A Hands-on Approach (2022) WEB-DL [EN / EN Su
 ```bash
 magnet:?xt=urn:btih:F50525A29AE267BB91BF1BA2DEDF1B1971A42A43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:F50525A29AE267BB91BF1BA2DEDF1B1971A42A43
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ MrChipTricks и др.| Трюки с фишками / Chip Tricks (2017) CamRip 
 ```bash
 magnet:?xt=urn:btih:AA0C72047E004B955C08DB3B89CED92012E7EB95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

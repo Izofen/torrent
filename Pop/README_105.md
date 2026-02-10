@@ -22,6 +22,8 @@ VA - DMC Dance Mixes 291 (2021) [MP3|320 Kbps] <House, Dance-pop, Tech House, Nu
 magnet:?xt=urn:btih:ED0486DC9D3B56C6141BE515067CA808B8320202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - DMC Dance Mixes 291 Ibiza (2021) [MP3|320 Kbps] <House, Dance-pop, Tech Hou
 ```bash
 magnet:?xt=urn:btih:91379929DE0F22F9DF4CF1323C48B86C15AC69E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Elvin Shaad - Live For Love (1978) LP [MP3|320 Kbps] <Electronic, Disco, Funk So
 magnet:?xt=urn:btih:65D50A4DAE5E00087DEEE438FEEF9CAA76CBC17D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Burito - Псевдопанк (2023) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:B827217F4B7A3255EF8F55AA3C9DBFC10AAEBDD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ CD1
 magnet:?xt=urn:btih:29C8A629766C3AE4237CE43C8AC17F5195DD1F41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Female Pop Hits (2020) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:78E25960509CC2223B7904AC7BF6D69199D7ED4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Leonid Agutin - La Vida Cosmopolita (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, L
 magnet:?xt=urn:btih:75F4C225206C658BAA36F3D1C620145F87E44AC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Enrico Intra - Momento Intra (1978) LP [MP3|320 Kbps] <Electronic, Disco, Pop, I
 ```bash
 magnet:?xt=urn:btih:796F0186FEAB6E3C5397147E28940BA9075EC639
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Poom - 2016 (2016) [MP3|320 Kbps] <Synthpop, Dance-Pop, Post Disco>
 magnet:?xt=urn:btih:80C35C7F14DA76748ED047B592F36D092F0EF14F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Ellie Goulding - Higher Than Heaven (2023) Deluxe [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:E99CF33D84AE25F83510F6940DE5C951D95E5F7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Corine - Un air de fete (2018) [MP3|320 Kbps] <Dance-Pop, Disco, Chanson>
 magnet:?xt=urn:btih:F34ED9D800BC0AC5B60AEB47E7E380F56FF46897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Bananarama - Masquerade (2022) 2CD, The Unmasked Edition, 2023, IN SYNK [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:05FE409186AD8A11236A9E1C7223F5A54C1C3C72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Everything But The Girl - Fuse (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, House,
 magnet:?xt=urn:btih:8270FD8FF9716B9B3C4AAFDB7590C5FDC6238793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Totally '80s (1993) 2 CD[OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:13E8271EE0E27BA693CD0787AC51873CF41C4539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Brandy Clark - Brandy Clark (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:6BB5E318827470D5E4B319E2E8656B47D195F739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:6BB5E318827470D5E4B319E2E8656B47D195F739
 ```bash
 magnet:?xt=urn:btih:311DCD80C17FA81700C8F7D54244D7317F470D88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ magnet:?xt=urn:btih:311DCD80C17FA81700C8F7D54244D7317F470D88
 magnet:?xt=urn:btih:14208966E9E3653EFEBB12D202294ED449DC1A29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Mega Hits 2014 (2023) [OGG Vorbis|480 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:13D98AE3D7510AE76C5AC85BBB82EA0D5F86721B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:13D98AE3D7510AE76C5AC85BBB82EA0D5F86721B
 magnet:?xt=urn:btih:A734ABB899D8248D59B1794D09057004A00791D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ magnet:?xt=urn:btih:A734ABB899D8248D59B1794D09057004A00791D2
 ```bash
 magnet:?xt=urn:btih:5982E17A0325BF05D40653CCFE3DC684234AA482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Silver Convention - Success (1976) LP, Compilation feat Penny McLean, Ramona Wul
 magnet:?xt=urn:btih:0C584C5C3B814463C5D0450A8B64F1996AFCC587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ VA - Премьер. 7 (1999) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:9E789855629BFE12A294A775E6C2B8FAA64A3CFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ magnet:?xt=urn:btih:9E789855629BFE12A294A775E6C2B8FAA64A3CFB
 magnet:?xt=urn:btih:1DF813A71F3D6E421D9E338A591947ACF6EFD735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ magnet:?xt=urn:btih:1DF813A71F3D6E421D9E338A591947ACF6EFD735
 ```bash
 magnet:?xt=urn:btih:178D8EB83429D19C771E3D84598DE7256A4DF835
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ magnet:?xt=urn:btih:178D8EB83429D19C771E3D84598DE7256A4DF835
 magnet:?xt=urn:btih:38DF9895F6D1E71A7CA3E90A950D6F8909EA93F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Kaioh - Emotional Fire (2021) [FLAC|Lossless|tracks] <Eurobeat>
 ```bash
 magnet:?xt=urn:btih:E135DB30A897C68A0D836EB97E7CBE561DED7B12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

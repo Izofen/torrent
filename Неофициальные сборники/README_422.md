@@ -1,3 +1,32 @@
+###  Публикация: 1135816   (679420) от 20.05.2017
+
+VA - Microversion Live To Exist: Psy Trance (2017) [MP3|320 Kbps] <Psy-Trance, Psychedelic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zeologic - Intelligence 6:43
+02.  Skyline - Waves 7:57
+03.  Psydog - Mushroom Recipe (141 BPM) 6:56
+04.  Vertigo Records - Wtich Technology (Remix) 7:49(   Читать дальше...   )Жанр: Psy-Trance, PsychedelicПродолжительность: 05:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:274182AAEE854EFECF76E72803BC0E73375F7019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135717   (679422) от 20.05.2017
 
 VA - Высшая лига. Весна. Версия 8 (2017) [MP3|256 Kbps] <Pop>
@@ -21,6 +50,8 @@ VA - Высшая лига. Весна. Версия 8 (2017) [MP3|256 Kbps] <Po
 ```bash
 magnet:?xt=urn:btih:FAFE85E012AB8C27CEEA12E33CE5DF4B2E44BB5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +86,8 @@ VA - World Of Relax (2012) [MP3|320 кб/с]<Relax>
 magnet:?xt=urn:btih:4F205921FE8E032D99174A9B1F67A8B431621E97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -79,6 +112,8 @@ VA - Sexy Music Compilation *Selected by Carlo Cavalli* (2012) [MP3|320 кб/с]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +137,8 @@ Silent Circle - Touch In The Night (2018) Remix [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:7CF9B4984CC2C43AC51E9DA54F6B622644428F51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +167,8 @@ Enigma - The Collection (2016) 2 CD [MP3|320 Kbps] <New age, Enigmatic>
 magnet:?xt=urn:btih:12605FD8317E11182B3E2654C12CD01527F5B524
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +195,8 @@ VA - Русский Рок-н-ролл (2016) [MP3|192-320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:8A5F6820BD23B63A3223A84918E4B72A3E439DE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +225,8 @@ VA - Over 300 Summer Chillout, Lounge & Ambient Beats (2016) [MP3|320 Kbps] <Lou
 magnet:?xt=urn:btih:0534D73D27787735F86BE13735FEF073EDD77CF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +253,8 @@ VA - Блатная волна Best (2016) [MP3|256 Kbps] <Шансон>
 ```bash
 magnet:?xt=urn:btih:2FA8FE93EC552A25AD1B869EB3BF17482D205C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +283,8 @@ VA - YR Best Chillout Vol.43 (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
 magnet:?xt=urn:btih:B9D32224842E088E11D9F036411E27988B7799FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +311,8 @@ VA - Trance Hot June Paradise (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, M
 ```bash
 magnet:?xt=urn:btih:8339ABF974C2BAF03E6BAC56F984A2CC0C717047
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +341,8 @@ VA - The Best of Trance 47 (2016) [MP3|320 кб/с] <Trance>
 magnet:?xt=urn:btih:D67C70F589A2F6D05B58CF3B9C2B375F6FD2C11A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +370,8 @@ VA - Future Trance Energy 001 June TOP (2016) [MP3|320 кб/с] <Trance, Uplifti
 magnet:?xt=urn:btih:908BAA79F99E55232DF83ACA3F3087300918DB47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +397,8 @@ Kaleo - Compilation (2022) [MP3|320 Kbps] <Rock, Post-Rock>
 ```bash
 magnet:?xt=urn:btih:3D70CBA9C4FC7731560766BB2B2516AD88FE0345
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +427,8 @@ VA - Serious Sam - Siberian Mayhem (2022) [MP3|320 Kbps] <Score>
 magnet:?xt=urn:btih:B5C11EB5E1089E6E1F59311AD1E536FC58C57389
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +455,8 @@ VA - Quik And Fast Night House Mix (2017) [MP3|320 Kbps] <Club, Dance, Electro H
 ```bash
 magnet:?xt=urn:btih:316C7B0E656137F8475324DDA68652F23EB15428
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +485,8 @@ VA - German Top 100 Single Charts 25.03.2019 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:2B06608D1F59F69D5622131C3029DF959AA41267
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +513,8 @@ VA - 100 Greatest Love Songs (2017) [MP3|320 Kbps] <Pop, Blues, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:37F487B1446679DCBA91FD7101E5439B6F3AE76A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +543,8 @@ VA - All Day Breack Fast: Respect Collection April (2018) [MP3|320 Kbps] <Rap, H
 magnet:?xt=urn:btih:301D29F3D3007F9F00180EA6E8A0DDF7DD8DB805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +571,8 @@ VA - EuroDance Party Vol.3 (2017) [MP3|320 Kbps] <Eurodance>
 ```bash
 magnet:?xt=urn:btih:901543B64B3B2A19FA2FF43CAAFA0872825B6CF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +601,8 @@ VA - Workout Mix Will Dance (2018) [MP3|320 Kbps] <Nu Disco, World, Banda>
 magnet:?xt=urn:btih:A107D66F3E66D0C413FAD775FA0193ECE4FB16BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +629,8 @@ VA - Synthetic  vol.5 (2017) [MP3|219-320 Kbps] <Synth Pop, EBM>
 ```bash
 magnet:?xt=urn:btih:26045307401C79285CB638469CF516FC00C2B5DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +665,8 @@ VA - Trance In Motion vol.117 (Mixed By E.S.) (2012) [MP3|320 kbps]<Trance, Voca
 magnet:?xt=urn:btih:B30B842A021D714C8E0BE8331C532BD7429142FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +700,8 @@ VA - Фолк Навигация (2011) [MP3|320 кб/с]<Folk, Rock>
 magnet:?xt=urn:btih:F170D6485CD189D4F5787D775F14EA2D73532311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +730,8 @@ VA - The Official UK Top 40 Singles Chart (15-06-2014) [MP3|320 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:B11CD5AC4977A3CD3C4D2C796C4C407CF7B515E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -689,32 +766,7 @@ VA - Trance Mixtape (Flaming June) (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:7C51E5F3B7159461EE3FF4BF059ABF96266784A2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289857   (681796) от 18.03.2019
-
-VA - Empire Records - Red Star 6 (2019) [MP3|320 Kbps] <Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andromeda Dreams - Warp Drive
-02. Dance With The Dead - Entity
-03. The Gates Of Hell
-04. Galactic Warriors - Mysterious World(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D16ECABF3B3BFEB6243771B8DAEDA207624BAA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

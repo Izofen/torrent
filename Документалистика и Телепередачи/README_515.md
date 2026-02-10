@@ -1,3 +1,29 @@
+###  Публикация: 1025208   (712050) от 11.06.2016
+
+Научное расследование Сергея Малозёмова. Еда живая и мертвая (2016.06.11) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712050.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Еда живая и мертвая» – новый научно-популярный цикл Сергея Малозёмова, репортера с медицинским образованием, автора и ведущего программы «Чудо техники» и научных расследований о климате, технологиях, бессмертии и экологии.Производство: НТВЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E92B139CE46259E26AC2E7AD25B4C309B7A20A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025305   (712052) от 11.06.2016
 
 Аида Ведищева. Играя звезду (2016) HDTV [H.264/1080i]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0D0C4B646825825CCF4EDE24BF9495E99BC238A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:0D0C4B646825825CCF4EDE24BF9495E99BC238A6
 magnet:?xt=urn:btih:515FF4BC9578C821EE5BAE5457ADE50F0F2DAA46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:515FF4BC9578C821EE5BAE5457ADE50F0F2DAA46
 ```bash
 magnet:?xt=urn:btih:D29672CF68EBA768CD0769454F94E2B6C2A10AC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:D29672CF68EBA768CD0769454F94E2B6C2A10AC8
 magnet:?xt=urn:btih:61F99E5D35FBA9724D7A7C7E76DA6E3BA6E29AE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:61F99E5D35FBA9724D7A7C7E76DA6E3BA6E29AE2
 ```bash
 magnet:?xt=urn:btih:1551D6210668B6B497F83FA23E6BF1D397FDD345
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:1551D6210668B6B497F83FA23E6BF1D397FDD345
 magnet:?xt=urn:btih:03616313834156DD8DDBDED581E7294EF9828EB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:03616313834156DD8DDBDED581E7294EF9828EB7
 ```bash
 magnet:?xt=urn:btih:E952AC211E3D388DB557BCAD669E3AC4184B84FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:E952AC211E3D388DB557BCAD669E3AC4184B84FE
 magnet:?xt=urn:btih:80445A9345674AC9B634B83444FE5F474DF68153
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:80445A9345674AC9B634B83444FE5F474DF68153
 ```bash
 magnet:?xt=urn:btih:195933A4691607B9B7502E6016A4B0CCF5188825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:195933A4691607B9B7502E6016A4B0CCF5188825
 magnet:?xt=urn:btih:306927CBAC85D3E6D6E98929CD40C9B801E5E5B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:306927CBAC85D3E6D6E98929CD40C9B801E5E5B8
 magnet:?xt=urn:btih:9696F563A79C9F203BEBE22D6FE0953AC2C84895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:9696F563A79C9F203BEBE22D6FE0953AC2C84895
 ```bash
 magnet:?xt=urn:btih:1A6BA79006413F3DDB359A8ED83DD2C5D2CA2BA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:1A6BA79006413F3DDB359A8ED83DD2C5D2CA2BA6
 magnet:?xt=urn:btih:B4FA4C5ED8942247417CE8F91311B19B2E93393A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:B4FA4C5ED8942247417CE8F91311B19B2E93393A
 ```bash
 magnet:?xt=urn:btih:1D330E8080DF8CA9D97CD5C2FF93254550BFAC88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:1D330E8080DF8CA9D97CD5C2FF93254550BFAC88
 magnet:?xt=urn:btih:482C77ED76A9706BBDD73D4BB06FA3C5E7FEAE38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:482C77ED76A9706BBDD73D4BB06FA3C5E7FEAE38
 magnet:?xt=urn:btih:63BA334C479A4E8A2F5FC0912CA731E3CF13CE84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:63BA334C479A4E8A2F5FC0912CA731E3CF13CE84
 ```bash
 magnet:?xt=urn:btih:239762B23556DDEB0A0D81FE44272D0A708BDD9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ NG: Последние герои войны / World War II: The Last War Heroes
 magnet:?xt=urn:btih:E0DE4037C9E44BC83BCFF927254E4B61067C8FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:E0DE4037C9E44BC83BCFF927254E4B61067C8FEA
 ```bash
 magnet:?xt=urn:btih:F70EF2E07732DA369AD0DE19B5AAEA571FC83DBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:F70EF2E07732DA369AD0DE19B5AAEA571FC83DBD
 magnet:?xt=urn:btih:BC098C553E816FF94AFA77FC14960587EFC1717A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:BC098C553E816FF94AFA77FC14960587EFC1717A
 ```bash
 magnet:?xt=urn:btih:0D146E5B6D62B549EE2931AD385736DC0AA8F85E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:0D146E5B6D62B549EE2931AD385736DC0AA8F85E
 magnet:?xt=urn:btih:3FE75153F18E7217C4590691BDB191BDBCDC6DA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:3FE75153F18E7217C4590691BDB191BDBCDC6DA2
 ```bash
 magnet:?xt=urn:btih:EE539920A31E8F106E0FD2C2A76A966EF0C2423A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:EE539920A31E8F106E0FD2C2A76A966EF0C2423A
 magnet:?xt=urn:btih:92D1C36D8C717885845E1365BB639EB79114AAAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:92D1C36D8C717885845E1365BB639EB79114AAAF
 magnet:?xt=urn:btih:69DE270849B7D33B147871926DD7B80C4BD8CF17
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532710   (712699) от 20.02.2022
-
-Следствие вели... (20.02.2022) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712699.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Девушка с памятника». Ленинград, 1966 год. В заводском общежитии убита девушка. Почему в ее смерти обвинили нечистую силу? Что обеспечило алиби подозреваемому? И как убийцу выдала синтетическая ткань? Дело о безграничной любви и нечистой силе – в фильме из цикла «Следствие вели…»Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04A6841D4232D7852D9C73F6CFD223289E527833
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

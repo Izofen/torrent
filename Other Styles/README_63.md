@@ -22,6 +22,8 @@ Peter Kater - Dancing On Water (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pi
 magnet:?xt=urn:btih:D60AB1AA32780EBF99C30F14351A942CEF070058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Wychazel - Beneath an Autumn Moon (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:EF7438BE386621625A59994911D554B6EC6BF1F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Junichi Kamiyama - The Best Musics for Overcoming Anxiety and the Stress Managem
 magnet:?xt=urn:btih:4CF0744CFAB5B72C909E1FBD43991399690CE494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Age of Echoes - Into Eternity (2018) EP [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:ED39D546628565D7ADC423A93766599A11082CD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Anthony Greninger - A Light in Darkness (2018) [FLAC|Lossless|WEB-DL|tracks] <In
 magnet:?xt=urn:btih:91BE4FA2BDF17544841C730557F3E7BED13B1405
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ VA - Visions (1995) [FLAC|Lossless|tracks + .cue] <New Age,Instrumental,Jazz>
 magnet:?xt=urn:btih:F1B35FF7D319B5F5CA3623166480566916E28C9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ Wychazel - Ashram (2019) [MP3|320 Kbps] <New Age, Mantra>
 ```bash
 magnet:?xt=urn:btih:E91F0CEF73A117E2EE5EA58D4747EBE535358D0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +224,8 @@ Medwyn Goodall - The Goddess of Machu Picchu (2019) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:AC5BB6C5C4806541BACE5A27AA860E72CC491D92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +252,8 @@ magnet:?xt=urn:btih:AC5BB6C5C4806541BACE5A27AA860E72CC491D92
 ```bash
 magnet:?xt=urn:btih:CC0371CA8AC29B3FFC448883A649200629C904D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ Bob Weir - Blue Mountain (2016) [MP3|320 Kbps] <Folk Rock, Country Rock, Psyched
 magnet:?xt=urn:btih:C2E207E2D444520A2540E4CA205347A445861DBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ Sensual Music Academy - Ambient Tantric Melodies (2020) [FLAC|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:6C51AAE5DD8807BA3673B2348CCF3CD69063BAC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +340,8 @@ Meditation Music Masters, Reiki Tribe - Erotic Side of Yoga (2020) [FLAC|Lossles
 magnet:?xt=urn:btih:567E7FA070D23AC43FDCDB628B853330746CE235
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ Tantric Music Masters - Fertility Energy of Couple’s Yoga (2020) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:6D89497F20BE515860D6B65EDACA27E3E7EA9B54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +398,8 @@ Charles Segal - When You're in Trouble (2020) [FLAC|Lossless|WEB-DL|tracks] <Ins
 magnet:?xt=urn:btih:2196518CB538FFB84B276817B7832DF765CCC7EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ Eshana - Kalpana (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Spiritual
 ```bash
 magnet:?xt=urn:btih:C5D0D3A33A86C655EDA6AD71A2A7F7582E9AC901
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ Logos (Stephen Sicard) - Le Temps des Archanges (2017) [MP3|320 Kbps] <New Age, 
 magnet:?xt=urn:btih:73064B8345DBED034353B5D4D724EE3D08EA339B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ Carter Burwell - Seven Psychopaths (Семь психопатов) (2012) [MP3|3
 ```bash
 magnet:?xt=urn:btih:CC4993B2A16F238A339E2DA37C3669AC94A7B766
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +520,8 @@ Need for Speed Most Wanted  (2012) [MP3|320 кб/с]<Score>
 magnet:?xt=urn:btih:6DF5E9F79599A05B68ADA51F4E4953B90ADBCC67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +555,8 @@ Lorne Balfe - Assassin's Creed 3 (2012) [MP3|320 кб/с]<Game OST>
 magnet:?xt=urn:btih:7A539947364D110B65BE86B7CAB7566FA830B2B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +583,8 @@ Medwyn Goodall - Medicine Woman (The Lost Tracks) (2017) [FLAC|Lossless|tracks] 
 ```bash
 magnet:?xt=urn:btih:3327C6CB81C3B91F1A0518B84719A601DEEC5910
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +613,8 @@ VA - Latino Hits Power (2017) [MP3|320 Kbps] <Latin Music, Reggaeton>
 magnet:?xt=urn:btih:836B667543288A1A2C2D0A96D90BACB1504B2AEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +642,8 @@ Meldis - Грани Миров (2013) [FLAC|Lossless|image + .cue] <Folk, Celtic
 magnet:?xt=urn:btih:7E758BC1859767CBA097215E4D2ACC8C9A63107A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +670,8 @@ Medwyn Goodall - Medicine Woman 6: Synchronicity (2017) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:9A215E550E28A8705BA61CC04B4FAD4B590C91F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +706,8 @@ Neil Davidge - Halo 4. Original Soundtrack (Special Digital Edition) (2012) [MP3
 magnet:?xt=urn:btih:9FC5F1F9FC0B9ECC98877D3C7FE8673749AB969C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,6 +740,8 @@ Merlin's Magic - Just Harmony - The Very Best Of Merlin's Magic (2009) [MP3|320 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -718,6 +768,8 @@ Kristofer Maddigan - Cuphead - Original Soundtrack (2017) [MP3|320 Kbps] <Score>
 ```bash
 magnet:?xt=urn:btih:340C29F5700769848F3D079CC5F558A91FD55DCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

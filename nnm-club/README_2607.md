@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:18B1CEADABF1E1CFFB91EF4DD6D06EF2BA638E8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VA - Milk & Sugar Miami Sessions 2025 [FLAC|Lossless|WEB-DL|tracks] <House>
 ```bash
 magnet:?xt=urn:btih:46C9D200CE2876FF10046DFB83280E546B8D8DBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Ancient Silence - The 1st Album (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 magnet:?xt=urn:btih:3885A5B89849904F1B6E210DD330875B8D993767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Sebastian Bach - Kicking & Screaming (2011) [FLAC|24/96|image + .cue|Vinyl-Rip] 
 magnet:?xt=urn:btih:997305471A5AE30EF150B4697C7C8AF8E76C561F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:997305471A5AE30EF150B4697C7C8AF8E76C561F
 ```bash
 magnet:?xt=urn:btih:2C3009F30636927615C64491577F88A2B17F13E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ VA - I Love ZYX Italo Disco Collection 15 (2013) 3 CD [OGG Vorbis|480 Kbps] <Ele
 magnet:?xt=urn:btih:9E19C8B366CA09405424616C9F0E9AFAA38B39A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ Ariana Grande - eternal sunshine deluxe: brighter days ahead (2024) brighter day
 magnet:?xt=urn:btih:AF9EA5CB44C675E8C8D25BC76E06A71D18EAF3FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:AF9EA5CB44C675E8C8D25BC76E06A71D18EAF3FD
 magnet:?xt=urn:btih:EEF1AC72F3DF6E30C8C1A8288F7D2C9A697990A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ PowerDirector – Video Editor v15.0.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B2872EFB7D3E7E680300CE91A9D0CF2BC724DE7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:B2872EFB7D3E7E680300CE91A9D0CF2BC724DE7A
 magnet:?xt=urn:btih:4E2A2147D7D3FA15A5374DFD13FCC03ADC2FEE65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:5C957FD36A8BFC302C866CA202C0898E77C78C46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:5C957FD36A8BFC302C866CA202C0898E77C78C46
 magnet:?xt=urn:btih:2D49305828FA4DD34B237BB7DCD948244E557C61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:2D49305828FA4DD34B237BB7DCD948244E557C61
 ```bash
 magnet:?xt=urn:btih:5AA340D8FFE0E5AFB27D07E1363499452E22AFD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 magnet:?xt=urn:btih:3402071BA31F0DEF295C16C4AEEBB177DFCA225B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:3402071BA31F0DEF295C16C4AEEBB177DFCA225B
 magnet:?xt=urn:btih:CE922FCE06C242B0055617534A2BDE6BBAC1478E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:6A159B87EEF2A793AD6AFF838B5BA199B477AF1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Re-Main | Ре-Мейн [2021, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-bit raw
 magnet:?xt=urn:btih:B16F3E9177F43681E8BD62B56629B8AB664EEACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:B16F3E9177F43681E8BD62B56629B8AB664EEACD
 ```bash
 magnet:?xt=urn:btih:6F72AC1CEA9400290D919694B8C11C104DEA8929
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:6F72AC1CEA9400290D919694B8C11C104DEA8929
 magnet:?xt=urn:btih:39CEBF367D91D0E92054CD983B70B0FDFB8F6072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ EXOVERB предлагает 50 реалистично звучащих акус
 ```bash
 magnet:?xt=urn:btih:BCD82F26403D8C1D460BC63D9802C68F690F584D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ VA - Energy Of Calm Sound Currents (2025) [MP3|320 Kbps] <Chillout, Ambient, Lou
 magnet:?xt=urn:btih:867B077CAD7A404D7ADAB3CF04112CDF555DBC15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:867B077CAD7A404D7ADAB3CF04112CDF555DBC15
 ```bash
 magnet:?xt=urn:btih:19DDEDD5E06E33A582A826D62FC1012C572D2F73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ Bordeaux - Pesa tutto il mondo addosso (2025) [FLAC|Lossless|WEB-DL|tracks] <Ita
 magnet:?xt=urn:btih:3F8384FA398E01B19DB09C5767908659B149BF38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:3F8384FA398E01B19DB09C5767908659B149BF38
 magnet:?xt=urn:btih:25F553B0C4349750C232FF09CE3D6F4731CD6C89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:25F553B0C4349750C232FF09CE3D6F4731CD6C89
 ```bash
 magnet:?xt=urn:btih:628DB38EEAF430A8B14B41EFD680FEB3D3715A31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +696,8 @@ Mhammed El Alami played:
 ```bash
 magnet:?xt=urn:btih:30A9D5393D7DFEF3918C571415AE7787C9F84E43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

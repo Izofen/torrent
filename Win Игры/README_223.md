@@ -19,6 +19,8 @@ Boxes: Lost Fragments бросает вас с головой в роскошн�
 magnet:?xt=urn:btih:5DBBC317FD3E3F6518D18C2886BE8F8C99520FF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Murder Is Game Over: Deal Killer (2024) [En] (2.0) License GOG
 ```bash
 magnet:?xt=urn:btih:A01F7C877E6C2C92D8E9E579DF46DE2DF9F73B29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Legendary Hoplite использует сеттинг, вдохновленно�
 magnet:?xt=urn:btih:575E15430D0F8CB72847E841532962ED70C24A81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Don't Pee – вы внезапно проснулись посреди ночи
 ```bash
 magnet:?xt=urn:btih:5BF3472549A5169144CBE7639E38D61A098D78E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Heroes of Eternal Quest – окунитесь с головой в настоя
 magnet:?xt=urn:btih:9EF3CDB570B3DF05CDCB70F324DFC4B7E94CEE22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Splice (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4AED28822405D720FAC57F17E9DF2855BBF61369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Chorus (2021) [Ru/Multi] (1.0.9.216752/dlc) Repack Decepticon
 magnet:?xt=urn:btih:CB6A016381036F0644F8859AE3366752A43E78C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Steel Echoes – сойдитесь в эпическом противостоя
 ```bash
 magnet:?xt=urn:btih:B57C6E07FDE2B861345BE80B4BBBE2A905D48E43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Great Rebellion - экшен с олдскульной пиксельной 
 magnet:?xt=urn:btih:9AFEA1F08DA9608C6CF16B0B1B5C2BEE73866309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Anomaly Agent - динамичный 2D экшен-платформер, в ко
 ```bash
 magnet:?xt=urn:btih:1659CB76614AF908A1C029F2F8E3F765424A3C69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Y. Village - The Visitors (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:9AA96A79603881B54FBA0500E1D7266EB81D0910
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ BeachHead (2024) [En] (1.3.25) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5E4D9B01C9D6CA323AD60296C81514B53C80A84C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Not Another Weekend - это приключенческая игра в форм
 magnet:?xt=urn:btih:AD64B8FCE28E832F41C49BBDF8AC99532A30F2B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Spells and Secrets - приключенческий экшен с элемент
 ```bash
 magnet:?xt=urn:btih:27E01E2B86342B8A85F536B3B1B49E2BADD78D71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Magical Girl Celesphonia (2022) [Multi] (5/dlc) License GOG [18+]
 magnet:?xt=urn:btih:0EEE82F81DC490556F3B782866F05C464076F6F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Darkest Dungeon 2 - сиквел готической ролевой игры, �
 ```bash
 magnet:?xt=urn:btih:B82CC83B6BC524EF2AF203DF70129B51D1B0C4CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Last Worker является атмосферным проектом, пре
 magnet:?xt=urn:btih:76C227427BC05B52D8EBB3C244068D69984252F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Boxes: Lost Fragments бросает вас с головой в роскошн�
 ```bash
 magnet:?xt=urn:btih:27FA119B4B8018A81995D132B32BCF5FCA84CC84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Shards of Chaos - это визуальная новелла в жанре фэ�
 magnet:?xt=urn:btih:FF2A4DE6D94BE914AD614ECEA1EE155501FBB6E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The House of Da Vinci (2017) [Ru/Multi] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:1D19EF549CAB8EA0054B2B0F2B2C3DED981F146A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ RIN: The Last Child (2024) [Ru/Multi] (221) License GOG
 magnet:?xt=urn:btih:3323327FC7A8F2ABE6601704066DB83948B8522C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Long Gone Days – ролевая игра о современном мире и
 ```bash
 magnet:?xt=urn:btih:10284043BF945C282180C2F269BB1302DCDA464F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Floating Life 2 воплощает инновационный дух инди-р
 magnet:?xt=urn:btih:1151D90396F7DC0B822E04BF7BD09DA5EB77D31B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ COCOON (2023) [Ru/Multi] (13127050) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:D1977132C6ABFBE6D7DB1A6FDCEC4CBDB8375672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Fishing: North Atlantic (2020) [Ru/Multi] (1.8.1151.18467/dlc) License GOG
 magnet:?xt=urn:btih:8C961026553FCBCC0A79B02B75C77FF2AF7A1F9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Elder Scrolls V: Skyrim Anniversary Edition — это улучшенное 
 ```bash
 magnet:?xt=urn:btih:FB148CB90CB8688E035EDB6461FCD666A0F1A172
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

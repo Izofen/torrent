@@ -20,6 +20,8 @@ Violence Jack: Jigoku Gai | Violence Jack: Evil Town | Жестокий Джек
 magnet:?xt=urn:btih:EDFF6386F5BD423C5D1DFE57A459F5C3A5079EAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:EDFF6386F5BD423C5D1DFE57A459F5C3A5079EAD
 ```bash
 magnet:?xt=urn:btih:A19C9A46C2069B1DA1EE4A77E7A817305932C663
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Violence Jack: Harem Bomber Hen | Violence Jack: Slum King | Жестокий Д
 magnet:?xt=urn:btih:3FF48D9906130E6E21B9F4D71F594F75571959B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 ```bash
 magnet:?xt=urn:btih:AA5BF698972F400373D43E5AA217871803E76404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ VA - Deep House Summer Hits 2023 [MP3|320 Kbps] <House, Deep House, Dance, Club>
 magnet:?xt=urn:btih:94341D7C91503E01190949C560526872D5837F26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 ```bash
 magnet:?xt=urn:btih:FF498B5894F31A00A435305E83F235361A69D725
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Run-Command - небольшая программа, которая создан
 magnet:?xt=urn:btih:80713E804A9C5C0956076BDCAF7DC9A6C7529A8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:80713E804A9C5C0956076BDCAF7DC9A6C7529A8E
 ```bash
 magnet:?xt=urn:btih:47485846A1564850E94FC49B0CA3853982EB5D22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:47485846A1564850E94FC49B0CA3853982EB5D22
 magnet:?xt=urn:btih:67C5231C3938B546993B262F27B9C274092793A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:67C5231C3938B546993B262F27B9C274092793A7
 ```bash
 magnet:?xt=urn:btih:1CC9A7B8B36F7974E92DE231AAB2910D646BA6B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ GOM Player Plus - мультимедийный плеер со множеств�
 magnet:?xt=urn:btih:00398A089F84CB9791C9D4F57C709A06421EFA7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ MythBusters: The Game - Crazy Experiments Simulator (2022) [Multi] (1.0.88) Lice
 ```bash
 magnet:?xt=urn:btih:DBF8A20D5E2822A1A8F5E340FEE7A7266757A034
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:DBF8A20D5E2822A1A8F5E340FEE7A7266757A034
 magnet:?xt=urn:btih:236BAD7FC6D974C9603FA7A60854743C5CA25308
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ WizTree - небольшая и полезная утилита для опре�
 ```bash
 magnet:?xt=urn:btih:8D1F62E5B7768DC613BFC3C8A936880F0E58E281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:36157FA944B912E5B1DA2D90A4CB8268CD550360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ GiliSoft Video Converter Discovery Edition (Repack & Portable) - легкий, �
 ```bash
 magnet:?xt=urn:btih:674086E38A9BB4D227E9942DA178C588F5D4B1B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ IT Expert - журнал для профессионалов в области I
 magnet:?xt=urn:btih:D2614EF9E7F6567D678EF1AB1F8B2402802B57D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ TreeSize Free 4.7.0.522 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4AB2C50F256205E617AF5ACC492AA234872E0F79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ VA - Summer Sun Vocal Trance (2023) [MP3|320 Kbps] <Uplifting Trance>
 magnet:?xt=urn:btih:72E6D9402D18A2C367EBC736C0E19F794D786DCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Wondershare UniConverter - простой в использовании виде
 ```bash
 magnet:?xt=urn:btih:15F9B86FF7D0602394A3147E563858B1CD849A1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Saikin Yatotta Maid ga Ayashii | The Maid I Hired Recently Is Mysterious | Мо�
 magnet:?xt=urn:btih:066CC8FC1B07354537D8060A18E51AEEE00EDF15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ BitComet - это функциональный, быстрый и простой
 ```bash
 magnet:?xt=urn:btih:F83A82D760DAB9DD8EED0612210641BB7B076C96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ WirelessConnectionInfo (Portable) — утилита, которая Отобр�
 magnet:?xt=urn:btih:2EFC097C96D2B638EDDADB92553EBC35119F6F02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ InfoCity - Азербайджанский ежемесячный журнал о
 ```bash
 magnet:?xt=urn:btih:A0851503DCE932D78CD20FDBDABB9A0E6DC95C11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:A0851503DCE932D78CD20FDBDABB9A0E6DC95C11
 magnet:?xt=urn:btih:A58313EB92FB75FC36E5F18C0BC24C6BC64A38F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:A58313EB92FB75FC36E5F18C0BC24C6BC64A38F6
 ```bash
 magnet:?xt=urn:btih:C7EC4B623A9AE5F3AB38E534C41F48FD88836A03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

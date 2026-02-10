@@ -1,3 +1,30 @@
+###  Публикация: 1533277   (707183) от 23.02.2022
+
+Исахар Файнгар | Очерк развития германского монополистического капитала (1958) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_707183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель этой книги — показать на основе анализа фактов и документов развитие, главным образом в период господства фашизма, монополистического капитала Германии, развязавшего вторую мировую войну ради осуществления планов мирового господства германского империализма.
+В соответствии с этим в первой части книги (гл. I—V) рассматриваются основные экономические черты германского (   Читать дальше...   )Жанр: монография, история, экономика, политология, империализмФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD08A9643F8114642D196BB3158CCDF827CEC5FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1533182   (707199) от 23.02.2022
 
 Игумен Евмений (Перистый) | О побеждающем Христианстве (2006) [PDF, DJVU]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:19E054FE6A9DDA0132D9D7D4512347775B4C0608
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:19E054FE6A9DDA0132D9D7D4512347775B4C0608
 magnet:?xt=urn:btih:7E4EF2B3986DEB986084B7F3F84C348E4C52DB41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:7E4EF2B3986DEB986084B7F3F84C348E4C52DB41
 ```bash
 magnet:?xt=urn:btih:9D82254B4B548CBEFDDB18708304A780B7EA233D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:9D82254B4B548CBEFDDB18708304A780B7EA233D
 magnet:?xt=urn:btih:2E527F1D2815491D2F47B9DB604636C03A24DC90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ magnet:?xt=urn:btih:2E527F1D2815491D2F47B9DB604636C03A24DC90
 magnet:?xt=urn:btih:99055038813930FE2E0EF44BDD25700089C980AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +175,8 @@ magnet:?xt=urn:btih:99055038813930FE2E0EF44BDD25700089C980AF
 ```bash
 magnet:?xt=urn:btih:E6AD19B60BF4929AC853C18F45E44F6594864D06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +204,8 @@ magnet:?xt=urn:btih:E6AD19B60BF4929AC853C18F45E44F6594864D06
 magnet:?xt=urn:btih:0095D46350B596C22E3D580BBE0F5486F1A4866C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +229,8 @@ magnet:?xt=urn:btih:0095D46350B596C22E3D580BBE0F5486F1A4866C
 ```bash
 magnet:?xt=urn:btih:DD4F4F7069F82DF0C28F957370479B3EBEF5FA7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:DD4F4F7069F82DF0C28F957370479B3EBEF5FA7D
 ```bash
 magnet:?xt=urn:btih:EF2FDAC8FA0427689A9B84005EC666742A6776AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +287,8 @@ magnet:?xt=urn:btih:EF2FDAC8FA0427689A9B84005EC666742A6776AD
 magnet:?xt=urn:btih:2DA5DB11AB797DAB4885B72F90D4C2A1721C0E7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +313,8 @@ magnet:?xt=urn:btih:2DA5DB11AB797DAB4885B72F90D4C2A1721C0E7C
 magnet:?xt=urn:btih:A57C3ABD46821B2BBCFC43AE9D8B4A6A913EF4EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +338,8 @@ magnet:?xt=urn:btih:A57C3ABD46821B2BBCFC43AE9D8B4A6A913EF4EF
 ```bash
 magnet:?xt=urn:btih:073529FAD2A22FCF971288E6C97EDD8CD837F9B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +367,8 @@ magnet:?xt=urn:btih:073529FAD2A22FCF971288E6C97EDD8CD837F9B9
 magnet:?xt=urn:btih:9586FD1775C119E6076A4FF2768F02906A3F8F78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +392,8 @@ magnet:?xt=urn:btih:9586FD1775C119E6076A4FF2768F02906A3F8F78
 ```bash
 magnet:?xt=urn:btih:062B7CA0337BFAAB4B80E2AF11D25EADB10FC758
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +422,8 @@ magnet:?xt=urn:btih:062B7CA0337BFAAB4B80E2AF11D25EADB10FC758
 magnet:?xt=urn:btih:3EF5460EEEA325177BB81471B4B7D1323837D587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +449,8 @@ magnet:?xt=urn:btih:3EF5460EEEA325177BB81471B4B7D1323837D587
 ```bash
 magnet:?xt=urn:btih:60E42E5539F2B2DD7F4C16DEB5AB4B7FD2A046D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +478,8 @@ magnet:?xt=urn:btih:60E42E5539F2B2DD7F4C16DEB5AB4B7FD2A046D2
 magnet:?xt=urn:btih:12233B3E48F0C172B97C3E6115490E4F0F175CB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +505,8 @@ magnet:?xt=urn:btih:12233B3E48F0C172B97C3E6115490E4F0F175CB1
 ```bash
 magnet:?xt=urn:btih:072B83DFF63790BFE5CA98BFA2394F47AB7FDA65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +534,8 @@ magnet:?xt=urn:btih:072B83DFF63790BFE5CA98BFA2394F47AB7FDA65
 magnet:?xt=urn:btih:F22CC82D0DE7812DEF2C141348E8DDB5B3C5891D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +559,8 @@ magnet:?xt=urn:btih:F22CC82D0DE7812DEF2C141348E8DDB5B3C5891D
 ```bash
 magnet:?xt=urn:btih:966CD1784C6A5366EFB45BC4C58308C5F2A64438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +586,8 @@ magnet:?xt=urn:btih:966CD1784C6A5366EFB45BC4C58308C5F2A64438
 magnet:?xt=urn:btih:3B201C9ADF6087A62C12E9FA6320EECA00E160A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +611,8 @@ magnet:?xt=urn:btih:3B201C9ADF6087A62C12E9FA6320EECA00E160A6
 ```bash
 magnet:?xt=urn:btih:5CE8922F9FCCDB94C7C6FB3D309161A6635F9D87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +639,8 @@ magnet:?xt=urn:btih:5CE8922F9FCCDB94C7C6FB3D309161A6635F9D87
 magnet:?xt=urn:btih:C683E453A747B388757B1175D317899686CC3CBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +664,8 @@ magnet:?xt=urn:btih:C683E453A747B388757B1175D317899686CC3CBF
 ```bash
 magnet:?xt=urn:btih:1EF5A7D5E7A6D14151FEA9DBF15F1E7352E89A7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,30 +691,7 @@ magnet:?xt=urn:btih:1EF5A7D5E7A6D14151FEA9DBF15F1E7352E89A7E
 magnet:?xt=urn:btih:2E1CB3569FE3A051BBCF955B623B2F763AF98191
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025404   (709320) от 12.06.2016
-
-lee | Инструкция к телу (2016) [FB2, PDF, EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_709320.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Инструкция к телу» — это подробная инструкция к вашему здоровью и долголетию. Вы смотрите на свое тело как на продукт эволюции, как на то, что подвержено влиянию извне? А разве не вы сами его автор?
-Прочтя эту книгу, вы получите шанс узнать истинного себя в физическом облике. Более того, вы сможете начать создавать тело по тому образу и подобию, которое считаете (   Читать дальше...   )Жанр: Публицистика, ЭзотерикаФормат: FB2, PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:321CCAEF9C949245436374343E2A97C66A5E6EAC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

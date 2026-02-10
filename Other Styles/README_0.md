@@ -22,6 +22,8 @@ Wardruna - Birna (2025) [FLAC|Lossless|tracks + .cue] <Nordic Folk, Ambient, Dar
 magnet:?xt=urn:btih:A811267D7BAF30056DD7A2C40FCDE0EBAB1A4317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Mogwai - The Bombing of Pan Am 103 (2025) Soundtrack [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:E6EB070475ED1CB8A1071A5EEC6335313898483A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:E6EB070475ED1CB8A1071A5EEC6335313898483A
 magnet:?xt=urn:btih:2D020DD544D90406303B75CA5A0A373CFDD1CC91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - 80s Hits on Saxophone (2023) [MP3|320 Kbps] <Jazz, Instrumental, Saxophone>
 ```bash
 magnet:?xt=urn:btih:4941AC4CB3E95EE0E6E69E8CAD56950F582AC75A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:4941AC4CB3E95EE0E6E69E8CAD56950F582AC75A
 magnet:?xt=urn:btih:40219F78221D5D69756578E76038F3997FE77854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:40219F78221D5D69756578E76038F3997FE77854
 ```bash
 magnet:?xt=urn:btih:12F4248177AD04003726524D73DD6668CAFAAA37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Henryk Kuzniak - Vabank & Seksmisja / Ва-банк & Сексмиссия (1998
 magnet:?xt=urn:btih:86A0D7C547F762F334A8264CF5B4192AB87ABE50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Yakuro - Forward to the Past (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambi
 ```bash
 magnet:?xt=urn:btih:97FEB8D60DC3F02E5DD7946C3E158640CF88B549
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Stive Morgan - Philosophy of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age,
 magnet:?xt=urn:btih:4D62B68094D7F6B4888E701D551E55F410429FC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Stive Morgan - Serenity (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient, 
 ```bash
 magnet:?xt=urn:btih:13244FF8ED4AFFABC099B308D36D0AEC07410375
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Emmanuelle - Instrumental Collection (2004) [FLAC|Lossless|image + .cue] <E
 magnet:?xt=urn:btih:441746F6F244231C2E6561275E981DE903DE86AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Hans Zimmer - The World of Hans Zimmer - Part II: A New Dimension (2025) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:961659ED1CF4B10BAF04C7AE215F9043047C6C57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Jean-Michel Jarre - Musik Aus Zeit Und Raum (1983) Reissue, 1984, Polydor [FLAC|
 magnet:?xt=urn:btih:79E579BA944A93F2261461236B103B442345FCA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Deep Forest - Live Machine (2025) [MP3|320 Kbps] <Ambient, Electronic, New Age>
 ```bash
 magnet:?xt=urn:btih:1C27C0684B0EF82340D12397B47A01AA17DB6D28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Damon Albarn & Michael Nyman - Ravenous (1999) [MP3|320 кб/с]<Score>
 magnet:?xt=urn:btih:B92A3BBE10B266BB75EF582D81A749973CDCC61A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Angelo Badalamenti – Music From Twin Peaks (1990) [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:26839AE7830E4756FB01BEDE754D0A6CAC1A9BE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Armik - Gitano Amor (2025) [FLAC|Lossless|WEB-DL|tracks] <Flamenco, Instrumental
 magnet:?xt=urn:btih:E53715FF24196061FC5D63069C75A9AEAB3C4B5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Volker Bertelmann - The Day of the Jackal (Original Series Soundtrack) (2024) [F
 ```bash
 magnet:?xt=urn:btih:F14529F36CF769C1A8198788DFE55CE5E4A69A08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - The Orient Collective: Spirits of the East (2025) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:823AEC571300B548D4D52C55EA99F39E642ED107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Only the Best Music (2024) [FLAC|Lossless|WEB-DL|tracks] <New-Age, Relax>
 ```bash
 magnet:?xt=urn:btih:1405EED19F38DADF9CCB5D856A1FE9910EB79036
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Only the Best Music (2024) [MP3|320 Kbps] <New-Age, Relax>
 magnet:?xt=urn:btih:3F704E5595F848810347B963C0CAECEA87BB973D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Vangelis - Rosetta (2016) [MP3|320 Kbps] <Electronic, New Age>
 ```bash
 magnet:?xt=urn:btih:3AD9C749752E0A179913136A1796E290B2A51799
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Eleni Violaris - Rainstriker (2015) [MP3|320 кб/с]<New Age, World>
 magnet:?xt=urn:btih:C8C58AF76E20C5FF641C8855864596A7CE1F7BE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Tomas Lanquist - On Faery Wings (2015) [MP3|320 кб/с]<New Age, Electronic, Am
 ```bash
 magnet:?xt=urn:btih:57FD5B12107664E33A1BA6261AE35ECD173D0ACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Tangerine Dream - Machu Picchu (Maxi EP) (2012) [MP3|320 кб/с]<Electronic mus
 magnet:?xt=urn:btih:0F640F1885F84D41157C02E7C494293538D92B6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Tangerine Dream - The Island of the Fay (2011) [MP3|320 kbps]<New age, Ambient>
 ```bash
 magnet:?xt=urn:btih:D9AF039FAA9D8395E94A8F49A0F88275EFF094AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

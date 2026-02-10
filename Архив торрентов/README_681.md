@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:460EBDFCFD4663E8E480535831D72404D8D815DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:460EBDFCFD4663E8E480535831D72404D8D815DA
 ```bash
 magnet:?xt=urn:btih:C642B25C25B8BACFA937F1907B8F43AAA59FDA25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -78,6 +82,8 @@ VA - Straight Up Drum & Bass! (2012) [MP3|320 кб/с]<Drum'n'Bass>
 magnet:?xt=urn:btih:77B3DC4F05857763893738242B14E4419B60B029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:77B3DC4F05857763893738242B14E4419B60B029
 ```bash
 magnet:?xt=urn:btih:86B5F660D98AFC9847D9B69D79E2179A81F17F62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -135,6 +143,8 @@ VA - Весенний Супер Бум хитов (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:A294512E9AAEF02BC47326347AC052BE0E2DE99C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +178,8 @@ CD 1: (00:53:27)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +204,8 @@ CD 1: (00:53:27)
 ```bash
 magnet:?xt=urn:btih:2D41605B311ABE69DFC96566C2C41EE49D4AFA1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +238,8 @@ magnet:?xt=urn:btih:2D41605B311ABE69DFC96566C2C41EE49D4AFA1E
 ```bash
 magnet:?xt=urn:btih:0F0DE2DE4CE94D998BAC7E26A874AB6A68736D22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -258,6 +274,8 @@ Ivy Quainoo - Ivy (2012) [MP3|~245 кб/с (V0)]<Pop, Soul, Female Vocal>
 magnet:?xt=urn:btih:F6E829CA61AF64A004E1A1916D70D21A251E2633
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +299,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +333,8 @@ Glary Utilities - функциональный набор системных т�
 magnet:?xt=urn:btih:24E0CFD2A0E10477DEB644B92C5D3CE0320066B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +363,8 @@ magnet:?xt=urn:btih:24E0CFD2A0E10477DEB644B92C5D3CE0320066B2
 ```bash
 magnet:?xt=urn:btih:855E9FFF12D0A4DD8B2D535A853DB6F56AE2734B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +399,8 @@ VA - Жажда скорости - Весенний драйв (2012) [MP3|192-2
 magnet:?xt=urn:btih:AE5E6E5ACB0F759F72413467932298FD5456C06F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +434,8 @@ Strawberry Alarm Clock - Wake up.. It's Tomorrow (2005) [FLAC|Lossless]<Psychede
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +459,8 @@ Strawberry Alarm Clock - Wake up.. It's Tomorrow (2005) [FLAC|Lossless]<Psychede
 ```bash
 magnet:?xt=urn:btih:958224367E93DB06514BE3E68CA471C4947E7852
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +495,8 @@ CD 1: (00:52:38)
 magnet:?xt=urn:btih:B55C26EE80C6ADFE1B85C711559A7926F32953FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +520,8 @@ magnet:?xt=urn:btih:B55C26EE80C6ADFE1B85C711559A7926F32953FE
 ```bash
 magnet:?xt=urn:btih:052C5D295EC8629F929A287AD449D13575B12BBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +548,8 @@ magnet:?xt=urn:btih:052C5D295EC8629F929A287AD449D13575B12BBE
 magnet:?xt=urn:btih:B6298455896F8B30AD2C1D12226C972266C8C064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +573,8 @@ XRecode - аудиоконвертер, поддерживающий преоб�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +600,8 @@ MegaTroll Media - All Music (2011-2012) [MP3|320 кб/с]<Troll Music>
 magnet:?xt=urn:btih:815A75EAC5EA3D33455876EF64DC4DF481D6F2F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +625,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +652,8 @@ Glary Utilities - функциональный набор системных т�
 magnet:?xt=urn:btih:14E934D36313D151B469E24166BF8AE5B4148E60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +677,8 @@ Superstars — профессиональная рестлинг шоу от м�
 ```bash
 magnet:?xt=urn:btih:1490831540443085360B178116017EA399995FA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -665,6 +711,8 @@ Lowe - Evolver (2011) [MP3|320 кб/с]<Synthpop,  Electropop,  New Wave>
 ```bash
 magnet:?xt=urn:btih:0BE79B944294F15E3300BAF5F4F077FE92A27037
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -699,6 +747,8 @@ VA - Реальный Хит от Хит FM 50/50 (2012) [MP3|128 kbps]<Pop>
 magnet:?xt=urn:btih:624EA122BC2C2316F7A9BC61780ECFAEEE8838BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -727,6 +777,8 @@ magnet:?xt=urn:btih:624EA122BC2C2316F7A9BC61780ECFAEEE8838BF
 ```bash
 magnet:?xt=urn:btih:95FF1570F4BA772934B53131964F4B8DA8B222C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

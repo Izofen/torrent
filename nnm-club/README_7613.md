@@ -22,6 +22,8 @@ VA - Best tracks of Way Out There by Jody Wisternoff. Volume 1 (2001-2008) 2022 
 magnet:?xt=urn:btih:1318BA57A2B5B8ECCA6312CFDA2DF966D91977AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - Music News vol.284 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:C4E9B4836959B408D0A9DD2A92F25436449D4610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:C4E9B4836959B408D0A9DD2A92F25436449D4610
 ```bash
 magnet:?xt=urn:btih:D4ED52DB814D0C6F6D205D39879436918F479B99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:D4ED52DB814D0C6F6D205D39879436918F479B99
 magnet:?xt=urn:btih:5982AC99058FCCF1ECA8F104FFB440222959ECF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:5982AC99058FCCF1ECA8F104FFB440222959ECF9
 ```bash
 magnet:?xt=urn:btih:7F166B904420F43E3850AEB1613720FFACB708C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ chapterEditor 1.39 Portable [Multi]
 magnet:?xt=urn:btih:3D9C0830EE2993D044AAD5D7521C453B660182F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:18607C3F8D93143C028DEF428750A03AEBE2039A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:E00CF0B4AAD350884EC478E1B0DF88DA80AC22FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:E00CF0B4AAD350884EC478E1B0DF88DA80AC22FB
 ```bash
 magnet:?xt=urn:btih:F00EA7BD7DC6F06FA793B8733AD59988AA906069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Don't Starve Together - это кооперативная игра на выжи
 magnet:?xt=urn:btih:817B5946F883DF83C42458136EC42FF9626CE350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:817B5946F883DF83C42458136EC42FF9626CE350
 ```bash
 magnet:?xt=urn:btih:7042201546BB72E4F146F2540DBB05EF1AE44CB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:7042201546BB72E4F146F2540DBB05EF1AE44CB4
 magnet:?xt=urn:btih:A40D69368F1E6C63CCED185869A29D2F44FC65FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:A40D69368F1E6C63CCED185869A29D2F44FC65FA
 magnet:?xt=urn:btih:18691EBBABD65C0AB737841D95D5DAF366D29190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Windows Update Viewer 0.5.10.0 + Portable [En]
 ```bash
 magnet:?xt=urn:btih:07A83EC638ECEE5ED825D3193442023615EE0888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:07A83EC638ECEE5ED825D3193442023615EE0888
 magnet:?xt=urn:btih:719E636BEE18136FBFBE9C56EBA51EC220FAE183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Silly Polly Beast (2025) [Ru/Multi] (0.97) Repack seleZen
 magnet:?xt=urn:btih:6C09EC74DF0DE34FD8C6F47DFD9EB8048AE48E95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Aurora - это красочный скин для Poweramp v3. Вы может�
 ```bash
 magnet:?xt=urn:btih:B98C9255CC6A5C6E891742D86DBF8C12E9AD69C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:B98C9255CC6A5C6E891742D86DBF8C12E9AD69C3
 magnet:?xt=urn:btih:7DA61914D2B966AE04B6EBB6733A3B9879805B5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ WizTree - небольшая и полезная утилита для опре�
 ```bash
 magnet:?xt=urn:btih:7415C034A62454818F0A1BC4E9BD85D6784D976D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:7415C034A62454818F0A1BC4E9BD85D6784D976D
 magnet:?xt=urn:btih:DA6730C9E50CE2F0CE61A43290D61BFDDAB65384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:DA6730C9E50CE2F0CE61A43290D61BFDDAB65384
 ```bash
 magnet:?xt=urn:btih:31829167044776849FB1AE7814540F7017A202D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Luminous Black – это современный черный скин для Po
 magnet:?xt=urn:btih:28F2919230F57A390DDB4B22FE34DB8A87E25E0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ FBackup — это свободно распространяемое прогр�
 ```bash
 magnet:?xt=urn:btih:0AC6C494F057822142DF9A089E3D22382E889B37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:0AC6C494F057822142DF9A089E3D22382E889B37
 magnet:?xt=urn:btih:1BEF2CB9E36F8275AE489340576E0CD3B49D4094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:1BEF2CB9E36F8275AE489340576E0CD3B49D4094
 magnet:?xt=urn:btih:96D680E03A76290FA9DE2153CDF0BCCB4600773C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Prince of Persia: The Forgotten Sands / Принц Персии: Забытые 
 ```bash
 magnet:?xt=urn:btih:5A316DA037EE9870984E7009AE8A607776725629
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

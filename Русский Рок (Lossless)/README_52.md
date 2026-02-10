@@ -1,3 +1,32 @@
+###  Публикация: 1409363   (447361) от 16.09.2020
+
+Дмитрий Ревякин - Серебро и Слёзы. Пролог (2020) [FLAC|Lossless|image + .cue] <Acoustic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447361.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лихо
+2. Петербургская свадьба
+3. Спроси, звезда
+4. Мельница(   Читать дальше...   )Жанр: Acoustic RockПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311E49E7143BC9454340C797A1F29EE707E53FA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061218   (448857) от 10.10.2016
 
 VA - Greenpeace Rocks (1993) [FLAC|lossless|image + .cue] <Rock>
@@ -21,6 +50,8 @@ VA - Greenpeace Rocks (1993) [FLAC|lossless|image + .cue] <Rock>
 ```bash
 magnet:?xt=urn:btih:16D7195BC7DFA7458E62E8FAFAB3A79F3D558E45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +79,8 @@ magnet:?xt=urn:btih:16D7195BC7DFA7458E62E8FAFAB3A79F3D558E45
 ```bash
 magnet:?xt=urn:btih:99A0757954C1521B070DB09588FF1825F62F2DD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +115,8 @@ magnet:?xt=urn:btih:99A0757954C1521B070DB09588FF1825F62F2DD5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -109,6 +144,8 @@ Rage Titanium - Настало Время Героев (2022) [FLAC|Lossless|WEB
 magnet:?xt=urn:btih:FC5A47CA3C8BC51DDAC8FB9BDA90E307F0CA08CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +172,8 @@ magnet:?xt=urn:btih:FC5A47CA3C8BC51DDAC8FB9BDA90E307F0CA08CC
 ```bash
 magnet:?xt=urn:btih:BAE8387AB26497CD73C09B1FCBF125575AE66823
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +203,8 @@ Lumen - Акустика (Концерт в центре им. Вс. Мейер�
 ```bash
 magnet:?xt=urn:btih:7564B93C016070908E28FC4790562BD5EA02A7DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +236,8 @@ magnet:?xt=urn:btih:7564B93C016070908E28FC4790562BD5EA02A7DC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +265,8 @@ VA - Рок на костях. 25+25. Посвящается 25-летию не�
 magnet:?xt=urn:btih:BC5F4A2A6F19AD5D2224426E57ABF26C3A0A2D0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +290,8 @@ magnet:?xt=urn:btih:BC5F4A2A6F19AD5D2224426E57ABF26C3A0A2D0E
 ```bash
 magnet:?xt=urn:btih:55C8BB120139A62208962A939BCDAF42025493B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +326,8 @@ magnet:?xt=urn:btih:55C8BB120139A62208962A939BCDAF42025493B1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +354,8 @@ magnet:?xt=urn:btih:55C8BB120139A62208962A939BCDAF42025493B1
 ```bash
 magnet:?xt=urn:btih:EE46AD1499FBEABFA67BF1593864EC0EAA05A2DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +384,8 @@ magnet:?xt=urn:btih:EE46AD1499FBEABFA67BF1593864EC0EAA05A2DF
 magnet:?xt=urn:btih:88677CD248138A64ECC7806082F08352D4A39121
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +412,8 @@ KCHORTOO (KCHÖRTOO) - SARANCHA (2018) [FLAC|Lossless|WEB-DL|tracks + .cue] <Roc
 ```bash
 magnet:?xt=urn:btih:9CBD7E9C14D70C7B87C4C2C716E60B89DBC1E0F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +448,8 @@ Znaki (Знаки) - 3 Альбома (2007-2012) [FLAC|Lossless] <Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +483,8 @@ V.A. - Монстры Рока СССР: 20 Лет Спустя (2012) [FLAC|Los
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +509,8 @@ V.A. - Монстры Рока СССР: 20 Лет Спустя (2012) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:B2E4885C8D610B724CDC0810CFEA232AEB3B06FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +539,8 @@ magnet:?xt=urn:btih:B2E4885C8D610B724CDC0810CFEA232AEB3B06FB
 magnet:?xt=urn:btih:58A23399D72BCF10DF0539F1EDBC6441B609BEAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +567,8 @@ magnet:?xt=urn:btih:58A23399D72BCF10DF0539F1EDBC6441B609BEAD
 ```bash
 magnet:?xt=urn:btih:D3B508075462C086FB7640FDF1017E9D4DF8C88A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +597,8 @@ Arcane Grail - Arya Marga (Ninefold Path to the Innocence) (2009) [FLAC|image+cu
 magnet:?xt=urn:btih:564705FE98B83A77987F1B3965E39F01E7B5948F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +625,8 @@ Amatory - Книга мертвых (2006) Reissue, 15th Anniversary Edition, 20
 ```bash
 magnet:?xt=urn:btih:22A999C2A61828719644B834413CF8ECDFBB30F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +655,8 @@ VA - Детский сад. Штаны на лямках (2002) [FLAC|lossless|i
 magnet:?xt=urn:btih:A5A6245B36E85D988244E36F2E79001059B17764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +683,8 @@ magnet:?xt=urn:btih:A5A6245B36E85D988244E36F2E79001059B17764
 ```bash
 magnet:?xt=urn:btih:A54112C8973D8C4676F2546FD681AB413907F7C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +713,8 @@ magnet:?xt=urn:btih:A54112C8973D8C4676F2546FD681AB413907F7C6
 magnet:?xt=urn:btih:EB0385FB220165109FD22355F8B6D9B1CD31C139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +741,8 @@ magnet:?xt=urn:btih:EB0385FB220165109FD22355F8B6D9B1CD31C139
 ```bash
 magnet:?xt=urn:btih:2C32BCDC2D5D5F3560F19DA4B5ABECE61BF9BF3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -694,32 +771,7 @@ magnet:?xt=urn:btih:2C32BCDC2D5D5F3560F19DA4B5ABECE61BF9BF3D
 magnet:?xt=urn:btih:BF79C3C88232233B63FCCD8D3390EC69E0FDAD44
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057400   (475244) от 28.09.2016
-
-Артур Беркут - Сюита Темы Вечной (2016) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_475244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро (0:59)
-02. 100 дорог (4:36)
-03. Крыльев взмах (4:25)
-04. Незваный гость (3:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED1B933A40E8565522D9A2902BBE1571EA5062E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

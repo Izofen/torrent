@@ -19,6 +19,8 @@ Warcraft I: Remastered (2024) [Ru/Multi] (1.0.0.2137) Scene Razor1911
 magnet:?xt=urn:btih:4384435BE7245CC07C9B957EC8D220ABD9762F81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:4384435BE7245CC07C9B957EC8D220ABD9762F81
 magnet:?xt=urn:btih:857FD55B0A3065313169689800F4715016565EC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:857FD55B0A3065313169689800F4715016565EC2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:857FD55B0A3065313169689800F4715016565EC2
 magnet:?xt=urn:btih:02BE2580FAEC88BC8F22A425045CF0FB00057123
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Snappy Driver Installer (SDI) - портативная программа для
 ```bash
 magnet:?xt=urn:btih:8F95C790E35580F0B81D9BE0F21F0B8F14FF40C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:8F95C790E35580F0B81D9BE0F21F0B8F14FF40C0
 magnet:?xt=urn:btih:F1F4581F1398CAF902BB269FED46DA95F7BD1331
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Ara: History Untold (2024) [Ru/Multi] (1.1.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:A8619B5ADF61A583B56C7970841212AEB68E27AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 magnet:?xt=urn:btih:5A59C3D7359EC685FB560C67CE6EED5172CADB52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:5A59C3D7359EC685FB560C67CE6EED5172CADB52
 magnet:?xt=urn:btih:A4EC4321CA3D5E9FBA9B4CB60B3684D13567BDBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:A4EC4321CA3D5E9FBA9B4CB60B3684D13567BDBE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:A4EC4321CA3D5E9FBA9B4CB60B3684D13567BDBE
 magnet:?xt=urn:btih:FDF2F378619559FD54BAFF7E14A3DE7523317A87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:FDF2F378619559FD54BAFF7E14A3DE7523317A87
 ```bash
 magnet:?xt=urn:btih:13550C61DE964103C8B92D5C259DCB7733089D2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Topaz Gigapixel AI — это приложение, использующее с�
 magnet:?xt=urn:btih:3D19307EC145E60053C4F5016077D3DCC964C260
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:3D19307EC145E60053C4F5016077D3DCC964C260
 ```bash
 magnet:?xt=urn:btih:47942BF1012400E0743285EDA6F73BA1811C4636
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:47942BF1012400E0743285EDA6F73BA1811C4636
 magnet:?xt=urn:btih:D5125C5BC2824A3A9B46BBEFFBDFFAB02068142F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 ```bash
 magnet:?xt=urn:btih:9F46C124276E8A84D0EBCBB6028B40E0A2F78465
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:9F46C124276E8A84D0EBCBB6028B40E0A2F78465
 magnet:?xt=urn:btih:B98CF3DE719782E04F1E552FEBD61017AE39F961
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:B98CF3DE719782E04F1E552FEBD61017AE39F961
 ```bash
 magnet:?xt=urn:btih:505778D1E1227768C83640358C967C3AE66B21B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ VA - Best of the Best, 1 Song Only (1955-2024) Remaster SMRP, Russia, 2024, De-N
 magnet:?xt=urn:btih:41A9BDCF0AC59078ACEFC883FD1C92A1C3F4D339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:41A9BDCF0AC59078ACEFC883FD1C92A1C3F4D339
 magnet:?xt=urn:btih:13ED82BB4A1C5CFE834E9FDFAFEB91D8AC750B32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:13ED82BB4A1C5CFE834E9FDFAFEB91D8AC750B32
 ```bash
 magnet:?xt=urn:btih:10E83F607F7F6878F57072101F7CC0C9BA7CA2B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Windows 11 24H2 (26100.2314) (x64) by Sergei Strelec [Ru]
 magnet:?xt=urn:btih:327A5DD4EE7EDDF80FA68CC2EFD740E1CDF0F3CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:327A5DD4EE7EDDF80FA68CC2EFD740E1CDF0F3CB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ YTDisBystro - сбока на основе zapret от KDS. Обеспечива
 magnet:?xt=urn:btih:5943AABDB0283EA566E1973AA021307F64DB680A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ GoodbyeDPI 0.2.3rc3 Launcher 9.3 [Ru/En]
 magnet:?xt=urn:btih:490DF352D6BAA16CA906DA65A7423979C71CE47F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:490DF352D6BAA16CA906DA65A7423979C71CE47F
 ```bash
 magnet:?xt=urn:btih:C15719E66DD55C0875AA36B15D09578F8EF84D5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Wiener Philharmoniker & Tugan Sokhiev - Sommernachtskonzert 2025 / Summer Night 
 magnet:?xt=urn:btih:40D36A3F179BDD182850DFAE787560C947AFE051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:40D36A3F179BDD182850DFAE787560C947AFE051
 magnet:?xt=urn:btih:D5724A32809B4D6B0808C36A25DB9C2603A7A1D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:A477CF0D3136B8EE7D8ED822BCB445B2DE4F8E33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Hell - Human Remains (2011) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:9238A9D68141E98EBAA6937D779B7872C046EF9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Steel Rhino - рок-группа из Швеции, основана в 2021 г
 ```bash
 magnet:?xt=urn:btih:8A9E275C5729BECC5355594EF5EC8B69B5E845F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Shelly Manne & His Men - Play Peter Gunn (1959) 1997, Original Jazz Classics [FL
 magnet:?xt=urn:btih:0666A92A5066F42C80BE33247FB0D00C74AC13E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ Cronos Compulsion - Lawgiver (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Death M
 ```bash
 magnet:?xt=urn:btih:6B12ACF1D02D0E27BD1D2450E0E55FB5C7A175A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ Doc Bowling and His Blues Professors - Sing the American Songbag (2025) [FLAC|Lo
 magnet:?xt=urn:btih:CE86F4500B3C65208F7FEF5150FCB4BD71BE3A19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ Shotgun Sam and his World Famous Blues Band - Shotgun Sam and his World Famous B
 ```bash
 magnet:?xt=urn:btih:75A0B24DB2FAF560359BE7F6BDE74260D5862334
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ Mauro Ferrarese - Echoes 'long The Path (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 magnet:?xt=urn:btih:967755E728951F8F55A89737860B6AD404DD0AAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ magnet:?xt=urn:btih:967755E728951F8F55A89737860B6AD404DD0AAF
 ```bash
 magnet:?xt=urn:btih:28DEEB5731FDA67898C71CFDEB9B98EC4EF37F5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ Carlos Camilo - Levitating (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 magnet:?xt=urn:btih:BD6B4F18D0A68802803DCA3AC6C2895B7BCCE084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ James Day - Frequencies (2025) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:3C5CB3BAE5845DC8ADC259CEC1764AE283CBF62B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +388,8 @@ E&B Haircut - Polaroid Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:46C31038A4185E15EBC4664E66442213067B4A41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +416,8 @@ The Crystal Tears - The Crystal Tears (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:10082DDE80690801E1EBF190FB923CE7B88DC5EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +446,8 @@ D.K. Harrell - Talkin' Heavy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:154B3A099A4D3487DFB7F853FF8FEDE3442A7FFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +472,8 @@ Night Must Fall - Dissonance of Thought (2007) (EP), Released, 2008, Descending 
 ```bash
 magnet:?xt=urn:btih:CC75CAD23FC860BD24498C0F9B8643E5E8701828
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +502,8 @@ Maniae - Vestiges (2023) (EP) [FLAC|Lossless|image + .cue] <Black Metal>
 magnet:?xt=urn:btih:B6726B0E9B89FF428E8C78057D2081A500482C3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +530,8 @@ Relligary - Hearts and Minds (2025) [MP3|320 Kbps] <Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:165067DA25949259743FAFDD3E4B85AAFF9BE974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +560,8 @@ Black Majesty - Oceans of Black (2025) [MP3|320 Kbps] <Power Metal>
 magnet:?xt=urn:btih:F9203E6527D55A569202A9893778CF8999A1CE92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +585,8 @@ magnet:?xt=urn:btih:F9203E6527D55A569202A9893778CF8999A1CE92
 ```bash
 magnet:?xt=urn:btih:A717D87A4E3BCC08386D501682E9CE812B519317
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +615,8 @@ Midnight Darkwave - Among Bones and Corpses (2025) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:6A658B20E9812DFBCBB6F137BDCD8DEEADD94721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +644,8 @@ Kerry Kearney - The Kerry Kearney Band (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 magnet:?xt=urn:btih:EE118F104235ED3288B7FB92624A1B9DE0F6E2ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +669,8 @@ magnet:?xt=urn:btih:EE118F104235ED3288B7FB92624A1B9DE0F6E2ED
 ```bash
 magnet:?xt=urn:btih:491246E3B4942741C8FB336921278F8973CBE936
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +698,8 @@ magnet:?xt=urn:btih:491246E3B4942741C8FB336921278F8973CBE936
 magnet:?xt=urn:btih:E04A12292E74F2A49580A1A386EB51AB063CEE23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +726,8 @@ Willie Buck & Bob Corritore - Oh Yeah! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 ```bash
 magnet:?xt=urn:btih:09C0FFB73F6964D53A4D835D10137BB57A0FBD78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

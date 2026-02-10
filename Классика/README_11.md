@@ -19,6 +19,8 @@ VA - Золотая классика. Популярные версии (5CD) (2
 magnet:?xt=urn:btih:99343724C4DA7A80B1721984915D5F8C5EC5016B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ Dargaard - 4 albums (1998-2004) [FLAC|Lossless] <Darkwave, Ethereal, Neoclassica
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ Bach - The Well-Tempered Clavier, Book I
 ```bash
 magnet:?xt=urn:btih:BA887CBDA6632089AFE081D66BFFC4ED10F0DAA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -108,6 +114,8 @@ Ophelia's Dream - 3 albums (1997-2004) [FLAC|Lossless] <Neoclassical, Ethereal, 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +149,8 @@ Stoa - 4 albums (1993-2008) [FLAC|Lossless] <Neoclassical, Ethereal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +176,8 @@ VA - Relaxing Christmas (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical Music>
 ```bash
 magnet:?xt=urn:btih:0B2423D92693F1FC5E5F2BC0D53EFD35D4A4DB2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +206,8 @@ Vanessa Mae - The Violin Player [1995][APE]
 magnet:?xt=urn:btih:96C617E8149517BE10F8046920597965F0182D10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +234,8 @@ Peter Hahn & Anna Maria Kaufmann - CD2 Opera (2010) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:E0D2286440289180143CAD47942E280B5BDE279B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +264,8 @@ Opera Babes ‎ - Beyond Imagination (2002) [FLAC|Lossless|image + .cue] <Classi
 magnet:?xt=urn:btih:AB4FB9999F292314950AAC208EABD35D6B6EC5F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +293,8 @@ Katherine Jenkins - Guiding Light (2018) [FLAC|Lossless|WEB-DL|tracks] <Classica
 magnet:?xt=urn:btih:856F030CE1FAFA13738032CEBB5F3504E1E5D018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +321,8 @@ Peter Hahn & Anna Maria Kaufmann - CD1 Musical (2010) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:16205515053E587A2C13AF4275118F630330F2DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +352,8 @@ Annie Haslam - Still Life (1985) Limited Edition, Reissue, 1999, Kankard [FLAC|L
 magnet:?xt=urn:btih:858350A5FD1EFEC86986ED95F0315C1D4BB12B5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +380,8 @@ New London Chorale - The Collection Vol.2 (2003) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:37D94727272AD052AF5E68483A48B66EDD056C90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +410,8 @@ Andrea Bocelli - Si Forever (2019) The Diamond Edition [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:62EF8AA170066A7063C57084844A1D7EACB75EED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +435,8 @@ CD1Жанр: Классическая музыкаПродолжительнос
 ```bash
 magnet:?xt=urn:btih:F11636096599C932E19896EDD27A69DD805AAA82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +465,8 @@ New London Chorale - Christmas with the New London Chorale (1994) [FLAC|Lossless
 magnet:?xt=urn:btih:DCBD34399022FFAA96CE7905D2DED9A2E1DD184F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +493,8 @@ New London Chorale - The Collection  Vol.1 (2000) [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:30E486382F949713B45E1F571B2568431BD1466B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +523,8 @@ New London Chorale - Het Mooiste Van (2006) [FLAC|Lossless|image + .cue] <Classi
 magnet:?xt=urn:btih:369254B890D730D49606F75C1F75671FD9403C7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +551,8 @@ Jose Carreras, Placido Domingo, Natalie Cole - A Celebration of Christmas (1996)
 ```bash
 magnet:?xt=urn:btih:15060C72299E48E36D145E8B5B915BD6713D93A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +581,8 @@ New London Chorale - Celebration: 25 Years The New London Chorale (2004) [FLAC|L
 magnet:?xt=urn:btih:F8D15FE297030CE300A644F160C2BB1ED14345D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +610,8 @@ Wolfgang Amadeus Mozart - Symphonies Nos. 21-41:  Josef Alois Krips & Royal Conc
 magnet:?xt=urn:btih:2CCFF5BEF4F99C67CA8D92C4A7330E6351FD4A8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +635,8 @@ Handel - L'Allegro, il Penseroso ed il Moderato (1995) 2CD,  [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:F2FB87B0EC55144273A22DC0100DBDAFC43DD14C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +665,8 @@ Kriemhild Maria Siegel - Schwanensee (Swan Lake) (2013) [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:F03B00B765ECB17F50DDF0621B1E15CC5BDE29CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +693,8 @@ Divna Ljubojeviс / Дивна Любоевич & Melodi - Mysteres Byzantins (2
 ```bash
 magnet:?xt=urn:btih:DFD36353E02DE6F92DAD179209FB4421D3A75411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -675,6 +723,8 @@ Dichterliebe Op. 48
 magnet:?xt=urn:btih:02F381880B27B292905E15E1E76235F39D30D01B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -701,6 +751,8 @@ Divna Ljubojevic & Melodi / Angelopoulos& Byzantine Choir of Greece - The Glory 
 ```bash
 magnet:?xt=urn:btih:E49B25E791DA5AC1DEE0880462CAF132593EA85C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

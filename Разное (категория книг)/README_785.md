@@ -1,3 +1,29 @@
+###  Публикация: 1445757   (1033509) от 06.02.2021
+
+Ольга Размахова, Анна Край | Домашнее насилие. Так будет не всегда (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1033509.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Домашнее насилие. Так будет не всегда» – книжный проект Оли Размаховой и Анны Край, являющихся практикующими психологами, участницами различных социальных проектов. Из книги вы узнаете о том, как можно и нужно бороться против домашнего насилия, за законодательную защиту пострадавших и публичное освещение вопроса. К проекту привлечено большое количество людей, столкнувшихся (   Читать дальше...   )Жанр: Семейная психологияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D45D8E1C0735F9691266454B8AF3E78A68E9819
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445433   (1033643) от 05.02.2021
 
 Стивен Кови | Быть, а не казаться. Размышления об истинном успехе [4-е издание] (2021) [EPUB]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:13D3D4FDE5E828DAEB29100CB31B92141423A5DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:13D3D4FDE5E828DAEB29100CB31B92141423A5DF
 ```bash
 magnet:?xt=urn:btih:007E2FA2F9AF1E055B9FEEADF3846FC85151A790
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:007E2FA2F9AF1E055B9FEEADF3846FC85151A790
 magnet:?xt=urn:btih:56AF8112B396F48E889C576AA858666D40954C9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:56AF8112B396F48E889C576AA858666D40954C9E
 ```bash
 magnet:?xt=urn:btih:04F166AB4239CE60C9295411E2A5EC46A2555BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:04F166AB4239CE60C9295411E2A5EC46A2555BB7
 magnet:?xt=urn:btih:CA21BE012C245B876525E17632988654B1145B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:CA21BE012C245B876525E17632988654B1145B6B
 magnet:?xt=urn:btih:FFAA03E57988E8E645CE6EB971CFD41CB1DD2B60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:FFAA03E57988E8E645CE6EB971CFD41CB1DD2B60
 ```bash
 magnet:?xt=urn:btih:CF4A9AC98DC0E364C69B9AAA68B12F0A9B103A9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:CF4A9AC98DC0E364C69B9AAA68B12F0A9B103A9E
 magnet:?xt=urn:btih:0620E349CD176BCAFE9D3ABE928756237DC42B20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:0620E349CD176BCAFE9D3ABE928756237DC42B20
 ```bash
 magnet:?xt=urn:btih:F9741F6619517D8CBFBA3E79B201CEF7AAA1B61C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:F9741F6619517D8CBFBA3E79B201CEF7AAA1B61C
 magnet:?xt=urn:btih:94EA8712577C75390DBB6243F41C0B8BEF9EFCED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:94EA8712577C75390DBB6243F41C0B8BEF9EFCED
 ```bash
 magnet:?xt=urn:btih:81ED12CCCFEF150BC2F2E72104F1357F8E660A2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:81ED12CCCFEF150BC2F2E72104F1357F8E660A2C
 magnet:?xt=urn:btih:663CD734E41C2F81693048482D0813755BCD3C10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:663CD734E41C2F81693048482D0813755BCD3C10
 magnet:?xt=urn:btih:9FF8DF299FB1C7E3B9185B5A44B0D56D7F7A1C0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:9FF8DF299FB1C7E3B9185B5A44B0D56D7F7A1C0C
 ```bash
 magnet:?xt=urn:btih:C56AE72A7722DFB88018CB4749CAD82965C26804
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:C56AE72A7722DFB88018CB4749CAD82965C26804
 magnet:?xt=urn:btih:DF3C2F22B26D63158B3425CC5C81F1781F46122D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:DF3C2F22B26D63158B3425CC5C81F1781F46122D
 ```bash
 magnet:?xt=urn:btih:39453334E84C7AFE1D761958AFD6276799E38BB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:39453334E84C7AFE1D761958AFD6276799E38BB6
 magnet:?xt=urn:btih:2E2CF0E721B47E2F0A6C0EE57EF99BECD29FAC42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:2E2CF0E721B47E2F0A6C0EE57EF99BECD29FAC42
 ```bash
 magnet:?xt=urn:btih:A18F61FFE698BCF44F78F671670AC735A50A6EEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:A18F61FFE698BCF44F78F671670AC735A50A6EEC
 magnet:?xt=urn:btih:4AB62D3FC4E1F640F9DC3E87B905CE29CAF945E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:4AB62D3FC4E1F640F9DC3E87B905CE29CAF945E6
 magnet:?xt=urn:btih:0FC3219F13623096E50614DA68349BE78F9588D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:0FC3219F13623096E50614DA68349BE78F9588D5
 ```bash
 magnet:?xt=urn:btih:F0A02F72A51D3D3AEAE7ECEC568F60A40510DE51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:F0A02F72A51D3D3AEAE7ECEC568F60A40510DE51
 magnet:?xt=urn:btih:3BA56C711D0FDA4AE1D2C3B4EC47BDBA8A1B807E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:3BA56C711D0FDA4AE1D2C3B4EC47BDBA8A1B807E
 ```bash
 magnet:?xt=urn:btih:928F7D0BA115ADA42C05DDBCF52BE46B57600661
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:928F7D0BA115ADA42C05DDBCF52BE46B57600661
 magnet:?xt=urn:btih:9256F28975E6888FCD20B62338E869AE75A25C21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,30 +683,7 @@ magnet:?xt=urn:btih:9256F28975E6888FCD20B62338E869AE75A25C21
 magnet:?xt=urn:btih:B94D0CE4AE2A5AD8972BFD01B0A7E704F538E59C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444603   (1034407) от 02.02.2021
-
-Дмитрий Лихачев | Как мы выжили (2021) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дмитрий Сергеевич Лихачев – человек, чье имя известно во всем мире. Выдающийся знаток отечественной и моровой культуры, избранный почетным членом многих зарубежных академий, глубокий мыслитель и общественный деятель.
-В книгу «Как мы выжили» входят воспоминания Дмитрия Сергеевича разных лет, в том числе и пронзительные, порой беспощадные и тягостные наблюдения о жизни (   Читать дальше...   )Жанр: Биографии и мемуары, Книги о войне, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C074087BDD43C6FE85742D5E9D44367CBF52F29E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

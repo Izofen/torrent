@@ -1,3 +1,30 @@
+###  Публикация: 1572172   (425503) от 25.08.2022
+
+Оксана Гринберга | Чуть больше о драконах (2022) [MP3, Наталья Романова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425503.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Чуть больше о драконах» – фантастический роман Оксаны Гринберги, жанр любовное фэнтези, приключенческое фэнтези.
+Получив стипендию, я переехала в столицу, чтобы узнать чуть больше о драконах. Меня ждут два последних года в лучшей Академии Магии королевства и… неприятности, в которые я не собиралась ввязываться. Особенно падать на голову лорду-канцлеру Астара и уж (   Читать дальше...   )Жанр: Любовное фэнтези,  Фэнтези про драконовПродолжительность: 07:21:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767438C5CD8051BC1BFC58CA95C38AF07DCAF49B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572231   (425585) от 25.08.2022
 
 Фредерик Уоллес | Зверушка Боулдена (2022) [MP3, Puffin Сafe]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:DBAE6C1C099FAE5D19C9B3EBC7EE5749639D3650
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:DBAE6C1C099FAE5D19C9B3EBC7EE5749639D3650
 magnet:?xt=urn:btih:721E0CF6A4D95DADA4285B58CE894E9D9A55C89C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:721E0CF6A4D95DADA4285B58CE894E9D9A55C89C
 ```bash
 magnet:?xt=urn:btih:356D199563B26D320D62E17118F68554EEF20C9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:356D199563B26D320D62E17118F68554EEF20C9A
 magnet:?xt=urn:btih:DD6F5AC9D34F128C2695547FF32D1792EEBDBA46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ magnet:?xt=urn:btih:DD6F5AC9D34F128C2695547FF32D1792EEBDBA46
 ```bash
 magnet:?xt=urn:btih:265B6584FFCCF8A6F83AFD7C591D12946E65D28F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +176,8 @@ magnet:?xt=urn:btih:265B6584FFCCF8A6F83AFD7C591D12946E65D28F
 magnet:?xt=urn:btih:E3531E85DA7BE372746BD6E993D726DAB7067DFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +201,8 @@ magnet:?xt=urn:btih:E3531E85DA7BE372746BD6E993D726DAB7067DFE
 ```bash
 magnet:?xt=urn:btih:9499838BCAFC671F47CD67C8FD21EFDCE2DE1F65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +228,8 @@ magnet:?xt=urn:btih:9499838BCAFC671F47CD67C8FD21EFDCE2DE1F65
 magnet:?xt=urn:btih:7BC34829081E98C166C593D3D7412551DE8C8CD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +254,8 @@ magnet:?xt=urn:btih:7BC34829081E98C166C593D3D7412551DE8C8CD0
 magnet:?xt=urn:btih:E35DF78E0BB6A0B738D9AF69E030F03FC78542C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +279,8 @@ magnet:?xt=urn:btih:E35DF78E0BB6A0B738D9AF69E030F03FC78542C2
 ```bash
 magnet:?xt=urn:btih:BD03BE9312362A46A1875A1156826461A665928F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +307,8 @@ magnet:?xt=urn:btih:BD03BE9312362A46A1875A1156826461A665928F
 magnet:?xt=urn:btih:1932A14FC94F33360032BCB0F9B9502672679C3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +332,8 @@ magnet:?xt=urn:btih:1932A14FC94F33360032BCB0F9B9502672679C3D
 ```bash
 magnet:?xt=urn:btih:CF44C82A78A549CB4FE0CEC2593188E8D9478ABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +361,8 @@ magnet:?xt=urn:btih:CF44C82A78A549CB4FE0CEC2593188E8D9478ABF
 magnet:?xt=urn:btih:8DB3862A76ACD98C0BB97213BEAAE5D0D29B5B32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +386,8 @@ magnet:?xt=urn:btih:8DB3862A76ACD98C0BB97213BEAAE5D0D29B5B32
 ```bash
 magnet:?xt=urn:btih:A25F1FB8190C09EF802EA69D2940E1359DD31B49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +413,8 @@ magnet:?xt=urn:btih:A25F1FB8190C09EF802EA69D2940E1359DD31B49
 magnet:?xt=urn:btih:EC53380AFBAB74EC0227ADD1D0902CC22BC528EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +438,8 @@ magnet:?xt=urn:btih:EC53380AFBAB74EC0227ADD1D0902CC22BC528EF
 ```bash
 magnet:?xt=urn:btih:C199F985FEF6F62E58B4404A2C8565AEEEE55AEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +466,8 @@ magnet:?xt=urn:btih:C199F985FEF6F62E58B4404A2C8565AEEEE55AEE
 magnet:?xt=urn:btih:1DA21F17344E478E6EEABF52B3A5950D705B015C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +492,8 @@ magnet:?xt=urn:btih:1DA21F17344E478E6EEABF52B3A5950D705B015C
 ```bash
 magnet:?xt=urn:btih:599A27ECAF001B7AD1E6790900C4D1C011871134
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +521,8 @@ magnet:?xt=urn:btih:599A27ECAF001B7AD1E6790900C4D1C011871134
 magnet:?xt=urn:btih:BA21A982304EEB12F2AFA7FEBE9E8E18638A812C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +547,8 @@ magnet:?xt=urn:btih:BA21A982304EEB12F2AFA7FEBE9E8E18638A812C
 magnet:?xt=urn:btih:CA62EA19007A3E7021CE337A033212264EEEDF70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +572,8 @@ magnet:?xt=urn:btih:CA62EA19007A3E7021CE337A033212264EEEDF70
 ```bash
 magnet:?xt=urn:btih:F74978E528CE34424300912A8E462142F67D979E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +601,8 @@ magnet:?xt=urn:btih:F74978E528CE34424300912A8E462142F67D979E
 magnet:?xt=urn:btih:0CE88A2FA43D6B04ECC0F0A655DAB80C0FE8A3BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +627,8 @@ magnet:?xt=urn:btih:0CE88A2FA43D6B04ECC0F0A655DAB80C0FE8A3BE
 ```bash
 magnet:?xt=urn:btih:E016FCD56110130FDC91F1C5DF590DB78CD2AA81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +657,8 @@ magnet:?xt=urn:btih:E016FCD56110130FDC91F1C5DF590DB78CD2AA81
 magnet:?xt=urn:btih:12DDE4A88D4DA8183BEA3E8215A6DB6E41385FD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,30 +683,7 @@ magnet:?xt=urn:btih:12DDE4A88D4DA8183BEA3E8215A6DB6E41385FD6
 magnet:?xt=urn:btih:C13C470CCD59D556D49EF6E2E5F32AAF1991491B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 145360   (430711) от 11.10.2009
-
-Георгий Зотов | Элемент крови [2009] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_430711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гарантируем – такого вы еще не слушали никогда! Головокружительный мистический триллер, изобилующий черным юмором и скандальными пародиями на современную российскую действительность.
-Саддам Хусейн играет в дешевой рекламе. Телеведущий Влад Кистьев снимает сериал «Доктор Трупаго». Мэрилин Монро уменьшили бюст до нуля. Здесь чудовищные пробки, мобильная сеть – глючный (   Читать дальше...   )Жанр: Юмористическая фантастика
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

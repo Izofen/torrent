@@ -19,6 +19,8 @@ Kuttsukiboshi / Сцепленные звёздочки [2010-12, 2 эп. OVA] D
 magnet:?xt=urn:btih:CEE92FB5AFA8B0362A885EDE22FFBC15BD1540AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Bad Boys Blue - Instrumental Collections (2011) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:2CDC0E4B28968684D5584458564F64A19393E87C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +85,8 @@ magnet:?xt=urn:btih:2CDC0E4B28968684D5584458564F64A19393E87C
 ```bash
 magnet:?xt=urn:btih:45F23C157E1EDEA7FE02FBCE74A280BCD0DF67E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +121,8 @@ magnet:?xt=urn:btih:45F23C157E1EDEA7FE02FBCE74A280BCD0DF67E8
 magnet:?xt=urn:btih:E92A8B6B19D8478D424AA9B7EF7D4CBB7D87AC42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +147,8 @@ magnet:?xt=urn:btih:E92A8B6B19D8478D424AA9B7EF7D4CBB7D87AC42
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +183,8 @@ VA - Ministry of Sound - One RnB (2012) [Lossy]<RnB 3CD Boxset>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +218,8 @@ Swallow The Sun - 8 albums (2003-2012) [FLAC|Lossless] <Melodic Death / Doom Met
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +243,8 @@ Swallow The Sun - 8 albums (2003-2012) [FLAC|Lossless] <Melodic Death / Doom Met
 ```bash
 magnet:?xt=urn:btih:D16DA5B36E0A9E26D2F05E4FDA2C50E7DE8608F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +279,8 @@ VA - Классный Muzon Best Hits (2012) [MP3|192-320 кб/с]<Pop>
 magnet:?xt=urn:btih:39A346E88933CC98F99066CCC47A46E6037FCB2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +304,8 @@ magnet:?xt=urn:btih:39A346E88933CC98F99066CCC47A46E6037FCB2C
 ```bash
 magnet:?xt=urn:btih:D4F81A83E0D0061EA14FF86A13731F9B89B57C98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +331,8 @@ magnet:?xt=urn:btih:D4F81A83E0D0061EA14FF86A13731F9B89B57C98
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +357,8 @@ magnet:?xt=urn:btih:D4F81A83E0D0061EA14FF86A13731F9B89B57C98
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +382,8 @@ magnet:?xt=urn:btih:D4F81A83E0D0061EA14FF86A13731F9B89B57C98
 ```bash
 magnet:?xt=urn:btih:5E2C1D43A82E85A021E7D2C18055CC770BD8DF20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +411,8 @@ magnet:?xt=urn:btih:5E2C1D43A82E85A021E7D2C18055CC770BD8DF20
 magnet:?xt=urn:btih:1C5720A66A63E104D9A59FB6EFA34D028D4711B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +436,8 @@ magnet:?xt=urn:btih:1C5720A66A63E104D9A59FB6EFA34D028D4711B3
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +463,8 @@ magnet:?xt=urn:btih:1C5720A66A63E104D9A59FB6EFA34D028D4711B3
 magnet:?xt=urn:btih:3A19E409C5FD60F8073A839E502E06EA9438653B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +488,8 @@ magnet:?xt=urn:btih:3A19E409C5FD60F8073A839E502E06EA9438653B
 ```bash
 magnet:?xt=urn:btih:2344C2115E086719FF6D36E70A4367C618504935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +517,8 @@ Advanced SystemCare - программа, включающая в себя мн�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +544,8 @@ Advanced SystemCare - программа, включающая в себя мн�
 magnet:?xt=urn:btih:36F712174511692C9A39FF48A8CFCF0A75042331
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ Ella Fitzgerald - Ella Fitzgerald (1935 - 1940) 5-CD (1990, 1991) [FLAC|Lossless
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +597,8 @@ Digital Hive Live Wallpaper представляет из себя действ�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +622,8 @@ DLL-files Fixer - программа для чистки и оптимизаци
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +649,8 @@ DLL-files Fixer - программа для чистки и оптимизаци
 magnet:?xt=urn:btih:5AEE2CB2635C66FC74BCFA5F5DAAC1B0CB2B1BFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +674,8 @@ magnet:?xt=urn:btih:5AEE2CB2635C66FC74BCFA5F5DAAC1B0CB2B1BFF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +701,8 @@ magnet:?xt=urn:btih:5AEE2CB2635C66FC74BCFA5F5DAAC1B0CB2B1BFF
 magnet:?xt=urn:btih:AC8820B25D457396C5C156A32F5E1D1AA5D3A844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +726,8 @@ magnet:?xt=urn:btih:AC8820B25D457396C5C156A32F5E1D1AA5D3A844
 ```bash
 magnet:?xt=urn:btih:E876FDBF4B6DF2C25D7FF248190E1CA2390D748D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

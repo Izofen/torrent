@@ -19,6 +19,8 @@ Riven (2024) [Ru/Multi] (build 1294) Scene DOGE
 magnet:?xt=urn:btih:835838D0405A752A4AA7A2E2F990D0C80A25E9F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Robbo Millennium - игра-пазл, события которой начина
 ```bash
 magnet:?xt=urn:btih:DD5F4C53D0E49DE16630E393F8B5D5DD88E5342F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ HORROR TALES: The Beggar бросает вас с головой в разруш
 magnet:?xt=urn:btih:616A7EEB72708A66582C5FF6AF9EA5FB741118F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ REPUNK - одна из таких игр, которая предлагает з
 ```bash
 magnet:?xt=urn:btih:65E4B6DFB60F92593A0CE2EB7BCDDC038FC068EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Don't Shout Together (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:31C516E8BEDCC730693732B89601C92AE414DB1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ VENARI - Escape Room Adventure (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DED74BCBDDFD1443CE88F0CE3B2307DE6757D341
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Nowhere Near (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:DC8450E22EDBD96CF4986049BCFA4EA6073E4FE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Kona II (2): Brume (2023) [Ru/Multi] (2023-11-24) License GOG
 ```bash
 magnet:?xt=urn:btih:1F3D1EEEB6B217D68B97208FBA89C2CA5EF42B09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Vanity Fair: The Pursuit / Игра славы и богатства (2024) [Ru/
 magnet:?xt=urn:btih:C130CCAA50848053E62B8A1C7D25F4990135226D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Despair: Blood Curse (2024) [Ru/Multi] (1.02) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:D262F3539D81996357093C98ECB16ED2A0B7756E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ A Tower Full of Cats - это уникальная пазл-адвенчура �
 magnet:?xt=urn:btih:F0A6E46FA9EF70DE73F319EBC2D1B2AAFED093C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Alisa (2021) [Multi] (1.18) License GOG
 ```bash
 magnet:?xt=urn:btih:DF1700A748A30DE8B052C6EA093350C7D1E08CCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Homebody (2024) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:6CBEAA2ECCF0208598F2E86D9D4BE16D31E9DFCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ A Castle Full of Cats позволяет игрокам отправиться �
 ```bash
 magnet:?xt=urn:btih:E053429E32BE5823EC6672A86C4DF454B935DA6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Night is Grey наполнена мрачной атмосферой тем�
 magnet:?xt=urn:btih:8507DE5220A4F6B9824AFFC302B47E51060518BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ HORROR TALES: The Beggar бросает вас с головой в разруш
 ```bash
 magnet:?xt=urn:btih:5FE7CBD2DA8C60D61F21095324F07F33B09907DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Chiyo - это посвященный японской мифологии инд
 magnet:?xt=urn:btih:CB5BF4D710B25F91176FA05483F90FF244BEC266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Still Wakes the Deep (2024) [Ru/Multi] (1.2) Scene FairLight
 ```bash
 magnet:?xt=urn:btih:82F4D003B3673CE1C8ACFDFBA7112C6E2A9BC025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Q.U.B.E. 10th Anniversary - переиздание культовой голов
 magnet:?xt=urn:btih:1177FF3F077DBE5A551868310F886794B56EE7C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Tension / Тургор (2008) [Ru] (1.01) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:EC74F2865B6B63A5200868626A269E7C96E8DE41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Fallen Seeds отправляет игроков на Ультар, планет
 magnet:?xt=urn:btih:74F2FE942FED1A436C4D7E3FDF8A6EFE445DF502
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Outer Wilds – приключенческий экшен от первого л
 ```bash
 magnet:?xt=urn:btih:19D925094C6A6953DC0CCE5AE68303D92CEE249E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ ECHOSTASIS бросает вас в глубины цифрового созна
 magnet:?xt=urn:btih:09BE988909D803D74E6682ACFC64A7D95795391B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Enigma Quest – отправьтесь навстречу таинственн�
 ```bash
 magnet:?xt=urn:btih:77E98E04BB76E478A19F57BE4ABFE377D62B5F4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Baisu (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:3DCF6FFD9D79F10351188DE2170F763A30D979A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Scholar's Mate бросает вас в огонь. Стратегия и соо
 ```bash
 magnet:?xt=urn:btih:319D4640B4FC5D4ED96EDA0D9675D90466FACCD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

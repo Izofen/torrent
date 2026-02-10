@@ -1,3 +1,148 @@
+###  Публикация: 1310966   (544537) от 27.06.2019
+
+VA - Mellow Gold: 70s Classics (2019) [MP3|320 Kbps] <Pop, Soul, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bread – If
+02. Seals and Crofts – Hummingbird
+03. America – Muskrat Love
+04. Gerry Rafferty – Look at the Moon(   Читать дальше...   )Жанр: Pop, Soul, FunkПродолжительность: 01:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0428220E97F5D539B094CAD7A8524FE3AE881C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310994   (544582) от 27.06.2019
+
+Helen Shapiro - At Abbey Road 1961-1967 (1998) [FLAC|Lossless|tracks + .cue] <Blues, Pop, Soul, Funk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Treat Me Like A Child (Mono) (02:36)
+02. You Don't Know (Mono) (03:12)
+03. Walkin' Back To Happiness (Take 2 Plus Studio Conversations) (Stereo) (02:51)
+04. Walkin' Back to Happiness (Take 13 Master) (Stereo) (02:34)(   Читать дальше...   )Жанр: Blues, Pop, Soul, FunkПродолжительность: 01:13:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EE4B3F3ECEA801D89EC0057BA363DF844CEC3ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311013   (544584) от 27.06.2019
+
+Helen Shapiro - 'Tops' With Me / Helen Hits Out! (2000) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Devil
+02. Will You Love Me Tomorrow?
+03. Because They're Young
+04. The Day The Rains Came(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:08:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4906B09A338BF459967994F5C364F351C29F87F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1238862   (544606) от 01.08.2018
+
+VA - Supervara (2018) 2CD [FLAC|Lossless|image + .cue] <Dance, Synth-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544606.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Inna – Me gusta (3:56)
+02. Manuel Riva feat. Alexandra Stan – Miami (3:34)
+03. Akcent feat REEA – Deep In Your Eyes (3:14)(   Читать дальше...   )Жанр: Dance, Synth-PopПродолжительность: 01:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830677F67A6FF0D6DC35BAA0F1723E99090BDEFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049277   (544785) от 04.09.2016
+
+Mariah Carey - Music Box (1993) [FLAC|Lossless|image + .cue] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544785.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Dreamlover 3:53
+2 Hero 4:19
+3 Anytime You Need A Friend 4:26
+4 Music Box 4:57(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C79618A0E139ED2471D2399240F4A9F3AD612DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049247   (544791) от 04.09.2016
 
 VA - Extended Version & Remix, Vol. 3 - The Sound of Italo Disco (2016) [MP3|320 Kbps] <Disco,Dance,Italo Disco>
@@ -21,6 +166,8 @@ VA - Extended Version & Remix, Vol. 3 - The Sound of Italo Disco (2016) [MP3|320
 ```bash
 magnet:?xt=urn:btih:FA739CD51BD5759F15B2D0EF14DB6F97302F04F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ VA - Italo Dance Rimini (2016) [MP3|320 Kbps] <Disco, Italo Dance, House>
 magnet:?xt=urn:btih:E5B594BA824D04010E6A38D8157C595514A689E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ VA - Extended Version & Remix, Vol. 2 The Sound of Italo Disco (2016) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:0D87B7AF5EE3C1BFD85ADF9A5C9F59054436ABF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ Musique (Музыка) - диско проект американского пр
 magnet:?xt=urn:btih:6F4D99D85F5F84F6241F0D8098A07875D794C868
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +282,8 @@ VA - Synth Planet (2010) LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop, Disc
 ```bash
 magnet:?xt=urn:btih:60469AB39681003894234EF04152949C1E48D791
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +312,8 @@ magnet:?xt=urn:btih:60469AB39681003894234EF04152949C1E48D791
 magnet:?xt=urn:btih:2FF1786914029A65721B3DFDC5063FE602DFD15F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +340,8 @@ Plazma - Six | Zero | Seven (New Version) (2004) [FLAC|Lossless|image + .cue] <P
 ```bash
 magnet:?xt=urn:btih:71B2B2AAAF1F1150E50AC7859C705185087A3957
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +370,8 @@ Sophie Ellis-Bextor - Familia (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:AC5EE8E2B8489031EE74B633649A936D12F935FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +398,8 @@ Plazma - Black & White (2006) [FLAC|Lossless|image + .cue] <Pop, Euro House>
 ```bash
 magnet:?xt=urn:btih:89EB4949DA3EE36BAFDE0C898B6DDAE06428F0D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +434,8 @@ Various Artists - Hits 2013 Vol-2 (2013) [FLAC|Lossless]<Pop>
 magnet:?xt=urn:btih:134416F7879F8EC7F85E85855F3C026679D57438
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +462,8 @@ Brian Bennett - Voyage (A Journey Into Discoid Funk) (1978) LP [MP3|320 Kbps] <E
 ```bash
 magnet:?xt=urn:btih:52C38E735ABFFB14CBC2EBECE2B0AE251F4DD45E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +492,8 @@ Sophie Ellis Bextor - Familia (2016) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:5F422019B00F0B2FC00A57B318142E74CB7C923F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +520,8 @@ VA - Paris' Nights - Romantic Collection (Unknown) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:40A563BE14DBCFA215814D956717ECDAAEB7FA8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +550,8 @@ VA - POLAND - Romantic Collection (Unknown) [FLAC|Lossless|image + .cue] <Pop, B
 magnet:?xt=urn:btih:5393F31D2F91D19AC163723B90EAC629C52F623D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +578,8 @@ magnet:?xt=urn:btih:5393F31D2F91D19AC163723B90EAC629C52F623D
 ```bash
 magnet:?xt=urn:btih:3266D4894E6CDFFD2781AA4978F72D77A9B02191
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +608,8 @@ VA - Schlager Sommer Megamix 2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
 magnet:?xt=urn:btih:0C464A00294EB7049349D3AD14436FED0B3AB77D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +637,8 @@ Crown Heights Affair - Essential Dancefloor Artists Volume 1 (1994) [FLAC|Lossle
 magnet:?xt=urn:btih:E1C54425D5C7788000EF39B4030790B40297BC94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +663,8 @@ VA - Extended Version & Remix, Vol. 1 - The Sound of Italo Disco (2016) [MP3|320
 ```bash
 magnet:?xt=urn:btih:5A4AF7E4FA7D5E649BD74CF66546B027C4F861C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +692,8 @@ Maroon 5 - V (2014) Deluxe Edition [MP3|320 кб/с]<Pop-Rock>
 ```bash
 magnet:?xt=urn:btih:01420860FC78FEA5044176F8415CB5F193F88BB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +728,8 @@ Various Artists - Hits 2013 Vol-2 (2013) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:4418C14CDBCFBF62B26439761525F3B5CBA14CA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,140 +757,7 @@ Sailor - 2 Albums (1976, 1977) LP [MP3|320 Kbps] <Pop Rock, Disco>
 magnet:?xt=urn:btih:8FFA06C8A319B6184007AE440873E9687E645992
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048027   (548081) от 31.08.2016
-
-VA - Хитовый Dance (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Юлианна Караулова - Море (feat. ST)
-02. Анна Седокова - Я буду
-03. Karabass - Танцы
-04. Митя Фомин - Следуй за солнцем (DJ Noiz Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 01:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9439FDA96D15B3697694E65666386C02AF69336
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047884   (548251) от 31.08.2016
-
-Carly Rae Jepsen - Emotion Side B (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Time
-02. Higher
-03. The One
-04. Fever(   Читать дальше...   )Жанр: PopПродолжительность: 00:27:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F24308131EEB947EC6D29A097E13B42B92BC4D8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047921   (548257) от 31.08.2016
-
-Barry Manilow - Live On Broadway (1990) [FLAC|Lossless|image + .cue] <Ballad, Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Life / It's A Long Way Up (6:56)
-02. Brooklyn Blues (3:41)
-03. Memory (4:18)
-04. Up Front (5:30)(   Читать дальше...   )Жанр: Ballad, VocalПродолжительность: 01:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B47A9EB00A9B1160E00C46E305ACE6D9790490A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310033   (548836) от 22.06.2019
-
-VA - Ballermann Hits 2019 (XXL Fan Edition) (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro - Wer Schläft, Verliert
-02. Mickie Krause - Eine Woche Wach
-03. Mia Julia - Weck Mich Nicht Auf
-04. Peter Wackel Feat. Tapo & Raya - Boom Boom(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:57:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E71E2B981CA396F274438BD74A05EFA8CF4AC82A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310096   (548851) от 22.06.2019
-
-VA - Schlager Sommer Wahnsinn (2019) [MP3|320 Kbps] <Schlager>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_548851.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-01. Anita & Alexandra Hofmann - Wahnsinn
-02. Roland Kaiser - Sommer in deinen Armen (Eleni)
-03. Maite Kelly - Die Sonne geht auf(   Читать дальше...   )Жанр: SchlagerПродолжительность: 02:19:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A3BEC47DB5A8EA2FCEB2C18F349D7F6DB0935AA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

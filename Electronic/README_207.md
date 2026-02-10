@@ -22,6 +22,8 @@ Edamame - Bask (2017) [MP3|320 Kbps] <chill electronic, ambient, downtempo>
 magnet:?xt=urn:btih:5152D731C8208223DBFA45B7E165CF1CF5DFD4B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Coastal Sunrise 001 (2017) [MP3|320 Kbps] <House, Progressive House>
 ```bash
 magnet:?xt=urn:btih:2A2EB0C3530458435B6B511B2EDE72605619E81B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Vladimir Fonarev (Володя Фонарёв) - 21 Compilations (1997 - 2017) [
 magnet:?xt=urn:btih:89265B8BD7AF9F5119CB5873E562D3F611751D57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Psychedelic Adventures Vol 3 (Selected by Aesis Alien) (2018) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:676D89EDDF4596A19A5E89B9C07A3A5E69D0C6C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Derek Palmer - Gemini (2019) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:7AB4425B2105F0C94973DDE7F92E55AD2FC43733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - DJ Фонарь - Reactivate Classics Part I  (1998) [MP3|320 Kbps] <Techno
 ```bash
 magnet:?xt=urn:btih:06D6C379250EFBCA4A0A6876249FBF6A83489242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Alexander Popov - Intention (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:90D1A0FCFA1CB9077C29B9AF0A7208E9F0BF4A4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - A State of Trance: Top 20 - October (Selected By Armin Van Buuren)(ADE Spec
 ```bash
 magnet:?xt=urn:btih:CA4D9DE61DFB237445DF1CC90783AC51FDB99179
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Electro Deluxe - Apollo (2019) [FLAC 2.0|48/24|tracks|WEB-DL] <Electro,  Funk>
 magnet:?xt=urn:btih:0E1D721822EF98764170D7EADFDCC3108C516E95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Total Trance Selections Vol.13 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:6BAA02BD9D531E8CC951644C62EFDB118FE5DD33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Anjunabeats Volume 14 (Mixed By Above & Beyond) (2019) [FLAC|Lossless|WEB|t
 magnet:?xt=urn:btih:134923CA2F841C18325730EF85F7623D885CDB79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Jeffrey Sutorius (Dash Berlin) @ Mainstage, Ultra Music Festival Europe, Croatia
 ```bash
 magnet:?xt=urn:btih:8D2AA4E59566ECDFC3717C14E482900282BFB958
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Arkham Digital: ADE Essentials (Selected by DJ Xquizit)(2018) [MP3|320 Kbps
 magnet:?xt=urn:btih:2089791EE48030720EB24EAD9ADF589F717B3F92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Beach Bar Lounge: Chill out and Deep House Selection (2016) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:522AF3680361C3611D8732792B49FEC3E6044DA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - 25 Vocal House Multibundle (2016) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:017FB3438326089DF452A5F91225D2525562E107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ Portico Quartet - Memory Streams (2019) [MP3|320 Kbps] <Ambient, Crossover Jazz>
 magnet:?xt=urn:btih:97751ABB4562A6715651A6ECC48D7A3E52DC53C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ Vlastur - Interaxion Dub (2009) EQnation Records [FLAC|Lossless]<Psychill, Dub, 
 magnet:?xt=urn:btih:90FD44AF1B4827545448E6D9D9C5A48635343C8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +508,8 @@ Boy is Fiction - Discography 4 Releases (2007-2020) Sun Sea Sky, List Records, n
 ```bash
 magnet:?xt=urn:btih:7B5CE55A484BDFE3F5360DFEE2BF0B6045CBBC8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +538,8 @@ John Frusciante - Maya (2020) Timesig [FLAC|Lossless|WEB-DL|tracks] <Breakbeat, 
 magnet:?xt=urn:btih:05372C6D456C07F7AA27823437AF0DD945F6B884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +566,8 @@ Dreamtime - Rigid Force Alpha: Extended Soundtrack (2019) [FLAC 2.0|44,1/24|trac
 ```bash
 magnet:?xt=urn:btih:84259D7834245DDB07227167F5937A4353305DB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +596,8 @@ VA - Euphoria Classics - Ministry Of Sound (2017) [MP3|320 Kbps] <House, Trance,
 magnet:?xt=urn:btih:582D89E0448555FEC64C7608EA36194065F89E5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +624,8 @@ VA - Future Sound Theory 2 (Compiled by Matt.B) Celestial Dragon Records (2008) 
 ```bash
 magnet:?xt=urn:btih:86A5773408F741D679EB5583448C9493072E687F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +654,8 @@ VA - Erotique Lounge (Finest Chill Out & Lounge Grooves) Vol 2 (2015) [MP3|320 �
 magnet:?xt=urn:btih:4D78CF4FCD603BCD0D4E467E51CB06CF0A6677A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +682,8 @@ VA - Coffee House: Armada Music (2017) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:FD565C07D5CC45FD639B2F787D10C8097AA70DCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +712,8 @@ VA - Progressive Goa Trance Vol.4 (2017) [MP3|320 Kbps] <Psy-Trance>
 magnet:?xt=urn:btih:1920EB6B33768DF1B5C181F7507A4DC90B1FFCC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +737,8 @@ DDR Space Program - 1 Single,2 EP (2016-2017) [MP3|320 Kbps] <New Wave, Spacesyn
 ```bash
 magnet:?xt=urn:btih:B1EC2DBF1947395DBFCA1521D1D14AD481F02BD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

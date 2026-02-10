@@ -19,6 +19,8 @@ Sandboxie - yтилита для контроля за работой разли
 magnet:?xt=urn:btih:17C25EDFDD4F4E02BD9570F56704F018829AD840
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FireAlpaca - это достаточно простой, но удобный г�
 ```bash
 magnet:?xt=urn:btih:EA75CA77B791C03CB0B6A6E25110FAC9808E9D46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ GeoGebra — мультиплатформенная программное об�
 magnet:?xt=urn:btih:2B2D79D32DB0EDBC71BDBD3C80D563E358A7C960
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ File & Image Uploader - удобная и просто незаменимая п
 ```bash
 magnet:?xt=urn:btih:44EA13F350F02CE119BA0032F9DA5477A30AB666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Total Commander 11.02 (11.01.2024) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:896002A7F3A22DA88D55481DF258C735BD988DE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:211629DE639EA388B81070269B92251A7367C757
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Clipboard Master — удобный и всеобъемлющий инструм
 magnet:?xt=urn:btih:1C43E888F9BC7654A4C2884EEEA160387940912C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:6B1C2F8D1553CA14318D5345ED5B89BA1F84BFBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ Pipette — данный продукт пригодится дизайнера�
 ```bash
 magnet:?xt=urn:btih:4B5380068C96C86756535DDC30301C6FC329F364
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ darktable — фоторедактор, предназначенный для о
 magnet:?xt=urn:btih:EEF16D4ABCD8AEFA005003ADD8F7C1692AB5AE3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:67C3BEAA3A5162F26B2599D091B3C69C8EC56984
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Kerio Control — это комплексное решение в области
 magnet:?xt=urn:btih:677240273E2DEA4E3C4F20871C20E22570B3E0EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 magnet:?xt=urn:btih:CC1E96DB5C97B86631686880FCEA8A3C36DEFF24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Soft Organizer Pro 9.43 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:19F0EABAE2724CFA7ACF4E5420D5A998B7972DDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Microsoft .NET 8.0.1 Runtime [Ru/En]
 magnet:?xt=urn:btih:E5C3B46C55B692EDB593F40EBFA7708572023539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Chromium-Gost — это модификация стандартного бра�
 magnet:?xt=urn:btih:2A845BD8A9DFC3826FFDF708702A6DFCFC4A4564
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:E132128011D3E669041857037EEAB493C79EFB6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Smart Defrag - дефрагментатор, позволяющий довест
 magnet:?xt=urn:btih:09BE251950BB2A86DA37734887E701EB237D5BFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Total Commander 11.02 Final - Titan v33 Portable by pcDenPro [Ru]
 ```bash
 magnet:?xt=urn:btih:17E21DFB15E6D471DFEE941D7B3378A64EE5D693
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Total Commander Ultima Prime — это набор утилит и разноо�
 magnet:?xt=urn:btih:D1E4C56E0EDBDEA3D0FEA469EB71B02A50FAD5D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:D1E4C56E0EDBDEA3D0FEA469EB71B02A50FAD5D8
 magnet:?xt=urn:btih:B4A753AD5FE6506CCEBEE9DDC53E4FBA2505207E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Total Uninstall - утилита, предназначенная для корр
 ```bash
 magnet:?xt=urn:btih:2CF08AF61D5971F9F877587EB15CD2C65E543038
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ MediaHuman YouTube Downloader 3.9.9.88 (0110) RePack (& Portable) by elchupacabr
 magnet:?xt=urn:btih:12932BF0BBB6383F38FA0EFF3BB1E8D923D81B94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 ```bash
 magnet:?xt=urn:btih:7AC8A9CD16E09C164EA91A3184CEC9F8BCFEC1C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391
 magnet:?xt=urn:btih:B2CA85A6FA609EF944A6652A93C60BEF5960883A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ AIDA64 - утилита является мощным средством для 
 ```bash
 magnet:?xt=urn:btih:D1FC70094F0D8E878DC61C9E8030BD267847767F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

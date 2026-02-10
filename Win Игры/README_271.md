@@ -19,6 +19,8 @@ Bucket Knight - динамичный инди-платформер, расска
 magnet:?xt=urn:btih:DCD79EF80334075B5E5759DD9170C59C8879D105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Atelier Marie Remake: The Alchemist of Salburg - это увлекательна
 ```bash
 magnet:?xt=urn:btih:47054E04A80B9FB445D5FBBD285C7BE87322A624
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ GYLT (2023) [Ru/Multi] (1.1.1.5) Scene FairLight
 magnet:?xt=urn:btih:33C63ACFEB295C174A698E8C84A7CE61983586A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Skydrift Infinity - это динамичная аркадная игра, в к
 ```bash
 magnet:?xt=urn:btih:50B2891FD86CE5DCA8D2A0917161C196A87CB21D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Fall of Porcupine (2023) [Multi] (1.1.12) License GOG
 magnet:?xt=urn:btih:935156280F2A072D214D3BDA311736CE2D64A33C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Bus Driver Simulator 2019 (2019) [Ru/Multi] (7.61/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:6564F1CE8C84BC8EE687938567EAFC1C65904E78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Radio Commander – стратегия в режиме реального вре
 magnet:?xt=urn:btih:A33E3AC532DB3E7E6E8F11C407624EBFC899CD4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Battle Axe (2021) [Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:BFBD227FF293D734E48AA7665FC40FD0E083C095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Sky Haven Tycoon - Airport Simulator - симулятор аэропорта, в
 magnet:?xt=urn:btih:A2C4DA1DF2CF703D8262A1B342771D3EB35B4B8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Maximum Action (2018) [En] (0.92) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:E025EA9969751D5CFEB21E623F097FEA7C480D02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Time Loader - игра-головоломка, пропитанная носта
 magnet:?xt=urn:btih:20A844A26C5F2AF389AB57F7D0EE7872EB6BCCDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Adeptus Titanicus: Dominus – пошаговая тактическая стр�
 ```bash
 magnet:?xt=urn:btih:E5D38FF0FB7A6704C7575308B36443A705CC745A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Total War: Attila (2015) [Ru/En] (1.6.0/dlc) Repack dixen18
 magnet:?xt=urn:btih:5D01571A18DE2548A562FDE96F871D3A0F2C7792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Stay Out of the House предлагает пережить настоящий �
 ```bash
 magnet:?xt=urn:btih:D356C10AAE0800C1C9D2ADC7F1405D1C55A933AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ To Hell With The Ugly (2023) [Multi] (1.1.0) License GOG
 magnet:?xt=urn:btih:813A56BD35E91AF3012389630F11761FCB6487E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Ravenbound - это оригинальный ролевой экшен с эле
 ```bash
 magnet:?xt=urn:btih:CC7683609AD8F3A3476C47E3D1E979A5EEDA59FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Shore (2021) [Ru/Multi] (19.02.2022) Scene CODEX
 magnet:?xt=urn:btih:035ACB762F4E1429FB33A5A559DA530E31DB66E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Guilty Gear -Strive- (2021) [Multi] (1.27/dlc) Scene SKiDROW
 ```bash
 magnet:?xt=urn:btih:E3C81D7F401B1EC03D3478FF21FDB3A8B06982FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Afterimage (2023) [Ru/Multi] (1.1.0/dlc) Scene Tenoke
 magnet:?xt=urn:btih:09D7A967A8469F90467A86548623BAD45F4E5B05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Cloud Meadow (2020) [En] (0.1.4.2a2) License GOG [Early Access] [18+]
 ```bash
 magnet:?xt=urn:btih:017CC0841222D627967677C143073DCFD4278F32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ FRONT MISSION 1st: Remake - атмосферная тактическая пош
 magnet:?xt=urn:btih:B8223CBE7A91B96FAFDC447CF3E3DE6B5AB887B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Voodolls (2023) [Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:4E7407253CCC89E8BBC7D12A1F6BE212600C664F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Tartarus Key (2023) [En] (01.01b) License GOG
 magnet:?xt=urn:btih:CE44695C59A01682F72A87B096E6B05C8EF51AB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Dr. Fetus' Mean Meat Machine - это идеальный баланс между
 ```bash
 magnet:?xt=urn:btih:71AACA667D9E0FF25035DCB5F2AFBB77010C2613
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Civitatem - однопользовательский градостроител�
 magnet:?xt=urn:btih:CEAF35E3B9D9B26FBD636DC3BC848163E2F84BD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Sludge Life 2 - это продолжение сюрреалистическог
 ```bash
 magnet:?xt=urn:btih:95245C0795821D0B615C61C7750CD6AE11DBDF89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

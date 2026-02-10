@@ -1,3 +1,32 @@
+###  Публикация: 943149   (449429) от 03.10.2015
+
+Medwyn Goodall - Beautiful World (2015) [MP3|320 кб/с]<New Age>
+
+>>Неофициальные сборники
+>>Instrumental/New Age/Meditative/Relax (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unbroken [00:06:02]
+02. Threshold [00:06:31]
+03. Beautiful World [00:05:43]
+04. Blue Skies [00:05:57](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:267F5EF40686FD9D79BDD86F8570F78B539A89A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943232   (449435) от 03.10.2015
 
 Mireille Mathieu - Good Songs (2015) [MP3|128 кб/с]<Pop, Female vocalists>
@@ -21,6 +50,8 @@ Mireille Mathieu - Good Songs (2015) [MP3|128 кб/с]<Pop, Female vocalists>
 ```bash
 magnet:?xt=urn:btih:775B40CDC24F470BC1B5BA20DF5F46AE226183EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Summer Nights (Emotional Lounge & Smooth Jazz Collection) (2015) [MP3|320 �
 magnet:?xt=urn:btih:70EBAFFDA1DC2E77375337EAFCAFF6B8075EE61E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ VA - Milan Expo Lounge Mood (2015) [MP3|320 кб/с]<Lounge, Jazzy, Pop>
 magnet:?xt=urn:btih:36FCEA1027F7C1E3566F8B3A622A2A8803018B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +136,8 @@ VA - Global Player 2015, Lounge Edition, Vol. 2 (2015) [MP3|320 кб/с]<Downtem
 ```bash
 magnet:?xt=urn:btih:A1088A1D24FCE8F822CC2C25361E4203EE2D905B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +166,8 @@ VA - 120 Euro EDM: October Set (2016) [MP3|320 Kbps] <Dance, Club, Electro House
 magnet:?xt=urn:btih:27630BECA5C6D0C52B0D3522C94CCE59D48A0994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +194,8 @@ VA - Italo Disco Collection Vol.4 (2017) [MP3|320 Kbps] <Italo Disco>
 ```bash
 magnet:?xt=urn:btih:80A8101FB698347234894E6417BAAD8F5E36E09C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +224,8 @@ VA - Bass Killer 13 (2017) [MP3|320 Kbps] <Big Room, Dubstep, Electro House, Tra
 magnet:?xt=urn:btih:270806673085E4F0114729FF624D02ABBF76E60F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +253,8 @@ VA - The Official UK Top 40 Singles Chart (01-09-2017) [MP3|320 Kbps] <Pop, Danc
 ```bash
 magnet:?xt=urn:btih:DC5494B2B142F8C2593ECE4C570DE74F119CFACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +289,8 @@ VA - Самые Горячие Хиты Авторадио 50/50 (2012) [MP3|224
 magnet:?xt=urn:btih:5413BAC436BDCD29A2C8260D42D73B204C999596
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +318,8 @@ Demis Roussos - Hits (2016) Presents: Elgujakviso [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:A24E65A1AE31CF2DF7ED87A1D37EB34767083721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +346,8 @@ VA - Летняя свежая 30-тка 3 (2019) [MP3|320 Kbps] <Pop, Dance, Ot
 ```bash
 magnet:?xt=urn:btih:C952D440FB6D024CA42B09212D52179EAF9B8919
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +382,8 @@ Instrumental Core - The New Era (2012) [MP3|320 кб/с]<Dubstep, Instrumental, 
 magnet:?xt=urn:btih:AE78A81D2D23D28E8239E53004F36788FEC9A814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +417,8 @@ Dj Parafich - Pumping Romantica (2012) [MP3|192 кб/с]<Pumping House, Hard Bas
 magnet:?xt=urn:btih:DC60035E99575DEEB0FF0D4D749776B97A41CCC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +445,8 @@ VA - Зайцев.нет. Осенний топ №8 (2016) [MP3|256~320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:0916F2403526B3EA191C6FDA12678A5485597C9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +475,8 @@ VA - 80s Respect Magic Liberty (2016) [MP3|128-320 Kbps] <Electro Pop, Eurodance
 magnet:?xt=urn:btih:FD3A244C2E2388E2C802BF14EDD52330EF94F202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +504,8 @@ VA - Романтика Шансона: Осенняя Лирика (2016) [MP3|
 magnet:?xt=urn:btih:445BB421784D3E14236E72F28490DF1F002922D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +532,8 @@ VA - Drum City Sound Party (2019) [MP3|320 Kbps] <Drum And Bass, Dubstep, Bass E
 ```bash
 magnet:?xt=urn:btih:05CA8EF81CA11B431E4ABA910C5918B08B07A58C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +568,8 @@ VA - Absolute Erotic Music (2012) [MP3|320 кб/с]<SexPop>
 magnet:?xt=urn:btih:7821E2059ABC8F05688676614459445051C1451C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +597,8 @@ VA - Deep Sleep: music for sleeping (2016) [MP3|320 Kbps] <Downtempo, Chillout, 
 magnet:?xt=urn:btih:DDD89D7539B7CF9A102E50BD1D18034E094A1890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +625,8 @@ VA - ЕвроХит Топ 40 Europa Plus 14.09.2018 (2018) [MP3|320 Kbps] <Pop,
 ```bash
 magnet:?xt=urn:btih:0E610EB6FE8FAC9EAF1F1C5A5ACE0B595573A8AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +661,8 @@ VA - XXXL Клубничка MTV №30 50/50 (2012) [MP3|256 кб/с]<Pop, Dance
 magnet:?xt=urn:btih:99D92582B84FB6B3AB3E68BD8E7A9097A630EC02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +689,8 @@ VA - К чёрту любовь. Суперсборник хитов (2016) [MP3
 ```bash
 magnet:?xt=urn:btih:3F48F23D8136CDACE94F8B9992ED70E402CB05C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +719,8 @@ VA - 100% Hits! Forward Now Remixes (2016) [MP3|320 Kbps] <House, Future House, 
 magnet:?xt=urn:btih:C0C6E7A550806DADD5F4DEECD66CD51F3C2C7CEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +747,8 @@ VA - Hits of My Soul Vol. 59 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:BF4B97C72AE40A98370B67732ED9E311516FA6BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,38 +777,7 @@ Modern Talking - Good Songs (2015) [MP3|160 кб/с]<Pop, Eurodance>
 magnet:?xt=urn:btih:D5C3308E41D747D073FCEE06C6509121F63818B3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 551989   (451268) от 25.09.2012
-
-VA - Автозвук Осень Зарубежный (2012) [MP3|160-256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 DJane Housekat feat. Rameez - My party (Groove Coverage remix)
-02 Tom Boxer - Deep in love (DJ Nejtrino & DJ Baur radio mix)
-03 Will.I.Am feat. Jennifer Lopez - T.H.E. (DJ Rich-Art & DJ Kirillich remix)
-04 Jeffree Star - Blow me
-05 Mandinga - Zaleilah (Hanter Remix 2k12 edit)
-06 Sheikh & Nicco - Hold tight (Radio mix)
-07 Connect-R - Take it slow (DJ Bonne remix)
-08 Far East Movement feat. Kay - Flossy
-09 Marlon Roudette - Anti hero
-10 K'naan feat. Nelly Furtado - Is anybody out there(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94632BF2121EC1578D66B1903AEDFE7C4B5259AD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3134C6B53B117128FB94AF26935BEDBDA4784E79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Janne Hatula (Fanu, FanuSamurai) - Дискография (4 альбома, 14 
 magnet:?xt=urn:btih:22E0884FD2D894061246549974AD8FFEE39154FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:22E0884FD2D894061246549974AD8FFEE39154FE
 ```bash
 magnet:?xt=urn:btih:2E3B1CCC32D024F7056F38BD242A8A28D754F217
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:2E3B1CCC32D024F7056F38BD242A8A28D754F217
 magnet:?xt=urn:btih:773D6D672901F2A4E35310FA3833EF1809F513BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:773D6D672901F2A4E35310FA3833EF1809F513BF
 ```bash
 magnet:?xt=urn:btih:AB705296CFF4B57702736F883FB624B8BF136FD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +167,8 @@ Liyr - 2 albums (2010-2011) [FLAC|Lossless] <Martial Industrial, Neoclassical, D
 magnet:?xt=urn:btih:5B34034E9563591151CD3D35F5850812521C9D18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ magnet:?xt=urn:btih:5B34034E9563591151CD3D35F5850812521C9D18
 magnet:?xt=urn:btih:381786330399C409E987BC7B28995D1CA99AADF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ magnet:?xt=urn:btih:381786330399C409E987BC7B28995D1CA99AADF2
 ```bash
 magnet:?xt=urn:btih:ACE273B002BC0EA831E4AB8F2CCFC9787A04CF5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +250,8 @@ Ildfrost - 5 albums (1994-2003) [mp3|192-320 kbps] <Darkwave, Neoclassical, Ambi
 magnet:?xt=urn:btih:0898E3836A4B3F0C9D13581FE853719A9A9F6095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +275,8 @@ magnet:?xt=urn:btih:0898E3836A4B3F0C9D13581FE853719A9A9F6095
 ```bash
 magnet:?xt=urn:btih:D178216E4D60E994BAE6BB81033607AAF8EA0E2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +302,8 @@ magnet:?xt=urn:btih:D178216E4D60E994BAE6BB81033607AAF8EA0E2C
 magnet:?xt=urn:btih:25E844E632FD2C2F7E0976875618F851245F1E0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ magnet:?xt=urn:btih:25E844E632FD2C2F7E0976875618F851245F1E0E
 magnet:?xt=urn:btih:3265AA9DF113CC9DF9E0369CFC231709CAAFAE0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:3265AA9DF113CC9DF9E0369CFC231709CAAFAE0C
 ```bash
 magnet:?xt=urn:btih:DD41DD84335588BC521A9E2870D270F7B58154B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +389,8 @@ magnet:?xt=urn:btih:DD41DD84335588BC521A9E2870D270F7B58154B8
 magnet:?xt=urn:btih:90B0690FD19122BC4744DF23E2C2404DA4219DAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +419,8 @@ magnet:?xt=urn:btih:90B0690FD19122BC4744DF23E2C2404DA4219DAE
 magnet:?xt=urn:btih:66A2F8AAF8A5A91C514410D186194807B3CD0823
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +444,8 @@ magnet:?xt=urn:btih:66A2F8AAF8A5A91C514410D186194807B3CD0823
 ```bash
 magnet:?xt=urn:btih:E704D269E4DF0D9271DFAC551658FA6DED814DFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +478,8 @@ Askin Arsunan - One A Day (2004) [FLAC|Lossless]<Contemporary Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +507,8 @@ Askin Arsunan - One A Day (2004) [FLAC|Lossless]<Contemporary Jazz>
 ```bash
 magnet:?xt=urn:btih:FE15064016AD230B90691EB4BF29F45F427A07F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +538,8 @@ magnet:?xt=urn:btih:FE15064016AD230B90691EB4BF29F45F427A07F6
 magnet:?xt=urn:btih:90EB5A72A4F651001BCB4B81B2DFD9E11C2FA946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +563,8 @@ magnet:?xt=urn:btih:90EB5A72A4F651001BCB4B81B2DFD9E11C2FA946
 ```bash
 magnet:?xt=urn:btih:1C2A490DFDCF9B7516E5242B2DE011716C704B5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +590,8 @@ magnet:?xt=urn:btih:1C2A490DFDCF9B7516E5242B2DE011716C704B5C
 magnet:?xt=urn:btih:F47148DF8F6FE6E2F5431916DB30DD0A58256B18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +615,8 @@ magnet:?xt=urn:btih:F47148DF8F6FE6E2F5431916DB30DD0A58256B18
 ```bash
 magnet:?xt=urn:btih:F87A5A8809F9B81BFCB2697E74BD533D2EF857D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +642,8 @@ magnet:?xt=urn:btih:F87A5A8809F9B81BFCB2697E74BD533D2EF857D3
 magnet:?xt=urn:btih:636A19A0F60F8A1DDD7312AFAFA9B30E53CB986B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +667,8 @@ magnet:?xt=urn:btih:636A19A0F60F8A1DDD7312AFAFA9B30E53CB986B
 ```bash
 magnet:?xt=urn:btih:63355C8F1500072A50E36F2A17831DDF7E753A28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +694,8 @@ magnet:?xt=urn:btih:63355C8F1500072A50E36F2A17831DDF7E753A28
 magnet:?xt=urn:btih:7B49D8350B6D659AC2C29BAFDB2B7B0BE5C7E3D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +719,8 @@ magnet:?xt=urn:btih:7B49D8350B6D659AC2C29BAFDB2B7B0BE5C7E3D9
 ```bash
 magnet:?xt=urn:btih:DFE96489FB72A1C3839F5D03A3454A58A9B3AE32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

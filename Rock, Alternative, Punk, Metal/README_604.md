@@ -22,6 +22,8 @@ The Cult - Under The Midnight Sun (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 magnet:?xt=urn:btih:C0D535C60B39929FD6A8A0EC8FE7A3DE847AC492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Bush - The Art Of Survival (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:1D0589E4619B0F5CE4BBEB4528A5DA5588311B2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ DPrize - 2 Albums (2021-2022) [MP3|320 Kbps] <Melodic Death, Black Metal>
 magnet:?xt=urn:btih:825CC686A2E91447B7E4A458E0259BBDA465761E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Obituary - Cause Of Death - Live Infection (2022) [FLAC|Lossless|image + .cue] <
 magnet:?xt=urn:btih:D90D13AFA81E2F34B5BD6F0AB8C5FA1BAD08429A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ Obituary - Slowly We Rot - Live & Rotting (2022) [FLAC|Lossless|image + .cue] <D
 ```bash
 magnet:?xt=urn:btih:B4B0919C3BC14B4DE395722FC7C1B58F82129530
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ magnet:?xt=urn:btih:B4B0919C3BC14B4DE395722FC7C1B58F82129530
 magnet:?xt=urn:btih:D2ACAAC8FA9BBDC550B19071B2A0D056C5F27422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +202,8 @@ Suzi Quatro - The Girl From Detroit City (2014) 4CD Box Set / Remastered [FLAC|i
 magnet:?xt=urn:btih:F91EAB224767D0DBA7970B04D02E5705149A7C68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ Slade - Live In London (1975) Bootleg [MP3|192 кб/с]<Rock, Hard Rock, Glam Ro
 ```bash
 magnet:?xt=urn:btih:62FBD908A7C4490F10B233B83A5B637CAD4427E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +262,8 @@ Fish - Internal Exile (1991) [FLAC|image + .cue] <Symphonic Rock>
 magnet:?xt=urn:btih:F179689DCDE2FEF7D54750B3D44120A169617BE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +291,8 @@ magnet:?xt=urn:btih:F179689DCDE2FEF7D54750B3D44120A169617BE9
 magnet:?xt=urn:btih:D7E30FB58E588A0ECA44880A9C95536B63EE48A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +319,8 @@ Katana - The Greatest Victory (2015) [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:07E0C99104BE75EF594AEEC3F8DFDDD5FAFA4EF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +352,8 @@ Lita Ford - 14 albums, 25 CD (1983-2016) [FLAC|Lossless|image + .cue | tracks + 
 magnet:?xt=urn:btih:26CF36DF16B58CA348471A1FD2E2C71CA878739E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +380,8 @@ magnet:?xt=urn:btih:26CF36DF16B58CA348471A1FD2E2C71CA878739E
 ```bash
 magnet:?xt=urn:btih:6E2169F680B4068486C9F0325A4BAB79275A9067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +410,8 @@ Manfred Mann’s Earth Band - Chance (1980) Japanese Edition, Reissue, 2022, Bel
 magnet:?xt=urn:btih:435343A2F1D8C7D71E5C69CE3101A358CA9BC290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +438,8 @@ Lost Society - If The Sky Came (2022) [MP3|320 Kbps] <Metalcore, Nu-Metal>
 ```bash
 magnet:?xt=urn:btih:B0E05EB25BC30313C62D85C1BE3F99930348794F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +468,8 @@ Borealis - Illusions (2022) [MP3|320 Kbps] <Melodic Power Metal>
 magnet:?xt=urn:btih:9607A115F2122610D42B48993F6E4CA5605DA218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +496,8 @@ magnet:?xt=urn:btih:9607A115F2122610D42B48993F6E4CA5605DA218
 ```bash
 magnet:?xt=urn:btih:E381AB6601209D3CDEC5EEA83C85263B80475F94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +526,8 @@ Butterfly Temple - ...окольное братство нетленного м�
 magnet:?xt=urn:btih:C57991C71E473EB6DD80BB914B1BDC0B80BD455B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +554,8 @@ magnet:?xt=urn:btih:C57991C71E473EB6DD80BB914B1BDC0B80BD455B
 ```bash
 magnet:?xt=urn:btih:6716B235FBCAFF689142ECD615F3D29D6E8B8443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +584,8 @@ magnet:?xt=urn:btih:6716B235FBCAFF689142ECD615F3D29D6E8B8443
 magnet:?xt=urn:btih:E7916AE9C7B98A474D86086E96C54DFD390BD9E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +609,8 @@ magnet:?xt=urn:btih:E7916AE9C7B98A474D86086E96C54DFD390BD9E4
 ```bash
 magnet:?xt=urn:btih:25E6DF0E2B06B35FDAA279D16E273285037CE391
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +639,8 @@ Rage - Spreading The Plague (2022) EP [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:B1101472088928D4FE188DC861F21EB7F3EF473E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +667,8 @@ Mephistofeles - Violent Theatre (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych Ston
 ```bash
 magnet:?xt=urn:btih:DF01586467E3B0C841FE6137F1226B119711FD66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +697,8 @@ magnet:?xt=urn:btih:DF01586467E3B0C841FE6137F1226B119711FD66
 magnet:?xt=urn:btih:21AFD63EEF5873034B2EF43B226C38CEE113BB0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +726,8 @@ Krankheit - Gargantua (2022) [FLAC|Lossless|WEB-DL|tracks] <Gothic Industrial Me
 magnet:?xt=urn:btih:CD94512C3A7932A50B3332404E73193E1840DFB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -704,6 +754,8 @@ Tomb Of Finland - 3 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Do
 ```bash
 magnet:?xt=urn:btih:9EA51A8B1482EB6F23152244CE7681F0B4F08794
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

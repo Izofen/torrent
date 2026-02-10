@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:0B9E0B3E31F268CE7CD3C2E157D72F5870AF8E8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:0B9E0B3E31F268CE7CD3C2E157D72F5870AF8E8F
 ```bash
 magnet:?xt=urn:btih:3B0BFCAE9A902B6EBD3EB29DB66B50E1E17E8F32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Ruston — шрифты Display Fonts с 6 стилями + дополнител
 magnet:?xt=urn:btih:35D8EF94473B3EA8DAB63F74AAC54C60BC3F6FC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:35D8EF94473B3EA8DAB63F74AAC54C60BC3F6FC3
 ```bash
 magnet:?xt=urn:btih:313EB0633F2010469A0A2BEC86F2D7B1B70F70B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Historic Mystique — современный шрифт с засечками о
 magnet:?xt=urn:btih:4F99A1E511E3BC1752A4D47CC3A3C57738342D13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:4F99A1E511E3BC1752A4D47CC3A3C57738342D13
 ```bash
 magnet:?xt=urn:btih:CFB7C7D1F9E03E6E0F47488A878034D3B1D92CCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Anorthic – Modern Serif Font – это вневременной шрифт, �
 magnet:?xt=urn:btih:9339BE246D174C8B71789E470C28A40A9189DB2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:9339BE246D174C8B71789E470C28A40A9189DB2A
 ```bash
 magnet:?xt=urn:btih:0D4CDF4EDBEC5F3E0FCCC74855F9C7E9C69D87ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Aquawax, созданный в 2008 году Франческо Кановаро
 magnet:?xt=urn:btih:21437411B4E61C2D5DBBAD3B1C2A30B88ADE038B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:21437411B4E61C2D5DBBAD3B1C2A30B88ADE038B
 ```bash
 magnet:?xt=urn:btih:2D917BB2098ABA7B1603782DDEF83F88A50D67E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ TT Corals — современный гуманистический гротес
 magnet:?xt=urn:btih:85CF30BF33E57F5ECEB8A6BCEFA7EC7D8616FEC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Aureus — тщательно подобранная коллекция прес
 ```bash
 magnet:?xt=urn:btih:2D9C56B399E4E79C3A654C4C0761D8A622E5B62D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:2D9C56B399E4E79C3A654C4C0761D8A622E5B62D
 magnet:?xt=urn:btih:E80472F6CA9D2390C7EF46B833555B1A057F544F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:E80472F6CA9D2390C7EF46B833555B1A057F544F
 magnet:?xt=urn:btih:81DC502BD474A310D7A2A747C90E0467602C738D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Cборник PSD файлов   для Adode Photoshop от  студии Asada
 ```bash
 magnet:?xt=urn:btih:15F91CF0ED301F6303EBA0944DCA0FA19027A752
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Cборник PSD файлов для Adode Photoshop от студии Asadal &
 magnet:?xt=urn:btih:168E7844D00AFB7A2B17E24E0F073B8E0CF64327
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:168E7844D00AFB7A2B17E24E0F073B8E0CF64327
 ```bash
 magnet:?xt=urn:btih:77A33E08EE8E1439FAE853720C68A7C87D82FA4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Cборник PSD файлов для Adode Photoshop от студии Asada & 
 magnet:?xt=urn:btih:D84303C8C870D784AF21EC96BCEB6E37560B377D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:D84303C8C870D784AF21EC96BCEB6E37560B377D
 ```bash
 magnet:?xt=urn:btih:C3FF58C9456D1C985EB70BA44D20244FC82BF909
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:C3FF58C9456D1C985EB70BA44D20244FC82BF909
 magnet:?xt=urn:btih:DCF07E13A58ED68BB8467421C8B5CFEEBACE066B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:DCF07E13A58ED68BB8467421C8B5CFEEBACE066B
 ```bash
 magnet:?xt=urn:btih:EF45BBD8D2B632356FF9F0CBDF36042F2121CEF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ Cборник PSD файлов для Adode Photoshop от студии Asadal &
 magnet:?xt=urn:btih:B50A38265BE4403B799284D4AC1205FD697A4E08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Toontrack - Metal Machine EZX Win Expansion
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ Toontrack - Metal Machine EZX Win Expansion
 magnet:?xt=urn:btih:16BAF5C1863EF4593DFE1D264110C0F7BA275F36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ magnet:?xt=urn:btih:16BAF5C1863EF4593DFE1D264110C0F7BA275F36
 ```bash
 magnet:?xt=urn:btih:DB0DBF796E8B6F47FCEFF1DEFDCEEF16DAFC9FF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:DB0DBF796E8B6F47FCEFF1DEFDCEEF16DAFC9FF9
 ```bash
 magnet:?xt=urn:btih:722037A867D335BD530C71A572428EB8092EDE87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

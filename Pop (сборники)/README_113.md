@@ -1,3 +1,32 @@
+###  Публикация: 990114   (911998) от 25.02.2016
+
+VA - Ultimate Drive (2016) [MP3|320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_911998.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. Meat Loaf - Bat Out Of Hell
+02. Bonnie Tyler - Holding Out For A Hero
+03. Cyndi Lauper - I Drove All Night(   Читать дальше...   )Жанр: PopПродолжительность: 04:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F1EF5EF5E13A00F0CB380D13EE97E73644F1970
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367214   (912018) от 18.03.2020
 
 VA - Foreign Disco Of The XX Century From Ovvod7  - 2019 (01-10) (2019) [MP3|320 Kbps] <Rock, disco, pop>
@@ -21,6 +50,8 @@ VA - Foreign Disco Of The XX Century From Ovvod7  - 2019 (01-10) (2019) [MP3|320
 ```bash
 magnet:?xt=urn:btih:CAA6D05A593133AD9875A8013429EDE70AD14A39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Kiss FM: Top 40 [15.03] (2020) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:E3DB1328644968354BBC82ED0175A71AF6051244
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Музыкальный плен на Europa Plus выпуск №9 (2017) [
 ```bash
 magnet:?xt=urn:btih:7FFB891164AD8F32B3322752281F6418D30E4697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Снегопад новинок от Хит fm. Версия № 7 (2017) [
 magnet:?xt=urn:btih:A19C5888E325B6CA1072C3152640A65A82439825
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +167,8 @@ VA - Снежный хит-парад. Сто русских хитов. Вып�
 magnet:?xt=urn:btih:5AC26C4AC7EC8538853330EBA1CCBBF2AF7FF6C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +195,8 @@ VA - Взрывной хит-парад выпуск № 9 (2017) [MP3|256 Kbps]
 ```bash
 magnet:?xt=urn:btih:D3A0E5E0DD1E18DE43671A81E72E83ED92F467B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ VA - Весенняя волна хитов (2013) [MP3|320 кб/с]<Dance>
 magnet:?xt=urn:btih:7F7FA96B52EE3460A20EC9CD3C6483486A3A2297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +266,8 @@ CD 1; 01:09:18
 magnet:?xt=urn:btih:12B9645ADE4A40C8B897B14712FCA6A28B7FB97D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +294,8 @@ VA - Music Box DFM Vol.4 (2016) [MP3|256 кб/с] <Pop>
 ```bash
 magnet:?xt=urn:btih:87159E3DAA1A8B7E26BBAC0F13496E7CB7EE7EDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +324,8 @@ VA - Italo & Space Disco Vol. 3 (2016) [MP3|320 кб/с] <Italo Disco, Spacesynt
 magnet:?xt=urn:btih:4402DA31E9BAD3EC8F112559D361CDA5FEF92AFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +352,8 @@ VA - Простые движения. Русский сборник попмуз
 ```bash
 magnet:?xt=urn:btih:9132185C24C1E3548F8B9C3515F1801198AFDF85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +382,8 @@ VA - Зарубежные хиты экспресс Выпуск № 5 (2017) [M
 magnet:?xt=urn:btih:F78484E8588FB2AECB30C5C77224AA8B08145C6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +410,8 @@ VA - Хиты в тачку (2017) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:5F305D073B097C0F326F827F1B0770CB0DED4E91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +440,8 @@ VA - Душевные хиты на любой вкус (2017) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:749DE5F15652A65156825CCB8680D29B85339AAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +468,8 @@ VA - Союз хитов зимний Выпуск № 9 (2017) [MP3|256 Kbps] <
 ```bash
 magnet:?xt=urn:btih:D5B43958BBA86F088181CF1C8F442623B82B338A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +498,8 @@ VA - Зимний русский музобоз. Сборник № 4 (2017) [MP
 magnet:?xt=urn:btih:C98B5DDE8F7530C5CB2058E6F85FFF808C3E5D17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +526,8 @@ VA - Зимняя сотка хитовая. Версия № 3 (2017) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:8FDF585730C2689BB944178404FAAEF7EC6B3F3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +556,8 @@ VA - Снежный презент Выпуск № 2 (2017) [MP3|256 Kbps] <Pop
 magnet:?xt=urn:btih:E536F50F2E7FAF03FE215B27C19852DEB0F435D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +584,8 @@ VA - B машину ремиксы Vol. 5 (2020) [MP3|320 Kbps] <House, Pop, Dan
 ```bash
 magnet:?xt=urn:btih:5D72764CA3E4E6B40E8A34F084E06307B0A0E9F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +614,8 @@ VA - B машину ремиксы Vol. 4 (2020) [MP3|320 Kbps] <House, Pop, Dan
 magnet:?xt=urn:btih:414D15A7054A3671D461749E59F94B9EE6ED6620
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +642,8 @@ VA - Танцевальная зима. Снежная 100-ка. Версия �
 ```bash
 magnet:?xt=urn:btih:4ECDEAD8C172F71862EC83FBB703D3DDC1792E22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +672,8 @@ VA - Radio DFM: Top D-Chart [14.03] (2020) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:2F35AA85FB97ED5E083391B91FDC51AFE952D647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +700,8 @@ VA - Radio MFM: Dance Hit Radio [14.03] (2020) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:2B85048B13A602EBCCF51283AE99B0211C97F460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +730,8 @@ VA - Автозвук. Отборный зимний хит. Часть № 2 (2
 magnet:?xt=urn:btih:AB8013F283B0C9EA67EA0733E95995E85E7BEB8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,32 +759,7 @@ VA - Звездная вечеринка. Зарядись хитами Выпу
 magnet:?xt=urn:btih:B1E278567440682E8A03707481B68066E1D01FCB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096815   (917647) от 25.01.2017
-
-VA - Axe Bahia 2017 (2017) [MP3|320 Kbps] <Pop, Bossa Nova, Latin>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_917647.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ivete Sangalo - Cade Voce  4:19
- 2. Babado Novo - Voce Subia 2:14
- 3. Bell Marques - Ce Quer Fazer Amor 3:40
- 4. E o Tchan - Melo Da Batedeira 2:31(   Читать дальше...   )Жанр: Pop, Bossa Nova, LatinПродолжительность: 01:07:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A875D9F905148526C15D70579D392C0EC76A08
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Shokugeki no Souma: Shin no Sara / Food Wars! The Fourth Plate / Кулинар�
 magnet:?xt=urn:btih:A596E4233A82C22A19446BC58DF1E706D50FF6CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:A596E4233A82C22A19446BC58DF1E706D50FF6CF
 magnet:?xt=urn:btih:8582EB0A3C551BE69BF8340264932505EAF82972
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:8582EB0A3C551BE69BF8340264932505EAF82972
 ```bash
 magnet:?xt=urn:btih:1D69E1C2E31D39D647A672F13DF07ECE89FE47BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:1D69E1C2E31D39D647A672F13DF07ECE89FE47BF
 magnet:?xt=urn:btih:DEB60BA67DA31AA9F86D9A3C6301C8B2962D0701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:DEB60BA67DA31AA9F86D9A3C6301C8B2962D0701
 magnet:?xt=urn:btih:AB2ED3E2D3DFC2C892E2E21F3EE66892313ECBFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:AB2ED3E2D3DFC2C892E2E21F3EE66892313ECBFF
 ```bash
 magnet:?xt=urn:btih:71AF2D22367F87C86A8B864A8FF6D4A839F0A104
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:71AF2D22367F87C86A8B864A8FF6D4A839F0A104
 magnet:?xt=urn:btih:28925CC3C78964E70CDF7A885041457916748778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:28925CC3C78964E70CDF7A885041457916748778
 ```bash
 magnet:?xt=urn:btih:8130FA82F37A2F930D6E1600EF30296F3EAC1D2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:8130FA82F37A2F930D6E1600EF30296F3EAC1D2E
 magnet:?xt=urn:btih:C4DD29048CBDFA34BE8DFDD6F525CBE3875DFEF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:C4DD29048CBDFA34BE8DFDD6F525CBE3875DFEF1
 ```bash
 magnet:?xt=urn:btih:41165C35D827F4361225369B64FAEAA450CF4A32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:41165C35D827F4361225369B64FAEAA450CF4A32
 magnet:?xt=urn:btih:28E32E422E0018E4C66CC086F9AC3A791627F4C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:28E32E422E0018E4C66CC086F9AC3A791627F4C9
 ```bash
 magnet:?xt=urn:btih:FFE4A9DE42D773545B1CE47DF848546003D3D667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:FFE4A9DE42D773545B1CE47DF848546003D3D667
 magnet:?xt=urn:btih:094F038A9476035AC3D44F4E0FA5C3D1B6783A5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Goblin Slayer | Убийца гоблинов [ТВ-1] [2018, TV, 12 из 12] WE
 magnet:?xt=urn:btih:82B23210F37B5670D8C6DAD7CDCE53A571A7D760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Grenadier: Hohoemi no Senshi | Grenadier The Beautiful Warrior | Гренаде�
 ```bash
 magnet:?xt=urn:btih:F8298FCAD35090071EF50BC9F4A7584C7ACD4E61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ iTubeGo 7.2.0 RePack (& Portable) by elchupacabra  [Multi/Ru]
 magnet:?xt=urn:btih:36755A85243EA9DAFFE698C1A20A5B7554C6D650
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:36755A85243EA9DAFFE698C1A20A5B7554C6D650
 ```bash
 magnet:?xt=urn:btih:C91F0FC3F0C33CAD5AC41EE445ACC302424E3F59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ VA - Space Holidays Vol. 12 (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spac
 magnet:?xt=urn:btih:5C103F30499C94F838A5A9986F9519AAD0BB327F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:5C103F30499C94F838A5A9986F9519AAD0BB327F
 ```bash
 magnet:?xt=urn:btih:785562DB8F3907109167EC1B9EE21B3E0229FD9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:785562DB8F3907109167EC1B9EE21B3E0229FD9F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:785562DB8F3907109167EC1B9EE21B3E0229FD9F
 ```bash
 magnet:?xt=urn:btih:0BDDA9F7AAA2365241937C4C4BA5573B8780684A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Udemy, Daniel Gakwaya | The C++20 Masterclass : From Fundamentals to Advanced (2
 magnet:?xt=urn:btih:B61577E537D1AE384A4BC90B8FFB98C03AD4CBE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:B61577E537D1AE384A4BC90B8FFB98C03AD4CBE7
 magnet:?xt=urn:btih:54626A66E534B6D6E7DCAFF97680EFF59FA4A93D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Ford против Ferrari / Ford v Ferrari (2019) WEBRip [H.264/720p-LQ]  [Line,
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Ford против Ferrari / Ford v Ferrari (2019) WEBRip [H.264/720p-LQ]  [Line,
 magnet:?xt=urn:btih:B1BB801CAA752974E8ABB93B97B5B29A7BCFA561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:B1BB801CAA752974E8ABB93B97B5B29A7BCFA561
 ```bash
 magnet:?xt=urn:btih:90A3CFEC184EEFEF06929C2E38E0394D4D6BA159
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

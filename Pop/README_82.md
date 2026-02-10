@@ -22,6 +22,8 @@ Michael Jackson - Thriller 40 (1982) 2022, Epic/Legacy [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:997957B30EEBC900F244824D0D3704C1009B3EE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Mitski - The Land Is Inhospitable And So Are We (2023) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:6C59D209373C74F32087212D597A1CD864DDE48E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ D.White & DimaD. - The Butterfly Effect (2022) [FLAC|Lossless|WEB-DL|tracks] <It
 magnet:?xt=urn:btih:57E71520147202A36FA249EB66F9E4EF97D5D965
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Laura Marano - i may be an actress, but i can’t fake how i feel (2023) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:04D96F78AF02BB8D1B328F7BD7A012C6B747001B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Linda Jo Rizzo - Passion (The Original Maxi-Singles Collection) (2023) Compilati
 magnet:?xt=urn:btih:A91580579590AD87DA61198E2B54C1029363DC2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Savage - Greatest Hits and More (1990) 1995 Reissue, Compilation, Unofficial [FL
 ```bash
 magnet:?xt=urn:btih:3508247AE02810946B9C7A8187BF4826A3B4A21C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ VA - Happy New Year 1995! (1994) Compilation, Unofficial [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:B4EE31919B1CC2335E9BB4DA600530D5C7DA0D6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ magnet:?xt=urn:btih:B4EE31919B1CC2335E9BB4DA600530D5C7DA0D6D
 ```bash
 magnet:?xt=urn:btih:8062FBC38AF45E0873BADB0122F4F2AE76469084
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ C.C. Catch - Classics (1989) [OGG Vorbis|480 Kbps] <Electronic, Pop, Disco>
 magnet:?xt=urn:btih:906FBA469B23D3F734BE99CFA58A3DE29E1E0717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ Bee Gees - Number Ones (2004) [OGG Vorbis|480 Kbps] <Rock, Funk / Soul, Pop>
 magnet:?xt=urn:btih:C29287C17711B4486467EA2455B5C49B81E57A23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +307,8 @@ Tempo Rubato - Music '85 (1985) LP [MP3|320 Kbps] <Electronic, Italo-Disco, Disc
 ```bash
 magnet:?xt=urn:btih:C692B64CC6D4268CFAA9A47005C144CD5DBB58E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +337,8 @@ C.C. Catch - Super 20 (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Synth-pop
 magnet:?xt=urn:btih:836D8E9ED0655743524A44DBA5CDF10FFC24DCF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +365,8 @@ C.C. Catch - Super Disco Hits (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, S
 ```bash
 magnet:?xt=urn:btih:0E73DD72817280B622B30C1BA7B23C95D6092575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +395,8 @@ C.C. Catch - Hear What I Say (1989) [OGG Vorbis|480 Kbps] <Electronic, Disco, Sy
 magnet:?xt=urn:btih:D6031F628872E0D581F2520A0CD2473D3D7F6F51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +423,8 @@ VA - Николай Добронравов: Лучшее... (2013) Мелоди�
 ```bash
 magnet:?xt=urn:btih:3EFE81F61BB8B1BC0E4BB610B284436FFE25306F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +453,8 @@ VA - NRJ Music Awards 2025 (2025) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:F08C666EACC44F0D4F84437EFE300F6B8E7D7A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +481,8 @@ Triangolo - Triangolo (1979) LP [MP3|320 Kbps] <Electronic, Space Rock, Disco>
 ```bash
 magnet:?xt=urn:btih:83D16AE17121D513B10E5DCD5A46CBC2DBB5EA84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +511,8 @@ Digital Emotion - Digital Emotion & Outside In The Dark (2002) [OGG Vorbis|480 K
 magnet:?xt=urn:btih:99B6D99E71CB03992328132077F220516299F4A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +539,8 @@ VA - 80's Revolution - Disco Pop Volume 02 (2012) 2 CD [OGG Vorbis|480 Kbps] <El
 ```bash
 magnet:?xt=urn:btih:F6C92240EC86B4AB20612B86090600C94CDD088A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +569,8 @@ VA - KuschelRock 11 (1997) 2CD [MP3|320 Kbps] <Pop, Rock>
 magnet:?xt=urn:btih:4CB90D23BE790E8B9918051C1588C821E784803F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +597,8 @@ Giampiero Boneschi - Unusual Beat Sounds Fantasy (1979) LP [MP3|320 Kbps] <Elect
 ```bash
 magnet:?xt=urn:btih:D3059DA0289E88C850606B890E74EDCDAD471AB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +627,8 @@ Carly Simon - These Are The Good Old Days: The Carly Simon & Jac Holzman Story (
 magnet:?xt=urn:btih:43D773C40C9E2ADA422DC40E6C00C4168E02C4C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ Boney M. - Ten Thousand Lightyears (1984) [FLAC|Lossless|image + .cue] <Pop, Dis
 magnet:?xt=urn:btih:B25999307F1A1C0A1A2FCADD2766343B699D2A67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +682,8 @@ Roxette - The Very Best of Roxette (1994) Compilation, Unofficial [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:6B867DBEBCEF8620989D7988F740E8B398570933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +712,8 @@ magnet:?xt=urn:btih:6B867DBEBCEF8620989D7988F740E8B398570933
 magnet:?xt=urn:btih:F7F134AEBE482D87A012B05B49E6B3F2508013E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +740,8 @@ C.C. Catch - Strangers By Night (1988) [OGG Vorbis|480 Kbps] <Electronic, Disco,
 ```bash
 magnet:?xt=urn:btih:E6D6268FE783F11FC5EBB136CB5219F5849CEB3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

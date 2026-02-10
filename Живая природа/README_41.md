@@ -19,6 +19,8 @@ NG. Ядовитый остров / Venom Islands (2012) HDTVRip [H.264/720p]
 magnet:?xt=urn:btih:A0449E3C653BD7182D249E635DE964CB55CAADCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC: После заката. Мир ночной природы. Серия №
 ```bash
 magnet:?xt=urn:btih:328B29ABD11CC29CD30A8501D5B7EE35BA166B1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:328B29ABD11CC29CD30A8501D5B7EE35BA166B1F
 magnet:?xt=urn:btih:017E79FCC483F3203642D121DD8501477586E77B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:017E79FCC483F3203642D121DD8501477586E77B
 ```bash
 magnet:?xt=urn:btih:18601516368C0A3EC23D279D10076A699F8AB72E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:18601516368C0A3EC23D279D10076A699F8AB72E
 magnet:?xt=urn:btih:7BECD1730BCDA35BEBAE852CAD17322027AFBCD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:7BECD1730BCDA35BEBAE852CAD17322027AFBCD5
 ```bash
 magnet:?xt=urn:btih:33B7DFA34A4585AC26A048EBCCFC6261B24657FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:33B7DFA34A4585AC26A048EBCCFC6261B24657FB
 magnet:?xt=urn:btih:3DCA4EBEC64CCD094FDD5390A116A926C9C12DB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:3DCA4EBEC64CCD094FDD5390A116A926C9C12DB3
 ```bash
 magnet:?xt=urn:btih:6A74320653F87818A28F73DC7AB05385710DB17D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:6A74320653F87818A28F73DC7AB05385710DB17D
 magnet:?xt=urn:btih:4E45CA74C5BAA0707E650F4228F5AAE447D6F3CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ BBC. Дикая Аравия / Wild Arabia (2013) BDRip [H.264/1080p] [1-3 се�
 ```bash
 magnet:?xt=urn:btih:C510D300C4261A66E0829E90C465751B757C98D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:C510D300C4261A66E0829E90C465751B757C98D3
 magnet:?xt=urn:btih:39180F4660FEA4871060E0CF4EEBE1E7ABFF3168
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:39180F4660FEA4871060E0CF4EEBE1E7ABFF3168
 ```bash
 magnet:?xt=urn:btih:7F07E7ECA8500B9B96424B1A27025ACD624346E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ NGW: Дунай. Европейская Амазонка / Danube. Europe's Amaz
 magnet:?xt=urn:btih:86A0F8EC7D8774F9FF6BB33F0269B0B6CEB1F283
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:86A0F8EC7D8774F9FF6BB33F0269B0B6CEB1F283
 ```bash
 magnet:?xt=urn:btih:EC3C535D753C35943572C0CBF7B167626A6034F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:EC3C535D753C35943572C0CBF7B167626A6034F8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:EC3C535D753C35943572C0CBF7B167626A6034F8
 magnet:?xt=urn:btih:3A8CA734874DDC3CEF54B113D29035C050956F3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:3A8CA734874DDC3CEF54B113D29035C050956F3A
 ```bash
 magnet:?xt=urn:btih:60682D0F233134E449F8A63F5A56EA293ED0F413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ BBC: Чего не знал Дарвин / What Darwin Didn't Know (2009) HDTVRi
 magnet:?xt=urn:btih:F30A433C96C199205D803B0063B01EAF013F61C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ BBC. Мадагаскар: Аттенборо и гигантское яйцо /
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ BBC: После заката. Мир ночной природы. Серия №
 magnet:?xt=urn:btih:BEB1EC4F3E9D5C13A7AB7E80A2F0F3C2363AB866
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:BEB1EC4F3E9D5C13A7AB7E80A2F0F3C2363AB866
 ```bash
 magnet:?xt=urn:btih:DCEE3C9ADFBEB473EAB98029223208458E04A981
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:DCEE3C9ADFBEB473EAB98029223208458E04A981
 magnet:?xt=urn:btih:9A182FAA8E7108E5A4BA340761AAB9C26FF97FD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:9A182FAA8E7108E5A4BA340761AAB9C26FF97FD6
 ```bash
 magnet:?xt=urn:btih:2158EF111E95F5668031A58C7B7693EF2BFA5A50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:2158EF111E95F5668031A58C7B7693EF2BFA5A50
 magnet:?xt=urn:btih:513A7F98F18EC33801AB29D488F2DFF58A3031B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:513A7F98F18EC33801AB29D488F2DFF58A3031B9
 magnet:?xt=urn:btih:1537530BE05042F7CE8910BC4F6FC1A3919CE359
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:1537530BE05042F7CE8910BC4F6FC1A3919CE359
 ```bash
 magnet:?xt=urn:btih:F40E42699E1CC7C83BD4F8BC0B934D2A17A494FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

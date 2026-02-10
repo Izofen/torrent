@@ -22,6 +22,8 @@ Frank Morgan - Reflections (1988) 2000, Original Jazz Classics [FLAC|Lossless|tr
 magnet:?xt=urn:btih:18AEB8F47617C69C9C1BBAED7231589C03E554BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ The Bud Shank Sextet - New Gold! (1994) Candid [FLAC|Lossless|tracks + .cue] <Co
 ```bash
 magnet:?xt=urn:btih:8B362C2DDE591CE51AAF7E1A0DB43FED1DB2DEA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Horrifier - Horrid Resurrection (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Meta
 magnet:?xt=urn:btih:AEEB001DD4F5C9633827770F8C76DB36EA756D1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Apostasy - Accuser of Brethren (1993) Reissue, 2020, Pathologically Explicit Rec
 ```bash
 magnet:?xt=urn:btih:71E8A5DFBFB26DB72171E0BA8883BD4377A839D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Uncircle - Via Dolorosa (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Modern 
 magnet:?xt=urn:btih:F6EB81EF82611DA44024AE0B2B440EFBD68DED2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ V.A. - Montecarlo Night, Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz>
 magnet:?xt=urn:btih:66A1286BB056540B39DF5BA02E9F38B142A103F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:66A1286BB056540B39DF5BA02E9F38B142A103F4
 ```bash
 magnet:?xt=urn:btih:F039681B14FDCE0E3044B1C68AE45D148DA6A1EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ Kalmah — финская англоязычная метал-группа. «Ka
 magnet:?xt=urn:btih:B0700D7D042554E94A1496492D70E8226F651223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ PhotoRoom - приложение, что будет одинаково поле�
 ```bash
 magnet:?xt=urn:btih:5EF3F3AC57748A50156144C1DD49B7D0B299608E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:5EF3F3AC57748A50156144C1DD49B7D0B299608E
 magnet:?xt=urn:btih:DDD8DD417487322605810336EB37FC67AE3E2DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ magnet:?xt=urn:btih:DDD8DD417487322605810336EB37FC67AE3E2DA4
 magnet:?xt=urn:btih:FA8F8CFB3D88F5D1D68E79855C61F7A7760A1C46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:FA8F8CFB3D88F5D1D68E79855C61F7A7760A1C46
 ```bash
 magnet:?xt=urn:btih:0AB00DC7D3533E338A1D5080734D8300A23746B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:0AB00DC7D3533E338A1D5080734D8300A23746B6
 magnet:?xt=urn:btih:95B07D899F454F779118684AFFEEA59C104AD7E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:95B07D899F454F779118684AFFEEA59C104AD7E3
 ```bash
 magnet:?xt=urn:btih:E6A161F99571DA1C8B3687F0266B2E36306482D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ Demon - The Plague (1983) Japanese Edition, Reissue, Remastered, 2020, Rubicon M
 magnet:?xt=urn:btih:5896102D0F1FF029B20BA2DF8CF6096474373DF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:5896102D0F1FF029B20BA2DF8CF6096474373DF3
 magnet:?xt=urn:btih:F6E43CEB0DA96A31A7BAC80ADE75317BF9B35D71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:F6E43CEB0DA96A31A7BAC80ADE75317BF9B35D71
 ```bash
 magnet:?xt=urn:btih:0DB6728FCE73579A1447FC5CDA87F9556000BE1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ DGonemanband - Clown Show (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:72EC91E201F2CC804AC08C5D156C80B0A14938F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +520,8 @@ Darnell Cole & The Vibe - A Man Of Soul (2023) [FLAC|Lossless|WEB-DL|tracks] <Bl
 ```bash
 magnet:?xt=urn:btih:DE600908F4E33741AA117602FD0D137BDECCE44F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +550,8 @@ David Place - Lyrics for Pauline (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:B0E0FFA7444C7D2C5A8A77BD9AA2AF8188FCEE8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +575,8 @@ magnet:?xt=urn:btih:B0E0FFA7444C7D2C5A8A77BD9AA2AF8188FCEE8C
 ```bash
 magnet:?xt=urn:btih:C12BE80FE49FA11DA12D4F6BE081981DE6B12D73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +605,8 @@ Lisa Hilton - Underground (2011) Ruby Slippers Productions [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:CC7AAADB53C148916B687EE771B4FB0CD3F8A982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +634,8 @@ Benny Goodman - Undercurrent Blues (1940 - 1949) 1995, Capitol Jazz [FLAC|Lossle
 magnet:?xt=urn:btih:CAA5EEE0B4B34C572B4D42A43DF7F5A7342A8E02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +659,8 @@ magnet:?xt=urn:btih:CAA5EEE0B4B34C572B4D42A43DF7F5A7342A8E02
 ```bash
 magnet:?xt=urn:btih:A2FD731F823CEA66855112A370FEAF92148E8882
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +689,8 @@ B2 - Funeral Pyre(   Читать дальше...   )Жанр: NWOBHM, Heavy Met
 magnet:?xt=urn:btih:A600B9E64E2C32BB536B9F258DB90918870998AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ magnet:?xt=urn:btih:A600B9E64E2C32BB536B9F258DB90918870998AE
 ```bash
 magnet:?xt=urn:btih:18F059BC6F57C11AB2F3CFC60A070072CDBB06CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:58E3FB6E97097754276B544A6685CC095572F3A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ flap+frog - 13 альбомов (2008-2013) Touhou Instrumental /Doujin/[FLAC|Lo
 magnet:?xt=urn:btih:FCA781B1AA562C9FE5705A54211478D24D8260AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -79,6 +83,8 @@ Fancy - D.I.S.C.O. (1999) [FLAC|Lossless|image + .cue] <Euro-Disco, Eurodance>
 magnet:?xt=urn:btih:D223E415F68D12ABC4AFC8B872187E9CAB6C4781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ magnet:?xt=urn:btih:D223E415F68D12ABC4AFC8B872187E9CAB6C4781
 magnet:?xt=urn:btih:6D9589FC9B7D144A3202DF2A7C55BCA2A13FB8FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:6D9589FC9B7D144A3202DF2A7C55BCA2A13FB8FF
 ```bash
 magnet:?xt=urn:btih:709EE4CDE1A7DF457DF4BA11FFCBC623958E24DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:709EE4CDE1A7DF457DF4BA11FFCBC623958E24DF
 magnet:?xt=urn:btih:0DE75F56DACC96AD95D0C8CFD9C0AA049F023AAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ iNet показывает устройства, подключенные к ва
 magnet:?xt=urn:btih:332F8BFF8A65A984E8C7315814FDBE5756B06675
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:332F8BFF8A65A984E8C7315814FDBE5756B06675
 ```bash
 magnet:?xt=urn:btih:BD05FBE43493B444B801BABC6C25AA1C9B33A0DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ Paul Van Dyk - Music Rescues Me (2018) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 magnet:?xt=urn:btih:09EF1DA3CDD9C0AEAC039C58AA8670B3F60483A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ Smultron - простой и элегантный текстовый редак�
 ```bash
 magnet:?xt=urn:btih:71A4BE09D9C6DFE538CB1F709E7CA0B7B3262107
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +302,8 @@ magnet:?xt=urn:btih:71A4BE09D9C6DFE538CB1F709E7CA0B7B3262107
 magnet:?xt=urn:btih:984FF077590FDBF16B5F399927632B0091DA8CC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ Mimestream сочетает в себе мощь macOS с расширенным
 magnet:?xt=urn:btih:D668FA340AE4FD14E6FB626F09E10CBF0728BF1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ magnet:?xt=urn:btih:D668FA340AE4FD14E6FB626F09E10CBF0728BF1A
 ```bash
 magnet:?xt=urn:btih:BEF5E4DCE518BF445D77147600823F689DCAF84E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ Driver Reviver – это приложение, которое проскани�
 magnet:?xt=urn:btih:E5DD04CCDE98C808941EDDE888FC5F31718C19AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ DVJ Bazuka - Rock'n'Roll (2012) [H.264/720p] WEBRip
 ```bash
 magnet:?xt=urn:btih:B3CBEF1E1B6337D3B9E9436BAE2AEDCF045ED58E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:B3CBEF1E1B6337D3B9E9436BAE2AEDCF045ED58E
 magnet:?xt=urn:btih:2767A4A5A6FA5E29DD8C68D33C034B9E8CB6FEF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:2767A4A5A6FA5E29DD8C68D33C034B9E8CB6FEF2
 ```bash
 magnet:?xt=urn:btih:5B5DF1956504925FBDE394625B987C22FD488ABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ Claude Williamson - 'Round Midnight (1956) 2000, Bethlehem [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:557590197B6F676A675A632F17C94F4034CE929D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:557590197B6F676A675A632F17C94F4034CE929D
 magnet:?xt=urn:btih:F6FD3E9D81E873057CA80FE90930BE12D1C24429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ X-Men: Destiny (2011) [Xbox360] [RegionFree] FreeBoot [Unofficial] [Ru]
 ```bash
 magnet:?xt=urn:btih:AAA7F31F8F196BBEB76778A812D4A56E6E77F905
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ DVDFab – многофункциональное приложение для к
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ Pal/Secam (2008) SATRip
 magnet:?xt=urn:btih:F7F910A7D0D94194A9AA938A34A2DA4E7F6D1A9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ Zoc terminal - является довольно известным telnet/SSH/S
 ```bash
 magnet:?xt=urn:btih:354BF600AF368A350BBEB728787A59B87CEED459
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ Music Tag Editor - редактор музыкальных тегов помож
 magnet:?xt=urn:btih:C70AC4BDD76D8B1612AE9E031BD1806A9D1D59AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:C70AC4BDD76D8B1612AE9E031BD1806A9D1D59AD
 magnet:?xt=urn:btih:9BC6557003F4AA79132C5EB1A8BFD0B07D1229AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:9BC6557003F4AA79132C5EB1A8BFD0B07D1229AE
 ```bash
 magnet:?xt=urn:btih:DDD7500F056407404A791F48220C4D994B4CAB2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

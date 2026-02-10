@@ -1,3 +1,32 @@
+###  Публикация: 1322109   (452486) от 27.08.2019
+
+VA - не Громкие новинки недели 32 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452486.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Al Fakher - Хулиганка (2:16)
+2.AMPATI - Замолчи (3:22)
+3.Andro - 7:00 (3:01)
+4.Andro - Болен Твоей Улыбкой (2:46)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:45:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0DF813E6EC20EE66645FE85F853516E25595FB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322003   (452490) от 27.08.2019
 
 VA - Back End Roads: Indie Rock Collection (2019) [MP3|320 Kbps] <Indie, Rock>
@@ -21,6 +50,8 @@ VA - Back End Roads: Indie Rock Collection (2019) [MP3|320 Kbps] <Indie, Rock>
 ```bash
 magnet:?xt=urn:btih:0D87FA2F3A568EDB5D7EED9DABD3FD921F72E2AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +79,8 @@ VA - Italo Disco Collection Vol.5 (2017) [MP3|320 Kbps] <Italo Disco>
 ```bash
 magnet:?xt=urn:btih:5AF666749837CB02F40927B62E95D121DAACB572
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +115,8 @@ VA - Need For Speed - Уличные Гонки (2012) [MP3|192 кб/с]<Club, D
 magnet:?xt=urn:btih:FB75A4577254AC1FE261E64203883F23A0BE2EBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +143,8 @@ VA - Bass Generation (2017) [MP3|320 Kbps] <Drum & Bass, Dubstep>
 ```bash
 magnet:?xt=urn:btih:D3FC56F50AA30669C8810EC05654372989414A51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +173,8 @@ VA - Зарубежные Хиты-Август (2018) [MP3|320 Kbps] <Pop, Alte
 magnet:?xt=urn:btih:D1CA377D47494EA614B7D0644A6E7A6555EB1611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +202,8 @@ VA - House Mania:Top 100 DJ (2017) [MP3|320 Kbps] <House, Electro House, Club>
 magnet:?xt=urn:btih:9A088D51CD48856C8620FCE45607ECCC3F0DFEF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ VA - Royal Summer Lounge (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
 ```bash
 magnet:?xt=urn:btih:32FFBE12B20CC8220D65C55BE3ACA6223B265C70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +262,8 @@ Hits of My Soul - сборник электронной и инструмент�
 ```bash
 magnet:?xt=urn:btih:8DFEB1991171890A641D0696C8524EED6956B2F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +298,8 @@ VA - Русский Свежачок Сезона (2012) [MP3|256 кб/с]<Pop, 
 magnet:?xt=urn:btih:A50DF825444E7CADE162133AA8889E7B4BD1DEFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +332,8 @@ VA - Тачки, Девочки, Музон (2012) [MP3|320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:D31C7ECFB744D5B5E1D486519B3FE64C4BE866E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +368,8 @@ VA - Клубняк в Тачку Vol. 5 (2012) [MP3|320 кб/с]<Electro House,
 magnet:?xt=urn:btih:B3B3AAF358F5D5AA2FB56DD5D063330F6092049F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +396,8 @@ VA - Душевный Сборник От Радио Шансон 8 (2016) [MP3|
 ```bash
 magnet:?xt=urn:btih:440010181ED14B12E774E912074465A85F020D60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +426,8 @@ Mylene Farmer - Good Songs (2015) [MP3|192 кб/с]<Pop, Shanson>
 magnet:?xt=urn:btih:134AEBD4837483CAEDF3FC6B1AE13E71F0B665CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +454,8 @@ VA - Rock Хит. Высокое Напряжение (2015) [MP3|256 кб/с]<R
 ```bash
 magnet:?xt=urn:btih:2512D9ECA724EAA59BF6AE57A7C6563AEE36A8DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +490,8 @@ VA - 100 пудовый хит. Выпуск 50/50 (2012) [MP3|256 кб/с]<Pop,
 magnet:?xt=urn:btih:FF93357F65295799EF057CA595C97BF2D452340B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +524,8 @@ VA - Клубняк в Тачку Vol. 4 (2012) [MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:A872C3EBDDFFE66AF6712B189D60B9EAF828430F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +560,8 @@ VA - Зажигайте вместе с нами. Радио Record 5 50/50 (201
 magnet:?xt=urn:btih:EAF29C2A6F448D8D5DA4A404827F4A1DF4914008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +588,8 @@ VA - Осенняя свежая 30-тка (2020) [MP3|320 Kbps] <Pop, Dance, Ot
 ```bash
 magnet:?xt=urn:btih:C79948103BDEFEA70865E5C7BB5A90159F87ACB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +624,8 @@ VA - XXXL Evro Max Hits (2012) [MP3|256 кб/с]<Dance>
 magnet:?xt=urn:btih:A0643A19416F1D690A862646DDD36F97FDB99BE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +652,8 @@ The Pretty Reckless - Compilation (2022) [MP3|320 Kbps] <Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:1780C26F4B57F38161B60A80C31926242165CEB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +682,8 @@ VA - VA - 100 хитов популярной музыки. Версия 5 (2015
 magnet:?xt=urn:btih:DCEA73792E0B107EA59C886C667EF31C23903642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +711,8 @@ Whitney Houston - Good Songs (2015) [MP3|224 кб/с]<Pop>
 magnet:?xt=urn:btih:673B48600F18C1ACA042A5C3D416D0E44C5E9464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +739,8 @@ Patricia Kaas - Good Songs (2015) [MP3|192 кб/с]<Pop, Shanson>
 ```bash
 magnet:?xt=urn:btih:C6CF034964412AB6897885DB59130397ED483AE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,6 +775,8 @@ VA - Русское Ассорти Новинок (2012) [MP3|256 кб/с]<Pop, 
 magnet:?xt=urn:btih:C08D108C496B74AD192AAE2B37C18812D84520D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -733,38 +810,7 @@ VA - Absolute Club Autumn Vol.3 (2012) [MP3|320 кб/с]<Dance, Club>
 magnet:?xt=urn:btih:6651FFCE8B391BA98924155BC00DD41B842411E0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550480   (453624) от 24.09.2012
-
-VA - Dance Миссия Осени. Зарубежный (2012) [MP3|256 кб/с]<Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_453624.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Laurentiu Duta feat. Andreea Banica - Shining heart
-002. Jay Sean - Im All Yours
-003. Miralva - Venga A La Noche (Radio Edit)
-004. Serenity & Spyer Feat. Tevin - Club Rockin Beats (Ti-Mo Remix Remix Edit)
-005. Professor Green feat. Emeli Sande - Read All About It (Cahill Explicit Radio Edit)
-006. MC Yankoo vs. MlaDJa feat. Acero MC - Loca (Radio Edit)
-007. Mick Lion - International Love (Smithee Mix)
-008. Shogun - Lotus (Original mix edit)
-009. Ian Carey & Rosette feat. Timbaland & Brasco - Amnesia
-010. Jennifer Lopez feat. Flo Rida - Goin In(   Читать дальше...   )Жанр: DanceПродолжительность: 05:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA0FBFA85A973AF90636E764B51B9D29331F70D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

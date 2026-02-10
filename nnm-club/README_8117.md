@@ -19,6 +19,8 @@ Bulwark Studios | Артбук по игре IXION / The Art of IXION (2022) [PD
 magnet:?xt=urn:btih:7E5B54673336F7A513C0DC4F14A2774200EF0FF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:7E5B54673336F7A513C0DC4F14A2774200EF0FF1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Cisdem Duplicate Finder - поиск дубликатов и их удалени
 ```bash
 magnet:?xt=urn:btih:D1D5C02B35E4B4AF489E424B74510D50CA80D7DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ VA - Digital Confession (2021) [MP3|320 Kbps] <Techno, Electronic>
 magnet:?xt=urn:btih:DB3BCDC293BFD3409C8EACA3D771E33B5B317528
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ Ashrain - Requiem Reloaded (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, 
 magnet:?xt=urn:btih:EE9F0E002318FD485D6AF505A4A6ABA761FDE348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:EE9F0E002318FD485D6AF505A4A6ABA761FDE348
 ```bash
 magnet:?xt=urn:btih:B075DD9BC18B17BDDCAF39F0439AF0C976DB1931
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ Patti Austin - Havana Candy (1977) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, R&
 magnet:?xt=urn:btih:39DB9B7E6E0906E3B3F1304B048480C88D203D86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ M Rashid Raza | Getting Skilled with Java (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:B4A2F7B9C73B599107AE230944C5AEE956C24D36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ Last Legion - Metall, Blod & Aska (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, 
 magnet:?xt=urn:btih:B0E5DF5703458FB64BEB8EB1693393B49375CA35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Manfred Moser | Trino: The Definitive Guide. 2nd Edition (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:A6E968376933A3026C823A8ECE64589D13B19CDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ VA - Ibiza Lounge Music 2022 (2022) [AAC|~291 Kbps] <Lounge, Chill Out, Downtemp
 magnet:?xt=urn:btih:3698BB50247EB4AD33D2629C22A4500D786098C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:3698BB50247EB4AD33D2629C22A4500D786098C4
 magnet:?xt=urn:btih:DF07AA29B5B6144E2BE61AF799E82401A1961E30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:DF07AA29B5B6144E2BE61AF799E82401A1961E30
 ```bash
 magnet:?xt=urn:btih:F52FC64274BD4DCF7B828A1B3E9693CEA314B6E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ Feeder - это полнофункциональное приложение дл
 ```bash
 magnet:?xt=urn:btih:9976AE39965A950EE43C222A68A470A1B5635C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ Aenaon - Hypnosophy (2016) [MP3|320 Kbps] <Avant-Garde, Experimental, Progressiv
 magnet:?xt=urn:btih:9BE6BACE919DA0D458643A4D5186877242161997
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ Mp3tag предоставляет пользователям мощный и п�
 ```bash
 magnet:?xt=urn:btih:F16093389FA93EE8A1F129A3726767B607D13B96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:F16093389FA93EE8A1F129A3726767B607D13B96
 magnet:?xt=urn:btih:C91811692727272B8266511B403A9C081A73F6B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:C91811692727272B8266511B403A9C081A73F6B5
 ```bash
 magnet:?xt=urn:btih:846F3F66ACA276AD607A075E5C375C554C207F80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ VA - Late Night Chillout Music (2022) [AAC|~295 Kbps] <Lounge, Chill Out, Downte
 magnet:?xt=urn:btih:339EBC76C20AC0A49A1D7531B415805CF09DF83F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ Ecollapse - Dying With The Wolves (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, 
 magnet:?xt=urn:btih:5C2F13D5EBCD432E7E3D32B15319059CB7B43946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ cFosSpeed - это сетевой драйвер, который привязы�
 ```bash
 magnet:?xt=urn:btih:E81848A30AF2CDB29DE82E1802DC671666207554
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ B1 3 Ч. – Scherzo. Allegro(   Читать дальше...   )Жанр: Class
 magnet:?xt=urn:btih:5DE52C4596224ADEFDA85FDA277877F012F97E21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ magnet:?xt=urn:btih:5DE52C4596224ADEFDA85FDA277877F012F97E21
 ```bash
 magnet:?xt=urn:btih:4192DBE97EB5592556CDE53BBA48365840374B7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +656,8 @@ Patti Austin - End Of A Rainbow (1976) [FLAC|Lossless|image + .cue] <Vocal Jazz,
 magnet:?xt=urn:btih:3E59B618C191C39493BD27EBF5D56976E90EE02F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ Cisdem PDFPasswordRemover - Удалить пароль из PDF и получи
 ```bash
 magnet:?xt=urn:btih:BA08DF1DF155179DC52BE8EC8CF93B5508E04751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +711,8 @@ magnet:?xt=urn:btih:BA08DF1DF155179DC52BE8EC8CF93B5508E04751
 ```bash
 magnet:?xt=urn:btih:952271812A011B451C55067AA16FAD4B13746C35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

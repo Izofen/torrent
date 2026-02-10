@@ -19,6 +19,8 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834/dlc) Repack West4it
 magnet:?xt=urn:btih:F96722F5818944952F831F3337A0168E133D7893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:F96722F5818944952F831F3337A0168E133D7893
 magnet:?xt=urn:btih:5836131A36F1F8C5156F5BF406215AEF3A7637C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Grand Theft Auto: Vice City Nextgen Edition (2025) [Ru/Multi] (1.1) Mod Revoluti
 ```bash
 magnet:?xt=urn:btih:2A47A69716038E04BA611230142E4A8DDF230B03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:2A47A69716038E04BA611230142E4A8DDF230B03
 magnet:?xt=urn:btih:73ACE34285E8469D4B6AFB41493324C2844BB925
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:73ACE34285E8469D4B6AFB41493324C2844BB925
 ```bash
 magnet:?xt=urn:btih:E502857B6B498ED047DD90A112E691C9C6F5A802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:E502857B6B498ED047DD90A112E691C9C6F5A802
 magnet:?xt=urn:btih:9F487DA2024271E2A6A1EF8D3E6DFA806D4CA68C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:9F487DA2024271E2A6A1EF8D3E6DFA806D4CA68C
 ```bash
 magnet:?xt=urn:btih:1ADFA29226CB0C66AC12EF36BC7E2DD4C8FFB8CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:1ADFA29226CB0C66AC12EF36BC7E2DD4C8FFB8CD
 magnet:?xt=urn:btih:B2755B931C59E117DC2A6669F45DB318D5626477
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:B2755B931C59E117DC2A6669F45DB318D5626477
 ```bash
 magnet:?xt=urn:btih:24DF64D094EB578C0F77A065817FB959019E2950
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:24DF64D094EB578C0F77A065817FB959019E2950
 magnet:?xt=urn:btih:E88991E804BBF138493DD83CF1B3316973EA091C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:E88991E804BBF138493DD83CF1B3316973EA091C
 ```bash
 magnet:?xt=urn:btih:16B0A8BA5F2FD7B10D4B9A472B61DEE2C016F557
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:16B0A8BA5F2FD7B10D4B9A472B61DEE2C016F557
 ```bash
 magnet:?xt=urn:btih:1899ADA7157426CC92A9AE186B73A6FBF1793FE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Foghat - 23 Albums, 2 Box Set (1972 - 2023) 56 CD [FLAC|Lossless|image + .cue|tr
 magnet:?xt=urn:btih:D0AFE4518FA6669DB8CDE9BBE040FA6D13F6E98A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:D0AFE4518FA6669DB8CDE9BBE040FA6D13F6E98A
 magnet:?xt=urn:btih:269FBE6C6DEA8B72EE488C8DE1D988EF4DE3AA4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:269FBE6C6DEA8B72EE488C8DE1D988EF4DE3AA4A
 ```bash
 magnet:?xt=urn:btih:493AB494A7333FC0283CD5C398D43FCFEF798E5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Grand Secret, Максим Волков, Виктория Жихарева, Ма
 magnet:?xt=urn:btih:18E75950BAC588CA40957F2208432F6FF3AAC421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:18E75950BAC588CA40957F2208432F6FF3AAC421
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:18E75950BAC588CA40957F2208432F6FF3AAC421
 ```bash
 magnet:?xt=urn:btih:1CD29589E13BD274405C53DFD4CFA832727CBF5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:1CD29589E13BD274405C53DFD4CFA832727CBF5F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:1CD29589E13BD274405C53DFD4CFA832727CBF5F
 magnet:?xt=urn:btih:0A9E0D38A6B7632E9C7F4E70A087C05F009910CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:0A9E0D38A6B7632E9C7F4E70A087C05F009910CD
 ```bash
 magnet:?xt=urn:btih:D53E1199181CFC630F563588D296B7E9085F0EFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:D53E1199181CFC630F563588D296B7E9085F0EFD
 magnet:?xt=urn:btih:F67AA52EA8442F24689FC77A6478B15965F88522
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:F67AA52EA8442F24689FC77A6478B15965F88522
 ```bash
 magnet:?xt=urn:btih:656488A7C58BD7B20AEBAAD5B8D3750C6745783A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ VA - Top Of Favorite Tracks (2025) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:108A90F7B3B0F1720C6C27E19FB797136B8A53E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:108A90F7B3B0F1720C6C27E19FB797136B8A53E1
 magnet:?xt=urn:btih:E420A1AD9ACEDAF8E9062EE5ECE01A324E8C8E73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:E420A1AD9ACEDAF8E9062EE5ECE01A324E8C8E73
 ```bash
 magnet:?xt=urn:btih:22E7EBF42FD357669728EDDE0CDE05C00C02C463
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1DA1F585645AAE575C211A64E2B9E05A64BBE5F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Pretty Little Deep-House Friends, Vol. 1 (2024) [MP3|320 Kbps] <House, Deep
 magnet:?xt=urn:btih:4A4D7677752F3A429494E50D6E19F0EC4FA2ADAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:4A4D7677752F3A429494E50D6E19F0EC4FA2ADAB
 magnet:?xt=urn:btih:AAE56A62F4C3B18A7A37B4DA206824DD8F795478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:AAE56A62F4C3B18A7A37B4DA206824DD8F795478
 ```bash
 magnet:?xt=urn:btih:B3C4DB40453CE96EB0A4119A67D9EDD83FE3EE08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Local H - Whatever Happened To P.J. Soles? (2004) Reissue, Remaster, 2024, Studi
 magnet:?xt=urn:btih:1BABF436A6B002BD37F654671B3E491F6745CF58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:1BABF436A6B002BD37F654671B3E491F6745CF58
 ```bash
 magnet:?xt=urn:btih:82B224ABBE830563D7A8AB3AF7960641517BB06A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Maite Kelly - Nur Liebe (2024) [FLAC|Lossless|image + .cue] <Pop, Schlager>
 magnet:?xt=urn:btih:D5E2AD4C6276476DC3EC5EB032014ABD47AFCAEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Servants to the Tide - Where Time Will Come to Die (2024) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:179275803AF2B879DE32AAA759D7FF82666CECB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ Skyline - Human Monster (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metal>
 magnet:?xt=urn:btih:C67A9A9B68F0145185735CF0AE1292115B0C3CFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ Earth Lux - Earth Lux (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:570E6C59C466A43772BF9B0CEA0A25B33B470456
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ Stan Getz - Compact Jazz: Stan Getz & Friends (1988) Verve [WavPack|Lossless|ima
 magnet:?xt=urn:btih:3562125C9B308D68611957D27B43EE5B968FEDE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ Hannah Kerr - As I Am (2024) [FLAC 16,24/44.1.48,96|Lossless|WEB-DL|tracks] <Pop
 magnet:?xt=urn:btih:BF5EB30F7CCE23FCD092811D4C854980F516360E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ magnet:?xt=urn:btih:BF5EB30F7CCE23FCD092811D4C854980F516360E
 ```bash
 magnet:?xt=urn:btih:682D9D2D2EC2231AB51FC7788F88C46DA5F8873E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:682D9D2D2EC2231AB51FC7788F88C46DA5F8873E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:682D9D2D2EC2231AB51FC7788F88C46DA5F8873E
 ```bash
 magnet:?xt=urn:btih:3CF37D458A694C064A61631CF0EB19449102BBFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ CD1: Mixed By Neptunica
 magnet:?xt=urn:btih:EB1532AD9706FB3C86DDFE8C6A03BB5E4218913F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ VA - 20 Greatest Cello Composers (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical
 magnet:?xt=urn:btih:C9702436780AC3F608F502E94026684ECB6C0381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:C9702436780AC3F608F502E94026684ECB6C0381
 ```bash
 magnet:?xt=urn:btih:7B7EE2E40D679F7224F3935885602FC0ACF232C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +521,8 @@ VA - Ibiza Autumn 2024 (2024) Chill Out Cookies From The Heart [FLAC|Lossless|WE
 magnet:?xt=urn:btih:4EDDD4B91DE2C965BAF48A876F6B18DC0335DA7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ T-RackS 6 - это новейшее поколение известного пр
 ```bash
 magnet:?xt=urn:btih:7C814FBABD7344173D520ED6A09CD294FAF9DAB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ Heavyocity - Punish 1.0.2 VST, VST 3, AAX (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:45673C71CE96FDAE89FD419969FFE2AA41E6C8CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:45673C71CE96FDAE89FD419969FFE2AA41E6C8CD
 ```bash
 magnet:?xt=urn:btih:3B996B07738BD0C2365D1CE84E6BF0334A57464B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +628,8 @@ VA - Sahara Beats (The Hottest Arab Music from the Hottest Desert) (2023) [FLAC|
 magnet:?xt=urn:btih:391E3CA496D50BD1AC9B95A87134DF391DBD0088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:391E3CA496D50BD1AC9B95A87134DF391DBD0088
 ```bash
 magnet:?xt=urn:btih:42932B1FD810244FB235CCA0CE222E0D2AEB5CDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +685,8 @@ VA - TOP Non-Stop 2000-2009 - Deep House. Part 4 (2024) [MP3|192-320 Kbps] <Deep
 magnet:?xt=urn:btih:B562F39B428C006EF60FAD8CC9AD6993413AE00C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ magnet:?xt=urn:btih:B562F39B428C006EF60FAD8CC9AD6993413AE00C
 ```bash
 magnet:?xt=urn:btih:8465E3368C7D39AFF2630075DFC3DB14C7F0D2DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

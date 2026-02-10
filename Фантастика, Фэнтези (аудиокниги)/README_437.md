@@ -1,3 +1,30 @@
+###  Публикация: 1526419   (738382) от 24.01.2022
+
+Евгений Прядеев | Дела медвежьи (Книга 4). Искра Бога (2022) [MP3, Олег Троицкий]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_738382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проблемы любят приходить без предупреждения… Самое обидное, что они редко появляются по одиночке. Это утомляет, напрягает и в какой-то момент остается только ждать, когда черная полоса сменится белой…
+Однако Андрей и Мирон не любят ждать от судьбы милостей, а если будет нужно, то сами перекрасят окружающую реальность… Не надо трогать спящего медведя…Жанр: Городское фэнтези, Русское фэнтезиПродолжительность: 08:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CAE51A6901BE9777F1704ED9642806D28BF3984
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526535   (738425) от 24.01.2022
 
 Роберт Шекли | Особый старательский (2021) [MP3, Олег Булдаков]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:86D286F47876AD57DDED9FE290B2BE8A8AF3318B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:86D286F47876AD57DDED9FE290B2BE8A8AF3318B
 magnet:?xt=urn:btih:A1BCA675C209DFA696631D9B2DBA25FEFFF2B559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:A1BCA675C209DFA696631D9B2DBA25FEFFF2B559
 magnet:?xt=urn:btih:B2565218314FDD64BED66DE4298F069021B71CC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +123,8 @@ magnet:?xt=urn:btih:B2565218314FDD64BED66DE4298F069021B71CC2
 ```bash
 magnet:?xt=urn:btih:23C9D25E72EE00D467DB8C148D93CC7E5BCD9B9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:23C9D25E72EE00D467DB8C148D93CC7E5BCD9B9B
 magnet:?xt=urn:btih:E92D45F26D1228B0AC78274D942320AB177796F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:E92D45F26D1228B0AC78274D942320AB177796F4
 ```bash
 magnet:?xt=urn:btih:ADF7710472CE5D0D13FB303C3969E15C28465384
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +205,8 @@ magnet:?xt=urn:btih:ADF7710472CE5D0D13FB303C3969E15C28465384
 magnet:?xt=urn:btih:9D98A3EF4928905235A6DC68C90F5FED879ECFB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ magnet:?xt=urn:btih:9D98A3EF4928905235A6DC68C90F5FED879ECFB6
 ```bash
 magnet:?xt=urn:btih:38CBF7C406C9C85099A8CB34A1BA9E99CCBB538F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:38CBF7C406C9C85099A8CB34A1BA9E99CCBB538F
 magnet:?xt=urn:btih:8117FB329B98EB4C2AF6BAF46E861B7375C9D7AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:8117FB329B98EB4C2AF6BAF46E861B7375C9D7AE
 ```bash
 magnet:?xt=urn:btih:06C805BFD6CA5ED4A29F88D3699B96DB1D97EBC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +310,8 @@ magnet:?xt=urn:btih:06C805BFD6CA5ED4A29F88D3699B96DB1D97EBC3
 magnet:?xt=urn:btih:29E801560B2CD86547C017BD79E7422EFAA95ED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +335,8 @@ magnet:?xt=urn:btih:29E801560B2CD86547C017BD79E7422EFAA95ED8
 ```bash
 magnet:?xt=urn:btih:979942897586463001278D169BA57C75DC3EA6E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:979942897586463001278D169BA57C75DC3EA6E6
 magnet:?xt=urn:btih:BF159A824805182E41FBF9AACA49DFB67DB39326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +388,8 @@ magnet:?xt=urn:btih:BF159A824805182E41FBF9AACA49DFB67DB39326
 ```bash
 magnet:?xt=urn:btih:514B2E4BC3C3166231F3217D7E87A63ED7A84C7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +415,8 @@ magnet:?xt=urn:btih:514B2E4BC3C3166231F3217D7E87A63ED7A84C7F
 magnet:?xt=urn:btih:5CB8F6CD798FCE91F89B9659DEECD714100E6FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +440,8 @@ magnet:?xt=urn:btih:5CB8F6CD798FCE91F89B9659DEECD714100E6FE2
 ```bash
 magnet:?xt=urn:btih:E0D7871AB214B93503623FC729A405A57AC9549D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +468,8 @@ magnet:?xt=urn:btih:E0D7871AB214B93503623FC729A405A57AC9549D
 magnet:?xt=urn:btih:A64E3BBF6F6C3F2AF5F6120CE783CFBCCE98EB55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +494,8 @@ magnet:?xt=urn:btih:A64E3BBF6F6C3F2AF5F6120CE783CFBCCE98EB55
 magnet:?xt=urn:btih:CEFD7911549C423AE87049CD526C3E6CF681EF26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +519,8 @@ magnet:?xt=urn:btih:CEFD7911549C423AE87049CD526C3E6CF681EF26
 ```bash
 magnet:?xt=urn:btih:91055B4A98417DF858307B3323CBF041FC1A2333
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +547,8 @@ magnet:?xt=urn:btih:91055B4A98417DF858307B3323CBF041FC1A2333
 magnet:?xt=urn:btih:952FAD25AF1AE12EFB97A04380909D055ADB4DC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +574,8 @@ magnet:?xt=urn:btih:952FAD25AF1AE12EFB97A04380909D055ADB4DC0
 magnet:?xt=urn:btih:C91973EC0B81FA23B710E705B15C1A09BF8873E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +599,8 @@ magnet:?xt=urn:btih:C91973EC0B81FA23B710E705B15C1A09BF8873E0
 ```bash
 magnet:?xt=urn:btih:ECC75C7C8C5DB620A71D42A78C629B90590008C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +626,8 @@ magnet:?xt=urn:btih:ECC75C7C8C5DB620A71D42A78C629B90590008C0
 magnet:?xt=urn:btih:40E04CF88A55EBA5F7B8F562E4DB9953ADD33891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +651,8 @@ magnet:?xt=urn:btih:40E04CF88A55EBA5F7B8F562E4DB9953ADD33891
 ```bash
 magnet:?xt=urn:btih:B1D74F1664002DA073511735149C089AAA958CCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,31 +678,7 @@ magnet:?xt=urn:btih:B1D74F1664002DA073511735149C089AAA958CCF
 magnet:?xt=urn:btih:353FDBCED6F07304E44E2FC6B0AA29DB783244BC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282980   (740860) от 15.02.2019
-
-Пэт Кэдиган | Алита: Боевой ангел. Айрон сити (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальный приквел научно-фантастического фильма «Алита: Боевой ангел», основанного на культовой манге Юкито Кисиро, от режиссера Роберта Родригеса и продюсера Джеймса Камерона.
-
-В новом мире, оставшемся после Великой войны, изменилось все. В тени огромного города Залема, висящего в небе, раскинулся мегаполис, где люди живут посреди тонн мусора, сброшенного сверху. (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 08:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:294866769C7E27135BCD11F7D0531E5D9F747D61
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

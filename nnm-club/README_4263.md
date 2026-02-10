@@ -23,6 +23,8 @@ Call of Juarez: The Cartel / Call of Juarez: Картель [Ru] (L/1.1.12) 2011
 magnet:?xt=urn:btih:0DDC70A41CADF281DFEAF05472EC8735562BC632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ Disc 03Жанр: Alternative RockПродолжительность: 3CD, 01:53:
 magnet:?xt=urn:btih:C0475EA06D860B71392171BBCFD0187CFE6455DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ Lunatii - Insomniashes (2023) [FLAC|Lossless|image + .cue] <Depressive Black Met
 ```bash
 magnet:?xt=urn:btih:D445A1446BF863FB69AFEECD8D30E45A419D22DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -105,6 +111,8 @@ The Bat! - популярный клиент электронной почты; 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -132,6 +140,8 @@ Toshiyuki Miyama & His New Herd - Beat Generation (1994) 2015, King Record [FLAC
 magnet:?xt=urn:btih:CCAF402B9ED500A08E7E455D83E2EB665DB756C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ magnet:?xt=urn:btih:CCAF402B9ED500A08E7E455D83E2EB665DB756C3
 ```bash
 magnet:?xt=urn:btih:524E5B694090301DB3F2FDCBD2ED1A760508C737
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +195,8 @@ magnet:?xt=urn:btih:524E5B694090301DB3F2FDCBD2ED1A760508C737
 magnet:?xt=urn:btih:B3D9D7278E1FCA296DB4DFB98B63CA6F51A897A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ magnet:?xt=urn:btih:B3D9D7278E1FCA296DB4DFB98B63CA6F51A897A5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ Lunatii - Deprosorryum (2018) [FLAC|Lossless|image + .cue] <Depressive Black Met
 magnet:?xt=urn:btih:B61C7E779DEE847B5E92E5695F2353DC1A11C6D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Suol - Suol (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:3C478D104F452EBF0844AD27AD3E81956C5A8BD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Lunatii - Diskonformism: Anhedonia in Utopia (2020) [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:D4E75B9A826B92BDF4AF7D90FAD3F6DB7E7680BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ Cirith Ungol - Dark Parade (2023) [FLAC|Lossless|image + .cue] <Heavy, Doom Meta
 magnet:?xt=urn:btih:F453BE7AD3847518595A84A03CABAE28588A5E71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +363,8 @@ Elfen Lied / Эльфийская песнь [2004, 13 +1 эп.] BDRip Hi10p 108
 ```bash
 magnet:?xt=urn:btih:3F86118D495E52E6824D84AE87B8DB9F2DEE3971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +393,8 @@ Strike Master - Up for the Massacre (2006) [FLAC|Lossless|image + .cue] <Thrash 
 magnet:?xt=urn:btih:C0E1A6F0CC6CA72B65C6C5BD2DE472BD2C04EEB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +418,8 @@ magnet:?xt=urn:btih:C0E1A6F0CC6CA72B65C6C5BD2DE472BD2C04EEB4
 ```bash
 magnet:?xt=urn:btih:CD64583373F485B30C54E0EB3199CE14A5EF2359
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +447,8 @@ Recovery Partition for Samsung NP-N102 S / Windows 7 Home Basic (х86) SP1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +472,8 @@ Recovery Partition for Samsung NP-N102 S / Windows 7 Home Basic (х86) SP1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +501,8 @@ TeraCopy Pro – утилита улучшает процесс копирова
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +527,8 @@ TeraCopy Pro – утилита улучшает процесс копирова
 magnet:?xt=urn:btih:BB8C6AC2374C2A9DE99FCB74E866C1668729C77D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +552,8 @@ magnet:?xt=urn:btih:BB8C6AC2374C2A9DE99FCB74E866C1668729C77D
 ```bash
 magnet:?xt=urn:btih:E7E085FB013FF8C368C650643692262D558C3813
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +588,8 @@ Elisabeth Schwarzkopf - Opera Arias (1990) [FLAC|Lossless]<Classical, Opera>
 magnet:?xt=urn:btih:F4D40DDB97DF1FA8A0BC138605F0B488AF9BEA58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +620,8 @@ Armed Forces: Corp / Наемники: Бизнес под прицелом [Ru]
 magnet:?xt=urn:btih:66A31F38E8F5216FC55CD34CC96FDD389632D4D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +645,8 @@ magnet:?xt=urn:btih:66A31F38E8F5216FC55CD34CC96FDD389632D4D4
 ```bash
 magnet:?xt=urn:btih:995DBDD8698A56B48C28B4E98D1862EE3EA63EAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +674,8 @@ OnOne Perfect Portrait 2 программа и плагин к Adobe Photoshop �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +699,8 @@ OnOne Perfect Portrait 2 программа и плагин к Adobe Photoshop �
 ```bash
 magnet:?xt=urn:btih:C793457F0A346DB0910D49403D2D42035C8C63D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -678,6 +728,8 @@ magnet:?xt=urn:btih:C793457F0A346DB0910D49403D2D42035C8C63D0
 ```bash
 magnet:?xt=urn:btih:370A5B7DE756C1C639BC46309FE89E18EA1A4A4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Sunset Dreamer (Lounge & Chill out Sessions), Vol. 1 (2024) [FLAC|Lossless|
 magnet:?xt=urn:btih:7840AEB767C3B5F686ADDBF39DBD2CF10AEFDFA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Markus Schulz - Global DJ Broadcast (In Search of Sunrise 20 Companion Mix) (202
 ```bash
 magnet:?xt=urn:btih:C034CF35BD896DB172569D8B8A72E10065BD6A53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:C034CF35BD896DB172569D8B8A72E10065BD6A53
 magnet:?xt=urn:btih:B9688B1350A1E2A0D9F2A0CF6D1B2F189F56B1E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 ```bash
 magnet:?xt=urn:btih:1B60BCE8F821902677203D5E607C174098EE73A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ David Eugene Edwards - Best (as Part of 16 Horsepower, Wovenhand) (1995-2012) Co
 magnet:?xt=urn:btih:DE3B6EBCAB312FF85C62C2CF499792E4C90D9A13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ VA - Vocal Anthems Amsterdam (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:B30D0AAEF1B064A0A3BAD3E45B6D980B5E1A94E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ VA - Free To Dance, Vol. 2 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 magnet:?xt=urn:btih:C786F6A2A74115DCCE6E1DA55B900383C380110A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ Van Morrison - New Arrangements And Duets (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:C5A3C6A1B3F13B246A0CE95ACAD88A1B5AA41022
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +246,8 @@ Kreator - Hordes Of Chaos (2009) Reissue, Remastered, 2024, Nuclear Blast [FLAC|
 magnet:?xt=urn:btih:78D80331D39C286292C6D5754E137676E48667D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +275,8 @@ magnet:?xt=urn:btih:78D80331D39C286292C6D5754E137676E48667D8
 magnet:?xt=urn:btih:876395213A83F03DB862241E79B0BAE85A0DD21A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ magnet:?xt=urn:btih:876395213A83F03DB862241E79B0BAE85A0DD21A
 ```bash
 magnet:?xt=urn:btih:911756A5DB6F328D94B478715066F8EFA45DF87F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ Frank Sinatra - Frank Sinatra: Legend (1998) Hey Presto! [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:6A6D3FDEE5531D70E772FE0A8C3F9F6E51A84360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +359,8 @@ VA - Redux Selection Vol. 10 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 magnet:?xt=urn:btih:D6FE00A47D621803B6C4694EEE252AA7568875FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +384,8 @@ MotoGP. Этап 15 из 20. Гран-при Индонезии. Спринт (2
 ```bash
 magnet:?xt=urn:btih:FE68E9088B4DE94DB212A22C74FE0430BFA98DCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +412,8 @@ magnet:?xt=urn:btih:FE68E9088B4DE94DB212A22C74FE0430BFA98DCB
 ```bash
 magnet:?xt=urn:btih:E78DE2B2516F170D86803F5EDA809BD7A7F136F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +442,8 @@ Antigua Jazz Band - Swing City Sessions #10 (2024) [FLAC 24/48|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:A2BFFAD1E331839527EB614388CE820E8C952B2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +469,8 @@ magnet:?xt=urn:btih:A2BFFAD1E331839527EB614388CE820E8C952B2D
 magnet:?xt=urn:btih:17B3E496B979BE2E96BDA3AD98CFB64437D09EDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +494,8 @@ Starstruck: Hands of Time (2024) [Ru/Multi] (1.0) Repack FitGirl [Soundtrack Bun
 ```bash
 magnet:?xt=urn:btih:9EC55DBC459E0D1B85A3DADC7B9E908149A9B367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +521,8 @@ magnet:?xt=urn:btih:9EC55DBC459E0D1B85A3DADC7B9E908149A9B367
 magnet:?xt=urn:btih:A170E2077740D751A49D7150F5F49C97FF5F36B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +547,8 @@ magnet:?xt=urn:btih:A170E2077740D751A49D7150F5F49C97FF5F36B1
 ```bash
 magnet:?xt=urn:btih:92A9893617AC7BC6DACC55062D97531A7184686E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +577,8 @@ VA - Vintage Electro Swing (2024) [MP3|320 Kbps] <Swing, Nu Jazz, Electro>
 magnet:?xt=urn:btih:5B2606E9F882FC06043BEE6CD2406CC209AD9087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ magnet:?xt=urn:btih:5B2606E9F882FC06043BEE6CD2406CC209AD9087
 ```bash
 magnet:?xt=urn:btih:BD04177C2C9B39BEC93D111530F6BAB2E87681F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +632,8 @@ VA - compilation part 125 Nu Jazz, Electro Swing & Electro pop (2024) [MP3|320 K
 magnet:?xt=urn:btih:6CAD69874FFD561DFA267E7BE7694C06E7F93901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +657,8 @@ magnet:?xt=urn:btih:6CAD69874FFD561DFA267E7BE7694C06E7F93901
 ```bash
 magnet:?xt=urn:btih:34FD653E1CDC773B0D53D051AA8C7075096FFBAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +684,8 @@ magnet:?xt=urn:btih:34FD653E1CDC773B0D53D051AA8C7075096FFBAD
 magnet:?xt=urn:btih:47738DD0482338DDCADE1A751CD265DFD428FC80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ magnet:?xt=urn:btih:47738DD0482338DDCADE1A751CD265DFD428FC80
 ```bash
 magnet:?xt=urn:btih:A420CBDF9463B6BEE24C2802CD605E8549834513
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

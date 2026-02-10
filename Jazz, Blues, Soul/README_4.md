@@ -22,6 +22,8 @@ Depravity Brothers - The Enemy Within (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 magnet:?xt=urn:btih:3F00EE8B8FAD37F955B9879E4270F89249B5BB15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Pandora's Box - Lunacy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:8E9D31BCA9FFDF62395E54A62E262DB62D996EBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Art Pepper - Four Classic Albums (1956, 1957) 2CD, 2008, Avid Jazz [FLAC|Lossles
 magnet:?xt=urn:btih:74BCD5AE2E1CB070462D735856BC5CB72C9FE156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ George Shearing - Favorite Things (1997) Telarc [FLAC|Lossless|image + .cue] <Bo
 ```bash
 magnet:?xt=urn:btih:FCB0E56D5243D8651991544CC8CCA2E4082FC8DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Michael Sagmeister & Pat Martino - Conversation (2000) Acoustic Music Records [F
 magnet:?xt=urn:btih:D840D2158D7F54C394A734B31826F88230BCBF18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ The Lady & The Dappers - Electro Swing Vol. 2 (2025) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:8ABD3C328D1752C5D7228E250CB998469D92C8D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ The Lady & The Dappers - Electro Swing Vol. 3 (2025) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:46DE7C417C5298220FEC4E8E26D95D4F7F1198D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Soundify Background Music - Electro Swing Cocktail (2025) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:F38FEAB7251695B5E04D431C3F5601AD581055D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Electro Swing - Swing Beats 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Ele
 magnet:?xt=urn:btih:AB64B516E695C25B784AA23B60B29D5B818F43C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ The Lady & The Dappers - Electro Swing Vol. 1 (2025) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:D048B9D03B5D40F208F0CBEE0598ADFE6EBC4C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Petra and the Paper Hearts - Queens Of The Blues (2025) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:CFCC90A664D05954DF407E31421ADB6D97309802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Dexter Gordon - Three Classic Albums Plus (1955, 1960) 2CD, 2014, Avid Jazz [FLA
 ```bash
 magnet:?xt=urn:btih:9052FFC0868796DF36351F59347FA9B7057459C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +371,8 @@ Van Morrison - Remembering Now (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:849FB23991D8B431D5B7E646A4C861C7BB1D0F6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ Ella Fitzgerald - Golden Legends (2006) CD, Compilation [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:C858F4A38F980D51964371EA15D4E08FDACC3337
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +429,8 @@ Tim Hardin Trio - Light Intelligence Series 5 (1992) Golden Penguin [FLAC|Lossle
 magnet:?xt=urn:btih:71B0A32664346C4ADB844936A674942F785E4684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ Branford Marsalis Quartet - Belonging (2025) Blue Note [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:4FFDE7C4B121D23B4D5FF0D6DBB8020D9BB6A369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +489,8 @@ Charlie Musselwhite - американский исполнитель на гу�
 magnet:?xt=urn:btih:7803048FB6236411369375AD7026B0294F65529E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +517,8 @@ Charlie Musselwhite - Look Out Highway (2025) [FLAC|Lossless|tracks + .cue] <Har
 ```bash
 magnet:?xt=urn:btih:ED7B799E2780F8A9331E448632D91A39C8C8A57A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +547,8 @@ Kenny Dorham - Four Classic Albums (1958 - 1962) 2CD, 2013, Avid Jazz [FLAC|Loss
 magnet:?xt=urn:btih:FCCFB6BBCA7E417C6B270BE7CFE166761B773013
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +575,8 @@ Albert Collins (1 октября 1932 - 24 ноября 1993) - американ
 ```bash
 magnet:?xt=urn:btih:A01815568A9E913B8FDE984D085B0DD4D220A254
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +605,8 @@ Rhythmsoul - Wasted Dreams & Lonesome Roads (2025) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:2C4E5F4D293A9994AD2C07D317B491ECCCC35438
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +633,8 @@ Ina Forsman - After Dark Hour (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
 ```bash
 magnet:?xt=urn:btih:E6DA7E6FFCB8CD506581F435B468BA3C83F39B60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +663,8 @@ Pearl Alley - 'Bout Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:720DE61AD4D81026B4005111D703A19EA08B4F88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +691,8 @@ Rick Tobey - Sippin It Slow Radio Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 ```bash
 magnet:?xt=urn:btih:061A2599AB04B8B783F50AB63A47592BB22A4123
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +721,8 @@ Paul Cargnello - Combat Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:850442D832F583FFC61600A89A7F756AA1A54CA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ Nancy Cassidy - The Devil Wins (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:35E3B795ED5DE390730ED0154408DE900B3B6EC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

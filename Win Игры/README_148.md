@@ -19,6 +19,8 @@ Granny Remake - это игра-ужастик, в которой вам пре�
 magnet:?xt=urn:btih:1826E251ABE1E0EC4FA1E102A42FB377EC21D384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Assassin's Creed - игра нового поколения, разработа�
 ```bash
 magnet:?xt=urn:btih:7D18580ADA34EFBA86FA4D5B87847A010DCD45CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Land of the Magnates (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:BEC76AB1D919BD214AA6232DC3EAB43F55103270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Bioshock Dilogy / Дилогия Bioshock (2007-2010) [Ru/En] (1.1/1.1/dlc) Repa
 ```bash
 magnet:?xt=urn:btih:6153C9FBC4EA7FBB21C2052E839EAED6716FF614
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Fears to Fathom: Woodbury Getaway (2024) [Ru/Multi] (1.3) Scene Tenoke
 magnet:?xt=urn:btih:5697DEE6F5B8D88B57C9A52758EBA0B3455665D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Roadwarden (2022) [En] (1.2.0) License GOG
 ```bash
 magnet:?xt=urn:btih:C5AE533D07C8AB31526FE41A058C067A42437689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ METAL DOGS (2023) [Multi] (1.5.0/dlc) Scene Tenoke
 magnet:?xt=urn:btih:3B0ACDB49F036FB039E0BFC7CAAC22649DBAC67C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Slipstream - это гоночная игра, вдохновленная обр
 ```bash
 magnet:?xt=urn:btih:D34B7ED593646047DA7CE046C77C769417C46FCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Dead Space: Trilogy (2008-2013) [Ru/En] (1.0.0.222/1.0/1.0.1) Repack dixen18
 magnet:?xt=urn:btih:BAAA22ADF8228175A75FB918A6406F24E8F46398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Edge of Sanity - психологический хоррор на выживан
 ```bash
 magnet:?xt=urn:btih:C6F2539C09ABA1313E066DD7A55E3876C65AE1C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Dave the Diver - это казуальная приключенческая RPG 
 magnet:?xt=urn:btih:5D3FA0EA4A1AED7704099BE8770177328DED93A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ BAKERU (2024) [Multi] (1.0) Repack FitGirl [Soundtrack Edition]
 ```bash
 magnet:?xt=urn:btih:7DA29D64DE50FE755CF3D2A51B5DE32C5F549727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Lollipop Chainsaw RePOP - это стремительный hack-and-slash, по
 magnet:?xt=urn:btih:881CF0608BB72C2A06E9CD2997A5D21413A551E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Demon's Mirror - это roguelike-конструктор колод, сочет�
 ```bash
 magnet:?xt=urn:btih:42E0C87C65DB546A426F2E9B578887D4CE33BE3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Turbo Sliders Unlimited – это возможность окунуться в 
 magnet:?xt=urn:btih:4680AE9C96EBDA59110A4E530F98B1387119CAE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Vampire: The Masquerade - Reckoning of New York приглашает гейме�
 ```bash
 magnet:?xt=urn:btih:C71FDB8FB3EBAAF248F7A10797311D78683E2F04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Lollipop Chainsaw RePOP - это стремительный hack-and-slash, по
 magnet:?xt=urn:btih:16973636DC428BED935F4E8D51F090ED308AC703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ MARVEL vs. CAPCOM Fighting Collection: Arcade Classics собирает колл
 ```bash
 magnet:?xt=urn:btih:918F696453AB8A286C212234CD841E3F4D5ADB9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ I Am Your Beast - это FPS в обертке триллера о мести, �
 magnet:?xt=urn:btih:60C30DA6CBB50C394BA711EB213E0807340285F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Far Cry 2 (2008) [Ru/En] (1.03) Repack dixen18 [Fortune's Edition]
 ```bash
 magnet:?xt=urn:btih:7A7D77FAB9F9E817EEE4FE139269ED79F5DB8A03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Son and Bone (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:DAC77AFF7145A467099033D83DC16A903553914D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Stardiver - это научно-фантастическая игра в жан�
 ```bash
 magnet:?xt=urn:btih:1C9C96484349ECCAD137C7AFC5A402693F23F031
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Vampire: The Masquerade - Reckoning of New York приглашает гейме�
 magnet:?xt=urn:btih:72E0C2B3234FD812946ABDE45B6C1E6056C14D1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ EVOTINCTION - это футуристическая хакерская и сте
 ```bash
 magnet:?xt=urn:btih:1FEF9E49CC1E2E14E10EAA6D3FEACE3AF7A8BE95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Decision: Red Daze - уникальная вариация изометриче�
 magnet:?xt=urn:btih:9D6BD63887A2015449CB2DBE5E461A89995DEC60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Justin Wack and the Big Time Hack (2022) [Multi] (3.2.3) License GOG [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:23CA76F5B620C9A25C068B197C82E26A129808CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

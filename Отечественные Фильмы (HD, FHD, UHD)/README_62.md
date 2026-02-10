@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E71815E959BAF358DFBD73B792012295F0FA2B02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:E71815E959BAF358DFBD73B792012295F0FA2B02
 ```bash
 magnet:?xt=urn:btih:9156E4065DDE5537E6B52B7E03B2B38291C7A306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:9156E4065DDE5537E6B52B7E03B2B38291C7A306
 magnet:?xt=urn:btih:BC034D1DC0DD0F0087529358D64A577915EC4531
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:BC034D1DC0DD0F0087529358D64A577915EC4531
 ```bash
 magnet:?xt=urn:btih:33411B20FF22BC4265DC27D8402EB0CA8A2C30CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:33411B20FF22BC4265DC27D8402EB0CA8A2C30CE
 magnet:?xt=urn:btih:5936DC262F4C3F62DA3CEC8CCA4DD5AD5E08D6ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:5936DC262F4C3F62DA3CEC8CCA4DD5AD5E08D6ED
 magnet:?xt=urn:btih:618C72DC1F1DC748E507EC624F08D92F5D4203FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:618C72DC1F1DC748E507EC624F08D92F5D4203FA
 ```bash
 magnet:?xt=urn:btih:47EF06EB44EFDDBA669F27EEFB68101AE585D4DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:47EF06EB44EFDDBA669F27EEFB68101AE585D4DF
 magnet:?xt=urn:btih:D549BE13658B871C0A5549D991CA1258129BF1E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:D549BE13658B871C0A5549D991CA1258129BF1E3
 magnet:?xt=urn:btih:DD193836A012A77F5D0A1ABED16B4DBF6DCBEB22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:DD193836A012A77F5D0A1ABED16B4DBF6DCBEB22
 ```bash
 magnet:?xt=urn:btih:CB2375A8FF04F321A1688EFC0B5CEB8FEF1001CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:CB2375A8FF04F321A1688EFC0B5CEB8FEF1001CD
 magnet:?xt=urn:btih:6F12494987E38FA6E1A88FD0A055961360A07E94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:6F12494987E38FA6E1A88FD0A055961360A07E94
 ```bash
 magnet:?xt=urn:btih:4E1F76F8607F2B44812BA44F615564714B13EEAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:4E1F76F8607F2B44812BA44F615564714B13EEAA
 magnet:?xt=urn:btih:A5C99D1FB043BB8732D44C93E942398B6C5F4272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:A5C99D1FB043BB8732D44C93E942398B6C5F4272
 ```bash
 magnet:?xt=urn:btih:CB90E9DFDD2CC47261AE06F337C2D022EDBD7B0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:CB90E9DFDD2CC47261AE06F337C2D022EDBD7B0C
 magnet:?xt=urn:btih:F4A21D3616540BFF5CBB190D9EB1F185F76869D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,34 @@ magnet:?xt=urn:btih:F4A21D3616540BFF5CBB190D9EB1F185F76869D0
 ```bash
 magnet:?xt=urn:btih:CB12ADA762FC5FFA3BF94A1D6A39024773A8BC4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 156438   (338502) от 04.12.2009
+
+Царь (2009)  BDRip [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_338502.jpg" />
+</div>
+
+
+###  Подробнее
+
+1565 год. Темные времена. Правление Ивана Грозного. Русь, растерзана голодом и ливонской войной. Во всем мерещатся правителю измена и предательство. Его верные слуги, опричники, залили страну кровью. В каждом готовы они увидеть государева врага. Главный закон для них — царь. Единственный, кто пошел против царской воли и опричных злодейств — митрополит Филипп, верный (   Читать дальше...   )Производство: РоссияЖанр: драма, историяРежиссер: Павел ЛунгинАктеры: Петр Мамонов, Олег Янковский, Юрий Кузнецов, Александр Домогаров, Анастасия Донцова, Алексей Макаров, Александр Негодайлов, Иван Охлобыстин, Алексей Франдетти, Вилле Хаапасало...Перевод: оригиналСубтитры: НетПродолжительность: 02:03:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:CB12ADA762FC5FFA3BF94A1D6A39024773A8BC4E
 magnet:?xt=urn:btih:66582BB431BB6887E00799B041A70833BA89CBD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:66582BB431BB6887E00799B041A70833BA89CBD8
 ```bash
 magnet:?xt=urn:btih:55507806BCC3A030A44EB2EFF65D78B74AD3EDEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:55507806BCC3A030A44EB2EFF65D78B74AD3EDEB
 magnet:?xt=urn:btih:4BCD04412399F5D65158FBAB2EB35E4D9595A9EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:4BCD04412399F5D65158FBAB2EB35E4D9595A9EA
 ```bash
 magnet:?xt=urn:btih:23AF6AA2523A63F2AAD1FC8F7859BA5B3FDAE5A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:23AF6AA2523A63F2AAD1FC8F7859BA5B3FDAE5A2
 magnet:?xt=urn:btih:CE6F150634C3D1D039D3582C95D9D233EF097F20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:CE6F150634C3D1D039D3582C95D9D233EF097F20
 ```bash
 magnet:?xt=urn:btih:6A30D843A1C061F451D772F9CEC608FE948AE9DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:6A30D843A1C061F451D772F9CEC608FE948AE9DA
 magnet:?xt=urn:btih:7FDFF0A3CA03DEF18E89E3FE7ACD201A1EF4C5E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:7FDFF0A3CA03DEF18E89E3FE7ACD201A1EF4C5E3
 ```bash
 magnet:?xt=urn:btih:6825F8783BC70E87C54366B1878B8C31271A378D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:6825F8783BC70E87C54366B1878B8C31271A378D
 magnet:?xt=urn:btih:C7999979E845B21C8552416D52D0F98E3453FC5C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258056   (340531) от 28.10.2018
-
-Прощание (2017) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Судьба или случай сводит двух людей на безлюдной остановке. Молодой человек рассказывает об отношениях со своей второй половиной. О сложных жизненных испытаниях, которые стояли перед ними. О прекрасном событии, о котором мечтает каждая девушка. Но он не рассказывает о сложном выборе, который он сделал, о его последнем выборе. Эта встреча навсегда изменит жизнь обоих, (   Читать дальше...   )Производство: РоссияЖанр: Короткометражный, драмаРежиссер: Андрей МарковАктеры: Сергей Юдин, Алиса Шинкарук, София Горбунова, Наталья Пинчук, Евгений ДемидовСубтитры: ОтсутствуютПродолжительность: 00:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A4635EDC187E35D5E60CC2F7433A50293DCFFE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ UPgrade – журнал о компьютерах и компьютерных �
 magnet:?xt=urn:btih:44AC41F12D17B5EB6850FD66B4598F0306EC9A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:C9FBFE368AAC90DD797FFC6A31EC793863FFE2C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ InfoCity - Азербайджанский ежемесячный журнал о
 magnet:?xt=urn:btih:02E3CB022F3E6ED3162ED2DA04C7F85616DCF716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ UPgrade – журнал о компьютерах и компьютерных �
 ```bash
 magnet:?xt=urn:btih:A1BB6BFE95FB9D5D9CCE81CE8FF0FB38BB10BAA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:A1BB6BFE95FB9D5D9CCE81CE8FF0FB38BB10BAA0
 magnet:?xt=urn:btih:3AC56A8AB852028EEE5D091608850789DA1677F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:3AC56A8AB852028EEE5D091608850789DA1677F3
 ```bash
 magnet:?xt=urn:btih:A78E9E54F604580C9100F29254689F420E1411DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Linux Magazine - журнал, целиком посвященный опера�
 magnet:?xt=urn:btih:ED10CFBA11579890D40B486770A6F4DCCAB2424A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ ImagineFX — это международный журнал о цифровом
 ```bash
 magnet:?xt=urn:btih:DEA7A5F158F10DDC6CADF1A9978AA12D6AAFEE07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:DEA7A5F158F10DDC6CADF1A9978AA12D6AAFEE07
 magnet:?xt=urn:btih:BD2614E1D271F3DF340B25AE3538740236A082C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:BD2614E1D271F3DF340B25AE3538740236A082C4
 ```bash
 magnet:?xt=urn:btih:E7559EA9888A4EB4FB167CC60D7E3D92786BC0CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:E7559EA9888A4EB4FB167CC60D7E3D92786BC0CE
 magnet:?xt=urn:btih:1C3C87D91AC0BCE671ED306CF81F020AE875501A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The MagPi - о различных поделках и экспериментах
 ```bash
 magnet:?xt=urn:btih:582C38118A3BF5DD93AA2C8FA387A063E13378CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:582C38118A3BF5DD93AA2C8FA387A063E13378CB
 magnet:?xt=urn:btih:39BCE0F353A03B4A6754CDE1F20ACF298D5C7DF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:39BCE0F353A03B4A6754CDE1F20ACF298D5C7DF0
 ```bash
 magnet:?xt=urn:btih:5367D0F83B420913D1AA3EDA71216DCD7C9185ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:5367D0F83B420913D1AA3EDA71216DCD7C9185ED
 magnet:?xt=urn:btih:3B219528CD87BECB21DC0C14E6B9059C42849EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:3B219528CD87BECB21DC0C14E6B9059C42849EF7
 ```bash
 magnet:?xt=urn:btih:EB3FC2238C6BCF7BCD8E68941DCA54A3A692775E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:EB3FC2238C6BCF7BCD8E68941DCA54A3A692775E
 magnet:?xt=urn:btih:E35CC1CE9F8CE1DB8709FC97B041C73E4E73903D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:E35CC1CE9F8CE1DB8709FC97B041C73E4E73903D
 ```bash
 magnet:?xt=urn:btih:B213803FC5918FD1BC281A0227B254A36EC66752
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:B213803FC5918FD1BC281A0227B254A36EC66752
 magnet:?xt=urn:btih:67C5231C3938B546993B262F27B9C274092793A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ IT Expert - журнал для профессионалов в области I
 ```bash
 magnet:?xt=urn:btih:D2614EF9E7F6567D678EF1AB1F8B2402802B57D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ InfoCity - Азербайджанский ежемесячный журнал о
 magnet:?xt=urn:btih:A0851503DCE932D78CD20FDBDABB9A0E6DC95C11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ magnet:?xt=urn:btih:A0851503DCE932D78CD20FDBDABB9A0E6DC95C11
 ```bash
 magnet:?xt=urn:btih:629A99234879EA4D58C4A2CB97BCD65078F2A251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ InfoCity - Азербайджанский ежемесячный журнал о
 magnet:?xt=urn:btih:9DDA7D32024D5BEDC43057EE672550560941D1A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ magnet:?xt=urn:btih:9DDA7D32024D5BEDC43057EE672550560941D1A2
 ```bash
 magnet:?xt=urn:btih:AAD346B37CAB3BEA75BA59E14C2AB7013DDD8D57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ magnet:?xt=urn:btih:AAD346B37CAB3BEA75BA59E14C2AB7013DDD8D57
 magnet:?xt=urn:btih:80C659CF4DF90D3B779CE8553E23D72103B909CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ magnet:?xt=urn:btih:80C659CF4DF90D3B779CE8553E23D72103B909CD
 ```bash
 magnet:?xt=urn:btih:1D2730DF5F916B2BDC2FCCF8ADD5EAF26323231E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

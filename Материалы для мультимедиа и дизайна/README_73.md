@@ -20,6 +20,8 @@ Quadline — это жирный шрифт без засечек, создан�
 magnet:?xt=urn:btih:A5D3CEF3F021D0930A926A3D9C9F1C43BB13B5DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Rocantic — это шрифт с засечками с элегантным и 
 magnet:?xt=urn:btih:5261177A0211C073C1604CA10088397463013D02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Diella — это современный шрифт с засечками, ра�
 ```bash
 magnet:?xt=urn:btih:5A239269F1A857EBDAD5A5A390035F93ABC6F3DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:5A239269F1A857EBDAD5A5A390035F93ABC6F3DE
 magnet:?xt=urn:btih:87BDA6D65466E9EE667439CE701B0CF0B2E46DFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Western Sage — смелый шрифт с засечками и яркими �
 magnet:?xt=urn:btih:75B1320BE243B93C461068D8C3B307998CB0D40F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:75B1320BE243B93C461068D8C3B307998CB0D40F
 ```bash
 magnet:?xt=urn:btih:E537993C5A1483823ABCD21EB2B982592086FA4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:E537993C5A1483823ABCD21EB2B982592086FA4D
 magnet:?xt=urn:btih:90555406A40769D26C87C5534678C47626D3C4D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Pro Sound Effects Library представляет набор из 50 успок
 ```bash
 magnet:?xt=urn:btih:76969D6EA4ABC84A7A86EA1D5DACA852AEEE4DB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Riveta — семейство шрифтов sharp, доступное в 18 с�
 magnet:?xt=urn:btih:666B8361E484F8314BEF7704AB32E29682BEAD6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Pro Sound Effects Library представляет еще один набор и
 ```bash
 magnet:?xt=urn:btih:6C8F014EFCD20856E9AD9FD4304A4F263B88FA5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:6C8F014EFCD20856E9AD9FD4304A4F263B88FA5A
 magnet:?xt=urn:btih:D8D51BA2C64CF3A03FC8860102AEFA36F95AF1BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:D8D51BA2C64CF3A03FC8860102AEFA36F95AF1BC
 ```bash
 magnet:?xt=urn:btih:0BD2A4EFD7CF1A8C2F672107B550AD815F0DC302
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Prayuth — это современный шрифт без засечек, со
 magnet:?xt=urn:btih:6FBCC1268AFB3FACE1F8163169FDE618EE060AE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ Tragic Romantic — это шрифт, выполненный вручную к�
 magnet:?xt=urn:btih:85CE63D282D72AA5F09B84DC809F6F3FA439A5F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:85CE63D282D72AA5F09B84DC809F6F3FA439A5F6
 ```bash
 magnet:?xt=urn:btih:1642B00134A06B61B0B8295B30D3E3484B729A6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:1642B00134A06B61B0B8295B30D3E3484B729A6E
 magnet:?xt=urn:btih:6CA57F06805083E36D3EB695310702DE128B3A26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ Calps — это сжатый шрифт без засечек. Непритяз
 magnet:?xt=urn:btih:CBCB1B1CBAB792CB4D61163DAE90BE070288A5F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:CBCB1B1CBAB792CB4D61163DAE90BE070288A5F0
 ```bash
 magnet:?xt=urn:btih:DFB4EDEE90A36F6C61160AC5DF45EBE24D42D7CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:DFB4EDEE90A36F6C61160AC5DF45EBE24D42D7CA
 magnet:?xt=urn:btih:A5051E49ABE48E785F3323F249745318102ECC8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Flaco был разработан Бьорном Гогаллой и опубл�
 magnet:?xt=urn:btih:2A403D0615B14A258A4AE81B70A7860E3E126DB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:2A403D0615B14A258A4AE81B70A7860E3E126DB9
 ```bash
 magnet:?xt=urn:btih:A1BE42CA5D5D573BE31A3F1D03C77D66A988887A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ Nsai — это минималистичный и аккуратный шриф�
 magnet:?xt=urn:btih:E493999DE609085EDB5A4D484CC15FBA5B391F94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ Rapor — это мощное и элегантное сочетание, соз
 ```bash
 magnet:?xt=urn:btih:755DE7EF8FE146F76CD4AB9150F09397176BDDB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ Kelpt Sans — это измененная модифицированная фо
 magnet:?xt=urn:btih:BDA0B82C1DA75C16A48297545FB0B20BEBB4D77C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ Bari Sans — это сплошной гротескный шрифт с нап�
 ```bash
 magnet:?xt=urn:btih:31C3607C9B86244E06D5A013485B1DDCF3334169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:31C3607C9B86244E06D5A013485B1DDCF3334169
 ```bash
 magnet:?xt=urn:btih:C271B82A71EE9C1CD324DB43895250C9DFA5B25C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

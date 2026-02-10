@@ -19,6 +19,8 @@ NikFileTree - это программа, которая строит дерев�
 magnet:?xt=urn:btih:E3510C835B806463DD4F79A20183F12879198649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ ShowKeyPlus – утилита, отображающая активационн�
 ```bash
 magnet:?xt=urn:btih:3993A7C0BBD9F880EEB770410EA71154EB8D052A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Nmap — (Network Mapper) — мультиплатформенное прило�
 magnet:?xt=urn:btih:3CDC18507AF065A1CA21B7A4EC5356080657E2D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ OnlyStopWatch 6.16 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:05B7F234FA0CB69CB08E9E1DBE3410B066F296C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ FileOptimizer — бесплатная утилита с открытым исх
 magnet:?xt=urn:btih:18BF5C052E448E1EFD9EBF4E5D3BC7A534B8CB97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ WebBrowserPassView - небольшая программа для восстан
 ```bash
 magnet:?xt=urn:btih:B1D5D5C39CF32750013A7AD877F28F8B0DA99C9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ FilExile - простая в использовании утилита с отк
 magnet:?xt=urn:btih:88A5D529FD1815ED6647ED7271BF892A546ADB73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ jv16 PowerTools - достаточно мощный набор утилит, п�
 ```bash
 magnet:?xt=urn:btih:2A71D3018F2D718F7B6880632CB78BE3A4EDBD14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ MemTest86 - программа позволяющая проверить опе�
 magnet:?xt=urn:btih:DD5C9FA2C340C2BF41305AF8FF1549D531328813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ ThisIsWin11 - приложение для оптимизации и настро
 ```bash
 magnet:?xt=urn:btih:F8DCB30C7E18B6E6961D01717979048E274D929E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Solo on Dvorak Keyboard 8.2.1.6 [En]
 magnet:?xt=urn:btih:91C2EB81ED36B4F7AE502C9E7159207ABC5C99C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:91C2EB81ED36B4F7AE502C9E7159207ABC5C99C2
 magnet:?xt=urn:btih:1392261A131DE5D96EC9750E2BAEBD914561D01E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ PDF Annotator - оригинальная программа для работы 
 ```bash
 magnet:?xt=urn:btih:F77D4A40DEEE73C5CDB115B75194F077A1C94A1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Torrent Merkle Root Reader (TMRR) 2.0g Release [Ru/En]
 magnet:?xt=urn:btih:02409440A4882E123181844468E08BD42306C9AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ priPrinter - это виртуальный принтер, который вы �
 ```bash
 magnet:?xt=urn:btih:149EEF57E9F3C580B4A0CADCFE837C7EBAE98937
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Aiseesoft PDF Converter - конвертер PDF в TXT, Word, RTF, EPUB, HTML, 
 magnet:?xt=urn:btih:9A014C68A0C83BF772DF81684B28809C77542BD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ OEM Info Updater 9.8 Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:234A510E2AEE1A76911B5373156BB6C5CFE0E076
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ NVIDIA Inspector - это небольшая утилита, предназна�
 magnet:?xt=urn:btih:7241B2C7E35D40BA3A76D4FDF7F2816FE5F5BAE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Webcam Surveyor 3.9.2 Build 1212 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D8231560A38E4DCD1D16659C7940D9BF6DBA7F94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ WinAudit Freeware 3.4.3 Portable [Multi/Ru]
 magnet:?xt=urn:btih:6BC4308E0F66245262DA8D0C6B14F0C55308D879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ ClipGrab - программа для скачивания и конвертир�
 ```bash
 magnet:?xt=urn:btih:A2DD3F84D37E9AF610E77B67CE476BD2BC481AFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ EMCO Network Software Scanner - инструмент для выполнения
 magnet:?xt=urn:btih:729748C815530314D0D4FA060E8FC86B0376A976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Soft Organizer Pro 10.33 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2DD5C0D1D6CC7C6354BA550A1F4D01DF56BB79FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Reg Organizer® - это многофункциональная программ
 magnet:?xt=urn:btih:5B111959418133A80049D65549761A2963A581CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ PowerISO - программа, позволяющая создавать, кон
 magnet:?xt=urn:btih:E561F1A38D4DF9BE01F680BE8834F14DC65BEAE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Advanced Uninstaller - идеальный инструмент для деинс
 ```bash
 magnet:?xt=urn:btih:40B0AF3FD54B9991F28A41EC7C43B3D3C5162E12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

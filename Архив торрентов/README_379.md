@@ -22,6 +22,8 @@ Cannon Fodder 3 – тактический экшен, унаследовавш�
 magnet:?xt=urn:btih:80E88197AC3CF0CDB98848CAC0A4D2665DE56D3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ SoulCalibur 2 [Ru/En] (RePack/Emul) 2003 | MarkusEVO
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ SoulCalibur 2 [Ru/En] (RePack/Emul) 2003 | MarkusEVO
 magnet:?xt=urn:btih:21F2AF3309CB404ABEAF3CFF60B4715675BDCFE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:21F2AF3309CB404ABEAF3CFF60B4715675BDCFE6
 ```bash
 magnet:?xt=urn:btih:57081843869D2DD89FC1AAF3EF5C65297AA573EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:57081843869D2DD89FC1AAF3EF5C65297AA573EE
 magnet:?xt=urn:btih:640E0E5745A71084D0117C73C3DD97BB28214901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:640E0E5745A71084D0117C73C3DD97BB28214901
 ```bash
 magnet:?xt=urn:btih:D6C6AAE0FC36573786F7A2F44FDD262664E4FA47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:D6C6AAE0FC36573786F7A2F44FDD262664E4FA47
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Alan Baghumian объявил о выпуске второго обновлен�
 magnet:?xt=urn:btih:E07361C9E433E45E9F426E612D94557EC70A05F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:E07361C9E433E45E9F426E612D94557EC70A05F7
 magnet:?xt=urn:btih:B5F448CAA9A85F91CB629B5F1D40298DEC17A9A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ DVJ Bazuka - Good For Me (Uncensored) (2011) WEBRip (H264)
 ```bash
 magnet:?xt=urn:btih:E1218B004FDD3ED6285AD09B8A2A7ECCA0E04115
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ VA - Sweet & Sweat 4 (Compiled by Petros Kostopoulos) (2011) [FLAC|Lossless]<Chi
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ Mozilla Firefox - бесплатный, функциональный и попу
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ Daum PotPlayer - это мультимедийный проигрыватель 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ Daum PotPlayer - это мультимедийный проигрыватель 
 ```bash
 magnet:?xt=urn:btih:12EFEA28D87738CEE22B185A39AE3446DB966C85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +411,8 @@ VA - Les Legends De Chanson Francaise (4CD) (2011) [FLAC|Lossless]<Chanson Franc
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +446,8 @@ VA - The Rough Guide to Merengue Dance, Carlitos Almonte (2 CDs, 2009) [FLAC|Los
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +472,8 @@ DVJ Bazuka - Party On (Uncensored) (2011) WEBRip (H264)
 magnet:?xt=urn:btih:D38239C57C18D36C654623247FFC2811DC98286E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +497,8 @@ magnet:?xt=urn:btih:D38239C57C18D36C654623247FFC2811DC98286E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +533,8 @@ magnet:?xt=urn:btih:D38239C57C18D36C654623247FFC2811DC98286E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +566,8 @@ SPL - Forever Lost (2012) [MP3|320 kbps]<Drum'n'Bass>
 magnet:?xt=urn:btih:C214B831FCB31578602BA6C4ED38990DED39F3A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +591,8 @@ DVJ Bazuka - Take My Love (Uncensored) (2011) WEBRip (H264)
 ```bash
 magnet:?xt=urn:btih:45D8FD7441594CD488F95B39012C57C86CB7F5B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +627,8 @@ VA - Дискотека Бездна 50/50 (2012) [MP3|128-256 kbps]<Pop | Dance
 magnet:?xt=urn:btih:2D6E64DD1322E9F2A00A1C931E2710494BCED8F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +662,8 @@ CD1:
 magnet:?xt=urn:btih:8F285C3C873FBFD6CC7F85DA1DA1D2E37158C11C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +687,8 @@ R-Studio - лучшее на сегодняшний день программн�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -666,6 +714,8 @@ R-Studio - лучшее на сегодняшний день программн�
 magnet:?xt=urn:btih:BB165BD5B378C4EB1A01DD53CC9F7614F4501CDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -689,6 +739,8 @@ magnet:?xt=urn:btih:BB165BD5B378C4EB1A01DD53CC9F7614F4501CDC
 ```bash
 magnet:?xt=urn:btih:A21959FC0413489829BEC42ADC09F1B4CD3D18F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

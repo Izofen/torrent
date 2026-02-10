@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:7B0B56EAA25AD75ABB55C051A3628B94378179CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:7B0B56EAA25AD75ABB55C051A3628B94378179CF
 ```bash
 magnet:?xt=urn:btih:1B2589BD54922295E423ABC04CF04894B8BEF3C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:1B2589BD54922295E423ABC04CF04894B8BEF3C3
 ```bash
 magnet:?xt=urn:btih:ACDDB2952BF5446CF52A9B5A929E62ACEB165AEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ The Who - Live At The Oval 1971 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock
 magnet:?xt=urn:btih:852349A3B142BBBB67C5F3BDA3D78E4F4B43B108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Driftune — изысканный шрифт без засечек, сочета
 ```bash
 magnet:?xt=urn:btih:5567728850F97BA6FFFB9EAADD4AEADDD1EFF247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Unen - Forever Winter (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 magnet:?xt=urn:btih:F4293CB1B617D73F65A6234D29DE6C6EB66188EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Newsam родился в долине, которая находится меж�
 magnet:?xt=urn:btih:DCDBF7B2EA24EF5B88B396A69DE9E9F3582AECE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:DCDBF7B2EA24EF5B88B396A69DE9E9F3582AECE4
 ```bash
 magnet:?xt=urn:btih:A838D9C9A659C7B8D20309CC35435707C6D44748
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Veliora — изысканный шрифт с длинными засечкам
 ```bash
 magnet:?xt=urn:btih:B315DC1C914BA1F2146A10861D1119F494EF2CE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ Sadao Watanabe - Peace (2024) Victor [FLAC|Lossless|image + .cue] <Smooth Jazz, 
 magnet:?xt=urn:btih:1C5BA974ECF305C8F2B15D845065198A1CBDC278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ VA - Armin van Buuren - A State Of Trance 1240 (Takeover By Joris Voorn) (2025) 
 ```bash
 magnet:?xt=urn:btih:AB0C6F58C106FC9800B78A9B66CD8AA6BF4F7CB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ Vicious Rumors - The Devil's Asylum (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 magnet:?xt=urn:btih:7266BE7DC10C1AA2D11D580567FBAFB89BD902B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:7266BE7DC10C1AA2D11D580567FBAFB89BD902B2
 magnet:?xt=urn:btih:A46B50BAAEBB69ECF5778B725364ED815CCF7E26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:A46B50BAAEBB69ECF5778B725364ED815CCF7E26
 ```bash
 magnet:?xt=urn:btih:DD6554CA0E808AAC0EB93900D17C70140C41964A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ Sweet Freedom - Blind Leading The Blind (2025) [FLAC 24/48|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:928EE4CEC94F854C04A68AD573907FF0B0A57BB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:928EE4CEC94F854C04A68AD573907FF0B0A57BB1
 ```bash
 magnet:?xt=urn:btih:27A159A11118CEA4007367C10364AF5AEE1DC2BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ Linkin Park - In The End: Live & Rare (2002) Japan, WPCR-11210 [FLAC|Lossless|im
 magnet:?xt=urn:btih:C69C905FD97390E7C24E1B28B68987035FA56374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ Darker Half - Book Of Fate (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Me
 magnet:?xt=urn:btih:3D2C0290CD9F0F4596C3AE2DDFB97553F6B52D1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:3D2C0290CD9F0F4596C3AE2DDFB97553F6B52D1F
 ```bash
 magnet:?xt=urn:btih:D91745B7FA89BC912C735E2CD6F8D6F6784FBE5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ Super Bomberman R 2 (2023) [Switch] [EUR] 16.1.0, Atmosphere 1.5.5 [License] [Ru
 magnet:?xt=urn:btih:15B55FC884C767C3D8588D7041AB842DC30578CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:15B55FC884C767C3D8588D7041AB842DC30578CC
 magnet:?xt=urn:btih:838F2FE3EBE2BF03E87076ECCD01375960672170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ pdfFactory Pro - удобное приложение, представляюще
 ```bash
 magnet:?xt=urn:btih:F227DA4379EE1A52BFDE6DE590DD47FE4BAD7DC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +626,8 @@ Helloween - Giants & Monsters (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 magnet:?xt=urn:btih:F10B6159681A8C82A40A497A123890D2C7175326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ Helloween - Giants & Monsters (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heav
 magnet:?xt=urn:btih:9709D2419C17F911EB5E9087DFA3979813B68A14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:9709D2419C17F911EB5E9087DFA3979813B68A14
 magnet:?xt=urn:btih:41D6A1280C83B926EA8A406D62084C69BF606C83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:41D6A1280C83B926EA8A406D62084C69BF606C83
 ```bash
 magnet:?xt=urn:btih:6AD3113FD12B60094262B6AA6A4403DA105127A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Andreas Glad | Houdini VFX for Games (2017) PCRec [En, Ru]
 magnet:?xt=urn:btih:8088EE58BBAB640333FAC8C36F864A8AC70A1155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Gumroad | Stillsincolor D&B Tutorial (2021) PCRec [En]
 magnet:?xt=urn:btih:938CF32DA06DD3BAF631A7AE817D584E54F0E2E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 4 (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:1B66C973C48B1A67365002C3FB009F7DFFA6D871
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Joshua Kinney | Indie Game Development Pipeline Volume 3 (2014) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:1BA1996EE0BDD8D671CB7B6E56AEE0AE7F88819D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Skillbox, И. Павлов и др. | Алгоритмы и структуры �
 magnet:?xt=urn:btih:95CCADEB56242FAAB99128F679F16241D3C02F16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:95CCADEB56242FAAB99128F679F16241D3C02F16
 magnet:?xt=urn:btih:E1AD018C48D949E0D61D2FE3A97A421AC982457B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 5 (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:B54F2256B19E26AC2AD24C3A3BDACA9C5BD51DCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Kurt Jones | Indie Game Development Pipeline Volume 1 (2014) PCRec [En, Ru]
 magnet:?xt=urn:btih:2839911930838D78EFDAA1EF1E7243C9D4412FC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 2 (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:09FDCC8901BA8637953617419D74D5F015BC32E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Moritz Schwind | New in Houdini 18 (2019) PCRec [EN, RU]
 magnet:?xt=urn:btih:D079E75883DE986B07C0E4249B0AB7FB9B70F034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ SideFX | Houdini 15 Masterclass FLIP Workflow Enhancements (2016) PCRec [EN, RU]
 magnet:?xt=urn:btih:45C94ADF73645255606E5384D7230CD63339C3E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 3 (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:2398C72A4F997E3BE2208C1A6A83F33DD1BA502C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ Rohan Dalvi | Houdini Rocket Ship (2015) PCRec [En, Ru]
 magnet:?xt=urn:btih:E0636F68564A3C7F40CEE2E071552637107903FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ Houdini поддерживает сетевые солверы со времен
 magnet:?xt=urn:btih:B7D4DA570D27666CF1E79F57727D4C7B31B51CDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ SideFX | Houdini 15 Masterclass Crowds (2016) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:587F0698CF70ED66CB9F91D9570A3A7456A82982
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ John Moncrief | Introduction to Materials in Houdini (2015) PCRec [EN, RU]
 magnet:?xt=urn:btih:CB90AD556534B3BED294AC8701BDFDB732DB0C6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ Kurt Jones | Indie Game Development Pipeline Volume 2 (2014) PCRec [En, Ru]
 magnet:?xt=urn:btih:9AEA8913C0C86F44FC007C4C28E57403111C2DC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ Andreas Vrhovsek | Creating Cloudscape in Houdini (2015) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:2DB45BC83FB704F651705DD4E5F50CC9C124871B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ John Moncrief | Introduction to Collisions in Houdini (2015) PCRec [EN, RU]
 magnet:?xt=urn:btih:3C5DC0308FFD63C7F3314A8BE4D4B829563BB6E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Python-разработчик создаёт бэкенд сайтов: мозг
 magnet:?xt=urn:btih:4605D93F20EBB6EAEEA7D0D027DF62AEA4596792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ Skillshare, Joe Baily | Скульптинг в Blender 2.91 часть 1.2 - С
 ```bash
 magnet:?xt=urn:btih:63797BD0320C434540D5C89DF6F53B5F84D0B76E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ NestJS использует невероятную популярность и �
 magnet:?xt=urn:btih:24C50D8130F8A934C6DA83B401C8511BABFF422E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ Udemy, Joseph Phillips | PMP Exam Prep Seminar - Pass the PMP on Your First Atte
 ```bash
 magnet:?xt=urn:btih:25A75E751F21279D09CC51377F4E806F4F235E10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ Udemy, Patrick God | .NET Core 3.1 Web API & Entity Framework Core Jumpstart (20
 magnet:?xt=urn:btih:E570A29D472B7C62C5DC4A17E261E790CB2EF387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ Skillshare, Joe Baily | Процедурное текстурирование в
 magnet:?xt=urn:btih:2AAD2436168F5BA25E91D11C0004C4F0FD84712A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Udemy, Nate Ross | API and Web Service Introduction (2020) PCRec [En / En Sub]
 ```bash
 magnet:?xt=urn:btih:E3B38EAF781DBFD7E0CFC1AF81D68AE9884C8CEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

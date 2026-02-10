@@ -19,6 +19,8 @@ VisionUp: Ваш Окончательный Тренер по Упражнени
 magnet:?xt=urn:btih:AB1C0D507FB669C062CDED02700EBB7B69FA4FFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:AB1C0D507FB669C062CDED02700EBB7B69FA4FFF
 ```bash
 magnet:?xt=urn:btih:7B31B09F0913C6F5C89D577AAAFF923D9BDC2384
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Keepsafe надёжно хранит личные фото и видео при�
 magnet:?xt=urn:btih:D0B6495BAB6AE64F2D0163F944D4BE973326CA42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ DIGI Clock - отличный способ персонализировать в
 magnet:?xt=urn:btih:55EBA724C44F1AEAD7846E880EFC3037EE002BA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ exFAT/NTFS for USB by Paragon Pro v5.0.0.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:70F1FCD0467CFEE366B63F65FA9C5D0DDA0046A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ AdGuard — уникальный блокировщик рекламы без ro
 magnet:?xt=urn:btih:ED6E2D0CBB7125A997A014FCB6027BE7A6BC5A57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:9AB211095EB80592C1351CCBD527E9399D198BDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ MyFitnessPal не будет вас ограничивать в еде, ведь
 ```bash
 magnet:?xt=urn:btih:487F275B5ABDF531ED22C734F14E2000115EE1BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Electrodoc - это новое имя приложения Electrodroid. То ж
 magnet:?xt=urn:btih:D07B5AED7487B5B62EDEF8DF7EE08D343DE188B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:D07B5AED7487B5B62EDEF8DF7EE08D343DE188B2
 ```bash
 magnet:?xt=urn:btih:29C623F1AD0523941FD0145290FF3A9C23DC4541
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ STEEZY - танцевальная студия №1 на вашем устрой
 magnet:?xt=urn:btih:888A2CF77CBD7FDCDA12F162998E20E7026EA5ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ DreamFace APP — это мощное приложение, созданное �
 ```bash
 magnet:?xt=urn:btih:AAFAA2555EAE7215479CAC8AD67AB595121AD4B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ Solid Explorer - это приложение для управления фай�
 magnet:?xt=urn:btih:11E8A276861461E30F963CA5556C16642216CCA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:11E8A276861461E30F963CA5556C16642216CCA4
 magnet:?xt=urn:btih:A503B8162E89F6F4A0188C7BFC88949AEB01B9C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:A503B8162E89F6F4A0188C7BFC88949AEB01B9C2
 ```bash
 magnet:?xt=urn:btih:6B3605B4A574A02FF14BDA53C9C10C6240358B9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ MiHome v9.9.700 Mod by Vevs [Ru]
 magnet:?xt=urn:btih:0C147C8D7D432C3D4825DCFF9727682CA86870AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ Duolingo: изучай языки 6.7.1 Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F6C697B83303370C02CD2D746152FCDACEADF9A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ Smart Driver – удобный радар камер и ДПС, а так же 
 magnet:?xt=urn:btih:76DDFCFA9F1D2A708538415DA1C50B5E5F0B415B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ CSee - это программное обеспечение для монито�
 ```bash
 magnet:?xt=urn:btih:A8109AA865328781A95DD0008F4E08269C402082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ MobiOffice - это полнофункциональный офисный пак
 magnet:?xt=urn:btih:6B3CDA37404FE0A0EE7C3138B26362E81391003B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ Cozy Magnifier & Microscope Plus v6.4.1 Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9DA7336C728E53E860079E221CA5F9FBA7684268
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ Obtainium позволяет вам устанавливать и обновля
 magnet:?xt=urn:btih:893E26AC2B7F6B3FCC6F900E2C4B972F993518D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ Listonic / Список покупок v8.14.3 Mod by NURIK kz [Ru/Multi]
 magnet:?xt=urn:btih:0F3CC1E9027A684F55F336837D5FA0F2C5E6C059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ PictureThis - Plant Identification v5.0.11 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:611A18381D442F41D6D307CA37575BD2C76B99D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ PicWish — фоторедактор с искусственным (   Чита
 magnet:?xt=urn:btih:7F4070C66FB379F58ACE7CA38F6332F104A53FBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Stellio - продвинутый плеер, с мощным звуком, по�
 ```bash
 magnet:?xt=urn:btih:5F405EAB57C4E1935D133ED634BC06D5094D81D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

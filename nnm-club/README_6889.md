@@ -19,6 +19,8 @@ CGcircuit, Ciobanu Razvan | Advanced Destruction Series: Lightning Strike (2022)
 magnet:?xt=urn:btih:7C4F15290E9F7A00F2C9D528D51EDC92EB011811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:8BCCE6D7732D9B774B9F7841F15703BE71C33B7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:8BCCE6D7732D9B774B9F7841F15703BE71C33B7B
 magnet:?xt=urn:btih:F7A45B0FAD4EA75FCAA14BF66E553A842EEB9F1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:F7A45B0FAD4EA75FCAA14BF66E553A842EEB9F1E
 ```bash
 magnet:?xt=urn:btih:3D86F975FAA9F968454581D7FABAF2960134A20A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Crescendo Music Notation Editor 9.62 [En]
 ```bash
 magnet:?xt=urn:btih:31544F4BE1C52F9E86C5E0DF49E5A1D119FD2DC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ VA - Romantic Collection. Volume 1 (1995) [OGG Vorbis|480 Kbps] <Rock, Pop, Folk
 magnet:?xt=urn:btih:B3B6234FF7D9401C21EC726461785D226E2EF768
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Icecream Screen Recorder – простая программа для запис
 ```bash
 magnet:?xt=urn:btih:07312FAF65466CCB3C8CFCDBA8B517BDD0164CB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:07312FAF65466CCB3C8CFCDBA8B517BDD0164CB5
 magnet:?xt=urn:btih:8BD398F2DE8EFE76A909F37DCA89344DC5CAA0FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Truecaller - представляет собой электронную теле
 ```bash
 magnet:?xt=urn:btih:8A5240CB380489103BAC99ED50B1F7887EE99BB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ ADB AppControl - это удобная программа для ПК, кото�
 magnet:?xt=urn:btih:5BBE8505C401DDEAC319AA3376CF49E611D3F0D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:5BBE8505C401DDEAC319AA3376CF49E611D3F0D6
 ```bash
 magnet:?xt=urn:btih:0A542B9FCB96814BBEF759A71B7D6B850E8861D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Alight Motion - это первое предназначенное для сма
 magnet:?xt=urn:btih:F12411F0EBC958478A1F458FB1EE40C99F10ED69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:F12411F0EBC958478A1F458FB1EE40C99F10ED69
 magnet:?xt=urn:btih:78CDF076056B0FCBB42310E8B11D06EACA7374B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:78CDF076056B0FCBB42310E8B11D06EACA7374B9
 ```bash
 magnet:?xt=urn:btih:4AC7B179791BECC8FC702A80CB6137F7A5A0DDC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Sigh - The Eastern Forces of Evil 2022 (Live) (2023) [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:18EBEF0D20F4E529BD46C94E8E3225137F7E59F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:18EBEF0D20F4E529BD46C94E8E3225137F7E59F8
 ```bash
 magnet:?xt=urn:btih:B4529539F1253A84A129A19A29E2DB24604DE2F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:B4529539F1253A84A129A19A29E2DB24604DE2F5
 magnet:?xt=urn:btih:27F18C340FBF6A764E795551D507E3C4093F7511
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:27F18C340FBF6A764E795551D507E3C4093F7511
 ```bash
 magnet:?xt=urn:btih:CC878653536A1A97C9D9F972E153854B58D21617
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:CC878653536A1A97C9D9F972E153854B58D21617
 magnet:?xt=urn:btih:65F690F154B5474FE3A05854407CB2B42B7C0579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:65F690F154B5474FE3A05854407CB2B42B7C0579
 ```bash
 magnet:?xt=urn:btih:C0EE16EC624B41FFED0C356CCB1EE1DF8A311E73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:C0EE16EC624B41FFED0C356CCB1EE1DF8A311E73
 magnet:?xt=urn:btih:5EAB9A460A3319052B334118210324083AEAF03A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:5EAB9A460A3319052B334118210324083AEAF03A
 ```bash
 magnet:?xt=urn:btih:AA3D5809E4277D1C4EC56FC70EBED2B5963CA55F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ IOWA - Кассиопея (2023) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:293870239E1D8237D829C4FA643FE7F0AFE4EAB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ Visual Studio Code – визуальный редактор кода от ко�
 ```bash
 magnet:?xt=urn:btih:03B78ED1B2E1C629A3F4A89FA60D3D5C402F80D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ VA - Music News vol.282 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:5563D3FCC5A561BFE05E5142E21D88CB19EE5808
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:5563D3FCC5A561BFE05E5142E21D88CB19EE5808
 ```bash
 magnet:?xt=urn:btih:2DCD483B3D39FD0D7E4BA08FFECAE374E64933EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

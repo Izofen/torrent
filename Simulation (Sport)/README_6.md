@@ -19,6 +19,8 @@ NBA Playgrounds (2017) [Ru/Multi] (1.0) License RELOADED
 magnet:?xt=urn:btih:4B24718BC5731F4CA1B809150CBFCC94A461AACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Virtual Sports - симулятор тенниса для устройств в�
 ```bash
 magnet:?xt=urn:btih:6E19612943E875C2337CEECE860930990ADB858A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Fast & Furious Crossroads / Форсаж Перекрестки (2020) [Ru/Multi
 magnet:?xt=urn:btih:F9AFFD6B7F062BAA6A83B141043AEE38084C3544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ DUCATI - 90th Anniversary (2016) [En/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:8F7BC301E356C9CA2DC4C2A300E536F0FEA9E2DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Snow Moto Racing Freedom – гонки на скоростных снегохо
 magnet:?xt=urn:btih:A32DD652B2F9E7ADEF24413DAE5672B48AE38250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Rival Stars Horse Racing (2020) [Ru/Multi] (1.0) Repack Other s [Desktop Edition
 ```bash
 magnet:?xt=urn:btih:AD1A5CE00879AC592690E2C759C16183482282F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Hunting Unlimited 2010 (2009) [En] License
 magnet:?xt=urn:btih:C09AA4E5CA711A110BA2078ED295A3C56C947A13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Jack Nicklaus Perfect Golf это новое слово в жанре спорт
 ```bash
 magnet:?xt=urn:btih:2DABA87EC742D4854D5CE57BF3408D8A6AAADF60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Sydney 2000 (2000) [Ru] (1.0) Unofficial
 magnet:?xt=urn:btih:EE09E7358BAC7EDB2F03E44BF552B93F619F56CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ RTL Biathlon 2008 / Биатлон 2008 (2007) [Ru] (1.0) Repack CoD - MW2
 ```bash
 magnet:?xt=urn:btih:C925408C64157FC3D1327C9E6C8611DC6C6943E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Athens 2004 - официальная игра XXVIII летних Олимпий
 magnet:?xt=urn:btih:BEE42EBAE58AF659077CEAFC5A872C912036547D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Beijing 2008: The Official Video Game of the Olympic Games (2008) [Ru] (1.0) Rep
 ```bash
 magnet:?xt=urn:btih:9BBB26863BB08D7D5A653CEE958985CE7E329A12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Pro Cycling Manager 2020 (2020) [Multi] (1.0.0.2) License SKIDROW
 magnet:?xt=urn:btih:B6D5F9F213AF7D507D40B10B10CB825DD140C3A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ RTL Winter Sports 2008: The Ultimate Challenge / Зимний спорт 2008 (2
 ```bash
 magnet:?xt=urn:btih:5814503806ECAE01771A7E05A1BAE69690328CF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Summer Challenge Athletics Tournament – симулятор спортивны�
 magnet:?xt=urn:btih:4873BE4A6BB7670F678B87956BEA7BEF8E74094B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Summer Athletics 2009 (2009) [Multi] (1.0) Repack CoD - MW2
 ```bash
 magnet:?xt=urn:btih:00FBC21A77AF4D420213F3058C05E8114B073744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Vancouver 2010: The Official Video Game of the Olympic Games (2010) [Ru] (1.0) R
 magnet:?xt=urn:btih:27E01FE67A172F7B24182814672321C4D06084A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Winter Sports 2012: Feel the Spirit (2011) [En] (1.0) Repack CoD - MW2
 ```bash
 magnet:?xt=urn:btih:3F9EB69327E49CCB26C1ECE0136138DB9109A252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Winter Sports 2011: Go for Gold (2010) [Multi] (1.0) Repack CoD - MW2
 magnet:?xt=urn:btih:010273297B629E2E4CE167C4C1744643A6821C38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Pro Basketball Manager 2017 – спортивный симулятор баск
 ```bash
 magnet:?xt=urn:btih:0D5A45B88A2AC93A1794539B4CDDA13CDB91CB6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ RTL Biathlon 2009 / RTL Биатлон 2009 (2008) [Ru] (1.0) Repack CoD - MW2
 magnet:?xt=urn:btih:880BAF908085B58D109D379BD429A4B61D3943BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Alpine Ski Racing 2007 / Горные лыжи: Альпийский сезон 
 ```bash
 magnet:?xt=urn:btih:0F1011FC2A8BF0E1725688AFC45077668C52C25A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ RTL Ski Jumping 2007 / RTL Лыжный трамплин 2007 (2006) [Ru] (1.0) 
 magnet:?xt=urn:btih:E378604FD4C247920EB3A674E9D7C7D4B2BFBFCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ RTL Ski Jumping 2005 (2004) [En/Ge] (1.47) Repack CoD - MW2
 ```bash
 magnet:?xt=urn:btih:6A9E999B8E276761B289080C921B73C24F964A17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ RTL Winter Games 2007 / RTL Зимние игры 2007 (2006) [Ru] (1.0) Repack 
 magnet:?xt=urn:btih:0E338991CB1ECBA02C871D7F1EDC97E37CBC17AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Curling 2006 (2006) [Ru] (1.0) Repack CoD - MW2
 ```bash
 magnet:?xt=urn:btih:5BA74441C186E0338E0D545D838F563B24941EE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

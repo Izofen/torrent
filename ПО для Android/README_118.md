@@ -19,6 +19,8 @@ Equalizer Music Player Pro - На вашем устройстве недоста
 magnet:?xt=urn:btih:C574146025D065AD7AB925E8EEA129B35D7D6A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Backup Apk - Extract Apk v1.2.9 [En]
 ```bash
 magnet:?xt=urn:btih:97C7BDA3E19EC363611A14B656680AF51DED7803
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Five hundred english words - Уникальное приложение, для �
 magnet:?xt=urn:btih:109370CE8F4E7461B1FA08231C5B6D2D2F5441AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NotifyBuddy - AMOLED Notification Light v1.50 [En]
 ```bash
 magnet:?xt=urn:btih:F678B571A005197AE97EDEA95A22C673D48A8B75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Time Calculator Cardamon v1.0.9 [En]
 magnet:?xt=urn:btih:834401410EF993FB9DC27802DA02F1630725FA34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Files v1.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:407AB97BBAFDEB8EBB0C9C6CBA06874013E7E9C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Dr.Web на Android – скачать антивирус Dr.Web можно бе
 magnet:?xt=urn:btih:EE58EE8BD24F76F262691921E950BA7FE5F6AF3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ VK mp3 mod - Уникальная модификация оригинально�
 ```bash
 magnet:?xt=urn:btih:0DC79F08E6C18187A99D44DE2721A2260C4E779A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Pedometer - GPS Tracker v1.0 [Ru/En]
 magnet:?xt=urn:btih:99FCF5AC1D049272F792C9FA2B38939B8AF9A3C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Blend Photo Editor Pro 2.5 [En]
 ```bash
 magnet:?xt=urn:btih:AD9628D76618EFB3E9CA69BFD3E4EFE12A9B8840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Xcast.tv v1.4.0.4 [Ru/Multi] - трансляция на телевизор
 magnet:?xt=urn:btih:C365EC23389B9F6F3EC7954C13515279A7F3F499
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ TinyCam Monitor PRO – это программа позволяющая вес�
 ```bash
 magnet:?xt=urn:btih:FB35CA5A9ED02984DD0642F6E479D3E22D5F8994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ P4P 7 Minute Workout PRO 1.3.8 [Ru]
 magnet:?xt=urn:btih:B30306A8B80E7ABDEC3A6885563F80370DD9BE70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Paint Free 3.5.4 [Ru] - Рисовалка
 magnet:?xt=urn:btih:8001DD4A7DCEE031A041CB4397E536181F8CE3E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:8001DD4A7DCEE031A041CB4397E536181F8CE3E0
 ```bash
 magnet:?xt=urn:btih:0FF6DB4F342FF186FCFEC9662AB2F9321ADFA503
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ KitchenTimer 4.2.1 [Ru] - Кухонный таймер
 magnet:?xt=urn:btih:BF16750CA12232E14E67CFF436F0156025AD0C34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:BF16750CA12232E14E67CFF436F0156025AD0C34
 magnet:?xt=urn:btih:12439A9A1F7100EBD1C42BFFA951F29ECF869831
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Stepik (Стэпик) — это платформа с бесплатными о
 ```bash
 magnet:?xt=urn:btih:B47CB67F3D89955D2C1A9BC6BC1A2A9FCBE50E75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Cписок покупок v2.1.1 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:5CB62057A97F83268D2DB9FD4A05036F4141A243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:5CB62057A97F83268D2DB9FD4A05036F4141A243
 magnet:?xt=urn:btih:620465318F528D1B791DFCAAEDB500BC1A8F97D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:620465318F528D1B791DFCAAEDB500BC1A8F97D3
 ```bash
 magnet:?xt=urn:btih:AD89566D6E157F2FD51164B16769907DA57A0311
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Olivia Drive Pro 2.7.8 - бортовой компьютер (OBD2/ELM327) [Ru/M
 magnet:?xt=urn:btih:2016C3252E865AF16F73B5F7FE5483C9691A9DF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:2016C3252E865AF16F73B5F7FE5483C9691A9DF9
 ```bash
 magnet:?xt=urn:btih:212B1E9FE7DD3EC2809CC9313F9EDB8520CCFB55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:212B1E9FE7DD3EC2809CC9313F9EDB8520CCFB55
 magnet:?xt=urn:btih:FCE66430D7A8BA2DB9D9E767DF0B80921A765301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:FCE66430D7A8BA2DB9D9E767DF0B80921A765301
 magnet:?xt=urn:btih:051557B4001C34AEE53DF73C7932EB527F48BFF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Gallery Go by Google Photos - небольшое, но многофункцио�
 ```bash
 magnet:?xt=urn:btih:29147E815B4C2E7027E89F153970F6D12D1DFC36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

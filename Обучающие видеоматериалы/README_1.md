@@ -22,6 +22,8 @@ Infostart, Владимир Лушников | Новое в 1С: Докумен
 magnet:?xt=urn:btih:827ACBBCFCBC25A5039E1369E38DDBD44824D7B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Purpleschool, Антон Ларичев | Vue.js 3, Vue Router и Pinia (2025) W
 ```bash
 magnet:?xt=urn:btih:A17CBA877F648C42CDC4C4D245D86BDFA4F7B09B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:A17CBA877F648C42CDC4C4D245D86BDFA4F7B09B
 magnet:?xt=urn:btih:9A68B46D6D8DEC3D18509A307F3C90ADB66F23E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Act&Create, Tasha Lumi | Всё, что тебе нужно знать для с
 magnet:?xt=urn:btih:C3262750837F018B70B26E005F5FCB4C78E35AED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:C3262750837F018B70B26E005F5FCB4C78E35AED
 magnet:?xt=urn:btih:0FCE0262BC2C6AFCFF1D881899A8CFB9BCC7C2F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:0FCE0262BC2C6AFCFF1D881899A8CFB9BCC7C2F7
 ```bash
 magnet:?xt=urn:btih:F278E9EB6BB38B9C2DB8C88B85446920305324B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ Purpleschool, Антон Ларичев | Nuxt - fullstack Vue фреймвор�
 magnet:?xt=urn:btih:F767AE4597BD0BA6A2E2660B6264FC3604273828
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Purpleschool, Антон Ларичев | Feature-Sliced Design (2025) WEB-DL [R
 magnet:?xt=urn:btih:EA707A0F40314F64122DF57DAFF9A6D566A67C45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:EA707A0F40314F64122DF57DAFF9A6D566A67C45
 ```bash
 magnet:?xt=urn:btih:2EB7F0629EBB0E9BA624E093E10BE61548C407E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:2EB7F0629EBB0E9BA624E093E10BE61548C407E2
 magnet:?xt=urn:btih:A68C02D311D3B6748986883D27F182F24B5279D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:A68C02D311D3B6748986883D27F182F24B5279D6
 ```bash
 magnet:?xt=urn:btih:16FE4FEF996813EF0F20B71C4B298A256EEA9DFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ TutorPlace, Наталья Устич | Мобильная фотография 
 magnet:?xt=urn:btih:7B32DECE65B6FAE4F4F42B20D0B1F1894CA443CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Bazanova Art, Ольга Базанова | Волшебные пионы (2024)
 magnet:?xt=urn:btih:01EC8D6CA8F0F897B58728B7A58A744D4747BD94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:01EC8D6CA8F0F897B58728B7A58A744D4747BD94
 ```bash
 magnet:?xt=urn:btih:562EDBB2845CC83F707C832EE3AA65A77D2B681B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:562EDBB2845CC83F707C832EE3AA65A77D2B681B
 magnet:?xt=urn:btih:892B2B48386C1EFC251E0730AE39F882028CC1FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:892B2B48386C1EFC251E0730AE39F882028CC1FD
 ```bash
 magnet:?xt=urn:btih:1727320AC8A6416D09D0C2197456ABCC0FB754E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:1727320AC8A6416D09D0C2197456ABCC0FB754E2
 magnet:?xt=urn:btih:890274D455FFA711E0DDB4A8CEA8B2B7102B9164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:890274D455FFA711E0DDB4A8CEA8B2B7102B9164
 magnet:?xt=urn:btih:75525CE19EC72AD20CFC78502A2C534FA646D7CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ Rush Academy, Евгений Милованцев, Игорь Бурдуков |
 ```bash
 magnet:?xt=urn:btih:463F79608C85C9829A5DA7AEA32ADDD2F7C619CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ Soft Skills — это двигатель карьеры. Существуют H
 magnet:?xt=urn:btih:C342EAA39058EC220A10738FED612D1E151672A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ Asya-Design, Александра Бавыкина | Шаблон ArchiCAD (2025
 ```bash
 magnet:?xt=urn:btih:223AB30C7383720810604654EE01E7D063C4C767
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:223AB30C7383720810604654EE01E7D063C4C767
 magnet:?xt=urn:btih:352C4D89F44C2F3AA22DEB158EF3BDED0857277A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:352C4D89F44C2F3AA22DEB158EF3BDED0857277A
 magnet:?xt=urn:btih:4A61327631627E30F1855B143699B00FD65D7B42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:4A61327631627E30F1855B143699B00FD65D7B42
 ```bash
 magnet:?xt=urn:btih:645F036C1201D48921EBFAAA80F9EC35A81A3EA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ Greech, Анастасия Гречушникова | Практический �
 magnet:?xt=urn:btih:98B68C54E80598EBFEB50EFDA8A9F1A97B6A5169
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ magnet:?xt=urn:btih:98B68C54E80598EBFEB50EFDA8A9F1A97B6A5169
 ```bash
 magnet:?xt=urn:btih:3CAF2F712CFF123B11F372A5E88E25A27AC9B2B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

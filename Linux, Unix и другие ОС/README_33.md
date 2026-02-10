@@ -19,6 +19,8 @@ SystemRescueCd — это спасательный диск в системе Li
 magnet:?xt=urn:btih:1AEBC1B8ED689ED3B67A029C8EF772C330259468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Parrot - это всемирное сообщество разработчико
 magnet:?xt=urn:btih:8B2FE746D0859FDD07033E2D19D236996BA9D07C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Debian GNU/Linux 10.9.0 + nonfree Buster [i386] 4xDVD+1xCD
 magnet:?xt=urn:btih:697F3D5EF33B82AE3B85BEDC09FC2BF45257AB92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Debian GNU/Linux 10.9.0 + nonfree Buster [amd64] 4xDVD+1xCD
 ```bash
 magnet:?xt=urn:btih:D339A5848473775F7CDA893745004E755DF6A32F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Mathlinux включает в себя большое количество (   
 magnet:?xt=urn:btih:50A83939787051C1E8827981AE3CC6C824377C2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Mageia 8 [x86-64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:808F36992824061B386216C0EA63D6ACA9E63A4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Mageia 8 [i586] 2xDVD
 magnet:?xt=urn:btih:09A64C17849D7CE5461F1082D5DA3A3D3998140C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Wifislax - это Linux-дистрибутив с набором предуст�
 ```bash
 magnet:?xt=urn:btih:DC42E2AA4AB1DDEB46675C568BF2671A1BBA6217
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Ubuntu 20.04.2.0 Focal Fossa LTS [amd64] 2xDVD
 magnet:?xt=urn:btih:702AA9A13A7CC93CD5A3DA550C0461EF54263E21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Debian Edu, также известный как Skolelinux, является д
 ```bash
 magnet:?xt=urn:btih:2B9A1BBA748FFD6A4D861B1B39D7F3265812C303
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Debian GNU/Linux 10.8.0 + nonfree Buster [i386] 4xDVD+1xCD
 magnet:?xt=urn:btih:038C00DD1E80D3A21B913A3A2E55899B5DB5BEFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Debian GNU/Linux 10.8.0 + nonfree Buster [amd64] 4xDVD+1xCD
 ```bash
 magnet:?xt=urn:btih:21B274F7BD0AF60864AA8DA7C49D04DFD69BC8B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ Ubuntu 22.04.2 LTS, KDE Plasma, [amd64] 1xDVD (март 2023) [Авторска�
 magnet:?xt=urn:btih:76466683568721AD79D739E48D582E164F102AA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ Ubuntu*Pack GNOME Like Win 18.04 (декабрь 2020) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:CAF36CC5A6BEA19F8986690510D465CE0F13C6E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Ubuntu*Pack Xfce (Xubuntu) 18.04 (декабрь 2020) [amd64, i386] 2xDVD
 magnet:?xt=urn:btih:36D6EDE3B11483FA52A5E11BB4003D0D794D42BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ Ubuntu*Pack LXDE (Lubuntu) 18.04 (февраль 2020) [amd64, i386] 2xDVD
 ```bash
 magnet:?xt=urn:btih:B947AA463D02E19C911419A5A37EC9C54F893E16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ Ubuntu*Pack KDE (Kubuntu) 18.04 (декабрь 2020) [amd64, i386] 2xDVD
 magnet:?xt=urn:btih:90026A84F0337FC9F5EBA3BB05B9F0F37C850049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ Ubuntu*Pack MATE 18.04 (декабрь 2020) [amd64, i386] 2xDVD
 ```bash
 magnet:?xt=urn:btih:7E3F9058B5479F869ADB2F04C1274E559613AA73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ Ubuntu*Pack Unity 18.04 (декабрь 2020) [amd64] 1xDVD
 magnet:?xt=urn:btih:B99B30FB270A6815E7B4470854B8355DEEEFB6FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Ubuntu*Pack Budgie 18.04 (декабрь 2020) [amd64, i386] 2xDVD
 ```bash
 magnet:?xt=urn:btih:E4E8E7514D7C1C5CC2A8B9082F3DA6BABCEE50D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ Ubuntu*Pack Cinnamon 18.04 (декабрь 2020) [amd64] 1xDVD
 magnet:?xt=urn:btih:5569F87CD3A5F718255DD1FEDAA45DC5494D21B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ Ubuntu*Pack 18.04 (декабрь 2020) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:C60FABB450C3F2D4713534B27B3FD196D014709B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ Ubuntu*Pack GNOME Flashback 18.04 (декабрь 2020) [amd64] 1xDVD
 magnet:?xt=urn:btih:65A5F45161E959BE876C15048AC7A63E73FC8726
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ Ubuntu*Pack GNOME Classic 18.04 (декабрь 2020) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:B3CB4A3627D23BDD0F1E2CB06B5FA6249CA0966E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ Ubuntu*Pack GNOME 18.04 (декабрь 2020) [amd64] 1xDVD
 magnet:?xt=urn:btih:CC7588411B1FD39B3BD35C17FD702D505B73E72E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:CC7588411B1FD39B3BD35C17FD702D505B73E72E
 ```bash
 magnet:?xt=urn:btih:652FC9FA9092EB8C7AFC9928FCF722E4DB2B5598
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

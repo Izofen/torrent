@@ -1,3 +1,32 @@
+###  Публикация: 884065   (807328) от 03.04.2015
+
+VA - In Da Club Vol.82 (2015) [MP3|320 кб/с]<Trance, Vocal Trance, Classic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_807328.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Hoyaa - Android (Original Mix)
+002. Umek & Beltek - Army Of Two (Jay Lumen Main Stage Remix)
+003. Markus Schulz & Dennis Sheperd - Go! (Original Mix)
+004. Luke Bond feat. Emel - Amaze (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Classic TranceПродолжительность: 01:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37F707CFD3E298F2C04B20878CFBF5DFD6AF6B50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119361   (807335) от 28.03.2017
 
 VA - Любимые песни шансона. Часть № 4 (2017) [MP3|256 Kbps] <Шансон>
@@ -21,6 +50,8 @@ VA - Любимые песни шансона. Часть № 4 (2017) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:FF8E1E0C8656BE5EBD86BCC14C57057A3140185F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Весенняя сотка популярных треков (2017) [MP3|2
 magnet:?xt=urn:btih:8199222E4BDD750E5B7BBEE967B44D9BBB1DE703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Philosophy Of Time: Drumm And Bass Mix (2017) [MP3|256-320 Kbps] <Drumm And
 ```bash
 magnet:?xt=urn:btih:926FB51F1B02361E27DE831FBEB41BB9602C3F63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Весенняя танцевальная вечеринка выпуск �
 magnet:?xt=urn:btih:EFD01D2B9CAD30A7B5BAEB525AD13BB382B51C31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Music News vol.1 (2020) [MP3|320 Kbps] <Pop, Soul, Hip - hop>
 ```bash
 magnet:?xt=urn:btih:03D79AF18298F065B67E15E4D83E361D022EDFC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - На волне позитива. Сборник № 7 (2017) [MP3|256 Kbps
 magnet:?xt=urn:btih:CA200F6967C83CE456FCD4564FDACD6D707FC00B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Зайцев.нет Лучшие новинки Мая 2020 [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:038E7809601FB983B4C3BFA0C2F9E4B0182C9FFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Зайцев.нет Лучшие новинки Октября (2021) [MP3|
 magnet:?xt=urn:btih:D22DE92D5C2AE4F5DC4AF9309F3A37F8B092B2EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Eagle Song Native American Music (2016) [MP3|256 кб/с] <Folk, New Age, E
 ```bash
 magnet:?xt=urn:btih:2D8463859D0C9A05EB0FD48692A67729A5BB42FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Сто процентов хитов MTV. Часть 8 (2016) [MP3|256 кб
 magnet:?xt=urn:btih:6A4CB27F8194C3FB4A1078178F6C5ED4A6222278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - 100 Пудовый Auto hit №3 Шансон (2016) [MP3|256 кб/с] <Sha
 ```bash
 magnet:?xt=urn:btih:5C1E0B3DEC5F13666A26CA4155E5376A8FD1AEAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Woodstock Rock Live (2020) 3CD [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:192EB249D52F5FE6BC29679CA0FBF1071AE99CB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - German Top 100 Single Charts 12.01.2018 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:148983CD56DF1396423258B8433D79927F20F32B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - The World Of Heavy Metal Vol.3 (2018) [MP3|320 Kbps] <Heavy Metal, Power Me
 magnet:?xt=urn:btih:7F147C0D799B680FB56BC425B4199517743122A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Synth of Waves (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Ou
 ```bash
 magnet:?xt=urn:btih:BF579238F7C805DF3FDB67B189441562C19345A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - Secret Club (2016) [MP3|320 кб/с] <Club, Electro, Progressive, Deep Hous
 magnet:?xt=urn:btih:6A009B781665DC372A2A76E924BDCBE270BD4106
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ magnet:?xt=urn:btih:6A009B781665DC372A2A76E924BDCBE270BD4106
 ```bash
 magnet:?xt=urn:btih:4C7BB1F05FA4D44997EA161322BB9D94037B1F17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ VA - Весна на шансоне 5 (2016) [MP3|256 кб/с] <Shanson>
 magnet:?xt=urn:btih:BA779FFE86833304805CC78E8065DE88C2F842DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ VA - Megalodon Bass (2016) [MP3|320 кб/с] <Drum & Bass, Dubstep>
 ```bash
 magnet:?xt=urn:btih:28BF3E576C6A38D077143DEB661CD51C172A1CEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ VA - After Midnight (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:1FA8140B313AA5342A11B712D6460268C9BB91E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ VA - Trance Maniacs Party -  Melody Of Heartbeat #162 (2016) [MP3|320 кб/с] <
 ```bash
 magnet:?xt=urn:btih:E1C72F37D97F4A8EC08227246B9E7706F32BAB10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ VA - Record Super Chart 636 (2020) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:51F8CE8FB6149519ABD3FBE4871B3B0E08894C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ VA - Sound Of Tomorrow (Mixed By DJ Flybeat) (2016) [MP3|320 кб/с] <House, Pr
 ```bash
 magnet:?xt=urn:btih:C3B57EA20F8A5D44C0794ADDA57FE6B256A6419C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ VA - Дискотека  Dance Club Vol.162 (2017) [MP3|320 Kbps] <Dance, Club, 
 magnet:?xt=urn:btih:FAFFDBEC51FAF85BD972491283F2A0E8499C1535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ VA - Blues Collection 7 (2017) [MP3|320 Kbps] <Blues Rock. Blues>
 magnet:?xt=urn:btih:BC9B4242C6FE78F69D204DF5CEC99129727C236C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119057   (808909) от 27.03.2017
-
-VA - Need For Speed Vol.4 (2017) [MP3|320 Kbps] <Dance , Mash Up>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_808909.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Madd Dave - Alpha (Original Mix) 3:38
-002. David Guetta, Cedric Gervais & Chris Willis - Would I Lie To You (Danev Bootleg) 5:30
-003. Rihanna - Diamonds 2017 (BunHeaD Dance Mix) 5:04
-004. Sweat Box - Million Reasons (Wings & Rider Remix) 5:45(   Читать дальше...   )Жанр: Dance , Mash UpПродолжительность: 07:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC20F550D132C4DC17702618D4CB4A00563FF4C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

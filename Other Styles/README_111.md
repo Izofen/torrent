@@ -28,6 +28,8 @@ Harvestman - 3 albums (2005-2010) [FLAC|Lossless] <Drone Ambient, Psychedelic Fo
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ John Adorney - 8 albums (1998 - 2014) [MP3|320 kbps]<New age, Relax, Ambient>
 magnet:?xt=urn:btih:3B9E0EC363935FBBC66BA0E17687504D9664D6DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -87,6 +91,8 @@ Acoustic Sound Orchestra - Candle In The Wind (1997) Box Set, 3CD, Compilation [
 ```bash
 magnet:?xt=urn:btih:021BFDFFED30A3B559D47B3FD99DC00C7FBB6226
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +121,8 @@ VA - # Best Relaxation Music 2019 [MP3|320 Kbps] <New Age, Relaxation>
 magnet:?xt=urn:btih:88BDFC6F0EF49BCE5E852BF12F4BAD77305D7640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +149,8 @@ VA - Green Book (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:06BD949CF6FFAAC23D34C4E734EE40F4B06A49E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +179,8 @@ VA - Kamasutra Essential Music (2013) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:62FC3C1AF312823D45A8064BDBBEDB4F50122985
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +207,8 @@ Anaya Music - Aonki: Gateway of Love (2018) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:02D0CC38211E4CDE929DA6E3C3CD8108E05BC056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +237,8 @@ Yiruma - Frame (2017) Mind Tailor Music [FLAC|Lossless|WEB-DL|tracks] <New Age, 
 magnet:?xt=urn:btih:A0CD0612E92A3E34472D39DEF5F3D904637D4AC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +265,8 @@ Theodore Shapiro and Ludwig Goransson - Central Intelligence / Полтора ш
 ```bash
 magnet:?xt=urn:btih:1222F5D90EC55DD44DFF17B7E272DA09C3DC3EF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +295,8 @@ Shastro - Lovers Night (2014) [FLAC|Lossless|tracks] <New Age, Meditative, Relax
 magnet:?xt=urn:btih:3B64F1BD011CE8B58B0B7A45998E6C73C70D1845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +323,8 @@ Silvia Nakkach - Musical Massage: Inside (2007) [FLAC|Lossless|image + .cue] <Ne
 ```bash
 magnet:?xt=urn:btih:5BB760CF3BC2070AF63BF1599D78154D6DFA9E0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +353,8 @@ VA - Народные Золотые Хиты (2002) 2CD [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:DFDA6A7D6746D05F86CC49FC54163F1AC6FDFB57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +386,8 @@ CD 1:
 magnet:?xt=urn:btih:F2D6DA298865FDEA8158215B0321BC9F60F143F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +414,8 @@ Jennifer Nettles (Дженнифер Неттлз) - That Girl (2014) Mercury Na
 ```bash
 magnet:?xt=urn:btih:49B3ED083C3CB38D20767E439DF234EF79242CC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +444,8 @@ Jennifer Nettles (Дженнифер Неттлз) - To Celebrate Christmas (201
 magnet:?xt=urn:btih:4720E4F820AB34980E023F07F2B45C131722AF17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +472,8 @@ VSOP Vienna Symphonic Orchestra Project - The 5th (Die Wiener Symphoniker Spiele
 ```bash
 magnet:?xt=urn:btih:081C44C1BF8D5649B0A27C40CDE6E17B86317389
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +502,8 @@ James Last - Jahrhundert Melodien (1982) [FLAC|Lossless|image + .cue] <Pop, Easy
 magnet:?xt=urn:btih:A1165663E6D27AEA2DD574138A609AB9962CAD25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +530,8 @@ Alex Vanderberg (Van Der Berg)  Orquestra - Music To Make Love (1991) [MP3|160 �
 ```bash
 magnet:?xt=urn:btih:EEC3ACBD1B743FB8334BCE8674E719ED7618F0DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +560,8 @@ Johnny Cash - Les Genies du Rock -  I Walk The Line (1993) [MP3|320 кб/с] <Co
 magnet:?xt=urn:btih:A3565099C48119BD8ECDCCCAC0DA9473931568CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +588,8 @@ Rupert Gregson-Williams - The Legend of Tarzan / Тарзан. Легенда (O
 ```bash
 magnet:?xt=urn:btih:CA83C134922C7BCB08D00599FBEC72AC2C640DA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +618,8 @@ Rupert Gregson-Williams - The Legend of Tarzan / Тарзан. Легенда (O
 magnet:?xt=urn:btih:D6D0963D2485CF651B7591FBA8F347692AE85917
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +647,8 @@ Theodore Shapiro and Ludwig Goransson - Central Intelligence / Полтора ш
 magnet:?xt=urn:btih:472187B36352B07299A70CCC75D8BC32F32D1A99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +675,8 @@ Alan Silvestri - Мстители: Война бесконечности / Aveng
 ```bash
 magnet:?xt=urn:btih:4F2F72D00766AF4D1FD1BAA96DBAD25BB253CAF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +708,8 @@ Alan Silvestri - Мстители: Война бесконечности / Aveng
 magnet:?xt=urn:btih:B64D4251BF0505AFAF87F1F99587FEB951F3B1C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -689,6 +737,8 @@ Heidi Breyer - Moonlight in Empty Rooms (2018) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:26965670168D6E6A75BA3FB1E5088C4A58CC51FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -715,6 +765,8 @@ Manolo Fernandez - Celtic Music Dream (2017) [MP3|320 Kbps] <New Age, Celtic>
 ```bash
 magnet:?xt=urn:btih:D829D5552DFD3DFAC0255CCEE3B4F25B8980196D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

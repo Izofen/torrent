@@ -22,6 +22,8 @@ Weber & Weber - World In Motion (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, C
 magnet:?xt=urn:btih:879CE6AA6B47536552E30F119BDD210EA341F942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Pure Dreams, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out
 ```bash
 magnet:?xt=urn:btih:08F585F60FBF598386DFDC018EC342CF605ACEFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Max Cruise - Heatwave (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave
 magnet:?xt=urn:btih:7C26ECD983FF0417F232D1131D6DBDFE22376820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Two Friends - Big Bootie Mix Vol. 24 (2024-02-15) [MP3|320 Kbps] <Dance, Electro
 ```bash
 magnet:?xt=urn:btih:1F4D45BFC22D56EBEB528C46815448537051DC7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ Armin van Buuren & Joris Voorn @ A State of Trams Rotterdam, Netherlands 2024-02
 magnet:?xt=urn:btih:447C93EAA7E9BC449F873074AEB3592EA75D90C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Allie X - 2 Albums (2020-2024) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Canadian
 ```bash
 magnet:?xt=urn:btih:DEC94E02F4BEE328F9A8A7B8079441EF08D9A024
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ Nutronic - Futures / Futures (Instrumentals) (2021) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:D2E74623E5743E3D2D30BA689ACFBAD571DFEF39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ Industrial Destruction - Indifference (2024) [FLAC 24/44.1|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:A9B14F9A3C7CFD3ED443783B2F657A9E97A050E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +255,8 @@ Jean Michel Jarre - Versailles 400 Live (2024) [FLAC|Lossless|WEB-DL|tracks] <El
 magnet:?xt=urn:btih:7743E0B236C60C951529A2593F10212B60299B2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ VA - Ancient Egypt Seasons - Akhet (2023) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:5B17840FC1C0363FD4CA4F7F8177095FBF863CD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +313,8 @@ VA - Ancient Egypt Seasons - Peret (2024) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:14C492E3926C079DFFA97BE92362FE0E201D752B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ VA - Trance Winter 2024 (2024) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:4CCFB166B4F3EC93FDC3DB670535E55B40B6DC73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +371,8 @@ Eight Seconds - Almacantar (1986) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Synth
 magnet:?xt=urn:btih:9EAE7214EB0144F88A439CC7A306FCDC7CEC4C55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +400,8 @@ VA - Tranceparent Vol. 1 (2024) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:04C52B77B0923F9BAF520DD09F62EF12A6580E78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ Eight Seconds - Big Houses (1990) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Progr
 ```bash
 magnet:?xt=urn:btih:57BF3EF5A7FF82015C2CFE1DC73323AC2F61F081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +459,8 @@ https://rampagerecordings.bandcamp.com/album/x-ray
 magnet:?xt=urn:btih:04E2E2E4108BFADC5D7BDE559AE3D83161C34544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +487,8 @@ VA - Gaming Music Chill After Hours (2024) [MP3|320 Kbps] <Dance, Club, House, E
 ```bash
 magnet:?xt=urn:btih:F46AA0F065D94C360DEC5942E970A7BA3853F6EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +517,8 @@ VA - Vocal Trance 2024 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 magnet:?xt=urn:btih:3B62E6664277D1AE95FA7FAD580B24561A615D9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +545,8 @@ Red Zone Planet - Asteria (2023) [MP3|320 Kbps] <Synthwave, Space Rock>
 ```bash
 magnet:?xt=urn:btih:F2153F3D599FF08DD9AD01FA09D0F6F0A4007FA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +575,8 @@ Smash Palace - Smash Palace (1985) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Powe
 magnet:?xt=urn:btih:636431F82C71EB3A14A2BD7BFE720B40F86A7C1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +603,8 @@ VA - Milk & Sugar Winter Sessions 2024 (2024) [MP3|320 Kbps] <House, Deep House,
 ```bash
 magnet:?xt=urn:btih:F778370704DD6342034B06C907BA9C256E1DDD1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +633,8 @@ CD1:
 magnet:?xt=urn:btih:A5C56A23ECFF289F3E84DAA4E0FE4A42937D2572
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +661,8 @@ VA (Armin Van Buuren) - A State of Trance 2024 - DESTINATION (The Official Album
 ```bash
 magnet:?xt=urn:btih:A27B5681999D0A1071BD56D23BA9DC65BCC73666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +691,8 @@ VA - Best of Chill out Sexy Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, 
 magnet:?xt=urn:btih:CB8634974D65DE9E50E1CFE71B277FA61DDC8E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +720,8 @@ Kanka + Bodewell - Stroboscope (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Synthp
 magnet:?xt=urn:btih:8363A0D02430CAD906F52F3A6368905C580A4C73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,6 +748,8 @@ Karl Bartos (ex-Kraftwerk) - The Cabinet Of Dr. Caligari (2024) [FLAC 24/44.1|Lo
 ```bash
 magnet:?xt=urn:btih:915C4351E49614E3CDF9FD0BBE50738C0EEC0835
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

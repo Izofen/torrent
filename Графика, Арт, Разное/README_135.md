@@ -1,51 +1,3 @@
-###  Публикация: 985690   (934082) от 12.02.2016
-
-Обои - Roads 12 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на тему дорогФормат: JPGРазрешение файлов: 1440x900 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1A0BB07228202812800F94F245B4CA7D4E44206
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364695   (934405) от 04.03.2020
-
-Обои - Desktop Wallpapers (4K) Ultra HD. Part (301) [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подборка красивых и качественных обоев на разные темы в (4K) Ultra HD формате.Формат: JPGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB8154F091ABAE04A067558FBFED3D20B943C142
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 628926   (934815) от 11.03.2013
 
 Рисованная графика - American illustrators 20th Century Part 3 [JPG]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:DB8154F091ABAE04A067558FBFED3D20B943C142
 ```bash
 magnet:?xt=urn:btih:0035CF94350C81DB9DF84F58736AA59D78FB44CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +45,8 @@ magnet:?xt=urn:btih:0035CF94350C81DB9DF84F58736AA59D78FB44CB
 magnet:?xt=urn:btih:2897B4066E5FF8326812885D2E292A0804BA7D79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +70,8 @@ magnet:?xt=urn:btih:2897B4066E5FF8326812885D2E292A0804BA7D79
 ```bash
 magnet:?xt=urn:btih:A64D22C447BE3DD5FDB6DFF5A1A77BD09914363D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +97,8 @@ magnet:?xt=urn:btih:A64D22C447BE3DD5FDB6DFF5A1A77BD09914363D
 magnet:?xt=urn:btih:AE441369E173EE0E220A8BA9A3B334A5A78CFFDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +122,8 @@ magnet:?xt=urn:btih:AE441369E173EE0E220A8BA9A3B334A5A78CFFDF
 ```bash
 magnet:?xt=urn:btih:8AC31446055160713163161607B2E31DCA61784B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +149,8 @@ magnet:?xt=urn:btih:8AC31446055160713163161607B2E31DCA61784B
 magnet:?xt=urn:btih:26AB550D8B84C1A142F8BB5CD1811A4FE9877523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +174,8 @@ magnet:?xt=urn:btih:26AB550D8B84C1A142F8BB5CD1811A4FE9877523
 ```bash
 magnet:?xt=urn:btih:4CF2F5262B1C9CDA6E4397A27B9A0AFCC6AEFCA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +201,8 @@ magnet:?xt=urn:btih:4CF2F5262B1C9CDA6E4397A27B9A0AFCC6AEFCA2
 magnet:?xt=urn:btih:61E0289F1B23B3532E0D2D6E6C332A92DF3AD9F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +226,8 @@ magnet:?xt=urn:btih:61E0289F1B23B3532E0D2D6E6C332A92DF3AD9F3
 ```bash
 magnet:?xt=urn:btih:AF2036F58D30D9031D2DCDA6790BDDA3B8241829
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +253,8 @@ magnet:?xt=urn:btih:AF2036F58D30D9031D2DCDA6790BDDA3B8241829
 magnet:?xt=urn:btih:B3D52E93431F9B4281A96ADEB8930FFDE8E085FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +278,8 @@ magnet:?xt=urn:btih:B3D52E93431F9B4281A96ADEB8930FFDE8E085FB
 ```bash
 magnet:?xt=urn:btih:0ABFF075AAE33D98B37CC76698BE78E684C306D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +305,8 @@ magnet:?xt=urn:btih:0ABFF075AAE33D98B37CC76698BE78E684C306D2
 magnet:?xt=urn:btih:AF12A7E1264DD8CB860E348FDB38E8A386F79C38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +330,8 @@ magnet:?xt=urn:btih:AF12A7E1264DD8CB860E348FDB38E8A386F79C38
 ```bash
 magnet:?xt=urn:btih:62E79BA8FFCFA2EA5CD5F4ABE23F2BAD33D4C03B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +357,8 @@ magnet:?xt=urn:btih:62E79BA8FFCFA2EA5CD5F4ABE23F2BAD33D4C03B
 magnet:?xt=urn:btih:E46AD7865E01B9432E9E69E8D690B968A898681D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +382,8 @@ magnet:?xt=urn:btih:E46AD7865E01B9432E9E69E8D690B968A898681D
 ```bash
 magnet:?xt=urn:btih:616EE304A3210517F968068F8A9650A31BE8EFA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +409,8 @@ magnet:?xt=urn:btih:616EE304A3210517F968068F8A9650A31BE8EFA3
 magnet:?xt=urn:btih:8342B113908EDC172E9071B3131B62D261E2006C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +434,8 @@ magnet:?xt=urn:btih:8342B113908EDC172E9071B3131B62D261E2006C
 ```bash
 magnet:?xt=urn:btih:D20B1A03F637E8D1B0393D157D4C21728FA13F98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +461,8 @@ magnet:?xt=urn:btih:D20B1A03F637E8D1B0393D157D4C21728FA13F98
 magnet:?xt=urn:btih:4C935B5811EE787407DB856A699055F4C215005F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +486,8 @@ magnet:?xt=urn:btih:4C935B5811EE787407DB856A699055F4C215005F
 ```bash
 magnet:?xt=urn:btih:27333C9B3E4320BFB6B3F59774F25512D4319D7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +513,8 @@ magnet:?xt=urn:btih:27333C9B3E4320BFB6B3F59774F25512D4319D7F
 magnet:?xt=urn:btih:7737C4DFE8A7AB45A471183F57B1979A2A85CC97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +538,8 @@ magnet:?xt=urn:btih:7737C4DFE8A7AB45A471183F57B1979A2A85CC97
 ```bash
 magnet:?xt=urn:btih:99623DAA8FCE8776C4B2A5AF7BEE5E6B34D62A72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +565,8 @@ magnet:?xt=urn:btih:99623DAA8FCE8776C4B2A5AF7BEE5E6B34D62A72
 magnet:?xt=urn:btih:F917A2CC6AC9DF7040989A6723F69C406B4E04E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +591,8 @@ magnet:?xt=urn:btih:F917A2CC6AC9DF7040989A6723F69C406B4E04E6
 magnet:?xt=urn:btih:ED16A1270B60092CE54AA0997839C3F65BFFDE19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +616,61 @@ magnet:?xt=urn:btih:ED16A1270B60092CE54AA0997839C3F65BFFDE19
 ```bash
 magnet:?xt=urn:btih:09542E479384A3261F0D9825D9EE101390930FFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984801   (937005) от 10.02.2016
+
+Обои - Сборник обоев. Природа. Часть 11. 1920x1080 - 150 шт [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая подборка качественных обоев на тему природы для вашего рабочего стола.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB6BB699AD6E49720E587734BD37F6EAFFE73F98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985160   (937008) от 10.02.2016
+
+Обои - LIFEstyle News MiXture Images. Wallpapers Part 910 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Довольно известная серия в сети качественных обоев на различную тематику для Вашего рабочего стола.
+В данный пак вошел выпуск 910.Формат: JPGРазрешение файлов: 1680x1050 - 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3F1016C631507F7B62673E67C4FFF341AC8FBB
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

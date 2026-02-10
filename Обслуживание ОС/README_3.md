@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:CB372700D381D8FE33ABCDD9822D5115FFEA0571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:D246A12EDAC9BC7D7641FEB290B0397CDF9ED5BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Files Inspector Pro 4.30 [Multi/Ru]
 magnet:?xt=urn:btih:C5F69CE0551DDCBFCBEB5F347AA7389CDC88D972
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ FolderSizes 9.7.522 Enterprise [En]
 ```bash
 magnet:?xt=urn:btih:A44FF8F42C8BDA5B4F7D9F5C3F8D3A5ADFD6E281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ XtraTools — это универсальный инструмент для оп
 magnet:?xt=urn:btih:725F5AB71B47D99BAA0E3D838B87904AD4A09465
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Red Button – это мощная утилита для оптимизации 
 ```bash
 magnet:?xt=urn:btih:03AF48370A1B98374F3082E9E8DA0B3E86C08E87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Duplicate Cleaner - мощный и профессиональный инстр�
 magnet:?xt=urn:btih:087927317E6F8AD8C9CFB4B407DB9BDCD50CA641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:1EE8D6D028827AEB3068429CB701873711954ADE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Duplicate Cleaner выполнит глубокое сканирование в�
 magnet:?xt=urn:btih:B79967943E8F376F7BCCE8A2AAD39424062D0885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:E88795B032475675862FFA0F8267EDD1EC314CD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ WinTools.net – набор инструментов для оптимизаци
 magnet:?xt=urn:btih:BF7C5E93BEBB4539224051018FB423DB396FDF67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Revo Uninstaller Pro 5.3.7 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:470625C2CE54E92DA592D4F4C9AAF1F2E4367192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Windows Repair Toolbox — графическая оболочка пакета 
 ```bash
 magnet:?xt=urn:btih:4B712AC4E3D60BD88491BABF92179F2EDFC2B878
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ WSCC (Windows System Control Center) - портативная программа
 magnet:?xt=urn:btih:2052D66B8670D196D5125E2D256124C0033B75F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Wise Program Uninstaller 3.2.3.266 RePack (& portable) by elchupacabra [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:E55F860789A1C354852D0F171433F544CBA29C4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Wise Registry Cleaner - утилита для безопасной чистки 
 magnet:?xt=urn:btih:F8BFB3ADE6F8F4391F347A050C3F31D5FAEDBF0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Advanced SystemCare PRO - это мощный пакет для оптимиза
 ```bash
 magnet:?xt=urn:btih:8E2465EB595BA0226EA027D505F921FDDCB214C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ WindowManager - программа от разработчиков EarthView и 
 magnet:?xt=urn:btih:08FF57622E1F52D25CDA12C91884A5112282DF1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Driver Store Explorer — это легкий инструмент, которы
 magnet:?xt=urn:btih:4A9F906061F9F52550D8C2FD2ACF485015F489DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:596C1A955B7CF311B7C1718C91D275ADD4246FD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:4F1709AFDFB669483F0F83FBD41286AEDE645754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ RegCool 2.040 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:33A73879AA3933352B703EEF571007D2C47495EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Auslogics Driver Updater – программа представляющая с�
 magnet:?xt=urn:btih:D5CFB430DE6E46DC3D258E149421AC1551FFBACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Macrorit Data Wiper Unlimited Edition – мощная утилита, кото�
 ```bash
 magnet:?xt=urn:btih:6323964A4D448900D039EF2BF3F77A36E47F639E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Duplicate File Finder Pro 2500 [Multi/Ru]
 magnet:?xt=urn:btih:088E0E65A36A39982BFE3E8A9CE91423D2A187FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Revo Uninstaller Pro 5.3.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DE79543948C8AB92FAD4C76F0E79EAEA00B10418
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

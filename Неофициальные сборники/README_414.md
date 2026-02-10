@@ -1,3 +1,32 @@
+###  Публикация: 1291235   (670493) от 24.03.2019
+
+VA - Сегодня на радио хиты FM Vol.5 (2019) [MP3|256 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chainsmokers, 5 Seconds Of Summer - Who Do You Love (3:46)
+02. A Boogie wit da Hoodie, Olexesh - Look Back At It (2:58)
+03. Aaron Smith - Dancin (3:18)
+04. Achtabahn - Boten Anna (2:50)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:397DCE8B5022E166BFA34DF6CBF993759EF60584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 509419   (670554) от 14.06.2012
 
 VA - Dubstep Top 2012 (February) (2012) [MP3|256 kbps] <Dubstep>
@@ -28,6 +57,8 @@ VA - Dubstep Top 2012 (February) (2012) [MP3|256 kbps] <Dubstep>
 magnet:?xt=urn:btih:6144B894E6E6244CFE1877F7F1CBBB19051E3E96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +85,8 @@ VA - Radio DFM: Top D-Chart Март 2019 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:6AA2FB477FD41F8A01938A3C7115E7F90D0942E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +115,8 @@ VA - Top 50 Official Dance Charts 22.03.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:302E0CE8D76CE25856AC8AFF41BE75ED48F337C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +143,8 @@ VA - 90's One Hit Wonders (2022) [MP3|320 Kbps] <Pop, Dance, Rock>
 ```bash
 magnet:?xt=urn:btih:0F5AFD4E3304F05BC44384984051CCE96EC60E47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +173,8 @@ VA - 80's One Hit Wonders (2022) [MP3|320 Kbps] <Pop, Dance, Rock>
 magnet:?xt=urn:btih:50AB202CFECC97E9502CEDBE06698DDF41FEEDC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +201,8 @@ VA - Blaze: Rap & Hip Review (2022) [MP3|320 Kbps] <Hip Hop, Rap>
 ```bash
 magnet:?xt=urn:btih:E9DA2D2E650F64BFDC7EB47D2C3CD11EC6383755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ VA - Deluxe Clubbing House (2022) [MP3|320 Kbps] <Tech House, Dance, Club, Elect
 magnet:?xt=urn:btih:2129877DB23C6E5AF5EBB4CD52CF74DAC12CE702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +259,8 @@ VA - Зажигательный Eurodance vol.4 (2017) [MP3|192-320 Kbps] <Eurod
 ```bash
 magnet:?xt=urn:btih:4AA89ABF619363203A7723FEF7AA9D4536481FB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +295,8 @@ VA - Самые горячие новинки этого года Vol.2 (2012) [
 magnet:?xt=urn:btih:318FA5E937883C3FB5C23DA9B2386C0680CB433B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +330,8 @@ VA - Летний Музыкальный Кураж (2012) [MP3|256 кб/с]<Pop
 magnet:?xt=urn:btih:DAAA0DD6CB3640AB204060A2E231B460E8006C83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +358,8 @@ VA - Stardust 02: Vocal Trance Mixed (2022) [MP3|320 Kbps] <Vocal Trance, Dance,
 ```bash
 magnet:?xt=urn:btih:91E52CDE99E6BB087134C3A3C3D72F831583D9B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +388,8 @@ VA - Stardust 01: Vocal House Mixed (2022) [MP3|320 Kbps] <Vocal House, Dance, E
 magnet:?xt=urn:btih:B54B61ECC335B6D66AB809469EFE205420AB937C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +416,8 @@ VA - Stardust 03: Pop Dance Mixed (2022) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:D575D9D48A6D08E51211C1BDF9DE2B9C68F06F05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +452,8 @@ VA - Русские Новинки Vol.58 (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:41F84092B5DB45C1FB83063F47074A9B08159E2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +480,8 @@ magnet:?xt=urn:btih:41F84092B5DB45C1FB83063F47074A9B08159E2D
 ```bash
 magnet:?xt=urn:btih:112C8CF9A4201D9F3868C869FB2E7034609FACFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +510,8 @@ Psy Trance – это музыкальная интерпретация чист
 magnet:?xt=urn:btih:0EFECE18880F574CC5D9D7219EBEF545F62D4FCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +538,8 @@ VA - The Haunted Palace: Modern Progressive Rock (2022) [MP3|320 Kbps] <Progress
 ```bash
 magnet:?xt=urn:btih:0395C392AA5ACC1872F28BD3B39E7834D0A3C62A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +572,8 @@ VA - Зарубежные Новинки Vol.56 (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:33D7BEF8DAE29E53707A3092350F4C3E58352B71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +600,8 @@ VA - Synthetic  vol.6 (2017) [MP3|320 Kbps] <Synth Pop, EBM, Dark Electro>
 ```bash
 magnet:?xt=urn:btih:353444CBAA299D44C22CDE20027FB91610424AC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +630,8 @@ VA - Вспоминая прошлое... Рок коктейль 70-х (зар�
 magnet:?xt=urn:btih:CB061B0DA9EC15F92DEA93B1BD99151AB106445F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +658,8 @@ VA - Retro Mania 80s Disco Funky (2018) [MP3|320 Kbps] <Pop, Disco, Funky>
 ```bash
 magnet:?xt=urn:btih:ADD942659E94DB8E844B64D613C530F6C42A8DC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +688,8 @@ VA - Italo-Disco Instrumental Hits (2018) [MP3|320 Kbps] <Disco, Instrumental>
 magnet:?xt=urn:btih:2EA50778295F1F2B4E493AF5D00035C0425912A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +716,8 @@ VA - Popular Italian Disco Classic (2018) [MP3|320 Kbps] <Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:D132DD14EF18F3399B9582ED665E57CC588EEAF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,6 +746,8 @@ VA - ЕвроХит Топ 40 Europa Plus 04.05.2018 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:421B7DF80B7EE02F321FA2B96B9DA87577754529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,32 +775,7 @@ VA - Music For Sports Games: April Edition (2018) [MP3|320 Kbps] <Electro House,
 magnet:?xt=urn:btih:A08DD365D86E801882F54EA00A571A8B2AB46007
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223792   (671527) от 06.05.2018
-
-VA - Remember American Blues And Country (2018) [MP3|320 Kbps] <Blues, Country, Folk>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671527.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Justin Townes Earle - Champagne Corolla
-002. Kris Kristofferson & Willie Nelson - Forever I Still Miss Someone
-003. Florida Georgia Line - Smooth
-004. Ruston Kelly & Kacey Musgraves - To June This Morning(   Читать дальше...   )Жанр: Blues, Country, FolkПродолжительность: 07:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D697456D3A3AE311CB9AC93FBF163A6A5227A4E2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

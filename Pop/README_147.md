@@ -1,3 +1,148 @@
+###  Публикация: 952230   (358822) от 31.10.2015
+
+Vangoffey - Take Your Jacket Off & Get Into It (2015) [OGG| 489-542 кб/с]<Classic Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Race Of Life
+02. Trials Of A Modern Man
+03. Sucker
+04. Episode(   Читать дальше...   )Жанр: Classic Pop RockПродолжительность: 00:30:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA4EA5E19D20BDBEB53B379E33F613B762022393
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256083   (359035) от 20.10.2018
+
+VA - Ballermann Hits Party 2019 (XXL Fan Edition) (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Draufgänger - Cordula Grün
+02. Mickie Krause - Reiss die Hütte ab! (Chirpy Chirpy Cheep Cheep) (Version 2018)
+03. Lorenz Büffel - Beate, die Harte
+04. Almklausi & Specktakel - Mama Laudaaa (Harris & Ford Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9A8E0C4C5ED964F2CE08EB2EBD65011AE650CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256085   (359036) от 20.10.2018
+
+VA - Best Of 2018 - Die Hits Des Jahres (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gigi D'Agostino & Dynoro - In My Mind
+02. El Profesor - Bella ciao (HUGEL Remix)
+03. Maroon 5 - Girls Like You
+04. Felix Jaehn - Jennie(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DF2EA0E5303A7836912C2BA6B90664EDAC79827
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221773   (359060) от 02.10.2019
+
+Karel Gott - 42 Nejvetsich Hitu (1991) 2CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Vocal, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oči Sněhem Zaváté
+02. Pár Havraních Copánků (Love Me Tender)
+03. Tam, Kam Chodí Vítr Spát
+04. Cesta Rájem (Crying In The Chapel)(   Читать дальше...   )Жанр: Pop, Vocal, SchlagerПродолжительность: 02:17:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FCB252B68A0B3CCC20BAAACF637B52ABAED8CBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328990   (359065) от 02.10.2019
+
+Mozzart - Devil's Randezvous: Greatest Hits & More (2019) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_359065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money (Maxi Version)
+02. Jasmin China Girl (Maxi Version)
+03. Devil's Rendezvous (12" Version)
+04. Malice & Vice (12" Version)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6376B51BDCC63B9EF1680C255DB895A0A0400238
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 831263   (359067) от 02.10.2019
 
 Karel Gott - Music History (2001) [MP3|192 кб/с]<Pop, Euro-Pop, Vocal Pop>
@@ -21,6 +166,8 @@ Karel Gott - Music History (2001) [MP3|192 кб/с]<Pop, Euro-Pop, Vocal Pop>
 ```bash
 magnet:?xt=urn:btih:237540E5549E1B75F3055752A457194A64FD1D99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +195,8 @@ magnet:?xt=urn:btih:237540E5549E1B75F3055752A457194A64FD1D99
 ```bash
 magnet:?xt=urn:btih:D71C8DD03C98C050C8A857376D736BB6EC5D41D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +231,8 @@ VA - Best Italo Disco Hits Remixed (3CD) (2007) [MP3|320 kbps]<Dance, Italo-Disc
 magnet:?xt=urn:btih:A64F012E6749569712779B3779F46C438509227F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -109,6 +260,8 @@ Pandora (Anneli Magnusson) - Шведская певица, её Професс�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +296,8 @@ Al Bano & Romina Power - Vincerai (Their Greatest Hits) (1991) [FLAC|Lossless]<I
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +324,8 @@ Eros Ramazzotti - 9 (2003) [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:39D4913E3E6EBB34DFDEB13108C743F12B65DA93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +354,8 @@ VA - KuschelRock 31 (2017) [FLAC|Lossless|WEB-DL|tracks] <Ballad, Pop, Rock, R&B
 magnet:?xt=urn:btih:885B4C32CF71853EA14012369BBE47A3E6968501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +383,8 @@ Dschinghis Khan - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
 magnet:?xt=urn:btih:E396A52E8EE8CCC0CB26D4B4271B9146B8A76927
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +408,8 @@ Collage - Raccolta Di Successi (1995) [FLAC|Lossless]<Italo-pop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +438,8 @@ VA - Atlantic Rock & Roll Series (2017) 6CD [MP3|320 Kbps] <Pop, Rock>
 magnet:?xt=urn:btih:94C4A3837DE82627979E2183FD71D58C73060CF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +466,8 @@ Eros Ramazzotti - Battito Infinito (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:D46A7B9E6E062A656335B7CB11F6ACABE655C16C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +496,8 @@ La Bouche - Sweet Dreams (1995) [OGG Vorbis|484 Kbps] <Electronic, Euro House, E
 magnet:?xt=urn:btih:D02E0022D4733B9397A95418EA90C098A736A881
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +524,8 @@ Cerrone - Red Lips (2016) [FLAC|Lossless|image + .cue] <Disco>
 ```bash
 magnet:?xt=urn:btih:3803E1218A479251AFD52B91748DDC100074C27A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +554,8 @@ Julian Lennon - Jude (2022) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 magnet:?xt=urn:btih:E3A52D665880424FAB385C2D6B0F2B35921FE1B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +583,8 @@ Saint Tropez - 4 Albums (1977-1982) LP [MP3|320 Kbps] <Funk Soul, Disco, Erotic-
 magnet:?xt=urn:btih:0C70FF4361EB81F55008A17890ABC14C472E0F7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +610,8 @@ magnet:?xt=urn:btih:0C70FF4361EB81F55008A17890ABC14C472E0F7C
 ```bash
 magnet:?xt=urn:btih:E85C575464C885EEA04203E9B1B973F9FAF812C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +640,8 @@ Video Kids - The Invasion Of The Spacepeckers (1995) Unofficial Release [FLAC|im
 magnet:?xt=urn:btih:97F8AB092056A3EB14BF6C25FE0772F31D5B5E84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +668,8 @@ magnet:?xt=urn:btih:97F8AB092056A3EB14BF6C25FE0772F31D5B5E84
 ```bash
 magnet:?xt=urn:btih:10F292B6DD04C13100408EB7D3A41195E200FBFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +698,8 @@ magnet:?xt=urn:btih:10F292B6DD04C13100408EB7D3A41195E200FBFD
 magnet:?xt=urn:btih:6A391C7DC68FFF2A8BC6DBDB99B5C9BD7FF9D4ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +726,8 @@ Haddaway - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
 ```bash
 magnet:?xt=urn:btih:FC9C1F3C66A2213A34AE24EE6513C25A31B19F11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,140 +762,7 @@ Susan Boyle - Standing Ovation: The Greatest Songs From The Stage (2012) [MP3|32
 magnet:?xt=urn:btih:D62C629EC6E4BDECE12AE8A065FBF7C70A733644
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950898   (363079) от 29.10.2015
-
-Arabesque - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friday Night (04:16)
-02. In For A Penny, In For A Pound (03:01)
-03. Hello Mr. Monkey (03:28)
-04. Billy's Barbeque (02:49)(   Читать дальше...   )Жанр: Pop, Disco, RetroПродолжительность: 01:19:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D5CF5CAC5E47CE03FDB92C74A8CD0398287DAEF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328066   (363112) от 30.09.2019
-
-Adriano Celentano - Adrian (2019) 2CD [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Want To Know (Remixed by Benny Benassi)[3:46]
- 02 - Prisencolinensinainciusol (Remixed by Benny Benassi)[4:09]
- 03 - Ti Penso E Cambia Il Mondo[4:22]
- 04 - Storia D'amore[4:55](   Читать дальше...   )Жанр: PopПродолжительность: 01:37:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFE4B04F53A55E3B4A25A4BD0FA2B90AE9273E39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177278   (363142) от 25.10.2017
-
-Zola Jesus - Okovi (2017) [FLAC|Lossless|tracks + .cue] <Indie Pop, Experimental, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doma (2:15)
-02. Exhumed (3:45)
-03. Soak (3:57)
-04. Ash To Bone (2:07)(   Читать дальше...   )Производство: Sacred Bones Records – SBR184CDЖанр: Indie Pop, Experimental, ElectronicПродолжительность: 00:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B26D659D42103ECCD0DA2260D53D73ACB3E93631
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177595   (363147) от 25.10.2017
-
-The Trammps - Disco Inferno (2010) CD, Compilation [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Disco Inferno (3:39)
-02. Hold Back The Night (3:17)
-03. Didn't I (Blow Your Mind This Time) (3:34)
-04. That's Where The Happy People Go (3:20)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ACBFE62B6FBF24914BCFF1EEB0CBB79AA048A0A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950989   (363302) от 29.10.2015
-
-Desireless - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voyage, Voyage (04:18)
-02. Qul Sommers-Nous (04:23)
-03. Ou Aller (04:10)
-04. Je Crois En Toi (04:14)(   Читать дальше...   )Жанр: Pop, Disco, RetroПродолжительность: 01:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B166A6B23F99172E4BAB7C4B13D97F3F7C150521
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

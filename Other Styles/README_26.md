@@ -22,6 +22,8 @@ VA - Мурка•Блатные и уличные песни (2000) [MP3|320 Kb
 magnet:?xt=urn:btih:A6ECF87EBB191F662F31922CFFDCA38A00E92C6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Atomic Heart, Vol.3 (2023) [MP3|320 Kbps] <OST>
 ```bash
 magnet:?xt=urn:btih:C4B6CE5E18A6C31939FBC2FB8653F4B04189D900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:C4B6CE5E18A6C31939FBC2FB8653F4B04189D900
 magnet:?xt=urn:btih:F29DBDDD2BC9603B7BF6E6409B93C7C52D952043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Atomic Heart, Vol.2 (Original Game Soundtrack) (2023) [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:4FE96DB97F3A20878711581EA8E44FCBA1FE700F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Atomic Heart, Vol.2 (2023) [MP3|320 Kbps] <OST>
 magnet:?xt=urn:btih:55ABE762F6CB633D33D79B7D2A7D742111BCE6AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Jean-Michel Jarre - Oxygene Trilogy (2016) [FLAC|Lossless|WEB-DL|tracks|image] <
 ```bash
 magnet:?xt=urn:btih:9608D0F67DA7502765692DAE71D60862A3057976
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Ry Cooder - Crossroads (1986) [FLAC|Lossless|image + .cue] <Blues, OST>
 magnet:?xt=urn:btih:A03E39E0473545B7358EB2D7FF74A96CD8F50D2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Iron Horse - 2 альбома (2001-2005) [MP3|320 кб/с]<Bluegrass, Country>
 ```bash
 magnet:?xt=urn:btih:78A1501E539B730D978B09A1CFAA8CAA92E67B2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ The Church Organ All Stars - Best of the Church Pipe Organ and the Hammond B-3 O
 magnet:?xt=urn:btih:8522404EAD80481930A506078661B402B07A23C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Ricardo - Klangschalen-Musik (2009) [FLAC|Lossless|tracks + .cue] <Meditative, T
 ```bash
 magnet:?xt=urn:btih:97CE5CE60AA9CBF2991DD54FD22C1BE1E0DFA3D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Enigma - The Platinum Collection (2009) [FLAC|Lossless|tracks + .cue] <New Age>
 magnet:?xt=urn:btih:65B2B2433555787882EF95C3CD2DF6E80CD511F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:65B2B2433555787882EF95C3CD2DF6E80CD511F3
 ```bash
 magnet:?xt=urn:btih:41B1E3493BFDE0843EAA36BB474D5448DDEC15D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:41B1E3493BFDE0843EAA36BB474D5448DDEC15D2
 magnet:?xt=urn:btih:2DB372F501036D2054F8615DBF622B2DD3160429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ The Sri Chinmoy Bhajan Singers (Шри Чинмой) - Sing (2008) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:9AEDF6AF471968CE77AAF4174F3C4FBE723B9EC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Fausto Papetti - Exitos De Fausto Papetti (2022) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:D803627E089CD3DC3290DAFFEDF1822A887EDAD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Jed Kurzel  - Alien: Covenant  / Чужой: Завет (2017) [MP3|320 Kbps] <S
 ```bash
 magnet:?xt=urn:btih:188E57A988EAD438F3F8F37D8EA2050BBC4583DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Enigma-Forest-Transit 11 (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient,
 magnet:?xt=urn:btih:BDB2BA028EFCBE7A68CDB7BE8EC7D1883BF57DAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Enigma-Forest-Transit 7 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 ```bash
 magnet:?xt=urn:btih:5FB68E96C161301F88F836CE2358C6AEFBB03684
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Enigma-Forest-Transit 8 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, 
 magnet:?xt=urn:btih:643C356C426BD6FA1EC842B0C156974523C87A32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:09FA73874B1BDCFCEFC86DBB7C81A1B591DEBB9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Paul Mauriat - The Russian Album (1993) [FLAC 24/192|Lossless|WEB-DL|tracks] <In
 magnet:?xt=urn:btih:806BEF6CC9D6F80BDE32E662555C01606E1E2342
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Francis Goya & Norman Candler Magic Strings - More Than Ever (Remastered) (2024)
 ```bash
 magnet:?xt=urn:btih:7F8314741228500E214732DC9A4A34D9A26948DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Otyken - Дискография (2018-2023) 7 релизов  [MP3|320 Kbps] <Et
 magnet:?xt=urn:btih:21FF610879D7B34F2CAF95B2B84AD0C56913D3B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Ah Nee Mah - Sacred Nation (2017) [FLAC|Lossless|tracks + .cue] <New Age, Native
 ```bash
 magnet:?xt=urn:btih:EC77C7C647A5C15F4F5C395D314217BF7EEA6191
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ VA - Atomic Heart - Vol.1 (2023) [FLAC|Lossless|tracks] <OST>
 magnet:?xt=urn:btih:552DE5E3059BCCB6967A79E39E1C696B2074A45B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Paul Mauriat - Le grand orchestre de Paul Mauriat - Volume 5 (1967) [FLAC 24/96|
 ```bash
 magnet:?xt=urn:btih:688D9021DD3B4048384F59AD8A57A585009307B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

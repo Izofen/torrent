@@ -22,6 +22,8 @@ VA - Dance Charge Of The Night (2026) [MP3|320 Kbps] <Club, Dance, House>
 magnet:?xt=urn:btih:6D252A57C3518BFACE3587957C88E51DB3882A99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Island Grooves: Chillout Your Mind (2026) [FLAC|Lossless|WEB-DL|tracks] <Ba
 ```bash
 magnet:?xt=urn:btih:66D8A451DAA178E613BA8492AE558AA439E0507E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ T-4-2 - ReSynth (2026) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Futurepop, Retro
 magnet:?xt=urn:btih:064D409D79C39D8350E71B5C12C504607C3393B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - The Orient Collective: Golden Horizon (2026) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:91D99C79CC17AA765E8CE25882856ED8B6EF9EFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Ravens and Roses - Super (2025) [MP3|320 Kbps] <synthpop, post-punk>
 magnet:?xt=urn:btih:0A3706D95489A377089A8331558DC976CC11C2D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Redux Selection, Vol. 2 / 2026 (2026) [MP3|320 Kbps] <Trance, Uplifting Tra
 ```bash
 magnet:?xt=urn:btih:C394494F0EA76AB3108FCA4B332C6CBC8918A66A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Unfiltered Special
 magnet:?xt=urn:btih:6D988B77448DC473CC4F20DB8CA80D96D0EA60AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Ori Uplift - Uplifting Only Episode 677 (2026) [MP3|320 Kbps] <Trance, Upli
 ```bash
 magnet:?xt=urn:btih:48561483CCE8642564F141017C7671E776CA2B57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Infected Mushroom - IM30 (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Psy-Trance,
 magnet:?xt=urn:btih:A1B4B8D892CFEB1670BFB16BF921BAA4A574DC59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ GARRISON (Игорь Савосин) - The Best (2025) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:69DBD016F72EB70F8AC0408D751855BA45A17209
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ GARRISON (Игорь Савосин) - Sound Vibrations (2023) [FLAC|Lossless|WE
 magnet:?xt=urn:btih:2E662AC5021A9CEA96E8139F4B6D573788B1DB3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ GARRISON (Игорь Савосин) - Sounds and Images (2024) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:26248F895433B3E6C965D9038BC0B40390EE14E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ GARRISON (Игорь Савосин) - Atmospheric (2026) [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:8F085BA099F385B54BA2CDA1EFBAD34FD390C58D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ GARRISON (Игорь Савосин) - Best Relax Music (2023) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:4BA1A08BF7383C0E1E5D7887FAF3A5C388D3AC50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Cold in May - Vanished Without Trace (Пропавшие без вести) (202
 magnet:?xt=urn:btih:701D751A95B7FEE292F846103C0F135D826F7200
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - The Orient Collective: Celestial Dunes (2026) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:2634BE885ECF8275C63E7741585616C5FA0BEC07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Cyberman - Hyperlight Transmission (2026) [FLAC|Lossless|WEB-DL|tracks] <Spacesy
 magnet:?xt=urn:btih:9B929C6687A20FA0999A6C5D95ABD4063C78F21A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Code Elektro - Seven Dunes (2026) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Futur
 ```bash
 magnet:?xt=urn:btih:EAC86AF1F50F401B3EAD40BBEF1BC931F3539D05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Unkonscious Festival 2026 (2026) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:2377D837D16E373A7D70615E42B8B0B14DF434A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Waves Of Synth - Volume 2 (2018) [FLAC 24/48, 16/44,1|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:1E478F1C6F3E348080E39C5A515063C709E24A44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Waves Of Synth - Volume 1 (2018) [FLAC 24/48|Lossless|WEB-DL|tracks] <Synth
 magnet:?xt=urn:btih:C18BC04E94F372EEF02A74907C8715BBA7B1095F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ VA - Micro Sound Spring Session 2026 (2026) [MP3|320 Kbps] <House, Deep House, D
 ```bash
 magnet:?xt=urn:btih:D8DA9BE11382F21D32ECCFE0EE190B061B741C39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ VA - Trance Party 2026 (2026) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:F3E7ABF95FDF92183684F35500F00782912382EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ VA - Lounge Hits 2026 (Deep Strips) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 ```bash
 magnet:?xt=urn:btih:D09E303ED80ACC20105A6500A7F8219111B00FC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Enduser - Unquiet (2026) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum'n'Bass, IDM
 magnet:?xt=urn:btih:5DD85EFD1DED582582DB00234CF0A0006FC2DBF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ VA - Selected Trance Music 2026 (2026) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:A98FD3076EDE593AC300658AABEFD7106F7EA79F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

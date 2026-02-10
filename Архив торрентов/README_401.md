@@ -28,6 +28,8 @@ Deep Purple - Fireball (1971) 25th Anniversary Edition / 1996, EMI Records/ [FLA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Deep Purple - Fireball (1971) 25th Anniversary Edition / 1996, EMI Records/ [FLA
 magnet:?xt=urn:btih:A666EE6A6C5FF8DBE5F30858D5FBA721B4163EB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:A666EE6A6C5FF8DBE5F30858D5FBA721B4163EB7
 ```bash
 magnet:?xt=urn:btih:7DBACDD69EAEDD88D63BB8DA37E907BC404DDB68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ magnet:?xt=urn:btih:7DBACDD69EAEDD88D63BB8DA37E907BC404DDB68
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +149,8 @@ Annihilation - Decimation (2012) [MP3|192 kbps]<Old School Death Metal>
 magnet:?xt=urn:btih:59A4AB7A25FDB252061568448630EBE79FBE359C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +174,8 @@ magnet:?xt=urn:btih:59A4AB7A25FDB252061568448630EBE79FBE359C
 ```bash
 magnet:?xt=urn:btih:354B711AD4BC4FAD177F3734D87973BDD2AEA4E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ magnet:?xt=urn:btih:354B711AD4BC4FAD177F3734D87973BDD2AEA4E7
 magnet:?xt=urn:btih:A4A9861E168F3FC27F76DAA2F14DA3520A82D2F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +227,8 @@ magnet:?xt=urn:btih:A4A9861E168F3FC27F76DAA2F14DA3520A82D2F3
 ```bash
 magnet:?xt=urn:btih:611F6E5FBB6384D65F2B277278F4CBAC7698AF7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:611F6E5FBB6384D65F2B277278F4CBAC7698AF7D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ magnet:?xt=urn:btih:611F6E5FBB6384D65F2B277278F4CBAC7698AF7D
 ```bash
 magnet:?xt=urn:btih:C9E9F06B784131D7E49CFD7A16D3C50A57317EE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +310,8 @@ Youtube Downloader HD - бесплатная и предельно проста�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +336,8 @@ Youtube Downloader HD - бесплатная и предельно проста�
 magnet:?xt=urn:btih:B89956AA9F6F33EADFBB16860A1612DC6EA4A70F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +361,8 @@ magnet:?xt=urn:btih:B89956AA9F6F33EADFBB16860A1612DC6EA4A70F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +390,8 @@ magnet:?xt=urn:btih:B89956AA9F6F33EADFBB16860A1612DC6EA4A70F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ magnet:?xt=urn:btih:B89956AA9F6F33EADFBB16860A1612DC6EA4A70F
 ```bash
 magnet:?xt=urn:btih:3978E69B84527324B23EBE8F82FDA6613066D795
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +446,8 @@ magnet:?xt=urn:btih:3978E69B84527324B23EBE8F82FDA6613066D795
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +471,8 @@ Photoinstrument - редактор для обработки цифровых ф
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +498,8 @@ Photoinstrument - редактор для обработки цифровых ф
 magnet:?xt=urn:btih:DABD1FE6C253637F6AC03C0E53F714D51A4097F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +523,8 @@ MyVideoConverter - многофункциональная программа д�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +550,8 @@ MyVideoConverter - многофункциональная программа д�
 magnet:?xt=urn:btih:CB76C1EC05EBAF8B7CD9BA3D3DD29F4AD440BFAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +575,8 @@ magnet:?xt=urn:btih:CB76C1EC05EBAF8B7CD9BA3D3DD29F4AD440BFAF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +602,8 @@ magnet:?xt=urn:btih:CB76C1EC05EBAF8B7CD9BA3D3DD29F4AD440BFAF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:CB76C1EC05EBAF8B7CD9BA3D3DD29F4AD440BFAF
 ```bash
 magnet:?xt=urn:btih:9B35F2A56E3CE925EAC0F6D0673A983E8C83B7BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:9B35F2A56E3CE925EAC0F6D0673A983E8C83B7BA
 magnet:?xt=urn:btih:0B58180AA8A00A8F96331A70358F872D1F358088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ The Rockin’ Dead / Рок-зомби 3D [Ru] (RePack/1.02) 2012 | Fenixx
 ```bash
 magnet:?xt=urn:btih:5667252353881B2E502CEC760D452CC47993DBBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +706,8 @@ Sound Normalizer - звуковой нормализатор звука, пре�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

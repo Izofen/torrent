@@ -1,3 +1,29 @@
+###  Публикация: 839501   (846675) от 01.04.2016
+
+Гренландия. Дикая природа страны викингов /  The Green Land: Wildlife in the Land of Vikings (2005) HDTVRip [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гренландия - уникальный уголок нашей планеты. Её северная красота на протяжении многих веков завораживала умы и души людей. Поддайтесь и вы её чарам.Жанр: Документальный, природа, фаунаПеревод: Одноголосый закадровый (профессиональный)Субтитры: отсутствуютПродолжительность: 00:51:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E7C89C0B7AD6CFA76503D36CBB533624D947713
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378521   (846689) от 25.04.2020
 
 Живая еда с Сергеем Малозёмовым (25.04.2020) SATRip
@@ -21,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:0CE22F307DCF60E4B5CEA95C3E7DA0D561FC1F5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +75,8 @@ magnet:?xt=urn:btih:0CE22F307DCF60E4B5CEA95C3E7DA0D561FC1F5D
 magnet:?xt=urn:btih:397BABCD58B4CAA1E7F800880A77C4ADDBC932C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:397BABCD58B4CAA1E7F800880A77C4ADDBC932C8
 ```bash
 magnet:?xt=urn:btih:A86F3357EE0A7CDA047DC7D82A10AD96BFB0B21A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:A86F3357EE0A7CDA047DC7D82A10AD96BFB0B21A
 magnet:?xt=urn:btih:30D494DDAA187D19AA0D6D78D5548C076ABF25FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:30D494DDAA187D19AA0D6D78D5548C076ABF25FB
 ```bash
 magnet:?xt=urn:btih:014276606CFEC11EEE3D46D9D1DC486FCE4F39B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:014276606CFEC11EEE3D46D9D1DC486FCE4F39B3
 magnet:?xt=urn:btih:C6B25BE2574B90CABD6FDD2475ADF94FDA1F6DCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:C6B25BE2574B90CABD6FDD2475ADF94FDA1F6DCC
 ```bash
 magnet:?xt=urn:btih:EAE65493DB13652486F0C82D1C9649D30406DFBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:EAE65493DB13652486F0C82D1C9649D30406DFBA
 magnet:?xt=urn:btih:B38CFEE8EB3A7DB817C320F2270876234A408A4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:B38CFEE8EB3A7DB817C320F2270876234A408A4F
 ```bash
 magnet:?xt=urn:btih:BF8E7EF7510BD301F12D4B924C0514223D4C6D58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:BF8E7EF7510BD301F12D4B924C0514223D4C6D58
 magnet:?xt=urn:btih:5CB0A3855A1B9F70C093A54022001BC763C43A38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:5CB0A3855A1B9F70C093A54022001BC763C43A38
 ```bash
 magnet:?xt=urn:btih:DAFC0E83EFD01812ADF38E0C37EE157D6301282F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:DAFC0E83EFD01812ADF38E0C37EE157D6301282F
 magnet:?xt=urn:btih:50790AC7E684F286C00EFB6B968F362FDDB51261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:50790AC7E684F286C00EFB6B968F362FDDB51261
 ```bash
 magnet:?xt=urn:btih:7306FE279F8BA53D81DBCC275B329C634260CB8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:7306FE279F8BA53D81DBCC275B329C634260CB8D
 magnet:?xt=urn:btih:1409101EA3E0593688E6B56A9248D481A23FDFFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:1409101EA3E0593688E6B56A9248D481A23FDFFE
 ```bash
 magnet:?xt=urn:btih:20459F47BB4489FE81745CAA11E037935BD4ABC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:20459F47BB4489FE81745CAA11E037935BD4ABC5
 magnet:?xt=urn:btih:A9D218D82EBD3FFCA7B40E6FE5FE6FDB308A31C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:A9D218D82EBD3FFCA7B40E6FE5FE6FDB308A31C5
 ```bash
 magnet:?xt=urn:btih:F07561A8BD7A85F4696C825C076179992A9AF1D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:F07561A8BD7A85F4696C825C076179992A9AF1D8
 magnet:?xt=urn:btih:38F16C68F2C54B2E1D7FC4947543AD3538494202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:38F16C68F2C54B2E1D7FC4947543AD3538494202
 ```bash
 magnet:?xt=urn:btih:1EDCF58DC8DA26627EE6C7E96FC30AAE6D36A280
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:1EDCF58DC8DA26627EE6C7E96FC30AAE6D36A280
 magnet:?xt=urn:btih:5649289C1CECBE83A6532AC367A48F3FFE28FCBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:5649289C1CECBE83A6532AC367A48F3FFE28FCBF
 ```bash
 magnet:?xt=urn:btih:DC6C338E19B8A45F21AE2D58396360811C751518
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:DC6C338E19B8A45F21AE2D58396360811C751518
 magnet:?xt=urn:btih:6F4964F29648AFD5FDD318C8DC92727FCF83CCFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:6F4964F29648AFD5FDD318C8DC92727FCF83CCFC
 ```bash
 magnet:?xt=urn:btih:C6F54EC7F8E01D031F578BCCE8E1F9DC0FD05C1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:C6F54EC7F8E01D031F578BCCE8E1F9DC0FD05C1B
 magnet:?xt=urn:btih:B3CDB5F15E7E57A954D7186AABFE6BA10CD3226A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:B3CDB5F15E7E57A954D7186AABFE6BA10CD3226A
 magnet:?xt=urn:btih:BD44C33CAFF3F99FB93B772CAE719BFEB729232C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378318   (847955) от 24.04.2020
-
-Город на берегу. Барселона / Waterfront Cities Of The World. Barcelona (2013) HDTV [H.264/1080i-LQ]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_847955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Барселона расположена в северо-восточной части Иберийского полуострова, на берегу Средиземного моря. Этот второй по величине город Испании является столицей Каталонии и самым крупным портом Средиземноморья. Барселона во всем мире известна как город искусств, однако, это еще и один из самых больших индустриальных и торговых городов страны. Разумеется этот город еще (   Читать дальше...   )Производство: Канада, TV5Жанр: Документальный, познавательный, путешествияРежиссер: Никола Буше, Этьен ДезирэПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AF38DCEC346571830257E4E76E7C77E0DADCC0B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

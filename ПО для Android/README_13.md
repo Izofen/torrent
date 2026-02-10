@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:24C486F794BD66C448DB51F2A5B963A4673B1895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:24C486F794BD66C448DB51F2A5B963A4673B1895
 magnet:?xt=urn:btih:72519B5A3FDE96EB5C897157F31A67926EECF425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Lumii - Фоторедактор, Фильтры v1.700.167 Mod by PieMods [Ru/M
 ```bash
 magnet:?xt=urn:btih:B44C3EFEA420B570A86AF5B99CB4BB6D8027E268
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Audio Books – новая платформа для прослушивания 
 magnet:?xt=urn:btih:8846677D29A3F3C54EAAC739D57BB6002B455282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ English LinDuo HD v5.33.1 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D605D18A18FD378BF4AAE3800B701FAEE2C8A3AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:D605D18A18FD378BF4AAE3800B701FAEE2C8A3AA
 magnet:?xt=urn:btih:1F7264289A9E3104E29A69D71EEABC9D7C45C375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ WPS Office - очень полезное, офисное приложение д
 magnet:?xt=urn:btih:E884FD2F58577E6367FACC2F892D4B15319C82DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:E884FD2F58577E6367FACC2F892D4B15319C82DD
 ```bash
 magnet:?xt=urn:btih:42A050DA42ABC22DFC46925E389E5D1E34666B2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Gif Me! – это лучший способ сделать из коротко�
 magnet:?xt=urn:btih:47DBE2C31A7FEC81A204DC990381D427A2B4F158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ Diabetes:M v9.0.8 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:43B5F83985B3200E4BDED085ECB86018F7F20DFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ FotoTweak - AI Image Generator v1.0.46 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0D29082D5C9BB5796B6694282FAA61E1AC2C7C2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:0D29082D5C9BB5796B6694282FAA61E1AC2C7C2B
 magnet:?xt=urn:btih:DD181AC82CBD1FA4535EB52C040082EEEC1FF416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Background Video Recorder Pro — это приложение, которое п
 ```bash
 magnet:?xt=urn:btih:06C46D35D3EB3081FDF7327E9C662287E0752B7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Drink Water / Напоминание пить воду v2.26.0 Mod by PieMods [R
 magnet:?xt=urn:btih:1087E2D754C4C7C6986DD5F986B4AE10933FCDAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:2F19D5A3127567DDBC39C71F1D65720182E6DB33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:2F19D5A3127567DDBC39C71F1D65720182E6DB33
 magnet:?xt=urn:btih:2FCE043D61405A12433C14221DCDBF7D778F8719
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Filmora - программа для редактирования видеоза�
 ```bash
 magnet:?xt=urn:btih:811A9BEA3019CDDC44278B66EE84FF31FB84BA2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Smart AudioBook Player Pro v11.1.9 (A8.0+) Mod by 0x7d [Ru/Multi]
 magnet:?xt=urn:btih:6FD7116E2FFEDA2E86E1001326B5B3BB1453C2AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:6FD7116E2FFEDA2E86E1001326B5B3BB1453C2AE
 ```bash
 magnet:?xt=urn:btih:B0D1678405FDA01E6D646EA1BC8261145E5714E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ Fully Fluent - Learn Languages / Бегло - Изучайте языки v2.5.4
 ```bash
 magnet:?xt=urn:btih:91A4ACEAE6D39BD2CBA1420D33FFD4F3F9F9735B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ MiHome v10.0.706 Mod by Vevs [Ru]
 magnet:?xt=urn:btih:F954C340DF6327367CDF6D0C167A256BCD14CB52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:F954C340DF6327367CDF6D0C167A256BCD14CB52
 ```bash
 magnet:?xt=urn:btih:371274A5742528573E4073559016DA674966ED17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ Graph Messenger — это продвинутое приложение для о
 magnet:?xt=urn:btih:A1D17798E0A7C311DE5368DFFD299952388A5A3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ Textra SMS v4.78 Pro Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:348542816225DD4883E1986908A0A1D9F531EC2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:348542816225DD4883E1986908A0A1D9F531EC2B
 magnet:?xt=urn:btih:BCE16713A8A2F98425D6128CB7318688DDB704A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ UniMote - Универсальный Пульт для ТВ v1.7.0 Mod by Balata
 ```bash
 magnet:?xt=urn:btih:0CAB79FDE3F1EBAB70A5335E957F632D4057B0E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

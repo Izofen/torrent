@@ -19,6 +19,8 @@ WPS Office - очень полезное, офисное приложение д
 magnet:?xt=urn:btih:642C1D52C49638E11A38F8145B3B54A817596E56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:C0875742714BEB608280A1F1ECBB6DA43C3BE74F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:C0875742714BEB608280A1F1ECBB6DA43C3BE74F
 magnet:?xt=urn:btih:DE86D23AF7F33243AF0FF5BE81917FFE3D5EA737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Moon+reader относится к категории универсальных 
 magnet:?xt=urn:btih:E5F27A828D4D84B31A3B2317EE5EE8D6F4FDA6B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ ToonMe v0.7.0 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:57F66F55AF834687D31F8FCAB2E8A958CB9C7D07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Universal TV Remote / Универсальный ТВ пульт v2.6.3 Mod by d
 magnet:?xt=urn:btih:1AC9B33992527BFD65B9EEAC1BB94022A8D5C55F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:FBFBAC6C82D6BBFBDFD4F15599C45007605B0A07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ PhotoDirector - функциональный, но весьма простой �
 magnet:?xt=urn:btih:FA366D006A0F55BEE06CE24593533FB37790388A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Strava: бег, велоезда, хайкинг v347.5 Mod by ReVanced Team [Ru
 ```bash
 magnet:?xt=urn:btih:4301A746DAC9D7E3AEAE284B9288AF2403294B8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ IPTV Pro v7.1.5 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:657497FBC4D2A092068D823AE11AED0B5C28850D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:657497FBC4D2A092068D823AE11AED0B5C28850D
 ```bash
 magnet:?xt=urn:btih:5772C0A1DD8CF504F23DBACB7A791B4370654225
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Horary Chart / Астрология: Хорарная Карта v3.1.1 [Ru/Mult
 magnet:?xt=urn:btih:245556024EC3F26286F9CC27CD3C67A15085F065
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:94375DAC855FAF723584936A772907BB9EA5ED2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Sense Flip Clock & Weather v6.51.0 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:B77AE030133E279C39BD1874EB934252506E3213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Astrological Charts / Астрологические Карты Pro v10.5.1 [Ru/
 ```bash
 magnet:?xt=urn:btih:6EC3B7717E3DF4456A99E112D7411DC21BC3EDD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Photo Editor - уникальная программа для обработки
 magnet:?xt=urn:btih:E5F37D03517DE960F1139BC1DB421B7EB8FE4033
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:E5F37D03517DE960F1139BC1DB421B7EB8FE4033
 ```bash
 magnet:?xt=urn:btih:E022E195990B9D006A7DB100D3FA8231610998EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ DNS Changer — это самый простой способ изменить �
 magnet:?xt=urn:btih:2C5E05CD58886104060EE55AFDC27D4B844B45F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:2C5E05CD58886104060EE55AFDC27D4B844B45F8
 ```bash
 magnet:?xt=urn:btih:FBB35C6CF7277C546DA1EFCB8935EE25CB909FA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Strava: бег, велоезда, хайкинг v346.7 Mod by ReVanced Team [Ru
 magnet:?xt=urn:btih:2CCBC240B5EA7E76628F87BBDB3D80ABC116EBBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:2CCBC240B5EA7E76628F87BBDB3D80ABC116EBBE
 ```bash
 magnet:?xt=urn:btih:315B2C3B14B6AA347228AE5EB796683A81B2F726
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ magnet:?xt=urn:btih:315B2C3B14B6AA347228AE5EB796683A81B2F726
 magnet:?xt=urn:btih:F72EAEC6493880E21A89915EA5B6A79DBACF09A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Offline Maps / Офлайн карты для путешественников v
 ```bash
 magnet:?xt=urn:btih:840DDC6E9BEAE79AF2BB9C292711E8CED29F1627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ MX Player Pro v1.78.5 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:C64B0B478C795D2F6F7948233398A7D029A0FE05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ SD Maid v5.6.3 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:BE116EE5F2AF3DF06D87A0AE3AEBE06D7DE42593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ ActionDirector- это единственный 📹 видеоредактор,
 ```bash
 magnet:?xt=urn:btih:D3F5B3CCE465587AF9BD278EE3062633437A0F99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

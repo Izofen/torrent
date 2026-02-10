@@ -22,6 +22,8 @@ CD1:
 magnet:?xt=urn:btih:23D8F8BAA5F3B828FD06B326D2EEEBC01DA4B4C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Ennio Morricone - Love Songs & Romantic Scores (2023) [FLAC 2.0|44.1/48/16/24|WE
 ```bash
 magnet:?xt=urn:btih:645A5E2C1FD8884384B7E4ADCD413AECEFBBF354
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - The Orient Collective: Oriental Expedition (2023) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:546121FFCF0C4AE0DED798E7B9884EC7ED4018E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - The Orient Collective: Echoes of the East (2023) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:0D13457E7D0FA5076B12457C66E91092975BA7D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Б. Рубашкин, И. Ребров•Звезды русской эми
 magnet:?xt=urn:btih:C8E9D8BD1C807040EE97ABE0F780FD93D1CEE85C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Goran Bregović - The Belly Button Of The World (2023) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:F849F0491500A1DE49958CF40A71B701C534BFB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Yin Yoga Music Collection, Interstellar Meditation Music Zone, Spa Music Consort
 magnet:?xt=urn:btih:8C3FC43F6E9A788F48670F85665FDB5C62B48764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Romantic Collection. New Age (2000) [OGG Vorbis|480 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:7BD26CE5AED08709844A0E1CBE55B46F00894163
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Chris Spheeris & Paul Voudouris - Europa (1995) [FLAC|Lossless|image + .cue] <In
 magnet:?xt=urn:btih:12DDA83986FD2CCA2B1176906F13061E804C0B2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Sexy Lovers Music Collection - Barcelona Romantic Cafe: Spanish Guitar Love Song
 ```bash
 magnet:?xt=urn:btih:80EF1A2A5EEB6DACA553345BB10DC2C2A004DACB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Chris Spheeris & Paul Voudouris - Enchantment (1991) [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:C6A4C0BFC98481749CFA940C28ECAC21AB7A6C2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:C6A4C0BFC98481749CFA940C28ECAC21AB7A6C2B
 ```bash
 magnet:?xt=urn:btih:6C86856305A2C55BFEA516815A8F4872C45EF54B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:6C86856305A2C55BFEA516815A8F4872C45EF54B
 magnet:?xt=urn:btih:33195B6AF6A47E9585EF5FB2DF1D2876DD06C65E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Ennio Morricone - Love Songs and Romantic Scores (2023) [OGG Vorbis|480 Kbps] <F
 ```bash
 magnet:?xt=urn:btih:179D1E4B1A9FB813D5643132279D5C006C7A13D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ magnet:?xt=urn:btih:179D1E4B1A9FB813D5643132279D5C006C7A13D6
 magnet:?xt=urn:btih:19A99FA8A6450E4933C4753BF8CCB0C15A1C6FF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Folk Country Songs USA (2023) [MP3|320 Kbps] <Country, Folk, Country Rock>
 ```bash
 magnet:?xt=urn:btih:69F47624F790AF6DA37C81358CFC7DE2DD49C070
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Theodor Bastard - Oikoumene (2012) 10th Anniversary Edition, 2023, Theodor Basta
 magnet:?xt=urn:btih:655FB39EB0D3C9D225FD32D81B36237F4892F741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ magnet:?xt=urn:btih:655FB39EB0D3C9D225FD32D81B36237F4892F741
 ```bash
 magnet:?xt=urn:btih:0E9DD8154C9A3DA62B5C2F43622F4E869BCAD26E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:0E9DD8154C9A3DA62B5C2F43622F4E869BCAD26E
 magnet:?xt=urn:btih:E9C45055B5DD1E93559D903206DB2878933FD2EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Nino Rota (3.12.1911 – 10.4.1979) - итальянский композито�
 ```bash
 magnet:?xt=urn:btih:C72804D4C11CF870D4AA4BBF852A713BBF198679
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Симфония природы (3CD) (2008) [FLAC|Lossless|image + .cue] <
 magnet:?xt=urn:btih:F1CCFF9BB8074C2834D4C0768C7B6A925B2BCB9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ magnet:?xt=urn:btih:F1CCFF9BB8074C2834D4C0768C7B6A925B2BCB9C
 ```bash
 magnet:?xt=urn:btih:4E81D03FA7AE9ACF158AF58A1322D1E769E52F37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +658,8 @@ magnet:?xt=urn:btih:4E81D03FA7AE9ACF158AF58A1322D1E769E52F37
 magnet:?xt=urn:btih:3AC47664D9202007386D264C87ED186C0B0410E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +686,8 @@ VA - Mortal Kombat Annihilation: OST (1997) [FLAC|Lossless|tracks + .cue] <Sound
 ```bash
 magnet:?xt=urn:btih:5BFC0420E7E0DAC5B70D8988111DC27D6D9AB93E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +716,8 @@ Konstantin Klashtorni - Chillaxonic: Dreams (2023) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:11D091C13A1D1150C61BDED10D5B22895DAB5877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ Armik - Guitar Seduction (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New
 ```bash
 magnet:?xt=urn:btih:B3189CF9F6F7A3D259429EE645C1E21F53A4716E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

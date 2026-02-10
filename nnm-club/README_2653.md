@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:64002071358EEACA080613AE1BD7A573FDB52835
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:64002071358EEACA080613AE1BD7A573FDB52835
 ```bash
 magnet:?xt=urn:btih:CA03A21EB4EE525FC8626F3A10EA34D832FAAEC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - CF Mix, Vol. 1 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Te
 magnet:?xt=urn:btih:17A294E6D1DC38285C6C3C1FE2F789C4CA824CDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Gravecloud - A Tear In The Veil (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Me
 magnet:?xt=urn:btih:20442B7EEB4EF56BF1A13F9C96E16C506C7E8A71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:20442B7EEB4EF56BF1A13F9C96E16C506C7E8A71
 magnet:?xt=urn:btih:075B3DA8B3946E4B455A6A682A42FEB78DA0A0A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:075B3DA8B3946E4B455A6A682A42FEB78DA0A0A5
 ```bash
 magnet:?xt=urn:btih:ECA96B108BA52F7A699D5347B818AFF7B20B95C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ The Syd Lawrence Orchestra - Big Band Swing (1984) Philips [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:2F43CD2D123106F8458FE7D24255BB7C2EFDF6A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ The John Graas Project - Jazz Studio 1/2 Complete Sessions (1953, 1954) 2004, Lo
 ```bash
 magnet:?xt=urn:btih:30B6618F3B07C96593C154EB0969CDD6C30075EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +247,8 @@ Sonny Rollins - On The Outside (1962, 1963) 1991, Bluebird [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:6261F477EB72B0037CFD131FD88A8F297B9E294D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +275,8 @@ Les McCann - Never A Dull Moment! (1966, 1967) 3CD, 2023, Resonance Records [FLA
 ```bash
 magnet:?xt=urn:btih:823B79B8249834B803D0E1EB9936E679DCE37D91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +305,8 @@ Art Pepper & George Cables - Tete-A-Tete (1982) 1995, Original Jazz Classics [FL
 magnet:?xt=urn:btih:1EE44DBAD6AB6C2C1FC7009CF0872E025AE97455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ Thrashist Regime - трэш-метал группа из Абердина, Шо�
 ```bash
 magnet:?xt=urn:btih:8E04E0BBB62A77B84E681ADC9E5A5F60E417EF72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +359,8 @@ magnet:?xt=urn:btih:8E04E0BBB62A77B84E681ADC9E5A5F60E417EF72
 magnet:?xt=urn:btih:8371A855635685FB20D63B2EC0594782C5DBE054
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +384,8 @@ magnet:?xt=urn:btih:8371A855635685FB20D63B2EC0594782C5DBE054
 ```bash
 magnet:?xt=urn:btih:A1BE42CA5D5D573BE31A3F1D03C77D66A988887A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:A1BE42CA5D5D573BE31A3F1D03C77D66A988887A
 magnet:?xt=urn:btih:72DB6756D017D1DFDD68783F59AEA0BC9D238868
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:72DB6756D017D1DFDD68783F59AEA0BC9D238868
 ```bash
 magnet:?xt=urn:btih:EB01FFA54A254324A511F8EF939E34C46AE032F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ magnet:?xt=urn:btih:EB01FFA54A254324A511F8EF939E34C46AE032F8
 magnet:?xt=urn:btih:7E831E6E50E5F0ADBD71C725D09F56C21FE05023
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ Nsai — это минималистичный и аккуратный шриф�
 ```bash
 magnet:?xt=urn:btih:E493999DE609085EDB5A4D484CC15FBA5B391F94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ VA - Chillout & Lounge Moods (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 magnet:?xt=urn:btih:0697BAD9124EC25BF6166BD77FB135741479CD72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ Rapor — это мощное и элегантное сочетание, соз
 ```bash
 magnet:?xt=urn:btih:755DE7EF8FE146F76CD4AB9150F09397176BDDB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ VA - One Shot '80 Volume 15 (2003) 2 CD [OGGVorbis|480 Kbps] <Electronic, Pop, I
 magnet:?xt=urn:btih:658781092B2E9B9068373DD1627F2DCEEFA68B9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ VA - Dream Lounge: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Bale
 ```bash
 magnet:?xt=urn:btih:1E3EA6D3EBAF021EF276CB76504B1DF85F09982D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +631,8 @@ Adam F - Colours Revisited (2025) [FLAC|Lossless|WEB-DL|tracks] <Breaks, Drum'n'
 magnet:?xt=urn:btih:F4C4735196BC9A40313423179CC227853DEFB9A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +660,8 @@ VA - One Shot '80 Volume 13 (2002) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, S
 magnet:?xt=urn:btih:8ED1B517309557FE5AE2FCA4C920E38C8A6D7F74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +686,8 @@ Kelpt Sans — это измененная модифицированная фо
 magnet:?xt=urn:btih:BDA0B82C1DA75C16A48297545FB0B20BEBB4D77C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ Bari Sans — это сплошной гротескный шрифт с нап�
 ```bash
 magnet:?xt=urn:btih:31C3607C9B86244E06D5A013485B1DDCF3334169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

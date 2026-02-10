@@ -25,6 +25,8 @@
 magnet:?xt=urn:btih:345A411B5B6AFA8A9758AF00A493A780F5B403B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Bloodborne – новый проект студии From Software и лично 
 ```bash
 magnet:?xt=urn:btih:DA4992BD39740E8CFA64E42A9D61C60C8CD86E49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ El Shaddai: Ascension of the Metatron – экшен, рассказывающи
 magnet:?xt=urn:btih:CC4E74B026F663003D7FD2C1DB3777F0F5395292
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Onechanbara Z: Kagura продолжает серию экшен игр Oneechan
 ```bash
 magnet:?xt=urn:btih:89177E1C4186405422A40B3AF4DB79F01B498C14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ MouseCraft - это игра, выполненная в смеси жанров 
 magnet:?xt=urn:btih:D475F1F6A15433136F30A412006471A9EC2261AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ HISTORY Great Battles Medieval (2011) [PS3] [EUR] 3.15 [Cobra ODE / E3 ODE PRO I
 ```bash
 magnet:?xt=urn:btih:2580CD0BC86AED3032CE72207D91584CC67F01AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Nintendo 3DS ROMPack (2011-2017) [3DS] [ALL] [Decrypted] [Unofficial] [Multi] (0
 magnet:?xt=urn:btih:A1B82AB0501AA55E12EC9E524756335F2C59B311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Saints Row IV + DLC (2013) [Xbox360] [Region Free] [Freeboot] [Repack] [En]
 ```bash
 magnet:?xt=urn:btih:0C6C892A43FD54E5B47A98D5BE3BD66E643C2126
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Tank Battles (2009) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN / 1.0.1] 
 magnet:?xt=urn:btih:B8CB3546EE1EAF2547F2A818A6EA2FE692720088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ Death Track: Resurrection (2010) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [
 ```bash
 magnet:?xt=urn:btih:73B233EAB1395CA9F2AA3CAE00B89BEC119AB4C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Crash Time 5: Undercover продолжает гоночную серию Crash 
 magnet:?xt=urn:btih:8A582468117596BD1C08E9ECB16B927EF31B1138
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Cocoto Kart Racer [Wii] [PAL] [Multi 5] (2008)
 ```bash
 magnet:?xt=urn:btih:49E3595E0089E16814C6882EEE64E7B7E899074B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ The Tomb Raider Trilogy — великолепный подарок для вс�
 magnet:?xt=urn:btih:1644FAF4CEC029386E81485C0A34674CEE4652B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Cocoto Festival [Wii] [PAL] [Multi 5] (2009)
 magnet:?xt=urn:btih:6B34236CC423E2C8047BB95E6A517E1BE59712BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ PAW Patrol The Movie: Adventure City Calls / Щенячий патруль в к
 ```bash
 magnet:?xt=urn:btih:D914A8BBD95B05D2457EFD78B274ACB315803134
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ Oтличное звуковое сопровождение и достойна�
 magnet:?xt=urn:btih:0D7D68C087C238BF6535879F3823A2CDDB47EA66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Bloody Roar 4 — четвёртая часть серии консольных 
 ```bash
 magnet:?xt=urn:btih:9CA9366E956B1D528FE9227A55A5840B5B2B126D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ Ratchet & Clank — это серия игр жанра платформер, р
 magnet:?xt=urn:btih:8EC562CFF46FE19E073530CFB229A9E66462C398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ Madagascar Kartz [Multi5] [PAL] (2009)
 magnet:?xt=urn:btih:2149B123A35A84326F71498210DDE9D7405D9537
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ Lego Jurassic World / LEGO Мир Юрского Периода (2015) [PS4] [EU
 ```bash
 magnet:?xt=urn:btih:BBAC44767CF5E6F355DEF3AD486DE58E848CAC95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ Trilogy Agarest: Generations of War 1, Zero, 2 (2009-2012) [PS3] [EUR] 2.76, 3.6
 magnet:?xt=urn:btih:EE7F7A6EEA09F082777847F475F28D0D21945A92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:EE7F7A6EEA09F082777847F475F28D0D21945A92
 ```bash
 magnet:?xt=urn:btih:BD2594ABFDC1F2F5C9BF00651153FDDC4E185190
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ London 2012: The Official Video Game of the Olympic Games – спортивна
 magnet:?xt=urn:btih:D876FDF568A0D13201700E43A1695B712F2F26A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:D876FDF568A0D13201700E43A1695B712F2F26A6
 magnet:?xt=urn:btih:4BAA37DBE76F57E56DE6519BBE3D90680287BF7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ Cave Story представляет собой классический двух
 ```bash
 magnet:?xt=urn:btih:799B46DA84A0B788C8A97D221E7265864F28AF62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +700,8 @@ Ice Age: Continental Drift Arctic Games создана по мотивам од�
 ```bash
 magnet:?xt=urn:btih:00BEB4B16B867461AFE7DA756E1312183C7DBB24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

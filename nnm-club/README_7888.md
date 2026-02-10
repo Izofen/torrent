@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4CE3DE1E382D0CA227063A12F57AD8ED20E111DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:4CE3DE1E382D0CA227063A12F57AD8ED20E111DD
 magnet:?xt=urn:btih:B3FCA23A471085B071ADB6354CBF118DD9C52D83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:B3FCA23A471085B071ADB6354CBF118DD9C52D83
 magnet:?xt=urn:btih:70BCF44580388F65E8B0B8402D6E5EEC5F2C74A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Picture Colorizer - это приложение для macOS, которое и�
 magnet:?xt=urn:btih:6623EE9511A713890098E379E31F2D9C2B1078F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:6623EE9511A713890098E379E31F2D9C2B1078F3
 ```bash
 magnet:?xt=urn:btih:2F19EA5DA53C52A999BF4EFE9FB468082AE16D54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Deep Purple - Live Archive 1972 Vol. 1 (1972) 7CD  [MP3|320 Kbps] <Rock, Hard Ro
 magnet:?xt=urn:btih:809EC49180956DFCCB27188B824FD9DD01DCB3D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ Melody Angel - Indie Blues Girl (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 magnet:?xt=urn:btih:0C677E05343CD1606107DA8C5D45EE4783E9310B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Aiseesoft FoneEraser — самая мощная утилита для пост�
 ```bash
 magnet:?xt=urn:btih:88A315824AD8E67255E0351055112332364C512F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:88A315824AD8E67255E0351055112332364C512F
 magnet:?xt=urn:btih:3C8BF7A2D8F2A911B93DFAF3B0AAA3B53A477C6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:3C8BF7A2D8F2A911B93DFAF3B0AAA3B53A477C6B
 ```bash
 magnet:?xt=urn:btih:26959AB51F915C5B23D92EAE635B74C8DA04E140
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ Kaleidoscope — приложение, предназначенное для с�
 ```bash
 magnet:?xt=urn:btih:0A481DE1D0191690F21D92B55E34F4A8D68A1FD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ VA - Fifty Shades of Jazz (2017) [AAC|~330 Kbps] <Downtempo, Lounge, Balearic>
 magnet:?xt=urn:btih:69A2E4BFEF4B4F1933ED7DBBF2E898F3256B20BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ VA - Nothing But... Trancetopia, Vol. 01 (2023) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:177902F015864173331635F891B81390B990FA2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ Pounder - Breaking The World (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:B4944104C8EB17363D631DE2ADBF7200EFA0DF67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:B4944104C8EB17363D631DE2ADBF7200EFA0DF67
 ```bash
 magnet:?xt=urn:btih:04D41733D6F3D82F483A959EB7796B2A39DACC4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:04D41733D6F3D82F483A959EB7796B2A39DACC4A
 magnet:?xt=urn:btih:F8C4FCAC66803EEDA80B25396DC7CDA840C59EDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ AOMEI Partition Assistant Pro позволяет создавать, удаля�
 ```bash
 magnet:?xt=urn:btih:2E0E2D5EF94B33332D681BC302B76DE2992208E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ Leper Colony - Leper Colony (2023) [FLAC|Lossless|WEB-DL|tracks] <Death, Thrash 
 magnet:?xt=urn:btih:6D60FEBC15E0500127DA292ACB1223E6455E46DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ Autumn Rain Melancholy - Одиночество (2023) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:857241ABCF9DB0FBE5D0C4A50317D1B0A1DBBEAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:857241ABCF9DB0FBE5D0C4A50317D1B0A1DBBEAC
 ```bash
 magnet:?xt=urn:btih:435BDB6516A0D746C1C8EE104F8A9F5B19CFBF6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ VA - Los Angeles Beach Lounge, Vol. 4 (2021) [AAC|~326 Kbps] <Lounge, Chill Out,
 magnet:?xt=urn:btih:FF16FE55806AAB6874F4E7A1131684BC938DE6D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ Gods of Gaia - As Daylight Dies (2023) [MP3|320 Kbps] <Symphonic Death Metal>
 ```bash
 magnet:?xt=urn:btih:9405312AB4E221CEF6877AC96E99C56CC2A6F836
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +628,8 @@ VA - MEGA HITS 2022 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:D4593662B03C155459A4B18F90278690132E8CC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:D4593662B03C155459A4B18F90278690132E8CC4
 ```bash
 magnet:?xt=urn:btih:DDAC71F1B746F04ACFF8B4147F8275CB651B5CA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:DDAC71F1B746F04ACFF8B4147F8275CB651B5CA6
 magnet:?xt=urn:btih:00F62D6014A85D66DFE67478B17CEB2FCC7922CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ Magic Battery 7.8.1 [En]
 ```bash
 magnet:?xt=urn:btih:01BDC1F6F1E494985917D5B4CC16F17E5EC31B62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

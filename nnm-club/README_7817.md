@@ -22,6 +22,8 @@ Perished - Kark (1998) [FLAC|Lossless|image + .cue] <Black Metal>
 magnet:?xt=urn:btih:007FE6933BC82142AC84079B8CEF77B8B71D1534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:007FE6933BC82142AC84079B8CEF77B8B71D1534
 magnet:?xt=urn:btih:E199044DE38F320744E7CD4D3351FBD576992993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Pipette — данный продукт пригодится дизайнера�
 ```bash
 magnet:?xt=urn:btih:231F582B80767ACB79D556B0A3F21F7044262249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Chords Of Chaos - For Those About to Rock (2017) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:ADC0B7F30307EB72CD47B826DDE6FEB45E24E9FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ Eddie B - I'm Holding On (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:144A9741FC07B6DC28E2CFE61FA80AB3B5DE1986
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:144A9741FC07B6DC28E2CFE61FA80AB3B5DE1986
 magnet:?xt=urn:btih:CA10A80D1B7AADB2F035A205384B6EA81F4B8CD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:CA10A80D1B7AADB2F035A205384B6EA81F4B8CD4
 ```bash
 magnet:?xt=urn:btih:A35542C70E068CBF084E433EEBCFEE06CF65E820
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Power from Hell - The True Metal (2004) [FLAC|Lossless|image + .cue] <Black Meta
 magnet:?xt=urn:btih:C3CF1AEA4E18BB90CF80330D822A6511B899B441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:C3CF1AEA4E18BB90CF80330D822A6511B899B441
 magnet:?xt=urn:btih:FD22F4CCEA66449F9F054CBB6102461A91A903C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Foxit Reader - профессиональное приложение для чт
 ```bash
 magnet:?xt=urn:btih:1584C1FFC8152E188CB07C48659782F6E0072D32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Steely Dan - Countdown To Ecstasy (2023) [FLAC 24/192|Lossless|WEB-DL|tracks] <R
 magnet:?xt=urn:btih:800E5C5D7524A7E5955D5080C31642029CDCC5E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ Flidais - Pathogen (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Progressive Meta
 ```bash
 magnet:?xt=urn:btih:6295BCCA9CCD472642B54451E0EC26F0EBA29B96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ Armand Hammer & The Alchemist - Haram (2021) Compilation [MP3|320 Kbps] <Undergr
 magnet:?xt=urn:btih:513B6AF45F85024B5A312F28BFD1D5C113B8D994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ VA - Музыка для машины Vol.14 (2023) [MP3|320 Kbps] <Pop, Dance, 
 magnet:?xt=urn:btih:A16EFD83E4B9511477526A15C2E66882F4973457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:A16EFD83E4B9511477526A15C2E66882F4973457
 ```bash
 magnet:?xt=urn:btih:3A44972D1F9D05D1B565DC0DE0A82A33A763B513
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ FireWolfe - We Rule The Night (2014) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:49F08FAB562DF52D3953013D082F8AB37C211C05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 magnet:?xt=urn:btih:783B290AD46A6F11DBAAFC1FF3D5E2BA3B74E64B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ magnet:?xt=urn:btih:783B290AD46A6F11DBAAFC1FF3D5E2BA3B74E64B
 ```bash
 magnet:?xt=urn:btih:C5A2CB90FC36C37768FB9171A5AC105B056EDD6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ FilelistCreator 23.4.23 Portable [Multi/Ru]
 magnet:?xt=urn:btih:F0FDBDBDF70B9D20E98B8FF1A4FDA4DE3700F65E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ magnet:?xt=urn:btih:F0FDBDBDF70B9D20E98B8FF1A4FDA4DE3700F65E
 ```bash
 magnet:?xt=urn:btih:2352DB386F42AEBA7EDEE39A4C2BBBE4C61C33C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ Funeral Mass - Shadow of the Raventhrone (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 magnet:?xt=urn:btih:1B6582710C865ECD5379F3BB37C57B402932D9E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:1B6582710C865ECD5379F3BB37C57B402932D9E9
 ```bash
 magnet:?xt=urn:btih:338AA04AAC2D461F04CCA59E02B10D9A2C75E3C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +626,8 @@ magnet:?xt=urn:btih:338AA04AAC2D461F04CCA59E02B10D9A2C75E3C8
 magnet:?xt=urn:btih:140451707ED52ABFDBC8E363FA2E7ECB90C2B3AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ Music Collection - неплохая программа для создания �
 ```bash
 magnet:?xt=urn:btih:976CBFC6172DA681595C0BD997E85320FFA9F263
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ Draw.io 21.5.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:1EBF0C2EB584E13F0DEAC129D51F5028805552BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:1EBF0C2EB584E13F0DEAC129D51F5028805552BD
 ```bash
 magnet:?xt=urn:btih:16A4538EC1813BD800F7E91AC086F2F2AA51922B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

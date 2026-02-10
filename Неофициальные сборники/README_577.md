@@ -1,3 +1,32 @@
+###  Публикация: 997328   (875604) от 16.03.2016
+
+Саша Белостоцкий - Записи 60-70г (1960-1970 г) [MP3|64-128 кб/с] <Shanson>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_875604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вышла доярка
+02. Мы сидели с тобою у яра
+03. Твои глаза зеленые
+04. А на деревне нет хороших малых(   Читать дальше...   )Жанр: ShansonПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:014EB4BDE5322A1A80F028A95BBD88E01AC01AFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997292   (875726) от 16.03.2016
 
 Черноморская чайка - Возле дома моего (1977) [MP3|320 кб/с] <Шансон>
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:5520463E796AAF4F163323DF26538BF2ACAD2B1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +79,8 @@ VA - Clockwork Dancecore (2016) [MP3|320 кб/с] <Dancecore, Hand Up>
 ```bash
 magnet:?xt=urn:btih:3195980533CE2B34E9FA9A6852663F4C663E65A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -78,6 +111,8 @@ VA - The Official UK Top 40 Singles Chart (09-03-2014) [MP3|320 кб/с]<Pop, Da
 magnet:?xt=urn:btih:132293E59CAF18AD527AE960D0FA8DB7EABE859A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -104,6 +139,8 @@ VA - Blues and Rock Ballads (2017) [MP3|160-320 Kbps] <Blues, Rock>
 ```bash
 magnet:?xt=urn:btih:6F8E5CA5DA61CBA124D30995B70EF75AD6C25976
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -132,6 +169,8 @@ VA - Зайцев.Нет - Лучшие Новинки Февраля (2017) [MP
 magnet:?xt=urn:btih:7BCDF53DB5ACC3ACFF2A679E2E505B8005C98991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -158,6 +197,8 @@ VA - Beatport Chill Electronic: Sound Pack #47 (2020) [MP3|320 Kbps] <Chillout, 
 ```bash
 magnet:?xt=urn:btih:1829782EB4F1E0F1EA03ABE3ABA056065DB97ADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -186,6 +227,8 @@ VA - Top 100 Greatest Songs of All Time (2020) [MP3|320 Kbps] <Pop, Rock, Other>
 magnet:?xt=urn:btih:81568ADFAC441616D10BE7551332E1D9C1574AB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +255,8 @@ Bob Marley - 100% Bob Marley (2020) [MP3|320 Kbps] <Reggae>
 ```bash
 magnet:?xt=urn:btih:8C4DD2CE17A6A615843AFDAA77E3ACCBB9AA01C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +285,8 @@ VA - Chilltrap Vol. 1 - 7 [Compiled by Zebyte] (2015-2016) [MP3|256-320 Kbps] <C
 magnet:?xt=urn:btih:2162F9C0CF6556D8FEF1D9E80C2D9A9016DC9169
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +313,8 @@ VA - Старый дом. Академия хитов шансона (2017) [MP3
 ```bash
 magnet:?xt=urn:btih:B0056C10CC87A4494082BE8A86070FE529114FD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +343,8 @@ Beth Hart - 100% Beth Hart (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:2EE0CE5AA597BDEB1FF87AF9589C37EEECFBEC03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +371,8 @@ Eric Clapton - 100% Eric Clapton and... (2020) [MP3|320 Kbps] <Blues, Blues Rock
 ```bash
 magnet:?xt=urn:btih:D7988D61C9C50399F595E3678F217D2C400FB5DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +401,8 @@ VA - Ready Styles Final Songs (2017) [MP3|320 Kbps] <Synthpop, Bigroom, UK Garag
 magnet:?xt=urn:btih:8C2DBD3E04B2C81863B89BBDCA9A958CF38067EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +429,8 @@ VA - Отдыхаем душой на радио Шансон выпуск № 3
 ```bash
 magnet:?xt=urn:btih:CE03C72971769BFE990BEAC5EDE139DF77FACAA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +459,8 @@ VA - Молодежный бум хитовый. Версия № 3 (2017) [MP3|
 magnet:?xt=urn:btih:0A775849A9F68866E331B14F5656CDFE2151F096
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +487,8 @@ VA - На волне позитива выпуск № 2 (2017) [MP3|256 Kbps] <
 ```bash
 magnet:?xt=urn:btih:8B410372A8B325DCB31624B020DFD6EAC691985A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +517,8 @@ VA - Я слушаю шансон. Зимние хиты. Часть № 6 (2017
 magnet:?xt=urn:btih:D03AADCE97C960505E95451C1D27410F885185CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +545,8 @@ VA - Beatport Disco House: Electro Sound Pack #51 (2020) [MP3|320 Kbps] <Disco, 
 ```bash
 magnet:?xt=urn:btih:5F2D13264ECE187F1E17170EB2F5CD37C3665EE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +575,8 @@ VA - Снежный популярный отрыв выпуск № 5 (2017) [M
 magnet:?xt=urn:btih:D9C8EF65D69FA3E84A690DB0D56FE9284BEEDED9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +603,8 @@ VA - Beatport Electro House: Electro Sound Pack #48 (2020) [MP3|320 Kbps] <Elect
 ```bash
 magnet:?xt=urn:btih:9804AA335DE9471BC54C9859FA76F1F963713B9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +633,8 @@ VA - The Surfing Happiness (2020) [MP3|320 Kbps] <Chillout, Ambient, Downtempo, 
 magnet:?xt=urn:btih:ECD9DF247804A0FFE428A11759F49C4913BC0269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +661,8 @@ VA - Now That's What I Call Power Ballads: Hits (2016) [MP3|320 кб/с] <Melodi
 ```bash
 magnet:?xt=urn:btih:9B86733E03F7FCFBD79FAF0912061A24ADDB9AD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +691,8 @@ VA - Сборник от CJ.Koka v.01 (2016) [MP3|320 кб/с] <Pop, Dance>
 magnet:?xt=urn:btih:2EBD4BAE6B3658118BF0489F179BED4785925ADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +719,8 @@ VA - Sentimental Piano: Most Romantic Piano Songs (2016) [MP3|320 кб/с] <Down
 ```bash
 magnet:?xt=urn:btih:F567D458556E760702DDDE07C8356BECAEFEB595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,32 +749,7 @@ VA - Дискотека Dance Club. The Best (2017) [MP3|64-320 Kbps] <Pop , Dan
 magnet:?xt=urn:btih:40918027823C709A4B34726DA2E8704D0BFB181F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997055   (877557) от 15.03.2016
-
-VA - Music For Everyone - Chillstep & Dubstep Vol.4 (2016) [MP3|320 кб/с] <Chillstep, Dubstep, Future Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_877557.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. SizzleBird - Wheel Of Time (Original Mix)
-2. Kid Zion – Awaken Here (Original Mix)
-3. Didrick - A Part Of You (WRLD Remix)
-4. Jex – You (Original Mix)(   Читать дальше...   )Жанр: Chillstep, Dubstep, Future BassПродолжительность: 01:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0606A4BA65EBAB86D9A684BD020D42965BEC560B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

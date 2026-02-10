@@ -28,6 +28,8 @@
 magnet:?xt=urn:btih:BDE6421924C0EAB0625BCA2F48904A523389080C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ Chip — первый компьютерный журнал в Европе, с�
 ```bash
 magnet:?xt=urn:btih:215AA1771ECE7A6F6089381CC5B6E8F833921ABB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -78,6 +82,8 @@ magnet:?xt=urn:btih:215AA1771ECE7A6F6089381CC5B6E8F833921ABB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:215AA1771ECE7A6F6089381CC5B6E8F833921ABB
 ```bash
 magnet:?xt=urn:btih:FD3CCC626E7F424B7A410F3BF30CB0545E22D353
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:FD3CCC626E7F424B7A410F3BF30CB0545E22D353
 magnet:?xt=urn:btih:5F28E2AEF9E9F96E5C8B7BCFEE05A2029CA55AD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:5F28E2AEF9E9F96E5C8B7BCFEE05A2029CA55AD3
 magnet:?xt=urn:btih:CF5EE172702D61699CFDEDC3615FBEE673B8EB27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:CF5EE172702D61699CFDEDC3615FBEE673B8EB27
 ```bash
 magnet:?xt=urn:btih:2CB9367204425634C8D08031CFFCA9E5CD44D107
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:2CB9367204425634C8D08031CFFCA9E5CD44D107
 magnet:?xt=urn:btih:47DF22F843B54477D16C49273DDC9B0DD97A0E42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:47DF22F843B54477D16C49273DDC9B0DD97A0E42
 ```bash
 magnet:?xt=urn:btih:4F524EC128EF9DC517CB4975DC8A1330B8422E64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ Javabegin | Google Web Toolkit с нуля (2019) [unpacked]
 magnet:?xt=urn:btih:28AB530022CC89E7C7D124A8E3286C3AC8CEDFD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Digital Photo&Video Camera значительно упрощает читате�
 ```bash
 magnet:?xt=urn:btih:CC6A0969CB61A64574751A5A5083A47D27457E6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:CC6A0969CB61A64574751A5A5083A47D27457E6B
 magnet:?xt=urn:btih:CF4DAE1CF8114C1442F8C22C2EB4382B923CDC6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ Javabegin | Онлайн библиотека на Java (2019) [unpacked]
 ```bash
 magnet:?xt=urn:btih:E1CA6F69B46C1F27B17F4E5EDA612AA33DAFC85A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +384,8 @@ magnet:?xt=urn:btih:E1CA6F69B46C1F27B17F4E5EDA612AA33DAFC85A
 magnet:?xt=urn:btih:964A3560A243CF06BEAC8E3DE9A99B04FD21291B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ Robert Bosch Hausgerate | Bosch MUM 4 DVD Рецепты кухонный ком
 ```bash
 magnet:?xt=urn:btih:7335E0B80AEFF9F1B9802BE2599B4A488B16017C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +442,8 @@ magnet:?xt=urn:btih:7335E0B80AEFF9F1B9802BE2599B4A488B16017C
 magnet:?xt=urn:btih:B7B687EE24BBA85F0E595DD411FE9B28F54487B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +471,8 @@ magnet:?xt=urn:btih:B7B687EE24BBA85F0E595DD411FE9B28F54487B8
 magnet:?xt=urn:btih:A201C668F814A01D345F42949A86F8D40DF2809B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +496,8 @@ Chip (Чип) — первый компьютерный журнал в Евро
 ```bash
 magnet:?xt=urn:btih:DA5295B93AA9A7FCF0D932E7A3B35222F6FD69EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +523,8 @@ ARCHON | 444 проекта котеджей (2011) [ISO]
 magnet:?xt=urn:btih:C70E60391BC1A34A33F68B456FF6BC5F1FC6F52A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +548,8 @@ CHIP | CHIP - DVD приложение к журналу CHIP № 10 (октяб
 ```bash
 magnet:?xt=urn:btih:50FB880E618017FA3A383C4B75189A4A9EF25056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +578,8 @@ Javabegin | Адресная книга на JavaFX + БД SQLite (2019) [unpack
 magnet:?xt=urn:btih:1B8018BD5D6335D30C7A74FACDE14F00EDB1D012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ Chip — первый компьютерный журнал в Европе, с�
 magnet:?xt=urn:btih:91A88027832675EEB1E4F10A3E054C9387FC5FA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ TeachVideo | Google Picasa 3. Обучающий видеокурс [2010] [EXE]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ TeachVideo | Google Picasa 3. Обучающий видеокурс [2010] [EXE]
 magnet:?xt=urn:btih:A6F69FB424E56AC2E385006ABBB1FAA80A89056F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:A6F69FB424E56AC2E385006ABBB1FAA80A89056F
 magnet:?xt=urn:btih:14DE27700E77DEA86049EBE5E4F0FF9BE4D60532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ magnet:?xt=urn:btih:14DE27700E77DEA86049EBE5E4F0FF9BE4D60532
 ```bash
 magnet:?xt=urn:btih:BBA79D4BCF4710E0A992C9D0EE8D84EFF6B21E81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

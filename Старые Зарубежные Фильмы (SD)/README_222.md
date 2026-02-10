@@ -1,27 +1,3 @@
-###  Публикация: 1350714   (1002899) от 07.01.2020
-
-Школа Малибу / Malibu High (1979) BDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда парень бросает старшеклассницу, ее успеваемость резко падает. Чтобы избежать неудачи, она начинает соблазнять своих учителей — мужчин. Так начинается ее нисходящая спираль к наркомании и проституции и, в конечном итоге, к убийству босса мафии.Производство: США / Crown International Pictures, Star CinemaЖанр: Триллер, Драма, КриминалРежиссер: Ирвин БервикАктеры: Джилл Лэнсинг, Стюарт Тейлор, Кэти Джонсон, Уоллес Эрл, Алекс Манн, Тэмми Тейлор, Гарт Пиллсбери, Джон Хэрмон, Джон Йэтс, Джеймс ДевниПеревод: Авторский, Ю. СербинСубтитры: Английские (Full, SDH)Продолжительность: 01:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32641737104AE2C83042794013631CE14D4A5FB3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487808   (1003062) от 07.08.2021
 
 Современная Золушка / A Modern Cinderella (1910) WEBRip [H.264]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:32641737104AE2C83042794013631CE14D4A5FB3
 ```bash
 magnet:?xt=urn:btih:D985E8D251C88CE1C74BDCA6475EED4ADD3B6D7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:D985E8D251C88CE1C74BDCA6475EED4ADD3B6D7E
 magnet:?xt=urn:btih:26CCB8793AEB69BD2502A68D32915C164098B08C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:26CCB8793AEB69BD2502A68D32915C164098B08C
 magnet:?xt=urn:btih:A1572BA18E7D7D9EB23AFC8B81A67E47DDED3F18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +96,8 @@ magnet:?xt=urn:btih:A1572BA18E7D7D9EB23AFC8B81A67E47DDED3F18
 ```bash
 magnet:?xt=urn:btih:6AC6AF9313DB1945D50CDBDF571A5B6E97520ED7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:6AC6AF9313DB1945D50CDBDF571A5B6E97520ED7
 magnet:?xt=urn:btih:3E077305589C18189F8567E573E0C1AFC6920F9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:3E077305589C18189F8567E573E0C1AFC6920F9E
 ```bash
 magnet:?xt=urn:btih:A55C63D57BF8583CB83D8BB6F3111AE246B2A5CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +177,8 @@ magnet:?xt=urn:btih:A55C63D57BF8583CB83D8BB6F3111AE246B2A5CA
 magnet:?xt=urn:btih:849BE1F9F72E93CCA987B210B31CDD6AD8E9D014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +204,8 @@ magnet:?xt=urn:btih:849BE1F9F72E93CCA987B210B31CDD6AD8E9D014
 magnet:?xt=urn:btih:EF027F33CA59C6E588026C8813AD672436FC9027
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +229,8 @@ magnet:?xt=urn:btih:EF027F33CA59C6E588026C8813AD672436FC9027
 ```bash
 magnet:?xt=urn:btih:D60E6E209167C0E7888A195F72F045838F986E72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +256,8 @@ magnet:?xt=urn:btih:D60E6E209167C0E7888A195F72F045838F986E72
 magnet:?xt=urn:btih:29EB5E3D48987B37C662E42630741170F6DE39A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +281,8 @@ magnet:?xt=urn:btih:29EB5E3D48987B37C662E42630741170F6DE39A5
 ```bash
 magnet:?xt=urn:btih:B99C068C49FB88F608E604E1DD048751B3140C22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +309,8 @@ magnet:?xt=urn:btih:B99C068C49FB88F608E604E1DD048751B3140C22
 magnet:?xt=urn:btih:DFAEA31E104B4C4D669FDB4793B9973AE49AB2FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +336,8 @@ magnet:?xt=urn:btih:DFAEA31E104B4C4D669FDB4793B9973AE49AB2FC
 magnet:?xt=urn:btih:136F2100E8B9B54352AAA279871A891337866A5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +361,8 @@ magnet:?xt=urn:btih:136F2100E8B9B54352AAA279871A891337866A5B
 ```bash
 magnet:?xt=urn:btih:C37CE3D410D1B8DE032F59EB5F627E26D0438CD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +388,8 @@ magnet:?xt=urn:btih:C37CE3D410D1B8DE032F59EB5F627E26D0438CD9
 magnet:?xt=urn:btih:CFC126218224E12996F5AE03FC37414118F72133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +413,8 @@ magnet:?xt=urn:btih:CFC126218224E12996F5AE03FC37414118F72133
 ```bash
 magnet:?xt=urn:btih:330C4D4F62BF9A98CE4B08D42E852A34930E41D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +440,8 @@ magnet:?xt=urn:btih:330C4D4F62BF9A98CE4B08D42E852A34930E41D1
 magnet:?xt=urn:btih:8D8547210125EAA1F41AD02E95BECAB497697473
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +466,8 @@ magnet:?xt=urn:btih:8D8547210125EAA1F41AD02E95BECAB497697473
 magnet:?xt=urn:btih:BBE257A680D407E8167C3C186D2CA9F2E3B3CA43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +491,8 @@ magnet:?xt=urn:btih:BBE257A680D407E8167C3C186D2CA9F2E3B3CA43
 ```bash
 magnet:?xt=urn:btih:0BC758740E928BFAF4DA7B3DC3B32689211422DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +519,8 @@ magnet:?xt=urn:btih:0BC758740E928BFAF4DA7B3DC3B32689211422DD
 magnet:?xt=urn:btih:79B9F9A12E62054A425902A1D9BC80A9B78DED0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +544,8 @@ magnet:?xt=urn:btih:79B9F9A12E62054A425902A1D9BC80A9B78DED0D
 ```bash
 magnet:?xt=urn:btih:29D1B4C1108F716A8D949300B09C2203DD60CAF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +571,8 @@ magnet:?xt=urn:btih:29D1B4C1108F716A8D949300B09C2203DD60CAF2
 magnet:?xt=urn:btih:D73E3B336B41F99EDE66F32432EE8B179A08CE3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +596,8 @@ magnet:?xt=urn:btih:D73E3B336B41F99EDE66F32432EE8B179A08CE3F
 ```bash
 magnet:?xt=urn:btih:E88CAD0611B87A02339778C418015DA6B4B8C94D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +623,8 @@ magnet:?xt=urn:btih:E88CAD0611B87A02339778C418015DA6B4B8C94D
 magnet:?xt=urn:btih:07779724FADC19EA57AC06021033FD44C2F4A142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +648,34 @@ magnet:?xt=urn:btih:07779724FADC19EA57AC06021033FD44C2F4A142
 ```bash
 magnet:?xt=urn:btih:8FBF2526C177ED0C3688345C7F574A98C9A753D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483480   (1006891) от 13.07.2021
+
+Мэйбл Норманд. Инструктор танцев / The Nickel-Hopper (1926) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пэдди по ночам за гроши работает инструктором танцев в клубе, а днём моет полы и сидит с чужими детьми. Ещё и её отец выгонят всех парней, которые хотят с ней познакомиться. Вообщем, беспросветность полная. И вот однажды Пэдди знакомится с ...Производство: СШАЖанр: Мелодрама, комедия, немое киноРежиссер: Ф. Ричард Джонс, Хэл ЙэтсАктеры: Мэйбл Норманд, Майкл Висарофф, Теодор фон Илтц, Джимми Андерсон, Маргарет Седдон, Милдред Корнман, William Courtright, Джеймс Финлейсон, Оливер Харди, Борис КарлоффПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:194C55220EBA0495A37CD1B8C66F03EC9B18BCA7
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

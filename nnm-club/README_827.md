@@ -22,6 +22,8 @@ VA - Virus [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:B0671EA958E11F15005400A590500EECB0949884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:B0671EA958E11F15005400A590500EECB0949884
 magnet:?xt=urn:btih:7B37A1510AD20246DB870C1ADC167498BC796B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:7B37A1510AD20246DB870C1ADC167498BC796B13
 ```bash
 magnet:?xt=urn:btih:1E05FA21C2E4188BF4EB3398A38305A8F61545CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ PDF24 Creator - бесплатная программа, которая позв
 magnet:?xt=urn:btih:440FE3E69C94DDD3679F91E93285A430A623259E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Lanpirot | Товарищ "Чума" (Книга 5). (2025) [MP3, Виктор �
 ```bash
 magnet:?xt=urn:btih:9CAC1FE61701594D699CBE7016BD80DBBC3EB2A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:9CAC1FE61701594D699CBE7016BD80DBBC3EB2A5
 magnet:?xt=urn:btih:6051EAEB3EEB90292B84CFD359E013354B9BD5A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Lanpirot | Товарищ "Чума" (Книга 4). (2025) [MP3, Виктор �
 magnet:?xt=urn:btih:3219225ED327BC1B49306349540816E7964F3B7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:99C3C418B9ABD6E6228C31FC6BA173D31EF302A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:99C3C418B9ABD6E6228C31FC6BA173D31EF302A3
 magnet:?xt=urn:btih:907113FA0BE119A4FBB1ACAAAD3F3DA095EBCB10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ MassTube Plus — очень простая в использовании про
 ```bash
 magnet:?xt=urn:btih:20D02D672DC815F6942851DE06B1E2FC1794C111
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:20D02D672DC815F6942851DE06B1E2FC1794C111
 magnet:?xt=urn:btih:5615AC3FD1AEFE5E1EE8C10B702D7DF835B03380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Cinemaster: Cinema Simulator (2025) [Ru/Multi] (1.6) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A42631DF0B19FAA496A3269339A91A709FA8B0F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Skulltide (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:E9C2981A923147811577A050B213EFE28F06D4DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:E9C2981A923147811577A050B213EFE28F06D4DF
 ```bash
 magnet:?xt=urn:btih:5276552A97AADD41064A032A79CE0A96292A7DED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:5276552A97AADD41064A032A79CE0A96292A7DED
 magnet:?xt=urn:btih:F6A8AD19F9592C125F8A2BF5AA80BDB0EBC1BCF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ South of Midnight (2025) [Ru/Multi] (1.1.2 185185) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:D92273FFCF314FCC7DE1AAAB39FECF17C792DE26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:D92273FFCF314FCC7DE1AAAB39FECF17C792DE26
 magnet:?xt=urn:btih:D65F5DB98C9E7C10B4165E0FCD69DB6E220A611B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ WinCatalog - это простая в использовании програм�
 magnet:?xt=urn:btih:66882B5A436379BF07B9ACB0FD1F1CD4BBA696FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Commandos: Origins (2025) [Ru/Multi] (1.0.0.74101/dlc) Repack seleZen [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:C1433C2B4A9C6307149CA3011195C083206B6502
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:C1433C2B4A9C6307149CA3011195C083206B6502
 magnet:?xt=urn:btih:8489E36D774DD9B8E74366B37C1856CC69C673AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:8489E36D774DD9B8E74366B37C1856CC69C673AA
 ```bash
 magnet:?xt=urn:btih:E5D0BCA56BA4708751576B0B64C8C8CAD0CFDB02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:E5D0BCA56BA4708751576B0B64C8C8CAD0CFDB02
 magnet:?xt=urn:btih:6ABFFA9E109EB3DE1C887C808638DE288206663B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:6ABFFA9E109EB3DE1C887C808638DE288206663B
 ```bash
 magnet:?xt=urn:btih:37BD609E04CBF96258D5BD0809F1F019629F17B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:37BD609E04CBF96258D5BD0809F1F019629F17B1
 magnet:?xt=urn:btih:AFA4FA730E6E3D71FF7798282FA9326855764340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ Mass Effect (2021) [Ru/En] (2.0.0.48602/dlc) Repack Wanterlude [Legendary Editio
 ```bash
 magnet:?xt=urn:btih:37707820E3B3D3C6DA8BE227952293352B70F815
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +685,8 @@ Zerocoder, Вадим Михалев | Зерокодер на Bubble (2020) WEB
 ```bash
 magnet:?xt=urn:btih:96AA2209DE7BEA36042968816619AF23A2EC27D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

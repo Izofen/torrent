@@ -28,6 +28,8 @@ VA - NOW That's What I Call Classic Rock Hits (2012) [MP3|256 кб/с]<2012>
 magnet:?xt=urn:btih:7981573C41848F4581823C2D003C7ED6E8978548
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ Dj Faust - 4 альбома (2009-2012) [MP3|192-320 kbps]<Ambient, RnB, Chill, 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -85,6 +89,8 @@ The Tuttles: Madcap Misadventures {0.99b} (P) [En] 2007
 magnet:?xt=urn:btih:F58222B5146598A1C5E516E3E86DEA1416352061
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ magnet:?xt=urn:btih:F58222B5146598A1C5E516E3E86DEA1416352061
 ```bash
 magnet:?xt=urn:btih:BA66844CC62E7FB988D9402BF48A949443B38346
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -134,6 +142,8 @@ magnet:?xt=urn:btih:BA66844CC62E7FB988D9402BF48A949443B38346
 ```bash
 magnet:?xt=urn:btih:1C4DC14FE7142648D8D837BE35B4F98FA64DF745
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +178,8 @@ Lacrimas Profundere - 9 albums (1995-2010) [FLAC/APE|Lossless] <Gothic Doom Meta
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +204,8 @@ Lacrimas Profundere - 9 albums (1995-2010) [FLAC/APE|Lossless] <Gothic Doom Meta
 magnet:?xt=urn:btih:22715405212D50713819621B2D1A39434BA183E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +229,8 @@ magnet:?xt=urn:btih:22715405212D50713819621B2D1A39434BA183E1
 ```bash
 magnet:?xt=urn:btih:F5F9449313A1E635CC172C3FB94ABDC5FB7EE5CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ magnet:?xt=urn:btih:F5F9449313A1E635CC172C3FB94ABDC5FB7EE5CD
 ```bash
 magnet:?xt=urn:btih:827B369B6C1D6A4BE46BC47D088EB257ED554AF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +296,8 @@ VA - Радио Energy - NRJ HOT30 (31.05.2012) [MP3|320 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:B2B5B4F90BB979648AB50A9202F273E65724FEB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +321,8 @@ magnet:?xt=urn:btih:B2B5B4F90BB979648AB50A9202F273E65724FEB0
 ```bash
 magnet:?xt=urn:btih:C71D63AC662C3AFF6CFE90FF2972DDB7243A4743
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +348,8 @@ magnet:?xt=urn:btih:C71D63AC662C3AFF6CFE90FF2972DDB7243A4743
 magnet:?xt=urn:btih:78A23A8EE746F246DD702A04E1B366975459B0B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +373,8 @@ magnet:?xt=urn:btih:78A23A8EE746F246DD702A04E1B366975459B0B1
 ```bash
 magnet:?xt=urn:btih:86078FE2B9AC36EA948B4FD962C49A916F0DF9C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +400,8 @@ magnet:?xt=urn:btih:86078FE2B9AC36EA948B4FD962C49A916F0DF9C1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ magnet:?xt=urn:btih:86078FE2B9AC36EA948B4FD962C49A916F0DF9C1
 ```bash
 magnet:?xt=urn:btih:2FE9118443B6B7E805912597A3C81FF6F53E28D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +452,8 @@ magnet:?xt=urn:btih:2FE9118443B6B7E805912597A3C81FF6F53E28D5
 ```bash
 magnet:?xt=urn:btih:9D8A32DDB5608138541A6D6CC1C6B2BC99FE79C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +482,8 @@ magnet:?xt=urn:btih:9D8A32DDB5608138541A6D6CC1C6B2BC99FE79C5
 magnet:?xt=urn:btih:A8E0E53FE3BF28D448EEFF1B32189A66E2E51CA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +508,8 @@ magnet:?xt=urn:btih:A8E0E53FE3BF28D448EEFF1B32189A66E2E51CA0
 magnet:?xt=urn:btih:9353F4501D68270BD879BD41CDB42C8D0512F1D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +533,8 @@ magnet:?xt=urn:btih:9353F4501D68270BD879BD41CDB42C8D0512F1D4
 ```bash
 magnet:?xt=urn:btih:E03ABE2C9D27E7D5D25D1026B878BCBC5E7E6156
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +562,8 @@ magnet:?xt=urn:btih:E03ABE2C9D27E7D5D25D1026B878BCBC5E7E6156
 magnet:?xt=urn:btih:9CAAEF60FD9F9F9C3443C0575677B48B0ADC4CE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +587,8 @@ magnet:?xt=urn:btih:9CAAEF60FD9F9F9C3443C0575677B48B0ADC4CE3
 ```bash
 magnet:?xt=urn:btih:ECA184C3C5FB79252F84D483056DD54916A44DD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +623,8 @@ VA - Bossa n' Madonna (2010) The Ultimate Electro-Bossa Tribute To Madonna [FLAC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +648,8 @@ Rоманы4 | Сборник анекдотов про ДОМ-2 (2008) [EXE]
 ```bash
 magnet:?xt=urn:btih:6BDE2D2D9094DD10D5E34C8C6C5FBB49C63DB9C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +676,8 @@ magnet:?xt=urn:btih:6BDE2D2D9094DD10D5E34C8C6C5FBB49C63DB9C3
 magnet:?xt=urn:btih:9F42B7A88EB295E2D418EBE7E1356248E8E8823C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +703,8 @@ magnet:?xt=urn:btih:9F42B7A88EB295E2D418EBE7E1356248E8E8823C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -687,6 +737,8 @@ magnet:?xt=urn:btih:9F42B7A88EB295E2D418EBE7E1356248E8E8823C
 ```bash
 magnet:?xt=urn:btih:78F2A5889C18830DF78CD32A11B426E72F2A6D38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

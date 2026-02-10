@@ -22,6 +22,8 @@ Side A:
 magnet:?xt=urn:btih:26C0C4EE524952A83EF80D462A488C9CF55146D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ A4 Bleed(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic 
 ```bash
 magnet:?xt=urn:btih:F46037E3858D6AAE0DB92A4B0851C5E6334BD124
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ The Mission - английская рок -группа, образованна�
 magnet:?xt=urn:btih:0293A54AC82F7F78DFBF3B6C550A70E9B24CC1ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:0293A54AC82F7F78DFBF3B6C550A70E9B24CC1ED
 ```bash
 magnet:?xt=urn:btih:CFF6F8DCC1EF159D930BB916174765170AA54EA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Side A:
 magnet:?xt=urn:btih:6DCEACC1D0125A4C8AB39D886499204267272E1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ B1. Der Decken's Triumph(   Читать дальше...   )Жанр: Symphonic 
 ```bash
 magnet:?xt=urn:btih:A85B302155E9D54E64D71050186124036DE25D80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Swallow the Sun — финская группа из Йювяскюля, осн�
 magnet:?xt=urn:btih:C43FC1B90DBC99B4E9153207DA5894F9AB1C1352
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ A4 Capture Of Fire(   Читать дальше...   )Жанр: Death, Doom Meta
 ```bash
 magnet:?xt=urn:btih:D7C4217F949E17F13F253737210D4124E05CB6FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ B1 - Gods of Babylon(   Читать дальше...   )Жанр: Progressive, G
 magnet:?xt=urn:btih:11AE5B0D3663E69980224660A739910366C09EF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ A4 Rotting Ways To Misery(   Читать дальше...   )Жанр: Death, Do
 magnet:?xt=urn:btih:690D9CAE2362CA0706FB1A876132B21D6AF33BB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +311,8 @@ A4 - Skulls Adorn The Traitor's Gate(   Читать дальше...   )Жанр
 ```bash
 magnet:?xt=urn:btih:4FA06595D62FEB50298EBC18DE98F4753D2661B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +342,8 @@ Zventa Sventana — российский музыкальный проект Т�
 magnet:?xt=urn:btih:49F554CE61C1C80EC79F605881517A0D81C07CB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +370,8 @@ Space Chaser — немецкая трэш-метал-группа из Берл
 ```bash
 magnet:?xt=urn:btih:6472F98FB26B9CC9F802692A05E93AA5576B4E9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +400,8 @@ B1 - Hiidenpelto Including Häpeän Hiljaiset Vedet(   Читать дальше
 magnet:?xt=urn:btih:14A5B1995B612EFFACDE0A6095C4C423FD3E83E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ Cryptosis - голландская метал-группа, сформирова
 ```bash
 magnet:?xt=urn:btih:7E65845E4D2717CD66D2BA7628A0B010C5C12B85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +458,8 @@ Kayser - трэш-метал группа из Хельсингборга, Шв�
 magnet:?xt=urn:btih:4065AB796F73AE9ED637A6EB358F5F190F3A5B33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ Thrashist Regime - трэш-метал группа из Абердина, Шо�
 ```bash
 magnet:?xt=urn:btih:8E04E0BBB62A77B84E681ADC9E5A5F60E417EF72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ Adversor - трэш-метал группа из Италии, сформиро�
 magnet:?xt=urn:btih:16E46757FB9190B28A20736500DEB64C388A4D5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ Fatal Embrace - метал-группа из Варберга, Швеция. Б�
 magnet:?xt=urn:btih:B510205E1DEEE2394E91EC0CAA5FFDE43D65B4D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +567,8 @@ Asylum - метал-группа, образованная в Голд -Кост
 ```bash
 magnet:?xt=urn:btih:C3D626F2340CCD2A61EF8A4ED12B2CCA209BED8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +597,8 @@ A4 Body And Soul(   Читать дальше...   )Жанр: Folk, BluegrassП�
 magnet:?xt=urn:btih:33208A9C25F7FE841C24338C008F6BD33C983291
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +624,8 @@ Thrashfire - турецкая метал-группа, основанная в �
 ```bash
 magnet:?xt=urn:btih:60E025A726FE4BED589DE7273F818F6C3BE46AC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +654,8 @@ Harlott — австралийская метал-группа, образова
 magnet:?xt=urn:btih:1ED38E1E06E1E9B8379BB7486389ECF679E0CAE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +682,8 @@ Silent Stream of Godless Elegy - фолк-метал группа из Чехи�
 ```bash
 magnet:?xt=urn:btih:949EE514903372029284757FEB44927B32FD143B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +712,8 @@ Untimely Demise - канадская метал-группа из Саскату
 magnet:?xt=urn:btih:2CEF3EEEC755143695A0687DFE87B2F8B96A4D24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +740,8 @@ Sirrah - польская метал-группа, играющая в стил�
 ```bash
 magnet:?xt=urn:btih:827837427EC9DB8514073186E00439577922ABC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ doPDF — программа для преобразования докумен�
 magnet:?xt=urn:btih:F85D01D73F84950E868A7403CDE7CF6D7E456EB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ TaskPaper - простое приложение для создания и ве�
 ```bash
 magnet:?xt=urn:btih:6E0D4BCE068CBD5F43B4E0EABE4D78C0D17D94F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:6E0D4BCE068CBD5F43B4E0EABE4D78C0D17D94F4
 magnet:?xt=urn:btih:8C6E3B88E5F8192E3E26C59824A5F82A449EB5C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:8C6E3B88E5F8192E3E26C59824A5F82A449EB5C0
 magnet:?xt=urn:btih:5762BDDA4EDD1EAD98FB9AFE9EDDE8FEBDB5034F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:5762BDDA4EDD1EAD98FB9AFE9EDDE8FEBDB5034F
 magnet:?xt=urn:btih:31F92907C03C85180B5448AA9BD9DF2AD2E1BC04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:31F92907C03C85180B5448AA9BD9DF2AD2E1BC04
 ```bash
 magnet:?xt=urn:btih:A4CD3B59F553C9BA3C601DB7DCC3049010BBAA56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ The 69 Eyes - Death of Darkness (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic Ind
 magnet:?xt=urn:btih:4EE83B9B1BDA79EA8928DB113BB5BE572E9800CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:4EE83B9B1BDA79EA8928DB113BB5BE572E9800CF
 ```bash
 magnet:?xt=urn:btih:D6861BB78DFCCF3D5E3B55660AE1DED6EE963EED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ DirEqual - это инструмент сравнения папок, котор
 magnet:?xt=urn:btih:17709CDF0B90AA88B8380F6061BB980E86EE6A88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 ```bash
 magnet:?xt=urn:btih:28070A5BB46D027913B7B27D6E5A3DBE2447E9DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ Jethro Tull - RökFlöte (2023) Japanese Edition [FLAC|Lossless|image + .cue] <P
 magnet:?xt=urn:btih:8B762C555F7F40A3B90648FAC168D73F8CC46633
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:8B762C555F7F40A3B90648FAC168D73F8CC46633
 magnet:?xt=urn:btih:40E61CB7183E02A227E4B7E97E2CAB6BFDB115FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:40E61CB7183E02A227E4B7E97E2CAB6BFDB115FD
 ```bash
 magnet:?xt=urn:btih:9C975F5416BA8B2927C1ECF77DA22532197F807E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ Mecca - Everlasting (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:0D043D8F662035EFDBCCAA25AF25AC001A363F33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ Multitouch 1.24.4 [En]
 ```bash
 magnet:?xt=urn:btih:DC00B13CC9F4626BA8687BFA256E556F2D6A2ED6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ Black Reflex - Black Reflex (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, F
 magnet:?xt=urn:btih:09FC34F6867F1D4A9920B8146D3BDD719691243D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ Woodsmith — журнал по столярному делу представл
 ```bash
 magnet:?xt=urn:btih:696FB1ADF8F7661C4BEC6C7913612710AAD1C364
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ VA - Quantize Soulful House Collection Vol. 1 - Compiled & Mixed By Renée Melen
 magnet:?xt=urn:btih:8787686BD27C794FF39BCF3B8F7EE068A39B736A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ Vulcanodon Phazer - 4 Albums (2019-2023) [MP3|320 Kbps] <Stoner, Doom Metal>
 magnet:?xt=urn:btih:C88D96BDFE324763F66A64E2BB94D08FA8D036B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:C88D96BDFE324763F66A64E2BB94D08FA8D036B0
 ```bash
 magnet:?xt=urn:btih:DA335964EE0533073F7E55C4988C92CC53B1C598
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:DA335964EE0533073F7E55C4988C92CC53B1C598
 magnet:?xt=urn:btih:4D55BBD9D9FB5175AF0494F9934CD8C3A1448FD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:4D55BBD9D9FB5175AF0494F9934CD8C3A1448FD7
 ```bash
 magnet:?xt=urn:btih:42B6895ADE8C2B0F3A3CF33717F0B540DFF949DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 ```bash
 magnet:?xt=urn:btih:19732E486D247A568A787ADE9E78B2316AF810F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ Hex A.D. - Funeral Tango for Gods & Men (2021) [FLAC|Lossless|WEB-DL|tracks] <Pr
 magnet:?xt=urn:btih:488FF4A79557868747B18837F7A914B86444B86D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ GeoGebra — мультиплатформенная программное об�
 ```bash
 magnet:?xt=urn:btih:8B91E36AAC63FEF8273E43C05D2E4B96F8321210
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +703,8 @@ Obelyskkh - The Ultimate Grace Of God (2023) [FLAC|Lossless|WEB-DL|tracks] <Psyc
 ```bash
 magnet:?xt=urn:btih:8FB12581374197DAA59E4DFA8CD9B66B8D019DBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

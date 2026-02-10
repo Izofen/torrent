@@ -1,27 +1,3 @@
-###  Публикация: 1296278   (409764) от 16.09.2019
-
-Ironsight (2018) [Ru] (1.3.369.62175.01) License
-
->>Win Игры
->>Online (MMO)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_409764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ironsight - это многопользовательский шутер, в котором игроки делятся на две группировки, а затем сражаются друг с другом с применением боевого оружия и гигантских роботов. Помимо этого, игроков ждет множество видов оружия, динамическая смена погоды, а также огромный простор для кастомизации.Тип издания: LicenseРазработчик: NNeowiz GamesЖанр: Action, MMO, 1st Person, ShooterЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD5387562DD14F369A1472168541DDA577CA6B9B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 559416   (410153) от 12.10.2012
 
 Forbidden Secrets: Alien Town Collector's Edition [En] (P) 2012
@@ -42,6 +18,8 @@ Forbidden Secrets: Alien Town Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:CCBB6128B3CF0932D699B471CBD6951BA8E4B2AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Forgotten Kingdoms: Dream of Ruin / Забытые Королевства: Ра�
 magnet:?xt=urn:btih:41C183E875F4E7786A765DCE63DBE3207CA20DB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Forgotten Kingdoms 2: The Ruby Ring / Забытые Королевства 2: �
 ```bash
 magnet:?xt=urn:btih:9839A3B0697E361EBC369A0FB15F421C539C68BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ The Secret Order 4: Beyond Time / Тайный орден 4: Вне времен
 magnet:?xt=urn:btih:2663625829000CDAB55917BD1558E9424DC2D06F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Overlord: Fellowship of Evil (2015) [En/Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:329F58366F4E71DF4BBB964C1A38977E65F4F20F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Man O' War: Corsair, просоленный морской экшен в зна�
 magnet:?xt=urn:btih:67CD17895C4C06699397AA79FC5A9E98C0FE396C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Galak-Z: The Dimensional - это приключенческая аркадна�
 ```bash
 magnet:?xt=urn:btih:D01FB9BE6D9E501581B5EE2B205C9CA4493FD531
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ BLOCK'HOOD (2016) [En] (0.80.16) License GOG
 magnet:?xt=urn:btih:A46072E1CA2CDF1E3DF0094E2D78161873555C21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (SC:6879) Repack xatab (об�
 ```bash
 magnet:?xt=urn:btih:C74E8897D294F138AFAD9B3D86988699EFED15E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ The Purring Quest (2015) [Ru/Multi] (1.8) License DOGE
 magnet:?xt=urn:btih:4D3FDDBC89201152D5A97C6E1A020927B4928D7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Serious Sam 4 (2020) [Ru/Multi] (1.03/dlc) License HOODLUM [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:CA1ABF115CB894F4267A5874A3CF21CA67C4B7F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Mayan Prophecies: Ship of Spirits. Collector's Edition / Проклятие Ма
 magnet:?xt=urn:btih:9B62BAB78F540682D0A1568CB2F720F5DE345223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ E.P.I.C.: Wishmaster Adventures / Э.П.О.С.: Дороги желаний [Ru]
 ```bash
 magnet:?xt=urn:btih:B11B470B7C14052B6D114337D1C199EAB51C19C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Hidden Mysteries: Royal Family Secrets / Секреты Королевской �
 magnet:?xt=urn:btih:F7112ADF423663089511AB3E0203A54D397D456A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Fairy Godmother Stories 3: Little Red Riding Hood (2020) [En] (1.0) Unofficial [
 ```bash
 magnet:?xt=urn:btih:11EB50AF62E372F6D4E22567014B122C4F1FEB11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.0.5) License GOG
 magnet:?xt=urn:btih:F5368F6B541080DC0B909423DB23B9ED00A08EFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ The Bridge Curse Road to Salvation (2022) [Multi] (1.5.6) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FC860DAAB58D6346A7F0384151BE607341E691FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Sheltered (2016) [Ru/Multi] (1.9) License GOG
 magnet:?xt=urn:btih:D08240044E57B7BC803A64C045A633B157DD1056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Mystery Trackers 4: The Four Aces [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:A661A9AA29EADED7905B5C6FF373484B420939A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Sea of Solitude (2019) [Multi] (1.0.0.0) Repack Other s
 magnet:?xt=urn:btih:2CAF9DF5DF198BC834A5C0EABEE1E4A4FBEFFAFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Sea of Solitude (2019) [Multi] (1.0.0.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:1F340015E3801AC3C6BBE9C4CE954B8F8BCA5EFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Rezrog (2017) [Ru/En] (1.1.0) License GOG
 magnet:?xt=urn:btih:EEA77C5802BBB3985B47A6ABABFC37EB02856157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Assassin's Creed: Liberation HD (2014) [Ru/En] (1.0/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:2EDEAAF304D069F7B67F0EAA02947A42CFD97320
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ Trapped Dead: Lockdown - это тактическая стратегия в р�
 magnet:?xt=urn:btih:6CAB0309A19EAA841CE8FDF3B35E6846F66719C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ Evoland 2 Русификатор (2015) [Ru] (1.0) Бaton & co
 ```bash
 magnet:?xt=urn:btih:32B161C11CE8FCC4A33F0B005AC73A4E167CC834
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412851   (413151) от 01.10.2020
+
+Projection: First Light (2020) [Ru/Multi] (2.0.1.0) Repack Other s
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_413151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Projection: First Light рассказывает о приключениях девочки по имени Грета, которая живет в таинственном мире кукол, играющих в театре теней. Она отправляется в путешествие в сопровождении легендарных героев культур, которые она изучает.Тип издания: RepackРазработчик: Shadowplay Studios, Sweaty Chair, Blowfish StudiosЖанр: Adventure, Platform, Puzzle, 2DЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78D382E2B8016248D9B498904BEE48071C8B7381
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

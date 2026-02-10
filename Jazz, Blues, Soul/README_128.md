@@ -22,6 +22,8 @@ David Wilson - Easy to Love: The Music of Cole Porter (2001) Swallowtail Records
 magnet:?xt=urn:btih:3798AF354D56AA7617DFCD68432B2AC66DBA5370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ David Wilson - There's A Small Hotel (1997) Swallowtail Records [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:622D88408B66E9E37B9216D952BAB87A12DA44E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ David Wilson - Romance of Christmas (1999) Swallowtail Records [FLAC|Lossless|tr
 magnet:?xt=urn:btih:E08FB082DFBD7D31D9B772D84996AA600D8DB854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Kenny Dorham - The Arrival Of Kenny Dorham (1960) 1997, Venus Records [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:D85F542665376E47473FCC078E497C212062D251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Paul Quinichette - Basie Reunion (1958) 2000, Original Jazz Classics [APE|Lossle
 magnet:?xt=urn:btih:EE1C21031F4AED23B4D28836D9CE4F942419454C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Sven Erik Lundeqvist Trio - First & Foremost (2018) Storyville Records [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:5A42D03C12CB340C9400E38F6C7BC65A80C36F04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Artie Shaw - 1946-1950 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big
 magnet:?xt=urn:btih:051705D430492E9BDA848730DC3A18202AB4D84F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ CD1 - Chet Sings:
 ```bash
 magnet:?xt=urn:btih:D50C0160B36E0A5590B5D6572A39B39CF8802661
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Lee Morgan - The Complete Recordings (1956 - 1962) 6CD, 2015, Enlightenment [FLA
 magnet:?xt=urn:btih:D486B921691C1FC665E661EBECF201786EB52207
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Lew Tabackin - Live At Vartan Jazz (1994) Vartan Jazz [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:6266A07DCEA77E787A9BAFD5B49200675996E641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Steve Draper Quartet - Have A Very Mellow Christmas (1999) Self-Released [FLAC|L
 magnet:?xt=urn:btih:8E9FAA1810CDEDC4D14CE5725F686E740688117C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Lee Morgan - The Rumproller (1965) 1987, Blue Note [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:2508F50BE02F3BA1AF22EA390985433771D6BB58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +374,8 @@ Jay Gordon And The Penetrators - Fresh Blood-Live-New Life (2009) [MP3|320 кб/
 magnet:?xt=urn:btih:25949E2F077231705662229314CC3F6912AB0ACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +402,8 @@ Norah Jones - First Sessions (2001) Japan 2017 [FLAC|Lossless|image + .cue] <Voc
 ```bash
 magnet:?xt=urn:btih:4192FC633F17B92EBCAE8E00E78B46F69640D49C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +432,8 @@ VA - Southern Blues Rock (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:BB82CE99487CA3FA974A192EDF2003D8B2A72E24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +460,8 @@ Aryan King - Juliet (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:D7319749762FAF31DB466A3C628DED1A9F529C64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +490,8 @@ Bluejaf - Blues Coffee (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:1A869C19BD1EDDC31D41A1D80A2B1883B01F4D01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +519,8 @@ Craig Payne - A Long Time Coming (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 magnet:?xt=urn:btih:2F876101E7A9D5904997A314693711C5FD817EE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +547,8 @@ Apollo Motel - Greytown (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:FF85086C3BD8CBA620B130AA3B1BB85CA5D3139B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +583,8 @@ Duke Ellington - Afro Bossa & Concert In The Virgin Islands (2001) [FLAC|Lossles
 magnet:?xt=urn:btih:D54FD1DA71008BB99366694CA80D9B039D55F731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +611,8 @@ Bohren & Der Club Of Gore - Black Earth (2002) [FLAC|Lossless|tracks + .cue] <Fu
 ```bash
 magnet:?xt=urn:btih:26EF496B2397A40971C13568FC1A9BF9129A0516
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +647,8 @@ Marta Topferova - Sueno Verde (2000) [FLAC|Lossless]<Vocal Jazz, Latin>
 magnet:?xt=urn:btih:A0297DF6B4D72BC780FA36BF2A3D926E970A9E21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +680,8 @@ John Verity Band - Say Why? (2007) [MP3|320 кб/с]<Blues Rock>
 magnet:?xt=urn:btih:87B32EF30601DBED957CAFBC18384AAD29A00D8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +708,8 @@ Tony Joe White - The Path Of A Decent Groove (1993) [APE|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:003645CD5C2BFB7234602981E7464BEE03ABF3CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -694,6 +742,8 @@ Duke Ellington - Afro-Eurasian Eclipse (1999) [FLAC|Lossless]<Jazz, Swing, Big B
 magnet:?xt=urn:btih:3EE390F90320CC12C9C3202A3211BDBA3319F42A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -720,6 +770,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:6A16DA5AAA4DD627E4929628A00B9DBB565C6BCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

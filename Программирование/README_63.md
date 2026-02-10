@@ -19,6 +19,8 @@ Haksun Li, PhD | Numerical Methods Using Kotlin (2023) [PDF] [EN]
 magnet:?xt=urn:btih:CDD96108A304511FE169FDC6E5AB52B66F375E9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:CDD96108A304511FE169FDC6E5AB52B66F375E9D
 ```bash
 magnet:?xt=urn:btih:92DDEC683963CDF60BF4DF9CEBA7B5E7C29BE08C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:92DDEC683963CDF60BF4DF9CEBA7B5E7C29BE08C
 magnet:?xt=urn:btih:48C9826E01D1518F8F5D117921A02E194FEEE38C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:48C9826E01D1518F8F5D117921A02E194FEEE38C
 ```bash
 magnet:?xt=urn:btih:8333910766A7604F2E79D7568E457355D80F63E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:8333910766A7604F2E79D7568E457355D80F63E6
 magnet:?xt=urn:btih:F22B246A16818E14FB814A994975BFDBB43BD594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Doug Lowe | Java All-in-One For Dummies, 7th Edition (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:192BA4911EB529977C1C0CB916CAAB1876F1E28B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:192BA4911EB529977C1C0CB916CAAB1876F1E28B
 magnet:?xt=urn:btih:C99CF5DD177BA7660EA469BC050AB7610C64D33B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:C99CF5DD177BA7660EA469BC050AB7610C64D33B
 magnet:?xt=urn:btih:4289D9A8225A342AD1684425DE0C0A3D68A707DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:4289D9A8225A342AD1684425DE0C0A3D68A707DD
 ```bash
 magnet:?xt=urn:btih:E361E3F07F543BE3CE5355949DCF341E2232F097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:E361E3F07F543BE3CE5355949DCF341E2232F097
 magnet:?xt=urn:btih:7EBF2B8225E27A4C39AE98DED1B922B786E69122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ This book is all about making your Python better. To help you manage your codeba
 magnet:?xt=urn:btih:0FE2C4B0C74FE1211D95F67E0828B11CCDB41DDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:0FE2C4B0C74FE1211D95F67E0828B11CCDB41DDB
 ```bash
 magnet:?xt=urn:btih:A271525E46EFC292D7C3A3A4FAE9A07BF3517B94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ All programs (   Читать дальше...   )Жанр: Программар
 magnet:?xt=urn:btih:A3D067E85DD3458D4A5E046EB8CBB407F5C678AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Python — язык программирования №1 для машинно�
 ```bash
 magnet:?xt=urn:btih:224BFEAC12AF9E1FD9662A89879D8CDB2A994152
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:224BFEAC12AF9E1FD9662A89879D8CDB2A994152
 magnet:?xt=urn:btih:99650C670F8C86B4D34A563D733F150453D3878F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ The book in your hands is a different kind of programming book. Like an entertai
 ```bash
 magnet:?xt=urn:btih:53186AB7C88B023B446909F6CECF893D0C3E301A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:53186AB7C88B023B446909F6CECF893D0C3E301A
 magnet:?xt=urn:btih:AFE3A6A1D47E6BAB3BED64C9AE8C909F227BE86F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Justin Seitz, Tim Arnold | Black Hat Python: Программирование Py
 ```bash
 magnet:?xt=urn:btih:BF8174DC99DA322CBBECCAAFD90BB8D4B1009A58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:BF8174DC99DA322CBBECCAAFD90BB8D4B1009A58
 magnet:?xt=urn:btih:49B3A6032EA82228B337EF068751041C6844B0CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:49B3A6032EA82228B337EF068751041C6844B0CC
 ```bash
 magnet:?xt=urn:btih:B2D48FFA0DBAC4B5E37E41A991A071EE47A4EE32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Learn how to be a more productive Vue developer by writing simple, easy to under
 magnet:?xt=urn:btih:1B24630A16FCB27B2523ED7E3EAF4165FBBC11D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:1B24630A16FCB27B2523ED7E3EAF4165FBBC11D8
 ```bash
 magnet:?xt=urn:btih:1AF001734CD273C83DC24B3C542E65E33DF563C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:1AF001734CD273C83DC24B3C542E65E33DF563C8
 magnet:?xt=urn:btih:1725A15CADD31E3FFFB97958F221D46639A3AA5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ hon — простой в изучении и практическом испо�
 ```bash
 magnet:?xt=urn:btih:9C6BE2B08A39B53D7F9CDFB2D2ADEFD27827611A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:9C6BE2B08A39B53D7F9CDFB2D2ADEFD27827611A
 magnet:?xt=urn:btih:71B0AB6EFA51F335EBE086F6A05A089C20167D74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:71B0AB6EFA51F335EBE086F6A05A089C20167D74
 ```bash
 magnet:?xt=urn:btih:7C0D9BF90CB39BA3B4CD6C71320B707BF246DADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ D-Mad Devil - One With the Darkness (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:021935761644F1FD0A4A0DF13906CE969DA5B216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:021935761644F1FD0A4A0DF13906CE969DA5B216
 ```bash
 magnet:?xt=urn:btih:4984501A8A0196EB239205AA97A76672B9C62510
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Butterfly Temple - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Meta
 magnet:?xt=urn:btih:6B8DE5631C208DC157DAEE0A2DB1B33D8428233B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ VA - Black Hole Trance Music 09-23 (2023) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:72DF847A3D832960A9C3647EBF78D9B6EEEDFEB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ The Korea - Vorratokon (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alternative Met
 magnet:?xt=urn:btih:BF2832AC6965A1399ED883EAE7B0D9B95C51ACD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:BF2832AC6965A1399ED883EAE7B0D9B95C51ACD3
 ```bash
 magnet:?xt=urn:btih:645C80908053E50DFB94913A0A7A7C4B25FBE564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:645C80908053E50DFB94913A0A7A7C4B25FBE564
 magnet:?xt=urn:btih:49D7C9938B53661FB95EB381BF4A97D9304AE175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ ZEDGE - приложение в котором вы сможете найти н
 ```bash
 magnet:?xt=urn:btih:83C16A2CF8847016BF14670BD622154F87CAD884
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:83C16A2CF8847016BF14670BD622154F87CAD884
 magnet:?xt=urn:btih:852EE4665973236AD0604EF4D20669C1C5425689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Lucky Patcher (Лаки патчер) – отличное решение есл
 magnet:?xt=urn:btih:B5D8962DE755B108DB53B814A20D84F2D42BD496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:B5D8962DE755B108DB53B814A20D84F2D42BD496
 ```bash
 magnet:?xt=urn:btih:73FC6A8BCC54BD627C8A5DDFCEAC74A20B4DD838
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ Illvilja - Endless Rivers (2022) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 magnet:?xt=urn:btih:03B32048C2ADB140079F2E542CC343BE5B84A503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 ```bash
 magnet:?xt=urn:btih:2A220935DEBB0A41FD72F081E7B31DEF5A39A93A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ Wizards - Seven (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
 magnet:?xt=urn:btih:AD54E00EF714E950FB1E8DB69906D168111279FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:AD54E00EF714E950FB1E8DB69906D168111279FD
 ```bash
 magnet:?xt=urn:btih:18EB1778BF0D4655234899B3BC6BE0D378EBD5D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ Ever Since Eve - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-
 magnet:?xt=urn:btih:33C5BFE3E3361CD24D1716625EA0523ED31E3CDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:33C5BFE3E3361CD24D1716625EA0523ED31E3CDF
 magnet:?xt=urn:btih:8FE163A31ACAB306AF8E748AA775AB3A587C400E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:F9A60B55ED1FDF675D76FB2263D53D4781DA1D9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ Desert Dragon - 3 Albums (2012-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:BB2AE3061CB7B7ACE3D8B5A2321CE17F56348A8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ The Grey Curtain - The Florist (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive
 magnet:?xt=urn:btih:BDAE1703714F6DBB2E2F46BC59D4CCEB3FD73A2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ Opera GX - это специальная версия браузера Opera, с
 ```bash
 magnet:?xt=urn:btih:45B2A5BDFA951ADB9424E8CD08E0F132B9E23042
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +600,8 @@ Jerky Dirt - Chirality (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, 
 magnet:?xt=urn:btih:2F520D838B9E6C03543A083135FDDF9F661F943F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +628,8 @@ Rage of Angels - Rage of Angels (1989) [WavPack|32/192|image + .cue|Vinyl-Rip] <
 ```bash
 magnet:?xt=urn:btih:A6D7C9AEBC0D4384A673530831E5769B0CBA5784
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +658,8 @@ Eyes Wide Open - Through Life and Death (2022) Deluxe Edition [FLAC|Lossless|WEB
 magnet:?xt=urn:btih:8E8BDD5A5CF43695190ED75B29483BB38204B623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:8E8BDD5A5CF43695190ED75B29483BB38204B623
 ```bash
 magnet:?xt=urn:btih:B42D389107AA11225F8F01936B1CDAEE267CC8E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +712,8 @@ Hydranaut - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock'n'Roll, Ps
 ```bash
 magnet:?xt=urn:btih:A435C615A2D6AFDD59F29645E821BEC2E1CB44B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

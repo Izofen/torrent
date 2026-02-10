@@ -19,6 +19,8 @@ Wolcen: Lords of Mayhem — изометрическая экшен/ролева
 magnet:?xt=urn:btih:10E2B9E7369922EA62F9BCB5E7BAC226DAFB9196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ ASTROKILL — это аркадный космический симулятор,
 ```bash
 magnet:?xt=urn:btih:CDFC9D59D5EC6EBE5A63F35C46F04EABF85652C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sudden Strike 4 (2017) [En] (22.05.17) Repack VseTop
 magnet:?xt=urn:btih:840D515AE725BF7F20EA7D47268554F054BBF01D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Oxygen Not Included – это новый проект от нашумевшей
 ```bash
 magnet:?xt=urn:btih:86F73AB82F7E9301C8EB176A9AFE6D366DFED350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Bio Inc.: Redemption это сложный биомедицинский симу
 magnet:?xt=urn:btih:4C94960C8DF66C4F218B73F16FF952747E927E21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Youtubers Life - самый реалистичный симулятор летс
 ```bash
 magnet:?xt=urn:btih:61EFA97FBAC6D70B96CB61B97ED5A4D2B25AAEDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ House of the Dying Sun - это космический экшен с подде�
 magnet:?xt=urn:btih:4E37C74D9D9962FE667C2D3157258F5E6F2788E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Phantom Trigger - это аркадный слэшер с элементами R
 ```bash
 magnet:?xt=urn:btih:411059337840EDD556971903FFFC1C4C17523687
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ FARHOME – приключенческая, научно-фантастичес�
 magnet:?xt=urn:btih:073739851B17B086591E7E2A2C8BB2C81204F5EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Earthfall (2017) [En] (12644) Repack Other s
 ```bash
 magnet:?xt=urn:btih:74092ECC51DBCB1013E1E87589D72506BE971602
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Empyrion - галактическое выживание в открытом м�
 magnet:?xt=urn:btih:E15491FB018572E0278AA436A5A40E35435025B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Fatal Evidence: Cursed Island (2019) [En] (Beta) Unofficial
 ```bash
 magnet:?xt=urn:btih:905265C67AB9205225B325119204167EEA1C3576
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Raptors: Be A Dinosaur (2014) [En] (Beta) Repack John2s
 magnet:?xt=urn:btih:DED881DF8C4AF338BE0F64D32DE28589C826F731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Praey for the Gods — приключенческий экшен, который
 ```bash
 magnet:?xt=urn:btih:D0453828418271476012E6224C99F8DB06120DF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ RimWorld – это игра о колонистах, которые потер�
 magnet:?xt=urn:btih:8D13EB88FD9B6058C7DDF7DDBB1E28CB863E7FC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Distance – это аркадная гонка, выполненная в ст�
 ```bash
 magnet:?xt=urn:btih:791F1D25E81BE2B897D450812B658AD0E08CD470
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ On the Road - реалистичный симулятор грузовиков �
 magnet:?xt=urn:btih:0A695A6EF6C6E636922E48C86783E286E497CB41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Chimeras 9: Wailing Waters (2019) [En] (Beta) Unofficial
 ```bash
 magnet:?xt=urn:btih:55092E25B4F1F1BF7A7E53224E9F456E03E0F87C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ DillyBall почти классический марбл платформер. �
 magnet:?xt=urn:btih:66A4DB3E9AC1B8E52E82630B2B20992A0F7F59EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Need For Drink - это шуточная мультиплеерная игра, 
 ```bash
 magnet:?xt=urn:btih:3F291C27CF39A57AA1512ADC1CD7F87035E04220
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Ms. Holmes: The Monster of the Baskervilles (2019) [En] (Beta) Unofficial
 magnet:?xt=urn:btih:CEE87DF91B5C4FE2F972F2B0A72F85AB1B392EF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Fragmented - это спин-офф The Repopulation, онлайн-шутер с
 ```bash
 magnet:?xt=urn:btih:667EDD24657DBF90BABC43DD76EBF8643A5CC6CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ The Universim – это, наверно, самый масштабный сим
 magnet:?xt=urn:btih:1D5CF5FE26AC64664D8224BF48D11F65F9968C05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Abandon Ship – это приключенческая инди стратеги
 ```bash
 magnet:?xt=urn:btih:DD21D1086C97A1DE932EBFAEBD2885CB0972AB2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Stationeers – это космический конструктор с хоро
 magnet:?xt=urn:btih:7467AF37059BBDBF388728BDA64CE531EBF91CF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Lobotomy Corporation (2016) [Ru/Multi] (0.3.1.1b) Repack VseTop
 ```bash
 magnet:?xt=urn:btih:26E8C81C90FF7AE384991D2850C25642C14A3515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

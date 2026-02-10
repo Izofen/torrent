@@ -22,6 +22,8 @@ VA - FSOE Clandestine: Best Of (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:0C7AD9A588C203525019740E25D40716E9D259A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - The House of House (2019) [MP3|320 Kbps] <House, Club House>
 ```bash
 magnet:?xt=urn:btih:0AF30C66EDC81DA7FD240196C1400690D449004E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Drexciya - Neptune's Lair (1999) Tresor [FLAC|Lossless|tracks+.cue] <Electro, De
 magnet:?xt=urn:btih:F047C61C339118569404440F9007C6BC5A0B9FCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Best Of Soulful (2018) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:3E6C2D4837276B3FF315EE46926E1B96D504DE88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ System 7 & Derrick May - Mysterious Traveller (2002) A-Wave [FLAC|Lossless|track
 magnet:?xt=urn:btih:DBD8DF03380372DD33CFB4702EB4FC4C38173123
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Tears Of Change - Road To Beijing (2015) Rohs! Records [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:697C307082D9964A129CCAA0E7079073D4CE398C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ Speedy J (Jochem Paap, Electric Deluxe, Public Energy, Tune, Problem House, Coll
 ```bash
 magnet:?xt=urn:btih:A29C7D86AF8C4DC27E0D2C35053CB63B3FAD7091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ Robert Rich - Offering To The Morning Fog (2020) Soundscape [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:7B0EE08A029AAB10E96F985B458C68B58E4A2EC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ Advanced Dreams - Collection 4 Releases (2013-2015) [FLAC|Lossless|WEB-DL]<Dub T
 ```bash
 magnet:?xt=urn:btih:B4AB40A1DBA69EC1DC282CBFF7B654F410986A75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ Funkstörung (Funkstorung) - Viceversa (2001) Studio !K7 [FLAC|Lossless|tracks+.
 magnet:?xt=urn:btih:459932FAF14956B9F00B7584D3376B670BD3418C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ Matthias Meyer - Watergate 20 (2016) [FLAC|Lossless|tracks + .cue] <Deep House, 
 ```bash
 magnet:?xt=urn:btih:AC25229C14A2D7CC30608426BDA4FD70180982E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ VA - club.bit! (mixed by DJ Suhov) (2003) Promotional CD [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:0BCDE48CFADB2FB5F61CB34FDDBD8AAC6BCA4BF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ Omauha - Omauha (Remixed) (2016) [MP3|320 кб/с] <Breaks>
 ```bash
 magnet:?xt=urn:btih:1D927FCC8C709ACCFA5C7301C6D094741FAFC3D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ VA - Global DJ Broadcast: Top 20 January (2018) [FLAC|Lossless|WEB-DL|tracks] <T
 magnet:?xt=urn:btih:F56C8E0FD2299FB139B9243789137F554C7AB545
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ VA - DJ Зорькин - Приключения Электроника (1998) Ga
 ```bash
 magnet:?xt=urn:btih:DD90E93E32BFFC804DA9BA6DC8F86AAFEAD834CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ Forteba - Space Between Us (2007) [APE|Lossless|image + .cue] <Deep House, Tech 
 magnet:?xt=urn:btih:6104A61135EA7E0B0CF91E46168FA4F0D664F172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ Laliya - The Middle Way (2017) [MP3|320 Kbps] <Lounge, New Age>
 ```bash
 magnet:?xt=urn:btih:5F86CF719E4F4171BD363233DA5106963CE79775
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ VA - Hed Kandi 2017 (2016) [FLAC|Lossless|tracks] <Deep House, Vocal House, Soul
 magnet:?xt=urn:btih:BB1B29AA2BB8FAE0A71F4420F163938ECFD86C3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ VA - Winter Time Vol.6 (22 Premium Trax Chillout-Chillhouse-Downbeat-Lounge) (20
 ```bash
 magnet:?xt=urn:btih:9147A3AD7BCF1E645B8E18741DB2D3D004B6EEE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ Ludvig Cimbrelius - Dreaming The Night Sky (2018) Eternell [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:4A3A37DBC12E7A5DAB47D91B4EF38E7545DAC144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ VA - Petit Boutique Vol.3 (20 Lounge Accessoires) (2018) [MP3|320 Kbps] <Downtem
 ```bash
 magnet:?xt=urn:btih:7E03A7FE31D20AB75D6D170341DF5809819A4295
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ VA - Summer Dance Mania (2010) [FLAC|Lossless|tracks] <Trance, Euro House>
 magnet:?xt=urn:btih:0F6DDE774AD81A5B0C890349B3D60119D2CEE120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ Jaques Le Noir - Deep Mood (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu 
 ```bash
 magnet:?xt=urn:btih:D60D8ED0F65CCB20FD9A3CB870FBD701C418A56F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +686,8 @@ The KLF - Коллекция (1989 - 2010) [FLAC|Lossless|image + .cue] <Deep Ho
 magnet:?xt=urn:btih:9682F302DA9751B194BB93642222AC5B7D7558DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ Monolog - Discography 16 Releases (2001-2020) Tender Productions, Hymen Records,
 magnet:?xt=urn:btih:C1BE436A301F8065CE26D546AE05ACA6217F97F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ Blue Man Group - Three (2016) [MP3|320 кб/с] <Electronic, Experimental>
 ```bash
 magnet:?xt=urn:btih:A0CEC3262937F34474133F26EDFFC1ECB585AE5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

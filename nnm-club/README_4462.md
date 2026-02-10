@@ -19,6 +19,8 @@ Music Paradise Player - один из наиболее классных и мо�
 magnet:?xt=urn:btih:1804B915C773AC99FF6AA8F7FF891FE9A9D6E8F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:1804B915C773AC99FF6AA8F7FF891FE9A9D6E8F0
 magnet:?xt=urn:btih:18B29B1278E0660E46997C71B4EFDB75AC76268D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Industrial HiVision – программный пакет для комплек�
 magnet:?xt=urn:btih:F1B03ADBBE9AF5B8F18400E8AC9903DFDAA2B1D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:F1B03ADBBE9AF5B8F18400E8AC9903DFDAA2B1D6
 magnet:?xt=urn:btih:F1F70AA9303028006400019F161C79A0723738B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:F1F70AA9303028006400019F161C79A0723738B5
 ```bash
 magnet:?xt=urn:btih:03225E261F2689BB3F2E75BD16A5D0D18B692DF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ VA - CAVALRY 009 (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
 magnet:?xt=urn:btih:BF3014B597F4310EECAEB44E1CDC390C17845337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:BF3014B597F4310EECAEB44E1CDC390C17845337
 ```bash
 magnet:?xt=urn:btih:1C9EAEC33344BEFBC491E285FFAB9E44E4ED92CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Thomas Rossetti - Feel Nature EP (2019) Maintain Replay Records [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:872C0A3CF1803C26A5136A35A72839AC5F46C739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ Epicardiectomy - Abhorrent Stench Of Posthumous Gastrorectal Desecration (2012) 
 magnet:?xt=urn:btih:DE4FC8A0594563EEA2651A1A34E6876919BE2E77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 magnet:?xt=urn:btih:17FC87275D77E9759DE1DBE30ADAC8B1477214B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:17FC87275D77E9759DE1DBE30ADAC8B1477214B9
 ```bash
 magnet:?xt=urn:btih:B58BD90FF41DB0903FF688D97F427532620EA6ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ Kenny Dorham - The Arrival Of Kenny Dorham (1960) 1997, Venus Records [FLAC|Loss
 magnet:?xt=urn:btih:D85F542665376E47473FCC078E497C212062D251
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:D85F542665376E47473FCC078E497C212062D251
 ```bash
 magnet:?xt=urn:btih:3D182CC98F62C2281C08C29A9A836B6E60626CBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ Abattoir - The Only Safe Place (1986) [WavPack|Lossless]<Thrash Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ BELOFF 2020.12 Lite (Авторская раздача)
 magnet:?xt=urn:btih:A0E480536BC55AB5CCCAD843CC124227D614AF17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:A0E480536BC55AB5CCCAD843CC124227D614AF17
 ```bash
 magnet:?xt=urn:btih:19AF067BDBB2455268C2A9912F6F186ACD253CCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ VA - 5 Years Of Futura Groove Records (2018) [MP3|320 Kbps] <House, Tech House>
 ```bash
 magnet:?xt=urn:btih:C941A5238705224FDBEED771A57BE86FADDEA252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +501,8 @@ Atretic Intestine - Encased (2012) [MP3|320 кб/с]<Brutal Death>
 magnet:?xt=urn:btih:9C0BF7C6F06794E3D38A490799AA8187FFBC74E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +527,8 @@ magnet:?xt=urn:btih:9C0BF7C6F06794E3D38A490799AA8187FFBC74E4
 magnet:?xt=urn:btih:E75507E486F58369320764173A284002639C7524
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +552,8 @@ Coiro - Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House
 ```bash
 magnet:?xt=urn:btih:2C715C4007EDFC9ED253734A421726632D064EFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +582,8 @@ CD - 1:
 magnet:?xt=urn:btih:B0F05722D9BBA62E229AE8FA4E07F94DBFEE9B75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +608,8 @@ Magatsu Wahrheit: Zuerst | MWZ | Бедствие Вархайта [2020, TV, 12
 magnet:?xt=urn:btih:3631A3D41E6BABA358B9C50A1122BBE32F07E453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +633,8 @@ Kouya no Kotobuki Hikoutai | The Magnificent Kotobuki | Пустынная эс�
 ```bash
 magnet:?xt=urn:btih:9A9355D082ED6E0FABECCC01BA1E970FEA381D8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +661,8 @@ magnet:?xt=urn:btih:9A9355D082ED6E0FABECCC01BA1E970FEA381D8F
 ```bash
 magnet:?xt=urn:btih:C51900EA0B9C2C8ABB91E3D23D28FB2164D3A717
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +692,8 @@ P/S: Добавлены новинки с Новогодними клипами.
 magnet:?xt=urn:btih:9455AA7B2FA953AE2460FACD02467C8A0527438A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +719,8 @@ magnet:?xt=urn:btih:9455AA7B2FA953AE2460FACD02467C8A0527438A
 ```bash
 magnet:?xt=urn:btih:C51900EA0B9C2C8ABB91E3D23D28FB2164D3A717
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

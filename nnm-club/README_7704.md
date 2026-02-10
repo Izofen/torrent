@@ -22,6 +22,8 @@ Blutengel - Un:Sterblich: Our Souls Will Never Die (2023) [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:8D6BA49CD671A9B3477CD66045C3895C52FCFA55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ DuckDuckGo в рамках сделки с Microsoft не блокирует в 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ DuckDuckGo в рамках сделки с Microsoft не блокирует в 
 magnet:?xt=urn:btih:4664486DBEAB717B2E8A9969873F449460951424
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:4664486DBEAB717B2E8A9969873F449460951424
 magnet:?xt=urn:btih:A117E75444B0414CFC0704254296F2E1863B7B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:A117E75444B0414CFC0704254296F2E1863B7B25
 ```bash
 magnet:?xt=urn:btih:4B5E5D77B661ECFA06EE4B40D0058F18A0E57990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Tension Rising - The Last Judgement (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 magnet:?xt=urn:btih:6AA5133A380265F035AC32350A6E810F8BEA3C2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ VA - Ibiza Chillout 2022 (2022) [AAC|~302 Kbps] <Lounge, Chill Out, Downtempo>
 magnet:?xt=urn:btih:CD53AA715A9E87D6902A7492856F5AADE3A6CF04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:CD53AA715A9E87D6902A7492856F5AADE3A6CF04
 ```bash
 magnet:?xt=urn:btih:938E254A858C3B21A5D42F6563EA8E2759167993
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:938E254A858C3B21A5D42F6563EA8E2759167993
 magnet:?xt=urn:btih:FA677E46BA527EE8D267BE58C030799AAFCB9F96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ RJ TextEd - мощный текстовый редактор с большим �
 ```bash
 magnet:?xt=urn:btih:7AE3C77C6E9B3E4CE905625CAADAFC1763ED311D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:7AE3C77C6E9B3E4CE905625CAADAFC1763ED311D
 magnet:?xt=urn:btih:9F05BB810696544C4088A6C2BB2E978469A09B42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:9F05BB810696544C4088A6C2BB2E978469A09B42
 ```bash
 magnet:?xt=urn:btih:6367875810B8060C540EB9AD20E320F12680F536
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ T.G. Copperfield - Out In The Desert (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 magnet:?xt=urn:btih:0BA1ECD8F7FC817E8C1B743D069FA84C028BD3BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:0BA1ECD8F7FC817E8C1B743D069FA84C028BD3BF
 ```bash
 magnet:?xt=urn:btih:0A845476237E14DE8C838C485F4C09A03821CDAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:0A845476237E14DE8C838C485F4C09A03821CDAC
 magnet:?xt=urn:btih:C4B014C3B7AF5F8B968AA23A384DBE39630AB48A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ Machete - это удобная утилита для воспроизведен
 ```bash
 magnet:?xt=urn:btih:02B93135A33A2516AA702463A4C51C0375AB7841
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Rellik - Killer (2002) Compilation [FLAC|Lossless|image + .cue] <Power, Heavy Me
 magnet:?xt=urn:btih:B4DBDA4A6AED0E030D6038EDB8C566BA55D977B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:B4DBDA4A6AED0E030D6038EDB8C566BA55D977B7
 ```bash
 magnet:?xt=urn:btih:FD6511D890CAB8E9A043E19912C6A848CCFBF0F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ Monkey's Audio — данная утилита предназначена для
 magnet:?xt=urn:btih:E7A3A602CBFB9CD58BC62D32B1C13F6CCF986A1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:E7A3A602CBFB9CD58BC62D32B1C13F6CCF986A1C
 magnet:?xt=urn:btih:8E5C2D1C2F5DF99924EFCC5A21667DF02BB4FF91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:8E5C2D1C2F5DF99924EFCC5A21667DF02BB4FF91
 ```bash
 magnet:?xt=urn:btih:E4DE92B4020FE3BC74C7CFFC982F6319875CAF6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ CleanShot X предоставляет более 50 функций , что д�
 ```bash
 magnet:?xt=urn:btih:C70AEAC5C18543E8C02B2A855E800083BD49832E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ Chick Corea - 5 Original Albums (1973 - 1976) 5CD, 2016, Verve Records [FLAC|Los
 magnet:?xt=urn:btih:9E1C372C3B99902AAFE81BC28A6CDFF35D11137B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ Bright использует топ-метод интервального пов�
 ```bash
 magnet:?xt=urn:btih:514AA58CA9763CBF165178A70CEAB7DBDE88409E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ Gwen Hughes - Native Land (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Blues, Coun
 magnet:?xt=urn:btih:E7D3D84B83A01EA02859C095FD347F5501502B94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ Stray Gods - Olympus (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 ```bash
 magnet:?xt=urn:btih:B4219B11511DA8A7AE16D360D50B9E568681A8C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

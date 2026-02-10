@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7AB20A945360EF29990D42BF04D886991D45C4E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Mugen Gacha 9999! | Backstabbed in a Backwater Dungeon! | Бeскoнeчнaя гa
 magnet:?xt=urn:btih:5F90C2E1D6FEE7B0E0719A1EE1B10E725D6C7CA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:5F90C2E1D6FEE7B0E0719A1EE1B10E725D6C7CA8
 ```bash
 magnet:?xt=urn:btih:54F9F6D71EA9EFF496C9754FA3889EEA9E28124A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:54F9F6D71EA9EFF496C9754FA3889EEA9E28124A
 magnet:?xt=urn:btih:7F67348E6B5AFAA1BD3824500105645388ECAEA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:7F67348E6B5AFAA1BD3824500105645388ECAEA5
 magnet:?xt=urn:btih:11159F66F2BDD224FD52437501A15507331B729A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi Nodaga | My 
 ```bash
 magnet:?xt=urn:btih:65E05E6312DFCFE511DDAB8F0B7BF93D43610788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Naruto Shippuuden: Movie 8. Blood Prison / Наруто Ураганные хр�
 magnet:?xt=urn:btih:67F6A58E62021BC0DC67521574868C226DD833F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:67F6A58E62021BC0DC67521574868C226DD833F2
 ```bash
 magnet:?xt=urn:btih:654D9F7DE48C992931BCD8E795F0DFCA75E104DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:654D9F7DE48C992931BCD8E795F0DFCA75E104DC
 magnet:?xt=urn:btih:6576B4B1D5B5FE0DCBAEB1A4244066D68B8078E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:6576B4B1D5B5FE0DCBAEB1A4244066D68B8078E2
 ```bash
 magnet:?xt=urn:btih:0C48187F3CB7D359AB4709DEFE2A1F415A18789C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:0C48187F3CB7D359AB4709DEFE2A1F415A18789C
 magnet:?xt=urn:btih:0AC1500BBDFE925AECED5114529510495FA8B3B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Kaii to Otome to Kamikakushi | Mysterious Disappearances | Мистика, де�
 magnet:?xt=urn:btih:AAB2F9FAE52924D82ED58B87264D1A6CDAC09A31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Ji Jia Shou Shen: Baolie Feiche | Screechers Wild! | Дикие Cкричеры!
 ```bash
 magnet:?xt=urn:btih:614F5345B897DF8C82A19057815CE3650DBE8ABE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Ji Jia Shou Shen: Baolie Feiche 2 | Screechers Wild 2! | Дикие Скриче
 magnet:?xt=urn:btih:0DD3BEE517DA5D433E4A6C1E207D09A95C93AAD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Ji Jia Shou Shen: Baolie Feiche 3 | Screechers Wild 3! | Дикие Скриче
 ```bash
 magnet:?xt=urn:btih:E6732CFDE61D702C82CDFA949735E938CBD3B69B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Zhandou Wang: Jufeng Zhan Hun 3 | Infinity Nado 3 | Инфинити Надо 3 
 magnet:?xt=urn:btih:66BFB2678D6BA8FB67070739360B4C0B517BFF80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Zhandou Wang: Jufeng Zhan Hun 2 | Infinity Nado 2 | Инфинити Надо 2 
 magnet:?xt=urn:btih:529C6DCAE1AEFF52654BDDF0DA9CBD49D474DE18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Zhandou Wang: Jufeng Zhan Hun | Infinity Nado | Инфинити Надо [2012,
 ```bash
 magnet:?xt=urn:btih:EAE36631CF3E062B43F63E5129B04C7EA1317004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Jaku Chara Tomozaki-kun 2nd Stage | Bottom-tier Character Tomozaki 2nd Stage | �
 magnet:?xt=urn:btih:F2F4EF4EAE0B567C7C9C916587791360DABA218A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Buddy Daddies | Напарники-папаши | Папаши-дружбаны 
 ```bash
 magnet:?xt=urn:btih:BB0826849FC71C57ED16946DC3EAC2E0F70903E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:BB0826849FC71C57ED16946DC3EAC2E0F70903E3
 magnet:?xt=urn:btih:C6652FB0F0ADC5C5D9DF9EC60AD7C0CDED4F256C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:C6652FB0F0ADC5C5D9DF9EC60AD7C0CDED4F256C
 magnet:?xt=urn:btih:128E4BD0434CA512E9D6F8C6FF9B70AA0594ECFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Tekkamen o Oe "d'Artagnan Monogatari" yori | After the Man in the Iron Mask! (fr
 ```bash
 magnet:?xt=urn:btih:87AC9397DF1E03D9583BC48EBB9DAA0D13BC5EE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Misutenaide Daisy | Don't Leave Me Alone, Daisy | Не покидай меня, 
 magnet:?xt=urn:btih:25A4C6E035C3148B38BB1050E60741E0377CACCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Fate/Grand Order: First Order | Fate/Grand Order -First Order- | Судьба: �
 magnet:?xt=urn:btih:CC2113A923D79054E26861D12AF818725771DAD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Takt Op. Destiny | Такт. Опус Дестини | Такт. Опус Суд
 ```bash
 magnet:?xt=urn:btih:4E4D4C2EBA326C8165BB75A2CADDE5D66D96808B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

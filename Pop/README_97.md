@@ -22,6 +22,8 @@ Party Poppers - Sing-Along Christmas Party (1997) [FLAC|Lossless|image + .cue] <
 magnet:?xt=urn:btih:985F33E57FAD40CD675B496025AF9446E2E3A478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Geri Halliwell - Scream If You Wanna Go Faster (2001) [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:C019E2FDD7A05CF7217880D144C69D092918B21C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Weapons Of Peace - Weapons Of Peace (1977) LP [MP3|320 Kbps] <Electronic, Funk S
 magnet:?xt=urn:btih:7EEFC07AB062E52BD19D9F800568BE61862AA263
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Stars & Belles - Xmax in Harmony (1995) [FLAC|Lossless|image + .cue] <Acapella, 
 magnet:?xt=urn:btih:818BD7AD47B28A706FE36B7F8B109DAC2A3D7F43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ Sabrina - Erase/Rewind - Official Remix (2008) 2CD [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:735C9C2C44E98CA2E5AEC85342EBC2A2F6B947E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -162,6 +172,8 @@ Adriano Celentano - Live Adriano (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:2AE7ABE0DA4263C6DFEE11D628829D1EB179DCEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +200,8 @@ Cerrone - Cerrone by Cerrone (2022) [FLAC|Lossless|WEB-DL|tracks] <Disco>
 ```bash
 magnet:?xt=urn:btih:21E4AB074948FA16A1EFFC2C5C12FD480F280D83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +230,8 @@ Savage Garden - Affirmation (1999) [FLAC|Lossless|tracks + .cue] <Pop Rock, Synt
 magnet:?xt=urn:btih:035AE55DC6D8A97471CE0368F5E39425A5D1E878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +258,8 @@ magnet:?xt=urn:btih:035AE55DC6D8A97471CE0368F5E39425A5D1E878
 ```bash
 magnet:?xt=urn:btih:3EC88D8AC9A6D99E936F6150554892DCB2C87C86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +288,8 @@ VA - Smashing 80s Hits (2018) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:96482A043C0376B8E959DCE6F4297B30C99A3A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +316,8 @@ VA - Venti Compilation 5 (2018) 2CD, Compilation [MP3|~245 Kbps (V0)] <Italo-Dis
 ```bash
 magnet:?xt=urn:btih:F525BB19C79BDAD964B9391692BD0328D706C5D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +346,8 @@ Sade - The Best Of Sade (1994) [OGG Vorbis|480 Kbps] <Funk / Soul, Pop>
 magnet:?xt=urn:btih:40ACD38EF22178233878E2446E8B4666297DD0E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +374,8 @@ VA - Dance Hits 2018 (2018) [MP3|320 Kbps] <Dance>
 ```bash
 magnet:?xt=urn:btih:311851DD068CE8AE5E0711454752D6AA59A19480
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +404,8 @@ Mylène Farmer - Désobéissance (2018) [OGG Vorbis|480 Kbps] <Electronic, Pop, 
 magnet:?xt=urn:btih:60B024630FC77D7F7641B77F154D02720494B3B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +433,8 @@ Fun Girl - The Album (2022) [FLAC|Lossless|image + .cue] <Italo-Disco>
 magnet:?xt=urn:btih:0C3735B8EFF3826820D83C2E2B0947C22789A407
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +461,8 @@ CD01:
 ```bash
 magnet:?xt=urn:btih:55B0DAE392F629DBC395790071DFEA4FFA20CC4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +497,8 @@ VA - Italian Golden Ballads (2010) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:A0B9C4525B0EBC426674D680E8D00C90C1523D53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +525,8 @@ VA - EFFECTIVE COVERS, Vol. 2 (2021) [MP3|320 Kbps] <Dance, Pop, Electronic>
 ```bash
 magnet:?xt=urn:btih:EF3D88505D6CE13BE58AF7C589E887FD6B875A22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +555,8 @@ Phylicia Allen - Josephine Superstar (1978) LP [MP3|320 Kbps] <Funk Soul, Disco,
 magnet:?xt=urn:btih:6838D82C78FF5785F6055A3B61BAD984BE940502
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +583,8 @@ Wham - Wham! (1978) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:99C11C4DEF4E8D71D289D88BE09098C25FAAD4AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +613,8 @@ Power Music Workout - Workout Top Songs 2023 - Summer Edition [MP3|320 Kbps] <Po
 magnet:?xt=urn:btih:EB77DF66631C86BD4CDBEA0970EF0CDA7071D0F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +641,8 @@ VA - Diskoteka в стиле O-Zone (2005) [MP3|320 Kbps] <Europop>
 ```bash
 magnet:?xt=urn:btih:60E367B122E971ECCF03AE4A9AE2F93F9A60CD40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +671,8 @@ Andrea Berg (Andrea Zellen) - 2 Albums (2022-2023) [MP3|320 Kbps] <Dance Pop, Sc
 magnet:?xt=urn:btih:603D08E204B6B0840FB050FFCF3D054CD862C50D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +699,8 @@ Chatelaine - Chatelaine (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:C7ED6292146AFE84DBE7029E0768561D9228F95D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -681,6 +729,8 @@ Fedez - Paranoia Airlines (2019) [FLAC|Lossless|WEB-DL|tracks] <Italo Pop, Pop-R
 magnet:?xt=urn:btih:AFD915D1A129AC908204052D154B2F36CB401ABC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -707,6 +757,8 @@ magnet:?xt=urn:btih:AFD915D1A129AC908204052D154B2F36CB401ABC
 ```bash
 magnet:?xt=urn:btih:E73B0EBEBA21358E14928FD92A0A2BFD8AC703B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

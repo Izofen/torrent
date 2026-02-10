@@ -19,6 +19,8 @@ Wallpaper Changer Premium 4.9.3 Mod by Kirlif' [Ru/Multi]
 magnet:?xt=urn:btih:79C9FCCA246DCEDB1A8793E77C36DFB9D7B60F9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Agro Measure Map Pro - приложение для более удобного �
 magnet:?xt=urn:btih:2E859ACE8C26FCDA9321649440A93A534B3532CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Measure Map Pro - приложение для более удобного и к�
 ```bash
 magnet:?xt=urn:btih:B32A540D9963FEF5E778A48953D3B910477198A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Flightradar24 v8.18.7 Gold [Ru/Multi]
 magnet:?xt=urn:btih:294A3D74B124165593F15FECCCD8A4D18506F425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Oxford Learner's Bookshelf - представляет из огромную, к�
 ```bash
 magnet:?xt=urn:btih:92C79657250836C9CC04ABC83B95F061B5A711CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Your Calendar Widget - легко настраиваемый виджет пол
 magnet:?xt=urn:btih:D91A27690EAA89B2BE849B3563FD931D195819B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:D91A27690EAA89B2BE849B3563FD931D195819B1
 ```bash
 magnet:?xt=urn:btih:4AA9C12E9B02FA27C01EF7447AC476FB1808FEAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Monetal - новый менеджер финансов для Android. Пред�
 magnet:?xt=urn:btih:C64777154E29E1AD8CC5F74081D3E4BB85B79478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ ZArchiver Pro - файловый менеджер, что обладает вп�
 ```bash
 magnet:?xt=urn:btih:9A26941BD73FADF699773E66669B4CD7D555F94B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ VPN Max by Aeronliru v100.1 [Ru/En]
 magnet:?xt=urn:btih:EF55CB20746FE06B154532F3864D4350048B7A84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Ventusky: Прогноз погоды v20.1 Mod by Сіtrus, qwerty [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7DDAB936E8E82F3D62BA13BA989B0755DD8E8478
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Electronic Component Pinouts v16.80 PCBWAY [Ru/Multi]
 magnet:?xt=urn:btih:D425E4D839036B93FCD81A2B0A0A4DF658BD359F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Head Model Studio 1.1.11 [En]
 ```bash
 magnet:?xt=urn:btih:BABCD7BA0BC29F026313ABBC1283265714570C13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Bookmark Folder 5.1.6 [Ru]
 magnet:?xt=urn:btih:6DC5CAAE0A352B7F7134B6F45130BD6798E8726C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Mi Control Center v3.7.9 [Ru/Multi] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:03CB12926833F6079373D0A9B15D4F8C18FDC28E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ YouTube клиент для медиа-боксов и ТВ на базе Androi
 magnet:?xt=urn:btih:8A5AB7F7CDCC07D22EE68749DD3E0818C84C5471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ ViPER’s Audio - это набор программного обеспечен�
 ```bash
 magnet:?xt=urn:btih:B0FB08E1CE6F50F20EC2A6B122C3AA9FF679A784
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ It is important to say the tongue twister out loud. Try to memorize the text by 
 ```bash
 magnet:?xt=urn:btih:2992B9E162E249165A87DAFC1FC0D80B5E233FF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:2992B9E162E249165A87DAFC1FC0D80B5E233FF2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Spy Video Recorder Camera / Шпионская видео камера v3.0.0 Pr
 ```bash
 magnet:?xt=urn:btih:C2D720815F75DAD647ED7138E9B1484A07D55986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:C2D720815F75DAD647ED7138E9B1484A07D55986
 magnet:?xt=urn:btih:E969B761E3AFD59562993AE40D6DE90993D03C87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:E969B761E3AFD59562993AE40D6DE90993D03C87
 magnet:?xt=urn:btih:5370BE0EF6FA9F0B4B76F1B638983A507E613E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ ZArchiver - это файловый менеджер с широкими воз�
 ```bash
 magnet:?xt=urn:btih:4157A22F15D9BA8DB48AA70FE3C91E1094C64C89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ GIF Maker and Editor, без водяных знаков и качества HD.
 magnet:?xt=urn:btih:4465A243B6D85964F577C81C90C748F283EAD2A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ Image Converter / Конвертер изображений - просто от�
 magnet:?xt=urn:btih:CDED048A23EC5D98BDC2891CAE9545852D5AF7C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ GnaCAD - приложение, что представляет собой оче
 ```bash
 magnet:?xt=urn:btih:CA740569368C55A06C3F93A81B2ED0DC3115D044
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

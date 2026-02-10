@@ -1,3 +1,30 @@
+###  Публикация: 1367292   (917114) от 15.03.2020
+
+Игорь Антонов | Личный бренд в Инстаграме. Как создать мощнейший бренд, развить его и заработать миллион (2020) [PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917114.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга предназначена не только для тех, кто решил создать свой личный бренд с нуля, она будет полезна и тем, кто уже предпринял шаги по основанию собственного бренда, но возникли сложности с дальнейшим позиционированием, появились мучительные вопросы, куда двигаться, что делать и многие другие.
+На страницах книги «Личный бренд» вы найдете полезные инструменты продвижения, (   Читать дальше...   )Жанр: БизнесФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D090ACA2ABB7224C8FC9037372BF5084A66FC7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989218   (917161) от 22.02.2016
 
 И. Эльвин | Дети в плену религии (1933) [PDF]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:CA4EB0F0A09C75555C53087F547551B1E3B7B584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:CA4EB0F0A09C75555C53087F547551B1E3B7B584
 magnet:?xt=urn:btih:B1DD40B89C383A26AF31571EAC3A72674A8FE42A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:B1DD40B89C383A26AF31571EAC3A72674A8FE42A
 magnet:?xt=urn:btih:275D0B8F70F68709039A498BB5E94C9CEDD54BDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:275D0B8F70F68709039A498BB5E94C9CEDD54BDA
 ```bash
 magnet:?xt=urn:btih:E594C26A10D4D7125016C9F09DE4F9CC3A5452A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +155,8 @@ magnet:?xt=urn:btih:E594C26A10D4D7125016C9F09DE4F9CC3A5452A2
 magnet:?xt=urn:btih:42E0C2914F0B3E8711CB3E97C82F89CA7E0F383D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +182,8 @@ magnet:?xt=urn:btih:42E0C2914F0B3E8711CB3E97C82F89CA7E0F383D
 magnet:?xt=urn:btih:45911E27C7BB3E1115E2C70B456DC0CC393CAF87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +207,8 @@ magnet:?xt=urn:btih:45911E27C7BB3E1115E2C70B456DC0CC393CAF87
 ```bash
 magnet:?xt=urn:btih:45D5D3EA6FD60BF6CAE27BF4EFA751284FDC6AC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +236,8 @@ magnet:?xt=urn:btih:45D5D3EA6FD60BF6CAE27BF4EFA751284FDC6AC3
 magnet:?xt=urn:btih:E19A3DEF293DFFB06DAF7A8F3EB6151352297F25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +261,8 @@ magnet:?xt=urn:btih:E19A3DEF293DFFB06DAF7A8F3EB6151352297F25
 ```bash
 magnet:?xt=urn:btih:E50ED0FE00A5DABC0A86B4BD2C6BEAFBB653C121
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +290,8 @@ magnet:?xt=urn:btih:E50ED0FE00A5DABC0A86B4BD2C6BEAFBB653C121
 magnet:?xt=urn:btih:24C3BBA1846176DEE15C39A6D82748036C7D6F7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +315,8 @@ magnet:?xt=urn:btih:24C3BBA1846176DEE15C39A6D82748036C7D6F7D
 ```bash
 magnet:?xt=urn:btih:AD0EB5AAA2D37BFF06295F2834B8A5C18281FEC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +342,8 @@ magnet:?xt=urn:btih:AD0EB5AAA2D37BFF06295F2834B8A5C18281FEC9
 magnet:?xt=urn:btih:52F3FBAFD339643E1F1D7C37B6A151876648BC8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +367,8 @@ magnet:?xt=urn:btih:52F3FBAFD339643E1F1D7C37B6A151876648BC8B
 ```bash
 magnet:?xt=urn:btih:5CC6E066A57C2DA09033FA6793FBF3BF8B458981
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +394,8 @@ magnet:?xt=urn:btih:5CC6E066A57C2DA09033FA6793FBF3BF8B458981
 magnet:?xt=urn:btih:E29CB970225F786BCDC63B6B546F940F899C3B95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +419,8 @@ magnet:?xt=urn:btih:E29CB970225F786BCDC63B6B546F940F899C3B95
 ```bash
 magnet:?xt=urn:btih:AF7BA86B4109B4B4C0CD9481A4C7DB19F4C3578D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +448,8 @@ magnet:?xt=urn:btih:AF7BA86B4109B4B4C0CD9481A4C7DB19F4C3578D
 magnet:?xt=urn:btih:48D9C1925D713C22AABA9F91FA16B7984F3F7EC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +473,8 @@ magnet:?xt=urn:btih:48D9C1925D713C22AABA9F91FA16B7984F3F7EC6
 ```bash
 magnet:?xt=urn:btih:1ECADE0E52B9F7A41CF9F082EFFBBA02D84FF733
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +500,8 @@ magnet:?xt=urn:btih:1ECADE0E52B9F7A41CF9F082EFFBBA02D84FF733
 magnet:?xt=urn:btih:ED7EF94EA2083C962005EA782466C28DAA3BAA9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +525,8 @@ magnet:?xt=urn:btih:ED7EF94EA2083C962005EA782466C28DAA3BAA9A
 ```bash
 magnet:?xt=urn:btih:664657A8A3FD20947A78892F9B2648CCC3C99599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +554,8 @@ magnet:?xt=urn:btih:664657A8A3FD20947A78892F9B2648CCC3C99599
 magnet:?xt=urn:btih:330357843392AFFDBE60FDD5FEAA7B3BBD25CC24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +580,8 @@ magnet:?xt=urn:btih:330357843392AFFDBE60FDD5FEAA7B3BBD25CC24
 ```bash
 magnet:?xt=urn:btih:EBC590C21C217C26772DD56FB4A7D1054D919633
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +608,8 @@ magnet:?xt=urn:btih:EBC590C21C217C26772DD56FB4A7D1054D919633
 magnet:?xt=urn:btih:FFB0969ACD53388F7F3C535449DEF1AEF284CFC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +634,8 @@ magnet:?xt=urn:btih:FFB0969ACD53388F7F3C535449DEF1AEF284CFC9
 ```bash
 magnet:?xt=urn:btih:F8F5954417DF9E24B522DBC954AE8B857445C6AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +662,8 @@ magnet:?xt=urn:btih:F8F5954417DF9E24B522DBC954AE8B857445C6AB
 magnet:?xt=urn:btih:D11DB63FF2A4657FFB4C86FCDF2C4881005E08EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,29 +688,7 @@ magnet:?xt=urn:btih:D11DB63FF2A4657FFB4C86FCDF2C4881005E08EE
 magnet:?xt=urn:btih:BBBF7DF3D308D8F2C1AB08F7DF59E6CA1A427BA1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988862   (918680) от 21.02.2016
-
-Алексей Беба | Учебный центр на "Отлично". Руководство по развитию учебного центра от идеи до масштабирования (2016) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_918680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга будет полезна руководителям школ танцев, творческих курсов, школ актёрского мастерства и ораторского искусства, тренинговых центров, центров изучения иностранных языков, вокальных и музыкальных курсов, курсов по подготовке к ЕГЭ, спортивных кружков, а также любых других обучающих организаций.Жанр: О бизнесе популярно, Управление, подбор персоналаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:294838EBA54EBA9F32E2715605D8EB27060F3935
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

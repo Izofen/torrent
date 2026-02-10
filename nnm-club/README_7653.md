@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:798136040FF5DC0BD87CB30166B4A58DF21AA0C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:798136040FF5DC0BD87CB30166B4A58DF21AA0C4
 ```bash
 magnet:?xt=urn:btih:F01A1348A52402280D57BBC833A9DCE29E93A075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Unchosen Ones - Sorrow Turns to Dust (2023) [MP3|320 Kbps] <Melodic Heavy Metal,
 magnet:?xt=urn:btih:861B4947D0D7951CD7C299A079FA117E8BC1007B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:861B4947D0D7951CD7C299A079FA117E8BC1007B
 ```bash
 magnet:?xt=urn:btih:EFAA66B9F2A9484F5D275B5E013B20F645D2197B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Ritual - Black Rain (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 magnet:?xt=urn:btih:A64F869E8BC599241BF29BD1E7546C6F351257A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Ricky Castellini - Heartbeats (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:3A08952268ECAA7CF5ECFDDBED095012EE5A948F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Malwarebytes Антивирус: Антивирус, защита от шпио�
 magnet:?xt=urn:btih:01EFF94DC3C5EF9BE44F2FB7C63898B5D65D5500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:01EFF94DC3C5EF9BE44F2FB7C63898B5D65D5500
 ```bash
 magnet:?xt=urn:btih:9DA4550FE5B504090550D26E31A3898E5D7306EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ Sniff 'n' The Tears - Retrospective (1983) Reissue, 1985, PolyGram [FLAC|Lossles
 magnet:?xt=urn:btih:0E9A49D04A3885EDA5C851DF0F1B4E99D1545A7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:0E9A49D04A3885EDA5C851DF0F1B4E99D1545A7C
 magnet:?xt=urn:btih:209967F0E3D78521B4D3564686A394211D657477
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:209967F0E3D78521B4D3564686A394211D657477
 ```bash
 magnet:?xt=urn:btih:1F6DF95AF1BCA03326A2C5D19FA6E07D7A3CE573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ Vortesvin - The Beauty of Extinction (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 magnet:?xt=urn:btih:557C7C2DA40754888FDAD63FBDFE57FCA469CA8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ Induction - Induction (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Symp
 ```bash
 magnet:?xt=urn:btih:95F588991BB780C90B3952DDE463FC8C856366D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ Jimmy Smith - Milestone Profiles (1981 - 1993) 2CD, 2006, Milestone [FLAC|Lossle
 magnet:?xt=urn:btih:6D56249C85DD1B0E124F70AED6B63FBE8B66598B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ ZebraDesigner Pro 3.2.2 Build 611 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6B5101C7BA4657FAADA83D2ED41A26D34FF8805A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ Bocchi the Rock! | Рок-тихоня! | Одинокий рокер! [2022, TV
 magnet:?xt=urn:btih:1A04074C6ED1018040BB36090BD8FDA28C65DC57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:1A04074C6ED1018040BB36090BD8FDA28C65DC57
 ```bash
 magnet:?xt=urn:btih:14AA6EB7C029FFB2045F30B0F5B103D709B39B3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ Undead Killer - Killer Unleashed (2023) [MP3|320 Kbps] <Thrash Metal>
 magnet:?xt=urn:btih:E81CC847344F455302E2394C57DFEAFB66CB7349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:E81CC847344F455302E2394C57DFEAFB66CB7349
 ```bash
 magnet:?xt=urn:btih:6EF70318B652B9FC8BC9C18CE17473F0E1446EE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ Wake - Thought Form Descent (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Death M
 magnet:?xt=urn:btih:5EC32E6685D12F6C1EBEAE80E4F4931A311347D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +574,8 @@ Amorphis - Far From The Sun (2003) 2004, Album, Enhanced [FLAC|Lossless|image + 
 magnet:?xt=urn:btih:C7B722C31428FCB90AE1E84CB761F9AA9857B7E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ MWeb поддерживает расширенный синтаксис Github: 
 ```bash
 magnet:?xt=urn:btih:A99882A16A4A7DD075A8FE130D1F953C7E7A83DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +630,8 @@ Radiance - Корабли (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Meta
 magnet:?xt=urn:btih:EFE77E841699BF4EAEFDFE7060DF34F4386B26DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ Registry Finder - простая в использовании утилита д
 ```bash
 magnet:?xt=urn:btih:A7E67E55AF715BA645647300F95E7EC9DA679666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ magnet:?xt=urn:btih:A7E67E55AF715BA645647300F95E7EC9DA679666
 magnet:?xt=urn:btih:C7353C2640AA9353F1C87556465ECA64729E8015
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ magnet:?xt=urn:btih:C7353C2640AA9353F1C87556465ECA64729E8015
 ```bash
 magnet:?xt=urn:btih:3C57E12502B1ECB0650B2A37D6DAFE26BA7C00F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

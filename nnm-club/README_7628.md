@@ -21,6 +21,8 @@ Necrofier - Visions In Fire (2018) EP [MP3|320 Kbps] <Melodic Black Metal>
 magnet:?xt=urn:btih:DE54212FB4C8EB367E27847AE559E1958501A706
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:DE54212FB4C8EB367E27847AE559E1958501A706
 ```bash
 magnet:?xt=urn:btih:AA7A1619017099AE6C3D783405F19AA486D10130
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:AA7A1619017099AE6C3D783405F19AA486D10130
 magnet:?xt=urn:btih:F17E8AF24C4CBBCE968FB5AF97D8A21FE67E97E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Linguatrip, Веня Пак | Произношение 2022 (2022) WEB-DL [AD] [
 magnet:?xt=urn:btih:A70F21824D4B14771876C11852E3529FDEBB37A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Mivo - лучший инструмент для создания музыкал�
 ```bash
 magnet:?xt=urn:btih:8F80CDF22671F9D068E6A0D0355802180098DFBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:8F80CDF22671F9D068E6A0D0355802180098DFBE
 magnet:?xt=urn:btih:BF4AD7968AA0C6EE75ED1D0E71960B65B242F5B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ ROCKPOP IN DORTMUND: Scorpions, Def Leppard, QuietRiot, Judas Priest, Ozzy Osbou
 ```bash
 magnet:?xt=urn:btih:7516901D81C08E22A252E4740231592F4B18E0C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ VueScan является приложением для работы со ска�
 magnet:?xt=urn:btih:71DA0326D63B6EA205DE15B9DDE840F73B8D28A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:71DA0326D63B6EA205DE15B9DDE840F73B8D28A2
 ```bash
 magnet:?xt=urn:btih:3FBD9DC6687AC48EF90191A17B5FC0BC5081FB3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:3FBD9DC6687AC48EF90191A17B5FC0BC5081FB3E
 magnet:?xt=urn:btih:80097B875A093FC5D70040C136380F83EC80A210
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:80097B875A093FC5D70040C136380F83EC80A210
 ```bash
 magnet:?xt=urn:btih:E5E37BA8DFB377EF85BE929E6B714E80BABE7924
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:E5E37BA8DFB377EF85BE929E6B714E80BABE7924
 ```bash
 magnet:?xt=urn:btih:068D2B3A6E473AFAC82CFD87EB44FB81B775D4E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ VA - Black Hole Trance Music 07-23 (2023) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:CE3F4DFC7687696404874E5263F16C722636B73B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:D9201EA3647D2C001F4D1D38FBE90564F59ED482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ VA - Black Hole House Music 07-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 magnet:?xt=urn:btih:CE1E21722AB39726E380B2F1991E8640CE6782C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ Pelican - The Fire In Our Throats Will Beckon The Thaw (2005) Deluxe, Remix & Re
 magnet:?xt=urn:btih:9DAF267EFC6120C4C137121A452226C2FC7A805D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:9DAF267EFC6120C4C137121A452226C2FC7A805D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:9DAF267EFC6120C4C137121A452226C2FC7A805D
 ```bash
 magnet:?xt=urn:btih:055E981DA07F6C8BD60EAF46D6B5814F2DB2A883
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:055E981DA07F6C8BD60EAF46D6B5814F2DB2A883
 magnet:?xt=urn:btih:7ABFB94D1E49C5E908D583258DFEBAB4E83B4480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ Mike Oldfield - Tubular Bells III (1998) [FLAC|Lossless|tracks + .cue] <New Age,
 ```bash
 magnet:?xt=urn:btih:1479B478154E2DE38B3069975A5091C8266A98D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ Warfield Within - Beast Inside (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 magnet:?xt=urn:btih:86C9759A6E5B13F7339E3C9E8668A5E67362CA69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:86C9759A6E5B13F7339E3C9E8668A5E67362CA69
 magnet:?xt=urn:btih:02448B17705DCFB20032E61232A0DF5FA89F4B80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:02448B17705DCFB20032E61232A0DF5FA89F4B80
 ```bash
 magnet:?xt=urn:btih:0076A44FCDE3DA994D33F4B2C16D9870D6F5C016
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ Edu Falaschi - Vera Cruz (2021) Japan Edition [FLAC|Lossless|image + .cue] <Powe
 magnet:?xt=urn:btih:F56C72F60E463F39367243E29997668AF373ACE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:F56C72F60E463F39367243E29997668AF373ACE3
 magnet:?xt=urn:btih:55120C5BE44D4937D3B16DA5B79923E4AEA878CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ PhotoRoom - приложение, что будет одинаково поле�
 ```bash
 magnet:?xt=urn:btih:EFAB26C364829A3C69ECA7F2260A2F17494EDD80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

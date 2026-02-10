@@ -22,6 +22,8 @@ VA - Verge Inverse Relax Edition (2017) [MP3|320 Kbps] <Lounge, Downtempo, Relax
 magnet:?xt=urn:btih:965F712EFDC08101A21A1A87333277D4F1BA994D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - The Best Of Dream House (Compiled by Codename87) (2014) [MP3|320 кб/с]<D
 ```bash
 magnet:?xt=urn:btih:2AC5029DE886BDD76F370B82093E5782BDD52EE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Music Box на радио Maximum 50x50 (2015) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:30261874E215DD655B3670501519E224C2B8B152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Just Do It: Hardstyle Sport Dance Music (2019) [MP3|320 Kbps] <Hardstyle, D
 ```bash
 magnet:?xt=urn:btih:F9978461CE2481B624197FFF5F19C0229CE8D1F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - EDM Heartbeat Extended Mix: Techno Electronic Step 03 (2019) [MP3|320 Kbps]
 magnet:?xt=urn:btih:EDF930019CFB0DA903A65D9EE68CC564656092CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Warie Live: Club House Original Mix (2019) [MP3|320 Kbps] <Dance, Pop, Hous
 ```bash
 magnet:?xt=urn:btih:1566E31D40A5BF9A8BCEF361F7FA3035D7847A88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Дискотека 2017 - Осенний Бодрячок (Compiled by ZeBy
 magnet:?xt=urn:btih:1D87C740081AC595E8A684E6C893109ADACA847E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - ЕвроХит Топ 40 Europa Plus 09.11.2018 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:C31D11653FA56A10201079612985AABAEEC2A112
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - The Official UK Top 40 Singles Chart 09.11.2018 (2018) [MP3|320 Kbps] <Pop,
 magnet:?xt=urn:btih:28A557DA080D34EC35D6FB2F67A474A28F660C11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Disco House: Funky Mix November (2018) [MP3|320 Kbps] <Funky, Disco House>
 ```bash
 magnet:?xt=urn:btih:F91B7CB9874BDFD1AA151A9C5C612234B2E67C53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Follow Up: Techno Electronic Set (2019) [MP3|320 Kbps] <Techno, Electronic>
 magnet:?xt=urn:btih:D7EC4DD57571A132579F1082C2F88B3715C0CDFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Sunday Voyage: EDM Party (2019) [MP3|320 Kbps] <House, Techno, Trance>
 ```bash
 magnet:?xt=urn:btih:E39D385D15E37DC0CB80F293A18F2D89B39FF0F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - The Gates: Synthspace Anthology (2017) [MP3|192-320 Kbps] <Synthspace, Synt
 magnet:?xt=urn:btih:A0F15D8CB3F383B29F4CD364B0B6FFAF3DF5D310
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Ceremonial Psychedelic (2017) [MP3|195-320 Kbps] <Psy Acid, Psychedelic, El
 ```bash
 magnet:?xt=urn:btih:4F3E501DD7D9443D77BC5C155183190E5197D396
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Ministry Of Sound: I Love Garage (2015) [MP3|320 кб/с]<House, Dance, Dub
 magnet:?xt=urn:btih:EEFCB503DF26B0AF24504FC1333DBEF369DFE6E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Secret Lounge 20 Luxury Lounge and Chill out Tunes (2015) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:2F12E4F311C9E552128205551D6B01139D045DBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - An Olden Sea Of Prayers (2018) [MP3|320 Kbps] <Heavi, Black, Death Metall>
 magnet:?xt=urn:btih:75AFD071B5643BFF1837F0E8E95D8160D35A0068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +515,8 @@ VA - Mind Over Matter (2018) [MP3|320 Kbps] <Hard Rock, Metall>
 magnet:?xt=urn:btih:5F247E5ECE8054F97D9FB22BEE65E24BEC8F65AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +543,8 @@ VA - Just Dance Unlimited Realty (2018) [MP3|262-320 Kbps] <Club, Bigroom, Elect
 ```bash
 magnet:?xt=urn:btih:06DF35ED3356898CFB7ADE4AAABBA6E413FB867B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +579,8 @@ VA - Music For The Soul (2012) [MP3|320 кб/с]<Chillout, Trip-Hop, Downtempo, 
 magnet:?xt=urn:btih:A1E44C64212A9F08523E7B22B5B5C8DD4BF6830A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +607,8 @@ VA - Velvet Grooves Volume Nocturne (2015) [MP3|320 кб/с]<Deep House>
 ```bash
 magnet:?xt=urn:btih:3F787E943E26D1579ED68C9F0A288CDC97418807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +643,8 @@ Slakker - Totalrealism (Unreleased) (2012) [MP3|320 кб/с]<Instrumental, Downt
 magnet:?xt=urn:btih:986A978C3BFFE8A748F5CDBF61D2C472DAC8CFAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +671,8 @@ VA - не Громкие новинки недели 87 (2020) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:A2F9DDED64F7163A3136DADE9E0C435D21FC1701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +701,8 @@ Part 1 (Discoteka):
 magnet:?xt=urn:btih:06BA2CDF4C5188CD1250DAE591BB8178184A0261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,6 +730,8 @@ VA - Chill On the Moon Vol.4: Lounging On the Surface (2016) [MP3|320 Kbps] <Dow
 magnet:?xt=urn:btih:CD75DB145595360EA9EC303808B5D7BFDC254554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -708,6 +758,8 @@ VA - Massage del Mar Vol.2: Chill Out Sensual Meditation Lounge (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:C8945A1F5C4BAD4405C9F4A82D15F6B2EA66CE03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

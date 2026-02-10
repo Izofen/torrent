@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:DFEC4846D46A0471F92FD7E750DABA0EEF26C69D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:DFEC4846D46A0471F92FD7E750DABA0EEF26C69D
 ```bash
 magnet:?xt=urn:btih:1CADB07E07F8F252DB16CBEBAA21727EF55BFA94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Splasher - это веселая и сложная 2D приставочная �
 magnet:?xt=urn:btih:BE98CCC04C2F4CC8B2A6FF816D954058892A9113
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Greenwood the Last Ritual - это приключенческая игра с и
 ```bash
 magnet:?xt=urn:btih:AC4784B212275ADF683F44BF3F56DB990313ED72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Langoth (староанглийский) - очень специфическая
 magnet:?xt=urn:btih:A27158DD71B8EFA5E84A8E5178ED624572A701AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Wells – экшен-платформер, выполненный в стиле 
 ```bash
 magnet:?xt=urn:btih:4A18D1EB19E2F5EC3E7005800782D6F4FB84EE44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:4A18D1EB19E2F5EC3E7005800782D6F4FB84EE44
 magnet:?xt=urn:btih:0DE7FC2966A3FA0D93F29EC4E1645FE28A503DDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Virtual Rides III наконец-то с нами! Мы приглашаем в�
 ```bash
 magnet:?xt=urn:btih:A01A1C3B59B25DBFC744334E38A62A698760437E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Duke of Alpha Centuri – космический шутер с красочно�
 magnet:?xt=urn:btih:6D23BA5DB069ECEE195C83D508DF63E0D4C87A5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Ascender – приключенческий платформер-головол�
 ```bash
 magnet:?xt=urn:btih:A58D55BF8B21F7C6708C19050AFEC8CCDF5E4935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:A58D55BF8B21F7C6708C19050AFEC8CCDF5E4935
 magnet:?xt=urn:btih:D0B5E7467E7CF4D67F7F88D8E33D7075646A4A0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:D0B5E7467E7CF4D67F7F88D8E33D7075646A4A0B
 ```bash
 magnet:?xt=urn:btih:DE5C3F844765A9AA81DA4B39B2126ABCD9854499
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:DE5C3F844765A9AA81DA4B39B2126ABCD9854499
 magnet:?xt=urn:btih:7E93C80DF0F5FD8D597F359CEE235D8D19FCF8DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ The Lion’s Song - эпизодическая игра, чье действие
 magnet:?xt=urn:btih:DD7F32D70AACDC119713DB126799FCBC6341F5D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ magnet:?xt=urn:btih:DD7F32D70AACDC119713DB126799FCBC6341F5D2
 ```bash
 magnet:?xt=urn:btih:8913CEE4F79F2F7FEC0DC9994A09CA0C7967B441
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Brutal Legend - это приключенческий экшн, объединя
 magnet:?xt=urn:btih:CDC5796874DEBD718316D6E3556197D287A4EB56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:CDC5796874DEBD718316D6E3556197D287A4EB56
 ```bash
 magnet:?xt=urn:btih:49A85A322A645F7A1496FACC46CCEE9DD75D3655
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Owlboy – приключенческая игра, где вы можете л�
 magnet:?xt=urn:btih:6706C84E709003E0239EA16FEC0DD43D53DAB0C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:6706C84E709003E0239EA16FEC0DD43D53DAB0C6
 ```bash
 magnet:?xt=urn:btih:F457049DDAB76003A49089618969843D4BD4A2E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:F457049DDAB76003A49089618969843D4BD4A2E3
 magnet:?xt=urn:btih:3357B48476CDE27253AB1E3292E27C4638C79434
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Kona – первая часть интерактивного детектива
 ```bash
 magnet:?xt=urn:btih:82EFD137177117536D778C6AA39E2F473F9BA5ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ magnet:?xt=urn:btih:82EFD137177117536D778C6AA39E2F473F9BA5ED
 magnet:?xt=urn:btih:9B5549BC50CDD69286C23FCF8F65BDAFC1D1CB74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:9B5549BC50CDD69286C23FCF8F65BDAFC1D1CB74
 ```bash
 magnet:?xt=urn:btih:4D6C881D6DA6ED02077B96E13FF27A9F1EE3FFA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ magnet:?xt=urn:btih:4D6C881D6DA6ED02077B96E13FF27A9F1EE3FFA0
 magnet:?xt=urn:btih:A07441F8DE67C82220267A04F14E3FD60BDCFBD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Turmoil предлагает пользователям сыграть в оча
 magnet:?xt=urn:btih:EFC8267674A435B0CE7716B629018D9A88B7533D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ magnet:?xt=urn:btih:EFC8267674A435B0CE7716B629018D9A88B7533D
 ```bash
 magnet:?xt=urn:btih:A2D74ADCF3BB5482ADD376AE7FADF495158AC0D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

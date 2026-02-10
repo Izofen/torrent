@@ -19,6 +19,8 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (1.6.0.0.20230706_1126/dlc) Repack Dece
 magnet:?xt=urn:btih:AF662D9092A69656AB71DE0EE2888B0FB5E73627
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Don’t Starve - это бескомпромиссная игра на выжи�
 ```bash
 magnet:?xt=urn:btih:5F81858805CA4C396F616EC98899F8348F1B01E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PARANOID (2023) [Ru/Multi] (1.1) Repack Other s
 magnet:?xt=urn:btih:156058EC3092264A66219EB4C43AD0EF82AF40F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ CLeM (2024) [Ru/Multi] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:D571B9F0254E31DE1A966673E249204283066DB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Spirit Hunter: Death Mark 2 погружает игроков в священн�
 magnet:?xt=urn:btih:33D42F886C1BA97C43F815E985D0AF0055530877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:33D42F886C1BA97C43F815E985D0AF0055530877
 ```bash
 magnet:?xt=urn:btih:C11476D844FD45A7664F77E316FB505CE4D0703D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Terror Mansion – это невероятное путешествие по у�
 magnet:?xt=urn:btih:E68862BBA6BED175BD7DCA1972FF5D395257FA91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Backrooms Deluxe - отправьтесь навстречу запутан�
 ```bash
 magnet:?xt=urn:btih:0A2684C9E496D6ED289D590905BFDCA089504926
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Doors: Paradox – головоломка, сосредоточенная на �
 magnet:?xt=urn:btih:C1D3211F2513AEA28242F8228F3C2AFCEC471070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Messenger / Louvre: The Final Curse / Лувр: Последнее прок�
 ```bash
 magnet:?xt=urn:btih:B47FFD3FD3CCB09E3C517EB5B039EBF933186202
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Chronique des Silencieux (2024) [Multi] (3.7.7f) Repack FitGirl
 magnet:?xt=urn:btih:7C742AB8A9A73CB338DEA7A22E4D250CCAB4ABE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Axiom of Maria переносит геймера в будущее. Соглас
 ```bash
 magnet:?xt=urn:btih:DEA552B08E96F0B0F5897D76A1C65D3AFE754B32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ CLeM (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:9977BDF3BC0AAB7CCAEC61E5CF3661419E4F29A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Nexus PI (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2607A6DEA1DB6AEDFC3FD8E89AE4D02FAA7CC0E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Boxes: Lost Fragments бросает вас с головой в роскошн�
 magnet:?xt=urn:btih:5DBBC317FD3E3F6518D18C2886BE8F8C99520FF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Murder Is Game Over: Deal Killer (2024) [En] (2.0) License GOG
 ```bash
 magnet:?xt=urn:btih:A01F7C877E6C2C92D8E9E579DF46DE2DF9F73B29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Splice (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:4AED28822405D720FAC57F17E9DF2855BBF61369
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Chorus (2021) [Ru/Multi] (1.0.9.216752/dlc) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:CB6A016381036F0644F8859AE3366752A43E78C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Steel Echoes – сойдитесь в эпическом противостоя
 magnet:?xt=urn:btih:B57C6E07FDE2B861345BE80B4BBBE2A905D48E43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Anomaly Agent - динамичный 2D экшен-платформер, в ко
 ```bash
 magnet:?xt=urn:btih:1659CB76614AF908A1C029F2F8E3F765424A3C69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Y. Village - The Visitors (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:9AA96A79603881B54FBA0500E1D7266EB81D0910
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Not Another Weekend - это приключенческая игра в форм
 ```bash
 magnet:?xt=urn:btih:AD64B8FCE28E832F41C49BBDF8AC99532A30F2B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Magical Girl Celesphonia (2022) [Multi] (5/dlc) License GOG [18+]
 magnet:?xt=urn:btih:0EEE82F81DC490556F3B782866F05C464076F6F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Last Worker является атмосферным проектом, пре
 ```bash
 magnet:?xt=urn:btih:76C227427BC05B52D8EBB3C244068D69984252F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Boxes: Lost Fragments бросает вас с головой в роскошн�
 magnet:?xt=urn:btih:27FA119B4B8018A81995D132B32BCF5FCA84CC84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Shards of Chaos - это визуальная новелла в жанре фэ�
 ```bash
 magnet:?xt=urn:btih:FF2A4DE6D94BE914AD614ECEA1EE155501FBB6E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

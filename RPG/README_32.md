@@ -19,6 +19,8 @@ Little-Known Galaxy - приключенческая RPG с элементами
 magnet:?xt=urn:btih:CCFD2ED81007EA6EF01A74B518198E5D2D9F21A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Esports Godfather (2024) [Multi] (1.0.10) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A99C7EF309EE8C1CEE99752B8996A9E074D5284A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dark Souls 2: Scholar of the First Sin - это ролевой экшен, в к
 magnet:?xt=urn:btih:C8008561192730C9580760039110442E43B04C50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 ```bash
 magnet:?xt=urn:btih:23A0380DB6960D040E2B5F255ABF4415E3530DE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ CONSORTIUM Remastered ставит вас на место Консорциума
 magnet:?xt=urn:btih:A7F12C66F211D9691B43A41B575C7F1C1023476F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Crown Wars: The Black Prince - пошаговая стратегия, дейст
 ```bash
 magnet:?xt=urn:btih:AD47409E6E66560661A7CFEC4DEDD74A721E6EFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Kingdom of Fallen: The Last Stand / Королевство Павших: Пос�
 magnet:?xt=urn:btih:35F93B7C0592A57F76C29EE300D725EFC00A2EC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Kingdom of Arcana погружает вас в мир, полный опасно
 ```bash
 magnet:?xt=urn:btih:CA3F55569D6365CB3B8E3F94EF1367B585811C07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Trinity Fusion – это выполненный в 2.5D научно-фанта
 magnet:?xt=urn:btih:E3E84573A98DD1364521F5952DCDE68B3745968D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ C.A.R.D.S. RPG: The Misty Battlefield объединяет в себе карт�
 ```bash
 magnet:?xt=urn:btih:DC1F34C5743179DEFA7BCAD864362B3344331F32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Vendir: Plague of Lies погружает игроков в мир, наполн
 magnet:?xt=urn:btih:DD64C591A7BBBD425A5E2E4D73DD2B86C009FD60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Taboo Trial погружает в мир норвежской мифологии
 ```bash
 magnet:?xt=urn:btih:A634E5C0770DF75C8F8C64801273A1CF541FAB15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Granblue Fantasy: Relink - приключение в просторах Небе
 magnet:?xt=urn:btih:4D11C8456E042AE78FCDC1D71B885CC18038CE56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Elder Scrolls V: Skyrim (2016-2021) [Ru/Multi] (1.6.318.0.8/dlc) Repack FitG
 ```bash
 magnet:?xt=urn:btih:79F64FD1D5FD91A86845B265626290FB67D58943
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Astor: Blade of the Monolith вставьте себя на место Асто�
 magnet:?xt=urn:btih:11A941594FB4B81535508D33726FCD921F0E139C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Astor: Blade of the Monolith вставьте себя на место Асто�
 ```bash
 magnet:?xt=urn:btih:15E98CF7575988F476DE94F213CA490672ED8F5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Mageseeker: A League of Legends Story (2023) [Ru/Multi] (1.0.0/dlc) Repack F
 magnet:?xt=urn:btih:AA64FA6A84A72A75705B0359C66A60F122208B48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ SpellForce 3: Fallen God (2020) [Ru/Multi] (163238.365571) License GOG
 ```bash
 magnet:?xt=urn:btih:8E5DE4BF663CCC2F50D239CBABA73488EFDB1C74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (163238.365571) License GOG
 magnet:?xt=urn:btih:A8E555CB965EA4839DF49A02F16E301BABEF4E5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Ikonei Island: An Earthlock Adventure (2023) [Multi] (20240425/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:CE35FCE763F9B3F7D7826F20E7C25FE82369A454
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Withering Rooms отличается от многих хорроров. Во-п
 magnet:?xt=urn:btih:0F012FE198F8C18943BBA8ED9D3B93A78AEF5BD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ SpellForce 3 - идеальный гибрид RTS и RPG! 518 год. Так н
 ```bash
 magnet:?xt=urn:btih:F28F0505090C7D8887A8F45D18DEF68FF476DAEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ CONSORTIUM Remastered ставит вас на место Консорциума
 magnet:?xt=urn:btih:54BA8099D41DD1C67F4279A3B88AD280B69F6AE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ CyberHoney - карточный рогалик, где вы окажетесь �
 ```bash
 magnet:?xt=urn:btih:A67A92D5E9E5D7FA3C24613F9B63238F889AE41A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Little-Known Galaxy - приключенческая RPG с элементами
 magnet:?xt=urn:btih:5F2ADB7E1EA13AE7B269F9EE6F9054A6F6188ACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ C.A.R.D.S. RPG: The Misty Battlefield объединяет в себе карт�
 ```bash
 magnet:?xt=urn:btih:B92CD4C34493C59136C44FF2FB415565C216110F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

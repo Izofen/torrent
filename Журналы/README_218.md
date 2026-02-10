@@ -1,27 +1,3 @@
-###  Публикация: 1180749   (337764) от 05.11.2017
-
-Журнал | Рыбачьте с нами №8 (август 2017) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_337764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Рыбачьте с нами» - это ежемесячное международное издание обо всех видах рыбной ловли, подводном плавании, туризме и активном отдыхе на воде. это журнал об увлечении. Он делается для людей с высокими требованиями к качеству жизни, для которых рыбалка стала синонимом высококлассного отдыха и приятного времяпрепровождения, то есть синонимом слова удовольствие.Жанр: РыболовствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:911BAB0F43C7D735416A30AAAE110E072529C3EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180915   (337765) от 05.11.2017
 
 Журнал | Наука и техника №10 (137) (октябрь 2017) [PDF]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:911BAB0F43C7D735416A30AAAE110E072529C3EB
 ```bash
 magnet:?xt=urn:btih:69CA52F1C1BCC62F0BC03AE873EADFF2FA104904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:69CA52F1C1BCC62F0BC03AE873EADFF2FA104904
 magnet:?xt=urn:btih:E9B11DAA2BCB75BF802C2580B9933F9AC6692948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:E9B11DAA2BCB75BF802C2580B9933F9AC6692948
 ```bash
 magnet:?xt=urn:btih:941ABEC10AFD7A4849AC8E051AEFA36D39ED89BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:941ABEC10AFD7A4849AC8E051AEFA36D39ED89BC
 magnet:?xt=urn:btih:2C85B45ED21FDA1E1D7A1FE48BBB32F41FEBF523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:2C85B45ED21FDA1E1D7A1FE48BBB32F41FEBF523
 ```bash
 magnet:?xt=urn:btih:0C046912D69F50700BE1D4FDC389FA48198807D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:0C046912D69F50700BE1D4FDC389FA48198807D2
 magnet:?xt=urn:btih:6099AE393E186AC24C844473444336C23B754A31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:6099AE393E186AC24C844473444336C23B754A31
 ```bash
 magnet:?xt=urn:btih:2F49A310350DBDAAA0DFF2593770850237EC9A26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:2F49A310350DBDAAA0DFF2593770850237EC9A26
 magnet:?xt=urn:btih:5F9128B22A9160D198EC7B20524A8B2277A190AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ National Geographic Italia e la rivista che ogni mese racconta le meraviglie del
 ```bash
 magnet:?xt=urn:btih:C4FCE7F6711A103B27DD8E53A25DC888B6D3E931
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +256,8 @@ magnet:?xt=urn:btih:C4FCE7F6711A103B27DD8E53A25DC888B6D3E931
 magnet:?xt=urn:btih:2AD4FB1EDD22AD0CEBABA57E62984941DE0A0855
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +281,8 @@ Focus Storia: la rivista interamente dedicata alle vicende, ai personaggi, alle 
 ```bash
 magnet:?xt=urn:btih:474AC89F4044CE5DAD6EC4ACB57D298A77D8A49B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +308,8 @@ magnet:?xt=urn:btih:474AC89F4044CE5DAD6EC4ACB57D298A77D8A49B
 magnet:?xt=urn:btih:49280374C4C446EFABDD7E4F779861C57902E959
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +333,8 @@ magnet:?xt=urn:btih:49280374C4C446EFABDD7E4F779861C57902E959
 ```bash
 magnet:?xt=urn:btih:E58A589466FF48A939F4F690FB83EF7265CB7C63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +360,8 @@ magnet:?xt=urn:btih:E58A589466FF48A939F4F690FB83EF7265CB7C63
 magnet:?xt=urn:btih:BFAFE1E2D6AC59190A484D5CAAE010109392F0E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:BFAFE1E2D6AC59190A484D5CAAE010109392F0E5
 magnet:?xt=urn:btih:6F701AF2FB5EBD59212A541C9CFD0F2D24C268FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:6F701AF2FB5EBD59212A541C9CFD0F2D24C268FA
 ```bash
 magnet:?xt=urn:btih:734ECF5E83636D168C0202E28A3DE8E83B58D3B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +441,8 @@ La crise de L'Empire Roman.(   Читать дальше...   )Жанр: Ист�
 magnet:?xt=urn:btih:85C5B135DEC21A07F0326D523FF4DE9080B23744
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +470,8 @@ magnet:?xt=urn:btih:85C5B135DEC21A07F0326D523FF4DE9080B23744
 magnet:?xt=urn:btih:B6CAC9F901F86AD4237D2F71C259BC21EF935536
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +495,8 @@ National Geographic Italia e la rivista che ogni mese racconta le meraviglie del
 ```bash
 magnet:?xt=urn:btih:4FAFEF3E895E338CA0F9BCF9DE7CC7966BE780C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +523,8 @@ magnet:?xt=urn:btih:4FAFEF3E895E338CA0F9BCF9DE7CC7966BE780C2
 magnet:?xt=urn:btih:5B164BC400733F35E2BD5E3A195CC41DA740584C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +549,8 @@ magnet:?xt=urn:btih:5B164BC400733F35E2BD5E3A195CC41DA740584C
 ```bash
 magnet:?xt=urn:btih:9BA9B18359E467537A51BD126926ED6133341009
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +579,8 @@ magnet:?xt=urn:btih:9BA9B18359E467537A51BD126926ED6133341009
 magnet:?xt=urn:btih:26D24418EFB7AC56631EEFA7E4FACD019F9AC729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +604,8 @@ magnet:?xt=urn:btih:26D24418EFB7AC56631EEFA7E4FACD019F9AC729
 ```bash
 magnet:?xt=urn:btih:FCAA2B29472F35AFFC91E6E67E12866D46C39B20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +633,8 @@ magnet:?xt=urn:btih:FCAA2B29472F35AFFC91E6E67E12866D46C39B20
 magnet:?xt=urn:btih:FEC030AAFB860C3EC12391C0ADCEFEF0420A9348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +658,35 @@ magnet:?xt=urn:btih:FEC030AAFB860C3EC12391C0ADCEFEF0420A9348
 ```bash
 magnet:?xt=urn:btih:CC2E71DC44D6B7D869DA3CC2C8198E8FA33A9EAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581756   (338049) от 27.11.2012
+
+Журнал | Контрольная Закупка премиум №9 (спецпроект) [2012 сентябрь] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_338049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тема номера: Красное золото. Красная икра, королевские креветки, эксклюзивный чай, липовый мед, клубничный джем с ревенем.
+Первый независимый журнал, посвященный изучению качества продуктов питания местного производства, услуг и товаров народного потребления. Какой производитель изготавливает самые качественные и вкусные продукты? Мы готовы ответить!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:958857ADED8B653EA2B3A673892835F88A5686E4
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

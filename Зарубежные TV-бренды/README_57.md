@@ -19,6 +19,8 @@ NG. Настольная книга диктатора / Dictators Rulebook (201
 magnet:?xt=urn:btih:BD5F464D1E769B6848917F4D25B0E02E837D9612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC. Жизнь млекопитающих / The Life of Mammals (2002) HDTVRip 
 ```bash
 magnet:?xt=urn:btih:10ADEEF934FAC86DBDC55A5634754B515DB79AF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC: Лететь ли нам на Марс? Мысли о будущем / The 
 magnet:?xt=urn:btih:6925553CE8668912BE5B419065219DAA7F959A02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NGW: Человек против монстра / Man vs Monster (2011-2012) HDT
 ```bash
 magnet:?xt=urn:btih:99A3E61CDDC6130BE4E2CEB1E8C7652BD5490F12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Discovery. Пешком вдоль Нила / Walking the Nile (2015) HDTV [H.26
 magnet:?xt=urn:btih:4E01A5A5250B87DA00E3F086A7EADD2ECF0E8215
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG. Вампиры в Венеции / Vampires in Venice (2010) HDTV [H.264/108
 ```bash
 magnet:?xt=urn:btih:BC10DD31A0524548653AEEE974460BBC26BF92CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Discovery: Мегаперевозки / Mega Shippers (2016) HDTVRip [H.264/720p
 magnet:?xt=urn:btih:88B518259C2FB4813BEE0BE7A74985E64502DD8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ NG:Королева тигров / Tiger Queen (2010) HDTVRip[H.264/720p-LQ]
 magnet:?xt=urn:btih:1BFD58648161BCCCB8508B9A1551A0B80EC19833
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ NG:Армия львов: Битва за выживание / Lion Army. Battle
 ```bash
 magnet:?xt=urn:btih:3A91EA1BB83C2155AD0CF9588DDE34DE7C35E8FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:3A91EA1BB83C2155AD0CF9588DDE34DE7C35E8FD
 magnet:?xt=urn:btih:9050725F2BD49790FD16BEEF58E6FF31D255D374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ BBC. Большое австралийское приключение / Coast Au
 ```bash
 magnet:?xt=urn:btih:ED0FC74E3F7A33E7AE37E8AB53B82231EAB7A08A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Discovery. Титаник. Ответы из Бездны / Titanic. Answers fro
 magnet:?xt=urn:btih:5B6716E22DD187A540FD705B1D9DEC27DE35E8C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ NGW: Секретное королевство Борнео: странные и
 ```bash
 magnet:?xt=urn:btih:989FBF9E9CCA29AFB9315540FFC8900AB27CA198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Animal Planet: В дикие края с Эваном. Поездка в Пер�
 magnet:?xt=urn:btih:B02B60CE94A4317A1ECDBC9536D2AB4AFBC103C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:B02B60CE94A4317A1ECDBC9536D2AB4AFBC103C0
 ```bash
 magnet:?xt=urn:btih:643385998C2FAE2AA27A4670DB9F29C2EBF3D1EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:643385998C2FAE2AA27A4670DB9F29C2EBF3D1EF
 magnet:?xt=urn:btih:EC7302AD96ADBFC7396C1818C4F17EDE2FE87046
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:EC7302AD96ADBFC7396C1818C4F17EDE2FE87046
 ```bash
 magnet:?xt=urn:btih:1F1C237984CCEC3A78CF7D4DD06C7EA4BD221284
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ NG: Последние тайны Третьего рейха  / Nazi Underworld
 magnet:?xt=urn:btih:D4E8727546A43260CD25552F33F6BFD9F81EDCCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:D4E8727546A43260CD25552F33F6BFD9F81EDCCD
 ```bash
 magnet:?xt=urn:btih:D3E5C00798AD6190A4528887E9AC5CB75A332B01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:D3E5C00798AD6190A4528887E9AC5CB75A332B01
 magnet:?xt=urn:btih:1934C43A82DA08B4D8C13824205E8E57053E48EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Discovery. Короли столярного дела  / Redwood KINGS (2013) HD
 ```bash
 magnet:?xt=urn:btih:7B55048BFA652868CCBB3F980E3F2191E1AA9ED8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 magnet:?xt=urn:btih:B20CFE882937F3AFEDD2806E5948AC8E4734F533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 magnet:?xt=urn:btih:D69916E8B07E20E1D7311E6748C37894F86E3FEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 ```bash
 magnet:?xt=urn:btih:3FD338D810BADC4C29D38D0DCA1A13000FAB938E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Animal Planet: Голубые Багамы / Bahama Blue (2014) HDTVRip [H.264/7
 magnet:?xt=urn:btih:1A8D1AEDFBCEA66222B3CF4601CD4B14838729A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ BBC: Зараженный. Жизнь с паразитами / Unfested! Living
 ```bash
 magnet:?xt=urn:btih:93ECFE6C5BAF77EC45C666D53143C4EB96128EDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

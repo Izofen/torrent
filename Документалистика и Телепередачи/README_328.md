@@ -1,3 +1,29 @@
+###  Публикация: 1164667   (438929) от 10.09.2017
+
+Танцы (2017.09.09) WEB-DL [H.264/720p-LQ] (сезон 4, выпуск 4)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_438929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Танцы 4 сезон, в очередном сезоне любимого миллионами танцевального проекта нас ждет противостояние полов, потому что Егора Дружинина больше нет в числе членов жюри. Его место заняла знаменитый хореограф Татьяна Денисова. С появлением нового судьи будут связаны крупные изменения новых деталей проекта. В проекте окажутся хореографы Татьяны, которые станут трудиться (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 01:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60672F858182073802DAE25A9C3F3637B4CFF459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1164623   (438932) от 10.09.2017
 
 Военная приемка. «Армата» – «терра инкогнита». Часть-2я.  (10.09.2017) SATRip
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:332772EB734D1AC354989666C994EC94AF4695A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:332772EB734D1AC354989666C994EC94AF4695A9
 magnet:?xt=urn:btih:DC54D2031F8BA243B9243EB9B4599C6B523C45EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:DC54D2031F8BA243B9243EB9B4599C6B523C45EF
 ```bash
 magnet:?xt=urn:btih:7E82A2A8E307B1C17A98042CC45319C16F318519
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:7E82A2A8E307B1C17A98042CC45319C16F318519
 magnet:?xt=urn:btih:65575D9B9E4E41FF62F7F4E841C8554783E3CE64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:65575D9B9E4E41FF62F7F4E841C8554783E3CE64
 ```bash
 magnet:?xt=urn:btih:1C3F4C2EDE38FB4099081846346B73BE095539F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:1C3F4C2EDE38FB4099081846346B73BE095539F9
 magnet:?xt=urn:btih:CB57748D028ED6BDF76945F3CEADB8F282ECF784
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:CB57748D028ED6BDF76945F3CEADB8F282ECF784
 magnet:?xt=urn:btih:CEFA81EAB655AD39FCFCF58A471D9CBC2C1227FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:CEFA81EAB655AD39FCFCF58A471D9CBC2C1227FC
 ```bash
 magnet:?xt=urn:btih:B1FE5FE7FB06B6CCB63252EF57023E5F23033541
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:B1FE5FE7FB06B6CCB63252EF57023E5F23033541
 magnet:?xt=urn:btih:6C80F74E10EC2C1EFFD130A14754F22ABFA3B31A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:6C80F74E10EC2C1EFFD130A14754F22ABFA3B31A
 magnet:?xt=urn:btih:F71B86AAB9119FBB5DABEAEA72D3A5AC1A5D0E61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:F71B86AAB9119FBB5DABEAEA72D3A5AC1A5D0E61
 ```bash
 magnet:?xt=urn:btih:03950C1DE1416A50DC12E388D5AA881B3F584CEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:03950C1DE1416A50DC12E388D5AA881B3F584CEA
 magnet:?xt=urn:btih:3776086DC180DE4E298159213BE6857C44E8F83F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:3776086DC180DE4E298159213BE6857C44E8F83F
 magnet:?xt=urn:btih:24F50391C4542265EFE7F52F67B57A7E78F6C6DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:24F50391C4542265EFE7F52F67B57A7E78F6C6DF
 magnet:?xt=urn:btih:27A174526B75652A577F295FE9D35CD319FF0906
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:27A174526B75652A577F295FE9D35CD319FF0906
 ```bash
 magnet:?xt=urn:btih:46C1D81CDF68F78A39FBF3325CC83FE44844CF9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:46C1D81CDF68F78A39FBF3325CC83FE44844CF9D
 magnet:?xt=urn:btih:1F75D891322C67D7CA823B06F1846829DB07B28B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:1F75D891322C67D7CA823B06F1846829DB07B28B
 ```bash
 magnet:?xt=urn:btih:F6EEE3DFE217ECBF7FEDAD1B6B668C6466E14BC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:F6EEE3DFE217ECBF7FEDAD1B6B668C6466E14BC6
 magnet:?xt=urn:btih:B7F43F87676588334217BF56922ED5DF00C1C521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:B7F43F87676588334217BF56922ED5DF00C1C521
 ```bash
 magnet:?xt=urn:btih:622F4CAC3E146E6B73B4D7C6E5C313D4FD5F5F74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:622F4CAC3E146E6B73B4D7C6E5C313D4FD5F5F74
 magnet:?xt=urn:btih:201DB552D8DA81BC5C609C432D3C324418CA1875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:201DB552D8DA81BC5C609C432D3C324418CA1875
 ```bash
 magnet:?xt=urn:btih:B21D3C0E39B267711707C37CBD9935E3E0DC9B1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:B21D3C0E39B267711707C37CBD9935E3E0DC9B1B
 magnet:?xt=urn:btih:E9ACCFDC11C1FE96A0034B6BD25A66C410062405
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:E9ACCFDC11C1FE96A0034B6BD25A66C410062405
 ```bash
 magnet:?xt=urn:btih:C5745D0E302789E098FF6A2365C58ADEE227AE53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:C5745D0E302789E098FF6A2365C58ADEE227AE53
 magnet:?xt=urn:btih:1E93AEDB81954D77E2DF704DAA5D6E6EB93E4D14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:1E93AEDB81954D77E2DF704DAA5D6E6EB93E4D14
 magnet:?xt=urn:btih:B62006D06D02804A72C1FC46AFDED7B02E5D51BC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164632   (439510) от 10.09.2017
-
-Территория заблуждений с Игорем Прокопенко (2017.09.09) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_439510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день приносит научные сенсации, которые противоречат нашим привычным знаниям. Невероятные находки археологов опровергают учебники истории. Новейшие открытия астрономов начисто ломают знания о жизни Вселенной. А последние исследования медиков - рушат, казалось бы, незыблемые истины даже о жизни и смерти. В результате даже ученые все чаще приходят к неутешительному (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 01:31:41Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBA6794E3D938A1B3F2386362C8AD3B78BF45E7D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

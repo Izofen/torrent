@@ -22,6 +22,8 @@ David Hasselhoff - Looking For Freedom  (1989) [FLAC|Lossless|tracks + .cue] <Po
 magnet:?xt=urn:btih:29BA381DE3BC83F8ABD6AF0C39D89E603B4DE97A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:29BA381DE3BC83F8ABD6AF0C39D89E603B4DE97A
 ```bash
 magnet:?xt=urn:btih:624E5D42DCE94B917363639F8C395762C7D01ABE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:624E5D42DCE94B917363639F8C395762C7D01ABE
 magnet:?xt=urn:btih:D08F6439A799551C08F168147AD7302BD2021E94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:D08F6439A799551C08F168147AD7302BD2021E94
 ```bash
 magnet:?xt=urn:btih:A6B265E9A38A7C0EBC59D7909193FD61D5279B08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Duran Duran - Is There Something I Should Know? (1983) Remaster, 2024, Rhino [FL
 magnet:?xt=urn:btih:5AE7C807336439386083507D8BE2D934938BE73A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:5AE7C807336439386083507D8BE2D934938BE73A
 ```bash
 magnet:?xt=urn:btih:5355A62B1A217FB4476D11FC8E6BC53F722D864B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Toto Cutugno - Greatest Hits (2006) [WavPack|Lossless|image + .cue] <Pop, Stage>
 magnet:?xt=urn:btih:80255C41C934256AEF9B6F7A52EAE1ABA522A803
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ L'Imperatrice - Pulsar (2024) [FLAC|Lossless|WEB-DL|tracks] <French-Disco, Indie
 ```bash
 magnet:?xt=urn:btih:93E66AC27C2783A322845BBDD81917820464F7A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Loni Cash - The Album (2013) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco, Synthpop
 magnet:?xt=urn:btih:F15400D2B96CE542ED37FBEB066E7786F72A3822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Loni Cash - The Album (2013) [MP3|320 Kbps] <Euro-Disco, Synthpop>
 ```bash
 magnet:?xt=urn:btih:D7ABFBC9228AE91E51B21C3CB12A329EDB14F261
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:D7ABFBC9228AE91E51B21C3CB12A329EDB14F261
 magnet:?xt=urn:btih:0CEA7890747A8C2FCEC06F8858C65C613C429D12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ magnet:?xt=urn:btih:0CEA7890747A8C2FCEC06F8858C65C613C429D12
 magnet:?xt=urn:btih:FB7D1A7791356D9C70059E725A02093B8D0C2925
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ Niel De One - Retrospectiva (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, Disc
 ```bash
 magnet:?xt=urn:btih:9962CA6627B4A17676B39DB3E96C0B8C191F625A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +397,8 @@ VA - Top 100 Songs of 2024 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:7FBBE1EA6C47A8E562E7DBF98B18DA24E5B0AC6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ VA - Lentos y acusticos 2024 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:C0F5DB36EAFEE6B22205CA56077588900F1CC04A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ Gazebo - From Pasha with Love (Vinyl Release) (2024) Maxi Single [FLAC|Lossless|
 magnet:?xt=urn:btih:E681AB613545AC7B57DFB7FFBEC34B099A115D65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ magnet:?xt=urn:btih:E681AB613545AC7B57DFB7FFBEC34B099A115D65
 ```bash
 magnet:?xt=urn:btih:8FF0366A10E7964C3E76F2F552E3903BB4F538B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ Rondo Fantastico - La Serenissima (2006) [WavPack|Lossless|image + .cue] <Pop In
 magnet:?xt=urn:btih:A39967584759CC555AED68EEF849E757FE8DA8FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ Revoльvers - Целуешь меня (2007) [WavPack|Lossless|image + .cue] <P
 ```bash
 magnet:?xt=urn:btih:D3D6841690C9414413A76EBA15DD5E3A5DCDC71D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +571,8 @@ VA - Italo Disco Hits Vol. 1-2 Collectors Edition (2010) [MP3|320 Kbps] <Disco, 
 magnet:?xt=urn:btih:7A35676FD8C1968FF39F9182BA7FA0CE23FAF6FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ Reflex - Blondes 126 (2008) [WavPack|Lossless|image + .cue] <Pop>
 magnet:?xt=urn:btih:B46534038CDB438F71095D0871FAD6DAC7998417
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ George Harrison - The Concert for Bangladesh (1991) 2024 [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:E64B21F7ED0B261F02FC44AFBBF03A740A215D0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ VA - 90s Music - Greatest Hits (2024) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
 magnet:?xt=urn:btih:5AB496FB9C7C974EAC4D8B96FD3466E49FA1AEC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ VA - 90s Radio Hits (2024) [MP3|320 Kbps] <Pop, Rock, RnB>
 ```bash
 magnet:?xt=urn:btih:7CA4D20BED709D1742345AA9A0D8382512E3AF46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Digital Emotion - Arcade Serenade (2024) Unofficial [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:E796CA86057AF3123B378E101DF3973578549A6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ VA - 80's Emotion: Electro Pop and Italodisco Collection (2024) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:5854F80BAC1F07D2C852CF59ABB41881CE51E846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

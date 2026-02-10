@@ -20,6 +20,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:9523112B6FFC821736882FD35CC96B68D9B6979F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Ashampoo WinOptimizer - новая линейка пакета программ,
 ```bash
 magnet:?xt=urn:btih:B5F80FA66CA265D8A9994EF9CCD4E8D9E6A1EEE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Spotify имеет громадный каталог музыки, поддер�
 ```bash
 magnet:?xt=urn:btih:0FD91B355C5E492AAB351E5E7804F5B892426393
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Ubuntu Junior cube r 1.4 сделана на основе Ubuntu 10.04.
 magnet:?xt=urn:btih:4085104B5D832C0B2AED439F33502AFEDB95641C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ jetAudio это музыкальный проигрыватель с 10/20 по�
 ```bash
 magnet:?xt=urn:btih:A6B4C62DA846E639E7E13E092D1485A34F40BF64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ NewPipe v0.26.1 Free + Mod by Alex.Strannik  [Ru/Multi]
 magnet:?xt=urn:btih:E363770E48997784B445D5288D9531F84A915211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:E363770E48997784B445D5288D9531F84A915211
 ```bash
 magnet:?xt=urn:btih:1FFBE2D161E4A03C13A0611571A6FC87D67B280A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Planet VPN 2.7.8.23 [Multi/Ru]
 magnet:?xt=urn:btih:C14D8AA9F176A43A25F6005EE1FD48F596143568
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Bazaart: Photo Editor & Graphic Design v2.4.2 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:6EE957DF1F04A08D24BC23B7336C63D20FA10D44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ FileZilla - популярный кроссплатформенный FTP кли
 ```bash
 magnet:?xt=urn:btih:D35EEA676103E780D0F58E18DAA846B20D069DB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Transcend SSD Scope - удобное приложение для работы с
 magnet:?xt=urn:btih:A99B0230CFBE74EBC1175A0583442EF0CF807BA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:4A9CF670331C3263B9BB85904D2133AC0D8A4FA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ LDPlayer 9 — мощный бесплатный эмулятор устройс
 magnet:?xt=urn:btih:87B27A0E608B82E0978664DC96B4AED501DD7A96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:87B27A0E608B82E0978664DC96B4AED501DD7A96
 magnet:?xt=urn:btih:8397E27BA25B00A26257A373E6B712BC4809EF2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Ashampoo UnInstaller — это ваша подушка безопасности
 ```bash
 magnet:?xt=urn:btih:FE013924DD79985C57F4D8B1962B524C0959A1A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Adobe Photoshop — мощное приложение для редактиро�
 magnet:?xt=urn:btih:7454F3FD4BFCAE5E4CC0CB315AF9FFC4265B9F2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ EarthView — это динамические обои для рабочего �
 ```bash
 magnet:?xt=urn:btih:B5DB1745CEA1437CF45ECE41E67AB0F4C182EC7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 magnet:?xt=urn:btih:03FD917389E2B010159B07A1F5114114E6F832FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Comodo Dragon - быстрый универсальный браузер на б
 ```bash
 magnet:?xt=urn:btih:267D10522739AA71C704BA261022FD00AB31BAA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ HopToDesk - это бесплатный инструмент для удален
 magnet:?xt=urn:btih:657782F12B5B691465F77E6A783F4DEC4C45C096
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ SRWare Iron 120.0.6100.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0C27557825219F1E725291BD036B010D44AE7DF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ GOM Player Plus - мультимедийный плеер со множеств�
 magnet:?xt=urn:btih:56C6941D57D201159569F7D482DF45C5E251772D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Total Commander 11.02 (27.12.2023) Portable by MiG [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7C08EC1AB502A6F55691C013FF0402A4832E5690
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:BD7008BCDC31B985D0EF1756E386908D0D34A115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:8C699D5B6CC58135671374B8B00D369E8B3A295F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ Duplicate Cleaner выполнит глубокое сканирование в�
 ```bash
 magnet:?xt=urn:btih:23140D7FB7F3BB0FC840373A367A789C13787786
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

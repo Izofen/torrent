@@ -19,6 +19,8 @@ PC Magazine/RE «Персональный компьютер сегодня» �
 magnet:?xt=urn:btih:0CB469554DC1A3C11B2A3702E6791F93142A1DBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ VA - Лучшая Майская Вечеринка (2012) [MP3|256 кб/с]<Pop
 magnet:?xt=urn:btih:B331D425AB0B3B98A6F811FA5EADC7CFFA0219BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:B331D425AB0B3B98A6F811FA5EADC7CFFA0219BE
 ```bash
 magnet:?xt=urn:btih:1DE8ED6AA122D66FE7AE67C4494F8CFE23C02F2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ Svarrogh / Defile Des Ames / Arnica – South European Folk Compendium (2009) [F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +147,8 @@ Nebelkorona - 3 albums (2006-2010) [FLAC|Lossless] <Neoclassical, Ambient, Neofo
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +173,8 @@ Maxthon - новая версия браузера. Maxthon обладает м�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +198,8 @@ Maxthon - новая версия браузера. Maxthon обладает м�
 ```bash
 magnet:?xt=urn:btih:A28A27AC6F4CB160CD09383688B39914559F6329
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +226,8 @@ magnet:?xt=urn:btih:A28A27AC6F4CB160CD09383688B39914559F6329
 ```bash
 magnet:?xt=urn:btih:9CFE0FC62D65FC254604984B1AB3DA80A2C905A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +262,8 @@ Luis Russell - Luis Russell and orchestra (1930-1934) (1996) [FLAC|Lossless]<Swi
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ Luis Russell - Luis Russell and orchestra (1930-1934) (1996) [FLAC|Lossless]<Swi
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +319,8 @@ Luis Russell - Luis Russell and orchestra (1930-1934) (1996) [FLAC|Lossless]<Swi
 ```bash
 magnet:?xt=urn:btih:4CA0F223AADF1F65A5B3EE7A799F6DDF30F1CB5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +355,8 @@ At Vance - Facing Your Enemy (2012) [FLAC|Lossless]<Neoclassical/Power Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +390,8 @@ VA - German TOP 100 Single Charts (10.05.2012) [MP3|152-312 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:20F46FD83F6406C7F4BE4A06A2996CB060B578AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +415,8 @@ magnet:?xt=urn:btih:20F46FD83F6406C7F4BE4A06A2996CB060B578AA
 ```bash
 magnet:?xt=urn:btih:CE40D4CD86B7C8009218B4BDC5EBF8E950AA1C0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +444,8 @@ magnet:?xt=urn:btih:CE40D4CD86B7C8009218B4BDC5EBF8E950AA1C0C
 magnet:?xt=urn:btih:A07A808AAE5DBF0D8791089D1E0F5E83FD850B9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +472,8 @@ magnet:?xt=urn:btih:A07A808AAE5DBF0D8791089D1E0F5E83FD850B9E
 magnet:?xt=urn:btih:12128E6C9615292B47A03AF8C5458C10D122309A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +497,8 @@ magnet:?xt=urn:btih:12128E6C9615292B47A03AF8C5458C10D122309A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +533,8 @@ VA - Самый Модный Молодежный Хит (2012) [MP3|256 кб/с
 magnet:?xt=urn:btih:677E2B36336FB44F7DBF2CF84BE6346D5AC29B3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +558,8 @@ Q-Dir - файловый менеджер с очень малыми систе�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +594,8 @@ VA - Продвинутый Клубняк 50+50 (2012) [MP3|320 кб/с]<Pop,Da
 magnet:?xt=urn:btih:E663934BEBBF1F12211133F8213470A91AD11F9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +620,8 @@ magnet:?xt=urn:btih:E663934BEBBF1F12211133F8213470A91AD11F9D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +645,8 @@ magnet:?xt=urn:btih:E663934BEBBF1F12211133F8213470A91AD11F9D
 ```bash
 magnet:?xt=urn:btih:99A127C1C02E0575289950755B8A2E1688949A22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +681,8 @@ Europe - Bag Of Bones (2012) Japan edition [FLAC (tracks+cue)|Lossless]<Melodic 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +707,8 @@ Europe - Bag Of Bones (2012) Japan edition [FLAC (tracks+cue)|Lossless]<Melodic 
 magnet:?xt=urn:btih:A79FD06A0A6774115F765A194CE3A48DF32044A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -684,6 +732,8 @@ magnet:?xt=urn:btih:A79FD06A0A6774115F765A194CE3A48DF32044A8
 ```bash
 magnet:?xt=urn:btih:253E9CB5106F0D4B255ADA0616FBC1679DE1029F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -717,6 +767,8 @@ Fausto Papetti - Grand Collection (1988) [FLAC|Lossless]<Pop, Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

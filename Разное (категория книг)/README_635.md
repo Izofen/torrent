@@ -1,3 +1,30 @@
+###  Публикация: 296083   (892224) от 15.02.2011
+
+Это вы можете!!! [DJVU]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Это подборка раздела "Маленькие хитрости" из старых номеров Науки и жизни. Множество советов, собранных в журнале именно "по письмам читателей". В свое время многие вырезали эти страницы из журнала, собирая в одну папочку. В этом издании энтузиаст видно решился опубликовать свою коллекцию (не указав источник и годы издания...)
+ Будет интересна, кто любит заниматься ремонтом, самоделками инструментов и приспособлений.Жанр: Ремонт, домоводствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2EDDAC1B1645B1E653B98337017693C3904048A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493886   (892301) от 05.09.2021
 
 Николай Новиков (авт.-сост.) | О молитве Иисусовой: Аскетический трактат. Составлен на основе келейных записей священника Антония Голынского  (2016) [DJVU, PDF]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:C7C10E1E6D113D1EECBAB7BF22318BACC8FEDB89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:C7C10E1E6D113D1EECBAB7BF22318BACC8FEDB89
 magnet:?xt=urn:btih:7B46DE5388D83BFBD2C76474355CFF98C992AC09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:7B46DE5388D83BFBD2C76474355CFF98C992AC09
 ```bash
 magnet:?xt=urn:btih:D0D68C0C08E5542ABA6740076704B7795C45C933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:D0D68C0C08E5542ABA6740076704B7795C45C933
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:D0D68C0C08E5542ABA6740076704B7795C45C933
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:D0D68C0C08E5542ABA6740076704B7795C45C933
 magnet:?xt=urn:btih:75F9744D2B13F84D711AC88313BFC68311936BEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:75F9744D2B13F84D711AC88313BFC68311936BEB
 ```bash
 magnet:?xt=urn:btih:1DEE85A200F8A8F9AEB732B064533D4DC7A4AAE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +230,8 @@ magnet:?xt=urn:btih:1DEE85A200F8A8F9AEB732B064533D4DC7A4AAE5
 magnet:?xt=urn:btih:699AD1A06ABB423CECD86E6F66779386EF4D48E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +255,8 @@ magnet:?xt=urn:btih:699AD1A06ABB423CECD86E6F66779386EF4D48E5
 ```bash
 magnet:?xt=urn:btih:79E38A485902A84D06ED7857E5ECFF8CB319F9F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:79E38A485902A84D06ED7857E5ECFF8CB319F9F4
 magnet:?xt=urn:btih:590086D24A1082847C48642EF395D004475BB071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +307,8 @@ magnet:?xt=urn:btih:590086D24A1082847C48642EF395D004475BB071
 ```bash
 magnet:?xt=urn:btih:3493E0E7D1D44F070C8DFA5A95F2A2C0947F7D8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +334,8 @@ magnet:?xt=urn:btih:3493E0E7D1D44F070C8DFA5A95F2A2C0947F7D8D
 magnet:?xt=urn:btih:8D3427BD4FC087BF344269013C340A716D665C12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +359,8 @@ magnet:?xt=urn:btih:8D3427BD4FC087BF344269013C340A716D665C12
 ```bash
 magnet:?xt=urn:btih:B3717478ED8308B9E17D7F6E7F469A8A08F235CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +387,8 @@ magnet:?xt=urn:btih:B3717478ED8308B9E17D7F6E7F469A8A08F235CE
 magnet:?xt=urn:btih:A6F494671E99D141CA09ABE784B2E9FC5416E235
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +414,8 @@ magnet:?xt=urn:btih:A6F494671E99D141CA09ABE784B2E9FC5416E235
 magnet:?xt=urn:btih:E48EECA08486956727F1AA1F0EEB7437FABDE101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +439,8 @@ magnet:?xt=urn:btih:E48EECA08486956727F1AA1F0EEB7437FABDE101
 ```bash
 magnet:?xt=urn:btih:129786015B946BEED35EA7D90B09BBBC41773F8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +466,8 @@ magnet:?xt=urn:btih:129786015B946BEED35EA7D90B09BBBC41773F8B
 magnet:?xt=urn:btih:D09540A6CE1B363723150CCA3D1CFC1C5F83FEE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +491,8 @@ magnet:?xt=urn:btih:D09540A6CE1B363723150CCA3D1CFC1C5F83FEE4
 ```bash
 magnet:?xt=urn:btih:915B6C280DBB9B724711417152B8B43705FD3826
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +518,8 @@ magnet:?xt=urn:btih:915B6C280DBB9B724711417152B8B43705FD3826
 magnet:?xt=urn:btih:99CFA621D32484F2B28F7D423221FC697AB30A5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +544,8 @@ magnet:?xt=urn:btih:99CFA621D32484F2B28F7D423221FC697AB30A5C
 magnet:?xt=urn:btih:286EC32D08BF88B89242D6A3AEE69D3D4CFADB24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +569,8 @@ magnet:?xt=urn:btih:286EC32D08BF88B89242D6A3AEE69D3D4CFADB24
 ```bash
 magnet:?xt=urn:btih:5C9265B8F6799A8F0759D141B676BBFB84EF7C36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +597,8 @@ magnet:?xt=urn:btih:5C9265B8F6799A8F0759D141B676BBFB84EF7C36
 magnet:?xt=urn:btih:13DAE422D3B4B6901DCB225CF2DC24C0CA33CC45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +622,8 @@ magnet:?xt=urn:btih:13DAE422D3B4B6901DCB225CF2DC24C0CA33CC45
 ```bash
 magnet:?xt=urn:btih:80945D7F4ECC6A64BD51326309D7135AD847F6CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +649,8 @@ magnet:?xt=urn:btih:80945D7F4ECC6A64BD51326309D7135AD847F6CE
 magnet:?xt=urn:btih:780D787C7CA0BF171059B4E2A68BB08B74645E53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,30 +675,7 @@ magnet:?xt=urn:btih:780D787C7CA0BF171059B4E2A68BB08B74645E53
 magnet:?xt=urn:btih:DC621F6ADEC6259A6DD9C203D4F6DA338CA8EDB8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993920   (893294) от 06.03.2016
-
-Билл Гиффорд | Стареть не обязательно! Будь вечно молодым, или Сделай для этого всё возможное (2016) [FB2, DOCX]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тема продления жизни очень интересовала людей во все времена. И в наши дни она находится в фокусе ведущих ученых мира.
-Как суметь прожить максимально долго и даже в глубокой старости сохранять энергию, подвижность, жизнелюбие и здравый ум? Какие изменения с возрастом происходят с нашим организмом? Что за недуги коварно подкарауливают пожилых людей и что с этим можно (   Читать дальше...   )Жанр: Здоровье, Питание, ДолголетиеФормат: FB2, DOCX
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1935707FE189C0FDD336B9531E63B498CA926F1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

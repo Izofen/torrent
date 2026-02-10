@@ -22,6 +22,8 @@ Manish Vyas - Sattva (2003) [FLAC|Lossless|tracks + .cue] <New Age, Meditative>
 magnet:?xt=urn:btih:4814A6F941F99B5B4E984C56165B02C72F4B468C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Sarah Darling - Dream Country (2016) [MP3|320 Kbps] <Country>
 ```bash
 magnet:?xt=urn:btih:C44E43A668AE26869D7784B58A612F654BD60D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ Kitaro - Final Call (2013) [MP3|320 кб/с]<New Age>
 magnet:?xt=urn:btih:DD6DBBB09C8B5FBF2027C25C69C188DD5908D31A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ David Arkenstone - The Turning Of The Year (2020) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:D0F536BF829369B432E2B8BC0B95713770C2FBD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -137,6 +145,8 @@ ROME создал очаровательный мир противоречий, 
 magnet:?xt=urn:btih:3E06C8AC20F9A1B0EA58B67A5182198C7D3DA50A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +173,8 @@ Heidi Feek - The Only (2013) [MP3|320 Kbps] <Country, World, Vocal>
 ```bash
 magnet:?xt=urn:btih:1507D1C5B8312AAF6E5123B9B9EAC303EA85BAEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +203,8 @@ Jean-Michel Jarre - Essential Recollection (2015) [FLAC|tracks+.cue]<Ambient, Ne
 magnet:?xt=urn:btih:17B52F7430A73ECE9F392BC867AD5C8967B5F327
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +231,8 @@ Cosmic Baby - Heaven (1998) [FLAC|Lossless]<Ambient, New-age, Electronic>
 ```bash
 magnet:?xt=urn:btih:1B93B74988840A0AE6455FD25CFEE4F156CA2818
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +261,8 @@ Stephen Rhodes - Pure Angel Healing (2018) [MP3|320 Kbps] <New Agе, Relax, Medi
 magnet:?xt=urn:btih:8830FC9B6D55638A1F08FB8FBEF32198F854740F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +289,8 @@ Helen Jane Long - Perspective (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental
 ```bash
 magnet:?xt=urn:btih:5DF6C3EB1FC09F61EFFFEE051FC6CB55CBA45B2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +319,8 @@ Sucker Punch / Запрещенный прием Soundtrack (2011) [FLAC|Lossles
 magnet:?xt=urn:btih:BD26ACF023B62D94C9336805E7E94A26AF394ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +347,8 @@ Fiona Joy Hawkins - Story of Ghosts (2018) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 ```bash
 magnet:?xt=urn:btih:E2C5D5E13E4CEA973061CA5BB4F341F58266A77F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +383,8 @@ VA - Веселої забави! ч.2 (2011) [MP3|256 кб/с]<Folk-Pop>
 magnet:?xt=urn:btih:6A2D68A169A64051610A4697AF6B71642132AD62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +411,8 @@ Enigma - Love Sensuality Devotion: Greatest Hits & Remixes (2001) 2016 Remastere
 ```bash
 magnet:?xt=urn:btih:60DCA6B0CEC8FEF08D16919F0290531805E01B7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +441,8 @@ Blackmore's Night - All Our Yesterdays (2015) [FLAC|Lossless|WEB-DL]<Folk Rock, 
 magnet:?xt=urn:btih:DECFE265080D9AE7D3D3796C024F01EEB82DAEA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +469,8 @@ Yoshio Kimura & Hidehiko Matsumoto - Uta No Nai Ryukoka 150 (1969-1971) (2014) 6
 ```bash
 magnet:?xt=urn:btih:61197293EFB895ED566C9C74CE83DF470FFE94FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +499,8 @@ Brian Crain - Impressions from Paris to Prague (2015) [MP3|320 кб/с]<Piano, I
 magnet:?xt=urn:btih:19839CE9996199C231D30D5C897B938490A27BAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +527,8 @@ Terry Oldfield - Temple Moon (2017) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:9C5AE3AC37FA69BD63ECD644BE7CEDDF867D9D7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +557,8 @@ Penelope
 magnet:?xt=urn:btih:BCE66B9E5503B93FAE798E8315D9CEEE57630CED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +585,8 @@ Devakant - Earth And Sky (2017) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:2A9A6FAB74557F8BE962D39B8D76E02179AD05D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +615,8 @@ The Sound Of Love - Closer to me (2017) [MP3|320 Kbps] <New age, Enigmatic, Voca
 magnet:?xt=urn:btih:47B5732F794D2A72486785E1B56B044A975D7548
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +640,8 @@ VA - Mortal Kombat Soundtrack Compilation (1993-1999) [MP3|320 кб/с]<Techno, 
 ```bash
 magnet:?xt=urn:btih:A7BC69F1D6AA05F42E0F73F1923108D268CDBC63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +676,8 @@ magnet:?xt=urn:btih:A7BC69F1D6AA05F42E0F73F1923108D268CDBC63
 magnet:?xt=urn:btih:C243FAFF0CDE4F093B14D36436D2CEAE0EB0738E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +705,8 @@ magnet:?xt=urn:btih:C243FAFF0CDE4F093B14D36436D2CEAE0EB0738E
 magnet:?xt=urn:btih:37CA0DADCB7D6FB3BE5E08F5B90930938D13FC69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -685,6 +733,8 @@ Omar Akram - Destiny (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, 
 ```bash
 magnet:?xt=urn:btih:F5234CB3A44AB2B138BE6BBF8B3BB165F10E4776
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -718,6 +768,8 @@ magnet:?xt=urn:btih:F5234CB3A44AB2B138BE6BBF8B3BB165F10E4776
 ```bash
 magnet:?xt=urn:btih:0A7E2BB294CD00C9FED63BF08CE4AB451954C898
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

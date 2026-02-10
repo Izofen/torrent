@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:08B0876787F9D8B1D2C40B1D7CD7D4F83DBA23F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Russell Morris - The Very Best of Russell Morris (2013) CD, Compilation [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:B49D821DB73CF381A2CB492C60D930A3FBE33624
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Mannheim Steamroller - Fresh Aire 7 (2000) CD, Album [FLAC|Lossless|tracks + .cu
 magnet:?xt=urn:btih:31AC7E1802453873FC3D9C9EB26152ECF2D3F2C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Spanish Gold - South Of Nowhere (2014) CD, Album [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:6CB9C8026EE19F4995253C84D42B2826FE9BF223
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:6CB9C8026EE19F4995253C84D42B2826FE9BF223
 magnet:?xt=urn:btih:C8C63344E27B7670B817FF8D1ADDB9C08E18E0C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ SanMinor - Дивный Новый Мир (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:139DF26EB681DAD02D8E8DD3F863E37F39E4546A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Drum Nation (Volume 3) (2006) CD, Album, Enhanced [FLAC|Lossless|tracks + .
 magnet:?xt=urn:btih:24D2921BD7AB82AD367B3D7F9201F3B44A5296C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Sonny Rollins - Freedom Weaver (1959) 3CD, 2024, Resonance Records [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:4C0488CA1F9DC0830931726DCAE51645D44C27DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Soliloquium - Famine (2025) [MP3|320 Kbps] <Melodic Doom, Death Metal>
 magnet:?xt=urn:btih:56FB953CC2CF8D964FFB2BB61B1F9FFD764FD88C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ MotoGP. Этап 09 из 22. Гран-при Италии. Спринт (21.06.2
 ```bash
 magnet:?xt=urn:btih:231BF75C0D329A3A629D3268091D6002AC492022
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Speedemon - Fall of Man (2025) [MP3|320 Kbps] <Speed, Thrash Metal>
 magnet:?xt=urn:btih:3ABFC4D705B67A370DAC4520AA3ED542293F86BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ MotoGP. Этап 09 из 22. Гран-при Италии. Квалификац�
 ```bash
 magnet:?xt=urn:btih:8BACAB091942C88BC37086433B92794AC1124D28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +362,8 @@ magnet:?xt=urn:btih:8BACAB091942C88BC37086433B92794AC1124D28
 magnet:?xt=urn:btih:0C3B80C08BF0045D04F58334298DB6BEEE6B5988
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +387,8 @@ magnet:?xt=urn:btih:0C3B80C08BF0045D04F58334298DB6BEEE6B5988
 ```bash
 magnet:?xt=urn:btih:76E930EAA3E113F534FD397ABFBB9123AD445A13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +414,8 @@ magnet:?xt=urn:btih:76E930EAA3E113F534FD397ABFBB9123AD445A13
 magnet:?xt=urn:btih:47BC9B43141A31D8330F6815D3636AA65D17C976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ magnet:?xt=urn:btih:47BC9B43141A31D8330F6815D3636AA65D17C976
 ```bash
 magnet:?xt=urn:btih:A35F26F57B8DA87EF748982B04405B3CBF9C8B7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +466,8 @@ magnet:?xt=urn:btih:A35F26F57B8DA87EF748982B04405B3CBF9C8B7B
 magnet:?xt=urn:btih:C38377C83A984B7FEE8B26B10322F0E76E30346D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ Gimai Seikatsu | Days with My Stepsister | Жизнь со сводной сес
 ```bash
 magnet:?xt=urn:btih:CC4E29910DD9738B597F80EB64541476A2D67EA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +521,8 @@ VA - That Ole Devil Called Love (2016) 2 x CD, Compilation [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:7CFD4473443CB9AF0D93BBF754024E22242E73DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:7CFD4473443CB9AF0D93BBF754024E22242E73DB
 ```bash
 magnet:?xt=urn:btih:38FB05D2135EC5D44DA51B4E309FFD47CEDC2886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +576,8 @@ Obiymy Doschu - Vidrada (2025) [MP3|320 Kbps] <Progressive Rock>
 magnet:?xt=urn:btih:5CB1E3B1CF00E075F48020EAB56C133357693CB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ magnet:?xt=urn:btih:5CB1E3B1CF00E075F48020EAB56C133357693CB0
 ```bash
 magnet:?xt=urn:btih:86A7F96F00EC6C469B10EA7A9A21E5C7FCF83D7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +628,8 @@ magnet:?xt=urn:btih:86A7F96F00EC6C469B10EA7A9A21E5C7FCF83D7E
 magnet:?xt=urn:btih:B1B8251C6EF543D2206531170B74625D5A234B8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ Notification Dots v1.2.65 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:53E0D49BE1EA03CF0CF72493DA8E489FCB10A33C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:53E0D49BE1EA03CF0CF72493DA8E489FCB10A33C
 magnet:?xt=urn:btih:5DD794EE3CA6E78343DCDDCC35D198C4DFC0DBA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ magnet:?xt=urn:btih:5DD794EE3CA6E78343DCDDCC35D198C4DFC0DBA7
 ```bash
 magnet:?xt=urn:btih:011116A38F0A79A23A2358D0564271422C9B7808
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

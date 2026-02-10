@@ -21,6 +21,8 @@ Family Guy: Back to the Multiverse [En] (L) 2012 l SKiDROW
 magnet:?xt=urn:btih:65FE2DB9BF4F8495853FAC7DF761E3CF8AC6FD57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Minoria — новая амбициозная игра от студии Bombser
 ```bash
 magnet:?xt=urn:btih:2F88E282EB5CF50B7C885A01781D5C81BAC3C2FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ TEKKEN 7 (2017) [Ru/En] (3.30/dlc) Repack xatab [Ultimate Edition]
 magnet:?xt=urn:btih:2DE894A3A3EF1E3414B8932C9F3BAB462F35FDB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Omensight - это экшн игра-головоломка. Вы - Предве
 ```bash
 magnet:?xt=urn:btih:A28F4DFCFE95B5462D03309305A5B0E1C54262A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Streets of Rage 4 – Это новая часть одной из лучших 
 magnet:?xt=urn:btih:77E2D60EEC56CBECDB66C410D73B50E600238EAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Blind Fate: Edo no Yami (2022) [Ru/Multi] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:1C42958EE6086EEA3CD1C03968C203D613242CAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ TEKKEN 7 (2017) [Ru/Multi] (3.30/dlc) License EMPRESS [Ultimate Edition]
 magnet:?xt=urn:btih:31F66D2B9F7C3F88AF520F54AB5FB52514F05F49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Batman: Летопись Аркхема: Блэкгейт - Эксклюзивн
 ```bash
 magnet:?xt=urn:btih:6A870CB225D96589965240587F5A85E5948721D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Realms of Chaos (1995) [En] (1.0) License GOG
 magnet:?xt=urn:btih:9C30B283CFFF45623108F56331E1863AD3C0EA75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Mortal Kombat 11 – продолжение культовой серии фай
 ```bash
 magnet:?xt=urn:btih:29574BE5D41C9CCD5682351FF6C118AF417C3F71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Velocity Stream - необычные гонки в мире будущего, г
 magnet:?xt=urn:btih:99FE32B5BDAD36815D85DC7146BA2B33D6CD09C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Speedrunners from Hell – единственный в мире состязат
 ```bash
 magnet:?xt=urn:btih:6ED42F1F075B632694A69BBB2493F9B4FC9CCD7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Cult of the Lamb (2022) [Ru/Multi] (1.0.15/dlc) Repack Other s [Cultist Edition]
 magnet:?xt=urn:btih:287F98FD6A87994015877F7D7FF51459BAB6735B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ TEKKEN 7 (2017) [Ru/Multi] (3.30/dlc) SteamRip =nemos=
 ```bash
 magnet:?xt=urn:btih:CA0AAF6B2CC0EAE88328C95E1E6FB422F7A69C64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Alien Breed 3: Descent - шутер от третьего лица, в кото�
 magnet:?xt=urn:btih:E3E9AA3B2F77ED101C475AB95FBC61533008BB9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ NBA 2K Playgrounds 2 (2018) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:2D8B6B87986CD23B3B1F0CB7EF2CCED74B47B2E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ AIRHEART - Tales of broken Wings - это история молодой деву
 magnet:?xt=urn:btih:12CB8CD33247F8890A06358EB0562540F4B15934
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ WWE 2K18 (2017) [Multi] (1.0/dlc) License CODEX
 magnet:?xt=urn:btih:FDB4C1B2A927715CCBE91EA1A769469F4899DE7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Farm Together — от создателей Avatar Farm. Начните с ну�
 ```bash
 magnet:?xt=urn:btih:FF02B2B740F04EE6282F3954B33F0CC01781183C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Sprill: The Mystery of The Bermuda Triangle / Сприлл: Тайна Берм�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Magnetic: Cage Closed: головоломка с видом от первого 
 ```bash
 magnet:?xt=urn:btih:8C14C8703F0A8609CA87CD5F13F6F9FEE9C9BD01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Deadlight [Ru/En] (Repack/1.0.9249.u.1) 2012 | R.G. Catalyst
 magnet:?xt=urn:btih:4DA68E6877793D468E190E10BC6C607FC3F844D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Valthirian Arc Hero School Story (2018) [Ru/Multi] (1.0) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:479D32F4D1D539B259A37033EC278BC53234C3D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ X-Morph: Defense (2017) [Ru/Multi] (1.12/dlc) Repack R.G. Catalyst
 magnet:?xt=urn:btih:0838CA211390208F161954E63DDF6AF3B1CA4E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ My Memory of Us – это воспоминание о дружбе между �
 ```bash
 magnet:?xt=urn:btih:2C36A3467651912C512B80D03BEB77D5BFBFB6DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +678,8 @@ Mark of the Ninja (2012) [Ru/Multi] (1.0) Repack R.G. Revenants [Special Edition
 ```bash
 magnet:?xt=urn:btih:F4B085E6907FFDF398B23B0D2BB38C30BD922B44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

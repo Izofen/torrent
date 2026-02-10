@@ -28,6 +28,8 @@ VA - Metal Compilation - Best III (2012) [MP3|128-320 кб/с]<Symphonic, Black,
 magnet:?xt=urn:btih:6F58A87B47E2FD7E615DC7C8673079ACB998BA18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ VA - Сборник медленных хитов Vol.7 (2012) [MP3|320 kbps]<Po
 magnet:?xt=urn:btih:CDC2646EFA51DB5B0204BEB5053AD9C357AF856F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -87,6 +91,8 @@ Sardø - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 ```bash
 magnet:?xt=urn:btih:CF89F61EF7EC00A5F79C58E35E904C319BBB0318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +121,8 @@ VA - No name compilation part 14 Instrumental, Other (2025) [MP3|320 Kbps] <Inst
 magnet:?xt=urn:btih:A15783D5C11D9F4519EADA9EF6286303765CD238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +149,8 @@ AI - No name compilation part 12 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Sou
 ```bash
 magnet:?xt=urn:btih:C486CCCD96F61A40EC5D8434E0485E5889CFA8B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +179,8 @@ VA - No name compilation Deep Chill Vocal House part 13 (2025) [MP3|320 Kbps] <D
 magnet:?xt=urn:btih:5A7C965570D248BAAD7A8AB60065B6FA05F9BED4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +208,8 @@ VA - No name compilation part 15 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Sou
 magnet:?xt=urn:btih:9FBAF90BC174BB001091D95DDC68C2010FA23116
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +236,8 @@ L’Amour Fané - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Vocal, Eas
 ```bash
 magnet:?xt=urn:btih:28981CF4B2A92BC63EA010645D981E35225C43EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +272,8 @@ VA - MAXI. Горячее Лето в стиле Dance (2012) [MP3|320 kbps]<Dan
 magnet:?xt=urn:btih:84455DABA545DB69D0250B28BB5B64DAAF91F293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +306,8 @@ VA - Trance We Love vol.3 (May) (2012) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:AA60BDE3028D1656295A980E0757D69E0D038BB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +342,8 @@ VA - Maxi. Mega Italo Disco (2012) [MP3|320 kbps]<Dance|Pop|Disco>
 magnet:?xt=urn:btih:36A56706A0DEED7364CEE3EEF0A79CB99F89A879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +376,8 @@ VA - Союз Летних Хитов Лучшая 200-ка 50/50 (2012) [MP3|12
 ```bash
 magnet:?xt=urn:btih:352DE84406CB3469EAE2C36DFFBD24D1A6E51963
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +412,8 @@ VA - Русская Дискотека 80-90-Х Remix DJ Vol.2 (2012) [MP3|256 k
 magnet:?xt=urn:btih:1BA299C1CE87E21A20050AEEC216D007033A09B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +446,8 @@ VA - Инструментальная музыка (2012) vol. № 62 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:663376019E375B74BB24F3DEDC645F340C49917B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +482,8 @@ VA - Инструментальная музыка (2012) vol. № 61 [MP3|320 �
 magnet:?xt=urn:btih:6831C75261D722451DDC2C30B35D066F10620DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +517,8 @@ VA - Музыка для кача (1996-2012) [MP3|320 кб/с]<Metall, Heavy Me
 magnet:?xt=urn:btih:9792F4B46EE4C4B6C6579AD6868499FB4474AFB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +545,8 @@ VA - Music News For Forum vol.149 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:BC53FFBD9DA5D2F45D10221C0B5931C1C5AF8EC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +581,8 @@ VA - Dubstep Winter-Spring 2012 (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:326A0FAD75E25526A1DAE7AAC32D4D3DCA2CE8D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +616,8 @@ VA - Trance. Vocal Fascination 22 (2012) [MP3|320 кб/с]<Uplifting Trance, Voc
 magnet:?xt=urn:btih:A7791892D12CF34D68B98C5E154501F15A73F6D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +644,8 @@ VA - Music News For Forum vol.150 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:A30F59C487546420F4E8AE69813E6477D3EA8EEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +674,8 @@ Aurum Project - Collection (2025) [MP3|320 Kbps] <Disco, Dance, AI Music>
 magnet:?xt=urn:btih:292E29DDC97D6BC1016D8AE47891C372423445BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +702,8 @@ VA - No name compilation Deep Chill Vocal House part 16 (2025) (2025) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:AC29E433A6CB4C394BA446D4BA6C4521212055A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -688,6 +732,8 @@ Green Dolls - Dark Cabaret Nights (2025) [MP3|192-320 Kbps] <Electro Swing, Nu-J
 magnet:?xt=urn:btih:A95E29851B5818EA8B53664DD2A21569BC3F8F5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -714,6 +760,8 @@ VA - The Iron Apocalypse (2025) [MP3|320 Kbps] <Metal, Death, Black>
 ```bash
 magnet:?xt=urn:btih:241BEE13C7523699424AC81F1F40FDB7C73A80CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -742,6 +790,8 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 magnet:?xt=urn:btih:A6C3FE38A422BA84E5B33ABD8F10E2F8AD204F49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -768,6 +818,8 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 ```bash
 magnet:?xt=urn:btih:86325547B3DD747C382E893D99A9DE35D8E1C22A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

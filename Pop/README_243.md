@@ -1,3 +1,148 @@
+###  Публикация: 1030684   (672294) от 01.07.2016
+
+VA - In The Loving Memory Of Diana, Princess Of Wales (1997) Unofficial Release [APE|Lossless|image + .cue] <Pop, Funk, Soul, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elton John - Candle In The Wind
+02. George Michael - You Have Been Loved
+03. Lisa Stansfield - Don't Cry For Me
+04. Seal - Kiss From A Rose(   Читать дальше...   )Продолжительность: 01:11:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA8E0A187AA85849F6C23E1B126C9C873DC27C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291054   (672320) от 23.03.2019
+
+Cappuccino - Cappuccino (1979) LP [MP3|320 Kbps] <Electronic, Funk, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hell Dance With Me (6:01)
+02. San Francisco (5:18)
+03. Lucky Woman (5:54)
+04. Tomorrow (5:05)(   Читать дальше...   )Жанр: Electronic, Funk, DiscoПродолжительность: 00:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA048B8D9984BF5F69A1986F15F4A2C7F9750648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291072   (672456) от 23.03.2019
+
+Georges Rodi - Space (1979) LP [MP3|320 Kbps] <Electronic, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boop Boopy Doo (2:24)
+02. Le Manteau D'Uranie (Uranus Mantel) (2:16)
+03. Space Flight Center (Space) (1:37)
+04. Moonshine's Magic (3:32)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F572E6536A8748BC088951B27F8322C33E81F94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291286   (672460) от 23.03.2019
+
+VA - Miami Heat (2019) [FLAC|Lossless|WEB-DL|tracks] <Disco, Nu-Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discotron - Cut The Music (Original Mix)
+02. Audio Jacker - I Believe (Original Mix)
+03. Serial Thrilla - Waitin' (Original Mix)
+04. Discotron - Head Nod Ish (Original Mix)(   Читать дальше...   )Жанр: Disco, Nu-DiscoПродолжительность: 01:15:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C67CD9FF1C5F98D0991E7055D2A4368798ADDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536351   (672555) от 13.03.2022
+
+Люся Чеботина - The End (2021) [FLAC|Lossless|WEB-DL|tracks] <Europop, Ballad, RnB, Swing, Dance-pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_672555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Солнце Монако
+02 - Амур (ft. DJ Daveed)
+03 - 8
+04 - Your Kiss(   Читать дальше...   )Жанр: Europop, Ballad, RnB, Swing, Dance-popПродолжительность: 00:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7679B9C8AB660C6A234652FDC8128884A29148A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1536278   (672657) от 13.03.2022
 
 Bryan Adams - So Happy It Hurts (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
@@ -21,6 +166,8 @@ Bryan Adams - So Happy It Hurts (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:75D1D6AEA2800F9CFC5AE768FDAAFAE2D423D499
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ Pattie Brooks - Love Shook & Our Ms Brooks (2009) 2 Albums (1977, 1978), Reissue
 magnet:?xt=urn:btih:C7AF50E43ED06B54EB1668EC73D59CA9E9623734
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ The Simon Orchestra - Mr. Big Shot (1979) LP [MP3|320 Kbps] <Electronic, Funk-So
 ```bash
 magnet:?xt=urn:btih:985439CDACF8A552E05DB7F60F935E810632DE7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ VA - Dreamers Lounge (Easy Listening And Adult Casual Songs) (2018) [MP3|320 Kbp
 magnet:?xt=urn:btih:09233C727C345746C2D196992FDC1FEFC89014CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +283,8 @@ magnet:?xt=urn:btih:09233C727C345746C2D196992FDC1FEFC89014CB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +311,8 @@ magnet:?xt=urn:btih:09233C727C345746C2D196992FDC1FEFC89014CB
 ```bash
 magnet:?xt=urn:btih:E7069D0C668B697F4026E10D4169C30E2A0F99BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +342,8 @@ Vivien Vee - 3 Albums (1979-1983) LP [MP3|320 Kbps] <Electronic, Disco>
 magnet:?xt=urn:btih:BE7971D1F654593695BA924C1862085C951EC05E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +370,8 @@ Alice Merton - Mint (2019) [FLAC|Lossless|tracks + .cue] <Pop, Indie Pop>
 ```bash
 magnet:?xt=urn:btih:855E7508CF07E8DF98BC879357617767DE26E08B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +400,8 @@ Alessandro Safina - Insieme A Te (1999) 2001 Universal [FLAC|Lossless|image + .c
 magnet:?xt=urn:btih:B622B1A9463033D652EE50F519F9FF1E482BA9AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +428,8 @@ Black Blood - 2 Albums (1975, 1976) LP [MP3|320 Kbps] <Electronic, Funk, Disco, 
 ```bash
 magnet:?xt=urn:btih:E70E1A73EB029E5C0406707D197200A1989D8379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +458,8 @@ Tamaryn - Dreaming The Dark (2019) [FLAC|Lossless|WEB-DL|tracks] <New-wave, Drea
 magnet:?xt=urn:btih:4131D6F7A12259BE3DD0F4D4CD526D9EFB3FAC20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +487,8 @@ VA - Sophisticated Ladies (2018) [FLAC|Lossless|tracks + .cue] <Pop>
 magnet:?xt=urn:btih:A0BA2D8DF8161A2933E47F13B4F46EF061139345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +512,8 @@ VA - Ultimate... Christmas (2015) Box Set, 4CD  [FLAC|Lossless|tracks + .cue] <P
 ```bash
 magnet:?xt=urn:btih:341D6306477011C1F01E054CAFF04EDC9B2A1B6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +542,8 @@ VA - Pavarotti & Friends For War Child (1996) [APE|Lossless|image + .cue] <Rock,
 magnet:?xt=urn:btih:1D5D6052E08ED67CBFED7A2CD8542AD3B58D6642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +570,8 @@ Julio Iglesias - The Very Best Of Julio Iglesias (2007) [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:EACB741EBD9407E1D59A873F50EB2711A416B07E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +600,8 @@ VA - Disco Dance (2022) [MP3|320 Kbps] <Disco, Funk, Soul>
 magnet:?xt=urn:btih:7D847FEAEEC79300EA155D74BC15FD6CEED20B0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +628,8 @@ CD - 1 - Raindance Remastered:
 ```bash
 magnet:?xt=urn:btih:9641B65897F2EC209E7D0045BB5C91343595F7C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +664,8 @@ Sucre - A Minor Bird (2012) [FLAC|Lossless]<Pop Rock, Indie Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +692,8 @@ Whitney Houston - Greatest Hits (2010) 2CD [FLAC|Lossless|image + .cue] <Rhythm 
 ```bash
 magnet:?xt=urn:btih:33972A7B069BEC454B8192FDB46889A1E3661964
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +722,8 @@ magnet:?xt=urn:btih:33972A7B069BEC454B8192FDB46889A1E3661964
 magnet:?xt=urn:btih:5374BA39F0EB0D35FBB65204D59CB2EB744A3039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,137 +751,7 @@ Dschinghis Khan - Dschinghis Khan (1979) [FLAC|Lossless|image + .cue] <Disco>
 magnet:?xt=urn:btih:91B4456F4D62C71EA89C9725BE3998832EF3F328
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030005   (676104) от 29.06.2016
-
-Ирина Аллегрова - Grand Collection (2002) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "День рождения "
-02. "Угонщица  "
-03. "Мой ласковый и нежный зверь  "
-04. "Младший лейтенант  "(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBD5810EB6207EDD50ACD537D3DCB055E1D1D476
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290662   (676200) от 21.03.2019
-
-VA - Eurodance Club Vol. 1 (Back2Basic) (2017) Compilation [MP3|320 Kbps] <Eurodance, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GTS Project - Disco (Radio Edit) (3:39)
-02. Lyane Leigh - Sexy Boy (S.E.X. Appeal Radio Edit) (3:31)
-03. A.Voltage feat. Elaine Winter - Try to Find (Radio Edit) (2:59)
-04. Michael Marin - Tonight (Radio Edit) (3:09)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D126CD19B09E7AED103C29656D2DD165CCB6BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290666   (676205) от 21.03.2019
-
-VA - N'Dance Vol. 1 (2004) [MP3|320 Kbps] <Eurodance, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Narcotic Thrust - I Like It (Sinewave Surfers 2am rmx) (5:26)
-02. Shana Vanguarde - Gimme! Gimme! Gimme! (Midnight radio edit) (3:24)
-03. Boomfunk MC's - No Way In Hell (Royal Gigolos rmx) (5:19)
-04. Prodigy - Girls (4:06)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9857005E4D5F762DAB0AAC8AAC14E999ED47D879
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290668   (676301) от 21.03.2019
-
-VA - N'Dance Vol. 2 (2005) [MP3|320 Kbps] <Eurodance, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Global Deejays - What A Feeling (Short Progressive Mix) (3:18)
-02. Heiko & Maiko - Glucklich (Russian Mix) (5:10)
-03. Potatoheadz - Narcotic (Royal Gigolos Mix) (4:21)
-04. Felix Da Housecat - Ready 2 Wear (Benny Benassi Remix) (4:58)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71CB3523C17000940C34145DA48C1DB9309BC61A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508777   (676358) от 11.06.2012
-
-VA - Старая танцплощадка (2008) 2 выпуска 4 CD[MP3|320 кб/с]<Oldies>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_676358.jpg" />
-</div>
-
-
-###  Подробнее
-
-2008Жанр: OldiesПродолжительность: 05:05:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F428B3838253D5FD61BF79CB24B2232635E940C7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

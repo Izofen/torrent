@@ -19,6 +19,8 @@ Charlie Boyle, Laura Bailey | Red Hat Enterprise Linux 7 Performance Tuning Guid
 magnet:?xt=urn:btih:E07149A043C4EEC02F2645DC238DF8B6FFEEB5C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:E07149A043C4EEC02F2645DC238DF8B6FFEEB5C7
 magnet:?xt=urn:btih:94167224DE803054C77DC9B3954EAF289D06C432
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Frances Buontempo | Learn C++ by Example (2024) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:E7750797B30E502E59BDDFF8404A03BB4CD4E49F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Mikhail Sakhniuk, Adam Boduch | React and React Native (5th Edition) (2024) [PDF
 magnet:?xt=urn:btih:8B1D53B96DAA6332FD80CE84EF0334C51E072A5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Alexey Soshin | Kotlin Design Patterns and Best Practices (3rd Edition) (2024) [
 ```bash
 magnet:?xt=urn:btih:B3C7B94629C4E2FB809B631FDB6E3DD71834D9B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Jakub Narębski | Mastering Git, 2nd Edition (2024) [EPUB] [EN]
 magnet:?xt=urn:btih:561B1A31508A10C98148C6653883E15F48B8FFB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Marc Gregoire | Professional C++ (6th Edition) (2024) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:F4BA8B6398A9B1F74216CB4BFCDBF502419E8127
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Nick Parlow | PowerShell 7 Workshop (2024) [PDF] [EN]
 magnet:?xt=urn:btih:63821D6109044805E1FD8F5ADF58B181B0746D31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Adam Freeman | Mastering Node.js Web Development (2024) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:D732B1EC76FC07A6167AEAA548B8AB72ECFAC7EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Alex Rios | System Programming Essentials with Go (2024) [PDF] [EN]
 magnet:?xt=urn:btih:E94F3B0A7CD7BDEFC4A557A38E6D6DE82BCFF63A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Dennis Vroegop | Systems Programming with C# and .NET (2024) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:B91F62D88FEC7E27A44FCFFE8822BFBA5ECAFE07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Neil Smyth | C# 13 Programming Essentials (2024) [PDF] [EN]
 magnet:?xt=urn:btih:0C8578EEE99ABFD8487D92487AC55A2C80F710E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Carl Fredrik Samson | Asynchronous Programming in Rust (2024) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:2AA2ADFA667E8AA3C1325DB789B1D3B617798DEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Gema Socorro Rodríguez | Thriving in Android Development Using Kotlin (2024)  [
 magnet:?xt=urn:btih:321EFA040C326C85396D58530AF1688CFE782C96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:321EFA040C326C85396D58530AF1688CFE782C96
 magnet:?xt=urn:btih:B3FBABAE6F13665F8D7D5192CE710D7B736DB378
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Stuart Butler, Tom Oliver | Game Development Patterns with Unreal Engine 5 (2023
 ```bash
 magnet:?xt=urn:btih:249FF069CE629A392456C022C1F9C1A8F2161DC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:249FF069CE629A392456C022C1F9C1A8F2161DC3
 magnet:?xt=urn:btih:DEAD283EFD9BA7395EED1C760A4A8C555DD49A0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Daria Orlova, Esra Kadah, Jaime Blasco | Flutter Design Patterns and Best Practi
 ```bash
 magnet:?xt=urn:btih:7958D49BF8B550DB6FA6F8539ADA6E1D68E6791F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:7958D49BF8B550DB6FA6F8539ADA6E1D68E6791F
 magnet:?xt=urn:btih:BC92885F64D780D350328D5CFE7032E3BF75CD6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ TypeScript — один из важнейших инструментов для 
 ```bash
 magnet:?xt=urn:btih:1B8E25B000DFF8B8960B5AC0F2788266A99EBF37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:1B8E25B000DFF8B8960B5AC0F2788266A99EBF37
 magnet:?xt=urn:btih:240D06A5EC416B955596170E95C7EEAAE55B78AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:240D06A5EC416B955596170E95C7EEAAE55B78AD
 ```bash
 magnet:?xt=urn:btih:D5411A7CD5B78CC72547AAEAE30341A54942DD36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:D5411A7CD5B78CC72547AAEAE30341A54942DD36
 magnet:?xt=urn:btih:2843A5A49BE6AB842D88535DFFEF0573588996B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:2843A5A49BE6AB842D88535DFFEF0573588996B2
 magnet:?xt=urn:btih:D78A3964843AE3C0091765D8B9A7A63E9422F89A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:D78A3964843AE3C0091765D8B9A7A63E9422F89A
 ```bash
 magnet:?xt=urn:btih:1B936033428C3D5E4006BAE8616793BA1FBAFDEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:1B936033428C3D5E4006BAE8616793BA1FBAFDEB
 ```bash
 magnet:?xt=urn:btih:567AB537B2020596E15A3738C4C0196CF7D44484
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

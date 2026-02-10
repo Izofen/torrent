@@ -22,6 +22,8 @@ Luciano Pavarotti - Mamma (1984) [FLAC|Lossless|image + .cue] <Classical, Opera>
 magnet:?xt=urn:btih:D54406315BFA59DDA781E79A963E17BE704ED7B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ ORATORIO IN THREE ACTS HWV 70
 ```bash
 magnet:?xt=urn:btih:0ECBF42A73ACF17891879180258B6B31A4D1DE0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Tchaikovsky - Sym No. 4, No. 5, No. 6 (Mravinsky, Leningrad Symphony Orchestra) 
 magnet:?xt=urn:btih:B6CC84DAD02B1524FB2925282D58317EC964D4AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Alisa Weilerstein - Solo (2014) [FLAC|96/24|WEB-DL|tracks] <Classical, Chamber>
 ```bash
 magnet:?xt=urn:btih:64B9BF0DBAC6E89B586F80213F381B3ADF9CF92C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Piano Concerto No. 18 in B-Flat Major, K. 456
 magnet:?xt=urn:btih:6BD290736A932B8F172FFFB444BEF9A054947FD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Piano Concerto No. 19 in F Major, K. 459
 ```bash
 magnet:?xt=urn:btih:BF76403719A7DF393FA052F24A84EF9D673EA720
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Sviatoslav Richter - Beethoven Piano Sonatas № 8, 23, 8 Bagatelles, Choral Fan
 magnet:?xt=urn:btih:EEF3529563D9C8E6561DC057CF8E93D56C0328FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Klara Min - Scriabin: Piano Works (2016) [FLAC|Lossless|WEB-DL|tracks] <Classica
 ```bash
 magnet:?xt=urn:btih:FBF9F47DACE6C74D65514BBC6B0F7DB29DCFA720
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Zwei Episoden aus Lenaus Faust / Два эпизода из "Фауста" Ле�
 magnet:?xt=urn:btih:C81158DF3CCBBC1AE0EBB16571E5378EF3B5BEA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Library Tapes - Escapism (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical,
 ```bash
 magnet:?xt=urn:btih:D97082076B840997CCB13BD3277D4429F5D30F3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Die Kompletten Werke, Volume 1 (4001-2): Kantaten, BWV 1-10, 12, 13 (feat. condu
 magnet:?xt=urn:btih:27600329A839B303F908AAC1BC34C2C593082741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Fabio Biondi, Europa Galante - Vivaldi - La Stravaganza (2011) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:765DDF97F07BF92F41313A20E4EC56B4365E264B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Wolfgang Amadeus Mozart - The Violin Concertos (1999) [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:276A1777A2BC882BF99F4384711909328B152F1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ Heifetz Jascha - Adagios (2002) [FLAC|Lossless|image + .cue] <Classical, violin>
 magnet:?xt=urn:btih:737024E42145D3094C8799119D67E44776F78AB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ Antigono, Wq 21
 ```bash
 magnet:?xt=urn:btih:D6033B6C7F86D7293C3A132F82A504757C0EAC27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ VA - Ballet Masterpieces: The World's Favorite Ballets and Ballet Suites (2009) 
 magnet:?xt=urn:btih:635055270DEDFB477A9CBA3F01C25D0153972247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ Pablo Sarasate/Пабло Сарасате (1844-1908)
 ```bash
 magnet:?xt=urn:btih:8E2BFE7FA56AC633804D251DC565EDC51824CB45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +514,8 @@ Orpheus Chamber Orchestra  - Dvorak : Serenades Opp. 22 & 44 (1985) [FLAC|Lossle
 magnet:?xt=urn:btih:7D865C83AA575978402C1305403E3FB9006A246D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ Part One
 ```bash
 magnet:?xt=urn:btih:D6FC04F2409E8AFD994E37F441D50B4BAA6B1206
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +572,8 @@ Concerto for Piano and Orchestra No. 23 in A major, K. 488
 magnet:?xt=urn:btih:A2792729FE6E6E9DABBA2293261F44B523F317E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ Symphonic Dances for Orchestra Op. 45
 ```bash
 magnet:?xt=urn:btih:A3C48809273096E449DBE6D633D6D33A0000EDFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +630,8 @@ Madrigali guerrieri, et amorosi(   Читать дальше...   )Жанр: Cla
 magnet:?xt=urn:btih:774B8B680E1AE0883F5F705400D999DC19AD8B23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ Magdalena Kozena - Enchantment (2006) 2 CD [FLAC|Lossless|image + .cue] <Classic
 ```bash
 magnet:?xt=urn:btih:694C3B3F365190AB7398564D13E3BB5ABC9580E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ Wiener Philharmoniker - Herbert Von Karajan - Dvorak - Symphonie # 9; Smetana - 
 magnet:?xt=urn:btih:4A5A7375EA09EFFB16FE94FCE1F7200C3DC3E2EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ Leonid Kogan & Alexander Ivanov-Kramskoy - F.Gragnani, N.Paganini & M.Giuliani (
 magnet:?xt=urn:btih:472909E2BE49E4AED102FAF698D8A3D191B74353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ Andre Rieu - Happy Days (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical, Classic
 ```bash
 magnet:?xt=urn:btih:B7AFDDF62375F720450F3FD5F34923E70978E66E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

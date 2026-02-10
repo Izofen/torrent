@@ -22,6 +22,8 @@ Wolfheart - King Of The North (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Deat
 magnet:?xt=urn:btih:E822D74136676C5DE6ED7356C4CFFA816EBE5B78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Fish - 13th Star (2007) Deluxe Digital 2023 Remix, 7Hz Productions [FLAC|24/44.1
 magnet:?xt=urn:btih:F5F8668831ECD86D901B4019A589BE655B18489F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:F5F8668831ECD86D901B4019A589BE655B18489F
 ```bash
 magnet:?xt=urn:btih:8599833CE04E2CA9015A2B7A4E0D3E09253736C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Amadeus Pro - многотрековый музыкальный редактор
 magnet:?xt=urn:btih:FB2791C4713FE0AA8A711CE6ABB99AAA9BDD9BDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Otaku ni Koi wa Muzukashii | Wotakoi: Love is Hard for Otaku | Любовь - п
 ```bash
 magnet:?xt=urn:btih:DFB67AB99A8858AA202380E76900CC9AFAF6774D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:DFB67AB99A8858AA202380E76900CC9AFAF6774D
 magnet:?xt=urn:btih:1D1463D5FC8CEF328E7CD5621AD348077E279D07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:1D1463D5FC8CEF328E7CD5621AD348077E279D07
 ```bash
 magnet:?xt=urn:btih:651DDB0D24A0F022D9BB7A22E826BAACE4FF25F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ VA - Lounge Tribute, Vol. 2 (2010) [AAC|~330 Kbps] <Lounge, Chill Out, Downtempo
 magnet:?xt=urn:btih:9E936AC2A63B714481A59E7753C2DB7D018EA303
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Photomath - настоящий подарок для всех, кто регул
 ```bash
 magnet:?xt=urn:btih:141D19D2C9A7DA7AC55480660DF857A75794FD34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ VA - Today's Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:AD99E6EF149BB49A8161B1830F21A9DE454638B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ AnyDroid  (AnyTrans for Android) - предназначен для быстро�
 ```bash
 magnet:?xt=urn:btih:7DF84A0E1EE7AFCF22E5A109EC76ABCEFF28387A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ The London Suede - Autofiction (2022) [MP3|320 Kbps] <Alternative Rock>
 magnet:?xt=urn:btih:74D6846817749104E853DB9931201264D9626C0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:74D6846817749104E853DB9931201264D9626C0A
 magnet:?xt=urn:btih:7119B2B13A7EC068BD8CF6531B9E1723C6FB497C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ Waterfox — это браузер, основанный на исходном �
 magnet:?xt=urn:btih:C5577F3BF32D2241CF6AD9B8FC0C1805ACED9B39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:C5577F3BF32D2241CF6AD9B8FC0C1805ACED9B39
 ```bash
 magnet:?xt=urn:btih:B42BF833DD6AF24F2FEDF57F319C2341B1B46304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ The Flaming Lips - Zaireeka (1997) 4CD Deluxe, Warner Records Inc., 2023 [FLAC|2
 magnet:?xt=urn:btih:9ED4B8C24436DBC44A593EF74B88BD7183D5CD2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ VA - Lounge Tribute, Vol. 5 (2010) [AAC|~342 Kbps] <Lounge, Chill Out, Downtempo
 ```bash
 magnet:?xt=urn:btih:D22794621F4EC510339F90FFD4464E3DE98A1E8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ Wolfnaut - Return Of The Asteroid (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ro
 magnet:?xt=urn:btih:5DF8C3C8F5C85E2C56710AFC35DCBEC802163C44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:5DF8C3C8F5C85E2C56710AFC35DCBEC802163C44
 ```bash
 magnet:?xt=urn:btih:BC67832BE1D7B91ADCD969A6ECCDB186E0FCDEB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:BC67832BE1D7B91ADCD969A6ECCDB186E0FCDEB3
 magnet:?xt=urn:btih:46D0C8D22934A8CCA905A47FBACB25D1760CFD27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:46D0C8D22934A8CCA905A47FBACB25D1760CFD27
 ```bash
 magnet:?xt=urn:btih:0A4AE1692D2AD5126368C88F52855AB755F2BA10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ Edenbridge - 3 Albums (2019-2022) [MP3|320 Kbps] <Symphonic Metal, Female Vocals
 magnet:?xt=urn:btih:3D6FD2DF06B07A4531F5A2DACF25A73E1EC17D2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ Sovrag - Perfect Form from Chaos Born (2023) [FLAC|Lossless|WEB-DL|tracks] <Blac
 magnet:?xt=urn:btih:B5DBEB29ECB7AD07B9C79C6CA8837A2B7FE7A2FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ Multitouch 1.26.1 [En]
 ```bash
 magnet:?xt=urn:btih:19CA3487AD38A9551ECB4604B419F63F4AD184B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ Superkey 0.17 [En]
 magnet:?xt=urn:btih:DF310E021294FB24D2CC19F4B000360581486E2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:DF310E021294FB24D2CC19F4B000360581486E2D
 ```bash
 magnet:?xt=urn:btih:640516CB2D7BB27CC8477EF209E0F7EEAD005027
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

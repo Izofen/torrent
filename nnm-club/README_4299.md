@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:548AAB4C9D7BD340C5ED06AB663247F85EF6D93A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:548AAB4C9D7BD340C5ED06AB663247F85EF6D93A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:548AAB4C9D7BD340C5ED06AB663247F85EF6D93A
 ```bash
 magnet:?xt=urn:btih:3F5AD7449E27BBCB2A39B3E7FE180821DB895BDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:3F5AD7449E27BBCB2A39B3E7FE180821DB895BDA
 ```bash
 magnet:?xt=urn:btih:0F04C0622C21EA93526CD6CDCDE15BBBA86C703A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ SideQuest - The Story of No One, Pt. 1-2 (2022-2023) [MP3|320kbps] <Symphonic Po
 magnet:?xt=urn:btih:A10152970C7C56D4761BED6841396F347CDA7B54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:A10152970C7C56D4761BED6841396F347CDA7B54
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:A10152970C7C56D4761BED6841396F347CDA7B54
 ```bash
 magnet:?xt=urn:btih:77471554A77820CA93E30F86C1DFDA70C86A6A34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Serenity - Nemesis AD (2023) [FLAC|Lossless|image + .cue] <Power Metal, Symphoni
 magnet:?xt=urn:btih:CFE9E5F40DCAE7286CD2F37CC448EFEBC2FD9625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Boot CD USB Sergei Strelec 2013 v.1.1 (2012) (Pусский + Aнглийски�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Ahmad Jamal - Emerald City Nights: Live At The Penthouse (1963, 1964) 2CD, 2022,
 magnet:?xt=urn:btih:8529DCF63942F440AEF6D7D9EF5D5868FCD4B952
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:8529DCF63942F440AEF6D7D9EF5D5868FCD4B952
 ```bash
 magnet:?xt=urn:btih:402EF5C86DFEA25AE680716A03CFE01C4BA69C58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:402EF5C86DFEA25AE680716A03CFE01C4BA69C58
 magnet:?xt=urn:btih:BF11E62F872B9C38F99E8F31CA70789440161F6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Fire Emblem Path Of Radiance [GameCube] [Multi-5] [PAL] (2003)
 ```bash
 magnet:?xt=urn:btih:F5069A42243FF6D335709A692482CC30BCB265D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:F5069A42243FF6D335709A692482CC30BCB265D7
 magnet:?xt=urn:btih:20D2AB382E3917FCF31AF5EB9FD387451674DA65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:20D2AB382E3917FCF31AF5EB9FD387451674DA65
 magnet:?xt=urn:btih:26FE4751195C80213D90DBAB2B4FDB279E95FD8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:26FE4751195C80213D90DBAB2B4FDB279E95FD8F
 ```bash
 magnet:?xt=urn:btih:76FDF246FFCFE8CF253429950F77ED010CF93752
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ Night In Gales - Thunderbeast (1998) [APE|Lossless|image + .cue] <Melodic Death 
 magnet:?xt=urn:btih:2C50D63AB189679C6FF4BC61F0448BBFF49982BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ Autopsy - Ashes, Organs, Blood And Crypts (2023) [FLAC|Lossless|image + .cue] <D
 ```bash
 magnet:?xt=urn:btih:5BF1949EADC461E3903D96E81CB5208F4479FA74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ Skeletal Remains - Condemned to Misery (2015) [FLAC|Lossless|image + .cue] <Deat
 magnet:?xt=urn:btih:1E515A709FA42FE32DECCAF89D52157F07CB861E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ Night In Gales - Nailwork (2000) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Me
 magnet:?xt=urn:btih:F532B666C722D799B5030B4F9A0BC504F4D5E530
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ Night In Gales - Necrodynamic (2001) [FLAC|Lossless|image + .cue] <Melodic Death
 ```bash
 magnet:?xt=urn:btih:8BCF535AFE67EC0CA72A48925963E05199E4989B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +597,8 @@ Toddler Keys 0.97 [ENG]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ Uninstall Tool 3.2.2 Build 5289 Final Repack (& Portable) by D!akov [Русск�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ Night In Gales - Towards the Twilight (1997) [APE|Lossless|image + .cue] <Melodi
 magnet:?xt=urn:btih:0BF1361580A109506251F6850B98852A09F07AD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ Starer - Wind, Breeze, or Breath (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic
 magnet:?xt=urn:btih:266917CEF42228E1F376781327C405516A7F766C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ magnet:?xt=urn:btih:266917CEF42228E1F376781327C405516A7F766C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

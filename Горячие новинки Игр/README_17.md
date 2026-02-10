@@ -19,6 +19,8 @@ The Cold White (2024) [Ru/Multi] (build 21100504) Repack seleZen
 magnet:?xt=urn:btih:E5AB5701C1407D55D1AFD320252BB21EDB54DA87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Cold White (2024) [Ru/Multi] (0.0.11) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:924B6D66185292A52C730490288805C43548E8FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Yakuza 0 Director's Cut - полное издание отмеченного к�
 magnet:?xt=urn:btih:CF71BBCA9C30D4B58DB4FC69AC8725D54FFFD670
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Yakuza 0 Director's Cut - полное издание отмеченного к�
 ```bash
 magnet:?xt=urn:btih:31AA7FFC4D7F0843457C34C0E947413A6F9E84FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Art of Reflection - это игра-головоломка от первог
 magnet:?xt=urn:btih:B821F44F81AF72F1DFC998D5B12FD8B628EFA987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Express No. 6 - короткий атмосферный хоррор от пер
 ```bash
 magnet:?xt=urn:btih:6043E5B1AE94B594F4CE2E0CF87A15F2BA16EEB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ RuneQuest: Warlords - это пошаговая боевая стратегия,
 magnet:?xt=urn:btih:042529DA49A81FD4EDF6B6578578E3D7D98F1B32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ RuneQuest: Warlords - это пошаговая боевая стратегия,
 ```bash
 magnet:?xt=urn:btih:049C37CE0F9FA7A9C6512B4CFE3C8CC175F3DAA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Skate Story (2025) [Ru/Multi] (Build 21094509) Repack FitGirl
 magnet:?xt=urn:btih:B611F34A9310D9A019CA3C8A3150C0C8CBF18F9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Skate Story (2025) [Ru/Multi] (Build 21094509) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:7721030591191DFA0CDE0F44DEF3673093175ABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Swordhaven: Iron Conspiracy с головой окунает вас в полн�
 magnet:?xt=urn:btih:69B53A91F55E17D9F4DA947DC93379B69C2E86FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Pioneers of Pagonia (2023) [Ru/Multi] (1.0.0-10461+185182) Repack Other s [Build
 ```bash
 magnet:?xt=urn:btih:7D40AC2DE44BA5F1C5EB62F7DB51078D528FDF0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ I'm on Observation Duty 8 (2025) [Ru/Multi] (1.0.3-d2437e5) Repack Other s
 magnet:?xt=urn:btih:B05DC4C92B89F6C8AD08CAE86713CDCED884EC98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ No Means Nothing - это не просто игра, это короткий, �
 ```bash
 magnet:?xt=urn:btih:E973341FF87F84BF5D066F43248B431B8776E503
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Yakuza Kiwami (2025) [Ru/Multi] (2.11) Repack seleZen
 magnet:?xt=urn:btih:F5907F95CBB658BFA94607E975999E4D36CF3A86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Yakuza Kiwami (2025) [Ru/Multi] (2.11) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5978E3719EA08B91A44AC7AAC0A59EA9450C7381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Night Swarm (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 magnet:?xt=urn:btih:44B80950FCE7AB5A1EFF1B3838AFFA842AB24030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Tiny Bunny / Зайчик (2021) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A69911B4A5793A0670A8A489F97BD59C62F12F4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Agents of Shadow - это гибридный проект в жанре хорр
 magnet:?xt=urn:btih:B4EB44DDAE55F5A2D3984A3B2A6D6DED93BF50B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Minecraft: Bedrock Edition (2025) [Ru/Multi] (1.21.130) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B2B4EC96C6E1775A7D1136D998E9EAD1DBF07E36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ KILL IT WITH FIRE! 2 (2024) [Ru/Multi] (1.0.0.755) Repack FitGirl [Supporter Edi
 magnet:?xt=urn:btih:4A0D6E59728151CA1D69130B723E10C9059FCDF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ MARVEL Cosmic Invasion (2025) [Ru/Multi] (1.0.0.12208) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:BE34567DFA3EBCB32676DEAB9F9B46E85E28D126
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Pioneers of Pagonia (2023) [Ru/Multi] (1.0.0-10461) Repack FitGirl [Builder's Ed
 magnet:?xt=urn:btih:388629FAD5A683D025BA847654895D71D11AD189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Scott Whiskers: the Search for the Golden Cat (2025) [Multi] (1.0.40) License GO
 ```bash
 magnet:?xt=urn:btih:ADFB0066CB3A70C7D6F39CF9D261CBBBFF3651F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Storage Hunter Simulator (2024) [Ru/Multi] (17755) Repack FitGirl
 magnet:?xt=urn:btih:A090B1CC8817FCCE1C54862A51FFC57A3D9F45B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Minecraft: Bedrock Edition (2025) [Ru/Multi] (1.21.130) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2B4BB99FF82B5B3EA51827E90A27B3309DD6328C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

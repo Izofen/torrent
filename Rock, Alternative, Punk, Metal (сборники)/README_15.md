@@ -22,6 +22,8 @@ The Beatles - Sgt. Pepper's Lonely Hearts Club Band De-Noised From Demos & Takes
 magnet:?xt=urn:btih:DD6F38AB718A430BCB645B8A9ED71E7686E5FD31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Russian Metal Ballads (2017) [MP3|320 Kbps] <Metal, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:8BD9EF83209FAADED3522C9E326A0BA05182D7C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - The Best Of  The Alternative (2020) [MP3|320 Kbps] <Indie Rock, Alternative
 magnet:?xt=urn:btih:FAFB9F9447D9C689781688C16B02BA1048322F45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Leonard Cohen - Hits (Presents: Elgujakviso) (2016) [MP3|256 Kbps] <Folk; Rock>
 ```bash
 magnet:?xt=urn:btih:E73A7CE2128B7AD53264B6E158845159096A2904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ CD1:
 magnet:?xt=urn:btih:E52CA136FE2A8EDF5A23E9AA35AF7A1D38B652F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - 100 Rock Ballads Vol.1 (2019) [MP3|320 Kbps] <Rock, Ballads>
 ```bash
 magnet:?xt=urn:btih:596C1AC9B6F9D9E9CAE4B82EE86FBB05C0610BFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Рок впрок 13 (2019) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:E5EE0B2816E41BF7BC2FA2F7DBD7D9B793718C5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Осенний Русский Рок (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:E68C3201900843137479238C0AC42E9ACFA24702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +255,8 @@ VA - Flesh & Blood Of Nu-Metal (2017) [MP3|320 кб/с]<Nu-Metal, Alternative, R
 magnet:?xt=urn:btih:8FFA29E86A4F9E80F915EA09A2B22D7D51CC1BF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ VA - Rock Kaleidoscope 3 (2018) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:B4AC2E1D5D6F62F0389C60C16C52B323BBA9E9AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +313,8 @@ VA - Hammond Organ for the Soul (2022) 2CD [MP3|320 Kbps] <Rock, Hammond>
 magnet:?xt=urn:btih:F1D58DCDAEA819B627B2447E2C0FF366E723578D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ Motley Crue это целая эпоха в мире музыки. В сборн
 ```bash
 magnet:?xt=urn:btih:3211D8E6A1F0F029ECE328703A0280DC7BCFFD48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +371,8 @@ magnet:?xt=urn:btih:3211D8E6A1F0F029ECE328703A0280DC7BCFFD48
 magnet:?xt=urn:btih:D7782A431B4D348121A39C032B85BBF9696F9086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ VA - Rock Classic Ballad: Special Performance (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:B7024DF2F0AAE09E4774126EB59971849BD98EE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +429,8 @@ T.Rex - Greatest Hits (2020) [MP3|320 Kbps] <Glam-Rock>
 magnet:?xt=urn:btih:53BA959A6C9CF85E62DB498247CAB7581470A382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ Foreigner - A Night to Remember (2018) (Compilation) [MP3|320 Kbps] <Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:24C4B332ECD68AAC918D7E386CFC68152C24EF66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +487,8 @@ VA - Postulates Of Babylon (2018) [MP3|320 Kbps] <Rock, Hard Rock>
 magnet:?xt=urn:btih:63B48A7E888984E2351AC2292D5F221B0FE7F7A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +515,8 @@ VA - Для Тех, Кто Помнит! Русский Рок Vol.6 от Ovvod7
 ```bash
 magnet:?xt=urn:btih:8B15447E7AEBBB905502208D9ED046CC94768DF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +545,8 @@ magnet:?xt=urn:btih:8B15447E7AEBBB905502208D9ED046CC94768DF7
 magnet:?xt=urn:btih:5DF124DB5259462334A9B14D302E6C25042C0F96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +573,8 @@ The Beatles - Abbey Road De-Noised From Demos & Takes (2019) Bootleg [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:21AC83F739A49715C4892E77308100EAC864A492
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +603,8 @@ VA - Age Of Rebelion: Rock Revue (2018) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:2B41727C77D852DCDB1D9068F83686E15A0105C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +631,8 @@ VA - Amber Arcades: October Rock Compilation (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:3112150C3F5D86875CF8436EF55AABF2CFF35FA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +661,8 @@ VA - Рок в Авто (vol. 2) (2012) [MP3|320 кб/с]< Metal , Hard Rock >
 magnet:?xt=urn:btih:C9656B947F572D6AB17144395BF1D195A803F80C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +689,8 @@ VA - Рок в Авто (vol. 7) (2013) [MP3|320 кб/с]<Hard Rock, Heavy Metal
 ```bash
 magnet:?xt=urn:btih:4DABC8A16E501AB7C0604E2F3BE2B1A52CB700B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,6 +719,8 @@ VA - Рок в Авто (Rapcore) (2012) [MP3|320 кб/с]<Rapcore, Nu Metal, Al
 magnet:?xt=urn:btih:F89C4F91C15BFCEE2EB68341FFB8F542D21BE6E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ VA - Русский рок - Rapcore (2013) [MP3|320 кб/с]<Rapcore>
 ```bash
 magnet:?xt=urn:btih:B97EC96E56C4DBE9B305AF3E3A2BA305F572818A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ McCoy Tyner - Supertrios (1977) 1989, Milestone [FLAC|Lossless|tracks + .cue] <P
 magnet:?xt=urn:btih:9B8CA8B9B2D64748BD5D9A80FD519802090F4728
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - Pop Hits 2023 (2023) [OGG Vorbis|480 Kbps] <Pop>
 magnet:?xt=urn:btih:2877E8A57198EF222F060AEA7B56BD4EC940A87F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ Spotify имеет громадный каталог музыки, поддер�
 magnet:?xt=urn:btih:9652B8163C6BA4ED3C80C786445CD829809DF643
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:9652B8163C6BA4ED3C80C786445CD829809DF643
 ```bash
 magnet:?xt=urn:btih:A002F46F71E18D530429CA0F8D8110937041010C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:A002F46F71E18D530429CA0F8D8110937041010C
 magnet:?xt=urn:btih:2B90C9B3EFDB234E38D1060BAC4613152021ED04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Skype предназначен для личного и делового общ�
 ```bash
 magnet:?xt=urn:btih:AC42F0F297D5A4FC43EAEA425A5A15340F9E9A9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ VA - We Chill del Mar, Vol. 6 (2017) [AAC|~329 Kbps] <Lounge, Chill Out, Downtem
 magnet:?xt=urn:btih:87FD65D85B4B9A1B9B4F778B3A4956A0F27E1B82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ VA - Шансон Лето 2022 [MP3|320 Kbps] <Шансон>
 magnet:?xt=urn:btih:434D4F90A067B8D5633169BE59F1891FF26A8741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ WinX DVD Ripper Mac - конвертер DVD дисков, в том числе 
 ```bash
 magnet:?xt=urn:btih:CB0CFC3048987D234E38D6511D7DC1065AA2DF04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ The Alan Parsons Project - I Robot (1977) (2022) [DSD 128|image+.cue|Vinyl-Rip] 
 magnet:?xt=urn:btih:540B7805436D59B21B712C6A8EF19504A106173B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:540B7805436D59B21B712C6A8EF19504A106173B
 ```bash
 magnet:?xt=urn:btih:AD221DCEBCC130796C44378D2AF658818633894D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ Daddy Cruel - Let's They Rot (2022) [FLAC|Lossless|WEB-DL|tracks] <Death 'n' Rol
 magnet:?xt=urn:btih:103304B0D89E1A48942558E436BDA4E071A231A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ Oomph! - немецкая рок-группа, образованная в 1989 
 ```bash
 magnet:?xt=urn:btih:7720CD60E1C0FC65534F184171E490A740DAF7B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +382,8 @@ VA - Best of Deep-House. Volume 3. The Strong Rhythm [Compiled by Firstlast] (20
 magnet:?xt=urn:btih:B3F418589D9F5ED7867E2515D0946D0465C59044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ Discovery: Сибирь. ДНК Ледникового периода / Lost Bea
 ```bash
 magnet:?xt=urn:btih:6742D2CF9DD9AE62C8CFCB92B5C8ED019BD9EA90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ FreeTube использует собственный HTTP-API YouTube с наб�
 magnet:?xt=urn:btih:40CAD3D997EE1EA0053EB2D4D2C996E1E005F2BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ magnet:?xt=urn:btih:40CAD3D997EE1EA0053EB2D4D2C996E1E005F2BA
 ```bash
 magnet:?xt=urn:btih:7BAC1E890AC45572D3C93673E0E8C154E4F9974A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ ToothFairy поможет вам перейти от одного выбранн
 magnet:?xt=urn:btih:32E436CB886AC8A3430C048F2A6601F25B1A4314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:32E436CB886AC8A3430C048F2A6601F25B1A4314
 ```bash
 magnet:?xt=urn:btih:E9ADC46AB4AC12B49F6E4BD5187471C342141CDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ Any Media Info - узнайте каждую деталь любого виде�
 ```bash
 magnet:?xt=urn:btih:9F5112E1EC4B4E914A716CEB2FB241E974324968
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ McCoy Tyner - Best Of Big Band (1991, 1993) 2002, Dreyfus Jazz [FLAC|Lossless|im
 magnet:?xt=urn:btih:70370642359DB2FB5CB6F60A59DE49AB85EBC2C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ VA - Takeover IBIZA 2023 (The Deep-House Files) (2023) [MP3|320 Kbps] <House, De
 magnet:?xt=urn:btih:C0F2FB6487AE0E085F7A61068E32C72E157F4464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:C0F2FB6487AE0E085F7A61068E32C72E157F4464
 ```bash
 magnet:?xt=urn:btih:512CD9ACD8AF064C423CE27434DE94CA9A6ABEBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:512CD9ACD8AF064C423CE27434DE94CA9A6ABEBE
 magnet:?xt=urn:btih:C02D13AA8AA9A4476D5FC60AA22B2C0834018ACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ PDFpen Pro - приложение для создания и редактиро�
 magnet:?xt=urn:btih:83CE014DE20F8087FC9482995CA2578CF43B3EDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 ```bash
 magnet:?xt=urn:btih:40DD875B61DB6AB9B12D6376223DFD9D6C04D7E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

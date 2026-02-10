@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:ED2B54C7385A8F38902B69AFAEC1C8E2A50DFBC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Helonik состоит из 22 шрифтов, состоящих из трех 
 ```bash
 magnet:?xt=urn:btih:41D2C0734858E34EF42066070F1F1447FE9ADE59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Salda Soft — это минималистичный и аккуратный ш�
 magnet:?xt=urn:btih:BB401614CBE8E141C4D1D3A9D40FC73CA1C1F5DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Chunky Delight — смелый, тяжелый шрифт с полукругл
 magnet:?xt=urn:btih:A7FD8F9651D0E81A7F286FD602577582D07166A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:A7FD8F9651D0E81A7F286FD602577582D07166A1
 ```bash
 magnet:?xt=urn:btih:213B0D344DAAB7AFD09CF56B1B0E71DEE9E54AF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:213B0D344DAAB7AFD09CF56B1B0E71DEE9E54AF7
 magnet:?xt=urn:btih:FCFBB66C19711950CB19E2426AF13C727F1FDA34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Palo — это система служебных шрифтов из 72 сти�
 magnet:?xt=urn:btih:38EDB7433FC15BCCF6ECBA5982178B0FB38897DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Dwarven Dungeon Environment с 102 уникальными сетками. Вкл
 ```bash
 magnet:?xt=urn:btih:52CB31689A25B69886E5AD63915D043444364C55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:52CB31689A25B69886E5AD63915D043444364C55
 magnet:?xt=urn:btih:FF3478A43D0B13C8BAEE7FD6FCE80915265E295F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:FF3478A43D0B13C8BAEE7FD6FCE80915265E295F
 magnet:?xt=urn:btih:70329F856F36786D31828F83B0D94A1D65CDF965
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:70329F856F36786D31828F83B0D94A1D65CDF965
 ```bash
 magnet:?xt=urn:btih:4CA68126EF1A28A5EBC905D560C94DB74365D8EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:4CA68126EF1A28A5EBC905D560C94DB74365D8EE
 magnet:?xt=urn:btih:FC0668FD0AE968C01233DB54364A527EB8EEF242
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:FC0668FD0AE968C01233DB54364A527EB8EEF242
 ```bash
 magnet:?xt=urn:btih:BFCDB10F7AD2C4F7360B8C3EDD1ED06387B312C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:BFCDB10F7AD2C4F7360B8C3EDD1ED06387B312C1
 magnet:?xt=urn:btih:76BF4ADEDAF531A0DA0714EA3D532DC48831B7AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:76BF4ADEDAF531A0DA0714EA3D532DC48831B7AC
 ```bash
 magnet:?xt=urn:btih:41868CC4CE1FD36294AAA31004600F1E2E4656D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:41868CC4CE1FD36294AAA31004600F1E2E4656D5
 magnet:?xt=urn:btih:73A4B1AE3659C73F6E36D2C8EF841B2B738A8012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ Macwine — это изысканный шрифт с засечками, раз
 magnet:?xt=urn:btih:439080D6804C3159AC7E6A1860F20F7550472CC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:439080D6804C3159AC7E6A1860F20F7550472CC6
 ```bash
 magnet:?xt=urn:btih:69C21FD71F5F935CD377F526EDAF3CAFD7658B41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:69C21FD71F5F935CD377F526EDAF3CAFD7658B41
 magnet:?xt=urn:btih:05E2D35E04ECB7A1F2892004FDC0AC9F67C4EE4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ The Twelve Days of Christmas 162 Happy Holiday Sounds - это уникальн�
 magnet:?xt=urn:btih:B82133A33D9DE060CBEDA57C1C4C33108DAA906A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:B82133A33D9DE060CBEDA57C1C4C33108DAA906A
 ```bash
 magnet:?xt=urn:btih:5FB95CDBD109703083203BA155D3FF0E99F6BF7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ Trige — это изысканный шрифт с засечками от Iwan
 magnet:?xt=urn:btih:FE9D575C88F22E3208DF96A4BF105C67C4ECC65F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:FE9D575C88F22E3208DF96A4BF105C67C4ECC65F
 ```bash
 magnet:?xt=urn:btih:45DC1C28D234B89CC449FC515DDB972778DE3717
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ Fraiche — это очаровательный мягкий и округлый
 magnet:?xt=urn:btih:731210FA95C35F952C43D836B41784EA1FC9CEDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:731210FA95C35F952C43D836B41784EA1FC9CEDB
 magnet:?xt=urn:btih:401BEE760DD64A38B3876D28835DD88BD0F84943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ Highland — это уплотненный брусковый шрифт с за
 ```bash
 magnet:?xt=urn:btih:9AF33F65569346CB208C93F495E66678D083AAED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

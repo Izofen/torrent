@@ -1,3 +1,148 @@
+###  Публикация: 1490813   (915375) от 22.08.2021
+
+Mylene Farmer - Plus grandir: Best Of 1986 - 1996 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plus grandir
+02. Libertine (Mix 2001)
+03. Tristana
+04. Sans contrefaçon(   Читать дальше...   )Жанр: PopПродолжительность: 01:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A8612CC873D2F62746E15A28C4FCCA7932E6292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490780   (915654) от 22.08.2021
+
+Talisha Karrer - Acoustic Covers 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here with Me (Acoustic) (3:51)
+02. Hallelujah (Acoustic) (4:26)
+03. Fix You (Acoustic) (3:42)
+04. Bridge over Troubled Water (Acoustic) (4:27)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E692DB4FEBA5FAF2E63D44EB10F4B4DBFD49D065
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367568   (915658) от 16.03.2020
+
+Tom Jones - Hide & Seek (The Lost Collection) (2020) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915658.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Breathless
+2. City Girl
+3. Promise Her Anything
+4. Once There Was A Time (Stereo Version)(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05B0BE9180ACAF6C71789EA6CF53941417529A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097395   (915683) от 26.01.2017
+
+Сергей Трофимов (Трофим) - Всё Не Важно (2010) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шансонье (4:00)
+ 02. Формула счастья (2:56)
+ 03. Густо - не пусто (3:44)
+ 04. Отпускная (2:58)(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AF877F6D6269A92172A1023047B2CAAB74D7BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989875   (915693) от 23.02.2016
+
+VA - Танцы COVER (1999) S&V #05/1999 [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dana International - Women In Love (3:41)
+02. Dionne Faux - My Heart Will Gone On (4:23)
+03. Didi - Believe (4:22)
+04. Michael T - Horny (3:49)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E966581FF958D314DF71D40F6016165F4438D88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097276   (915710) от 26.01.2017
 
 Сергей Трофимов (Трофим) - Сорокапяточка (2011) [FLAC|Lossless|image + .cue] <Pop>
@@ -21,6 +166,8 @@
 ```bash
 magnet:?xt=urn:btih:CC161A3D61AB1E6F1A002C04E1A8C3448ECF0BEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ magnet:?xt=urn:btih:CC161A3D61AB1E6F1A002C04E1A8C3448ECF0BEB
 magnet:?xt=urn:btih:71A8D67312CEAB5CDDE5B56BB1B1A9E55764AD4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ Shania Twain - 6 студийных альбомов и 2 сборника (1993
 ```bash
 magnet:?xt=urn:btih:416905C4A69EDB019173946DCA0CBA3206C68C91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +260,8 @@ VA - Золотая русская коллекция. Облака в реке 
 magnet:?xt=urn:btih:7FB882EA4EC00A8D2BDF311B71D9AF6B082A24DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +288,8 @@ Mimi Page - The Ethereal Blues (2015) [MP3|320 кб/с] <Alternative Pop, Dream 
 ```bash
 magnet:?xt=urn:btih:E6FFB05A654574F6F1B08E8BB8403121D0B02D32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +318,8 @@ Mimi Page - Breathe Me In (2012) [MP3|320 кб/с] <Alternative Pop, Dream Pop, 
 magnet:?xt=urn:btih:3B2924F0D8B2643F9FD6860EFD5CA937D45EE706
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +346,8 @@ VA - В десяточку! 1-15, 17 (16 CD) (1995-2004) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:C8CC3092E126F6185A562D33C73A74AA3FEBE46F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +376,8 @@ VA - The Disco Box (1999) Compilation, 4CD [FLAC|Lossless|tracks] <Funk, Soul, D
 magnet:?xt=urn:btih:775038262D4BDCF5CFC4549A66AFD836811EA51E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +404,8 @@ VA - 80's Gold (2020) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:4FF2CB0BCD9B3074D3CA4A70F7421D6DFADDDFDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +434,8 @@ VA - Greatest Rock'n'Roll Party (2004) [FLAC|Lossless|image + .cue] <Rock & Roll
 magnet:?xt=urn:btih:8DCD29EF1DFA7BAFDBADA9736FD8500A26566D0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +462,8 @@ VA - Rock 'n Roll Party Hit Mix (1995) [FLAC|Lossless|tracks + .cue] <Rock & Rol
 ```bash
 magnet:?xt=urn:btih:516CC9504BEC566C4971CF0623B50D831F7F042A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +492,8 @@ VA - Pure... Brazil (2010) Box Set, 4CD [FLAC|Track+.cue]<Dance, Pop, Jazz, Rock
 magnet:?xt=urn:btih:58CBBA2BCBF1BF10C317B4600EADD44AD08BAF3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +521,8 @@ Yumi Zouma ‎ - Willowbank (2017) Japanese Edition [FLAC|Lossless|tracks + .cue
 magnet:?xt=urn:btih:1764FAEBD17D4DE7F900014577CAD82B4422E696
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +547,8 @@ Olivia Holt - Olivia (2016) EP [FLAC|Lossless|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:77152A1EBA1ECF13AEC5F57A4CF0D82DA4500659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +577,8 @@ magnet:?xt=urn:btih:77152A1EBA1ECF13AEC5F57A4CF0D82DA4500659
 magnet:?xt=urn:btih:2128B607B35697C68D673C36145958E5CA87B7C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +605,8 @@ VA - 80's Gold (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Disco>
 ```bash
 magnet:?xt=urn:btih:5C917E68F529BBF5AA7C929B85BC74D24E6AD7B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +635,8 @@ Arabesque - The Magic of Arabesque (2016) [FLAC|Lossless|tracks + .cue] <Disco>
 magnet:?xt=urn:btih:A540F5AE683FA043709B56770471A0CE0A99B3DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +663,8 @@ Boney M. - Their Most Beautiful Ballads (2000) [FLAC|Lossless|image + .cue] <Dis
 ```bash
 magnet:?xt=urn:btih:F8043837D2458EBB9322E94B7D656F9CCA6E3A33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +693,8 @@ Arabesque - The Magic of Arabesque (2016) [MP3|320 kbps] <Pop>
 magnet:?xt=urn:btih:72A4DECB2A38CB748FEA2C0FAB98D834921EEFB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +721,8 @@ VA - 90s Guitar Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:C1C841E7E5505FFB12D1BA4E6B35455E50214814
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,138 +751,7 @@ Demi Lovato - 5 альбомов (1998-2015) [MP3|192-320 кб/с] <Pop, Pop-Roc
 magnet:?xt=urn:btih:DA83BECCF195798AE7F735737CD7BFA3E91550CD
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096466   (919074) от 24.01.2017
-
-Iowa - Remixes (2016) EP [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919074.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мои стихи, твоя гитара (Astero Remix)
-2. 140 (Astero Remix)
-3. Три дня холода (Ivan Spell Remix)
-4. Мои стихи, твоя гитара (Ivan Spell Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 00:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767DC195E498390C329EA0DE2F9F7E524C29FEE2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096555   (919211) от 24.01.2017
-
-Andromeda - Star Ship/Shooting Star (1978) 7" [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Star Ship  (3:41)
-02. Shooting Star  (3:35)Жанр: Electronic, DiscoПродолжительность: 00:07:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D554E148A449E1CA74011D333911F44398E84AC3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 631940   (919386) от 20.03.2013
-
-VA - MTV Top the Hits 2013 3CD (2013) [FLAC|Lossless]<Pop, Dance, Rock, R&B, Trance, Other>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычно на трекере размешаются в основном МР3ки. Сборник хитов в приличном качестве довольно большая редкость. Тем более, что все, представленные в этом сборнике треки действительно хиты!CD1Жанр: Pop, Dance, Rock, R&B, Trance, OtherПродолжительность: 01:08:49
-
-1. Pitbull Ft. Christina Aguilera - Feel This Moment (3:50)
-2. Rihanna Ft. David Guetta - Right Now (3:02)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 863597   (920051) от 29.01.2015
-
-Bjork - Vulnicura (2015) [FLAC|Web-Dl|Lossless]<Pop, Experimental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stonemilker
- 02. Lionsong
- 03. History of Touches
- 04. Black Lake(   Читать дальше...   )Жанр: Pop, ExperimentalПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD69BDC72D64BEC42CBD2E43AA038ED7A17E8824
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366817   (920140) от 13.03.2020
-
-VA - Eurodisco 80's Maxi Hits & Remixes Vol.1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. London Boys - London Nights (Special Extended Remix) (06:10)
-02. Caron - Out Of The Night (The First Step) (Extended Version) (07:09)
-03. Ivan - Fotonovela (Extended Special Remix) (06:14)
-04. Sabrina - Boys Boys Boys (Extended Dub Remix) (05:39)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE0A57EE072BED95404B675C6ECD1DE7922506E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

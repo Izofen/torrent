@@ -1,3 +1,32 @@
+###  Публикация: 1006494   (827256) от 12.04.2016
+
+VA - Misha Dance Party Vol.1 (2016) [MP3|320 кб/с] <House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_827256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AronChupa - Im an albatraoz 02:47
+02. Bazuka - Sml 03:32
+03. Bazzbusterz - Bomb The Bass 05:07
+04. Dj Antonio Vs. Feder - Goodbye 03:19(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:25:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:593566D1A65097D2B760BBF983533B1A2B830EA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381210   (827355) от 06.05.2020
 
 VA - Remixes 2020 NNM 2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -21,6 +50,8 @@ VA - Remixes 2020 NNM 2 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:7984D962C9E9FEAC9252D73AF3E8EC152DF106A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -50,6 +81,8 @@ VA - The Official UK Top 40 Singles Chart (06-04-2014) [MP3|320 кб/с]<Pop, Da
 magnet:?xt=urn:btih:896F810F7E2E34B8E2263495A539A4E5F1AD49A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ VA - Vintage Jazz'Bossa EROTIC Journey (2020) [MP3|320 Kbps] <Lounge, Jazzy, Bos
 ```bash
 magnet:?xt=urn:btih:55F42EE7886516599F94E842ACFCC4DBE350FCC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +139,8 @@ VA - Carried away by space (2020) [MP3|320 Kbps] <Trance, Dance, House, Epic Roc
 magnet:?xt=urn:btih:1A99EED874A4F47E62C9712A64AED48A55015376
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +167,8 @@ VA - Relaxing Songs (2020) [MP3|320 Kbps] <Pop, Rock, Ballads>
 ```bash
 magnet:?xt=urn:btih:78BEC4EBDD6981CA999FD1A580C5BCF0E15A102B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +197,8 @@ VA - Не спи за баранкой 5 (Музыка в машину) (2021) [
 magnet:?xt=urn:btih:5798DEE5F53F4BD76518D727AC5FAE9A3299DA15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +225,8 @@ Savage - 40 Best Hits & Remixes (2017) [MP3|320 Kbps] <Italo-Disco, Euro-Disco, 
 ```bash
 magnet:?xt=urn:btih:FAB42BE9DE8986F4881AE58443EE09FDB790FDA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +255,8 @@ Otis Rush - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues, Chicago Blues>
 magnet:?xt=urn:btih:51514E1558C9A0ACC1012775D56C563F15B7AB25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +283,8 @@ VA - Bass Sound Clinic: Drum & Bass Vol.1 (2017) [MP3|320 Kbps] <Drum And Bass, 
 ```bash
 magnet:?xt=urn:btih:A990DE8AEF86439750177004BCC45B2E9A177664
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +313,8 @@ VA - Club Dance Ambience Vol.64 (2016) [MP3|320 кб/с] <House, Electro House, 
 magnet:?xt=urn:btih:71E8CC57ABBB1153765E6E57D2A5FE02B654507B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +341,8 @@ VA - Dancing Freak Happy Level (2017) [MP3|320 Kbps] <Future House, Electro, Pro
 ```bash
 magnet:?xt=urn:btih:72B44EFD3DC7EBA4A61763AF3CBEE9167262FE7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +371,8 @@ VA - Music News vol.140 (2021) [MP3|320 Kbps] <Pop, Soul, Dance, (Other)>
 magnet:?xt=urn:btih:77F3DF56C0D664E82794F31ED6200DE62BBE0DE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +399,8 @@ VA - Beatport Trance Pack (17.03.) (2017) [MP3|320 Kbps] <Trance, Uplifting Tran
 ```bash
 magnet:?xt=urn:btih:D76FB558B019A69277F590CC24457C97EEDFDC99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +429,8 @@ VA - Promo Only Mainstream Club November (2021) [MP3|320 Kbps] <Electronic, Hous
 magnet:?xt=urn:btih:0090F87864A7A7BFF6C988BA4D780ACD286149B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +457,8 @@ Dennis Jones - Both Sides Of The Track (2016) [MP3|320 кб/с] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:A8E8DAC94CCA2A2F597DB688C96BD6D2D5EB9675
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +487,8 @@ VA - Beatport Dance House: Electro Sound Pack #75 (2020) [MP3|320 Kbps] <Club, D
 magnet:?xt=urn:btih:17CA18135F857ACB7DF1367F4EA3CB63FCE7BEFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +515,8 @@ VA - Sports Dance Music (2016) [MP3|320 кб/с] <Progressive Trance, Dance Elec
 ```bash
 magnet:?xt=urn:btih:E0AF64A8346A6FF171C443340D68A08B80C6FDED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +545,8 @@ VA - Музыкальный кекс по Русски (2015) [MP3|192-256 кб/
 magnet:?xt=urn:btih:5DDB9A97AA44D8B96CF9754D2DD316F0E664063C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +573,8 @@ VA - Водка в хрустале. Академия хитов (2016) [MP3|256
 ```bash
 magnet:?xt=urn:btih:7919D880209F4435421C52B3D5E8C5CCA5A11B80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +603,8 @@ Joe Cocker and friends - Isolation (2020) [MP3|320 Kbps] <Blues,Soul,Rock>
 magnet:?xt=urn:btih:4512300E681DCE317D923B3F0B28FEC06A097E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +631,8 @@ Dance Euro
 ```bash
 magnet:?xt=urn:btih:FEF7736A4DDB822164B59F03B7D2D3AC5C617293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +661,8 @@ VA - Lounge At The Seashore 8 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downte
 magnet:?xt=urn:btih:1D70503F14D931388F86B1470A661F8EA7C58FFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +689,8 @@ VA - Mystic Rain: Instrumental Piano (2020) [MP3|320 Kbps] <Instrumental, Piano,
 ```bash
 magnet:?xt=urn:btih:0CAD02343FFFF89F27D925128FE1EFCA69C9B0EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +719,8 @@ VA - Новинки Клубной Музыки от Зайцев.Нет (2017) 
 magnet:?xt=urn:btih:82029DF33F16E74045E5772E9D23A9C1C9D21333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,32 +748,7 @@ VA - Beatport Progressive Trance: Electro Sound Pack #74 (2020) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:AEA0D3D21109175B4DFDD097048868EA34D004B8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381051   (829767) от 05.05.2020
-
-VA - Club Friday: Spring Eurodance Mix (2020) [MP3|320 Kbps] <Eurodance, Club Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_829767.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. David Dima - Nightwave
-002. Ashanti Khumenati - Tupin
-003. Ray Boyd - Nothing Can Beat It
-004. Dezibel - Nothing You Can Do(   Читать дальше...   )Жанр: Eurodance, Club DanceПродолжительность: 08:21:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6785AB25367ACE5D8A6845FE0569FAC9664EA25B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ DiskSorter — это решение для классификации файл�
 magnet:?xt=urn:btih:6FBE60862057626CE4E13DEB0AECA4AD635A92AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ r3dfox — это форк веб-браузера с открытым исхо�
 magnet:?xt=urn:btih:109C4B655E625AB8D340566E6775FFC63EF7B8C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Alfa eBooks Manager - одна из самых популярных програ
 ```bash
 magnet:?xt=urn:btih:4F7A59AA41F871CD5452349DA9AEEE32EE1AEDFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ KMS Tools — облегченный вариант сборника прогр�
 magnet:?xt=urn:btih:758CB43BE77096BCD0B59D555A6B5189F8C0699A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ MAX Desktop 25.14.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:508893D7B79DA24B5416991D48A759EB1CB4BB50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Far manager — бесплатный файловый менеджер с под
 magnet:?xt=urn:btih:EEF709ABBEF0901DDAE5A0B5093FCFC65717DA29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:EEF709ABBEF0901DDAE5A0B5093FCFC65717DA29
 ```bash
 magnet:?xt=urn:btih:25A8B384E25C489AB11DEBB33F860645BC5A65FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Magic Partition Recovery от East Imperial Soft предназначен для
 magnet:?xt=urn:btih:143B279AA41526C51094F5FB6B4F9A86AFEE272F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:143B279AA41526C51094F5FB6B4F9A86AFEE272F
 ```bash
 magnet:?xt=urn:btih:CE71F8B5A0AEBE1E49F3CF75C3C3889588964E50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:84790B4C4815886EF55804A113619F3DF4DB72BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ MassTube — очень простая в использовании прогр�
 ```bash
 magnet:?xt=urn:btih:76204F66377A62D944212D4D93B685141A9A6A4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Textify — это крошечная утилита, позволяющая с�
 magnet:?xt=urn:btih:643BC3976B1786D52B9DCA1471F0D5DD53A47951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:643BC3976B1786D52B9DCA1471F0D5DD53A47951
 ```bash
 magnet:?xt=urn:btih:CC55845567E1CA34EF4E73E25F4CF4A92AEE5ADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:D2D7A5AC9DB73E8E600B2EA2F2955D4E631F4FC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ OCCT 15.0.4 Portable [En]
 ```bash
 magnet:?xt=urn:btih:1607F16C06CE6F9FE7874844A66667A9C462692B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Magic Recovery Software 2023.08 Portable by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:21EE6FCFFA79E0F018F587D9472C90E4C7D4D584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ MassTube — очень простая в использовании прогр�
 ```bash
 magnet:?xt=urn:btih:FA12390314269E6F78048AB592399438997D29D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Hetman Uneraser Unlimited Edition 6.9 RePack (& Portable) by elchupacabra [Multi
 magnet:?xt=urn:btih:E0C8358E042FC70BA34EC8DC3ADA25EAE3ADAB3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Hetman Internet Spy 3.8 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7222744999459DAA9105079A07FDF9A3244E480C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Advanced SystemCare PRO - это мощный пакет для оптимиза
 magnet:?xt=urn:btih:D89FE2B96D3DFC1F7324A121952A2E56A3ABC7D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Vovsoft Hide Files — это простая в использовании пр�
 ```bash
 magnet:?xt=urn:btih:3A8E5E27E29C26F9C400A76DF13DD64799249BA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Streamlabs OBS - незаменимый инструмент для любого
 magnet:?xt=urn:btih:E62534708F06B3EDE653D6F97C9E1F49E1FFF403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Caramba Switcher - это новый, понятный автоматическ�
 ```bash
 magnet:?xt=urn:btih:6239D655E64339D71584EA99C3ED3B5E24CFB441
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ TraceRouteOK 3.33 Portable [Multi/Ru]
 magnet:?xt=urn:btih:D34E37914612667C88BE42549DABBFE818B937B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:D34E37914612667C88BE42549DABBFE818B937B9
 magnet:?xt=urn:btih:7EFB08E102A82210C0DAE11323AD4C260B1E4430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Blue Iris представляет собой профессиональное �
 ```bash
 magnet:?xt=urn:btih:B6DA5E909F6023126D1186DFB1A6A808E274DE89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

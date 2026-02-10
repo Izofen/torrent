@@ -1,3 +1,29 @@
+###  Публикация: 1037971   (609897) от 26.07.2016
+
+Гарри Гаррисон | Цель вторжения — Земля (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_609897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этого никто не ожидал. Все думали что этого не может быть. Но это произошло. Неизвестный и таинственный объект появился над Тихим океаном рано утром. Никто из глав государств не знает что делать, все спецслужбы и войска подняты по тревоге. Но все понимают одно - первый контакт близок и задаются вопросом: Что он нам принесет?Жанр: ФантастикаПродолжительность: 05:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC079871E6B9AE603E42F2777686C013E514622B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 846949   (610303) от 26.06.2015
 
 Александр Конторович | Пепел на зеленой траве (2014-2015) [MP3]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:58E34A2F32AB64B6CCC69B27829F921FF32F105D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:58E34A2F32AB64B6CCC69B27829F921FF32F105D
 magnet:?xt=urn:btih:C53D51D20AD619EFA5C84F528FD2EECC877BD436
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:C53D51D20AD619EFA5C84F528FD2EECC877BD436
 ```bash
 magnet:?xt=urn:btih:430B4AA45CCC7389909270948339EF6796CA0C9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:430B4AA45CCC7389909270948339EF6796CA0C9B
 magnet:?xt=urn:btih:74122EA5E565735132291A79E4D816AA2B794346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:74122EA5E565735132291A79E4D816AA2B794346
 ```bash
 magnet:?xt=urn:btih:1498C466E08897394327D8F19A0611F5EF0C7FC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:1498C466E08897394327D8F19A0611F5EF0C7FC3
 magnet:?xt=urn:btih:F60E8BDBCD52D313ED223714E3568493012C00A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:F60E8BDBCD52D313ED223714E3568493012C00A5
 ```bash
 magnet:?xt=urn:btih:20B893F9211CB9A6C492C706942F54AE47635BE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:20B893F9211CB9A6C492C706942F54AE47635BE6
 magnet:?xt=urn:btih:AFDDC063364A4973A81A4AEFDDDA89A489CA1498
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:AFDDC063364A4973A81A4AEFDDDA89A489CA1498
 ```bash
 magnet:?xt=urn:btih:6B42D48FE3DE8CCA1A04E457176A9D091741364A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:6B42D48FE3DE8CCA1A04E457176A9D091741364A
 magnet:?xt=urn:btih:D9E0A86CC40B1F97C50658CB008F338CE0424CFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:D9E0A86CC40B1F97C50658CB008F338CE0424CFA
 ```bash
 magnet:?xt=urn:btih:3E8DF8C27F10B6FC0E3D7A56894D44F98EDD2574
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:3E8DF8C27F10B6FC0E3D7A56894D44F98EDD2574
 magnet:?xt=urn:btih:C27DD405D323EA24163E7B11977B9CE11BF05E97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:C27DD405D323EA24163E7B11977B9CE11BF05E97
 ```bash
 magnet:?xt=urn:btih:2F6A144842DD24C0676C31E190F7E49568BDEFC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:2F6A144842DD24C0676C31E190F7E49568BDEFC1
 magnet:?xt=urn:btih:A611A4222CE3D8CC6E11A69643FBD47A88B9BF8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:A611A4222CE3D8CC6E11A69643FBD47A88B9BF8A
 ```bash
 magnet:?xt=urn:btih:2B86335537A4A8C348E0E9A1F88357C8CAE61C37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:2B86335537A4A8C348E0E9A1F88357C8CAE61C37
 ```bash
 magnet:?xt=urn:btih:FFCA7BBA01772B31C47E676166E3641B9DC8AEBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:FFCA7BBA01772B31C47E676166E3641B9DC8AEBD
 magnet:?xt=urn:btih:891B128F41473AD29C32E02A65D21BF4D6C04693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:891B128F41473AD29C32E02A65D21BF4D6C04693
 ```bash
 magnet:?xt=urn:btih:363E09FCA21A53E55DC7DFE8EE3CE6FC14D1534B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:363E09FCA21A53E55DC7DFE8EE3CE6FC14D1534B
 magnet:?xt=urn:btih:498513970859C28D4BB2A6CFF395384A60445958
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:498513970859C28D4BB2A6CFF395384A60445958
 ```bash
 magnet:?xt=urn:btih:BD0104BEDBDFB886CB98E41B8033C84CBFC55CE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:BD0104BEDBDFB886CB98E41B8033C84CBFC55CE6
 magnet:?xt=urn:btih:C2AED06B351B0DB68CE1A4E482A33F3599B3EA3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:C2AED06B351B0DB68CE1A4E482A33F3599B3EA3F
 ```bash
 magnet:?xt=urn:btih:7B6357602E2353C04F1F27AAF7DEB79F5BEBDF59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:7B6357602E2353C04F1F27AAF7DEB79F5BEBDF59
 magnet:?xt=urn:btih:076D97C91B0D81C23BE2B4F27D5C5AE4DF9F7CCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:076D97C91B0D81C23BE2B4F27D5C5AE4DF9F7CCE
 ```bash
 magnet:?xt=urn:btih:FF0B11C0616C0B9D470F3A5CC6B25A3C131D43B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:FF0B11C0616C0B9D470F3A5CC6B25A3C131D43B7
 magnet:?xt=urn:btih:E4D6333F7C0FE84F1D6EA260949EFD07B284AC89
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295439   (613191) от 16.04.2019
-
-Александр Конторович | СМЕРШ «попаданцев». «Зачистка» истории (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как остановить надвигающуюся войну, если противник силен и могуч? Если его флот не имеет себе равных в мире, а солдаты многочисленны и храбры? Можно не дать флоту выйти в море – и вот уже горят верфи Британии. Можно встретить высадившегося на берег врага летучими отрядами и импровизированными минными полями – и несут потери солдаты в красных мундирах, так и не увидев (   Читать дальше...   )Жанр: Темпоральная фантастика, ПопаданцыПродолжительность: 07:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:984B32E70E8B6588A013638C703DE4DBEC87F2E5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

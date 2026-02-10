@@ -28,6 +28,8 @@ VA - Illuminate (2012-07-17) [MP3|320 кб/с]<Progressive House>
 magnet:?xt=urn:btih:1F73BB6D835B688077406ECAB4A83074307B2F07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Practikally Forbidden Vol. 1 On The Beach:
 ```bash
 magnet:?xt=urn:btih:B2ADCD750E185653B45D80126738E10E9E26E495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ DeFilm - 2 Albums (1985, 1987) [MP3|320 Kbps] <Electronic, New Wave, Synth-pop>
 magnet:?xt=urn:btih:C797EE2AA06940722B55CDC3F92ED7B7EE2FD3CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ Alphaxone - Edge Of Solitude (2018) Cryo Chamber [FLAC 2.0|44.1/24|tracks|WEB-DL
 ```bash
 magnet:?xt=urn:btih:7DC12FDDEAF4B230D0F4EB810827EF2BA49E195B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ Entheogenic - Kykeon (2018) Universal Symbiosis [FLAC|Lossless|WEB-DL|tracks] <P
 magnet:?xt=urn:btih:5D34C41EC4108E228D70E0DB5961FFE8C187D46D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ Alphaxone - Edge Of Solitude (2018) Cryo Chamber [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:23602095E43B601B4BC4D9C93243BB985DA7803D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ VA - Trancemaster vol.01-7006 (1992-2012) [MP3|320 кб/с]<Trance, Electronic>
 magnet:?xt=urn:btih:CF96E6F0077A31B08E5B2722490B7D054A2EABE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ Colombo - Beat Blender (2015) [MP3|320 кб/с]<Electronic, Breakbeat, Breaks>
 ```bash
 magnet:?xt=urn:btih:AD41719CDB21401AB4AA0A98E687BFEEE67C6850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ Crywolf - Dysphoria (2015) [MP3|320 кб/с]<Chillstep, Electronic>
 magnet:?xt=urn:btih:E9C8FDE806E5BC836066FB56A5BEDC26EF61863A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ VA - Summer Love (2017) [MP3|320 Kbps] <Minimal, Tech House>
 ```bash
 magnet:?xt=urn:btih:F3A6C115027E94779095C9EF373E51FF18A0DB87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ Pitch Black - Filtered Senses (2016) [FLAC|Lossless|tracks + .cue] <Techno, Dub,
 magnet:?xt=urn:btih:6DEDC55F6EF70C9E10503BF39A6E44B4C9EA34A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +346,8 @@ VA - Black Hole Trance Music 04-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Tran
 ```bash
 magnet:?xt=urn:btih:8D07DC86E5BC295E0C22AFFAAC57EECA712BBC9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ magnet:?xt=urn:btih:8D07DC86E5BC295E0C22AFFAAC57EECA712BBC9F
 magnet:?xt=urn:btih:3046DE19CDD31FBF46E66E529DA86D0C588900C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +405,8 @@ magnet:?xt=urn:btih:3046DE19CDD31FBF46E66E529DA86D0C588900C8
 magnet:?xt=urn:btih:BE04106EFA740B7F43EC9A2672503B25B4F8F1B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +433,8 @@ Moby - Long Ambients Two (2019) Little Idiot [FLAC|Lossless|WEB-DL|tracks] <Ambi
 ```bash
 magnet:?xt=urn:btih:43024BF7348AE9158E2D88717C4D6413B3B838CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +469,8 @@ DJ JIM - Sirena Mix (2012) [MP3|320 кб/с] <Electro House, House>
 magnet:?xt=urn:btih:F24E9400A9463EE9B5D3A2A2F1FF8ECCB85B6395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +497,8 @@ VA - 35 Spring Top Hits 2019 For Fitness & Workout (2019) [MP3|320 Kbps] <Funky,
 ```bash
 magnet:?xt=urn:btih:36713C3EBD8612C164635DB9FA432C0E83800E75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +527,8 @@ VA - Made In Germany Vol. 1: A German Synthwave Compilation (2017) [MP3|320 Kbps
 magnet:?xt=urn:btih:80A8FB4FAA8982706AE994D01286F82771B05036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +555,8 @@ VA - Miami Deep House Essentials 2019 (Deluxe Version) [MP3|320 Kbps] <House, De
 ```bash
 magnet:?xt=urn:btih:755C5B205003C2E912EE242B8DB0AFE8E0E95540
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +585,8 @@ VA - Blank & Jones Present: So80s (Soeighties) 10 (2016) [FLAC|Lossless|tracks+.
 magnet:?xt=urn:btih:3FC8C05DA862F11A345E955DE838AC0DF0B618C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +610,8 @@ Frequencerz - Victory Forever (Defqon.1 Anthem 2017) (2017) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:53F3516394915258A97255807955B27E1D34DEBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +640,8 @@ Magic Sword - Vol.1 (2015) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 magnet:?xt=urn:btih:AE8C37BCB967A2936E932702FD6DDAFF9304393E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +668,8 @@ VA - Bike Ride Experience Music (2018) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:0335E1BC6EB541871448EEDC9716A611FD3EB102
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +698,8 @@ VA - Latin Workout Hits 2018 [MP3|320 Kbps] <Electro House>
 magnet:?xt=urn:btih:68C4DEEF1D7C2E2659BC11C47FBB219764B81DF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -679,6 +727,8 @@ Syn Drome - Silence Vol. 40 (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:09DCD864850527FB52AB1C916190D021D5AF4475
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -705,6 +755,8 @@ VA - Future EDM Essentials Vol.01 (2016) [MP3|320 Kbps] <House, Electro House, F
 ```bash
 magnet:?xt=urn:btih:D703E2B968420012DEA15ED08FCE07FEE5AAE98C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

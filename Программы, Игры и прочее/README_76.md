@@ -19,6 +19,8 @@ ibis Paint X - известное благодаря своим качества
 magnet:?xt=urn:btih:D7344E78BDE69F28351FE9AAD68089C50A8B977E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Battery HD Pro - это идентификатор заряда батареи �
 ```bash
 magnet:?xt=urn:btih:1E99EC1F75F4EF7725602AB86D2653BE6FA44BF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ WPS Office - очень полезное, офисное приложение д
 magnet:?xt=urn:btih:ACB2E03307ED2C8B8BF7260BE960A807A0841EB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Square Home - красивый, стильный и функциональный
 ```bash
 magnet:?xt=urn:btih:2409C7D752832472B5539A8251ED550F5E35F8F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ VPN Inf - быстрый, безопасный и безлимитный VPN
 magnet:?xt=urn:btih:5EA9B0345E17483D19977CF31BEF4312618337B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ InShot - впечатляющее своими возможностями и у�
 ```bash
 magnet:?xt=urn:btih:B8ECEF4B909F0A5124FA782F2DD42ED1E7FA0552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Unified Remote v3.21.0 [Ru/Multi]
 magnet:?xt=urn:btih:E1A1823F91C9D7B3D3AD609F8B54B5097F7CD33E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Windy.com - Weather Forecast - очень и очень востребованн
 ```bash
 magnet:?xt=urn:btih:CC504A7E9AB4B6181611AA8F6C30A98246B944ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Windy.app - очень и очень востребованное погодно
 magnet:?xt=urn:btih:C6D34D94B5F8864916E65020E9C778FF5283AE81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:C6D34D94B5F8864916E65020E9C778FF5283AE81
 ```bash
 magnet:?xt=urn:btih:4296A568A6CC164690E96DBC2E4D27ABE22B0CFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:4296A568A6CC164690E96DBC2E4D27ABE22B0CFB
 magnet:?xt=urn:btih:2E243972EF29ABE0A9DB20CB071ED72DD46DB4F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:2E243972EF29ABE0A9DB20CB071ED72DD46DB4F5
 ```bash
 magnet:?xt=urn:btih:D5FF60140ACAA2E9347825221FAF7CE20375978A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:D5FF60140ACAA2E9347825221FAF7CE20375978A
 magnet:?xt=urn:btih:509035081B5CE1BD1220CEA6C56BAFD662443E8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ All Language Translate App 1.65 Mod by ModdingUnited [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:59E5BBF9EBEEBC301E96B781C7793FBDE3DEBC90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:59E5BBF9EBEEBC301E96B781C7793FBDE3DEBC90
 magnet:?xt=urn:btih:0BD49DA5ACF70041CA5D613D0A65010C03678CA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Flibusta Downloader v4.5.1 Test [Ru]
 magnet:?xt=urn:btih:62E054D3183613EB94209E8E0ADF8B41B6977206
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:62E054D3183613EB94209E8E0ADF8B41B6977206
 ```bash
 magnet:?xt=urn:btih:6C95F9EBE29ABEA5FAE1C2012A184CB4EF0D547D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ FFmpeg — набор библиотек с открытым исходным к
 magnet:?xt=urn:btih:2923FAD64112A29F586F2620DFEC2E53CFA12FD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:2923FAD64112A29F586F2620DFEC2E53CFA12FD4
 ```bash
 magnet:?xt=urn:btih:3C1934C23C1F1F96F85FE22573B792F834B4EBE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Casse-o-player 3.2.3 Jubilee Update Mod by TryRoom + Cassette Pack (Unpacked) [R
 magnet:?xt=urn:btih:11FA63D23C59B24BA83010243533284988C1F697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ iTranslate – один из лучших переводчиков и слова
 magnet:?xt=urn:btih:5361784C48E954E59F5B4495E768E8B446446B5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ DIGI Clock - отличный способ персонализировать в
 ```bash
 magnet:?xt=urn:btih:066A338F78B4455D1023F739D770122B9B1A93C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ WaveEditor для Android™ — это профессиональный инс�
 magnet:?xt=urn:btih:3750D9023D97F9356C5B1B2542FD74DA13240A18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:3750D9023D97F9356C5B1B2542FD74DA13240A18
 ```bash
 magnet:?xt=urn:btih:0B44ED2C116D2AA5A162EEF496D9E48AFF430A8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:0B44ED2C116D2AA5A162EEF496D9E48AFF430A8E
 magnet:?xt=urn:btih:4358E2D66F7777D903F8F6DF58E9DA7FD1533678
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:4358E2D66F7777D903F8F6DF58E9DA7FD1533678
 ```bash
 magnet:?xt=urn:btih:F384DAAA222AFC5D3742893C0A5024FEFBDC3400
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

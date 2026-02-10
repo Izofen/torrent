@@ -1,3 +1,38 @@
+###  Публикация: 575302   (368277) от 15.11.2012
+
+VA - Лучшие Хиты Радио DFm Часть 10 (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_368277.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Джиган - Держи меня за руку
+002. Fidel Wicked - Rock The Disco (Radio Edit)
+003. Sasha Dith & Steve Modana feat. Nadya - Улечу
+004. Bob Sinclar - Groupie (Radio Edit)
+005. Иракли - Осень (Remix)
+006. Xonia - Remember (Radio Edit)
+007. Руки Вверх - Я тебя люблю
+008. In-Grid - La Trompette (Bernasconi Radio Edit)
+009. ChinKong и Девушки Эйнштейна - #ДискотекаHomeParty16+
+010. Arash feat. Sean Paul - She Makes Me Go(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 6:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89616D160E7428BE0D94EDBC6BEAB1CDBF393AFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070058   (368322) от 06.11.2016
 
 Михаил Шуфутинский - Лучшие Хиты (2016) [MP3|256-320 Kbps] <Шансон>
@@ -21,6 +56,8 @@
 ```bash
 magnet:?xt=urn:btih:2F044EC25F397275EDC12D9382E14CED14883F3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +86,8 @@ magnet:?xt=urn:btih:2F044EC25F397275EDC12D9382E14CED14883F3C
 magnet:?xt=urn:btih:E3CB6CA566EE1BA24B1819F4ACB0AD704384BE47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +114,8 @@ VA - Super Дискотека 80х-90х В Новом Звучании (2016) [M
 ```bash
 magnet:?xt=urn:btih:5696EBAF734BF20FAB4B5B49D34CF9BE10A0CBF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -106,6 +147,8 @@ VA - Trance Desire Volume 29 (Mixed by Oxya^) (2012)
 magnet:?xt=urn:btih:190ABE4F502739A0BBEE8540D1834D471E1F2D85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -133,6 +176,8 @@ VA - Лучшие кавер-версии (часть 3) (2016) [MP3|160-320 Kbp
 magnet:?xt=urn:btih:A0C8DFCE89F4D1B60E2063F7EF8FB93CECFADDF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +204,8 @@ Cosmos - In The Dark Of The Night (2016) (Compilation) 2CD  [MP3|320 Kbps] <Prog
 ```bash
 magnet:?xt=urn:btih:ED2B1491D7947EB34783AC9F0F4F65EBA8A57954
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +240,8 @@ VA - Ээхх, Разгуляй! Часть 5 (2012) [MP3|128 кб/с]<Шанс�
 magnet:?xt=urn:btih:FB9D54B6F5B29A7E542FD18BB0AFFC513A2F0540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +268,8 @@ magnet:?xt=urn:btih:FB9D54B6F5B29A7E542FD18BB0AFFC513A2F0540
 ```bash
 magnet:?xt=urn:btih:9E1BB889217A9856459E428842C6035ACAFBB81B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +304,8 @@ VA - Лучшие хиты осени (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:E81305E548FD046CBD662DBE11E570404090D992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +339,8 @@ VA - XXXL Турбомодный Зарубежный (2012) [MP3|256 кб/с]<P
 magnet:?xt=urn:btih:9B14FCD74D915019537A2EC31AFC584DE6D63A4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +370,8 @@ VA - Trance Maniacs Party: Radio Shivers 2012.4 (Special Edition) (2012)
 ```bash
 magnet:?xt=urn:btih:1F453E9E4AFF7E75D9C20BF7754CF540CF3E348A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +403,8 @@ VA - A State Of Vocal Trance Volume 10 (2012)
 magnet:?xt=urn:btih:6D772AE8B4AD2B5170EA85F7D53FE801D391F6E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +432,8 @@ VA - Горячий Музон (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:38E212804B2AEF72EBA02241E1AEB1E2B6F2E1A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +460,8 @@ VA - Заключительная осенняя дискотека. Часть 
 ```bash
 magnet:?xt=urn:btih:50CF2E8EB56EEA88AAB8F1F706D9A2BC0C9C4CAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +496,8 @@ VA - New Club-12 (2012) [MP3|320 кб/с]<Club, Dance>
 magnet:?xt=urn:btih:79B7B9DB52564D5754E1E032758FC515C66F720B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +524,8 @@ Part 1 (Discoteka):
 ```bash
 magnet:?xt=urn:btih:79E6B455C39533D063098F47750B00869B4CBD65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +554,8 @@ VA - Осенняя свежая 30-тка Vol 2 (2020) [MP3|320 Kbps] <Pop, Dan
 magnet:?xt=urn:btih:89315DBF3FC6B397C2259519F87B4F2EB6C26153
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +582,8 @@ VA - Гуляночка на радио Шансон. Выпуск 2 (2016) [MP3
 ```bash
 magnet:?xt=urn:btih:760388454E84E1AA60D66237A2CD26D5901A836F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +612,8 @@ VA - Музыкальный адреналин. Сборник 10 (2016) [MP3|25
 magnet:?xt=urn:btih:65A15074E91C6630D85C86C724E91F279ECC5ABD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +640,8 @@ VA - Блатная осень на радио Шансон. Часть 10 (2016
 ```bash
 magnet:?xt=urn:btih:9A42F67C23ADC4CBCD7AD393FA0AFF354901A0AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +670,8 @@ VA - 100 Dance Elements Club (2016) [MP3|211-320 Kbps] <Progressive, Happy Music
 magnet:?xt=urn:btih:A33ED34647AE014356BBB0B4452DBAD5E7B5ED3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +698,8 @@ VA - Space Ibiza: 1989 - 2016 (2016) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:9DFD4D3426AC3466397C42CFB16C7CEBDA875A4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +728,8 @@ VA - Top 100 Club Tracks (October) (2016) [MP3|320 Kbps] <Dance, Club, Club Hous
 magnet:?xt=urn:btih:BA692316FD3481A8A899BC492F83397D3059FACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,6 +756,8 @@ VA - Top 100 Deep House (October) (2016) [MP3|320 Kbps] <Deep House, Club House,
 ```bash
 magnet:?xt=urn:btih:29F4C083D0AC147A37A44E1044C9AD083834DE9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -703,32 +786,7 @@ VA - Осенняя позитивная 100-ка. Выпуск 7 (2016) [MP3|25
 magnet:?xt=urn:btih:BB5103E957074E18456F9936A93812888C6058BA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069962   (369265) от 06.11.2016
-
-VA - Горячий хитовый драйв. Выпуск 5 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_369265.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Zac Samuel & Moon Willis Feat. Taya - Never Letting Go 3:56
-002.Domino - Любовь Живет 3:31
-003.Jessie J - Flashlight 3:30
-004.Frans - Young Like Us 3:32(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50E1F8AC4EF14223E6F3D10F60F545499DFD99D2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

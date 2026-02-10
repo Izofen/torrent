@@ -19,6 +19,8 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Wanterlude
 magnet:?xt=urn:btih:933246ED7A6408B08FC5B0387A5ADE4E5B4C5F86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Rogue Loops — это roguelite-экшн, где семья, оказавшая
 ```bash
 magnet:?xt=urn:btih:E7015FBB2D569676F0DD5A6993D6F1236EB01123
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Broken Arrow - это масштабная военная тактическая
 magnet:?xt=urn:btih:ABB0921E5B24D3ED9479490C92E8D69C33A3A5D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Primal Planet - это метроидвания от единственного 
 ```bash
 magnet:?xt=urn:btih:7F13022EA3B075BF4F4AB7BD1B2DEEF24AF06E88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ ZEPHON (2024) [Ru/Multi] (1.1.15/dlc) Repack Let'sРlay [Supporter Edition]
 magnet:?xt=urn:btih:ED9A001BCC34F628632D0AF71BAC318550908660
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Enshrouded - увлекательная игра, действие которо�
 ```bash
 magnet:?xt=urn:btih:562CE3F2C0A27ECFADEDEE0013444467CAFBF266
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Survive the Fall (2025) [Ru/Multi] (1.2.0.2534/dlc) Repack Let'sРlay [Ultimate 
 magnet:?xt=urn:btih:DA04A584F45FFD7FD90DA162E6440ED219B20111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Tactical Warfare (2025) [Ru/Multi] (Build 18683670) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:3E90B80363B04DB2F9D4FF4B9CBD1C0280D24021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Sengoku Dynasty (2024) [Ru/Multi] (1.1.0.12/dlc) Repack Let'sРlay [Ultimate Edi
 magnet:?xt=urn:btih:87C4273C0A767BEBEAAF4BEC7F730F3994D5EDA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Ithya: Magic Studies / Итийя: Волшебные занятия (2025) [Ru/
 ```bash
 magnet:?xt=urn:btih:AF5F0450072C742D070BE801099FA693B4F02E89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Rage in Peace (2018) [Multi] (1.0) License GOG [Collector's Edition]
 magnet:?xt=urn:btih:B8FCA8302AF50220B972352C85F6FBC512DF3048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ A Little to the Left (2022) [Multi] (3.5.10/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:5DFD2F7C9BC302C027A596539D54B7D8056E35BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Miraculous - Paris Under Siege (2024) [Ru/Multi] (1.0) Repack Yaroslav98
 magnet:?xt=urn:btih:37996EA2DB9E62C097E7F4D0C4AA18877B506B86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Echo Point Nova (2024) [Ru/Multi] (2.11) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B7F4B7FD3423AE76974F31C62F8DA1DAC5044E7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Ithya: Magic Studies / Итийя: Волшебные занятия (2025) [Ru/
 magnet:?xt=urn:btih:B3FD555508CC65259DBAA081AD52B84505913312
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Stranded: Alien Dawn (2022) [Ru/Multi] (build 18840735) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:6391BEBD807484B5D95CC3249E838C8A0DBE7437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Relic Hunters Legend - это быстрая RPG в жанре looter-shooter, �
 magnet:?xt=urn:btih:0DDA220FAABE60A34481B73687AB7464ECED8697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Frozenheim – скандинавский градостроительный с�
 ```bash
 magnet:?xt=urn:btih:3CA81190B8D797595177713214830F8A9C560C77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Yield! Fall of Rome (2025) [Ru/Multi] (1.0.1.3/dlc) Repack FitGirl
 magnet:?xt=urn:btih:1AF65510F65B0343BFB4AF08ED1E06A7DAFF5FB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Forever Skies – это нетипичное выживание, в мире п
 ```bash
 magnet:?xt=urn:btih:C61D065E1E5853726E0F0C9517B418ED3C59EB84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Echo Point Nova (2024) [Ru/Multi] (2.1) Repack FitGirl [Digital Deluxe Edition]
 magnet:?xt=urn:btih:3FC367710F39671413746ECB727645F46EE57D16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Artis Impact (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5CE356DFD411DCDDE0B8A70EF62AD987B824910C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Stranded: Alien Dawn (2022) [Ru/Multi] (1.23.250612) Scene Rune
 magnet:?xt=urn:btih:A315176BD7E5F0E36D6776541D5DEA0BA3B0D9E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ BROK the InvestiGator - The Brawl Bar (2025) [Ru/Multi] (1.5.3.7) License GOG
 ```bash
 magnet:?xt=urn:btih:CF2A6C2A9019CA4834854B87ADC95D4853D62B4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ magnet:?xt=urn:btih:CF2A6C2A9019CA4834854B87ADC95D4853D62B4D
 magnet:?xt=urn:btih:7F2D06A762C4ED556D3C333A87BEB9E4A53DAF74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Herdling - это новое приключение от Okomotive, создав
 ```bash
 magnet:?xt=urn:btih:D9B63E6F3293C98D96BE3A1F6E81B1345814F150
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

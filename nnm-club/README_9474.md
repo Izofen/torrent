@@ -22,6 +22,8 @@ Def Leppard - Def Leppard (2015) Japanese Edition [FLAC|image + .cue]<Hard Rock>
 magnet:?xt=urn:btih:DBFDE0018A3E61EEC9EC8C3AE16746163FC84BDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:DBFDE0018A3E61EEC9EC8C3AE16746163FC84BDB
 magnet:?xt=urn:btih:80DE16A1F7C723F5379F6EFB0F92DD6E9B1B91A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Liri Browser - это свободный кроссплатформенный б
 ```bash
 magnet:?xt=urn:btih:A54493819E876BA500C757A81533DFD30DE6C237
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ PDF Expert - это один из лучших инструментов для �
 magnet:?xt=urn:btih:55D65ECFB68788422473D90DC6EE756A81A9C14E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:55D65ECFB68788422473D90DC6EE756A81A9C14E
 magnet:?xt=urn:btih:34E84AA52731842BFE7F39C63D11380961944F71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:34E84AA52731842BFE7F39C63D11380961944F71
 ```bash
 magnet:?xt=urn:btih:65A1AD4372B2E47E77428CF64D23F67F4CD8909A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:65A1AD4372B2E47E77428CF64D23F67F4CD8909A
 magnet:?xt=urn:btih:519858ADFFF953651102F6101AFBE4689AAF89AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:519858ADFFF953651102F6101AFBE4689AAF89AC
 magnet:?xt=urn:btih:B1D53F9A16A84BDEB5F0D765CB101F0EFE1FFD39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:B1D53F9A16A84BDEB5F0D765CB101F0EFE1FFD39
 ```bash
 magnet:?xt=urn:btih:A3FDD85B3AA9C57C6EEACD5F3FC1D4ED9C165ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:A3FDD85B3AA9C57C6EEACD5F3FC1D4ED9C165ECD
 magnet:?xt=urn:btih:036492042FB321D8DAA78F6A27F26042E8C87B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Kabukichou Sherlock / Case File n 221: Kabukicho / Шерлок из Кабук�
 ```bash
 magnet:?xt=urn:btih:45304971CE5D7879EB5536893AE64E1C12918ABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ VA - New Instrumental Ballads vol.2 (2002) [FLAC|Lossless|tracks + .cue]<Instrum
 magnet:?xt=urn:btih:38C7FF414C35790BC5A3D797749D6C601DD3FA4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ Ultimate Pop Hits and Piano Tribute Players - New Pop Covers on Piano (2019) [MP
 magnet:?xt=urn:btih:F635E249E283F1BEBA6691279DB1A2E9CBECE68B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ Ranma 1/2: Akumu! Shunmin Kou | Ranma 1/2: Nightmare! The Incense of Spring Slee
 ```bash
 magnet:?xt=urn:btih:8C662F80CED2FB62F509E7D9DA8F339CE4C1DE58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:8C662F80CED2FB62F509E7D9DA8F339CE4C1DE58
 magnet:?xt=urn:btih:17B5308711432228008326B351EE2FC9ADAF0041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:17B5308711432228008326B351EE2FC9ADAF0041
 ```bash
 magnet:?xt=urn:btih:66D5829D4BE031E342101AC25349166E462E9792
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ JRiver Media Center - мультимедийный центр. Воспроиз�
 magnet:?xt=urn:btih:AD751C62FD38D79696607806E1C4D004C7BBD769
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:AD751C62FD38D79696607806E1C4D004C7BBD769
 ```bash
 magnet:?xt=urn:btih:BAB06CE5141D32669231AC7F0A33B576F10AA618
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:BAB06CE5141D32669231AC7F0A33B576F10AA618
 magnet:?xt=urn:btih:488A3E9A1F2B7C70FC1F19902FB4C694AA338B39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Adguard — это лучший способ избавиться от разд�
 ```bash
 magnet:?xt=urn:btih:7BA676EC6A5CDDE162D66124D9C3E5BFA0D35BC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:7BA676EC6A5CDDE162D66124D9C3E5BFA0D35BC1
 magnet:?xt=urn:btih:6645C6A4760A445EC3A347B03EAE170525B1AAC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:6645C6A4760A445EC3A347B03EAE170525B1AAC1
 ```bash
 magnet:?xt=urn:btih:3FBED0F1BBC2DC7F56A8CA9D8005065D915019FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ VA - Last Day Of Summer (2019) [MP3|320 Kbps] <R&B, Soul>
 magnet:?xt=urn:btih:874C7988ED7759F5B112331B90021FBD564095B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ VA - Sleep & Massage Music (2019) [MP3|320 Kbps] <New Age, Meditative>
 ```bash
 magnet:?xt=urn:btih:362C8C8FE33127A2FF63D3C8936B65EE3EAB46DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:362C8C8FE33127A2FF63D3C8936B65EE3EAB46DA
 magnet:?xt=urn:btih:C16654DB449AAF862D3D6AAAC06872ABB7422308
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ VA - Future Sound of Egypt 600 - Sands of Time (Mixed by Aly & Fila & Ciaran Mca
 ```bash
 magnet:?xt=urn:btih:DCAEC42CA31E238C7B539B9DAF78DEC8DCDCC407
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

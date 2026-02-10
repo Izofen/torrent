@@ -1,3 +1,29 @@
+###  Публикация: 411420   (339023) от 16.11.2011
+
+Татьяна Полякова | Ольга Рязанцева (Книга 6). Аста ла виста, беби! [2005] [MP3, Екатерина Хлыстова]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_339023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ловить киллера "на живца" не самое подходящее занятие для очаровательной девушки. Но у Ольги Рязанцевой просто нет выхода. Убийца, прибывший в ее родной город, явно охотится на одного из двух дорогих ей людей. Самое печальное, что оба любят ее, так что и тот и другой попросту могли "заказать" соперника. Эта жгучая интрига категорически не нравится (   Читать дальше...   )Жанр: ДетективПродолжительность: 09:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:295E2DEA44DE79EC0DD46FBAE70C76A99DA37150
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330594   (339093) от 11.10.2019
 
 Любен Каравелов | Болгары старого времени (2019) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:BE12A316C8FA8C1BC19136E52F3E916D5FF6CEFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:BE12A316C8FA8C1BC19136E52F3E916D5FF6CEFF
 magnet:?xt=urn:btih:A3E08E7108B51A4DB5A720574CC117E2FD939CB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:A3E08E7108B51A4DB5A720574CC117E2FD939CB4
 ```bash
 magnet:?xt=urn:btih:A5909462575FAE8BC669D47196D321DD76B8FAC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:A5909462575FAE8BC669D47196D321DD76B8FAC8
 magnet:?xt=urn:btih:63C2550D91009D22C898FA119DAB43CFDCC3D3A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:63C2550D91009D22C898FA119DAB43CFDCC3D3A6
 magnet:?xt=urn:btih:88966890EE692F584FE79A25E5F633EEF610C9EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ magnet:?xt=urn:btih:88966890EE692F584FE79A25E5F633EEF610C9EF
 ```bash
 magnet:?xt=urn:btih:1FB917F511B8339374A9F3D94659418626E37D92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:1FB917F511B8339374A9F3D94659418626E37D92
 magnet:?xt=urn:btih:9AB3252678D85432C78B5294EA506FF0E8D13A87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:9AB3252678D85432C78B5294EA506FF0E8D13A87
 ```bash
 magnet:?xt=urn:btih:DA4E224A7891C7283FF62C2462BAF0CCC50CDD37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:DA4E224A7891C7283FF62C2462BAF0CCC50CDD37
 magnet:?xt=urn:btih:D534FA7AFCBC33B9AE097345D385CEF706F11554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:D534FA7AFCBC33B9AE097345D385CEF706F11554
 ```bash
 magnet:?xt=urn:btih:9F05E37FFF1C00B6261273DFF342A7AF7845E418
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:9F05E37FFF1C00B6261273DFF342A7AF7845E418
 magnet:?xt=urn:btih:DE6782E2169B3BD5058352348F7B80724757DD32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:DE6782E2169B3BD5058352348F7B80724757DD32
 ```bash
 magnet:?xt=urn:btih:3448B388FE4E24CC4E848C84211A986A538B39DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:3448B388FE4E24CC4E848C84211A986A538B39DE
 ```bash
 magnet:?xt=urn:btih:FC85005921C8D6391C02950790E0C068B02B1DDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:FC85005921C8D6391C02950790E0C068B02B1DDA
 magnet:?xt=urn:btih:5BE7C1165A02DE6E059D3856B9422D1A8B0B9AD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:5BE7C1165A02DE6E059D3856B9422D1A8B0B9AD1
 ```bash
 magnet:?xt=urn:btih:6AE917D18029EDCD5FF87F7143C61C1AA1DCA985
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:6AE917D18029EDCD5FF87F7143C61C1AA1DCA985
 magnet:?xt=urn:btih:C2DBD2BC2EE34639A910E170403B66ABF80C7427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:C2DBD2BC2EE34639A910E170403B66ABF80C7427
 ```bash
 magnet:?xt=urn:btih:B76ECFB9308A1B97FBABC6CFB10E6539C0C55F50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:B76ECFB9308A1B97FBABC6CFB10E6539C0C55F50
 magnet:?xt=urn:btih:386FC489463671FB21C6913876C46699DD632D3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:386FC489463671FB21C6913876C46699DD632D3C
 ```bash
 magnet:?xt=urn:btih:14FE7E18A26E6552008C3E6F10DBFB84C63008B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:14FE7E18A26E6552008C3E6F10DBFB84C63008B7
 magnet:?xt=urn:btih:B09A3993E4C54B2CBB2E8B26EF394BDB3A50BBEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:B09A3993E4C54B2CBB2E8B26EF394BDB3A50BBEF
 ```bash
 magnet:?xt=urn:btih:7E4C50F56C12E5C67D1BF29F1A15B3A67C25E4E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:7E4C50F56C12E5C67D1BF29F1A15B3A67C25E4E6
 magnet:?xt=urn:btih:9EE31D3FB1D3427CB6E283D581AE7235B1E23F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:9EE31D3FB1D3427CB6E283D581AE7235B1E23F80
 magnet:?xt=urn:btih:E8EF67FC726515C9670E8D0DD416AA5AF65AF055
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:E8EF67FC726515C9670E8D0DD416AA5AF65AF055
 ```bash
 magnet:?xt=urn:btih:6374A018CC364BF2B86C5AE0B5F701671CE1075C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,30 +677,7 @@ magnet:?xt=urn:btih:6374A018CC364BF2B86C5AE0B5F701671CE1075C
 magnet:?xt=urn:btih:311CB9F7EE247E42176FEF02C6BCDDC465245DE7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579120   (340648) от 25.09.2022
-
-Руслан Рубцов | Система подземелий (Книга 1). Эволюция монстра (2022) [MP3, Радион Нечаев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_340648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эволюция монстра – фантастический роман Руслана Рубцова, первая книга цикла «Система подземелий», жанр РеалРПГ, боевое фэнтези, городское фэнтези. Если бы заранее знал, чем обернётся рейд в E-ранговые врата, ни за что бы не согласился пойти сюда вновь! "Я не хочу умирать…" – такой была последняя мысль, когда мою плоть живьём раздирали монстры…
-Мне оставалось (   Читать дальше...   )Жанр: Боевое фэнтези, Городское фэнтезиПродолжительность: 07:15:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46191CCEC91FE4AF8814C4F253C4A64869A5A4BB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

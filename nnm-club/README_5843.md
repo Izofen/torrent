@@ -19,6 +19,8 @@ AYBO 1.16.1 [Multi/Ru]
 magnet:?xt=urn:btih:76DABAD340205A63A4D54A12010D68AEE83D2FE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:76DABAD340205A63A4D54A12010D68AEE83D2FE1
 ```bash
 magnet:?xt=urn:btih:5FB10C6F613ADA9081B512ECC18C92034975E4CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Drag & drop столько папок, сколько вы хотите, и на
 magnet:?xt=urn:btih:F9AC298F5B0F91FFF264B001459A6C6387BC7A8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:F9AC298F5B0F91FFF264B001459A6C6387BC7A8E
 magnet:?xt=urn:btih:1806F080B5DCF9FE5B23C5BF6A965665C1F6263F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ PDF Search - это утилита, которая имеет революцио
 ```bash
 magnet:?xt=urn:btih:9C653B66D1D84888C32631068B9F97FB51B72247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:9C653B66D1D84888C32631068B9F97FB51B72247
 magnet:?xt=urn:btih:D014E2175D0CD7427CECC4B9CCFE4A2E20DA7FA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:38EB5E08DE2C9A2FAF2059746DE7564DDF32EA09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Auslogics Duplicate File Finder поможет Вам избавиться от 
 magnet:?xt=urn:btih:B1C80DF6A35E6B71CBE15684DEBEE3217C97E802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Resident Evil 5 (2009) [Ru/Multi] (1.2.0/dlc) Repack Decepticon [Gold Edition]
 magnet:?xt=urn:btih:2986393E091399EF339C3B2F5EDA56477A4A07D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:2986393E091399EF339C3B2F5EDA56477A4A07D9
 ```bash
 magnet:?xt=urn:btih:245496169D64E60A09991B45E56AC42C0B8894BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:245496169D64E60A09991B45E56AC42C0B8894BF
 magnet:?xt=urn:btih:8BFDAD99A6CF838D93F30F31F8F97E9FC3C16211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:8BFDAD99A6CF838D93F30F31F8F97E9FC3C16211
 ```bash
 magnet:?xt=urn:btih:700265A258447BB2B3BF034022BCEA5A9BEA2076
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ TreeSize Free 4.6.2.511 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:5E5C4F12B2A82649B855722F792087BE0CD7B1E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:5E5C4F12B2A82649B855722F792087BE0CD7B1E0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Perfectly Clear WorkBench позволяет всего за пару клико
 magnet:?xt=urn:btih:099FA15171AA2D1EBF84730AF39B4BBC7C15BD34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:099FA15171AA2D1EBF84730AF39B4BBC7C15BD34
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:099FA15171AA2D1EBF84730AF39B4BBC7C15BD34
 magnet:?xt=urn:btih:3CEAD4F289A319C79845365875FF7B6CD3153486
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:A3FD7A0EBDB1005CF51224677388D8867380482E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Multitouch позволяет связать пользовательское д
 ```bash
 magnet:?xt=urn:btih:8E3392580731E865F2C91DFB962EE30262F854AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:8E3392580731E865F2C91DFB962EE30262F854AA
 magnet:?xt=urn:btih:220F654882C2696AA148B0CAF8B01EACE49CC97D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:220F654882C2696AA148B0CAF8B01EACE49CC97D
 magnet:?xt=urn:btih:2AEB30BC62399EC055D004D341C449C2EB159CA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ Windows 11 Manager - это универсальная утилита специ
 ```bash
 magnet:?xt=urn:btih:98BB883C83D917ABB88F9DDA8A64EB18CA5AE2D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ VA - Music For You vol. 26 (2022) [MP3|320 Kbps] <Rock, Metal, Other>
 magnet:?xt=urn:btih:1AA5CC09F7EC75C8AB5AB80E5DE93CC66C0CE876
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:1AA5CC09F7EC75C8AB5AB80E5DE93CC66C0CE876
 ```bash
 magnet:?xt=urn:btih:AB6EE8C5D6101560EAB12A2205E194199D2ADC35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:AB6EE8C5D6101560EAB12A2205E194199D2ADC35
 magnet:?xt=urn:btih:A8CD12B13B87C049CFE8952AB64BB39730214ABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 ```bash
 magnet:?xt=urn:btih:1E3C4A1013FD98270D52A720ED1B4C63CB3B62B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

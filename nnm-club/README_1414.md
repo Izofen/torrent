@@ -19,6 +19,8 @@ Warcraft II (2): Remastered (2024) [Ru/Multi] (1.0.0.2157) Scene Razor1911
 magnet:?xt=urn:btih:FE9275B2549BADDD8307EE5032C3F46E3667C2B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Witch of Fern Island - это красочный симулятор жизн
 ```bash
 magnet:?xt=urn:btih:67CA663E4A059EF33BE310DB666BFA8BE8735FA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:67CA663E4A059EF33BE310DB666BFA8BE8735FA5
 magnet:?xt=urn:btih:ED4BEE0A48D402F775F68829EFFCF8C63ACA2D97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:ED4BEE0A48D402F775F68829EFFCF8C63ACA2D97
 ```bash
 magnet:?xt=urn:btih:93DD2D1EBA4B950383933A8E03CCB8450516E9C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ ECH, Sing-box, V2ray, Xray, Vless, Vmess, Reality, TUIC, Hysteria, ShadowTLS, SS
 magnet:?xt=urn:btih:4610A5FD204F67013ACBBA78F2613CEDEFD21143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:4610A5FD204F67013ACBBA78F2613CEDEFD21143
 ```bash
 magnet:?xt=urn:btih:EE217B341087D5A31A2CC4640FD5BE62876A6040
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:EE217B341087D5A31A2CC4640FD5BE62876A6040
 magnet:?xt=urn:btih:6B344BA4EEF89E93274C018198F8749F70188736
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:6B344BA4EEF89E93274C018198F8749F70188736
 ```bash
 magnet:?xt=urn:btih:3005B0D5ECC21DE205E06053A7AE3572247D0146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:3005B0D5ECC21DE205E06053A7AE3572247D0146
 magnet:?xt=urn:btih:13B2885BD4E604D34FAAE2936C19D6EEEA236321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:13B2885BD4E604D34FAAE2936C19D6EEEA236321
 ```bash
 magnet:?xt=urn:btih:544958A7C67FFC7759764636E08463A37AAD0C23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Gori: Cuddly Carnage - динамичный экшен с элементами �
 magnet:?xt=urn:btih:265CB5E2FDEE2A406F587D8B12652860E5BCD12B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:265CB5E2FDEE2A406F587D8B12652860E5BCD12B
 ```bash
 magnet:?xt=urn:btih:21D54D590A147C18FFCFB5D288137506E90DD198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ VideoShow предлагает отличные функции редактир�
 magnet:?xt=urn:btih:FA4EC77CCDB4FA479DB3B13C419B4295511F486C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ PowerDirector – Video Editor v14.6.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B16E55C53BA1BD293BFD2D9B7E8849FC20B858E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Jerry Cantrell (Alice in Chains) - 5 Albums (1998-2024) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:3E8EE82F32872A9D2D406612D664B209EA900FC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:3E8EE82F32872A9D2D406612D664B209EA900FC9
 ```bash
 magnet:?xt=urn:btih:7F4197B8C268A2FAE4DF236240094B12F6B07EC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:7F4197B8C268A2FAE4DF236240094B12F6B07EC4
 magnet:?xt=urn:btih:C72C7AD0E929161D8F9E5C47FD39BA1D01EF2FB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ eX-Driver: Nina & Rei Danger Zone | eX-Driver Danger Zone | Экс-драйве�
 ```bash
 magnet:?xt=urn:btih:3C77F3D926FC3B959EF8C3BC37846ECF32C7FFB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ VA - Black Hole Trance Music 11-24 (2024) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:9F6B97B5184D0E690622502B46AE7D050C624339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ Neverland - Illusory World (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Progres
 ```bash
 magnet:?xt=urn:btih:6AEA2A53A12628D2517996126FB27599281A4ED6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ Poppy - Negative Spaces (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative 
 magnet:?xt=urn:btih:CF30C44A9B1306713FF79B2EC904FAA7666710AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ VA - Free To Dance, Vol. 4 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic
 ```bash
 magnet:?xt=urn:btih:7F9DC6BE15D60C512D1AB8F66C607DDED20D07EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ VA - Black Hole House Music 11-24 (2024) [MP3|320 Kbps] <House, Progressive Hous
 magnet:?xt=urn:btih:4221F0A8BFC3F763B0ADEA77D798AACA0594A873
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ Alesso - Tomorrowland Friendship Mix (2024-11-14) [MP3|320 Kbps] <Tech House>
 ```bash
 magnet:?xt=urn:btih:4BD028F05E8FEEFEBF86B829ABC1B9723E9AF522
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:4BD028F05E8FEEFEBF86B829ABC1B9723E9AF522
 magnet:?xt=urn:btih:6EED01BB5684A7A38897DC628587C6344D71F996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:6EED01BB5684A7A38897DC628587C6344D71F996
 ```bash
 magnet:?xt=urn:btih:C0DD7916CF4349448465C83CB4A04385B4A3AA11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

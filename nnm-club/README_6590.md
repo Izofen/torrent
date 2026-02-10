@@ -19,6 +19,8 @@ MobaXterm - это комплекс утилит, в котором есть в�
 magnet:?xt=urn:btih:8FF59928A29E4FEBC04F0BDF8267A41FE2131B1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Machine Minds AI | Building Javascript Apps with Chat GPT (2023) [PDF] [EN]
 magnet:?xt=urn:btih:4FCEBB2DF9CA1DB7B6EB455465DD579DFF51856C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:4FCEBB2DF9CA1DB7B6EB455465DD579DFF51856C
 ```bash
 magnet:?xt=urn:btih:913FB685DB90352B8CCAC4A520F57B4C820858D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ History Channel: Тетрис: Из России с любовью / TETRIS. Fro
 magnet:?xt=urn:btih:9AF254CD4481E185F512FAE437CA7C199266443E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:9AF254CD4481E185F512FAE437CA7C199266443E
 ```bash
 magnet:?xt=urn:btih:DD19EED6BD95E4F8490E393C7DE468BA01124FD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:DD19EED6BD95E4F8490E393C7DE468BA01124FD8
 magnet:?xt=urn:btih:798AB496CCE0F4440D86F5F138EFAE6012E59A22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:798AB496CCE0F4440D86F5F138EFAE6012E59A22
 ```bash
 magnet:?xt=urn:btih:4C612674D39A93D71F8D51C5F02D71CD0E967EE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:4C612674D39A93D71F8D51C5F02D71CD0E967EE5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:4C612674D39A93D71F8D51C5F02D71CD0E967EE5
 ```bash
 magnet:?xt=urn:btih:86D93874F2C4D3436011AB47B70DE81D22D24C92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Adobe Audition 23.3.0.55 (x64) Portable by 7997 [Multi/Ru]
 magnet:?xt=urn:btih:CF24E964087F735B71305441F5F0DFD5ADE4A72F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:CF24E964087F735B71305441F5F0DFD5ADE4A72F
 ```bash
 magnet:?xt=urn:btih:80015116F044555B3754056E6B7BFF0264CDD910
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:80015116F044555B3754056E6B7BFF0264CDD910
 magnet:?xt=urn:btih:69B2CEC90A4D8480D2CBAE0E1EF17669D58F6E3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Modo является полным решением для исследован�
 magnet:?xt=urn:btih:44E83967FA937BD3A766BE8C2DFFC35F48C9ED05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Kiwi VPN Proxy от Macdep - это лучший быстрый и лучший 
 ```bash
 magnet:?xt=urn:btih:80569F8378A0FB8D214758C1BD6739A85567B2B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:80569F8378A0FB8D214758C1BD6739A85567B2B6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Godstrike - топ-даун аркада, направленная на напр
 ```bash
 magnet:?xt=urn:btih:6C23024741DA3A121C05E8E5DAF7636B54A3AB33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:6C23024741DA3A121C05E8E5DAF7636B54A3AB33
 magnet:?xt=urn:btih:8A92E387C69226A3C57294A14913BF843DD04241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:8A92E387C69226A3C57294A14913BF843DD04241
 magnet:?xt=urn:btih:7D42E8A1F29561972CEE5A3FB2016E541825188D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ HandBrake - бесплатный видео конвертер с открыты
 ```bash
 magnet:?xt=urn:btih:004192A01E540B821A4E61590F772512551F45D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ VA - TOP Non-Stop 2010-2019 - Lounge & Chillout. Volume 2 (2022) [MP3|192-320 Kb
 magnet:?xt=urn:btih:92499B6CD8CCBFF187788B03D0CDB55762DAEF62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ DeathKeep (1995) [En] (3.3) License GOG
 magnet:?xt=urn:btih:C16751F277FB86D6EA77B1B147966DD25B23AB49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:C16751F277FB86D6EA77B1B147966DD25B23AB49
 ```bash
 magnet:?xt=urn:btih:961B981DEE4D33AB598068F2E60DDB65C7DA9788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ Geometrium studio, Павел Герасимов | Техническое зад
 magnet:?xt=urn:btih:AC5332A5DDDFC6138A5CF6199C3FDB12D38B36C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:AC5332A5DDDFC6138A5CF6199C3FDB12D38B36C3
 ```bash
 magnet:?xt=urn:btih:F7DD6270EF0D1AD6E3ECF7C4D7F0B448B1B05062
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:F7DD6270EF0D1AD6E3ECF7C4D7F0B448B1B05062
 magnet:?xt=urn:btih:950B24EDE07283BE60ADBA31D9913D0567C619C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:950B24EDE07283BE60ADBA31D9913D0567C619C8
 ```bash
 magnet:?xt=urn:btih:8E4FF6AC871B403710C7B17DA6D2A1AAD78B62E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

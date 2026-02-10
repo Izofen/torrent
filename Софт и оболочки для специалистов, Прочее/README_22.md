@@ -20,6 +20,8 @@ HxD - это быстрый и легковесный HEX-редактор, ко
 magnet:?xt=urn:btih:4127666386DB60E49016BB2F0CECF5A4868105F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:4127666386DB60E49016BB2F0CECF5A4868105F0
 ```bash
 magnet:?xt=urn:btih:1D138AC1B12DDE8E6CD441A4FC07FEBA1B679FD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Microtest PentaScanner+ (firmware & manual) 5.0.0 [En]
 magnet:?xt=urn:btih:F664B8F8700C746F480653D332ED7777E0ED6CDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Autodesk AutoCAD Design Suite Ultimate 2016 (x86, x64) [En]
 ```bash
 magnet:?xt=urn:btih:1DCC6D9BD159C67491823DBB5B30236D422C9FFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ PGI Visual Fortran - компилятор Fortran и инструменталь�
 magnet:?xt=urn:btih:33941B2E7E7B6928EC18D11E91DF8DE3B25D1301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Nemetschek Allplan 2015 (30 Years Edition) Build 28.501.4211.1019 (x64) [Multi/R
 ```bash
 magnet:?xt=urn:btih:3C1F589963DCC06F452F0641E8507300B60539F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ AutoCAD Civil 3D - программа, базирующаяся на платф�
 magnet:?xt=urn:btih:00B354F86F51AEB4100D4D00EC3F01B773719978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Autodesk Advance Steel предназначен для проектирован�
 ```bash
 magnet:?xt=urn:btih:554966CF35631B837664C71B687A9EBE6DCC13EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Autodesk Robot Structural Analysis Professional 2017 - программный к
 ```bash
 magnet:?xt=urn:btih:7E5833F2A9545BB41DEE6B35077901FFB121CDD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Acronis Disk Director Advanced 11.0.12077 (RU)(   Читать дальше...  
 magnet:?xt=urn:btih:DC4C668228A0F19A03EB85FCF1C244C466A8ED9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:DC4C668228A0F19A03EB85FCF1C244C466A8ED9E
 magnet:?xt=urn:btih:1F8F44F96EB8A365AB67C93706A4F2972C265C84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ StairDesigner 7.05a [Multi]
 ```bash
 magnet:?xt=urn:btih:9624EE739F8EEF2C50BACDCEA33FEA17E0E09704
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ Geany - это мощный, стабильный и легкий текстов
 magnet:?xt=urn:btih:252FD9103506014566CBFABD44FD3987CCCFB569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Visual Studio Community 2019 - Бесплатная, полнофункцион�
 ```bash
 magnet:?xt=urn:btih:3DAC8D15E2D2652C8AFA27AEFE98842AE92561C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Delcam PowerMILL – это независимая CAM-система для п�
 magnet:?xt=urn:btih:AEF3F805859C4832AA507EC3E1B85FDAD30F80DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Visual Assist позволяет увеличить возможности ре�
 ```bash
 magnet:?xt=urn:btih:D1C91430BD4067FF48430844ADDA086BE511C1B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Code::Blocks — свободная кроссплатформенная сре�
 magnet:?xt=urn:btih:BB38D42D290BB10F1488DBE6F34A1E41D04F15D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Code Composer Studio 7.0.0.00043 [En]
 magnet:?xt=urn:btih:0A3196EEA44126401280958E589DC893080BF098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ PWBoot 3.0.2 [английский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ MapInfo Professional 9.0 Portable [RUS]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ DirectX SDK (DirectX Software Development Kit) является набором �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ MapInfo Professional – географическая информационна
 magnet:?xt=urn:btih:4C8B8020F156728123401EDBEDF2CC5B26C02CFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ MapInfo Professional – географическая информационна
 ```bash
 magnet:?xt=urn:btih:A6D8AD8DCD969360E359BDC127072D64086497A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Colors - это небольшая утилита, которая будет п�
 magnet:?xt=urn:btih:E74380FFFEF35A8323FA5EE8F78226593A4D4570
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Qemu Simple Boot – предельно простая утилита, уста�
 magnet:?xt=urn:btih:EF24A65B64F2CD02A4BFD317BB306F607A16B74E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Raxco PerfectUpdater 2.0.651.18068 [En]
 ```bash
 magnet:?xt=urn:btih:CC6166C771F378F47490E1734DEA6342710ED6E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

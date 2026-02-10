@@ -19,6 +19,8 @@ Strange Antiquities (2025) [Ru/Multi] (1.0.40) License GOG
 magnet:?xt=urn:btih:9AFA1931930BB7A6DB81CA927BA5ACF66765B68A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Hidden Folks – это игра в жанре "поиск предметов". 
 ```bash
 magnet:?xt=urn:btih:031B0C0963A8A884015536B024A0AA2F8D2479B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Our Battle Has Just Begun! episode 2 (2022) [Multi] (1.0) Scene Darksiders
 magnet:?xt=urn:btih:D7E1907ECA8BECF2A4DD48FE00944C203AE7A21E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Inheritance of Crimson Manor - это игра-головоломка в ж�
 ```bash
 magnet:?xt=urn:btih:8AEDD24CFF1634D1E8A77ADE9761A027E088250B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Notch - The Innocent LunA: Eclipsed SinnerS выделяется на фоне �
 magnet:?xt=urn:btih:9A498A0A5F6FA75177B82C4D1D2DECB2B465F830
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Die Wilden Kerle 5: Hinter dem Horizont / Тайна заброшенной фа
 ```bash
 magnet:?xt=urn:btih:C9CAC286B91FC6AB7E8FA14698C90644FC26697A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Twinsen's Little Big Adventure 2 Classic – это экшен приключе�
 magnet:?xt=urn:btih:1474C2F196C4D2D46A49C4D2270A8F002346376B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Manhole: Masterpiece Edition открывает перед каждым иг
 ```bash
 magnet:?xt=urn:btih:091BC9379F8F15937AC922E9CCF5D9D945708692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Legend of Kyrandia – трилогия в жанре квеста, кото
 magnet:?xt=urn:btih:022C2680FB9E13AE5E16D166F8F3D272DA18E381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ A Tale of Paper: Refolded — это платформер-головоломка
 ```bash
 magnet:?xt=urn:btih:3F479521C464B17DB21258BDA21D8E3D3A004DE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Reverie: Sweet As Edition (2023) [Multi] (1.0.0) License GOG
 magnet:?xt=urn:btih:4B90539EEF6F59DBF676D3AE195625141CFF639F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ My Destiny - это одиночная игра о медвежонке, кот�
 ```bash
 magnet:?xt=urn:btih:B1CAF71EA800DB61CD8016C0AC8FA6D140018E13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ MY LITTLE PONY: A Maretime Bay Adventure (2022) [Multi] (1.0.1_003) Scene Fairli
 magnet:?xt=urn:btih:B46C55F1E3AAE43EF546EB183D0F74ECDFA8737F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ No Longer Home (2021) [Multi] (1.3.3) License GOG [Farewell Edition]
 ```bash
 magnet:?xt=urn:btih:F29ED144C6A367545A67FBBCDEB1333884E95CB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Night of Horror (2023) [Ru/En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:4C3C622B1F639C84C531D3F51579CAB97161413D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ South of the Circle — эмоциональная игра с глубоким 
 ```bash
 magnet:?xt=urn:btih:4D50DE574219A198DA0A03D4B28B9088EF4127A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ PARANECRO (2022) [Multi] (1.0) License DARKSiDERS
 magnet:?xt=urn:btih:BC7B0C4CF04E4E1D14752D87F1BA46AD038E91D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Swallow - это психологический хоррор от первого
 ```bash
 magnet:?xt=urn:btih:81BBC6F4D478EE6A4F3DEC209188F094E64DD86F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Fobia - St. Dinfna Hotel (2022) [Ru/Multi] (Build 8905722) Repack Other s
 magnet:?xt=urn:btih:EC5975A14525A96844C4D211AE55E3E98A6E8366
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Big Earth - платформер со сложными головоломкам�
 ```bash
 magnet:?xt=urn:btih:B6E4E558CE383AC3362E96C9A0A5B173EA914E64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Sinking Island (2007) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:9CB113710CC96CD461FF87575FFC4742146ABED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Hollowbody (2024) [Ru/Multi] (2.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6D3985C8880E4E3C3DC634DF5F24E743A85E73FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Haven Park (2021) [Ru/Multi] (1.2.1.2) License GOG
 magnet:?xt=urn:btih:1350A8683EEA11EF24504E3BDA724C918B4EB9E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ LEGO Indiana Jones: The Original Adventures – аркадная приключ�
 ```bash
 magnet:?xt=urn:btih:AF26CAD63D2E4F108F3224623A3B05AD7DE0C376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Game of Thrones: A Telltale Games Series - это игра состоящая и
 magnet:?xt=urn:btih:0F69F43AA9BFC863787CE85D0CA2006A01CD65C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Arise: A Simple Story (2019) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:6698B2654DC09A308E48C9DDFC8B7B23828EAF85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

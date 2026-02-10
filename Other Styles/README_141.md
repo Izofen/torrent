@@ -22,6 +22,8 @@ Rupert Gregson-Williams - Hacksaw Ridge / По соображениям сове
 magnet:?xt=urn:btih:546D0AD7B232BF85D77BF682CA8F9DEC572F56EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Benjamin Wallfisch - Bitter Harvest / Урожай дьявола (Original Moti
 ```bash
 magnet:?xt=urn:btih:54071F9EC1A3D68F0285239369D663A9BE0694D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:54071F9EC1A3D68F0285239369D663A9BE0694D1
 magnet:?xt=urn:btih:29B93FCD8BBDCED06B48BD07D2BA89A201D79876
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Lele Marchitelli, VA - The Young Pope / Молодой Папа (Original Soundt
 ```bash
 magnet:?xt=urn:btih:1B4BAC570095984EA6DA9DE30A5EEDDA6F944EB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Brad Fiedel - Terminator 2: Judgment Day / Терминатор 2 Судный �
 magnet:?xt=urn:btih:DE23A795F013FD854A89C5998CDDFACB105042B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Brad Fiedel - Terminator 2: Judgment Day / Терминатор 2 Судный �
 ```bash
 magnet:?xt=urn:btih:599F7DA1C0FE4B50D09778150BF6ED5C8285500E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Alain Johannes - Tom Clancy's Ghost Recon Wildlands (Original Game Soundtrack) (
 magnet:?xt=urn:btih:FB40C1AF89EF560FC9072B84A1BA72631F28F15B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Kong: Skull Island / Конг: Остров черепа (Unofficial Soundt
 ```bash
 magnet:?xt=urn:btih:E36BBEDDCB291A1E6208848EDB4E2C9FB48178E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music
 magnet:?xt=urn:btih:28F9D3FB3C4F89AF53ECFAC62E50A92AB33754D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Clinton Shorter - The Expanse / Пространство - Season One (Original 
 ```bash
 magnet:?xt=urn:btih:F0D34BC278818AABA31C62F21E7D9C621222A4A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music
 magnet:?xt=urn:btih:FBA47AB3D833458B7F3FFB2421A8021A107A898E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Jeff Russo - Legion / Легион (Original Television Series Soundtrack) (2017
 ```bash
 magnet:?xt=urn:btih:F954D1F9F3B78163727397FED7865EB79D418399
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Acoustic Covers The Album (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instr
 magnet:?xt=urn:btih:5F7D03C102FFB15A9825D571B33FB6CBAA872AB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Lele Marchitelli, VA - The Young Pope / Молодой Папа (Original Soundt
 ```bash
 magnet:?xt=urn:btih:644964A2545F3E1E2B8008CC5274DF58AFB5D634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Alain Johannes - Tom Clancy's Ghost Recon Wildlands (Original Game Soundtrack) (
 magnet:?xt=urn:btih:79558798C0DCE81A957B9DB8B8E6BE7C00FC698E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Jon Ekstrand - Life / Живое (Original Motion Picture Soundtrack) (2017) [FL
 ```bash
 magnet:?xt=urn:btih:D531DFADDD45C76B22083D6713496A2E34820E6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Jeff Russo - Legion / Легион (Original Television Series Soundtrack) (2017
 magnet:?xt=urn:btih:6A3DAB581C31C4FA1B1F9615EE2E45A7BCFB2EAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Brian Tyler - Power Rangers / Могучие ренджеры (Original Motion P
 ```bash
 magnet:?xt=urn:btih:DB33A94814C5E4C37EB3D9875E028207CC010328
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Brian Tyler - Power Rangers / Могучие ренджеры (Original Motion P
 magnet:?xt=urn:btih:2F9C04A6A67540C02A61C065B022397D055E72F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Jon Ekstrand - Life / Живое (Original Motion Picture Soundtrack) (2017) [MP
 ```bash
 magnet:?xt=urn:btih:06EF799BF014E585A3D082AA330808AC16A24108
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Benjamin Wallfisch - Bitter Harvest / Урожай дьявола (Original Moti
 magnet:?xt=urn:btih:8B8FF6C9F3E9B9D748B2E0AD0DE8A3F3BAF5807E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +629,8 @@ Tim Wheater - Whalesong (1991) [FLAC|Lossless|tracks + .cue] <New Age>
 ```bash
 magnet:?xt=urn:btih:264CC15CE788209F41A7CAD5137AEDD54FB47EEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +659,8 @@ Leo Rojas - Spirit Of The Hawk (2012) [FLAC|Lossless|tracks + .cue] <Panflute, N
 magnet:?xt=urn:btih:47A418357F65C8206D9E1D5457ADA5D89474D373
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +687,8 @@ Sasha Merkulov - Absolutely Free Album (2017) [FLAC|Lossless|WEB-DL|tracks] <Amb
 ```bash
 magnet:?xt=urn:btih:B541FD1F308343275FE907325489D01ADCE1E311
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,6 +717,8 @@ Rupert Gregson-Williams - Hacksaw Ridge / По соображениям сове
 magnet:?xt=urn:btih:EB674F0985B71B19B2F3A7027149CC0311D92274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ Timothy Wenzel - Distant Horseman (2016) [FLAC|Lossless|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:BF20CA73360F5BEA378156984F1DAFEA5AFF8467
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

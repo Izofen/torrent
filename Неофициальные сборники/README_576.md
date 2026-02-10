@@ -1,3 +1,38 @@
+###  Публикация: 643226   (873860) от 14.04.2013
+
+VA - Delicate Lounge (2013) [MP3|320 кб/с]<Lounge, Lo-Fi, Downtempo>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_873860.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Reunited - Sun Is Shining (7:28)
+2. Cafe Royale - Atlantic Highway (3:56)
+3. Zelonka - Impossible Dream (4:28)
+4. Ambray - The Light (4:28)
+5. Christophe Goze - Dream (5:41)
+6. Pure Sound Destiny - Silk Words (4:15)
+7. Sakai Asuka Feat. Ely Bruna - Fashion (4:19)
+8. Playgarden Feat. Anne K - Driving In Your Car (3:53)
+9. Shakrag - Rainy Days In Shanghai (5:04)
+10. Sol Y Luna Aventura - Verano De Lluvia (3:39)Жанр: Lounge, Lo-Fi, DowntempoПродолжительность: 08:30:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF630EFBDDEDC93FDCF318AA3AF8E1B3EE244137
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997529   (873902) от 17.03.2016
 
 VA - Tropical Nectar: Original Dance Mix (2016) [MP3|320 кб/с] <Club, Dance, House, Electro>
@@ -21,6 +56,8 @@ VA - Tropical Nectar: Original Dance Mix (2016) [MP3|320 кб/с] <Club, Dance, 
 ```bash
 magnet:?xt=urn:btih:8BB0436CB4A5C5B77E72BAEF1565941BC1B5EF98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +86,8 @@ magnet:?xt=urn:btih:8BB0436CB4A5C5B77E72BAEF1565941BC1B5EF98
 magnet:?xt=urn:btih:7A33273847F89D49B3F00DF6BB484F97F7FB147B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +115,8 @@ VA - Supersensible: Uplifting Progressive Trance (2016) [MP3|320 кб/с] <Tranc
 magnet:?xt=urn:btih:B9D93D8E1A7237C2696C1D91BD9388F70563EA3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +143,8 @@ magnet:?xt=urn:btih:B9D93D8E1A7237C2696C1D91BD9388F70563EA3A
 ```bash
 magnet:?xt=urn:btih:74FAC8F90C62BB460349D44092D7FB14B45A61DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +179,8 @@ VA - Club Dubstep Vol №3200 (2013) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:A02947EA5C6EE633F393D91A19E087190CD658CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +207,8 @@ VA - Русский Рок ревью 2020 [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:33DF4EDEBCBA5494A7B0060FA412E7E7B2769A05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +237,8 @@ Ana Popovic - 100% Ana Popovic (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:B467AB66338C9ADFE8BD6F8FBB322C50812B7C69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +265,8 @@ VA - Ремейки и каверы NNM 2 (2021) [MP3|320 Kbps] <Pop, Dance, Oth
 ```bash
 magnet:?xt=urn:btih:D10E5B40566250F0FFAC1933AE0A41C3A5D93B5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +295,8 @@ VA - Monday Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:BEF128BAF32A7707266521368970081651A8383C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +323,8 @@ VA - Acoustic Rock vol.1 (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:291E6E5540B3997130829D391DEF216BB747F269
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +353,8 @@ VA - Beatport Synthwave: Electro Sound Pack #52 (2020) [MP3|320 Kbps] <Synthwave
 magnet:?xt=urn:btih:F8049E0ED265C4A8BED19CCB2F5F18387774E54C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +381,8 @@ VA - Beatport Deep House: Electro Sound Pack #49 (2020) [MP3|320 Kbps] <Deep Hou
 ```bash
 magnet:?xt=urn:btih:4848E77F479026F8570CCC538AE9BF320CC9D19B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +411,8 @@ VA - City Life: Tech House Electro Sound (2020) [MP3|320 Kbps] <Tech, Deep House
 magnet:?xt=urn:btih:D97D2358A93948EB78139D988DEEE07978E85CC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +439,8 @@ VA - Music News vol.132 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ```bash
 magnet:?xt=urn:btih:FD14227C242E1D2CD1F9765657D911FAED3FB717
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +469,8 @@ VA -   Kontor Summer Jam (2021) [MP3|320 Kbps] <Dance, Disco, House, Trance>
 magnet:?xt=urn:btih:58CB0A8D37246431123161958C5FCF9C958E1EAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +497,8 @@ VA - Perception: Indie Pop-Rock Compilation (2020) [MP3|320 Kbps] <Indie, Pop-Ro
 ```bash
 magnet:?xt=urn:btih:DDF686C978ECADC576736BB637837E27F95399D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +527,8 @@ magnet:?xt=urn:btih:DDF686C978ECADC576736BB637837E27F95399D3
 magnet:?xt=urn:btih:1E1FFB874655E91B78ABE088F0C0653AAB401C90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +556,8 @@ VA - Workout Mix vol.7 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Electr
 magnet:?xt=urn:btih:D74591F0B284F5CA9E993ACD82AC7945C8AEA96E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +581,8 @@ VA - Just Spin (2017) [MP3|320 Kbps] <Pop, RnB, Dance, Alternative>
 ```bash
 magnet:?xt=urn:btih:5780C18D6E74E03807BAABB21633482A346990AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +611,8 @@ magnet:?xt=urn:btih:5780C18D6E74E03807BAABB21633482A346990AD
 magnet:?xt=urn:btih:460B871931797B448A335348E1291129A7E6F63D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +639,8 @@ VA - Deep House Best Of March (2016) [MP3|320 кб/с] <Deep House, House, Elect
 ```bash
 magnet:?xt=urn:btih:BC9C46E5F03BDDA1E9ABDFFB41F674B9D55EA32A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +669,8 @@ VA - Топ в тачку №2 (2016) [MP3|256 кб/с] <Pop>
 magnet:?xt=urn:btih:07868184C49D2E654DA19C05491D9CF154608C9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +697,8 @@ VA - Sentimental Dialoguel: Rock Blues Classic (2016) [MP3|320 кб/с] <Blues, 
 ```bash
 magnet:?xt=urn:btih:1795BDFD860B5FD2DAABB85649C36B4D045F5F08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +727,8 @@ VA - Популярный музон хорошего настроения (2016
 magnet:?xt=urn:btih:459DE619F9F79976956BA51C2E9744EA349EFEC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,32 +756,7 @@ VA - Nashville Indie Spotlight (2015) [MP3|192 кб/с] <Indie>
 magnet:?xt=urn:btih:58976F44DD6ED2DF76A0DA13311847822DC2237A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997328   (875604) от 16.03.2016
-
-Саша Белостоцкий - Записи 60-70г (1960-1970 г) [MP3|64-128 кб/с] <Shanson>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_875604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вышла доярка
-02. Мы сидели с тобою у яра
-03. Твои глаза зеленые
-04. А на деревне нет хороших малых(   Читать дальше...   )Жанр: ShansonПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:014EB4BDE5322A1A80F028A95BBD88E01AC01AFF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

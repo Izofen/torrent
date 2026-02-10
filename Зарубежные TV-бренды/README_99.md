@@ -19,6 +19,8 @@ NGW: Спасение слонёнка / Baby Elephant Rescue (2018) HDTV [H.264
 magnet:?xt=urn:btih:116C0F6DF5925CC5224A15710C551DCBC61E4A95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG: Тайны корабля-сокровищницы династии Тан /
 ```bash
 magnet:?xt=urn:btih:6AE6B45F6E3E2741DB61661E8781F1A87A90E363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG: Инстинкт выживания / Primal Survivor (2015) SATRip (Сез�
 magnet:?xt=urn:btih:EF3A5A7337D98C37C9C5C9D3B1C7E8996020FCE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG: Инстинкт выживания / Primal Survivor (2017) WEBRip (Сез�
 ```bash
 magnet:?xt=urn:btih:ACA3EAD6DD13B4AEEBC96619178F24E6658B0A92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NG: Инстинкт выживания. Моря-убийцы / Primal survivor
 magnet:?xt=urn:btih:53C28E2CCFED2BCA00A3FB1A9D82B1C5056D8F12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Discovery. Секреты подземелья / Secrets of the Underground (201
 ```bash
 magnet:?xt=urn:btih:003C4BCBB5B32172BC1FC8C7BC5ECE0050493668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:003C4BCBB5B32172BC1FC8C7BC5ECE0050493668
 magnet:?xt=urn:btih:3FBBFBB5EC1CEF0DD9445A085472801C9D627C2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Discovery: Курс выживания с Беаром Гриллсом / Bear G
 ```bash
 magnet:?xt=urn:btih:6562D9CD972B45250D388AAF34EFC1BB9DF9479F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ BBC: Венера без прикрас / Venus Uncovered: Ancient Goddess of Lo
 magnet:?xt=urn:btih:D72EF6A1F7472CEB72371959AE71844BE86D6440
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Discovery. Ледяное золото / Ice Cold Gold (2014) HDTVRip [H.264/108
 ```bash
 magnet:?xt=urn:btih:C4B925211BDAE463F92B3E696D105DF04C122358
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Nat Geo Wild: Фантастические существа Мадагаскар
 magnet:?xt=urn:btih:6A95141DA50B5BBDEA0465D6E78FB858A5663A21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ BBC. Сокровища Инда / Treasures of the Indus (2014) HDTV  [H.264/10
 magnet:?xt=urn:btih:C7F6A07CC962962C6E922369776D0E48F3C46A38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ NGW: Год диких животных: Сибирь / Siberia's wild year (201
 ```bash
 magnet:?xt=urn:btih:E1FA045C2CDDCEB0C9782F24C72050A644C4C145
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ NGW: Потерянные акулы острова Пасхи / Lost sharks of 
 magnet:?xt=urn:btih:91013222C0A9BD9385B8CDA2387BEC780BBF9FD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ NGW: Ужас тигровой акулы / Tiger shark terror (2017) HDTVRip
 ```bash
 magnet:?xt=urn:btih:0FC72BC48B91CE6C9DA877979814C0358B719EFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:0FC72BC48B91CE6C9DA877979814C0358B719EFF
 magnet:?xt=urn:btih:44C553BB75075E9A76547FF10E18573BD46FC81A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ NGW: Пингвинопалуза / Penguin palooza (2017) HDTVRip
 ```bash
 magnet:?xt=urn:btih:9F7173C0DB7D47EFD2548BA6FFC4F5EA0BBBA033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ NGW: Чудо-гепард / The miracle cheetah (2017) HDTV [H.264/1080i-LQ]
 magnet:?xt=urn:btih:B068B6A12377BA0E99ADB44B9D15D007E1C88C79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ NGW: Самый знаменитый в мире тигр / The world's most fam
 ```bash
 magnet:?xt=urn:btih:94F516B290450C2AFB55E1BDEA847754A1888093
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ NGW: Человек среди гепардов / Man among cheetahs (2017) HDTV
 magnet:?xt=urn:btih:39FE441D3BEBD510F4AAA6F94F9518295EBC2CA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ NGW: Дикая природа Китая / China's wild side (2017) WEB-DLRip [
 ```bash
 magnet:?xt=urn:btih:7F9EC25293BD0731E19D78411764C334CE27C706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ NG: Самурайский лук / Samurai Bow (2009) HDTVRip [H.264/720p-LQ]
 magnet:?xt=urn:btih:08E7397143E96BB7B4A7435EECEAFE9EB0B486AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ History Channel: Убийца Зодиак: дело закрыто? / The Hunt 
 ```bash
 magnet:?xt=urn:btih:2EA05D24BDE78689FCFDB49FE8640A19CA3FAB70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ magnet:?xt=urn:btih:2EA05D24BDE78689FCFDB49FE8640A19CA3FAB70
 magnet:?xt=urn:btih:776345BBD60079EFCBBFD89BCD8D45E8D52EED80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ BBC: Как найти любовь по интернету / How to Find Love O
 magnet:?xt=urn:btih:654ABD4B0A176B11B3430FAF5617D2B475314059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ History Channel: Китай. Тайны Запретного города / Secr
 ```bash
 magnet:?xt=urn:btih:ECE2890A899F08B1A03156710E0D5B5CD133490F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

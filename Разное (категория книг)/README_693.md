@@ -1,3 +1,29 @@
+###  Публикация: 1090347   (947229) от 06.01.2017
+
+Евгений Медреш | Между прочерками: фантазии в манере Гештальта (2015) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947229.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Вторая книга известного мастера психотерапии, посвященная действительно важнейшему для человека искусству – искусству быть живым. Искусству встречаться и расставаться, работать, путешествовать, создавать и прислушиваться, побеждать и сдаваться, не чувствуя себя при этом ни жертвой жизни, ни ее начальником. Друзья и ученики автора настоятельно рекомендуют (   Читать дальше...   )Жанр: Психология. СамоменеджментФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:086DAFC258D77AF8BFBDDA00BF3CBA65DFE6C6C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090475   (947428) от 06.01.2017
 
 Питер Крифт | Трактаты. Небеса, по которым мы так тоскуем. Три толкования жизни (2013) [PDF, DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:AF751444DEC48A3C81DC829D05C3BD3CE9428924
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:AF751444DEC48A3C81DC829D05C3BD3CE9428924
 magnet:?xt=urn:btih:4784DBFA3EA39B5A9E782FDC544039A076083C52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:4784DBFA3EA39B5A9E782FDC544039A076083C52
 ```bash
 magnet:?xt=urn:btih:634B4BCC9655EA6AC7A1BDCE4CF8438012D23B0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:634B4BCC9655EA6AC7A1BDCE4CF8438012D23B0C
 magnet:?xt=urn:btih:1C2FE525B19A19AFC43D19E265A8526AECC1721A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:1C2FE525B19A19AFC43D19E265A8526AECC1721A
 ```bash
 magnet:?xt=urn:btih:9DAAC409A115DB2749B667998E8B24CD64479F22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:9DAAC409A115DB2749B667998E8B24CD64479F22
 magnet:?xt=urn:btih:1EB600E0BBCEAA906F3F2BCCD5CE6C4033BC3E6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:1EB600E0BBCEAA906F3F2BCCD5CE6C4033BC3E6B
 ```bash
 magnet:?xt=urn:btih:BD71B2E1483AE311FC20B58A8234B99056777445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:BD71B2E1483AE311FC20B58A8234B99056777445
 magnet:?xt=urn:btih:BA087CA4C78AD0B0FBB603B980695A26D5E8430E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:BA087CA4C78AD0B0FBB603B980695A26D5E8430E
 ```bash
 magnet:?xt=urn:btih:3B6C53651574472B91AF1CEC967D14386A7B61EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:3B6C53651574472B91AF1CEC967D14386A7B61EB
 magnet:?xt=urn:btih:C5598F7243EEEC32E757ED71E4A9C0658612FD3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:C5598F7243EEEC32E757ED71E4A9C0658612FD3B
 magnet:?xt=urn:btih:80E2BDB240CA1BDFD88636098DB71E0835839911
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:80E2BDB240CA1BDFD88636098DB71E0835839911
 ```bash
 magnet:?xt=urn:btih:12A9621476F47107395DBACC3F20C0511BC1DE41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:12A9621476F47107395DBACC3F20C0511BC1DE41
 magnet:?xt=urn:btih:B1C2A8E187EBA52BDE5FD0BAF246ADB246070637
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:B1C2A8E187EBA52BDE5FD0BAF246ADB246070637
 ```bash
 magnet:?xt=urn:btih:497B11CAFFE1E7BD2A95CD48AD61462CA8DC1D77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:497B11CAFFE1E7BD2A95CD48AD61462CA8DC1D77
 magnet:?xt=urn:btih:67B86A359EF0AC2E11E74B2D70CEE7566C40C74C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:67B86A359EF0AC2E11E74B2D70CEE7566C40C74C
 ```bash
 magnet:?xt=urn:btih:FBE390E2AD6D27983E0AB1564E0BF93503FA1F74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:FBE390E2AD6D27983E0AB1564E0BF93503FA1F74
 magnet:?xt=urn:btih:A07D8DC443134124FC44DD705DC417C3E02C8324
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:A07D8DC443134124FC44DD705DC417C3E02C8324
 ```bash
 magnet:?xt=urn:btih:31294C3BC0EAA54A4D310768AE90B8E6248E5A81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:31294C3BC0EAA54A4D310768AE90B8E6248E5A81
 magnet:?xt=urn:btih:B79C56055732B5E49922D4A9880122F0A26D3227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:B79C56055732B5E49922D4A9880122F0A26D3227
 magnet:?xt=urn:btih:53850CEB878E8E1E1CD6C57F7D8AC324B2A4ACF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:53850CEB878E8E1E1CD6C57F7D8AC324B2A4ACF9
 magnet:?xt=urn:btih:DA46FED6A424451F2F71C43552269973138DFA5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:DA46FED6A424451F2F71C43552269973138DFA5D
 ```bash
 magnet:?xt=urn:btih:1C5207BD1BE43D5691E9131E34A03BD461E6753A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:1C5207BD1BE43D5691E9131E34A03BD461E6753A
 magnet:?xt=urn:btih:4DEE5E476E9237B8EA1D76314A9BF28E2B9EF177
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +660,8 @@ magnet:?xt=urn:btih:4DEE5E476E9237B8EA1D76314A9BF28E2B9EF177
 magnet:?xt=urn:btih:48E31880D270B375E1D2CEC9A7175D5673FC8968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,29 +686,7 @@ magnet:?xt=urn:btih:48E31880D270B375E1D2CEC9A7175D5673FC8968
 magnet:?xt=urn:btih:F3E8274FA0D86745238645E7E8C6053D8843C6A7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982362   (948277) от 03.02.2016
-
-Руслан Исаев | Лечение алкоголизма. Руководство к трезвости (2015) [FB2, RTF]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга известного врача-нарколога Руслана Николаевича Исаева предназначена для всех, кому небезразлична судьба пьющего близкого человека. Прочитав книгу, вы разработаете четкий план, будете знать каждый свой последующий шаг, избежите "подводных камней" и в конечном итоге поможете своему близкому обрести трезвую жизнь.Жанр: Популярная и нетрадиционная медицина. АлкоголизмФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:622ECF097947F13134761A5FCD6EAA22B1991AC9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ A4. Life In A Dangerous Time (4:33)(   Читать дальше...   )Прои�
 magnet:?xt=urn:btih:E4F2DF981A73F72A2F0EC219A70B65D12AE6CB1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Side A:
 magnet:?xt=urn:btih:961134FFE7F4A0D7C3B9758766A179722CC0CDBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Das Duell Und Der Tod Tybalts (Romeo Beschliet, Mercutios Tod Zu Rachen) - Final
 ```bash
 magnet:?xt=urn:btih:BE5A6FB86C5870DDFD5B8BD06CA43BF65D2AC474
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +110,8 @@ Incubus — американская альтернативная рок-гру�
 magnet:?xt=urn:btih:498D7C5238B757291021C5700507A34100F0873D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +138,8 @@ Mustasch — шведская рок-группа. Сформирована ос
 ```bash
 magnet:?xt=urn:btih:F2A572D12A122F07EDC0FB74286296C4D97E3F38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +168,8 @@ Side A:
 magnet:?xt=urn:btih:F9DC71C62A866B850A365E729AE0EBCDF881E4F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +196,8 @@ A4	You Have Lived(   Читать дальше...   )Жанр: PopПродолж
 ```bash
 magnet:?xt=urn:btih:D5A77064A5F4D73D15E37FC4A86E203D5B5C9E2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +226,8 @@ A4 You Gave Me The Answer(   Читать дальше...   )Жанр: Pop Rock�
 magnet:?xt=urn:btih:45BDF5DC1E86CB1F425135296872F490FA1598BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +254,8 @@ A4 В. Дьяконов - День, В Котором Жил Я(   Читать 
 ```bash
 magnet:?xt=urn:btih:76DB32256656BCB23CFB5E9AEC011DFAAE0C1A84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +284,8 @@ A4 Journey To The Centre Of The World = Reise Zum Mittelpunkt Der Erde(   Чит
 magnet:?xt=urn:btih:0C268CC30659A4323C4A5E5CB29BE7CE444C5829
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +312,8 @@ A4 Белые Крылья(   Читать дальше...   )Жанр: PopПр�
 ```bash
 magnet:?xt=urn:btih:A0B005C39F9CA7D9D58D742A9593ABB00646151C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +342,8 @@ London Orion Orchestra, Alice Cooper, Dave Fowler, Stephen McElroy, Rick Wakeman
 magnet:?xt=urn:btih:44C36F5027E60A7D92C1496463386A75395E7B5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +370,8 @@ Additional Material (EP) (2016)Жанр: Art RockПродолжительнос�
 ```bash
 magnet:?xt=urn:btih:A2E64ACFFC0C28BED4A082D7AE7F507D8C2E85A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +400,8 @@ A4. Magic (4:09)(   Читать дальше...   )Производство: Po
 magnet:?xt=urn:btih:2A1D7CEE68453C8F35F1F24CF03080D1DAEF669E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ Audrey Hepburn, Rex Harrison - My Fair Lady (The Original Sound Track Recording)
 ```bash
 magnet:?xt=urn:btih:87CB27A7C81D69A4BC7AADFDC0284D0A3CF12253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +458,8 @@ Children of Bodom — финская англоязычная группа из 
 magnet:?xt=urn:btih:187216DAFA8327AEF0CB682A3E84BD586894F08B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +487,8 @@ Pink Floyd - Wish You Were Here (2016) 1975 [DSD2.0|5,64MHz/1bit|tracks|Vinyl-Ri
 magnet:?xt=urn:btih:4ACA3DF70C50ECF5949B642CB3C139DAE637F1F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +515,8 @@ VA - Антология советского киношлягера - Любим
 ```bash
 magnet:?xt=urn:btih:FED43C6456353DABE26831DCE11BD04540C1EEB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +548,8 @@ Rattle That Lock («Греми замкОм») — четвёртый сольн
 magnet:?xt=urn:btih:0AC1920B556EC91436F70CF88776260920C8C67D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +576,8 @@ A3	По Посаду Городскому(   Читать дальше...   )Ж�
 ```bash
 magnet:?xt=urn:btih:97447F37DE88FBBF02D0A9F8F29E248D5C3EE8DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +606,8 @@ Marilyn Manson - The Pale Emperor (2015) Deluxe Edition [FLAC 2.0 24/96|traсks(
 magnet:?xt=urn:btih:DA99CAB69897FAB4510C74E7EB34D623F0042E0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +634,8 @@ magnet:?xt=urn:btih:DA99CAB69897FAB4510C74E7EB34D623F0042E0D
 ```bash
 magnet:?xt=urn:btih:1D66340AFB8ECE3EEBBF8E2625F9AF15A40949EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +664,8 @@ Enigma Club - Амазония (2002) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Worl
 magnet:?xt=urn:btih:E3EB5B761C0D0747A2090124554332430BB0AFEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +692,8 @@ magnet:?xt=urn:btih:E3EB5B761C0D0747A2090124554332430BB0AFEE
 ```bash
 magnet:?xt=urn:btih:C790170D765C41EFDF499BE435AB0C27DB8B2FFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -674,6 +722,8 @@ Sixx:A.M. — американская супергруппа, основанн�
 magnet:?xt=urn:btih:0666DEDB59D17C5D16E425DC31F60F687E27FE00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,6 +750,8 @@ B1. Landscape (6:02)(   Читать дальше...   )Жанр: Dream-House, T
 ```bash
 magnet:?xt=urn:btih:1DBD0D6AA936BE7A0F696B2D053D0E19717B53D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

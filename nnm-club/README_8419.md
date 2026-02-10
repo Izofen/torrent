@@ -28,6 +28,8 @@ S'n'D - Место для свалки(2010)[MP3|320kbps]<Punk>
 magnet:?xt=urn:btih:ECB1EAA231D99F7A54A74DBD0C3AE211E46694AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -56,6 +58,8 @@ magnet:?xt=urn:btih:ECB1EAA231D99F7A54A74DBD0C3AE211E46694AF
 ```bash
 magnet:?xt=urn:btih:9BDA045BBF00CB2602ECCB9C0C9E9A7363F82B78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -90,6 +94,8 @@ VA - Танцевальный клубный поп хит vol.7 (2012) [MP3|256
 magnet:?xt=urn:btih:2F43EF5DA448C76A7C9F3E4F04FB88BA6B54CEA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +128,8 @@ Disc 01
 ```bash
 magnet:?xt=urn:btih:3EDC8F2AB585C9835533B216047C00B9006ECC61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +164,8 @@ Midnight Serenaders - Hot Lovin' (2011) [FLAC|Lossless]<Swing, Retro Swing, Big 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -185,6 +195,8 @@ Midnight Serenaders - Hot Lovin' (2011) [FLAC|Lossless]<Swing, Retro Swing, Big 
 ```bash
 magnet:?xt=urn:btih:418E6517D3308E8F9D57E2E76F02ED7890A7CB03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +231,8 @@ magnet:?xt=urn:btih:418E6517D3308E8F9D57E2E76F02ED7890A7CB03
 magnet:?xt=urn:btih:F1410C8EA110B60A95A9FB1E7AEF26608BC75FF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +257,8 @@ magnet:?xt=urn:btih:F1410C8EA110B60A95A9FB1E7AEF26608BC75FF2
 magnet:?xt=urn:btih:2DB5C3845D4E10498B9817605A6573B302338F1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +282,8 @@ magnet:?xt=urn:btih:2DB5C3845D4E10498B9817605A6573B302338F1F
 ```bash
 magnet:?xt=urn:btih:94E528F5124DE95B3B4757F0C944394E42A03A88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +318,8 @@ Interpreta a Manuel de Falla (1978)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +345,8 @@ The story of John Goodnight continues.
 ```bash
 magnet:?xt=urn:btih:4D75E6FBFEF06CAC67DE450B36EB6D3B40C6A766
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +381,8 @@ Molly Hatchet - Regrinding The Axes (2012) [MP3|224 кб/с]<Hard Rock/Southern 
 magnet:?xt=urn:btih:B499315F2C2A85F0A56A1E9682FA485873E0C468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +415,8 @@ VA - XXXL Зарубежный Топ Сезона (2012) [MP3|320 кб/с]<Pop,
 ```bash
 magnet:?xt=urn:btih:F1748D5CB20B73291D363E9A6088ABD26BF18EF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +451,8 @@ Bemibek - Dziennik Mej Podrozy (1993) [FLAC|Lossless]<Vocal Jazz, Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +485,8 @@ DIO - Back Alive (2008) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:35323031E3F51C216B037FCDA504027E13671764
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +521,8 @@ VA - Реальный Блатняк часть 2 (2012) [MP3|256 кб/с]<Ша�
 magnet:?xt=urn:btih:38B3DC78F27B802A75C1DFAA3068007DF9ACC755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +546,8 @@ magnet:?xt=urn:btih:38B3DC78F27B802A75C1DFAA3068007DF9ACC755
 ```bash
 magnet:?xt=urn:btih:66004B1D1DF602C9999D37B1BDDF7F12764964D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +574,8 @@ NFOPad - небольшой, быстрый и удобный текстовый
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +610,8 @@ VA - Stone Cold Queen - A Tribute To Queen (2001) [WavPack|Lossless]<Rock, Hard 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +645,8 @@ Earl Hines - Earl Hines and His Orchestra (1937-1939) (1990) [FLAC|Lossless]<Big
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +670,8 @@ Earl Hines - Earl Hines and His Orchestra (1937-1939) (1990) [FLAC|Lossless]<Big
 ```bash
 magnet:?xt=urn:btih:1853DB200011FA0AF80C302691388C03FDDDCFE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +700,8 @@ magnet:?xt=urn:btih:1853DB200011FA0AF80C302691388C03FDDDCFE9
 magnet:?xt=urn:btih:DBBFB4BD3967E6016FEA20BD50D75C029C96904F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,6 +726,8 @@ Lionel Richie feat. Shania Twain. Endless Love (2012) [H.264/1080p] HDTVRip
 magnet:?xt=urn:btih:16909E6F2AC5C125F649AB4C663A31B02429729D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -705,6 +751,8 @@ magnet:?xt=urn:btih:16909E6F2AC5C125F649AB4C663A31B02429729D
 ```bash
 magnet:?xt=urn:btih:DFB26EF1274C93D604CD71320C5B081C281041CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -739,6 +787,8 @@ Disc 1:
 magnet:?xt=urn:btih:03F8AB58A792F3B9216C27A1518DFC933088861B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -771,6 +821,8 @@ Slim Gaillard - Slim Gaillard (1939-1940) (1993) [FLAC|Lossless]<Vocal Jazz, Swi
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

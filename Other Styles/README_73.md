@@ -22,6 +22,8 @@ Matt English - Inspire Me (2018) [MP3|320 Kbps] <New Age, Piano>
 magnet:?xt=urn:btih:F0E843A632E4AB3FBF6F454B2A78DBFCE685FCD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Eguana - The Last Dragon (2016) [MP3|320 Kbps] <Ambient, Chillout, New age>
 magnet:?xt=urn:btih:CF8C466FBCD9AEDD0D40F883B7B97472942176AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Irene Kelley - These Hills (2016) [FLAC|Lossless|tracks] <Country, Bluegrass>
 ```bash
 magnet:?xt=urn:btih:385B02334D79B57FF80BB6E330CD8C4826AE41D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ Gipsy Kings - Greatest Hits (1994) /Japan/ [FLAC (tracks+cue)|Lossless]<Flamenco
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ Tyler Bates - Sucker Punch / Запрещенный прием (Complete Motion 
 ```bash
 magnet:?xt=urn:btih:18F70E2FF6A90705B3D0CCB51C24F62B32898846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ Snatam Kaur - Light Of The Naam. Morning Chants (2014) [MP3|320 кб/с]<New Age
 magnet:?xt=urn:btih:07B9E901DEE4F4C02E6FA0E31D014E0F1468F1B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +201,8 @@ Christopher Phillips - Piano Chill: Songs of the Eagles (2016) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:905EEABC3110A3A5E51347826F11B0E144EEB1F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ magnet:?xt=urn:btih:905EEABC3110A3A5E51347826F11B0E144EEB1F1
 magnet:?xt=urn:btih:A75BC3E69794625E5324AEB03F72679FF86303B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +259,8 @@ Evgeny Grinko - Evgeny Grinko (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental
 ```bash
 magnet:?xt=urn:btih:81D559BFFAB296EFE38205C72FEE8D161D5ED7AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ The Studio London Orchestra & Singers - Memory - 20 Love Themes (1985) [FLAC|Los
 magnet:?xt=urn:btih:D29F21CBC21CCFF5153BC32737E8FEDB7CD97DEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +317,8 @@ Dario Marianelli - Everest (Original Motion Picture Soundtrack) (2015) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:0529A82C2E2BC88C5060A436FAF6291655999752
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +347,8 @@ Michael Whalen - Kiss the Quiet (2018) [MP3|320 Kbps] <New Age, Piano, Instrumen
 magnet:?xt=urn:btih:B451CB3B100A5947FA4A5665E4A46336A377B628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +375,8 @@ Oliver Scheffner - Oasis of Dreams (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age
 ```bash
 magnet:?xt=urn:btih:93C87C985ECF857C1B410305BD6AA372A2C9934E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +405,8 @@ Traces - The Rivers Of Belief (2002) [APE|Lossless|image + .cue] <New Age, Enigm
 magnet:?xt=urn:btih:20D5502C23D95C6A2242D951901BFF27B130B8A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +433,8 @@ Blackmore's Night - All Our Yesterdays (2015) [FLAC|image+.cue]<Folk Rock, Rock,
 ```bash
 magnet:?xt=urn:btih:B503EE9DBD4FC02CA0B94883410B6285B91EEF69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +463,8 @@ Peter Kater - Love (2015) [MP3|320 кб/с]<New Age, Piano>
 magnet:?xt=urn:btih:D8EA8D163E62C6ACE98DA303424BCA361CAEC8AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +491,8 @@ VA - Baby Driver / Малыш на драйве (Music from the Motion Picture) 
 ```bash
 magnet:?xt=urn:btih:E68D2F3D4631B2F889D03FDD63BC0A59121922EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +521,8 @@ Jules Calmer - Deserted Paradise (2017) [MP3|320 Kbps] <Ambient, New Age, Downte
 magnet:?xt=urn:btih:98D8761851E7FA604B359AF787820C8E0C5BDF1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +549,8 @@ Oliver Scheffner - Ambient Dream Lounge (2016) [FLAC|Lossless|WEB-DL|tracks] <Ne
 ```bash
 magnet:?xt=urn:btih:A6D7D09D0F2796CC162C83B9B42583CE0AAF49DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +579,8 @@ Patrick Watson - The 9th Life of Louis Drax / Девятая жизнь Луи �
 magnet:?xt=urn:btih:6FE60D8B8667E179C3CB140251843D62501D80BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +604,8 @@ Joel Nielsen - Black Mesa Source Soundtrack (2012) [MP3|320 кб/с]<Score>
 ```bash
 magnet:?xt=urn:btih:D49FF2007F203724193D6D550894766B9E023C3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +640,8 @@ VA - 20 Золотых Уличных Мелодий (2000) [MP3|320 кб/с]<In
 magnet:?xt=urn:btih:43EAC2D256C4FA066B2468AC815F699A264A056F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +668,8 @@ Benjamin Richter - The Grand Momentum (2015) [FLAC|Lossless]<Piano, Instrumental
 ```bash
 magnet:?xt=urn:btih:342F4ED0E4E25EA8ECFBC95EA7E884FB7E660C56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +698,8 @@ Benjamin Richter - The Grand Momentum (2015) [MP3|320 кб/с]<Piano, Instrument
 magnet:?xt=urn:btih:442206A7433E977FB46DFEA59F03F08BCF770FA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,6 +723,8 @@ Cristina Branco - Коллекция, 9 альбомов (1998-2011) [MP3|320 kb
 ```bash
 magnet:?xt=urn:btih:BF31B84B8E500D60596901F9F58829072386B4AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -702,6 +752,8 @@ Tyler Bates & VA - Atomic Blonde / Взрывная блондинка (Original
 ```bash
 magnet:?xt=urn:btih:934B8BF86FA20B33CB2B315AC3B8827AE087FB14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

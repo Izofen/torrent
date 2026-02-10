@@ -19,6 +19,8 @@ World of Goo 2 (2024) [Ru/Multi] (13205W) Repack Let'sРlay
 magnet:?xt=urn:btih:91C70A133CDCAB676E04985991647B22A76B0E7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Vampire Survivors — казуальная игра в стиле готичес
 ```bash
 magnet:?xt=urn:btih:69C6DF5822A417D25EB7662B6C78F50C4748C5D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Guilty Gear Strive – новая глава знаменитой франшиз
 magnet:?xt=urn:btih:E9AC66D03F530A683487A6DF1724A069DBA1B9F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Section 13 (2023) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5EA5ACDA14926BDBA8C01FE6E469E70CBB3C8A35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Dragon Ball Xenoverse 2 – это приключенческий экшен в 
 magnet:?xt=urn:btih:D1C3E3FBACCDED995B012F9C321D0455C75F2733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Dragon Ball Xenoverse 2 (Драгон Болл Ксеаунтс 2) – это п
 ```bash
 magnet:?xt=urn:btih:2AE6DD72D5226C4610A457491B49B99DEDFBBFF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Another Crab's Treasure — это приключение в стиле Dark Sou
 magnet:?xt=urn:btih:D31ADE0408BA97FFC2B306BFE766DFA987E74374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Dustborn - дорожное приключение, вдохновленное �
 ```bash
 magnet:?xt=urn:btih:04FB666F12828B87753F6821CDB4C24705A0B717
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.6-74935/dlc) Repack Let's�
 magnet:?xt=urn:btih:22C0C08BBB95BBE55E0DC6BE9D42D2EA358EBEA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Ember Knights - динамичный роуглайт для 1–4 игроко�
 ```bash
 magnet:?xt=urn:btih:3672648CA2626332FC879BB16DCC4ACCFE379985
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Trailmakers — это игра о строительстве транспорт
 magnet:?xt=urn:btih:47058DCE6619FACD799CA75E8F6626BA91228EF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Dome Keeper сочетает в себе рогалик, экшен и симу�
 ```bash
 magnet:?xt=urn:btih:5787EA45F18A10F61474593FCB2AA9BE8220AEDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Double Dragon Gaiden: Rise Of The Dragons (2023) [Multi] (Build 18402244) Repack
 magnet:?xt=urn:btih:8D7AC6BC4944C7EBC3387F6B3CF063D64077D0C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Death Squared (2017) [En] (1.8.5) License GOG
 ```bash
 magnet:?xt=urn:btih:8A26E9CB5C85BDD5670473653961FD0C013B2BAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Tales of Kenzera: ZAU (2024) [Ru/Multi] (1.5.0.45551) Repack Let'sРlay
 magnet:?xt=urn:btih:371052D02EABB45C8536CA86A21BE57D01ADB692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Spyro Reignited Trilogy (2019) [Ru/En] (Build 3849171) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:5A33A6C683200B6A5FE323EA20BD8BB12DE1661D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Another Crab's Treasure - это увлекательное подводное �
 magnet:?xt=urn:btih:C55E9051801C8A5CDD171F92CB1A39885B9DA916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Mythical Concept STARNAUT (2024) [Multi] (4091) Repack FitGirl [DX Edition]
 ```bash
 magnet:?xt=urn:btih:AEF440C84AF06FF832D0358CC0A9AA74F8A7581C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Pure Bubble Hockey: Переживите классический аркадны
 magnet:?xt=urn:btih:E729011AB32BB37966BD8E40A7714DADD7FC2308
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Super Raft Boat Together погружает игроков в подводное
 ```bash
 magnet:?xt=urn:btih:455A6C944B0F31720E48533E198C52E8404FDF6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Badlands Crew передает геймеру контроль над боево
 magnet:?xt=urn:btih:3E0B38525B1EFECF4B6C827CB5BBC3DC4800591D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Space Grunts - смесь аркадного шутера и пошаговог�
 ```bash
 magnet:?xt=urn:btih:BA70078E236F10997EF77DFA635953B839D5A0D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Cannon Fodder - это смесь таких жанров, как стратег
 magnet:?xt=urn:btih:3081BEFF15C1EFF3B28A9C5235182E529A12850E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Space Grunts 2 - стратегическая игра, действие кот�
 ```bash
 magnet:?xt=urn:btih:DCBEF670BC2A125A2EFE529F63E7960BA7950FC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Cannon Fodder 2 (1994) [En] (1.01) License GOG
 magnet:?xt=urn:btih:0B39E3F79053D3A25817804312997505A3224DA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ magnet:?xt=urn:btih:0B39E3F79053D3A25817804312997505A3224DA6
 ```bash
 magnet:?xt=urn:btih:F412A20B53B3FD1CA85F326849A4F236D0344CB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

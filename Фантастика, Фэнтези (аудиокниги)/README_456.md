@@ -1,3 +1,29 @@
+###  Публикация: 1173029   (789698) от 29.01.2018
+
+Николай Побережник | Бремя выбора (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_789698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло немногим больше года, по новому летоисчислению и по новому времени после Волны. Пережившие планетарную катастрофу люди собираются в анклавы, республики, общины. На карты нанесены новые берега новых материков и островов, новые реки и заливы. Одни строят новую жизнь, другие, потеряв все, плывут по течению событий, третьи, сделав выводы из случившегося, стараются (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 11:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365F03C295BBB3F2E92F89F92EF181DFF54338F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275106   (789720) от 12.01.2019
 
 Константин Назимов | Рыскач. Артефакты истинных магов (2018) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7E05FB2D2A67643D36E062AE82E44AF2BAC0B3FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:7E05FB2D2A67643D36E062AE82E44AF2BAC0B3FE
 magnet:?xt=urn:btih:5E76080D59CC09DF46D66D00FC488A3E2FA06453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:5E76080D59CC09DF46D66D00FC488A3E2FA06453
 ```bash
 magnet:?xt=urn:btih:C1FE00AF74FAA55B7E8B09C9C2E1555F449D8479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:C1FE00AF74FAA55B7E8B09C9C2E1555F449D8479
 magnet:?xt=urn:btih:A4BCAB94E000ED058FB294AAF703F57F4D3FF7C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:A4BCAB94E000ED058FB294AAF703F57F4D3FF7C5
 ```bash
 magnet:?xt=urn:btih:FF40ADDA8F369AA799AC71BD4CD239BADC1CF04B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:FF40ADDA8F369AA799AC71BD4CD239BADC1CF04B
 magnet:?xt=urn:btih:A9893242C73F016EFFE0A858B63E3936DCC60A47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:A9893242C73F016EFFE0A858B63E3936DCC60A47
 magnet:?xt=urn:btih:593C452F18B223F4DC7A224A2A120633E2268F00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +226,8 @@ magnet:?xt=urn:btih:593C452F18B223F4DC7A224A2A120633E2268F00
 ```bash
 magnet:?xt=urn:btih:73317202E47B5FA4B33340826BDD79321CB29B89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:73317202E47B5FA4B33340826BDD79321CB29B89
 magnet:?xt=urn:btih:6F99481CFB5F342D87A9A8FF0356C5B228AAB031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:6F99481CFB5F342D87A9A8FF0356C5B228AAB031
 ```bash
 magnet:?xt=urn:btih:485E8B5913AC1B64FACD6C39BD1E04C714C71EC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:485E8B5913AC1B64FACD6C39BD1E04C714C71EC7
 magnet:?xt=urn:btih:D02A4BE650421A4B77D0E6A50526F73F556FE316
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:D02A4BE650421A4B77D0E6A50526F73F556FE316
 magnet:?xt=urn:btih:8BFBBD51C277BE8A000F0BB63E4C3C6EEB85B591
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:8BFBBD51C277BE8A000F0BB63E4C3C6EEB85B591
 ```bash
 magnet:?xt=urn:btih:3E66FA0FE748E9D3D6F273C2ED8A045EA71D869D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:3E66FA0FE748E9D3D6F273C2ED8A045EA71D869D
 magnet:?xt=urn:btih:63AE49A43CB100C863D261F170F9BBD40D0685DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:63AE49A43CB100C863D261F170F9BBD40D0685DE
 ```bash
 magnet:?xt=urn:btih:5B2C2B2E2667518618060C5C13866CEBA176331D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:5B2C2B2E2667518618060C5C13866CEBA176331D
 magnet:?xt=urn:btih:C127E4837D0C79B00251310C9DB5E89F8B5959DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:C127E4837D0C79B00251310C9DB5E89F8B5959DC
 ```bash
 magnet:?xt=urn:btih:B0B8A6469BC4F84CA7E2A5C8B498666185764D3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:B0B8A6469BC4F84CA7E2A5C8B498666185764D3F
 magnet:?xt=urn:btih:FE0180F83C15C82B7A9882F4F999E634E39BAD1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:FE0180F83C15C82B7A9882F4F999E634E39BAD1D
 magnet:?xt=urn:btih:BEC0F670EEA1C353BBF4B82862A169AABD46B085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:BEC0F670EEA1C353BBF4B82862A169AABD46B085
 ```bash
 magnet:?xt=urn:btih:62DBEB1CB126CFB03C8C2D08578999F6EDA6CCD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:62DBEB1CB126CFB03C8C2D08578999F6EDA6CCD6
 magnet:?xt=urn:btih:C093A47A17C256FF26DAE8987399E823FB5E93D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:C093A47A17C256FF26DAE8987399E823FB5E93D0
 magnet:?xt=urn:btih:757A650D33953752A66FD0DBF0F8E7DEE7AB0FB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:757A650D33953752A66FD0DBF0F8E7DEE7AB0FB0
 ```bash
 magnet:?xt=urn:btih:C17D6309B683DBF2C1532331B20847B65B69357D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:C17D6309B683DBF2C1532331B20847B65B69357D
 magnet:?xt=urn:btih:3D2F0C528D17A7CE34AC5163AECD7366506BD23C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:3D2F0C528D17A7CE34AC5163AECD7366506BD23C
 magnet:?xt=urn:btih:166C1B4DF593EE494EBE92EE6E7662FEC0288062
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510506   (790753) от 17.11.2021
-
-Джин Вулф | Пятая голова Цербера (2021) [MP3, Михаил Лукашов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_790753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Место действия – яркие колониальные миры Сен-Круа и Сент-Анн, планеты-близнецы, балансирующие на общей орбите. Сыновья содержателя борделя обсуждают геноцид и замышляют убийство; юного инопланетного странника преследует его двойник-тень; политический заключенный пытается подтвердить свою личность, и не в последнюю очередь – самому себе.Жанр: Научная фантастика, Социальная фантастикаПродолжительность: 10:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9985576C89CE2327502FC2CC5D28F0EDEE2834FE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

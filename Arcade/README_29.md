@@ -19,6 +19,8 @@ West of Loathing - это сумасшедший сон ковбоя-безум�
 magnet:?xt=urn:btih:187F8021FD7FEE409A7B6B5EAA99C39FB9B163E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Oddworld: Abe's Exoddus (1998) [En] (2.0) License GOG
 ```bash
 magnet:?xt=urn:btih:17A856B5B87EC4A909E97F99835B42511C3D445D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dream Pinball 3D / 3D Пинбол. Во власти азарта (2006) [En] (
 magnet:?xt=urn:btih:89CF89729076D6F4AAF2B86201EAA5CBF0381404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Ty the Tasmanian Tiger – 3-мерный платформер, похожий �
 ```bash
 magnet:?xt=urn:btih:F3935CF608B760E37F187B727455657FE1D91629
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Filthy Lucre — это изометрический стелс-экшен, со
 magnet:?xt=urn:btih:4FFEF4FE4FA4C2D6EE2219894CE4C39009679A9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ GUILTY GEAR Xrd -REVELATOR (2016) [En/Ja] (1.0.8767/dlc) License CODEX [Complete
 ```bash
 magnet:?xt=urn:btih:791EDD3FB4BB71514340A2CC0A1F170E47972DF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Oddworld: New 'n' Tasty (2015) [Ru/Multi] (1.3/dlc) License GOG
 magnet:?xt=urn:btih:08A61A4CA3896F1B5642C47588829FF9D4B6CB8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Chasm (2018) [En] (1.043) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3CB2DC075E81ADD9F36E6AE9C82DD763F9F0BEB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Mega Man 11 (2018) [Multi] (1.0.0.1/dlc) Repack Mizantrop1337
 magnet:?xt=urn:btih:7160550A916FC32B117D2E3E8D5FDD025ADC4571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Crossbow Warrior — легенда о Вильгельме Телле. Перс
 ```bash
 magnet:?xt=urn:btih:3846BE5F5302B02E2D9F6DAC12986D706E9C835E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Ball of Light — это атмосферное приключение, в ко�
 magnet:?xt=urn:btih:9DEE9D1E852EA53EC8B83A4BE62A1B7285653D34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Inside - это новая приключенческая хоррор игра 
 ```bash
 magnet:?xt=urn:btih:B39159DFA2571D85626C90F5160C3EE718DFA63C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Wanted Corp — это экшн с видом сверху, в котором в
 magnet:?xt=urn:btih:4E4547317247D31E6B3FE71C9140F315B5AA3E79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ EARTH'S DAWN (2016) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:C364A2F84C00A2E75197A02ED0D52BCD4F4B5A45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Zombie Vikings (2015) [Ru/Multi] (1.0) License CODEX [Ragnarök Edition]
 magnet:?xt=urn:btih:12A2E565A66B6EED978FBEB586795378C70BB04A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:12A2E565A66B6EED978FBEB586795378C70BB04A
 ```bash
 magnet:?xt=urn:btih:F1D7FFB8C4D4860C9DB322F06D79C8D7FFAB1A27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:F1D7FFB8C4D4860C9DB322F06D79C8D7FFAB1A27
 magnet:?xt=urn:btih:969BB0E6EF2424F65B6574ED94D821FE72B2B3BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Lara Croft GO – пошаговая головоломка, главной ге
 ```bash
 magnet:?xt=urn:btih:E995C19CFDAA626A2FF9224FD21C0CCCEE452958
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Lara Croft GO – пошаговая головоломка, главной ге
 magnet:?xt=urn:btih:002AA3D34319F22D19D376AC9B5B7886079471CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Hyperdimension Neptunia Re-Birth 2: Sisters Generation - Продолжение 
 ```bash
 magnet:?xt=urn:btih:FD28996F35A7CE4B72C450CDB57E603A55B887EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Injustice: Gods Among Us Самое полное издание от компа�
 magnet:?xt=urn:btih:5CD94189615F31D1A10042B69E11F0D05CECC842
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ GUTS (Gory Ultimate Tournament Show)(«Кровопролитное непрев
 ```bash
 magnet:?xt=urn:btih:034105EB9A7BCAF74DB4E0F4F111C6D9ACFE99BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Ben 10 (2017) [Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:811576A910E7FA82A81C4C4D738099C95829679B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Bullshot (2016) [Ru/Multi] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:CE240F83B8AAA0D5023A175DD9BB3E9A0FB133BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ LEGO Marvel Super Heroes 2 (2017) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:6C1302C26C5A6C9E5EB1F1EF43E7C7DD8EE39C09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Ukrainian Ninja (2014) [En/Uk] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:8165F6154DB68020D42DE9E90E025C5E9AA92D38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

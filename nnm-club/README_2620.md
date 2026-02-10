@@ -22,6 +22,8 @@ VA - Uplifting Only Top 15: March 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <T
 magnet:?xt=urn:btih:E530AE9D97C84F2E6A8D57DE20442465F788038E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:E530AE9D97C84F2E6A8D57DE20442465F788038E
 ```bash
 magnet:?xt=urn:btih:FB9F1C032EB51802A80B7056189C4D5FFD10C35A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Kenny Wayne Shepherd & Bobby Rush - Young Fashioned Ways (2025) [FLAC|Lossless|W
 magnet:?xt=urn:btih:AB72BD27459A5DD2B995460544200857D4545980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ VA - Trance Horizons, Vol. 2 (2025) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:B8CEA1466E2A4D3C2C775000D0865C784A7BF3BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ Pop Evil - What Remains (2025) [FLAC 24/48, 24/44.1|Lossless|WEB-DL|tracks] <Alt
 magnet:?xt=urn:btih:0DF962A3C8B14D1F061F18710F204FDE0B2EDE4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:0DF962A3C8B14D1F061F18710F204FDE0B2EDE4F
 ```bash
 magnet:?xt=urn:btih:B4ECC2C830C80669C2F9E9CC07A2EC50F3122168
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ Rustic Age — энергичный шрифт с влажными чернил�
 magnet:?xt=urn:btih:93D6FD4444C1D5F2D59614257CD58F061546FFB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ Nexa Rust от Fontfabric Type Foundry - это многогранная сис�
 magnet:?xt=urn:btih:D3BB22314F6DA724BB897FF79D53BE6D3C52856B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:D3BB22314F6DA724BB897FF79D53BE6D3C52856B
 ```bash
 magnet:?xt=urn:btih:ABCE65C51A5F6C149692ABC5B4B45492E828A7F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +277,8 @@ VA - Rewind - 29 Italo Disco Classics (1997) 2CD [FLAC|Lossless|tracks+.cue] <It
 magnet:?xt=urn:btih:A6E19193EE1B55BEB54B6AB905D709B206C7D5C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +302,8 @@ magnet:?xt=urn:btih:A6E19193EE1B55BEB54B6AB905D709B206C7D5C0
 ```bash
 magnet:?xt=urn:btih:9E23BB5D276702728283AC4926FC64BD70772AD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +329,8 @@ StaxRip - инструмент для кодирования видео "все-
 ```bash
 magnet:?xt=urn:btih:361857A9444EA5F66417E15E372EFF159024811E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +359,8 @@ VA - DJ Dance Rarities of the 80s (2016) [FLAC|Lossless|WEB-DL|tracks] <Eurodanc
 magnet:?xt=urn:btih:6F287C77B8CFFDBA86BA3F0DB924ABB928B1B52A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +384,8 @@ magnet:?xt=urn:btih:6F287C77B8CFFDBA86BA3F0DB924ABB928B1B52A
 ```bash
 magnet:?xt=urn:btih:0A9796341E81A39F0FDB2B2E0886DEBFDE8792B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:0A9796341E81A39F0FDB2B2E0886DEBFDE8792B4
 magnet:?xt=urn:btih:DC29BCDEFB25ADEC29C0E460010BCBCBA5874B12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:DC29BCDEFB25ADEC29C0E460010BCBCBA5874B12
 magnet:?xt=urn:btih:CA0AB4C1001B47FC877F8B68E474D22914C7CE52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:CA0AB4C1001B47FC877F8B68E474D22914C7CE52
 ```bash
 magnet:?xt=urn:btih:2E7AC6AC099E8E66052F297A05C89BE5385865E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ magnet:?xt=urn:btih:2E7AC6AC099E8E66052F297A05C89BE5385865E7
 magnet:?xt=urn:btih:EE51798AE1CE9F504808D68B508392DEA31F078A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:EE51798AE1CE9F504808D68B508392DEA31F078A
 ```bash
 magnet:?xt=urn:btih:ED7434B82C09D0E160D743A1295D7292442FC490
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:ED7434B82C09D0E160D743A1295D7292442FC490
 magnet:?xt=urn:btih:049F53E8E75382B98CE14C79DCF50B330CA98990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:049F53E8E75382B98CE14C79DCF50B330CA98990
 ```bash
 magnet:?xt=urn:btih:3F0F4D5E9C4ACEFAF481985CB1017AC312D3D05D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:3F0F4D5E9C4ACEFAF481985CB1017AC312D3D05D
 magnet:?xt=urn:btih:C3C599681B90C9FC0ED2DA09FDCC2123906ADCBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:C3C599681B90C9FC0ED2DA09FDCC2123906ADCBE
 magnet:?xt=urn:btih:462DBEBF7893987AC45DC76E299498BEDFA0D573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:462DBEBF7893987AC45DC76E299498BEDFA0D573
 ```bash
 magnet:?xt=urn:btih:4F044D8925DDEA07C757CB62DF976B20094309FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ Lordi - Limited Deadition (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Me
 magnet:?xt=urn:btih:88F03A5A7155B8B66B12C8F537F7B7E827FB482C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ VA - Exx Chill Miami 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 ```bash
 magnet:?xt=urn:btih:5C972828BA90EA4B25757D6ED5567CC120E58F85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

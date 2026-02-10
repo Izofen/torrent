@@ -19,6 +19,8 @@ Udemy, Виктор Черемных | Кибербезопасность (2020)
 magnet:?xt=urn:btih:DDC326C863F645A0A62FB9D9B1A0EA0B0CC840E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Udemy, Jose Portilla м др. | Go: Полноценный Bootcamp (Golang) / G
 ```bash
 magnet:?xt=urn:btih:69DA77B3521DA6205BDEA78BAF4DF3B396D0F94A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ OTUS, Михаил Кузнецов | Супер-интенсив "Версио�
 magnet:?xt=urn:btih:96FFAADF7CF0B5FF97E3928099830561DE7246C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:96FFAADF7CF0B5FF97E3928099830561DE7246C2
 ```bash
 magnet:?xt=urn:btih:3DBDA0BB9A05735A976E3AE64EE364FBBBDC16FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:3DBDA0BB9A05735A976E3AE64EE364FBBBDC16FC
 magnet:?xt=urn:btih:574CB9A6F88BB05F043F6C9369A4F9445DB2433C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:574CB9A6F88BB05F043F6C9369A4F9445DB2433C
 ```bash
 magnet:?xt=urn:btih:D8BF2A34DEBE5EF338AB2A336C75BA69F5E6F08E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Udemy, Jose Portilla | 2021 Полный Python Bootcamp: c нуля до гер
 ```bash
 magnet:?xt=urn:btih:8077BC882CF431654D3A7631FAF81B0831B8A319
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:8077BC882CF431654D3A7631FAF81B0831B8A319
 magnet:?xt=urn:btih:547E1D01BBC35743BF13F1ED13F4EE025788A4DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ react12.io, Reed Barger | Создайте YouTube с помощью React / Bui
 magnet:?xt=urn:btih:8D1E5CB11BF30BB208FE976110A0FD7BB9B2A7DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ Knower School, Дмитрий Смирнов | Курс по созданию м
 ```bash
 magnet:?xt=urn:btih:54B5EDE1FDD3C6B8C2E223036C54D6B5908AA5DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:54B5EDE1FDD3C6B8C2E223036C54D6B5908AA5DF
 magnet:?xt=urn:btih:364A5EF274488DDF9FC3D873C1422DC3AB813F0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:364A5EF274488DDF9FC3D873C1422DC3AB813F0D
 ```bash
 magnet:?xt=urn:btih:9590DA57FE64D7E454B3DBD2B0B0C76A2F6EC8DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ OTUS, Любовь Данилова и др. | Автоматизация тес
 magnet:?xt=urn:btih:6D795931E2CB8E49F138C82237F2E202EEC60E6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ OTUS, Анастасия Асеева-Нгуен и др. | QA Lead. Часть 
 ```bash
 magnet:?xt=urn:btih:A82927BD430AFDD947B134DB7B0A22B1BAE84E73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:A82927BD430AFDD947B134DB7B0A22B1BAE84E73
 magnet:?xt=urn:btih:9AD8269B24639E3917C67333D8FCA19B52FB074C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:9AD8269B24639E3917C67333D8FCA19B52FB074C
 ```bash
 magnet:?xt=urn:btih:206D318020E6E813E3FB0B2B353CF6E7B16209D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ CrossVidos | Марафон по съемке и монтажу видео на 
 magnet:?xt=urn:btih:97E844037A0887AD2CC429415E306F44B0E6C0EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ Knower School ,Дмитрий Смирнов | Курс художественн
 magnet:?xt=urn:btih:204D8ADAABA1881BD2C2F2CF9EDDAD8E98180FBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ CG Cookie | Уроки по 3D моделированию в Blender / Blender T
 ```bash
 magnet:?xt=urn:btih:A1D2B34D281C82B69DF9384B7F3B5FC59F7EAF00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ Coding For Entrepreneurs | Проекты и курсы. Django (2020) PCRec [En
 magnet:?xt=urn:btih:AF8BD7C007F5AD643E5AC2BB6D4AC90F43AF1CD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ Glenn Vilppu | Drawing Manual 1. Gesture (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:596A9004AC36B9F88BD07ACA27C0E4C6447F2B49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ Van Arno | Figure Fundamentals Volume 1 (2015) PCRec [En, Ru]
 magnet:?xt=urn:btih:7CC04875FA1B2EB431152349130E78C5F2C9526D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ Jonathan Lam | Design Isometric Environments for Games (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:F203FC47961C6EF16A05B1552A3F5C0D536BA518
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ Blender - это мощное решение с открытым исходны�
 magnet:?xt=urn:btih:A4FA4B768628F70BD71EF3554485F2D2148889AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ Blizzard Entertainment демонстрирует процесс создани�
 magnet:?xt=urn:btih:AE3E9383E33C7A44DDE892E53C8A4355D5D9E3AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ Shane Hurlbut | Experience Lighting Masterclass (2014) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:71F9B5ED9A6FCBCF1E4D64CA2D78362F2F309724
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

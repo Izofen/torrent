@@ -21,6 +21,8 @@ Reverso Translation Dictionary / Переводной словарь Reverso v12
 magnet:?xt=urn:btih:9177389452D140DE95E0F2C7D18B33FCCEE953F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Valkyrie of Phantasm (2022) [Multi] (1.04) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:F4DA0CE56DF1CC55790B98744F849BBBE59DFC35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ V.I.P. / V.I.P. / Beuiaipi (2017) BDRip [H.264/720p] [MVO]
 magnet:?xt=urn:btih:8967C05DD59A2519FA6299E345EE855C8FE8CA21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:8967C05DD59A2519FA6299E345EE855C8FE8CA21
 ```bash
 magnet:?xt=urn:btih:04B77217E4A5887820C8F2C900B3BF67E222481A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ V.I.P. / V.I.P. / Beuiaipi (2017) BDRip [H.264] [MVO]
 magnet:?xt=urn:btih:5F73ABBCF058282E3B1FF6167279B098DF730993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ CarX Street (2024) [Ru/Multi] (1.2.1/dlc) Repack seleZen [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:BEC0B85E2EF98F84A9F30142AB0366FFA9393B2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ TuneIn объединяет спортивные события, музыку, �
 magnet:?xt=urn:btih:CECC51EB1A631605E0CF322AB3FCD0A0A6BD02D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ AirBrush: ИИ Фоторедактор v7.4.600 Mod by PieMods [Ru/Multi]
 magnet:?xt=urn:btih:3B1FE211699B2E57F6AC07BEDFD61178099F31C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:3B1FE211699B2E57F6AC07BEDFD61178099F31C0
 ```bash
 magnet:?xt=urn:btih:68481186639F01CCBDE784078603A6C8B203567D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:68481186639F01CCBDE784078603A6C8B203567D
 magnet:?xt=urn:btih:ADB3C19B7E312D8CCDB2A97FB6F4E0FA34F9022D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ W.A. Production - BeatQuake 1.0.0 VST, VST3, AAX (x86/x64) [En]
 magnet:?xt=urn:btih:7FC34EAE8270E95A1024776AADAD680C61512DFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:7FC34EAE8270E95A1024776AADAD680C61512DFD
 ```bash
 magnet:?xt=urn:btih:2B68E0A497FFB2FA0D2DFD8CC79EA9E536139FE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Tommy J (Tommy Johansson) - Metal Covers (2024) [MP3|320 Kbps] <Metal, Covers>
 magnet:?xt=urn:btih:A60A0FA62D4369F75062445B2D8C3061430D782D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:A60A0FA62D4369F75062445B2D8C3061430D782D
 ```bash
 magnet:?xt=urn:btih:156C7957BC60FB264B9E96C70EE7D38A798BD266
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Rhodes Anthology 1.0.0 VSTi, VSTi 3, AAX (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:F19B8AD4E953F6B77EEF50B33B1B94B2574C8951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Colorize Images - это сервис, основанный на автомат�
 ```bash
 magnet:?xt=urn:btih:0275E42AC31D23606D31BF0AED28511C0EE9A131
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ L.A. Noire (2011) [Ru/Multi] (2675.1.0.0/dlc) Repack FitGirl [The Complete Editi
 magnet:?xt=urn:btih:5340052F623F85F5F8B5A2094574F6A509BDD649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:5340052F623F85F5F8B5A2094574F6A509BDD649
 ```bash
 magnet:?xt=urn:btih:8FA775A8FB0C6C844611E1014C5851E54E579289
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Dragon Age™: Origins Вы Серый страж, один из последн�
 magnet:?xt=urn:btih:ED4DD100DDF5183BAEE0C8ADFF3DE6FFEC5ED548
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ DipTrace - это многофункциональная САПР по разр�
 ```bash
 magnet:?xt=urn:btih:2BFE367FCF9E13B8548AD1BBD40FB5CCC4BD838C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Apocalypse Party - 3D-рогалик с видом сверху вниз, дей
 magnet:?xt=urn:btih:84876AADBBEA0F0C04F82FA96C2651D48155EA80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:84876AADBBEA0F0C04F82FA96C2651D48155EA80
 ```bash
 magnet:?xt=urn:btih:9EF2FB71A5448037CECD10A22C50BFF962C48604
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Umar Keyn - Compilation Part 2 (2024) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:3AFB74C5E2A10B74E2E2F411AD0BBB58BB4C9E02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ Deathbound - действие игры разворачивается в сре�
 ```bash
 magnet:?xt=urn:btih:95207D844140C663F30FDA679983997F723BC87B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.31.7 Gold
 magnet:?xt=urn:btih:C37DD3FD46E5E79C743C008554EC52145D1A058F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:C37DD3FD46E5E79C743C008554EC52145D1A058F
 ```bash
 magnet:?xt=urn:btih:1FE794AC3AD8FC6DD3EFC4059FEBD4F0AD86DA05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

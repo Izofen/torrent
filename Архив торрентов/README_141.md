@@ -20,6 +20,8 @@ Multi Commander - мощный многооконный менеджер фай�
 magnet:?xt=urn:btih:77CBB579FBB6D3F8CEC49446C8C72DD65C4555FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 magnet:?xt=urn:btih:D64655BA8433798FC0349E5097AA891BE0DB5AFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Imagine - это бесплатный просмотрщик изображен�
 ```bash
 magnet:?xt=urn:btih:2A51A36F5C30E8835C827F531DE7F7E75123189C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ ClipAngel 2.15 & portable [Multi/Ru]
 magnet:?xt=urn:btih:956E9A6EF5C85C7E51AEF38EE1B5A9F324C0FD60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:1D3FCD7BB44740226E4A8F612D353D5281CE907C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ WinX VideoProc Converter - усовершенствованная версия, 
 magnet:?xt=urn:btih:2E3C2C2D4A4E1B72EB46DA8FC3D768D455F48584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ WinCatalog - это простая в использовании програм�
 ```bash
 magnet:?xt=urn:btih:9E641ABB1163049B8707C9F4C16B5675005613F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Winxvideo AI  - это набор инструментов для масштаб
 magnet:?xt=urn:btih:398BD87B767E598A0964D16089B61EFDF2B9868B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ RadioMaximus 2.33.00 (23.12.2024) RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B4EE359217B7C31C47C3E676D06A24CB0CBCF071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Stellarium – бесплатный эмулятор звездного неба
 magnet:?xt=urn:btih:093A81DA4A366159116B1336BF7B968376AB9196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Aiseesoft Screen Recorder 3.1.6 RePack (& Portable) by elchupacabra (x64) [Multi
 ```bash
 magnet:?xt=urn:btih:64346D3AFC1AC60317BDF153E4147837D203D32E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:9D08C93709D89D8870D7B295F42FB8C7D7EED477
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:57E9467232EA536925CEF9D1382C6DAE97641778
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Volume² — альтернативный регулятор громкости,
 magnet:?xt=urn:btih:F40EFB9F58B41352091DA47CDC63D888C3C2B70C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Nageki no Bourei wa Intai Shitai | Let This Grieving Soul Retire! | Плачущ
 ```bash
 magnet:?xt=urn:btih:AA75967A70773793F115EE8EB0605DB465D2111B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Wise Registry Cleaner - утилита для безопасной чистки 
 magnet:?xt=urn:btih:E021580E185C36B5BDF0FF020A98D71000AD62D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Subtitle Edit - редактор субтитров. При помощи это�
 ```bash
 magnet:?xt=urn:btih:AF20C5AA516F532ABC11D6902CA9DDE29402822D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ PilotEdit можно использовать для редактировани�
 magnet:?xt=urn:btih:F129E923C4E760C2D2DD251135DEAA0716D7AF05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Balabolka 2.15.0.885 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:8986F458472B729B30A197CD8C8D6AC058E1C08E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:7D7525CB79E41750A0FA1CE7EE0E4600D0FA798F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.35.8 Gold
 magnet:?xt=urn:btih:158F6EC64F1C4B9F9FCA3F921FB6074BE69DE953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Image Uploader - бесплатная программа для Windows c отк
 ```bash
 magnet:?xt=urn:btih:B9321DE3908BB0F5D35C703B8D7F8C81643F6D6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ PIDKey Lite предназначена для просмотра, обновле
 magnet:?xt=urn:btih:257157B6ECB045D2724A9FA80DDF48F78E70C516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Folder Player Pro - это ориентированный на каталоги 
 ```bash
 magnet:?xt=urn:btih:544A6A1BFD2B5C83E7C16011FFBD42CE48B1870D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ DaVinci Resolve — единственное в мире решение для �
 magnet:?xt=urn:btih:4DF4794CAD54BAB0E5173277FA9C1D5B711694EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:4DF4794CAD54BAB0E5173277FA9C1D5B711694EC
 ```bash
 magnet:?xt=urn:btih:182906CCA751D6C15A5451630334324FDFD02FF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

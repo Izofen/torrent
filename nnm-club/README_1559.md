@@ -19,6 +19,8 @@ Zoochosis (2024) [Ru/Multi] (1.2.8) Repack Wanterlude
 magnet:?xt=urn:btih:9B34E45C50647E6B7E3A6B4C390A020F53C30200
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:9B34E45C50647E6B7E3A6B4C390A020F53C30200
 ```bash
 magnet:?xt=urn:btih:832185861F7A86C4A07A0C8742EA8ED8DD860040
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:832185861F7A86C4A07A0C8742EA8ED8DD860040
 magnet:?xt=urn:btih:7A986CAABEBA1EAF54FE37882084FFA312AC1A87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:7A986CAABEBA1EAF54FE37882084FFA312AC1A87
 ```bash
 magnet:?xt=urn:btih:BDA9B5C1364C5758E964E367D7DA5EC471454A56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:BDA9B5C1364C5758E964E367D7DA5EC471454A56
 magnet:?xt=urn:btih:1CB2F02826FC9D1E97ED8A9AF01EA68E234DC889
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:1CB2F02826FC9D1E97ED8A9AF01EA68E234DC889
 ```bash
 magnet:?xt=urn:btih:C26CD4797F53BA888D264218A9363D9E409B5873
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:C26CD4797F53BA888D264218A9363D9E409B5873
 magnet:?xt=urn:btih:FA6CC1CF9571A187BBD29224DC62C82846F0194D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:FA6CC1CF9571A187BBD29224DC62C82846F0194D
 ```bash
 magnet:?xt=urn:btih:5B995A819522279BDAB3B0EE6BBA39496377AAAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:5B995A819522279BDAB3B0EE6BBA39496377AAAC
 magnet:?xt=urn:btih:672A9AC7A8C79380BFF216E370EB8F5988A9E9B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Anima Flux - это кооперативная метроидвания про �
 magnet:?xt=urn:btih:4C33F509BD548DAE352E81F5D3253C4B8F38B992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:4C33F509BD548DAE352E81F5D3253C4B8F38B992
 ```bash
 magnet:?xt=urn:btih:7929A6DC843C3A13223C590DC930635C0122BDEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:7929A6DC843C3A13223C590DC930635C0122BDEB
 magnet:?xt=urn:btih:52062CDD361BA3954FFE5F2C743D012BAFF4C3F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Microsoft наконец-то официально выпустила верси
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Microsoft наконец-то официально выпустила верси
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Microsoft наконец-то официально выпустила верси
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Microsoft наконец-то официально выпустила верси
 ```bash
 magnet:?xt=urn:btih:B76CC3C5A2A8D65D42D247FDB85D12E6439001A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:B76CC3C5A2A8D65D42D247FDB85D12E6439001A0
 magnet:?xt=urn:btih:41290EBAB560E1F33CC203C6AEE169F68D2642AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:41290EBAB560E1F33CC203C6AEE169F68D2642AB
 ```bash
 magnet:?xt=urn:btih:F36AF6A913B0F457C91E4E6C6DF729EF4F690E88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:F36AF6A913B0F457C91E4E6C6DF729EF4F690E88
 magnet:?xt=urn:btih:E36BC0A84EA8009E82C515A0F39994B9D6ED6AF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:E36BC0A84EA8009E82C515A0F39994B9D6ED6AF6
 ```bash
 magnet:?xt=urn:btih:28F7A22D0789A02FA4705E4F061F9A8803F3CB11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ HUNTDOWN (2020) [Ru/Multi] (1.278) Repack Let'sРlay
 magnet:?xt=urn:btih:6078E3AE6A6882E5247168F88EE010CBDF2BC600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:6078E3AE6A6882E5247168F88EE010CBDF2BC600
 ```bash
 magnet:?xt=urn:btih:0452CCFBEFE025ACBC202F65229E54FA3DCC240F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:0452CCFBEFE025ACBC202F65229E54FA3DCC240F
 magnet:?xt=urn:btih:69D305E80CDF703239E3C827DF5B6F41D6A4148C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:69D305E80CDF703239E3C827DF5B6F41D6A4148C
 ```bash
 magnet:?xt=urn:btih:F07A82B1D0E04F09D3B25D460C5995D32ACDFC46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Robert Plant With Suzi Dian - Saving Grace (2025) Japanese Edition [FLAC|Lossles
 magnet:?xt=urn:btih:02E696B9AA0F1FDBA229957150789B4D6BBBB4B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Activation Program 1.13 Portable by Ratiborus [En]
 ```bash
 magnet:?xt=urn:btih:B44EB06A356633D2BBC8453A3906A9264201DA98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

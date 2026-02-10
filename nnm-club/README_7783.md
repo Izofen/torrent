@@ -19,6 +19,8 @@ GraphicConverter 11 — полнофункциональный графичес�
 magnet:?xt=urn:btih:5ED9F836B1E24C34615BAAD76350D2CF086DD4BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Advanced SystemCare PRO - это мощный пакет для оптимиза
 ```bash
 magnet:?xt=urn:btih:CF3092A23168773FF520B47F5B12236729F46F58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ TechSmith Snagit облегчает захват изображений с эк�
 magnet:?xt=urn:btih:68A71E62A5927A2710544F500758D28E8AF3538F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Integrity - приложение в помощь Web-мастерам и пре�
 ```bash
 magnet:?xt=urn:btih:FBCA9F9680EF58D47A93FDAEACD6B7407ECC850E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Hari Narayn | Just React!: Learn React the React Way (2022) [PDF][EN]
 magnet:?xt=urn:btih:2F5727D7109817542916BDFADA95D4EA6C92ED79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ C++ Russia 2022 — конференция для CPP-разработчиков
 magnet:?xt=urn:btih:C716E02C8C10F815E75DDE23366D93C3FF4AD164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:C716E02C8C10F815E75DDE23366D93C3FF4AD164
 ```bash
 magnet:?xt=urn:btih:8E8B4F9428585664554FE4D001B73862AE1A925A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ VA - My Free Hour: Chillout Your Mind (2022) [AAC|~294 Kbps] <Lounge, Chill Out,
 magnet:?xt=urn:btih:0D892EF1EDE14AA65C9B849142224BF2BFD32202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:0D892EF1EDE14AA65C9B849142224BF2BFD32202
 ```bash
 magnet:?xt=urn:btih:CC215D7127115A09660C3129918FA8185C04FC16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ VA - Relaxica: Spring Chill (2022) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo
 magnet:?xt=urn:btih:EC98DD2CF7528F94CA363A850B69F5DDF32395B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:EC98DD2CF7528F94CA363A850B69F5DDF32395B5
 ```bash
 magnet:?xt=urn:btih:A7137FBCA388637A938636D15C1564181B6151F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ NetLimiter - программа, решающая проблему контро�
 magnet:?xt=urn:btih:DBB9B2E78705E00322693F436E0C5E88875C9C57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:DBB9B2E78705E00322693F436E0C5E88875C9C57
 ```bash
 magnet:?xt=urn:btih:DBDB6CB0AFA7CCE9C5F129B01C71697A575BB849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Downie поддерживает более 1,000 популярных сайто
 magnet:?xt=urn:btih:1EF78B810CABA0FF43C464BE94B720555E2E5CEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:1EF78B810CABA0FF43C464BE94B720555E2E5CEE
 ```bash
 magnet:?xt=urn:btih:0D3A283A47F22F5D977712943340CC29EA579A25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:0D3A283A47F22F5D977712943340CC29EA579A25
 magnet:?xt=urn:btih:3408CD6D2E4D58F9D72EEAA68256EEDB8D860F87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Udemy, John Purcell | Java 11 For Complete Beginners (2020) WEB-DL [EN / EN Sub]
 ```bash
 magnet:?xt=urn:btih:F9D3445F6A3E93C08CE085BEAB543F947AC477C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:F9D3445F6A3E93C08CE085BEAB543F947AC477C1
 magnet:?xt=urn:btih:DD3D5FEFD2C26C945714A9FE5E0AD3367A29FD65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Unit Converter - полезное приложение, инструмент, к
 ```bash
 magnet:?xt=urn:btih:22568942A6FBEAB6AE6F4773522C2F4B7D73D4C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:C69672154C0CC24A8B925781946BEFBB732304ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ Hides 5.9 [En]
 magnet:?xt=urn:btih:50E64E41250B8B5CFA1AFFA1B112A801604FA2CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:50E64E41250B8B5CFA1AFFA1B112A801604FA2CC
 ```bash
 magnet:?xt=urn:btih:45FDD0D95F11D9B9CDA8FBF08B5CE038FEFA4E3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:45FDD0D95F11D9B9CDA8FBF08B5CE038FEFA4E3B
 magnet:?xt=urn:btih:982205DE8DBCCBBACE24B82F687CEC19270613AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:982205DE8DBCCBBACE24B82F687CEC19270613AA
 ```bash
 magnet:?xt=urn:btih:9C9B433A340FC27E24660DFB3BE0A5EFC7E9182C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ Mort Weiss - Mort Weiss Meets Sam Most (2006) SMS Jazz [FLAC|Lossless|tracks + .
 magnet:?xt=urn:btih:A3037172CF2513504D07862B74FEBAC431AFC67E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Johnny The Boy - You (2023) [FLAC 2.0|96/24|WEB-DL|tracks] <Black-Metal, Extreme
 ```bash
 magnet:?xt=urn:btih:FEAD86D1C918BCD6DBD8DDCE422D6F099B22A7E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Blender Fundamentals Vol. 3 - Texturing and Shading Fundamentals in Blender (4.0
 magnet:?xt=urn:btih:7D9DC38E51FDD65290785DB36512C642B9BF848E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:7D9DC38E51FDD65290785DB36512C642B9BF848E
 ```bash
 magnet:?xt=urn:btih:CC23E25F123FB4907E76A28A95EBB984F59EE853
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:CC23E25F123FB4907E76A28A95EBB984F59EE853
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:CC23E25F123FB4907E76A28A95EBB984F59EE853
 ```bash
 magnet:?xt=urn:btih:A85442E8E30ADE1FB3215432022315FA1D909733
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:A85442E8E30ADE1FB3215432022315FA1D909733
 magnet:?xt=urn:btih:1BFDE02E56FC2084A65019E845DF645BC96D63CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Majo to Yajuu | The Witch and the Beast | Ведьма и зверь [2024, TV, 
 ```bash
 magnet:?xt=urn:btih:8053880F11EBC024C08DA0E7047353616984400B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:8053880F11EBC024C08DA0E7047353616984400B
 magnet:?xt=urn:btih:30DE4A61D740BD8F8E6746B6B86644CE90718AFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:30DE4A61D740BD8F8E6746B6B86644CE90718AFD
 ```bash
 magnet:?xt=urn:btih:6E78ACC018477FF09B329F2DCB3BA87AB62956AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:6E78ACC018477FF09B329F2DCB3BA87AB62956AC
 magnet:?xt=urn:btih:C86BC8854FE5A066539EA9FF1183E07276F0B125
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:C86BC8854FE5A066539EA9FF1183E07276F0B125
 ```bash
 magnet:?xt=urn:btih:BB4B54F3D2FA800C05E01B1288AFE62C77985DD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:BB4B54F3D2FA800C05E01B1288AFE62C77985DD8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:BB4B54F3D2FA800C05E01B1288AFE62C77985DD8
 ```bash
 magnet:?xt=urn:btih:7F9A97E74538B59C05251E9C0BC7242A17C88C5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:7F9A97E74538B59C05251E9C0BC7242A17C88C5E
 magnet:?xt=urn:btih:78EFAE0A2601847BF8D3909F5824F7F389D295C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:78EFAE0A2601847BF8D3909F5824F7F389D295C7
 ```bash
 magnet:?xt=urn:btih:EA3F53486F79CFC421FC7D96D5D67CC41709D001
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:EA3F53486F79CFC421FC7D96D5D67CC41709D001
 magnet:?xt=urn:btih:9A01182F3CDD69D55148E5C6FA62EBA0672EED83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Autodesk 3ds Max предоставляет все необходимые инс
 magnet:?xt=urn:btih:AD729F95E483AC6B24D1434753EBCFCDA5F401D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:AD729F95E483AC6B24D1434753EBCFCDA5F401D5
 ```bash
 magnet:?xt=urn:btih:76B1EF4123C884A62C54E131656B6DE5567674F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:76B1EF4123C884A62C54E131656B6DE5567674F5
 magnet:?xt=urn:btih:6677BC885FF14E6ED543D3B7DA0A71EED33BC50B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:6677BC885FF14E6ED543D3B7DA0A71EED33BC50B
 ```bash
 magnet:?xt=urn:btih:29B8C6B92C8DFC7BBB7E0A9C41E8996A8FB45E58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Alice Cooper - певец, композитор, музыкант, шок рок
 magnet:?xt=urn:btih:852C77320C93F1E28A75FEA05FD741D698D2D194
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ The Legend of Heroes: Trails into Reverie является очередным п
 ```bash
 magnet:?xt=urn:btih:6B2E248EE3C99268E9F3F01B22D69520EC370FCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:6B2E248EE3C99268E9F3F01B22D69520EC370FCD
 magnet:?xt=urn:btih:49E42019E00AAC12F23BDB715F1B5D89E13BFFEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:49E42019E00AAC12F23BDB715F1B5D89E13BFFEE
 magnet:?xt=urn:btih:467CCAD9FB1B68776C15FA582EC694E16CA8D958
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:467CCAD9FB1B68776C15FA582EC694E16CA8D958
 ```bash
 magnet:?xt=urn:btih:A296ED893F6DFD6CED5F64DCAE7C0917AD7C4526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:A296ED893F6DFD6CED5F64DCAE7C0917AD7C4526
 magnet:?xt=urn:btih:783A5371E45020F71CC480702A1F8EC4F0A1CFED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:783A5371E45020F71CC480702A1F8EC4F0A1CFED
 ```bash
 magnet:?xt=urn:btih:37FF8894DCC3EDBAE45A85F2E9133A0FFF601473
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

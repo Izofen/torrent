@@ -22,6 +22,8 @@ Super Sabre - Chasing the Rabbit (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 magnet:?xt=urn:btih:610A2911397E258808FDD74290C1E3F83D08C6F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Jem - Finally Woken (2004) 20th Anniversary Remastered Edition, 2024,  ATO Recor
 ```bash
 magnet:?xt=urn:btih:F6FE8F4D923795956A455207406CD425C681DED1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Goat Generator - Goat Generator (2024) [MP3|320 Kbps] <heavy psych>
 magnet:?xt=urn:btih:BF9B3848BCCBCD5AE73CC2F73A9F3889AA85D587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Anciients - Beyond The Reach Of The Sun (2024) [FLAC|Lossless|WEB-DL|tracks] <Ex
 ```bash
 magnet:?xt=urn:btih:15718074A60CC3020F5229D9FCD05022195E96F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Holy Tongue & Shackleton - The Tumbling Psychic Joy of Now (2024) [FLAC 24/44.1|
 magnet:?xt=urn:btih:318FCC65C3C9F06B8F5F7A957137D64A0AE4B578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ magnet:?xt=urn:btih:318FCC65C3C9F06B8F5F7A957137D64A0AE4B578
 magnet:?xt=urn:btih:0B3823D92894357ACF89FE67B07715D044A3EC61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:653B7D3A1B8963768F0A4F6DF680CF3C5E93FBBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:653B7D3A1B8963768F0A4F6DF680CF3C5E93FBBA
 ```bash
 magnet:?xt=urn:btih:75BDE9E6DFAD8124E67E6D5BFA20531FA526297B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +247,8 @@ VA - The Best of Violin Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Cl
 magnet:?xt=urn:btih:039E0A7C0563757AFB32086E75AB7DAEE1EF1676
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:039E0A7C0563757AFB32086E75AB7DAEE1EF1676
 magnet:?xt=urn:btih:97558BFB196C73DB3FDE05E8622479DD0AE42B79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:8F283E5576D626A9FE0F47637A4EE2AA22D43129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ VA - 100% Club Hits - 2024.2 (2024) [MP3|320 Kbps] <Dance, Club, House, Electron
 magnet:?xt=urn:btih:6FD25831BF0A078ECA5B6796245E30B40977DDE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ Sunny Cafe (2021) [Multi] (1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:72CE0FAA78879DDC7B1A39B5D4E62BBD061BBB70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:72CE0FAA78879DDC7B1A39B5D4E62BBD061BBB70
 ```bash
 magnet:?xt=urn:btih:738D06FC725944A0798C6060906574BF864694B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ Duran Duran - Notorious (1986) Deluxe Edition, Remaster, 2010, Parlophone Record
 magnet:?xt=urn:btih:CFB50CE204D719D0F0BD490C2D36A60F3452F068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ Moon Tripper - Echoes Of Freedom (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressi
 ```bash
 magnet:?xt=urn:btih:EF6270DE780BBF2F7A437B8F64E29D9475D19C6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +468,8 @@ Duran Duran - Notorious (1986) Remaster, 2024, Rhino [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:975AB8CE4D27E0892D29D2AC0D3F251446CDAF80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:0BA86481037214EE50DC5C242E35E8B888355C67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +520,8 @@ Vivaldi 6.9.3447.37 include standalone [Multi/Ru]
 magnet:?xt=urn:btih:41749DA73D4A3150EB455A1E3274851CBB9B86C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:F75DDFFA8F00A27F7C2EC7268629332A2E9D07AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +575,8 @@ Ukulena - Only Daddy Calls Me Marley (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:A590B185369CFC66B1D84DB0231A22827F48C5D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ magnet:?xt=urn:btih:A590B185369CFC66B1D84DB0231A22827F48C5D0
 ```bash
 magnet:?xt=urn:btih:69B30E711B5B99ED85E9EC670FFF34706421A460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ File & Image Uploader - удобная и просто незаменимая п
 magnet:?xt=urn:btih:D79054792D3AACE89623C95ED00635447FBE2B1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:D79054792D3AACE89623C95ED00635447FBE2B1D
 ```bash
 magnet:?xt=urn:btih:5DD4AE5BF8B4DDAC327A7F310B0D0586EF2C740D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ Nick Cave & The Bad Seeds - Wild God (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:3322431AA3787696EC02C79A40B2046A3B6AA9C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ magnet:?xt=urn:btih:3322431AA3787696EC02C79A40B2046A3B6AA9C1
 ```bash
 magnet:?xt=urn:btih:50B24841FA04C228127D7A05FFE50CDBB27B48A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

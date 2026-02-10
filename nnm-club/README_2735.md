@@ -22,6 +22,8 @@ Unusual Suspects - At The Australian Jazz Museum Vol. 9 (Live) (2025) [FLAC 24/4
 magnet:?xt=urn:btih:EEBBFCFE143D39FB00C5AA26E61B64646694A4AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Toledo - Fishnets & Cigarettes (1996) [FLAC|Lossless|image + .cue] <Acid Jazz, F
 ```bash
 magnet:?xt=urn:btih:4EFB0425225DCD523FC49FDA788DE8E8F4BD6AEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Catlvish - Jazzthematics (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
 magnet:?xt=urn:btih:79AEFEE339C1F26921DF86BBA4BEA552CD0F3269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Gustav Lundgren Trio - Sofo Session (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:6C73B9F14303A3BE0ABB133C41D2CB2EF7B22878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:6C73B9F14303A3BE0ABB133C41D2CB2EF7B22878
 ```bash
 magnet:?xt=urn:btih:E0B3C4D43290AECE33320DD353CBAD3C95E17087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:E0B3C4D43290AECE33320DD353CBAD3C95E17087
 ```bash
 magnet:?xt=urn:btih:E64D686A51751E92BF4182623994E1DCC5953667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Pink Floyd - Live at Empire Pool (Wembley, London, UK, 16 November 1974) (2024) 
 magnet:?xt=urn:btih:198FD7233595B57A073BACF71B3816C9E87A618B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ VA - A-Mase - Best of 2024 (2025) [MP3|320 Kbps] <Progressive House, Melodic Hou
 magnet:?xt=urn:btih:7EA6C3F6D1A56BB1C2BEFF006A2AFE34EC02D357
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ magnet:?xt=urn:btih:7EA6C3F6D1A56BB1C2BEFF006A2AFE34EC02D357
 magnet:?xt=urn:btih:03C915A8F384B5C4C61383A2CD50435DBA8EE150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:03C915A8F384B5C4C61383A2CD50435DBA8EE150
 ```bash
 magnet:?xt=urn:btih:F23AA4FE21517542B8F3DC3D643C957BBFB66CBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +303,8 @@ VA - Dancefloor Jazz (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:05129CC36F14181EBD7F3C3BA162BA0DA5244E38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ Mariah - Mystic Lady (1975) 2025 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Roc
 ```bash
 magnet:?xt=urn:btih:ECC4C0B4BDE412B14238C6CF08FC0877D1E227CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +361,8 @@ Pink Floyd - Live At The Empire Theatre (Liverpool, UK, 29 November 1974) (2024)
 magnet:?xt=urn:btih:283393551E9D6F8C975EAD7D95706CC251BAEBD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +390,8 @@ Pink Floyd - Live At Palais De Sports (Paris, France, 24 June 1974) (2024) Live 
 magnet:?xt=urn:btih:69535DF239675737F24449D959DD073C414B3D23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +416,8 @@ magnet:?xt=urn:btih:69535DF239675737F24449D959DD073C414B3D23
 magnet:?xt=urn:btih:6D15ACEE0176B9ADEC33AA1D087598B6B7F5E665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +441,8 @@ magnet:?xt=urn:btih:6D15ACEE0176B9ADEC33AA1D087598B6B7F5E665
 ```bash
 magnet:?xt=urn:btih:A153EDFD2A6CFC52E6526466DC99CA111990792B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +471,8 @@ Pink Floyd - Live at Palace Theatre (Manchester, UK, 9 Dec 1974) (2024) Live [FL
 magnet:?xt=urn:btih:32F85E0AA18F73751AAC4FC354875B7405F33EE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +500,8 @@ Nenei - Sunset Grooves (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Vocal Jazz>
 magnet:?xt=urn:btih:A4AEE1CB13D70994D3AB6CC96BC6CEC9029600A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +528,8 @@ magnet:?xt=urn:btih:A4AEE1CB13D70994D3AB6CC96BC6CEC9029600A5
 magnet:?xt=urn:btih:890A08B7429F6BC536E06F854E2F67ED68517592
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +555,8 @@ magnet:?xt=urn:btih:890A08B7429F6BC536E06F854E2F67ED68517592
 magnet:?xt=urn:btih:0B31438B6731E0648CDD1D8646AB37D7BC4802BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +581,8 @@ magnet:?xt=urn:btih:0B31438B6731E0648CDD1D8646AB37D7BC4802BD
 ```bash
 magnet:?xt=urn:btih:6877FFEBD420D44E72FD178B400918204597B966
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +611,8 @@ VA - Trance - Charted Only (Winter Edition), Vol. 1 (2025) [MP3|320 Kbps] <Tranc
 magnet:?xt=urn:btih:7FDA8ABB487F3250C879E8450E205A531BCEF5AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +636,8 @@ magnet:?xt=urn:btih:7FDA8ABB487F3250C879E8450E205A531BCEF5AB
 ```bash
 magnet:?xt=urn:btih:A9E3E2BB230A8D6A0CF7F0AE609A90BAD3C390D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +666,8 @@ Lord Agheros - Anhedonia (2025) [FLAC|Lossless|WEB-DL|tracks] <Italian ambient b
 magnet:?xt=urn:btih:9B48A7553029B76FE0E4D0EC8767D510848404C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +695,8 @@ VA - Armin van Buuren - A State Of Trance 1206 (2025) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:B516FA2642633636A8D571CD7DAEE44F7C4DE820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +723,8 @@ VA - Raw Deep Hypnotic Trance, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:EE1E9F2BF005ACEB3253179D4B302296A0860414
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

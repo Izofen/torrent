@@ -19,6 +19,8 @@ ADV Screen Recorder v4.3.1 [Ru/En]
 magnet:?xt=urn:btih:756713FBB2BCD5C49A4171D85B3EE7907B1C3463
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Microsoft Word 16.0.7426.1015 [Ru]
 magnet:?xt=urn:btih:F3710E9FCDAE0FC2E4E23B5F5A53F26E9D6AFB20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ ABBYY Lingvo Dictionaries 4.6.6 [Ru/Multi] - Оффлайн словарь
 ```bash
 magnet:?xt=urn:btih:05B1BDEB0F6861A550A7312CD7E64348A9BBB831
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Android Auto 2.0.642308 [En]
 magnet:?xt=urn:btih:7802BFDF0F6297E2011CE7A54145D74712997FD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ ActionDirector Video Editor v6.0.1 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:EDDE321F7AA9F49CD929B1AB7FEBB27C90C29A30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Apex Launcher Pro 3.3.3 [RU]
 magnet:?xt=urn:btih:B561D72C0DCFFD977CF8043D8402F07E66C9575C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ GPS Up v1.7.1 [En] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:8DBA881E9C535E6B57860FB3406F49E48EABA75C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Stellarium Mobile PLUS - Star Map – отличное приложение на
 magnet:?xt=urn:btih:B636516112FE72477C98F733090EDB9EFA9F6F26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ ElLi (free) - Расчет проводки v1.3.35 AdFree [Ru]
 ```bash
 magnet:?xt=urn:btih:8BF4F78B00A24916C961B5A6676BAD19C3866CD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:8BF4F78B00A24916C961B5A6676BAD19C3866CD7
 magnet:?xt=urn:btih:571253D4A320F0582F450A364762056499DB2D3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Terrarium TV это Android-приложение, которое позволя�
 ```bash
 magnet:?xt=urn:btih:395C1F161975F58BF1194FDD4BAA92B6AE5242F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Periodic Table / Таблица Менделеева HD 7.7.0 [Ru/En]
 magnet:?xt=urn:btih:38E2D73F50B4FC29B5F10B47568E379BA8DD61E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:38E2D73F50B4FC29B5F10B47568E379BA8DD61E5
 ```bash
 magnet:?xt=urn:btih:B5DBFE5061755E0133F6F0BDFB3F737071B97B27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Full Scientific Calculator v1.76 Pro [En] - мощный многофункци�
 magnet:?xt=urn:btih:661558A2DC1434F785DF6A0E9A0D3D98DABD0D0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Helium - это уникальное решение для резервного 
 ```bash
 magnet:?xt=urn:btih:9A3C2D9952DB9EBAEACC4A9190845C03727D4931
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ EveryCircuit v2.19 [En/Rus] - Проектирование и моделиров
 magnet:?xt=urn:btih:511FAFD6DBB5A517461244DAFDAE0F62FA64D822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:511FAFD6DBB5A517461244DAFDAE0F62FA64D822
 magnet:?xt=urn:btih:C77A9A26E2B941B5566E511CC32EAE4D071DB2F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:C77A9A26E2B941B5566E511CC32EAE4D071DB2F8
 ```bash
 magnet:?xt=urn:btih:2AB48F947D32056001BD0FD1024EF8E7BBAE6864
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Boom — это многофункциональный музыкальный п
 magnet:?xt=urn:btih:4BDFFBC85A97629808B9B2F30ADDAD225C82DCF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:4BDFFBC85A97629808B9B2F30ADDAD225C82DCF5
 ```bash
 magnet:?xt=urn:btih:4AE7EC227A33FB0FB613237C58E0C60B204BA7F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Deplike позволяет вам наслаждаться полной наст
 magnet:?xt=urn:btih:7F0326D1E1125806F862B244E58BA1CE5144D1AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Universal AC Air conditioner Remote Control 8.8.7.2 [Ru]
 magnet:?xt=urn:btih:17397A71D82E3B9F3D26A9DF74C6C011AD68A097
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Music Writer - Music Composer 1.2.275 [En]
 ```bash
 magnet:?xt=urn:btih:C8A3725704DFC8F9399325F2C01FC12E6ED373DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Quick Video Recorder - это приложение для камеры, кото
 magnet:?xt=urn:btih:D177BEB10EEF4EC9AD2D74B24681E7FB8998202B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:D177BEB10EEF4EC9AD2D74B24681E7FB8998202B
 ```bash
 magnet:?xt=urn:btih:28BC89F50C6B4909E37D0EBA0F86E4CAC293A66B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +681,8 @@ eTide HDF: приложение приливов и виджет с график
 ```bash
 magnet:?xt=urn:btih:FC253653F748869578CF5B9388194C7BFA1E75D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

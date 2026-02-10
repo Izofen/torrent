@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4C363FCA2B8EFEF61EBAB51598E721D46D8C03A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:4C363FCA2B8EFEF61EBAB51598E721D46D8C03A6
 magnet:?xt=urn:btih:E19817B779665F4D9BE8EBD67F968B711486441A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:E19817B779665F4D9BE8EBD67F968B711486441A
 magnet:?xt=urn:btih:C2ADF183408CDA9941F3BC5C73D7B76A3B7138A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ FreeFileSync - это утилита, которая была разработа
 ```bash
 magnet:?xt=urn:btih:A6A28D9E9D80BD04D388DF7621A142EB3D62A0E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:A6A28D9E9D80BD04D388DF7621A142EB3D62A0E2
 magnet:?xt=urn:btih:F0D112F3912D2AD5FE1B4CB42D99D94163E79E23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Isekai Shikkaku | No Longer Allowed in Another World | Дисквалифици�
 ```bash
 magnet:?xt=urn:btih:5481012C8DAAF1DA3362F2AF564997C5DAE5325E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:5481012C8DAAF1DA3362F2AF564997C5DAE5325E
 magnet:?xt=urn:btih:B01044F495CDE0843BBB1781A8C1793D86E56DEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:B01044F495CDE0843BBB1781A8C1793D86E56DEA
 ```bash
 magnet:?xt=urn:btih:9799D4FC02A65B4CFA69581BB15DE0017D8AB398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:9799D4FC02A65B4CFA69581BB15DE0017D8AB398
 magnet:?xt=urn:btih:EE55C997647E031D766C26CA209E31A8503B9E33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:EE55C997647E031D766C26CA209E31A8503B9E33
 ```bash
 magnet:?xt=urn:btih:41CE1498268F4D3687764F902C0BE4023CC913A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:41CE1498268F4D3687764F902C0BE4023CC913A3
 magnet:?xt=urn:btih:5FDC4560C5D691CA169D1F72F3778D5649D7C8C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:C42660D4F33BB813984773DF3CC1BA762C73326D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:C42660D4F33BB813984773DF3CC1BA762C73326D
 magnet:?xt=urn:btih:2B7370346E0C02DD1C497D81E459361DEBCC07E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:2B7370346E0C02DD1C497D81E459361DEBCC07E9
 ```bash
 magnet:?xt=urn:btih:9F359A000D36D806D97446A8D51C86284080DFAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:9F359A000D36D806D97446A8D51C86284080DFAF
 magnet:?xt=urn:btih:027BFA882CD56E0F0CAB7B216D6209D284687D10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:027BFA882CD56E0F0CAB7B216D6209D284687D10
 ```bash
 magnet:?xt=urn:btih:B657F4F29BA374216346AE5F485D653B7FC8AD1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Them and Us - классический хоррор на выживание с �
 magnet:?xt=urn:btih:AF802C775E8E466F30F9D45E562571AA17069179
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Maximum PC - это журнал, который каждый компьютер
 ```bash
 magnet:?xt=urn:btih:EC26BDCBE76916064AC9EF82060BDF5D9ACED851
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:EC26BDCBE76916064AC9EF82060BDF5D9ACED851
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Total Conflict: Resistance (2023) [Ru/Multi] (0.95.0) Repack seleZen [Early Acce
 ```bash
 magnet:?xt=urn:btih:A0C0EAB9DDF7AC1354A5376A5AE1397A3B752C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:DA5AE954EDBEA066F3E0B24E51C2F6C339CAF4DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Douse, Koishite Shimaunda. | Anyway, I'm Falling in Love with You | В любо�
 magnet:?xt=urn:btih:1E381B47D28E10596995A85798DAE92D2BB98194
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Among Us (2018) [Ru/Multi] (16.0.0i) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:4A8881C6C421140F7821C923C2DEA956E90AC3B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:4A8881C6C421140F7821C923C2DEA956E90AC3B0
 magnet:?xt=urn:btih:4893EE9E3D28DE4EE9E468529F23967F54D6B122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 magnet:?xt=urn:btih:B0779CD6241A8C78BEB892A61DFCFBB4C222F068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:B0779CD6241A8C78BEB892A61DFCFBB4C222F068
 ```bash
 magnet:?xt=urn:btih:3610FA7BDBC1E7D50752692905977C61E1C2D653
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

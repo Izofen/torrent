@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:19B51C79BC3DC1D660B2454E58C247B0B3335990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Jormungand: Perfect Order | Ёрмунганд [ТВ-2] [2012, TV, 12] BDRemux 1
 ```bash
 magnet:?xt=urn:btih:350E2DA34DB50434C50E9AFB9B7E3163DFD5A801
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Jormungand | Ёрмунганд [ТВ-1] [2012, TV, 12] BDRemux 1080p raw+rus
 magnet:?xt=urn:btih:7AC489F5DBE76B4D0ACF6F6B4639988BFFE1940C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Kage no Jitsuryokusha ni Naritakute! 2nd Season | The Eminence in Shadow 2nd Sea
 ```bash
 magnet:?xt=urn:btih:ADEE24C9F44A9A6539AC0766974AF75099B5152D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Wu Geng Ji | The Legend and the Hero | Feng Shen Ji | Chronicles of the God's Or
 magnet:?xt=urn:btih:E4F454352C207788F29FD809D8B02B3248133EC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Wu Geng Ji | The Legend and the Hero | Feng Shen Ji | Chronicles of the God's Or
 magnet:?xt=urn:btih:5D3589271516B3F6B2661301622FBA5589815340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Chu Feng: B.E.E. / Позывной: «Пчёлка» [2015, TV, 6 эп.] WEBRip
 magnet:?xt=urn:btih:0611702BB62E8464F33E8AB65B64CED353C22192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Mo
 ```bash
 magnet:?xt=urn:btih:7FF700DB7F42CE18F7C23C8E7141D586083C988F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ UFO Robot Grendaizer / Грендайзер [1975, TV, 1-74 из 74] 19xDVD5
 magnet:?xt=urn:btih:A815F0C9CD285B9E8AFE0595DFE392D0CD0DD1B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Э
 ```bash
 magnet:?xt=urn:btih:18DE4D44DCE2EF7D4FBA99AD2F8FCD578601628A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Promare | Промар [2019, Movie] DVD9 480p raw+rus
 magnet:?xt=urn:btih:AF0D1106FA3383EC5656A47A4D12B6C7FB941B49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Mononoke Hime | Принцесса Мононокэ | Princess Mononoke | При
 ```bash
 magnet:?xt=urn:btih:9361814E7B1456BE37E720228E8F14BDE3C849CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Etern
 magnet:?xt=urn:btih:BE88D5EE53BCC49CACE512BC5FFBE0F839C62411
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 ```bash
 magnet:?xt=urn:btih:82264FB389047BCE9114284AEEE28C2AC2923C79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Coquelicot-zaka Kara | Kokuriko-zaka Kara | From Up on Poppy Hill | Со скл�
 magnet:?xt=urn:btih:F866967E5344AFDA1428DF19C9AFE206FEB331C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Coquelicot-zaka Kara | Kokuriko-zaka Kara | From Up on Poppy Hill | Со скл�
 ```bash
 magnet:?xt=urn:btih:5BAA21E446F95DF18295BB8554966E097E242DC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Promare | Промар [2019, Movie] DVDRemux 480p raw+rus
 magnet:?xt=urn:btih:62FE964DD8748D113E71C07C0DCC7E00EE64AD5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Bakemono no Ko | The Boy and the Beast | Ученик Чудовища [2015, Mo
 ```bash
 magnet:?xt=urn:btih:F72580CFDC842AF6E3C086A01E6890600ADD2534
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 magnet:?xt=urn:btih:263A5D212F72D3A4CBD87F541B6C906F28131DFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Э
 ```bash
 magnet:?xt=urn:btih:A5DACDA5B1236162F19826698C22E4AE4A3BB7E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Eternal Life / Yong Sheng / Youngsheng / Immortality / Вечная жизнь [
 magnet:?xt=urn:btih:437AE35F268F21201B20D230B322E2E5B6D63B88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ The Land of Miracles / Shen Lan Qi Yu Wushuang Zhu / The Magic Kingdom of the Go
 ```bash
 magnet:?xt=urn:btih:B46CE59D034B8DA89CA838106B2915A9415F1568
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Coquelicot-zaka kara | Со склонов Кокурико [2011, Movie] Blu-ra
 magnet:?xt=urn:btih:B1B7541F1D7AD0B0B5BAC072EAD316D217AA10F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou | Violet Evergarden: Etern
 ```bash
 magnet:?xt=urn:btih:48262AC50FEF3ED50136C738F95EE2BA8E49E527
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Hatsune Miku - Magical Mirai / Живой концерт Хатсуне Мику
 magnet:?xt=urn:btih:1C19A5EBB8757A565B41942AAB0F825C13404BFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Winter 2020 Anime Preview | Зима 2020 Превью Аниме [2020, Обз�
 ```bash
 magnet:?xt=urn:btih:E1F4A9E5B91BF49C4F0FE6F36F2FA9D589B470ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

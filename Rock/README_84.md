@@ -22,6 +22,8 @@ Manfred Mann's Earth Band - Mannthology: 50 Years of Manfred Mann's Earth Band 1
 magnet:?xt=urn:btih:837C341DCCF28AF97E7620F01CB9DD081E14AC8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Santana - Blessings and Miracles (2021) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:0D03DF4A371B96D909AB92989D3E7104EC91F057
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Wax & Boogie - Come With Me (2016) [MP3|320 кб/с] <Rock&Roll, Boogie, Rockin'
 magnet:?xt=urn:btih:1D3431B1A18E8F9F80EEF5414E3358E328157ABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Pink Floyd - Greatest Hits (2CD) (2008) [MP3|320 kbps]<Rock>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ VA - Guitar Legends - The Original Guitar Pioneers (2015) [MP3|320 кб/с] <Roc
 magnet:?xt=urn:btih:2561CD98BC24534B402EBC6345009A58970FC2EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Zakk Wylde - Book of Shadows II (2016) [MP3|320 кб/с] <Southern Rock>
 ```bash
 magnet:?xt=urn:btih:1F435E0A97DF024F01B26936C41B00978BA4247D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ VA - Nuggets II - Original Artyfacts From The British Empire And Beyond 1964-196
 magnet:?xt=urn:btih:ABA8981467801323C89B8A672A0686CC02F225D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ Deep Purple - Man Alive (2020) Single [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:D19A1EA375A6FCE7CB7AC18FA725EBCCB55FCA7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ VA - Rock Classics Rock Anthems Rock Hit Rock Legends (2020) [MP3|320 Kbps] <Roc
 magnet:?xt=urn:btih:3E4ACD9A80051332E604D35ECD82C21E9840897A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +277,8 @@ VA - 70s Rock Originals (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:31485ED32D2CC92E45FC45AE7881ADCC5B765811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +307,8 @@ Mark Knopfler - Tracker (2015) limited Deluxe Edition [MP3|320 кб/с]<Rock, Bl
 magnet:?xt=urn:btih:BE8C36DCD327A948583DF3DA0D33DC7624C30C56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +335,8 @@ Jacky Chalard - Avec Un Pied Dans Le Rock 'N Roll (1977) LP [MP3|320 Kbps] <Elec
 ```bash
 magnet:?xt=urn:btih:9823C331CCF9C415EF1C29FB5D8752A44440AB35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +365,8 @@ Roderick Falconer - Victory In Rock City (1977) LP [MP3|320 Kbps] <Pop Rock>
 magnet:?xt=urn:btih:E1B6F9671DBFE7FF7604EC4122058332D77EB785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +394,8 @@ Electric Light Orchestra - The Very Best Of (2015) Japanese Edition [MP3|320 к�
 magnet:?xt=urn:btih:D62415C3ECCC6F9C4DB19E1E51B10D88A6E72CA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +422,8 @@ The Apples In Stereo - американская рок-группа, связа�
 ```bash
 magnet:?xt=urn:btih:D1879EFF995CE80412412FC5E97854CC29301C1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +458,8 @@ Panic At The Disco - Vices And Virtues (2011) [MP3|192-320 kbps]<Rock>
 magnet:?xt=urn:btih:BEE0CA3E9DF728D989424A351639C5DB9A6D1E9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +487,8 @@ Santiano - Wenn die Kälte kommt (2021) 2CD [MP3|320 Kbps] <Folk Rock>
 magnet:?xt=urn:btih:0468B5B5FBB0829324BEBF09DBF96E87254FF0F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +512,8 @@ Slade - The Live Anthology 1972 - 1982, 2CD (2009) [MP3|320 kbps]<Glam Rock, Har
 ```bash
 magnet:?xt=urn:btih:1DB653C8EDA50603A1A46A442F939E2CFA66F5B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +542,8 @@ Rockin'1000 - That's Live - Live in Cesena 2016 (2017) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:BEEBF0E1A95F27FE3F059B9B1C31D7EE4297073F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +570,8 @@ Robert Palmer - Riptide (1985) Reissue, 2021, Universal Music Group [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:383FEE62A4787A0B6EAAE4EFDF3822679F2F7011
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +600,8 @@ VA - Nuggets (Original Artyfacts From The First Psychedelic Era 1965-1968) (1998
 magnet:?xt=urn:btih:F7FE475765CA41F8F43AE2717B68A4DD2AC51357
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ The Steepwater Band - Shake Your Faith (2016) [MP3|320 кб/с] <Southern Rock, 
 ```bash
 magnet:?xt=urn:btih:5AC845B57B25C6D3E42112FBAFA04653E80D83F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +658,8 @@ VA - NOW Acoustic Classics (2020) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:9601CB1E7ADCAABFD63C7B889A59B614F28FAE4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +687,8 @@ CD - 1:
 magnet:?xt=urn:btih:128701967B7F395E8D07AA981A365E800A33BC69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +712,8 @@ Manfred Mann's Earth Band - Star Collection (4CD BOX) (2011) [MP3|320 kbps]<Rock
 ```bash
 magnet:?xt=urn:btih:3B1897A1D8F2A91CFC00B4C9729E49A3F60EF5B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -691,6 +741,8 @@ magnet:?xt=urn:btih:3B1897A1D8F2A91CFC00B4C9729E49A3F60EF5B5
 ```bash
 magnet:?xt=urn:btih:B8E9C2A20917D612BB49CCC715FA0AE4196FE4B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

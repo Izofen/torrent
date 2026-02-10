@@ -28,6 +28,8 @@ VA - Новые Альбомы Поп Музыки (14 Альбомов) (2012) 
 magnet:?xt=urn:btih:A8705EA2F6387D1A86D9258F1F6A1AAB72E6D6F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ magnet:?xt=urn:btih:A8705EA2F6387D1A86D9258F1F6A1AAB72E6D6F9
 ```bash
 magnet:?xt=urn:btih:CD8C5DC61D1A4280B99E40053ACC5BA0C7CFD1B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -78,6 +82,8 @@ magnet:?xt=urn:btih:CD8C5DC61D1A4280B99E40053ACC5BA0C7CFD1B1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:CD8C5DC61D1A4280B99E40053ACC5BA0C7CFD1B1
 ```bash
 magnet:?xt=urn:btih:2FC625AF75124D228426C9544AEC1EA41974CE0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ HWiNFO - программа, выдающая подробнейшую инфо�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ HWiNFO - программа, выдающая подробнейшую инфо�
 ```bash
 magnet:?xt=urn:btih:A8043208D536394FD5BF9C0FC29D4945D40E3458
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:A8043208D536394FD5BF9C0FC29D4945D40E3458
 ```bash
 magnet:?xt=urn:btih:315E0DBAC01A851A50CFD7C0EA9D4AAE06823A32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +228,8 @@ VA - Валентинка от Love Radio 50/50 (2012) [MP3|128 kbps]<Pop>
 magnet:?xt=urn:btih:F7625CEF493B58772AE0B40A198F867F0DEA69C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +258,8 @@ magnet:?xt=urn:btih:F7625CEF493B58772AE0B40A198F867F0DEA69C0
 magnet:?xt=urn:btih:1A6A22F4D2A2F9DEC7EF2BA31023A7D815004747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +284,8 @@ magnet:?xt=urn:btih:1A6A22F4D2A2F9DEC7EF2BA31023A7D815004747
 magnet:?xt=urn:btih:585C0EB9BAA8398F8B4C88795E0E25915DC7BA27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ Digital Art для Рабочего стола.
 ```bash
 magnet:?xt=urn:btih:C3034F95C00B8D0126611A8845918EE23304D732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +341,8 @@ magnet:?xt=urn:btih:C3034F95C00B8D0126611A8845918EE23304D732
 magnet:?xt=urn:btih:5704269BC7EC5F7A89D102DB7988EC4E7155D8E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:5704269BC7EC5F7A89D102DB7988EC4E7155D8E9
 ```bash
 magnet:?xt=urn:btih:4B52A504F9D11FB206B21999F26ABFA81338FA7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +406,8 @@ VA - Зарубежная 100-ка хитов (2012) [MP3|256 kbps]<Pop, Dance>
 magnet:?xt=urn:btih:F0582B4107F789A0AAEDC1C2B5C8173BE1643300
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +436,8 @@ magnet:?xt=urn:btih:F0582B4107F789A0AAEDC1C2B5C8173BE1643300
 magnet:?xt=urn:btih:DBCD120900853B042F0DD05114308A72D8E1A883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +461,8 @@ magnet:?xt=urn:btih:DBCD120900853B042F0DD05114308A72D8E1A883
 ```bash
 magnet:?xt=urn:btih:951E5D3B7FCDBA246A61DFF8E69735B0E1A828F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +490,8 @@ magnet:?xt=urn:btih:951E5D3B7FCDBA246A61DFF8E69735B0E1A828F9
 magnet:?xt=urn:btih:9049DC13636B3BC1F3B731FD9C59A50C6BEC2DDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +515,8 @@ magnet:?xt=urn:btih:9049DC13636B3BC1F3B731FD9C59A50C6BEC2DDD
 ```bash
 magnet:?xt=urn:btih:5F1B30C4D8810C5BA748BA4D48833D8E458857AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +542,8 @@ Armin van Buuren - Orbion (2011) [H.264/720р-LQ]WEBRip
 magnet:?xt=urn:btih:7E1021707E4CCA6C7936E82F7F8BDBB287DD784B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +567,8 @@ magnet:?xt=urn:btih:7E1021707E4CCA6C7936E82F7F8BDBB287DD784B
 ```bash
 magnet:?xt=urn:btih:35E6A733F5AD0B06DA7AB2F06A00BC2B487110BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +594,8 @@ magnet:?xt=urn:btih:35E6A733F5AD0B06DA7AB2F06A00BC2B487110BB
 magnet:?xt=urn:btih:8377A984D3FEFCC372048921820492496A9D75FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +619,8 @@ Photo Montage Guide - программа для отделения цельны�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +646,8 @@ Beauty Guide - позволяет нанести макияж и устрани�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +682,8 @@ VA - Operatic Metal Voices (2011) [MP3|320 kbps]<Symphonic Metal, Power Metal, G
 magnet:?xt=urn:btih:F9797B46E3EF989AFDDE87F6255E5541CEC988C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +712,8 @@ magnet:?xt=urn:btih:F9797B46E3EF989AFDDE87F6255E5541CEC988C5
 magnet:?xt=urn:btih:B12DE7559C19CF949BB405D933FEA68F147A1519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +737,8 @@ Discovery: Рамзес - Великий Фараон. (2008) SATRip
 ```bash
 magnet:?xt=urn:btih:11346A1FDEF0C7F8DE4E9DBA810D7EF9EECE1E23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

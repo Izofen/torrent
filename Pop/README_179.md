@@ -1,3 +1,143 @@
+###  Публикация: 1405190   (485308) от 29.08.2020
+
+Dua Lipa & The Blessed Madonna - Club Future Nostalgia (DJ Mix) (2020) [MP3|320 Kbps] <Pop, Electronic, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future Nostalgia (Joe Goddard Remix)Жанр: Pop, Electronic, DanceПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B7A3D31D15B7291DAE976F16C38CBEC5BE3E8FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405085   (485484) от 29.08.2020
+
+VA - Relaxing Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey (Stripped Back) (02:51)
+02. Dua Lipa - Be the One (Acoustic) (03:12)
+03. Maisie Peters - Take Care of Yourself (Live Acoustic) (03:19)
+04. Jess Glynne - My Love (Acoustic) (03:02)(   Читать дальше...   )Жанр: PopПродолжительность: 02:22:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1527E5BD937F2FE3FC8E348242832611667ACE3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405154   (485596) от 29.08.2020
+
+Kelly Lee Owens - Inner Song (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electronic, Alternative>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arpeggi (04:45)
+02. On (05:57)
+03. Melt! (03:34)
+04. Re-Wild (03:42)(   Читать дальше...   )Жанр: Pop, Electronic, AlternativeПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11692DB95D8E3861A8197DB8B4238954E471C5F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405180   (485609) от 29.08.2020
+
+The Smashing Pumpkins -  Cyr (2020) Single [FLAC|Lossless|tracks] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cyr (04:03)
+02. The Colour Of Love (04:23)Жанр: Rock, PopПродолжительность: 00:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFB64DD1E08E02F62333941BB720F460781E093B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405115   (485621) от 29.08.2020
+
+VA - Espresso Mega-Mix: Italo Hits Nonstop (1998) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_485621.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	 Vasco Rossi	-Cosa Succede In Cittá	4:02
+2.	 Vanadium	-Nel Cuore Del Caos	3:42
+3.	 I Soliti Ignoti	-Il Colore Viola	4:50
+4.	 Clió	-Non Siamo Angeli	3:56(   Читать дальше...   )Жанр: PopПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B088361800D32BFCF819357228C79AEF45F2780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1055802   (485655) от 23.09.2016
 
 Cerrone 3 - Supernature (1977) Reissue, 2016, OTP [FLAC|Lossless|image + .cue] <Disco>
@@ -21,6 +161,8 @@ Cerrone 3 - Supernature (1977) Reissue, 2016, OTP [FLAC|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:0BCAB9EBF8F1951BD9B0ABD21F7FD25F9B3DE3C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +191,8 @@ Debbie Jacobs - Undercover Lover (1979) LP [MP3|320 Kbps] <Electronic, Disco>
 magnet:?xt=urn:btih:33D3BB07F7C9632961C86887B612583228AFC091
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +219,8 @@ Santa Esmeralda - The Best (1993) [FLAC|tracks+.cue]<Disco, Latin>
 ```bash
 magnet:?xt=urn:btih:0630EC5D50DBD4CAAE0BFC568DCB1EC9D69E5D09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +249,8 @@ Charlotte Martin - On Your Shore (2004) [FLAC|Lossless|tracks + .cue] <Indie Pop
 magnet:?xt=urn:btih:5950A9DDBBA60849C64D764E2EAC264EBC9EC85B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +277,8 @@ Overcoats - The Fight (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:E3DCECF894135E9D0D8B15893218B86A376F256B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +307,8 @@ VA - 60 Top-Hits: Milestones in Music (2014) Box set [MP3|320 Kbps] <Pop, Rock>
 magnet:?xt=urn:btih:2C2107D40B87F63D2C0D3B7D14951E1348B84ACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +335,8 @@ Cerrone - Afro (2016) [MP3|320 Kbps] <Disco, Funk, Afrobeat>
 ```bash
 magnet:?xt=urn:btih:BE9F5B1DBE4BFBD7CEF1F8BA7D1F8C46205F0BD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +365,8 @@ Aventura - Love & Hate (2004) [APE|image+.cue]<Pop/Latin>
 magnet:?xt=urn:btih:F0F38EB8374A8D5C618AC9FEE0EFC8344772B0F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +393,8 @@ magnet:?xt=urn:btih:F0F38EB8374A8D5C618AC9FEE0EFC8344772B0F4
 ```bash
 magnet:?xt=urn:btih:622D0D910FB3A4C665F73DDD88A58E925E8F2BA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +429,8 @@ VA - Fantastic 80's The Complete Collection (2008) 5CD BoxSet [FLAC|Lossless]<Po
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +457,8 @@ ohdrina - 8 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, R'n'B, Soul, Downtempo>
 ```bash
 magnet:?xt=urn:btih:45F6A73C1336B4FFE83D66EFBBB2F2E4D1D65BC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +487,8 @@ Linda Jo Rizzo - Greatest Hits & Remixes (2019) 2хCD, Compilation [MP3|320 Kbps
 magnet:?xt=urn:btih:787435E2468AFEE8001132B67DF9F2512CBE574D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +515,8 @@ VA - XXXL 13 Праздничный (2005) [FLAC|Lossless|image + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:63809F711FAC92637D5BDF7C4C3AC20A14BB5A75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +551,8 @@ magnet:?xt=urn:btih:63809F711FAC92637D5BDF7C4C3AC20A14BB5A75
 magnet:?xt=urn:btih:38EAE71BF40FDD48B3315CE0784CD540D1187A76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +579,8 @@ VA - Disco Futuro by Fred Ventura (2019) 2хCD, Compilation [MP3|320 Kbps] <Ital
 ```bash
 magnet:?xt=urn:btih:4031385DECA7F672D043495CD14018F5CC590BDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +609,8 @@ Stella Donnelly ‎ - Beware Of The Dogs (2019) [FLAC|Lossless|tracks + .cue] <I
 magnet:?xt=urn:btih:8745631B30BF2DE7C97FD5B3E756F98F426E2030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +638,8 @@ Side Walk - No Stop Hit Mix (1989) [FLAC|Lossless|image + .cue] <Pop, Cover, Med
 magnet:?xt=urn:btih:E4A3351C870CD636292F1FD02934A5444449637B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +666,8 @@ magnet:?xt=urn:btih:E4A3351C870CD636292F1FD02934A5444449637B
 ```bash
 magnet:?xt=urn:btih:745927FB1C08BAD49ECDAE57B3339E72E1850E68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +697,8 @@ Abba - 40/40 The Best Selection (2014) 2CD /SHM-CD/ [APE|Lossless]<Pop>
 magnet:?xt=urn:btih:12612285E47BEC70EC2CEF94B16584131D26BD98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +725,8 @@ VA - Party Fun Summer (2015) [FLAC|track+.cue]<Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:DBB80FF493CF9EDE059F5BED5F891668DDB8BD11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,139 +755,7 @@ Ultimate - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, Disco, Funk-Soul
 magnet:?xt=urn:btih:87CC40090682755B1209B3CF196C7700DE1D02C8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319019   (488543) от 09.08.2019
-
-VA - 80's Dance Story Original Italo Hits (2010) [MP3|320 Kbps] <Italo-Disco, Hi NRG>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary Low - You Are A Danger (Original Extended Version) (8:46)
-02. Topo & Roby - Under The Ice (Original Extended Version) (7:12)
-03. Paul Sharada - Dancin' All The Night (Original Extended Version) (6:20)
-04. Bo Boss - Tequila (Original Extended Version) (6:26)(   Читать дальше...   )Жанр: Italo-Disco, Hi NRGПродолжительность: 08:26:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A8CDDBE22F52C8DF61E53C3E5E8E85A31D97905
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319031   (488871) от 09.08.2019
-
-Piero - Welcome Piero (1978) LP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_488871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jalousie (5:02)
-02. Angelina (4:46)
-03. Fly Away (4:05)
-04. Kriminal Tango (3:47)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:28:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:131B2C60055A15417080F0AA67C26487A5CFC90C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404877   (489403) от 27.08.2020
-
-Чернила для 5-го класса - Побег (1999) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Письмо (8:18)
- 02. Я тебе объявляю войну (5:29)
- 03. Беглец (8:07)
- 04. Побег (6:16)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8C4D12EB72D98433284CB06E450D3898C26CF1C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158470   (489792) от 17.08.2017
-
-Наташа Ранголи и группа Леди - Снежный Мальчик (2017) [DSD2.0|5,64MHz/1bit|image+.cue] <Pop, Disco, Dance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диск-1 (57:29)
-
-01. На Дискотеке (версия 1)
-02. Этим Летом(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 01:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1276CD7AA5452258ED642506F69D50966AF8496F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243665   (489980) от 28.08.2018
-
-Eros Ramazzotti - The Greatest Hits '99 (1999) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Electronic, Hip Hop, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_489980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terra Promessa Featuring – Icy Bro            (4:01)
-02. Cose Della Vita (Can't Stop Thinking Of You)
-   FeaturingЖанр: Electronic, Hip Hop, Rock, PopПродолжительность: 01:13:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763B36E5FF97ACA679FD4456138B83FBE42F8A05
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

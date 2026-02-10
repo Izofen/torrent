@@ -19,6 +19,8 @@ BitComet - это функциональный, быстрый и простой
 magnet:?xt=urn:btih:BCA8EAA2AA4521FAD72CD4DD85AACD67DA684D9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:BCA8EAA2AA4521FAD72CD4DD85AACD67DA684D9B
 ```bash
 magnet:?xt=urn:btih:DD15BCCA590E94BBE647A7D29F2D22E91FFDC664
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:19C160B14A85B3E3DC313BF7BDF75D1FC387AB73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Draw.io 26.0.9 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6AD6500961977022EF263E13924F0C54E5B854E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Subtitle Edit - редактор субтитров. При помощи это�
 magnet:?xt=urn:btih:FC20D4518ED5B891BC9EDB23658C70E3E2DA21F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:A830158BA3240A4AE76D05267CAB90D42213D8F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 magnet:?xt=urn:btih:A96B617677FB28347330AA4149FE849B99D4577C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Opera One 116.0.5366.71 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CFEAFFF2EDCABC7044DE9DE0C27795245269168A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 magnet:?xt=urn:btih:D9795EE6A49EA0AC360364477701E61F5D19D0E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 ```bash
 magnet:?xt=urn:btih:B06C7A590B4CF85F172D6C5A2015625312EC195A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ PdfSAM - бесплатная и простая в использовании у
 magnet:?xt=urn:btih:B09022CDC92586AB09EF1D4F4503889DBAA7F049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Freemake Video Converter - это бесплатное универсально�
 ```bash
 magnet:?xt=urn:btih:37E54771D95BB06CB844963E1B16E21B88295AE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Auslogics Driver Updater – программа представляющая с�
 magnet:?xt=urn:btih:890D5C4F942432A7BA45B0FDF8ECFE7289124CC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Movavi Video Editor – универсальный инструмент для �
 ```bash
 magnet:?xt=urn:btih:107B33C11944CAD35EC266BE424B3A28396776BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:9B3AD3C7C0C5F138C9E306303EACB4C938C79C97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 ```bash
 magnet:?xt=urn:btih:0F675A1C7412A2A1D57DCA81C0F639B4DB89D25D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Sandboxie - yтилита для контроля за работой разли
 magnet:?xt=urn:btih:9B72915BCC3CB5B80D80CA3F0AC5C33937EA3E5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:3D2AF6A03684505552B9EEE8DCFBC5B354872856
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ FastCopy - инструмент для быстрого копирования/�
 ```bash
 magnet:?xt=urn:btih:BA75EE97CA1D380F32BD14FE45BA1C9D0D17C779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Camtasia захватывает действия и звуки в любой ч�
 magnet:?xt=urn:btih:EC3020878C51E5F91978CE44D09A246F15129289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ TweakPower – представляет собой единый графичес
 ```bash
 magnet:?xt=urn:btih:7DE7D28E7562E9F798F8C8C346D1BF08A55AC978
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ WinMerge является весьма полезной для определе�
 ```bash
 magnet:?xt=urn:btih:D42EF40CBD45D028B89EF7BAA86AFC2C5FAAE657
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ DVDFab – мощный, многофункциональный программ
 magnet:?xt=urn:btih:53C1A3B1B321D63C033DA7CDB1315FE66A595C69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:4B0490C97F70E9AF62CB17345D19FE18E773EAC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Wondershare UniConverter - простой в использовании виде
 magnet:?xt=urn:btih:2B8FED0A85B1AAB5046C3E697F9537961729B5CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:0D5EB18E554F2ECFFE96C3E0FB89BF01D443DE3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

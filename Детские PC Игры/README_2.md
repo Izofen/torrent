@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:92EB4446AB3E0ED283567E5FF5BCF043E050E781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:92EB4446AB3E0ED283567E5FF5BCF043E050E781
 ```bash
 magnet:?xt=urn:btih:F0E9D0A816A6FE92972D85766180CEB54C9761F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:F0E9D0A816A6FE92972D85766180CEB54C9761F1
 magnet:?xt=urn:btih:5FC57275280F89FAA4A92E012EB91A26818DCE89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Asterix & Obelix XXl / Астерикс и Обеликс XXL (Р) [7+ лет] [
 ```bash
 magnet:?xt=urn:btih:91C7009C8707D336159298F8349EC30C6343B0B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Over the Hedge / Лесная братва [10+ лет] (RePack) [Ru] (2006) | R
 magnet:?xt=urn:btih:7E85833E26F9DEBD0597148A1AFE2FCCC5A8983B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Biotopia / Биотопия [5+] (L) [Русский] (2003)
 ```bash
 magnet:?xt=urn:btih:DC2CE870216CD8374D6B30D066EFAD66E19002AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ JumpStart Advanced Preschool StoryLand - приложение из катего�
 magnet:?xt=urn:btih:B7E359F7B2B591739451C99C8088B03798F2FBA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Spidi Calculates / Гав! Два! Три! (2004) [Ru] (L) [4+]
 magnet:?xt=urn:btih:848A03F8269466F2DA228C2E01B5E5CE6858B600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:848A03F8269466F2DA228C2E01B5E5CE6858B600
 ```bash
 magnet:?xt=urn:btih:EB1ED609A96EF761440FC3A690235E5203A87F63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ WALL-E / ВАЛЛ-И [Multi3\+] (Р) 2008
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Sonic Generations [Ru] (Repack/u1.0.r6) 2011 | R.G. World Games
 ```bash
 magnet:?xt=urn:btih:57A9CA89568DAE5B48EF97A7D8762D3C91046FA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ The Ugly Duckling and Me! / Гадкий Утенок и Я (L) [Ru] (2007) [6-1
 magnet:?xt=urn:btih:D7437BEE2B88E24FD5F85C8A1239A748F233F587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:D7437BEE2B88E24FD5F85C8A1239A748F233F587
 ```bash
 magnet:?xt=urn:btih:5FCF7BBAA78AE864848FB731583A8555A493CB50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:5FCF7BBAA78AE864848FB731583A8555A493CB50
 magnet:?xt=urn:btih:3ED1555398CA6A086C62F781104A993AD97B994D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:3ED1555398CA6A086C62F781104A993AD97B994D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:3ED1555398CA6A086C62F781104A993AD97B994D
 ```bash
 magnet:?xt=urn:btih:2488D0ABA5874D9577388EFAEF9B2173BF59F56C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:2488D0ABA5874D9577388EFAEF9B2173BF59F56C
 magnet:?xt=urn:btih:1243845ED9CAAC1BBB7835EAFDDD49F1725536A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Catz 6 принесет вам море радости от обладания �
 ```bash
 magnet:?xt=urn:btih:4F30B8A7C81D425FE8363F6A3EF1A9D58230E500
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Alice and the Magic Gardens / Алиса и волшебные острова (P
 magnet:?xt=urn:btih:5DA3A23E82A7FD08E09D147B77C4D3E1AB1D3384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:5DA3A23E82A7FD08E09D147B77C4D3E1AB1D3384
 ```bash
 magnet:?xt=urn:btih:1BA170970D4C6931A6C24933765CCA8EB89477B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:1BA170970D4C6931A6C24933765CCA8EB89477B5
 magnet:?xt=urn:btih:2F6860F3A0733F6FE258025DF3B3F0FED0DED80D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Let's Explore The Airport / Для почемучек: Аэропорт (1995) [
 ```bash
 magnet:?xt=urn:btih:EDB0E0C8CF8187AB1191A3B65E4B993C4AEE35B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Let's Explore The Jungle / Весёлые приключения в Джунгл
 magnet:?xt=urn:btih:51D64DA2681957C4D5048A11CFB2A3501A552D30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ Let's Explore The Farm / Весёлая ферма (1995) [3-8] [Ru/En] Repack
 magnet:?xt=urn:btih:D593E2CB83073AB2D4B741479730DF6752E1352B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Sonic Generations [10+ лет] (2011) [Ru/En] (1.0.0.5/dlc) Repack Mizantrop1337
 ```bash
 magnet:?xt=urn:btih:8CE21A95A8AC54345A42C97E52A9A8520331E70D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +680,8 @@ Matematikus / Математикус [5+ лет] (L) [Русский] (2004)
 ```bash
 magnet:?xt=urn:btih:015D6941BA1838B26329CAFEDA8C8987CA1F243F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:52E199CAEE56232BF783BA8591396AABCB77A135
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:52E199CAEE56232BF783BA8591396AABCB77A135
 ```bash
 magnet:?xt=urn:btih:BB866013712774B37B23F5AFFA7970BDEE7A26DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ SkyEye - Digital God (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:9667DC99491248FAE3FB9BEBA036AB6B4F842351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:9667DC99491248FAE3FB9BEBA036AB6B4F842351
 ```bash
 magnet:?xt=urn:btih:5F470F47D8BE7C6F42196C566126679FF80A31F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:5F470F47D8BE7C6F42196C566126679FF80A31F2
 magnet:?xt=urn:btih:C71AA86B04E09E6A6912BBBA68F52462E696F49C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:C71AA86B04E09E6A6912BBBA68F52462E696F49C
 magnet:?xt=urn:btih:7665CE0109CBD9A43F38850B96179C271616D22E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:7665CE0109CBD9A43F38850B96179C271616D22E
 ```bash
 magnet:?xt=urn:btih:E9F59EFF9089A92BAD7C22D9B1AFA09FDBA6EED3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +218,8 @@ Head East - Full Circle (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock>
 magnet:?xt=urn:btih:35293DEF8080C2C1F18C5AE9C603A569CB81860C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +246,8 @@ Youth Pastor - Songs To Fuck and Kill Yourself To (2023) [FLAC 24/48|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:7F50CB587BD0B3E3529641E329C98611523CB8DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -258,6 +276,8 @@ Dark Lunacy - итальянская мелодик-дэт-метал групп
 magnet:?xt=urn:btih:D0F1A42C588792ABC38E3E14E8875D21EF7B94E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +305,8 @@ The Fusion Syndicate - Beautiful Horizon (2023) [FLAC|Lossless|WEB-DL|tracks] <F
 magnet:?xt=urn:btih:7B2B695F04614B64BD86ACABAB09CEECABEAA444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +330,8 @@ magnet:?xt=urn:btih:7B2B695F04614B64BD86ACABAB09CEECABEAA444
 ```bash
 magnet:?xt=urn:btih:972B5AB76D0202EC139C8C784BAEDF87825E0492
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +357,8 @@ magnet:?xt=urn:btih:972B5AB76D0202EC139C8C784BAEDF87825E0492
 magnet:?xt=urn:btih:193EA6E9AFAB329B6D71F50804457656EFE7E224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ magnet:?xt=urn:btih:193EA6E9AFAB329B6D71F50804457656EFE7E224
 ```bash
 magnet:?xt=urn:btih:E463F10A62EE41896FD4331FC331A435EB3676F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +412,8 @@ magnet:?xt=urn:btih:E463F10A62EE41896FD4331FC331A435EB3676F3
 magnet:?xt=urn:btih:4160A44E75AD2E1B511D78EAF35509F4EAB5682D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:4160A44E75AD2E1B511D78EAF35509F4EAB5682D
 ```bash
 magnet:?xt=urn:btih:BADA50DC5F1D047BCD05EE7DE73A5E39C06F3DFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +467,8 @@ Nuclear Power Trio - Wet Ass Plutonium (2023) [FLAC 24/48|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:0A4906CB39884A281D1A82525FFA9FD001CE6DC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +495,8 @@ Haunter - Tales of the Seven Seas (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, P
 ```bash
 magnet:?xt=urn:btih:C37A4061291F42BBC00DD37A45A113B18824B948
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +525,8 @@ The Boatsmen - Hard Livin' (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:539EAED96CBC9BF2A549F79E580C9D8B4F238DB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +554,8 @@ Demondrug - All Departures (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, P
 magnet:?xt=urn:btih:A3AA25D223456131D6A6F6F0D37BC250AEE7EA5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +580,8 @@ magnet:?xt=urn:btih:A3AA25D223456131D6A6F6F0D37BC250AEE7EA5F
 magnet:?xt=urn:btih:18516060B23374858DBB92162C558EDAA75A4328
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +605,8 @@ magnet:?xt=urn:btih:18516060B23374858DBB92162C558EDAA75A4328
 ```bash
 magnet:?xt=urn:btih:0BFA3CE9C3A865B4EF3F0566D253A992ABB7F676
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +635,8 @@ SkyEye - Soldiers Of Light (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:16FD6BEEB47E1B8006AB3C23A7BE5860C113074E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +660,8 @@ magnet:?xt=urn:btih:16FD6BEEB47E1B8006AB3C23A7BE5860C113074E
 ```bash
 magnet:?xt=urn:btih:AE2C54815AB4C92428B2A802E36CD293C764D640
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +687,8 @@ magnet:?xt=urn:btih:AE2C54815AB4C92428B2A802E36CD293C764D640
 magnet:?xt=urn:btih:CA40CF3E3AC68735B15C932460FA7DE5DE480F3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ Colorfy - это раскраска, призванная помочь вам у
 ```bash
 magnet:?xt=urn:btih:3112D4F30BBB3958AE28CC7B21EA6D86B1A4190C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

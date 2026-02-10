@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:8D3BF0A43CF6A35E8767F238BA74BB1AEDCA8B7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - 100 Disco (2019) [MP3|320 Kbps] <Disco, Funk, Soul, Pop>
 ```bash
 magnet:?xt=urn:btih:E41D56FAE4842ACAC1A8DD21E249AEBF302F2D07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ KAZKA - NIRVANA (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:07514200EE33BD6D60ED237351D4637D01092230
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:07514200EE33BD6D60ED237351D4637D01092230
 ```bash
 magnet:?xt=urn:btih:F2F41D1BF6675A734EFB21E7286282CFB0FB9CEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ Sarah Brightman - Gala: The Collection (2016) Limited Edition [MP3|320 Kbps] <Po
 magnet:?xt=urn:btih:301D24E282EA219EB09E55FBB587EF8F401802C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ Drezden - Эдельвейс (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electron
 ```bash
 magnet:?xt=urn:btih:E89F5721B6E3B1046F8AD6486128EBC9B42128E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +195,8 @@ magnet:?xt=urn:btih:E89F5721B6E3B1046F8AD6486128EBC9B42128E7
 magnet:?xt=urn:btih:E3BF664F8E04A365009B8931C38A1C6F5B7AE2E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +223,8 @@ magnet:?xt=urn:btih:E3BF664F8E04A365009B8931C38A1C6F5B7AE2E3
 ```bash
 magnet:?xt=urn:btih:630F2DCAAA6789F1720FEBA88B337559DEF6FD11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ magnet:?xt=urn:btih:630F2DCAAA6789F1720FEBA88B337559DEF6FD11
 magnet:?xt=urn:btih:9D0AE1ABC034BBE2735D2CF084124A6D0B7F3718
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ Big Pig - You Lucky People (1990) [MP3|320 Kbps] <Electronic Pop Rock, Funk, Fem
 ```bash
 magnet:?xt=urn:btih:D14EB332A8C76988FBACF8BEAE5F570B7B13326B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ Big Pig - Bonk (1988) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop, Funk>
 magnet:?xt=urn:btih:2A730AAAEF075076F90E4AF5A03CBF7DE393E446
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +339,8 @@ VA - $uper DISCOteka 70s/80s (2015) 5CD [MP3|320 кб/с] <Disco, Pop, Dance, Ba
 ```bash
 magnet:?xt=urn:btih:ACD5A3BCA9BB55AC589CA2459F5565C90DF32497
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +369,8 @@ CD1:
 magnet:?xt=urn:btih:414A6BBBE9D60D80AF3AD8DA467DD97BE36F668B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +397,8 @@ magnet:?xt=urn:btih:414A6BBBE9D60D80AF3AD8DA467DD97BE36F668B
 ```bash
 magnet:?xt=urn:btih:59AE63CE54C416BC57064EA38C69F0CF2CB3291B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +427,8 @@ magnet:?xt=urn:btih:59AE63CE54C416BC57064EA38C69F0CF2CB3291B
 magnet:?xt=urn:btih:F92C63B919F023102AC070F49EA27BF03BC65B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +455,8 @@ James Last - The Best Of Non Stop Dancing (1998) Remastered, Reissue, 2023, Poly
 ```bash
 magnet:?xt=urn:btih:E6FA51AE684128C07C4CFD16D9387646DBC1F323
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +485,8 @@ magnet:?xt=urn:btih:E6FA51AE684128C07C4CFD16D9387646DBC1F323
 magnet:?xt=urn:btih:D482A2C5EEA35F40210195B83CA0A1E02054CB98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +513,8 @@ magnet:?xt=urn:btih:D482A2C5EEA35F40210195B83CA0A1E02054CB98
 ```bash
 magnet:?xt=urn:btih:2D87C91C32E6789E087817CAE1AF02844F924637
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +543,8 @@ VA - Female Pop Ballads (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul>
 magnet:?xt=urn:btih:B5E31E4EA3F0EAF5DB7B6434238B380EFF06E7C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +571,8 @@ James Last - The Best Of Non Stop Dancing (1998) Remastered, Reissue, 2023, Poly
 ```bash
 magnet:?xt=urn:btih:CF5F82320E3FBE1DD3B68F38487CD12B36B39DD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +601,8 @@ magnet:?xt=urn:btih:CF5F82320E3FBE1DD3B68F38487CD12B36B39DD2
 magnet:?xt=urn:btih:167DEB9BB1A58C6E0ED56947C828280788E99023
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +629,8 @@ magnet:?xt=urn:btih:167DEB9BB1A58C6E0ED56947C828280788E99023
 ```bash
 magnet:?xt=urn:btih:9D15A91DBDE0D2E1004863F2004493896F26D4F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +659,8 @@ a-ha - Hunting High And Low (1985) 2CD, Remastered, 2010, Warner Bros. Records [
 magnet:?xt=urn:btih:6D8853AD8CA9F296272E5B76F858260940813F78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +687,8 @@ VA - Hit News Vol. 2 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, I
 ```bash
 magnet:?xt=urn:btih:5B0A91B5F73B198215B5CC338558D604032D1D2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,6 +717,8 @@ VA - Female Pop Ballads (2018) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:D7E23AEDFA3E17BE1F41F85BF180422740B846BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ VA - Hit News Vol. 1'96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, It
 ```bash
 magnet:?xt=urn:btih:7C054BFC941A6EC19DEB3D9C8E559E610A50D9A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

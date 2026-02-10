@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:A6682943ED1033F9E06513C54D89E64C0372628C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -53,6 +55,8 @@ Bonus Tracks:
 ```bash
 magnet:?xt=urn:btih:519EAA3BCA2185D83952882E939DC8C9D9604A0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -87,6 +91,8 @@ VA - Trance Symphony Volume 7 (13.03.2012) [MP3|320 кб/с]<Uplifting Trance, T
 magnet:?xt=urn:btih:A642287437652455C3C37DF5ACAD9DE792DB218B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +125,8 @@ VA - House Vip (09.03.12)[MP3|320 кб/с]<Electro House>
 ```bash
 magnet:?xt=urn:btih:56AA976E0F3AF34C06CCA9897FE25801DBB6C632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +161,8 @@ Al Hirt - Swingin' Dixie! (2010) [APE|Lossless]<Dixieland, New Orleans Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +186,8 @@ Al Hirt - Swingin' Dixie! (2010) [APE|Lossless]<Dixieland, New Orleans Jazz>
 ```bash
 magnet:?xt=urn:btih:0DDAD143511E483184D3A07EAAEDD5B4B129B148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +222,8 @@ Exhumed - All Guts, No Glory (2011) [FLAC|Lossless]<Death Metal, Grindcore>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +247,8 @@ Exhumed - All Guts, No Glory (2011) [FLAC|Lossless]<Death Metal, Grindcore>
 ```bash
 magnet:?xt=urn:btih:2B05217B0709E862823FB0F25DCCC81EB75902DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +283,8 @@ VA - House Vip (10.03.12) [MP3|320 кб/с]<Electro House>
 magnet:?xt=urn:btih:734BC679AC0865E1FF57A03C333154DE731C7EF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +312,8 @@ magnet:?xt=urn:btih:734BC679AC0865E1FF57A03C333154DE731C7EF9
 ```bash
 magnet:?xt=urn:btih:55B63125022FF44EAA77F63B05E3AB03E5E00327
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +348,8 @@ VA - Новинки Танцевальных Хитов. Зарубежный (2
 magnet:?xt=urn:btih:46F471664A695752F0E32E51E1A50B5E9615B61F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +382,8 @@ Annie Ross - Gypsy (1995) [FLAC|Lossless]<Vocal Jazz, Big Band>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +408,8 @@ Annie Ross - Gypsy (1995) [FLAC|Lossless]<Vocal Jazz, Big Band>
 magnet:?xt=urn:btih:DC3B25C084DB6BACB032F6EC4F466700C400CEB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +433,8 @@ magnet:?xt=urn:btih:DC3B25C084DB6BACB032F6EC4F466700C400CEB3
 ```bash
 magnet:?xt=urn:btih:6C33A56D8D30D25282A86AD21F1837EF4915D71A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +469,8 @@ Gianni Lee - Trill Wave Deux (2012) [MP3|320 кб/с]<Rap>
 magnet:?xt=urn:btih:8DAB867C906CDC3204746C97EC3FBD9B9315E905
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +504,8 @@ VA - Новинки: Хит-парад 50/50 1 (2012) [MP3|256 кб/с]<Рор>
 magnet:?xt=urn:btih:AD656F6C2FDF38051FE57463A7641CAB4300F98E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +529,8 @@ magnet:?xt=urn:btih:AD656F6C2FDF38051FE57463A7641CAB4300F98E
 ```bash
 magnet:?xt=urn:btih:8B4B1DE8DD673ACB1BB8EAA83D9498CB40C78C9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +565,8 @@ Hands Like Houses - Ground Dweller (2012) [MP3|~245 кб/с (V0)]<Post-Hardcore,
 magnet:?xt=urn:btih:9BA14969BA324BBBCA8A7074265C86BF7D38FA4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +600,8 @@ KRS-One - The BDP Album (2012) [MP3|185-205 кб/с]<Hip-Hop>
 magnet:?xt=urn:btih:5CD8C1A82FA38B45C7C9AC1F90A245286FC39759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +625,8 @@ magnet:?xt=urn:btih:5CD8C1A82FA38B45C7C9AC1F90A245286FC39759
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +661,8 @@ Dengue Fever - Cannibal Courtshop (2010) [MP3|320 кб/с]<Rock, Surf,  Rock Psy
 magnet:?xt=urn:btih:6FC55551D34D91330C60F0159484C1873C069143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +693,8 @@ DJ GraF aka Slava -  Sabotage (2012) Год: 2012
 magnet:?xt=urn:btih:CB607DBEBE98168F51B1149F0FA33F54913236D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +718,8 @@ magnet:?xt=urn:btih:CB607DBEBE98168F51B1149F0FA33F54913236D4
 ```bash
 magnet:?xt=urn:btih:426643428966A682750F390048EF3B3A7B322DB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -708,6 +754,8 @@ CD1
 magnet:?xt=urn:btih:023FDB3263AA40AA171314FE87F744929CD71343
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -734,6 +782,8 @@ magnet:?xt=urn:btih:023FDB3263AA40AA171314FE87F744929CD71343
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -757,6 +807,8 @@ magnet:?xt=urn:btih:023FDB3263AA40AA171314FE87F744929CD71343
 ```bash
 magnet:?xt=urn:btih:FF14DE7ECD45B4AA1713525BD9201FCB9C41185F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

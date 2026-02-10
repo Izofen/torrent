@@ -22,6 +22,8 @@ VA - In Search of Sunrise 18 (Mixed by Markus Schulz & Matt Fax & Dennis Sheperd
 magnet:?xt=urn:btih:832B2BE7867EB4200F35609F53EB39F596141A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Nils Hoffmann - A Radiant Sign (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hou
 ```bash
 magnet:?xt=urn:btih:262D11826A5D9087651A24FF3B71D86FE7F2B8F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Carpenter Brut - Leather Terror (2022) [FLAC|Lossless|WEB-DL|tracks] <Darksynth,
 magnet:?xt=urn:btih:79FE3E5EF5A47EFBA0FF36D538549A70383E273C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Swedish Electro vol. 4: The Unsigned (2016) [MP3|320 Kbps] <Synthpop, EBM, 
 ```bash
 magnet:?xt=urn:btih:45BB851F053518D9E1F050F597FA06AA6BEAE645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Erotic Yoga Vol.2 (Deluxe Chill out for Special Moments) (2016) [MP3|320 Kb
 magnet:?xt=urn:btih:9E4A3882C68D35B7B55B189FDB79643F8D241EEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Khen - One Day Of Independence (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House,
 magnet:?xt=urn:btih:943EDEAA2D64305AA92B80FF797C5532C5042B39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ D.Y.A - Do It (Single) - 2016 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep Ho
 magnet:?xt=urn:btih:74748373A684EBD566D3F2ED6A7BBB83925679F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ VA - 5 Years Diynamic (2012) [FLAC|Lossless]<Tech House, Deep House, Minimal Tec
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ VA - Lounge Cafe Supreme Vol.2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 magnet:?xt=urn:btih:5A850DB2DF251B2CCEB958CFC47EBA9CC4EB3546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ LowXY (LX, Mordexes, Xovlex) - Discography 17 Releases (2016-2017) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:198D8F5FA3B7703544E08C1F67A4F9E0063C4E28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +304,8 @@ VA - Rewind To The 80s: Germany (2016) Compilation [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:C713027B390760E619132D85B8B70358655D0CA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +332,8 @@ CHEjU (aka Wil Bolton) - Discography 20 Releases (2004-2009) Boltfish Recordings
 ```bash
 magnet:?xt=urn:btih:380383B6D13CF44E588B0BD68D8AFA48570B7BC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +362,8 @@ VA - Best of Chillout Vol.07 (2018) [MP3|320 Kbps] <Chillout,Lounge>
 magnet:?xt=urn:btih:49F290B11670BE1A13C2EAF70EC74CFEEE8B39A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +390,8 @@ Tantric Sexuality Masters - Sexy Chillout Beats for Lovers 2020 [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:80797382FB48D82DD92B5A1C114BD155FB69A2E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +420,8 @@ Pulsarum - Discography 2 Releases (2020) AstroPilot Music [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:4FBC65667D3C1B71FA9214488E3D99D61028E441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +448,8 @@ Vector Seven - Electric Blood (2020) [FLAC|Lossless|WEB-DL|tracks] <Darksynth, C
 ```bash
 magnet:?xt=urn:btih:330ABF1B3D6DFB4601974AD528D4EF8847C35DF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +478,8 @@ VA - Amsterdam Dance Essentials Trance (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:8950F8879A3E1C7AFACE13485FC11B85226A3A4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +506,8 @@ Sciama - Illusion of Separation (2020) Auxiliary [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:092613C8B3B39FD72C68E8F5FFFBE79EF9FE4EFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +536,8 @@ Tomas Senkyrik - Fond (2020) Slowcraft Records [FLAC|Lossless|WEB-DL|tracks] <Am
 magnet:?xt=urn:btih:18ABD62DB079FDEC45E09A0A4A067E80467E7BE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +564,8 @@ VA - The Sacred Rage (2020) Morphine Records [FLAC|Lossless|WEB-DL|tracks] <Expe
 ```bash
 magnet:?xt=urn:btih:E4B9A8590666C2B96F2F5C6441C7663424920B43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +594,8 @@ VA - Summer In Space Vol.5 (2022) (2CD) [OGG Vorbis|485 Kbps] <Synthpop, Spacesy
 magnet:?xt=urn:btih:DEC241F35A21B021EA2567B367CCC530AE85B117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +623,8 @@ Ledina Celo - Can U Touch Me Baby (WEB) (2012) [MP3|320 кб/с]<House, Dance>
 magnet:?xt=urn:btih:9539FDC3FD02B3F156DC00BF752038838CF5251A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +648,8 @@ Arms and Sleepers - Discography 66 Releases (2006-2020) Expect Candy, Fake Chapt
 ```bash
 magnet:?xt=urn:btih:E062AA2BD53C015E5CC57E10CAFFF1F74562916E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +678,8 @@ Cervello Elettronico - Collection 10 Releases (2007-2020) [FLAC|Lossless|tracks+
 magnet:?xt=urn:btih:5118AFF82235E0A7261F41A9B5F322A9B8F37306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +707,8 @@ Ferry Corsten - Hello World (2016) [FLAC|Lossless|image + .cue] <Progressive Tra
 magnet:?xt=urn:btih:232DC029E416E188479ADF7D23DE4C39F7AD89AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -685,6 +735,8 @@ VA - Armin van Buuren - Universal Religion (2008) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:C2E2EEF0D598BE297B35677647F99D9F4E8FDBFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

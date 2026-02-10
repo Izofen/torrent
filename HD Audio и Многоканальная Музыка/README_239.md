@@ -1,3 +1,32 @@
+###  Публикация: 1038473   (606196) от 28.07.2016
+
+Bryan Adams - Reckless (1984) 2014, A&M [DTS-HD MA, LPCM, Dolby TrueHD 2.0, 5.1|96/24|Blu-ray] <Rock, Pop Rock, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stereo Mix 2014 - Remaster
+  5.1 Mix - Original album
+01. One Night Love Affair
+02. She's Only Happy When She's Dancin'(   Читать дальше...   )Жанр: Rock, Pop Rock, Soft Rock, Hard RockПродолжительность: 01:04:11 + 00:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17EC9358DFC0B9F6F8BB89AE6D7DEE208AD76B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038520   (606201) от 28.07.2016
 
 The Rolling Stones - Exile On Main Street (1972) 2013 [DTS-HD MA, LPCM, Dolby TrueHD 2.0|96/24|Blu-ray] <Blues Rock, Classic Rock>
@@ -22,6 +51,8 @@ Exile on Main St. (рус. Изгнанник на Главной улице) �
 ```bash
 magnet:?xt=urn:btih:888BE73BAA3576213F9F48C752C8F44B3F2FA48C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -52,6 +83,8 @@ Crime of the Century — третий студийный альбом брита
 magnet:?xt=urn:btih:55A1EDC6D7C1BC4AFABC08E7B44C48D0A78F2230
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -78,6 +111,8 @@ The Traveling Wilburys - The Traveling Wilburys Collection (2007) 3LP Vinyl Boxs
 ```bash
 magnet:?xt=urn:btih:D59E7FC728411C25A96B48DACBD0DD5759D573FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -106,6 +141,8 @@ Written-By – Meacham, J. Gray(   Читать дальше...   )Жанр: Jaz
 magnet:?xt=urn:btih:8150C1AF10A4FE3A53FF560DA9DB217CA0F3E2B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -133,6 +170,8 @@ magnet:?xt=urn:btih:8150C1AF10A4FE3A53FF560DA9DB217CA0F3E2B1
 magnet:?xt=urn:btih:6061A21F70283F17B60FCDFB48696300F2ED176D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +196,8 @@ magnet:?xt=urn:btih:6061A21F70283F17B60FCDFB48696300F2ED176D
 ```bash
 magnet:?xt=urn:btih:47321DCFF92100F0C1DCB192C08E1FA48E574E34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +226,8 @@ A4	Нет, Мой Милый(   Читать дальше...   )Жанр: PopП�
 magnet:?xt=urn:btih:D957A9BE4899BF3A7B1CD7B2A584E084D6AC463C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +254,8 @@ B2 Будь со мной - Группа "Братья Дуби"Жанр: Pop Ro
 ```bash
 magnet:?xt=urn:btih:F8701F53B77DB1CE65C35EE19C6B025B7A60C681
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +284,8 @@ VA - Rock Линия (2004) [FLAC 2.0 16/44,1|image+.cue (MC Rip)]<Rock>
 magnet:?xt=urn:btih:A2CA95F9EB30DDD9BDF6D73F28E9E700EDFF1BBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +312,8 @@ Written-By – Englemann, GlazerЖанр: PopПродолжительность:
 ```bash
 magnet:?xt=urn:btih:07B0A4F335979C66628A17454F13F21D74BD4B2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +342,8 @@ A4	Marvin Gaye & Tammi Terrell -	Ain't No Mountain High Enough(   Читать �
 magnet:?xt=urn:btih:DA7E8F2BECD8B6C041C5B1A5BEF52A5267F73396
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +370,8 @@ A4	Shine Through My Dreams(   Читать дальше...   )Жанр: Pop/Easy
 ```bash
 magnet:?xt=urn:btih:DD39C66E482673A37C083EF65F671EC48BD8C106
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +400,8 @@ Steven Wilson - 4 ½ (2016) [DTS 5.1|LPCM 2.0, 5.1|96/24|Blu-ray]  <Progressive 
 magnet:?xt=urn:btih:919F6BB56AD54ED5EBD0A575A362D421D048AC49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +428,8 @@ Empyrean Isles
 ```bash
 magnet:?xt=urn:btih:6DBCBD76B7F0DFDA7ED4018B609771A73FE6DBB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +458,8 @@ A4 How Can You Expect To Be Taken Seriously?(   Читать дальше...   )
 magnet:?xt=urn:btih:C3D48E4BEBFC353927225F77ADD54A0E6D98EE63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +486,8 @@ A3 Солнечные Дни(   Читать дальше...   )Жанр: Rock, 
 ```bash
 magnet:?xt=urn:btih:D5E5BB41649F6C276D99DCDB81EA2241CBA6C493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +516,8 @@ A4. Hooked On A Problem (4:59)(   Читать дальше...   )Произво
 magnet:?xt=urn:btih:D9400E4EF1B1EA5782302141DB7AFC5D2F29301D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +545,8 @@ Side A:
 magnet:?xt=urn:btih:D2FA0F9987DB1FEAACD7F52CA0CC2246BB0B02E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ magnet:?xt=urn:btih:D2FA0F9987DB1FEAACD7F52CA0CC2246BB0B02E9
 magnet:?xt=urn:btih:9526CDDB5AE1ED421D577C2F4A9E89F099C4E775
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +598,8 @@ magnet:?xt=urn:btih:9526CDDB5AE1ED421D577C2F4A9E89F099C4E775
 ```bash
 magnet:?xt=urn:btih:BB50483059032583F15526D0D569B0FA73B15DC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +628,8 @@ A4	All Right	4:01(   Читать дальше...   )Жанр: Synth-pop, Disco�
 magnet:?xt=urn:btih:4E6B9B50A0982929C243746FBAD88DA3B5FA5C83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +656,8 @@ A4	Gres Imperatriz Leopoldinense - Abc Do Carnaval À Maneira Da Literatura De C
 ```bash
 magnet:?xt=urn:btih:59AE3967469FF42A285440EB9241E02902912507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +686,8 @@ A4	Мой Путь · My Way(   Читать дальше...   )Жанр: Instru
 magnet:?xt=urn:btih:283E20E2AD4C0C598BE7D96DAC5AF35F018B2241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +714,8 @@ A4	Если Это Любовь • If It's Love(   Читать дальше...
 ```bash
 magnet:?xt=urn:btih:144B902D35787771A20BED814A6FD8C06452B448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,35 +744,7 @@ Ricky Martin & Christina Aguilera - Nobody Wants To Be Lonely (2001) [FLAC 2.0|4
 magnet:?xt=urn:btih:B7CC2854478CFE1F4CA45DFFB2832C3DBA08BF60
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007249   (612896) от 20.04.2022
-
-Louis Armstrong - Louis Armstrong In Prague (live at the Lucerna Hall 1965) 1983 [FLAC 2.0|96/192|image+cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_612896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	When It's Sleepy Time Down South
-02	The Bucket's Got A Hole In It	2:30
-03	Tiger Rag	1:10
-04	Indiana	4:05(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:46
-Издатель (лейбл): Panton (Czechoslovakia)
-Номер по каталогу: 8015 0075
-Кодек: FLAC (image + .cue)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25F4519AE89CB7FB61F29A1E98178D96B090DAB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

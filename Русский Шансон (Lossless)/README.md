@@ -23,6 +23,8 @@ VA - Шансон премьера 2025 сентябрь (Новые песни.
 magnet:?xt=urn:btih:677B955C5D70BCF104EF90852D0510E9A4B9683B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - 50 лучших хитов, Часть 5 (2025) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:3C57E2DDBC81EA1109697794A93602566773FD96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ VA - Новые хитовые песни 2025, Часть 9 (2025) [FLAC|Lossle
 magnet:?xt=urn:btih:8E71BEB91BC97AAB969DC49DBC9A6DBC96DE7F7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ VA - 50 лучших хитов, Часть 4 (2025) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:4CDDF069A129EEE686F3F7DEFAA08A6D2081C907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ VA - Русская 30-ка хитов 16 (Новые русские песни)
 magnet:?xt=urn:btih:471D57C228BCAF3286C5D920823DE8E5D8F4F994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ VA - Лучшая дискотека шансона - 20 (2025) [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:4F05FCEA8F810D89AE66D92210669B11CDE2C4D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ VA - Новые хитовые песни 2025, Часть 8 (2025) [FLAC|Lossle
 magnet:?xt=urn:btih:0CA690690A553DE8695CE9A60776C66CB522DD17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ VA - Новые хитовые песни 2025, Часть 7 (2025) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:F324DB783CE4E4EC00F73C9E302BDC1AA3AD2BF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +255,8 @@ VA - Русская 30-ка хитов 17 (Новые русские песни)
 magnet:?xt=urn:btih:1A7E126C5D20270020F8D149F46B21A20268D659
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ VA - Новинки Шансона Жаркое лето.: Сборник бла
 ```bash
 magnet:?xt=urn:btih:AA71866CA954FA46CDBA6FCCC42D3C29D7793639
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +313,8 @@ magnet:?xt=urn:btih:AA71866CA954FA46CDBA6FCCC42D3C29D7793639
 magnet:?xt=urn:btih:F7141D7FB1B10341E108C5A0FA20E778D6DD15EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ magnet:?xt=urn:btih:F7141D7FB1B10341E108C5A0FA20E778D6DD15EE
 ```bash
 magnet:?xt=urn:btih:1C03D86F9F512AF56696681958B99D2EE4EF4C71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +371,8 @@ VA - Новинки лета Шансона: Сборник крутых пес�
 magnet:?xt=urn:btih:0C43073D3D28E1240B799DDE298C56C65077B67A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ VA - Песни от всей души женщины (2025) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:6E864B7906DD0F837DFD166F2357FB5ABBFB0244
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +429,8 @@ magnet:?xt=urn:btih:6E864B7906DD0F837DFD166F2357FB5ABBFB0244
 magnet:?xt=urn:btih:3FE3E84A2C64C9B0E55D0DFFEC67327656A2FA4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ VA - Шансон премьера 2025 август (Новые песни. Н�
 ```bash
 magnet:?xt=urn:btih:AF15B723E5DE2B9C862D7018AF0338A738C6A318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +487,8 @@ VA - Блатной Шансон (2025) [FLAC|Lossless|WEB-DL|tracks] <Шанс�
 magnet:?xt=urn:btih:C59718200913FD41B925286141EDB58132F4F197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +515,8 @@ magnet:?xt=urn:btih:C59718200913FD41B925286141EDB58132F4F197
 ```bash
 magnet:?xt=urn:btih:60D5C514D977017EA75DF77A0B24DEC827D7B192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +545,8 @@ VA - Блатной Шансон на отдыхе (2025) [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:59031DF145DA9D4F9557706909A660E95D619BBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +573,8 @@ VA - Самые лучшие хиты 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:8FC5BAF163C0589670D55DF94D4A8D3BE2B6E247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +603,8 @@ VA - Шансон премьера 2025 май (Новые песни. Новы�
 magnet:?xt=urn:btih:1D49D19448876AB20FC916140D426AD3B681F309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +631,8 @@ VA - Русская 30-ка хитов 15 (Новые русские песни)
 ```bash
 magnet:?xt=urn:btih:279F1F771BAA6021358F111D638BD076D4A0DB46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +661,8 @@ VA - Шансон под рюмочку (2025) [FLAC|Lossless|WEB-DL|tracks] <Ш
 magnet:?xt=urn:btih:79B5BC7D1CBCC7A92D41AD3131977E05F457E08D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +689,8 @@ magnet:?xt=urn:btih:79B5BC7D1CBCC7A92D41AD3131977E05F457E08D
 ```bash
 magnet:?xt=urn:btih:3EB05A8CA48563A32D5EDFA84BE0BC75D633A273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,6 +719,8 @@ magnet:?xt=urn:btih:3EB05A8CA48563A32D5EDFA84BE0BC75D633A273
 magnet:?xt=urn:btih:896DCCEC1DE632A275CF855449F4EDEC7123ED70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ VA - Шансон 90-х, Часть 3 (Избранные песни десят�
 ```bash
 magnet:?xt=urn:btih:81F3E6C863E733EA8013AC852D0B94D0DE40CB84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

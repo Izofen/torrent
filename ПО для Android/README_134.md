@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:2AE4F013D82ED9A8ADB6CF00EF6A1BC327DB3C9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ GnaCAD – отличное приложение для работы с черт
 ```bash
 magnet:?xt=urn:btih:FF9D310B1D415F54F99BCDFCD34197BE0FB6E0D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Folio - Каждый, кто использовал официальное пр�
 magnet:?xt=urn:btih:576404459800F2CFCB846AB754D6D7F46CABC9F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:576404459800F2CFCB846AB754D6D7F46CABC9F7
 ```bash
 magnet:?xt=urn:btih:A4A73A8710E1CA5C757D563FB935F908D044A0EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ MobiDic Chords – это иллюстрированный словарь акк
 magnet:?xt=urn:btih:75E579C531EEBAF96B3506E4C13D238027F55A33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Fender Tune - это приложение для точного тюнера с 
 ```bash
 magnet:?xt=urn:btih:4416390A5846D5CC74C2B1263EB4D4E4A97CF49D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Solar System Scope - представляет собой виртуальный 
 magnet:?xt=urn:btih:6550B0541E4F4DCD0FB4A1488B4C80E410F95C81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:6550B0541E4F4DCD0FB4A1488B4C80E410F95C81
 ```bash
 magnet:?xt=urn:btih:732B5DAC2B674F9141DAA6B4328F65FECB174391
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ IRPlus - IR-Remote (Пульт) v1.9.13 [Ru/Multi] (обновляемая)
 magnet:?xt=urn:btih:E8DF387BEB753D2C64870BB9DB99B803607FCAEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:E8DF387BEB753D2C64870BB9DB99B803607FCAEB
 ```bash
 magnet:?xt=urn:btih:003F15E38866F6BFC555B4B15226DCCF85AF0F37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:003F15E38866F6BFC555B4B15226DCCF85AF0F37
 magnet:?xt=urn:btih:CEAC1603D5D568E5B7BB4445414798BDCE669C17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ SUXOV v2.2.4 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4FC788686908137C31F1171C0E5FD999377AEB83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ MobileSheets - это лучшая программа для просмотра 
 magnet:?xt=urn:btih:A7019177FEE67B06D6080EF88DE796DB4ADCB770
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:A7019177FEE67B06D6080EF88DE796DB4ADCB770
 ```bash
 magnet:?xt=urn:btih:5CF8052AEA41F02CF189FD9336BFB7E4F83427FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Copy Text On Screen v5.0.7 [Ru/Multi]
 magnet:?xt=urn:btih:F2C8D47412569B982E5B4536FB3029588B10B4D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ PhotoRoom v4.1.0 Mod by CXV [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4751A3707C38BF2BB37E3543CCA168FA13C9EED7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Cozy Timer - Sleep timer v4.0.9 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:4C4F2DC2DF025C6148A66FA43442D60FD15D1B96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Channel — ваша идеальная платформа для безгран
 ```bash
 magnet:?xt=urn:btih:E85D4F417F7B1A6C43D8CB81D897A34EF453EA3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ VivaVideo - это простой в использовании видеоред
 magnet:?xt=urn:btih:A5E368BAAAA9E6F51F4CCB824C63F579A9A61279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Listen Audiobook Player v5.3.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8E2A7E4AA19CE9284DE6172231E5684DE7A9C8D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Yaplakal.com — популярное информационно-развлек�
 magnet:?xt=urn:btih:7B2558F80C60A342BA89D2D62D7D921915A2F25F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:6C9C8B327693DD2EF6B0EE5175B83D2CBECF6956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Photo Editor - уникальная программа для обработки
 magnet:?xt=urn:btih:89A581C9CB8C97119E821993ACF785EA82369C01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 ```bash
 magnet:?xt=urn:btih:ACBD370B58BA796D271D9EFAA33921B73D007283
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:C2FE4EA578C087528B82EE4BC3D24E51EADB2E75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:6EAA71D24143283D3462C8F22C1A092604038EE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

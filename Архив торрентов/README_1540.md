@@ -20,6 +20,8 @@ Soft Organizer - утилита для полного удаления нену�
 magnet:?xt=urn:btih:B2215E180CFE365510B66099151D272EC1CF6B1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Speccy – компактная программа от разработчико
 ```bash
 magnet:?xt=urn:btih:0345CC2ECB716943FA2A2BC0D00E37516863CF6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Kerish Doctor — комплексное решение для автомати�
 magnet:?xt=urn:btih:197DCDDDA8BA8564F545AC02E0582847C87F9AB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:795E77E03E9A9C54DBF2DB302F09D5DFDBD7BB52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Opera Crypto Browser 99.0.4788.65 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:406051E4D156E7C080E3E5777A7E9FAF5A80354A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Smart Driver Manager - это быстрый, простой и безопасн
 ```bash
 magnet:?xt=urn:btih:B42410CC4B7F312F719ACE83CB833037EB7504FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Total Commander является самым мощным и стабильным
 magnet:?xt=urn:btih:A17115C22565FDD3661A90CE69493D8DD229B75E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Process Lasso позволяет вручную или автоматическ�
 magnet:?xt=urn:btih:2A64E01C2C271F9E94A56E8ABFED07D8BDDDDF0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:31AC74F3E3A123B728113EC0E8A69653200BABA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Perfectly Clear — приложение, которое позволяет вс
 magnet:?xt=urn:btih:6D1E958602B65B34063EBEA7F5230425195206BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:F807A23997947C962CD494DF7E2840B2F1B3DBD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ AIDA64 - утилита является мощным средством для 
 magnet:?xt=urn:btih:3D647D63AE682E433C01751C2ED931D82CF606D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Planner 5D Premium 4.9.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:ED2264A9DD5688BBB2C4624DE47EB01D0A28EEFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ VMware Workstation — популярная программа для созда
 magnet:?xt=urn:btih:D33DB094D9D4D623F371F67B121BFD0C343176A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:4B96DA510D18F129CDFF75E30F6F109C156F8004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ ABBYY FineReader Pro для Mac распознает документы на ( 
 magnet:?xt=urn:btih:8A142891160F031798830A5B688516BDF3691DAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ macOS Monterey открывает новые возможности для об�
 ```bash
 magnet:?xt=urn:btih:B9C9FE5512697FA6F802CD61213ED2F1E1CBAF0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ NetSetMan - бесплатная и удобная для повседневно
 magnet:?xt=urn:btih:C000FC8635B456FEA1B38BA6912BDDE296E0A3B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ VirtualBox — является мощным продуктом виртуали
 ```bash
 magnet:?xt=urn:btih:D6B29CB2A1FC6CC4FAE01B61ECC8BB05878EB4E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:28DC07A7500D3788C6AEFBED59A7751C45987A37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ PowerDirector - самое быстрое и передовое программ
 ```bash
 magnet:?xt=urn:btih:3B4FAB12AFBB59B100C861D461597DDFFB3D04F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:3B4FAB12AFBB59B100C861D461597DDFFB3D04F4
 magnet:?xt=urn:btih:B0385211EFB7BE5E8255DA577E42622F65C925DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ AmanVPN - качественное программное решение как 
 ```bash
 magnet:?xt=urn:btih:F5F4544B127117E293D389C50A6C951460B47F82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:F5F4544B127117E293D389C50A6C951460B47F82
 magnet:?xt=urn:btih:9C6FB11583662B4D6372A185E381292BF9CE6A50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:9C6FB11583662B4D6372A185E381292BF9CE6A50
 magnet:?xt=urn:btih:6AC1AD9ABD6298B3BE5472450BB5A4A3E1AD97C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Tor Browser Bundle 11.5 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:F6AF54955D07778B9DBF9EF885D7D02A9D84548E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

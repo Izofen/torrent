@@ -19,6 +19,8 @@ R-Drive Image — является эффективной утилитой дл�
 magnet:?xt=urn:btih:C0FF764D17C4703ECDFA404E8FECC0FD8705622E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Affinity Photo — обеспечивает более высокую скоро
 magnet:?xt=urn:btih:F2E453E2F7C7A2467BB6198A579AA38FFF279368
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 ```bash
 magnet:?xt=urn:btih:0D150D7B37A7A313D491EA21EC83387FF0BE48C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ InnoExtractor - это мощное приложение, которое пом�
 magnet:?xt=urn:btih:D116E98FD52654097DF79CD3B9BF98F83B51EDA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Audacity - свободный, простой в использовании зв
 ```bash
 magnet:?xt=urn:btih:5DB68832EF5DF935B0B13F655DA875BFE86C61E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 magnet:?xt=urn:btih:47A15F3FE43461663D6601B51C965655C5FC6516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Music Collection - неплохая программа для создания �
 ```bash
 magnet:?xt=urn:btih:596E02D46A3A6259D2D76E5C5047EE0E37787A28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ MediaHuman YouTube Downloader 3.9.9.95 (0309) RePack (& Portable) by Dodakaedr [
 magnet:?xt=urn:btih:5871AEBF6CAB3E89A21A475B47CCFE4C257D93CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Affinity Publisher - программное обеспечение нового 
 ```bash
 magnet:?xt=urn:btih:1018B9AE040BE98B0D70BD02D4153041B706FD1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:1018B9AE040BE98B0D70BD02D4153041B706FD1F
 magnet:?xt=urn:btih:02BBE1BA6D60828EAEF42D91A15AC51B13311529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Affinity Designer — самое быстрое, удобное и точное 
 magnet:?xt=urn:btih:48746C8C226F5A8176B92371F9CB8472D7A5305A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ DataSpell — IDE для Data Science. DataSpell создан специальн
 ```bash
 magnet:?xt=urn:btih:89259169FA9F7E36DE70B4944A3832BA90236A3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Camtasia захватывает действия и звуки в любой ч�
 magnet:?xt=urn:btih:2458D33E4915D8BFF234571559031B44C53AF635
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:2458D33E4915D8BFF234571559031B44C53AF635
 ```bash
 magnet:?xt=urn:btih:CB8F38BF27B16C03900ECA3863D30060686118D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Rider — это кросс-платформенная интегрирован�
 magnet:?xt=urn:btih:CC340986D3DD10E5B1BFBF5E1C7A21244B812CA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:1E04CFCC1916FE8CBCAD63A6C479B6EFF5E344FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Opera One 113.0.5230.62 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:AA3BD656A799C6BF3E7D736EB9FE9B07D2452107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:EF065DB7CB1A8DF372AB41BB3AD91195B167F55C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Aiseesoft Screen Recorder 3.0.56 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:43B8A820BA71A7B2E9829950D7D404088DC56E98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ IDE GoLand предлагает широкий спектр инструмент
 magnet:?xt=urn:btih:BC2D61CA7F4FD145453E14FBDD6700FEC7F248B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ JetBrains DataGrip - это инновационное программное о
 magnet:?xt=urn:btih:04C76D238182DC73312DD43228DC7B88E9FF3092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:7F29D04FB7DCDF85C4001D03EE4F42D78BD27AB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ NIUBI Partition Editor – программа для простого и над�
 magnet:?xt=urn:btih:4FCF2DEFF2414C3B669A3151441963F0FE261117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Rosetta Stone: Изучение языков 8.27.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:565D734FB9EB21E75D3E3D6A0D2E9DE89ABDB731
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Rainmeter - утилита для мониторинга ресурсов ком
 magnet:?xt=urn:btih:93559569316FB77A1811854A0E2480D0BCEBC06D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:044FA417A355C6BC7678BFC213BC0D4ADDCE22CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

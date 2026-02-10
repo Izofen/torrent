@@ -22,6 +22,8 @@ Ancient Ceremony — немецкая симфо блэк-метал-групп�
 magnet:?xt=urn:btih:B7F6C776EE1B96B68C075E188564D25862C5161E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Temperance - Hermitage - Daruma's Eyes Pt. 2 (2023) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:05DBE93E94069F43705D067846AF8007D97C3F01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Care Of Night - Reconnected (2023) Japanese Edition [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:4BD5C8E0DC606376C6BAD3912C34DAC5661B2062
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Jessica Williams - Arrival (1994) Jazz Focus [FLAC|Lossless|tracks + .cue] <Post
 magnet:?xt=urn:btih:0DBF64D4866689EAB0D02D63D55148A1A5A9ECD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:0DBF64D4866689EAB0D02D63D55148A1A5A9ECD1
 ```bash
 magnet:?xt=urn:btih:29BA2CBF48AFA9C9B7EF31AD32DD023145BE6DC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Revlin Project - Beyond The Dreams (2023) [FLAC|Lossless|image + .cue] <Melodic 
 magnet:?xt=urn:btih:9511578A92F0E556662FBBD7CA4701F0E0E7BADB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Blacksilver - Blacksilver (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Ro
 ```bash
 magnet:?xt=urn:btih:E727318E8FC86BF085A9F86F65C39B8A46123381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ Terri Lyne Carrington - Money Jungle: Provocative In Blue (2013) Concord Jazz [F
 magnet:?xt=urn:btih:BBE0315A946F64F0ED0B666CBB33FE7B421EE687
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:BBE0315A946F64F0ED0B666CBB33FE7B421EE687
 ```bash
 magnet:?xt=urn:btih:19B7DB2D2A3530B34A539054BB6997A603ACEF63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +277,8 @@ Crazer - ФАКты (2022) [FLAC|Lossless|image + .cue] <Thrash Metal>
 magnet:?xt=urn:btih:0F0545AF17B3E8F7692C2EA37F0DD4BB3D416B42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +305,8 @@ Rubicon - Aliapolis (2023) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Meta
 ```bash
 magnet:?xt=urn:btih:320416B29E4D7026BFAAB0FAB8F315013561702B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +335,8 @@ Lisa Hilton - Paradise Cove (2022) Ruby Slippers Productions [FLAC|Lossless|trac
 magnet:?xt=urn:btih:18459E336D4E663D71969075CDCCACD2EA12DEB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +362,8 @@ Google запустил режим ИИ для поиска в России и �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +387,8 @@ Google запустил режим ИИ для поиска в России и �
 ```bash
 magnet:?xt=urn:btih:1B246B259AD06635738905F038051A6750E2708C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +414,8 @@ magnet:?xt=urn:btih:1B246B259AD06635738905F038051A6750E2708C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ Trials Rising — продолжение популярной мотоаркад
 ```bash
 magnet:?xt=urn:btih:C8F492BA1851B493E569E1CDEF570F34159D81EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +467,8 @@ magnet:?xt=urn:btih:C8F492BA1851B493E569E1CDEF570F34159D81EE
 magnet:?xt=urn:btih:6BD99ED6B44249CC26FC0A0D5CA4D5AFB5678335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ Revo Uninstaller Pro 5.4.3 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9A6A9A418C837E3B06BBCCABB5B82A12083654F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +519,8 @@ magnet:?xt=urn:btih:9A6A9A418C837E3B06BBCCABB5B82A12083654F1
 magnet:?xt=urn:btih:BB296C49DDF129BA2CC01079C74F241F0AA98CF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:C8C6F9C76FE96D96D62A41E867C71F3EA512602D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ Revo Uninstaller Pro 5.4.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:7809B7FF7CFB352F7318BF8DD04B2F251DBF6BBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:7809B7FF7CFB352F7318BF8DD04B2F251DBF6BBE
 ```bash
 magnet:?xt=urn:btih:F0EA8619424E58E7E62CDBD40D3287125B99AEAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:F0EA8619424E58E7E62CDBD40D3287125B99AEAF
 magnet:?xt=urn:btih:7605B5E7BC4E52E8C75128F1519BE69EB428EBFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ magnet:?xt=urn:btih:7605B5E7BC4E52E8C75128F1519BE69EB428EBFE
 ```bash
 magnet:?xt=urn:btih:4A430A27B22EFB150E3E4F7AE217B8E3D7D47291
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:4A430A27B22EFB150E3E4F7AE217B8E3D7D47291
 magnet:?xt=urn:btih:32DCE54E41CF0605261B43F45DDF9467DD33871F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:32DCE54E41CF0605261B43F45DDF9467DD33871F
 ```bash
 magnet:?xt=urn:btih:AEF5090D3770B13C462D07DE3930BB5AA57E544E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

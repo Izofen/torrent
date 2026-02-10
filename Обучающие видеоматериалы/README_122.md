@@ -21,6 +21,8 @@ Lynda.com | Dreamweaver and WordPress: Building Sites (Dreamweaver и WordPress:
 magnet:?xt=urn:btih:5AC08EF53FF9BC1587EE3D43C21A9DFB8454690E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Parker Walbeck | Become a Full Time Filmmaker (2016) PCRec [H.264/1080p-LQ] [EN]
 ```bash
 magnet:?xt=urn:btih:57A21667902E7336305BAA71BECC443CF3EA1D3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ MachDigital, Тимур Магомедов | MachDigital - Моделирова�
 magnet:?xt=urn:btih:BAB2D1CC87BE6094D42B78E98489D680427FF84A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:BAB2D1CC87BE6094D42B78E98489D680427FF84A
 ```bash
 magnet:?xt=urn:btih:1AC984B0CF8F70E12A5C9E3FDA5FA1DDFF4D6479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Skillbox, В. Устименко и др. | Профессия Финансов�
 magnet:?xt=urn:btih:555CFA52F41E7F3C975915C5A1D23241FD96AC33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Creative Shrimp, Luca Rood | Procedural Texturing: Blender Master Class (2021) P
 ```bash
 magnet:?xt=urn:btih:27CAC1CE916B767D624334AF5BA715505299154D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ Slurm (Слёрм), Марсель Ибраев и др. | Kubernetes: Мега 
 magnet:?xt=urn:btih:1AA6738B45EF6A958E48D8A10ACA6DAF0642A761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ Javabegin | Микросервисы на Spring Cloud (2022) WEB-DL [RU]
 magnet:?xt=urn:btih:3B802A837252F02CB429105B1638C1E7994C7132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ MonsterLessons, Александр Кочергин | Vue и Vuex - пишем �
 ```bash
 magnet:?xt=urn:btih:28FFCD3B0ADFC610598C569893567B7FBD60CC57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Skillshare, David Jaasma | Мастер-класс по системе част�
 magnet:?xt=urn:btih:7E849C8984B6B08017FF5A04CCCA6A749859E6BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ Udemy, Исмаил Усеинов | Frontend разработчик на HTML, 
 magnet:?xt=urn:btih:CE979726032B953444A20CF50C8A9EBD7CEC0816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Udemy, Никита Хохлов | Разработка Telegram ботов на
 ```bash
 magnet:?xt=urn:btih:7AD75CF04237B8B97136E9821A6DF4F53F89F4C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ CG Cookie, Kent Trammell | HUMAN: Realistic Portrait Creation with Blender (2021
 magnet:?xt=urn:btih:E492AC1BFF5A86F3E7729C74379D616D3DD2CD51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ iOS разработчик создаёт игры и приложения дл�
 ```bash
 magnet:?xt=urn:btih:37112C8AC040408631245782AF6BA82DB12288B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ Udemy, Дмитрий Безуглый | React + Redux 2020, с нуля до п
 magnet:?xt=urn:btih:0B512EABC3E6943E7F31B9ADCC726F3D9AB39EB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:0B512EABC3E6943E7F31B9ADCC726F3D9AB39EB0
 magnet:?xt=urn:btih:574944FD2C281738203CE3C67CB35ACC2CF98EFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ Digital Tutors, Floyd Bishop | Creating Animal Animations in Maya 2016 (2015) PC
 ```bash
 magnet:?xt=urn:btih:C2B6C73202C8F9A9B7E42ABFF8E9EF1237FB146F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ Udemy, Charlie Grubel | 3D Animation Basics To Full Body and Creature Mechanics 
 magnet:?xt=urn:btih:D3B8981DBB3F237DB032EA3C2DC4C1832F1B608F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ JavaScript-разработчики могут создавать графику
 ```bash
 magnet:?xt=urn:btih:3B140C4F371A4873D03AAAEA74F655BBC1491C81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ CGEvent | Подборка мастерклассов по трехмерке М
 magnet:?xt=urn:btih:96555C808496625A8232F16B32D4C13809B1959E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ CGEvent | Подборка мастерклассов по трехмерке П
 ```bash
 magnet:?xt=urn:btih:DB14B5E1FF1149AF273572782BD14D6994B4D551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:DB14B5E1FF1149AF273572782BD14D6994B4D551
 magnet:?xt=urn:btih:46D86272403EDC36CE5821AB7DD2DC4D32C106AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ Udemy, Tarkan Aguner | Python Real World Data Science Mega Project: Car Buyer Ap
 ```bash
 magnet:?xt=urn:btih:5E04339378BD504211E93226161B00D9ECBBD90A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ CGEvent | Подборка мастерклассов по трехмерке М
 magnet:?xt=urn:btih:4043056A129E41913C52B7F46A6401E0EB19F922
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ Low Poly Персонажи Allods Online. НЕ набиваем шишки
 magnet:?xt=urn:btih:3E01B3A735D34BABDFBCF680142469D88983F911
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ Udemy, Jesse E. Agbe | Learn Streamlit Python (2020) PCRec [En / En Sub]
 ```bash
 magnet:?xt=urn:btih:34B73744CAD3ABC4273BB71CA9297581A40B905E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

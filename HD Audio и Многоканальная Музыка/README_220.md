@@ -22,6 +22,8 @@ A4 Took It To The Limit 3:46(   Читать дальше...   )Жанр: PopП�
 magnet:?xt=urn:btih:B43F11E2BB300820044587F5FD4FB626F4C6113F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ A4 Where The Ending Starts 3:48(   Читать дальше...   )Жанр: Ele
 ```bash
 magnet:?xt=urn:btih:720C605DE80BE1B08DFCEC547486DF8D45F147DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Brutus — бельгийская рок-группа из провинции Ф
 magnet:?xt=urn:btih:B68979C160500C384C777A225E50F5DEED984C74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ A4. Highway For Fools (3:14)(   Читать дальше...   )Жанр: RockП
 ```bash
 magnet:?xt=urn:btih:54D11ACF87861C2638EE19720840D93F40467BF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Side 1
 magnet:?xt=urn:btih:AA4674BBA0A4F84D34D90A498E5DA0BD4B4B02F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ A4 One Way Love(   Читать дальше...   )Жанр: PopПродолжи
 ```bash
 magnet:?xt=urn:btih:E9FB27FB7B766CE67C7225563D6F90135AB16C77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ A4 Walk Like An Egyptian(   Читать дальше...   )Жанр: Pop RockП
 magnet:?xt=urn:btih:BF45F2685B4E84CE299C188819A9317B1595CA24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ A4 High Time(   Читать дальше...   )Жанр: Pop RockПродолж
 ```bash
 magnet:?xt=urn:btih:0AD76E048CE74CB7EB0D235AFE84112F604B6A04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ A4 We Got A Break It Out 3:49(   Читать дальше...   )Жанр: Synth
 magnet:?xt=urn:btih:EB79DA06D4ED4937142EDE4FEE9B68A0DF7E927B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ Lafleur –	Dance Till We Drop(   Читать дальше...   )Жанр: Elec
 magnet:?xt=urn:btih:36C9E0021C95E737A6D918DC2A50EDEF9B9AAB73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ Haddah - метал-группа из Италии, образованная в 
 ```bash
 magnet:?xt=urn:btih:A64B0287768743605BF6D22EE26E25D8FDAA2CAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +340,8 @@ Memoriam - британская дэт-метал группа из Бирмин
 magnet:?xt=urn:btih:03B02044490AFA86614B16BDBD7FC5C60FA03A82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +369,8 @@ A4 Piel Canela(   Читать дальше...   )Жанр: Pop, Easy Listening�
 magnet:?xt=urn:btih:6F1A6A6CBBB93638BCE07F09C627F588EA69E7CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +397,8 @@ A2 Pigalle; Tulips From Amsterdam; One Two Drink Up; At Last, At Last(   Чит�
 ```bash
 magnet:?xt=urn:btih:112EFA19BD9CCDE38AEFD1C81AC6090B61C77F04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Accept - Kaizoku-Ban (1985) /EP/ [FLAC 2.0 192/24 |VinylRip] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9DD4FA9D046D942D84119C258B8621167DDF96EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +463,8 @@ D4 - Ride the River - [04:33]2007 ( October 9)Жанр: RockПродолжите
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +491,8 @@ A4 Twogether - Side By Side (Together)(   Читать дальше...   )Жан
 ```bash
 magnet:?xt=urn:btih:50A248C5C86247D34F8A8BBD7B13610ECADBBB8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +521,8 @@ A3.a Green Green(   Читать дальше...   )Жанр: PopПродолж�
 magnet:?xt=urn:btih:83786203FBC1C93B2EC2AC60ACB8DA97D7B35E78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +550,8 @@ A4 Freddie & The Dreamers - I'm Telling You Now(   Читать дальше... 
 magnet:?xt=urn:btih:462C044F630419F28029E0955596572EFFA70FD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +577,8 @@ Haunted by Silhouettes - метал-группа из Норвегии, осно
 ```bash
 magnet:?xt=urn:btih:1C614B7F2E75D8E9D51360923AC3473313262EDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +607,8 @@ A4. Nightrider (4:22)(   Читать дальше...   )Производств�
 magnet:?xt=urn:btih:F7CE13A300953AD0CF2FA7DE81C7CF6E5F7A4F96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +636,8 @@ A4. Mission(A World Record) (4:27)(   Читать дальше...   )Произ
 magnet:?xt=urn:btih:EDBD5D10CE6E703E5EE4343BB379C0BDBBA1EEFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +661,8 @@ Vivaldi - Flute Concerti, Op. 10 (2005) [MLP 5.1 48/24 |DVD-Audio]<Classical>
 ```bash
 magnet:?xt=urn:btih:4326582C7AF522858631E014508B6B98605F0029
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +691,8 @@ I. Musical Demonstration Section: Classical
 magnet:?xt=urn:btih:4B9FB46C50AC457080CCCE4DB3E0ADACE17AE624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +720,8 @@ Mozart - Classics London Symphony Orchestra (2005) [MLP 5.1 48/24 |DVD Audio]<cl
 magnet:?xt=urn:btih:F6B5ED2EFD2A7DDA37AEA36AF5E8E209F5CAAACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ Antonio Vivaldi - The Four Seasons (2008) [MLP 2.0, 4.0 96/24 |DVD-Audio (SACD-R
 ```bash
 magnet:?xt=urn:btih:F68931F50CC4CB096C1F0351624C2DE1B6AC9932
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

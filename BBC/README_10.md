@@ -19,6 +19,8 @@ BBC: Частная жизнь шедевров. "Свобода на барри
 magnet:?xt=urn:btih:CC2C56382B343F4C7F4253F73448A42B364F1114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC: Забытые британские рабовладельцы / Britain's 
 ```bash
 magnet:?xt=urn:btih:71F9B0E7338AFC9787CFEEBE710C8AD356ABEF90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC. Российская империя: Династия Романовых / 
 magnet:?xt=urn:btih:4B3D40E64439CD0E6730BFC9D7553BFB2759ACF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:4B3D40E64439CD0E6730BFC9D7553BFB2759ACF5
 ```bash
 magnet:?xt=urn:btih:8258341B9750FD886A9BCE44126EF54191C1CE9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ BBC: Horizon. Эпоха больших данных / Horizon. Age of Big Data 
 magnet:?xt=urn:btih:8BEFFE80AEB7ABE97525DB14E098F870819C16F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ BBC: Чудеса жизни. Серии №1-5 из 5 / Wonders of Life (2013) 
 ```bash
 magnet:?xt=urn:btih:139B2B798DA60E158A82B0E3CF8D2499CD9B6F76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ BBC. Кракатау. Последние дни / Krakatoa. The Last Days (2006
 magnet:?xt=urn:btih:F165DC3F81C8E5AFF9C8A06FED3AF6ED03E36016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ BBC: Супердостижения Земли / Supersized Earth (2012) HDTV [H
 ```bash
 magnet:?xt=urn:btih:4D0AB79296D26F5FCFB9734AC272BE957ADCF899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ BBC: Новая Европа с Майклом Пэйлином / Michael Palin'
 magnet:?xt=urn:btih:84ABC78D48EE7FCBD0A30AE7793D97688765F758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ BBC. Наша Первая мировая / Our World War (2014) HDTVRip [H.264/
 ```bash
 magnet:?xt=urn:btih:2824ACB61B28581987C6D5BA15F07A39818EC740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ BBC: Планета Земля 2 / Planet Earth II (2016) UHD BDRemux [H.265/216
 magnet:?xt=urn:btih:10F5A6D145150F1B81715EB205622407410064E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ BBC. Эти удивительные хищники / Incredible Predators (2016
 ```bash
 magnet:?xt=urn:btih:AED3A89ECBEF7499196CCEB699A3FA63198156E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ BBC: Мир природы. Водопад Виктория / Natural World. Vic
 magnet:?xt=urn:btih:8D15B3E2B215E31E9318CE60EC3DC61178D4AD41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:8D15B3E2B215E31E9318CE60EC3DC61178D4AD41
 ```bash
 magnet:?xt=urn:btih:D94C50199463BDA2D7B7AD89FC1B6505B72ECB38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ BBC: Невидимый Рим / Rome's Invisible City (2015) HDTV [H.264/1080i-
 magnet:?xt=urn:btih:9ECDB1A03B708D6EA778F11392674D2321AD1B1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:9ECDB1A03B708D6EA778F11392674D2321AD1B1D
 magnet:?xt=urn:btih:12C44656CC1A264E9EC020CD7B36CF76776A87DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ BBC: Уникальные способности животных / Super Senses
 ```bash
 magnet:?xt=urn:btih:EC81E685453C9C6FD0F5D2169DC34B1E667E5285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ BBC. История Жизни / BBC. Life Story (2014) (1-6 серии из 6) 
 magnet:?xt=urn:btih:DD07AE046B7D4D13E62205D1C7682A9336F25D31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ BBC. В поисках Бронте / In Search of the Brontes (2003) VHSRip (с
 ```bash
 magnet:?xt=urn:btih:705788D2E25103A5211B620DD000276712EDEB7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ BBC. История Жизни / BBC. Life Story (2014) (1-6 серии из 6) 
 magnet:?xt=urn:btih:783FE17520E8EF255A20CDC9EC300D92BBF49D87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 ```bash
 magnet:?xt=urn:btih:027EF455BAFB2CB9F95B7FA0AFF5D7A0CDA42951
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 magnet:?xt=urn:btih:1AD700CF057DFD2B45FB804E4C58EEDBAABF9E96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ BBC: Дикая природа Новой Зеландии / Wild New Zealand (N
 ```bash
 magnet:?xt=urn:btih:E556C1F4DB060EABEEB36196FE0F7DA55EA5C9D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ BBC: Подземная одиссея / Ancient Invisible Cities (2018) DVB (с
 magnet:?xt=urn:btih:543F4948A7551DEE317ACE848B8642E33533A417
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:543F4948A7551DEE317ACE848B8642E33533A417
 magnet:?xt=urn:btih:98C9A3206402ECA30F3F077B4BCBD10650845FCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ BBC: Гении современного мира / Genius Of The Modern World (
 ```bash
 magnet:?xt=urn:btih:C9F80E7F5FAD7EFEB6C92D80A7A2D0DF4006E24D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

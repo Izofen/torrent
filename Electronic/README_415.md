@@ -22,6 +22,8 @@ Anthony Linell - A Sense Of Order (2018) Northern Electronics [FLAC|Lossless|WEB
 magnet:?xt=urn:btih:A4E09FEC933D62F771ACA3A597C06A1FDB9813A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:A4E09FEC933D62F771ACA3A597C06A1FDB9813A8
 ```bash
 magnet:?xt=urn:btih:6BD81E8E1DCC0116064C7D83909DFB052DFD7814
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Yves De Mey - Bleak Comfort (2018) Latency [FLAC|Lossless|WEB-DL|tracks] <Experi
 magnet:?xt=urn:btih:AB4350107FB071842827FB71978ACF8EDB6B1065
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ Clubroot - Discography 9 Releases (2009-2020) Lo Dubs Records [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:40636008D402ECFA49B7E07ED33DC577F9750A62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ FM-84 - Los Angeles (2015) EP [MP3|320 Kbps] <Electronic, Synthwave>
 ```bash
 magnet:?xt=urn:btih:36C2126C223E88399A0233D072CD1C2E6804F8CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +168,8 @@ VA - Electronic Sound Presents Coldcut: The Ninja Mix (2017) [FLAC|Lossless|trac
 magnet:?xt=urn:btih:B7B238577AFD770CFCAA7BF682F0F32F7CA4006F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +196,8 @@ VA - Midnight Flight Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:DD7B0D76C6E746C94BAFEF9B6520AB1890BEB1AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +226,8 @@ VA - Rhythm Code 5 (2020) Shanti Planti [FLAC|Lossless|WEB-DL|tracks] <Psychill,
 magnet:?xt=urn:btih:1B128906A33FBB2A2375FFEDD1186AD84450951C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +254,8 @@ VA - Chill Out Classics (2016) [MP3|320 Kbps] <Downtempo, Chillout, Vocal>
 ```bash
 magnet:?xt=urn:btih:3634EF62FC6589D93E1475881F8D011C57883D54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +284,8 @@ VA - Dinner and Jazz Vol.1: Finest Lounge and Smooth Jazz Music (2017) [MP3|320 
 magnet:?xt=urn:btih:4DD594F7831CBE3E09BA36AD3FC5FE9120E3A149
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +312,8 @@ VA - Play Acoustic Music (2017) [MP3|320 Kbps] <Downtempo, Acoustic, Instrumenta
 ```bash
 magnet:?xt=urn:btih:770323CE324D52E233F8119CF0B5970BF644AB39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +343,8 @@ Pet Shop Boys — британский Synth-pop дуэт, состоящий и
 magnet:?xt=urn:btih:28A4ED15F3249526E296C709AC237604AE0401B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +371,8 @@ VA - wave 001 (2016) [MP3|192-320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:0FA98218DDBEAD6E46DC7B95AEBB4C4296750E62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +401,8 @@ VA - Coastal Selections 003 (2017) [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:609428C88F841A8C5A917F52A6A2537845A352C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +429,8 @@ VA - Deep House Edition #001 (2016) [MP3|320 кб/с] <Deep House, Club House>
 ```bash
 magnet:?xt=urn:btih:F1357CFBC8578BADC75F8E8BAED20B06613ED785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +459,8 @@ VA - A State Of Trance 1000 - Celebration Mix (Mixed by Armin van Buuren) (2021)
 magnet:?xt=urn:btih:4AF0280580E851A113AAAFF7D4461867C9315B8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +487,8 @@ VA - Ace Ventura - Christmas Selection Vol. 4 (2017) [MP3|320 Kbps] <Psytrance  
 ```bash
 magnet:?xt=urn:btih:4305327CEAF8216E13A8FBD146E48276B6D0E784
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +517,8 @@ RaLax - Discography 10 Releases (2012-2018) [FLAC|Lossless|WEB-DL|tracks] <IDM, 
 magnet:?xt=urn:btih:4848420F461A5AD67BB8B3E7A7B24F7303C29A10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +546,8 @@ Sonny Fodera - Wide Awake (2021) [FLAC 2.0|44.1/24/16|tracks|WEB-DL] <Deep House
 magnet:?xt=urn:btih:394E7E6A030DBA2365E0822A0E3199FBB75C6D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Takashi Wada - Discography 8 Releases (2004-2015) REALJO[K]E Recordings, Onitor,
 ```bash
 magnet:?xt=urn:btih:28919ABE5290949A8E1945079888688EF53B5F91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Urban Dance Vol.23 (2018) 3CD [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:D49E1745FA438B00E551733B1074BFF59D6DCD06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ VA - Mysterious Station Dark The Best Of 2017 (Mixed by Dr Riddle) (2018) [MP3|3
 ```bash
 magnet:?xt=urn:btih:683D1E1B0AF47AAF9FA49553E5DB7EF81F4F712A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ CD1
 magnet:?xt=urn:btih:3A154563E99C6B25FF9325F3585765491695D745
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:A5F99CC13C284B1435C707A3499E0A6D67895FF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Dreamtime - Innerstellar Jam (2013) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Spacesynth
 magnet:?xt=urn:btih:9AD59EEDE739F0FED4D23BAFEF97960BDC18032D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Dreamtime - Particles (2015) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Spacesynth, Synth
 ```bash
 magnet:?xt=urn:btih:6C5B78D0937387DF7A0E014B751FF97ABDE3232D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

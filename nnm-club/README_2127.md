@@ -19,6 +19,8 @@ A 5-level series with clear explanations and communicative activities to help yo
 magnet:?xt=urn:btih:C321C0BC234021B340D60F61C3270E405B6E0816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C321C0BC234021B340D60F61C3270E405B6E0816
 ```bash
 magnet:?xt=urn:btih:F3C0212E9E00F34DF519288E2931D3CACB81D89A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F3C0212E9E00F34DF519288E2931D3CACB81D89A
 magnet:?xt=urn:btih:A191857EFA27B720DC2F97FEDD56F2AD5C7E8E40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:A5C98A0E115F075E0869DC21C57192D22C3AD0A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Spotify имеет громадный каталог музыки, поддер�
 magnet:?xt=urn:btih:B4942B195EE7221F832188A30F235828A35F11F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Busi
 ```bash
 magnet:?xt=urn:btih:9188224B9937C6C7794DE77800AE95DF8CA67F74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ VA - Piece of Blues (blues instrumental) (2024) [MP3|320 Kbps] <Blues, Instrumen
 magnet:?xt=urn:btih:5D163BFB0272FC9BF3E56D0751CF4C15557E4141
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:3E526E729D14F5351124D6D9D70E439F7DBED01B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:3E526E729D14F5351124D6D9D70E439F7DBED01B
 magnet:?xt=urn:btih:06197DD7FB8C45D294EFD6D34BE09F65F75E7BA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:06197DD7FB8C45D294EFD6D34BE09F65F75E7BA3
 ```bash
 magnet:?xt=urn:btih:8C1C9E9995392EB7F5DD7F0F93A6BF2F0FCAEE13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ A 5-level series with clear explanations and communicative activities to help yo
 magnet:?xt=urn:btih:F09E90DC57F50B35AFDC218064095058F18DE545
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ AIDA64 2.01 (ARM64) Mod by CMAPTOC [Ru/Multi]
 magnet:?xt=urn:btih:DED5BA7C289E124FCDE00CEFD1D73FAC08C91D9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:DED5BA7C289E124FCDE00CEFD1D73FAC08C91D9D
 ```bash
 magnet:?xt=urn:btih:5501AB59FEA5D0F6F0C8134BC1797255BAD13FFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:5501AB59FEA5D0F6F0C8134BC1797255BAD13FFD
 magnet:?xt=urn:btih:ACCF1262F91DC1957C159D17395EAB8662D6ABF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Duolingo: изучай языки 5.151.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:294B5F00B794F60F83515C533CBA953F426F462A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Gedonia (2022) [Ru/En] (1.48b) Repack dixen18
 magnet:?xt=urn:btih:0E2E44855DC22C7FFDAA3C717965E4D1C1757723
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:0E2E44855DC22C7FFDAA3C717965E4D1C1757723
 ```bash
 magnet:?xt=urn:btih:0FE248816AE2398714DF4057D1DC0A6B8A4C6AF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:0FE248816AE2398714DF4057D1DC0A6B8A4C6AF3
 magnet:?xt=urn:btih:D728CF9D10DA722BB0BCCCDC7F2F255FBF4EDAA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:D728CF9D10DA722BB0BCCCDC7F2F255FBF4EDAA2
 ```bash
 magnet:?xt=urn:btih:A2CB962AE716FA0569D18D5B8CF13FFD4A726A42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:A2CB962AE716FA0569D18D5B8CF13FFD4A726A42
 magnet:?xt=urn:btih:02AB3F80E58CED676875D44FB83A85131C410718
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:02AB3F80E58CED676875D44FB83A85131C410718
 ```bash
 magnet:?xt=urn:btih:77A584B2B55C0D6BC15BED8862686AEF6B5A67F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:77A584B2B55C0D6BC15BED8862686AEF6B5A67F9
 magnet:?xt=urn:btih:B224407A5783F57935C604ACE55AFD62D92503AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:B224407A5783F57935C604ACE55AFD62D92503AC
 ```bash
 magnet:?xt=urn:btih:EF2CCA463AC9BEA78A91BF3CEC32719E199959A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:EF2CCA463AC9BEA78A91BF3CEC32719E199959A8
 magnet:?xt=urn:btih:4A4E5FFCF1B072FB30437FBE7B93D149CC896DB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 magnet:?xt=urn:btih:11065A50A94399E0B697B8E8FA893D52A2A33ED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:11065A50A94399E0B697B8E8FA893D52A2A33ED1
 ```bash
 magnet:?xt=urn:btih:938873495228E91A55F7624EC0AC50E8DF8A132A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

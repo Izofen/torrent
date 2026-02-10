@@ -22,6 +22,8 @@ VA - Love Songs (2017) [FLAC|Lossless|tracks] <Pop>
 magnet:?xt=urn:btih:07FDDD23C8A96CAACBC572B65979A46FCF128B5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Citizen King - Mobile Estates (1999) [FLAC|Lossless|tracks + .cue] <Hip Hop, Pop
 ```bash
 magnet:?xt=urn:btih:A25CB6748C37039DB1F732E123CBC6B1B60F1D3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Barbra Streisand - 2 альбома (1980, 2005) [FLAC|Lossless]<Pop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -110,6 +116,8 @@ VA - 101 Voices (2012) 5CD [FLAC|Lossless]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -136,6 +144,8 @@ Ani Lorak (Ани Лорак) - Smile (2005) [FLAC|Lossless|image + .cue]<Рор
 ```bash
 magnet:?xt=urn:btih:78A57D1F2A6524500D942D370344DDE876052969
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +174,8 @@ The Chainsmokers - So Far So Good (+ Time Bomb) (2022) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:5780F36D02B3B806899A78095459D95F62373B23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +202,8 @@ Falco - So80s (Soeighties) Presents Falco (Curated By Blank & Jones) (2012) 2CD 
 ```bash
 magnet:?xt=urn:btih:744C37D2B509AB645BA7BEBC1AA36E57A762051B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +232,8 @@ VA - Pure... 90s (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Rock, Electronic, Sof
 magnet:?xt=urn:btih:71055A6E1DE749E3C6585F3C300448AA5998DDCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +260,8 @@ VA - 80s Love (2015) [FLAC|tracks|WEB-DL]<Rock, Ballad, Pop>
 ```bash
 magnet:?xt=urn:btih:86228D1D650159A89D7FCED74B422E465B8878CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +296,8 @@ Pink (P!nk) - The Truth About Love (2012) [FLAC|Lossless]<Pop Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +324,8 @@ Eros Ramazzotti - Ali E Radici (Limited Edition) (2009) (Limited Edition) [FLAC|
 ```bash
 magnet:?xt=urn:btih:43642B231EA6F138C8DBA356AA2F5375BBF0654D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +354,8 @@ Skylar Grey - Natural Causes (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative P
 magnet:?xt=urn:btih:C2AACF7EEBE50FAD0EA56E9487CD29A54C1572D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +382,8 @@ Chris De Burgh - A Better World (2016) [FLAC|Lossless|image + .cue] <Pop, Soft R
 ```bash
 magnet:?xt=urn:btih:8674A99CABBBE971D51627F1469756A4E4445A1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +412,8 @@ Anitta - Kisses (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:50C1E6232EF3D071FC46316E646F3BD2F1F86760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +440,8 @@ Beyonce - RENAISSANCE (Explicit) (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B,
 ```bash
 magnet:?xt=urn:btih:EA2B7B696E1DAADC60020F4B0723280A613E2877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +470,8 @@ VA - 80s Road Trip (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:24D654F29DB29241034FF6F55D96E7B4B85E4D09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +498,8 @@ DJ BOBO - Mystorial (2016) [FLAC|Lossless|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:40960CE1138376CB87FBF1E2C70334ED52738D11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +534,8 @@ VA - Best Of 100% Hits (2003) 2CD [FLAC|Lossless]<Pop, Rock, Oldes, Retro>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +562,8 @@ ABBA - Gold: Greatest Hits (1992) Polydor D120679 [FLAC|Lossless|image + .cue]<P
 ```bash
 magnet:?xt=urn:btih:BB1DCDE3CE10D34B6CB21374ABDDD5E0671B5E1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +592,8 @@ Lana Del Rey - Honeymoon (2015) [FLAC|tracks+.cue]<Indie Pop>
 magnet:?xt=urn:btih:53E6F1D4935854F5E7A6A74860E7A0B7991498E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +620,8 @@ Lana Del Rey - Honeymoon (2015) [FLAC|Lossless|WEB-DL]<Indie Pop>
 ```bash
 magnet:?xt=urn:btih:61FC7BEBD107D97237BB0F9E1D38BF00C78BFEED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +650,8 @@ Olivia Newton-John - The Definitive Collection (2002) [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:3709AF4705BFA472127E6F63FAEDAF4D07CC8031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +678,8 @@ Chris De Burgh - Spark To A Flame: The Very Best Of Chris De Burgh (1989) [FLAC|
 ```bash
 magnet:?xt=urn:btih:4E3B0BD364BB0A25142EF69B8091D95F17C1918C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +708,8 @@ Bananarama - Masquerade (2022) [FLAC|Lossless|image + .cue] <Dance-pop, Synth-po
 magnet:?xt=urn:btih:6D9B5329F35776C06F792A57FAC4036A54CB3B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -689,6 +737,8 @@ VA - 101 Love Songs: The Greatest Love Songs of all Time (2003) [FLAC|Lossless]<
 magnet:?xt=urn:btih:71B028E75E0EF1FDFEFE3C8EE70B1574067DBE58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -715,6 +765,8 @@ Tom Jones - The Golden Hits (1970) Reissue, 1986, London [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:C18F66332B9B4F23CCECB2B1C62E317773378C0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

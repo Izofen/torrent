@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:C170A47E6E986107D1E790C00D874BB6781EE9A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:C170A47E6E986107D1E790C00D874BB6781EE9A8
 ```bash
 magnet:?xt=urn:btih:39849E0384C38276FDFC11F9F4696DE9F3D8D3E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:39849E0384C38276FDFC11F9F4696DE9F3D8D3E7
 magnet:?xt=urn:btih:EE4F3BB5CFA6C22E142C84FA107D1478FEC2745B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Rene Molenaar | How to master. CCNP route [3 книги] (2013) [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:7D5A4050AF99E2230945F58B07A296E6178A556F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:7D5A4050AF99E2230945F58B07A296E6178A556F
 magnet:?xt=urn:btih:F19F8847CEB77F367B77852F5B76C5E55D5FBC7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:F19F8847CEB77F367B77852F5B76C5E55D5FBC7B
 ```bash
 magnet:?xt=urn:btih:6D27FAB53A0DEA2C4F00F658B10D235D85F693FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:6D27FAB53A0DEA2C4F00F658B10D235D85F693FA
 magnet:?xt=urn:btih:47918B0ADFD56600B58F41FE8686F3665C0B64CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:47918B0ADFD56600B58F41FE8686F3665C0B64CB
 ```bash
 magnet:?xt=urn:btih:9D636A69B8CBC726ABDA297DB71A39E137D3D6D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ No Starch Press | Humble Bundle - Hacking by No Starch Press [13 книг] (2003
 magnet:?xt=urn:btih:7AD4CC49616D0A2C193F0BD66912A027F14F3DC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ BIOS (Basic Input/Output System) - базовая система ввода-вы
 ```bash
 magnet:?xt=urn:btih:6D61151873047B8F1ABA86C224659B743FCAA4F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:6D61151873047B8F1ABA86C224659B743FCAA4F9
 magnet:?xt=urn:btih:8EB64849C6976AD4EE9A6CBDD00637019C47BFE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:8EB64849C6976AD4EE9A6CBDD00637019C47BFE8
 magnet:?xt=urn:btih:C7F715BE9F6F535827341E38525E36EA7CC546DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:C7F715BE9F6F535827341E38525E36EA7CC546DB
 ```bash
 magnet:?xt=urn:btih:38E50912676558FB389E6C19FEDFFC53C2408599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:38E50912676558FB389E6C19FEDFFC53C2408599
 magnet:?xt=urn:btih:BD9C0F28E961B6F72A1F8A4B026DEB7963C9C3A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:BD9C0F28E961B6F72A1F8A4B026DEB7963C9C3A5
 ```bash
 magnet:?xt=urn:btih:BF95BD1B12FD654B169A506220AF77C2EA398197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:BF95BD1B12FD654B169A506220AF77C2EA398197
 magnet:?xt=urn:btih:C64745B7E1E266F23217101D973B4EEB2AC77B0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:C64745B7E1E266F23217101D973B4EEB2AC77B0C
 ```bash
 magnet:?xt=urn:btih:DC0E6BD8FDD5B607296B423898D000227407E8CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:DC0E6BD8FDD5B607296B423898D000227407E8CE
 magnet:?xt=urn:btih:F1793ABD110300AD4C67ABBEF09805223AEF1C08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:F1793ABD110300AD4C67ABBEF09805223AEF1C08
 magnet:?xt=urn:btih:D7FF445B06A3DD6FED354E8E565AB54BC9F3F8A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:D7FF445B06A3DD6FED354E8E565AB54BC9F3F8A0
 ```bash
 magnet:?xt=urn:btih:4F38CE9BEFE488DEFA13241FB3F0E38437D5AC0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:4F38CE9BEFE488DEFA13241FB3F0E38437D5AC0B
 magnet:?xt=urn:btih:FD8903676B22A8A21F54A87B271474FCBAD3E9AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:FD8903676B22A8A21F54A87B271474FCBAD3E9AF
 ```bash
 magnet:?xt=urn:btih:9FBE9992C4E33DE4C27DB1CA33A15DE88AA3D999
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ EEVEE - это PBR-рендер (Physically Based Rendering) в реальном
 magnet:?xt=urn:btih:1304662398929B30EA814E69543E89091D312C92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Cycles — это движок рендеринга, который впервы
 ```bash
 magnet:?xt=urn:btih:B3C89555E0E7774AF781BC870AD393435EA485FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Alex Banks, Eve Porcello | Learning React: Modern Patterns for Developing React 
 magnet:?xt=urn:btih:8E252A6694FF3BD2B9E7A43E592F85A01F69812C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:8E252A6694FF3BD2B9E7A43E592F85A01F69812C
 ```bash
 magnet:?xt=urn:btih:1A5A645B65123016D1679CE67C1C844BA45FB47A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

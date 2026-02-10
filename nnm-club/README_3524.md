@@ -19,6 +19,8 @@ Boku no Hero Academia: Yuuei Heroes Battle | Моя геройская акад�
 magnet:?xt=urn:btih:19C30AF291944E4DE3082273EE94EE76E57E4DE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:19C30AF291944E4DE3082273EE94EE76E57E4DE2
 magnet:?xt=urn:btih:CE5A1B13F942C3503F0210D3D712B97DC0459084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Text Editor Pro 29.0.0 + Portable + Bonus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B063A7EFE16DF09C57DB87C8FC5E73F34E14E9A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:B063A7EFE16DF09C57DB87C8FC5E73F34E14E9A3
 ```bash
 magnet:?xt=urn:btih:22F946B355A849AA0E2CFC8B89A9FE610A21E44E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Castle Rat - Into The Realm (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 magnet:?xt=urn:btih:907C13607BD9D10CA1C93A2CA3CF493791BD5EEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:907C13607BD9D10CA1C93A2CA3CF493791BD5EEB
 ```bash
 magnet:?xt=urn:btih:ED616B1D8F93211106369217D7EB148F15716205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:ED616B1D8F93211106369217D7EB148F15716205
 magnet:?xt=urn:btih:39781794E4DCE647150B27E936D4FBE0437459F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Draw.io 24.2.5+ Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:687BC72B6C8515514FAA2FCB9AA165E44165B461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:687BC72B6C8515514FAA2FCB9AA165E44165B461
 magnet:?xt=urn:btih:547B1DA1CA5955C17A3822771F4D9B692288B208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:547B1DA1CA5955C17A3822771F4D9B692288B208
 ```bash
 magnet:?xt=urn:btih:DF51B47A56CA806A3545210C11C994631ACF4223
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:DF51B47A56CA806A3545210C11C994631ACF4223
 magnet:?xt=urn:btih:75C149CFDDB3E88B9940245B7ACF6389663BEDD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:75C149CFDDB3E88B9940245B7ACF6389663BEDD2
 magnet:?xt=urn:btih:BA6619A5843EBA352ADC6E05D869CC67F523EAE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:BA6619A5843EBA352ADC6E05D869CC67F523EAE1
 ```bash
 magnet:?xt=urn:btih:FC47791DB7ABE76F1E4803DB872E728D167F1848
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Nena - 7 Albums (1983-1989) LP Collection [MP3|320 Kbps] <New Wave, Pop Rock, Sy
 magnet:?xt=urn:btih:2F10DD4B35C5BE40FF3B24E593195C844A3C8929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:2F10DD4B35C5BE40FF3B24E593195C844A3C8929
 ```bash
 magnet:?xt=urn:btih:A9569B2126213A6B70930836C1A1152D3CE8C05B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:A9569B2126213A6B70930836C1A1152D3CE8C05B
 magnet:?xt=urn:btih:DEACD15DB4F47898BB44B13263D3FC2798A1D02B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Opera One 109.0.5097.45 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7D7FB18EC78A238BE94DF38E9355BA0F0860D11E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ A La Carte - The Ultimate Best of Album (2016) [FLAC 24/48|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:DB2EB9B42204196DD3B5CF57FD9E8E17E71E5ECA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:DB2EB9B42204196DD3B5CF57FD9E8E17E71E5ECA
 ```bash
 magnet:?xt=urn:btih:1E940410F83EA17D87F38E65B38FE1965CF4BC6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ Subtitle Edit - редактор субтитров. При помощи это�
 magnet:?xt=urn:btih:400C9280EA29C7A1B42196B52DA76BBA6A9F0435
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ Tensei Shitara Slime Datta Ken: Coleus no Yume | О моём перерожде�
 magnet:?xt=urn:btih:2A7DE5D8855E4E17AEAAD59D07B36A7E48FD636E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:2A7DE5D8855E4E17AEAAD59D07B36A7E48FD636E
 ```bash
 magnet:?xt=urn:btih:C4E93AB5409782377766BCD0BD4E7A602E1C56F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +608,8 @@ Imminence - The Black (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, P
 magnet:?xt=urn:btih:BD3D1CABCEF3CE29A61876C09BDBC4AB9B3F3BD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ VA - Selected Miami 2022: Tech House Cuts (2022) Unmixed [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:7D741F1408E3007AE2B0607384848C15CFF6207E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:7D741F1408E3007AE2B0607384848C15CFF6207E
 magnet:?xt=urn:btih:CBECE173413DE0F5E350E0F26DC6686A16478271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ Oktay Kocamaz - No Money, no Honey (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:D40EFB88709AED2470FFAD721622A37B2586EB79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

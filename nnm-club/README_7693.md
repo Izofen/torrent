@@ -22,6 +22,8 @@ VA - Sweet Morning (Chill out and Lounge Collection), Vol. 3 (2021) [AAC|~317 Kb
 magnet:?xt=urn:btih:577FC990522F34738ED2F149F1FCED6C648EE65C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:577FC990522F34738ED2F149F1FCED6C648EE65C
 ```bash
 magnet:?xt=urn:btih:08E0DEB20351C96A51FECF77C02108C6D28DE3EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ SiteSucker Pro - это расширенная версия SiteSucker, кото
 magnet:?xt=urn:btih:A094DF16C6410C3DB076C019BC15831A48ADE831
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:A094DF16C6410C3DB076C019BC15831A48ADE831
 ```bash
 magnet:?xt=urn:btih:7850483E42149C98EF42E51FB3A9A2139B53B55F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:7850483E42149C98EF42E51FB3A9A2139B53B55F
 magnet:?xt=urn:btih:82097D26AF483CBC955ECEB986650C15286785B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ AssetsGen 4.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:84442F6CD7A755D0048C99F5E113CCCF9960BBD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Chicago - Summer In Chicago (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:9E1D6098CB790612B535F41534E9C04D44F725FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ The Feelers - Reimagined - Greatest Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <R
 ```bash
 magnet:?xt=urn:btih:98CC7A40AD8C17D707854A961C2F19D1AE2BC12A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ VA - Lakeside Chill Sounds - Spring (2022) [AAC|~312 Kbps] <Lounge, Chill Out, D
 magnet:?xt=urn:btih:40CF57C016D3C13C350A708DCF235F315FD07CEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ VA - Ibiza Summer (2023) [MP3|320 Kbps] <Electronica, Soulful, Beach House, Deep
 magnet:?xt=urn:btih:D02671E8A3B70AADB6F7EFBD3DA0290C999BA0E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ EdgeView 3 - это новейший просмотрщик изображени
 ```bash
 magnet:?xt=urn:btih:E73FC94B9E9B74BAF0941D98FAFE7C0481053694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:E73FC94B9E9B74BAF0941D98FAFE7C0481053694
 magnet:?xt=urn:btih:E240D0AA0F1413C8F6766CE4238492D5F2742C79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ System Toolkit - приложение «все-в-одном» для монит
 ```bash
 magnet:?xt=urn:btih:6F8168F473A501D3335C0D23E7545176A13B17EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ Udemy, Roman Dushkin | Перцептроны (2022) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:FFAE97FD25876E6B7E2165F698EB77A52680A6C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:FFAE97FD25876E6B7E2165F698EB77A52680A6C0
 ```bash
 magnet:?xt=urn:btih:6C4C68DA03E46ACBCADA1FE9B8E492ABA57CCFC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ VA - Across the Ocean (Lounge Collection), Vol. 4 (2020) [AAC|~333 Kbps] <Lounge
 magnet:?xt=urn:btih:FA6E500A00105C737A148EF53B1C336CA99A94A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ Starseed - Cosmic Conspiracy (1997) EP, 931576 Records DK, Reissue 2018 [FLAC|Lo
 magnet:?xt=urn:btih:CDCAD4A5DD05E71BBB8496B9DE24745F418C6477
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:CDCAD4A5DD05E71BBB8496B9DE24745F418C6477
 ```bash
 magnet:?xt=urn:btih:D41EFED3619449D90602BEC2FD7F8F74021C24CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ Engheadstart, Анастасия Черниговская, Яна Бутырск
 magnet:?xt=urn:btih:EC199F773E86EE1645EC4719BE211D177A27AD2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:EC199F773E86EE1645EC4719BE211D177A27AD2C
 ```bash
 magnet:?xt=urn:btih:7B2FA0E975A3CFDE5D40E2DFDBF5EE0CA587D831
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ Samanhta Brown (7.10.964) - английская певица и автор пе
 magnet:?xt=urn:btih:AF9F82EC790CE3E88C9F21FF42E8333455B37BBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ Hempress - Masters Of The Trade (2022) [MP3|320 Kbps] <Stoner Metal, Doom Metal>
 magnet:?xt=urn:btih:82F3F421350FF9CF762C1AF7BDADED1D2BC5C1B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:82F3F421350FF9CF762C1AF7BDADED1D2BC5C1B4
 ```bash
 magnet:?xt=urn:btih:24DC45625DB740B38544BB8C93592CE3FCAC9225
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +650,8 @@ Swamp Lordz - Cosmic Swamp (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom, S
 magnet:?xt=urn:btih:0BCEF8088FB2964EBE370F01A08FB0F33DCD5FAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 magnet:?xt=urn:btih:9C4B7B8C260A0FF4DBDDE3A33F07394D54E34A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:9C4B7B8C260A0FF4DBDDE3A33F07394D54E34A08
 ```bash
 magnet:?xt=urn:btih:191A76CD998015ED8258D682CA7FD0FEC86AAD84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

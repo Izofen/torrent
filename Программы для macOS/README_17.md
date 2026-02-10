@@ -19,6 +19,8 @@ dBpoweramp Music Converter - это совершенное конвертиро�
 magnet:?xt=urn:btih:6161539E95BBB13B92191CB1D042E5A8E677E8C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ HitPaw Watermark Remover for Mac 2.4.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EE7B651751E2E5C4F493868FB15C857A17A14D8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ HitPaw AI поможет вам восстановить старые фотог
 magnet:?xt=urn:btih:590908500613A40B16ED23D8593D6E9A7178AC33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ AnyMP4 Audio Converter - простой в использовании аудио
 ```bash
 magnet:?xt=urn:btih:53269FBEF2DB91501418256B3A1DF34BB442D6B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ LuLu - это бесплатный брандмауэр с открытым ис
 magnet:?xt=urn:btih:5349A92B56237178D66C094DB1714353565C1F59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ My PaintBrush для Mac — это мощное многослойное при
 ```bash
 magnet:?xt=urn:btih:775898614DCFF357BA249AEA6F35E43B581D0AAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ OmniFocus Pro 4.0.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A3FF176F92A332E60CA09B41574660AE8491963F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ SwitchResX для Mac OS X является аналогом утилит ATI и
 magnet:?xt=urn:btih:9F0D9434E36FED7ACEB0E32615D57B5F500BE630
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ iStat Menus 6 — лучшее приложение для контроля ра
 magnet:?xt=urn:btih:6994EC4797ACE6F9F41CCBE080B090850B6B53FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ CopyQueue позволяет вам контролировать передач�
 ```bash
 magnet:?xt=urn:btih:F3A3AA067445E81C381D25E09F53A7CD8BF38265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Imagenomic Noiseware - плагин для коррекции шумов на ц
 magnet:?xt=urn:btih:7C2DE116EA82BD4617B4CC31256A037C10A809B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ MAX 8 - это визуальный язык программирования д
 ```bash
 magnet:?xt=urn:btih:7215018AC6E06732330324C4E9C2FD5AAB28E1D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ GoLand - это IDE от JetBrains, нацеленная на создание �
 magnet:?xt=urn:btih:16FDED619F034DFBE554CB258B944ED0140EC89B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ coconutBattery 3 Plus for Mac 3.9.15 [En]
 magnet:?xt=urn:btih:779D18812E654A7F3BE64DE592610E239425BAA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ TRAKTOR PRO Plus — это дополнительная подписка для
 ```bash
 magnet:?xt=urn:btih:6B01FCD9727D3CE3C643B92A379D4FF060D04441
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Bartender - утилита для простой организации икон
 magnet:?xt=urn:btih:F8CAE8590CEE1DB14B1F6FE970E9A1FF0ED5EF2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Portraiture - незаменимый фильтр, который преврат
 ```bash
 magnet:?xt=urn:btih:AA1EC7F4917198EEDA7EC838C361217CBC9E40B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ ABBYY FineReader Pro для Mac распознает документы на ( 
 magnet:?xt=urn:btih:FE36058C71B31E0E78E9526C995E98AD2CBEEB79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ AudFree Spotify Music Converter for Mac 2.11.0 [En]
 ```bash
 magnet:?xt=urn:btih:456C63B2445BDE116C0685F828D7DE5AC734BBA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Folder Hub — это инструмент повышения производи
 magnet:?xt=urn:btih:F7E72B4B655F296431F6AEAF5F8D8B0EA64ED38D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Amadeus Pro - многотрековый музыкальный редактор
 magnet:?xt=urn:btih:7418BC1932232CD294FB46A569C104F75B9CEBD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ AudKit Spotify Music Converter for Mac 2.5.0 [En]
 ```bash
 magnet:?xt=urn:btih:0515DFE639E92CE6D4167DF29D31571B2DFE0EEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ HitPaw Video Editor — это простое в освоении програм
 magnet:?xt=urn:btih:F504F67672A9F97BD8C1C4B95AAADEEF30DEA19E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Viwizard Spotify Music Converter for Mac 2.13.0 [En]
 ```bash
 magnet:?xt=urn:btih:137F6527D19D399EE1FFA6CA6CD1410593F3C795
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ DRmare Music Converter for Spotify 2.11.0 [En]
 magnet:?xt=urn:btih:F61F33999F81A96409744D8CBD1A29D63777CBE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Keka 1.3.7 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:51CE098ECC73540095D143F3F184C2020409058C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

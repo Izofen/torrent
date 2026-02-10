@@ -1,3 +1,29 @@
+###  Публикация: 1072526   (351827) от 13.11.2016
+
+Andrew Lloyd Webber & Tim Rice - Jesus Christ Superstar (1970)/Иисус Христос  суперзвезда 2LP (1991) [WavPack|192/32|tracks|Vinyl-Rip] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_351827.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classic RockПродолжительность: 01:27:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B78AC4AD8380CDF662BC646B3C722BAF9A22AB7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952780   (353034) от 02.11.2015
 
 Roger Waters – Amused To Death (1992, 2015 Remaster) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <rock, progressive rock>
@@ -21,6 +47,8 @@ Roger Waters – Amused To Death (1992, 2015 Remaster) [DTS 5.1 44.1 /16 | .wav+
 ```bash
 magnet:?xt=urn:btih:28F260DEAD20908F84B3601378340A23FB75B32F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +83,8 @@ Elvis Presley - Our Memories Of Elvis (1979) [FLAC 2.0 24/96|traks(Vinil-Rip)]<R
 magnet:?xt=urn:btih:8AA570B4A405ABB69A5FE4F54E2857DEE7564F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +111,8 @@ El Bimbo (1975)
 ```bash
 magnet:?xt=urn:btih:54185DDD9E953C0BE5782265D3B7F192F40F86C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +141,8 @@ A4 Не Говори О Любви(   Читать дальше...   )Жанр: 
 magnet:?xt=urn:btih:73114A96360FF284768223FF621C97B8E70469A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +169,8 @@ Various Artists - Le Silence (2003) [DTS 4.0|44.1/16|image +.cue|SACD] <electron
 ```bash
 magnet:?xt=urn:btih:D1D9A9E993E01391D1EF8204854BB3123F7ED4A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +199,8 @@ Spring Concerto in E major RV 269
 magnet:?xt=urn:btih:A762169DA14E395D09C5BEECF03B15202834F9D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +227,8 @@ A4 Mind over Matter(   Читать дальше...   )Жанр: Pop RockПро�
 ```bash
 magnet:?xt=urn:btih:7012E518BDE96ECCCB29451FFE786590F4C9B6F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +257,8 @@ Carnival of the Animals
 magnet:?xt=urn:btih:1FD2C86480B45946949490126DB3A6DC3A1FAC2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +285,8 @@ A4 Puccini - Intermezzo: (Manon Lescaut, Ch'ella Mi Creda), Placido Domingo(   �
 ```bash
 magnet:?xt=urn:btih:33136F64EAFBA3B5B3CCE40D48271A51645FC462
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +315,8 @@ Emigrate — сайд-проект, основанный Рихардом Кру
 magnet:?xt=urn:btih:B7D8805CFB71D7A56BF46607287FCFBCAE293341
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +343,8 @@ A4. Breakdown (3:53)(   Читать дальше...   )Производство
 ```bash
 magnet:?xt=urn:btih:5B9840B532FDF4A68C2B717B5EEA03070BF1ACCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +373,8 @@ The Beatles - Abbey Road (1969) UMG, 2019 [FLAC 5.1|48/24|Lossless|tracks + .cue
 magnet:?xt=urn:btih:49003E00433BED111B736DE7F5B28B736A41642D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +401,8 @@ Toshiro Ito & '68 All Stars - Romantic Guitar Mood Best 16 (1973) [FLAC 2.0|44,1
 ```bash
 magnet:?xt=urn:btih:2E139619DF26ECD6CDD4BF3E1E4CAC694A8526B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +431,8 @@ Joe Hunter/Джо Хантер - Поет Джо Хантер (1974) [FLAC 1.0|9
 magnet:?xt=urn:btih:C4CC52CC861C73F32509F20ABB73900DBBBF8C18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +459,8 @@ A4 Toussaint L'Overture(   Читать дальше...   )Жанр: Psychedelic
 ```bash
 magnet:?xt=urn:btih:69AE9BFE323CA7F40FB23B1DE856B28C914BD70E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +489,8 @@ Judas Priest - British Steel (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <He
 magnet:?xt=urn:btih:03BE611D1BAD9E26B3E4A979616B4983A45386C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +517,8 @@ Giorgio & Martin Koppehele - Lichtmond 3: Days Of Eternity (2014) [DTS-ES Discre
 ```bash
 magnet:?xt=urn:btih:DCCA963D79C779DE628ADCE4895E1F312BB0E161
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +553,8 @@ Robert Miles - Organik (2001) [DTSCD][UP]<Trance, Instrumental>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +581,8 @@ Teddy Ikeya Quintet - Dream (1967) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, 
 ```bash
 magnet:?xt=urn:btih:294E6A060046BC8F5C29FD2E5BF57D1170AA520B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +611,8 @@ B1. No Tourists (4:18)(   Читать дальше...   )Жанр: Drum & Bass,
 magnet:?xt=urn:btih:DC0828362A46276D448EBE5A112DF8077F3ED08F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +639,8 @@ Jive Bunny And The Mastermixers - два магнитоальбома (1989,1990
 ```bash
 magnet:?xt=urn:btih:8DBD1AB79BEA880E157D518356111B05C2833737
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +669,8 @@ Yujiro Mabuchi '68 All Stars - Attractive Tenor-Sax Mood Best 16 (1973) [FLAC 2.
 magnet:?xt=urn:btih:1BFCF68DFA330C20F90284DE40338B5615755663
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +697,8 @@ Teruo Yoda & Dreamy Mood Orchestra - The Enchanted (1967) [FLAC 2.0|44,1/16|trac
 ```bash
 magnet:?xt=urn:btih:345B0C02C05BE67D1FDB3FD9EE5CDDBFDF3062D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +727,8 @@ A4. Diamonds Never Made A Lady (4.40)(   Читать дальше...   )Жан�
 magnet:?xt=urn:btih:82EF9B7D2F0635157555C873D48345536816A334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,32 +756,7 @@ The Doors - The Singles (2017) 1973 [AC3 4.0 CD-DA|44.1/16|image+cue|BD-Audio] <
 magnet:?xt=urn:btih:0D304A65DACA89C3DB56CFED0732812A6B9963C8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415819   (371435) от 14.10.2020
-
-Л. Субраманиам/L. Subramaniam - Время Должно Измениться/Time Must Be   Changed (1990) Recorded 1988 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Fusion, Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371435.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Мисс Мелодия = Miss Melodia
-A2 Следи За Своими Шагами = Follow Your Steps
-A3 Время Должно Измениться = Time Must Be Changed
-B1 Ганга = Ganga(   Читать дальше...   )Жанр: Fusion, Contemporary JazzПродолжительность: 00:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96CB03520E81C42643907E2D5BF7B2060C838DF6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

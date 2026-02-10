@@ -22,6 +22,8 @@ Muddy Manninen - River Flows (2020) [MP3|320 Kbps] <Blues Rock>
 magnet:?xt=urn:btih:B833D89E493476E77A0FD157C778B550847341D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Shawn Pittmanm - Make It Right! (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 magnet:?xt=urn:btih:2BA93DD76EAD058B182F00E736C9E93B0A7EDE4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Billie Holiday - Birth Of A Legend (30-e - 40-e) 2019, Rough Guides [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:05FF1D06A8C6FC9D4EB52A4486E19E084C9C32A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -112,6 +118,8 @@ CD2 (01:12:14)
 magnet:?xt=urn:btih:8094237324F797CB15EA8C01D654573411647588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +153,8 @@ Mason Casey - Reefer Smokin' Man (2000) [MP3|320 кб/с]<Blues Rock, Harmonica>
 magnet:?xt=urn:btih:AF2FF6EBD91BAEFFEDEE7AADB976CCBFF3B87753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +182,8 @@ CD1:
 magnet:?xt=urn:btih:490A78CD3F938A9FE9241E2A5D04B1ED36FE8E4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +210,8 @@ Dakota Staton - Live at Milestones (1986) 2007, Caffe Jazz [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:CC0BE822C16A3F82DC4F21D386E870BD49FBED47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +246,8 @@ Chris Thomas King - Why My Guitar Screams & Moans (2004) [WavPack|Lossless]<Blue
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +274,8 @@ Duane Allen - Yin-Yang (2004) [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight 
 ```bash
 magnet:?xt=urn:btih:79827C38B269868F494F19411C299D0893A64E67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +304,8 @@ J.J. Johnson & Kai Winding - Jay & Kai (1947 - 1954) 1992, Savoy Jazz [FLAC|Loss
 magnet:?xt=urn:btih:82E01EAD55D191C800FE47ED5D74DCCE6BEE3B99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +333,8 @@ Club des Belugas - немецкая Nujazz и Lounge группа. Ядро Club
 magnet:?xt=urn:btih:5B7E2C2591B209928C698B4CE7CAA39D0DC79261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +361,8 @@ John Haydock - Brush with the Blues (2022) [FLAC|Lossless|image + .cue] <Blues R
 ```bash
 magnet:?xt=urn:btih:AEF02514C6DB0C669DEADBEDDEFB721CA90AFC1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +397,8 @@ Dirty Dave Osti - Shakedown On Salvation Street (2013) [FLAC|Lossless]<Blues Roc
 magnet:?xt=urn:btih:3DF7400B1B790F8E3EBD935093889732C42E7E68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +425,8 @@ Eddie Higgins Trio - Essential Romance (2009) Venus Records [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:182D858DF9E599CD6CB1F71DB86875DABED91BCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +461,8 @@ Cityrhythm Orchestra - Vibrant Tone (2004) [FLAC|Lossless]<Big Band, Mainstream 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +489,8 @@ Steinar Ytrehus - Black Coffee and Sweet Love Songs (2022) [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:0C4031014DB08BB8F881D1102BF0000627D65B40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +519,8 @@ Lem Winchester & Benny Golson - Winchester Special (1959) 1991, Original Jazz Cl
 magnet:?xt=urn:btih:C8D1E50EAFFB3A01143ACD440B85B0CF6D8F91C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +547,8 @@ VA - Christmas Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:B5CF1793083326BAC333A63336C67FEA1DA3017B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +577,8 @@ Paula Atherton - Can You Feel It (2020) [FLAC|Lossless|image + .cue] <Smooth Jaz
 magnet:?xt=urn:btih:985AC448C897B1EA958F270DBFC955C26721853D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +606,8 @@ Kenny Dorham - Sings And Plays: This Is the Moment! (1958) 1994, Original Jazz C
 magnet:?xt=urn:btih:736D1ECCA6D0D7D0DF83D9C74DFE1271ADB643C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +634,8 @@ Bruno Angelini - Open Land (2018) La Buissonne [FLAC|Lossless|tracks + .cue] <Co
 ```bash
 magnet:?xt=urn:btih:DB3C3D44BA94AF36EEF332ECDFF2F1F808D12A5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +670,8 @@ The Jazz Masters - Top 50 Jazz Classics - The World's 50 Best Ever Smooth Jazz E
 magnet:?xt=urn:btih:27B3305DF82DBBE212835B4782E062D6433F3A43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +698,8 @@ Brzzvll - Waiho (2018) Sdban Records [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz
 ```bash
 magnet:?xt=urn:btih:3DF5F68ADE05F8690D3390E6C99977070344BD3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -685,6 +731,8 @@ Ally Venable Band - Wise Man (2013) [FLAC|Lossless]<Blues Rock>
 magnet:?xt=urn:btih:E5B0CF9F830C896780D098108450444D8C832999
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -712,6 +760,8 @@ Frank Wright Quartet - Blues For Albert Ayler (1974) 2012, ESP Disk [FLAC|Lossle
 magnet:?xt=urn:btih:6531EEB35C8C4191C69628200D03E5C8D71B5D8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -738,6 +788,8 @@ Claude Hopkins - 1932 - 1934 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swin
 ```bash
 magnet:?xt=urn:btih:7F3BA7629C4688B7F338C3226EBE9E4AC764EE51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

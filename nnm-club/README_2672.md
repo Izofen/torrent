@@ -20,6 +20,8 @@ Beat Find / Распознавание музыки v1.6.55 Mod by NURIK [Ru/Mul
 magnet:?xt=urn:btih:F9228C2D962FB415F7A43AA18047E4C4AF8A62C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ W.A. Production - Put Me On Drums by K391 1.0.4 VST, VST3, AAX RePack by BUBBiX 
 ```bash
 magnet:?xt=urn:btih:E325793B421342E1FB974F6F301A798B0436F6F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:23C2CAB99D474EF7F5DD8BBF10161F5309B508C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 ```bash
 magnet:?xt=urn:btih:9D201640832BAE0FCC4CF706321657386D8D32EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ VA - Electronic Lyrics (2025) [MP3|320 Kbps] <Synthpop, Pop, Dance>
 magnet:?xt=urn:btih:C986A8B93B9004361F2AB8ED3EDA32E5E3D2F73A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ NokoPrint v5.20.24 Mod by derrin [Ru/Multi]
 magnet:?xt=urn:btih:A67D1DDBFB7DA394BEBA03D8D9C03C8A8CB28E85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ PhotoRoom v2025.08.05 Mod by Maximoff⁠ [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2C470C596348E7668CA04B6987CCABC9DE82AA42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:2C470C596348E7668CA04B6987CCABC9DE82AA42
 ```bash
 magnet:?xt=urn:btih:82FD2747DF967FA80B47E0111FF535E8A559F345
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ DOS - 80s Forever (DJ Friendly Edition) (2013) [FLAC|Lossless|WEB-DL|tracks] <It
 magnet:?xt=urn:btih:074EFC139E9DF34CC93C18D4170BFA42A018C659
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ VA - Ethnicá 2025 (Tibetania Records) [FLAC|Lossless|WEB-DL|tracks] <Organic Ho
 magnet:?xt=urn:btih:541CA8115C16A62533C923BC47BA7DA2B6ECA7D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:541CA8115C16A62533C923BC47BA7DA2B6ECA7D6
 ```bash
 magnet:?xt=urn:btih:9BECACBA3857CDF23E1741811934D9AE06E3F3B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:9BECACBA3857CDF23E1741811934D9AE06E3F3B1
 magnet:?xt=urn:btih:FF1B73955BA27F87253C74436AB7DAFEA78037C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:FF1B73955BA27F87253C74436AB7DAFEA78037C5
 ```bash
 magnet:?xt=urn:btih:99EB307AA2EB324390FC0CB237F3E5670F1A2468
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:99EB307AA2EB324390FC0CB237F3E5670F1A2468
 magnet:?xt=urn:btih:02C27D5B63F9A7C4AAE237A1C4C78B136BF38E53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ PictureThis - Plant Identification v5.1.2 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:130C23F70B7895F81E749E02D043042857044739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:130C23F70B7895F81E749E02D043042857044739
 magnet:?xt=urn:btih:29B33B34264CF4F4706964C74BA5F99DD3C63A45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:29B33B34264CF4F4706964C74BA5F99DD3C63A45
 ```bash
 magnet:?xt=urn:btih:B1DD257E8B6EDED2C91A9A8CC62F1B3F9A457615
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ PeaZip — бесплатный архиватор и графическая о�
 magnet:?xt=urn:btih:68730FA990D383CA5A536F6E6B551FF4DA192BD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:68730FA990D383CA5A536F6E6B551FF4DA192BD8
 ```bash
 magnet:?xt=urn:btih:9C7FC6D5A5313ABC8739805357CCDBDE79C3A468
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ Vocal AI — Анимированный интеллект (Animated Intelligenc
 magnet:?xt=urn:btih:9B01CFDBD012BFF3543C6542DC291009ED672438
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:9B01CFDBD012BFF3543C6542DC291009ED672438
 ```bash
 magnet:?xt=urn:btih:FCF49BC4681DF07E7C3F747FF04A4365365760BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ Panic In The Woods - это одиночная или кооперативная
 magnet:?xt=urn:btih:CA7A77111555000AB4F5CC6FBC2D8F701E028A28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:CA7A77111555000AB4F5CC6FBC2D8F701E028A28
 magnet:?xt=urn:btih:3D72EB696040CE53EAAC6CCD44C9ED6ED33DE904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:3D72EB696040CE53EAAC6CCD44C9ED6ED33DE904
 ```bash
 magnet:?xt=urn:btih:99971AB961365C53F0B078F8CCF19AA38A283408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:99971AB961365C53F0B078F8CCF19AA38A283408
 magnet:?xt=urn:btih:8CE129C61980309EC43F1CE6347729F965D17BC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Cerrone - Disco Symphony (Symphonic Version) (2025) [FLAC 24/44.1|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:699FBC1DAE118BFE5EED7608548722DDB0CDC275
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

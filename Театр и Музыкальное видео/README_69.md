@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8EC9CF2247F28F430CA03B1A34B3FD539CB3E728
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:8EC9CF2247F28F430CA03B1A34B3FD539CB3E728
 ```bash
 magnet:?xt=urn:btih:734AD10464EDD25630C7143951AC8B52878C8F6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Riverdance - The Show 2002 (2002) DVD9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Katy Perry - MTV UNplugged (2009) HDTVRip
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Katy Perry - MTV UNplugged (2009) HDTVRip
 ```bash
 magnet:?xt=urn:btih:24F8DB6E488AE4D7655519A55DA780ADA41C170F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:24F8DB6E488AE4D7655519A55DA780ADA41C170F
 magnet:?xt=urn:btih:3B394C5787708E2E12E2FC27DB9FA47816FA6FE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:3B394C5787708E2E12E2FC27DB9FA47816FA6FE5
 magnet:?xt=urn:btih:44EBF992D2518FE10E8C1B961EEC61CB124B4345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:44EBF992D2518FE10E8C1B961EEC61CB124B4345
 ```bash
 magnet:?xt=urn:btih:5652E3AFD6B73D7EB724413AEC97EB8FFEC7A6A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Linkin Park - Live in Moscow (2011) HDTVRip [H.264/1080p]
 magnet:?xt=urn:btih:49643EA6747707F7A553951025B5DA18A1F3A3FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Whitesnake - The Purple Album (2015) Bonus DVD5 [EN]
 magnet:?xt=urn:btih:A6387333F47D8BCF58D6ABE47FEE86111883CFB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ Amelia Lily. Shut Up (2012) [H.264/1080p] WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:8454E0ADBEEBEECF468C13AF3DFBE095AFF7B48A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ The Rasmus. Somewhere (2012)  [H.264/1080p]WEB-DLRip
 magnet:?xt=urn:btih:19DB0D33991B8D8A719C5E5EDBBB790B252F1F71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Ellie Goulding. Figure 8 (2012) [H.264/1080p] WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:159E69C1F90089C959CF41549FBDADF2EB55D9C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Papajam. Every Day Every Night (2012) [H.264/1080p] WEB-DLRip
 magnet:?xt=urn:btih:F6A3D105C6AA69C363A8B4918CF9D95BDCCFC2A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Green Day. Nuclear Family (2012)  [H.264/1080p] WEB-DLRip
 magnet:?xt=urn:btih:06F1476174D2BDDAD5DB5716E9E8C63ED5EDC4E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ Xzibit. Napalm (2012) [H.264/720p] WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:AE7FED1E461A19167FA026B379E996836EE95CA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Roger Waters - The Wall (2014) BDRip [H.265/1080p-LQ] [PR]
 magnet:?xt=urn:btih:C23CDBEF96BA4AEE478BC7F73AFE54F97AEC8917
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ Chris Thrace feat. Glorya. Angel & Devil (2012) [H.264/1080p] WEB-DLRip
 magnet:?xt=urn:btih:8BD3F54C8F5368010E907D81C695820FF3F54006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Trey Songz. Never Again (2012) [H.264/1080p] WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:D3774D130F8598ABE88743B255B4F6E05A6CB732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ VA - Осенний марафон № 206: Дискотека с размахо
 magnet:?xt=urn:btih:DC1720F409AFA03C5C62D0975A6A3D43EEF27BB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ Deny the Cross(   Читать дальше...   )Производство: Spit
 ```bash
 magnet:?xt=urn:btih:7F1E7B24367802F31555B4031699547280834C81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ Venom - Live In London 1985 (2004) DVD5
 magnet:?xt=urn:btih:E9F59BD6FDA112CABFA744E91023A1EEE4F93C18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ Masquerade in blood (Sofia)(   Читать дальше...   )Производ�
 ```bash
 magnet:?xt=urn:btih:788F3A4C46BE136C993A8AFE1958C65CFFA794BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ Bon Jovi - Yokohama Stadium Japan Live (1996) VHSRip
 magnet:?xt=urn:btih:0AE729C72C963B39325CD717EA0AA88E71C0B715
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ Black Sabbath - Live... Gathered In Their Masses (2013) BDRip [720p]
 magnet:?xt=urn:btih:C43D77A43AFB8BB1ED088938092F1F2EA1D8C45B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ Katy Perry - Live At Glastonbury (2017) HDTVRip [H.265/1080p]
 ```bash
 magnet:?xt=urn:btih:68E010AEA56EC79DA2285BB5A0DD3A44472739BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

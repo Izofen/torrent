@@ -19,6 +19,8 @@ Rogue Hex - это карточная roguelite 4X-стратегия, в кот
 magnet:?xt=urn:btih:64B6242155D9FADB7EEAFE20FC02643FD962C697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:64B6242155D9FADB7EEAFE20FC02643FD962C697
 ```bash
 magnet:?xt=urn:btih:CF67925820CDF1BB7A6870C6130F7F2EE35D46B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:CF67925820CDF1BB7A6870C6130F7F2EE35D46B3
 magnet:?xt=urn:btih:DE088EE7AF72271363F0B5CD112199CC4E3EE5C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:DE088EE7AF72271363F0B5CD112199CC4E3EE5C3
 ```bash
 magnet:?xt=urn:btih:024F5A523980B6AF78AFB1BC182E62F75CB1D527
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:024F5A523980B6AF78AFB1BC182E62F75CB1D527
 ```bash
 magnet:?xt=urn:btih:1234ACAFC92B9C9944C32BAAD9FB84D431667385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:1234ACAFC92B9C9944C32BAAD9FB84D431667385
 magnet:?xt=urn:btih:A55F4EA4258801C726EBEA8AA1A6C1D722344526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ GODBREAKERS (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Juice Edition]
 ```bash
 magnet:?xt=urn:btih:B1B3069B29BC9E778C9E2980DE8142D445E1C566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Gunfire Reborn - это приключенческая многоуровнев�
 magnet:?xt=urn:btih:94D7626192B327C0950007F0CE32BC8ACA3D4B84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:94D7626192B327C0950007F0CE32BC8ACA3D4B84
 ```bash
 magnet:?xt=urn:btih:47314108E5B4225B26D8E985D18FDB59B3BB5488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:47314108E5B4225B26D8E985D18FDB59B3BB5488
 magnet:?xt=urn:btih:7324FC4DDEA455699ADF6B58494A8F228C4DC881
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:16DD6C276D08361012873F66C475C754D6319AE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:16DD6C276D08361012873F66C475C754D6319AE1
 ```bash
 magnet:?xt=urn:btih:947AF9D1BFEF0DAFD60887A5889B6CAD34E88C83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Jim Keller - End Of The World (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues,
 magnet:?xt=urn:btih:7341BEC6720D3011BB849E1C06619D5481EF899C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:7341BEC6720D3011BB849E1C06619D5481EF899C
 ```bash
 magnet:?xt=urn:btih:588D8298077025CD2B7A838C39C523E7E162ADE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Jeff McMillan - Momma Says There'll Be Days Like This (2025) [FLAC 24/44.1|Lossl
 magnet:?xt=urn:btih:AA1359C6B788AB2278D93AE82EFD6E8D6480CBBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Gerrit Veldman Band - Shifting Gears (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:F8DE397F131F1D515128E97A7CD9B2505621201A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ Fat Harry & The Fuzzy Licks - Zero Ten Alley (2025) [FLAC 24/44.1|Lossless|WEB-D
 magnet:?xt=urn:btih:34292B576525FD31ED2B7C4BF446F6E23B8087FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ Keiko Lee - KEIKO LEE sings Super Standards 3 (2025) [FLAC 24/96|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:A41C9DE4D6597FF3830F6AF6BF870DFD632A5434
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ Alma Micic & Eric Alexander - Lilac Wine 〜Tribute to Helen Merrill (2025) [FLA
 magnet:?xt=urn:btih:3F786E2BF67098DCF7EFBF8AD049F9068CEC45F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:3F786E2BF67098DCF7EFBF8AD049F9068CEC45F2
 ```bash
 magnet:?xt=urn:btih:C064CABF75F736322E7FEA6FDE7BB25F9F180246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ Photo Editor - уникальная программа для обработки
 magnet:?xt=urn:btih:765922337502B5BBE64B38D6BFD9B42E35487B11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:E80FA54F1F017B60B628A79ABF5EE9BB91D06A82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:E80FA54F1F017B60B628A79ABF5EE9BB91D06A82
 magnet:?xt=urn:btih:FD10ACF200302055A68B731AE5B413A4DFCCEB5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:FD10ACF200302055A68B731AE5B413A4DFCCEB5B
 ```bash
 magnet:?xt=urn:btih:8E66CF92602963B441442DB9E7EBA341335A0FBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:8E66CF92602963B441442DB9E7EBA341335A0FBF
 magnet:?xt=urn:btih:620E73D06AB5CCBDE5D3C7374D928D5A9FE3BBDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ DLNow Video Downloader - быстрое, полезное, практичное 
 ```bash
 magnet:?xt=urn:btih:064DA0BFB46D66BABB3D55EA05E5441DAC1EC7C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

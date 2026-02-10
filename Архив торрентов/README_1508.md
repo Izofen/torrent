@@ -19,6 +19,8 @@ Total Commander 10.52 (02.02.2023) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:7AC1F87FD466CD4E06C870B8A437F695ECD0D53C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Perfectly Clear WorkBench позволяет всего за пару клико
 ```bash
 magnet:?xt=urn:btih:FB6BCC83E46CE620E835339F17CB9F41C555464D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ updated_aug_2022_x64_dvd_17720d54.iso.
 magnet:?xt=urn:btih:EA8265E40A04448D5A52C9F7C2ED635E70323285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:73A23C4D5FDEEA591FDD3AB75B7F92B9908EE91F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:C1ACA490EEC07A7635DAE198641FD1B32E8D445E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Auslogics Disk Defrag Pro - это профессиональная версия
 ```bash
 magnet:?xt=urn:btih:6EFAF6255F4DADB896C2C6BA4A9685E85B42DD0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Glary Utilities - функциональный набор системных т�
 magnet:?xt=urn:btih:B514F16B83C04BEA114E83DB960D5D113AAA5094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ AntiPlagiarism.NET - инструмент, позволяющий исследо
 ```bash
 magnet:?xt=urn:btih:9E528E7A00F231C4BE834902CFC442A8A6FA6AFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 magnet:?xt=urn:btih:21DB4142AC52396C2C3FEE38580A5F1D8821D444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ FinePrint - многофункциональный драйвер для при�
 ```bash
 magnet:?xt=urn:btih:8E765E75893F290CF9AE28243D97FDB251709ADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Pixologic ZBrush - программа для трёхмерного модели
 magnet:?xt=urn:btih:075642769B67C7899CA2F4A2C68F90C631B88FCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Clipboard Master — удобный и всеобъемлющий инструм
 ```bash
 magnet:?xt=urn:btih:9F5D317DCBC41FF6AE720908112284E45DDC0EA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:8BCCE6D7732D9B774B9F7841F15703BE71C33B7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Icecream Screen Recorder – простая программа для запис
 magnet:?xt=urn:btih:07312FAF65466CCB3C8CFCDBA8B517BDD0164CB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Truecaller - представляет собой электронную теле
 ```bash
 magnet:?xt=urn:btih:8A5240CB380489103BAC99ED50B1F7887EE99BB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ ADB AppControl - это удобная программа для ПК, кото�
 magnet:?xt=urn:btih:5BBE8505C401DDEAC319AA3376CF49E611D3F0D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Visual Studio Code – визуальный редактор кода от ко�
 magnet:?xt=urn:btih:03B78ED1B2E1C629A3F4A89FA60D3D5C402F80D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ pdfFactory Pro - удобное приложение, представляюще
 ```bash
 magnet:?xt=urn:btih:3A758FDAEF1F417F81853A5BFA4ABE3F84A9CE45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:BD517AFDB63690CC74DFB73B9B8518137F405FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:BD517AFDB63690CC74DFB73B9B8518137F405FEA
 ```bash
 magnet:?xt=urn:btih:077235782E6B054D491D1BFBB3AA63B777AD3F82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ ProPresenter — это удобный многоцелевой инструме
 magnet:?xt=urn:btih:04DC92850713E847BA8E94DB741B26E66A77D868
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ FireAlpaca - это достаточно простой, но удобный г�
 ```bash
 magnet:?xt=urn:btih:36BB3D40045453B44E6B9FF7E171D63BBD60ADAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Photomatix может автоматически создавать HDR изоб
 magnet:?xt=urn:btih:3320BAA4A1A3C01A545C2BB3E96E141500F9FF9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:9FEDF028621BB85C5A750BC2A266DE020C2D5065
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ EditPlus – это компактный текстовый редактор д�
 magnet:?xt=urn:btih:A38489AD48FE28853EAE5AB3AF38051AF730624A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавля�
 ```bash
 magnet:?xt=urn:btih:494915F859974291858AC3DD8368F91F72736057
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

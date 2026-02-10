@@ -1,27 +1,3 @@
-###  Публикация: 987788   (923961) от 18.02.2016
-
-Допинг / The Program (2015) BDRip [H.264 / 720p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ирландский спортивный журналист убежден в том, что Лэнс Армстронг во время своих победных выступлений на Тур де Франс использовал запрещенные вещества. С этими убеждениями, он начинает искать доказательства, которые разоблачат Армстронга.Производство: Великобритания, Франция / Anton Capital Entertainment (ACE), Studio Canal, Working Title FilmsЖанр: Драма, биография, спортРежиссер: Стивен ФрирзАктеры: Бен Фостер, Крис О Дауд, Джесси Племонс, Ли Пейс, Дастин Хоффман, Лаура Доннелли, Брайан Гринберг, Элейн Кэссиди, Гийом Кане, Дени МеношеПеревод: Многоголосый закадровый, профессиональный (iTunes)Язык субтитров: АнглийскийПродолжительность: 01:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0843762B01525C5DF49D2AF7BACAC7EEE132C1C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095660   (923965) от 21.01.2017
 
 Ночное безумство / 48 часов, чтобы жить / Wild for the Night / 48 Hours to Live (2016) WEB-DL [H.264/1080p-LQ]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:0843762B01525C5DF49D2AF7BACAC7EEE132C1C5
 ```bash
 magnet:?xt=urn:btih:52CFD09E592CD22981957A6315B617ACCBDA826F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ magnet:?xt=urn:btih:52CFD09E592CD22981957A6315B617ACCBDA826F
 ```bash
 magnet:?xt=urn:btih:C4DE46735846EB60DAA69754819ACAC4A8CA74F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:C4DE46735846EB60DAA69754819ACAC4A8CA74F3
 magnet:?xt=urn:btih:A35C5E9B25DAB73FA2F60963201EC5B8F2533D87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:A35C5E9B25DAB73FA2F60963201EC5B8F2533D87
 ```bash
 magnet:?xt=urn:btih:08930C6D91CEB2A13611FF18A3157E6AF05A3BDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:08930C6D91CEB2A13611FF18A3157E6AF05A3BDA
 magnet:?xt=urn:btih:21F7B85C5EDF0CE9CBAB7B84A9E82D6FEDA26061
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:21F7B85C5EDF0CE9CBAB7B84A9E82D6FEDA26061
 ```bash
 magnet:?xt=urn:btih:12246B355068CC0335F8D23881CA4128DA1E410F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:12246B355068CC0335F8D23881CA4128DA1E410F
 magnet:?xt=urn:btih:9E62BAAA817B2122EF16E2B551DB0FFB64292235
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:9E62BAAA817B2122EF16E2B551DB0FFB64292235
 ```bash
 magnet:?xt=urn:btih:646F2478F49135EA57A48BCC88F03506CD2F5035
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:646F2478F49135EA57A48BCC88F03506CD2F5035
 magnet:?xt=urn:btih:6B0CD44DF55CB7A2F0FDF266E14F436A42E1A6EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:6B0CD44DF55CB7A2F0FDF266E14F436A42E1A6EA
 ```bash
 magnet:?xt=urn:btih:135EDAF23EBE7CB97E829FEDADE6F3A54C176755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:135EDAF23EBE7CB97E829FEDADE6F3A54C176755
 magnet:?xt=urn:btih:8C20687F5AF75E32E1B6EF4FA1D5BEA4BDCEB982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:8C20687F5AF75E32E1B6EF4FA1D5BEA4BDCEB982
 magnet:?xt=urn:btih:A826A6230EFBAE9B664A357447B0BAD97AACB653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ magnet:?xt=urn:btih:A826A6230EFBAE9B664A357447B0BAD97AACB653
 ```bash
 magnet:?xt=urn:btih:1268593662E0C82DFF119FF1F4818A3EBF55FCBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:1268593662E0C82DFF119FF1F4818A3EBF55FCBC
 magnet:?xt=urn:btih:681AF6120EE7C22D9D1F80B502DB91E2A0EA61D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:681AF6120EE7C22D9D1F80B502DB91E2A0EA61D3
 ```bash
 magnet:?xt=urn:btih:03BC8CD16840C022DF2DC3689D3797BB9FE6705F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:03BC8CD16840C022DF2DC3689D3797BB9FE6705F
 magnet:?xt=urn:btih:F16FFA5F2B7DBD9B6FE48BFF3C8C363BE29ECD19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:F16FFA5F2B7DBD9B6FE48BFF3C8C363BE29ECD19
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:F16FFA5F2B7DBD9B6FE48BFF3C8C363BE29ECD19
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +488,8 @@ magnet:?xt=urn:btih:F16FFA5F2B7DBD9B6FE48BFF3C8C363BE29ECD19
 ```bash
 magnet:?xt=urn:btih:65B52958B81D744D64955C18E045CE24AD59C154
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:65B52958B81D744D64955C18E045CE24AD59C154
 magnet:?xt=urn:btih:56557D453D04FF36F8C7C648D90669FFA0D0B8AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +540,8 @@ magnet:?xt=urn:btih:56557D453D04FF36F8C7C648D90669FFA0D0B8AB
 ```bash
 magnet:?xt=urn:btih:1205BA1CF2F69474F655740DDB0E6B196D4000E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:1205BA1CF2F69474F655740DDB0E6B196D4000E9
 magnet:?xt=urn:btih:EB4B1C6E875380E730750EF512984025272EEF5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +592,8 @@ magnet:?xt=urn:btih:EB4B1C6E875380E730750EF512984025272EEF5D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +619,8 @@ magnet:?xt=urn:btih:EB4B1C6E875380E730750EF512984025272EEF5D
 magnet:?xt=urn:btih:B5AC468C2216C0C87C566A1965A888BEEFD53D69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +644,34 @@ magnet:?xt=urn:btih:B5AC468C2216C0C87C566A1965A888BEEFD53D69
 ```bash
 magnet:?xt=urn:btih:7CF910E30645843C1741278EFEFC11882B31ECC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 862036   (924825) от 26.01.2015
+
+Обливион / Oblivion (2013) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_924825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земля, пережившая войну с инопланетными захватчиками, опустела; остатки человечества готовятся покинуть непригодную для жизни планету. Главный герой - техник по обслуживанию дронов - находит разбившийся корабль NASA, команда которого погибает у него на глазах. Ему удаётся спасти лишь одну женщину - и вскоре он понимает, что это перевернёт его жизнь.Производство: США | Universal Pictures, Truenorth Productions, Radical Studios, Radical Pictures, Ironhead Studios, Chernin EntertainmentЖанр: Фантастика, Боевик, Триллер, Приключения, МелодрамаРежиссер: Джозеф КосинскиАктеры: Том Круз, Ольга Куриленко, Андреа Райзборо, Морган Фриман, Николай Костер-Вальдау, Мелисса Лео, Зои Белл, Эбигейл Лоу, Изабель Лоу, Дэвид Мэдисон, Джон Л. АрмихоПеревод: Профессиональный дублированный, авторскийЯзык субтитров: Русский (Forced, Full), английскийПродолжительность: 02:04:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0095A7C039F60036D4B7F9DF152F328C013619BA
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

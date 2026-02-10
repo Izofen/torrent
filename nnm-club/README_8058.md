@@ -20,6 +20,8 @@ GoodNotes 5 v5.9.3 [Multi/Ru]
 magnet:?xt=urn:btih:49735200FDC89962868D5051B4AB3091AE019366
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:49735200FDC89962868D5051B4AB3091AE019366
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Christopher Lawrence - Un-Hooked: The Hook Sessions (2004) [MP3|320 Kbps] <Tranc
 magnet:?xt=urn:btih:843CCA91A0118B9AC73506777F248B84AFAC2008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Perfectly Clear WorkBench позволяет всего за пару клико
 ```bash
 magnet:?xt=urn:btih:0E989F23F7327DD9FAD7A0DF6BF2953F47A592E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Dejan Lazic - Istrian Rhapsody (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Class
 magnet:?xt=urn:btih:80B042E7734A5644BB56A6F182AB321176A48E42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Amplitude Studios | Артбук по игре Endless Space / The Art of Endles
 ```bash
 magnet:?xt=urn:btih:E8F16397947269807D1FED227216BAB14C796F72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ VA - Private Room - The Winter Lounge Session (2016) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:5E70B1E8F1C7F7B7B7EE7193FBA6B11C5C1BCF07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Infinite & Divine - Ascendancy (2023) [FLAC|Lossless|image + .cue] <Melodic Hard
 ```bash
 magnet:?xt=urn:btih:2F685798E6E7A24ADE97D7286C768EFFF88BF451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ Cause N Effect - Validation Through Suffering (2023) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:75C05EB135233ED410AE7A146BC54E3093C4E2FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:75C05EB135233ED410AE7A146BC54E3093C4E2FC
 ```bash
 magnet:?xt=urn:btih:939C2CA1379F5993D7D6CE7A1AAAAC6955963F6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ Alexander Popov - TrackWolves Best Of 2021 DJ Mix 2022-02-15:
 magnet:?xt=urn:btih:44103BA4C554F06F1D6662DA4733272BBE91F5C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ Dave Matthews Band - Walk Around The Moon (2023) [FLAC 24/48|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:ED85FF0195E3FED7D89B36EF890516C75BCD3A5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +357,8 @@ VA - Electronic Wunderland Vol.1 20 Chill out Master Pieces (2017) [MP3|320 Kbps
 magnet:?xt=urn:btih:5646F3D3594858D4549ECAEAECDCA0A7BE3E3544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ Amplitude Studios | Артбук по игре Endless Legend / The Art of Endle
 ```bash
 magnet:?xt=urn:btih:D633AFDE03F3E52026D82BD4E4B872000C101004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +409,8 @@ magnet:?xt=urn:btih:D633AFDE03F3E52026D82BD4E4B872000C101004
 magnet:?xt=urn:btih:6EA24E7784B5D7C9F784E0611B9E8F645CB2ADFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ Tacticool - это динамичные командные бои 5 на 5, с �
 ```bash
 magnet:?xt=urn:btih:D15B0F4B92F9FFA3318D77304256E2C120EE2F12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ August Burns Red - Guardians (2020) [MP3|320 Kbps] <Progressive Metalcore>
 magnet:?xt=urn:btih:2B5AD6B35E182595F5EAA1B8A2555C6956FF0937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:2B5AD6B35E182595F5EAA1B8A2555C6956FF0937
 ```bash
 magnet:?xt=urn:btih:67ED5A7B96D8DD00ACE466C45AB10B574AFE2DFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +519,8 @@ VA - Emotions (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:CC17D1F72272E51A5788A8F9FEDAFEB4BCB6CA05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:CC17D1F72272E51A5788A8F9FEDAFEB4BCB6CA05
 magnet:?xt=urn:btih:F2D5CA6E5B7739C2B75690F9FD9485B45F7C22E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ magnet:?xt=urn:btih:F2D5CA6E5B7739C2B75690F9FD9485B45F7C22E7
 ```bash
 magnet:?xt=urn:btih:16630743F10E76C7F2B407263D3165AA37B41633
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ MediaInfoXP - это проект с открытым исходным кодо�
 magnet:?xt=urn:btih:4A986CC6BE2AAD102557609431C650F1C3D2666B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ Mixcraft, созданный музыкантами для музыкантов,
 ```bash
 magnet:?xt=urn:btih:C2C71A10766B4EB6FF9D094F3DF1D3BEF7021B62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:C2C71A10766B4EB6FF9D094F3DF1D3BEF7021B62
 magnet:?xt=urn:btih:718F341485F14FAFDF0C11918FCF0BA3ADA8E4F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ Superdog - SuPerDoG (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Fusion, Contemp
 magnet:?xt=urn:btih:53E3564F1501B3639980099F5C3CBE124912DA7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ Twilight - Sign of the Times (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D57AF1821E19D640AF2BCDCDBDB3D2C1AED1C895
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

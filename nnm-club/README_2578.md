@@ -22,6 +22,8 @@ VA - Chillout & Lounge Music Essentials (2025) [FLAC|Lossless|WEB-DL|tracks] <Do
 magnet:?xt=urn:btih:C92354B6A8E9F26746AAEF172B42B9E1CCA204B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:C92354B6A8E9F26746AAEF172B42B9E1CCA204B6
 ```bash
 magnet:?xt=urn:btih:11EDAC5B718937F7948E7C9DCC97BBDE2799D143
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:11EDAC5B718937F7948E7C9DCC97BBDE2799D143
 ```bash
 magnet:?xt=urn:btih:5862C509224E4EF5262B3661B382EBA23CF86E59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Scott Bradlee's Postmodern Jukebox - Lounge Language Models (2025) [FLAC|Lossles
 magnet:?xt=urn:btih:A98EF431334C3854C8BB17DC4393EA4EAB57DFCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ Izzy Reign - Izzy Reign (2025) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Indust
 magnet:?xt=urn:btih:F19A56598C10816ACCD313ABF2B8040FE2C58EA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:F19A56598C10816ACCD313ABF2B8040FE2C58EA3
 ```bash
 magnet:?xt=urn:btih:A2A8358F93B2018C16D59EDD329EBCB3866B6482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:A2A8358F93B2018C16D59EDD329EBCB3866B6482
 magnet:?xt=urn:btih:2D26968E991C02B106AAB61C393464730A5F22EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:2D26968E991C02B106AAB61C393464730A5F22EE
 ```bash
 magnet:?xt=urn:btih:097430EA2ED49730A0CA3A5561EB5AD5866DAA2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:097430EA2ED49730A0CA3A5561EB5AD5866DAA2F
 magnet:?xt=urn:btih:5A38A5AD62744780527D4E8419CB333226A7746C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:5A38A5AD62744780527D4E8419CB333226A7746C
 ```bash
 magnet:?xt=urn:btih:DE230D58A0AF7F6733736E7286A40BA91087CE49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ VA - Groove Paradise (The Deep-House Collection), Vol. 3 (2025) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:809C28C84D586D40FE3D733C13CE80119476314F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:809C28C84D586D40FE3D733C13CE80119476314F
 ```bash
 magnet:?xt=urn:btih:98CEAF721B1DE2B1E324D8E5559A401650E6562F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:98CEAF721B1DE2B1E324D8E5559A401650E6562F
 magnet:?xt=urn:btih:5E46927A71830DE2DFFF19B384D288F44B328CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:5E46927A71830DE2DFFF19B384D288F44B328CAA
 magnet:?xt=urn:btih:35D7C55870006136E5D99A4FD1FBA462CE36CAF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:35D7C55870006136E5D99A4FD1FBA462CE36CAF2
 ```bash
 magnet:?xt=urn:btih:7A8A5AD3A0BE8A1B6058FCA201051382682A03E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ Cirkus - Cirkadelic (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Symp
 magnet:?xt=urn:btih:B94095C70C9BFD1384DE961FF4146BC2620C88EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:B94095C70C9BFD1384DE961FF4146BC2620C88EF
 ```bash
 magnet:?xt=urn:btih:CB76770FF9916429FAAC649FF9102DD389A22660
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:CB76770FF9916429FAAC649FF9102DD389A22660
 magnet:?xt=urn:btih:1D909E343399107CD170956D67553A7B0CFD28D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ Smooth Operator Pro - Спектральный балансировщик сиг
 ```bash
 magnet:?xt=urn:btih:643C25A6FFB0EBEF4B7AAD80C2F660B955716B1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ Paul van Dyk - This World Is Ours (2025) [FLAC|Lossless|WEB-DL|tracks] <Tranceco
 magnet:?xt=urn:btih:17B6B416859E741854D2C5D505DE199F388CDD7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ VA - 12.04, Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Spacesynth, S
 magnet:?xt=urn:btih:336C80F02F397D15018AEFE8F145386359BE753A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:336C80F02F397D15018AEFE8F145386359BE753A
 ```bash
 magnet:?xt=urn:btih:96BEA7F940F470CE18598BD90E1CF7DBE1808512
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:96BEA7F940F470CE18598BD90E1CF7DBE1808512
 magnet:?xt=urn:btih:96B85D5626CE68FAFC7361F981ED13C126DFF2D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:96B85D5626CE68FAFC7361F981ED13C126DFF2D5
 ```bash
 magnet:?xt=urn:btih:A085717A4E87041A2DB83BF3AEE61A73D6696E8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:A085717A4E87041A2DB83BF3AEE61A73D6696E8D
 magnet:?xt=urn:btih:800A3BA5857D4141E76C0F8A49D6205E6953C86E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:800A3BA5857D4141E76C0F8A49D6205E6953C86E
 ```bash
 magnet:?xt=urn:btih:F42939B4AD6D62985FBDE50012478274EF1DFBC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

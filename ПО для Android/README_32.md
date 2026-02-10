@@ -19,6 +19,8 @@ Patephone / Патефон v10.11.17 Mod by vl80k747 [Ru/Multi]
 magnet:?xt=urn:btih:A4072E1FB44D7F861D4FC88450B66EB40A0D4CB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Words – это лучшее приложение для изучения сл�
 ```bash
 magnet:?xt=urn:btih:293393AD68F896EF20A9F5BEE1727701FFACD402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:293393AD68F896EF20A9F5BEE1727701FFACD402
 magnet:?xt=urn:btih:39DBA4B1A80B7617695406620A8BD7F2DFC596CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ MiXplorer Silver - ещё один файловый менеджер для вз
 ```bash
 magnet:?xt=urn:btih:DC1B90E0DCD010E3EF80F0DD1CFDBCA593BDECBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ App Manager обладает красивым пользовательским �
 magnet:?xt=urn:btih:95FDA371CA84D8D298E02F9F88B86E2F55C5C25F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Easy Notes - записная книжка, блокнот бесплатно, �
 ```bash
 magnet:?xt=urn:btih:233B3A7654F30F35A5E65501BBD27524BB4640DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Grab Photos From Videos / Фото из видео v11.1.9 Mod by derrin [Ru/Mul
 magnet:?xt=urn:btih:5052A58D543A4C2B9B31D168F9867187932E2E25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ AIDA64 2.01 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C4597C168C3356F4D327F35165986C7B83F36122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Square Home - красивый, стильный и функциональный
 magnet:?xt=urn:btih:5559A5F3B6D7232F2551D86DB8B4B8DD2238A5C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:CDE367AA7145D1B281A82FF616B268DBA190EC1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ TuneIn объединяет спортивные события, музыку, �
 magnet:?xt=urn:btih:9BE1035ED40C4A4A394565EAF71F4DD8A3A3EC82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:9BE1035ED40C4A4A394565EAF71F4DD8A3A3EC82
 ```bash
 magnet:?xt=urn:btih:758C0696D72A8C5A8BDB1403C128387454AED85C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ PDF Extra PDF Editor & Scanner v10.13.2479 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:BBA4B28FC5AE2D00AB60528F2537E74C6677875C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ tTorrent - удобный, функциональный и из-за прочи�
 magnet:?xt=urn:btih:91F4BC9ED9DB6AB295DC6578280F35761D41F2EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Malloc Privacy & Security VPN 2024.02.140 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2C79D5CBBAB030AF1A9BB6045DC32EB415A5F570
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Giti VPN, безопасная платформа, дает вам настоя�
 magnet:?xt=urn:btih:8854CC3EAEFCA168AC8326F2FD0422DDE2FD749E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:8854CC3EAEFCA168AC8326F2FD0422DDE2FD749E
 magnet:?xt=urn:btih:8CB4516EEAE4F10511ED320A0C9CE08B3706CA7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ PictureThis - Plant Identification v3.82 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DDD2249542844D8EE5801F53E910EFD367093508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ BBVpn VPN — это молниеносное приложение, предос
 magnet:?xt=urn:btih:0FE05ACA0619174886B1AF28DA7B9694189DBCE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ VPN.lat — это бесплатный VPN-сервис для Android с се�
 ```bash
 magnet:?xt=urn:btih:A4400BAF00246A617D3DEAD1371E0FD81E7B1472
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ XY VPN — это абсолютно бесплатный VPN! Быстрое и
 magnet:?xt=urn:btih:4F21688DA7C90B7A730C4885737879354250B14B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ AIDA64 2.01 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:616FE6166C8C6FEDE0E628C4113946AB91427A1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Super Recorder - это мощное приложение для записи г
 magnet:?xt=urn:btih:07A7AEA4B6EA68CF77A9007164E6B95D8E3D7F7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Zaycev.net v8.9.4 Mod by Timozhai, Dymonyxx  [Ru/En]
 ```bash
 magnet:?xt=urn:btih:2FC49C9E78E028A082A1F06D90C8F24CEB8A4D21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:2FC49C9E78E028A082A1F06D90C8F24CEB8A4D21
 magnet:?xt=urn:btih:14B9B01DBE326CBF1CB9EB87DF66CB006AA830F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:14B9B01DBE326CBF1CB9EB87DF66CB006AA830F2
 ```bash
 magnet:?xt=urn:btih:12437FA10913D5477FE1CA9DD2660979E734B080
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

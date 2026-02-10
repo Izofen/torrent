@@ -19,6 +19,8 @@ DV: Невероятное вокруг нас. Осязание [17 из 28] / 
 magnet:?xt=urn:btih:290C80D8635CB2151C37561593B5FAE7B3E15B72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:290C80D8635CB2151C37561593B5FAE7B3E15B72
 magnet:?xt=urn:btih:FB0B8FA5F80CA2A8C558DD5D82BF223D043AAD60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ NG. Известная Вселенная / Known Universe (2009) BDRemux [H.264
 ```bash
 magnet:?xt=urn:btih:2FCF5641B0F5918A6AC61B69DF4538A068246251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Discovery: Аляска. Семья из леса / Alaskan Bush People (2014) H
 magnet:?xt=urn:btih:7A203D96C29326E45BDC47C056662277AE6917FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:7A203D96C29326E45BDC47C056662277AE6917FE
 ```bash
 magnet:?xt=urn:btih:C973F0CDB2E416558F30877669FFB8FDCA5F2E28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:C973F0CDB2E416558F30877669FFB8FDCA5F2E28
 magnet:?xt=urn:btih:AD34D90426E0B6BBDDB18676E30D624DC5A0303F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ BBC. Как построить ядерную электростанцию / How
 ```bash
 magnet:?xt=urn:btih:99AD490E81C26F2405AACEC03631944CE313AC54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:99AD490E81C26F2405AACEC03631944CE313AC54
 magnet:?xt=urn:btih:27ADA44EC5356145E26C6268E7A170390B1F406C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ NG: Происхождение: Путешествие человечества 
 ```bash
 magnet:?xt=urn:btih:2A3E90B35BB4B1F7F6674311B9A0AD88112A5B52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ DV: История письменности / Die Geschichte der Schrift (2011) 
 magnet:?xt=urn:btih:CF1531A0CAB3C81FAA307C93B16D9B6B11C6E9BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Discovery: Монстры механики. Искусственные монс�
 ```bash
 magnet:?xt=urn:btih:3C87F971272D68FBD7FF9CC66D29D024A213540C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Discovery: Через магию к звёздам / The Pop Illusionist (El Mag
 magnet:?xt=urn:btih:1D80D9E29F95E29B8834EF31E8BFFB736E9DE58B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Discovery: Монстры механики. Разрушители и круши
 ```bash
 magnet:?xt=urn:btih:0E81E053B79F38A0C5A3906B623DD7FD5E33313E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Viasat Nature: BBC: Экспедиция в Новую Гвинею / Expedition
 magnet:?xt=urn:btih:AA43BF620A96DC91D640723395912BF38C818A19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:AA43BF620A96DC91D640723395912BF38C818A19
 ```bash
 magnet:?xt=urn:btih:5D95A2535EEBFF94A143E14F1EE64DE0F2005546
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Discovery. Как устроена Вселенная. Есть ли жизнь 
 magnet:?xt=urn:btih:35C224E6DC3DA560F87DA4578B987FE82F021108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Discovery. Апокалипсис 2012: Откровения / Maya 2012 Prophec
 ```bash
 magnet:?xt=urn:btih:63B73E3A1B5C595D0B307AE403C6A6C19D096672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ NG: Секретные материалы древности. Великий п�
 magnet:?xt=urn:btih:24AA3391E84FF0418FB923F0FE3D4835CAC9914F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ BBC: Первобытные поселенцы Америки / Traking the Firs
 ```bash
 magnet:?xt=urn:btih:AC922A1BDFB4882998B9B564653677881ECE30C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ BBC: Материалы и факты. Металлы / The Secret World of Mate
 magnet:?xt=urn:btih:70A694DDF4A1A628180A73FA77DCFAD5083FBEBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ NG: Скрытый мир Амазонки / Amazon Underworld (2016) HDTVRip [H
 ```bash
 magnet:?xt=urn:btih:38EE740122FAF91FB50D5F121C86A0488AFC908A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ BBC. Тайная жизнь птиц / BBC. Secret Life of Birds (2010) BDRip [
 magnet:?xt=urn:btih:4B39A5F89C020541FBA37ED4965E8BDB2625F803
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ BBC: Horizon. Проект "Гринглоу". В поисках контрол�
 ```bash
 magnet:?xt=urn:btih:863A94A2791FF41FE525D03A0CDEBCA89CBCF394
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Animal Planet. Кошек не любить нельзя [6 серий из 6] /
 magnet:?xt=urn:btih:C98F2FACC538262098FB40A8136542B552B0D02E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ NGW: Планета птиц / Planet of the Birds (2018) HDTV [H.264/1080i-LQ]
 magnet:?xt=urn:btih:FA369E42C42777B2D169E25C0B7349CD35DE23F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ BBC: Мир природы. Птицы рая / BBC: Natural World -  Birds of t
 ```bash
 magnet:?xt=urn:btih:14499C3C62D452F448ED8311954C6F625F43060E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

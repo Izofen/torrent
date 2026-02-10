@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D062931C10073E99BE3B91187D75760C59DBA3D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D062931C10073E99BE3B91187D75760C59DBA3D1
 ```bash
 magnet:?xt=urn:btih:72F15511088FE4B2C9A934D020CC74DE984C3CC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:72F15511088FE4B2C9A934D020CC74DE984C3CC3
 magnet:?xt=urn:btih:B1631DFFD3366C45B8EEA9E6C3C205B414744F03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:B1631DFFD3366C45B8EEA9E6C3C205B414744F03
 ```bash
 magnet:?xt=urn:btih:6A8FFCC3576105B1BCEB4C27E316712966AE7A9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Funeral Suits - Islands Apart (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, 
 magnet:?xt=urn:btih:6429F92C9C47D2CBC018CD29226B56DB3DE31208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ VA - Alpine Grooves, Vol. 8 (Kristallhutte) (2016) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:FD7D5B9F7D8627D50EDCE4C070CCA5E07497829E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:FD7D5B9F7D8627D50EDCE4C070CCA5E07497829E
 ```bash
 magnet:?xt=urn:btih:3C5FA91C7F6CDA6FC45CEC148541B6056EAA5982
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ VA - Душевная музыка от радио Шансон. Версия 2 
 magnet:?xt=urn:btih:F0181248F23CDA516524DC65CF3C2EE0CD72EB02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Dreamshade - Vibrant (2016) [MP3|320 Kbps] <Modern Melodic Death Metal, Metalcor
 magnet:?xt=urn:btih:3ED4D0924E73F1FABB2311BAAC9E579DA04B9980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:3ED4D0924E73F1FABB2311BAAC9E579DA04B9980
 ```bash
 magnet:?xt=urn:btih:5B2F25715E4EE9FCAFA9CF53A3C65557E245B13C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ LensFlare Studio - инструмент, который должен иметь 
 magnet:?xt=urn:btih:0FA8325D49D33AF36DA8A39A6AD458813EE8E1E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:0FA8325D49D33AF36DA8A39A6AD458813EE8E1E6
 ```bash
 magnet:?xt=urn:btih:26B57A83BA815EA75A6AE59B78671B449F189EFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ Deafheaven - New Bermuda (2015) [FLAC|Lossless|image + .cue] <Post-Black Metal>
 magnet:?xt=urn:btih:D6526000A92FCBD63B4A3E943EDBCF1435F39037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:D6526000A92FCBD63B4A3E943EDBCF1435F39037
 ```bash
 magnet:?xt=urn:btih:818CD85EA116DB76F4E790C7CB5E2114AE86A6DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ VA - Top1000 Veronica 2016 (5CD) (2016) [FLAC|Lossless|image + .cue] <Pop, Rock,
 magnet:?xt=urn:btih:458838E812DB2A21466C371F844560947EFA47F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:458838E812DB2A21466C371F844560947EFA47F0
 magnet:?xt=urn:btih:69DADB201B126AFD0E72629CD1A30F7587E197EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:69DADB201B126AFD0E72629CD1A30F7587E197EE
 ```bash
 magnet:?xt=urn:btih:8058226221929385B91EC6E8E0EE5CDA05A208D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ Vanden Plas - The God Thing (1997) Reissue, Special Edition, 2004, Inside Out Mu
 magnet:?xt=urn:btih:21C7A0CE810DE59D6A98DD7E7D749D055DF779C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:21C7A0CE810DE59D6A98DD7E7D749D055DF779C7
 ```bash
 magnet:?xt=urn:btih:9E840E4CE9D5E45832998F2E94154F30E10CA49E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ Temp Monitor 1.2.2 [Multi]
 magnet:?xt=urn:btih:3EA8A24391DE1973EC91D3E84F4112CFC4D6A2F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ OmniGraffle Pro - Отличный инструмент для создания 
 ```bash
 magnet:?xt=urn:btih:9AF02E9B83021758230E1131D9F82C1C30EAFFE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:9AF02E9B83021758230E1131D9F82C1C30EAFFE7
 ```bash
 magnet:?xt=urn:btih:1E0AC7119BF7E83493C3D122B3A4B44FD3830ED5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ Anubis Gate - Covered In Black (2017) [FLAC|Lossless|tracks + .cue] <Progressive
 magnet:?xt=urn:btih:3CE5A087DA63E7518A48E6EB75F9BB693A8F2CC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ Neil Young - Peace Trail (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:27C4F2610CB44A88551CB12F6C4929B415C2DDD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:27C4F2610CB44A88551CB12F6C4929B415C2DDD6
 magnet:?xt=urn:btih:7ADF1E0E8B708F9303D6B344B036C3441B11EE62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:7ADF1E0E8B708F9303D6B344B036C3441B11EE62
 ```bash
 magnet:?xt=urn:btih:1B89C68FA3C3F23F6D61C78B30E4C4D2B3A29605
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

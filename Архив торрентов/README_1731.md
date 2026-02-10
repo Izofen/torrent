@@ -20,6 +20,8 @@ DirEqual - это инструмент сравнения папок, котор
 magnet:?xt=urn:btih:17709CDF0B90AA88B8380F6061BB980E86EE6A88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 ```bash
 magnet:?xt=urn:btih:28070A5BB46D027913B7B27D6E5A3DBE2447E9DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Multitouch 1.24.4 [En]
 magnet:?xt=urn:btih:DC00B13CC9F4626BA8687BFA256E556F2D6A2ED6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:DC00B13CC9F4626BA8687BFA256E556F2D6A2ED6
 ```bash
 magnet:?xt=urn:btih:42B6895ADE8C2B0F3A3CF33717F0B540DFF949DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 magnet:?xt=urn:btih:19732E486D247A568A787ADE9E78B2316AF810F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ GeoGebra — мультиплатформенная программное об�
 ```bash
 magnet:?xt=urn:btih:8B91E36AAC63FEF8273E43C05D2E4B96F8321210
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Reader — это быстрая и минималистичная програ�
 magnet:?xt=urn:btih:DFD3E50189512088375DD9E7708AAA9CB18C892B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:8D1CDCA02CC0B73C029F4E876234C0E3BEA36382
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Monkey's Audio — данная утилита предназначена для
 magnet:?xt=urn:btih:52A7A170CC4EEBCCF617C306B5A8EA76A95A85AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ GraphicConverter 11 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:256A0C9BC5A7D403C160B7A3692C9C10D7D5D372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ A Better Finder Rename является лучшим решением для а�
 ```bash
 magnet:?xt=urn:btih:95347D13337BF4739357842E759F16161366A617
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Bigasoft Audio Converter для Mac, все-в-одном аудио преоб�
 magnet:?xt=urn:btih:20470B8B0719622DC45630B5AB63672C969863EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ PTE AV Studio Pro - дальнейшее развитие программы Pic
 magnet:?xt=urn:btih:A0E7B25F51EB4078B067C487F96E34A594B1D9E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Display Maid позволяет сохранять и восстанавлива
 ```bash
 magnet:?xt=urn:btih:E56958A0E993CA529D7834B01517D589414C4433
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ Smart Driver Manager - это быстрый, простой и безопасн
 magnet:?xt=urn:btih:D5EFC931196613956331C9F30E9356F2E67F9C5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ CADintosh позволяет ускорить проектные работы и
 ```bash
 magnet:?xt=urn:btih:FA7425B26973C0637C51CE102482018D65227ACF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Psiphon предназначен для предоставления вам от
 magnet:?xt=urn:btih:8DEDD4B1B036C7B1315362D767F86D87DCD1DC88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:0C85BACFB28C8296E64173B1F063ADDF267C70F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ Text Editor Pro 27.1.0 + Portable + Bonus [Multi/Ru]
 magnet:?xt=urn:btih:3F66E8B412FAF2ACA37BBE6C70B0ACD38BC69DB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ Bigasoft Video Downloader Pro - это популярный одношаговы
 magnet:?xt=urn:btih:F0BC4E52EB8A836E028F95336AF98FDE390CC739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Draw.io 20.2.8 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E591964ED1B1C6E07B59A6F6F1AF945970F6E8F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ Smultron - простой и удобный редактор. Smultron - про�
 magnet:?xt=urn:btih:6991400BD1159FC6994079A791C4A207824E8F40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:227336235E28DF5769BD219700DB467FCB9D5316
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:227336235E28DF5769BD219700DB467FCB9D5316
 magnet:?xt=urn:btih:7B9AAC340268C16119EFC8389C98D2E131AC0718
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ HiBit System Information - управление списком всех прил
 ```bash
 magnet:?xt=urn:btih:9150C018BEBE584766337040B30D9C12FBA3E0A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +682,8 @@ Acorn (   Читать дальше...   )Тип издания: macOS Software
 ```bash
 magnet:?xt=urn:btih:A693F025EFF5047BA2078BE937DCC30C68C0F558
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

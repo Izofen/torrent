@@ -22,6 +22,8 @@ VA - La Musique Sovietique L’ete 1969 От Паланги до Гурзуфа 
 magnet:?xt=urn:btih:7C174199AB13379C2745D7DBA1BDF32C33B0946F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:7C174199AB13379C2745D7DBA1BDF32C33B0946F
 ```bash
 magnet:?xt=urn:btih:1A36E7845064A43B89077653958987CDD4E0C5BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:1A36E7845064A43B89077653958987CDD4E0C5BC
 magnet:?xt=urn:btih:E424D81AF27AB89BD7C076E4911BA4EF925751E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:E424D81AF27AB89BD7C076E4911BA4EF925751E0
 ```bash
 magnet:?xt=urn:btih:9E8D3DCEBC5E7B155807C3450203C7FE19633426
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:9E8D3DCEBC5E7B155807C3450203C7FE19633426
 magnet:?xt=urn:btih:1092A4DC637DDC94BD285EE93756EB8F36F92CDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:1092A4DC637DDC94BD285EE93756EB8F36F92CDB
 ```bash
 magnet:?xt=urn:btih:C5ED7258E70D8CEB8C7448146E5D2F4A617176BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA – Мамина пластинка 2. Лучшие хиты 70х-80х (2003)
 magnet:?xt=urn:btih:CC9294C30F71A7134B88D470A432F74331D80445
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Босса Нова - Навсегда самая красивая музы
 ```bash
 magnet:?xt=urn:btih:60E740A7F768226EE6C67C2FA5AB3BFCBD5FF02B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Босса-нова - По-прежнему Самая красивая м�
 magnet:?xt=urn:btih:EFB8924A35E64F4ED8339969514856E2035105FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Босса-нова - Самая красивая музыка в СССР 
 ```bash
 magnet:?xt=urn:btih:6C682551097415D3F765ACBCCCB24325B2CE8D1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Босса Нова - Всё ещё самая красивая музык�
 magnet:?xt=urn:btih:D09AE026F46A2F4EBB82A4808FC4A4F1C7EC9EAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Песенки под елочку (2009) [FLAC|Lossless|image + .cue] <С�
 ```bash
 magnet:?xt=urn:btih:179621E33A40898E3D1FE9903DF62D830F0771FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - ВИА 1970-х: О тебе, наверное (2007) [APE|Lossless|image + 
 magnet:?xt=urn:btih:474B7F9DF3DEEE01C8F392D9F975820372002278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Танго Оскара Строка (1997) [FLAC|Lossless|image + .cue] <R
 ```bash
 magnet:?xt=urn:btih:B41BB5584BD1D6BFC1FDCEE6F550DD6A36824B89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ magnet:?xt=urn:btih:B41BB5584BD1D6BFC1FDCEE6F550DD6A36824B89
 magnet:?xt=urn:btih:2AA33546B715E11D2E4F69FFC2F91EE885179B7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Давид Тухманов: Сердце любить должно (2005) 
 ```bash
 magnet:?xt=urn:btih:00E5851A8D13D2C901876FDE70727BCABCE66883
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - На Луну (2007) [FLAC|Lossless|image + .cue] <Retro, Jazz, Pop>
 magnet:?xt=urn:btih:6B8D67D6BD8EE8FB79AF244A390500A8AC1F7B56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Танцуют все! (2006) [FLAC|Lossless|tracks + .cue] <Эстрада
 ```bash
 magnet:?xt=urn:btih:9C6B82B971DED6195BF92E1A9C6A12F798FD4B18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:9C6B82B971DED6195BF92E1A9C6A12F798FD4B18
 magnet:?xt=urn:btih:5E7CD3768E99F795BC1D29FB20AB5DB49C6F676A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ magnet:?xt=urn:btih:5E7CD3768E99F795BC1D29FB20AB5DB49C6F676A
 ```bash
 magnet:?xt=urn:btih:EB925961BE5EA607E719C10F2A42F4A77F3DEC30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Anna German - Tanczace Eurydyki (1966, 2013) [FLAC|Lossless]<Retro, Pop>
 magnet:?xt=urn:btih:B3B87BB6818A8458281F0D3E644B2521E64B047A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ magnet:?xt=urn:btih:B3B87BB6818A8458281F0D3E644B2521E64B047A
 ```bash
 magnet:?xt=urn:btih:6B164585AFEA5C9A07E073CCC5157FB8EDE4DAD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ magnet:?xt=urn:btih:6B164585AFEA5C9A07E073CCC5157FB8EDE4DAD2
 magnet:?xt=urn:btih:5BDFDC78EF03DDA9F33AFE1A9A994473898F7EDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ magnet:?xt=urn:btih:5BDFDC78EF03DDA9F33AFE1A9A994473898F7EDA
 ```bash
 magnet:?xt=urn:btih:8EB3B3C8F5F04226E086C6975950BC745BC4B058
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ magnet:?xt=urn:btih:8EB3B3C8F5F04226E086C6975950BC745BC4B058
 magnet:?xt=urn:btih:928CF96BE61F7C6ECFC9E6D5799EF93307138A18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ magnet:?xt=urn:btih:928CF96BE61F7C6ECFC9E6D5799EF93307138A18
 ```bash
 magnet:?xt=urn:btih:82C3E66A77D1FD6648D66515CEA2C4B25B3225A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Project MSK - Time of Despair (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal,
 magnet:?xt=urn:btih:7F3923345D5CB8AA73D3460F535748300113C20F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Google Earth Pro 7.3.4.8642 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:82B17A3A316F1D5B596EE583F3F02D4F80D6183A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ RTG. Малые музеи Петербурга. Микроминиатюра (2
 magnet:?xt=urn:btih:F544D9E50FEDC617A8BC1322DA28BB7A01E5E670
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:F544D9E50FEDC617A8BC1322DA28BB7A01E5E670
 ```bash
 magnet:?xt=urn:btih:1A4C9ACACADAD59E6EA4C14810CA765C14E7E8E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ PhotoZoom Professional - программа является лучшей из �
 magnet:?xt=urn:btih:E31C6A820F81F9DC16791FBB2E72CE610A3F2798
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:E31C6A820F81F9DC16791FBB2E72CE610A3F2798
 ```bash
 magnet:?xt=urn:btih:B455D7B4E5695CEAD09BE76D35AA18E919CC9F9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Mother Misery - From Shadow To Ghost (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 
 magnet:?xt=urn:btih:59E5B3BCDDBAD240E6AD72F1F63A873DE4A47B89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ iCompta - простое, но мощное приложение для упра
 magnet:?xt=urn:btih:4C5E5B9BB13B2C7B0FD28D3BA2CA1D69B19E1FBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:4C5E5B9BB13B2C7B0FD28D3BA2CA1D69B19E1FBE
 ```bash
 magnet:?xt=urn:btih:BFADEA4F7EFA43DA5B061A987F5E3D426153B517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Royal Thunder - Rebuilding The Mountain (2023) [MP3|320 Kbps] <Heavy Rock, Psych
 magnet:?xt=urn:btih:7EBD0A1B09754C84C68E42B192A37DB509F2C3A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:7EBD0A1B09754C84C68E42B192A37DB509F2C3A8
 magnet:?xt=urn:btih:3B81F7EFF773F2BC2D8F6E8FACFA0292E2501494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:3B81F7EFF773F2BC2D8F6E8FACFA0292E2501494
 ```bash
 magnet:?xt=urn:btih:A506609B52B31BFCE53236123043745D0E0E0400
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Benny Golson - Gettin' With It (1959) 1995, Original Jazz Classics [FLAC|Lossles
 magnet:?xt=urn:btih:813B72D299CE6FB824EA3598937092519A73F14E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Thermae Romae Novae | Новые римские бани [2022, Web, 11 эп.] W
 magnet:?xt=urn:btih:FB583527B8DD6F0760229E2D8055F873CA3DE183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ YouCut - один из самых удобных и оптимальных по 
 magnet:?xt=urn:btih:9E17A8C51CEDE41E910F58C95EFDEB90F1369CDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:9E17A8C51CEDE41E910F58C95EFDEB90F1369CDE
 ```bash
 magnet:?xt=urn:btih:77FB11872AE5EAAA3A575AC290ABB3F7B2CC8C6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ Strayin' Anchors - Funk, Blues, and Green (2022) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:41EBD1DF0F4260AE2C1A2243BBEB1F308392995A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ RTG. Малые музеи Петербурга. История трамвая (
 ```bash
 magnet:?xt=urn:btih:8B710D5BD441FAE8ACF787F753F230727A03D061
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ Apache - самый широко используемый веб-сервер в
 ```bash
 magnet:?xt=urn:btih:A1139BABD5727848AEC9E6D86820A05FFC9271A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ Deadly Sinners - Murdered By Sin (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Po
 magnet:?xt=urn:btih:9113661564B3C13959BC84963DB7D3F81DC344B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:9113661564B3C13959BC84963DB7D3F81DC344B5
 ```bash
 magnet:?xt=urn:btih:E91D304393BA478F3B5D1F9323B5E24C8AAEA732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:E91D304393BA478F3B5D1F9323B5E24C8AAEA732
 magnet:?xt=urn:btih:7055CD8C7598E7227885734A61C572747E0204DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:7055CD8C7598E7227885734A61C572747E0204DF
 ```bash
 magnet:?xt=urn:btih:DE07FD8B4255C06A1CCB164AE689A573F4FCC73B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ Adobe Acrobat Reader для PDF 22.4.0.22039 Mod by Rajat [Ru/Multi]
 magnet:?xt=urn:btih:74E28F72F3D7D3EE225E24DEC9E3650FA585C8AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:74E28F72F3D7D3EE225E24DEC9E3650FA585C8AE
 magnet:?xt=urn:btih:DF7DCE690B9B664565952097EF4173ED4C607263
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ WinSnap позволяет делать скриншоты экрана мони
 ```bash
 magnet:?xt=urn:btih:F6D140CAB55AB13A50115A111C0192F5F37DD727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

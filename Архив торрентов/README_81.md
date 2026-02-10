@@ -19,6 +19,8 @@ Cockos Reaper является одной из самых продвинутых
 magnet:?xt=urn:btih:F10B5C0BA4744163E682700F24D5246BE4A9AD36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ HiPER Calc Pro v11.1.3 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AEA3F5DADF343548987006881D229E542C036A9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PDFCreator –  бесплатная программа для конверти�
 magnet:?xt=urn:btih:49110F30D1A98B140B7FBEEFB6F10227BACCE1F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:49110F30D1A98B140B7FBEEFB6F10227BACCE1F1
 ```bash
 magnet:?xt=urn:btih:70F7DC6BFA430B1A52840D8C13D3403E97ADE3CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Wise Care 365 – программный пакет, предназначенн�
 magnet:?xt=urn:btih:DFE1C5F788BFAFB59F25E6A8986F7606F813A8AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:5760CC19BCA14C36A70F5123642C0D72A21AE54C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Xplorer2 Ultimate - профессиональная версия небольш
 magnet:?xt=urn:btih:9F4283ED84831AABEF91B9D5661D08252EB028EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.7.6 Gold 
 ```bash
 magnet:?xt=urn:btih:BE25937F3E300915FCFA8BD618564C9380644C9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ AI Photo Editor Pro - Polish v1.633.211 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:6986B2F019A489F176FC854787823D4696C00E10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ FontViewOK 8.68 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C67FA6B7D38B6486FDD8D0AFBB08EA2B2380F1B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ WeNote: заметки блокнот планер v6.29 Mod by Balatan [Ru/Mult
 magnet:?xt=urn:btih:B39B1FE3B3D0D6ADEBC4DEC4FD9DD7A492B5C67A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:B39B1FE3B3D0D6ADEBC4DEC4FD9DD7A492B5C67A
 ```bash
 magnet:?xt=urn:btih:53D72EF0CFCBD4C0D79BFA8318714A3BE520C731
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 magnet:?xt=urn:btih:CA68B1D6D885A9DD280F38A702967B20CFCD72F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:71F31B15F7A360017F4E16F237D1D95EB1A64FF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ iDownerGo – это приложение для загрузки мультим
 magnet:?xt=urn:btih:32F09EFA1C64133204910DA26ACF11CB53DD3C0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:32F09EFA1C64133204910DA26ACF11CB53DD3C0C
 ```bash
 magnet:?xt=urn:btih:1500AD3EB2F90C8FC96A10BA42460A42A3F4E4B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 magnet:?xt=urn:btih:BFFD14EC2512D412B2F7FA7A0FB8BA7D74DB4490
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ FreeCommander XE - это довольно-таки удобный в работ
 ```bash
 magnet:?xt=urn:btih:9E563965D4430944CDEDB90F197EDA1373E00C8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Desktop Calendar – бесплатный календарь рабочего с
 magnet:?xt=urn:btih:C92FB97F263C0EA3BE3AFF7C6AFD4EF358043B6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:CF7376803C148C01D04EDE9AB2ABCDBDA4EBA599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 magnet:?xt=urn:btih:68B04211E134B532F2E9BADE63372CD6219BDF3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:D96F1B5DDE682CBB0E530DB7EBD26B7325D378D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Rainmeter - утилита для мониторинга ресурсов ком
 magnet:?xt=urn:btih:C044CFB0B5B961D573BC8D924ED0C73E82D5D8AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ magnet:?xt=urn:btih:C044CFB0B5B961D573BC8D924ED0C73E82D5D8AE
 ```bash
 magnet:?xt=urn:btih:A29191B2CDA4534BA55108A5D4884525283E5B01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ HomeBank можно настраивать полностью под себя, �
 magnet:?xt=urn:btih:B36FE98A164A7373FDBFEE08FF13C04EC25FA5D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 ```bash
 magnet:?xt=urn:btih:5A61BA59069D76C9C61BEBB492932ADAFE4CD9C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

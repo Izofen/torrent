@@ -22,6 +22,8 @@ Patti Brooks - Party Girl (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco
 magnet:?xt=urn:btih:01A28804E4647312C3D5E1F5B5B617470435E3FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Oceans Turn Red - MOIRAE (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore / Death
 magnet:?xt=urn:btih:78FA8F1E8C6FF78526432D5229D41936A055C71C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:78FA8F1E8C6FF78526432D5229D41936A055C71C
 magnet:?xt=urn:btih:B7BF610647872439222F0BE38A43F337855B65A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ VA - Modern Blues (2020) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:6A734DB01769A48BCD037098223D8056399FBAAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Molllust - Mother Universe (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo-Classical, 
 magnet:?xt=urn:btih:35B35D31F704B7E8848B97174E4409D7DE9CA060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Erik's Iridescent Tent - Peter Piper Pepperidge Farm at the Gates of Dawn Deterg
 ```bash
 magnet:?xt=urn:btih:A6855A5CDABA6B441A877E92A11FBC58949D6304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ VA - Blues Roots Of Music (2023) [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:4AA4CA36090A22D0E4DA6AADA06E4707414F32A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ VA - Blues Masters (2020) [MP3|320 Kbps] <Blues>
 magnet:?xt=urn:btih:B6A9195781F097376BCBA4056D10B286CF2BC06D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:B6A9195781F097376BCBA4056D10B286CF2BC06D
 ```bash
 magnet:?xt=urn:btih:8306349F5EE6529995BDD809540EB8D586DF552B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:8306349F5EE6529995BDD809540EB8D586DF552B
 magnet:?xt=urn:btih:E6FF89676FC8CB15FC995E59847370376E2E6D88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Rocket Boy - Resolute (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:F78D0DC4013F68DAB0A6D2365A8ECF3E5198E713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ magnet:?xt=urn:btih:F78D0DC4013F68DAB0A6D2365A8ECF3E5198E713
 magnet:?xt=urn:btih:50A4B9FEFAF7465EFAAF9C2C75BAC7F962E5F086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:50A4B9FEFAF7465EFAAF9C2C75BAC7F962E5F086
 ```bash
 magnet:?xt=urn:btih:D41A165A0F835C5315AF26A2D48858DB87C06E49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ Eddie Daniels & Roger Kellaway - A Duet Of One (2005) 2008, IPO Recordings [FLAC
 magnet:?xt=urn:btih:2822C59CA3738F761DE031F104F69A1A8C4567EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ VA - Cinderella, vol. 1 (50 Lovely Lounge Cookies) (2019) [AAC|~326 Kbps] <Loung
 ```bash
 magnet:?xt=urn:btih:19BB1CA60D26A252A6B28ABDEA3CA22F667A3E57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +441,8 @@ Manthus - Sentenced to Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:4D13637AC6C89A8E23B4080E95ABF8EFA9F59B4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +466,8 @@ magnet:?xt=urn:btih:4D13637AC6C89A8E23B4080E95ABF8EFA9F59B4D
 ```bash
 magnet:?xt=urn:btih:545A79044390BD8E457D0837FF3F59AFE0693A20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +496,8 @@ Paterikon - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Rock>
 magnet:?xt=urn:btih:559E9E46271FA13871226CD196D5313C2D326BBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ magnet:?xt=urn:btih:559E9E46271FA13871226CD196D5313C2D326BBF
 ```bash
 magnet:?xt=urn:btih:79607486F7B4DEB6AA51F229BEB13D49DE91627D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +548,8 @@ magnet:?xt=urn:btih:79607486F7B4DEB6AA51F229BEB13D49DE91627D
 ```bash
 magnet:?xt=urn:btih:84B990F231D5FBACA054DA5C6E7EA678F91DAB22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +578,8 @@ Trillion Ton Beryllium Ships - TTBS (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 magnet:?xt=urn:btih:0A8C095878484D4096DC1697A69C3CDE9AAEE60B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ Discovery: Современные Шерлок Холмсы / In the Mind of Cri
 ```bash
 magnet:?xt=urn:btih:84BC935505E740539B2162F29778F96777FADA0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +630,8 @@ Bartender - утилита для простой организации икон
 ```bash
 magnet:?xt=urn:btih:A98F944CD3E134685C0DA734D797AB89EF707926
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +660,8 @@ Afghan Haze - 2 Albums, 1 EP (2019-2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, 
 magnet:?xt=urn:btih:173CF953FEA37F7B34F352AC3EF8BB222858BA1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +685,8 @@ Zoc terminal - является довольно известным telnet/SSH/S
 ```bash
 magnet:?xt=urn:btih:70FCE6C4A13D158A34FF81263FD1F67502355B3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +712,8 @@ magnet:?xt=urn:btih:70FCE6C4A13D158A34FF81263FD1F67502355B3C
 ```bash
 magnet:?xt=urn:btih:8ECFCE4C1AC77ACBE782082D2E2729E34D736EF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

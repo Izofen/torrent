@@ -1,3 +1,29 @@
+###  Публикация: 513989   (656068) от 26.06.2012
+
+VA - Caribe - Grandes Êxitos (2011) [MP3|320 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656068.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1 - Caribe Hits:Жанр: DanceПродолжительность: 04:22:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C00F98E7BE7C78700A3289DB2F13631433B8D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 515668   (656073) от 26.06.2012
 
 VA - 538 Dance Smash vol. 3 (2012) [MP3|320 кб/с]<Dance, Club>
@@ -27,6 +53,8 @@ VA - 538 Dance Smash vol. 3 (2012) [MP3|320 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:5EBEB6D2405865B4A8539C1E094FB260F58E985D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -61,6 +89,8 @@ VA - Летний танцпол по-русски (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:CA3FA923A9232547FEBD62D303DD6645DBE6DEC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -87,6 +117,8 @@ VA - Vocal Chillout Live Set (2022) [MP3|320 Kbps] <Chillout, Vocal, Ambient, Re
 ```bash
 magnet:?xt=urn:btih:5166DB12504AF1631352890771DAF81A9941CD4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +147,8 @@ Jan Jensen - Коллекция (2022) [MP3|320 Kbps] <Italo-Disco, Pop, Synthpo
 magnet:?xt=urn:btih:92FDE707D5A5B6BD6F1DB99E1F321160D2BA2129
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +175,8 @@ Tim McMorris - The Singles (2015) [MP3|192-320 кб/с]<Hip-Hop, Rock, Pop, Folk
 ```bash
 magnet:?xt=urn:btih:5B1F0FA325A401E6B96CC8F7D4FD5E4A44A58B45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +205,8 @@ VA - Только русский свежак. Топ новинок поп му
 magnet:?xt=urn:btih:8A2F9520E46B7842C722168FE8C03644CA4DB41D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +233,8 @@ Pupo - Super Hits Collection (2015) [MP3|320 кб/с]<Pop, Dance, Disco>
 ```bash
 magnet:?xt=urn:btih:3912FAA338729446F0CE11013A5A1B8EF19FC3F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +269,8 @@ VA - Самый Лучший Хит-Парад DFM (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:A1441F604D7AF43BCFB1F6289B4D878E3A260A19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +304,8 @@ CD-1
 magnet:?xt=urn:btih:1B95C52159D098B72484DAE5383685F793ECF2E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +332,8 @@ magnet:?xt=urn:btih:1B95C52159D098B72484DAE5383685F793ECF2E2
 ```bash
 magnet:?xt=urn:btih:DB7F6D5CDB71E3CE004DE256162DEE7904D85849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +362,8 @@ VA - TOP May (2015) [MP3|320 кб/с]<Electronic, Lounge, Pop, Deep>
 magnet:?xt=urn:btih:60CCFBAF6CB77AFCCD449E80EAB34C1429F7A70D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +390,8 @@ VA - Воодушевляющий Мелодичный Транс [Sound Clinic 
 ```bash
 magnet:?xt=urn:btih:0B70628374DA759E33465BB0395780478F0C4E90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +420,8 @@ VA - Metal Collection 2 (2017) [MP3|320 Kbps] <Metal>
 magnet:?xt=urn:btih:427A2A29AF795453829CC048C67F56F32464A0CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +448,8 @@ VA - Record Super Chart #489 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:7182BA969265B74028321792C51BECE754D20D05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +478,8 @@ VA - The Horizont Of Bliss (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge, R
 magnet:?xt=urn:btih:82BECB742D3DD77E25B99EDF36D38CFF3DFB80D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +506,8 @@ VA - Empire Records - Chillout 13 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lo
 ```bash
 magnet:?xt=urn:btih:116D3214CE1623B6A3CD5DDFC93C6459ABABAB48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +536,8 @@ VA - Soul Motion: Top 100 Original Club Mix (2017) [MP3|320 Kbps] <House, Club, 
 magnet:?xt=urn:btih:1780C8904D637AD05D2C54B3E7A4197CAC85A057
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +564,8 @@ VA - Summer Romantic Songs (2017) [MP3|320 Kbps] <Pop, R&B, Rock>
 ```bash
 magnet:?xt=urn:btih:98440ACADCD23B389824063AE3CF75394B74EDE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +594,8 @@ VA - Dance Hits Platinium Colection Vol.2 (2017) [MP3|320 Kbps] <Pop, Disco, Eur
 magnet:?xt=urn:btih:3AC83FA111A67D0B3D4A2CDDC0BADE28F56D0ECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +622,8 @@ VA - Beatport Top 100 Trance May (2017) [MP3|320 Kbps] <Trance, Uplifting Trance
 ```bash
 magnet:?xt=urn:btih:14FAE257CAFC93545DC9FDA6D979A9E238355939
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +652,8 @@ VA - Empire Records - Dance Nudisco 17 (2017) [MP3|320 Kbps] <Nu Disco, House, D
 magnet:?xt=urn:btih:6432CB4CC83050A5CEBAAD8659768CFDF8A5606B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +680,8 @@ VA - Proximity Suspense: Synthwave Music (2017) [MP3|320 Kbps] <Synthwave, Synth
 ```bash
 magnet:?xt=urn:btih:0A7207C39C98D4E06315F948C4255C01DACB4850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +710,8 @@ VA - Empire Records - Club Hit 14 (2017) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:19858681379B93B4999496A634EA46947627678A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +738,8 @@ VA - The Best Of Trance 56 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:EFAF25D9C15096CFC20772D6A392F57A15F78D83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,32 +774,7 @@ CD-1
 magnet:?xt=urn:btih:3B81933FC9610DF87FF9221A9C5FA18772E9ECA7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904019   (656987) от 01.06.2015
-
-VA - Paris Lounge Airport (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_656987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel Ferry - Faraway [03:47]
-02. Gabriel Ferry - My Love Part One [06:06]
-03. Hotel Riviera - Another Change of Love [04:40]
-04. Hotel Riviera - L'obuli [03:43](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:13:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208F52E89FB0B31ADF9CB65DFC1667A371041BDF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

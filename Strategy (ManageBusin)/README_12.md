@@ -19,6 +19,8 @@ Moviehouse позволяет игрокам стать владельцами �
 magnet:?xt=urn:btih:179C44CF502C24A3A4134233A6CEAE869E25D82D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ HighFleet (2021) [Ru/En] (1.163d) License GOG
 ```bash
 magnet:?xt=urn:btih:CDED8906676B0DA53E777883AD08C6DA9367091A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cities: Skylines (2015) [Ru/Multi] (1.14.0-f4/dlc) License CODEX [Deluxe Edition
 magnet:?xt=urn:btih:27D0DEECDEB5B67A436E6F88C72E8ED3B30333C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Oxygen - градостроительный симулятор, включающ
 ```bash
 magnet:?xt=urn:btih:A1AD6EAB339B95D9AED21F39CEFB13D7AFD30E63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Citizens: On Mars - увлекательная стратегия, в котор
 magnet:?xt=urn:btih:DAEF5E1C26F5AC2D5EE8595C0C10AC3BFEE3F770
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ This Is the President – это управленческая игра с увл
 ```bash
 magnet:?xt=urn:btih:7C478D11785B5EDD53AD76B8EC1CDAED47C315B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ This Is the President (2021) [Ru/En] (1.0.0.7816929) License CODEX
 magnet:?xt=urn:btih:A26382BF49225A8D6C8809F8E05A443F81B275C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Airport CEO - это экономический симулятор, разраб
 ```bash
 magnet:?xt=urn:btih:7817CD18391C94B2909EFF6D8BAAE9ACF5EB553C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Wargroove 2 (2023) [Ru/Multi] (1.2.3) Scene Tenoke
 magnet:?xt=urn:btih:F8E720FC29579EAE4E56F6B0EC42299B39969DAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Land of the Vikings является градостроительным симо
 ```bash
 magnet:?xt=urn:btih:701AFEE4529261AF7312A450EFDEA0E637548235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Star Trek: Infinite (2023) [Ru/Multi] (1.0.0.256/dlc) Repack DjDI [Deluxe Editio
 magnet:?xt=urn:btih:F3EAA26E2ACC09A8921BAAF449B0ADEFF787898D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ RAILGRADE (2023) [Ru/Multi] (4.7.42.1) Scene Rune
 ```bash
 magnet:?xt=urn:btih:EA1410E8F127F5726BE581BFFB313DB307E2CE9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Anno 1701 (2007) [Ru] (1.0) License Новый Диск
 magnet:?xt=urn:btih:B57BD32032C670031BA68F45DB1E5B3F8E796F03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Airship: Kingdoms Adrift - это симулятор торговли и бое�
 ```bash
 magnet:?xt=urn:btih:E52ED9D5BC6937C73DAD07B74ACF5877008789CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ InfraSpace дает возможность юзерам стать мэрами 
 magnet:?xt=urn:btih:1B1051A77FB9D8B50B162614E03E1A5D2F65AC04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Cantata (2023) [En] (1.01/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:D715E02DFEEAB963D0D092B88C58EA87CBE0CB95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ One More Island (2022) [Multi] (1.8.1) License GOG
 magnet:?xt=urn:btih:8A35158FC4D6B813BFAE32E635B0FD825BFA640C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ SimCity 3000 Unlimited (2000) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:3F3A2297475B0F1392DACC25E077E0D51FDDF909
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ SimCity 2000 (1995) [En] (1.0) Repack dark_elf2 [Special Edition]
 magnet:?xt=urn:btih:20597FF951750A46B07A8BBDE85C8CF1C1DEC9A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ SimCity Enhanced выполнена в двумерной графике, обз
 ```bash
 magnet:?xt=urn:btih:37F8D9C8E9CEC0E5D6D3B160E8E2CDE8B14D59C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Nova Lands (2023) [Ru/Multi] (1.0.23) License GOG
 magnet:?xt=urn:btih:E914D9F0A02519F08C944AC6F6198E9C0A1BF966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Radio Commander – стратегия в режиме реального вре
 ```bash
 magnet:?xt=urn:btih:A33E3AC532DB3E7E6E8F11C407624EBFC899CD4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Hotel Giant 2 (2008) [Ru/Multi] (1.0.0.1) License GOG
 magnet:?xt=urn:btih:85A6311DD9C1B9382CFC2485F180C9BD88CF1AA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Civitatem - однопользовательский градостроител�
 ```bash
 magnet:?xt=urn:btih:CEAF35E3B9D9B26FBD636DC3BC848163E2F84BD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Railway Empire 2 (2023) [Ru/Multi] (1.0.0.51915/dlc) Scene Razor1911 [Digital De
 magnet:?xt=urn:btih:0DC6E554DAC2460633B97306F28A1BF4DFF80D80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ My Train Arrives – стратегический симулятор строи�
 ```bash
 magnet:?xt=urn:btih:49F73FB660D601D2192371B5ADDFA6E82758858C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

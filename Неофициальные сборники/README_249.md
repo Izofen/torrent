@@ -1,3 +1,32 @@
+###  Публикация: 948041   (415980) от 18.10.2015
+
+VA - Sexy Chillout Best 15 Tracks of Electronic Music Erotic Relaxation Lounge Tantric Chill Cocktail Party Oriental Moods (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_415980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexy Chillout Music Specialists - Move Your Sexy Body
+02. Sexy Chillout Music Cafe - Kaleidoscope
+03. Spa Chillout Music Collection - Somewhere Someday
+04. Beach House Chillout Music Academy - Lost and Found(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CE3768E42A8CB61CEC4E6961E46FAF50D1DE6F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948084   (415998) от 18.10.2015
 
 VA - Acoustic Lounge (With a Bossa Touch) (2015) [MP3|320 кб/с]<Acoustic, Lounge, Pop, Bossa>
@@ -21,6 +50,8 @@ VA - Acoustic Lounge (With a Bossa Touch) (2015) [MP3|320 кб/с]<Acoustic, Lou
 ```bash
 magnet:?xt=urn:btih:BEA2A4A6991A8A5D58B8ED979A5EB21D0B60A4D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - New Humans: Alternative And Rock Inde Music (2020) [MP3|320 Kbps] <Rock Ind
 magnet:?xt=urn:btih:44D9928606F5D93DB202E6EB1F30959F749BC44C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Jazz Chill House (2015) [MP3|320 кб/с]<Chill House, Lounge, Jazzy>
 ```bash
 magnet:?xt=urn:btih:814DD6F903A8C7508A9ED2216426975296BB8DB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Top 20 October Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loung
 magnet:?xt=urn:btih:288A58736E11624FC5B23555027E48BA4B5E9E51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - The Nights of Chillout and Lounge (2015) [MP3|320 кб/с]<Downtempo, Chill
 ```bash
 magnet:?xt=urn:btih:9288791D4084BB51354E59398D7650EC50FD0301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Зайцев.нет Лучшие новинки Сентября 2019 [MP3|
 magnet:?xt=urn:btih:0A7FA45A06B03BC7BFC91A02FD163A1C26AFB815
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Remember The 80's: New Generation Disco (2019) [MP3|320 Kbps] <Disco>
 ```bash
 magnet:?xt=urn:btih:33D077C1555490C93EA615761B84A8932FFBDF49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +260,8 @@ VA - Новинки Радио Шансон Часть 10 (2011) [MP3|256 kbps]<
 magnet:?xt=urn:btih:D8CEB51407A187FA4072C56226E40EDAEC503315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +295,8 @@ VA - Шансон: Осенний хит-парад (2011) [MP3|128 kbps]<Шан
 magnet:?xt=urn:btih:08938E0D83F72770603B2FBFCE3B95EE1419F527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +323,8 @@ VA - 80s Love Desire Vocal (2016) [MP3|128~320 Kbps] <Pop, Euro-Disco, Eurobeat,
 ```bash
 magnet:?xt=urn:btih:767AA9EBA973FEDE468704FAF4033E8149629D0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +353,8 @@ VA - Team Dogz: 200 Rap Hits (Vol.01) (2019) [MP3|227-320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:263C8580E415B182F97374C2F59CB80989167050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +381,8 @@ VA - Hope Is Dangerous: Pop-Rock Indie (2019) [MP3|320 Kbps] <Indie, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:CBE7078270222C58A001BB5E3D0CC77034221898
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +411,8 @@ VA - 1000 Разных Групп & ВИА ХХ Века (от Ovvod7) Vol.03 (2
 magnet:?xt=urn:btih:B3FEBDF6B1B443ECC248F33A87CCB6D7C11CAC8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +439,8 @@ VA - Make A Party: Popular World Mix (2016) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:F78B0C33DF3EFBF4E2A15232FAD54503A6BF5806
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +469,8 @@ VA - Stellar Medusa: Vocal Deep House October Mix (2016) [MP3|320 Kbps] <Vocal, 
 magnet:?xt=urn:btih:3A9588606A4288FF7DF4B339511FD058A2DF2BC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +497,8 @@ VA - Melodic Adventures Trance Madness (2016) [MP3|320 Kbps] <Trance, Melodic, E
 ```bash
 magnet:?xt=urn:btih:972ABD60ED23539D80699D8161AA8F3EB2B1DE0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +533,8 @@ VA - Top 55 Tracks for Cars Vol.14 (2012) [MP3|320 кб/с]<Breaks, House, Tranc
 magnet:?xt=urn:btih:2E5257CE57B5B8C95F340C146377F415376A8BC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +562,8 @@ VA - Дискотека 80-х, 90-х, 2000-x. Музыка По-Новому п�
 magnet:?xt=urn:btih:D4E0F076CA047EB72F460FF6B74B893D04EF215C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +590,8 @@ VA - Empire Records - Sound Clinic 5 (2017) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:77A6A04F2628D0307A1CEA2278D4339CC99235AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +626,8 @@ VA - Осенняя супер вечеринка (2012) [MP3|256 кб/с]<Pop, 
 magnet:?xt=urn:btih:270DD93CCCF24C3C2B9050801AE8021089C64A14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +661,8 @@ VA - Beat Full Trance Planet Volume One (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:358D2A8331664A31B0456CC515BCAF1F7CAEEBD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +689,8 @@ VA - This Is Dance: Top 100 Eurodance (2018) [MP3|320 Kbps] <Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:326A51910552D425CEA795B38A4B00555DB18935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +719,8 @@ Supermax - Good Songs (2015) [MP3|320 кб/с]<Pop, Disco>
 magnet:?xt=urn:btih:85C03AB53AB0304E598BE01AB9FC6DD8ED2CB814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +747,8 @@ VA - 150 Popular Songs: September Euromix (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:9F4CE1C7FB405A0874939A8191177F11ADA7CD0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,29 +777,7 @@ VA - Rock Alternative Collection (2018) [MP3|320 Kbps] <Rock, Alternative>
 magnet:?xt=urn:btih:81242DF0B3242A5D2B82EAEB7A38FEF5E6DC4546
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947720   (417715) от 17.10.2015
-
-Cher - Good Songs (2015) [MP3|320 кб/с]<Pop, Rock, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Believe (Live)Жанр: Pop, Rock, DanceПродолжительность: 05:21:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1351A84AE08893D925700C23C5D51BE5BD075C7D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

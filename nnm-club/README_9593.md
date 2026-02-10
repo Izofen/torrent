@@ -19,6 +19,8 @@ Spelunky – это уникальный платформер, в котором
 magnet:?xt=urn:btih:968795993D37E48CAE704C46AD9938CF7C0491D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:968795993D37E48CAE704C46AD9938CF7C0491D9
 magnet:?xt=urn:btih:BE65CF63D23008344E01E70BA6A0566EE5B2CD39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:BE65CF63D23008344E01E70BA6A0566EE5B2CD39
 ```bash
 magnet:?xt=urn:btih:A7C848308B74255BE30D91895334F87484D24850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Yesterday / Yesterday (2019) BDRip [H.265] [10-bit]
 magnet:?xt=urn:btih:E537F6DFD642D47C74171F3211AD72C5634D07BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:E537F6DFD642D47C74171F3211AD72C5634D07BF
 ```bash
 magnet:?xt=urn:btih:BB0D4315AA92B23C1F28E3C8D4103C373FF33AF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Character Animator — это приложение для анимировани
 magnet:?xt=urn:btih:759B7623A98AF2A8153CF9E794F90FB326008D34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Stand Up. Сезон 3. Выпуск №11 (2015.11.29) SATRip
 magnet:?xt=urn:btih:2BD306BA28381CD6BF6A76C983EF6F57FB54B08A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 ```bash
 magnet:?xt=urn:btih:7032A6BE4B574A6DD3A838013CDCEBACBE10858E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:7032A6BE4B574A6DD3A838013CDCEBACBE10858E
 magnet:?xt=urn:btih:B86D7624418223A896291FE6D23B4B1F0DCD24FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:B86D7624418223A896291FE6D23B4B1F0DCD24FF
 ```bash
 magnet:?xt=urn:btih:EA94D24E60C2F52B447F64733F79476BF07F1524
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ VA - 100% Annees 80 Hits, Party, Pop, Disco, Funk (2016) [MP3|320 Kbps] <Synthpo
 magnet:?xt=urn:btih:49638E3A946A8BA9CE46A0ECFC064A1EE0078376
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:49638E3A946A8BA9CE46A0ECFC064A1EE0078376
 ```bash
 magnet:?xt=urn:btih:B17D9CA8DAF216B989CA827C158DFE7FEDB3E292
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Folx Pro 5.1.13631 [Multi/Ru]
 magnet:?xt=urn:btih:1909995D99712A040BC10211BA75115CB74A6A6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:1909995D99712A040BC10211BA75115CB74A6A6F
 ```bash
 magnet:?xt=urn:btih:6046A9F20DF3B62634DE91FCC83971E7FA422EC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ Mylene Farmer - The Best Of (2007) [FLAC|image + .cue]<Pop>
 magnet:?xt=urn:btih:DDFF995EFF3CB20A032D17A96FA56C0554BEFD9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:DDFF995EFF3CB20A032D17A96FA56C0554BEFD9B
 ```bash
 magnet:?xt=urn:btih:D0829FC5B3AAEE7DDDE7FF34E2552A01D8230D5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:D0829FC5B3AAEE7DDDE7FF34E2552A01D8230D5D
 magnet:?xt=urn:btih:C79080E67379B3CCF5A6B063F4337985F08BB83B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:C79080E67379B3CCF5A6B063F4337985F08BB83B
 magnet:?xt=urn:btih:D460FF458DA19FE138309C7EEE40C47247C4BC0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:D460FF458DA19FE138309C7EEE40C47247C4BC0D
 ```bash
 magnet:?xt=urn:btih:28D5D1C566FB0271B261562D97D5CE09F466C84F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:28D5D1C566FB0271B261562D97D5CE09F466C84F
 magnet:?xt=urn:btih:C7F97DA62FA243416AB603CF02CFAE7089718B0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:C7F97DA62FA243416AB603CF02CFAE7089718B0F
 ```bash
 magnet:?xt=urn:btih:6AD57CE1E9DE6D8FD3D4BB35D868B0981FC12E1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:6AD57CE1E9DE6D8FD3D4BB35D868B0981FC12E1E
 magnet:?xt=urn:btih:F9DB0A23EEB0D3572A5977927F5D4FDD9820821B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ Cyberfox 50.0.1 for Intel + Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:2BE94F54E95D43E6BB0C42D51009618EF33A8680
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:2BE94F54E95D43E6BB0C42D51009618EF33A8680
 magnet:?xt=urn:btih:2363EAD5EBAEBD4B44832F2F0DA64611DD493BFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:2363EAD5EBAEBD4B44832F2F0DA64611DD493BFE
 ```bash
 magnet:?xt=urn:btih:C4D81514E3937FE3E784F1E8FFA93AB52244D90B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +686,8 @@ VA - Звезды Русского радио №2 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:6B2DB6010D61F805635BA7FF372510AA3A32933C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

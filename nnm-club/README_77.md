@@ -19,6 +19,8 @@ WinCHM - небольшая утилита для создания файлов 
 magnet:?xt=urn:btih:4E166E1C285A0D4D4A58E912A017228C01EB1FFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:4E166E1C285A0D4D4A58E912A017228C01EB1FFF
 ```bash
 magnet:?xt=urn:btih:6882CBD23398E99BAB3BD44D23606F3637666A20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:6882CBD23398E99BAB3BD44D23606F3637666A20
 magnet:?xt=urn:btih:6A4FD7ECCA60B9D4DF0C4243A07F9B8E6B33E53B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:6A4FD7ECCA60B9D4DF0C4243A07F9B8E6B33E53B
 ```bash
 magnet:?xt=urn:btih:85926CF3E6B011ABF8348CEF97D3673F0A3CDA73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:85926CF3E6B011ABF8348CEF97D3673F0A3CDA73
 magnet:?xt=urn:btih:C0FE53FA413594700C02F50BEBEAFB6C798CE0E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:C0FE53FA413594700C02F50BEBEAFB6C798CE0E0
 ```bash
 magnet:?xt=urn:btih:68249CB31856AFADFF230F42C600F0C08679E5FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:68249CB31856AFADFF230F42C600F0C08679E5FF
 magnet:?xt=urn:btih:9E25704067E02EDDD8061EC81377E44A278C197D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:01146279BFA78B5FB6D0E36092BE9EE292C51821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ MassTube — очень простая в использовании прогр�
 magnet:?xt=urn:btih:D40DE4D3CC5160613D84AF714D5BFE0C8989E4A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:D40DE4D3CC5160613D84AF714D5BFE0C8989E4A8
 ```bash
 magnet:?xt=urn:btih:BE9F4FA7428CC9B1E9AF7B65835F91D1E187C0D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:BE9F4FA7428CC9B1E9AF7B65835F91D1E187C0D3
 magnet:?xt=urn:btih:0F7EF0DE88DDD7219756689C291249B6870584F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:0F7EF0DE88DDD7219756689C291249B6870584F3
 magnet:?xt=urn:btih:CB1D2D672349EF76EB2BEAE7B195DE5473949D06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ magnet:?xt=urn:btih:CB1D2D672349EF76EB2BEAE7B195DE5473949D06
 ```bash
 magnet:?xt=urn:btih:CA846A37F8575B0B07A67F56BF7AA2357B337478
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:CA846A37F8575B0B07A67F56BF7AA2357B337478
 magnet:?xt=urn:btih:FDA4973630A71F1C9E10F1538CE9E064A4DBBD5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:FDA4973630A71F1C9E10F1538CE9E064A4DBBD5A
 magnet:?xt=urn:btih:6798094C9A0F8B290BCB8602ADEF1599897A1570
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:6798094C9A0F8B290BCB8602ADEF1599897A1570
 ```bash
 magnet:?xt=urn:btih:E03AB3EF823932C74E30B0D8E9CA5F2047F347BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:E03AB3EF823932C74E30B0D8E9CA5F2047F347BC
 magnet:?xt=urn:btih:8FC75AB11C2B74FAC038883267D58D791DF65382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:8FC75AB11C2B74FAC038883267D58D791DF65382
 magnet:?xt=urn:btih:B8EAC32E51CE1321E9FB87BA5CF9155FC5771DFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:B8EAC32E51CE1321E9FB87BA5CF9155FC5771DFE
 ```bash
 magnet:?xt=urn:btih:2F7FC6090002B0060CC4A345FC747492BD379C33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:2F7FC6090002B0060CC4A345FC747492BD379C33
 magnet:?xt=urn:btih:B0BC330AEF8333C71382B8C6EE92716F333BAE7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 magnet:?xt=urn:btih:6B7E4370EA5FAA1A15D95EA108E2206134E8ACDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:6B7E4370EA5FAA1A15D95EA108E2206134E8ACDF
 ```bash
 magnet:?xt=urn:btih:B48796FD8EAB14975B7289F3FFAEC78689F19144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:B48796FD8EAB14975B7289F3FFAEC78689F19144
 magnet:?xt=urn:btih:C4DB9879400F72B14D2EEBC14E73A2B08E7C271B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Bandicam поможет вам сделать запись игры с высо�
 magnet:?xt=urn:btih:5020D725A105B474C66907620A78BA4289C9014C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:5020D725A105B474C66907620A78BA4289C9014C
 ```bash
 magnet:?xt=urn:btih:3A68DCEEE04713B83763E1068EB6427599A5A6EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:3A68DCEEE04713B83763E1068EB6427599A5A6EF
 ```bash
 magnet:?xt=urn:btih:096AC658CCBA5B4F2ED078E6D5EF79636C838BA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

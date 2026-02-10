@@ -19,6 +19,8 @@ Prada и чувства / From Prada to Nada (2011) BDRip [H.264/720p]
 magnet:?xt=urn:btih:76836EF6290AC3D0E0C6A2646701DCD23E243430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:76836EF6290AC3D0E0C6A2646701DCD23E243430
 magnet:?xt=urn:btih:B28D70E9F97B6021A1604E1506B62C22C5837FF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Kriophobia (2025) [Multi] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:D943D108CC953D37B2572587AEFFA69A17DB0AEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Black Friday Instagram Stories & Reels — это мощный и энергич
 magnet:?xt=urn:btih:5F77DB2E40E918C44917C1CB535C141DDDC47419
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Winds of Arcana: Ruination (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:EF6E30FDFBBA85800A8C254AFBBA71977285C041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Aerosmith & YUNGBLUD - One More Time (2025) EP [FLAC 24/96|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:67A3CE2FA6E20B7221305CCE53138BF5C99F5053
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:67A3CE2FA6E20B7221305CCE53138BF5C99F5053
 ```bash
 magnet:?xt=urn:btih:C15F750FAF06D9F4590D4B8AA1D69E348FCAF850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:C15F750FAF06D9F4590D4B8AA1D69E348FCAF850
 magnet:?xt=urn:btih:D3ECC35B135FCAAD32BE5759820FEC08CFE42E57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:D3ECC35B135FCAAD32BE5759820FEC08CFE42E57
 ```bash
 magnet:?xt=urn:btih:8927D6F4B6ECE6A1E574345716FE57EAFB462311
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:8927D6F4B6ECE6A1E574345716FE57EAFB462311
 magnet:?xt=urn:btih:23576DF5709BBB43E39E8009634063214AE6600A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:23576DF5709BBB43E39E8009634063214AE6600A
 magnet:?xt=urn:btih:931AB1134530DB57C6E9A44EA37E7A7E9471AC70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:931AB1134530DB57C6E9A44EA37E7A7E9471AC70
 ```bash
 magnet:?xt=urn:btih:40B4DEA7A02811314CC98C0A54E5F294EEF18720
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:40B4DEA7A02811314CC98C0A54E5F294EEF18720
 ```bash
 magnet:?xt=urn:btih:5269AFC0415380B6FBDBA341419A3EF3E31A4C2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Bloodbound - Field Of Swords (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy
 magnet:?xt=urn:btih:19FF89B3FA06D609AD393159C38294EF9506EE49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ Sainted Sinners - High On Fire (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 
 magnet:?xt=urn:btih:79B825485986D3AB9E234837997592A953DAF7F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:79B825485986D3AB9E234837997592A953DAF7F3
 ```bash
 magnet:?xt=urn:btih:31803E62F89C8A01178A77B81357B6653CA63346
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:31803E62F89C8A01178A77B81357B6653CA63346
 magnet:?xt=urn:btih:049AC1C435D296DBD227F008D052A72045FA14EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:049AC1C435D296DBD227F008D052A72045FA14EC
 ```bash
 magnet:?xt=urn:btih:A1C0FA0A40ADB2DC2014746583E68ADC3BC6D48A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:A1C0FA0A40ADB2DC2014746583E68ADC3BC6D48A
 magnet:?xt=urn:btih:F61332EDA18ABAB29B932C953458398966EC2C27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:F61332EDA18ABAB29B932C953458398966EC2C27
 ```bash
 magnet:?xt=urn:btih:B661C1C5D5BB38BF6926892D5BC2B458E9EED2E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:B661C1C5D5BB38BF6926892D5BC2B458E9EED2E5
 magnet:?xt=urn:btih:26208A47D56FB4F709580EB6A2F0E9566A12330E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:26208A47D56FB4F709580EB6A2F0E9566A12330E
 ```bash
 magnet:?xt=urn:btih:4D8FD51D1CF4944A95931D4BEED1E65A71CF6C42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:4D8FD51D1CF4944A95931D4BEED1E65A71CF6C42
 magnet:?xt=urn:btih:E0CD9E4E3990ED9280018D09BD89E301CE00256B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:E0CD9E4E3990ED9280018D09BD89E301CE00256B
 ```bash
 magnet:?xt=urn:btih:FDAF76258E412EDBDF2BCC3D5CE497D0B6F1810D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:FDAF76258E412EDBDF2BCC3D5CE497D0B6F1810D
 magnet:?xt=urn:btih:8E82536B01E7853CF17A3EFB64F02E1EC46B1731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:8E82536B01E7853CF17A3EFB64F02E1EC46B1731
 ```bash
 magnet:?xt=urn:btih:816316CFC78B41963CC9EB561B5F15A4D47910D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

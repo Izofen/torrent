@@ -22,6 +22,8 @@ Stoner Kings - Hive Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Stoner Hard Rock>
 magnet:?xt=urn:btih:D599B6458BC6B00780A6DB5BE12B42BE9083E4A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Background Video Recorder Pro — это приложение, которое п
 ```bash
 magnet:?xt=urn:btih:A0CB0F462AC9D4594FFCB5489BB77FEDF823C8E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Esplanada - Closer to the Edge (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:9626B606B5C60AA808F5CD18E8B9C9F12EAD26A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Lillian Axe - 2024 - The Box, Vol. 2: The Quickening (6CD)Жанр: Hard Rock, H
 magnet:?xt=urn:btih:3927CBED41F8C29209D92793980FDCF2BAAF64ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Tondemo Skill de Isekai Hourou Meshi 2 | Кулинарные скитания �
 magnet:?xt=urn:btih:CE77007164D6B714EA6092CA1B93543AC893D9D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:CE77007164D6B714EA6092CA1B93543AC893D9D2
 ```bash
 magnet:?xt=urn:btih:87A2D7644B2486CC3139044A39EE1AAD9EA278C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ Cleopatrics - Love Revenge (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:49758572A82AC906402639C5BAC12080188BDB59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:49758572A82AC906402639C5BAC12080188BDB59
 ```bash
 magnet:?xt=urn:btih:92705AC342A0D36B9782ED763E39AD792CD2B637
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ Amerikan Bear - Seconds (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:D16377F68DFFE84CA9B467E004F26F89938D771D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:3B24BB625F7829AA396493DF89E6AC72FB89F269
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ Scrutiny проверит ваши изображения, ваши внутре
 ```bash
 magnet:?xt=urn:btih:07D71295DCE7B5B20C2B472B799958FAC3707B45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Silver Convention - Save Me (1975) Remaster, 2024, Omnivore Recordings [FLAC 24/
 magnet:?xt=urn:btih:A6633B4A538D8AFF96458EE1F942255C4C92321D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:A6633B4A538D8AFF96458EE1F942255C4C92321D
 ```bash
 magnet:?xt=urn:btih:52B33898EC27DA8948FF4B204FB71C36C60EFFAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:52B33898EC27DA8948FF4B204FB71C36C60EFFAE
 magnet:?xt=urn:btih:0F417DA3C37D993BF5C09C8BADDA22E6C3D212A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:0F417DA3C37D993BF5C09C8BADDA22E6C3D212A3
 ```bash
 magnet:?xt=urn:btih:AE64E84BF9F2E922E6F9611EC06ACD277D54027C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ Alex Kozub - Evenings & Weekends (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Roc
 magnet:?xt=urn:btih:9C846EF05757B6DCF351825C15C2E72FC14E0B6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:9C846EF05757B6DCF351825C15C2E72FC14E0B6F
 ```bash
 magnet:?xt=urn:btih:5E313CE64F98F6192154F51022F0A4BC3AC91A9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ Aaron Lehnen - Black Sabbath: A Tribute To Ozzy (2025) [FLAC 24/48|Lossless|WEB-
 magnet:?xt=urn:btih:A15DE655FBA243606A1BA80122A037C35959CB33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:A15DE655FBA243606A1BA80122A037C35959CB33
 magnet:?xt=urn:btih:D243D93E5186AD38507D45944BC8EFEEF600362D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:D243D93E5186AD38507D45944BC8EFEEF600362D
 ```bash
 magnet:?xt=urn:btih:B3573B5112CA9763DC48B7B15BEE762721042D46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ Wandance | Один танец [2025, TV, 1 из 12] WEBRip 720p raw
 magnet:?xt=urn:btih:3570C7FB130A3355356E25A673B98F10F91F8D58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:3570C7FB130A3355356E25A673B98F10F91F8D58
 ```bash
 magnet:?xt=urn:btih:B8ABED7672A6ABE2F9DC0C3F8E0B95F2B22FF3A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:B8ABED7672A6ABE2F9DC0C3F8E0B95F2B22FF3A4
 magnet:?xt=urn:btih:F09E95E26C56780E2DD7AC372B6472C164731184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:F09E95E26C56780E2DD7AC372B6472C164731184
 ```bash
 magnet:?xt=urn:btih:A9ED244EAC3177738CD3DCEDDC90B68E84A5C75B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:A9ED244EAC3177738CD3DCEDDC90B68E84A5C75B
 magnet:?xt=urn:btih:9445EBC25D5AD6AA61772EC66EB2D48458089A25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:9445EBC25D5AD6AA61772EC66EB2D48458089A25
 ```bash
 magnet:?xt=urn:btih:953595EC03D607B1FCE0E39FF12B4CCF700DC198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

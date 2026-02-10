@@ -19,6 +19,8 @@ Hakata Tonkotsu Ramens / Тонкоцу-рамен из Хакаты [2018, TV, 
 magnet:?xt=urn:btih:28DE049D02864A0C926D3A5049072371B8BECCC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Sangatsu no Lion (2017) / Мартовский лев [ТВ-2] [2017, TV, 22 ep]
 ```bash
 magnet:?xt=urn:btih:7F8707B1B658F0BD3E563504CA0B1FAAB7191045
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dagashi Kashi / Магазинчик сладостей [2016, TV, 12 эп.] BDR
 magnet:?xt=urn:btih:0443A2CBDB25000E0C6047F4D92EC54FECEE3497
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e | Classroom of the Elite | До�
 ```bash
 magnet:?xt=urn:btih:B3B8E12B3F71930A0B0D9F19297AA945CC9D92B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Yuuki Yuuna wa Yuusha de Aru / Yuuki Yuna is a Hero / Герой Юки Юна (
 magnet:?xt=urn:btih:A6FDFA072C4C1C63EA60A9E05B3D82732C57BA9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Mary to Majo no Hana | Mary and the Witch's Flower | Мэри и ведьмин 
 ```bash
 magnet:?xt=urn:btih:73F6D689520D0EC595EEB8C06105393DB54D73B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Boku no Hero Academia | My Hero Academia | Моя геройская акаде�
 magnet:?xt=urn:btih:70248D78E1B0225C053F4F18F017A42097F85715
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Coluboccoro / Колубоккоро [2007, Movie] BDRip 1080р raw+rus
 magnet:?xt=urn:btih:731B16B9E813F8724B483C8A34EC4EF4D347C2AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Selector Infected Wixoss / Заражённый селектор WIXOSS [2014, T
 ```bash
 magnet:?xt=urn:btih:28923C26D0C7602DE53493C20381E07C02E67C9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Ore no Nounai Sentakushi ga, Gakuen Lovecome o Zenryoku de Jama Shiteiru / NouCo
 magnet:?xt=urn:btih:092FE03595A812B45188B2C7FBAC41590D8F6FF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:092FE03595A812B45188B2C7FBAC41590D8F6FF7
 ```bash
 magnet:?xt=urn:btih:70F8A481DA5A2711C35430D0EEBFC06AE1509477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Straight Jacket / Смирительная рубашка [2007, OVA, 3 из 3] 
 magnet:?xt=urn:btih:386077716CF4947BBDAB782097A151AC9BB70E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Tales of Zestiria the Cross / Сказания Зестирии [ТВ-2] [2017, 
 ```bash
 magnet:?xt=urn:btih:56CFB08DB534DFB1E698B20C84DFD8924C324E83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ ASS, Crunchyroll - English, Spanish, Portuguese | В составе контей
 magnet:?xt=urn:btih:AAB133736C3E719BC342904AFAB71D7840ABB766
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Tokyo Ghoul:Re | Токийский гуль: Перерождение [ТВ-3] 
 ```bash
 magnet:?xt=urn:btih:BF453698E0F5D1119EEBD9638E720F829D760B50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ Argento Soma / Аргенто Сома [2000, TV, 26 эп.] DVDRip 480p raw+rus
 magnet:?xt=urn:btih:8C4FC3F6D797EEEE264CF16089F57B99BC157585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Tales of Zestiria: The X / Сказания Зестирии [2016, TV, 13 эп.
 ```bash
 magnet:?xt=urn:btih:7ECCD9C5864EE3785E4E87A7B33A892513F177CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ Dimension W / Измерение W [2016, TV, 12 ep] HDTV 720p Raw+Rus
 magnet:?xt=urn:btih:5B364C3E8D9DF2CF88079CA1A53D0FA949C54FFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Gekijouban Fate/Grand Order: Shinsei Entaku Ryouiki Camelot | Fate/Grand Order -
 ```bash
 magnet:?xt=urn:btih:001F72D70E7925DAB07EF8029585FABA8A06BA0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ ORESUKI | Да как меня можешь любить только ты? | Or
 magnet:?xt=urn:btih:498F008F64CDE775D55F593ED910B21C4B7DDE82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ Hamefura 2 | Bakarina 2 | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni
 ```bash
 magnet:?xt=urn:btih:273608EFBDAB9640A181C1F1F86DDF91B4D406A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ Sola | Sky | Небо [2007, TV, 13 ep + 1 SP + 1 OVA] BDrip 720p raw+rus
 magnet:?xt=urn:btih:A4B481ED100A3A98AE658CB6DA48E6685EBB113F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ BNA: Brand New Animal | Совершенно новый зверь [2020, TV, 12
 ```bash
 magnet:?xt=urn:btih:075329C0E04006AA136F72DD5B80D4A058481C9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ Naruto Shippuuden / Наруто Ураганные Хроники [2007, 1-302 
 magnet:?xt=urn:btih:FB92B259A6C7665C30F6E26F7DDA0D99687E2A93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:FB92B259A6C7665C30F6E26F7DDA0D99687E2A93
 magnet:?xt=urn:btih:0CABE704FAB952670665C4FE3E5D8E51D9E8F57A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:0CABE704FAB952670665C4FE3E5D8E51D9E8F57A
 ```bash
 magnet:?xt=urn:btih:BBC89E0D72D1024F101028FF38C6C18CD3E2AD4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Advanced Find and Replace 7.8.1 [Multi/Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Advanced Find and Replace 7.8.1 [Multi/Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Java SE Development Kit - программное обеспечение необ
 magnet:?xt=urn:btih:9D3755F105525A37BD7F28516953BC5E1A4A460F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ LiraLand LIRA-SAPR + SAPFIR (ЛИРА-САПР + САПФИР) 2015 R4 [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:550E43AA209F50FE6E8177576957300662D4BB07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ CorelCAD 2021 – САПР-решение профессионального у�
 magnet:?xt=urn:btih:3F549521E3CDBE92A151278E9B0BEDC95E2423E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ X7 5-Mode Wireless for R4 (H8GR4) mouse V11.09V02 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E462684685ED80718A831A2063CB2B2EE84C308A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ NVIDIA GeForce Experience - это новое приложение от NVIDIA, 
 magnet:?xt=urn:btih:8A1C3A74600ABF44F558C212A6200D571292DAE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Active PKiller 1.6 + Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:B1EFC3C66922D9F9963A05C82E494C0ACA16EABC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Apowersoft CAD Viewer - это удобная в работе САПР прог�
 magnet:?xt=urn:btih:0510EBD8B5F09BA9D44F8F2484A3D8E1D3649345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Game WideScreener 2.0.1 + Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:FDAA8A43D8A8487195F40E89BD21C8BD20B0916F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ HelpXplain также может записывать многостраничн
 magnet:?xt=urn:btih:F290BFAE55DEEF22AB1EF5BD052BFD972C5AD2DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ InstallAware на данный момент - это самая мощная п�
 ```bash
 magnet:?xt=urn:btih:7ACEB55A116B47C42E1C34020A03EFDA2DB1F77F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Help+Manual - программа для создания справочных р
 magnet:?xt=urn:btih:1FB6E994A5B5CC468F63D33F9F58CEA80571C4E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ ArcGIS Pro, мощное приложение ГИС для одного раб�
 ```bash
 magnet:?xt=urn:btih:2B3F2597907B8710AD75AADF4C39ACA3DDFC905E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Unity — межплатформенная среда разработки ко�
 magnet:?xt=urn:btih:DD41F2A88F77BCB01DC70724BE5AC188226D168E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ MapInfo Professional - географическая информационная
 ```bash
 magnet:?xt=urn:btih:267560CD41685D43FD3F7F599CC3690A47EB247E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ ArcGIS Pro, мощное приложение ГИС для одного раб�
 magnet:?xt=urn:btih:27263B6991AAB31552EAC9BFCBFD636BAF5921E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Nemetschek Vectorworks - система для автоматизации раб
 ```bash
 magnet:?xt=urn:btih:5A25DFF26B8AADC354ABAADA8AACE7408294BE62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Golden Software Surfer отличает богатое разнообразие�
 magnet:?xt=urn:btih:96C31B917A70D20CF4CB53A4F51E5E2462229594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Unity — межплатформенная среда разработки ко�
 magnet:?xt=urn:btih:651C4256660E40A38C92EE1A8D8A18432EEA713E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ PGI Visual Fortran - компилятор Fortran и инструменталь�
 ```bash
 magnet:?xt=urn:btih:AF60574F76B185B9FC7C5E076EEAFEFDCDB14400
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ SQL Server 2022 — это основной элемент Microsoft Intelligent
 magnet:?xt=urn:btih:04FC1CD085F3E3E23AAEF2E0A3256F4260D23664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ HyperX NGENUITY — это мощное и интуитивно понятное
 ```bash
 magnet:?xt=urn:btih:FA4EB5909FDEEDE2FA5CB1FB22CA1DA688FCF241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Microsoft Windows Desktop Runtime 5.0.3 [En]
 magnet:?xt=urn:btih:7575388062E56AB00C31C15F2A61B1B3EF8F4951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Synplify - одно из лучших в отрасли средств RTL си�
 ```bash
 magnet:?xt=urn:btih:3FAB807F89798A0DC0E107DE871CED775A8B7FCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +681,8 @@ OpenSCAD – немногочисленная категория програм�
 ```bash
 magnet:?xt=urn:btih:06AC579B45E4162FA3C8452C187E82CF133FB0E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Stepik, Андрей Бойко, Анастасия Заречнева | Авт�
 magnet:?xt=urn:btih:06E253922579BB14FF6503E763556191F3B8BB35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:06E253922579BB14FF6503E763556191F3B8BB35
 ```bash
 magnet:?xt=urn:btih:19E38DDF20D6743141C5D337036BB75D5F1E0F24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:19E38DDF20D6743141C5D337036BB75D5F1E0F24
 magnet:?xt=urn:btih:09BF14AFCF63A7B4445365C699388E52E10B5C8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:09BF14AFCF63A7B4445365C699388E52E10B5C8F
 ```bash
 magnet:?xt=urn:btih:3A58FEB9474725826F4BCAD7EC11A008A6BEF6CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:3A58FEB9474725826F4BCAD7EC11A008A6BEF6CE
 magnet:?xt=urn:btih:6069C0498348C242709385D842D1156C1E35AB96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Experiment-fest,  Виталий Черемисинов, Искандер Мир
 ```bash
 magnet:?xt=urn:btih:D481B6960DF7693D3F4AD2059DE8383A7FBE495E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Udemy, Mrawan Hussain | Blender 2.83: How to create realistic BedRoom with Cycle
 magnet:?xt=urn:btih:A67E23C04A9DB5D58AC316941F40DCDBEDBC298F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ CGcircuit, David Adan | Introduction to VEX - Volume 1 (2019) PCRec [En, Ru]
 magnet:?xt=urn:btih:1BFED89A26A6777DC51D807B4BA33C08709C15C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Profileschool | Скрытая логика изобразительного м�
 ```bash
 magnet:?xt=urn:btih:E6449152ACC2EDDA423AF60C917F6C560FBE67D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:E6449152ACC2EDDA423AF60C917F6C560FBE67D3
 magnet:?xt=urn:btih:1F706209967E97FD99ACA622CE5CBBB534F1E134
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ lynda.com | CINEMA 4D R17 Essential Training (2016) PCRec [H.264/720p] [EN]
 ```bash
 magnet:?xt=urn:btih:4C7ADDA209CED6AC42B4997F0279A5A83F9C40CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ Foxford, Юлия Глухих  | Основы программирования 
 magnet:?xt=urn:btih:E970B5F679334A25344BE70F742C927976454A22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ ItGid, Александр Лущенко | Функции в JavaScript 2021 (20
 ```bash
 magnet:?xt=urn:btih:B246EE19E410566757B63C105B944163C6ADD9CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:B246EE19E410566757B63C105B944163C6ADD9CE
 magnet:?xt=urn:btih:32C38EB8DFCFEC9FD523B136AD08859BA0838082
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ Udemy, Юрий Бошников | Как самому сделать сайт, 
 ```bash
 magnet:?xt=urn:btih:02DEAF039D14023C973625B2A6A58252E1DDF7C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ OTUS, Дмитрий Еремин | Ручное тестирование (2020)
 magnet:?xt=urn:btih:009AB00EABA7679A64F8DA8FD4D4DBB246B4CEE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ magnet:?xt=urn:btih:009AB00EABA7679A64F8DA8FD4D4DBB246B4CEE0
 ```bash
 magnet:?xt=urn:btih:93DAFC935540FE598DC91E8D5CB4E36E529471F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ InfiniteSkills | Профессиональное руководство по в
 magnet:?xt=urn:btih:2EB5F2020246EC6B20B212D698EBFA52A41639F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:2EB5F2020246EC6B20B212D698EBFA52A41639F2
 ```bash
 magnet:?xt=urn:btih:1A41FBD64F6F36736A44BBC856FE0709F469B4EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ Diskill | Logo Start. Создание логотипов (2021) WEB-DL [AD]
 magnet:?xt=urn:btih:84C5E33E8BEF5B3C339DA361AFE173BC4C5DDCC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:84C5E33E8BEF5B3C339DA361AFE173BC4C5DDCC4
 magnet:?xt=urn:btih:312EECEFC175DD47AA5CFD7D012E4D8CD579BCEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ magnet:?xt=urn:btih:312EECEFC175DD47AA5CFD7D012E4D8CD579BCEF
 ```bash
 magnet:?xt=urn:btih:6E4B891ED36494FAB6A598A59F4E11E45CB18F93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ DAYTRADER.UA | Академия Контроля (2014) PCRec
 magnet:?xt=urn:btih:363C5DE56BACE72F403D9018E3F1B30EA2137917
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ EMPO | Maximum - полный пакет знаний интернет-марк�
 ```bash
 magnet:?xt=urn:btih:258F0FFEE828079AC5A53304971EC2A8413B4606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +685,8 @@ magnet:?xt=urn:btih:258F0FFEE828079AC5A53304971EC2A8413B4606
 magnet:?xt=urn:btih:EAF3ACEBCC53B9E717A412ED6C62180F54B334E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ Billy Blanks | 12 best tai-bo fat burning workouts (2017) HDTVRip [H.264/720p-LQ
 ```bash
 magnet:?xt=urn:btih:2DFBF20B0809C38E94D7B4E852CCB1330CBD9425
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

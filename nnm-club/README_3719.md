@@ -22,6 +22,8 @@ DLC «Вечные знания» \\ 36 часов дополнительног�
 magnet:?xt=urn:btih:7DB7C3C748E0CEAEA771EA1FE0F98BC858CA7389
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:7DB7C3C748E0CEAEA771EA1FE0F98BC858CA7389
 ```bash
 magnet:?xt=urn:btih:E71CC00D62908F2B798D5DB49C1C9D40F5CC7585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:E71CC00D62908F2B798D5DB49C1C9D40F5CC7585
 magnet:?xt=urn:btih:12B2AF8FBAB1BFCED202531D29004F0FF9FFFBEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:12B2AF8FBAB1BFCED202531D29004F0FF9FFFBEB
 ```bash
 magnet:?xt=urn:btih:FD60ED53447FD8E4C07346396A6F74E325F029C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ CPUID HWMonitor Pro - расширенная версия утилиты, пре
 magnet:?xt=urn:btih:9C3A2FC0DF122AA4E7782EB34C432C5489A3CFC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:9C3A2FC0DF122AA4E7782EB34C432C5489A3CFC5
 ```bash
 magnet:?xt=urn:btih:AD0915BDBBB163527849D2CE957816ABB9782BA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ The Labels and Databases — это приложение для создания
 magnet:?xt=urn:btih:DFC795571C8D19A38935F3484D0EF2C725AADF5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Iris — это высокопроизводительный экранный р
 ```bash
 magnet:?xt=urn:btih:AA0F77CA735BC1C2B7A0C8B9A77AA186F7DCEC57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Dominic Kelly - Blues Adjacent (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:79C91FA5A7F1C9FBE07C0CC89DA8F026AE1BA6E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ Unheilig - Gipfelsturmer (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Met
 magnet:?xt=urn:btih:85CAFF8783015D35FE7545F1978F3A5A063DAD5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ Mp3tag - мощный и простой в использовании инстр
 magnet:?xt=urn:btih:3F2323012DDF12ACA558454F0E0775310B5717EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ djay Pro обеспечивает полный инструментарий дл
 ```bash
 magnet:?xt=urn:btih:FCC289DAE2555C8D02CC07FCDFDF672BEF685B2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Hellman - Born, Suffering, Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Death 'n'
 magnet:?xt=urn:btih:ED8DA01DA422E5A7FA28472DF84B67F8F2B01C85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ Svend Asmussen - Fit As A Fiddle (1996) 2005, Storyville [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:291EEA5823DFF2946B281C31B312A89211FDF82D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ deer death - Next Death (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Shoegaze, 
 magnet:?xt=urn:btih:18F0EAB0CE671E206D6865F96217EB479F3D5895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:18F0EAB0CE671E206D6865F96217EB479F3D5895
 ```bash
 magnet:?xt=urn:btih:2514EFCDE6D4A6FF750B00411D2391CEFF25D060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ Unheilig - Lichter der Stadt (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic
 magnet:?xt=urn:btih:A27753F38AE4C345C25413D82A6AD046F5B220BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ Eddie Higgins - Eddie Higgins (1960) Victor [FLAC|Lossless|image + .cue] <Hard B
 ```bash
 magnet:?xt=urn:btih:08BB327C7BD7CB91901DD3F4C07B1D7813D930EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ Mahmood - Nei Letti Degli Altri (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 magnet:?xt=urn:btih:1CD7A8D5564AC1E3F9B927505676CE23C4366BED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ Sound Siphon делает аудиовыход вашего Mac доступны
 ```bash
 magnet:?xt=urn:btih:DF5868AA128AB42F2D8574D6FFED5FC32EE3E93C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ Belinda Metz - Electric Splash (1985) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 magnet:?xt=urn:btih:D77FE78CA969DFADC7805D83AC939A352DDC668B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ David Becker Tribune - Germerica (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusi
 ```bash
 magnet:?xt=urn:btih:538838447BD98D886173AFAD9E6242B2BCEB2765
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +631,8 @@ Smash Palace - Smash Palace (1985) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Powe
 magnet:?xt=urn:btih:636431F82C71EB3A14A2BD7BFE720B40F86A7C1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:636431F82C71EB3A14A2BD7BFE720B40F86A7C1A
 ```bash
 magnet:?xt=urn:btih:81FE49595706265B481AB7A3B948FCF2B04818C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +686,8 @@ Keith Thompson Band - Enigmatic Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Elec
 magnet:?xt=urn:btih:E51BE26767C56AF1EFCDC356B8833AA793B0E3A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +714,8 @@ Aname (Anamé) - 2 Albums (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Ho
 ```bash
 magnet:?xt=urn:btih:AC04301D4C1F210AA229913CDE8354B6824DC6A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

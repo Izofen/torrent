@@ -19,6 +19,8 @@ Udemy, 3D Tudor, Vladan Trhlik | Blender Geometry Nodes - Boats (2025) PCRec [EN
 magnet:?xt=urn:btih:F63AEBAEEC8BA3C8839E088DE0913C47FFAC3E32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Udemy, Christ Raharja | Cloning Yourself with AI: Create AI Version of Yourself 
 ```bash
 magnet:?xt=urn:btih:36BFE729984BFB6ABF46527984619011D138EA1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PurpleSchool, Антон Ларичев, Сергей Краснолобов | R
 magnet:?xt=urn:btih:63298F3DB3719B5A256BC6F422C3F2A766B161E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ George Vondriska | Создайте станцию для беспроводно
 ```bash
 magnet:?xt=urn:btih:6F009470F202D3F7EE1B3C0049692B04AD9ADD71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:6F009470F202D3F7EE1B3C0049692B04AD9ADD71
 magnet:?xt=urn:btih:7FB08434751A62F7B508C95ABE5BDC00FD5F5C67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Docker стал уже стандартом доставки приложени�
 ```bash
 magnet:?xt=urn:btih:8F831D44FCB252662B4097D1AF6C46038A50CBBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Stepik, Дмитрий Фокеев | Полный курс по React JS (Redux
 magnet:?xt=urn:btih:99914B8C993E17FBB6A748A2C6EF6277430DED99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:99914B8C993E17FBB6A748A2C6EF6277430DED99
 ```bash
 magnet:?xt=urn:btih:F947B49CE3200AE642FDC71355E1AD5E1735D2A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Zerocoder, Вадим Михалев | Зерокодер на Bubble (2020) WEB
 magnet:?xt=urn:btih:96AA2209DE7BEA36042968816619AF23A2EC27D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ Zerocoder, Кирилл Пшинник, Мария Размазина и д.р. 
 ```bash
 magnet:?xt=urn:btih:E4697DB96A4BDF0B59185FF3A18E212668A84CF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:E4697DB96A4BDF0B59185FF3A18E212668A84CF0
 magnet:?xt=urn:btih:AFCE458A5AAC7BB67686B935F29364170C5A1C5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ Zerocoder | Станьте профессиональным зерокодеро
 ```bash
 magnet:?xt=urn:btih:590E11FA44F4915A87AD5B5BF9E6FB827021CD7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ Zerocoder, Вадим Михалев | Зерокодер мобильных п�
 magnet:?xt=urn:btih:E0870096B9D95476C2E1C3FDFA1F2C8860ABCC27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:E0870096B9D95476C2E1C3FDFA1F2C8860ABCC27
 ```bash
 magnet:?xt=urn:btih:E9A1CE36B580835EC7D2847773001A5EC8EC19C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ ProfIT | XDebug: полезное расширение для каждого р�
 magnet:?xt=urn:btih:6DB9B3BCA8CEF0A78EE38C453B390D007F8A9383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:6DB9B3BCA8CEF0A78EE38C453B390D007F8A9383
 magnet:?xt=urn:btih:1933CCC5889C709025BABC1B64DC5C2E7385C049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ PluralSight | Cisco CCNA Security Introduction to Network Security (2014) PCRec
 ```bash
 magnet:?xt=urn:btih:7135A3CF13C40C8C4FF612F6DD9FBC47683167BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ magnet:?xt=urn:btih:7135A3CF13C40C8C4FF612F6DD9FBC47683167BE
 magnet:?xt=urn:btih:AEC341790A3DA9B808CDA9E1B84B4F660D68FC67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:AEC341790A3DA9B808CDA9E1B84B4F660D68FC67
 magnet:?xt=urn:btih:0FFAD89F1F93ABBD8C87C3AA46FED8EBE7E206A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:0FFAD89F1F93ABBD8C87C3AA46FED8EBE7E206A2
 ```bash
 magnet:?xt=urn:btih:4DC68DFE640BFB75FA9B5814D19C94579FE2E377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:4DC68DFE640BFB75FA9B5814D19C94579FE2E377
 magnet:?xt=urn:btih:0BEE23CC41D4D66A44ABF0395F9D01B964A63C09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:0BEE23CC41D4D66A44ABF0395F9D01B964A63C09
 ```bash
 magnet:?xt=urn:btih:CA2EB65C3F6B5634662A6137321FD60092CA9FC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:CA2EB65C3F6B5634662A6137321FD60092CA9FC9
 magnet:?xt=urn:btih:859427E0111C464A862D62C68048A6FE4E906D84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:859427E0111C464A862D62C68048A6FE4E906D84
 ```bash
 magnet:?xt=urn:btih:C2ADF183408CDA9941F3BC5C73D7B76A3B7138A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:C2ADF183408CDA9941F3BC5C73D7B76A3B7138A9
 magnet:?xt=urn:btih:9F359A000D36D806D97446A8D51C86284080DFAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ Udemy, Hussein Nasser | NodeJS Internals and Architecture (2025) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:BA5FD84C9BAEAC6C44B917502463B05B24279839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3C9A4C253355C399CC972F5F0D934DB41D4744A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Rene Cacheaux, Josh Berlin | Advanced iOS App Architecture, 4th Edition (2022) [
 ```bash
 magnet:?xt=urn:btih:7CB7CB315927B4C8281DB193BA6991CF203D44AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:7CB7CB315927B4C8281DB193BA6991CF203D44AA
 magnet:?xt=urn:btih:913A49D85C2B16014A08B5E51396C630706A3DE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:913A49D85C2B16014A08B5E51396C630706A3DE1
 ```bash
 magnet:?xt=urn:btih:338547A6D631DA56D1D05D93E9DAFE7F5C51644A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:338547A6D631DA56D1D05D93E9DAFE7F5C51644A
 magnet:?xt=urn:btih:6F2B08F50352ECA87930E73860A23A11DF5E8DB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:6F2B08F50352ECA87930E73860A23A11DF5E8DB2
 ```bash
 magnet:?xt=urn:btih:245BCAF3256FCDB971CCDFDBEA450D8080EB0B69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Hitman: Absolution - продолжение знаменитой серии эк
 magnet:?xt=urn:btih:34EC66850D6FAAFEF4A59AE1B5309BC0D4B3E335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:34EC66850D6FAAFEF4A59AE1B5309BC0D4B3E335
 magnet:?xt=urn:btih:0A30D68B163ED6223F16AB5A12CBA4385A4C1DE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:0A30D68B163ED6223F16AB5A12CBA4385A4C1DE8
 ```bash
 magnet:?xt=urn:btih:26A756202B19C212697327315E7773AEAB0336F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Megadeth - Endgame (2009) Reissue, Remastered, 2019, BMG Echo [FLAC|Lossless|ima
 magnet:?xt=urn:btih:85018BCC3CD7D171A209B26473D400C26FFB41D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:85018BCC3CD7D171A209B26473D400C26FFB41D7
 ```bash
 magnet:?xt=urn:btih:F55261426B1156E457E9DB3B2827290D96120A92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:F55261426B1156E457E9DB3B2827290D96120A92
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:F55261426B1156E457E9DB3B2827290D96120A92
 ```bash
 magnet:?xt=urn:btih:13C3E2831697797F24EF0F70D10558D3E3CD66C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:13C3E2831697797F24EF0F70D10558D3E3CD66C3
 magnet:?xt=urn:btih:1D6D076948BFC0131E82EE4312D89DC9BB014212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ The Elder Scrolls V: Skyrim [Ru/En] (Repack/1.8.151.0.7 /3 DLC) 2011 | R.G. Shif
 magnet:?xt=urn:btih:9E623AF24CDE593A8AF25E81738BFB9C6855E3E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:9E623AF24CDE593A8AF25E81738BFB9C6855E3E7
 ```bash
 magnet:?xt=urn:btih:1545FA8F387036BC7659BD9F3D97997B1BC89330
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ System Ninja - бесплатная утилита для быстрого и а
 magnet:?xt=urn:btih:4D9019FF61108473B964699A82F1837325C0E5CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:4D9019FF61108473B964699A82F1837325C0E5CE
 ```bash
 magnet:?xt=urn:btih:0C6EA165E505A01A2B23276C5C22B667D15C4A4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:0C6EA165E505A01A2B23276C5C22B667D15C4A4C
 magnet:?xt=urn:btih:1EC9D5AF1E64260219501EB80AFE9EA395974836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:1EC9D5AF1E64260219501EB80AFE9EA395974836
 ```bash
 magnet:?xt=urn:btih:D43E92AF77A366FB84B2740FBFB4D8ED4ACB00DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:D43E92AF77A366FB84B2740FBFB4D8ED4ACB00DE
 magnet:?xt=urn:btih:75B16F7BD7A2D238FDF387AC3A38D140572D437C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:75B16F7BD7A2D238FDF387AC3A38D140572D437C
 ```bash
 magnet:?xt=urn:btih:48FE12B759DB0A59B640B1F81DA1881C84CA9F20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:48FE12B759DB0A59B640B1F81DA1881C84CA9F20
 magnet:?xt=urn:btih:17635E149742B66A42AE7E2711DF399961524808
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:17635E149742B66A42AE7E2711DF399961524808
 ```bash
 magnet:?xt=urn:btih:4C11292C6E52A2E411CDDD8BBE72CE48249717CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ VA - Hypnotica: Psy Trance Megamix (2021) [MP3|320 Kbps] <Psychedelic Trance>
 magnet:?xt=urn:btih:DCA01D9ECE1FBD502BD176DB08DE729971986521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ Megadeth - Th1rt3en (2011) Reissue, Remastered, 2019, BMG Echo [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:B5754B103FFC28B2A8EF4368237D86160AD838BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

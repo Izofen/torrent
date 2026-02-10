@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:2421275F9A4380584C379EF4580AC3E880EB32B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:2421275F9A4380584C379EF4580AC3E880EB32B4
 ```bash
 magnet:?xt=urn:btih:052286278CB31587B1DD3CAD5B96DF625FCAE1E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:052286278CB31587B1DD3CAD5B96DF625FCAE1E0
 magnet:?xt=urn:btih:65B41E89B0DBC937CEB94DCBFFEA0FDB5BBC6AA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:65B41E89B0DBC937CEB94DCBFFEA0FDB5BBC6AA9
 ```bash
 magnet:?xt=urn:btih:2A0A274C182B1FBC0DF1B06ADEA00ED649EF7278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:2A0A274C182B1FBC0DF1B06ADEA00ED649EF7278
 magnet:?xt=urn:btih:5A8CFC0746AF4CF22C808090EF47C13C740757E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:5A8CFC0746AF4CF22C808090EF47C13C740757E9
 ```bash
 magnet:?xt=urn:btih:C8A5A06937358F8E270100292BBCFBB47920F424
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:C8A5A06937358F8E270100292BBCFBB47920F424
 magnet:?xt=urn:btih:88A60D0437606A70FD5BD7DD67906B94A1F70908
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:88A60D0437606A70FD5BD7DD67906B94A1F70908
 ```bash
 magnet:?xt=urn:btih:CCE07909470BA02B82138D283C750747AC849D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:CCE07909470BA02B82138D283C750747AC849D59
 magnet:?xt=urn:btih:F00A83A0014CCAF475579F0525CBF32D057D6ED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Шансонная осень (2002) [FLAC|Lossless|tracks + .cue]<Шанс
 ```bash
 magnet:?xt=urn:btih:251F856651970CC04ECD3E844782596BABF887CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Новое поколение русского шансона (2003) [FLAC|
 magnet:?xt=urn:btih:87993D58E3DA4EDB108D8E4CDE02326943945A47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Криминальная Россия 3 (2001) [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:D6D0D0744613E7F800A768CCD658A0B95F3481A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Шансонный хит 3 (2003) [FLAC|Lossless|tracks + .cue]<Шансо
 magnet:?xt=urn:btih:E357AEB88002D1A4C4FEC1EC834DE2F8F5D9DA85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:E357AEB88002D1A4C4FEC1EC834DE2F8F5D9DA85
 ```bash
 magnet:?xt=urn:btih:C92D044249C0FAB718D6A529F71C4346B7AFA42D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Шоферской 12 (2002) [FLAC|Lossless|tracks + .cue]<Шансон>
 magnet:?xt=urn:btih:6B9C0C9B19B6343301CF58603B461186F88E8CB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Песни нашего времени 4 (2005) [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:74D219731311961EEC6CA08516E601A5A769320B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ magnet:?xt=urn:btih:74D219731311961EEC6CA08516E601A5A769320B
 magnet:?xt=urn:btih:7814412C2DA3B60D1B37A0FFD932A9303EB84763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ magnet:?xt=urn:btih:7814412C2DA3B60D1B37A0FFD932A9303EB84763
 ```bash
 magnet:?xt=urn:btih:1850ADF854D9A84E3D4B3F909875E80993DCB649
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - На волне любимого радио шансон (2005) 2 CD [FLAC|
 magnet:?xt=urn:btih:2FD28DDFA10A00F9CA24B9CDA399592F9A483297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Шансон премьера 2025 ноябрь (Новые песни. Н�
 ```bash
 magnet:?xt=urn:btih:DC8F2E8DB9B13B083EBF68B2C7FB54F226454974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Шансон премьера 2025 октябрь (Новые песни. �
 magnet:?xt=urn:btih:0B775BC2FBA1A36A1BF214AB921E669D70117812
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ VA - Новые хитовые песни 2025, Часть 11 (2025) [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:E0411DC94C8D3D4BFF896F439CF5A748C46D64C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ VA - 50 песен радио шансон, Часть 8 (2025) [FLAC|Lossless|W
 magnet:?xt=urn:btih:DC08C23228E1037B7DC4F51AE6E637589594BDE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ VA - Сентиментальный шансон, Часть 2 (2025) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:2CACC744988234ECF7EA4E4A05D3412BB9C2DB60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ VA - Новогодний шансон 2026 (2025) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:A415AF3CFA1FBA064BAC133AB4D6DE9D815A3075
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ VA - Лучшие хиты шансона в машину (2025) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:BA92A420295556F4E84C2BAA7002785C6446625C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

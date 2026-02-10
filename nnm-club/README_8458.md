@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:ACC6A36DD5FC1DBC09A59C496E21D77388196712
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:ACC6A36DD5FC1DBC09A59C496E21D77388196712
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Udemy, Антон Ларичев | JavaScript Advanced - продвинутые 
 magnet:?xt=urn:btih:FA13C1E58ECB3646956648478387D0A8404EB5DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Kaspersky Free – бесплатный Антивирус Касперског�
 ```bash
 magnet:?xt=urn:btih:EB1664524C38452B26392BE538096FF55B6332FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Archvale (2021) [Ru/Multi] (1.3) License GOG
 magnet:?xt=urn:btih:FF05C7D51BC3C41FDE5485A30BA2B24901C0440B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:FF05C7D51BC3C41FDE5485A30BA2B24901C0440B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:FF05C7D51BC3C41FDE5485A30BA2B24901C0440B
 ```bash
 magnet:?xt=urn:btih:27749C6FFE0D0A2C70A2AB526EC96C887A65BD99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:27749C6FFE0D0A2C70A2AB526EC96C887A65BD99
 magnet:?xt=urn:btih:AB5F24DCBCFAF88C65BCB0296D4176C9FE55DB6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:AB5F24DCBCFAF88C65BCB0296D4176C9FE55DB6E
 ```bash
 magnet:?xt=urn:btih:03D018711F49C20397C0C1619335A84AC7220437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:03D018711F49C20397C0C1619335A84AC7220437
 magnet:?xt=urn:btih:993DD63DBF7FCC696BCCD9203968A6C2D35721BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 22.04.2023) [Ru]
 ```bash
 magnet:?xt=urn:btih:7193072AEFF0D1C265C86FE25C0DC6BAB85285CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:7193072AEFF0D1C265C86FE25C0DC6BAB85285CE
 magnet:?xt=urn:btih:BD27E30CFD4E713C90573F4646E350C922324266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:BD27E30CFD4E713C90573F4646E350C922324266
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:BD27E30CFD4E713C90573F4646E350C922324266
 magnet:?xt=urn:btih:7E99123C2417B72B6C6100D0BBAE8DC1FB9EA18D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:7E99123C2417B72B6C6100D0BBAE8DC1FB9EA18D
 ```bash
 magnet:?xt=urn:btih:C2465E6D8ADE46C8D6F71824EEE55622A3A27E7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:C2465E6D8ADE46C8D6F71824EEE55622A3A27E7E
 magnet:?xt=urn:btih:6206BF38BDA083A6ECFFB69D2DFE0FE3033FB06A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ RegCool 1.334 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:46E89ACBB4C3D5C959EC8A6476F52D9FC9A976E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ nakst - Apricot Hybrid Synth 1.1.0 (FL Studio Native) [En]
 magnet:?xt=urn:btih:C9101046C034DF80627FA79C0D8FB0E803D1360D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ FastFlix - это простой и дружественный графичес�
 ```bash
 magnet:?xt=urn:btih:C5473F30204DFBDA0FEC536484CE70E867AD32E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Preset Converter - это небольшой и полезный инструм�
 magnet:?xt=urn:btih:0763C308D1B77B13A380D79F8B74015E5AEFCB70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Yuusha-Ou GaoGaiGar Final | Король храбрецов Гаогайгар: 
 ```bash
 magnet:?xt=urn:btih:B8A1F1E645C4B11086AE283A0E0A57E82162106F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:B8A1F1E645C4B11086AE283A0E0A57E82162106F
 magnet:?xt=urn:btih:40D9E5D1C28338AA3E5AB90523187BD01A09ABD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:33F3901552145BC0A2E3BDEC33C388E3A19B2896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ uDock 3.7 [En]
 magnet:?xt=urn:btih:2DF88BFE16B4ED463F03E7421E4949FCA153DF60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ magnet:?xt=urn:btih:2DF88BFE16B4ED463F03E7421E4949FCA153DF60
 magnet:?xt=urn:btih:16113C4C9476127C0A6F9932982E5B33461FE68B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Skype предназначен для личного и делового общ�
 ```bash
 magnet:?xt=urn:btih:FF8247F6F0D44B3FB785A87A6C399BB3FAE45548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

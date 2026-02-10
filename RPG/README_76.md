@@ -19,6 +19,8 @@ Operencia: The Stolen Sun – это красивая фэнтезийная RPG
 magnet:?xt=urn:btih:7F890165892D230333258A9A9554BA9C17B9ED84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Little King's Story (2016) [En/Multi] (1.0/09.02.2017) License GOG
 ```bash
 magnet:?xt=urn:btih:F9C8C7D14D4F65A1DB4D713CD4506DC1C112E5A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Neverwinter Nights: Enhanced Edition (2018) [Ru/En] (80.8193.9/dlc) Repack xatab
 magnet:?xt=urn:btih:8133907CF598F158728D8971E058DBB6F38C6A42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Shadowrun: Hong Kong (2015) [Ru/En] (3.0.8) License GOG [Extended Edition Deluxe
 ```bash
 magnet:?xt=urn:btih:BEDD6E6F44E013CB856ED7BF1A039384EB0BDB28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Disgaea PC - это переиздание первой части Disgaea: Hour
 magnet:?xt=urn:btih:061EF41092F98522C034CD362AD53D958D44A19D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Forgotten City (2021) [Ru/Multi] (1.2.1) License GOG [Digital Collector's Ed
 ```bash
 magnet:?xt=urn:btih:E00A65185BB8EAC63C61F2A2F72010764F8E8754
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ King's Bounty: Warriors of the North - продолжение культовой
 magnet:?xt=urn:btih:C6CE40DDE6A49C580A475E699A3D0840E786331A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Ultimate ADOM - Caverns of Chaos (2021) [Multi] (1.0.0.2) License GOG
 ```bash
 magnet:?xt=urn:btih:73561624E8C56B506B2FB9F59C27F86DC0707727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Icewind Dale (2001) [Ru/En] (1.061/1.42/dlc) License GOG [Complete]
 magnet:?xt=urn:btih:9E7BD0D1EF9626D1BE0BDB76A57CA14C10060FF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ osmic Star Heroine - одновременно типичная и нетипич
 ```bash
 magnet:?xt=urn:btih:5D8B6C69006B6FA55BA4B5592D437649830FC58E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Fae Tactics (2020) [Multi] (1.010) License GOG
 magnet:?xt=urn:btih:56D42A86C0C19CA69930211496C72BA9E32A7887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Incredible Adventures of Van Helsing (2013) [Ru/En] (1.3.3d/7dlc) Repack R.G
 ```bash
 magnet:?xt=urn:btih:CAB063EC684DACF6E31236FD644E865704F6C177
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Trulon: The shadow engine - приключенческая ролевая игр
 magnet:?xt=urn:btih:C3451BCCA69F598308835D1553A8ADC799B43EA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Elder Scrolls V: Skyrim Special Edition - это улучшенное и р�
 ```bash
 magnet:?xt=urn:btih:03FA383C1346CEFAF6189F7BB712DFDD71554303
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Sorceress (2017) [En] (1.0) License PLAZA
 magnet:?xt=urn:btih:6AF285C9CAC645E0C442FC2C760F4D3EED2BC8B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Kult: Heretic Kingdoms / Heretic Kingdoms: The Inquisition / Культ. Кор�
 ```bash
 magnet:?xt=urn:btih:6BE43847DC74525A8021294C6CEF9E163980B13A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Cthulhu Saves Christmas (2019) [En] (2.02) License GOG
 magnet:?xt=urn:btih:69B9DF4A73CFB86D1D50D889DFD6F177F016906C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Baldo: The Guardian Owls (2021) [Ru/Multi] (7256917) License DOGE
 ```bash
 magnet:?xt=urn:btih:49C0DDB79337C555D9215CF705BA493A335685B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Sea Dogs / Корсары: Проклятие дальних морей (2000) [
 magnet:?xt=urn:btih:E0193C3DFEC3CB58C86627483D062D0B647A2D3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Surge 2 (2019) [Ru/Multi] (1.40405.1/dlc) License GOG [Premium Edition]
 ```bash
 magnet:?xt=urn:btih:52BEA6E4FFDD0D9CAEF7664206592B4627601845
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ NEO Scavenger – это игра, где вы должны протянуть �
 magnet:?xt=urn:btih:49BC141F6420D7C1F674945D73440C7925CAD37C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Torchlight (2009) [Ru/En] (1.15) Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:42430BC09A4FED84CD67F052BC36CFB3945E58ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Dungeon-crawler Action RPG с элементами roguelike, где Вы мож
 magnet:?xt=urn:btih:9CFE64AA12E675C017313EA48311D4AF8895F0A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ We Are The Dwarves (2016) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:1BAA2789C3B749FDAAE03C776D9B46C928CD2822
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Tyranny (2016) [Ru/En] (1.0.4.0048/dlc) Repack R.G. Revenants
 magnet:?xt=urn:btih:BC3B6A4E572CDC3D641D5F095F3D69BF9FB9D9A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ KnightShift / Рыцари за работой (2003) [Ru/En] (1.3) Repack Maggo
 ```bash
 magnet:?xt=urn:btih:E970DA93C0BA8D8D23A95D06DE1D4A35F628AA61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

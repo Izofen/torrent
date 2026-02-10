@@ -1,30 +1,3 @@
-###  Публикация: 1367684   (915551) от 16.03.2020
-
-VA - Samsara Beats Presents: Detonation (2020) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_915551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legal - Holding Back [04:19]
-02. BK - Sleeper Cell [04:30]
-03. Jake Robertz - Guest List [04:37]
-04. B1tyze - International Clash [04:14](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6BF945C9651AB0882A7082413125401CDEB956
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367002   (918967) от 14.03.2020
 
 VA - Onset Audio 200 (2020) [MP3|320 Kbps] <Drum & Bass, Leftfield Bass>
@@ -48,6 +21,8 @@ VA - Onset Audio 200 (2020) [MP3|320 Kbps] <Drum & Bass, Leftfield Bass>
 ```bash
 magnet:?xt=urn:btih:8F2B74F96BA7BC6D62A2D8D87E7F994D05DE3691
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +51,8 @@ Illenium - Ashes (2016) [MP3|320 кб/с] <Dubstep, Future Bass, MidTempo>
 magnet:?xt=urn:btih:6B2457E1FDB94A70E57103BDB245A739C911A9D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +79,8 @@ Junkie XL - The Racing Collection (2018) [MP3|320 кб/с] <Electronic, Breakbea
 ```bash
 magnet:?xt=urn:btih:ED9FD9AF46884CF9938E54296E650CE1A8D0D5B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +109,8 @@ VA - Absurd Idea (2020) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:250184D894A90AA356A4C2CCDA56F6B58BC0EF44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +137,8 @@ VA - Segment (2020) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:172C320553FD6925B27934A2159E56481CF9FB83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +167,8 @@ VA - Lush Buns (2020) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:F0B18C3CAC414D6780A7B327E6464F27ECF7E498
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +195,8 @@ VA - GRL GANG Presents: RIOT! (2020) [MP3|320 Kbps] <Dirty Dubstep, Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:E9129DB4D47A545E4527054CD8E69456CA6593F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +225,8 @@ VA - Halva (2020) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:19953174CBDBB5B5DC819858C1D23EB7BB0FB263
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +253,8 @@ VA - French Plates 2016 (2016) [MP3|320 кб/с] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:191C61F85D70BF50FF929AD000D2BE97C8F41211
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +283,8 @@ Mage - Everything Is Changing (2016) [MP3|320 кб/с] <Drum & Bass>
 magnet:?xt=urn:btih:4BD114126E721DF3F221E1A3DEBA6887A5ADC4C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +311,8 @@ VA - Miami 2020 Drum & Bass (2020) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:5B47E69BE6C3629B0318B120FE8AB87413F01636
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +341,8 @@ VA - Pesticides (2020) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:3C84CF6FE18FD1681FEED827D221B7E8B8ED773A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +369,8 @@ VA - Dark Tunes 2020 [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:69E5547DDB0ACDCDD225751B8E0F3F602485D37C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +399,8 @@ VA - Bang! (2020) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:4C1CA85EB33FAA26D91DD0405AF03F40AF612D92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +428,8 @@ VA - DJ Tapolsky - Drama (2003) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:37EC164354937F2058EA9152EF88510096524585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +453,8 @@ DJ Tapolsky - Free My Soul Mix (2009) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:06C7DE0AE30DB8E2E856CD04AE5A1EC9044C5709
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +483,8 @@ VA - DJ Tapolsky - Lomka (2001) [MP3|192 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:1CAB37DF366B718E0C8E9260372AA0D09FD53121
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +511,8 @@ VA - Drum & Bass Annual 2017 [MP3|320 Kbps] <Drum And Bass>
 ```bash
 magnet:?xt=urn:btih:B3F8C89685709927C17318FECC4F4B5FA8BFAACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +541,8 @@ VA - OWSLA Worldwide Broadcast (2016) [MP3|320 кб/с] <Dubstep, Future Bass, T
 magnet:?xt=urn:btih:F9263634202E5FB9FE86D7A76F688E08FDBDC32C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +569,8 @@ Lenzman - Golden Age (2016) EP [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:B85D1C70554DA988BC08C0257F50C6B97049FC1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +599,8 @@ Ambassadors 5 - Drum & Bass Poetry (2015) [MP3|320 кб/с] <Drum & Bass>
 magnet:?xt=urn:btih:D0ADBCD30A4BC06DC31032983E820E33C8C4F78E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +627,8 @@ VA - Viper Presents: Drum & Bass Annual 2016 (2016) [MP3|320 кб/с] <Drum & Ba
 ```bash
 magnet:?xt=urn:btih:B4B188D4F0ACA2422919C9D66574920157F6A5E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +663,8 @@ VA - Ultra Dubstep (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:2524A5AB073DC8807BA45185483ED0B90220168F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +692,8 @@ VA - Train with Us, Vol. 1 (2020) [MP3|320 Kbps] <Drum'n'Bass>
 magnet:?xt=urn:btih:93242A01970D97ABAF8A65878221E8588A671A02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +718,37 @@ magnet:?xt=urn:btih:93242A01970D97ABAF8A65878221E8588A671A02
 ```bash
 magnet:?xt=urn:btih:31E4CB72C436BAF06CAB7F78115B589678F8508B
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613069   (1039806) от 17.02.2023
+
+Skrillex - Quest For Fire (2023) [MP3|320 Kbps] <Dubstep, Trap, Dance, UK Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leave Me Like This (feat. Bobby Raps)
+02. RATATA (feat. Missy Elliott & Mr. Oizo)
+03. Tears (feat. Joker & Sleepnet)
+04. Rumble (feat. Fred again.. & Flowdan)(   Читать дальше...   )Жанр: Dubstep, Trap, Dance, UK BassПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D939AC4BEFC7905942E182437DB307C4EE75751B
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

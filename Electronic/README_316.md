@@ -22,6 +22,8 @@ VA - Summer Hits (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:E5BA7053181507C20DE11B89D9956C54CD5BB150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Markus Schulz - Global DJ Broadcast - World Tour Hawai (2018) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:5B532E4E1177987E94FCDF522B6812B7B448E3AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Melodic Progressive House Vol. 06 (2016) [MP3|320 Kbps] <House, Melodic Hou
 magnet:?xt=urn:btih:79E72DF714CDA3AB6BFE51C0B6C15B9D36A57541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - A Place to Chill (2016) [MP3|320 Kbps] <Lounge, Chill Out>
 ```bash
 magnet:?xt=urn:btih:6604D3A93B58F3C7BA1E66A5094BA9C261943326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Bella Mar 03 (Compiled by Einmusik) (2016) [FLAC|Lossless|WEB-DL|tracks] <D
 magnet:?xt=urn:btih:66864478C35D2C8809CFA3D36AAE96F8E70E5F91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - FGVIII (Mixed by Miss Monique) (2019) [FLAC|Lossless|WEB-DL|tracks] <Progre
 ```bash
 magnet:?xt=urn:btih:482AC2E464B8CECFA15547436BDA8BF2DB88F902
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Vocal Trance 2022 Vol 2 (2022) [MP3|320 Kbps] <Uplifting Trance>
 magnet:?xt=urn:btih:E44EBDA386EC43B0D6FCB9BB7DF7892A51BC0D0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Chris van Buren - Дискография (2015-2018) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:8910519E33DAC75419E808ECB76A8A27923B705F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ VA - Morning Sounds (The Best Of Extraordinary Chillout Lounge & Downbeat) (2017
 magnet:?xt=urn:btih:19DD182583EEFEB7F43E05C1E4AA50CF4AEFC960
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ magnet:?xt=urn:btih:19DD182583EEFEB7F43E05C1E4AA50CF4AEFC960
 magnet:?xt=urn:btih:0175D92ACED0AF107097B059F050BE503F25033A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +306,8 @@ Arch Origin - Soul Castle (2017) EP [MP3|320 Kbps] <Deep Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:EDF0AF190071061D6AF356472011DAAF5F26F84E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +336,8 @@ VA - Deutsche DJ Charts Vol.21 (2017) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:B3EA054BB7AAE9DF5196E1F7CB420952612853E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +364,8 @@ VA - Synthwave Vol. 2 (2015) [MP3|320 Kbps] <Synthpop, Syntwave>
 ```bash
 magnet:?xt=urn:btih:2C59F371FECB9906371EEE320438E8158A9B6A21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +394,8 @@ VA - Music For Mindfullness (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:BE25E495FEDE09AE25B3D6220B89962A111304EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +422,8 @@ Gridlock - Discography 12 Releases (1997-2004) Hymen Records, Unit [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:C7196623B3553355E66F4387B9C3838BFCDB6994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +452,8 @@ VA - Deep House For Your Body and Soul Vol 2 (2015) [MP3|320 кб/с]<House>
 magnet:?xt=urn:btih:B8517FD40E34F9C874CE8F0E651602F3C1C030F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +480,8 @@ VA - Palma De Disco (Balearic Beats Deluxe) (2015) [MP3|320 кб/с]<Deep House,
 ```bash
 magnet:?xt=urn:btih:DBB6E042F1EF7852512E495DC3BEC9FFB612A0E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +510,8 @@ B1. We Dance(   Читать дальше...   )Жанр: New WaveПродолж
 magnet:?xt=urn:btih:73A0B2B3E0864E2866D274F333C00E32B807E54A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +538,8 @@ VA - Asian House Music (2019) [MP3|320 Kbps] <House, Deep House, Progressive>
 ```bash
 magnet:?xt=urn:btih:CB2AF25683E1D449DFE9137E0FAE22FC55A2DF5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +568,8 @@ VA - Lounge Dimension (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:8BE55C35D54354FB471B36D8D276BDFEFE84149D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +596,8 @@ Valectra - Surfing On This Wave (2015) [MP3|320 кб/с]<Chillout, Downtempo>
 ```bash
 magnet:?xt=urn:btih:8BAD37E29208D34E23029F27F59804C760F1B5FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +626,8 @@ VA - Paris Lounge Night (2018) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout>
 magnet:?xt=urn:btih:34BC9D0E1F247CBD9A3A8AED38540387B05A2FDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +654,8 @@ VA - Best of Progressive Vocal Trance (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:5C9AADBA77F1A9E666466AAF0AD6497A0FEEFED9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +684,8 @@ VA - Trance 2018 Top 20 (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:F812144AB1327A54CBBFD956C47D73EF4EA237FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +713,8 @@ VA - Ori Uplift & Syntouch - Uplifting Only 277 (2018) [MP3|320 Kbps] <Trance,Up
 magnet:?xt=urn:btih:AAE121C7316BC5F4C17BDEAE6CBCB5A543ED728E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +741,8 @@ Goldfrapp - Seventh Tree (2008) CD+DVD, Deluxe Edition [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:70518A8AA1E73AD6AD300E7DB5E996A2B7AAE144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

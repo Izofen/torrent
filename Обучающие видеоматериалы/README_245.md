@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:37496F13D009F5374E4E9F3547126D3F2CF41BC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:37496F13D009F5374E4E9F3547126D3F2CF41BC2
 magnet:?xt=urn:btih:CEE1CEF2601221748CDBA328075E691DAEC8D952
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ Udemy, Центр digital-профессий ITtensive | Основы прогр
 ```bash
 magnet:?xt=urn:btih:5A38ABCCE20F0C7DE262A48AACA40EEDF9B86F14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Udemy | Улучшение вашего рабочего процесса с Gul
 ```bash
 magnet:?xt=urn:btih:914606E19D2B784EBB7A43A107A9982755FFD589
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ pennystock.ru | Курс по торговле - PUMP AND DUMP (2014) PCRec [H.2
 magnet:?xt=urn:btih:744B7D81767786387B5B090F72BD888BF57BBEAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Traanan | Обучение трейдингу На NYSE/NASDAQ/AMEX GT Capital (
 ```bash
 magnet:?xt=urn:btih:72F7203C2EDD2B928326F4446F58F1E95E4A16AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:72F7203C2EDD2B928326F4446F58F1E95E4A16AD
 magnet:?xt=urn:btih:BC757B4C48EE40D8AF870DDDA9D9C588258239EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:BC757B4C48EE40D8AF870DDDA9D9C588258239EA
 ```bash
 magnet:?xt=urn:btih:F2498858C9FAC08AFAF03D6EF8F2C79477787F8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ Rohan Dalvi | Shader building in Houdini (2014) PCRec [En, Ru]
 magnet:?xt=urn:btih:FE026B45B69BC9866A4AD1644E773697616A2C79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ BeFiT | Intensity Fitness Series (2017) HDTVRip [H.264/720p-LQ] [EN]
 ```bash
 magnet:?xt=urn:btih:3D0BB9FBF091C8AF5EE3C3A1C84C3CC01279DB82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ Udemy | Архитектурный дизайн и анимация в Blender 2
 magnet:?xt=urn:btih:161B26E2B83FDEFDE2B3926022DEC41C91652627
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Lynda.com | Основные принципы дизайна логотипа (2
 ```bash
 magnet:?xt=urn:btih:3197626D4B94E017EB6FBCDDBD123B4C031044A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:3197626D4B94E017EB6FBCDDBD123B4C031044A2
 magnet:?xt=urn:btih:86E1FFBCD6EBE12386544F7D755D7ACAF745DD6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ ArtClever, Тина Хабарова | Курс «Декоратор» [LITE в�
 magnet:?xt=urn:btih:0FECF9E0C6D6F558113AFDA6FFDD3BE60F550C12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ Digital Tutors, Alex Tuzhikov | Modeling an Interior Scene from Photo Reference 
 ```bash
 magnet:?xt=urn:btih:8775149F8F89680E6A496C3D2F022F9B295AAAE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ Digital Tutors, Joshua Kinney | Creating Animal Fur for Games in Substance Paint
 magnet:?xt=urn:btih:E4548301290AC0D3ECC6A71737D2713A203D21D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ Udemy, Erindale Woodford | Procedural Materials in Blender 2.9 (2021) PCRec [EN 
 magnet:?xt=urn:btih:48980BD8A73D5A4BD22D1D288F996A7C8853E8B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Rohan Dalvi | Introduction to Vex for Visual Effects in Houdini (2017) PCRec [En
 ```bash
 magnet:?xt=urn:btih:C6CCEA6BC944E253ECFA67ABE1B5AB89500212D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ Allegorithmic, Wes McDermott | Substance in Unreal Engine 4 (2015) PCRec [En, Ru
 magnet:?xt=urn:btih:647022B9FF429B747E8C21D7A027E6CC848290E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ Rohan Dalvi | Procedural Texturing and Baking in Houdini Part 1 (2018) PCRec
 ```bash
 magnet:?xt=urn:btih:071652D803CBAEFF3A4804255EB376D4EB21EB38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ Rohan Dalvi | Procedural Texturing and Baking in Houdini Part 2 (2018) PCRec
 magnet:?xt=urn:btih:305BE927F831A5CA3267B20438DF80D5F7FF84F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ Rohan Dalvi | Houdini 17 New Erosion node (2019) PCRec [En, Ru]
 magnet:?xt=urn:btih:E5D169F295BF5CC058C68865BCFFDE694FB88094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:E5D169F295BF5CC058C68865BCFFDE694FB88094
 ```bash
 magnet:?xt=urn:btih:D20BED513CBAE8DD90E90B1BFC4F0EB6DD9E4886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:D20BED513CBAE8DD90E90B1BFC4F0EB6DD9E4886
 ```bash
 magnet:?xt=urn:btih:A29BC5A2539A7D4A3F4A4736B5FD1A404486E8CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:A29BC5A2539A7D4A3F4A4736B5FD1A404486E8CF
 magnet:?xt=urn:btih:0D66E0D13EDFF45EEA87BC7931898F1E4A9B580E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:0D66E0D13EDFF45EEA87BC7931898F1E4A9B580E
 ```bash
 magnet:?xt=urn:btih:D218CD78DB1ADF236CA592D1FA9A62E04195A553
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

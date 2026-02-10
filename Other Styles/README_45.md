@@ -26,6 +26,8 @@ Kenio Fuke - 6 альбомов (2002-2013) [MP3|320 кб/с]<New age, Relax, Na
 magnet:?xt=urn:btih:6A901E234E9D555F8E4FC0C386DC3D0DC3FF46C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Hans Zimmer, The Magnificent Six - The Amazing Spider-Man 2 / Новый Чел�
 ```bash
 magnet:?xt=urn:btih:25B5DC23CFEC91A2812BED54669F85490475A686
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -80,6 +84,8 @@ Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Music fr
 magnet:?xt=urn:btih:9302430A8375FE582615373228F7C06B43EFE2EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -107,6 +113,8 @@ Bill Yeats - Relaxing Spanish Guitar (2008) [APE|Lossless|WEB-DL|tracks] <Instru
 magnet:?xt=urn:btih:B4368A9E0EE6085BFA845E37ED1BEB00AA5837FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -133,6 +141,8 @@ Karushanti - Celtic Traces (2017) [MP3|320 Kbps] <New Age, Celtic>
 ```bash
 magnet:?xt=urn:btih:2EFDB2173AE41472B0FA48F2EA9662856037EE38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ Chilly Gonzales - Solo Piano III, 2CD (2018) Japan Edition [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:A9A50A5439789AE77A0A2C4FF7EBF2F895812A27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +201,8 @@ Armik - Greatest Hits (2008) 2CD [FLAC|Lossless|image + .cue] <Instrumental, Fla
 ```bash
 magnet:?xt=urn:btih:56F6C6AB723B77E55B9D5BD8CF71B9DB9C1BB3E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ VA - Acoustic Songs About Love (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instr
 magnet:?xt=urn:btih:B62BD7D952648AF83900E703B26844A99CDDD2EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +259,8 @@ Gregorian - The Platinum Collection (2017) [MP3|320 Kbps] <New Age, Medieval, Ot
 ```bash
 magnet:?xt=urn:btih:A13613067A48BB9ACB58DCBCBA1CDEA88A1F7887
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ Jean-Michel Jarre - Equinoxe Infinity (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambi
 magnet:?xt=urn:btih:C10532F5359040F7157706553ECE91DC7174598A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +317,8 @@ Jean-Michel Jarre - Equinoxe Infinity (2018) [MP3|320 Kbps] <Ambient, New-Age, E
 ```bash
 magnet:?xt=urn:btih:609C92AB7C8FA956312A47FE860A33E09B633CD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +347,8 @@ Celtic Woman - The Magic of Christmas (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk
 magnet:?xt=urn:btih:DE3DBD35D93142D98746737AC6E5A8837C176C3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +375,8 @@ PJ Harvey - All About Eve (2019) (Original Music) Soundtrack [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:43B6A3C91705974CBC043CB56172075C734E19DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +405,8 @@ John Carpenter, Cody Carpenter, Daniel Davies - Halloween / Хэллоуин (Or
 magnet:?xt=urn:btih:AE720EF135870865045E946B281F6BE7E749532F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +433,8 @@ Andreas - Magickal Nights (2011) [MP3|320 кб/с]<New Age>
 ```bash
 magnet:?xt=urn:btih:582700377E6BFDFF8770A0E90D5F15785B6FC57A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +463,8 @@ John Carpenter, Cody Carpenter, Daniel Davies - Halloween / Хэллоуин (Or
 magnet:?xt=urn:btih:7EB5CF574F696DC798C0F90FCCF6CF6F366B2362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +491,8 @@ Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Music fr
 ```bash
 magnet:?xt=urn:btih:8F46EEA61C75649EE465435FE7F7C62335B07777
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +521,8 @@ VA - Los clasicos argentinos - Tango - Vol.13 - Julio De Caro: El gran melodioso
 magnet:?xt=urn:btih:A143329D77F87873698EE56BEF2AF9D2D76EB03C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +549,8 @@ Greg Maroney - The Light Within (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, A
 ```bash
 magnet:?xt=urn:btih:6B0ABFCEE99E7D23DCEC44F588810C79A779D9A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +579,8 @@ VA - Fifty Shades Of Grey (Original Motion Picture Soundtrack) (2015) Target Exc
 magnet:?xt=urn:btih:6B5BE5A117C9DAE876D7B22DAF700DDCE1DAC8B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +607,8 @@ Byron Metcalf - Inner Rhythm Meditations Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:8D7ED51CDE409ABDDABA7B1F0B7D4043A1932DEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +637,8 @@ Glen Campbell - Sings For The King (2018) [MP3|320 Kbps] <Country>
 magnet:?xt=urn:btih:0D2CE294F0ACF3814D391BDEFD40A52913E4BB1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +665,8 @@ Chilly Gonzales - Solo Piano II (2012) [FLAC|Lossless|image + .cue] <Instrumenta
 ```bash
 magnet:?xt=urn:btih:2CB709481DBAAF57D625777542B0DC26AA95FEBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +695,8 @@ Chilly Gonzales - Solo Piano (2004) [FLAC|Lossless|image + .cue] <Instrumental, 
 magnet:?xt=urn:btih:DC7B70470F00236D6C4124EB7919D53655D8C147
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +720,8 @@ magnet:?xt=urn:btih:DC7B70470F00236D6C4124EB7919D53655D8C147
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -699,6 +749,8 @@ Llewellyn - Tantric Gold (2017) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:3ED62064E7070DDD72DEA03998459292FBD6037E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

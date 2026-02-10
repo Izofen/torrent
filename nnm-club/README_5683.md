@@ -22,6 +22,8 @@ Edge Of Forever - Ritual (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:FF4FA3E70B6F0C96CC4320399C84300BD834F39B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Proxyman — это современное и интуитивно понятн�
 ```bash
 magnet:?xt=urn:btih:F7899102324B249FDAB645F3D5B8C55F222368C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:F7899102324B249FDAB645F3D5B8C55F222368C9
 magnet:?xt=urn:btih:517B09CC02A50127A0474859E71203AC4E236D6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:517B09CC02A50127A0474859E71203AC4E236D6E
 ```bash
 magnet:?xt=urn:btih:6E0C093BB63710699DF09582A3AD8732AB8A14F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Holly Humberstone - Paint My Bedroom Black (2023) [FLAC 24/96|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:FCF81A9F77C95B33B85662C7856153B47B5D2C8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:FCF81A9F77C95B33B85662C7856153B47B5D2C8E
 ```bash
 magnet:?xt=urn:btih:D0FE2D5E3CCBD82DA36C087C6B36BE19C597BFC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:D0FE2D5E3CCBD82DA36C087C6B36BE19C597BFC2
 magnet:?xt=urn:btih:ABCF56944F497D870D38505E3874AE176910E9DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Camtasia for Mac — эффективное приложение для созд
 magnet:?xt=urn:btih:896CE7546490D2978DBF569E4DF6DCD047F6800C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ YT Saver Video Downloader & Converter for Mac 7.1.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:6BAE1392A7795BBD140AE46CEA0E7153A6E33B38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Eucharist — шведская метал-группа, основанная в 
 magnet:?xt=urn:btih:B58C92B655A0974235EF4E4CA06AA1FAD14BC230
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:B58C92B655A0974235EF4E4CA06AA1FAD14BC230
 ```bash
 magnet:?xt=urn:btih:A55B3228AE4D19CC5BA7E57918A4DB2C323FA6C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ Joe Pass - Catch Me! (1963) 2003, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Bop
 magnet:?xt=urn:btih:42BE63A5B6321DBF5A86D98C5CDA8C1C3CA74E1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ Ella Fitzgerald & Joe Pass - Hamburg Duets (1976) 2008, Gambit Records [FLAC|Los
 magnet:?xt=urn:btih:5DA53A109F92A33EB37E422E522448B648B02166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:5DA53A109F92A33EB37E422E522448B648B02166
 ```bash
 magnet:?xt=urn:btih:065D5C824FEB4E7EAD7051E097B6B48216608990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ The Vintage Caravan - The Monuments Tour (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:1A92D912B45254A6DD4E98C8ED76338EDFC7E1D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Heavy Load - Riders of the Ancient Storm (2023) [FLAC 24/96|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:A637EE4A81931B8EE695C7312B1120A87CF4ABE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ Powerstorm - Act II (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 magnet:?xt=urn:btih:E500C00F07A50C6015D4C586C12C0178A9601E3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ Creeper - Sanguivore (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Britpop, Glam R
 magnet:?xt=urn:btih:109DB72A78EA07353095D050C9A286819F0028A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:109DB72A78EA07353095D050C9A286819F0028A9
 ```bash
 magnet:?xt=urn:btih:8769F2E1B7E2EEA5650824C30EEADE3BEB15E49A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ Oscar Peterson - In London: The Rare Trio Session (1971) 2014, Pacific Delights 
 magnet:?xt=urn:btih:BC2ADCB4071E2168F1D88EC48B47A8503D1847EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +573,8 @@ magnet:?xt=urn:btih:BC2ADCB4071E2168F1D88EC48B47A8503D1847EB
 ```bash
 magnet:?xt=urn:btih:024A4A10F04C22BEC06A3A86C0DE463731B69BE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +603,8 @@ Comaniac - None For All (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
 magnet:?xt=urn:btih:C77CBDDB9630E1A3EE6050CCF59300EF41F1A14B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ Notebooks является единственным блокнотом, кото
 magnet:?xt=urn:btih:A9A9B4AA7DA5A1B4556D1D5E9E2FCED641B26CDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:A9A9B4AA7DA5A1B4556D1D5E9E2FCED641B26CDC
 ```bash
 magnet:?xt=urn:btih:BAC8429FFCE788EC96E9FDA264CFA4179A929A70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +684,8 @@ Squealer - Insanity (2020) [FLAC|Lossless|image + .cue] <Heavy Metal, Power Meta
 magnet:?xt=urn:btih:CA0946D10D61667FD0BDB35444D1643026E8D8C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ Storyist для Mac OS - является мощной средой для ра�
 ```bash
 magnet:?xt=urn:btih:A431AF6C2FE08081722C9E37716935A9420992AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@ Castle of Illusion Starring Mickey Mouse HD является переиздан�
 magnet:?xt=urn:btih:2940021380E10DE2A3F8F91471690AC05AB73EF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ EA SPORTS™ FIFA 20 на базе Frostbite™ для PlayStation®4 воссо
 ```bash
 magnet:?xt=urn:btih:37402352FE1177DA0F6066529C5EFF8765E08299
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Mafia II / Мафия 2 + DLC (2010) [Xbox360] [RegionFree] [FreeBoot] [License]
 magnet:?xt=urn:btih:5591899F9E9B214D922FCA13F531855808A911F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ The Evil Within – сурвайвал-хоррор с видом от трет�
 ```bash
 magnet:?xt=urn:btih:33B8F36F13E54D728057E4EEC4A6C7ADE0D00EF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Ratchet & Clank: All 4 One [PS3] [RUS] [PAL] [3.55 Kmeaw] [Rip] (2011)
 magnet:?xt=urn:btih:1019A8FAA684B637D9EE5246096DE5406B7E78CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Street Fighter X Tekken [PS3] [EUR] [Ru/En] [3.73] [Cobra ODE / E3 ODE PRO ISO] 
 ```bash
 magnet:?xt=urn:btih:C2B3980C8D0D021A3E3DB80A42A78FFD79966884
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ WRC 5: лучший симулятор ралли. Машины, пилоты, �
 magnet:?xt=urn:btih:FAFE070D8275BC00B70724B6409BB311E0D456FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Call of Duty: Black Ops III (2015) [PS4] [EUR] 5.05 [HEN] [License / 1.27 / DLC]
 magnet:?xt=urn:btih:221FF0DD2E5184DBD4B937BAC54193C317FE5935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Assassin's Creed II Game Of The Year Edition [PS3] [RUS] [PAL] [3.55 Kmeaw] (200
 ```bash
 magnet:?xt=urn:btih:9424D314AA26784E5B443D72BB6C25217AA69161
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ UFC Undisputed 3 [PS3] [EUR] [En] [4.01] [Cobra ODE / E3 ODE PRO ISO] (2012)
 magnet:?xt=urn:btih:E74690914D13E12EDB9BC796ABCFBEFE9226C73E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ WWE All Stars – одна из лучших игр по теме рестлин
 ```bash
 magnet:?xt=urn:btih:F65E36D760EFC0BC71590A7FC01DD9B2F9C65A5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Saint Seiya: Soldiers' Soul - это использование новейших
 magnet:?xt=urn:btih:567691FEE3AF854C1DD836A0B7B95BDA5FADDAFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Smart as... / Умник?!  (2012) [PSVita] [EUR] 3.60 [HENkaku] [License] [Ru/E
 ```bash
 magnet:?xt=urn:btih:4585321630751E78103FC7D244816D28CB422368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ Saw 2 является продолжением ужастика Saw: The Video 
 ```bash
 magnet:?xt=urn:btih:79A86B45AA52B5B0724682ED14DDDE3F3BE0BCB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ Need for speed: Hot Pursuit это встреча двух мастодонто�
 magnet:?xt=urn:btih:9AD3741DDBFF178544E484560CF0CAEA04BAD7E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Mirror’s Edge [PS3] [EUR] [Ru] [2.42] [Cobra ODE / E3 ODE PRO ISO] (2008)
 ```bash
 magnet:?xt=urn:btih:89D0275EBF0F65F5784E2E7A83CAAF2583F75B64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Pure [PS3] [EUR] [En] [2.41] [Cobra ODE / E3 ODE PRO ISO] (2008)
 magnet:?xt=urn:btih:2CD25282479F2E9AA6C5C73F9FE0821401E140FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ Disney-Pixar Up (2009) [PS3] [EUR] 2.76 [Cobra ODE / E3 ODE PRO ISO] [License] [
 magnet:?xt=urn:btih:721C4E8B1DF39899D9BE30E4900A36B46E6EBDA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Deadfall Adventures – приключенческий FPS, действия к�
 ```bash
 magnet:?xt=urn:btih:32AF749C5EC1D51C2DA639A8A109EE80155B036F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ Masquerade предлагает окунуться в фантастически
 magnet:?xt=urn:btih:BF621D87CBE2FED91008CBED4F32AD4EEF3C9CD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ Godzilla (2015) [PS3] [EUR] 4.70 [Cobra ODE / E3 ODE PRO ISO] [License] [En/Mult
 ```bash
 magnet:?xt=urn:btih:B86966D50090E63BF2CBE2866899BD09A36DB322
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ SuperCar Challenge- это захватывающие гонки, сочетаю
 magnet:?xt=urn:btih:9C82095530FC64C9649CBDBCFB2AA6B0D9DB839B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ WWE 2K17 (2016) [PS3] [USA] 4.21 [Repack] [Multi]
 magnet:?xt=urn:btih:3815E20CD9AC14C531F2D7553ABE7469DDB295C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ DRAGON QUEST BUILDERS™ – эпическая ролевая игра, где 
 ```bash
 magnet:?xt=urn:btih:5415A06A642A1E0B315B5E96A4CAC684C1617575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ Dragon Quest V - Hand of the Heavenly Bride (2009) [NDS] [USA] FlashME [Unoffici
 magnet:?xt=urn:btih:18DE1F09DD8E0276C9149D3EB7A934CAA92127DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Hitman: Absolution - продолжение легендарной стелсо�
 ```bash
 magnet:?xt=urn:btih:4E24014ACB5B8A3DB218B7CC20F48D8E94A14DAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

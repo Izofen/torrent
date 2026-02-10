@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:FE98B4005B9476BC0DF8434B0311CE1B880283C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ kobezzza.channel, Андрей Кобец | Интенсив «Рефлекси�
 ```bash
 magnet:?xt=urn:btih:7ED790854D0212D7558980749AF9FA5D1F2E7763
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:7ED790854D0212D7558980749AF9FA5D1F2E7763
 magnet:?xt=urn:btih:FB7F48F50CDE0276A3FF0CFEADF381B016425DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Marlin | Laravel как инструмент:  на примере создан�
 ```bash
 magnet:?xt=urn:btih:F7A83022087FE39347C82C97EBC9ADF9B4B71E8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:F7A83022087FE39347C82C97EBC9ADF9B4B71E8D
 magnet:?xt=urn:btih:7E3F2DF8F11A49B4ED0961387A118E3628E83645
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Skillbox, Михаил Колодочка | Программирование д�
 ```bash
 magnet:?xt=urn:btih:D224515435D2CD77E3E6999E05EE972F2E1EB20D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:D224515435D2CD77E3E6999E05EE972F2E1EB20D
 magnet:?xt=urn:btih:041E3C9C137EF7EC5C72C9080E154622F795CEA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ kobezzza.channel, Андрей Кобец | Мастер класс по реш�
 ```bash
 magnet:?xt=urn:btih:727F0594C94A492E982C53E22C3589986920CA37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Udemy, Максим Новак | Универсальные коллекции �
 magnet:?xt=urn:btih:14E0E5C91D3AEAD7D03F124D20EAAECB4370954D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:14E0E5C91D3AEAD7D03F124D20EAAECB4370954D
 magnet:?xt=urn:btih:38CFDB43C54EBBEBDAB767C7554CB52276CB2CDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Lynda.com | Изучение ECMAScript 6 / Learning ECMAScript 6 (2017) PCRec [
 ```bash
 magnet:?xt=urn:btih:DB8B397D74E8029929A03472B156C3A1B289B480
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ Udemy, Reuben Ward | Создание игры в жанре "Королевск
 magnet:?xt=urn:btih:51B722229A72EC41E996E6F08E7F6E6002C5096E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:51B722229A72EC41E996E6F08E7F6E6002C5096E
 ```bash
 magnet:?xt=urn:btih:D15A3EBB9AA5BE67E87026CF4CB02ECFB7F983F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ The AWS Certified Solutions Architect is one of the most valuable and in-demand 
 magnet:?xt=urn:btih:C38618B8479197E9BE7185C78BE9210A14346A6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:C38618B8479197E9BE7185C78BE9210A14346A6B
 magnet:?xt=urn:btih:C6F980A208EA2ED42F12F3D156B677260C0EBE00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ Slurm (Слёрм) | Асинхронное программирование н�
 ```bash
 magnet:?xt=urn:btih:DD0FD7573310936071573461D1C2B25DF2C7E563
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:DD0FD7573310936071573461D1C2B25DF2C7E563
 magnet:?xt=urn:btih:E17C3F940E9E5844EBFB7FC174E8CB32494B6868
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ Udemy, Roman Dushkin | Основы криптографии и подстано
 ```bash
 magnet:?xt=urn:btih:862AAEA503436CC9D58D77CFA11B9065448A6AA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ Shultais Education | Основы SQL (2018) PCRec [H.264]
 magnet:?xt=urn:btih:06F2E247E9FAFE4744001F4F73513C72935B0ED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ Shultais Education | Расширенные возможности SQL (2019) PC
 magnet:?xt=urn:btih:315E10E5E42C55E4A4C582E26441230210E9606D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ Shultais Education | Проектирование баз данных (2018) PCR
 ```bash
 magnet:?xt=urn:btih:34E6F3B90D69E3BD434B847A6FA01F425B871594
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ BAS, Павел Дуглас | Курс по BAS (2022) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:FB29BFB7562EBF9EAED43BBD8A3E268561E22344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ devtodev | Введение в геймдев (2019) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:66E9349DEC0B50E89DE55F0DED3046F91B3D33A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ ProfIT | DBA Введение в профессию (2018) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:3FF8B9D829FF3841CB42473C0E6E897BCD44C499
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ Udemy, Roman Dushkin | Блокчейн и атаки на него (2022) WEB-D
 magnet:?xt=urn:btih:C065FAF958884B61F384993B1E492846C01EAEEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:C065FAF958884B61F384993B1E492846C01EAEEB
 ```bash
 magnet:?xt=urn:btih:0EB6051E946F9E105B96AE50F64AC49BD035CF7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

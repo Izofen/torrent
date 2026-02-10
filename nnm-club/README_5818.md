@@ -22,6 +22,8 @@ Kadabra - Umbra (2023) [FLAC|Lossless|WEB-DL|tracks] <psychedelic rock, stoner r
 magnet:?xt=urn:btih:CD58F330E323C52389E65B2C08B5396379B54048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ GOM Mix Pro — это многофункциональное редактор �
 ```bash
 magnet:?xt=urn:btih:E600C44483BEF2D2324BDEB01DB8D70806485575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Winter Lounge Mood: Chillout Your Mind (2020) [AAC|~308 Kbps] <Lounge, Chil
 magnet:?xt=urn:btih:9B049B7D9C92335013B396E43A53290EC114E7E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:9B049B7D9C92335013B396E43A53290EC114E7E6
 magnet:?xt=urn:btih:44D8BF35F96253B8392727D94E8D8F09ECEFAFAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Brave - защищенный браузер на базе Chromium, постро
 magnet:?xt=urn:btih:3A4E4F8859ED61DA489C2B38B1B0DC238E22248F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:3A4E4F8859ED61DA489C2B38B1B0DC238E22248F
 ```bash
 magnet:?xt=urn:btih:B79A2432C2A4CA0104B8A806024FD700F3736078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Frostnatt - Når Vinteren Kommer (Nar Vinteren Kommer) (2020) EP [FLAC|Lossless|
 magnet:?xt=urn:btih:DBF93B0CD0DE9D146AF5F3C1463FD41BDF82C1B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:DBF93B0CD0DE9D146AF5F3C1463FD41BDF82C1B7
 ```bash
 magnet:?xt=urn:btih:A8F8EC44276746022783B2088AE61E17E5C6E9C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ October Tide - The Cancer Pledge (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic D
 magnet:?xt=urn:btih:99221D83D9790BD7D19BB052FCC890AB80A81F0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ CD1:
 magnet:?xt=urn:btih:0C61D9F3A18361D989F2C987660F7916232C6217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:0C61D9F3A18361D989F2C987660F7916232C6217
 magnet:?xt=urn:btih:5246EB9B0432CD73B5ECC62B920912439202CABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ MediaHuman YouTube Downloader 3.9.9.77 (2911) RePack (& Portable) by TryRooM [Mu
 ```bash
 magnet:?xt=urn:btih:5072C9BB24C29905D7E4FD7020E7349936336EE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:5072C9BB24C29905D7E4FD7020E7349936336EE0
 magnet:?xt=urn:btih:B49970A75354FE47B31E5D7451834281841F10B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:B49970A75354FE47B31E5D7451834281841F10B1
 magnet:?xt=urn:btih:B3B78FC2FCEF8674D3B7C4CABDCD2EBFF67431CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:B3B78FC2FCEF8674D3B7C4CABDCD2EBFF67431CC
 ```bash
 magnet:?xt=urn:btih:4B07CA2B6DA65809E359585C9563AEF715066B52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ Chaos Control 1.10.3 [En/Ru]
 magnet:?xt=urn:btih:9E3CB96D872CE2DD697850C5FAB495A7C360D204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ One Commander V3 — это современный файловый менедж
 magnet:?xt=urn:btih:38589392286FE31AFD644030C9420E227800B346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ Viber для Windows позволяет бесплатно отправлять 
 ```bash
 magnet:?xt=urn:btih:0DA62F9F7469C7A585FDEA1C88973403858250CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ Mountain Duck позволяет монтировать любой удален�
 magnet:?xt=urn:btih:A84577F252A19F19BDF3BCFABA7AB2C057EDEFA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ WizTree - небольшая и полезная утилита для опре�
 magnet:?xt=urn:btih:E33AAA938D5A4EC1D7E579FA18F81DE52E9C7B5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:E33AAA938D5A4EC1D7E579FA18F81DE52E9C7B5D
 ```bash
 magnet:?xt=urn:btih:8CE36EF7F0482FD02827F84D2C59689C581720E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ Linus Klausenitzer - Tulpa (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Death
 magnet:?xt=urn:btih:1BABE8505E5A2FC85098FD7AA40FE6BC335827EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ Opera 93.0.4585.37 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5326A08C126961CFD2A2840D02E945C8B788D9C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ Saltatio Mortis - Des Konigs Henker (2005) [FLAC|Lossless|image + .cue] <Folk Me
 magnet:?xt=urn:btih:FAFA30460585500BE72A817C3F4B9A7AA38ED37E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ GOM Player Plus - мультимедийный плеер со множеств�
 ```bash
 magnet:?xt=urn:btih:D63E7BEE038D706064C736B3D19B5DF349FE3A9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +708,8 @@ Saltatio Mortis - Das Zweite Gesicht (2002) [FLAC|Lossless|image + .cue] <Folk M
 ```bash
 magnet:?xt=urn:btih:D886D77E8D76F888551A39B87723E20760FD3E7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

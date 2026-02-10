@@ -22,6 +22,8 @@ Mariah Carey - The Essential Mariah Carey (2019) 2CD, Compilation [FLAC|Lossless
 magnet:?xt=urn:btih:03254BDA70D5C6020EC8558507F5626419DC1438
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:03254BDA70D5C6020EC8558507F5626419DC1438
 magnet:?xt=urn:btih:09BC0E17D5C2F34D3EA15A6F1325DD1E489A48B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ XnView MP - мощное многофункциональное приложен
 ```bash
 magnet:?xt=urn:btih:5108F3A5856774740F1065E71F88BB6185B462DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ VA - Зайцев.нет Лучшие новинки Ноября (2019) [MP3|32
 magnet:?xt=urn:btih:784579ED1C64BBF7D26A08334C6D4E8A0BAAC836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Parov Stelar - Voodoo Sonic: The Trilogy, Pt. 1 (2019) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:8B4BAB9BE9BA928B2033F82BC3338C1249F2CB4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:8B4BAB9BE9BA928B2033F82BC3338C1249F2CB4E
 ```bash
 magnet:?xt=urn:btih:2668738E74F04A0DE01791254ECC3900E53B2FDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ VA - Зарубежка 2 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:5A720BEE3A088C40CF93E2CCD1A99E91A43A772F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:5A720BEE3A088C40CF93E2CCD1A99E91A43A772F
 ```bash
 magnet:?xt=urn:btih:5B29B66B6F45CE44492B1CBCDFEC027E8EBCA583
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:5B29B66B6F45CE44492B1CBCDFEC027E8EBCA583
 magnet:?xt=urn:btih:FF0EDF62687C9869DB00058C2B4CAB0F992DAC36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:FF0EDF62687C9869DB00058C2B4CAB0F992DAC36
 magnet:?xt=urn:btih:B689340A8645F899D4EFE821D2858AFAAA7B0965
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:B689340A8645F899D4EFE821D2858AFAAA7B0965
 ```bash
 magnet:?xt=urn:btih:63F2B89AA78DBA0E69E091988952DFFF2C3AC7F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ VA - Country Night Top 130 (2019) [MP3|320 Kbps] <Country, Blues Rock>
 magnet:?xt=urn:btih:10E4C42E15DDFA5CA3EE5B943F98DB60C3393437
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:10E4C42E15DDFA5CA3EE5B943F98DB60C3393437
 magnet:?xt=urn:btih:38EA970A0FE99E4D257E8972184F8B97205B52F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ Ozzy Osbourne - Under The Graveyard (2019) Single [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DB9BB2A9AE8EBF9815C69882FE33070B15288B4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ VA - Now That's What I Call Music! 104 (2019) 2CD, UK Series[FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:B00D55CC646A9B5B615B0EB7262DD781C4304737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ Mykja - North Paths (2017) Faint [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, 
 ```bash
 magnet:?xt=urn:btih:AAC743FFCFBE1E01FD131CE99CB0829CF3C1A436
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ magnet:?xt=urn:btih:AAC743FFCFBE1E01FD131CE99CB0829CF3C1A436
 magnet:?xt=urn:btih:4BB9E6F1CD1D3033FE8CBB258C038669B31B935E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +494,8 @@ Phantom Network - Nightscape (2017) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, T
 magnet:?xt=urn:btih:6AF0057C894BA9D87C27A295321C0F6356890B57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ magnet:?xt=urn:btih:6AF0057C894BA9D87C27A295321C0F6356890B57
 ```bash
 magnet:?xt=urn:btih:798F985BD566C4F6C195ABC8983028DACC042352
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +551,8 @@ magnet:?xt=urn:btih:798F985BD566C4F6C195ABC8983028DACC042352
 magnet:?xt=urn:btih:E19C3C791C2EE896ED9B6DDB3C496A28557F3EA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +580,8 @@ The Larry Goldings Trio - Moonbird (1999) Palmetto Records [FLAC|Lossless|image 
 magnet:?xt=urn:btih:E6E892DE8BE50D086B15F27DCF8248DAE8723973
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +608,8 @@ magnet:?xt=urn:btih:E6E892DE8BE50D086B15F27DCF8248DAE8723973
 magnet:?xt=urn:btih:04CDCA6228954D0F90C0FCA20534FF7D8988BDF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +635,8 @@ magnet:?xt=urn:btih:04CDCA6228954D0F90C0FCA20534FF7D8988BDF9
 ```bash
 magnet:?xt=urn:btih:C084191FAB067006FEE3480C0E4A1605CE2CD0C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +665,8 @@ magnet:?xt=urn:btih:C084191FAB067006FEE3480C0E4A1605CE2CD0C8
 magnet:?xt=urn:btih:015F267FD8EA2624F7BE89DF69B8E71E071E33A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +694,8 @@ magnet:?xt=urn:btih:015F267FD8EA2624F7BE89DF69B8E71E071E33A4
 magnet:?xt=urn:btih:418E0B290A24C39C4332573D87408877E29A1C05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +722,8 @@ Nick Brignola - All Business (1999) Reservoir [FLAC|Lossless|tracks + .cue] <Har
 ```bash
 magnet:?xt=urn:btih:6130A10570361FA071D87CF8FE5ED6E032ABAAA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

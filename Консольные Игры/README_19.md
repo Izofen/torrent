@@ -19,6 +19,8 @@ Enemy Territory: Quake Wars (2008) [PS3] [EUR] 2.30 [Cobra ODE / E3 ODE PRO ISO]
 magnet:?xt=urn:btih:A1CD8B392DE25644876D0EF6E5E10C5A78FBC41A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Conflict: Denied Ops (2008) [PS3] [EUR] 2.01 [Cobra ODE / E3 ODE PRO ISO] [Licen
 ```bash
 magnet:?xt=urn:btih:58960397F399B8A153F5A7E3A3F67FEECC5548A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Dark Void (2010) [Xbox360] [RegionFree] FreeBoot [License] [Ru] | R.G. X360CLUB
 magnet:?xt=urn:btih:69707341E6C3DD833918FEC1E8F1A58B2FCF7F78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Raven Squad: Operation Hidden Dagger – оригинальная смесь ш�
 ```bash
 magnet:?xt=urn:btih:64DB3C7F30A1BD63106121E9C30823899C4689C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Secret Rings это первая часть после Sonic The Hedgehog (1991 
 magnet:?xt=urn:btih:5B63A3423F30400989325F44D3AD61A83C0DFD26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Ultra Street Fighter IV – крупный аддон к знаменитой с
 magnet:?xt=urn:btih:D865A8C356221C510FF78DEC00ED55A9995B3536
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Kung Fu Panda: Showdown of Legendary Legends – стилизованный по
 ```bash
 magnet:?xt=urn:btih:A54361ACE5EE85B1580D1A98A98DA34072094E9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Demon's Souls (яп. デモンズソウル Демонзу Соуру, руc. Д�
 ```bash
 magnet:?xt=urn:btih:FBE11CDFF26A4C768EB3931151CBC1A2E0FF7D73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Need for speed: Hot Pursuit это встреча двух мастодонто�
 magnet:?xt=urn:btih:2A739744EBB3B2D593B5233FD9D5D583274D9D17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Marvel Super Hero Squad: The Infinity Gauntlet – продолжение поп
 ```bash
 magnet:?xt=urn:btih:D8966A6C8B326B6515C3232E0FA96DB58F57FAF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Man vs. Wild (2011) [PS3] [USA] 3.56 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 magnet:?xt=urn:btih:7F9F84935D38CF79B6AFEDE6532B8D107F58FC06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Zack & Wiki: Quest for Barbaros' Treasure [Wii] [PAL] [Multi 5] (2008)
 ```bash
 magnet:?xt=urn:btih:801CA38903D86C9E4BE9EC8CF3CCBBCC0EB9DCC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Tak And The Guardians Of Gross создана в соответствии с л�
 magnet:?xt=urn:btih:1981E017114D9193CF5D6762F7A87CA3E3D35CBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ The Incredible Hulk создан на основе одноименного фи
 ```bash
 magnet:?xt=urn:btih:AD37D0D6245C79B10088EEC4725C6FE61DEB00FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ Ranko Tsukigime's Longest Day - это одна из частей анимаци
 magnet:?xt=urn:btih:D40BB6B64838A8234B7A05507506C1F8CF6F096B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Ace Combat: Assault Horizon (2011) [Xbox360] [RegionFree] [FreeBoot] [License] [
 ```bash
 magnet:?xt=urn:btih:F445F8DD5C455432E07F7274D74A9570219911B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ Spelunky – это уникальный платформер, в котором
 magnet:?xt=urn:btih:968795993D37E48CAE704C46AD9938CF7C0491D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ FAST Racing Neo (2015) [WiiU] [EUR] 5.3.2 [WUP Installer] [License / 1.2 / DLC] 
 ```bash
 magnet:?xt=urn:btih:895EA7CE1B111764CE5D176877CF1883D574B2FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Disgaea 4 может похвастаться новой графикой, в к
 ```bash
 magnet:?xt=urn:btih:18F68BBD3B7487E244D8A18DF3BD18F81B9C5B62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ Army of Two: The Devil's Cartel – новая часть знаменитого
 magnet:?xt=urn:btih:C96E79E83E41498ADD01BE2CCD209F7C15252FD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ Ski Doo: Snowmobile Challenge (2009) [PS3] [EUR] 4.01 [Cobra ODE / E3 ODE PRO IS
 ```bash
 magnet:?xt=urn:btih:69B64249C8D7EC7EC860F0B2DDBA10BCF416A8BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ The Chronicles of Narnia: Prince Caspian [Wii] [NTSC] [En] (2008)
 magnet:?xt=urn:btih:6D6A3B6DF7E7CFA5A1733F7781B1B8A3AABF3A2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Ride to Hell: Retribution (2013) [PS3] [EUR] 4.41 [Cobra ODE / E3 ODE PRO ISO] [
 ```bash
 magnet:?xt=urn:btih:EE9F52DCB979E35B694A9E3042F093A8B84C60AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ The Book of Unwritten Tales 2 (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO IS
 magnet:?xt=urn:btih:5BBC90B3D3828314593EBCA477CAB7CBCEA190C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ Tom Clancy’s EndWar (2008) [PS3] [EUR] 4.41 [Cobra ODE / E3 ODE PRO ISO] [Unof
 magnet:?xt=urn:btih:7BADA8E7424409275AF3F04A27243F1E3B7B1025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ MX vs ATV: Untamed (2007) [PS3] [EUR] 1.93 [Cobra ODE / E3 ODE PRO ISO] [License
 ```bash
 magnet:?xt=urn:btih:4ED4B254C50FE1441C3F74E191A26BECBC3AAED7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

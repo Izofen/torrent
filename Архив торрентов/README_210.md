@@ -19,6 +19,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 magnet:?xt=urn:btih:981457D51F03E1CC22FDF3A782337DB4801AD333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Winxvideo AI  - это набор инструментов для масштаб
 magnet:?xt=urn:btih:B8626281C651BDC936233E6A80E7E985028BEDC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:7AD94AE57C89D014AF7700B788CA0DD781F93DFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Avidemux - небольшой, простой редактор для работ
 magnet:?xt=urn:btih:B60F5C05284B9B6B6664B83A84C57D8B49694A92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:B6F74E05FFF05CB19A691DE95855CE2A221A1FA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ AOMEI Backupper – программа для создания резервно�
 magnet:?xt=urn:btih:E4100AB9F1384826FA63E66FD78701D69BB57F26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:C14809F3107FFA8D3AC23E5FE77D947AEB9427CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:8F17F0018133DAC8411D281CC96187010E27FE5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ WinX VideoProc Converter - усовершенствованная версия, 
 ```bash
 magnet:?xt=urn:btih:51F20997BC95EFD0AF3F62B29F6B2A135F325C6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Pepakura Designer 6.0.3 [Multi]
 magnet:?xt=urn:btih:28B63AFA2EBDD738898256AD0F9393D8A7251C6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ WizTree - небольшая и полезная утилита для опре�
 ```bash
 magnet:?xt=urn:btih:1A620B453C8CEF8B9BC8BCB12DC1BC340826A0CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ SweetScape 010 Editor 15.0.0 + Portable [En]
 magnet:?xt=urn:btih:212F779115E5BCD7DC4832405DD97F378068C76C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ KStars - бесплатное, с открытым исходным кодом, 
 magnet:?xt=urn:btih:6296BD863F55A2E504BB510E75C1E4E8C890513F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:6296BD863F55A2E504BB510E75C1E4E8C890513F
 ```bash
 magnet:?xt=urn:btih:98C2BC2AA1063D3863F1AEA4A6531B0D5E82EB49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 magnet:?xt=urn:btih:6D6A1692156DBD26226C132E2ABDC16379CCBA9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ CareUEyes служит для изменения цветовой темпера
 magnet:?xt=urn:btih:6FBC87AAE437E24E59A95A0DA5AAAD8B4FBFA9CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:6FBC87AAE437E24E59A95A0DA5AAAD8B4FBFA9CA
 ```bash
 magnet:?xt=urn:btih:ABFFAFE40E540A370C60D2754E4CE24C56E1C48B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:ABFFAFE40E540A370C60D2754E4CE24C56E1C48B
 magnet:?xt=urn:btih:F4FC0FD7E7E167D6CC8333B47A6C1AEF46610BC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:F4FC0FD7E7E167D6CC8333B47A6C1AEF46610BC3
 ```bash
 magnet:?xt=urn:btih:5C9B13199CCFE64387C4D761448A42EE6959F899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:2E47DFA8DEEE2BBDFBAEA60DFFDB174E2004D39B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:2E47DFA8DEEE2BBDFBAEA60DFFDB174E2004D39B
 ```bash
 magnet:?xt=urn:btih:53CAE9C82E62A756153802D335445CC985BB7537
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Clip Studio Paint EX (ранее Manga Studio EX) - это ведущее в м�
 magnet:?xt=urn:btih:51CDF2735A06160105ADDE8728D921D71499939E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Luxion KeyShot — средство для интерактивной фотор
 ```bash
 magnet:?xt=urn:btih:17F3782648673794613A235B85C36500468077D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:2FAAA678B369748BC0C512AAC23F070D800ECC05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Ultimaker Cura - популярный слайсер для 3d-печати. О�
 ```bash
 magnet:?xt=urn:btih:B8FD61471244A9D764771DE072BD2627C754A39A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 ```bash
 magnet:?xt=urn:btih:8B46D08ACF67B002A80FBFC0F357D3C3DBA0DC6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

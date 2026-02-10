@@ -19,6 +19,8 @@ LEGO Indiana Jones: The Original Adventures [PS3] [EUR] [En] [2.20] [Cobra ODE /
 magnet:?xt=urn:btih:9FAA1BC905DD9367375CC0637DE87653FF073AD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Syberia (2015) [PS3] [EUR] 4.50 [Cobra ODE / E3 ODE PRO ISO] [Unofficial] [En]
 ```bash
 magnet:?xt=urn:btih:3539711B5A6FB08646E8D54212112C3F928464D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Empires, хоть и имеет в названии цифру «8», предс
 ```bash
 magnet:?xt=urn:btih:1549BB04449A39002586EF9F9862A1ACC6963028
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Ice Age 4: Continental Drift - Arctic Games (2012) [PS3] [EUR] 4.11 [Cobra ODE /
 magnet:?xt=urn:btih:2563C1119FA30A81BCD95D61523528CA207D70C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Resident Evil: Revelations 2 — это мультиплатформенная �
 ```bash
 magnet:?xt=urn:btih:C0365AF4967BB0E04A6517D1E94F55059C623D4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ Dragon Quest Swords: The Masked Queen and the Tower of Mirrors [Wii] [PAL] [Mult
 magnet:?xt=urn:btih:94113C19E6B5B7DE9C3A306512AF71E4739DE92E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:94113C19E6B5B7DE9C3A306512AF71E4739DE92E
 ```bash
 magnet:?xt=urn:btih:021D16D3D4D49EE9F250AE188F2EF82E2A97A7DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Dance! It's Your Stage - яркая и красочная игра в духе G
 magnet:?xt=urn:btih:561CC08200D8C44E02738159ED3ED22126D1C27E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ NeverDead – экшн от третьего лица, действие кото
 ```bash
 magnet:?xt=urn:btih:4B66A65D162C43550043300670E92B51BEBE3186
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Ghostbusters: The Video Game [PS3] [EUR] [Ru/Eng] [2.60] [Cobra ODE / E3 ODE PRO
 magnet:?xt=urn:btih:A3B224BA4D89677D270208689645EFCE4D7286FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Jump Ultimate Stars (2006) [NDS] [JPN] [Unofficial] [En]
 ```bash
 magnet:?xt=urn:btih:2252236EBF8FC10BAFA0E24545E359EB1DE4B99D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ How to Train Your Dragon 2 / Как приручить дракона 2 (2014) [
 magnet:?xt=urn:btih:9F43DB803287B68ECBC9FEE38728A06119DB09E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Just Dance Kids 2 - музыкальная танцевальная аркадн
 magnet:?xt=urn:btih:265811697F152AC58C7231DB81271E77C4BF5B08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:265811697F152AC58C7231DB81271E77C4BF5B08
 ```bash
 magnet:?xt=urn:btih:5AE24E8FAD94B7AF1629410F9BB77ECDFB6CE1EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:5AE24E8FAD94B7AF1629410F9BB77ECDFB6CE1EA
 magnet:?xt=urn:btih:21AB082FFF5EA02CA32F6D6C29C318444BA137E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:21AB082FFF5EA02CA32F6D6C29C318444BA137E1
 magnet:?xt=urn:btih:B2DE9ED46307C14872A79374FE589BD268F744E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ Darksiders 2 является продолжением Darksiders: Wrath of War,
 ```bash
 magnet:?xt=urn:btih:71FA3C501691025395B5D9927C5B55ED26AA3B28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ Wii Sports это сборник из пяти спортивных симуля
 magnet:?xt=urn:btih:2C06430A480921F95133A5E85485CF1478A5FB60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ Call of Duty 3 (рус. «Зов долга 3») — игра в жанре шу
 ```bash
 magnet:?xt=urn:btih:11C5749121241BF17E4B9A4E9874986A121273FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ Far Cry 2 [PS3] [EUR] [Ru/Pol] [2.50] [Cobra ODE / E3 ODE PRO ISO](2008)
 magnet:?xt=urn:btih:8CABF2C23B497D5589B56AAED4A73DCE81323DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ Fat Princess / Принцесса-обжора [PS3] [PSN] [HK] [Multi8] [2.70] 
 magnet:?xt=urn:btih:941068DC716A765B0C7C73EE0A3F3F315F6A2139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ X-Men: The Arcade Game - аркадный платформер от Backbone Ent
 ```bash
 magnet:?xt=urn:btih:DA38BD061C4BE5E68041D8368C4A515AE340B9E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ Ratchet & Clank — серия игр жанра платформер, разр�
 magnet:?xt=urn:btih:13AB669FE24AB234C414EE3716D0BDAF637CF32D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ Apache: Air Assault [PS3] [EUR] [En] [3.50] [Cobra ODE / E3 ODE PRO ISO] (2010)
 ```bash
 magnet:?xt=urn:btih:A6A5F73486A608C13E2FE70A1BFDFCEBBA5B3164
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ Savage Moon + Savage Moon: Waldgeist [PS3] [PSN] [USA] [En] [2.50] [2.01 / 1 DLC
 magnet:?xt=urn:btih:AF9DF88E2831E120980220CDE9366689941E2801
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ Soma Bringer (2009) [NDS] [JPN] [Unofficial] [En]
 ```bash
 magnet:?xt=urn:btih:45691BBA66F7569231D2E3FE5DCC10770FBD25A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

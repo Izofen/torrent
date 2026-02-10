@@ -22,6 +22,8 @@ VA - Радио Рекорд - Record Club за 24.11.2016 [MP3|320 Kbps] <Elect
 magnet:?xt=urn:btih:B6D82A2631DF684E290E5CAAA9C0F3A098BEC726
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Unknown 80's (part IX) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop
 ```bash
 magnet:?xt=urn:btih:5A7E1F1F53460AC4BF2F2A34ECC64E5702B9A777
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ C.C. Catch - All Very Best (2012) [MP3|320 кб/с]<Pop,Disco>
 magnet:?xt=urn:btih:2FA5DD9BD7E381E419C2B24A300DB4BECB0A217F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +121,8 @@ VA - Лучшие Хиты 80-90-Х В Обработке DJ Зарубежны�
 magnet:?xt=urn:btih:5576D66A2D5F7225E32D208FBDD9C83F98CFFDE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +149,8 @@ VA - ЕвроХит Топ 40 Europa Plus 11.11.2017 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:BAD2C7A3FAF36A043BD12EE6977B7550B24F6AFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +179,8 @@ VA - Beatport Trance Pack (25.11.) (2016) [MP3|320 Kbps] <Trance, Melodic, Uplif
 magnet:?xt=urn:btih:41B8B6D9D2E55F4D5F34EA237B332C4B4D5A7A0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +207,8 @@ VA - Хит-марафон 50х50 (2015) (2015) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:704C7B9C24189611BBFF8797773F042579916E3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +237,8 @@ magnet:?xt=urn:btih:704C7B9C24189611BBFF8797773F042579916E3F
 magnet:?xt=urn:btih:36515074F2D6D39B746A009FF5A63EF319F7D5C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +266,8 @@ VA - 2K14 Miami Ultra EDM - New Product (2015) [MP3|320 кб/с]<Funky, Club, Fu
 magnet:?xt=urn:btih:34DC516F57FF684AC0DC1B6EBD3F02DD92FE9F03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +294,8 @@ VA - Hot Autumn Dance (2017) [MP3|320 Kbps] <Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:10A3DD50AF08D72D7F1130AD3658200BDA099A51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +329,8 @@ Swedish House Mafia - DJ Mag Top 100 (2012) [MP3|320 кб/с]<House / progressiv
 magnet:?xt=urn:btih:7FBC1D8BD9F9C73727EEFC4D96C95A823392CFDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +357,8 @@ VA - Merry Christmas Baby! Christmas BluesRock (2020) 4 CD [MP3|320 Kbps] <Blues
 ```bash
 magnet:?xt=urn:btih:70BFE16D33D8F891391C670195310F7042FFEEE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +387,8 @@ VA - Blues for Christmas (2020) [MP3|320 Kbps] <Blues>
 magnet:?xt=urn:btih:6C09F236E1D4E8F25082BBE6B873E28D58864533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +415,8 @@ VA - ЕвроХит Топ 40 Europa Plus 06.11.2020 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:C3866AC7CD8B3F44B2FCFC614E4C501FD921B41A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +445,8 @@ VA - Свежий Русский Хит от ALEXnROCK часть 3 (2019) [MP3|
 magnet:?xt=urn:btih:9759B279CE55DB1811F42127481644AC091E32E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +473,8 @@ VA - Самые Горячие Хиты Дискотек (2018) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:8A5A4A6ACF6E61FA72C4A449E96E3F8CA7BE1C78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +503,8 @@ VA - Club Dance Ambience Vol.167 (2018) [MP3|320 Kbps] <Dance, Club, House>
 magnet:?xt=urn:btih:0C44DDA55AFB7ADEDFF7BBFDB05CF312F46747B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +528,8 @@ Mayah - Feel for Real (2016) Remix [MP3|256 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:BC30F03B1C69818854A1E18EE6DBE88D4C74B792
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +564,8 @@ Digitally Imported - the best (2012) [MP3|64-320 кб/с]<Ambient,PsyAmbient>
 magnet:?xt=urn:btih:0CD0B728FE6B2654C5E1A730660C8B5F905B9766
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +599,8 @@ VA - Русская Морозная дискотека (2012) [MP3|320 кб/с]
 magnet:?xt=urn:btih:E1F267CF2EE868D7EFDFBE93AF6F04C29E2EE6A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +627,8 @@ VA - Intimate Jazz (2016) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:F0EC0593E950506DD469E0417464A17ED7C2FD7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +663,8 @@ VA - DeepEmotions - Car Dubstep Vol.10 (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:70F212A3F6428CBEAFA242A7E9318969BC5B48D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +688,8 @@ N\AЖанр: house / club house / vocal house / electro house / progressiveПр�
 ```bash
 magnet:?xt=urn:btih:2B1654A26906667A2B1460161741F13F8D4BB395
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -678,6 +724,8 @@ VA - Радио Шторм - Русский Шторм - 81 (2012) [MP3|320 кб
 magnet:?xt=urn:btih:1A90BA5F196A3D8D4B63651D1D110B07B7C9F34C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -710,6 +758,8 @@ Afrojack - DJ Mag Top 100 (2012) [MP3|320 кб/с]<house / electro house / progr
 magnet:?xt=urn:btih:B75004E882445CF1BB74228C0F95DD652D29A6EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -736,6 +786,8 @@ magnet:?xt=urn:btih:B75004E882445CF1BB74228C0F95DD652D29A6EF
 ```bash
 magnet:?xt=urn:btih:57C317B1DABA970325F09C8F35653CB20DD8E4A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

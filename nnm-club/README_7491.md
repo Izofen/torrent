@@ -21,6 +21,8 @@ Downie поддерживает более 1,000 популярных сайто
 magnet:?xt=urn:btih:A87F8AC4A7B1F3C7BA4C3CBD0F8B7678DAFB76B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Ambush - Desecrator (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:2ADBC7F0A3E4BBDB39F5698C5E1CAC7451CEB8C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ openSUSE 13.1.1 Education Li-f-e [i686] 1xDVD
 ```bash
 magnet:?xt=urn:btih:017AF542CB49FE6B41693AE32461D2C64E850EB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Pink Floyd - The Later Years: 1987-2019 (2019) [FLAC|24/44.1|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:73715BC0127D039B97FD72636A9A864CAD10692F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Macrium Reflect Free обладает интуитивно понятным по
 magnet:?xt=urn:btih:908F754371B23F9817539574D6D5E7327E6279AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:908F754371B23F9817539574D6D5E7327E6279AD
 ```bash
 magnet:?xt=urn:btih:0B4B2E82F58E038169151912F7B1F13443869123
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:0B4B2E82F58E038169151912F7B1F13443869123
 ```bash
 magnet:?xt=urn:btih:24ABD25EFB8A7F13D3B12EB80DA4DC0456654DEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ The Shape of Chaos - The Shape of Chaos (2023) [FLAC|Lossless|WEB-DL|tracks] <Gr
 magnet:?xt=urn:btih:D8A3D78C17E3F6277326E56B54D28D589B8F152F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ Masada - Live In Sevilla (2000) Tzadik[FLAC|tracks+.cue] <World Fusion, Ethnic J
 magnet:?xt=urn:btih:BC85DBF7269084E6437D955AF016C908AC172D12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:1DA200D339FD5C31B9148811A9D3B02C162F01A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:1DA200D339FD5C31B9148811A9D3B02C162F01A8
 magnet:?xt=urn:btih:F57A5157CDFACD1C620902FFD6FE6367630485FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:F57A5157CDFACD1C620902FFD6FE6367630485FD
 ```bash
 magnet:?xt=urn:btih:1A8EF8DEB0A93F6807BBCEE7621AD5198D021F0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:1A8EF8DEB0A93F6807BBCEE7621AD5198D021F0C
 magnet:?xt=urn:btih:6FBC09E14002130421541217C06DBABE7E8310F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:6FBC09E14002130421541217C06DBABE7E8310F6
 ```bash
 magnet:?xt=urn:btih:9CADB78A39A1169C92C78642DC48013AB9CD475B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ Eternal Rot - Moribound (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Doom 
 magnet:?xt=urn:btih:EAC9F03A524FA8F45D7D721EA0648C4DA951D1A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:53E7D637093E4AFCDF11871B2793BBEE427C29DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ Stormzone - Seven Sins (2015) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:B0032B29359F30A30C569C672085A456C9622079
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:B0032B29359F30A30C569C672085A456C9622079
 ```bash
 magnet:?xt=urn:btih:4C0B64F19DEB0254180C04738DBAFB4CE6D0B91C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ Forest Of Shadows - Among The Dormant Watchers (2018) [MP3|320 Kbps] <Doom-Death
 magnet:?xt=urn:btih:6383F5D95A4CA55CEBBF719421AB65BD9587DA58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ Dead Fields Of Woolwich - Dead Fields Of Woolwich (2023) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:4D0772F82D96CD66404AEC40D4874FE83C7CD507
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ Nero Burning ROM 2021 - позволяет записывать диски CD, D
 ```bash
 magnet:?xt=urn:btih:8BB863BF324787BB186C305F78721AAA70C1FCF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ Sade - The Best Of Sade (1994) [OGG Vorbis|480 Kbps] <Funk / Soul, Pop>
 magnet:?xt=urn:btih:40ACD38EF22178233878E2446E8B4666297DD0E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ magnet:?xt=urn:btih:40ACD38EF22178233878E2446E8B4666297DD0E8
 magnet:?xt=urn:btih:FA5CDDC6869B45203D7C35C70DC7A4AE9F36040E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ magnet:?xt=urn:btih:FA5CDDC6869B45203D7C35C70DC7A4AE9F36040E
 ```bash
 magnet:?xt=urn:btih:219153E6D69D703B21B94F2D8D70FED6CC0FE3C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ Screens 4 v.4.12.11 [Multi/Ru]
 magnet:?xt=urn:btih:BF43B4DA158D6D33BB44A0CDA4B1E4CAA9A2F614
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:BF43B4DA158D6D33BB44A0CDA4B1E4CAA9A2F614
 ```bash
 magnet:?xt=urn:btih:757D425CC948A5E871213F7AAAD147C5EF61E5E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

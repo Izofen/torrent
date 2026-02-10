@@ -22,6 +22,8 @@ VA - John Digweed Live In Montreal (2016) 6CD [FLAC|Lossless|image + .cue] <Prog
 magnet:?xt=urn:btih:A5130D31DB33D287F128ED6F7601C5C51F5F07AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Calvin Harris - Funk Wav Bounces Vol. 1 (2017) [FLAC|Lossless|tracks + .cue] <El
 ```bash
 magnet:?xt=urn:btih:C25ED8114084854EE3064A67354A37602FC8FB83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Sea Of Tranquility - Landed (1995) Weisser Herbst [FLAC|Lossless|tracks+.cue] <L
 magnet:?xt=urn:btih:9BEB5C2C52A7ED42C0AA6F2737D79641768194FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ UnicaZürn (UnicaZurn) - Sensudestricto (2019) [FLAC|Lossless|Web-DL|tracks] <Ex
 ```bash
 magnet:?xt=urn:btih:E655CAB2D62AE53C883CFD9EA80035061044E083
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Hipnotic Earth - Suspended In Silence (2019) Whitelabrecs [FLAC|Lossless|tracks+
 magnet:?xt=urn:btih:324AEF3F7E15935AA7D3A14680319ABFFDAE9AB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Vasily Dvortsov - Белая Ночь (2017) Single [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:26EF9C9078760A1958A9B43D425DC982EED0BDEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ VA - Essential House Society Vol. 2 (2016) [MP3|320 Kbps] <House, Progressive>
 magnet:?xt=urn:btih:22C672ED944DA52923441B82E8112A27B4D9306D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ VA - Aly & Fila - Future Sound Of Egypt 505 (2017) [MP3|320 Kbps] <Trance,Uplift
 ```bash
 magnet:?xt=urn:btih:ED165F9EF0621541F613BE35B18A27902D1CE80B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ VA - Acoustic Sweetness. Emotional and Positive Portraits (2017) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:08C1431508A0AE7AFE13A7C06FB0592ADFA608F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ VA - Good Morning Beats Vol.6 (Finest Tropical Lounge Music) (2017) [MP3|320 Kbp
 magnet:?xt=urn:btih:C1E970F86BFBF07F9DFBFEB099FCBD00AF02A4F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +307,8 @@ Vasily Dvortsov - On the Way to the Cosmos (2016) Single [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:9CEA8E73F90B173F4D1CE324C8A5B8F26DB520DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +337,8 @@ VA - Pool, Lounge & Holiday, Vol. 1 (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:7660E1B27A818DFCBCBBC8CBD2B61721DAE7AA99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +365,8 @@ VA - Intricate Records Summer Vibes Vol.2 (2017) [MP3|320 Kbps] <Progressive Hou
 ```bash
 magnet:?xt=urn:btih:891705CC86F86780122780C2E795176AEFA8F18B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +395,8 @@ VA - Luncheon Chillout (Organic Essential) (2018) [MP3|320 Kbps] <Balearic, Down
 magnet:?xt=urn:btih:91A3A66479DC00B4EC4F75F90EC8E818446535A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +423,8 @@ VA - Last Chance Summer Sale House Music (2018) [MP3|320 Kbps] <House, Tech Hous
 ```bash
 magnet:?xt=urn:btih:3EF00CED5D09CAEB86A2C44A8E2FF213D7EA53FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +458,8 @@ Triangle Sun (Треугольное Солнце) - это группа-при�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +487,8 @@ VA - Lounge Loungy (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:EC4D5686CA548ACFCE3028E4AE0CEA491800331F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +515,8 @@ Manu Shrine - Discography 12 Releases (2013-2015) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:CB7806C7CE6383EA7736C96AA849AAF7CAF4850A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +548,8 @@ Zedd feat. Matthew Koma - Spectrum EP (2012) [MP3|320 кб/с]<Trance, Electro H
 magnet:?xt=urn:btih:7CD53F6B037D4D4E3F292D7900BF3B7FEC6C936C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +573,8 @@ VA - Best of Melodic Vocal Trance Vol. 3 (2016) [FLAC|Lossless|tracks] <Trance, 
 ```bash
 magnet:?xt=urn:btih:F4DA38D1DFF8EF425E1851354F60097373A795AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +603,8 @@ Korolova - Live @ Karavela Boat Party Lisbon, Portugal (2022-06-03) [MP3|320 Kbp
 magnet:?xt=urn:btih:DA000C1B783BA141FA2BDE9F461F355330387626
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +631,8 @@ VA - Maretimo Sessions: Saxophone Sunset (Smooth Jazz Lounge Music) (2017) [MP3|
 ```bash
 magnet:?xt=urn:btih:A803B418E2D3D1E59297EEFE2EF43AB7233F0A0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +661,8 @@ Markus Schulz (Recorded Live from Toybox in Toronto - May 27 2022)
 magnet:?xt=urn:btih:B59E10588BBF19AC18E4C555B3867C7E006AFB88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +689,8 @@ Gareth Emery - Metropolis Festival, The Brooklyn Mirage New York, United States 
 ```bash
 magnet:?xt=urn:btih:7FC9CDBD436BE8A7EE74EEC33AC01315E537E592
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,6 +719,8 @@ Com Truise - Persuasion System (2019) [FLAC|Lossless|tracks + .cue] <Electronic,
 magnet:?xt=urn:btih:BCF9725313F5A17976848C17EC59C8A1583077E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ MRUKS - MRUKS REMIXES (2019) [FLAC|Lossless|WEB-DL|tracks] <Funky, Retrowave>
 ```bash
 magnet:?xt=urn:btih:44CA597B385026B2585231EF1E6B1995B8ADDE7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

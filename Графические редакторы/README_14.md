@@ -21,6 +21,8 @@ Cartoon Art Batch - очередная программа, которая поз
 magnet:?xt=urn:btih:5746AB8CEA242BCFCE232A47C4FDC88D3B56FF51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ DrawingBotV3 - это программа для преобразования и�
 ```bash
 magnet:?xt=urn:btih:51A8BBDE5D209E70AB1B7BCF5869DC933AFCE3B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ CartoonArt - Prima Cartoonizer 5.0.6 [En]
 magnet:?xt=urn:btih:8B212EDF98829F3F93AB589869372A48F5207ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Movavi Picverse - представляет собой один из самых �
 ```bash
 magnet:?xt=urn:btih:88B3429D1C07BDCAC253877665DC7CBDBBC8158B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Adobe InCopy позволяет авторам и редакторам текс�
 magnet:?xt=urn:btih:0FC7716F6E382B5603D0454D0A83849D8DF4AEB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:0FC7716F6E382B5603D0454D0A83849D8DF4AEB4
 ```bash
 magnet:?xt=urn:btih:9A27B53394088AAEE8ADD9EF56C042FE722CDDD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Affinity Designer — самое быстрое, удобное и точное 
 magnet:?xt=urn:btih:25FAA037EE9845CD68671B9132944D82EA9DFAEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Affinity Photo — обеспечивает более высокую скоро
 ```bash
 magnet:?xt=urn:btih:7BE0FE4B3C1A8495825923AE6D22A9FFC5BFBDB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Tint Guide Collection 28.05.2023 Portable by AlekseyPopovv [Multi/Ru]
 magnet:?xt=urn:btih:039F75A73ADF9349B5F895177952899A5588C765
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Affinity Publisher - программное обеспечение нового 
 ```bash
 magnet:?xt=urn:btih:04E884487F05FD50731A8B7B46EF46713105EBD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Corel PhotoMirage - изображения с эффектами вращени�
 magnet:?xt=urn:btih:C1FFA06D3838F62C25A1C6EAA6CBFE88C18E1461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Synfig — примечателен наличием средств для ко�
 magnet:?xt=urn:btih:8A3E5311F928B05C4F9F02D2B354126C6FCF0154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ HitPaw Object Remover 1.0.0.16 RePack by OctaneS [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F28338F5C9847194A55B101F2C723871B99ED05D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ JixiPix Chromatic Edges 1.0.26 [En]
 magnet:?xt=urn:btih:46FC45807FFE40F64FFD9EE6380D8CB415B784F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Affinity Photo — обеспечивает более высокую скоро
 ```bash
 magnet:?xt=urn:btih:6A44ED2842A63D8A7B582BDF31A0896A039D7FA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Affinity Publisher - программное обеспечение нового 
 magnet:?xt=urn:btih:153871348275799DABBF819EA0A0227BF7EE2AA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Affinity Designer — самое быстрое, удобное и точное 
 ```bash
 magnet:?xt=urn:btih:F96FFE64B2FEDED8E4F7EC6793F3E63202F5D5B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ GIMP — это редактор, позволяющий работать со �
 magnet:?xt=urn:btih:274F1E7297C0BE9D041F9F787AB5C79179EE65FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:1E8671EC5BF6BBE813042225A2600BDF9C179FAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 magnet:?xt=urn:btih:15A01301ED3D4745B2FCE794F194F4CAEA274EA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Radiant Photo - это программа для редактирования ф
 ```bash
 magnet:?xt=urn:btih:174CF15CDA7004523E7A006212282C7C5B22FF19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ PixPlant – очень мощный и нестандартный графич�
 magnet:?xt=urn:btih:58D05DB59ECD0A7E12CF40D6CBF7D6836047AD81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ DxO PureRAW 2.0.2 Build 1 [Multi]
 magnet:?xt=urn:btih:670BB94E526DB4BC36E1B67CB361BBF71B3584BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Movavi Picverse - представляет собой один из самых �
 magnet:?xt=urn:btih:ED9CDC3FA1D9DA1270A66D84A2AB5ABA6817194C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ EximiousSoft Logo Designer 3.90 Standart / 3.75 Pro Repack (& Portable) by elchu
 ```bash
 magnet:?xt=urn:btih:1CA2BA5CDC7C9B380DBB922ED8A12336D31A5F5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +679,8 @@ EximiousSoft Vector Icon – программа для создания уник
 ```bash
 magnet:?xt=urn:btih:424745962FD5370ABFECA98085E80D20A16F5FBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

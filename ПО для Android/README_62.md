@@ -19,6 +19,8 @@ Carly — OBD2 car scanner 90.89_beta Mod by Fxolan [Multi]
 magnet:?xt=urn:btih:9D7D469007026958EF553CB0127E84D4BA0B94C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:9D7D469007026958EF553CB0127E84D4BA0B94C1
 ```bash
 magnet:?xt=urn:btih:EFE6099668C1028DE429FDBBD22F17AD03CE5077
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ YoWindow - это нестандартная но очень удобная по
 magnet:?xt=urn:btih:35E4143E7D7EB128DF856345421153384ACA7E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Olauncher - это минималистичный лаунчер без рекл
 ```bash
 magnet:?xt=urn:btih:975CB22E10B57E47A561361ED2F430CD7C9B5C80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Monefy Pro - Трекер бюджета - программа для учёта 
 magnet:?xt=urn:btih:663B261EE495BC5ED22D253C2202013975BE9C3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Calm - Sleep, Meditate, Relax - простое приложение, не тре
 ```bash
 magnet:?xt=urn:btih:C7DF5382998E3CAD9404DF3AB72B252FD74F97AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:C7DF5382998E3CAD9404DF3AB72B252FD74F97AF
 magnet:?xt=urn:btih:CD6E2B41759D2B61BA209254F45862D23B8D3C1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:CD6E2B41759D2B61BA209254F45862D23B8D3C1F
 ```bash
 magnet:?xt=urn:btih:BF9D39ED6990304BE41C37A5E12BBD300A7D1E06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ WeatherPro — это надежные прогнозы погоды по все
 magnet:?xt=urn:btih:BD95B7E06864C04F72BE43DF8CFABFABC1E43808
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:BD95B7E06864C04F72BE43DF8CFABFABC1E43808
 magnet:?xt=urn:btih:34EA5D2A6610D6C0947E2875BBE048DED6AFDBC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ Microsoft Office объединяет Word, Excel и PowerPoint в одном п
 ```bash
 magnet:?xt=urn:btih:8F3EA0D76F7D5CC0579C975F1E1DC688ABD02137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Sleep Timer v22.11 [Ru/Multi]
 magnet:?xt=urn:btih:16E4AB06DAEBC659F58FFED94FA532C1C276531C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Colorize - Color to Old Photos v3.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D98FFC132E6A92F25FB9D533AF57C001B42B3B42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Erudite - это приложение для изучения английско
 magnet:?xt=urn:btih:7ADDEEE678BEDA5F2D08ABCE8789FB265DE8F994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Code Editor Pro - это оптимизированный текстовый р�
 ```bash
 magnet:?xt=urn:btih:396B2A1C1B64DF2956D7BEF13C966F6FEB59291A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ QuickEdit Text Editor Pro - Полноценный и многофункцион
 magnet:?xt=urn:btih:A4334B354B1A99B8E83F8D3C78B03F8D9D1187A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Next: тренировки дома v0.0.91 Mod by Timozhai [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:363D4B4A93DF0C4AB5CE3D20DD2500B8BA0AD659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Seven / 7 Минут Упражнение v9.19.04 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:BE3042F4376A035271BD5779A84F4F9EE9E22A5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:BE3042F4376A035271BD5779A84F4F9EE9E22A5A
 ```bash
 magnet:?xt=urn:btih:055FF64A271026614C32313E2B40AD96E71B0EF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:055FF64A271026614C32313E2B40AD96E71B0EF0
 magnet:?xt=urn:btih:2ABB0C4C060338D069E5345D776F59EA2032709A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:2ABB0C4C060338D069E5345D776F59EA2032709A
 ```bash
 magnet:?xt=urn:btih:C77C2FCCF7E381873353F76E057C8424D3669C0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:C77C2FCCF7E381873353F76E057C8424D3669C0F
 magnet:?xt=urn:btih:66EE885510A8D4C59D4F0F47F06BF1C87E3D75F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ Weawow - это максимально подробный прогноз пог�
 ```bash
 magnet:?xt=urn:btih:85838564AC9B2CA701243549063844173BE76432
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ WiFi Analyzer v4.6 Mod by derrin [Ru/Multi]
 magnet:?xt=urn:btih:31B5DD2D028E9274FEBB4288BC97A92596EF3FE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ magnet:?xt=urn:btih:31B5DD2D028E9274FEBB4288BC97A92596EF3FE7
 magnet:?xt=urn:btih:31275C7D1B43549385FEB5996790FB824D4962E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ magnet:?xt=urn:btih:31275C7D1B43549385FEB5996790FB824D4962E9
 ```bash
 magnet:?xt=urn:btih:AE9AF4A7D2442287CD8EC267B8B577C2B93A11CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

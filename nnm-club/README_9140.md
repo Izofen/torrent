@@ -22,6 +22,8 @@ Downie поддерживает более 1,100 популярных сайто
 magnet:?xt=urn:btih:5527FCB77D8BE4BF0414548CD4E09F7C486CA160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:5527FCB77D8BE4BF0414548CD4E09F7C486CA160
 ```bash
 magnet:?xt=urn:btih:2195BC6AE7D311A2451F1421F7729B73E166E7B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ magnet:?xt=urn:btih:2195BC6AE7D311A2451F1421F7729B73E166E7B0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:2195BC6AE7D311A2451F1421F7729B73E166E7B0
 ```bash
 magnet:?xt=urn:btih:E3805AF1F1856310CE4006C04734BA540EB166FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ Roman Messer - Ambition (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:3E8E3145CCE6EB64EA992FFB9330289FE9E321A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ VA - Trance The Vocal Session 2018 (2017) [MP3|320 Kbps] <Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:0C51A986864678F17A284D0E809BD64925DDBD7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ Markus Schulz:
 magnet:?xt=urn:btih:27B7D62A8F5FB6783AE5CE41C72FF20F4B7519E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ Virgin Australia Supercars Championship. Сезон 2017. Coates Hire Newcastle 
 ```bash
 magnet:?xt=urn:btih:7CBFB32C0AE1E19243ECD91056EB99A704109E66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:7CBFB32C0AE1E19243ECD91056EB99A704109E66
 magnet:?xt=urn:btih:86068F0D90B89189AC0A226516F5C65E2B23579B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ MKVToolnix - функциональный набор инструментов д
 magnet:?xt=urn:btih:F09C7BA69F1B030D55256B2B8A73A9C050BA588C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:F09C7BA69F1B030D55256B2B8A73A9C050BA588C
 ```bash
 magnet:?xt=urn:btih:C01D331512BDF7D16AC604AB09325DA13163CA14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:C01D331512BDF7D16AC604AB09325DA13163CA14
 magnet:?xt=urn:btih:418651721A1484FE092331AC6286F4036C9E47BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:418651721A1484FE092331AC6286F4036C9E47BE
 magnet:?xt=urn:btih:8C2A4D6C56567AD9B63013AC38823E0601136703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:8C2A4D6C56567AD9B63013AC38823E0601136703
 ```bash
 magnet:?xt=urn:btih:3AF22283C8455DB8DF51E692ECDDBC866C6DA57A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ Alan Simon - известный французский продюсер, пис�
 magnet:?xt=urn:btih:854F949589F94916B16AFBA9D3F623A7868FB549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:854F949589F94916B16AFBA9D3F623A7868FB549
 ```bash
 magnet:?xt=urn:btih:5A170579343567B7F1F63440BFA4B15BCC66FFAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ The Score - ATLAS (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Electroni
 magnet:?xt=urn:btih:F5DD0101A39AB5AE9E8C59144EE00539C8626ED4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ magnet:?xt=urn:btih:F5DD0101A39AB5AE9E8C59144EE00539C8626ED4
 magnet:?xt=urn:btih:B438B7EA9BF891E94DE12AA41F229FA81C87B900
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:B438B7EA9BF891E94DE12AA41F229FA81C87B900
 ```bash
 magnet:?xt=urn:btih:FDCF386A8140979B4AD35D44E88F0E4D0AEEAC2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:FDCF386A8140979B4AD35D44E88F0E4D0AEEAC2E
 magnet:?xt=urn:btih:57FE91CA5AD64929609408ADC3C9EB621AC077B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:57FE91CA5AD64929609408ADC3C9EB621AC077B6
 ```bash
 magnet:?xt=urn:btih:CCB2BB8E3B359B1D17B08E73775D070806A53454
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +597,8 @@ VA - Paradise Island: Cruise Musical (2019) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:16E879FB7F4251B923923137AEB1D36A5A7B41EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ Aimersoft-Video Converter Ultimate for Mac является интуитивно
 ```bash
 magnet:?xt=urn:btih:BC5E7DA732285B2EA7B15544DDB1772D8F9311BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ VA - Beach Dance Classics Radio (2) (2019) [MP3|320 Kbps] <Club, Dance, House>
 magnet:?xt=urn:btih:3E8C72A364165FED707B9188E01F1711E6CFB6E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ Jake Butineau - Dune Sea (Original Game Soundtrack) (2019) [MP3|320 кб/с]<Sou
 magnet:?xt=urn:btih:6EA3AFD35EA77F5B7BAFA62CDC466A957A5000F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 ```bash
 magnet:?xt=urn:btih:35FC3D25FA385F404D4F8FFC87C9D1783CD60475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Yooka-Replaylee - это усовершенствованная версия и�
 magnet:?xt=urn:btih:CC7682F6152F9D6E5D18F7E95516378CA8F93275
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:1AE926192FA395AE686490212E6A232B639CED70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Animal Shelter (2022) [Ru/Multi] (1.3.17/dlc) Scene Tenoke
 magnet:?xt=urn:btih:84BDCBDA48894061C175B2B756B0B768E197E7AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Risk of Rain Returns - это культовый roguelike-экшен, кото�
 ```bash
 magnet:?xt=urn:btih:E2D014FEDB4F86D3DC91BD05753C45EF1C638AD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Above Snakes (2023) [Ru/Multi] (1.4.5) Scene Tenoke
 magnet:?xt=urn:btih:577326A6E99C5BD6B39926B63C20478AC3759277
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.1) Scene Rune
 ```bash
 magnet:?xt=urn:btih:98B31D626C45068ACF65D39493573198D1A2B75D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ A Way Out (2018) [Ru/Multi] (1.2.0.2) Repack Other s
 magnet:?xt=urn:btih:063BE8B69946F42D47A384B4E341223139445485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Above Snakes (2023) [Ru/Multi] (1.4.5) License GOG
 ```bash
 magnet:?xt=urn:btih:65AEB697031CDA379444A6F086474A837B71F99D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Kingsvein - это тактическая RPG в духе олдскульных
 magnet:?xt=urn:btih:045E2F4CCED061B62BFB4C2BFCE940A84526B5B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.2.133.f.r40893/dlc) License 
 ```bash
 magnet:?xt=urn:btih:B02B3488A69BBDE99C7589E50D30FA0E06DF6238
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Cub (2024) [Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:69CFBBAB653CFEF9D02AAF8F8C311ACB7894D084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Cursed Fables 4: Before the Clock Strikes (2024) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:08344193D4D47F4DA1CC19E3AAB75EFFBACBC91A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Spin Rhythm XD - яркая и динамичная ритм-игра, в кот
 magnet:?xt=urn:btih:0B769F9B0BAEA6BE6EE0F2EEB3F018C92C0D7735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Grand Emprise: Time Travel Survival - это приключенческий си
 ```bash
 magnet:?xt=urn:btih:4A8F532D7CF0215249A9ECC5D2D7FE6B40B0EAB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Affogato - это ролевая игра с уникальной механик
 magnet:?xt=urn:btih:DD0AE6ED59E43E7B0ABA9A6BB43C981225D5A5E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Viewfinder – отличное сочетание платформера и г�
 ```bash
 magnet:?xt=urn:btih:8BEC8F96250337E613AFCEEACB4BBA1E34D340CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Path of the Midnight Sun смешивает японскую ролевую иг
 magnet:?xt=urn:btih:DD219E6E8E857246CB74E0076939E9DC0BF7512C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Angel at Dusk - хардкорный экшен в формате bullet hell, �
 ```bash
 magnet:?xt=urn:btih:F803EACC2D21C941EEB1411E0AEDC3B56A289E04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Connected Hearts 4: Cost of Beauty (2024) [Multi] (1.0) Unofficial [Collector's 
 magnet:?xt=urn:btih:5D33C2D75B122F3AB8F2EFAFE1847E77773B8FA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Crossroads 3: What Was Lost / Перекрёсток 3: Возврата нет 
 ```bash
 magnet:?xt=urn:btih:16FE845F4C59C6509D3355A86AB50BDFA1C297D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Unsolved Case5: Killer Popularity / Нераскрытое дело5: Убийс
 magnet:?xt=urn:btih:E7047A91249C2DC90EC39FD15DD2BDF98F2A41DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Baldr Sky - визуальная новелла в аниме-стилистик
 ```bash
 magnet:?xt=urn:btih:70CDF079E4A27242CA3E8BFF5BF8DC4EA0DDFD82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Progeria: Vae Victis - визуальная новелла, созданная �
 magnet:?xt=urn:btih:DEF3E0265D4807CB5933A5FF1816F56B9E22492D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Unstoppable погружает вас в самое сердце леденящ�
 ```bash
 magnet:?xt=urn:btih:F8410D24430862DDE4842540FF40AB029878A5FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Despair: Blood Curse — выживание в жанре ужасов. Вид �
 magnet:?xt=urn:btih:357A88524D8D10BFC662198591DB5AE4A4D1A30A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Ys Origin (2012) [En] (2024-01-08) License GOG
 ```bash
 magnet:?xt=urn:btih:3D7EEAC22A39CC32777B7300F7B11FC48474935F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

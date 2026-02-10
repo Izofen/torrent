@@ -1,3 +1,29 @@
+###  Публикация: 1502007   (829817) от 13.10.2021
+
+Андрей Земляной | Один на миллион (Книга 2). Шагнуть за горизонт (2021) [MP3, Александр Чайцын]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_829817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Алексей Белый через портал попал в другой мир, где на основе выдвинутых частей Красной армии образовано некое военизированное государство. Причем это оказалось не изолированное государство, а являющееся частью высокоразвитой империи Алат. Но и здесь нет спокойной жизни, так как уже не одну сотню лет продолжается вялотекущая война. Естественно Алексей оказывается (   Читать дальше...   )Жанр: Боевая фантастика, космическая фантастикаПродолжительность: 11:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D34E10DABBBAB6228BEBBCDA7D8D73BFD4F8DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 312129   (829851) от 22.03.2011
 
 Георгий Зотов | Элемент крови (2008) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0BE66B1BF6EBBCD91CF4B6C899B5C8A5D95C4517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:0BE66B1BF6EBBCD91CF4B6C899B5C8A5D95C4517
 ```bash
 magnet:?xt=urn:btih:1C9F4C206DB97079F9B92594E2A599DDEA912897
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +102,8 @@ magnet:?xt=urn:btih:1C9F4C206DB97079F9B92594E2A599DDEA912897
 magnet:?xt=urn:btih:0F61E965D43FA632235326C00B1E7697A986E5DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:0F61E965D43FA632235326C00B1E7697A986E5DA
 ```bash
 magnet:?xt=urn:btih:33527237A99E43B70B31FF0C40BC1535B41D66A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:33527237A99E43B70B31FF0C40BC1535B41D66A8
 magnet:?xt=urn:btih:F150B81F35DF3874EBA9985A27EA5DE03C4FFF6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:F150B81F35DF3874EBA9985A27EA5DE03C4FFF6F
 ```bash
 magnet:?xt=urn:btih:415A58259A2C17EAA73642927FF710EE3BD15541
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:415A58259A2C17EAA73642927FF710EE3BD15541
 magnet:?xt=urn:btih:FA95CAC5159731B7CEBF5235EF25D4761A1FC4EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:FA95CAC5159731B7CEBF5235EF25D4761A1FC4EB
 magnet:?xt=urn:btih:CB3288EE93765ADD8B8783DF0EC1C401A2B6C9D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:CB3288EE93765ADD8B8783DF0EC1C401A2B6C9D1
 ```bash
 magnet:?xt=urn:btih:9FB440446C84F369061285A4B81EB0A738718EE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:9FB440446C84F369061285A4B81EB0A738718EE9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:9FB440446C84F369061285A4B81EB0A738718EE9
 ```bash
 magnet:?xt=urn:btih:3A3C82E8E9AE113C12954F098284451C0DAEAF04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:3A3C82E8E9AE113C12954F098284451C0DAEAF04
 magnet:?xt=urn:btih:C61EF7EF22116D67349D01BECF04D814C34D0F7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:C61EF7EF22116D67349D01BECF04D814C34D0F7C
 ```bash
 magnet:?xt=urn:btih:8C41F3807383AE824B96DA83FE599CDF18FAE42F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:8C41F3807383AE824B96DA83FE599CDF18FAE42F
 magnet:?xt=urn:btih:5D57F1E77A4FC292AC0E8AE6503B9C9AD273A4A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:5D57F1E77A4FC292AC0E8AE6503B9C9AD273A4A4
 ```bash
 magnet:?xt=urn:btih:7175CC12E7E921D279FF6483EFFF2B20D598A74B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:7175CC12E7E921D279FF6483EFFF2B20D598A74B
 magnet:?xt=urn:btih:2E954E86C02263F4B58D23076EC9B41CAEC629DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:2E954E86C02263F4B58D23076EC9B41CAEC629DE
 ```bash
 magnet:?xt=urn:btih:E03FBA3833C11B6B2BD7A63198E2416413974514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:E03FBA3833C11B6B2BD7A63198E2416413974514
 magnet:?xt=urn:btih:316B5CA529F267D695A32C73B0765516689A109A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:316B5CA529F267D695A32C73B0765516689A109A
 ```bash
 magnet:?xt=urn:btih:BDCB443C67A2033E390D846654CE47C57DBF929B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:BDCB443C67A2033E390D846654CE47C57DBF929B
 magnet:?xt=urn:btih:9701C3096D61DD7C0B93C6B4CB0630186E59BD48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:9701C3096D61DD7C0B93C6B4CB0630186E59BD48
 magnet:?xt=urn:btih:3C4BC25BE8F90D9EAEB11C6536B4090D2F2F1FC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:3C4BC25BE8F90D9EAEB11C6536B4090D2F2F1FC0
 ```bash
 magnet:?xt=urn:btih:C2EAF4360622492BB9103F1AF0FFDEDC9E8ECF20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:C2EAF4360622492BB9103F1AF0FFDEDC9E8ECF20
 magnet:?xt=urn:btih:14E413F62AE419DC61D90EA8C2BF955B251DC977
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:14E413F62AE419DC61D90EA8C2BF955B251DC977
 ```bash
 magnet:?xt=urn:btih:3E9E556EE796341B8A88DE985C5BF66C2379B270
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:3E9E556EE796341B8A88DE985C5BF66C2379B270
 magnet:?xt=urn:btih:192C78744838523F76F96FBB8A14B6B8C9630E0C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502002   (831743) от 12.10.2021
-
-Дмитрий Даль | «Клеймёный» Книга 2. Мятежник (2021) [MP3, Ренат Усманов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_831743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Королю Имрану Октарскому, прозванному Кровавым, свергнутому и отправленному на каторгу, удается бежать. Захватив власть в звездном королевстве, Магистрат Поргуса объявил охоту на беглого короля и его команду. Имран ищет новых союзников и собирает армию. Чтобы вернуть себе королевство, заключает договор с Рыцарями Пустоты. А тем временем через червоточины из другой (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыПродолжительность: 09:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5DD91B97411857DC4652480D6BF048D76877E5A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

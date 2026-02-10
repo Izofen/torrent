@@ -1,3 +1,32 @@
+###  Публикация: 1069962   (369265) от 06.11.2016
+
+VA - Горячий хитовый драйв. Выпуск 5 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_369265.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Zac Samuel & Moon Willis Feat. Taya - Never Letting Go 3:56
+002.Domino - Любовь Живет 3:31
+003.Jessie J - Flashlight 3:30
+004.Frans - Young Like Us 3:32(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50E1F8AC4EF14223E6F3D10F60F545499DFD99D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070136   (369267) от 06.11.2016
 
 VA - Afro Tech Vocals Monopoly (2016) [MP3|225-320 Kbps] <Trance, Club, Dance>
@@ -21,6 +50,8 @@ VA - Afro Tech Vocals Monopoly (2016) [MP3|225-320 Kbps] <Trance, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:F8EB6BB90DE850067D018E52033B93475C9EFC1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Electro Workout Session (2016) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:753A3CD4ACC78B0DEF6061E4DD977B3FE55AA79D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Hot Chart High Songs (2016) [MP3|320 Kbps] <Drumstep, Trap, Future House, D
 ```bash
 magnet:?xt=urn:btih:F76E49281A05B5C983201B866794E2B141BAAA49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Grand Night: Club Vibez (2016) [MP3|320 Kbps] <House, Progressive, Deep Hou
 magnet:?xt=urn:btih:71020DBD1CEF509B8857017CCB4AFBA20B8C2926
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - По волне моей памяти: Том 8 (2017) [MP3|320 Kbps] <По
 ```bash
 magnet:?xt=urn:btih:30FF415AFA11239B78B3134B3A77190183472C08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - По волне моей памяти: Том 6 (Compiled by Виктор31
 magnet:?xt=urn:btih:645B8A90798900688E6C8924EAB8047C5615A63B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Storybook Of Love: Beautiful Deep House (2020) [MP3|320 Kbps] <Deep House, 
 ```bash
 magnet:?xt=urn:btih:467156EDC27F9319CBFE53899CE367A7CA7AA78C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Golden Soul: Classic Funk Mix (2020) [MP3|320 Kbps] <Funk, Blues, Soul, Jaz
 magnet:?xt=urn:btih:7ED8146EEF324C90BEAB197C92DFA0C7816A7629
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:7ED8146EEF324C90BEAB197C92DFA0C7816A7629
 ```bash
 magnet:?xt=urn:btih:07F5F09589D30C18F3D81C2CAE704C17D031F3C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Сборник - 78 оборотов (Эстрада 1940-1960-х годо�
 magnet:?xt=urn:btih:BA34CDEEE00730D5E10F05AF5C5663EB1D1FD7BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Dance Hits Collection 90s Vol.3 (2019) [MP3|320 Kbps] <Eurodance, Euro-Hous
 ```bash
 magnet:?xt=urn:btih:484BF2CBDA61ECEA56743AB8DAA12CF7D17A0DA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - По волне моей памяти: Том 7 (2017) [MP3|320 Kbps] <По
 magnet:?xt=urn:btih:A2CA9D1094F2B9842E9D81A7E03CFFD3B2431E47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - The Tropical Summer: Fresh Chillout Mix (2020) [MP3|320 Kbps] <Chillout, Do
 ```bash
 magnet:?xt=urn:btih:EC23360B11C20450E20DF06F413E6E83C8A0203D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Love Songs Best 100 (2020) [MP3|320 Kbps] <Pop, Soul, R&B>
 magnet:?xt=urn:btih:D51195D05C31101EAA36A0F40AE860973F46B0C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Jazz Piano Essentials - Calming & Relaxing Jazz Piano (2015) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:7CBCB54896CF2EDA117B12BB841CC943CE791E97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - Лучшие Trance треки Ver.10 (2019) [MP3|320 Kbps] <Trance, Uplift
 magnet:?xt=urn:btih:BBBA2AD66FC60498E555AE4584C5B1FE2252915E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ VA - The Ultimate Prog & Power Experience 01-03 (2015) [MP3|320 кб/с]<Metal>
 ```bash
 magnet:?xt=urn:btih:502F68701A011F6CD6E1346923C6028EA0847871
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ VA - 100 Dance Halloween Episode (2015) [MP3|320 кб/с]<Club, Dance, Pop>
 magnet:?xt=urn:btih:4E8E500EDF6EF51341B93E57C897E1755A8D8E88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ VA - Дискотека 80-90 х По-Новому Зарубежный выпу
 ```bash
 magnet:?xt=urn:btih:115ED663C38E1C3BFD665DFACA016DD7EB9786F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ VA - Лучшие кавер-версии (часть 2) (2016) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:8F71C022CA51572E6A9276458E9F61A16AF1EE01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ VA - Лучшие кавер-версии (часть 1) (2016) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:45B133D19856056FF5859A49AADCD91444A9B2A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ VA - Top50: Tracks Deep House Ver.4 (2018) [MP3|320 Kbps] <Deep House, Tech Hous
 magnet:?xt=urn:btih:E655774C6887CDA70559E62E69E21A620A47543F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ VA - Vocal Trance Seduction Vol 6 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:99EBAC321C441FB5F6693B4F1BB6CDDFF05F4D1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ VA - Music For Sports Games: Hard Dance Party (2018) [MP3|320 Kbps] <Hard Dance,
 magnet:?xt=urn:btih:02AEC3BC7F8A1D515537D6779CA4F3ECBCE06D1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ VA - Absolute Busloops Tech Construction (2015) [MP3|320 кб/с]<Club, Progress
 magnet:?xt=urn:btih:0DCF17453DFB2AA58482581BCAE80FED830DD33C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254776   (370516) от 15.10.2018
-
-VA - Chill House: Deep Lovers Mix (2018) [MP3|320 Kbps] <Deep House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370516.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Free Pass - A Wild Wolf
-002. Urban Mode - Traffic House (Original Mix)
-003. Daniel Remì - Paris House (Original Mix)
-004. House Temperance - Blue Ridge(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 08:16:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E00CFB4735B0C1F28401821CC10CFC53D026CC7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

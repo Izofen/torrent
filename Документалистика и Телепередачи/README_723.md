@@ -1,3 +1,29 @@
+###  Публикация: 608708   (992222) от 27.01.2013
+
+Все, о чем мы мечтали / Alles wat we wilden / All we ever wanted (2010) IPTVRip
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_992222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы живем в мире неограниченных возможностей. Но когда возможности бесконечны, с чего начать? Фильм исследует жизнь четырех молодых перспективных людей. Успешные и амбициозные, они пытаются найти себя в этом мире. Они рефлексируют из-за своей несовершенности, пытаются противостоять стандартам, которые сами же себе установили. Оказывается, в таком многообразии возможностей молодые люди могут потерять мечту, цель...Жанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональный, студия "Лексикон"Продолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A132B1A97D86114E67C2DF8CE0390122F249B65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352983   (992323) от 17.01.2020
 
 Капитал в XXI веке / Capital in the Twenty-First Century (2019) WEBRip [H.264/1080p-LQ]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:4C12B15037C1B3101601CBF334E9246738CB142A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:4C12B15037C1B3101601CBF334E9246738CB142A
 magnet:?xt=urn:btih:46257570F846E34A27F931FFDD45152B383AF1A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:46257570F846E34A27F931FFDD45152B383AF1A9
 ```bash
 magnet:?xt=urn:btih:2CD3EE032D6E93F711F6F8487CB117045991DE69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:2CD3EE032D6E93F711F6F8487CB117045991DE69
 magnet:?xt=urn:btih:D330FE9D850619BC66C465E2B92BF9350583AE4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:D330FE9D850619BC66C465E2B92BF9350583AE4F
 ```bash
 magnet:?xt=urn:btih:52F8730E960CB36A7747574272B50AA4D18D9A40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:52F8730E960CB36A7747574272B50AA4D18D9A40
 magnet:?xt=urn:btih:2C7F14C159EB787C6F79943B30D5F070B4BD6394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:2C7F14C159EB787C6F79943B30D5F070B4BD6394
 ```bash
 magnet:?xt=urn:btih:BADB5412D148C2E3948499B1FAC5C2840F9BEECF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:BADB5412D148C2E3948499B1FAC5C2840F9BEECF
 magnet:?xt=urn:btih:EC711B1B2B7927C70ADA3262F0F2474191098B4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:EC711B1B2B7927C70ADA3262F0F2474191098B4F
 ```bash
 magnet:?xt=urn:btih:B4CF7B406B7CF3BA2B426B3649B6477592FBB9E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:B4CF7B406B7CF3BA2B426B3649B6477592FBB9E2
 magnet:?xt=urn:btih:00A630A78D82B9FD15D3858D8510CAC7E0B10657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:00A630A78D82B9FD15D3858D8510CAC7E0B10657
 ```bash
 magnet:?xt=urn:btih:95B4DCAA925F5202CF0166E7DA07354F805013B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:95B4DCAA925F5202CF0166E7DA07354F805013B4
 magnet:?xt=urn:btih:FE731F57A5D2193E644DCF076252834852DE10FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:FE731F57A5D2193E644DCF076252834852DE10FC
 ```bash
 magnet:?xt=urn:btih:A15099B4248703DC644D21DBC09F76A33A613BA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:A15099B4248703DC644D21DBC09F76A33A613BA3
 magnet:?xt=urn:btih:C35D5CB0BFA554BC707274C1068BBBCA5AD2555F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:C35D5CB0BFA554BC707274C1068BBBCA5AD2555F
 ```bash
 magnet:?xt=urn:btih:ACB9C85D0C6201E00FB455BEE56E4D0591088B11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:ACB9C85D0C6201E00FB455BEE56E4D0591088B11
 magnet:?xt=urn:btih:C058C28DB37BBF7C0E16261C2D9652BBEBEB6FF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:C058C28DB37BBF7C0E16261C2D9652BBEBEB6FF7
 ```bash
 magnet:?xt=urn:btih:60A7BF7E86BA9FA943F065823BCC462179579356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:60A7BF7E86BA9FA943F065823BCC462179579356
 magnet:?xt=urn:btih:BDED6B4576C213FEE4E8438FFCF53EF83BC887E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:BDED6B4576C213FEE4E8438FFCF53EF83BC887E9
 magnet:?xt=urn:btih:F0A22F43F99958BFBCF9FBA4D51964E4BCE022A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:F0A22F43F99958BFBCF9FBA4D51964E4BCE022A7
 ```bash
 magnet:?xt=urn:btih:D24E0A0C247D6956B261AAEEECF388E7E0154755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:D24E0A0C247D6956B261AAEEECF388E7E0154755
 magnet:?xt=urn:btih:B774FD205C1CC2B4B65D85014990AB9AF6DD78B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:B774FD205C1CC2B4B65D85014990AB9AF6DD78B9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:B774FD205C1CC2B4B65D85014990AB9AF6DD78B9
 ```bash
 magnet:?xt=urn:btih:EA74ABA69797F32F39218FD4C49D98EE5D16501F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:EA74ABA69797F32F39218FD4C49D98EE5D16501F
 magnet:?xt=urn:btih:FDCA01B163482CAE0F3865C3C3EB641316371033
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:FDCA01B163482CAE0F3865C3C3EB641316371033
 magnet:?xt=urn:btih:98475C0623C40F670F38EF1A0D1A05385D3CEE83
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605071   (995889) от 19.01.2013
-
-Контрольная закупка - Пельмени (18/01/2013) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Контрольная закупка - своеобразная потребительская энциклопедия.Товары народного потребления здесь тестируют эксперты, проверяя их соответствие государственным стандартам. Ничто не может ускользнуть от взгляда опытных профессионалов.Вкусовые качества продуктов питания, наоборот, тестируют не специалисты, а обычные покупатели, случайно оказавшиеся в магазине. Народная экспертиза строга, но справедлива.Главная интрига передачи – соревнование брендов. Наверняка каждый из нас ощущал на себе очарование имиджа известных торговых марок. Находясь под давлением рекламы раскрученных брендов, мы некритично воспринимаем качество продуктов питания, которые они предлагают.Жанр: ТелепередачаПродолжительность: 00:23:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91D10EEF80B08153DEC06599D15D983E7B8D3BBB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Akuma-kun: Youkoso Akuma Land e!! | Дьяволёнок (1990) [1990, Movie] WE
 magnet:?xt=urn:btih:B27BEE6C4C83607339C41F17E8F746434941E1EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:B27BEE6C4C83607339C41F17E8F746434941E1EA
 magnet:?xt=urn:btih:0B3389B879AE1E9700C2F140B03CCBC8C03560A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Opera One 106.0.4998.28 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:157AE628A7C74E8A0503CB2A7035606D482D00F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Atomic Freak - Nuclear Meltdown (2024) [MP3|320 Kbps] <Hard-Rock>
 magnet:?xt=urn:btih:BD8D10B67151EA424CA417A2A7BCB6D422AC1653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:BD8D10B67151EA424CA417A2A7BCB6D422AC1653
 ```bash
 magnet:?xt=urn:btih:85EBE86B2A4B9EB30718A15D232C3B05B16FE0A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Akuma-kun (1989) | Дьяволёнок (1989) [1989, Movie] WEBRip 1040p raw
 magnet:?xt=urn:btih:7577AE1BB262C84C61676598EAF7C36267D1F014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Blank & Jones - Relax (Edition Five) (2010) 2 CD [FLAC|Lossless|image + .cue] <E
 ```bash
 magnet:?xt=urn:btih:109F6110BD63D3F66021F3EA23738B6BE038E438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Vivaldi 6.5.3206.50 include standalone [Multi/Ru]
 magnet:?xt=urn:btih:335720E54DDA6842B97C1370EC38C1FDF7443172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:374B50BAFF94FC7C889E22A1EAFFA2FD8B9B1498
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:374B50BAFF94FC7C889E22A1EAFFA2FD8B9B1498
 magnet:?xt=urn:btih:3CAF602A0002746874D583010DA09E8D890F90C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:3CAF602A0002746874D583010DA09E8D890F90C1
 ```bash
 magnet:?xt=urn:btih:D47294A35C25B0D8E0B82CC35EC1947550E0A714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:D47294A35C25B0D8E0B82CC35EC1947550E0A714
 magnet:?xt=urn:btih:96418B640751E6545642935DBDD64BB2AC20D461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:96418B640751E6545642935DBDD64BB2AC20D461
 ```bash
 magnet:?xt=urn:btih:90A333C108FD19CBBD4060DBE85FBA605B7FB578
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:90A333C108FD19CBBD4060DBE85FBA605B7FB578
 magnet:?xt=urn:btih:5F944D18735D58D49C97BD0F9C33F4F68387C86D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Fates of Ort - изометрическая ролевая игра с элем�
 ```bash
 magnet:?xt=urn:btih:34A53E4F812D75ACC13FFC7E6BF4FCD8466677E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:34A53E4F812D75ACC13FFC7E6BF4FCD8466677E5
 magnet:?xt=urn:btih:18A904ADE92F0BDC9B2477C2CB8FE1B752F6D6D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:18A904ADE92F0BDC9B2477C2CB8FE1B752F6D6D2
 ```bash
 magnet:?xt=urn:btih:50BE92E4BC36F7CFE473DE078A2C740EC7989C7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:50BE92E4BC36F7CFE473DE078A2C740EC7989C7B
 magnet:?xt=urn:btih:1BC0131557E8422D385114FB1C6C6B3E6B734FD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:1BC0131557E8422D385114FB1C6C6B3E6B734FD6
 ```bash
 magnet:?xt=urn:btih:DC4218E0E565F1453224F8D2D4CDC4854C8A27B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:DC4218E0E565F1453224F8D2D4CDC4854C8A27B6
 magnet:?xt=urn:btih:ECA951DC6EBFA1E750F1BEE33838948124C05446
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:ECA951DC6EBFA1E750F1BEE33838948124C05446
 ```bash
 magnet:?xt=urn:btih:F7CFD0145400C9CA1F3BC2829C58031F332ABA2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ VA - The Rapsody Overture: Hip Hop Meets Classic (1997) [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:765C02618C9E497F1083B3303D798A18FFBC7DDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ VA - 80s Lost & Found (2023) [OGG Vorbis|480 Kbps] <Pop>
 magnet:?xt=urn:btih:706F4FA027BEE022593CE34A4F0CD547FFAF529B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ OZI: Карта Нижегородской области ТОПО 20xx год [
 ```bash
 magnet:?xt=urn:btih:46DAD939F69F91C580913DF65F920140E85EFFE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:46DAD939F69F91C580913DF65F920140E85EFFE8
 magnet:?xt=urn:btih:0402A1AD39A42199DC2D383E0F09D7256D0060E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 magnet:?xt=urn:btih:C6AB1C7D7A8EAD42BBD82D28D90658655B47171C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

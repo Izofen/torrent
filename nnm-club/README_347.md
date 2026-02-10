@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4A934F4F920343812289E52E02F0622A46CECFA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC: Хиросима / Hiroshima (2005) DVDRip [H.264] (серии 1-2 из 2)
 ```bash
 magnet:?xt=urn:btih:E7A082B8131B1CD86907318AE9E9C983826A3B53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ dotAGE - игра, где вы будете пошагово управлять 
 magnet:?xt=urn:btih:B6BA08FA91C972DC99EC2DB41E63A9CC2606D55B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:B6BA08FA91C972DC99EC2DB41E63A9CC2606D55B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ God Of Weapons (2023) [Ru/Multi] (1.5.65/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:E1507B172577C4F554636B3B59AA147BCD2FCB60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:E1507B172577C4F554636B3B59AA147BCD2FCB60
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:E1507B172577C4F554636B3B59AA147BCD2FCB60
 ```bash
 magnet:?xt=urn:btih:9FF70AA61C1721BD9D2F85A276AEECFB22FEBD7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:9FF70AA61C1721BD9D2F85A276AEECFB22FEBD7A
 magnet:?xt=urn:btih:B500668009E63E55BA67675F8510F2E2F72CE561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:B500668009E63E55BA67675F8510F2E2F72CE561
 ```bash
 magnet:?xt=urn:btih:04E8E383FB18529FB70D541DD2AA36873C1C6391
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ updated_july_2025_x64_dvd_f841fba5.iso
 magnet:?xt=urn:btih:FB03E3138A31956E5AB0512CE07E7A5BB7A84DFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:FB03E3138A31956E5AB0512CE07E7A5BB7A84DFD
 ```bash
 magnet:?xt=urn:btih:AC4FD837D1A56CE0BC4837DF63ABF92BAFE990F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:AC4FD837D1A56CE0BC4837DF63ABF92BAFE990F5
 magnet:?xt=urn:btih:DB04C057C541B72E6B7BE9D8C32EA51A51CAB504
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Lucy Dreaming (2022) [Multi] (2.0) License GOG
 magnet:?xt=urn:btih:5FED4406030F10567B1B875071233397821AB7F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:5FED4406030F10567B1B875071233397821AB7F5
 ```bash
 magnet:?xt=urn:btih:1F8381EB0199914DD982AF3C059BD82F58BB8F32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:1F8381EB0199914DD982AF3C059BD82F58BB8F32
 magnet:?xt=urn:btih:AE2F8D3F67CA80EB8120ECD23EC9E1950147BD26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:AE2F8D3F67CA80EB8120ECD23EC9E1950147BD26
 ```bash
 magnet:?xt=urn:btih:61B2949A7DA682063C21C75A787230F86A991851
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:61B2949A7DA682063C21C75A787230F86A991851
 magnet:?xt=urn:btih:9554F99138D8E24A55FD4F57BB06357476C938BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:9554F99138D8E24A55FD4F57BB06357476C938BA
 ```bash
 magnet:?xt=urn:btih:6C80307D45F18AF4E84E078381F21951F5E65653
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:6C80307D45F18AF4E84E078381F21951F5E65653
 magnet:?xt=urn:btih:8D3ABCCEBBD283B9A4F0F4C2DCCC9DF0F24B8E01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:8D3ABCCEBBD283B9A4F0F4C2DCCC9DF0F24B8E01
 magnet:?xt=urn:btih:1D9B3D56CCCB48607C9A8B0C86FB06C001286463
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Days Gone рассказывает историю Дикона Сент-Джон
 ```bash
 magnet:?xt=urn:btih:7B27F2E3A2C184458476870AC4F3E7262D56C067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:7B27F2E3A2C184458476870AC4F3E7262D56C067
 magnet:?xt=urn:btih:198DF1801E2E3D0517F5AB33C72C1988490F589B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Warhammer 40,000: Rogue Trader – это изометрическая роле�
 ```bash
 magnet:?xt=urn:btih:99009FA0A92CFD4B44B29534B0B394342171076D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:99009FA0A92CFD4B44B29534B0B394342171076D
 magnet:?xt=urn:btih:93F6A02C838A0D103CDAC69630C6F690D484E9FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.04.132116) Repack Let'sРlay [Sou
 magnet:?xt=urn:btih:1C60512D5A4C3654601D7ACD103B991799E8D43A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Steel Seed - захватывающая приключенческая экше�
 ```bash
 magnet:?xt=urn:btih:2DA9B14515F04261149BD83664C0B9E4CF59817A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

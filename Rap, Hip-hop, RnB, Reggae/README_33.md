@@ -1,3 +1,32 @@
+###  Публикация: 975442   (971764) от 15.01.2016
+
+The Weeknd - Beauty Behind the Madness (2015) [MP3|320 кб/с] <R&B, Soul>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Real Life
+02. Losers (feat. Labrinth)
+03. Tell Your Friends
+04. Often(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 01:05:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB85D60B29D2CD3D79F7CADFAE946BE884E53B45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 165909   (975909) от 15.01.2010
 
 Black Eyed Peas - The E.N.D. (2009) /Deluxe Edition (2CD)/ [FLAC|Lossless]<RnB/Swing, Conscious>
@@ -27,6 +56,8 @@ Black Eyed Peas - The E.N.D. (2009) /Deluxe Edition (2CD)/ [FLAC|Lossless]<RnB/S
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -61,6 +92,8 @@ Black Eyed Peas - The E.N.D. (2009) /Deluxe Edition (2CD)/ [FLAC|Lossless]<RnB/S
 magnet:?xt=urn:btih:0992218B0DAC2BD4EC9297964CB64CD729ABC4B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -85,6 +118,8 @@ Naughty Boy feat. Sam Smith - La La La (2013) CDS [FLAC|Lossless]<R'n'B, Pop>
 ```bash
 magnet:?xt=urn:btih:97D3E504FD8DDBE825FA5895D1C244B8AD70931E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -113,6 +148,8 @@ Lisa Fischer - So Intense (2013) [FLAC|Lossless|tracks + .cue] <RnB, Swing, Soul
 magnet:?xt=urn:btih:041804D2340D29137A0FA65B7117D7ECD325ECC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +176,8 @@ Lights Out (2000)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +212,8 @@ VA - Посвящение Михею [Трибьют] (2013) [MP3|320 кб/с]<H
 magnet:?xt=urn:btih:26248C64B505D9B9C7AD1CDB84B2FFB005CC54F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +247,8 @@ magnet:?xt=urn:btih:26248C64B505D9B9C7AD1CDB84B2FFB005CC54F7
 magnet:?xt=urn:btih:593C01AD1521DBB8A0618D4AFF96B51ECD4698CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +275,8 @@ Eminem - Music To Be Murdered By (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL]  <Hip-H
 ```bash
 magnet:?xt=urn:btih:88FD730C2CAA15B9B1C03C86DB7B780BACE889D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +305,8 @@ Mac Miller - Circles (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Rap>
 magnet:?xt=urn:btih:7E00248B71EBD1115891FE6E3ECADFE4B2EA33EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +333,8 @@ Eminem - Music To Be Murdered By (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:25FD0F877C26E0F85F9781222B7119006755504F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +363,8 @@ VA - RnB - The Solid Gold Collection (2020) [FLAC|Lossless|WEB-DL|tracks] <RnB, 
 magnet:?xt=urn:btih:BA5C6105F87C667279C83C34078452519687AB87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +391,8 @@ Eminem - Music To Be Murdered By (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:451A7DA1F97C138CD9DEB9F62E0C69393EE26E11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +421,8 @@ ATL - Кривой эфир (2019) [MP3|320 Kbps] <Hip-Hop>
 magnet:?xt=urn:btih:F657EF83911F614B85D3EB2E4512F25E5E892F42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +449,8 @@ Scylla & Sofiane Pamart - Pleine Lune 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Fr
 ```bash
 magnet:?xt=urn:btih:DDEFEC281233E04C64312BB45A80F8C57CB26719
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +479,8 @@ Scylla & Sofiane Pamart - Pleine Lune (2018) [FLAC|Lossless|WEB-DL|tracks] <Fren
 magnet:?xt=urn:btih:2AC286DC88DF7ACE42A68FC0683B1A7088646C66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +507,8 @@ Aswad - старейшая и возможно, самая успешная Бр
 ```bash
 magnet:?xt=urn:btih:73834D62A743FBB30CD27821CEFD2FAF1E95376A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +537,8 @@ magnet:?xt=urn:btih:73834D62A743FBB30CD27821CEFD2FAF1E95376A
 magnet:?xt=urn:btih:D7954667F298A6C78E21F9853E096402CA1DC688
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +565,8 @@ VA - 100 Greatest Rap Songs The Greatest Hip-Hop Tracks Ever (2020) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:99B990E9C50644CD4D250F2F5EB3CBF6D9644E40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +595,8 @@ Jah Khalib - Collection 6 Releases (2016-2021) [FLAC|Lossless|WEB-DL|tracks] <Ra
 magnet:?xt=urn:btih:0182DE544DB7C454A097052986534FB33D15857F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +623,8 @@ VA - Chillhop Essentials Summer 2021 [FLAC|Lossless|Web-DL|tracks] <ChillHop, Hi
 ```bash
 magnet:?xt=urn:btih:CBFEACA533CA1E02CF9384BA9CD63115E0C73AEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +653,8 @@ DMX - Exodus (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 magnet:?xt=urn:btih:E446783422E7EA733BEA8F5EFA67299046886E8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +681,8 @@ BOULEVARD DEPO, Jeembo - ОМОФОР (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:0DA5689C8B63F983BF8F61D3F3550EE90825A41C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +711,8 @@ magnet:?xt=urn:btih:0DA5689C8B63F983BF8F61D3F3550EE90825A41C
 magnet:?xt=urn:btih:C02F2FBA416C51E372516A3E32D40C7F8DCA9D50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +739,8 @@ magnet:?xt=urn:btih:C02F2FBA416C51E372516A3E32D40C7F8DCA9D50
 ```bash
 magnet:?xt=urn:btih:1EADBE58851F4BC26BD617EB1E384E379045E7C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -692,32 +769,7 @@ magnet:?xt=urn:btih:1EADBE58851F4BC26BD617EB1E384E379045E7C3
 magnet:?xt=urn:btih:313DB8FEED0B023D1ABC696A1248F72B112F9B8E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467913   (1017413) от 06.05.2021
-
-Ka - Descendants of Cain (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Abstract Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Now and Then (3:34)
-02. Unto the Dust (3:07)
-03. Patron Saints (2:35)
-04. My Brother's Keeper (2:50)(   Читать дальше...   )Производство: Iron Works RecordsЖанр: Hip-Hop, Abstract HopПродолжительность: 00:32:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75945BCAA2B2B3FCD0762DEA4E691064ABB7F6C6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 magnet:?xt=urn:btih:0D2368F6BD12534D8DE73764A8D58676B41E0DE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Draw.io 24.6.4 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:743A8EF77ACC777AAD78247C0636641D2F533138
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ EarthView — это динамические обои для рабочего �
 magnet:?xt=urn:btih:C518A7CA559C07BE2304E84E2C14C30C694E2E6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:357167AABFA35EB7537D797DCBF81C7002554A29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ MediaHuman YouTube to MP3 Converter 3.9.9.92 (0704) RePack (& Portable) by TryRo
 magnet:?xt=urn:btih:18ECBB7815720BA315420D6AB4D9A81FE2E07C56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:833F577E2AE2A9B4457D1336238BDF5E21CF25C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ MediaHuman YouTube to MP3 Converter 3.9.9.92 (0704) RePack (& Portable) by elchu
 magnet:?xt=urn:btih:82234CB7AE68F26AA0E136AA2E4B178BE631BACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Music Collection - неплохая программа для создания �
 ```bash
 magnet:?xt=urn:btih:88FA42E023844379FBA109248C3A289BDA83E303
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:4A990A724DD254C10A379AF14B9D45D1F4E87643
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:A658896949A3F92541C06A65397A09235D4062B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ R-Studio Network 9.4 Build 191332 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:424BD1120A5E300280AD0F917177A1B65DF86159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Radiant Photo - это программа для редактирования ф
 ```bash
 magnet:?xt=urn:btih:00D86327062D719B8AB278EA1C2E482BD94FBA17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Perfectly Clear — приложение, которое позволяет вс
 magnet:?xt=urn:btih:F3913FEAC99DC59865210FDE8A0844C6781D4D1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ R-Wipe & Clean - программа для невосстановимого уд
 ```bash
 magnet:?xt=urn:btih:FCD782E25D12EC1E34520C21E2D49C48CB3BE5F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ reaConverter Pro - мощный инструмент для тех, кто им�
 magnet:?xt=urn:btih:BC6EAC1069F88C82A0E7514240881213E450B2F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ RJ TextEd - мощный текстовый редактор с большим �
 ```bash
 magnet:?xt=urn:btih:2D94E27C371DA9E0AC42CC44A7935D158282152B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Steinberg - WaveLab 12 Pro 12.0.20 (x64) [Multi]
 magnet:?xt=urn:btih:415A62C61E5309B24FF35F5CA27DD58ED3E49A0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:CFA73D01E0C092F030611251AFF28272A7BC971B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ R-Studio - основанная на новейшей уникальной те
 magnet:?xt=urn:btih:69860AEE2AFAC341DA0F711D29C8545749109F79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 magnet:?xt=urn:btih:79128EB597C44ED99D2B5A8A1129A8E9C1FB93FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ XYplorer – удобный многовкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:B8F30FBE4027BCCB333FCB4E6666E781A126E858
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 magnet:?xt=urn:btih:65B55E7933B55F34B17B17E3BD5258550D7E5011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Soft Organizer Pro 9.51 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9E90790E39BCFF36C1876581E1A35331078A855E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ FolderSizes 9.6.490 Enterprise [En]
 magnet:?xt=urn:btih:115FC38A36CB3EB3AA599F4B39052F2EE859C679
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Skype - бесплатная программа для текстового, г�
 magnet:?xt=urn:btih:94A57649FD4846CD478E67B807462D282CC86E11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ R-Wipe & Clean - программа для невосстановимого уд
 ```bash
 magnet:?xt=urn:btih:F0E3FB59C0C4A4D7FA0AEFCD4307C7EA502E40C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

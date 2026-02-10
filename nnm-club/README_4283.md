@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:44F57495F019A4FE7B155B587B699005A0325006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:44F57495F019A4FE7B155B587B699005A0325006
 ```bash
 magnet:?xt=urn:btih:F551B2A2EE05203B5E3B62C27740C06204E569DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:F551B2A2EE05203B5E3B62C27740C06204E569DE
 magnet:?xt=urn:btih:6D8762CC53BF0B23D7EBCB24ADF634F1D8B85A61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:6D8762CC53BF0B23D7EBCB24ADF634F1D8B85A61
 magnet:?xt=urn:btih:6D7DCBEF64B03B750CC0EC77F4411B5EB5B9198C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:6D7DCBEF64B03B750CC0EC77F4411B5EB5B9198C
 ```bash
 magnet:?xt=urn:btih:32CFA9F881D739F3A9CE9E6EED58EB99722BB41C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:32CFA9F881D739F3A9CE9E6EED58EB99722BB41C
 magnet:?xt=urn:btih:688D553BB36BD472EFBECCFDBA6E25A5E37C1B43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:688D553BB36BD472EFBECCFDBA6E25A5E37C1B43
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Knife - Heaven Into Dust (2023) [FLAC|Lossless|image + .cue] <Speed Metal, Black
 magnet:?xt=urn:btih:34DC0421C532649BC8040339B2DAF9069F52E7C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ Night In Gales - Dawnlight Garden (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 magnet:?xt=urn:btih:FD3CF4D7197366B9F63A4FA2336C97C33D029C6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ The Basement Collection — это сборник, включающий в се�
 ```bash
 magnet:?xt=urn:btih:344650D0483F66ABD82078468034A583AC2C92B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Night In Gales - The Last Sunsets (2018) [FLAC|Lossless|WEB-DL|tracks] <Melodic 
 magnet:?xt=urn:btih:B79587920325D7FA732F067BC65B741B4D55BC9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ Solitary - The Diseased Heart of Society (2017) [FLAC|Lossless|image + .cue] <Th
 magnet:?xt=urn:btih:09C236F1542ABC53C6ECCB33E80C9DF18943C956
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:09C236F1542ABC53C6ECCB33E80C9DF18943C956
 ```bash
 magnet:?xt=urn:btih:F2CD1882D3AC1DAFD884A29A5B14A1F41734A5B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Solitary - Requiem (2008) [FLAC|Lossless|image + .cue] <Thrash Metal>
 magnet:?xt=urn:btih:E8CCE4A85B912EAFDCAD142122A02717239F83C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:E8CCE4A85B912EAFDCAD142122A02717239F83C0
 ```bash
 magnet:?xt=urn:btih:7E60D0EB784789DF5468E864C66497C2E5A8A428
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:7E60D0EB784789DF5468E864C66497C2E5A8A428
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:7E60D0EB784789DF5468E864C66497C2E5A8A428
 magnet:?xt=urn:btih:11BD7C7CD876FAFC6ADD9F4C1B7D8560703A59B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:11BD7C7CD876FAFC6ADD9F4C1B7D8560703A59B7
 ```bash
 magnet:?xt=urn:btih:B098D89A63DB3A83CCD78FD1B04A1782EACD7803
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:B098D89A63DB3A83CCD78FD1B04A1782EACD7803
 magnet:?xt=urn:btih:0C0346C87429E82A156BF92B447A32E2AB666578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:0C0346C87429E82A156BF92B447A32E2AB666578
 magnet:?xt=urn:btih:1DED42500614FCAE30A159C76702DE230767C0AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:1DED42500614FCAE30A159C76702DE230767C0AC
 ```bash
 magnet:?xt=urn:btih:7C46266D314C5157A9D3B503EA87FEB78616B0F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ VPN Tunnel
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ VPN Tunnel
 ```bash
 magnet:?xt=urn:btih:83FC3FF135101B8EC5C79E84F7561AE6276C8BAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ magnet:?xt=urn:btih:83FC3FF135101B8EC5C79E84F7561AE6276C8BAE
 magnet:?xt=urn:btih:E4F0B6A9178BC703F3A62B9C76A312F5A768DF17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:E4F0B6A9178BC703F3A62B9C76A312F5A768DF17
 magnet:?xt=urn:btih:6F9375CC0C20DCBC7A5967EDBF2908EF7F0AAC38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ SiSoftware Sandra - системный анализатор для 32-х и 64-�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

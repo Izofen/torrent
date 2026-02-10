@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2F62D284A617821583A0452806170FA127D79F5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Feuerschwanz - Knightclub (2025) Deluxe Version, 2025, Napalm Records Handels Gm
 magnet:?xt=urn:btih:410C9BB79B00317ACE9E090950882357C2121406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:410C9BB79B00317ACE9E090950882357C2121406
 ```bash
 magnet:?xt=urn:btih:A564E31AE1735D812469AC8D1BBDF5D51C98CA6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Hardwell played:
 magnet:?xt=urn:btih:DE698948C1E87727AE8E7660827A277BF951DC82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:DE698948C1E87727AE8E7660827A277BF951DC82
 magnet:?xt=urn:btih:36441831927CA9E2E3FC0501CF801FE2BBCC7150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:36441831927CA9E2E3FC0501CF801FE2BBCC7150
 ```bash
 magnet:?xt=urn:btih:C77F348FD17137C966BF504FAECA3952657EC1C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ GAEREA - Coma (2024) [FLAC|Lossless|image + .cue] <Black Metal>
 magnet:?xt=urn:btih:E3431A328356E61C27962424F30B03CB0EA0CB65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:E3431A328356E61C27962424F30B03CB0EA0CB65
 ```bash
 magnet:?xt=urn:btih:AA988C333C1BA6E5E241F3D25B58DCD1949851DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:AA988C333C1BA6E5E241F3D25B58DCD1949851DF
 magnet:?xt=urn:btih:30A0FFCFB5CFA1D68826FF2CAE1BFBF20AE22011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:30A0FFCFB5CFA1D68826FF2CAE1BFBF20AE22011
 ```bash
 magnet:?xt=urn:btih:12F643FF6EC352D16E9BC86CB257463A24A3A99F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Feuerschwanz - Knightclub (2025) Deluxe Version, 2025, Napalm Records Handels Gm
 magnet:?xt=urn:btih:7BEA6583212E912570CD73B22AC4EF3EF2E1B4DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ Rise Against - Ricochet (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:C631BB4D9BC95121602BECB24589150CE7B71221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ Myrath - Reflections: Best Of (2025) [FLAC 24/44.1, 24/48|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:0729CE719B56F28D8C68BE3F697EF3E006239BE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ Scott LaFaro - Deep In A Dream: Live In 1958 (2012) Pacific Delights [FLAC|Lossl
 magnet:?xt=urn:btih:01AE875989B45A189A29B10BDF52262289DAF0F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:01AE875989B45A189A29B10BDF52262289DAF0F4
 ```bash
 magnet:?xt=urn:btih:D6DD903C767162470D609F67C8DB801BB86B1398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:D6DD903C767162470D609F67C8DB801BB86B1398
 ```bash
 magnet:?xt=urn:btih:36C20F0E3C7245E6ECB2BDCDC5ABB247F011896A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ VA - Ori Uplift - Uplifting Only Episode 654 (2025) [MP3|320 Kbps] <Trance, Upli
 magnet:?xt=urn:btih:0B6E1D5E89F7567EB1A0B08020ED3F6A62696947
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +494,8 @@ VA - Summer Is Calling - Summer Is Calling, Vol. 1 (2025) [MP3|320 Kbps] <House,
 magnet:?xt=urn:btih:7000E757448400F62DCD6F8B345F236F4D5AD318
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ magnet:?xt=urn:btih:7000E757448400F62DCD6F8B345F236F4D5AD318
 ```bash
 magnet:?xt=urn:btih:E584ED63F0D184E85A2A1C16178717317CB034D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:E584ED63F0D184E85A2A1C16178717317CB034D7
 magnet:?xt=urn:btih:EF4268484A25C455885FE0ED8FF1D8A6B7C372A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:EF4268484A25C455885FE0ED8FF1D8A6B7C372A8
 magnet:?xt=urn:btih:04AC80DD662203E28473F9B5562E0E45C3E346A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ magnet:?xt=urn:btih:04AC80DD662203E28473F9B5562E0E45C3E346A2
 ```bash
 magnet:?xt=urn:btih:4985FE83A0C4A84A2380F95E0AB6EF997A07943F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ Deftones - Private Music (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Nu-Metal, S
 magnet:?xt=urn:btih:312185FD02C38ECE339DF2D88BA2D037814D851E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:312185FD02C38ECE339DF2D88BA2D037814D851E
 ```bash
 magnet:?xt=urn:btih:942F6696C4721B5147F62B800D4E3E30AE07E613
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ magnet:?xt=urn:btih:942F6696C4721B5147F62B800D4E3E30AE07E613
 ```bash
 magnet:?xt=urn:btih:BF3E403E6F286009BF91AB079E1BA3CD259781F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +708,8 @@ magnet:?xt=urn:btih:BF3E403E6F286009BF91AB079E1BA3CD259781F6
 ```bash
 magnet:?xt=urn:btih:6470C5BE16B3A1873A42CFC3B43E307CB663EFA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ MonsterLessons | Разработка интернет-магазина на Rea
 magnet:?xt=urn:btih:56113B25F3C7ECB31977B2F1657DCF125C887304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ ITVDN | Swift Starter (2017) PCRec [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:651A1F3E8EB1AC09FA6E3E0C02EEBDAB3BB608FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ ITVDN | Программирование на платформе UWP (2017) PCRe
 magnet:?xt=urn:btih:2FA54CD45A14E0D0AD4A20619FA83282DE416611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Java Course | Java EE. Профессиональная разработка (20
 magnet:?xt=urn:btih:D4EF02A5FC0B16E6E9218BE9435A1D2DF8F721FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:D4EF02A5FC0B16E6E9218BE9435A1D2DF8F721FD
 ```bash
 magnet:?xt=urn:btih:55B359C0E2956C480D04974FD1A4561732CEA01F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:55B359C0E2956C480D04974FD1A4561732CEA01F
 magnet:?xt=urn:btih:491A659B88748841988CD4867DB80A61EEC434F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Python-разработчик создаёт бэкенд сайтов: мозг
 ```bash
 magnet:?xt=urn:btih:7BE666E8033E226762070980EF4F7221E1780C3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:7BE666E8033E226762070980EF4F7221E1780C3A
 magnet:?xt=urn:btih:7032DEE53187722FED49355860D799913D572452
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ ITVDN | Решение практических задач на C++ (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:3E2B1C43141588A47466D4AA33FDFC33797E65BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ HTML Academy | Интенсивный онлайн-курс «Продвинут
 magnet:?xt=urn:btih:9C99EED0FC701751E9CECA0A684A2FB14E81E4C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:9C99EED0FC701751E9CECA0A684A2FB14E81E4C0
 ```bash
 magnet:?xt=urn:btih:0B7D1338C1B51B8DB28BA3A795C9BAB9968B04B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Django - это самый популярный фреймворк для раз
 magnet:?xt=urn:btih:990A80AB03534CC6F884BA2B75BB5BCE5174C0D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ ASP.NET Core SignalR - это библиотека с открытым исхо�
 ```bash
 magnet:?xt=urn:btih:A7EF556DEB5B697F8E28653638DE8CF2B4098003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:A7EF556DEB5B697F8E28653638DE8CF2B4098003
 magnet:?xt=urn:btih:A564A1CA9148085829CD713B885578CDB484F218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ ITVDN | SQL Essential (2019) PCRec
 ```bash
 magnet:?xt=urn:btih:C4F79F2A391BEA1DF8BDA090F199B218B3F066D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ STL (Стандартная библиотека шаблонов) - библи�
 magnet:?xt=urn:btih:18374BE2CD138D106AE82F5E722CA0B0392A781F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ NFP | Цикл вебинаров «Переход с 1С:УПП на 1С:ERP» 
 magnet:?xt=urn:btih:823465C764AFBAEB87B0F62058EC8CD54D3EC321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ Lynda.com | Trapcode Particular Essential Training [Sep 27, 2012] PCRec [En]
 ```bash
 magnet:?xt=urn:btih:9C07F9EAB7F488EB72C4D5BD347582A32238960F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:9C07F9EAB7F488EB72C4D5BD347582A32238960F
 magnet:?xt=urn:btih:79DB3A1DA511B01270E822EC9CC221A2D2C0C8D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ React (или React.js) - это современная популярная Jav
 ```bash
 magnet:?xt=urn:btih:48CB88B28F0E2DCF739BD2E60250AEEE4094F704
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ Jeffrey Way | Perfect Workflow in Sublime Text 2 [2012] PCRec [En]
 magnet:?xt=urn:btih:84A6AFC8D9BE0ACF72719A3E448C74B77F1E445A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ Oleg Lav | Загрузка  WinPE 10-8 Sergei Strelec с жесткого ди�
 magnet:?xt=urn:btih:88BA3719F9AF35E331BAD8B726FD7B8BD99600D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ ITVDN | Тестирование ASP.NET Core MVC приложений (2020) PC
 ```bash
 magnet:?xt=urn:btih:4CE8AAC29FF5CCF0B3E4EB51BD1E063FCA8A1370
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ Laracasts | Skills (2020) PCRec [En]
 magnet:?xt=urn:btih:B9CEB8C0BA570A60E75CBE0990B05FCF41E94E4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:B9CEB8C0BA570A60E75CBE0990B05FCF41E94E4B
 ```bash
 magnet:?xt=urn:btih:876498D0C4353744708543109F1B133AC44956AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:876498D0C4353744708543109F1B133AC44956AF
 ```bash
 magnet:?xt=urn:btih:ADEFBEC74ECAF04BFCDED12D8FA5CC80D459E865
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

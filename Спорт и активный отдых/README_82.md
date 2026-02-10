@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3C7834961916D9BFB35C89DAFCFB8BA0BC355EEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:3C7834961916D9BFB35C89DAFCFB8BA0BC355EEE
 ```bash
 magnet:?xt=urn:btih:AA5F05FFF55834B15E369482E1AF5F04DABE4D12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:AA5F05FFF55834B15E369482E1AF5F04DABE4D12
 magnet:?xt=urn:btih:F4C4F9C6E14D40C47E5F9324A9041B00B05DFFBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ MotoGP. Этап 21 из 22. Гран-при Португалии. Спринт 
 ```bash
 magnet:?xt=urn:btih:BE92D025370B96B2DA0D0DDC343DE16B6108AC3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ MotoGP. Этап 21 из 22. Гран-при Португалии. Квалиф�
 magnet:?xt=urn:btih:976378F86F7D499ECBA7CA43AAF7DFB373613C5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ MotoGP. Этап 21 из 22. Гран-при Португалии. Гонка (0
 ```bash
 magnet:?xt=urn:btih:15EE90027A4A2C584D39CED090133C959F88B8EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:15EE90027A4A2C584D39CED090133C959F88B8EA
 magnet:?xt=urn:btih:B6260EB6058D8317B3D3ED1CB770B3DC4BE51AA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:B6260EB6058D8317B3D3ED1CB770B3DC4BE51AA1
 ```bash
 magnet:?xt=urn:btih:89AF7DFC09B3F84853717E4B86D99D335A388407
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:89AF7DFC09B3F84853717E4B86D99D335A388407
 magnet:?xt=urn:btih:4EDE5E0BD744E41874A375A5A910EC1D8E3578CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:4EDE5E0BD744E41874A375A5A910EC1D8E3578CF
 magnet:?xt=urn:btih:24CE6799EFAE4D251EB150FB8AC30115F999598B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ magnet:?xt=urn:btih:24CE6799EFAE4D251EB150FB8AC30115F999598B
 ```bash
 magnet:?xt=urn:btih:1BF1ABCC12A7651802A2758CAAD8845FFB43CDE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:1BF1ABCC12A7651802A2758CAAD8845FFB43CDE4
 magnet:?xt=urn:btih:07601E5445E8BF7C7F0B39227FCC43B08B16C217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:07601E5445E8BF7C7F0B39227FCC43B08B16C217
 ```bash
 magnet:?xt=urn:btih:15FAE03DCC3D30293A17720D332A6923F0CAD219
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:15FAE03DCC3D30293A17720D332A6923F0CAD219
 magnet:?xt=urn:btih:356E4CA83D31F3FBB4496575BD2D6A4D0790C049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:356E4CA83D31F3FBB4496575BD2D6A4D0790C049
 ```bash
 magnet:?xt=urn:btih:1F0E6A8658220876CDF828985D12A46BB89BEFEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:1F0E6A8658220876CDF828985D12A46BB89BEFEB
 ```bash
 magnet:?xt=urn:btih:67E3ED5FE5C7EF85DF93A4D1329047C49B7D79B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:67E3ED5FE5C7EF85DF93A4D1329047C49B7D79B9
 magnet:?xt=urn:btih:9F60A2C03723BED862F3F261E16E65386342F2AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:9F60A2C03723BED862F3F261E16E65386342F2AA
 magnet:?xt=urn:btih:F4AEBE89F4291F303DA3F6FD73AB8B5F1EDA2D66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ MotoGP. Этап 03. Гран-при США. Гонка (16.04.2023) WEBRip [H.2
 ```bash
 magnet:?xt=urn:btih:F18E28A827037C89CDC261A84FE035FADBE3AA04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ MotoGP. Этап 03. Гран-при США. Спринт (15.04.2023) WEBRip [H
 magnet:?xt=urn:btih:2F8BCAC1D9BD9DF01F333A8A80BC2CF8FC58E7F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:2F8BCAC1D9BD9DF01F333A8A80BC2CF8FC58E7F3
 ```bash
 magnet:?xt=urn:btih:633962644BDBACE5DCA840BACC754044BDFEEDBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:633962644BDBACE5DCA840BACC754044BDFEEDBB
 magnet:?xt=urn:btih:571B2DE532E71A5FFC0F986F52917C446CB69CFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:571B2DE532E71A5FFC0F986F52917C446CB69CFB
 ```bash
 magnet:?xt=urn:btih:DB6B3AB7BDD89FAF8C0FF92A0C83BB3FEC656718
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ MotoGP. Этап 22 из 22. Гран-при Валенсии. Спринт (15.
 magnet:?xt=urn:btih:35C702D062F1E03EFADAB8504DAE1D04E6F18139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ MotoGP. Этап 22 из 22. Гран-при Валенсии. Квалифик�
 magnet:?xt=urn:btih:6228897B98B12C2F33C034AEDB59C88FD1364C2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:6228897B98B12C2F33C034AEDB59C88FD1364C2C
 ```bash
 magnet:?xt=urn:btih:447A8637B831BE8EA6D7A436BD967AB0EFB21971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

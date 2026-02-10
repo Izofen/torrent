@@ -1,3 +1,29 @@
+###  Публикация: 611797   (988070) от 31.01.2013
+
+Без обмана. Чашка бодрости (30.01.2013) IPTVRip
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_988070.jpg" />
+</div>
+
+
+###  Подробнее
+
+На банках и упаковках с кофе мы всегда видим надпись "натуральный". Но с зёрнами, которые прибыли к нам из Индии и Эфиопии, в России происходят чудесные метаморфозы…Чем травят себя граждане по утрам, думая, что заряжаются бодростью? Что на самом деле находится внутри капсул для кофемашин? И можно ли сегодня пить растворимый кофе?Жанр: Документальный, ТелепередачаПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EDBB1B7182CCF173B32CD83E1C4C3AD6D27CD2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 610856   (988171) от 31.01.2013
 
 Болезни века. Кто кого? (28.01.2013) SATRip
@@ -22,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:A71B33D8B7D68863E80D734A488A84746735A1F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +76,8 @@ magnet:?xt=urn:btih:A71B33D8B7D68863E80D734A488A84746735A1F7
 ```bash
 magnet:?xt=urn:btih:67C60096447BED7DB6050379565718BFD860E1F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +106,8 @@ magnet:?xt=urn:btih:67C60096447BED7DB6050379565718BFD860E1F6
 magnet:?xt=urn:btih:A1792CEB14FD2D5C44681AF3035861516E369AE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +131,8 @@ magnet:?xt=urn:btih:A1792CEB14FD2D5C44681AF3035861516E369AE3
 ```bash
 magnet:?xt=urn:btih:6E04F6BBA8C93FF528B6B57A363B3DE656E76929
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +158,8 @@ magnet:?xt=urn:btih:6E04F6BBA8C93FF528B6B57A363B3DE656E76929
 magnet:?xt=urn:btih:DCF7FF4BD60D6F5AD655965AC56666C662E314DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +183,8 @@ magnet:?xt=urn:btih:DCF7FF4BD60D6F5AD655965AC56666C662E314DE
 ```bash
 magnet:?xt=urn:btih:A5826D38DC96AF476877374FF97EFEB080850B41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +210,8 @@ Chef's Table goes inside the lives and kitchens of six of the world's most renow
 magnet:?xt=urn:btih:8B6868DCC1C44340CCA0DAF6B1619D103E8D52A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:8B6868DCC1C44340CCA0DAF6B1619D103E8D52A4
 ```bash
 magnet:?xt=urn:btih:37E283FDEE0AAA0F3E4222BAB8221CB60C498A71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +262,8 @@ magnet:?xt=urn:btih:37E283FDEE0AAA0F3E4222BAB8221CB60C498A71
 magnet:?xt=urn:btih:29901120E94B211430ECCA3A07DB34A093EB9987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:29901120E94B211430ECCA3A07DB34A093EB9987
 ```bash
 magnet:?xt=urn:btih:652E47BC074EBEFF17E7835EDC2FBD9CA754BE5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:652E47BC074EBEFF17E7835EDC2FBD9CA754BE5A
 magnet:?xt=urn:btih:18761D5651F887188FCA33DD040C43C690AFB088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:18761D5651F887188FCA33DD040C43C690AFB088
 ```bash
 magnet:?xt=urn:btih:4FE77ED59492349979575A5A36993248D5FEF735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:4FE77ED59492349979575A5A36993248D5FEF735
 magnet:?xt=urn:btih:BEBA719FDD4D9630D0E8D643DAEE3B5E98482AE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:BEBA719FDD4D9630D0E8D643DAEE3B5E98482AE1
 ```bash
 magnet:?xt=urn:btih:DCC56DD0E6D4D3DC34AAB8E36CB7803155CDD593
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:DCC56DD0E6D4D3DC34AAB8E36CB7803155CDD593
 magnet:?xt=urn:btih:44A3965A9392311D3A93F837D3F8693699956A1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:44A3965A9392311D3A93F837D3F8693699956A1B
 ```bash
 magnet:?xt=urn:btih:07EC3A6B17B431A39E63945511FFDBA165C2F62C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:07EC3A6B17B431A39E63945511FFDBA165C2F62C
 magnet:?xt=urn:btih:9572E8448EF56A969B5CB5091678B91C492DC4A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:9572E8448EF56A969B5CB5091678B91C492DC4A2
 ```bash
 magnet:?xt=urn:btih:4B44EC5E3241400FC44AEDF7D9B19C1235ED3D6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:4B44EC5E3241400FC44AEDF7D9B19C1235ED3D6F
 magnet:?xt=urn:btih:2CCDE498F7748CCC4E1BBC0B11F5E8602D4ACF43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:2CCDE498F7748CCC4E1BBC0B11F5E8602D4ACF43
 magnet:?xt=urn:btih:FB26DBB6B91694804D23CA6826576D080322B87C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:FB26DBB6B91694804D23CA6826576D080322B87C
 ```bash
 magnet:?xt=urn:btih:FA98372CAA447B1D919856835C6D82FF5DBE9F3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:FA98372CAA447B1D919856835C6D82FF5DBE9F3D
 magnet:?xt=urn:btih:64DDBCD281E0F5F794DD742EA8E7EC3F3222E6D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:64DDBCD281E0F5F794DD742EA8E7EC3F3222E6D4
 magnet:?xt=urn:btih:178182B942E381C7439F96C3E8A921754831CDDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:178182B942E381C7439F96C3E8A921754831CDDD
 ```bash
 magnet:?xt=urn:btih:8DD4B24A821347E2476086289FC4BBFCF9CD1690
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:8DD4B24A821347E2476086289FC4BBFCF9CD1690
 magnet:?xt=urn:btih:106FEAB2F45C5E541D6CD7B9F704C17331CABEBB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608708   (992222) от 27.01.2013
-
-Все, о чем мы мечтали / Alles wat we wilden / All we ever wanted (2010) IPTVRip
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_992222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы живем в мире неограниченных возможностей. Но когда возможности бесконечны, с чего начать? Фильм исследует жизнь четырех молодых перспективных людей. Успешные и амбициозные, они пытаются найти себя в этом мире. Они рефлексируют из-за своей несовершенности, пытаются противостоять стандартам, которые сами же себе установили. Оказывается, в таком многообразии возможностей молодые люди могут потерять мечту, цель...Жанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональный, студия "Лексикон"Продолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A132B1A97D86114E67C2DF8CE0390122F249B65
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Art And Shock, Евгения Тумина и др. | Визуализация �
 magnet:?xt=urn:btih:A8A39E8C5864B244F64D6286BE0DDBAE35993370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Udemy, Илья Фофанов, Валерий Павликов | Изучаем
 ```bash
 magnet:?xt=urn:btih:8B3C17ED0790C55D224394776A16520DB9E20255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:8B3C17ED0790C55D224394776A16520DB9E20255
 magnet:?xt=urn:btih:7C074D9503C4B15E989C5A5E31403ADCEA23EA16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Hype4 Academy it`s an educational platform with both paid and free content for d
 magnet:?xt=urn:btih:2CDAB452E48B5D8C86886F7AA9C49076252A22E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Laravelcreative.ru | Laravel 9: Базовый подробный курс (2023
 ```bash
 magnet:?xt=urn:btih:511A31B7D756E91D32217BD8804628F31834ACA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:511A31B7D756E91D32217BD8804628F31834ACA3
 magnet:?xt=urn:btih:85EC6A1BADB91BE64AF394790E6A36B504C67C21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ Systems.Education, Анна Вичугова | BPMN для людей: осно�
 ```bash
 magnet:?xt=urn:btih:E5D3F4BA675036D102E96AD27C626AD41146AE39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +218,8 @@ Proprofiling, Алексей Филатов | Энциклопедия мани�
 magnet:?xt=urn:btih:ABEBB0B21FF7205C92D2BD3E9D463794BC0743BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ The first module covers source control and project initiation, including creatin
 ```bash
 magnet:?xt=urn:btih:5223D6B5B6435B5C1AA18E2F4C3E6379CE4DE51A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ SchoolHomesPro, Александр Кузнецов | Отопление, вод
 magnet:?xt=urn:btih:B2B9EFA27DA1CF0123BCC9668D612FDDECC6EC6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +303,8 @@ Thinknetica Pro, Анна Буянова | Старый Добрый Код: к�
 magnet:?xt=urn:btih:AED485B8898C9924A138F58ADA0D46CB4E27987D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ magnet:?xt=urn:btih:AED485B8898C9924A138F58ADA0D46CB4E27987D
 ```bash
 magnet:?xt=urn:btih:E689BCA9E2A4C3C1B5A4BF2B92BB0E5823DFC98B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ All code examples in the course are written in Java but that's doesn't mean you 
 magnet:?xt=urn:btih:387B5DBA87FE8FD7D2F2107323922DA2D7494ED6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ Yan Cui | AppSync Masterclass (Premium) (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:FE322C8065D24696055EB3F6379B96C83E47059A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ MographPlus, Kamel Khezri | The Ultimate Introduction to Redshift 3 and 3.5 For 
 magnet:?xt=urn:btih:176947930479A91585445473E89C0146EA36C714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ MographPlus, Kamel Khezri | The Ultimate Introduction to Arnold 6 and 7 for Cine
 ```bash
 magnet:?xt=urn:btih:A29A3D414C1A88BEB480C0D23D92FC855736796F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ XYZ School, Кирилл Золовкин | Пайплайн разработк�
 magnet:?xt=urn:btih:4DE5ACD8537C6D16E7E384E97EE142D28B941FB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ FastAPI ворвался на веб-сцену Python. Фактически, о
 magnet:?xt=urn:btih:E68B0A20B381FA9C2F4829F104249245D83408B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ Udemy, Ines Ivanova-Kenova | Complete FastAPI REST course + AWS + Emails + Payme
 ```bash
 magnet:?xt=urn:btih:99B45A6D449043A3FB96637D6C1CB7E52F219F0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ Amy Dutton | Everything Svelte (Complete package) (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:B41723F6CC9E50E67777A9B2836835A3FEE9E543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ Blender Guru, Andrew Price | The Architecture Academy (Blender 2.6-2.7) (2014) P
 ```bash
 magnet:?xt=urn:btih:4494046688DBF4E433734FFCEE6799C6CE99279E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +597,8 @@ OTUS, Александр Ключев | C++ Developer. Professional. Углуб�
 ```bash
 magnet:?xt=urn:btih:F8F3ED3DD14335A4C91592BDD2D605A1F5D6C729
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ Fillthegaps, Яковлева Диана | Многопоточное прогр
 magnet:?xt=urn:btih:E3F6AFF12896568915C09D2135ADC3D2FE5AF48B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +656,8 @@ QA.GURU, Артём Eрошенко, Aлексей Виноградов, Ром�
 magnet:?xt=urn:btih:B7478FC62D8B4A479E7B0E5946CD22261A68BFF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ Udemy, Dzianis Matveyenka (DMdev) | Computer Science on Java for Beginners (2023
 ```bash
 magnet:?xt=urn:btih:86A4B4590119969666ED6AE1D73C958A08537DB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +709,8 @@ magnet:?xt=urn:btih:86A4B4590119969666ED6AE1D73C958A08537DB3
 ```bash
 magnet:?xt=urn:btih:49E83A3C3BC1597641D3F9267012F6342E00709A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

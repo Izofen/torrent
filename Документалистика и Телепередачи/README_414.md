@@ -1,3 +1,31 @@
+###  Публикация: 4727   (561287) от 27.05.2019
+
+Советская империя. Братская ГЭС (2005) TVRip
+
+>>Документалистика и Телепередачи
+>>Кинолетопись Страны Советской
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_561287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия фильмов о грандиозных стройках и достижениях Советского Союза.
+Новый фильм Елизаветы Листовой посвящен созданию самой знаменитой советской электростанции - Братской ГЭС.
+Ее воспел в своей поэме Евгений Евтушенко, о ней написали свои лучшие песни Александра Пахмутова и Николай Добронравов, на нее считали честью поехать лучшие артисты страны, ее мечтали строить (   Читать дальше...   )Производство: РоссияЖанр: ДокументальныйПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9AE0CE9B45CFE185C87D7971691A7751C1AC58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1153087   (561330) от 25.07.2017
 
 Фидель Кастро: потерянные плёнки / Fidel Castro: The Lost Tapes (2014) SATRip
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:E1F2E44C74AB6C346C1B32ECAB53015B310E00C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:E1F2E44C74AB6C346C1B32ECAB53015B310E00C3
 magnet:?xt=urn:btih:A529AD359BD3FBC0930FDBD184C8BF62AEB551C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:A529AD359BD3FBC0930FDBD184C8BF62AEB551C9
 ```bash
 magnet:?xt=urn:btih:11F5BAA19DF2417BF025C2BC993BD6BFD294687D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +125,8 @@ magnet:?xt=urn:btih:11F5BAA19DF2417BF025C2BC993BD6BFD294687D
 magnet:?xt=urn:btih:B3AA5EEFA31A064530E407984E24C87A0D9C905D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +150,8 @@ magnet:?xt=urn:btih:B3AA5EEFA31A064530E407984E24C87A0D9C905D
 ```bash
 magnet:?xt=urn:btih:FECDF3CCF3CE2B4C74AE452F40E045C95A43C51A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +177,8 @@ magnet:?xt=urn:btih:FECDF3CCF3CE2B4C74AE452F40E045C95A43C51A
 magnet:?xt=urn:btih:1CEF46778DF928C80F44061DC7C5F566B4F50E17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +202,8 @@ magnet:?xt=urn:btih:1CEF46778DF928C80F44061DC7C5F566B4F50E17
 ```bash
 magnet:?xt=urn:btih:F2A3147F02CEF26875837A6A1356145DC125FFF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +229,8 @@ magnet:?xt=urn:btih:F2A3147F02CEF26875837A6A1356145DC125FFF1
 magnet:?xt=urn:btih:1CF9E2A0B4FD628D1BFB612C6EAD0913F6A56E08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +254,8 @@ magnet:?xt=urn:btih:1CF9E2A0B4FD628D1BFB612C6EAD0913F6A56E08
 ```bash
 magnet:?xt=urn:btih:250E3DB531FE1C0D0136DE5E1E370AE25506C7C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +281,8 @@ magnet:?xt=urn:btih:250E3DB531FE1C0D0136DE5E1E370AE25506C7C9
 magnet:?xt=urn:btih:CA691A6D47BD599F92D73D7C03130EE239A14B91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +306,8 @@ magnet:?xt=urn:btih:CA691A6D47BD599F92D73D7C03130EE239A14B91
 ```bash
 magnet:?xt=urn:btih:5B3DBDB1D3F8E5F00EAF66FCF64DFA3E9BE28F2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +333,8 @@ magnet:?xt=urn:btih:5B3DBDB1D3F8E5F00EAF66FCF64DFA3E9BE28F2D
 magnet:?xt=urn:btih:22FB356FFC9E34D73A972EAE491A5786B8D63772
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +358,8 @@ magnet:?xt=urn:btih:22FB356FFC9E34D73A972EAE491A5786B8D63772
 ```bash
 magnet:?xt=urn:btih:81C6D35E75FFD732D2430F976E15AA8000E9ACB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +385,8 @@ magnet:?xt=urn:btih:81C6D35E75FFD732D2430F976E15AA8000E9ACB0
 magnet:?xt=urn:btih:4F80522591666E2F8D78AE22EFD5D92082CE1B21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +410,8 @@ magnet:?xt=urn:btih:4F80522591666E2F8D78AE22EFD5D92082CE1B21
 ```bash
 magnet:?xt=urn:btih:1D7AF48C208EAA688913C2138043C5EB95043A0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +437,8 @@ IMAX: Вулканы в морских глубинах / IMAX: Volcanoes of the
 magnet:?xt=urn:btih:BEB037182649E0873287545459F4406D422B8291
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +462,8 @@ magnet:?xt=urn:btih:BEB037182649E0873287545459F4406D422B8291
 ```bash
 magnet:?xt=urn:btih:C0AE8966968E0DE9FCF665467F8AA6C7168DA6F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +489,8 @@ magnet:?xt=urn:btih:C0AE8966968E0DE9FCF665467F8AA6C7168DA6F8
 magnet:?xt=urn:btih:947DF07C69D8FE55832A111C949BA23A24421AF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +514,8 @@ magnet:?xt=urn:btih:947DF07C69D8FE55832A111C949BA23A24421AF4
 ```bash
 magnet:?xt=urn:btih:ACBB8459F5EE80A9DA7310531C3F7765271FB43A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +541,8 @@ magnet:?xt=urn:btih:ACBB8459F5EE80A9DA7310531C3F7765271FB43A
 magnet:?xt=urn:btih:398C73667CA296C5514DE078E4941AB1D455C8B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +566,8 @@ magnet:?xt=urn:btih:398C73667CA296C5514DE078E4941AB1D455C8B7
 ```bash
 magnet:?xt=urn:btih:C77DDDC080DFB91DE07F97A5A830711A5380C67D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +593,8 @@ IMAX. Тайна жизни на Земле / IMAX. The Secret Of Life On Earth 
 magnet:?xt=urn:btih:BD66962900C52E1FD5589B7F3D07863E2A445261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +618,8 @@ magnet:?xt=urn:btih:BD66962900C52E1FD5589B7F3D07863E2A445261
 ```bash
 magnet:?xt=urn:btih:68137F8F0461946D91EA27C6F65009ACE5C70502
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +648,8 @@ magnet:?xt=urn:btih:68137F8F0461946D91EA27C6F65009ACE5C70502
 magnet:?xt=urn:btih:3A3DEB550750A61446ACC275CC5B4A3E5A732153
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,29 +674,7 @@ magnet:?xt=urn:btih:3A3DEB550750A61446ACC275CC5B4A3E5A732153
 magnet:?xt=urn:btih:051A2597A8829F8393AD77AFD554A371CDAE037A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044910   (563107) от 21.08.2016
-
-Танцы (2016.08.20) WEB-DL [H.264/720p-LQ] (сезон 3, выпуск 1)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_563107.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 августа на ТНТ стартует 3-й сезон самого масштабного танцевального шоу страны! Создатели обещают, что проект станет еще круче, ярче и мощнее: новые города, новые герои, новые «ТАНЦЫ»! География участников третьего сезона шоу «ТАНЦЫ» впечатляет! На телевизионные кастинги попали представители более 100 городов. И не только России, но и Прибалтики, Европы, Америки (   Читать дальше...   )Телекомпания: ТНТЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 01:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C5F8F3AD9D683AEA8214C31E7F016FE7CBEA06
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

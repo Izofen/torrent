@@ -1,3 +1,29 @@
+###  Публикация: 1464811   (1019645) от 23.04.2021
+
+По следу монстра (23.04.2021) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1019645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вертолеты, бронемашины, автоматчики: в августе 2016-го в одной из мордовских деревень шла почти войсковая операция. Правоохранители должны были обезвредить особо опасного преступника. История этого монстра началась задолго до трагической развязки, и все в ней оказалось не по-деревенски сложно. Зимой местных жителей потрясло хладнокровное убийство матери двоих сыновей. (   Читать дальше...   )Производство: Россия | "Киностудия Лига"Жанр: Документальный, криминал, расследованиеСубтитры: РусскиеПродолжительность: 00:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F81D9551F1F7A73F3D056A0E07C428DA524A52A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463777   (1020058) от 20.04.2021
 
 Крошечный мир / Tiny World (2021) WEB-DL [H.264/1080p] (сезон 2, серии 1-6 из 6)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:D0094B5023C4660258F2AEA225281151D5C40A28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:D0094B5023C4660258F2AEA225281151D5C40A28
 magnet:?xt=urn:btih:8914271E7914A3FA44B0E7FD83EAC3D17A244825
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:8914271E7914A3FA44B0E7FD83EAC3D17A244825
 magnet:?xt=urn:btih:04FEEA43F5E937E4F410395E08F39C2F61380B2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:04FEEA43F5E937E4F410395E08F39C2F61380B2E
 ```bash
 magnet:?xt=urn:btih:0D58688E8CB336A3F96012C05E48350CB57D70C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:0D58688E8CB336A3F96012C05E48350CB57D70C1
 magnet:?xt=urn:btih:B526DCEAD95302745F3B4A1AC053C704DAE9A667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:B526DCEAD95302745F3B4A1AC053C704DAE9A667
 ```bash
 magnet:?xt=urn:btih:1ECA3C522E104CC0E9ECF457CFF98697244D285C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:1ECA3C522E104CC0E9ECF457CFF98697244D285C
 magnet:?xt=urn:btih:E3115AF82D1DD69653AC80F036563CB71E81FC53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:E3115AF82D1DD69653AC80F036563CB71E81FC53
 ```bash
 magnet:?xt=urn:btih:147C60E409EE7E6553DA1D718BDB95BC0EB99953
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:147C60E409EE7E6553DA1D718BDB95BC0EB99953
 magnet:?xt=urn:btih:C52E4BFA5AF4C91386ED8A2EE537CDCE8CACC2D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:C52E4BFA5AF4C91386ED8A2EE537CDCE8CACC2D0
 ```bash
 magnet:?xt=urn:btih:31B47A4CF68ED9B2271E42FF448610C8D5CC04E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:31B47A4CF68ED9B2271E42FF448610C8D5CC04E7
 magnet:?xt=urn:btih:2C81F53FFE93FEC1DA99DC1E365350623A9FBBB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:2C81F53FFE93FEC1DA99DC1E365350623A9FBBB4
 magnet:?xt=urn:btih:0826BCF03BBBF7EA396F8F6316DE728608AB1ECE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:0826BCF03BBBF7EA396F8F6316DE728608AB1ECE
 ```bash
 magnet:?xt=urn:btih:ADA16B675D513484B81F33D1CA0E27993259922D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:ADA16B675D513484B81F33D1CA0E27993259922D
 magnet:?xt=urn:btih:BCF033882BFD7BEFC61E793C1F4DBF127457A39F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:BCF033882BFD7BEFC61E793C1F4DBF127457A39F
 ```bash
 magnet:?xt=urn:btih:F58D2A4BA93B8D6E339252483DC5F85A3E351CA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:F58D2A4BA93B8D6E339252483DC5F85A3E351CA8
 magnet:?xt=urn:btih:B72D8C5FB6FD99834C7866A3893E55D39CFED236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:B72D8C5FB6FD99834C7866A3893E55D39CFED236
 ```bash
 magnet:?xt=urn:btih:ECEA4A327D0D99DC7AF8EE619E41ADFBF4D4A2DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:ECEA4A327D0D99DC7AF8EE619E41ADFBF4D4A2DC
 magnet:?xt=urn:btih:0565D181B21FD4CE8E46E72903FB66000276B601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:0565D181B21FD4CE8E46E72903FB66000276B601
 ```bash
 magnet:?xt=urn:btih:A26C11CBACDC7CE83EC12009FE064DEDAB383D1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:A26C11CBACDC7CE83EC12009FE064DEDAB383D1D
 magnet:?xt=urn:btih:1B58F9EC73BEC001C53AE29490318CFD1B0AB5D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:1B58F9EC73BEC001C53AE29490318CFD1B0AB5D9
 ```bash
 magnet:?xt=urn:btih:A361FFF44F06D75C75C282B96BCF97EF6D6F203C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:A361FFF44F06D75C75C282B96BCF97EF6D6F203C
 magnet:?xt=urn:btih:90057974F21F1A01A15FA8884253620099FA440B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:90057974F21F1A01A15FA8884253620099FA440B
 ```bash
 magnet:?xt=urn:btih:605816A5CD7EC7D43DADCD9A858803CB602B2D0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:605816A5CD7EC7D43DADCD9A858803CB602B2D0A
 magnet:?xt=urn:btih:D845333677447FA0C718B7917684EDFB5C3F1B90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:D845333677447FA0C718B7917684EDFB5C3F1B90
 magnet:?xt=urn:btih:2860A5BA1220EA621CFAC225CFEB3FFF0CE6CEA2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463110   (1020672) от 17.04.2021
-
-Живая еда с Сергеем Малозёмовым (17.04.2021) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1020672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вредные пищевые привычки: как с ними бороться и что делать, чтобы не переедать? Чем полезна овсянка и какую лучше выбрать при покупке — дорогую органическую или самую дешевую? С какого возраста можно включать грибы в рацион детей? Рецепт недели — овощные розы.Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B4C780F23885096B6FC410BCACFDE5F0B15EFB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

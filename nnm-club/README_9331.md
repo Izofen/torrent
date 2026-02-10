@@ -22,6 +22,8 @@ VA - Christmas Mega Dance 2017 [MP3|320 Kbps] <House, Electro House, Dance>
 magnet:?xt=urn:btih:5A820066A5AEA8A11823F0061085133974861FC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:5A820066A5AEA8A11823F0061085133974861FC2
 ```bash
 magnet:?xt=urn:btih:2D663C02039AC58766BB8DC27B5289D2DBF97560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ CD1 - Caravan:
 magnet:?xt=urn:btih:61744510CA05D8A9CFB0FB83CA053F53365A6806
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Little G. Weevil - Something Poppin' (2017) [MP3|320 Kbps] <Blues, R&B>
 ```bash
 magnet:?xt=urn:btih:229882DA1C12A7B16CB6DD1A7215B554E8E86D39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ VA - Urban Legends: Techno Party (2017) [MP3|320 Kbps] <Hardstyle Techno, Tech H
 magnet:?xt=urn:btih:E830C32E963C1711D0F574AF48B59C7E22B588A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:E830C32E963C1711D0F574AF48B59C7E22B588A8
 magnet:?xt=urn:btih:2F0D3089546046055F49639D91F02B753370FFE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:2F0D3089546046055F49639D91F02B753370FFE0
 ```bash
 magnet:?xt=urn:btih:9FA322887DE67C3D6DBD6AD3C4E72463851CFBF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ VA - Juicy Groove: Minimal Techno Mix (2017) [MP3|192-320 Kbps] <Minimal, Techno
 magnet:?xt=urn:btih:1EC8662223527220F80AD4D300B9C5AC98D81DF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ KeyKey — учимся слепому набору
 magnet:?xt=urn:btih:789D5A268790A51DABCA7E03B297F4BDC37EB9ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:789D5A268790A51DABCA7E03B297F4BDC37EB9ED
 ```bash
 magnet:?xt=urn:btih:EE1ED9D848DE72856A45261697AD402D145FAC5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ VA - Trance Cloud (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:D42F5961EDC657716274078512258A7327ED9C27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ VA - Adedition: Trance Collection Of Amsterdam (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:7473E948702AD7167C1CA41220FAF92C3DE70C81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +358,8 @@ Kat Green - Until You (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocals>
 magnet:?xt=urn:btih:BC6F57B51A8B2C2B9C11274B9BED9374A16BC0F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ Shamindra - Baby Massage (2007) [MP3|320 kbps]<Музыка для малыше�
 magnet:?xt=urn:btih:A526DFD9C47871EB1377EF7053868A2B92A8CF31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:A526DFD9C47871EB1377EF7053868A2B92A8CF31
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +438,8 @@ magnet:?xt=urn:btih:A526DFD9C47871EB1377EF7053868A2B92A8CF31
 magnet:?xt=urn:btih:A1F9BC2EACB2D5B6CC907B6E8BABC53C54D53CFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:A1F9BC2EACB2D5B6CC907B6E8BABC53C54D53CFB
 magnet:?xt=urn:btih:EF8C03FF58DF71E32F5F6FE3D3857E1D696A0569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:EF8C03FF58DF71E32F5F6FE3D3857E1D696A0569
 ```bash
 magnet:?xt=urn:btih:D893CF51AC91A8B9E91BC60E2993C5520AAAEA19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +519,8 @@ Dream Travel - Trance Cloud (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:96630CED147C76C211D925E4E080E8ABE30E279A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +547,8 @@ VA - Trance Travel Vol. 1 (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:ADC70D5DF8A1F6C43281C1F60D4FB7EFA6370A95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +577,8 @@ Budd Johnson And The Four Brass Giants (1960) 1999, Original Jazz Classics [FLAC
 magnet:?xt=urn:btih:0D87FC0B5C1BC1A3DD04B534D1B0EA12F1EDB156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +606,8 @@ Alexey Litunov - Total Trance (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:CDE76C14F2809ECDB6663A5490FFC3921F38C5BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ YoWindow - это очень удобная программа для монит
 ```bash
 magnet:?xt=urn:btih:297E2D86A00681AC820AEFE986B715969545C551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +658,8 @@ magnet:?xt=urn:btih:297E2D86A00681AC820AEFE986B715969545C551
 magnet:?xt=urn:btih:C74B6B475FC68C729B7C7FB38103C4987F05FC42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ Microsoft Product Keys позволит вам получить ключи дл�
 magnet:?xt=urn:btih:33D335BF53AFA79E3F61E046C9AD8D582DBBB7B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ magnet:?xt=urn:btih:33D335BF53AFA79E3F61E046C9AD8D582DBBB7B1
 ```bash
 magnet:?xt=urn:btih:A752486AC532D7547E8D9E1F3CB76858FDB6C089
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

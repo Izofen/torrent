@@ -19,6 +19,8 @@ Reverie Knights Tactics - изометрическая пошаговая RPG с
 magnet:?xt=urn:btih:9AA94AFB0DD0CB8C2A942F5A59CFE4B8AB7E35FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Xuan-Yuan Sword VII - это ARPG от третьего лица, сюжет к�
 ```bash
 magnet:?xt=urn:btih:C101D0CFB28F0A420EABAC596BAA4D8168B5EDF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Monster Hunter: World новейший выпуск популярной сер�
 magnet:?xt=urn:btih:B2B5A7BF48F1A207DF605E2B239753E7B2874916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Bloody Spell – это экшен слешер, который имеет ря�
 ```bash
 magnet:?xt=urn:btih:BCD9A0429AF37D72416F981B1B3CF0A3C04043D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Expeditions: Rome (2022) [Ru/Multi] (1.1.26.58380) Repack Other s
 magnet:?xt=urn:btih:9D29C313FD60B03E79BED31DF088CA825911DBF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Monster Hunter World: Iceborne (2020) [Ru/Multi] (1.0) License PARADOX
 ```bash
 magnet:?xt=urn:btih:A9EFA1240A7BE66AEEE20C7DB9AEF1AE6F1E5508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Shiness The Lightning Kingdom (2017) [Multi] (1.0.8767.0) License CODEX
 magnet:?xt=urn:btih:FE3D7B6AD67E642A65B5147B3F5C11DDDCE99F4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Kingdoms of Amalur: Reckoning — это динамичные сражения �
 ```bash
 magnet:?xt=urn:btih:03E7747855C4A1E1FE8505C722A98838937C0B58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Darkwood изменит ваше представление о жанре surviv
 magnet:?xt=urn:btih:C6FA92E37EB106BFA927767D1505DE21892B59A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Kenshi (2018) [Ru/Multi] (1.0.50) Repack xatab (обновляемая)
 ```bash
 magnet:?xt=urn:btih:605F039452219992D490C63AEA120C98D168BCC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Pharaonic - это беспощадный сайд-скроллинговый р
 magnet:?xt=urn:btih:1E34BBA2ED321D4884AE1C135480BB16CDD84E41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Final Fantasy IX возвращает нас в сказочный антура�
 ```bash
 magnet:?xt=urn:btih:76DB6A9FA8BA2FD27BA9D67F060EE82CE22D9B8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Crowntakers – Undead Undertakings уводит вас в мир живых м�
 magnet:?xt=urn:btih:81EFCCABB5F9BA2C4F5EA6D775946DB307B43FB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Two Worlds - Epic Edition / Два Мира (2008) [Ru/Multi] (1.7) License PROP
 ```bash
 magnet:?xt=urn:btih:48348A78D448BDBDFD43A6AFCDE0C8D277E19A6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Victor Vran - это изометрический ролевой экшен с �
 magnet:?xt=urn:btih:12A8C7FA7854F212D3444BE8F92344B6A4B72312
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Little Town Hero (2020) [Multi] (1.0) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:D88C4C5A4F853F6B6BAB0E7E3DC01053DA771D35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Baldur's Gate II: Enhanced Edition (2013) [En/Multi] (2.2.66.0) Repack Other s
 magnet:?xt=urn:btih:32D43BE82F461D09557C9FB5261C1D9F37383907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Disciples: Liberation — это история в жанре «тёмное ф�
 ```bash
 magnet:?xt=urn:btih:9C9C67138245E1E0037AE4F8C07A990A4F4E6F95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ GOD EATER 3 (2019) [Ru/Multi] (1.1) License CODEX
 magnet:?xt=urn:btih:7385F3F93D5D1541E623D1ACB9487D0EB9DFD4F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Mass Effect: Andromeda (2017) [Ru/Multi] (1.10/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:6D51AC476D20149A8F3378F131600256CEEF7108
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Sword Coast Legends (2015) [Ru/Multi] (1.0/upd9/dlc) Repack Other s
 magnet:?xt=urn:btih:CD3CD6B504DC4484B14FF738793880BA8B035D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Enoch: Underground (2018) [Ru/En] (1.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:4570EDBD687E526BDBBE593CCE75E96075EDB570
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Enoch: Underground (2018) [Ru/En] (1.0.0) License CODEX
 magnet:?xt=urn:btih:EEA93225E35558B324FC5276F4D99057361DFCF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Ni no Kuni II: Revenant Kingdom (2018) [Ru/Multi] (1.0/dlc) License CODEX [The P
 ```bash
 magnet:?xt=urn:btih:6B232E4E950D2B9C19BA2F5C58C6C8ADC8730885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Ash of Gods — это история трех разных героев, сто
 magnet:?xt=urn:btih:4FFF5C496F3D26B08FCD9E5328847C69C88077C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Enoch: Underground (2018) [Ru/En] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:FB01E2AB7FF9F30727E03DB571A312DF69077203
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

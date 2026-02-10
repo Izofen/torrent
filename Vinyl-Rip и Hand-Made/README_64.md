@@ -22,6 +22,8 @@ A2 Марыля Родович - Баллада О Поезде
 magnet:?xt=urn:btih:550AF49E2C3A2B0C7F8826325B155A975903E1A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Composed By – Giovanni Bottesini
 ```bash
 magnet:?xt=urn:btih:0C8337BCB9053E9CBE0BC3BD8A93930889A4B12B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ A4 What Do You Live For 4:06(   Читать дальше...   )Жанр: Electr
 magnet:?xt=urn:btih:2E8967413514C5C77F8BC9E912ADDF3055BB071D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ A4 Ийви • Evie(   Читать дальше...   )Жанр: Soft Rock, Pop
 magnet:?xt=urn:btih:DAE96EE67321586B880F149F2CEE24276EF85A3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Prince And The Revolution - Parade (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Ri
 ```bash
 magnet:?xt=urn:btih:4666CDCE975C4A7A4105DB145DDC606A8999E5C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Iron Mask — пауэр-метал группа, основанная в 2002 �
 magnet:?xt=urn:btih:4AEE5C8B9D56C0E9B03E31FD29055D6688793BDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Londonbeat - In the blood (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electr
 ```bash
 magnet:?xt=urn:btih:6AFEFC598317CCC86A898A06537414A1903E48D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ Kylie Minogue - Дискография (20 releases) (1988-2020) hand made [rest
 magnet:?xt=urn:btih:86C5E4EC47AAD93064A322CF1FCED3B5BB454E96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +249,8 @@ Mutiny Within — американская группа из города Эди
 ```bash
 magnet:?xt=urn:btih:0A1D72BC34C64F078FD037828A630727456F084A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +279,8 @@ Masterplan — немецкая пауэр-метал-группа. Основа
 magnet:?xt=urn:btih:291A23F2DD4AD8CFE4BF7813505338E04ED4B06E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +307,8 @@ magnet:?xt=urn:btih:291A23F2DD4AD8CFE4BF7813505338E04ED4B06E
 ```bash
 magnet:?xt=urn:btih:37238C52EC26C6504B49AAC973A5080490D774E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +337,8 @@ A4 Испорченный Телефон(   Читать дальше...   )Жа
 magnet:?xt=urn:btih:ED446D73CD4F41073A14074723A479F208122761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +365,8 @@ Insomnium — финская англоязычная группа из горо
 ```bash
 magnet:?xt=urn:btih:E13F03859AF8AF05B4966658D8C66F58A9A09AF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +395,8 @@ A4	Hippies With Haircuts–	Eye On You	(4:45)(   Читать дальше...   
 magnet:?xt=urn:btih:9E4148D74064A3D81B0B8B068AF25B6AC3626040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +423,8 @@ Accept - Stalingrad (2012) 2LP [WavPack 2.0 32/96|image (Vinyl-Rip)]<Heavy Metal
 ```bash
 magnet:?xt=urn:btih:ED416EC19D27D3AD0626D6BE3018BF611B0041C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ Metallica — американская метал-группа, образова
 magnet:?xt=urn:btih:E0864958871EF26E3FB7C6FD9ADC485A3A91DA6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +481,8 @@ Godark - метал-группа из Португалии, основана в 
 ```bash
 magnet:?xt=urn:btih:34BC01D822F5224C78231D80539A1E6A62E6D4D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ Pretty Reckless — американская рок-группа из Нью-Й�
 magnet:?xt=urn:btih:FD27DE2B99D15C9F60FE92D4D39361A38FE8183C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ A4 Rotation(   Читать дальше...   )Жанр: Soul-JazzПродолж
 ```bash
 magnet:?xt=urn:btih:DAD66781E3BEE23B8B9DA6483DCCB81CA76EF10E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ A4 Estrellita(   Читать дальше...   )Жанр: Latin, Easy Listening
 magnet:?xt=urn:btih:71E2F01FEA7592510FCB98C7593434B11E4FBFFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ A4 Mis Amigos(   Читать дальше...   )Жанр: Pop, Swing, Rock & Ro
 ```bash
 magnet:?xt=urn:btih:73606FF671830C07BC5A6B57306F7C8B9ABF4D24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ A4 You Pass Me By(   Читать дальше...   )Жанр: Pop, FolkПрод
 magnet:?xt=urn:btih:DA481CE8F7D3831F5151D0205B5304DDB9F2F8AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ A4 James Taylor - Handy Man(   Читать дальше...   )Жанр: Rock, P
 ```bash
 magnet:?xt=urn:btih:EBC6CD7DD9158C2E550B2A81C63FB6B333FA315B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +686,8 @@ Red Hot Chili Peppers - The Getaway (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-R
 magnet:?xt=urn:btih:1B4D569EE6D0D78E363150CDF52152EB2B38363F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ A4. Фотофиниш (4:34)(   Читать дальше...   )Жанр: Elect
 magnet:?xt=urn:btih:FAAE095706F44266BEC0CA327A1FCD13E959B6FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ B1. Sexy Love (3:31)(   Читать дальше...   )Жанр: Electronic, Sy
 ```bash
 magnet:?xt=urn:btih:3A6368B651AB53F531204BA100055EBE19AAC61E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

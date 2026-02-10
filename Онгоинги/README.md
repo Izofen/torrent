@@ -20,6 +20,8 @@ Yasei no Last Boss ga Arawareta! | A Wild Last Boss Appeared! | Шальной �
 magnet:?xt=urn:btih:3C02F67FDEBAB5648F105A77B2315A9CE01F0556
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Towa no Yuugure | Dusk Beyond the End of the World | Вечность Югурэ
 ```bash
 magnet:?xt=urn:btih:2EE0F66FB6C7B6ED9D22918F0AF8B1786E095025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Seishun Buta Yarou wa Santa Claus no Yume o Minai / Этот глупый сви
 magnet:?xt=urn:btih:651882BDEE403DF28CB0D85F2F7B7D7745A41B66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Game Center Shoujo to Ibunka Kouryuu / Cultural Exchange with Game Center Girl /
 magnet:?xt=urn:btih:3D5C6F8B0E97B4687FBAA8DB7DA3B280B4253394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Kaijuu 8 Gou (2025) | Kaiju No. 8 (2025) | Кайдзю номер 8 [ТВ-2] [2
 ```bash
 magnet:?xt=urn:btih:77597E3D537C95142B6CD97B427BE0AD7B4CFC6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Ruri no Houseki / Ruri Rocks / Рури любит камни [2025, TV, 13] WEB
 magnet:?xt=urn:btih:6603BF775B7715A5D2628073AF3049303EC54ACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Isekai Mokushiroku Mynoghra / Apocalypse Bringer Mynoghra / Апокалипси
 ```bash
 magnet:?xt=urn:btih:BB1DCB623C6060B77C7F1F39191BBD286203A9D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Watari-kun no xx ga Houkaisunzen / Watari-kun's ***** is About to Collapse / XX 
 magnet:?xt=urn:btih:536190050D94D0F15DE02215F5697349CFF83BE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Yofukashi no Uta Season 2 | Песнь ночных сов [ТВ-2] [2025, TV, 1
 ```bash
 magnet:?xt=urn:btih:C17F4597F756B3FB0347EC21B35592FCFF2D2F9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Tougen Anki | Legend of the Cursed Blood | Тёмный демон [2025, TV, 12
 magnet:?xt=urn:btih:38FFD722EBFA37EB715EDA0F7474B113457366A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Anne Shirley | Энн Ширли [2025, TV, 24 эп.] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:98AA9F87BC8C8DF4C8E70974E11ED961CA65CB29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Silent Witch: Chinmoku no Majo no Kakushigoto / Secrets of the Silent Witch / М
 magnet:?xt=urn:btih:515285BFDF9F9ACE61B8A51F980CB13D5AC07A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Mushoku no Eiyuu: Betsu ni Skill Nanka Iranakattanda ga / Hero Without a Class: 
 ```bash
 magnet:?xt=urn:btih:2DAB48F1C288E9DC45BB1F49FCA79F005777409C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Futari Solo Camp | Solo Camping for Two | Соло кемпинг на двои�
 magnet:?xt=urn:btih:030FE576D3327CE0AC40B14094C899DD4D3A48F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Bad Girl / Плохая девочка [2025, TV, 12] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:398B22B9DCA9734CBD9E34BF0A5A3065663CE5D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Mizu Zokusei no Mahou Tsukai / The Water Magician / Маг воды [2025, TV, 1
 magnet:?xt=urn:btih:44788FE55997FB46D26E4C525E3A465110C7D00D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Busu ni Hanataba o. | April Showers Bring May Flowers | Букет для гад
 ```bash
 magnet:?xt=urn:btih:3CCEB03DEB0BAC9639ACC857612815E8AC37C880
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ CITY the Animation | Город [2025, TV, 12 из 13] WebRip 1080p raw
 magnet:?xt=urn:btih:2ED2C388CF79756F5985C642302423191F1110F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Tensei Shitara Dai Nana Ouji Datta no de, Kimamani Majutsu o Kiwamemasu Dai 2 Ki
 magnet:?xt=urn:btih:EF86399D76E90BF25157E9CB3FD0F882CE665603
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Dr. Stone: Science Future | Доктор Стоун [ТВ-4] [2025, TV, 24 эп.
 ```bash
 magnet:?xt=urn:btih:EADE3F7DAC348263CFC3A84BC8AD4004AAF175FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Osomatsu-san (2025) | Осомацу-сан [ТВ-4] [2025, TV, 12 из 13 эп.
 magnet:?xt=urn:btih:69A66CA4EB22D20CBC3229E7900772D334143BF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Tate no Yuusha no Nariagari Season 4 | The Rising of the Shield Hero Season 4 | 
 ```bash
 magnet:?xt=urn:btih:DC5FE29CD80FAE7C186E44F984BCD60A01BD27F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Turkey! / Turkey! Time to Strike / Tёpки! [2025, TV, 12] WEBRip 720p raw
 magnet:?xt=urn:btih:307945DBA6A8BCCB63449ABDE50640A4FA277A99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Kijin Gentoushou | Sword of the Demon Hunter | Хроники людей и де
 ```bash
 magnet:?xt=urn:btih:5AB516DDB52E3590F683713DDAB134BB780DE251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Shin Samurai-den Yaiba | Yaiba: Samurai Legend | Яйба [2025, TV, 23 из 24]
 magnet:?xt=urn:btih:89576C2E618DF650A4F808BABC40B2AE7278B3F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Kakkou no Iinazuke Season 2 | A Couple of Cuckoos Season 2 | Обручённы�
 ```bash
 magnet:?xt=urn:btih:EC0F96DD39369180C7D99B60F1AE522B68138CDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

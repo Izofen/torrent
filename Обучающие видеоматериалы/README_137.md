@@ -19,6 +19,8 @@ Wikisound | Ableton live 11 с нуля до эксперта (2021) WEB-DL [RU]
 magnet:?xt=urn:btih:EBE1E498B34CA00D6403AB93757D29375724B4F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Skillbox, Е. Брызгалина, А. Кузнецов, Н. Клюева | Ф�
 ```bash
 magnet:?xt=urn:btih:481E1D866819532E3AD4C93DB875F0AC54501583
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:481E1D866819532E3AD4C93DB875F0AC54501583
 magnet:?xt=urn:btih:10189D7A4A2D1F224DDC55FF00C7AB44D732F458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:10189D7A4A2D1F224DDC55FF00C7AB44D732F458
 magnet:?xt=urn:btih:785DB8E93E2C24D5180B3750D5C3B7F451199EA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:785DB8E93E2C24D5180B3750D5C3B7F451199EA5
 ```bash
 magnet:?xt=urn:btih:C53E668DD3760FDEA7737F1E1A1E99DAC9C4592C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:C53E668DD3760FDEA7737F1E1A1E99DAC9C4592C
 magnet:?xt=urn:btih:1AA41E4E952C7857D8BB434F907A2343C00084FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Udemy, Andrey Sobolev | Микросервисы на Python (asyncio, starlette
 ```bash
 magnet:?xt=urn:btih:743C6237D462A246D8D53E790531D3BC3F7A9867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Ulbi TV, Тимур Ульби | Продвинутый Frontend. В Production 
 magnet:?xt=urn:btih:BC75303C93E330FDED975C090FB0FC4F9B80AF5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Javascript.ninja, Илья Климов | Зимняя школа по Typescrip
 magnet:?xt=urn:btih:5125A3734BCBA24066E3FA8B924CE73C1DD6142D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ itProger |  Профессия Python разработчик (2020) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:2D8E87FBDE704DAC6293A55D6D7F910777526D43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ Targetorium, Павел Антонов, Наталья Якимчук | Спец
 magnet:?xt=urn:btih:71A4B4EB68C22D8974D38CCAE3E341BD1A29F5E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:71A4B4EB68C22D8974D38CCAE3E341BD1A29F5E7
 ```bash
 magnet:?xt=urn:btih:81FCA9186E8C42E381B110E34CDFB374EA2D855E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ Blender - полный базовый курс 3D моделирования
 magnet:?xt=urn:btih:D0193AFC3EB963CCA6CB70C3A1FAD2416B139007
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ JPoint — одна из двух крупнейших и старейших Jav
 ```bash
 magnet:?xt=urn:btih:D8FEE1C32DE24260EC54C15FEFA83F834A0A8D25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +409,8 @@ Autocad Specialist, Алексей Меркулов | Проектировани
 magnet:?xt=urn:btih:E8A10B4FBB4438EEA09AEA6EC530B04369CFB4E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ magnet:?xt=urn:btih:E8A10B4FBB4438EEA09AEA6EC530B04369CFB4E4
 magnet:?xt=urn:btih:430C55CB9AD2C8E4D6AD5A210E4DACACF548B22D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ Amigoscode, Mama Samba Braima Nelson | PROFESSIONAL Full Stack Developer (2023) 
 ```bash
 magnet:?xt=urn:btih:76A658EF63FB43470870F3A1C0E7E380CBD22E74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +494,8 @@ Red Group, htmllessons, Максим Шушвал | Все интенсивы (2
 magnet:?xt=urn:btih:09CBD0D4D3918510896444AF1C49E4267EB4E51E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +523,8 @@ Timesavervfx, Александр Ежов | Анимация фотографи�
 magnet:?xt=urn:btih:F4B47B307E4E7F819725C556F87E138735E448A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +549,8 @@ Udemy, Nikolay Naydenov | Absolute Beginners Substance Painter Course (2020) PCR
 ```bash
 magnet:?xt=urn:btih:775DCDE7C37E81543B96E885A38B379E0FD14A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +579,8 @@ Timesavervfx, Юлия Корчагина| Моушн-графика в Davinci 
 magnet:?xt=urn:btih:9A9B6E7C44D6BB2E842C8E2B86385F9D5F49111A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +607,8 @@ Alexcode, Алексей Леонов | Разработчик 1С с нуля (
 ```bash
 magnet:?xt=urn:btih:4773D321E7E75B380E2F9CA8000E5A2394DA12A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +637,8 @@ CyberYozh Academy, Евгений Ивченков | Комплексная на
 magnet:?xt=urn:btih:A1CC102400BCAAABBB65C36A0A2F11E97A8FB3CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +665,8 @@ Gumroad, Fxforfun | SideFX – FFF Houdini Subject 071 (2022) WEB-DL [EN, RU]
 magnet:?xt=urn:btih:76005114988FD77961C496813986D3B000E2D7EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +692,8 @@ Diodov.net, Дмитрий Забарило | Программирование �
 magnet:?xt=urn:btih:50700D3F5207B0767709F77504844C7C6C6BFBF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ magnet:?xt=urn:btih:50700D3F5207B0767709F77504844C7C6C6BFBF4
 ```bash
 magnet:?xt=urn:btih:3F81A2D33813ACA4BE8B6325257710D4E409C290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

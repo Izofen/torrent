@@ -21,6 +21,8 @@ Concept - Straight Forward (EP) (2012) [MP3|320 кб/с]<Psychedelic / Night Ful
 magnet:?xt=urn:btih:453C140E2993B3F917485EE71BD7F79E8E2B2EBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:453C140E2993B3F917485EE71BD7F79E8E2B2EBE
 ```bash
 magnet:?xt=urn:btih:937779F1273842ADA367F28067EED1973347102B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Etic & Double Click - Undercook (EP) (2012) [MP3|320 кб/с]<Psychedelic / Prog
 magnet:?xt=urn:btih:F38E076497BBDC62A516F05944A9B52A44166423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Elle Decoration - самый красивый и полезный междуна
 magnet:?xt=urn:btih:BC5D911A684D1F1AED3EB27E733DC071D0A16572
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Elle Decoration - самый красивый и полезный междуна
 ```bash
 magnet:?xt=urn:btih:0C731BE282F04F508033C1BDD8BCCCCD7C371699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ VA - Жажда танца. Будет жарко! (2012) [MP3|256 кб/с]<Pop,
 magnet:?xt=urn:btih:1A1DA2C088C5129000138ACD368422F8B438839A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Elle Decoration - самый красивый и полезный междуна
 ```bash
 magnet:?xt=urn:btih:4FDA639B27D0BC5D45195DBA565C9B4F947F11A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:4FDA639B27D0BC5D45195DBA565C9B4F947F11A7
 magnet:?xt=urn:btih:0B6E2C2450613995C095318FE75C48CA6B321A9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +246,8 @@ magnet:?xt=urn:btih:0B6E2C2450613995C095318FE75C48CA6B321A9D
 ```bash
 magnet:?xt=urn:btih:D7AE43B8661FFC7B69359EDF084414A5C13ABD73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ Kaledon - Mightiest Hits (2 CD) (2012) [MP3|320 кб/с]<Power Metal>
 magnet:?xt=urn:btih:E1FFE62367EE4AD4DC44EB550D22F765619237B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +307,8 @@ magnet:?xt=urn:btih:E1FFE62367EE4AD4DC44EB550D22F765619237B4
 ```bash
 magnet:?xt=urn:btih:ACA17FAB7C8BD15C3C9895F460FF7A907F9E412A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +334,8 @@ magnet:?xt=urn:btih:ACA17FAB7C8BD15C3C9895F460FF7A907F9E412A
 magnet:?xt=urn:btih:9CC605E05DD2AD4E3D9DFE7C6917D55A775221D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +360,8 @@ magnet:?xt=urn:btih:9CC605E05DD2AD4E3D9DFE7C6917D55A775221D5
 magnet:?xt=urn:btih:4ADC0B99FC14765FD38359F92A2112ADC657CD78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +385,8 @@ Berna Arici - Kitap Gibi Kadinim (2012) [H.264/1080р] WEBRip
 ```bash
 magnet:?xt=urn:btih:F90B453EBF28BDA8871F0FAE79F256B241C081EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +416,8 @@ Phil Woods Quartet & Jon Hendricks Group - Tribute To Charlie Parker (2003) DVD5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +452,8 @@ Jacky Terrasson & Cassandra Wilson - Rendezvous (1997) [FLAC|Lossless]<Jazz>
 magnet:?xt=urn:btih:BDDF6AF5D5D785E190EE6131D0294651786F34C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +477,8 @@ magnet:?xt=urn:btih:BDDF6AF5D5D785E190EE6131D0294651786F34C3
 ```bash
 magnet:?xt=urn:btih:6567405FE215601E4D458D85BCF3306EDF3B2115
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +507,8 @@ magnet:?xt=urn:btih:6567405FE215601E4D458D85BCF3306EDF3B2115
 ```bash
 magnet:?xt=urn:btih:D954338D0823498E8F3E5E88A19D5B96A7CDE65B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +543,8 @@ Francis Rossi - 2 albums (1996, 2010) [MP3|320 кб/с]<Rock, Pop-rock, R'n'B>
 magnet:?xt=urn:btih:104B7FA65E25B871710F0056C2123D10CC3E4164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +574,8 @@ Laura Wilde - Sold My Soul (2012) [MP3|320 кб/с]<Hard Rock>
 magnet:?xt=urn:btih:953D51B6E8D5160D272159FD452ECD7C3D83FE48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ magnet:?xt=urn:btih:953D51B6E8D5160D272159FD452ECD7C3D83FE48
 magnet:?xt=urn:btih:7A37661E0FEA690AF7C9215804A148D175B1D689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +625,8 @@ magnet:?xt=urn:btih:7A37661E0FEA690AF7C9215804A148D175B1D689
 ```bash
 magnet:?xt=urn:btih:E531D51D1216EDB3D0BA841CCE880318D8631469
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +661,8 @@ DJ Kocmoc - The lyrics of my heart (ChillOut 2012) (30.04.2012) [MP3|320 кб/с
 magnet:?xt=urn:btih:A642482698204A42D28E0DBC0A654F6C60350027
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +687,8 @@ magnet:?xt=urn:btih:A642482698204A42D28E0DBC0A654F6C60350027
 ```bash
 magnet:?xt=urn:btih:373A97FC2D745C644AA716DF7C3FF0D3EDA334A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -675,6 +723,8 @@ Forthcoming Fire - 10 albums (1991-2010) [mp3|160-320 kbps] <Darkwave, Industria
 magnet:?xt=urn:btih:FA45C6B2ADE81ABF018E2FC249D5090FC73D4B5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,6 +748,8 @@ Boppin [En] (RePack) 1994 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

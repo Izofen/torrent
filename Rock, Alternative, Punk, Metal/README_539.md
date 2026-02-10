@@ -28,6 +28,8 @@
 magnet:?xt=urn:btih:DCA25423A07FE78611A73DA629B49B5F2420D4D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Evanescence - это знаменитая американская рок-гру
 ```bash
 magnet:?xt=urn:btih:AE2F83F09D8ECD2C98B3299F1034E20046A9C230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ Ashes and Diamonds - это трио состоящее из вокалиста 
 magnet:?xt=urn:btih:FE353F70EEC8E56BD69A3C9B096E469592869D9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ Randy Johnston - Rockin' Soul at the Star Tavern (2025) [FLAC 24/48|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:C8BFDD3EC90FE8F74681283703867FC4E03BF52E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +150,8 @@ Europe - Bag Of Bones (2012) Japan edition [FLAC (tracks+cue)|Lossless]<Melodic 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +178,8 @@ Empire Drowns - Endless Nights (2025) [FLAC|Lossless|WEB-DL|tracks] <Doom, Gothi
 ```bash
 magnet:?xt=urn:btih:EBBCE35F243A323D129B8F95A23B349C62AD7BB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +214,8 @@ magnet:?xt=urn:btih:EBBCE35F243A323D129B8F95A23B349C62AD7BB4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +242,8 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:B4964A7BFE28EE1F7249C450CC373EE68DB7FF3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +278,8 @@ King Crimson - The 21st Century Guide To King Crimson: Volume One (1969-1974) & 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +313,8 @@ Nordheim - Lost In The North (2010) [MP3|320 кб/с]<Viking/Folk Metal>
 magnet:?xt=urn:btih:B2286BEC03C5DF654A02505D9F043EE14A2F1B98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +341,8 @@ P.H.O.B.O.S. - Atonal Hypermnesia (2012) [MP3|320 кб/с]<Psychedelic Industria
 ```bash
 magnet:?xt=urn:btih:74D75EFC04FFD209EC79678876E219D0AD123A96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +377,8 @@ Iron Maiden - 2 Альбома (1983-2002) [FLAC|Lossless]<Rock, Heavy Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +405,8 @@ Kings Of Leon - EP #2 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Rock, Al
 ```bash
 magnet:?xt=urn:btih:01872B8A2739682BC6D9F349F8239D27ED63D3D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +435,8 @@ Jimi Hendrix (The Jimi Hendrix Experience) - Bold As Love Sessions (2025) [FLAC|
 magnet:?xt=urn:btih:9DA5082CF3EADEA4DAD3493EDABFD9027F138B71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +463,8 @@ Finger Eleven - Last Night On Earth (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:57E877519F64A1339E5804BB24DE625206398892
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +493,8 @@ Alcatrazz - Prior Convictions (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, H
 magnet:?xt=urn:btih:85102222026138C372841B025EEDBE2356DE16D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +521,8 @@ RADIO TAPOK - БЛИЦКРИГ (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy
 ```bash
 magnet:?xt=urn:btih:ADA334297EAE336F91A938249F2D6DECE2E2D2A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +551,8 @@ RADIO TAPOK - БЛИЦКРИГ (2025) [MP3|320 Kbps] <Heavy Metal>
 magnet:?xt=urn:btih:83CEF0464F936A607D5433D1BC8B48A24A7EDFA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +579,8 @@ CD4 - Shepperton 1977(   Читать дальше...   )Жанр: Classic Rock�
 ```bash
 magnet:?xt=urn:btih:3FF867CEE25268562B0A46DF396E23EE82CD6199
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +609,8 @@ Prost - Believe Again (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:A4F7C4790DD001C4CFAE60243E0716F66CAA659A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +637,8 @@ Dmitry Spirin (ex-Тараканы) - Live in Belgrade (2025) [MP3|320 Kbps] <Ro
 ```bash
 magnet:?xt=urn:btih:A8F6DBE4C255F5D9034D31FF57AD730840B6673E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +667,8 @@ magnet:?xt=urn:btih:A8F6DBE4C255F5D9034D31FF57AD730840B6673E
 magnet:?xt=urn:btih:92F71065620EB835B1689CB941AD22FEE3E46B8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +695,8 @@ magnet:?xt=urn:btih:92F71065620EB835B1689CB941AD22FEE3E46B8A
 ```bash
 magnet:?xt=urn:btih:604BC38A4632084B2B2D4E1A08CB28655A98FB32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -679,6 +725,8 @@ The Answer — североирландская рок-группа, образ�
 magnet:?xt=urn:btih:2DBAB69F9A59685D1B3E10776B55F06EA5934133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -706,6 +754,8 @@ Alcatrazz - легендарная рок-группа, сольный прое�
 magnet:?xt=urn:btih:914036C197E3B2A88639C4D51257D56BE612E759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -732,6 +782,8 @@ Dave Matthews (род. 9 января 1967, Йоханнесбург) — южн
 ```bash
 magnet:?xt=urn:btih:9FCE0B0F531B03411FE10D221D07ABD1A9E4792E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

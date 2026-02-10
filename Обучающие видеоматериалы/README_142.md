@@ -22,6 +22,8 @@ Blender - это фантастика и сейчас подходящее вр�
 magnet:?xt=urn:btih:CC70BA8D817A5AC692B58B7F994049E8DFFE4EEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ FlippedNormals | Введение в Blender 2.8 / Introduction to Blender 2.8 (
 magnet:?xt=urn:btih:F9B2F9DEE57120910ECDE0F9D545C40D12A69A3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:F9B2F9DEE57120910ECDE0F9D545C40D12A69A3E
 ```bash
 magnet:?xt=urn:btih:8667181EEBDB95FBC0AC16116F23A1551BA87D98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ MonsterLessons | Интернет-магазин на React/Redux (2017) PCRec [
 magnet:?xt=urn:btih:8D5651F472B1BFF725AE3B5B75E61D8023F06DA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:8D5651F472B1BFF725AE3B5B75E61D8023F06DA3
 magnet:?xt=urn:btih:59BB0C3A567FEC729E4A4B33898AF0A9103937C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:59BB0C3A567FEC729E4A4B33898AF0A9103937C2
 ```bash
 magnet:?xt=urn:btih:D18DDB24E97A38DF91C11E66948BC9557898CFB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Udemy | Unity 5 Professional Guide Mastering C# Programming / Профессио
 magnet:?xt=urn:btih:D04A76406F3942CC33CC39045DBE6170E085D0FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:D04A76406F3942CC33CC39045DBE6170E085D0FF
 ```bash
 magnet:?xt=urn:btih:7BED957257871D7208167054B49991880BFABC42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:7BED957257871D7208167054B49991880BFABC42
 magnet:?xt=urn:btih:6B54535AF92C30720E0963AA2C217CEA3D596572
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:6B54535AF92C30720E0963AA2C217CEA3D596572
 magnet:?xt=urn:btih:47C3396E46F94111C96F645ED54F72057EA508C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Lynda.com | Обучение 3D-графике для Web с помощью Thre
 ```bash
 magnet:?xt=urn:btih:9C73E4616EF6C8DC88E210BA7F744A03A0F870D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ Udemy | Парсеры, роботы, автоматизация, Selenium, Phan
 magnet:?xt=urn:btih:E903274B92FB88F88FB1F931C76788258DD7CA24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ ProfIT | PhpStorm для самых маленьких (2018) PCRec [H.264/720p-
 ```bash
 magnet:?xt=urn:btih:B8A2943696F5934635D6C416F0566DA1C3D5FB64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Webcademy | Gulp Сборка (2018) PCRec [H.264]
 magnet:?xt=urn:btih:3DD43E7EBE98B2D2054A24C77707CF09A0B242EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ ProfIT | Что нового в PHP (7.3) (2018) PCRec [H.264]
 magnet:?xt=urn:btih:1E9314F7E0FE1A8A3F697B59998FC2CA9F8F382B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ Convert Monster | Яндекс.Директ 2017 (2017) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:4F6405C9A7CF8E70555D8B0DB6930B2C5EE55D02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:4F6405C9A7CF8E70555D8B0DB6930B2C5EE55D02
 magnet:?xt=urn:btih:D2EE31C828B18DEF4F082F3B491DBD4DFAB130F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:D2EE31C828B18DEF4F082F3B491DBD4DFAB130F5
 magnet:?xt=urn:btih:089BD2B88B7481C2FA820AE1E9766DE011C39447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ javascript.ru | Курс по React.JS (2018) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:8EA994EC5463E71CB04276F69FA9558E7AB01AB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ javascript.ru | Продвинутый курс по Angular (2018) PCRec [H.264
 magnet:?xt=urn:btih:4B6F3957733B6176578F23673833E9A4B205EB47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ doge.codes | Онлайн интенсив по React и Redux (2018) PCRec [H.2
 ```bash
 magnet:?xt=urn:btih:66B54207B1B1E84AFCE4A7EE4F699DBA94CD1F95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ ProfIT | XDebug или Давайте искать баги быстро! (2018)
 magnet:?xt=urn:btih:02D3F28D15729B532B98F5EDB82A7D4D0D7F4533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:02D3F28D15729B532B98F5EDB82A7D4D0D7F4533
 ```bash
 magnet:?xt=urn:btih:9A912C0487A8C2AF7C5FC8D3347C6738D98E6038
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:9A912C0487A8C2AF7C5FC8D3347C6738D98E6038
 magnet:?xt=urn:btih:C1A1DCECBDE711DB4ED1FDB1D2F9EFB9B75810B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:C1A1DCECBDE711DB4ED1FDB1D2F9EFB9B75810B6
 magnet:?xt=urn:btih:CB60263C588CF6C03F0A75D2BFAEDE5830BCC529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ JavaBegin | Основы Java (2012-2016) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:E4A299F059CCBA2C41ED499D3F7B6F4A3CA5E2F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

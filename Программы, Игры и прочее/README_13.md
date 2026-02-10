@@ -19,6 +19,8 @@ Misguided: Never Back Home - это захватывающая 3D-игра в ж
 magnet:?xt=urn:btih:D2875E4E94011EB2EDCE20ED63A947C29D4FF28C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D2875E4E94011EB2EDCE20ED63A947C29D4FF28C
 ```bash
 magnet:?xt=urn:btih:30DF46F30F6031A52BA33FB72BBCF69D676BBD80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ StudyGe - География мира v2.3.1 [Ru]
 magnet:?xt=urn:btih:46B262CD9661372631A51765EEBDF0E90E1E20F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Alien: Isolation v1.4.1RC1 [Ru]
 ```bash
 magnet:?xt=urn:btih:36B0FD14874536E46C2B52F862E7A9BEEB5C6839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Fruit Ninja Classic+ v1.0.1 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:DFD343330D3B9556DE00E2EDB815D9229F57640B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Lara Croft: Guardian of Light v1.2.1RC14 [Ru]
 ```bash
 magnet:?xt=urn:btih:ED97B7C62E62B8F142B238A6BE49B34E07BA37BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Human Anatomy Atlas 2025 v2025.00.012 [En]
 magnet:?xt=urn:btih:5AFD6FFED0C8E819CF5A1697533BFA0038F167B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Easy Notes - записная книжка, блокнот бесплатно, �
 ```bash
 magnet:?xt=urn:btih:A9330315CAA56DD6B64B171631AA0C6B38E4B3C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:A9330315CAA56DD6B64B171631AA0C6B38E4B3C4
 magnet:?xt=urn:btih:977FC992406C43D22632D434B72F902CACC12F33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:6FB9C3F3FD57C72108879FD6EB72D868B075F429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Little Misfortune - это интерактивная история, посвя
 magnet:?xt=urn:btih:4E155F357DCC06D92CE7C10D3BAD0E030520129B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:4E155F357DCC06D92CE7C10D3BAD0E030520129B
 ```bash
 magnet:?xt=urn:btih:483F5C7F47C40BF5115B4783C130252DEF425501
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ Life Gallery — это необычная игра, в которой голо�
 magnet:?xt=urn:btih:C5334B57530AE3CBF69D2430CFBCD3F02543813D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Cat Museum v1.2.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:97F9C951B1D802D8D88488BB7821C4ED143DA154
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Fran Bow v1.0.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:B4D01DDD5CD81C024697CCD24308F97EFFE923DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ Dad's Monster House - это нарисованная от руки игра-г�
 magnet:?xt=urn:btih:14B5EF95BECC6B3442E41E25F11374BDE892BFB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ TV+: Бесплатное Онлайн Телевидение
 magnet:?xt=urn:btih:DB7B97A4F6685F73E5ECC7D36EC5723B75231AF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ Oddmar v0.111 [Ru]
 ```bash
 magnet:?xt=urn:btih:4BEC6D9669F29D3FC5FD28AF10DD9466E64721A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ Spotify: музыка и подкасты v9.0.16.572 LiteMod by Balatan [Ru/En]
 magnet:?xt=urn:btih:A4DA515ADC784991F8BEB6E4A810F3B8D3376AB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:096B66544C173C4FE3D725470F4229E78F151254
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ Photomath v8.43.0 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:9FF5D2A7855D064D0ECA2CFE999732BD9133FCF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:9FF5D2A7855D064D0ECA2CFE999732BD9133FCF7
 ```bash
 magnet:?xt=urn:btih:F57A9BB2A9A69701D5640514C40A5BCF6E774359
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ One Way - это креативный point-and-click квест от студи
 magnet:?xt=urn:btih:3CD440CD826EF54BECAC0532A0C92023D735F6C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ Wreckfest предлагает множество вариантов улучш�
 magnet:?xt=urn:btih:7A22EE36A68CA78308AD5F95E8D9A13276DECDBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ The Forest Quartet — повествовательная 3D-головолом�
 magnet:?xt=urn:btih:A48BD3E2E258D1E96AEBDEFAAC027D40267D5515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ A Perfect Day - это сюжетная игра-головоломка с вр�
 ```bash
 magnet:?xt=urn:btih:DDD738BD35C188E2DD64B4DFDA2216D333AA0600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

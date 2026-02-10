@@ -28,6 +28,8 @@ Three Times Lucky - Mojo Offa Muddy (2011) [MP3|320 kbps]<Blues, Blues Rock, Roo
 magnet:?xt=urn:btih:4AB3479F7DD84BCB0426BD7301A9B058FBAEE58C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -58,6 +60,8 @@ Eddie "Cleanhead" Vinson - I Want a Little Girl (1995) [APE|Lossless]<Jazz , Cla
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -85,6 +89,8 @@ David Murray - Live '93 Acoustic Octfunk (1994) [FLAC|Lossless]<Contemporary Jaz
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +122,8 @@ Claude Bolling - Suite For Violin (1993) [FLAC|Lossless]<Crossover Jazz, Violin>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +158,8 @@ Joey DeFrancesco - Where Were You? (1990) [FLAC|Lossless]<Jazz, Post-Bop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +191,8 @@ Hobo Blues Band - Meg Elunk (1983) [APE|Lossless]<Blues-Rock>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +227,8 @@ Muddy Waters - Screamin' And Cryin' (Live In Warsaw) (1976) [MP3|320 kbps]<Blues
 magnet:?xt=urn:btih:3744A3084EB073A8D195F3000951D92B109698DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +260,8 @@ John Clark - Il Suono (1992) [FLAC|Lossless]<Post-Bop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +292,8 @@ Don Friedman - Hot Knepper And Pepper (1990) [FLAC|Lossless]<Post-Bop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +328,8 @@ Otis Redding - The Soul Album (1991) [FLAC|Lossless]<Soul>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +362,8 @@ Neil Cowley Trio - The Face of Mount Molehill (2012) [FLAC|Lossless]<Fusion, Con
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +398,8 @@ Josh Alan - Famous & Poor (1991) [FLAC|Lossless]<Acoustic Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +433,8 @@ Jimsaku - Best Selection (1995) [FLAC|Lossless]<Fusion>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +465,8 @@ Teddy Edwards - Midnight Creeper (1997) [FLAC|Lossless]<Hard Bop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +501,8 @@ Patricia Talem - Patricia Talem (2009) [APE|Lossless]<Vocal Jazz, Brazilian Jazz
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +530,8 @@ Thelonious Monk and Max Roach - European Tour (2009) [FLAC|Lossless] <Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +566,8 @@ Walter Beasley - Go With The Flow (2003) [APE|Lossless]<Smooth Jazz, Crossover J
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +599,8 @@ Bob Wilber & Kenny Davern - Soprano Summit (1993) [FLAC|Lossless]<Bop, Swing>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +635,8 @@ Lance Lopez - Handmade Music (2011) [APE|Lossless]<Blues Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +669,8 @@ Kingtone - Law of the Jungle (2011) [FLAC|Lossless]<Blues-Rock>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -665,6 +705,8 @@ Jimmy Witherspoon - The Very Best Of (2004) [FLAC|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,6 +740,8 @@ Ndidi Onukwulu - Move Together (2009) [FLAC|Lossless]<Vocal Jazz, Jazz-Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -729,6 +773,8 @@ Papa Grows Funk - Needle In The Groove (2012) [FLAC|Lossless]<Funk>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -763,6 +809,8 @@ The Groundhogs - Muddy Waters Songbook (1999) [FLAC|Lossless]<Blues-Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -796,6 +844,8 @@ Janet Klein and Her Parlor Boys - Janet Klein's Scandals or Living In Sin (2004)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -828,6 +878,8 @@ Hilde Louise Asbjornsen - Eleven Nights (2005) [FLAC|Lossless]<Jazz, Vocal Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

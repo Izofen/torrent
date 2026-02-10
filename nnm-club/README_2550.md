@@ -22,6 +22,8 @@ Circle Of Chaos - метал-группа из Стокгольма, Швеци�
 magnet:?xt=urn:btih:68FA22AFDCBA7604BBF09A7274585E5B3178449F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ McCoy Tyner & Joe Henderson - Forces Of Nature: Live at Slugs' (1966) 2CD, 2024,
 ```bash
 magnet:?xt=urn:btih:850AF6E698C8387D73D955FB4A4FA1EC4F853221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ A4. Through Rivers of the Eternal Blackness (05:45)(   Читать дальше
 magnet:?xt=urn:btih:E874CBFBFE98CEC1D763DD6E19606CC20AEFB379
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ John Dankworth - What the Dickens! (1963) 1994, Sepia [FLAC|Lossless|tracks + .c
 magnet:?xt=urn:btih:CD99BB2125D5885394EED46C45BED8CB89DCD408
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:CD99BB2125D5885394EED46C45BED8CB89DCD408
 ```bash
 magnet:?xt=urn:btih:5FFEDF1500222D8A9C21133F10C988AD48E33FAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:5FFEDF1500222D8A9C21133F10C988AD48E33FAF
 magnet:?xt=urn:btih:32F24E0611D90FD7CFEA45BB938D8FFD5A7B2DF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:32F24E0611D90FD7CFEA45BB938D8FFD5A7B2DF2
 ```bash
 magnet:?xt=urn:btih:F3767854D569F77FFD45557691BA2834471A5F1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:F3767854D569F77FFD45557691BA2834471A5F1C
 magnet:?xt=urn:btih:697FA011458C3DE0C547A6F07696A6F186755AA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:697FA011458C3DE0C547A6F07696A6F186755AA7
 magnet:?xt=urn:btih:CD143BCBFC39098F83A5421A420B2475AD99DD13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:CD143BCBFC39098F83A5421A420B2475AD99DD13
 ```bash
 magnet:?xt=urn:btih:885EC2129E35DFD25461C6295D859FC555ECFE1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Erroiak - Echoes from the Dark Lands (2025) [FLAC|Lossless|WEB-DL|tracks] <Black
 magnet:?xt=urn:btih:8135DC0811FCE8AA6804E1CDD96B87A7D9054EFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:8135DC0811FCE8AA6804E1CDD96B87A7D9054EFF
 ```bash
 magnet:?xt=urn:btih:BD26FAB6780E9DC688DE3E993200B0D642286A35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:BD26FAB6780E9DC688DE3E993200B0D642286A35
 magnet:?xt=urn:btih:61C413459FD1C18E3B288D92838811D428E5824B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:61C413459FD1C18E3B288D92838811D428E5824B
 ```bash
 magnet:?xt=urn:btih:9826C94C2257A82200F93C260D8DF52CD6032706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:9826C94C2257A82200F93C260D8DF52CD6032706
 magnet:?xt=urn:btih:FBEAA10739A853213298D09A707E01AF5A0F7FB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:FBEAA10739A853213298D09A707E01AF5A0F7FB9
 ```bash
 magnet:?xt=urn:btih:C3690B4238048EE0C053D3C7355F34C0DC466A18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:C3690B4238048EE0C053D3C7355F34C0DC466A18
 magnet:?xt=urn:btih:9339B72A9B8F9EA0D7AC8479C218A298A69F116F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:9339B72A9B8F9EA0D7AC8479C218A298A69F116F
 ```bash
 magnet:?xt=urn:btih:E022CEA67C077B07CB5760156D3C1FDA13F2F16A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:E022CEA67C077B07CB5760156D3C1FDA13F2F16A
 magnet:?xt=urn:btih:01A4665E2FBC2C29B3B9ADE4BBDB6E4463481517
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:01A4665E2FBC2C29B3B9ADE4BBDB6E4463481517
 ```bash
 magnet:?xt=urn:btih:12F916DE1FEFFA01C62D6D7A01753A1D1A787321
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:12F916DE1FEFFA01C62D6D7A01753A1D1A787321
 magnet:?xt=urn:btih:7CEDA88AAD58796D08E65290C6E2267FE893D486
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:7CEDA88AAD58796D08E65290C6E2267FE893D486
 ```bash
 magnet:?xt=urn:btih:9912421C3B7E81D144120F7D541402FD0951E360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:9912421C3B7E81D144120F7D541402FD0951E360
 magnet:?xt=urn:btih:79715AAC1F1A638A401FA80590FE1195E377E2BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:79715AAC1F1A638A401FA80590FE1195E377E2BC
 ```bash
 magnet:?xt=urn:btih:54AA3CBCA13DD6A45AE222DDDE79E20D36554219
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ VA - Espresso Pronto Roma! (Bella Musica Lounge Italiana) (2025) [FLAC|Lossless|
 magnet:?xt=urn:btih:BE87427E09A03CE7CD23EB9D3829CC6ABDB69719
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:BE87427E09A03CE7CD23EB9D3829CC6ABDB69719
 ```bash
 magnet:?xt=urn:btih:7EBB2B18D41CBB7835C9E49D821EB50E6BDCFE36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

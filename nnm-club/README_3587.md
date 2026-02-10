@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:F21C56A4A72EC1B5AADA254EB3C8B0E96DC794DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:F21C56A4A72EC1B5AADA254EB3C8B0E96DC794DC
 ```bash
 magnet:?xt=urn:btih:3820322A8D347D377B3D897E77FD31F8C105AF7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ The Aquarius - Страшные сказки (2017) [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:6B912602F97155E486B41FA6C97A828D7368426E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:6B912602F97155E486B41FA6C97A828D7368426E
 ```bash
 magnet:?xt=urn:btih:70C54891CA0528849B978567A67506064E58A5F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ magnet:?xt=urn:btih:70C54891CA0528849B978567A67506064E58A5F3
 magnet:?xt=urn:btih:8BD5D7DFF58B8A1CBA7E0E3F1C7705CE35BF4E2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ magnet:?xt=urn:btih:8BD5D7DFF58B8A1CBA7E0E3F1C7705CE35BF4E2D
 ```bash
 magnet:?xt=urn:btih:C69486AF18C6B151EA75ABFED52C83CF7D2FCE59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ Leaves' Eyes - Myths of Fate (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symph
 magnet:?xt=urn:btih:5F2174683070E078BC0B63F2DAC34555BC99884A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:5F2174683070E078BC0B63F2DAC34555BC99884A
 ```bash
 magnet:?xt=urn:btih:58E1F75AB6B5AA8E7E06A20F4AB4EEC87BDA061C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ Orion & J.Shore - Brotherhood (2011) [FLAC|Lossless|WEB-DL|tracks] <Chillout>
 magnet:?xt=urn:btih:473065E7A79BCCBC258C3F90EC853493268C64DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ Mp3tag - мощный и простой в использовании инстр
 ```bash
 magnet:?xt=urn:btih:3B48259345522E7A67CB66BBE7F7303EA8F8168E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +304,8 @@ Ron D Bowes - Paws for Thought (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:5ACBE1EC3ABD86FF6B36F5E1AB639B53713A6D62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +332,8 @@ Hurricane on Saturn - Killing Field (2020) [FLAC|Lossless|WEB-DL|tracks] <Electr
 ```bash
 magnet:?xt=urn:btih:EDBED5FD4920635EAC248AD622A163C366B499D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +362,8 @@ Art Farmer-Benny Golson Jazztet - Blues On Down (1960, 1961) 1994, Chess [FLAC|L
 magnet:?xt=urn:btih:86BF397850909A299A15ABE086BF27777808C7C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +390,8 @@ Rated Blue - Cranked Remastered (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 ```bash
 magnet:?xt=urn:btih:FF051021833ED5DB207C01A161C311391B4A3FDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +420,8 @@ The Art Farmer-Benny Golson Jazztet - Back To The City (1986) 1995, Original Jaz
 magnet:?xt=urn:btih:8C8CD8557A420B6673B1704D0603AD9FDC1D4FAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +448,8 @@ The Art Farmer-Benny Golson Jazztet - Real Time (1988) Contemporary Records [FLA
 ```bash
 magnet:?xt=urn:btih:485B738F98255529604E254314DDE23219F09C93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +480,8 @@ Atrophy - Asylum (2024) [FLAC|Lossless|image + .cue] <Thrash Metal>
 magnet:?xt=urn:btih:6F479CD4F5847770A9D7609ACDE4A3585002A10E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +508,8 @@ Kryuhm - Only in My Mind (2022) [FLAC|Lossless|image + .cue] <Heavy, Doom Metal>
 ```bash
 magnet:?xt=urn:btih:3FA82F611C124A9E48CCB2581AC7B9E6155E9A3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +538,8 @@ The Crows - Ready When You Are (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:C08D8D4FDC185D0884FA32DF4472E9B2928B33C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +563,8 @@ TechSmith Snagit облегчает захват изображений с эк�
 ```bash
 magnet:?xt=urn:btih:BAA958FE4A807C5D8E1C47807BF3348539C2485A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +590,8 @@ magnet:?xt=urn:btih:BAA958FE4A807C5D8E1C47807BF3348539C2485A
 magnet:?xt=urn:btih:43D747A0FADD9D890BD50CC28586229704AED0FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +615,8 @@ Easy New File - это расширение для поиска, которое 
 ```bash
 magnet:?xt=urn:btih:84C8148C840944184E490891495F36523494F121
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +642,8 @@ magnet:?xt=urn:btih:84C8148C840944184E490891495F36523494F121
 magnet:?xt=urn:btih:2C708C957966BF282E9DD65B7561984C513CBF3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +667,8 @@ OmniReader - полифункциональное приложение для ч
 ```bash
 magnet:?xt=urn:btih:59A4BBAF01D3788938B1F542CFF6D63E7E7583E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +697,8 @@ Rocky Athas - Livin' My Best Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 magnet:?xt=urn:btih:D23654B4AF36B68926569338D3C84F0ECFB98A82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +722,8 @@ magnet:?xt=urn:btih:D23654B4AF36B68926569338D3C84F0ECFB98A82
 ```bash
 magnet:?xt=urn:btih:9A49948EBFD9F2337944D31B6F7465A25B6BAC17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

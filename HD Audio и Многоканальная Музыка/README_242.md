@@ -1,3 +1,32 @@
+###  Публикация: 1034402   (634132) от 13.07.2016
+
+Mickey Hart - The Best of Mickey Hart: Over the Edge and Back (2002) [DTS 5.1 CD-DA|44.1/16|image+cue|DVD-Audio] <Electronic, Worldbeat, Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634132.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Angola 04:50
+2. Where Love Goes 07:34
+3. Down the Road 05:25
+4. Sweet Sixteen 08:05(   Читать дальше...   )Жанр: electronicПродолжительность: 00:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3D724F3FBFE71B008A608526D3D1244099F560C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 795044   (634547) от 02.07.2014
 
 The Who - It's Hard (1982)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
@@ -21,6 +50,8 @@ A4. It's Hard (3:47)(   Читать дальше...   )Жанр: Hard RockПр�
 ```bash
 magnet:?xt=urn:btih:57AC978D6E1368640A97A44485C38DC0D957C652
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ A4. Down And Dirty (3:17)(   Читать дальше...   )Жанр: Glam Meta
 magnet:?xt=urn:btih:8619B09483285023A9B4DDFAA0EB8077D2D7E125
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ Queen - A Kind Of Magic (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
 magnet:?xt=urn:btih:964A0913C93D40DAAAE7739E56ED680BF285240E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +134,8 @@ Thomas D. A. Tellefsen: Complete Works - 2L Audiophile Reference Recordings (201
 ```bash
 magnet:?xt=urn:btih:76A59F9CDC9EA7D1FB0C569E3C6C47BF0E3E5EFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +166,8 @@ Uriah Heep - Look at Yourself (1971, 2011 Remaster) [DSD 2.0 1/2,8224 MHz | SACD
 ```bash
 magnet:?xt=urn:btih:A6806EC8E5822C93A05B4328C5FA8DEE2ABE8800
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +202,8 @@ The Rolling Stones - Metamorphosis (1975, 2002 Remaster) [DSD 2.0 1/2,8224 MHz |
 magnet:?xt=urn:btih:DF778A404F00542887DBDF54E3751A79E5155D62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ Phil Collins & Genesis - Collection (11 Albums) (1981 - 2010) restored, declippe
 ```bash
 magnet:?xt=urn:btih:265FC7EDDC3705EE2B5C48647E1EA823F44A1131
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +260,8 @@ Jean Michel Jarre - Equinoxe (1978) [LPCM 2.0|192/24|Vinyl-Rip] <Electronic, Amb
 magnet:?xt=urn:btih:2ADE7CB1C58AEE8C79B6F5F374FCB18AEB89C67E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +288,8 @@ Matthew Lien – Arctic Refuge (2004)  [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <N
 ```bash
 magnet:?xt=urn:btih:E62C7E8395415FEA0F6E3B8582EDF0D74856C0A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +318,8 @@ CD 1
 magnet:?xt=urn:btih:381D115EAE8565989440DFDE3E5F4392A0E3EC78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +346,8 @@ A4. One More River (4:17)(   Читать дальше...   )Производс�
 ```bash
 magnet:?xt=urn:btih:D3157EC06C0C2FD21A6FC73E8D6BEE6CB85CCD66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +376,8 @@ U.D.O. - 13 Альбомов (1987-2015) [WavPack 2.0 32/192|image (Vinyl-Rip)]<
 magnet:?xt=urn:btih:93FE9E3F7F58B8107D2454FCDD6BE8573A955AC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +405,8 @@ Nazareth - Play 'N' The Game (1976) Reissue, 1979, Vertigo [WavPack 2.0|192/32|i
 magnet:?xt=urn:btih:97F170DB64E7AEDF65F7012F2B62263E60440339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +433,8 @@ A4. Становитесь в очередь за мной (5:02)(   Читат�
 ```bash
 magnet:?xt=urn:btih:CB9DF6F41C7DB2AFED9DBC307CDCF51D06D307AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +469,8 @@ B3 - Limehouse Blues – Philipp Braham [02:53](   Читать дальше... 
 magnet:?xt=urn:btih:B03E31F139E916812BC34C9BC3A4E56AAE5AECC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +497,8 @@ magnet:?xt=urn:btih:B03E31F139E916812BC34C9BC3A4E56AAE5AECC8
 ```bash
 magnet:?xt=urn:btih:8CFEB989B4CD8C7BD61090E9C84943678829E540
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +527,8 @@ magnet:?xt=urn:btih:8CFEB989B4CD8C7BD61090E9C84943678829E540
 magnet:?xt=urn:btih:A2D6D6EEB67041995F7BCF1A55D3711D31481A67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +555,8 @@ A4 Casino Boogie(   Читать дальше...   )Жанр: Blues Rock, Rock &
 ```bash
 magnet:?xt=urn:btih:92D764B8614852AE8D4CF9E037F0249B66EE2618
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +585,8 @@ A3 Lawdy Mama(   Читать дальше...   )Жанр: Blues Rock, Hard Rock
 magnet:?xt=urn:btih:918E67E33F56D3AA27E0BBB966BFD9F4CA9BA7BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +613,8 @@ Penelope
 ```bash
 magnet:?xt=urn:btih:DFE26EC7D392DF3DFF3831D917387D952402A09E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +643,8 @@ Aphex Twin - London 03.06.17 (2017) Warp Records [FLAC|48/24|Lossless|tracks] <I
 magnet:?xt=urn:btih:13CC4366AA3FAE3DEDC2495DB02AAB0255467659
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +671,8 @@ Opus - Live Is Life (1984) [WavPack 2.0|192/24|image + .cue|Vinyl-Rip] <Pop, Roc
 ```bash
 magnet:?xt=urn:btih:0720118287D941012CCD4F6C930099B66F4C1C33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +701,8 @@ A4. Когда Я Знал Тебя Совсем Другой (2:36)(   Чита
 magnet:?xt=urn:btih:725EDD029D27E6E94E374D7E78A1D94FA65E9932
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +729,8 @@ BluScenes: Gallery Moderna (2010) [DTS-ES 6.1 44.1/24|image+.cue (Blu-ray)] <Lou
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -682,29 +759,7 @@ B1. I Can't Dance (4:01)(   Читать дальше...   )Производст
 magnet:?xt=urn:btih:15B139C8604B69CE3CE80DEBDEFD65D86DC6BE4E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 341585   (661155) от 25.05.2011
-
-ForSenses II - Timber Lounge... (2011) [DTS-ES  6.1 44.1/24|*.bin+*.cue (Blu-ray)] <Lounge, Relax>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_661155.jpg" />
-</div>
-
-
-###  Подробнее
-
-1  OpeningЖанр: RelaxПродолжительность: 01:01:49
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

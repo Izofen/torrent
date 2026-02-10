@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:FCF8637C1FCD41A79F503302C35E96ED8E405161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:FCF8637C1FCD41A79F503302C35E96ED8E405161
 magnet:?xt=urn:btih:5F33B54A13456F38403EA154D8940AB87BBB7C02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:5F33B54A13456F38403EA154D8940AB87BBB7C02
 ```bash
 magnet:?xt=urn:btih:35EBFA288FF8A67B1D1BCC08C6FF785EAE43B553
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ VA - Lounge Erotique (Seductive Night in a Loungy Mood) (2015) [AAC|~326 Kbps] <
 magnet:?xt=urn:btih:59579EDFABD4A3F008E35E8A7AFC3A9BB1B005C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:59579EDFABD4A3F008E35E8A7AFC3A9BB1B005C9
 magnet:?xt=urn:btih:FC8B82550E9104891E1054F56513565C684BE8EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:FC8B82550E9104891E1054F56513565C684BE8EB
 ```bash
 magnet:?xt=urn:btih:3870BC0AB9C811BA3C8720C4961147D85E6A1C16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:3870BC0AB9C811BA3C8720C4961147D85E6A1C16
 magnet:?xt=urn:btih:1B47327D5308EEE0AB847A50DF7631E9A4AEFEFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:1B47327D5308EEE0AB847A50DF7631E9A4AEFEFB
 ```bash
 magnet:?xt=urn:btih:5C0572A6AFB6E2ED2C422409EB1EC01A74083C58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:5C0572A6AFB6E2ED2C422409EB1EC01A74083C58
 magnet:?xt=urn:btih:4786E7D65031149300E20547391B5F941E43B733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ T.K. Blue (Talib Qadir Kibwe) - Eyes of the Elders (2000) [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:C9F47783C50CFC3F5C637AAA94CECFA28C3A365A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ Polyphia - Remember That You Will Die (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog
 magnet:?xt=urn:btih:522730ACCED9B055CFD623511087B59DA88CBD21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ Ninox предоставляет возможность создавать св�
 magnet:?xt=urn:btih:FC7EEB6748A4B3BBDEAC18A88B7A238AAC500DA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:FC7EEB6748A4B3BBDEAC18A88B7A238AAC500DA7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ John Colianni - Live at Maybeck Recital Hall, Vol. 37 (1995) Concord Jazz [FLAC|
 magnet:?xt=urn:btih:597DE5643DECA7C95700E96C6AEF0F79A514F6DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:597DE5643DECA7C95700E96C6AEF0F79A514F6DF
 ```bash
 magnet:?xt=urn:btih:83CE3DB4B528EB20061FEB2A070D6B2541E8E06F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ Barnabas Sky - Inspirations (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Ro
 magnet:?xt=urn:btih:A97CBFB4004C5731F4143D4C427F6A6B3C3420A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ Galaxy Angel Z | Галактические ангелы Z [ТВ-2] [2002, TV, 1
 ```bash
 magnet:?xt=urn:btih:D787E8275B3224387C17142CA3420BE74690BBED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ VA - Bossa & Latin Flavours (2021) [AAC|~339 Kbps] <Nu Jazz, Bossa Nova, Lounge>
 magnet:?xt=urn:btih:7C1C025B740228959E6C3970A21A2BF962C7B380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:7C1C025B740228959E6C3970A21A2BF962C7B380
 ```bash
 magnet:?xt=urn:btih:48FF0CE3946E051C124542730B4CDC8D60C82DAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:48FF0CE3946E051C124542730B4CDC8D60C82DAC
 magnet:?xt=urn:btih:659F06836CA563FF011731ED5DCF6793E48A7AD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ Cannon Busters | Приятели с пушками | Пушечные ядра 
 ```bash
 magnet:?xt=urn:btih:779CB37B0918FEA1540F913EBCAAA8CC057D1AFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:779CB37B0918FEA1540F913EBCAAA8CC057D1AFD
 magnet:?xt=urn:btih:29560B98DE587AE5882B080F9FD288F5FFF45485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:29560B98DE587AE5882B080F9FD288F5FFF45485
 ```bash
 magnet:?xt=urn:btih:EA9D24536304D5A32D30F8C2AB1E5D32DDBFEBED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +647,8 @@ Bad Wolves - Dear Monsters (2022) Deluxe [FLAC|Lossless|WEB-DL|tracks] <Alt.Meta
 magnet:?xt=urn:btih:721A8673DBDFF4ED57A1F97CA0965E930156E752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:721A8673DBDFF4ED57A1F97CA0965E930156E752
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ magnet:?xt=urn:btih:721A8673DBDFF4ED57A1F97CA0965E930156E752
 ```bash
 magnet:?xt=urn:btih:CA8F79D18445331B1F366D01FE38972868C4E789
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,148 @@
+###  Публикация: 1325263   (414481) от 14.09.2019
+
+Liz Mitchell With The Czech Orchestra - Sings The Hits Of Boney M (2005) CD [MP3|320 Kbps] <Electronic, Pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Woman No Cry (3:39)
+02. Mary's Boy Child (3:13)
+03. Heart Of Gold (3:27)
+04. Mandela (4:11)(   Читать дальше...   )Жанр: Electronic, Pop, VocalПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8728FEF74777C0FD8DBFBBCF46F49D7A493504C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573285   (414638) от 30.08.2022
+
+Various - The Best Of Italo-Disco Vol. 4 (1985) [OGG Vorbis|485 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Betty Miranda – Dance	6:17
+02. Max-Him – Lady Fantasy (Remix)   6:33
+03. Koto – Visitors	6:18
+04. Camaro's Gang – Fuerza Major	5:36(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7DA0F3099DAA596BECE05EFDDB8F96B10801311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167791   (414709) от 21.09.2017
+
+VA - Retro Futurism - Italo Is Still Alive (2017) Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Synthwave, Nu-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digital Emotion - Full Control (Original Mix) 06:07
+02. Maxthor - Hunters (Extended Edit) 05:30
+03. Italoconnection - Neon Disco (Also Playable Mono Remix) 07:00
+04. Magic System DJ - Frozen Hearts (Extended Version) 06:22(   Читать дальше...   )Жанр: Italo-Disco, Synthwave, Nu-DiscoПродолжительность: 01:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF4A7596B5AB25DA7BF8FC96FD422C7BEBFE32B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573246   (414770) от 30.08.2022
+
+FIZICA - Доппельгангер (2022) Deluxe Edition [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414770.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Доппельгангер (Intro)
+3. Бизнес-класс (Intro)
+4. Бизнес-класс(   Читать дальше...   )Жанр: PopПродолжительность: 01:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:424106AA7759937776F04158A6334B176448AAB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167890   (414870) от 21.09.2017
+
+VA - Bravo Hits Vol. 99 (2CD) (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_414870.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.  P!nk - What About Us  4:32
+02.  Kay One - Senorita (feat. Pietro Lombardi)  3:59
+03.  J Balvin & Willy William - Mi Gente  3:09(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:32:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91B7B506891F5FBB0067B80F51032DA76A08A716
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167600   (415077) от 21.09.2017
 
 VA - Retro Futurism - Italo Is Still Alive (2017) [MP3|320 Kbps] <Italo-Disco, Synthwave, Nu-Disco>
@@ -21,6 +166,8 @@ VA - Retro Futurism - Italo Is Still Alive (2017) [MP3|320 Kbps] <Italo-Disco, S
 ```bash
 magnet:?xt=urn:btih:7F0B02B88183C62F89D37044D4363C9A44F47BF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ Arabesque - II, III - Japan (1979, 1980) [FLAC|Lossless]<Disco>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +225,8 @@ Nile Rodgers & Chic - It’s About Time (2018) Deluxe Edition [FLAC|Lossless|tra
 magnet:?xt=urn:btih:97C2E355D21B3B2FB532366F6642A58B6BFB9A9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +250,8 @@ magnet:?xt=urn:btih:97C2E355D21B3B2FB532366F6642A58B6BFB9A9C
 ```bash
 magnet:?xt=urn:btih:0000A4C6C38C218F02C07D0BC6980CC2F77D7730
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +280,8 @@ VA - Acoustic Music (2018) [MP3|320 Kbps] <Pop, Folk, Acoustic>
 magnet:?xt=urn:btih:AF42B36248D88448365952FCBD90A2593E01F241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +308,8 @@ Alina Orlova - Daybreak (2018) [MP3|320 Kbps] <Alternative Pop, Psychedelic Folk
 ```bash
 magnet:?xt=urn:btih:101099F9F98FC8B8A70FD5B261C7DF6F5D6783AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +338,8 @@ VA - Les Stars font leur cinema (2015) Deluxe Edition [FLAC|tracks]<Pop, Ballad>
 magnet:?xt=urn:btih:95EA9D34FF357C7B02A06DA9F019CE29C5D6611D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +366,8 @@ magnet:?xt=urn:btih:95EA9D34FF357C7B02A06DA9F019CE29C5D6611D
 ```bash
 magnet:?xt=urn:btih:74BDFDE639F2AD03B101C3B1AE00B30C935945C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +396,8 @@ VA - И Просится Сердце В Полёт... (Аэрофлоту - 75)
 magnet:?xt=urn:btih:5D5DDCBB3840A4318653372EE26D20E85B746A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +424,8 @@ VA - Первый танцевальный, Vol. 18 (2019) [MP3|320 Kbps] <Pop, 
 ```bash
 magnet:?xt=urn:btih:BAD7018E8A77DBE17AD6FBA1BC287EF5CB485A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +454,8 @@ The Radio Dept. - Running Out Of Love (2016) [FLAC|Lossless|tracks] <Indie Pop, 
 magnet:?xt=urn:btih:4126E1E9F02A4FA0A3DEC888DAE837849F118C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +482,8 @@ magnet:?xt=urn:btih:4126E1E9F02A4FA0A3DEC888DAE837849F118C5F
 ```bash
 magnet:?xt=urn:btih:696F5A337F546E9A5453FE54EA5F761136F2BCBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +512,8 @@ Tom Chaplin (Keane) - The Wave (2016) Deluxe Edition [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:5FB7ED17512EF4CE2293ABD15038AE5718FEA1E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +540,8 @@ Olivia Newton-John - Greatest Hits (1976) Japanese Edition, 1984, EMI [WavPack|L
 ```bash
 magnet:?xt=urn:btih:BBA6B08C239F9A18BF94EE94EE578F960DE94B8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +570,8 @@ CD 01:
 magnet:?xt=urn:btih:B39D9B378095EDE77F0EE2168A56C91407331F41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +599,8 @@ CD 01:
 magnet:?xt=urn:btih:E846D5912DA52A2315059BBAC99023B3DD1B5153
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +625,8 @@ Paul Brookes - Steps from Beyond (1978) LP [MP3|320 Kbps] <Electronic, Abstract,
 ```bash
 magnet:?xt=urn:btih:CBD3C7844361A941DBC32A6169542A14E5F86A46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +655,8 @@ Mylene Farmer - Ainsi Soit Je... (1988) [OGG Vorbis|485 Kbps] <Electronic, Pop>
 magnet:?xt=urn:btih:CB1F7F0F87BF59FF96740DC75DFD0D65E4C4EDB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +683,8 @@ Gram Rabbit - RadioAngel & the RobotBeat (2007) [MP3|256 Kbps] <Alternative Pop,
 ```bash
 magnet:?xt=urn:btih:5F7DA12867A32DB78FFCF9A726CDE222E48741CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +713,8 @@ Lucio Battisti - Umanamente uomo: il sogno (1972) remaster 1989 [FLAC 2.0|192/24
 magnet:?xt=urn:btih:D609323B96E6886B3862B94A7B977CEB855B2E2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,140 +742,7 @@ Fernando Express - Urlaub fur die Seele (2005) [FLAC|Lossless|image + .cue] <Sch
 magnet:?xt=urn:btih:2D365E0990B09EF6E862B753544A6D4C21FD4B3D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167349   (417340) от 20.09.2017
-
-Titan - Dama (2016) [FLAC|Lossless|tracks] <Electropop, Nu Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dama Fina
-02. HelL.A. (featuring Siobhan Fahey)
-03. Tchaikovsky
-04. Sangre(   Читать дальше...   )Жанр: Electropop, Nu DiscoПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A40B223A228EB4FAC47D0ADE75CB0CA7294BD35
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091164   (417507) от 01.10.2018
-
-Лена Василёк и Белый День - Босиком по России! (2015) [MP3|320 Kbps] <Pop, Folk>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вера-Надежда-Любовь
-02. Мамин юбилей
-03. Папина дочка
-04. Сладкий мёд(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C6C424D2C1D7CC247141B395DBA4EA860E024C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251479   (417713) от 01.10.2018
-
-Алла Пугачёва - Белый снег (2000) Compilation [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Осторожно, листопад! (5:22)
-02. Не сгорю (4:11)
-03. Белый снег (4:00)
-04. Непогода (4:47)(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E16DD74A6324EAD333B3B7CDB8309A7978BE27B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251450   (417771) от 01.10.2018
-
-Agnetha & Frida - The Voice of ABBA (1994) Compilation [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agnetha Faltskog - The Heat Is On (3:57)
-02. Frida - I Know There's Something Going On (5:31)
-03. Agnetha Faltskog - You're There (3:32)
-04. Frida - To Turn The Stone (5:19)(   Читать дальше...   )Жанр: PopПродолжительность: 01:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:270ACCFED197CB71EEC011922DEBFA04F30AE940
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947710   (417816) от 17.10.2015
-
-Pupo - Аллея Звёзд (2005) [FLAC|image+.cue]<Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_417816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celato Al Cioccolato
-02. Forse
-03. Su Di Noi
-04. Chissa Se Domani(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:18:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B13559A42C14D731F566706A5FC75B3E839DE812
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

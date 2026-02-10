@@ -19,6 +19,8 @@ The Dragoness: Command of the Flame (2023) [Ru/Multi] (1.12) License GOG
 magnet:?xt=urn:btih:B66D3079D73761884A4CCB138AE40A5BC3A631CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dark City 8: Kyiv / Мрачный город 8: Киев (2023) [Ru] (1.0) Unof
 ```bash
 magnet:?xt=urn:btih:6D14EA116A976967A8E11E299313F10FE8A0851C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Scarlet Nexus (2021) [Ru/Multi] (1.08/dlc) Repack dixen18
 magnet:?xt=urn:btih:E3730C959CBA41F6D398D6CE4881BF2FFFEA0080
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Pinball FX3 считается самым масштабным проектом 
 ```bash
 magnet:?xt=urn:btih:C5F82E3A55B1D00C6D8F3172864AB955EDBC0CBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Ash of Gods: The Way (2023) [Ru/Multi] (1.10.4)  License GOG
 magnet:?xt=urn:btih:2AD71A23D07DBD1BA6CD30C62E97D6A3DE300AF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ MAD WAY (2023) [Multi] (1.1.6) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:27E294E8E3CD131D7FC34B09DD0CD047112114AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Mato Anomalies - это пошаговая RPG, которая отправля�
 magnet:?xt=urn:btih:E10ED14303041E543DF4C8E6ACCDCD2A8193EC68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ TailQuest Defense - это игра в жанре tower defense, в которо
 ```bash
 magnet:?xt=urn:btih:13C61CD92407A6E21EA1FB60BA60FCBF6668AE1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Anvil - исследовательский центр, который заним
 magnet:?xt=urn:btih:01068E6F909F4693812831887926D1E612DAC5AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ One More Island (2022) [Multi] (1.8.1) License GOG
 ```bash
 magnet:?xt=urn:btih:8A35158FC4D6B813BFAE32E635B0FD825BFA640C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Last Shot – платформерная адвенчура, действи�
 magnet:?xt=urn:btih:D4FCE61824EFB9446ADE34FC3E193D5829B480E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Lunacy: Saint Rhodes — хоррор на выживание от первог�
 ```bash
 magnet:?xt=urn:btih:FC2A6AFB6A605C124F8AD2619F249E32AAC8A063
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Lucas Chess - одна из обучающих шахматных програм
 magnet:?xt=urn:btih:2A20CC23B0DB6E40E75BE867A2C6FB57C805EAE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Wo Long: Fallen Dynasty – это ролевой экшен от третьег
 ```bash
 magnet:?xt=urn:btih:D96B3C2060131CB4FFD7A3816A7C4B945963B260
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ World War Z - это напряженный командный шутер на �
 magnet:?xt=urn:btih:B610B2033F177E91BBDBD7CA4A04A9F86A5519FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Scrap - это независимый шутер с видом от трет
 ```bash
 magnet:?xt=urn:btih:C4481C6F4C41E0E4E6497A633CFB247600C8DCEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Ratchet & Clank: Rift Apart (2023) [Ru/Multi] (1.726.0.0) Scene Rune
 magnet:?xt=urn:btih:F2E05E250CF306B75168FEE04B106B60E8368526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:F2E05E250CF306B75168FEE04B106B60E8368526
 ```bash
 magnet:?xt=urn:btih:D400C09EC2912398A3C1E409C8F9D3E48CC0FBCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Stillborn Slayer (2023) [Ru/En] (1.0) License GOG
 magnet:?xt=urn:btih:DD258E09D9F862D45FB433654553B46935B0D931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ DROS - игра, повествующая о маловероятном сотр
 ```bash
 magnet:?xt=urn:btih:B78AEA1FD2BF43F98C4A0DD62E277FCD6B03984B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Adore (2023) [Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:3457A604F4EB51AD8FA0DEAB534E976815B27008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Demonic Supremacy - это оригинальный шутер от первог
 ```bash
 magnet:?xt=urn:btih:0F67CE5E5F2AE46E20362C05AAA6FA811ABD0051
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Oceanhorn 2: Knights of the Lost Realm / Оушенхорн 2: Рыцари за
 magnet:?xt=urn:btih:8540F5D5778D28C1A9E4576BF2EF50350822A742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ WWE 2K23 – это симулятор профессионального рес
 ```bash
 magnet:?xt=urn:btih:D1786D8FE224F2A011D26C7C0848B21D41049682
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Lunacy: Saint Rhodes - хоррор на выживание от первого 
 magnet:?xt=urn:btih:969FEBAB5504C968BA881D0C69993616B33E8E41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Mega City Police (2023) [Ru/Multi] (1.01) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:527C70F13021CE3CD1A2860DBB3A3C19CE3BEE24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

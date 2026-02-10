@@ -23,6 +23,8 @@ Nukitashi the Animation | Нукитаси [2025, TV, 10 из 11 эп.] WEBRip 1
 magnet:?xt=urn:btih:8C72124B5ACDC760877A5D5B3F4D3EEB86AFFEA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Grand Blue Season 2 / Grand Blue Dreaming 2 / Необъятный океан [�
 magnet:?xt=urn:btih:7A9B7FADCB5A8ECF5FEDF95E7940D79156945109
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ Summer Pockets / Летние карманы [2025, TV, 25 из 26] WEBRip 720p 
 magnet:?xt=urn:btih:E31E623A859C7B7541D4D6A00B1E6028958246EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Jibaku Shounen Hanako-kun 2 Kouhen | Toilet-bound Hanako-kun Season 2 (2025) | �
 ```bash
 magnet:?xt=urn:btih:80ACBA1C032B7AE07BE5C37D2D9ADE8CC2709583
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Hotel Inhumans | Отель для нелюдей [2025, TV, 12 из 13] WEBRip 
 magnet:?xt=urn:btih:F413DFFD86C2098D7A7477F5B4D7E64B16C7A091
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Nyaight of the Living Cat / Night of the Living Cat / Ночь живых кош
 ```bash
 magnet:?xt=urn:btih:76A06B95EAA2E5C874F5C4A9F298D7183EBB3262
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Uglymug, Epicfighter | Busamen Gachi Fighter | Всё тот же невзрач
 magnet:?xt=urn:btih:7C2DAA25E3448D464B6AD60C18BBDA7A9567153F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Dekin no Mogura | The Earthbound Mole | Запрещённый крот [2025, T
 ```bash
 magnet:?xt=urn:btih:F4709E9B18A28E4282249024808B7D5DFB74FDE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Jigoku Sensei Nube (2025) | Hell Teacher | Адский учитель Нубэ 
 magnet:?xt=urn:btih:B5AA76B553F3C43509F1A91FD5BD3D4A0E24A1EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ Dan Da Dan (2025) | Дандадан [ТВ-2] [2025, TV, 12 из 12] WEBRip 720p
 magnet:?xt=urn:btih:DC15C3CD06D88A596134D179C789A84C7AEDD60B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Ame to Kimi to | With You and the Rain | С тобой и дождём [2025, TV
 ```bash
 magnet:?xt=urn:btih:9861B750DF33C696543F3022B5EB75C4E969F698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ Kaoru Hana wa Rin to Saku | The Fragrant Flower Blooms with Dignity | Благо
 magnet:?xt=urn:btih:C09DDF42155DDEDD0CC9811858131350484FE35A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ He пoлyчив paбoтy cвoeй мeчты пpи кopoлeвcкoм двope, мнo
 ```bash
 magnet:?xt=urn:btih:E134A72F00FA5E2483A5C7BBC04AE54B7F1AF0E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Kizetsu Yuusha to Ansatsu Hime / The Shy Hero and the Assassin Princesses / Об
 magnet:?xt=urn:btih:A57199210AB537B99DE9D92F33EE590093C9B063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Yuusha Party o Tsuihou Sareta Shiro Madoushi, S Rank Boukensha ni Hirowareru / �
 ```bash
 magnet:?xt=urn:btih:58DD2027D237D81A59D35A7B40A308803D2A62B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ Sono Bisque Doll wa Koi o Suru 2 / My Dress-Up Darling 2 / Эта фарфоро
 magnet:?xt=urn:btih:0D79E261CD61ABAD0F355CDF72A74183C4528A9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Zutaboro Reijou wa Ane no Moto Konyakusha ni Dekiai Sareru / Betrothed to My Sis
 ```bash
 magnet:?xt=urn:btih:0EFF8149B53C3038DF64112E8B8E7C5DFC1EB05E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Hikaru ga Shinda Natsu | The Summer Hikaru Died | Лето, когда умер 
 magnet:?xt=urn:btih:B9BAAC16F181DFE70AF1B54261ECB8891DE04EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Sakamoto Days (2025) | Дни Сакамото [Часть 2] [2025, TV, 11 эп
 ```bash
 magnet:?xt=urn:btih:0F994DCAEB9CD30DA1F55417C8F85EB28535B65E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ Muchuu sa, Kimi ni. | Captivated, by You | Других таких нет [2025,
 magnet:?xt=urn:btih:98C426E9238E336FD2E27403E672C929A94DBF03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ Jidouhanbaiki ni Umarekawatta Ore wa Meikyuu o Samayou 2nd Season | Reborn as a 
 ```bash
 magnet:?xt=urn:btih:15F61C19B88CB357316A3B90D7A54D8C5B0B5CDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ Tsuyokute New Saga | Стать сильнее! Новая сага [2025, TV, 1
 magnet:?xt=urn:btih:FDE6397D9F9323AA8FA53B8F9E9CFA07110E794C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Onmyou Kaiten Re:verse | Цикл оммёдзи: Перерождение [2025
 ```bash
 magnet:?xt=urn:btih:953DF960A019D84D7DA0978ABA09E198F9CE88CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Mikadono San Shimai wa Angai, Choroi. | Dealing with Mikadono Sisters Is a Breez
 magnet:?xt=urn:btih:F0872E831E1A4EDDAABD253DB12DBE69A1DC97EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ Clevatess: Majuu no Ou to Akago to Shikabane no Yuusha | Clevatess | Клева�
 magnet:?xt=urn:btih:18D27BD1DB1F69F8F4264D6799D8152DC11BED69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Tsuihousha Shokudou e Youkoso! / Welcome to the Outcast's Restaurant! / Добр
 ```bash
 magnet:?xt=urn:btih:C47DA8F273302DDF6B9AD398ED4F2A272DD345F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -26,6 +26,8 @@ Disc2
 magnet:?xt=urn:btih:AEE925829D9174C3C483F31A83BD972CD6BB23C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -56,6 +58,8 @@ BREAKING UP SOMEBODY'S HOME(   Читать дальше...   )Жанр: жив�
 magnet:?xt=urn:btih:E95EFBD3B5D1555E2E5E752CB1ADF92FC95325FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -80,6 +84,8 @@ magnet:?xt=urn:btih:E95EFBD3B5D1555E2E5E752CB1ADF92FC95325FC
 magnet:?xt=urn:btih:B242B3A66D1A1E7745F18E9B166AF96C42F19376
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Paul McCartney - The McCartney Years (2007) 3xDVD9
 ```bash
 magnet:?xt=urn:btih:A57A6B57EF9C4C6A356EBD06DC226D5DA1439BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ Dream fest. День звезд российской эстрады (2024) WEBRi
 ```bash
 magnet:?xt=urn:btih:2ABA54F0719F0D9A635E30BA152FBD2B62F01E2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -159,6 +169,8 @@ Lady GaGa Presents: The Monster Ball Tour at Madison Square Garden (2011) DVD9
 magnet:?xt=urn:btih:3334F48AE5DB75963C9C35C6161DA5908D635DD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ Michael Jackson's Vision (2010) 2xDVD9 + DVD5
 ```bash
 magnet:?xt=urn:btih:EB55B859249695AA1656486258B3A4D05D05B43E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -207,6 +221,8 @@ Depeche Mode - Live In Berlin (2014) 2хDVD9
 magnet:?xt=urn:btih:EEB5FE6ABA16B53B60D6B505C4FFB982F843B9AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:EEB5FE6ABA16B53B60D6B505C4FFB982F843B9AB
 magnet:?xt=urn:btih:983D4179133EC13527ED3A94DC46B7131B93D7FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:983D4179133EC13527ED3A94DC46B7131B93D7FA
 ```bash
 magnet:?xt=urn:btih:D9A5BBF0660F19F25944C4812CD591EDE4B283CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +304,8 @@ magnet:?xt=urn:btih:D9A5BBF0660F19F25944C4812CD591EDE4B283CE
 magnet:?xt=urn:btih:BA5F637BEE8431D1E7AAF3D57B8A4070871F30C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +333,8 @@ magnet:?xt=urn:btih:BA5F637BEE8431D1E7AAF3D57B8A4070871F30C9
 magnet:?xt=urn:btih:D60A9D9968171A6F896F665AC9AA5AF91558EAC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ Def Leppard - Historia: In the Round In Your Face (2001) DVD9
 ```bash
 magnet:?xt=urn:btih:72E7389C7F4702D9E981A5FB1FDBB598A5324485
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +388,8 @@ Chickenfoot объединяет таланты бывших участнико�
 magnet:?xt=urn:btih:8C33A696C927643A3AD6D63590517B372A25FD78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +413,8 @@ magnet:?xt=urn:btih:8C33A696C927643A3AD6D63590517B372A25FD78
 ```bash
 magnet:?xt=urn:btih:14CCC122D461678584BD3DED4B4BECC341A462DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +444,8 @@ Jeff Lynne's ELO - Wembley Or Bust (2017) DVD9
 magnet:?xt=urn:btih:2A3BCA80CB4904CEC5C9BD43AE822D002C4D4969
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +472,8 @@ BBC - Top Of The Pops [1967-2004] (2005) DVD9
 ```bash
 magnet:?xt=urn:btih:59B51C3B84A276563071538D635026B258EAD90D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +502,8 @@ Beth Hart / Live at Paradiso (2005) DVD9 <Blues rock, Jazz fusion, Soul>
 magnet:?xt=urn:btih:176F0724A4DD713E65AE20FC44FAB15AF12140D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +528,8 @@ magnet:?xt=urn:btih:176F0724A4DD713E65AE20FC44FAB15AF12140D8
 ```bash
 magnet:?xt=urn:btih:83ADB364BBAE593B1ADABD83A92F0C2D97094956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +558,8 @@ Black Sabbath - The Last Supper '99  (2015) DVD9
 magnet:?xt=urn:btih:0C4A072C24AFD2BEC9AE0535A50B52D70D6752AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +586,8 @@ AC/DC (ACDC) - Family Jewels (2005) 2xDVD9
 ```bash
 magnet:?xt=urn:btih:CD8662D40815D34425F3FDEA57814C92CEBFF804
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +616,8 @@ AC/DC - No Bull (Live Plaza De Toros De Las Ventas, Madrid) 1996/2008 DVD9
 magnet:?xt=urn:btih:6A36966B4A3BE9062C42EE7B0C7DF2057F039FBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +644,8 @@ Black Sabbath - Live... Gathered In Their Masses (2013) DVD9
 ```bash
 magnet:?xt=urn:btih:F0ED68B301AF0C41BC23F063FE51514E210E6BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +674,8 @@ Black Sabbath and Blue Oyster Cult - Black and Blue (2004) DVD9
 magnet:?xt=urn:btih:B673BCF328164ED64B05D9AB700C3CEC92E36979
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +703,8 @@ magnet:?xt=urn:btih:B673BCF328164ED64B05D9AB700C3CEC92E36979
 magnet:?xt=urn:btih:71E5EB30CA646765FBF23B16776562B609A2C94C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,6 +731,8 @@ On Your Knees(   Читать дальше...   )Жанр: Hard Rock/Heavy Metal
 ```bash
 magnet:?xt=urn:btih:B1E3873A10E91636E573228D198773E7BFF42A2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

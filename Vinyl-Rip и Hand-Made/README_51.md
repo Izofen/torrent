@@ -22,6 +22,8 @@ Alter Bridge — американская рок-группа из Орланд�
 magnet:?xt=urn:btih:D246219CCD7C28187966639CE45A61F82177B0DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Vader — польская дэт/трэш-метал группа, основа
 ```bash
 magnet:?xt=urn:btih:0B21BD40FAFB97AF20AC965FB64E0BE21F0A406A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Possessed - Shadowcult (2019) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Th
 magnet:?xt=urn:btih:5B931EDF1117518584E5DE032C35BBEDB4EB4349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Secret Service — легендарная (   Читать дальше...   )�
 magnet:?xt=urn:btih:B94AAAF91AE0B9CD6A49947356A02621D92AA1F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Lost Horizon - пауэр-метал группа из Гетеборга, Шв�
 ```bash
 magnet:?xt=urn:btih:31C6AE0A14B08B4DD6B01EE17E315418169EB977
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Russell Allen collaborative projects: Allen - Lande; Allen - Olzon - Studio Albu
 magnet:?xt=urn:btih:4AE33D38FE0C4657501A4F9D5C808A0FAECA230E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Adrenaline Mob — американская грув-метал супергру
 ```bash
 magnet:?xt=urn:btih:9DD2E74B1B1559DC85FF52FB184AB90888821C0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ A4 Oh No, Don't Let Go(   Читать дальше...   )Жанр: Soft RockП�
 magnet:?xt=urn:btih:C5FA0771DEE15908CA0EE4D13BCEC5D787A9288F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ Wolfheart - метал-группа из Лахти, Финляндия, осн�
 magnet:?xt=urn:btih:98483922B70E817E9F7AE204A2AA39AC55E0ED7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +276,8 @@ Jethro Tull - The Broadsword and the Beast (1982) 3DVD, 40th Anniversary Monster
 ```bash
 magnet:?xt=urn:btih:83508DF59A7474A11DEBBBB4CD611833BE312D9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +306,8 @@ Sirenia — норвежский готик-метал-проект, основ�
 magnet:?xt=urn:btih:3CFFCE365B756EE82FACC92DDF929812D27B4FE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +335,8 @@ A4 I Know That My Redeemer Liveth (From 'The Messiah')(   Читать даль�
 magnet:?xt=urn:btih:D6908EE3E570286E9AF5439E59B75EFDA1B4603D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +361,8 @@ Mortemia — готик-метал сайд-проект Мортена Вела
 ```bash
 magnet:?xt=urn:btih:3D0CD45A1431C2E03A5ADEBD2348E1D64C41CE36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +391,8 @@ A3 Ballade(   Читать дальше...   )Жанр: Classical, RomanticПр�
 magnet:?xt=urn:btih:3340FE0ABF6323E7917186F9C08D0600F10BC1DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +419,8 @@ A2 (b) Rondeau(   Читать дальше...   )Жанр: Classical, BaroqueП
 ```bash
 magnet:?xt=urn:btih:FD5EF0CEEB204F592051B102CB6D3AD0D2122B11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +449,8 @@ Myrath (араб. ميراث‎, наследие) — ориентал-мета
 magnet:?xt=urn:btih:CDB5B44803276518C7572F62433471C016577E89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +477,8 @@ Heathen — группа из США, играющая в стиле спид/т
 ```bash
 magnet:?xt=urn:btih:D3F67AB7F0FAA9CAD2F25CBEEE20A8E1EA2D17AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +507,8 @@ Rage Against the Machine (RATM) — американская рок-группа
 magnet:?xt=urn:btih:57E928B10BFEAB8F77CE1EED003113981F02D571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +535,8 @@ Heavenly — пауэр-метал-группа из Франции, основ�
 ```bash
 magnet:?xt=urn:btih:6DF8B9D744853AD7EC24D5300D0FD0381DE80251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +565,8 @@ A2(a) Kiss Me Honey, Honey, Kiss Me(   Читать дальше...   )Жанр:
 magnet:?xt=urn:btih:A4C22089662F74B2DBA382F791C679DE815B41DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +593,8 @@ A4 Ascoltai Le Porte Dell'Asil S'Apron Gia, Dio, Che Nell'Alma Infondere (Don Ca
 ```bash
 magnet:?xt=urn:btih:870A41064ADDD114E0F45E11BFF88C53539B6227
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +623,8 @@ A4 Rise Of The 4th Reich(   Читать дальше...   )Жанр: Symphonic 
 magnet:?xt=urn:btih:B08F578F930294AF66E5AA2A0E22A33857C88674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +652,8 @@ Seventh Wonder — прогрессив-метал группа, была соз
 magnet:?xt=urn:btih:434CC2B40B5BD6A7B47CC4DB3FA555D8965DB38A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +679,8 @@ Vince Neil (Motley Crue) - Studio Albums (3 releases) (1993-2010) hand made [res
 ```bash
 magnet:?xt=urn:btih:3859703AFDF4F32DD867C90A54641393996B9248
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +709,8 @@ Stone Sour — американская метал-группа, образов�
 magnet:?xt=urn:btih:00E4519727C61B26E164259B1C28DFA4215BA805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,6 +736,8 @@ Mark Robert Boals (родился 5 декабря 1958 г.) - американ�
 ```bash
 magnet:?xt=urn:btih:6E9BF7D6F234F9345E1DB71915500F6983F1995D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

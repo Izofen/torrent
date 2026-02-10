@@ -22,6 +22,8 @@ VA - Blue Note Re:imagined 2020 (2020) [AAC|~321 Kbps] <Contemporary Jazz>
 magnet:?xt=urn:btih:9BC189C7ECA07DE75F1C091C5AC62B7519CF814D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:9BC189C7ECA07DE75F1C091C5AC62B7519CF814D
 ```bash
 magnet:?xt=urn:btih:01C3A5C1E5DF8C9ADA8EAB0C403AAF94C4DE1D36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ TCP (Temporal Chaos Project) - Temporal Chaos (2016) [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:3384EB236BDE97E5421C72388EC25F0431B2EFED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Sonny Rollins - The Best of Sonny Rollins: The Blue Note Years (1989) Blue Note 
 ```bash
 magnet:?xt=urn:btih:70E008F2A0C110E8179606BD048D9B70B6FD309E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:70E008F2A0C110E8179606BD048D9B70B6FD309E
 magnet:?xt=urn:btih:C5A64A4A0AAA1748004EC4273BE09D8ED5C801A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ VA - 50 Awaited Peace of Mind: Music for Meditation (2016) [MP3|320 Kbps] <New A
 magnet:?xt=urn:btih:D75A449D24B5DD4F55C5B3472FA3A055FCABD754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:D75A449D24B5DD4F55C5B3472FA3A055FCABD754
 ```bash
 magnet:?xt=urn:btih:8E0A880BA5D5E499A9696BF679A55D502FC7F53E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ VA - Ibiza 2016. Best of Funky-House and Disco-House [Compiled by Mistik] (2016)
 magnet:?xt=urn:btih:1A91D43D8855A5DB6FD3870387ABB018729CD1CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ VA - Smooth Jazz Music Collection (2016) [MP3|320 Kbps] <Jazz>
 magnet:?xt=urn:btih:FB808662CC7B78C02F98115B878368DF5ECD95A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ Woodshop News — издание представляет самую после�
 ```bash
 magnet:?xt=urn:btih:EEEAF82730D0EF148E7604983E16B133AEAF4CD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +303,8 @@ Pete Tong and The Heritage Orchestra - Classic House (2016) [MP3|320 Kbps] <Elec
 magnet:?xt=urn:btih:F0A4D10BE4540457465D66BC09B7AC4F2A5A60CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +330,8 @@ Mors Principium Est - 5 albums (2003-2014) [MP3|320kbps] <Melodic Death Metal>
 magnet:?xt=urn:btih:7A538017FE4E533E7AD9FEEF5ACFB4332B17EDDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ magnet:?xt=urn:btih:7A538017FE4E533E7AD9FEEF5ACFB4332B17EDDF
 ```bash
 magnet:?xt=urn:btih:8AAC65A1F0BF79D2419CB37F16B68591E4CC0861
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +382,8 @@ magnet:?xt=urn:btih:8AAC65A1F0BF79D2419CB37F16B68591E4CC0861
 magnet:?xt=urn:btih:94D2948049D7AE606F542F6FCC683D708E0396A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:94D2948049D7AE606F542F6FCC683D708E0396A5
 ```bash
 magnet:?xt=urn:btih:AD44EF4E885D6871A9FB740D4786689F44C2A35C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ Monit 1.1.1 [En]
 magnet:?xt=urn:btih:C975840C3E07770E36CAAA3CCF6578F6043433A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ magnet:?xt=urn:btih:C975840C3E07770E36CAAA3CCF6578F6043433A5
 ```bash
 magnet:?xt=urn:btih:73E960D2B071E2C64AE5B28F2FCE89BC1C8F1393
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +493,8 @@ Bumble Beezy - Deviant (2016) [MP3|320 Kbps] <Hip-Hop>
 magnet:?xt=urn:btih:F7D80CC1D289C0072AAEAC2EDB6A381E047A89F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +522,8 @@ Capture Gif 1.4.4 [En]
 magnet:?xt=urn:btih:CEEFFFDD56DB42E8A4A6F457F9E0EA6AB7B3B093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +548,8 @@ magnet:?xt=urn:btih:CEEFFFDD56DB42E8A4A6F457F9E0EA6AB7B3B093
 magnet:?xt=urn:btih:127671FC0508C68957BF9E442A2075280705E971
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +573,8 @@ magnet:?xt=urn:btih:127671FC0508C68957BF9E442A2075280705E971
 ```bash
 magnet:?xt=urn:btih:6FC46B5A926EFB2100F6668DC453073AB6001539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +602,8 @@ magnet:?xt=urn:btih:6FC46B5A926EFB2100F6668DC453073AB6001539
 magnet:?xt=urn:btih:A1C088718B9702436A1464C2283CCD7477351343
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +628,8 @@ magnet:?xt=urn:btih:A1C088718B9702436A1464C2283CCD7477351343
 magnet:?xt=urn:btih:D079C9A1354E137ECD139A380F8CF90B969A9537
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:D079C9A1354E137ECD139A380F8CF90B969A9537
 ```bash
 magnet:?xt=urn:btih:4C94E344384B6E182EAC2643880D932406BEF51B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ Tony Carey - For You: Best Of 1988 - 1990 (1993)  [FLAC|Lossless|image + .cue]<C
 magnet:?xt=urn:btih:858FC7DF9AA9630D034DA6687BDF126A7374522A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ magnet:?xt=urn:btih:858FC7DF9AA9630D034DA6687BDF126A7374522A
 ```bash
 magnet:?xt=urn:btih:D2B90F7AA5E9E96F1077FD76F51B360F3CDCA7EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

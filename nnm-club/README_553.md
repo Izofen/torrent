@@ -22,6 +22,8 @@ Neil Diamond - The Best of The Movie Album (1998) [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:167F7E0900F4980E3593A980BD8E607ABB4EC818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ The Funeral Portrait - Greetings From Suffocate City (From Beyond The Abyss: Del
 ```bash
 magnet:?xt=urn:btih:8DD186B90C38262D9E9288FED5988E4CDD8483BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Insania - The Great Apocalypse (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 magnet:?xt=urn:btih:FCB83541CCE621F78A1D31E49E073CCFB5CBFF76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:FCB83541CCE621F78A1D31E49E073CCFB5CBFF76
 ```bash
 magnet:?xt=urn:btih:C0DF53FFAA1737C20331132067A6AD16FDCE2A6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ ARTY - Live @ Audio (San Francisco, United States) (2025-05-24) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:E9217FCD63EF317AFC6578EB2858E6B8365E9024
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Saxon - Eagles Over Hellfest (2025) Live [MP3|320 Kbps] <Metal, Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:88195AF8279CDB19ABDFC0FB8FE3D1FC51093D2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ NoiZZy - Dreamland (2025) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal>
 magnet:?xt=urn:btih:FCAB9B9618EF77C098A267E67060A1D733AD6BC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:FCAB9B9618EF77C098A267E67060A1D733AD6BC2
 ```bash
 magnet:?xt=urn:btih:4E264965FB249A84DF3AE1A66E84046E669E8C45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Kings of Leon - Only by the Night (2008) [FLAC|Lossless|tracks + .cue] <Southern
 magnet:?xt=urn:btih:829C2F4E6A5793440B33C1F7800673AA6B7965AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ The Beautiful South - Welcome to the Beautiful South (1990) [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:F84150524A5162D13A693E487828EA7B7FD1C63A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Our Lady Peace - Clumsy (1997) [FLAC|Lossless|tracks + .cue] <Alternative Rock, 
 magnet:?xt=urn:btih:D1BC670F98C805AB2A2D2CE677DA183558C63B76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Highsociety - Datamosh (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, 
 ```bash
 magnet:?xt=urn:btih:9FE126F7714FE8F66C07A82108B219D252A26C68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ The Veronicas - Hook Me Up (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Roc
 magnet:?xt=urn:btih:B515FFF5A0FCB12BCC1FBD54E64E4152B1E79747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Crematory - Transmigration (1993) Reissue, Remastered, 2025, Roar [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:4F980F0C57867BC33EDDBECB6356BE8BF9366C50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Saxon - Eagles Over Hellfest (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Me
 magnet:?xt=urn:btih:2D704BB31725FAD4652A32938CC7B80DD9F4DF8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ Crematory - Transmigration (1993) Reissue, Remastered, 2025, Roar [FLAC 24/44.1|
 magnet:?xt=urn:btih:3C8F257C9877839346E3B6F206CC401943FC2773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ magnet:?xt=urn:btih:3C8F257C9877839346E3B6F206CC401943FC2773
 ```bash
 magnet:?xt=urn:btih:A6F60E248A19D5096A29BCC48627770A403B1824
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ VA - Compilation Part 168 Electronic (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:CC105876DF687B84F0F8751F898BE16D78A21A8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +538,8 @@ magnet:?xt=urn:btih:CC105876DF687B84F0F8751F898BE16D78A21A8C
 magnet:?xt=urn:btih:1F880ED10830F9472D5FD46588423C6938921DBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +563,8 @@ magnet:?xt=urn:btih:1F880ED10830F9472D5FD46588423C6938921DBD
 ```bash
 magnet:?xt=urn:btih:6BC9A0497E36A90D75A943C83F9B291FA302B2DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +591,8 @@ magnet:?xt=urn:btih:6BC9A0497E36A90D75A943C83F9B291FA302B2DA
 magnet:?xt=urn:btih:E9C5B289EC2468D90E33A61867E3747AD2A0B75F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +616,8 @@ magnet:?xt=urn:btih:E9C5B289EC2468D90E33A61867E3747AD2A0B75F
 ```bash
 magnet:?xt=urn:btih:4D258BDFDA66C678A5198F5CF11BF0B802CD910B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +645,8 @@ magnet:?xt=urn:btih:4D258BDFDA66C678A5198F5CF11BF0B802CD910B
 magnet:?xt=urn:btih:182057F8544E75A11AFC79F16ED0F47B88EC6C9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +670,8 @@ magnet:?xt=urn:btih:182057F8544E75A11AFC79F16ED0F47B88EC6C9D
 ```bash
 magnet:?xt=urn:btih:18B4ED65489C1642FDD95153BB09CF8725E6D88D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +697,8 @@ AirBrush: ИИ Фоторедактор v7.9.0 Mod by PieMods [Ru/Multi]
 magnet:?xt=urn:btih:CAA2417FE63A1D36BA8454CD10893A55AD84D8F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +722,8 @@ magnet:?xt=urn:btih:CAA2417FE63A1D36BA8454CD10893A55AD84D8F5
 ```bash
 magnet:?xt=urn:btih:60F57BAA8527646D3104271B02A7AE0A3193D4CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

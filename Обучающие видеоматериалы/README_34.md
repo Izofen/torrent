@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:F281E7CEC4107289B04B920FE563A4CA3E0F25EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:F281E7CEC4107289B04B920FE563A4CA3E0F25EC
 ```bash
 magnet:?xt=urn:btih:161EE761C10E953C43D682A49D50DEEBC2BB261A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma - с нуля
 magnet:?xt=urn:btih:16C3040127B49992C769924F51ED55F8225B34AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ magnet:?xt=urn:btih:16C3040127B49992C769924F51ED55F8225B34AA
 magnet:?xt=urn:btih:F6B4FE17646F0BCB0025859AAAFB6DD9D34CF2B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ Udemy, Maksim Skachko | Базовый курс по строительной м
 ```bash
 magnet:?xt=urn:btih:719AC4C8029AEE9E7A69D78CE2135F05DD9D305B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ YouTube канал автора с примерами его работ и др�
 magnet:?xt=urn:btih:86CB55FB6FBA39B00D5E3593F3F26F2B1E1D1F22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ Cryptology School | Cryptology 10 (2023) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:D1DFEA4F59BA9C5488EF561F696DD57854ACA08A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ CRYPTOLOGY — это большая команда из 26 практикующ
 ```bash
 magnet:?xt=urn:btih:77EF2F36FFBDDFBA9D69F51148ED917A977CC01B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ Gustavo Pezzi | 3D Computer Graphics Programming (2023) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:23D01DC52E54DF419B621F3F4990487F697FF2EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:23D01DC52E54DF419B621F3F4990487F697FF2EF
 magnet:?xt=urn:btih:57A8E0B2B0DCAEB3BB9594120EE32B2D59C0054E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ Houdini не содержит запрещенных технологий, ма�
 ```bash
 magnet:?xt=urn:btih:C26BA3D3D69503B05824FD90E9901964EA79DC71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ CyberYozh Academy, LastByte, Евгений Ивченков | Анонимно�
 magnet:?xt=urn:btih:97425BBE2C2F08FB2A502D35EF65EEB9674ACABF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +357,8 @@ magnet:?xt=urn:btih:97425BBE2C2F08FB2A502D35EF65EEB9674ACABF
 magnet:?xt=urn:btih:CA13892A103838098EFA81E9B797BF93D46E4C11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ Jcenters | C разбега в синематик (2023) WEB-DL [AD] [RU]
 ```bash
 magnet:?xt=urn:btih:847E82C4CE6EA796E2A7BC3C7C57FD619B7B6075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +413,8 @@ DLC «Вечные знания» \\ 36 часов дополнительног�
 magnet:?xt=urn:btih:7DB7C3C748E0CEAEA771EA1FE0F98BC858CA7389
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +442,8 @@ Udemy, Elchin Jamalov | Windows Server 2016 (70-742) полный видеоку
 magnet:?xt=urn:btih:5137DB7DE3EFC49DAE795976A25D2C3FBC37DCA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +469,8 @@ Liveclasses, Павел Лебедев | PowerPoint: быстрый старт (
 ```bash
 magnet:?xt=urn:btih:F56A687BF8AA1E0D89D2E7FF2D6406AB63F69195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +498,8 @@ Geometry Nodes позволяет создавать сложные 3D-моде�
 magnet:?xt=urn:btih:645A7E9B101762A759802E4D3630E7F3CACD2223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +524,8 @@ Udemy, GameDev.tv Team, Stephen Woods | Blender Material Nodes Master: Create Pr
 ```bash
 magnet:?xt=urn:btih:4666B27F19025B8CD89EBB75D83398BD76B89EA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +553,8 @@ Stepik, Глеб Михайлов | А/Б-тесты с Глебом Михай�
 magnet:?xt=urn:btih:9E9D4DEE3FDA40F61DD66488213B89B65A1BAA5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +578,8 @@ Mishkie, Артём Морозов | PowerPoint (2021) WEB-DL [AD] [RU]
 ```bash
 magnet:?xt=urn:btih:1FCF7D4DA58D82AD1EA1E3A43C9B03C515F72590
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +606,8 @@ Gromov-PLC, Дмитрий Громов | HMI Язык C++ в среде Qt Crea
 ```bash
 magnet:?xt=urn:btih:4E929FE349DB8285B659741FCC1A4DCC4554E975
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +636,8 @@ Udemy, Elchin Jamalov | Windows Server 2016 (70-741) полный видеоку
 magnet:?xt=urn:btih:00E571D40DD396A4ACCB5AE95943D27684C0A916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +661,8 @@ Gumroad, Eric Huang | 3D PBR Sci-Fi Corridor Tutorial For Game Production (2019)
 ```bash
 magnet:?xt=urn:btih:321A83D31A26367B13A9717403F364748B77F3D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +691,8 @@ magnet:?xt=urn:btih:321A83D31A26367B13A9717403F364748B77F3D9
 magnet:?xt=urn:btih:B61A8BCA96BF055C15EDA1D7DA1399631962E116
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +716,8 @@ magnet:?xt=urn:btih:B61A8BCA96BF055C15EDA1D7DA1399631962E116
 ```bash
 magnet:?xt=urn:btih:F4B9DCF948E486BAABA621295E9183E683A2F014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

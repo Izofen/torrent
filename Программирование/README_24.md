@@ -19,6 +19,8 @@ Eric Lengyel | Foundations of Game Engine Development, Volume 1: Mathematics, Vo
 magnet:?xt=urn:btih:24C461C10D1B5F5CC225D39289ACA30C7E3B6C66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Spiro Buzharovski | Introducing Blockchain with Java (2022) [PDF][EN]
 magnet:?xt=urn:btih:20F1DCF16EBC7850FC5FAB7CFEA25B2A7364FC15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Mike McShaffry, David Graham | Game Coding Complete (2012) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:8791DF0AF36D58B1ACC81DA51BB56181E03A90D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:8791DF0AF36D58B1ACC81DA51BB56181E03A90D9
 magnet:?xt=urn:btih:A50B4376086FD2399BB525A306322FFD5BC8B4F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Raúl Ferrer García | iOS Architecture Patterns: MVP, MVVM, VIPER, and VIP in S
 ```bash
 magnet:?xt=urn:btih:256B61230E8F455B0E8687F4D35A959700650290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:256B61230E8F455B0E8687F4D35A959700650290
 magnet:?xt=urn:btih:AD5DCCC7EF8A110D8B6D57D6B029D080A2D8FFC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:AD5DCCC7EF8A110D8B6D57D6B029D080A2D8FFC9
 ```bash
 magnet:?xt=urn:btih:0B68A5CEA24316C10D0E789D543E2C70EB496395
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ CUDA - вычислительная архитектура, разработан
 magnet:?xt=urn:btih:4CDF0FF44ECC98644BD9CB13B177BF27CC6892DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:4CDF0FF44ECC98644BD9CB13B177BF27CC6892DE
 magnet:?xt=urn:btih:FFEFCC275E1C3FD58EA4874141AA944FB1810C1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Dr. Nirali Dabhi, Dr. Dharmendra Patel, Dr. Atul Patel | Web Development Toolkit
 ```bash
 magnet:?xt=urn:btih:EF73760ECD1B5CC1446D43493229162B02DAEE1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:EF73760ECD1B5CC1446D43493229162B02DAEE1C
 magnet:?xt=urn:btih:C68F803671E4A82A938B203F15144DA414EFE289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:C68F803671E4A82A938B203F15144DA414EFE289
 ```bash
 magnet:?xt=urn:btih:0FDE06A413C52B88528DA8111FA0448CDE6C44E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ b]Формат:
 magnet:?xt=urn:btih:8EF626187D6E24FC9504762934E5514D9C55D496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:8EF626187D6E24FC9504762934E5514D9C55D496
 ```bash
 magnet:?xt=urn:btih:2DC2A0EBBF13D199FC1B909F0BEED500A9A3BAE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Swift известен как язык разработки приложений
 magnet:?xt=urn:btih:44D0DE2AD284F54069099AEE2E1EFB2F74E2F0EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:44D0DE2AD284F54069099AEE2E1EFB2F74E2F0EF
 magnet:?xt=urn:btih:3D9CB54CCFC0B0D557EC421B7C4EEC31834EB8FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:3D9CB54CCFC0B0D557EC421B7C4EEC31834EB8FD
 ```bash
 magnet:?xt=urn:btih:813B5BFE44663D6E3E821854E78EFE6585AF5B7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Aймен Эль Амри | GPT-3. Программирование на Python 
 magnet:?xt=urn:btih:28F6310FF5759A9FCA276F44F6BB977F5B3AD6A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:28F6310FF5759A9FCA276F44F6BB977F5B3AD6A2
 ```bash
 magnet:?xt=urn:btih:307E4E143A27B2735ED597547DAABFB0C52BBB24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:307E4E143A27B2735ED597547DAABFB0C52BBB24
 magnet:?xt=urn:btih:86756FBA8133B1BD9168A4D7875D054E0BF5D818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Umesh R. Hodeghatta и др. | Practical Business Analytics Using R and Python (
 magnet:?xt=urn:btih:480B1799A8BD71FFE8392F7773038AF9726AA1A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:480B1799A8BD71FFE8392F7773038AF9726AA1A8
 ```bash
 magnet:?xt=urn:btih:EC4AECF2D646D838046587D8C68D5A1E5DA9ECBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Laurentiu Spilca | Troubleshooting Java: Read, debug, and optimize JVM applicati
 magnet:?xt=urn:btih:4C36BBF26108AF9ADB6C6282E90EE46EAEBAC91A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:4C36BBF26108AF9ADB6C6282E90EE46EAEBAC91A
 ```bash
 magnet:?xt=urn:btih:9C80B0438F329F890DAA3C1D4759D3380DDC1D84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:9C80B0438F329F890DAA3C1D4759D3380DDC1D84
 magnet:?xt=urn:btih:985841285BBCBCE31984ED985FE0B6AB3CE200CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Publishing Python Packages научит вас, как легко делитьс
 ```bash
 magnet:?xt=urn:btih:6F262AF646465E5DA9D749CD6A28D686B75DA118
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,145 @@
+###  Публикация: 1057010   (477601) от 27.09.2016
+
+Kristy Thirsk - Phoenix (2014) [MP3|320 Kbps] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mistake (03:32)
+02. Little Soldier (03:51)
+03. Hourglass (03:21)
+04. Bandage (03:57)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:56:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9A536CC8624C0655E0E57CB865046D837E9951
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057123   (477707) от 27.09.2016
+
+Charlee Remitz - Bright White Trims (2015) [MP3|320 Kbps] <Alternative Pop, Indie Dream Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King's Cup
+02. Fillin' in for a Goddess
+03. Cake Eater
+04. Bmw(   Читать дальше...   )Жанр: Alternative Pop, Indie Dream Pop, ElectronicПродолжительность: 00:26:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4656FFF7EDEBCCA0F162D99509589395E4C02DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 127194   (477871) от 17.09.2009
+
+Plazma / Плазма - 607 / Six Zero Seven (Extended) (2004) [MP3|320kbps]<Pop-Rock>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop-RockПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244750   (477951) от 03.09.2018
+
+VA - Top 50 Drops Summer '18 (Part 1) (2018) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_477951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T-Signal - Make Me Feel
+02. Sandy Lee - Because of You (Club Mix)
+03. Don Carlo - Excited
+04. Crazybeats - Battle in the Castle(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 03:28:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:900C45A4827DD288B78448033EC11AD64FF88FC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160157   (478196) от 23.08.2017
+
+VA - Future Soundz (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Christopher S & Luca Hanni - Good Time (Radio Mix)  3:23
+02.  Simeon - Summer Belongs to Us (Radio Mix)  3:17
+03.  Schuhmacher feat. Danny Dunn - Enjoy The Dancefloor (Official Street Parade Hymn 2014) (Radio Mix)  3:08
+04.  Sergey Smile - Save Tonight (feat. Joeboe) (Radio Mix)  3:19(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A954D296293B98BD57EB33779562ACE240409B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1566728   (478335) от 31.07.2022
 
 Beyonce - RENAISSANCE (Explicit) (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B, House>
@@ -21,6 +163,8 @@ Beyonce - RENAISSANCE (Explicit) (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, R&B,
 ```bash
 magnet:?xt=urn:btih:EA2B7B696E1DAADC60020F4B0723280A613E2877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +199,8 @@ Inna - I Am The Club Rocker (2011) [MP3|320 kbps]<Electropop, Dance>
 magnet:?xt=urn:btih:F2DCB878F3B69D480EE582DDEBC372D5BCA430AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +227,8 @@ VA - DanceNet (1998) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Eurodance, 
 ```bash
 magnet:?xt=urn:btih:1C15D09E19B2C6DC12CF87043852930C7B2416B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +257,8 @@ VA - 80s Road Trip (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:24D654F29DB29241034FF6F55D96E7B4B85E4D09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +285,8 @@ A' La Carte - 4 Albums (1980-1989) Reissue CD [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:32A6A5CE4C0A99284886AEE1372D58186AAFA614
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +315,8 @@ Randy Irwin - Randy Irwin's Love Hustle (1977) LP [MP3|320 Kbps] <Disco, Instrum
 magnet:?xt=urn:btih:C9185FC4D9A0B14C59532AF2EEB4BD4A716BF04C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +344,8 @@ DJ BOBO - Mystorial (2016) [FLAC|Lossless|tracks] <Pop>
 magnet:?xt=urn:btih:40960CE1138376CB87FBF1E2C70334ED52738D11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +372,8 @@ magnet:?xt=urn:btih:40960CE1138376CB87FBF1E2C70334ED52738D11
 ```bash
 magnet:?xt=urn:btih:AD6409C6DD142BB2DB3D1F72CD9CB5627D03CADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +408,8 @@ magnet:?xt=urn:btih:AD6409C6DD142BB2DB3D1F72CD9CB5627D03CADB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +436,8 @@ Celine Dion - The Best So Far... 2018 Tour Edition (2018) [FLAC|24/44,1|Lossless
 ```bash
 magnet:?xt=urn:btih:4585AB403B9E6183A93EE352F8FA05946C0D2EAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +466,8 @@ Dschinghis Khan - Golden Disco Hits (2001) Compilation, Unofficial [APE|Lossless
 magnet:?xt=urn:btih:50EF2EB3AE1A9CF1CDF73068C4B9DE9678646D0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +495,8 @@ magnet:?xt=urn:btih:50EF2EB3AE1A9CF1CDF73068C4B9DE9678646D0B
 magnet:?xt=urn:btih:8B94995733800019C68232AAF497ACFD7DDBC4D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +523,8 @@ VA - Disco Inferno (2018) [MP3|320 Kbps] <Club, Funky, Jackin, Nu-Disco, Indie D
 ```bash
 magnet:?xt=urn:btih:10DE14B51667D456CD2EFF4ACE74FBE60DE1AC11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +559,8 @@ VA - Best Of 100% Hits (2003) 2CD [FLAC|Lossless]<Pop, Rock, Oldes, Retro>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +587,8 @@ Beyonce - Renaissance (2022) [MP3|320 Kbps] <R&B, Soul, Pop>
 ```bash
 magnet:?xt=urn:btih:3B6409F791B6FF40E66B403F91F3D2B1AD5CB5AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +623,8 @@ VA - Pure 60's ... (2012) Collection BoxSet 4CD[MP3|320 кб/с]<Pop, Rock, Olde
 magnet:?xt=urn:btih:8251262F1D18663EED73E67E21DEE8EF7513CC00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +651,8 @@ ABBA - Gold: Greatest Hits (1992) Polydor D120679 [FLAC|Lossless|image + .cue]<P
 ```bash
 magnet:?xt=urn:btih:BB1DCDE3CE10D34B6CB21374ABDDD5E0671B5E1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +681,8 @@ Lana Del Rey - Honeymoon (2015) [FLAC|tracks+.cue]<Indie Pop>
 magnet:?xt=urn:btih:53E6F1D4935854F5E7A6A74860E7A0B7991498E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +709,8 @@ Muslim Magomayev (Муслим Магомаев) - Arias From Operas (2015) [FLA
 ```bash
 magnet:?xt=urn:btih:52AAAF720EF6E611567E110411EC46DB97AAC06C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +739,8 @@ D.D. Sound - 4 Albums (1977-1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk-Sou
 magnet:?xt=urn:btih:0E36639FE329B6BD4F513206838A73DC8E73D061
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,140 +768,7 @@ magnet:?xt=urn:btih:0E36639FE329B6BD4F513206838A73DC8E73D061
 magnet:?xt=urn:btih:539EE251C5CF50438CB6809D25226F1B27F44F04
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938405   (481594) от 18.09.2015
-
-Lana Del Rey - Honeymoon (2015) [FLAC|Lossless|WEB-DL]<Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honeymoon
-02. Music To Watch Boys To
-03. Terrence Loves You
-04. God Knows I Tried(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61FC7BEBD107D97237BB0F9E1D38BF00C78BFEED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056274   (481667) от 25.09.2016
-
-DJ Piligrim - Om (2016) [MP3|320 Kbps] <Pop, Dance, House>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Необычный концептуальный альбом, состоящий из авторских кавер-версий индийских мантр.01. Intro (Om Ganapataye Namah)
-02. Sita Ram (Sattva Reggae Mix)
-03. Om Namah Shivaya (Deep Sattva Dance Mix)
-04. Chami (Sattva Dance Mix)(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 01:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE84807B49A5C3AA848F6D690EDCB445E1FB4562
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056404   (481684) от 25.09.2016
-
-Olivia Newton-John - The Definitive Collection (2002) [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_481684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даже удивительно, что Olivia Newton-John так мало представлена на нашем трекере. Может быть потому, что она из Австралии, может быть потому, что уже мало кто помнит её замечательный дуэт в фильме 1978 года "Бриолин" с Джоном Траволтой (на нашем трекере он по праву в разделе зарубежной классики). А ведь пятнадцать её хитов достигали лучшей десятки хит-парада (   Читать дальше...   )01. You’re The One That I Want (John Farrar) ©1978 Polydor (UK) Ltd.
-02. Xanadu (Jeff Lynne) ©1980 MCA Records
-03. Magic (John Farrar) ©1980 MCA Records
-04. Sam (John Farrar / Hank Marvin / Don Black) ©1976 MCA Records(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3709AF4705BFA472127E6F63FAEDAF4D07CC8031
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244414   (482020) от 01.09.2018
-
-Chris De Burgh - Spark To A Flame: The Very Best Of Chris De Burgh (1989) [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Waiting Heart
-02. Don't Pay The Ferryman
-03. Fire On The Water
-04. Sailing Away(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:08:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E3B0BD364BB0A25142EF69B8091D95F17C1918C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244411   (482024) от 01.09.2018
-
-Вячеслав Малежик - Альбом (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_482024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вчерашние Дети
-02. Эхо Любви
-03. Утки Крякали
-04. Конотоп(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E890F6704209D5C9C52BA7BEA899EDFDBEF0283B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

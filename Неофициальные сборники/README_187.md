@@ -22,6 +22,8 @@ VA - Sunset Vibe: Absolute Chillout (2020) [MP3|320 Kbps] <Chillout, Lounge, Amb
 magnet:?xt=urn:btih:3939B2ED97CE611261A772B62789A8F43AB7E636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Bracelets Of Sound: Instrumental Jazz Music (2020) [MP3|320 Kbps] <Jazz, In
 ```bash
 magnet:?xt=urn:btih:013DEE37F31B6EE7463597CC2F332B400AB146F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - The Gambling: Punk Rock Compilation (2020) [MP3|320 Kbps] <Punk, Punk Rock>
 magnet:?xt=urn:btih:73BD57EED8F5F3DDFFEC9DC71F679B93EABB8060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ VA - Deep House Mafia (2020) [MP3|320 Kbps] <Deep House, Electro>
 magnet:?xt=urn:btih:1CD878CB81D32EE404B332276A282EA87D2CB142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ VA - Sentimental Rock Blues Story (2016) [MP3|192-320 Kbps] <Rock Blues>
 ```bash
 magnet:?xt=urn:btih:DDA8E8F452C581909A2B7E1907889D94DEDDD8B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ VA - DeepEmotions - Car Dubstep Vol.9 (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:23D4067C3280C4D321166A4EEBCD532F3D9AA1C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +208,8 @@ VA - Dj Compressor Relax Mix 2012-11 (2012) [MP3|320 кб/с]<Downtempo, Lounge,
 magnet:?xt=urn:btih:5E2440F5867D555E342E6C163825A024C8ABA5A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +236,8 @@ VA - Acoustic Pop Covers (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumenta
 ```bash
 magnet:?xt=urn:btih:210E06FB5EAFB4700F5B9987049286671921655C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -255,6 +271,8 @@ Steve Aoki - DJ Mag Top 100 (2012) [MP3|320 кб/с]<House>
 magnet:?xt=urn:btih:EF11405E069264D490572D1E7D46F37456E63DFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +299,8 @@ VA - Зайцев.Нет: Лучшие новинки ноября (2017) [MP3|3
 ```bash
 magnet:?xt=urn:btih:E295825F8CDA1290E6802F4BE8B4B3F7D87D56F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +335,8 @@ VA - In Da Club Vol.68 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 magnet:?xt=urn:btih:DA25403DCE99698F240D41F63534CF95FB9FDEBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +363,8 @@ VA - Love Radio: Big Love 20 04.11.2018 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:D00B2C08AE39A0F61A5041944D36541B085D87BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +393,8 @@ VA - Для Тех, Кто Помнит! Русский Рок Vol.7 от Ovvod7
 magnet:?xt=urn:btih:E97669591858B4E7ED8D5A513D82155346A20945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +421,8 @@ VA - Dance Meteor Fitness Hits (2016) [MP3|241~320 Kbps] <House, Beat, Bass, Big
 ```bash
 magnet:?xt=urn:btih:30A508377B60D3106631BA4183F479DDB110C5D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +451,8 @@ VA - EDM Pro Chord Fast Life 001 (2016) [MP3|241~320 Kbps] <House, Progressive, 
 magnet:?xt=urn:btih:21AB3ED69FB79A23E27C699E64F85446C22829D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +479,8 @@ VA - Полночный Разговор Сборник Русского Шан�
 ```bash
 magnet:?xt=urn:btih:422A56A16AD7F677CB08435061C4A40D2987ABB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +509,8 @@ VA - Record Super Chart 560 (2018) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:8987634ADF642E22E74EDDE9E2D881BD577515F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +537,8 @@ VA - October Hotzone (2018) [MP3|320 Kbps] <Dance, Pop, Dance House>
 ```bash
 magnet:?xt=urn:btih:404B8921D7F9301B797C9503238D9AAE29F6DA16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +567,8 @@ VA - Spiritual Liberation: Psychedelic Healing (2018) [MP3|320 Kbps] <Psy, Goa T
 magnet:?xt=urn:btih:90B37533C00E2B05269B32F75A14004B734A157F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +595,8 @@ VA - Всё сразу. 200 хитов. Выпуск 11 (2015) [MP3|64-320 кб/
 ```bash
 magnet:?xt=urn:btih:E50E1C6B96EC7A899668C912D8ADF0DA7D164649
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +625,8 @@ VA - crazyДвиж number tri (2020) [MP3|320 Kbps] <Club, Dance>
 magnet:?xt=urn:btih:6611CE69ADD89ED0CCF6742415AA2D64D428F63A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +653,8 @@ VA - Charming Bourgeois Vol 2  (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lou
 ```bash
 magnet:?xt=urn:btih:CF4F652C78300AEB85FB7E15EFB1AC831452614C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +683,8 @@ VA - Progressive House: Beach Dance Classic Radio (2017) [MP3|320 Kbps] <Progres
 magnet:?xt=urn:btih:F338AF27FB9328A6131639CB4536BA7AA9071F2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +711,8 @@ VA - Games At Sunset: Psy Goa Trance (2017) [MP3|320 Kbps] <Psy, Goa Trance>
 ```bash
 magnet:?xt=urn:btih:E47A47C72AC63EFAFF59BA02E21165440058EC7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -693,6 +741,8 @@ VA - Charming Bourgeois Vol 1 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loun
 magnet:?xt=urn:btih:688A1734558FEDF3E2D91184B52854E0BB2BAF7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -719,6 +769,8 @@ VA - Charming Bourgeois Vol 3 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loun
 ```bash
 magnet:?xt=urn:btih:21F7DC8F0873C18925893B04E3D468D404CF0B81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -28,6 +28,8 @@ Hard Working Americans - Hard Working Americans (2014) [FLAC|Lossless|WEB-DL]<Fo
 magnet:?xt=urn:btih:74B79B3DE137A6AE050348F2A90373CB412BFA9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ Ulla Van Daelen - Surprise (2006) [MP3|320 кб/с]<Instrumental, Harp>
 magnet:?xt=urn:btih:1115DC5D3CEAB460017F444026801880FB004EF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -87,6 +91,8 @@ Simon "Hasen" Burgess - Best Friends (2002) [MP3|320 Kbps] <Soundtrack>
 ```bash
 magnet:?xt=urn:btih:20FCB57CDDE32F241BC607C16A98CB620554DF68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +121,8 @@ Christian Werge - Son-Ia (1993) [MP3|320 кб/с]<New Age, Meditative>
 ```bash
 magnet:?xt=urn:btih:FA238716A7C73D9F73019DA299F37E288062499C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +157,8 @@ Soundcritters - Biomimetics (2013) [MP3|320 кб/с]<Trailer Music>
 magnet:?xt=urn:btih:BE97A49C7E314813723224B2859F0C25DC2601D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +192,8 @@ VA - Need for Speed:Rivals OST (2013) [MP3|320 кб/с]<Soundtrack>
 magnet:?xt=urn:btih:BF0CED43E992A9B37585D1E4634D46194635D098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +220,8 @@ VA - Late Night Piano Lounge (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental,
 ```bash
 magnet:?xt=urn:btih:E2851C47D9AB1658B4EAD8113ACA70700378896F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +256,8 @@ magnet:?xt=urn:btih:E2851C47D9AB1658B4EAD8113ACA70700378896F
 magnet:?xt=urn:btih:A9B4B81DA19A00FDAB8ACA8E7643D3F89A3A6542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +290,8 @@ VA - Орел и Решка Unofficial Soundtrack (2012) [MP3|94,5-320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:26610335DCB98080DBD9AD3E52BD71CABDDFAFD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +326,8 @@ Paul Mauriat - The best of Paul Mauriat Vol.1 (2013)/K2HD Mastering, Japan/ [FLA
 magnet:?xt=urn:btih:B78475D7527EDB1C1F1E2C5D0FB6A882CBA4E4B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +354,8 @@ White String Orchestra - Traumhafte Balladen im modernen Streichersound - Vol.3 
 ```bash
 magnet:?xt=urn:btih:F2DE4D18573BEC545054E8B6888B149057DAA0F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +384,8 @@ White String Orchestra - Aktuelle Hits im modernen Streichersound Vol. 2 (1996) 
 magnet:?xt=urn:btih:0B2E3A66FA537C9433430E07B0658444A54EAADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +412,8 @@ VA - The Best Christmas Album In The World...Ever! (2020) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:D6963576D16E96152F62B6923FE3D40A8FD03377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +448,8 @@ Daveed - 6 альбомов (2000-2013) [MP3|320 kbps]<New age, New Flamenco, Gu
 magnet:?xt=urn:btih:2F9D6B56369617227D53DBB1073E0F43367F245F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +475,8 @@ magnet:?xt=urn:btih:2F9D6B56369617227D53DBB1073E0F43367F245F
 ```bash
 magnet:?xt=urn:btih:EFA5DF96BC51CB37964A0AD7BD84DCF3A10913B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +511,8 @@ The Animal In Me - Who's Laughing Now (2013) [MP3|320 кб/с]<Post-Hardcore / F
 magnet:?xt=urn:btih:4A3C7B968D70661FB4D02FA59EAE5CF66269EF51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +539,8 @@ Dolly Parton - Dumplin' (2018) Original Motion Picture Soundtrack [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:967414EE276D683EC90D15F7A1CC234CF87E7FA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +569,8 @@ OST - Hunt For The Wilderpeople | Охота на дикарей (2016) [MP3|320
 magnet:?xt=urn:btih:29A38B1A2DC7F0128D5A707E14F7601B59756ED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +597,8 @@ Fausto Papetti - Isn't it Saxy? (1988) 2CD [FLAC|image + .cue]<Jazz, Easy Listen
 ```bash
 magnet:?xt=urn:btih:6D7FCB3A5D7C25492D0A08A4C2B28B99ABF9FB8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +627,8 @@ Kirtan Raga - Longing (2016) [FLAC|Lossless|WEB-DL|tracks] <Mantras>
 magnet:?xt=urn:btih:5747E5092ED7BB27006F32988D8365C90D7F800C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +655,8 @@ Mike Oldfield - Tubular Bells III (1998) [FLAC|Lossless|tracks + .cue] <New Age,
 ```bash
 magnet:?xt=urn:btih:1479B478154E2DE38B3069975A5091C8266A98D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +685,8 @@ magnet:?xt=urn:btih:1479B478154E2DE38B3069975A5091C8266A98D5
 magnet:?xt=urn:btih:A9332F1D2DAF0E4F0C73849DF307A74AF8BD8453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +713,8 @@ Alexey Nechaev - Inmost (2020) [MP3|320 Kbps] <Score>
 ```bash
 magnet:?xt=urn:btih:0E94C3809D03D9263D11190D38A4AC32EC773597
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -697,6 +743,8 @@ Jason Allen - Something I Dreamed (2001) [FLAC|Lossless|image + .cue] <Country>
 magnet:?xt=urn:btih:77A7A9E741C66E06FD13EAB5950A7B92D9172B8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -724,6 +772,8 @@ magnet:?xt=urn:btih:77A7A9E741C66E06FD13EAB5950A7B92D9172B8C
 magnet:?xt=urn:btih:9564700A1E3C7D4745353109B7BC7B2336B9E94B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -750,6 +800,8 @@ J.J. Hurtak, Desiree Hurtak & Steven Halpern - Sacred Name Sacred Codes (2012) [
 ```bash
 magnet:?xt=urn:btih:C7CD993984F2C923B019220D6A6B7D19A150C51B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

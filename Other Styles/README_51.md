@@ -19,6 +19,8 @@ Ennio Morricone - Deluxe Edition 2CD (2006) [APE|Lossless]<Instrumental>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Wuauquikuna - XI Magic Of The Andes (2018) [MP3|320 Kbps] <Native american, Ethn
 ```bash
 magnet:?xt=urn:btih:E28B3B077F85FE63E4EE42BA55CB1D0E929EAA4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Monica Williams - Journey of Tears (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age
 magnet:?xt=urn:btih:2D9E3D8DC90CF9DC24C143DBC7593264343FC387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ The O’Neill Brothers - An O’Neill Brothers’ Christmas: Relaxing Piano (201
 ```bash
 magnet:?xt=urn:btih:D2F627AA5283B3E04F80A3EC69DD398F14FDC974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ VA - Latina Reggaeton Hits (2017) [MP3|320 Kbps] <Salsa, Kizomba, Bachata>
 magnet:?xt=urn:btih:9D6B031885B774A6DB4D68370957E33C5DD5B9BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Original Sound Project - RTL präsentiert Ilona Christen Privat Concert (1995) [
 ```bash
 magnet:?xt=urn:btih:191C959C994027CBA4A0DB61E1AFC874CEC0DFD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Christopher Phillips - A Conversation With God (2006) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:C9FCA15E374305761981CF75E0CD351371838968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ magnet:?xt=urn:btih:C9FCA15E374305761981CF75E0CD351371838968
 ```bash
 magnet:?xt=urn:btih:E521AE4E64F73F5B82DF634A5C5305BB270A6756
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ Medwyn Goodall - Dreamweaver (2014) [MP3|320 кб/с]<New Age, Relax>
 magnet:?xt=urn:btih:DF6257750CCDDB77EB411BB73F291188DEF16322
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Eloy Fritsch - The Garden of Emotions (2009) [FLAC|image+.cue]<Electronic, Ambie
 ```bash
 magnet:?xt=urn:btih:618BF756AC17A771567F892BC30C94AC5184F1F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +315,8 @@ Two Steps From Hell - Skyworld (2012) [MP3|320 кб/с]<Trailer Music, Epic>
 magnet:?xt=urn:btih:36C7595C7FC563080FED573C0FE442ED74D06BB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +343,8 @@ Ennio Morricone - All The Best (2016) [MP3|320 Kbps] <Instrumental, classical, s
 ```bash
 magnet:?xt=urn:btih:DF96C0FBC19BC20C48F08ECBAE4105BF35558C0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +373,8 @@ Era - Era (1998) [FLAC|Lossless|image + .cue]<New Age>
 magnet:?xt=urn:btih:AC205D55590D891A6937D639831F5CF95CEEAC6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +401,8 @@ Preludio Italiano - Toccata (2001) [FLAC|Lossless|image + .cue] <Instrumental, P
 ```bash
 magnet:?xt=urn:btih:D5EFE24AE0A5826A6D55606B048AA62D468522B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +431,8 @@ Craig Armstrong & Adam Peters - Snowden / Сноуден (Original Soundtrack) +
 magnet:?xt=urn:btih:91FC50756E8302011A8E193DF6FC8695A4AD7C9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +459,8 @@ Al Conti - Mystic (2016) [MP3|320 Kbps] <New Age, Relax>
 ```bash
 magnet:?xt=urn:btih:37970979CEAEBE2FC90A52C6735885469A3F67BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +489,8 @@ Midori - A Very Midori Christmas (2016) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:A65965439C4566BF331FE2D9C6730529D1FACA37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +517,8 @@ VA - Где-то на белом свете... (1996) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:BA80E65F6D9B7089D06B2CCE94C6EFD0E8B434DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +548,8 @@ Kevin Kern - 8 альбомов (1996 - 2005) [APE|Lossless|image + .cue] <New A
 magnet:?xt=urn:btih:BCE60C49FFDDA24CE055FCF84A4CC7174EE1405F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +577,8 @@ VA - Игла. Remix (2010) [FLAC|Lossless|image + .cue] <Soundtrack>
 magnet:?xt=urn:btih:EE136B9BF4EEA3E75637AA21BB08CBC855D617EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +603,8 @@ VA - RELAX - Морской бриз - Звуки живой природы в �
 ```bash
 magnet:?xt=urn:btih:DD0177546FD10FC943FB9B672973E786500870C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +633,8 @@ magnet:?xt=urn:btih:DD0177546FD10FC943FB9B672973E786500870C0
 magnet:?xt=urn:btih:3D428DBF8A7834DA64DF0BBD139AD97FCA7AA9C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +661,8 @@ The Man from RavCon - Strange Universe (2016) [FLAC|Lossless|image + .cue] <Inst
 ```bash
 magnet:?xt=urn:btih:10246C104BD129B20E2B06F7217C184AB2E655B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +691,8 @@ VA - Stranger Things / Очень странные дела (Music from the Netf
 magnet:?xt=urn:btih:CBC499BD6971BBF7BD67585A7E13C4FA9CB8671E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,6 +718,8 @@ Olga Stankevich (Ольга Станкевич) - Дискография (2010-2
 ```bash
 magnet:?xt=urn:btih:6E3496A52A2067D956E2CB0F691CC45392B27885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -697,6 +747,8 @@ Loretta Lynn - White Christmas Blue (2016) [MP3|320 Kbps] <Country>
 ```bash
 magnet:?xt=urn:btih:B9F32076F80DE26CCAED3720F6CDB768DF8B91A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

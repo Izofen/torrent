@@ -28,6 +28,8 @@ Billie Holiday - Easy To Love (2009) [FLAC|Lossless]<Jazz, Vocal Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ David Guetta - DJ Mix 087 (25.02.2012) [MP3|224 кб/с]<Progressive House>
 magnet:?xt=urn:btih:D0D6BE047432795406459ED2447FA49514FABDCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -84,6 +88,8 @@ magnet:?xt=urn:btih:D0D6BE047432795406459ED2447FA49514FABDCA
 ```bash
 magnet:?xt=urn:btih:4BE870D79A26AB24889491357685DBBAAFB4A115
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +122,8 @@ Meat-Grinder - Воскрешение из пепла (2004) [MP3|320 кб/с]<S
 ```bash
 magnet:?xt=urn:btih:6AD65465504279CFB397875D3FBBE396988C2CFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +158,8 @@ CD1
 magnet:?xt=urn:btih:ED520089F8E3180CE4167AB6E416B33BDA59389C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +185,8 @@ magnet:?xt=urn:btih:ED520089F8E3180CE4167AB6E416B33BDA59389C
 ```bash
 magnet:?xt=urn:btih:995A870984AA3024492941A2D5CBF9C2F07B3C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +221,8 @@ The Tierney Sutton Band - American Road (2011) [FLAC|Lossless]<Jazz, Vocal Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +246,8 @@ George Bishop - Colour Love (1994) [FLAC|Lossless]<Smooth Jazz, New Age>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +273,8 @@ George Bishop - Colour Love (1994) [FLAC|Lossless]<Smooth Jazz, New Age>
 magnet:?xt=urn:btih:FCE094260791A7D06D6A69FEB2047B63578B6202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +298,8 @@ magnet:?xt=urn:btih:FCE094260791A7D06D6A69FEB2047B63578B6202
 ```bash
 magnet:?xt=urn:btih:77A9ACEDDCFEF19CDCF0B8055AFBC5159F6C20AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +325,8 @@ magnet:?xt=urn:btih:77A9ACEDDCFEF19CDCF0B8055AFBC5159F6C20AE
 ```bash
 magnet:?xt=urn:btih:DF0D2B6B3BCE9BDEB0358DD56121715F427309CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +361,8 @@ Sena Ehrhardt Band - Leave The Light On (2011) [FLAC|Lossless]<Blues-Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +386,8 @@ Celia ft. Shaggy - Dame (2011) [H.264/1080p] WEBRip
 ```bash
 magnet:?xt=urn:btih:A759CF3F616375E95A6AD01EADB165B32F688731
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +414,8 @@ magnet:?xt=urn:btih:A759CF3F616375E95A6AD01EADB165B32F688731
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +450,8 @@ VA - House Vip (25.02.2012) [MP3|320 кб/с]<Electro House>
 magnet:?xt=urn:btih:2E1799CA65CE19D1D3E13EDBA752D49489D1798D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +484,8 @@ Alexandre Mospan - tootamixa radio radioshow (2011) [MP3|320 кб/с]<Progressiv
 ```bash
 magnet:?xt=urn:btih:712960474C88D602E5F9BDE29949336E9C655EB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +520,8 @@ VA - Mystic India (Vol.3) (2003) [MP3|320 кб/с]<New Age, Meditative, Relax>
 magnet:?xt=urn:btih:D976CBA82E803930D23606F6D569659EE7C316E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +553,8 @@ Flowjob - Support Normality (2006) [FLAC|Lossless]<Psychedelic / Progressive>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +589,8 @@ Jenny Evans - Lunar Tunes (2008) [FLAC|Lossless]<Vocal Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +622,8 @@ Cosmic Tone - Uniting Forces (2011) [FLAC|Lossless]<Psychedelic / Full On>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +658,8 @@ VA - Mystic India (Vol.4) (2004) [MP3|320 кб/с]<New Age, Meditative, Relax>
 magnet:?xt=urn:btih:04822FF0AE94C86D9C27DA9469208A05D77023EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +693,8 @@ magnet:?xt=urn:btih:04822FF0AE94C86D9C27DA9469208A05D77023EC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +718,8 @@ magnet:?xt=urn:btih:04822FF0AE94C86D9C27DA9469208A05D77023EC
 ```bash
 magnet:?xt=urn:btih:60D919580C4CA92D001D5411FFC16FEF3FCD095B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -708,6 +754,8 @@ David Guetta - DJ Mix 085 (11.02.2012) [MP3|~224 кб/с]<House>
 magnet:?xt=urn:btih:F4BA8251F95E7D38D87446BCA4B9D87D63FA2B50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -739,6 +787,8 @@ VA - Mystic India (Vol.2) (2003) [MP3|320 кб/с]<New Age, Meditative, Relax>
 ```bash
 magnet:?xt=urn:btih:73EBC70228E801597A42A83CD3C14E91CD85BFDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -772,6 +822,8 @@ Carles Benavent - Un, Dos, Tres... (2011) [FLAC|Lossless]<Latin Jazz, Fusion, Fl
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

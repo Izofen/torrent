@@ -1,3 +1,29 @@
+###  Публикация: 1447127   (1032032) от 12.02.2021
+
+Инна Метельская-Шереметьева | Галопом по вкусным Европам. Большое кулинарное путешествие (2020) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1032032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая книга известного блогера, кулинара и путешественницы Инны Метельской-Шереметьевой посвящена рецептам европейской кухни. Представьте себе праздничные европейские улицы в гирляндах фонарей и неоновых букетов, красочные ярмарки, волшебные ароматы, кружащие уже у входов в маленькие кондитерские или кафешки. Для вас приготовлены самые лучшие угощения, те, что жители (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:117EB96F9354ED70F1BED45F4F2F3A84C0FD6B55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447224   (1032037) от 12.02.2021
 
 Брюс Шелли | История церкви, рассказанная просто и понятно (2021) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:EFF802A579431C87FC1CEFF540E023BD70E63A99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:EFF802A579431C87FC1CEFF540E023BD70E63A99
 magnet:?xt=urn:btih:577B65C1562EA20DF915F7319F473B5EA83F8743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:577B65C1562EA20DF915F7319F473B5EA83F8743
 ```bash
 magnet:?xt=urn:btih:E0CFC7781ACFB5AFB73EFD1A23DD55BD2A30DC3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:E0CFC7781ACFB5AFB73EFD1A23DD55BD2A30DC3F
 magnet:?xt=urn:btih:E003979250DA03AA27CF9C4302B8544FBAAF7C5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:E003979250DA03AA27CF9C4302B8544FBAAF7C5D
 ```bash
 magnet:?xt=urn:btih:DE6B2485D6388BC2E173575544029C5BDD969032
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:DE6B2485D6388BC2E173575544029C5BDD969032
 magnet:?xt=urn:btih:6B0618CF53E8E8E7AB46EF5D7063A278F8100FC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:6B0618CF53E8E8E7AB46EF5D7063A278F8100FC6
 ```bash
 magnet:?xt=urn:btih:9443B629B12360630AD28626A2533BCC5000B4A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:9443B629B12360630AD28626A2533BCC5000B4A1
 magnet:?xt=urn:btih:DEEF39E3CD6536033975E0E468E0B20CC5C10A6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:DEEF39E3CD6536033975E0E468E0B20CC5C10A6E
 ```bash
 magnet:?xt=urn:btih:B33CAD2CB50E24E925B33F6AE9797B37B191F56A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:B33CAD2CB50E24E925B33F6AE9797B37B191F56A
 magnet:?xt=urn:btih:4CE5505AC28A285EFE8EE065BEF8BD15C668C3D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:4CE5505AC28A285EFE8EE065BEF8BD15C668C3D2
 ```bash
 magnet:?xt=urn:btih:2D199EA25C26CC925FA938AC4C3E103C98A19096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:2D199EA25C26CC925FA938AC4C3E103C98A19096
 magnet:?xt=urn:btih:D1DE284643831ECD26376A1BFD3A7303648B0DF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:D1DE284643831ECD26376A1BFD3A7303648B0DF5
 ```bash
 magnet:?xt=urn:btih:9E0AD068986A9EE78B919BCCCE048EB8A3C9B79F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:9E0AD068986A9EE78B919BCCCE048EB8A3C9B79F
 magnet:?xt=urn:btih:574EE8F0460C067194A4E081AA8BC520E8472E22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:574EE8F0460C067194A4E081AA8BC520E8472E22
 ```bash
 magnet:?xt=urn:btih:5519A6F7A1C1545D72C717647969EF74C6488818
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:5519A6F7A1C1545D72C717647969EF74C6488818
 magnet:?xt=urn:btih:3F4E70DAB97889423BB7F5077237C23B8810DEE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ Project Management Institute | Руководство к своду знаний
 magnet:?xt=urn:btih:B4988D1423929C726588D13DE18DAE1DE851CDA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:B4988D1423929C726588D13DE18DAE1DE851CDA4
 ```bash
 magnet:?xt=urn:btih:82E66D6342B5DCC4179D8CF794E432C6ECD3EAF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:82E66D6342B5DCC4179D8CF794E432C6ECD3EAF5
 magnet:?xt=urn:btih:B571028DA1758D67C84C445DA263AE12B95FC02D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ Harvard Business Review (HBR) | Эффективная обратная связ
 magnet:?xt=urn:btih:08AEE10C78598B725262CBDD3A6441CED0C10A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:08AEE10C78598B725262CBDD3A6441CED0C10A1D
 ```bash
 magnet:?xt=urn:btih:EEF858E5E59B32A6C7F78165EE7A5B8D358037BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:EEF858E5E59B32A6C7F78165EE7A5B8D358037BB
 magnet:?xt=urn:btih:E14EE5123713AD87B14511BC25EAD7BCDCC5ED95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:E14EE5123713AD87B14511BC25EAD7BCDCC5ED95
 ```bash
 magnet:?xt=urn:btih:C1DEDF7C7205D407409917D0EFC32AF607C2E1D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:C1DEDF7C7205D407409917D0EFC32AF607C2E1D8
 magnet:?xt=urn:btih:09374D9557D59915182FF2338C9E7A8C3183C539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:09374D9557D59915182FF2338C9E7A8C3183C539
 magnet:?xt=urn:btih:21ABB446C6A07AA0D38C74551DAAF17AF1250B5B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446308   (1032808) от 08.02.2021
-
-Наталия Попович (сост.) | Домашнее консервирование. Засолка. Квашение. Мочение. Сушка. Заморозка (2018) [EPUB]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032808.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Каждая хозяйка старается, чтобы на столе всегда были вкусные и полезные блюда, причем желательно, чтобы их приготовление не занимало много времени. Самый простой и быстрый способ организовать перекус, обогатить повседневное меню разнообразными витаминными блюдами или устроить чаепитие с вкусностями – открыть баночку ароматной баклажанной икры, аппетитного лечо, (   Читать дальше...   )Жанр: КулинарияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3CAE4C04F4A9F244061486B826AC4389298DA1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

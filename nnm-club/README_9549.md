@@ -22,6 +22,8 @@ Clouds - Dor (2018) [FLAC|Lossless|image + .cue] <Atmospheric Doom, Funeral Doom
 magnet:?xt=urn:btih:A222EACD975D6E278C25F492920E0A727412A04C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Soijl - As The Sun Sets On Life (2017) Limited Edition [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:73B5E2764AFE8F7E223A9E0D75CC9C528ECA04FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Sonny Clark - 1954 Memorial Album (2001) The Jazz Factory [FLAC|Lossless|tracks 
 magnet:?xt=urn:btih:72318E796411CDC00BA4391B7DB6AD73C3ADF9F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - My Garden Lounge: Chillout Your Mind (2020) [AAC|~336 Kbps] <Downtempo, Lou
 ```bash
 magnet:?xt=urn:btih:789D129D294F26C2465E01E2D401A9B731A98A53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Purple Sky Lounge: Chillout Your Mind (2020) [AAC|~334 Kbps] <Downtempo, Lo
 magnet:?xt=urn:btih:3EB87AF39A3BF4C073D8D08CB5D56D6D1B75BF63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Iron Angel - Emerald Eyes (2020) [AAC|~345 Kbps] <Speed Metal, Thrash>
 ```bash
 magnet:?xt=urn:btih:ECC06DE0472F0E86AFCAB48DA9A7CA6F30001F0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Soijl - Endless Elysian Fields (2015) [FLAC|Lossless|image + .cue] <Doom Metal, 
 magnet:?xt=urn:btih:7D8ABBA6E5E94585824BA53EA65B4B21A4E37B7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ Keymou дает вам полный контроль над указателем
 magnet:?xt=urn:btih:033FFEE9C98DB06E2E694C3BCCF25CCE0A784EEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ Amadeus Pro - многотрековый музыкальный редактор
 ```bash
 magnet:?xt=urn:btih:55D7FBC06EA8722923D0C3E3F17604ADD6C1276C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +277,8 @@ Joe Locke & Geoffrey Keezer Group - Live In Seattle (2006) Origin Records [FLAC|
 magnet:?xt=urn:btih:A470738E9F604DA61080E247DD9A0D8271B098F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +303,8 @@ BusyCal - программа на Mac OS X, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:84BBAB5FE322909649B9439E0E605B600A2917B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +331,8 @@ magnet:?xt=urn:btih:84BBAB5FE322909649B9439E0E605B600A2917B4
 ```bash
 magnet:?xt=urn:btih:CA3E3705D90C02BC435B61CF9F4260EF90FC5CFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +361,8 @@ Carlo Bergonzi - Carlo Bergonzi - Grandi Voci (1958-1967) 1994 Decca Records [FL
 magnet:?xt=urn:btih:C222755990F13C297BF2E0925534A575078E1224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:C98510980BCBCBFD12BA886DB909C8D6A8B01C38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +413,8 @@ Windows, по умолчанию, позволяет программам пол
 magnet:?xt=urn:btih:D6CEE9D71CBDE2C2C297B3C79907AEC1CC39A838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ Nat Geo Wild: Хоаниб - секреты слонов пустыни / Secret
 magnet:?xt=urn:btih:0ED836028E2238BCC5E53868978E28F1D5365884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ Q-Dir - бесплатный, отличный файловый менеджер
 ```bash
 magnet:?xt=urn:btih:F9242F537A4D838A0BD24DDEF123100CF3E42AC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ xScope, отличный инструмент для работы с экран�
 magnet:?xt=urn:btih:FB583738F7DEE1DBE8498EFC80C6BD3A900992C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:FB583738F7DEE1DBE8498EFC80C6BD3A900992C2
 ```bash
 magnet:?xt=urn:btih:4B5F73255EDFF7235CEADBB175CAF37D02A1C238
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +548,8 @@ Image Exif Editor был разработан, чтобы представить
 magnet:?xt=urn:btih:2A0DC7169E97AEDDEAA3325FCDD05DAE0695CC5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +577,8 @@ magnet:?xt=urn:btih:2A0DC7169E97AEDDEAA3325FCDD05DAE0695CC5F
 magnet:?xt=urn:btih:1A6C071EF45A211CED39FB82F91F68A61AD5A38D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ magnet:?xt=urn:btih:1A6C071EF45A211CED39FB82F91F68A61AD5A38D
 magnet:?xt=urn:btih:CCF8FD12A56FBA18A89BD72A36628820BCFD70EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +628,8 @@ magnet:?xt=urn:btih:CCF8FD12A56FBA18A89BD72A36628820BCFD70EB
 ```bash
 magnet:?xt=urn:btih:36C91744668BF1405FC07754A07B8B68E0BFC771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +658,8 @@ magnet:?xt=urn:btih:36C91744668BF1405FC07754A07B8B68E0BFC771
 magnet:?xt=urn:btih:BE5F0DBC05FC5E53E495719C988BCE03D6883D27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ magnet:?xt=urn:btih:BE5F0DBC05FC5E53E495719C988BCE03D6883D27
 magnet:?xt=urn:btih:8985C5E7DF2AAEA0E43A28FC47690C343FA5001B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ magnet:?xt=urn:btih:8985C5E7DF2AAEA0E43A28FC47690C343FA5001B
 ```bash
 magnet:?xt=urn:btih:FBF6FD41671AE85D1B672E221A3B7DB37BA02AB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

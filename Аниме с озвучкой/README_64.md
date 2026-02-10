@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:AF7042A761BDF19E99E97E62CD0E4141A8E89354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Tenchi Souzou Design-bu | Heaven's Design Team | Небесный отдел д�
 ```bash
 magnet:?xt=urn:btih:CB2F559A9A93B97C2D6900A40154885B6FC504A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:CB2F559A9A93B97C2D6900A40154885B6FC504A2
 magnet:?xt=urn:btih:188C799E2DED0459006D371D8974B6BE50E02AE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Gekijouban Chainsaw Man: Reze Hen / Chainsaw Man the Movie: Reze Arc / Чело�
 ```bash
 magnet:?xt=urn:btih:67904F550DC4EC7B165C62FE8D56B042E1F79E7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Gekijouban Chainsaw Man: Reze Hen / Chainsaw Man the Movie: Reze Arc / Чело�
 magnet:?xt=urn:btih:F20C77753DD0FD9A620CD71359E4E97401ADCE9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Gekijouban Chainsaw Man: Reze Hen | Chainsaw Man the Movie: Reze Arc | Чело�
 ```bash
 magnet:?xt=urn:btih:60783AFE90DB945155D80D83E5CBEE9DF0A4595F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Gokukoku no Brynhildr | Brynhildr in the Darkness | Брунгильда во т
 magnet:?xt=urn:btih:E9DC9AAB8422222DAB2F270D1F2FC4E61423B12C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Jungle Taitei | Jungle Emperor | Император джунглей [1989, TV, 
 ```bash
 magnet:?xt=urn:btih:39EBBF24A7D971C06CFA6886C862967185832836
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Jungle Taitei | Jungle Emperor Leo | Император джунглей [1997, 
 magnet:?xt=urn:btih:C92480610895BDD7430CFB53E3A67DD8A725A8F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ B недалеком будущем люди уничтожили большин
 ```bash
 magnet:?xt=urn:btih:DB6CB268BC6962A79E5188D5032998B08C64955E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Slayers Great | Великие Рубаки [1997, Movie] WEBRip 720p rus
 magnet:?xt=urn:btih:DF7B83CABA9CC49CEF3F2C9289783B5F6E8B0547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Slayers Return | Возвращение Рубак [1996, Movie] WEBRip 720p rus
 ```bash
 magnet:?xt=urn:btih:A4AF6A9D2CFDF4D514710AB4D71298973C613238
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Slayers Special | Slayers: The Book of Spells | Особые Рубаки [1996,
 magnet:?xt=urn:btih:D2F6442CD08662E5256D98D9A52517DDE2F1AAB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Gekijouban Slayers | Slayers: The Motion Picture | Рубаки на больш�
 magnet:?xt=urn:btih:B382CB66374FEBDF8E5CB9079A225600DDA1501C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:B382CB66374FEBDF8E5CB9079A225600DDA1501C
 ```bash
 magnet:?xt=urn:btih:258778B260A4926904FD27ABDAC45B2D56997EF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:258778B260A4926904FD27ABDAC45B2D56997EF0
 magnet:?xt=urn:btih:F886CE3DB61803C78361BC063080C91EFBAC8F91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Watashi wo (o) Tabetai, Hitodenashi | This Monster Wants to Eat Me | Монст�
 magnet:?xt=urn:btih:82236632E2BA2870E8FD519A789FE5A54ACB3B63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:82236632E2BA2870E8FD519A789FE5A54ACB3B63
 ```bash
 magnet:?xt=urn:btih:C81700EC6A3169BBD873A5286EE5F09A1F81F8C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:C81700EC6A3169BBD873A5286EE5F09A1F81F8C2
 magnet:?xt=urn:btih:4BDD82F097F56C3C417A5B4463CC126DB94D83F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Yuusha-kei ni Shosu: Choubatsu Yuusha 9004 Tai Keimu Kiroku | Sentenced to Be a 
 ```bash
 magnet:?xt=urn:btih:431B24F931E6411F005A70EB89278AA2ECDFFC16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:431B24F931E6411F005A70EB89278AA2ECDFFC16
 magnet:?xt=urn:btih:6B0CDAB888AE736E25C8AC40BD2B592878966D99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Lodoss-tou Senki | Record of Lodoss War | Летопись войн остров
 ```bash
 magnet:?xt=urn:btih:D194097BE46156EDBAB03F0DE91C0BF03148A475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:D194097BE46156EDBAB03F0DE91C0BF03148A475
 magnet:?xt=urn:btih:7BE3F880456741E583D8B05BC0FDB6D7E537A0FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Goumon Baito-kun no Nichijou | The Daily Life of a Part-time Torturer | Повс
 ```bash
 magnet:?xt=urn:btih:E070C895D14E40C38A22239B36D4A7599F9079AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Isekai Meikyuu de Harem o | Harem in the Labyrinth of Another World | Гарем
 magnet:?xt=urn:btih:8B51DCCBA2C7599A1FA884D046574116E8E7030C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Bokusatsu Tenshi Dokuro-chan Second | Bludgeoning Angel Dokuro-chan 2 | Убий
 ```bash
 magnet:?xt=urn:btih:66CFC7B011F50034E302698C49F9DE32F4BBFE81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

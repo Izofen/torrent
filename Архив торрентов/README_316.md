@@ -19,6 +19,8 @@ ScreenToGif — удобный бесплатный инструмент, с п�
 magnet:?xt=urn:btih:54CE308426652214A5E26FFF592D8FE9BCEA857C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Visual Studio Community - Бесплатная, полнофункциональ
 ```bash
 magnet:?xt=urn:btih:796F6D04FEED34DB247636B17660BAF005D1397D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Photo Studio — не просто приложение для редактир�
 magnet:?xt=urn:btih:B92E5615CB97FB2CC4A3CC5145D3A7ABB28A4C68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:865D3B7896BB83AA304A500FF9E3BB0A4C6A2F21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ GeoGebra — мультиплатформенная программное об�
 magnet:?xt=urn:btih:7A09371FA5A7B427FC7274FB22F885B5B9964A35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:78665F21AE883F27F869B1D0C2B8B332A0AACE2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 magnet:?xt=urn:btih:CC75BE51F657CD48628701C9F5704DBC4C16BD1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ XYplorer – удобный многовкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:F6F15BA69E58B542600DF0E38171E2AAAE277C38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:0E2746068A06DC6CB763D4235937CD0F88DA4DDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:23C2CAB99D474EF7F5DD8BBF10161F5309B508C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 ```bash
 magnet:?xt=urn:btih:9D201640832BAE0FCC4CF706321657386D8D32EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ NokoPrint v5.20.24 Mod by derrin [Ru/Multi]
 magnet:?xt=urn:btih:A67D1DDBFB7DA394BEBA03D8D9C03C8A8CB28E85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ PictureThis - Plant Identification v5.1.2 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:130C23F70B7895F81E749E02D043042857044739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ PeaZip — бесплатный архиватор и графическая о�
 magnet:?xt=urn:btih:68730FA990D383CA5A536F6E6B551FF4DA192BD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:68730FA990D383CA5A536F6E6B551FF4DA192BD8
 ```bash
 magnet:?xt=urn:btih:C32E3FFABE7C972ABFA66D264C7D569EAFBA947B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Visions Of Atlantis - Armada LIVE Over Europe - Pt. 3 (2025) [FLAC 24/48|Lossles
 magnet:?xt=urn:btih:9FB2CCA5783EB9FA7E9FD9A1F0CA3CE11BCDEE72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ FreeFileSync - это утилита, которая была разработа
 ```bash
 magnet:?xt=urn:btih:31E4E484BF290D9FC08D52B7E3D9056A964409A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:31E4E484BF290D9FC08D52B7E3D9056A964409A6
 magnet:?xt=urn:btih:B2F1BEE08C672216F0B6DDE5A38C795B9FC52CD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Opera One 117.0.5408.35 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B48427682635F8A57C5FDEF36EE04830D07520FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Jigsawscapes® - Пазлы v3.7.8 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:CA592CD7BDC94E1D2A4FA594A780ADC58ECE3892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 ```bash
 magnet:?xt=urn:btih:0702ABEDCB6D58ACFCE766293B7F0579A36D399E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ GeoGebra — мультиплатформенная программное об�
 magnet:?xt=urn:btih:D446BBA081461A5DE9EC58B222AB71116165489E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:24533C0283EDEDB4763EA756383FFD35E1FC22BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Music Collection - неплохая программа для создания �
 magnet:?xt=urn:btih:C87C26ABFDF840E75B7B85887EE475C0027F68D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ RAR - это консольное приложение, позволяющее �
 magnet:?xt=urn:btih:8555F0B07389EDDE46BB1C6AA5343BD78D5EAEB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Desktop Calendar – бесплатный календарь рабочего с
 ```bash
 magnet:?xt=urn:btih:A0EE49010929F922D0FAFE835DA2963BA87A1C6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

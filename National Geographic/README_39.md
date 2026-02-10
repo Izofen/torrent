@@ -20,6 +20,8 @@ NG. Моя жизнь с гориллами / My Gorilla Life (2011) HDTV [H.264
 magnet:?xt=urn:btih:26CC93C5DF2951EBEBB9AE6003912AD8C845BEFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ NG: Самые страшные мировые морские катастроф
 ```bash
 magnet:?xt=urn:btih:C3B4A61939A0239213773DC5B81F1344D4BEE3F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Nat Geo Wild: Секреты крокодила / Croc Inside Out (2015) HDTVRip
 magnet:?xt=urn:btih:228F6EAF4416239EFFAEAE13F1017BD17BD014C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ NG: Христианство. Восхождение к власти / Иису�
 ```bash
 magnet:?xt=urn:btih:BE10D47CF07993DB455B7DAAE8DD1C9B837C8253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ National Geographic: Денежное Хранилище США / National Geogr
 magnet:?xt=urn:btih:B81FF75671F5755AB36AE1D96D1B2DD457CC9D5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ N.G. Нацистские тайны Второй мировой / Nazi weird wa
 ```bash
 magnet:?xt=urn:btih:84185B00812A8E0EB56D87473C9F50893DDB1026
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ N.G. Момент смерти / Moment of death (2008) WEB-DLRip [H.264/720p]
 magnet:?xt=urn:btih:EC0A4D15186CEDD9F5CD619588C59798157A5FA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ NG. Звездное выживание с Беаром Гриллсом / Runni
 ```bash
 magnet:?xt=urn:btih:DB078B9D5BF34A9C91BB058F1666E8B585438254
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ NG. 9/11: Один день из жизни Америки / 9/11: One Day in Am
 magnet:?xt=urn:btih:3550B8007BC87CE7F2C95939D662AF78B7905685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ N.G. Дикие животные 24 часа / Wild 24 (2015) HDTVRip [H.264/720
 magnet:?xt=urn:btih:899E4EEF8E265833F6C3ED83DD43C0223FA9CE55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:899E4EEF8E265833F6C3ED83DD43C0223FA9CE55
 ```bash
 magnet:?xt=urn:btih:1B90CBC1B472013BB370B9DF83F44719B3B53029
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:1B90CBC1B472013BB370B9DF83F44719B3B53029
 magnet:?xt=urn:btih:36BC683FFF4D23904196E425EBA53FD444159BAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:36BC683FFF4D23904196E425EBA53FD444159BAB
 ```bash
 magnet:?xt=urn:btih:AE14678FB5C59313C0D77C25B2378597782206A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ B джунглях сюрпризы ожидают вас буквально п�
 magnet:?xt=urn:btih:DAD0C92242693B113FF2BDED39C5EBA8879A9DD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ NG: Осушить океан. Бермудский треугольник / Dra
 ```bash
 magnet:?xt=urn:btih:5737D3FACCE6A52DE2F4A88991398BC6A61492A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ National Geographic Channel представляет «Расследовани�
 magnet:?xt=urn:btih:D09802C7FE535BE20E6E9834F4B7D67A0266DC7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ NG: Подъём Коста Конкордия / The Raising Of The Costa Conkor
 ```bash
 magnet:?xt=urn:btih:6219EED413B5DF41D9E3E356082BB637838F065B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:6219EED413B5DF41D9E3E356082BB637838F065B
 magnet:?xt=urn:btih:4FFD27921D0FA7BF023C05426070628564C15757
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ NG: Тайные жизни Иисуса / Secret Lives of Jesus (2006) SATRip
 ```bash
 magnet:?xt=urn:btih:A0567750F40A876477951CB257C7BEA03F498AB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ NG. Cуперпрайд (Львиные страсти) / Superpride (2007) HDTV
 magnet:?xt=urn:btih:FA5082ADB65083893A48AA17FAD159C7467E2D10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:FA5082ADB65083893A48AA17FAD159C7467E2D10
 ```bash
 magnet:?xt=urn:btih:5C3764553EE2FD1F505459CB589F0EC2E33DDD26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ NG. Суперкошка / Super Cat (2012) HDTV [H.264/1080i]
 magnet:?xt=urn:btih:B5B1F0A72C924C39BAA5F6283294E4BAB88D16A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ NG. Пума против волка / Cougar vs Wolf (2013) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:1EB6958DD57D60F4CE6DEFDCDDA39F167C140E8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ NG. Самые странные в мире: Животные-фрики / World
 magnet:?xt=urn:btih:AF7883956E51FD6C49A5FF18C908F4C633C25983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ NG: Наука будущего Стивена Хокинга: Гиперсвя�
 magnet:?xt=urn:btih:BC4B7711418561409319CB76072C36BA7BD0984D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ NGW. Гигантские змеи. Удавы / Monster Constrictors (2019) HDT
 ```bash
 magnet:?xt=urn:btih:C1AC745EB80605E2A862BD8C160FB7A88EF5690B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

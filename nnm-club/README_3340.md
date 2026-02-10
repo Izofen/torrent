@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:E4873D82BA8D1CFFAB64A87349BC47511CDCD9B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Ibiza 2024 - Armada Music [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:62FBCE58C4038552E312F872ECE9C54F0F38DA17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:62FBCE58C4038552E312F872ECE9C54F0F38DA17
 magnet:?xt=urn:btih:1D0D376D5BCCDC6004737D708B078DBF71EAC159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ MediaHuman YouTube to MP3 Converter 3.9.9.93 (0713) RePack (& Portable) by elchu
 magnet:?xt=urn:btih:F70A5E8A75A389B9D3FB4784C62CEE77FD8DB767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:BCED5921F9D571435E67A4D5EF9055F555E4BF02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Testament - The New Order (1988) Remastered, 2024, Nuclear Blast [FLAC 24/96|Los
 magnet:?xt=urn:btih:58642FC3CDAFBAC2ED9AC4BF9718DFCC0C395360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ Testament - The Legacy (1987) Remastered, 2024, Nuclear Blast [FLAC 24/96|Lossle
 ```bash
 magnet:?xt=urn:btih:9F09C1FC8D18A4B85FC0E2B0F037A20AEDA99ED4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ Phish - Evolve (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock, Psy
 magnet:?xt=urn:btih:9698E2F2B6F6FA851809A323ED6469E24AEC4080
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ Grand River and Abul Mogard - In uno spazio immenso (2024) [FLAC 24/44.1|Lossles
 ```bash
 magnet:?xt=urn:btih:89910D3CA704D5C670D7192AABD2FC8E02CD1FB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +277,8 @@ Chris Avantgarde - Live @ Seismic Dance Event Spring Edition (The Concourse Proj
 magnet:?xt=urn:btih:33DBF917C468ABF9384D39DB0EDB7E214470C5BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +306,8 @@ Travis - L.A. Times (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soft rock, Britp
 magnet:?xt=urn:btih:E49116F861BBD5FB6B7693B46AD7EBA10CCE7A84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ magnet:?xt=urn:btih:E49116F861BBD5FB6B7693B46AD7EBA10CCE7A84
 ```bash
 magnet:?xt=urn:btih:6E105D5895BB4E3C78CD625683FDCB380CB8FDAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +359,8 @@ magnet:?xt=urn:btih:6E105D5895BB4E3C78CD625683FDCB380CB8FDAE
 ```bash
 magnet:?xt=urn:btih:13FA23099326816C871072B74B0E9800846AB12E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +389,8 @@ Seth - La France des Maudits (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black
 magnet:?xt=urn:btih:71D07DC24DD3EA83C5C8E4CDD5EF0F507F91DD82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ magnet:?xt=urn:btih:71D07DC24DD3EA83C5C8E4CDD5EF0F507F91DD82
 ```bash
 magnet:?xt=urn:btih:EA84517484FC8D06729233514748C03049D69898
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +444,8 @@ VA - Black Hole Trance Music 07-24 (2024) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:A29F4A74D82CCB8E2AA01FD410EC6983877F2157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +469,8 @@ magnet:?xt=urn:btih:A29F4A74D82CCB8E2AA01FD410EC6983877F2157
 ```bash
 magnet:?xt=urn:btih:7A7532A832BAC8C436CC5B18FE6D8BF541EE6485
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +499,8 @@ magnet:?xt=urn:btih:7A7532A832BAC8C436CC5B18FE6D8BF541EE6485
 magnet:?xt=urn:btih:3B2A6916AFBD2B8CA375CADD7135C10614F88144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +525,8 @@ magnet:?xt=urn:btih:3B2A6916AFBD2B8CA375CADD7135C10614F88144
 magnet:?xt=urn:btih:DC02A972042C238D37725F005C5688F15EF2ABE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +550,8 @@ GeoGebra — мультиплатформенная программное об�
 ```bash
 magnet:?xt=urn:btih:AFF36A04C335F00CDCD52376447EDC425409E065
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +579,8 @@ magnet:?xt=urn:btih:AFF36A04C335F00CDCD52376447EDC425409E065
 magnet:?xt=urn:btih:99D79A58A680D7A93AA84CF1F69E5B9145F0F20C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ magnet:?xt=urn:btih:99D79A58A680D7A93AA84CF1F69E5B9145F0F20C
 ```bash
 magnet:?xt=urn:btih:E21CB01117745A216ACB23DD11E4F25B9088082E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +634,8 @@ magnet:?xt=urn:btih:E21CB01117745A216ACB23DD11E4F25B9088082E
 magnet:?xt=urn:btih:6EBDCDC8D336BECDA244E12D6152172B8BF35489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +659,8 @@ Photo Supreme — вспомогательная программа для вл�
 ```bash
 magnet:?xt=urn:btih:1FBDDB352AC696D1DEA1E88EAB6E78B4D0FA0B0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +688,8 @@ magnet:?xt=urn:btih:1FBDDB352AC696D1DEA1E88EAB6E78B4D0FA0B0E
 magnet:?xt=urn:btih:D776A374A0CF4D3614C60C6CC90A3E30A0E22B19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +716,8 @@ Ernestine Anderson - Hello Like Before (1977) 1989, Concord Jazz [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:E272AE80F67FD4868887BB16F013361A232AF964
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

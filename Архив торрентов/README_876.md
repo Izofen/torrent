@@ -19,6 +19,8 @@ CPU Temp 1.6.0.0 [En]
 magnet:?xt=urn:btih:7FE1959A568F17A9D815B32F941CEDFA63E82D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MediaHuman YouTube Downloader 3.9.9.88 (0305) RePack (& Portable) by Dodakaedr [
 ```bash
 magnet:?xt=urn:btih:2A46BE824CFC6E61281F6CC223AA6C9E0F82C490
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Wise Program Uninstaller 3.1.9.263 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:1562EF6594B95D152F08253130E2F676A882D64E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:5FCD4AFFB39B6EB5D097CBCABAD6F1F63454C738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Glary Disk Cleaner - инструмент от компании Glarysoft для
 magnet:?xt=urn:btih:706150513AE740CA4F7EB9A7C24F4000153A100D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Glary Tracks Eraser - полезный инструмент для защиты 
 ```bash
 magnet:?xt=urn:btih:17DB73E7A25298A26C80E68F79974BDA2BF19F69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Ashampoo UnInstaller 14 поможет тебе установить, проте
 magnet:?xt=urn:btih:1C2DB9CBE15CF778B3F6F1C4D19DE976392D6102
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:D3C42CA665C585DBB4638301122C06EF78D93894
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Mullvad Browser подойдет для пользователей, которы
 magnet:?xt=urn:btih:870011A6434029B75E42B1443F65BB7CA8B52BA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:870011A6434029B75E42B1443F65BB7CA8B52BA5
 ```bash
 magnet:?xt=urn:btih:B55EEEEDB43B6EA9822598C3150EFE2798331F6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Daum PotPlayer - бесплатный мультимедийный проигр�
 magnet:?xt=urn:btih:B634F63B6D7681ADCFFE36D2B9F55F1285A59DC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Media Player Classic Home Cinema – удобный во всех планах �
 ```bash
 magnet:?xt=urn:btih:A35EBEFE361319CD986D1328E1D295EC060D99FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ NonVisual Desktop Access (NVDA) — свободная с открытым ис�
 magnet:?xt=urn:btih:B078E57703EE5A87D77D5C9CB09D32A64D4278BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ WizTree - небольшая и полезная утилита для опре�
 ```bash
 magnet:?xt=urn:btih:993EDEECF97AB59BD516AC1EE12A317474AC6CC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:993EDEECF97AB59BD516AC1EE12A317474AC6CC8
 magnet:?xt=urn:btih:78D5B2B0C6757F92DE5598F0BEEB8142491FC76C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Freeplane – создание ментальных карт в настояще
 magnet:?xt=urn:btih:FD20A8EAFB3537191FAEAE3132FADAABF8A309FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:0459016EAE6D0095D3B7E9626786B31C801E97B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Malware Hunter - отмеченный наградами продукт, кот�
 magnet:?xt=urn:btih:B23239A6B801B29353E14F7502EAE1B8CDD4FC7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:3B3CB8FD7E086A29D5E63C4B264F9894C83C5B3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:3B3CB8FD7E086A29D5E63C4B264F9894C83C5B3A
 magnet:?xt=urn:btih:2D19E4C1BBA7DA16FA5CD128807A2157D858E750
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Total Commander 11.03 (05.03.2024) Portable by MiG [Ru/En]
 ```bash
 magnet:?xt=urn:btih:590F284178310C20D491A027F8A85B98E2AC26E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ BitComet - это функциональный, быстрый и простой
 magnet:?xt=urn:btih:448A5BA82BFB01E815C4AB213773617DDF830B05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Glary Utilities - комплексный набор инструментов д�
 magnet:?xt=urn:btih:F01746DCCCBB1C2E1D113AFA82ADDA8F79E625EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:5FFEB4DBE0435A87E98F96A913263B96E5E89357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Live синхронизирует все и работает в режиме р�
 magnet:?xt=urn:btih:8CBE49EFD9943D0EF1CB4EDC6C1AE39C4896F714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:EFB1EC7736F982B801871843B572307E79E8963D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Armin van Buuren - A State Of Trance 1257 (Yearmix 2025) (2025) [MP3|320 Kb
 magnet:?xt=urn:btih:B787F9C082E8B56064EAC082D1E4AFA61BEF7A79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Ori Uplift - Uplifting Only Episode 672 (Ori's Top 52 Vocal Uplifters of 20
 ```bash
 magnet:?xt=urn:btih:5A11B0C76C02DB683C5CBD4DD432348CBD6F80CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Happy New Year Party 2026 (2025) [MP3|320 Kbps] <Dance, Club, House, Electr
 magnet:?xt=urn:btih:03D49C1A617F0A511C5EFCB19CECB9FB8582177F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Disc 1 (02:55:30)
 ```bash
 magnet:?xt=urn:btih:E9F0BFD22BBC6D5779158B7700EDFE4AF0644596
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Deepalma Presents: Most Loved 2025 (2025) [MP3|320 Kbps] <Organic House, De
 magnet:?xt=urn:btih:87ABC487829767566CF823629EA33ABE71BE0F5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Tiesto - Live @ PRISMATIC, The Great Pyramids of Giza, Egypt (2025-12-19) [MP3|3
 ```bash
 magnet:?xt=urn:btih:2B69060C770170EEF896633AF95479FD0DD9573D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - The Best of TRM 2024-2025 (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:6DB02694B619EEC783427851ABB2E3E90DA201BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - The Best Releases 2025 of Voice of Our Hearts (2025) [MP3|320 Kbps] <Trance
 ```bash
 magnet:?xt=urn:btih:A6595353EE397AD8EDD9C686D3391E16C1FA2C5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Best Of Tidy Two 2025 (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:0C5AE1ACA68CF6CA020F3BED54E2AF1E3A08DD1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - 235 DJ Loaded - World Good Times (2025) [MP3|320 Kbps] <Afrobeat, Dancehall
 ```bash
 magnet:?xt=urn:btih:A99F9ACE24A32A330440B069B26B4C3C0EBA8517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Winter Lounge Selection (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:B9051A7343E74917619724FDC5BC91A7D5F77859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Progressive Vibes Music 2025 (2025) [MP3|320 Kbps] <Trance, Progressive>
 ```bash
 magnet:?xt=urn:btih:2B93311B2F911FD049F7224495EF437D63E410C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Progressive Vibes Dark 2025 (2025) [MP3|320 Kbps] <Trance, Progressive>
 magnet:?xt=urn:btih:C0FDF1021CADDDAD795715559C39D914ABD686F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Progressive Vibes Light 2025 (2025) [MP3|320 Kbps] <Progressive House, Melo
 ```bash
 magnet:?xt=urn:btih:FAF90D3B20D99249EA2EFBB36AD5664EDC556BF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Armin van Buuren - A State Of Trance 1258 (2026) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:7349712F31BE645ECBA5523148BD93D965547270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Ori Uplift - Uplifting Only Episode 673 (Ori's Top 52 Vocal Uplifters of 20
 ```bash
 magnet:?xt=urn:btih:8A6F8BA12D9FA36554673C202BCC5C3F46BE7FD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - SpaceSynth.Ru presents: Special New Year's Voyage 2026 (2026) [FLAC|Lossles
 magnet:?xt=urn:btih:1312994CFC1086E93ED38EF33F1050165A41B43A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - SpaceSynth.Ru presents: Special New Year's Voyage 2026 (2026) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:D4A08B674BC0B364EA2A9CFCA1A6FBD81EEF93D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Oliver Heldens - Heldeep Radio 600 (2026-01-02) [MP3|320 Kbps] <Techno>
 magnet:?xt=urn:btih:154BE52961AC4FB0B7E1C1B82FD7EA8FAF4004E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Summer Melody - Best of 2025 (2025) [MP3|320 Kbps] <Progressive House, Melo
 ```bash
 magnet:?xt=urn:btih:E266D991B95A7E812747C350B0DDD399F6DD5018
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Symphony Of Unity - Tomorrowland Belgium (2025) [MP3|320 Kbps] <Progressive Hous
 magnet:?xt=urn:btih:3E1BB9D055839883C754E8FB8BC1586732E63AC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ VA - Christmas Deep House: Best for the Year 2026 (2025) [MP3|320 Kbps] <Deep Ho
 ```bash
 magnet:?xt=urn:btih:C37FFB320107397C357F88F2F590E8C67450CF9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Lane 8 - Winter 2025 Mixtape (2025-12-17) [MP3|320 Kbps] <Progressive House, Mel
 magnet:?xt=urn:btih:C67EC341299F99104E4741B2FB350A9145756535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +689,8 @@ VA - Velvet Lounge Bar: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:8B64FEDDA003946BE1E50A21287D8A777C705EB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +716,8 @@ Johnny de City - Mashup Avenue 028 (Yearmix 2025) (2025-12-28) [MP3|320 Kbps] <D
 ```bash
 magnet:?xt=urn:btih:0F9F15FDACDBF9FF74F2E2F2257670F96847A4BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -695,6 +745,8 @@ VA - We Love Trance 2026 (2026) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:08B231EA1643CCE97E20322E4B1029BDC8C1926D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

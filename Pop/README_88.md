@@ -22,6 +22,8 @@ VA - Romantic Collection. Golden 80s (2000) [OGG Vorbis|480 Kbps] <Rock, Pop>
 magnet:?xt=urn:btih:0DC998DA8BF1F7AF03C8248910CCFBF36ECC1288
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:0DC998DA8BF1F7AF03C8248910CCFBF36ECC1288
 magnet:?xt=urn:btih:A647A195110C481B27C5C34FC553CB3FBBBB5C88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ Fancy - Viva la Vida (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 ```bash
 magnet:?xt=urn:btih:3B742E8A7EB733AA38373770A870BA3BB7BB7A2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ P!nk (Pink) - TRUSTFALL (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:A56BD638F0F8006807C001A42ED7437EF27C483C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ VA - Discotek 90's (2023) CD, Compilation [MP3|320 Kbps] <Eurodance, Club, Euro 
 ```bash
 magnet:?xt=urn:btih:68EDAD9F2E2904F56622A8AA064BF8CDF8DEE6EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +165,8 @@ Radiorama - The Best Of (1989) [FLAC|Lossless|tracks + .cue] <Italo-Disco, Synth
 magnet:?xt=urn:btih:64DC0DE168B8785C603D55E7AABD536C21D2BF8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ VA - Romantic Collection. Classic For Love (2001) [OGG Vorbis|480 Kbps] <Classic
 ```bash
 magnet:?xt=urn:btih:BEBB6915352970F025F990E074D25D6E786DECB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ VA - Romantic Collection. Reggae (2000) [OGG Vorbis|480 Kbps] <Reggae, Reggae-Po
 magnet:?xt=urn:btih:3CDE77E8CC3D4D7FFDB19B32ECD30DC2E4C72687
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ magnet:?xt=urn:btih:3CDE77E8CC3D4D7FFDB19B32ECD30DC2E4C72687
 ```bash
 magnet:?xt=urn:btih:EE205FCCAC88E41B100B20134A904412DAE9D7CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +281,8 @@ VA - Romantic Collection. Cinema (2005) [OGG Vorbis|480 Kbps] <Jazz, Stage & Scr
 magnet:?xt=urn:btih:12D1BF3E482943868F6D8CC672EF718E1C8886E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ VA - Romantic Collection. Mystique (2000) [OGG Vorbis|480 Kbps] <New Age, Downte
 ```bash
 magnet:?xt=urn:btih:6A3542489BAD550EC91306C2164E7B78F9C3C8C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +339,8 @@ Diana - Die Einzige (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance Pop>
 magnet:?xt=urn:btih:8D37685AB92E2E67DC1617F913E2AE2EEE6D2A7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ In-Grid - Chansons D'Amour (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:4EE00A240598F690B2D839FFECFBFF91DC300C13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +397,8 @@ VA - Трибьют Валерии (2023) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:8A959E8F36EC21D0D0C2A5A752736028342B4F37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ VA - Romantic Collection. Disco (1999) 2 CD [OGG Vorbis|480 Kbps] <Electronic, P
 ```bash
 magnet:?xt=urn:btih:193260425A09F9D5887AFA8BE460BC9F4D7BE694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ VA - Romantic Collection. Italian (1999) [OGG Vorbis|480 Kbps] <Electronic, Pop,
 magnet:?xt=urn:btih:B2DBA55ED06EF06812B6C378200BAF723A5236B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ VA - Romantic Collection. France (1998) [OGG Vorbis|480 Kbps] <Rock, Pop, Vocal>
 ```bash
 magnet:?xt=urn:btih:6735B48CE3B894885D26C3F8BAEB7A5CD107B806
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ Mylene Farmer - L'amour XXL (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:465070AE7C5EE1C7A4848E6A22BAE2A305D7D73A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ Les Champs-Elysees (1969)
 ```bash
 magnet:?xt=urn:btih:20706EAE0E897990F40EE235BC69FAF20D11BBB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +571,8 @@ Minelli - Silver & Gold - Chapter II (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, 
 magnet:?xt=urn:btih:DE66417F569D9BC3E401402A30B13455A3D4C16D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +599,8 @@ VA - Лучшие песни русских сериалов (2003) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:4812A2F22EABB68E6AB4625FE8B3BACE2E52FE87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +629,8 @@ VA - Romantic Collection. Volume 1 (1995) [OGG Vorbis|480 Kbps] <Rock, Pop, Folk
 magnet:?xt=urn:btih:B3B6234FF7D9401C21EC726461785D226E2EF768
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ IOWA - Кассиопея (2023) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:293870239E1D8237D829C4FA643FE7F0AFE4EAB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +687,8 @@ VA - Romantic Collection. Volume 2 (1997) [OGG Vorbis|480 Kbps] <Electronic, Roc
 magnet:?xt=urn:btih:6BFE72866A5D532C2EBAD5D0DD08044CA8E8D01C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +716,8 @@ VA - Ромашки спрятались•Песни Евгения Птичк�
 magnet:?xt=urn:btih:D3536C70216A6247B48649FB38D418D5204CA7DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ VA - Hot Pop Hits 2023 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:9F25C56B670B195F4406CCB07A880C7A85290F0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

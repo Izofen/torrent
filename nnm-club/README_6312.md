@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:33F6EA38F21256AA5EE6818430D99872E846C61D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Galaxy Angel A / Galaxy Angel AA | Галактические ангелы А [�
 magnet:?xt=urn:btih:1097D8092527DBA3F67A08E8206DF4238F257DC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:1097D8092527DBA3F67A08E8206DF4238F257DC3
 ```bash
 magnet:?xt=urn:btih:63BC5A0213FA4CB0C7FFAC672EF6A53E23DDC84C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Shika no Ou: Yuna to Yakusoku no Tabi | The Deer King | Король-олень 
 magnet:?xt=urn:btih:595FFB4F4910E9FC3055810D47C231891AB1B04A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:595FFB4F4910E9FC3055810D47C231891AB1B04A
 ```bash
 magnet:?xt=urn:btih:1664BED378DB9A30ED5DB73182798FC66EBAD4E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:1664BED378DB9A30ED5DB73182798FC66EBAD4E3
 magnet:?xt=urn:btih:6FFA43F42B0903BDBBC7C6B57A3B768A794A9BFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:6FFA43F42B0903BDBBC7C6B57A3B768A794A9BFA
 ```bash
 magnet:?xt=urn:btih:B2B0497AA257431FDE897C5115181E9AE5B1BF07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:B2B0497AA257431FDE897C5115181E9AE5B1BF07
 magnet:?xt=urn:btih:21678E6E7D4A2776EEFA47E6593EAB2B417A727C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:21678E6E7D4A2776EEFA47E6593EAB2B417A727C
 magnet:?xt=urn:btih:7D8E28A2987B43884C04AAAC78FE4E8C09EBE690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:7D8E28A2987B43884C04AAAC78FE4E8C09EBE690
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Bon Jovi - Greatest Hits: The Ultimate Collection (2010) [OGG Vorbis|480 Kbps] <
 magnet:?xt=urn:btih:960178BC16FFF77E51571B42AE6F0E58517CE3DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:960178BC16FFF77E51571B42AE6F0E58517CE3DA
 ```bash
 magnet:?xt=urn:btih:2A1E4B04864DEEF93A94774EBAAC9F554AED75EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:2A1E4B04864DEEF93A94774EBAAC9F554AED75EB
 magnet:?xt=urn:btih:CBA4279C2061ED48E2BB04226EA1073E641D674B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ VA - Keep On Playing/Играй еще (1982) [FLAC 2.0|192/24|image +.cue|Vinyl
 ```bash
 magnet:?xt=urn:btih:858BFC12A76C6E60593D994E5AA0078D63576A17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ VA - Now That's What I Call 12 70s (2022) MP3[320 Kbps] <Hip-Hop, Rock, Funk, So
 magnet:?xt=urn:btih:EE215C70F8B6E890F5B5F24AFA26B273E1CB1155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:EE215C70F8B6E890F5B5F24AFA26B273E1CB1155
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:EE215C70F8B6E890F5B5F24AFA26B273E1CB1155
 magnet:?xt=urn:btih:6B4BB4966DCC7F1A43F0B4D8046D8ECFE95F4C5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:6B4BB4966DCC7F1A43F0B4D8046D8ECFE95F4C5C
 ```bash
 magnet:?xt=urn:btih:9DD7BC38CFB4EEC25C85DD71FFEEA15769F7FE28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ Armik - Romantic Spanish Guitar, Vol. 1 (2014) [FLAC 24/96|Lossless|WEB-DL] <Ins
 magnet:?xt=urn:btih:4524BBBAF1D010F92F762D8AF533DE88F31D22A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ Panic! At The Disco - Live In Denver (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:C36AD3E2E7BE647A80DE6CB8CF33072F96C8B5EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:C36AD3E2E7BE647A80DE6CB8CF33072F96C8B5EF
 ```bash
 magnet:?xt=urn:btih:47F6FFF3BC6C99F7EEE33C600AB3A5C872B58D67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack Othe
 magnet:?xt=urn:btih:AE0ECBA304B671BF4AA956658542C1811893C111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ Jacksmith: Weapons and Warriors (2025) [En] (1.0.1 Build 18571048) Repack Necros
 ```bash
 magnet:?xt=urn:btih:58AA201D14E71618993E4E6E7AF518EC141F051D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:58AA201D14E71618993E4E6E7AF518EC141F051D
 magnet:?xt=urn:btih:651CD58B60A67421290F85F74E454FEA2FF7AEBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:651CD58B60A67421290F85F74E454FEA2FF7AEBC
 ```bash
 magnet:?xt=urn:btih:57CE086AF60F4A9554B6742A7BF7D5860E749A8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +694,8 @@ Novembers Doom - Major Arcana (2025) [FLAC|Lossless|image + .cue] <Doom Metal, D
 ```bash
 magnet:?xt=urn:btih:683B91EE7C0EFE70F4DB72BCF625F3F18E309004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

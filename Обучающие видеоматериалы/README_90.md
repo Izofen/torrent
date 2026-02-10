@@ -21,6 +21,8 @@ Babokschool, Анна Вичугова | Методы описания бизн�
 magnet:?xt=urn:btih:B1C255E488531AB363B41D93F064BBC27EF8B9E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ What was the first thing they taught us at primary school? First thing they taug
 magnet:?xt=urn:btih:8728BC0533419B8295780D12796924CF1623F6BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:8728BC0533419B8295780D12796924CF1623F6BB
 ```bash
 magnet:?xt=urn:btih:7241B00C0E0CF385D3E9413837AC3FC15864B8EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:7241B00C0E0CF385D3E9413837AC3FC15864B8EE
 magnet:?xt=urn:btih:869EF7441BC74166BBE895436617403EC15C4CB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:869EF7441BC74166BBE895436617403EC15C4CB2
 ```bash
 magnet:?xt=urn:btih:2FDAC64D734791BC555D093541B4A85A884352AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Blender Compositor - это система композитинга нодов B
 magnet:?xt=urn:btih:F960F667D36F4C7E43F9C3D968313EAA3BFC84D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Geometry Nodes - это визуальный скриптовый инструм
 magnet:?xt=urn:btih:68F88997A6769EAEFF20A1900C672CFC1E2F7656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ Boundless Entertainment, Sam Eisenhower | Unreal Engine for Filmmakers - Advance
 magnet:?xt=urn:btih:5A31C50251475B946E096D78C5E5C1B7FFA323CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ Unreal Engine 5 сейчас очень востребован, особенно
 ```bash
 magnet:?xt=urn:btih:1A9C79EF7204C316E3C78F9D7F5B186B981229CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ Infostart, Николай Бондаренко | Видеокурс «1C - Пр�
 magnet:?xt=urn:btih:7E9C4E75ED51DC4724A3FDFBC17FA58079B9B588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +304,8 @@ There are a lot of other courses on this topic. So, why would you choose exactly
 magnet:?xt=urn:btih:5819E2302CA3370C1533B6A77E6A004915D18493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ The Gnomon Workshop, Sean Marino | Creating a Sci-Fi Pistol for Games (2023) PCR
 ```bash
 magnet:?xt=urn:btih:8066F88F59BB1FD9694D1699386B7A6F59621456
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +359,8 @@ Kalachevaschool, Анна Эгида | Цветная графика (2023) WEB-
 magnet:?xt=urn:btih:2CE3AEC919E6167E363087875480BA4FB37A6D66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ Stepik, Илья Фофанов | React - Полное руководство (2
 ```bash
 magnet:?xt=urn:btih:2F12F766EEE47A1E6DD1C5F62B889D540ABA41A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +416,8 @@ magnet:?xt=urn:btih:2F12F766EEE47A1E6DD1C5F62B889D540ABA41A4
 magnet:?xt=urn:btih:F9553A823ABB15CB01C7DF3B2C5A4A927931D224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +444,8 @@ HOP&SCOTCH | Английский: Продвинутый Уровень (2023) 
 magnet:?xt=urn:btih:23D680314FE237D4EF0F5C1904DBABCEC4E94195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +470,8 @@ magnet:?xt=urn:btih:23D680314FE237D4EF0F5C1904DBABCEC4E94195
 ```bash
 magnet:?xt=urn:btih:E04CDDD12362F3C24A181F8D5CF924441486A7BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +498,8 @@ Stepik, Shultais Education, Никита Шультайс | Проектиров
 magnet:?xt=urn:btih:9E1FAFD2E00E1B096B43D9C1F9E62D580B659DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +525,8 @@ This course is designed to be clear and understandable - and fun! But we also go
 ```bash
 magnet:?xt=urn:btih:06E6C1A5D1A9B73E4530C124CFF271F4C28BAF98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +555,8 @@ Do you have no programming experience whatsoever? Or maybe you have worked with 
 magnet:?xt=urn:btih:01CF3B0AD963421A6BAD8A92B47C03550460F6AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +584,8 @@ Get those skills with this course! It's is a great chance to work on a real Kube
 magnet:?xt=urn:btih:AF4A0E87F820F8F1F6F06A60679E8ADC21C3FD74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +610,8 @@ magnet:?xt=urn:btih:AF4A0E87F820F8F1F6F06A60679E8ADC21C3FD74
 ```bash
 magnet:?xt=urn:btih:00DCD1F31390D7E445B21BFD2EF5347BD5E85C7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +640,8 @@ You like to stay home & learn from your own computer?
 magnet:?xt=urn:btih:927318FF8FC555D6833B5F01BF742E43B1E1820F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +666,8 @@ Udemy, Nafay Sheikh | Unreal Engine 5: Realistic Product Animation / Visualizati
 ```bash
 magnet:?xt=urn:btih:2C5F6B0177DE0C6983D6487CC7CEE4F74B0388CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +696,8 @@ Max Twain | Workshop Июль 2023: Создание нейроартов в н�
 magnet:?xt=urn:btih:7AC4BE46E70EBB07850EEE97F0B4A96F8FE43702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +724,8 @@ Udemy, Pixel Helmet | Unreal Engine 5 Blueprints: Multiplayer Shooter (FPS) (202
 ```bash
 magnet:?xt=urn:btih:77E99EB63384FB5D9FB53D3AAEC28A750737DB5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

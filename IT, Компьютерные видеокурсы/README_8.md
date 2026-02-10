@@ -22,6 +22,8 @@ GRE туннелирование
 magnet:?xt=urn:btih:D6E6C7078C67C133A95F0136920D580FAA2D8EE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Genius.Courses, Александр Сокирка | Клуб Genius.Courses. 13 
 magnet:?xt=urn:btih:2C086BD1D42C3D92EB523A58C3524ADFE18699CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ Stepik, Codemoon | Создаем корпоративного Telegram бота
 ```bash
 magnet:?xt=urn:btih:70C981F0D17EC45CF21340F3782F9BF7825A8EF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:70C981F0D17EC45CF21340F3782F9BF7825A8EF0
 magnet:?xt=urn:btih:E7840D0DF181BFA73D1F966C2C86DECFC5948DE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Udemy, Вадим Прокопчук | Верстка сайта c исполь�
 magnet:?xt=urn:btih:455CFD0077B649AE38ACEA16685980BC38383793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Mensh | Роутер FreeBSD 8 с билингом Nodeny [2010] VM Ware Rec
 ```bash
 magnet:?xt=urn:btih:156EAF3EEAE1105FA1D800756FBCEF00F3AE279A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ Houdini-course.com, Christian Bohm | Houdini FX Course (2024) PCRec [EN]
 magnet:?xt=urn:btih:C0D805BF7109E32AE871D49F133C6C81B2513388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ Microarch, Кирилл Ветчинкин | Domain Driven Design и Clean Archi
 ```bash
 magnet:?xt=urn:btih:9E0B8B42D369197B74F7295B2CB6D0D0D14CB7CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +246,8 @@ Udemy, Vassilyi Gudomarov | HTML5 и CSS: Полный курс верстки �
 magnet:?xt=urn:btih:0B7AEE66B6C5F7563F030D5B4A9DE79387CA0ACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ Udemy, Vassilyi Gudomarov | Современный JavaScript: От новичк
 magnet:?xt=urn:btih:64EF16BC2BCD981F6874DFF79334755E37093897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:64EF16BC2BCD981F6874DFF79334755E37093897
 ```bash
 magnet:?xt=urn:btih:7C6D6AE0EEC50C3CB9178C1AA4EA8E646FF53339
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +329,8 @@ Python и ИИ-технологии с нуля за 4 месяца.
 magnet:?xt=urn:btih:13F14F4802538CB10A635F84067C3FA9792E1738
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ magnet:?xt=urn:btih:13F14F4802538CB10A635F84067C3FA9792E1738
 magnet:?xt=urn:btih:1D1CEAC5EF5F59D7D3E5229D4358DE181B8CE161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ Linux — основная операционная система для сер
 magnet:?xt=urn:btih:64DC5196F5758837C33DDF14CC777771690B829F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +413,8 @@ CORS Academy, Илья Отькало | Мини-курс «Начинающий
 ```bash
 magnet:?xt=urn:btih:E6D544AA662CE462BA5E8127B89C08A7778318E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +443,8 @@ Network for Everyone (NFE, N4E) | Open Shortest Path First (2024) WEB-DL [AD] [R
 magnet:?xt=urn:btih:DD3679A64A6206C2C9A7C00B23A0639ACE15BA60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +469,8 @@ Udemy, Алексей Леонтьев | Магия сводных таблиц 
 ```bash
 magnet:?xt=urn:btih:0CF6E010CEDF09C81A520F9EEDE4C840E706C59E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +499,8 @@ CSS может быть забавным. Я обещаю.
 magnet:?xt=urn:btih:C2F689363D3CF5366E5FDF3CAD0EF12538CB3F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +524,8 @@ magnet:?xt=urn:btih:C2F689363D3CF5366E5FDF3CAD0EF12538CB3F32
 ```bash
 magnet:?xt=urn:btih:E6470160B9676D7929A3BF67637D1E5DFF49281D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +552,8 @@ magnet:?xt=urn:btih:E6470160B9676D7929A3BF67637D1E5DFF49281D
 ```bash
 magnet:?xt=urn:btih:EF51D11D41F07E9C5DDCD0FE7F999CD8DF7421FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +582,8 @@ Stepik | Терминал Linux. Основы работы в командной
 magnet:?xt=urn:btih:FD3FEE70DE27F4174B552796FFA562453A88F07D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +608,8 @@ Udemy, Colt Steele | HTML & CSS Bootcamp - 2023 Edition (2023) WEB-DL [EN / EN S
 ```bash
 magnet:?xt=urn:btih:C3B6B87FD13A4F06FFB0FD00A2F734927EE2F87B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +636,8 @@ Telegram Web App – это удобный инструмент для разр�
 magnet:?xt=urn:btih:419EB9A7B79186E61CC95EB37AC4378BFD354F41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +661,8 @@ ITVDN, Руслан Ларионенко | Qt Framework (2019) PCRec [RU]
 ```bash
 magnet:?xt=urn:btih:CB15C623342BECC11568E455AB2C0AF8D6C91CF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +691,8 @@ ITVDN, Владимир Виноградов, Кирилл Чернега | C++ 
 magnet:?xt=urn:btih:5398E760C4F05DD93B7FA7B19D755A11708718AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ magnet:?xt=urn:btih:5398E760C4F05DD93B7FA7B19D755A11708718AA
 ```bash
 magnet:?xt=urn:btih:8B58B0ED4BD28BEF98F7BFDD214E332E6E091E9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

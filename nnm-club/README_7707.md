@@ -22,6 +22,8 @@ Formosa - Bittersweet (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:433C7D188AC7913EF25F5D794262E351159915EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ R-Studio Network 9.2 Build 191153 (x64) RePack (& Portable) by TryRooM [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:1423B602A375A604DF982FEBCD5E921C5846E50A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:1423B602A375A604DF982FEBCD5E921C5846E50A
 magnet:?xt=urn:btih:9E965CE896791C334BDF9145AFB2B847AF590DFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:9E965CE896791C334BDF9145AFB2B847AF590DFF
 ```bash
 magnet:?xt=urn:btih:28637A49485E7B4582325DD797F8591BC83089D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Microsoft Safety Scanner - бесплатное средство от Microsoft 
 magnet:?xt=urn:btih:2C5ABCFB1CB329D783CBB943D2FE706C25DB984F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ PowerRun – удобная бесплатная программа для за�
 ```bash
 magnet:?xt=urn:btih:145DAA00C1C5506A186D9384327D555D4831F157
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ The Daybreakers - Get Through This & Live (2023) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:F64257E930C512F665F1628EE4CC0A0C5D34F6F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Moonspell — португальская метал-группа, основан
 magnet:?xt=urn:btih:AD4FD653BE858657F16EAF3CEBBB7C16D282A735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:AD4FD653BE858657F16EAF3CEBBB7C16D282A735
 ```bash
 magnet:?xt=urn:btih:52CF7EDD325124AA18AA5918C970BAE30D203479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:52CF7EDD325124AA18AA5918C970BAE30D203479
 magnet:?xt=urn:btih:3ED1701EE00A154C50EF737E35BDC3AEFD43F668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ Little Magic Sam - Step Back (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:B0A3FECE1808454D6B77578672991A5F82000A91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:B0A3FECE1808454D6B77578672991A5F82000A91
 magnet:?xt=urn:btih:379EB318125808AE264C5BB109C1D273D1F5DD51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:379EB318125808AE264C5BB109C1D273D1F5DD51
 ```bash
 magnet:?xt=urn:btih:135F079784691A51A4209BE2398E3EEFE48693B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ The Timewriter - Dear Human Being (2023) [FLAC|Lossless|WEB-DL|tracks] <EDM, Dee
 magnet:?xt=urn:btih:B2C1552A724D84D96A1379324DF5F83AFD2C5250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:B2C1552A724D84D96A1379324DF5F83AFD2C5250
 ```bash
 magnet:?xt=urn:btih:6EDD64494DC657AC9AB0D002C90E13BD055D3C23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ D.K. Harrell - The Right Man (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:66D98A9617FF9DEEA322F6F20D00AB6115B36CD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:66D98A9617FF9DEEA322F6F20D00AB6115B36CD1
 ```bash
 magnet:?xt=urn:btih:3D0D35F176CD7E3284DA6F9D378A112F184B4E5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ magnet:?xt=urn:btih:3D0D35F176CD7E3284DA6F9D378A112F184B4E5B
 magnet:?xt=urn:btih:6DEC4F94F3CA134CF9365BF4C1A4A3C43E239F09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:6DEC4F94F3CA134CF9365BF4C1A4A3C43E239F09
 ```bash
 magnet:?xt=urn:btih:5883903FDDC77E66FC123002DB040E94CA39D3B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ Dreadnought - The Endless (2022) [FLAC|Lossless|WEB-DL|tracks] <post-metal, doom
 magnet:?xt=urn:btih:64D045E139FE68F0727069D927443BC5153FD856
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:64D045E139FE68F0727069D927443BC5153FD856
 magnet:?xt=urn:btih:51101D42643E55E60198A4701556B4D50805E88F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:51101D42643E55E60198A4701556B4D50805E88F
 ```bash
 magnet:?xt=urn:btih:9A5632A63E4F3C54057AEC1CB0705F8D73C43E27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ Dick Hyman - From The Age of Swing (1994) Reference Recordings [FLAC|Lossless|tr
 magnet:?xt=urn:btih:D825EF24572AC031EDF0D88C14A83832CD705C06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ Fog Blues and Brass Band - Twelve Bar Prescription (2023) [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:9D1345984AC8B3FAF3753CB80BC164E3CE35C5CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ Tinsley Ellis - Compilation (2023) [MP3|320 Kbps] <Rock. Ballads, Blues>
 magnet:?xt=urn:btih:24ED7F8AC7861B056F98098CC617890243586E24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ For Absent Friends - Disappear (2022) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:504CB1C31B86EDB1D7662DE980753E25112C3C92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

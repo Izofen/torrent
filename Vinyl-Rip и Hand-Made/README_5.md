@@ -22,6 +22,8 @@ A4 Tormented(   Читать дальше...   )Жанр: Progressive, Technical
 magnet:?xt=urn:btih:F493BAABCC128DFF80E1F6AE8D47D80A016635B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Caliban - The Undying Darkness (2006) [FLAC|24/192|tracks|Vinyl-Rip] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:4149C489DF7C8DE0398E594666B43F3E53BE6E75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ Mötley Crüe, Quiet Riot сформировавшая лос-анджелесс
 magnet:?xt=urn:btih:254C80D4C6A185178D3E4BD71082E099CD20673E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Side One:
 ```bash
 magnet:?xt=urn:btih:54925EF0C8B99E906B2B5B0468B3AC5007002F2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ Barren Earth — финская метал-группа, основана осе
 magnet:?xt=urn:btih:ADF72316D01E871914967F50E8E39833B6E8F20F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Eternal Storm - испанская метал-группа, созданная �
 ```bash
 magnet:?xt=urn:btih:895BA6E788D2DDBF87B0AB5C60B52E5357CC36A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ A4 Think Of Me • Думай Обо Мне(   Читать дальше...   )�
 magnet:?xt=urn:btih:F39CD250A23C420F07AC529951AC06EB5ACFA5E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ Orbit Culture — шведская мелодик-дэт-метал группа
 magnet:?xt=urn:btih:CBEA716A3F1A52AED6BA3DF8A74558AD23FBDE9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +253,8 @@ Sacred Steel - немецкая пауэр-метал группа из Людв
 ```bash
 magnet:?xt=urn:btih:090936DC08D192DA7FD5E892279DC877E983A5D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +286,8 @@ H.E.A.T — шведская рок-группа из Upplands Väsby, игра�
 magnet:?xt=urn:btih:F128002155276B9287FF5E8F65BF4C7B7E90718B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +314,8 @@ Nachtblut - немецкая дарк-метал группа, основанн�
 ```bash
 magnet:?xt=urn:btih:7F777968699ED6F10B36BFFEBB3F57185143D602
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +344,8 @@ Bleed from Within — шотландская металкор-группа из 
 magnet:?xt=urn:btih:6CA595DF7531FC36F0B9B16F8D7B9B0CFC471E7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +372,8 @@ Machine Head — американская грув-метал-группа, об
 ```bash
 magnet:?xt=urn:btih:B0C40BFEAF2C79B77DD98732F7E83D1A8B3D2C8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +402,8 @@ Cradle of Filth — английская метал-группа, основан
 magnet:?xt=urn:btih:6D1816D9F39B4FFBF4B7C60D68773544DAABED03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +430,8 @@ Arch Enemy (от англ. arch-enemy — заклятый враг) — шве�
 ```bash
 magnet:?xt=urn:btih:C21199E5141DDE66AE81B10185873A6AABFE05A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +460,8 @@ A4 Vineam Meam Non Custodivi	2:50(   Читать дальше...   )Жанр: C
 magnet:?xt=urn:btih:0DE0C8427675FD79E66C2AB4E67F0EBB79FA3CCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +488,8 @@ Epica — нидерландская группа, образована в 2003 
 ```bash
 magnet:?xt=urn:btih:CEE55D1D117A0951BA575A8AB0A4F50CAD457BF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +518,8 @@ Sunstorm — американский музыкальный проект AOR , 
 magnet:?xt=urn:btih:08EF47E75616750593AA285C5DC4B01C4B91E422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +546,8 @@ SIDE A:
 ```bash
 magnet:?xt=urn:btih:F771D4E12B44871361A56B3B2C0A9AB46ABA41E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +576,8 @@ Allegaeon — американская экстремальная метал-г�
 magnet:?xt=urn:btih:7A0A48FCC57FDA4CC2F8E7D7EEF055B54C040C5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +604,8 @@ Gotthard — швейцарская рок-группа, основанная С
 ```bash
 magnet:?xt=urn:btih:63B50B54A45430716A89AED40DAB49AD0110795A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +634,8 @@ magnet:?xt=urn:btih:63B50B54A45430716A89AED40DAB49AD0110795A
 magnet:?xt=urn:btih:29745FA174E2247A62D845D13313F9B1D794D99A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +662,8 @@ Benediction — британская дэт-метал-группа из Бир�
 ```bash
 magnet:?xt=urn:btih:7875F548A12F81B7A6107745DD918008BCCF48F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +692,8 @@ magnet:?xt=urn:btih:7875F548A12F81B7A6107745DD918008BCCF48F8
 magnet:?xt=urn:btih:830F24EFAA3B14D926C301B941C965B6F5BBEBC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +721,8 @@ CD-1 (42:51)
 magnet:?xt=urn:btih:3A0BDBB5480F0ADADC367CD76B2E444F63CD6611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ Magic Kingdom — бельгийская пауэр-метал-группа, о�
 ```bash
 magnet:?xt=urn:btih:E079493DE9AB9074D977482C4E2AF7AF0CC0E962
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

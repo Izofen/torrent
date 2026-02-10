@@ -19,6 +19,8 @@ Angry Birds на Андроид – ваша задача помочь птиц�
 magnet:?xt=urn:btih:F57E2399D2B3B83DC00B52D28F67ACF660094D6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Angry Birds Stella - Продолжение увлекательной сери�
 ```bash
 magnet:?xt=urn:btih:3AD86741E6CA59D08609865AF99F74694A78A26D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Angry Birds Star Wars II – продолжение отличной игры о
 magnet:?xt=urn:btih:16044292F421640CD81DA41893AED80D4003D3F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Angry Birds Star Wars – вот и появилась на свет новая 
 ```bash
 magnet:?xt=urn:btih:B23CF37E11982B9C898CEE02F6EF53B591A42073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Angry Birds Seasons на Андроид – Это сборка самых ра�
 magnet:?xt=urn:btih:F155D73B21B716C369F13BB4F63C0FE4413F9B22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Angry Birds Space на Андроид – вроде бы злые птички 
 magnet:?xt=urn:btih:D440618A90B8D68EF1AABFFC236D9B6F61125C12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Angry Birds Rio на Андроид – на сей раз, наши разоз�
 ```bash
 magnet:?xt=urn:btih:F8EA4E59993BFB0A658420D7A6530704B04B73E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Calendar+ 1.08.58 (Paid) [Ru/Multi] - Календарь
 magnet:?xt=urn:btih:4FE1E753EBE302557F1B7B9F81C9098AF220A182
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Call of Duty: Black Ops Zombies - консольная версия игры т�
 magnet:?xt=urn:btih:4D72226FB16DA13BE77580EB7EA2C3CA27F1FD91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Cheat Engine - Думаю многим знакомо название этой 
 ```bash
 magnet:?xt=urn:btih:F3D74582EE22540B77C73CCC8F5916516B550E46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ MPC MACHINE - Sampling Drum Machine Beat Maker 1.36 [En]
 magnet:?xt=urn:btih:D260E000F0614384F41173B6D5CBC327E8BD92B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ S.T.A.L.K.E.R. – ролевой шутер на андроид, от перв�
 ```bash
 magnet:?xt=urn:btih:1889C88D1526062401B02073ECB280C46BBA56C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Need For Speed: Most Wanted на Андроид - долгожданные го�
 magnet:?xt=urn:btih:E756D46F12F2ED757980C96D57808ACB323DBED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Need for Speed No Limits VR - Отличная игра для любителе�
 ```bash
 magnet:?xt=urn:btih:68246D90E4E0BDC354ED871F529B31689FEBAB2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Minecraft: Story Mode на Андрои – интересная эпизоди�
 magnet:?xt=urn:btih:8C041B419C9FA07C184D2584C6C5803F872EB7D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ WorkAudioBook - уникальный плеер аудио для тех, кто
 ```bash
 magnet:?xt=urn:btih:83258E9572081A4B72435303ECCC5A8343E57A60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Alien Shooter 2 - The Legend – вторая часть захватывающ�
 magnet:?xt=urn:btih:1D20C0E73C0A4391404D2CC56E924FBB6FC7D12A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Graphics Tool - отличное приложение для тех чей см�
 ```bash
 magnet:?xt=urn:btih:C3D9D44D10EB1941B9394D1F315A5FE39F7E1566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Private Browser Pro - быстрый, настраиваемый, приватн
 magnet:?xt=urn:btih:DFA99688A8A1CD2443B0B5EE4DE010F9EC8C3AD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Empire Warriors Premium: Tactical TD Game - тактическая страте�
 ```bash
 magnet:?xt=urn:btih:F6D3FF6A729FF36AB6258FCB3A54FE12DF11F31F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Return To Castle Wolfenstein (RTCW) - Порт компьютерной игры
 magnet:?xt=urn:btih:BBD07262AA34F60CA0C2D9F92617E6C19EF01BAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ GRID Autosport – отличная гоночная игра для Андро�
 ```bash
 magnet:?xt=urn:btih:E0EBF305F34E139F411A65B527EFCA2FB051ABF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ Need for Speed: Hot Pursuit на Android - радуйтесь новым гон�
 magnet:?xt=urn:btih:BAD8DEE55BD1F0FA7F333B9CD50BEFD14B5ADCFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ VK Coffee - Модификация официального клиента ВК.
 ```bash
 magnet:?xt=urn:btih:E199E59803AACFF43FFCD2365B5D4EF9A740A20D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ The Room – квестовая головоломка, в которой вам
 magnet:?xt=urn:btih:6D790145CC99EE752142662B7BCA287058DAA8DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Geometry Dash – веселый платформер на Андроид, в к
 ```bash
 magnet:?xt=urn:btih:AE3B33ED67E0E2B6565C46AC3E6E3C10B20EDE43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

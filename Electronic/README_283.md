@@ -22,6 +22,8 @@ VA - MOMENTS - Chill-Out & Lounge Series, Vol. 5 (2015) [MP3|320 Kbps] <Downtemp
 magnet:?xt=urn:btih:004CD34EEDD7ADB9FE0A86B64EBF916BB8480213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - MOMENTS - Chill-Out & Lounge Series, Vol. 4 (2014) [MP3|320 Kbps] <Downtemp
 magnet:?xt=urn:btih:3A50A4FD7CA6EEACC167206A303C59AEC73A4F4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Woulg - Discography 15 Releases (2009-2018) [FLAC|Lossless|WEB-DL|tracks]<IDM, G
 ```bash
 magnet:?xt=urn:btih:81F693A07CDC11FD160E2758EA3A93FBC74F4093
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Gayalaxy - Ashes of Time (2018) Astropilot Music [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:E062F005F057234CC24170575188C842A31C6F50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Jan Hammer - Seasons, Pt. 1 (2018) [MP3|320 Kbps] <Synth-Pop, Instrumental>
 ```bash
 magnet:?xt=urn:btih:A9CC9157FB3113043F2B21E5579AC5CAEC286BF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ VA - Black Hole Trance Music 07 - 18 (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:43C5E8AE6558FD50905DACF0DF584B4DBF9E8E5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ VA - Markus Schulz - Global DJ Broadcast Top 20 July (2018) [MP3|320 Kbps] <Tran
 ```bash
 magnet:?xt=urn:btih:FE343C725F21E5B101DCB19AB27A87D53CC040CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ VA - Blue (2016) WFMU [FLAC|Lossless|tracks+.cue] <Ambient, Experimental, Field 
 magnet:?xt=urn:btih:C73B8344988086A37D75405DBF558BC917847482
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ ENA - Discography 21 Releases (2008-2018) Horo, Samurai Horo, 7even [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:173F1A06EDFD0DE7050D5942727120DF174B48C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +278,8 @@ Logistics - Hologram (2018) Hospital Records [FLAC|Lossless|tracks+.cue] <Drum n
 magnet:?xt=urn:btih:B2C1A272224576B1BC204B188B3A5670DB7637DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +306,8 @@ Rameses B - Spacewalk II: Zero Gravity (2018) [MP3|320 Kbps] <Chillout, ChillSte
 ```bash
 magnet:?xt=urn:btih:5E8FCEA8BFA8A14D90519FE5AD25287EEE749B97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +336,8 @@ VA - Synth Dimension (2013) LP [MP3|320 Kbps] <Electronic, Electro, Synth-pop, D
 magnet:?xt=urn:btih:331BBE0FE3784D8AE6B6DBE0D28365EC1F1C4ACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +364,8 @@ VA - Vocal Trance Gems - Summer (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:D5B5C4E52A6FE4E6273BCD0C47E8B09E273B8DD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +394,8 @@ Cryostasis - Between Static And Distance (2017) ...txt [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:2DFC45AE005B377884493FD7AECE00B1430150FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +422,8 @@ VA - Witness The Fitness 5 (2018) [MP3|320 Kbps] <Future House, Bigroom, Dance>
 ```bash
 magnet:?xt=urn:btih:15FF950E681DC368E8858CB0735269F14AE0A816
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +452,8 @@ Entheogenic - Hypatia (2019) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Psychill,
 magnet:?xt=urn:btih:86886FE410BDF9844456510B3B365808C01000EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +480,8 @@ VA - Space Holidays Vol. 7 (2015) [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Spac
 ```bash
 magnet:?xt=urn:btih:8929B40F7EC2830487F5D7A58153B754CA70379A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +510,8 @@ Northern Lite - Old School Baby (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Electro
 magnet:?xt=urn:btih:66C8B85B49DC393E2C7A739D91FA101B9E27EFFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +538,8 @@ r.roo - mirroor (2019) Someone Records [FLAC 2.0|48/24|tracks|WEB-DL] <IDM, Tech
 ```bash
 magnet:?xt=urn:btih:18FF481C2642FEAC0A09C3653B1FCE65EE232E83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +568,8 @@ VA - Mykonos Sunsets (The Chill Out Beach Edition) (2019) [MP3|320 Kbps] <Easy L
 magnet:?xt=urn:btih:DE1C58461208C21DC26BFCC922D3597C8BDB599E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +596,8 @@ VA - Deep House Party 2018 (Summer Vibes) [FLAC|Lossless|WEB-DL|tracks] <House, 
 ```bash
 magnet:?xt=urn:btih:A79189B88E75B95255C418F18946BBE3CBBA5264
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +626,8 @@ Aurelie - Desde Que Naci (2003) Swim ~ [FLAC|Lossless|WEB-DL|tracks] <Ambient, A
 magnet:?xt=urn:btih:864219B3FD0A5478811D608720D23198E308665D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +654,8 @@ Yura Yura - 2 Albums (2013-2016) Hands Productions [FLAC|Lossless|tracks+.cue] <
 ```bash
 magnet:?xt=urn:btih:2986391999D3C0060C5A95ACD6612FBDA5C3AED5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +684,8 @@ Autism - Interval (2016) Segment [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Ex
 magnet:?xt=urn:btih:AE842D36B825F0DAEBB0CDDF2CBBA79414AF0064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +713,8 @@ VA - Sick Music 2018 (2018) Hospital Records [FLAC|Lossless|tracks+.cue] <Drum n
 magnet:?xt=urn:btih:C0652B1CB70DB532ECD1CF66DB42DB0A95C0B5F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +741,8 @@ VA - Spiritual Chillout (2004) Compilation [FLAC|Lossless|tracks + .cue] <Downte
 ```bash
 magnet:?xt=urn:btih:5F3308FA61AD4C0F2B71AF7CCCD5657D35703170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

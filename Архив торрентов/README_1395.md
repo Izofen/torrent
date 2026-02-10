@@ -19,6 +19,8 @@ SoftMaker Office Professional 2024 rev. S1204.0902 RePack (& portable) by KpoJIu
 magnet:?xt=urn:btih:C3B904CA66F23FF79A9AA9C5F62A8370398E18C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ ImgDrive позволяет одним щелчком мыши монтиров�
 magnet:?xt=urn:btih:F65F8EB996CA412A15890DD929C8213922FDFBA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ NirLauncher Package - универсальный пакет из более че
 ```bash
 magnet:?xt=urn:btih:02E501FD9C8558BF7BF7E3CF184E929D319D0659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Glary Tracks Eraser - полезный инструмент для защиты 
 magnet:?xt=urn:btih:5CFF7FF733537CD8FF92F35F582EBEA5A8C7F88F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Nox App Player 7.0.3.9000 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CD22541D57C0C99026BA2CB94F0A2C5701B8088A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ TweakPower – представляет собой единый графичес
 magnet:?xt=urn:btih:9094EF6052827F2BF5253FB70C72B4B329406E10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Privacy Eraser Free - комплексный инструмент для защ�
 ```bash
 magnet:?xt=urn:btih:660B8E9D2A8278FEFFC79DAF6FBEF798E15A7813
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:660B8E9D2A8278FEFFC79DAF6FBEF798E15A7813
 magnet:?xt=urn:btih:6DA10169E9812E83C74DF6032DF3A1A17A482552
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ RarmaRadio - программа для прослушивания и запис�
 ```bash
 magnet:?xt=urn:btih:4867620275F517438F261E8AB7A61C5EDCD040EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Camtasia Studio - утилита для записи изображения с �
 magnet:?xt=urn:btih:17F8DC635D2B5E7CD3E5B3B326E823A6EBFB179A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Defender Remover Portable 12.5.5 [En]
 ```bash
 magnet:?xt=urn:btih:2F5B661F829CE6694F3B0A829C3C92D1F9B1BE78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Kdenlive - бесплатный нелинейный видеоредактор,
 magnet:?xt=urn:btih:95D4FFDC158E0606DB5C7E9DDA449FF2F18656BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Glary Disk Cleaner - бесплатный инструмент от компан
 ```bash
 magnet:?xt=urn:btih:05A1B47B8935A9D2B43953E0B88F9DC68E6794FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Advanced SystemCare PRO - это мощный пакет для оптимиза
 magnet:?xt=urn:btih:D047CFA0586992D3BC608C96EDB02468585A5217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:CB558107A6405E4D2925DCAE609A71255D7ACF74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Glary Utilities - функциональный набор системных т�
 magnet:?xt=urn:btih:BC883CBB98AC048C09FF2C08D2C60A80B58DF7D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:48895CB6A67BCAA0D716E4F4BF9EFE1BD88928A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Auslogics Driver Updater – программа представляющая с�
 magnet:?xt=urn:btih:EE1421B631082F5AB80B0E92FF9EF0A4E74B7D9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ ImgDrive - простой и надежный эмулятор дисков, п�
 ```bash
 magnet:?xt=urn:btih:92D5F2FDD0249E591F13E8AF455171F06B9C4012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ IceCream Ebook Reader Pro 6.35 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:634F23BAE8CDB5AED6D11F7A29AD182636EFF06F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:E7167845AB6B76B75F6F4A83D09CE24DAD3ED3E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:910EE7836810E94425CA765400B701415CEC0E47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Perfectly Clear WorkBench позволяет всего за пару клико
 magnet:?xt=urn:btih:61D421D31DEAED05F41C08574CB35119E7B2F99A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:61D421D31DEAED05F41C08574CB35119E7B2F99A
 ```bash
 magnet:?xt=urn:btih:E2E9AA37AF47F1DEC8D117EDBA8089335C080D9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Skype - бесплатная программа для текстового, г�
 magnet:?xt=urn:btih:1D4DAECA4511B473800300968219F3447862CED4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 ```bash
 magnet:?xt=urn:btih:700B5D5FE1DC22529B1532580A8990647D27D424
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:CD47007FE410E86C1EF783EADC5C7902C15251BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:CD47007FE410E86C1EF783EADC5C7902C15251BE
 ```bash
 magnet:?xt=urn:btih:4753D42A769A730B5C3D6D08825C500304435783
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Options Remake Of Tracks November -C- (2018) [MP3|320 Kbps] <Electronic, Cl
 magnet:?xt=urn:btih:A86F5238EF8C54171C5EFF53B149E2342FB4E29D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ VA - Chill Out Empire (25 Smooth Anthems), Vol. 1 (2018) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:6D4FEC41134EA40BA2044E69AC528474925614F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:6D4FEC41134EA40BA2044E69AC528474925614F6
 ```bash
 magnet:?xt=urn:btih:2AC9C9EA93E2E6E592C076D7FF8442E0FFA52724
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Kinza Browser - японский браузер на базе Chromium с доп
 magnet:?xt=urn:btih:E3B0A238F2C1C352DB5D128B609B2640AB1296F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:E3B0A238F2C1C352DB5D128B609B2640AB1296F0
 ```bash
 magnet:?xt=urn:btih:9E81E2418FD2898FA851AC24365FC58C1A91393F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ CD01:
 magnet:?xt=urn:btih:9E42321BF648EC7BB2847B3B6785E436BB255315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Dirty South - Darko (2018) [MP3|320 Kbps] <House, Melodic House>
 magnet:?xt=urn:btih:C87EBC7FC7FC124573A2E13FBCE6B36148519A15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ PDFelement Express 1.0.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1B616028B1BA116A423E58435A4AB7932CD9F293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:1B616028B1BA116A423E58435A4AB7932CD9F293
 ```bash
 magnet:?xt=urn:btih:07E0FCCED2CC4A9E2F8684098DD74C0171CDA251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ VA - Alternative Nation (1985-1994) [FLAC|Lossless|image + .cue] <Alternative>
 magnet:?xt=urn:btih:A22D45C3D4B204725557DECC36D3EF001C1B8597
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:A22D45C3D4B204725557DECC36D3EF001C1B8597
 ```bash
 magnet:?xt=urn:btih:22176FF64AE3D78D41B3B2788A83C12F47658D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:22176FF64AE3D78D41B3B2788A83C12F47658D59
 magnet:?xt=urn:btih:E9C02806A10E5BC82AEA775A820DFC10E42958EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:E9C02806A10E5BC82AEA775A820DFC10E42958EA
 ```bash
 magnet:?xt=urn:btih:5A7EAED47B5BF02821DB5EDF3FBDFBBD0C14FDE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:5A7EAED47B5BF02821DB5EDF3FBDFBBD0C14FDE5
 magnet:?xt=urn:btih:1AF2405CB41628705289D8EC488C2D48F193B04E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ MacPilot 10 v10.14 [En]
 ```bash
 magnet:?xt=urn:btih:04EAD6D83E764F5C2FEB81ACE197E4D528CB93D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ VA - Purple World: Electro Bass (2018) [MP3|320 Kbps] <Dubstep, Drum And Bass, E
 magnet:?xt=urn:btih:ABB3AE72F25C14E280ADD1B84F57591493F8DBF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ para bellvm - Почти оружие (2018) [MP3|320 Kbps] <Gothic Rock, Indie 
 magnet:?xt=urn:btih:2162045E2E9A23450BABD0B4BAF36EAF87F0C548
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:2162045E2E9A23450BABD0B4BAF36EAF87F0C548
 ```bash
 magnet:?xt=urn:btih:7B2EFB87619C7C595CB4B75A5A31671442E8C3D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ John Scofield - Combo 66 (2018) Universal [FLAC|Lossless|tracks + .cue] <Jazz Fu
 magnet:?xt=urn:btih:FD7366CF4EB77006FD107C254EC0503AA61C81BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ Multitouch позволяет связать пользовательское д
 ```bash
 magnet:?xt=urn:btih:B5A7900863C7C15ED49FC7A1092363638E8211C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:B5A7900863C7C15ED49FC7A1092363638E8211C0
 magnet:?xt=urn:btih:E66E3C6E935530C5F1C3937A281D957282373B9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:E66E3C6E935530C5F1C3937A281D957282373B9D
 ```bash
 magnet:?xt=urn:btih:F93B49F788A37AD78CC4A531106B53C8A8335A74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ Caim - Flaneur (2018) Caim Records [FLAC|Lossless|WEB-DL|tracks] <Deep House, El
 magnet:?xt=urn:btih:C2A138D2D5BFEDC0C0C8D4312922D3E511EE270F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ magnet:?xt=urn:btih:C2A138D2D5BFEDC0C0C8D4312922D3E511EE270F
 ```bash
 magnet:?xt=urn:btih:8590026585B165CA7AC9B6ABCDD83E4829F2DD32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

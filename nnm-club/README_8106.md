@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1EC4C022D8A4E068134D3F1D5798815E73875FDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:1EC4C022D8A4E068134D3F1D5798815E73875FDD
 magnet:?xt=urn:btih:BB0081A48EDEB354CA864506ED801C0A36409D10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Lahey/Fujitsu Fortran 7.9 [En]
 ```bash
 magnet:?xt=urn:btih:62B3581687212DFF767242FB9512BB532ECC4302
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Mongo Santamaria - Mongo at the Village Gate (1963) 1990, Riverside[FLAC|Lossles
 magnet:?xt=urn:btih:8BBAFF71FB31B6F1DD60461EE30D9736BDA38208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Arion - Vultures Die Alone (2021) Japanese Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:EC2951A46FCABE957CBAAA9A8B6D461F25214154
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Audiobulldozzer - Pandemonium Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash
 magnet:?xt=urn:btih:43C4E4840D4CD4F4B4747F825F1304BFC462183F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Scherlokk является утилитой для быстрого поиска
 ```bash
 magnet:?xt=urn:btih:7949F2BFD3E2F087C8FE065D025478CC4273C29C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Prairie - And the Bird Said: Cut Me Open and Sing Me (2020) Denovali Records [FL
 magnet:?xt=urn:btih:8650440B62CED732D85C8A8F3EECD3AC8E5E4CF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Mitch Watkins - Curves (1990) Enja Records[FLAC|Lossless|tracks + .cue] <Jazz Fu
 ```bash
 magnet:?xt=urn:btih:F6F1CFF654050FC29B0AD76EF2B4A58B28C4DB8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Misty Blues - Outside the Lines (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 magnet:?xt=urn:btih:ACB4EFB89FB6DF0479B79A07C7A0574EFF1E635E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Nabokova - Кувшинки (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, I
 magnet:?xt=urn:btih:7CF7FAF39FFDECD9A9A06ECF907088206B1F15AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:7CF7FAF39FFDECD9A9A06ECF907088206B1F15AD
 magnet:?xt=urn:btih:85EC7146D2CA4254834C46DD761C2C6CD31B42D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:85EC7146D2CA4254834C46DD761C2C6CD31B42D5
 ```bash
 magnet:?xt=urn:btih:D2460521C4E03A4583B83C67BAE9190027DB0054
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ BELOFF [dp] 2022.08
 ```bash
 magnet:?xt=urn:btih:DC83BA3503AC5EA45DC6BF9C2CFD36E4C0601924
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +409,8 @@ VA - Vintage Landscape Chill Out, Vol. 2 (2021) [AAC|~318 Kbps] <Lounge, Chill O
 magnet:?xt=urn:btih:441136578E380E021AB94B4E3BF2C9358103CDB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ Blazon Stone - шведская хэви-метал/пауэр-метал гру
 magnet:?xt=urn:btih:D4D70CFBEA06E88C501048457208A1E58F66599E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:D4D70CFBEA06E88C501048457208A1E58F66599E
 ```bash
 magnet:?xt=urn:btih:981CF85AFAD9B73C7D089E847993CDBA2CDB7EFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ National Youth Jazz Orchestra - Hallmark (1993) [FLAC|Lossless|image + .cue] <Bi
 magnet:?xt=urn:btih:3A5F66C64D4EB2EC5329F251D42F3240F76DB0C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ Zoot Sims & Bucky Pizzarelli - Send In The Clowns (1990) 1997, MCR [FLAC|Lossles
 magnet:?xt=urn:btih:FF0D6D9C173585C095DF70304A0887813DB24933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:FF0D6D9C173585C095DF70304A0887813DB24933
 ```bash
 magnet:?xt=urn:btih:DCEF6510088FDD9C142574F40D87AF68EEF9931A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ AnyMP4 MP3 Converter может преобразовать почти все в�
 magnet:?xt=urn:btih:23F5222E7BB3BE3323EC730F758365EE5427FA74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ Visual Studio Code – визуальный редактор кода от ко�
 ```bash
 magnet:?xt=urn:btih:6653D22C0288D6A807A2C0BD3828F6EDFCC6CE52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:6653D22C0288D6A807A2C0BD3828F6EDFCC6CE52
 magnet:?xt=urn:btih:61E77CB9439D0EAAE95CF79D6FF2C4825F6E787E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ JRiver Media Center - мультимедийный центр. Воспроиз�
 ```bash
 magnet:?xt=urn:btih:357F6F69B62C47A980C6F65A778C9C1AD4228C48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:357F6F69B62C47A980C6F65A778C9C1AD4228C48
 magnet:?xt=urn:btih:A95A2782C6C21320A382B5E407B9FAC95BEEBE08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ magnet:?xt=urn:btih:A95A2782C6C21320A382B5E407B9FAC95BEEBE08
 ```bash
 magnet:?xt=urn:btih:A2F34DB6EAED5B2AE019B34D65952F24E4BCF7AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

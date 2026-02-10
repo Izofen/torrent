@@ -1,3 +1,29 @@
+###  Публикация: 843738   (977677) от 10.01.2016
+
+Suisei no Gargantia: Meguru Kouro, Haruka | Гаргантия на зелёной планете: Морские тропы за горизонт [2014, OVA, 2 эп.] BDrip 720p Hi10P raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_977677.jpg" />
+</div>
+
+
+###  Подробнее
+
+После событий основного сериала прошло полгода. Ледо живет новой жизнью на борту Гаргантии и вместе со своими товарищами усердно трудится в команде «мусорщиков», занимающихся подъёмом с морского дна артефактов погибшей человеческой цивилизации. И тут в его жизни появляется 13-летняя курьерша Лима, которая раньше жила и работала во флоте Кугеля, а теперь перевелась (   Читать дальше...   )Производство: студия Production I.GЖанр: приключения, фантастикаРежиссер: Мурата КадзуяПеревод: 1) Faktoreal, Nesitach и Stan WarHammer (1 серия), buka63 (2 серия), 2) VividСубтитры: отключаемые - 1) русские; 2) английскиеПродолжительность: 2 серии по 54 минуты
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B758362BB98401380E9AF931C2C02EE7CE60172
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356766   (977751) от 31.01.2020
 
 Haikyuu!! Riku vs Kuu | Haikyu!! Land vs Air | Волейбол OVA-3 [2019, OVA, 2 эп.] WEBRip 720p raw
@@ -18,6 +44,8 @@ Haikyuu!! Riku vs Kuu | Haikyu!! Land vs Air | Волейбол OVA-3 [2019, OVA
 ```bash
 magnet:?xt=urn:btih:2C58F0ECD2CEAAD7EE7C4565A64DDE450BD8D0D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ Suisei no Gargantia: Meguru Kouro, Haruka | Гаргантия на зелёно
 ```bash
 magnet:?xt=urn:btih:530B132F23973C4255223C3EF69791C6CB2D94BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ Saint Seiya(Jashin Eris|Kamigami no Atsuki Tatakai|Shinku no Shounen Densets|Sai
 magnet:?xt=urn:btih:135C982B5DAAC5810AA914D4F0136F51D9CFB186
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ Dragon Ball Movie / Драгонболл: фильмы [1986-1996, MV] DVDrip 72
 ```bash
 magnet:?xt=urn:btih:2EAB25BE43764E859E5F2BF73F7326FE7EEB73B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ Upotte!! / Шмальнём!! [2012, ONA, 10] BDrip 720p raw
 magnet:?xt=urn:btih:6961763069E71B420A0C3C021FBDD160C5FB799A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ Dragon Ball Z Movies / Драгонболл Z Фильмы [1989 - 2015, Movie, 
 magnet:?xt=urn:btih:4AFFDAB07FBC2EE36239A30AA5950D56071A7313
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ Grisaia no Rakuen | The Eden of Grisaia | Рай Грисайи [2015, TV, 10 э
 ```bash
 magnet:?xt=urn:btih:1980AE252FDB395BDA86D7E6F3BF497E9D430050
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +233,8 @@ Dance with Devils / Танец с дьяволами [2015, TV, 12 из 12] HDTV
 magnet:?xt=urn:btih:03ED2E14FDB30874927766102EC513EEDFB205D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ Hibike! Euphonium | Sound! Euphonium | Играй, Эуфониум! [ТВ-1] [2
 ```bash
 magnet:?xt=urn:btih:D59DB7D99E5B90B768F5FC35EA642785C5CF9E9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ Gingitsune: Messenger Fox of the Gods | Серебряный Лис [2013, TV, 1
 magnet:?xt=urn:btih:C0D25308E8D5F78A9BCBB47472B8FB977712E0AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ Zetsumetsu Kigu Shoujo: Amazing Twins | Разрушительные опасн�
 ```bash
 magnet:?xt=urn:btih:CB79EAE49C6DBA98C49D007EDABAC9C3A8C71D80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +339,8 @@ Chaos;Head / Хаос;Вершина [2008, TV, 12] BDrip Hi10p 1080p raw
 magnet:?xt=urn:btih:214CC292D2DF49402FEAF8E32BEE2DB3029EBB4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ Big Order / Приказ свыше [2015, OVA, 1] BDRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:A094FF4B894AA2AC6D5ED7DE752CF735EEED4B61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +393,8 @@ Iya na Kao Sarenagara Opantsu Misete Moraitai 2 | Изобрази отвращ�
 magnet:?xt=urn:btih:0ADACF79854FE762A186483357AECFD3045A5F5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +419,8 @@ Bishoujo Senshi Sailor Moon Crystal Season III | Pretty Soldier Sailor Moon Crys
 magnet:?xt=urn:btih:09C6562F82435212320955160B94A2877770A895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +444,8 @@ Bishoujo Senshi Sailor Moon Sailor Stars | Pretty Soldier Sailor Moon Sailor Sta
 ```bash
 magnet:?xt=urn:btih:9B2B4FB1BB4F060F3944F8A07F6B79CE4EBCACE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +473,8 @@ Bishoujo Senshi Sailor Moon R | Pretty Soldier Sailor Moon R | Красавиц�
 magnet:?xt=urn:btih:7832F5CB0706EC81E5AAE8DE7D6AA4FFAE5520F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +498,8 @@ Bishoujo Senshi Sailor Moon Super S | Pretty Soldier Sailor Moon Super S | Кр�
 ```bash
 magnet:?xt=urn:btih:8CA662D03364E7A9406DDB2E48D6B47BF2E57CDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +525,8 @@ Bishoujo Senshi Sailor Moon S | Pretty Soldier Sailor Moon S | Красавиц�
 ```bash
 magnet:?xt=urn:btih:A20146616F9BF0C17D32C1DDBB831523A6287B0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +554,8 @@ Bishoujo Senshi Sailor Moon Super S Special | Pretty Soldier Sailor Moon Super S
 magnet:?xt=urn:btih:74EEDD553D6F7DC9C50D714D8D510E21EBC2258C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ Bishoujo Senshi Sailor Moon Gaiden: Ami-chan no Hatsukoi | Pretty Soldier Sailor
 ```bash
 magnet:?xt=urn:btih:0D6F83C1E8130A96518FEB99899DC145CD29BB31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +606,8 @@ Bishoujo Senshi Sailor Moon S: Kaguya Hime no Koibito | Pretty Soldier Sailor Mo
 magnet:?xt=urn:btih:1728127E9725A10275C737E11E5E56034089C73D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ Bishoujo Senshi Sailor Moon Super S: Sailor 9 Senshi Shuuketsu! Black Dream Hole
 ```bash
 magnet:?xt=urn:btih:92AF697DB04FC7DD17EA2E93BEB4B043E58E9D9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +658,8 @@ Kannagi: Crazy Shrine Maidens / Хранительницы: веселые де�
 magnet:?xt=urn:btih:6754506A8FEBF8EA8441FDA3DB2F9729152663FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +684,7 @@ Rifle is Beautiful | Винтовка прекрасна [2019, TV, 12 эп.] WE
 magnet:?xt=urn:btih:801611AA190151700BF26822E5ABA4F99D89EA96
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354838   (986044) от 24.01.2020
-
-Roujin Z | Old Person Z | Старик Зет [1991, Movie] BDRip 1080p raw+eng
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_986044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Министерство здравоохранения Японии спешит представить миру инновационную разработку, которая обеспечит беззаботную жизнь для престарелых японцев и их родных. Однако, для молоденькой Харуко, которая присматривает за пожилым Киджуро, современные разработки не пришлись по вкусу, так как в них отсутствует человеческая любовь и забота. На что готова пойти Харуко-сан, (   Читать дальше...   )Производство: A.P.P.P.Жанр: комедия, фантастика, мехаРежиссер: Китакубо ХироюкиПеревод: LupusЯзык озвучки: Японский и английскийСубтитры: Русские, английскиеПродолжительность: 80 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7DD7D52BF373C6762CC874C587087C2C83CC3E0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

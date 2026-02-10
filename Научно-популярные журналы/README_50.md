@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6C8E614643D09926820DF6D6153FB524A51F7DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:6C8E614643D09926820DF6D6153FB524A51F7DE0
 ```bash
 magnet:?xt=urn:btih:D32D11C3ADFC43E312418141EABFFC7059D3496F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:D32D11C3ADFC43E312418141EABFFC7059D3496F
 magnet:?xt=urn:btih:57BA89C7299BF86148AD4BAC3F26668891B12304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:57BA89C7299BF86148AD4BAC3F26668891B12304
 ```bash
 magnet:?xt=urn:btih:61AA300399DDAC85C14DA1821D9FB56572CCD9B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Aviation News - британский ежемесячный журнал по а
 magnet:?xt=urn:btih:BB91E42BE29276C2CBF257948233888F128BA7C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Air International  - британский ежемесячный журнал п
 ```bash
 magnet:?xt=urn:btih:1546C82BDDB422C0D7BDBAB90B40E2192FC1DC8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:1546C82BDDB422C0D7BDBAB90B40E2192FC1DC8F
 magnet:?xt=urn:btih:B825BE334DE1C4BF3B927E515DDC925F8D971834
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:B825BE334DE1C4BF3B927E515DDC925F8D971834
 ```bash
 magnet:?xt=urn:btih:46107CFD20652C298C86B6E48D4EBAF332716B1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ FlyPast - британский ежемесячный журнал по авиа
 magnet:?xt=urn:btih:06EBF2B086CD9067EE26E6223EF08A919E0845F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:06EBF2B086CD9067EE26E6223EF08A919E0845F6
 ```bash
 magnet:?xt=urn:btih:151D7E5DC33F1C5F649CA2BB4C85FFF4FE7D5339
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:151D7E5DC33F1C5F649CA2BB4C85FFF4FE7D5339
 magnet:?xt=urn:btih:62DF20087234130CA33469AF6B16F9B2E6C47955
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:62DF20087234130CA33469AF6B16F9B2E6C47955
 ```bash
 magnet:?xt=urn:btih:BBEA6219E027D43D531F5B43AB49663CACFE86AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:BBEA6219E027D43D531F5B43AB49663CACFE86AD
 magnet:?xt=urn:btih:69611F571E2C8669145EC30E36FC8CB73EEBEE4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:69611F571E2C8669145EC30E36FC8CB73EEBEE4A
 ```bash
 magnet:?xt=urn:btih:77CE7A26E0539DABC75001C0799B750A5A82C481
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Aeroplane Monthly британский журнал, посвященный ис
 magnet:?xt=urn:btih:E1CF3CFF645373FF1BB8AE577B86AC703DCD2015
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:E1CF3CFF645373FF1BB8AE577B86AC703DCD2015
 ```bash
 magnet:?xt=urn:btih:2848AA1AA9C8765A725EA091B7A5D6C659BD72E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:2848AA1AA9C8765A725EA091B7A5D6C659BD72E6
 magnet:?xt=urn:btih:401C9A342DB92B12937EDB76F11B35671563045D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:401C9A342DB92B12937EDB76F11B35671563045D
 ```bash
 magnet:?xt=urn:btih:6044BD0EE34436BAF107FE8EE04FDF0BD465C14F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:6044BD0EE34436BAF107FE8EE04FDF0BD465C14F
 magnet:?xt=urn:btih:3E6D169877D29D5534A1CB6B8B10A68522BBEAA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ magnet:?xt=urn:btih:3E6D169877D29D5534A1CB6B8B10A68522BBEAA3
 ```bash
 magnet:?xt=urn:btih:66C38FF8C3DEE8966D66179641D3D26F7F2F6ED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Aviation Classics - журнал издается в Великобритани�
 magnet:?xt=urn:btih:089019ED7112082F3BF65946C2F7AD34541E701B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ magnet:?xt=urn:btih:089019ED7112082F3BF65946C2F7AD34541E701B
 ```bash
 magnet:?xt=urn:btih:047506E56E4AFA0EB0C9E80E48CB7EEFD1948DBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:047506E56E4AFA0EB0C9E80E48CB7EEFD1948DBA
 magnet:?xt=urn:btih:E744DD069EC6516C59400BDCDB373EB76F687FE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ magnet:?xt=urn:btih:E744DD069EC6516C59400BDCDB373EB76F687FE6
 ```bash
 magnet:?xt=urn:btih:1CBF7869238A3A4AA83C495F1943323C3BF5C995
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ magnet:?xt=urn:btih:1CBF7869238A3A4AA83C495F1943323C3BF5C995
 magnet:?xt=urn:btih:2EB04D9A5F4494276A994A1C904A65924A31246C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ magnet:?xt=urn:btih:2EB04D9A5F4494276A994A1C904A65924A31246C
 ```bash
 magnet:?xt=urn:btih:2AA868709B5435DC3ADD88F70D953EA32763DA5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

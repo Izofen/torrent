@@ -28,6 +28,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ Paul Mauriat - Best Of France (1988) [FLAC|Lossless]<Instrumental, Easy Listenin
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ Ian Moss - Soul On West 53rd (2009) [FLAC|Lossless]<Blues, Jazz, Melodic Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +133,8 @@ VA - Cтаринные русские романсы. Золотая колле�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +159,8 @@ VA - Cтаринные русские романсы. Золотая колле�
 magnet:?xt=urn:btih:1186AF606B8F26D28516C69772782F3C928B2400
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +184,8 @@ magnet:?xt=urn:btih:1186AF606B8F26D28516C69772782F3C928B2400
 ```bash
 magnet:?xt=urn:btih:BC2B7298514C7F75EBAED6AB91A5F2DAD8B40342
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +214,8 @@ Signs — это шедевр гипнотических ритмов и обв�
 magnet:?xt=urn:btih:F5D30AFE2F4ACC66B835CCA1C7FD34793DC58127
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +242,8 @@ R. Carlos Nakai & AmoChip Dabney - Edge Of The Century (2001) [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:4120CF7E95A5AD0C5190AC9C2F3B7784676DDF6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +272,8 @@ VA - Инструментальная музыка - Лучшие мировые
 magnet:?xt=urn:btih:BF85689DDE560C8E4AE06B25A0BD9E889C62D540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +301,8 @@ David Arkenstone - Ambient Space Music (2023) [FLAC|Lossless|WEB-DL|tracks] <New
 magnet:?xt=urn:btih:DE3467A1789EE25D745276CDC89EA076EE9EFDBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +329,8 @@ VA - American Tribal Songs (2011) [MP3|320 Kbps] <Native American, New Age, Inst
 ```bash
 magnet:?xt=urn:btih:D274D638DC396C0554067F0809FADC43443B0CF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +365,8 @@ Susheela Raman - 4 albums (2001-2007) [FLAC|Lossless] <World Music, Ethnic, Chil
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +390,8 @@ Susheela Raman - 4 albums (2001-2007) [FLAC|Lossless] <World Music, Ethnic, Chil
 ```bash
 magnet:?xt=urn:btih:11EBBC4038093744405F8DA499C34916557B1AAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +426,8 @@ Masashi Hamauzu - SaGa Frontier 2 Piano Pieces (1999) [FLAC|Lossless]<Game Sound
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +458,8 @@ Peter Buffett - 500 Nations. A Musical Journey (1994) [MP3|320 кб/с]<New age,
 ```bash
 magnet:?xt=urn:btih:F68273179F3FEA4000B3D3ADA6068803730A781F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +494,8 @@ magnet:?xt=urn:btih:F68273179F3FEA4000B3D3ADA6068803730A781F
 magnet:?xt=urn:btih:40821ECB6899EE0062B2AA2B1D669E3BF006AE3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +528,8 @@ Love Sessions – Love Sessions (2002) [FLAC|Lossless] <Acoustic, Ethereal, Neof
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +564,8 @@ Novalis Deux (ex-Novalis) - 4 albums (2001-2008) [mp3|192-320 kbps] <Neofolk, Ap
 magnet:?xt=urn:btih:AE76AAEE505DC273D71E703FC986A7446229A0FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +598,8 @@ magnet:?xt=urn:btih:AE76AAEE505DC273D71E703FC986A7446229A0FE
 ```bash
 magnet:?xt=urn:btih:BADDFF60DF957469389693EC4554A62F8CA2B2C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +634,8 @@ magnet:?xt=urn:btih:BADDFF60DF957469389693EC4554A62F8CA2B2C6
 magnet:?xt=urn:btih:50F703A69D9A5759BA0D3653791EBC3F07008D27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +668,8 @@ magnet:?xt=urn:btih:50F703A69D9A5759BA0D3653791EBC3F07008D27
 ```bash
 magnet:?xt=urn:btih:62968165B5B199DF8A88C9DC81AC1104C2C647C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +704,8 @@ Empyrium - 6 albums (1995-2006) [FLAC|Lossless] <Neofolk, Doom/Folk/Symphonic Me
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +735,8 @@ Subaudition – это молодой финский дуэт, ранее исп
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -725,6 +771,8 @@ Subaudition – это молодой финский дуэт, ранее исп
 magnet:?xt=urn:btih:997D4D58511514CBBD8613771CA8E0E2F1A5B5B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -758,6 +806,8 @@ VA - Masters of Acoustic Guitar (1997) [MP3|320 кб/с]<Acoustic Guitar / Instr
 magnet:?xt=urn:btih:39131BCB20945342342E04D1C55D68BB74D53E91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -784,6 +834,8 @@ Danheim - Heimferd (2025) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk,
 ```bash
 magnet:?xt=urn:btih:7768DB549187161804F95DD15E48565B5AF83512
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

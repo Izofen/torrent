@@ -1,3 +1,31 @@
+###  Публикация: 914329   (598166) от 02.07.2015
+
+Фолио (изд.) | Суфийские притчи (2014) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый может насладиться мудростью суфийских притч. А уж помогут ли они человеку найти ответы на вопросы, зависит от него самого.
+– Посмотрите на этого горбатого урода! – закричал глупец, показывая пальцем на верблюда.
+– Ты позволяешь себе судить и тем самым создаешь мнение, – ответил верблюд. – Но знаешь ли ты, что таким образом ты подвергаешь сомнению смысл созданного (   Читать дальше...   )Жанр: Мифы. Легенды. Эпос, Афоризмы и цитатыФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5251EA174EB5C9871F2D8817245670AEA6C564FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914604   (598172) от 02.07.2015
 
 Джереми Кларксон | Вокруг света с Кларксоном. Особенности национальной езды (2011) [FB2, EPUB]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:2E5B857F7DA22BAFFBF74B17EC46F875C057D921
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:2E5B857F7DA22BAFFBF74B17EC46F875C057D921
 magnet:?xt=urn:btih:7EA23B2B3D32BBA10D197101FD8965DD444AAF8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:7EA23B2B3D32BBA10D197101FD8965DD444AAF8B
 ```bash
 magnet:?xt=urn:btih:223E39B2E6B3FAA31E216B78D3E510CB8E442EF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +125,8 @@ magnet:?xt=urn:btih:223E39B2E6B3FAA31E216B78D3E510CB8E442EF2
 magnet:?xt=urn:btih:8E66AE4EB94C073DB17D70F950FEF377FFB75CCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +150,8 @@ magnet:?xt=urn:btih:8E66AE4EB94C073DB17D70F950FEF377FFB75CCD
 ```bash
 magnet:?xt=urn:btih:C9E9307FA1B9492E29BCF49C2648ADE103A9CE41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +177,8 @@ magnet:?xt=urn:btih:C9E9307FA1B9492E29BCF49C2648ADE103A9CE41
 magnet:?xt=urn:btih:80CC0C41B9C4F138535BBBF88AD8557967392A26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +202,8 @@ magnet:?xt=urn:btih:80CC0C41B9C4F138535BBBF88AD8557967392A26
 ```bash
 magnet:?xt=urn:btih:1FAA94F5A088AA97882A2F0A93E651FC5AB8E7B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +229,8 @@ magnet:?xt=urn:btih:1FAA94F5A088AA97882A2F0A93E651FC5AB8E7B7
 magnet:?xt=urn:btih:F62006BFDE43401E35F1D9FFBD731EBD2BEDBF65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +254,8 @@ magnet:?xt=urn:btih:F62006BFDE43401E35F1D9FFBD731EBD2BEDBF65
 ```bash
 magnet:?xt=urn:btih:F869FED1D222D8BE63350A35A83DBA712247798D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +281,8 @@ magnet:?xt=urn:btih:F869FED1D222D8BE63350A35A83DBA712247798D
 ```bash
 magnet:?xt=urn:btih:C984AA464C3C06F81B89899B40855536C2EFF53C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +310,8 @@ magnet:?xt=urn:btih:C984AA464C3C06F81B89899B40855536C2EFF53C
 magnet:?xt=urn:btih:EBABE3E179ADEF34A810720AE2E06D86704F3A4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +336,8 @@ magnet:?xt=urn:btih:EBABE3E179ADEF34A810720AE2E06D86704F3A4B
 ```bash
 magnet:?xt=urn:btih:643807D3E61F06A61779A042EA2823418062F6CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +364,8 @@ magnet:?xt=urn:btih:643807D3E61F06A61779A042EA2823418062F6CA
 magnet:?xt=urn:btih:7A9983E3773A8FDCA140B02AF63F054EF10C7A7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +390,8 @@ magnet:?xt=urn:btih:7A9983E3773A8FDCA140B02AF63F054EF10C7A7D
 magnet:?xt=urn:btih:15FA5EA62E6878031C92A45CDD10AF8CDF535F2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +415,8 @@ magnet:?xt=urn:btih:15FA5EA62E6878031C92A45CDD10AF8CDF535F2F
 ```bash
 magnet:?xt=urn:btih:8C0584A48B2EA0A4BD42368BB59853F164DEA5CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +443,8 @@ magnet:?xt=urn:btih:8C0584A48B2EA0A4BD42368BB59853F164DEA5CD
 magnet:?xt=urn:btih:6CDDEDC66DEEE823C0701E7F8CB931B3848BEDAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +468,8 @@ magnet:?xt=urn:btih:6CDDEDC66DEEE823C0701E7F8CB931B3848BEDAF
 ```bash
 magnet:?xt=urn:btih:443B41830558E3C78A8ED30E94CAEDA0117AB956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +496,8 @@ magnet:?xt=urn:btih:443B41830558E3C78A8ED30E94CAEDA0117AB956
 magnet:?xt=urn:btih:E6D2F96B7B110D453DC9865C7BD77854E45F4C4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +521,8 @@ magnet:?xt=urn:btih:E6D2F96B7B110D453DC9865C7BD77854E45F4C4F
 ```bash
 magnet:?xt=urn:btih:ADA1382CFDE1705A9B3CE5B6E57447D80D993CF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +548,8 @@ magnet:?xt=urn:btih:ADA1382CFDE1705A9B3CE5B6E57447D80D993CF9
 magnet:?xt=urn:btih:CFE52B06C341A55A45100F8E3045B0C290563C78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +573,8 @@ magnet:?xt=urn:btih:CFE52B06C341A55A45100F8E3045B0C290563C78
 ```bash
 magnet:?xt=urn:btih:9C12D271E5FB71F445F2A89699A427FACD42D256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +600,8 @@ magnet:?xt=urn:btih:9C12D271E5FB71F445F2A89699A427FACD42D256
 magnet:?xt=urn:btih:1BA391CF970198296BC6254D3B6EDE7DE66A32B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +625,8 @@ magnet:?xt=urn:btih:1BA391CF970198296BC6254D3B6EDE7DE66A32B4
 ```bash
 magnet:?xt=urn:btih:B9A36EBC949FF1741703C16324CD68FFAF53B832
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +652,8 @@ magnet:?xt=urn:btih:B9A36EBC949FF1741703C16324CD68FFAF53B832
 magnet:?xt=urn:btih:F6BB3BDDB9F55DBC4F2E95833DCAEA19FEBDDC73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +678,7 @@ magnet:?xt=urn:btih:F6BB3BDDB9F55DBC4F2E95833DCAEA19FEBDDC73
 magnet:?xt=urn:btih:7B3274131021D811EBCA9CD2FBC3828A35981231
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914288   (599834) от 01.07.2015
-
-Андрей Дачник | Водопровод на даче из колодца: схемы основных элементов для сборки своими руками (2014) [PDF, DOC]
-
->>Разное (категория книг)
->>Строительство и ремонт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_599834.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной брошюре представлены подробные схемы для монтажа системы водоснабжения в дачном доме. Подача воды осуществляется из колодца (скважины "на песок") с использованием погружного насоса или насосной станции. Брошюра отражает личный опыт автора.Жанр: домоводствоФормат: PDF, DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F44D8256A19A4B5BE04E7431839C454EC1FE8266
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

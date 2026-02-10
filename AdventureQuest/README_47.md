@@ -19,6 +19,8 @@ Repurpose (2023) [En] (2.0) Scene Tenoke
 magnet:?xt=urn:btih:35BD9FA7A5CEB7D4157E1A39F3AEC5B933A818BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Perfect Tides (2022) [En] (2.0.11) License GOG
 ```bash
 magnet:?xt=urn:btih:AF586A743B515EDF4F044AA521D1E00D26EC86E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Fort Solis - сюжетный триллер от третьего лица, р�
 magnet:?xt=urn:btih:90B3878379F93E6FCF1020A223A7FF36B5D40201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Colossal Cave - это классическая текстовая приклю�
 ```bash
 magnet:?xt=urn:btih:2453EC3618A19AFC83919B1157A2033A8F5863A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Lakeview Cabin 2 – хоррор-приключение в открытом и�
 magnet:?xt=urn:btih:42190DEA1D53EA95C37AF31AF3D371D57943313C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Submachine - это рисованная приключенческая игра
 ```bash
 magnet:?xt=urn:btih:B7FFA0F0B2CE3AAE0E35D606BD49F7A39D561D18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Bluey: The Videogame предлагает погрузиться в душевн
 magnet:?xt=urn:btih:2DD66C66D781156EB5267E8A4E50CD13F606ADB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Imperial Capital Burns - Muv-Luv Alternative Total Eclipse (2016) [Multi] (1
 ```bash
 magnet:?xt=urn:btih:B2496EAE686CEBAE50B21CE3700CAD366029121A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Ghost Trick: Phantom Detective приглашает игроков в мир з�
 magnet:?xt=urn:btih:AB34258CB7A22D02A798756BA3493285C6AA56A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Peaks of Yore - захватывающая экшен-адвенчура, пог
 ```bash
 magnet:?xt=urn:btih:3FBC1C67B91675E44CF9D7ACA1C8ED327DA52239
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Sally Face (2016-2019) [Ru/Multi] (1.5.46) License GOG [Episodes 1-5]
 magnet:?xt=urn:btih:F1EFE74ADE663424A7B84BEC5F8E69F7EB46E187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Kathy Rain: Director's Cut (2021) [Ru/Multi] (1.0.3.5273) License GOG [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:AD3E2303C415CF2BFA0BB04E5A702013E34989B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Bendy Lone Wolf (2025) [Ru/Multi] (2.0.0) Scene FairLight
 magnet:?xt=urn:btih:99BCF336F6F29D5563DC2D1BF8D3C9F7AC2E91C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Stay Still 2 (2023) [En] (1.0) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:57D2AE09742F25BDB7D26CCDE5BE4CD5E844E822
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ PARANOID (2023) [Ru/Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:DEDCD280BD9EB3FE774BE94B3F325954A16CCC24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ This Bed We Made (2023) [Multi] (1.0.2) Scene Rune
 ```bash
 magnet:?xt=urn:btih:D6C93BBBFBCBB3587FFA76405B43DA8784EB5132
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Journey to the Center of the Earth / Путешествие к центру Зе
 magnet:?xt=urn:btih:6017FF2A9B41FE23DB312B6AE57C3A61999492DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Croc: Legend of the Gobbos (2025) [Multi] (1.04) Repack Necros
 ```bash
 magnet:?xt=urn:btih:B82B739A5AE0FF458D4BFDBD1749A1D98C89245C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Anna’s Quest - это чудесная игра с нарисованной о
 magnet:?xt=urn:btih:5139D33A798859CDC47B3E4AD15DDAEB2F1E9715
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Kimagure Temptation (2021) [Multi] (1.0.5.0/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:12E0108B3C3C4D3436F2A4E7F67C95A1E9E521EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Three Minutes To Eight - это интригующая двухмерная ад
 magnet:?xt=urn:btih:D57B508E4043AAF8F81F7D3C147C1201E28EC1D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Walking Dead: Destinies (2023) [Multi] (1.2.0.6) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:61B1C7B417879ED7948816C009DA577ABE04F1AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Another Day — это психологический хоррор, с граф�
 magnet:?xt=urn:btih:010A65937D0F138C60269BEE1A7B26E37B588027
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Tourist Trap в царстве виртуальных приключений в�
 ```bash
 magnet:?xt=urn:btih:30CE6ED92F1208A632DD5AB4398785AE3ADEB3C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ The Dark Eye: Chains of Satinav [Ru/En] (RePack/1.1) 2012 | Audioslave
 magnet:?xt=urn:btih:E25D1F1B3DCF79EDAAA1372863605DF5407B4B22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Slender: The Arrival возвращается с долгожданным обн
 ```bash
 magnet:?xt=urn:btih:6A6C65CC5A8E523E444E4E3DD790C2C3BDAF8AA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

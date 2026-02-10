@@ -19,6 +19,8 @@ Red Dead Redemption - компьютерная игра в жанре action-adv
 magnet:?xt=urn:btih:42A4057527DFE68B85A196825A09B35A884509D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Red Dead Redemption - компьютерная игра в жанре action-adv
 ```bash
 magnet:?xt=urn:btih:404121CE54D29FCB3BDD635A78826DFE3D9258DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cypress Ridge - 28 сентября 1999 г. Вернитесь к началу 
 magnet:?xt=urn:btih:F029A8399192FD5CC08829C4196AD653884D5026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Creatures of Ava - это не типичная адвенчура по ловл
 ```bash
 magnet:?xt=urn:btih:96B424FEFB86A4C8B37155021D4014A496627247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Bendy and the Ink Machine – это игра-головоломка от пер
 magnet:?xt=urn:btih:2653B98C6CB406524E441916B604D34D701326A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Pure Rock Crawling - симулятор внедорожника, основна
 ```bash
 magnet:?xt=urn:btih:081045DAE2D420DE7DA87DF6ADA23FD695B42EFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Devilated - это адреналиновый сплав жанров олдск
 magnet:?xt=urn:btih:BD44828B6856A008420EC0C41F7A0E7053BBBE9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Evil West (2022) [Ru/Multi] (1.0.5/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:8D51A34F9757DE000697229D2FAFFFF0F10F824C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Finding Frankie (2024) [Ru/Multi] (1.0.0) Scene Tenoke
 magnet:?xt=urn:btih:0EB903DBE4E1FB4939244EADB065C3F7C5BE08DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Coma 2B: Catacomb - корейская приключенческая игр
 ```bash
 magnet:?xt=urn:btih:36775F509416F63A548650AA2729E1B38352E004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Neva (2024) [Ru/Multi] (1.02) Repack dixen18
 magnet:?xt=urn:btih:09C1A284079C42A49CBB336E82325B7495277797
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ A Tiny Sticker Tale (2023) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:C64DD588D6E960CFDB6C12D3ECEE7BFDE35098F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Fall / 沦陷 (2024) [Ru/Multi] (build 16154369) Repack seleZen
 magnet:?xt=urn:btih:996B247759200451B910F3AB858EF4BF16D3514C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Terraformers предлагает вам построить космическу
 ```bash
 magnet:?xt=urn:btih:E9ED31A7E4C6965149BC678EFE4EF3F84D3E0DD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Fall / 沦陷 (2024) [Ru/Multi] (build 16154369) Scene Tenoke
 magnet:?xt=urn:btih:109AECA51590EA5B1BDC8B8F4784B753F46D9BA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.0.0.38f) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:02324A628CDB8077734BAC4C529A14435BDC301D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Beyond Shadowgate, захватывающее продолжение класс�
 magnet:?xt=urn:btih:720E080ABD6327B3E9031D87F819E61B69EA33FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Homeworld 3 (2024) [Ru/Multi] (1.22-CL363716/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:D8E4CBC1017FE277E11BCE5472E74E7B067C7552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) License GOG
 magnet:?xt=urn:btih:361FF4ABD4612063A56C8D0CF142EF9297119320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Not For Broadcast (2022) [Ru/Multi] (2024.10.04c.standalone/dlc) License GOG [Co
 ```bash
 magnet:?xt=urn:btih:09B2B2F60E129D62EF7EC8836103A6ACC686C615
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Cities: Skylines предлагает по-новому взглянуть на 
 magnet:?xt=urn:btih:C29196DF67D2D9A1C793AE321173EDBDA08142F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Axis Unseen - это игра в жанре хэви-метал хоррор
 ```bash
 magnet:?xt=urn:btih:A4F8E6C571FC703BA352B114ED95672A74FB8670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Super Dark Deception (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:46F08193551096E3576E501B2B31495C81367C5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Axis Unseen - это игра в жанре хэви-метал хоррор
 ```bash
 magnet:?xt=urn:btih:83155819E69A08ED897019285CA76A3E7C36F226
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Lamplighters League (2023) [Ru/Multi] (1.3.1-67360/dlc) License GOG [Deluxe 
 magnet:?xt=urn:btih:32CBCB1264A4393C9BCB320A95C37D9B262AAED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Great Rebellion - экшен с олдскульной пиксельной 
 ```bash
 magnet:?xt=urn:btih:79AEBD50279F7BE75330CBBF927731652C061E8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

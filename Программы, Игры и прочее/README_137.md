@@ -19,6 +19,8 @@ YouTube Детям 2.07.1 [En]
 magnet:?xt=urn:btih:EBFA149A2FD41F7FE570BAE6A47BAF540EAE0F70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Garmin: City Navigator Thailand 2016.40 (Dual) [En/Th]
 ```bash
 magnet:?xt=urn:btih:701A8ECAB1EBABB75EC426A0991F9F593CA5C69B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ CountThings from Photos v3.23.1 [Ru]
 magnet:?xt=urn:btih:82EC453A02AAE5C6D418820F34DB6E51EC595533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Ancleaner Pro, Android cleaner 3.30 [Ru]
 ```bash
 magnet:?xt=urn:btih:E801294E6DA5F2336CB5F090AF75BE784019DDC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Blackmart 2020.1.7 [Ru]
 magnet:?xt=urn:btih:D430A9E06447E1A40BAD34F064233153548D58D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Garmin: City Navigator Middle East and North Africa 2017.20 [En]
 ```bash
 magnet:?xt=urn:btih:3A913AB5A944B684055A0619461FE96B6C999371
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ XEFX v2.4.9 [Ru/Multi] - оживить фото и Живые обои и Фо�
 magnet:?xt=urn:btih:F6C0A57E671C54D129903CCECF61284F3D66EE42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Easy Currency Converter Pro 3.5.9 [Rus/Multi] - Курс и конвертер �
 ```bash
 magnet:?xt=urn:btih:164FB099BAD989C6FCF88313154091FD05465C11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Group Ringtone – удобное приложение для андроид о�
 magnet:?xt=urn:btih:C38B887E4FFD7C49496FE1ABE7BCC502794B811B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Edge Screen S10 1.6.4.5 [Ru/En]
 magnet:?xt=urn:btih:AD0B3097BA7CF0D493E148D396FA66F2549DC5F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ VivaCut - видеоредактор для Android. Создавайте вид
 ```bash
 magnet:?xt=urn:btih:8B0F1A2B75AE552F7B7F0C8D8CF8619376B9917F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:8B0F1A2B75AE552F7B7F0C8D8CF8619376B9917F
 magnet:?xt=urn:btih:B6694233A3CFD5F11F898EB541A4EE980A9B4CF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Deezer — популярный сервис потоковой передачи
 ```bash
 magnet:?xt=urn:btih:B5CC7AFFC169AC99F68A620FE865AA9B49F2BDA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:B5CC7AFFC169AC99F68A620FE865AA9B49F2BDA1
 magnet:?xt=urn:btih:C0D4810811D3D730A6A262CF3513EC2C96A0CF1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ SD Card Test Pro 1.8.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:FF57E52090F54278040099DE819CD789F0DBAFA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Garmin TOPO U.S. 100K 5.0 [Карта] (Garmin)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Kitchen Book / Кухонная книга v26.0.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:75317E2F90618950EB45EC65BCD2DB09F89021FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:75317E2F90618950EB45EC65BCD2DB09F89021FC
 magnet:?xt=urn:btih:E2B83F35CDC0119D25A8F69143CABA87928CFC56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Very Little Nightmares - приключенческая игра с элемен
 ```bash
 magnet:?xt=urn:btih:F237C4D9D6C1DB787C85710D039E2C91B052A251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ YoWindow Weather 2.16.5 [Ru/En]
 magnet:?xt=urn:btih:9E8D31A121B925EC78A792F5982FFEE911349962
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:9E8D31A121B925EC78A792F5982FFEE911349962
 ```bash
 magnet:?xt=urn:btih:E34C3A8094C50A7386059E6CAD12AA65F53FE9C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Piano Companion PRO: аккорды / Piano Chords, Scales, Progression Companio
 magnet:?xt=urn:btih:C68D4171A6E2FDD8E8C843CF1EA15F947E87795C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ iGO R3 Here (NavTeq) Европа 2019.Q4 (.fbl, .fda, fds, .fjw, .fjv (Russia),
 ```bash
 magnet:?xt=urn:btih:54F704F28528D258AFB9DD25A92D152FE73CD368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Hola Free VPN Proxy - Хотите посетить кучу зарубежны�
 magnet:?xt=urn:btih:F5736C9A230496D4837A7757C92DC82FB77DE466
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ iGO Primo NextGen 9.18.27.682862 pongo skin [Ru/Multi]
 magnet:?xt=urn:btih:800739ED45D33638214B8852591EF28DEFF10E61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ ipTView - простейший плеер для просмотра онлайн
 ```bash
 magnet:?xt=urn:btih:BE9A8AEADF4B210FE89EC7187BE3957F99DB4B8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

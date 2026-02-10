@@ -22,6 +22,8 @@ Fуanor - Hellhammer (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:CA30A22CF249C939D8D4A67296CA1A4DEF74B77F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:CA30A22CF249C939D8D4A67296CA1A4DEF74B77F
 ```bash
 magnet:?xt=urn:btih:67E34BFA1B72B3DE65BEB9271AA1B2520976BB43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:67E34BFA1B72B3DE65BEB9271AA1B2520976BB43
 magnet:?xt=urn:btih:DDF7DB21778774ADC9B608415BCFDD31A6518EAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:DDF7DB21778774ADC9B608415BCFDD31A6518EAB
 ```bash
 magnet:?xt=urn:btih:99161DBC0E96BD6CEEBFCF58A5D2C6F27A9A5237
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:99161DBC0E96BD6CEEBFCF58A5D2C6F27A9A5237
 magnet:?xt=urn:btih:D15EE41D8167178DCA78EF395DECC72F591C1538
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:D15EE41D8167178DCA78EF395DECC72F591C1538
 magnet:?xt=urn:btih:0739D6B31F28F2789870186A20225707A49702EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Electrical Calculations Pro / Электрические расчеты v11.0.0 
 ```bash
 magnet:?xt=urn:btih:5C68FC34BC59926E6384500D34C4B7D2BBEA0FEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:5C68FC34BC59926E6384500D34C4B7D2BBEA0FEE
 magnet:?xt=urn:btih:D32306B1BAE29D7D3A544CFA411E0532F9484B89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ FL Studio Producer Edition - это одна из лучших программ(
 ```bash
 magnet:?xt=urn:btih:631C3F3DC2FF9EBA6681E0AEFEB319D1863CBA3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:631C3F3DC2FF9EBA6681E0AEFEB319D1863CBA3B
 ```bash
 magnet:?xt=urn:btih:0A9D5FB00EBB1AED8901DFCA67EDA00AC467C9DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ Purvpn 9.4 [En/Farsi]
 magnet:?xt=urn:btih:48BD2D7D320C642B7D1F3C33FDEB1F5FC30D2A2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:48BD2D7D320C642B7D1F3C33FDEB1F5FC30D2A2D
 magnet:?xt=urn:btih:65A84348D0A7E6E236FE3AFBE282B49B629697D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:65A84348D0A7E6E236FE3AFBE282B49B629697D0
 ```bash
 magnet:?xt=urn:btih:560440818859DD606DCB961361D1F6533D981B64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:560440818859DD606DCB961361D1F6533D981B64
 magnet:?xt=urn:btih:D85FA24AF224B7C27542B4D47E27BBB763A64782
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ Kaizoku Oujo | Fena: Pirate Princess | Фена: Принцесса пирато
 magnet:?xt=urn:btih:672258E0CECFA4DB686D8DB7BC5A3A76B124535F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:672258E0CECFA4DB686D8DB7BC5A3A76B124535F
 ```bash
 magnet:?xt=urn:btih:8AADF7DF95BEE3E8A76651189E267AEFAD2282B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ VA - Tanzlokal-Musik - Premium Playlist (int) [a001] (2012-2025) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:4CD6A633F06A0E897C78D63F47E21387D6AAB539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:4CD6A633F06A0E897C78D63F47E21387D6AAB539
 ```bash
 magnet:?xt=urn:btih:9094C3FB66D4753AB3FD4CD5460039CD2C3A1B06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:9094C3FB66D4753AB3FD4CD5460039CD2C3A1B06
 magnet:?xt=urn:btih:B80EB60939CD42BED3E2D955313C3C6DB5735D50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:B80EB60939CD42BED3E2D955313C3C6DB5735D50
 ```bash
 magnet:?xt=urn:btih:21D81D4FB478973E63D8285BB2E8F3E9B0DF7301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ Kaizoku Oujo | Fena: Pirate Princess | Фена: Принцесса пирато
 magnet:?xt=urn:btih:4269E1D8EA48E340D485CED6130740E00D364668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:4269E1D8EA48E340D485CED6130740E00D364668
 ```bash
 magnet:?xt=urn:btih:5FF700086CE5F58C142FCF8A6CFCE56AB19AAB9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:5FF700086CE5F58C142FCF8A6CFCE56AB19AAB9A
 magnet:?xt=urn:btih:AEB70BF026049A5B09DB08FE69491483DDB36B38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:AEB70BF026049A5B09DB08FE69491483DDB36B38
 ```bash
 magnet:?xt=urn:btih:B606705BAC7281C3EC49854A62ED26D2AC7C96DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ Marz — это не просто набор пользовательского 
 magnet:?xt=urn:btih:7604D54FDAE2582ED58EB23CDF0B725A1B6C1223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ Website-Watcher — мощное приложение для отслежива�
 ```bash
 magnet:?xt=urn:btih:ACF032B60DFC8559E7EC6A079757A9853223AB93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

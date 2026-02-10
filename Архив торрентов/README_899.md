@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:496164FB4EAFBD5DCF336E3DC9DDEA85E8BA0E92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Viber - десктопная версия популярного мобильн�
 magnet:?xt=urn:btih:57EA6538A1E908AC02DA625AA13732B6087DBF11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:ED106A43D7D21159D0F0506CD1CAA1B84715536E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Wondershare UniConverter - простой в использовании виде
 magnet:?xt=urn:btih:6E0180D841BDF0C261CB80BCA3D252D4EE91A591
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:D0B119F859B23846276A531E0F36B06CABFDFE5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Deepin (ранее Linux Deepin) – открытый дистрибутив GNU
 magnet:?xt=urn:btih:E20C839C39E4521F6B4DD7D975B52F33F36CFEF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Revo Uninstaller Pro 5.2.5 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CE915743A04A49ED640FD9860C08571DCECB94EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Corel VideoStudio Ultimate 2023 26.1.0.268 [Multi]
 magnet:?xt=urn:btih:65C476AEC269F063A69C8DF3BC43ABD7BB14AEEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Adobe Acrobat Reader — приложение Reader для самых важн�
 magnet:?xt=urn:btih:2658B8EA53F8C273A4A65B484639E8CB788C0289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Clip Studio Paint - это профессиональное программно
 ```bash
 magnet:?xt=urn:btih:D1AE707B54A63DD77865361EBFD57C3EF5352A76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ FotoMagico – популярный пакет для создания слай�
 magnet:?xt=urn:btih:AC25C52855DC35496B7891C2B9E6A3415FD247C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ EazyDraw от Dekorra Optics – графическая программа, со
 ```bash
 magnet:?xt=urn:btih:E61F818900432B4D5FB85E30724EC65C68C44952
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ FSNotes - это менеджер текстовых заметок для macOS
 magnet:?xt=urn:btih:1948C50C50438DEC08407B7531530DA337DB36AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Dropover - это утилита, облегчающая управление и
 ```bash
 magnet:?xt=urn:btih:AC80BD665A2C343F1992EBF797ACDAC3555FD9A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ djay Pro обеспечивает полный инструментарий дл
 magnet:?xt=urn:btih:087016B2118E56A2E8B84CFA312DB640A9014729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:EA90CB416C36149EDE19FDA3E0937421E52BD8A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ BoltAI — это мощный помощник ИИ, предназначенн
 magnet:?xt=urn:btih:E21F003BB2C55607DBA163903C033BD5FE91029F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ AlDente Pro fo Mac 1.25 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FAF42DBDE9F16DA900C1B2FDDA8E1C1166D64111
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ ExamDiff - мощная и легкая в использовании прогр
 magnet:?xt=urn:btih:7B21F85D8D8DD1C6EB426C24C2342BCBDEF82159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:DAFF69E52243E8230974516E269C224324ACF02D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Windows Firewall Control - утилита, с помощью которой, в�
 ```bash
 magnet:?xt=urn:btih:3112BDAB2F544C67E2B7EC4BC9A03876F0E5EED5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ CareUEyes служит для изменения цветовой темпера
 magnet:?xt=urn:btih:193D52ADCD9F1A7CC8D4D77F817B75BE18F1C17D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Revo Uninstaller Pro 5.2.5 Portable by FC Portables [Multi/Ru]
 magnet:?xt=urn:btih:1D31FA1940CA8966B646459C48AA3B57ACD15702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ PicPick - приложение, объединяющее в себе возмо�
 ```bash
 magnet:?xt=urn:btih:8E591453603339A0DB7304D9745374763B74DC22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 magnet:?xt=urn:btih:1C1F5B2C1EB998CA5CC1C8832898AA0270C9A560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:61F2ED232E8624A3A50B535A96CC421BD6DB6739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

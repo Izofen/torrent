@@ -1,57 +1,3 @@
-###  Публикация: 1182618   (315105) от 11.11.2017
-
-VA - Spaceship (2017) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Vais - Lonely Planet (Original Mix)
-02. Ricky Rondi - Looking Hot
-03. Daktrin - Solaris
-04. Roni Iron - Guitar Spirit (Matthias Freudmann Remix)(   Читать дальше...   )Жанр: HouseПродолжительность: 07:25:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F9201EC9784587E4BDC1AAE70527AAF3B3A1A6E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182534   (315106) от 11.11.2017
-
-VA - Global DJ Broadcast: Top 20 November (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_315106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Markus Schulz Presents Dakota - In Search Of Something Better (Extended Mix)  6:39
-02.  Nifra - Never Forget (Extended Mix)  6:15
-03.  Cosmic Gate & JES - Materia (Extended Mix)  7:11
-04.  Gai Barone - Bus-Hill (Extended Mix)  8:56(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70B2E3B60BBD507EE795605AAF32611BEA32A927
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182547   (315107) от 11.11.2017
 
 Privatus 5.1 [Multi]
@@ -73,6 +19,8 @@ Privatus - это простое приложение для удаления н
 ```bash
 magnet:?xt=urn:btih:F0174821D4AFC424D0512F39FE86EC21D7EBF61F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +49,8 @@ VA - 100 European EDM (2017) [MP3|320 Kbps] <Electro, Dance, House, Trance>
 magnet:?xt=urn:btih:038C19C7508A0BE1CA2A6527015E145159B4592B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +78,8 @@ Stan Getz - The Master (1975) 2017, Sony Music [FLAC|Lossless|image + .cue] <Pos
 magnet:?xt=urn:btih:67163BD1AD550C2D4E58C50430A8BF752591E419
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +103,8 @@ magnet:?xt=urn:btih:67163BD1AD550C2D4E58C50430A8BF752591E419
 ```bash
 magnet:?xt=urn:btih:63504F0376A07FA13555FF05C541B2D7F126FF68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +130,8 @@ magnet:?xt=urn:btih:63504F0376A07FA13555FF05C541B2D7F126FF68
 magnet:?xt=urn:btih:1D7F2CC343CBA5E2B3AE9F0448A35D4974E80A42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +155,8 @@ Total Uninstall - утилита, предназначенная для корр
 ```bash
 magnet:?xt=urn:btih:CA3E5479EEF2C84B059B05C99DABFEB54914D2E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +182,8 @@ magnet:?xt=urn:btih:CA3E5479EEF2C84B059B05C99DABFEB54914D2E0
 magnet:?xt=urn:btih:179060A8B0B25CF1F5EEE05BA2F00E27139AB3C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +207,8 @@ magnet:?xt=urn:btih:179060A8B0B25CF1F5EEE05BA2F00E27139AB3C9
 ```bash
 magnet:?xt=urn:btih:2F4C4CD0B7CF0E7954C7C721474942A32F311682
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +234,8 @@ Viber для Windows позволяет бесплатно отправлять 
 magnet:?xt=urn:btih:D4854C2E69DF1C23DB55521D8003B90F0E36929A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +259,8 @@ magnet:?xt=urn:btih:D4854C2E69DF1C23DB55521D8003B90F0E36929A
 ```bash
 magnet:?xt=urn:btih:A5D4E138061B44D1EEB3941894838D9996D1E38D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +286,8 @@ magnet:?xt=urn:btih:A5D4E138061B44D1EEB3941894838D9996D1E38D
 magnet:?xt=urn:btih:78A567F0E8AD293AF7A64836333129A229F00276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +312,8 @@ magnet:?xt=urn:btih:78A567F0E8AD293AF7A64836333129A229F00276
 magnet:?xt=urn:btih:17F4A6EB9A6CD65A99C43A20BF9072ED563EF904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +337,8 @@ magnet:?xt=urn:btih:17F4A6EB9A6CD65A99C43A20BF9072ED563EF904
 ```bash
 magnet:?xt=urn:btih:6E5A515F7B6D4E0E21423CD890E7FCBBA9AB032D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +365,8 @@ magnet:?xt=urn:btih:6E5A515F7B6D4E0E21423CD890E7FCBBA9AB032D
 magnet:?xt=urn:btih:461B1BD8576F1AC5CD769301FAB5FEA08FFB8093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +391,8 @@ magnet:?xt=urn:btih:461B1BD8576F1AC5CD769301FAB5FEA08FFB8093
 magnet:?xt=urn:btih:1A85D2C5B59C1F52AD84631606E6179CA0CEB764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +416,8 @@ magnet:?xt=urn:btih:1A85D2C5B59C1F52AD84631606E6179CA0CEB764
 ```bash
 magnet:?xt=urn:btih:B851DF6E40CDA9709C5848EC155ABEDF4CFB8366
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +444,8 @@ magnet:?xt=urn:btih:B851DF6E40CDA9709C5848EC155ABEDF4CFB8366
 magnet:?xt=urn:btih:66CBA6D39CD9BF9DE8E49CF4248143D2A6377408
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +470,8 @@ magnet:?xt=urn:btih:66CBA6D39CD9BF9DE8E49CF4248143D2A6377408
 magnet:?xt=urn:btih:DE2C2A56392D80A4BFD7864917B051E00CEF7653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +495,8 @@ magnet:?xt=urn:btih:DE2C2A56392D80A4BFD7864917B051E00CEF7653
 ```bash
 magnet:?xt=urn:btih:BDD88DEEDB38E7C961D4E66751E139CAC3F3A66F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +525,8 @@ Ennio Morricone - Morricone Segreto (2020) [FLAC|Lossless|WEB-DL|tracks] <Instru
 magnet:?xt=urn:btih:F4EEACDFF4142686D8F7872873AD1B08B6E7A326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +550,8 @@ PowerISO - программа позволяет создавать, конве�
 ```bash
 magnet:?xt=urn:btih:3F8FD11A5C65EBB7FD1A9A33EC8810E71749DF66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +577,8 @@ magnet:?xt=urn:btih:3F8FD11A5C65EBB7FD1A9A33EC8810E71749DF66
 magnet:?xt=urn:btih:F042A77F72C2B7751154023ACE30AE3B4A2EB4E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +603,8 @@ magnet:?xt=urn:btih:F042A77F72C2B7751154023ACE30AE3B4A2EB4E3
 magnet:?xt=urn:btih:A1E9FBE83BD0BFEBDF3FBB4A606EDFF871769F6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +628,63 @@ magnet:?xt=urn:btih:A1E9FBE83BD0BFEBDF3FBB4A606EDFF871769F6F
 ```bash
 magnet:?xt=urn:btih:4F5D7DAB42A5D14610A0FF06069056783B34158A
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421757   (315131) от 06.11.2020
+
+Whitesnake - Love Songs (2020) Remix [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Dad-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Will Set You Free (2020 Remix) [00:04:07]
+02. The Deeper The Love (2020 Remix) [00:04:01]
+03. All I Want, All I Need (2020 Remix) [00:05:41]
+04. Too Many Tears (2020 Remix) [00:06:09](   Читать дальше...   )Жанр: Hard-Rock, Dad-RockПродолжительность: 01:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB028944C29767ECDE2B831FABB0E3430413ADED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581943   (315136) от 01.12.2012
+
+Секретная миссия (1950) SATRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_315136.jpg" />
+</div>
+
+
+###  Подробнее
+
+1945 год. Германия. Советские разведчики узнают о тайных переговорах немцев с англичанами и американцами и о готовящейся секретной капитуляции немецких войск на Западе. Советская разведчица Марта Ширке (она же - Маша Глухова) с честью выполняет задание командования.Жанр: Военный, детективРежиссер: Михаил РоммАктеры: Николай Комиссаров, Сергей Вечеслов, Елена Кузьмина, Алексей Грибов, Александр Чебан, Александр Антонов, Владимир Белокуров, Павел Березов, Павел   Гайдебуров, Владимир Гардин, Александр Хохлов, Василий Макаров, Александр Пелевин, Марк Перцовский, Николай Рыбников старший, Владимир Савельев, Николай   Тимофеев, Михаил Высоцкий, Лев Фенин, Борис Петкер, Михаил Яншин, Николай Трофимов, Георгий ГеоргиуПродолжительность: 01:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC331C34D149803147B56415D1DA6BE5AC036048
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

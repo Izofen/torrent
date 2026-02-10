@@ -1,3 +1,72 @@
+###  Публикация: 861879   (931771) от 22.01.2015
+
+W.A.S.P. - First Blood... Last Cuts (1993) Japan [FLAC|Lossless]<Hard'n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Animal (Fuck Like A Beast) [03:07]
+02. L.O.V.E. Machine (Remix) [03:54]
+03. I Wanna Be Somebody (Remix) [03:36]
+04. On Your Knees [03:48]
+05. Blind In Texas (Remix) [04:23]
+06. Wild Child (Remix) [05:10]
+07. I Don't Need No Doctor (Remix) [03:28]
+08. The Real Me [03:21]
+09. The Headless Children [05:48]
+10. Mean Man [04:53](   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 01:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C0AC81FD82FBEAF74BE71A3C13E3C72C05CF694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 629374   (931874) от 13.03.2013
+
+In Vain - Ænigma (2013) Scene [FLAC|Lossless]<Melodic Black, Progressive Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01 Against The Grain 07:04
+02 Image Of Time 05:37]
+03 Southern Shores 01:59
+04 Hymne Til Havet 05:03
+05 Culmination Of The Enigma 08:23
+06 Times Of Yore 07:17
+07 Rise Against 05:52
+08 To The Core 06:26
+09 Floating On The Murmuring Tide 09:14Жанр: Melodic Black, Progressive DeathПродолжительность: 00:57:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 754707   (932152) от 08.02.2014
 
 Kampfar - Djevelmakt (2014) [FLAC|Lossless]<Pagan Black Metal>
@@ -26,6 +95,8 @@ Kampfar - Djevelmakt (2014) [FLAC|Lossless]<Pagan Black Metal>
 magnet:?xt=urn:btih:E02C0C08B2285AD9169C76D505AA7FF9F8E4C946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +123,8 @@ My Dying Bride - The Ghost Of Orion (2020) [FLAC|Lossless|Web-DL|tracks] <Doom M
 ```bash
 magnet:?xt=urn:btih:EA13CA9F2E3D94B08CD89895C9F2CDF63830908D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -80,6 +153,8 @@ Crematory - Unbroken (2020) [FLAC|Lossless|Web-DL|tracks] <Industrial Metal, Got
 magnet:?xt=urn:btih:AFB262BDA77F7FE29645AD925F3F9AF0F097C2D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -106,6 +181,8 @@ Kalmah - The Black Waltz (2006) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 ```bash
 magnet:?xt=urn:btih:8C9397ADE2DB822EE572DE6091640132A11AD9A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +217,8 @@ Iron Maiden - Edward The Great: The Greatest Hits (2005) [APE|Lossless]<Heavy Me
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +245,8 @@ U.D.O. - Timebomb (1991) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:D6D9705D991A2CE0CB8A29C371E740DF3596B55F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +281,8 @@ Van Canto - Dawn of the Brave (2014) [FLAC|Lossless]<Power A Cappella>
 magnet:?xt=urn:btih:DA6E83946160296A00DB2424F2330179F625F150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +310,8 @@ Dark Fortress - Spectres from the Old World (2020) [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:F7352C8A7923B53E70179471BA35107A704F6E94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +338,8 @@ Powerwolf - Blessed & Possessed (2017) 2CD, Tour Edition [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:0140E2072F812EA5173EC10151D7F5FF28089F00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +374,8 @@ Eternal Tears Of Sorrow - Children Of The Dark Waters (2009) Korea Edition [FLAC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +408,8 @@ Thyrien - Hymns Of The Mortals - Songs From The North (2014) [FLAC|Lossless]<Mel
 ```bash
 magnet:?xt=urn:btih:11917E8F59CC73E1CC48FC4B94BDFCCA9DD0694A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +444,8 @@ Hatriot - Heroes Of Origin (2013) [FLAC|Lossless]<Thrash Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +472,8 @@ Concerto Moon - Rise From Ashes (2008) Japanese Ed. [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:EA28DA27B76E9C8294A63A5F817BEF60F6989E39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +502,8 @@ SAOR - Guardians (2016) [FLAC|Lossless|image + .cue] <Atmospheric Folk, Black Me
 magnet:?xt=urn:btih:C1D775209EF455A1E2709D22B1C93F69067D2B2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +530,8 @@ Arizmenda - Despairs Depths Descended (2016) [FLAC|Lossless|tracks + .cue] <Blac
 ```bash
 magnet:?xt=urn:btih:BB18BD3883CC986F83F5290048837701A6D8A918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +566,8 @@ Elysion - Someplace Better (2014) [FLAC|Lossless]<Gothic Metal/Alternative Rock>
 magnet:?xt=urn:btih:5084BC69AED559BE79D37D3C61F0F17F21A8B92E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +595,8 @@ Accept - Restless And Live (2017) 2CD [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:9B25E07E001FAF88172F96D6FD73CEDEFA30C279
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +623,8 @@ Night Demon - Curse Of The Damned (2015) [FLAC|Lossless] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:A0C86B994CAE2A9BE1DF4101683AAF25CA108B93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +659,8 @@ Sylosis - Dormant Heart (2015) Limited Edition [FLAC|Lossless]<Melodic Death/Thr
 magnet:?xt=urn:btih:8B3375FACCD680E82B80159D505B880DE3D1EE3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +693,8 @@ Armored Saint - Nod To The Old School (2001) [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E0E4E3ACB87ADDEC28594D574DAF06C5DEC29BDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +729,8 @@ Devilish Distance - Deathtruction (2010) [FLAC|Lossless]<Death Metal>
 magnet:?xt=urn:btih:E86165ACE4049A3284DA6F7DBC00FD1205990C26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +756,8 @@ Ozzy Osbourne - Singles Collection 18CD's ((1988-2003)) [WavPack|Lossless]<Heavy
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +786,8 @@ Aeon Of Horus - Existence (2014) [FLAC|Lossless|image + .cue] <Progressive, Tech
 magnet:?xt=urn:btih:8EAC5CC93F236B795E6631C1A24ED0C4BF97C6F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,65 +815,7 @@ Rotting Christ - Rituals (2016) [FLAC|tracks|WEB-DL]<Dark Metal, Black Metal, Et
 magnet:?xt=urn:btih:A9E923F0B2E716C9BBB36F9EEB601618F5B8DDEA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985093   (935564) от 11.02.2016
-
-Frangar - Trincerocrazia (2015) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_935564.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Italia Suprema Assoluta
-2. Fare Quadrato (S.P.Q.R.)
-3. Al Cielo
-4. Martello(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3024020854EDB42D65B07B4F1CF20BF4056D524
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284461   (937105) от 19.01.2011
-
-Sirenia - The Enigma Of Life [Limited Edition] (2011) [APE|Lossless]
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. The End Of It All (4:31)
-02. Fallen Angel (3:59)
-03. All My Dreams (4:42)
-04. This Darkness (4:00)
-05. The Twilight In Your Eyes (4:00)
-06. Winter Land (3:55)
-07. A Seaside Serenade (5:53)
-08. Darkened Days To Come (4:22)
-09. Coming Down (4:38)
-10. This Lonely Lake (3:33)(   Читать дальше...   )Жанр: Symphonic Metal/Gothic MetalПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

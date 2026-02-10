@@ -22,6 +22,8 @@ Aftermath - Natural Destruction (2003) [FLAC|Lossless|image + .cue] <Technical P
 magnet:?xt=urn:btih:B9AA6D34CC4E34F93FA30C425C464E1F5943417A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Birtha
 magnet:?xt=urn:btih:6CD27B572C83474837E964FED53F0BD161A2F590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Winterborn - 2 Альбома Collection (2006-2008) [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:F95741C3B10A8B3FE21E4BEC1DFFDF737620D79A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Fools Faith - 2 Альбома Collection (2007-2011) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:0FC3ED4364D32E787A3BB33DE1309928C1DC5CB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ Machine Men - 3 Альбома Collection (2004-2007) [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:CFCB40749EFB4093B28F0847712C3EA52A22D63E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ magnet:?xt=urn:btih:CFCB40749EFB4093B28F0847712C3EA52A22D63E
 magnet:?xt=urn:btih:F288D3316DFAFFFFD7C2AE3E0BE45301BA333CC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:F288D3316DFAFFFFD7C2AE3E0BE45301BA333CC4
 ```bash
 magnet:?xt=urn:btih:F945655F287F158E4AAAC5B874D6F66D44CF2F10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +220,8 @@ Infornal FuckЪ - Край родной (2017) [MP3|320 Kbps] <Parody Metal>
 magnet:?xt=urn:btih:8DB4BEAE2B8DA4DE6522A3F871A90101000C7974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ VA - С Новым годом, землячки! (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:A0E2F8404769AF3071260A038DDC62057A5FB2CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +278,8 @@ Pretty Maids - Undress Your Madness (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 magnet:?xt=urn:btih:CF41086EE97FC95E506E35A3F4CD4428967AC7FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +304,8 @@ magnet:?xt=urn:btih:CF41086EE97FC95E506E35A3F4CD4428967AC7FC
 magnet:?xt=urn:btih:104E668961F44F5DE88C1495B4CFA9D9BFE4F963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ magnet:?xt=urn:btih:104E668961F44F5DE88C1495B4CFA9D9BFE4F963
 ```bash
 magnet:?xt=urn:btih:010565DCF9FB5E3CED864CF5C6453BF0873C6215
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +359,8 @@ Marc Bolan - Electronic Musik (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:73C5383CFA94C3425C338AA3E777B0FF62F0C268
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +388,8 @@ Plotnik82 - Смерть глотает блесну (2019) [MP3|320 Kbps] <Elec
 magnet:?xt=urn:btih:95C2FA9213484799A726E4983C1F0DC45D4C5C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +416,8 @@ Platitude - Discography  3 альбома (2003-2005) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:78E74A9EED6295BA31FBEB86F60E61DD740EEA0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +447,8 @@ Theocracy начал свою жизнь как проект одного муз
 magnet:?xt=urn:btih:28A0FD68572BB67856DE9D889B41328AC7069657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +475,8 @@ Linkin Park - One More Light Live (2017) [MP3|320 Kbps] <Alternative Rock>
 ```bash
 magnet:?xt=urn:btih:46FEC739846A5978ADAA4553249694BDB23E2599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +505,8 @@ Asking Alexandria - Asking Alexandria (2017) [MP3|320 Kbps] <Metalcore, Post-Har
 magnet:?xt=urn:btih:9574910624A20CB5548FA014EB84737BA904CAA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +533,8 @@ Lindemann - F&M: Frau Und Mann (2019) Deluxe Edition [FLAC 2.0|24/44|tracks|WEB-
 ```bash
 magnet:?xt=urn:btih:8916270269B2B2F60AE1FC3B6BD3BEDAD7EDA036
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +563,8 @@ magnet:?xt=urn:btih:8916270269B2B2F60AE1FC3B6BD3BEDAD7EDA036
 magnet:?xt=urn:btih:5F12C591856C6E40A4187BE08634FFED3DCE7383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +591,8 @@ magnet:?xt=urn:btih:5F12C591856C6E40A4187BE08634FFED3DCE7383
 ```bash
 magnet:?xt=urn:btih:0C4289B0B2F04A42861391F4B9DC25BF7353B06A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +621,8 @@ Disc 1:
 magnet:?xt=urn:btih:401AFBA998F5C6A710849B62F34ECFDC8FF86FE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +649,8 @@ Rod Stewart - You're In My Heart: Rod Stewart (with The Royal Philharmonic Orche
 ```bash
 magnet:?xt=urn:btih:D6B9A51D23B937769CC0A69C5E7C48670B0C0D48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +679,8 @@ Ten - 21 Альбом Collection (1996-2018) 23 CD  [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:10EB155A80282EBD8D31A6517E2B65FD50CEFE13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +708,8 @@ The Ferrymen - 2 albums (2017-2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:9C87937604104FAAC9A58357D335E2DF3DE4A7E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,6 +736,8 @@ Pianoбой - ХІСТОРІ (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:1597FC5A26954546254DCB3270167131FD34AC7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

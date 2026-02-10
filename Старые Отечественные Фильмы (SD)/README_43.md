@@ -1,3 +1,31 @@
+###  Публикация: 551777   (450158) от 25.09.2012
+
+Новые приключения янки при дворе короля Артура (2 серии) (1988) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450158.jpg" />
+</div>
+
+
+###  Подробнее
+
+То ли это приснилось американскому летчику, то ли его самолет заблудился во времени, но попал современный янки в эпоху славного короля Артура.
+
+Здесь суждено ему встретить легендарных рыцарей Круглого стола и коварную Моргану — сестру короля, прекрасную Сэнди и мудрого Волшебника. Ему предстоит оказаться в лохмотьях раба и в рыцарских латах, стать свидетелем величия (   Читать дальше...   )Жанр: ПриключенияРежиссер: Виктор ГресьАктеры: Сергей Колтаков, Альберт Филозов, Елена Финогеева, Александр Кайдановский, Анастасия Вертинская, Евгений Евстигнеев, Евдокия Германова, Владимир Сошальский, Владимир Кашпур, Марк Гресь, Мария Капнист, Валерий Грибов, Алексей ГорбуновПродолжительность: 01:14:00 + 01:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE7B017C1074D7A109BCD9505F8AB7A0AD114710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247086   (450601) от 16.09.2018
 
 Лето на память (1987) SATRip (серии 1-2 из 2)
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:7283226B6EB42A73BE11464863AAE0432BC573BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +74,8 @@ magnet:?xt=urn:btih:7283226B6EB42A73BE11464863AAE0432BC573BD
 magnet:?xt=urn:btih:CBBD3F2B16A108A63DCC1FB9276A068B300E00FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +99,8 @@ magnet:?xt=urn:btih:CBBD3F2B16A108A63DCC1FB9276A068B300E00FD
 ```bash
 magnet:?xt=urn:btih:5319FCA9F95F2C2E6BE54EF5DAD55D4BDBAE946D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +126,8 @@ magnet:?xt=urn:btih:5319FCA9F95F2C2E6BE54EF5DAD55D4BDBAE946D
 magnet:?xt=urn:btih:BC3F1BF549E600D71A90668CD7010E42AB06207B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +151,8 @@ magnet:?xt=urn:btih:BC3F1BF549E600D71A90668CD7010E42AB06207B
 ```bash
 magnet:?xt=urn:btih:3B1D8F20483B0C04E5D38C31EC33B17CC5118AD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +179,8 @@ magnet:?xt=urn:btih:3B1D8F20483B0C04E5D38C31EC33B17CC5118AD7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +204,8 @@ magnet:?xt=urn:btih:3B1D8F20483B0C04E5D38C31EC33B17CC5118AD7
 ```bash
 magnet:?xt=urn:btih:1889EC45F6D4CA227BBCA88BA8F6845F9CCA891E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +232,8 @@ magnet:?xt=urn:btih:1889EC45F6D4CA227BBCA88BA8F6845F9CCA891E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +257,8 @@ magnet:?xt=urn:btih:1889EC45F6D4CA227BBCA88BA8F6845F9CCA891E
 ```bash
 magnet:?xt=urn:btih:90D2CA15E390C14D7F8D9D17632906EA0B08B251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +284,8 @@ magnet:?xt=urn:btih:90D2CA15E390C14D7F8D9D17632906EA0B08B251
 magnet:?xt=urn:btih:01E60D71D9C68975318836663A4ABCFD4FCFF010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +309,8 @@ magnet:?xt=urn:btih:01E60D71D9C68975318836663A4ABCFD4FCFF010
 ```bash
 magnet:?xt=urn:btih:413156F3D866FF65E308E2A02184116F88CCC3BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +336,8 @@ magnet:?xt=urn:btih:413156F3D866FF65E308E2A02184116F88CCC3BA
 magnet:?xt=urn:btih:406624DBA2CA97186D7F59E3FA97377CB9A2A160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +361,8 @@ magnet:?xt=urn:btih:406624DBA2CA97186D7F59E3FA97377CB9A2A160
 ```bash
 magnet:?xt=urn:btih:F014DD23EF122E91889036F85A52BF1E870E24F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +388,8 @@ magnet:?xt=urn:btih:F014DD23EF122E91889036F85A52BF1E870E24F6
 magnet:?xt=urn:btih:D332E6697F61FAC07FD0A3FE597AE3D5C3592797
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +413,8 @@ magnet:?xt=urn:btih:D332E6697F61FAC07FD0A3FE597AE3D5C3592797
 ```bash
 magnet:?xt=urn:btih:F8CAB82DCD2E17D199A40C9236D806C3BEBC154E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +440,8 @@ magnet:?xt=urn:btih:F8CAB82DCD2E17D199A40C9236D806C3BEBC154E
 magnet:?xt=urn:btih:2C3A614EA3FCB5E4ACFF0A9047AEE474CD486480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +465,8 @@ magnet:?xt=urn:btih:2C3A614EA3FCB5E4ACFF0A9047AEE474CD486480
 ```bash
 magnet:?xt=urn:btih:33250445B26CB067E7416D4828DF98978C304CC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +492,8 @@ magnet:?xt=urn:btih:33250445B26CB067E7416D4828DF98978C304CC9
 magnet:?xt=urn:btih:DEBCFE4158A58FC0B291749855BDB40F3C07E12E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +518,8 @@ magnet:?xt=urn:btih:DEBCFE4158A58FC0B291749855BDB40F3C07E12E
 magnet:?xt=urn:btih:68053428091C47EC7D4C7A980B2EA963C3D63A60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +543,8 @@ magnet:?xt=urn:btih:68053428091C47EC7D4C7A980B2EA963C3D63A60
 ```bash
 magnet:?xt=urn:btih:3BE5EC757BBC931AFCE924CFFAD96223AA0369F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +572,8 @@ magnet:?xt=urn:btih:3BE5EC757BBC931AFCE924CFFAD96223AA0369F1
 magnet:?xt=urn:btih:D85B75B512353D7FB498B67E1E13ACCB3C31C9AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +600,8 @@ magnet:?xt=urn:btih:D85B75B512353D7FB498B67E1E13ACCB3C31C9AE
 magnet:?xt=urn:btih:5D2C1A6E3D768A66587E76A61F9279D24646BD22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +627,8 @@ magnet:?xt=urn:btih:5D2C1A6E3D768A66587E76A61F9279D24646BD22
 magnet:?xt=urn:btih:4E1D5625750A28551482645C32E777A67439DABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +652,8 @@ magnet:?xt=urn:btih:4E1D5625750A28551482645C32E777A67439DABA
 ```bash
 magnet:?xt=urn:btih:35A28B8DECC80F2992A58D5C5F636BB1F6CDFD0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,30 +679,7 @@ magnet:?xt=urn:btih:35A28B8DECC80F2992A58D5C5F636BB1F6CDFD0C
 magnet:?xt=urn:btih:06AB2CA36894E2B1A720CDF6EFA7AD1697F7FC71
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055857   (470474) от 30.09.2016
-
-Кавказский пленник (1975) DVBRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470474.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телефильм по мотивам одноименной повести Л.Н.Толстого.
-Служил на Кавказе офицером один барин. Звали его Жилин. Решил съездить в отпуск домой. Но по дороге его и ещё одного русского офицера Костылина схватили татары. За освобождение из плена стали требовать выкуп…Производство: СССР, киностудия "Грузия-фильм"Жанр: Драма, экранизацияРежиссер: Георгий КалатозишвилиАктеры: Юрий Назаров, Ляля Ошеверова, Владимир Солодников, Гиви Чугуашвили, Амиран Кадейшвили, Навруз Абдул-Оглы и др.Продолжительность: 01:12:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:431C9B9A13B90F601C84C98A3CD3DA6CEB3724CF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

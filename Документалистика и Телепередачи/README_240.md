@@ -19,6 +19,8 @@ The Battle for Marjah (2010) SATRip [EN]
 magnet:?xt=urn:btih:3E5CBEFB3509E3E6431667A6BC78158E4FF692FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:3E5CBEFB3509E3E6431667A6BC78158E4FF692FC
 magnet:?xt=urn:btih:00808B41EEB09C9F0FA98795809285C6BC7F4861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:00808B41EEB09C9F0FA98795809285C6BC7F4861
 ```bash
 magnet:?xt=urn:btih:0FB5C5232C342621E87E2E1367F03A12417A2DD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:0FB5C5232C342621E87E2E1367F03A12417A2DD8
 magnet:?xt=urn:btih:378752832390D0BFA68266D43FD8ADA527F5C570
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:378752832390D0BFA68266D43FD8ADA527F5C570
 ```bash
 magnet:?xt=urn:btih:2EA412EC577230996F25E66AF092C5CA4FFCD5F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:2EA412EC577230996F25E66AF092C5CA4FFCD5F8
 magnet:?xt=urn:btih:3E9C91E73757D6861326C673B580D33662ED62ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:3E9C91E73757D6861326C673B580D33662ED62ED
 ```bash
 magnet:?xt=urn:btih:3C6BAD4C39B4C2935B99A601B9B41509F09B7DE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:3C6BAD4C39B4C2935B99A601B9B41509F09B7DE8
 magnet:?xt=urn:btih:6EB1ECE7ADC07A87A8AAC80DD5F25125C878D584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:6EB1ECE7ADC07A87A8AAC80DD5F25125C878D584
 ```bash
 magnet:?xt=urn:btih:1F45C88AD034E560F445973CF24C4CFD1CCA9916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:1F45C88AD034E560F445973CF24C4CFD1CCA9916
 magnet:?xt=urn:btih:957A56107EEB13ED857F29E6BA28300E71185048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Intel - история успеха (2018) WEBRip [H.264/720p-LQ] [AVO]
 ```bash
 magnet:?xt=urn:btih:13F2754F89E4DD69B8B660FA2F9C374224E908DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:13F2754F89E4DD69B8B660FA2F9C374224E908DF
 magnet:?xt=urn:btih:750C3F83AB97ABF7377BEBBA60ACE7D2289FE469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ National Geographic. Из истории Второй мировой войны:
 ```bash
 magnet:?xt=urn:btih:9C0A74910391E77E7CC427FE2067DE2698A39D38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:9C0A74910391E77E7CC427FE2067DE2698A39D38
 magnet:?xt=urn:btih:62C9BF42513AF24C72950150B4A527ECFFA7CB95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:62C9BF42513AF24C72950150B4A527ECFFA7CB95
 ```bash
 magnet:?xt=urn:btih:3ED2E407FAE7229528632061BC5CD9F1A607A536
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ National Geographic. Из истории Второй мировой войны:
 magnet:?xt=urn:btih:BDC5F37802F26C81D3E318F2C0BADE5349810EB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ NG. Из истории Второй мировой войны: за линия�
 ```bash
 magnet:?xt=urn:btih:25639009BE757E9155E797F3461B0C5CA40840C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:25639009BE757E9155E797F3461B0C5CA40840C9
 magnet:?xt=urn:btih:54F636F46A6D056688ABC57C7A8B8C1277247250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:54F636F46A6D056688ABC57C7A8B8C1277247250
 ```bash
 magnet:?xt=urn:btih:4A13FA3EB0DD522695987C6226C3B16DC7598050
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:4A13FA3EB0DD522695987C6226C3B16DC7598050
 magnet:?xt=urn:btih:3686749C2468DA8F92400752403CE9C3682921BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:3686749C2468DA8F92400752403CE9C3682921BD
 ```bash
 magnet:?xt=urn:btih:A428E950C897FE04E709CBE7A0CF6ACF91CDDFB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ magnet:?xt=urn:btih:A428E950C897FE04E709CBE7A0CF6ACF91CDDFB9
 magnet:?xt=urn:btih:62AE9B94C9BC63CE9A1FD1D4A403064C5FE4A8C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:62AE9B94C9BC63CE9A1FD1D4A403064C5FE4A8C8
 ```bash
 magnet:?xt=urn:btih:9299C3BDDDF6B6A2B93CD332E21D8BD348658677
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ magnet:?xt=urn:btih:9299C3BDDDF6B6A2B93CD332E21D8BD348658677
 magnet:?xt=urn:btih:D14A456555476ABAFD85419EE4C3B4269F69622B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +643,8 @@ magnet:?xt=urn:btih:D14A456555476ABAFD85419EE4C3B4269F69622B
 ```bash
 magnet:?xt=urn:btih:48DE9E36067B5C252DE47659F53C84A8B550CCDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:48DE9E36067B5C252DE47659F53C84A8B550CCDD
 ```bash
 magnet:?xt=urn:btih:11A34151D6CCE5758985C182199ACB65D88C1B33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

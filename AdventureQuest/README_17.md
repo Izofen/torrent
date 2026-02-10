@@ -19,6 +19,8 @@ Ailuri (2025) [En] (Build 17384128) Repack Let'sРlay
 magnet:?xt=urn:btih:4E1F949E48BCA672B309B174B1C118EBE277CCC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Heroine's Quest: The Herald of Ragnarok – классическое ролев�
 ```bash
 magnet:?xt=urn:btih:CE270410BA53A7385A5459989F902CEBACA283AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Runa & The Chaikurú Legacy (2024) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:8DA5CE83489AB8FC20103E13C85DCC74FA8B9F21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ DeathOmen - это психологическая игра ужасов, кот�
 ```bash
 magnet:?xt=urn:btih:0701CF7BDFC18A3FF03006C6869C2C24F79F3F62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Resident Evil 2 1999 - продолжение культовой серии зо
 magnet:?xt=urn:btih:2AA8D289A37AEF3B0CBC451FFFB3A1192E664BF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Rake - жуткий сурвивал-хоррор по мотивам крипи
 ```bash
 magnet:?xt=urn:btih:747BE1F39865D8982BD7914174A35E0E0A3AB5FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Locks (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:CB7342D444CC5B0E5F2A26C96909F1D4D05128A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Backrooms: Mass Extinction (2022) [En] (1.2.2 Beta) Repack FitGirl [VR]
 ```bash
 magnet:?xt=urn:btih:981527D950775AA9EA3C5E915DB3B7221817D204
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Slender Threads (2025) [Ru/Multi] (1.0.3) Repack Let'sРlay
 magnet:?xt=urn:btih:2E9F46AE07B3BC4DAB6A70CB9229653BAC5E3FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Dream Cage (2025) [Ru/Multi] (1.1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B029EAE19066F8D145B7CD542F0AA34027DFCE59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Coma 2B: Catacomb (2024) [Ru/Multi] (1.2.3/dlc) Repack Let'sРlay [Deluxe Ed
 magnet:?xt=urn:btih:77FFE28569B6FF551263C817F8307CEBC859CB84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ BROK the InvestiGator - Natal Tail, A New Christmas (2024) [Ru/Multi] (1.0.7.1) 
 ```bash
 magnet:?xt=urn:btih:B85719738FE67FADF6C813DAC8B982594183EE34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Alone in the Dark (2024) [Ru/Multi] (1.05b/dlc) Repack Decepticon
 magnet:?xt=urn:btih:A01A2F1C223830FDFDA9CBA39AA19A19B12A4E22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Back Then – это инди-игра с видом от первого лиц�
 ```bash
 magnet:?xt=urn:btih:018F2036F22B4B85A0F20D88869B2BB5DFB53F59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Coma 2B: Catacomb (2024) [Ru/Multi] (1.2.2/dlc) License GOG
 magnet:?xt=urn:btih:B1D83C462E7A1DCD422A23E313C918BF142CDB7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Dark Pictures Anthology - это серия напряжённых кине�
 ```bash
 magnet:?xt=urn:btih:BCA1A66F082AB588CCA1DC8B257D7B03B7E15346
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Stars in the Trash - увлекательный платформер, вдохн
 magnet:?xt=urn:btih:97E692274DC70D379712426F3BF19D405AB98DB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 17294620) Repack Let's
 ```bash
 magnet:?xt=urn:btih:F6D814BD2E188436130157554803C74A63BD5089
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Grief like a stray dog / А Горюшко вслед собакою... (2025) [
 magnet:?xt=urn:btih:2DBB4C4B2C77952B709F0645BC515C9D06AAB94D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ THE MUTE HOUSE (2025) [Multi] (1.0.39) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6B7DE9CACA8F7DAFC996321C7373AF0684D4F4DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ IN THE FACADE WE TRUST (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:9FC7E42A70E61CA3194CA2B141746A29DF54C13E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ McPixel 3 (2022) [Ru/Multi] (1.0.38) License GOG
 ```bash
 magnet:?xt=urn:btih:C6A25F9357893D68B447E03D0B219EB0C3AACC88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Poppy Playtime (2021) [Ru/Multi] (build 17177248/dlc) Repack FitGirl
 magnet:?xt=urn:btih:78BD2FD7B372DF513F1D696389A4B3A4D507EAAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Snufkin: Melody of Moominvalley (2024) [Ru/Multi] (Build 17112046/dlc) Repack Le
 ```bash
 magnet:?xt=urn:btih:BDA35211B901DEAB71CF672CC656E30604E8C405
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Alone in the Dark (2024) [Ru/Multi] (1.0.5/dlc) Repack Let'sРlay [Digital Delux
 magnet:?xt=urn:btih:F034D43A761D22734FD3E8A43C8ED182A2992B47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:AB50C4BA525C3C8B9A6F7E2B4DE4E094635F6BAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

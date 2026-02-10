@@ -1,3 +1,29 @@
+###  Публикация: 1201119   (793952) от 23.01.2018
+
+Сирийские хроники. Военная полиция. Патруль в Алеппо (2017) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксклюзивные съемки, интервью, факты и только факты. "Сирийские хроники" охватывают период с осени 2015 года по июнь 2017 года. Героями телепроекта стали жители сирийских городов, представители различных религиозных конфессий, хранители исторического и культурного наследия страны, российские военнослужащие, а также раскаявшиеся боевики, сложившие оружие (   Читать дальше...   )Телекомпания: Россия, Техно 24, ООО «Телеиндустрия», ООО «НКС-Медиа»Жанр: ДокументальныйРежиссер: Максим ИвановПродолжительность: 00:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92428983360766DBE91738BAA4980884A2A8F01F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201026   (793956) от 23.01.2018
 
 Тайны истории / Secrets d'Histoire (2014) SATRip (8 сезон, серии 5 из 16) (Обновляемая)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:30D164AE406A59E8F2504E24973A09FC926A8329
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:30D164AE406A59E8F2504E24973A09FC926A8329
 magnet:?xt=urn:btih:D4EC3C787450DA8A7B51067DD3907C36B8CFD1F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:D4EC3C787450DA8A7B51067DD3907C36B8CFD1F4
 ```bash
 magnet:?xt=urn:btih:CB6CFB868891E5B1C2913DD220EA06A835EEC9E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:CB6CFB868891E5B1C2913DD220EA06A835EEC9E4
 magnet:?xt=urn:btih:A7DCAA2EDC34EAAA3EF258972195AA702B26D79E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:A7DCAA2EDC34EAAA3EF258972195AA702B26D79E
 ```bash
 magnet:?xt=urn:btih:DFADDF9DCA76BE4B361F6C18EE77D95B5383D632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:DFADDF9DCA76BE4B361F6C18EE77D95B5383D632
 magnet:?xt=urn:btih:5879A0072907847E674A24057BB22F32F689E8B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:5879A0072907847E674A24057BB22F32F689E8B2
 ```bash
 magnet:?xt=urn:btih:C06462EA7D25F228324772A6321F8738E5EAFBAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:C06462EA7D25F228324772A6321F8738E5EAFBAC
 magnet:?xt=urn:btih:0611639B5FF5FAB14FB16123A632BC8B79724718
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:0611639B5FF5FAB14FB16123A632BC8B79724718
 ```bash
 magnet:?xt=urn:btih:5C9F75D2DD67E2AE95DF831FCB990DC028D518C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:5C9F75D2DD67E2AE95DF831FCB990DC028D518C6
 magnet:?xt=urn:btih:7889A00EE2E855ADC47F321A5961C4B5940DE710
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:7889A00EE2E855ADC47F321A5961C4B5940DE710
 ```bash
 magnet:?xt=urn:btih:A15A89D516950C3BA73D2F0E908CEA1BA0E646A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:A15A89D516950C3BA73D2F0E908CEA1BA0E646A5
 magnet:?xt=urn:btih:5F58F701DFCB4915F76DAA63488429DAC636A4B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:5F58F701DFCB4915F76DAA63488429DAC636A4B3
 ```bash
 magnet:?xt=urn:btih:71A83A72AAD41B32615B7C4F7F00130576890F85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:71A83A72AAD41B32615B7C4F7F00130576890F85
 magnet:?xt=urn:btih:A8D45174475034645138E9479F991F003A6975C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:A8D45174475034645138E9479F991F003A6975C5
 ```bash
 magnet:?xt=urn:btih:B67CDC01AAD8FF2D70517774E75F49A10175CA08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:B67CDC01AAD8FF2D70517774E75F49A10175CA08
 magnet:?xt=urn:btih:03D5E79E9DAA6CE6CBAECAC79E8270D4CC671022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:03D5E79E9DAA6CE6CBAECAC79E8270D4CC671022
 ```bash
 magnet:?xt=urn:btih:2117EBC2CE75CDE35B609AF158BFE79CB5DD4FFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:2117EBC2CE75CDE35B609AF158BFE79CB5DD4FFC
 ```bash
 magnet:?xt=urn:btih:1E052F34A7A0E98C0FA4F8C16F356BCCEA9E60E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:1E052F34A7A0E98C0FA4F8C16F356BCCEA9E60E6
 magnet:?xt=urn:btih:937408513702DE89E6B1D6EEE4589763D571EC2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:937408513702DE89E6B1D6EEE4589763D571EC2E
 ```bash
 magnet:?xt=urn:btih:F2A8E295083E0DD09BC5FDC8BF1EA5179283AD3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:F2A8E295083E0DD09BC5FDC8BF1EA5179283AD3B
 magnet:?xt=urn:btih:94375EBC3FC6C1463B4DD405C72DB4A93213BB39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:94375EBC3FC6C1463B4DD405C72DB4A93213BB39
 ```bash
 magnet:?xt=urn:btih:9DE73BB5532142A3F4AF71E35545912D615E6DDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:9DE73BB5532142A3F4AF71E35545912D615E6DDE
 magnet:?xt=urn:btih:2C24A879F395CD3CFD8C5C316E47D8ACE0FF6CFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:2C24A879F395CD3CFD8C5C316E47D8ACE0FF6CFA
 ```bash
 magnet:?xt=urn:btih:B14E3453A72D8E47861912FC0E659CA58F206C6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:B14E3453A72D8E47861912FC0E659CA58F206C6B
 magnet:?xt=urn:btih:C2EA6CC83C4DCB756C94560A086FCA59763578AA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012213   (794485) от 30.04.2016
-
-Голос. Дети (2016.04.29) HDTV [H.264/1080i] (сезон 3, выпуск 11)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794485.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Первый канал" представляет премьеру третьего сезона музыкального проекта "Голос. Дети". Детский конкурсный проект строится по тем же принципам, что и взрослый. Из тысяч заявок на участие, присланных в адрес "Первого канала", музыкальная редакция отобрала несколько сотен самых достойных. В ходе предварительных кастингов к участию в слепых (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 02:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12E404EF34282FD2CE09D7CE6759334175B6C9FE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

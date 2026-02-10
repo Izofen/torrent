@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5A5FD1872FF2B0896B6A0D17C2F1AFB8505BD3BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:5A5FD1872FF2B0896B6A0D17C2F1AFB8505BD3BB
 magnet:?xt=urn:btih:D0901AAEE6BF235592BB4D3874804CC8D7A6F76D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:D0901AAEE6BF235592BB4D3874804CC8D7A6F76D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:D0901AAEE6BF235592BB4D3874804CC8D7A6F76D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:D0901AAEE6BF235592BB4D3874804CC8D7A6F76D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:D0901AAEE6BF235592BB4D3874804CC8D7A6F76D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:D0901AAEE6BF235592BB4D3874804CC8D7A6F76D
 ```bash
 magnet:?xt=urn:btih:51E0C409DEBC23E4C989F4321E26797E394DB2C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Waves Lab | Руководство для пакета плагинов Waves 7 
 magnet:?xt=urn:btih:A467739772057270B25E7139AB1D0B75EA35D963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ MahJong Suite 2012 {v9.0} [En] (P) 2012 | THETA
 ```bash
 magnet:?xt=urn:btih:8452FE0337B2775FB8A5852E4363407E8E1DAE2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ SHA-1: 2C632523A98D2C995DB074EBB0E658640FA03F86
 magnet:?xt=urn:btih:AFCA133E1E42F222F0425C784A955AACD7C78EB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:AFCA133E1E42F222F0425C784A955AACD7C78EB0
 ```bash
 magnet:?xt=urn:btih:734F7F25F2A02F812D2B4B8496ADED0975798F1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ openSUSE 12.1-2 Education Li-f-e [i686] (1xDVD)
 magnet:?xt=urn:btih:48DC16FD77A15A235E4A5A62CAF10627440E4880
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:48DC16FD77A15A235E4A5A62CAF10627440E4880
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:48DC16FD77A15A235E4A5A62CAF10627440E4880
 ```bash
 magnet:?xt=urn:btih:666ADCE4476403920B995DE88DAE56EED9004DFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:666ADCE4476403920B995DE88DAE56EED9004DFB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Skype новая сборка последней стабильной верси
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Skype новая сборка последней стабильной верси
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Skype новая сборка последней стабильной верси
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ Steinberg - Groove Agent 2.0.0 Build 29 INTERNAL(Rebuild SynsoEmu) by AiR.ISO[VS
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ Steinberg - Groove Agent 2.0.0 Build 29 INTERNAL(Rebuild SynsoEmu) by AiR.ISO[VS
 magnet:?xt=urn:btih:264B943EDE55847615E694ED4458F75E89CF8598
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:264B943EDE55847615E694ED4458F75E89CF8598
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ There and Back - это платформер-головоломка. Главн�
 ```bash
 magnet:?xt=urn:btih:19A0EAD5795751A5364D560987333FBB2625E15A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ SCP-087 B [En] (P) 2012
 magnet:?xt=urn:btih:789B8B318756F6F24FB59C0B1C1C07123610FC70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:789B8B318756F6F24FB59C0B1C1C07123610FC70
 ```bash
 magnet:?xt=urn:btih:E326C8A006BD4D382326BF47E3C287E7FBBB84AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:E326C8A006BD4D382326BF47E3C287E7FBBB84AF
 magnet:?xt=urn:btih:ECE45A2BDABB4DE4F9CFDF5C3DE201616BD6A802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ http://kulinaria.nnm.ru/Формат: CHM
 ```bash
 magnet:?xt=urn:btih:D06CA0F305D38AA293367860848A35105FD28C22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

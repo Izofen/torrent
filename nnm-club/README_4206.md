@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:DB0407DF2163384A72C08D599F0DF829CB882F06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:DB0407DF2163384A72C08D599F0DF829CB882F06
 ```bash
 magnet:?xt=urn:btih:5C1D040CF7DB1B443F26A3FB15CDCEBA9E23783E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Africa Gets Physical, Vol. 4 (2022) [AAC|~336 Kbps] <Afro House, Deep House
 magnet:?xt=urn:btih:89D054A817DB6BDF2C0EF063B6C11CE00C28EE3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:89D054A817DB6BDF2C0EF063B6C11CE00C28EE3E
 ```bash
 magnet:?xt=urn:btih:AB0362725CE6E865AB31F3D196F5CA05E7EF8A63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ VA - Big Room Dance (2022) [MP3|320 Kbps] <Big Room, Dance, Hands Up>
 magnet:?xt=urn:btih:8E221A3FD65069EEE09140810F8E8312E318C036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:8E221A3FD65069EEE09140810F8E8312E318C036
 magnet:?xt=urn:btih:EEBD98FF9D42A0F6B634DBE80E47012E8216C5C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Woodworking Craft — журнал по столярному делу предс
 ```bash
 magnet:?xt=urn:btih:BB7814E73707713E1473EC48E8B463EDF15E6C1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ VA - 50 Trance Tunes Vol.29 (2012)
 magnet:?xt=urn:btih:72606369334CC04DA62BB8D510118EFCDA3861F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Other Desert Cities — это мастерская для творчества.
 ```bash
 magnet:?xt=urn:btih:ECD9F11701B341A1117E87FB0951F66626D5E1DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ Duke Ellington - Duke Ellington And His Famous Orchestra (1990) [FLAC|Lossless]<
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +303,8 @@ Duke Ellington - Duke Ellington And His Famous Orchestra (1990) [FLAC|Lossless]<
 magnet:?xt=urn:btih:D2C4371F355C636B464FD27F44E04D4DB8DEC8EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ ISO Workshop – небольшая программа для работы с о
 ```bash
 magnet:?xt=urn:btih:0DCD85AC065828A4083A3035F96AD8F4584C3A0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +364,8 @@ Winter In Eden - Echoes Of Betrayal (2012) [MP3|256 кб/с]<Symphonic/Gothic Me
 magnet:?xt=urn:btih:4E776C4CE8F58B975186A1A880304C266096B05D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +392,8 @@ VA - 60 Minutes. Old School Dance Music vol.6 (2021) mixed by Dj V [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:DE06CC1DD19204A0EE4E6BEE31460A03E4E0F360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +422,8 @@ VA - Africa Gets Physical, Vol. 3 (2020) [AAC|~331 Kbps] <Afro House, Deep House
 magnet:?xt=urn:btih:A76D94F8CFA43571D0A8B91912B36F704AE00708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +450,8 @@ Ernesto Cortazar - Piano & Strings (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age
 ```bash
 magnet:?xt=urn:btih:8BD1FBE80C273C0B96F2429D804E811E2E2F8D0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Trance Symphony Volume 10 (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:885390C0F768DDAA5B740EDBDDB24F7810DE4C93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +515,8 @@ magnet:?xt=urn:btih:885390C0F768DDAA5B740EDBDDB24F7810DE4C93
 magnet:?xt=urn:btih:CB49E239001E38A3F9686E374D060E9C55BC18B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +543,8 @@ VA - Beatport Chill House: Sound Pack #396 (2022) [MP3|320 Kbps] <Chill, Deep Ho
 ```bash
 magnet:?xt=urn:btih:CA93D57CF64822FA06B81F11BB9B05506041DD2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +579,8 @@ Dezperadoz - Dead Man's Hand (2012) [MP3|320 кб/с]<Thrash Metal (Western Meta
 magnet:?xt=urn:btih:D74C2279FFBEEC72D694CD581FE006244F8530D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +607,8 @@ VA - Africa Gets Physical, Vol. 1 (2017) [AAC|~335 Kbps] <Afro House, Deep House
 ```bash
 magnet:?xt=urn:btih:6CAA9E12A95ACA602D31210368A0001780F4F79F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +637,8 @@ VA - Techno Minimal: Special Party (2022) [MP3|320 Kbps] <Techno, Electro>
 magnet:?xt=urn:btih:5A84EB7857D78AED3149E1797B7925FDBC80FB22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +663,8 @@ magnet:?xt=urn:btih:5A84EB7857D78AED3149E1797B7925FDBC80FB22
 magnet:?xt=urn:btih:0C39D69230A4187BD8C1F5AD0CA32FE14EF82C2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ iMusic для Mac - многофункциональный музыкальны�
 ```bash
 magnet:?xt=urn:btih:C420AFDC376FCFA2BDD3857215BDB4AE2979204D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +720,8 @@ magnet:?xt=urn:btih:C420AFDC376FCFA2BDD3857215BDB4AE2979204D
 magnet:?xt=urn:btih:83A15EB6699805A7CDADFD6CFF4C38B505EC5920
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ Sound Studio - универсальная студия звукозаписи.
 ```bash
 magnet:?xt=urn:btih:5C935D08CA3708A28CEFD9C672AD77FE61F4C9E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

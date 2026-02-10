@@ -1,28 +1,3 @@
-###  Публикация: 358307   (583654) от 04.07.2011
-
-Время цыган / Дом для повешения / Dom za vesanje (1988) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_583654.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удостоенный приза за режиссуру в Каннах, фильм является безусловным шедевром кино, обо всех достоинствах которого в объеме аннотации рассказать невозможно. Перхана, обладающего способностью взглядом передвигать предметы, воспитывает бабушка, сама наделенная даром лечить людей без лекарств. Есть у Перхана еще дядя, безнадежный игрок, не знающий, что такое удача, и (   Читать дальше...   )Производство: Великобритания, Италия, ЮгославияЖанр: Драма, фэнтези, комедия, криминалРежиссер: Эмир Кустурица / Emir KusturicaАктеры: Давор Дуймович, Бора Тодорович, Любица Аджович,
- Хусния Хашимович, Синоличка Тройкова, Забит Мехмедов, Эльвира СалиПеревод: Дубляж, к/ст. М.Горького, 1991Продолжительность: 02:22:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A973B3F2CDAFBA08A821C26BF05AC5F386CED5BB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919353   (583677) от 18.07.2015
 
 Кокон / Cocoon (1985) BDRip
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:A973B3F2CDAFBA08A821C26BF05AC5F386CED5BB
 ```bash
 magnet:?xt=urn:btih:87753072E630AB22A054E4BAD415BC4DF6B95267
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +45,8 @@ magnet:?xt=urn:btih:87753072E630AB22A054E4BAD415BC4DF6B95267
 magnet:?xt=urn:btih:38FE106B1056E2534E5A98A490A393DF9D5F8B75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +70,8 @@ magnet:?xt=urn:btih:38FE106B1056E2534E5A98A490A393DF9D5F8B75
 ```bash
 magnet:?xt=urn:btih:ED2DEC9F3ABCF02A9BAB6F3A6668F8D770FC76B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +98,8 @@ magnet:?xt=urn:btih:ED2DEC9F3ABCF02A9BAB6F3A6668F8D770FC76B1
 magnet:?xt=urn:btih:1D9531FD0024EC80E615375EE29C0C610F017A87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +123,8 @@ magnet:?xt=urn:btih:1D9531FD0024EC80E615375EE29C0C610F017A87
 ```bash
 magnet:?xt=urn:btih:8D1EA9533251AFCE25ECED4410AF06A7F936E091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +150,8 @@ magnet:?xt=urn:btih:8D1EA9533251AFCE25ECED4410AF06A7F936E091
 magnet:?xt=urn:btih:5F22B5B343E161D7144DCC7046D07621B66DFD6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +175,8 @@ magnet:?xt=urn:btih:5F22B5B343E161D7144DCC7046D07621B66DFD6E
 ```bash
 magnet:?xt=urn:btih:ABA778F4DDE73041716602DAB58CD6CD6745B6EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +202,8 @@ magnet:?xt=urn:btih:ABA778F4DDE73041716602DAB58CD6CD6745B6EF
 magnet:?xt=urn:btih:DC058E1EB728D5DCC1AB6DE35BCA6B50CD15F2BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +227,8 @@ magnet:?xt=urn:btih:DC058E1EB728D5DCC1AB6DE35BCA6B50CD15F2BE
 ```bash
 magnet:?xt=urn:btih:D9BCF2C65A385E4FA9014CD20C1D3C4E0C9936BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +254,8 @@ magnet:?xt=urn:btih:D9BCF2C65A385E4FA9014CD20C1D3C4E0C9936BF
 magnet:?xt=urn:btih:8F7CCC6CE90770D34E5998E8F93EF9929FD88C4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +279,8 @@ magnet:?xt=urn:btih:8F7CCC6CE90770D34E5998E8F93EF9929FD88C4F
 ```bash
 magnet:?xt=urn:btih:2F2394048E025B2041D510D69F6B56305F3BEC4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +306,8 @@ magnet:?xt=urn:btih:2F2394048E025B2041D510D69F6B56305F3BEC4E
 magnet:?xt=urn:btih:9B5B85DFA6E21E8B143E913446A6F4EBDBCDE8BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +331,8 @@ magnet:?xt=urn:btih:9B5B85DFA6E21E8B143E913446A6F4EBDBCDE8BF
 ```bash
 magnet:?xt=urn:btih:73D7A0E34D24F1F11C186AAE2CBE75DF3E394819
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +358,8 @@ magnet:?xt=urn:btih:73D7A0E34D24F1F11C186AAE2CBE75DF3E394819
 magnet:?xt=urn:btih:540DE82B0A0454DC43FA08969D061071692B47C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +383,8 @@ magnet:?xt=urn:btih:540DE82B0A0454DC43FA08969D061071692B47C7
 ```bash
 magnet:?xt=urn:btih:BDABE33969095AEA8D917144F6DE0500C5F12065
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +410,8 @@ magnet:?xt=urn:btih:BDABE33969095AEA8D917144F6DE0500C5F12065
 magnet:?xt=urn:btih:4F2E8CEB259116B18F5A8C5EF2029BA90ECBBC57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +435,8 @@ magnet:?xt=urn:btih:4F2E8CEB259116B18F5A8C5EF2029BA90ECBBC57
 ```bash
 magnet:?xt=urn:btih:6D712DC05518DEF55F21442082903EB34AB05800
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +462,8 @@ magnet:?xt=urn:btih:6D712DC05518DEF55F21442082903EB34AB05800
 magnet:?xt=urn:btih:53254054BE456922B4CDBEFC226C4D4E44D1104C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +487,8 @@ magnet:?xt=urn:btih:53254054BE456922B4CDBEFC226C4D4E44D1104C
 ```bash
 magnet:?xt=urn:btih:415183EAA12C8CA0673D3983C1EC28DC8C08CB1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +514,8 @@ magnet:?xt=urn:btih:415183EAA12C8CA0673D3983C1EC28DC8C08CB1C
 magnet:?xt=urn:btih:DBFD0A0C756C32703A9EF9424108751AB37A3D3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +539,8 @@ magnet:?xt=urn:btih:DBFD0A0C756C32703A9EF9424108751AB37A3D3B
 ```bash
 magnet:?xt=urn:btih:FCF834D228466C0B8FBA10AA2ECC6BCD0E8C7128
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +566,8 @@ magnet:?xt=urn:btih:FCF834D228466C0B8FBA10AA2ECC6BCD0E8C7128
 magnet:?xt=urn:btih:018DC3AD6602FB9ABA7B6D9A9191378816A150D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +591,8 @@ magnet:?xt=urn:btih:018DC3AD6602FB9ABA7B6D9A9191378816A150D8
 ```bash
 magnet:?xt=urn:btih:08C6122FCB0CDF893BFB3BE5D421617512E19F4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +618,8 @@ magnet:?xt=urn:btih:08C6122FCB0CDF893BFB3BE5D421617512E19F4D
 magnet:?xt=urn:btih:FD4D9F2F58B41113279D1CB503BB6AE2CDC98DEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +643,34 @@ magnet:?xt=urn:btih:FD4D9F2F58B41113279D1CB503BB6AE2CDC98DEC
 ```bash
 magnet:?xt=urn:btih:22F20BA6CA92C6F474500AB3645E2D40CCBE7DB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 809455   (585443) от 03.08.2014
+
+Красавчик Серж / Le beau Serge (1958) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франсуа возвращается из города в родную деревню. Он встречает Сержа, но тот, некогда преуспевавший, а теперь спившийся архитектор, не узнает друга детства…Производство: ФранцияЖанр: ДрамаРежиссер: Клод ШаброльАктеры: Жерар Блен, Жан-Клод Бриали, Мишель Мериц, Бернадетт Лафон, Клод Серваль, Джинн Перез, Эдмон Бошан, Андре Дино, Мишель Крёз, Клод ШаброльПеревод: Многоголосый закадровыйСубтитры: русские (отдельным файлом)Продолжительность: 01:34:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B9CF64232BC0BBECF47D47EDA157CD4B060178
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

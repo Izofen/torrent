@@ -1,54 +1,3 @@
-###  Публикация: 1582300   (323571) от 09.10.2022
-
-Bronson - Live Fast Die Hard (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hardcore, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome on board [00:01:43]
-02. Una canzone per disobbedire [00:03:06]
-03. Roma Tiger Punk (vol.2) [00:02:16]
-04. Tutto quello che ho [00:02:53](   Читать дальше...   )Жанр: Melodic Hardcore, Punk RockПродолжительность: 00:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D475B998750F0986931E5A3EEDD7ABAB9A0D57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073967   (323572) от 21.11.2016
-
-Роберт Сейбер | Приманка для простаков (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_323572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все началось с появления в офисе частного сыщика Карла Гуда провинциальной пожилой леди, которая попросила найти ее дочь, уехавшую в город с миллионером – нефтяником. Сыщик начинает поиски и практически сразу же сталкивается с преступниками, которые занимаются рэкетом и убивают всех, кто становится на пути больших денег. Роман «Приманка для простаков» - это что-то (   Читать дальше...   )Жанр: ДетективПродолжительность: 06:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D681DD12201F3C3A40DD694242505F265F7CA902
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582434   (323573) от 09.10.2022
 
 Ellefson-Soto - Vacation In The Underworld (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
@@ -72,6 +21,8 @@ Ellefson-Soto - Vacation In The Underworld (2022) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:E79847B3F37CA1840E1C2AC3F9B8E801AF861A2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +48,8 @@ Postbox является почтовым клиентом, в основу со
 ```bash
 magnet:?xt=urn:btih:C62B0BC99BD0B2EB551EA01A9D7599930D66DA1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +78,8 @@ magnet:?xt=urn:btih:C62B0BC99BD0B2EB551EA01A9D7599930D66DA1A
 magnet:?xt=urn:btih:1EAA6ED20E08442D5716CAFF7D234FE90904DA0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +106,8 @@ Bobby Kimball - We're Not In Kansas Anymore (2016) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:B492DC61061F4333E4C0EE4DE1070A52808FDE60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +136,8 @@ Backman Johanson And The Others - At Last (2018) Japanese Edition [FLAC|Lossless
 magnet:?xt=urn:btih:B26500A8DC7AC824C46415AB6FB2EB83AB9E053E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +162,8 @@ magnet:?xt=urn:btih:B26500A8DC7AC824C46415AB6FB2EB83AB9E053E
 magnet:?xt=urn:btih:4E20D8C78D749AB32F7E22D1143FBAA6CEF93693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +187,8 @@ magnet:?xt=urn:btih:4E20D8C78D749AB32F7E22D1143FBAA6CEF93693
 ```bash
 magnet:?xt=urn:btih:C6AFAAF40741C8EDCB38787B3A3BD8AEBF5B16C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +217,8 @@ VA - Stress Free: Deep House Laidback Beats (2016) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:4A58DFDC77561ACBB34AC46BC57214D21139FC7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +244,8 @@ magnet:?xt=urn:btih:4A58DFDC77561ACBB34AC46BC57214D21139FC7C
 magnet:?xt=urn:btih:5021A2F268958DF98DFE2627DE26C66EAA0E810E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +269,8 @@ magnet:?xt=urn:btih:5021A2F268958DF98DFE2627DE26C66EAA0E810E
 ```bash
 magnet:?xt=urn:btih:4DDB2601FA6DB9F15364E45CAD5C4B6A43F7949D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +299,8 @@ Newsletters Templates for Pages содержит более 90 больших ш
 magnet:?xt=urn:btih:874D9617A401DDFE689E53E97A55F19647F3525B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +327,8 @@ Never Back Down - Downfall (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:1B8DFEB2470232708BF62366F1114C79594759FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +357,8 @@ Reverend Mother - Damned Blessing (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Ro
 magnet:?xt=urn:btih:B5C7259B25A6DF00EB0C4022B7943B8E1CC21E34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +386,8 @@ Sky Pig - It Thrives in Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, S
 magnet:?xt=urn:btih:16F05229C1E41E2E18E29F9A6FC13165AD3BFD02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +412,8 @@ magnet:?xt=urn:btih:16F05229C1E41E2E18E29F9A6FC13165AD3BFD02
 ```bash
 magnet:?xt=urn:btih:F80571B7697D37543A16D04088C25C2B41539D49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +442,8 @@ magnet:?xt=urn:btih:F80571B7697D37543A16D04088C25C2B41539D49
 magnet:?xt=urn:btih:1529CE1E231DBD5577F56FB0558EAEFDBAF48F36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +467,8 @@ magnet:?xt=urn:btih:1529CE1E231DBD5577F56FB0558EAEFDBAF48F36
 ```bash
 magnet:?xt=urn:btih:56CAF54385328B3F2C02DB18EBAD2CE850B10EA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +497,8 @@ Sonny Stitt - 12! (1972) 1999, 32 Jazz [WavPack|Lossless|image + .cue] <Hard Bop
 magnet:?xt=urn:btih:D4D0321A87A05E7E1BC3EC456B6C21DD6F65A6FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +523,8 @@ Flyers Templates for Pages - красивые и полезные шаблоны
 ```bash
 magnet:?xt=urn:btih:E73215473DBCB79D33E9DC810B5C83F01A051EC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +553,8 @@ A Sight in Veracity - Eternity Past (2022) Extended Edition [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:94C018F7B03EC43E0740A82FFA86607551EAAAB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +578,8 @@ magnet:?xt=urn:btih:94C018F7B03EC43E0740A82FFA86607551EAAAB5
 ```bash
 magnet:?xt=urn:btih:AFAD7EEDFFC3CCA259A3A2BA4112D692050A9647
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +608,8 @@ The Killerhertz - Starburst (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy
 magnet:?xt=urn:btih:1FE438BF480D96ACFE229368FE62DE232B9D60FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +635,8 @@ Certificates Templates for Pages  прекрасная коллекция из 3
 ```bash
 magnet:?xt=urn:btih:7810233029A45C9BCDF39F8D38E03351786C45ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,6 +664,66 @@ Resist The Ocean - 3 Albums (2016-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore
 ```bash
 magnet:?xt=urn:btih:2508970718243394AB5560CAFF99A16FFB745C5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582226   (323598) от 09.10.2022
+
+Armed For Apocalypse - Ritual Violence (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under My Shame [00:03:14]
+02. Frail [00:02:20]
+03. Full of Phlegm [00:04:48]
+04. Hourglass [00:02:59](   Читать дальше...   )Жанр: Sludge Metal, Doom MetalПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D527AD5B4E0426320325AD69CD5CEC65C2C7A351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074630   (323599) от 21.11.2016
+
+Paul Taylor - Prime Time (2011) [APE|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_323599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Push To Start (3:50)
+02. Moment Of Truth (4:32)
+03. Don't Wanna Let You Go (4:23)
+04. Cant Nobody (3:53)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E97CBD1148B57831E8658189E4A29618BAB36B4
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

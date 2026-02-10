@@ -22,6 +22,8 @@ QA.GURU, Артём Eрошенко, Aлексей Виноградов, Ром�
 magnet:?xt=urn:btih:B7478FC62D8B4A479E7B0E5946CD22261A68BFF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:B7478FC62D8B4A479E7B0E5946CD22261A68BFF1
 ```bash
 magnet:?xt=urn:btih:4296A568A6CC164690E96DBC2E4D27ABE22B0CFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Udemy, Dzianis Matveyenka (DMdev) | Computer Science on Java for Beginners (2023
 magnet:?xt=urn:btih:86A4B4590119969666ED6AE1D73C958A08537DB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:86A4B4590119969666ED6AE1D73C958A08537DB3
 ```bash
 magnet:?xt=urn:btih:CA1026DF004F749B92E85E284993B5E4053952A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:CA1026DF004F749B92E85E284993B5E4053952A1
 magnet:?xt=urn:btih:49E83A3C3BC1597641D3F9267012F6342E00709A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:49E83A3C3BC1597641D3F9267012F6342E00709A
 ```bash
 magnet:?xt=urn:btih:85CC7533C52F6317909E707B5938B86DA17653D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:85CC7533C52F6317909E707B5938B86DA17653D4
 magnet:?xt=urn:btih:0D434462D227930CC1CE36EB19587C88EF3551C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:0D434462D227930CC1CE36EB19587C88EF3551C6
 ```bash
 magnet:?xt=urn:btih:E92FA70ABAA509CAC8AC141162355CD2C0FA3DB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:E92FA70ABAA509CAC8AC141162355CD2C0FA3DB2
 magnet:?xt=urn:btih:6A353A8B64095AC73AACCD641A37DEDA184B27FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Bayonetta 2 (2014) [WiiU] [EUR] 5.3.2 / WUP Installer [Repack] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4FB6C98A4960DF7978CB2C8C532ED68BE5BC8858
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:4FB6C98A4960DF7978CB2C8C532ED68BE5BC8858
 magnet:?xt=urn:btih:5BC0C2AE9E74E940F4C9D4DCA089217B9D82A6B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:5BC0C2AE9E74E940F4C9D4DCA089217B9D82A6B9
 ```bash
 magnet:?xt=urn:btih:73752CF92855902C4C82E75FF5AC1CD53FC2E445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Skillfactory, Михаил Королев | Data Engineering (2023) WEB-DL [RU]
 magnet:?xt=urn:btih:F171DFA5A0DC2A1797A807F02167108ED1A527FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Total Commander 10.52 (31.10.2022) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:70D8F0FBE477883F475B7F269A230D0CB6E2EC2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:70D8F0FBE477883F475B7F269A230D0CB6E2EC2C
 ```bash
 magnet:?xt=urn:btih:D4F748E47B1295DACDDB6A13DF06B1CAFDEB3B67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:D4F748E47B1295DACDDB6A13DF06B1CAFDEB3B67
 magnet:?xt=urn:btih:7E7249063CF13B2718C51E25C2D00270E0C4325C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:7E7249063CF13B2718C51E25C2D00270E0C4325C
 ```bash
 magnet:?xt=urn:btih:9726F19D8A8180858A9D514C81B622BE5AE31106
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:9726F19D8A8180858A9D514C81B622BE5AE31106
 magnet:?xt=urn:btih:735BAA1ECF9B295DF622F95EBF59DCA492ABF95F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:735BAA1ECF9B295DF622F95EBF59DCA492ABF95F
 ```bash
 magnet:?xt=urn:btih:D88F7448D653B460D0669D4F6D9BA6AF5F2D2F5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Spelunky (2013) [Multi] (2.1.0.9) License GOG
 magnet:?xt=urn:btih:45AE616962BCEE7AC9DEE0F63004035A3EBD01A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:45AE616962BCEE7AC9DEE0F63004035A3EBD01A9
 magnet:?xt=urn:btih:8FD7A2D94C21F453DA02715E6C9A5390A093D135
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:8FD7A2D94C21F453DA02715E6C9A5390A093D135
 ```bash
 magnet:?xt=urn:btih:88E6AC98BC49482F23405CBB09089BAE13EA188A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Maplesoft Maple 2022.2 [Multi/Ru]
 magnet:?xt=urn:btih:3B2297444C7CF7680923B44F823A56F323724C1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ DriverDoc – достойная прога для обновления драй
 ```bash
 magnet:?xt=urn:btih:67268350B02F15F6046BD0C5103CDFBFBC647842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:67268350B02F15F6046BD0C5103CDFBFBC647842
 magnet:?xt=urn:btih:68779436B0929E479E72C920DBA58AD48E68DF56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:68779436B0929E479E72C920DBA58AD48E68DF56
 ```bash
 magnet:?xt=urn:btih:2E243972EF29ABE0A9DB20CB071ED72DD46DB4F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

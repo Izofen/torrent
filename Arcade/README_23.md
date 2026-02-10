@@ -19,6 +19,8 @@ Suicide Guy Sleepin Deeply – популярная приключенческа
 magnet:?xt=urn:btih:7A189DB9B41DE5F8F8BB86E38D8B594A760514DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Suicide Guy Deluxe Edition – это приключенческий экшен 
 ```bash
 magnet:?xt=urn:btih:6BD859C67D5A42A75E01284833E3E348083CEBD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Suicide Guy - игра от первого лица в жанре "action-puzzle
 magnet:?xt=urn:btih:DE3931654EC40755E713E4735A985BA3E0B8E66A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Boti: Byteland Overclocked (2023) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:CEDE50662A860AA6FE39CE6F716958F13B0B8281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Neighbours from Hell Dilogy + Remaster (2003-2020) [Ru/Multi] (1.0/1.01/1.2.1) R
 magnet:?xt=urn:btih:1DA12B81B7121AB769B8E5E74E32953C3DA14A92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Boomerang X (2021) [Ru/Multi] (1.11) License GOG
 ```bash
 magnet:?xt=urn:btih:5FE007A2DD8FD2B9EF9F822D53B12BAF59537F8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Skye Tales - это головоломка-платформер для всей 
 magnet:?xt=urn:btih:7976E91AA24E8176C7224FA8B5A884004E965A85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Tavernacle! (2023) [Ru/Multi] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:5145399FDD56A1BDF15FBD9DCDFECF751A7EDC3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Girl Genius: Adventures In Castle Heterodyne (2023) [Multi] (1.0.3a) Scene Skidr
 magnet:?xt=urn:btih:677FA7B913C35F56A196DE9208E46B96B01582C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Little Witch Nobeta - трехмерная экшен рпг уже как тр�
 ```bash
 magnet:?xt=urn:btih:9D10385089991E069035EE7AAAA1C0511E7DF4C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Diary of Lucie - это сюжетно-ориентированный экшен
 magnet:?xt=urn:btih:AC60188FD7FF5CC3CE11983295E07DCFB218DA38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Darkest Tales (2022) [Ru/Multi] (1.05.1) License GOG
 ```bash
 magnet:?xt=urn:btih:6E96C17CB03EC3FD00813F8BE143C47FC4130B28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ SIGNALIS (2022) [Ru/Multi] (1.0) License DARKSiDERS
 magnet:?xt=urn:btih:B289F5F351A668178E41A7D4518E15CD196E60A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Sackboy: A Big Adventure (2022) [Ru/Multi] (9806667/dlc) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:B6CB54150F9B716E0CCA58AC8168504D14B3533E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Spelunky (2013) [Multi] (2.1.0.9) License GOG
 magnet:?xt=urn:btih:45AE616962BCEE7AC9DEE0F63004035A3EBD01A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Hell Pie - непристойная 3D-игра, которая выведет �
 ```bash
 magnet:?xt=urn:btih:0E8C0F0D350AD910F15F84D6AEC878260EE68098
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Teenage Mutant Ninja Turtles: Shredder’s Revenge - это яркий, сдел
 magnet:?xt=urn:btih:E2E1BAFFCCB5BB2CAFFB9D520B0FABCDBA8FFBA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Castle Crashers (2012) [Ru/En] (3.0/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:670AB29E3CFD63F3C66B0D0B8E8B354470A6513E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Plants vs. Zombies: Replanted (2025) [Multi] (1.2.1173.0) Repack Necros
 magnet:?xt=urn:btih:B6BE1BFE07728AAC1049EEAB371A334950213BFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Zombie Shooting Star (2022) [Multi] (1.1) License GOG [16+]
 ```bash
 magnet:?xt=urn:btih:F822FDD9CBE85EC7C54EAD3CAB39F0DA8F8DAF35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Zombie Shooting Star: ARCADE (2022) [Multi] (1.1) License GOG
 magnet:?xt=urn:btih:B6837806E8676EE8A969A4421B2B560AEC626E41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Mail Time переносит пользователей в мирный и сп�
 ```bash
 magnet:?xt=urn:btih:BC4B5BEF68FFAFF3D9464FD598F567BD37C87674
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Pinball FX3 считается самым масштабным проектом 
 magnet:?xt=urn:btih:C5F82E3A55B1D00C6D8F3172864AB955EDBC0CBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ TailQuest Defense - это игра в жанре tower defense, в которо
 ```bash
 magnet:?xt=urn:btih:13C61CD92407A6E21EA1FB60BA60FCBF6668AE1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Anvil - исследовательский центр, который заним
 magnet:?xt=urn:btih:01068E6F909F4693812831887926D1E612DAC5AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Ape Out - динамичный и яркий smash ‘em up про велики�
 ```bash
 magnet:?xt=urn:btih:021B1B4D03D3FA16C6C06DB067624E5853264AAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

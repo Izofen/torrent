@@ -22,6 +22,8 @@ VA - Romantic DANCE (2022) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:CBCD022E8C7212135A1B05DACDB276884F8C8F03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ magnet:?xt=urn:btih:CBCD022E8C7212135A1B05DACDB276884F8C8F03
 magnet:?xt=urn:btih:E625E3857E324D54F83A7271FAB20731127FB26E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -77,6 +81,8 @@ VA - Ретро Шлягер Новогодний (2006) [MP3|320 Kbps] <Рет�
 ```bash
 magnet:?xt=urn:btih:0A7609B79C6C8FDE5BB033992315BC057869A592
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -105,6 +111,8 @@ C.C.Catch - The Best Of C.C. Catch (2000) 3 CD [OGG Vorbis|480 Kbps] <Electronic
 magnet:?xt=urn:btih:BC62FFB988762AE7139D23B5E70C97FD0A54EB6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -131,6 +139,8 @@ VA - DMC Essential Hits 2022 UK & USA Number Ones (2022) CD, Compilation [MP3|32
 ```bash
 magnet:?xt=urn:btih:14FFAF3C09D1579CBCB3B2CF689B2CDA280EE215
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -159,6 +169,8 @@ CD1
 magnet:?xt=urn:btih:62401F00FE9F09E554BD6F438DBAA485F3A1D2E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -185,6 +197,8 @@ magnet:?xt=urn:btih:62401F00FE9F09E554BD6F438DBAA485F3A1D2E1
 ```bash
 magnet:?xt=urn:btih:B89CCFB21C68FAE0689A4C0E2476F696EFFE904A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +227,8 @@ magnet:?xt=urn:btih:B89CCFB21C68FAE0689A4C0E2476F696EFFE904A
 magnet:?xt=urn:btih:113EDE190768AE6312DA542A3018BE630138F74B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +253,8 @@ Cesare Cremonini - 1 Album, 1 Single (2022) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:36795E0BA3230E5C6418DD99FA8DF4B7D89F05E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:36795E0BA3230E5C6418DD99FA8DF4B7D89F05E4
 ```bash
 magnet:?xt=urn:btih:5A17B01951B5C42AC8F77C0117E067E2DF9A8977
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ magnet:?xt=urn:btih:5A17B01951B5C42AC8F77C0117E067E2DF9A8977
 magnet:?xt=urn:btih:F828CB77118648A1843F742B5173AE577333E79F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +346,8 @@ VA - Трибьют «Иванушки International» (2022) [MP3|320 Kbps] <Po
 ```bash
 magnet:?xt=urn:btih:02473530E78FA709DE9FE552FC37ABF1EBA63BF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ magnet:?xt=urn:btih:02473530E78FA709DE9FE552FC37ABF1EBA63BF5
 magnet:?xt=urn:btih:E0A878A5858E852EA8E003282A5CC690ECA2CCA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +404,8 @@ Julie Parsons - Piano Lady (1977) LP [MP3|320 Kbps] <Pop, Funk-Soul, Easy Listen
 ```bash
 magnet:?xt=urn:btih:08F6067DF87B4AE81CF5853FC52571E529EA9036
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ VA - If You Love Her - Easy Acoustic (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:D31DE28F3F28EF1BBB14EFC8BFFA32A402CB1A3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ magnet:?xt=urn:btih:D31DE28F3F28EF1BBB14EFC8BFFA32A402CB1A3D
 ```bash
 magnet:?xt=urn:btih:6CB4E31A818773AD3A0E770E3E3FB933DC14EB8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ magnet:?xt=urn:btih:6CB4E31A818773AD3A0E770E3E3FB933DC14EB8F
 magnet:?xt=urn:btih:C105630D5DCDCD3B74F6EA6418ECD99C44239951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +520,8 @@ magnet:?xt=urn:btih:C105630D5DCDCD3B74F6EA6418ECD99C44239951
 ```bash
 magnet:?xt=urn:btih:AA768B205D0D4BC4F66CA368263ED811218EFEB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +550,8 @@ V.A. - 90's Dance Rarities, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Eurodan
 magnet:?xt=urn:btih:E21D136B84E1846307B4E0F17B8283D316BF3A28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +578,8 @@ VA - Chilled Acoustic Covers (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:F699160A838D2B2CA477A47C484894F0008B465B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +608,8 @@ VA - Solo Divas Volumen 1 (2023) [MP3|320 Kbps] <Pop, Soul>
 magnet:?xt=urn:btih:CD8D4DD9B254526BDA4E9064CE7667E346BF632B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +636,8 @@ VA - Solo Divas Volumen 3 (2023) [MP3|320 Kbps] <Pop, Soul>
 ```bash
 magnet:?xt=urn:btih:C2CC980E43F0F25EF994A19277444D7523305189
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +666,8 @@ VA - Solo Divas Volumen 2 (2023) [MP3|320 Kbps] <Pop, Soul>
 magnet:?xt=urn:btih:B865009FBA542E78462F4573DB67248096309558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +694,8 @@ VA - Ultimate Party Classics Pop (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:C047BEF4B7F008F7B9D2C58B785AE04446EF78C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +724,8 @@ Robbie Williams - Escapology (2002) [OGG Vorbis|480 Kbps] <Rock, Pop Rock>
 magnet:?xt=urn:btih:35DE553A26D6587410930BA7DEBBF1858B6C1D89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +752,8 @@ magnet:?xt=urn:btih:35DE553A26D6587410930BA7DEBBF1858B6C1D89
 ```bash
 magnet:?xt=urn:btih:6A86A3ADAB915E4EDCABC41EE447B556675E02D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

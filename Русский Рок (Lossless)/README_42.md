@@ -22,6 +22,8 @@ Drugger - Dementia (1996) [FLAC|Lossless|image + .cue] <Death Metal>
 magnet:?xt=urn:btih:FF504DF8892717CE2686193742E63C3FC58CAB5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:FF504DF8892717CE2686193742E63C3FC58CAB5E
 ```bash
 magnet:?xt=urn:btih:C4FB3C750558B0E9B7579D2151B2F1A7428160DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:C4FB3C750558B0E9B7579D2151B2F1A7428160DB
 magnet:?xt=urn:btih:8F2DF5FD422720F3A6EE10817CC1C70A38DD21C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:8F2DF5FD422720F3A6EE10817CC1C70A38DD21C3
 ```bash
 magnet:?xt=urn:btih:A8E2E81EC5EE967351470021E7D7BE11AF3CDDFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:A8E2E81EC5EE967351470021E7D7BE11AF3CDDFB
 magnet:?xt=urn:btih:1684D8FAA79DAE31840A013DBD466CF7AA0E2248
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Bloodrain - De Vermis Mysteriis (2001) [FLAC|Lossless|image + .cue] <Thrash Meta
 ```bash
 magnet:?xt=urn:btih:AFE4B2CBD4729AD63861F22A862F7E42B1ABAF7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:AFE4B2CBD4729AD63861F22A862F7E42B1ABAF7D
 magnet:?xt=urn:btih:2C9AED8B2D95CDBE07D3653F1EC25981CF98A985
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:2C9AED8B2D95CDBE07D3653F1EC25981CF98A985
 ```bash
 magnet:?xt=urn:btih:4FAC1066D64C2BD347DE0DD0FF45446A3124165B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:4FAC1066D64C2BD347DE0DD0FF45446A3124165B
 magnet:?xt=urn:btih:D6EE84EF8F8572EF6B5AE44103F2E5F600B3E62A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ VA - XXXL 10-Рок (2003) [FLAC|Lossless|image + .cue]<Rock>
 magnet:?xt=urn:btih:AEDAC46A5CC650390988F3B3FF64F6DFDE321E97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +311,8 @@ magnet:?xt=urn:btih:AEDAC46A5CC650390988F3B3FF64F6DFDE321E97
 ```bash
 magnet:?xt=urn:btih:F7411A3157C12F2F18341ADD8E51CAC424454F72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +347,8 @@ magnet:?xt=urn:btih:F7411A3157C12F2F18341ADD8E51CAC424454F72
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +375,8 @@ magnet:?xt=urn:btih:F7411A3157C12F2F18341ADD8E51CAC424454F72
 ```bash
 magnet:?xt=urn:btih:9A75FC54B0C15E5D52C4AA85B1F3E8E77020DADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +411,8 @@ VA - Отечественные Рок Баллады (2010) [FLAC|Lossless]<Roc
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +439,8 @@ VA - Отечественные Рок Баллады (2010) [FLAC|Lossless]<Roc
 ```bash
 magnet:?xt=urn:btih:519FFEA44F60A0403444B39EF8D05DCB9DC75D31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +475,8 @@ magnet:?xt=urn:btih:519FFEA44F60A0403444B39EF8D05DCB9DC75D31
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +503,8 @@ magnet:?xt=urn:btih:519FFEA44F60A0403444B39EF8D05DCB9DC75D31
 ```bash
 magnet:?xt=urn:btih:098167CF32AD03A1DA712E6075964BBF28521346
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +533,8 @@ magnet:?xt=urn:btih:098167CF32AD03A1DA712E6075964BBF28521346
 magnet:?xt=urn:btih:B6BE81CD8E6AAADDD02DA75E60B0841E11E6AF51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +561,8 @@ magnet:?xt=urn:btih:B6BE81CD8E6AAADDD02DA75E60B0841E11E6AF51
 ```bash
 magnet:?xt=urn:btih:6CAF56DA26539ED82D19AEDA13EDD39880244CA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +591,8 @@ Catharsis - Зеркало Судьбы (2019) [FLAC|Lossless|WEB-DL|tracks] <Po
 magnet:?xt=urn:btih:05DFC33D4C4ED52FFD8910AF07566EE9AAD33E63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +619,8 @@ magnet:?xt=urn:btih:05DFC33D4C4ED52FFD8910AF07566EE9AAD33E63
 ```bash
 magnet:?xt=urn:btih:23B236ED54FAAC519A7303A459149A276B7505D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +649,8 @@ magnet:?xt=urn:btih:23B236ED54FAAC519A7303A459149A276B7505D1
 magnet:?xt=urn:btih:3AD58C4FAD68D4FD78FA917BD6590FED80547185
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +677,8 @@ magnet:?xt=urn:btih:3AD58C4FAD68D4FD78FA917BD6590FED80547185
 ```bash
 magnet:?xt=urn:btih:BDFBA99858915737BE66791A9B8D46B8F73E3891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +707,8 @@ magnet:?xt=urn:btih:BDFBA99858915737BE66791A9B8D46B8F73E3891
 magnet:?xt=urn:btih:8C30C35F63DEA9D7AD7A09B0CB636E03E2FFC590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,6 +734,8 @@ magnet:?xt=urn:btih:8C30C35F63DEA9D7AD7A09B0CB636E03E2FFC590
 ```bash
 magnet:?xt=urn:btih:3B9D0A78029F40C12163581274C7B17C15781A8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -713,6 +763,8 @@ magnet:?xt=urn:btih:3B9D0A78029F40C12163581274C7B17C15781A8C
 ```bash
 magnet:?xt=urn:btih:B77411ABDC14F1EAEF799C386FF7C3C766B3EA6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

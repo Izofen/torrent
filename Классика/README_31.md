@@ -22,6 +22,8 @@ Sonata in E flat major, BWV1031
 magnet:?xt=urn:btih:3850F38B8159AAF2EF66CB659771445A0F51CBA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Deviations Project - Deviations Project (2007) [MP3|320 Kbps] <Modern Classical 
 ```bash
 magnet:?xt=urn:btih:70C46E250BDD332579927CB22261D91241F25497
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ London Promenade Orchestra базируется в Лондоне, Онтари�
 ```bash
 magnet:?xt=urn:btih:A60C6FFF37095B9D45FECE1990B3A4CDB23618D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -110,6 +116,8 @@ André Rieu - Dreaming (2002) [FLAC|Lossless]<Classic, Instrumental>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -136,6 +144,8 @@ Fabio Fabor - Strings And... (2019) [MP3|320 Kbps] <Classical>
 ```bash
 magnet:?xt=urn:btih:71451A78C4871B930797C60470B2D07FA8F30C8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +174,8 @@ VA - Dark Side Of The Classical Music (2011) Box Set, 3CD [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:76D2459DF656BB441FB0C8A07B0D99236D076539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +210,8 @@ Mirusia - Always and Forever (2010) [FLAC|Lossless]<Classical>
 magnet:?xt=urn:btih:DA435659C4A7F950949878D196D2BCF9219D9BC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +238,8 @@ Concerto for 2 pianos & orchestra in E flat major ("Concerto No. 10"), K. 365 (K
 ```bash
 magnet:?xt=urn:btih:93062EAE09A915FC69D476BF2897D1B3AE080A90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +268,8 @@ VA - Tenorissimi Mondeale '90 (1990) [APE|Lossless|image + .cue] <Classical>
 magnet:?xt=urn:btih:AE900D17199A7AC7B3269892A6AA49E2D5C13563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +293,8 @@ Franz Schubert - The Masterworks (40 CDs) (1797-1828) [MP3|320 kbps] <Classical>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +323,8 @@ Piano Sonata No. 4 in A minor, D. 537 (Op. posth. 164)
 magnet:?xt=urn:btih:96777A398870580785418F568E8E0DE92AAD44F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +351,8 @@ VA - Beethoven: Adagio (1997) [FLAC|Lossless|WEB-DL|tracks] <Classical, Romantic
 ```bash
 magnet:?xt=urn:btih:CE69E77C413DD670749E72D6D42CAD80AED7474B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +381,8 @@ Vanessa-Mae - Greatest Hits (2010) 2CD [FLAC|Lossless|image + .cue] <Violin Tech
 magnet:?xt=urn:btih:C5CFA204C48DB2C4558705E3E4018AAC8661BC77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +406,8 @@ Elina Garanca - 3 альбома (2007-2010) [MP3|320 кб/с]<Classical>
 ```bash
 magnet:?xt=urn:btih:5207B79B5308535C42377DDEC589417AA12FB41D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +442,8 @@ VA - Современное звучание Мировой Классики (20
 magnet:?xt=urn:btih:F8B8A1000EA0E59B20FFBE82A614BF6E65BF3316
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +476,8 @@ Reconstructed from BWV 35 and BWV156 Reconstruction by Arnold Mehl (Edition Kunz
 ```bash
 magnet:?xt=urn:btih:10CD257BB91EF9A055E8C2E575B112EEBD00A539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +512,8 @@ Divertimento F-dur KV 138 (125c)
 magnet:?xt=urn:btih:C2DA15278504A728715F98D8732BF86F000DFB8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +547,8 @@ Sinfonia in D major, Callen 30
 magnet:?xt=urn:btih:311F258088C219AD1D02F6D406E2B3AA4C9F0FB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +580,8 @@ Louis Spohr - Double Quartets: St.Martin-in-the-Fields Chamber Ensemble (1998) 2
 magnet:?xt=urn:btih:C773C88EBC291296164289326B653E2DFF977CCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +609,8 @@ Joep Beving - Prehension (2017) [MP3|320 Kbps] <Modern Classical, Piano>
 magnet:?xt=urn:btih:CC23907ADA322133EA62DF913F78DDCC80397751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +637,8 @@ Piano Sonata No.16 In A Minor, D.845
 ```bash
 magnet:?xt=urn:btih:26FBE8C84E177A4BB86C11DA89F7FFEEC1B6D1D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +673,8 @@ Emma Shapplin - 2 Альбома (2002-2003) [FLAC|Lossless]<Modern Classical>
 magnet:?xt=urn:btih:71718F52AF7C47A1CF1334F7D463E9CB80B31F35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +701,8 @@ George Frideric Handel - La Maga Abbandonata (Simone Kermes & Maite Beaumont / I
 ```bash
 magnet:?xt=urn:btih:7A9B4AC34D5B30F07CF89F698B45D9BD2BBB7AA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -685,6 +731,8 @@ A Silver Mt. Zion - 8 albums (2000-2012) [FLAC|Lossless] <Experimental, Neoclass
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -710,6 +758,8 @@ VA - Peaceful Piano (2017) [MP3|320 Kbps] <Classical, Piano>
 ```bash
 magnet:?xt=urn:btih:77B885F3ABB06887F010AC5BC999592E134B2C9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -742,6 +792,8 @@ Esmerine - 3 albums (2003-2011) [FLAC|Lossless] <Post-Rock, Instrumental, Experi
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

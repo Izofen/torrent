@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:07C46C5D92D4CD6FABB9E560A0ACB075EFFE7F60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:07C46C5D92D4CD6FABB9E560A0ACB075EFFE7F60
 ```bash
 magnet:?xt=urn:btih:B2F53CDFA8BAFA3A5C5A14C0110E345A5D2147D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Scene Tenoke
 magnet:?xt=urn:btih:60F0D64ABEB19FEEA077EC9F9E2F15802C7C62DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:60F0D64ABEB19FEEA077EC9F9E2F15802C7C62DA
 ```bash
 magnet:?xt=urn:btih:55017FD3B58818A48C1DDEE504B996EAE817536F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:55017FD3B58818A48C1DDEE504B996EAE817536F
 magnet:?xt=urn:btih:8F63C3525672D05B0B8931553A6AD526539F226C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ FastStone Capture - мощная и многофункциональная пр
 ```bash
 magnet:?xt=urn:btih:95BE78125E9EEBB0E15DF91E62F20ACD0E35077E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Euromartina - Compilation (2024) [MP3|320 Kbps] <Eurodisco, Eurodance>
 magnet:?xt=urn:btih:F413E389416A0B4F5D225BB4E0837A00B21A1F56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:F413E389416A0B4F5D225BB4E0837A00B21A1F56
 ```bash
 magnet:?xt=urn:btih:5C3D89A295199924DE01532CF960AD48485EFB60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ VA - Red System Records presents ... CD 1 (2024) [MP3|320 Kbps] <Eurodisco, Euro
 magnet:?xt=urn:btih:08B1D69ADA4F400F25DE8E09BAD434D1CE30C323
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ Okean Elzy (Океан Эльзи) - Той день (2024) [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:CD2FAF3BDDD59FE01290D32F45976901C77B2848
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:CD2FAF3BDDD59FE01290D32F45976901C77B2848
 magnet:?xt=urn:btih:BF8801999802F70AF41365DA8F31D8BFF9B2707B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:BF8801999802F70AF41365DA8F31D8BFF9B2707B
 ```bash
 magnet:?xt=urn:btih:2F66A5CF3CF4A1F4C5F291C2361D823DC049089E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ VA - A Tribute To Rammstein (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Met
 magnet:?xt=urn:btih:D4C8DDE3277B46876946D96D3AEF2F0FC6BE1082
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ The Offspring - Supercharged (2024) [MP3|320 Kbps] <Punk-Rock>
 magnet:?xt=urn:btih:2312B9353DA653A30523AD60B3B5E621666E8EC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:2312B9353DA653A30523AD60B3B5E621666E8EC9
 ```bash
 magnet:?xt=urn:btih:466521E6257BF0007E87C5357F1216B3A09067F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:466521E6257BF0007E87C5357F1216B3A09067F2
 magnet:?xt=urn:btih:34D75B29416DC74501F5BA7C6B42A3E47A697FC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:34D75B29416DC74501F5BA7C6B42A3E47A697FC9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:34D75B29416DC74501F5BA7C6B42A3E47A697FC9
 magnet:?xt=urn:btih:C9FC6CF76EE45C94EC0E295A70F688137869454A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ Teenage Mutant Ninja Turtles: Shredder's Revenge - экшен, в котором
 ```bash
 magnet:?xt=urn:btih:3E95B2CC3343350A18F6D16B786E4B1D8F9AA42B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:3E95B2CC3343350A18F6D16B786E4B1D8F9AA42B
 magnet:?xt=urn:btih:3C005B19E6794166EF32341B07828CA98749632E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:3C005B19E6794166EF32341B07828CA98749632E
 ```bash
 magnet:?xt=urn:btih:D621B043AA052912D6568EAEFDC2F4F85C211FCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ Axel Rudi Pell - Studio Albums (28 releases) (1989-2024) hand made [restored, de
 magnet:?xt=urn:btih:584F4A6A3A62C72AC07FA1D95796F2C7D873DD02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:584F4A6A3A62C72AC07FA1D95796F2C7D873DD02
 magnet:?xt=urn:btih:5F3A0A3913C63585E9967E4EA97EB5F75BA68B86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:5F3A0A3913C63585E9967E4EA97EB5F75BA68B86
 ```bash
 magnet:?xt=urn:btih:3E34FD154BD249472AF578DA2FADD13D2C16545E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:3E34FD154BD249472AF578DA2FADD13D2C16545E
 magnet:?xt=urn:btih:0D18853FFC516398D1ACCFE429F3952606D65805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:0D18853FFC516398D1ACCFE429F3952606D65805
 ```bash
 magnet:?xt=urn:btih:1043F874A6A90800CD575BE64818ED8A58AEDFE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

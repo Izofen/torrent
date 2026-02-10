@@ -22,6 +22,8 @@ Sko/Torp - Radio Songbook "The Best Of" (1998) [FLAC|Lossless|WEB-DL|tracks] <Po
 magnet:?xt=urn:btih:12B767D1785CB84AB0211006DC1BB37D42CA85DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Sherlock Holmes Chapter One (2021) [Ru/Multi] (7839_1.4/dlc) Repack Decepticon [
 magnet:?xt=urn:btih:7EEDF71A6D2834F9A9F115B71127F7AE582C4761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:7EEDF71A6D2834F9A9F115B71127F7AE582C4761
 ```bash
 magnet:?xt=urn:btih:8E1A774F6FDC6B0A2811DAA93CBABE2B4CA83C78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Kalmah - Kalmah (2023) [FLAC|Lossless|image + .cue] <Melodic Death Metal>
 magnet:?xt=urn:btih:B84E0E6F3E791582C9ECCAA698E7E49109B7DE3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Nexorum - Death Unchained (2020) [MP3|320 Kbps] <Black, Death Metal>
 magnet:?xt=urn:btih:28B20581D00BE768BD7D15C8E8AC6FD80F3FFDC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:28B20581D00BE768BD7D15C8E8AC6FD80F3FFDC2
 magnet:?xt=urn:btih:F84278B3D23C31AB09B5D087CD9BFEDB959FDB76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:F84278B3D23C31AB09B5D087CD9BFEDB959FDB76
 ```bash
 magnet:?xt=urn:btih:34DBB00CA3FC6AFEC3FA902C32A1308EDCA6695A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Secret Discovery - Truth, Faith, Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark
 magnet:?xt=urn:btih:FD768A33EED08473B2E390872271B24D95EAAC80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:FD768A33EED08473B2E390872271B24D95EAAC80
 ```bash
 magnet:?xt=urn:btih:3B08C81DA4E79B41784B3DDBCFA3CB56819045E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ Talvienkeli - In A World Full Of Clouds (2023) [FLAC|Lossless|WEB-DL|tracks] <Pr
 magnet:?xt=urn:btih:8C2DAC4EBFB492B09616B51867D8F8EDD78A502F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:8C2DAC4EBFB492B09616B51867D8F8EDD78A502F
 ```bash
 magnet:?xt=urn:btih:316A404C9A570C2AE8A508AF219A84C69BF46711
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ Anthony Rosano and The Conqueroos - Cheat the Devil (2023) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:7107BA9BD138236634252C661DF88A91F3A5D437
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:7107BA9BD138236634252C661DF88A91F3A5D437
 magnet:?xt=urn:btih:6DFA3B589071434B224BAA90502EBA034F30968B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:6DFA3B589071434B224BAA90502EBA034F30968B
 ```bash
 magnet:?xt=urn:btih:06EF400D21A6ED630BD9707BA6EDE05A8678D8A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ Eugene Tooms - Exhale and Ride Along (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 magnet:?xt=urn:btih:962531250C21E7C153EE20B33943D0C921896EED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:962531250C21E7C153EE20B33943D0C921896EED
 ```bash
 magnet:?xt=urn:btih:F542A0BC3A3BB96FBD6AE3F13535FB619B74C3F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ Sculforge - Intergalactic Battle Tunes (2023) [MP3|320 Kbps] <Speed Heavy, Power
 magnet:?xt=urn:btih:25598E6C9B86C6AF942828ACAE9231B1238E060F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ magnet:?xt=urn:btih:25598E6C9B86C6AF942828ACAE9231B1238E060F
 ```bash
 magnet:?xt=urn:btih:16336BCBA0E3CEFBD08730AA74DAB9DE67C424A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ Bob Corritore & Friends - High Rise Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:63C084F41C1851730142AE05FD148F8B5DDBA5FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +547,8 @@ magnet:?xt=urn:btih:63C084F41C1851730142AE05FD148F8B5DDBA5FA
 magnet:?xt=urn:btih:F3DCA112CE0FB7D66DDF6364C726809EF16D0EE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ Wise Disk Cleaner 11.0.3.817 RePack (& portable) by Dodakaedr [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E9BDB84A5D48B930D693CE0DDE71176F7600F622
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ EdgeView 3 - это новейший просмотрщик изображени
 magnet:?xt=urn:btih:40A3DF1D1217FD71F909AC43057BA8EA9D13206C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:40A3DF1D1217FD71F909AC43057BA8EA9D13206C
 ```bash
 magnet:?xt=urn:btih:BE0A20AAEEA1A01BBA7973742617A3493653D4BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ Marek Arnold's Artrock Project - same (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog
 magnet:?xt=urn:btih:D2A23F5C25DEAA638FC5612782FA1A9BBF104689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:D2A23F5C25DEAA638FC5612782FA1A9BBF104689
 magnet:?xt=urn:btih:6DEB5A621669C9C4081E733DC65C071F55889E6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ magnet:?xt=urn:btih:6DEB5A621669C9C4081E733DC65C071F55889E6B
 ```bash
 magnet:?xt=urn:btih:EB4817032481ED4907F57246068DEF6E454D9562
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

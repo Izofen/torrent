@@ -1,27 +1,3 @@
-###  Публикация: 436900   (979749) от 15.01.2012
-
-Беглянки / The Escapees / Les paumees du petit matin (1981) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Культовый фильм от классика. В одной из ролей - Брижит Лаэ. Две девушки Мири и Мишель бегут из сумасшедшего дома. Мари несколько заторможена и мечтательна, но всегда готова к сексу, Мишель - активна и агрессивна по отношению к мужчинам. Они пристают к бродячему цирку, который дает им кров и пищу. Они вовлекаются в череду опасных и сексуальных приключений...Жанр: Драма, Эротика, ТриллерРежиссер: Жан РоллинАктеры: Брижит Лаэ , Патрик Перро , Лоранс Дюба, Кристиан КоппеПеревод: Одноголосый закадровыйПродолжительность: 01:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97586CF6040F19C7470E0552C73E581FA6EDBCBC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 614488   (979908) от 06.02.2013
 
 Человек-Схема / Circuitry Man (1990) DVDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:97586CF6040F19C7470E0552C73E581FA6EDBCBC
 ```bash
 magnet:?xt=urn:btih:89B0BE79CA4ACEA5BE1F3FCD002C1DF7C21AAC8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:89B0BE79CA4ACEA5BE1F3FCD002C1DF7C21AAC8E
 magnet:?xt=urn:btih:9E09CBF46F04F2290A13B1D318275DDC24102BFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:9E09CBF46F04F2290A13B1D318275DDC24102BFE
 magnet:?xt=urn:btih:85189F7E7926F6CF565501ED1FEFA17D3DC393B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +96,8 @@ magnet:?xt=urn:btih:85189F7E7926F6CF565501ED1FEFA17D3DC393B9
 ```bash
 magnet:?xt=urn:btih:8F2F63D79A2A7348A4BD39B53762AF5D50816794
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +125,8 @@ magnet:?xt=urn:btih:8F2F63D79A2A7348A4BD39B53762AF5D50816794
 magnet:?xt=urn:btih:6A6EFAF7413FD807338C66A324D5562ADF794CC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:6A6EFAF7413FD807338C66A324D5562ADF794CC2
 ```bash
 magnet:?xt=urn:btih:E149CECADA57D60CACCFEBD821EF728B9054BE3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +178,8 @@ magnet:?xt=urn:btih:E149CECADA57D60CACCFEBD821EF728B9054BE3B
 magnet:?xt=urn:btih:DDF551240597DC0E368AF28B6CBAB9B2F5FD93EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +205,8 @@ magnet:?xt=urn:btih:DDF551240597DC0E368AF28B6CBAB9B2F5FD93EE
 magnet:?xt=urn:btih:7131833029BC11C9BB8EABF709E9389ECBC7F174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +231,8 @@ magnet:?xt=urn:btih:7131833029BC11C9BB8EABF709E9389ECBC7F174
 magnet:?xt=urn:btih:71BAA841F22D359E1D2A3678AA3E9A5A2EB011D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +256,8 @@ magnet:?xt=urn:btih:71BAA841F22D359E1D2A3678AA3E9A5A2EB011D7
 ```bash
 magnet:?xt=urn:btih:FFB819A2C0594B84888C1575DA3A72BC2927BB66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +286,8 @@ magnet:?xt=urn:btih:FFB819A2C0594B84888C1575DA3A72BC2927BB66
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +313,8 @@ magnet:?xt=urn:btih:FFB819A2C0594B84888C1575DA3A72BC2927BB66
 magnet:?xt=urn:btih:292F4CED82A4B3C1D234B167AA4354D1CC52B46E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +338,8 @@ magnet:?xt=urn:btih:292F4CED82A4B3C1D234B167AA4354D1CC52B46E
 ```bash
 magnet:?xt=urn:btih:B80843F0F0E6251E2B1178340FC22D08E510D753
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +365,8 @@ magnet:?xt=urn:btih:B80843F0F0E6251E2B1178340FC22D08E510D753
 magnet:?xt=urn:btih:6F13AC8CD165AAEA0DC98C57325D91997A60F17E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +390,8 @@ magnet:?xt=urn:btih:6F13AC8CD165AAEA0DC98C57325D91997A60F17E
 ```bash
 magnet:?xt=urn:btih:4D6B375FC993E7F8985F2ECBB464D49CF2451560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +418,8 @@ magnet:?xt=urn:btih:4D6B375FC993E7F8985F2ECBB464D49CF2451560
 magnet:?xt=urn:btih:CC6CD5A86F159F5B2A9ACF22495881FCFD439F7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +443,8 @@ magnet:?xt=urn:btih:CC6CD5A86F159F5B2A9ACF22495881FCFD439F7F
 ```bash
 magnet:?xt=urn:btih:2E3407F9FA9066EB36E62BF463D1CF31F5E62FE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +470,8 @@ magnet:?xt=urn:btih:2E3407F9FA9066EB36E62BF463D1CF31F5E62FE7
 magnet:?xt=urn:btih:497487CD37FEA869C804EB2A90CE50A5BE668302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +495,8 @@ magnet:?xt=urn:btih:497487CD37FEA869C804EB2A90CE50A5BE668302
 ```bash
 magnet:?xt=urn:btih:03DB6A2236FD28D9DB4ADBD3AAE9BB008778F143
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +522,8 @@ magnet:?xt=urn:btih:03DB6A2236FD28D9DB4ADBD3AAE9BB008778F143
 magnet:?xt=urn:btih:814547B229B6BE1B0A054859124936B509A5F753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +547,8 @@ magnet:?xt=urn:btih:814547B229B6BE1B0A054859124936B509A5F753
 ```bash
 magnet:?xt=urn:btih:24091DC2EA7977D3DA694A2BB385E754D53285F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +574,8 @@ magnet:?xt=urn:btih:24091DC2EA7977D3DA694A2BB385E754D53285F4
 magnet:?xt=urn:btih:03544DFB396B3DF20827F7FBE3AB9DB797BB8C4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +599,8 @@ magnet:?xt=urn:btih:03544DFB396B3DF20827F7FBE3AB9DB797BB8C4D
 ```bash
 magnet:?xt=urn:btih:1EE01BEDF3EBB192BFA6B4B059192CE5DB57E50C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +626,8 @@ magnet:?xt=urn:btih:1EE01BEDF3EBB192BFA6B4B059192CE5DB57E50C
 magnet:?xt=urn:btih:D0FEB3B95521A93303BC5720C443EC6018049C31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +651,34 @@ magnet:?xt=urn:btih:D0FEB3B95521A93303BC5720C443EC6018049C31
 ```bash
 magnet:?xt=urn:btih:AE2F17FFD9EDD1797DCB03B281C19F2B83714A5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971847   (984555) от 04.01.2016
+
+Майское утро / Белая язычница / May Morning / Alba Pagana / Delitto a Oxford (1970) DVDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_984555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итальянц Валерио из простой рабочей семьи, который приезжает в Оксфорд на учёбу. Руководство университета заинтересовано в нём только из-за его согласия участвовать в соревнованиях по гребле. К остальным предметам молодой человек даже не пытается прикасаться. Со временем у него начинается конфликт с местными аристократичными студентами, которые никак не хотят воспринимать (   Читать дальше...   )Производство: Италия, Mondial Televisione FilmЖанр: ДрамаРежиссер: Уго ЛибератореАктеры: Джейн Биркин, Алессио Орано, Джон Стайнер, Росселла Фальк, Микаела Пиньятелли, Эдда Ди Бенедетто, Йен Синклер, Бьянка Мария Корбелла, Карло Спадони, Джон ГайфордПеревод: Одноголосый закадровый ССК+Продолжительность: 01:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C72264B24113D9D16AAF8BC45881568C54C0A3A
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

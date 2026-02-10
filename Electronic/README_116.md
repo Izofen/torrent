@@ -22,6 +22,8 @@ Robert Miles - Dreamland (1996) [OGG Vorbis|650 Kbps] <Electronic, Dream, Trance
 magnet:?xt=urn:btih:6A8B9394C088756EF2C1B69871C813F1FCA31CD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - 2022 MMA Workout Music [MP3|320 Kbps] <House, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:9FFCA858C2946A05C1B913CF5A01B1BCE2E65FCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Sexy Funky House Annual 2023 (2022) [MP3|320 Kbps] <Funky, Club House>
 magnet:?xt=urn:btih:615BB345AC6D1BB94D5AA01362FE90CCAFEC6D89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Neon Nox - Payback (2022) [FLAC|Lossless|WEB-DL|tracks] <Retrowave, Synthwave>
 ```bash
 magnet:?xt=urn:btih:E068F4ED4E6B94ABA7FE93420ED074A368C3A4B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Neuroklast - 2 Albums (2021-2022) [MP3|320 Kbps] <Electro-Industrial, Cyberpunk>
 magnet:?xt=urn:btih:76E509D0951746E0420A288D2B9E0F5D2D9619D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:5EE65559E8B1683F44215A993404ED4564CF9A89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Artenovum - A Breeze of Melodies (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, C
 magnet:?xt=urn:btih:2FFDD573B0011021A83387F2CA518E6EEB4C4855
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ Asura - Discography 14 Releases (2001-2017) Ultimae Records [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:3C9AE547E6D6B4A3B34E04396F6BDB82EB2F978C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ CD - 1:
 magnet:?xt=urn:btih:1FF5C382154B17532F81D54EB5D6E9519EB32489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ L'ame Immortelle (L'Âme Immortelle) - Collection (1997-2022) [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:8D6480E948C7520FDB446DDF913D70E20AB17C58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +310,8 @@ VA - M.I.K.E. Presents Club Elite Vol 1 (2007) [FLAC|Lossless|WEB-DL|tracks] <Tr
 magnet:?xt=urn:btih:B368B5A5EADA29BDB9538A65EC5C9E1F2F42CF01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +335,8 @@ Moderna Records - Label-Pack 61 Releases (2015-2020) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:2F490E527B94FCFF0DF7AEED088ECF7B1A846FE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +365,8 @@ VA - Winter Lounge Mood: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:CB8E738C90F5B5A81C9CD31DF091B7629C6DA34E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +391,8 @@ Rammstein - Adieu (Remixes) (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial>
 ```bash
 magnet:?xt=urn:btih:5D18F93A2EFD456C66973026222CC7C03B9D0D01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +421,8 @@ DISC 1:
 magnet:?xt=urn:btih:C7692C98C3E5A969ECDB07E63966EC2658403C26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +449,8 @@ Jean Michel Jarre - The Concerts In China (1982) 2CD, 40th Aniversary – Remast
 ```bash
 magnet:?xt=urn:btih:FA9A7671A5CD1A2B14861003F07FEDA451CA2493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +479,8 @@ VA - Beautiful Vocal Trance - Chapter 10 (2022) [MP3|320 Kbps] <Uplifting Trance
 magnet:?xt=urn:btih:8B598F262A052B7930E864959D187925D4D3ADDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +507,8 @@ VA - Ministry of Sound - The Annual 2023 (2022) [MP3|320 Kbps] <Dance>
 ```bash
 magnet:?xt=urn:btih:5979E3DCC7BEC52200AFC1179076425E88B20E1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +537,8 @@ VA - 100% Club Hits 2023 (2022) [MP3|320 Kbps] <Electro, House>
 magnet:?xt=urn:btih:C0656E69ED4AEA4B14E3BAD915E9511E8CA70E3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +565,8 @@ Gilles Peterson & Lionel Loueke - HH Reimagined (2022) [FLAC 2.0|44/24|tracks|WE
 ```bash
 magnet:?xt=urn:btih:67A4998E8D6ABE9DC8EF37D7D55DA4186F64BBA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +595,8 @@ VA - Best Of FSOE (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
 magnet:?xt=urn:btih:435836A39030E7665BE7DBA794CEE032A3FA7FD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +623,8 @@ VA - Best Of Hands Up & Hardstyle (Die Megashow) (2023) [MP3|320 Kbps] <Hardstyl
 ```bash
 magnet:?xt=urn:btih:99D7073CD547CB7BFB44813135DA18FFE0ED7EB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +653,8 @@ Gunship - Unicorn (2023) [MP3|320 Kbps] <Synthwave, Darksynth, New Wave>
 magnet:?xt=urn:btih:AB8F377161D9EEBE1F29C3EEB274DF709B00D9CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +681,8 @@ Blutengel - Black Symphonies (An Orchestral Journey) (2014) 2CD, Limited Edition
 ```bash
 magnet:?xt=urn:btih:ED5FE484E4326B6C20D4D630501850EEC57C6BF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -663,6 +711,8 @@ Armin van Buuren - Live @ Ushuaïa Ibiza, Spain (2023-09-24) [MP3|320 Kbps] <Mai
 magnet:?xt=urn:btih:301C5363F1F075C873517D40FC519924FB279489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -689,6 +739,8 @@ VA - Balearic Beats: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Ba
 ```bash
 magnet:?xt=urn:btih:6946B89D96E918FF4A37BE690FD28C748FE81F34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

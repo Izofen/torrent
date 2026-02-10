@@ -19,6 +19,8 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DLRip [H.
 magnet:?xt=urn:btih:D254DD918B76FD3322B24B140D69C02A13D47B65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ TreeSize Professional - мощное и гибкое средство визуа
 ```bash
 magnet:?xt=urn:btih:1982C714078DF5456CA560C28A9A2E252E2CF425
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sharpen AI - это первое программное обеспечение �
 magnet:?xt=urn:btih:13C3CBF780CD4E82ACDFB4DAA05E03D93EFCFB49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Daum PotPlayer - бесплатный мультимедийный проигр�
 ```bash
 magnet:?xt=urn:btih:F7F36C272D3324365CFAA73F7E77335A6721FE39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:F7F36C272D3324365CFAA73F7E77335A6721FE39
 magnet:?xt=urn:btih:706F3AC6B015866E88B7E4FC14D5E118B0F12F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:706F3AC6B015866E88B7E4FC14D5E118B0F12F46
 magnet:?xt=urn:btih:7B9E445B6C93E9D982BF37A6DCD524E342604DCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:7B9E445B6C93E9D982BF37A6DCD524E342604DCD
 ```bash
 magnet:?xt=urn:btih:B18BF4FD9AB4F3BE878B5BB00B7403A3D86AD920
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:B18BF4FD9AB4F3BE878B5BB00B7403A3D86AD920
 magnet:?xt=urn:btih:BF45574B981F49A2523F29AD190E3A91CFF598E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:00FEE5F123E0878ED2AC1685AD2EAE446FB97F02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ VA - Acoustic Women (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:2B72BAF88FE20F358AFDCBAACBFEA67800088A52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:2B72BAF88FE20F358AFDCBAACBFEA67800088A52
 ```bash
 magnet:?xt=urn:btih:D13CAC2CB8CE723E156A9917DA463579DA2CCC07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:D13CAC2CB8CE723E156A9917DA463579DA2CCC07
 magnet:?xt=urn:btih:9862B7C93AD472652827D3B397E6A81696E07D7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:9862B7C93AD472652827D3B397E6A81696E07D7B
 ```bash
 magnet:?xt=urn:btih:A87B420386EE92045D02591A7D7A1F6B9A53F4BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Black Sabbath - The End (2017) Live, 3CD, Japanese Edition [FLAC|Lossless|image 
 magnet:?xt=urn:btih:2B3006676C8DC5A4AC8FC28F7ADFFB8FB5199319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:48F9E11A05A08286CA0017A2AC66A0589DD94442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:48F9E11A05A08286CA0017A2AC66A0589DD94442
 magnet:?xt=urn:btih:C3C5EB6267FBA85AD0025E4B9E90D5BE121ACE2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ DxO ViewPoint – это новое программное решение пос
 ```bash
 magnet:?xt=urn:btih:ED6CA9C040A9F8AAD01A861BB3CA5D442A49F1C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:ED6CA9C040A9F8AAD01A861BB3CA5D442A49F1C7
 magnet:?xt=urn:btih:A55B25F7648CB003A52CC6792C4B3C263A843152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Comedy Woman (13.12.2019) WEB-DLRip (сезон 9, выпуск 13)
 ```bash
 magnet:?xt=urn:btih:B41FDB81AFC2B833A4BCBB5518B0ECDEBE0FCF65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:B41FDB81AFC2B833A4BCBB5518B0ECDEBE0FCF65
 magnet:?xt=urn:btih:685221DFED3452C97CDF54B186963BFBCCF0CE3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 magnet:?xt=urn:btih:C8DB5C97B696C2A7199D43286A7F57EB297482B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:A75FC19205FDB9A634FD13C5C761717271D6490B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ IVE – «Off The Record» (2023) WEB-DL [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:B347E627EEA7140082399B28F15A50F52462789B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:B347E627EEA7140082399B28F15A50F52462789B
 magnet:?xt=urn:btih:73219167F94F7B8D535262F409B5430A05B1614B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:73219167F94F7B8D535262F409B5430A05B1614B
 magnet:?xt=urn:btih:B15D29CA94562FD5D6D22097D4553DBFEE9BB8F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:B15D29CA94562FD5D6D22097D4553DBFEE9BB8F4
 ```bash
 magnet:?xt=urn:btih:AEC3FEB684703C949C1E02A65733D357EB56609C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

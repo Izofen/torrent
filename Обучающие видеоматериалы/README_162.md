@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:01040ABCCDF6D53BBB76040B744C20CD454034C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:01040ABCCDF6D53BBB76040B744C20CD454034C3
 magnet:?xt=urn:btih:7CF1087F36BC569B63081FA6896209E264B13030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:7CF1087F36BC569B63081FA6896209E264B13030
 ```bash
 magnet:?xt=urn:btih:BD8B72FF32B6B65DBC2BA6FD9BBC7345CBA527B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:BD8B72FF32B6B65DBC2BA6FD9BBC7345CBA527B5
 ```bash
 magnet:?xt=urn:btih:5CF4AFE3C3FD890F80259364FFE6ACA96AE37D57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ Irena Baron | Онлайн курс по съемке и монтажу виде
 magnet:?xt=urn:btih:60B71F20DCBE823C404359445EC02C266A83A415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:60B71F20DCBE823C404359445EC02C266A83A415
 ```bash
 magnet:?xt=urn:btih:5440396D3C1B5C1E4366A5115098C8F150E58B68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:5440396D3C1B5C1E4366A5115098C8F150E58B68
 magnet:?xt=urn:btih:90B61117D7E57E96B74302851AB6FA7AB795BB6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:90B61117D7E57E96B74302851AB6FA7AB795BB6D
 ```bash
 magnet:?xt=urn:btih:14573AECD29C9328638F8B6DAC8C8804382ED181
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:14573AECD29C9328638F8B6DAC8C8804382ED181
 ```bash
 magnet:?xt=urn:btih:E7653C6462A9A095199157E8865F1698D7786A18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ conf.python.ru | Конференция Russian Python Week (2020) PCRec
 magnet:?xt=urn:btih:CC2726C0DB06DF92DC7CD9DA68B6A84005C43A51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:CC2726C0DB06DF92DC7CD9DA68B6A84005C43A51
 magnet:?xt=urn:btih:D785200122F13E46337C9D12109CF297E04733CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:D785200122F13E46337C9D12109CF297E04733CE
 ```bash
 magnet:?xt=urn:btih:30CACA599852868C3103AE567C687DD237B9A11A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ Wesbos | Изучите Gatsbyn / Master Gatsby (Master Package) (2020) PCRec [E
 magnet:?xt=urn:btih:6E874BF72B1A0A8C4FB8059E209A9078FFF0F349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ Wayne Hollingsworth | Введение в Maya Fluid Effects. Часть 2 /  In
 ```bash
 magnet:?xt=urn:btih:9B101FEA018BDE1399DB6FEB79AEF78F9CE95666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ Chris Thomas | Particle Flow Fundamentals 1: Principles and Workflow (2004) PCRe
 magnet:?xt=urn:btih:EECE9184A352C4DE14254DAAC7FB2D03369DD9E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Chris Thomas | Particle Flow Fundamentals 2: Operators 1 (2004) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:F468A068A3944048E298D610A57FAFB10543065B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ Chris Thomas | Particle Flow Fundamentals 5: Practical Examples (2004) PCRec [En
 magnet:?xt=urn:btih:EE1A64705F7F052443CB9A5EFC4CF13BCB66D946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ Chris Thomas | Particle Flow Fundamentals 3: Operators 2 (2004) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:2A6765392EF5CEFD52923839469D6D98BB84039F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ Chris Thomas | Particle Flow Fundamentals 4: Tests, Forces & Collisions (2004) P
 magnet:?xt=urn:btih:8327B14613BC1E3EEF763C11ABED595F2D7CADA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:8327B14613BC1E3EEF763C11ABED595F2D7CADA6
 ```bash
 magnet:?xt=urn:btih:DBC702CD5DE935A4FB799B2F2C48B1D155BD676F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ OTUS | C# для начинающих программистов (2020) PCRec
 magnet:?xt=urn:btih:4F2F39C2F274C0CFE8FE6003767C41101B390EF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:4F2F39C2F274C0CFE8FE6003767C41101B390EF3
 ```bash
 magnet:?xt=urn:btih:E5983064FC7CB456E4A3052BC710E5DE8D5F5284
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:E5983064FC7CB456E4A3052BC710E5DE8D5F5284
 magnet:?xt=urn:btih:A54A69EE52A2143CCE9E0D2E2AABD71F153D8173
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:A54A69EE52A2143CCE9E0D2E2AABD71F153D8173
 ```bash
 magnet:?xt=urn:btih:E690804AE72DF197465E6A07B76A1A4A06928994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ CGTarian, Вадим Беседин | Риггинг Мастер (MAYA) (2020) 
 magnet:?xt=urn:btih:E149585DF1F4C8207632D33E7D44702DE01DBA84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ The Gnomon Workshop, Maxime Deleris | Visual FX for Games (2013) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:868B00DE0C3C4C5F418C06F84714FECD728E8FB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

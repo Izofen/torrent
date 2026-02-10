@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:49CDAA23083FFECBB33212DDCDFE49BC8D0B76C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:49CDAA23083FFECBB33212DDCDFE49BC8D0B76C8
 ```bash
 magnet:?xt=urn:btih:6F00B3F29EE350B832E36700F813890D11C00E91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Garmin: Дороги России Топо 6.49 [Ru]
 magnet:?xt=urn:btih:3E49365ABDB0ECA9BE54E3CD9FB14F86BA6AB5E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:3E49365ABDB0ECA9BE54E3CD9FB14F86BA6AB5E1
 ```bash
 magnet:?xt=urn:btih:3982B9E3C1A540FEB960962F7466C5DF5D86542C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:3982B9E3C1A540FEB960962F7466C5DF5D86542C
 magnet:?xt=urn:btih:22F573133A7B0EE6EA7DD8CEE0482CB3187B52C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:8B3D8C732553C4B76DB5A606A50D9265A831A5AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:FBFD016E4EC5205C3BC1143E6514FA245C070437
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:FBFD016E4EC5205C3BC1143E6514FA245C070437
 ```bash
 magnet:?xt=urn:btih:A78E108A35555C1215CA2055D6663517AD905850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:A78E108A35555C1215CA2055D6663517AD905850
 magnet:?xt=urn:btih:D29573A85CAD3FAAF1F8E395549E33E6CE3F5BCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Audacious — аудиоплеер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:6BA18491CE58188AEC7F01D89ADF017CE2FCCDF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:6BA18491CE58188AEC7F01D89ADF017CE2FCCDF7
 magnet:?xt=urn:btih:9BD29C18D1100436882F30527298F1467938D34D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:9BD29C18D1100436882F30527298F1467938D34D
 magnet:?xt=urn:btih:9C01678A2B3D82ECC5E4FF629E83254C46597B2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ You Will Die Here Tonight - ролевой экшен с пошаговыми э
 ```bash
 magnet:?xt=urn:btih:E0E12A9E27A5FB17F23DF0AB5D4615C5508F3BE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:E0E12A9E27A5FB17F23DF0AB5D4615C5508F3BE1
 magnet:?xt=urn:btih:CD0FF01A5A1948896ADC434A9032C247EDFA5501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:CD0FF01A5A1948896ADC434A9032C247EDFA5501
 ```bash
 magnet:?xt=urn:btih:3D6A047E89DBD76AB62D1ACD1CAFBA0D36CDB2FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Dying Light The Beast (2025) [Ru/Multi] (1.2.1/dlc) Repack Wanterlude [Deluxe Ed
 magnet:?xt=urn:btih:40BBBE2518BE7122359F23F816C9262623775E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:40BBBE2518BE7122359F23F816C9262623775E54
 ```bash
 magnet:?xt=urn:btih:E66A4A5741E3870E1CBD6910DAAD0432B014B7BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:E66A4A5741E3870E1CBD6910DAAD0432B014B7BE
 magnet:?xt=urn:btih:0790F66C54CFC675F5892D92D7C251207BEE77DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Wanterlude [Digital Delu
 ```bash
 magnet:?xt=urn:btih:D2EE55D3D1A45B4FF7E4835D7445EAE21C4CB977
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Everyday Drawing Art Poses 850+ — это коллекция из более ч
 magnet:?xt=urn:btih:9E0058A05396FA5AEDB15B4EC8BA135B7E2757C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Shin Samurai-den Yaiba | Yaiba: Samurai Legend | Яйба [2025, TV, 23 из 24]
 magnet:?xt=urn:btih:89576C2E618DF650A4F808BABC40B2AE7278B3F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ magnet:?xt=urn:btih:89576C2E618DF650A4F808BABC40B2AE7278B3F3
 ```bash
 magnet:?xt=urn:btih:27D2E693F8C7E76E38A0960116FE6348667DB17D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:27D2E693F8C7E76E38A0960116FE6348667DB17D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ DOOM запустили на вейпе и на калькуляторе
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ DOOM запустили на вейпе и на калькуляторе
 magnet:?xt=urn:btih:B84063EFB9299EDAEDC9F64A67243B7084B91325
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:B84063EFB9299EDAEDC9F64A67243B7084B91325
 ```bash
 magnet:?xt=urn:btih:804B21789BB9D823C6A8092687E9F97927A1D3BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Viber для Windows позволяет бесплатно отправлять 
 magnet:?xt=urn:btih:49D54A0748F6B04B83978C6ED28A455401DB4AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ WinToUSB - позволяет устанавливать и запускать �
 ```bash
 magnet:?xt=urn:btih:6F100FE6A884ACFDE647186322DF4B3108D3AB7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ TreeSize Pro 8.6.0.1759 (x64) + Portable [Multi/Ru]
 magnet:?xt=urn:btih:989772EFAEE8C4B664E57DB99D2B21F91A363519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ PDF Reader Pro - это приложение для редактирования
 ```bash
 magnet:?xt=urn:btih:2D723DBFFD75C9628A7E6591EB2B50C334150BB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ AnyMP4 Mac Blu-ray Player for Mac 6.3.62 [En]
 magnet:?xt=urn:btih:6561D6C7E4A97902B46FE349E0074F47DC23FBC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ SysAdmin Software Portable v.0.6.3.0 by rezorustavi (Update 16.08.2022) [Ru]
 ```bash
 magnet:?xt=urn:btih:DA3C33D13C729879454D1CF5A5076DB7F0AB2D4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Moviebase является самым мощным приложением для
 magnet:?xt=urn:btih:D714468E1B669630239763E2F8526228288B4EAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:4505123D061FF89E8453DE15995BEB736BAAE0E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ dict.cc+ Wörterbuch 11.0.5 [Multi]
 magnet:?xt=urn:btih:A7E4991B0A91EF792B4E060C9EBF8DA2BA5DE59C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:DB8FDD363933E7C99F3A397B43603A9AF6C870C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Mullvad Browser подойдет для пользователей, которы
 magnet:?xt=urn:btih:00577B80B93C2E1FFD220A8F1D34BBBACDBF8CEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Mirillis Action! 4.33.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:BEAC12A09A7140572146F2338FA70CFA5B501F2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Adobe Bridge предоставит вам централизованный до
 magnet:?xt=urn:btih:D36762D4858F6B2E3B5EB621792BD798798CCA21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Photomath - настоящий подарок для всех, кто регул
 ```bash
 magnet:?xt=urn:btih:B6E8310ECB042B8CDA427312A904B932018C7A63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Wondershare UniConverter - это полный набор инструменто
 magnet:?xt=urn:btih:878CFED40FDAFED223D4FEEC9C82A44E2C7B316E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Ultra GPS Logger - удобное, функциональное и универ�
 ```bash
 magnet:?xt=urn:btih:83B17D5781217B196CABF318B120677C22F7D2F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Driver Easy Professional — профессиональная и в тоже в�
 magnet:?xt=urn:btih:C2C8A6898A86BF7ECD5061EDD181D53BA06B5AB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Camtasia for Mac — эффективное приложение для созд
 ```bash
 magnet:?xt=urn:btih:268390F756E40C91DD6728AAF9A78C742BFC3B10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Keka 1.3.0 [Multi/Ru]
 magnet:?xt=urn:btih:45B7BDD85E5FD54F66F51B7768D9A530FCB14C00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ WinToUSB — лучший Windows To Go (WTG) Creator, который позво
 ```bash
 magnet:?xt=urn:btih:25F9C77C027274F64A6E5868176A737572F729CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ GeoGebra — мультиплатформенная программное об�
 magnet:?xt=urn:btih:48B94F95F684A0606EECE3F7E78A7F5C17CBCF04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:F5BE374DEAD8E4479A56919D8699C01B39061055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ MediaInfo — позволит узнать техническую информ�
 magnet:?xt=urn:btih:07D4EEBBDFC7A4AA64A89513D20AD01224B0F7F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ PhotoDirector - функциональный, но весьма простой �
 ```bash
 magnet:?xt=urn:btih:6A35685D1E408B84564D62717688AA29F968D681
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Hasleo Data Recovery - программа для восстановления у
 magnet:?xt=urn:btih:A2902919C89369AD6F329105C03AA51C7686594C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ R-Drive Image — является эффективной утилитой дл�
 ```bash
 magnet:?xt=urn:btih:016C6C2901F7EA25FD9049E3559AF473EE82D484
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

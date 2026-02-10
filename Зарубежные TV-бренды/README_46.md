@@ -19,6 +19,8 @@ NG: Голливудская наука. Чудо машины / Hollywood Scien
 magnet:?xt=urn:btih:506BC5F44CFA7188076366BD88636C1BA6D02428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:506BC5F44CFA7188076366BD88636C1BA6D02428
 ```bash
 magnet:?xt=urn:btih:B2E3BFF06488628E0CF17FCE8780746C9515379E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ National Geographic: Американские транссексуалы / Ameri
 magnet:?xt=urn:btih:A11B7F7DCE3333A962E93E84D3AA68B83C9C9E41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Discovery: Ледяное золото / Ice Cold Gold (2015) HDTVRip (3 сез�
 ```bash
 magnet:?xt=urn:btih:916EEC43E6C04EF61D13A4E162D03957AE66A9A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ BBC: Мужчина и Женщина / The Human Sexes (1997) [H.264] DVDRip
 magnet:?xt=urn:btih:B55ED82C47AB98B726AC18CEA6DF317BD7D9B158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Discovery: Как устроена Вселенная / How the Universe Works (
 ```bash
 magnet:?xt=urn:btih:4261C9436439EB322F5B081C87E4FACCA3EA5F6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Discovery. Самая странная погода на Земле / Strangest 
 magnet:?xt=urn:btih:3DC269A1D6BDFD429C6E268BD6618ACC42B12A61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ History Channel. Погода, изменившая ход истории / Weat
 ```bash
 magnet:?xt=urn:btih:CF687792F0BA577E1231AD84A5914B73B876AEF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ NG. Нападение нацистов на США (Атака нацистов
 magnet:?xt=urn:btih:0937D5C25382E81804DB730046FB6C45CC5718E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ NG: Исследователь 2.0 / Explorer (2015) HDTV [H.264/1080i] (8 се�
 ```bash
 magnet:?xt=urn:btih:8EF10324C6CDEF1BDCA794A4DCEC17A1E0437252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ BBC Horizon: В какой Вселенной мы находимся? / Which U
 magnet:?xt=urn:btih:5417BF223C2B1FE0576B99E422BA26455DD8CDCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:5417BF223C2B1FE0576B99E422BA26455DD8CDCC
 ```bash
 magnet:?xt=urn:btih:A0F5D36B1EED9F59E2E2D0D886D81D9FC97769B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Discovery: Плутон: первая встреча / Direct from Pluto-The Fir
 magnet:?xt=urn:btih:CAB41590DCAE1BBC6E9037412C7FFCC77BA73428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ BBC: Атлантида была здесь / Atlantis: the Evidence (2010) IPTV
 ```bash
 magnet:?xt=urn:btih:E29C700BA635C91D4432A3AF0CAA5322C2D064F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Nat Geo Wild: Война львов / Lion Battle Zone (2011) HDTV [H.264/1080i]
 magnet:?xt=urn:btih:61EBE93ABE26333CC4291AA22B84FA56A16D270D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Nat Geo Wild: Война львов / Lion Battle Zone (2011) HDTVRip
 ```bash
 magnet:?xt=urn:btih:71B0C3103639ED4A526CA85A2EC5A3305A03C96B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ NG: Международный аэропорт Дубай. Серия 2 / Ultim
 magnet:?xt=urn:btih:3E256155478B64C909243CFC909572E2D40A6D7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ BBC. Загадки квантовой физики / The Secrets of Quantum Phy
 magnet:?xt=urn:btih:776D55520C6685569A2ED212937538605F685633
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ NG. Мафия. Тото Риина / Mafia Confidential. Toto Riina (2018) DVB
 ```bash
 magnet:?xt=urn:btih:4FB05752C82D72925E2F0CC576B92BB554FB6FF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:4FB05752C82D72925E2F0CC576B92BB554FB6FF5
 magnet:?xt=urn:btih:D87B8B038D4BBCCB8CA8F7E73DB77A165402F2EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ NGW: Удивительные летучие мыши / Incredible Bats (2016) H
 ```bash
 magnet:?xt=urn:btih:3339ADE0FE06123FF202F217E905C6178EA151C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ NG: Взгляд изнутри: Северная Корея - тогда и с�
 magnet:?xt=urn:btih:6939B0CC42D91BCC1576600FE5196D1839D38118
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Discovery: Фантасты-предсказатели (Пророки науч�
 ```bash
 magnet:?xt=urn:btih:D2AE465052931FDB9EE72D17C5E9A9CDA3402E53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ BBC: Нацизм: Предостережение истории (1999) DVDRip
 magnet:?xt=urn:btih:269512E4AA00AFCD1E020B2A921BE6141FD9BC4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ BBC: Выдающиеся женщины ХХ столетия. Амелия Э�
 magnet:?xt=urn:btih:E27522138A9E7D7286E45AF78906F0373AA1EBAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ History Channel. Династия Трампов / Biography: The Trump Dynasty 
 ```bash
 magnet:?xt=urn:btih:708B593A842E31761BC8235D04064C073AD94118
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

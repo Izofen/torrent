@@ -20,6 +20,8 @@ Udemy, Joakim Tornhill | The Blender Path to Procedural Patterns! (2020) PCRec [
 magnet:?xt=urn:btih:6FE38731E653163967F038F6E8820AA6D029BBA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ ELT University, Марина Мищерикова | WOW-активности д�
 magnet:?xt=urn:btih:13512CBEFB39B026DD957522AAEBBD4C7E5ADFC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:13512CBEFB39B026DD957522AAEBBD4C7E5ADFC0
 ```bash
 magnet:?xt=urn:btih:FB6096624003F37383F8D49CE4843A45C1D4AFD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Introduction
 magnet:?xt=urn:btih:FDD4563101EE904BB88B44CC98905A5E9ABABA1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:FDD4563101EE904BB88B44CC98905A5E9ABABA1A
 ```bash
 magnet:?xt=urn:btih:6C2EB87F564FAB836BE5DE777950D19EAA1BC421
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ Dolgov Drums, Михаил Долгов | Курс для начинающих �
 magnet:?xt=urn:btih:22B08624DD2F77975A6CEB0E44B379692B516E1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:22B08624DD2F77975A6CEB0E44B379692B516E1C
 ```bash
 magnet:?xt=urn:btih:7BB43C98FCFF741D7914DFBE6AE3C519F70EFF8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +220,8 @@ magnet:?xt=urn:btih:7BB43C98FCFF741D7914DFBE6AE3C519F70EFF8E
 magnet:?xt=urn:btih:6D910520706B6967136BFAA138C50CA82C2D0930
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +249,8 @@ Foxford (Фоксфорд), Анна Емельянова | Мастерство
 magnet:?xt=urn:btih:02EA25D53E104C955629C8EA17716CD5089ACE9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:02EA25D53E104C955629C8EA17716CD5089ACE9D
 ```bash
 magnet:?xt=urn:btih:60AF94D68663931C00ECAC543F1AD7C100082314
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ CG Fast Track | Geometry Nodes Boot Camp Vol. 1 (Blender 3.4) (2023) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:F0FCEDEE8EDFB4A0EAA277160FF4F2C7FA5CABB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +331,8 @@ Openschool, Олег Самойлов, Ксения Соловьева | Фот�
 magnet:?xt=urn:btih:5F11A7D6AB453F4500ACC9C3C894EFBEA7A5811C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ magnet:?xt=urn:btih:5F11A7D6AB453F4500ACC9C3C894EFBEA7A5811C
 ```bash
 magnet:?xt=urn:btih:A052563B227D10477FC3B1C92C7D2E82644FF495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ magnet:?xt=urn:btih:A052563B227D10477FC3B1C92C7D2E82644FF495
 magnet:?xt=urn:btih:315B3F9BB7D828FBF7870F74D8AB5C4274E1DD36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +413,8 @@ Proprofiling, Алексей Филатов | Метапрограммы в пр
 magnet:?xt=urn:btih:2AD97D2FF09F13A674FFAD9C12B35129602F1619
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +440,8 @@ Proprofiling, Алексей Филатов | Скрытые внушения в
 ```bash
 magnet:?xt=urn:btih:C6BC6F183FC85A9BFF73AFF91C50E3E82342F868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +470,8 @@ Proprofiling, Алексей Филатов | Практикум по профа
 magnet:?xt=urn:btih:DD85F94EAE099E965DB9A73EC2CEC30366644FDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +498,8 @@ Proprofiling, Алексей Филатов | Прямые и скрытые в�
 magnet:?xt=urn:btih:DF67D1AD6A43AC1C5EF2057E2BA6EB9F7C05A30E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +523,8 @@ Proprofiling, Алексей Филатов | Эмоции и оценка ли�
 ```bash
 magnet:?xt=urn:btih:39507C00E7804E56D61D16ECEDBF18ACF6DC7C42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +553,8 @@ Proprofiling, Алексей Филатов | Профайлинг по стра
 magnet:?xt=urn:btih:E9006147EC2658D3273240B39F8E224759D9E245
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +580,8 @@ Proprofiling, Алексей Филатов | Тёмные люди. Пакет 
 ```bash
 magnet:?xt=urn:btih:7B85A530F4BA43A438A0A2F7B930F2A61812C886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +610,8 @@ magnet:?xt=urn:btih:7B85A530F4BA43A438A0A2F7B930F2A61812C886
 magnet:?xt=urn:btih:ABA3DFC4CB90D9651DC085080E0A895F8FAE35C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +638,8 @@ magnet:?xt=urn:btih:ABA3DFC4CB90D9651DC085080E0A895F8FAE35C6
 ```bash
 magnet:?xt=urn:btih:ACC58693FE49CD7EB5FBD6461D8536ADC5EE158D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +668,8 @@ magnet:?xt=urn:btih:ACC58693FE49CD7EB5FBD6461D8536ADC5EE158D
 magnet:?xt=urn:btih:E3C149729DBC2ADB16CA374A386DAF5198E03F29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +693,8 @@ The Gnomon Workshop, Dan Weiss | Designing & Modeling a Creature With Scales By 
 ```bash
 magnet:?xt=urn:btih:B87558363587D8350222715BB83A1C9C8D0796F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +722,8 @@ Udemy, Ken Zhuang | Mystique Effect in Houdini with Vex (2022) WEB-DL [EN / EN S
 ```bash
 magnet:?xt=urn:btih:2E8F5415F4CA661B549AB6E97E7F3D4BEB995E3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:33161134AA214B72682B975E819AE683B468D4E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ PhotoMap Pro Gallery 9.4.9 (Paid) [Ru]
 ```bash
 magnet:?xt=urn:btih:9A17EA18CE7DB3D54D322837937A56F59CF452FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:9A17EA18CE7DB3D54D322837937A56F59CF452FB
 magnet:?xt=urn:btih:160ACABC1D2F4718ED6A1C97A8882AA22CC17EDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Garmin: City Navigator Southern Africa NT 2017.10 [En]
 ```bash
 magnet:?xt=urn:btih:CEB64FAD5A6BDD2962EBDCEC1745B4EBAE5BCBAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:CEB64FAD5A6BDD2962EBDCEC1745B4EBAE5BCBAF
 magnet:?xt=urn:btih:A46D9DB03FF8E5F0F9E6940A2B293312B97EB9C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ HM Песенник v4.8 Ad-Free [Ru] - гитарный песенник для
 ```bash
 magnet:?xt=urn:btih:13A23797ED7DD78F84D900F8C91636B9CE4EDD5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:13A23797ED7DD78F84D900F8C91636B9CE4EDD5C
 magnet:?xt=urn:btih:11FAA06C56EFE838F56A53DBC5368594518CB845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Pilzlexikon 2 PRO 1.0.17 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:82A624C99FBF7D07F75874B5284F25D961A5A2F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Golden Axe. Golden Axe 2. Golden Axe 3. Антология (SEGA Genesis Game) [
 magnet:?xt=urn:btih:BCFDB5A73145C7891746AFAF2614635DF3015B06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Battletoads. Battletoads And Double Dragon. Антология (SEGA Genesis Gam
 ```bash
 magnet:?xt=urn:btih:43673841C956483A31E2B70D057E76DE691E58A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Pocket Sense v1.0.16 Pro [Ru/En]
 magnet:?xt=urn:btih:F2AB285FBF1C0EA620008E4470C185FE61EAB55B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Garmin: City Navigator Eastern Africa NT 2017.10 [En]
 ```bash
 magnet:?xt=urn:btih:26EA78FE3CF4A879779F932259CB66C4E9F6A242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Worms 3 v.2.04 + mod [Ru/Multi]
 magnet:?xt=urn:btih:E768375F30FC64C22A0BBD819361C5EF32FB39B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Garmin: City Navigator Thailand NT 2016.20 (Dual) [En/Th]
 magnet:?xt=urn:btih:BDBBBC8F1CAFDC64C67AF5617967E00D45107741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Garmin: TOPO UK & Ireland v4 Light [En]
 ```bash
 magnet:?xt=urn:btih:42956F281C7DB8D9C121A3152EBA1FFE3B0EC97F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Yandex.Maps / Мобильные Яндекс.Карты v3.20 (2013) <Ru>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Yandex.Maps / Мобильные Яндекс.Карты v3.20 (2013) <Ru>
 ```bash
 magnet:?xt=urn:btih:20FF21750F3E6F17D588EB68FCD655A8AE66711D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Shortcut Maker - это приложение позволяющее создав
 magnet:?xt=urn:btih:404DBF108339E65993C016BA51D9952BCA1EAB4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Comix Zone 1.1.1 (SEGA Genesis Game) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:8B0EAACC42B4A777E61173EB7F64547D905105BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Pool Break Pro - один из самых лучших симуляторов с
 magnet:?xt=urn:btih:C7D0491E41E737323D2C07FDE162A75BE3308563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Astrodox Astrology / Астродокс Астрология v1.5 [Ru/En]
 magnet:?xt=urn:btih:40C802984288FCAD8EBE1FA9F037A0B59ADACEAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:40C802984288FCAD8EBE1FA9F037A0B59ADACEAA
 ```bash
 magnet:?xt=urn:btih:0F09199F0D065412618C0859854F01D8C40123AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Magic Intuition / Магия Интуиции v4.3.0_15 [Ru/En]
 magnet:?xt=urn:btih:FB5361D12B40D13897D0B55F50FFCF04F38CB8EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Fraction Calculator by Mathlab Pro v3.2.44 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:41F89BF642778A0E50B42A9AAB6AA1C257396D67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:41F89BF642778A0E50B42A9AAB6AA1C257396D67
 magnet:?xt=urn:btih:8DFC92CF110F5879FCA054CF807EB7B9CCCF068D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:8DFC92CF110F5879FCA054CF807EB7B9CCCF068D
 ```bash
 magnet:?xt=urn:btih:AF446A900D5AE3165476F75F41FE69A4F26CE9AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

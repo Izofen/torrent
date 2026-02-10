@@ -19,6 +19,8 @@ Niffelheim (2018) [Ru/Multi] (1.0.12) License GOG
 magnet:?xt=urn:btih:34F0B1D546D43185757C2A81BD012692465C7AF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Finding Paradise (2017) [En/Ch] (1.2c) License GOG
 ```bash
 magnet:?xt=urn:btih:9D2A3846813F18F7CA4A00F73BEB0B6977016BAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Duke of Alpha Centuri – космический шутер с красочно�
 magnet:?xt=urn:btih:0359144B9001493E065463EA9D8FFF9CA5917FEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Kalaban (2016) [En] (1.0.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:21843CBC618612D0A96A0F837AF9591024DED6EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Ken Follett’s The Pillars of the Earth (2017) [Ru/Multi] (1.1.636) License GOG
 magnet:?xt=urn:btih:F304493D964088622032223DFD057161C01D38DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Vaccine Rebirth погружает в леденящее и непредсказ
 ```bash
 magnet:?xt=urn:btih:C77C7F6F6E6BCB41DB713C4363CC3D926C32DFFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Cramped Room of Death - это увлекательная головоломка
 magnet:?xt=urn:btih:23D02EF1BE30C0BEB76A688FCAE309C211D3CC0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ American Truck Simulator это симулятор вождения америк
 ```bash
 magnet:?xt=urn:btih:5D99A5AD5BE6251DE99ED3A0BC01137D019B4D39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NecroVisioN + NecroVisioN: Lost Company (2009-2010) [Ru/En] (1.2/1.1) Repack R.G
 magnet:?xt=urn:btih:0D997BAF0C633DB43AB4C9C1923863A2117513A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Minecraft: Story Mode предлагает отправиться в попул�
 ```bash
 magnet:?xt=urn:btih:5BC39416C99EE6EA72BC16E186ABC4AD22DAC080
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Grave Danger (2016) [En] (1.0.1) Repack Other s
 magnet:?xt=urn:btih:D957CB8A14548BA6A07B4C681476B95785113787
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Champions of Anteria – тактическая стратегия, расска
 ```bash
 magnet:?xt=urn:btih:53D586173FBEA11E63342F8F4B06A86C2AD9BE7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Tropico 3 / Тропико 3 (2009) [Ru/Multi] (2.1.474.38210) License PROPHET [
 magnet:?xt=urn:btih:0068303CEF889363063CAE3D1873E2663D01F18C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Dark Tales 10: Edgar Allan Poe's The Raven / Темные Истории 10: Э�
 ```bash
 magnet:?xt=urn:btih:4B47CFBCA890D2E83358776C02C2F62C9696E847
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Valhalla Hills (2015) [Ru/Multi] (1.02.01/dlc) SteamRip R.G. Игроманы
 magnet:?xt=urn:btih:A32E60DCC0A6C449D2D5F40DAE577E653C218F14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Yuletide Legends 2: Frozen Hearts / Святочные истории 2: Хол�
 ```bash
 magnet:?xt=urn:btih:7A663110EE133D117B0EEED5F6AC520F6B689007
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Helldorado (2009) [Multi] (2.00) License GOG
 magnet:?xt=urn:btih:57DEABBCDFDFE1D3816437CE0E4F42B8A35B8DFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Teslagrad - это двухмерный платформер с элемента
 ```bash
 magnet:?xt=urn:btih:D44F90EF7C58ADF0489C12718F27C6051EACDC1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Evoland Dilogy (2013-2015) [Ru/En] (1.1.2490/1.0.9135) Repack R.G. Механи�
 magnet:?xt=urn:btih:34AECF282EF6DEFA3A004A20C957A33DB6EBD2D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Delicious: Emily's Christmas Carol (2016) [Ru] (1.0) Unofficial  [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:A4060CCA6BFFA3E967FC5F95403DC0138E3630E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ MotoGP 14 (2014) [Multi] (1.001/dlc) License PROPHET [Complete Edition]
 magnet:?xt=urn:btih:D1C2279B39F10B308A38A9ED0B91F01E6D018232
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Memoirs of Murder 3: Behind the Scenes / Воспоминание об убий�
 ```bash
 magnet:?xt=urn:btih:659158D5A706469C8472E91D0B4277FD73266A0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Wreckfest (2018) [Ru/Multi] (20181221) Repack R.G. Механики
 magnet:?xt=urn:btih:4B0651947550256E4F78A966DC5C5A3CDD607552
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Shadow Tactics: Blades of the Shogun, основанная на скрытнос
 ```bash
 magnet:?xt=urn:btih:4D69E1C1F72E2E6687C44D82B51213109825176F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ magnet:?xt=urn:btih:4D69E1C1F72E2E6687C44D82B51213109825176F
 magnet:?xt=urn:btih:3B083865E502DECCD4FFC95B38F55C5237040BD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Panzar – бесплатная клиентская онлайн-игра в ф
 ```bash
 magnet:?xt=urn:btih:BF17D16523013800E68567E189A03DA9DDE15DBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

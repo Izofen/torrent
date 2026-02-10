@@ -1,3 +1,29 @@
+###  Публикация: 1486115   (1005000) от 29.07.2021
+
+Тайная история водяной мельницы / The Secret Story Of Watermill (2021) WEBRip [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1005000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весна уже витает в воздухе, а зима прощается с нами.Производство: ПольшаЖанр: Документальный, видовойРежиссер: AeroMatПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2D8325B15FB5DEB89BDD654282222F4ED951ADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1485966   (1005091) от 28.07.2021
 
 Древние конструкторы. Тадж-Махал и Золотой век ислама / Ancient Engineering. The Taj Mahal And The Golden Age Of Islam (2021) HDTV [H.264/1080i] (Сезон 1, серия 10 из 10)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7E73AEF119400FFAE40A5AA228B4D30489888F6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:7E73AEF119400FFAE40A5AA228B4D30489888F6A
 ```bash
 magnet:?xt=urn:btih:5400939A86F64F9793ABEF1707987131A3E79002
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ Istituto Luce - это (   Читать дальше...   )Телекомпан
 magnet:?xt=urn:btih:CF98879847E360FFC42ADFEE46FA145533865290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:CF98879847E360FFC42ADFEE46FA145533865290
 ```bash
 magnet:?xt=urn:btih:42959AD76A6DCF02ACF678FE3BB192C46605A520
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:42959AD76A6DCF02ACF678FE3BB192C46605A520
 magnet:?xt=urn:btih:F570674F5392D8165B7FFD66A403DE6A6DAA3C44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:F570674F5392D8165B7FFD66A403DE6A6DAA3C44
 ```bash
 magnet:?xt=urn:btih:0D76F27C6A9E684E069633E1361888424CCBE237
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:0D76F27C6A9E684E069633E1361888424CCBE237
 magnet:?xt=urn:btih:AD64559F69036A255BC9FE1DC079E4341D5CA382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:AD64559F69036A255BC9FE1DC079E4341D5CA382
 ```bash
 magnet:?xt=urn:btih:8A00F0BF4785BA50F9278B3AF6C1B9DCEAEE2A43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:8A00F0BF4785BA50F9278B3AF6C1B9DCEAEE2A43
 magnet:?xt=urn:btih:43584BFE56497211CC2E86A19F04503E0FB09AA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:43584BFE56497211CC2E86A19F04503E0FB09AA4
 ```bash
 magnet:?xt=urn:btih:2A5D20EBD4E0F249EA06CBFEEDD8C929BFAA2CC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:2A5D20EBD4E0F249EA06CBFEEDD8C929BFAA2CC6
 magnet:?xt=urn:btih:E1808339C8DB8211DD7C50FB41260314EEC6460B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:E1808339C8DB8211DD7C50FB41260314EEC6460B
 ```bash
 magnet:?xt=urn:btih:5663E8F08C7928E395CEC9209C587213F48D89C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:5663E8F08C7928E395CEC9209C587213F48D89C8
 magnet:?xt=urn:btih:444C9030DA0A49F0BF4E160D47649904C269705E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:444C9030DA0A49F0BF4E160D47649904C269705E
 ```bash
 magnet:?xt=urn:btih:35683D261938066391092737A37F802503C7F21F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:35683D261938066391092737A37F802503C7F21F
 magnet:?xt=urn:btih:1837624C49336ACF2311E139CD627C0CC8929F9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:1837624C49336ACF2311E139CD627C0CC8929F9F
 ```bash
 magnet:?xt=urn:btih:50599AB34522A75165A27776F420EBE1E65D078C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:50599AB34522A75165A27776F420EBE1E65D078C
 magnet:?xt=urn:btih:FFF663C34656421C1F6BE7849747A0773D5DC451
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:FFF663C34656421C1F6BE7849747A0773D5DC451
 ```bash
 magnet:?xt=urn:btih:3DE3D876273FF3BCCB5671FA2C2CC01CF7115234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:3DE3D876273FF3BCCB5671FA2C2CC01CF7115234
 magnet:?xt=urn:btih:BFB99C9D8B0BE7C088AC0BB310037D6CC82D9641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:BFB99C9D8B0BE7C088AC0BB310037D6CC82D9641
 ```bash
 magnet:?xt=urn:btih:501B8EEFE13AB3BF92F9D51CEBD00640F2145555
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:501B8EEFE13AB3BF92F9D51CEBD00640F2145555
 magnet:?xt=urn:btih:B61FA1F2593423287C12EED47DB4EB8FF9CB262E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:B61FA1F2593423287C12EED47DB4EB8FF9CB262E
 ```bash
 magnet:?xt=urn:btih:519DB0A6163CFE6664D99B13CC05F6850711CD4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:519DB0A6163CFE6664D99B13CC05F6850711CD4B
 magnet:?xt=urn:btih:371476EA979B7D37DAF65F8152341DD871F9A157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +643,8 @@ magnet:?xt=urn:btih:371476EA979B7D37DAF65F8152341DD871F9A157
 ```bash
 magnet:?xt=urn:btih:3474E62F460D4695B818BAC17D4D9B96CEEAA08D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,29 +670,7 @@ magnet:?xt=urn:btih:3474E62F460D4695B818BAC17D4D9B96CEEAA08D
 magnet:?xt=urn:btih:16570A94F799858F96ED4BFA043AFB623640A0C9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1484522   (1006012) от 20.07.2021
-
-Воспоминания Победы (2021) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1006012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известные актеры рассказывают о своих родных, прошедших войну, и читают письма неизвестных солдат и тех, кто их ждал с фронта. Письма, которые почти спустя 75 лет были найдены в сумке убитого военного почтальона. Каждый из героев делится трагическими и нежными, доблестными и честными историями своих семей. Историями людей, не щадивших себя ради жизни будущих поколений.Производство: Россия / Русское киноЖанр: Документальный, историяРежиссер: Андрей ГрачевАктеры: Сергей Чонишвили, Владимир Епифанцев, Дарья Повереннова, Денис Семенихин, Михаил Горевой, Олег Фомин, Виктория Полторак,  Дмитрий Белоцерковский, Максим ЛинниковСубтитры: ОтсутствуютПродолжительность: 01:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAA7AD536C86B329671E4471A653B2F9097496A6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

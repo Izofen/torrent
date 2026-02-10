@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:F96FABB153E7E8673B2A6C856A3F0C49BD93F214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Denoise it v1.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:21B9D76279439FAB424F0F3155A4F5D1C85CE1F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Planner 5D - простое и удобное приложение, которо
 magnet:?xt=urn:btih:855CADA762F58A7353BF0606A4A054C75E7F65F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:855CADA762F58A7353BF0606A4A054C75E7F65F9
 ```bash
 magnet:?xt=urn:btih:F02205198A63C78BD3265A30AC361BB54CD219EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:F02205198A63C78BD3265A30AC361BB54CD219EE
 magnet:?xt=urn:btih:13F8408E6DB821C040DF7ED3CFC09178467CA0F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:13F8408E6DB821C040DF7ED3CFC09178467CA0F2
 magnet:?xt=urn:btih:E1895669AAB02FD028C1D808B6CCFDA794671E03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Ace Squadron: WW II Air Conflicts - симулятор управления ис
 ```bash
 magnet:?xt=urn:btih:2E640186AC21F4E553FEDAC38E1613C5D6ECAF85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:2E640186AC21F4E553FEDAC38E1613C5D6ECAF85
 magnet:?xt=urn:btih:C6C5D539DF35738490570D43FF6C74A278869A89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:C6C5D539DF35738490570D43FF6C74A278869A89
 ```bash
 magnet:?xt=urn:btih:F3BFD01D1911CA87C276630AB12DD4AC46B06916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:F3BFD01D1911CA87C276630AB12DD4AC46B06916
 magnet:?xt=urn:btih:FCE4DA6A543564C8E6CE25FCBB41D3757AB5ACF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Firefight – военная стратегия с видом сверху на 
 ```bash
 magnet:?xt=urn:btih:061BF63A9540999B9D9B0B7495E2520A46B714EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:061BF63A9540999B9D9B0B7495E2520A46B714EA
 magnet:?xt=urn:btih:6F01E4F19144098858F8952A8EF0CD948525AB0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:6F01E4F19144098858F8952A8EF0CD948525AB0B
 magnet:?xt=urn:btih:A497861AB2337B12BDA630D2D5B2820CEF96D42F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Spread Signs - Самый большой в мире словарь жестов
 ```bash
 magnet:?xt=urn:btih:1522D7C5944248240130BCD129D39C607904C873
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:1522D7C5944248240130BCD129D39C607904C873
 magnet:?xt=urn:btih:CEE61A1E39043C0293878E3B86E9EC5BA94B6C04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:CEE61A1E39043C0293878E3B86E9EC5BA94B6C04
 ```bash
 magnet:?xt=urn:btih:996C4D4751C02D29918593C7A9A306DD090FB012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:996C4D4751C02D29918593C7A9A306DD090FB012
 magnet:?xt=urn:btih:80808C6F7C08CA5EEAE01EAD677BE9996D0F2458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:80808C6F7C08CA5EEAE01EAD677BE9996D0F2458
 ```bash
 magnet:?xt=urn:btih:EF8B76124AFF47628FF33B9A6F9251E9E6E16398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:EF8B76124AFF47628FF33B9A6F9251E9E6E16398
 magnet:?xt=urn:btih:2915CE1FD0830A64AE682E2069FE41EE4048C2E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:2915CE1FD0830A64AE682E2069FE41EE4048C2E8
 ```bash
 magnet:?xt=urn:btih:AD2E28D2E01E7B84D34BF42E176B3511B83BB237
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ Weather XL PRO - погодное приложение, что по факту �
 magnet:?xt=urn:btih:D0D7F15BF42E0929DB945DFDD657D51F49746607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:D0D7F15BF42E0929DB945DFDD657D51F49746607
 ```bash
 magnet:?xt=urn:btih:9F5EEB7F16FBB826B9ED9094061D4F26C32A7BF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ Tody поможет Вам более эффективно организова�
 magnet:?xt=urn:btih:0B797DF8D82CC019C083056A2E5BFE5637634D17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ ICQ — мессенджер для тех, кто всегда онлайн. З
 ```bash
 magnet:?xt=urn:btih:D1F8448D5F62D50AEA5E03BA7D60920F3A9EFC1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ Old Movies v1.13.09 Premium [En] - Oldies but Goldies
 ```bash
 magnet:?xt=urn:btih:F8759D9336B2939299AF5812181336C587280DC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +691,8 @@ AI Перевести поддерживает более 100 языков.
 ```bash
 magnet:?xt=urn:btih:C58BF34FCCE91C1151ECA08AC19A2226EFC29C90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

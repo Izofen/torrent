@@ -1,3 +1,32 @@
+###  Публикация: 1168724   (404894) от 25.09.2017
+
+Татьяна Шишкина | #Умные женщины не спят в одиночку, или Как сорвать джек-пот в личной жизни (2017) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_404894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Татьяна Шишкина – психолог-консультант, автор нескольких книг об отношениях и целого ряда статей в глянцевых журналах.
+Создательница «Школы Лучших Женщин», более 8000 выпускниц которой обрели свое женское счастье.
+Как из миллиона мужчин выбрать САМОГО-САМОГО, чтобы стать единственной, ненаглядной и обожаемой?
+Каких мужчин надо обходить стороной, а к каким можно падать (   Читать дальше...   )Жанр: Психология семьиФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE45CEDB1EF1C66F3C6031478F139D87088A15D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168951   (404920) от 25.09.2017
 
 Юлия Пряхина | Из офисной мышки - в миллионерши. Как зарабатывать, не выходя из дома. Реальный опыт (2016) [FB2, EPUB]
@@ -19,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:70373AB1281E47E691BADEB3437F28CDCE14BC5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +78,8 @@ magnet:?xt=urn:btih:70373AB1281E47E691BADEB3437F28CDCE14BC5A
 magnet:?xt=urn:btih:3F8E5B7AFFAF7775C03E3F21A71632EAC8DB3102
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +104,8 @@ magnet:?xt=urn:btih:3F8E5B7AFFAF7775C03E3F21A71632EAC8DB3102
 ```bash
 magnet:?xt=urn:btih:2921E449E10C0EC8B0752D05FAE0B1D8A0DFB213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +132,8 @@ magnet:?xt=urn:btih:2921E449E10C0EC8B0752D05FAE0B1D8A0DFB213
 ```bash
 magnet:?xt=urn:btih:72CE6F742B250FBD50120B22C31741D333DDDF1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +162,8 @@ magnet:?xt=urn:btih:72CE6F742B250FBD50120B22C31741D333DDDF1E
 magnet:?xt=urn:btih:0360A5462D8A26B40AD17A868D1FDCCD4A7CA647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +188,8 @@ magnet:?xt=urn:btih:0360A5462D8A26B40AD17A868D1FDCCD4A7CA647
 ```bash
 magnet:?xt=urn:btih:D92553E656A0E44625C2E0109B27CB03F18D79FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +217,8 @@ magnet:?xt=urn:btih:D92553E656A0E44625C2E0109B27CB03F18D79FA
 magnet:?xt=urn:btih:91520E13793C4A2DEF18B1F0C44BABB72C0593EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +242,8 @@ magnet:?xt=urn:btih:91520E13793C4A2DEF18B1F0C44BABB72C0593EE
 ```bash
 magnet:?xt=urn:btih:AA5A17BEBBEBD2259CEFB4E6233B13641E9332F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +270,8 @@ magnet:?xt=urn:btih:AA5A17BEBBEBD2259CEFB4E6233B13641E9332F6
 magnet:?xt=urn:btih:3FAFDAD1027741C1A310C53469AE8078DFE2DE0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +295,8 @@ magnet:?xt=urn:btih:3FAFDAD1027741C1A310C53469AE8078DFE2DE0B
 ```bash
 magnet:?xt=urn:btih:42DD59326813AAA509916409003F0B3D2685C223
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +322,8 @@ magnet:?xt=urn:btih:42DD59326813AAA509916409003F0B3D2685C223
 magnet:?xt=urn:btih:FC45268DA2AD30000B75A4E3B21B2A4A653E3D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +347,8 @@ magnet:?xt=urn:btih:FC45268DA2AD30000B75A4E3B21B2A4A653E3D72
 ```bash
 magnet:?xt=urn:btih:A19A834E74C087A4EB6CDEC4E9422BE0C2D405A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +374,8 @@ magnet:?xt=urn:btih:A19A834E74C087A4EB6CDEC4E9422BE0C2D405A8
 magnet:?xt=urn:btih:5C19CB866D642EA12F38DB3E11522040329FC2B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +399,8 @@ magnet:?xt=urn:btih:5C19CB866D642EA12F38DB3E11522040329FC2B0
 ```bash
 magnet:?xt=urn:btih:97BC13B1DF427EC501F2FFF3DA1CBF49E9168359
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +426,8 @@ magnet:?xt=urn:btih:97BC13B1DF427EC501F2FFF3DA1CBF49E9168359
 magnet:?xt=urn:btih:4502EA760F962F0730891AFB52BFA296A3F1522C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +451,8 @@ magnet:?xt=urn:btih:4502EA760F962F0730891AFB52BFA296A3F1522C
 ```bash
 magnet:?xt=urn:btih:C59CA76D4CE7C796DBECE75D3C80934A3B8DAE54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +478,8 @@ magnet:?xt=urn:btih:C59CA76D4CE7C796DBECE75D3C80934A3B8DAE54
 ```bash
 magnet:?xt=urn:btih:902F755DF3E2335C8A1DB2523F4D01B33CF161D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +507,8 @@ magnet:?xt=urn:btih:902F755DF3E2335C8A1DB2523F4D01B33CF161D7
 magnet:?xt=urn:btih:D301AE7671BB5A7839E6030C681AB6AAA1AB87BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +532,8 @@ magnet:?xt=urn:btih:D301AE7671BB5A7839E6030C681AB6AAA1AB87BF
 ```bash
 magnet:?xt=urn:btih:3A7BEB3B802AE904FCF4967B41A1663C8352D26D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +559,8 @@ magnet:?xt=urn:btih:3A7BEB3B802AE904FCF4967B41A1663C8352D26D
 magnet:?xt=urn:btih:0747F4B50BE7A058FDF1A03F10DFC6E62068918F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +584,8 @@ magnet:?xt=urn:btih:0747F4B50BE7A058FDF1A03F10DFC6E62068918F
 ```bash
 magnet:?xt=urn:btih:D29764141D1DE893590D8F51B2E9A1D97D2E15F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +611,8 @@ magnet:?xt=urn:btih:D29764141D1DE893590D8F51B2E9A1D97D2E15F6
 magnet:?xt=urn:btih:F759183E77CF4D8408086C453FBC6C74211E31DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +636,8 @@ magnet:?xt=urn:btih:F759183E77CF4D8408086C453FBC6C74211E31DE
 ```bash
 magnet:?xt=urn:btih:94989E0F96F95C428C35DDD8302D6B6E2D7052B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +663,8 @@ magnet:?xt=urn:btih:94989E0F96F95C428C35DDD8302D6B6E2D7052B8
 magnet:?xt=urn:btih:187C9857B137C576B3C7D6C5AE91196A78715AC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,29 +689,7 @@ magnet:?xt=urn:btih:187C9857B137C576B3C7D6C5AE91196A78715AC7
 magnet:?xt=urn:btih:E09C8BF4177B7AA4014AD68ACDECC406B77F2B01
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413884   (407140) от 05.10.2020
-
-И. Савенкова (ред.) | Просим к русскому столу (2012) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Благодаря этой книге читатель получит полное общее представление о современной русской кухне. Страницы издания включают в себя обширную коллекцию рецептов с характерными чертами исконной русской кулинарии, знакомят с историей многих традиционных блюд, содержат полезные советы по их приготовлению. Рецепты составлялись лучшими поварами и богато проиллюстрированы.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C1CEABB95A9D920349D15A57A0BB8F65E553DB7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

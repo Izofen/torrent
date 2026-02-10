@@ -19,6 +19,8 @@ Jardinains 2! — это экшен с примесью платформера �
 magnet:?xt=urn:btih:16917764DC4C259FEC86B8C9927D6966161FC0AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Subwar 2050 (1993) [Multi] (1.2/dlc) License GOG [Complete]
 ```bash
 magnet:?xt=urn:btih:28FDE231E6FCA99D3A130C63A513591DF4047FBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ TANGLEWOOD – хардкорный платформер-головоломка,
 magnet:?xt=urn:btih:1C619B632791C310B88506A87D2E98F964C07FE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Earthworm Jim Pack (1995-1999) [En] License I KnoW
 ```bash
 magnet:?xt=urn:btih:290DE1C5C6167EF8489D68FEABB96B63DFE8CF83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Toy Soldiers: War Chest (2015) [En] (1.0) Rip R.G. Механики
 magnet:?xt=urn:btih:4533D0EB9DB4BB4BC7146940DC9F57082EDE67C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Black The Fall (2017) [Ru/En/Ge] (5.5.2) Repack xatab
 ```bash
 magnet:?xt=urn:btih:BBDB7494F3355EF00A892144B31B4017C310109C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Phantom Trigger (2017) [Ru/Multi] (02082017) License GOG
 magnet:?xt=urn:btih:3575C68DFF7595918FC490826CB60280C39D94E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Lego Jurassic World / LEGO Мир Юрского периода (2015) [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:A53FAE0A648B796FE1B9DEC5F4B5B5A2AADFBFE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Running Gods (2016) [Ru/Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:A50AF5BF0DDF4452F400B92565CCBF28E918A6A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Dead or Alive 5: Last Round - это доработанная версия зн�
 ```bash
 magnet:?xt=urn:btih:AB3FD8ECAAE5F166916370D8EE3036E3141CD27E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Sine Mora - великолепный сайд-скроллер в жанре sho
 magnet:?xt=urn:btih:FAE4724387F586B5208E109680DB6FAC51B69E87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ RIVE - это долгожданный шутер с крушением желе
 ```bash
 magnet:?xt=urn:btih:F50EC237935B66E0E89FB5E1F8FAA474FD67BB1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Pac-Man Championship Edition 2 (2016) [En/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:B6B8A4A9EF6AE336830CD252571E8323D2E95EE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ REDEEMER — это жестокая и бескомпромиссная игр�
 ```bash
 magnet:?xt=urn:btih:4C60E6A0641334EB33F1CDDFF97F4B76467524C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Paranautical Activity – это шутер с воксельной график
 magnet:?xt=urn:btih:F7685F0D1A4146F3B3F7A662D4839E996CFC3FFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Oddworld Abe's Exoddus [Ru] (RePack) 1998 | Kirill games
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +434,8 @@ Mother Russia Bleeds – брутальный beat em' up, действия ко
 ```bash
 magnet:?xt=urn:btih:1D5DAFDD060A8134E06644B11BB165DE32E16714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Bermuda Syndrome / Бермудский синдром [Ru] (RePack) 1995 | Kiri
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Basingstoke представляет собой суровый рогалик с
 ```bash
 magnet:?xt=urn:btih:BDA085A84C36F4928FF69FE433B579454C6B4F35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Oddworld Abe's Oddysee [Ru] (RePack) 1997 | Kirill Games
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Ghostly Matter (2018) [En/Fr/It] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:4BFF2B5C10062B72B2ED9E64037EC7B64942206C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Seasons after Fall – двухмерный приключенческий пл�
 magnet:?xt=urn:btih:9C0D389F00620F121D31408932E1088D60B8BFDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ A Story About My Uncle - это приключенческий платформ�
 ```bash
 magnet:?xt=urn:btih:AAC47FF40B31A53792D8CCE00CDDEFCB6F577EBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Dead Cells — это экшн-платформер в жанре Rogue-lite и 
 magnet:?xt=urn:btih:0BE0F4660F261E778BC7D7A949D63CE13CF19111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Flipping Death (2018) [Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:D31E00B07320BD8748E41417CBF86FAC658C36C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Lara Croft and the Temple of Osiris - продолжение одобренно�
 ```bash
 magnet:?xt=urn:btih:8F17304610D40FCDD7DCE4133ED9CD5F70ED1725
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

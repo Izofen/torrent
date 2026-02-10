@@ -19,6 +19,8 @@ Challenge of the Five Realms (1992) [En] (1.0) License GOG
 magnet:?xt=urn:btih:39F8BE0F277185873475164087392D52F37622B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Dark Heart of Uukrul (1989) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:5FD45DCDB86869A51AE63F5A5941473B10FDFF35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Drakensang: The Dark Eye (2008) [En] (1.03) License GOG
 magnet:?xt=urn:btih:4567D9B453FF8C82CBE1F6BFAF4F4EBFD53D5109
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Ascent - экшн-RPG в духе киберпанка с режимами �
 ```bash
 magnet:?xt=urn:btih:E64F82030E4FFCF6FA2BF3ADBA4CC1A90EEB7011
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Paranoia: Happiness is Mandatory (2023) [Ru/Multi] (Build 12698814) Repack Let's
 magnet:?xt=urn:btih:E3A45EFA89ECC09196F7637E7EEDA75BD22C73E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Realms of Arkania Trilogy (1992-1996) (1.0/1.0 v2/1.0(a)) License GOG
 ```bash
 magnet:?xt=urn:btih:37F747EE7C6DD7AA1E9D29AB699408643C086BF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Dreamed Away - мрачная приключенческая RPG с упором
 magnet:?xt=urn:btih:C05394B0E9E65FF0B5CFB241E1AE931604304CA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Salt and Sacrifice – это продолжение серии хардкорн
 ```bash
 magnet:?xt=urn:btih:BD2F7071C67193B85EFDCC5FA789D54730EE14DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Salt and Sanctuary - это двухмерный Action/RPG, амбициозн�
 magnet:?xt=urn:btih:235B2AFE20019AD4F60AF6775A2C2089D813280E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Dragon Ruins представляет игрокам возможность по
 ```bash
 magnet:?xt=urn:btih:ADF713B9DBFCDEB773D8AE8ECBE8CA6288860714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Ys IX: Monstrum Nox (2021) [Multi] (1.1.3/dlc) License GOG
 magnet:?xt=urn:btih:756B8200ACA331E8F2CF408D01E7218C9FAE4B69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.5.1/dlc) License GOG [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:6DBB42227B712D5E2F9C0898756B93FBF4D6FF8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ UnderRail – изометрическая пошаговая ролевая и�
 magnet:?xt=urn:btih:5CD6E0FBADE43CA331DF4275FE636EE0321BAC89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:5CD6E0FBADE43CA331DF4275FE636EE0321BAC89
 ```bash
 magnet:?xt=urn:btih:AB6FCCA34E96D129828D6244F62EB3A05AE6A240
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Centum - это повествовательное приключение, ко�
 magnet:?xt=urn:btih:B2F8CA1B1094DFB39B3DA9693DA2DB57DED38546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Len's Island (2021) [Ru/Multi] (1.1.43/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:81BDB3E99F2923B3B6C8900E0B0C7CCF0CECF82C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Chronicon - приключенческий ролевой слешер, собы
 magnet:?xt=urn:btih:D406EBCB6FEB08B09EDF9C9F27E9978598B464F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Persona 5 Royal (2022) [Ru/Multi] (1.03B) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:598324031459DD9D516695D755213E27F2822A0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Sacred 2 Remaster (2025) [Ru/Multi] (CL16601) Repack Let'sРlay
 magnet:?xt=urn:btih:F30BA35746CFDF83B075DB6BF888AA356FF1ACD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Swordhaven - это фэнтезийная ролевая игра. Вы бер�
 ```bash
 magnet:?xt=urn:btih:0E462FF1DB164B14A236B19DD06A4FD9930F84E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Dreamscaper - это бесконечно реиграбельный экшен-
 magnet:?xt=urn:btih:B55C38FDCA0E8555F7F2181063B38969A395BAD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Stone of Madness – тактическая стелс-игра в реал�
 ```bash
 magnet:?xt=urn:btih:3203EB23A5D6EA0996E612A6D35AB30781A2CCBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Night Swarm - это вампирский roguelite RPG в жанре bullet hea
 magnet:?xt=urn:btih:523570F5585062F04F8E6FCFC69BE4207764389F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 ```bash
 magnet:?xt=urn:btih:F700C02E9488E2B7BE70DF204E8BD9129A834256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Divinity: Original Sin II (2) (2017) [Ru/Multi] (3.6.117.3735/3.0.226.993/dlc) R
 magnet:?xt=urn:btih:AAADD608791122BA5CF3B66B34C48BA7BFB1F5B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Divinity: Original Sin II (2) (2017) [Ru/Multi] (3.6.117.3735/dlc) Repack seleZe
 ```bash
 magnet:?xt=urn:btih:FD5073DA68AC3D24C3522122F1F1DEC49E6928F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

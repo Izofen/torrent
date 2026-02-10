@@ -1,3 +1,29 @@
+###  Публикация: 975166   (971573) от 15.01.2016
+
+Реальная мистика / Реальна містика (2015) SATRip [UKR/RUS] (выпуски 1-19 из 19)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_971573.jpg" />
+</div>
+
+
+###  Подробнее
+
+На телеканале "Украина" – премьера нового проекта документального расследования – "Реальная мистика". Программа ставит перед собой амбициозную задачу: найти рациональное объяснение, на первый взгляд, совершенно загадочных и мистических событий. Ее героями станут простые зрители, столкнувшиеся с необъяснимыми явлениями в своей жизни.Производство: Україна, ТРК УкраїнаЖанр: ТелепередачаЯзык озвучки: Украинский/РусскийПродолжительность: каждый выпуск ~00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:165FEC0AEE4A6EF674512EC131D93E7A8D67D7D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975306   (971689) от 15.01.2016
 
 Сталинград: Подлинная история / Stalingrad (2003) DVDRip [H.264]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:F2FFD6019AC9FCD3AAA05B884664EA376AEB75F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:F2FFD6019AC9FCD3AAA05B884664EA376AEB75F9
 magnet:?xt=urn:btih:3E7715852E91F676ECECD696BC4558111EDD1627
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:3E7715852E91F676ECECD696BC4558111EDD1627
 ```bash
 magnet:?xt=urn:btih:E0D4B159DA736AA38CB2A84823D5E23369D64769
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:E0D4B159DA736AA38CB2A84823D5E23369D64769
 magnet:?xt=urn:btih:C3E862A0D20EBF49CBA377E923E12664A5E2F9F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:C3E862A0D20EBF49CBA377E923E12664A5E2F9F1
 ```bash
 magnet:?xt=urn:btih:0EBCE2EB18C015BA8FAA2E157C6F01FF7FCBEF36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:0EBCE2EB18C015BA8FAA2E157C6F01FF7FCBEF36
 magnet:?xt=urn:btih:F8C2052C755F7E5D6986E6480381333E5E47A2F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:F8C2052C755F7E5D6986E6480381333E5E47A2F7
 ```bash
 magnet:?xt=urn:btih:64F866CC7750E9F5802C46AE220F17D2AB0609CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:64F866CC7750E9F5802C46AE220F17D2AB0609CD
 magnet:?xt=urn:btih:39EB1F6A53E70689D8DDB868F89408BF8B51E1A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:39EB1F6A53E70689D8DDB868F89408BF8B51E1A3
 ```bash
 magnet:?xt=urn:btih:BDB89DF6EA20608F2EB9491720C4B2FEF7CC6339
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:BDB89DF6EA20608F2EB9491720C4B2FEF7CC6339
 magnet:?xt=urn:btih:C5A0CC3870D64C722A68060FEFDC529812D13A18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:C5A0CC3870D64C722A68060FEFDC529812D13A18
 ```bash
 magnet:?xt=urn:btih:E9A74E4D24AEFCC7093235D3CF464AC24E589D1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:E9A74E4D24AEFCC7093235D3CF464AC24E589D1A
 magnet:?xt=urn:btih:07CEB22D74EF7668680484C61E3B5814F5C66632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:07CEB22D74EF7668680484C61E3B5814F5C66632
 ```bash
 magnet:?xt=urn:btih:43AE6CD81644C8543845F8FF31C5E33795A03FA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:43AE6CD81644C8543845F8FF31C5E33795A03FA2
 magnet:?xt=urn:btih:2A6C22AC5FAFB46937D625EE1E0C67B8B00410DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:2A6C22AC5FAFB46937D625EE1E0C67B8B00410DD
 ```bash
 magnet:?xt=urn:btih:28F19A5A2E7690691EA88422FC042CB7513738A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:28F19A5A2E7690691EA88422FC042CB7513738A9
 magnet:?xt=urn:btih:10A4DC98DA17203739BCFC15B6B64D841293D86D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:10A4DC98DA17203739BCFC15B6B64D841293D86D
 ```bash
 magnet:?xt=urn:btih:A5B92191BCEC64A1BB3D25B8E48719C411BF6071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:A5B92191BCEC64A1BB3D25B8E48719C411BF6071
 magnet:?xt=urn:btih:E9F7808E9329C2DBF19ADDDD52751B101B389415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:E9F7808E9329C2DBF19ADDDD52751B101B389415
 ```bash
 magnet:?xt=urn:btih:8A86DD273D24400CC1F9E5CF563E202E89DFEC0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:8A86DD273D24400CC1F9E5CF563E202E89DFEC0F
 magnet:?xt=urn:btih:B9122E546EBB003DF0C6C21D4B969C3D472614A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:B9122E546EBB003DF0C6C21D4B969C3D472614A0
 ```bash
 magnet:?xt=urn:btih:2E632704E509FB5243101F5A035EEB00965CC2E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:2E632704E509FB5243101F5A035EEB00965CC2E7
 magnet:?xt=urn:btih:85D941EBD730FEE28B20915198CE2CA8319E5231
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:85D941EBD730FEE28B20915198CE2CA8319E5231
 ```bash
 magnet:?xt=urn:btih:1409A3B037EA43E145799E87D112445135CDCF1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:1409A3B037EA43E145799E87D112445135CDCF1B
 magnet:?xt=urn:btih:5AB03C75CE57EB58A917462BEA2D4F78C2386BEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:5AB03C75CE57EB58A917462BEA2D4F78C2386BEF
 magnet:?xt=urn:btih:F1187E1BC08D49F49AE9B60DC336E2055073ACA3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975380   (973298) от 14.01.2016
-
-Земля. Территория загадок. Тайна Великого Сфинкса (2015) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973298.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какую тайну хранит Великий Сфинкс? В конце 20 века японские ученые проводили исследовательские работы у подножия египетского монумента. Радиометрическая аппаратура показала, что под лапой огромной скульптуры находится какой-то узкий тоннель. Все работы ученых были внезапно остановлены. Что же могли обнаружить исследователи?Телекомпания: МИРЖанр: ДокументальныйРежиссер: Алексей АртемьевПродолжительность: 00:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F091C2320421781E327C6A8948C227318A64EA0C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

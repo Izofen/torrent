@@ -1,3 +1,31 @@
+###  Публикация: 1395793   (752126) от 12.07.2020
+
+Город на берегу. Амстердам (Нидерланды) / Waterfront Cities Of The World (2015) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Амстердам - столица и крупнейший город Нидерландов, расположенный на севере страны в месте впадения рек Амстел и Эй в Северное море.
+Жемчужина Северной Европы, город удивительной архитектуры, сотен канал и тысяч мостов...
+Самая счастливая ведущая Софи Фурон приглашает на прогулку по городу мечты.Производство: Канада, TV5Жанр: Документальный, познавательный, путешествияРежиссер: Николя Буше, Этиен ДесирэПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485807C9645A512A2646ED905523B74FE6C6D7BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395810   (752127) от 12.07.2020
 
 Город на берегу. Кейптаун (ЮАР) / Waterfront Cities Of The World (2015) HDTV [H.264/1080i]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:0E2DBCD9756FECDAED132864D625CDFBE8774A09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:0E2DBCD9756FECDAED132864D625CDFBE8774A09
 magnet:?xt=urn:btih:4A382E64FE6C678C8D76687F97821F0E9B19879C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:4A382E64FE6C678C8D76687F97821F0E9B19879C
 ```bash
 magnet:?xt=urn:btih:0ED5F3C2CAEE4BC0B6FBFC5CBE828BE1D33A3F01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +125,8 @@ magnet:?xt=urn:btih:0ED5F3C2CAEE4BC0B6FBFC5CBE828BE1D33A3F01
 magnet:?xt=urn:btih:48DF423E2BEF1D01B6274070AF6265F38C48B4FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +150,8 @@ magnet:?xt=urn:btih:48DF423E2BEF1D01B6274070AF6265F38C48B4FD
 ```bash
 magnet:?xt=urn:btih:C46E4409FE54F129162FFE1134809889AA199D9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +177,8 @@ magnet:?xt=urn:btih:C46E4409FE54F129162FFE1134809889AA199D9C
 magnet:?xt=urn:btih:C41E7117028A26EF703635FA4C04A9CF661834DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +202,8 @@ magnet:?xt=urn:btih:C41E7117028A26EF703635FA4C04A9CF661834DD
 ```bash
 magnet:?xt=urn:btih:8948878F302FEDA3171AF071699FD12CFF8CF051
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +229,8 @@ magnet:?xt=urn:btih:8948878F302FEDA3171AF071699FD12CFF8CF051
 magnet:?xt=urn:btih:E8AF20E9E5C190A511F74563324D1888143CC2FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +254,8 @@ magnet:?xt=urn:btih:E8AF20E9E5C190A511F74563324D1888143CC2FE
 ```bash
 magnet:?xt=urn:btih:2C7B96A1C0EE70887EE4D3DEC5828DC37C125281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +281,8 @@ magnet:?xt=urn:btih:2C7B96A1C0EE70887EE4D3DEC5828DC37C125281
 magnet:?xt=urn:btih:A77CC342246748CA99BE9B5E470B2AD872C0CCA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +306,8 @@ magnet:?xt=urn:btih:A77CC342246748CA99BE9B5E470B2AD872C0CCA1
 ```bash
 magnet:?xt=urn:btih:44DED0AED7CD84F0268C27426EF9569955392315
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +333,8 @@ magnet:?xt=urn:btih:44DED0AED7CD84F0268C27426EF9569955392315
 magnet:?xt=urn:btih:E0D9B60CC423D9EDD8A8132C1346EFB92E6F2E68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +358,8 @@ magnet:?xt=urn:btih:E0D9B60CC423D9EDD8A8132C1346EFB92E6F2E68
 ```bash
 magnet:?xt=urn:btih:DBDA3020BB22C495FB1987ECC1747AF941957DB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +385,8 @@ magnet:?xt=urn:btih:DBDA3020BB22C495FB1987ECC1747AF941957DB1
 magnet:?xt=urn:btih:659803247C8E8E21430B57AF5F209D424BEFA246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +410,8 @@ magnet:?xt=urn:btih:659803247C8E8E21430B57AF5F209D424BEFA246
 ```bash
 magnet:?xt=urn:btih:1EA5D2C5F7DD6256011809FBE59A01A043DD1E25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +437,8 @@ magnet:?xt=urn:btih:1EA5D2C5F7DD6256011809FBE59A01A043DD1E25
 magnet:?xt=urn:btih:468911307708D44FA43AFA86D422F331C059577E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +463,8 @@ magnet:?xt=urn:btih:468911307708D44FA43AFA86D422F331C059577E
 magnet:?xt=urn:btih:3DCD2A28C860B564A96FE4253FD917C0140B4BAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +488,8 @@ magnet:?xt=urn:btih:3DCD2A28C860B564A96FE4253FD917C0140B4BAE
 ```bash
 magnet:?xt=urn:btih:568B83C7F6325379561ADD9F488AAA5D4A02FB81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +518,8 @@ magnet:?xt=urn:btih:568B83C7F6325379561ADD9F488AAA5D4A02FB81
 magnet:?xt=urn:btih:90A77D29E8C33255976472B0B73D72AF78BBD881
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +544,8 @@ magnet:?xt=urn:btih:90A77D29E8C33255976472B0B73D72AF78BBD881
 magnet:?xt=urn:btih:EFD0EB475D3DD7A1BA558EC38A7D2677E1DFA928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +569,8 @@ magnet:?xt=urn:btih:EFD0EB475D3DD7A1BA558EC38A7D2677E1DFA928
 ```bash
 magnet:?xt=urn:btih:8C858A5593FCDCABFB38B9F18F609D9EC1EA3F39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +597,8 @@ magnet:?xt=urn:btih:8C858A5593FCDCABFB38B9F18F609D9EC1EA3F39
 magnet:?xt=urn:btih:2D70088176012DFB86CAD39D7728758363325B82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +624,8 @@ magnet:?xt=urn:btih:2D70088176012DFB86CAD39D7728758363325B82
 magnet:?xt=urn:btih:1578511CFCB68AA0F495043833697A6DB604207E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +649,8 @@ magnet:?xt=urn:btih:1578511CFCB68AA0F495043833697A6DB604207E
 ```bash
 magnet:?xt=urn:btih:8DAB8170A45FF22B9936E41BB70C5A3A1323F21B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +676,7 @@ magnet:?xt=urn:btih:8DAB8170A45FF22B9936E41BB70C5A3A1323F21B
 magnet:?xt=urn:btih:3CB22DEE05AAD1F5ADB6F0135CAF41AD638A8981
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216074   (752948) от 29.03.2018
-
-Беседа с Евгением Федоровым (27.03.2018) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_752948.jpg" />
-</div>
-
-
-###  Подробнее
-
-Активисты НОД встретились с депутатом Государственной Думы России, координатором Национально-Освободительного Движения Евгением Федоровым. Темы беседы: трагедия в Кемерово; высылка дипломатов, санкции США и другие особенности сегодняшней войны, пути решения проблемы и "вечный мир" с США.Производство: Телевидение Национально-Освободительного ДвиженияЖанр: ПолитикаСубтитры: отсутствуютПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C79F760D33D12C65F6277A7C770FAB36D4E6766
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

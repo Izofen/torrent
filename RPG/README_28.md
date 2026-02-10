@@ -19,6 +19,8 @@ Atlas Fallen (2023) [Ru/Multi] (1.118888.1721314771/dlc) Repack Other s
 magnet:?xt=urn:btih:A9FF34D90847B36F04B6D899A2401A58A2AE5A91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Voltaire: The Vegan Vampire - это фермерский рогалик-экш�
 ```bash
 magnet:?xt=urn:btih:D796D6DB055A13CCE196C3310E514EB00E3A8D82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ That Time I Got Reincarnated as a Slime ISEKAI Chronicles (2024) [Multi] (1.01) 
 magnet:?xt=urn:btih:198A87EB17BFD522D9888E392F832D3378EEF93C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Deathbound - действие игры разворачивается в сре�
 ```bash
 magnet:?xt=urn:btih:3E3C34756C83D6D11A15969387563A19D65407B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Repack FitGirl
 magnet:?xt=urn:btih:27C5B715A0BB33589C40DB60EE587F3BFCE38E26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Thalassa: Edge of the Abyss погружает игроков в напряже�
 ```bash
 magnet:?xt=urn:btih:48076E1C6A5F32E2F8ECD2BFCC131DEAAA892D98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Arranger: A Role-Puzzling Adventure откажитесь от типичного
 magnet:?xt=urn:btih:5DA2F51C7A380566FB03EA7C6943317D768CC069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ LunarLux - это захватывающая научно-фантастичес
 ```bash
 magnet:?xt=urn:btih:AAD93B1FA9E1ECC009C42CDC1326B0F3FD00DE6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Thalassa: Edge of the Abyss погружает игроков в напряже�
 magnet:?xt=urn:btih:8CCA9034F8785D00EE6AD380EC67C3376BF24F85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ USC: Counterforce (2023) [Multi] (1.00.0a) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A202665C4A7C01CADF65024EBB29161229313C7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Citizen Sleeper – это яркое по внешнему виду и мрач
 magnet:?xt=urn:btih:483C85779B27414904BD25197D9FE953FAD5E6D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Octopath Traveler II (2) (2023) [Multi] (1.1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:40E01FF992D58C7402E4F120525C5DACBDA1451B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Earl vs. the Mutants (2024) [Ru/Multi] (1.0) Scene Unleashed
 magnet:?xt=urn:btih:5CC614ED9AF99F67B57410087F344EEFE4EC0175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Minecraft Dungeons. Новая приключенческая игра, вдох
 ```bash
 magnet:?xt=urn:btih:34088224FE640C455FEAE0AE2EA6091EED9FE890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Scene SKIDROW
 magnet:?xt=urn:btih:62D6870F253F33F7F89E0F26FB37358131B26AFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ S.T.A.R.W.I.E.L.D. (2024) [Ru/En] (1.04) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F088C7B82DABCE4865C740BF684B1793C90A2EAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Oblivion Override погружает в постчеловеческую эпо�
 magnet:?xt=urn:btih:681750EE7F5104FBE93762D0D4161EAC8705AAEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Relic Space (2023) [En] (1.03) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:6E580E81A95464ACEC34F8D5014C0990B399F4F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Elden Ring – фэнтезийное экшен-РПГ приключение, 
 magnet:?xt=urn:btih:32AEAADE742D19329E330F7F7592FAA9803DD606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Dread Delusion смешивает фэнтезийное средневеков�
 ```bash
 magnet:?xt=urn:btih:5F5DF25F2BC3825F3237B5D92D5DA1900B585E3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Space Prison бросает вас в холодную реальность га
 magnet:?xt=urn:btih:9BFFD9FBE2FB8DEFBF4971D5A0354D2DE60B5607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Secrets of Magonia (2024) [En] (1.03) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4940F5DE812686D74C353C2CF9876496B8D0F93A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Ruzar - The Dark Stones расширяет основы подземелий, з
 magnet:?xt=urn:btih:AF4B24ACD47D98A99C384FCC14927ACEB7B41E87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Ruzar - The Life Stone - ролевой данжен-кроулер, в кото
 ```bash
 magnet:?xt=urn:btih:A3749F3FFF58C14F298AB04F138DB50EFC94A3C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Thaumaturge - изометрическая ролевая игра с глу
 magnet:?xt=urn:btih:E2D427BDED2CD944A5C544D175162C9863FB4E80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (1.3.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:86BEF0525E09F6B793B85D224F782402E5B3C69A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

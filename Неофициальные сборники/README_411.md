@@ -1,3 +1,32 @@
+###  Публикация: 1137365   (667756) от 26.05.2017
+
+VA - Хитовая весна на Europa Plus. Сборник № 4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667756.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Роника - Агония 3:36
+002. Arsenium Feat. Mianna - А Он Другой Мама 3:19
+003. Funpills - Целовать Cильно 3:10
+004. Кристина Орса - Кино 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:630F4DAC2CFFD61E780F287A64EA072177E0152C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137323   (667757) от 26.05.2017
 
 VA - Golden Rock And Roll (2017) [MP3|320 Kbps] <Rock And roll, Rock>
@@ -21,6 +50,8 @@ VA - Golden Rock And Roll (2017) [MP3|320 Kbps] <Rock And roll, Rock>
 ```bash
 magnet:?xt=urn:btih:9AC45380422AF1114A46D114B16EEA98832B89EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Душевный сборник Русского радио. Версия �
 magnet:?xt=urn:btih:2C93EAD9AAEB914EB91BD150CE4C603758CB6B22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Новая Русская Дискотека Vol.7 (2017) [MP3|256-320 Kbps
 ```bash
 magnet:?xt=urn:btih:C1C511B75C4C86F37A5B66121E777583B1E15636
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Русский отрыв. Сборник № 8 (2017) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:19C9223C6AB55A79F058D54C49289E896D17A658
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Золотая вечеринка. Часть № 2 (2017) [MP3|256 Kbps] <
 ```bash
 magnet:?xt=urn:btih:ADC9ACF43C915AC6116FBC175928E3C539B4B373
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Зажигай в темпе ритма. Версия № 8 (2017) [MP3|256
 magnet:?xt=urn:btih:F1D6733F871F0B6F38E60F22E3A945343089FEC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Весенняя сотка популярных треков выпуск 
 ```bash
 magnet:?xt=urn:btih:070D691CF0BCDFD81CEC085AB019B300AACAB0E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Музыкальный адреналин от Русского радио 
 magnet:?xt=urn:btih:C3A9344080EA131F400782BFDCB21BF4D3A484DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Star Marathon Spring Mix (2017) [MP3|192-320 Kbps] <Dance, Club, Pop, House
 ```bash
 magnet:?xt=urn:btih:B6A06C3745F6CDE27F36C83873060F643FAA9465
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - SpaceSynth & ItaloDisco Hits Vol.23 (2017) [MP3|320 Kbps] <Іtаlо-Dіsс�
 magnet:?xt=urn:btih:D33964F404BF90D75103DF7055AF27539931166E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Eupforia: May Original Trance Party (2017) [MP3|320 Kbps] <Trance, Progress
 ```bash
 magnet:?xt=urn:btih:A34C4E5FA183C96EA6205670AFD718C30ABDE621
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Trance Attack 3.0 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 magnet:?xt=urn:btih:17A115178BB29AA14F248BB7D65E6EC3E2A8B9A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Зарубежный Хит В Машину (2018) [MP3|256-320 Kbps] <Pop,
 ```bash
 magnet:?xt=urn:btih:1EB95A119349A5C4DA70153DCFA9510BC343FC70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - The Whisper Of The Ocean (2018) [MP3|320 Kbps] <Relax, Chillout, Downtempo>
 magnet:?xt=urn:btih:DE8D0723E5FA0E4A389DCCA24C208D46BA0F3598
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Interstellar Techno Mix (2018) [MP3|320 Kbps] <Tech House>
 ```bash
 magnet:?xt=urn:btih:B30468B1BB956DF64A888178C243F26B261B4E63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - Deep House Decipherments 008 (2018) [MP3|320 Kbps] <Deep House, Electro>
 magnet:?xt=urn:btih:63B0ABD4227FD67D6663623CBFCA1FD312FCFF27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +515,8 @@ VA - German Top 50 Party Schlager Charts 07.05.2018 (2018) [MP3|265-320 Kbps] <P
 magnet:?xt=urn:btih:A05CA4C9929536517AE4B60366F5B98534754F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +540,8 @@ Bloodhound Gang - Uhn Tiss Uhn Tiss Uhn Tiss (2019) Radio Remix [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:BE680C51C2CD3616A9E5B463E21A4431D2E715A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +570,8 @@ VA - Отражение - Трибьют Led Zeppelin (2014) 2CD [MP3|320 Kbps] 
 magnet:?xt=urn:btih:F81EBCEAB6826B1D7311BE442E4B3E51F0147E7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +598,8 @@ VA - Summer Club Music Promo - Bestfriend Party (2016) [MP3|234-320 Kbps] <Dance
 ```bash
 magnet:?xt=urn:btih:7228830CA9A02BC82CB652E0C41B63365450BB91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +628,8 @@ VA - Relax to House Vol.1 (2016) [MP3|320 Kbps] <House, Deep House, Club House>
 magnet:?xt=urn:btih:686A2DB97FDA4948C3084E4C57E6EE278E9807B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +656,8 @@ VA - TOP 100 Club (June) (2016) [MP3|320 Kbps] <House, Electro House, Club House
 ```bash
 magnet:?xt=urn:btih:90D950EDE7D57CAF339623FBC557EFF647CF663F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +686,8 @@ VA - Зарубежная Дискотека ХХ Века - 50 (2016) [MP3|320 
 magnet:?xt=urn:btih:D12920F0B89B2B619706B290866D62CCF417C0A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +714,8 @@ VA - Зарубежная Дискотека ХХ Века - 49 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:3AF1D4250C3E96B2C799361AC5C65F16A04C0185
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,32 +744,7 @@ VA - Зарубежная Дискотека ХХ Века - 48 (2016) [MP3|320 
 magnet:?xt=urn:btih:4A730AB73C9DF9DCBD2D42197AD5E9D6BBAF882D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031367   (668662) от 03.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 47 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_668662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Albert One - Turbo Diesel ( 1984 )
-02. Mike Mareen - Dancing In The Dark ( 1985 )
-03. Ace Of Base - All That She Wants ( 1992 )
-04. C + C Music Factory - Just A Touch Of Love ( 1990 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDBFBBF36DD152289D381CCC62C108081C0B98B2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

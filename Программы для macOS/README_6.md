@@ -21,6 +21,8 @@ Clipboard Manager 2.6.0 [En]
 magnet:?xt=urn:btih:29167325ABC43D5ED71AAB45558E616CA067F61D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Keep It 2.4.4 [Multi]
 magnet:?xt=urn:btih:D880E3008D81FE77B574F0619070B8D3297FB117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ EazyDraw от Dekorra Optics – графическая программа, со
 ```bash
 magnet:?xt=urn:btih:B2DFCDE588126D94F6C72E7927272959DA7DF397
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ URL Manager Pro X - менеджер закладок для Safari, OmniWeb, Mo
 magnet:?xt=urn:btih:50239307B16CB4B9D08CABA0C6E765A7D8812E96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Mp3tag - мощный и простой в использовании инстр
 ```bash
 magnet:?xt=urn:btih:9B0B9FEB3576ACCCE7C27E421A796312C7A0A74E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Password Repository - это менеджер паролей, который н�
 magnet:?xt=urn:btih:955CA7DCAC0CE9468F37B4DA2826C728A6BD2E88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ MediaInfo — программа для получения подробной т
 magnet:?xt=urn:btih:4C0693C3D6E98E7D9069AA95F7EC4B684D0790FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Kontakt - стандарт в мире семплеров. Native Instruments Ko
 ```bash
 magnet:?xt=urn:btih:A4F8E6EEB3533DBCF3830FE6A3DC7095BD385543
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ PopClip появляется на экране при выделении мыш�
 magnet:?xt=urn:btih:1C0A78FA24042844C101C4EECA815F0D1EE10D9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Vidmore Video Fix for Mac 1.0.10 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F41A2655E2BD0E55232D6B74914D280DDD977C30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ DeskWidgets — это библиотека компонентов рабоче�
 magnet:?xt=urn:btih:67C93DD9E568DE129A2CEEB376B8F5B72CD1D0D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ MarkMyWords предлагает простые функции форматир�
 ```bash
 magnet:?xt=urn:btih:16D4092D4B0E4DBACBB9627094493A71387836CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Jettison - размонтирование внешних дисков перед
 magnet:?xt=urn:btih:B5ECC3A36FC520E9E208006736BCE500A6F3791A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ ViWizard Audio Capture for Mac 2.1.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:58DF4007A887A001A2723ABB44A4036F9CD8C13D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ MediaMate for Mac 3.2.0 [En]
 magnet:?xt=urn:btih:B07CD9ABB5A97893673C63CF201D73FE9685280E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Progressive Downloader — теперь уже платный менеджер �
 ```bash
 magnet:?xt=urn:btih:4BACA3FBFF26E0CC10C9140EFBC14663D12CE3DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ OmniReader - полифункциональное приложение для ч
 magnet:?xt=urn:btih:E50282DE079DC3AF5C4D1F6D4CF523355F9BCF54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ AltTab for Mac 6.67.0 U2B [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1D5C0C2BD7E8E50FB48E3AC5367A3538E373DA1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Xliff Editor- предоставляет простой способ редак�
 magnet:?xt=urn:btih:4432C16668BB061AB4DC1C3D8CFD8FCE2F587CE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ ColorWell обеспечивает мгновенный доступ к стан
 ```bash
 magnet:?xt=urn:btih:78E15A7655E8AEA821E43CF6B167A1957F452E19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ DVD-Cloner - это небольшая утилита, при помощи ко�
 magnet:?xt=urn:btih:F57CE98AB6FCA89A71243286F37AD7554A2723D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ PowerPhotos - позволяет разбить ваши изображения 
 ```bash
 magnet:?xt=urn:btih:AC8B966076A6E42C08A08CD750F701E3D8C67314
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ eMail Address Extractor - ищем и извлекаем email адреса. eMa
 magnet:?xt=urn:btih:3655089F82446C5CF9038ABA2A3D264BC89D1850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Fission 2.8.5 [En]
 ```bash
 magnet:?xt=urn:btih:FE2F5B77A682E06097BA286D32782DDA515AF753
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Invisible является простым в использовании и оч�
 magnet:?xt=urn:btih:8C239596ABBDE1CDE0347F117EA8C4E83C6C0274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Application Wizard позволит запускать, завершать и а
 ```bash
 magnet:?xt=urn:btih:EF02BB3F091935B4C08D308292D3E59F54A4415C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

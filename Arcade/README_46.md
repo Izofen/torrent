@@ -19,6 +19,8 @@ IS Defense - это аркадный шутер в фэнтезийном сет
 magnet:?xt=urn:btih:C5108CBEA5CB1DE6B2471AA956902BCBDB67BD0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ My Memory of Us – это воспоминание о дружбе между �
 ```bash
 magnet:?xt=urn:btih:BD8808AED545A7EE134752CF67C450E0468A0A16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Scrap Garden – очаровательный 3D платформер, расс�
 magnet:?xt=urn:btih:F64764FCF0BA29E96343F227B3B1E993334A48E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Koihime Enbu - аркадный файтинг с видом сбоку в яп�
 ```bash
 magnet:?xt=urn:btih:45BB6C7D26353415C89074CB1B2232FE392C30C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Survive in Space — это космический шутер с упором н
 magnet:?xt=urn:btih:06AD9D327D617DC4A95BC88118C9E3CF384A0A00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Survive in Space — это космический шутер с упором н
 ```bash
 magnet:?xt=urn:btih:304DFE4CE151E8B3F6C470070986BBB93A6D2509
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Asterix & Obelix XXL Dilogy / Asterix & Obelix XXL 1 & 2  (2004-2005) [Ru/Multi]
 magnet:?xt=urn:btih:2958DDF69D2573969DF5133447C6C0889FF491B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Crossing Souls (2018) [Ru/Multi] (1.2.4) License GOG
 ```bash
 magnet:?xt=urn:btih:68B650A6734E7359BC1513178F4308CAC5784A57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Trine Enchanted Edition – это новая версия оригинальн�
 magnet:?xt=urn:btih:47282E859C21BFA941320951EC1CAEB6D9C70ABC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Panzer Elite Action - Dunes of War (2007) [Ru] (1.44.12) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:5AD2E547D239AB380CF152610ABFBC8217BAE754
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Unravel (2016) [Multi] (1.0.0) Repack R.G. Механики
 magnet:?xt=urn:btih:AE744C10AD1E7D5AAB23CECFABF39E562FF9CB1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Armored Evolution (2019) [En] (2.0.b) License PLAZA
 ```bash
 magnet:?xt=urn:btih:C73B88C6AD1A4CEE42F66ADF88B5E958386D3828
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Trackmania Turbo (2016) [Ru/Multi] (2016-03-23_18_29) Repack =nemos=
 magnet:?xt=urn:btih:284EE3FA6F2D13095D0D8FA0C881CB594FE15E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Return of the Incredible Machine: Contraptions была выпущена в 2000
 ```bash
 magnet:?xt=urn:btih:ACF4CCFD7F880D2264D38405BF360078E89067CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Mr Shifty – хардкорный изометрический стелс-эк�
 magnet:?xt=urn:btih:73344E8C60EAF8745B07DF94A2A5351A5785CEAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Asura» - игра, в которой вы будете играть за дем
 ```bash
 magnet:?xt=urn:btih:927C2624BCAC27759499D101CCD0A7FDEF9A4734
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Hellmut: The Badass from Hell (2018) [Ru/Multi] (1.0.3/dlc) License GOG
 magnet:?xt=urn:btih:8844481BA55485F6379470A63F6B8042FCA25535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Holy Potatoes! We're in Space?! - приключенческая игра в к�
 ```bash
 magnet:?xt=urn:btih:DA7E69A2E41945C260C70247474DC9FEEF808F6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Shadow Complex Remastered (2016) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:D930F7EC0631B59F1D607285BF4734C61178F0C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Shadow Complex Remastered - это переиздание игры Shadow Comple
 ```bash
 magnet:?xt=urn:btih:6E2F1E7F056F92C955C72B1B2F87080684FC1DB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Riff Racer - Race Your Music! (2016) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:F5559A6CAEEB9A5E126061540954298B4FC366CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Chicku (2016) [En] (1.05) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:C99C2D047EF4EA3EF91301A52D046204D17D9995
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ AVICII Invector (2019) [Ru/Multi] (1.4.4) Repack Other s
 magnet:?xt=urn:btih:2871ADAE391CFC57A1D1257264C74A8FBC32B06B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Expendables 2: Videogame (2012) [Ru/Multi] (1.0) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:05FF250B7C496798C0090C0C37A54CD4D2F5BA4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ ZAMB! Endless Extermination - это смесь жанров twin stick shooter 
 magnet:?xt=urn:btih:0782B256A4F45E71B2FFF61D76FB550237316B1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Tinertia - это экшен с элементами инди-игры, арка
 ```bash
 magnet:?xt=urn:btih:1E6C56EA2F25AD3B24DF0ADDCBB15314BAD829D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

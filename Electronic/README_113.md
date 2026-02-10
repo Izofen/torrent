@@ -22,6 +22,8 @@ VA - 100 Greatest Running Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Dan
 magnet:?xt=urn:btih:35ACC5128DBBC9F814940C97C95DC6473514738C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - 100 Greatest Workout Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Dan
 ```bash
 magnet:?xt=urn:btih:36A42F9BD3F6C26FA456EE85FCCB70A1AF63C789
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Black Hole House Music 10-23 (2023) [MP3|320 Kbps] <House, Progressive Hous
 magnet:?xt=urn:btih:6B4D92697B856AB82EE1C8474AD8797B675B457D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ The Orb & David Gilmour - Metallic Spheres In Colour (2023) [MP3|320 Kbps] <Ambi
 ```bash
 magnet:?xt=urn:btih:2C09F993521BFA81D56A8A29CCA567F7669AFA0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Mr Sam Opus Quinto (2022) [FLAC|Lossless|WEB-DL|tracks] <Trance, Progressiv
 magnet:?xt=urn:btih:3BDD03486EBA4CBBA766A38A2F1BAB651916375B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Cosmic Gate - Live @ Rock Bar Bali Sunset Set, Indonesia (2023-10-06) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:F809158F540F3C7EB93EF5E3A0A3BA22C81B6FEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Figura Autumn 2023 [MP3|320 Kbps] <Melodic House,Tech House>
 magnet:?xt=urn:btih:D79A462ABCB8AF70BA034D3DE787433BDF9E9052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Redux Chill Out Moments 2023 [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 ```bash
 magnet:?xt=urn:btih:E5E18A72E2E532052F973B8DFE7FEE3E3120FF03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ DISC 03(   Читать дальше...   )Жанр: Trip Hop, Abstract Hip-Hop�
 magnet:?xt=urn:btih:F446DEB22A96752B7B8425F053246059B6BDA043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Musical Landscape: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:966F58FC31767BB967023E21584A4F41E1CAED11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Kanga - Under Glass (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Industrial, 
 magnet:?xt=urn:btih:EA94C9C9A5B2C309B3B82BD91B00B63BD447D929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Black Hole Trance Music 10-23 (2023) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:A58DE08643E2AEE80E0BC7AE0D9D819B40FA562F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ DISC 03(   Читать дальше...   )Жанр: Trip Hop, Abstract Hip-Hop�
 magnet:?xt=urn:btih:D0CA161F9C6D6FDED235DE84B39281F2D5CAE224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ The Orb And David Gilmour - Metallic Spheres In Colour (2023) Japanese Edition [
 ```bash
 magnet:?xt=urn:btih:E935C3904B012345C7209436F32DB178ECB15A46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +426,8 @@ Blank & Jones feat. Coralie Clement - Surround Me with Your Love (2023) 2EP [FLA
 magnet:?xt=urn:btih:4B0A751EC1CC7C6C1010B38416E1E8302DFFA022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +454,8 @@ VA - 25 Years Of Anjuna Mixed by Trance Wax (2025) [MP3|320 Kbps] <Trance, Progr
 ```bash
 magnet:?xt=urn:btih:28F19C444BC35DD33BB78C32F8B13F91C87A5AB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +484,8 @@ VA - Vocal Trance Gems: Best Of (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 magnet:?xt=urn:btih:C858EFB09B956D224597D25D7683B034D21652A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +512,8 @@ VA - Spacedance, Vol. 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Spacedance, Spaces
 ```bash
 magnet:?xt=urn:btih:6ECCCED2F8B46CB5B1173B7BCB4A10EB0B558182
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +542,8 @@ VA - Markus Schulz - Global DJ Broadcast: Top 20 November (2020) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:93B648E90E656863D7CA45034465D27F2DF44D4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +570,8 @@ VA - Meditative State: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:6CFA82E5C598991A66218E77D33F8C654BB18627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +600,8 @@ magnet:?xt=urn:btih:6CFA82E5C598991A66218E77D33F8C654BB18627
 magnet:?xt=urn:btih:A64CE799EEB257EA2F53760C4902B4917F224C51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ CD-03 - Future Boy (Expanded Edition)Жанр: Synth-pop, Dance-popПродол�
 ```bash
 magnet:?xt=urn:btih:1453756271935DBFB5C46F47A10FAE956F16D2BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +658,8 @@ VA - Top 8 September 2023 Emotional and Uplifting Trance (2023) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:371DFBBE51ED878C0C54D907301365CA7266172E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +686,8 @@ port-royal - Discography 15 Releases (2005-2020) Resonant, n5MD [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:61AD65391924398F28F5EDA673C23D6F73564304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +716,8 @@ VA - DJ Kubikov & Sapunov - 3fATMeN (2006) [MP3|320 Kbps|image+.cue, tracks+.cue
 magnet:?xt=urn:btih:DD3439904500647BCE08C8C2998AD961354C6462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +741,8 @@ VA - Anjunadeep The Remixes 2020 (2020) Compilation [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:56962364BA1EA86EF9C9CD80CABB28D65D578C35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

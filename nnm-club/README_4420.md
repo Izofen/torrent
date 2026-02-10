@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C09F625992C9A53F198C9B4BA39FA278C0F23606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ James Bratton - Imagination (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth
 magnet:?xt=urn:btih:1C82F93415B98D7D23EB14FE4123A8DB3653C0EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:1C82F93415B98D7D23EB14FE4123A8DB3653C0EF
 ```bash
 magnet:?xt=urn:btih:AE5E1DBB772BEF975FF3D0A1C77712784A45C9EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Family Company - Pieces Of Us (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 magnet:?xt=urn:btih:215B3E4E9C10E7E5CBD54764E13B41A533F4DDF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:215B3E4E9C10E7E5CBD54764E13B41A533F4DDF5
 ```bash
 magnet:?xt=urn:btih:30FFB037EC1FB5B1657E1B7217C4477BE7A0B64B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Connor Selby - The Truth Comes Out Eventually (2025) [FLAC 24/48|Lossless|WEB-DL
 magnet:?xt=urn:btih:16928BBA8B36CBE039081BEFCE254D708D935FEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:16928BBA8B36CBE039081BEFCE254D708D935FEF
 ```bash
 magnet:?xt=urn:btih:962C0DC65CE0073D8704B0273FD1D855DFCF2C4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Mozart - Requiem in D Minor, K. 626
 magnet:?xt=urn:btih:9C72A7CC84A7F87E6A052136D669D3C6A7B7EEC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Carlos Casciaroli - Dark Blues Ritual (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:BDC571E0CF14F4A6FE34680D4E40E89BE056723C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ Bruce Wojick & The Struggle - The Hard Way (2025) [FLAC 24/48|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:0C6EAC55867DEEBCFE6C13E207A154E0B9A3FE1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:0C6EAC55867DEEBCFE6C13E207A154E0B9A3FE1F
 magnet:?xt=urn:btih:319F35ABA79EE4395E6B7AF2C4B345A3BD43430E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:319F35ABA79EE4395E6B7AF2C4B345A3BD43430E
 ```bash
 magnet:?xt=urn:btih:D32F7E401469CC4C1F2CE238CB0C387FFBC3AAA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:D32F7E401469CC4C1F2CE238CB0C387FFBC3AAA3
 magnet:?xt=urn:btih:6E6D13FF414FA235A7535FCB5D2975CC5853AF4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:6E6D13FF414FA235A7535FCB5D2975CC5853AF4F
 ```bash
 magnet:?xt=urn:btih:573E832929327CE5DD1F361E6F0EC86125DD37BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:573E832929327CE5DD1F361E6F0EC86125DD37BD
 magnet:?xt=urn:btih:E626913CFB8DD11B5FF698D5B3FB8A292CB0D40C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:E626913CFB8DD11B5FF698D5B3FB8A292CB0D40C
 ```bash
 magnet:?xt=urn:btih:E9F119A87E72C50FFBB94CCDD7AFA367F8217807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ Project Hunt - приближенный к реализму симулятор �
 magnet:?xt=urn:btih:4872FD855F0E9907C8262BFEF9F765BEC5C28942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:4872FD855F0E9907C8262BFEF9F765BEC5C28942
 ```bash
 magnet:?xt=urn:btih:52AFA1F51BDBCB4A6CA4CA432D880691211870E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:52AFA1F51BDBCB4A6CA4CA432D880691211870E3
 magnet:?xt=urn:btih:264E2B8E0EA262B36D0BCA606572E9C9ABF3CF38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:264E2B8E0EA262B36D0BCA606572E9C9ABF3CF38
 ```bash
 magnet:?xt=urn:btih:6352566120F80C8F142C8B293E34B8FC0C42167F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ Brunson — невероятно яркий шрифт без засечек, р
 magnet:?xt=urn:btih:C8DC2184520FE535E98640E52ECFEB39EFEA08F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ The Last Mimzy / Последняя Мимзи Вселенной (2007) [H.264]
 ```bash
 magnet:?xt=urn:btih:66B6D645FF1C2FE3C52AB571C4D3F058CDEFF6A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:66B6D645FF1C2FE3C52AB571C4D3F058CDEFF6A2
 magnet:?xt=urn:btih:61CBE4C6F11C6A3FF4A95E7478AA7F7C21869499
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ Corporeal (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:77315C49E222354C34F3FF7EA072DC019B065301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ Corporeal (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:5FB7DC79C23E3DEFD9CBF3509CC3C63AB1901F89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:5FB7DC79C23E3DEFD9CBF3509CC3C63AB1901F89
 ```bash
 magnet:?xt=urn:btih:87B557501519A67BCD3EB9D71778D339ACAD87AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

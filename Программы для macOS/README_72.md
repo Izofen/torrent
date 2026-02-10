@@ -21,6 +21,8 @@ Rename Photos — приложение для одновременного пе�
 magnet:?xt=urn:btih:162400C50462E60A3A827174D78EE74D097BAF58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ SQLPro for SQLit‪e - профессиональный менеджер баз 
 ```bash
 magnet:?xt=urn:btih:A84059A02124ADDBCD893C484F2FCD5330BA5509
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Apeaksoft Blu-ray Player for Mac 1.1.70 [Multi]
 magnet:?xt=urn:btih:4CDE97CF0D44A02414106A26BEDC8F0556993F0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Creative Convert - это простое и красивое приложени�
 ```bash
 magnet:?xt=urn:btih:3FA602133512F264A1A5634AFF38D02A2381F7B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ MarsEdit 5.0.5 [En]
 magnet:?xt=urn:btih:393C64CBC09F5E3B526F5F19BEDAA2860131FDA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Task Office 8.9 [Multi]
 ```bash
 magnet:?xt=urn:btih:151FC931A82E6884D3DC62CCF53C41AF3FF2F10D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Video Converter Ultimate не только является совместимы
 magnet:?xt=urn:btih:8F090DC5BCD0A333D6FA9CEA4144C56231EEDA2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Sketch - это инструмент для векторного дизайна 
 ```bash
 magnet:?xt=urn:btih:39B1D09EDBAA8BDB521AA9121951AE5CA7F2169A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Sketch n Cartoonize - лучшее приложение, чтобы придат
 magnet:?xt=urn:btih:87C1E065E32C0484869A4B17AA2123C9F4145AFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ TextBar позволяет вам использовать скрипты, чт�
 ```bash
 magnet:?xt=urn:btih:FDAB28CB0DB9122BB873834593A76A8791ACC76C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Type Fu 4.8.0 [En]
 magnet:?xt=urn:btih:69D9B11839E3947571459EF2F36533E084A856E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Optimage - это продвинутый инструмент оптимизац
 ```bash
 magnet:?xt=urn:btih:160CACF7F7174270F1D0B484E8BBE51C5EC83E5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ NotesTab - очень простое и удобное приложение (з�
 magnet:?xt=urn:btih:E3A1AB4A6E2297D5923E3B6B56E8C24282DF7E4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Hostbuddy это самый простой способ для управлен�
 ```bash
 magnet:?xt=urn:btih:E454F0AD229B9B807A8F241334FD40CDAF72F298
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Carbon Copy Cloner - утилита для клонирования дисков
 magnet:?xt=urn:btih:EDF47350B77EEC5F6180CBB5FFD552EFDCA48692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Finer Focus - это идеальное средство улучшения ра
 ```bash
 magnet:?xt=urn:btih:B82B8A4C00C22785AA1C37D42CCF8042E14B94CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Convertos - потрясающий конвертер величин.Тип из
 magnet:?xt=urn:btih:14B495A6641F8131D52219E3BAD93C2E8C6DE160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Mac Backup Guru позволяет копировать и вставлять з
 magnet:?xt=urn:btih:A12A507428246C6B41A7E230096DD9F84D9630F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Fontography - Text on Picture‪s‬ 2.0 [En]
 ```bash
 magnet:?xt=urn:btih:51B4B78E8B96DBB7C7777D1EC3E8C27F359B1198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ TurnTable 4.1 [En]
 magnet:?xt=urn:btih:162A8176CC7F78C62AA564BF0D791B2AC40E7DB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ PowerPhotos - позволяет разбить ваши изображения 
 ```bash
 magnet:?xt=urn:btih:4D9F1DFDBF906D0B43A37CAF5842E24A07818967
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Radiantlabs представляет лучшие и самые красивые
 magnet:?xt=urn:btih:AE8583C4152BB6C5C24AD9EB6AD8738177088CDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ SizeMyPics может помочь вам в преобразовании бол
 magnet:?xt=urn:btih:6C4A2F7C27FB675B20CD7B1F9D30F05C5C43F185
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ MediaHuman Video Converter разработан, чтобы сделать ва�
 ```bash
 magnet:?xt=urn:btih:D9F3E845A5C7DC37CF5D14EFCA79553EDD5A34E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ QuickTime Converter Mac также поддерживает преобразов
 magnet:?xt=urn:btih:30A0A1374D88351A95050DC80E65AEEFCA45E886
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ iFastZip - Extract RAR & ZIP & 7Z 9.0 [En]
 ```bash
 magnet:?xt=urn:btih:457F93E9BA034056895F347EE7B7E817DFFB9F5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack FitGirl
 magnet:?xt=urn:btih:7214A458E7FBF6DBDCEA9A07721F8D1556E708B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:7214A458E7FBF6DBDCEA9A07721F8D1556E708B4
 magnet:?xt=urn:btih:60E94A83DCA88B2A72490EFF1DFD28399F859233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:60E94A83DCA88B2A72490EFF1DFD28399F859233
 ```bash
 magnet:?xt=urn:btih:9A03CA96CEFAD971E314FA21ED42392D602DA532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:9A03CA96CEFAD971E314FA21ED42392D602DA532
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Berserk: Ougon Jidai Hen | Берсерк | Berserk Golden Age Arc | Берсе�
 ```bash
 magnet:?xt=urn:btih:166DB4F59C02F7F49F26733CC461BF62EED407DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:166DB4F59C02F7F49F26733CC461BF62EED407DA
 magnet:?xt=urn:btih:147F87DF8BA94FFBA59064D6C5AFEC6B966AACC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:147F87DF8BA94FFBA59064D6C5AFEC6B966AACC9
 ```bash
 magnet:?xt=urn:btih:6021FDDF3193BEF34AE33182F1C54817096F7A73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:6021FDDF3193BEF34AE33182F1C54817096F7A73
 magnet:?xt=urn:btih:89016691312C56037CAA188348992C87D9EAB520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Human: Fall Flat – приключенческая головоломка с п
 magnet:?xt=urn:btih:8D2216E92E0A7E3D9966D5EC4796C3E462527382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ KELDER (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D2F9E5AD3DBE3E715C6B18939BE73725F392CCD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:D2F9E5AD3DBE3E715C6B18939BE73725F392CCD0
 magnet:?xt=urn:btih:5C625D74A838836A05655FDE8CBDBA5126DE2EFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:5C625D74A838836A05655FDE8CBDBA5126DE2EFC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:5C625D74A838836A05655FDE8CBDBA5126DE2EFC
 magnet:?xt=urn:btih:E661518ACEA315A969CCB5DDDAE933C9DBFE6AD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:E661518ACEA315A969CCB5DDDAE933C9DBFE6AD5
 ```bash
 magnet:?xt=urn:btih:5CE5C6BFB78CA87EFA953D3E6A84160C1874BC6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Futuremark 3DMark 2.32.8426 for Enterprise RePack by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:B6196F2ABD2B9FD440773F585CA79EEEA7E3A842
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:B6196F2ABD2B9FD440773F585CA79EEEA7E3A842
 ```bash
 magnet:?xt=urn:btih:AED5A9DDA551EB7CE89102FDE7F49D5C9805E442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:AED5A9DDA551EB7CE89102FDE7F49D5C9805E442
 magnet:?xt=urn:btih:56A9859B48C3363CB3851F729457828CB5B7BB2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ SnowRunner (2020) [Ru/Multi] (38/dlc) Repack FitGirl [4-Year Anniversary Edition
 ```bash
 magnet:?xt=urn:btih:8C62E5732AA3A0D614D89501624B72109A05CA7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Ef - a Fairy Tale of the Two Original Soundtrack Collection (2007-2009)[FLAC]<OS
 magnet:?xt=urn:btih:3F1F0BDB0421957C88D20936E7F46FF79DB5CF27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:3F1F0BDB0421957C88D20936E7F46FF79DB5CF27
 ```bash
 magnet:?xt=urn:btih:A02FBFB65529D7EB32328128FECDE2D8D3035327
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Dungeons & (and) Dragons Neverwinter Nights 2: Enhanced Edition (2025) [Ru/Multi
 magnet:?xt=urn:btih:9D84997BDF043305DF8F6B49724371B5EF7E4E5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Lies of P (2023) [Ru/Multi] (1.11.0.0/dlc) Repack Wanterlude [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:78A1FD6BCD991B53C54D9B53CFBBE9AB31A36292
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:BDB44266744F3ECE6FDF1E94EC7B7AB0E650C388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:BDB44266744F3ECE6FDF1E94EC7B7AB0E650C388
 ```bash
 magnet:?xt=urn:btih:5A38575353EF3DCEFFE1D383C9B4DBE1B9FE25A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:5A38575353EF3DCEFFE1D383C9B4DBE1B9FE25A4
 magnet:?xt=urn:btih:3462B8250CFA3795FC2AA34E8EAAA413013F72E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.11.0.1/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:90CC32B466D1A5CC932B32A86FF8970C0358FFAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

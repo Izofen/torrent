@@ -22,6 +22,8 @@ VA - Anything and everything assorted (2025) [MP3|320 Kbps] <Electronic, Easy li
 magnet:?xt=urn:btih:7F0CD2D9E004D890601375DDD9E2AA1253152A73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - National Pop Dance Music Vol.120 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 ```bash
 magnet:?xt=urn:btih:4352377A7BE547161206A7C0E340CB54DB5B5FEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Sofia Bellini - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Italodisco, I
 magnet:?xt=urn:btih:B0697099B1E10B7126623E25EA8FABA2B1ACB505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Compilation Part 192 Electronic (2025) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:8FDA48B46E28FD83904E2B9ADE88D2F219209FF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Compilation Part 194 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 magnet:?xt=urn:btih:7C5811CFEBD549BAB8A72E06D554A78BCF1C0554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Talking Luna - Compilation (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco
 ```bash
 magnet:?xt=urn:btih:FF5ED598F293968B3A6D491A1C60A3710BA49EF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Compilation Part 191 Electronic (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:777205E6BA53D0BBAEA9FA519F206B39806C50DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Compilation Part 190 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 ```bash
 magnet:?xt=urn:btih:757BC4C9D95684FC5190E9689BCEEDDB4E98C747
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Musical kaleidoscope part 53 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 magnet:?xt=urn:btih:CCEC7D93C82699F80DD84543390A6D3B0E545EA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Alex Christensen - Compilation (2025) [MP3|320 Kbps] <Instrumental, Vocal, Other
 ```bash
 magnet:?xt=urn:btih:2F7CFFF19F3D0D0F5216B705AACF5C032E26089E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Compilation Part 193 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 magnet:?xt=urn:btih:01C1DBC6733E5C38B64330603CC97255F40307E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Romantic Dreams - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Disco, Ital
 ```bash
 magnet:?xt=urn:btih:32773D72484D4A72230BD327F875B6A9074A0FE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Elvis Presley - Compilation (1956-2003) [MP3|320 Kbps] <Rock & Roll, Rockabilly,
 magnet:?xt=urn:btih:A9A7103565E61BE91DA375DB3E6922806C70DE20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Sofia Bellini - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Italodisco, I
 ```bash
 magnet:?xt=urn:btih:A92E96B1683480C41DDF3D79E598F2F6CA3011D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Romantic Dreams - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Disco, Ital
 magnet:?xt=urn:btih:96270272C507A69EE491FB395ABFBF7E811D633F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Sofia Bellini - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Italodisco, I
 ```bash
 magnet:?xt=urn:btih:398AD7A6BB3AF9C7C672939AD12736DF7D7EC902
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Ten Years After - Live compilation (2025) [MP3|320 Kbps] <Hard Rock>
 magnet:?xt=urn:btih:E25736848BD68424745CAC8B6689DE4D184B3E11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Record Super Chart 13.09.2025 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:27764711006F77F09A1E1590EE9EF5F8803989AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Club Beats (2025) [MP3|320 Kbps] <Club, Dance, Other>
 magnet:?xt=urn:btih:B42F3C3298D958ED1ECAE26BEBFD5C40319A8E98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Xezzo - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:5CDB31E637DE95D589816ADF461B758A43AF32A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Anna Zueva - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Easy Listening, 
 magnet:?xt=urn:btih:AE822914D26A189E7CE4DE7736B271E3F48C597F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ VA - Night Rider 9 (2025) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:5D4C8676E3AD74F1F2B570A20C3F2AF2CCC62083
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Reyvi - Favorites Collection Part 4 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:FCB41EBD1B81797DC9E55727DAA70786AD3DB524
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ VA - Summer Pop Show (2025) [MP3|320 Kbps] <Pop, Dance, RnB>
 ```bash
 magnet:?xt=urn:btih:076B2331B59D20034291569D97705A490932DF61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Xezzo - Favorites Collection Part 3 (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:7F8BCEDFFF7A5616EBC3F22814769EBC1F1028B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ VA - Music News For Forum vol.134 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:7E4A5784DE9C9B35AC736CDC2E61313DF6C237F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Lookism | Лукизм [2022, ONA, 8 из 8] WEBRip 1080p raw+rus
 magnet:?xt=urn:btih:2FB1E1DB342FA389526C0AD5AA56CA934C11A863
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Wise Registry Cleaner - утилита для безопасной чистки 
 magnet:?xt=urn:btih:9B6121F6B14B8F2A9A595DD12C9F402DCD9CD2E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:9B6121F6B14B8F2A9A595DD12C9F402DCD9CD2E1
 ```bash
 magnet:?xt=urn:btih:BB0FED901F13676EFABF0480E2D023974FFCA4C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ VA - Легкая музыка (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:6558099A91551E38503366B41C14F1EC9330F202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:6558099A91551E38503366B41C14F1EC9330F202
 ```bash
 magnet:?xt=urn:btih:4E6DEC76C9B4B421D1752914CD8F8248476F89AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:4E6DEC76C9B4B421D1752914CD8F8248476F89AA
 magnet:?xt=urn:btih:A1A5EA3E8694061BB82D1A2B38C2EBE9F9CC71D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:A1A5EA3E8694061BB82D1A2B38C2EBE9F9CC71D4
 magnet:?xt=urn:btih:A1A3829D0F87B1A3043C277E167616F77A3294B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:A1A3829D0F87B1A3043C277E167616F77A3294B3
 magnet:?xt=urn:btih:DF7962F7B760508E70635B7412C780F3C82B850C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:DF7962F7B760508E70635B7412C780F3C82B850C
 ```bash
 magnet:?xt=urn:btih:452615A46AFC607044EE21D2DE20C4895FFAEBD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:452615A46AFC607044EE21D2DE20C4895FFAEBD1
 magnet:?xt=urn:btih:7326BEFB8320C82EEBFCE639F8DA39F5D50EEEA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:7326BEFB8320C82EEBFCE639F8DA39F5D50EEEA7
 ```bash
 magnet:?xt=urn:btih:DD40C51EAB35B4CA7106ECE91B51A5253F104A43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:DD40C51EAB35B4CA7106ECE91B51A5253F104A43
 magnet:?xt=urn:btih:A066E96D36BFBA5FE912AED39C21BB638CDAF894
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:A066E96D36BFBA5FE912AED39C21BB638CDAF894
 ```bash
 magnet:?xt=urn:btih:F1F2E8AA090FBD9CCE012BE590FB139D06966A2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ Clonezilla - многофункциональный инструмент для 
 magnet:?xt=urn:btih:424474C4D866396E4F55E5318A49C13E5AEBB875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ Paul Anthony | Техники и приемы для портативного ф
 magnet:?xt=urn:btih:F44E31A74E2075B804BDD93654518C5D9A17D5F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:F44E31A74E2075B804BDD93654518C5D9A17D5F9
 ```bash
 magnet:?xt=urn:btih:58F5B9510804DD079E2313DB811B6E01538603B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:58F5B9510804DD079E2313DB811B6E01538603B2
 magnet:?xt=urn:btih:77A2134D4F70CAAD9A56D2E55E86C11EBB6871C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ AOMEI Backupper – программа для создания резервно�
 magnet:?xt=urn:btih:C1192FA4F47059492900EDE20CE5791C7AB8F258
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ PBS. Экспедиция со Стивом Бакшоллом / Expedition with
 ```bash
 magnet:?xt=urn:btih:0253F576839539C06557698A3F9C5BAD1F1AC1B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ SystemRescue - восстановительный диск, основанный
 magnet:?xt=urn:btih:CBA2F46A5C5F1069A9867AB9B55E9BDBC03A5640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:CBA2F46A5C5F1069A9867AB9B55E9BDBC03A5640
 ```bash
 magnet:?xt=urn:btih:E80DE8101B96AA6821198924DA16038DC2033067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:E80DE8101B96AA6821198924DA16038DC2033067
 ```bash
 magnet:?xt=urn:btih:E55249F29431D21C093EDB22C80397F5B3E6113D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:E55249F29431D21C093EDB22C80397F5B3E6113D
 magnet:?xt=urn:btih:DADE1D66798A88B6FD950C8DED2C04C3C68A7B2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:DADE1D66798A88B6FD950C8DED2C04C3C68A7B2E
 ```bash
 magnet:?xt=urn:btih:D2370F63C88D29818058E160008516F50E40FD80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ Chromium-Gost — это модификация стандартного бра�
 magnet:?xt=urn:btih:15451CA9FC7179C23027B93B24FE5D1F291C265F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:15451CA9FC7179C23027B93B24FE5D1F291C265F
 ```bash
 magnet:?xt=urn:btih:9B69D818DC2BE63AFDB8029F7E3DA107FFBD2F1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

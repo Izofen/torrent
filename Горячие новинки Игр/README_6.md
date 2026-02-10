@@ -19,6 +19,8 @@ Keeper (2025) [Ru/Multi] (1.121.2146.0) Repack Other s
 magnet:?xt=urn:btih:2E1726537AE88902B08B49DBB9D351A193E11996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Keeper (2025) [Ru/Multi] (1.121.2146.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:D333DF3E862B95CCBAD71ECFFA63DBF8F60A3CC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Unyielder (2025) [Multi] (1.0.1) Scene Tenoke
 magnet:?xt=urn:btih:6C0B4B30D01067DE03CDB842607F1B605F19AFF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Train Sim World 6 предлагает освоить три уникальны�
 ```bash
 magnet:?xt=urn:btih:29E118B393212CE34465293B8100370DE5960C60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Train Sim World 6 предлагает освоить три уникальны�
 magnet:?xt=urn:btih:CBC337DA4BB19A08155D3D2984C6ED1D8C982987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Industry Giant 4.0 (2024) [Ru/Multi] (1.0.0-s.45+15021/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1CEE5A6B74ECA4CBE5258761926DF9AAC0FF518B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.1.0/dlc) Repack Let'sРlay [Deluxe Edition
 magnet:?xt=urn:btih:4F16DF6C46614E8A5C86B4D9A0ADA93E93313419
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Thief's Shelter - это 3D Point and Click Psychological Adventure, где ми
 ```bash
 magnet:?xt=urn:btih:BEBF70C10E2B2110D8CB3F98E75B35D239CC0A38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Lessaria - это наследник Majesty. Мы возвращаем на с�
 magnet:?xt=urn:btih:9C437E5743F385ECD7D9717E5C89DE113F75ED4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Erannorth Renaissance - это RPG, в которой каждое решени�
 ```bash
 magnet:?xt=urn:btih:5BA9B73ADB757F5B306037EF3CD6306129CEF3B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.1.0/dlc) Repack Wanterlude [Deluxe Edition
 magnet:?xt=urn:btih:306BAFBDA15F54F7D8CF80137A5E03FC47557131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Lords of Ravage - это тактическая ролевая с элемент
 ```bash
 magnet:?xt=urn:btih:2CB42DB3A00C99CD83EFE1F2ECEEB9723118E7C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Scene Rune 
 magnet:?xt=urn:btih:E4F92CD15BA5D11082C5B738769CC5B44C2EBA33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Painkiller - это современное переосмысление куль
 ```bash
 magnet:?xt=urn:btih:66F62C32A914F72345A1C04C6EEDE3D041F82AAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ ILA A Frosty Glide (2025) [Ru/Multi] (1.0.0.5) Repack Let'sРlay
 magnet:?xt=urn:btih:FBAD7ADCD11323E87B36866C15B2D11B207B8792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Painkiller - это современное переосмысление куль
 ```bash
 magnet:?xt=urn:btih:FD6E3CA3E64DBEC3E2DB7C706CE238D2D1F7C94D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Vampire The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack Let's
 magnet:?xt=urn:btih:BED1B32723A8564E6D7A0746F393604D47F72F79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Painkiller - это современное переосмысление куль
 ```bash
 magnet:?xt=urn:btih:879686469AE4EE6083769EEDB90FF4A28E312617
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (46047/dlc) Repack Othe
 magnet:?xt=urn:btih:AE0ECBA304B671BF4AA956658542C1811893C111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Bye Sweet Carole - это уникальная хоррор-игра, сочет
 ```bash
 magnet:?xt=urn:btih:D6F4F30721471111B993ADEB8B92D36E213A77C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Absolum создана с любовью командой мечты, котор
 magnet:?xt=urn:btih:48EEF111D25EF3D5CA09EBC0B8F9094A0FC7B0FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Dispatch - это комедия о рабочем месте супергеро
 ```bash
 magnet:?xt=urn:btih:C68A36C2A226AD9C8CB41C8A9C34482AF1578BCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Double Dragon Revive - это переосмысление оригинальн�
 magnet:?xt=urn:btih:8FEDFA0CFA2799E757880D5B8066EE4D2F632649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Dispatch (2025) [Ru/Multi] (1.0.14753/dlc) Scene Rune [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:A4A7939FB42F6820913069ECAB4F96326627B211
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Dispatch (2025) [Ru/Multi] (1.0.14753/dlc) Repack seleZen [Digital Deluxe Editio
 magnet:?xt=urn:btih:FEAC67DF0A78FE73360720495C9A860F55D1F78F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Vampire: The Masquerade - Bloodlines 2 (2025) [Ru/Multi] (0.1.26.2.46023.12/dlc)
 ```bash
 magnet:?xt=urn:btih:1BB3417F9FCE109C202D9DC36E3A9C1BABFA10EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

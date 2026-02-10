@@ -19,6 +19,8 @@ Far Cry 5 (2018) [Ru/En] (1.011/dlc) Repack xatab [Gold Edition]
 magnet:?xt=urn:btih:694EE89346273FCD2600AA2E4BC76B34385ABD89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:694EE89346273FCD2600AA2E4BC76B34385ABD89
 magnet:?xt=urn:btih:7B4FFF51B0C118EA9C88A9A66AFEA14D2AA46085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:7B4FFF51B0C118EA9C88A9A66AFEA14D2AA46085
 magnet:?xt=urn:btih:93C05B546FCC469C24F67B43E598FB3923A201E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:93C05B546FCC469C24F67B43E598FB3923A201E6
 ```bash
 magnet:?xt=urn:btih:2238889ABA52DF78608B6806E890EEFD4F07943F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Minecraft это игра наподобие песочницы в которо�
 magnet:?xt=urn:btih:860B8BFD1E091F7A12C5D35C080AFE642394A9AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Minecraft - строительная компьютерная игра от пе
 magnet:?xt=urn:btih:3ABC5DEB209D80D02C17C8E9737C38F177F3B5DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Battlefield 3 оставляет позади всех своих конкуре
 ```bash
 magnet:?xt=urn:btih:CC3D330FFD5E998BF81B33D2087B1A8D77791CF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Windows 10 (x86/x64) + Office 2016 20in1 by SmokieBlahBlah 09.12.15 [Ru]
 magnet:?xt=urn:btih:E87EF6768F6734C20BF740823C9C7674EA1B2232
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Hard West (2015) [Ru/Multi] (1.3) SteamRip Let'sРlay [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:B0D01CCABBB285F86CDB9A49B37F39072CE8B0B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:B0D01CCABBB285F86CDB9A49B37F39072CE8B0B3
 magnet:?xt=urn:btih:65F24A5DDFCC7495407EB109F2187A6FCC4B966B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Dead Space 2 (2011) [Ru/En] (1.1/upd1/dlc/tr) Repack =nemos= [Limited Edition]
 ```bash
 magnet:?xt=urn:btih:658814C1199979286D995719CB0105130F555D4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Call of Duty возвращается к истокам. Call of Duty®: WWII - 
 magnet:?xt=urn:btih:C506D054A1F7EA1B4741513BC4E41739031A7CC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:C506D054A1F7EA1B4741513BC4E41739031A7CC7
 magnet:?xt=urn:btih:482CD25C7969F56C75CB6F3B2E64BB37CD153357
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:482CD25C7969F56C75CB6F3B2E64BB37CD153357
 ```bash
 magnet:?xt=urn:btih:D51BCB9EB311156038027D1B9DEBBCA59D1CEF90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ Divinity II: The Dragon Knight Saga / Divinity 2: Пламя мести [Ru\En] 
 magnet:?xt=urn:btih:1C39DBC019BF7BF7610955343490699CF84D31C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Adobe Illustrator CC – это принятое в качестве отрас�
 ```bash
 magnet:?xt=urn:btih:9F67A66EED49103B0042884337CE5468DA87D118
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ Adobe Premiere Pro CC - это мощный, настраиваемый реда
 magnet:?xt=urn:btih:9F8CF7F46D226E2673982F77BB563B2EFBF1ABB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:18558319C8367711EE7B5F943E051F5F96C2D707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Adobe InDesign CC — профессиональный продукт для п�
 magnet:?xt=urn:btih:0889375430D23AF4828FDC01C611AF73C44F15B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:AFB344803929D17DCFFDC98E85817F195330A4F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Malwarebytes Anti-Malware - новая версия программы от со
 magnet:?xt=urn:btih:4822015BE6338091CB019254060608D423B55D06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Radiocent - бесплатная программа для прослушива�
 ```bash
 magnet:?xt=urn:btih:483729C46E108607BB92C822D262685FD21B77EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ AMD представила программное обеспечение Radeon 
 magnet:?xt=urn:btih:DFAAC13A77DF9F19375D18C9C88E4EFDDCEB33A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Far Cry 5 (2018) [Ru/Multi] (1.011/dlc) License CODEX [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:3D60FD514D2AC91A6ED214A8CE8530244B7B4BA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ WolfensteinII: The New Colossus — долгожданное продолжен�
 magnet:?xt=urn:btih:6CA4D95F0A4FB41583493D66C6B03C35CB216A05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Wolfenstein II: The New Colossus / Wolfenstein 2: The New Colossus (2017) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:CC2886075803869FDFF0C83926A5742A3F3393C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

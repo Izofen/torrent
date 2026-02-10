@@ -1,3 +1,29 @@
+###  Публикация: 1024287   (717765) от 08.06.2016
+
+Уоррен Фейхи | Храм демонов (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_717765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hовый роман от автора бестселлера «Фрагмент»! После одного из самых потрясающих открытий в истории человечества – обнаружения уникального разумного вида, обитающего на острове Хендерс, – биологи Нелл и Джеффри Бинсвэнгер получают загадочное и головокружительно щедрое предложение одного российского олигарха посетить и исследовать уникальную искусственную экосистему, (   Читать дальше...   )Жанр: Фантастика. Фэнтези. МистикаПродолжительность: 11:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C563991E0EA4F3FD062E17EEAAC245C90D2D8B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024184   (718155) от 08.06.2016
 
 Вениамин Каверин | Бочка (2015) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:3F08D279F6D75461B6744C66361EE4B7C94EF3B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:3F08D279F6D75461B6744C66361EE4B7C94EF3B3
 magnet:?xt=urn:btih:48464F1DC2D5BDD9E2DA595B6655059EB8EB0607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:48464F1DC2D5BDD9E2DA595B6655059EB8EB0607
 ```bash
 magnet:?xt=urn:btih:4C20DDF33F3C0B1A634CE1083E821D5FD06AFD82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:4C20DDF33F3C0B1A634CE1083E821D5FD06AFD82
 magnet:?xt=urn:btih:0638A19FB6DE14CA7F590707AFEB716D0902EEC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:0638A19FB6DE14CA7F590707AFEB716D0902EEC3
 ```bash
 magnet:?xt=urn:btih:0106AE894AF081B34A69436551B862A51003BE8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:0106AE894AF081B34A69436551B862A51003BE8F
 magnet:?xt=urn:btih:E8FF0195C00CDDFF9838D2165CC5509C21D6BBAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:E8FF0195C00CDDFF9838D2165CC5509C21D6BBAB
 ```bash
 magnet:?xt=urn:btih:3D10A7ABEB6D4DC8742643AF784B7C3D07E5D1AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:3D10A7ABEB6D4DC8742643AF784B7C3D07E5D1AB
 magnet:?xt=urn:btih:E7B4549EC9514B8B0D7FC1124A290C7FA7E1C255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:E7B4549EC9514B8B0D7FC1124A290C7FA7E1C255
 ```bash
 magnet:?xt=urn:btih:9A7D6A336BCA95E5F37B8E28D086E08464B9E9ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:9A7D6A336BCA95E5F37B8E28D086E08464B9E9ED
 magnet:?xt=urn:btih:B2DA7C5636351EABF3DF2E48719644B5132086BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:B2DA7C5636351EABF3DF2E48719644B5132086BB
 ```bash
 magnet:?xt=urn:btih:C17862E06B29EA0B495ECB795E138EB45FA6B35B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:C17862E06B29EA0B495ECB795E138EB45FA6B35B
 magnet:?xt=urn:btih:501A1E98ED5CCCC4FF226C1D76AF7C44D28766CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:501A1E98ED5CCCC4FF226C1D76AF7C44D28766CD
 ```bash
 magnet:?xt=urn:btih:9398CE46FC7185CEC474B8CD30A5583E453C71EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:9398CE46FC7185CEC474B8CD30A5583E453C71EB
 magnet:?xt=urn:btih:2C13BEB56B3DBCE10BB0D91E544052A3BCF089B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:2C13BEB56B3DBCE10BB0D91E544052A3BCF089B7
 ```bash
 magnet:?xt=urn:btih:A5738411FC5FC9C9AA58DBA8F389098C05E832F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:A5738411FC5FC9C9AA58DBA8F389098C05E832F4
 magnet:?xt=urn:btih:75E3ACEA0591646B5120AA11F6F7E51FC07DE868
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:75E3ACEA0591646B5120AA11F6F7E51FC07DE868
 ```bash
 magnet:?xt=urn:btih:FC63625E2C4DAB50F903FCA34E99C613C9926C34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:FC63625E2C4DAB50F903FCA34E99C613C9926C34
 magnet:?xt=urn:btih:0F3CD110ABC8DAD4FC37D65F583514423397D38D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:0F3CD110ABC8DAD4FC37D65F583514423397D38D
 magnet:?xt=urn:btih:8994146766F40882594CAB4BADC4B68826A94657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:8994146766F40882594CAB4BADC4B68826A94657
 ```bash
 magnet:?xt=urn:btih:8EC1E66172DB7231A95E23BF0542A6561858D510
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:8EC1E66172DB7231A95E23BF0542A6561858D510
 magnet:?xt=urn:btih:6F21C1A6F106F7340A63449A1F2D08C8436F4E91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:6F21C1A6F106F7340A63449A1F2D08C8436F4E91
 magnet:?xt=urn:btih:6B42C21798A0CCE8FD2B8B0047327EBC2E8BA2E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:6B42C21798A0CCE8FD2B8B0047327EBC2E8BA2E5
 ```bash
 magnet:?xt=urn:btih:7D9CD6E13D4C73D084797E54F849CE0656E9142A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +659,8 @@ magnet:?xt=urn:btih:7D9CD6E13D4C73D084797E54F849CE0656E9142A
 magnet:?xt=urn:btih:71704FC30981A81EB741DFC3F8F5571283A101A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,31 +685,7 @@ magnet:?xt=urn:btih:71704FC30981A81EB741DFC3F8F5571283A101A1
 magnet:?xt=urn:btih:7CC00AD753236299E67B8106A8A58CCFD0BD2D05
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400146   (720922) от 04.08.2020
-
-Роман Злотников, Даниил Калинин | Ярость обреченных (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_720922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Армия Рогоры уничтожена, Когорд мертв, а его наследники скрестили клинки в споре, кому выжить и повести горстку уцелевших…
-Республика победила?
-Но все меняется в одночасье: в Рогору вторгается огромный корпус Заурского султаната – грозного хищника Востока. Смертельная опасность нависла не только над разбитым королевством, но и над Республикой, и вчерашние враги вынуждены (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастикаПродолжительность: 08:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA5CBA553EDD77F0877EA3628D709ABE5D2C72D9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Anjuna25 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
 magnet:?xt=urn:btih:21B4E1A4C349B2F3B799E65D4715E917E5B15238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ AM 1984 - Star Horizon (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowav
 ```bash
 magnet:?xt=urn:btih:A14C528FC004587724A766DF0F15FF5881A80E11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - EDC Orlando 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 magnet:?xt=urn:btih:F01B83EA6146E469A44CFF31F00FC6C315A8A88E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ AM 1984 - Best Of Remixes & Vocals (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthwa
 ```bash
 magnet:?xt=urn:btih:AEB914BCE4C25D993E2971615CCB914ABC1A05E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Workout Remixes (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
 magnet:?xt=urn:btih:061F12FBFF016A6A722314F819317401C8D2CCDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Skrillex и Дэмиан Марли, младший сын Боба Марли, 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ VA - 5 Years Of Noir Music (2012) [MP3|320 кб/с]<Tech House, Deep House>
 magnet:?xt=urn:btih:6E1543DC36791DC6E7CF97DA6DA872E1A59BAFD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +237,8 @@ Sherazade - La Loungerie (2006) [MP3|320 кб/с]<Ethno-Lounge, New age>
 magnet:?xt=urn:btih:A08ABE43B0185B9FDB225A17A9D899F54719B715
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +265,8 @@ VA - Armin van Buuren - A State Of Trance 1250 (2025) [MP3|320 Kbps] <Trance, Pr
 ```bash
 magnet:?xt=urn:btih:EC36ECB5EFDA2ACDD19EE8274DD78CE6A0CBE7CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +295,8 @@ VA - Ori Uplift - Uplifting Only Episode 665 (2025) [MP3|320 Kbps] <Trance, Upli
 magnet:?xt=urn:btih:7685A29BFDA1EE0DB83C98049824EA93EBD24F81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +323,8 @@ VA - Live @ Amsterdam Music Festival, Johan Cruijff ArenA, ADE, Netherlands (202
 ```bash
 magnet:?xt=urn:btih:A2FE5B03451CDE68BA8FB31138E119388A607FAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +353,8 @@ MEDUZA - Live @ Meduza³ (Futur Stage, Kappa FuturFestival) Turin, Italy (2025-0
 magnet:?xt=urn:btih:D64B614595A49AB6D695A8EC6EB5406482BEF402
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +381,8 @@ VA - Gentle Morning: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Ba
 ```bash
 magnet:?xt=urn:btih:39803193B42C93FBA7918EF6A129470644B8EF99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +411,8 @@ VA - Redux Selection, Vol. 11 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tr
 magnet:?xt=urn:btih:E80DDAD5040FC77570518B9EB25A7B420D73528D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +439,8 @@ Perturbator - Age of Aquarius (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Darkwa
 ```bash
 magnet:?xt=urn:btih:6BB937B87C9D3D494DB577E2075DC11997FA1347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +469,8 @@ VA - Suanda Music 500 (The Official Album) (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:2C73BCD349F7EAF0A807BC29940DE2CCCAA28DD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +497,8 @@ Markus Schulz - Global DJ Broadcast Afterdark (2025) [MP3|320 Kbps] <Trance, Tec
 ```bash
 magnet:?xt=urn:btih:A9E945E29237B2F13F2FE26474755C8CC24E10A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +533,8 @@ Hooverphonic - 11 альбомов (1996-2012) [FLAC|Lossless]<Trip-hop, Lounge,
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +568,8 @@ Haujobb (haujobb.) был сформирован в 1993 году в Герма�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +596,8 @@ VA - Ibiza Winter 2026 (Chill Out Cookies from the Heart) (2025) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:E6578882343843557F45514010C86154F77ADCE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +626,8 @@ VA - Top 10 June 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Tran
 magnet:?xt=urn:btih:A67D11ADBFF181E739555C7C389533270D13A7E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +655,8 @@ VA - Top 10 July 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Tran
 magnet:?xt=urn:btih:37594C19ABEB9AAB8CB73737E3DDABCDA4B5B38E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +683,8 @@ VA - Top 11 August 2025 Emotional and Uplifting Trance (2025) [MP3|320 Kbps] <Tr
 ```bash
 magnet:?xt=urn:btih:E7B918C253E8CD67FFC3B11B2CF022EF19C09A5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,6 +717,8 @@ Pro>Tech – Orbiting Cathedrals (1997) [FLAC|Lossless] <Breaks, Techno, Industr
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +747,8 @@ Ministry Of Sound - The Annual Spring (3 CD) (16.05.2012)
 ```bash
 magnet:?xt=urn:btih:C6CE6834A7B9E9E257466E952164165A8ED0157B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -732,6 +782,8 @@ A-ha - Lifelines (Japanese version) (2002) [APE|Lossless]<Pop, New Wave, Synth-p
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

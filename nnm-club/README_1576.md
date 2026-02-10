@@ -22,6 +22,8 @@ Coldplay - Moon Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
 magnet:?xt=urn:btih:E7A6CF20593742F0273E04CCE8C85F0B6084C4E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ SpecCraft - это динамический подавитель резонан�
 magnet:?xt=urn:btih:574516D878224989EE0920BFB133604A12C5ED32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:574516D878224989EE0920BFB133604A12C5ED32
 ```bash
 magnet:?xt=urn:btih:9146D7F5FC6ED0EECC2223C93B3F9B26873BE552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Coldplay - Moon Music (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Ro
 magnet:?xt=urn:btih:8B93F7798D2C3D1702F13DFDE49664E12C5221A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:8B93F7798D2C3D1702F13DFDE49664E12C5221A9
 magnet:?xt=urn:btih:14E5DD38F17427BE39576A7125D70B171A5478B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:14E5DD38F17427BE39576A7125D70B171A5478B0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:14E5DD38F17427BE39576A7125D70B171A5478B0
 magnet:?xt=urn:btih:0376740FF3BBEA88A4A31DBDC73830145F649BD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Space Prison бросает вас в холодную реальность га
 ```bash
 magnet:?xt=urn:btih:82E6B48DB36B3B250EC6F32343B0E87E6F18890E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:82E6B48DB36B3B250EC6F32343B0E87E6F18890E
 ```bash
 magnet:?xt=urn:btih:B03021E4D5533E36AC993D0173A0988B0E91903D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:B03021E4D5533E36AC993D0173A0988B0E91903D
 magnet:?xt=urn:btih:A1F36753A248D1147427969D545301FCF55E069F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ Yars Rising (2024) [Multi] (1.1.0) Repack FitGirl
 magnet:?xt=urn:btih:4300340189E2C6177977DDB0FBFCBBAE81569864
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:4300340189E2C6177977DDB0FBFCBBAE81569864
 ```bash
 magnet:?xt=urn:btih:7158B6B3FA1A95806E706386DA026310E885E5A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:7158B6B3FA1A95806E706386DA026310E885E5A4
 magnet:?xt=urn:btih:67C5D980171ABA9EB7BFF0F1F0B96F961CE72146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:67C5D980171ABA9EB7BFF0F1F0B96F961CE72146
 magnet:?xt=urn:btih:BBFBCC63CA82CAB78827AB15FAA78D544529B6EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:BBFBCC63CA82CAB78827AB15FAA78D544529B6EF
 ```bash
 magnet:?xt=urn:btih:636232C3A7087B620CF152BE558E34C17DCA9E62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:636232C3A7087B620CF152BE558E34C17DCA9E62
 magnet:?xt=urn:btih:41BEFF5732FECC23EF21A1C14D143CB0719DB981
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:41BEFF5732FECC23EF21A1C14D143CB0719DB981
 ```bash
 magnet:?xt=urn:btih:6C6613623495722295174AF950768EB2D4359627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:6C6613623495722295174AF950768EB2D4359627
 magnet:?xt=urn:btih:6A2EF1D4E0D6B1FE9C2BE3159779EEB177DF3A1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:6A2EF1D4E0D6B1FE9C2BE3159779EEB177DF3A1E
 ```bash
 magnet:?xt=urn:btih:5A4E5FFE71BA8A7DC4C61FBBB79B58A6E61CB99A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ Media Player Classic Home Cinema - удобный во всех планах м�
 magnet:?xt=urn:btih:9D1C67005C8AFD63BB763B8F045033D6E300DD56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:9D1C67005C8AFD63BB763B8F045033D6E300DD56
 ```bash
 magnet:?xt=urn:btih:2485A7660FCD0727D89C7212201511A2998CB09D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:2485A7660FCD0727D89C7212201511A2998CB09D
 magnet:?xt=urn:btih:0E0CD3E86D11E4332CEF451A0F8A1D988B404854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:0E0CD3E86D11E4332CEF451A0F8A1D988B404854
 ```bash
 magnet:?xt=urn:btih:64AD2AA47F3E045B04BE7B6457A74CB525234443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ VA - Суперхиты Дискотеки 90-х Vol.3 (2011) [OGG Vorbis|480 Kb
 magnet:?xt=urn:btih:F559C3F02796829EF6970DA88B03494C6488008A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:F559C3F02796829EF6970DA88B03494C6488008A
 magnet:?xt=urn:btih:C3516F6B5AF965C2203151CE8399EB9F9AA7D2FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ Satellite odyssey: Рrologue - открывающая часть серии иг
 ```bash
 magnet:?xt=urn:btih:99322182EAAD2451E89EE4AFBFBEE84EFFC4D2FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

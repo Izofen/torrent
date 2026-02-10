@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1C70FB6D232CB20E6419E7FEE14A15A7989FB2F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:1C70FB6D232CB20E6419E7FEE14A15A7989FB2F6
 ```bash
 magnet:?xt=urn:btih:0F85601D326150441558BCADA074C09AE2561102
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:0F85601D326150441558BCADA074C09AE2561102
 magnet:?xt=urn:btih:74CB9562796E14457EA97EAA11AFA5309FDD73D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:74CB9562796E14457EA97EAA11AFA5309FDD73D2
 ```bash
 magnet:?xt=urn:btih:040CC1BEF7805C6D802F41DC0621266AC9E7B1DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Shazam (шазам) распознает любую песню за секунд
 magnet:?xt=urn:btih:A6866000D76FDF8F205B938B440C2A1021108BCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ AIDA64 2.00 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2ACEC4DFA58AA3AF0C4CA3441F13362DD23AB53F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ VA - Easy Pop 00s (2024) [MP3|320 Kbps] <Pop, Dance, RnB, Rock>
 magnet:?xt=urn:btih:96BA1E1825D006B5EF65B95ECC7820833B0681AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:96BA1E1825D006B5EF65B95ECC7820833B0681AC
 ```bash
 magnet:?xt=urn:btih:039CD28EF43F6FBB15439B60C0B7E06DA2D72D6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:039CD28EF43F6FBB15439B60C0B7E06DA2D72D6B
 magnet:?xt=urn:btih:EDF571257EC4436B9A5344EA84855E755BE501F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:EDF571257EC4436B9A5344EA84855E755BE501F4
 ```bash
 magnet:?xt=urn:btih:EA542C1E11885AAEA0802AD1CAF0AD3593D4BC94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ DesktopDigitalClock - простые и красивые цифровые час
 magnet:?xt=urn:btih:1C4C9B8EDD5D3F3529359B97713F97411B465A6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:F7B0BA50E23F2B2E7EBAC1452CA2CC6392A7AD07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:F7B0BA50E23F2B2E7EBAC1452CA2CC6392A7AD07
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Adobe Photoshop Express - ещё одно крайне нужное и поле�
 magnet:?xt=urn:btih:888B0E5F30179652FC23E9174F08CD47A566E061
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Easy Notes - записная книжка, блокнот бесплатно, �
 ```bash
 magnet:?xt=urn:btih:3678913461BDA4613F86124C570B0AF4AA4F72D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:3678913461BDA4613F86124C570B0AF4AA4F72D4
 magnet:?xt=urn:btih:F6A70280D763BA2B190EA56F9C85BEC73D9FFDC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:F6A70280D763BA2B190EA56F9C85BEC73D9FFDC7
 ```bash
 magnet:?xt=urn:btih:8B29BAAC42482CBCB1CA40520D4FF40267D103F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:8B29BAAC42482CBCB1CA40520D4FF40267D103F4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Marvel | Артбук по фильмам студии Marvel / Marvel Studios: 
 ```bash
 magnet:?xt=urn:btih:E33558A7699C5F2B6A747C6E5FD4A3A08DCE417A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:E33558A7699C5F2B6A747C6E5FD4A3A08DCE417A
 magnet:?xt=urn:btih:C52E83239974A00E1753A66956B51CD10757FCCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:C52E83239974A00E1753A66956B51CD10757FCCA
 ```bash
 magnet:?xt=urn:btih:E30AC4F544C74D3A12B013452400A32DF57310BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Office Installer - программа предназначена для online �
 magnet:?xt=urn:btih:7C9B930682109D06D91E2583758A4F4D6682DC3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:7C9B930682109D06D91E2583758A4F4D6682DC3E
 ```bash
 magnet:?xt=urn:btih:30832F0E52FB948B11FB934BFA51113F991AF3B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:30832F0E52FB948B11FB934BFA51113F991AF3B7
 magnet:?xt=urn:btih:75E62740B932C39A6C5864923FD5EA16AF7B96CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:75E62740B932C39A6C5864923FD5EA16AF7B96CD
 magnet:?xt=urn:btih:82A95C35BCDD7EFAE2C5D8361F54A5F8E8F0B11C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:82A95C35BCDD7EFAE2C5D8361F54A5F8E8F0B11C
 ```bash
 magnet:?xt=urn:btih:F04F5F9524EE8A1F6FC9A3B00A87C162DE3B6A74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

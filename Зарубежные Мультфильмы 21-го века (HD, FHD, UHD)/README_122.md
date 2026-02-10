@@ -1,27 +1,3 @@
-###  Публикация: 1491365   (912094) от 24.08.2021
-
-Спирит Непокорный / Spirit Untamed (2021) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_912094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лаки Прескотт — юная бунтарка, совсем как ее мама, легендарная бесстрашная наездница, которую дочь почти не помнит. После очередной шалости заботливая тетушка Кора, вырастившая девочку, отправляет ее жить к отцу. Теперь все, о чем мечтает Лаки — вырваться на волю из крошечного сонного городка. Все меняется, когда она знакомится со Спиритом — диким мустангом, таким (   Читать дальше...   )Производство: США / DreamWorks Animation, Walden MediaЖанр: Мультфильм, приключения, семейный, вестернРежиссер: Илэйн Боган, Эннио ТорресанАктеры: Изабела Мерсед, Джулианна Мур, Джейк Джилленхол, Марсаи Мартин, Маккенна Грейс, Уолтон Гоггинс, Гари А. Хэккер, Эйса Гонсалес, Андре Брауэр, Люсиан ПересПеревод: Дублированный (Пифагор)Субтитры: Русские (Full), Aнглийские (Full, SDH)Продолжительность: 01:27:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E947C3A29402DE1D0BB15733315E59ECD60A7932
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 633279   (912445) от 24.03.2013
 
 Хранители снов / Rise of the Guardians (2012) BDRemux [1080p]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:E947C3A29402DE1D0BB15733315E59ECD60A7932
 ```bash
 magnet:?xt=urn:btih:D45905885EB329B20DBB6D5DAD172F279E8CBDB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:D45905885EB329B20DBB6D5DAD172F279E8CBDB3
 magnet:?xt=urn:btih:6CD2159D1921E6DE02175A0DBD702CDB9517640C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:6CD2159D1921E6DE02175A0DBD702CDB9517640C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:6CD2159D1921E6DE02175A0DBD702CDB9517640C
 magnet:?xt=urn:btih:D7AD450601BB2F135799ADCB8040C20666D0F99C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:D7AD450601BB2F135799ADCB8040C20666D0F99C
 ```bash
 magnet:?xt=urn:btih:2C8FB7F2F1FA86D7A7A22C7E78B86FB214E7ED36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:2C8FB7F2F1FA86D7A7A22C7E78B86FB214E7ED36
 magnet:?xt=urn:btih:C8D6969C4B9DEB0CA88E62A5FA2A301300DA60A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:C8D6969C4B9DEB0CA88E62A5FA2A301300DA60A6
 ```bash
 magnet:?xt=urn:btih:490F42925C30E997CB4CD77357BD759A75E0EA30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:490F42925C30E997CB4CD77357BD759A75E0EA30
 magnet:?xt=urn:btih:CE37EDB028505B268750761E0884E0F924EE7D95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:CE37EDB028505B268750761E0884E0F924EE7D95
 ```bash
 magnet:?xt=urn:btih:38F81D384E953EA6DBCB8A9FAE9423D0199C2506
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:38F81D384E953EA6DBCB8A9FAE9423D0199C2506
 magnet:?xt=urn:btih:BD729F80ED55FC907041A59CE31589C9791CE78E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:BD729F80ED55FC907041A59CE31589C9791CE78E
 magnet:?xt=urn:btih:9AAC97CF9C79BC4A2E38E67A9CABB39E3F924B7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +304,8 @@ magnet:?xt=urn:btih:9AAC97CF9C79BC4A2E38E67A9CABB39E3F924B7F
 ```bash
 magnet:?xt=urn:btih:023FC3C424487803A909BB25B9E0A53F9109D169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:023FC3C424487803A909BB25B9E0A53F9109D169
 magnet:?xt=urn:btih:015651E909D3E5A5FAB1CC2CAB2F69DA915AAA09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +363,8 @@ magnet:?xt=urn:btih:015651E909D3E5A5FAB1CC2CAB2F69DA915AAA09
 magnet:?xt=urn:btih:A213B85C8D866EEC6479789C988383287F4E4C69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +388,8 @@ magnet:?xt=urn:btih:A213B85C8D866EEC6479789C988383287F4E4C69
 ```bash
 magnet:?xt=urn:btih:2A87EC236CD04897F2B4B29D5BA97C77CCDF2FF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +415,8 @@ magnet:?xt=urn:btih:2A87EC236CD04897F2B4B29D5BA97C77CCDF2FF8
 magnet:?xt=urn:btih:80D6B0ABC818BD48707A9120590D5E0059DC6558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +440,8 @@ magnet:?xt=urn:btih:80D6B0ABC818BD48707A9120590D5E0059DC6558
 ```bash
 magnet:?xt=urn:btih:950802A8DC15AC25E3400C9A74713C1E621F53B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +467,8 @@ magnet:?xt=urn:btih:950802A8DC15AC25E3400C9A74713C1E621F53B2
 magnet:?xt=urn:btih:D451D452AC68CD205BD33FD7FF89035FDB83671C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +492,8 @@ magnet:?xt=urn:btih:D451D452AC68CD205BD33FD7FF89035FDB83671C
 ```bash
 magnet:?xt=urn:btih:3E315AEF2A77CD13C7FC3D74A5D2ACC9F1324614
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +520,8 @@ magnet:?xt=urn:btih:3E315AEF2A77CD13C7FC3D74A5D2ACC9F1324614
 magnet:?xt=urn:btih:4E98650B0521DB599A78C83A28CC57DD23DBBA89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +545,8 @@ magnet:?xt=urn:btih:4E98650B0521DB599A78C83A28CC57DD23DBBA89
 ```bash
 magnet:?xt=urn:btih:01D72AE651AF0CF96D718A0B0A6EF762F18F7B6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +572,8 @@ magnet:?xt=urn:btih:01D72AE651AF0CF96D718A0B0A6EF762F18F7B6B
 magnet:?xt=urn:btih:0DF0A0D493DB24D04E3B9B18362650C8D2CB10CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +597,8 @@ magnet:?xt=urn:btih:0DF0A0D493DB24D04E3B9B18362650C8D2CB10CC
 ```bash
 magnet:?xt=urn:btih:A665350FC246056DCADEBAF6CA50523ECE4A7A41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +624,8 @@ magnet:?xt=urn:btih:A665350FC246056DCADEBAF6CA50523ECE4A7A41
 magnet:?xt=urn:btih:EAA987E010C76EA5099D2D8300BC1C154F8C6C67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +649,34 @@ magnet:?xt=urn:btih:EAA987E010C76EA5099D2D8300BC1C154F8C6C67
 ```bash
 magnet:?xt=urn:btih:58DCA70D8187D89DCF640145383A19B04B513C2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366902   (918360) от 14.03.2020
+
+Камуфляж и шпионаж / Spies in Disguise (2019) BDRip [H.264/1080p-LQ] [hand made 16:9]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_918360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Супершпион Лэнс Стерлинг и молодой ученый Уолтер Беккет — полные противоположности. Жизнерадостный Лэнс с удовольствием каждый день спасает города и страны. Хмурый Уолтер хочет отгородиться от всех в мире собственных изобретений и гаджетов. Но когда события принимают неожиданный оборот, этот маловероятный дуэт вынужден объединиться и проявить все свои способности (   Читать дальше...   )Производство: США / 20th Century Fox Animation, Blue Sky Studios, Chernin EntertainmentЖанр: Мультфильм, Фантастика, Боевик, Комедия, Приключения, СемейныйРежиссер: Ник Бруно, Трой КвонПеревод: Дублированный (iTunes)Субтитры: Русские (форс., полные), английские (полные)Продолжительность: 01:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C851A500062A41697F03CE999DE881E76017E37
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

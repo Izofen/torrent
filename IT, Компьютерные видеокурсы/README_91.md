@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:50EB7B6A71823973EB78F86DBF3AE38F880EE3A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:50EB7B6A71823973EB78F86DBF3AE38F880EE3A9
 ```bash
 magnet:?xt=urn:btih:D957DE1230E174A14F98F6AB19793945328E804F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Lynda.com | JavaScript: Классы / JavaScript: Classes (2018) PCRec [H.264/7
 magnet:?xt=urn:btih:AADB3FDD464688DD50C4447A91E2E03E9B36E1F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Lynda.com | JavaScript: Область видимости / JavaScript: Scope (2
 ```bash
 magnet:?xt=urn:btih:89919E69D0414FF82A8A409B911DE64B20657310
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Excel — незаменимый инструмент для бухгалтер�
 magnet:?xt=urn:btih:ED912C4855470D448189FB638F96931E0F7E7B5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Flutter - фреймворк, разработанный Google - позволя
 magnet:?xt=urn:btih:D2CFAA5151EA57C1103C512B3F50CC317B62B08F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Udemy | Kali Linux Для Начинающих (2018) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:AACF7E9863E849553E9FE1E12F1E4AFCCC5AB3D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Udemy, Andrey Sumin | Android профессиональный уровень (K
 magnet:?xt=urn:btih:9F693B500AB53C6ED79F63B91EED874FD6E84DFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Redmadrobot | Практический онлайн-курс «Дизайн мо
 ```bash
 magnet:?xt=urn:btih:E9161462D6D39E1334B5C056BEEFB195833A99C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:E9161462D6D39E1334B5C056BEEFB195833A99C5
 magnet:?xt=urn:btih:26D5D17E5BDF73AC21841556C37405EC549ECDB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ ITVDN, Евгений Мыца | Android User Interface (2020) PCRec
 magnet:?xt=urn:btih:8E900B9749068F98698BFB8F775D3DB2A099252E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ Udemy, Andrei Dumitrescu, Crystal Mind Academy | Master Python Programming: The 
 magnet:?xt=urn:btih:10F824AC8826E695932B6A19E44375B611AF6D1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Udemy, Helen Kapatsa | Ускоренный курс PyTorch (2021) PCRec [AD]
 ```bash
 magnet:?xt=urn:btih:36E36E60101653C1E7B9660524D5C4CA1E2582F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ Stepik, Алексей Голобурдин | Основы компьютерн�
 magnet:?xt=urn:btih:355AB9A00B333F3B87848D2BC6610C7A7C7C8CE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ Podlodka Crew | Podlodka iOS Crew [Сезон 1-5] (2020-2021) PCRec
 ```bash
 magnet:?xt=urn:btih:104071A751B0542B36FAADAA5D636C6B37D0EBFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ Zero To Mastery Academy (ZTM), Paul Mendes | The Complete Guide to Freelancing i
 magnet:?xt=urn:btih:B11F7321CDAEA600283BA34E8AC03B06FE143FB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ Udemy, Елизавета Кряжкова | Git и GitHub с нуля до пр
 ```bash
 magnet:?xt=urn:btih:38D15310F41732153EEB87155DE7370B04AFE353
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ Rebrain, Fevlake | ClickHouse онлайн-практикум (2021) PCRec [AD]
 magnet:?xt=urn:btih:FEFF85B663DE6A5C553ADCB91006864EE0C52A5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ Udemy, Исмаил Усеинов | Unity Bolt - визуальное прог�
 ```bash
 magnet:?xt=urn:btih:DD19745D0480A169E484CB0594A999ED41A1DE2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ Zero To Mastery Academy (ZTM), Andrei Neagoie, Aleksa Tamburkovski | Web Securit
 magnet:?xt=urn:btih:D0D7BFD41EB5FEF91B8B348E1E92267EC8BF9CCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ Zero To Mastery Academy (ZTM), Andrei Dumitrescu | DevOps Bootcamp: Learn Linux 
 ```bash
 magnet:?xt=urn:btih:0551471D5756F91ED3ADB9B1CC93AF729919931F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ Udemy, Adnan Waheed | PostgreSQL Bootcamp : Go From Beginner to Advanced, 60+hou
 magnet:?xt=urn:btih:B2E0C657EB287DFD4133F18CB80B69E4D3BA87BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ Cybrary | CompTIA Security+ (SY0-601) (2021) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:9C15A8ACD2AACD1BF44B733FC6C02A9B07D8C418
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ Udemy, Trevoir Williams | Entity Framework Core - A Full Tour (.NET 5 and up) (2
 magnet:?xt=urn:btih:9FA3D0A2CBD3A17FA5062CF66FBDE0A72A853F75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ Udemy, Coding Revolution | The complete React Fullstack course (2021 edition) (2
 ```bash
 magnet:?xt=urn:btih:38832428923E8C882D511522E4239AE4AA2747FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +700,8 @@ Udemy, Dennis Ivy | Python Django 2021 - Complete Course  (2021) PCRec [En / En 
 ```bash
 magnet:?xt=urn:btih:B68444635DBE15B14349A7418A2576BADAAFB7D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

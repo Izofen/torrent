@@ -1,56 +1,3 @@
-###  Публикация: 611541   (988106) от 31.01.2013
-
-Рисованная графика - Artworks by Franchesco part 2 [JPEG]
-
->>Графика, Арт, Разное
->>Современное изобразительное искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рисованная графика и иллюстрации от американского художника-иллюстратора Franchesco.
-Его часто называют "дамский угодник-озорник"...
-
-120 изображений
-
-Рисованная графика - Artworks by Franchesco part 1Разрешение файлов: от ~503х725 до ~770х2750Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4B3821038657CCBDC9DD57A03B4334E06001297
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 611497   (988231) от 31.01.2013
-
-Wallpapers - Обои животные [JPEG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_988231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Различные животные:лошади,тигры,птицы и прочая живность.Разрешение файлов: от 1920х1440 до 5000 по ширинеФормат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0AA190E68DAA71692977373A18149815CB56494
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 611768   (988302) от 31.01.2013
 
 Wallpapers - Various nice Wallpapers [1920x1080] [JPEG]
@@ -71,6 +18,8 @@ Various nice Wallpapers [1920x1080].Разрешение файлов: 1920x1080
 ```bash
 magnet:?xt=urn:btih:291C640ACC889FBE872AC29C4D2C236FCE0A4A37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +45,8 @@ magnet:?xt=urn:btih:291C640ACC889FBE872AC29C4D2C236FCE0A4A37
 magnet:?xt=urn:btih:B87196ED4F861FB6CE12E2E351EDAD1983C3DDF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +70,8 @@ magnet:?xt=urn:btih:B87196ED4F861FB6CE12E2E351EDAD1983C3DDF7
 ```bash
 magnet:?xt=urn:btih:29D813B3556407BF16596DEBD16B256FDB7519B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +97,8 @@ magnet:?xt=urn:btih:29D813B3556407BF16596DEBD16B256FDB7519B9
 magnet:?xt=urn:btih:0F7D5D25B574F46D6A1EA9BA7446880EF96850C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +122,8 @@ magnet:?xt=urn:btih:0F7D5D25B574F46D6A1EA9BA7446880EF96850C7
 ```bash
 magnet:?xt=urn:btih:BA10E11B03FDEF0D62CA518DEF0C58BFA756326E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +149,8 @@ Digital Art (29.01.2013)Разрешение файлов: 650×460 - 1600 х 85
 magnet:?xt=urn:btih:C38C5C48E74673C8E680536087B8CF612DF3EE3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +174,8 @@ Wallpapers - Desktop wallpapers vol.3 [JPEG]
 ```bash
 magnet:?xt=urn:btih:D95B1BBEB0106455155FE5352332B89C1C878BDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +201,8 @@ magnet:?xt=urn:btih:D95B1BBEB0106455155FE5352332B89C1C878BDB
 magnet:?xt=urn:btih:C0B1949AB24A444EA846CAF5B417F377397B5439
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +226,8 @@ magnet:?xt=urn:btih:C0B1949AB24A444EA846CAF5B417F377397B5439
 ```bash
 magnet:?xt=urn:btih:C31EF864E0D8EA5A0F0DFEA7111742B20029423C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +253,8 @@ magnet:?xt=urn:btih:C31EF864E0D8EA5A0F0DFEA7111742B20029423C
 magnet:?xt=urn:btih:2566DDC1B094D1E87BAB8116C0B5D439844CEC99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +278,8 @@ magnet:?xt=urn:btih:2566DDC1B094D1E87BAB8116C0B5D439844CEC99
 ```bash
 magnet:?xt=urn:btih:C7A32C4A3A2599183507A90CFBBF175C9474E1EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +305,8 @@ magnet:?xt=urn:btih:C7A32C4A3A2599183507A90CFBBF175C9474E1EB
 magnet:?xt=urn:btih:54B813F97A0390321B06BE4FDF51BF5D25EEBD60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +331,8 @@ magnet:?xt=urn:btih:54B813F97A0390321B06BE4FDF51BF5D25EEBD60
 magnet:?xt=urn:btih:A6B9FA8957FCEF84D739050BD634B18CA5D3846B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +356,8 @@ Wallpapers - Обои абстракция [JPEG]
 ```bash
 magnet:?xt=urn:btih:274D58FDFA5E356713D4565B6D22512811952D36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +385,8 @@ Desktop wallpapers vol.1
 magnet:?xt=urn:btih:8BAB55A4D6862E9B1B025880F2A93CFB517EDC21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +410,8 @@ magnet:?xt=urn:btih:8BAB55A4D6862E9B1B025880F2A93CFB517EDC21
 ```bash
 magnet:?xt=urn:btih:6D5000C42C13CB9DE6D5EA408F4AB45394B215BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +437,8 @@ magnet:?xt=urn:btih:6D5000C42C13CB9DE6D5EA408F4AB45394B215BA
 magnet:?xt=urn:btih:E79EB77C0CCFBB4073FB542CB36F33668F997A6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +462,8 @@ magnet:?xt=urn:btih:E79EB77C0CCFBB4073FB542CB36F33668F997A6B
 ```bash
 magnet:?xt=urn:btih:3640B0D8A91C8ECB2A8E86A9BFC9AFFB243A5415
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +489,8 @@ magnet:?xt=urn:btih:3640B0D8A91C8ECB2A8E86A9BFC9AFFB243A5415
 magnet:?xt=urn:btih:8FC039807F07EA07801373E09AB60232E94A5623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +514,8 @@ magnet:?xt=urn:btih:8FC039807F07EA07801373E09AB60232E94A5623
 ```bash
 magnet:?xt=urn:btih:593BA315A5FC480A1D8FD8BB086394E8D2802741
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +541,8 @@ magnet:?xt=urn:btih:593BA315A5FC480A1D8FD8BB086394E8D2802741
 magnet:?xt=urn:btih:0C721707B03B835C8B5AE923D22EECFF56A4AD9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +566,8 @@ magnet:?xt=urn:btih:0C721707B03B835C8B5AE923D22EECFF56A4AD9D
 ```bash
 magnet:?xt=urn:btih:C1ADA26127478E1FD8DE54165C594D1147808682
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +593,8 @@ magnet:?xt=urn:btih:C1ADA26127478E1FD8DE54165C594D1147808682
 magnet:?xt=urn:btih:ADB4068A939407016F915FEFC4FB786C4D69B9A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +618,60 @@ magnet:?xt=urn:btih:ADB4068A939407016F915FEFC4FB786C4D69B9A2
 ```bash
 magnet:?xt=urn:btih:E26B30015215523A1834D876E950C33A3FD48696
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609133   (990951) от 28.01.2013
+
+Фотография - Французский иллюстратор Obery Nicolas [JPEG]
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский иллюстратор Obery NicolasРазрешение файлов: 600x700 ~3000x3895Формат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26F21FC261231CCB8D45DF24B84D98D40B4130AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609925   (991005) от 28.01.2013
+
+Wallpapers - Обои для ноутбуков [JPEG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_991005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1366x768Формат: JPEG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E71BBC7B715DF4199920EA96F078C6916E4F19
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1488485   (1001395) от 13.08.2021
+
+Александр Остервальдер и др. | Непобедимая компания: Как непрерывно обновлять бизнес-модель вашей организации, вдохновляясь опытом лучших (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1001395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Просто быть лучшим уже недостаточно. Сегодня в конкурентной борьбе побеждают компании, у которых готовность к изменениям вшита в бизнес-модель. В четвертой книге серии Strategyzer Алекс Остервальдер и его соавторы Ив Пинье, Фред Этьембль и Алан Смит рассказывают о стратегиях адаптации успешных компаний, которые не раз перепридумывали свои бизнес-модели: Amazon, IKEA, (   Читать дальше...   )Жанр: Управление проектами и процессамиФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4469CA010BD461BE766D2BF57DA0F01AE44C775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488770   (1001468) от 13.08.2021
 
 Отчий дом (изд.) | Советы православного врача (1998) [PDF, DJVU]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:81B6A99DDD610F0DD42F9D1FB62C0ED25C0793F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +76,8 @@ magnet:?xt=urn:btih:81B6A99DDD610F0DD42F9D1FB62C0ED25C0793F7
 magnet:?xt=urn:btih:8533F04EB81761741B213364A09BDF1EECB5AE7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:8533F04EB81761741B213364A09BDF1EECB5AE7D
 ```bash
 magnet:?xt=urn:btih:24994E5FEDAA0A831EE4FE10E2B6CAF7F3096FB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +131,8 @@ magnet:?xt=urn:btih:24994E5FEDAA0A831EE4FE10E2B6CAF7F3096FB7
 magnet:?xt=urn:btih:44D49E84D78111597ADAF5871752C9789DDC0590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +159,8 @@ magnet:?xt=urn:btih:44D49E84D78111597ADAF5871752C9789DDC0590
 magnet:?xt=urn:btih:1C3F0F5148889E8EEF8884BFB8627592506F6A4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +184,8 @@ magnet:?xt=urn:btih:1C3F0F5148889E8EEF8884BFB8627592506F6A4C
 ```bash
 magnet:?xt=urn:btih:A374EE62A0A5D05310391319034039E3F5FA38A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +213,8 @@ magnet:?xt=urn:btih:A374EE62A0A5D05310391319034039E3F5FA38A3
 magnet:?xt=urn:btih:E8A2DDA43587076045FA0535793AFA721540EF36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +240,8 @@ magnet:?xt=urn:btih:E8A2DDA43587076045FA0535793AFA721540EF36
 magnet:?xt=urn:btih:3FDAB940174E06CEE6932E2F046008E4FC9A981A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +266,8 @@ magnet:?xt=urn:btih:3FDAB940174E06CEE6932E2F046008E4FC9A981A
 magnet:?xt=urn:btih:ABE56A858FA29E7FACDA798AEC306882CEF1A01C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +291,8 @@ magnet:?xt=urn:btih:ABE56A858FA29E7FACDA798AEC306882CEF1A01C
 ```bash
 magnet:?xt=urn:btih:F793C8BC9615BABC3576748CBEADA9A23F645745
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +320,8 @@ magnet:?xt=urn:btih:F793C8BC9615BABC3576748CBEADA9A23F645745
 magnet:?xt=urn:btih:CC53D24412A45545520D1796965F7AC3FC10FE18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +345,8 @@ magnet:?xt=urn:btih:CC53D24412A45545520D1796965F7AC3FC10FE18
 ```bash
 magnet:?xt=urn:btih:5D238ED84CCE7E574B522F1D7296A0080C8C059B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +372,8 @@ magnet:?xt=urn:btih:5D238ED84CCE7E574B522F1D7296A0080C8C059B
 magnet:?xt=urn:btih:6F6050F8136217C842DC240FF9B546923C9C0E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +397,8 @@ magnet:?xt=urn:btih:6F6050F8136217C842DC240FF9B546923C9C0E62
 ```bash
 magnet:?xt=urn:btih:EC14DF735CF2DBAD77A7A0CEBF8F168E1747A967
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +424,8 @@ magnet:?xt=urn:btih:EC14DF735CF2DBAD77A7A0CEBF8F168E1747A967
 magnet:?xt=urn:btih:15CB3B146511FBC9FF1FD366EBC5A6F85C584224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +449,8 @@ magnet:?xt=urn:btih:15CB3B146511FBC9FF1FD366EBC5A6F85C584224
 ```bash
 magnet:?xt=urn:btih:0AA0108D0F933131A36D9380EF46E43D75EF5AAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +477,8 @@ magnet:?xt=urn:btih:0AA0108D0F933131A36D9380EF46E43D75EF5AAD
 magnet:?xt=urn:btih:7CEB0BDBC45C942C137E04C5EAE566439057A0DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +503,8 @@ magnet:?xt=urn:btih:7CEB0BDBC45C942C137E04C5EAE566439057A0DD
 magnet:?xt=urn:btih:E65966145C350C70AAF4A0B59D848B16198D5316
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:E65966145C350C70AAF4A0B59D848B16198D5316
 ```bash
 magnet:?xt=urn:btih:346F014B234EAB6AAA64649E8099B8542F3D534F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +557,8 @@ magnet:?xt=urn:btih:346F014B234EAB6AAA64649E8099B8542F3D534F
 magnet:?xt=urn:btih:7C8523165FCEC53347FF312F4CAE6FE620E5F4E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +582,8 @@ magnet:?xt=urn:btih:7C8523165FCEC53347FF312F4CAE6FE620E5F4E7
 ```bash
 magnet:?xt=urn:btih:90F6D1F93004CC9FC5E9B4CB7DEB1721D5CB0E0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +610,8 @@ magnet:?xt=urn:btih:90F6D1F93004CC9FC5E9B4CB7DEB1721D5CB0E0E
 magnet:?xt=urn:btih:78CBAE669CA243BAD5EAEABC9CB2706992274B5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +635,8 @@ magnet:?xt=urn:btih:78CBAE669CA243BAD5EAEABC9CB2706992274B5C
 ```bash
 magnet:?xt=urn:btih:264A8D6B20EBCCB9B3DCE286A60C00EC8CB76A93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +663,8 @@ magnet:?xt=urn:btih:264A8D6B20EBCCB9B3DCE286A60C00EC8CB76A93
 magnet:?xt=urn:btih:58840E58DC53969A2B43995C59CA71687BF82045
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,30 +689,7 @@ magnet:?xt=urn:btih:58840E58DC53969A2B43995C59CA71687BF82045
 magnet:?xt=urn:btih:59E8A4A5D52C852E473ACA7E04D8C826476DACAF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350691   (1002905) от 07.01.2020
-
-Ксения Алексеева | Полная трансформация. 56 техник, которые изменят вашу жизнь (2019) [PDF]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002905.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все, что с нами происходит, – это отражение того, что есть у нас внутри. Если мы себе нравимся, то притягиваем события, которые нам приятны. Если что-то мы в себе не любим, то именно в этой области с нами начинают происходить неудачи. И именно поэтому так важно начать менять не внешнее, а работать с внутренними процессами.
-Хотите узнать, как менять этот образ будущего? (   Читать дальше...   )Жанр: Эзотерика, ПарапсихологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD6C5999D00729B72D152CEF5B56A6BA91404DA9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

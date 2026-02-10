@@ -22,6 +22,8 @@ Dave Weckl - Collection от ALEXnROCK (2025) [MP3|320 Kbps] <Jazz Rock)>
 magnet:?xt=urn:btih:64480E5E60DD4341C70233DADA02D42C324AAB62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Deep House Female Vocal 2 (2025) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:1D3B354A872BED984B66FE17417A4FC0C3344292
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Deep House, Baby 6 (2023) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:6D78060483245744E619F444D5B220AEE516EEF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Music News vol.298 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:964C8D3ED2E53501FBE6A9249852725AE9133143
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Dance Hits of the outgoing year (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:69A837AACD71BD86710CE21A52C9EA01C38EB4E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Super Mega Hits (2022) [MP3|320 Kbps] <Electropop, Dancehall, Synth-pop, Af
 ```bash
 magnet:?xt=urn:btih:36B3A2F5B93589BCB160B42EC198C534FBED7A23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Imazee - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
 magnet:?xt=urn:btih:675E70D565B6EAB2DAB9DC110D785E8CA136CC51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - New Pop Hits (2022) [MP3|320 Kbps] <Synthpop, Disco, Dance, Hip Hop>
 ```bash
 magnet:?xt=urn:btih:CF5263B42AA4DFBE986CE2BCAB6A84514F501920
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - 60 minutes. Old School Dance Music vol.13 (mixed by Dj V) (2022) [MP3|320 K
 magnet:?xt=urn:btih:B82A10F2DDBB269810CA6866669E3ECA6175B590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Totally Dance (2022) [MP3|320 Kbps] <Electropop, Synthpop, Dance, Rhythm & 
 ```bash
 magnet:?xt=urn:btih:170C5A3F0207B8238A939CEF986FED743AD8D751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Let's Dance Baby Vol. 2 (2022) [MP3|320 Kbps] <Dance, Electro Pop, Progress
 magnet:?xt=urn:btih:70FFFC67633FF4A86EE84C1539844084680E260B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ DnDm - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
 ```bash
 magnet:?xt=urn:btih:FF4CB509BBC0E10BA69D4AFB70917EEB00436F63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - В машине с музыкой Vol.318 (2022) MP3 [320 Kbps] <Pop, Dance
 magnet:?xt=urn:btih:AA29E80026A0FE642E7D56DC55D2B80931FEE7EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Music News vol.227 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
 ```bash
 magnet:?xt=urn:btih:BE910FEABF1D67473826E0438DC5A444BE2D0628
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - В машине с музыкой Vol.317 (2022) MP3 [320 Kbps] <Pop, Dance
 magnet:?xt=urn:btih:32457A86E226A81AFF4335CF6CDCE34804339BC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ VA - Capital FM (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:50E8BB491A9D8B62C54CAA7AE46B571C78A3D264
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ VA - Sound Of Rain & Crackling Woodfire (2022) [MP3|320 Kbps] <Relax, Meditate>
 ```bash
 magnet:?xt=urn:btih:33E9A05D83A6D40DCCA082D043C02C3A3B2E227A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +514,8 @@ VA - Workout Motivation, Trance Edition (2019-2021) Mixed by Sergey Sychev [MP3|
 magnet:?xt=urn:btih:DB707D8BF8E1540F1B96251072DC768C33A9C94A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ VA - Magical Arabian Night (2022) [MP3|320 Kbps] <Arabic Lounge, Downtempo, Ethn
 ```bash
 magnet:?xt=urn:btih:A8ABF261395819D794779C8D5CBF636A748B14E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +572,8 @@ VA - Music News vol.297 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:076C50E562EF69751188518A9737D1A8556DC6BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ VA - Compilation Part 10 (2022) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:FD7DE10639C7DACCF5185E1582A57E302339CF05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +630,8 @@ Besso - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
 magnet:?xt=urn:btih:1631AF8B9CD991086B1BF1A81D72AA324D86500F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ Melody Gardot - This is Melody Gardot (2023) [MP3|320 Kbps] <Jazz, Chillout, Fem
 ```bash
 magnet:?xt=urn:btih:D62EA0AAE9EAC54AF7DAD5266A1B65B81FF2CDCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ VA - Deep House, Baby 5 (2022) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:9B72ABB514BD57519779215AD1F4B3D8BD2A8362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +714,8 @@ VA - Autumn Mix (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:C4EE81C9C12C8CE54A76C0A304A5B4A726314063
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -693,6 +743,8 @@ VA - Record Super Chart 05.11.2022 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:3420F018BDE45A0CF321329681178E886991944A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

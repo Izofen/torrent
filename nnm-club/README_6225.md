@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:13B43647909B560D1E56BED08B3D0C9932CCDD2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:13B43647909B560D1E56BED08B3D0C9932CCDD2C
 ```bash
 magnet:?xt=urn:btih:3C35E2F8E5AD453D47FE9BF97B2AEFD452908931
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Ravanna - 2 Albums (2022-2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 magnet:?xt=urn:btih:6D844A8714331DF99123B99F2E23E7ED7F227ADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:6D844A8714331DF99123B99F2E23E7ED7F227ADD
 magnet:?xt=urn:btih:8FE8BB05663C9013FC2511B5B79D0C38727EF7FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Google Earth Pro 7.3.6.9277 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E81A97A8F78AF0F889511C0F2CB51404F7BF349A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:E81A97A8F78AF0F889511C0F2CB51404F7BF349A
 magnet:?xt=urn:btih:3603B0CD6799C394ACCFE49253995A56F56813A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:3603B0CD6799C394ACCFE49253995A56F56813A2
 magnet:?xt=urn:btih:7950F18D5BB85697AB385E5B12439F2D0180D2BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ DP Animation Maker 3.5.12 RePack (& Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:52728AD43499D6F45DB90B0B3B5C1BA3356B3BFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Alcatrazz - V (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
 magnet:?xt=urn:btih:3BA094D2BF536C1C8A782F88350AAF60AD3F91A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:3BA094D2BF536C1C8A782F88350AAF60AD3F91A9
 magnet:?xt=urn:btih:7B3D8ACF1AC159A38EF26046089F9458E774E190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:7B3D8ACF1AC159A38EF26046089F9458E774E190
 ```bash
 magnet:?xt=urn:btih:704766B6E552FB3E9DFAF401393B95592EB50849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ Iced Earth - Hellrider - I Walk Among You (2023) Compilation, Remastered [FLAC|L
 magnet:?xt=urn:btih:4202F1E383E0CA0D393CD2EC69BBE43C711297E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:4202F1E383E0CA0D393CD2EC69BBE43C711297E0
 magnet:?xt=urn:btih:A2FFE96F6610176EA276C670590C988EFA778DCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ MotoGP. Этап 12. Гран-при Сан-Марино. Квалификаци
 ```bash
 magnet:?xt=urn:btih:7E13E83C1EE276B585A74EEF281FB1E84C1E48C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ ThisIsMyFile — это небольшая, но эффективная прог
 magnet:?xt=urn:btih:6BC409514A70DE82831EF17957FAA972AE4FCD79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:6BC409514A70DE82831EF17957FAA972AE4FCD79
 ```bash
 magnet:?xt=urn:btih:E4C3E4AB0E95138ED19D796EDF47296ABD02A7A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ Joe Dassin - Joe Dassin Éternel... (2022) Edition deluxe [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:D1D0E84376C151C60644D818AA173A824B76EB39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:D1D0E84376C151C60644D818AA173A824B76EB39
 magnet:?xt=urn:btih:0E091DE319CCC204EF6468DDF8458EB300DCB7ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ MediaHuman YouTube Downloader 3.9.9.76 (2410) RePack (& Portable) by TryRooM [Mu
 ```bash
 magnet:?xt=urn:btih:B311CE618089BAD48FA00678209DDC29E03FA253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:B311CE618089BAD48FA00678209DDC29E03FA253
 magnet:?xt=urn:btih:02B5501115FA19CAE4D83C0497988D2069C32994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:02B5501115FA19CAE4D83C0497988D2069C32994
 magnet:?xt=urn:btih:97ABE268D0D4D2B24410BB769C80A4821D809D7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:97ABE268D0D4D2B24410BB769C80A4821D809D7A
 magnet:?xt=urn:btih:6FE73D9F2AD5A29A52A8A6E4606B70E21552E328
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ MotoGP. Этап 12. Гран-при Сан-Марино. Спринт (09.09.20
 ```bash
 magnet:?xt=urn:btih:775BDE0B62DBF86D6D0B7D9438D11FCAAD14F481
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ Jag Panzer - Mechanized Warfare (2001) [FLAC|Lossless|image + .cue] <Heavy, Powe
 magnet:?xt=urn:btih:1CA7E21BEE57226BAAC82257FE5AE703ADBA1F06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:1CA7E21BEE57226BAAC82257FE5AE703ADBA1F06
 magnet:?xt=urn:btih:CBEABA416703D4077FDC07413C9537321F0FC760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:CBEABA416703D4077FDC07413C9537321F0FC760
 ```bash
 magnet:?xt=urn:btih:39A8A180C5F12BC27D2E3F9E967FC64890C6FB94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

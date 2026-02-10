@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BAFEFFCAF489E13DB16F6D7E35926A0094C40D93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ PROстройку это:
 magnet:?xt=urn:btih:E993DA1312AEB3135F34FC79483646ABD9B269ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:E993DA1312AEB3135F34FC79483646ABD9B269ED
 ```bash
 magnet:?xt=urn:btih:470C4965CAD126E8C873E8DEAD9A724D8F4166D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Songsterr — приложение для просмотра и разучива
 magnet:?xt=urn:btih:6E5456A316D9C93A3EF7931D64E7782FDECA5523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Sunnytrack v6.2.2 [Ru] – Положение солнца, Тени, Золот
 ```bash
 magnet:?xt=urn:btih:35958EB53A66162F24AF8B600CD72E20DE78EB9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ PhotoPills v1.7.3 [Ru/Multi]
 magnet:?xt=urn:btih:78D3B8C8E3F0FF66B2F93071868159C4329EDCA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ MyLifeOrganized (MLO) — это самое гибкое и мощное при�
 ```bash
 magnet:?xt=urn:btih:8600CF5B877017CADA4291EA2604417068813449
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:8600CF5B877017CADA4291EA2604417068813449
 magnet:?xt=urn:btih:0239281547775A4B446CD5FC620D62BD22ED7A99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:0239281547775A4B446CD5FC620D62BD22ED7A99
 ```bash
 magnet:?xt=urn:btih:69CD46CC8B805DE15EF0EE571821E5B1FECE54DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:69CD46CC8B805DE15EF0EE571821E5B1FECE54DD
 ```bash
 magnet:?xt=urn:btih:CF002A630347A384366FAC78E60749FF52AB1DC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ OruxMaps работает в двух режимах:
 magnet:?xt=urn:btih:16C3C9FB48F34E810E29900A8A1D4B081FBD7F3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ Bikemap v13.1.0 [Ru/Multi]
 magnet:?xt=urn:btih:28F1579C98C9826B35D5FB8EB344608F6B259CFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ mcpro24fps v035b [Ru] - для профессиональной записи в�
 ```bash
 magnet:?xt=urn:btih:D2BD948BD39900263663D0799D02A1023BE73DED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:D2BD948BD39900263663D0799D02A1023BE73DED
 ```bash
 magnet:?xt=urn:btih:2C6C0C6231984B0A12C98380B90EE82714963C65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:2C6C0C6231984B0A12C98380B90EE82714963C65
 magnet:?xt=urn:btih:68DB88A0B2C969A13463C87D5FD5104640C7D23E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ Mokoroom v1.1.2 [En] - Мультяшный фоторедактор (обнов
 ```bash
 magnet:?xt=urn:btih:BD25E327B4C08E89B4D354DFC967466FED47A4F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ Titan Quest: Legendary Edition - самое полное издание Titan Qu
 magnet:?xt=urn:btih:1695D8BB4DD84129648EE89917A727AE3B623E4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ SoundStream v4.3.17 [Ru] - слушаем различные подкасты (�
 ```bash
 magnet:?xt=urn:btih:BD231C623D8E4AE3693E138A02B754E8A0F0D3E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:BD231C623D8E4AE3693E138A02B754E8A0F0D3E6
 magnet:?xt=urn:btih:1AE844D2E14C10BE01D66FDD249390A97DBF4C15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ n-Track Studio 9 Pro v9.3.6 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:C6F7FB8D4C334F4125B8457D30676C67C8DB610A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ MIX – это мощный, но простой в использовании �
 magnet:?xt=urn:btih:5988B6C7EF0E2AB06F70B273F413499FA374CE3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ Lingvist v2.65.8 + Lite Mod [Ru/En]
 ```bash
 magnet:?xt=urn:btih:C5655525CF4A75204222F63E99F000C43D66CB59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ KnownReader – приложение для чтения электронных 
 magnet:?xt=urn:btih:1E66B1564D723D31EF8319805EAC1B2138107534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:1E66B1564D723D31EF8319805EAC1B2138107534
 ```bash
 magnet:?xt=urn:btih:16CB4776BAA3232D6B909270C67CF85DA3E42FE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:16CB4776BAA3232D6B909270C67CF85DA3E42FE1
 magnet:?xt=urn:btih:27CCD73EF95A3990CC62DA85C5D5BCCA54828277
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:27CCD73EF95A3990CC62DA85C5D5BCCA54828277
 ```bash
 magnet:?xt=urn:btih:34515396DF1CD7206326976374A50F0D7D3997CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

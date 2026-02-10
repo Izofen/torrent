@@ -1,30 +1,3 @@
-###  Публикация: 1259757   (319164) от 04.11.2018
-
-Hypnoskull - The Manichaean Consciousness (2018) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Industrial, Rhythmic Noise>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_319164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Manichaean Consciousness (04:33)
- 02. Obfuscate Meanings (04:55)
- 03. Given This Total Distrust (04:35)
- 04. Die Zukunft (Findet Nicht Mehr Statt) (03:20)(   Читать дальше...   )Жанр: Industrial, Rhythmic NoiseПродолжительность: 01:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063AEE16CCC4577CED9A224D3A5BBFBA0648B3EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259735   (319166) от 04.11.2018
 
 The Kabalas - Martinis and Bagels (1995) [FLAC|Lossless|tracks + .cue] <Klezmer, Polka>
@@ -48,6 +21,8 @@ The Kabalas - Martinis and Bagels (1995) [FLAC|Lossless|tracks + .cue] <Klezmer,
 ```bash
 magnet:?xt=urn:btih:E8AE701B9E0216588D6C5D3B073C0245671C57B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +48,8 @@ UltraISO - одна из лучших программ для работы с о
 magnet:?xt=urn:btih:043A4F47762DBE02A0153E5DC7FAB30D97511A8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +73,8 @@ Sleipnir - быстрый и надежный браузер на базе дв�
 ```bash
 magnet:?xt=urn:btih:B3AB396A9B077458E24CAD7E9B77CCFD4AEB00CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +101,8 @@ Winclone Pro 6.1.8 [En]
 magnet:?xt=urn:btih:7A7B8EA16A94B249784571FC1C96580F97CF78FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +126,8 @@ magnet:?xt=urn:btih:7A7B8EA16A94B249784571FC1C96580F97CF78FA
 ```bash
 magnet:?xt=urn:btih:AC36BE3CC1D0DE1B17299A0F9247D74B2719A466
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +153,8 @@ Acoustica Premium Edition - профессиональная программа,
 magnet:?xt=urn:btih:6DD1D74B2CBB4AF7C316B605838B7591CA1FBF00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +179,8 @@ iMazing: отличная альтернатива iTunes
 ```bash
 magnet:?xt=urn:btih:0C82F84BB336E5FC3259684C18D8147FABB19866
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +209,8 @@ Mister E Double V - Sun Lounge (2017) [MP3|320 Kbps] <Lounge, Chillout, Downtemp
 magnet:?xt=urn:btih:43BF26DD498CCAF9D789E2233EAB3539D02E4FDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +234,8 @@ magnet:?xt=urn:btih:43BF26DD498CCAF9D789E2233EAB3539D02E4FDF
 ```bash
 magnet:?xt=urn:btih:71A90FCE1B9DB575B76EFA09408B13FCFB1714C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +261,8 @@ magnet:?xt=urn:btih:71A90FCE1B9DB575B76EFA09408B13FCFB1714C7
 magnet:?xt=urn:btih:24C1D531E59E3F0428F570567614F78B62309184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +286,8 @@ AVG Remover 1.0.0.7 [En]
 ```bash
 magnet:?xt=urn:btih:91015C6429870D804DE8815B9686EC59C0DA42A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +316,8 @@ Moby - Hotel (2005)/CD-extra/ Mute - Virgin (Japan) [FLAC|image+cue] <Pop Rock, 
 magnet:?xt=urn:btih:16CBC4514AE145C3E1AEBB904A108605B8932AB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +341,8 @@ Slimjet 6.0.4.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0D2FC8E83783DC9093479FC1B318143D5FD11371
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +370,8 @@ Paste хранит всё, что вы когда-либо копировали 
 magnet:?xt=urn:btih:545110AC292F1EBF17D5449794F151463FF178ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +395,8 @@ magnet:?xt=urn:btih:545110AC292F1EBF17D5449794F151463FF178ED
 ```bash
 magnet:?xt=urn:btih:CFB9F468A6F3AB6F7B325E1214E3339424E8DDC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +422,8 @@ magnet:?xt=urn:btih:CFB9F468A6F3AB6F7B325E1214E3339424E8DDC8
 magnet:?xt=urn:btih:73B16BA6808D449C11E74DF7E8B4D67A03B85C61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +447,8 @@ MAGIX Sound Forge Pro Suite 14.0 Build 112 RePack by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FA8E570C5ED711F0EBDA77651FF3DAB43826BE4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +477,8 @@ YouTube Downloader - Удобная программа-загрузчик для
 magnet:?xt=urn:btih:B0EB7F84DCA9E32F4E1404F1912D3006424CB94C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +502,8 @@ Comedy Woman (2017.11.03) WEB-DLRip
 ```bash
 magnet:?xt=urn:btih:90DE2D067D818CB7D2935A5C2A9EB32F72653A8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +529,8 @@ SuperDuper!  - Утилита для клонирования жесткого �
 magnet:?xt=urn:btih:85F3240C59788412FA906DF16E1AF17E234A2EED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +554,8 @@ magnet:?xt=urn:btih:85F3240C59788412FA906DF16E1AF17E234A2EED
 ```bash
 magnet:?xt=urn:btih:B3C311F8E0F677912B81027D798B4A264251A71D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +584,8 @@ Joseph Jacobs - Resonant Sounds (2014) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 magnet:?xt=urn:btih:F3E7D16E36E3FB0757EB2B835392FDBB0D3C2393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +613,8 @@ magnet:?xt=urn:btih:F3E7D16E36E3FB0757EB2B835392FDBB0D3C2393
 magnet:?xt=urn:btih:18071722776B29553BC68F6A39D84CD1395DC95E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +638,8 @@ magnet:?xt=urn:btih:18071722776B29553BC68F6A39D84CD1395DC95E
 ```bash
 magnet:?xt=urn:btih:3C1CC1FB5FB64C865EF3C608EC1988BD77F72B13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +667,34 @@ VA - Groove Addicted 2 (Compiled  by Groove Hunter) (2017) [MP3|320 Kbps] <Psy-T
 ```bash
 magnet:?xt=urn:btih:E619043DBD85A42689B0F5C1F20798918C3DF8D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959117   (319364) от 23.11.2015
+
+Журнал | ХлебСоль №12 (67) (декабрь 2015) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319364.jpg" />
+</div>
+
+
+###  Подробнее
+
+«ХлебСоль» - кулинарный журнал с Юлией Высоцкой. Издание для современных активных женщин, которые с удовольствием готовят для родных и близких. "ХлебСоль" - простые решения, легкие рецепты.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4253B96BF07B4EA1B7B1F6836C3E3CA6BF12E99C
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

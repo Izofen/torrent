@@ -19,6 +19,8 @@ NGW. Странная природа: сумасброды / Stranger than Natur
 magnet:?xt=urn:btih:9A76E948B2D1B26F2C3CCB58C1E40A110F361100
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:9A76E948B2D1B26F2C3CCB58C1E40A110F361100
 ```bash
 magnet:?xt=urn:btih:00BCB881BBC717377F0AA657524AB2EA40BDE7FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC. Панорама. Amazon: Что они знают о нас / Amazon: What
 magnet:?xt=urn:btih:3FCBC14254D02FF84645657A8FB489C6EADEDD40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC: Биологические часы - как они работают? / Bod
 ```bash
 magnet:?xt=urn:btih:01DE1B9C007A1BA0BE2743B695958328D2D909A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:01DE1B9C007A1BA0BE2743B695958328D2D909A8
 magnet:?xt=urn:btih:525B502546FAD322258A3FC1ED328B6FC0E17316
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:525B502546FAD322258A3FC1ED328B6FC0E17316
 ```bash
 magnet:?xt=urn:btih:92A314E77A5452B50DBF83120F67CD66AFD49886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:92A314E77A5452B50DBF83120F67CD66AFD49886
 magnet:?xt=urn:btih:4BEAB98EBFE608ACC4EB3E804182092CE1D03DBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ BBC: Горизонт. Как построить машину времени / H
 ```bash
 magnet:?xt=urn:btih:EF689A89F33123670E2877ADDAA02DB5F73974CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:EF689A89F33123670E2877ADDAA02DB5F73974CF
 magnet:?xt=urn:btih:1141AA1F15B62342FAD41679DCA78A60AB18D6A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:1141AA1F15B62342FAD41679DCA78A60AB18D6A1
 magnet:?xt=urn:btih:8FB69A9D65A893C0AB9C5464CB6F1B68D7AB2265
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ BBC: Тигры в доме / Tigers About the House (2014) HDTVRip (Сезон�
 ```bash
 magnet:?xt=urn:btih:DC7E56C60BFBF63DED5D1DBE7C52D33A0F274F4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ NGW: Дикие места Африки. Рожденные выживать / A
 magnet:?xt=urn:btih:080CCE550384B8A2CA8F1A6159735B6EADB79B0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ NGW: Самые странные в мире: ползучие целители 
 ```bash
 magnet:?xt=urn:btih:6D44DBA79DF0A79D62240C54E6DB4F618A7E00CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ NGW: Медвежья школа / Bearhood (2014) HDTV [H.264/1080i-LQ]
 magnet:?xt=urn:btih:EE8D54646039B90952FEE5F118AD1FBBA5697CE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:EE8D54646039B90952FEE5F118AD1FBBA5697CE6
 ```bash
 magnet:?xt=urn:btih:179FEFA201FE1159EB911302F4E69E30CE1CEC6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ NG: Злоключения за границей / Banged up Abroad (2020) IPTV 
 magnet:?xt=urn:btih:8EE1B2D3DE2FE237F93000DE1A65E6B5BF213A63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:8EE1B2D3DE2FE237F93000DE1A65E6B5BF213A63
 ```bash
 magnet:?xt=urn:btih:46384DE2FC0AEAC69679C702594109C5ECF17793
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:46384DE2FC0AEAC69679C702594109C5ECF17793
 magnet:?xt=urn:btih:822C68F67036EADE32736AA7A0D75F42D9A01D85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ NG. В погоне за равноденствием / Chasing the Equinox (201
 ```bash
 magnet:?xt=urn:btih:410F4724C847BE023B394EEB9233241F8650693B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Discovery. Смертельный улов / Deadliest Catch (2015) HDTVRip (С�
 magnet:?xt=urn:btih:CA3DCB80A667FB778208C8A79795E0B3AEDCAFAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:CA3DCB80A667FB778208C8A79795E0B3AEDCAFAA
 ```bash
 magnet:?xt=urn:btih:FED44CBE38034AFBCD41FDE9BECA394201891C3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ NGW. Дикая Африка: династии / Africa's Wild Side. Dynasties (
 magnet:?xt=urn:btih:781F42361158A384DE5EB0336B296BCE5F0C645A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ BBC: Египет. Тайны, скрытые под землей / Egypt: What 
 ```bash
 magnet:?xt=urn:btih:F9DBB286B873A856074DC95474DAB740BBC7C1A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:F9DBB286B873A856074DC95474DAB740BBC7C1A4
 magnet:?xt=urn:btih:163868AF0B4CDF4F62AD9D63E7291EF05CBBC654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ NG. Путешествия с Гордоном Рамзи / Gordon Ramsay - Unch
 magnet:?xt=urn:btih:5D429F58B038C24C872E71D6DC31F88BE692624A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ NG: Последствия: Преданные Солнцем / Aftermath: Betra
 ```bash
 magnet:?xt=urn:btih:C47BA8AE825302CFFA378D5CF5E498BEC995834D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

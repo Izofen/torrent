@@ -1,3 +1,29 @@
+###  Публикация: 1005646   (832719) от 09.04.2016
+
+Процесс. Кто такой Эрдоган: политический авантюрист, марионетка Запада? (09.04.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_832719.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое общественно-политическое ток-шоу "Процесс" посвящено важнейшим событиям в России и мире, и своей главной целью ставит определение вектора, по которому должна идти Россия, чтобы обеспечить достойную и безопасную жизнь своим гражданам. Ведущими еженедельной программы стали российский писатель Сергей Шаргунов и тележурналист Николай Петров. Особый интерес (   Читать дальше...   )Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДАЖанр: Общественно-политическое ток-шоуПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AF2B271F9BB0672A716D34F986906BAB6697CD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 717798   (832821) от 03.05.2020
 
 Берлин. Май 1945 (2013) IPTVRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:F2F2AAD50EAD523375E90F3D937FF71E7F39D751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:F2F2AAD50EAD523375E90F3D937FF71E7F39D751
 magnet:?xt=urn:btih:4C602BD922017A3961E894650FCE014A05BC32B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:4C602BD922017A3961E894650FCE014A05BC32B6
 ```bash
 magnet:?xt=urn:btih:40B92585FDCD4D94BBE5450F2C26212ADAB79BF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:40B92585FDCD4D94BBE5450F2C26212ADAB79BF1
 magnet:?xt=urn:btih:83BBFD55B861FAC3DB1807FACDE41C5CAACBDACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:83BBFD55B861FAC3DB1807FACDE41C5CAACBDACD
 ```bash
 magnet:?xt=urn:btih:068E89AD3C44717E2153B4D02327749080D4892B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:068E89AD3C44717E2153B4D02327749080D4892B
 magnet:?xt=urn:btih:1D309BF74BB232692FA72CC6E872BC2784007244
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:1D309BF74BB232692FA72CC6E872BC2784007244
 ```bash
 magnet:?xt=urn:btih:2BFFD897E8C036300B87D50C626584B6DCFF36C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:2BFFD897E8C036300B87D50C626584B6DCFF36C0
 magnet:?xt=urn:btih:BEEB0B8717666E169E0A742BB534BE8ABDB8D88D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:BEEB0B8717666E169E0A742BB534BE8ABDB8D88D
 ```bash
 magnet:?xt=urn:btih:3C7071AF3A3CD4DE61FD950C55D59729F178717F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:3C7071AF3A3CD4DE61FD950C55D59729F178717F
 magnet:?xt=urn:btih:A6B20ECD50CE722B9644AC9C9916953603F828D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:A6B20ECD50CE722B9644AC9C9916953603F828D6
 ```bash
 magnet:?xt=urn:btih:0EB8967B9A1564E6E8AF46D82D246C047CCE5CA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:0EB8967B9A1564E6E8AF46D82D246C047CCE5CA0
 magnet:?xt=urn:btih:F078B8790F2B534D1324A68ACB1952093621F7DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:F078B8790F2B534D1324A68ACB1952093621F7DA
 ```bash
 magnet:?xt=urn:btih:0CCA803DC62B179DB738B3BE9932A217B4227C3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:0CCA803DC62B179DB738B3BE9932A217B4227C3A
 magnet:?xt=urn:btih:DD6896FE8260E2B596F9882F91BB09080C9B5918
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:DD6896FE8260E2B596F9882F91BB09080C9B5918
 ```bash
 magnet:?xt=urn:btih:A52245F1441950F3ED1E609782AA815310F082E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:A52245F1441950F3ED1E609782AA815310F082E2
 magnet:?xt=urn:btih:B2DB1C74DE63FAA4D808D8E70463A004B251014C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:B2DB1C74DE63FAA4D808D8E70463A004B251014C
 ```bash
 magnet:?xt=urn:btih:DE28D29CAB29318D48BFD3ECF73DA0F1836B9F0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:DE28D29CAB29318D48BFD3ECF73DA0F1836B9F0D
 magnet:?xt=urn:btih:64F261E0582D68E67EC537D15F18775D915168E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:64F261E0582D68E67EC537D15F18775D915168E2
 ```bash
 magnet:?xt=urn:btih:DA8D691580FF80FDC6126E63F2F18F717AE672F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:DA8D691580FF80FDC6126E63F2F18F717AE672F6
 magnet:?xt=urn:btih:9CE991B0C226B89F9BF205106914B71D0F7F4025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:9CE991B0C226B89F9BF205106914B71D0F7F4025
 ```bash
 magnet:?xt=urn:btih:310FE862529BBF28571281FC028E4F1345CCEEAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:310FE862529BBF28571281FC028E4F1345CCEEAB
 magnet:?xt=urn:btih:F19C05F26726F7EAF0F736ADBD3B94EC93236374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:F19C05F26726F7EAF0F736ADBD3B94EC93236374
 ```bash
 magnet:?xt=urn:btih:AF788AA63C98A00074710D4C98B1CE8E1883679A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:AF788AA63C98A00074710D4C98B1CE8E1883679A
 magnet:?xt=urn:btih:9F972050A972B88F41337B994B40A7B531E97D9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,30 +675,7 @@ magnet:?xt=urn:btih:9F972050A972B88F41337B994B40A7B531E97D9E
 magnet:?xt=urn:btih:8086508BD1129537FC9FFB239384DB6EB4AB0E51
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005172   (834157) от 08.04.2016
-
-Другие оффшоры Президента. Оффшорная элита Украины (2016) HDTVRip [RUS, UKR]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834157.jpg" />
-</div>
-
-
-###  Подробнее
-
-Другие оффшоры Президента.
-Весь мир всколыхнула история о глобальном утечка огромного массива данных об оффшорных компаниях и их владельцев, получивший название «Панамские бумаги». Публикация задела украинского президента. Порошенко заверил, что это была просто техническая необходимость для передачи его бизнес в управление банка «Ротшидльд». На самом деле президент (   Читать дальше...   )Телекомпания: Радио СвободаЖанр: ТелепередачаПеревод: ОтсутствуетПродолжительность: 00:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74184D844E6E60F5CCD53FFF64E3F63FBD77E792
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

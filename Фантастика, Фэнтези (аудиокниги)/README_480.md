@@ -1,3 +1,29 @@
+###  Публикация: 306821   (850831) от 10.03.2011
+
+Дэниел Киз | Цветы для Элджернона [2011] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_850831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чарли Гордон — идиот. В прямом смысле этого слова — с самого детства он болен фенилкетонурией, при которой умственная отсталость практически неизбежна. Сейчас ему около тридцати, он работает уборщиком в пекарне и ходит на занятия для умственно отсталых. И именно он стал первым в мире человеком, подвергшемся экспериментальной операции по устранению этого заболевания (   Читать дальше...   )Жанр: Фантастика, роман
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF325AE26C74F93D924AE11FB1E5237BE0DF3AED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377675   (851133) от 22.04.2020
 
 Юрий Москаленко | Путь одарённого. Крысолов (2020) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:18CE0D7E6AFB348CD5A5AA50407EFE2BBD4FC845
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:18CE0D7E6AFB348CD5A5AA50407EFE2BBD4FC845
 magnet:?xt=urn:btih:CF20FFF7EB7A347E62677C31F80B7C01E857DED6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:CF20FFF7EB7A347E62677C31F80B7C01E857DED6
 ```bash
 magnet:?xt=urn:btih:1CCAD965FF056CEF23F56930D88089B27749FB13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:1CCAD965FF056CEF23F56930D88089B27749FB13
 magnet:?xt=urn:btih:9F663BD61CC20E4D7C8378C294B4EAAEB6EBED10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:9F663BD61CC20E4D7C8378C294B4EAAEB6EBED10
 ```bash
 magnet:?xt=urn:btih:838247DE3BD9141EC2DDC2CAC0AFCD8DF59A7D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +181,8 @@ magnet:?xt=urn:btih:838247DE3BD9141EC2DDC2CAC0AFCD8DF59A7D59
 magnet:?xt=urn:btih:C98CE78E4532001DFB44E3CD7B43EEED3DCF1709
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:C98CE78E4532001DFB44E3CD7B43EEED3DCF1709
 ```bash
 magnet:?xt=urn:btih:5B98A4D2F11C877E9416ECA5566EBAF741AB4971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:5B98A4D2F11C877E9416ECA5566EBAF741AB4971
 magnet:?xt=urn:btih:B13136C146A249181A0DDEE3EE6BF9E040C2BFA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:B13136C146A249181A0DDEE3EE6BF9E040C2BFA5
 ```bash
 magnet:?xt=urn:btih:4007253207154BBA0B9A929A26727AEC6241A509
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:4007253207154BBA0B9A929A26727AEC6241A509
 magnet:?xt=urn:btih:BA5488783ED1586ADCE0DC1B313CED99CB9C1F9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +316,8 @@ magnet:?xt=urn:btih:BA5488783ED1586ADCE0DC1B313CED99CB9C1F9A
 magnet:?xt=urn:btih:20C06880B7386BA949D55C4425A308B60EEAFDC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:20C06880B7386BA949D55C4425A308B60EEAFDC4
 ```bash
 magnet:?xt=urn:btih:7ED59DACDC2587005AD729315753DCA2B52B905F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +369,8 @@ magnet:?xt=urn:btih:7ED59DACDC2587005AD729315753DCA2B52B905F
 magnet:?xt=urn:btih:923DE4DCA7B85DF7A3A7CBE88B68903B64F56DC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:923DE4DCA7B85DF7A3A7CBE88B68903B64F56DC4
 ```bash
 magnet:?xt=urn:btih:8B0EF93972D14831E5C929819AE8EB9438709914
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +422,8 @@ magnet:?xt=urn:btih:8B0EF93972D14831E5C929819AE8EB9438709914
 magnet:?xt=urn:btih:BDDF5223A878562DC61364BE0975FBE681C3EF24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:BDDF5223A878562DC61364BE0975FBE681C3EF24
 ```bash
 magnet:?xt=urn:btih:FDD46FD7915A263B494E69B2E39813FFA6D5B01C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +475,8 @@ magnet:?xt=urn:btih:FDD46FD7915A263B494E69B2E39813FFA6D5B01C
 magnet:?xt=urn:btih:4C1B7F4DF72E61E276CE06977D106E356E344960
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:4C1B7F4DF72E61E276CE06977D106E356E344960
 magnet:?xt=urn:btih:6DD8804F7514E08068D82065BE023D5243478751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:6DD8804F7514E08068D82065BE023D5243478751
 ```bash
 magnet:?xt=urn:btih:3C3F7F12708090721848EBD7B333EDC3AE111837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +555,8 @@ magnet:?xt=urn:btih:3C3F7F12708090721848EBD7B333EDC3AE111837
 magnet:?xt=urn:btih:7ACEE71A59128D331F5CA7B250FBB7741A36FDC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +582,8 @@ magnet:?xt=urn:btih:7ACEE71A59128D331F5CA7B250FBB7741A36FDC2
 magnet:?xt=urn:btih:AF0347EFCEF02335528DE9B022207C45833E5EF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +607,8 @@ magnet:?xt=urn:btih:AF0347EFCEF02335528DE9B022207C45833E5EF9
 ```bash
 magnet:?xt=urn:btih:9DD04FD83EA3688BC1F9AE60C56B5A893BBD2EAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +634,8 @@ magnet:?xt=urn:btih:9DD04FD83EA3688BC1F9AE60C56B5A893BBD2EAA
 magnet:?xt=urn:btih:0823D3EF5C12F93BFEF7CCA70FA10815B41FE3C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +659,8 @@ magnet:?xt=urn:btih:0823D3EF5C12F93BFEF7CCA70FA10815B41FE3C1
 ```bash
 magnet:?xt=urn:btih:82637436629317DCB4A7FF8A79BBFEA8F217310A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,30 +688,7 @@ magnet:?xt=urn:btih:82637436629317DCB4A7FF8A79BBFEA8F217310A
 magnet:?xt=urn:btih:B3CA92A8033E98BE03CBDA4C8597F068547ECE4E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498827   (854275) от 28.09.2021
-
-Анатолий Дроздов | «Изумруд Люцифера» Книга 2. Золотые апостолы (2021) [MP3, Вадим Пугачев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_854275.jpg" />
-</div>
-
-
-###  Подробнее
-
-В небольшом городке бытует легенда о призраке, который обосновался в старинной башне. Чтобы опровергнуть это суеверие, сюда приезжает молодой историк Аким. Однако герой сталкивается с действительно странными и ужасными происшествиями.
-Недалеко от башни находят убитых женщин; одну из жертв Акиму чудом удаётся спасти. Маргарита помогает своему спасителю в начатом расследовании; (   Читать дальше...   )Жанр: Мистика, Современные детективы, ТриллерыПродолжительность: 06:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1206B71A53F56A9DE8E025E621B5107B74ED531B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

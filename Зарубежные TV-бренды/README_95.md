@@ -19,6 +19,8 @@ NGW: Львы на деревьях / Tree Climbing Lions (2018) HDTV [H.264/108
 magnet:?xt=urn:btih:93D85C0ABDDFF05118DDE1557903A27EB300E687
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ BBC Earth. 8 дней до Луны и обратно / 8 days to the Moon and b
 magnet:?xt=urn:btih:2DDDA67005DBEE323DCD45D5A750C5DEF8D2959D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:2DDDA67005DBEE323DCD45D5A750C5DEF8D2959D
 ```bash
 magnet:?xt=urn:btih:F1F86B69A7C1916AE8440779DCD9FA81CEC77731
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Discovery. Американские гангстеры / American Gangsters (200
 magnet:?xt=urn:btih:A4F9953FF43D936D099A061F5BCE09652AD52DD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ BBC. Horizon: Не верь глазам своим / Is Seeing Believing? (2010
 ```bash
 magnet:?xt=urn:btih:7EFD5E930783025385A96A2B75243E8ECA0D6AB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ BBC. Тайны мозга. Патология / The Brain: A Secret History. Br
 magnet:?xt=urn:btih:37B8AA6398811316A457C614E06B0466D2F34B3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ BBC: Амазонка - Великая река мира / BBC: Amazon: super ri
 magnet:?xt=urn:btih:9656CC3494785917FCC3B00D07CCDA09922C9FD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ NG: Увлекательная зоология: лучшее / Ultimate Animals
 ```bash
 magnet:?xt=urn:btih:2E6664F2BAE2403991E02779DBD259A8721817EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ BBC: История хирургии. Запасные части [3 из 5] / B
 magnet:?xt=urn:btih:4D6D245575586ED151CA3335A883DB912A029181
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ BBC: Египет. Тайны, скрытые под землей. Часть 2 
 ```bash
 magnet:?xt=urn:btih:271B848044BA1BAC83230A1652F14C5D794C4FE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:271B848044BA1BAC83230A1652F14C5D794C4FE5
 magnet:?xt=urn:btih:5E0EBF2DDB5DBFAA0CE1852D3034599D75B7C029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ NG: Кремниевая долина / Valley of the Boom (2019) SATRip (сер
 ```bash
 magnet:?xt=urn:btih:607E96A51893EB7056B36359E762BED938237ACC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:607E96A51893EB7056B36359E762BED938237ACC
 magnet:?xt=urn:btih:F4DE944238D9A89200ED3852F01032F7D5BD387E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ NG: Потоп / The Flood (2018) WEB-DL [H.264/1080p] (серии 1-2 из 2)
 ```bash
 magnet:?xt=urn:btih:3394055487B7872D33D18174511727F220533C16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ NG: Крокодил против акулы / The Croc That Ate Jaws (2021) WEB
 magnet:?xt=urn:btih:B311AFD3E17ED9EBBC1D2EEBA82E9A722A9EE34E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:B311AFD3E17ED9EBBC1D2EEBA82E9A722A9EE34E
 ```bash
 magnet:?xt=urn:btih:3DAB497AF2429BD2217E5CB2DFD3E7DABFC4EE70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ BBC. США: Великая история и большое надувател�
 magnet:?xt=urn:btih:80B9C31CBC979033EFD82E427DFC73762F8DB9F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ NGW: Прайд / Pride (2014) HDTV [H.264/1080i-LQ] (серии 1-2 из 2)
 ```bash
 magnet:?xt=urn:btih:E646D917F187C247463014CDF9601A9DD80C4F16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ NG. Суперсооружения. Мегазаводы. Экстремальн
 magnet:?xt=urn:btih:8DD784B94678224DE0BAE6E78FF39B3CC0842B63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Discovery. Беар Гриллс: Выбраться живым / Get Out Alive 
 ```bash
 magnet:?xt=urn:btih:6C524963DF824556E9101F7DF4CA94432AE9863B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:6C524963DF824556E9101F7DF4CA94432AE9863B
 magnet:?xt=urn:btih:6DC9DD990E0C3185D9EC3148BF2EE46C0063211F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ BBC: Исаак Ньютон: Последний чародей (Последн�
 ```bash
 magnet:?xt=urn:btih:F3482D5066CD1F485E2392B7EF43203C910937E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:F3482D5066CD1F485E2392B7EF43203C910937E1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ BBC: Тайны Тихого океана (6 серий из 6) / BBC: South Pac
 ```bash
 magnet:?xt=urn:btih:1C773CCF669ADEB2296A72FDEBFF9F9E8231621E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ BBC: Рождение человечества. Битва за планету �
 magnet:?xt=urn:btih:0B5170ED8A4815732F2E25D042B665A6EE51EFCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:0B5170ED8A4815732F2E25D042B665A6EE51EFCD
 ```bash
 magnet:?xt=urn:btih:62C3871826969F0307788BABE049AAACB4601363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 863004   (926650) от 25.01.2015
-
-Чужие против Хищника: Реквием / Aliens vs. Predator - Requiem (2007) BDRip [1080p] [Theatrical Cut]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_926650.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: СШАЖанр: Ужасы, фантастика, боевикРежиссер: Колин Штраус, Грег ШтраусАктеры: Стивен Паскуале, Рейко Эйлсворт, Джон Ортиз, Джонни Льюис, Эриель Гейд, Кристен Хагер, Сэм Траммелл, Роберт Джой, Дэвид Петкау, Том Вудрафф мл.Перевод: ДублированныйЯзык субтитров: Русский , АнглийскийПродолжительность: 01:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B970D9971329400C443B3182E2DCFF83D4C93847
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489302   (926667) от 15.08.2021
 
 Беккет / Beckett (2021) WEB-DLRip [H.265] [10-bit]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:B970D9971329400C443B3182E2DCFF83D4C93847
 ```bash
 magnet:?xt=urn:btih:79808AEBFA90620DF8999F81F2DF67ADB2084A79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:79808AEBFA90620DF8999F81F2DF67ADB2084A79
 magnet:?xt=urn:btih:B11C17918BDF7FBE6FA7911A5F2EEA7621B3408A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:B11C17918BDF7FBE6FA7911A5F2EEA7621B3408A
 ```bash
 magnet:?xt=urn:btih:802F59CC54C0DEF72A91EA2D0EAA8610DA6E5FF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:802F59CC54C0DEF72A91EA2D0EAA8610DA6E5FF4
 magnet:?xt=urn:btih:ACED39BED4F4FC0642AAC696A9EA1152B9D58F49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:ACED39BED4F4FC0642AAC696A9EA1152B9D58F49
 ```bash
 magnet:?xt=urn:btih:29DBA8E46B365ABEC2FE1426D96D1CC8EF7B8673
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:29DBA8E46B365ABEC2FE1426D96D1CC8EF7B8673
 magnet:?xt=urn:btih:B49E0F1348AACC0B1224F352200662D01772451A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:B49E0F1348AACC0B1224F352200662D01772451A
 magnet:?xt=urn:btih:8DB2786B0680A9A379F9FCBCA6FDBF708F52F8AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +200,8 @@ magnet:?xt=urn:btih:8DB2786B0680A9A379F9FCBCA6FDBF708F52F8AD
 ```bash
 magnet:?xt=urn:btih:24AD9294BD9536E83E410AC745E5C45485CBE09F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:24AD9294BD9536E83E410AC745E5C45485CBE09F
 magnet:?xt=urn:btih:8F4C998F1C6E07579AE1CDB978417743491EE465
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:8F4C998F1C6E07579AE1CDB978417743491EE465
 ```bash
 magnet:?xt=urn:btih:A89BF1FC7C794BF28C0C58C19ACF7FE346D7E0AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +282,8 @@ magnet:?xt=urn:btih:A89BF1FC7C794BF28C0C58C19ACF7FE346D7E0AA
 magnet:?xt=urn:btih:22718B0A95AEBA916C197DAEB45F86362221AEE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:22718B0A95AEBA916C197DAEB45F86362221AEE2
 ```bash
 magnet:?xt=urn:btih:258D7CE341757A8AF0B98B873A3BDCB1A4DBDFF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +335,8 @@ magnet:?xt=urn:btih:258D7CE341757A8AF0B98B873A3BDCB1A4DBDFF4
 magnet:?xt=urn:btih:AF7A9E71057816A31B3605335740B4F7B210AE79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +360,8 @@ magnet:?xt=urn:btih:AF7A9E71057816A31B3605335740B4F7B210AE79
 ```bash
 magnet:?xt=urn:btih:DC5BC83E6159BFC8199730B461C6A4D22EB97A09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +388,8 @@ magnet:?xt=urn:btih:DC5BC83E6159BFC8199730B461C6A4D22EB97A09
 magnet:?xt=urn:btih:5F5454F929215BFBACA427535985BE5A518CC2E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +414,8 @@ magnet:?xt=urn:btih:5F5454F929215BFBACA427535985BE5A518CC2E2
 magnet:?xt=urn:btih:4A2546E60CD62529F0109E7666D043AFB1429ABC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +439,8 @@ magnet:?xt=urn:btih:4A2546E60CD62529F0109E7666D043AFB1429ABC
 ```bash
 magnet:?xt=urn:btih:AF07D17C6A5557CD15380EB19DE8455073238AD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +467,8 @@ magnet:?xt=urn:btih:AF07D17C6A5557CD15380EB19DE8455073238AD0
 magnet:?xt=urn:btih:DAD8F954F9F6F9CC1E387991BC2219EF599711ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +494,8 @@ magnet:?xt=urn:btih:DAD8F954F9F6F9CC1E387991BC2219EF599711ED
 magnet:?xt=urn:btih:7E9CFCC6960E8D7CC868DA2C38B2090EE9D6C25B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +520,8 @@ magnet:?xt=urn:btih:7E9CFCC6960E8D7CC868DA2C38B2090EE9D6C25B
 magnet:?xt=urn:btih:8800B598D6A8991FC0C4E5A551FF375C39FBD5CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +545,8 @@ magnet:?xt=urn:btih:8800B598D6A8991FC0C4E5A551FF375C39FBD5CC
 ```bash
 magnet:?xt=urn:btih:F6D58F2CD88F164D312A0DD6EA9DEF99D14ED748
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +574,8 @@ magnet:?xt=urn:btih:F6D58F2CD88F164D312A0DD6EA9DEF99D14ED748
 magnet:?xt=urn:btih:DA73A15DF33073675B037312F3BF5F3B242B9AA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +599,8 @@ magnet:?xt=urn:btih:DA73A15DF33073675B037312F3BF5F3B242B9AA6
 ```bash
 magnet:?xt=urn:btih:D9E7596A261396335314E39F7DB341A3CFA5D266
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +626,8 @@ magnet:?xt=urn:btih:D9E7596A261396335314E39F7DB341A3CFA5D266
 magnet:?xt=urn:btih:982B0BD9D58238957C406ABFDB8BB9340D57E880
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +651,36 @@ magnet:?xt=urn:btih:982B0BD9D58238957C406ABFDB8BB9340D57E880
 ```bash
 magnet:?xt=urn:btih:93AA36AFB4AA532478CDEB0EFD128AF75C82C1DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 862554   (927106) от 25.01.2015
+
+Эверли / Everly (2014) WEB-DL [H.264/720p-LQ] [EN / EN Sub]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_927106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женщина пытается выжить в схватке с бойцами якудзы, чтобы спасти своих мать и дочь.
+Действие всего фильма происходит в стенах одной квартирыПроизводство: США |  Crime Scene Pictures, Vega, Baby!, Anonymous ContentЖанр: Боевик, ТриллерРежиссер: Джо ЛинчАктеры: Сальма Хайек, Дженнифер Бланк, Того Игава, Кэролайн Чикези, Габриэлла Райт,
+Энди МакДермотт, Аки Котабе, Уки Сертич, Масаси Фудзимото, Елена ГавриловичПеревод: ОтсутствуетЯзык субтитров: АнглийскийПродолжительность: 01:32:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66BF7B650B50FD95ACDAC777C0C479B2AA1EAD24
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Discovery. Священная сталь / Sacred Steel Bikes (2016) HDTVRip [H.
 magnet:?xt=urn:btih:1CF19E08A2F8D3A5C1543A8E0A816899392BA0C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NGW: TerraMater. Дикая природа Уганды / Wild Uganda (2018) HDT
 ```bash
 magnet:?xt=urn:btih:8AF57BB81088FFF7430D8BEA7FEA10369820CFEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG: Международный аэропорт Дубай. Серия 8 / Ultim
 magnet:?xt=urn:btih:0555B97A91230DF09E58D29D24C9D45D9FEB630F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:0555B97A91230DF09E58D29D24C9D45D9FEB630F
 ```bash
 magnet:?xt=urn:btih:416207D2E43D1A61A18B72A9D7F94118D987DC04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NG: Международный аэропорт Дубай. Серия 9 / Ultim
 magnet:?xt=urn:btih:1BFB0A58EC1C100ADB0659C33B611E3686FB5074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 ```bash
 magnet:?xt=urn:btih:CF688C3A789685BC39CD6CA40056A910EAC884F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NG: Международный аэропорт Дубай. Серия 1 / Ultim
 magnet:?xt=urn:btih:E70A5F342B462DC03B3EA5A870F49D9AD929F526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NG: Возмездие / Avenging Evil (2018) DVB
 ```bash
 magnet:?xt=urn:btih:77A00A719CD3E6D9FA285A9DDDBFA12A84D05D32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:77A00A719CD3E6D9FA285A9DDDBFA12A84D05D32
 magnet:?xt=urn:btih:95E297A8FFD1CB08A532BB87634A7484372D576B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ NG: Международный аэропорт Дубай. Серия 7 / Ultim
 ```bash
 magnet:?xt=urn:btih:AE2D0DD318B1682A3DDC308C515B38DB730556FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NG: Международный аэропорт Дубай. Серия 6 / Ultim
 magnet:?xt=urn:btih:93005FA91C30D192FDD6701DB2A10C6B7E22D9CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:93005FA91C30D192FDD6701DB2A10C6B7E22D9CE
 ```bash
 magnet:?xt=urn:btih:8258341B9750FD886A9BCE44126EF54191C1CE9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ BBC: Horizon. Эпоха больших данных / Horizon. Age of Big Data 
 magnet:?xt=urn:btih:8BEFFE80AEB7ABE97525DB14E098F870819C16F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ NG: Дикий Йеллоустоун: Волчица /  Wild Yellowstone: She W
 ```bash
 magnet:?xt=urn:btih:B7E1A2FF998E7A786ADA8FC4AB45E85656663527
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:B7E1A2FF998E7A786ADA8FC4AB45E85656663527
 magnet:?xt=urn:btih:04582972D24AB35AC7488D561500DFF37D622EBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:04582972D24AB35AC7488D561500DFF37D622EBA
 ```bash
 magnet:?xt=urn:btih:04C907C99669B5680AC40AC35BD7BB102549FD13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ NG: Расследования авиакатастроф / Air Crash Investigat
 magnet:?xt=urn:btih:A4B8464B683A7F85DE3B57243B16A12F46A6C42A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ BBC: Чудеса жизни. Серии №1-5 из 5 / Wonders of Life (2013) 
 ```bash
 magnet:?xt=urn:btih:139B2B798DA60E158A82B0E3CF8D2499CD9B6F76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ NG: Широкий взгляд с Кэлом Пенном / The Big Picture wit
 magnet:?xt=urn:btih:FC6896F8F5CD001A9F9DB94D6547FB972B78A6F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Discovery: Шерпа / Sherpa (2015) HDTVRip
 ```bash
 magnet:?xt=urn:btih:3C570364532DE7807D467A005D68C9BCB80B6F23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Discovery. Гонка на вымирание / Racing Extinction (2015) HDTVRip
 magnet:?xt=urn:btih:69C7C01F817FEBCA5D64A96EA7EEBB09BE53E165
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ NG. Космический шаттл: триумф и трагедия / The Sp
 ```bash
 magnet:?xt=urn:btih:4084B89AE8CD807C73B256D4E0A34878ABC14FE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ BBC. Кракатау. Последние дни / Krakatoa. The Last Days (2006
 magnet:?xt=urn:btih:F165DC3F81C8E5AFF9C8A06FED3AF6ED03E36016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ NGW. Голый землекоп: Самый странный супергеро
 ```bash
 magnet:?xt=urn:btih:1EF5CFDCDB5ACA64920E7EFCE87F93947C9AD1C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ NGW: Дикая природа Перу: арена боев – Анды. До�
 magnet:?xt=urn:btih:6D9EA8D977E5B30329BCA8C6D075F3446F68AA06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ NG: Из истории Второй мировой войны. Гражданс
 ```bash
 magnet:?xt=urn:btih:AEA52ABC6099A1A60301BB4A37CD3AF6FDB2C858
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

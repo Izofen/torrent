@@ -22,6 +22,8 @@ AndroPods v1.5.26 Mod by adidas [Ru/Multi]
 magnet:?xt=urn:btih:459925BAC9DAF0A153582943FB39ED38A4C21966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ eWeather HDF - это точный прогноз погоды от двух м�
 magnet:?xt=urn:btih:434A12BE8655371BEC8551161F557761B1EC0145
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Windy.app - очень и очень востребованное погодно
 ```bash
 magnet:?xt=urn:btih:3A6C98F56C6B8818171A1A43431A7BF0BC6BBBF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:3A6C98F56C6B8818171A1A43431A7BF0BC6BBBF2
 magnet:?xt=urn:btih:5C4787BA0C2E94FC240A01AA69C6B7DA65F00937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Windy.app - очень и очень востребованное погодно
 ```bash
 magnet:?xt=urn:btih:E8756D4080895C1EBF3B30DF45FEF522508AABAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Picturize it v1.1.9.1 Mod by srajawwal09 [Ru/Multi]
 magnet:?xt=urn:btih:BEC1E395D19127676D4C41306C5AA1829BEA8C62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Reface: Face Swap AI Generator v4.11.0 Mod by derrin [Multi]
 ```bash
 magnet:?xt=urn:btih:BFA1F988EB458DFA426D0CE8D76E24CD4EA0CAAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ ToonMe v0.7.8 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:C2DC287309273E76AF13EF7195B606B2EEA9B3FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Rutube v29.4.1 Mod by vadj [Ru/En]
 ```bash
 magnet:?xt=urn:btih:C2143E91AEDCF5E90675C9B94407CE8CAB34A876
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:C2143E91AEDCF5E90675C9B94407CE8CAB34A876
 magnet:?xt=urn:btih:537352E91E487E0A8B340762CDAEF202C5765F7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ n7player Music Player - весьма впечатляющий своими во�
 ```bash
 magnet:?xt=urn:btih:D3612214A9BC10EC4E2951E6DCBA8CF53174CF33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Foreca Weather - весьма популярное погодное прилож
 magnet:?xt=urn:btih:16D7B66226030127E709034E31BAF82BC40E1701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Foreca Weather - весьма популярное погодное прилож
 ```bash
 magnet:?xt=urn:btih:0EFA565E3E43035007E7EDBE20404DD9DCEE7604
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:0EFA565E3E43035007E7EDBE20404DD9DCEE7604
 magnet:?xt=urn:btih:A592DC60D2010CAF5C2826783197F7DAB5895A4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ MiX Camera - это альтернативная камера для Android, р
 ```bash
 magnet:?xt=urn:btih:988C877F69D84A2D1EE7EA0053A9045E9B8DA827
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Transparent clock & weather / Прозрачные часы и погода 7.01
 magnet:?xt=urn:btih:43601D90218CE9957DF7DA1FBD09F55D83C64EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ AIDA64 2.01 (ARM64) Mod by CMAPTOC [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DED5BA7C289E124FCDE00CEFD1D73FAC08C91D9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:DED5BA7C289E124FCDE00CEFD1D73FAC08C91D9D
 magnet:?xt=urn:btih:2A740AD138E727124E1522C0357ADC0B76B13C3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ ESET Mobile Security Antivirus 9.0.14.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A478BF511D93F76AE99F3B8F18FF6D0C2E5CF6F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ RS Проводник - запросто поможет вам в управле
 magnet:?xt=urn:btih:83F8353F360E4EF6177FF9614D81C4B310A1ABA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Bluetooth Codec Changer - это приложение для быстрой см
 ```bash
 magnet:?xt=urn:btih:7D83567970A6C50684094539B5DC4691DB87B426
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Colorfy - это раскраска, призванная помочь вам у
 magnet:?xt=urn:btih:5AA008F3351DFE7E8A5F0B4A1376019D4C731002
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Polarr v6.9.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:71F23DCC22E039722C93FB43DAA38BABFD30E727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Moon+reader относится к категории универсальных 
 magnet:?xt=urn:btih:10866B3A44A4850FE051B74BFEFA9ECA54FEBC41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ Busuu - популярный и востребованный проект для
 ```bash
 magnet:?xt=urn:btih:72965CB3472598649863C14149AEF86EB7F27CCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:72965CB3472598649863C14149AEF86EB7F27CCE
 ```bash
 magnet:?xt=urn:btih:4360CB1F77D80EF1E8467ED67F13B96A62DAFF73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

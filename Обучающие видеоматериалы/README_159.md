@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8A01DBEEC74294C7CDF7C8B5D5F095BA1DC33193
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Fandroid | Продвинутый курс по созданию андроид-
 ```bash
 magnet:?xt=urn:btih:3F75E4F29D190BF93115FCADFA34AE5D5CEF8A63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:3F75E4F29D190BF93115FCADFA34AE5D5CEF8A63
 magnet:?xt=urn:btih:96268EADC07D7B396493DAE5F79C78FC9E8B3894
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Lynda.com | Bootstrap 3 (2013-2014) [PCRec] [EN]
 ```bash
 magnet:?xt=urn:btih:70E0F03ECA702970C8629B0D05F67D74E15FFA2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:70E0F03ECA702970C8629B0D05F67D74E15FFA2B
 magnet:?xt=urn:btih:DC8966F7A95A9241A931AFA8CFB66B8DB1601359
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:DC8966F7A95A9241A931AFA8CFB66B8DB1601359
 ```bash
 magnet:?xt=urn:btih:F9B3CEAF9B1ABD01DB88526B5277D6181E775462
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Hydra - это техническая конференция, на котору�
 magnet:?xt=urn:btih:E8E306FC4A9B0C3670AECB12C3BD66CAA92362F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Cathe Friedrich | Cross Fire (2012) DVDRip [EN]
 ```bash
 magnet:?xt=urn:btih:97717D5951586F1E2F62D98E9C82D7B8B6C57959
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:97717D5951586F1E2F62D98E9C82D7B8B6C57959
 magnet:?xt=urn:btih:3BD57825AEB1DB4F2B8C14B4FEC1E83DD72FC598
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:3BD57825AEB1DB4F2B8C14B4FEC1E83DD72FC598
 magnet:?xt=urn:btih:C8DB2F492D061EA26CB3C19EC196DC71C7E9FD61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:C8DB2F492D061EA26CB3C19EC196DC71C7E9FD61
 ```bash
 magnet:?xt=urn:btih:817D44F6BC97D840FD09956E77018DA0394194D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ FXPHD | NUKE: Tips and Tricks (2016) HDTV [RU, EN]
 magnet:?xt=urn:btih:228AD52252BD2889AABC519D69541BEB6100D083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Oleg Lav | ZoneAlarm Free Firewall — Фаервол для вашего ком
 ```bash
 magnet:?xt=urn:btih:EA5FD61E150889FEB0E60ACC3EE448348462D2BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Daily Burn | DB10 (2017) HDTVRip [H.264/720p-LQ] [EN]
 magnet:?xt=urn:btih:0684A49ACC02455A07E0DB89167BBE534EC9D13B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Heisenbug — большая техническая конференция, ко
 ```bash
 magnet:?xt=urn:btih:213A063E800FE14FBFAD727B6123FA90935D60C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:213A063E800FE14FBFAD727B6123FA90935D60C4
 magnet:?xt=urn:btih:537C8A7582BD68A22B01C83706C80A7224759DBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:537C8A7582BD68A22B01C83706C80A7224759DBB
 ```bash
 magnet:?xt=urn:btih:7A967F8F4EB9F1B39D2B4E2B16CABFBB0F7A3B21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ tocode.ru | Курс по vue.js - с нуля до про (2019) PCRec
 magnet:?xt=urn:btih:23E104EBDD9EAE189DE28B8566254A85C2AEAD1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:23E104EBDD9EAE189DE28B8566254A85C2AEAD1C
 magnet:?xt=urn:btih:4E9B90519BFA227C635474EC490B1D502ADB1190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ Udemy, Mrawan Hussain | Создание реалистичного автомо
 ```bash
 magnet:?xt=urn:btih:F1316513D209943AED3D33F5498227A346BBBC14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ software-testing.ru | Техники и инструменты поиска и �
 magnet:?xt=urn:btih:D71958CF788560FACA5EAB4A0B2A3FE7A56589C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ Udemy, Dmitrii Fokeev | Курс по Adobe Photoshop 2022 - С нуля до р
 ```bash
 magnet:?xt=urn:btih:D719E12EE3794EE0776BA369942FFED913E9BBF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ MikroTik — латвийский производитель сетевого о
 magnet:?xt=urn:btih:A6F8E4AFD21799A548AEFEE6159AED22DAEA4B35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ Skillbox | Motion-дизайн с нуля до PRO (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:8408C9D6AD9C9520B5F62B4D2CBC1F795F53D959
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ software-testing.ru | Организация функционального те
 magnet:?xt=urn:btih:9CFCB73C40DAD0F1096933C6C3339DAD0FBA7DE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ Udemy | Создание и дизайн современного дома в Bl
 ```bash
 magnet:?xt=urn:btih:449EEEDE794447BDC5BAE4D367234C3370B2157B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1091782   (941312) от 10.01.2017
+
+В поисках Дон Кихота (09.01.2017) HDTVRip [H.264/720p-LQ] (выпуск 5)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941312.jpg" />
+</div>
+
+
+###  Подробнее
+
+«В поисках Дон Кихота» — новый документальный авторский цикл Владимира Познера и Ивана Урганта. На этот раз они отправились в Испанию.Ведущие вспоминают один из самых тяжелых периодов испанской истории — период Гражданской войны, которая закончилась победой франкистов и установлением диктатуры Франко. Франко пробыл у власти 40 лет и умер 20 ноября 1975 года. Его похороны напоминали похороны Сталина. Вдоль всего пути траурного кортежа от центра Мадрида до Долины павших стояли тысячи людей. Для одних (   Читать дальше...   )Телекомпания: 1 каналЖанр: Документальный, биография, история, путешествияПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4343472D88F15DDF186F976F24087BD13609B05E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 859948   (941375) от 16.01.2015
 
 Музей художественного стекла в Санкт-Петербурге (2013) HDTV [H.264/1080i]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:19CF1434C1D44DEED939F149DDD3E1FEF60E57A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:19CF1434C1D44DEED939F149DDD3E1FEF60E57A5
 magnet:?xt=urn:btih:F78E6A389FD356243F1402530CD668DA0F8C2A33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:F78E6A389FD356243F1402530CD668DA0F8C2A33
 ```bash
 magnet:?xt=urn:btih:1CC39BF0AD37BF71A964C8E2822C114FC7ADE3FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:1CC39BF0AD37BF71A964C8E2822C114FC7ADE3FE
 magnet:?xt=urn:btih:EFA8A56690BBDB36D69A5B6875FC63D276252B05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:EFA8A56690BBDB36D69A5B6875FC63D276252B05
 ```bash
 magnet:?xt=urn:btih:E3FC38181EBBDC320D9239696A0B68FA85A58B48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:E3FC38181EBBDC320D9239696A0B68FA85A58B48
 magnet:?xt=urn:btih:E1AF1E8F29948FBE0513457CD6BBA5F50AFD7B31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:E1AF1E8F29948FBE0513457CD6BBA5F50AFD7B31
 ```bash
 magnet:?xt=urn:btih:BF421890A74DBECEF5C77E63038DC71D5EA098E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:BF421890A74DBECEF5C77E63038DC71D5EA098E5
 magnet:?xt=urn:btih:5D9FC5095EBF29D469A83E817613E8D383300ECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:5D9FC5095EBF29D469A83E817613E8D383300ECB
 ```bash
 magnet:?xt=urn:btih:35F73E139261575C47381713AE4A9BF70AAC5438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:35F73E139261575C47381713AE4A9BF70AAC5438
 magnet:?xt=urn:btih:4707167F500CBBFDC90A7FEB88608AEA39CE0E69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:4707167F500CBBFDC90A7FEB88608AEA39CE0E69
 ```bash
 magnet:?xt=urn:btih:BB1C0CBFE5DFE2C8D076047EACDA8BAE352DE779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:BB1C0CBFE5DFE2C8D076047EACDA8BAE352DE779
 magnet:?xt=urn:btih:082D705760BE478E4E705E61F6D85E32F72C0D91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:082D705760BE478E4E705E61F6D85E32F72C0D91
 ```bash
 magnet:?xt=urn:btih:A18A25A827FE81017C7989B3F7F0ED13D4AD48F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:A18A25A827FE81017C7989B3F7F0ED13D4AD48F2
 magnet:?xt=urn:btih:83CD9ADF84C8CA1FFC42D6D979382A340C5C14E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:83CD9ADF84C8CA1FFC42D6D979382A340C5C14E4
 ```bash
 magnet:?xt=urn:btih:58058AEBBCE1FCA3ADD050A37DE8772679C14828
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:58058AEBBCE1FCA3ADD050A37DE8772679C14828
 magnet:?xt=urn:btih:547CF68725E2EA7E7014677E579B8D9C8C8563F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:547CF68725E2EA7E7014677E579B8D9C8C8563F5
 ```bash
 magnet:?xt=urn:btih:602D69BD4A03D7B9CE3875121275170C075F124C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:602D69BD4A03D7B9CE3875121275170C075F124C
 magnet:?xt=urn:btih:8C39CFB0216415722AAB5FCAC37150118F7246C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:8C39CFB0216415722AAB5FCAC37150118F7246C3
 ```bash
 magnet:?xt=urn:btih:0A94098160472D7782EFA602A68211EA0DB163AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:0A94098160472D7782EFA602A68211EA0DB163AE
 magnet:?xt=urn:btih:3216078AD557BAFA675065CCBF243014D8E4FAF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:3216078AD557BAFA675065CCBF243014D8E4FAF1
 magnet:?xt=urn:btih:94F25BFC4B0878CB71BAEF4B5940460C19856F1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:94F25BFC4B0878CB71BAEF4B5940460C19856F1D
 ```bash
 magnet:?xt=urn:btih:5F855994DAD71228C21765213818F27E71E5B09B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:5F855994DAD71228C21765213818F27E71E5B09B
 magnet:?xt=urn:btih:4D63CC3ADB9BFE643E7BA7E57D2BA32231E56F9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:4D63CC3ADB9BFE643E7BA7E57D2BA32231E56F9B
 ```bash
 magnet:?xt=urn:btih:82D155B594C20DE049A648220FA8D40066016DC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,30 +675,7 @@ magnet:?xt=urn:btih:82D155B594C20DE049A648220FA8D40066016DC8
 magnet:?xt=urn:btih:E7C8F2083589ED53FF93213415E8806395B382E7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983267   (943351) от 06.02.2016
-
-Русский удар (2016) SATRip
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_943351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеканал РЕН ТВ расскажет, как готовятся русские суперсолдаты: от древнерусских воинов до элитных бойцов спецназа, которых уважают даже враги. Впервые зрители увидят тренировки засекреченной структуры «К-9» и получат доступ к эксклюзивным интервью бывших сотрудников ГРУ – только в фильме «Русский удар» на РЕН ТВ.
-Универсальный солдат – не вымышленный герой голливудского (   Читать дальше...   )Телекомпания: РЕН-ТВЖанр: ДокументальныйПродолжительность: 01:23:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A7437D468546E58093AD13DF9EC8328831CB4AD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

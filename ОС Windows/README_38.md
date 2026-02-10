@@ -1,3 +1,32 @@
+###  Публикация: 1841441   (1048019) от 11.12.2025
+
+Windows 7 SP1 with Update [7601.28021] AIO (x64) by SURASOFT (v25.12.09) [Ru]
+
+>>ОС Windows
+>>Сборки Windows 7
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1048019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана на основе оригинальных образов от MSDN.
+ru_windows_7_professional_with_sp1_x64_dvd_621772.iso
+ru_windows_7_ultimate_with_sp1_x64_dvd_618249.iso
+ru_windows_7_enterprise_with_sp1_x86_dvd_620274.iso(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AEB06285D2C0F89A03A16DA252CAE6E1BE668A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841685   (1048059) от 13.12.2025
 
 Windows 7 SP1 7601.28064 x64 3in1 by OneSmiLe [12.12.2025] [Ru]
@@ -21,6 +50,8 @@ Windows 7 SP1 7601.28064 x64 3in1 by OneSmiLe [12.12.2025] [Ru]
 ```bash
 magnet:?xt=urn:btih:BABE2152F0641CA47460C97092F887BEC3C87C24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ ru_windows_10_enterprise_ltsc_2021_with_update_19044.6456_aio_2in1_x64_dvd
 magnet:?xt=urn:btih:D60DA3AEE201EE9BB5C9E459B149D3E4EAD0477C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +105,8 @@ Microsoft® Windows® 11 Enterprise LTSC x64 24H2 RU by OVGorskiy 12.2025
 ```bash
 magnet:?xt=urn:btih:244AEA5862679FE3E76421E73482B7D2A936742F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +132,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:0622D681DB12D2813F7DE3156DBEABCFB7D85DF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +157,8 @@ Windows Server, версия 23H2 - это первый выпуск ежего�
 ```bash
 magnet:?xt=urn:btih:A89ACB645A49BB68EA03336758BF6CFFBCAD4FFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +184,8 @@ Microsoft Windows Server 2025 поможет вам справиться с вы
 magnet:?xt=urn:btih:92F2DAEDE1D5149142E7618B79D5B38063CEA27D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +209,8 @@ Windows Server 2022 впервые обеспечивает расширенну
 ```bash
 magnet:?xt=urn:btih:36B0F4C041BF8FFC9F579B1777B0E00CFDA6CF4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +236,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:36EBA6F7DC9FA47F79858F08965994157B02560C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +262,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:4D0F129495AA3ABBE3C7AA8DDAFFB8B33E4B7ADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +287,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:41BA4D85C2E4BC9C0639792575FB15D0FB3A9B64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +317,8 @@ Windows 11 PRO 25H2 26200.7462 Update 2 by Ghost Spectre [En]
 magnet:?xt=urn:btih:530FCFE8F72BED4559231FEDE581ED9C82166550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +343,8 @@ Microsoft Office 2024 – это локализованная версия па�
 magnet:?xt=urn:btih:2D815880B979BFD72AFF73A97AE4C6A36D999CF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +368,8 @@ Windows 11 Pro х64 Version 25H2 Build 26200.7462 by Igors_VL [RU]
 ```bash
 magnet:?xt=urn:btih:324DA1C2B7A4330515C4E42A8F567509546752D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +396,8 @@ Windows 11 25h2 24in1 (incl. LTSC 24H2) +/- Office 2024 by SmokieBlahBlah 2025.1
 magnet:?xt=urn:btih:D9AEA92B1B0302686C98D8F9CBAAE955F1959AEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +421,8 @@ Windows 10 v22H2 19045.6691 и Windows 10 Корпоративная LTSC v21H2 
 ```bash
 magnet:?xt=urn:btih:1BCCA8E27FF74EC6C6ACEE5665DDABEE310AE92A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +451,8 @@ ru-ru_windows_11_business_editions_version_25h2_updated_dec_2025_x64_dvd_a880111
 magnet:?xt=urn:btih:D3E7556BC11CA314717BC0E02887CAF1BD55A8EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +479,8 @@ ru-ru_windows_10_business_editions_version_22h2_updated_oct_2025_x64_dvd_d7d4c62
 ```bash
 magnet:?xt=urn:btih:2084C44568719A002C1C6432D07490E898F22D35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +509,8 @@ DirectX 9.0, 7-ZIP интегрированы.(   Читать дальше...  
 magnet:?xt=urn:btih:A5607D54DE560A3F44BCA1784CD4F2A86FA8188C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +538,8 @@ Windows 7 SP1 7601.28117 x64 3in1 by OneSmiLe [17.01.2026] [Ru]
 magnet:?xt=urn:btih:BD2B32E9383167054B57F2B795B2BCC0CB2604ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +563,8 @@ Microsoft® Windows® 10 x64 Ru 22H2 4in1 Upd 01.2026 by OVGorskiy
 ```bash
 magnet:?xt=urn:btih:F1C9FFB1549E2DCD5D8E01D12621835856A52CED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +593,8 @@ Remote Desktop Server. Microsoft OneDrive удалено.(   Читать дал
 magnet:?xt=urn:btih:0C8D95B39CD191F40DA07B23303677B79ABBD877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +621,8 @@ Remote Desktop Server. Microsoft OneDrive удалено.(   Читать дал
 ```bash
 magnet:?xt=urn:btih:2A535DEE1F7D2533425236018400A13F910EC05E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +651,8 @@ Store, App, defender удалены (No означает отсутствие, �
 magnet:?xt=urn:btih:27EDFACF0E109FCC4B980A91E38C6DE2B14CDA32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +679,8 @@ DirectX 9.0, 7-ZIP интегрированы.(   Читать дальше...  
 ```bash
 magnet:?xt=urn:btih:FB165C6E8CB7AA337752CFBDAD6C0A6A5B3D7D64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,32 +709,7 @@ Remote Desktop Server. Microsoft OneDrive удалено.(   Читать дал
 magnet:?xt=urn:btih:C8A3C16F3D6D8EF8F1288F56C871D5293C5D9F4A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848585   (1053288) от 21.01.2026
-
-Windows 11 25h2 (build 26200.7623) (24in1) (x64) NoStore NoApp NoDefender by Izual Soft [v16.01.26] [Ru/En]
-
->>ОС Windows
->>Песочница ПО и сборок Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1053288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка создана на основе оригинальных файлов UUP.
-Store, App, Defender удалены ( No без приложения, отсутствие  No означает с приложением NoStore NoApp NoDefende означает удаление
-Remote Desktop Server. Microsoft OneDrive удалено.
-DirectX 9.0, 7-ZIP интегрированы.(   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BACB48647FA5BE09CFEB48AD0BB094BABD8BC2A1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1565568   (492586) от 24.07.2022
+
+Главная дорога (23.07.2022) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_492586.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Главная дорога» — первая на российском телевидении информационная программа обо всем, что происходит на дорогах страны. Это полчаса полезной информации не только для автолюбителей, но и для пешеходов. В постоянной рубрике «Испытано на себе» зрителей ждут наглядные советы, как вести себя в сложных ситуациях на дорогах. Сложнейший курс контраварийной подготовки, адаптированный (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:29:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEFA2FF5131CE6316D59747F8BC708D1C0520F68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1318671   (492615) от 07.08.2019
 
 За пределами Земли. Освоение космоса / Beyond Earth: The Beginning of NewSpace (2016) HDTV [H.264/1080i-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:FDD035E1AB974285267CFA69DC9AA2637AEF1871
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:FDD035E1AB974285267CFA69DC9AA2637AEF1871
 magnet:?xt=urn:btih:CD39F428B8860C4A7ABA29AD68E21C56B4C9AAB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:CD39F428B8860C4A7ABA29AD68E21C56B4C9AAB4
 ```bash
 magnet:?xt=urn:btih:2F3A19EBD0751D13A472A35818205FC58A516972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:2F3A19EBD0751D13A472A35818205FC58A516972
 magnet:?xt=urn:btih:1DFE95B1C0A16BBBE001E86F71B223A82A4CD5D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:1DFE95B1C0A16BBBE001E86F71B223A82A4CD5D4
 ```bash
 magnet:?xt=urn:btih:EB991723E7DCA7997343C7D42710866057118E59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:EB991723E7DCA7997343C7D42710866057118E59
 magnet:?xt=urn:btih:75B17B319DD564170E45EF5918A0D7EFE4F5F650
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:75B17B319DD564170E45EF5918A0D7EFE4F5F650
 ```bash
 magnet:?xt=urn:btih:2F65EC8ED2777F23C0DAE750CBB3826C7E5B22A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:2F65EC8ED2777F23C0DAE750CBB3826C7E5B22A1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:2F65EC8ED2777F23C0DAE750CBB3826C7E5B22A1
 ```bash
 magnet:?xt=urn:btih:D5F4CFFE8E0EE437C73271B3E5F52F358821217A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:D5F4CFFE8E0EE437C73271B3E5F52F358821217A
 magnet:?xt=urn:btih:4EE811341D7D17E9A03E7C70AC86D32F45F17340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:4EE811341D7D17E9A03E7C70AC86D32F45F17340
 ```bash
 magnet:?xt=urn:btih:EAEDD4BDC94048D091017804DAD53F68F9F95957
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:EAEDD4BDC94048D091017804DAD53F68F9F95957
 magnet:?xt=urn:btih:E1B07D994C581E5C9B133ABA5A04249C49708B1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:E1B07D994C581E5C9B133ABA5A04249C49708B1C
 ```bash
 magnet:?xt=urn:btih:53AEADC7D2D032E5FB3C4916118C69FD915C6999
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:53AEADC7D2D032E5FB3C4916118C69FD915C6999
 magnet:?xt=urn:btih:6C45BF65C8366FF67B35F6B8F9630846E35204DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:6C45BF65C8366FF67B35F6B8F9630846E35204DE
 ```bash
 magnet:?xt=urn:btih:281AA00691075C1E8FF81918C93DB1460F7BD7DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:281AA00691075C1E8FF81918C93DB1460F7BD7DA
 magnet:?xt=urn:btih:E57CC3EF2E7F74DFC4FC1EEB5E377667BAE4D521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +460,8 @@ magnet:?xt=urn:btih:E57CC3EF2E7F74DFC4FC1EEB5E377667BAE4D521
 ```bash
 magnet:?xt=urn:btih:F8F7558EB7F38E81960CFED39662AC6CA598116C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:F8F7558EB7F38E81960CFED39662AC6CA598116C
 magnet:?xt=urn:btih:AB7228156B072744ADCF76083C120222CEF25BCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +512,8 @@ magnet:?xt=urn:btih:AB7228156B072744ADCF76083C120222CEF25BCC
 ```bash
 magnet:?xt=urn:btih:596F59708AECB1E01F9487907F67C8BF8A36C672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:596F59708AECB1E01F9487907F67C8BF8A36C672
 magnet:?xt=urn:btih:0589A92B44B8C3E8C48B879BBFA699DC8D1E8D2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +564,8 @@ magnet:?xt=urn:btih:0589A92B44B8C3E8C48B879BBFA699DC8D1E8D2C
 ```bash
 magnet:?xt=urn:btih:FC40CE0179DCE6C52D6F0F19E686EA7E6C7A0D19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:FC40CE0179DCE6C52D6F0F19E686EA7E6C7A0D19
 magnet:?xt=urn:btih:48A052708C4A123FA8C668E130814A1757CC39CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +616,8 @@ magnet:?xt=urn:btih:48A052708C4A123FA8C668E130814A1757CC39CB
 ```bash
 magnet:?xt=urn:btih:02211E867C90F44AF9E928FCCED86E9C2CB0E12C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +643,8 @@ magnet:?xt=urn:btih:02211E867C90F44AF9E928FCCED86E9C2CB0E12C
 magnet:?xt=urn:btih:12D8AFE7044984467FB1EBB3029B0BB97449EF3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,29 +669,7 @@ magnet:?xt=urn:btih:12D8AFE7044984467FB1EBB3029B0BB97449EF3D
 magnet:?xt=urn:btih:888D4F216DDA77EAF2F9BE2F43764D7D7EE3633E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053957   (494217) от 19.09.2016
-
-Дело копа-каннибала / Thought Crimes: The Case of the Cannibal Cop (2015) HDTVRip
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_494217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм об офицере полиции Нью-Йорка Жилберто Валле, который в марте 2013 года был обвинен в сговоре с целью похищения и поедания женщин. Это противоречивая история потенциально опасного молодого человека, получившего прозвище «коп-каннибал», и неожиданные последствия наших действий в сети.Производство: США  / HBO Documentary FilmsЖанр: Документальный, криминалистика, психологияПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:21:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C72D8F53652B007FA0D70340BD67A99E452572
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

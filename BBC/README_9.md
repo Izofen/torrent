@@ -19,6 +19,8 @@ BBC: Любовница и жена / The Mistress and the Wife (2009) SATRip
 magnet:?xt=urn:btih:35D9ABB396D52D71F70080E8CDF8B09F97405395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC. Год, Изменивший Планету  / The Year Earth Changed (2021
 ```bash
 magnet:?xt=urn:btih:BD478607AD27D03F8A3C066D88814566D4AEB197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC. Охота на Питера Тобина / The Hunt for Peter Tobin (2025)
 magnet:?xt=urn:btih:29671F2053E705146C7934BA3BF78CE53803F091
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC. Йеллоустоун: Борьба за жизнь / Yellowstone: Battle 
 ```bash
 magnet:?xt=urn:btih:BD54F25D8BBF662204BEA613B4ACE58B687F04AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC. Преступники Британии: разбойники, пираты
 magnet:?xt=urn:btih:93A86AB48E7EAFC38F0337B532B467257FBF48FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BBC: Я и гравитация. Сила, формирующая нашу жи�
 ```bash
 magnet:?xt=urn:btih:3CBA321A12B3575FE59D876722CE4AD8628A32E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ BBC: Битва экзопланет / Battle of the exoplanets (2018) HDTVRip [
 magnet:?xt=urn:btih:0FA862557412807E07B82F7EDA1FA840D98732D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:0FA862557412807E07B82F7EDA1FA840D98732D3
 ```bash
 magnet:?xt=urn:btih:B91401C8CC45AA7175C8CE8D93BEC47348CD5082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (19
 magnet:?xt=urn:btih:C6648B436703B798B533DC85A83C9AEEE5AD81A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ BBC: Империя чужих. Насекомые / Alien Empire (2001) [H.264]
 ```bash
 magnet:?xt=urn:btih:5DCD3CC69666C017FCAEE4C085CC8BB8DA93894A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 magnet:?xt=urn:btih:8176D73D9C994249AD2E3B346DD84043D91D511A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 ```bash
 magnet:?xt=urn:btih:C0548FAC359A0CB22F14791C9360A42E7835B282
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 magnet:?xt=urn:btih:7FB1DB14ECDB365AC7C43FF72A0B424347785104
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 ```bash
 magnet:?xt=urn:btih:EB4553022D074EE5F591F90D6C9ECF04A80037F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (20
 magnet:?xt=urn:btih:A750BFDF1C4BCF3971B81AA75967892F13124886
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ BBC: Дневник большой кошки / Big Cat Diary (Big Cat Week) (19
 magnet:?xt=urn:btih:876760ABE19A5C9B2586825FF3F1FB86A7DC6F5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ BBC: Мир природы. Китовая акула / Natural World. Whale Sha
 ```bash
 magnet:?xt=urn:btih:86DB5DC85364A8A14C42C48E11B8E49578D3388E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ BBC. Horizon: Чернобыль. Внутри саркофага / Inside Chern
 magnet:?xt=urn:btih:5FEF3960C48FDEE03E843DFD30FF894AA1239816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ BBC Horizon. Сделало ли приготовление пищи нас лю
 ```bash
 magnet:?xt=urn:btih:34FC0E2D524264C62F86074D4CC41A70BBA75CAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ BBC Horizon. Следи за собой / Monitor Me (2013) HDTVRip [H.264/720p-
 magnet:?xt=urn:btih:F3961FBB7451A6CCDA9E06B69DB72BD8C62CDCA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ BBC. Сокровища Древнего Рима / The Treasures of Ancient Rom
 ```bash
 magnet:?xt=urn:btih:5A910DE3ED69EAA2094D20BE144C9095736C7659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ BBC. Энди Гамильтон в поисках Сатаны /Andy Hamilton's
 magnet:?xt=urn:btih:4013C8CE750EA5DA534DBE2EBDD22F0C769208AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ BBC: Голубая планета / The Blue Planet (2001) BDRemux [H.264/1080p
 magnet:?xt=urn:btih:54FDFD11E4C0ED62B87A37625FBC75DE230A6D76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ BBC. Повседневные чудеса  / Everyday Miracles (2014) HDTVRip [
 ```bash
 magnet:?xt=urn:btih:83EE4D500172ECFA9A2BD1E33C9BBA959CB4A65A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ BBC: Дикие Карибы / Wild Caribbean (2007) DVDRip (сезон 1, се�
 magnet:?xt=urn:btih:B887F69188B84D24332E0D58166FC4E79292A9BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ BBC. Великая битва Александра Македонского / A
 ```bash
 magnet:?xt=urn:btih:3FDEF1B07B49D1D5FE2F70E2974BDF7383D12343
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Soft Lounge (2016) [MP3|320 Kbps] <Lounge, Downtempo, Chillout>
 magnet:?xt=urn:btih:7C4166AB32DC659121DB467D7A16B183E482C661
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - The Best of House on the Beach - 30 Sexy Chillout Tunes (2016) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:334157F12F5EB5F774F495F8643895994B73C920
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Hazem Beltagui - VIVID (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Trance,
 magnet:?xt=urn:btih:C34E0AFF2FD5042F10398EEEFA9C316E21EEA946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ PHCK - Natu (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
 ```bash
 magnet:?xt=urn:btih:34877643729E8AE8E8F3222F5054CB1B5A473940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Chris Montana & Dj Soulstar - 20 Years Perfect Lovers (2017) [MP3|320 Kbps]
 magnet:?xt=urn:btih:43875797F613FE52C0ACE2928737B09104D8AB8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Progressive Ibiza House 2K17 (Annual Anthems) (2017) [MP3|320 Kbps] <House,
 ```bash
 magnet:?xt=urn:btih:BEA2582657535375C670217D5A357BA143EDB930
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ VA - Shotgun (2012) [MP3|320 кб/с]<Tech House, Progressive Breaks, Progressiv
 magnet:?xt=urn:btih:9C810899498293613D4376CC005760534BB990C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ CD1 Original Album Remastered:
 ```bash
 magnet:?xt=urn:btih:EB3F27E44C78ED13D294FF572AD2A04DA473DEE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ Tom Box (Human Error, Arbitrarium) - Discography (2009-2016) [FLAC|Lossless|Trac
 magnet:?xt=urn:btih:66025D5439F64953C834E954249ED999F0ABA822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ VA - Get Physical Music Presents: Body Language, Vol. 18 by Tim Green (2016) [FL
 ```bash
 magnet:?xt=urn:btih:50D74F80A61738B3D391FC704D0CB2D1F8493E18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ VA - Black Hole Trance Music 03-19 (2019) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:414E2FD5B4351DB3B9E74A6E8ADABE3CDC9072F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +347,8 @@ VA - Summer Sessions 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech
 magnet:?xt=urn:btih:E9B0C35339F97CA1EA5AFF7B993B1D1CB59E9A68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +375,8 @@ Twin Peetz | The Difference Engine - Discography 11 Releases (1998-2018) ODrex M
 ```bash
 magnet:?xt=urn:btih:9BFCA3C13F952D29418B77BA5B579CC3DB3524B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +408,8 @@ Erasure - World Be Gone (2017) [MP3|320 Kbps] <Synthpop, New-Wave>
 magnet:?xt=urn:btih:4D3E8EFD1E23DD2FCE8AC925C71CF4584ED135FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +436,8 @@ VA - Erotic Spring Deep House (2017) [MP3|320 Kbps] <House, Deep House>
 ```bash
 magnet:?xt=urn:btih:B193F9F572631F5678FC3D0C9C2F1CD1F6EE15C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +466,8 @@ VA - Spa Pleasure (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:20933B6E85A7F0AB4CB4866E68B7FEF4511149AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +494,8 @@ Christopher Willits - Horizon (2017) [MP3|320 Kbps] <Ambient, Drone>
 ```bash
 magnet:?xt=urn:btih:2BD32508DA48D1C270842929E9BD4BFCDEAC3AC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +524,8 @@ VA - Intimacy, Vol. 04 (2017) [MP3|320 Kbps] <Minimal, Tech House>
 magnet:?xt=urn:btih:3D8E2689F8177B35DA8424998EB46F13FC324888
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +553,8 @@ VA - Can You Feel The Stretching? (2017) [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:09F56D6BA46FFBE3902238407C6CC19C3021A54E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +581,8 @@ VA - Redux Presents The Uplifting Selection Vol.2 (2017) [MP3|320 Kbps] <Trance,
 ```bash
 magnet:?xt=urn:btih:6D68E2FA44ADD1170CF3E59E715747DBCD41D9F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +617,8 @@ VA - Ibiza Miami 2012 (Very Best Of) (08.06.2012) (2012) [MP3|320 кб/с]<Club 
 magnet:?xt=urn:btih:7EE43BD7E8BE0121CC9A2825DF6D8B2EDD74850C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +652,8 @@ VA - Ibiza Summer Vibes: The Sound of The Party Island (2012) [MP3|320 кб/с]<
 magnet:?xt=urn:btih:FE51A09D4AE954B5A91FEA7B4D7A0FDA68A99488
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +680,8 @@ magnet:?xt=urn:btih:FE51A09D4AE954B5A91FEA7B4D7A0FDA68A99488
 ```bash
 magnet:?xt=urn:btih:DCCEA44D23036558E181C79D0EDD3F07492CCFE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +710,8 @@ VA - Latin Fit 2019-Latin Hits For Aerobic Exercises and Fitness Activities (201
 magnet:?xt=urn:btih:1BEDF086105CE94AEA4B7BC14EF481BE11C65C5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +739,8 @@ Disc 1:
 magnet:?xt=urn:btih:1860032621BD2149B9F1F5F4DDE1D9729F59B89A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -717,6 +767,8 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:B76B3E07B218E66AC6FD0BD67BBE6C5F79FBEF6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

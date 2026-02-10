@@ -19,6 +19,8 @@ Tyler Bay | Learning Solaris (2019) PCRec [En, Ru]
 magnet:?xt=urn:btih:1A180A1BB0763A79FF7E6799E1438C10D44D2771
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:1A180A1BB0763A79FF7E6799E1438C10D44D2771
 magnet:?xt=urn:btih:97889D855761CC3F9BBACECA2745571A4A7C716E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Maria Rogue-One | How to render correctly in ZBRUSH (2021) PCRec
 ```bash
 magnet:?xt=urn:btih:AF480C4AA8263216FF87224B6DF47EE9998926B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Slurm (Слёрм), Тимофей Ларкин и др. | CI/CD на приме
 magnet:?xt=urn:btih:29119BB78B18A217591ABB806EF558E7ED579419
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ Soft skills в переводе с английского — «гибкие н�
 magnet:?xt=urn:btih:AC00E83EA89F1F5FC1C49C642F0CEA7689DFEC3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Self-Learning, Виталий Трунин | Курс по T-SQL Путь про
 ```bash
 magnet:?xt=urn:btih:6658F25FD84840DF78C5A16FCCB882D2C0E11FA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Self-Learning, Виталий Трунин | Курс по T-SQL Путь про
 magnet:?xt=urn:btih:95871B0FABA417DFCBD4936D755F26151E9BB8FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Zenva Academy | Академия разработки игр: Симулятор
 magnet:?xt=urn:btih:3E01312360BF9E6A4B423FE00B90159AB2A132AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Applied Houdini ("практический Houdini", "Houdini в практич�
 ```bash
 magnet:?xt=urn:btih:6804C0EA792935BE8E4172247A5F702237A3AD54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ React Summi | React Summit Remote Edition 2021 PCRec [En]
 magnet:?xt=urn:btih:FF0BFCAB51A10F70AF5E9820AC1B03C20D979424
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Tyler Bay | Pyro I - Smoke & Steam (2019) PCRec
 ```bash
 magnet:?xt=urn:btih:ECACDD978186250CD417DFC3D9E0817A8B1556ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ Moritz Schwind | New in Houdini 18 (2019) PCRec [En, Ru]
 magnet:?xt=urn:btih:02C7CE3F7C83F74CF2A3D9F8FD2A5362043CB64F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Simon Verstraete | City Building With OSM Data (2020) PCRec [En, Ru]
 magnet:?xt=urn:btih:CA5251DF9B0FFBB07D1354240D119124B5F8D695
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ Alejandro Perez | Sand Tutorial Grains Solver (2019) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:70BEF3B68B769519B5ADACC6550572F700B04574
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ YanSculpts | Анатомия и форма в Blender 2.91 - Курс по ск
 magnet:?xt=urn:btih:8E00449B4340D3FFF9CF243501B6DFE8502DF250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ Geeks For Geeks | Java App Development: Summer Training - Live (2020) WEB-DL [En
 magnet:?xt=urn:btih:0BC282F4C78B5C41DE4BD7139DA92FE66425EAED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ Geeks For Geeks | Fundamentals of Java and Java Collections (2021) WEB-DL [En]
 ```bash
 magnet:?xt=urn:btih:2AA79B660BA83213AF0F26487CBB402CFDFFF182
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ Nizamov School, Илья Низамов | NuxtJS + 1C. Личный кабине
 magnet:?xt=urn:btih:6C5726BC3DBD6DDD3267877DB2D691F065D6505F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:6C5726BC3DBD6DDD3267877DB2D691F065D6505F
 magnet:?xt=urn:btih:71DE9C2BD97F92FC37549918A015EC446F89B33D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ Geeks For Geeks | C++ STL - Basic to Advanced (2020) WEB-DL [En]
 ```bash
 magnet:?xt=urn:btih:F734941787E61F70E2DCB26597D18289E0AA27DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ C - самый (   Читать дальше...   )Производство: Ud
 magnet:?xt=urn:btih:57C690269BC0C91C221802345540F00ED9C14903
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ HolyJS 2021 Piter | Конференция для JavaScript-разработч�
 ```bash
 magnet:?xt=urn:btih:526460122AEFFDC103C08CB2C6106CC4A5DC8A5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ Udemy, Astrit Krasniqi | Netacad CCNAv7 (semester 1-2 of 3) (2020-2021) PCRec [E
 ```bash
 magnet:?xt=urn:btih:8391A8911E3A07CBCDCB735946D5C8B708962B91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ Blender Car Series Vol 3: Cinematic Studio Lighting - Кинематографи
 magnet:?xt=urn:btih:31166538A53B80F07CEE321A39454C3FCCB2167F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ ZTM, Andrei Neagoie и др. | Complete Node.js Developer in 2021: Zero to Maste
 magnet:?xt=urn:btih:36163EF3105BB55B8F5479D67B36013123D695A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ Creative Shrimp | Создание стилизованного 3D арта в B
 ```bash
 magnet:?xt=urn:btih:C9B3C3BA91E27092B8819DD3861EEFA9F3255231
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

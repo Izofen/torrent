@@ -22,6 +22,8 @@ VA - ZYX Italo Disco Spacesynth Collection 2 (2015) 2CD, Compilation [FLAC|Lossl
 magnet:?xt=urn:btih:834F9E7CC05CC4BC4759A97F1DBA76FBDF3DED03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:834F9E7CC05CC4BC4759A97F1DBA76FBDF3DED03
 magnet:?xt=urn:btih:933EC30130797E18272B434D3FF91C4B3DE9A612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:933EC30130797E18272B434D3FF91C4B3DE9A612
 ```bash
 magnet:?xt=urn:btih:0E3BDEB89D088EAB3638F8105512CF1A836131B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ VA - Christmas Pop Hits (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:EA285B71169A8E67B9DA92E898AC9F179D5B59FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:EA285B71169A8E67B9DA92E898AC9F179D5B59FD
 magnet:?xt=urn:btih:A3B7138FB63C8E59832DCF4C0F6C389E598CA924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:A3B7138FB63C8E59832DCF4C0F6C389E598CA924
 ```bash
 magnet:?xt=urn:btih:DC96F63AEB13BA72D1D4EC2EBB8DC0484A5FCB79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ VA - Buddha Meditation Relax (2019) [MP3|320 Kbps] <New Age, Relax, Downtempo>
 magnet:?xt=urn:btih:3B5E1EFE3EAC8BE94659D8A1A28B761198F6CB08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ VA - ZYX Italo Disco New Generation Vol. 15 (2019) 2CD, Compilation [FLAC|Lossle
 magnet:?xt=urn:btih:52FF031A5CAE6EA4871C378B0EE5BF6FFC50EFCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:52FF031A5CAE6EA4871C378B0EE5BF6FFC50EFCD
 ```bash
 magnet:?xt=urn:btih:49D632E25EE38B3460F7C06AD8E88CCF8DAE4C73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:49D632E25EE38B3460F7C06AD8E88CCF8DAE4C73
 magnet:?xt=urn:btih:654BA6F20FA4DFA48859941F0000B81544B16832
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:654BA6F20FA4DFA48859941F0000B81544B16832
 magnet:?xt=urn:btih:D9E9DBFFA154924CCFD7088F49AF0F43A9B7ABFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:B14BC7F08EDF4F5EEA81AE56B6E1162CDB8E833A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Ansome - Hounds Of The Harbour (2019) Perc Trax [FLAC|Lossless|WEB-DL|tracks] <T
 magnet:?xt=urn:btih:DBC46DCF392CD9B17EC0FE55ECBC3C8E99B1F8C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:DBC46DCF392CD9B17EC0FE55ECBC3C8E99B1F8C5
 ```bash
 magnet:?xt=urn:btih:F1BE29989B892B2007033A2DA8D5E8BCE62646F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ The Pillbugs - Happy Birthday (2004) [FLAC|Lossless|image + .cue] <Rock, Psyched
 magnet:?xt=urn:btih:283CC0888804C2A133965DCCC8E765BF5006B7FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:3EDDEB88762DAE0D88F9699793B7F77F84650565
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ Intergalactic Touring Band (Межгалактическая Гастрольн�
 magnet:?xt=urn:btih:E8C44405A127AF1D5D574E08A7BACE17FFB4AE81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ The Parlour Band ‎ - Is A Friend? (1972) [FLAC|Lossless|image + .cue] <Prog Ro
 ```bash
 magnet:?xt=urn:btih:273A75209A3CC36B13EA3912E1A71F366126B815
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +520,8 @@ Brazzaville - Welcome to Brazzaville 2 (2012) [FLAC|Lossless|tracks + .cue] <Cha
 magnet:?xt=urn:btih:22386971346F49897BDDCF1C37016B6E46C7DBE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ SuperDuper! - Утилита для клонирования жесткого д
 ```bash
 magnet:?xt=urn:btih:3B8594A1E468D0F3765091F5068285A3F4480E65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +575,8 @@ Arkaean - Dawnlit Passage (2019) Silent Season [FLAC|Lossless|WEB-DL|tracks] <Te
 magnet:?xt=urn:btih:D3EEC628273AE05E90C06A3E66EED5973240CA5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ CD1:
 magnet:?xt=urn:btih:B9C86C4AFDA645FC5DCA6E114921C0C2EBDD7FD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +632,8 @@ EtreCheck Pro 6.1.5 [En]
 magnet:?xt=urn:btih:1D22C597745ACF3C2AA3BC1D6BBA212BAFCCCE6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +657,8 @@ Far Cry 4 (2014) [Ru/Multi] (1.10.0/dlc) Repack Other s [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:B1DF4365CFD763D1FCCF6C815606B683387258F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +684,8 @@ magnet:?xt=urn:btih:B1DF4365CFD763D1FCCF6C815606B683387258F5
 magnet:?xt=urn:btih:E97F2DF4FAE4EE660C672C2336D7F5D99DFAC7C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ magnet:?xt=urn:btih:E97F2DF4FAE4EE660C672C2336D7F5D99DFAC7C8
 ```bash
 magnet:?xt=urn:btih:AA88ADD54BCB8570CABAE973FC42A51EC9084F76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

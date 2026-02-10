@@ -1,3 +1,29 @@
+###  Публикация: 1111737   (846482) от 06.03.2017
+
+Кража (1982) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_846482.jpg" />
+</div>
+
+
+###  Подробнее
+
+В основе всех бед человеческих лежит кража. По Джеку Лондону кража - это присвоение плодов чужого труда тем или иным способом мошенничества. Герой произведения, Говард Нокс, известный своими социалистическими взглядами, собирается выступить в сенате с речью, обличающей мошенника из высшего общества ...Производство: СССР, ТО «Экран»Жанр: ДрамаРежиссер: Леонид ПчёлкинАктеры: Анастасия Вертинская, Иннокентий Смоктуновский, Юозас Будрайтис, Олег Борисов, Юрис Каминскис, Нина Ольхина, Елена Сотникова, Михаил Данилов, Валерий Матвеев, Татьяна Погоржельская, Ольга Волкова, Сергей Лосев, Любовь Полищук, Лариса КадочниковаПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 02:22:53 (2 серии одним файлом)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A50074AB4BAB52BD5BDC17E208983AA38C626701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 307150   (847496) от 12.03.2011
 
 В клешнях чёрного рака (1975) DVDRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:040F5214AEDF18D2F0D933C2F6615B17AECD0EA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:040F5214AEDF18D2F0D933C2F6615B17AECD0EA1
 ```bash
 magnet:?xt=urn:btih:2A34AAD284C6D48B52559CF46169535069B5DEBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:2A34AAD284C6D48B52559CF46169535069B5DEBF
 magnet:?xt=urn:btih:B326C86B4AD77E474739BE1148BDEDA56FFA1C65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:B326C86B4AD77E474739BE1148BDEDA56FFA1C65
 ```bash
 magnet:?xt=urn:btih:07461855E8A27CE6DE34D1837F8FEB62A6599D99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:07461855E8A27CE6DE34D1837F8FEB62A6599D99
 magnet:?xt=urn:btih:6DD84A7C3CE1B0474D2F53E77050B42D430B4E81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:6DD84A7C3CE1B0474D2F53E77050B42D430B4E81
 ```bash
 magnet:?xt=urn:btih:C44ACE55B16B1D07100FBD534351DE11C809531C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:C44ACE55B16B1D07100FBD534351DE11C809531C
 magnet:?xt=urn:btih:5A92EAC86963BE8CC8357ECCDE75EA2A10188943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:5A92EAC86963BE8CC8357ECCDE75EA2A10188943
 ```bash
 magnet:?xt=urn:btih:87F6D664C4E0F7CC48FD1D4E56A117B1B3E14DFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:87F6D664C4E0F7CC48FD1D4E56A117B1B3E14DFB
 magnet:?xt=urn:btih:AFF8E4A2D397ABA1E857D4681F2AD51F3A502E90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:AFF8E4A2D397ABA1E857D4681F2AD51F3A502E90
 ```bash
 magnet:?xt=urn:btih:DBAE42C0C81D3435316EAEDE91DD82C809E5364A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:DBAE42C0C81D3435316EAEDE91DD82C809E5364A
 magnet:?xt=urn:btih:6599592F71482E861E9DAADDB978A637C379D252
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:6599592F71482E861E9DAADDB978A637C379D252
 ```bash
 magnet:?xt=urn:btih:88F460393ECA4707711331DACA336FDF8FA98180
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:88F460393ECA4707711331DACA336FDF8FA98180
 magnet:?xt=urn:btih:FB9E44540C26EE1D112C1BF30FE758C8496A6D50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:FB9E44540C26EE1D112C1BF30FE758C8496A6D50
 ```bash
 magnet:?xt=urn:btih:FF3BC2F702149D858913A1173CE54D9650051EE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:FF3BC2F702149D858913A1173CE54D9650051EE8
 magnet:?xt=urn:btih:A33D9B3AA50C12A496B58A0311554277E850967F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:A33D9B3AA50C12A496B58A0311554277E850967F
 ```bash
 magnet:?xt=urn:btih:7D569A9801478DD708814BA0BFD62E973DB68751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:7D569A9801478DD708814BA0BFD62E973DB68751
 magnet:?xt=urn:btih:F6EA7498028A6EC512595D90F6A7A9163A42BD06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:F6EA7498028A6EC512595D90F6A7A9163A42BD06
 ```bash
 magnet:?xt=urn:btih:752B0845D8F823742EF113C6DAE46B147ECA4BA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:752B0845D8F823742EF113C6DAE46B147ECA4BA6
 magnet:?xt=urn:btih:39737EB25102B901A8EB8749985D7739FD4C5741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:39737EB25102B901A8EB8749985D7739FD4C5741
 ```bash
 magnet:?xt=urn:btih:62BE2833141A66C5BFA91EB0A06FBB7A069A8128
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:62BE2833141A66C5BFA91EB0A06FBB7A069A8128
 magnet:?xt=urn:btih:C48B0BDDFDCCA5BBA1A8627A51ABEB895436E393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:C48B0BDDFDCCA5BBA1A8627A51ABEB895436E393
 ```bash
 magnet:?xt=urn:btih:30786C086C28526D5137C0088C4FAA92298CE3DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:30786C086C28526D5137C0088C4FAA92298CE3DF
 magnet:?xt=urn:btih:D2B60996FA84384F33009CF6B4EA2A837DD289C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:D2B60996FA84384F33009CF6B4EA2A837DD289C3
 ```bash
 magnet:?xt=urn:btih:468C65DB46289A9DCF1A5875CD1B85894E5D2F38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,30 +674,7 @@ magnet:?xt=urn:btih:468C65DB46289A9DCF1A5875CD1B85894E5D2F38
 magnet:?xt=urn:btih:E8A1AF8F16C0FD1EB9E50A66917024014BBF08F2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376361   (860248) от 17.04.2020
-
-Есть такой парень (1956) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_860248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм снят по мотивам романа Александра Андреева «Широкое течение».
-Молодой рабочий автомобилестроительного завода Антон Карнилин из-за любовных неурядиц с дочерью начальника завода Люсей не выполняет производственный план, ссорится с друзьями, начинает выпивать. Ему на помощь приходят бригадир и его приёмная дочь Татьяна Оленина, инженер-конструктор завода. Карнилин (   Читать дальше...   )Производство: СССР, Киевская киностудия художественных фильмовЖанр: мелодрамаРежиссер: Виктор ИвченкоАктеры: Николай Гринько, Олег Голубицкий, Алексей Бахарь, Нина Крачковская, Наталья Фатеева, Николай Бармин, Александр Смирнов, Пётр Масоха, Екатерина Литвиненко, Елизавета КузюринаСубтитры: ОтсутствуютПродолжительность: 01:22:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9930E88F1B0087ECFEEF392A91C1509A8328B5C4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

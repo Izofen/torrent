@@ -1,3 +1,29 @@
+###  Публикация: 1482303   (1007749) от 07.07.2021
+
+От Шурика до Шарикова. Заложники одной роли (2018) IPTVRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторы документального фильма расскажут о трагических судьбах любимых актёров. Почему режиссёры перестали давать Александру Демьяненко главные роли, и как он пытался компенсировать этот пробел? Как роль Светланы Афанасьевны в "Большой перемене" сломала жизнь одной из самых красивых актрис советского кино Натальи Богуновой? Через что прошёл Владимир Толоконников, (   Читать дальше...   )Производство: Россия / "ПАНЧ ТВ"Жанр: ДокументальныйРежиссер: Елена ЛапенковаЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E385984EFAA71FF0F6003CA59C851A5B255CC7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482128   (1007750) от 07.07.2021
 
 Антуан де Сент-Экзюпери. Последний романтик / Antoine de Saint-Exupery, le dernier romantique (2017) IPTVRip [H.264]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:5408E408BBBCE91134AFB9F27664C526CCF10321
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:5408E408BBBCE91134AFB9F27664C526CCF10321
 magnet:?xt=urn:btih:BB2751F14CAA773460899BE199A121BEEC3D9D82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:BB2751F14CAA773460899BE199A121BEEC3D9D82
 magnet:?xt=urn:btih:F77DB8CC6C237E31A3760003B7B941633A22D058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:F77DB8CC6C237E31A3760003B7B941633A22D058
 ```bash
 magnet:?xt=urn:btih:B67BF562E84FA7A664478DAF51FEFC29AD4252AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:B67BF562E84FA7A664478DAF51FEFC29AD4252AE
 magnet:?xt=urn:btih:6771D7BF28D27A8560847AFC33C3DE1DFE723FBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:6771D7BF28D27A8560847AFC33C3DE1DFE723FBA
 ```bash
 magnet:?xt=urn:btih:084A473667D381BE87D7C336EDCCBC4482EE7521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:084A473667D381BE87D7C336EDCCBC4482EE7521
 magnet:?xt=urn:btih:AC3BCDBF996B52B927937BF2A960074A35A74630
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:AC3BCDBF996B52B927937BF2A960074A35A74630
 ```bash
 magnet:?xt=urn:btih:736B0355D7347B30F8861CAD61B13DD10388F836
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:736B0355D7347B30F8861CAD61B13DD10388F836
 magnet:?xt=urn:btih:470A4CF3D3CC1A258952B2863FF7801DB2BF345A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:470A4CF3D3CC1A258952B2863FF7801DB2BF345A
 ```bash
 magnet:?xt=urn:btih:90151CCD37EE53FC39662BD5E7B1EB1C5375BACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:90151CCD37EE53FC39662BD5E7B1EB1C5375BACD
 magnet:?xt=urn:btih:A91EFCADECDA715FB3B518B11CF75FEA76C7468B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:A91EFCADECDA715FB3B518B11CF75FEA76C7468B
 ```bash
 magnet:?xt=urn:btih:95DE268A86BC638B72AF6CC29E5F0429171EE3A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:95DE268A86BC638B72AF6CC29E5F0429171EE3A1
 magnet:?xt=urn:btih:A04D0E695663BE2E0DC85CE86FE2EB1BBEF1B12D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:A04D0E695663BE2E0DC85CE86FE2EB1BBEF1B12D
 ```bash
 magnet:?xt=urn:btih:9373BF91F54E4D0830BDD88A48F525F610DC78E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:9373BF91F54E4D0830BDD88A48F525F610DC78E1
 magnet:?xt=urn:btih:4ED6B1D75A1F9C5360BED8E6789F4F746DC0641B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:4ED6B1D75A1F9C5360BED8E6789F4F746DC0641B
 ```bash
 magnet:?xt=urn:btih:A18DAABED82A9BA37E2D9583DAC1B220452162D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:A18DAABED82A9BA37E2D9583DAC1B220452162D0
 magnet:?xt=urn:btih:7350C9171246947881F3587B77B81BC31A163A76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:7350C9171246947881F3587B77B81BC31A163A76
 ```bash
 magnet:?xt=urn:btih:0A81A01DCAF7B1F84DB7B127B63B996620181EDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:0A81A01DCAF7B1F84DB7B127B63B996620181EDC
 magnet:?xt=urn:btih:EC798C18A7A7B0039212891910392B1384D5F4F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:EC798C18A7A7B0039212891910392B1384D5F4F2
 ```bash
 magnet:?xt=urn:btih:55DBDDBE0EFB7F23388AA62D05E36F5DB1B92841
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:55DBDDBE0EFB7F23388AA62D05E36F5DB1B92841
 magnet:?xt=urn:btih:6739ACA980897556745E8741CF01543CF85CF319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:6739ACA980897556745E8741CF01543CF85CF319
 ```bash
 magnet:?xt=urn:btih:C5E31A7709F870432A73315687634294F9EA81E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:C5E31A7709F870432A73315687634294F9EA81E4
 magnet:?xt=urn:btih:FE62B06E9CDA6F30F37D1364127F59CF7ACB9E00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:FE62B06E9CDA6F30F37D1364127F59CF7ACB9E00
 ```bash
 magnet:?xt=urn:btih:2548AFC505BC33A39A02583ED0949ED9BAABBABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:2548AFC505BC33A39A02583ED0949ED9BAABBABF
 magnet:?xt=urn:btih:10B7785737B0C3A00C6C00E2586FF9285BFECC7D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480575   (1008839) от 29.06.2021
-
-Слава королеве / Glory to the Queen (2020) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1008839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Истории четырех легендарных советских шахматисток Ноны Гаприндашвили, Наны Иоселиани, Майи Чибурданидзе, Наны Александрия, из Грузии. Эти женщины не только совершили революцию в мире спорта, но и стали иконами мировой шахматной короны.Производство: Грузия, Georgian National Film CentreЖанр: Документальный, история, биография, спортРежиссер: Татиа Схиртладзе, Анна ХазарадзеПеревод: Двуголосый закадровый, профессиональный (Тираж-Дубляж)Субтитры: отсутствуютПродолжительность: 01:21:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4582836A9AC2917871816DF1D2589B9F6FBAD3D9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

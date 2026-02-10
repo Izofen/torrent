@@ -1,3 +1,29 @@
+###  Публикация: 1615006   (1038121) от 24.02.2023
+
+Ольга Герр | История (не)любви (2022) [MP3, Ольга Дианова]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038121.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лэрд Анрэй Вестор не привык к отказам. Вассалы всегда покорно исполняли прихоти своего сюзерена. Но в этот раз он пожелал меня – Флориану Морей. И ему плевать, что я принадлежу другому. Что же мне делать? Подчиниться? Немыслимо! Отказать? Невозможно… А ему всё мало. Он хочет уже не только тело, но и душу.Жанр: историческое фэнтези, любовное фэнтезиПродолжительность: 08:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:844C388657C1B3183C3DF746D01A41E8DF08900B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614697   (1038297) от 23.02.2023
 
 Константин Калбазов | Танкист (Книга 2). Унтер (2023) [MP3, Дамир Мударисов]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:FF6758AE13B8E1CA9A278EA3CC9AB4D3D54ABC52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:FF6758AE13B8E1CA9A278EA3CC9AB4D3D54ABC52
 ```bash
 magnet:?xt=urn:btih:11D3C606A5944DB82DBB686F2F91871428065BFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:11D3C606A5944DB82DBB686F2F91871428065BFC
 magnet:?xt=urn:btih:F711A3CC78AF77F231E3F212A8587B9F578AD674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:F711A3CC78AF77F231E3F212A8587B9F578AD674
 ```bash
 magnet:?xt=urn:btih:314C25046AD3F2C4F77FDD4EA62B85C4AE6028FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:314C25046AD3F2C4F77FDD4EA62B85C4AE6028FF
 magnet:?xt=urn:btih:63338279A0219795168F59178BA815BBE80B9980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:63338279A0219795168F59178BA815BBE80B9980
 magnet:?xt=urn:btih:74A793D8C923A4A92C0DAE2B7D0451834C878D32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:74A793D8C923A4A92C0DAE2B7D0451834C878D32
 ```bash
 magnet:?xt=urn:btih:322D1FF78975E23FA268EEAA42FFAEFF960070B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:322D1FF78975E23FA268EEAA42FFAEFF960070B0
 magnet:?xt=urn:btih:3311EA0D70FDE2656D27C22B3BA6BD583DAE68E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:3311EA0D70FDE2656D27C22B3BA6BD583DAE68E1
 ```bash
 magnet:?xt=urn:btih:F1752DDA4BB62E479DF6116AD2B9464EF6E0892D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:F1752DDA4BB62E479DF6116AD2B9464EF6E0892D
 magnet:?xt=urn:btih:01C4F96F44A6C13A7E53F96EED13705538B44122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:01C4F96F44A6C13A7E53F96EED13705538B44122
 ```bash
 magnet:?xt=urn:btih:9601B4FBE8981891EA0EDB500B277BC7795F0663
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:9601B4FBE8981891EA0EDB500B277BC7795F0663
 ```bash
 magnet:?xt=urn:btih:93CF1ECF0CE3E53B76F515873748A5F9FBFB46E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +370,8 @@ LitaWolf | Новый год с драконами (Книга 1). Новый г
 magnet:?xt=urn:btih:1993D80531A66AF6CE9368A016662F3433333527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:1993D80531A66AF6CE9368A016662F3433333527
 ```bash
 magnet:?xt=urn:btih:AF1590DF63FEA2406D181486561949BF73D9605C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +422,8 @@ magnet:?xt=urn:btih:AF1590DF63FEA2406D181486561949BF73D9605C
 magnet:?xt=urn:btih:3FB57BEC3878CF831DC8C54E33C0BAAB75B2F0CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:3FB57BEC3878CF831DC8C54E33C0BAAB75B2F0CE
 ```bash
 magnet:?xt=urn:btih:F4718C72E3EA43ADB623881AA4C7DE8E7AFE56D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:F4718C72E3EA43ADB623881AA4C7DE8E7AFE56D4
 magnet:?xt=urn:btih:2E1F59D91AF89ADE1BB815DC4ABF90A2B763480A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +500,8 @@ magnet:?xt=urn:btih:2E1F59D91AF89ADE1BB815DC4ABF90A2B763480A
 magnet:?xt=urn:btih:7F90451F9176FD2E405D1CEE8FAB3DDFD3B2B435
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:7F90451F9176FD2E405D1CEE8FAB3DDFD3B2B435
 ```bash
 magnet:?xt=urn:btih:54964B1B77921F0C798FE1E221A683C7BCA4F60A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +553,8 @@ magnet:?xt=urn:btih:54964B1B77921F0C798FE1E221A683C7BCA4F60A
 magnet:?xt=urn:btih:FF6ADE1614F16962961E6D0F2014EAAF0824BCAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:FF6ADE1614F16962961E6D0F2014EAAF0824BCAB
 ```bash
 magnet:?xt=urn:btih:96800594D3ABED7595AEBE25B48DAFD724A6573A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:96800594D3ABED7595AEBE25B48DAFD724A6573A
 magnet:?xt=urn:btih:D711FCD2B50A163E28A011FC388846700D4A06A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ S.T.A.L.K.E.R. ВСЕ ЗНАЮТ ЧТО ЭТО ЗНАЧИТ !
 ```bash
 magnet:?xt=urn:btih:65B12D168365B528CB74060F164CD9D5F63B675F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +661,8 @@ magnet:?xt=urn:btih:65B12D168365B528CB74060F164CD9D5F63B675F
 magnet:?xt=urn:btih:D58ABDEE6FD93B27CBF2A39951E1382D68EA7BF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,32 +687,7 @@ magnet:?xt=urn:btih:D58ABDEE6FD93B27CBF2A39951E1382D68EA7BF5
 magnet:?xt=urn:btih:2E73C84A4FA1CA454DCBB628F0AFD9F41043B02E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612747   (1039808) от 17.02.2023
-
-Кирилл Клеванский | Сердце Дракона (Книга 17) (2022) [MP3, Дмитрий Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039808.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сердце Дракона» – фантастический роман Кирилла Клеванского, семнадцатая книга цикла, жанр героическое фэнтези, приключения, боевое фэнтези.
-
-Сделка с Князем Демонов все глубже уводит Хаджара в Чужие Земли, где каждый шаг может быть смертельным.
-Вместо с отрядом Шенси он ищет новые подсказки, узнает очередные тайны и секреты, а по следу рыщут фанатики Ордена Ворона.(   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиПродолжительность: 15:05:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C515E18D901169BE3F20C7773C48F9AEB1ED15
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

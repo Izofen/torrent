@@ -19,6 +19,8 @@ Houdini является лидером отрасли в области виз�
 magnet:?xt=urn:btih:E58B21B91C9D04B97E5BCCF6C5829E63558AB8FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Udemy, Eric Ebling | Houdini FX : Creating An Avalanche Rig (2022) WEB-DL [EN / 
 ```bash
 magnet:?xt=urn:btih:BB25383170995F49DAF65F023F2411876FC3235D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:BB25383170995F49DAF65F023F2411876FC3235D
 ```bash
 magnet:?xt=urn:btih:67A85506BA1173A6382065EF6A639FBD64CF980B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:67A85506BA1173A6382065EF6A639FBD64CF980B
 magnet:?xt=urn:btih:17F53F729976EF2654EC53C6348124CD796A86ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Have you been wondering how modern companies
 magnet:?xt=urn:btih:E432E435FB075BEFBE8B0B049243465F19E0B469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Mobius 2023 Spring - конференция для мобильных разра
 ```bash
 magnet:?xt=urn:btih:93C38EB34A82C06377FFA964A4A66D75BD1F38F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ Hudozhnik Online, Анастасия Брагина | Скетчинг марк�
 magnet:?xt=urn:btih:8F4780C253035B76F6B278EA67A8309E6CF54AFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:8F4780C253035B76F6B278EA67A8309E6CF54AFE
 ```bash
 magnet:?xt=urn:btih:DC473C8A5CEBD43B06AC0E510BEB88C2A4BFD0CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:DC473C8A5CEBD43B06AC0E510BEB88C2A4BFD0CA
 magnet:?xt=urn:btih:DC2A4840B00B916D156117947A2C5B8685D19B28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:DC2A4840B00B916D156117947A2C5B8685D19B28
 ```bash
 magnet:?xt=urn:btih:DD5212C62FC838960D4843D339752E9928894971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:DD5212C62FC838960D4843D339752E9928894971
 magnet:?xt=urn:btih:D19F290B3DE4DF8ECE31701D53C8CCCB4F02B60C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ Digital Tutors, Dan Cox | Rapidly Creating Stylized Game Assets in ZBrush (2015)
 ```bash
 magnet:?xt=urn:btih:4B191C286F6E16EA28EF1A03A06B500B2F70275A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:4B191C286F6E16EA28EF1A03A06B500B2F70275A
 magnet:?xt=urn:btih:B68D846909860F61040F149E7D9CC03EED60AFE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ Do you want to masterПроизводство: UdemyЖанр: Программи
 magnet:?xt=urn:btih:9A12256A94A48B3AAB7111608DEF7059A45B5822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ Today every computer and phone comes with immense computing power and multiple c
 ```bash
 magnet:?xt=urn:btih:03B2281746F44E4663EB4A6E6AF239E0585CBBCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ sova.arty, Алина Сова | Иллюстратор 2.0 для телефо�
 magnet:?xt=urn:btih:E70D383E4859BCC94C699B7EEA3737898DD3039C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ You will not use any CQRS framework, but you will write every line of code that 
 ```bash
 magnet:?xt=urn:btih:722CEAE444F97C61398AE590F6CD58DFC708D0C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ magnet:?xt=urn:btih:722CEAE444F97C61398AE590F6CD58DFC708D0C2
 magnet:?xt=urn:btih:8C668492283E056C76E1C11977C9589A5F4279FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ Artstation Learning, Jay Cummings | Substance Painter: Pushing Your Texturing Fu
 ```bash
 magnet:?xt=urn:btih:49B8D56EBD9A4CB920439C03160A51574FDBFE0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ Udemy, Nexttut, Hamidreza Afshari | Substance 3D Painter Advance Course (2022) P
 magnet:?xt=urn:btih:747B6A701AB91B6A84CE0E9F5B1CDF77215526B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ Levelup.Digital, Eric Wiley | Advanced Shape Creation in Substance Designer (201
 ```bash
 magnet:?xt=urn:btih:DB48E5ADF8D8348001488613CC0A85F950E9A6FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +600,8 @@ Exp-Points, Alex Beddows | Creating Fabric Materials in Substance Designer (2021
 magnet:?xt=urn:btih:4B1F9ADBD40A34691CB74301B02D1F694411D5CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ FlippedNormals, Tyler Smith | Creating a Realistic Ocean in UE4 (2022) WEB-DL [E
 magnet:?xt=urn:btih:11C23312814D544455540262BBAD1E325CF5E867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ Epic Games, Kaye Vassey | Making the Most of Animation Blueprints (2018) WEB-DL 
 ```bash
 magnet:?xt=urn:btih:C0BA79F9FF1E6832A53CD1B2F402B601A0915BC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ Schoolism, Wouter Tulp | Digital Painting Workout with Wouter Tulp Part 2 (2020)
 magnet:?xt=urn:btih:A7EAC502D4FA877C35D02167B5DCC39633A1F131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ Pluralsight, Dan Cox | Sculpting Modular Structures in ZBrush (2016) PCRec [EN, 
 ```bash
 magnet:?xt=urn:btih:4EFE065851C582D44F6D101BDD58208FEB170C9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

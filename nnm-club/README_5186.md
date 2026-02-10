@@ -22,6 +22,8 @@ Portishead - Roseland NYC Live 25 (1998/2023) Remastered [FLAC 24/48|Lossless|WE
 magnet:?xt=urn:btih:A4001162E704FBD0A76B0A4A02CFF8065AB122E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Hit News Vol. 10 (1994) [OGG Vorbis|480 Kbps] <Electronic, Euro House, Ital
 ```bash
 magnet:?xt=urn:btih:D11FF66FE76F167D4E775E47C0654ED6E85D52D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Battle Born - Battle Born (2020/2022) EP [MP3|320 Kbps] <Power Metal>
 magnet:?xt=urn:btih:5B8BD6066BBA20AE11DDB91A8F77AD2E555D7B20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:5B8BD6066BBA20AE11DDB91A8F77AD2E555D7B20
 ```bash
 magnet:?xt=urn:btih:B26523FEE289A930E8E0C4A448A83829451BDF1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:B26523FEE289A930E8E0C4A448A83829451BDF1B
 magnet:?xt=urn:btih:6DD2EA0BC8DB42B293B10E32C3378AD5E575D97E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:6DD2EA0BC8DB42B293B10E32C3378AD5E575D97E
 ```bash
 magnet:?xt=urn:btih:DAF42AC62D4FEB8F586A479BDE2A0ADDFDBD7D6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:DAF42AC62D4FEB8F586A479BDE2A0ADDFDBD7D6F
 magnet:?xt=urn:btih:7228768FA3B1BBC88B7B347698DC1B39ED1368C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:7228768FA3B1BBC88B7B347698DC1B39ED1368C7
 ```bash
 magnet:?xt=urn:btih:0B4D152707DDA730323BDCACB2C7DCD78C6B28F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:0B4D152707DDA730323BDCACB2C7DCD78C6B28F5
 magnet:?xt=urn:btih:220F10BCF010FD7E8E1FA71B58FB8D7848421590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ n-Track Studio — кроссплатформенный аудиоредакто
 ```bash
 magnet:?xt=urn:btih:DFD3925297DA507C9616FDABC2CB71920BEDE6A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:DFD3925297DA507C9616FDABC2CB71920BEDE6A9
 magnet:?xt=urn:btih:CD0EB0D1C6498653EB0331FAB21C4F359D112A1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:CD0EB0D1C6498653EB0331FAB21C4F359D112A1E
 ```bash
 magnet:?xt=urn:btih:14B0278A945ACFA764F79A0CC5B1B0743F87BF07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:14B0278A945ACFA764F79A0CC5B1B0743F87BF07
 magnet:?xt=urn:btih:7A028525AAD1664757ADBACA77F0D88A62A0E17E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ Capture One 23 Enterprise — решение для редактирования
 ```bash
 magnet:?xt=urn:btih:A40E1A7FA6F1D7474EFCC2A771075B2C92BEF407
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:A40E1A7FA6F1D7474EFCC2A771075B2C92BEF407
 magnet:?xt=urn:btih:30ED451114C24AE16CFAFAE0C4A862F52B09FEC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:30ED451114C24AE16CFAFAE0C4A862F52B09FEC8
 magnet:?xt=urn:btih:B310F9196E3F5DE9F1AA5D8A1282022ED4E8B224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:B310F9196E3F5DE9F1AA5D8A1282022ED4E8B224
 ```bash
 magnet:?xt=urn:btih:7143FD755A070350E061FBD37C155EB886070FCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ The Alley Tones - Buzzard's Luck (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric 
 magnet:?xt=urn:btih:4305F323B6820ECEBEDC9C50047825CC1247EAE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ Secret Sphere - Blackened Heartbeat (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:58B8F3AC85A875673627B09A5D0296FED1198C8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:58B8F3AC85A875673627B09A5D0296FED1198C8E
 ```bash
 magnet:?xt=urn:btih:161DEEF48BE2C1A20658E5E012CA37BA58BC1452
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ Yoink представляет собой посредника, который �
 magnet:?xt=urn:btih:EA436E80D52E475A63BDBD4EE2DFDDA724554910
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:EA436E80D52E475A63BDBD4EE2DFDDA724554910
 ```bash
 magnet:?xt=urn:btih:2DF1F39457B044B78891AFB6947F8F5672E536A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ D'Virgilio, Morse & Jennings - Sophomore (2023) [FLAC|Lossless|WEB-DL|tracks] <P
 magnet:?xt=urn:btih:D2D5C5D2F9FD0C866883B5AF32547B02AB067FD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ The Bayou Bandits - Arizona Stepson (2023) [FLAC|Lossless|WEB-DL|tracks] <Southe
 magnet:?xt=urn:btih:20A4C2DA7936D89A3413BFCF8DBE30C50A3455D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ DJ Mix Pads 2 - Remix Version - это уникальное приложение
 ```bash
 magnet:?xt=urn:btih:88DBBB89CC9CF975D4ED30D01A07B8AF0B288994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +700,8 @@ Kaliopi & The Blues Messengers - Blues for Minnie (2023) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:CB4AD4E253815EEAEAC91243ADD9C48927090D60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

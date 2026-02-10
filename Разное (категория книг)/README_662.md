@@ -1,3 +1,29 @@
+###  Публикация: 1366821   (920440) от 13.03.2020
+
+Наталья Будилова | Хоумтерапия для отчаявшихся хозяек. Практика осознанного домоводства (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920440.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Всё начинается в доме» – вот девиз Натальи Будиловой, создателя авторского метода Хоумтерапии. О тесной связи дома и человека говорили еще древние китайцы и об этом немало написано современными психологами. То, как мы себя чувствуем, физически и эмоционально, сколько зарабатываем, насколько счастливы в личной жизни, как быстро сбываются наши мечты, – это и многое (   Читать дальше...   )Жанр: Психология, саморазвитие, личностный ростФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC71FA3193A8F2B7F5FFB5187D2E2DE73A85799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096409   (920518) от 23.01.2017
 
 Джозеф Кэмпбелл | Мифы и личностные изменения. Путь к блаженству (2016) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7F2EECAA8CB45AB57E939348EE765D5361017CD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:7F2EECAA8CB45AB57E939348EE765D5361017CD1
 magnet:?xt=urn:btih:D6C4DE09011271362C1BA6968E68DD7BC30C06C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:D6C4DE09011271362C1BA6968E68DD7BC30C06C0
 ```bash
 magnet:?xt=urn:btih:F675C9B7EB17F4811420B3B3D5CDAFF40E37E601
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:F675C9B7EB17F4811420B3B3D5CDAFF40E37E601
 magnet:?xt=urn:btih:95B9F2110FEE36F337836847F3C6DF241B8E003E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:95B9F2110FEE36F337836847F3C6DF241B8E003E
 magnet:?xt=urn:btih:1CDA0501328D6BFF280CB31671B0CB53BEC95EFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ magnet:?xt=urn:btih:1CDA0501328D6BFF280CB31671B0CB53BEC95EFB
 ```bash
 magnet:?xt=urn:btih:18E28AC2966D5322642FB656DFF4C33307C0274F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:18E28AC2966D5322642FB656DFF4C33307C0274F
 magnet:?xt=urn:btih:DF54D207630123E245A1638135F68B83A3BC1A0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:DF54D207630123E245A1638135F68B83A3BC1A0D
 ```bash
 magnet:?xt=urn:btih:047EA93C99017DD9FFB79C140A87F9EF7498EF25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:047EA93C99017DD9FFB79C140A87F9EF7498EF25
 magnet:?xt=urn:btih:3397966AD2F5CCACADBDD125ADF4F33A28803806
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:3397966AD2F5CCACADBDD125ADF4F33A28803806
 ```bash
 magnet:?xt=urn:btih:B8A9BABA03231F4F9D0680BB6E75DF9070615B7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:B8A9BABA03231F4F9D0680BB6E75DF9070615B7A
 magnet:?xt=urn:btih:F73F6235521314B9748EC7C49F241A4AD93520B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:F73F6235521314B9748EC7C49F241A4AD93520B3
 magnet:?xt=urn:btih:C8BCE7EA43DB2D0FF03529C16C412940CC87C7C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:C8BCE7EA43DB2D0FF03529C16C412940CC87C7C5
 ```bash
 magnet:?xt=urn:btih:B513E4406A6E2380C6303410286CBFE70C964700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:B513E4406A6E2380C6303410286CBFE70C964700
 magnet:?xt=urn:btih:571660FF127BB36F78FCEC044F858AB2FFAEEBA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:571660FF127BB36F78FCEC044F858AB2FFAEEBA8
 magnet:?xt=urn:btih:41BC396694EC28C8EF0279D37E924689391C66C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:41BC396694EC28C8EF0279D37E924689391C66C0
 ```bash
 magnet:?xt=urn:btih:8A03FDC25AB911C674825F7622BC68B82302DDDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:8A03FDC25AB911C674825F7622BC68B82302DDDD
 magnet:?xt=urn:btih:A4AEA2F9DCCBA70291AE98257AC56ADC60EC33FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:A4AEA2F9DCCBA70291AE98257AC56ADC60EC33FB
 magnet:?xt=urn:btih:F697ECED42211B6DA7CFCB673A23BF952C846142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:F697ECED42211B6DA7CFCB673A23BF952C846142
 ```bash
 magnet:?xt=urn:btih:7033FF3F3EB288C2E841F77870419C367CDDCC70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:7033FF3F3EB288C2E841F77870419C367CDDCC70
 magnet:?xt=urn:btih:2466E4DBB52038777CAC36770A05B967D5DDC2F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:2466E4DBB52038777CAC36770A05B967D5DDC2F8
 magnet:?xt=urn:btih:74C5826B311BDA8C60EF14FE1EC34BF3290E791C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:74C5826B311BDA8C60EF14FE1EC34BF3290E791C
 magnet:?xt=urn:btih:E84965B99AB85E631FF037594B5AF58956565E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:E84965B99AB85E631FF037594B5AF58956565E29
 ```bash
 magnet:?xt=urn:btih:8B790C8CD204E53CBE5DE85F3E86D7F686F05AE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:8B790C8CD204E53CBE5DE85F3E86D7F686F05AE2
 magnet:?xt=urn:btih:2CCE6E4E01AD33EE75D1D8BFB1043B41BB011C51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,31 +679,7 @@ magnet:?xt=urn:btih:2CCE6E4E01AD33EE75D1D8BFB1043B41BB011C51
 magnet:?xt=urn:btih:176EB4EAB76F80A78AA2218BA4259FC9F70CE27E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988309   (922062) от 19.02.2016
-
-Лорен Фишмен, Кэрол Эрдмен | Йога для спины (2014) [FB2]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга познакомит читателя с различными причинами болей в спине и с лечебными позами йоги. Благодаря простым техникам и упражнениям всех уровней подготовки она поможет вам без труда различать девять основных причин болей в спине, определить источник боли, уменьшить и полностью ее устранить.
-
-Для широкого круга читателей.Жанр: Нетрадиционная медицина, самосовершенствованиеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD3C4984DE07733226682599D2F3C157A0191E5C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

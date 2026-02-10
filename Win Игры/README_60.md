@@ -19,6 +19,8 @@ The Precinct (2025) [Ru/Multi] (1.4.18135) Repack FitGirl
 magnet:?xt=urn:btih:A57F0486C439F60B68F39CBED403638A7C0F111B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Outer Wilds – приключенческий экшен от первого л
 ```bash
 magnet:?xt=urn:btih:2F7ACDD16496A4C7B192704583A7691AD714AF45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cubic Odyssey (2025) [Ru/Multi] (1.0.1.15) Repack FitGirl
 magnet:?xt=urn:btih:66300E6DEA93FB65083560E60914B20AB95FC892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Fabledom (2024) [Ru/Multi] (1.07 HF) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:1425E21E0767049D621B8B146573866B9DC80055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Sinking City - это приключенческий детектив, со�
 magnet:?xt=urn:btih:4B9582B17C5DA53673217DF8CD3966095CA4FE73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Avium (2024) [Ru/Multi] (Patch 43/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:4D46DA3902E8EFA671F2A6FFEF82E26993AD39D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Diplomacy is Not an Option (2022) [Ru/Multi] (1.0.53r) Repack FitGirl
 magnet:?xt=urn:btih:596DA09827F0BE41FB4CB4A458FC9D8D3BFC9632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0x/dlc) Repack Let'sР
 ```bash
 magnet:?xt=urn:btih:EC2DADBCC6B89E674B6A2A44849B6445D8E79FEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (build 16505703) Repack seleZ
 magnet:?xt=urn:btih:72572706997214463CC8DB362E1656C5B72BB2EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:863FD01CE96B1A4C4B1A98A711AE72F9A854BCF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Life is Strange Double Exposure (2024) [Ru/Multi] (1.1.1027899/dlc) Repack Let's
 magnet:?xt=urn:btih:A26334E1BB250CFAD29037F9C566B7010F580AC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 ```bash
 magnet:?xt=urn:btih:23060434B21BFAEC82613F8107AA542BE2BB6F48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 magnet:?xt=urn:btih:0B73C7D27B72AE9CE1AA266DBEDDCBF7C443158C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.1.1027899.2411220323/dlc) 
 ```bash
 magnet:?xt=urn:btih:034E26A7371BF026EAB813251FAFF701526FFD74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack Decepticon
 magnet:?xt=urn:btih:26E408C588EAB49043ADB4D0C418ED2AB11000DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Cryptical Path (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9CDECE5B7ABFB22A8069CF098D002F63A818DD52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Sinking City - это приключенческий детектив, со�
 magnet:?xt=urn:btih:CC88250D79616C4BC3E339624092DE845A3891CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:6172A24447A12FAF04A906F0919BCC0AB03C0824
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Magicraft (2024) [Ru/Multi] (1.1.16) Repack Let'sРlay
 magnet:?xt=urn:btih:B4F56CE299BF32BFE2656AAF4B468A0A28190CA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Battle Shapers — это молниеносный фантастический 
 ```bash
 magnet:?xt=urn:btih:90BC75D35498AB976B2D438FCCDD0240E6245A04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Frostpunk 2 открывает новые грани жанра выживани
 magnet:?xt=urn:btih:2AA4C1869BF715F0968D46BFD5DA29352B37BEB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ EBOLA VILLAGE (2025) [Ru/En] (1.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:38B1A76FA51D619B6D83660A5150204CECB92222
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Death Squared (2017) [En] (1.8.5) License GOG
 magnet:?xt=urn:btih:8A26E9CB5C85BDD5670473653961FD0C013B2BAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Crimson Diamond – это детективное приключение в 
 ```bash
 magnet:?xt=urn:btih:5977AE5E3D5ECDBE7ED83DEA90D21F6D4B20CE8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Crow Country (2024) [Multi] (Build 18435138) Repack Let'sРlay
 magnet:?xt=urn:btih:B1BE10F7A874AD9525293BB834DD4E8D08DB3DED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Crystal Project - фэнтезийный приключенческий прое
 ```bash
 magnet:?xt=urn:btih:094F92CA1D07BA60A46E18E1A7E1F1E64938B0B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

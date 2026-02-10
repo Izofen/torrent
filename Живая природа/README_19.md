@@ -19,6 +19,8 @@ NHK. Мир живой природы VI / Nature Wonder Land VI (2012) HDTVRip 
 magnet:?xt=urn:btih:C1082976575497371CA20B5D4ECF3E5A1C60D777
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C1082976575497371CA20B5D4ECF3E5A1C60D777
 ```bash
 magnet:?xt=urn:btih:AC27BBF2168F88F4129D76E2FF57B1B5A3530808
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:AC27BBF2168F88F4129D76E2FF57B1B5A3530808
 magnet:?xt=urn:btih:3F29D25BAB096ADD241DDA3B080E7DA2D780314A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:3F29D25BAB096ADD241DDA3B080E7DA2D780314A
 ```bash
 magnet:?xt=urn:btih:E18394F3C5987BC9C0C9F166A484064BEF165D96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:E18394F3C5987BC9C0C9F166A484064BEF165D96
 magnet:?xt=urn:btih:435BA7585E6D3F3FA0E102A27140FD877A5AD96E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:435BA7585E6D3F3FA0E102A27140FD877A5AD96E
 ```bash
 magnet:?xt=urn:btih:DBA138D217F8FA38444773A2327B788AC5FE4136
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:DBA138D217F8FA38444773A2327B788AC5FE4136
 magnet:?xt=urn:btih:136609A963808839F2D42714B8ECC94489A637BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:136609A963808839F2D42714B8ECC94489A637BD
 ```bash
 magnet:?xt=urn:btih:6DBD7F5BBB0E15A19FD28328A3CEE47C92BCA6ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:6DBD7F5BBB0E15A19FD28328A3CEE47C92BCA6ED
 magnet:?xt=urn:btih:1A2EC7A77D6B35539575E02724AB7A8105703483
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:1A2EC7A77D6B35539575E02724AB7A8105703483
 ```bash
 magnet:?xt=urn:btih:1ADB9D157205D4519DB7C37893C8CE05CDD60C71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:1ADB9D157205D4519DB7C37893C8CE05CDD60C71
 magnet:?xt=urn:btih:5C00E3891569B6406CC21ED18BA2E5B02E79D747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:5C00E3891569B6406CC21ED18BA2E5B02E79D747
 ```bash
 magnet:?xt=urn:btih:64EF883B67C91ED8E624D512AE7F43B35007A972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ NHK. Мир живой природы VI / Nature Wonder Land VI (2012) HDTVRip 
 magnet:?xt=urn:btih:D404DC41DA451F90EDB599DBBDD55CA6A51C3024
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:D404DC41DA451F90EDB599DBBDD55CA6A51C3024
 ```bash
 magnet:?xt=urn:btih:A515B58B6AEE87F45C4AE74BADB3632988CD65DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:A515B58B6AEE87F45C4AE74BADB3632988CD65DE
 magnet:?xt=urn:btih:680CE1A0758B0E4B93EBF0BD33541DDAABE037D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:680CE1A0758B0E4B93EBF0BD33541DDAABE037D8
 ```bash
 magnet:?xt=urn:btih:5523AF225FA872EE6B67A58575900A5103C2C764
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:5523AF225FA872EE6B67A58575900A5103C2C764
 magnet:?xt=urn:btih:148ECF26F550B1F1D553BEE4CA888C1CAB955134
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:148ECF26F550B1F1D553BEE4CA888C1CAB955134
 ```bash
 magnet:?xt=urn:btih:47A5F8865F8E7386EDE3068A93D351710BC33097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ NHK. Мир живой природы VI / Nature Wonder Land VI (2012) HDTVRip 
 magnet:?xt=urn:btih:93627C68154CAFC2388C25BAA5E88709E02EB04C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ magnet:?xt=urn:btih:93627C68154CAFC2388C25BAA5E88709E02EB04C
 ```bash
 magnet:?xt=urn:btih:3C4EAE99044CB0ADCD9276F73C85D3875C2E634E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:3C4EAE99044CB0ADCD9276F73C85D3875C2E634E
 magnet:?xt=urn:btih:7D12CF60FD1A5B97F3E17F1E5B2977770E40FC2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ magnet:?xt=urn:btih:7D12CF60FD1A5B97F3E17F1E5B2977770E40FC2F
 ```bash
 magnet:?xt=urn:btih:CC329E870E5F927550E72B011A559C574800C657
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:CC329E870E5F927550E72B011A559C574800C657
 magnet:?xt=urn:btih:0FD771C6554641F2B7C06642E63C9F2938D55534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ magnet:?xt=urn:btih:0FD771C6554641F2B7C06642E63C9F2938D55534
 ```bash
 magnet:?xt=urn:btih:CA8FC1940199C371B4BA845E8CE3C02D08BF0A73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ magnet:?xt=urn:btih:CA8FC1940199C371B4BA845E8CE3C02D08BF0A73
 magnet:?xt=urn:btih:BB424F54580915EA628626B69F2AF728043E105D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ magnet:?xt=urn:btih:BB424F54580915EA628626B69F2AF728043E105D
 ```bash
 magnet:?xt=urn:btih:4F70636C2BEC84044747E8511350383EF3CB4B22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

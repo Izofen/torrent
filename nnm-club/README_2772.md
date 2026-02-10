@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9579F7F43E9915F6A34CE94C7A1872051A560A8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ Louna - Время X (2012) [PROMO] [MP3|128 kbps]<Alternative Rock>
 magnet:?xt=urn:btih:2E9B7B2D483602D6FEA843CF97858CB1961E6B4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -77,6 +81,8 @@ magnet:?xt=urn:btih:2E9B7B2D483602D6FEA843CF97858CB1961E6B4D
 magnet:?xt=urn:btih:4C0E8B5AE15F245713C8D32EB36811C93350778A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:4C0E8B5AE15F245713C8D32EB36811C93350778A
 ```bash
 magnet:?xt=urn:btih:A46C2C0909400D32026926F79BB7ADF8B94D1345
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ http://en.wikipedia.org/wiki/Papa_Was_a_Rollin'_Stone
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ http://en.wikipedia.org/wiki/Papa_Was_a_Rollin'_Stone
 ```bash
 magnet:?xt=urn:btih:840FFDA92E9503A96B4F1A096C2B3B24AB3B3F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:840FFDA92E9503A96B4F1A096C2B3B24AB3B3F18
 magnet:?xt=urn:btih:B55D8058954E9F2BE92A9A9B8EA48EC974A0C550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:B55D8058954E9F2BE92A9A9B8EA48EC974A0C550
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:B55D8058954E9F2BE92A9A9B8EA48EC974A0C550
 magnet:?xt=urn:btih:B9E138F2347CD2383EF2D7E8994E8251C03371A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:B9E138F2347CD2383EF2D7E8994E8251C03371A6
 ```bash
 magnet:?xt=urn:btih:BFD6362BD8552E9A4BFD4F0B5786A9D0AD4CCA36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:BFD6362BD8552E9A4BFD4F0B5786A9D0AD4CCA36
 magnet:?xt=urn:btih:FD254F698655301158209BB3CDD80304C68CCDBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:FD254F698655301158209BB3CDD80304C68CCDBF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +360,8 @@ magnet:?xt=urn:btih:FD254F698655301158209BB3CDD80304C68CCDBF
 magnet:?xt=urn:btih:6F8631AD323272EC5868EA307E9B2DC14EA7BD13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +390,8 @@ OpenSUSE 12.2 Milestone 1 [i686 + x86_64] (2xDVD)
 magnet:?xt=urn:btih:22211059172219B043200E857553CDBD5677838A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ magnet:?xt=urn:btih:22211059172219B043200E857553CDBD5677838A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +443,8 @@ magnet:?xt=urn:btih:22211059172219B043200E857553CDBD5677838A
 magnet:?xt=urn:btih:03318CDFF67D42A13CD600BCB8497E86156248EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +468,8 @@ magnet:?xt=urn:btih:03318CDFF67D42A13CD600BCB8497E86156248EF
 ```bash
 magnet:?xt=urn:btih:86B3EB9EF1B0792D0E3935D45E98E190418FA291
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +504,8 @@ CD1:
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +532,8 @@ http://en.wikipedia.org/wiki/Dave_GrusinЖанр: ДжазРежиссер: LEE 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +568,8 @@ The Steve Miller Band - Abracadabra (1982) [FLAC|Lossless]<Pop Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +593,8 @@ The Steve Miller Band - Abracadabra (1982) [FLAC|Lossless]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:41E70A6DE0E4CB696023E25B2AA459622F0BB848
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +622,8 @@ magnet:?xt=urn:btih:41E70A6DE0E4CB696023E25B2AA459622F0BB848
 magnet:?xt=urn:btih:9854ED6F4EDA4325D145994C6AFEF9AD12C2508A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +647,8 @@ magnet:?xt=urn:btih:9854ED6F4EDA4325D145994C6AFEF9AD12C2508A
 ```bash
 magnet:?xt=urn:btih:2935E1AB9AE0354F1366C96F61AD39FEA433B001
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +676,8 @@ Game CIH - аналог Artmoney для ПК, Sorcerer для симбиан и 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +702,8 @@ Game CIH - аналог Artmoney для ПК, Sorcerer для симбиан и 
 magnet:?xt=urn:btih:65DE7FC3CB6F1A5E7384134700FBEDFAAEEFCF37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -677,6 +727,8 @@ magnet:?xt=urn:btih:65DE7FC3CB6F1A5E7384134700FBEDFAAEEFCF37
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

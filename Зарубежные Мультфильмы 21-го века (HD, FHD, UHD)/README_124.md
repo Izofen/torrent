@@ -1,27 +1,3 @@
-###  Публикация: 754627   (931033) от 08.02.2014
-
-Облачно, возможны осадки: Месть ГМО / Cloudy with a Chance of Meatballs 2 (2013) BDRip [720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_931033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все жители острова Поплавок покинули родной дом после событий предыдущего мультфильма. Главный герой Флинт Локвуд теперь работает в компании The Live Corp на своего кумира Честера. Но ему придется оставить свой пост когда он узнает, что его печально-известная машина все ещё работает и производит на свет опасных гибридов. Флинту предстоит ещё раз спасти мир и не дать (   Читать дальше...   )Производство: США, Columbia Pictures, Sony Pictures Animation, Sony PicturesЖанр: Фэнтези, Комедия, СемейныйРежиссер: Коуди Камерон, Крис ПирнПерсонажи: Билл Хейдер, Анна Фэрис, Джеймс Каан, Уилл Форте, Энди Сэмберг, Бенджамин Брэтт, Нил Патрик Харрис, Терри Крюс, Кристен Шол, Коуди КамеронПеревод: ДублированныйЯзык субтитров: Русский, английскийПродолжительность: 01:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4756C41484ABDF63167D7D1A10D2181145AE4594
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 753693   (931076) от 08.02.2014
 
 Мой маленький пони: Девочки из Эквестрии / My Little Pony: Equestria Girls (2013) BDRip [1080p]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:4756C41484ABDF63167D7D1A10D2181145AE4594
 ```bash
 magnet:?xt=urn:btih:14F3EE1C02DF3087AC93D57AE2A365DFC7C99183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +47,8 @@ magnet:?xt=urn:btih:14F3EE1C02DF3087AC93D57AE2A365DFC7C99183
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:14F3EE1C02DF3087AC93D57AE2A365DFC7C99183
 ```bash
 magnet:?xt=urn:btih:76C0FAE4B74CC525B1C568E751D009137C5C72A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +99,8 @@ magnet:?xt=urn:btih:76C0FAE4B74CC525B1C568E751D009137C5C72A8
 magnet:?xt=urn:btih:224029696A50C2BE4C5624FCD560278509ABCA1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +125,8 @@ magnet:?xt=urn:btih:224029696A50C2BE4C5624FCD560278509ABCA1E
 magnet:?xt=urn:btih:0BC5AB5C2BE78D342D0AAB407975469F249DC329
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:0BC5AB5C2BE78D342D0AAB407975469F249DC329
 ```bash
 magnet:?xt=urn:btih:2FC3D002000ED7F07AD04AEE02AB17542DD3194B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +178,8 @@ magnet:?xt=urn:btih:2FC3D002000ED7F07AD04AEE02AB17542DD3194B
 magnet:?xt=urn:btih:49D5C5327D80C7C556EAEDAAC5B6237C37DF160C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +203,8 @@ magnet:?xt=urn:btih:49D5C5327D80C7C556EAEDAAC5B6237C37DF160C
 ```bash
 magnet:?xt=urn:btih:AAD7F4403CDD24B7CCB7D3AAA8610B5881C62D9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +230,8 @@ magnet:?xt=urn:btih:AAD7F4403CDD24B7CCB7D3AAA8610B5881C62D9E
 magnet:?xt=urn:btih:CCE105CF94C25CB6E6FF2D3009A619766FB4335C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:CCE105CF94C25CB6E6FF2D3009A619766FB4335C
 ```bash
 magnet:?xt=urn:btih:1FCC0445F72BF84B0A0F109460960F4491FBB29F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +282,8 @@ magnet:?xt=urn:btih:1FCC0445F72BF84B0A0F109460960F4491FBB29F
 magnet:?xt=urn:btih:E45A14618E86E6CE06BC8E622A65962B5C0F9845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:E45A14618E86E6CE06BC8E622A65962B5C0F9845
 ```bash
 magnet:?xt=urn:btih:96E54C7AB9F2CFA3B5DF553B2A4AF2DDB37C8FCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:96E54C7AB9F2CFA3B5DF553B2A4AF2DDB37C8FCC
 magnet:?xt=urn:btih:D15820B855A1C985AD5E01AF3B1342D8059232C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +360,8 @@ magnet:?xt=urn:btih:D15820B855A1C985AD5E01AF3B1342D8059232C6
 magnet:?xt=urn:btih:7C5D2DBC82B5B7CCE29556EDD4098B4990102E37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +385,8 @@ magnet:?xt=urn:btih:7C5D2DBC82B5B7CCE29556EDD4098B4990102E37
 ```bash
 magnet:?xt=urn:btih:272706870452E2474C003AAED7296FB1140F87FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +414,8 @@ magnet:?xt=urn:btih:272706870452E2474C003AAED7296FB1140F87FF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +439,8 @@ magnet:?xt=urn:btih:272706870452E2474C003AAED7296FB1140F87FF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +466,8 @@ magnet:?xt=urn:btih:272706870452E2474C003AAED7296FB1140F87FF
 magnet:?xt=urn:btih:C80B6B15D96A94416D23CDEC7CDDC1FD38D8C58C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +491,8 @@ magnet:?xt=urn:btih:C80B6B15D96A94416D23CDEC7CDDC1FD38D8C58C
 ```bash
 magnet:?xt=urn:btih:98E6FEE70538167800442DF47192935CBC7B540C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +518,8 @@ magnet:?xt=urn:btih:98E6FEE70538167800442DF47192935CBC7B540C
 magnet:?xt=urn:btih:FF42D6C09C9AF74C2A48A59AB84E79D4CFE06500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +543,8 @@ magnet:?xt=urn:btih:FF42D6C09C9AF74C2A48A59AB84E79D4CFE06500
 ```bash
 magnet:?xt=urn:btih:11AFA2BE88BE9814FF7E59A2215FCE446FC282FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +570,8 @@ magnet:?xt=urn:btih:11AFA2BE88BE9814FF7E59A2215FCE446FC282FB
 magnet:?xt=urn:btih:B4906FE27D9D15AA5FB388967177ED5C0555D3BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +595,8 @@ magnet:?xt=urn:btih:B4906FE27D9D15AA5FB388967177ED5C0555D3BB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +622,8 @@ magnet:?xt=urn:btih:B4906FE27D9D15AA5FB388967177ED5C0555D3BB
 magnet:?xt=urn:btih:B5BB75627E3C69CC66605BB8B62F609A8BBEEA9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +647,34 @@ magnet:?xt=urn:btih:B5BB75627E3C69CC66605BB8B62F609A8BBEEA9B
 ```bash
 magnet:?xt=urn:btih:7744D153A931967ABB0307744475E9A280FEDE30
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 752350   (937919) от 04.02.2014
+
+Мой маленький пони: Девочки из Эквестрии / My Little Pony: Equestria Girls (2013) BDRemux [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937919.jpg" />
+</div>
+
+
+###  Подробнее
+
+Следуя за похитившим корону Кристальной Империи вором, Твайлайт Cпаркл попадает в альтернативный мир, в котором она превращается в девочку-подростка и сталкивается с самым серьёзным испытанием в своей жизни — старшей школой! При помощи своих новых друзей, которые напоминают ей оставшихся в Понивилле Эпплджек, Рэрити, Рэйнбоу Дэш, Пинки Пай и Флаттершай, она начинает (   Читать дальше...   )Производство: Канада, СШАЖанр: Мультфильм, Фэнтези, КомедияРежиссер: Джэйсон ТиссенАктеры: Тара Стронг, Эшли Болл, Андреа Либман, Табита Сен-Жермен, Кэти Уизлак, Ребекка Шойкет, Ли Токар, Ричард Йен Кокс, Николь Оливер, Винсент ТонгПеревод: Дублированный | ЛицензияСубтитры: ОтсутствуютПродолжительность: 01:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA7801CBD86736FB76A18C68A110909C626EAF45
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

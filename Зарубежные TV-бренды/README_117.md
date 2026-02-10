@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B0E5CD7F1DD4D7C42A8BF8502E5C000E8CB364D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:B0E5CD7F1DD4D7C42A8BF8502E5C000E8CB364D0
 ```bash
 magnet:?xt=urn:btih:A6D5FC793616CD37BF7B51C6C94CD6BFF35E8AC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ National Geographic Channel представляет «Расследовани�
 magnet:?xt=urn:btih:D09802C7FE535BE20E6E9834F4B7D67A0266DC7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Discovery: Пятёрка лучших / World's TOP 5 (2012) HDTVRip [выпу�
 ```bash
 magnet:?xt=urn:btih:17BA279FE68A11FAE3DFB55ACEFB52CBCF69B13E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Discovery: Почему? Вопросы мироздания. Как зарож�
 magnet:?xt=urn:btih:9A2E7CC488BE2093D477F9CB529685077450C269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG: Подъём Коста Конкордия / The Raising Of The Costa Conkor
 ```bash
 magnet:?xt=urn:btih:6219EED413B5DF41D9E3E356082BB637838F065B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:6219EED413B5DF41D9E3E356082BB637838F065B
 magnet:?xt=urn:btih:6A24CAD8B05C6A3A0404C94A38F0F9250ADCF8E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:6A24CAD8B05C6A3A0404C94A38F0F9250ADCF8E1
 ```bash
 magnet:?xt=urn:btih:518527D3D60F23600E3B0BE917AD59CBADE532EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:518527D3D60F23600E3B0BE917AD59CBADE532EC
 magnet:?xt=urn:btih:31619E60BC6FC5718F8A2C56CB8F54A23C22DDD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:31619E60BC6FC5718F8A2C56CB8F54A23C22DDD6
 ```bash
 magnet:?xt=urn:btih:A37F90BBD65143087EE8FDF799115E4E3689C0D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:A37F90BBD65143087EE8FDF799115E4E3689C0D1
 magnet:?xt=urn:btih:A6E9DCC52233551A5637CED865715EFCE8998CF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Discovery: Железная дорога Аляски / Railroad Alaska (2016) H
 magnet:?xt=urn:btih:DC8A79D64B58280818B3A8F20AE5DA4DCD76CBE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ magnet:?xt=urn:btih:DC8A79D64B58280818B3A8F20AE5DA4DCD76CBE2
 ```bash
 magnet:?xt=urn:btih:353F4A39E1CFD6E0E3D7EA24075809200798CA9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:353F4A39E1CFD6E0E3D7EA24075809200798CA9D
 magnet:?xt=urn:btih:D2FD6B86B6123256ABD1BEF81B8A01D6746EA794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:D2FD6B86B6123256ABD1BEF81B8A01D6746EA794
 magnet:?xt=urn:btih:4FFD27921D0FA7BF023C05426070628564C15757
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Discovery: Железная дорога Аляски / Railroad Alaska (2015) (
 ```bash
 magnet:?xt=urn:btih:F4AA025ACEE1A1564CF7A284E57790E84DEC7B52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ BBC: Апокалипсис древних цивилизаций - 4 - Содо
 magnet:?xt=urn:btih:2B1DCAAB975F881EC685A72ECD8AB9CC00C6AFE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:2B1DCAAB975F881EC685A72ECD8AB9CC00C6AFE3
 magnet:?xt=urn:btih:327B2180E1A629AB865930B0975D6F7E73E3E83B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:327B2180E1A629AB865930B0975D6F7E73E3E83B
 ```bash
 magnet:?xt=urn:btih:B9ECEC7063E0757870CBA7FE1C57B7A49D9701E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ BBC: Апокалипсис древних цивилизаций - 3 - Гибе
 magnet:?xt=urn:btih:33A0D4D068E0A835F63E23E0B1245CD8F894D3B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:33A0D4D068E0A835F63E23E0B1245CD8F894D3B9
 ```bash
 magnet:?xt=urn:btih:8F6D3007BD99931AFBD4A36CA93595D82E7056D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Discovery. Техногеника. Родина-мать и Останкинск
 magnet:?xt=urn:btih:9C61E8ED6F376BEBDCE13A7B679C03F315EA667C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:9C61E8ED6F376BEBDCE13A7B679C03F315EA667C
 magnet:?xt=urn:btih:2F85B458DECE971FCCB9F8D176944A2757B02ED4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:2F85B458DECE971FCCB9F8D176944A2757B02ED4
 ```bash
 magnet:?xt=urn:btih:B7777324A4412C35CD47FD326A51D36CE606DAF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ BBC: Апокалипсис древних цивилизаций - 1 - Смер
 magnet:?xt=urn:btih:F507406934717BEC4465008033446906B329B981
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ BBC: Апокалипсис древних цивилизаций - 2 - Зага
 ```bash
 magnet:?xt=urn:btih:902DA9D69FBF4E4A6E5611149224A25453C8E80C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

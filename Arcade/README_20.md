@@ -19,6 +19,8 @@ Sine Mora – инновационный шутер, совмещающий в �
 magnet:?xt=urn:btih:3332292996884AE0F42F435F83B4DC7568692D45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Alien Shooter 2 - Reloaded - это полномасштабное продол�
 ```bash
 magnet:?xt=urn:btih:050CF2FDB7416AE1D45EEA1A740905E6143279C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ LEGO Star Wars III: The Clone Wars (2011) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:BE86A001793E25C416A3AA1FC2EB29A51B61A552
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Livelock — многопользовательский аркадный шут�
 ```bash
 magnet:?xt=urn:btih:27B16EB63E9A9EED86D926628E45A32E32CADFD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NotGTAV это самая настоящая покадровая змейка. 
 magnet:?xt=urn:btih:611548D639A38B0A161DDE7B97FA1530238C4570
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Asterix & Obelix XXL 2 (2018) [Ru/Multi] (0.43) License GOG
 ```bash
 magnet:?xt=urn:btih:53EDDA158A8AC3BB2431B7435B827CE7020F62F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Sakuna: Of Rice and Ruin (2020) [Multi] (1.0) License SKiDROW
 magnet:?xt=urn:btih:5F47C4B019C6BA19DEDCB69B5917D117BD46FE24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Tower Hunter: Erza's Trial (2019) [Ru/Multi] (2019.1.12) License GOG
 ```bash
 magnet:?xt=urn:btih:B30F9EB7BAF90CFC9CFE1630A59160600DB702BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Sundered – ужасающая борьба за выживание и здра
 magnet:?xt=urn:btih:37AFA0448BFF19FC5EDCC212BA70639E768026CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Death's Gambit — увлекательный 2D-платформер в жан�
 ```bash
 magnet:?xt=urn:btih:A7D8E7A81B18B7C8573B82C8C24FBB5880B02DD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Grand Theft Auto 2 / GTA 2: Беспредел (1999) [Ru/Multi] (11.44) Lossles
 magnet:?xt=urn:btih:BFCD2861437EEC85F3389DB244E8A044D6475E95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Grand Theft Auto (1997) [Ru/Multi] (1.0) Lossless Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:7A16C493C95DBB7B9E17A34FA272CD7A320BA028
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Grand Theft Auto: London 1969 - дополнение для игры Grand Theft
 magnet:?xt=urn:btih:6CC6A885EECE6A59943760B34F68D4917038DD8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Flashback 2 отправляет геймеров в умопомрачител�
 ```bash
 magnet:?xt=urn:btih:716A37578CE115C43026C93A0E1E04A40A2824F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Smurfs 2 - The Prisoner of the Green Stone (2023) [Ru/Multi] (1.03.1/dlc) Li
 magnet:?xt=urn:btih:DC9F705D3D220A070836525881803C89BD237332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ SpongeBob SquarePants: Battle for Bikini Bottom - Rehydrated (2020) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:709C77B599A95E3F01CBE0218DA6EF29529383B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Street Fighter V 2017 (2016) [Ru/Multi] (2.0/dlc) Repack Other s [Deluxe Edition
 magnet:?xt=urn:btih:205D5932C4683F405C383EDCB4E44C26EA899232
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ UFO ROBOT GRENDIZER - The Feast of the Wolves предлагает взять н
 ```bash
 magnet:?xt=urn:btih:EE276794FCBB5267541C36B107A8BC79539D8203
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ UnMetal (2021) [Ru/Multi] (1.0.11/dlc) License GOG [UnDeluxe Edition]
 magnet:?xt=urn:btih:201B68F2FFE11B4E03BC15EFC8318D31C4C45F51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Clid the Snail (2021) [Ru/Multi] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:B83A1E2BE4A984DF25D8B8BE3B5B0267A2B2397A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:B83A1E2BE4A984DF25D8B8BE3B5B0267A2B2397A
 magnet:?xt=urn:btih:93A9993728BC66C2A17B4B66E0B468FCEFD98DEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Sundered – ужасающая борьба за выживание и здра
 ```bash
 magnet:?xt=urn:btih:7508F7EDAAB26634F68826B1AF51D4B617EE0CCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Street Fighter X Tekken [Ru/En/Multi11] (Steam-Rip/1.02/9 DLC) 2012 | R.G. GameW
 magnet:?xt=urn:btih:13F2E0F66E07384F8B2669DADC3156ABD3FC692F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Killer Instinct (2017) [Ru/Multi] (1.0/u3) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:F806D8A730EA169FEEA1F878AC0F3422B631D5BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Sine Mora [En/Multi6] (Steam-Rip/1.0.0.1) 2012 | R.G. Игроманы
 magnet:?xt=urn:btih:0477132487C116DC5E6041DBDA85C8F4824C5A9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Human: Fall Flat (2016) [Ru/Multi] (842523) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:C717BF3D83B79AADAD962A7225E4C3FFF87B3853
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

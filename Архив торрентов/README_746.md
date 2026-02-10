@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:538CB894ADE4036B3FEDAAC792744FEC0569F6BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ VA - XXXL Жажда Скорости Весна (2012) [MP3|160-192 kbps]<Club 
 ```bash
 magnet:?xt=urn:btih:D1067C041567D2324C4749E948E440AF5FC0CD5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ magnet:?xt=urn:btih:D1067C041567D2324C4749E948E440AF5FC0CD5C
 magnet:?xt=urn:btih:9AC2DCA18FBEEE7E4258132BF21E7963C445E10E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +124,8 @@ VA - Ultimate Clubland A Decade In Dance (2012) [MP3|256 kbps]<Pop | Dance | Clu
 magnet:?xt=urn:btih:414C76CCB763FB8A2892AE5DDE239D03A3543CCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +149,8 @@ magnet:?xt=urn:btih:414C76CCB763FB8A2892AE5DDE239D03A3543CCF
 ```bash
 magnet:?xt=urn:btih:B648498C724884D4DC1876E182ACCF356915C593
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +185,8 @@ Obie Trice - Bottoms Up (2012) [MP3|192 кб/с]<Midwest Hip-Hop>
 magnet:?xt=urn:btih:393ED048EF11B06CDF84387F1B3FAFD59091F5E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +210,8 @@ magnet:?xt=urn:btih:393ED048EF11B06CDF84387F1B3FAFD59091F5E1
 ```bash
 magnet:?xt=urn:btih:CF6B2FBB9720D2410C5DCC9B9882A4E436B124EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +246,8 @@ VA - Enjoy Deep-House Vol.1 (2012) [MP3|320 кб/с]<Deep House>
 magnet:?xt=urn:btih:C2A0C12F0688AD90C694D40B628120E7113948DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +280,8 @@ VA - Feel The Groove, Vol.1 (A Blistering House and Tech Selection) (2012) [MP3|
 ```bash
 magnet:?xt=urn:btih:664A1B884238FA81195035DE8232A63D76CF9398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +316,8 @@ VA - Deep City Grooves San Diego (presented by Pascal Dolle & Pottjunge) (2012) 
 magnet:?xt=urn:btih:BBBE45E63F5C5D4827C9AE4AE028F821F434245E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +345,8 @@ magnet:?xt=urn:btih:BBBE45E63F5C5D4827C9AE4AE028F821F434245E
 ```bash
 magnet:?xt=urn:btih:993F288B783AAA7D12FE93C3EE879C716A219022
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +376,8 @@ magnet:?xt=urn:btih:993F288B783AAA7D12FE93C3EE879C716A219022
 magnet:?xt=urn:btih:E3B4E9CB58A6E122C3D64624072B28770DAE896C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +406,8 @@ magnet:?xt=urn:btih:E3B4E9CB58A6E122C3D64624072B28770DAE896C
 magnet:?xt=urn:btih:5C8EB622417AD8679B21B3A3CD39C6462F91142D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +431,8 @@ magnet:?xt=urn:btih:5C8EB622417AD8679B21B3A3CD39C6462F91142D
 ```bash
 magnet:?xt=urn:btih:D7782CFCE5AD05B625AA37ED5887481300DFED48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +458,8 @@ Freemake Video Converter - это удобное, бесплатное прил�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +483,8 @@ Chromium – мощный, но простой в использовании б�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +514,8 @@ Chromium – мощный, но простой в использовании б�
 magnet:?xt=urn:btih:A50940C5B3AE83AC4811AB482142BB66DD399BEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +544,8 @@ magnet:?xt=urn:btih:A50940C5B3AE83AC4811AB482142BB66DD399BEC
 magnet:?xt=urn:btih:8654B630C268F760A29923B3A478E9E4474D6E01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +569,8 @@ magnet:?xt=urn:btih:8654B630C268F760A29923B3A478E9E4474D6E01
 ```bash
 magnet:?xt=urn:btih:03B6CB9521D4288E709FA4840D103150C23693FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +605,8 @@ VA - Bedrock_Underground Sound Of Miami (2012) [MP3|320 кб/с]<Tech House, Tec
 magnet:?xt=urn:btih:C3686D1DF2F2F5F5FCC5AB99739FFD7925E610BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +635,8 @@ magnet:?xt=urn:btih:C3686D1DF2F2F5F5FCC5AB99739FFD7925E610BF
 magnet:?xt=urn:btih:16034BB7B8AA25C44BA262AAC63E3B13D652664F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +660,8 @@ magnet:?xt=urn:btih:16034BB7B8AA25C44BA262AAC63E3B13D652664F
 ```bash
 magnet:?xt=urn:btih:91C1C36225D20C654DBBA2AF8752A21922B14AE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +687,8 @@ magnet:?xt=urn:btih:91C1C36225D20C654DBBA2AF8752A21922B14AE6
 magnet:?xt=urn:btih:667A6CE9D9A739E74B6B51239F2ECD284E88B15B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +712,8 @@ magnet:?xt=urn:btih:667A6CE9D9A739E74B6B51239F2ECD284E88B15B
 ```bash
 magnet:?xt=urn:btih:7A485B8FE20E0162E3DDC3EA735B321C16C72684
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,6 +748,8 @@ Patchbay - Southern Cross (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 magnet:?xt=urn:btih:AB89C8044C9C56D237774E1DE0ABE3CED90D0587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -723,6 +773,8 @@ SeaMonkey — проект, основанный на добрых традиц�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

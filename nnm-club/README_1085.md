@@ -22,6 +22,8 @@ VA - Classic Glam Rock (2025) [MP3|320 Kbps] <Rock, Glam>
 magnet:?xt=urn:btih:29C297676EFA3FD9F789752433AB0A239FDC8480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:29C297676EFA3FD9F789752433AB0A239FDC8480
 ```bash
 magnet:?xt=urn:btih:E1CD0A48C6DEC6C97827EA0B677FE127BC5FD618
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ WinTools.net – набор инструментов для оптимизаци
 magnet:?xt=urn:btih:596C1A955B7CF311B7C1718C91D275ADD4246FD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:596C1A955B7CF311B7C1718C91D275ADD4246FD7
 ```bash
 magnet:?xt=urn:btih:5BC35AE33AAC0B4EA8243F52A8DA81CCD703B2D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:5BC35AE33AAC0B4EA8243F52A8DA81CCD703B2D0
 magnet:?xt=urn:btih:27C16B19F11AA8A4E82C41120E706FC7B446CDF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Snufkin: Melody of Moominvalley (2024) [Ru/Multi] (Build 17112046/dlc) Repack Le
 ```bash
 magnet:?xt=urn:btih:BDA35211B901DEAB71CF672CC656E30604E8C405
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ DNS Changer - это интуитивно понятное и удобное п�
 magnet:?xt=urn:btih:B81A9F5FB83CECC30B5BAC55E4B48A755BF375FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ The Great War: Western Front - это проработанная стратег�
 ```bash
 magnet:?xt=urn:btih:9E01D64C423FDF24C05AC21D5465800C4575C34F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/1080p]
 magnet:?xt=urn:btih:00B48BB4730127A71620870BAF90B09207B1109F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ The Sims 2 (2025) [Ru/Multi] (1.0.0.72/dlc) Repack FitGirl [Legacy Collection]
 ```bash
 magnet:?xt=urn:btih:B5EB06644C1442830C5DFDAB5CF75CAAE14C92B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:B5EB06644C1442830C5DFDAB5CF75CAAE14C92B5
 magnet:?xt=urn:btih:F643E9277D679CE2A39F5028797EF1203B577E2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ MemTest86 - бесплатная программа, позволяющая пр
 ```bash
 magnet:?xt=urn:btih:C3D9D381F223EA3B99327014B86AE6ED1734B547
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:C3D9D381F223EA3B99327014B86AE6ED1734B547
 magnet:?xt=urn:btih:0FC30C0E1FD1FCEFED58CA15BE98F815CDCD19F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:0FC30C0E1FD1FCEFED58CA15BE98F815CDCD19F6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:0FC30C0E1FD1FCEFED58CA15BE98F815CDCD19F6
 magnet:?xt=urn:btih:00FB074A95B07D185B2973AAEB904EE009E364D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Big Helmet Heroes (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B714C634AAEFF8C7E13F94E7D51994CEA1EDA311
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Warhammer 40,000: Shootas, Blood & Teef (2022) [Ru/Multi] (1.0.36) Repack Let's�
 magnet:?xt=urn:btih:5AF73424C4BAAE931FEC7F11174E0E089C1CBBCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.8) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:09DDC2E94C95752B13DEC138B9458849F76FB363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:09DDC2E94C95752B13DEC138B9458849F76FB363
 magnet:?xt=urn:btih:F8D0524918E089589B232F2CAFE88BDE544D7049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Oxford Educational | Журнал по изучению английского �
 ```bash
 magnet:?xt=urn:btih:7B71A16FD8CD248F85FC2DF9AB3628319B6E6B4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:7B71A16FD8CD248F85FC2DF9AB3628319B6E6B4C
 magnet:?xt=urn:btih:EFA79323A4BC8E08A5620444A9CC7742E584FB53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:EFA79323A4BC8E08A5620444A9CC7742E584FB53
 ```bash
 magnet:?xt=urn:btih:5E9D59C11CA179D16309F02D27C461EF5F045F72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:5E9D59C11CA179D16309F02D27C461EF5F045F72
 magnet:?xt=urn:btih:7951A2BEA6ED429498C661E4D325513849E50295
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:7951A2BEA6ED429498C661E4D325513849E50295
 ```bash
 magnet:?xt=urn:btih:AEAD20F18226ED19277DB87EF5C6629D99F762A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:AEAD20F18226ED19277DB87EF5C6629D99F762A4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:AEAD20F18226ED19277DB87EF5C6629D99F762A4
 ```bash
 magnet:?xt=urn:btih:2D765DACF4DECC05FF5B37CDEC0ED0E9C61DCCF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

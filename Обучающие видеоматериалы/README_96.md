@@ -19,6 +19,8 @@ Apeiron, Алексей Арестович | Семинар «Сила наме�
 magnet:?xt=urn:btih:35E4ED524388AC5A072AF28D8C8AA4A393F86C62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Archtutors, Андрей Кузьменко | Научитесь проекти�
 magnet:?xt=urn:btih:5C7419DB58954654A6EE7AC347A41B6BF4A8940F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Myrevitschool | My Revit - оформление 3Д видов (2023) WEB-DL [AD
 ```bash
 magnet:?xt=urn:btih:1EC26EECECD38C2473747DA7712879B61542229D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Kalacheva School, Рузанна Айрапетян | Карандашный р�
 magnet:?xt=urn:btih:8C37F668EA34265572ACF4E478FD495F3A36ECB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Wingfox, Virendra Kumar | Blender Anime - NPR Environment Course (2023) PCRec [E
 magnet:?xt=urn:btih:A6390CCF2A57928959F3D9231DD250E7F637374A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Learn Squared, Arsen Asyrankulov | Organic Sculpting (2021) PCRec [EN, RU]
 magnet:?xt=urn:btih:E58E5D0939AD9EA7170BCA4C6B17F763A2690731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Shestov Systems, Михаил Шестов | Английские глаголы
 ```bash
 magnet:?xt=urn:btih:56D307D21A07C1B03D00E3DD40973BBE1E85BE11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ New Guru, Елена Милгред | Согласование Времен. П�
 ```bash
 magnet:?xt=urn:btih:E3C365D05F64EBE06C4B3F9B84EEB403BCC5B8DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:E3C365D05F64EBE06C4B3F9B84EEB403BCC5B8DE
 magnet:?xt=urn:btih:17F0A86F5690CB96156757DC35352E28793EE87A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:17F0A86F5690CB96156757DC35352E28793EE87A
 ```bash
 magnet:?xt=urn:btih:2E41B75758BC18832A73D81BA9F8A934F9047F2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ Maestro24  | Испанский для начинающих с 0 до базов
 magnet:?xt=urn:btih:BE0257358EB4C3435FF40883E5B1669C01BE23D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:BE0257358EB4C3435FF40883E5B1669C01BE23D5
 magnet:?xt=urn:btih:B5714BA7CFD54DDD2515C54892A7B78B6F5F9F1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ Shestov Systems, Михаил Шестов | Английский Pre-Intermedia
 magnet:?xt=urn:btih:4A9CD3CC58579313C2CFDE74B470DCCA65BE61D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ Color grading dao, Виталий Бужан | ПРОДВИНУТАЯ ЦВЕТО
 ```bash
 magnet:?xt=urn:btih:CFEF7C9E8166D8273AD2A7251B81E2520DD65525
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:CFEF7C9E8166D8273AD2A7251B81E2520DD65525
 magnet:?xt=urn:btih:3563B77A87DB7C1C1B4249429E02F7556DEECF1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ Apeiron, Алексей Арестович | Семинар «Искусство
 ```bash
 magnet:?xt=urn:btih:F772AAA285F74B9A85EE5101E8B17F6E0389297A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ Apeiron, Алексей Арестович | Семинар «Дисциплин
 ```bash
 magnet:?xt=urn:btih:D3ABB626290B7EF9F86EE3DA54716A20E70FABED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ Andbery Cinematography, Андрей Береснев | PRO.СВЕТ (2020) WEB-
 magnet:?xt=urn:btih:F1EF30C0F4F88656BE060E0C240827290E10AEFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:F1EF30C0F4F88656BE060E0C240827290E10AEFC
 magnet:?xt=urn:btih:040D9ECE35340CD83197A2E64FCEF5FD00EF96D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ liveclasses, Алексей Шадрин | Калибровка мониторо
 magnet:?xt=urn:btih:392CFD9D4F524CBFB45F695BA6DE27E574532055
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ Apeiron, Алексей Арестович | Семинар «Ищите жен�
 ```bash
 magnet:?xt=urn:btih:4478EAFADAE796E3AEE2324A8639F850AEB95C80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +601,8 @@ magnet:?xt=urn:btih:4478EAFADAE796E3AEE2324A8639F850AEB95C80
 magnet:?xt=urn:btih:DB656243D5ECB845130629E5FA5C4CA97AB7AB7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +628,8 @@ magnet:?xt=urn:btih:DB656243D5ECB845130629E5FA5C4CA97AB7AB7A
 ```bash
 magnet:?xt=urn:btih:5B1A866844B11042AE213550CFF03D4A31C15735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +658,8 @@ Shestov Systems, Михаил Шестов | Presentable Business English (2021)
 magnet:?xt=urn:btih:0A91A62D83E1A21CC2AC99545D4FB078FD460ABF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ Apeiron, Алексей Арестович | Семинар «Священная
 ```bash
 magnet:?xt=urn:btih:0166474D0602E2D3C792AACB1DEB52EB33C92612
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -663,6 +713,8 @@ magnet:?xt=urn:btih:0166474D0602E2D3C792AACB1DEB52EB33C92612
 ```bash
 magnet:?xt=urn:btih:48DB3E3B0D3B773EEF412EED2B3DEBD5A1046086
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

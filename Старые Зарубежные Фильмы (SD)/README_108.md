@@ -1,27 +1,3 @@
-###  Публикация: 54496   (360435) от 07.11.2011
-
-Туз / Asso (1981) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_360435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Знаменитый картежник по прозивщу Туз (Челентано) женится и объявляет, что завязывает с картами, но в город приезжает на крупную игру Марселец. В этот вечер Челентано было не до любви и не до сна. Жена относится к страсти мужа с пониманием, и тот уходит играть. Страшно блефуя, он выигрывает кучу денег, но игра продолжается, а всем известно, что азартные игры до добра (   Читать дальше...   )Жанр: итальянская комедияРежиссер: Франко Кастеллано /Franco Castellano/Актеры: Адриано Челентано /Adriano Celentano/, Эдвиж Фенек /Edwige Fenech/, Ренато Сальваторе /Renato Salvatori/, Сильва Косина /Sylva Koscina/, Пиппо Сантонастазо /Pippo Santonastaso/, Джанни Маньи /Gianni Magni/, Мемо Диттоньо /Memo Dittongo/, Элизабетта Вивиани /Elisabetta Viviani/, Дино Кассио /Dino Cassio/, Сандро Гиани /Sandro Ghiani/, Раффаэле Ди Сипио /Raffaele di (   Читать дальше...   )Перевод: двухголосый профессиональныйПродолжительность: 1:30:51
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328680   (360464) от 01.10.2019
 
 Дама с камелиями 2000 / Camille 2000 (1969) BDRip [H.264] [AVO]
@@ -42,6 +18,8 @@
 ```bash
 magnet:?xt=urn:btih:B5452129C8EF4B3EF2C4E0E8CF237E48DD2AF5FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ magnet:?xt=urn:btih:B5452129C8EF4B3EF2C4E0E8CF237E48DD2AF5FC
 ```bash
 magnet:?xt=urn:btih:3932E693B6453EFE2AC1B2C6997B2B2ADF0CE8A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:3932E693B6453EFE2AC1B2C6997B2B2ADF0CE8A3
 magnet:?xt=urn:btih:FAD55E3FF99500A548D7E3EF0B03808327B55280
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:FAD55E3FF99500A548D7E3EF0B03808327B55280
 ```bash
 magnet:?xt=urn:btih:EFF60A56C51D9B0675187F58CF64264F85C8503C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:EFF60A56C51D9B0675187F58CF64264F85C8503C
 magnet:?xt=urn:btih:0447231B37184C3E778EE00B0F61F90ADA2D8BC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:0447231B37184C3E778EE00B0F61F90ADA2D8BC4
 ```bash
 magnet:?xt=urn:btih:817EA5E471C0C2594CFC45A72E2A5B42658681C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:817EA5E471C0C2594CFC45A72E2A5B42658681C0
 magnet:?xt=urn:btih:7452A7A80A7AF32ADAA6192EE4E575DB464E2177
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:7452A7A80A7AF32ADAA6192EE4E575DB464E2177
 ```bash
 magnet:?xt=urn:btih:95F8F020B8DFC7317DC796BD7F8FFF3151DE0D16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:95F8F020B8DFC7317DC796BD7F8FFF3151DE0D16
 magnet:?xt=urn:btih:AE38FD1BBE07E39A911B90F3E47F6C92B7E26216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:AE38FD1BBE07E39A911B90F3E47F6C92B7E26216
 ```bash
 magnet:?xt=urn:btih:15E7645B85BAA2E106475F72656BFB6A60014FB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +281,8 @@ magnet:?xt=urn:btih:15E7645B85BAA2E106475F72656BFB6A60014FB5
 magnet:?xt=urn:btih:D7F738CC242E3BD89D4AB8384E63A3A97AE13A84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:D7F738CC242E3BD89D4AB8384E63A3A97AE13A84
 ```bash
 magnet:?xt=urn:btih:3B37F9CFDF921E24AFD23432C777C0C663527D90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +333,8 @@ magnet:?xt=urn:btih:3B37F9CFDF921E24AFD23432C777C0C663527D90
 magnet:?xt=urn:btih:EFC8DD2DB565B7815C94DC2698DB2565DB93F59E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:EFC8DD2DB565B7815C94DC2698DB2565DB93F59E
 ```bash
 magnet:?xt=urn:btih:1F32F50E2857B7B88C57BFD7DF226D061AFA9C0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:1F32F50E2857B7B88C57BFD7DF226D061AFA9C0C
 magnet:?xt=urn:btih:C28A0BED7120E560AFCC729AEC17FB8C3170BDE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:C28A0BED7120E560AFCC729AEC17FB8C3170BDE7
 ```bash
 magnet:?xt=urn:btih:911EBC8EB120D5738AAB15FDCBA15790F38C37C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:911EBC8EB120D5738AAB15FDCBA15790F38C37C3
 magnet:?xt=urn:btih:D53145339B5E87A154BC53736CD09F138633567A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:D53145339B5E87A154BC53736CD09F138633567A
 ```bash
 magnet:?xt=urn:btih:86AC7844A6722CCB5ED320B699214CC2E9172DB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +491,8 @@ magnet:?xt=urn:btih:86AC7844A6722CCB5ED320B699214CC2E9172DB0
 magnet:?xt=urn:btih:B619480B8F556E3F2A09CCEFAD93725E684517A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +516,8 @@ magnet:?xt=urn:btih:B619480B8F556E3F2A09CCEFAD93725E684517A6
 ```bash
 magnet:?xt=urn:btih:C41CF537D0829075C9B2BCA3D9F684AD23DE36E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +543,8 @@ magnet:?xt=urn:btih:C41CF537D0829075C9B2BCA3D9F684AD23DE36E7
 magnet:?xt=urn:btih:C409120A6E26CA2BFDB602853746355B8F8D481F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +568,8 @@ magnet:?xt=urn:btih:C409120A6E26CA2BFDB602853746355B8F8D481F
 ```bash
 magnet:?xt=urn:btih:8CA6E7F68E9256E128B5AD9843C4136698294B12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +595,8 @@ magnet:?xt=urn:btih:8CA6E7F68E9256E128B5AD9843C4136698294B12
 magnet:?xt=urn:btih:75B17900A03186872007D52915BB807BCA064608
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:75B17900A03186872007D52915BB807BCA064608
 ```bash
 magnet:?xt=urn:btih:0F49DA53F9C33C8581FF52039B5C64039B1368B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +647,34 @@ magnet:?xt=urn:btih:0F49DA53F9C33C8581FF52039B5C64039B1368B2
 ```bash
 magnet:?xt=urn:btih:D8F036A96798C67D651BA1A550714476E5160C82
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328052   (367864) от 28.09.2019
+
+Золотая жила / Mother Lode (1982) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_367864.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой жизни слишком много хороших вещей, чтобы не хотеть стать богатым. Пилот-авантюрист Жан Дюпре и его очаровательная подруга Андреа отправляются в глухие дебри Британской Колумбии на поиски заброшенной шахты, где по их информации, может находиться неразработанная золотоносная жила. Однако полет на небольшом биплане не оказался легкой и быстрой прогулкой за богатством (   Читать дальше...   )Производство: США / Agamemnon FilmsЖанр: Триллер, Детектив, ПриключенияРежиссер: Чарлтон Хестон, Фрейзер Кларк ХестонАктеры: Чарлтон Хестон, Ник Манкузо, Ким Бейсингер, Джон Марли, Дейл Уилсон, Рокки Сантолас, Мари ДжорджПеревод: Многоголосый профессиональный, авторскийСубтитры: Английские (Full, SDH)Продолжительность: 01:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AFA11B73D13290635911706167A46427B7A7A6D
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

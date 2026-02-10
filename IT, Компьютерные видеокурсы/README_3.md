@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:25D7240746479E11EB61B17490FA17386BBA638C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:25D7240746479E11EB61B17490FA17386BBA638C
 magnet:?xt=urn:btih:2285B51EFCEFB7D92D6E870115A59C06BE2E2719
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Node.js - это среда выполнения JavaScript на backend, спр
 ```bash
 magnet:?xt=urn:btih:0787894505C363FE36931940A5FA71397022BF9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Paranoid Rebirth — полностью переработанный и акту
 magnet:?xt=urn:btih:2D809E0A5627DB7D907593A941B6F23A1DDFF1C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:2D809E0A5627DB7D907593A941B6F23A1DDFF1C4
 ```bash
 magnet:?xt=urn:btih:B347239E376E0F57543FB1AD3213C5B5541948DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:B347239E376E0F57543FB1AD3213C5B5541948DA
 magnet:?xt=urn:btih:7390731CFE56E220ECA56A5FC1CAC35D3C2ED926
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:7390731CFE56E220ECA56A5FC1CAC35D3C2ED926
 ```bash
 magnet:?xt=urn:btih:DBE653ABA594BFF40214F8A743AC066321AD622F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:DBE653ABA594BFF40214F8A743AC066321AD622F
 magnet:?xt=urn:btih:B2F12478DC24CF4C785BDBB6146FCF129D617087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ RxJS - это библиотека для реактивного програм�
 magnet:?xt=urn:btih:9755D54BB1E967D921CF37AF5CCCC5910271C6B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ CoffeeScript — язык программирования, транслируе
 ```bash
 magnet:?xt=urn:btih:BD938C0B4D0AF36E9A524DDD93A72E9440FA63F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ JetBrains | PHPStorm - полный двухчасовой курс (2013) PCRec
 magnet:?xt=urn:btih:55E254B6954A529E27F7F3943E0C00F6DF7A6572
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Warren Eagles | FF201 Advanced Resolve 11 (2014) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:A82165D89E26C39EC65D0B38BB8E33B973CF6E3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:A82165D89E26C39EC65D0B38BB8E33B973CF6E3F
 magnet:?xt=urn:btih:C8AA52DAD8A2D5C97DC75008173A6332762FB5D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ OTUS | Java Developer. Advanced (2024) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:2F9FCA9D51D11B7DF6E157638EC38E9D839E1834
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ Next.js - готовый к production framework для React - самой по�
 magnet:?xt=urn:btih:197970F7E1F9B0098B3D1275E2F539B460AC1C2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:197970F7E1F9B0098B3D1275E2F539B460AC1C2D
 magnet:?xt=urn:btih:E7337612B83A57E4AB318702D8F41899FA01F7E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ Color Grading Central: Davinci Resolve 11 Tutorial - Один из лучших 
 ```bash
 magnet:?xt=urn:btih:FC15DA727B3FF0241FFE2295D7392210EB559ACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:FC15DA727B3FF0241FFE2295D7392210EB559ACD
 magnet:?xt=urn:btih:9C9BDA2B060AE9C9D780298C6AA287E5CA507D3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:9C9BDA2B060AE9C9D780298C6AA287E5CA507D3E
 magnet:?xt=urn:btih:8CA4E72CF5E533F7431171343610AF987986A8EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ Udemy | Игры со словами на C# (2018) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:31ED3982F0EA89E941A320CD30BD24EBD07567E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ Udemy, Andrei Dumitrescu | Linux Security: The Complete Iptables Firewall Guide 
 magnet:?xt=urn:btih:263B4CB8C79C517DBEC2A0084CCD4CA8C0345767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ Serberg | Видеоурок "Восстановление Windows в счита
 ```bash
 magnet:?xt=urn:btih:46EDEB8214EDA5B555A318B3E4D3572DE7820A75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ Seelentera | Ajax vs Node.JS (2014) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:FEB955EAD403A6994E5FC4410CA11406A7777ABD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ SmartMe University | Разработка API с Node.js (2015) PCRec [H.264/720
 ```bash
 magnet:?xt=urn:btih:FB9757B8199D589E1835B29B2E24773B1224B606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ Pluralsight | Penetration Testing in Action / Тестирование на пр
 magnet:?xt=urn:btih:A12074D828781F8FAA79F2CC62EFFA6C36A14716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ ProfIT | Ликбез будущего программиста (2018) PCRec [H.
 ```bash
 magnet:?xt=urn:btih:95CE60342751AE07607EC37F351063577B201CFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

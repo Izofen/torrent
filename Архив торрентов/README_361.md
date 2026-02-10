@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:D53D5095C34D3406C303B8E97B56C3EF5D4D90D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ Fotosizer 1.33.0.509 [мульти]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ ObjectRescue Pro - универсальное решение для восста
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +109,8 @@ ObjectRescue Pro - универсальное решение для восста
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ National Geographic: Злоключения за границей: Месть н
 magnet:?xt=urn:btih:72D2167AD1647B8DE7A5A2B458B2C81E8F1A6906
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Toolwiz Care - бесплатный набор инструментов, пре�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Hanna Banaszak, Miroslaw Czyzykiewicz - Zanim bedziesz u brzegu (2001) [FLAC|Los
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ easyHDR Pro позволяет создавать HDRI из TIF, JPG и BMP-фа
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +257,8 @@ Megaherz - Gotterdammerung (2012) [FLAC|Lossless]<Industrial Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ Megaherz - Gotterdammerung (2012) [FLAC|Lossless]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:72957E3DF4C23083A31AEA53B2A4BC7FEE1F55AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +316,8 @@ magnet:?xt=urn:btih:72957E3DF4C23083A31AEA53B2A4BC7FEE1F55AB
 magnet:?xt=urn:btih:594F9D2BADABE797E1F8088521A9B13022D63540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +344,8 @@ magnet:?xt=urn:btih:594F9D2BADABE797E1F8088521A9B13022D63540
 magnet:?xt=urn:btih:CFDBD21F2B244837C71C45414F6ED4EE1383DC5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +369,8 @@ magnet:?xt=urn:btih:CFDBD21F2B244837C71C45414F6ED4EE1383DC5F
 ```bash
 magnet:?xt=urn:btih:D0DA7F13BF6EB70AC3C4A774126D84BBDFF4560D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:D0DA7F13BF6EB70AC3C4A774126D84BBDFF4560D
 ```bash
 magnet:?xt=urn:btih:ADA3F4A32C1EFEEAE104D0BC4EA8F25DCCB88577
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +431,8 @@ Nocturnal Symphony - Something In The Dark (2012) [MP3|320 kbps]<Symphonic Heavy
 magnet:?xt=urn:btih:801A1582C9EC627D924A1B6220231CF96005391E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ magnet:?xt=urn:btih:801A1582C9EC627D924A1B6220231CF96005391E
 magnet:?xt=urn:btih:980A8B9E68921B74EF8AA1509A29985C431EB25F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ Trans-X - Living On Video 2K6 (The Original Maxi-Single) (2006) [APE|Lossless]<S
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +518,8 @@ Trans-X - Living On Video 2K6 (The Original Maxi-Single) (2006) [APE|Lossless]<S
 magnet:?xt=urn:btih:956E1E6F4C52E2F4B59433391518301799A3C388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +543,8 @@ Auslogics Disk Defrag - это профессиональная версия к�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +573,8 @@ Auslogics Disk Defrag - это профессиональная версия к�
 magnet:?xt=urn:btih:71E235FCC1B3E81C8EC8B38FAFEBBA775E516FF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ BitComet - программа для загрузки файлов из сети
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +636,8 @@ Orquestra Arab de Barcelona - Libertad (2011) [FLAC|Lossless] <Fusion, World Mus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +663,8 @@ Angel Browser-браузер отличается большим количес�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Angel Browser-браузер отличается большим количес�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +715,8 @@ IcoFX - программа для создания и редактировани
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +741,8 @@ Process Explorer 15.12 Portable RUS Apps [Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

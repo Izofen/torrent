@@ -22,6 +22,8 @@ VA - Feeling Relaxed Lounge: Chillout Your Mind (2020) [AAC|~322 Kbps] <Chillout
 magnet:?xt=urn:btih:9411F5CCD81497087E45E99C3062D25A0B688733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:9411F5CCD81497087E45E99C3062D25A0B688733
 ```bash
 magnet:?xt=urn:btih:3FA17716090727E81FE67A63B1421878FD083827
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Stryper - The Final Battle (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heav
 magnet:?xt=urn:btih:56A187415BEC5FFB6BF548FD91588D334400441B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ VA - Beach House Lounge: Chillout Your Mind (2020) [AAC|~324 Kbps] <Chillout, Lo
 magnet:?xt=urn:btih:88F50CA576A85E2109955BA7693CF89FA3993950
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:88F50CA576A85E2109955BA7693CF89FA3993950
 ```bash
 magnet:?xt=urn:btih:5CBC52CE1605B263A574A5115C899073A32DFF80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:5CBC52CE1605B263A574A5115C899073A32DFF80
 magnet:?xt=urn:btih:E4ED4A1ED297DB9B1FCC054077A471AF1AC56F39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:E4ED4A1ED297DB9B1FCC054077A471AF1AC56F39
 ```bash
 magnet:?xt=urn:btih:19CC790C73A901A2EA99932D694087D2D39E0717
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ The New Roses - Sweet Poison (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:FFEE5D344E12A0A8D8A9DFF116B5872E2483D192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ PDF Compressor — программа которая позволяет быст
 ```bash
 magnet:?xt=urn:btih:4A4015C45F7907E70D1D718267DA18D86FA9574A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:4A4015C45F7907E70D1D718267DA18D86FA9574A
 ```bash
 magnet:?xt=urn:btih:20528B37B9C4580B9C35E9779DF151E08A6F8BB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Diggeth - Zero Hour in Doomtown (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Roc
 magnet:?xt=urn:btih:7E210A553A60D4BD3FE452FA5AAB1E95DDD4C14B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:7E210A553A60D4BD3FE452FA5AAB1E95DDD4C14B
 ```bash
 magnet:?xt=urn:btih:4AD750B624DD1E1ACA839E205D70016B9907169E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:4AD750B624DD1E1ACA839E205D70016B9907169E
 magnet:?xt=urn:btih:67DA5FFFC36939AD2E13CC2C70DF005EE5FEEAD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:67DA5FFFC36939AD2E13CC2C70DF005EE5FEEAD4
 magnet:?xt=urn:btih:1C101C1BCFE5EEB801E179A3F4223E8045A628BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:1C101C1BCFE5EEB801E179A3F4223E8045A628BD
 ```bash
 magnet:?xt=urn:btih:6C30B0C0A0645A043219C07812FF0FEB2FF57479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:6C30B0C0A0645A043219C07812FF0FEB2FF57479
 magnet:?xt=urn:btih:7586746A8911B104EE5935FE85C2E9761EDF33FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:7586746A8911B104EE5935FE85C2E9761EDF33FA
 ```bash
 magnet:?xt=urn:btih:CC18E80F75D43924C5DD15AE343A951796F3DE2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ Adobe Photoshop 2022 - новая версия программы для обр�
 magnet:?xt=urn:btih:F671C81206E302435A8F8AB2F660C8D873053957
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ Pain - We Come in Peace (Live at Debaser Medis Stockholm) (2012) BDRip [720]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ Pain - We Come in Peace (Live at Debaser Medis Stockholm) (2012) BDRip [720]
 magnet:?xt=urn:btih:DD1945BC55D7061F0AC1D265713DC26B356E9A76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:DD1945BC55D7061F0AC1D265713DC26B356E9A76
 magnet:?xt=urn:btih:9061CD0BDBAB1A8AB3052733CA4C980BF96B7355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ Strike the Blood / Удар крови [2013, TV, 24 ep] BDRip Hi10p 720p Raw+Ru
 ```bash
 magnet:?xt=urn:btih:CDA9AD427F8E7A1591CF828191CBC0117FA5A51C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ Microsoft Windows 10.0.18363.418 Version 1909 (November 2019 Update)
 magnet:?xt=urn:btih:7E56D854BA7D90CE371856A3FBD0D4DEE0760C76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:7E56D854BA7D90CE371856A3FBD0D4DEE0760C76
 ```bash
 magnet:?xt=urn:btih:3EE19948A6E7F802E34889316419B0C997CA06F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ Microsoft® Windows® 10 x86-x64 Ru 21H2 8in2 Upd 11.2021 by OVGorskiy
 magnet:?xt=urn:btih:466EBC80A2B9FC40BCC61B5C5E632677101FC081
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:466EBC80A2B9FC40BCC61B5C5E632677101FC081
 ```bash
 magnet:?xt=urn:btih:CAD11781BA8021A629AAAF22D66DDCC441110E86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6897358/dlc) License GOG [Digital
 ```bash
 magnet:?xt=urn:btih:6881A8F56AF4FF6E690EA742FDD308A2A9DD4900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ UALinux RescuePack — это бесплатный загрузочный дис
 magnet:?xt=urn:btih:97825357D9D1425E29D3550A446A6EEBADA12B2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:97825357D9D1425E29D3550A446A6EEBADA12B2B
 ```bash
 magnet:?xt=urn:btih:7299BB8B3191016F011DBB27295AE92D6E115F2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:7299BB8B3191016F011DBB27295AE92D6E115F2F
 magnet:?xt=urn:btih:6957D8FB31A3D9A35580E5844B3C9A483545D501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:B1CAD4A7A750C87F5D1298BBE32ECE9113F82421
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Clair Obscur: Expedition 33 - это новая пошаговая ролева�
 magnet:?xt=urn:btih:883FBD75CE7F30FA38E1861C8CB82487A2246FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Myst (2021) [Ru/Multi] (3.0.5 HotFix) License GOG [VR]
 ```bash
 magnet:?xt=urn:btih:308C8B787CE8780A0F73A507A1F5699E2F1042FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:308C8B787CE8780A0F73A507A1F5699E2F1042FE
 magnet:?xt=urn:btih:465734E25FA6F94A44A0C0CD7277647541CE139F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:465734E25FA6F94A44A0C0CD7277647541CE139F
 ```bash
 magnet:?xt=urn:btih:27CC80AD010354A65A45C7FB96C0DDEDD0E2C7AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Joe Bonamassa родился в Нью-Йорке 8 мая 1977 года. Его
 magnet:?xt=urn:btih:55B6E3EDA6D11385F7EE4C735D3EB9933A44CB60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Takopi no Genzai | Takopi's Original Sin | Первородный грех Та�
 magnet:?xt=urn:btih:CD717674FDF623686BF1FE54FAFD2E89B2397B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Call of Duty: Modern Warfare (2019) [Ru/En] (8.67/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:CDD72F5B5892F2AB2B7ED8EE9315C439A02B2603
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:CDD72F5B5892F2AB2B7ED8EE9315C439A02B2603
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:CDD72F5B5892F2AB2B7ED8EE9315C439A02B2603
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:CDD72F5B5892F2AB2B7ED8EE9315C439A02B2603
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:CDD72F5B5892F2AB2B7ED8EE9315C439A02B2603
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ The Last of Us Part II (2) (2025) [Ru/En] (1.6.10721.105/dlc) Repack Wanterlude 
 magnet:?xt=urn:btih:929D4602BFAC56A020AB6280713063F937C8BDDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:929D4602BFAC56A020AB6280713063F937C8BDDD
 ```bash
 magnet:?xt=urn:btih:591452AA0274F8F125F5A8CA1B662E921F962F3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Wolfenstein: The New Order (2014) [Ru/En] (upd1) Repack R.G. Механики
 magnet:?xt=urn:btih:8A6FFE500D686C682535D0C7D20AE29DE4453021
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ MInstAll v.03.07.2025 By Andreyonohov (Unpacked) [Ru]
 ```bash
 magnet:?xt=urn:btih:67FD98A9EC4D7197FA4D3033E8EC4C6F271191FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:67FD98A9EC4D7197FA4D3033E8EC4C6F271191FE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:67FD98A9EC4D7197FA4D3033E8EC4C6F271191FE
 ```bash
 magnet:?xt=urn:btih:576D372327209BB1454351056E0962CFDD022393
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Vue - это JS фреймворк для создания реактивных 
 magnet:?xt=urn:btih:DAC11588A75376559F383C4644937A054D730C1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Microsoft назвала Windows 11 24H2 самой надёжной сборк�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Cloudflare начал блокировать пиратские сайты дл�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

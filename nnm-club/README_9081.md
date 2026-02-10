@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:407DC7EA91BD6C171A4C2948078EDDB627CB93FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Doom Poets - Lost Connection (2018) Tech Itch Recordings [FLAC|Lossless|tracks+.
 ```bash
 magnet:?xt=urn:btih:B6A74A9014A94737967A8AAE5E5C985DD564190B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Jim Brickman - 8: Just Breathe (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 magnet:?xt=urn:btih:B58A0635478FE113D5D74FA4FC3DB7F0C8404326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Amy Macdonald - Woman Of The World (The Best Of 2007-2018) (2018) [MP3|320 Kbps]
 magnet:?xt=urn:btih:649D6110A6E2C895A814CC5FA43D77428541BC16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:649D6110A6E2C895A814CC5FA43D77428541BC16
 ```bash
 magnet:?xt=urn:btih:CE06778DB8F5E15C95AFE626375DF93196F12A45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:CE06778DB8F5E15C95AFE626375DF93196F12A45
 magnet:?xt=urn:btih:BB62F3AA6E5B175B72FAF585DAB9B54C8E355105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:BB62F3AA6E5B175B72FAF585DAB9B54C8E355105
 magnet:?xt=urn:btih:CCE09A9867BE487A7B12E5CD00CDBB753AE0EDB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:CCE09A9867BE487A7B12E5CD00CDBB753AE0EDB7
 ```bash
 magnet:?xt=urn:btih:B83B1764B8726042AA32F4983B1794C2154AB7AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ ZOE (Straub) - Debut Deluxe (2016) [MP3|320 Kbps] <French Pop, Gipsy-Swing, Elec
 magnet:?xt=urn:btih:F43A957A6608B8638A20CB4B1F3EE9E778DBBB1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ VA - Top 50, A Playlist By Spotify Charts 18.11.2018 (2018) [MP3|320 Kbps] <Pop 
 magnet:?xt=urn:btih:5742A3001A98933869119D3A0F3E2B64CEB8E08B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:5742A3001A98933869119D3A0F3E2B64CEB8E08B
 ```bash
 magnet:?xt=urn:btih:C119B2C1D177DB5333A79A90CC561711F73E5499
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ VA - NOW That's What I Call Music! 20th Anniversary, Vol. 1 (2018) [MP3|320 Kbps
 magnet:?xt=urn:btih:324D25AB2D06AF86D6666D34B00DD0A46029056C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ Ten - Illuminati (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic H
 magnet:?xt=urn:btih:FE4682DDE4F1C0BF7F10B2E793BC0F14EF3497EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:FE4682DDE4F1C0BF7F10B2E793BC0F14EF3497EF
 ```bash
 magnet:?xt=urn:btih:5F16F9F46B0EF4C1B7E4F7C4717541EA9E58C234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:5F16F9F46B0EF4C1B7E4F7C4717541EA9E58C234
 magnet:?xt=urn:btih:652AFA2E0B515BA94BA156749C543796218668DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:652AFA2E0B515BA94BA156749C543796218668DB
 ```bash
 magnet:?xt=urn:btih:78EC86288EE222DC213BD1FDF82297C577F8FD48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ Maxim является абсолютно уникальным журналом 
 magnet:?xt=urn:btih:5D4CF616DE38BC14C7D7D748F0E034FB8D5A32C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:5D4CF616DE38BC14C7D7D748F0E034FB8D5A32C3
 ```bash
 magnet:?xt=urn:btih:6065E37FCDC38988C636590B87D680576842C77D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ Revolution Highway - Revolution Highway (2018) [MP3|320 Kbps] <Hard Rock>
 magnet:?xt=urn:btih:5002121BAA605660B59CC23FC220CE826C0BA6FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:5002121BAA605660B59CC23FC220CE826C0BA6FC
 ```bash
 magnet:?xt=urn:btih:EAF193599CA90A9121664C4A46BC86CBC73AD1D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ ZOE (Straub) - The Acoustic Sessions (2017) [MP3|320 Kbps] <Acoustic Pop>
 magnet:?xt=urn:btih:3996BAF96D3E5F31D143D6B394110567E5FC704E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ Zapp - 4 Albums (1980-1985) [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
 magnet:?xt=urn:btih:155EAC160B3EFF7B6E36E8EE9D8E1CC76A3996A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:155EAC160B3EFF7B6E36E8EE9D8E1CC76A3996A7
 ```bash
 magnet:?xt=urn:btih:1AF68BCF0F9E4B96A24B25FBC880D15436206ABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ VA - Hot Party Winter 2019 (2018) [MP3|320 Kbps] <Dance, Lunapop, Indie, Neo Sou
 magnet:?xt=urn:btih:6A50EEE2E620982FF0469A784C20DDC6EE8D84CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ magnet:?xt=urn:btih:6A50EEE2E620982FF0469A784C20DDC6EE8D84CF
 magnet:?xt=urn:btih:139CCACCECE0416FDD5629876F10499F1FBFC208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ magnet:?xt=urn:btih:139CCACCECE0416FDD5629876F10499F1FBFC208
 ```bash
 magnet:?xt=urn:btih:B89FC5E2D0625A43F5C078FD542912300247E2BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

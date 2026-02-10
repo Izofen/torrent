@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:25ED6EE55BDC01A3506A0A51F26978E136219CFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:25ED6EE55BDC01A3506A0A51F26978E136219CFC
 ```bash
 magnet:?xt=urn:btih:D331E7CCFA1D7C45D01E8A36F8B08E4A8EF2B3D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:D331E7CCFA1D7C45D01E8A36F8B08E4A8EF2B3D5
 magnet:?xt=urn:btih:7CB2376BC270176941A53E3CB7F2C347BB2C3D81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:7CB2376BC270176941A53E3CB7F2C347BB2C3D81
 ```bash
 magnet:?xt=urn:btih:30FA1979305D3E0F077B51EA041F9694A4E861C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:30FA1979305D3E0F077B51EA041F9694A4E861C1
 magnet:?xt=urn:btih:441D6884DFEF9A5246C09DBD81D82699843847DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Bastion — светлый шрифт без засечек, создающий 
 ```bash
 magnet:?xt=urn:btih:8149864DA43889E213CB247CAE171AA69CF1CB2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ STONES CRUSH — это нарисованный от руки шрифт с н�
 magnet:?xt=urn:btih:4575727A654FB2E994ED1369ED32E19A3AB4B368
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Ingenue - это вариативный акцидентный шрифт, вд�
 magnet:?xt=urn:btih:5BAFC2595D12E080466CC00970F127E9F35C08DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Stieglitz SP — узкий акцидентный шрифт с готичес�
 ```bash
 magnet:?xt=urn:btih:9CB08D72DD4578781F33CB9B3660EDD95CF7B132
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ NNM-Club Sound Cleaner's - andgelo12 - Cleared Music 2022 Part One [MP3]
 magnet:?xt=urn:btih:27DE6E350BBED2847E83060FD345FA912BDF61AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:27DE6E350BBED2847E83060FD345FA912BDF61AC
 ```bash
 magnet:?xt=urn:btih:9466ECC536CC1AF0E507555EBAC9835608AF17AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:9466ECC536CC1AF0E507555EBAC9835608AF17AC
 magnet:?xt=urn:btih:A9404BAF905A74493461438125BC4F1A4CD5AC8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ CINE SFX Vol. 1 Ultimate Bundle предоставляет вам необход
 ```bash
 magnet:?xt=urn:btih:F01C199E25C2AB02A5D3C28236C366C246DF446B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:F01C199E25C2AB02A5D3C28236C366C246DF446B
 magnet:?xt=urn:btih:53E5564E7FEBC57E239539EA4676C6D4F853BD74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Cametah — аутентичный акцидентный рукописный �
 ```bash
 magnet:?xt=urn:btih:F29B7ABA4A3E4F6CEC38DB0AC9A7E9AEB1475A9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:F29B7ABA4A3E4F6CEC38DB0AC9A7E9AEB1475A9E
 magnet:?xt=urn:btih:82279B3E877825C94721D0A7830E7015DFA190D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ WaterColor Painting - ретушь Ваших фотографий с эффек
 ```bash
 magnet:?xt=urn:btih:AB9C331CA27E2725365952F5F0D7B658797AD169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ CHAOS был разработан для создателей боевиков. 
 magnet:?xt=urn:btih:8DCBF019A92386EA0E04CAFEBBD3F645C11C8E0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:8DCBF019A92386EA0E04CAFEBBD3F645C11C8E0E
 magnet:?xt=urn:btih:C6ABB76BED7099971F467D90346B2F8316C7204A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:C6ABB76BED7099971F467D90346B2F8316C7204A
 ```bash
 magnet:?xt=urn:btih:68797F972096080E7DA787C7053704836F4275AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:68797F972096080E7DA787C7053704836F4275AA
 magnet:?xt=urn:btih:806822388867A3C6B7DF8DBEB2422E8732E93D84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:806822388867A3C6B7DF8DBEB2422E8732E93D84
 ```bash
 magnet:?xt=urn:btih:FD707C1BF7201853EB3CAA47757C05C011643C49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:FD707C1BF7201853EB3CAA47757C05C011643C49
 magnet:?xt=urn:btih:238932E6D78E642E47A0B0C5E6CF6475709DE216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:238932E6D78E642E47A0B0C5E6CF6475709DE216
 ```bash
 magnet:?xt=urn:btih:447895D82AE613CC61F85EA99D47B12D485FDEA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:447895D82AE613CC61F85EA99D47B12D485FDEA4
 magnet:?xt=urn:btih:CD706B4922BDFEEAFEFFFD038F01C1D93B37C904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:CD706B4922BDFEEAFEFFFD038F01C1D93B37C904
 ```bash
 magnet:?xt=urn:btih:55C6FDE11DBFF938A1310ADEDC9283F210C3E689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:114284C53B4A023398B03A92A3B3B62D90644ADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:114284C53B4A023398B03A92A3B3B62D90644ADD
 ```bash
 magnet:?xt=urn:btih:06598F22A034B9B103DBD710B3B072C94B9A5A7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:06598F22A034B9B103DBD710B3B072C94B9A5A7A
 magnet:?xt=urn:btih:C631C164C498BE58F570BBE9032EF63700D7AA66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:C631C164C498BE58F570BBE9032EF63700D7AA66
 ```bash
 magnet:?xt=urn:btih:822D7DCC2921D5C4E6F1F500E1067F3BE223CA62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:822D7DCC2921D5C4E6F1F500E1067F3BE223CA62
 magnet:?xt=urn:btih:646E5EB8F2BFA83D6B1B3646FFF00053E7E3608D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:646E5EB8F2BFA83D6B1B3646FFF00053E7E3608D
 ```bash
 magnet:?xt=urn:btih:030CF2C5810EA86571F3720D862C23DC604867AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Krieg-B - War Drums' resonance (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark E
 magnet:?xt=urn:btih:D3243E004FC41F45281FB8F536486192D3EC53EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Metropolit - Fear: My Guide, My Steady Downfall (2025) [MP3|320 Kbps] <Darkwave,
 magnet:?xt=urn:btih:C046E076BD69313F2D50A9674C53768FBB2337C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:C046E076BD69313F2D50A9674C53768FBB2337C7
 ```bash
 magnet:?xt=urn:btih:680094E7D550E39497EA6EB43DC7F3669C728113
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:680094E7D550E39497EA6EB43DC7F3669C728113
 magnet:?xt=urn:btih:39521F84F2E8A3BEB47D73C559FA630D3B1EFAEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ Crazy Lixx — шведская хэви-метал/хэйр-метал/хард
 ```bash
 magnet:?xt=urn:btih:EE72BBCCDF28E070241D72D3D4993E9DB444843E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ Echodead - Enter the Void (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Dark Electr
 magnet:?xt=urn:btih:E5FC6328C9207DA00BF9653BA384430D6EE68E8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:E5FC6328C9207DA00BF9653BA384430D6EE68E8F
 ```bash
 magnet:?xt=urn:btih:3EF4D418B5242C5090C9C1FF018F6DA9AAD7ADF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ magnet:?xt=urn:btih:3EF4D418B5242C5090C9C1FF018F6DA9AAD7ADF1
 magnet:?xt=urn:btih:F14DAFAB3C73A7A83C12EC2F3CCEFBAE91061447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +412,8 @@ Protokoll 19 - Mental Decay (2024) [MP3|320 Kbps] <Dark Electro, Harsh EBM>
 magnet:?xt=urn:btih:DC931DF2F20D7EEC1054E1FCC640F3F1636261A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:DC931DF2F20D7EEC1054E1FCC640F3F1636261A5
 ```bash
 magnet:?xt=urn:btih:B2F1BEE08C672216F0B6DDE5A38C795B9FC52CD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +467,8 @@ Strong Product - IV (2025) [FLAC|Lossless|WEB-DL|tracks] <EBM>
 magnet:?xt=urn:btih:61074A71C9A7FA2474B477DD3D1569C94831E9F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ magnet:?xt=urn:btih:61074A71C9A7FA2474B477DD3D1569C94831E9F4
 ```bash
 magnet:?xt=urn:btih:1A9074A31D4BDAD1BB9589AF3ADD99BC410AEA85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +519,8 @@ magnet:?xt=urn:btih:1A9074A31D4BDAD1BB9589AF3ADD99BC410AEA85
 magnet:?xt=urn:btih:E9B05DA38C6BBC9733584351EAA012D8EF36A45B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ Opera One 117.0.5408.35 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B48427682635F8A57C5FDEF36EE04830D07520FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:B48427682635F8A57C5FDEF36EE04830D07520FF
 magnet:?xt=urn:btih:4F6FEE2B9A1A8CA1AB6FD71CC7B130A61D0932CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ Jigsawscapes® - Пазлы v3.7.8 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CA592CD7BDC94E1D2A4FA594A780ADC58ECE3892
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:CA592CD7BDC94E1D2A4FA594A780ADC58ECE3892
 magnet:?xt=urn:btih:78B86FA41331AD38A8AC73C065511B05A5ED8881
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:78B86FA41331AD38A8AC73C065511B05A5ED8881
 ```bash
 magnet:?xt=urn:btih:C2165180459B108B3A4C80A1853E5A80F3A820E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 magnet:?xt=urn:btih:0702ABEDCB6D58ACFCE766293B7F0579A36D399E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ magnet:?xt=urn:btih:0702ABEDCB6D58ACFCE766293B7F0579A36D399E
 ```bash
 magnet:?xt=urn:btih:5D652E50CB29A17E8972CE0CC0B51F6753A4CDC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

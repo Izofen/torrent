@@ -1,3 +1,29 @@
+###  Публикация: 1623339   (1029396) от 01.04.2023
+
+Аншлаг и компания. Владимир Винокур (01.04.2023) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1029396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой данного выпуска "Аншлага" – юбиляр этой недели, народный артист России Владимир Винокур. За 30 лет существования "Аншлага" собрана уникальная коллекция его выступлений и интервью. Сегодня в программе – настоящая мозаика новых и архивных номеров одного из самых любимых "аншлаговцев".Телекомпания: Россия / ВГТРКЖанр: ТВ-шоу, юморСубтитры: ОтсутствуютПродолжительность: 01:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7413B3C2A3B12132ED0C9E9DD8CD34787AF0C391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623432   (1029406) от 01.04.2023
 
 Убежище. Истории о выживании в Альпах / Le plus beau pays du monde 3 / The Sanctuary: Survival Stories of the Alps (2019) WEB-DL [H.264/1080p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:03385F8ECFD9A0FAA1CFB381FA1AEC3F65415F2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:03385F8ECFD9A0FAA1CFB381FA1AEC3F65415F2C
 magnet:?xt=urn:btih:AD1E030216FB9C6F78C39729CD624D674053CADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:AD1E030216FB9C6F78C39729CD624D674053CADE
 ```bash
 magnet:?xt=urn:btih:FD086BD2B80AC2144F1E68163438474D111DC30E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:FD086BD2B80AC2144F1E68163438474D111DC30E
 magnet:?xt=urn:btih:4CFA0AC7A8545506CD3FD028C287379AD5C8C034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:4CFA0AC7A8545506CD3FD028C287379AD5C8C034
 magnet:?xt=urn:btih:9B9378E05BF2A4FA9CD7844DAB3465C20EF3BA31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ magnet:?xt=urn:btih:9B9378E05BF2A4FA9CD7844DAB3465C20EF3BA31
 ```bash
 magnet:?xt=urn:btih:5EA5928D442109C89C6301676F16487DAA0DF451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:5EA5928D442109C89C6301676F16487DAA0DF451
 magnet:?xt=urn:btih:1D1BA131DF8AF1B0A55C2A3DDBC2CEE4A5D4A716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:1D1BA131DF8AF1B0A55C2A3DDBC2CEE4A5D4A716
 ```bash
 magnet:?xt=urn:btih:4E636A4DF16C9C6470308173F9418CDE6FB25009
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:4E636A4DF16C9C6470308173F9418CDE6FB25009
 magnet:?xt=urn:btih:2558F8237ABA0F959A342D261B2283911CF2C018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:2558F8237ABA0F959A342D261B2283911CF2C018
 ```bash
 magnet:?xt=urn:btih:E27E8FF4DB9E75D175915F61E922A6A674F8C50F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:E27E8FF4DB9E75D175915F61E922A6A674F8C50F
 magnet:?xt=urn:btih:EDA64C3A929B91F2459EBD09E283431AA3691380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:EDA64C3A929B91F2459EBD09E283431AA3691380
 ```bash
 magnet:?xt=urn:btih:7719F1E52EF07555908FC06F8ABB2499B469F1CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:7719F1E52EF07555908FC06F8ABB2499B469F1CD
 magnet:?xt=urn:btih:C1D7EE26A727903A85DE7FD707CA76BE4E0EE545
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:C1D7EE26A727903A85DE7FD707CA76BE4E0EE545
 ```bash
 magnet:?xt=urn:btih:16AB8301FA677EC413F90D9095508F5A3DE3E56C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:16AB8301FA677EC413F90D9095508F5A3DE3E56C
 magnet:?xt=urn:btih:3461B6155A4A1060328ADC440B3D41A88F808779
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:3461B6155A4A1060328ADC440B3D41A88F808779
 ```bash
 magnet:?xt=urn:btih:A0994DE6114B8243DB7B10EC5449077F365B5CA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:A0994DE6114B8243DB7B10EC5449077F365B5CA8
 magnet:?xt=urn:btih:593DCE03BF8069AC9C0D078D0AFDA27CE719ED99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:593DCE03BF8069AC9C0D078D0AFDA27CE719ED99
 ```bash
 magnet:?xt=urn:btih:EF3FA171F0C36733BA9D9671C9CAB35DDE722CC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:EF3FA171F0C36733BA9D9671C9CAB35DDE722CC6
 magnet:?xt=urn:btih:0C52DD73CB504DCB85A6BF2EF725DCDE371447C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:0C52DD73CB504DCB85A6BF2EF725DCDE371447C0
 ```bash
 magnet:?xt=urn:btih:84E67D89383D9F2F8993D4079D869BBFDDD83C16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:84E67D89383D9F2F8993D4079D869BBFDDD83C16
 magnet:?xt=urn:btih:EC4DE78798CBCD33185278E273B9D04BDD0D849A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:EC4DE78798CBCD33185278E273B9D04BDD0D849A
 magnet:?xt=urn:btih:AEDDA99165DE90077618472BC66FE1A3C3D8A0F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:AEDDA99165DE90077618472BC66FE1A3C3D8A0F8
 ```bash
 magnet:?xt=urn:btih:D5F35F076E8A1B047D5E72CA187EA88C8DEE40F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:D5F35F076E8A1B047D5E72CA187EA88C8DEE40F5
 magnet:?xt=urn:btih:6DA61C669314BB91FD36353ADE62085459A87EBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:6DA61C669314BB91FD36353ADE62085459A87EBE
 magnet:?xt=urn:btih:085A1E7D4F67F781A890A89096F79CC254008C7B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407282   (1030094) от 20.02.2021
-
-Путин: История русского шпиона / Putin: A Russian Spy Story (2020) HDTV [H.264/1080i-LQ] (серии 1-3 из 3)
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трехсерийный фильм о президенте России Владимире Путине. Проект представляет собой «интервью с теми, кто работал с политиком, хорошо его знал и сталкивался с ним». В числе заявленных спикеров шоу — Татьяна Юмашева, дочь предшественника Путина в кресле российского главы Бориса Ельцина, Марина Литвиненко, вдова бывшего сотрудника ФСБ Александра Литвиненко, журналист (   Читать дальше...   )Производство: Великобритания, Channel 4Жанр: Документальный, Биография, ПолитикаРежиссер: Ник ГринПеревод: Двуголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 3 x ~ 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:465AEDBA3EEC7D6E86F88BA6FD7B01506D6D54A0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

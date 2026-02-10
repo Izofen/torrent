@@ -1,51 +1,3 @@
-###  Публикация: 955718   (330326) от 14.11.2015
-
-Томиэ: Начало / Tomie: Beginning (2005) DVDRip [H.264] [MP4|640х352]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта часть является приквелом к другим частям фильмов, снятых на HD. В ней показана цепь событий, которые произошли хронологически ранее первого фильма о Томиэ. Томиэ (Рио Мацумото), в этой части, изображена как студентка средней школы, которая мгновенно очаровывает всех особей мужского пола и вызывает ярость женщин. Как часто бывает в фильмах о Томиэ, ее внимание (   Читать дальше...   )Производство: ЯпонияЖанр: УжасыРежиссер: Атару ОикаваАктеры: Рио Матсумото, Асами Имадзюку, Кенджи Мизухаши, Юка Ивасаки, Майя РикияПеревод: Двуголосый закадровый (Продолжительность: 01:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FD0E51C565C24B4C5B2A4C3BA7AFF07B2D89E60
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956288   (330327) от 14.11.2015
-
-Comedy Баттл. Последний сезон. Выпуск №33  / Комеди Клаб / Comedy Club  (2015.11.13) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330327.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стартует заключительный сезон проекта, который уже давно стал кузницей кадров для многих других шоу. Причем не только канала ТНТ. Засветившись в эфире «Баттла», юмористы начинают активно стендапить, писать сценарии для крупных (и не обязательно юмористических) сериалов, выходят на сцену Comedy Club, в конце концов.Телекомпания: ТНТЖанр: ТВ-ШоуПродолжительность: ~ 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E69BADC68A8B97DBC038F8E92A4F428CE80A9E2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956294   (330330) от 14.11.2015
 
 Журнал | Оружие №12 (2015) [PDF]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:2E69BADC68A8B97DBC038F8E92A4F428CE80A9E2
 ```bash
 magnet:?xt=urn:btih:4D050A8571DCA93C4AA7E3E71DBE5F61C48E50F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -90,6 +44,8 @@ magnet:?xt=urn:btih:4D050A8571DCA93C4AA7E3E71DBE5F61C48E50F0
 ```bash
 magnet:?xt=urn:btih:82813EB77BED1D00B1C108773A1203F573AC446D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +74,8 @@ Matteo Brancaleoni - Made in Italy (2015) [MP3|320 кб/с]<Jazzy, Crooner>
 magnet:?xt=urn:btih:8680048B470503B1A7E3E937A914538C1AE4D60A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +99,8 @@ Free Studio 6.5.10.1113 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:349C58AB041CDDEB734BF73F9C3416B0F3E55AD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +126,8 @@ SlimBrowser 7.00 Build 133 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:62996242F108ACFD48DADE37FBD34D55C28868D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +151,8 @@ TagScanner - мощная программа для организации и у
 ```bash
 magnet:?xt=urn:btih:F24B4D2C7D27537499E1045292B21D92CAB80B00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +181,8 @@ Lonnie Smith Trio - Foxy Lady: Tribute To Jimi Hendrix (1994) 2011, Venus Record
 magnet:?xt=urn:btih:8B6F2844AEBD326850547DAFC296E429CA7D6850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +206,8 @@ magnet:?xt=urn:btih:8B6F2844AEBD326850547DAFC296E429CA7D6850
 ```bash
 magnet:?xt=urn:btih:3E05B5B2EF493AF1DA2816B32315E99EF9FF75A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +234,8 @@ magnet:?xt=urn:btih:3E05B5B2EF493AF1DA2816B32315E99EF9FF75A3
 magnet:?xt=urn:btih:A330CDB177E09AB5A16B70210FDF1C6BBDB2228C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +259,8 @@ Tomb Of Insomnia - Discography 7 Releases (2006-2011) [MP3|V4-320 кб/с]<Rhyth
 ```bash
 magnet:?xt=urn:btih:33B0148C82F8AFB10F8A29B6F0A9BF4AFE100375
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +287,8 @@ magnet:?xt=urn:btih:33B0148C82F8AFB10F8A29B6F0A9BF4AFE100375
 magnet:?xt=urn:btih:1720C2976CA8B568CCCCEB3D59CAA6040754D051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +312,8 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:626D9CA97493A50A6775FA239F8F414699ED75AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +342,8 @@ Ascania - Forgotten valley(   Читать дальше...   )Жанр: Upliftin
 magnet:?xt=urn:btih:A560E8DCEC74B4D74ABEDEF320C857A8B225E557
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +367,8 @@ magnet:?xt=urn:btih:A560E8DCEC74B4D74ABEDEF320C857A8B225E557
 ```bash
 magnet:?xt=urn:btih:807A0C8FD88B9C868FC7D9157F2F3BD2C0F2ED07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +395,8 @@ magnet:?xt=urn:btih:807A0C8FD88B9C868FC7D9157F2F3BD2C0F2ED07
 magnet:?xt=urn:btih:A7864FD75C211E15CC2559788D0FD362CCAA2F1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +420,8 @@ magnet:?xt=urn:btih:A7864FD75C211E15CC2559788D0FD362CCAA2F1E
 ```bash
 magnet:?xt=urn:btih:1830B741A14163D7CDF9DE4E5FE219C1DC3BC1D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +450,8 @@ magnet:?xt=urn:btih:1830B741A14163D7CDF9DE4E5FE219C1DC3BC1D3
 magnet:?xt=urn:btih:D7DCB97905BBE224B0CB1BB5D80067FF60D40745
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +475,8 @@ magnet:?xt=urn:btih:D7DCB97905BBE224B0CB1BB5D80067FF60D40745
 ```bash
 magnet:?xt=urn:btih:76E8E6426A06325F75728C55F438363E733F165C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +505,8 @@ Claudia Franco - Soul Dance (2015) [MP3|320 кб/с]<Jazz>
 magnet:?xt=urn:btih:55D43BA1FFEEC35B21173C38FE175A2135585FBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +533,8 @@ John Tropea - Gotcha Rhythm Right Here (2014) [FLAC|tracks+.cue]<Jazz, funk, fus
 ```bash
 magnet:?xt=urn:btih:5985124E50E56CB2A2AFB1A3EDD03196515B093C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +563,8 @@ Hedley - Storms (2011) Deluxe Edition [FLAC|tracks+.cue]<Alt Rock, Pop Rock>
 magnet:?xt=urn:btih:3A3CB87F6FECE1E3DE2EE9F6BE528636ECE9B8B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +589,8 @@ magnet:?xt=urn:btih:3A3CB87F6FECE1E3DE2EE9F6BE528636ECE9B8B2
 magnet:?xt=urn:btih:987EEDCABBFDA43C4907757DD21E04F594DC4B48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +614,8 @@ magnet:?xt=urn:btih:987EEDCABBFDA43C4907757DD21E04F594DC4B48
 ```bash
 magnet:?xt=urn:btih:D7DEA91279FDCAF79DC645598A718044BBC61C6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +643,66 @@ Terez Montcalm - Quand on s'aime (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:0805DCA0781D98F5C557CB6E81F4F5281D0F4E25
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956368   (330387) от 14.11.2015
+
+VA - From Sunset to Sunrise Vol 1 20 Midnight Lounge Tunes (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gold Lounge - Vinile
+02. Himalaya - Incred Part
+03. Noban - Venus Mont
+04. Grace Rhythm - Caprice de mieu(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A93A12D4623E620B92F633BD3301A6B9D426C7D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956280   (330388) от 14.11.2015
+
+VA - Luxury Christmas Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silver - Robert Manos
+02. Laid Back - Bassface Sascha & JFC
+03. Go (Radio Remix) - Naomi feat. Selda Kaya
+04. For One Day Or Forever - Acoustique Parfum(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:01:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E3A0ABB327D667FAD3E929B4282DF92B005282
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

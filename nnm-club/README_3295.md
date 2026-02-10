@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:04677BC6EA862E8E52287B0A4D1B70D1328D7CD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:04677BC6EA862E8E52287B0A4D1B70D1328D7CD6
 magnet:?xt=urn:btih:F23663918B0BC72143F9665B2954C7284028FE36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:F23663918B0BC72143F9665B2954C7284028FE36
 ```bash
 magnet:?xt=urn:btih:344D0F83C7B8BDD304955B15880308FE092E9215
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:344D0F83C7B8BDD304955B15880308FE092E9215
 magnet:?xt=urn:btih:4F1284E88C2D726B1F8D5DE9BCF87C98B445C121
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:4F1284E88C2D726B1F8D5DE9BCF87C98B445C121
 ```bash
 magnet:?xt=urn:btih:121128327B3584003254EEF0C0CB221876C9F92B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:121128327B3584003254EEF0C0CB221876C9F92B
 magnet:?xt=urn:btih:F63ADA5F6B376E77588BA0F36F4A92EECD900530
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:F63ADA5F6B376E77588BA0F36F4A92EECD900530
 ```bash
 magnet:?xt=urn:btih:B3185B0ACA39AA45B8F345CE7E9CD943052E13B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:B3185B0ACA39AA45B8F345CE7E9CD943052E13B2
 magnet:?xt=urn:btih:36874FB236EC187093F47EDBF3236A88C97AA7A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:36874FB236EC187093F47EDBF3236A88C97AA7A4
 magnet:?xt=urn:btih:C0B4709E5D2C75E5EE2875222EEF2F0F9BE91B0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ PhotoDirector - функциональный, но весьма простой �
 ```bash
 magnet:?xt=urn:btih:99FF5223021BF0C8712AAF3A2B234111919C85A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Daniel Pitout, более известный как Orville Peck, - южноаф
 magnet:?xt=urn:btih:05A2E96E640CE2A26C503F900A666C6B789C0701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Hoc Eritis - What we will be (complete edition) (2024) [MP3|~245 Kbps (V0)] <Syn
 ```bash
 magnet:?xt=urn:btih:22462732EA3BC3CAE425D749395A54BFBBC132E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ Dark Tranquillity - Endtime Signals (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodi
 magnet:?xt=urn:btih:D125D476B53723D5E8184422EE17ECB9E1C843BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:D125D476B53723D5E8184422EE17ECB9E1C843BE
 ```bash
 magnet:?xt=urn:btih:68689C496E15344E2E9A0A5AD0E8D56ABC4C732B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ MEDUZA - Radio 1's Essential Mix (2024-07-13) [MP3|~245 Kbps (V0)] <Progressive 
 magnet:?xt=urn:btih:0B149510079E7210773E90DFD03C381B2ACF4AC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ Robse - Harlekin und Krieger (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death
 magnet:?xt=urn:btih:E04F0D06219F36D972CB55DE69C09DCCA3E24704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:E04F0D06219F36D972CB55DE69C09DCCA3E24704
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ Miazma - 2017 - Dollar Rush (10th Anniversary)(   Читать дальше...  
 magnet:?xt=urn:btih:CF9AC54D1B916068A75C02736C265759911EA31F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ Femme Fatale - Live + Demos (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Gla
 magnet:?xt=urn:btih:B7E99F4453B9E0F9075EE2B928B65AC5E450C760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:B7E99F4453B9E0F9075EE2B928B65AC5E450C760
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ VA - Compilation part 113 Electronic (2024) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:3752ADED801543B509C2796C4267B830A60BA0EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:3752ADED801543B509C2796C4267B830A60BA0EE
 magnet:?xt=urn:btih:7C3F8FBEF8AE2B3B4E5AC44EF6E8EF6190A8EDE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:7C3F8FBEF8AE2B3B4E5AC44EF6E8EF6190A8EDE6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:7C3F8FBEF8AE2B3B4E5AC44EF6E8EF6190A8EDE6
 magnet:?xt=urn:btih:85280C9773FFE19E6E5B3C39E30E49648CCB9B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:85280C9773FFE19E6E5B3C39E30E49648CCB9B25
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ magnet:?xt=urn:btih:85280C9773FFE19E6E5B3C39E30E49648CCB9B25
 ```bash
 magnet:?xt=urn:btih:CF46FFBF66AC9BB88BEBA67AAE29C95FD85BC2D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

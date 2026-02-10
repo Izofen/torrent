@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:65F9AF698DBEF2C400CA9651BDCC7C66257000AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:65F9AF698DBEF2C400CA9651BDCC7C66257000AC
 ```bash
 magnet:?xt=urn:btih:75C69CFCD74CE03D86474AFCB7DB9A61A0AFD1DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:75C69CFCD74CE03D86474AFCB7DB9A61A0AFD1DC
 magnet:?xt=urn:btih:B65B252703D9374F7229BB206F67826931066E4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:B65B252703D9374F7229BB206F67826931066E4F
 ```bash
 magnet:?xt=urn:btih:6FF6FE8DCF29715833C954CA094E374A98098A10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ VA - Takeover IBIZA 2025 (The Deep-House Files) (2025) [MP3|320 Kbps] <House, De
 magnet:?xt=urn:btih:EC5587E455E80CD7194B7A4B0F031C264054A105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:EC5587E455E80CD7194B7A4B0F031C264054A105
 ```bash
 magnet:?xt=urn:btih:4A01EC5F2BBC360DD2DEC94DD517B3B7C0E47B91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:4A01EC5F2BBC360DD2DEC94DD517B3B7C0E47B91
 magnet:?xt=urn:btih:F5347743E091ABB3C68EEB7382AF54C859178FB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:F5347743E091ABB3C68EEB7382AF54C859178FB7
 ```bash
 magnet:?xt=urn:btih:5CDD0DC632C8640446F66D670B7620EF53D3992A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Skunk Anansie - The Painful Truth (2025) [MP3|320 Kbps] <Alternative Rock, Indie
 magnet:?xt=urn:btih:7F59106210D8E0067AC703E37588D9886AEA2AB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:7F59106210D8E0067AC703E37588D9886AEA2AB2
 ```bash
 magnet:?xt=urn:btih:B5EF18A3883A020FE45E408F24F7853FF14568FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:B5EF18A3883A020FE45E408F24F7853FF14568FB
 magnet:?xt=urn:btih:30719CA1C2255348A340121F1908620EA052F707
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:30719CA1C2255348A340121F1908620EA052F707
 magnet:?xt=urn:btih:D71BAC6378679C8DF6A0F40A85822E088C77C918
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:D71BAC6378679C8DF6A0F40A85822E088C77C918
 ```bash
 magnet:?xt=urn:btih:9B8E5FC0D06068DEAF79FA3AEB833521ECFE56D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ Hinder - Back To Life (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt. Rock, Har
 magnet:?xt=urn:btih:41342DCC4CDFF0DCDDB78E956B9DEEF8A0893746
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ The Devil Wears Nada - Postalgia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <M
 magnet:?xt=urn:btih:12F84B3F99A60CCC0B92AF15E2B8C8C963AC4812
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ MotoGP. Этап 07 из 22. Гран-при Великобритании. Сп�
 ```bash
 magnet:?xt=urn:btih:6A0BCC96B81FF0D00381E1DB71FA0B206452EBA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ MotoGP. Этап 07 из 22. Гран-при Великобритании. Кв�
 magnet:?xt=urn:btih:00034EDB3219235878D4C207D7F8B816D4EC269A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:00034EDB3219235878D4C207D7F8B816D4EC269A
 ```bash
 magnet:?xt=urn:btih:712A1F3A78062FE0994CBAC041F803EEF47ACF86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ Brace - Self Titled (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Meta
 magnet:?xt=urn:btih:9A2C0F4C671839A95933AC18ACEDE635D4BF971B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Thus Spoke Zarathustra - I'm Done With Self Care, It's Time For Others' Harm (20
 ```bash
 magnet:?xt=urn:btih:75468B8525E029F86EE226EA90157538AD03C4FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ Agressor - The Merciless Onslaught (2004) Compilation [WavPack|Lossless|image + 
 magnet:?xt=urn:btih:E3E6815C52B1A459E164D9CEE226EA819D1E5FE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ Orbital - Orbital 2 (1993) The Brown Album Expanded, 2025, 5CD, London Records [
 ```bash
 magnet:?xt=urn:btih:7C40071C077151D23D97BF30E7E882D176EA0755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ Estiva - Embrace (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 magnet:?xt=urn:btih:04AFFA2ACDA1287AC187E7331B47C97F0041C13C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:04AFFA2ACDA1287AC187E7331B47C97F0041C13C
 ```bash
 magnet:?xt=urn:btih:E8CCEE544F46976D8B577221921471FE7DD90B1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ Jon Allen - Seven Dials (2025) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Blue
 magnet:?xt=urn:btih:457B8303D0947C353D199CF7C224D0E11F2C964F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:457B8303D0947C353D199CF7C224D0E11F2C964F
 ```bash
 magnet:?xt=urn:btih:29FEDC1492FE52D2C6625D879B4407D55C4251E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

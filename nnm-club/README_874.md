@@ -24,6 +24,8 @@ eRa: The Live Experience 2025 (2025) CamRip [H.264/1080p]
 magnet:?xt=urn:btih:C5546F19024E322A8AA4B3F6639E28D83C514FA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ Logo Reveal - разработан для придания отличного в
 magnet:?xt=urn:btih:C6DAD50BD441E4C30A475A81C1E0DC201688CC85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:F94D4BA935547448CA4685C6096B4C139630CE63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:F94D4BA935547448CA4685C6096B4C139630CE63
 ```bash
 magnet:?xt=urn:btih:DDE6AC8D29E0D8F0EBAD4C8D486E2774C4EC0515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Medieval Dynasty (2020) [Ru/Multi] (2.3.1.1/dlc) Repack Wanterlude
 magnet:?xt=urn:btih:9AFDA7D931CD524D132E36C84B568005A2DECCB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:9AFDA7D931CD524D132E36C84B568005A2DECCB5
 ```bash
 magnet:?xt=urn:btih:79FFFF278BCF70809B741C7BE64DBFB34FFDD839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:79FFFF278BCF70809B741C7BE64DBFB34FFDD839
 ```bash
 magnet:?xt=urn:btih:BC4C3E715B11B42B973C4264B2E31A85C90680AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Arch Enemy - Blood Dynasty (2025) [MP3|320 Kbps] <Melodic Death Metal>
 magnet:?xt=urn:btih:72926C15FCBC08547779D04F1C80A6F7C68B69FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:72926C15FCBC08547779D04F1C80A6F7C68B69FE
 magnet:?xt=urn:btih:1C40B84C88C4D37874C74D52325B245EDB87AEF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Fast Photo Intro Logo - разработан для придания отлич�
 ```bash
 magnet:?xt=urn:btih:D51136C5BE24203EA6398ABE1A67689ED354FCCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ Santana - Sentient (2025) Compilation [FLAC|Lossless|tracks + .cue] <Blues Rock,
 magnet:?xt=urn:btih:A585F170C2E93C30A5A46A3EFFDE8D4667DEE25F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:A585F170C2E93C30A5A46A3EFFDE8D4667DEE25F
 ```bash
 magnet:?xt=urn:btih:A154CDAA8B14E28730857002EFD7BDDABAA6C518
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +354,8 @@ magnet:?xt=urn:btih:A154CDAA8B14E28730857002EFD7BDDABAA6C518
 magnet:?xt=urn:btih:0412C0378980662F60CFCB453A7D593A23D3E03B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:0412C0378980662F60CFCB453A7D593A23D3E03B
 ```bash
 magnet:?xt=urn:btih:8D9C14ABBC0F4E5263A77CDA40434125301BD233
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +409,8 @@ VA - The Best Of 1980-1990 Vol. 6 (1992) 2 CD [OGG Vorbis|480 Kbps] <Pop Rock, S
 magnet:?xt=urn:btih:54C3EA434A71EDC4CB3872872DB6112B044A9BC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:EE6C1B1B86B489F30ED71E0E98469F6772D79F70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ magnet:?xt=urn:btih:EE6C1B1B86B489F30ED71E0E98469F6772D79F70
 magnet:?xt=urn:btih:35F50F31B4710EEC30E0333F9783C12EBFB704B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:10E2218E709A5404A7ACFAAB04AF5767BA331F49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:10E2218E709A5404A7ACFAAB04AF5767BA331F49
 magnet:?xt=urn:btih:334D008FFF4BC8108E4820EC1C7F5C3E096283FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:334D008FFF4BC8108E4820EC1C7F5C3E096283FB
 ```bash
 magnet:?xt=urn:btih:277DF29055F562D45C9AD015DE1DAD83FB15DD53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ magnet:?xt=urn:btih:277DF29055F562D45C9AD015DE1DAD83FB15DD53
 magnet:?xt=urn:btih:3301C1786F7894D98BE67E24684E9F09D60E7BC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ Wartales - ролевое приключение в открытом мире, �
 ```bash
 magnet:?xt=urn:btih:F0DE308ECB8B0010ECD22F4B3E5054554A7E832A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ GPS АнтиРадар v48.1 Mod by СМАРТОС [Ru]
 magnet:?xt=urn:btih:C583FE299FCED04AC54157690DB505FD12224F02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ MassTube Plus — очень простая в использовании про
 ```bash
 magnet:?xt=urn:btih:B09BDF2C590D9C7ED4191A4A110CEAC19289F0B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:B09BDF2C590D9C7ED4191A4A110CEAC19289F0B5
 magnet:?xt=urn:btih:9BA61ADD131DF82E5EA544F9908D1A5DA36D6269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ IPTV Pro v9.0.13 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:84CA05ABFFD228FC0641A78DDC1F9D3C5AC25A5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

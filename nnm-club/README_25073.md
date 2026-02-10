@@ -1,675 +1,712 @@
-###  Публикация: 1482653   (1007457) от 09.07.2021
+###  Публикация: 1483205   (1007021) от 12.07.2021
 
-FBackup 9.1.357 [Multi/Ru]
+Chris Geith - Invisible Reality (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007457.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007021.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FBackup — это свободно распространяемое программное обеспечение для резервного копирования. Предназначена программа и для личного и для коммерческого использования. Она защищает важные данные, сохраняя их автоматически на любой USB / Firewire накопитель, локальную или сетевую папку. Резервное копирование данных может быть сжатым, при этом, используется стандарт сжатия (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Invisible Reality (4:22)
+02. Whispers in the Night (5:10)
+03. Alive (4:16)
+04. Love Anchors the Soul (4:14)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:07:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB2B1D7691CF8E6EDFBAFD1E77C37E1A1C78F306
+magnet:?xt=urn:btih:8ABD87BC9800924774DC3DD3C8229D07BFA1D572
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482506   (1007458) от 09.07.2021
+###  Публикация: 1483195   (1007022) от 12.07.2021
 
-Sonic Weapon - Vanity (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Blessed Child - Monolith (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monolith 04:22
+02. A Little Rift Within the Lute 04:37
+03. Point Nemo 04:12
+04. Hang upon a Wretched Tree 04:13(   Читать дальше...   )Жанр: Thrash Metal, Heavy MetalПродолжительность: 00:25:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D0A99178B106B7CDA3ADC9EE611196D3AC6A53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483102   (1007023) от 12.07.2021
+
+VA - D&B Master Box (2021) [MP3|320 Kbps] <Drum & Bass, Dubstep, Bassline>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007023.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Slk - Game Changer
+002. Afterlife - Still Jazzy
+003. Annix & Fade Black - Dismantle
+004. Arxiva - Full Cycle(   Читать дальше...   )Жанр: Drum & Bass, Dubstep, BasslineПродолжительность: 07:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:129554836050A968433733084B1FF9F2489AF175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483120   (1007024) от 12.07.2021
+
+Helevorn - 4 Albums (2005-2019) [FLAC|Lossless|image + .cue] <Doom Metal, Death Metal, Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007024.jpg" />
+</div>
+
+
+###  Подробнее
+
+Helevorn — это готик-дум формация из избалованных солнцем Балеарских островов.Список альбомов:
+2005 - Fragments
+2010 - Forthcoming Displeasures
+2014 - Compassion Forlorn(   Читать дальше...   )Жанр: Doom Metal, Death Metal, Gothic MetalПродолжительность: 03:27:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12B77DDA2F9D5EF1304EA956CC8E5C7D6E24D663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483191   (1007025) от 12.07.2021
+
+Heavy Smasher - Heavy Smasher (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are Angels (03:54)
+02. Heavy Smasher Sound (04:03)
+03. Sunrise Rebel (04:59)
+04. Clash of the Gods (03:53)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EE5E63CE07600350802B019E8CB59D0DCFB596A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483214   (1007026) от 12.07.2021
+
+Reverend Jack - A Mile from Home (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007458.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007026.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Crossing The Line (0:04:32)
-02 - Feed My Monkey (0:04:43)
-03 - Go a Litlle Higher (0:02:28)
-04 - My Shell (0:04:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:54
+01. Crimson Seed (03:42)
+02. Fire Down Below (03:19)
+03. Greed (03:39)
+04. Crawling Inside (03:12)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:42:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:04015288840394D2D006CA425CD922E9267B05D1
+magnet:?xt=urn:btih:D83557EA491FAE5A5794D749F68539A2CD1068ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482696   (1007459) от 09.07.2021
+###  Публикация: 1483181   (1007027) от 12.07.2021
 
-Robert Hood - The Blueprint EP (2021) Rekids [FLAC|Lossless|WEB-DL|tracks] <Techno>
+Woody Herman - Brand New (1971) 2000, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band, Jazz-Rock>
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007459.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007027.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chroma Light (05:37)
- 02. The Majestic (Deeper Edit) (06:28)
- 03. The Majestic (06:18)
- 04. Ultrasonic Room (05:44)Жанр: TechnoПродолжительность: 00:24:07
+01. Sidewalk Stanley [5:26]
+02. After Hours [6:41]
+03. Since I Fell for You [4:05]
+04. Proud Mary [4:20](   Читать дальше...   )Жанр: Mainstream Jazz, Big Band, Jazz-RockПродолжительность: 00:43:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AAAE47ECF8DF873716C03AADB60F081327315C09
+magnet:?xt=urn:btih:F797E98DB632A5795FB8447A160247D24E2A3E75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482674   (1007460) от 09.07.2021
+###  Публикация: 1483218   (1007028) от 12.07.2021
 
-Chase Dobson - perpetual motion (2021) c.db.sn [FLAC 2.0|48/24|tracks|WEB-DL] <Dub Techno, Techno>
-
->>Electronic
->>Trance, House, Techno (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. inertia (07:11)
- 02. momentum (06:11)
- 03. repetition_motion (05:55)
- 04. ad infinitum (07:52)(   Читать дальше...   )Жанр: Dub Techno, TechnoПродолжительность: 00:34:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F25A8F7343CB697268669980A6DD519D832EF0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482699   (1007461) от 09.07.2021
-
-4K Stogram Pro for Mac 3.4.2 [Multi/Ru]
+Stats 2.6.0 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007461.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007028.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4K Stogram — это десктопный клиент Instagram для Mac, который позволяет скачивать и сохранять фотографии любого пользователя Instagram. Приложение, кроссплатформенно и имеет открытый исходный код. Просто введите имя пользователя или вставьте ссылку на фотографию и нажмите «Follow User». Попробуйте! Также вы можете использовать 4K Slideshow Maker для создания слайд-шоу.Тип издания: macOS SoftwareРелиз состоялся: 08.07.2021Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 12.07.2021Разработчик: Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D82CC8121E97D5A39CEE8A6B792A2CD2A269180
+magnet:?xt=urn:btih:B77AD85DDF8EED944CC85D418FC4FC9307C3457E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482671   (1007462) от 09.07.2021
+###  Публикация: 1483186   (1007029) от 12.07.2021
 
-Inkipak - Inkipak (2021) Mighty Force [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Breaks, Electro, Acid>
+EverWeb (Standalone) 3.5.0 [En]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007462.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007029.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eight Thirty Seven (08:34)
- 02. Fragment (06:48)
- 03. Unobtainable (06:00)
- 04. Live In Hope (05:39)(   Читать дальше...   )Жанр: IDM, Breaks, Electro, AcidПродолжительность: 01:16:16
+С EverWeb любой может создать профессиональный веб-сайт, просто перетаскивая его. Используйте один из встроенных шаблонов или начинайте с нуля и создавайте идеальный веб-сайт для вашего бизнеса или личного хобби. Добавьте текст, фотографии, видео, виджеты и многое другое, чтобы легко создать нужный веб-сайт.
+EverWeb даже создает мобильные сайты, которые отлично смотрятся (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.06.2021Разработчик: RAGE Software.Поддерживаемая ОС: OS X 10.13 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
 нет
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482695   (1007463) от 09.07.2021
-
-Neural Mix Pro 1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Neural Mix ™ Pro, музыкальный проигрыватель и редактор на базе искусственного интеллекта для продюсеров, ди-джеев и музыкантов. Вы можете создавать «петли» с точным ритмом, изменять темп и транспонировать тональность песни, при этом удаляя вокальные, ударные или гармонические партии в реальном времени. Усовершенствованный автономный экспорт позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.07.2021Разработчик: algoriddim GmbHПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE050BC5F35F4AF8E0437C040B16881E272714B4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482680   (1007464) от 09.07.2021
+###  Публикация: 1483179   (1007030) от 12.07.2021
 
-Eluvium - For Thousands Of Miles (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open (06:53)
- 02. Currents (07:08)
- 03. Movements (04:13)
- 04. Small Positives (05:28)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:247A035CDC591A7D47D8AD15805E7357240C42F3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482491   (1007465) от 09.07.2021
-
-Spearfish - The English Project (2017) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Happen To Me (feat. Jon English)
-02. Wheels Keep On Turning (feat. Bernie Torme & Pontus Snibb)
-03. Crossing Lines (feat. John Lawton)
-04. Six Ribbons (feat. Dan McCafferty)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:409F3E2C9C13EF12F37AB3570F9171689296CCBF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482614   (1007466) от 09.07.2021
-
-Artstudio Pro 3.24 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Artstudio Pro, самое мощное приложение для рисования и редактирования фотографий, доступное как для MacOS, так и для iOS. Преемник нашего знаменитого приложения ArtStudio был переработан, благодаря чему многие новые функции и улучшения в полной мере используют новейшие технологии Metal, iCloud Drive и оптимизированы для 64-битных многоядерных процессоров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.07.2021Разработчик: Lucky ClanПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77E7709352C3B1A443FF140397402C66DC0F53AF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482580   (1007467) от 09.07.2021
-
-Duplicate File Finder Pro 6.14.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007467.jpg" />
-</div>
-
-
-###  Подробнее
-
-Duplicate File Finder - утилита, которая находит дубликаты файлов на вашем Mac всего за 3 клика.
-Функция Drag & drop и столько папок, сколько вы хотите, затем нажмите кнопку SCAN. Через минуту приложение даст отчет со всеми дубликатами файлов по категориям: изображения, видео, музыки, архивы, документы и пр. Это очень легко, чтобы увидеть, сколько места занимает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.07.2021Разработчик: NektonyПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A22352DF67ABB4198537157ED1C1C0C56EFD1700
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482681   (1007468) от 09.07.2021
-
-DMG Canvas 3.0.15 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007468.jpg" />
-</div>
-
-
-###  Подробнее
-
-DMG Canvas создает образы дисков (.dmg). Процедура создания образа состоит из простого перетаскивания нужных файлов в окно приложения. В качестве фона можно использовать файл, созданный в графическом редакторе. Вы сразу видите результат, таким как он будет выглядеть в Finder. Для создания готового образа нажмите кнопку Build. Данная утилита также позволяет добавлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2021Разработчик: Araelium GroupПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86CAE2FF60E2BEF3AF4AC323A7C78565125B64DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482561   (1007469) от 09.07.2021
-
-Митрополит Иоанн (Снычёв) | Мир со злом недопустим (2017) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разумение своей нравственной немощи побуждает человека стремиться к исправлению. Когда это стремление к чистоте и святости овладевает целым народом, он становится носителем и хранителем идеи столь высокой, столь сильной, что это неизбежно сказывается на всём мироустройстве. Такова судьба русского народа. В этом положении народ и его государство неизбежно подвергаются (   Читать дальше...   )Жанр: Православие. История. ПолитикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:564AA1E80E2D425D76595AF63D1C375EA4891E08
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482641   (1007470) от 09.07.2021
-
-Colin Bass ( ex-Camel ) - At Wild End (2015) [FLAC|Lossless|tracks + .cue]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return To Earth
-02. We Are One
-03. Walking To Santiago
-04. Waiting For Someone(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:56:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A09EB8F85F02AB92717A34101F938A90B5A3B372
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482665   (1007471) от 09.07.2021
-
-VA - Genome (2021) Point Source Electronic Arts [FLAC 2.0|48/24|tracks|WEB-DL] <IDM, Glitch, Abstract, Experimental>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Testube - Suction Pore (03:43)
- 02. tokee - Happiness (04:29)
- 03. proswell - support local dsp (05:29)
- 04. Sytrjv - Hack Scribble (02:17)(   Читать дальше...   )Жанр: IDM, Glitch, Abstract, ExperimentalПродолжительность: 01:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA6A39640AE41ABE99F11CF495D87E9E08A70C97
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482539   (1007472) от 09.07.2021
-
-Tearfall - Wasted Days (2005) [FLAC|Lossless|image + .cue] <Gothic Metal, Goth Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wasted Days (03:25)
-02. Dance (05:18)
-03. 13 (04:20)
-04. Seduction (04:08)(   Читать дальше...   )Жанр: Gothic Metal, Goth RockПродолжительность: 00:21:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A97B70DF027338993B56AA7BB14EF535F2FA0EE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482553   (1007473) от 09.07.2021
-
-VA - Genome (2021) Point Source Electronic Arts [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Abstract, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Testube - Suction Pore (03:43)
- 02. tokee - Happiness (04:29)
- 03. proswell - support local dsp (05:29)
- 04. Sytrjv - Hack Scribble (02:17)(   Читать дальше...   )Жанр: IDM, Glitch, Abstract, ExperimentalПродолжительность: 01:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7163435D89E2533850D4862526CC7D41B676F0C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482440   (1007474) от 09.07.2021
-
-Emerald Rage - High King (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Woody Herman and The Third Herd - Early Autumn (1952 - 1954) 1987, Discovery Records [FLAC|Lossless|tracks + .cue] <Big Band, Mainstream Jazz>
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007474.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007030.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Into The Sky 05:30
-02. Wrathful Eyes 04:26
-03. High King 05:37
-04. Heart Of A Pagan 03:25(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:39:16
+01. Stompin' at the Savoy [2:32]
+02. Terrissita [3:30]
+03. Moten Swing [2:39]
+04. Blue Lou [2:57](   Читать дальше...   )Жанр: Big Band, Mainstream JazzПродолжительность: 00:57:29
 
 ## Скачать торент
 ```bash
 нет
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482481   (1007475) от 09.07.2021
-
-Thelemite - Thelemism (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unholy Steel
-02. In For The Kill
-03. Anatolia
-04. Up On The Cross(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD94A5A573E94C87D699844F57CF03452C67F52D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482672   (1007476) от 09.07.2021
+###  Публикация: 1483174   (1007031) от 12.07.2021
 
-Music Tag Editor 5.7.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Music Tag Editor - редактор музыкальных тегов поможет вам изменить информацию легко и эффективно, преобразовать текст тегов, добавить обложку и т.д.
-Приложение поддерживает следующие форматы: MP3, M4A (Apple lossless), MP4, FLAC, APE, AIFF, WAV , Ogg files.
-Поддержка: ID3V1, ID3V2.3,ID3V2.4, xiphComments, APE Tag, Ogg Vorbis, Ogg Speex, Ogg Flac.Тип издания: macOS SoftwareРелиз состоялся: 19.06.2021Разработчик: SwiftMediaПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский и Японский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1075CB536655504D761590E172ACA8B4C8C42513
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482577   (1007477) от 09.07.2021
-
-myTracks 4.0.9 [Multi]
+iCollections 6 v6.8.6 [Multi]
 
 >>
 >>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007477.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007031.jpg" />
 </div>
 
 
 ###  Подробнее
 
-myTracks — удобный геотаггинг фото
-myTracks — замечательное приложение, которое будет полезно многим фотографам и путешественникам. С ее помощью можно легко загрузить ваши маршруты с большинства известных GPS-девайсов или просто из GPX-файла, и добавить геотаги к отснятым во время путешествия фотографиям.
-Кроме этого myTracks показывает проделанные маршруты на картах (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.06.2021Разработчик: Dirk StichlingПоддерживаемая ОС: macOS 10.13.6+Язык интерфейса: Английский, Немецкий и др.
+Многие люди предпочитают держать их настольный компьютер Mac в чистоте, чтобы избавиться от каких-либо предметов, которые не являются абсолютно необходимыми. Тем не менее, если вы хотите иметь различные приложения, документы или папки в пределах досягаемости, но держать их организованными в то же время, вы можете попробовать iCollections.Тип издания: macOS SoftwareРелиз состоялся: 20.06.2021Разработчик: Naarak-StudioПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482667   (1007478) от 09.07.2021
+###  Публикация: 1483094   (1007032) от 12.07.2021
 
-Sync Folders Pro 4.3.1 [Multi/Ru]
+VA - Neon Mania: Synth Electronic DJ Mixtape (2021) [MP3|320 Kbps] <Synthwave, Synthetic>
 
->>Архив торрентов
->>Архив 4Apple
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007478.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007032.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sync Folders Pro - это простое в использовании приложение, с возможностью тонкой настройки параметров синхронизации для самых взыскательных профессионалов.
-Приложение идеально подходит для резервного копирования на внешние носители информации, включая: USB, карты памяти, диски на удаленных компьютерах в вашей сети, папки на Cloud сервисах (Dropbox, и т.д.) При каждом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.07.2021Разработчик: GreenWorldSoftПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Русский, Английский, Немецкий и др.
+001. Sandrow M - Disco Schlamboni
+002. Rvds - Moon Operator
+003. Iron Curtis - Against My Window
+004. Intelligenza Artigianale - User Space(   Читать дальше...   )Жанр: Synthwave, SyntheticПродолжительность: 11:17:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52C17CAE0D93ABAAFAA43E2C015A90537CBB5FF9
+magnet:?xt=urn:btih:5B44A95C77DB708BBC8024E6E7F1A54D5092343D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482396   (1007479) от 09.07.2021
+###  Публикация: 1483143   (1007033) от 12.07.2021
 
-Aphonic Threnody - The All Consuming Void (2021) [FLAC|Lossless|image + .cue] <Funeral Doom Metal, Death Metal>
+Scott Robinson - Tenormore (2019) [FLAC|Lossless|tracks + .cue] <Swing, Bop, Jazz-Funk>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007479.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007033.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Restless
-02. Chapel Of The Dead
-03. Until I Am Empty
-04. Chamber Of Parasites(   Читать дальше...   )Жанр: Funeral Doom Metal, Death MetalПродолжительность: 01:04:42
+01. And I Love Her (Lennon-McCartney) - 2:53
+02. Tenor Eleven (Robinson) - 5:49
+03. Put On a Happy Face (Adams-Strouse) - 7:38
+04. Morning Star (Robinson) - 6:08(   Читать дальше...   )Жанр: Swing, Bop, Jazz-FunkПродолжительность: 01:07:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1CA40186332BB661936AC9383ED4F36F79CAEA25
+magnet:?xt=urn:btih:DB49B203A6EC50012E5D2A65D6EBD6EEE0C4BB8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482557   (1007480) от 09.07.2021
+###  Публикация: 1483296   (1007034) от 12.07.2021
 
-Find Any File (FAF) 2.3.1 b1 [Multi]
+Иеромонах Ираклий | Удобнейший путь ко спасению в монашестве (1991) [PDF, DJVU]
 
->>Архив торрентов
->>Архив 4Apple
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007480.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007034.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Find Any File - утилита для быстрого поиска любого файла на вашем Mac
-Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.07.2021Разработчик: Thomas TempelmannПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и др.
+Многие, как известно, поступающие в обитель ради спасения, будучи предоставлены самим себе, с великим трудом и опасностью проходят спасительный путь, нередко и сбиваются с него. Поэтому небезполезно было бы каждому вновь принятому в число братства вручать такую книжицу, благодаря которой он мог бы, как познакомиться с духом монашества вообще, так и, в частности, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E1C31AC7D812A5FCCF143AFE419DD2B0C50C593
+нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482607   (1007481) от 09.07.2021
+###  Публикация: 1483176   (1007035) от 12.07.2021
 
-Pastore - Phoenix Rising (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
+Woody Herman - The Woody Herman Shows 1944 - 1946 (2003) Jazz Unlimited [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007481.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007035.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Phoenix Rising
-02. Damn Proud
-03. Symphony Of Fear
-04. March Of War(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:51
+01. Blue Flame Theme/Red Top [3:42]
+02. Can't Help Lovin' That Man [3:48]
+03. Is You Is or Is You Ain't My Baby? [3:11]
+04. One, Two, Three, Four, Jump [2:34](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:13:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A12E19A5B14200BD7ED4421D15631F04E4AC5B6A
+нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476577   (1007482) от 09.07.2021
+###  Публикация: 1483173   (1007036) от 12.07.2021
 
-Yello - Yello 40 Years (2021) [AAC|~337 Kbps] <Synthpop>
+Textual 7 v7.2.1 [En]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>
+>>
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007482.jpg" />
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007036.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.01. Bimbo (3:35)
-1.02. Pinball Cha Cha (3:24)
-1.03. The Evening’s Young (3:08)
-1.04. Bananas to the Beat (2:58)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 04:46:38
+Textual IRC Client - простой и функциональный IRC-клиент, написанный специально для Mac OS X с поддержкой сценариев, будет идеальным решением как для начинающих, так и опытных пользователей. Textual включает светлую и темную тему пользовательского интерфейса для того, чтобы соответствовать всем вкусам.
+IRC (англ. Internet Relay Chat) — протокол прикладного уровня (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.07.2021Разработчик: Codeux Software, LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F929E9BABB08FCF97211E826DA84B1758685DA9C
+нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483183   (1007037) от 12.07.2021
+
+GrandTotal 7 v7.1.0.9 [Multi]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007037.jpg" />
+</div>
+
+
+###  Подробнее
+
+GrandTotal представляет собой приложение для создания счет-фактур и оценки, основанные на ваших собственных шаблонах.
+Встроенный редактор шаблонов позволяет настроить макет, чтобы соответствовать корпоративному дизайну Вашей компании.
+GrandTotal прекрасно работает в сочетании с TimeLog.Тип издания: macOS SoftwareРелиз состоялся: 11.07.2021Разработчик: Media AtelierПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482924   (1007038) от 11.07.2021
+
+Чёрная Вдова / Black Widow (2021) WEB-DL [H.264/1080p-LQ] [MVO]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007038.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наташе Романофф предстоит лицом к лицу встретиться со своим прошлым. Чёрной Вдове придется вспомнить о том, что было в её жизни задолго до присоединения к команде Мстителей, и узнать об опасном заговоре, в который оказываются втянуты её старые знакомые — Елена, Алексей, также известный как Красный Страж, и МелинаПроизводство: США, Marvel Studios Inc.Жанр: Фантастика, Боевик, ПриключенияРежиссер: Кейт ШортландАктеры: Скарлетт Йоханссон, Флоренс Пью, Дэвид Харбор, О. Т. Фагбенли, Ольга Куриленко, Уильям Хёрт, Рэй Уинстон, Рэйчел Вайс, Эвер Андерсон, Виолет МакгроуПеревод: Многоголосый закадровый (HDRezka Studio)Субтитры: Русские (Forced, Full), Английские (Full, SDH), мультиязычныеПродолжительность: 02:13:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476210   (1007039) от 11.07.2021
+
+Mass Effect 2 (2021) [Ru/En] (2.0.0.48602/dlc) Repack Other s [Legendary Edition]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один человек — это все, что стоит между человечеством и величайшей угрозой всему живому. Вспомните легенду: капитан Шепард возвращается в новом издании знаменитой трилогии Mass Effect — Mass Effect™ издание Legendary. Содержит основной одиночный контент и более 40 дополнений из Mass Effect, Mass Effect 2 и Mass Effect 3, а также бонусное оружие, броню и наборы. Весь (   Читать дальше...   )Тип издания: RepackРазработчик: BioWare™Жанр: Adventure (Space), RPG (Action), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482883   (1007040) от 11.07.2021
+
+Resident Evil Village (2021) [Ru/Multi] (6587890/dlc) License EMPRESS [Deluxe Edition]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007040.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спустя несколько лет после кошмарных событий Resident Evil 7 biohazard, заслужившей признание критиков, начинается другая история. Итан Уинтерс и его жена Миа обосновались на новом месте, вдали от ужасов прошлого. Но не успели супруги насладиться безмятежной жизнью, как их вновь постигла трагедия.Тип издания: LicenseРазработчик: CAPCOM Co., Ltd.Жанр: Survival Horror, ActionЯзык озвучки: Русский, Английский, Французский, Итальянский и другиеЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394912   (1007041) от 11.07.2021
+
+GTA / Grand Theft Auto: Malinovka RP (2019) [Ru] (23.06.21) License (обновляемая)
+
+>>След.
+>>Online (MMO)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Малиновка – масштабная Roleplay-игра про Россию на движке GTA: San Andreas. В игре есть множество работ, интересных систем и развлечений. Вы можете купить собственный дом, бизнес, автомобиль или квартиру. Поиграв некоторое время и привыкнув к игре, Вы сможете вступить в одну из организаций: полиция, армия, гопота, бандиты и другие. Участвовать в спец. операциях на (   Читать дальше...   )Тип издания: LicenseРазработчик: Malinovka TeamЖанр: MMO, RPG, Action, Shooter, AdventureЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91AB5BA7F4F37EB9155BFF7E312C79EE5F68803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482958   (1007042) от 11.07.2021
+
+Приливы / Tides (The Colony) (2021) WEB-DLRip [MVO]
+
+>>След.
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007042.jpg" />
+</div>
+
+
+###  Подробнее
+
+После глобальной катастрофы на Земле выжившие люди переселяются на космическую колонию в системе Кеплера. Годы спустя они начинают отправлять на Землю астронавтов, чтобы определить, появились ли на планете условия для жизни. Прибыв во вторую из таких экспедиций астронавт Луиза Блейк выясняет, что несмотря на постоянные приливы уничтожающие и без того скудную пищу, (   Читать дальше...   )Производство: Германия / Berghaus, Wöbke Filmproduktion, Vega FilmConstantin FilmЖанр: Фантастика, триллерРежиссер: Тим ФельбаумАктеры: Нора Арнезедер, Сара-Софи Бусснина, Иэн Глен, Сопе Дирису, Йоэль Басман, Себастьян Роше, Белла Бадинг, Hong Berghof, Luna Mwezi, Николя ПероПеревод: Любительский многоголосый (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:356A055561D8E26522E716B67C0B31B3F6F8A443
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482836   (1007043) от 11.07.2021
+
+Уцелевшие (2020) SATRip (сезон 1, серии 1-8 из 8)
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007043.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Девяностые» были давно. Но эхо того непростого, тёмного времени до сих пор звучит и не даёт спать спокойно главному герою истории - майору Кириллу Решетову, которому коллеги сообщают страшную новость: жестоко убита его бывшая возлюбленная - Наталья, которая тоже работала в полиции. Шокированный известием Решетов срочно выезжает в Ярославль, где жила Наташа, и прямо (   Читать дальше...   )Производство: Россия / «Киностудия КИТ», Team FilmsЖанр: Детектив, триллерРежиссер: Юрий ГольдинАктеры: Дмитрий Лавров, Мария Ахметзянова, Владимир Стержаков, Анатолий Горячев, Константин Силаков, Руслан Корнеков, Владислав Миллер, Ирина Туманцева, Сергей Друзьяк, Олег ТактаровПродолжительность: ~00:51:00 серия
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482764   (1007044) от 11.07.2021
+
+Поселенцы / Settlers (2021) WEBRip [H.264/1080p-LQ] [AVO]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семья переселенцев с Земли пытается выжить на новой планете. Их дом подвергается постоянным нападкам со стороны чужаков. После очередного рейда, вместо главы семейства, возвращается бывший собственник дома.Производство: Великобритания, Brittle-Star PicturesFilm, ConstellationJericho, Motion PicturesЖанр: Фантастика, драмаРежиссер: Уайатт РокфеллерАктеры: София Бутелла, Джонни Ли Миллер, Нелл Тайгер Фри, Бруклин Принс, Исмаэль Круз, Натали Уолш, Мэттью Ван ЛеевеПеревод: Авторский (BadBajo)Субтитры: Английские (отключаемые)Продолжительность: 01:43:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482973   (1007045) от 11.07.2021
+
+Пила: Спираль / Spiral: From the Book of Saw (2021) BDRip [MVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Импульсивный детектив полиции Нью-Йорка Зик Бэнкс всю жизнь пытается вырваться из тени своего отца, прославленного ветерана правоохранительных органов. Однажды Бэнксу и его новому напарнику поручают расследование серии жестоких убийств, которые странным образом напоминают преступления прошлых лет. Так они оказываются в эпицентре зловещей игры, и цена проигрыша в (   Читать дальше...   )Производство: Канада, США / Canadian Film or Video Production Tax Credit (CPTC), Dahlstar, Lionsgate, Serendipity Productions, Twisted PicturesЖанр: Детектив, триллер, ужасыРежиссер: Даррен Линн БоусманАктеры: Крис Рок, Макс Мингелла, Марисоль Николс, Сэмюэл Л. Джексон, Зои Палмер, Дженелл Уильямс, Ричард Зэппери, Дэн Петрониевич, Патрик МакМанус, Али ДжонсонПеревод: Профессиональный многоголосый (HDRezka Studio)Язык озвучки: РусскийСубтитры: Русские (forced, full) - отдельно, Украинские (forced, full) - отдельноПродолжительность: 01:33:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AE8D9AF9432E8A14B611969016C4043F3C3239D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482715   (1007046) от 11.07.2021
+
+Приливы / Tides (The Colony) (2021) WEB-DL [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1007046.jpg" />
+</div>
+
+
+###  Подробнее
+
+После глобальной катастрофы на Земле выжившие люди переселяются на космическую колонию в системе Кеплера. Годы спустя они начинают отправлять на Землю астронавтов, чтобы определить, появились ли на планете условия для жизни. Прибыв во вторую из таких экспедиций астронавт Луиза Блейк выясняет, что несмотря на постоянные приливы уничтожающие и без того скудную пищу, (   Читать дальше...   )Производство: Германия / Berghaus, Wöbke Filmproduktion, Vega FilmConstantin FilmЖанр: Фантастика, триллерРежиссер: Тим ФельбаумАктеры: Нора Арнезедер, Сара-Софи Бусснина, Иэн Глен, Сопе Дирису, Йоэль Басман, Себастьян Роше, Белла Бадинг, Hong Berghof, Luna Mwezi, Николя ПероПеревод: Многоголосый любительский (AlphaProject)Субтитры: АнглийскиеПродолжительность: 01:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD0A8A6F160E19B14D81F6CF35015B487900723B
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

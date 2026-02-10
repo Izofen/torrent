@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:66EE885510A8D4C59D4F0F47F06BF1C87E3D75F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Weawow - это максимально подробный прогноз пог�
 ```bash
 magnet:?xt=urn:btih:85838564AC9B2CA701243549063844173BE76432
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ WiFi Analyzer v4.6 Mod by derrin [Ru/Multi]
 magnet:?xt=urn:btih:31B5DD2D028E9274FEBB4288BC97A92596EF3FE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:31B5DD2D028E9274FEBB4288BC97A92596EF3FE7
 ```bash
 magnet:?xt=urn:btih:31275C7D1B43549385FEB5996790FB824D4962E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ AudioBaby - Детские аудиосказки, музыка, диафиль�
 magnet:?xt=urn:btih:5009DA1430592F266E5DAFCE04F466B9FA4FDB48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:5009DA1430592F266E5DAFCE04F466B9FA4FDB48
 ```bash
 magnet:?xt=urn:btih:AE9AF4A7D2442287CD8EC267B8B577C2B93A11CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Zaycev.fm - приложение онлайн радио, которое отк�
 magnet:?xt=urn:btih:9214D83652E2D1B46A4C5408CE7B9AC9BC408EF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ ImageMeter предоставляет инструменты, которые п�
 ```bash
 magnet:?xt=urn:btih:57830580CD8A92396C22B38C8959F7BC0C5D088B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Head Soccer LaLiga 2021 - Best Soccer Games - крутой спортивный 
 magnet:?xt=urn:btih:250FAFEA7E4862F192D9EB5094C2111713095A17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Ghosts of War: WW2 Shooting games v0.2.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:F58C3C22B6F6E2C1E09F352FF7D0223919C19008
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Space Marshals – веселая и интересная  игра в жанр�
 magnet:?xt=urn:btih:E2C7DA726978B01F73B7EFCFA9D565CDCD4D6B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:E2C7DA726978B01F73B7EFCFA9D565CDCD4D6B6B
 ```bash
 magnet:?xt=urn:btih:26C600D3591F78BCABB1E6021E15572334D76BDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Universal Copy — это самый быстрый способ копиров�
 magnet:?xt=urn:btih:DEF2F8312E78679EB7E6D5E30E77A879AD27A853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ DNS Changer Android — это первый уровень интернет-бе
 ```bash
 magnet:?xt=urn:btih:820E0A740CC2D5AE2378965FCEB5CDF4BD231D51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Ultimate Background Eraser v2.2 [Ru/Multi]
 magnet:?xt=urn:btih:8F642AE772A85F3E58C7FA64AF599B19B65F5C91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:8F642AE772A85F3E58C7FA64AF599B19B65F5C91
 ```bash
 magnet:?xt=urn:btih:55A865B8BC1CFA7821748D54D838A67E3CFBF129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:55A865B8BC1CFA7821748D54D838A67E3CFBF129
 magnet:?xt=urn:btih:36761B858F4539E6194CB74FD8E9DDF86E5E5832
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ HandWriter v1.4.7 [Ru/Multi] - Конвертер текста в рукопис
 ```bash
 magnet:?xt=urn:btih:932C9150A9907396E7E99EB32D342325B3B4479B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Wolf v2.0.2 [Ru]
 magnet:?xt=urn:btih:ECF2929CB0F922BC509D25643F667C6CEF50216F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ YouCut - лучшее приложение для редактирования �
 ```bash
 magnet:?xt=urn:btih:61E675B93556EE99C9D1C175D5CB8E3303623229
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Photo Sherlock v1.107 Mod by Alex.Strannik  [Ru/Multi]
 magnet:?xt=urn:btih:A27752F7CE0051946A8E1B845C7A768508930F4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ magnet:?xt=urn:btih:A27752F7CE0051946A8E1B845C7A768508930F4B
 ```bash
 magnet:?xt=urn:btih:B2162EBB3EF1894E30BDE6D5621A0DA0E1CC5A51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ ABBYY FineReader PDF – ваш умный карманный сканер с и
 magnet:?xt=urn:btih:99E018E705138C5870E8CE8F19774973D5A99842
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ WiFi Analyzer v4.2 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:67116464F4C59BA0000A88BA373AD14E576C2ED4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ The Clock: Alarm Clock & Timer 8.4.8 [Ru]
 magnet:?xt=urn:btih:65F3C748AEDE1CCE57D35EA7FFF1F5EED48A0A00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Dictionary 15.2 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4874B2D902C9FE3C79AF0ABE8AFD9DDEFA595F5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

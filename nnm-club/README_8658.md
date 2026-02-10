@@ -22,6 +22,8 @@ Chronos - Colourful (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Psychill, Psybreaks
 magnet:?xt=urn:btih:52E21206C79061CA4B6EFF707A31FD8016CF7FB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:52E21206C79061CA4B6EFF707A31FD8016CF7FB1
 magnet:?xt=urn:btih:501151950D4BBA1DA7F98DCD0CEFF5C1C306C23D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Wondershare Filmora 9 v9.2.11 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:99018F6C7D0FE7E02B113F6A6B317D083C9B1A52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ VA - 35 Best Flat ABS Hits 2019 (35 Tracks For Fitness & Workout) (2019) [MP3|32
 magnet:?xt=urn:btih:21F952DB172CBA9D13E1A37071BE167EB91B99FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ VA - Lovely Evening Lounge (Chillout Your Mind) (2019) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:E501A77B51A8589E659A6C4081014CCB1FE0DE21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ ON1 Photo RAW 2019 — комплект мощных графических пр
 magnet:?xt=urn:btih:424D475B3BAB2E8D60FA9A538B4FBB13E9917A74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:424D475B3BAB2E8D60FA9A538B4FBB13E9917A74
 ```bash
 magnet:?xt=urn:btih:63331E2DA139CA767F2356D5BB868F85B147D3C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ ScreenFlow - создаем свои скринкасты
 magnet:?xt=urn:btih:ACACB29F3528A55B0BAEF779A90B901427093FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:ACACB29F3528A55B0BAEF779A90B901427093FCB
 ```bash
 magnet:?xt=urn:btih:10474371C5EF97F205FAB93166DBDB08DABC945F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ VA - Not Your Body (2019) [FLAC|Lossless|WEB-DL|tracks] <Rhythmic Noise, Industr
 magnet:?xt=urn:btih:AFA13B5D7AB74140E7DF95139CC5F1AC5AD5E5C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:AFA13B5D7AB74140E7DF95139CC5F1AC5AD5E5C1
 ```bash
 magnet:?xt=urn:btih:A5A991EF649C5111073060B5F96B706929A0D5E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:A5A991EF649C5111073060B5F96B706929A0D5E1
 ```bash
 magnet:?xt=urn:btih:496BAD0D3118F313B5687D3467CC612587BBF064
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ Bob Sinclar - III (2006) [FLAC|Lossless|tracks + .cue] <House, Disco>
 magnet:?xt=urn:btih:BF0BE08394D04D8C273B36585BCBEA74D6DD4340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:BF0BE08394D04D8C273B36585BCBEA74D6DD4340
 ```bash
 magnet:?xt=urn:btih:47C71575B003B0E2238F4BDB094DE8DED1AFD012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:47C71575B003B0E2238F4BDB094DE8DED1AFD012
 magnet:?xt=urn:btih:A862822D701308A90B6AEBBD7F6983F1CB4AC15C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ Notability – мощное средство для ведение замето�
 ```bash
 magnet:?xt=urn:btih:AC8C31C500DE4877B103C17F3B321C598E6EFFE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ Harlem Voices - Singing (1996) [FLAC|Lossless|image + .cue] <Funk / Soul, Gospel
 magnet:?xt=urn:btih:08311AB0751228D4377C62A21AE4FD3431FF1353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ magnet:?xt=urn:btih:08311AB0751228D4377C62A21AE4FD3431FF1353
 magnet:?xt=urn:btih:80546F323A001A1BE080D4FE6CA7C3BFD6A305BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:80546F323A001A1BE080D4FE6CA7C3BFD6A305BE
 ```bash
 magnet:?xt=urn:btih:B6FF015D7D481D9B695B0AC07DC2802C0A4A3544
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ VA - Shallow Sleep: Chill Electronic (2019) [MP3|320 Kbps] <Chillout, Lounge, Do
 magnet:?xt=urn:btih:4F1C4B21AD9233E64621B3E2D269435CDEE9AB8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ magnet:?xt=urn:btih:4F1C4B21AD9233E64621B3E2D269435CDEE9AB8A
 ```bash
 magnet:?xt=urn:btih:E5447A81511AB5C232BE7E7CD50EDBC9551296B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +600,8 @@ VA - The Taste Of Gold (2019) [MP3|320 Kbps] <Techno, Tech House>
 magnet:?xt=urn:btih:1238EEE677112928ED473B2E20AD4E8982B89941
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:1238EEE677112928ED473B2E20AD4E8982B89941
 ```bash
 magnet:?xt=urn:btih:4ADA9DD21AD7A44007D787C0103A517DC06EB14C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ VA - Green Rave Bass (2019) [MP3|320 Kbps] <Drum And Bass, Jungle>
 magnet:?xt=urn:btih:C5B0E78BB27A814F90A626252C12B871B886F477
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ Dj De Key - Anniversary Edit (2019) [FLAC|Lossless|image + .cue] <Progressive Ho
 magnet:?xt=urn:btih:E28F1F504B2774A3915388B35BDBC4F3C0104F87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ magnet:?xt=urn:btih:E28F1F504B2774A3915388B35BDBC4F3C0104F87
 ```bash
 magnet:?xt=urn:btih:518A563529263A46DB4F9465C5FDFC632698AF99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

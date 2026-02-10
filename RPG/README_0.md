@@ -19,6 +19,8 @@ Star Valor - космическая игра в жанре экшен-РПГ, г
 magnet:?xt=urn:btih:15CD3C7B898FA0DDD6546BAB71F695908943F176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Hell Clock (2025) [Ru/Multi] (1.0.3 HF4/dlc) Repack Let'sРlay [Supporter Editio
 ```bash
 magnet:?xt=urn:btih:F2B757E904F21326EA119A02381ACEE88D6A75E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Kingdom Come: Deliverance II - захватывающий сюжетный ро�
 magnet:?xt=urn:btih:F2608A5FCC436A71458E5F8F3D6C45E0209BF4DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Fate: Reawakened - это сборник из четырёх экшен-РПГ, 
 ```bash
 magnet:?xt=urn:btih:FD0E8CDBD8DB8165345DF9706CACA014A1718FCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Chip ‘n Clawz vs. The Brainioids (2025) [Ru/Multi] (1.0.22358) Repack FitGirl
 magnet:?xt=urn:btih:AFE764BD8A9FC5297BE529358DBC6EE993D5605C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ For The King II (2023) [Ru/Multi] (1.8.8/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:7D6C44098597FE641EAE243051391EFD9AEFD82D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Last Epoch – приключенческая экшен-игра с глубо�
 magnet:?xt=urn:btih:7AA116C01DEC16F0183EC7C5C381C8DFC4AD28A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Rogue Waters - это тактическая пошаговая игра в ду
 ```bash
 magnet:?xt=urn:btih:551600A88C994AEF24CCF5F3998E981BDABACA41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Kingdom Come: Deliverance II - захватывающий сюжетный ро�
 magnet:?xt=urn:btih:AFBB22740A340FE9AE8635F463D520F2AF467D96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Kingdom Come: Deliverance II - захватывающий сюжетный ро�
 ```bash
 magnet:?xt=urn:btih:B509D8F7217D1847378E1BBD735F5701612FD3D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Medieval Dynasty (2021) [Ru/Multi] (2.4.1.1/dlc) Repack Let'sРlay [Ultimate Edi
 magnet:?xt=urn:btih:0D17A19B3E4248630C23B2BCE5758F92D0AA89A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (10.2.0.1/dlc) Repack Let'sР
 ```bash
 magnet:?xt=urn:btih:71495358EF10DA3B44F2BF35BD7F8501B2A93501
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Lost Soul Aside™ (2025) [Ru/Multi] (1.008/dlc) Repack Let'sРlay [Deluxe Editi
 magnet:?xt=urn:btih:778671C531D28CE311BDC39082CA997767F41240
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Darkest Dungeon 2 - сиквел готической ролевой игры, �
 ```bash
 magnet:?xt=urn:btih:E0AB5A37E8B3E9A31C1F8F8FAB8A5EE923ED1BDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Cat Quest - замуррчательная РПГ, чье действие пр�
 magnet:?xt=urn:btih:A9350F22F508A0177B6ABBF2FFA05120243ECD95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Sea of Stars - динамичное ролевое приключение, ра�
 ```bash
 magnet:?xt=urn:btih:645D5042CDBF4E57FFEF8814DD7635FA08A3073B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Cat Quest II – это двухмерный ролевой экшн с откр
 magnet:?xt=urn:btih:1E691E6E6E0DA92DCD83672C07A51256769EE0B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Nordic Ashes: Survivors of Ragnarok – динамическое приключ�
 ```bash
 magnet:?xt=urn:btih:5BCABB1075CDAF917FC06FDCED61B280F8D9BF05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Cyberpunk 2077 приключенческая ролевая игра, дейс�
 magnet:?xt=urn:btih:8CFFD6986D6C1397BC4A433A54414E3025B987D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Warhammer 40,000: Rogue Trader – это изометрическая роле�
 ```bash
 magnet:?xt=urn:btih:19B9B41FF9FA092E1A886DD991FB8C09D38588EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Lost Eidolons – пошаговая тактическая ролевая иг�
 magnet:?xt=urn:btih:57B701F7644FE0A402B92DDAF9FC207798E43EDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0a) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:85DD219F011B1F7D3BFD090D6D4F98364BA1F0B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ KeeperRL - симулятор с элементами рогалика, в ко�
 magnet:?xt=urn:btih:C3F264BB42D8711756786CD560D95D9BB3522194
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Elder Scrolls IV: Oblivion Remastered представляет собой п
 ```bash
 magnet:?xt=urn:btih:F8ACBA3F9827DA4F7A442187753BF6C1F54A8AFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (2.0.4) Repack Let'sРlay
 magnet:?xt=urn:btih:2B791ABC3ED7F9E9CBDB11B3D3D54370A33B4412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Heads Will Roll: Reforged позволит игроку примерить на 
 ```bash
 magnet:?xt=urn:btih:043E1ED729D9CF12DD85694FE30AD4EF33146BAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

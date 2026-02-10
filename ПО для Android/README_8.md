@@ -19,6 +19,8 @@ Rock Identifier - Stone ID v2.3.55 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:D9D58768480ADEC5F2F1842B4C537BFCFBCE9976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:D9D58768480ADEC5F2F1842B4C537BFCFBCE9976
 magnet:?xt=urn:btih:14D457151FF795C8BBFD8921166985FA8CF9DE36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:14D457151FF795C8BBFD8921166985FA8CF9DE36
 magnet:?xt=urn:btih:BE96CE3679EEA4B60FAB6886F7792DF3A83A6B2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ AR Plan 3D – инновационное приложение, использу
 ```bash
 magnet:?xt=urn:btih:AA24455DDEC1CDB6C97B036978630503013F19F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Gmail, Yahoo, Hotmail, FastMail, Apple, GMX, Outlook, AOL или Exchange - Aqua
 magnet:?xt=urn:btih:242ADBAD86ACF5C9E839DE8B8C8B7F26C0A9DDDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ File Manager Plus / Файловый менеджер + v3.5.9 Mod by Balatan [R
 ```bash
 magnet:?xt=urn:btih:F25E6A200929E0EE61C301EB06281011336418A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Face Swap - AI Photo Editor v1.4.1 Mod by MixRoot [Multi]
 magnet:?xt=urn:btih:7C8BE85B12068F7309921B721B3B4B84DAE06861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Adguard Pro 4.10.35 Mod by FreeApkexe [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FD9BA10903447E7254DFC31C0685D09EC1342632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Fitness Online - фитнес приложение, с помощью котор
 magnet:?xt=urn:btih:9F6881C43D4583C2BF1166E262B4E2198E33E01B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Motivation - Каждый день v4.79.2 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:97D22D022A3930BD7360B7D4AB8A1CA38B32A5E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:97D22D022A3930BD7360B7D4AB8A1CA38B32A5E9
 magnet:?xt=urn:btih:2DD91C27BB1D15D3CD7EA53D21B164309F153643
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ TestMaker / Создатель запоминания v10.5.1 Mod by PieMods [Ru
 ```bash
 magnet:?xt=urn:btih:CA1519D83B8C34FAFF8936A15EA054D940059CFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Squid - рукописные заметки v4.4.0 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:2ED73128326FC1331ED310BC2DC56FECBA838A07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:2ED73128326FC1331ED310BC2DC56FECBA838A07
 ```bash
 magnet:?xt=urn:btih:B288E8CFAC5E892192976DEF993124333E33288C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ TickTick — это ваш личный мощный инструмент про
 magnet:?xt=urn:btih:2D28F1B5FA3D728891FEA32D089F5C12D94AB444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Blaze - Виртуальный Камин 4K v1.8.0 Mod by SurvivalHorror [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:979D59AF02D4422EE5C241C5FCC60103C0EBE220
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ EPIK - весьма и весьма функциональный фоторед�
 magnet:?xt=urn:btih:56EEABE87D371698E45F8090E5ED1FDB0D635B41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:C9F14518B9E8A35AF5894A21CE0DB3DEFEF41941
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ CCleaner - один из самых известных и популярных �
 magnet:?xt=urn:btih:A41712FC5AC73E9537BE9891B59133B63F2A4AF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ WeNote: заметки блокнот планер v6.32 Mod by Balatan [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:F4A594A1435D5CBAB5EAE74454981B411EAD3991
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ GIF Maker - GIF Editor - видеоредактор, что создан для 
 magnet:?xt=urn:btih:A488F88B936CC6ACCDB95A4F39089B5A87168B49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ MyLifeOrganized (MLO) — это самое гибкое и мощное при�
 ```bash
 magnet:?xt=urn:btih:305266E2ADF857B44C96FD654899F0492C4D6899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Stellarium Plus - Star Map — это приложение-планетарий,
 magnet:?xt=urn:btih:8B4B82960E99F20CDE838A6E8B3C010F4BB0E280
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Translator / Мгновенный перевод речи v11.3.0 Mod by Alex.St
 ```bash
 magnet:?xt=urn:btih:1FABCF2E69C04DE1750FAC7B3A1C98416668F346
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:1FABCF2E69C04DE1750FAC7B3A1C98416668F346
 magnet:?xt=urn:btih:083A3B86815E774EBDC608A904517277C6925C13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ NekoBox for Android 1.3.9 [Ru] (Обновляемая)
 ```bash
 magnet:?xt=urn:btih:F54FF15FAF53C6709BD9AD92F2DC0C0082508EF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

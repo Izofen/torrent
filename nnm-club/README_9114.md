@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:516F89DEFCF66A09D1354AB501DC729D509DB082
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ George Cables - Cables Vision (1979) 1992, Original Jazz Classics[FLAC|Lossless|
 magnet:?xt=urn:btih:AC43A988885532F920F1C68206AC1D519E5B0374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:AC43A988885532F920F1C68206AC1D519E5B0374
 magnet:?xt=urn:btih:BB6CEAE1F13896D55901705A6B4E76D5FD1775FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:BB6CEAE1F13896D55901705A6B4E76D5FD1775FF
 ```bash
 magnet:?xt=urn:btih:635DB4F317744624B6715F0D11EC6ACA1D22AB52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Cloud Ferrer - One Houndred Twenty Nine (2011) [MP3|320 kbps]<Tech House>
 magnet:?xt=urn:btih:6E224BEC6F07ED4B5D20602291B5BE1771E516FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - ЕвроХит Топ 40 Europa Plus 23.11.2018 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:E0759E5FEEA5479B1210000CACFD30F8B02849DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:E0759E5FEEA5479B1210000CACFD30F8B02849DF
 magnet:?xt=urn:btih:A20D99BC85276DBA0008D57146B1428D0E41EBCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ magnet:?xt=urn:btih:A20D99BC85276DBA0008D57146B1428D0E41EBCE
 ```bash
 magnet:?xt=urn:btih:A6DDBD4A8B53A3F7D78344185B0E00944E5D8349
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +248,8 @@ Blu-ray Player for Mac 1.1.6 [En]
 ```bash
 magnet:?xt=urn:btih:F99B3C53FC8D3819F1A45B47907B7423DC53D805
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +279,8 @@ Dymna Lotva - была основана 8 октября 2015 года, когд
 magnet:?xt=urn:btih:39C0BD903638A00D28CB7C0A3DB60A59F6D0B8AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ VA - Звёздные фабриканты: Лучшее (2018) 2CD [MP3|320 Kbp
 magnet:?xt=urn:btih:11E8BE899E255CE6DE5EA19A34866F3AA59C75A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +333,8 @@ magnet:?xt=urn:btih:11E8BE899E255CE6DE5EA19A34866F3AA59C75A2
 ```bash
 magnet:?xt=urn:btih:77B7D68FCF3F7539DEF9164AEDD893EEA0320D01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +363,8 @@ VA - Italodisco Remix And Reloaded (2018) [MP3|320 Kbps] <Italo Disco, Reloaded>
 magnet:?xt=urn:btih:D9F418D686ECE8231F3FC7E7C3E124938981D0E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +392,8 @@ In The Woods... - Cease The Day (2018) [MP3|320 Kbps] <Doom Metal, Atmospheric B
 magnet:?xt=urn:btih:75202CC3C05BDE4808E0961FFC470929C414A4BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +419,8 @@ magnet:?xt=urn:btih:75202CC3C05BDE4808E0961FFC470929C414A4BD
 ```bash
 magnet:?xt=urn:btih:CC40004C601989379A52ADB57C251E5EDCE787BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +449,8 @@ VA - Cosmic Dreaming Lounge (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Chill
 magnet:?xt=urn:btih:61EB6165559C08D6007CE7081C42F1D75F5FB146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +478,8 @@ Time2dance: Best of 90s - 00s, Vol.1:
 magnet:?xt=urn:btih:E4FEA094D4B20199E98692A10A68CC5903F78F17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +503,8 @@ Canary Mail может похвастаться большими возможн�
 ```bash
 magnet:?xt=urn:btih:C476798C7566B768ECAC9A9AEF40D393DB48B885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +533,8 @@ Pagan’s Mind — метал-группа из Норвегии, исполня
 magnet:?xt=urn:btih:F49548D347A4216ACA7D4EEADED89EDBCBF92DCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +560,8 @@ magnet:?xt=urn:btih:F49548D347A4216ACA7D4EEADED89EDBCBF92DCA
 magnet:?xt=urn:btih:5FD36BC76288819F0C7FB03757AD11CA5E89B0D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +585,8 @@ Vivaldi 2.1.1337.51 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:2BB7894BFAADB027F4E3282288885CB7599CA7DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +613,8 @@ magnet:?xt=urn:btih:2BB7894BFAADB027F4E3282288885CB7599CA7DD
 magnet:?xt=urn:btih:C2B46BEC65F44376DF243506642019624E7AD84E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +639,8 @@ iStat Menus 6 — лучшее приложение для контроля ра
 ```bash
 magnet:?xt=urn:btih:1D449512C12B00E69998BF3218AE336CCECC1975
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +669,8 @@ The Beaches - Late Show (2017) [FLAC|Lossless|tracks] <Alternative Rock, Female 
 magnet:?xt=urn:btih:C620CDE97C698A44BF46D38430BA3271A42F9F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +694,8 @@ MovieMator Video Editor Pro 2.5.0 [En]
 ```bash
 magnet:?xt=urn:btih:F85A5AEA710B7A8CE161E5E904A47BDC8091C002
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -679,6 +729,8 @@ Nox Arcana - The Dark Tower (2011) [MP3|128-192 kbps]<Neo-Classical, Dark Ambien
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ BloodRayne: Betrayal (2014) [Ru/Multi] (13.10.15) Repack R.G. Механики
 magnet:?xt=urn:btih:895D3ABE04BF06DE742231181C10BE8122AE17D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Impact Winter (2017) [Ru/Multi] (2.0.5) License PLAZA
 magnet:?xt=urn:btih:2ACD9D04B767E99E23794F4D296641375CB49A1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Ultimate Ninja 4: Naruto Shippuden рассказывает историю о т
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Bloody Zombies – это кооперативный экшен/файтинг, 
 magnet:?xt=urn:btih:D60C5FDA6ECED8E9C6164CF4F1949010A0D6E0D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Rocket League - это аркадный проект, который сочет�
 ```bash
 magnet:?xt=urn:btih:E895A8199F16D770467A0EAF784A88FAC529C372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Indivisible - игра в жанре экшн-RPG / платформер с ве
 magnet:?xt=urn:btih:509B7D7AA27591287653128A790D8AE598368325
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Bloody Zombies (2017) [Ru/Multi] (1.0) Unofficial CoolGames
 ```bash
 magnet:?xt=urn:btih:178E8D8C736C95084A9EBCA9567F3D0036D4DD23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Clockwork (2016) [En] (1.0.0.3) Repack R.G. Механики
 magnet:?xt=urn:btih:6FA8BA732248DF6CF555FB725CED6A2D29759745
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Titus the Fox: To Marrakech and Back (1992) [En/Fr] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:08E1469A3413EAC3815ED14EFE622BF56155D0DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Gravity Ghost – красочный физический пазл-платфо�
 magnet:?xt=urn:btih:98FA98BA5E2C9E9CCE29DB76EC57F5C1848796CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Privateer 2: The Darkening (1996) [En/Ge] (17.0e) License GOG
 ```bash
 magnet:?xt=urn:btih:2A3DA6F1DBF98DA42C5F7EF1B509FEC9C9CDEF10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Injustice 2 – новейшая игра в жанре файтинг во вс
 magnet:?xt=urn:btih:ABBE746616F36102844D48C8DE1EAB248232A72B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Double Dragon: Neon (2014) [En] (1.0/u3) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:9BF3748F31ACD15177983270312700FE577F7EED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Cult of the Lamb (2022) [Ru/Multi] (1.0.6/dlc) Repack dixen18
 magnet:?xt=urn:btih:F55DA180790BD4B79E9A24D0C9B75C9D4BFA8AEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Leo’s Fortune - это платформенная приключенческа
 ```bash
 magnet:?xt=urn:btih:25D623C12F56296174339B753F379C62843E77FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Color Guardians (2015) [Ru/Multi] (1.0/upd3) Repack R.G. Механики
 magnet:?xt=urn:btih:7766CD88573E184E5DA5D669D1A76F22AC495A41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Super Lucky’s Tale — весёлая и увлекательная платф
 ```bash
 magnet:?xt=urn:btih:982780B9CA52EBE9D29AB51962E18B5A58DF9AE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ A.I. Invasion - футуристический аркадный top-down шут�
 magnet:?xt=urn:btih:37B272935BA118ACF5D68010B26014F8BC8C7944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Brave: The Video Game [Ru/En] (Repack) 2012 | R.G. Origami
 ```bash
 magnet:?xt=urn:btih:F84588C875858469BEAC517849F4C3F223E52021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Teslagrad - 2D платформер с элементами стимпанка. 
 magnet:?xt=urn:btih:4B0214AC8AED62A0FE4562203C01FCAC0533482F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ WARRIORS ALL-STARS (2017) [En/Ja/Ko] (1.0.0.1/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:63B40819270604FA62C0054E91E395AC9AC67445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Epica — игра в жанре скроллер-платформера, дей
 magnet:?xt=urn:btih:4E5754BCDD426A8F6FD2181A2454CD06B1468163
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Brave: The Video Game / Храбрая сердцем [Ru] (RePack/1.0) 2012 | A
 ```bash
 magnet:?xt=urn:btih:D3598127EEC2678123D0AA51CBBE13F658F4CA9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Death Point – это классический стэлс-экшн, котор�
 magnet:?xt=urn:btih:5F939F3CA4EA7BC6FA8439A12C661AB423BFE17C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Unravel Two (2018) [En] (1.0) Repack xatab
 magnet:?xt=urn:btih:D479C4E198B841F15272B7F6678CB0155217CBDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Mines of Mars (2018) [En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D12D8B582704DB4CD78E2F453B41AFB6A553FD0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

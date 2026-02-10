@@ -19,6 +19,8 @@ Ultros представляет собой 2D платформер, которы
 magnet:?xt=urn:btih:73F7BD6DCCDCFDA5ED29C7E9689807EFEBB8E214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Murders on the Yangtze River переносит вас в Китай начал�
 ```bash
 magnet:?xt=urn:btih:347AAE75FD28BD8FC53900AB7F00A457C99CDBAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:347AAE75FD28BD8FC53900AB7F00A457C99CDBAC
 magnet:?xt=urn:btih:98C1E8BADB4488BD8C042C647743FF906266256F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Amnesia: The Bunker - хоррор от первого лица от созда�
 ```bash
 magnet:?xt=urn:btih:4FBFFF0DDFF39AE048EE38D77CD7BC0BAFABB1CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ HITMAN 3 (III) (2021) [Ru/Multi] (3.190/dlc) Scene Razor 1911 [Deluxe Edition]
 magnet:?xt=urn:btih:BF7DF738404F74B8DC3D50E0A8BAAA9472D3B001
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Chained Together (2024) [En] (1.7.9) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:998E43C40D21A71844CA4A373B1EF7EDDBF21083
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Myst (2021) [Ru/Multi] (1.8.7) Repack dixen18 [VR]
 magnet:?xt=urn:btih:FFBAF41968400E98A409F628ED997309A40AA2FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Eyes of Destiny – наш протагонист находится в очен
 ```bash
 magnet:?xt=urn:btih:229FAFFD5295DFF32AD2EFB47F39C7888A6C3EE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ City Bus Manager (2024) [Ru/Multi] (2.0.16/dlc) Repack FitGirl [Deluxe Bundle]
 magnet:?xt=urn:btih:543D5A978B3F2E4CE18383B9AA5177083E478ED5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Shrot – находитесь в поисках небольшой олдску
 ```bash
 magnet:?xt=urn:btih:D7ABDDF09791EF82E3CB26D9D472312B82BD3D71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ We Happy Few - экшен, приключение, сценой которому
 magnet:?xt=urn:btih:2B7503B86B0EC69A49F4A396ED7AFADBCD013C8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Splatter - Zombiecalypse Now – top-down шутер с интересной к�
 ```bash
 magnet:?xt=urn:btih:E09EE49FE2312767A797D36CFEB54CD8E2393021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Godrop - рогалик с увлекательным игровым проце�
 magnet:?xt=urn:btih:3D358DD4AAD8F984A7DA2D6C25B2806975C51F56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ REVEIL (2024) [Ru/Multi] (1.1.1/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F4679B711CAFDD3BC5EB930E42B3DEA2416F6460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Leviathan's Fantasy - это игра-симулятор, в которой 
 magnet:?xt=urn:btih:354B51E2785E9785ED4D6FC79B60C5EF7D56B493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Islands of the Caliph - это ролевая игра в жанре Action RPG,
 ```bash
 magnet:?xt=urn:btih:FBD7FB42E54607360CB8C4677CBD8889778D8F15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Sand Land (2024) [Multi] (1.0.5/dlc) Scene Tenoke [Deluxe Edition]
 magnet:?xt=urn:btih:89D52C76544B3EDD10CB8F50C9604BD02EAEE636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Scythe: Digital Edition - это длинная история в пошагов
 ```bash
 magnet:?xt=urn:btih:D9230462C6CEB5A5C768FF0AC03CD69B37E5D331
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Stranded Sails Explorers of the Cursed Islands (2019) [Ru/Multi] (1.4.8) License
 magnet:?xt=urn:btih:35B49CFF28B4B6BA1EE6D48405328D60D2B92BCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Digimon Survive - тактическая JRPG, разработанная по �
 ```bash
 magnet:?xt=urn:btih:CE83DAA3B6244FFC51A39E4409557AC472D40C49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Drakkar Crew (2023) [Ru/En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:969240A97A710B5C1CB49A03E0A93983D63FA5CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Young Hearts (2024) [Ru/En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F1FF5D8CB1D18BD0110301A193F43BC324C36B95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Oregon Trail - это увлекательная адвенчура в ст�
 magnet:?xt=urn:btih:7DE6FDA621A97AA1052D85D4D4DD59647FA43497
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Frozen Synapse - пошаговая стратегия, основанная н�
 ```bash
 magnet:?xt=urn:btih:FB2C626FCC3B8AC71C60BBDDB956694D877D295A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Legend of Nayuta: Boundless Trails (2021) [Multi] (1.0.7) License GOG
 magnet:?xt=urn:btih:F7FA3502B8D6EAB58704EFF4B8A1015F2D92D2F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ TOEM - приключенческая головоломка, выполненн
 ```bash
 magnet:?xt=urn:btih:FEC2AB4F1B04FAB9C6E7EF0E938EADBAC98A7EB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

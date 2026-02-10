@@ -1,3 +1,29 @@
+###  Публикация: 1223912   (669883) от 07.05.2018
+
+Хорхе Марио Бергольо, Авраам Скорка | О небесном и о земном (2015) [FB2, MOBI, RTF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_669883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хорхе Марио Бергольо, архиепископ Буэнос-Айреса, будущий Папа Франциск, беседует с Авраамом Скоркой, раввином и биофизиком, - о религии, политике и мироустройстве, о проблемах, с которыми мир столкнется в XXI веке. Собеседники вели эти диалоги на протяжении многих лет, стараясь навести мосты между христианством и иудаизмом при помощи веры и разума. И для них не было (   Читать дальше...   )Жанр: Диалог, размышлениеФормат: FB2, MOBI, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C6213826B5FE3242FA787E23C236F988B64C215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223463   (669887) от 07.05.2018
 
 Архимандрит Кирилл (Павлов), Архимандрит Тихон (Агриков) | Старец чудный, старец дивный: к 700-летию со дня рождения преподобного Сергия Радонежского (2014) [PDF, DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:C38036E78D7FB5C8449AD4251ED971B4F1844F11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:C38036E78D7FB5C8449AD4251ED971B4F1844F11
 ```bash
 magnet:?xt=urn:btih:666E0304BE1EAF28856A0656FCA69DF205A8E975
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:666E0304BE1EAF28856A0656FCA69DF205A8E975
 magnet:?xt=urn:btih:1EDC70D5D30BD76320D02058A1D6DC5AB6F4B570
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:1EDC70D5D30BD76320D02058A1D6DC5AB6F4B570
 ```bash
 magnet:?xt=urn:btih:0451EDB8E336A418298B01DE1645ADD3DA29137F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:0451EDB8E336A418298B01DE1645ADD3DA29137F
 magnet:?xt=urn:btih:5F9B14BB3854F9009591625FFEFF07CF1C0A40E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:5F9B14BB3854F9009591625FFEFF07CF1C0A40E6
 ```bash
 magnet:?xt=urn:btih:210271A04849B8E6C6969DB121500E902179E3E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:210271A04849B8E6C6969DB121500E902179E3E3
 magnet:?xt=urn:btih:D2F2E8F8B9CF97E1684BEF236E44E8F994563E79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:D2F2E8F8B9CF97E1684BEF236E44E8F994563E79
 ```bash
 magnet:?xt=urn:btih:975A7A9514E0BAEA2AB7EBC1B722E483C68C4B58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:975A7A9514E0BAEA2AB7EBC1B722E483C68C4B58
 magnet:?xt=urn:btih:4B60476C88BDC65E5A2257FF7E937DC88FCB73B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:4B60476C88BDC65E5A2257FF7E937DC88FCB73B8
 ```bash
 magnet:?xt=urn:btih:880CDD4391830248EF47E582A849A85E6053F499
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:880CDD4391830248EF47E582A849A85E6053F499
 magnet:?xt=urn:btih:E9FEE38CDD3FBA93F352EF731037B7E174D3478D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:E9FEE38CDD3FBA93F352EF731037B7E174D3478D
 ```bash
 magnet:?xt=urn:btih:FFFCC30EF166685F0E4555D5A9A2E4F3980BC229
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:FFFCC30EF166685F0E4555D5A9A2E4F3980BC229
 magnet:?xt=urn:btih:2A1E4E8014A1BB97069C597A65C797A3D59B4137
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:2A1E4E8014A1BB97069C597A65C797A3D59B4137
 magnet:?xt=urn:btih:C7F64FEC736097F1CA2B959EC8652542ACB07D80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:C7F64FEC736097F1CA2B959EC8652542ACB07D80
 ```bash
 magnet:?xt=urn:btih:BEB73085DB7C6365BEDCB8AFD81C3715B462A968
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:BEB73085DB7C6365BEDCB8AFD81C3715B462A968
 magnet:?xt=urn:btih:5FCE45120A62E19A999493DE48700BDFF1E7F57F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ Wayne Westcott, Thomas Baechle | Strength Training Past 50 (2015) [PDF] [En]
 magnet:?xt=urn:btih:A972CA43E53C27EF63088330DFA114131B8F2845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:A972CA43E53C27EF63088330DFA114131B8F2845
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:A972CA43E53C27EF63088330DFA114131B8F2845
 magnet:?xt=urn:btih:C39D711E54736CBFAF4D7C509467DBF9517559F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:C39D711E54736CBFAF4D7C509467DBF9517559F0
 magnet:?xt=urn:btih:C16E1E4351F804896A046C3DD9AA80DE8DDCD8EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:C16E1E4351F804896A046C3DD9AA80DE8DDCD8EA
 ```bash
 magnet:?xt=urn:btih:F61F856653571D11CF0271033072ABAA829BC0E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:F61F856653571D11CF0271033072ABAA829BC0E0
 magnet:?xt=urn:btih:7B88F7005DEBEA42DEE8E38B405B618372194CEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:7B88F7005DEBEA42DEE8E38B405B618372194CEE
 ```bash
 magnet:?xt=urn:btih:CF947431EE08F8487CAFDB52B24585F79EAA3177
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:CF947431EE08F8487CAFDB52B24585F79EAA3177
 magnet:?xt=urn:btih:85F05074164F374801FEBCC6B422C65B2C8298AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:85F05074164F374801FEBCC6B422C65B2C8298AA
 magnet:?xt=urn:btih:559307428698B4948716AFC55DA0823D7116745D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030662   (671572) от 01.07.2016
-
-Лариса Парфентьева | 100 способов изменить жизнь. Часть первая (2016) [FB2, EPUB, PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга родилась из еженедельной рубрики Ларисы Парфентьевой «100 способов изменить свою жизнь» на сайте издательства «Манн, Иванов и Фербер». Только появившись, эта рубрика вызвала много откликов. Люди стали писать о том, как разные истории помогают им двигаться вперед. В эту книгу вошли разделы «Предназначение», «Мотивация», «Движение», «Законы жизни».Жанр: Практическая психология, Самосовершенствование, Личностный ростФормат: FB2, EPUB, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0686EC103B4B004BC432710D443425AF5A5ACF7D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

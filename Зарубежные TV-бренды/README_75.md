@@ -19,6 +19,8 @@ Viasat History: Карты убийства / Murder Maps (2015) SATRip [H.264] 
 magnet:?xt=urn:btih:E6BEF543408413123C5DEEC47CC77AE56D0F6011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PBS: Природа - Невероятные лягушки / PBS: Nature - Fabu
 ```bash
 magnet:?xt=urn:btih:BABC185E6043E92AA0462EE6285EB22A85B5B0CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC: В краю муссонов / Wonders of the Monsoon (2014) [BDRip/720p] (
 magnet:?xt=urn:btih:3DEC470A1CF3DB83FA987BC18A2162689FA0CFCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG: Осушить океан: глубокое погружение. Шторм
 ```bash
 magnet:?xt=urn:btih:FF156CF18A39E65543C185479B1A74C009067A2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NG: Нефтяное загрязнение столетия / Oil Spill of the 
 magnet:?xt=urn:btih:24E1AC28F293FE977C0E04F602EA6DD367824618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG: Испытайте свой мозг / Test Your Brain (Brain Games, Teste d
 ```bash
 magnet:?xt=urn:btih:4F110DDE68A8ED26D1761425A41173167FBB037F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NG. Фри-соло / Free Solo (2018) BDRemux [H.264/1080p]
 magnet:?xt=urn:btih:D19AFA1A9B737A80B306ABE2C03F27ADB50FDD87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Discovery. Вирусы / Virus: Invisible Killers (2017) HDTVRip [H.264/720p-LQ
 ```bash
 magnet:?xt=urn:btih:77AB8BD71DF742D912C8523D9ED1E7191954526B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NG: Затерянная гробница Александра Великого 
 magnet:?xt=urn:btih:B84E1205CC50F2EC935EA9708243BEEE206A8C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Discovery: Земля восходов. Секреты Солнца / Sunrise Ea
 ```bash
 magnet:?xt=urn:btih:80D1B5A1BDB04E060EAF095AACEEADBE64BF5DAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NGW: Крупные рыбы Зэба: огромный сом / Monster Fish. Z
 magnet:?xt=urn:btih:FD20386175920CE09533B3ADEBD97335DBB12170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ NG. В поисках правды / The Truth Behind (2011) HDTVRip [H.264/720p
 ```bash
 magnet:?xt=urn:btih:AF1CC66BC416322DA908F5383808A6DBEF62FFCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Discovery: Телескоп / Discovery: Telescope (2016) HDTVRip [H.264/720p-LQ
 magnet:?xt=urn:btih:E19FB3E73B5A2937F740B983A96C21C40C73DF35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ DV: Галилео Галилей - борьба за небо / Galileos Battle
 ```bash
 magnet:?xt=urn:btih:1CECDA7582D174B2E36473F1F032DE464A1B7170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ NGW: Африканские охотники / Africa's Hunters. (2018) HDTV [H.
 magnet:?xt=urn:btih:3CDE696786C42EB7710129A6D75A5DBB77ACC396
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Animal Planet: Живой или вымерший. Додо Севера / Extin
 ```bash
 magnet:?xt=urn:btih:24501E72F1FF49070B6F6CF72F6511DC0CBF90EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ NG: С точки зрения науки. Экспедиция "Виски" / N
 magnet:?xt=urn:btih:2C20443AFFCEE089820EB2E1464EFA7453CECA90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ NG. Тираннозавр: чемпион по выживанию / T.Rex: Ulti
 ```bash
 magnet:?xt=urn:btih:3085D79470298B7EED1B79578CF1AD6ED421912B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ National Geographic. Смертельный бой динозавров / Dino D
 magnet:?xt=urn:btih:D604A626D7DEF3EA07365CD489AC9A34CC7D61B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Animal Planet. Аквариумный бизнес / Tanked (2011-2014) SATRip, 
 ```bash
 magnet:?xt=urn:btih:780647BB95355A37AC18F523F9C474124D2C6F85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Viasat History: Загадка исчезновения неандертальц
 magnet:?xt=urn:btih:AAAA64CCC0D09E51D509E9A90936F2408D80070F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ NG. Фри-соло / Free Solo (2018) HDTVRip [MVO]
 ```bash
 magnet:?xt=urn:btih:ABF941C7A8F1F710DD12CBDDE3CB11CCD0B990F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Discovery: Бесстрашная планета (6 серий) / Fearless Plane
 magnet:?xt=urn:btih:9D4A41D18E7EC67436A0C3761556A6DF2278FD1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ NGW: Дикие земли Европы / Europe's Great Wilderness (2015) HDTV 
 ```bash
 magnet:?xt=urn:btih:586E8DAB6033A5AE541D1D338427D50903A02F37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ BBC. Горы - жизнь над облаками / Mountains: Life Above The C
 magnet:?xt=urn:btih:B77D0487A40A7E54B6309715BF842035E3E66756
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ NGW: Скала леопардов / The Leopard Rocks (2017) HDTV [H.264/1080i-
 ```bash
 magnet:?xt=urn:btih:C409F6AF8E2FEED583E706F009872FC5EF3572F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

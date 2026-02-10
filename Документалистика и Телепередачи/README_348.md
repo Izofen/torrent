@@ -1,3 +1,29 @@
+###  Публикация: 940933   (464880) от 26.09.2015
+
+История голливудского кинематографа / The First 100 Years: A Celebration of American Movies (1995) HDTV [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_464880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название ленты говорит само за себя. С огромной любовью к кинематографу снял Чак Уоркмэн этот фильм, чрезвычайно удачно подобрав сюжеты, кадры, отрывки из картин от немого кино до фильмов последних лет.Телекомпания: США, American Film Institute (AFI), Calliope Films, Home Box Office (HBO)Жанр: ДокументальныйПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 01:28:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6217A22425141664A500FD13A497136113770D66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940960   (464882) от 26.09.2015
 
 Земля. Территория загадок. Лабынкырский черт (2015) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:395FD4D8452B2A4776FD88E00352ED1231770B8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:395FD4D8452B2A4776FD88E00352ED1231770B8A
 magnet:?xt=urn:btih:57D23BCDDD92D82604815EE3A1D706B50CC2866B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:57D23BCDDD92D82604815EE3A1D706B50CC2866B
 ```bash
 magnet:?xt=urn:btih:CAB1D2E91E3E95ADC5788BCE79E3462A29985A06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:CAB1D2E91E3E95ADC5788BCE79E3462A29985A06
 magnet:?xt=urn:btih:9AE6D92C6547ADACDF262991D7D75EC853745577
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:9AE6D92C6547ADACDF262991D7D75EC853745577
 ```bash
 magnet:?xt=urn:btih:97A9979F019281160F6124E200347700F29C9EE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:97A9979F019281160F6124E200347700F29C9EE8
 magnet:?xt=urn:btih:E5F44544AB9B08117C5CE4CB3985999D6038C694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:E5F44544AB9B08117C5CE4CB3985999D6038C694
 ```bash
 magnet:?xt=urn:btih:FFCA2DDCF8FB7F14A4CEBFCC80A25934E7500463
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:FFCA2DDCF8FB7F14A4CEBFCC80A25934E7500463
 magnet:?xt=urn:btih:8F8ABA70E95FEE2686D22C14A212728E99FBC384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:8F8ABA70E95FEE2686D22C14A212728E99FBC384
 ```bash
 magnet:?xt=urn:btih:178790D4BFAEAFC48370F5192E5BD2BB3BBE7634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:178790D4BFAEAFC48370F5192E5BD2BB3BBE7634
 magnet:?xt=urn:btih:1BCB4FBA371A9C2018873741E697C83513935395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:1BCB4FBA371A9C2018873741E697C83513935395
 ```bash
 magnet:?xt=urn:btih:57F6DA7AEF47CD44BFADCFBCFEF20FB5CF66B62F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:57F6DA7AEF47CD44BFADCFBCFEF20FB5CF66B62F
 magnet:?xt=urn:btih:5B127EAE562C44B1E3EA0FAD79948155225155A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:5B127EAE562C44B1E3EA0FAD79948155225155A3
 ```bash
 magnet:?xt=urn:btih:A4B15912DEFAC0A71E69E43EC49418F5F45B673A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:A4B15912DEFAC0A71E69E43EC49418F5F45B673A
 magnet:?xt=urn:btih:92887BC0607A06EB75D26C4DB705B8F2AE3F37FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:92887BC0607A06EB75D26C4DB705B8F2AE3F37FD
 ```bash
 magnet:?xt=urn:btih:389F18F801DCA2FCCB4432DAB2EF04C2B05F22A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:389F18F801DCA2FCCB4432DAB2EF04C2B05F22A9
 magnet:?xt=urn:btih:3A4A069E77D59C8D53A0703B6FA10BAF85D00717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +460,8 @@ magnet:?xt=urn:btih:3A4A069E77D59C8D53A0703B6FA10BAF85D00717
 ```bash
 magnet:?xt=urn:btih:4173188FAB73B81AEF974629C4C7C45D91E20797
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:4173188FAB73B81AEF974629C4C7C45D91E20797
 magnet:?xt=urn:btih:2BF0334CDDF8621BD60B265DBC66E40C13FCE6A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +512,8 @@ magnet:?xt=urn:btih:2BF0334CDDF8621BD60B265DBC66E40C13FCE6A6
 ```bash
 magnet:?xt=urn:btih:F0AE62F5BD43A1592F8B99022FFEB7568429BF3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:F0AE62F5BD43A1592F8B99022FFEB7568429BF3A
 magnet:?xt=urn:btih:50BE42B205B46EB1BF6B987FFD5C3728951F6C71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +565,8 @@ magnet:?xt=urn:btih:50BE42B205B46EB1BF6B987FFD5C3728951F6C71
 ```bash
 magnet:?xt=urn:btih:CA8F39CDA043F833A1CB2F28F080E5868B18B6BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:CA8F39CDA043F833A1CB2F28F080E5868B18B6BD
 magnet:?xt=urn:btih:D68502617A6779333B67C198E7DBD0AE85E036AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:D68502617A6779333B67C198E7DBD0AE85E036AF
 ```bash
 magnet:?xt=urn:btih:3418CF0DC5403D35005F251769C3ADD3F14F7D6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:3418CF0DC5403D35005F251769C3ADD3F14F7D6C
 magnet:?xt=urn:btih:8294E6E007697F4E52423194C20EED43976B2C2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:8294E6E007697F4E52423194C20EED43976B2C2C
 magnet:?xt=urn:btih:0077540089E20560D8939482B872746B3519C311
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938448   (466147) от 25.09.2015
-
-Чудотворица: Матрона Московская (2015) WEB-DLRip [Серии 12 из 12]
-
->>Документалистика и Телепередачи
->>Религии и культы (Док/TV)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_466147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный сериал об уникальном даре и нелегкой судьбе слепой парализованной деревенской девушки Матроны, посвятившей себя служению людям. В любую погоду, в будни и праздники, в Покровском женском монастыре стоит очередь: сотни женщин приходят сюда, к мощам святой Матроны, в надежде на чудо. И чудеса случаются! Даже спустя более 60 лет после смерти Матрона Московская (   Читать дальше...   )Телекомпания: ТК ДомашнийЖанр: ДокументальныйПродолжительность: 12 x ~ 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:209C4F28FE147585B33149CD9BE49C7F87C2B05D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

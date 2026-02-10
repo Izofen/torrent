@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C88BFCE7B2D94E387A20BCFDD911304DDF47EFEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C88BFCE7B2D94E387A20BCFDD911304DDF47EFEE
 ```bash
 magnet:?xt=urn:btih:514D0B096856B54B8840D5497317BAAC6F7A802D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Via - весьма популярный и востребованный Брау
 magnet:?xt=urn:btih:8A0755156FB390D5D6604B02F62CC8550695DA77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Icecream Slideshow Maker (Repack & Portable) - простая и эффекти�
 ```bash
 magnet:?xt=urn:btih:46AF5D88BC5A1D5D6A9EDA0591882DA3DB7C0451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:46AF5D88BC5A1D5D6A9EDA0591882DA3DB7C0451
 magnet:?xt=urn:btih:A296753DE8C2162228F50614BAD7CFFE9F213C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:A296753DE8C2162228F50614BAD7CFFE9F213C49
 ```bash
 magnet:?xt=urn:btih:EA50E17D137D7EF1886BDE4B618618FB7C039B12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Icecream Screen Recorder - программа, позволяющая вести
 magnet:?xt=urn:btih:DAA92976B6955212272646846DA3EEC41C6F5FE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Icecream PDF Editor PRO - программа для поистине прост�
 ```bash
 magnet:?xt=urn:btih:4E65C7CD3CAD4044353D7902AF982B04AEEB6C47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:4E65C7CD3CAD4044353D7902AF982B04AEEB6C47
 magnet:?xt=urn:btih:087BAD6301AF4189FD67B70B447CBCA8F59DE922
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ D Notes - крайне симпатичный блокнот, что, как и 
 ```bash
 magnet:?xt=urn:btih:C82FC2882C156FC503F911718BEEC089275CA96B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Streaming Audio Recorder 3.3.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 magnet:?xt=urn:btih:C19AEC09D2F7D001AF3A6F34ABFCCF080869066E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ GOM Player Plus - мультимедийный плеер со множеств�
 ```bash
 magnet:?xt=urn:btih:141DCCDE8C253FCF3D730B479F0CB899B4916E5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Icecream Video Editor - простой редактор видео для Window
 magnet:?xt=urn:btih:00B3382A75CB34B34BDB4F51197D639587051A76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:0BB6540B5EF48DF30891343A9B7B6E81ABCA494F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Icecream Video Converter - Мощный, но простой в использо
 magnet:?xt=urn:btih:B1E24E86123C1867D98BCB14ED8BD2283C9AE42A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:A01BD202C7C77A9890491A55C5FE17B8E0703E99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ A4 Love In September(   Читать дальше...   )Жанр: Electronic, Di
 magnet:?xt=urn:btih:FB157040B540D37F5B62DF756513917993D8AE64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:FB157040B540D37F5B62DF756513917993D8AE64
 ```bash
 magnet:?xt=urn:btih:6488BFCE7F3ADFBF61CD36B403300E7B1A7EDE5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ GIMP — это редактор, позволяющий работать со �
 magnet:?xt=urn:btih:09CABB8E28648C70D37874B442FB611016A677E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:09CABB8E28648C70D37874B442FB611016A677E2
 ```bash
 magnet:?xt=urn:btih:F773690484A5C77D119D5582B24483009A880ACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Captain Goose (2023) [Ru/En] (1.0) Scene Razor1911
 magnet:?xt=urn:btih:D599B825FD5AE1426CBD02817C76C0C09BEB8803
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ GOYO - плагин три в одном, который поможет вам �
 ```bash
 magnet:?xt=urn:btih:56FE7B169B16F32FF39FD9890C6D1D95B57A5E11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:63ADCE7916BDF573C469EC8683FC2A8F6A6BDF2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:63ADCE7916BDF573C469EC8683FC2A8F6A6BDF2D
 ```bash
 magnet:?xt=urn:btih:5640AA629FEA02B5EBA1F56EA5A6886BD624B6B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:5640AA629FEA02B5EBA1F56EA5A6886BD624B6B2
 magnet:?xt=urn:btih:14EB9DCDAA06A960194F4E9AE39F659925A2F0C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:14EB9DCDAA06A960194F4E9AE39F659925A2F0C6
 ```bash
 magnet:?xt=urn:btih:7CC089FA20D212B62420617DCA6E5F70B9593509
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

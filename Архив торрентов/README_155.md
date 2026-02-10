@@ -19,6 +19,8 @@ Plus Messenger - неофициальное приложение для обме
 magnet:?xt=urn:btih:97B37DE8D9B2E567F24D4428670F002C736AF44C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:97B37DE8D9B2E567F24D4428670F002C736AF44C
 magnet:?xt=urn:btih:58D3E0AB74A0836C21C01628DD6E1D8242D73C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Vov Sticky Notes 9.3 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B929D95078F9A5765859B080F1EE4CE68D3AE254
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:245161B41A32185C3C0C0BD82C6CEAA47096B6E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Diamond Cut Forensics Audio Laboratory 11.04 [En]
 ```bash
 magnet:?xt=urn:btih:0EE5C36799A923E6A99AE1D0BE2FA84935E356F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ RustDesk Remote Desktop – программное обеспечение для
 magnet:?xt=urn:btih:238DC5AE849BB077875C948A3A37C0C5F59CC108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:238DC5AE849BB077875C948A3A37C0C5F59CC108
 ```bash
 magnet:?xt=urn:btih:5F0FF1ACB03CC47A37A7D4ACEE5A6B311E2488D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Media Player Classic Home Cinema - удобный во всех планах м�
 magnet:?xt=urn:btih:933E82BD428627DE7BA7AB023BA52F7751631B28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:BF4A19CD9C20D0C565AF5950E2A09F31DBDB2D01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Office Installer - программа предназначена для online �
 magnet:?xt=urn:btih:F1DF196EC0D99DA4596F8A893AF6974AC1B9513E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:796B1EED6FBDF69649564212436F65033DE7EC8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Qalculate! - это многоцелевой кросс-платформенны
 magnet:?xt=urn:btih:011A04AB12121B05908F22EECCE617E52A271782
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Process Lasso позволяет вручную или автоматическ�
 magnet:?xt=urn:btih:0E20B8CC48E07FB123A60E0832816E13FB3E4093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:EFD3C0D0B0C62D957943C7CCCDCE7A21622046A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ WinSCP, это FTP и SFTP клиент с открытым исходным к�
 magnet:?xt=urn:btih:5C9B88256887873FDFD8B01FB83EB8F88DBA3826
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:5C9B88256887873FDFD8B01FB83EB8F88DBA3826
 ```bash
 magnet:?xt=urn:btih:CB093E27A15F95211218D2A810DB91E5F8ABBD33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Karing - Утилита прокси с простым и мощным инте�
 magnet:?xt=urn:btih:D50438759B001D860928942D8124561CEDAF1B90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:2D2CD1303AA43A90C469D0C96B077F6A5F6B67A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:A5D81649D4D67002BA1E0C7496E5C95FC3F515A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ foobar2000 - это аудиоплеер, подкупающий своим ве
 ```bash
 magnet:?xt=urn:btih:167338AA0CB0F27168C1826E69D1A552C1111A97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:167338AA0CB0F27168C1826E69D1A552C1111A97
 magnet:?xt=urn:btih:F5A093063A3DE5833B694D15C2C68DCD32EE8D05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ XnView - утилита, предназначенная для просмотр�
 ```bash
 magnet:?xt=urn:btih:75EA62DC28B32D5F92B5486318DF6DF30B054E8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 magnet:?xt=urn:btih:161CF6C94FE994F2400B42A17A7797A2FA59D54A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:93E20428D737F1253837B6A112BC207C238A1546
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Filterverse — это один из мощных музыкальных пла�
 magnet:?xt=urn:btih:05411A23738A60D4D670F251936B68233398D803
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Free Hex Editor Neo - бесплатный Редактор Шестнадцат
 ```bash
 magnet:?xt=urn:btih:3BE8DA296E2E34BB784523BDBFCBB2BCBEBE8CA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

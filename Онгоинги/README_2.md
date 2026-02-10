@@ -20,6 +20,8 @@ Mikata ga Yowa Sugite Hojo Mahou ni Tesshite Ita Kyuutei Mahoushi, Tsuihou Saret
 magnet:?xt=urn:btih:B985753797995565CC3FFE442E8AB902F15D9A3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Fumetsu no Anata e Season 3 | To Your Eternity Season 3 | Для тебя, Бе�
 ```bash
 magnet:?xt=urn:btih:C1D208562B981D66C433644CA765FC908CFD4464
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Tomodachi no Imouto ga Ore ni dake Uzai / My Friend's Little Sister Has It In fo
 magnet:?xt=urn:btih:51CE0BF26B535EC29908EBE2A3F5C10A2AD2C82E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Boku no Hero Academia Final Season | My Hero Academia Final Season | Моя ге
 ```bash
 magnet:?xt=urn:btih:B6F77FC3088A419B0E3EBE0498590F62576C20E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Nageki no Bourei wa Intai Shitai 2 / Let This Grieving Soul Retire! 2 / Скор
 magnet:?xt=urn:btih:B858257F8D7A08668E225490CE4155FEB033E816
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Spy x Family 3 / Семья шпиона 3 [2025, TV, 1 из ?] WEBRip 720p raw
 magnet:?xt=urn:btih:C14E7DC78BF779A6CC938B540DDAF403E87D8BAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Egao no Taenai Shokuba Desu. / A Mangaka's Weirdly Wonderful Workplace / Раб�
 ```bash
 magnet:?xt=urn:btih:9807421B7384325D97C02A227EE668FF74B96FDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Ansatsusha de Aru Ore no Status ga Yuusha yori mo Akiraka ni Tsuyoi Noda / Мо�
 magnet:?xt=urn:btih:7CDECD5606E00E1BE941DD94D766F50B940DA0B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Plus-sized Misadventures in Love! | Debu to Love to Ayamachi to! | Пышечк�
 ```bash
 magnet:?xt=urn:btih:C28137522DFDFFBF1AD26163B6629F889BE7E7A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Kao ni Denai Kashiwada-san to Kao ni Deru Oota-kun / Inexpressive Kashiwada and 
 magnet:?xt=urn:btih:CF827ED601EC3E025F5E413EEDAF818CFAD4CC2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ The Dark History of the Reincarnated Villainess | Tensei Akujo no Kurorekishi | 
 ```bash
 magnet:?xt=urn:btih:ADC6CF5BB679F05741D97D368BA69E0A0231868F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Tondemo Skill de Isekai Hourou Meshi 2 | Кулинарные скитания �
 magnet:?xt=urn:btih:CE77007164D6B714EA6092CA1B93543AC893D9D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Wandance | Один танец [2025, TV, 1 из 12] WEBRip 720p raw
 magnet:?xt=urn:btih:3570C7FB130A3355356E25A673B98F10F91F8D58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Ao no Orchestra Season 2 | The Blue Orchestra 2 | Синий оркестр [Т�
 ```bash
 magnet:?xt=urn:btih:459846DE4708355FF540FAB67F71366EAA4D0C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ Ninja to Gokudou | Ninja vs. Gokudo | Ниндзя и якудза [2025, TV, 1 
 ```bash
 magnet:?xt=urn:btih:D3BA656E6030801730126D2B6233C67D0CAD9CB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ Gnosia | Гносия [2025, TV, 1 из 12 эп.] WEBRip
 magnet:?xt=urn:btih:27CCB2A017F2E08955E6E01024D95FACF8AED2D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ Chanto Suenai Kyuuketsuki-chan / Li'l Miss Vampire Can't Suck Right / Вампи
 magnet:?xt=urn:btih:364546C8E7399A18F65DAB2A492C76D341B7A43C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ Isekai Quartet 3 | Четвёрка попаданцев [ТВ-3] [2025, TV, 1 �
 ```bash
 magnet:?xt=urn:btih:604B6892FA574E4C02077794618AAFEF7DA3DBD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ Kimi to Koete Koi ni Naru | With You, Our Love Will Make It Through | Перес
 magnet:?xt=urn:btih:EB53883A225E5BD2C307AE8E51CE2CF1BA649AC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ Chitose-kun wa Ramune Bin no Naka / Chitose is in the Ramune Bottle / Читос
 magnet:?xt=urn:btih:DEBC0496057BF8CBC70E30F82C1B68BA7120E790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ Long Zu II: Daowangzhe Zhi Tong | Dragon Raja II -The Mourner's Eyes- | Драк
 ```bash
 magnet:?xt=urn:btih:03A8A8A8034C28F0D438A709EED065537FB287A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ Arknights: Fuyukomori Kaerimichi / Arknights: Perish in Frost / Рыцари к�
 magnet:?xt=urn:btih:BF8FE220379F047B11A88582C02F863A49B398B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ Towa no Yuugure | Dusk Beyond the End of the World | Вечность Югурэ
 magnet:?xt=urn:btih:7FFDA20C05CE7E727C371F72F34CA2364CBC172B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ One Punch Man 3 | Ванпанчмен [ТВ-3] [2025, TV, 2 из 12 эп. + 1 S
 ```bash
 magnet:?xt=urn:btih:A012DCE7D8327C7FD4EED377387EAE6E5D65F261
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ Kingdom 6th Season | Царство [ТВ-6] [2025, TV, 11 из 13] WEB-DL 1080p
 magnet:?xt=urn:btih:E66E1E4B976CB2B52E39A11A00117E2069194281
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ Monster Strike: Deadverse Reloaded | Удар монстра: Перезагру
 ```bash
 magnet:?xt=urn:btih:A79EABF5BE99BF006649435B1FFD0A1F8B0F84F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

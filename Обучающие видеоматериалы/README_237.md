@@ -22,6 +22,8 @@ LoftSchool | Комплексное обучение разработке на A
 magnet:?xt=urn:btih:0CDFA898D102E22FA19735A1A9DE86C20582B2E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:0CDFA898D102E22FA19735A1A9DE86C20582B2E6
 ```bash
 magnet:?xt=urn:btih:128B0FBE79B55F357267E8479AF7B9DD842A8978
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Michael Hartl | RUBY ON RAILS TUTORIAL (3RD ED.) (2014) PCRec [H.264] [EN]
 ```bash
 magnet:?xt=urn:btih:3ABB87D3C1251A7875FAD12D203057042B62E7BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:3ABB87D3C1251A7875FAD12D203057042B62E7BF
 magnet:?xt=urn:btih:5BA8F197F85D1387878AB17EDA0C212ABF763C7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:5BA8F197F85D1387878AB17EDA0C212ABF763C7C
 ```bash
 magnet:?xt=urn:btih:C24858EB4FF332E7F94758B469373F88A297CB63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:C24858EB4FF332E7F94758B469373F88A297CB63
 magnet:?xt=urn:btih:B0D6F88B265C440BACC590CC0F9D4A66B36279DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:B0D6F88B265C440BACC590CC0F9D4A66B36279DD
 ```bash
 magnet:?xt=urn:btih:40E5B19365A1E6A9A346A5485B2F9DA3D4E4CC69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +218,8 @@ kalachevaschool, Анна Эгида | [Анна Эгида] Онлайн-кур
 magnet:?xt=urn:btih:FE596CCBBE8B14D781078E0817E1F4D64088E638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ kalachevaschool, Анна Эгида | Онлайн-курс «Летний эк
 magnet:?xt=urn:btih:9435E16E8BFBD4C8DC1D79BF1473D71057A9B5E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ kalachevaschool, Анна Эгида | Летний экстрим-скетчи�
 ```bash
 magnet:?xt=urn:btih:98E50DA3AF74257257F8D7C0FD1A19FE6DEE8E80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +302,8 @@ kalachevaschool, Вероника Калачева и тд | Экстрим ск
 magnet:?xt=urn:btih:BBBB0B286A7922EC0938AB7D587CC6FACA0A273E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ kalachevaschool, Анна Эгида | Экстрим 5. Портрет горо
 magnet:?xt=urn:btih:9F75F34AA81474B558BCD1143A32FACB1E3096CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ kalachevaschool, Анна Расторгуева | Экстрим-скетчин
 ```bash
 magnet:?xt=urn:btih:B1C030DB90C72EBFF62872AA916BDAD8C43BA133
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +382,8 @@ Python - это высокоуровневый язык программиров
 magnet:?xt=urn:btih:F12A52AA08255F72CF4F3D1460464910A5480C8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ ITVDN | Коллекция видеокурсов (2015-2020) PCRec [H.264/720p-
 ```bash
 magnet:?xt=urn:btih:2223012944B786E010E48A7B66F15567CC80863A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ PHP был создан как Personal Home Page Tools - инструмент �
 magnet:?xt=urn:btih:7E99B33E415677E1726FD1D1D1EC6225B8FEAE64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:7E99B33E415677E1726FD1D1D1EC6225B8FEAE64
 ```bash
 magnet:?xt=urn:btih:354BF0E3914B86045721086A4913B74B7847BA0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ magnet:?xt=urn:btih:354BF0E3914B86045721086A4913B74B7847BA0E
 magnet:?xt=urn:btih:71E65050DEBCAD09C32894FF5B5461CE16511271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ ProfIT | Дао программиста. Путь к деньгам, свобо
 magnet:?xt=urn:btih:176C502272F510C60F696979818892547A06CBA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ Creative Cloud предоставляет последние обновлени�
 magnet:?xt=urn:btih:E6C74E84D3CB30DCA25B6CB03AD7098793E5443F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ Lynda.com | Photoshop CC 2015 for Photographers Fundamentals (2016) PCRec [H.264
 ```bash
 magnet:?xt=urn:btih:36DA04617367F64EA7BA675EBD36EFD516400C60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ Highlights | Основы веб-дизайна (2019) PCRec
 ```bash
 magnet:?xt=urn:btih:83D1C55AEA7E231513D922CDE4A86208D9EB098E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +628,8 @@ Mixing и многое, многое другое!(   Читать дальше.
 magnet:?xt=urn:btih:677E0AC714059C13C6286D73D5E8BD2B7E934ED5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ English Club TV Ltd | English in Focus [A1] (2019) HDTVRip [H.264/1080p-LQ] (у�
 ```bash
 magnet:?xt=urn:btih:8BAD50B212C8BE01F7446BCC4F6A75D6258ED64B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ VR-разработчик — это профессия будущего. Так
 magnet:?xt=urn:btih:22DA5C100830CABC7544394B3686D91F4A325FD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ English Club TV Ltd | City Grammar [A2,B1] (2014) HDTVRip [H.264/720/1080-LQ] (�
 ```bash
 magnet:?xt=urn:btih:44B3DC47D2CA2CA6C775BC1A96A111BF9DA80E7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

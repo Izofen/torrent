@@ -19,6 +19,8 @@ Welcome to Kowloon — хоррор от первого лица, в котор�
 magnet:?xt=urn:btih:9636AE5964F3AFAB8EBC381AE8CCC211DD33714E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Witcher 3: Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:B452C9DBBA80E321CDC0B5FBCE5E15308A930BD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Five Nights at Freddy’s: Security Breach - очередной эпизод в 
 magnet:?xt=urn:btih:F1F8D6D7C695412545B57C5D600CBB3AA7BBB9D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Frozen Garden - хоррор от третьего лица, вдохнов�
 ```bash
 magnet:?xt=urn:btih:DC4530F3DE7AD6C72DF82C5DDE254A54F875C5CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:DC4530F3DE7AD6C72DF82C5DDE254A54F875C5CC
 magnet:?xt=urn:btih:4D413433F97ACB6A400C76FBD5E7F76E0F007293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Ape Out - динамичный и яркий smash ‘em up про велики�
 ```bash
 magnet:?xt=urn:btih:021B1B4D03D3FA16C6C06DB067624E5853264AAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Repair House: Restoration Sim - это умиротворяющая и за�
 magnet:?xt=urn:btih:004220218D19EB388D5EF4F11BD1941151E2F99E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Madshot (2023) [Ru/Multi] (1.0) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:EBFAB93EB65BC67586A739D94C7C3E4D5A4444A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Unholy (2023) [Ru/Multi] (30649) Repack Other s
 magnet:?xt=urn:btih:F166542872863FEC0C6ED325CC76F5874CE0BF60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Tomb Raider: Trilogy (2013-2018) [Ru/Multi] (1.1.838.0/1.0.1027/1.0.492.0/dlc) R
 ```bash
 magnet:?xt=urn:btih:039563C953C82DDBB08B3878A804C658430839A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Unholy (2023) [Ru/Multi] (11746044) Scene FireLight
 magnet:?xt=urn:btih:1E804F2C4C1D98A78651DC991B314F51D2E060D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Remedium: Sentinels – это автошутер с элементами roguel
 ```bash
 magnet:?xt=urn:btih:0AC9A508EF96B327FCA74A20FE8871EA76E139CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Phoenix Point (2020) [Ru/Multi] (1.20.1/dlc) Repack dixen18 [Complete Edition]
 magnet:?xt=urn:btih:C743414B827D0EB8929ACFCB0433701A3CCF8532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ My Friendly Neighborhood погружает юзеров на роль прос�
 ```bash
 magnet:?xt=urn:btih:5E0272898E1123EF97596A1A70F7AFF9F9696E36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Please, Forgive Me (2023) [Ru/En] (1.4) Repack Other s
 magnet:?xt=urn:btih:9146B71F351638037961119F75B8605C311A4536
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Cave - стильный платформер, разработан Double Fi
 ```bash
 magnet:?xt=urn:btih:A41A7B87E70F3E9007F2C36650AFD025617B7DA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Rule of Land: Pioneers - двухмерный выживастик, в ко�
 magnet:?xt=urn:btih:DA9FA5194C6FCDFBD6A191FF2EAAC1ADF52B23AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Absolute Drift – гоночный симулятор с видом сверх�
 ```bash
 magnet:?xt=urn:btih:9AE021446A89BC488CA9507EC6CE4BDF95CC67D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Life is Strange Remastered Collection - интерактивное приклю�
 magnet:?xt=urn:btih:0DCC3473651F1B50F125167F1C8FB9ECDF32FBDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ OXENFREE 2: Lost Signals продолжает историю о мрачных �
 ```bash
 magnet:?xt=urn:btih:53B7D7C9A5FE08AD0E4DD87E52A358CC5B0AD278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Total War: Rome II (2) (2014) [Ru/En] (2.4.0.11535779/dlc) Repack dixen18 [Emper
 magnet:?xt=urn:btih:C60B9C3422C76856E5C908A43575741622510DC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Kena: Bridge of Spirits – сказочное приключение в оча�
 ```bash
 magnet:?xt=urn:btih:C36B75DA4326B54D2355D3BD579EB654E17513E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Nova Lands (2023) [Ru/Multi] (1.0.23) License GOG
 magnet:?xt=urn:btih:E914D9F0A02519F08C944AC6F6198E9C0A1BF966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Total War: Shogun 2 является продолжением первой ча�
 ```bash
 magnet:?xt=urn:btih:13F52623C5FA204EC38688CBF34B5DFDD2F898A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Man of Medan – это первая игра в антологии кинема
 magnet:?xt=urn:btih:439021874FB1A9F627FA02112DF07363BE0EBF68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ magnet:?xt=urn:btih:439021874FB1A9F627FA02112DF07363BE0EBF68
 ```bash
 magnet:?xt=urn:btih:9DFA6831B38DBA52F71C4B7F163E129273155BF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1460822   (1022140) от 07.04.2021
+
+Slam Dunk | Слэм-данк [1993, TV, 101 из 101] BDRip 1080p 10-bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022140.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ханамити Сакураги - обычный школьник средних классов, хвастун и задира, обладатель зычного голоса, высокого роста и рыжей шевелюры. Беда парня в том, что ему не везёт в амурных делах - уже с полсотни девушек отвергли его ухаживания. Перейдя в старшую школу "Сёхоку", он встречает девушку своей мечты - красавицу Харуко Акаги, в которую влюбляется без ума. (   Читать дальше...   )Производство: Toei Animation / 東映アニメーションЖанр: комедия, спортРежиссер: Нисидзава НобутакаПеревод: Honyaku-subs (1-70 эп.), Thief & Honoo (71 эп.), Captain America (72-74 эп.), Lerius FunSubs (75 эп.), Isairyu (76-84 эп.), Mortos (85-94 эп.), tetsy (95-101 эп.)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 101 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E929CFEF63E01A53D2A8D3DF0A24BCDA1DBE64C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460827   (1022141) от 07.04.2021
 
 Slam Dunk: Hoero Basketman-damashii! Hanamichi to Rukawa no Atsuki Natsu | Слэм-данк (фильм четвертый) [1995, Movie] BDRip 1080p 10-bit raw
@@ -18,6 +44,8 @@ Slam Dunk: Hoero Basketman-damashii! Hanamichi to Rukawa no Atsuki Natsu | Сл�
 ```bash
 magnet:?xt=urn:btih:23A1A670BD6F7165BD5906420DE45FC2A25F79B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ Slam Dunk | Слэм-данк (фильм первый) [1994, Movie] BDRip 1080
 magnet:?xt=urn:btih:590BE055589A34E72731DADAC86FB57270404E2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ Slam Dunk: Shouhoku Saidai no Kiki! Moero Sakuragi Hanamichi | Слэм-данк
 ```bash
 magnet:?xt=urn:btih:27C235251F5BFE1C8FFD83D3EE5DED4703E1C654
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ Slam Dunk: Zenkoku Seiha da! Sakuragi Hanamichi | National Champions, Sakuragi H
 magnet:?xt=urn:btih:4358F7D8A87B13D9432706BC1354F7A3C49AC72A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ Horimiya | Хоримия [2021, TV, 13] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:AF041F5F3C568BB38EFF19DB25295068A6BA0181
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ Gekidol: Actidol Project | Театрайдол [2021, TV, 12 эп.] WEBRip 720p
 ```bash
 magnet:?xt=urn:btih:B22DD12B1C3AEDA6C6B0FA17AA7588523A780152
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ Super Seishun Brothers | Супербратья Сэйсюн [2013, TV, 14] HDTV
 magnet:?xt=urn:btih:9D745CA3B629E1C7128908F5CFCA1F45CEB5F311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ SK∞ | SK8 the Infinity | На скейте в бесконечность [2021
 ```bash
 magnet:?xt=urn:btih:42A215E1A457B768496490A1925DB74081799322
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +259,8 @@ Log Horizon 3 / Лог горизонта [ТВ-3] [2021, TV, 12] WEBRip 720p ra
 magnet:?xt=urn:btih:D100B17CCBE6E90BE830AF1191C2A74F06CFDC29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ Majutsushi Orphen Hagure Tabi: Kimluck Hen | Sorcerous Stabber Orphen: Battle of
 ```bash
 magnet:?xt=urn:btih:55B5ECC54D392BCBF5A03BBB5288C0AA875F89BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ Tonikaku Kawaii: Fly Me to the Moon / Tonikawa: Over the Moon for You / Крас
 magnet:?xt=urn:btih:A658FF75879A57BDB7C2F447896D5675B05466EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ Hamefura | Bakarina | Otome Game no Hametsu Flag shika Nai Akuyaku Reijou ni Ten
 ```bash
 magnet:?xt=urn:btih:AA658E710DF8C533F59AA6849239664B9D9833F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ Aya to Majo | Earwig and the Witch | Ая и ведьма [2020, Special, 1 эп
 magnet:?xt=urn:btih:93635F50933F1EFA4FEA77986B68412E7817F72F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ Osomatsu-san (2020) | Mr. Osomatsu 3rd Season | Осомацу-сан [ТВ-3] [
 ```bash
 magnet:?xt=urn:btih:D6D402FAD84B85FEFD14B8B122EFCEE3E21C1A49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ Kemono Jihen | Инцидент с монстром [2021, TV, 12] WEBRip 720p r
 magnet:?xt=urn:btih:06CEBB3DA3C73A12A04415C0F2C3382F7280D8E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ Tenchi Souzou Design Bu | Heaven's Design Team | Небесное бюро ди�
 ```bash
 magnet:?xt=urn:btih:A428C8649FAC5A7393711EABA392DB58CE8CD2F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ Black Clover (2017) | Чёрный клевер [2017, TV, 91-170 из 170 + 8SP
 magnet:?xt=urn:btih:614C686E30214980368545774939724118F78F2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ Kaguya-sama wa Kokurasetai: Tensai-tachi no Ren'ai Zunousen | Kaguya-sama: Love 
 ```bash
 magnet:?xt=urn:btih:82E6AB3880001739DA52B83448696D2CBF8A14B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ Kaguya-sama wa Kokurasetai? Tensai-tachi no Ren'ai Zunousen | Кагуя: В л�
 magnet:?xt=urn:btih:6422F3B7595C06181720ED9385AEFBBF2CB53551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ Trinity Seven | Святая семёрка [2014, TV 12 эп. + 1 OVA + 2 Movie
 ```bash
 magnet:?xt=urn:btih:0DB133ECECB54C8CC670EB5662D6C28F5057C46E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +572,8 @@ Non Non Biyori: Nonstop | Деревенская глубинка [ТВ-3] [2021
 magnet:?xt=urn:btih:D238EC3E12F9B4CA40575A5C8D6E8F211F667380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ Toji no Miko + Mini Toji | Katana Maidens | Жрицы-мечницы + Мини
 ```bash
 magnet:?xt=urn:btih:C6BAA7B5C054E7FF657DFC14F47951DEA73E370A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +624,8 @@ Wave!! Surfing Yappe!! | На волне! Сёрфинг! [2020, TV, 12] WEB-DL 
 magnet:?xt=urn:btih:F190013BC57F76B758E922545040DA229A2EE08C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ Kanojo, Okarishimasu | Rent-A-Girlfriend | Девушка на час [ТВ-1] [
 ```bash
 magnet:?xt=urn:btih:EEA2477D1F1B9746F7C492158C819DBB4E802539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,29 +676,7 @@ Mahou Shoujo Lyrical Nanoha | Magical Girl Lyrical Nanoha | Лиричная в�
 magnet:?xt=urn:btih:00A8A747A6D6D359B4288AA62424A325AF884D20
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458481   (1023809) от 29.03.2021
-
-Mahou Shoujo Lyrical Nanoha StrikerS | Magical Girl Lyrical Nanoha StrikerS | Лиричная волшебница Наноха: Искатели [ТВ-3] [2007, TV, 26 эп.] BDRip 714p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Со времени событий второго сезона, который, в итоге, привел к вступлению в Бюро еще одной молодой волшебницы – умной и дальновидной Хаятэ Ягами, минуло девять лет. Наноха полностью довольна чином капитана и местом инструктора боя Воздушных Сил Бюро. Фейт стала приемной дочерью адмирала Линди и продвинулась до должности свободного агента Космофлота. Хаятэ стала подполковником (   Читать дальше...   )Производство: студия Seven Arcs / セブン・アークスЖанр: приключения, махо-сёдзёРежиссер: Кусакава КэйдзоПеревод: Hollow & ВиллиЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 26 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFB3FED7B2C01FE1CBC5A4218E5D2A496E316D20
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

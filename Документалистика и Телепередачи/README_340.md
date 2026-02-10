@@ -1,3 +1,29 @@
+###  Публикация: 942771   (453998) от 01.10.2015
+
+Открытая студия. Россия против ИГИЛ (01.10.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совет Федерации единогласно разрешил использовать вооруженные силы России за границей. Ранее с просьбой о военной помощи к руководству страны обратился сирийский лидер Башар Асад. Целью нашей операции станет исключительно воздушная поддержка вооруженных сил этой ближневосточной страны в их борьбе против террористического монстра ИГИЛ. Как будут действовать наши военные (   Читать дальше...   )Телекомпания: 5 канал, РоссияЖанр: общественно-политическое ток-шоуПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0A25ED133337FA4354B612AE8C754CA5D95F4BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942838   (454005) от 01.10.2015
 
 Пресс-конференция С. Лаврова по итогам 70-й ассамблеи ООН (01.10.2015) HDTVRip [720p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:A08CE46567028DE6AED350005BBD5F729280075E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:A08CE46567028DE6AED350005BBD5F729280075E
 magnet:?xt=urn:btih:E15D94D3553EA2487A4A82365E942442F2102A2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:E15D94D3553EA2487A4A82365E942442F2102A2A
 ```bash
 magnet:?xt=urn:btih:4C9BC534656E2CB0C92A4B955386747DF506FE8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:4C9BC534656E2CB0C92A4B955386747DF506FE8F
 magnet:?xt=urn:btih:635BC41956070907ABF829AAD07D76FEBB7CA82D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:635BC41956070907ABF829AAD07D76FEBB7CA82D
 magnet:?xt=urn:btih:106632E9B11A928D4C1CFB50E42521540CE56055
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ magnet:?xt=urn:btih:106632E9B11A928D4C1CFB50E42521540CE56055
 ```bash
 magnet:?xt=urn:btih:37E54E0B2E739D58C0263E19A3B69BCB24A732B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:37E54E0B2E739D58C0263E19A3B69BCB24A732B0
 magnet:?xt=urn:btih:71C6142B32A4B4EA36344EDF546B9FFE259A07D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:71C6142B32A4B4EA36344EDF546B9FFE259A07D1
 ```bash
 magnet:?xt=urn:btih:C3E7945BED5C79CC24D8916908C4D9EA8FB713AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:C3E7945BED5C79CC24D8916908C4D9EA8FB713AC
 magnet:?xt=urn:btih:A73D3E702CA99A2B3366C73F1CDBCED877A071FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:A73D3E702CA99A2B3366C73F1CDBCED877A071FA
 ```bash
 magnet:?xt=urn:btih:F45DE06969DFCE3D3BC5973321E9D8F24ED304BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:F45DE06969DFCE3D3BC5973321E9D8F24ED304BB
 magnet:?xt=urn:btih:70FC92F9C549D8AFAB8D94A75D6426DE687BA038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:70FC92F9C549D8AFAB8D94A75D6426DE687BA038
 magnet:?xt=urn:btih:AC898B2DD8D64C7CE5BC1D65BFC8CB36C368E171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:AC898B2DD8D64C7CE5BC1D65BFC8CB36C368E171
 ```bash
 magnet:?xt=urn:btih:0C36F99E7AB655FE137AFC7D14EBAD4A751EAC11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:0C36F99E7AB655FE137AFC7D14EBAD4A751EAC11
 magnet:?xt=urn:btih:99814A9C4385F91088E1075E9A71BA576BF3585F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:99814A9C4385F91088E1075E9A71BA576BF3585F
 ```bash
 magnet:?xt=urn:btih:22ED1E97C4C87B93A7CEEE23AF10D8D835D536C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:22ED1E97C4C87B93A7CEEE23AF10D8D835D536C9
 magnet:?xt=urn:btih:1A74AC4973F81CC3F781461E38898A07C12F7B71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:1A74AC4973F81CC3F781461E38898A07C12F7B71
 ```bash
 magnet:?xt=urn:btih:FDDBEB7E1AB6A9B9A59E117E08D383691A0A4FAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:FDDBEB7E1AB6A9B9A59E117E08D383691A0A4FAD
 magnet:?xt=urn:btih:D8F7DF603B5E222FCD75089D8244B3C371E0381A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:D8F7DF603B5E222FCD75089D8244B3C371E0381A
 ```bash
 magnet:?xt=urn:btih:EF8B88BA36BD4557EBA349ED0ADCEC900781A222
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:EF8B88BA36BD4557EBA349ED0ADCEC900781A222
 magnet:?xt=urn:btih:D2F8850E926A0B9018390E725C90D6072AC844E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:D2F8850E926A0B9018390E725C90D6072AC844E3
 ```bash
 magnet:?xt=urn:btih:67DD410FFD98E18572156C15D298D3B7FC9A2010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:67DD410FFD98E18572156C15D298D3B7FC9A2010
 magnet:?xt=urn:btih:9052FC6112C3EAE99F00F607EF383704D66AEEC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:9052FC6112C3EAE99F00F607EF383704D66AEEC8
 magnet:?xt=urn:btih:44CF998B9640E570A97773C6B2D34ECFA111A79E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:44CF998B9640E570A97773C6B2D34ECFA111A79E
 ```bash
 magnet:?xt=urn:btih:52BD91E1F1874F65AE389277CE3AEDA3EC7AD6D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:52BD91E1F1874F65AE389277CE3AEDA3EC7AD6D3
 magnet:?xt=urn:btih:90530A251DC07A9842D98CDCC0A7FEBD309426B2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163000   (454863) от 03.09.2017
-
-Вести недели (03.09.2017) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454863.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Вести недели» - еженедельная итоговая информационная программа Всероссийской государственной телерадиокомпании, выходящая в эфир по воскресеньям в 20.00, с хронометражем от 1 часа 10 минут до 1 часа 30 минут. Программа «Вести недели» не имеет рубрик, но внутри неё может показываться в кратком виде фрагменты из программы «Специальный корреспондент».Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 01:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D80E7C173BECB8BF362A3C62D5280A435DEAD42F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

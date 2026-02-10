@@ -20,6 +20,8 @@ Vetcalculators - это коллекция ветеринарных кальку
 magnet:?xt=urn:btih:62A43F473DB3BD64189CD663B26822D6C8A70A1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:62A43F473DB3BD64189CD663B26822D6C8A70A1E
 magnet:?xt=urn:btih:6C38A49CD7424AD7DE28DF501C7E05273C4287B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Audio Books – новая платформа для прослушивания 
 magnet:?xt=urn:btih:4291A72B08540ACB1EF5FCE3189F5DFCBD05E756
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Meditative Mind v2.96  [En]
 ```bash
 magnet:?xt=urn:btih:39A322842915F2D7700B54B590BF1F48AE02C4B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:39A322842915F2D7700B54B590BF1F48AE02C4B2
 magnet:?xt=urn:btih:3BBC4288FA21C789CE4362E524DC06ED7D4AF4C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ TOEFL – достаточно сложный комплексный станд�
 ```bash
 magnet:?xt=urn:btih:7F6738D0CBFF2B2CA9826F677FE8BCAB18723F82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ English Idioms & Slang Phrases v1.2.6 [Ru]
 magnet:?xt=urn:btih:8279358720B4551D96F924BDC2225317AF0F16D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:8279358720B4551D96F924BDC2225317AF0F16D2
 ```bash
 magnet:?xt=urn:btih:AF5C5F41D128946E9D71A80D043052021AF322A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ AIMP - это легковесный мобильный аудиоплеер п�
 magnet:?xt=urn:btih:46BFC93C1D65E3C5E00280582F93A5DA465BFC77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Day R Survival – интересная игра в которой вам пре
 ```bash
 magnet:?xt=urn:btih:AEC507992DBAF3F85E9CE501C62D8A593275AA94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ Flight Simulator 2d - realistic sandbox simulation - довольно неста
 magnet:?xt=urn:btih:0BA225BD137E9470751AB1EDAB901BF0EA611F87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ Age of Civilizations II - продолжение геополитической 
 magnet:?xt=urn:btih:32096B8A66F3EE2BD932B17AA97DF04CCA33652C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ Shadow Hunter : Lost World - Epic Hack and Slash v0.20.8.4 [En]
 ```bash
 magnet:?xt=urn:btih:A1613D2EC89729DCD627D05DBA325A4290FF9477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ ExoMiner - Idle Miner Adventure
 magnet:?xt=urn:btih:B9C6B98A6843EF40DBBA6DFFC51A59D7ACDC2103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ Shamdo - серия медитаций и гипнотических индук�
 magnet:?xt=urn:btih:8D816AC950ABA2F7C1EFA369B4ABA43C6C3001CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:8D816AC950ABA2F7C1EFA369B4ABA43C6C3001CC
 ```bash
 magnet:?xt=urn:btih:051485DC5E485285109B6679846FF42515A20D13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ FlexR дает Вам возможность создавать расписан
 magnet:?xt=urn:btih:3F9BAA73082C3CA61C104EAA0540DA04FD81094B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ Garmin: City Navigator Thailand NT 2015.20 (Dual+Thai) [En/Th]
 ```bash
 magnet:?xt=urn:btih:13F9C52AB4791BC3BF70DC9A8705B2DF7DBAE158
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ Garmin: Bulgaria OFRM Geotrade - 2015 Q4 [Bg]
 magnet:?xt=urn:btih:15B64EFE8258F45AC44A35200D4D6ADA83903FED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ Garmin: City Navigator Philippines NT 2015.40 [En]
 ```bash
 magnet:?xt=urn:btih:4F635C9E6CE2F4F26C99BC86A05A9950C7961EA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ Next - это не очередное фитнес приложение с на�
 magnet:?xt=urn:btih:CD77A8FA1B75A13DD9CE1DAFC3D5AE27F954F63A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ Webcams - отличное приложение, что предоставляе
 ```bash
 magnet:?xt=urn:btih:65BF3D273173B4A962FF622F0F9A138C85AE2EB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +608,8 @@ State of Survival - постапокалиптическая стратегия,
 magnet:?xt=urn:btih:BBB1E22871CE3C5486937F20DD4D8964B71AB8DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ Street Racing Grand Tour - отличный гоночный проект от H
 ```bash
 magnet:?xt=urn:btih:74CA9B43C26E87CA9EF85588C4D2B3C2291192A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ Listen Audiobook Player v5.2.2 (979) Mod by derrin [Ru/Multi]
 magnet:?xt=urn:btih:A9D1C6F75DA294A0F952E6B97D3512874DC9D788
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Space Marshals 3 - это сюжетная история в жанре экшн
 ```bash
 magnet:?xt=urn:btih:435825018CCF34D8C620F93A1BD036916DC0F5DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1224571   (664719) от 11.05.2018
+
+Олег Иванов | Как найти деньги для вашего бизнеса. Пошаговая инструкция по привлечению инвестиций (2018) [EPUB, FB2, MOBI, PDF]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664719.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассказывается о том, как привлечь инвестиции в малый бизнес, не связанный с инновациями и высокими технологиями. Вы узнаете, какие мотивы движут инвесторами и какие семь шагов необходимо сделать для привлечения инвестиций: от оценки проекта и подготовки пакета документов до нюансов юридического оформления и жизни после инвестиционной сделки. В каждой главе (   Читать дальше...   )Жанр: Бизнес, Финансы, ИнвестицииФормат: EPUB, FB2, MOBI, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D8914647461E52C0A41BEF030BCB3560ACED3B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224557   (664720) от 11.05.2018
 
 Ян Бекер | Ты можешь все, что захочешь! Как использовать магию подсознания для трансформации жизни (2018) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:85673D6735D19540C784A31926336C7B714E3CB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:85673D6735D19540C784A31926336C7B714E3CB7
 magnet:?xt=urn:btih:EF90D5C125FFE1E5778BE4AC74EE9FA085C04C48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:EF90D5C125FFE1E5778BE4AC74EE9FA085C04C48
 magnet:?xt=urn:btih:0A743F14696C2090F4AFDA65CF0F57B618A01639
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:0A743F14696C2090F4AFDA65CF0F57B618A01639
 magnet:?xt=urn:btih:E7595F000E17CEEF35A61F1467D8FFEE0115D202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:E7595F000E17CEEF35A61F1467D8FFEE0115D202
 ```bash
 magnet:?xt=urn:btih:2A33DEA0397CE3507B229E83FFE7C0B43366B265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:2A33DEA0397CE3507B229E83FFE7C0B43366B265
 magnet:?xt=urn:btih:8620B4D7B0B6EB42DE585085B197EA1A481A91D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:8620B4D7B0B6EB42DE585085B197EA1A481A91D3
 ```bash
 magnet:?xt=urn:btih:DD59909C8A3DE4719811CB9C6338CB3139C6BA18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:DD59909C8A3DE4719811CB9C6338CB3139C6BA18
 magnet:?xt=urn:btih:EC6A3DF78C3F19B32EB2EA60799BCA0FD75A7A41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:EC6A3DF78C3F19B32EB2EA60799BCA0FD75A7A41
 ```bash
 magnet:?xt=urn:btih:53B3E62A97F8BA1B2DDDB91369C454B9B852BC6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +290,8 @@ magnet:?xt=urn:btih:53B3E62A97F8BA1B2DDDB91369C454B9B852BC6A
 magnet:?xt=urn:btih:76CDB711AC0981B7103F5B055E053714A733667C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +315,8 @@ magnet:?xt=urn:btih:76CDB711AC0981B7103F5B055E053714A733667C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +342,8 @@ magnet:?xt=urn:btih:76CDB711AC0981B7103F5B055E053714A733667C
 magnet:?xt=urn:btih:CBA0AADBDD9E5D3DF8EF219F6764FDD254062467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:CBA0AADBDD9E5D3DF8EF219F6764FDD254062467
 ```bash
 magnet:?xt=urn:btih:105A6B115B336AD1B8124458E78DA9CDC215D7CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +396,8 @@ Hygge (хюгге) – это настоящий секрет счастья! С
 magnet:?xt=urn:btih:B05EE5D8F417AC4EA8E5FC99A15C62290DF095D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +421,8 @@ magnet:?xt=urn:btih:B05EE5D8F417AC4EA8E5FC99A15C62290DF095D0
 ```bash
 magnet:?xt=urn:btih:1906A5077E2E93FAA6C67DB6BCEE2C3A616EB64C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +449,8 @@ magnet:?xt=urn:btih:1906A5077E2E93FAA6C67DB6BCEE2C3A616EB64C
 magnet:?xt=urn:btih:BAD0F584499ACA8180FE024AC94F64744C8E569F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +475,8 @@ magnet:?xt=urn:btih:BAD0F584499ACA8180FE024AC94F64744C8E569F
 magnet:?xt=urn:btih:15B5B76E6220887E911E6CAB5F9C8223DD82FDDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +500,8 @@ magnet:?xt=urn:btih:15B5B76E6220887E911E6CAB5F9C8223DD82FDDC
 ```bash
 magnet:?xt=urn:btih:F367E9D177E6297AC6AA8B37B625B467D708B087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +528,8 @@ O.K. Савельева (сост.) | 100 лучших рецептов торт
 magnet:?xt=urn:btih:5371A8F996DDE9A27251D6C072F5AF65F38E6C81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +553,8 @@ magnet:?xt=urn:btih:5371A8F996DDE9A27251D6C072F5AF65F38E6C81
 ```bash
 magnet:?xt=urn:btih:DA588410EBFD34058D0D8AA49AF61FB457EAEE4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:DA588410EBFD34058D0D8AA49AF61FB457EAEE4C
 magnet:?xt=urn:btih:A8631CB10824377D1322674504B6FA3A41799531
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:A8631CB10824377D1322674504B6FA3A41799531
 ```bash
 magnet:?xt=urn:btih:0677A0994EAB11FC46CCC29393863A23C81F417D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:0677A0994EAB11FC46CCC29393863A23C81F417D
 magnet:?xt=urn:btih:A33E96A5E98AE821AC095B4379B1549F4400134B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:A33E96A5E98AE821AC095B4379B1549F4400134B
 ```bash
 magnet:?xt=urn:btih:59CE95473BDA5C4823C2E4DF03F8C3CE1A634363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,31 +684,7 @@ magnet:?xt=urn:btih:59CE95473BDA5C4823C2E4DF03F8C3CE1A634363
 magnet:?xt=urn:btih:669A78B9D0FC1AFC8C103DEB65544AF6A042199F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224196   (667190) от 09.05.2018
-
-С. Димитракопулос | Нектарий Пентапольский — святой наших дней (2012) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Труд С. Димитракопулоса, основанный на всестороннем изучении источников, освещает множество неизвестных и малоизвестных фактов биографии святителя Нектария Пентапольского (Эгинского). Главная особенность книги — обширные выдержки из самых разнообразных документов, характеризующих ближайшее окружение святого и духовно-нравственную атмосферу его времени.
-
-Хотя церковное (   Читать дальше...   )Жанр: ПравославиеПеревод: Ю.С. ТерентьевФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8994785B5DDE3A55E4B8E892CF1C49F33CE3AFE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

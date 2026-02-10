@@ -22,6 +22,8 @@ There are a lot of other courses on this topic. So, why would you choose exactly
 magnet:?xt=urn:btih:5819E2302CA3370C1533B6A77E6A004915D18493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Stepik, Илья Фофанов | React - Полное руководство (2
 magnet:?xt=urn:btih:2F12F766EEE47A1E6DD1C5F62B889D540ABA41A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Stepik, Shultais Education, Никита Шультайс | Проектиров
 ```bash
 magnet:?xt=urn:btih:9E1FAFD2E00E1B096B43D9C1F9E62D580B659DD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ This course is designed to be clear and understandable - and fun! But we also go
 ```bash
 magnet:?xt=urn:btih:06E6C1A5D1A9B73E4530C124CFF271F4C28BAF98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ Do you have no programming experience whatsoever? Or maybe you have worked with 
 magnet:?xt=urn:btih:01CF3B0AD963421A6BAD8A92B47C03550460F6AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ Get those skills with this course! It's is a great chance to work on a real Kube
 ```bash
 magnet:?xt=urn:btih:AF4A0E87F820F8F1F6F06A60679E8ADC21C3FD74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ You like to stay home & learn from your own computer?
 magnet:?xt=urn:btih:927318FF8FC555D6833B5F01BF742E43B1E1820F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ SD.CODE, Сергей Дмитриевский | Мышление Програм
 magnet:?xt=urn:btih:4451ECCD042B734E2406E7E6A4FADA9A106F7344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ Udemy, Nikita Sergeev | Excel: основное для работы с масс�
 ```bash
 magnet:?xt=urn:btih:51D69FA165389C73A7811639156C6B61093DCE37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +277,8 @@ Podlodka Crew | Записи Go Crew #1 - «Внутренний тулинг» 
 magnet:?xt=urn:btih:D0832F165506C61B9D9080EF4E6EDB808A06543E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +306,8 @@ Podlodka Crew | Записи Java Crew #2 «Микросервисная арх�
 magnet:?xt=urn:btih:2E617740ECE82BC59634546191DE32CFEE9D3C30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +333,8 @@ You can always (   Читать дальше...   )Производство: Ud
 ```bash
 magnet:?xt=urn:btih:7A20AE2335E4BB74FB25E11797093AF796689460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +362,8 @@ You can always use the latest versions for spring boot, and other dependencies i
 magnet:?xt=urn:btih:0DBA31E123248FA7C23DCFA722E8D33102E5EADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +390,8 @@ FrontendMasters, Jen Kramer | Practical CSS Layouts (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:EED5E9353F1DFC0C2DE72A7E671C66B4FAB40A2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +416,8 @@ leerob | Mastering Next.js (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:32D325217FD0DC8ADAAC136AC721E096B70B70A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +441,8 @@ HolyJS 2023 Spring - большая конференция для JS-разра�
 ```bash
 magnet:?xt=urn:btih:85E9191DC0B1C01A6300219684A1457C2E842992
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +469,8 @@ magnet:?xt=urn:btih:85E9191DC0B1C01A6300219684A1457C2E842992
 magnet:?xt=urn:btih:032B949C20DD0567B8F20D5F66764B6B249C72DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +494,8 @@ Do you want to gainПроизводство: UdemyЖанр: Программир
 ```bash
 magnet:?xt=urn:btih:4A1E4829907BA43BB9DC478CE677A564ACF64669
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +524,8 @@ magnet:?xt=urn:btih:4A1E4829907BA43BB9DC478CE677A564ACF64669
 magnet:?xt=urn:btih:4B775A0F85830993D86A5344F4CD75C78319A012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +551,8 @@ This course uses a mix of theory and practice. We will create dozens of little U
 ```bash
 magnet:?xt=urn:btih:43DDD296CD1D47747A3CFA37D6566B1527986DD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +581,8 @@ Foxford (Фоксфорд), Валерия Савина | Практически
 magnet:?xt=urn:btih:E0BC6EC425D43B2BFA22AA672BC27CE08BFDC034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +610,8 @@ magnet:?xt=urn:btih:E0BC6EC425D43B2BFA22AA672BC27CE08BFDC034
 magnet:?xt=urn:btih:0464DD549B1B966454D0848240102C69E54130E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +637,8 @@ C# - один из немногих языков программировани�
 ```bash
 magnet:?xt=urn:btih:994E49786C99EF358002723E448E51DE2B1A31FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +666,8 @@ magnet:?xt=urn:btih:994E49786C99EF358002723E448E51DE2B1A31FF
 magnet:?xt=urn:btih:86D9B08DAD7F1AE61A9E3DBF3013524B66D5B869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +693,8 @@ magnet:?xt=urn:btih:86D9B08DAD7F1AE61A9E3DBF3013524B66D5B869
 ```bash
 magnet:?xt=urn:btih:5B1A866844B11042AE213550CFF03D4A31C15735
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +722,8 @@ magnet:?xt=urn:btih:5B1A866844B11042AE213550CFF03D4A31C15735
 ```bash
 magnet:?xt=urn:btih:844C8FF30C543BB234EB067C96FF59824E340947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

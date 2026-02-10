@@ -22,6 +22,8 @@ VA - Rock Mixtape (2018) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:63096F763DBDC74127A142BB84F117815B2EDC45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Vivienne Mort - Досвід (2018) [MP3|320 Kbps] <Indie-Rock>
 magnet:?xt=urn:btih:1211BE2ADB44E37A6FB06776E100F5CB0B087762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ Neal Morse (Нил Морс) - Testimony (2003) Inside Out Music, 2xCD, Album, P
 ```bash
 magnet:?xt=urn:btih:F4B16A9232FF8A686A97106D4351A4E4A8EA9B51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ Neal Morse (Нил Морс) - The Transatlantic Demos (2003) Radiant Records [M
 magnet:?xt=urn:btih:F045E906E81A5FDABAE104C65C675D7F278838CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ Neal Morse (Нил Морс) - It's Not Too Late (2001) Ear Candy Records [MP3|3
 ```bash
 magnet:?xt=urn:btih:9FA65634DB29C212F6B8CC65C6992DBD193EB178
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +165,8 @@ John Dummer's Oobleedooblee Band - Oobleedooblee Jubilee (1973) Reissue, 2005 [M
 magnet:?xt=urn:btih:B2357E58656CE1E69F019DE0477DEA425A7A06C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ Neal Morse (Нил Морс) - Neal Morse (1999) Radiant Records, Metal Blade Re
 ```bash
 magnet:?xt=urn:btih:1B775E228F7D650FE9BA00DC81EE0E6FB70DCEBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ Stefan Kaiser - Dreaming in Pink Floyd (2018) [MP3|320 Kbps] <Progressive Rock>
 magnet:?xt=urn:btih:08C500B994417BD9E2C760B06A289D48B9294D90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ Dizzy Reed - Rock 'N Roll Ain't Easy (2018) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:A5585A27B301A004433FA00C704FCFC29FE864FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +281,8 @@ Pop Evil образовался в далеком 2001 году на облом�
 magnet:?xt=urn:btih:504EBE8226B05C60B50AC611E2FA2D1AEB2F2234
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ Pop Evil образовался в далеком 2001 году на облом�
 ```bash
 magnet:?xt=urn:btih:BC943B55C8CE70999B9A0CBC18CFA7E0FFD0A61A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +339,8 @@ Pop Evil образовался в далеком 2001 году на облом�
 magnet:?xt=urn:btih:DC193DBAE428838F9C8B24E39370B2C355279D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ Pop Evil образовался в далеком 2001 году на облом�
 ```bash
 magnet:?xt=urn:btih:B4EE834CED6E5F5D8F95A7C0DE3BAAD05CCBEF17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +397,8 @@ Pop Evil образовался в далеком 2001 году на облом�
 magnet:?xt=urn:btih:DE3AFE8D0E8D389328A6A7F34EAC63F631A3D35B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ Pop Evil образовался в далеком 2001 году на облом�
 ```bash
 magnet:?xt=urn:btih:21A6F605D26C5D1949635D5860FC710912A8037D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ Steven R. Smith (Стивен Р. Смит) - Gehenna Belvedere (1996) Autopia [
 magnet:?xt=urn:btih:2DF41F945FDD233E0390231594055585407960FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ Toto - Super Hits (2004) [MP3|320 Kbps] <Soft Rock, Classic Rock>
 magnet:?xt=urn:btih:E0E53150D71F68E118B02F3D65E1F67AD74F8D08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +512,8 @@ Steven R. Smith (Стивен Р. Смит) - Log The Man Dead (1995) Autopia, M
 ```bash
 magnet:?xt=urn:btih:1C3A80E133C33652142DA8D934254AB04D54B9CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +548,8 @@ Shocking Blue - Venus (3 Albums) (1990) [MP3|320 kbps]<Classic Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +583,8 @@ Shocking Blue - 6 Japan Remastered Albums (1968-1984) [MP3|320 kbps]<Classic Roc
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +611,8 @@ Abney Park (Эбни Парк) - индастриал-группа, основа
 ```bash
 magnet:?xt=urn:btih:A723EB1EC417FF7705462E629AE7ADEB0FE54454
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +641,8 @@ Abney Park (Эбни Парк) - индастриал-группа, основа
 magnet:?xt=urn:btih:9CA49C1DD22F6AFC12A5F72E77C50306F05E9550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +669,8 @@ White Wing - White Wing (1976) Remastered, 2017, PROGAOR [MP3|320 Kbps] <Prog Ro
 ```bash
 magnet:?xt=urn:btih:E02BA2DF4413EE368BAF98DCA87E29438584A638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +699,8 @@ Abney Park (Эбни Парк) - индастриал-группа, основа
 magnet:?xt=urn:btih:2DA4A30173E46C8E780A7C340E64D1C290F8350F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -680,6 +728,8 @@ Abney Park (Эбни Парк) - индастриал-группа, основа
 magnet:?xt=urn:btih:74835CCF40CD43160FC2E80918F448E2F954BA5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -706,6 +756,8 @@ Abney Park (Эбни Парк) - индастриал-группа, основа
 ```bash
 magnet:?xt=urn:btih:8FEE1CEC50A241061B1054BA81871971E78A0D70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

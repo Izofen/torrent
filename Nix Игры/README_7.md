@@ -19,6 +19,8 @@ Slime Rancher - оригинальный симулятор по разведе�
 magnet:?xt=urn:btih:22FD0F648767F2A240384F777C9231F117F8386B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:22FD0F648767F2A240384F777C9231F117F8386B
 ```bash
 magnet:?xt=urn:btih:343ADA4D59BCB9E7A49E09C8B398123A6A6C2B54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:343ADA4D59BCB9E7A49E09C8B398123A6A6C2B54
 magnet:?xt=urn:btih:7680429DAAFEB3ABEBA7E03A94C950B2235F49DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:7680429DAAFEB3ABEBA7E03A94C950B2235F49DC
 ```bash
 magnet:?xt=urn:btih:6F985ACCD29D904AC7F80A88EDFE30DFF3AA3995
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Lara Croft GO – пошаговая головоломка, главной ге
 magnet:?xt=urn:btih:E7142D23E5E03575F7721B80D3A481F4B14B2C7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:E7142D23E5E03575F7721B80D3A481F4B14B2C7E
 ```bash
 magnet:?xt=urn:btih:F8C422D70315DFDCDA1EF120D9C1557A178F1F0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Payday 2 - игра в жанре симулятора ограбления (п�
 magnet:?xt=urn:btih:50D5D6C154E412CF4A0A30188EF263AD3539DD2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:50D5D6C154E412CF4A0A30188EF263AD3539DD2D
 ```bash
 magnet:?xt=urn:btih:B2C645BD06A6599C12E214BD74594D3A57D33C20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:B2C645BD06A6599C12E214BD74594D3A57D33C20
 magnet:?xt=urn:btih:EAB69554379FBA78FAFBDEC83D025AC87BE5B4EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Enter the Gungeon — это подземное приключение со ст
 ```bash
 magnet:?xt=urn:btih:F39D7AC7E26CC4F070B26D35AFD1A025F1A11334
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:F39D7AC7E26CC4F070B26D35AFD1A025F1A11334
 magnet:?xt=urn:btih:5B409AFA258F6C03A30F052F3AD8525885358AD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:5B409AFA258F6C03A30F052F3AD8525885358AD4
 ```bash
 magnet:?xt=urn:btih:AF39BF3E5272A1B181864AA430B937AE1C506CEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Motorsport Manager - это лучший в своем классе спорти
 magnet:?xt=urn:btih:335047A24CBF33B824CC29E10222D69D638B9186
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:335047A24CBF33B824CC29E10222D69D638B9186
 ```bash
 magnet:?xt=urn:btih:367873DE5EC9338208FCFF0E70661AA1A3C46949
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:367873DE5EC9338208FCFF0E70661AA1A3C46949
 magnet:?xt=urn:btih:68856BFF89DAAFFB36820DABF9D9B99867574AA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ CatchaAll - игра сделанная по мотивам легендарно
 ```bash
 magnet:?xt=urn:btih:BC394838A8B9D723ACB8F489ECF7F36FAE6C420D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:BC394838A8B9D723ACB8F489ECF7F36FAE6C420D
 magnet:?xt=urn:btih:B979E06284292A11C5AB9CE38EBA6F20C6D97CCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:B979E06284292A11C5AB9CE38EBA6F20C6D97CCB
 ```bash
 magnet:?xt=urn:btih:65AD4A438207D116770A68DCA7974FC259C9B628
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ NIGHT IN THE WOODS — полный сюрреализма инди-квест �
 magnet:?xt=urn:btih:06DAEDB1CCADF6352D07071C23232987B8D601CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Big Game Hunter: Pro Hunts - лучший на данный момент сим�
 ```bash
 magnet:?xt=urn:btih:9DA5E8C83457733A0248A62C8720888F9576189B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:9DA5E8C83457733A0248A62C8720888F9576189B
 magnet:?xt=urn:btih:99586CF62B7DBCA52BBA6238FF95BDCD8910F7B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ magnet:?xt=urn:btih:99586CF62B7DBCA52BBA6238FF95BDCD8910F7B9
 ```bash
 magnet:?xt=urn:btih:1314922B61046A864CE2D90F99ECA801BE270573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Spin Tires — уникальный симулятор от компании Oov
 magnet:?xt=urn:btih:5385BCB1C8D674D919A463CF0A0F5A3949036DED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ TERA Online — это бесплатная фентези ммо rpg новог
 ```bash
 magnet:?xt=urn:btih:981C62B79D8AB7DDC65760E743D9CE702B154AE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Bastion - ролевая игра с принципиально новым вз�
 magnet:?xt=urn:btih:AD927CDB1FF9A9992BCD5DB40A58795778DDFA0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ magnet:?xt=urn:btih:AD927CDB1FF9A9992BCD5DB40A58795778DDFA0F
 ```bash
 magnet:?xt=urn:btih:D9F24100005F9F13956708B275C29A62600E7243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

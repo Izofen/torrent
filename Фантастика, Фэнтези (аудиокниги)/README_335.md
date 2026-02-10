@@ -1,3 +1,29 @@
+###  Публикация: 1572590   (421206) от 27.08.2022
+
+Алекс Анжело | Мир Дэвлата (Книга 1). Сон и Пепел (2021) [MP3, Марина Тропина]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_421206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Люций Моран открыл на материке новый портал в Серый мир, это стало катастрофой – энергия тьмы снова вырвалась наружу. С тех пор прошло больше четверти века. Дэвлат изменился: его земли заполонила нечисть, а великие королевства стоят на пороге войны. В это время, в сердце леса, студентка Академии Снов, пропавшая двадцать семь лет назад и считавшаяся погибшей, (   Читать дальше...   )Жанр: Героическое фэнтези, Магические академииПродолжительность: 10:08:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5565B9BADC3642590DA17DE59C7E6D1EBAC839BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572597   (421216) от 27.08.2022
 
 Алекс Анжело | Мир Дэвлата (Книга 2). Кровь и Плен (2022) [MP3, Марина Тропина]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:B9A8F0A86F816A28D4992E5D951F30107C45731D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:B9A8F0A86F816A28D4992E5D951F30107C45731D
 ```bash
 magnet:?xt=urn:btih:E659C4FDB283101F0471B44EEF72A40A7A6D6238
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +102,8 @@ magnet:?xt=urn:btih:E659C4FDB283101F0471B44EEF72A40A7A6D6238
 magnet:?xt=urn:btih:808AAF140B400B878C0E1F3967D2FA610EF70B85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:808AAF140B400B878C0E1F3967D2FA610EF70B85
 ```bash
 magnet:?xt=urn:btih:D309CB5784E581F6331E216656348E21DC4813EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:D309CB5784E581F6331E216656348E21DC4813EF
 magnet:?xt=urn:btih:262516F6583B12866F10023BBD3520475CB378A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:262516F6583B12866F10023BBD3520475CB378A4
 magnet:?xt=urn:btih:9AFA66A76A3A0BFB968D182A19122C934D500DBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:9AFA66A76A3A0BFB968D182A19122C934D500DBD
 ```bash
 magnet:?xt=urn:btih:42C01DF7E7A88E8CB867CEE161BE97ED4221DA85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:42C01DF7E7A88E8CB867CEE161BE97ED4221DA85
 magnet:?xt=urn:btih:E2DF2618653A8D3E588AF742823867CAEAA1C892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:E2DF2618653A8D3E588AF742823867CAEAA1C892
 ```bash
 magnet:?xt=urn:btih:D958261ED317E7DE1951953493A78502CFBDBD7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:D958261ED317E7DE1951953493A78502CFBDBD7B
 magnet:?xt=urn:btih:5FE5589C18AA79EE7FEF8DFDB7F52F6C318D7DB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:5FE5589C18AA79EE7FEF8DFDB7F52F6C318D7DB2
 magnet:?xt=urn:btih:3DAA9D9B1E34C882D8CA3DA9FE88B9B33B3060C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:3DAA9D9B1E34C882D8CA3DA9FE88B9B33B3060C6
 ```bash
 magnet:?xt=urn:btih:25DA4FF5E12EDF7B361D8E24352A5163D05962FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:25DA4FF5E12EDF7B361D8E24352A5163D05962FA
 magnet:?xt=urn:btih:08D61221E8F12F9E70C57EB6EAFADF90DCB2ED8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:08D61221E8F12F9E70C57EB6EAFADF90DCB2ED8A
 ```bash
 magnet:?xt=urn:btih:72A0BD7C98397A7D09FBB06213A598A8D9672077
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:72A0BD7C98397A7D09FBB06213A598A8D9672077
 magnet:?xt=urn:btih:398AB843BA281F943D99467A0389F8A4D24E830E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:398AB843BA281F943D99467A0389F8A4D24E830E
 ```bash
 magnet:?xt=urn:btih:700572C6567A2D9795D2EC053212724F33ECA887
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:700572C6567A2D9795D2EC053212724F33ECA887
 magnet:?xt=urn:btih:8758E0702CBCB97B9124937E094FFC1D002BDC75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:8758E0702CBCB97B9124937E094FFC1D002BDC75
 ```bash
 magnet:?xt=urn:btih:75BBC5E1AF903B805525C3E463D0D97A11B21E77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:75BBC5E1AF903B805525C3E463D0D97A11B21E77
 magnet:?xt=urn:btih:C0F9B82F1469459653C08EDD12C839B79B710CE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:C0F9B82F1469459653C08EDD12C839B79B710CE5
 magnet:?xt=urn:btih:0BEDADA3C81B3C73F793D40D171569670F1C76AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:0BEDADA3C81B3C73F793D40D171569670F1C76AD
 ```bash
 magnet:?xt=urn:btih:B41D4EA3AF6BD684C00A0B0EF6239ADF49487CF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:B41D4EA3AF6BD684C00A0B0EF6239ADF49487CF0
 magnet:?xt=urn:btih:E6374A1F3EF21BE558B073A19960DED9E757E61C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:E6374A1F3EF21BE558B073A19960DED9E757E61C
 ```bash
 magnet:?xt=urn:btih:975060A740208BDE563736BDFCD64EE5B0B227E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:975060A740208BDE563736BDFCD64EE5B0B227E9
 magnet:?xt=urn:btih:276A973BAFCA991FED9F4F74A106BA57EA7C6ECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,30 +677,7 @@ magnet:?xt=urn:btih:276A973BAFCA991FED9F4F74A106BA57EA7C6ECD
 magnet:?xt=urn:btih:D0AE0A10E223A477096B5FB9E04B536065B5FE37
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572172   (425503) от 25.08.2022
-
-Оксана Гринберга | Чуть больше о драконах (2022) [MP3, Наталья Романова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_425503.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Чуть больше о драконах» – фантастический роман Оксаны Гринберги, жанр любовное фэнтези, приключенческое фэнтези.
-Получив стипендию, я переехала в столицу, чтобы узнать чуть больше о драконах. Меня ждут два последних года в лучшей Академии Магии королевства и… неприятности, в которые я не собиралась ввязываться. Особенно падать на голову лорду-канцлеру Астара и уж (   Читать дальше...   )Жанр: Любовное фэнтези,  Фэнтези про драконовПродолжительность: 07:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767438C5CD8051BC1BFC58CA95C38AF07DCAF49B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

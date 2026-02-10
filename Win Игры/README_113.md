@@ -19,6 +19,8 @@ Song of Farca (2021) [Ru/Multi] (1.0.2.25) License GOG
 magnet:?xt=urn:btih:739A3DF0518E07672C29BE884A9826E4567B5760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Shadow Warrior - шутер от первого лица от создателе
 ```bash
 magnet:?xt=urn:btih:A8058D2326DD1058F760A44AEC78F62622521E2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ STAR WARS: Bounty Hunter (2024) [Ru/Multi] (1.1 patch 2) License GOG
 magnet:?xt=urn:btih:B0FB3FCD4899741C1BCCE9B8FD25A51481CCDF14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Airship: Kingdoms Adrift - это симулятор торговли и бое�
 ```bash
 magnet:?xt=urn:btih:5E4F105C0253F9DBF9C287C150168043B1CBFDB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Star Trail - это верный ремейк классического про�
 magnet:?xt=urn:btih:82A8776833FDF1D639B74E5604A1439CF8E685F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:B23EBABE61956EF2A17091D2636332C8E02DB787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Ghost Treasure / Призрачные сокровища (2024) [Ru/Multi] (
 magnet:?xt=urn:btih:63365E29949DE87E77413D96CB399E9889870FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Monster Jam Steel Titans (2019) [Ru/Multi] (1.1a/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:F2CEF6A7658BB98FC412CC88E8973709BC46C0B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Penny’s Big Breakaway (2024) [Ru/Multi] (1.2.20240313) Repack Let'sРlay
 magnet:?xt=urn:btih:7FF8CA957313E63CB1BD3B19823C000EB0607FCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Finding Frankie (2024) [Ru/Multi] (Build 16260850) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2D18EF68A1232918D91ED5A2934BD575FBE95B92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Cowboy 3030 (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:1A5797427295D9DE74DBF11DDD73CAE0DC6AA69B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ On Your Tail (2024) [Multi] (1.0.1) Repack FitGirl [Deluxe Bundle]
 ```bash
 magnet:?xt=urn:btih:8D80D7D5E37DCA52495914FB2E5EC6507BCD3B55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Ghost Treasure / Призрачные сокровища (2024) [Ru/Multi] (
 magnet:?xt=urn:btih:902641821B8EFC506B5CF6AC280BE2775EEA3DC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ MiSide (2024) [Ru/Multi] (0.9) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A4064848D01C3CE6638F2E32E6B6D02458C419F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Snow Bros. Wonderland (2024) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:5240915850036DE63AF7C99613145B4018E2F3FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ BioGun (2024) [Ru/Multi] (1.600) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9956A4721E1FDB6859780E42F27CEDF4CE248509
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Snow Bros. Wonderland (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:B517DFEE37436DAA3AC88F6FDD95D22A35E27879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8BA28050727FE1B66C9517FB52B157F1F2AABB6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (Build 16756464) Scene Rune
 magnet:?xt=urn:btih:AB00D9697B233441708809DBBFC8EF10E5B08FA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Slopecrashers (2024) [En] (1.0.0.4) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BEF3F1B7605EF506B41EAFDD1C110124CA18D610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Sims 3 (2009-2013) [Ru/Multi] (1.67.2.024037/dlc) Repack dixen18 [Complete E
 magnet:?xt=urn:btih:11B11D7CE7908D213CF3DE90E40050D655DF1515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ S.W.I.N.E. HD Remaster - новое издание классической S.W.
 ```bash
 magnet:?xt=urn:btih:D6B8CC088932889D12FD3D9097D1429FC8CC5C9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Stars in the Trash - увлекательный платформер, вдохн
 magnet:?xt=urn:btih:22609BCFC7A0A82444FE7F5E5116F73AFE4DB11A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Penny Blood: Hellbound - это рогалик, в котором вы берё�
 ```bash
 magnet:?xt=urn:btih:E3739F0CD0E03C02ABAE6D5554AB93249B583E3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.2/dlc) Scene Rune
 magnet:?xt=urn:btih:9F40FCA5A9CF4F539992E9177B04C2412D40FD0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.0.6/dlc) Repack Wanterlude [Master 
 ```bash
 magnet:?xt=urn:btih:832E59415E7F027BA568516409AC7841C543E0C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

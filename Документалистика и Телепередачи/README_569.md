@@ -1,3 +1,32 @@
+###  Публикация: 1013193   (777313) от 05.05.2016
+
+По законам своей мечты (1968) TVRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_777313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм снят в 1968 году на Ленинградском телевидении.
+Фильм рассказывает о ленинградском композиторе Станиславе Пожлакове.
+В нём звучат песни в исполнении автора, а также Эдуарда Хиля, Марии Кодряну,
+Нины Коста, Анатолия Королёва.Телекомпания: Ленинградское ТВЖанр: ДокументальныйПродолжительность: 00:28:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC8637A799712E30863E8D03AA843619A240730D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013810   (777332) от 05.05.2016
 
 Право голоса. "Рецепт от Обамы" (05.05.2016) SATRip
@@ -18,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:F97CEFE76793A019F13145B9DE4072B6FF1DB968
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +74,8 @@ magnet:?xt=urn:btih:F97CEFE76793A019F13145B9DE4072B6FF1DB968
 magnet:?xt=urn:btih:D36B30062265D40E9EAF84AA2460E822E16DE4BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +99,8 @@ magnet:?xt=urn:btih:D36B30062265D40E9EAF84AA2460E822E16DE4BB
 ```bash
 magnet:?xt=urn:btih:A67BB20D5D60710E7E148C902C749479ABC2EE29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +126,8 @@ magnet:?xt=urn:btih:A67BB20D5D60710E7E148C902C749479ABC2EE29
 magnet:?xt=urn:btih:2A6FE096A417CA9AC635E72ED05A81BA201B21C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +151,8 @@ magnet:?xt=urn:btih:2A6FE096A417CA9AC635E72ED05A81BA201B21C4
 ```bash
 magnet:?xt=urn:btih:6E3B957BB2ED7966FA52CDC39D304DB764823CA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +179,8 @@ magnet:?xt=urn:btih:6E3B957BB2ED7966FA52CDC39D304DB764823CA0
 magnet:?xt=urn:btih:2C597FCF323C8CF4A4F3EE42A0CDDB74F3E02339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +204,8 @@ magnet:?xt=urn:btih:2C597FCF323C8CF4A4F3EE42A0CDDB74F3E02339
 ```bash
 magnet:?xt=urn:btih:1B12E595ADD28A2A11E2FF7E89B6FB3E31CC737C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +231,8 @@ magnet:?xt=urn:btih:1B12E595ADD28A2A11E2FF7E89B6FB3E31CC737C
 magnet:?xt=urn:btih:B2A5044A0E9F14C0F11FFD9B4FC46914B50936BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +256,8 @@ magnet:?xt=urn:btih:B2A5044A0E9F14C0F11FFD9B4FC46914B50936BA
 ```bash
 magnet:?xt=urn:btih:88ADEB08D19A1C516E8EE29500590DF7590EB97C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +283,8 @@ magnet:?xt=urn:btih:88ADEB08D19A1C516E8EE29500590DF7590EB97C
 magnet:?xt=urn:btih:8551006EF01C9F879129BAE3B9AF2393EADA8CE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +308,8 @@ magnet:?xt=urn:btih:8551006EF01C9F879129BAE3B9AF2393EADA8CE7
 ```bash
 magnet:?xt=urn:btih:FA74424183D6A2441F36F0F218ACD28CBAF33054
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +335,8 @@ magnet:?xt=urn:btih:FA74424183D6A2441F36F0F218ACD28CBAF33054
 magnet:?xt=urn:btih:12DE6AA330910AF2DE06C06CD80854687AD8A22A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +360,8 @@ magnet:?xt=urn:btih:12DE6AA330910AF2DE06C06CD80854687AD8A22A
 ```bash
 magnet:?xt=urn:btih:8C7179D908A9CEDEFBDE2C0049EDA6911330ABC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +387,8 @@ magnet:?xt=urn:btih:8C7179D908A9CEDEFBDE2C0049EDA6911330ABC7
 magnet:?xt=urn:btih:35D301A37065E77277F8D22084D975EF98518C78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +412,8 @@ magnet:?xt=urn:btih:35D301A37065E77277F8D22084D975EF98518C78
 ```bash
 magnet:?xt=urn:btih:1BFE89930E20DBC1AFF8248C3675CBF2D545359E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +439,8 @@ magnet:?xt=urn:btih:1BFE89930E20DBC1AFF8248C3675CBF2D545359E
 magnet:?xt=urn:btih:9395B5F999192DDC529D6E48F1C21C96EC4D0A30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +464,8 @@ magnet:?xt=urn:btih:9395B5F999192DDC529D6E48F1C21C96EC4D0A30
 ```bash
 magnet:?xt=urn:btih:7286F2CD67FC9709B231A6EFA07C2AA8A881523C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +491,8 @@ magnet:?xt=urn:btih:7286F2CD67FC9709B231A6EFA07C2AA8A881523C
 magnet:?xt=urn:btih:235D24F41C080A567902FCF0380A5D17941C4AB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +516,8 @@ magnet:?xt=urn:btih:235D24F41C080A567902FCF0380A5D17941C4AB5
 ```bash
 magnet:?xt=urn:btih:D24CC63CD2097350BFA3F4FFEA4C08F5E9DCB341
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +544,8 @@ magnet:?xt=urn:btih:D24CC63CD2097350BFA3F4FFEA4C08F5E9DCB341
 magnet:?xt=urn:btih:580C31DC4415FAD87BE65837637CE882FB2FABA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +569,8 @@ magnet:?xt=urn:btih:580C31DC4415FAD87BE65837637CE882FB2FABA7
 ```bash
 magnet:?xt=urn:btih:6E6FE27F9FE279DA5A2D2EF1B91C44AC28C42531
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +597,8 @@ magnet:?xt=urn:btih:6E6FE27F9FE279DA5A2D2EF1B91C44AC28C42531
 magnet:?xt=urn:btih:325425860514D0D5D7831DEE4BA3A5CD3D9BC3C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +622,8 @@ magnet:?xt=urn:btih:325425860514D0D5D7831DEE4BA3A5CD3D9BC3C3
 ```bash
 magnet:?xt=urn:btih:803EF108CAF759B60095161B50853C0F3A4873CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +649,8 @@ magnet:?xt=urn:btih:803EF108CAF759B60095161B50853C0F3A4873CD
 magnet:?xt=urn:btih:E645DDA0CCD5BB898A755825F3D3BB2F813B5A1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,29 +675,7 @@ magnet:?xt=urn:btih:E645DDA0CCD5BB898A755825F3D3BB2F813B5A1B
 magnet:?xt=urn:btih:153843D4ACB80C38DA5B7EDE8E739E0DE82B7023
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210869   (778486) от 04.03.2018
-
-Революция космических роботов / Space Robot Revolution (2016) HDTVRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_778486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Робототехника сейчас везде. Люди уже очень тесно сотрудничают с роботами, а кое-где заменены ими. Но ключевую роль роботы должны сыграть в будущем завоевании космоса. Некоторые андроиды уже отправлены туда, другие же, более высокого качества, скоро придут им в помощь или на смену. Что же делают космические роботы, и как они выглядят? Почему и каким образом они так (   Читать дальше...   )Производство: Франция, Films Concept Associes Production, RMC DécouverteЖанр: Документальный, научно-популярный, исследованияРежиссер: Мелани ДалсайсПеревод: Одноголосый закадровый, профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:342BDE098C9D1A9583803B6D0EB14F2FDD788A19
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

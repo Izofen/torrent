@@ -22,6 +22,8 @@ Lovers Lake - Lovers Lake (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synt
 magnet:?xt=urn:btih:89B2C917924712DBE22C1EB2A724A39A9AE87591
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Tympanik Audio | Label-Pack (114 Releases) (2007-2015) [MP3|320 kbps]<IDM, Indus
 ```bash
 magnet:?xt=urn:btih:028774B4E3BCE391D0069B2DB2DAF6FF8E7A63D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ VA - Trance Vol.5 (2022) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:006124A4E407A53E623B460864A2E20CD7706884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Dj Feel - TOP 30 OF August (2015) [MP3|320 kbps]<Trance, Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:D300A20C35C5FE5968448B478EED2143D77DE135
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ VA - Meditation Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:15C26B65576FE73C8341EDA3834AAF82ECC0D7D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ VA - Uplifting Only Top 15: June (Extended Mixes) (2022) [MP3|320 Kbps] <Uplifti
 ```bash
 magnet:?xt=urn:btih:C7A3B0446CF5136A242B6C201CF28687E5D2033C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ VA - Uplifting Trance Vol.2 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
 magnet:?xt=urn:btih:9575E6B6F3D3771DFD2BBC7F7C44BC94E3C4CE08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ VA - FSOE - July (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:DA2E888B95EB7D5C795DEC5E9A29F3C468EA180B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ VA - French Cafe Moods Vol 4 (2015) [MP3|320 кб/с]<Lounge, Chill Out, Jazzy>
 magnet:?xt=urn:btih:F49453FE0B3FA56BCC580B4BEC9C57C303C9AE49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ VA - French Cafe Moods Vol 3 (Oriental Flavour) (2014) [MP3|320 кб/с]<Lounge,
 ```bash
 magnet:?xt=urn:btih:19D15A893A9B35B34CE0622D91B4482FC91A28D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +310,8 @@ VA - Magic Of Trance Vol.22 (2022) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:03DB0E2A21D8278AD36075BB87671572273118B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ Yello - 3 Editions (2012, 2017) Remixes [MP3|320 Kbps] <Electronic, Pop, Synth-p
 ```bash
 magnet:?xt=urn:btih:945B6C03A4AF07020E30F6DB3EA705820F95E443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +368,8 @@ Motivation Sport Fitness - Dance Booty Workout Motivation (2019) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:E445685EC31A7D9AA91F654B1F41774E5F920ED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ Abstraxion - Discography 19 Releases (2006-2019) Biologic Records [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:181B8F96A7FB04FA9FAF29C19FDD4E1EADA6EA6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +432,8 @@ Laibach - Iron Sky OST (2012) [FLAC|Lossless]<Industrial, Score>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +460,8 @@ Laibach - Iron Sky OST (2012) [FLAC|Lossless]<Industrial, Score>
 ```bash
 magnet:?xt=urn:btih:0ECF480464199D7C96DA8437D3F7164A2E03CA79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +490,8 @@ VA - Bittersweet Beats: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:D7B17C0173641750277D3AEE5DD370317746F69C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +519,8 @@ Morakh - Limes (2022) [MP3|320 Kbps] <Breaks, Techno, Tribal, Experimental>
 magnet:?xt=urn:btih:397C55B89BE5B97FE92FFD1DAF62C9747B9C0BBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:397C55B89BE5B97FE92FFD1DAF62C9747B9C0BBD
 ```bash
 magnet:?xt=urn:btih:E1B58CF1B43757BE283FAF1C03A5490F4187826B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +574,8 @@ VA - Quality Control (2019) VALE [FLAC|Lossless|WEB-DL|24Bit|tracks] <Dubstep, D
 magnet:?xt=urn:btih:59F6C902296134455C569C21645A00A0D0BCACB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +602,8 @@ Profil - Profil (серия "Другие восьмидесятые") (1982) CD
 ```bash
 magnet:?xt=urn:btih:B0B061053D5F1ED537BE9862FCCE70CF4B1AAC66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +632,8 @@ Sam KDC - Omen Rising (2019) Horo [FLAC|Lossless|WEB-DL|tracks] <Techno, Experim
 magnet:?xt=urn:btih:6C87268AEB12568046C52109C415E47DDA79A873
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +660,8 @@ VA - Ice Cream 2019 [MP3|320 Kbps] <House, Deep  House>
 ```bash
 magnet:?xt=urn:btih:4F29D341746357790A443C3111D0C41F53F7A3B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +690,8 @@ Mindex - Collection (2010-2015) [FLAC|Lossless|WEB-DL]<Psy-Trance, Glitch, Dubst
 magnet:?xt=urn:btih:322549514D437A5EE45E1897478D93D0894F7866
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +719,8 @@ VA - Time To Shine (Best Lounge Music) (2015) [MP3|320 кб/с]<Downtempo, Chill
 magnet:?xt=urn:btih:4051938EB3D536BC9E1A8470D9E1A30DC690C8FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ VA - Summer Party 2019 [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:F92ED24BFEF974E4C5C1A856AA429140548F9366
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

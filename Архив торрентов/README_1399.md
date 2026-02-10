@@ -22,6 +22,8 @@ Viber, вне зависимости от того каким устройств
 magnet:?xt=urn:btih:C994D8542056E7C9D17BCB8D05BB4F24AC449771
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Kaspersky Password Manager — мультиплатформенный менед
 ```bash
 magnet:?xt=urn:btih:41EBA41318CE2E04BFB53A6F4AD5AFECFC683D99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ EZ CD Audio Converter - утилита для преобразования ау�
 magnet:?xt=urn:btih:525B7975F2E3669525C9583E0EE1B1973CEBDE47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:525B7975F2E3669525C9583E0EE1B1973CEBDE47
 ```bash
 magnet:?xt=urn:btih:CDC4F7441EE5FDB6B211EB2121A0AB92FF01DE4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:CD897E2FF6C2A3FD126D8C4363F55A17CE7898DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ BlueLife Hosts editor - бесплатная утилита выступающа
 ```bash
 magnet:?xt=urn:btih:AC80B53FE3DB42B574A5CA3E7142D241C404EF83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ iTubeGo YouTube Downloader 6.4.1 Portable by zeka.k [Ru]
 magnet:?xt=urn:btih:4A9470F160A065172E642F76982CF7E0656E3BDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Opera Crypto Browser 102.0.4880.40 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:01760DD7F335365A54EA6D27089E8F900981C6FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ VPN Inf - быстрый, безопасный и безлимитный VPN
 magnet:?xt=urn:btih:4A51007E6CB0C215069FBCBC5A3B66A5D38141D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ PortableApps.com Platform - это функциональная платформ
 magnet:?xt=urn:btih:8DD9FDB3FB3C393BD882762FAD44A0C8588A3E26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:58EF08E651D7011D24490E07CF8B4EFCDAB2CE37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ CCleaner Pro - один из самых известных и популярны
 ```bash
 magnet:?xt=urn:btih:A64AF45E1AF62316D24B99CCF21EBFE1200E8EDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ O&O Defrag Professional – инструмент дефрагментации д
 magnet:?xt=urn:btih:BECFF4CF0E3A3B370FEBEB36BDEFD90E08D1BB62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:4709B4BE39CC6264BE3B9821C1CADD557D285103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ NIUBI Partition Editor (Repack & Portable) – программа для про�
 magnet:?xt=urn:btih:AFFCFAD098AF595712282BE27BE69F0A8F7A0098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Icecream Screen Recorder – простая программа для запис
 ```bash
 magnet:?xt=urn:btih:2A7F785D137AC2FFA0ADB417C28DBF26D381E896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ Free Hex Editor Neo - бесплатный Редактор Шестнадцат
 magnet:?xt=urn:btih:987DA4C3D28A394C17BE2E7A681E83E2A4545E52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ HiPER Calc Pro (Scientific Calculator) - очень полезное прило�
 ```bash
 magnet:?xt=urn:btih:DFD50A6ACA4D5B7D20F2A20702F15F8701BD9017
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ jv16 PowerTools - достаточно мощный набор утилит, п�
 magnet:?xt=urn:btih:8FA63C01DD2DC08CC39AB2664263C0D079F1B93C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ RegCool 1.343 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BE5441F94197C851488E65AB232F8F8E9A40AAFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:450C07A6107655A2A1A26E5BC1830CB4ACF43A53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:5A5A3BA36253A2FF10C359933ED28CC48D251373
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ Text Edit Plus — это простой, но мощный текстовый �
 magnet:?xt=urn:btih:69CEF575E7153758A70B4645861BDDF582551211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ FinePrint - многофункциональный драйвер для при�
 ```bash
 magnet:?xt=urn:btih:059AF2176EAA06A536A42C4C76186178D2373205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ Lucky Patcher (Лаки патчер) – отличное решение есл
 magnet:?xt=urn:btih:A3F22DC38677591126E9B888692C345740FC92E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Viber для Windows позволяет бесплатно отправлять 
 ```bash
 magnet:?xt=urn:btih:85C36417CD06BD55C93D4BD546983102B92A93B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

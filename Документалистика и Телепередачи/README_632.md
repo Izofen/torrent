@@ -1,3 +1,29 @@
+###  Публикация: 1378318   (847955) от 24.04.2020
+
+Город на берегу. Барселона / Waterfront Cities Of The World. Barcelona (2013) HDTV [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_847955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Барселона расположена в северо-восточной части Иберийского полуострова, на берегу Средиземного моря. Этот второй по величине город Испании является столицей Каталонии и самым крупным портом Средиземноморья. Барселона во всем мире известна как город искусств, однако, это еще и один из самых больших индустриальных и торговых городов страны. Разумеется этот город еще (   Читать дальше...   )Производство: Канада, TV5Жанр: Документальный, познавательный, путешествияРежиссер: Никола Буше, Этьен ДезирэПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AF38DCEC346571830257E4E76E7C77E0DADCC0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499581   (847961) от 02.10.2021
 
 Своя игра (02.10.2021) WEBRip [H.264/1080p] (выпуск 1)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:72322E710A70A3FFC65BE311A6205BADD4F24900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:72322E710A70A3FFC65BE311A6205BADD4F24900
 magnet:?xt=urn:btih:F9CFF9347B2D4A7CAE99C4B277C2F4613675E539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:F9CFF9347B2D4A7CAE99C4B277C2F4613675E539
 ```bash
 magnet:?xt=urn:btih:662034C7ABAF2A4CD96B5C99629A7D1CA574A2E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:662034C7ABAF2A4CD96B5C99629A7D1CA574A2E7
 magnet:?xt=urn:btih:CD3FE6E48F0A20AF8F4A7C755B9A2824420FD672
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:CD3FE6E48F0A20AF8F4A7C755B9A2824420FD672
 ```bash
 magnet:?xt=urn:btih:86101606E8B51C9153CCA5E9C17AD43B9E5FFBD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:86101606E8B51C9153CCA5E9C17AD43B9E5FFBD3
 magnet:?xt=urn:btih:5EC8D54C07296294F81C3C26B5B522095DB44291
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:5EC8D54C07296294F81C3C26B5B522095DB44291
 magnet:?xt=urn:btih:ADAEFEAEB0D8BC9F179222B87048B6358804978A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +226,8 @@ magnet:?xt=urn:btih:ADAEFEAEB0D8BC9F179222B87048B6358804978A
 ```bash
 magnet:?xt=urn:btih:F9851B18B7C3BFC5C4FE4AAFD83041906762B9EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:F9851B18B7C3BFC5C4FE4AAFD83041906762B9EF
 magnet:?xt=urn:btih:F7F06C861DA6D48753B716EEFF05B0934B5A68A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:F7F06C861DA6D48753B716EEFF05B0934B5A68A1
 ```bash
 magnet:?xt=urn:btih:383031FD1B98AD1FB3B6E4D65B1034CFA4F7429F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:383031FD1B98AD1FB3B6E4D65B1034CFA4F7429F
 magnet:?xt=urn:btih:3DBE4707B1238CB9B3CECC4A1D95A6EF16B9E63D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:3DBE4707B1238CB9B3CECC4A1D95A6EF16B9E63D
 ```bash
 magnet:?xt=urn:btih:8F42A5A6AD852754CB8A79B78C9F689D5D463F38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:8F42A5A6AD852754CB8A79B78C9F689D5D463F38
 magnet:?xt=urn:btih:BC14FB3BF72B185ABCF7B89DB7BCF14EC4361B67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:BC14FB3BF72B185ABCF7B89DB7BCF14EC4361B67
 ```bash
 magnet:?xt=urn:btih:8A0FC97E11B0C83B3A083C9F902BF16796C73D62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:8A0FC97E11B0C83B3A083C9F902BF16796C73D62
 magnet:?xt=urn:btih:0B463E9AD978ECD257BEFA2924C4B478D5B149C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:0B463E9AD978ECD257BEFA2924C4B478D5B149C0
 ```bash
 magnet:?xt=urn:btih:A84295AD99088FD8977BFEE7488411A9E1090953
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:A84295AD99088FD8977BFEE7488411A9E1090953
 magnet:?xt=urn:btih:49C7ECFAD1783E198DD3BDE84A2FC165D523EC9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:49C7ECFAD1783E198DD3BDE84A2FC165D523EC9A
 ```bash
 magnet:?xt=urn:btih:70009D30FCD1AF7CDEB553DC5BFC742E0ABB55B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:70009D30FCD1AF7CDEB553DC5BFC742E0ABB55B0
 magnet:?xt=urn:btih:B95F241FA7327A67ADB9FC914DE328836AF15F38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:B95F241FA7327A67ADB9FC914DE328836AF15F38
 magnet:?xt=urn:btih:AA03BBA1D24CE2720BB7C747EE4791A2C846AF51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:AA03BBA1D24CE2720BB7C747EE4791A2C846AF51
 magnet:?xt=urn:btih:21DECF30875DACF8446CD88D8515FB80D6012E3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:21DECF30875DACF8446CD88D8515FB80D6012E3D
 ```bash
 magnet:?xt=urn:btih:B4D5FB8511B5F7A8E79ED0528858FA5E82EDBD6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:B4D5FB8511B5F7A8E79ED0528858FA5E82EDBD6D
 magnet:?xt=urn:btih:5665BC52A932E1061678A342EB2BE99F24A4A2C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:5665BC52A932E1061678A342EB2BE99F24A4A2C8
 ```bash
 magnet:?xt=urn:btih:438763E0348550CD9FB59D447DE65C854F9A491E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:438763E0348550CD9FB59D447DE65C854F9A491E
 magnet:?xt=urn:btih:A85EC72ACA547609322C0804EC50CBB23738420A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111217   (848756) от 05.03.2017
-
-Раскрывая мистические тайны. Гений и злодейство (2017) WEBRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_848756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как соотносится гений и злодейство, может ли гениальность идти рука об руку с человеконенавистничеством, снобизмом, тягой к насилию? Александр Пушкин утверждал – "гений и злодейство две вещи несовместимые". Но история не редко опровергает это умозаключение. Аристотель был величайшим философом, но при этом считал женщин неполноценными людьми, Вирджиния Вульф (   Читать дальше...   )Производство: Москва МедиаЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D60EC135E424D2AA0F632185C4ECBBD7267762
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

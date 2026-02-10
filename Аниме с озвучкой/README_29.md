@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9BFE862C78CA1C8A485655A0579F194EE57A5D15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Zhen Hun Jie: Bei Luo Shi Men Pian 2021 | Rakshasa Street 2 | Ракшаса: у
 ```bash
 magnet:?xt=urn:btih:8FE17792840F79A045E6E80BABDD17C3E9EC155F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Angel Cop | Ангел-полицейский [1989, OVA, 6 из 6] BDRip 1080p 
 magnet:?xt=urn:btih:149CE1C81DAE7863BB5F1A38B7F42568A06BF9FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Perfect blue / Истинная грусть [1998] BDRip 1080p raw + rus
 magnet:?xt=urn:btih:DA75B8EA424D7AE1A82F269B05EE15017DA7922F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Gekijouban Jujutsu Kaisen 0 | Магическая битва (фильм) [2021
 ```bash
 magnet:?xt=urn:btih:CAD153DF7756E2C31AC0330B79E90DA134DCA154
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:CAD153DF7756E2C31AC0330B79E90DA134DCA154
 magnet:?xt=urn:btih:B43A539B188F2326EC1014426999170F3B4CC546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Vinland Saga Season 2 | Сага о Винланде 2 [2023, TV, 24 из 24] WE
 ```bash
 magnet:?xt=urn:btih:2EF5832D4F7DC0FD65C09959B7CDF4B33F2496BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:2EF5832D4F7DC0FD65C09959B7CDF4B33F2496BA
 magnet:?xt=urn:btih:6DAA7FE3417C8EE46C9E29537D617903A3D209AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:6DAA7FE3417C8EE46C9E29537D617903A3D209AD
 ```bash
 magnet:?xt=urn:btih:A1DF602DB8920128F036ED43541CC927E85EAA16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:A1DF602DB8920128F036ED43541CC927E85EAA16
 magnet:?xt=urn:btih:94CF6801D197CD72EEBAF4A74BAF18FDAB417C2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Yuusha ga Shinda! | The Legendary Hero Is Dead! | Гeрoй сдoх! [2023, TV, 1
 ```bash
 magnet:?xt=urn:btih:F377F2664FCE8CB1D076A785B5B9E4A06F001E78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:F377F2664FCE8CB1D076A785B5B9E4A06F001E78
 magnet:?xt=urn:btih:A054B712976435A9F977F3035091F872388DCED5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Kono Subarashii Sekai ni Bakuen wo! | Konosuba: An Explosion on this Wonderful W
 ```bash
 magnet:?xt=urn:btih:A168F22CF0219CCDA0C38AD8448B21593A0BD00F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Isekai wa Smartphone to Tomo ni. 2 | In Another World With My Smartphone 2 | В 
 magnet:?xt=urn:btih:6F6F8A2EB658AF76E710D94A39F8A845D6915EDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Kuma Kuma Kuma Bear Punch! | Ми-ми-ми-мишка [TV-2] [2023, TV, 12 из
 ```bash
 magnet:?xt=urn:btih:AF8F1C02F5F75ADBDDC12EC39DBF957F1117BCAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:AF8F1C02F5F75ADBDDC12EC39DBF957F1117BCAF
 magnet:?xt=urn:btih:80C6E7708D4102213A57CE482E48F0815D54F74D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Gekijouban Sword Art Online: Progressive - Hoshinaki Yoru no Aria | Мастер
 ```bash
 magnet:?xt=urn:btih:DDF5C18862A6954126BF51FE49902BD025077FF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Kore ga Watashi no Goshujin-sama / He is my master / Он мой хозяин [2
 magnet:?xt=urn:btih:99C2A7A99A8CF2D263BB3573AF9A597909E52357
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:99C2A7A99A8CF2D263BB3573AF9A597909E52357
 ```bash
 magnet:?xt=urn:btih:44AA52F908836464682452C33C87703C19DA2E09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Shingeki no Kyojin OVA | Атака титанов OVA [2013-2018, OVA, 8 из 8
 magnet:?xt=urn:btih:B698085E43381FD3EEB053AB5D9A3A8A9A8EB2BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Memories / Воспоминания о будущем [1995] BDRip 720 raw + rus
 ```bash
 magnet:?xt=urn:btih:4CD965C8A971B0350CE7EBE67F78584D2032C3D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Shinseiki Evangelion Gekijouban: The End of Evangelion | Neon Genesis Evangelion
 magnet:?xt=urn:btih:B7F3362C4D59811DF9AA1F22684E294F74B01363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Shinseiki Evangelion Gekijouban: Shi to Shinsei | Neon Genesis Evangelion: Death
 ```bash
 magnet:?xt=urn:btih:3C87DB8450E0C7B5EEB71A59D72907E18557E95E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:3C87DB8450E0C7B5EEB71A59D72907E18557E95E
 magnet:?xt=urn:btih:9097CAFD4012ABC7CB7B455915CCD1B97FB5E673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:9097CAFD4012ABC7CB7B455915CCD1B97FB5E673
 ```bash
 magnet:?xt=urn:btih:19EED7AF237AF5A6C318E95791B4CC12E1625A47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +684,8 @@ Samurai Champloo / Самурай Чамплу [2004-2005, TV, 26] BDRip 1080 ra
 ```bash
 magnet:?xt=urn:btih:A3F3B63D3BDC93B28F898D7D5DDD5381628BFEC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

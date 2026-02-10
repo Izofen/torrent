@@ -21,6 +21,8 @@ Blender - бесплатный редактор трехмерной графи�
 magnet:?xt=urn:btih:26D467D268CF7FF4BCBA51070D64682CF8AFBA92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Icecream Video Converter Pro 1.45 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:97BB82339756C2694214E20CC721960BA2FC7C37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ FormatFactory - многофункциональный конвертер раз
 magnet:?xt=urn:btih:D38F2CBEF1D1EA3166ED938457DD8FB25CCB6032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Icecream Video Editor - простой редактор видео для Window
 ```bash
 magnet:?xt=urn:btih:B117E43D79320098CF958EF8E941328FE1D97841
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ OCCT 13.1.8 Portable [En]
 magnet:?xt=urn:btih:051F376544218371FDD6A36F14DF96A9B6F5062F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ IceCream Ebook Reader Pro 6.51 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:23CE92C0B0377F10CB5B91978B3320BF8BF05FEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Opera One 113.0.5230.132 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:B0BBE7E019AF1A5D66C59AE9C946902BAF1A9AAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Rider — это кросс-платформенная интегрирован�
 magnet:?xt=urn:btih:A1AB122F2E3B82FDA96317AA2C84E39D5FB7D97E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Revo Uninstaller Free 2.5.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DF9038D5158DD79E4245A0501CA9B6A9D0DF1F65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Blender - бесплатный редактор трехмерной графи�
 magnet:?xt=urn:btih:774F7D93C9E8DE5D0C5C642618DD7C1C8FE6ED26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Icecream PDF Editor PRO - программа для поистине прост�
 ```bash
 magnet:?xt=urn:btih:230169549B7AEEA90E4E7680A070EB7FF7C8AC60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:230169549B7AEEA90E4E7680A070EB7FF7C8AC60
 magnet:?xt=urn:btih:2B7D568BD2545687727819DFAC157BC8C75973EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ AnyMP4 Video Converter Ultimate - универсальная программа 
 magnet:?xt=urn:btih:3E19CA49AC6A000467DC122F188D8376A1A76E9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ RegCool 2.013 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7F66A8C4BCC27402A358DE32110A95605D9B5297
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ PDF24 Creator - бесплатная программа, которая позв
 magnet:?xt=urn:btih:69CF62A4F122151DE7C7DCB2522797716A87ECED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ RedNotebook - это простое GTK+ / Gnome приложение напис
 ```bash
 magnet:?xt=urn:btih:60450D39B2C743F872BB6F9B975C14F59B16EDC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Synchro Arts - RePitch 1.5.13 VST 3, AAX (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:FF8035805D208D4A4D6FA79BCC2B84F53FC667DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:C7B22B8F70B1AA9C68AFEB43D6F54D470065E5C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Stellarium – бесплатный эмулятор звездного неба
 magnet:?xt=urn:btih:D4C4D16BF7407B44AE90B4E74302C2FDEBEE8BF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ PreSonus Studio One — Полноценный секвенсор(DAW) для с
 ```bash
 magnet:?xt=urn:btih:4E74137286DE69C5245654279A4EAC7C1F5EA1D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:4E74137286DE69C5245654279A4EAC7C1F5EA1D1
 magnet:?xt=urn:btih:F043D03616D2415B80F6CB151AAC4024C8C711E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ ZWCAD 2025 SP1.2 Professional [En]
 ```bash
 magnet:?xt=urn:btih:2825DA72641CCF6873D8F79D5B0BE4C478209546
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7.iso
 magnet:?xt=urn:btih:B838A704979001D47F541D51BDC62A6AB4C88FC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Picture Bird позволяет легко распознать птиц вок�
 ```bash
 magnet:?xt=urn:btih:9A3C445F6DD3BFF2139C6C7E151D55B87A710448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Inazuma Eleven: Orion no Kokuin | Одиннадцать молний: Печа�
 magnet:?xt=urn:btih:81358B730998472D486AE677CA935C5E649863B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:044D0EEB67D93A1A50CE3E671818AFFB8FD4C491
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Vilde (2025) [Ru/Multi] (1.0.0.2) Repack FitGirl
 magnet:?xt=urn:btih:57CC8BBD0367018BC34CBFB0EFA22AA547687C31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:57CC8BBD0367018BC34CBFB0EFA22AA547687C31
 ```bash
 magnet:?xt=urn:btih:499BB721F4729CEF6C9C22058202157A30134F33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Clip Studio Paint EX (ранее Manga Studio EX) - это ведущее в м�
 magnet:?xt=urn:btih:097DD2D93B4C0358CEEA50394A304C7494123BF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:097DD2D93B4C0358CEEA50394A304C7494123BF2
 ```bash
 magnet:?xt=urn:btih:B4059FF6A8F8B6FE6E7123D3D1B3F8021DFAA598
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:B4059FF6A8F8B6FE6E7123D3D1B3F8021DFAA598
 magnet:?xt=urn:btih:EF6DB624AB79AB60C4A0790435923AD091F0D4D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Crime Simulator позволит вам бросить работу с девя�
 ```bash
 magnet:?xt=urn:btih:162F7F45B12ABCFB42EE63BFC61B0479E2770F15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:162F7F45B12ABCFB42EE63BFC61B0479E2770F15
 magnet:?xt=urn:btih:99C7E49BA3942218EB05B10BFDF25BAFF1A46E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:99C7E49BA3942218EB05B10BFDF25BAFF1A46E54
 ```bash
 magnet:?xt=urn:btih:43DAD91D78BB4B48182C5905E990590A939C0826
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:43DAD91D78BB4B48182C5905E990590A939C0826
 magnet:?xt=urn:btih:2B9B4381E237A956EF869E37E81968F708742A35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Moho Pro – мощная программа для создания качес�
 ```bash
 magnet:?xt=urn:btih:FEB41D6257D481056EA49B5D61DF1355BFFAE07D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:FEB41D6257D481056EA49B5D61DF1355BFFAE07D
 magnet:?xt=urn:btih:893B5D3BC800511B8C0C4981DDB556F43B65C26B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:893B5D3BC800511B8C0C4981DDB556F43B65C26B
 ```bash
 magnet:?xt=urn:btih:C12B10FCBF8210A55F40E372712EED30CF91F8F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ SGS Spain at War (2025) [Ru/Multi] (25.06.11) Repack FitGirl
 magnet:?xt=urn:btih:3298262E4066316DEA29C7CF83666444ED80979C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:3298262E4066316DEA29C7CF83666444ED80979C
 magnet:?xt=urn:btih:61E587BF4030F12F02C642F606E5ADEADC20609B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:61E587BF4030F12F02C642F606E5ADEADC20609B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:61E587BF4030F12F02C642F606E5ADEADC20609B
 magnet:?xt=urn:btih:465F34479B52AD938CB54EF9185B8693D653EC7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ WinRAR - один из самых известных архиваторов. Т�
 magnet:?xt=urn:btih:150CB84DA75DC416FE63891C10363AEFA7D7BB74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ MediaHuman YouTube Downloader 3.9.15 (2607) RePack (& Portable) by Dodakaedr [Mu
 ```bash
 magnet:?xt=urn:btih:BDD3113940237AE0C489CDA2B11E443C04FC38D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:BDD3113940237AE0C489CDA2B11E443C04FC38D2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:BDD3113940237AE0C489CDA2B11E443C04FC38D2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:BDD3113940237AE0C489CDA2B11E443C04FC38D2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Tor Browser Bundle 14.5.5 Portable [Multi/Ru]
 magnet:?xt=urn:btih:376D9844869747E1707733A228707502534AEF14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:376D9844869747E1707733A228707502534AEF14
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:376D9844869747E1707733A228707502534AEF14
 magnet:?xt=urn:btih:D76A529F268C57BBC047BF2957AD11B57BF7CA50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Star Wars Battlefront II (2) (2017) [Ru/Multi] (1.1.8.16162/dlc) Repack seleZen 
 ```bash
 magnet:?xt=urn:btih:D75EF887CEF048867271FF53768259CB43192F31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:D75EF887CEF048867271FF53768259CB43192F31
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

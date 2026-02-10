@@ -19,6 +19,8 @@ Win 11 Launcher v9.38 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:22A339E1518F3EC3E3114FF75CE4F614C8CA947C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ TV+: Бесплатное Онлайн Телевидение
 magnet:?xt=urn:btih:81B94FA697F94B6149D1F1D1F89E997C27DF6370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:81B94FA697F94B6149D1F1D1F89E997C27DF6370
 magnet:?xt=urn:btih:33F0CBEF8234C97D8CF29E4E16F684CF483151B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Remini / Улучшение Фото v3.7.1260.202518969 Mod by Mixroot [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:66F710D764360B8CE17ED0551DAB47B25E2BD5DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Solid Explorer - это приложение для управления фай�
 magnet:?xt=urn:btih:9DE7069765DCABEE6EBB4CA928BBE264534A7CB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ BlockSudoku / Кудоку-Вуди Блок v2.6.6 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6D5B7F2445D133DF2978605FEE7912B4ED7C8E61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Win 11 Launcher Pro v4.9 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:FF9A6BB73E62ECC7EA3D729A0A453C6EDB91708E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ MIUI Hidden Settings Activity v1.6.14 Mod by TryRoom [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F1D643A4A53E5C1AE47E7746D68E9692917281D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Magic Eraser - это революционное приложение для р�
 magnet:?xt=urn:btih:A946BED0519890F98626D9C2B03C37EFF981C938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ AirBrush: ИИ Фоторедактор v8.0.1 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BC968BE278D7CAB9D6E4C00390C9DEB2FFEC7AB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ PORTAL-WG 1.3.6 Mod by STR_BYPASS [Ru/Multi]
 magnet:?xt=urn:btih:F151BAF38EBABAB4DE6F2F06551DCE9510202648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ NewPipe v0.28.2 Free + Mod by Alex.Strannik  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:70A06C8D02B63B1A4C8B449F72BC6ED15CE7ABB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ NewPipe x SponsorBlock x Return YouTube Dislike v0.28.2 Mod by baalajimaestro  [
 magnet:?xt=urn:btih:4ED4BDD211298DF9CACFE49860D26D5385E52BA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Frameo: Share to photo frames — приложение, которое позв�
 ```bash
 magnet:?xt=urn:btih:704329D8B924E6A693324C2827C6BB89DF1B727D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:704329D8B924E6A693324C2827C6BB89DF1B727D
 magnet:?xt=urn:btih:0D435A8263A8300F510A3BE594E3CD83A86FA78A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Cozy Timer - Sleep timer v4.1.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F448FBF5F8F5F4AC981B1C05349082CBD3ADC4A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:F448FBF5F8F5F4AC981B1C05349082CBD3ADC4A7
 magnet:?xt=urn:btih:3F7DADC660A5E0300BB963FD03013FFD9CF6062E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Astrological Charts / Астрологические Карты Pro v11.2.4 [Ru/
 magnet:?xt=urn:btih:F6FCB8301D80CDF9F549088601AE9A936BEA3E0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Horary Chart / Астрология: Хорарная Карта v4.1.9 [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:764D26B828E4D884B775F4F39D6104B868148E0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ DjVu Reader & Viewer (читалка дежавю на русском языке
 magnet:?xt=urn:btih:3221D45586F105A5670681D695D08AB1D139AD32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Screenshot Touch – это удобное и простое приложени�
 magnet:?xt=urn:btih:2ABBFD462DF82D2E8FEFD6B3BCD5455EA3AEFBC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:87A39182F4CD9A04AACB331EA0FC1804A837A310
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ SD  Test Pro v3.1 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:E2FA43E2624FDF6FB5F766BF17D09F742716596E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Night clock / Ночные часы v2.11.26 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3FB39A97D86FCD6B2F59D5091C3AF9EC7A10D75A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ PixelLab - отличный фоторедактор, в котором все �
 magnet:?xt=urn:btih:D13D64CF2BE61DD20F1D3F55FF170603B5FA3F56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Remini / Улучшение Фото v3.7.1260.202519018 Mod by Mixroot [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:E39AB57BFDB5C31CE2FB212C11C723F710E90BF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

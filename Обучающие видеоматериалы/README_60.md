@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:D2CA45313C76637C2E70D7F4E5937E225DC85A3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:D2CA45313C76637C2E70D7F4E5937E225DC85A3E
 ```bash
 magnet:?xt=urn:btih:580C608AA9BE569E762487E09C4E1F484B18D789
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:580C608AA9BE569E762487E09C4E1F484B18D789
 magnet:?xt=urn:btih:397BF5D0C87411858F09C777B6F3F2D8F5CB4699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:397BF5D0C87411858F09C777B6F3F2D8F5CB4699
 ```bash
 magnet:?xt=urn:btih:F940ED2238E963088241AF140D84F82CCAE8ADBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:F940ED2238E963088241AF140D84F82CCAE8ADBF
 ```bash
 magnet:?xt=urn:btih:F55716F79C5FDD18B40E0E1C0EFFE88532F5E078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:F55716F79C5FDD18B40E0E1C0EFFE88532F5E078
 magnet:?xt=urn:btih:4B2BA2A8E99D417A2731A0B7D7FF786B3888DD64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ magnet:?xt=urn:btih:4B2BA2A8E99D417A2731A0B7D7FF786B3888DD64
 ```bash
 magnet:?xt=urn:btih:15BEB4AD38AF3A240CFD3423C480B7E7E474B511
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -207,6 +221,8 @@ The AWS Certified Solutions Architect is one of the most valuable and in-demand 
 magnet:?xt=urn:btih:C38618B8479197E9BE7185C78BE9210A14346A6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ magnet:?xt=urn:btih:C38618B8479197E9BE7185C78BE9210A14346A6B
 magnet:?xt=urn:btih:C6F980A208EA2ED42F12F3D156B677260C0EBE00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ Slurm (Слёрм) | Асинхронное программирование н�
 ```bash
 magnet:?xt=urn:btih:DD0FD7573310936071573461D1C2B25DF2C7E563
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +303,8 @@ magnet:?xt=urn:btih:DD0FD7573310936071573461D1C2B25DF2C7E563
 magnet:?xt=urn:btih:E17C3F940E9E5844EBFB7FC174E8CB32494B6868
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ Skillbox, Евгений Мирошниченко  | Шахматы с нуля 
 ```bash
 magnet:?xt=urn:btih:0CEB3ED5850459404FC98F28A5EBBD1AD9071361
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +355,8 @@ Liveclasses, Андрей Журавлев | Adobe Photoshop 2023: Adobe Camera 
 ```bash
 magnet:?xt=urn:btih:631251793060FEAAA804950A1BE0AA01FCFF8895
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ magnet:?xt=urn:btih:631251793060FEAAA804950A1BE0AA01FCFF8895
 magnet:?xt=urn:btih:11531771B3AF23C9AEC93B9BC9475C393E530586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ Udemy, Roman Dushkin | Основы криптографии и подстано
 ```bash
 magnet:?xt=urn:btih:862AAEA503436CC9D58D77CFA11B9065448A6AA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ Shultais Education | Основы SQL (2018) PCRec [H.264]
 magnet:?xt=urn:btih:06F2E247E9FAFE4744001F4F73513C72935B0ED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ Udemy.com | Photoshop CC 2020 MasterClass (2019) PCRec [H.264/720p-LQ] [EN]
 magnet:?xt=urn:btih:AB5EEB50EC0C4544879B883F51237AF373871FB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ Shultais Education | Расширенные возможности SQL (2019) PC
 ```bash
 magnet:?xt=urn:btih:315E10E5E42C55E4A4C582E26441230210E9606D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ Skillbox, Оксана Осадченко | Fashion-скетчинг (2021) WEB-
 ```bash
 magnet:?xt=urn:btih:28CCC79A8C022E065C42BEC0A7BD825BAC448D15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ Convert Monster | Тренды интернет-маркетинга 2018 (2017)
 magnet:?xt=urn:btih:C364FA92E5127C9DB63D310D9C73BBEA8C272E92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ Shultais Education | Проектирование баз данных (2018) PCR
 magnet:?xt=urn:btih:34E6F3B90D69E3BD434B847A6FA01F425B871594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ Learn Squared, Maxx Burman | Intro to Matte Painting (2017) WEB-DLRip [RU, EN]
 ```bash
 magnet:?xt=urn:btih:3BE7174A79017063713835EF31C52CF81AEBEDE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:3BE7174A79017063713835EF31C52CF81AEBEDE2
 magnet:?xt=urn:btih:DAF1BCD489E30368D1EC796FFF5EE7AF1F2A17B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ BAS, Павел Дуглас | Курс по BAS (2022) WEB-DL [AD] [RU]
 ```bash
 magnet:?xt=urn:btih:FB29BFB7562EBF9EAED43BBD8A3E268561E22344
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +685,8 @@ devtodev | Введение в геймдев (2019) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:66E9349DEC0B50E89DE55F0DED3046F91B3D33A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ ProfIT | DBA Введение в профессию (2018) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:3FF8B9D829FF3841CB42473C0E6E897BCD44C499
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

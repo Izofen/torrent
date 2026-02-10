@@ -19,6 +19,8 @@ Selber Machen - немецкий журнал для домашних масте
 magnet:?xt=urn:btih:E4B8484A705827BDD2E424FEE5B0F464BB0B04D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:E4B8484A705827BDD2E424FEE5B0F464BB0B04D5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:E4B8484A705827BDD2E424FEE5B0F464BB0B04D5
 magnet:?xt=urn:btih:5E69C0F3B084692D2662972628F6B42F752E9AE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:5E69C0F3B084692D2662972628F6B42F752E9AE0
 ```bash
 magnet:?xt=urn:btih:8AF745C52D4B54649133B4959743B3F7023A2FC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:8AF745C52D4B54649133B4959743B3F7023A2FC0
 magnet:?xt=urn:btih:E8F596399D1A053B831DD513D0E8EB1ADEB52DAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:E8F596399D1A053B831DD513D0E8EB1ADEB52DAB
 ```bash
 magnet:?xt=urn:btih:1C17EBF685BB1C64ABDEB4481264A50FB7BE96AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ VA - Metal Violin (2011) [MP3|320 kbps]<Symphonic Metal, Gothic Metal>
 magnet:?xt=urn:btih:C7C44649E0A99D8BF17C4B45546F445B3C45E4DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ VA - Paul Oakenfold: DJ Box - February 2012 (2012) [MP3|320 kbps]<Trance>
 magnet:?xt=urn:btih:EC9A800F45DDBCB0248D2EFE2B01488CDAC9ACD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +254,8 @@ VA - The Beach 2011 (2011) [MP3|320 kbps]<Psychedelic / Full On>
 ```bash
 magnet:?xt=urn:btih:332D0D12E0F1F8D67D5884BB69D8F7D0E3A32193
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +290,8 @@ Trance Therapy - Volume 7 (2012) [MP3|320 kbps]<Trance>
 magnet:?xt=urn:btih:F369CA086D3486466CFC894F78F748DD46ACB37E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +319,8 @@ VA - Living The Dream EP pt.3 (2012) [MP3|320 kbps]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:91477090D9B93F041D754DC742C9BDCFDB684C4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +355,8 @@ VA - Progressive Music (19.02.2012) [MP3|320 kbps]<Progressive House>
 magnet:?xt=urn:btih:C4D4A730BBE1972CD28C27A0EBFB0B6690FF1752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +388,8 @@ VA - Cinema Of Consciousness 2 (2012) [MP3|192-320 kbps]<Psychedelic / Progressi
 ```bash
 magnet:?xt=urn:btih:83F15EFFAD576BA34D34ACA6D11FBF307CA13456
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +424,8 @@ magnet:?xt=urn:btih:83F15EFFAD576BA34D34ACA6D11FBF307CA13456
 magnet:?xt=urn:btih:7F51E6C1DF18B6E75B4F9889C3960E76B23CDDE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +449,8 @@ magnet:?xt=urn:btih:7F51E6C1DF18B6E75B4F9889C3960E76B23CDDE0
 ```bash
 magnet:?xt=urn:btih:ABFBFEA25E9FB8ADD378F1D7F1639251024E6736
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +485,8 @@ DJ Feel - TranceMission Top 25( Of January 2012) [MP3|320 kbps]<Trance>
 magnet:?xt=urn:btih:49B7CC9D64C5D6DAF3180429FF1EB8FB67A69C7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +513,8 @@ Ephor - Maybe It`s You (2012) [MP3|320 kbps]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:E14CCC812FFF4F6E700C176357A8133986964D2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +549,8 @@ VA - Minimal Art v.2 (10.02.2012) [MP3|320 kbps]<Minimal>
 magnet:?xt=urn:btih:AF2FBE53AD32B0B7372FDB419C7BCF234998E1F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +583,8 @@ VA - Minimal Art v.1 (09.02.2012) [MP3|320 kbps]<Minimal>
 ```bash
 magnet:?xt=urn:btih:A6C4CF8D9E190CCEDDEEBDDAC3EA4247698424E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +619,8 @@ VA - Minimal Art v.9 (17.02.2012) [MP3|320 kbps]<Minimal>
 magnet:?xt=urn:btih:41C9E3BF5BF53918349DE66079E0DEB9A40E73D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +654,8 @@ VA - Minimal Art v.7 (15.02.2012) [MP3|320 kbps]<Minimal>
 magnet:?xt=urn:btih:FD329286EA85C203B56C73047C2CC297A937952E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +679,8 @@ magnet:?xt=urn:btih:FD329286EA85C203B56C73047C2CC297A937952E
 ```bash
 magnet:?xt=urn:btih:FB3B6219028615B61FCF322DBDB04046C682A70C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,6 +715,8 @@ Julian Sas - Bound To Roll (2012) [FLAC|Lossless]<Blues-Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -704,6 +750,8 @@ Dapayk & Padberg - Sweet nothings (2012) [MP3|192-320 kbps]<Tech-house>
 magnet:?xt=urn:btih:52E27F3783B872DDD843A259EFBB4CB252A45308
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -727,6 +775,8 @@ magnet:?xt=urn:btih:52E27F3783B872DDD843A259EFBB4CB252A45308
 ```bash
 magnet:?xt=urn:btih:D5FCC00BC2B565461922FEE79D18AC4109366421
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -760,6 +810,8 @@ Albert King & Otis Rush - Door To Door (1998) [FLAC|Lossless]<General Electric B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

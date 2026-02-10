@@ -22,6 +22,8 @@ Genesis - SACD Anthology (1970-1998) [FLAC 2.0|96/24|tracks+.cue|SACD] <Progress
 magnet:?xt=urn:btih:B345F4CCF1B7F126269C2A5139016902BCAF921C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ C4. Lonesome Lullaby (4:04)Жанр: Progressive RockПродолжительн�
 ```bash
 magnet:?xt=urn:btih:8F19D02D023E97C2EA64943DC103E289DEFD80C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ D1. Lost For Words (5:13)(   Читать дальше...   )Жанр: Progressi
 magnet:?xt=urn:btih:643BE2B96630075DE560959D2BEF05EC6203370D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:643BE2B96630075DE560959D2BEF05EC6203370D
 ```bash
 magnet:?xt=urn:btih:20652EE75E8A853E4972B70D0989FDE6ADFBD402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ A4 Три Желанья · Three Wishes(   Читать дальше...   )Жа
 magnet:?xt=urn:btih:0011E5CC6EB1A6F6C9E8F2F162A92F7ED6E6E1DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ A4 Shine Through My Dreams(   Читать дальше...   )Жанр: Pop, Eas
 ```bash
 magnet:?xt=urn:btih:A27BF96131A3EEC9E00077F216931169E6E8BE90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Pussycat - Blue Lights (1981) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Disco, Pop>
 magnet:?xt=urn:btih:DFD00B4E3451E7B707AE6C11C5E51559980D5E71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Alan Parsons - A Valid Path (2006) [FLAC 2.0|48/24|image+.cue|Audio-DVD] <Progre
 ```bash
 magnet:?xt=urn:btih:7D2B2B0337101128C04100750DB08F197FD5D7AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Def Leppard - Pyromania (1983) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Roc
 magnet:?xt=urn:btih:52F94159702996FFB78062811CA47C100AA28371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ A3. В наших глазах(   Читать дальше...   )Жанр: Rock
 magnet:?xt=urn:btih:47B7650CFAA018C694EB8D91386250A82C52352F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +311,8 @@ Tin Machine - Tin Machine II (1991) [FLAC 2.0 24/192|image|Vinyl-Rip] <Alternati
 ```bash
 magnet:?xt=urn:btih:F5DE6718718C36B98A18891D70CD2B82EACFB050
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +342,8 @@ A3. Когда, когда (В.Добрынин - Л.Дербенев) 3:45(   �
 magnet:?xt=urn:btih:668C98434947B2A5DC2ED4294112F3D0D13A1CA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +370,8 @@ VA - Панорама '86. Фестиваль Молодежной Популя�
 ```bash
 magnet:?xt=urn:btih:8B7FFCD0A042F5FA8510E62DDD365E37765DC87C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +400,8 @@ Chicago - Chicago 18 (1987) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz Rock, Po
 magnet:?xt=urn:btih:59427E2D6D8AFAD4414B3CC395EF1BEDED7202D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ Stars on 45 - Звёзды дискотек (1981) [WAW Pack 2.0|192/32|tracks|V
 ```bash
 magnet:?xt=urn:btih:1ED4638E333FDF3BA486F0DB27023564CEB9297C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +458,8 @@ Stars On 45 - Звёзды Дискотек - 2 (1982) [WavPack 2.0|192/32|track
 magnet:?xt=urn:btih:B9CA5329AD86F0144704CC5FABBFA6BBBB1679B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +486,8 @@ PDA 005 A
 ```bash
 magnet:?xt=urn:btih:872D0C131A63D2E70D7BDC5143854B1E0BE9E404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +516,8 @@ A4. Serious (4:19)(   Читать дальше...   )Производство: 
 magnet:?xt=urn:btih:264DA506C65C8068ACB34D1128085C8F7FD5F855
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +544,8 @@ Rob Halford (Judas Priest, Fight, Two) - Studio Albums (12 releases) (1993 - 201
 ```bash
 magnet:?xt=urn:btih:BC3C4DF92479B9230212355039647A85BB6367C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +574,8 @@ magnet:?xt=urn:btih:BC3C4DF92479B9230212355039647A85BB6367C2
 magnet:?xt=urn:btih:6F3AE99E620FBD454DC8BAF5E628B300D19E84B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +602,8 @@ magnet:?xt=urn:btih:6F3AE99E620FBD454DC8BAF5E628B300D19E84B2
 ```bash
 magnet:?xt=urn:btih:47F05248CF781B8327BAEFD0BB5AF1BDD4E78380
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +632,8 @@ magnet:?xt=urn:btih:47F05248CF781B8327BAEFD0BB5AF1BDD4E78380
 magnet:?xt=urn:btih:9619F222C9A03A8D61F87A188DE83CAFCFD6B977
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +659,8 @@ magnet:?xt=urn:btih:9619F222C9A03A8D61F87A188DE83CAFCFD6B977
 ```bash
 magnet:?xt=urn:btih:B656221AD61289DCF82480F0FA1066A83985867C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +689,8 @@ magnet:?xt=urn:btih:B656221AD61289DCF82480F0FA1066A83985867C
 magnet:?xt=urn:btih:7CA72C8EA6F00CD75F694F84876057A3284DA01B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,6 +718,8 @@ A4. Man Of Our Times (5:37)(   Читать дальше...   )Производ�
 magnet:?xt=urn:btih:3E71868C9C0C7591109F2A7E68944F15264EC075
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ The Flirts - Blondes, Brunettes & Redheads (1985) US [FLAC 2.0|24/192|image|Viny
 ```bash
 magnet:?xt=urn:btih:F5D7177BBC3582D38A31AF8DD0A25CD038A2DA89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

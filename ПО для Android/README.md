@@ -20,6 +20,8 @@ https://t.me/izofen
 magnet:?xt=urn:btih:95D8E385AFB676B33DDE92AC3A0C0352FF58B875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Folder Player Pro - это ориентированный на каталоги 
 ```bash
 magnet:?xt=urn:btih:A42CE0A9DE3D360589E7036CE4CEC85159B5E7F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Gallery - Photo Gallery, Album (XGallery) v1.9.9 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:D1F6564363D87FB83B0025901907469EAEB00C76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:DDE768A0E9D9AFEF8A0D4E025363C4C6381B0AD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:F64420042C0A9EE5BAC9E37C33EF9AE13FD17E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ FacePic — приложение AI Face, приложение для легко
 ```bash
 magnet:?xt=urn:btih:112EB4E4EE3050C37243DC7EDD29CEF42CFF99D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:112EB4E4EE3050C37243DC7EDD29CEF42CFF99D3
 magnet:?xt=urn:btih:E2F142FEACF153952CB9EC7BE0CAC9C3DF36C274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ AI Photo Editor - AIFoto v1.15.3 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2848724FE5A0442425AEC7F6EBF06490CB2BCD96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.1.2 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:A3C915FA054CECA8B08FEB5E2F52A464E08C61A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ FBReader Premium v3.8.18 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:684F0C67C8B85C5BEE8C5807035726B3571A0251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:684F0C67C8B85C5BEE8C5807035726B3571A0251
 magnet:?xt=urn:btih:ED32A3E4A284A1AE8F6996D54112E4DE1E74C2F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ AndroVid Pro представляет собой простой и удобны�
 ```bash
 magnet:?xt=urn:btih:893B6038A4BEB23ED962EB99AA7EA205FC97AD99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ WaveEditor для Android™ — это профессиональный инс�
 magnet:?xt=urn:btih:63D7F745A71419E67B20DEEB3BB3E51CAEBE585E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Auto Reply: автоответчик v5.7 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A826A6E48625DB51855EABE4DDACDB6948685E9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ PictureThis - Plant Identification v5.13.0 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:35A2C5B1F80965BE3EA3E0FB0A64E5F0551B400B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Electrical Calculations Pro / Электрические расчеты v11.0.1 
 ```bash
 magnet:?xt=urn:btih:D5E76F85FF2AF27DABC8A0D6F3BF720B5F3662C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Flud - простой и элегантный BitTorrent клиент для о�
 magnet:?xt=urn:btih:A8C1B6B7A1E80376887C16F0344A36B9089FDD8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:DABF9728CA10FCECFE9E125DB8490F3F1680D475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ AIDA64 v2.12 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:A2A8F76873BE968BEE7CD7262AF4E5B3451C784F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ MobiOffice - это полнофункциональный офисный пак
 magnet:?xt=urn:btih:E46C26B7D1BAFEE9F4094B7EEBA2D220AF0C11F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:E46C26B7D1BAFEE9F4094B7EEBA2D220AF0C11F4
 ```bash
 magnet:?xt=urn:btih:69BF16615A4F181B221EF100F4EB8DC92424A5B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Purvpn 9.6 [En/Farsi]
 magnet:?xt=urn:btih:6B6915DFFCF7F57B209FA3F0374718AA4BD2290C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ FullReader — многофункциональное приложение дл�
 magnet:?xt=urn:btih:924308CCE00862B961A9F8AB671FB5E4849B8E4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ ByeByeDPI v1.6.6 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0A5C644098CBCAA404BFB010C6008285B12DFC8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Rosetta Stone: Изучение языков 8.34.2 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:17A8E2EA95CF332F22538147112A0097CEE050C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ RUTUBE — официальное приложение одноименной о
 ```bash
 magnet:?xt=urn:btih:2CD6F82D4DD46D180992539E4F03A9C1D7CBF0F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

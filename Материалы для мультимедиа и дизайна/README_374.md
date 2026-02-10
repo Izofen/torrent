@@ -1,3 +1,133 @@
+###  Публикация: 1495070   (884300) от 10.09.2021
+
+3D модели - Hum3D - Ford Tourneo Courier 2013 [V-Ray|*.max, 3DS, C4D, FBX, LWO, MB, OBJ, WRL]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884300.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиль марки Ford.Формат: V-Ray|*.max, 3DS, C4D, FBX, LWO, MB, OBJ, WRL
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0118CB8B43B862B48476980AC82A9DD4185BACB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495100   (884313) от 10.09.2021
+
+3D модели - Hum3D - Kubota M7060 2018 [Scanline|V-Ray|*.max, FBX]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884313.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель трактор марки Kubota.Формат: Scanline|V-Ray|*.max, FBX
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9906D67BEC0B83B481BC44D40230229163F93BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102742   (884349) от 12.02.2017
+
+Футажи - Motion Array - UNMASK - 100 Transition pack [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884349.jpg" />
+</div>
+
+
+###  Подробнее
+
+UNMASK - 100 Transition pack -  Пакет с большим количеством переходов. Он будет работать в Premiere Pro, Final Cut Pro или любом другом программном обеспечении для нелинейного редактирования. Просто поместите переход на таймлайн и используйте в качестве Matte. Поднимите любой видео продукт на профессиональный уровень.Формат: MOVРазрешение файлов: 4096X2304
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8635C54E08F0FC3E640A4139799464E48141012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495072   (884370) от 10.09.2021
+
+3D модели - Hum3D - Holden Colorado LX Space Cab Alloy Tray 2008 [V-Ray|*.max, FBX, OBJ]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884370.jpg" />
+</div>
+
+
+###  Подробнее
+
+3d модель автомобиль марки Holden.Формат: V-Ray|*.max, FBX, OBJ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E3389081BEC4341A86867EBF406037C122F7FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102734   (884384) от 12.02.2017
+
+Футажи - Motion Array - 30+ Matte Transitions Pack [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_884384.jpg" />
+</div>
+
+
+###  Подробнее
+
+30+ Matte Transitions Pack - предайте своим видео отличный внешний вид и стиль с этими анимированными переходами. Этот набор включает в себя более видео со всеми видами элементов, чтобы удовлетворить все потребности. Каждый переход доступен в 2-х различных версиях, одна только с интро, а другая с интро и аутро, так что вы получите в общей сложности 62 перехода. Смешивайте, (   Читать дальше...   )Формат: MOVРазрешение файлов: 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C42D1A4026A4C06C472A836AD8F77F7BFB1DFE60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 763553   (884603) от 06.03.2014
 
 Сборник - Цветы / Flowers [JPG, PSD, TIF]
@@ -21,6 +151,8 @@
 ```bash
 magnet:?xt=urn:btih:03E8F5CF5F93EEF8445CCDF37676CA55757CB0AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +178,8 @@ magnet:?xt=urn:btih:03E8F5CF5F93EEF8445CCDF37676CA55757CB0AC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +203,8 @@ magnet:?xt=urn:btih:03E8F5CF5F93EEF8445CCDF37676CA55757CB0AC
 ```bash
 magnet:?xt=urn:btih:035185AE42B9D6143036A5135C067220413AEC9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +230,8 @@ magnet:?xt=urn:btih:035185AE42B9D6143036A5135C067220413AEC9B
 magnet:?xt=urn:btih:B398294D1A6B370D6DB8CE3CEBB98F134DA7AB25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +255,8 @@ magnet:?xt=urn:btih:B398294D1A6B370D6DB8CE3CEBB98F134DA7AB25
 ```bash
 magnet:?xt=urn:btih:DD6A2ECA7BD4C5F76D0384C4286E94D59694997B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +282,8 @@ magnet:?xt=urn:btih:DD6A2ECA7BD4C5F76D0384C4286E94D59694997B
 magnet:?xt=urn:btih:91C241EE9202F3B2B30ADDED880A3B0B0FD18697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +308,8 @@ magnet:?xt=urn:btih:91C241EE9202F3B2B30ADDED880A3B0B0FD18697
 magnet:?xt=urn:btih:46D87B04703A3F9E6E32AA068FD5FCD9CBF8B36D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +333,8 @@ magnet:?xt=urn:btih:46D87B04703A3F9E6E32AA068FD5FCD9CBF8B36D
 ```bash
 magnet:?xt=urn:btih:1CD436A216725073D1CF31AF01D9988AE52778AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +361,8 @@ Light Leaks Pack - Real organic light leaks filmed for your projects. Light Leak
 magnet:?xt=urn:btih:3BA566723EFAAA99CEE944D8B8AC07B48A76D8A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +387,8 @@ magnet:?xt=urn:btih:3BA566723EFAAA99CEE944D8B8AC07B48A76D8A0
 ```bash
 magnet:?xt=urn:btih:EBE6FDF2F85497359E3CD073899C33E1E5E69E9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +416,8 @@ Ink Matte Pack - Stock pack full of ink bleed and reveal mattes, great for motio
 magnet:?xt=urn:btih:685AC2701968D31F3044E078F325997EF6D91967
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +441,8 @@ magnet:?xt=urn:btih:685AC2701968D31F3044E078F325997EF6D91967
 ```bash
 magnet:?xt=urn:btih:70315ECB281282D5D69A03C6BDFE300BB625EDC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +468,8 @@ magnet:?xt=urn:btih:70315ECB281282D5D69A03C6BDFE300BB625EDC6
 magnet:?xt=urn:btih:D52190B68B26BF6EA9A06E244965FF4CA06D1938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +493,8 @@ magnet:?xt=urn:btih:D52190B68B26BF6EA9A06E244965FF4CA06D1938
 ```bash
 magnet:?xt=urn:btih:A33C02DF4CFB66B816DD9D8010FECE1F55840040
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +520,8 @@ magnet:?xt=urn:btih:A33C02DF4CFB66B816DD9D8010FECE1F55840040
 magnet:?xt=urn:btih:A101B2C39F057113ED9E50321E6FBDCCC4CDC15F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +545,8 @@ magnet:?xt=urn:btih:A101B2C39F057113ED9E50321E6FBDCCC4CDC15F
 ```bash
 magnet:?xt=urn:btih:6FD062EF1F136157D811748EE6530F0844BD3E50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +572,8 @@ magnet:?xt=urn:btih:6FD062EF1F136157D811748EE6530F0844BD3E50
 magnet:?xt=urn:btih:F156748BBA59471E74BED05F0D8781360ADB7083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +597,8 @@ magnet:?xt=urn:btih:F156748BBA59471E74BED05F0D8781360ADB7083
 ```bash
 magnet:?xt=urn:btih:F6C391B2AF9E8B812F82A83C760E3D09DDE90CD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +624,8 @@ magnet:?xt=urn:btih:F6C391B2AF9E8B812F82A83C760E3D09DDE90CD5
 magnet:?xt=urn:btih:0411665F29BE6EAF081261123E0BCE8F92EB7DAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +649,8 @@ magnet:?xt=urn:btih:0411665F29BE6EAF081261123E0BCE8F92EB7DAD
 ```bash
 magnet:?xt=urn:btih:140BE5E8C74614AE88DD898673BE5D38F9D89FDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,127 +676,7 @@ magnet:?xt=urn:btih:140BE5E8C74614AE88DD898673BE5D38F9D89FDF
 magnet:?xt=urn:btih:C95743A8CDB7EE96E3968CDE9E78B9FD31560A22
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494805   (885810) от 09.09.2021
-
-3D модели - Hum3D - Ford B-700 Thomas Conventional School Bus 1984 [V-Ray|*.max, 3DS, ASC, C4D, FBX, LWO, OBJ, STL, WRL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885810.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автобуса марки Ford.Формат: V-Ray|*.max, 3DS, ASC, C4D, FBX, LWO, OBJ, STL, WRL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D88A415F5BC760B0415F1828D3863AC3260C5D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494886   (885813) от 09.09.2021
-
-3D модели - Hum3D - Honda GL 1800 Gold Wing 2018 [Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, MB, OBJ, STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885813.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель мото марки Honda.Формат: Mental Ray|Scanline|V-Ray|*.max, 3DS, C4D, FBX, LWO, MB, OBJ, STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904D61F48C3BD32B505D9F459175E5E39BB7DF40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 870463   (885900) от 18.02.2015
-
-Растровый клипарт - Grunge border [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Очень интересные на мой взгляд рамочки-бордюры, окантовки для всяких подделок с фотографиями, мне пригодилось.. может и вам будет интересно, дерзайте и фантазируйте!Формат: PNGРазрешение файлов: от 318х308 до 4961х3508
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65314FEB1098C2F8EB7F2A7E712FB57C728996D6
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494812   (885914) от 09.09.2021
-
-3D модели - TurboSquid - 1978 Ford F-250 Crewcab - 1282651 [FBX, MAX, LXO, OBJ]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_885914.jpg" />
-</div>
-
-
-###  Подробнее
-
-3d модель автомобиля марки FordФормат: FBX, MAX, LXO, OBJ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8B4C3508E76E954C61AC80258B3C9BF34C762CD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640622   (886058) от 07.04.2013
-
-Текстуры - Обои итальянской фабрики Wall&Deco коллекция Life [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Wall & Deco –  это молодая итальянская студия, которая разрабатывает эксклюзивные фотообои и панно для креативных дизайнерских интерьеров. Благодаря смелым новаторским идеям, а также использованию самых современных материалов, компания WALL & DECO занимает заслуженно высокое место среди ведущих производителей обоев.
-
-Хочу представить вам еще одну новую коллекцию обоев от студии Wall&Deco. Это коллекция Life . Кстати, все обои Wall&Deco могут выполняться с двумя вариантами фактуры и тона.  Необыкновенный дизайн и интересные эффекты создадут неповторимый интерьер любого помещения.Разрешение файлов: от 386x1240 до 3997x945Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8D89214B69CD9DDDD12B915131A5A67EF5305C3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

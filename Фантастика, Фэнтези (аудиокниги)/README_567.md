@@ -1,3 +1,29 @@
+###  Публикация: 1844443   (1050092) от 26.12.2025
+
+Андрей Ефремов | Очаг (Книга 1). Отступник (2025) [MP3, Валерий Толков]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1050092.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первая волна Прорыва состояла из двадцати пяти Очагов. В один далеко не прекрасный день из недр земных хлынули толпы кровожадных тварей, сдержать которых люди оказались не в силах. Затем пришла вторая волна, и привычный мир рухнул. Точнее, раскололся на тысячи почти не связанных друг с другом осколков. Но была у планетарного апокалипсиса и положительная сторона: (   Читать дальше...   )Жанр: Боевая фантастика, БоевикиИздательство: МедиаКнигаПродолжительность: 08:25:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85DA51CDAEB36F69552C7F20BD0F6073F8C0C025
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844444   (1050108) от 26.12.2025
 
 Вадим Денисов | Идущий на Север. Долина Башен (2025) [MP3, Александр Чернов]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:8B326266F7746ED30D619559925C7392E7131D43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:8B326266F7746ED30D619559925C7392E7131D43
 magnet:?xt=urn:btih:B2889CF268326097A1259DB44599E7843329C9EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:B2889CF268326097A1259DB44599E7843329C9EB
 ```bash
 magnet:?xt=urn:btih:5B9552C1FF1ED1CA50F98B44F7DE259E2687EA24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:5B9552C1FF1ED1CA50F98B44F7DE259E2687EA24
 magnet:?xt=urn:btih:D784B7C6AA79BD05BAE00BD879B48BB7154A5174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:D784B7C6AA79BD05BAE00BD879B48BB7154A5174
 ```bash
 magnet:?xt=urn:btih:15920EF0B87CE6DB4225CA3D92483A3F090EE1A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:15920EF0B87CE6DB4225CA3D92483A3F090EE1A9
 magnet:?xt=urn:btih:DE0CFCA5841B9D9B299026B5E0D0CE190C416865
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:DE0CFCA5841B9D9B299026B5E0D0CE190C416865
 ```bash
 magnet:?xt=urn:btih:645831128CF2CDFCA09064E6933AFA7E58113160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:645831128CF2CDFCA09064E6933AFA7E58113160
 magnet:?xt=urn:btih:48E662F9D6EB4437B266088C4FCF3F536EF4FC61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:48E662F9D6EB4437B266088C4FCF3F536EF4FC61
 magnet:?xt=urn:btih:96646252A9CEB89F7827E2BB24A98C5E7BF494BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:96646252A9CEB89F7827E2BB24A98C5E7BF494BD
 magnet:?xt=urn:btih:3CBB366FDFC414CCCFEAAED5DB91D55FDAB27580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:3CBB366FDFC414CCCFEAAED5DB91D55FDAB27580
 ```bash
 magnet:?xt=urn:btih:1081EE5BA01B27728EBF9C60162809E33DC10AF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:1081EE5BA01B27728EBF9C60162809E33DC10AF8
 magnet:?xt=urn:btih:69545FE7DACEBE7F8EF9F041DE9B4723DDD3121C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:69545FE7DACEBE7F8EF9F041DE9B4723DDD3121C
 ```bash
 magnet:?xt=urn:btih:20E33F23714818670C761C2480D2C3F6B0F95E27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:20E33F23714818670C761C2480D2C3F6B0F95E27
 magnet:?xt=urn:btih:9B631DD7525D02E79B9835439BF0F25407E039F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:9B631DD7525D02E79B9835439BF0F25407E039F7
 ```bash
 magnet:?xt=urn:btih:0D7B9CF6ACD64446C9ED0A32B3A21F75CAFD17FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:0D7B9CF6ACD64446C9ED0A32B3A21F75CAFD17FD
 magnet:?xt=urn:btih:9636F23DA842C5D7F57B855320249E5AFCD8F967
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:9636F23DA842C5D7F57B855320249E5AFCD8F967
 ```bash
 magnet:?xt=urn:btih:CC276B65ECE93A1CF1B515631BB3968AA111E283
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:CC276B65ECE93A1CF1B515631BB3968AA111E283
 magnet:?xt=urn:btih:2C1450A69438AE145CB692EB9F44F0BE0C4E0A7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:2C1450A69438AE145CB692EB9F44F0BE0C4E0A7C
 ```bash
 magnet:?xt=urn:btih:48DE05DAAB48B46411D759EB41724C1D5519BFEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:48DE05DAAB48B46411D759EB41724C1D5519BFEB
 magnet:?xt=urn:btih:D5243C0E5B9F29E4D148CDCA9A489C440883BD0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:D5243C0E5B9F29E4D148CDCA9A489C440883BD0F
 magnet:?xt=urn:btih:87DBD1878351BEAB703EBD4FDC4588E3085E6370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:87DBD1878351BEAB703EBD4FDC4588E3085E6370
 ```bash
 magnet:?xt=urn:btih:119106E932A44EB576D9550CF914A02D1EB56DBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:119106E932A44EB576D9550CF914A02D1EB56DBC
 magnet:?xt=urn:btih:272FA2CA603E05BF64FAFB040EF77AEC3C769938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:272FA2CA603E05BF64FAFB040EF77AEC3C769938
 ```bash
 magnet:?xt=urn:btih:51AD364C0A53D87D8A4DDF71B80B74129F40CA04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:51AD364C0A53D87D8A4DDF71B80B74129F40CA04
 magnet:?xt=urn:btih:DE9857E2BE6BE8F8ED5A79D9EEC41BFFB9FC1132
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845853   (1050978) от 04.01.2026
-
-Андрей Прокофьев | Хоббиты у наклонной горы (Достоевский) (2025) [MP3, Андрей Прокофьев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1050978.jpg" />
-</div>
-
-
-###  Подробнее
-
-Уже в какой раз всё перепуталось местами. Знатные эльфы, в числе которых Баймен, Шольце, Макрин, Стармес. В их же компании господин Зелендей. Над ними всеми сам черный маг Толкиен. Но ведь эльфы хорошие, добрые... или не так, или что-то пошло непривычным для меня образом... или всё это господин Экзорцим, или сам Федор Михайлович, загадочное Средиземье, до которого (   Читать дальше...   )Жанр: фантастика, фэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 12:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51AF25AC14092304C35840A65F6B788A1D4BF744
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

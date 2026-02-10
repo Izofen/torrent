@@ -21,6 +21,8 @@ Clipboard Manager 2.4.4 [En]
 magnet:?xt=urn:btih:2BFB36D5F0539E17A419F892310573B76A731915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ OCCT 12.0.2 Portable [En]
 ```bash
 magnet:?xt=urn:btih:CF307FB72901887BADA651709509E0CBC623252D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ n-Track Studio Suite 9.1.8 Intel/ARM [Multi/Ru]
 magnet:?xt=urn:btih:0A53B4213563AE9D29B5180B56D7AB0AD382E4CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Acorn (   Читать дальше...   )Тип издания: macOS Software
 ```bash
 magnet:?xt=urn:btih:38FE57CBE3154AAAD8453318058EF37507173BE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ CudaText — абсолютно бесплатный мультиплатфор�
 magnet:?xt=urn:btih:B40E588D545AA0EEB06C46A33F1E7464086CDED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ TuneIn объединяет спортивные события, музыку, �
 magnet:?xt=urn:btih:DBA5AEEC36A36F66F4451A5BA24D0B72B000FFC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ GoodSync - программа из серии высоконадежного, у
 ```bash
 magnet:?xt=urn:btih:01C48A7A5B5BFF66BA29BAAB37F4A6B1BF76A34C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ PhotoDirector - функциональный, но весьма простой �
 magnet:?xt=urn:btih:FBC98A77936E054D7B8191E9AF8D0E50D1CCE928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ SQLPro for SQLit‪e - профессиональный менеджер баз 
 ```bash
 magnet:?xt=urn:btih:2B06044BA8E3DA75A19ABB164CE9E1EB0ECB9BFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 magnet:?xt=urn:btih:B6703030447E3521DB329BD9A9E89D009DAD880B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ EZ CD Audio Converter - утилита для преобразования ау�
 ```bash
 magnet:?xt=urn:btih:103448E3D5795933BA43834B75EE352C05073B03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ HiBit Uninstaller - идеальное решение для удаления п
 magnet:?xt=urn:btih:C90F6A7DC44B06C8780DC57271FE33D8DBB2B681
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ WinUtilities - системный набор для настройки ваше�
 ```bash
 magnet:?xt=urn:btih:B1E0E548E0F57D644FDC0E60AC0973043833EDF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ VSDC Video Editor Pro - полноценный комбайн для созда�
 magnet:?xt=urn:btih:28B365BA5696E18775DB8CA324B3A4A8CA7E4A1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ CADintosh позволяет ускорить проектные работы и
 ```bash
 magnet:?xt=urn:btih:3C699BD77B92D2AF216F2CAA86E363D94F4B1DA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Amadeus Pro - многотрековый музыкальный редактор
 magnet:?xt=urn:btih:FB2791C4713FE0AA8A711CE6ABB99AAA9BDD9BDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Photomath - настоящий подарок для всех, кто регул
 ```bash
 magnet:?xt=urn:btih:141D19D2C9A7DA7AC55480660DF857A75794FD34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Waterfox — это браузер, основанный на исходном �
 magnet:?xt=urn:btih:C5577F3BF32D2241CF6AD9B8FC0C1805ACED9B39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Multitouch 1.26.1 [En]
 ```bash
 magnet:?xt=urn:btih:19CA3487AD38A9551ECB4604B419F63F4AD184B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 magnet:?xt=urn:btih:3DB80FDEEB56126548B3881A060A570B9A3E646D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Tor Browser Bundle 11.0.13 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:70A3C4A6D6AAC504F53BFFCE9E635EF06C95902D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Windows 10 21H2 x64 Rus by OneSmiLe [19044.1739]
 magnet:?xt=urn:btih:034BFE2D1E2F8AD68EF8E36AAEC4C2143C3B206B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:5EA99F4EF6029CD87BDCA320771F9F956E2E5511
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ UniBook - Аудиокниги v0.6.8 [Ru/En]
 magnet:?xt=urn:btih:4D9C68A9C39A418118E3F6B7A7FE2FDCDFACBE02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ VueScan - программа для работы со сканерами HP, Min
 magnet:?xt=urn:btih:FF4320EA47CBF55EC6CF6E311C8F37AB6404FC9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Paint.NET - Простой, но мощный и удобный редактор
 ```bash
 magnet:?xt=urn:btih:FAC711F88DFF0AD5D217E237A2097E1C477A5313
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

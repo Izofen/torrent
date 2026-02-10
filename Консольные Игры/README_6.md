@@ -21,6 +21,8 @@ Sonic Riders - четвёртая по счёту игра про Соника �
 magnet:?xt=urn:btih:37D067885521C6A9A0F747ED546ACF4B28ACA443
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Tom & Jerry in House Trap - это очаровательная помесь с�
 magnet:?xt=urn:btih:0306ADD130C402D08060207CF1814C7157D193AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ GRID Legends - это захватывающие гонки, проходящи�
 ```bash
 magnet:?xt=urn:btih:2A5AF2626F68E8CBDE8C5253BD745E42CE51BE94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Sniper Elite 5 - новая часть легендарной серии, в к�
 magnet:?xt=urn:btih:A1EBEA0731F198A88796A168BEDAA980509080C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Resident Evil Village - Gold Edition (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.
 ```bash
 magnet:?xt=urn:btih:6459F3B846DC706E10B2860C783044847E3E0947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ KingStation - универсальный фронтенд для множест�
 magnet:?xt=urn:btih:CF46B032C89C6B335D1A03D3809CE8BDB58C43A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ The Callisto Protocol Digital Deluxe Edition (2022) [PS4] [EUR] 5.05 [HEN] [Repa
 ```bash
 magnet:?xt=urn:btih:D6DD8355A704C6A549ECF057551A2735CC0F8790
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ The Callisto Protocol Digital Deluxe Edition (2022) [PS4] [USA] 9.0 [HEN] [Repac
 magnet:?xt=urn:btih:0F25553CD1CFB98293D1CA07E1D4DDF1C026C755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Five Nights at Freddy's 4 - данной части игрового проце�
 ```bash
 magnet:?xt=urn:btih:995A959A56A1F3278DCD6D13298A7F1633535384
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Broforce (2015) [PS4] [EUR] 5.05 [HEN] [License / 1.07] [Multi]
 magnet:?xt=urn:btih:80A0A783DDDE8A5DED95D7C91A0CD6075750F217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Gran Turismo 5 Prologue - это предисловие к Gran Turismo 5, ко�
 magnet:?xt=urn:btih:E3D54437479E6D3BFAC3B6FFCE296CD6AA2567C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:E3D54437479E6D3BFAC3B6FFCE296CD6AA2567C6
 ```bash
 magnet:?xt=urn:btih:EAA8D5D708C7B812E41DBF9D83657036DA12924A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:EAA8D5D708C7B812E41DBF9D83657036DA12924A
 magnet:?xt=urn:btih:0F06130065E86E818F1DD0DD4CC025EF86A19ECB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Gran Turismo 5 Prologue - это предисловие к Gran Turismo 5, ко�
 ```bash
 magnet:?xt=urn:btih:FB3E2F7FE6B706DE9EEF7F7AD200982CD05BBD31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:FB3E2F7FE6B706DE9EEF7F7AD200982CD05BBD31
 magnet:?xt=urn:btih:B919060BF2F81024F165F51BCE2ABE989DF25B0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:B919060BF2F81024F165F51BCE2ABE989DF25B0F
 ```bash
 magnet:?xt=urn:btih:8D1B58A1AF1A8227F56C4B447BB9D39A7C016360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Hogwarts Legacy - это захватывающая ролевая игра с �
 magnet:?xt=urn:btih:FC569D66AE3E0F283A31EBB53B6DA3C462DD39B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Gran Turismo 7 (2022) [PS4] [USA] 9.00 (backport 5.05/6.72/7.xx/8.xx) [License] 
 ```bash
 magnet:?xt=urn:btih:6D37DA9A11AFD08B6D718000149CE27D51735368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ King's Field IV: The Ancient City [Multi-5] (2002) [PS2]
 magnet:?xt=urn:btih:DD5A530B23B6D2CE000722571C9E27BB2D765417
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Shenmue III Digital Deluxe Edition (2019) [PS4] [USA] 6.0 + Backport [5.05] [Lic
 ```bash
 magnet:?xt=urn:btih:086DD5A4E798562BB592F46D792A7B2408CFB0A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ The Cube [Wii] [PAL] [Multi 5] (2012)
 magnet:?xt=urn:btih:CCAF2512B1F2701A362574A68D2D0CC107C52F7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Fire Emblem Path Of Radiance [GameCube] [Multi-5] [PAL] (2003)
 ```bash
 magnet:?xt=urn:btih:F5069A42243FF6D335709A692482CC30BCB265D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Wipeout 3 продолжает серию игр Wipeout: The Game, основа
 magnet:?xt=urn:btih:6C64397468D2633557F40589D30FA4B62620A302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Ultimate Band – уникальная музыкально-ритмическа
 ```bash
 magnet:?xt=urn:btih:F241A517A2E548574062A01A21FC76F90C6FAA99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Nights Into Dreams [PS3] [USA] CFW 4.84 [Repack] [En]
 magnet:?xt=urn:btih:86A86BC64BB9A839ADCE51354225BD8BAA8B86DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Avatar: The Legend Of Aang [Wii] [PAL] [Multi 6] (2006)
 ```bash
 magnet:?xt=urn:btih:E5E998EAF8009C47C13AE383FDD26EF3CAFA9B6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

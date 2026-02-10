@@ -1,27 +1,3 @@
-###  Публикация: 1136837   (670522) от 24.05.2017
-
-Impact Winter (2017) [Ru/Multi] (1.0.2) Repack VseTop
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_670522.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Помощь придет через 30 дней...»... Таинственное радиосообщение гласит: спасатели уже в пути. Вы — Джейкоб Соломон, лидер группы людей, переживших опустошительное падение астероида. Мир изменился, и теперь он погребен под толщей снега.Тип издания: RepackРазработчик: Mojo BonesЖанр: Adventure, Action (Survival), Top-DownЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77CE56F7042B930A53575AB0B55B6A79246F5645
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136880   (670525) от 24.05.2017
 
 Late Shift (2017) [Ru/Multi] (1.0) SteamRip Let'sPlay
@@ -42,6 +18,8 @@ Late Shift - это криминальный FMV-триллер, ставки в
 ```bash
 magnet:?xt=urn:btih:730AF62046B8F21B3BA9B2924CFDE8481C72F8C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ StarCrawlers — это сплав из классического Dungeon Crawl
 magnet:?xt=urn:btih:5211E2C79D22CC9DA2AF86E11B69ED0F014AF627
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Dark Tales 15: Edgar Allan Poe's. Speaking with the Dead (2019) [En] (1.0) Unoff
 ```bash
 magnet:?xt=urn:btih:75C127A18A19D28A6B8CD965CF0B2385860DB9AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Nevertales 7: Creators Spark (2018) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:80204703C1B26B5D3D3F3DA1A9280D9DAAB49270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Vermillion Watch 4: In Blood (2018) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:94B80232C5DF588983A44604592D1BF861EEDA86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Haunted Hotel 16: Lost Dreams (2018) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:E028620436C49F4C9AB3AFAB4EFFB3E13EB357D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Royal Detective 5: The Princess Returns (2018) [En] (1.0) Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:1436EF1DC2492576F35DBCE58269B94075655849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Super Mega Baseball 2 (2018) [En] (1.0.29017.0/dlc) License CODEX
 magnet:?xt=urn:btih:E98624393CA028182C3A1284BC96A74B66062492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Malzbie's Pinball Collection от Malzbie Games представляет пин�
 ```bash
 magnet:?xt=urn:btih:118FBAC26F3710E63F8B3072C1A33843B718D5EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ RICO (2019) [Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:B3E4B05E797E153AED08BC0F819009E3AC9BB086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Monster Hunter: World (2018) [Ru/Multi] (1.0 build 166925/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:D0CAEC87F6DBDD140105BC8CB3B87F59191551CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Agent 9 — инди-игра с видом от первого лица. Вы �
 magnet:?xt=urn:btih:A302067712DA6F90C9142168E3ABD84D79CFE711
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Spirits of Mystery 6: Family Lies / Тайны духов 6: Семейная л
 ```bash
 magnet:?xt=urn:btih:4C5E7FE636A3AE139BC6A5111F1619AD7ADF943B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Darkness and Flame. Born of Fire (2016) [En] (1.0) Unofficial [Collector's Editi
 magnet:?xt=urn:btih:F353922B56505021866441D210AC659729498561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Witches Legacy 12: Secret Enemy / Наследие Ведьм 12: Тайный �
 ```bash
 magnet:?xt=urn:btih:2650EA2DE59FED57ED20303585A979DB7D8B8DD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ The Fidelio Incident (2017) [En] (1.0) License HI2U
 magnet:?xt=urn:btih:7073B9A770F3D7309DC0123A554D62480DF73459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Redemption Cemetery 12: The Day of the Almost Dead / Кладбище искуп
 ```bash
 magnet:?xt=urn:btih:D928DA058C4EAD2A57F073C1F7B190C6567D45F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Starship Corporation — симулятор космического кораб�
 magnet:?xt=urn:btih:E3C2882AA9BB149B9FB0D4DB768BA318A173459B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Judgment: Apocalypse Survival Simulation (2018) [Ru/Multi] (1.0.3965) License SK
 ```bash
 magnet:?xt=urn:btih:1B4E7BFBD015F5721D0597C5CA035E9826D4BC3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Farm Frenzy 3: Madagaskar / Веселая ферма 3. Мадагаскар (P
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Grim Tales 8: The Final Suspect (2015) [En] Unofficial [Collector's Edition / К
 ```bash
 magnet:?xt=urn:btih:D69B6ECBF381AA3E831AECE24048301648224367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Lost Planet 3 (2013) [Ru/En] (1.0.10246.0/dlc) Repack xatab
 magnet:?xt=urn:btih:4DCE8A4BC5EC5AF7465B8ABAC6042E12AEBED5B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Phantom Doctrine — шпионская пошаговая стратегия-т
 ```bash
 magnet:?xt=urn:btih:29239CCD398050E727D098B320809BE2B49D05AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ V-Rally 4 — это продолжение легендарной серии г
 magnet:?xt=urn:btih:3115EA87C08D59AE91E8A08DAEB328781D8C263E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ Rayman Origins (RePack/1.0.32504.1.02) [Ru] 2012 l Fenixx
 ```bash
 magnet:?xt=urn:btih:210EFEA8FC950602B56D2FE357FEBF30A85C7C99
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290951   (673818) от 22.03.2019
+
+We. The Revolution (2019) [En/Po/Fr] (1.0) License HOODLUM
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673818.jpg" />
+</div>
+
+
+###  Подробнее
+
+We. The Revolution – это уникальная игра с необычной стильной графикой, события которой происходят в кровавом и параноидальном мире Французской Революции, где друзей так сложно отличить от врагов. Как судье Революционного Трибунала вам придется оказаться в сложнейших обстоятельствах, выносить приговоры, играть в опасную политическую игру и делать все возможноеТип издания: LicenseРазработчик: PolyslashЖанр: Simulator, Strategy, RPGЯзык субтитров: Английский, Польский, ФранцузскийЯзык интерфейса: Английский, Польский, Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED79E55DEE70A9D5AAE93F6CA1A5E2894941711B
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,148 @@
+###  Публикация: 1302745   (579326) от 17.05.2019
+
+Carly Rae Jepsen - Dedicated (2019) [MP3|320 Kbps] <Pop, Electropop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Julien
+02 No Drug Like Me
+03 Now That I Found You
+04 Want You in My Room(   Читать дальше...   )Жанр: Pop, ElectropopПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EED73857FB69BD23878032C1E72778CD1B114AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302763   (579329) от 17.05.2019
+
+Chromeo - Head Over Heels (2018) [FLAC|Lossless|tracks + .cue] <Dance-pop, Nu-Disco, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Must've Been (feat. D.R.A.M.) (03:29)
+02. Don't Sleep (feat. French Montana & Stefflon Don) (03:19)
+03. One Track Mind (03:23)
+04. Count Me Out (03:37)(   Читать дальше...   )Жанр: Dance-pop, Nu-Disco, Synth-popПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:426A8CC6A7F7ED96D0913142314987FCD6E60965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302728   (579330) от 17.05.2019
+
+Rhye - Spirit (2019) [FLAC|Lossless|WEB-DL|tracks] <Sophisti-Pop, Indie-Pop, RnB, Downtempo>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579330.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dark (01:27)
+2. Needed (05:18)
+3. Malibu Nights (01:55)
+4. Patience (feat. Ólafur Arnalds) (04:14)(   Читать дальше...   )Жанр: Sophisti-Pop, Indie-Pop, RnB, DowntempoПродолжительность: 00:27:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8CB446A815156884A2DEAB54986BAFF16BAE44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042361   (579368) от 12.08.2016
+
+Doris D And The Pins - 2 Albums (1981, 1984) [MP3|320 Kbps] <Electronic, Disco, Hi NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight (4:53)
+02. Silver Spaceman (2:52)
+03. Higher And Higher (3:24)
+04. The Marvellous Marionettes (2:43)(   Читать дальше...   )Жанр: Electronic, Disco, Hi NRGПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46ACE0C61BE5A995B1BCFE46AC620D0F56EB650A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042505   (579410) от 12.08.2016
+
+VA - Disco Tape Vol 3 (2016) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_579410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Den Harrow - A Taste of Love (7:14)
+02. Time - Love Is the Reason (Remix) (6:19)
+03. Ram Band - Silent Smiles (Vocal Extended Version) (6:46)
+04. Peter Jacques Band - Is It It (Remix) (5:46)(   Читать дальше...   )Производство: RLT RecordsЖанр: DiscoПродолжительность: 02:10:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C62BD5C933B7842164C08F02D186C51D5BFF4840
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042435   (579416) от 12.08.2016
 
 Emly Starr - Emly Starr (1980) [MP3|320 Kbps] <Electronic, Disco>
@@ -21,6 +166,8 @@ Emly Starr - Emly Starr (1980) [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:4B4D07DD413FB1AA176B970148F5796D2001BEF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +202,8 @@ King Kong & The D. Jungle Girls - King Kong Greatest Hits (2000) [FLAC|Lossless]
 magnet:?xt=urn:btih:E35D278F72A487C321BBD1D2833FB3A6BD3F08B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -88,6 +237,8 @@ King Kong & D'Jungle Girls - King Kong Greatest Hits (2000) [MP3|320 кб/с]<It
 magnet:?xt=urn:btih:293DF28A83DBC842085D8D54D92567C5A4B3BBCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +265,8 @@ Bad Boys Blue - 30 (2015) 2CD [FLAC|tracks+.cue]<Disco, Euro-Disco, Synth-pop, D
 ```bash
 magnet:?xt=urn:btih:4145C8D812DE9DBDC60826F0E58E69873CEAA0A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +295,8 @@ Sindy - Selfie (2015) [FLAC|tracks+.cue]<Pop, R&B>
 magnet:?xt=urn:btih:88D5B9551B9485AB438D88165624828DFC8EDC72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +323,8 @@ Maarja - First In Line (1997) [FLAC|tracks+.cue]<Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:F021985370D0D7D3E309F71BEF5DC66EE89EFE69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +353,8 @@ Wincent Weiss - Irgendwie anders (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:31AAFBAAB3D1429E9FE47731DD7511784A086E31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +381,8 @@ Chromeo - She's In Control (2004) [FLAC|Lossless|tracks + .cue] <Electro, Disco>
 ```bash
 magnet:?xt=urn:btih:65322763DE5908AEC8BE5A669CA67D24416B88AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +417,8 @@ Silicon Dream & Projects - The Maxi-Singles Collection Volume 1 (2007) [APE|Loss
 magnet:?xt=urn:btih:E4A650A66D46AA755CAD539B6DFF9585E2E2BE90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +451,8 @@ Radiorama - Swedish Remixes (2006) [APE|Lossless]<Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:7AA396AB97E4D16733BD3BCAFF89C9A6BD5DB207
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +487,8 @@ Latin Lover - Casanova Action (2007) [APE|Lossless]<Italo-Disco>
 magnet:?xt=urn:btih:254CEA384DF5E692E04D8F9EB1FE4C4B1CA738B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +522,8 @@ Latin Lover - Casanova Action (2007) [MP3|320 кб/с]<Italo-Disco>
 magnet:?xt=urn:btih:6D8456999CDC4B9679CD2BA9E921B5467B059BCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +552,8 @@ CD2 - 00:40:10Треклист CD1:
 magnet:?xt=urn:btih:67EE4ECC94E9F516B6589854DB59DE0D32312DB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +581,8 @@ VA - Pure... Voices (2012) Box Set, 4CD [FLAC|Track+.cue]<Pop, Jazz, Rock>
 magnet:?xt=urn:btih:170007584FD28E72DE54F6D69074A265CC479EC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +606,8 @@ VA - Golden Retro Hits (4х2CD) (2012) [MP3|320 кб/с]<Pop, Retro>
 ```bash
 magnet:?xt=urn:btih:46D808C88FE8583C87C854C72914F81B40903A48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +639,8 @@ VA - Italo Maxi Hits (1985) 2CD /2010/[FLAC|Lossless]<Italo-Disco>
 magnet:?xt=urn:btih:951AC4FB2FA792B295E71DCF7DBFDC6ACA361E8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +667,8 @@ Dolly Dots - голландская диско-поп группа. Образо
 ```bash
 magnet:?xt=urn:btih:78EC6A95E0AA73467D1006EB2F009C7BB62BE935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +699,8 @@ VA - Italo Maxi Hits (2010) 2CD [MP3|320 кб/с]<Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:3CCB8B2CD67EC1067A543209E97C0D15C17D3688
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +735,8 @@ Silent Circle - The Maxi-Singles Collection (2006) [APE|Lossless]<Italo-Disco>
 magnet:?xt=urn:btih:C6DA3E0CBD625F29CE69888E0F094F34605B789B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +769,8 @@ Gilla - Help ! Help ! (2010) [FLAC|Lossless]<Disco>
 ```bash
 magnet:?xt=urn:btih:8613E13A6E3BDCD07A467D2734F28804608B3D54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,170 +805,7 @@ Gilla - I Like Some Cool Rock 'N' Roll (2010) [FLAC|Lossless]<Disco>
 magnet:?xt=urn:btih:F7160F6CABBAB3E36BDAA0BB1EB2BA374A2070E4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810990   (581481) от 07.08.2014
-
-Baby's Gang - Challenger (2008) [APE|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Challenger 5:16
-02. Jamin 5:56
-03. Happy Birthday (To My Mammy) 4:55
-04. Happy Song 5:35
-05. My Little Japanese Boy 4:22
-06. Step By Step 4:32
-07. America 4:26
-08. Challenger (Instrumental Mix) 3:04
-09. Disco Maniac 5:45
-10. Let's Dance In The Music 4:39(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A93A1BDF3516928FC2EFFFE840B6D2E90420DD72
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811133   (581485) от 07.08.2014
-
-Grant Miller - The Maxi-Singles Collection (2007) [MP3|320 кб/с]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colder Than Ice 5:35
-02. Red For Love 5:28
-03. Doctor For My Heart 5:16
-04. I'm Alive Tonight 3:59
-05. Wings Of Love 5:15
-06. California Train 4:54
-07. (Find My) Tracks In The Snow 5:06
-08. Break Away 5:52
-09. Stranger In My Life 4:29
-10. In The Rain Again 4:57(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32D4D746FF999D533B847BFE605A076E9B0F8300
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810986   (581492) от 07.08.2014
-
-Scotch - The Maxi-Singles Collection (2008) [APE|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Penguins' Invasion (Original Version) 5:47
-02. Disco Band (Mach 2 Remix) 6:18
-03. Losing In Time 4:22
-04. Loving Is Easy (Frederick Ramel Rmx) 5:50
-05. Born To Kill (Bonus Version) 5:49
-06. Delirio Mind (Remix) 5:37
-07. Pictures (Tess Power Remix) 5:58
-08. Discolation 4:50
-09. Man To Man 4:50
-10. Amour Pour Victoria (Russian Version) 4:47(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:11:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA81B3C81FD371A6CE3791B78ADE8DD0D01271C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810975   (581493) от 07.08.2014
-
-Saphir - Perfect Combination (2006) Limited Edition [MP3|320 кб/с]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Feel Good (I Feel Fine) 4:51
-02. The Witch-Queen Of New-Orleans 3:31
-03. Little Rock 4:06
-04. Frough Your Eyes 4:07
-05. Shot In The Night 4:21
-06. Perfect Combination 3:12
-07. Never Give Up 4:00
-08. Storms Of Love 3:56
-09. Stand Up 3:47
-10. I Am Alive 4:00(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561FE84C67FE578A78DA60B8CABE9799F5BB0E32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811132   (581544) от 07.08.2014
-
-Grant Miller - The Maxi-Singles Collection (2007) [APE|Lossless]<Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_581544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colder Than Ice 5:35
-02. Red For Love 5:28
-03. Doctor For My Heart 5:16
-04. I'm Alive Tonight 3:59
-05. Wings Of Love 5:15
-06. California Train 4:54
-07. (Find My) Tracks In The Snow 5:06
-08. Break Away 5:52
-09. Stranger In My Life 4:29
-10. In The Rain Again 4:57(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66B0F3FDD3294E18241CF0444A6E89DEF7CB861B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

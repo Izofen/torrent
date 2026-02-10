@@ -19,6 +19,8 @@ Aid4Mail это быстрый и очень точный программа п�
 magnet:?xt=urn:btih:3993600ACB78170278B0752425AF04DCFC80FB92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Screenpresso - это один из самых простых инструмен
 ```bash
 magnet:?xt=urn:btih:3079B05AB9F10AF4AA3006DAF468C4AA55C1C7BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ WindowBlinds - самая популярная программа для изм�
 magnet:?xt=urn:btih:86AD3E3F630639EF8A2F00EC3A8047DE52C787BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Gilisoft RAMDisk 6.6.0 DC 01.04.16 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:D848E536DB94DB5D48CC92BC36531454F2AA32A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Scan Tailor - это интерактивный инструмент для по
 magnet:?xt=urn:btih:79CF2749DB2CD6920D59BCB91BAC0460E56A5E72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ GWX Control Panel (далее - Панель управления GWX) явля�
 ```bash
 magnet:?xt=urn:btih:42D0EE47F35C3720B09F18E2D377B62A3CD40B03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ KeyFreeze — это бесплатная портативная програм�
 magnet:?xt=urn:btih:9872C20DBDFEFC667121B05C90B5B45369128F40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ triCerat ScrewDrivers 4.7.5.60 [En]
 ```bash
 magnet:?xt=urn:btih:B40EB3D182A74CE0680E4ECB73933E428313C9DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Right Click Enhancer – дает возможность настроить ко
 magnet:?xt=urn:btih:F8D8B310BC9D83551D67984ACACE94AD7F784F97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ DeadLock — Приложение с открытым исходным кодо�
 ```bash
 magnet:?xt=urn:btih:C46E85C5B84FAD47C4B03F88F0DD0EF10BA7C75F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ File Converter умеет работать с распространёнными
 magnet:?xt=urn:btih:36C390CE50D63A22D8D783BBB2F12B0883B13494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ PC Auto Shutdown - простенькая программа для управл
 ```bash
 magnet:?xt=urn:btih:F62F809CC1EBBB206909E6DB7D3E1B866FF0B931
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ PIDKey 2.1.2  build 1017 Final Portable  [Multi/Ru]
 magnet:?xt=urn:btih:06B41E9F1CB41582F4C2D229E05DF4ECE3D7D207
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Apowersft Phone Manager – многофункциональная програ�
 ```bash
 magnet:?xt=urn:btih:AE8AA358E119E3F38150EB14744CB01167E3186B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ HashTab - программа для определения контрольны�
 magnet:?xt=urn:btih:DBBBB95EA42CF7324BDDB317BAD584F152893A3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Keyboard Test Utility - надежная и простая в использов
 ```bash
 magnet:?xt=urn:btih:5F7B8DD8F750226CFAC111E9880FC57BFBDA9287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Horloger - это автономный гаджет, который помеща
 magnet:?xt=urn:btih:FC4F0685BBB44E99A58C120782166CC0CE4DCACE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Actual Installer – это профессиональный инсталлят�
 ```bash
 magnet:?xt=urn:btih:52598C8A4CA234E2DBDFF0E8AD74F6059461D6B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Unlimited Clipboard - очень простая утилита для расши
 magnet:?xt=urn:btih:6CABF988797A6AEB5D6760504F0FC6A4DA38D22E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ MorphVOX Pro — программа для изменения голоса пр�
 ```bash
 magnet:?xt=urn:btih:A221E083C3F640BE117DA485D6445085FA07AD2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ UltraMon - программа для повышения удобства раб�
 magnet:?xt=urn:btih:2005F45ECF17B7219C5A0DB2E071CB6318FC2CDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Check Flash 1.17.0 [Ru/En]
 magnet:?xt=urn:btih:D16910EC5A536A5338093F7E3311B0098E9D62E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ YoWindow Unlimited Edition 4 Build 108 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E75B1F1CC2172FB4F889B1D5536113D47C766EBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:E75B1F1CC2172FB4F889B1D5536113D47C766EBF
 magnet:?xt=urn:btih:E8E990A3D30B4B51C46DDFE41D863E61D191A931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Wise Hotkey программа от известного разработчик�
 magnet:?xt=urn:btih:FD3EC7AC171E8429E4053664B7137D3CB6DD3676
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Image Comparer 3.8 Build 713 [Multi/Rus]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

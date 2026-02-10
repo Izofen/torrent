@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:0ED874D8CB4E37ECF4BAE26BB3ED9E9970308D9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Orrin Evans - The Red Door (2023) Smoke Sessions Records [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:6A9C68A12B45073DCC91EB3E6D7EBD515D70D775
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Silence Phobia - Living in Darkness (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy 
 magnet:?xt=urn:btih:7A7BFB8C49E523482F91895608C182E9442F994B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Grant Green Quartet - Nigeria (1960, 1962) 2014, Essential Jazz Classics [FLAC|L
 ```bash
 magnet:?xt=urn:btih:6C32CD80F08ECBA25AB311CAD175B06951E3EA2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Anita O'Day - There's Only One... (1978) 2011, Essential Media Group [FLAC|Lossl
 magnet:?xt=urn:btih:91BAC17E09607EC7ADAE510FD9B48953E67BB1E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Anita O'Day - I Get A Kick Out Of You (1975) 1993, Evidence [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:E22C526217F91B793BBEBC74ED9C4E5764054BEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Anita O'Day - Skylark (1978) 2010, Kayo Stereophonic [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:719983F099B4164A0C46035F3891DC8202AF65F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Monosphere - Sentience (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalco
 ```bash
 magnet:?xt=urn:btih:DF2FAF164C311001C10C29DD828126BDA6142437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ Graham Collier Music - Songs For My Father (1970) 2000, DNA Records [APE|Lossles
 magnet:?xt=urn:btih:AF336EB2E233B4F7C71FE481CE34836D7DADB721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ The Amenta - Plague of Locus (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal>
 ```bash
 magnet:?xt=urn:btih:0F1E19C367DCFF91A4B3C733B60E84F46A53236F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Skull - Epistle 1 Pickin' Up The Pieces (2023) [FLAC|Lossless|WEB-DL|tracks] <He
 magnet:?xt=urn:btih:29EB453EA732F31BA56973F8D846296154E89B84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ Anita O'Day - Live At Mingo's (1979) 2004, Kayo Stereophonic [FLAC|Lossless|imag
 magnet:?xt=urn:btih:B900EF64DBC2FFBDB46857FD728CB60345561213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +363,8 @@ magnet:?xt=urn:btih:B900EF64DBC2FFBDB46857FD728CB60345561213
 ```bash
 magnet:?xt=urn:btih:1348E1FB3B2B895589394B55FE31F9D9694BD14D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +390,8 @@ magnet:?xt=urn:btih:1348E1FB3B2B895589394B55FE31F9D9694BD14D
 magnet:?xt=urn:btih:3B98E6779732E5E2C91436BB01BB7244C3421307
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ magnet:?xt=urn:btih:3B98E6779732E5E2C91436BB01BB7244C3421307
 ```bash
 magnet:?xt=urn:btih:237463906F1B57931E56581657A9F852917FC719
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +442,8 @@ VMware Workstation — популярная программа для созда
 magnet:?xt=urn:btih:CF573E0932BDCA41D5B3A530C063C5CCFFAED771
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +468,8 @@ Kaspersky Free – это обновление бесплатной версии
 magnet:?xt=urn:btih:E1B3E84691BAF4DDA9A772A7C68E223E4BD774E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ magnet:?xt=urn:btih:E1B3E84691BAF4DDA9A772A7C68E223E4BD774E3
 ```bash
 magnet:?xt=urn:btih:7D54D009FDADE267934AAD2C2CDD3639C023284B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +521,8 @@ magnet:?xt=urn:btih:7D54D009FDADE267934AAD2C2CDD3639C023284B
 magnet:?xt=urn:btih:DFDEAFEFBF12485C23EAC8DABD3A738302254ADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:DFDEAFEFBF12485C23EAC8DABD3A738302254ADD
 ```bash
 magnet:?xt=urn:btih:6F920BB01B9C414209829F7CD23CB9837C8A4118
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ Kona II: Brume (2023) [Ru/Multi] (Build 12466960) Repack Other s
 magnet:?xt=urn:btih:EB829315DCD4A947614D90CF3A9F457803FAE807
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ Sniper Ghost Warrior Contracts 2 - самая сложная игра в про�
 magnet:?xt=urn:btih:2711F0A1DBC19F7B407904BE8B18093770ABB0A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ Sniper Ghost Warrior Contracts (2019) [Ru/En] (7794846/dlc) Repack Decepticon [D
 ```bash
 magnet:?xt=urn:btih:713675CA577094D1927DCCC45228DABDAA01DEFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ Grom: Terror in Tibet (2003) [Ru/En] (1.02.252) Unofficial Русский про
 magnet:?xt=urn:btih:B1D7A6066F32DAE30CFD18963AEF3A2EE54A59B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:B1D7A6066F32DAE30CFD18963AEF3A2EE54A59B9
 magnet:?xt=urn:btih:AAE93C8CC3C8D1CDE1AF61F12055FDAD89B8B36E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:AAE93C8CC3C8D1CDE1AF61F12055FDAD89B8B36E
 ```bash
 magnet:?xt=urn:btih:D9F77ED85E35C183CAB2FCE77C5210F585B93913
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

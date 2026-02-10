@@ -21,6 +21,8 @@ Kalmuri не имеет встроенного редактора изображ
 magnet:?xt=urn:btih:58E63E5249D579A7564CCFD99C27DC3E9AFC9E0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:58E63E5249D579A7564CCFD99C27DC3E9AFC9E0B
 magnet:?xt=urn:btih:8118BA6CA3D2B3D98C3665E3692706445625D1A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:FEA6C8FD7055AF70D83AAFA737809A14390DDA79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:FEA6C8FD7055AF70D83AAFA737809A14390DDA79
 magnet:?xt=urn:btih:E45D5770574AFFCBD96B8B1E6D4B7434C083E1CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:2B5BE0FCDFD1F69B7521A37A1060F9612F054843
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:2B5BE0FCDFD1F69B7521A37A1060F9612F054843
 magnet:?xt=urn:btih:39499BBE64A1AF9846BA75343AF30B925E2A740E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:39499BBE64A1AF9846BA75343AF30B925E2A740E
 ```bash
 magnet:?xt=urn:btih:6C528C8F8BCFCA2696707AF9D7643842B9032134
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ RM0090 Справочное руководство по STM32F4(05,07,17,42,43)x
 magnet:?xt=urn:btih:0F99B94D6499A593340ADB4A575CB309491B8C61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:0F99B94D6499A593340ADB4A575CB309491B8C61
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:0F99B94D6499A593340ADB4A575CB309491B8C61
 magnet:?xt=urn:btih:B796FDF577860B55F3C0444F85D0FAA32E5C13E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:B796FDF577860B55F3C0444F85D0FAA32E5C13E3
 ```bash
 magnet:?xt=urn:btih:712ED0A2029D2184E0C8DC9DF24DF301C78F1567
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:712ED0A2029D2184E0C8DC9DF24DF301C78F1567
 magnet:?xt=urn:btih:47D96287F451B0731197D011FA41C23BB481E2FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Ratten Reich (2024) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6D0D4B30E27D2250D62957F401326230DFE330AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:6D0D4B30E27D2250D62957F401326230DFE330AB
 magnet:?xt=urn:btih:CE400C90E64E46AB1C565971B43F7A41067A6261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Unfinished Business - это новое самостоятельное прик�
 ```bash
 magnet:?xt=urn:btih:378A652CF62FF57F5B1FB3C8F478F989DC159DB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:378A652CF62FF57F5B1FB3C8F478F989DC159DB2
 magnet:?xt=urn:btih:16771CCD69319DA64B444A4DEC1331BAED10A8A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:16771CCD69319DA64B444A4DEC1331BAED10A8A7
 magnet:?xt=urn:btih:0300C88F89A7B8B29E2D4374CE7E951A815C595A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:0300C88F89A7B8B29E2D4374CE7E951A815C595A
 ```bash
 magnet:?xt=urn:btih:4C13E13BC0AA4E757BA74A42E5012FE784C6E8A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:4C13E13BC0AA4E757BA74A42E5012FE784C6E8A9
 magnet:?xt=urn:btih:3F2EEFA7C1303A9E980C76BD3B0AF7C0A514C60A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:3F2EEFA7C1303A9E980C76BD3B0AF7C0A514C60A
 ```bash
 magnet:?xt=urn:btih:C6CCC6ED9A86B64A293F58831EA1D4D7F3E5A1EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Cyberpunk 2077 — приключенческая ролевая игра с о�
 magnet:?xt=urn:btih:69E1EFA9B0E79392615F2E05431387FD1689DAE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:69E1EFA9B0E79392615F2E05431387FD1689DAE9
 ```bash
 magnet:?xt=urn:btih:C8B8C4CC65E3F229E2C6CA604E62B4BE18801BF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:C8B8C4CC65E3F229E2C6CA604E62B4BE18801BF8
 magnet:?xt=urn:btih:2BA34FB1FBCE11AE9F0F76A75BE272F7015FCEEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:2BA34FB1FBCE11AE9F0F76A75BE272F7015FCEEC
 ```bash
 magnet:?xt=urn:btih:D983273478994A72C0682A8223C4F08A3F318ED7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:D983273478994A72C0682A8223C4F08A3F318ED7
 magnet:?xt=urn:btih:B906B86D62798979B03D8CB41E4838A4B0F8F1E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ EasyUEFI - удобная утилита для редактирования з�
 ```bash
 magnet:?xt=urn:btih:6B6DE6D68C861EFDA285E4BAED5A744D4D8EE4D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Erasure - Hits! The Very Best of Erasure (2007) 2CD, DVD [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:8239DFC0FD7C3D62D63ADBEA0730FE3FEAC52F54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Best Remixes, Vol. 3 (2014) [FLAC|Lossless|WEB-DL|tracks] <House, Deep Hous
 ```bash
 magnet:?xt=urn:btih:E323FB2FCF96A513575FE8156C4408E1745F71EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Best Remixes, Vol. 1 (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive Tran
 magnet:?xt=urn:btih:5606FDB5B16A091CD0D91F97B4F817085E35AF15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Best Remixes, Vol. 2 (2014) [FLAC|Lossless|WEB-DL|tracks] <Progressive Hous
 ```bash
 magnet:?xt=urn:btih:C82FA1C355E70C2E6F9FD4F77E68D29A5FFECA9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ cv313 (c v 3 1 3, CV313) - Discography 44 Releases (2007-2020) echospace [detroi
 magnet:?xt=urn:btih:5C86C7AC4CF4E721979CD5EA0B4B1476C9FA8AFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Ultravox - Vienna (1980) [FLAC|Lossless|image + .cue] <Synthpop, New Wave>
 ```bash
 magnet:?xt=urn:btih:49D2BCAD33DDE6D7D262168225ECEEC3EF9CEB1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Ultravox - Systems Of Romance (1978) [FLAC|Lossless|image + .cue] <Synthpop, New
 magnet:?xt=urn:btih:C11DB69E99A07E643CA466578A359009AF3438D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Scooter - 24 Carat Gold (2002) [MP3|320 Kbps] <Happy Hardcore, Techno, Jampstyle
 ```bash
 magnet:?xt=urn:btih:C0D1F4CC25148FA10A6BFCA5B8AD3E0E925FDB56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Propellerheads - Star Profile (2000) [MP3|320 Kbps] <Techno, Big Beat, Acid Jazz
 magnet:?xt=urn:btih:857C546736E234DEE80E999CAA1112C69C2ED3D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ VA - DJ Tapolsky - Drama (2003) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:37EC164354937F2058EA9152EF88510096524585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ DJ Tapolsky - Free My Soul Mix (2009) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:06C7DE0AE30DB8E2E856CD04AE5A1EC9044C5709
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ VA - DJ Tapolsky - Lomka (2001) [MP3|192 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:1CAB37DF366B718E0C8E9260372AA0D09FD53121
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ Wrangler - A Situation (2020) [FLAC|Lossless|tracks + .cue] <Synthpop, New Wave>
 ```bash
 magnet:?xt=urn:btih:DA849B38EFE7AEB771F6702A1BABD3098D51B5C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ Aurosonic - Etyology Sessions 001-193(Обновляемая) (2007-2016) [MP3|3
 magnet:?xt=urn:btih:A847F021CE563DD43E479E0350AE42AEE6E766CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ VA - Dj Бинокль - Fucking Society (2002) [MP3|320 Kbps] <House, Euro Hous
 ```bash
 magnet:?xt=urn:btih:FCD69EA65598EE4E284324FAB7D6CCCC1850273B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ Omar S - You Want (2020) [FLAC|Lossless|tracks + .cue] <House, Deep House, Techn
 magnet:?xt=urn:btih:2985362EC37186928860F82E53112C1C4B47C51E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ Tim Dash - Afterlight 001 (2020) [FLAC|Lossless|image + .cue] <Deep Techno, Prog
 ```bash
 magnet:?xt=urn:btih:D76BD224A4A37445A75F70F271EC286AFAE0C3BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ Cold Blue - Live @ Crystal Forest Medellin, Colombia 2020-02-22 [MP3|256 Kbps] <
 magnet:?xt=urn:btih:AF1F9D2D8D6340B49DF6C2DCB1A85138CE1FF94E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +538,8 @@ Dj Бинокль - Housemission (2000) [MP3|320 Kbps] <House, Speed Garage, Pro
 ```bash
 magnet:?xt=urn:btih:842AEA254D8612717DFB29489539C6ECB680BCED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +568,8 @@ VA - Dj Бинокль - Love and Tears (2003) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:4234879A799923E57DC4DF57BECFAE5646C3C54D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +594,8 @@ Dj Бинокль - Dnepro House (2001) [MP3|320 Kbps] <House, Euro House>
 ```bash
 magnet:?xt=urn:btih:7E178781592486C9B50CC8CCD6913B91639E106A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +624,8 @@ VA - Dj Бинокль - Housemission II (PlayOff) (2004) [MP3|320 Kbps] <House,
 magnet:?xt=urn:btih:D60CB863EB2B83C4A2E8C1E0A45566EBF4897B98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +650,8 @@ Dj Бинокль - Смотри В Оба - Голос Клубного Дне�
 ```bash
 magnet:?xt=urn:btih:FF916A8F6873686350366EB628C8869AE8782C59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +680,8 @@ Kyau & Albert - 20 Years (2016) [FLAC|Lossless|tracks + .cue] <Trance, Progressi
 magnet:?xt=urn:btih:7B15C8BF08A873ECE8CF53CCC737DD989131E55E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +709,8 @@ VA - Cirque du Son: 5th Anniversary Compilation (2017) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:65D6CDCA37576EE404AD3217B368623494867C77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +737,8 @@ VA - Chillout January 2017 (Top 10 January Relaxing Chill Out & Lounge Music)  [
 ```bash
 magnet:?xt=urn:btih:11D059943CB9CD06DB48E531D260C8E40D8C8350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

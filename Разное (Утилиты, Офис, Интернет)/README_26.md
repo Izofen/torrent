@@ -19,6 +19,8 @@ OFF Timer — бесплатная миниатюрная простая в ис
 magnet:?xt=urn:btih:59FA1C1AE332717CED8F9FDE0EA6AC2DB38B78C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ VerseQ Multiuser - отличный клавиатурный тренажер п
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ VerseQ Multiuser - отличный клавиатурный тренажер п
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ FancyCache МОЖЕТ также использовать Невидимую П�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Screaming Frog SEO Spider 23.1 — индустриальный стандарт
 magnet:?xt=urn:btih:4D56643142E412C4170B0862FD2B898D35C0315B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Checkit — это то же самое, что и проверка работо
 magnet:?xt=urn:btih:B1A5197D0AEC6D0962DF93D050E2EB0C87183559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 ```bash
 magnet:?xt=urn:btih:9478F79DBB21AF19BB763A4556DE2E4BCEF22B05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ iFun Screenshot - бесплатная программа для создани�
 magnet:?xt=urn:btih:DCA5A4F01F482686F7B8E559E764D4AD2A8671E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ D3DGear работает как универсальная программа д
 ```bash
 magnet:?xt=urn:btih:4CB62915BF44053E7AFDABD8D75CA8C51817F25F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ ProduKey - крошечная, бесплатная утилита, котора
 magnet:?xt=urn:btih:B0E6FC5A86FBBC35304DEE0856E72F87F46051B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ IObit Screen Recorder - это бесплатное (пока) удобное в
 ```bash
 magnet:?xt=urn:btih:9BFDC85008D864ECECFC3DC55F1733579A465E37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Insofta 3D Text Commander 6.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EFF433EFD848655AE19363226BE3CABD94EA54E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ BestReminder v2021.04.01.15 [Multi/Ru]
 magnet:?xt=urn:btih:ACDBFAF1513B4D8B0F21185295CAA6F1FCC582EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ Ultimate Calendar – это простой в использовании, бо�
 magnet:?xt=urn:btih:3B48C626DCAD04A908D4A7B15F2A59EA66CF3024
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Link Shell Extension – утилита для быстрого создания
 ```bash
 magnet:?xt=urn:btih:6E7B62355A44124AB97EAC22F482C951BB71D9E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ Screenshoter Mail.Ru 20.10.1.0 [Ru]
 magnet:?xt=urn:btih:16E753C5B567AD3AB2AC6129522BF2288ED44313
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Anvide Таймер выключения 2.9 [Ru]
 ```bash
 magnet:?xt=urn:btih:3F7843D9AF5B2B8BB54A01FD64E6AAB2A6B1D4D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ UNetbootin (Universal Netboot Installer) - это свободная кросс�
 magnet:?xt=urn:btih:EAB6B2A94D0DF6F67B04D13F61E84C2FE373BCF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Virtual Display Manager дополняет вашу существующую с�
 magnet:?xt=urn:btih:11D90D0D77DB474578FDB0F0EE64D8C7AC4DC46E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ YUMI (Your Universal Multiboot Installer) - бесплатная програм�
 ```bash
 magnet:?xt=urn:btih:3B90561EEFEEBC40F23CA95A8D043536B9D74C07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ Windows and Office ISO Downloader - небольшое бесплатное пр
 magnet:?xt=urn:btih:D10B349B84D292A1CAA92E85AE226B0AE8082497
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ Default Programs Editor позволяет исправить настройки
 ```bash
 magnet:?xt=urn:btih:E5602770B354B639AC5A7ED875FA8079B4640688
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ Block auto-update 1.3 Portable [En]
 magnet:?xt=urn:btih:07AD389AFEB180961E29F284DC589F447FB13E03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ VideoInspector - это инструмент, разработанный для 
 magnet:?xt=urn:btih:366F6CB5ECD4471685F46F93802B7469E3926338
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ Apeaksoft Screen Recorder - это профессиональный инстру
 ```bash
 magnet:?xt=urn:btih:EB0BA13623FD9C436956F86436418880C5DFDBB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +685,8 @@ Non-Stop Copy 1.04 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:52D2B57F776F9D7A3516F97D94E9D06AF0EA89A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

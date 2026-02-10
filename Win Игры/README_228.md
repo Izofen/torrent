@@ -19,6 +19,8 @@ The Ditzy Demons Are in Love With Me – двухмерная визуальна
 magnet:?xt=urn:btih:7BA709C3BCB389A5080FA665C62B9F4B6FCC63C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ About a Boy – приключенческий квест с набором го
 ```bash
 magnet:?xt=urn:btih:75F35C8FAA8BD3607397FE602F4AB752B6229376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Faraway Land – симулятор выживания с красивой �
 magnet:?xt=urn:btih:C9211E4A6C6F1102A4F4BCC00C6BF6C7F1EAE417
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Booze Masters: Freezing Moonshine (2023) [Ru/Multi] (5150) License GOG
 ```bash
 magnet:?xt=urn:btih:C79B27E7DB927003C1CF9E0E550BD0206E81ECE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Minecraft: Story Mode - A Telltale Games Series (2015) [Ru/Multi] (2018-02-22/dl
 magnet:?xt=urn:btih:C3CB72E65EB632E7A4E147150773328BD1F7D9E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Unsolved Case 5: Killer Popularity (2024) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:CDFAFB072F4ECCA1E2D4898F048CB6C868E82E74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Fates of Ort - изометрическая ролевая игра с элем�
 magnet:?xt=urn:btih:34A53E4F812D75ACC13FFC7E6BF4FCD8466677E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Witch's Rhythm Puzzle (2023) [Multi] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:3984A6107B896A30D17E90C518747CC5CF19406A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Amatsutsumi - визуальная новелла в аниме-стилисти
 magnet:?xt=urn:btih:5A8E8AEBE4DC2EFB864913F8714CF35B34EC7C92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Hedon – это приключенческий шутер старой школ
 ```bash
 magnet:?xt=urn:btih:C79E9D7C71C4D687026D4B7A52932F084D8A575B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Night is Grey наполнена мрачной атмосферой тем�
 magnet:?xt=urn:btih:9C0076B214E7BCF98507465782CFB5169DE9B287
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ London Detective Mysteria - визуальная новелла в аниме-с
 ```bash
 magnet:?xt=urn:btih:7DB44E315363A49B6D227BAFF5CC3EEEC28658E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Ballance - трехмерная головоломка с сильным упо�
 magnet:?xt=urn:btih:DE4FC3DFFDE4B7E17A5D91A73B00FA77B0FC70EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Livestream 2: Escape from Togaezuka Happy Place - очередная часть 
 ```bash
 magnet:?xt=urn:btih:42A91865A1F22F3F93FFD92472C81320E3D074A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Repurpose (2023) [En] (2.0) Scene Tenoke
 magnet:?xt=urn:btih:35BD9FA7A5CEB7D4157E1A39F3AEC5B933A818BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Sea of Stars - динамичное ролевое приключение, ра�
 ```bash
 magnet:?xt=urn:btih:2F117431B9B2682F99E6B18A14C61793ECB2842E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Tools Up! (2024) [Ru/Multi] (1.06/dlc) License GOG [Ultimate Edition]
 magnet:?xt=urn:btih:F403DA0DDE2B778B61E3883EE9B52CC4A92E8E4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Gray Zone (2022) [Ru/Multi] (1.12) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:23388584C03FF6B2B802CCA05A5ABA9D84E5A93F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Tonight We Riot (2020) [Ru/Multi] (pcrelease.c) License GOG
 magnet:?xt=urn:btih:D9F4533402EE55340FE52E643A9E43E0183DBC97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Pronty – двухмерная экшен-адвенчура, в которой
 ```bash
 magnet:?xt=urn:btih:35C43A20BCD0B23E12707CC6121D987F0E5F546C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Dragon Ball Z: Kakarot – долгожданное продолжение се�
 magnet:?xt=urn:btih:81E1415BF8A11CA066F423AE56AF485F972968B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Fritz 19 SE (2023) [Multi] (1.0) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:06B0BFA258C9D49942463C357D2289ADE01DC350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Kaya Joshi: Magical Detective (2023) [En] (1.0) Unofficial
 magnet:?xt=urn:btih:DDAFE2E754EDEC0FDFB0531A55FBD2526C9B7012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Final Fantasy VII Rebirth (2025) [Ru/Multi] (1.003/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:ECEC71C52B69813FD2AC8C2ABABA74AC82B3E196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Deflector (2023) [Ru/Multi] (1.0.0.0) Scene Tenoke
 magnet:?xt=urn:btih:DFD6C87718EF3515D773D9E542B5065525C4F175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Six Ages: Ride Like the Wind – текстовый квест с элемент
 ```bash
 magnet:?xt=urn:btih:F674623A266EEF20D67166120992DA9F36A97201
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

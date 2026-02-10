@@ -1,27 +1,3 @@
-###  Публикация: 1530404   (728439) от 11.02.2022
-
-Ледниковый период: Приключения Бака / The Ice Age Adventures of Buck Wild (2022) WEB-DL [H.264/1080p] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_728439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесстрашный одноглазый хорек Бак объединяется с озорными братьями-опоссумами Крэшем и Эдди, когда они отправляются в новое приключение в мир динозавров.Производство: США / 20th Century Studios, Bardel Entertainment, Twentieth Century AnimationЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Джон С. ДонкинПеревод: Многоголосый профессиональный (Flarrow Films, HDRezka Studio),  двухголосый профессиональный (Pazl Voice)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: 01:21:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7000DD1C4AA2D4B813797F5FA83C4201986C92AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 665590   (729061) от 11.06.2013
 
 Лего Бэтмен: Супергерои объединяются / LEGO Batman: The Movie - DC Super Heroes Unite (2013) WEB-DLRip [720p-LQ]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:7000DD1C4AA2D4B813797F5FA83C4201986C92AC
 ```bash
 magnet:?xt=urn:btih:69DD6564AD9B9D7463DE4926163B74EEE4D0C954
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:69DD6564AD9B9D7463DE4926163B74EEE4D0C954
 magnet:?xt=urn:btih:00AF115A49B189651995C8F80A6C1E2DDE03E349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:00AF115A49B189651995C8F80A6C1E2DDE03E349
 ```bash
 magnet:?xt=urn:btih:32BF60F0FD61E078D1D38E4DF105C2A71E2079A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:32BF60F0FD61E078D1D38E4DF105C2A71E2079A0
 magnet:?xt=urn:btih:505A8F268AB0E72B82214E4A7A379DC7A5E825FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:505A8F268AB0E72B82214E4A7A379DC7A5E825FF
 ```bash
 magnet:?xt=urn:btih:BF2BBD215907A62675756AECAD8E9B947D5DD331
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:BF2BBD215907A62675756AECAD8E9B947D5DD331
 magnet:?xt=urn:btih:EC4F585C49E7D1A4121FE9CE38688858C0F34052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:EC4F585C49E7D1A4121FE9CE38688858C0F34052
 magnet:?xt=urn:btih:C01ACA3B5643E1C3E7B6E438840400554BF7CCC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:C01ACA3B5643E1C3E7B6E438840400554BF7CCC3
 ```bash
 magnet:?xt=urn:btih:58CC812113CDF4158099707499BDBD884F7E3DE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +229,8 @@ LEGO: Бэтмен: Супергерои DC объединяются / LEGO Batm
 magnet:?xt=urn:btih:43D17B56D7729E0CAC1C8D6CC51D1AFB7102C5BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:43D17B56D7729E0CAC1C8D6CC51D1AFB7102C5BD
 ```bash
 magnet:?xt=urn:btih:91410030F7C00B2AEC9148085E6186D3B0D76117
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +281,8 @@ magnet:?xt=urn:btih:91410030F7C00B2AEC9148085E6186D3B0D76117
 magnet:?xt=urn:btih:259DFB178E6C79E7B806309E80FF19D548E5B0BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:259DFB178E6C79E7B806309E80FF19D548E5B0BB
 ```bash
 magnet:?xt=urn:btih:9ACB1F25FC7F01C85C7743459568EF26F50A9F98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:9ACB1F25FC7F01C85C7743459568EF26F50A9F98
 magnet:?xt=urn:btih:8B53AEC555197D52968CC42B195C147FFF210C91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:8B53AEC555197D52968CC42B195C147FFF210C91
 ```bash
 magnet:?xt=urn:btih:66E07555AAA49FCF3FB71B9317AE1675B3049A86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:66E07555AAA49FCF3FB71B9317AE1675B3049A86
 magnet:?xt=urn:btih:BB8D76B45B980016719CE66FBDF932EA5AF22E3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:BB8D76B45B980016719CE66FBDF932EA5AF22E3A
 ```bash
 magnet:?xt=urn:btih:7899331FD2F3CA9723EE56BE6192A7360E29355D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:7899331FD2F3CA9723EE56BE6192A7360E29355D
 magnet:?xt=urn:btih:EB9064A2A75CC69C31D4CDC083718AA085CB7A33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:EB9064A2A75CC69C31D4CDC083718AA085CB7A33
 ```bash
 magnet:?xt=urn:btih:66E2037147F0AD5B036EECBA167ED0A6E5C2991F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +490,8 @@ magnet:?xt=urn:btih:66E2037147F0AD5B036EECBA167ED0A6E5C2991F
 magnet:?xt=urn:btih:86CD27AB51117CC32E2C79A83E936AD5F166C037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:86CD27AB51117CC32E2C79A83E936AD5F166C037
 ```bash
 magnet:?xt=urn:btih:ED43310516A7E2410D452B83387E10A4FA3D6857
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +542,8 @@ magnet:?xt=urn:btih:ED43310516A7E2410D452B83387E10A4FA3D6857
 magnet:?xt=urn:btih:B84166D7C8761D35F9725597F8606B27B5E48F2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:B84166D7C8761D35F9725597F8606B27B5E48F2B
 ```bash
 magnet:?xt=urn:btih:53794D2809538C2A114A19C1C0003561EE2BDC1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +595,8 @@ magnet:?xt=urn:btih:53794D2809538C2A114A19C1C0003561EE2BDC1B
 magnet:?xt=urn:btih:BA90F82A4E896807AD02277BA065ACF62703C51D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +621,8 @@ magnet:?xt=urn:btih:BA90F82A4E896807AD02277BA065ACF62703C51D
 magnet:?xt=urn:btih:CB26D9BD63799ED6FA22A81D182BFF7A73315826
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +646,34 @@ magnet:?xt=urn:btih:CB26D9BD63799ED6FA22A81D182BFF7A73315826
 ```bash
 magnet:?xt=urn:btih:D4B0D8B830316946107A5D64C497D11B3F9FBA1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527667   (736337) от 29.01.2022
+
+Стражи терракоты / Realm of Terracotta (2021) WEBRip [H.264/1080p] [MVO]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_736337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стражи волшебной Терракоты и магические существа Ониксы на протяжении многих столетий ведут войны друг с другом в подземном царстве. Молодой человек Магнус мечтает стать терракотовым воином, а для этого ему необходимо поймать одного из Ониксов. Магнус отправляется на поиски таинственного создания и встречает молодую девушку Джейд, которая также ищет Оникса. Герои (   Читать дальше...   )Производство: Китай / Fantawild AnimationЖанр: мультфильм, фэнтези, боевикРежиссер: Дин Лян, Линь ЮнчанПеревод: Профессиональный, многоголосый (Jaskier)Язык озвучки: русский, китайскийСубтитры: китайские (hardsub)Продолжительность: 01:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03178E6459F2C526C938A3B94408FB67771844B5
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

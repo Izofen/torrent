@@ -19,6 +19,8 @@ Opera One 112.0.5197.24 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:8DCDF6AEBA8451EBDC77A7C8B91C0AF6B83709E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:8DCDF6AEBA8451EBDC77A7C8B91C0AF6B83709E4
 ```bash
 magnet:?xt=urn:btih:A6C53C09D446C6448EA375BBBACFF8D6C2086907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 magnet:?xt=urn:btih:471EE2BAEB156BEA0FD558302B5D638B6B2C4430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Master PDF Editor — простая, но эффективная програм
 magnet:?xt=urn:btih:01CD53FC5456F31F34845B742F940538E6D8F10E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Nik Collection by DxO – это наиболее полная коллекци�
 ```bash
 magnet:?xt=urn:btih:A94CCD1D6AB61C513C8939DA55FD4F2DF4B6CB2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Rhinoceros 3D - профессиональная среда для модели�
 magnet:?xt=urn:btih:9F7535217067B805E541AE2FB2ECE6ACFE081C5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ EssentialPIM - это отмеченное различными наградам
 magnet:?xt=urn:btih:AF3D8B283817B93D22C0E78AFD31494EFC6EFD9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:ECFDA9645FE31E829D3CAFAF71681FC7505A7D1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Perfectly Clear — приложение, которое позволяет вс
 magnet:?xt=urn:btih:0ADA61258C9F9BA20111823351500887C23BD656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ ApowerREC - это программа которая может записыва
 ```bash
 magnet:?xt=urn:btih:6C96D387FC24C6F303F01C96412D47712F68B64F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:CCD451A696EA16350FE6F7323994C3A179B0DC2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ MediaHuman YouTube to MP3 Converter 3.9.9.93 (0711) RePack (& Portable) by elchu
 ```bash
 magnet:?xt=urn:btih:3950CA695A8B2F567DA057340E80A176E01EC0DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:378B8199D3E44B99255C01E1ABBF8749BE89D6B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 ```bash
 magnet:?xt=urn:btih:CB7B525620E45213BD29C60CDE68C755B23BB0B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Wondershare PDFelement - программа для общего редактир
 magnet:?xt=urn:btih:EC59A963C029F12B3B2E6815B79B1F4502968711
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:1163B0ACC62B140DD276A3185100493456756170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:C398D51870B8E363D1B3E5666452C6EB93284FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ R-Studio Network 9.4 Build 191338 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:56E169CDB0E903140511A069BB81625A73D600DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ v2rayN — это универсальный инструмент VPN и про�
 magnet:?xt=urn:btih:46CA504DFB0DBE71559FE729D800E41C9FF39072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:A0D02B8112CAD85D6C17BBEBA03BF23479789BFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:D786E64260D6D5196AA6B1210FE49D7FD54FFE55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:E382586810029D8E20EB5ADFFCD20D2161F98230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:F463011CA66EDE8A77B9A78E79EDC26F5F6B2517
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:8DF1F2F7D8E7F9BD65012443FD699F4FDB5C42A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ MediaHuman YouTube Downloader 3.9.9.93 (0711) RePack (& Portable) by elchupacabr
 magnet:?xt=urn:btih:A65DB729321B94F31D8E188810FBA26F7E19AC15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Office Tool Plus - функциональная программа для раб
 ```bash
 magnet:?xt=urn:btih:CEDD673B2CCE47A30466602D23B8FBA829C78A03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

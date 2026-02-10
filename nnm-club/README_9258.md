@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:25BE25410D189FA34E1984AA65BB0D275BF6A0D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:25BE25410D189FA34E1984AA65BB0D275BF6A0D9
 ```bash
 magnet:?xt=urn:btih:D4B00E699E3B76F689E0657B3E9FDA400825730E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Black Hole Trance Music 11-17 (2017) [MP3|320 Kbps] <Trance, Uplifting Tran
 magnet:?xt=urn:btih:8CADE3A915D4AEDE67B21FBA00B4840F6FB14602
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Steve Brian - Enhanced Progressive 300 (2017) [MP3|320 Kbps] <Trance,Progressive
 ```bash
 magnet:?xt=urn:btih:5291800B26415A7F3C2EC6A991B99EA5D32CE34E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ VA - Drivin Moods - 15 Dynamic Tunes For The Car - Moods Series Vol 4 (2017) [MP
 magnet:?xt=urn:btih:AED57460957A8A52525080A142ABB5E59BA9F0DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:AED57460957A8A52525080A142ABB5E59BA9F0DF
 ```bash
 magnet:?xt=urn:btih:8A337F0B3E2DBBA056A9663A7C09FB93A8D8E1A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ VA - Pure Chill & Ambient Vol.10 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 magnet:?xt=urn:btih:10666F6296F7BD710AE1A317BB0D291C66CE9D84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:10666F6296F7BD710AE1A317BB0D291C66CE9D84
 ```bash
 magnet:?xt=urn:btih:4FFD17FE76169FEBF1FF4DAEA8C93E612AA7E053
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ Andrew Dream - New World (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:AECE7258850CD59233A382CFB8590A62FB923E63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:AECE7258850CD59233A382CFB8590A62FB923E63
 ```bash
 magnet:?xt=urn:btih:2919ADFF70BAC2982A38987A4EBD07BFED4E2D08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +302,8 @@ CD1 - Stablemates:
 magnet:?xt=urn:btih:78C4B9F318A8A8F99FF35D4EEC162855D933DA9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ VA - Pure Chill & Ambient Vol.09 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 magnet:?xt=urn:btih:456023764B049582B6D5C9B054EE92381FF18A1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ magnet:?xt=urn:btih:456023764B049582B6D5C9B054EE92381FF18A1B
 ```bash
 magnet:?xt=urn:btih:4CD801DBD1FA0BC85D7723C100389AC53ACD7763
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +386,8 @@ Hank Mobley & Lee Morgan - Peckin' Time (1958) 2011, Analogue Productions [FLAC|
 magnet:?xt=urn:btih:F78EC1E0C257A7C2085E6EEFAAE9ACC62913F546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ Carola Grey - Noisy Mama (1992) Jazzline [FLAC|Lossless|tracks + .cue] <Post-Bop
 ```bash
 magnet:?xt=urn:btih:5B38D13C217AF8857E49EBE31F0E1782822F6BEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +444,8 @@ VA - Chilling Process Vol.06 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 magnet:?xt=urn:btih:FB56EB33C615AAB52E421F281F672D390035FD33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +471,8 @@ magnet:?xt=urn:btih:FB56EB33C615AAB52E421F281F672D390035FD33
 magnet:?xt=urn:btih:0C7A94C1840B39A77BC8C3DCA3516CAFCAB199FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +497,8 @@ magnet:?xt=urn:btih:0C7A94C1840B39A77BC8C3DCA3516CAFCAB199FC
 magnet:?xt=urn:btih:30C64005590DA967867FE688CF080167824A4D5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +522,8 @@ DesktopOK - небольшая бесплатная и портативная (�
 ```bash
 magnet:?xt=urn:btih:A56A9C37E6E4EE3E5CFAF1DBF2797E655284DC30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +551,8 @@ magnet:?xt=urn:btih:A56A9C37E6E4EE3E5CFAF1DBF2797E655284DC30
 magnet:?xt=urn:btih:80268A20CBB62B78FE05C28F12334CAFCE26D854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +576,8 @@ magnet:?xt=urn:btih:80268A20CBB62B78FE05C28F12334CAFCE26D854
 ```bash
 magnet:?xt=urn:btih:E54282C0102A00AB41843B11D13FB13D983FC739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +603,8 @@ magnet:?xt=urn:btih:E54282C0102A00AB41843B11D13FB13D983FC739
 magnet:?xt=urn:btih:41C9F897B93A244684E81572C841CB0C12085E6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +628,8 @@ magnet:?xt=urn:btih:41C9F897B93A244684E81572C841CB0C12085E6B
 ```bash
 magnet:?xt=urn:btih:ACD4D34E5843669A79CF5AE740C8221C6A9F8764
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:ACD4D34E5843669A79CF5AE740C8221C6A9F8764
 magnet:?xt=urn:btih:1FF0FC79B7F6EB8C9C47D61C04C90001E7546EA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ Universal Share Downloader - это программа для скачивани
 ```bash
 magnet:?xt=urn:btih:7B445007BEBD1682589C9FF7D3024BFB3C881693
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +712,8 @@ Europakonzert / European concert 2008 from Moscow (2014) BDRip [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:AFD145518702FE706833055CAC18BF43CF52EE45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

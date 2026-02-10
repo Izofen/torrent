@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:897F4E9B266D61A52834918A549C92D0068EFE86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:897F4E9B266D61A52834918A549C92D0068EFE86
 magnet:?xt=urn:btih:7F3387BB2DE7A628D8FA8B0C3370593E33A0E2EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:D7E8332457A9607094EDAA3473C6730DF0F895F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:D7E8332457A9607094EDAA3473C6730DF0F895F7
 magnet:?xt=urn:btih:83ADFEE537693E08765A97A1B56863A5CDD3768C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:83ADFEE537693E08765A97A1B56863A5CDD3768C
 ```bash
 magnet:?xt=urn:btih:D765E0748E6F726481F1A31CE78CE02E46FBDF7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Music Collection - неплохая программа для создания �
 magnet:?xt=urn:btih:8ECCDBC8D8344E3B51DA984866C95860061A387B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ DataSpell — IDE для Data Science. DataSpell создан специальн
 ```bash
 magnet:?xt=urn:btih:B83C728E46BF30FF389953163A6A821F5D0E92DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Bryan Adams - Waking Up The Neighbours (1991) 1st German Press [APE|Lossless|ima
 magnet:?xt=urn:btih:59D45C19F5C14F7AD0934B937FE1188757A566F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:59D45C19F5C14F7AD0934B937FE1188757A566F8
 magnet:?xt=urn:btih:F21BFDCBA269255DCB3F7667AA87EDF67D9FA844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Ars no Kyojuu | Ars no Kyojuu | Гигантский зверь Арса [2023, 
 ```bash
 magnet:?xt=urn:btih:0EA67BA7B3458A6A00D9A1CFE6D17704EF09DFDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Arcane Tales - Until Where The Northern Lights Reign (2024) [FLAC 24/44.1|Lossle
 magnet:?xt=urn:btih:A55F1EA7BBA24FD6CCB86237CC23BFC9485C6B94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:A55F1EA7BBA24FD6CCB86237CC23BFC9485C6B94
 ```bash
 magnet:?xt=urn:btih:DAADC48066B8AE82477503FFF2367B7F67B66D54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ DJ PafTron - Freestyle Arena (2023) [MP3|320 Kbps] <Freestyle, Electronic, Break
 magnet:?xt=urn:btih:7A67EF2DC289FA775DF7F71D7B40A53F57C9A433
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ Lacey -  простой инструмент для поиска и скачив
 ```bash
 magnet:?xt=urn:btih:EEC3546CB997AB54B32DB9756856A4A20D987C04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:EEC3546CB997AB54B32DB9756856A4A20D987C04
 magnet:?xt=urn:btih:A6331CCF26A8F2C3C3C131BC0871472B4B0EC0E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:20B31E62FD74689D4A970EE592430B9BB6FB59E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:20B31E62FD74689D4A970EE592430B9BB6FB59E8
 ```bash
 magnet:?xt=urn:btih:1269837A5B1B87593714537A91F2DE8D90ED2489
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ Metallica - Metallica (1991) 1st German Press [APE|Lossless|image + .cue] <Thras
 magnet:?xt=urn:btih:340E6BE24434DCB09BAE48133BCC3E2FB87230E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:340E6BE24434DCB09BAE48133BCC3E2FB87230E6
 ```bash
 magnet:?xt=urn:btih:A9E406861878EEDCB36CDB05FA9BBDEEA6E02DDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ Chromium-Gost — это модификация стандартного бра�
 ```bash
 magnet:?xt=urn:btih:EB3A87E569A02FE22956CC258987134944B2D58A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:EB3A87E569A02FE22956CC258987134944B2D58A
 magnet:?xt=urn:btih:A550CF477DA2F1CAD288CD83DD3F45F6AD9FFCBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:A550CF477DA2F1CAD288CD83DD3F45F6AD9FFCBB
 magnet:?xt=urn:btih:6F0ACDABF0404369561AC8B46051596A705B9911
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:6F0ACDABF0404369561AC8B46051596A705B9911
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ Attribute Changer - простенькая утилита для удобног�
 magnet:?xt=urn:btih:D0D647EDC4B14E44E8FD355E8E6437E238C8AC4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ OneCommander V3 — это современный файловый менедж�
 ```bash
 magnet:?xt=urn:btih:8B554BDA99AFBAEEB8865680E8B00AF7E38B2F71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +696,8 @@ magnet:?xt=urn:btih:8B554BDA99AFBAEEB8865680E8B00AF7E38B2F71
 ```bash
 magnet:?xt=urn:btih:F4F122177C3C2A9F1ECB6E408B1A0FE7231157D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

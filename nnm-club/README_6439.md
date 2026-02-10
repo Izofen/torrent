@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3ED5AB3DCFE19F4BD4C8599F90F2CBACB2C6236A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:3ED5AB3DCFE19F4BD4C8599F90F2CBACB2C6236A
 ```bash
 magnet:?xt=urn:btih:E9C8DED5162D5481B2C05DE0FE5E597F97FEF997
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Rokudou no Onna-tachi | Rokudo's Bad Girls | Плохие девчонки Ро�
 magnet:?xt=urn:btih:3A6D378C5D1801F5182A6183884812521B42C099
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:3A6D378C5D1801F5182A6183884812521B42C099
 ```bash
 magnet:?xt=urn:btih:E8AAC5629B2C228F6039DB80E045E539E52EC048
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ C# - один из немногих языков программировани�
 magnet:?xt=urn:btih:994E49786C99EF358002723E448E51DE2B1A31FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:994E49786C99EF358002723E448E51DE2B1A31FF
 ```bash
 magnet:?xt=urn:btih:A75B2E8A1956D226FFA07E830D1E9EC00E183DDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ itTorrent – программа-клиент пиринговой сети. П�
 magnet:?xt=urn:btih:CEE12BFA8E5B9FA7E3F5A6E30B536E93BC4DD4D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Forgotten Fields представляет собой инди-приключен
 ```bash
 magnet:?xt=urn:btih:15CA3C8ACAF864807D8310986CFCE8F509E2C398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Edomae Elf | Otaku Elf | Эльф-отаку [2023, TV, 12 эп.] WEBRip 720p ra
 magnet:?xt=urn:btih:1495ECBAB50AEA38F3716D9B025FCDCE83678A3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:1495ECBAB50AEA38F3716D9B025FCDCE83678A3F
 ```bash
 magnet:?xt=urn:btih:0C5EC169AE63F57A6793098BAC82FC5F06D9E0D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Mahou Shoujo Magical Destroyers | Magical Girl Destroyers | Девочки-во�
 magnet:?xt=urn:btih:53025C739FC65EE1BDCAB807FEB25EE07F277DDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Megami no Cafe Terrace / The Cafe Terrace and Its Goddesses / Терраса к�
 ```bash
 magnet:?xt=urn:btih:0A4125EDE37CB530A11CF0C4DB2EBBCDA5817646
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Reface v3.40.0 [Multi]
 magnet:?xt=urn:btih:795E59316363C262384A88F6EA7132CF8CD0D3DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:795E59316363C262384A88F6EA7132CF8CD0D3DC
 ```bash
 magnet:?xt=urn:btih:CF68AE9FA3B3006BE30B3B6AB03D6A888EC25CE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:CF68AE9FA3B3006BE30B3B6AB03D6A888EC25CE5
 magnet:?xt=urn:btih:CE8B8A12F8BF3DC6B1BB79BC3BDA09351A0AF9BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Corona Renderer - это популярный визуализатор для р
 ```bash
 magnet:?xt=urn:btih:055071E48E5464795989C839FA02A0D99D64AF3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:055071E48E5464795989C839FA02A0D99D64AF3C
 magnet:?xt=urn:btih:75D6B34CC06EB00DF053EC0CC9C666419182E58B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Yakuza 0 (2018) [Multi] (1.015a) License GOG
 ```bash
 magnet:?xt=urn:btih:0364E8FE016BFCD10B87DFA190C8CE956AEE641F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:0364E8FE016BFCD10B87DFA190C8CE956AEE641F
 magnet:?xt=urn:btih:22D078028D780D824ACB55907392114E335E3BC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:22D078028D780D824ACB55907392114E335E3BC2
 ```bash
 magnet:?xt=urn:btih:7613EDBE55307695429B802E54B3656647A82E2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:7613EDBE55307695429B802E54B3656647A82E2F
 magnet:?xt=urn:btih:02052EAD83E59800C691E6FA761645A1A18E7BFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:02052EAD83E59800C691E6FA761645A1A18E7BFF
 ```bash
 magnet:?xt=urn:btih:19F16AFF107FB995C7CDFE5BDE28189AB5005618
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ JYDGE (2017) [Ru/Multi] (1.2.1.4) License GOG
 magnet:?xt=urn:btih:EFE09F7AA01B3B386FE540C17676D9E2C767292E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:EFE09F7AA01B3B386FE540C17676D9E2C767292E
 ```bash
 magnet:?xt=urn:btih:0E29AAF147DEEEE349E0B607B1CE812089DD0651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Jijou o Shiranai Tenkousei ga Guigui Kuru. | My Clueless First Friend | Мой �
 magnet:?xt=urn:btih:397E7CD7C9994633CB6852057785E12419C3DB41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:397E7CD7C9994633CB6852057785E12419C3DB41
 ```bash
 magnet:?xt=urn:btih:042EB0AC5EC489C25EB377BEB379260CD662F093
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

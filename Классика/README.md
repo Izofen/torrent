@@ -23,6 +23,8 @@ VA - Best Piano Sonatas (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:5CD8033DEFFA9A48761FC36BB90E7CA1CAFCC98D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - Classical Adrenaline (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ```bash
 magnet:?xt=urn:btih:62A5710C5233E65BAD700E0A94D32BB4EB0E9E85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ VA - Classical Piano (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:0D8D84F46934AC8239430E06A59EE316688CEBC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ VA - Autumn Instrumental (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ```bash
 magnet:?xt=urn:btih:EECECABCEABAB3AB8E2AEC5258A8EE51E9522849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ Mauriat Paul - Alouette.mp3(   Читать дальше...   )Жанр: Инс�
 magnet:?xt=urn:btih:8223965956A10BE5AB5BEEE652DEBF974E0C82DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Frederick Delius - A Village Romeo and Juliet (1971) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:8198154ACB5F53E4C68AFC91D101C966544843C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ VA - 100 Classics For Relaxation - A Glorious Sunrise (2008) CD, Compilation [FL
 magnet:?xt=urn:btih:F4605ECDE9CA7B2C05A691FC5507FAA25CB4EDD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ VA - Classicworks: Best of Classical (2000) 2 x CD, Compilation [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:C6F0EC498934F8E2C5C401E347DF34EC24C77CDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +255,8 @@ VA - Classical Music Golden Age (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:1494993B7E5051742F64A65DF4164F7ED9533BDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ VA - Ultimate Classical (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ```bash
 magnet:?xt=urn:btih:23AF159749A7295F9689C13E2796E95EA1026FDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +313,8 @@ VA - The Best Classical Music of All Time (2025) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:D834159F5C61C5082646C7BAE21420280108F761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ Il Divo - Siempre (2006) CD, Album [FLAC|Lossless|tracks + .cue] <Classical Cros
 ```bash
 magnet:?xt=urn:btih:DB371E7EECD5027599A5103902D57A6B4C476AB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +371,8 @@ VA - Modern Piano Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:F9A2741197244EECBC5F476744F31E7F97667C39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ Michael Nyman - 54 альбома (1985-2009) [MP3|320 кб/с]<Minimalism, Clas
 ```bash
 magnet:?xt=urn:btih:50A915A42FA1F04DA338F334D46FCEACF25DD8E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +429,8 @@ Andre Rieu - Power of Love (Live in Maastricht 2024) (2025) [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:5FEE6F2AAE103B5546DCF9F5D676C7CCD5921939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +458,8 @@ André Rieu, Johann Strauss Orchestra - Jewels Of Romance (2023) [FLAC|Lossless|
 magnet:?xt=urn:btih:5F63A22452A1FDBB8B7F8EEE1D709592DCB72184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +485,8 @@ magnet:?xt=urn:btih:5F63A22452A1FDBB8B7F8EEE1D709592DCB72184
 ```bash
 magnet:?xt=urn:btih:3DF7DD7D7F5502DC8340C68A2B8CD1A2A3A5953C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +515,8 @@ magnet:?xt=urn:btih:3DF7DD7D7F5502DC8340C68A2B8CD1A2A3A5953C
 magnet:?xt=urn:btih:D3BAE5225DF3D617DB7553780EE474E76768B15D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +543,8 @@ Piano Concerto No. 3 in D Major, KV 40 (Wolfgang Amadeus Mozart)
 ```bash
 magnet:?xt=urn:btih:BFEE43BAA4FD8786B8C7F22F637D0C4C39581E15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +573,8 @@ Wie Schön Leuchtet Der Morgenstern Bwv 1 (Kantate)
 magnet:?xt=urn:btih:A59C4B744665E755711C68AC0CDDFC3A47F49494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +601,8 @@ Keyboard Works (CDs 126-146)Жанр: Classical, baroqueПродолжитель
 ```bash
 magnet:?xt=urn:btih:DC9525E0595670DA2DC5CC4057E7C7E08EDEC493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +631,8 @@ VA - Reflections on Classical Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classi
 magnet:?xt=urn:btih:C578950123CB4580C5C5C8265E22FB47007D7659
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +659,8 @@ VA - Heavy Piano Music (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ```bash
 magnet:?xt=urn:btih:02AB09EC74F17C55A9C63579AF604CADD8C56BDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +689,8 @@ VA - Essential Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:802125168D3EADCE13003AD4A2617652D452DC6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,6 +718,8 @@ Andre Rieu, Johann Strauss Orchestra - Love Is All Around (Live) (2024) [FLAC|Lo
 magnet:?xt=urn:btih:E80F3881EA602F0CF31C0D0F1A5F62C3BD5E312E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ VA - Classical Music Heritage (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ```bash
 magnet:?xt=urn:btih:509FBE2C17C0D750465A213FFAE3F7A0301C400C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BAC7A161709901BDF3F647919A9A44E7C76BFD45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:872B2A2E6D3B0A18B92EABF9E01E3C4675FBB210
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Mary’s recipes: рецепты, меню v6.7.0 Mod by Alex.Strannik [Ru/Multi
 magnet:?xt=urn:btih:C127CF5B4B379B92DCB78E64F5A4A29FC21D623F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Bria Mobile: VoIP Softphone v6.21.3 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EE933F157DFE76C7D1625743396F61B7224708A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ PhotoDirector v20.7.1 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:0B7F4D2CC43A03DF96E4D5EF791E1CE25F879077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ FBReader Premium v3.8.21 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9D8B930FE6A8AF2595A27AC59CA716298668095E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ SnapEdit — одно из лучших приложений для редакт
 magnet:?xt=urn:btih:B432307916CC9B5BF776A80BF72ED0E062076FE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ All File Reader and Viewer v55 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C2CEF75F12DAEAEC36E931FD845FF9144D042E5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ MIUI Hidden Settings Activity v1.6.11 Mod by TryRoom [Ru/Multi]
 magnet:?xt=urn:btih:7AB3B0E2993E12B58BC5363E6D01A22B395070BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:7AB3B0E2993E12B58BC5363E6D01A22B395070BF
 ```bash
 magnet:?xt=urn:btih:563974ABD368C3338EBE4FCFBAA1BB90ABDF9580
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ PictureThis - Plant Identification v5.16.0 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:D5E27B6C1EAB27AC64F321B8784ED99C5DB35F38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:D5E27B6C1EAB27AC64F321B8784ED99C5DB35F38
 ```bash
 magnet:?xt=urn:btih:7073E96D944424304437AA8DA18458C3C747E09B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Photo Studio — не просто приложение для редактир�
 magnet:?xt=urn:btih:CB11FCBA50B25E6402401BBDFD3F18DE19E6932C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:CB11FCBA50B25E6402401BBDFD3F18DE19E6932C
 ```bash
 magnet:?xt=urn:btih:C48E1651A38DEBD72A94185A622F83EA90C616EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:C48E1651A38DEBD72A94185A622F83EA90C616EC
 magnet:?xt=urn:btih:2F9DDECD27B885CF90C14C0CE51AE623BA59D8BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Electrical Calculations Pro / Электрические расчеты v11.0.3.
 ```bash
 magnet:?xt=urn:btih:32B8E89DFB79C8E064CF4401F82FA30671109F29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Lighting calculations / Расчеты освещения v6.1.10 Mod by Balatan
 magnet:?xt=urn:btih:97FD63AD57CD0C29EBA3513D2213D57DD75E8E49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ DRM-play — приложение для бесплатного просмотр
 ```bash
 magnet:?xt=urn:btih:7782036191B10CF65F0160274D0E559D5EEAF716
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ ProShot v8.32.1.3 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:85C92ED9DBC6612C2307580270722812D408BCFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Smart Tools® это набор инструментов состоящий из
 ```bash
 magnet:?xt=urn:btih:F3080AE81416D8A6B20F4C6F5FA0AF32FA2D03AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Sense V2 Flip Clock & Weather v8.91.0 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:ED326CAD291725CF077439995DC5B10001060C3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Sense Flip Clock & Weather v8.99.8 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5368DD14456F7F27F39D9F195B07F341092BC0EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:5368DD14456F7F27F39D9F195B07F341092BC0EF
 magnet:?xt=urn:btih:9274EC99FAB2F94EA43C1E346F63EF701F610C54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ magnet:?xt=urn:btih:9274EC99FAB2F94EA43C1E346F63EF701F610C54
 ```bash
 magnet:?xt=urn:btih:9444530487382F04115960509918C64FAE32D657
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Web Video Caster® позволяет смотреть на вашем ТВ ви
 magnet:?xt=urn:btih:3543F00913076CF6FF801E0817DC4AD6F75D7665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Listen Audiobook Player v5.3.5 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A11BD1184F6DADA53447EF4293646289757D2ECB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

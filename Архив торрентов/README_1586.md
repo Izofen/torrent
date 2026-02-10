@@ -19,6 +19,8 @@ CPUID HWMonitor Pro - расширенная версия утилиты, пре
 magnet:?xt=urn:btih:EB336CB21000E713F890F70D910871A0AF887D0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ VA - Шансон.RU Часть 2 (2012) [MP3|192-320 кб/с]<Шансон, Pop
 ```bash
 magnet:?xt=urn:btih:3B4FD7BE065EECFA5A076A827FCE215E22939185
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ VA - Winter Solstice (2012) [FLAC|Lossless|WEB-DL]<Ambient, Downtempo, IDM, Psyb
 magnet:?xt=urn:btih:8F03E207C38699762768F6E7B178FEFD165A17FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ AusLogics BoostSpeed - утилита для оптимизации работы
 ```bash
 magnet:?xt=urn:btih:015C56E1F4A3AB2715AF4038E93B6B5C63966AD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -134,6 +142,8 @@ Tri-BACKUP (Резервное копирование)
 magnet:?xt=urn:btih:E958FB8D6D337A91D66CB11D6BB37E1943AF325A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -158,6 +168,8 @@ magnet:?xt=urn:btih:E958FB8D6D337A91D66CB11D6BB37E1943AF325A
 magnet:?xt=urn:btih:F69A9A3C8B28A1AB33C7048B1C332BA9692E9C51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:2E11225A80A166C374FE1302AD660E59C0711398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +225,8 @@ Giuliano Rodrigues - Translucent + EP (2011-2012) [MP3|320 кб/с]<Deep House>
 magnet:?xt=urn:btih:D661A8DCADA562A4DCC577D427F9148CA62B016A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +253,8 @@ magnet:?xt=urn:btih:D661A8DCADA562A4DCC577D427F9148CA62B016A
 magnet:?xt=urn:btih:4DAD19703658E0A7222E6E68903E52F0EA15FCC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +278,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:A2186A7692C85EA3351B4B97D1E8DE87E1DD0A75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +307,8 @@ Tom Hades & Soren Aalberg - Alphabet EP (2012) [MP3|320 кб/с]<Techno>
 magnet:?xt=urn:btih:39F235B48E6616A2F0FA5B5F12F6DB80125FCB8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +335,8 @@ Moom 3.2.19 [En]
 magnet:?xt=urn:btih:0C77AE352DD9EC9FEBC241B06D7B5172A5B47950
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +360,8 @@ Gilrs Wallpaper Collection (06.12.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:9382D214186DF443BADC816362552FE12FB848DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +388,8 @@ Bitter-Suss - Apologize For The Past (2016) [FLAC|Lossless|WEB-DL|tracks] <Elect
 ```bash
 magnet:?xt=urn:btih:07C8ECF45DCA8D93C2F8AE76DD346E18BDE874F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +424,8 @@ Tiesto - Club Life 351 (22.12.2013) [MP3|128kbps] <Trance ,Progressive House, El
 magnet:?xt=urn:btih:ADB4CA451333C0D1AA3C44DE97D8E531B8560285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +449,8 @@ magnet:?xt=urn:btih:ADB4CA451333C0D1AA3C44DE97D8E531B8560285
 ```bash
 magnet:?xt=urn:btih:351EEF3F483E7EDFDE7C220FD950689818929837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +477,8 @@ TinkerTool System - утилита для управления скрытыми 
 ```bash
 magnet:?xt=urn:btih:08B623FABFDC7E19E1F3899AD10909E22702725E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +507,8 @@ Carter - Hidden Thoughts Ep: Chapter 01 (2015) [MP3|320 кб/с] <Drum & Bass>
 magnet:?xt=urn:btih:A7AA748C4545D721345D1A402BCDEEE22F3B8D80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +532,8 @@ BitTorrent - клиентская программа пиринговой сет
 ```bash
 magnet:?xt=urn:btih:7BBC309D5C1F7E379B105F64760EA294ABC2209A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +561,8 @@ MediaTrans фокусируется на одном простом деле, и 
 magnet:?xt=urn:btih:FFE04FF31AE6675792BA8A94333822656C3083C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +588,8 @@ Paul SG - Dusty Smoke (2015) [MP3|320 кб/с] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:09185CFF2BAA93615E11EBD009AA0EDFEA0DE322
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +618,8 @@ GraphicConverter - полнофункциональный графический
 magnet:?xt=urn:btih:ACC095123BC551EF2F5F0C3D770D77EF00C55D6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +647,8 @@ VA - 75 Trance Anthems (2016) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:D4AC052ABA2687F6E78F761302A59AB354B38A54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +672,8 @@ magnet:?xt=urn:btih:D4AC052ABA2687F6E78F761302A59AB354B38A54
 ```bash
 magnet:?xt=urn:btih:950778B26EF68ABDF5315837336D0ABED223827F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +702,8 @@ VA - The Best Of Suanda Music 2016 (Mixed By Ruslan Radriges & Mhammed El Alami)
 magnet:?xt=urn:btih:1FCE845EE8067675420247BFB58EED4B4FD36A2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -677,6 +727,8 @@ Dropbox - программа для работы с облачным храни�
 ```bash
 magnet:?xt=urn:btih:2254CD19F6C184290DC0BB1133C124A65D1756DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

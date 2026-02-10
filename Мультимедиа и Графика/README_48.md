@@ -19,6 +19,8 @@ PhotoInstrument - мощный и лёгкий в использовании р�
 magnet:?xt=urn:btih:49D0B3F158847208AEEDFD2B7EE86813AB1A1BAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Photo Supreme — вспомогательная программа для вл�
 ```bash
 magnet:?xt=urn:btih:B4478644FB20412A6305B7E8042DB0E5515D2D0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:B4478644FB20412A6305B7E8042DB0E5515D2D0D
 magnet:?xt=urn:btih:BF1A3BF41B4C5579728B8AB0DCDAFD726C039158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Agisoft Metashape Professional - это передовое программно�
 ```bash
 magnet:?xt=urn:btih:5EB947D1ACEBCDC7E7347EC936CE386089BD401F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ ViWizard Audio Converter 3.9.0.59 [Multi]
 magnet:?xt=urn:btih:1F481BB773194BF75075E410CC473F724011DB5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Bricklink Studio является преемником Lego Digital Designer и 
 ```bash
 magnet:?xt=urn:btih:917473BFDB97AEB517DA029DB0A317F7C07A3846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Forester - это плагин для Maxon Cinema 4D, который предо
 magnet:?xt=urn:btih:081E903C7EAA5EC2958AEF4188E1FA51FF24C255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ SOUND FORGE вот уже более 20 лет задает стандарты �
 magnet:?xt=urn:btih:045230566154847BC35E6EF96ED99D425A977421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Wise Video Converter — эффективная утилита для конве
 ```bash
 magnet:?xt=urn:btih:7813D6280C45829DF4270E5AFAD129264A41724C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Klevgrand - это компания по производству аудио-п�
 magnet:?xt=urn:btih:B00E99A2D32DD9CF67E483BA1A20F17B695B9CA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ DrawingBotV3 - это программа для преобразования и�
 ```bash
 magnet:?xt=urn:btih:9674F6AD02D87CBC7CEA26B05BDE769CB17EC1E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Cartoon Art Batch - очередная программа, которая поз
 magnet:?xt=urn:btih:5746AB8CEA242BCFCE232A47C4FDC88D3B56FF51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Crescendo Music Notation Editor 9.62 [En]
 magnet:?xt=urn:btih:31544F4BE1C52F9E86C5E0DF49E5A1D119FD2DC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ DrawingBotV3 - это программа для преобразования и�
 ```bash
 magnet:?xt=urn:btih:51A8BBDE5D209E70AB1B7BCF5869DC933AFCE3B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ CartoonArt - Prima Cartoonizer 5.0.6 [En]
 magnet:?xt=urn:btih:8B212EDF98829F3F93AB589869372A48F5207ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ QuadSpinner Gaea разработан, чтобы помочь вам превр
 ```bash
 magnet:?xt=urn:btih:AEB4D36F769197171570846BA4BF3B192BB39651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Mixxx — это бесплатное приложение с открытым �
 magnet:?xt=urn:btih:3D398EDB2F4F8602E84AE138895E459CA1A9CA15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Finisher — это совершенно новый тип плагина зву
 ```bash
 magnet:?xt=urn:btih:A2FCF1B1B6D06EBF04E8CC1A94612B67B86B5797
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ OPS разработан Hexachords с учетом интересов комп�
 magnet:?xt=urn:btih:3839150B493ECB5622CD33F52948279457B371DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Movavi Picverse - представляет собой один из самых �
 ```bash
 magnet:?xt=urn:btih:88B3429D1C07BDCAC253877665DC7CBDBBC8158B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ Adobe InCopy позволяет авторам и редакторам текс�
 magnet:?xt=urn:btih:0FC7716F6E382B5603D0454D0A83849D8DF4AEB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ Samplitude Pro X предлагает звукозаписывающим и ми
 magnet:?xt=urn:btih:2EA1737F69B95838A979ACBCE9C9505743C3889E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Movavi Video Suite - пакет программ на русском языке,
 ```bash
 magnet:?xt=urn:btih:133DD865D0627ED151121FB0C22019F77147C996
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Movavi Video Suite - пакет программ на русском языке,
 magnet:?xt=urn:btih:24F822BCC5966A2D8A84613745A5BC97AE7486BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:24F822BCC5966A2D8A84613745A5BC97AE7486BC
 magnet:?xt=urn:btih:9A27B53394088AAEE8ADD9EF56C042FE722CDDD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Affinity Designer — самое быстрое, удобное и точное 
 ```bash
 magnet:?xt=urn:btih:25FAA037EE9845CD68671B9132944D82EA9DFAEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

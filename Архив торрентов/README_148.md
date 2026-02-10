@@ -19,6 +19,8 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 magnet:?xt=urn:btih:FC0BB4C4C373A4F7342CBD675945A1876BE48179
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Auslogics SSD Optimizer - специальный инструмент, разр�
 ```bash
 magnet:?xt=urn:btih:D82FB3B5ECC6A5EE3B58C7DF921CBC3DCB5C65DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ SnapEdit — одно из лучших приложений для редакт
 magnet:?xt=urn:btih:2460988E755E316C158DDD6694187E51232B11D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Text Editor Pro 31.0.1 + Portable + Bonus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:46F688FDE61B5162E26A047A4D74AAFBFC444EC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ TreeSize Professional 9.3.0.1954 (x64) [Multi/Ru]
 magnet:?xt=urn:btih:8929D56C9A423F8802675CD2FEE039D0FD9CA5F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Fast Screen Recorder — это программное обеспечение д
 ```bash
 magnet:?xt=urn:btih:AAB1F453BC75996EC19375EF60A7D7A3DE0D7522
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ MediaInfo — позволит узнать техническую информ�
 magnet:?xt=urn:btih:D977F87F6CAF0EAA096E0D73A750909E843FB53B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ MobiPDF: Редактор и сканер PDF  v11.1.266629 Mod by Balatan [Ru/M
 magnet:?xt=urn:btih:B18B30E2BD9D7ADECCF22C49F4270443339CC5E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:8F91C075E32BF2D45E8DA834856784274EAD159B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ DVDFab – мощный, многофункциональный программ
 magnet:?xt=urn:btih:F106644B067261B94F54A9827ADEA1D77CDF7664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ v2rayN — это универсальный инструмент VPN и про�
 ```bash
 magnet:?xt=urn:btih:833F1E6214FDAA62B1D04C6F2B77765C79372423
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:833F1E6214FDAA62B1D04C6F2B77765C79372423
 magnet:?xt=urn:btih:07747D53229EDF918D24C53DA426E293563C0FF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:4A79ACC82D18FB572E7435E509761FDEF77A480D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ UniFab - этот комплексный медиа-инструмент от DV
 ```bash
 magnet:?xt=urn:btih:3D65F71EAF6CF7AF5A919968161C71E165CB9966
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Blender - бесплатный редактор трехмерной графи�
 magnet:?xt=urn:btih:A2F16D4C1227D2427619189EBB8F3031866EBAA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Revo Uninstaller Free 2.5.7 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CB1BBF030CFDCBF69FD1E79C15E359502A775BA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:0A6083F912EEC15D215E35273A0CBEEC05DE5C59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Movavi Video Editor – универсальный инструмент для �
 ```bash
 magnet:?xt=urn:btih:323B0AEDEA87B616E5BDF2465772E7305D1086E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:FA5B4CEC9371DEE4D84E351C0172787F350C2A21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ AIDA64 - утилита является мощным средством для 
 ```bash
 magnet:?xt=urn:btih:3C765499CB89268B7FCFF0E8C2D25C246B499506
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:E88373500D6AADA4BEA9A35885B02861680B68C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:E88373500D6AADA4BEA9A35885B02861680B68C0
 ```bash
 magnet:?xt=urn:btih:6C290384D14CBF56EAB4AA40B90516E3467E5B99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Wise Disk Cleaner 11.1.8.834 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:D78E4E0ED2EDC1909B77DB67547E3222E7A6643F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:7F27AB60A8E3D830AFCDDCFFAA067860C01D8D96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Revo Uninstaller Free 2.5.5 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:DF99E043E1A9FED10B26301122AA20C086762F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 ```bash
 magnet:?xt=urn:btih:F7CB27762395C2C8ABDC5A3738886E1957E8B4E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

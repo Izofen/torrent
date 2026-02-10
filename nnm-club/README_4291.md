@@ -28,6 +28,8 @@ CD 1:
 magnet:?xt=urn:btih:72E847AA0AEAE095F6C30D82E270C6690E9C578C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -53,6 +55,8 @@ Navitel / Навител Навигатор v9.13.73 для карт Q3 2023 v9 
 magnet:?xt=urn:btih:9556BB5865F3C9612503CD302358C906C3C023AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ Shingeki no Kyojin Season 3 | Attack on Titan Season 3 | Атака титано
 ```bash
 magnet:?xt=urn:btih:74276563CEB03711145E2A9F6AA008207E08D277
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -110,6 +116,8 @@ VA - Самый убойный хит (2012) [MP3|320 кб/с]<Шансон>
 magnet:?xt=urn:btih:8BE3257EED3F2A5D14B63E22C901201B13EB14AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +151,8 @@ Niacin - Time Crunch (2001) [WavPack|Lossless]<Prog Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +176,8 @@ Windows 8.1, включающая в себя 10 русских и 10 англи
 ```bash
 magnet:?xt=urn:btih:C3C06C4EF8BB791792D651CDC0C9AE056B0902AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +205,8 @@ Skillbox, Арсений Батыров и др. | Профессия Инжен
 magnet:?xt=urn:btih:0274BA2596131DD1557406CFB48A60657B8AF9F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +231,8 @@ magnet:?xt=urn:btih:0274BA2596131DD1557406CFB48A60657B8AF9F3
 ```bash
 magnet:?xt=urn:btih:ECF64E25EF3A1B9C287F0C55043697C8D9B7C94D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +267,8 @@ The Paul deLay Band - Heavy Rotation [HDCD] (2001) [WavPack|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +292,8 @@ The Walking Dead: Destinies (2023) [Multi] (1.2.0.6) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:61B1C7B417879ED7948816C009DA577ABE04F1AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +323,8 @@ magnet:?xt=urn:btih:61B1C7B417879ED7948816C009DA577ABE04F1AA
 magnet:?xt=urn:btih:F5BF1453D533C7EA0311B3BE639780C79D53056C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +348,8 @@ magnet:?xt=urn:btih:F5BF1453D533C7EA0311B3BE639780C79D53056C
 ```bash
 magnet:?xt=urn:btih:A6314098310DF94E18FC58F4B0604D0DF5BC1F95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +377,8 @@ magnet:?xt=urn:btih:A6314098310DF94E18FC58F4B0604D0DF5BC1F95
 magnet:?xt=urn:btih:37DEDC83D19224BF065E3CC22BB2B3F5C869B8C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +402,8 @@ magnet:?xt=urn:btih:37DEDC83D19224BF065E3CC22BB2B3F5C869B8C2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +429,8 @@ New year wallpapers 2013 (28.12.12) [Wallpapers]
 magnet:?xt=urn:btih:1D809B875D5D1BC7C338F65BC6F158596530937E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +454,8 @@ Super Mario Bros Wonder (2023) [Switch] [USA] 17.0.0 [NSP] [License / 1.0.1] [Ru
 ```bash
 magnet:?xt=urn:btih:1849B8609A4C07988E90C23E762302884B70E55A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +481,8 @@ magnet:?xt=urn:btih:1849B8609A4C07988E90C23E762302884B70E55A
 magnet:?xt=urn:btih:B178B0C169171DD04A3F4DF9724724F742962F5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +506,8 @@ Best HD Wallpapers Pack (29.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:FA4086426C9A8000C0A598FD4121379182ECD74E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +533,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:DEB860998468A09BCD93B207985D2AA700E6D100
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +558,8 @@ magnet:?xt=urn:btih:DEB860998468A09BCD93B207985D2AA700E6D100
 ```bash
 magnet:?xt=urn:btih:14EB813AB4C353C11651962A5CF97C7879BA9222
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +588,8 @@ GeoGebra — свободно распространяемая (GPL) динам�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +613,8 @@ GeoGebra — свободно распространяемая (GPL) динам�
 ```bash
 magnet:?xt=urn:btih:877BBDE635098A3C5EB0FBCE2E13AF3DA3E82FD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +640,8 @@ magnet:?xt=urn:btih:877BBDE635098A3C5EB0FBCE2E13AF3DA3E82FD1
 magnet:?xt=urn:btih:5D8FD76597C12498C2BA8EA667803616E26DBE4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +665,8 @@ magnet:?xt=urn:btih:5D8FD76597C12498C2BA8EA667803616E26DBE4F
 ```bash
 magnet:?xt=urn:btih:A3627015DCDBE2EA7334C3847D15CD47D49818F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +692,8 @@ magnet:?xt=urn:btih:A3627015DCDBE2EA7334C3847D15CD47D49818F8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ magnet:?xt=urn:btih:A3627015DCDBE2EA7334C3847D15CD47D49818F8
 ```bash
 magnet:?xt=urn:btih:208A1439A194BE89CB69EFB023F4952381EA8FBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

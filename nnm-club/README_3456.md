@@ -19,6 +19,8 @@ MotoGP. Этап 05 из 21. Гран-при Франции. Гонка (12.05.2
 magnet:?xt=urn:btih:E62D0B26D5FF67E5D7AFF8ACC9ED3656ED397B18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Kanatami - Зависимость (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 magnet:?xt=urn:btih:90803CA53979AABF908B19879716591DF236BD3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:90803CA53979AABF908B19879716591DF236BD3D
 ```bash
 magnet:?xt=urn:btih:F72CA585CF0FE794101736F3D2E2EFD27320E42E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Incubus - Morning View XXIII (2001) Remastered, 2024, Incubus [FLAC|Lossless|WEB
 magnet:?xt=urn:btih:8C5DD81545DBEFFA216C3DED2FE563963921285E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Rainbow Kitten Surprise - Love Hate Music Box (2024) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:97973C0A9476084520BF5EB84B9C137EC98D16C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Sublime with Rome - Sublime with Rome (2024) [FLAC|Lossless|WEB-DL|tracks] <Regg
 magnet:?xt=urn:btih:AE1C4C0108E620B4AE773EACB0FDF29FEBC0DCFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ Andy Lindquist - Resuscitated (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:30F6893B571468C953CBD8AA3C1DD8D389215C75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ Avrora - Любовь через провода (2014) [WavPack|Lossless|image +
 magnet:?xt=urn:btih:D30D55B1AF623C97F67B84567846121C5CC3600B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ Fivebyfive - Phuck Around Phind Out (2024) [FLAC|Lossless|WEB-DL|tracks] <Rapcor
 ```bash
 magnet:?xt=urn:btih:60730D357733CB7EB35740E44FBB8DFA2832C276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +277,8 @@ Hot Water Music - VOWS (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Punk Roc
 magnet:?xt=urn:btih:89ECDDDA8D30FE1C0F30B020C1B13BDDFFD0DA2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +303,8 @@ magnet:?xt=urn:btih:89ECDDDA8D30FE1C0F30B020C1B13BDDFFD0DA2B
 ```bash
 magnet:?xt=urn:btih:687B2F578D329EA704432AF0506C9BABCFCCB1E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +333,8 @@ VA - Delightful Cozy Sweet Lounge Inviting Instrumentals (2024) [FLAC|Lossless|W
 magnet:?xt=urn:btih:3B3F63F23BA60D5A9DB35B2B69C553E0F3834DB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +362,8 @@ Metal Riot - Birth of Terror (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:355074262AAED080B07F6BA58D512B6BB46375FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +389,8 @@ magnet:?xt=urn:btih:355074262AAED080B07F6BA58D512B6BB46375FA
 magnet:?xt=urn:btih:8432DED961439D23A91586209856EED5C0A1F80E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ magnet:?xt=urn:btih:8432DED961439D23A91586209856EED5C0A1F80E
 ```bash
 magnet:?xt=urn:btih:9BBD1BE85E293596BA47A2511351CFD9B77D90A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +445,8 @@ MAMA RUSSIA - Любовь, комсомол и роботы (2024) [FLAC|Lossle
 magnet:?xt=urn:btih:B1817606275C019CFABEAFAAD3D3138E5B56C13C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +471,8 @@ magnet:?xt=urn:btih:B1817606275C019CFABEAFAAD3D3138E5B56C13C
 magnet:?xt=urn:btih:E2A5A93A0C527B97DFB9E0B2D02C7E1C2A7D7C2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +496,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 ```bash
 magnet:?xt=urn:btih:16385620A17EA5506939DD9B5C68B81B6E360F5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +526,8 @@ VA - Soul, Jazz & Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:9AF9D1F8AD36F3AA5844FA188B74264EB0F5A0F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +552,8 @@ Thorn - это программный синтезатор, прост в исп
 magnet:?xt=urn:btih:F67CCACBD4F9361461839D2392E2B91E891AEEAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +577,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:875683EFDDD6A55119566AE5B96400762B38F7BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +606,8 @@ magnet:?xt=urn:btih:875683EFDDD6A55119566AE5B96400762B38F7BF
 magnet:?xt=urn:btih:B47CDFB13D11C01216750E0758598BF4851C72F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ magnet:?xt=urn:btih:B47CDFB13D11C01216750E0758598BF4851C72F3
 ```bash
 magnet:?xt=urn:btih:A465F2D77657F7F570AA4EBC7586EC2333950DDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +659,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 magnet:?xt=urn:btih:70B5F1E2D3DA080085CE11DA3D0E2A2FA45DC9D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:EAFEB4D6056FA6DCFA4BD59943B7986A60F0EE9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +711,8 @@ magnet:?xt=urn:btih:EAFEB4D6056FA6DCFA4BD59943B7986A60F0EE9E
 ```bash
 magnet:?xt=urn:btih:0FA3EFA5319CCDD61154F97B9EF1A92AB132B24E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

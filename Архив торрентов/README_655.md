@@ -19,6 +19,8 @@ VA - Хит сезона 3 (2012) [MP3|256 kbps]<Pop, Dance>
 magnet:?xt=urn:btih:DB9BA96D99A1D2CBFC58D6C5A5EB23755517B227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Dapayk & Padberg - Sweet nothings (2012) [MP3|192-320 kbps]<Tech-house>
 magnet:?xt=urn:btih:52E27F3783B872DDD843A259EFBB4CB252A45308
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:52E27F3783B872DDD843A259EFBB4CB252A45308
 magnet:?xt=urn:btih:D5FCC00BC2B565461922FEE79D18AC4109366421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:D5FCC00BC2B565461922FEE79D18AC4109366421
 ```bash
 magnet:?xt=urn:btih:84D639A2C279C933FF45C1F440FB23DEA1094E9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:84D639A2C279C933FF45C1F440FB23DEA1094E9B
 ```bash
 magnet:?xt=urn:btih:2A46BB0242ADDA1978B2AB3D9060B0AEDB6DE644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -161,6 +171,8 @@ VA - Дискотека 777 Русская (2012) [MP3|256 kbps]<Pop | Dance>
 magnet:?xt=urn:btih:27168E10464F50C44D572542C6B7CB5AA08E55EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:27168E10464F50C44D572542C6B7CB5AA08E55EA
 ```bash
 magnet:?xt=urn:btih:B809A01FBADD0E08BED697AF8DAD63737EBF8E09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ Freemake Music Box - бесплатная программа для поиска
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ Freemake Music Box - бесплатная программа для поиска
 ```bash
 magnet:?xt=urn:btih:298FAF44663EA000A4BF133BB7A9D5B2CEBC9F0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +284,8 @@ Arisa - Amami (2012) [MP3|320 kbps]<Pop>
 magnet:?xt=urn:btih:F27408CEF18901964F6FFC3574A89471A65888E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +311,8 @@ magnet:?xt=urn:btih:F27408CEF18901964F6FFC3574A89471A65888E1
 magnet:?xt=urn:btih:0015FA05CE44A8278301BFFE96A125121B986233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +336,8 @@ magnet:?xt=urn:btih:0015FA05CE44A8278301BFFE96A125121B986233
 ```bash
 magnet:?xt=urn:btih:CB15ECB4ABC1CCF01D80BD44E8049B644E33B0FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +372,8 @@ Gilberto Gil - Sao Joao Vivo (2001) [FLAC|Lossless]<Tropicalia, Brazilian Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +397,8 @@ Gilberto Gil - Sao Joao Vivo (2001) [FLAC|Lossless]<Tropicalia, Brazilian Pop>
 ```bash
 magnet:?xt=urn:btih:EFFFBBB38A169D243645212D2453F6CE4C8B4308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +433,8 @@ PETRA - Farewell (2005) [MP3|320 kbps]<Hard Rock, CCM>
 magnet:?xt=urn:btih:571C080E4948E3921243898E9E0D21C61915800F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +458,8 @@ magnet:?xt=urn:btih:571C080E4948E3921243898E9E0D21C61915800F
 ```bash
 magnet:?xt=urn:btih:B7949BD13F79BE3CB00CC0914BB7EBFF6A5C6677
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +489,8 @@ magnet:?xt=urn:btih:B7949BD13F79BE3CB00CC0914BB7EBFF6A5C6677
 magnet:?xt=urn:btih:3FFB4F3E948647BC6FC406E2773317A4B0EE490F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ magnet:?xt=urn:btih:3FFB4F3E948647BC6FC406E2773317A4B0EE490F
 ```bash
 magnet:?xt=urn:btih:65297C5F9105955B712FAB99F5A11067344EFCF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ Win7codecs - это пакет кодеков предназначенный д�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +567,8 @@ Cosmopolitan – женский глянцевый журнал №1 в мире
 ```bash
 magnet:?xt=urn:btih:6786AE45955252A57054DED702DB7D9283C9FB89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +603,8 @@ Freedom Call - Land Of The Crimson Dawn (2012) [MP3|320 kbps]<Power Metal>
 magnet:?xt=urn:btih:718DA6D76E7E99AA4FF9E31C75E3833802A5EE72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ magnet:?xt=urn:btih:718DA6D76E7E99AA4FF9E31C75E3833802A5EE72
 ```bash
 magnet:?xt=urn:btih:B9E7135DE8CAF7E275703AE48FCF58351B9CD525
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +656,8 @@ PSYCHOLOGIES — уникальный «специалист по жизни», 
 ```bash
 magnet:?xt=urn:btih:7D8ADB777366E596FC735A5B15E12241BDC4C45C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +692,8 @@ Nina Zilli - L’Amore e Femmina (2012) [MP3|320 kbps]<Pop>
 magnet:?xt=urn:btih:828FB43BAF1F0FD43EE9605D424BEB8E14925624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ magnet:?xt=urn:btih:828FB43BAF1F0FD43EE9605D424BEB8E14925624
 ```bash
 magnet:?xt=urn:btih:EAA285ACB1D80506ADA99668FEFC88A9A13CF842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -697,6 +747,8 @@ magnet:?xt=urn:btih:EAA285ACB1D80506ADA99668FEFC88A9A13CF842
 ```bash
 magnet:?xt=urn:btih:97CA62E03679F4BE9AE32294D50B7B951DF86D27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

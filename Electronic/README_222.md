@@ -22,6 +22,8 @@ VA - The Sound Of Progressive Trance Vol.15 (2022) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:4CB89877F165503798F7C2A257BE5B3BCC5E54FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Purple Fog Side & Elsehow - How To Disappear (2022) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:8DFAD724A6971D67C5179E9A79E1C72644A29101
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Hypnotix - Star Gates (2006) [OGG Vorbis|485 Kbps] <Synthpop, Experimental>
 magnet:?xt=urn:btih:A413963A91152D0996A7AB53CD14E424667CE23A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Putting The Morr Back In Morrissey (2000) Morr Music [FLAC|Lossless|tracks+
 ```bash
 magnet:?xt=urn:btih:D6DF956769660F332E06F1DA54C3B654169E72F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Daniel Deluxe - Corruptor • Instruments of Retribution (2016-2017) [FLAC|Lossl
 magnet:?xt=urn:btih:FB76C159AEBB9A8BC5F81F0A16EA902EDFFEA756
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Maribou State - Kingdoms In Colour (2018) Japan Edition [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:2B5AD22BFBCA21B27D7FB9C5EF7860BC2F26C5AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - King Size Deep House Vol.1 (2018) [MP3|320 Kbps] <House, Deep House>
 magnet:?xt=urn:btih:961931B947A237D461C4D703C8659E5B476E6FF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - ADE 2018 [Bonzai Progressive] (2018) [MP3|320 Kbps] <House, Progressive Hou
 ```bash
 magnet:?xt=urn:btih:657790A21453DE83735106E15AB22ACB521D9BB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Black Sunset Music: The Classics Collected (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:FB8DDFC593FAA3D0064F21DFDDE473567BD105CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Tech House Patrol [40 Dirty Beats] Vol.3 (2018) [MP3|320 Kbps] <House, Tech
 ```bash
 magnet:?xt=urn:btih:26DF8CB525CBD290BFCF6D21F573812196C78ADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ The Midnight - Collection (2014-2017) [MP3|320 Kbps] <Synthwave, Synth-pop>
 magnet:?xt=urn:btih:17E3972F2C2FC43146838CD0776A5ADE6E1E10A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Pianochocolate - Oak (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:DBB7A96918B2F7E92B122F8EDC9B0AB71B5ADD70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Chill Out Under The Stars - Private Night Lounge Vibes (2017) [MP3|320 Kbps
 magnet:?xt=urn:btih:880DAF139D2D564682C183537224EECFB3D82981
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ A Strangely Isolated Place - The Places | Label Series 35 Releases (2012-2020) [
 ```bash
 magnet:?xt=urn:btih:0D8CE7A8E96003DBE9FC7D282A30498C82EB6057
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Autechre - SIGN (2020) Warp Records [FLAC 2.0|44.1/24|tracks|WEB-DL] <Experiment
 magnet:?xt=urn:btih:8D9AB10423B8A2BB3FD2F948DFE48DB335BA2304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ VA - Autumn 2017 Collection [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:23061F038F64913219509E329F4450BB72C1A3CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ Amorph - Discography 5 Releases (2006-2012) [FLAC|Lossless|tracks+.cue, tracks] 
 ```bash
 magnet:?xt=urn:btih:409F5C172505B5E47488A3AB52DE9B505D397443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ Mat Zo - Illusion of Depth (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pro
 magnet:?xt=urn:btih:D223FA2ECAE8BC38229F52224DED037297518142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ Christian Kleine - Touch & Fuse (2020) A Strangely Isolated Place [FLAC 2.0|44.1
 ```bash
 magnet:?xt=urn:btih:8B99F0B029B6CB073003218CD3CC53CFB538F525
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ Second Tension - Assembly Point (2017) Monolith Rec [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:EECCB22CC72A9F441B76623AF981E2FEED4872A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ worriedaboutsatan - Europa (2020) Past Inside the Present [FLAC 2.0|44.1/24|trac
 ```bash
 magnet:?xt=urn:btih:502EBE06BE38D2F9FFF440AC243124966F26E7FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ VA - The Minimal Wave Tapes (2010, 2012) Volume One & Two [MP3|320 Kbps] <Electr
 magnet:?xt=urn:btih:C8DCD7ADD43B6098C398D9953A15B9E2992DF72A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ VA - Bass House Autumn '18 (2018) [MP3|320 Kbps] <House, Future-House, Electro-H
 ```bash
 magnet:?xt=urn:btih:5799558F2E554FE35B276DE6CC8931E6F61D3BC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +686,8 @@ VA - Ibiza Summer 2018: Trance (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:7251182379E139B949606F3490AA7B888115FFC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ VA - Digital Empire - Miami Underground (2018) [MP3|320 Kbps] <House, Electro-Ho
 magnet:?xt=urn:btih:27CBB40B4A7DFF260AA1FB0967C17F0365359EE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ Sciama - Broken Circle (2019) Auxiliary [FLAC|Lossless|WEB-DL|tracks] <Ambient, 
 ```bash
 magnet:?xt=urn:btih:C9BB0948906ECE95CFE9FEF3E6561CF795C8D19A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

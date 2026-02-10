@@ -1,27 +1,3 @@
-###  Публикация: 1315009   (830879) от 04.05.2020
-
-Моана / Moana (2016) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_830879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесстрашная Моана, дочь вождя маленького племени на острове в Тихом океане, больше всего на свете мечтает о приключениях и решает отправиться в опасное морское путешествие. Вместе с некогда могущественным полубогом Мауи им предстоит пересечь океан, сразиться со страшными чудовищами и разрушить древнее заклятие.Производство: США / Hurwitz Creative, Walt Disney Animation Studios, Walt Disney PicturesЖанр: мультфильм, мюзикл, фэнтези, комедия, приключения, семейныйРежиссер: Рон Клементс, Джон Маскер, Дон ХоллПеревод: Дублированный, авторскийСубтитры: русские, английскиеПродолжительность: 01:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B6A9A0B1BCDF6EDBB8D1A65FD5E581D1DC5048
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380741   (830949) от 04.05.2020
 
 Союз зверей: Спасение двуногих / Pets United (2019) WEB-DL [H.264/1080p-LQ] [PL] [PR]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:E3B6A9A0B1BCDF6EDBB8D1A65FD5E581D1DC5048
 ```bash
 magnet:?xt=urn:btih:96C775F55F1EBADA1EF3033341367E80F687FF07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:96C775F55F1EBADA1EF3033341367E80F687FF07
 magnet:?xt=urn:btih:601DF455AFDC0517D06BD53A1E46169729D4BA2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:601DF455AFDC0517D06BD53A1E46169729D4BA2B
 ```bash
 magnet:?xt=urn:btih:8C1E6BB1140D6996186BED5C64A30898E47593FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +99,8 @@ magnet:?xt=urn:btih:8C1E6BB1140D6996186BED5C64A30898E47593FF
 magnet:?xt=urn:btih:6F19DB90F4F81A392D5EDCC634656043D953B8AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:6F19DB90F4F81A392D5EDCC634656043D953B8AD
 ```bash
 magnet:?xt=urn:btih:2B7DCA1DB3CC64302F09C7299BD63958482459D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +151,8 @@ magnet:?xt=urn:btih:2B7DCA1DB3CC64302F09C7299BD63958482459D3
 magnet:?xt=urn:btih:E7F740761319A323EA64DFA7942EC840C0741A1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:E7F740761319A323EA64DFA7942EC840C0741A1D
 ```bash
 magnet:?xt=urn:btih:67FABBAEFA101B01B5F05F4F7F764167789A5E16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +203,8 @@ magnet:?xt=urn:btih:67FABBAEFA101B01B5F05F4F7F764167789A5E16
 magnet:?xt=urn:btih:A2D6D940E997009BA10CBAC0FB4C7BE61B0C7464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:A2D6D940E997009BA10CBAC0FB4C7BE61B0C7464
 ```bash
 magnet:?xt=urn:btih:0FFB4873E52DC52AFE71D89151AB234AEB781636
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:0FFB4873E52DC52AFE71D89151AB234AEB781636
 magnet:?xt=urn:btih:82163BD4C0AA5D1E2654E0B71BF21A8FEE7A6F77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:82163BD4C0AA5D1E2654E0B71BF21A8FEE7A6F77
 ```bash
 magnet:?xt=urn:btih:B653015604D27555EB995F6A4CFA09F820BBAFEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +307,8 @@ Angry Birds в кино / Angry Birds (2016) BDRip [H.264/720p] 60fps
 magnet:?xt=urn:btih:96D39F3CB57B6D8BCE734AFFBCDA644AA4CDD8A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:96D39F3CB57B6D8BCE734AFFBCDA644AA4CDD8A5
 ```bash
 magnet:?xt=urn:btih:EFF235AC06B83319C82736F46C5529C0D14B52AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:EFF235AC06B83319C82736F46C5529C0D14B52AA
 magnet:?xt=urn:btih:3B66022689C26CC6FB7445E173374C0E105B4435
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:3B66022689C26CC6FB7445E173374C0E105B4435
 ```bash
 magnet:?xt=urn:btih:C3A5D4B87923A8FF9D1F068F0E605924EB2CEEF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:C3A5D4B87923A8FF9D1F068F0E605924EB2CEEF3
 magnet:?xt=urn:btih:48C78E9E1271F0807D310E45303FA6C0E380E4C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +437,8 @@ magnet:?xt=urn:btih:48C78E9E1271F0807D310E45303FA6C0E380E4C6
 magnet:?xt=urn:btih:26852CD0776E8CBD482801CF51459EA8A66A988C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +462,8 @@ magnet:?xt=urn:btih:26852CD0776E8CBD482801CF51459EA8A66A988C
 ```bash
 magnet:?xt=urn:btih:5F3B8120ADC4206FF29BE358493DE04D05EB5DA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +490,8 @@ magnet:?xt=urn:btih:5F3B8120ADC4206FF29BE358493DE04D05EB5DA2
 magnet:?xt=urn:btih:F3F8D6B32C8EAD4D5A2EC2236CB9A1EE84A2A335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:F3F8D6B32C8EAD4D5A2EC2236CB9A1EE84A2A335
 ```bash
 magnet:?xt=urn:btih:F80371E92979C8D5E9416CF318BD828B4A9948FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +542,8 @@ magnet:?xt=urn:btih:F80371E92979C8D5E9416CF318BD828B4A9948FF
 magnet:?xt=urn:btih:8DE3D288027499CA3C3A74D00A173010566321D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:8DE3D288027499CA3C3A74D00A173010566321D7
 ```bash
 magnet:?xt=urn:btih:B404F281A488581B8C03A48A0906C58896625706
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +594,8 @@ magnet:?xt=urn:btih:B404F281A488581B8C03A48A0906C58896625706
 magnet:?xt=urn:btih:EB8B88C33F97D1A31CB962E286659894DE9F2AEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:EB8B88C33F97D1A31CB962E286659894DE9F2AEE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +645,34 @@ magnet:?xt=urn:btih:EB8B88C33F97D1A31CB962E286659894DE9F2AEE
 ```bash
 magnet:?xt=urn:btih:664649BDDA230ADBFF917579CD205EFDD36B2655
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501416   (836287) от 09.10.2021
+
+Маски для Николаса / Un Disfraz para Nicolas (2020) WEB-DL [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_836287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький Николас переезжает к любящим бабушке, дедушке и кузену Дэвиду, который его не принимает. Николас берет с собой самое дорогое — сундук со сказочными костюмами, которые шила его мама. С ними Николас отправляется в путешествие, чтобы спасти Дэвида от ночных кошмаров, а вместе с ним — и целое волшебное королевство.Производство: Мексика, 	Fotosintesis MediaЖанр: Детский, ПриключенияРежиссер: Эдуардо РивероАктеры: Фран Фернандес, Патрисия Канту, Магда Хинер, Хосе Лават, Эмилиано Угарте, Эмилио Тревиньо, Кристина Эрнандес, Рауль Анайа, Карлос Сегундо, Эктор ЛиПеревод: Дублированный (iTunes)Язык озвучки: русскийСубтитры: английские (hardsub)Продолжительность: 01:23:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B1235DECD7D0B1F35D491A71CE5DBCE4FD5C13
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

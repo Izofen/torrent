@@ -1,28 +1,3 @@
-###  Публикация: 342639   (658006) от 28.05.2011
-
-Смерть в Венеции / Morte a Venezia (1971) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой, композитор Густав фон Ашенбах, стараясь убежать от творческих терзаний и бытовых неудач, приезжает весной 1911 года на курорт Лидо близ Венеции. Однако и здесь Ашенбаху не суждено обрести душевный покой - однажды на пляже он встречает изумительно красивого мальчика Тадзио, чья юность и привлекательность очаровывают композитора с первого взгляда.
-Юноша (   Читать дальше...   )Производство: Италия, Франция, США / Alfa Cinematografica, Warner Bros., PECFЖанр: драмаРежиссер: Лукино ВисконтиАктеры: Дирк Богард, Бьорн Андресен, Ромоло Валли, Марк Бёрнс, Нора Риччи, Мариза Беренсон, Кароль Андре, Сильвана Мангано, Лесли Френч, Франко ФабрициПеревод: Профессиональный двухголосый (НТВ+)Субтитры: ОтсутствуютПродолжительность: 02:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B38EC4458A56AAAD83EAEF658908B88C5B2C1935
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139781   (658034) от 04.06.2017
 
 Зеленый значит опасность / Green for Danger (1946) DVDRip [H.264] [AVO]
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:B38EC4458A56AAAD83EAEF658908B88C5B2C1935
 ```bash
 magnet:?xt=urn:btih:BBCD1801F3EDD07AAFAC4AF7519DEA9D36E5CC02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +46,8 @@ magnet:?xt=urn:btih:BBCD1801F3EDD07AAFAC4AF7519DEA9D36E5CC02
 magnet:?xt=urn:btih:E6F4448BFB2F65157C86F8740E91C5AEA03D9AA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +71,8 @@ magnet:?xt=urn:btih:E6F4448BFB2F65157C86F8740E91C5AEA03D9AA8
 ```bash
 magnet:?xt=urn:btih:6E68B6A356910451785CFF29E10C30BE1B722FED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +98,8 @@ magnet:?xt=urn:btih:6E68B6A356910451785CFF29E10C30BE1B722FED
 magnet:?xt=urn:btih:959AA05E1D73987EB285452986EE5CDF2832B9B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +123,8 @@ magnet:?xt=urn:btih:959AA05E1D73987EB285452986EE5CDF2832B9B4
 ```bash
 magnet:?xt=urn:btih:0D20C9DCBD3508F6E346ED87AF09C945F86616C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +151,8 @@ magnet:?xt=urn:btih:0D20C9DCBD3508F6E346ED87AF09C945F86616C3
 magnet:?xt=urn:btih:C57E52C2DBF372A83AF901F94B212897C63A2032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +176,8 @@ magnet:?xt=urn:btih:C57E52C2DBF372A83AF901F94B212897C63A2032
 ```bash
 magnet:?xt=urn:btih:2328F83AE25E4A35F6B03ECA499B1B782990FEBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +203,8 @@ magnet:?xt=urn:btih:2328F83AE25E4A35F6B03ECA499B1B782990FEBF
 magnet:?xt=urn:btih:FCC99A7AEC6C90F791508034FD01A5206E7103E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +228,8 @@ magnet:?xt=urn:btih:FCC99A7AEC6C90F791508034FD01A5206E7103E5
 ```bash
 magnet:?xt=urn:btih:D1812DC1A54432F6633A20CA2B22AFBCE468B909
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +255,8 @@ magnet:?xt=urn:btih:D1812DC1A54432F6633A20CA2B22AFBCE468B909
 magnet:?xt=urn:btih:F830E2A76B293EDA320A8704FD6CAD6E02CFE37B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +280,8 @@ magnet:?xt=urn:btih:F830E2A76B293EDA320A8704FD6CAD6E02CFE37B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +307,8 @@ magnet:?xt=urn:btih:F830E2A76B293EDA320A8704FD6CAD6E02CFE37B
 magnet:?xt=urn:btih:81FF68F61CAFAAAEDC64801201B75B1708227EC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +332,8 @@ magnet:?xt=urn:btih:81FF68F61CAFAAAEDC64801201B75B1708227EC9
 ```bash
 magnet:?xt=urn:btih:CAF10BD6B54E65B1665B9D290EA11EA28C3B5E11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +359,8 @@ magnet:?xt=urn:btih:CAF10BD6B54E65B1665B9D290EA11EA28C3B5E11
 magnet:?xt=urn:btih:CDCF574834BEE6EB54271FE1DBC9D1D1ADBD62BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +384,8 @@ magnet:?xt=urn:btih:CDCF574834BEE6EB54271FE1DBC9D1D1ADBD62BB
 ```bash
 magnet:?xt=urn:btih:596CF68A82489141421E9658140FB225778869F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +411,8 @@ magnet:?xt=urn:btih:596CF68A82489141421E9658140FB225778869F9
 magnet:?xt=urn:btih:7E184FC27B63A9FC4C671744FFC84F7A574A5AF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +436,8 @@ magnet:?xt=urn:btih:7E184FC27B63A9FC4C671744FFC84F7A574A5AF4
 ```bash
 magnet:?xt=urn:btih:FFEC9CA40BF89DE9ACE5CA1E7FB36B1C108A6095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +463,8 @@ magnet:?xt=urn:btih:FFEC9CA40BF89DE9ACE5CA1E7FB36B1C108A6095
 magnet:?xt=urn:btih:09B94D1A1472F3CE13841AF2598AAE04F4E778E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +488,8 @@ magnet:?xt=urn:btih:09B94D1A1472F3CE13841AF2598AAE04F4E778E9
 ```bash
 magnet:?xt=urn:btih:B1C9DA5BA66CAD83AFC602CB956A40235E6E027D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +515,8 @@ magnet:?xt=urn:btih:B1C9DA5BA66CAD83AFC602CB956A40235E6E027D
 magnet:?xt=urn:btih:8DAEB63240576F6B3DF97952B8F80816A30998BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +540,8 @@ magnet:?xt=urn:btih:8DAEB63240576F6B3DF97952B8F80816A30998BC
 ```bash
 magnet:?xt=urn:btih:92560E9F5908998DAA1CF1DE1B1E4E9B29149994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +567,8 @@ magnet:?xt=urn:btih:92560E9F5908998DAA1CF1DE1B1E4E9B29149994
 magnet:?xt=urn:btih:D3454834D0BBBDBE172B0E491FF3F95422E1F29A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +592,8 @@ magnet:?xt=urn:btih:D3454834D0BBBDBE172B0E491FF3F95422E1F29A
 ```bash
 magnet:?xt=urn:btih:724273CB183EFD1685E87F9A7DFE325845963659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +619,8 @@ magnet:?xt=urn:btih:724273CB183EFD1685E87F9A7DFE325845963659
 magnet:?xt=urn:btih:31878C907ECC33CE51D2FB65E835FA91783F3E3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +644,36 @@ magnet:?xt=urn:btih:31878C907ECC33CE51D2FB65E835FA91783F3E3F
 ```bash
 magnet:?xt=urn:btih:43C6C399510FBD3A0229CDF12B9CED5141FDA233
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 512591   (662526) от 20.06.2012
+
+Призрак оперы / Phantom of the Opera (1943) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_662526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скромный и тихий скрипач средних лет Эрик Клодин отказывает себе во всем и тратит все сбережения на тайное спонсирование уроков пения юной Кристин Дюбуа, к которой питает тайную страсть. Та об этом не подозревает и не обращает никакого внимания на музыканта, у неё уже есть два поклонника — оперный тенор Анатоль Гаррон и Рауль Д`Обер, инспектор Сюртэ.
+
+Доведенный (   Читать дальше...   )Жанр: Ужасы, Триллер, ДрамаРежиссер: Артур ЛюбинАктеры: Клод Рейнс, Хьюм Кронин, Нельсон Эдди, Сузанна Фостер, Эдгар Барье, Лео Каррильо, Джейн Фаррар, Дж. Эдвард Бромберг, Фриц Фельд, Фрэнк Пулья, Стивен Герэй, Барбара Эверест, Фриц Лейбер, Ники Андре, Глэдис Блейк, Эльвира Курчи, Ганс Херберт, Майлз Мандер, Розина Галли, Уолтер О. Стал, Пол МэрионПеревод: Многоголосый закадровыйПродолжительность: 01:32:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7058A5595D4E51074D89D91470C80437D9CEF09
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

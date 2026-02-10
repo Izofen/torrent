@@ -19,6 +19,8 @@ Tor Browser Bundle 12.0.4 [Multi/Ru]
 magnet:?xt=urn:btih:D66E6C5CBBB32C2C8B6A3E8CF0D670AADDC41684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Age of Wonders 2: The Wizard's Throne – вторая часть прослав
 ```bash
 magnet:?xt=urn:btih:38126DE20B5FA4A61620E3D9CEAE4BAA5866D3F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Age of Wonders (1999) [En] (1.36.0053) License GOG
 magnet:?xt=urn:btih:F8C7DF3DB5EF73A2AEB842495A9F7919669F215C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Blue Lock | Блю Лок [2022, TV, 24 эп.] WEB-DL 720p raw
 ```bash
 magnet:?xt=urn:btih:9EBBED78821849F5916EAE0E3BBB29135687747C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:9EBBED78821849F5916EAE0E3BBB29135687747C
 magnet:?xt=urn:btih:CA70380F498D969DF51B295CE4CF36041C6862D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Phantom Brigade - это гибридная тактическая ролева�
 ```bash
 magnet:?xt=urn:btih:D65DC31A4ADC7E353B01E536EA2000928CABEEF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Warhammer 40,000: Mechanicus v.1.4.10.0 (2018) [Multi/Ru] [macOS Native game]
 magnet:?xt=urn:btih:38C5B8826F4E3EFAFF828091D8ABC3F63B05F06B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:38C5B8826F4E3EFAFF828091D8ABC3F63B05F06B
 ```bash
 magnet:?xt=urn:btih:1848530FB80A7ADB7AF56D79A3060C4390A7F26F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:1848530FB80A7ADB7AF56D79A3060C4390A7F26F
 magnet:?xt=urn:btih:D08A8BA5BF13B23CEE3B34841FB54243681DD0D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:D08A8BA5BF13B23CEE3B34841FB54243681DD0D3
 magnet:?xt=urn:btih:F1C01F5760CA0CCBAB28706129202029B7238DAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Rougo ni Sonaete Isekai de 8-manmai no Kinka o Tamemasu | Накопление 8
 ```bash
 magnet:?xt=urn:btih:D6BF1FD93371BBCF01884AE6765981FA69731834
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:D6BF1FD93371BBCF01884AE6765981FA69731834
 magnet:?xt=urn:btih:86FFDA3965E8C60983A6B13F6C512391C60FDB0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:86FFDA3965E8C60983A6B13F6C512391C60FDB0D
 ```bash
 magnet:?xt=urn:btih:D13E460AB4C058B511870C80602314AE72D6FEAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:D13E460AB4C058B511870C80602314AE72D6FEAB
 magnet:?xt=urn:btih:F7780B6E88AE65BAC7275D6C4CE70E8F01BDD858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:F7780B6E88AE65BAC7275D6C4CE70E8F01BDD858
 magnet:?xt=urn:btih:A9802F42F3AEF215B5051071BED4845A89E62DB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:A9802F42F3AEF215B5051071BED4845A89E62DB0
 ```bash
 magnet:?xt=urn:btih:8FB2D2D883D808F49964A72B382C9FB2D08D1491
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ DESIGNLINE, Сергей Гуров | Поиск и реализация виз�
 magnet:?xt=urn:btih:F153BB3E90F2B39AA036A81B7B563D8439CD0753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:F153BB3E90F2B39AA036A81B7B563D8439CD0753
 ```bash
 magnet:?xt=urn:btih:68626904AC81E56E041719EBB34D9CE3697BECF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:D45923D50C35E6648B441B55C2A41FF6A91EAAC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken | Истор
 ```bash
 magnet:?xt=urn:btih:E74D1E4521323DFB1A2D9E70799F5A1BC139ED77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:E74D1E4521323DFB1A2D9E70799F5A1BC139ED77
 magnet:?xt=urn:btih:19FCA03682ED1A707BB4F77A8876047A14E4BBD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:19FCA03682ED1A707BB4F77A8876047A14E4BBD4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:19FCA03682ED1A707BB4F77A8876047A14E4BBD4
 magnet:?xt=urn:btih:CAF88E193DCBBC8BFBE694A9192C36880146EB3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:CAF88E193DCBBC8BFBE694A9192C36880146EB3F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:CAF88E193DCBBC8BFBE694A9192C36880146EB3F
 magnet:?xt=urn:btih:BAF77F1EAA1646A4358267385B9108CC087F5102
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:BAF77F1EAA1646A4358267385B9108CC087F5102
 ```bash
 magnet:?xt=urn:btih:04A7F323FC8851FCFEFFEFC46C200DE12D912FCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

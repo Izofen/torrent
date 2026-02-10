@@ -1,3 +1,29 @@
+###  Публикация: 341585   (661155) от 25.05.2011
+
+ForSenses II - Timber Lounge... (2011) [DTS-ES  6.1 44.1/24|*.bin+*.cue (Blu-ray)] <Lounge, Relax>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_661155.jpg" />
+</div>
+
+
+###  Подробнее
+
+1  OpeningЖанр: RelaxПродолжительность: 01:01:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138474   (663044) от 30.05.2017
 
 KISS - I Was Made For Lovin' You (1979) Single [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Hard Rock, Glam>
@@ -19,6 +45,8 @@ KISS - I Was Made For Lovin' You (1979) Single [FLAC 2.0|96/24|tracks|Vinyl-Rip]
 ```bash
 magnet:?xt=urn:btih:4262D28043174089C8BAF420107D31F23E73D08D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ Mylene Farmer - Vinyl Discography 9LP (2009) [FLAC 2.0 24/96|image+cue (Vinyl ri
 ```bash
 magnet:?xt=urn:btih:3307AD7B7EC765685D70B1B8349F938A9D834552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +101,8 @@ Written-By – Marshall Brown(   Читать дальше...   )Жанр: Twist
 magnet:?xt=urn:btih:60A9FA385311AE692CA9F1398CB1E47541B02E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +129,8 @@ A4. Таволга(   Читать дальше...   )Жанр: ШансонПр
 ```bash
 magnet:?xt=urn:btih:F5B1FE29CED20381AFFEF8D247E299C071FB8D62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +159,8 @@ B Ольга Зарубина и Александр Серов - Круиз
 magnet:?xt=urn:btih:0A85C44C9C7F51624EA6847ABD1F1DCAFD059628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +187,8 @@ A4 Move That Wigwam(   Читать дальше...   )Жанр: Prog Rock, Psyc
 ```bash
 magnet:?xt=urn:btih:E47247469E0A25306EB49CF100F5E6AFA75D7969
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +217,8 @@ A4 California Nights(   Читать дальше...   )Жанр: JazzПродо
 magnet:?xt=urn:btih:136C5507E207F16C4F3C12B39B404209A033BEA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +245,8 @@ A4 Hugo(   Читать дальше...   )Жанр: Glam Rock, Pop RockПрод
 ```bash
 magnet:?xt=urn:btih:B7A0324F61DB2BA370F3BCF0ED0D30715B8C1122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +275,8 @@ magnet:?xt=urn:btih:B7A0324F61DB2BA370F3BCF0ED0D30715B8C1122
 magnet:?xt=urn:btih:60B6AC8E01730AFBF2D1C1B0635D232EEF54676C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +303,8 @@ Mike Oldfield - Five Miles Out (Deluxe Edition) (2013) 1982 [DTS 5.1 CD-DA|44.1/
 ```bash
 magnet:?xt=urn:btih:31C5FD40A718AC872978FCEC0BD72086D26CA529
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +333,8 @@ Jean-Michel Jarre - Oxygene (1976) [PPCM 5.1|96/24|VinylRip] [upmix] <Electronic
 magnet:?xt=urn:btih:6F6C6B1F6B825B5251B494EAD1F747C035A28517
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +361,8 @@ magnet:?xt=urn:btih:6F6C6B1F6B825B5251B494EAD1F747C035A28517
 ```bash
 magnet:?xt=urn:btih:D3856276722A3F455A78E00D2DCAD31C812BD6DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +391,8 @@ Isao Tomita - Okhotsk Fantasy (2016)  [DTS 4.0 CD-DA|44.1/16|image+cue|SACD] <El
 magnet:?xt=urn:btih:E4563EAF03CA3A4E9C8CA406F8296137F448C16A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +419,8 @@ VA - Dance Hits Collection (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Disco, Eur
 ```bash
 magnet:?xt=urn:btih:8B3C16641CB9BFC79448C46B8450579E0C82AC33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +455,8 @@ B2 Crying Days [04:36](   Читать дальше...   )1976Жанр: Hard Roc
 magnet:?xt=urn:btih:851D9C62DE90E60B757D8F2364EFF7595E12927E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +490,8 @@ Dire Straits - Communiqué (1978) SHM-SACD [DSD 2.0 1bit/2822,4kHz |SACD-R]<rock
 magnet:?xt=urn:btih:BAF89C00BA58A1CFFB3014FFF35760885F8EF3C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +519,8 @@ A4. The Longest Wave (3:32)(   Читать дальше...   )Жанр: Alterna
 magnet:?xt=urn:btih:CAE8D9C2A58EEFBB07C9210F6D6F5930FD78F698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +544,8 @@ Slade - Slade In Flame (1974) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Glam Rock/Rock
 ```bash
 magnet:?xt=urn:btih:1B910A87E95E5C39AEED52011781DDAE2022C47E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +574,8 @@ magnet:?xt=urn:btih:1B910A87E95E5C39AEED52011781DDAE2022C47E
 magnet:?xt=urn:btih:27C908236D3168D01E78E58983A4A44C078CE2CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +602,8 @@ A4 Keep Under Cover(   Читать дальше...   )Жанр: Soft Rock, Pop 
 ```bash
 magnet:?xt=urn:btih:F58EC3C3A96884ACFF9C82E25F0F8B9AFD2A1FE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +632,8 @@ A4. Фраер(   Читать дальше...   )Жанр: ШансонПрод
 magnet:?xt=urn:btih:8C354E53981B27B79F50C89DC76B467A7461E3FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +660,8 @@ A4. Mission(A World Record) (4:26)(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:BA838D758940C33A349AA194B3023C52A9E5973E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +696,8 @@ Stevie Wonder - Солнце моей жизни (1988) [FLAC 2.0 24/192|traks(V
 magnet:?xt=urn:btih:8E2E6334FBB479D2081A94AE7C7ACCE071F762F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +724,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:057AA7BA1444A9D075D2CE7CA0B8301ED5C5D489
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -680,32 +754,7 @@ A4 Stardust(   Читать дальше...   )Жанр: Jazz, Big Band, FunkП�
 magnet:?xt=urn:btih:D35B1332D75F523105AD336B92C50E85600B9C76
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290013   (678339) от 20.03.2019
-
-Randy Travis - Storms Of Life (1986) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_678339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1:
-01. On The Other Hand
-02. The Storms Of Life
-03. My Heart Cracked (But It Did Not Break)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8457D54F402AB5069967B61CB5491C65CA0B88C3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

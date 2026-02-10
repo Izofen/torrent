@@ -19,6 +19,8 @@ Microtopia (2025) [Ru/Multi] (1.0.8bb) Repack Other s
 magnet:?xt=urn:btih:48A8D0D7E83A1C6EE9EF999F45992FE9ED29641D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Music News For Forum vol.072 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:99871E75336803A578F1FA6522D4F1C6747FD93A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:99871E75336803A578F1FA6522D4F1C6747FD93A
 magnet:?xt=urn:btih:14966750B124CEBCA6136C698F91BE3693C6B76F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:14966750B124CEBCA6136C698F91BE3693C6B76F
 ```bash
 magnet:?xt=urn:btih:7C4568349B972DE8F09ACC929DE4E8D8CD728BE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ FanControl – свободно распространяемый продукт,
 magnet:?xt=urn:btih:E5DEF06BF7228118A6865B330D6045B689238372
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Forever 89 - Topos 1.0.0 VST 3 (x64) [En]
 ```bash
 magnet:?xt=urn:btih:40559DCDA00CB3B328C92AEDD02A0D00CBB410C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:7E73F37A14B0D8F9D67825298C646356288A3D15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Paleo Pines (2023) [Ru/Multi] (1.5.22/dlc) License GOG
 magnet:?xt=urn:btih:DDF670C5CEF241742043CD2534F83F51AEBC5E67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ FreeCommander XE - это довольно-таки удобный в работ
 ```bash
 magnet:?xt=urn:btih:26B844E83B2ED5B84A9868D49B7E7ADC0633C14E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:26B844E83B2ED5B84A9868D49B7E7ADC0633C14E
 magnet:?xt=urn:btih:514D613C2E955B050723508EDF81C2F91B0A5331
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Scene Rune
 magnet:?xt=urn:btih:15AF6F85989579535D2AD63C14F002C3EEFA627E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:15AF6F85989579535D2AD63C14F002C3EEFA627E
 ```bash
 magnet:?xt=urn:btih:70443C7688FFB8F9ED74577908328B9C6CB6828D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ VA - 80s Best Disco (2025) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk, R&B, Soul
 magnet:?xt=urn:btih:CC7B9DED93FB226C83EB9AE7EB6ADB194CDA299E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:19766B7EAFE7CA193E7C1044FF4607C3E0731A11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:19766B7EAFE7CA193E7C1044FF4607C3E0731A11
 ```bash
 magnet:?xt=urn:btih:09D4C8798B36DA85E079FA6522CDB027A2AC21A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:09D4C8798B36DA85E079FA6522CDB027A2AC21A0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:09D4C8798B36DA85E079FA6522CDB027A2AC21A0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ South of Midnight (2025) [Ru/Multi] (1.1.0 184977) Repack seleZen
 magnet:?xt=urn:btih:813AFBFC49DCC3FD6AA076B9D3AB5761154E9903
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:813AFBFC49DCC3FD6AA076B9D3AB5761154E9903
 ```bash
 magnet:?xt=urn:btih:B626C6642F4C66F0A693CA81AD1FD581D4AAC172
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:B626C6642F4C66F0A693CA81AD1FD581D4AAC172
 magnet:?xt=urn:btih:D8DADB724EE63698658E1D5A7257A300667B47AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:D8DADB724EE63698658E1D5A7257A300667B47AB
 ```bash
 magnet:?xt=urn:btih:9E7B65EEEDCEDBD82A88D73771852D3B7FBB9CAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ My Friend Pedro - это жестокая смесь дружбы, фантаз�
 magnet:?xt=urn:btih:8A86EA61E4F29FDCD8799C367DEF86DE848A855C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Orcs Must Die! Deathtrap - это безумные бои от третьего 
 ```bash
 magnet:?xt=urn:btih:53D1EF0507BB7EBA4FB6B358D534648BF5A8CD56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:53D1EF0507BB7EBA4FB6B358D534648BF5A8CD56
 magnet:?xt=urn:btih:E67B53077E021304540A9B3084CED788C09C9417
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:E67B53077E021304540A9B3084CED788C09C9417
 magnet:?xt=urn:btih:4D1B54CCF4C26B2414F4BAB525E00638A0395DC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:4D1B54CCF4C26B2414F4BAB525E00638A0395DC4
 ```bash
 magnet:?xt=urn:btih:3C3BBA4B5195AF147DAA36AD893B8FE29B202D88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

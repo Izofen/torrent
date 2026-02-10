@@ -1,3 +1,29 @@
+###  Публикация: 1392945   (768896) от 28.06.2020
+
+Заключённый №1: Восхождение Дэнни Трехо / Inmate #1: The Rise of Danny Trejo (2019) WEB-DLRip [H.264/720p-LQ] [MVO] [AD]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_768896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Актёр Дэнни Трехо, его друзья, родные и коллеги рассказывают, как он проделал удивительный путь от осуждённого правонарушителя до звезды Голливуда...Производство: Канада / Abrupt Films, Score G Production FilmsЖанр: Документальный, биографияРежиссер: Бретт ХарвиАктеры: Дэнни Трехо, Craig Balkam, Jhonnie Harris, Донал Лог, Чич Марин, Max Martinez, Мишель Родригес, Роберт Родригес, Даниэль Трехо, Гилберт ТрехоПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:43:53Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E6571A80FA727B2A4D3B8F89D007BAB76F1D811
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392862   (768906) от 28.06.2020
 
 Космические лоцманы (2005) IPTVRip [H.264]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7FE690CA1EF80297D1C6795485A305D40833DAF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:7FE690CA1EF80297D1C6795485A305D40833DAF5
 magnet:?xt=urn:btih:CD1EAA643ABE3D883885A32D246EBD3641F99388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:CD1EAA643ABE3D883885A32D246EBD3641F99388
 magnet:?xt=urn:btih:5D11E63D680686E6EDDB291CE7CD96C1D739E23C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:5D11E63D680686E6EDDB291CE7CD96C1D739E23C
 ```bash
 magnet:?xt=urn:btih:CAAB0FB4E519798708ADD0C6F12D16AC01CE506C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:CAAB0FB4E519798708ADD0C6F12D16AC01CE506C
 magnet:?xt=urn:btih:A7BC32A2B39A4FBCF5ED713D99604BE123E51225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:A7BC32A2B39A4FBCF5ED713D99604BE123E51225
 ```bash
 magnet:?xt=urn:btih:74723513D1EABFCCD45A6FB09F128037E65F036F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:74723513D1EABFCCD45A6FB09F128037E65F036F
 magnet:?xt=urn:btih:F99EC0E8F6C5B780A686F4A4711FD95A99CEFD17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:F99EC0E8F6C5B780A686F4A4711FD95A99CEFD17
 magnet:?xt=urn:btih:374C69C8191F3CE37DD7D99E37300E1D00CEB9BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:374C69C8191F3CE37DD7D99E37300E1D00CEB9BC
 ```bash
 magnet:?xt=urn:btih:3841EBA062891632675D1FE98F13BF549AF6FE0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:3841EBA062891632675D1FE98F13BF549AF6FE0B
 magnet:?xt=urn:btih:2509946DDDE946CA786F59BE0D7A086C9D48556B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:2509946DDDE946CA786F59BE0D7A086C9D48556B
 magnet:?xt=urn:btih:4B141F14F6E513FA47DBD681F698613F1F73F506
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:4B141F14F6E513FA47DBD681F698613F1F73F506
 ```bash
 magnet:?xt=urn:btih:D70C9010A796FED0463BC30D3EF44A05A8F9CD85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:D70C9010A796FED0463BC30D3EF44A05A8F9CD85
 magnet:?xt=urn:btih:D3E3E25C16982985AD41559C02F2AAE679376B30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:D3E3E25C16982985AD41559C02F2AAE679376B30
 magnet:?xt=urn:btih:98128CB31AE004A84137827AB2E0DC943CFFB11A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:98128CB31AE004A84137827AB2E0DC943CFFB11A
 ```bash
 magnet:?xt=urn:btih:7275FE6E9E55E7C84A9BEAA0EE837F9D3FAE09A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +446,8 @@ magnet:?xt=urn:btih:7275FE6E9E55E7C84A9BEAA0EE837F9D3FAE09A0
 magnet:?xt=urn:btih:D5D513CA1645EAE1C212DB06703B129F9E231F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:D5D513CA1645EAE1C212DB06703B129F9E231F15
 ```bash
 magnet:?xt=urn:btih:05370600A62414A462916DDBBBC34BC2D9F056D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +500,8 @@ magnet:?xt=urn:btih:05370600A62414A462916DDBBBC34BC2D9F056D6
 magnet:?xt=urn:btih:B9E55830C0F143F6D8AC4B99E30F47D16B5B4DBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:B9E55830C0F143F6D8AC4B99E30F47D16B5B4DBF
 ```bash
 magnet:?xt=urn:btih:7BACE052209D2323499EEE721DA4FEE2FC1FD495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:7BACE052209D2323499EEE721DA4FEE2FC1FD495
 magnet:?xt=urn:btih:3E0C3E2C11304BAC3BC370C8A0DBFA585CA3DD6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:3E0C3E2C11304BAC3BC370C8A0DBFA585CA3DD6F
 ```bash
 magnet:?xt=urn:btih:9B06D36CC1ACFFF7EE14728D061B766265EBCF10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:9B06D36CC1ACFFF7EE14728D061B766265EBCF10
 magnet:?xt=urn:btih:AA692A9479194EDEB7E23EB84A3BD5E1E6F1B632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:AA692A9479194EDEB7E23EB84A3BD5E1E6F1B632
 ```bash
 magnet:?xt=urn:btih:CD80A10E920B440C93B29C1A438D162B4A382B41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:CD80A10E920B440C93B29C1A438D162B4A382B41
 magnet:?xt=urn:btih:C45A83B85A2C97B02481326A15F67C26990DA305
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:C45A83B85A2C97B02481326A15F67C26990DA305
 magnet:?xt=urn:btih:8D61AD2E9C616DE5BECF2CF33C1F3BD85565D240
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017041   (769689) от 15.05.2016
-
-Территория зла. Бежать или остаться… (2016) DVB
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_769689.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Территория зла. Бежать или остаться…» Вадима Фефилова — история москвича, который неожиданно для себя и близких вдруг отправился в опаснейшие районы Ирака. Зачем герой пустился в рискованное путешествие, кого он там повстречал и ответы на какие вопросы искал в иракских горах и пустыне?Телекомпания: Россия, AO «Телекомпания НТВ»Жанр: ДокументальныйПродолжительность: 00:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B062254A1A1A27083BE56654A139C97CD155E1BB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

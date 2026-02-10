@@ -19,6 +19,8 @@ Transformers: Fall of Cybertron (2012) [Ru/Multi] (1.0/dlc) Repack FitGirl
 magnet:?xt=urn:btih:B77F53787FB23F75BCF67EF475608F0125149470
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ ExoCross – спортивный гоночный симулятор с про�
 ```bash
 magnet:?xt=urn:btih:3F70DE8B22D7B48F53AFFDA541B115BEE09853AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15667197/dlc) Repack Other s
 magnet:?xt=urn:btih:218C611D659DEB7530DFC0E4ABB033B47F43C719
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Subnautica – это своеобразная и удивительная ко�
 ```bash
 magnet:?xt=urn:btih:B667279723F520ED36A99128B1D85D758B4F5278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Crysis 3 (2013) [Ru/En] (1.3) Repack dixen18
 magnet:?xt=urn:btih:B5802AF5D5538C9A8750E9599A602F6D7587B931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Plucky Squire - это очаровательная экшен-адвенч�
 ```bash
 magnet:?xt=urn:btih:C83529A12474F7D9DF867014E1D9AEBC7BAB5BAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Dawn of the Monsters (2022) [Multi] (1.03/dlc) License GOG
 magnet:?xt=urn:btih:A93345BA4520ACF86E80BCA95DD7DB2F522935A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Kingdom Rush Vengeance – это стратегия в реальном вре�
 ```bash
 magnet:?xt=urn:btih:95B14FDCE63766C419A76A2231B42D7E953C7E97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Plucky Squire - это очаровательная экшен-адвенч�
 magnet:?xt=urn:btih:7EE67F1C338BD3DD073322AE365EF1BAD5EBE6EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Chains of Fury (2024) [Ru/Multi] (1.0.0.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:ACD87D8C47D0B1366C0BDA17B034FD4AA74E6E94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Far Cry 4 (2014) [Ru/Multi] (1.10/dlc) Repack dixen18
 magnet:?xt=urn:btih:E4632B52417CA9803258F17F01EEFE1CC2CC3A4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Far Cry 3: Blood Dragon – это крутейший кибер-шутер, д�
 ```bash
 magnet:?xt=urn:btih:9DFF46C506681EE1337F9CADFE14413A2D543D54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Everspace 2 (2021) [Ru/Multi] (1.3.42909/dlc) Repack FitGirl [Digital Deluxe Bun
 magnet:?xt=urn:btih:8DFC4EAF2C3E196373DE55FBEDF15799ED273220
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Chains of Fury (2024) [Ru/Multi] (1.0.0.2) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:C36AA41C18171D67EAA68AA79CB0799A580FA063
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Abnormal1999:The Compass and the Sand - это загадочная голово
 magnet:?xt=urn:btih:03EA3732CCE2A4619266FF8E36B2161B3FC8E657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Edge of Sanity - психологический хоррор на выживан
 ```bash
 magnet:?xt=urn:btih:F0996ED62E993C6B77987D88B60CBDAF7B94ABD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Frostpunk 2 открывает новые грани жанра выживани
 magnet:?xt=urn:btih:124F29C10EF2B611A725C1951686E7E3E69B6F65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Everspace 2 (2021) [Ru/Multi] (1.3.42909/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:8C78D5F214F07B3ADEEEB2F93B312848E2D3BA76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Ascent - экшн-RPG в духе киберпанка с режимами �
 magnet:?xt=urn:btih:73374A86543EA43065F48B4D2475C46B3F33BB34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Borderlands (2019) [Ru/En] (1.5.0/dlc) Repack xatab [Game of the Year Enhanced]
 ```bash
 magnet:?xt=urn:btih:07BCFC7245878865467F5C2F7BCF5E6C5A5682EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Dicefolk представляет собой тактическую игру в 
 magnet:?xt=urn:btih:43D486D42FC46D90CB382703C3B4ECE7D7C7976A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Fears to Fathom: Woodbury Getaway (2024) [Ru/Multi] (1.3/1.8) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7920D7C3884E5E3929DE6D69C1D4EBCAA13C9353
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.002.26228) Repack Other s
 magnet:?xt=urn:btih:4217A894FA008D0061C22359FB952E42E02D34C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Tactical Breach Wizards – тактическое ролевое приключ
 ```bash
 magnet:?xt=urn:btih:FD26D0BAC000DC5178F2596E8117844B3D0C9902
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Hollow Knight (2017) [Ru/Multi] (1.5.78.11833/dlc) Repack dixen18
 magnet:?xt=urn:btih:DB29A96ABC6EE7711BF226589AFF87A22E8C16EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Motel Manager Simulator предлагает игрокам встать на м
 ```bash
 magnet:?xt=urn:btih:D1EAD8EE83B9F41ECB2F1613CCF8DA8E8DCC0DD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

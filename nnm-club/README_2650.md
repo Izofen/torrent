@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:60A97B1F3D4B17AFB587E016232ABD14F2E87C8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Pro Sound Effects Library представляет еще один набор и
 magnet:?xt=urn:btih:6C8F014EFCD20856E9AD9FD4304A4F263B88FA5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:6C8F014EFCD20856E9AD9FD4304A4F263B88FA5A
 ```bash
 magnet:?xt=urn:btih:FE65752853ECE9799A5C45291F304FA614715688
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:FE65752853ECE9799A5C45291F304FA614715688
 magnet:?xt=urn:btih:A925019686AF332BC0DA1DAD2BCD2B5520979A6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:A925019686AF332BC0DA1DAD2BCD2B5520979A6A
 magnet:?xt=urn:btih:68549060061B4B2B5673B30434DF356F9991686F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:68549060061B4B2B5673B30434DF356F9991686F
 ```bash
 magnet:?xt=urn:btih:3ED003D39960CA52808F579FD70D0C058CE4358E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ GPS Локер создан для того чтоб не терять фикс�
 magnet:?xt=urn:btih:C7903E061B825B4E1B9DDEE5AFFBFB61179E1D14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:C7903E061B825B4E1B9DDEE5AFFBFB61179E1D14
 ```bash
 magnet:?xt=urn:btih:D5CE0AEC68E6DC6C9C2295F648EF816AA7BA7601
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Karing - Утилита прокси с простым и мощным инте�
 magnet:?xt=urn:btih:D3E4ACDBFCD514D17688236F5A7DFABD422ABF56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:D3E4ACDBFCD514D17688236F5A7DFABD422ABF56
 magnet:?xt=urn:btih:72B3C7D7F46E6D81BF80B7D2E24EED3BC58160B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ PictureThis - Plant Identification v5.1.4 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:C7B37CCBA3BAD606428A4EAA62777C5ABC24F6B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:C7B37CCBA3BAD606428A4EAA62777C5ABC24F6B7
 ```bash
 magnet:?xt=urn:btih:8E28A7AF7409E185ED04753AD04880A082E119D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ EmEditor Professional - профессиональная версия мощно
 magnet:?xt=urn:btih:71B3330F0B3D5D5B06DAA8C8E18020C9EEF62975
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:71B3330F0B3D5D5B06DAA8C8E18020C9EEF62975
 ```bash
 magnet:?xt=urn:btih:D8D51BA2C64CF3A03FC8860102AEFA36F95AF1BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:D8D51BA2C64CF3A03FC8860102AEFA36F95AF1BC
 magnet:?xt=urn:btih:64BF08289F7F59959ED4336B0586EDD29F84A1F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Rock Identifier - Stone ID v2.3.51 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:99BE56431E0CBD6AA39162E63B71848524A6D590
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ VA - Самые новые песни 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:C2697273EB584C4C5361DC6C99A80C9FF059330A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:C2697273EB584C4C5361DC6C99A80C9FF059330A
 ```bash
 magnet:?xt=urn:btih:0BD2A4EFD7CF1A8C2F672107B550AD815F0DC302
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ Lacrimosa - Lament (2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Dark Wave
 magnet:?xt=urn:btih:FF9C0D64C98BE107B7A89178A96EFBDEDF44344C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:FF9C0D64C98BE107B7A89178A96EFBDEDF44344C
 magnet:?xt=urn:btih:CDE385B6444D2C2F31A16A482052D39A00619DF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:2E8DA51DB88F47F56710803BFFC180E103801189
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ VA - Armin van Buuren - A State Of Trance 1215 (2025) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:5C736AC30451A00692C648CADFE54EDD94CC2F05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ Zombie Zombie - Funk Kraut (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro
 ```bash
 magnet:?xt=urn:btih:BC33762E63930E343D8F05425CA4D26B9F8FB0A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ VA - Best of Trippy Code Chill House Vol.1 (2025) [MP3|320 Kbps] <Progressive Ho
 magnet:?xt=urn:btih:9E5CAE5210122DD5F4433C112194C14FC8D00DFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ VA - TRIPPY CODE Best of Vol.01 (2025) [MP3|320 Kbps] <Progressive House, Melodi
 magnet:?xt=urn:btih:8BC73C3787580F1B5CFA715B86EBC6913D935F5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ Prayuth — это современный шрифт без засечек, со
 ```bash
 magnet:?xt=urn:btih:6FBCC1268AFB3FACE1F8163169FDE618EE060AE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

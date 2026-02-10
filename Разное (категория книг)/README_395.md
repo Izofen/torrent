@@ -1,3 +1,29 @@
+###  Публикация: 918102   (588634) от 13.07.2015
+
+Брайан Солис | Макротренды в бизнесе. Как стать компанией новой волны, создавая эмоции, привлекающие клиентов (2014) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга не просто исследует существующие тенденции и теории — она открывает читателю новый путь к трансформации бизнеса. Ставя на одну ступень потребительский опыт и инновационное лидерство, Брайан Солис подробно объясняет, как повысить эффективность бизнеса и степень вовлеченности потребителей, а также достичь желаемых взаимоотношений между компанией и ее клиентами. (   Читать дальше...   )Жанр: БизнесФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DED519A3C2C6266F4EBE0E2C208E4F2E23DA311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917713   (588639) от 13.07.2015
 
 П. Александров | Дискусы. Атлас пород (2011) [PDF] [En]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:2D8680BD4CE9FC65281A81D21F878F1D8DC7CC7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:2D8680BD4CE9FC65281A81D21F878F1D8DC7CC7D
 magnet:?xt=urn:btih:B986A1DB91C7C369E27FB30B7A50BEF2703D5595
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:B986A1DB91C7C369E27FB30B7A50BEF2703D5595
 ```bash
 magnet:?xt=urn:btih:24B430E2AC4189DEC86A2B33B4850F2452CA4EB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:24B430E2AC4189DEC86A2B33B4850F2452CA4EB6
 magnet:?xt=urn:btih:5077F701FD3BA2821CCB5A1BF108BB54609C181D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +156,8 @@ magnet:?xt=urn:btih:5077F701FD3BA2821CCB5A1BF108BB54609C181D
 magnet:?xt=urn:btih:5EE3E30F69F22F077D407804E20200B0FDFEA805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +181,8 @@ magnet:?xt=urn:btih:5EE3E30F69F22F077D407804E20200B0FDFEA805
 ```bash
 magnet:?xt=urn:btih:9D2ECE758402F62EE1096A32D0F01A60A4A71F39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:9D2ECE758402F62EE1096A32D0F01A60A4A71F39
 magnet:?xt=urn:btih:7053795720F400FF4AB4F8A382B653797C4321B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:7053795720F400FF4AB4F8A382B653797C4321B6
 ```bash
 magnet:?xt=urn:btih:5CA6D9F929D7A8C3EDD82186F6B079E5ABF03148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:5CA6D9F929D7A8C3EDD82186F6B079E5ABF03148
 magnet:?xt=urn:btih:D484A3A9CDA0969BC0717193C138B48FA6937D6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:D484A3A9CDA0969BC0717193C138B48FA6937D6F
 ```bash
 magnet:?xt=urn:btih:FBBE7125485C14D17D728E66745BE032587B46EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:FBBE7125485C14D17D728E66745BE032587B46EA
 magnet:?xt=urn:btih:A61CD862DDDA43A9C7E5C1C4F1472E28FD505685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:A61CD862DDDA43A9C7E5C1C4F1472E28FD505685
 magnet:?xt=urn:btih:2B487DEFFFF73CDC4BB86C23ED39407A9FC37074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:2B487DEFFFF73CDC4BB86C23ED39407A9FC37074
 ```bash
 magnet:?xt=urn:btih:6E7DA296B13B5E789A0CD99B9115C7703779A3E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:6E7DA296B13B5E789A0CD99B9115C7703779A3E4
 magnet:?xt=urn:btih:1ECCD57E9EB6CA78E609CA56C8E44426D99A0239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:1ECCD57E9EB6CA78E609CA56C8E44426D99A0239
 ```bash
 magnet:?xt=urn:btih:D0E6E8B98E1DEB9BC5F02D286B467CA08D99F70D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:D0E6E8B98E1DEB9BC5F02D286B467CA08D99F70D
 magnet:?xt=urn:btih:53F34051ED12558F61F4D406C302D38CC9BDFDB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:53F34051ED12558F61F4D406C302D38CC9BDFDB1
 ```bash
 magnet:?xt=urn:btih:9A5E2C740679199D3C06B240DC9E60B194F4E7A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:9A5E2C740679199D3C06B240DC9E60B194F4E7A7
 magnet:?xt=urn:btih:409F1B5E5BAB4EB8A32CE50C858EF5B027E3467B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:409F1B5E5BAB4EB8A32CE50C858EF5B027E3467B
 ```bash
 magnet:?xt=urn:btih:C94ECDCFDF17288FD249844A236389D82C7F6F77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:C94ECDCFDF17288FD249844A236389D82C7F6F77
 magnet:?xt=urn:btih:BA5C6F6E16E3797E3028FB3EB53FE569E44EBD6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:BA5C6F6E16E3797E3028FB3EB53FE569E44EBD6C
 ```bash
 magnet:?xt=urn:btih:28D0B923163AC959026BADEF4C796CB9FDA8D945
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:28D0B923163AC959026BADEF4C796CB9FDA8D945
 magnet:?xt=urn:btih:6DDFE3802B0DF1916381B19F0786C78ED8858E13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:6DDFE3802B0DF1916381B19F0786C78ED8858E13
 ```bash
 magnet:?xt=urn:btih:6D608E7835E278C50F340BBD34AC5F4AF59505BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:6D608E7835E278C50F340BBD34AC5F4AF59505BC
 magnet:?xt=urn:btih:8728115367DB01DE12003CE3BA87010D4D556D4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:8728115367DB01DE12003CE3BA87010D4D556D4F
 magnet:?xt=urn:btih:069A7D3000C9F41E96DDF542E65B571DD854FE0D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916972   (589832) от 10.07.2015
-
-Михаил Казанцев | Школа B2B-продаж. От понимания ситуации клиента к сделке (2015) [PDF, EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_589832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – первое системное и последовательное пособие по B2B-продажам. Никогда раньше эти продажи не были выделены как самостоятельный тип сделок, требующих особого подхода и особых навыков продавцов. Между тем продажи B2B коренным образом отличаются от продаж B2C. Из этой книги вы узнаете, что такое ситуационный подход в продажах и как его успешно применять, научитесь (   Читать дальше...   )Жанр: БизнесФормат: PDF, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51610E0011D08A9FDAEBDCE7E487A5A0CD057375
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

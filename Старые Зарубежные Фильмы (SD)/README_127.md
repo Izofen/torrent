@@ -1,28 +1,3 @@
-###  Публикация: 384280   (484782) от 05.09.2011
-
-Голубой гром / Blue Thunder (1982) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_484782.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Голубой гром» — это чудо-вертолет, оснащенный супертехникой. Он разработан для того, чтобы надежно оградить Лос-Анджелес от террористов. Но пилот Мёрфи узнает нечто такое, что ему знать вовсе не следовало.
-   И вот уже вертолётчику самому приходится защищаться, и единственный путь к спасению — разоблачить высокопоставленных заговорщиков и их наймитов.Жанр: Боевик, Драма, КриминалРежиссер: Джон БэдэмАктеры: Рой Шайдер, Малкольм МакДауэлл, Уоррен Оутс, Кэнди Кларк, Дэниел Стерн, Пол Роублинг, Дэвид Шайнер, Джо Сантос, Эд Бернард, Джейсон БернардПеревод: Русский профессиональный (многоголосый, закадровый)Продолжительность: 01:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8182040609CC34170C18EA1CD5E70846D2512C2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937922   (485120) от 16.09.2015
 
 Призывница Гретта / Eine Armee Gretchen (1973) BDRip [H.264] [AVO]
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:B8182040609CC34170C18EA1CD5E70846D2512C2
 ```bash
 magnet:?xt=urn:btih:DB5401A4B95774B65288ABB0A61254B9B68BBEFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +44,8 @@ magnet:?xt=urn:btih:DB5401A4B95774B65288ABB0A61254B9B68BBEFE
 ```bash
 magnet:?xt=urn:btih:BAFBC25A3120D0E3B4C6F3CB40BD9E2B66D5B35E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +72,8 @@ magnet:?xt=urn:btih:BAFBC25A3120D0E3B4C6F3CB40BD9E2B66D5B35E
 magnet:?xt=urn:btih:48E8343400AF5CA04243800A67A7B7FDB2AD4FC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +97,8 @@ magnet:?xt=urn:btih:48E8343400AF5CA04243800A67A7B7FDB2AD4FC9
 ```bash
 magnet:?xt=urn:btih:446E991ACEA7AD9F6C6F1F8EDE52BD63D77940F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +124,8 @@ magnet:?xt=urn:btih:446E991ACEA7AD9F6C6F1F8EDE52BD63D77940F0
 magnet:?xt=urn:btih:CFE0E69844A2943550BF9E0486AE237B02AFF5E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +149,8 @@ magnet:?xt=urn:btih:CFE0E69844A2943550BF9E0486AE237B02AFF5E2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +177,8 @@ magnet:?xt=urn:btih:CFE0E69844A2943550BF9E0486AE237B02AFF5E2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +203,8 @@ magnet:?xt=urn:btih:CFE0E69844A2943550BF9E0486AE237B02AFF5E2
 magnet:?xt=urn:btih:E04F9CC1B7CC8F63C7BBBCC9F592441DA72431DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +228,8 @@ magnet:?xt=urn:btih:E04F9CC1B7CC8F63C7BBBCC9F592441DA72431DF
 ```bash
 magnet:?xt=urn:btih:C74DBC222D1FC10015247E811D321956A3A36670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +257,8 @@ magnet:?xt=urn:btih:C74DBC222D1FC10015247E811D321956A3A36670
 magnet:?xt=urn:btih:BADFABC59E94E6852CCEA5091703D208CB4C93EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +282,8 @@ magnet:?xt=urn:btih:BADFABC59E94E6852CCEA5091703D208CB4C93EC
 ```bash
 magnet:?xt=urn:btih:A5080337790CB2DFBDDAD39D5AE65A4E9FEB8CF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +309,8 @@ magnet:?xt=urn:btih:A5080337790CB2DFBDDAD39D5AE65A4E9FEB8CF2
 magnet:?xt=urn:btih:2C87804BAAC084800DD5AA4AFFC54A43279F54E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +334,8 @@ magnet:?xt=urn:btih:2C87804BAAC084800DD5AA4AFFC54A43279F54E9
 ```bash
 magnet:?xt=urn:btih:614A65CFAC7F9DE449BFC920990672EB2CF62425
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +361,8 @@ magnet:?xt=urn:btih:614A65CFAC7F9DE449BFC920990672EB2CF62425
 magnet:?xt=urn:btih:9F0736756FC284E675F24265BF7A04B0AA58FEC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +386,8 @@ magnet:?xt=urn:btih:9F0736756FC284E675F24265BF7A04B0AA58FEC3
 ```bash
 magnet:?xt=urn:btih:3BFD547825B10DA962D106E58EF6D968473C2ADD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +413,8 @@ magnet:?xt=urn:btih:3BFD547825B10DA962D106E58EF6D968473C2ADD
 magnet:?xt=urn:btih:8B03E8649533092AED1FC5B3311D0CD18A79F550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +438,8 @@ magnet:?xt=urn:btih:8B03E8649533092AED1FC5B3311D0CD18A79F550
 ```bash
 magnet:?xt=urn:btih:C1EC45AC65AC69F721BD3E56FBF1DEBF78A69395
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +465,8 @@ magnet:?xt=urn:btih:C1EC45AC65AC69F721BD3E56FBF1DEBF78A69395
 magnet:?xt=urn:btih:406C266A9C3F1648E067D9ED5C53123CA19A69DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +491,8 @@ magnet:?xt=urn:btih:406C266A9C3F1648E067D9ED5C53123CA19A69DF
 magnet:?xt=urn:btih:D78071867700D5E2070CBE918541B4103409C050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +516,8 @@ magnet:?xt=urn:btih:D78071867700D5E2070CBE918541B4103409C050
 ```bash
 magnet:?xt=urn:btih:EB67CF4CB599DFA5220D52A9DE7A75F37F9ADAAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +545,8 @@ magnet:?xt=urn:btih:EB67CF4CB599DFA5220D52A9DE7A75F37F9ADAAD
 magnet:?xt=urn:btih:4C944D3468086E47C116F4391A5B14ECF8AD0A59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +570,8 @@ magnet:?xt=urn:btih:4C944D3468086E47C116F4391A5B14ECF8AD0A59
 ```bash
 magnet:?xt=urn:btih:30C7399361663CBAA15DCBDF63D391F1823D8E54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +597,8 @@ magnet:?xt=urn:btih:30C7399361663CBAA15DCBDF63D391F1823D8E54
 magnet:?xt=urn:btih:C0B213907CAC4C386D9F238CE736AFE6C60CDB97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +622,8 @@ magnet:?xt=urn:btih:C0B213907CAC4C386D9F238CE736AFE6C60CDB97
 ```bash
 magnet:?xt=urn:btih:CF0A0E45922B7E3C8F202935E01F0E51CEC8A37F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +649,34 @@ magnet:?xt=urn:btih:CF0A0E45922B7E3C8F202935E01F0E51CEC8A37F
 ```bash
 magnet:?xt=urn:btih:D7B1A9AFFE72CF05519F9DC7231613977AB218DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 382936   (490914) от 02.09.2011
+
+Битлджюс (Битлджус) / Beetle Juice (1988) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_490914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что сделает пара непрофессиональных привидений, когда их добрую Новую Англию наводнят снобы из Нью-Йорка? Они наймут частного «био-экзорциста», чтобы изгнать пришельцев. И результат превзойдет все ожидания!Производство: США /  The Geffen CompanyЖанр: фэнтези, комедияРежиссер: Тим БёртонАктеры: Алек Болдуин, Джина Дэвис, Майкл Китон, Вайнона Райдер, Энни МакЭнро, Морис Пейдж, Хьюго Стэнджер, Рэйчел Миттелман, Кэтрин О’Хара, Марк Эттлингер, Джеффри Джонс, Гленн Шэдикс, Патрис Мартинез, Синди Дэйли, Дуглас ТернерПеревод: ДублированныйПродолжительность: 01:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99470826C4028BEAD739D92484824B5197E4530E
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

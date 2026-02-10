@@ -19,6 +19,8 @@ BBC: Дикая Патагония / Wild Patagonia (2015) BDRip [H.264/720p] (�
 magnet:?xt=urn:btih:4117A2B5E8DAE8078FB69CFD64E33D218BC033BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:4117A2B5E8DAE8078FB69CFD64E33D218BC033BE
 ```bash
 magnet:?xt=urn:btih:DD654D531921A4AF24D2D41E3FD43D5FB3E4BC66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:DD654D531921A4AF24D2D41E3FD43D5FB3E4BC66
 magnet:?xt=urn:btih:89E37708371888910852786654EEBD22D54A691E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 ```bash
 magnet:?xt=urn:btih:05E65458B9B29BCDAA4BDE16440FB9177631B18E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC: Армада. Неизвестная история / Armada: The Untold St
 magnet:?xt=urn:btih:91FB7DC42FE1B64FC4C0BA30D6BA24C79D4FF194
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BBC: Планета Земля 2 / Planet Earth II (2016) HDRip (серии 1-6 
 ```bash
 magnet:?xt=urn:btih:FBA7064AF0782103020DC8073BD26B16EEE39EDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ BBC. Как действуют наркотики / How Drugs Work (2011) HDTVRi
 magnet:?xt=urn:btih:CA1EF81B5A27708AB8F56BD1D692CB09C7E6D50D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ BBC. Белая королева и ее соперницы / The Real White Que
 ```bash
 magnet:?xt=urn:btih:83EB21A1D24EB3BE249CF2C22013B734BA1F8CDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ BBC: Инстинкт человека (Человеческие инстинк�
 magnet:?xt=urn:btih:2E8CE6E72E8C4779EB68F25D4A5F83EC8A634467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ BBC. Африканские Драконовы горы / BBC: Africa's Dragon M
 ```bash
 magnet:?xt=urn:btih:B0C4CE9C6EDDF67861AAA31CD0E979E06D9F0B5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ BBC: День Д: Последние слова / D-Day: Last Words (D-Day in 14
 magnet:?xt=urn:btih:2E65C85F1A7F1D70C8908ED91368C84A61C5CEF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ BBC. Космическая гонка 21 века / The 21st Century Race for S
 ```bash
 magnet:?xt=urn:btih:9C86BC96175AA8663D3D532D11CCAD12727DEE13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ BBC. Скрытые вершины (Заповедник Бен-Эй) / The Hidd
 magnet:?xt=urn:btih:2D25712ED7D15958EFF917173C8212E53FE5AFF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ BBC: Переживём ли мы мегацунами? / Could We Survive a Meg
 ```bash
 magnet:?xt=urn:btih:37E4382D59AF8C89F16FD4E192CEA8C6677EDFC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ BBC: Невероятный Гудвин. Серия №4 / The Incredible Mr Go
 magnet:?xt=urn:btih:C2BFBB7826B169419A811F07911B9B37A9987F39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ BBC: Детские хирурги: совершая чудеса / Baby Surgeon
 ```bash
 magnet:?xt=urn:btih:288B6FC3BE656FB0330CE24F36E061D2C8FC54AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ BBC: Жизнь птиц / The Life of Birds (1998) DVDRip (сезон 1, сер
 magnet:?xt=urn:btih:823CDE158C7D08A5052B75DE4D5F3377E119A8D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:823CDE158C7D08A5052B75DE4D5F3377E119A8D0
 ```bash
 magnet:?xt=urn:btih:479A9EB814EBBBF020C652BEE096C351D611DFD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ BBC. Как устроены шикарные отели. Эм-Джи-Эм (Ма
 magnet:?xt=urn:btih:D50C4E709F73C3E1CC1644318D9E8F0CF1E31F4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ BBC. Панорама. Amazon: Что они знают о нас / Amazon: What
 ```bash
 magnet:?xt=urn:btih:3FCBC14254D02FF84645657A8FB489C6EADEDD40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ BBC: Биологические часы - как они работают? / Bod
 magnet:?xt=urn:btih:01DE1B9C007A1BA0BE2743B695958328D2D909A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ BBC: Горизонт. Как построить машину времени / H
 ```bash
 magnet:?xt=urn:btih:EF689A89F33123670E2877ADDAA02DB5F73974CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ BBC: Тигры в доме / Tigers About the House (2014) HDTVRip (Сезон�
 magnet:?xt=urn:btih:DC7E56C60BFBF63DED5D1DBE7C52D33A0F274F4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ BBC: Египет. Тайны, скрытые под землей / Egypt: What 
 ```bash
 magnet:?xt=urn:btih:F9DBB286B873A856074DC95474DAB740BBC7C1A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ BBC. Чувствуешь ли ты это - Как танцевальная м�
 magnet:?xt=urn:btih:5F11FDE87FA4114BB141225863A5221C2706AA3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:5F11FDE87FA4114BB141225863A5221C2706AA3B
 ```bash
 magnet:?xt=urn:btih:B14EBCED85C8F128FFA0AD930D8C8A395E00CAED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

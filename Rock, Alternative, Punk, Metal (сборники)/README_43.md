@@ -22,6 +22,8 @@ VA - Rebel Rock Indie (Vol.02) (2021) [MP3|320 Kbps] <Rock Indie, Alternative>
 magnet:?xt=urn:btih:25D5457B2E7D6675190FF56DF186F1DC656B6863
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Sedativ - Sedativ (2002) [MP3|256 Kbps] <Post Punk, Electronic>
 magnet:?xt=urn:btih:6A8A10EF4EB253D19A8AD2FA664018B3B4B66CEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ VA - Around The Rock (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:6A06D7A3C76354E56B6C495C5662CE41E8E56CE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -106,6 +112,8 @@ Hits of My Soul - сборник электронной и инструмент�
 magnet:?xt=urn:btih:8B793BE8131D2528F29EC3B5DACA520AF45E3FB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -133,6 +141,8 @@ George Harrison - The Platinum Collection (2021) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:60EBAA8631163F4CB5B08CA1F879C0E7DB803E00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Ringo Starr - The Platinum Collection (2021) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:33A8C2CCB5C01D4916A2D81C12E19FCFA0506787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ Nazareth - The Platinum Collection (2021) 2CD [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:9570FA0AFE8546713A5A0040B4F89A59DA8D6A0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ VA - 80s Rock Hits (2021) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:FD259981E2811FEE005B38D4B5AA1C98519BA0B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +255,8 @@ VA - Rock Blues: Gold Classic (2016) [MP3|320 кб/с] <Blues Rock, Country>
 magnet:?xt=urn:btih:C51C681BE3311F2219FED7638CEBF185BD830EE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +284,8 @@ VA - Blues Rock Drive 8  (2020) от DON Music [MP3|320 Kbps] <Rock, Blues Rock,
 magnet:?xt=urn:btih:8CE07926F4795BA86F51B0A72150275E76456761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +312,8 @@ VA - Мой любимый Русский Рок. Коллекция (2017) [MP3
 ```bash
 magnet:?xt=urn:btih:0298E7578CFAF0B8727F87FF713F4C82E4459A2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +345,8 @@ VA - Новый РусРок. То, что не купишь в магазине
 magnet:?xt=urn:btih:05B95EDEC84A8E7B693A233D77F2E77656A4CB16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +373,8 @@ VA - Rock Drive 9  (2020) от DON Music [MP3|320 Kbps] <Hard Rock, Rock, Blues 
 ```bash
 magnet:?xt=urn:btih:E12E41680353986BF360D1A1421F94DF85CC4D62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +403,8 @@ VA - Русский Рок. Лучшее 2016 (2017) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:EE65D55CCC5E7F6EB3B872C66F19A791A43657D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +431,8 @@ VA - Live For Today: Classic Rock 9 (2016) [MP3|320 кб/с] <Classic Rock>
 ```bash
 magnet:?xt=urn:btih:3D584A4633384A00E1CFBE74D99A2C103E5CA075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +461,8 @@ VA - Рок впрок 5 (2016) [MP3|320 kbps] <Рок, Поп-Рок>
 magnet:?xt=urn:btih:0E1A4A08D1906D64DB2C4D1C0F1FA02F96E2E509
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +489,8 @@ magnet:?xt=urn:btih:0E1A4A08D1906D64DB2C4D1C0F1FA02F96E2E509
 ```bash
 magnet:?xt=urn:btih:E11E170CC6FC87076C7DF9AF308E3E5E63244AA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +519,8 @@ VA - Rock Archive (2020) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:750D064D0FD012F9302A7A359AD8BDC42D611514
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +547,8 @@ VA - Alterportal HITS 16 Vol. 89 - January (2016) [MP3|192-320 кб/с] <Alterna
 ```bash
 magnet:?xt=urn:btih:5F7B901C1A01BA6D32F71B0FBF63764D42CCC7AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +577,8 @@ VA - Are You Ready? (Vol.22) (2016) [MP3|128 - 320 кб/с] <Nu Metal>
 magnet:?xt=urn:btih:2DFBEFF421FA87D817CBEDA61104DE5A53A88D59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +605,8 @@ VA - The Best Russian Rock Hits - 1 (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:B1D51539D371C0B80232B74F3B102273689A7E49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +635,8 @@ VA - Best of Romantic Rock (2017) [MP3|320 Kbps] <Rock, Metal>
 magnet:?xt=urn:btih:763C1BFC3F85CDD9395D4499254DFCC07FC6A6A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +663,8 @@ VA - Yet Another 100 Melodic Rock Anthems (2015) [MP3|320 кб/с] <Rock, Metal>
 ```bash
 magnet:?xt=urn:btih:BA6B49C65FCDA6B507A233EBA8E0F655FC69A675
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +693,8 @@ VA - Power Metal Ballads 21 (2016) [MP3|224 кб/с] <Ballads, Heavy, Sympho, Gl
 magnet:?xt=urn:btih:F191B630B14E2178AE30BF47379CAD9CA5A8FDAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +722,8 @@ Nazareth - 25 Best Songs (2016) [MP3|~245 кб/с (V0)] <Hard Rock>
 magnet:?xt=urn:btih:7EC8724D2D4B0FBF94314AB48FE279F41D4DF5FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,6 +750,8 @@ David Bowie - 25 Best Songs (2016) [MP3|~245 кб/с (V0)] <Art Rock>
 ```bash
 magnet:?xt=urn:btih:0556330202FC2E0782ECC129BFA939795008E568
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

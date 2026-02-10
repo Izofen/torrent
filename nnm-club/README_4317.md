@@ -19,6 +19,8 @@ iA Writer 7.0.0 [Multi/Ru]
 magnet:?xt=urn:btih:44A624D4EA2E4683984C0C7173B31E90EB40B42E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Jazzamor - 6 Альбомов (2002 - 2011) [MP3|320 кб/с]<Jazz Lounge>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ Bazanova Art, Ольга Базанова | Тёплые пейзажи. Тар�
 magnet:?xt=urn:btih:5DB297B0188C30AA682D002A4C1D8035A75DBB35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:5DB297B0188C30AA682D002A4C1D8035A75DBB35
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ VA - Armada Music - 20 Years (Remixed) (2023) [MP3|320 Kbps] <Trance, Progressiv
 magnet:?xt=urn:btih:A11DA8FD0F1523702D3A88CD4FAC8D685E9E07E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Baldur's Gate: Dark Alliance [GameCube] [English] [NTSC] (2002)
 magnet:?xt=urn:btih:B338DB5AD403B26B17BEA6984F6980EE9CEDD622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ Background Eraser (InShot Inc.) v2.194.57 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6F015ACAA05194143D7A1B0F4936BC84CCF16D18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:6F015ACAA05194143D7A1B0F4936BC84CCF16D18
 magnet:?xt=urn:btih:AF4348058130E0AB7AF20E166869F1D2674E2381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:AF4348058130E0AB7AF20E166869F1D2674E2381
 magnet:?xt=urn:btih:7CEC296BB29652F51B4099181C57A0468812B2CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:C6AF676D940E746BB2BCC3FD194B0DE52E445434
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:C6AF676D940E746BB2BCC3FD194B0DE52E445434
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ Korolova - Tomorrowland Friendship Mix (2023-11-30) [MP3|320 Kbps] <Progressive 
 magnet:?xt=urn:btih:93C7749E56E17739637F856F428E8108B1E93558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ Immortal - Дискография (1992 - 2009) [FLAC|Losless]<Black Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ Immortal - Дискография (1992 - 2009) [FLAC|Losless]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:15A9F229055070ABD6F2C01B59D373B0862E3EC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ VA - Best of ROAD TRIP Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:C6C65B4FECEDB550F5A2634DEB676CBE38D79050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:88B50DFA4B749A5E2C9DB15021CF6A80643CB26E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:88B50DFA4B749A5E2C9DB15021CF6A80643CB26E
 magnet:?xt=urn:btih:109FBAD313355BF6AE8FF2015080BA367B6EC8F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:109FBAD313355BF6AE8FF2015080BA367B6EC8F5
 ```bash
 magnet:?xt=urn:btih:58736DD89FE91BC0734D0C8EF6D23AD34742962F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:58736DD89FE91BC0734D0C8EF6D23AD34742962F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:58736DD89FE91BC0734D0C8EF6D23AD34742962F
 ```bash
 magnet:?xt=urn:btih:D77A60667F27629BC4C431290F7F20036E9B1D6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:D77A60667F27629BC4C431290F7F20036E9B1D6D
 magnet:?xt=urn:btih:01A1A5FE073C39FC6C6EFAEFB05A53207F603A85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:01A1A5FE073C39FC6C6EFAEFB05A53207F603A85
 magnet:?xt=urn:btih:1D27508B5C0585C3F7EA99828F87B827EB6E3508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ VA- Wien, 1850 Dances - Strauss, Diabelli, Lanner: Michael Dittrich (1993) [FLAC
 ```bash
 magnet:?xt=urn:btih:40F174617FDF56C2ADA8D468376E56408DA812A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ The Alan Parsons Project - The Instrumental Works (1988) Reissue, 2023, Arista -
 magnet:?xt=urn:btih:96D876ACD90647D6F79B0C72691E9644C62C4438
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:96D876ACD90647D6F79B0C72691E9644C62C4438
 magnet:?xt=urn:btih:0F9B0EE5762328CC2407BB1387B1BBF66425E84D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:0F9B0EE5762328CC2407BB1387B1BBF66425E84D
 ```bash
 magnet:?xt=urn:btih:46C37D1CF4CD395A6FA844B90851304A7F180670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

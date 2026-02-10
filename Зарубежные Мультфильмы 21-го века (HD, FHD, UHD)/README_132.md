@@ -1,27 +1,3 @@
-###  Публикация: 1349439   (1004430) от 01.01.2020
-
-Рождественская история / A Christmas Carol (2009) BDRip [H.264/720p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это викторианская поучительная история о старом и ожесточившемся скупердяе Эбенезере Скрудже, который в течение одной ночи переживает испытание глубокого очищения. Мистер Скрудж — финансист/денежный меняла, который посвятил всю свою жизнь накоплению богатства. Он презирает всё, кроме денег, включая дружбу, любовь и рождественские праздники.Производство: США / Walt Disney Pictures, ImageMovers Digital, ImageMoversЖанр: мультфильм, фэнтези, драма, семейныйРежиссер: Роберт ЗемекисПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 01:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:039E374A683EEDA832E341AA11D76962F3BAB73B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484799   (1005779) от 22.07.2021
 
 Охотники на троллей: Восстание титанов / Trollhunters: Rise of the Titans (2021) WEB-DL [H.264/720p]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:039E374A683EEDA832E341AA11D76962F3BAB73B
 ```bash
 magnet:?xt=urn:btih:B1BF5EF8323F754A54118C0613DEE473E698508C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:B1BF5EF8323F754A54118C0613DEE473E698508C
 magnet:?xt=urn:btih:E475EEC56716EC0E9F1FD9F4EFACD58ED26266F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:E475EEC56716EC0E9F1FD9F4EFACD58ED26266F5
 ```bash
 magnet:?xt=urn:btih:9440868FE12F8D7F9BCD52F6E53541628D86EF25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:9440868FE12F8D7F9BCD52F6E53541628D86EF25
 magnet:?xt=urn:btih:F3B91CDFE5651C36F800D09B6F69150A6F0C5F35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:F3B91CDFE5651C36F800D09B6F69150A6F0C5F35
 ```bash
 magnet:?xt=urn:btih:A99E3877D1414A07465C7E61ED25086B6A1EA217
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:A99E3877D1414A07465C7E61ED25086B6A1EA217
 magnet:?xt=urn:btih:CA32549F049A5E71F3DA782785AA612A55EC19A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:CA32549F049A5E71F3DA782785AA612A55EC19A0
 ```bash
 magnet:?xt=urn:btih:C30FE848C6873171B7535A3DDDDEBF49CC381E0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:C30FE848C6873171B7535A3DDDDEBF49CC381E0E
 magnet:?xt=urn:btih:5C0D7EC8BE77CF02ED86FF45C5E9749F9E6544CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:5C0D7EC8BE77CF02ED86FF45C5E9749F9E6544CF
 ```bash
 magnet:?xt=urn:btih:018094776BAFDBCDA04CD35094FCF008BEEDB5C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:018094776BAFDBCDA04CD35094FCF008BEEDB5C6
 magnet:?xt=urn:btih:0DA6E1E4F44875DE6E3590262D29ADC7255BE689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:0DA6E1E4F44875DE6E3590262D29ADC7255BE689
 ```bash
 magnet:?xt=urn:btih:9709610839D510F36A0C1934EB34CFF1DE9E8474
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:9709610839D510F36A0C1934EB34CFF1DE9E8474
 magnet:?xt=urn:btih:FA9606C8757EF27BFAA882BF8BC34E4D8D74B4B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:FA9606C8757EF27BFAA882BF8BC34E4D8D74B4B2
 ```bash
 magnet:?xt=urn:btih:BB5B336912F821E8FAAC8FD4D8405E71424573B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:BB5B336912F821E8FAAC8FD4D8405E71424573B9
 magnet:?xt=urn:btih:FFB2083ADD7EAA09BC8085199076831031A08769
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ magnet:?xt=urn:btih:FFB2083ADD7EAA09BC8085199076831031A08769
 ```bash
 magnet:?xt=urn:btih:7BD0CEC35C671702EEB38A8D9F1F47AAD8425060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:7BD0CEC35C671702EEB38A8D9F1F47AAD8425060
 magnet:?xt=urn:btih:4DFF16C6E646A199F9190A6714D96BB31D94206C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ magnet:?xt=urn:btih:4DFF16C6E646A199F9190A6714D96BB31D94206C
 ```bash
 magnet:?xt=urn:btih:FECFA42EBC7DA50DFA47AF3CA4A08D327A254E23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:FECFA42EBC7DA50DFA47AF3CA4A08D327A254E23
 magnet:?xt=urn:btih:A49544DF66B9A1BA9E66A6E0E77C7986CF749BB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ magnet:?xt=urn:btih:A49544DF66B9A1BA9E66A6E0E77C7986CF749BB8
 ```bash
 magnet:?xt=urn:btih:8F1AEF77514978AE7F7BE7525628AD936BBBFAB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ magnet:?xt=urn:btih:8F1AEF77514978AE7F7BE7525628AD936BBBFAB4
 magnet:?xt=urn:btih:E243F491D31BED0A6FAF2500CBEA380C67A4431D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ magnet:?xt=urn:btih:E243F491D31BED0A6FAF2500CBEA380C67A4431D
 ```bash
 magnet:?xt=urn:btih:A92327811DCA175DB3A7F4CF29C6A2730D0E619B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ magnet:?xt=urn:btih:A92327811DCA175DB3A7F4CF29C6A2730D0E619B
 magnet:?xt=urn:btih:C13DB9F5190A6D8151CFAD5280F2F262D246AABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ magnet:?xt=urn:btih:C13DB9F5190A6D8151CFAD5280F2F262D246AABE
 ```bash
 magnet:?xt=urn:btih:33121FC16BD257760D4B8651A71210C9CCEAF3B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ magnet:?xt=urn:btih:33121FC16BD257760D4B8651A71210C9CCEAF3B2
 magnet:?xt=urn:btih:8C4A1310085D281167C1DC4E2D2B69DC8B66517B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ magnet:?xt=urn:btih:8C4A1310085D281167C1DC4E2D2B69DC8B66517B
 ```bash
 magnet:?xt=urn:btih:9CB1E0AEEB0D4964229207499BFBAA10039CE4F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476653   (1011388) от 12.06.2021
+
+Волшебный дракон / Wish Dragon (2021) WEB-DLRip [H.264/1080p-LQ] [PR]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1011388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычный парень случайно высвобождает из чайника розового дракона, исполняющего желания. Дракон много веков просидел в заточении, и теперь ему ужасно интересно, как за это время изменился мир.Производство: Китай, США, Гонконг / Sony Pictures Animation, Tencent Pictures, The Monk StudioЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Крис АппельхансАктеры: Джон Чо, Уилл Юн Ли, Джеки Чан, Бобби Ли, Констанс Ву, Александр Чен, Даг Уокер, Джимми Вонг, Джимми О. Ян, Макс Чарльз, Йен Чен, Наташа Лю Бордиццо, Ню ЦзюньфэнПеревод: Дублированный (SDI Media) по заказу NetflixЯзык озвучки: РусскийСубтитры: Русскиt (full), Английские (SDH)Продолжительность: 01:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:527EAA32318CA084D8DD5EFABD75EA37673364DF
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

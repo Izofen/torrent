@@ -1,3 +1,31 @@
+###  Публикация: 1219479   (713179) от 14.04.2018
+
+Павел Евдокименко | Не навреди сам себе, или Правила успешной здоровой жизни (2018) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_713179.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы часто необоснованно считаем, что успешность жизни, здоровье тела и духа возможны исключительно путем неимоверных усилий и доступны лишь избранным. Но жизнь намного проще, чем вам кажется, а простота и тривиальность ответов не всегда означает их неверность!
+
+В своей книге Павел Евдокименко говорит о том, что наше везение, счастье и благополучие фактически зависят (   Читать дальше...   )Жанр: Самосовершенствование, достижение успехаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA72F45B9FB5D0278C6EDDD84EEEE82E315D994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 893683   (713376) от 29.04.2015
 
 Бен Чу | Мифы о Китае: все, что вы знали о самой многонаселенной стране мира, – неправда! (2015) [FB2, RTF]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:AA8F9A4F55FB2FEB3798DC428D59F5F49A00A2D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +75,8 @@ magnet:?xt=urn:btih:AA8F9A4F55FB2FEB3798DC428D59F5F49A00A2D8
 magnet:?xt=urn:btih:3D5027DB5257985F3BC9DFEC7EC213C21399FD82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +100,8 @@ magnet:?xt=urn:btih:3D5027DB5257985F3BC9DFEC7EC213C21399FD82
 ```bash
 magnet:?xt=urn:btih:04EDCF5D883FF3B8C22C1FEDCF866F0A3F5560F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +128,8 @@ magnet:?xt=urn:btih:04EDCF5D883FF3B8C22C1FEDCF866F0A3F5560F4
 magnet:?xt=urn:btih:A7F78C3723CFE802BD6BC451FE7B906C739888CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +153,8 @@ magnet:?xt=urn:btih:A7F78C3723CFE802BD6BC451FE7B906C739888CF
 ```bash
 magnet:?xt=urn:btih:7447280234FF8E0CCFA079B148DBF440795D1A4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +181,8 @@ magnet:?xt=urn:btih:7447280234FF8E0CCFA079B148DBF440795D1A4C
 magnet:?xt=urn:btih:FA41D2CB4FD55FEDA1892BBC1B01BCD9BFAC7EE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +208,8 @@ magnet:?xt=urn:btih:FA41D2CB4FD55FEDA1892BBC1B01BCD9BFAC7EE6
 magnet:?xt=urn:btih:A4B0F41FD238B4EDCB5D8EAC23F9DFE6AE5A0E78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +233,8 @@ magnet:?xt=urn:btih:A4B0F41FD238B4EDCB5D8EAC23F9DFE6AE5A0E78
 ```bash
 magnet:?xt=urn:btih:35E125C3A9389638ECBC1C67E66F4FE3254BA240
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +261,8 @@ magnet:?xt=urn:btih:35E125C3A9389638ECBC1C67E66F4FE3254BA240
 magnet:?xt=urn:btih:0BA3368D44FA671CC1DEFF65AE60790E4CA0D854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +286,8 @@ magnet:?xt=urn:btih:0BA3368D44FA671CC1DEFF65AE60790E4CA0D854
 ```bash
 magnet:?xt=urn:btih:C0D680DFB176FC3BEB37B00B35E8E92147BD95E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +313,8 @@ magnet:?xt=urn:btih:C0D680DFB176FC3BEB37B00B35E8E92147BD95E7
 magnet:?xt=urn:btih:C232FF58C92E7A9D8C14248A3FB364973BF9D83C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +338,8 @@ magnet:?xt=urn:btih:C232FF58C92E7A9D8C14248A3FB364973BF9D83C
 ```bash
 magnet:?xt=urn:btih:5DF820F5A9469B6894D1FF2BA17D32A9FD52F477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +365,8 @@ magnet:?xt=urn:btih:5DF820F5A9469B6894D1FF2BA17D32A9FD52F477
 magnet:?xt=urn:btih:603B72360A7282E6FBB95A446187F761336D937F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +391,8 @@ magnet:?xt=urn:btih:603B72360A7282E6FBB95A446187F761336D937F
 magnet:?xt=urn:btih:AE5CB0F767C5C2E62EA774887E00B4418662FBE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +416,8 @@ magnet:?xt=urn:btih:AE5CB0F767C5C2E62EA774887E00B4418662FBE4
 ```bash
 magnet:?xt=urn:btih:315A16CAEEDF0EA74EDDE112CB72791EDB2D9AC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +445,8 @@ magnet:?xt=urn:btih:315A16CAEEDF0EA74EDDE112CB72791EDB2D9AC1
 magnet:?xt=urn:btih:FD6AF8345E466F1E89803F7479B5CAAE14E4938E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +470,8 @@ magnet:?xt=urn:btih:FD6AF8345E466F1E89803F7479B5CAAE14E4938E
 ```bash
 magnet:?xt=urn:btih:B5A5FCA798CC08E4F780F21651317BC89CB082C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +497,8 @@ magnet:?xt=urn:btih:B5A5FCA798CC08E4F780F21651317BC89CB082C6
 magnet:?xt=urn:btih:8FAC5947123077ACA44158FA3EAB1ABBC7527667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +522,8 @@ magnet:?xt=urn:btih:8FAC5947123077ACA44158FA3EAB1ABBC7527667
 ```bash
 magnet:?xt=urn:btih:467E9B3D766BF75796E6045CDA9B2F716321DB69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +549,8 @@ magnet:?xt=urn:btih:467E9B3D766BF75796E6045CDA9B2F716321DB69
 magnet:?xt=urn:btih:1A7DA1005372100E5E37A4DD248F24529F25FD4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +574,8 @@ magnet:?xt=urn:btih:1A7DA1005372100E5E37A4DD248F24529F25FD4C
 ```bash
 magnet:?xt=urn:btih:F2D171A69C9082F1D2F4E1937F2049B8687CBA50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +601,8 @@ magnet:?xt=urn:btih:F2D171A69C9082F1D2F4E1937F2049B8687CBA50
 magnet:?xt=urn:btih:280C40941C57B0A8EA41081A67A26864849F40A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +626,8 @@ magnet:?xt=urn:btih:280C40941C57B0A8EA41081A67A26864849F40A0
 ```bash
 magnet:?xt=urn:btih:96800B54F0B0C1790C544A9FA1F973921FADD1B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +653,8 @@ magnet:?xt=urn:btih:96800B54F0B0C1790C544A9FA1F973921FADD1B4
 magnet:?xt=urn:btih:8274139BA77D959DC4F00F08BA3E178B3E8291DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,29 +679,7 @@ magnet:?xt=urn:btih:8274139BA77D959DC4F00F08BA3E178B3E8291DE
 magnet:?xt=urn:btih:70382514B48758A0D125D18AAF7E6F20422767D6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024713   (714319) от 10.06.2016
-
-Диакон Димитрий Пономаренко | Любить друг друга (2015) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_714319.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассказывает о пастырском подвиге одного из выдающихся священнослужителей Русской Православной Церкви XX века епископа Можайского Стефана (Никитина). Его земной путь и все выпавшие на его долю испытания – яркое отражение пути гонимой Русской Церкви в прошлом столетии. В течение долгих лет он совмещал тайное священническое служение с деятельностью врача, затем (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D898D726A7A310E62C01694D8A37F85EFF08897D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

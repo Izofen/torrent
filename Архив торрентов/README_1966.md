@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:42D50DE146536E0A4B61E131D16E3A11F0FE28D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MediaInfo - программа для получения подробной те
 ```bash
 magnet:?xt=urn:btih:F0FD3D682983931B0DE6BD8E233DC01CA4527C0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Phanatic - Walking With The Dreamers (2017) Bounce Recordings [FLAC|Lossless|WEB
 magnet:?xt=urn:btih:AC393783909A0A4D0DA164E3DE2B423782E1116A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Perfectly Clear - последняя версия программы, котор
 magnet:?xt=urn:btih:B10E5D7828933CD837DC824E3E25B1A1A37C479D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Vivaldi 1.13.1008.40 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:70F9387FD188BA4BB5C47A483A605455D933C189
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ ExpanDrive - удаленный сервер, как локальный диск
 magnet:?xt=urn:btih:2D87511D77ABED7DE2CD2C5276694E4CF3FC719F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ SMPlayer - мощный мультимедиа проигрыватель, ко�
 ```bash
 magnet:?xt=urn:btih:EAF0D50A765966C087EC041B1B85B78C2DBBDDA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:EAF0D50A765966C087EC041B1B85B78C2DBBDDA7
 magnet:?xt=urn:btih:09268317FD5D960C78A385223A1287DDDA15152B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ ReSharper – это расширение для Microsoft Visual Studio, пом
 magnet:?xt=urn:btih:77A207F3B314428EA9295797A4517DEE93524541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:77A207F3B314428EA9295797A4517DEE93524541
 ```bash
 magnet:?xt=urn:btih:13AEAAFABEA4F1A6CB0476DE08AEFBA01F885F23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ The Future Sound Of London - FSOL:Digitana - The SX-One Live Improvisations (201
 magnet:?xt=urn:btih:B0BE651CB5FA0CE88AF5AA134E040AF44C08CE5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.29 (Compiled by Викто
 magnet:?xt=urn:btih:502F9F1C42B315F51BE36F6E14499113F9E79EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:502F9F1C42B315F51BE36F6E14499113F9E79EF0
 ```bash
 magnet:?xt=urn:btih:CC575D48CDDB2EC88C72767E8CC5B6F3CA0DC1B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.28 (Compiled by Викто
 magnet:?xt=urn:btih:A033D87D94417755D4B7F26879B89ABE80FEBF11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ Stavros Gasparatos - Discography 3 Releases (2008-2015) Ad Noiseam / Creative Sp
 ```bash
 magnet:?xt=urn:btih:8B4A321B66CF1AD63C8757BD628EB6F321201DB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ PDF Expert - это один из лучших инструментов для �
 magnet:?xt=urn:btih:463ABED54B4609028591E3BE39B6DA6EA0799E38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:463ABED54B4609028591E3BE39B6DA6EA0799E38
 ```bash
 magnet:?xt=urn:btih:CBEC7118B7E306DE721FC3FBED4D7E9CD4B7E89F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +494,8 @@ magnet:?xt=urn:btih:CBEC7118B7E306DE721FC3FBED4D7E9CD4B7E89F
 magnet:?xt=urn:btih:065A14050303E6CAB51027C67B92061429111AEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +520,8 @@ FL Studio — популярный редактор-секвенсор для н
 magnet:?xt=urn:btih:4F557B2A303C250BFECF8090934677EB1E2638EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:4F557B2A303C250BFECF8090934677EB1E2638EB
 ```bash
 magnet:?xt=urn:btih:3026EC58903D925DBD833DC07657D0A235ECFAE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +573,8 @@ Sketch от Bohemian Coding — один из лучших векторных р
 magnet:?xt=urn:btih:F635828AFFF6A0FB92AE63F3FA1CA3911F91D65D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 ```bash
 magnet:?xt=urn:btih:DB0E1794EF6F12EDD8A0FDE689976EB00A404798
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ NitroVertex - это плагин, который может создать оч
 magnet:?xt=urn:btih:8DF54D945D822CAC6A6E51C1628AF398867DCBD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ Ashampoo Burning Studio - это всё то, о чём Вы просили. О�
 ```bash
 magnet:?xt=urn:btih:0A1777325E8384A569E3018DAB6A78725A9EED22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ PDF24 Creator 8.4.0 [Multi/Ru]
 magnet:?xt=urn:btih:2A04BD16C512B24BC49984A47BB228342AE3F095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:2A04BD16C512B24BC49984A47BB228342AE3F095
 ```bash
 magnet:?xt=urn:btih:46FF0163B171ADBB22C2414B809664F390610C8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

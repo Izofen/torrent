@@ -1,3 +1,29 @@
+###  Публикация: 1313616   (523709) от 09.07.2019
+
+Наталья Павлищева | «Злой город» (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый роман от автора бестселлеров «Княгиня Ольга» и «Дева войны. Кровь и пепел». Продолжение приключений нашей современницы, «провалившейся» в кровавый 1237 год, в страшную зиму Батыева нашествия. Уже пала Рязань, истекают кровью пограничные княжества, а беспощадная орда, словно железная саранча, опустошает Русскую Землю… Сумеет ли «попаданка» из будущего, оказавшаяся (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастикаПродолжительность: 09:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B07A0466BD0EC4395AEA86171C493B18B82A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927289   (523812) от 14.08.2015
 
 Кирилл Шарапов | Москва атакует (2015) [MP3]
@@ -21,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:05EECE0A0BD208DDCD84B48EED46EA8DA6D6877B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:05EECE0A0BD208DDCD84B48EED46EA8DA6D6877B
 magnet:?xt=urn:btih:0F4F4A77022D372EE0D133F44F8623D19935B2B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:0F4F4A77022D372EE0D133F44F8623D19935B2B2
 magnet:?xt=urn:btih:61035CE31DC4CA4049B66747C71313C01962256A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:61035CE31DC4CA4049B66747C71313C01962256A
 ```bash
 magnet:?xt=urn:btih:C5838B8D50990329001DD051618E25E07F0E28F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:C5838B8D50990329001DD051618E25E07F0E28F0
 magnet:?xt=urn:btih:482782E81E35930CCE66280E60946B227EFBCAAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:482782E81E35930CCE66280E60946B227EFBCAAE
 ```bash
 magnet:?xt=urn:btih:F094868BACA85D5A026F399AEA6FEDA4A37863AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:F094868BACA85D5A026F399AEA6FEDA4A37863AC
 magnet:?xt=urn:btih:B1D8D43A7D3FBC92D434A4C17CF3582D8A44EC58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:B1D8D43A7D3FBC92D434A4C17CF3582D8A44EC58
 magnet:?xt=urn:btih:35B28747F05888580225B9BA28DEDC48403FA68D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:35B28747F05888580225B9BA28DEDC48403FA68D
 ```bash
 magnet:?xt=urn:btih:3695EF392E7868E845CEB28350D02E8C2B4FA09B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:3695EF392E7868E845CEB28350D02E8C2B4FA09B
 magnet:?xt=urn:btih:8611A93E3695B2E58CA89616807BB2E97450BD6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:8611A93E3695B2E58CA89616807BB2E97450BD6E
 ```bash
 magnet:?xt=urn:btih:F28A6867C7ED4BEDCC9CC98F519ACBC3EDE33AF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:F28A6867C7ED4BEDCC9CC98F519ACBC3EDE33AF2
 magnet:?xt=urn:btih:73FE10A96060BF8415CA014509D003619EEBD919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:73FE10A96060BF8415CA014509D003619EEBD919
 ```bash
 magnet:?xt=urn:btih:6766A5B454B2D8FC5D4F4D7F8B59D338DABBA895
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:6766A5B454B2D8FC5D4F4D7F8B59D338DABBA895
 magnet:?xt=urn:btih:F6E617C0453C258FC58C27CB521CAF4A0F256FE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:F6E617C0453C258FC58C27CB521CAF4A0F256FE9
 ```bash
 magnet:?xt=urn:btih:CBABBC9B9A0163F6A2A3CA5BBA09CFD574903FD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +446,8 @@ magnet:?xt=urn:btih:CBABBC9B9A0163F6A2A3CA5BBA09CFD574903FD0
 magnet:?xt=urn:btih:237D3E1F3FB97ADA43CB4FE5F8A1D0C17BE733C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:237D3E1F3FB97ADA43CB4FE5F8A1D0C17BE733C4
 ```bash
 magnet:?xt=urn:btih:C6AF813A81F1BF7ACBF97E3932E463CEE2EC48AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:C6AF813A81F1BF7ACBF97E3932E463CEE2EC48AD
 magnet:?xt=urn:btih:853DAC69B25A25CBB9DA103EE3D96C2247B42988
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:853DAC69B25A25CBB9DA103EE3D96C2247B42988
 ```bash
 magnet:?xt=urn:btih:AC6A977D8B874795B7900B13A7864385C2394C12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:AC6A977D8B874795B7900B13A7864385C2394C12
 magnet:?xt=urn:btih:11D5023A5771B796881C848FB1F6BCA18227A48D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:11D5023A5771B796881C848FB1F6BCA18227A48D
 ```bash
 magnet:?xt=urn:btih:B636F8B30E03585A9D870BACF33622D18CC603E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:B636F8B30E03585A9D870BACF33622D18CC603E6
 magnet:?xt=urn:btih:244E79E733EBAC879A572568A8E7AD7EA40B45E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:244E79E733EBAC879A572568A8E7AD7EA40B45E8
 ```bash
 magnet:?xt=urn:btih:C23A5D7979F04A3081338164B332C64D1025D368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:C23A5D7979F04A3081338164B332C64D1025D368
 magnet:?xt=urn:btih:2D2206ECEE79B9DF0295226366E744C22342F818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:2D2206ECEE79B9DF0295226366E744C22342F818
 magnet:?xt=urn:btih:EFE3A9DEC9BDBA1DF758D25BA14C7BD81AB575F9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157023   (525840) от 10.08.2017
-
-Елена Звёздная | Ловушка для принцессы (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_525840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждая девочка мечтает быть принцессой, которую полюбит прекрасный принц... а Катриона рождена, чтобы править, и все ее мысли занимает лишь благо государства. Но что делать, если в выверенный расчет вмешиваются чувства? И как понять, истинна ли твоя любовь?..Жанр: Романтическое фэнтезиПродолжительность: 08:20:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E1585F7503A36A4392CE00AC633852393C95F0E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

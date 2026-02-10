@@ -20,6 +20,8 @@ ThisIsMyFile — это небольшая, но эффективная прог
 magnet:?xt=urn:btih:3CFFFEE1ABB05D1E11FF1D600A6BF0EC257C7113
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ KStars - бесплатное, с открытым исходным кодом, 
 magnet:?xt=urn:btih:397C2A37CB166840C26862A7453084666920612B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Cockos Reaper является одной из самых продвинутых
 ```bash
 magnet:?xt=urn:btih:6DAF5B9357C6073B7C73313B7F9C29DCEF54C2AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:FC47308AF4976828CB96842F851A4CDB300CC7A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ InnoExtractor - это мощное приложение, которое пом�
 magnet:?xt=urn:btih:078F61032F5D258BFFFC2F542C03176F1534E926
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Agisoft Metashape Professional - это передовое программно�
 ```bash
 magnet:?xt=urn:btih:CAE131D855E6231CC73010958CB661A5A8567C68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.42.34438.0 [Ru]
 magnet:?xt=urn:btih:E07258AC894F094352B0F4F8C4B46F6630BF63D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ PDF-XChange Pro — универсальное решение для работ�
 ```bash
 magnet:?xt=urn:btih:7F3C343A8B90FA8E20ED898BECE8503D501C47C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Microsoft Visual C++ Redistributable Package – это распространя
 magnet:?xt=urn:btih:309ED6286F780277143BFD9FE27FAEDF058569AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:B9F2451AEBA1794594CE0F94021D17F2127F8482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:3E0BB33201823F0E348E83D27B8AB7CD1EFD760C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Office Installer - программа предназначена для online �
 ```bash
 magnet:?xt=urn:btih:69DA1D20E485D41523962BB14F4C737E13E19E28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ UltraSearch Professional находит файлы и папки на локал
 magnet:?xt=urn:btih:4DE33E4173A02D7579C418B1722637155CF0DC99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:4DE33E4173A02D7579C418B1722637155CF0DC99
 magnet:?xt=urn:btih:864EE80D8EA7C6DA46E15B80EA90F67D0AC3E9AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Fast Screen Recorder — это программное обеспечение д
 ```bash
 magnet:?xt=urn:btih:5C9FCDB54C9A967010243795BA24182FC7D9A26A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ TweakNow WinSecret Plus! - позволяет пользователям исс�
 magnet:?xt=urn:btih:77DE5D9EB8789594D882C8355A31D07D70EE81A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:1F2BC7369F1B5598D414FCDF13F160CE6AF9BC66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Extreme Picture Finder - средство для автоматического 
 magnet:?xt=urn:btih:FC070D8FEBF68CE242858269D79F92F50462D387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:2A56CA78B1D56C6D841658A4E231F3C858867606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:D3690722D2A6F10361047CFF361AD886577CD13B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:4EBA5DA299F190F4D41E91AD6717CE8E4E6152A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Wondershare PDFelement - программа для общего редактир
 magnet:?xt=urn:btih:A8EB6888EDAD95D9EB4D4EC3EBD3B75CF3D7D79A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ MassTube Ultra — очень простая в использовании пр�
 ```bash
 magnet:?xt=urn:btih:E983FC5246C982D382EE26163F2C9C4021473D7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:C7BA0946ADE9828EEF018593AAF4179CA790178A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Coolutils Total Outlook Converter Pro – конвертирует электр�
 magnet:?xt=urn:btih:D6309EE9A8F9379CA2779F95D814E17A2E27EAC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ TreeSize Professional 9.4.0.2000 (x64) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B1C25A87F7F0B15681B6C9D6626A0EAE0BF4E4B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 1542375   (639103) от 06.04.2022
+
+Наталья Мазуркевич | Ведьмы живут на крыше (2022) [MP3, Анна Басс]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639103.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое любовь? Для кого-то это настоящее испытание, требующее недюжинной силы воли, а для меня — сделка.
+Сделка между моей жабой, логикой и здравым смыслом, отступившими перед обаянием Мартина Клейна, человека прекрасного во всех отношениях, кроме личных, и кровожадностью его юриста, готового пустить меня по миру в случае нарушения нашего контракта. Увы, брачного, (   Читать дальше...   )Жанр: Любовное фэнтези, Юмористическое фэнтезиПродолжительность: 08:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:007A1FAAFDC7319CE2112D4903E32D6E3097DF3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228045   (639129) от 30.05.2018
 
 Генри Лайон Олди | Отщепенец (2018) [MP3]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:4BF442EA403269552FABB2F3F7C9836B9BD83C36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:4BF442EA403269552FABB2F3F7C9836B9BD83C36
 magnet:?xt=urn:btih:64BDCD90DBFC51A170935C45C661FC7ACFA51352
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:64BDCD90DBFC51A170935C45C661FC7ACFA51352
 ```bash
 magnet:?xt=urn:btih:3E3346BC82DB936ED29C1F67DEC9DAF53C56B402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:3E3346BC82DB936ED29C1F67DEC9DAF53C56B402
 magnet:?xt=urn:btih:19375E4B274D089993C11D2E4027983C77A51D13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ magnet:?xt=urn:btih:19375E4B274D089993C11D2E4027983C77A51D13
 ```bash
 magnet:?xt=urn:btih:38AD1A8D76512B2AEA7BF4C6DCBC36D733CE3F5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +177,8 @@ magnet:?xt=urn:btih:38AD1A8D76512B2AEA7BF4C6DCBC36D733CE3F5D
 magnet:?xt=urn:btih:DE25CA684541DB968462FC5F661EC4CD52CFCA68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:DE25CA684541DB968462FC5F661EC4CD52CFCA68
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +228,8 @@ magnet:?xt=urn:btih:DE25CA684541DB968462FC5F661EC4CD52CFCA68
 ```bash
 magnet:?xt=urn:btih:620D7E062E59FD3F785635B198CB7D3CCC9FEE44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +256,8 @@ magnet:?xt=urn:btih:620D7E062E59FD3F785635B198CB7D3CCC9FEE44
 magnet:?xt=urn:btih:B5C125E9CB802537C55B7A6D19F4947037E0BFAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +281,8 @@ magnet:?xt=urn:btih:B5C125E9CB802537C55B7A6D19F4947037E0BFAB
 ```bash
 magnet:?xt=urn:btih:0279029C28891C2A647D33D995D3D83F81A23E22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +308,8 @@ magnet:?xt=urn:btih:0279029C28891C2A647D33D995D3D83F81A23E22
 magnet:?xt=urn:btih:10F95F11C0DB331562A87A617E4238C9883CF4F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +333,8 @@ magnet:?xt=urn:btih:10F95F11C0DB331562A87A617E4238C9883CF4F4
 ```bash
 magnet:?xt=urn:btih:503F28E62735BC9F8098884E8F3E4CFA655EC575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +360,8 @@ magnet:?xt=urn:btih:503F28E62735BC9F8098884E8F3E4CFA655EC575
 magnet:?xt=urn:btih:75D32C534D9ADEA9529B687A74A393FA5463475C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +385,8 @@ magnet:?xt=urn:btih:75D32C534D9ADEA9529B687A74A393FA5463475C
 ```bash
 magnet:?xt=urn:btih:C0DACDB254949C357E9945BCC85E814B799183FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +412,8 @@ magnet:?xt=urn:btih:C0DACDB254949C357E9945BCC85E814B799183FA
 magnet:?xt=urn:btih:1CFD16EFB3886ECAB60B2D9D004D58E9920B58D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +438,8 @@ magnet:?xt=urn:btih:1CFD16EFB3886ECAB60B2D9D004D58E9920B58D2
 magnet:?xt=urn:btih:51ED38195DE0DB82CFAE5FE9AE2A9AA639C465AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +463,8 @@ magnet:?xt=urn:btih:51ED38195DE0DB82CFAE5FE9AE2A9AA639C465AD
 ```bash
 magnet:?xt=urn:btih:09DACC86BBB95EB6783479701BDE7F47FAE7ACCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +491,8 @@ magnet:?xt=urn:btih:09DACC86BBB95EB6783479701BDE7F47FAE7ACCA
 magnet:?xt=urn:btih:D3864B993782F5AA600588A7455FFE49D843A0D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +516,8 @@ magnet:?xt=urn:btih:D3864B993782F5AA600588A7455FFE49D843A0D7
 ```bash
 magnet:?xt=urn:btih:E0A0E10B93BCF4C5111D0F716A00FC79CF4A6FA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +543,8 @@ magnet:?xt=urn:btih:E0A0E10B93BCF4C5111D0F716A00FC79CF4A6FA5
 magnet:?xt=urn:btih:2109D59BC5DA1F05AEE4430F92DD0E092312BAC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +568,8 @@ magnet:?xt=urn:btih:2109D59BC5DA1F05AEE4430F92DD0E092312BAC3
 ```bash
 magnet:?xt=urn:btih:4BC32F38F21D5D59B63B3F86352BC7BF2FF482D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +596,8 @@ magnet:?xt=urn:btih:4BC32F38F21D5D59B63B3F86352BC7BF2FF482D7
 magnet:?xt=urn:btih:351D4AFE10798F50DC54B2875A9A41DC55DF3E77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +622,8 @@ magnet:?xt=urn:btih:351D4AFE10798F50DC54B2875A9A41DC55DF3E77
 magnet:?xt=urn:btih:D1FDD83E5446202F82B7AA4ECA96EAD395BCC493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +647,8 @@ magnet:?xt=urn:btih:D1FDD83E5446202F82B7AA4ECA96EAD395BCC493
 ```bash
 magnet:?xt=urn:btih:BF0A17DC962E6B40914B382FC26FF9210CC6F19B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +675,7 @@ magnet:?xt=urn:btih:BF0A17DC962E6B40914B382FC26FF9210CC6F19B
 magnet:?xt=urn:btih:F3A8AD2217BEC03FA2E22CBBF465F438DFD0219C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033083   (641418) от 09.07.2016
-
-Павел Корнев | Экзорцист (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_641418.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Святых Землях бесы издревле тщатся проникнуть в траченные греховными помыслами души людей, но экзорцисты и экзекуторы, кто молитвой, а кто калёным железом, изгоняют потусторонних отродий обратно в породившую их Бездну. Но что случится, если этим нелёгким ремеслом придётся заняться случайному человеку – Себастьяну Марту, агенту королевской тайной службы?Жанр: Героическая фантастика, Боевое фэнтезиПродолжительность: 03:29:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44ED24C39AFADD2C1E9F8920CDBEB816DB34A893
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ WinUtilities содержит пакет утилит для настройки 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ WinUtilities содержит пакет утилит для настройки 
 ```bash
 magnet:?xt=urn:btih:71557C31949E33AB51ED0430DB23D0DED3AEE907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:71557C31949E33AB51ED0430DB23D0DED3AEE907
 ```bash
 magnet:?xt=urn:btih:B7B96CF5C9089034C9A407F5897773B0EBCA4A84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +110,8 @@ magnet:?xt=urn:btih:B7B96CF5C9089034C9A407F5897773B0EBCA4A84
 magnet:?xt=urn:btih:64946321543A91B5D043A22976F30691E2D58F1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -132,6 +140,8 @@ magnet:?xt=urn:btih:64946321543A91B5D043A22976F30691E2D58F1F
 magnet:?xt=urn:btih:A91D4B50B513A15332B0856C597BE83CDFEB81B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:A91D4B50B513A15332B0856C597BE83CDFEB81B5
 magnet:?xt=urn:btih:2B2ABDD659E5896D93A1610336A6EA4A9F39ACDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ magnet:?xt=urn:btih:2B2ABDD659E5896D93A1610336A6EA4A9F39ACDA
 ```bash
 magnet:?xt=urn:btih:8A0AD791289680420C87CA7AEFF247D283FF9CDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +227,8 @@ VA - America is Dying Slowly (1996) [MP3|320 кб/с]<Rap, Hip-Hop>
 magnet:?xt=urn:btih:26FCCDBB1014863795A452A259B9687272761791
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +261,8 @@ Solar Kid - Sint Etik (2012) [MP3|~247 кб/с (V0)]<Psychill, Dub>
 magnet:?xt=urn:btih:4839B87962F1413EFB5A251F9F6D01F05EF722E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +286,8 @@ magnet:?xt=urn:btih:4839B87962F1413EFB5A251F9F6D01F05EF722E5
 ```bash
 magnet:?xt=urn:btih:1760BD4DF84E206E2039A1751A36E582753EBB57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +313,8 @@ Media Player Classic HomeCinema – удобный во всех планах м
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ Media Player Classic HomeCinema – удобный во всех планах м
 ```bash
 magnet:?xt=urn:btih:A3A37434201A5A33D98818F9E56A75348E0191AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +374,8 @@ Sons of the Pioneers - The Chronological Classics 1941 Vol 1 (2010) [MP3|128 kbp
 magnet:?xt=urn:btih:C37227231130C4EAAE6B00C74E400D724A09358F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ magnet:?xt=urn:btih:C37227231130C4EAAE6B00C74E400D724A09358F
 ```bash
 magnet:?xt=urn:btih:99456A8572D7600E46F058C0B95D848C784CEF68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +426,8 @@ magnet:?xt=urn:btih:99456A8572D7600E46F058C0B95D848C784CEF68
 magnet:?xt=urn:btih:A8EA012C6A39C6EE1B5B66BDB72A3AE99D05F318
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +452,8 @@ magnet:?xt=urn:btih:A8EA012C6A39C6EE1B5B66BDB72A3AE99D05F318
 magnet:?xt=urn:btih:7126B9CFFB7062411A3DD207A08E495DEC16633E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +477,8 @@ magnet:?xt=urn:btih:7126B9CFFB7062411A3DD207A08E495DEC16633E
 ```bash
 magnet:?xt=urn:btih:D442CB24107372CC8F27BEDE06115CB7CB405E04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ Corona - Sonar Luminescence (2012) [MP3|~257 кб/с (V0)]<Psychedelic / Progres
 magnet:?xt=urn:btih:C6697379FE12E9E230F7B9F36C1BC9DC8B6EBD9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +543,8 @@ magnet:?xt=urn:btih:C6697379FE12E9E230F7B9F36C1BC9DC8B6EBD9F
 magnet:?xt=urn:btih:E9F7030F17033C32C5197D91A37B8FAC0FA08A8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ Google Chrome - веб-браузер с открытым исходным ко�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +594,8 @@ Google Chrome - веб-браузер с открытым исходным ко�
 ```bash
 magnet:?xt=urn:btih:517E5600DF82C79C92D502C67A7971B26655B4C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +623,8 @@ Kaspersky TDSSKiller 2.7.19.0 [Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +650,8 @@ DVD приложение к журналу "Мир ПК" №3, 2012 [ISO]
 ```bash
 magnet:?xt=urn:btih:E54DE12442A41EA9CD413CED7EBAFE7B4E0506F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +679,8 @@ Chrome спроектирован сотрудниками Google с нуля, �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +706,8 @@ MKVToolnix - специальный аудио/видео контейнер, п
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,6 +731,8 @@ MKVToolnix - специальный аудио/видео контейнер, п
 ```bash
 magnet:?xt=urn:btih:2ED11CC134F9ED3C3203A3B2136B4D4553222738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

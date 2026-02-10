@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C9C165E99F60D38632428B9B823CC65028CD76D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C9C165E99F60D38632428B9B823CC65028CD76D9
 ```bash
 magnet:?xt=urn:btih:541D59A02E32AB310676AF3FB1F012692BEF1445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:541D59A02E32AB310676AF3FB1F012692BEF1445
 magnet:?xt=urn:btih:23A4992A37EDAAA16AFAEC7DADE3816FEB03A3F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:23A4992A37EDAAA16AFAEC7DADE3816FEB03A3F7
 ```bash
 magnet:?xt=urn:btih:95A735103BC576A0BAF70278A91AE7728212C2DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:95A735103BC576A0BAF70278A91AE7728212C2DB
 magnet:?xt=urn:btih:4C8132F3A16FCBAF2447EE9833E20CB30FA403FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Crash Bandicoot N. Sane Trilogy (2018) [Ru/Multi] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:1B4AC09D510C6B0E5875FD1274BCFB6D288F2EED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Adobe After Effects CC 2015 - популярная программа для р�
 magnet:?xt=urn:btih:4FC11FA72FFFF9A250E700D9CF9805CB01DA6212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Taishou Otome Otogibanashi | Taisho Otome Fairy Tale | Сказка о деву�
 ```bash
 magnet:?xt=urn:btih:29B619EBD1DEE3B250A95EA7FF413BE80CE0194B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Exposure X — автономная программа и плагин для Ph
 magnet:?xt=urn:btih:33AE871FA70B11A6881F5C62D05BD16CF3B5AC25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:33AE871FA70B11A6881F5C62D05BD16CF3B5AC25
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:33AE871FA70B11A6881F5C62D05BD16CF3B5AC25
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:33AE871FA70B11A6881F5C62D05BD16CF3B5AC25
 ```bash
 magnet:?xt=urn:btih:D61E608CAA56E502243388B070C6400F63D5D4A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Deworker Pro, Дмитрий Елисеев | Разработка аукцио�
 magnet:?xt=urn:btih:68B060F29CD998BBD70C08241DEB26ADCEF9E7E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ uDraw Wii collection [Wii] [PAL] [Eng] (2010-2011)
 ```bash
 magnet:?xt=urn:btih:4F66BBF83CCFB37899A4C475ADCD1DC884A65386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Space Hulk: Deathwing — игра в жанре шутер от первого 
 magnet:?xt=urn:btih:2615036207514DA39621F74AE215F058B72043C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:2615036207514DA39621F74AE215F058B72043C3
 magnet:?xt=urn:btih:2B3D2817480243A4C8EFE96F87A3B9816949BF6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Microsoft Windows 10 Enterprise Insider Preview Redstone 2 Build 10.0.14997.1001
 ```bash
 magnet:?xt=urn:btih:F0172522302261D4479D7B812049CFA7502CB6F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ George Michael - 78 Albums (1984-2014) 89 CD [MP3|192 - 320 kbps]<Pop, Dance, So
 magnet:?xt=urn:btih:B4A8DD4692A207F2BA550659F85CC383ED80E9FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ VA - Trance In Motion: Sensual Breath 001 - 105 (2012 - 2013) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:9F3ACB3DE6C82D9B09FA2A57C18439DAD1429BA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:9F3ACB3DE6C82D9B09FA2A57C18439DAD1429BA1
 magnet:?xt=urn:btih:33D9C8CF4D5B38C7589D04C80E84FDC7CA48EFD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:33D9C8CF4D5B38C7589D04C80E84FDC7CA48EFD4
 ```bash
 magnet:?xt=urn:btih:0D44F6C856D7B726D0420B6DF815814A731B4A96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:0D44F6C856D7B726D0420B6DF815814A731B4A96
 magnet:?xt=urn:btih:D331E7F8FBF245844E761C27D2AD8ED5D67E1C2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:D331E7F8FBF245844E761C27D2AD8ED5D67E1C2E
 magnet:?xt=urn:btih:D6878479D02BDB46F1B34527AFFC1842D74E2328
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ MultiBootHDD 2018 23.12.2018 [Ru]
 ```bash
 magnet:?xt=urn:btih:9CCEB705ECD81A000AA4EAD538A5B7DD75559F4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:9CCEB705ECD81A000AA4EAD538A5B7DD75559F4F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:9CCEB705ECD81A000AA4EAD538A5B7DD75559F4F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

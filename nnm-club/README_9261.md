@@ -22,6 +22,8 @@ Rene Marie - Sound Of Red (2016) Motema [FLAC|Lossless|tracks + .cue] <Vocal Jaz
 magnet:?xt=urn:btih:52400CCDFE5C6325CA8E35317AE8CCAE16BAD501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Real Trance Music 2017 (2016) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:4F0C98A404D127AF57727ED5101B2A0A0D0CC7EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Love House Music: Deep November Mix (2016) [MP3|320 Kbps] <Deep House, Elec
 magnet:?xt=urn:btih:71C92C330BFC9D70162030929FBC4156699411E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Pacific Lounge Collection (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:9B9214EDD28B26B2656F015D3D5B389C922BF71A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:9B9214EDD28B26B2656F015D3D5B389C922BF71A
 magnet:?xt=urn:btih:A72B7F10DB07F477536A50E25E0D0BBE810FB7E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ VA - Bring Your Soul Back Vol. 2 - Chill Out Selection (2016) [MP3|320 Kbps] <Ba
 magnet:?xt=urn:btih:0F5C273359F69600355A14E4B096EB2201B5FC30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Jaguar C-X75, автомобиль с двумя газотурбинными д
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ Jaguar C-X75, автомобиль с двумя газотурбинными д
 magnet:?xt=urn:btih:F1A5CA2A24084205AA3C337A1781B24F97D8AEB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ VA - Chillax and Stand with Me (2016) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 ```bash
 magnet:?xt=urn:btih:7826DCC900532D26AB873A5FD1B81A94D79730D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ VA - Mountain Sound The Lounge Of Aspen (2016) [MP3|320 Kbps] <Chillout, Lounge,
 magnet:?xt=urn:btih:D4391D5C0B99263C78E544C0C1314C6A2C41DB63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ VA - Uplifting Trance Essentials Vol.13 (2016) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:3EA7B9E363C370972A47A192748E6AB4A2411C0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ VA - Fashion Calling Chillout (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:563F2BE5331E47D3B01616B04A3B7F3408D712B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ VA - Winterzauber Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:683BBA2EC49B052229BB473526AB88D87B7F4CFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ Wynton Marsalis Septet - Blue Interlude (1992) Columbia[FLAC|Lossless|tracks + .
 magnet:?xt=urn:btih:340CA1E1F1C64D124E17D33CEF67252C30F335DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ VA - 25x Ibiza Chillout Attack, Vol. 15 (2016) [MP3|320 Kbps] <Downtempo, Chillo
 ```bash
 magnet:?xt=urn:btih:8ADE15776C88C284AB0F645B3E55E42D38872A00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ VA - Bring Your Soul Back Vol. 1 - Chill Out Selection (2016) [MP3|320 Kbps] <Ba
 magnet:?xt=urn:btih:D18D1B173998EF94789AE052DCABAA1786C84952
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ VA - Mountain Sound The Lounge Of Davos (2016) [MP3|320 Kbps] <Chillout, Downtem
 ```bash
 magnet:?xt=urn:btih:C9F5CA7F8FB809F6634631A937558727C86991DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ VA - Muschel House Lounge Vol. 2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 magnet:?xt=urn:btih:A5828CA5E1BE9CE2CB30A6D8D85E1AC5E0B8CB38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ VA - The Sound Of - Meridian (2016) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:2EEB75B7BD2185353E144EE985D0A666E8DD2C99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ Victor Feldman - Suite Sixteen (1955) [APE|Lossless|image + .cue] <Cool, West Co
 magnet:?xt=urn:btih:90FCE61CEB71F6D250E4336DAB93E4A6BB26B0EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +597,8 @@ magnet:?xt=urn:btih:90FCE61CEB71F6D250E4336DAB93E4A6BB26B0EE
 ```bash
 magnet:?xt=urn:btih:1D7F120CCFC6D3BA854A5229753CEC292ABA44C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +626,8 @@ magnet:?xt=urn:btih:1D7F120CCFC6D3BA854A5229753CEC292ABA44C9
 magnet:?xt=urn:btih:6C6DF09A6974932823B53517AEFB5B3E906A5E65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +651,8 @@ magnet:?xt=urn:btih:6C6DF09A6974932823B53517AEFB5B3E906A5E65
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +678,8 @@ Cinema FV-5  профессиональное приложение "видеок
 magnet:?xt=urn:btih:06495942A1CF66AF16B8E06D8697E03F799FFE72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +704,8 @@ magnet:?xt=urn:btih:06495942A1CF66AF16B8E06D8697E03F799FFE72
 magnet:?xt=urn:btih:0B0F94A79200D55AE9DA42DB1A6C65FF7EE69D57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -679,6 +729,8 @@ magnet:?xt=urn:btih:0B0F94A79200D55AE9DA42DB1A6C65FF7EE69D57
 ```bash
 magnet:?xt=urn:btih:F93D01B8DBA66DB0708D607A1AFF20149ED42663
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

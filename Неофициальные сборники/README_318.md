@@ -1,3 +1,32 @@
+###  Публикация: 1311581   (539952) от 30.06.2019
+
+VA - Record Super Chart 593 (2019) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_539952.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Billie Eilish - Bad Guy (3:14)
+2.Meduza feat. GOODBOYS - Piece Of Your Heart (2:32)
+3.Aaron Smith - Dancin (Krono Remix) (4:15)
+4.Ed Sheeran, Justin Bieber - I Don't Care (3:39)(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5352F825A9107FC6205730F0B3AD6F7898196AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531880   (540169) от 06.08.2012
 
 VA - Главная дискотека августа 2 50/50 (2012) [MP3|256 кб/с]<Pop>
@@ -28,6 +57,8 @@ VA - Главная дискотека августа 2 50/50 (2012) [MP3|256 к
 magnet:?xt=urn:btih:3583F9415666527ABB2ADFC6B1FEC43685C1C958
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +85,8 @@ VA - Chill Acoustic Covers 2 (2015) [MP3|320 кб/с]<Acoustic, Chillout, Lounge
 ```bash
 magnet:?xt=urn:btih:B1015334D454A5E139A21EE15A55ABCB886950E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +130,8 @@ VA - The Most Relaxing Guitar Album In The World...Ever! (2005) [MP3|320 кб/с
 magnet:?xt=urn:btih:1149CB704F0F20C3156993C4B13E94568F90351E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +165,8 @@ VA - Золотой Шлягер (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:7E1D12FAD429B94096CE8C0F306AE1D75C67544F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +193,8 @@ VA - ЕвроХит Топ 40 Europa Plus 03.08.2018 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:3AFC9CDD2136500C2DE62001877C1134ABB86242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +223,8 @@ VA - Your Songs: The All Summertime Greatest Hits (2018) [MP3|320 Kbps] <Pop, Da
 magnet:?xt=urn:btih:622FC31DE6A3C5982AC71F4DBBE6268CD8115451
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +252,8 @@ VA - My Jazz Cafe Vol.1: Chilling Nu-Jazz Beats (2016) [MP3|320 Kbps] <Jazz, Chi
 magnet:?xt=urn:btih:0A2EDBAA9B55B5E045ABBBBE735A78050E934935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +280,8 @@ VA - Осенняя Бомба Года 50х50 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:60C669DC56516BC1397CD2822FE31A731842B56E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +316,8 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 magnet:?xt=urn:btih:53F74CD3755E4E0E0824223EAF2DC7D85850F078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +344,8 @@ VA - Лето в кайф. Часть 8 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:C41B138374D535942C692D08798226D118482A9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +374,8 @@ VA - Украинский Рок (2015) [MP3|320 кб/с]<Rock>
 magnet:?xt=urn:btih:EAE2DA80B1A19EF15ECC22CE55945824BF2B684D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +399,8 @@ VA - TOP 100 Зайцев.нет от 20 июля 2011 (2011) [MP3|128-320 kbps]
 ```bash
 magnet:?xt=urn:btih:5E3295450A0CAD374E7AB9E40CF8A0D3D9631CCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +435,8 @@ VA - Star House Vocal (19.07.2012) [MP3|320 кб/с]<House Vocal, Dance, Club, E
 magnet:?xt=urn:btih:021B44CB9FB72555D57C3B0951F89450ECA29C18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +463,8 @@ VA - Digital Turbo Trance Sunset (2016) [MP3|320 Kbps] <Trance, Energy, Harmonic
 ```bash
 magnet:?xt=urn:btih:3A8A98F7A135A2356DCC45A76748F29963D1ABF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +493,8 @@ VA - Chillout September 2016 Top 10 September Relaxing Chill Out and Lounge Musi
 magnet:?xt=urn:btih:78849D5B48A6F13975CEF572876B1AC0199B1247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +521,8 @@ VA - Maximum летний mix 50/50 (2015) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:0C8C4C462346CEFDCB835878BDD65B01AE65E2F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +551,8 @@ VA - Workout Mix vol.9 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Electr
 magnet:?xt=urn:btih:DDAEC763127D1EAB3D00FD4BADD4DF81031E49E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +579,8 @@ VA - Top 100 Energy European Trance (2017) [MP3|320 Kbps] <Trance, Uplifting Tra
 ```bash
 magnet:?xt=urn:btih:9DB49833668F7DCE938D8985BC00D56E5C83985B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +609,8 @@ VA - Progressive House Vol.4 (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Progres
 magnet:?xt=urn:btih:6BA5A0138030C8D59A7DDC32029CF6E86240DB16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +637,8 @@ Arabesque - 25 Best Songs (2015) [MP3|~245 кб/с]<Disco>
 ```bash
 magnet:?xt=urn:btih:F81D12D227D2E40B7B3EA0101D603A93E93D8AD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +667,8 @@ Smokie - Balladen (2015) [MP3|320 кб/с]<Pop, Rock>
 magnet:?xt=urn:btih:BF6A3DEC2817239F039E132D3D8621457381638B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +695,8 @@ VA - Ibiza 2015: Summer EDM Party (2015) [MP3|320 кб/с]<Progressive House, El
 ```bash
 magnet:?xt=urn:btih:13A2D7BD810916CE9137A1ADC8DE9FF794EFD373
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +725,8 @@ VA - Lounge Surprise (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:70281D835F9DA1CE5D295A73B794185AFB000E44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +753,8 @@ VA - ЕвроХит Топ 40 Europa Plus 28.06.2019 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:04FF1C536E0220B825C4B0D1EC3C3D558921BB26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -712,38 +789,7 @@ VA - Capitol Sings Collection (21CD) (1991-1995)  [MP3|320 кб/с]<Vocal Jazz, 
 magnet:?xt=urn:btih:D9008F525F3CA1E17D1FD1D4764631908CD17BA5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531236   (542035) от 05.08.2012
-
-VA - Сборник песен о Санкт-Петербурге (Ленинграде) (2003-2009) [MP3|192 кб/с]<Песни о городе>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.группа "Аквариум" - Сталь
-02.Ансамбль "Remake" - Белая ночь
-03.Архипенко - WWW
-04.Городницкий - Атланты
-05.группа "Зоопарк" - Белая ночь
-06.группа "Зоопарк" - Лето
-07.группа "Король и Шут" - Песня из трилогии Максим
-08.группа "Ноль" - Улица Ленина
-09.группа "Секрет" - Ленинградское время
-10.группа "ДДТ" - Белая ночь(   Читать дальше...   )Жанр: Rock, Jazz, Blues-rock, Авторская песняПродолжительность: 01:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA515731B519F455616AA92B709369D00B165B05
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

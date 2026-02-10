@@ -22,6 +22,8 @@ Andrei Denisov - Easy to Fly (1996) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:37208E8AB7CAA719B633AD6E238323DD7388E454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Kitaro - Asian Cafe (2002) 2016 Domo Records [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:535AFE6B783905B2862AC7925E0A2D97D7863FA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Valentina Babor - Piano Princess (2015) [FLAC|Lossless|tracks + .cue] <Instrumen
 magnet:?xt=urn:btih:819712ABBE8C36FBA8818C5FC2C18C3FC8117F83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Angels of Hope (An Angelic Compilation) (2016) [FLAC|Lossless|tracks] <New 
 ```bash
 magnet:?xt=urn:btih:AB18F932CAA51BB53CB2A0FFA030A8CF214FEF79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ Stefano Mocini - A Cat Playing (2011) [MP3|128-256 кб/с]<Relax,New Age,Melodi
 magnet:?xt=urn:btih:5112353AC2F21E3A9C31509A6F0FA74EC16B767A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ Timothy Olson - Bedtime (2016) [MP3|320 Kbps] <Electronic, Easy Listening, New A
 ```bash
 magnet:?xt=urn:btih:CCAD00CA8F0644874238B9BAC80E34F037FAABED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ VA - LOVE Instrumentals (2002) [FLAC|image+.cue]<Instrumental>
 magnet:?xt=urn:btih:A565A5B66C7F8951438747B3B762211EDB32D819
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ Claude Ciari - Sentimental (2003) [FLAC|Lossless]<Instrumental, Guitar>
 ```bash
 magnet:?xt=urn:btih:37415B47166AC4C3853DF024A9B2E912130C4EC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ Kaan Luum - Potala Mousse (2015) [MP3|320 кб/с]<New Age, Meditation>
 magnet:?xt=urn:btih:80738A44B01C470FDEBDCDE99B75C8E6C9717639
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ Ocean Waves For Sleep - Collection Of Ocean Sounds (2016) [MP3|320 Kbps] <New Ag
 ```bash
 magnet:?xt=urn:btih:52E02D10C559A79FE226B39A7CE90625CE503B01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +324,8 @@ Astor Piazzolla - Edicion Critica (2005) 7CD [FLAC|Lossless]<Latihin, Tango>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +358,8 @@ Two Steps From Hell - Nemesis (2007) [MP3|320 кб/с]<OST Score>
 ```bash
 magnet:?xt=urn:btih:9721AEEAEEA00DF6475386F781FC60DE54E4C1D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +394,8 @@ Habib Koite & Bamada - Afriki (2007) [FLAC|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +422,8 @@ Simon Daum - Awaited (2018) [MP3|320 Kbps] <Instrumental, Piano, New Age>
 ```bash
 magnet:?xt=urn:btih:FC9A866705FC0CE2AE584195EEB1932A23D2FBEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +452,8 @@ VA - Latino Brazilian Party (Top Hits) (2017) [MP3|320 Kbps] <Latin Music>
 magnet:?xt=urn:btih:75CDF946AD99E98A14BDF8B0880CD711FCEA142F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +480,8 @@ VA - Best of Cuba (2017) [MP3|320 Kbps] <Latin Music, Cuban>
 ```bash
 magnet:?xt=urn:btih:58090DD16AD40E8B768032A41ACE72EA0B0B830A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +510,8 @@ magnet:?xt=urn:btih:58090DD16AD40E8B768032A41ACE72EA0B0B830A
 magnet:?xt=urn:btih:F15966906DFEE4A5322E7534A61DFEFE7834EB6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +538,8 @@ Brian Tyler - Мумия / The Mummy (2017) Dеluхе Еditiоn [FLAC|Lossless|W
 ```bash
 magnet:?xt=urn:btih:C4C248E98BBA3A3FC46CE0A66196AB16F0A80ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +568,8 @@ Suren Asaduryan - Horovel (2005) [MP3|320 kbps]<Instrumental, Duduk>
 magnet:?xt=urn:btih:B142419C160A5DF67C47F3474B56FE08D1E65E4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +596,8 @@ Ivonne Alexander - Benevolence (2015) [MP3|320 кб/с]<Electronic, New Age>
 ```bash
 magnet:?xt=urn:btih:CDB7FAA0D64E031E54E6FA027DE6507C56E81610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +626,8 @@ Hong Kong Virtuosi Folk Ensemble - Four Virtuosi Plays Chinese Traditional Music
 magnet:?xt=urn:btih:7850F5F526B73F14B6AF36341C9537C6E32E6C2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +655,8 @@ As Ganhadeiras de Itapua - As Ganhadeiras de Itapua (2014) [MP3|196-213 Kbps] <L
 magnet:?xt=urn:btih:9E010B87F961B75A93CA2667DC6AA2C4F437E487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +680,8 @@ Zack Hemsey - (Discography) (2006-2014) [FLAC|Lossless|WEB-DL|tracks]<Instrument
 ```bash
 magnet:?xt=urn:btih:E5F001C7445840BA01DED9BFB9035CFBD1B8FD59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +710,8 @@ Simon Daum - Of One Heart (2018) [MP3|320 Kbps] <Instrumental, Piano, New age>
 magnet:?xt=urn:btih:B74938CD824FC976A810920DA7AEBF13A1D1EB66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +739,8 @@ magnet:?xt=urn:btih:B74938CD824FC976A810920DA7AEBF13A1D1EB66
 magnet:?xt=urn:btih:EDEC78E89A467A0CF269761A806EC609E9FCE4DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -717,6 +767,8 @@ Medwyn Goodall - Kissed by the Sun (2016) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:4016CF4ABDB4B1A8A92795F341E7C662002B99A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

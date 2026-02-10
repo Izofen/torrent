@@ -21,6 +21,8 @@ WIE SCHON LEUCHTET DER MORGENSTERN, BWV1
 magnet:?xt=urn:btih:02D3CBB8CD999073F3272FE5491BB9CF212E45FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -53,6 +55,8 @@ Der Friede sei mit dir: Cantata, BWV 158
 ```bash
 magnet:?xt=urn:btih:BCC0E0C4BE3DBD3D634013A1C0225C76BB6CE9D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -87,6 +91,8 @@ Sonata for Piano and Violin No. 3 in D major, Op. 108 (1886 – 88)
 magnet:?xt=urn:btih:C9B917B4C871EC9BA40E6B710A600DDFF0A36080
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +126,8 @@ Sonata No. 3 op. 5 in F minor
 magnet:?xt=urn:btih:255933373ADC02DCE02A72A5C73EF5AFC11D4D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +153,8 @@ Wolfgang Amadeus Mozart - Mitridate  (Christophe Rousset & Les Talens Lyriques) 
 ```bash
 magnet:?xt=urn:btih:E508A632FE223FF188922F8E5569B01FDA7E1465
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +189,8 @@ magnet:?xt=urn:btih:E508A632FE223FF188922F8E5569B01FDA7E1465
 magnet:?xt=urn:btih:156BAC94992BE3956FC39BD12D0B4811AA69982C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +218,8 @@ Lindsey Stirling - Lindsey Stirling (Target Exclusive Deluxe Edition) (2013) [FL
 magnet:?xt=urn:btih:0B8FC212559B9B84B74F2346B46E82B167E3524B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +245,8 @@ Giuseppe Verdi - La Forza del destino (1986) 3CD [FLAC|Lossless]<Classical, Roma
 ```bash
 magnet:?xt=urn:btih:50D19348A8E80AB079D586D72EE20EA95084191F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +275,8 @@ Mozart, Beethoven, Schumann, Schubert, Grieg - Piano Concertos: Svjatoslav Richt
 magnet:?xt=urn:btih:830FFE0C9B0D0BA2F60CC255BC2586F94D54882E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +300,8 @@ J.S. Bach - Goldberg Variations BWW 988 on organ (Elena Barshai) (2007) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:32E90E2244693E2223F47A23BE781F8DD850C758
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +337,8 @@ Christoph Willibald Ritter von Gluck (1714-1787)
 magnet:?xt=urn:btih:F6D157070AF8005E340E9C8256609BDC0AFFA50E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +371,8 @@ Princess - 5 albums (2002-2008) [MP3|320 кб/с]<Classical crossover, Violin>
 ```bash
 magnet:?xt=urn:btih:5CF38242FFB5C60ABA347AD74C9A82CEFAF66F39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +407,8 @@ VA - Reference Classics First Sampling (1990)[FLAC|Lossless]<Classical Instrumen
 magnet:?xt=urn:btih:AEBCF182E3F851C6237E5DEFAF9784C8A621744E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +441,8 @@ Trio Sonata in G minor, RV 85(   Читать дальше...   )Жанр: Baroq
 ```bash
 magnet:?xt=urn:btih:D09D211DBCF4F82D8364703B1C2C30D5516BACC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +477,8 @@ Anna Netrebko - 3 альбома (2006-2009) [FLAC|Lossless]<Classical, Vocal>
 magnet:?xt=urn:btih:D8E001D7E5633F381BF5BCC5E280DD861DD87DBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +503,8 @@ Giuseppe Verdi - Rigoletto (Tullio Serafin, Orchestra & Chorus Of La Scala)  2C
 ```bash
 magnet:?xt=urn:btih:7CF7E9BE964A4330EEF2361D2D131DEE9232669D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +539,8 @@ David Garrett - Music (2012) Deluxe Edition [MP3|320 кб/с]<Classical, Instrum
 magnet:?xt=urn:btih:518C43E2ECC9253419AC1D8C0ED988F58F2AE05E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +567,8 @@ Giuseppe Verdi - Aida: Riccardo Muti & Montserrat Caballe, Placido Domingo (1986
 magnet:?xt=urn:btih:8F10422624227DE892C6D5D236B22C7501853676
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +594,8 @@ Giuseppe Verdi - Otello: Tullio Serafin & Rome Opera Orchestra and Chorus (1998)
 magnet:?xt=urn:btih:B6203190C6F4C7220239629B19EDDA56D2522A8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +619,8 @@ Emmanuel Holterbach & Blutwurst - Ricercar Nell'ombra (2020) [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:EB9C0BF2D4C92998F60317C69CE306AC66A5160E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +649,8 @@ CD-1
 magnet:?xt=urn:btih:97F7668E7C56099630C0B3E5909E5D15FC953486
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +676,8 @@ Giuseppe Verdi - Don Carlos (Sir Georg Solti & The Orchestra of the Royal Opera 
 ```bash
 magnet:?xt=urn:btih:557644C31430E63C6DDAF5088C57E6B719487823
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +706,8 @@ Vanessa Mae - The Best (2010) [FLAC|Lossless|image + .cue] <Classical Crossover>
 magnet:?xt=urn:btih:84C3E24C5EFDD7B278C42B77A10D6B0347402590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,6 +734,8 @@ After Eden - Superstrings (1998) Producer – Tom Parker [FLAC|Lossless|image + 
 ```bash
 magnet:?xt=urn:btih:FD71B8CF7E13C5623D237DA7242DC38F825E2AEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -716,6 +764,8 @@ Octet for winds in E flat major, Op. 103
 magnet:?xt=urn:btih:C6278B68E38988A4A6F6AEF2AA68AB2835B13574
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -742,6 +792,8 @@ Mussorgsky: Pictures At An Exhibition (Original Version):
 ```bash
 magnet:?xt=urn:btih:0AABE011CCABC22576A0E7494C9CCE317AA3044E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

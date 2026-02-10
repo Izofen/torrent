@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:03DF8E6FE83818CC4FB6077F36D9671B3AF757AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Microsoft .Net Packages AIO 13.02.24 RePack by xetrin [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4FAACEA3D321C073AFCFB2B30EAF8654152329B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Winter Ukrainian Calm Songs (2024) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:FFF1821BA420A6B637BF7DACFFD1946DCB1DF34F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:03A3A0AB4E6BF7B74A0881FB3A49964D165054F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ FurMark - полезная утилита, позволяющая проводи
 magnet:?xt=urn:btih:106BCBBA7FCC22923CEDB40D573AA05B0948AEDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:106BCBBA7FCC22923CEDB40D573AA05B0948AEDA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:106BCBBA7FCC22923CEDB40D573AA05B0948AEDA
 magnet:?xt=urn:btih:3A43EB144D81302EB4F955AF85C3A17752DBD6C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:3A43EB144D81302EB4F955AF85C3A17752DBD6C4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ VA - 70s & 80s Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Ot
 magnet:?xt=urn:btih:9A61F92C19B9B04CBABC52A6C851E7F656D6BAD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:9A61F92C19B9B04CBABC52A6C851E7F656D6BAD9
 ```bash
 magnet:?xt=urn:btih:C753C35F25F67204C16ED748940688859C1A3849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:C753C35F25F67204C16ED748940688859C1A3849
 magnet:?xt=urn:btih:D51F2B95755B66A21A1224A147305D1FC4DFCE7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:D51F2B95755B66A21A1224A147305D1FC4DFCE7B
 ```bash
 magnet:?xt=urn:btih:E50C58E2FB6594E1B78AFBD7B24AC7AF393387A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Lies Of P была вдохновлена знаменитой историей 
 magnet:?xt=urn:btih:AE4FBD8CAA8C61D03B9C076C7B3A2B7E620CE6E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:AE4FBD8CAA8C61D03B9C076C7B3A2B7E620CE6E8
 ```bash
 magnet:?xt=urn:btih:0A355E87AF31DEC87FAE1DE085EC9E9F130CBCC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:0A355E87AF31DEC87FAE1DE085EC9E9F130CBCC4
 magnet:?xt=urn:btih:3EA97569CF6128796A5C2B61873DD2FC58977210
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:3EA97569CF6128796A5C2B61873DD2FC58977210
 ```bash
 magnet:?xt=urn:btih:815A8A07A395C9486105B20FFB6F898B9A5201CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:815A8A07A395C9486105B20FFB6F898B9A5201CC
 magnet:?xt=urn:btih:3284310E43888D093C5D2FE911789569B5CF56BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:3284310E43888D093C5D2FE911789569B5CF56BE
 ```bash
 magnet:?xt=urn:btih:0BA6A93423BFFD43001AE78DE6E72C88E8BDC821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:33C27B07BEF5936C369570398B171B9E3CC8E24B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:33C27B07BEF5936C369570398B171B9E3CC8E24B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Lysfanga: The Time Shift Warrior бросает вас в битву, котор
 magnet:?xt=urn:btih:7F6C8DF721637CF41C7AF004CC4748365F7F8F06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:7F6C8DF721637CF41C7AF004CC4748365F7F8F06
 magnet:?xt=urn:btih:7087CC8874785C08841B7A87A9B9B772D50E8E3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:7087CC8874785C08841B7A87A9B9B772D50E8E3E
 ```bash
 magnet:?xt=urn:btih:C43BF51456FD238C3E9C2CC7489AD1069B55349A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:C43BF51456FD238C3E9C2CC7489AD1069B55349A
 magnet:?xt=urn:btih:56C9A46A60BC3ADC919888435379C97AD0A7C93E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:56C9A46A60BC3ADC919888435379C97AD0A7C93E
 magnet:?xt=urn:btih:F75A4A26706FCD628B1C6BA1DF4979586C49681B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:F75A4A26706FCD628B1C6BA1DF4979586C49681B
 ```bash
 magnet:?xt=urn:btih:3EDEDE11DF9C5D8EECBABA28459D8824E4CE273A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

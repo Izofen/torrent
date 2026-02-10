@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5FE4EDAA97AC7882384357305FFDB7FC43AE6554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Beyond Compare — мощнейшая программа для сравнени
 ```bash
 magnet:?xt=urn:btih:E7EFF3C00E73325F2437A3A071015221449823DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:E7EFF3C00E73325F2437A3A071015221449823DC
 magnet:?xt=urn:btih:2456631147ED1328E7E4125D97EA978B61A43727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:2456631147ED1328E7E4125D97EA978B61A43727
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:2456631147ED1328E7E4125D97EA978B61A43727
 ```bash
 magnet:?xt=urn:btih:0649E4E27992CD2ED870A3B8756FA2E8A2DE29CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Beth Hart - Live compilation (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:38922E875221A85A95329381C5FC9761AA7C4DE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:38922E875221A85A95329381C5FC9761AA7C4DE7
 magnet:?xt=urn:btih:B22E7F06934BF3A7BEE8E1E78A8247AF7E699C2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Bridge to Another World Remastered: Burnt Dreams (2025) [En] (1.0) Unofficial [C
 ```bash
 magnet:?xt=urn:btih:B6D43B15C3FBA9149837E7A63D655E0D296AD1FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:B6D43B15C3FBA9149837E7A63D655E0D296AD1FD
 magnet:?xt=urn:btih:4B3FD1CAEE2634BE2E95721120FCD7CE921891B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:1D8AC8E36444215BA4655DF9C49937CA30787F58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ VA - 50 DJ Tracks Vol. 1 (2025) [MP3|320 Kbps] <Dance, House, Club, Electronic>
 magnet:?xt=urn:btih:83BC583CB7AA2699250C039024EE3D21361B2B88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ VA - Compilation part 142 (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:6FA1F46295C6BEDA0230CB1D71A8692DE95B7EEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:6FA1F46295C6BEDA0230CB1D71A8692DE95B7EEA
 magnet:?xt=urn:btih:9505B3643EDA7497AB103160E9C45BE87D3074B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:9505B3643EDA7497AB103160E9C45BE87D3074B0
 ```bash
 magnet:?xt=urn:btih:9753273EF3A18F2750D0BBFF7D2D3C9A6CD2013D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:9753273EF3A18F2750D0BBFF7D2D3C9A6CD2013D
 magnet:?xt=urn:btih:F2AFE5BAC7C9CBC958F33C4D9E325DF647B80DAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:F2AFE5BAC7C9CBC958F33C4D9E325DF647B80DAC
 ```bash
 magnet:?xt=urn:btih:45A82B2D2062BCC18EC9A4BD3F08BB554BCC4B76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ VA - Jazz Funk Instrumentals Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 magnet:?xt=urn:btih:21F2CD9AB23497EAFBC22E561848C0319A9A1D56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:21F2CD9AB23497EAFBC22E561848C0319A9A1D56
 magnet:?xt=urn:btih:DE1D813D357E9753CE559F46E8445EF91F0EC35F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:DE1D813D357E9753CE559F46E8445EF91F0EC35F
 magnet:?xt=urn:btih:9614F472E87A9832D571F182D5013EEC8AACB99E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:9614F472E87A9832D571F182D5013EEC8AACB99E
 ```bash
 magnet:?xt=urn:btih:BF200F067E709A23EBB3C05B5A609B0B2BE97C8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ Dynazty - Game of Faces (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy-Power 
 magnet:?xt=urn:btih:BDC1E0F6E1FBDB273256D262B598A48DF20EE676
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:BDC1E0F6E1FBDB273256D262B598A48DF20EE676
 ```bash
 magnet:?xt=urn:btih:8D7856AD46677A45C9CAE000B52986B4F6B23E8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:8D7856AD46677A45C9CAE000B52986B4F6B23E8E
 ```bash
 magnet:?xt=urn:btih:24B1B85BC1BF36A71F3DD7FB62BAAA8D9549C58E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ Soltur - Ride as One (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Viking Metal>
 magnet:?xt=urn:btih:37E3E8A9AD7E976EF47BFED578648410EE2937C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ Carmen Consoli - Terra Ca Nun Senti (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:506E9946CD5AD7583A4C7E290535AE5861855760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ The Great Old Ones - Kadath (2025) [FLAC|Lossless|image + .cue] <Atmospheric Bla
 ```bash
 magnet:?xt=urn:btih:39BBE3CDDD34FC7696C4454BFEBDB80E349704EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

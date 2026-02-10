@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8038942B7485D22E31A8246611932C24BD6D6F3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Diraga Serif — современный и стильный шрифт для л
 ```bash
 magnet:?xt=urn:btih:97A68E6EAFC69A2949471F7ACC0F083598DEC246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Nunito - это хорошо сбалансированное суперсеме
 magnet:?xt=urn:btih:2A81B597CDB55B77100E0CAF5D101D52808BE461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Nunito - это хорошо сбалансированное суперсеме
 ```bash
 magnet:?xt=urn:btih:55B202938CDE16F8C74E0A3B38D4A38F13185A50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Lezo – футуристический акцидентный шрифт с у�
 magnet:?xt=urn:btih:226AE0ACAEF403D975B2D4F44427830FBB481A04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Eslava состоит из 6 стилей.Формат: OTFПоддержка к
 magnet:?xt=urn:btih:A5EBA2C605D6A69C0192E3D656662D7FD8593881
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:A5EBA2C605D6A69C0192E3D656662D7FD8593881
 magnet:?xt=urn:btih:71D65E19D5090BB12BDDD5F5635680ECBF0B7EF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:71D65E19D5090BB12BDDD5F5635680ECBF0B7EF9
 ```bash
 magnet:?xt=urn:btih:3B761AD4EEADC53F3901BF87BE8615D31F9D0C32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:3B761AD4EEADC53F3901BF87BE8615D31F9D0C32
 magnet:?xt=urn:btih:331BC489D42FE5070285BEB0A70E8D0F3B88B1B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:331BC489D42FE5070285BEB0A70E8D0F3B88B1B9
 ```bash
 magnet:?xt=urn:btih:76301ADF252D58B820939D6991FC5007B1A61596
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:76301ADF252D58B820939D6991FC5007B1A61596
 magnet:?xt=urn:btih:EBD40C30B96D2E7E1CE76228040F7926773C2D55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ KitBash3D - Valhalla [BLEND]
 ```bash
 magnet:?xt=urn:btih:E694110E9C699519DE0E5315658AE73AC78BD186
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:E694110E9C699519DE0E5315658AE73AC78BD186
 magnet:?xt=urn:btih:6D722F03CCE41ECD58985AD08BF8321E8D70DA97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:6D722F03CCE41ECD58985AD08BF8321E8D70DA97
 ```bash
 magnet:?xt=urn:btih:9C9B433A340FC27E24660DFB3BE0A5EFC7E9182C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:9C9B433A340FC27E24660DFB3BE0A5EFC7E9182C
 magnet:?xt=urn:btih:05DA4B2C44088FFFC552751AC2A3CF1715CE7714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Hand Painter - действие фотошоп превратит ваши из�
 ```bash
 magnet:?xt=urn:btih:1E1ED818743029A3B375DB9E1567F6DB6D469586
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:1E1ED818743029A3B375DB9E1567F6DB6D469586
 magnet:?xt=urn:btih:2650822C239C5282A6B6C8415ABE0EE85424014D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ PRIME BASS обеспечивает классическое звучание о
 ```bash
 magnet:?xt=urn:btih:0200C081FC56EFDE1CDEBD5B8E727DD8BF329040
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:0200C081FC56EFDE1CDEBD5B8E727DD8BF329040
 magnet:?xt=urn:btih:B4FF15D9B755493EFA34D9E5D03C0044DAE55CE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Sketch Paint - это действие фотошоп превратит ваш�
 ```bash
 magnet:?xt=urn:btih:6EF2AE1D7667E4A6A209AFCB52BDBFF73DAF546A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:6EF2AE1D7667E4A6A209AFCB52BDBFF73DAF546A
 magnet:?xt=urn:btih:097EF53F967E7E7849AE90682ADB0693425CF60A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:097EF53F967E7E7849AE90682ADB0693425CF60A
 ```bash
 magnet:?xt=urn:btih:7B0634836DD2E9825561E921538E0C1ABF8713BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:7B0634836DD2E9825561E921538E0C1ABF8713BD
 magnet:?xt=urn:btih:4A0738BEAFB91D4198B5894A5E1067F35C1F06FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:4A0738BEAFB91D4198B5894A5E1067F35C1F06FD
 ```bash
 magnet:?xt=urn:btih:F571AD683CFBD609EDE2F8A42E44FA48ECBAF403
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:F571AD683CFBD609EDE2F8A42E44FA48ECBAF403
 magnet:?xt=urn:btih:A8B46A9A59655B869EA20A432D913DBE07414E7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:A8B46A9A59655B869EA20A432D913DBE07414E7D
 ```bash
 magnet:?xt=urn:btih:CB6FD272EBED3A00C5F430343A8240990CF65831
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

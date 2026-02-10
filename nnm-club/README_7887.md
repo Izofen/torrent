@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:2F8E9277395469075211D9E464E1ADD00E2ED6FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ VA - The World Series of Lounge, Vol. 2 (2021) [AAC|~319 Kbps] <Balearic, Downte
 ```bash
 magnet:?xt=urn:btih:915E511E1CD596B9D09314DBC1519FD220C6FA8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Shamael - Il Suono Di Mille Orchestre, Parte I (2023) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:8369C48209C9F2070F1A105B984DD2BF2C0090E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Slow Fall - Obsidian Waves (2023) [MP3|320 Kbps] <Progressive Melodic Death Meta
 magnet:?xt=urn:btih:AE75CEDD542F8FCF5A1317C472B0093F64BEACC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ Gestimer 1.2.8 [En]
 magnet:?xt=urn:btih:B447AEE073B1F3E416D5B4DDB3B73F60B2B47753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Skillshare, Neil Bettison | Blender 3 - The Beginners Ultimate Stylized Scene Cl
 ```bash
 magnet:?xt=urn:btih:0506A1B19DD58AA3A5115CE19E95CCD378363FB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ Holy Moses — немецкая трэш-метал-группа, одна из 
 magnet:?xt=urn:btih:541FD872CC3ABEE3863ADF7EE3741935A22B6904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:A46EECFEF55DEC07F1C49BB387C485009697697B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ magnet:?xt=urn:btih:A46EECFEF55DEC07F1C49BB387C485009697697B
 magnet:?xt=urn:btih:1EB1D96203297EB7B30862B56D22B9D62AF941FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:1EB1D96203297EB7B30862B56D22B9D62AF941FD
 ```bash
 magnet:?xt=urn:btih:8B64EFCB936AD011FD82889C9C7F8F15B0EB2DA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +303,8 @@ Aiseesoft Mac Video Enhancer - новый продукт от компании A
 magnet:?xt=urn:btih:E08CB81421C688865594A19C8BE353C65EB1B6DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ Be Focused Pro - сосредоточитесь на производитель�
 magnet:?xt=urn:btih:AD728EFB963205A610E1CCFB25767B74078429DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ Color Wheel 7.7 [Multi]
 ```bash
 magnet:?xt=urn:btih:EB1B82F58E64957CA8E20C5223C0EEA572E8B10A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ Free Hex Editor Neo - бесплатный Редактор Шестнадцат
 ```bash
 magnet:?xt=urn:btih:588A31717E97727CD401324414B4FD0F489418E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +413,8 @@ VA - EDM Banger Tools (2021) [MP3|320 Kbps] <Techno, House, Electro, EDM>
 magnet:?xt=urn:btih:80372D0DEFE08E36532D0C5E34DB647641BDA886
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ magnet:?xt=urn:btih:80372D0DEFE08E36532D0C5E34DB647641BDA886
 magnet:?xt=urn:btih:2267EACBA218D0FA69A81C6A8360B9B0D805D547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:2267EACBA218D0FA69A81C6A8360B9B0D805D547
 ```bash
 magnet:?xt=urn:btih:9F9FE33E0A7FEB3374E9BCC03A32B0AF7F6C4379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +494,8 @@ Random - Reloaded (2010) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
 magnet:?xt=urn:btih:98141C486EA1687F53B33DCD5402F2205E55364D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +522,8 @@ VA - Flora Lounge Tunes by Smooth Deluxe, Vol. 1 (2021) [AAC|~318 Kbps] <Chill O
 ```bash
 magnet:?xt=urn:btih:7600FA7E20D7BD3DD6D41E7E28549D36A29CC8B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +552,8 @@ Texas Scratch - TEXAS SCRATCH (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:C0EFDEA2F1001A6FEC329B2A9600B5926235A17F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +577,8 @@ magnet:?xt=urn:btih:C0EFDEA2F1001A6FEC329B2A9600B5926235A17F
 ```bash
 magnet:?xt=urn:btih:50C149BFF0F775BE80800581EF22F8E5727998AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +605,8 @@ Reader — это быстрая и минималистичная програ�
 magnet:?xt=urn:btih:3DA55EAAAA63C1E8779059B925540A439AE0528A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ eMail Address Extractor - ищем и извлекаем email адреса. eMa
 ```bash
 magnet:?xt=urn:btih:EE9D26F5C58982BFD78DAA2556558C74F740A328
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +661,8 @@ Poets of the Fall (с англ. — «Поэты Осени») — финс�
 magnet:?xt=urn:btih:83A0D503523CFEB6F1CB88310E877900D4AECB00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +687,8 @@ magnet:?xt=urn:btih:83A0D503523CFEB6F1CB88310E877900D4AECB00
 ```bash
 magnet:?xt=urn:btih:39C2AE5E5BE8B2927C833AAD904BB6B679C33E37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -666,6 +716,8 @@ Courtney Pine - Spirituality (2022) Destin-E [FLAC|Lossless|tracks + .cue] <Post
 ```bash
 magnet:?xt=urn:btih:BE22268473968A6A3539CD9B9F4AD4C95CECA6EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

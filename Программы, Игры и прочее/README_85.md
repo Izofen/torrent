@@ -19,6 +19,8 @@ Beelinguapp - образовательный проект для изучени�
 magnet:?xt=urn:btih:B9BCAD085880332D2F551C1E40110BA8E0FCAF9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Bazaart: Photo Editor & Graphic Design v1.20.0 [Ru/Multi]
 magnet:?xt=urn:btih:62BB3306A7C4E8758276CFF73925B901F36A5000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ PlayerPro Music Player - аудиоплеер, что предоставляет
 ```bash
 magnet:?xt=urn:btih:4D7FD2AE299BF252C6C696925F2709F5655CB5B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:4D7FD2AE299BF252C6C696925F2709F5655CB5B3
 magnet:?xt=urn:btih:F027640E4B97D5D09079261A344CE22AED924BAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Incredibox – музыкальная игра на андроид, где вы 
 ```bash
 magnet:?xt=urn:btih:AEF8DF211CE804D22C398FEBD53971AEEF242292
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ AOA: Always on Display - проект по персонализации, что 
 magnet:?xt=urn:btih:D8EFD82209EC6A7EBBD9147CE6FA3105D6D4AB95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Energy Ring - ещё один проект по персонализации, ч
 ```bash
 magnet:?xt=urn:btih:20B28A1F80B8C594D1C96FF3E6643B7B6C7E8231
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Clipboard Pro или Буфер обмена Pro - это приложение, 
 magnet:?xt=urn:btih:6E41EE5DF6210633751CE007586790DE1C1086B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:6E41EE5DF6210633751CE007586790DE1C1086B5
 ```bash
 magnet:?xt=urn:btih:FADA3FC685478C519C0278564DFD38724B36267B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Retouch - весьма и весьма впечатляющая своими о�
 magnet:?xt=urn:btih:B4290400D722A82C85BB0477C0E79AAC34D79AFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Plague Inc. 1.19.10 Mod by Bubalex88 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:EC50689BE3C6037DB6A9C1E93A1C4E5146CD4B52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Dynamic Island (iOS 16 Notch) - ещё один проект предлагаю�
 magnet:?xt=urn:btih:5FD3AB9D295CB197F78613BD71F48CC808D8A7B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ SnapEdit - фоторедактор предназначенный для быс
 magnet:?xt=urn:btih:9B724613679A5E2B62695B2F38F3D881FFA8295A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ WOT — защита вашего устройства – Будущее без
 ```bash
 magnet:?xt=urn:btih:FD55BE46039FAD1F3439228EF657BE7760EEA5F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ AI Art произвел революцию в создании цифровог�
 magnet:?xt=urn:btih:ECE2966145F321F336AF0CAA4715EE8B28EA37AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:ECE2966145F321F336AF0CAA4715EE8B28EA37AA
 ```bash
 magnet:?xt=urn:btih:DFF45CE4A4267BD205B43386383B48C4A4711FE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ AirBrush v5.7.1 Mod by KirillCXV [Ru/Multi]
 magnet:?xt=urn:btih:E17333A887D0225F0288C996D3025BC1C5FFBC23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Adobe Lightroom - версия известного графического р�
 ```bash
 magnet:?xt=urn:btih:A0BEFC0C67D01A063966FF6FDE3608FE9FD4CC0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Easy Voice Recorder - Pro / Простой диктофон - Про - Прос�
 magnet:?xt=urn:btih:EB5E4E95A341E0246FDBFFFF2FDB97852F2C7B47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ PixeLeap - приложение, что обязательно стоит опр
 ```bash
 magnet:?xt=urn:btih:846C41933981816B1FD802F1407D6D05EFF78C35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ WhatWeather - Метеостанция 1.18.0-pro [Ru/Multi]
 magnet:?xt=urn:btih:E6FFB2B350669CFC5182CA08867DB887D7B010AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Cool VPN Pro - отличный и из-за этого весьма попул�
 ```bash
 magnet:?xt=urn:btih:E72D00DC729436DED878CC89A6B8AA44BCF239AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ magnet:?xt=urn:btih:E72D00DC729436DED878CC89A6B8AA44BCF239AD
 magnet:?xt=urn:btih:FF355ABFAA997725278409C7DE4D656E0A459234
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Nomad Sculpt v1.70 [En]
 ```bash
 magnet:?xt=urn:btih:F04C036D3863135FC82E29F36B0B26653AE47A39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ DNS Changer изменяет DNS-адрес вашего устройства, �
 magnet:?xt=urn:btih:04F30057094D0488A6F6FD47C2BFDB7260ABDF37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ ToonApp карикатура фоторедактор лучшее прилож�
 ```bash
 magnet:?xt=urn:btih:637CA6021E0160BCCDFC284B4E849F0FD1EE0493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

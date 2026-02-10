@@ -25,6 +25,8 @@ Chaos Software Ltd. | V-Ray 2.0 for 3ds Max [2010] [PDF]
 magnet:?xt=urn:btih:27C1AC6F7C0C00406EFB0D38DF25B60B5C0C8D3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:27C1AC6F7C0C00406EFB0D38DF25B60B5C0C8D3F
 ```bash
 magnet:?xt=urn:btih:FFEFCC275E1C3FD58EA4874141AA944FB1810C1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:FFEFCC275E1C3FD58EA4874141AA944FB1810C1B
 magnet:?xt=urn:btih:9736C908FD324F7E6609C186F8467E756162C413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Dr. Nirali Dabhi, Dr. Dharmendra Patel, Dr. Atul Patel | Web Development Toolkit
 ```bash
 magnet:?xt=urn:btih:EF73760ECD1B5CC1446D43493229162B02DAEE1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:EF73760ECD1B5CC1446D43493229162B02DAEE1C
 magnet:?xt=urn:btih:C68F803671E4A82A938B203F15144DA414EFE289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:C68F803671E4A82A938B203F15144DA414EFE289
 magnet:?xt=urn:btih:0FDE06A413C52B88528DA8111FA0448CDE6C44E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:0FDE06A413C52B88528DA8111FA0448CDE6C44E2
 ```bash
 magnet:?xt=urn:btih:AC2D996BD46A013A4D0E765CA981BB6064CDB269
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ b]Формат:
 magnet:?xt=urn:btih:8EF626187D6E24FC9504762934E5514D9C55D496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:8EF626187D6E24FC9504762934E5514D9C55D496
 ```bash
 magnet:?xt=urn:btih:2DC2A0EBBF13D199FC1B909F0BEED500A9A3BAE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Swift известен как язык разработки приложений
 magnet:?xt=urn:btih:44D0DE2AD284F54069099AEE2E1EFB2F74E2F0EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:44D0DE2AD284F54069099AEE2E1EFB2F74E2F0EF
 ```bash
 magnet:?xt=urn:btih:C8825D182781E210A9AD0F339985E830404E53D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:C8825D182781E210A9AD0F339985E830404E53D1
 magnet:?xt=urn:btih:3D9CB54CCFC0B0D557EC421B7C4EEC31834EB8FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:3D9CB54CCFC0B0D557EC421B7C4EEC31834EB8FD
 ```bash
 magnet:?xt=urn:btih:813B5BFE44663D6E3E821854E78EFE6585AF5B7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Aймен Эль Амри | GPT-3. Программирование на Python 
 magnet:?xt=urn:btih:28F6310FF5759A9FCA276F44F6BB977F5B3AD6A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:28F6310FF5759A9FCA276F44F6BB977F5B3AD6A2
 ```bash
 magnet:?xt=urn:btih:307E4E143A27B2735ED597547DAABFB0C52BBB24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:307E4E143A27B2735ED597547DAABFB0C52BBB24
 magnet:?xt=urn:btih:86756FBA8133B1BD9168A4D7875D054E0BF5D818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ Umesh R. Hodeghatta и др. | Practical Business Analytics Using R and Python (
 ```bash
 magnet:?xt=urn:btih:480B1799A8BD71FFE8392F7773038AF9726AA1A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Mitch Leeuwe | Mitch Leeuwe Tutorials / Учебные пособия Митча
 magnet:?xt=urn:btih:68AEEF30BA71DDB4FAA7C9816E59FEC0C08E8725
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:68AEEF30BA71DDB4FAA7C9816E59FEC0C08E8725
 ```bash
 magnet:?xt=urn:btih:968A4B7CCCFB7A4C2E7B72DEC25C118E1688375C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:968A4B7CCCFB7A4C2E7B72DEC25C118E1688375C
 magnet:?xt=urn:btih:E5A7A830267022CA7BC92B37EFFD6A6870703F0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:E5A7A830267022CA7BC92B37EFFD6A6870703F0F
 ```bash
 magnet:?xt=urn:btih:481F584CB1A69F847995F521A2940BB7C6224F35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:481F584CB1A69F847995F521A2940BB7C6224F35
 magnet:?xt=urn:btih:1B96EBAB79368A0DC4E3132A4DC57817CCD21275
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:1B96EBAB79368A0DC4E3132A4DC57817CCD21275
 ```bash
 magnet:?xt=urn:btih:601BA99B36C9A8E33D17AB79908AC2E47A9194C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:601BA99B36C9A8E33D17AB79908AC2E47A9194C2
 magnet:?xt=urn:btih:DA395D518872E3AB2D739A7D73009CE6118DCDB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:DA395D518872E3AB2D739A7D73009CE6118DCDB7
 ```bash
 magnet:?xt=urn:btih:F50344730A1670B13432650C0A9031CA9F3019D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +686,8 @@ Laurentiu Spilca | Troubleshooting Java: Read, debug, and optimize JVM applicati
 ```bash
 magnet:?xt=urn:btih:4C36BBF26108AF9ADB6C6282E90EE46EAEBAC91A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

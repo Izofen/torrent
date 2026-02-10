@@ -19,6 +19,8 @@ GIMP — это редактор, позволяющий работать со �
 magnet:?xt=urn:btih:8E948D57305B0002E983D55EC9ABF514046BB90C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:F7E75B640F90D4A47F6B4D5B07FC069B99539793
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Adobe Audition 2025 25.3.0.71 RePack by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:6F54DAB6217DD8955230A771C30E1B297293640B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Franzis ZOOM #3 Pro 3.31.04132 Portable by Spirit Summer [Multi]
 ```bash
 magnet:?xt=urn:btih:4D5E49AAD4DC9BEABEC06611446D45502C90ACAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Dolby Digital®, Dolby Digital Plus™, Dolby TrueHD, Dolby AC-4 и Dolby Atmos�
 magnet:?xt=urn:btih:651B3DF7EC482773A85C63D02F20464ACF4DB97C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Mix DRUMS — это интуитивно понятный плагин, пре�
 ```bash
 magnet:?xt=urn:btih:27270F859D459924ACBA8AB7BD2BA38EFCFEFB8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Adobe Photoshop Lightroom Classic 2025 14.4.0.8 (x64) Portable by 7997 [Multi/Ru
 magnet:?xt=urn:btih:C344BF17AC256815FBA04B36E4F1D7CDEDECD7D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ W.A. Production - Instacomposer 2 2.0.2.250425 VSTi, VSTi 3, AAX (x86/x64) RePac
 magnet:?xt=urn:btih:3BA7535D2FEA27F3AF11DE664D85D860D92A4368
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Adobe Media Encoder 2025 25.3.0.73 (x64) Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E2B07F4EA1DA762625B7AF77A9E54297B8F04499
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Minimal Audio - Effect Bundle 2025.6.12 VST, VST 3, AAX Repack by TCD [En]
 magnet:?xt=urn:btih:E46146CAC5C67C2C899230B23371B7668D680158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ FabFilter - Total Bundle - это полный пакет всех плагин�
 ```bash
 magnet:?xt=urn:btih:7FF66A6E7D794046B939A45D2FEB9E0AB051B39A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Futurephonic - Rhythmizer Fusion 1.0.2 CLAP, VSTi 3 (x64) RePack by TCD [En]
 magnet:?xt=urn:btih:27C535B071AF574D8036F619CD56098E5D92CE9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Adobe Audition - Программа для работы с аудио-данны
 magnet:?xt=urn:btih:C2DD498048C44C49255C829145813B2F77283A02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ WinX DVD Ripper Platinum - быстрый, мощный и удобный Window
 ```bash
 magnet:?xt=urn:btih:E851BA59CAC783303D08A0A9377E3073382B71F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ AIR Creative FX Collection 2 покрывает все ваши потребно
 magnet:?xt=urn:btih:0586F92118B3995DC82AF35475D4C0F649DAD89F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Devious Machines - Complete Effects Bundle 2025.6.10 VST, VST 3, AAX RePack by T
 magnet:?xt=urn:btih:1044EFC83A37EDAEB8A37D9F75FE99734E5E2F8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Cockos Reaper является одной из самых продвинутых
 ```bash
 magnet:?xt=urn:btih:088BCAF9229EC75FF036C401C535672B8220FF77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Stone Voices - Ambient Reverb 7 7.1.7 VST, VST 3 [En]
 ```bash
 magnet:?xt=urn:btih:46E2C439DC56E640134536698C3AE246572B2A7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ AIR Sub Factory для тех продюсеров, которые понима�
 magnet:?xt=urn:btih:D803AD960845F54ADB9C20F8C6AEFE7E59BB9C1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ Phaser Editor — это мощная и удобная среда разраб�
 magnet:?xt=urn:btih:AC074F860152B0BC73519E54E9A57624E84A33D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ Wavesequencer - Hyperion 1.65 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
 ```bash
 magnet:?xt=urn:btih:CA6350BD59F0061839911DED6A8BC2D02E6683C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ Knif Audio & Plugin Alliance - Knifonium 1.4.1 VSTi, VSTi 3, AAX (x64) RePack by
 magnet:?xt=urn:btih:57DAC320E4E69FBC1B647E4D6869B226F882A198
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Arturia - MiniFreak V 4.0.1 STANTALONE, VSTi, VSTi 3 (x64) [En]
 ```bash
 magnet:?xt=urn:btih:B23BF6983B917F68F1FD541C3F1FFFD1D74FC4EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ SketchUP Pro - является профессиональной версией 
 magnet:?xt=urn:btih:CEAC3DFDDF504EFEF2DEAC188C88AB84AA0ABBA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ SketchUP Pro - является профессиональной версией 
 magnet:?xt=urn:btih:D6551B0DF917DAF01128DDFF695166AF5110B862
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ FormatFactory - многофункциональный конвертер раз
 ```bash
 magnet:?xt=urn:btih:41087D1309F9218EA787D9562C3DDF0FE115D177
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

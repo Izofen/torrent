@@ -1,3 +1,32 @@
+###  Публикация: 1571483   (431673) от 22.08.2022
+
+VA - Music News vol.210 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_431673.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 5Утра - Бросила (03:18)
+ 002. 1minute - Love You From The Start (03:24)
+ 003. 42 Dugg - IDGAF (02:19)
+ 004. Aem - На Твоих Окнах (03:09)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:551DA9B5F80C5132B9CA5E947B044483449ABC98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571506   (431677) от 22.08.2022
 
 VA - Dance Queens (2022) [MP3|320 Kbps] <Europop, Dance, R&B, Hi NRG>
@@ -21,6 +50,8 @@ VA - Dance Queens (2022) [MP3|320 Kbps] <Europop, Dance, R&B, Hi NRG>
 ```bash
 magnet:?xt=urn:btih:3552E760DE785F15C7D477ED3835DDE40B2F3DA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - New Funky House vol.238 (2022) [MP3|320 Kbps] <Funky, Groove, Synth Funk, I
 magnet:?xt=urn:btih:0F29D7D96D53A534E49BEA273448196C71A0D5CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ Lynsey De Paul - Compilation (2022) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:58521741E0DB9B2412962EF4F89C66A8800F0828
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ Avalanche - Compilation (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:CB7BBEAEA9D96CB006E97DF27C7B698634CCEA41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +167,8 @@ VA - Invasion Wendigo: Metal Alliance (2020) [MP3|320 Kbps] <Hard Rock, Metal, C
 magnet:?xt=urn:btih:A0E97FDFB8F5A32E14A97A6AFEB19902611618FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +195,8 @@ VA - Disco Disko Vol. 1 (2022) [MP3|320 Kbps] <Nu Disco, Soulful, Funky, Indie D
 ```bash
 magnet:?xt=urn:btih:DBF447E2EFC1193E9147E62409927FAA887751D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ VA - Electro Жесть v.33 (2012) [MP3|320 кб/с]<Electro House>
 magnet:?xt=urn:btih:BBB7D41DEE4634C27F63DA987CBB4A8E803EC1AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +266,8 @@ VA - Лидеры Авто Дискотек 50/50 (2012) [MP3|256 кб/с]<Pop, 
 magnet:?xt=urn:btih:36AE55FD02EFC8857E317B9655A13DDB6A7B4A22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +294,8 @@ VA - Fast Mover: Tech House Electro Sound Mix (2020) [MP3|320 Kbps] <Tech House,
 ```bash
 magnet:?xt=urn:btih:CA63F6CDDB8FF44A01B03542DB37F74E8EFA28D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +324,8 @@ VA - Yellow Day: Pop Folk Music (2020) [MP3|320 Kbps] <Pop, Folk, Dance>
 magnet:?xt=urn:btih:6A773A14DF735A2C36A2582E9A76D6C8E86917F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +352,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:27A2EBD511E51FF3F7DD83C187387ED49C5D9411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +382,8 @@ VA - Best Of 80s (2016) [MP3|320 Kbps] <Pop, Disco, Rock>
 magnet:?xt=urn:btih:E952882087536BDC696EF9A19E2E7DC445A536D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +410,8 @@ VA - Top 100 Зайцев.Нет Август (Зарубежный выпуск
 ```bash
 magnet:?xt=urn:btih:81F7465ECB20D85CF4CB107DBEC5A8BED2BE9D0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +440,8 @@ VA - Для Тех, Кто Помнит! Русский Рок Vol.5 (от Ovvod
 magnet:?xt=urn:btih:6122071CCCC42A992DBAD7CF7EACAE1500592F0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +468,8 @@ VA - Beatport Top 100 House September (2016) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:B9D5E618262231E4946FA890F7830FF99B4B73D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +498,8 @@ VA - Хиты радиостанций. Горячие новинки (2016) [MP
 magnet:?xt=urn:btih:96E902C210271AC0E73BB7056A00197B6217844F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +526,8 @@ VA - The World of Enigmatic Melody (2017) [MP3|256-320 Kbps] <Enigmatic, New Age
 ```bash
 magnet:?xt=urn:btih:0A24797080D817F342BF66F685B5D49A9ED494E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +556,8 @@ VA - Need For Speed Vol.9 (2017) [MP3|320 Kbps] <Hands Up, JumpStyle, Dance>
 magnet:?xt=urn:btih:1E14ADB53A2E8CD914BCAA54C1C6967D4F66FEA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +584,8 @@ VA - 100 хитов от Hit FM. Выпуск 50/50 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:5758C5AAD348D64A86D1F70BBCCFA0308C64353C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +614,8 @@ VA - Dance exclusive №8 (2016) [MP3|320 Kbps] <Dance, Club>
 magnet:?xt=urn:btih:212A020A0DEC20F53D099C3736270AE36DBCADED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +642,8 @@ VA - Лирика шансона 2 (2013) [MP3|320 кб/с]<Шансон, авт
 ```bash
 magnet:?xt=urn:btih:A07797D7EB2922AF6C28C8CC708FF50D0749E8EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +672,8 @@ VA - Отдыхаем Душой На Радио Шансон 2 (2016) [MP3|256 
 magnet:?xt=urn:btih:A60F4EF58672BCFC5266650A377FD6C71C5817A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +700,8 @@ VA - Deep House Collection Vol.135 (2017) [MP3|320 Kbps] <Deep House, Club House
 ```bash
 magnet:?xt=urn:btih:81392DDDEB9ED218FD600575BCBD7897925237C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +730,8 @@ VA - Осенний позитив №2 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:756AC6E1661F2B7F7C0E45D5BE02AE56545B0C07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,32 +759,7 @@ VA - Hits Cocktail Vol.12 (2017) [MP3|320 Kbps] <House, Pop, Dance>
 magnet:?xt=urn:btih:2ABD70A39828B4A7C604F8D576BB48E8288852B4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945282   (432952) от 10.10.2015
-
-Каспийский Груз - Белый (2015) [MP3|192-320 кб/с]<Rap, Hip-hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_432952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Табор уходит в небо
-02. Выдох, Выстрел
-03. Как у Буйнова
-04. На поражение(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:30:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D842B182D5CAA58EC8FD6AEF39B4430C73C7F7EE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

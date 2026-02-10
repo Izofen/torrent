@@ -19,6 +19,8 @@ LIMBO (2011) [Ru/Multi] (3.0.0.1a) License GOG
 magnet:?xt=urn:btih:1EF151CB551ABBE5A89A70254088707A854F39DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ They Always Run (2021) [Ru/Multi] (1.0.15.920) License GOG
 ```bash
 magnet:?xt=urn:btih:AEF97F51D23F5D08B83715663681FB78DA7AEAD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Test Drive®: Ferrari Racing Legends [En] (RePack) 2012 | R.G.Games
 magnet:?xt=urn:btih:80DCA235F75471968EE755799779618331CA2C0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Wolfstride – это ролевая игра, повествующая о по�
 magnet:?xt=urn:btih:41F379E548D4A7AC4A421000E1C5DAC56055AAF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ DarkHouse – игра на выживание в ночной психиатр�
 ```bash
 magnet:?xt=urn:btih:5D91EEAC3C102709758F48A02C6415579165B2E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ Tony Hawk's Pro Skater HD [En/Multi5] (Steam-Rip/1.0.8788.0/DLC) 2012 | R.G. И�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Combat Mission Cold War – варгейм, события которого ра
 ```bash
 magnet:?xt=urn:btih:2175B22901E850B3E63236C524604EDF7D6A3994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Madness Beverage – шутер от первого лица, события к�
 magnet:?xt=urn:btih:D6060F83C586E9D99814ACF5EF4930ABB32120F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ HuniePop 2: Double Date (2021) [En] (1.1.0a) License GOG
 ```bash
 magnet:?xt=urn:btih:EB7C4D4D65DF296CBAB7887CA726BD903E1A11F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Observer: System Redux (2021) [Ru/Multi] (7368691/dlc) License CODEX [Deluxe Edi
 magnet:?xt=urn:btih:44C9130221C0F68F367D3DE2A2FB602749615846
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Dark City 7: International Intrigue (2022) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:8BE0B6811501DCDBFAFD511CC3CCB8BD046FFEC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.0.11/dlc) License CODEX
 magnet:?xt=urn:btih:5937EE4ED5F070F3C331ACA099B8E8FF4DD42B59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Griftlands (2021) [Ru/Multi] (484799) License PLAZA
 ```bash
 magnet:?xt=urn:btih:B644A753B30CD40DD3495BCA9DAD29B67E6A9CAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Bleak Sword DX (2023) [Ru/Multi] (0.3072001) License GOG
 magnet:?xt=urn:btih:51B765B8A4561D7F114A94E8B1513EF1B5B7D784
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:0AD9CA67A2322B4F3202C2E0DBC1722D1B765F45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Project CARS 2 – это вторая часть успешного гоноч�
 magnet:?xt=urn:btih:145713576E94EF4032C553A60E6C9653F821E981
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Dynasty Warriors 7: Xtreme Legends (2018) [En/Ja/Ch] (1.0) License CODEX [Defini
 ```bash
 magnet:?xt=urn:btih:4725E8F6BAE65F169D0C332309527C39AE210DBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Christmas Wonderland 10 (2019) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:DB1E9CD2CB12E2A1072A9EC3D767D9151EE85855
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ CyberTaxi (2020) [En] (10.24xyz) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:E62DD458F4E874E067F8E609684BBB0268E3B41B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Armored Xpress (2021) [En] (1.0.0) License PLAZA
 magnet:?xt=urn:btih:A0951DBA8896F48B4B518AD1ADB387AAEA624C76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Cyjin: The Cyborg Ninja – хардкорный платформер, вдох�
 ```bash
 magnet:?xt=urn:btih:3D30A3FAF842F8AEF4C542BFE4E8B1F7A1545E93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Stronghold: Warlords (2021) [Ru/Multi] (1.9.23494.D/dlc) License PLAZA [Complete
 magnet:?xt=urn:btih:87DE27717A6EF39AFCC3ED6101B7A3EEF48E4377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Blue Fire (2021) [Ru/Multi] (5.0.5/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:80A823687E24B636F325C5B5FE2EF12CB5D5045B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Republique Remastered – игра в жанре стелс от студии Ca
 magnet:?xt=urn:btih:608A886954662375ED442BBAA785CA4E66433F2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Project Pulsation (2015) [Ru/En] (1.0) License HI2U
 magnet:?xt=urn:btih:955EBB7DC2791798AC9D329160BB4E96A905422E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Evoland 2 – ролевая RPG игра разработанная компа�
 ```bash
 magnet:?xt=urn:btih:DDA2BFF4E56B0C00490A575DD65E677F57AA18AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

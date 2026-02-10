@@ -22,6 +22,8 @@ Richard Marx - Ballads (1994) [OGG Vorbis|480 Kbps] <Pop, Ballad>
 magnet:?xt=urn:btih:CDB88E3DC1849F343AC3097CEDD2768C2D855F71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VIVA - Осень (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:F36EF1A56709677FBD53821BDE17ACE40137719C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Billboard Top Pop Hits, 1960 (1994) [OGG Vorbis|480 Kbps] <Electronic, Rock
 magnet:?xt=urn:btih:3677C4403ECDDD9B8F36B9DE54FFAAF00FA5D966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Jay Aston - I Spy (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:3D6ABCDE282E71157E63BB693707FE8816A4D5AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ VA - Absolute Dance (1994) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House, E
 magnet:?xt=urn:btih:5AE10164E0C951CAA58AADC2A7F31153EE6DFA84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ VA - Maxi Hit-Sensation 97-04 (2007) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop
 ```bash
 magnet:?xt=urn:btih:9E250271E2EC526E2D625E9730CA65361F2DDAB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ Band on the Run - третий альбом группы Wings и пятый в 
 magnet:?xt=urn:btih:C9414D0FF6C54EDA1BC2D4C21501D88929480955
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ Mike Mareen - LP Dance Control (1985) Reissue, Remastered, 2022, Klaus Steiner S
 ```bash
 magnet:?xt=urn:btih:D0A1A3A7264CE8D9D6AE079CCE69B00D3ECEE391
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ VA - Flashdance (Original Soundtrack From The Motion Picture) (1983) [OGG Vorbis
 magnet:?xt=urn:btih:44035DDB8B99F612770E124E92C7FFE31FF89DD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +277,8 @@ magnet:?xt=urn:btih:44035DDB8B99F612770E124E92C7FFE31FF89DD9
 ```bash
 magnet:?xt=urn:btih:B355190C194BCD8579E2E94123E42EA352DECAE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +304,8 @@ magnet:?xt=urn:btih:B355190C194BCD8579E2E94123E42EA352DECAE1
 magnet:?xt=urn:btih:CC60FB4660D3EC245DE314771B6BB3B64B92EA93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ magnet:?xt=urn:btih:CC60FB4660D3EC245DE314771B6BB3B64B92EA93
 ```bash
 magnet:?xt=urn:btih:A30521C819195F42B248C1C541BEE11E6042CBA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ magnet:?xt=urn:btih:A30521C819195F42B248C1C541BEE11E6042CBA1
 ```bash
 magnet:?xt=urn:btih:31F7E07DA729370BBDAAB9550471005C610BCEF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +386,8 @@ magnet:?xt=urn:btih:31F7E07DA729370BBDAAB9550471005C610BCEF6
 magnet:?xt=urn:btih:E4C073C8F0F41F0A92388E4F4DDFDE7D2A12755C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ Syntheticsax - Mirage (2021) [FLAC|Lossless|tracks] <Disco>
 ```bash
 magnet:?xt=urn:btih:BA2D2A798D98733372BC523D8CA653B16E9C35E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +441,8 @@ Emin - Now or Never (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Singer-Songwriter
 magnet:?xt=urn:btih:7638C15D1FFAA37801039D50C9BF21AC78C6115C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +469,8 @@ Dalida - Parle-moi d'amour, mon amour (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop,
 ```bash
 magnet:?xt=urn:btih:DBA40FF0DB0A5290C528491BA64CCDCA46F23B5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +499,8 @@ magnet:?xt=urn:btih:DBA40FF0DB0A5290C528491BA64CCDCA46F23B5F
 magnet:?xt=urn:btih:8D625AC58EB4D09872CC9B0E59C3FBC60855DA15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +527,8 @@ Artik & Asti - Качели (2024) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:FAB250F0C02D15EC5164194E9EC71B34672509AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +557,8 @@ VA - Magic Dance Vol. 1 (1995) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
 magnet:?xt=urn:btih:2ABF2A74655A5AD832064124B37D9563563FB901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +585,8 @@ Original Album
 ```bash
 magnet:?xt=urn:btih:EC91C7456FAB5F0B871F80503E60C8A5DA759498
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +615,8 @@ VA - In Love We Trust (Valentine's Day) (2024) [MP3|320 Kbps] <Dance, Pop, Elect
 magnet:?xt=urn:btih:21CDC0460AE94E5BEA13E0C6541C50B511B9A63D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +643,8 @@ Disc 1:
 ```bash
 magnet:?xt=urn:btih:CF9157DB44D35954D64B942C49228BCBB92D916F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +673,8 @@ magnet:?xt=urn:btih:CF9157DB44D35954D64B942C49228BCBB92D916F
 magnet:?xt=urn:btih:46D6073628E13ECAC1751732044B905BB990A627
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +702,8 @@ VA - 100 Greatest Love Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:6C5A38EE587D0C74CAF57E825715F11D975A6B42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -680,6 +730,8 @@ Tavernese - Marea (1978) LP [MP3|320 Kbps] <Pop, Pop Rock, Prog Rock, Funk Soul>
 ```bash
 magnet:?xt=urn:btih:EA22997118B94DAB3EA0D84CAB7B5E9A5FB4C978
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

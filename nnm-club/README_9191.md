@@ -20,6 +20,8 @@ Electricity Logo - невероятная обстановка, вспышки, 
 magnet:?xt=urn:btih:F427B1B00591245CC2B554E26A8973E802C0D385
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Guitar Pro - лучший редактор табулатур с реалист�
 magnet:?xt=urn:btih:50B11E603D826DAD9859DC9796BE2FBC1172DF16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ World of Final Fantasy (2017) [Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:4358472D8EBAAB47AA696B6FE31AA6FE55FBDFD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:4358472D8EBAAB47AA696B6FE31AA6FE55FBDFD9
 magnet:?xt=urn:btih:B2F34B74314D1D72BD5062209EFCAE14C2D0EDB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Vintage Memories Film Projector - винтажный проект, которы�
 magnet:?xt=urn:btih:08F14613AEFBEE03765E740FA3CED028325776BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:08F14613AEFBEE03765E740FA3CED028325776BF
 ```bash
 magnet:?xt=urn:btih:29FCDF8D1D2AB950A9E674EA3CDA8000E0A4C5D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Sandra - The Long Play (1985) [FLAC 2.0 24/192|traks(Vinyl-Rip)]<Electronic, Pop
 magnet:?xt=urn:btih:06764854BCC7FD068EE2B1E9EC8F4D68503BC92D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:06764854BCC7FD068EE2B1E9EC8F4D68503BC92D
 magnet:?xt=urn:btih:7E95F87FF52DCC2CF775CB40067BC03F5DC2DB6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Chip — первый компьютерный журнал в Европе, с�
 ```bash
 magnet:?xt=urn:btih:703A7314743039BE48E2B4DF2604C5C0596408D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:703A7314743039BE48E2B4DF2604C5C0596408D4
 magnet:?xt=urn:btih:103EAA840E05F029F584F56B03D644BEE0BBB8F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Jade Empire (2005) [Ru/En] (1.00) License GOG [Special Edition]
 ```bash
 magnet:?xt=urn:btih:CA093B177B23C70A3D659A4DCF523DB406DD63FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ YURiCa — Flower Drops (2015) [FLAC|tracks] <J-Pop>
 magnet:?xt=urn:btih:9BBAB6D7E2A53C8C9EF608FDB3C2E1F13C2CB343
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ Aoki Hagane no Arpeggio -Ars Nova- OP Single — SAVIOR OF SONGЖанр: OST, Ch
 magnet:?xt=urn:btih:EC6388B1FF5F9611879F0A1C860C855BCE55D9C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ Nioh: Complete Edition — полное издание приключенчес�
 ```bash
 magnet:?xt=urn:btih:B941024EB3A9B8D735EC88DE55F0F9ACD332072F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:B941024EB3A9B8D735EC88DE55F0F9ACD332072F
 magnet:?xt=urn:btih:F1119694540288F9D24CA00F40D12BF1BB77A03A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:F1119694540288F9D24CA00F40D12BF1BB77A03A
 ```bash
 magnet:?xt=urn:btih:292D81861C8D7F0A6A675FC7F0256F5FF6956296
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ VA - Best Of Vocal Trance 2016 (2015) [FLAC|tracks]<Trance>
 magnet:?xt=urn:btih:0BC6C482F1E54B07408E20ED3BAC197083C073B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 magnet:?xt=urn:btih:B86BE39C728DAD5F1C31B1C17DB614C60A0974C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:B86BE39C728DAD5F1C31B1C17DB614C60A0974C0
 ```bash
 magnet:?xt=urn:btih:FA1E25C887CD2A61EC6641D48BFA9E1BDFB197D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ Chihiro Yonekura — BEST OF CHIHIROX II (2015) [FLAC|tracks] <J-Pop>
 magnet:?xt=urn:btih:875582CE22A683400C95BAC94C827EF9499D9809
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ VA - Зайцев нет. Лучшие новинки декабря (2015) [MP3
 magnet:?xt=urn:btih:8E5EE39F6134021041969A4C6FF32AF9225FA6F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:8E5EE39F6134021041969A4C6FF32AF9225FA6F3
 magnet:?xt=urn:btih:B34F06B9E0CB90393C070393B403A695D40E9559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ Microsoft Silverlight - технология, разрабатываемая Mic
 ```bash
 magnet:?xt=urn:btih:9A99B4633DA701B6AB79F6E07DBE1179FD7431D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ Ongaku Shoujo —  3STARS (2015) [FLAC|tracks] <J-Pop>
 ```bash
 magnet:?xt=urn:btih:E1F817D6221CD603DA154D011EA9E6916EF85DBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ Houko Kuwashima — HouKo ChroniCle (2015) [FLAC|tracks] <J-Pop>
 magnet:?xt=urn:btih:0ABDA5AC96430CF5BF430250060A2E005F5464A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ Modern Talking - The Collection (1991) [FLAC|tracks+.cue]<Synth-pop, Disco>
 ```bash
 magnet:?xt=urn:btih:7D6397B75AF384525E6D18F6D603BBECD381D547
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

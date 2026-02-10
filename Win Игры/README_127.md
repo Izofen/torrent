@@ -19,6 +19,8 @@ Apocalypse Party - 3D-рогалик с видом сверху вниз, дей
 magnet:?xt=urn:btih:84876AADBBEA0F0C04F82FA96C2651D48155EA80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Deathbound - действие игры разворачивается в сре�
 ```bash
 magnet:?xt=urn:btih:95207D844140C663F30FDA679983997F723BC87B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Last Plague: Blight является симулятором выживани
 magnet:?xt=urn:btih:3CCF203B2A290A96BF93A68601E07F1700EF529F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Sniper Ghost Warrior Contracts 2 - самая сложная игра в про�
 ```bash
 magnet:?xt=urn:btih:2CFA11E50A93066DDDC91271D0D4AE65BFB3C885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ PO'ed: Definitive Edition - возвращение легендарного ол
 magnet:?xt=urn:btih:5550DF33A6B92BBE231F413757B6DA3CEF1F6FAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ GUNDAM BREAKER 4 (2024) [Multi] (1.07/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:6C110D8A8A7CED83D071BD88389AC38DBAD2481E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Vaporum - это однопользовательская ролевая игр�
 magnet:?xt=urn:btih:44236277C8649EF0F210DC7AD5E0BD5A882AC8E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Strategic Command WWII: World at War - это ваш шанс изменить �
 ```bash
 magnet:?xt=urn:btih:C67875321C02E85BE4F91FBCB8CF5E317C2058CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Strategic Command: World War I (2019) [Multi] (1.15.00/dlc) License GOG
 magnet:?xt=urn:btih:44DC31460E766854CE3D343A70A4DFFE654B11CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ CarX Street (2024) [Ru/En] (1.2.1/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:B2751079448504575F7ACC6675D55BD78BBF8131
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Awaken - Astral Blade (2024) [Ru/Multi] (202411181541/dlc) Scene SKIDROW
 magnet:?xt=urn:btih:32B4DC6246071731FEB7C442B0EE3BFC55A580BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ A Quiet Place: The Road Ahead — это однопользовательска�
 ```bash
 magnet:?xt=urn:btih:2D95063116FB4E9238545F78205290BCCCB7EFD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Alaloth: Champions of The Four Kingdoms (2022) [En] (1.0) Scene Rune
 magnet:?xt=urn:btih:938536BF3D8896A839BD03F29E6CFE0EE5ED2337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Inside the Backrooms (2022) [Ru/Multi] (0.5.3) Repack Pioneer [Early Access]
 ```bash
 magnet:?xt=urn:btih:AFCEEE4C193F8943FE12A950A9F2B77BFCBA55F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Factory Town (2021) [Ru/Multi] (2.2.7) License GOG
 magnet:?xt=urn:btih:6797592138DAB6D33AF5A2A9ACE6CA0378BBDCC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Funko Fusion - это экшн от третьего лица, посвящен�
 ```bash
 magnet:?xt=urn:btih:47920BD1E060A742F395E6247CE1AF840BEC025A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Valheim - выживастик в открытом мире, где вы буд�
 magnet:?xt=urn:btih:08380793ED422F71FB0324660AE42C89DE5EFF82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.2.0.0) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:E6F4BC8DB72EC3C1C7A10170728CD58789E1E9ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ HOT WHEELS UNLEASHED 2: Turbocharged (2023) [Multi] (1358352/dlc) Scene Rune [Le
 magnet:?xt=urn:btih:A784E0CC7E62E368706EA1DCD4FACB7086004869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Stargate: Timekeepers (2024) [Ru/Multi] (1.02.59) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6A0B5ABBE3ABDE46969392CA8F9EC48B0970690D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Not For Broadcast (2022) [Ru/Multi] (2024.09.04b/dlc) Repack FitGirl [Complete E
 magnet:?xt=urn:btih:2F2316818D9EC6E2FB82BDAFF144154B0159F2F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Pumping Simulator 2 отправляет вас в путешествие в м�
 ```bash
 magnet:?xt=urn:btih:B4B38B90D9081064713DF1097988C0E0F3806A18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Once Alive (2024) [Ru/Multi] (0.9.9.8) Repack FitGirl
 magnet:?xt=urn:btih:7041E0BFF2BD1B96FA5E768E063AB561CF3CFA24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Expeditions: Rome (2022) [Ru/Multi] (1.6.0.741.23995/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:FCE443769BD56636C346D0964BBFF0A958650DC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ MEGATON MUSASHI W: WIRED бросает вас в кабину гигантск�
 magnet:?xt=urn:btih:377F846D44FC4E6FF604350122262271B89236DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Vaporum: Lockdown — это приквел знаменитой игры с п�
 ```bash
 magnet:?xt=urn:btih:BB5341EB473240004582D82DD26AE9192185C2F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

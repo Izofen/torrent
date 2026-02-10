@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BB5CDA1CCC22DB1F5D04519FB4C6BE35CD15A8E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:BB5CDA1CCC22DB1F5D04519FB4C6BE35CD15A8E0
 ```bash
 magnet:?xt=urn:btih:5462ADC7A9DE505DC21585F34DDB1847FF10B256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:5462ADC7A9DE505DC21585F34DDB1847FF10B256
 magnet:?xt=urn:btih:5CD73335C3DC144F3EA9D862C6805CFE859E1136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:5CD73335C3DC144F3EA9D862C6805CFE859E1136
 magnet:?xt=urn:btih:D7B0D3C17FF46CD822A236F57426711B6B3AC267
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Rue Valley (2025) [Ru/Multi] (1.0.0v2/dlc) Repack Let'sРlay [Digital Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:F39028EAA16C65E87730DAAF2DDBB5BD3F5EB47D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:F39028EAA16C65E87730DAAF2DDBB5BD3F5EB47D
 magnet:?xt=urn:btih:E3E5535DE1CC8FE770ACFAE222378052CBC16CBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:E3E5535DE1CC8FE770ACFAE222378052CBC16CBC
 ```bash
 magnet:?xt=urn:btih:D22C55BA3AF25D143D262A8C04F6B58A88B5BD77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:D22C55BA3AF25D143D262A8C04F6B58A88B5BD77
 magnet:?xt=urn:btih:38B887B114F68698A06421E637B2497A4FC4C2CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:38B887B114F68698A06421E637B2497A4FC4C2CF
 ```bash
 magnet:?xt=urn:btih:CF693A64A5FBAAD2410B07F7E9BB795523D249AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:CF693A64A5FBAAD2410B07F7E9BB795523D249AA
 ```bash
 magnet:?xt=urn:btih:B9D1772FF87925D00E28AE71913FD54D76FB547C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:B9D1772FF87925D00E28AE71913FD54D76FB547C
 magnet:?xt=urn:btih:58BFE4F4FBEC18F1F1A0A370BAAEDB50BC35D993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ Oblivion - Light of a Distant Star (2015) [FLAC|Lossless|WEB-DL|tracks] <Spacesy
 magnet:?xt=urn:btih:A19BD603BDD8B390DBDDA47A19FAA4E9D5F0B09E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:A19BD603BDD8B390DBDDA47A19FAA4E9D5F0B09E
 ```bash
 magnet:?xt=urn:btih:F3624D81EAB05234627B1EFA4435422383BDACE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ Double Commander - это свободный, с открытым исходны
 magnet:?xt=urn:btih:9ABC6770AA6A4E77FED01C83094B773FC97FDE30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:9ABC6770AA6A4E77FED01C83094B773FC97FDE30
 ```bash
 magnet:?xt=urn:btih:1499F1EDA88C3CEC12EC3CC859B78F3360C4B6D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ Oblivion - Walking On The Other Side (2019) [FLAC|Lossless|WEB-DL|tracks] <Space
 magnet:?xt=urn:btih:4D025D900573ABA0395732266141CE5440FC59BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ Oblivion - Collection (2021) [MP3|320 Kbps] <Spacesynth>
 magnet:?xt=urn:btih:9177B8EB8B543887ACE91EFE403C013FE469CFF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:9177B8EB8B543887ACE91EFE403C013FE469CFF0
 ```bash
 magnet:?xt=urn:btih:DA51D06A4A6FD38E5B13698763B23420BE68BD68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ Phobotrax - To The Stars (Including Other Remixes) (2018) [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:302664CCD4C64DD707C18C457E8950E60858FF71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:302664CCD4C64DD707C18C457E8950E60858FF71
 magnet:?xt=urn:btih:ECFC28EE40947D84161F5DDDF0F65A10F880D845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:ECFC28EE40947D84161F5DDDF0F65A10F880D845
 ```bash
 magnet:?xt=urn:btih:0DEE007EB5D80D6E069AE4C3B98D6A0B3B411C95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ DeepChord - Label Pack (2000-2003) [MP3|192-320 кб/с]<Dub Techno, Ambient, Mi
 magnet:?xt=urn:btih:0E131144507760C6DE06EC4DFA6B2DE58049883F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:0E131144507760C6DE06EC4DFA6B2DE58049883F
 ```bash
 magnet:?xt=urn:btih:C7A2EAB050D6A73704DB901149502FE54C5FB945
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ magnet:?xt=urn:btih:C7A2EAB050D6A73704DB901149502FE54C5FB945
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:C7A2EAB050D6A73704DB901149502FE54C5FB945
 ```bash
 magnet:?xt=urn:btih:DAC055D879BC53150801FE6D8CFF5E5A48AED5D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:DAC055D879BC53150801FE6D8CFF5E5A48AED5D8
 ```bash
 magnet:?xt=urn:btih:E04468327BBBA61DE8DEB031803DA79A2104AC54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

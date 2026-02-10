@@ -1,3 +1,29 @@
+###  Публикация: 944976   (437713) от 08.10.2015
+
+Е. Левашева (ред.) | Как грамотно приготовить мясо (2015) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_437713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для вашего удобства книга начинается с главных правил приготовления мяса, которые помогут в работе. Далее вас ждут вкусные и вполне доступные рецепты по типам мясных блюд. Четкие инструкции, точный перечень ингредиентов, указание времени приготовления - обо всем этом позаботились мы, а вам остается только соблюдать рекомендации и наслаждаться процессом.Жанр: КулинарияФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:448FA55AE2EC6469FE132318146333086AEDA7D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944735   (437715) от 08.10.2015
 
 Эрл Монтегю | Багуачжан. Практическое применение тайных приемов (2003) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:36E540F64C057BFF5F004BB696D1022260D93B73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:36E540F64C057BFF5F004BB696D1022260D93B73
 magnet:?xt=urn:btih:19EBCAAA1CC59B974A8F5401774600F204D18580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:19EBCAAA1CC59B974A8F5401774600F204D18580
 ```bash
 magnet:?xt=urn:btih:3BF828ED1A251A7F2165CFED73DADD4CEABF6906
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:3BF828ED1A251A7F2165CFED73DADD4CEABF6906
 magnet:?xt=urn:btih:A6C634B4B7007E1B764AF4FB676EB7DBFC2DE13C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:A6C634B4B7007E1B764AF4FB676EB7DBFC2DE13C
 magnet:?xt=urn:btih:C5E8044F18766289E7B6B35AAD543B383113D3E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ magnet:?xt=urn:btih:C5E8044F18766289E7B6B35AAD543B383113D3E4
 ```bash
 magnet:?xt=urn:btih:4FE1D53142C6264BF546017B0BD632C83B0F12F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:4FE1D53142C6264BF546017B0BD632C83B0F12F3
 magnet:?xt=urn:btih:41FE5AAC3A392D97478CC671C8CAE485DA2ECE9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:41FE5AAC3A392D97478CC671C8CAE485DA2ECE9B
 ```bash
 magnet:?xt=urn:btih:95CECFD9AFFDF5A89ED6280AE87BC4427103D107
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:95CECFD9AFFDF5A89ED6280AE87BC4427103D107
 magnet:?xt=urn:btih:29E2F496564A938BC6DA2D128E33299244541714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:29E2F496564A938BC6DA2D128E33299244541714
 ```bash
 magnet:?xt=urn:btih:ED0786C654E2AD5D234A87ABA46ABA3C0CAC767C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:ED0786C654E2AD5D234A87ABA46ABA3C0CAC767C
 magnet:?xt=urn:btih:1BD9269A2BCB3083A11BC07BC05FF876FBFFD9DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:1BD9269A2BCB3083A11BC07BC05FF876FBFFD9DA
 magnet:?xt=urn:btih:CFE3D8E95E00B8B8C1CED1A02CC5817220F14FC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:CFE3D8E95E00B8B8C1CED1A02CC5817220F14FC5
 ```bash
 magnet:?xt=urn:btih:A3FC466F3E286EC086301458DAAE93F7EB4FCFC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:A3FC466F3E286EC086301458DAAE93F7EB4FCFC1
 magnet:?xt=urn:btih:10827BAC1CEC5E10B57C87BF0F7043A8291383C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:10827BAC1CEC5E10B57C87BF0F7043A8291383C9
 ```bash
 magnet:?xt=urn:btih:0C1B97CFC4D6E6A5203D02154C495B0DCD0BE802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +446,8 @@ magnet:?xt=urn:btih:0C1B97CFC4D6E6A5203D02154C495B0DCD0BE802
 magnet:?xt=urn:btih:98F4F1D3F644AD268DE5FE54C327F03487A9B2D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:98F4F1D3F644AD268DE5FE54C327F03487A9B2D5
 ```bash
 magnet:?xt=urn:btih:1D4C0C375A2687930E83D9E0FA6D75DF04162057
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:1D4C0C375A2687930E83D9E0FA6D75DF04162057
 magnet:?xt=urn:btih:B4795B5FD3BD42BBB8D0A38A2F0FAAA1878BBCCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:B4795B5FD3BD42BBB8D0A38A2F0FAAA1878BBCCE
 magnet:?xt=urn:btih:1BCB303EE698095AB3EDB8CE958AFD62967F4453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:1BCB303EE698095AB3EDB8CE958AFD62967F4453
 ```bash
 magnet:?xt=urn:btih:97D691A3237689A8C1571DBF025E77D9B0F968C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:97D691A3237689A8C1571DBF025E77D9B0F968C7
 magnet:?xt=urn:btih:B00666447BF7592088E7F752408F9F56B9200248
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:B00666447BF7592088E7F752408F9F56B9200248
 ```bash
 magnet:?xt=urn:btih:FBF814B81B65FAC5A6F46921AADAACCB6B2BC08C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:FBF814B81B65FAC5A6F46921AADAACCB6B2BC08C
 magnet:?xt=urn:btih:D51197B7D75B8A6AC97EFB8CA79135DAEE194B38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:D51197B7D75B8A6AC97EFB8CA79135DAEE194B38
 ```bash
 magnet:?xt=urn:btih:27E03ED55423D93C3DE7B4503E20ADEF99670607
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,31 +682,7 @@ magnet:?xt=urn:btih:27E03ED55423D93C3DE7B4503E20ADEF99670607
 magnet:?xt=urn:btih:EF00CBFFCE132FB50C44735AC3A36304309D7D81
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945012   (438414) от 08.10.2015
-
-Н. А. Ковальский | Международные католические организации (1962) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_438414.jpg" />
-</div>
-
-
-###  Подробнее
-
-Брошюра представляет собой научно-популярный очерк структуры и деятельности международных католических организаций.
-
-Создание массовых католических светских организаций, в том числе международных,— новый вид деятельности Ватикана. Эти организации являются одним из средств, при помощи которых Ватикан надеется приостановить кризис католической церкви, обусловленный (   Читать дальше...   )Жанр: История, религиоведение, политологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6015689051EFAC47CC9C9654C00609B528F7872
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

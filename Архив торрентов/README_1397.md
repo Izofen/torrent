@@ -19,6 +19,8 @@ Diamond Cut Forensics Audio Laboratory 11.0 [En]
 magnet:?xt=urn:btih:E66166F1C9231EB251D8B57D9AB72587B7A369E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ XnView - утилита, предназначенная для просмотр�
 ```bash
 magnet:?xt=urn:btih:3043B2429D3250A129C810B992D934D167D132E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Advanced SystemCare PRO - это мощный пакет для оптимиза
 magnet:?xt=urn:btih:8F450587FE5EC70CA10AABA11E00CACD218A8484
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ XnView Shell Extension 4.1.9  + Standalone  [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9A8DD0D85573A019CEE94C0B68400C628BC25859
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:99AE312E35097FB8BADDA628FA7A787D635F1690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Tor Browser Bundle 11.5.7 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:AB47EDEA46DD84741716A3AEA62548E49237F4D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:8AB24CB84B7FABBC4289FB37E038B546DD472B78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ XnView MP - мощное многофункциональное приложен
 ```bash
 magnet:?xt=urn:btih:245C0E623331E15E479B96BC53C26768957D532E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ iTubeGo YouTube Downloader 6.5.0 Portable by zeka.k [Ru]
 magnet:?xt=urn:btih:A7172C0F58D32A931478972F2DEE6448F1BED915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ YUMI (Your Universal Multiboot Installer) - бесплатная програм�
 ```bash
 magnet:?xt=urn:btih:6845BE67161D599A465099076A4B79B4825E111F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Moon Reader - проект-читалка которая весьма извес
 magnet:?xt=urn:btih:0D3707E2486A2CBD09992F13FAC94E47ED4CDA19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:0D3707E2486A2CBD09992F13FAC94E47ED4CDA19
 ```bash
 magnet:?xt=urn:btih:D2E96D89EB25E096F91ECFBF1C1F6BA0C3D75AD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Windows 11 (v22h2) x64 PRO by KulHunter v1 (esd) [En]
 magnet:?xt=urn:btih:2AD727137E7A1CEF03A1486D98C68531D552C084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ iZotope Ozone – полноценное и функциональное при�
 ```bash
 magnet:?xt=urn:btih:FBBDCEB8504855634157000D79FBE985494C892A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ AutoPowerOptionsOK — небольшая по размеру утилита, п
 magnet:?xt=urn:btih:71A01288ECBF8E9B0BC935928E65FF808F4984B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Universal USB Installer – портативная программа для с�
 ```bash
 magnet:?xt=urn:btih:5EFAFD95942CCAA1AFD34309D00462A1241D185A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ IceCream Ebook Reader Pro 6.35 [Multi/Ru]
 magnet:?xt=urn:btih:8A4B8EDAB6AA621FF0EF0C726272D7F5CDDD21D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Windows 11 Manager - это универсальная утилита специ
 ```bash
 magnet:?xt=urn:btih:95F29642A595E619DAA25D38EF41B5F8B6A71AC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ SophiApp — это графический наследник Sophia Script for 
 magnet:?xt=urn:btih:93BB1BAB15781BB0CED4057DD9165691DFA21CEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ DirPrintOK 6.91 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:1DBE6A615E3C48CDC628A83635081C3D541E86A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:0EA08D11A5C3611862942AA8FCF6BFFBB4D66082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ DesktopDigitalClock - простые и красивые цифровые час
 magnet:?xt=urn:btih:3B810062B5AB073169D9B81C5A9CC0F237431966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Compressor – простой и мощный инструмент для сжа
 ```bash
 magnet:?xt=urn:btih:B1A618C647F82846B8C92A53A3361AA0A8D1CFEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Beyond Compare – мощная и одна из лучших программ �
 magnet:?xt=urn:btih:04BC83CCF37A8B018724E319978CBFB996B0E0D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 ```bash
 magnet:?xt=urn:btih:7CFBE8515D09C4AED572E1D39A75B71179512E64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +674,8 @@ Mirillis Action! 4.37.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EBF738B86B130DD9C75B9D0D41060A1A36311395
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

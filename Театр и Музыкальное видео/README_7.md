@@ -19,6 +19,8 @@ Iron Maiden - Live After Death [2008 г., Heavy Metal, 2xDVD9] (2008) DVD
 magnet:?xt=urn:btih:67E58821F388FACD107C8F045359518230F9F66C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:67E58821F388FACD107C8F045359518230F9F66C
 magnet:?xt=urn:btih:E387AEFACF82D52B66CD8CA631283EACA7665291
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:E387AEFACF82D52B66CD8CA631283EACA7665291
 ```bash
 magnet:?xt=urn:btih:6E120F94186EF2BBB0CC959D4DDFC791C55CA2D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:6E120F94186EF2BBB0CC959D4DDFC791C55CA2D9
 magnet:?xt=urn:btih:C3A19FE726ECD2EA1520DD50869D7E236471BE4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:C3A19FE726ECD2EA1520DD50869D7E236471BE4E
 ```bash
 magnet:?xt=urn:btih:2C8D67658A680D7A3D901FD43A1CF603470AF3F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:2C8D67658A680D7A3D901FD43A1CF603470AF3F7
 ```bash
 magnet:?xt=urn:btih:32658FC434F1C816A55F6BDEBA7214B0E55EDB96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ W.A.S.P. - The Sting: Live At The Key Club, L.A. (2001) DVD5
 ```bash
 magnet:?xt=urn:btih:2EDF6ECD6859C590046DA22974097DEECD1C4031
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Cliff Williams - bass, backing vocals(   Читать дальше...   )01. Sti
 magnet:?xt=urn:btih:505B846DFE00C86935F344D0BB4B7E36A2CD66B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:505B846DFE00C86935F344D0BB4B7E36A2CD66B1
 magnet:?xt=urn:btih:5E28E1FABC34F7AA217AA203AB9388A0710FA907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ Live In Dortmund In 1992
 ```bash
 magnet:?xt=urn:btih:7DDA164D4C0E33D93D46968965D27C7B62C36A75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ Cheap Trick - Silver (1999/2005) DVD9 <Hard Rock, Power Pop>
 magnet:?xt=urn:btih:5FB46E14131E27DD7949A748C69C8FAEEDD34C40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ Kiss: "Rock the nation. Live!" (2005)  DVD9x2
 ```bash
 magnet:?xt=urn:btih:F6582C18BB9E36431DBCDE8AD7E8B3A7C3F157AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +359,8 @@ PHIL LANZON - Keyboards And Vocals(   Читать дальше...   )Форма
 magnet:?xt=urn:btih:ACB1AABB9D054FBA55E1A5CE033CCFB07F1FCAAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +387,8 @@ Deep Purple 1972/1973 Copenhagen - New-York (2005) DVD9
 ```bash
 magnet:?xt=urn:btih:207CECD633C1CE4C8FB27C1133F800BA6A92A22C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +419,8 @@ Paul McCartney,Bryan Adams, Keith Airley, Atomic Kitten, Shirley Bassey, Tony Be
 magnet:?xt=urn:btih:3CAE5843BAF648FFA10C2F7B843D53407E9135EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +444,8 @@ Pink Floyd. The Wall (1982) DVD9
 ```bash
 magnet:?xt=urn:btih:7525DCBA92DCC45DC56446C72C7897FE981A0BED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +474,8 @@ Deep Purple - History, Hits & Highlights '68-'76 (1968-1976) 2*DVD9
 magnet:?xt=urn:btih:FE24428D9BE6BA9A70D2C2837A09C2F7390075DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +499,8 @@ magnet:?xt=urn:btih:FE24428D9BE6BA9A70D2C2837A09C2F7390075DA
 ```bash
 magnet:?xt=urn:btih:6F2E809003466CDCF4E75E165826E13EFFFC1845
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +529,8 @@ Rainbow - Live In Japan 1984 (2015) DVD9
 magnet:?xt=urn:btih:496604699D986EAF94CD8665174EA2C7576A62E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +555,8 @@ magnet:?xt=urn:btih:496604699D986EAF94CD8665174EA2C7576A62E6
 ```bash
 magnet:?xt=urn:btih:94BBF987A01122638B258AC1D3440483A37A1561
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +584,8 @@ magnet:?xt=urn:btih:94BBF987A01122638B258AC1D3440483A37A1561
 magnet:?xt=urn:btih:5375E76041119B69A8F85458D5E5D7583C869202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +609,8 @@ Use Your Illusion Ultimate - двойной DVD группы Guns N' Roses. Пе
 ```bash
 magnet:?xt=urn:btih:680D371936FF0916B876A88CF294CB844A6354AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +636,8 @@ magnet:?xt=urn:btih:680D371936FF0916B876A88CF294CB844A6354AC
 magnet:?xt=urn:btih:8022315AC5D88E30B10BADDACA0DEC7183CA9325
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +661,8 @@ Depeche Mode - Personal Jesus (1990) HDTV [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:037D34E0EB41E1597AA9C93161F3287BD84852F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +689,8 @@ magnet:?xt=urn:btih:037D34E0EB41E1597AA9C93161F3287BD84852F8
 magnet:?xt=urn:btih:E5EAE96166F6119DCD1DABB152E462A426542AAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +715,8 @@ magnet:?xt=urn:btih:E5EAE96166F6119DCD1DABB152E462A426542AAC
 ```bash
 magnet:?xt=urn:btih:4DE1B122C74909F3F6395B03E068984B16734496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

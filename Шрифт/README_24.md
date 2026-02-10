@@ -19,6 +19,8 @@ Rapor — это мощное и элегантное сочетание, соз
 magnet:?xt=urn:btih:755DE7EF8FE146F76CD4AB9150F09397176BDDB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Kelpt Sans — это измененная модифицированная фо
 magnet:?xt=urn:btih:BDA0B82C1DA75C16A48297545FB0B20BEBB4D77C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Bari Sans — это сплошной гротескный шрифт с нап�
 ```bash
 magnet:?xt=urn:btih:31C3607C9B86244E06D5A013485B1DDCF3334169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:31C3607C9B86244E06D5A013485B1DDCF3334169
 magnet:?xt=urn:btih:C271B82A71EE9C1CD324DB43895250C9DFA5B25C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Glakion - современный шрифт с засечками от Gracetype
 ```bash
 magnet:?xt=urn:btih:C2BB241D64316656A5B5D1C71D8C543BDF624B9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:C2BB241D64316656A5B5D1C71D8C543BDF624B9A
 magnet:?xt=urn:btih:38D659A5267AAAC8AE23F17C6D46B1E5374E1938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Raking Font — это смелый и элегантный дисплейный
 ```bash
 magnet:?xt=urn:btih:503B305960AA53B633DB6412683C3488939333CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:503B305960AA53B633DB6412683C3488939333CE
 magnet:?xt=urn:btih:3ED61B83FBD68D52064D400CE05DBC4E3CC90E45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Bimbo расширяет оригинальный дизайн шестью но
 ```bash
 magnet:?xt=urn:btih:EFA3DF268E8AB8BF2D04B83D69AC31787608B256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:EFA3DF268E8AB8BF2D04B83D69AC31787608B256
 magnet:?xt=urn:btih:A975CE9DC6208D1EDEB4BE604A664B95E5475D2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Morina Borick — элегантный современный шрифт с за
 ```bash
 magnet:?xt=urn:btih:A4532332371267E0B62AC8DBBAC3554BFE9F4F51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:A4532332371267E0B62AC8DBBAC3554BFE9F4F51
 magnet:?xt=urn:btih:61E7609A53C1532B81D05B18C7AC27FBCC169209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Royale Couture — это незаменимая коллекция шрифто
 ```bash
 magnet:?xt=urn:btih:328A3ED83BA56960EC9C626BBB93643AAAB4849E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Malabar — это тщательно созданный рукописный ш
 magnet:?xt=urn:btih:A8928ADFE80C26C810665189F0F0D59DB34D5638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:A8928ADFE80C26C810665189F0F0D59DB34D5638
 ```bash
 magnet:?xt=urn:btih:55A27C0094D94A86A2F29A29A2BB5F02D834C8CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ Minyanot | Современный шрифт с засечками от Denustud
 magnet:?xt=urn:btih:D81EC9BE72770A0FF923CBB1BC17F0883F135441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ Ozilic — это тщательно созданный шрифт с засеч
 ```bash
 magnet:?xt=urn:btih:685E9A8322F2C210F67FAF46C453F59ABBD08B1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ Syclone шрифт от Denustudios, подходящий для любых пр
 magnet:?xt=urn:btih:838AA26E527A16A0FB6DC2BE06DE8E82BA2ECCAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:838AA26E527A16A0FB6DC2BE06DE8E82BA2ECCAF
 magnet:?xt=urn:btih:FBEA0145E011675586094A6F819AD278A129AAF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ Raclie, вневременной элегантный шрифт с засечк
 ```bash
 magnet:?xt=urn:btih:CDE36DE3A1DA77F3E8D16CD8252BB18E9C937551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:CDE36DE3A1DA77F3E8D16CD8252BB18E9C937551
 magnet:?xt=urn:btih:9BDA95937A65DAB6FAE25713AB95C90A68A813B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ Methalic Script — смелый и заводной ретро-шрифт, вд
 ```bash
 magnet:?xt=urn:btih:702471EAB3882C2301CB90249549A5FEF1B5FF93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ Larchen — это шрифт с лигатурными засечками, см
 magnet:?xt=urn:btih:D0903E48F778E6BD7BE339DDD3E9B7B03E815DCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:D0903E48F778E6BD7BE339DDD3E9B7B03E815DCD
 magnet:?xt=urn:btih:474EB7004E83041992318C1EC0F660F5B19745E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:474EB7004E83041992318C1EC0F660F5B19745E9
 ```bash
 magnet:?xt=urn:btih:1AF27509EF3D46259325BF6B14692C281174EC1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:1AF27509EF3D46259325BF6B14692C281174EC1D
 ```bash
 magnet:?xt=urn:btih:D10FF078C4E9FB9DC9E58B54CBD8C0B5D92A6CC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

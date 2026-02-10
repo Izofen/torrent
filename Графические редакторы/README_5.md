@@ -19,6 +19,8 @@ Tux Paint - это бесплатная, отмеченная наградами
 magnet:?xt=urn:btih:BD6096B9FA1DED4E6693E4E5A37AF5FD1E9A2A32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ DxO PhotoLab 9.1.0 Build 488 [Multi]
 ```bash
 magnet:?xt=urn:btih:40E4B226D5593561AD73999EC6CDA0DB350055A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:90395B95B2576ABA182B83A99746F5858D4C8D6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ CorelDRAW Graphics Suite 2024 25.2.0.301 (x64) Portable by conservator [Ru/En]
 ```bash
 magnet:?xt=urn:btih:AE9B4F865C65CB36FABD61A431537C85E3704E42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 magnet:?xt=urn:btih:07C0EC34B2169D822BD3938481401A051D2EB599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:6EF020EAB9D2B91284B798D1D0AFC7106117AA4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Affinity Photo — обеспечивает более высокую скоро
 magnet:?xt=urn:btih:58AB3800D1018FA30A6F53A538103D3FE2E8E9D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Affinity Designer — самое быстрое, удобное и точное 
 ```bash
 magnet:?xt=urn:btih:1197CB5DAD1781BC5DCD1EC3C582E71B9BFEDCD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Affinity Publisher - программное обеспечение нового 
 magnet:?xt=urn:btih:3DB23A0041709C13D008E8BA2014FEDF9866F17E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:F8487948EAFD146CECC4E0940EDD58314E596DB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Screensaver Factory - простая и интуитивно понятная п
 magnet:?xt=urn:btih:E655B9B3E19FFD0C91A46E9E268242F92295BC10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Radiant Photo - это программа для редактирования ф
 ```bash
 magnet:?xt=urn:btih:DE478A4137B1E6DDC635C72335ADB55F8C0F8D57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Aiarty Image Enhancer (с генеративным ИИ) — это соврем
 ```bash
 magnet:?xt=urn:btih:51AFA144761519EA2B42B7743C5D6B792555E936
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Luminar Neo – это отдельный редактор, который вк�
 magnet:?xt=urn:btih:5AD9A882CBE3E5D5C56E144EC1AC082DF0ED9BBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Adobe Character Animator 2024 24.6.0.66 (x64) Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:58BAEE1D6A4D186CFD2C0F83D8F8F81E43AE1276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ BenVista PhotoZoom Pro 9 — это программное решение ном
 magnet:?xt=urn:btih:CEC258AB527F7961144CBF936835214555FD49BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Adobe Photoshop Lightroom Classic 2024 13.5.0.12 (x64) Portable by 7997 [Multi/R
 ```bash
 magnet:?xt=urn:btih:42C4CACDB2FA53119A5910E9B4CDDF24495F4B7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Inpaint - позволяет умно удалять нежелательные 
 magnet:?xt=urn:btih:CE1D19A685770498090ED51694AD790100A89DFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Inpaint - позволяет умно удалять нежелательные 
 ```bash
 magnet:?xt=urn:btih:CD3986E280546E40D50C491B5A0391FEFE528CB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ BenVista PhotoZoom Pro 9 — это программное решение ном
 magnet:?xt=urn:btih:F47EC4AC047E16259DCC654102F74D43BBC945DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Xara Web Designer Premium 19.0.1.65946 [Multi]
 ```bash
 magnet:?xt=urn:btih:3F9841FA68FAA3EBFCB62B2B9DB82EF62181841E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ Exposure X7 понравится всем тем, кто ценит фотоис
 magnet:?xt=urn:btih:DE48DFA4567CF90780A4EA87D71A183E1AA759BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ DxO PhotoLab Elite 7.8.0 build 254 (x64) Portable by conservator [Multi]
 ```bash
 magnet:?xt=urn:btih:A0FB96A64A478253355328D510C8ED60FB014B13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ BenVista PhotoZoom Pro 9 — это программное решение ном
 magnet:?xt=urn:btih:E7BD4AB0EFD06CB1A35C48F45D6D452B22EB4898
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ FotoJet Designer - это графический редактор, основн�
 ```bash
 magnet:?xt=urn:btih:86823187A5371BB405B0164A93447BB81ED51D4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +684,8 @@ FotoJet Photo Editor - позволяет каждому стать экспер
 ```bash
 magnet:?xt=urn:btih:87F39A1F7A56533A851AC4625DE221A0F661D517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

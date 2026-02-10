@@ -19,6 +19,8 @@ EazyDraw от Dekorra Optics – графическая программа, со
 magnet:?xt=urn:btih:856A0894246A4C743DE81A0EFC6EA9EFE5E789C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ DropDMG 3.5.9 [Multi]
 ```bash
 magnet:?xt=urn:btih:167EE73DD236F1C64C41A4FECD91F000E010E564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ TG Pro — контроль температуры и вентиляторов �
 magnet:?xt=urn:btih:F252489A912B4C2585DF36E272FD9A998D9191EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ PullTube 1.2.8 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:97F9C6A3A0AEC1CFA3F8163792C80BC9B8244B66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Disk Graph - инструмент, который позволяет прове�
 magnet:?xt=urn:btih:F2FB524F979D1610230D67B0EB71D0A3F3AC9A71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ PrefEdit - уникальное приложение для просмотра �
 ```bash
 magnet:?xt=urn:btih:E7AAECE4736A3067F4025AD22F21362508EB134B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ bovaflux - aux4419 (2019) mindcolormusic [FLAC|Lossless|WEB-DL|tracks] <Electro,
 magnet:?xt=urn:btih:25E0AF54579DB1191CB3011B3A178F9B0B4803A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ SuperDuper! - Утилита для клонирования жесткого д
 ```bash
 magnet:?xt=urn:btih:B430C066EA09BF3B8F987A348FE7439AD6767943
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Feeder - это полнофункциональное приложение дл
 magnet:?xt=urn:btih:CFC1F7AC888C6C598334C611412CFE481DE11FF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Scherlokk является утилитой для быстрого поиска
 ```bash
 magnet:?xt=urn:btih:708C18B458480439A48DEE781155DF3C700CC230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Ph
 magnet:?xt=urn:btih:EF2087485418EA6AAE64D1D4EA471C96F4EB0A23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ DiskCatalogMaker  - Простая утилита для управления и
 magnet:?xt=urn:btih:20F13B3D050E037F6CFC26FBA8D94F8675B1DF24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ SketchUP Pro - является профессиональной версией 
 ```bash
 magnet:?xt=urn:btih:AADAE68992C8708352E1D993A7C5C7D7F3268805
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:AADAE68992C8708352E1D993A7C5C7D7F3268805
 magnet:?xt=urn:btih:3AB06D2DFBC1A7A6E70342029E05FC4D996856A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:3AB06D2DFBC1A7A6E70342029E05FC4D996856A5
 magnet:?xt=urn:btih:2B1B69C59FEA8622156178860AF5D4027C086D7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:2B1B69C59FEA8622156178860AF5D4027C086D7A
 ```bash
 magnet:?xt=urn:btih:188C817D3644CE782BF2DB12920844EB3E182B24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ CEE - Central Eastern Europe original (   Читать дальше...   )Пе�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ DisplayFusion - программа для управления обоями ра
 ```bash
 magnet:?xt=urn:btih:1060DA8F3DD58DCE8421C4AD0787B3AC1D2E18DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:1060DA8F3DD58DCE8421C4AD0787B3AC1D2E18DD
 magnet:?xt=urn:btih:EA0893593FE05EEB6BB8B4CF8BBF3B9D9AB2F1FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ Snooper - программа-шпион по-тихому пишет все зв
 ```bash
 magnet:?xt=urn:btih:6E19BEE462814E011FCB04B165AC89EB32B85AE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ YUMI (Your Universal Multiboot Installer) - бесплатная програм�
 magnet:?xt=urn:btih:53FFFB22B7D11159E33DED38C51925CA18933B64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ Epic Pen – настольная программа для Windows, позво�
 magnet:?xt=urn:btih:126098852F5EF94B7CA939106D52508C2D67D164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Autorun Organizer - простое в использовании приложе�
 ```bash
 magnet:?xt=urn:btih:DC3B8946091673DFF3D1A7B79297C9C88F87D2A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ WISIWYG-редактор - “что видишь, то и получишь”. 
 magnet:?xt=urn:btih:7E3E8FE15E72856FA8F3E2E0D18639E889A6C380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ Apowersoft ApowerRec - программа для захвата и записи 
 magnet:?xt=urn:btih:C9400534C04120CB3F76F00C112AD450774225AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Twinkstar - китайский браузер на базе Chromium. В Twinkst
 ```bash
 magnet:?xt=urn:btih:994EDC5A72FC547191B67565B747C065D7583654
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

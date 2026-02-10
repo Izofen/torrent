@@ -19,6 +19,8 @@ AnyMP4 DVD Ripper - приложение для копирования DVD-фи�
 magnet:?xt=urn:btih:A64C075992DDC50C5351F01033BA0F60AB5AA0E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:A64C075992DDC50C5351F01033BA0F60AB5AA0E4
 magnet:?xt=urn:btih:8201EB744D54778D4F52693441F15BC1766F552C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ R-Wipe & Clean - программа для невосстановимого уд
 ```bash
 magnet:?xt=urn:btih:7393AE503A61F0006F3DF34A7879908B4832360E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:7393AE503A61F0006F3DF34A7879908B4832360E
 magnet:?xt=urn:btih:35C9731E53CE5E6669315A5EB72C4F661174AD3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Omni Toolbox - это обширный набор инструментов дл�
 magnet:?xt=urn:btih:2A6954B08897EB74A57D2583CBB314CB37BA5E2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ uTorrent Pro 3.5.5 Build 46276 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:1AA03E0E665CEBDD6C4F7DC693A36A66AB2AE2E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:1AA03E0E665CEBDD6C4F7DC693A36A66AB2AE2E9
 ```bash
 magnet:?xt=urn:btih:DFE0F94CB5C1655E86B61130C604F6F4033A06A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Krudus - Krudus (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
 magnet:?xt=urn:btih:4D87F9A862D5CCCA7327BE027FEEFB1734A6502F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Tipard DVD Ripper для Mac — одна из лучших программ д�
 magnet:?xt=urn:btih:15383D6D2070606C5A678133259AC08E37FB5B32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:15383D6D2070606C5A678133259AC08E37FB5B32
 ```bash
 magnet:?xt=urn:btih:5872EDF9F82004F8FCDF38BEB3404DDCDD2B9FB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:5872EDF9F82004F8FCDF38BEB3404DDCDD2B9FB7
 magnet:?xt=urn:btih:FFC1A5F565A55ED5D64FC58F174990D50B06A284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:FFC1A5F565A55ED5D64FC58F174990D50B06A284
 magnet:?xt=urn:btih:827CEDB434F2ED2AF6780AAB4B697786560B9E7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:827CEDB434F2ED2AF6780AAB4B697786560B9E7F
 ```bash
 magnet:?xt=urn:btih:54BA9E1C9ECBB39466A7CC3A7B444F828232CCEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Horace Silver Quintet - The Stylings Of Silver (1957) 1996, Toshiba-EMI [FLAC|Lo
 magnet:?xt=urn:btih:9D353B872CA6AEF4911E6E75D2171787F40652C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ Simply Red - Time (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Funk, Soul>
 magnet:?xt=urn:btih:FCA3FDF313198B34D764AE87D3AF138B87E8B717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:FCA3FDF313198B34D764AE87D3AF138B87E8B717
 ```bash
 magnet:?xt=urn:btih:E7BC21E5CB488C11F5E848290DCEB50FA5FE3D80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:E7BC21E5CB488C11F5E848290DCEB50FA5FE3D80
 magnet:?xt=urn:btih:BB13D7C6DC06528758EC53037CBCD54B31EC7BFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ MediaHuman YouTube Downloader 3.9.9.84 (1407) RePack (& Portable) by elchupacabr
 magnet:?xt=urn:btih:762F0E37FA99A10F58FD8FA5311EA4532D923EB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:762F0E37FA99A10F58FD8FA5311EA4532D923EB0
 ```bash
 magnet:?xt=urn:btih:C6C8C13F6AA40735E1840F7471D5AADCB22EA61C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ Rock-H (Рокаш) - 4 Albums + 3 Single (2012-2021) [FLAC|Lossless|tracks] <Fo
 magnet:?xt=urn:btih:A4AA91019459DDD6306CB611AA810BC876573CC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ Horace Silver - And The Jazz Messengers (1955) 1987, Blue Note [FLAC|Lossless|tr
 magnet:?xt=urn:btih:D50EBEB4DDB70686658AB701FA741180F01C71FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:D50EBEB4DDB70686658AB701FA741180F01C71FF
 ```bash
 magnet:?xt=urn:btih:9577DFC37673EEC5186CBFD0E4891548A757BEA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:9577DFC37673EEC5186CBFD0E4891548A757BEA5
 magnet:?xt=urn:btih:062F685F4CCD4606A6CC640E89D5573C18C37363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:062F685F4CCD4606A6CC640E89D5573C18C37363
 ```bash
 magnet:?xt=urn:btih:001E87261E57B546085F5107400359894A43DD2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:001E87261E57B546085F5107400359894A43DD2F
 magnet:?xt=urn:btih:7A7D65C67A0DAAB4848815959E69D03969DB0F60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ Etcher – простое и надежное приложение для зап
 ```bash
 magnet:?xt=urn:btih:F788824DDDB225D6D34D0DC798AB07EECD054459
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

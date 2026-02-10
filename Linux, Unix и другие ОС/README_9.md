@@ -21,6 +21,8 @@ Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [i386] 2xDVD+3xCD
 magnet:?xt=urn:btih:D8CCF7C3FD41700A5C30187F86619E22F0897E40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ TrueNAS CORE (ранее FreeNAS) — это бесплатная операци
 magnet:?xt=urn:btih:EE0AB44C5C49678D090871BE465AE6F90CFF4ED9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ MATLAB – это высокоуровневый язык технических
 ```bash
 magnet:?xt=urn:btih:1F506203185DB1AF4EED2662E354A1753ACBBC37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ OPHcrack это ОС, созданная для взлома паролей Wind
 magnet:?xt=urn:btih:1AF9DBF54CBA03EA1046713E30A93752F1C8549C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Ubuntu*Pack 22.04 MATE (март 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:1E457FB42F8077D09A3FDEF17BC3C953AD684B28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Red Hat Enterprise Linux (RHEL) - популярная коммерческая 
 magnet:?xt=urn:btih:17FE448278658634CAE114AB299FBA0C8E5E4B19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ KNOPPIX 8.6.1 [x32, x64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:74424385CE35C41AAB8FD9C909A2A6E2FC6C47D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ IRIX — операционная система, используемая на 
 ```bash
 magnet:?xt=urn:btih:751C917D2FAF3991C44FC7B281DB58F30B3A6B08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Debian GNU/Linux 10.2.0 + nonfree Buster [amd64] 4xDVD
 magnet:?xt=urn:btih:0BB1576AF79B0C65E0E934EAC651517026A39B60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Debian GNU/Linux 10.2.0 + nonfree Buster [i386] 4xDVD
 magnet:?xt=urn:btih:7F538B4A9509D39B0671A993D8983E7A89A99ADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ IRIX — операционная система, используемая на 
 ```bash
 magnet:?xt=urn:btih:3BA67E7941B29968C506C2F48739621DA11BCF9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ Sublime Text не является свободным или открытым п
 magnet:?xt=urn:btih:680640077438F66E9C8F838938E8BAF49D3C02DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ Linux Mint — дистрибутив операционной системы Li
 magnet:?xt=urn:btih:FA299658EB7C185FC0092948ECACA3A909B7E4C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ CentOS 7.3(1611) [x86_64] 4xDVD + 2xCD
 ```bash
 magnet:?xt=urn:btih:79E910DD5DDF4F4C020D5BDFCCB53B793B8F5AFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ Red Hat Enterprise Linux 7.7
 magnet:?xt=urn:btih:425F4F78DA953919F6A07C4FEF4A837FC2EDE870
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ Red Hat Enterprise Linux 8.1
 ```bash
 magnet:?xt=urn:btih:1AF000F77DD712C9EC8995CF0BED0202809307F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ Linux Mint — дистрибутив операционной системы Li
 magnet:?xt=urn:btih:1EEA79BA37DB327913013D20CD3F9382EDAD375F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ Linux Mint — дистрибутив операционной системы Li
 magnet:?xt=urn:btih:3AD0450CB227F9954CA0690A729D4C5C130FE073
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ Parted Magic — готовое решение для работы с разде
 ```bash
 magnet:?xt=urn:btih:2F933EF2C31A191AEDB3CF2DCD7092C214D473D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ Mageia 4 Beta II [i586, x86-64] 7xDVD, 2xCD
 magnet:?xt=urn:btih:D779F11C345B1A7525A8886B008EF3E163D1C8C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ Skype (произносится «скайп») — бесплатное про�
 magnet:?xt=urn:btih:F75EC5E8703753398A6893D70E3E9D1C33BD77C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ Oracle Linux — инициатива Oracle Corporation по созданию �
 magnet:?xt=urn:btih:02141C56C60EEA84559882CC8020E5CEF9EDE0A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ Arco Linux - это дистрибутив, сочетающий в себе м�
 ```bash
 magnet:?xt=urn:btih:D23B590375CE92F3350D40CBAD8C4E26FC620170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ Sabayon 14.12 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 4xDVD, 1xCD
 magnet:?xt=urn:btih:AFED349D8C3B76C4FD335F47DE3062C1B4DF64A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ PCLinuxOS 2013.12 KDE FullMonty [x32, x64] 2xDVD
 magnet:?xt=urn:btih:81A2E5C7E4ECCC379BB0826DFD461822CF441D34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ Mageia 5.1 Cauldron [x86-64] 3xDVD
 ```bash
 magnet:?xt=urn:btih:1F6BF2D82F887BE95C5A9149C82E4D3E8BFD3553
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

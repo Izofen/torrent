@@ -19,6 +19,8 @@ RadioMaximus 2.33.12 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:AAA805C9E4641005DF3E12F47BCBF8C4C4211317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:88B20B933E4DCA4F4601ACB6F3B15BA9262F043D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:A1AA02B4FA34771959AD2229600FDD244699E1FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:132F2D6FA7167C6829550DE4F85512D9A3A62EF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:6A93289C2E8BDF1E184EB2E18F4F710A5767650B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ MediaHuman YouTube Downloader 3.9.18 (1711) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9200561F3FDF354B7C32448F9C444BA582CCCE32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ iTubeGo YouTube Downloader 10.9.3 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:C170C159296CE29F99749BE389FD9DDE16E525F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ MediaHuman YouTube Downloader 3.9.18 (1711) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:342EDD1510726843CD3975FB085D39F00E8ABEAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:667ADC30A62B6325CD580097CB32052ADC91CC87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ MAX Desktop 25.17.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:91823C2087281F7B5663F04400D04AE545CB2FF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:D81BB37B942AF2C1A996BBC82F0DBD6EF37E0AC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:2347299F87E663EDEE8D2C7271E3D866E0EA4C66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ uTorrent Pack 1.2.3.99 Repack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:08F473A20F7AAFDCE73B16A63E56381D4BD2E293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Throne – это программное обеспечение, которое 
 magnet:?xt=urn:btih:1B706CB29F5F9F95BB3E6EB9C14220E881D0C843
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 magnet:?xt=urn:btih:33FAF7AC16AA79E9087D36DD88E2DC8E0E4AE9FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:C660DB68E51D530C8049A6345BEAF3F3B49C121C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:9155100969884C1834D050287AEFBDA6133E2ACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:E1FDE84AC5A689436DB483AB5CA35FDD9225B6AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:D5F50C88740F1CBD2E43C414060355E3E43BF916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:E5156E21E7C04DBEECA6F29234F5DFA25C6552F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:530F2A1AEDE2649734B6791CC80BAC9A7006E234
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ MediaHuman YouTube Downloader 3.9.18 (2411) [Multi/Ru]
 magnet:?xt=urn:btih:9D77F43BA54C194552FDCAFEDFE441D987CA6440
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ v2rayN — это универсальный инструмент VPN и про�
 ```bash
 magnet:?xt=urn:btih:B2D369EB24930A776E91359072EA6961CB7B19FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:E706A856A601A0C3B4AB9590F176820D84DF8946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 magnet:?xt=urn:btih:4782D2C39CF9785D4F8B6E2823F9D7CEF808CB4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ MediaHuman YouTube Downloader 3.9.18 (2411) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:C9FD85DA30539FA4F768439FF5918A8537539318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

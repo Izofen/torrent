@@ -1,3 +1,29 @@
+###  Публикация: 1392559   (769147) от 26.06.2020
+
+Роджер Сайп, Робб Збиерски | Разум под контролем. Неочевидные стратегии достижения целей (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_769147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Успех в жизни часто определяют одним словом – «больше»: лучшие результаты, быстрый карьерный рост, выросший доход… Работай больше. Делай больше. Достигай большего. И как можно скорее. Мы крутимся как белки в колесе, но итогом становятся стресс и опустошенность. А теперь представьте, что достичь целей можно и другим, гораздо более эффективным способом… замедлив ход. (   Читать дальше...   )Жанр: Психология, Саморазвитие, Личностный ростПеревод: Наталия ХоренкоФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE643A928FDE92BE674F9CED58B9E45D39B2BCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392556   (769150) от 26.06.2020
 
 Райан Холидей | Сила спокойствия (2020) [EPUB]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:386933631B7E8B5A0685C3A727C5605333082F57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:386933631B7E8B5A0685C3A727C5605333082F57
 magnet:?xt=urn:btih:43EE4D4707E01DE38609BA7B9993B0BE046D8B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:43EE4D4707E01DE38609BA7B9993B0BE046D8B13
 ```bash
 magnet:?xt=urn:btih:CFD669626ECDDD37921E5DFF1D1A1676F984060F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:CFD669626ECDDD37921E5DFF1D1A1676F984060F
 magnet:?xt=urn:btih:D1D2F43F7DA48BEA55B5A06CD08C7A2DEA6DDC0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:D1D2F43F7DA48BEA55B5A06CD08C7A2DEA6DDC0F
 ```bash
 magnet:?xt=urn:btih:2A17E7B3CB827D6FFCE6C2A41FABF8E4A9EC95C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:2A17E7B3CB827D6FFCE6C2A41FABF8E4A9EC95C5
 magnet:?xt=urn:btih:4C4225FC4835E63088EFA340A359573C1B041BD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:4C4225FC4835E63088EFA340A359573C1B041BD9
 magnet:?xt=urn:btih:3E56459F05EEAD615CCD3B8F0551AFB557E5705E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:3E56459F05EEAD615CCD3B8F0551AFB557E5705E
 magnet:?xt=urn:btih:11521533C70E55C8FD09E54170A89772C7CDDB91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:11521533C70E55C8FD09E54170A89772C7CDDB91
 ```bash
 magnet:?xt=urn:btih:34C39E41DC48523CFB8F0072E06A79BCF6E47532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ Harvard Business Review – главный деловой журнал в мир
 magnet:?xt=urn:btih:F82BC5A02C02FDC1C96B39CE0837BDE0FEA82C9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:F82BC5A02C02FDC1C96B39CE0837BDE0FEA82C9F
 ```bash
 magnet:?xt=urn:btih:38C853C2A964B6AFA0736EC416BF741844D637F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:38C853C2A964B6AFA0736EC416BF741844D637F2
 magnet:?xt=urn:btih:C0AE096E0D96005E572369273F3F77B6AF0A446F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:C0AE096E0D96005E572369273F3F77B6AF0A446F
 ```bash
 magnet:?xt=urn:btih:F2C5433B0544831503C6884DBE652E1468DFBE62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:F2C5433B0544831503C6884DBE652E1468DFBE62
 magnet:?xt=urn:btih:698E86F6262B02A5940F7002C74B36F8FE0AA6B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:698E86F6262B02A5940F7002C74B36F8FE0AA6B2
 magnet:?xt=urn:btih:0B47B176EAE7FB60438B18D172EF028C81AA8133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:0B47B176EAE7FB60438B18D172EF028C81AA8133
 ```bash
 magnet:?xt=urn:btih:972C2CDB0B8E0A4BECC9536B5B83003A075F8D70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:972C2CDB0B8E0A4BECC9536B5B83003A075F8D70
 magnet:?xt=urn:btih:20693249439C62394A83F3E8F7AE9D6E424E1B0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:20693249439C62394A83F3E8F7AE9D6E424E1B0C
 ```bash
 magnet:?xt=urn:btih:EBCCDE8EF4DC6DD59ABBE7290D638DA07F70C828
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:EBCCDE8EF4DC6DD59ABBE7290D638DA07F70C828
 magnet:?xt=urn:btih:479566EB70C0FFC334CEF02F575B4D667D9A4AC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:479566EB70C0FFC334CEF02F575B4D667D9A4AC0
 ```bash
 magnet:?xt=urn:btih:D74699C3CCCB144DBC634C43470A322339945D6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:D74699C3CCCB144DBC634C43470A322339945D6E
 magnet:?xt=urn:btih:44BFD7BFE34332F70156F6B95B37A0D89D799F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:44BFD7BFE34332F70156F6B95B37A0D89D799F46
 ```bash
 magnet:?xt=urn:btih:F62534D25DA5C63D4F023BA47F8B867EED892908
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:F62534D25DA5C63D4F023BA47F8B867EED892908
 magnet:?xt=urn:btih:35EEED724221E928BD8265E71BD46AF8ACE4B294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:35EEED724221E928BD8265E71BD46AF8ACE4B294
 ```bash
 magnet:?xt=urn:btih:8B6EFE10FFF26217020C665A15A03F23005AD742
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:8B6EFE10FFF26217020C665A15A03F23005AD742
 magnet:?xt=urn:btih:7481D568EF0F739DF0F06373349D4157E6A0ECA4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016652   (770231) от 14.05.2016
-
-Лев Вершинин | Русские идут! Почему боятся России? (2014) [PDF, DJVU, FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770231.jpg" />
-</div>
-
-
-###  Подробнее
-
-«РУССКИЕ ИДУТ!» — в последнее время этот истерический вопль зазвучал снова, а утробный ужас и патологическая ненависть Запада к России разгораются с прежней силой, как в эпоху Холодной войны. Нашу Родину вновь обвиняют в «агрессивности» и «территориальных захватах» — дескать, всю свою историю мы только и делали, что запугивали, завоевывали и угнетали соседние народы. (   Читать дальше...   )Жанр: Публицистика, историяФормат: PDF, DJVU, FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E670804A53C12D8E26F8DE31443B8318F3D07EF8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

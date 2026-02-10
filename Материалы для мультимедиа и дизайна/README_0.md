@@ -19,6 +19,8 @@ Virtual Brain — это приложение чат-бота на основе 
 magnet:?xt=urn:btih:A1142E5FA6F65C5EA1745960527A116055235D12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:A1142E5FA6F65C5EA1745960527A116055235D12
 ```bash
 magnet:?xt=urn:btih:2B7578F6AB5CFAAE540CDD331EA03BA65836DC06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:2B7578F6AB5CFAAE540CDD331EA03BA65836DC06
 magnet:?xt=urn:btih:5DD50DA92326919D5FE7CADC713347561CD1F34C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:5DD50DA92326919D5FE7CADC713347561CD1F34C
 ```bash
 magnet:?xt=urn:btih:D5412A0080C4748C4EA245F78833F8F7E3E8FCDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:D5412A0080C4748C4EA245F78833F8F7E3E8FCDE
 magnet:?xt=urn:btih:A6F8427607D9F007B2FB37AF70ACE3A3FA4F1041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:A6F8427607D9F007B2FB37AF70ACE3A3FA4F1041
 ```bash
 magnet:?xt=urn:btih:1624736068B6A6D41E5512D446227C0AE2F82F5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:1624736068B6A6D41E5512D446227C0AE2F82F5A
 magnet:?xt=urn:btih:59DAFF93BFC1FA1E839ED8706AE5B1D7B00B3B5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Prolinea — это современное семейство шрифтов б�
 ```bash
 magnet:?xt=urn:btih:E97E74B8BDBC84229F011E32DBD5AF5B3DD97C43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:E97E74B8BDBC84229F011E32DBD5AF5B3DD97C43
 magnet:?xt=urn:btih:A4F4D6F7DC699FB6ADA161EEAC1616FBB4A7AFD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Guaruja Neue - это неогротескный шрифт с дополнит�
 ```bash
 magnet:?xt=urn:btih:DE24B9C69F08DF991C3F208D2A68D89F17754F42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ DGM Fette - это шрифт полу-возрождения от Breite Fette 
 magnet:?xt=urn:btih:46CCC293EE4CDAD3EB873CDA9D46104C22979D4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:46CCC293EE4CDAD3EB873CDA9D46104C22979D4B
 ```bash
 magnet:?xt=urn:btih:229C5DA6D9618F5DFE52CAF555129E1E191B0AE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Rum BabaФормат: STL, LYS
 magnet:?xt=urn:btih:582331EB4C5646786740B7DBDF0C340DF75EE877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Alliant Audio с гордостью представляет Minimal Techno! М�
 ```bash
 magnet:?xt=urn:btih:BEC88191313C545EA4AC697E041AA8875316F9D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:BEC88191313C545EA4AC697E041AA8875316F9D0
 magnet:?xt=urn:btih:8E02BFEF622BEE6F4F8101F99099955233CE292A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:8E02BFEF622BEE6F4F8101F99099955233CE292A
 ```bash
 magnet:?xt=urn:btih:BC8289079D1F9F50C1672CB38463B9D944B91EB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Qirvalen — современный, гармоничный и стильный 
 magnet:?xt=urn:btih:3D8B2B92C537B9C9799FEC4C8D6FFE91E46CFFF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Neutrix — это современное семейство шрифтов с �
 magnet:?xt=urn:btih:C7915D7E1AABC93FE8877A2011537859284F68C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:C7915D7E1AABC93FE8877A2011537859284F68C8
 ```bash
 magnet:?xt=urn:btih:121F652CF93A2ADBE5C1A93020A20C179B147A7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Kage — это пакет из 20 оверлеев теней ботаниче�
 magnet:?xt=urn:btih:49D3FA536E1F3CA22F235CAA2720D44EDFC04E77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ BS Helivita™ — современная элегантность и униве
 ```bash
 magnet:?xt=urn:btih:F45C75B385FC33D80935394013B9D9259D49C990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:F45C75B385FC33D80935394013B9D9259D49C990
 magnet:?xt=urn:btih:1941F65BBC006B0792FDE7EE7F942F27DCEDB0D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Signora — это изысканное семейство шрифтов с в�
 ```bash
 magnet:?xt=urn:btih:1A8AC7875E22881CC8DC372AD075DD586BC9AB5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:1A8AC7875E22881CC8DC372AD075DD586BC9AB5A
 magnet:?xt=urn:btih:D66DD32027C47FA6B05E285D9450F5709039CF27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:D66DD32027C47FA6B05E285D9450F5709039CF27
 magnet:?xt=urn:btih:71EEDA3B3CC97C01369D4B904C70E25A51AC5641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:71EEDA3B3CC97C01369D4B904C70E25A51AC5641
 ```bash
 magnet:?xt=urn:btih:DB7855737AF1AC3E1FF68D51DEEA2F9943306401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

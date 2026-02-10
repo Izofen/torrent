@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:7B5B60F00B4790B59EB0E419642261E0C932F227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:7B5B60F00B4790B59EB0E419642261E0C932F227
 magnet:?xt=urn:btih:7520BBEB1FB030148E0186B09DD7AE7848A541A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ Bytebond (2025) [Ru/Multi] (1.0.0.6/dlc) Repack FitGirl [Supporter Edition]
 magnet:?xt=urn:btih:8D8EB9EB7CBD0AB29DE45EA55A7315028F5C83DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ CULTIC – ретро-шутер от первого лица, где вы сы�
 ```bash
 magnet:?xt=urn:btih:2A431CB6314D3DC3731445AB6474FEABDA3281D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:2A431CB6314D3DC3731445AB6474FEABDA3281D1
 magnet:?xt=urn:btih:5CCB597A0E2AB04CB9459C1943260BF068BD44EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:5CCB597A0E2AB04CB9459C1943260BF068BD44EA
 ```bash
 magnet:?xt=urn:btih:5AFC78D7394A61B5CCB6431779C95DEEFC481BF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:5AFC78D7394A61B5CCB6431779C95DEEFC481BF9
 magnet:?xt=urn:btih:BAFEF867909D5D4A565D0A0849C082034124F217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:BAFEF867909D5D4A565D0A0849C082034124F217
 ```bash
 magnet:?xt=urn:btih:51DED3886B0FE3E346D46ED2BAC6287C1A49878D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:51DED3886B0FE3E346D46ED2BAC6287C1A49878D
 magnet:?xt=urn:btih:C021000E34D91730D7BFCFB1DB9FBE23731E84DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:C021000E34D91730D7BFCFB1DB9FBE23731E84DA
 magnet:?xt=urn:btih:2542E5876A307B78ADDDC29A4D6013AC25B03B44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:2542E5876A307B78ADDDC29A4D6013AC25B03B44
 ```bash
 magnet:?xt=urn:btih:37D1CC7164CB13DFAC6B8980A17EC9C26AACC11A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0/dlc) Scene Rune
 magnet:?xt=urn:btih:92275D4C11F45553B6832FB3A6FCB9A7C4B31C1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:92275D4C11F45553B6832FB3A6FCB9A7C4B31C1C
 ```bash
 magnet:?xt=urn:btih:94177AAD66746ECE45251748640FA4453E5CA746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ Watashi o Tabetai, Hitodenashi / This Monster Wants to Eat Me / Этот мон�
 magnet:?xt=urn:btih:0EA8CD6DA54A771501CB425E2D69666CE8EAAA7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ Bukiyou na Senpai. / My Awkward Senpai / Неумелый сэмпай [2025, TV
 ```bash
 magnet:?xt=urn:btih:B3D5954ECD77D1F6EFA47F66068FF1DD6293E666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ Gatekeeper (2024) [Ru/Multi] (1.0.0.10/dlc) Repack Let'sРlay [Deluxe Edition]
 magnet:?xt=urn:btih:C5D5E17250F85C6D2061F9CC42BEBC8427371703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:C5D5E17250F85C6D2061F9CC42BEBC8427371703
 ```bash
 magnet:?xt=urn:btih:FABCE3216CC4A1D2D7CB2A7C77EBE7F24C73687B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:FABCE3216CC4A1D2D7CB2A7C77EBE7F24C73687B
 magnet:?xt=urn:btih:0DAB90208ACE0353BE9206163158607F7917241B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:0DAB90208ACE0353BE9206163158607F7917241B
 ```bash
 magnet:?xt=urn:btih:B5FF3290F6642D640BC8573CAE452904DFD8896A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:B5FF3290F6642D640BC8573CAE452904DFD8896A
 magnet:?xt=urn:btih:29274811BEE47AF9D2594082C1E1637DC679969B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ Sharrie Williams - Out Of The Dark (2011) [APE|Lossless]<Blues, Soul, Gospel>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ Umo Jazz Orchestra - Umo Jazz Orchestra (1997) [MP3|320 kbps]<Jazz>
 magnet:?xt=urn:btih:281EE229E8B470DD9634ED8EBE6794336E11C6D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ VA - Red Hot + Riot (2002) [MP3|192-320 kbps]<Electronic, Funk, Soul, Hip Hop>
 ```bash
 magnet:?xt=urn:btih:5C3169818EB4AEF4153AED32062750C988BE12B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +662,8 @@ VA - Red Hot + Dance (1992) [MP3|192 kbps]<Dance, Pop>
 magnet:?xt=urn:btih:436B92CFD9D4B8BEDF497FB72665E6BEE0FEE144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +688,8 @@ magnet:?xt=urn:btih:436B92CFD9D4B8BEDF497FB72665E6BEE0FEE144
 magnet:?xt=urn:btih:D0A4590EB52D542370255C833D1C2DBFECE20856
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +713,8 @@ magnet:?xt=urn:btih:D0A4590EB52D542370255C833D1C2DBFECE20856
 ```bash
 magnet:?xt=urn:btih:B6373D62B250500D4787837A6E09D09E5349A1CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Connor Helm - They Call Me Copperhead (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 magnet:?xt=urn:btih:01F21AC6C0A59526A661337834429B9B7CCE927F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:01F21AC6C0A59526A661337834429B9B7CCE927F
 magnet:?xt=urn:btih:D360D49830C279DAB6AF8C7D67F480E8D24763F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:D360D49830C279DAB6AF8C7D67F480E8D24763F1
 ```bash
 magnet:?xt=urn:btih:EA9FECE7909874E930CD36CC4F81A069D585D12A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ VA - Another Saturday Night: Rock Until Dawn (2025) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:82DC0EDF8AC425A790172DC4878315B60F503D22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ Blue Submarine - Reimagine (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:26CD19F254E50664CA401BA3B2464445C31351A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:26CD19F254E50664CA401BA3B2464445C31351A4
 ```bash
 magnet:?xt=urn:btih:541B0E1962483E4D52A5EBE7D5C4BDDB224F7FF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ Stan Bush - Born For Battle (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 magnet:?xt=urn:btih:59E14280EBEACD3C2CCEE4477CF32270B4A3B063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ Big Thief - Double Infinity (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Ro
 magnet:?xt=urn:btih:C7CEFA35E42BA49136FD0A60D90A3EB42D7CB4FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:C7CEFA35E42BA49136FD0A60D90A3EB42D7CB4FF
 magnet:?xt=urn:btih:89E637B24746B9CB7DF2BAC6FB3262D96AA24CB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:89E637B24746B9CB7DF2BAC6FB3262D96AA24CB8
 ```bash
 magnet:?xt=urn:btih:6BDE336919860F6FC05FAF8A29CD428D13E8886F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ Degreed - The Leftovers, Vol. 1 (Deluxe Edition) (2025) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:B60012B386F4DB359E7F017D613CB9EF03196B21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ Esthoria — изысканный, контрастный шрифт с засе
 magnet:?xt=urn:btih:510B3371CDF07C5474160B6EEEF23A2B157DC236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ Melun (Normal), доступен в 5 вариантах начертания и
 ```bash
 magnet:?xt=urn:btih:3A3A7A30A19BAA4F5251CBB58CA3299C48EF8DB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ Kirk Fletcher - Keep On Pushing (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:D9A382234C3480053806EAE9FE5FD6CB902C519D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ Denise Gordon & R&B Caravan - A Night in Vienna (2025) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:1D64EF2FA3D066100FE215250E07F94CB464ED03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +441,8 @@ Steelpreacher - Gimme Some Metal (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 magnet:?xt=urn:btih:3DA50C7765058FEE9CA03122FEAC1045EBA114DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +469,8 @@ Erick Willis - Day & Night (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:0F23FAEDFA559AAB4AE644B213F4ACC1DE3D8DE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +499,8 @@ Jesse Dayton, Ian Moore, Johnny Moeller - Texas Headhunters (2025) [FLAC|Lossles
 magnet:?xt=urn:btih:07963F16E54542CB0DA7BE45061A7428105A5D16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +527,8 @@ Claudio Oliveira - Take Over (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:6642EE369071931AB7B913317EBB20884A9C69F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +557,8 @@ Jay Willie, Bobby T Torello - Still Raisin' Cane (2025) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:74F102C555C81486E02C3666F8CAC47EE9D13C8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +586,8 @@ Jimi 'Prime Time' Smith - It's My Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 magnet:?xt=urn:btih:0A76E909A4D829D56D4B2A81B6CEE569180BF4AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +613,8 @@ magnet:?xt=urn:btih:0A76E909A4D829D56D4B2A81B6CEE569180BF4AD
 magnet:?xt=urn:btih:F2B933314022E2A156C16021C8A346550EDBAFBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +638,8 @@ magnet:?xt=urn:btih:F2B933314022E2A156C16021C8A346550EDBAFBB
 ```bash
 magnet:?xt=urn:btih:A0C9209C1806A0DC50061E40BEDFD6216EEF313A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +666,8 @@ magnet:?xt=urn:btih:A0C9209C1806A0DC50061E40BEDFD6216EEF313A
 magnet:?xt=urn:btih:C4D582BDC28EF48D2FA25A721DD4D518133979B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +691,8 @@ magnet:?xt=urn:btih:C4D582BDC28EF48D2FA25A721DD4D518133979B7
 ```bash
 magnet:?xt=urn:btih:9435D37E541B296004F7793F37FBB27A4E2854B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +720,8 @@ Faithless - Champion Sound (2025) 4CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pro
 ```bash
 magnet:?xt=urn:btih:C2CA3595990BEED1D4AB446307B2826100E4E309
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 907612   (637628) от 12.06.2015
+
+Форт-Росс. Берег несбывшейся мечты (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_637628.jpg" />
+</div>
+
+
+###  Подробнее
+
+В январе 1842 года последний начальник русского форта с частью колонистов на бриге "Константин" навсегда покинул Калифорнию. За время владения этой благодатной землёй русским так и не удалось оформить её в собственность. Форт-Росс и прилегающие к нему поселения были проданы за бесценок частному владельцу. Спустя несколько лет именно здесь будут обнаружены (   Читать дальше...   )Производство: Россия, ООО «Телекомпания Идея»Телекомпания: ТВ-ЦентрЖанр: ДокументальныйРежиссер: Дмитрий ПолетаевПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:884571904D64BF395814D409165EAC697E6DBF86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907456   (637823) от 12.06.2015
 
 Тайны нашего кино. Чародеи  (2015) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:6A14D3CD3F2E858505AADE3A77F4906F604C99EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:6A14D3CD3F2E858505AADE3A77F4906F604C99EE
 magnet:?xt=urn:btih:E1780EEE0B1B1C36035C1526AB60AFC423036378
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:E1780EEE0B1B1C36035C1526AB60AFC423036378
 magnet:?xt=urn:btih:20229E13AEBD24ACF479485C1E9930366CA8F722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:20229E13AEBD24ACF479485C1E9930366CA8F722
 ```bash
 magnet:?xt=urn:btih:E149E119FA58C31B65E26E46E10F6A445253E905
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:E149E119FA58C31B65E26E46E10F6A445253E905
 magnet:?xt=urn:btih:B6DCCBE0F2638FC7F705B1BE254D6D7725AC6A8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:B6DCCBE0F2638FC7F705B1BE254D6D7725AC6A8D
 ```bash
 magnet:?xt=urn:btih:69274EF8960F12706EB7C2CDAC9D89561261D38A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:69274EF8960F12706EB7C2CDAC9D89561261D38A
 magnet:?xt=urn:btih:4689B732632EF16FA4537973E79EBE4DABC0DF20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:4689B732632EF16FA4537973E79EBE4DABC0DF20
 ```bash
 magnet:?xt=urn:btih:251F0BC51D6BDBBF93523A41610AF663677886DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:251F0BC51D6BDBBF93523A41610AF663677886DC
 magnet:?xt=urn:btih:081DB6F57E5295705799595AE68C3FE14DC29D56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:081DB6F57E5295705799595AE68C3FE14DC29D56
 ```bash
 magnet:?xt=urn:btih:E866EC49CA6B325845C759063C4D2C2402786F58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:E866EC49CA6B325845C759063C4D2C2402786F58
 magnet:?xt=urn:btih:47A256E41D2149D1A6849D7703C26CE25D587F16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:47A256E41D2149D1A6849D7703C26CE25D587F16
 magnet:?xt=urn:btih:BE35D8B2A8AEA4DA6965CF39F0547A58A23EBA4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:BE35D8B2A8AEA4DA6965CF39F0547A58A23EBA4A
 ```bash
 magnet:?xt=urn:btih:8E7E5365C6B7225AA9FD627B93800B5A67CCE557
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:8E7E5365C6B7225AA9FD627B93800B5A67CCE557
 magnet:?xt=urn:btih:2D57354B18EA0776509129B243AADFA85CDB9E43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:2D57354B18EA0776509129B243AADFA85CDB9E43
 ```bash
 magnet:?xt=urn:btih:CABDED5FD9DA1C150C2B770C4B0FA677D4A04818
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:CABDED5FD9DA1C150C2B770C4B0FA677D4A04818
 magnet:?xt=urn:btih:149CB68DDD338A75A04D59ABF26F3190D13144F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:149CB68DDD338A75A04D59ABF26F3190D13144F2
 magnet:?xt=urn:btih:8AB46E84263B2C2D3B51E8E1E2B9540ED0A43160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:8AB46E84263B2C2D3B51E8E1E2B9540ED0A43160
 ```bash
 magnet:?xt=urn:btih:BC37AB444D5C6059B102CE25C2FD0A193056C94F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +528,8 @@ The Rolling Stones - Ole Ole Ole - A Trip Across Latin America (2017) Blu-ray [H
 magnet:?xt=urn:btih:9909F41394A250AD1CC8A0395C84DBCC4592DB07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +553,8 @@ magnet:?xt=urn:btih:9909F41394A250AD1CC8A0395C84DBCC4592DB07
 ```bash
 magnet:?xt=urn:btih:CB5734B0629B239F2D6D5913CD98773B2F38968A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:CB5734B0629B239F2D6D5913CD98773B2F38968A
 magnet:?xt=urn:btih:2A05688572B666C1A870FC3A412F8BC2F7793538
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:2A05688572B666C1A870FC3A412F8BC2F7793538
 ```bash
 magnet:?xt=urn:btih:67012E77BDAC244EBC374D64FFA720B204C4FBC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:67012E77BDAC244EBC374D64FFA720B204C4FBC6
 magnet:?xt=urn:btih:1C98A355B96A9AB5B01E5294123BDC1D11D5E340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:1C98A355B96A9AB5B01E5294123BDC1D11D5E340
 ```bash
 magnet:?xt=urn:btih:9E3B732FC31F8D6AE4A4571D9E95C6D59B080B13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,29 +685,7 @@ magnet:?xt=urn:btih:9E3B732FC31F8D6AE4A4571D9E95C6D59B080B13
 magnet:?xt=urn:btih:82B3FB742F1AC109F12C2134D1188DFCD82F8452
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907120   (639725) от 11.06.2015
-
-Браво, Артист! - Савелий Крамаров (2008) TVRip
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_639725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой этой программы "Браво, артист!" Савелий Крамаров любил повторять: "Я обычно играю дураков, поэтому меня везде принимают как своего". Этому актеру с его необычным талантом и своеобразной внешностью удалось родиться вовремя. Прижизненная слава "джентельмена удачи" была огромной: вся страна повторяла репризы из "Неуловимых мстителей","Джентльменов (   Читать дальше...   )Телекомпания: Россия, ТВ-ЦентрЖанр: ДокументальныйРежиссер: Александр Коняшов, Максим СимаковАктеры: Савелий Крамаров, Александр Ширвиндт, Михаил ШирвиндтПродолжительность: 01:29:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE95DD7B55C658A612A11964458DE06F81989E5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

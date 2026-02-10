@@ -19,6 +19,8 @@ DesktopOK - небольшая бесплатная и портативная (�
 magnet:?xt=urn:btih:D2F4C436077189B1324FED4F121B80B490111656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ BlueHarvest -  утилита, помогающая автоматизирова
 ```bash
 magnet:?xt=urn:btih:DE378C2A9657824B0830803519228B3478BC29FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Carbon Copy Cloner - утилита для клонирования дисков
 magnet:?xt=urn:btih:ADFC31D7854B73118B522983774A94C4CED9AE1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:ADFC31D7854B73118B522983774A94C4CED9AE1E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ iCollections 4.7 [Multi]
 magnet:?xt=urn:btih:212BB15B7CE6A82F90045E4ABC9E50B87F519A78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ BusyCal - программа на Mac OS X, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:E27C91DD68F0E640136BAA2858940237AF1BDC90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:E27C91DD68F0E640136BAA2858940237AF1BDC90
 magnet:?xt=urn:btih:2E7771FF09B09487A218552FE4A4453CC08595C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:2E7771FF09B09487A218552FE4A4453CC08595C6
 ```bash
 magnet:?xt=urn:btih:051455D8F00FCDEC7C539135A5C7D4596F156A7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ Brecon - Cairn & Remixes (2018) Mesh [FLAC|Lossless|WEB-DL|tracks] <IDM, Techno,
 magnet:?xt=urn:btih:81FFF455021F0ACDCDA0B6FBDCEDACA69CC4F3FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ BusyContacts приносит в управление контактами те 
 magnet:?xt=urn:btih:40CB2970EAB706DF17197839D1AAB12C1AF4C27E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ RightFont - менеджер шрифтов с  красивым интерфе�
 ```bash
 magnet:?xt=urn:btih:EEDCDF85C521BB2C19DE984D9F6745B01CBBF732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ Cookie - Программа для полного удаления cookie-фай
 magnet:?xt=urn:btih:3E525DA3AB43C4CCF735DB082EDD36493C56F3AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ magnet:?xt=urn:btih:3E525DA3AB43C4CCF735DB082EDD36493C56F3AE
 ```bash
 magnet:?xt=urn:btih:9691D67928DC66BC73FBA24612B99D87D45355CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ magnet:?xt=urn:btih:9691D67928DC66BC73FBA24612B99D87D45355CC
 magnet:?xt=urn:btih:3E5692CB74A277868916BE6083184DEDDFCC7446
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ WinSnap - утилита, которая позволяет с легкость�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +446,8 @@ WinSnap - утилита, которая позволяет с легкость�
 magnet:?xt=urn:btih:B746C9FD9A81A7725F997DDEAA5764C14C9F1948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +471,8 @@ magnet:?xt=urn:btih:B746C9FD9A81A7725F997DDEAA5764C14C9F1948
 ```bash
 magnet:?xt=urn:btih:F9B9040BC99B403346B06CEEBEFB6C684CCA1895
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +498,8 @@ magnet:?xt=urn:btih:F9B9040BC99B403346B06CEEBEFB6C684CCA1895
 magnet:?xt=urn:btih:64DD9055DE8586C36554664635E620CF289C266E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +523,8 @@ Hazel – это ваш личный уборщик, который органи
 ```bash
 magnet:?xt=urn:btih:667D2BB13A7EF0C5A68595D385B19575101B1C26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +551,8 @@ PullTube предлагает Вам (   Читать дальше...   )Тип
 ```bash
 magnet:?xt=urn:btih:CAD915FC24FB3C7A26EAD097653FC79A07036185
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +581,8 @@ magnet:?xt=urn:btih:CAD915FC24FB3C7A26EAD097653FC79A07036185
 magnet:?xt=urn:btih:D5C3563A8CEBA5F327D43DED9A1BEFA27DE43192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +609,8 @@ magnet:?xt=urn:btih:D5C3563A8CEBA5F327D43DED9A1BEFA27DE43192
 ```bash
 magnet:?xt=urn:btih:F9DE6244953BEAE4580172751804F5EBB4DF6A0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +639,8 @@ magnet:?xt=urn:btih:F9DE6244953BEAE4580172751804F5EBB4DF6A0E
 magnet:?xt=urn:btih:D3B9B56065CC30E934DFD315459708E52793E116
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +667,8 @@ magnet:?xt=urn:btih:D3B9B56065CC30E934DFD315459708E52793E116
 ```bash
 magnet:?xt=urn:btih:5B31211D697783F282D7516BCEB255F1D8231E11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +697,8 @@ magnet:?xt=urn:btih:5B31211D697783F282D7516BCEB255F1D8231E11
 magnet:?xt=urn:btih:094DE3F0861AC346971B697216C71A8018474342
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +724,8 @@ UninstallPKG может использоваться для очистки св�
 ```bash
 magnet:?xt=urn:btih:EA8A450F26A787619253D65629ECC2F1CA5E84DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

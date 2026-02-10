@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:49452AB7608B25F524997544A32CAC7B765D1D5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:49452AB7608B25F524997544A32CAC7B765D1D5A
 ```bash
 magnet:?xt=urn:btih:C99BC542E5064F8E8AAF8FC6BF96676DFEA12D4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG: Секреты истории - Эксперименты ЦРУ: Контр�
 magnet:?xt=urn:btih:8F810C3B463A41410A289BEC2375A99DF44ADB2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:8F810C3B463A41410A289BEC2375A99DF44ADB2A
 ```bash
 magnet:?xt=urn:btih:45B938EDFCFC8C5777A638AEDCCD04B8E18C14F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:45B938EDFCFC8C5777A638AEDCCD04B8E18C14F9
 magnet:?xt=urn:btih:121ECB2A47A813768288B9445B2403FBBB070074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:121ECB2A47A813768288B9445B2403FBBB070074
 ```bash
 magnet:?xt=urn:btih:1CD90A392E7CE75E5548518F6666A6D388C4567A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:1CD90A392E7CE75E5548518F6666A6D388C4567A
 magnet:?xt=urn:btih:86E046D81153C7FB03A11B6B134E2B3C16863AD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 ```bash
 magnet:?xt=urn:btih:54B74300D141DA529E0CC43829F172398CFAE7CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NG: Земля: Биография Планеты / Earth: Making of a Planet (2
 magnet:?xt=urn:btih:D04EA6E423577B909145E60DBABB48E67423AC36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ NG. 700 Акул / 700 Sharks (2018) WEB-DL [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:5EF4D6D0479B7B97FE323891F8CCA2AD59D1CBBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:5EF4D6D0479B7B97FE323891F8CCA2AD59D1CBBD
 magnet:?xt=urn:btih:FE2B6D388295F27C86B585EF17919E32988399C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ NG. Самая огромная акула-бык / World's Biggest Bull Shark (
 ```bash
 magnet:?xt=urn:btih:ADAA2A4A3B69AEEE8EB488019EACBF4BD009FA26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ NG: Самые опасные животные: От пустыни до сав�
 magnet:?xt=urn:btih:9E0B855CF8A6CC2A450F04EBB4A336478B743F0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ NG. Путешествия с Гордоном Рамзи / Gordon Ramsay - Unch
 ```bash
 magnet:?xt=urn:btih:E3F2E59BA725FB92AF5CE3F7248B0281735E7F6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ NG. Линии Наски: Раскрытые тайны / Nasca Lines: Unlockin
 magnet:?xt=urn:btih:62AD487F0C2016AE7DEB06A9470A5EA7918BA421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ NG. Затонувшие сокровища нубийских фараонов 
 ```bash
 magnet:?xt=urn:btih:A4502BD30AB00DDF5C8D873571BAF727E5774852
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 magnet:?xt=urn:btih:A9AB66CE2B3ECB9C4772FB68069636637B029659
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ NG. Арабские Эмираты с высоты птичьего полёт�
 ```bash
 magnet:?xt=urn:btih:3673FD0EFA83F9B249FBA70EA787F6D55E6BCC32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ NG. Затонувшая субмарина фашистов / Nazi Sunken Sub (
 magnet:?xt=urn:btih:3D83CE73155D556D05EBD25FB82CC6BDD6AD9BF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ NG. Акула против тунца / Shark vs Tuna (2018) WEB-DL [H.264/1080
 ```bash
 magnet:?xt=urn:btih:FD90625F9D2F9842A7F60975AD153E9D0BD2B5EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ NG. Титаник: 20 лет спустя с Джеймсом Кэмероно�
 magnet:?xt=urn:btih:8D600A2315015056C52A535489A32BB1A08D20AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ NG. Первый император: секреты китайской гроб�
 ```bash
 magnet:?xt=urn:btih:497380C2C3C5B1E0E91799F32639C076B9AEFB72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ NG: Владычицы морей / Shark Queens (2022) WEB-DL [H.264/1080p]
 magnet:?xt=urn:btih:590986823C3376D726F075A37B038E2528F043FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 ```bash
 magnet:?xt=urn:btih:5712F48B8CE1FC8A4A0BBA61C60CAAF50E4ACBDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ NG. НЛО: Расследование неизвестного / UFOs: Investig
 magnet:?xt=urn:btih:446D92372205D65429B3CBF37EE47D40A2A7EB75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ NG. Реальность или фантастика? Бермудский тр�
 ```bash
 magnet:?xt=urn:btih:527E74E24B61B70F1892B42DB9710B59005A158F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

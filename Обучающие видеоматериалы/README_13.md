@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:5246B2141D20FF149D6950FB398C35504D5100F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:5246B2141D20FF149D6950FB398C35504D5100F5
 magnet:?xt=urn:btih:D27CD108223ED2C3C0D2D68D6C61BA9A37291D1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Pluralsight | Penetration Testing in Action / Тестирование на пр
 magnet:?xt=urn:btih:A12074D828781F8FAA79F2CC62EFFA6C36A14716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ ProfIT | Ликбез будущего программиста (2018) PCRec [H.
 ```bash
 magnet:?xt=urn:btih:95CE60342751AE07607EC37F351063577B201CFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:95CE60342751AE07607EC37F351063577B201CFD
 magnet:?xt=urn:btih:0474D8FDCFCBC0D5F913BC5FD9E121837C889E56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Udemy, Krishan pathirana | Learn D5 Render Advance 2025 (2025) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:027EE6CE0C80F988A16391FB518A0343C41BA905
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Udemy, Leszek Pyrka | Master Camera movements in Blender - Create Awesome Videos
 ```bash
 magnet:?xt=urn:btih:37A4007B48673E6BA28F0AB1327684085878E8D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:37A4007B48673E6BA28F0AB1327684085878E8D9
 magnet:?xt=urn:btih:21B07486CF6CF4D2902A4AB4416D1C31D58DE01B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:21B07486CF6CF4D2902A4AB4416D1C31D58DE01B
 magnet:?xt=urn:btih:157241782B31208B4E930126E31AE36EF797B615
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:157241782B31208B4E930126E31AE36EF797B615
 ```bash
 magnet:?xt=urn:btih:AB68BAB045070AA5FE734A4910DC12C926D7ECD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:AB68BAB045070AA5FE734A4910DC12C926D7ECD5
 magnet:?xt=urn:btih:13DE22E442EDBB1460A71D653812F1C0F02F1B05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:13DE22E442EDBB1460A71D653812F1C0F02F1B05
 ```bash
 magnet:?xt=urn:btih:82654DF94F6DE175DB549C9D90F790235E1DF656
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ Udemy, Intellezy Trainers | Adobe Premiere Pro Essentials - Beginner (2025) WEB-
 magnet:?xt=urn:btih:F5F2C102E0892C3944AF717EA8F1227A5A5E4CB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ Udemy, Cipher Schools | Game Development for Beginners using Unity and C# (2025)
 magnet:?xt=urn:btih:85F7635548CC27E2704E601335AA8FD81CF07404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ Udemy, Knowledge Hub | Adobe Illustrator 2025 Top Gear Master Course; Basic To P
 ```bash
 magnet:?xt=urn:btih:914571A04F9A236FDFB70A5F6BE20A0E1BEAEE09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ PurpleSchool, Антон Ларичев | Основы тестирования 
 magnet:?xt=urn:btih:5013E3E3FE81CA10FBA1EDD1C78707CB25F71C12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:5013E3E3FE81CA10FBA1EDD1C78707CB25F71C12
 ```bash
 magnet:?xt=urn:btih:EE23BE355F0A3360EF1C91B007C8510D3A2809E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ Flow - конференция по системному и бизнес-анал
 magnet:?xt=urn:btih:B90B6C28786331C5F71371F15444CC0D15088225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:B90B6C28786331C5F71371F15444CC0D15088225
 magnet:?xt=urn:btih:674A680A490E6C4648CB7E56F9EA224F8AA32481
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:674A680A490E6C4648CB7E56F9EA224F8AA32481
 ```bash
 magnet:?xt=urn:btih:D83B65899841984AB96B1E3E68A87FFD70BCB609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ Deworker Pro, Дмитрий Елисеев | Идеи разделения на
 magnet:?xt=urn:btih:B350FF4C46EC1923E03014363C62A22807ADAB5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ JUG Ru Group | SmartData 2024. Конференция по инженерии д
 magnet:?xt=urn:btih:84554E7FA962545DD5F25020EEB7DFBC1754B306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ Systems.Education, Babok School, Анна Вичугова | Паттерны п
 ```bash
 magnet:?xt=urn:btih:D01F4F1A53F308E937BAEA3F36997475DBC0F80A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ magnet:?xt=urn:btih:D01F4F1A53F308E937BAEA3F36997475DBC0F80A
 magnet:?xt=urn:btih:CCB00C1CDC8AE210B76B5F11B8599E80F8CCAAC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:CCB00C1CDC8AE210B76B5F11B8599E80F8CCAAC4
 magnet:?xt=urn:btih:6ADC26EB74F82DBF1173C35E17B3B795D49840C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ PurpleSchool, Антон Ларичев | React state менеджер Zustand (
 ```bash
 magnet:?xt=urn:btih:1F9555D90F141619D7C65C5D3B362BD043D32F2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

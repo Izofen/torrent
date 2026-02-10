@@ -19,6 +19,8 @@ Cent Browser является усовершенствованной верси�
 magnet:?xt=urn:btih:F37DC4E8C9B7DBD6BE86AFCE095DAFF7CCCAA46D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:F37DC4E8C9B7DBD6BE86AFCE095DAFF7CCCAA46D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F37DC4E8C9B7DBD6BE86AFCE095DAFF7CCCAA46D
 ```bash
 magnet:?xt=urn:btih:673A90F10264FF3429CBF25F249F37DAF006A07C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:673A90F10264FF3429CBF25F249F37DAF006A07C
 magnet:?xt=urn:btih:BBF5B2CB7D0F4B144F6E2226B50308D12BD901AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Call of Duty Modern Warfare 3 (2023) - ремастер третьей част�
 ```bash
 magnet:?xt=urn:btih:8C3776DCFCE4856972404B228768B2038B39A681
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Age of Mythology: Retold - игра от создателей культовой
 magnet:?xt=urn:btih:F4A6072E1B14013BF7475F776E68B46D37F476B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ The Darkest Files (2025) [Multi] (1.0.8.1) License GOG
 ```bash
 magnet:?xt=urn:btih:F73D47797C23E4AFA04241757C03E5FF29F84E0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:F73D47797C23E4AFA04241757C03E5FF29F84E0E
 magnet:?xt=urn:btih:4412C4158F568D5D4FCAFD8D59B1598C6D762048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Arctic Motel Simulator (2025) [Ru/Multi] (3.0.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0F9848E731B92B582A3B3FB594E134A641F9B6C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:0F9848E731B92B582A3B3FB594E134A641F9B6C8
 magnet:?xt=urn:btih:28AC39D752E11CE3A06C7BFE6A0CFE6313C6AF22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Echoes of the End - кинематографичный приключенчес�
 ```bash
 magnet:?xt=urn:btih:9013AD79F43835888685C7D298D187F62406D31A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:9013AD79F43835888685C7D298D187F62406D31A
 magnet:?xt=urn:btih:B3F0DD4241944920D7E696DED7EAB2697C0BD28F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:B3F0DD4241944920D7E696DED7EAB2697C0BD28F
 ```bash
 magnet:?xt=urn:btih:757194130FD2726EBDE4B340E9BB3E1EE09631F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:757194130FD2726EBDE4B340E9BB3E1EE09631F6
 magnet:?xt=urn:btih:F0D138A1ABFD009AA383692674A0B0871EE84250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:F0D138A1ABFD009AA383692674A0B0871EE84250
 ```bash
 magnet:?xt=urn:btih:90EF5A4447BFF663A08088436274063C5855818C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:90EF5A4447BFF663A08088436274063C5855818C
 magnet:?xt=urn:btih:25B542D2ED2E9DB4C94E2B3557F7168F3A9FD401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:25B542D2ED2E9DB4C94E2B3557F7168F3A9FD401
 ```bash
 magnet:?xt=urn:btih:0D1B34783FB45AB77D7CDDA2554F54315A1F2593
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Boxville 2 от Triomatica Games - это следующая часть прик
 magnet:?xt=urn:btih:AABF980F65B9A0AF6BC8F1B63D1384734619ED6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:AABF980F65B9A0AF6BC8F1B63D1384734619ED6D
 ```bash
 magnet:?xt=urn:btih:5445A528FC87B4FBAC55DC712679874277B35283
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Bruce Dickinson (Iron Maiden) - Studio Albums (8 releases) (1990-2025) hand made
 magnet:?xt=urn:btih:3762E1D75422B46A3FCAB7E527138362B8E7A89C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:3762E1D75422B46A3FCAB7E527138362B8E7A89C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Tunguska: The Visitation (2021) [Ru/Multi] (1.94-4/dlc) License GOG
 magnet:?xt=urn:btih:673715F966FFC500EC1D6F0CE312A58C3EC558E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:673715F966FFC500EC1D6F0CE312A58C3EC558E8
 ```bash
 magnet:?xt=urn:btih:7A9F1577308391CD2C7A93AF3215E29FAADE46E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Intravenous 2 погружает вас в мир жестоких интриг 
 magnet:?xt=urn:btih:8FBE319A63AEA37133B7D26858419CA3B6D8ADC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Disaster Report 4: Summer Memories (2020) [Multi] (1.05(a)/dlc) License GOG [Dig
 magnet:?xt=urn:btih:5F1D7D9A526DF707662E28DC36C85042B4E9DAB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:5F1D7D9A526DF707662E28DC36C85042B4E9DAB6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

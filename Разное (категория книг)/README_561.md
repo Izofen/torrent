@@ -1,3 +1,29 @@
+###  Публикация: 310152   (838873) от 17.03.2011
+
+Дмитрий Силлов | 50 самых эффективных приёмов уличной драки [2010] [PDF]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_838873.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге описаны приемы самообороны, которые могут помочь в экстремальной ситуации. Приемы, описанные в данной книге, предназначены для самообороны слабого человека от противоправных посягательств более сильного! Цель этой книги - в соответствии с законодательством РФ соблюсти права и свободы граждан, закрепленные конституцией РФ. Книга проиллюстрирована.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6759B7E759D88784C60821BF3C74CE4E8788664E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 310248   (838954) от 17.03.2011
 
 Лян Юшень | Циньна. Искусство болевых захватов [2002] [DJVU]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:3F6CE48B0F6524BDF2E76F4A1DF8B4816C1314C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:3F6CE48B0F6524BDF2E76F4A1DF8B4816C1314C3
 magnet:?xt=urn:btih:05B2CCEFFFC2BADCFE75700072EF910C5AADC5DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:05B2CCEFFFC2BADCFE75700072EF910C5AADC5DA
 ```bash
 magnet:?xt=urn:btih:5E5171D7BA98321E9B8085E7247AF67F4294F1AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:5E5171D7BA98321E9B8085E7247AF67F4294F1AD
 magnet:?xt=urn:btih:25A623205241734724AD49BAC88E913881BE9AED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:25A623205241734724AD49BAC88E913881BE9AED
 magnet:?xt=urn:btih:F7A9DA902A1EBE89673E5210980E794EAE50E0F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:F7A9DA902A1EBE89673E5210980E794EAE50E0F9
 ```bash
 magnet:?xt=urn:btih:1DE9E58144649B279F84817E354DDBC45AB32A29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:1DE9E58144649B279F84817E354DDBC45AB32A29
 magnet:?xt=urn:btih:247209F197852DA149A2431EC1AC0C9266F8E666
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:247209F197852DA149A2431EC1AC0C9266F8E666
 ```bash
 magnet:?xt=urn:btih:7AA78DC3984A5A5B1E72A9D3A49BC10B8D1DD10A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:7AA78DC3984A5A5B1E72A9D3A49BC10B8D1DD10A
 magnet:?xt=urn:btih:88C1FD583D1DE8866A523A72B7219784123024CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:88C1FD583D1DE8866A523A72B7219784123024CE
 ```bash
 magnet:?xt=urn:btih:A185A324D9FDED7D1B0CF9D9A3F5FD5154CF4A22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:A185A324D9FDED7D1B0CF9D9A3F5FD5154CF4A22
 magnet:?xt=urn:btih:617331A0AAE55F46B1024A9F64CDA7AFF5A9CF91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:617331A0AAE55F46B1024A9F64CDA7AFF5A9CF91
 ```bash
 magnet:?xt=urn:btih:481A98F3812F0247A48168C8E1562C0F70472298
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:481A98F3812F0247A48168C8E1562C0F70472298
 magnet:?xt=urn:btih:87F802504C4282389A66C48BB8DBF52822E4A9AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:87F802504C4282389A66C48BB8DBF52822E4A9AF
 ```bash
 magnet:?xt=urn:btih:637B953787A05985AA9A3B2E1A1B9D886EC63913
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:637B953787A05985AA9A3B2E1A1B9D886EC63913
 magnet:?xt=urn:btih:F0618E72B30725D49BD99D902F9CEBC07C310A54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:F0618E72B30725D49BD99D902F9CEBC07C310A54
 ```bash
 magnet:?xt=urn:btih:CC3C9731F81A45BA0E0754F9EFE8BB0ED8E2A79F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:CC3C9731F81A45BA0E0754F9EFE8BB0ED8E2A79F
 magnet:?xt=urn:btih:D46711E379EE43F02B1C0CCAFF5E7C543E4489E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:D46711E379EE43F02B1C0CCAFF5E7C543E4489E6
 ```bash
 magnet:?xt=urn:btih:08494F0188CA630F05EB6E5C514DDA051C28BF8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:08494F0188CA630F05EB6E5C514DDA051C28BF8C
 magnet:?xt=urn:btih:F8B3B93FE3F78D83CC4B54F4D9154B09973F5442
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:F8B3B93FE3F78D83CC4B54F4D9154B09973F5442
 ```bash
 magnet:?xt=urn:btih:2553D94A78F57E3393C37EAF64685FDD32063AC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +581,8 @@ magnet:?xt=urn:btih:2553D94A78F57E3393C37EAF64685FDD32063AC1
 magnet:?xt=urn:btih:83B4A1048CC55A22249A4C43CE96B922BEFC6F74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +607,8 @@ magnet:?xt=urn:btih:83B4A1048CC55A22249A4C43CE96B922BEFC6F74
 magnet:?xt=urn:btih:9FFB94233D8D27121B90CF083AB0AD10AA13CECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:9FFB94233D8D27121B90CF083AB0AD10AA13CECC
 ```bash
 magnet:?xt=urn:btih:E65C3D2F5E48711BE811155D8D62AAED948FAE07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +660,8 @@ magnet:?xt=urn:btih:E65C3D2F5E48711BE811155D8D62AAED948FAE07
 magnet:?xt=urn:btih:95BE7EC2600707D96A687ED03A861BD542DD5365
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,31 +686,7 @@ magnet:?xt=urn:btih:95BE7EC2600707D96A687ED03A861BD542DD5365
 magnet:?xt=urn:btih:1BEDF84AC0846373319B887D31E63493131D8446
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003836   (839760) от 05.04.2016
-
-Слав Олехник и др. | Старинные занимательные задачи (2005) [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_839760.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге собраны занимательные задачи из русских летописей и книг, опубликованных в России до 1800 года.
-Как правило, задачи решаются с привлечением минимальных сведений из арифметики, алгебры и геометрии, но требуют сообразительности и умения логически мыслить.
-В книге содержатся как задачи, доступные детям, так и задачи, представляющие интерес для взрослых читателей. (   Читать дальше...   )Жанр: Головоломки, ребусы, кроссвордыФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6031383CA57CAC82B392DDD0FF93B6BF23538706
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

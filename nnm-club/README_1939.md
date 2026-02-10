@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:BDE921013D019F929A4B7000678F27F4DF94F626
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Drakkar Crew (2023) [Ru/En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:969240A97A710B5C1CB49A03E0A93983D63FA5CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:969240A97A710B5C1CB49A03E0A93983D63FA5CB
 magnet:?xt=urn:btih:4C3666002B7D31F5FF04E1EE7933F5E3D25C1A44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:4C3666002B7D31F5FF04E1EE7933F5E3D25C1A44
 magnet:?xt=urn:btih:D817163AAD448C6A6B00A3FCAE0BA06F30DC568F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:D817163AAD448C6A6B00A3FCAE0BA06F30DC568F
 ```bash
 magnet:?xt=urn:btih:62C493AE12AE9125590D345592E107B9579A5847
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ Susanna Oroyan | Fantastic Figures [1994] [PDF]
 magnet:?xt=urn:btih:AAF8722FA77BC7D7D1B1513E0771AFBEF5CB73DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:AAF8722FA77BC7D7D1B1513E0771AFBEF5CB73DB
 ```bash
 magnet:?xt=urn:btih:7CF8183E7056E76EAA055817B5B0ED07A3CE47EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:7CF8183E7056E76EAA055817B5B0ED07A3CE47EC
 magnet:?xt=urn:btih:A9DC36B73B45472AAB9A2374ECEB895D1CFF5725
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:A9DC36B73B45472AAB9A2374ECEB895D1CFF5725
 ```bash
 magnet:?xt=urn:btih:7D9B346405D1FA86B8C908B82091787F70C31BF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:7D9B346405D1FA86B8C908B82091787F70C31BF7
 magnet:?xt=urn:btih:BAB4A46C245F8E79EF44B2E6D1942FBE85570186
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:BAB4A46C245F8E79EF44B2E6D1942FBE85570186
 ```bash
 magnet:?xt=urn:btih:90DF434FF8E4080F135E62CC287432C593444DA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:A8B64945C69743877A58EF3C053A1A086066203C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:A8B64945C69743877A58EF3C053A1A086066203C
 ```bash
 magnet:?xt=urn:btih:F0D592A025CAB9F7E60B7DF1E5684B9B4CFE887E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:F0D592A025CAB9F7E60B7DF1E5684B9B4CFE887E
 magnet:?xt=urn:btih:704541566896C8D671C87475F0FEAEFB5F663FFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ Young Hearts (2024) [Ru/En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F1FF5D8CB1D18BD0110301A193F43BC324C36B95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:F1FF5D8CB1D18BD0110301A193F43BC324C36B95
 magnet:?xt=urn:btih:8F4735CA84FB3962D89677331B175A4E0510A236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:8F4735CA84FB3962D89677331B175A4E0510A236
 ```bash
 magnet:?xt=urn:btih:31F7A2CB30C5BC6099D19A15FB11D54317F083D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Snappy Driver Installer (SDI) - портативная программа для
 magnet:?xt=urn:btih:B6B16095CEEC8BCAD2BDB99E1D920AEEB1C73AA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Marvel’s Spider-Man Remastered / Человек-Паук (2022) [Ru/Multi] (3.
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ Marvel’s Spider-Man Remastered / Человек-Паук (2022) [Ru/Multi] (3.
 magnet:?xt=urn:btih:5B194AD9BC802B253BC6DCF9BA5FC8D03694BDD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:5B194AD9BC802B253BC6DCF9BA5FC8D03694BDD7
 ```bash
 magnet:?xt=urn:btih:FB0373102888A5AF86F016A75CBA26AA1B925A28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ Kimetsu no Yaiba: Hashira Geiko Hen | Истребитель демонов: Т�
 magnet:?xt=urn:btih:7C731BD251BB643D8E54C3DAE19DA191368CECF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:7C731BD251BB643D8E54C3DAE19DA191368CECF0
 ```bash
 magnet:?xt=urn:btih:5CF6107AB6DECA421BD8A8339357F81153C67C11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:5CF6107AB6DECA421BD8A8339357F81153C67C11
 magnet:?xt=urn:btih:D3E424D7BC48808EB9557ABBA6AC8B79D02E30E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:D3E424D7BC48808EB9557ABBA6AC8B79D02E30E0
 ```bash
 magnet:?xt=urn:btih:FF7C87D95CF4E5EAFDF87CBE6AD1A87ECF8769C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:FF7C87D95CF4E5EAFDF87CBE6AD1A87ECF8769C3
 ```bash
 magnet:?xt=urn:btih:E3CE14A5A4A04870D8F6031927B9FC6DE1FCA04F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

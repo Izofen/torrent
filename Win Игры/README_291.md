@@ -19,6 +19,8 @@ Eastward (2021) [Multi] (1.1.5) License GOG
 magnet:?xt=urn:btih:645C47F384309EF033F9A1F5722C76D5B10D08D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tunnel of Doom (2021) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:BBE9D68FA1271ABDED7CBF46C67CD9B1E5FDDB4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sniper Ghost Warrior Contracts (2019) [Ru/En] (1.02u1/dlc) Repack R.G. Меха�
 magnet:?xt=urn:btih:86A34230AA3290B1A86FF834129E235EC39EB2F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Majesty 2 Collection (2011) [Multi] (1.5.356/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:316283A7E2E430B264599F687984E80C952637F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Knights of Braveland (2023) [Ru/Multi] (1.1.4.50/dlc) Scene Tenoke
 magnet:?xt=urn:btih:DC492B914B6912AB13FAD2AC2F141D774FA1D11D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Spirits of Mystery 12: Whisper of the Past / Тайны духов 12: Шёпо�
 ```bash
 magnet:?xt=urn:btih:A970A67032B9058877E2A1BBED5CC5D59399EED1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ FARMER’S DYNASTY — это совершенно новый игровой о�
 magnet:?xt=urn:btih:405B224FB8B2097ABF3A705E5355C312A2830F7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Christmas Stories 3: Hans Christian Andersen's Tin Soldier / Рождестве�
 ```bash
 magnet:?xt=urn:btih:6915D6E705535D5D4361F8A2A0178EDB91547982
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Legends of Eisenwald / Легенды Эйзенвальда (2015) [Ru/Multi] (
 magnet:?xt=urn:btih:68C387FE942D442684ABDA671F2632AD84F964D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Last Oricru (2022) [Ru/Multi] (9708472) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:F81EAE4CFB9C1ED473B9BF2788B867D202B4E717
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Terror of Hemasaurus (2022) [Multi] (1.0b) License GOG
 magnet:?xt=urn:btih:7CA44550EEB57B7A89D32EA7FF240A88FA57DC9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ This Is the Police 2 (2018) [Ru/Multi] (1.0.7) License GOG
 ```bash
 magnet:?xt=urn:btih:275F1D88072E51B3D574FC99465A6137F16A4D10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Witches' Legacy 8: Dark Days to Come / Наследие ведьм 8: Гряду
 magnet:?xt=urn:btih:DA5F1DE399C33EBB1464ADB9A550D2427639CBAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Husk — это продуманная игра в стиле Survival Horror, �
 ```bash
 magnet:?xt=urn:btih:0712906092D5319ECB3722F78C55B39CBCF7C6DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 magnet:?xt=urn:btih:CEB5E3781B168ECD84650E62CEED6D31519A73F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Euro Truck Simulator 2 дарит вам опыт управления са�
 ```bash
 magnet:?xt=urn:btih:CC1B4DA5E1A7DEB107DED7CD7264245C2AD193DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ PC Building Simulator 2 (2022) [Ru/Multi] (1.00.12) Repack Other s
 magnet:?xt=urn:btih:C8E60B61855E46E1F222B4E7172C33042B85428F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Stirring Abyss — пошаговая тактическая инди-игра �
 ```bash
 magnet:?xt=urn:btih:438BFBA0A4739EDE8C6E4493601E0ED71840FCAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Bibi Blocksberg - Big Broom Race 3 (2018) [Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:C4A1AE0EDA155A94B3CDB8540C70B632A3874990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Haunted Hotel 18: Room 18 / Проклятый отель 18: Комната 18 
 ```bash
 magnet:?xt=urn:btih:55F5F20B00FE3E7330C8DF8E0A636BABD170EA57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Inversion (2012) [Ru] (1.0.1.0) Repack =nemos=
 magnet:?xt=urn:btih:F212498F3D871819AF4E38DF5EA6619762EB8703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Dying Light - экшн-игра на выживание от первого ли
 ```bash
 magnet:?xt=urn:btih:9DD872178A1138D182ABB906D99A3F0D68688AC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ DARIUSBURST Chronicles Saviours - новая игра в серии аркадн
 magnet:?xt=urn:btih:1364966DEB0B109F6A54F9021C35B95F6D85C6AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Lost Eidolons (2022) [Ru/Multi] (1.00.06.R293.8b7ed397/dlc) Repack DjDI [Digital
 ```bash
 magnet:?xt=urn:btih:E78D041C8304283AAB508D759561BB8628ADBCBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Maneater (2021) [Ru/Multi] (7837297/dlc) Repack DjDI [Apex Edition]
 magnet:?xt=urn:btih:3FDD1E0C57424654CA5E3F79D2D75ECF413A478C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Project CARS 2 – это вторая часть успешного гоноч�
 ```bash
 magnet:?xt=urn:btih:7D5755BBD0EC24BCE1F5CA5E3F21AC7E4617171D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

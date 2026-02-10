@@ -19,6 +19,8 @@ Microsoft Classic Board Games (2000) [En] (1.0) Unofficial
 magnet:?xt=urn:btih:F528147B82E698D4B6CEFAEDBC25FC380E9FB333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MechoEcho, интерактивный конструктор-головолом�
 ```bash
 magnet:?xt=urn:btih:FC9A5BD337CB32770A21E43355D358BDD2B2A34D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ SolSuite 2016 – крупнейшая, постоянно дополняема�
 magnet:?xt=urn:btih:1911A98C733B709C79ECC4B0BDEB9C4C5F3FB065
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Radical Dungeon Sweeper (2018) [Multi] (1.06) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A178511CA7EBB7A0AA52EAD671C0177F2480E354
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Toxtronyx выпустила “Bridge2!” на мощном движке Unity
 magnet:?xt=urn:btih:5DEDD74ECE66294F2FEA79983FE7F3A3D975F3D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:5DEDD74ECE66294F2FEA79983FE7F3A3D975F3D3
 ```bash
 magnet:?xt=urn:btih:C136AC230F6F5F24441CF25A25BAE5738A1FBDC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Magic: The Gathering - Duels of the Planeswalkers 2014 – новая часть
 magnet:?xt=urn:btih:E469C2983E30F6A069F19351CA6C553B540C7F25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Dragon Kingdom War (2017) [En] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:CCBC9ED5037D39A2FB1E95DC23C96595000D204A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Armello - увлекательная RPG от австралийской сту�
 magnet:?xt=urn:btih:89EF4408236BEDA1DD4A26AF9B0B02A3243E4EB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Armello - увлекательная RPG от австралийской сту�
 ```bash
 magnet:?xt=urn:btih:025F6F106DE29DB1EC111E36134CCBB0CF3727E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Finnish Roller – это простая indie 3d игра с мячиком. В
 magnet:?xt=urn:btih:C51CEFE3868A2A397DA0A8505B6884610AB59170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Armello сочетает три стиля игры: карточную такт
 ```bash
 magnet:?xt=urn:btih:B37B22F82DFB9085DA5F3C3D367C37F9111226EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Fairies - увлекательная головоломка для всей се
 magnet:?xt=urn:btih:8103CB0DDC38F3D3600674D567FAE02F31A71673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ CARRION — хоррор, в котором вам предстоит оказа
 ```bash
 magnet:?xt=urn:btih:17F123D682A2AE00AD35C173177148873D683FDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ JollyHangman — это реализация классической игры �
 magnet:?xt=urn:btih:9D635DB863DA493EC15835C2178092A71680ACA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Deep Under the Sky (2018) [En] (1.181) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C1FDB55B786C4B0D3038B81700CEE41A2AB6CE0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Getting Over It with Bennett Foddy - это карательная игра в �
 magnet:?xt=urn:btih:D8DC669A7F642D77302BF1042AB9B561A14207AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Secrets of Magic 3: Happy Halloween (2017) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:530C272BE832DE8F9A21D8FFB4A2A70EC40E4BAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:530C272BE832DE8F9A21D8FFB4A2A70EC40E4BAC
 magnet:?xt=urn:btih:DFFDADD4A7B48C39118EC6C016E338D88ED8D27C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Fantasy Mosaics 31: First Date (2018) [En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:347DB470D0D865D6AAEEFED5690D935F8B40D65D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Impresja - это исследовательская игра, происход�
 magnet:?xt=urn:btih:70D079ADA54E1335C03ED8C66F488ABBB1B92536
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Algo Bot (2018) [Ru/Multi] (1.0.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:390E8223E48DA6DD00C83A029B247F6D4ED99C8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:390E8223E48DA6DD00C83A029B247F6D4ED99C8B
 magnet:?xt=urn:btih:3F89F6949932F2F3A8EB98392C3097231976BBE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Mosaic Game of Gods III / Мозаика. Игры богов III (2019) [Ru] (1
 ```bash
 magnet:?xt=urn:btih:1A6DFFE7556E2B8269ED4CE7EF34AEAFA6098FFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Macabre Ring 2: Mysterious Puppeteer (2019) [En] (1.0) Unofficial
 magnet:?xt=urn:btih:5EC989351DD1D6365E2BBE45491A9CC13B596161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ AtmaSphere - это игра о шаре, происходящая в средн
 ```bash
 magnet:?xt=urn:btih:6A130DCB16073B6A740273B7B7F1A1F9EBD2BA5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

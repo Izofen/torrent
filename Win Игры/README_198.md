@@ -19,6 +19,8 @@ In Stars And Time - увлекательная РПГ, которая заста
 magnet:?xt=urn:btih:66F5A56DBDCF85AA6F133D5963E283607A6AEF99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Last Hope Bunker: Zombie Survival бросает вас в постапокал�
 ```bash
 magnet:?xt=urn:btih:B260EB7FB8A36F2C3524B294583542A2CC13D856
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Mystical Riddles 4: Ghostly Park (2024) [Multi] (1.0) Unofficial [Collector's Ed
 magnet:?xt=urn:btih:CEB36BDE129345DCAD4CC43F0067ABA8252CCBEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Barn Finders – это симулятор поиска "сокровищ" в г
 ```bash
 magnet:?xt=urn:btih:6E5EDA9501FD758E9506EAFB4E7124B81F7AB850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Anonymous Hacker Simulator (2024) [Ru/Multi] (1.0) Repack Other s [AD]
 magnet:?xt=urn:btih:F64FF790207A15456C2C24645FC967F0FEBB2B36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Anonymous Hacker Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B76310912F7E57A94BF4FD84CB31BF6E71D81DC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Excavation of Hob's Barrow (2022) [En] (1.05) License GOG
 magnet:?xt=urn:btih:B017E40DD10C6F0DEAF449BD64F41DA065C4CE02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Colony Ship: A Post-Earth Role Playing Game - пошаговая ролевая 
 ```bash
 magnet:?xt=urn:btih:0BBAFA29586E6C589202197475488CC62729731F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Outpost: Infinity Siege - это увлекательный научно-фан�
 magnet:?xt=urn:btih:CF4EF9287F6EEEF61815589F08B1DAFF8B957F71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Timeworks погружает вас в безумный мир путешест�
 ```bash
 magnet:?xt=urn:btih:2755A97BCEB4D3C05C502284EFBBE1B6707868CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Handball 17 – это возможность сыграть в професси
 magnet:?xt=urn:btih:F0FB9B0F49694A7251780B9FE01B351A88BA6FB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Hydroneer – это симулятор добытчика золота и др�
 ```bash
 magnet:?xt=urn:btih:E9B36710E079C346F295D12BC0F4712461479160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Motesolo (2021) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:0F66AFBC23A7D28F75C15FA75C11A93E16321140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Gridrunner. Revenge of the Mutant Camels. Tempest 2000. Llamatron. В брита
 ```bash
 magnet:?xt=urn:btih:DD8DD9C189E0AF43D1C7C0E47D9767EC0427CD93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Spider Fox - это однопользовательская игра о без�
 magnet:?xt=urn:btih:959FF9CE25315A3F99744A9EA6D37E536C332C64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Ario бросает игроков в фэнтезийное царство, т�
 ```bash
 magnet:?xt=urn:btih:556C9C70A470F1783CEE83322EC3FBD33901167F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Open Roads (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:D3AA18199231ABB8D06A06E67C3F01FB252C6BF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Sea of Stars - динамичное ролевое приключение, ра�
 ```bash
 magnet:?xt=urn:btih:53F1ACC60BBB2D7483EC8DEC5051A69CA7F2C30B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Withering Rooms отличается от многих хорроров. Во-п
 magnet:?xt=urn:btih:415C582D3877CE102FB1CD4C85B853D22FA841E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ DYSCHRONIA: Chronos Alternate (2024) [Multi] (1.0) Scene Tenoke [Dual Edition] [
 ```bash
 magnet:?xt=urn:btih:59EA8F0E91EC3604BBB13902910694E8395C1E14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Pathfinder: Gallowspire Survivors, созданная по мотивам поп
 magnet:?xt=urn:btih:70B455260E2680AF111C8EA6AE3726AC0CA0D20F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ War Tortoise - игра-кликер абсолютно нового уровн�
 ```bash
 magnet:?xt=urn:btih:F6304AC1C49A06A64B96E396301DBE0F74C10860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Edge of Reality 9: The Legend Of Greenbush / Край реальности 9: Л
 magnet:?xt=urn:btih:70F2934965ABE2B268BDE836B5719AA92876F0A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Withering Rooms отличается от многих хорроров. Во-п
 ```bash
 magnet:?xt=urn:btih:86D9EE2A74D69F317AF75933725E7E40A5795E79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Project Hunt - приближенный к реализму симулятор �
 magnet:?xt=urn:btih:BF8BA9EF34283A830AD553CCB4D327EFE599C532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Go Fight Fantastic - приключенческий экшен с богатым
 ```bash
 magnet:?xt=urn:btih:C8D84B6EFDCF73A735DEEE4D8534200E1856B8D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

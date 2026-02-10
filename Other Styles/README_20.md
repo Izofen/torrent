@@ -22,6 +22,8 @@ Gilead - Medieval Groove (2017) [FLAC|Lossless|image + .cue] <Medieval folk>
 magnet:?xt=urn:btih:FF2B2186F14CB1C220B2211CB848A0C1C5A7B0F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Paul Haslinger - Resident Evil: The Final Chapter / Обитель зла: По�
 ```bash
 magnet:?xt=urn:btih:56D9DB4A6F6CB3133C5437B1EC467CD562C5826F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:56D9DB4A6F6CB3133C5437B1EC467CD562C5826F
 magnet:?xt=urn:btih:1861A5EE1639532D5823C1E30AC0F49EF05A3FA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:1861A5EE1639532D5823C1E30AC0F49EF05A3FA1
 ```bash
 magnet:?xt=urn:btih:57A0183D8E3EEC5C3B5376C49FBB78F1574B61B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:57A0183D8E3EEC5C3B5376C49FBB78F1574B61B2
 magnet:?xt=urn:btih:20079987102DFCBC73B1036596297338D389F7E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Pistol Annies - Hell on Heels (2011) [FLAC|Lossless|tracks + .cue] <Country>
 ```bash
 magnet:?xt=urn:btih:DB01DB08C00D97D9D3251FB508119F524FB1BC0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Kari Arnett - Midwestern Skyline (2015) [FLAC|Lossless|tracks] <Country>
 magnet:?xt=urn:btih:5508C62C689094E6AB03510A5BAF1D68523FF7CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Zen Buddhismus Regeneration - Musik fur Yoga Ubungen (2017) [MP3|320 Kbps] <New 
 ```bash
 magnet:?xt=urn:btih:26B905F7D313793038C8ADA17A25714481418007
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Laura Sullivan - Healing Music for Meditation and Well Being (2017) [FLAC|Lossle
 magnet:?xt=urn:btih:A56B39BBD40AE714362FF56E36664F6862244B9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:A56B39BBD40AE714362FF56E36664F6862244B9B
 ```bash
 magnet:?xt=urn:btih:16C8077C76C9F68E474B621F402C08027EC1889A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Maitreya Bland - Tranquility (1999) [FLAC|Lossless|tracks + .cue] <New Age>
 magnet:?xt=urn:btih:F27F73B418F362E9DAAB22EC8EE7BE1D71BDD294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Anousheh & Tom - Silence (Secrets of Persian Ney) 2016 [MP3|320 Kbps] <Newage, M
 ```bash
 magnet:?xt=urn:btih:BAC41DC1832C90DF015E2628758B0BCF7FD3FC41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Jeffrey Hilton - Velvet Skies (2016) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:F10BB479AB22C2717E830C2B8AEF466568EB27A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ Francis Goya - The Best World Instrumental Hits (2009) 2CD [APE|Lossless|image +
 magnet:?xt=urn:btih:F04FF2A82397BD428C422F5449D3ACFE88C4A26F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +427,8 @@ Ukrainia - Shadow Era (2017) [MP3|320 Kbps] <Folk Rock>
 ```bash
 magnet:?xt=urn:btih:E4A1B3F641586C376D13AE3B827BC1F57C8DB8C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +458,8 @@ Clint Mansell Performed By Kronos Quartet And Mogwai ‎– Фонтан / The F
 magnet:?xt=urn:btih:AA4295BEA937911FD06E147A2232475D40253419
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +486,8 @@ Rammstein выпустили акустический альбом «Klavier». 
 ```bash
 magnet:?xt=urn:btih:995D7ED4BEA56D9979103373B4C5D626FC51CDE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +522,8 @@ magnet:?xt=urn:btih:995D7ED4BEA56D9979103373B4C5D626FC51CDE9
 magnet:?xt=urn:btih:06A638A10AC92D5F59A3793D51EFBA755C472C51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +557,8 @@ Acoustic Ocean - Reflections On Still Water (2010) [FLAC|Lossless]<New Age, Medi
 magnet:?xt=urn:btih:42CF99A482EA7FD54896063A97DE358317C4009B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +585,8 @@ VA - Christmas Hits 2020 (2020) [MP3|320 Kbps] <Christmas, Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:192E2CDF60451C5C05911C073C5C4AF5D69C2B5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +621,8 @@ Alan Silvestri - Ночь в музее: Секрет гробницы / Night A
 magnet:?xt=urn:btih:894DC27DCE09C15ADD4E26302DA7A3500FD39D73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +655,8 @@ Classis Background Mood Music Band - Soothing Romantic Standards (2013) [MP3|320
 ```bash
 magnet:?xt=urn:btih:510699115172910148CAC869AE14763D0838DA50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +691,8 @@ Alec Puro & Linkin Park - Пассаж /  Mall (Music From the Motion Picture) (
 magnet:?xt=urn:btih:3F2CEA4BBFE2EFBEB274EA6EDBF6307D7B7ED1A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -680,6 +726,8 @@ Alan Silvestri - Ночь в музее 2 / Night At The Museum: Battle Of The S
 magnet:?xt=urn:btih:EDFB2BA284CB52AE9002D89C0B923C87AC4CB789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -707,6 +755,8 @@ Philippe Rombi - Frantz (2016) [FLAC|Lossless|tracks + .cue] <Score, Soundtrack,
 magnet:?xt=urn:btih:8DE8700CA2CBE872DBD470FB120C0DBAD87A6D40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -733,6 +783,8 @@ Mistheria - Dreams (2020) [MP3|320 Kbps] <Progressive Rock, New Age, Ambient>
 ```bash
 magnet:?xt=urn:btih:846F16443236E7CCFB41F8E436A7D6A318722791
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

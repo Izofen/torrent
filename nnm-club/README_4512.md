@@ -19,6 +19,8 @@ Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life
 magnet:?xt=urn:btih:EF61E8E9811A9CB6DF947FA15CE208B2B97DE409
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ George Adams - Paradise Space Shuttle (1979) Remaster, 2015, Timeless Records[FL
 magnet:?xt=urn:btih:84C2A574EEE6C75AA2594E4817C7AC093282A8E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Star Wars: The Force Unleashed 2 (2010) [Ru/Multi] (1.1) License PROPHET
 ```bash
 magnet:?xt=urn:btih:AB9E3A48801E395A905C780804C6F8712CA36523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Mirillis Action! 4.0.3 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:12979739C3FE4140AF1779CBA4264F1699AEBBDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Atlanta Rhythm Section - Time Machine (2023) [FLAC 24/44.1|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:BAD5717D7CC5E21D05CC939CF58B6603AC86E38D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:BAD5717D7CC5E21D05CC939CF58B6603AC86E38D
 ```bash
 magnet:?xt=urn:btih:62C31A6DEBEA6A5A91A4ADE3DE7E3E569AD476D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:62C31A6DEBEA6A5A91A4ADE3DE7E3E569AD476D8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:62C31A6DEBEA6A5A91A4ADE3DE7E3E569AD476D8
 ```bash
 magnet:?xt=urn:btih:798DDDF348AFE27CE7B4648704D9CCBE985CB0CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:798DDDF348AFE27CE7B4648704D9CCBE985CB0CE
 magnet:?xt=urn:btih:29D4AAACA6FEA5F94BC7213ABA843D82AD3E0212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:29D4AAACA6FEA5F94BC7213ABA843D82AD3E0212
 ```bash
 magnet:?xt=urn:btih:C18325FE93A405741C760CC9D81F93BBAB09965C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:C18325FE93A405741C760CC9D81F93BBAB09965C
 magnet:?xt=urn:btih:5B270A962F96D1E5B86AD73E708F79046F07FECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:5B270A962F96D1E5B86AD73E708F79046F07FECD
 ```bash
 magnet:?xt=urn:btih:9EF639EC6D4626D9099A41749DE2578A645A373D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:9EF639EC6D4626D9099A41749DE2578A645A373D
 magnet:?xt=urn:btih:2AC18B2243B0FCE2E827435086E86FCA736899FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:2AC18B2243B0FCE2E827435086E86FCA736899FC
 magnet:?xt=urn:btih:C90EF9573F3AEDE52C6E5F5F4722CB8F5608A5CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ PSD Рамки-календари на 2018 для вашего творчест
 ```bash
 magnet:?xt=urn:btih:650A97716C2C6B809C5B552F91CDF19EA4739139
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ Kryder - Kryteria Radio 166 (Yearmix 2018) 2018-12-26 [MP3|192 Kbps] <House, Tec
 magnet:?xt=urn:btih:DADA4EF1C77B41E3DCC33A534C59297B75A2089E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:DADA4EF1C77B41E3DCC33A534C59297B75A2089E
 ```bash
 magnet:?xt=urn:btih:0FB86D34D6E15398B0DA4EDD610EBD2D7E62D137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:0FB86D34D6E15398B0DA4EDD610EBD2D7E62D137
 magnet:?xt=urn:btih:17973BD4C3F82E5B32E6207992BBC3409A11FBAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:17973BD4C3F82E5B32E6207992BBC3409A11FBAD
 magnet:?xt=urn:btih:DCE391D400A839C7E71672E10195D352D919DC7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:DCE391D400A839C7E71672E10195D352D919DC7D
 magnet:?xt=urn:btih:DFC672E8E41E16B9AF63B1076233E88D60D72999
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:DFC672E8E41E16B9AF63B1076233E88D60D72999
 ```bash
 magnet:?xt=urn:btih:4E9E9515B2845C77F8026B8D5AB0859AF722EAAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ David Newman - Newmanism (1974) Remaster, 2015, Warner[FLAC|tracks+.cue] <Hard B
 magnet:?xt=urn:btih:9174702E90CCAA1660B1021FE14E42ADD41BDF92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ Moment - это приложение обратного отсчета на ос
 ```bash
 magnet:?xt=urn:btih:A432227B3BD986CF05902D5DC30386166523D415
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:A432227B3BD986CF05902D5DC30386166523D415
 magnet:?xt=urn:btih:A906601E37A05456AF5717C8ABD8F37903FFF304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ ScrollNavigator - программа, которая поможет вам пр�
 ```bash
 magnet:?xt=urn:btih:3558B2327A2915ADD920FFB597E09F88E5AF918C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +690,8 @@ Crucial Fix - Crucial Fix (2015) [MP3|320 кб/с] <Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:8C875FA498042AB2938CB0165741C12CF6962872
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

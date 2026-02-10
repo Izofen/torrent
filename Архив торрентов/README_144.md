@@ -20,6 +20,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:6E343A91CC6249882E9D751AF312DF4A3863D0A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Media Player Classic Home Cinema - удобный во всех планах м�
 ```bash
 magnet:?xt=urn:btih:763B49EDAB792212FB9177BF15D1073EF2FE0BA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ v2rayN — это универсальный инструмент VPN и про�
 magnet:?xt=urn:btih:1DFCB5CE04AFA81F4867F47EBE3A92E52D668700
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ v2rayN — это универсальный инструмент VPN и про�
 ```bash
 magnet:?xt=urn:btih:98423237A7C2DC8ACA431A78DA996BE9BB4023EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ O&O ShutUp10 позволяет получить полный контроль �
 magnet:?xt=urn:btih:850788326720C5BB1F7060AE7BA75DD38A31C04B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Google Earth Pro 7.3.6.10155 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:22A5940CD3C024ED2362914842B06E71932787DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:BCB842D68983976A28C6AD35071114B4C5FAF904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:1ED284A6027C90D9940C84B310D6F1858B0BBD12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ After Effects — это ведущая в отрасли программа д�
 magnet:?xt=urn:btih:AEECA65020C15EBE3659065CCC2E4B6C339146F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Adobe Photoshop Lightroom Classic 2025 14.1.1.1 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7621F16EBF7DF03BA2D8F759171363E8C31E9B0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:447A02810E4E2496F9A1935D47E38C2CFE6D8C89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Wondershare UniConverter - простой в использовании виде
 ```bash
 magnet:?xt=urn:btih:61A97A87C5283E8A88D192FE92985547C420ABC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Windows Manager - это универсальная утилита для Micros
 ```bash
 magnet:?xt=urn:btih:71519AD827424CA410AA39A93733178FD4DCB6D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Camtasia захватывает действия и звуки в любой ч�
 magnet:?xt=urn:btih:B065A3A25466F354D5CE4845001A17FEA5ED4723
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Hard Disk Sentinel — отличная программа для монитор
 ```bash
 magnet:?xt=urn:btih:34ADC704159EEA84339B51BDD73AF5A401EA30F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Aiseesoft FoneLab for Android — это популярный инструмен
 magnet:?xt=urn:btih:16743C44BDFCCC5265DE76E9CAB53C23DC1AD3DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Freemake Video Converter - это бесплатное универсально�
 ```bash
 magnet:?xt=urn:btih:B58C9178F51DAEAE9A421C75AE45E6AF9C4DDEF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ foobar2000 - это аудиоплеер, подкупающий своим ве
 magnet:?xt=urn:btih:D817E4C04D3DB10A2D7DB61FDFDBBBA7B920A357
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Skype - бесплатная программа для текстового, г�
 magnet:?xt=urn:btih:562266A9C714109CCD1CFA5D1AE99F120853D892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ VMware Workstation — популярная программа для созда
 ```bash
 magnet:?xt=urn:btih:34C8A12DE812A5A372B320DA92551BE7B9AAA2DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 magnet:?xt=urn:btih:41AC9CCA5DB56627FAAD6C9E687EA9B80693822E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:2D749F3764513A2E05A3F2B8FF5779624B75EF74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:E0BC0DE77A94C91CD349A0F4A561B157DF9DFC25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Google Earth Pro 7.3.6.10155 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:561EDCBA699143A2431C27AA0AA79F6F474066D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ PDF24 Creator - бесплатная программа, которая позв
 magnet:?xt=urn:btih:B6D9F04148D0FED070CA0E4DD1080AD84B5581B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:5C2860BA0E2C67D9970060F02D9AF7119B5DC6E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

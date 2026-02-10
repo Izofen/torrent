@@ -19,6 +19,8 @@ FastCopy - инструмент для быстрого копирования/�
 magnet:?xt=urn:btih:2E614A7E88C74DD47D03035736ED5C4F59BD1FFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Русская 30-ка хитов 4 (Новые русские песни) 
 magnet:?xt=urn:btih:98C01511481C6760A84DAE754AB0CEA432069067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:81BF21A66FCE2256AD52F6451C938DF5859129CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:81BF21A66FCE2256AD52F6451C938DF5859129CD
 ```bash
 magnet:?xt=urn:btih:AF2E05BAD1A33F01CE5AC1DF15DFBEAD408B2CCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:AF2E05BAD1A33F01CE5AC1DF15DFBEAD408B2CCC
 magnet:?xt=urn:btih:235E62020F88D520CA9686F61B7D402096FE9E50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:235E62020F88D520CA9686F61B7D402096FE9E50
 ```bash
 magnet:?xt=urn:btih:81760261D69A6EA4D9696A679C8F680D5A72275F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:88245B80101942DC269B1C377E15357772FC8CB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:88245B80101942DC269B1C377E15357772FC8CB1
 ```bash
 magnet:?xt=urn:btih:1E0D85283046177813B196C8E3AEA2C81E29DC62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Exhorder — американская метал-группа образован
 magnet:?xt=urn:btih:668C15937FE087A799B38D6CE08753D4727B6E69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ Bloodorn - Let the Fury Rise (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 magnet:?xt=urn:btih:EF453967A2CB3F425CA16650AE83844DBC0340D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:EF453967A2CB3F425CA16650AE83844DBC0340D1
 ```bash
 magnet:?xt=urn:btih:748CC5D9B409BFBF96FA281F639BA28696E3303A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Superblue - Superblue 2 (1990) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop
 magnet:?xt=urn:btih:4E741A2D1DDA8D70A775CE0736194DA36B906494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ Malachi Thompson - Freebop Now! (1998) Delmark Records [FLAC|Lossless|tracks + .
 magnet:?xt=urn:btih:2042E00D88782BC96A3C86C1C971273247B32300
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:2042E00D88782BC96A3C86C1C971273247B32300
 ```bash
 magnet:?xt=urn:btih:2D76A3CC83BF343D810845824DF4679D4879208F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 magnet:?xt=urn:btih:F7E9FE75D1B343BC1757F788ED8510DBA9EE32B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:F7E9FE75D1B343BC1757F788ED8510DBA9EE32B7
 magnet:?xt=urn:btih:F2A2C3104DE6E3C8D962927175E69A65119E7493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:F2A2C3104DE6E3C8D962927175E69A65119E7493
 ```bash
 magnet:?xt=urn:btih:A0E919BECA21D9BEA8D646FBE4445BD652DD2ACF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:A0E919BECA21D9BEA8D646FBE4445BD652DD2ACF
 magnet:?xt=urn:btih:410224477F735A85784643E4050EDE8B3D4EFF78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:410224477F735A85784643E4050EDE8B3D4EFF78
 ```bash
 magnet:?xt=urn:btih:56FDB4C38FA65E25CE61C793FDA66993C0C745B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:56FDB4C38FA65E25CE61C793FDA66993C0C745B5
 magnet:?xt=urn:btih:500FEE2F8A6459BD12970F32476B90A719756D91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ Focsker | Из черни в аристократы. История одного
 magnet:?xt=urn:btih:60A63DC3B39F1057C477183E17EE196A9E3C1F84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:60A63DC3B39F1057C477183E17EE196A9E3C1F84
 ```bash
 magnet:?xt=urn:btih:3688FFE2C6C1A5DE4B952833A14E38FFA1768605
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ Opera GX - это специальная версия браузера Opera, с
 ```bash
 magnet:?xt=urn:btih:ED5AF0DD6C06014C53A29B381352DC3090D5D9DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ VA - Nothing But... Pure Dance, Vol. 20 (2024) [MP3|320 Kbps] <Pop Dance>
 magnet:?xt=urn:btih:ED2215D34988DEFB81842848A0686C09D95CFFAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ VA - Шансон премьера 2023 октябрь (Новые песни. �
 magnet:?xt=urn:btih:D52C4258442E5169A05DEE347D6966F288A4C711
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ Focsker | Из черни в аристократы. История одного
 ```bash
 magnet:?xt=urn:btih:CF3B9BAEEB0CAD91E09767489DE77A456FC86FB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

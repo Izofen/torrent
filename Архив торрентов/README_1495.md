@@ -19,6 +19,8 @@ File & Image Uploader - удобная и просто незаменимая п
 magnet:?xt=urn:btih:659168F186FEA66E6ABB7642261A76B737ED5193
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Microsoft .NET 7.0.10 Runtime [Ru/En]
 magnet:?xt=urn:btih:AFE27CA18187E6C656DDA8315D2B7C899D5FF7F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:7E8B96C07A2A3A5111CDE4566859947AAA39AABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 magnet:?xt=urn:btih:260DB306803A23BDC0FC13E30BF56E388A661822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ SamDrivers 22.10 Expert [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F7B58BFD26CD00413E2673FF81B6F2D706D848BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ ChrisPC Win Experience Index - бесплатная утилита, с помо�
 magnet:?xt=urn:btih:0F6CC153ED822037854679443B4428DC8F4FE38C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Microsoft .NET 6.0.21 Runtime [Ru/En]
 ```bash
 magnet:?xt=urn:btih:E4AEC56DFB73A324FD0863EC8BB9A433159CF85F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ EmEditor Professional - профессиональная версия мощно
 magnet:?xt=urn:btih:D251DA98FE7C8300F381B73DD6BD632EEF14B9FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ QuickTextPaste 8.66 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:70A17E1BB39AA162E8E3C4B7C7293D002109C332
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ OCCT 12.0.11 Final Portable [En]
 magnet:?xt=urn:btih:A4C34110D871B6EA4200E5377587FE0EB4F3B650
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:C24CC15192DEC0A094484C687DA450013ACF23CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ WinCatalog - это простая в использовании програм�
 magnet:?xt=urn:btih:455A313CA14F435224B55D2B79562BE3532483B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 ```bash
 magnet:?xt=urn:btih:7F0687A2C5FC439339F344CC6E79F0DAAFE9105E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:A780013D84CBDADB114E89AC931DDD29B4AD4AA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ NonVisual Desktop Access (NVDA) — свободная с открытым ис�
 ```bash
 magnet:?xt=urn:btih:3C4558C0A6181D6FE34D327516A5471A31BB43D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ BurnAware - простая и в тоже время мощная програм
 magnet:?xt=urn:btih:7A0559CCC33529A50395E7DA934C70381FE13642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Phase One Capture One - один из лучших профессиональн�
 ```bash
 magnet:?xt=urn:btih:A08A610BF492A7176E41FD8D316E7F37627A2007
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Capture One 23 Enterprise — решение для редактирования
 magnet:?xt=urn:btih:23EAAA8AB416304EF96749CB284551463627390A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:23EAAA8AB416304EF96749CB284551463627390A
 ```bash
 magnet:?xt=urn:btih:280A0AF457CCE875CC8616552E037D9F93915BA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Paint.NET - Простой, но мощный и удобный редактор
 magnet:?xt=urn:btih:A7741515964C029E038F9BD68496A153A395B04B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ HopToDesk - это бесплатный инструмент для удален
 ```bash
 magnet:?xt=urn:btih:63B0FD288E8FD05D32108972B3886A16E0414C67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:8C94B416AAE9CBAE439C40883856600B9CBE48CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:450526B4EF7599D4035CFC817635B19700E5F6C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 magnet:?xt=urn:btih:A87D472D86A5F66D8EEDE3F2A32B4AD184FB8DB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ GeoGebra — мультиплатформенная программное об�
 magnet:?xt=urn:btih:06D19C227490C4D5EC5AAD4339DB91C8E5101F50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ WinX VideoProc Converter - усовершенствованная версия, 
 ```bash
 magnet:?xt=urn:btih:44D8AA2EDE3BB59E2E14CFDB593AD14FAC65F11C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

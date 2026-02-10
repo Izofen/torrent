@@ -19,6 +19,8 @@ Librarian Pro 7 v.7.4 [En]
 magnet:?xt=urn:btih:A7B5CE8D89FAA70A9E29245BEB772D29ACB00D59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:A7B5CE8D89FAA70A9E29245BEB772D29ACB00D59
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:A7B5CE8D89FAA70A9E29245BEB772D29ACB00D59
 magnet:?xt=urn:btih:9570AA4A66660CAD021A1DAF6FBCF591B845A0D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:9570AA4A66660CAD021A1DAF6FBCF591B845A0D2
 ```bash
 magnet:?xt=urn:btih:21E48FAE6DB6E8F357A843ACE4EDB7A173993190
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:21E48FAE6DB6E8F357A843ACE4EDB7A173993190
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Dash - очень удобное приложение, включающее в �
 ```bash
 magnet:?xt=urn:btih:FC6ED1E947B97AF2C515993068A3E393252989F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ JixiPix Artista Impresso Pro 1.8.24 [En]
 magnet:?xt=urn:btih:56BB1D0CCE5C2D2ED661D5F4D2BCBB8F096B6C68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:56BB1D0CCE5C2D2ED661D5F4D2BCBB8F096B6C68
 ```bash
 magnet:?xt=urn:btih:105D657FC01CDF26A01DCA931D8A185D0D3A0568
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:105D657FC01CDF26A01DCA931D8A185D0D3A0568
 magnet:?xt=urn:btih:99DC5445DA2B5778A5D20953424A906B1A0E6BB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:99DC5445DA2B5778A5D20953424A906B1A0E6BB1
 ```bash
 magnet:?xt=urn:btih:30810D525ACAA44D122A72C0CE29977D0CE5C650
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ PhotoRoom - приложение, что будет одинаково поле�
 magnet:?xt=urn:btih:167F7788BE8C1462DC7459C1C81516DF1B7F7C2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:167F7788BE8C1462DC7459C1C81516DF1B7F7C2F
 ```bash
 magnet:?xt=urn:btih:D446352CB5D0D5ED22EE16B49BDC61F7F5733802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Princess Thailand - Golden Frames (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Po
 magnet:?xt=urn:btih:3BF8378FA97B3A53970BB9D9ED14888FE362D0BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ Orange Stable - Nichts für ungut (2023) [FLAC|Lossless|WEB-DL|tracks] <Ska & Ro
 magnet:?xt=urn:btih:667E8959E13F419F30625F5B297E14AC83D9CC94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:667E8959E13F419F30625F5B297E14AC83D9CC94
 magnet:?xt=urn:btih:78DA02790CBA59328DBB9E4977846C924322A7E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:78DA02790CBA59328DBB9E4977846C924322A7E3
 ```bash
 magnet:?xt=urn:btih:2B30430A86DE92B8B4B0F4858AE459ED77AD3791
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ Mike Vickers - I Wish I Were A Group Again (1968) Remaster, 1999, Parlophone UK[
 magnet:?xt=urn:btih:83A0B81588B29F1B9B5C35068ACA5536A13CB8AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ U.S. Highball - No Thievery, Just Cool (2023) [FLAC|Lossless|WEB-DL|tracks] <Ind
 ```bash
 magnet:?xt=urn:btih:251E30A189BABAF6767EDF26FCF49A0A55B67535
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ VA - ROCK para el trabajo (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:88AA5E808681533F312F07C15014FE0B15153A27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ Logitech Gaming Software 8.40.83 [Русский] [x32\x64]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ Logitech Gaming Software 8.40.83 [Русский] [x32\x64]
 ```bash
 magnet:?xt=urn:btih:C32AFBC9B1F0339333B620548FE60E8F1CDD2BE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:C32AFBC9B1F0339333B620548FE60E8F1CDD2BE0
 magnet:?xt=urn:btih:019D934CBFAE4C171A1F044770A38F911A00A74D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ ESET NOD32 Offline Update 6.x/5.x/4.x/3.x
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ Widespread Panic - Boone 1999 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southe
 ```bash
 magnet:?xt=urn:btih:63567D4FE2ECCCBB9BB35EC23026B458DF424979
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ Call of Juarez: The Cartel / Call of Juarez: Картель [Ru/En/Multi9] (Stea
 magnet:?xt=urn:btih:FDB26200383A0A6310139C3C69B824C7BD53FA76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:FDB26200383A0A6310139C3C69B824C7BD53FA76
 ```bash
 magnet:?xt=urn:btih:4752A72DA0C30D9A81E359D533070052AB1D6E71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

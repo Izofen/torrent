@@ -19,6 +19,8 @@ PowerISO - программа позволяет создавать, конве�
 magnet:?xt=urn:btih:7B00016A3B6E798A90C224594F047B7BDBBBA8CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:5F3370BB7A1FBD7BA0FA7C8DEC8F0C8E37A56D97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Nitro Pro – программа, которая является альтерн
 magnet:?xt=urn:btih:E1EB37A961015F2B9B8096D82F19840A7801AC4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:E1EB37A961015F2B9B8096D82F19840A7801AC4B
 ```bash
 magnet:?xt=urn:btih:2509E16565EAF42C8E5A9C307B4EFD82EBFA39D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ PopChar 8.7.0.3001 RePack (& Portable) by elchupacabra [Ru/En]
 magnet:?xt=urn:btih:53EAC1D4D202D2CF7D6820B9BB9E9972559F90B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ PDF Eraser Pro - программа для редактирования файл
 magnet:?xt=urn:btih:1EA539411CABD0E62EAA1D647B6C19D621A567B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Aiseesoft PDF Converter Ultimate - мощная программа, котора
 ```bash
 magnet:?xt=urn:btih:791723ADE3DB51739DB0990DA12ABB0EC2E7EBEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Reset Windows Update Tool разработан для случаев неста�
 magnet:?xt=urn:btih:8DB962ED33F0EE9E0ED15B5DA69D686D19C3298E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ HDDExpert дает вам кристально четкое представле
 ```bash
 magnet:?xt=urn:btih:DE2E0A784FC163B83DB1370FFD39ACE3883FAE1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Bootstrap Studio - мощная программа для создания кр�
 magnet:?xt=urn:btih:7EA45501379447D1C11DC6E411543DBB5ADC5297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Extended GodMode - это утилита, которая обеспечивае�
 ```bash
 magnet:?xt=urn:btih:77F0AA82B96767C5C8F9B807070C5402C84B63ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Ashampoo Burning Studio - это всё то, о чём Вы просили. О�
 magnet:?xt=urn:btih:19969019F567C04A446CAD9760199F50EB8EECE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Wise Data Recovery - утилита, которая позволяет быст�
 ```bash
 magnet:?xt=urn:btih:32BC40A6DDF8CCF6D3B476F3426EC2008127C858
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Wise Data Recovery - утилита, которая позволяет быст�
 magnet:?xt=urn:btih:47A113FE8F96F2DF18DEA0CF3DDDA7F564F146B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Total Uninstall - утилита, предназначенная для корр
 ```bash
 magnet:?xt=urn:btih:F377F637C516779DC51FC8813B35A3DB3C017D93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:F377F637C516779DC51FC8813B35A3DB3C017D93
 magnet:?xt=urn:btih:1341826114D05F1C8C11FB22974E95933CE69F05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Removable Access Tool - легкая программа для управлен�
 ```bash
 magnet:?xt=urn:btih:E301536BF7A4CB9D1736B50E8B1446E8CA69D0B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ MonitorInfoView 1.22 Portable [Ru/En]
 magnet:?xt=urn:btih:E524F99254C9284AC924626C687CD5C197D1FDBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:5A9F97564569691966CF71C31B734D9782D9BF25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Orpalis PDF Reducer Professional 4.0.8 RePack (& Portable) by elchupacabra [Mult
 magnet:?xt=urn:btih:D099041934D3E7C260A447E6D6B0CC891726D731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Icecream PDF Converter Pro 2.89 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:FD3FAEF115BFA485F60E704671F4940C113E5F19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ CCEnhancer – представляет собой утилиту, котора�
 ```bash
 magnet:?xt=urn:btih:0B1B87C9DFFF3244819374E1A07B656060EBB5B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ MouseExtender - это удобная и красивая панель быст�
 magnet:?xt=urn:btih:76249B322A31E95C8B7D6A08D4354FC51C4107A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ FileMenu Tools настраивает пункты контекстного ме
 ```bash
 magnet:?xt=urn:btih:0A9EF297D5DE6765924B456C4BD74507EEE3C8E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ ScrollNavigator - программа, которая поможет вам пр�
 magnet:?xt=urn:btih:A249811CBECA37D33FD72388EF91BE2C2D1C1B6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 ```bash
 magnet:?xt=urn:btih:DCFB0449106CF4C4E4B631FFABB17EB6D75B1ED8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

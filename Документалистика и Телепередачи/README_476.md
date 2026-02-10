@@ -1,3 +1,29 @@
+###  Публикация: 516995   (650970) от 29.06.2012
+
+Азорские острова: поднятие К-129 / Azorian - The Raising of the K-129 (2010) TVRip
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_650970.jpg" />
+</div>
+
+
+###  Подробнее
+
+На темном дне на севере Тихого океана лежат останки самой отважной субмарины в мировой истории. Эти обломки свидетельствуют о страшной трагедии, случившейся 11 марта 1968 года с советской атомной подлодкой К-129, в результате которой погибло 98 офицеров. Место трагедии хранилось в секрете от Советов и лишь через 6 лет было оглашено. Американцы не только нашли, но и обследовали затонувшую подводную лодку в течение первых 2-х недель. Обладая современными технологиями, ЦРУ запустило уникальный проект по поднятию с морского дна части лодки К-129 в августе 1974 года. Этот секретный проект под кодовым названием "Азорские острова" ("Project Azorian"), реализованный во времена Холодной войны, и по нынешним меркам считается трудным. И теперь, спустя 30 лет, эта история, наконец, получила огласку не только среди участников и руководителей проекта: впервые за долгие годы был снят документальный фильм, рассказывающий о подъеме лодки, об успехах и провалах этой колоссальной операции.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 2 серии по 44 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53C231B716ADC2109E695FB71E8AC26444005470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516711   (650982) от 29.06.2012
 
 Планета Египет  [1-4 серии из 4]  / Planet Egypt(2011) DVDRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B4C14815ED21E17AA38CDFF4E83A6381CE870785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:B4C14815ED21E17AA38CDFF4E83A6381CE870785
 magnet:?xt=urn:btih:7979B31AA5A5E44BCD38B7E60D0741D3275CA6D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:7979B31AA5A5E44BCD38B7E60D0741D3275CA6D8
 ```bash
 magnet:?xt=urn:btih:4091DC8C014FE671946B420F7C7E02E0C91F234F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:4091DC8C014FE671946B420F7C7E02E0C91F234F
 ```bash
 magnet:?xt=urn:btih:20119FCCD1422EE9E733DC5A54EAAD70E3B8009D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +156,8 @@ magnet:?xt=urn:btih:20119FCCD1422EE9E733DC5A54EAAD70E3B8009D
 magnet:?xt=urn:btih:187CDC2FDDAE68B264985025200ECE4CDB6AE645
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +181,8 @@ magnet:?xt=urn:btih:187CDC2FDDAE68B264985025200ECE4CDB6AE645
 ```bash
 magnet:?xt=urn:btih:3D882FEA159F8E7E0003A7FEC004D4E74F71552F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:3D882FEA159F8E7E0003A7FEC004D4E74F71552F
 magnet:?xt=urn:btih:491D838709C41AB025B63049AF23A160D551CF66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:491D838709C41AB025B63049AF23A160D551CF66
 ```bash
 magnet:?xt=urn:btih:3E055500C15AFFC2F6D646FBCEB0218EDFA9B201
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:3E055500C15AFFC2F6D646FBCEB0218EDFA9B201
 magnet:?xt=urn:btih:928BFD1D9F9C141160B557C647F070D577F2D890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:928BFD1D9F9C141160B557C647F070D577F2D890
 ```bash
 magnet:?xt=urn:btih:8BFBCE6FFFA6C6059C1C2177236DFA45E8DB9F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:8BFBCE6FFFA6C6059C1C2177236DFA45E8DB9F18
 magnet:?xt=urn:btih:E693ED362BD1E3E4F3E46C865228C36A3C5534F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:E693ED362BD1E3E4F3E46C865228C36A3C5534F1
 ```bash
 magnet:?xt=urn:btih:1A67E229F5D52DBBBE2CE2C080576253BCC0DF67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:1A67E229F5D52DBBBE2CE2C080576253BCC0DF67
 magnet:?xt=urn:btih:AFF7AAEB37EFFA38B05147F71B165CC4281F9C99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:AFF7AAEB37EFFA38B05147F71B165CC4281F9C99
 ```bash
 magnet:?xt=urn:btih:EE1A80D99F3013EC9D74C86C5AEF6DCB143387EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:EE1A80D99F3013EC9D74C86C5AEF6DCB143387EC
 magnet:?xt=urn:btih:0291F34C8840CBCC2C6F365AEC98C39A79B816D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:0291F34C8840CBCC2C6F365AEC98C39A79B816D4
 ```bash
 magnet:?xt=urn:btih:399AFB5ECA7FE80A80C84B31E32CCC53B5F86616
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:399AFB5ECA7FE80A80C84B31E32CCC53B5F86616
 magnet:?xt=urn:btih:DF2110C4E3E7EF3677F1B54EAA3F59D2DC47162A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:DF2110C4E3E7EF3677F1B54EAA3F59D2DC47162A
 ```bash
 magnet:?xt=urn:btih:7791643923A2AB5F3BAAE59CA1BF41BBEF06C980
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:7791643923A2AB5F3BAAE59CA1BF41BBEF06C980
 magnet:?xt=urn:btih:F61B75F33BC7B2CE2D9B69F74B1FC4F59EBEEAA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:F61B75F33BC7B2CE2D9B69F74B1FC4F59EBEEAA1
 ```bash
 magnet:?xt=urn:btih:02AA129883DBC95A5A8255B5C145BDB6FB476051
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:02AA129883DBC95A5A8255B5C145BDB6FB476051
 magnet:?xt=urn:btih:923A628AD533DB18E7BB5F0C2A323CC2742AD43E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:923A628AD533DB18E7BB5F0C2A323CC2742AD43E
 ```bash
 magnet:?xt=urn:btih:FE2760D7029B137AC1D80D0B29393FF508FCC37F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:FE2760D7029B137AC1D80D0B29393FF508FCC37F
 magnet:?xt=urn:btih:859FFD6E363B8A6C60167054BEC8CE4DD4F0A375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ National Geographic. Затерянные сокровища Египта / Lost
 ```bash
 magnet:?xt=urn:btih:FD6B0D6C2AE031C6AACEDB86BA03287FFDE0332E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,29 +676,7 @@ National Geographic. Затерянные сокровища Египта / Lost
 magnet:?xt=urn:btih:5ABEB19CC3D444ABA6DFA860EE4E2B8D157CC615
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141289   (652307) от 09.06.2017
-
-Победитель (2017.06.09) SATRip (выпуск 4)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652307.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Первый канал" запускает новый музыкально-развлекательный проект, участникам которого предстоит не только бороться друг с другом за симпатии зрителей и жюри, но и преодолевать самих себя. "Победитель" - это не только музыкальные дуэли, но и психологические поединки. Сильнейшие участники из всех выпусков соберутся в финале, где экспертное жюри (   Читать дальше...   )Телекомпания: Первый каналЖанр: Музыкальное ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:15:39Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2451DAA97399261C21094CCB44B500854D0A465
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

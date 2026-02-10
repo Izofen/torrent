@@ -22,6 +22,8 @@ Geekbrains | Дизайн и проектирование интерфейсов
 magnet:?xt=urn:btih:EDC833CD49993C91CCCB1FC662B5C4DF113A9E7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:EDC833CD49993C91CCCB1FC662B5C4DF113A9E7A
 ```bash
 magnet:?xt=urn:btih:BD5B5A90BC1789F65E91B76BF326FAD5BBFF07F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:BD5B5A90BC1789F65E91B76BF326FAD5BBFF07F4
 magnet:?xt=urn:btih:98281966A202C6E6D8EBF28D61E9309E09EC5FAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Enterclass, Владислав Татаринов | Букет сирени (202
 magnet:?xt=urn:btih:57AD438A3EDBCB009F8E9E92509DD8DBC9414E0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:57AD438A3EDBCB009F8E9E92509DD8DBC9414E0B
 ```bash
 magnet:?xt=urn:btih:040E274A058AEE4A037FD0C25B2D57CE5A23AE9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:040E274A058AEE4A037FD0C25B2D57CE5A23AE9E
 magnet:?xt=urn:btih:2E8D34150008744FCED74C96FC98AC9FB7C72BC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:6BEDBB1F953CE9790CBC18730DD5104685D75180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:6BEDBB1F953CE9790CBC18730DD5104685D75180
 ```bash
 magnet:?xt=urn:btih:B8BD7E4F2497923F39088BF48503DADD2404E743
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:B8BD7E4F2497923F39088BF48503DADD2404E743
 magnet:?xt=urn:btih:C5CAEE2D6F034A52B4263866676E0DE310904ADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:C5CAEE2D6F034A52B4263866676E0DE310904ADC
 ```bash
 magnet:?xt=urn:btih:F9ADE238D8431384922AD527DDD048A6C559DF37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Adobe Photoshop – многофункциональный графически�
 magnet:?xt=urn:btih:82088F5CFB3328AA266BA3499943C0B6944B78EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Icecream Screen Recorder – простая программа для запис
 ```bash
 magnet:?xt=urn:btih:926C014129E0CB01C786C85B804AA80928257582
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:926C014129E0CB01C786C85B804AA80928257582
 magnet:?xt=urn:btih:EDA3E2E68DF63E135407CDF8FDF4605846559776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Microsoft® Windows® 7 SP1 x86/x64 Ru 9 in 1 Update 11.2022 by OVGorskiy 1DVD
 ```bash
 magnet:?xt=urn:btih:BC13421ADE6C56CA8731C6BF280C0572842A3C98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:BC13421ADE6C56CA8731C6BF280C0572842A3C98
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ GoldWave - звуковой редактор, предназначенный д�
 ```bash
 magnet:?xt=urn:btih:FC09F4232A47B5C189CEA1F06D7BD4DD79A7DF8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:FC09F4232A47B5C189CEA1F06D7BD4DD79A7DF8D
 magnet:?xt=urn:btih:23279959581E9BF07C50B867ADF507C61B3CC944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Udemy, Кирилл Несмелов | Дизайн мобильного при�
 magnet:?xt=urn:btih:57A0BF2AE45F60323B570AEFD3AD7505E13F6537
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Warcraft 3: Reign of Chaos - стратегия в реальном времен
 ```bash
 magnet:?xt=urn:btih:C6288345F8C81BF4C179DBDFF079FAE0C089AF56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:C6288345F8C81BF4C179DBDFF079FAE0C089AF56
 magnet:?xt=urn:btih:55CDDA0C6210E87AE623AC671531CBB4249EBECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:55CDDA0C6210E87AE623AC671531CBB4249EBECC
 magnet:?xt=urn:btih:201D32BA180C5B697867C6AC6A4097CDC00A65C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:201D32BA180C5B697867C6AC6A4097CDC00A65C1
 ```bash
 magnet:?xt=urn:btih:C66CC65B5FC01353671B2C0FCBBF0D5059FEA9AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Police Simulator: Patrol Officers - симулятор полицейского,
 magnet:?xt=urn:btih:5D3F15C96B126EF2C78801074EC7CF9CD8144FA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:5D3F15C96B126EF2C78801074EC7CF9CD8144FA8
 ```bash
 magnet:?xt=urn:btih:14453D32E690648B2104A767B3809C2BE9130E37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:14453D32E690648B2104A767B3809C2BE9130E37
 magnet:?xt=urn:btih:A759B3C16D3987B3BD05C4197AA16C92BBB8CF29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ App Builder позволяет создавать приложения для с
 ```bash
 magnet:?xt=urn:btih:CAB90C8DB0F7D20F4E1B732E32D7C569002942EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

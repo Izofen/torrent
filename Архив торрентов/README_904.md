@@ -19,6 +19,8 @@ MemTest86 - бесплатная программа, позволяющая пр
 magnet:?xt=urn:btih:9434179C50FB340503F0C9BF557A8340135046A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Nik Collection by DxO – это наиболее полная коллекци�
 ```bash
 magnet:?xt=urn:btih:280CFEB0C0C17567722FFCBDB457F2C1695B36A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Alfa eBooks Manager - одна из самых популярных програ
 magnet:?xt=urn:btih:2B0BFCDBAE6AA3C61F9528490B7E08D6BC5FC757
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:75540DA09E1A02B9606F0E67F7A1CBB109E0B9FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ CleanMyMac X — это пакет «все в одном», который сд
 magnet:?xt=urn:btih:6095CDF955488533375A43811648A466E1B6A9BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ DaVinci Resolve — единственное в мире решение для �
 magnet:?xt=urn:btih:5C012718F44C84977E8ECEC9E3F5F80FAC812C0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Hiren’s BootCD PE x64 v1.0.3 (26 January 2024) [En]
 ```bash
 magnet:?xt=urn:btih:87C87A9773A52C74179DB9E4901A8223EE344614
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Sante DICOM Viewer Pro не является «еще одним средств�
 magnet:?xt=urn:btih:2609643B3C7BA79E9BD37DDCEED8504859D82839
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Sante DICOM Editor — ведущее в отрасли приложение п�
 ```bash
 magnet:?xt=urn:btih:66F9A28EFFDEC449B4680C03EBBA9B5EBCF18CE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:76E30B72B1BBAF563875C414CA736FB92B1F75BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 ```bash
 magnet:?xt=urn:btih:B5B813A1D7DAF169231006F1CDC8567F943FD2B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ EarthView — это динамические обои для рабочего �
 magnet:?xt=urn:btih:A138979B1018E8797ED7EA80C4BE5900BA5B6834
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Wise Disk Cleaner 11.0.7.821 RePack (& portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7055A36948F1A4512ED70D57BF9F8E9600A45648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ GeoGebra — мультиплатформенная программное об�
 magnet:?xt=urn:btih:70AF8E814B4600EEA82B61F4FDBC75BD5775A25D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Minimal Audio - Effect Bundle 2024.02 VST, VST 3, AAX (x64) RePack by TCD [En]
 ```bash
 magnet:?xt=urn:btih:BE8643EF191EE41D8849CCD81652235EF77A4A5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Vivaldi 6.5.3206.61 include standalone [Multi/Ru]
 magnet:?xt=urn:btih:BBD0B65E1DA3700AAEF2BEB548C6074C603941BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ AVS Image Converter - лёгкая в использовании програм�
 magnet:?xt=urn:btih:5EAFC146694852BE6B199C5EC6F98EB441F6E46F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:CBDE24F0D947D3ED198534E0F32364BE581DFFC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Wise Duplicate Finder помогает найти и удалить дублик
 magnet:?xt=urn:btih:AEF50EF371D39DD89B86E366D49181A1A856E71B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Opera One 107.0.5045.15 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E85A69816FC3DE17882AD1D6649FA9DACF9B531F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Blender - бесплатный редактор трехмерной графи�
 magnet:?xt=urn:btih:8FA94B84C31A218E4388CE97331F664B8F404304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Wise Disk Cleaner 11.0.8.822 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:38307B6BBA3633F0808C2EE5250030EF6ACDA5E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ HomeBank можно настраивать полностью под себя, �
 magnet:?xt=urn:btih:62FBEC26C03800BD456B90C93144BB06EA1E3ED4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ FastCopy - инструмент для быстрого копирования/�
 ```bash
 magnet:?xt=urn:btih:95AF6E2A1231DE8581F71A07906C8E688B2BFFD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:568134BF7A0CBDA95FEF488A8542426425C00884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ ReviverSoft PC Reviver - мощный многофункциональный и�
 ```bash
 magnet:?xt=urn:btih:B479CB5BD129D1D03E7377E6B3C37F0195896C7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ CarX Street (2024) [Ru/Multi] (1.2.1/dlc) Repack Other s [Deluxe edition]
 magnet:?xt=urn:btih:26D28423A15EBA89FF0B7A194520B9BFF5886352
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Strange City (2024) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:0584E0C6B738DE2B952544527E7C17D2B90B9516
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Endless Sky - космическое приключение, в котором �
 magnet:?xt=urn:btih:8990530DF60CCD72941520CEDE0BB1763B501149
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Robin Hood - Sherwood Builders – это приключенческая рол�
 ```bash
 magnet:?xt=urn:btih:81BD264AB7890820292417835E88A0E1C938F42C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Dune Spice Wars – стратегический игровой проект, г
 magnet:?xt=urn:btih:DB861538315CC97321DC0B3B04454F38471DB727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Awaken - Astral Blade (2024) [Ru/Multi] (202411181541/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FEAFD543CED54CDA45EBC55B0F10356702845BE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Beyond Hanwell - это насыщенная, детальная и атмосф
 magnet:?xt=urn:btih:82D288B1C64EAD37095D167CA4FCBF1A7031DA6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Drunken Fist: Totally Accurate Beat 'em up (2019) [En] (1.0) Scene DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:548822985F34D254AFF186820C4DEA311122C10C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Bug Fables: The Everlasting Sapling – это юмористическая ро
 magnet:?xt=urn:btih:6BA8E999DE8DE5381C701ADAC6E20B7B05576C7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ It's Only Money окунет геймеров в реалистичную ист
 ```bash
 magnet:?xt=urn:btih:0682C784F44639EF45085C1EB2BED3C97F31DAB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Wilmot's Warehouse – довольно сложная игра-головоло
 magnet:?xt=urn:btih:FD4CE7EC35ECC1E18363570FA8087C6D9F6B3D58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Lysfanga: The Time Shift Warrior (2024) [Ru/Multi] (1.02.001) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:032FD1565C320C9653252EF736D0F4E6E3AA7699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Sam & Max: Beyond Time and Space – это обновленная часть с
 magnet:?xt=urn:btih:EDF9D91DAAE8E5714A356CC54B681B0E6F47E00C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Albatroz - это приключенческая адвенчура на выж�
 ```bash
 magnet:?xt=urn:btih:A5EA272072692BA17BD548D1205203C06DBFEC19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Quantum Break (2016) [Ru/Multi] (1.0.126.0307) Repack Let'sРlay
 magnet:?xt=urn:btih:E461CFABE18378E63F2925E14FF249CFB6D6402A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Wyvia (2023) [Multi] (1.0.8) License GOG
 ```bash
 magnet:?xt=urn:btih:3E9ECD219B19D99761EA431BF9DB338D652A63CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Beyond: Two Souls (2019) [Ru/Multi] (Build 5117920) Repack Let'sРlay
 magnet:?xt=urn:btih:186C970A5A5AAD2A7A727772E15C64E20A8F090E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Heavy Rain (2019) [Ru/Multi] (Build 5236766) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9B32CDE80571BA7811ACF699EF84DF096E14D66E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Journey of AutUmn – перед вами традиционное прик�
 magnet:?xt=urn:btih:DB7CCB6E7B9A9C2D603BE3A068C5142484B505C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Detroit: Become Human (2019) [Ru/Multi] (Build 12158144) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:A46813C37357D3599A2B32A0A8E363FA981B647C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Sam and Max Save the World – первый сезон в серии игр, а 
 magnet:?xt=urn:btih:1E6CBE5F0C88C7F69243EDEE62E82326248018E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Karate Survivor погружает геймеров в мир, где масте
 ```bash
 magnet:?xt=urn:btih:A68DCF259055F81A42E7C2AE61309819CDE13B0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Valkyrie of Phantasm (2022) [Multi] (1.04) Scene Skidrow
 magnet:?xt=urn:btih:F4DA0CE56DF1CC55790B98744F849BBBE59DFC35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ CarX Street (2024) [Ru/Multi] (1.2.1/dlc) Repack seleZen [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:BEC0B85E2EF98F84A9F30142AB0366FFA9393B2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ L.A. Noire (2011) [Ru/Multi] (2675.1.0.0/dlc) Repack FitGirl [The Complete Editi
 magnet:?xt=urn:btih:5340052F623F85F5F8B5A2094574F6A509BDD649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Dragon Age™: Origins Вы Серый страж, один из последн�
 ```bash
 magnet:?xt=urn:btih:ED4DD100DDF5183BAEE0C8ADFF3DE6FFEC5ED548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

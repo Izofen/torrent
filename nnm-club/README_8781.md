@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@
 ```bash
 magnet:?xt=urn:btih:817DBC980114276D4997296EC3963EB986689627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:817DBC980114276D4997296EC3963EB986689627
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:817DBC980114276D4997296EC3963EB986689627
 ```bash
 magnet:?xt=urn:btih:73CE19CBAFEF2DFE0DF2794D0ECB369841180850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:73CE19CBAFEF2DFE0DF2794D0ECB369841180850
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Darker Than Black: Ryusei no Gemini / Темнее черного: Близне�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Darker Than Black: Ryusei no Gemini / Темнее черного: Близне�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Darker Than Black: Ryusei no Gemini / Темнее черного: Близне�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Queen - The Crown Jewels: 25th Anniversary Boxed Set (24-bit remastered) (1998) 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Project Cars 2 – это вторая часть мегауспешного г�
 magnet:?xt=urn:btih:BD6B34C5BE4D85C99515060CA1E0C3147BA47B55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:BD6B34C5BE4D85C99515060CA1E0C3147BA47B55
 ```bash
 magnet:?xt=urn:btih:3E3D3DA06DA8F864C78B715D84B4B2F6FC6D902E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ Total Commander PowerUser Portable by HA3APET v70 от 5.12.2018 [Ru/En]
 magnet:?xt=urn:btih:E53100C81CF070310688A6FE22945D64845FE562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Constructor (2017) [Ru/Multi] (1.0/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:2875916EF76D3BFDBABED591B7CC5CFAA583046A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:2875916EF76D3BFDBABED591B7CC5CFAA583046A
 magnet:?xt=urn:btih:C3CD4BE813B248FF9BC51343BDA590B68127571F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Kenshi (2018) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:F9D922B53C8B3C01E7F6B7C4CAAAFB7789D79343
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Shenmue I & II (2018) [Ru/Multi] (1.07) Repack West4it
 magnet:?xt=urn:btih:8F090B5E67A2D4A927A22B2BC6825F8DD618AC73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:8F090B5E67A2D4A927A22B2BC6825F8DD618AC73
 ```bash
 magnet:?xt=urn:btih:41B252F1386643E72D96238E1383B68E0AAF1536
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ VA - Kiss FM: Top 40 (02.12.2018) (2018) [MP3|320 Kbps] <House, Pop, Dance>
 magnet:?xt=urn:btih:61AFEE1B1BAA0203B3CEC106542156D56B513056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Folx GO+позволяет разбивать загрузку на нескол
 magnet:?xt=urn:btih:0BE659126E69913E26C4DC7DCD1A2D457E701E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ ESET NOD32 Internet Security - комплексный антивирус и ин
 ```bash
 magnet:?xt=urn:btih:9CEA0C10CE9655A22BDEA67D7F246324E4179231
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:9CEA0C10CE9655A22BDEA67D7F246324E4179231
 magnet:?xt=urn:btih:8848576F9A8B8B6DA39BD0F144D1EF8479F54C67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:8848576F9A8B8B6DA39BD0F144D1EF8479F54C67
 ```bash
 magnet:?xt=urn:btih:468A19D02612CFFCFDA083EC14140E8E51EA3D1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ Flashback™ возвращается! Когда-то этот ставший �
 magnet:?xt=urn:btih:7C80B4797E1688C76A674FA1F858E74BA05EB588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:7C80B4797E1688C76A674FA1F858E74BA05EB588
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:7C80B4797E1688C76A674FA1F858E74BA05EB588
 ```bash
 magnet:?xt=urn:btih:81C90EAC94F13E7275A43947C8EAA87ED345B612
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

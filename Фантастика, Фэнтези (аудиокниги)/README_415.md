@@ -1,3 +1,29 @@
+###  Публикация: 1537429   (667774) от 16.03.2022
+
+Кристи Голден | Звёздные войны: Ученик тьмы (2022) [MP3, Андрей Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_667774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Армии темной стороны и Республики продолжают сражаться за власть в Галактике. Стратегия бывшего мастера-джедая, а ныне повелителя ситхов, графа Дуку становится все более агрессивной и безжалостной. Несмотря на мастерство джедаев и доблесть находящихся под их командованием клонов, каждое новое поражение оборачивается огромными жертвами. После гибели огромной флотилии (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастикаПродолжительность: 10:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:825E49CE95BA4224956E681280A82CB412555A40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537483   (667839) от 16.03.2022
 
 Фердинанд Хайнрих Граутофф | Банзай! (2017) [MP3, Александр Бордуков]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:A5D1967737FAA37D52DF341ECF03BA767E7EAD5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:A5D1967737FAA37D52DF341ECF03BA767E7EAD5F
 magnet:?xt=urn:btih:A9ED65C96D503B43E1E33417B36BCFF3664A676D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:A9ED65C96D503B43E1E33417B36BCFF3664A676D
 ```bash
 magnet:?xt=urn:btih:FBCE322FFDDF86E85C2EA0BA379D0380480B768C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:FBCE322FFDDF86E85C2EA0BA379D0380480B768C
 magnet:?xt=urn:btih:26A2D0013C4E4E52D3166A0DCB3148FB312A0ACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:26A2D0013C4E4E52D3166A0DCB3148FB312A0ACC
 ```bash
 magnet:?xt=urn:btih:1020990F570965CD2134F1734A8B0ACE40638C63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:1020990F570965CD2134F1734A8B0ACE40638C63
 magnet:?xt=urn:btih:0401C3C0D44F37F6301AFC1471B19A569171956A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:0401C3C0D44F37F6301AFC1471B19A569171956A
 ```bash
 magnet:?xt=urn:btih:C62F1026FB7E6C56AA35A15394CDFCD8874A9D11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:C62F1026FB7E6C56AA35A15394CDFCD8874A9D11
 magnet:?xt=urn:btih:74D0824732D7925C58BA83985231F157E002DE93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:74D0824732D7925C58BA83985231F157E002DE93
 ```bash
 magnet:?xt=urn:btih:4F931BCD315EF59BFBFDC2FB605A44C4999B820E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:4F931BCD315EF59BFBFDC2FB605A44C4999B820E
 magnet:?xt=urn:btih:AD04762E341E02B5362F1E932A2472E1B274CA5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:AD04762E341E02B5362F1E932A2472E1B274CA5B
 ```bash
 magnet:?xt=urn:btih:B900FDCFF782245DD4928A85ABA32B06F45CF413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:B900FDCFF782245DD4928A85ABA32B06F45CF413
 magnet:?xt=urn:btih:BF225088B3A6F904D7F7B78B514298DC7ED5E275
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:BF225088B3A6F904D7F7B78B514298DC7ED5E275
 magnet:?xt=urn:btih:64E696EFCB584A109405284DAB869D2B5D015DFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:64E696EFCB584A109405284DAB869D2B5D015DFE
 ```bash
 magnet:?xt=urn:btih:B648CE513FF9328CB6DDC336D9E9B12DF68313AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:B648CE513FF9328CB6DDC336D9E9B12DF68313AF
 magnet:?xt=urn:btih:31291F0CC8035AB28C6D0F4E3327BC0BD229BB73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:31291F0CC8035AB28C6D0F4E3327BC0BD229BB73
 ```bash
 magnet:?xt=urn:btih:87E6F6CABF758519484EC9A0911C32B11984C4EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:87E6F6CABF758519484EC9A0911C32B11984C4EF
 magnet:?xt=urn:btih:C75E3B718669AA01F67FF552019CEB3F6770B798
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:C75E3B718669AA01F67FF552019CEB3F6770B798
 magnet:?xt=urn:btih:3DE6DAC43CD7FCF1E8939FC4068ACF9E17072317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:3DE6DAC43CD7FCF1E8939FC4068ACF9E17072317
 ```bash
 magnet:?xt=urn:btih:F951A696F457AA3A4B9D72D8F67F101E418DCF21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:F951A696F457AA3A4B9D72D8F67F101E418DCF21
 magnet:?xt=urn:btih:56250C4F16EA1E6F014E94469F8D4552FEA13AB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:56250C4F16EA1E6F014E94469F8D4552FEA13AB9
 ```bash
 magnet:?xt=urn:btih:31D7B992B7190D35D2A94FDDAF513B5E693844C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:31D7B992B7190D35D2A94FDDAF513B5E693844C8
 magnet:?xt=urn:btih:FED56E71D535F4232A5E6419789704BD03178B0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:FED56E71D535F4232A5E6419789704BD03178B0B
 ```bash
 magnet:?xt=urn:btih:39654D0A4D1BE20E29120BEE16024C042C1E0195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:39654D0A4D1BE20E29120BEE16024C042C1E0195
 magnet:?xt=urn:btih:B2042FD6C64A5832BA9F43EAB44357A0AAC4CC1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:B2042FD6C64A5832BA9F43EAB44357A0AAC4CC1A
 magnet:?xt=urn:btih:353B5D71417563EF01CF60B30FC739C47AEDD462
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223674   (671236) от 06.05.2018
-
-Саят Хе | S-T-I-K-S. Дети подземелий (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_671236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Никогда не знаешь, улыбнулась тебе судьба или показала угрожающий оскал, понять суть происходящего поможет лишь время. История о жизни небольшого жирного стаба, в котором появились чужаки из ниоткуда. Сначала странная брюзжащая тетка с ручным монстром, затем – тихий знахарь с подозрительной тетрадью. Обратный отсчет спокойной жизни начался. Ручные монстры, бесполезные (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 13:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E96E4D80B23538556CE779EF329032841AEC6EC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

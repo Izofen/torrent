@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1D95D1EC5103886B70C031D4322F73ADE8AC59E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:1D95D1EC5103886B70C031D4322F73ADE8AC59E2
 magnet:?xt=urn:btih:2944EE53B95FAB238C61419D611A2D256F3B0B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:2944EE53B95FAB238C61419D611A2D256F3B0B13
 ```bash
 magnet:?xt=urn:btih:99D1607D14901141E6E3FEFB13CC1AF98EBDAB6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Even if you're familiar with C# syntax, knowing how to combine various language 
 magnet:?xt=urn:btih:19E75A50122025AAEDFA7527346F719539248006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:19E75A50122025AAEDFA7527346F719539248006
 ```bash
 magnet:?xt=urn:btih:0DB1DE9B2A363F2120461F57B3D50D8848A4E31A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:0DB1DE9B2A363F2120461F57B3D50D8848A4E31A
 magnet:?xt=urn:btih:C74282958636A05355EF9151EA5AEC2091960E70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:C74282958636A05355EF9151EA5AEC2091960E70
 ```bash
 magnet:?xt=urn:btih:93E813DBCB3360609A6F7EB80B403A1D65E57FE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:93E813DBCB3360609A6F7EB80B403A1D65E57FE7
 magnet:?xt=urn:btih:8893A72E569E234C4B0E3DC25AB822A6E7D2ADFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:8893A72E569E234C4B0E3DC25AB822A6E7D2ADFF
 ```bash
 magnet:?xt=urn:btih:8A54F16760BAA7A2297FD8D94BC7C91352B3EE03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:8A54F16760BAA7A2297FD8D94BC7C91352B3EE03
 magnet:?xt=urn:btih:CBCC109F03D542BACEE5F74D57C2603F1CC758D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:CBCC109F03D542BACEE5F74D57C2603F1CC758D8
 ```bash
 magnet:?xt=urn:btih:FE5DAE166CCBE671D47841EEB2E015793715D436
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:FE5DAE166CCBE671D47841EEB2E015793715D436
 magnet:?xt=urn:btih:BDB7D16D7E8B3F8FEEA8134FC8CCC8D838B69493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:BDB7D16D7E8B3F8FEEA8134FC8CCC8D838B69493
 ```bash
 magnet:?xt=urn:btih:633411ADB11168E25859E3968B959F721CBA18E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:633411ADB11168E25859E3968B959F721CBA18E1
 magnet:?xt=urn:btih:6E8C00C098C447BB31439662FBF4A9A6DC391F2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:6E8C00C098C447BB31439662FBF4A9A6DC391F2C
 ```bash
 magnet:?xt=urn:btih:B6F48FFBAFEECDDC22572C3422277B0747519E01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:B6F48FFBAFEECDDC22572C3422277B0747519E01
 magnet:?xt=urn:btih:C1088DB0A4D6532C24E62CB6A691C76C681D58E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Matt Zandstra | PHP 8 Objects, Patterns, and Practice (2021) [PDF, EPUB] [EN]
 ```bash
 magnet:?xt=urn:btih:7DB4F9DDE25CEE645C597A3CE4C51E75E840595A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Micha Gorelick, Ian Ozsvald | High Performance Python. Practical Performant Prog
 magnet:?xt=urn:btih:5D1B0A3AA3794568C69DFC9A3F9BDF9668CFB0DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Wei-Meng Lee | Go Programming Language For Dummies 1st Edition (2021) [PDF] [EN]
 magnet:?xt=urn:btih:C7F47AE1B1E22E45E8A9A9FEB358731C8C5C2B06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:C7F47AE1B1E22E45E8A9A9FEB358731C8C5C2B06
 ```bash
 magnet:?xt=urn:btih:716D22391949EB701B75C1FB175999468012DBE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ Fullstack React with TypeScript - это практическое руковод
 magnet:?xt=urn:btih:C589D282CB23F32DAD3BBB51C9B556A35542D913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ Eric Sarrion | Vue.js Advanced Concepts (2021) [EPUB, PDF, AZW3] [EN]
 ```bash
 magnet:?xt=urn:btih:B519948329282F64F91AEB0474EC6A48F796F5FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:B519948329282F64F91AEB0474EC6A48F796F5FF
 magnet:?xt=urn:btih:3E6D71EC23B7F568AA3AD558767054EAAE602CE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:3E6D71EC23B7F568AA3AD558767054EAAE602CE0
 ```bash
 magnet:?xt=urn:btih:6278EBBC0055E66F54DBF087DA3D51F5CE4175B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ C++ — превосходный выбор для разработки встр
 magnet:?xt=urn:btih:9C6B7C6D160A4972597EB0D7BC7E2F0178C9F760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:9C6B7C6D160A4972597EB0D7BC7E2F0178C9F760
 ```bash
 magnet:?xt=urn:btih:B5B12C7D88C815B9B326FAB927467360B7E31410
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

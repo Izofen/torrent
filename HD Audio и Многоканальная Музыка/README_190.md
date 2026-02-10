@@ -22,6 +22,8 @@ Blackbird - Pink Shades (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock>
 magnet:?xt=urn:btih:B8758AE19329E8F81E21B71EB18BA86990508E9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VENUS - Obscured Until Observed (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pr
 ```bash
 magnet:?xt=urn:btih:CC92C544B1C485316530255A0FB57004EDF0DBAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ A Mountain Of One & Ricardo Villalobos - Ricardo Villalobos reimagines: Stars Pl
 magnet:?xt=urn:btih:B400DB32A541AA2EB1501475FD1A66B76D0370CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Saint Deamon - League of the Serpent (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:B2123614A37A1DB4ACA156505EDC98A0616CDF8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Cannibal Corpse - Chaos Horrific (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Dea
 magnet:?xt=urn:btih:740FC7BADF6C2E95E813066922A3CE09741DCF7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Wrabel - based on a true story (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie
 ```bash
 magnet:?xt=urn:btih:73E3C37D36F4CDE8F59379BD2A42397D2EFD335F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ A Day To Remember - For Those Who Have Heart (2007) Remastered, Reissue, 2023, C
 magnet:?xt=urn:btih:661C7A97BB2B756A37C8FC1D90A68EB0B65779B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Kurt Vile - Back to Moon Beach (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie
 ```bash
 magnet:?xt=urn:btih:6EA2A58B360E39BC182DAE8C1DCD9FC248B392AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Face A:
 magnet:?xt=urn:btih:14F155DD0EA7859AF89AA5E1911297226D24E802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ A4 Funny How Love Is(   Читать дальше...   )Жанр: Pop RockПро
 ```bash
 magnet:?xt=urn:btih:A44B0117C33743844D61B4D9DE77668802CBE965
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ A4 Neidot Herkat Hennot(   Читать дальше...   )Жанр: Folk, World
 magnet:?xt=urn:btih:2FCF8BE6C0A182F0FBC27B72FFB7E676A4074B8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Disc 3Жанр: Synth-popПродолжительность: 3CD, 03:31:32
 ```bash
 magnet:?xt=urn:btih:AD6BAE7FA7C23821653652018E86B425C3BB9253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ White Christmas
 magnet:?xt=urn:btih:18222DBA370B7760BEA224CAFAA0BA9818724C91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ Alphaville - Prostitute (1994) Deluxe Version, Remaster, 2023, Warner Music Cent
 ```bash
 magnet:?xt=urn:btih:9F3E3197B575CF63604EE84E58329E6FD2871570
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ Jewel - Spirit (1998) Deluxe Edition, 2023, Craft Recordings [FLAC 24/48|Lossles
 magnet:?xt=urn:btih:938F9EF1BCB35DA2C9EC017E4D8033972169A022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ Warfect - трэш-метал группа из Швеции, основана �
 ```bash
 magnet:?xt=urn:btih:F6BDEB746B07B4DC2407D69EC860BB817000BE5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ Supertramp - Crime Of The Century (1974) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Roc
 magnet:?xt=urn:btih:022EDEE7353C7925A1A8419476F3C06B854D721C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:BF24C3F763B23B3A0B790DF5625A8AAC862BEDB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +547,8 @@ magnet:?xt=urn:btih:BF24C3F763B23B3A0B790DF5625A8AAC862BEDB0
 magnet:?xt=urn:btih:706CA4AE7C19AF2009643FA543D803E0B5AD08A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +575,8 @@ A4 You Two(   Читать дальше...   )Жанр: Rock & RollПродол�
 ```bash
 magnet:?xt=urn:btih:EE6966655A3FC70647D315931B2E0B51DBAA08E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +605,8 @@ A4 Still Holdin' On(   Читать дальше...   )Жанр: Country RockП�
 magnet:?xt=urn:btih:809AAF5AEBE4B90562ECDD6AC81143FAEF8D6077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +633,8 @@ Side 1:
 ```bash
 magnet:?xt=urn:btih:2F9F73D39A02BFB74BDA20D934567DC5933EFDC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +663,8 @@ Side One:
 magnet:?xt=urn:btih:CCFE9ED069FCB1E1E0D57B31D31D3D5680759410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Moscow Calling вышел 29 марта 1993 года. Во многих стр�
 ```bash
 magnet:?xt=urn:btih:2A0B810E2A98DE97ECBCD7FABF591DE51CEC72CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Muse - Absolution XX Anniversary (2003) Remaster, 2023, Warner Records [FLAC 24/
 magnet:?xt=urn:btih:C752E8BF354E556D5EE0D805D25E0412BB4A08D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Bryan Ferry - Mamouna (1994) Deluxe, 2023, BMG Rights Management (UK) Limited [F
 ```bash
 magnet:?xt=urn:btih:6DD0AE25CB545A12A906B7CB80EF8CD08F976DE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

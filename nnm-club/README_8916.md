@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:27CB1D3305D3CDFC5F312B35DA8CBCBD4ADFD0A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:27CB1D3305D3CDFC5F312B35DA8CBCBD4ADFD0A7
 ```bash
 magnet:?xt=urn:btih:15C42CAF3A91D8A12F6C9DAAFB73D7CB55A42EA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Kadavar - Berlin (2015) [FLAC|Lossless|image + .cue] <Stoner Rock>
 magnet:?xt=urn:btih:5E3D3DE473DC2833CA77874A4D74F7C17DFAFEAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Kadavar - Kadavar (2012) [FLAC|Lossless|image + .cue] <Stoner Rock>
 magnet:?xt=urn:btih:84EC8FA122F5F37C68E66D628B60D07D2C2D05C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:84EC8FA122F5F37C68E66D628B60D07D2C2D05C4
 magnet:?xt=urn:btih:CABA5709E14C2089F0785E7E02BD6E4984578768
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:CABA5709E14C2089F0785E7E02BD6E4984578768
 ```bash
 magnet:?xt=urn:btih:0694899F4BF8E9FB65186F86C75431A8DE230391
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ Celtic Frost - Into the Pandemonium (1987) Remastered, 2017 [FLAC|Lossless|image
 magnet:?xt=urn:btih:1BB4BBBF102B54A3BD3B3A07734871D561B95C37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Chick Corea & Gary Burton - Hot House (2012) [FLAC|Lossless|tracks + .cue] <Jazz
 ```bash
 magnet:?xt=urn:btih:AC9D829BA3AF36ECB61249D19376AB86824A2E19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ Coven - Blessed Is The Black (1987) [FLAC|Lossless|image + .cue] <Power Metal, T
 magnet:?xt=urn:btih:60134B35D10EC0B145B393F1634ADFC4DC50670A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ VA - Best Of Chillout Vol.07 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 magnet:?xt=urn:btih:DB7490C4A9AE2710363AE8E7B4A2B06D69839574
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ magnet:?xt=urn:btih:DB7490C4A9AE2710363AE8E7B4A2B06D69839574
 ```bash
 magnet:?xt=urn:btih:EC0732A19464ADD08CB7FEDCD04709196ACE9AA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ Elegy - Manifestation Of Fear (1998) [FLAC|Lossless|image + .cue] <Progressive P
 magnet:?xt=urn:btih:3EFE4DC7CE00005F4AFC304CE32EC85898759A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ magnet:?xt=urn:btih:3EFE4DC7CE00005F4AFC304CE32EC85898759A03
 ```bash
 magnet:?xt=urn:btih:4F0E4A5E74F422D8309565F6517B921119F09710
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ The semi-unplugged acoustic EP
 magnet:?xt=urn:btih:E46A7806340B3830449846CC07DE630695B65FC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:E46A7806340B3830449846CC07DE630695B65FC9
 ```bash
 magnet:?xt=urn:btih:411D7A85DB1705CC06EB0130A2F0500CC30FBE1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +440,8 @@ Drugger - Dementia (1996) [FLAC|Lossless|image + .cue] <Death Metal>
 magnet:?xt=urn:btih:FF504DF8892717CE2686193742E63C3FC58CAB5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +468,8 @@ Ellipsis - From Beyond Thematics (2004) [FLAC|Lossless|image + .cue] <Progressiv
 ```bash
 magnet:?xt=urn:btih:CF02299642A322BDDC6E0D3FC73F18205733F5D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +498,8 @@ Excalion - Dream Alive (2017) [FLAC|Lossless|image + .cue] <Power Metal>
 magnet:?xt=urn:btih:A750897A04CE7D86E6099B9E486B23A8FEAC0B84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +527,8 @@ magnet:?xt=urn:btih:A750897A04CE7D86E6099B9E486B23A8FEAC0B84
 magnet:?xt=urn:btih:FC27292DADCB29DF16913940269981A9E248DFDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +553,8 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 magnet:?xt=urn:btih:6C3D393E30AFA60DB83DC24833A825575F43BC06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +578,8 @@ TurboCollage 6 v6.0.19 [En]
 ```bash
 magnet:?xt=urn:btih:8A7B1771280B6B045A9562B44ED530BEC9367F84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +608,8 @@ Frank Sinatra - The Sinatra Christmas Album (1987) Capitol[FLAC|Lossless|tracks 
 magnet:?xt=urn:btih:A02657D720C2CC0FB69A7279C639D61524AAD17D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +634,8 @@ magnet:?xt=urn:btih:A02657D720C2CC0FB69A7279C639D61524AAD17D
 magnet:?xt=urn:btih:85A92600CFE3352E869EAED2C04303CFACD44ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +659,8 @@ Comedy Woman (2016.12.16) WEB-DL [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:033C458CDAF8AB26A771E3D62DFF2857E4EACD5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +689,8 @@ Datsik - Sensei (2016) EP [MP3|320 Kbps] <Dubstep, Trap, Future Bass>
 magnet:?xt=urn:btih:39F3E2A049BFE9F9BC6BD50FA1DC68E76E0BD0A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +714,8 @@ Starting Strength Official Pro 1.14 [En]
 ```bash
 magnet:?xt=urn:btih:215185356B4C66C959F95440D5C0E1B950B521ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

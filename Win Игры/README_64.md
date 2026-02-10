@@ -19,6 +19,8 @@ Slavania - двумерная метроидвания, включающая в 
 magnet:?xt=urn:btih:57555E0AE0DBF25064907267795FB42B1C98B906
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Bridge to Another World Remastered: Burnt Dreams / Мост в другой ми
 ```bash
 magnet:?xt=urn:btih:F56D365B2681972ED8FCF0DCEA396D5505336E79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cybernetic Fault – сатирическая приключенческая и�
 magnet:?xt=urn:btih:6606F27D8941EAD88358505EE981F3065B007B84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Redemption Reapers (2023) [Ru/Multi] (1.4.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:904106423C197133E9E8217AF345AB24BB3A2727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ SubwaySim 2 (2025) [Multi] (2153) Repack FitGirl
 magnet:?xt=urn:btih:1F11E75C47ECDC21731044562083EB0FCAC80855
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0w/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CA9B2E1A7D0CC2842D0545EB9879B3EEE4194666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Journey to the Savage Planet (2021) [Ru/Multi] (1.0.10/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:4FE5AC4870BD34214532BB6B709FBC1F06D3176D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Colony Ship: A Post-Earth Role Playing Game - пошаговая ролевая 
 ```bash
 magnet:?xt=urn:btih:9FF1FCDEAD0568775637CA3745E37998378E1EAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Revita (2022) [Multi] (1.0.4) License GOG
 magnet:?xt=urn:btih:29420C88C2063A107FF96A8449780E4A85BA6E27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Card Summoner (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:40A3449CB38B9D488780B2A8AAC2B4F32C72A7B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ ZEPHON (2024) [Ru/Multi] (1.1.4/dlc) Repack Other s [Supporter Edition]
 magnet:?xt=urn:btih:AA10E6E92BF7CCE6F7EFDFD6041A81CB34C52C18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Mythical Concept STARNAUT (2024) [Multi] (4091) Repack FitGirl [DX Edition]
 ```bash
 magnet:?xt=urn:btih:AEF440C84AF06FF832D0358CC0A9AA74F8A7581C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Pure Bubble Hockey: Переживите классический аркадны
 magnet:?xt=urn:btih:E729011AB32BB37966BD8E40A7714DADD7FC2308
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Human Fast Food предлагает геймеру погрузиться в о
 ```bash
 magnet:?xt=urn:btih:C918E15E857DAA979BBBE1F7B589EDF1753B45E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Onimusha: Warlords (2019) [Ru/Multi] (Build 17777991) Repack FitGirl
 magnet:?xt=urn:btih:2BD5FF0AE949FDA7E5667CD15B4A326DE02C34B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ MEMORIAPOLIS (2024) [Ru/Multi] (1.0.26) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:C8D3D1C7A3DB80FC5038C21C128F6F235F595FC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Rain World (2017) [Ru/Multi] (1.10.3/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:ED9A4E5668EC56C98845A7B829C7C9565AE40789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Mother Hub (2025) [En] (16) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:11EB7CDD346A4330AD9357642B7C5DBA4CADF3A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Vestiges: Fallen Tribes - это уникальное сочетание стр�
 magnet:?xt=urn:btih:317C331810CDC9C261AFBAC66E1EE5F40C9276CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.00.128634) Repack FitGirl [Soundt
 ```bash
 magnet:?xt=urn:btih:D5DB777EBF81CAA11A959C5F7B5C1C09B5776F2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Phantom Brigade - это пошаговая тактическая ролева�
 magnet:?xt=urn:btih:B8579B2FE58D3522B3DFF87462F05DE08C9ABF24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Sacre Bleu (2025) [Ru/Multi] (1.0.16) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C5192B0F4FECF781D63AA18B9E2F569BF8B9F9F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Bionic Bay – необычный платформер с уникальным �
 magnet:?xt=urn:btih:CCA25ABB2BEEE2328E8295AF130EA8826FBF0064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Back: Fade представляет собой хоррор с живыми ак
 ```bash
 magnet:?xt=urn:btih:EB5AF53B5248EA88D36DE103CC9578E797822341
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Inspector Schmidt - The Ebbing помещает пользователя в ро
 magnet:?xt=urn:btih:E32BAFF23C757C9982911871D0FBDD8FD4154535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ MEMORIAPOLIS (2024) [Ru/Multi] (1.0.26) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6EEDBB49A0F1786E0CCFA2AA07C87CEB6DE93C17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

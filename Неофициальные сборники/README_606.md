@@ -1,3 +1,32 @@
+###  Публикация: 1096815   (917647) от 25.01.2017
+
+VA - Axe Bahia 2017 (2017) [MP3|320 Kbps] <Pop, Bossa Nova, Latin>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_917647.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ivete Sangalo - Cade Voce  4:19
+ 2. Babado Novo - Voce Subia 2:14
+ 3. Bell Marques - Ce Quer Fazer Amor 3:40
+ 4. E o Tchan - Melo Da Batedeira 2:31(   Читать дальше...   )Жанр: Pop, Bossa Nova, LatinПродолжительность: 01:07:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A875D9F905148526C15D70579D392C0EC76A08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096790   (917660) от 25.01.2017
 
 VA - Ресторан Кураж для друзей (2017) [MP3|256 Kbps] <Шансон>
@@ -21,6 +50,8 @@ VA - Ресторан Кураж для друзей (2017) [MP3|256 Kbps] <Ша
 ```bash
 magnet:?xt=urn:btih:869C7D81B668D43C82B90064F8B40B0F5457E888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Sedativ - Sedativ (2002) [MP3|256 Kbps] <Post Punk, Electronic>
 magnet:?xt=urn:btih:6A8A10EF4EB253D19A8AD2FA664018B3B4B66CEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Убойные хиты на Шансоне. Выпуск № 10 (2016) [MP
 ```bash
 magnet:?xt=urn:btih:C1E4D96604FC732E0A3D634E7EF462072DAE2057
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Top 100 шансон зимний. Выпуск № 2 (2017) [MP3|256 Kbps]
 magnet:?xt=urn:btih:DBA4A3ED33F9411132515BEAEF60536ABB535DD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Лучшие зимние хиты года. Сборник № 7 (2017) [M
 ```bash
 magnet:?xt=urn:btih:8D09BCA19676E0EFB91C395696527DEB45B76429
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Зимние лучшие блатные песни Выпуск № 4 (201
 magnet:?xt=urn:btih:14B6FBAA41D875C7E983C3B51C74E140CA04FBE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Полный отрыв. Выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:30ECA5CD559CAAFE5F4444E715BA42547E37E66F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Отрывайся с лучшими хитами. Версия № 10 (201
 magnet:?xt=urn:btih:7E9AEF88D0BAC0D9C671DCB78C06BBE51432DA69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - B машину ремиксы Vol. 3 (2020) [MP3|320 Kbps] <House, Pop, Dan
 ```bash
 magnet:?xt=urn:btih:EB4C5CE0D73D460C131A83DDC8A152C5EFBB863F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - The Collection 30 Years Ago From Ovvod7 (1986) (60 CD) (2020) [MP3|192-320 
 magnet:?xt=urn:btih:B3A0FA026492F96B32CEADCFFB48123F3B3A030F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Discoteka 2017 Dance Club. The Party Continues (2017) [MP3|320 Kbps] <House
 ```bash
 magnet:?xt=urn:btih:A4B3DB3884F8E6CBAC8B06FF60BFC88475BAAE0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Hits of My Soul Vol. 55 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 magnet:?xt=urn:btih:69C39BE9E4A486A26C96FB7685CAA53840200C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Диско 80 от Виталия 72 часть 1 (1981-1989) [MP3|204-320 
 ```bash
 magnet:?xt=urn:btih:396356DAE2AEB929D9B42D8A3D65988798D72ED6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Диско 80 от Виталия 72 часть 2 (1983-1988) [MP3|203-320 
 magnet:?xt=urn:btih:230BE5DD61284BAC774E6EFF8313874C9F472A68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - World Deephouse Selection Vol.2 (2020) [MP3|320 Kbps] <House, DeepHouse, El
 ```bash
 magnet:?xt=urn:btih:53FBF5246CA456AE31CCCDB7F87D3FC4F4EF5D28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - 100 Greatest 00s Hip-Hop (2020) [MP3|320 Kbps] <Hip-Hop>
 magnet:?xt=urn:btih:31D030185B658C579AB14769BD45D6C5C5C7CDA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +515,8 @@ VA - 100-ка популярных хитов (2016) [MP3|256 kbps] <Pop>
 magnet:?xt=urn:btih:A9CC1EE8BC8CC0A5C525B94CB72A81B362B7AB2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +541,8 @@ DJ - Взрывная дискотека №1 (2016) [MP3|128-320 кб/с] <Club
 ```bash
 magnet:?xt=urn:btih:6A6FF293D0B48E48F539310FEDD5098262B9967D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +571,8 @@ VA - Лучшая клубная музыка ANDRS vol.33 (2015) [MP3|128-320 �
 magnet:?xt=urn:btih:0004A687F69AAB661AA35C62E03BCC641AEAD071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +599,8 @@ VA - Around The Rock (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:6A06D7A3C76354E56B6C495C5662CE41E8E56CE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +629,8 @@ VA - ЕвроХит Топ 40 Europa Plus 13.03.2020 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:2968CE5C8F9DBDB707A8679F52B4FF7494E5A537
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +657,8 @@ VA - Bossa Nova: Bossa Nostra (2016) [MP3|320 кб/с] <Latin, Dance, Folk, Spai
 ```bash
 magnet:?xt=urn:btih:B1A993A292CBA526A23456E2C75BA0C547034321
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +687,8 @@ VA - Нагадай мне любовь. Любимые песни для душ
 magnet:?xt=urn:btih:655A49CCBF62B34FA8A6C51427B30CEC19CC2228
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +715,8 @@ VA - Дальняя дорога с душевной музыкой (2016) [MP3|
 ```bash
 magnet:?xt=urn:btih:D72998BB2E7BC1A154F105CF09839A12FD3853DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,32 +745,7 @@ VA - German Top 100 Single Charts 13.03.2020 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:94BCC6A043D04E901B43F9ECD33B7255A7467AF3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367071   (919146) от 14.03.2020
-
-VA - The Official UK Top 40 Singles Chart 13.03.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_919146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd, Max Martin, Oscar Holter, Abel Tesfaye - Blinding Lights 3:22
-02. Saint Jhn - Roses 2:57
-03. Aitch, Aj Tracey, Tay Keith - Rain 3:03
-04. Roddy Ricch - The Box 3:17(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:14:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0D0809C1224D46CA90589F8616A3B5E7559F03
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

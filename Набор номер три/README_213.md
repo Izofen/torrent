@@ -19,6 +19,8 @@ Little Big Workshop (2019) [Ru/Multi] (1.0.11339) License ALiAS
 magnet:?xt=urn:btih:1040A7AD55BE334A740C347ED8B51CFCC58B5D82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:1040A7AD55BE334A740C347ED8B51CFCC58B5D82
 ```bash
 magnet:?xt=urn:btih:BC4623D68D348706221BE560845675089BFEB0CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Adobe Premiere Pro - это мощный, настраиваемый редак�
 magnet:?xt=urn:btih:D5DF7DF75F5C77C4EBE8B8DB1809689143D90468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:D5DF7DF75F5C77C4EBE8B8DB1809689143D90468
 ```bash
 magnet:?xt=urn:btih:013280156F1A4D1DB3BB78BCE7364C80488D979F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Windows 10 x86 x64 pe StartSoft 89-2015 [Ru]
 magnet:?xt=urn:btih:535EAEA5EBD5A057427CE51A793D0D3B0AA1F446
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:535EAEA5EBD5A057427CE51A793D0D3B0AA1F446
 ```bash
 magnet:?xt=urn:btih:15A6EC4F3EB7FF875E68F4BCECCD23F6B0DFF1FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Windows Server - это проверенная масштабируемая пл
 magnet:?xt=urn:btih:5BD66D023184C5669A9B218610674759307BBC09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ WinPE 10 Sergei Strelec (x86) 27.11.2015 [Ru]
 ```bash
 magnet:?xt=urn:btih:76A1B404C0F21FE83DB11F02B5FA79390F17C86A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0/dlc) Repack R.G. Механи�
 magnet:?xt=urn:btih:1BC2F1900E0C32141C0634848376216CB7CE96C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Dead Space 3 (2013) [Ru/En] (1.0.0.1/dlc) Repack Other s [Limited Edition]
 magnet:?xt=urn:btih:DCDA24964355BA726AEA75CAAEFD501688AEC79E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 ```bash
 magnet:?xt=urn:btih:ADE658D2393F4DC40D24F470A6CF7E1687218FCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Dead Space (2008) [Ru] (1.0.0.222) Repack Other s
 magnet:?xt=urn:btih:A774F9F85921D36C002D280A9AE1426D85C8A5D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0/dlc) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:2152D3F172FB20E72D35171C552619E2E1A223D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ FL Studio Mobile — профессиональная программа, кот
 magnet:?xt=urn:btih:FB973D09DC6ACC5EB4CAD4A6E4BE77608AC23EEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Borderlands 2 (2012) [Ru/En] (1.8.4/dlc) Repack Mizantrop1337 [Game of the Year 
 ```bash
 magnet:?xt=urn:btih:9AD1BC60ABBAA96D26863F2DB0D50042FD94D665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ HTML Academy | Интенсивный онлайнкурс «Базовый PHP�
 magnet:?xt=urn:btih:C13D7F2015D7570485DAFBAC902048D6F16CACD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Mozilla Firefox - очень быстро работающий браузер, �
 magnet:?xt=urn:btih:261EFD4E7E51DA7B97317078A6797620BAB6D050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Dead Space 2 (2011) [Ru/En] (1.1/upd1/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:08C216A53BCE3B6B727A39FE73234CF9D19B43B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ New Super Mario Bros. Wii [Wii] [PAL] [Multi5] (2009)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ New Super Mario Bros. Wii [Wii] [PAL] [Multi5] (2009)
 magnet:?xt=urn:btih:34D661527354FBDD7B5F6DF8D70D6BD84951217D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:34D661527354FBDD7B5F6DF8D70D6BD84951217D
 ```bash
 magnet:?xt=urn:btih:DE4EA4F157FB5A9CB86104904892AC31E48E0AE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:DE4EA4F157FB5A9CB86104904892AC31E48E0AE3
 magnet:?xt=urn:btih:AE6B4914276B78FBD7107FA62985CF406FEC14B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:1F69D2F813491BA12E741085D766A61EB7DC1242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:1F69D2F813491BA12E741085D766A61EB7DC1242
 magnet:?xt=urn:btih:60066A9DC4F2B2AAC5862AAC542A1C113D123711
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:60066A9DC4F2B2AAC5862AAC542A1C113D123711
 magnet:?xt=urn:btih:5EBEABFF9681638DD42D3C4B886723EBB927C4CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Call of Duty: Ghosts – новая часть в серии Call of Duty. На�
 ```bash
 magnet:?xt=urn:btih:F1AC36023895BB5B288E21912EEBDF530EA8E147
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

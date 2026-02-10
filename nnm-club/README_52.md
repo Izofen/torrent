@@ -19,6 +19,8 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack West4it [Digital Deluxe 
 magnet:?xt=urn:btih:61FFD9BC624778AAE50B8DF7BF8D7056A4726D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.6/dlc) Repack seleZen 
 ```bash
 magnet:?xt=urn:btih:9529278670827669AB95719D27CC29D039BED8D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:9529278670827669AB95719D27CC29D039BED8D2
 magnet:?xt=urn:btih:FE98AEE7995CBE56F32C286EAE7DB55E9F3CC912
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Way of the Hunter (2022) [Ru/Multi] (1.28a/dlc) License GOG [Elite Edition]
 ```bash
 magnet:?xt=urn:btih:AC15DD9460EA2E31A906F19D1662D48C341AF0E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Against the Storm - это игра c элементами roguelite и стро
 magnet:?xt=urn:btih:73D46AEAFA095AAF4D2D831B0D3C73A2D1794FB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:73D46AEAFA095AAF4D2D831B0D3C73A2D1794FB4
 ```bash
 magnet:?xt=urn:btih:450CEB822D062044672FDCFBC2932FEFDE288288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Kingdom Come: Deliverance II - захватывающий сюжетный ро�
 magnet:?xt=urn:btih:F2608A5FCC436A71458E5F8F3D6C45E0209BF4DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:F2608A5FCC436A71458E5F8F3D6C45E0209BF4DE
 ```bash
 magnet:?xt=urn:btih:D73C5AE98F7833ACF96295F61255EBD50B5C7177
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Ctrl Alt Ego (2022) [Ru/Multi] (1.5.5) License GOG
 magnet:?xt=urn:btih:57F8735EBCFCE009F6D90950D8FE760467CF5408
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Hell is Us - это приключенческий экшен от третье�
 ```bash
 magnet:?xt=urn:btih:C22DC96429EE29DACF8083AB9839082343D08AE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:C22DC96429EE29DACF8083AB9839082343D08AE1
 magnet:?xt=urn:btih:EAA4085EFBC036E802D68417B5FF6CCD63D7B2C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ POSTAL: Brain Damaged - это новая динамичная версия ку
 ```bash
 magnet:?xt=urn:btih:A8BF2DE404B0964AA4974338E640392FD83AB1C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Orcs Must Die! Deathtrap — это безумные бои от третьег�
 magnet:?xt=urn:btih:712A482DE04B161E355458D3137BD332EE666D01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Headquarters: World War 2, увлекательная пошаговая стр�
 ```bash
 magnet:?xt=urn:btih:E3BB2E770383DEC240EE4BDE045F62A587F4A7EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:E3BB2E770383DEC240EE4BDE045F62A587F4A7EA
 magnet:?xt=urn:btih:F5C46329B871F8044CE0A4900D5CDBAB89F61507
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Office LTSC 2024 предоставляет привычный набор при
 ```bash
 magnet:?xt=urn:btih:7F422A051DE955E04EF59BC5D6BD722B98458FF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Stellaris (2016) [Ru/Multi] (4.1.0/dlc) Repack dixen18
 magnet:?xt=urn:btih:4764EFBC5FC882C922213FE4CCDD9491298680DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:4764EFBC5FC882C922213FE4CCDD9491298680DB
 magnet:?xt=urn:btih:69B4A5CD13C849032724ECBD1CCAA83E2ED83DC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +486,8 @@ Do No Harm - это симулятор доктора с лавкрафтовс�
 ```bash
 magnet:?xt=urn:btih:FE5FFA1B8ACC08060A27ED0F7B3FC38C3C01CAA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:FE5FFA1B8ACC08060A27ED0F7B3FC38C3C01CAA5
 magnet:?xt=urn:btih:B4F44172BE9F056B957B01F29A19450645F910F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ City Game Studio - стратегический симулятор, в кото�
 ```bash
 magnet:?xt=urn:btih:54321E6BEAB03ADDF74037D5556F0B293BCEF282
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ The Crown - метал-группа из Тролльхеттана, Швеци�
 magnet:?xt=urn:btih:5E5BB30CC681B13E9ED75B758874BD1F3347BFB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Siege Of Power - Warning Blast (2018) [FLAC|Lossless|image + .cue] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:5176F447C1BA6DF3765A21EF0A391F2EF6F7B233
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Malevolence — английская металкор-группа, образо
 magnet:?xt=urn:btih:CC52E89ACE0CABAA173E459C9B4B8374EF9611B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ Velial Squad - Бельмо (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Ho
 magnet:?xt=urn:btih:9667BFEB9F459595F14BF7A8394AE644C87189FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Balhattan - бесплатный шрифт. Шрифт Balhattan содержи
 ```bash
 magnet:?xt=urn:btih:25ABA9983C907CA3273C838AB6319526CBA9757E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

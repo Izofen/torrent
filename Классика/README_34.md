@@ -22,6 +22,8 @@ Giovanni Battista Sammartini (1700-1775) • Tomaso Albinoni (1671-1751) • Ant
 magnet:?xt=urn:btih:E1F8211C7372CCE3396EE01C8264DE5644F94193
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:3E99F2B6332232E3907EBA259C1DF751EA734714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Great Romantic Symphonies (2012) Naxos 25th Anniversary. The Great Classics
 magnet:?xt=urn:btih:612EF465954F617B234D5D49847F4AA537102F71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Sofiane Pamart - LETTER (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, 
 ```bash
 magnet:?xt=urn:btih:58030DEEE25B7635F77DFFF8BF358549F0539983
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Mario Lanza (Марио Ланца) - Welterfolge/Mein Herz Singt Nur Für Dich!
 magnet:?xt=urn:btih:8D1C725AA10ECECD1059C12ACBF6A423D47F919C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Yann Tiersen - ALL (2019) Mute Artists Ltd. [FLAC|Lossless|WEB-DL|tracks] <Neocl
 ```bash
 magnet:?xt=urn:btih:72D1B2854CD40FAF3BB02464304F526F034E8ABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Julien Marchal - INSIGHT IV (2019) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical, 
 magnet:?xt=urn:btih:FA87ABC711FA207FC5FF62BBD9EF2BFA6FF5A32A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Julien Marchal - INSIGHT III (2017) [FLAC|Lossless|WEB-DL|tracks] <Neoclassical,
 ```bash
 magnet:?xt=urn:btih:E06A834B17E46412206AB31F41C3F35752FCEB1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Disc 4 - 01:17:24(   Читать дальше...   )
 magnet:?xt=urn:btih:2A1B3C3DC76898C12D9836C26B4BC77C37A1C012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ Dirk Maassen - Avalanche (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical,
 magnet:?xt=urn:btih:F7E7BB42AA4D3B401D712CD9A826CBF83ABA5A9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +311,8 @@ Dirk Maassen - Ocean (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Pia
 ```bash
 magnet:?xt=urn:btih:ADC8873B47B354AE0B56CA56368C7A07C96E3AC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +342,8 @@ VA - Pure... classical (2011) Box Set, 4 CD [FLAC|Lossless]<Classical>
 magnet:?xt=urn:btih:B87B256B61956535AE0DDAD9A418C7C19DBD4293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +370,8 @@ Yann Tiersen - All (2019) [MP3|320 Kbps] <Neo-classical, Contemporary>
 ```bash
 magnet:?xt=urn:btih:64EAB42500168E3871FA4533ED53565329D7011A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +400,8 @@ Webern - Complete Webern: Boulez (2000) [FLAC|Lossless]<Classical, Modern, Avant
 magnet:?xt=urn:btih:9BA6C36048A025DAD57E095AB9FF606FD9CE3AE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ Sergey Cheremisinov - The Signals (2017) [MP3|320 Kbps] <Neoclassical, Ambient>
 ```bash
 magnet:?xt=urn:btih:7DB4EC2710BD1351EFC999CD1340DA5573E4883F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +458,8 @@ Rick Wakeman - Piano Odyssey (2018) Sony Classical [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:73A4C421159146A40B1C3ACAA8AE4DC122F5503E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +486,8 @@ Conductor – Rudolf Baumgartner(   Читать дальше...   )Релиз �
 ```bash
 magnet:?xt=urn:btih:0A241BA9CEE432228696C74EC660A48A5AC40C50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +516,8 @@ Fabrizio Paterlini - Winter Stories (2018) [MP3|320 Kbps] <Neoclassical>
 magnet:?xt=urn:btih:8B475A4017322F27F95BB852EF3B1DB2FC9E5102
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ magnet:?xt=urn:btih:8B475A4017322F27F95BB852EF3B1DB2FC9E5102
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +571,8 @@ Bach, Bach C.P.E., Bach J.C., Bach W.F. - Double Concertos: Leonhardt, Harnoncou
 magnet:?xt=urn:btih:F01E548CE163666897517B97B08A1A63BC3B1E2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +596,8 @@ magnet:?xt=urn:btih:F01E548CE163666897517B97B08A1A63BC3B1E2D
 ```bash
 magnet:?xt=urn:btih:B7A9DE83AC97450789577D31F22749741DAA0693
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +624,8 @@ Roman Grau - Silent Pain (2015) [MP3|320 Kbps] <Neoclassical, Orchestral>
 ```bash
 magnet:?xt=urn:btih:A7CE32BAD430471097FF3C97AFFFA264002AF3C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +654,8 @@ Keaton Henson feat. Ren Ford - Romantic Works (2014) [MP3|320 Kbps] <Neoclassica
 magnet:?xt=urn:btih:674C3F4D9BF953FC35C3C556FA6FA022100334AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +683,8 @@ Karl Jenkins - Karl Jenkins: The Piano Album (2019) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:3BA6CF5A16D12623A0CE723D34675A53B7FE639A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +710,8 @@ Ilyin - EP001. Lie (2019) [MP3|320 Kbps] <Neo-Classical, Baroque>
 ```bash
 magnet:?xt=urn:btih:43A0B792EC106152C07F0ACE475D26C00BD4C6DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -689,6 +739,8 @@ magnet:?xt=urn:btih:43A0B792EC106152C07F0ACE475D26C00BD4C6DF
 ```bash
 magnet:?xt=urn:btih:BD4ED7B18620997BB2B64D19274C120DC395B7A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

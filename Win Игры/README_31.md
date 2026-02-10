@@ -19,6 +19,8 @@ The Last Flame (2024) [Ru/Multi] (1.0.3 Hotfix 2) Repack FitGirl
 magnet:?xt=urn:btih:CE6C69334CD5467600A42A3BAFB0E54D0FB68EEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Echo Paradox - это психологическая игра ужасов, 
 ```bash
 magnet:?xt=urn:btih:C61463E0C032975991531D84CB6D5DD97F784926
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ POPUCOM - кооперативный приключенческий платфо
 magnet:?xt=urn:btih:257A7AF6BF8A160040365B54AB1BE143301D2213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.3.1/dlc) Repack seleZen [Spe
 ```bash
 magnet:?xt=urn:btih:2578EA8DFB9352310A11EA6EC6E7F4843C96E12D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Bee Simulator: The Hive (2025) [Ru/Multi] (build 19461565/dlc) Repack seleZen
 magnet:?xt=urn:btih:DDFA6CB1B263ADE6890102AD744644B7EAB3B972
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Shaman's Ark (2025) [Ru/Multi] (build 19404296) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:B901121EDB0D22793D91C81D7D84D22C22CC9637
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Fuel Harvest Together (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:CABD6325C6BF282285AB7EA0F0F2B10C4017FAFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ PPEAK - это совместная игра о восхождении, где �
 ```bash
 magnet:?xt=urn:btih:716A16238FE8571E176B25998F2953594DA7E4AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Copycat - это инди-игра, основанная на повествов
 magnet:?xt=urn:btih:00CDE286B32312B543CE9C9AB466F445717A4241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Rail Route – экономический симулятор, в котором 
 ```bash
 magnet:?xt=urn:btih:BBC8F948DA702390CD0A84A8B51D0845C69F46B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Driftwood (2023) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:8E0DFF8557B8A68F1F3CF6FDF37907066DC5FF87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Fuel Harvest Together (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:15CA5C1CBD5B5DA8E2FA619E4F9C9E1E9E0976D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Driftwood (2023) [Ru/Multi] (1.0) Repack seleZen
 magnet:?xt=urn:btih:5C115240DB5CCD853554E0F16BFCBAAC46EFB20A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Hellcard выполнен в той же стилистике, что и ори�
 ```bash
 magnet:?xt=urn:btih:2A04DE7E1A5081EBA17AC0BC2D740827108291DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Gatekeeper (2024) [Ru/Multi] (1.0) Repack seleZen
 magnet:?xt=urn:btih:2463D61164F019290422A416B205D6F2CA15366C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Bus Flipper: Renovator Simulator ставит игрока на место ре�
 ```bash
 magnet:?xt=urn:btih:C325FF1C4CF20D0A2B943304FC6592D0DEB1D560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Ikarus Parkour (2025) [Ru/Multi] (2.7) Repack seleZen
 magnet:?xt=urn:btih:AE38B79CF0E2AA204E6BC35ABB5A726799109BCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Forest 6174 представляет историю Дэнни, человека
 ```bash
 magnet:?xt=urn:btih:051AD4AC4FE7FEA16B0994473FC23BD3A97A7372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Chants of Sennaar (2023) [Ru/Multi] (1.0.0.9-r3) License GOG
 magnet:?xt=urn:btih:A279299A2B4EF72C7484FDF9721123048CF467EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Kaizen: A Factory Story (2025) [Ru/Multi] (1.0.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:ACF0DC9852F7FC8C1C37FCC49DB5DFBBE2EF6C07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Ninja Gaiden: Ragebound - совершенно новая игра с боков
 magnet:?xt=urn:btih:318CB24C8191AD49C981295D69794E94430EF1A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ South of Midnight (2025) [Ru/Multi] (1.3.0 186489) Repack Other s
 ```bash
 magnet:?xt=urn:btih:78BB50294C7BE7BAF1EA88577866A638FB551ABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Chasers Dash & Bash (2020) [Ru/Multi] (1.0.1) Repack FitGirl
 magnet:?xt=urn:btih:D12C3B2284D7954ABC7E16240E924C59C30BC3FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Power & Revolution (2023) [Ru/Multi] (6.94/dlc) Repack FitGirl [2023 Edition]
 ```bash
 magnet:?xt=urn:btih:8976756C66C1291438FEC50B9660211ED1B09FB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Tyrant's Realm (2025) [Ru/Multi] (20250731 Build 19375382) Scene Tenoke
 magnet:?xt=urn:btih:779E893C1D58F47A42E4980E922FA4CD944C6D19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19401283
 ```bash
 magnet:?xt=urn:btih:F31BA18C12082D08A659EF39A9696A8F7A7E94DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

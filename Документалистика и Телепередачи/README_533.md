@@ -1,3 +1,29 @@
+###  Публикация: 1527934   (735877) от 30.01.2022
+
+Своя игра (30.01.2022) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_735877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:496F01670B75EBFDA0B5785AF1A526A7F0BB09DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527890   (735882) от 30.01.2022
 
 Сто к одному (30.01.2022) WEBRip [H.264/1080p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0FE1949D9B66237AC98539A1340D824EDB85935F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ Discovery: Махинаторы (Автодилеры) (сезон 3, серии
 magnet:?xt=urn:btih:875E0E462B815762C0D36799DB182C940FBB5CD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:875E0E462B815762C0D36799DB182C940FBB5CD5
 ```bash
 magnet:?xt=urn:btih:C263DB825DAC185985357540629AA17E9E67A3F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ BBC. Нью-Йорк - самый большой город США / New York: A
 magnet:?xt=urn:btih:D13D56904328E82D227E1343381B4EE08FFEF4CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:D13D56904328E82D227E1343381B4EE08FFEF4CD
 magnet:?xt=urn:btih:CAD006A6318C66BF1143BF10F166B25064095171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ magnet:?xt=urn:btih:CAD006A6318C66BF1143BF10F166B25064095171
 ```bash
 magnet:?xt=urn:btih:20175EA5F82CC0AFB3DC506B0C6B16FE20C0B63A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:20175EA5F82CC0AFB3DC506B0C6B16FE20C0B63A
 ```bash
 magnet:?xt=urn:btih:6E43DAA41B81E626BAFD816F666AD51E4E9112FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:6E43DAA41B81E626BAFD816F666AD51E4E9112FA
 magnet:?xt=urn:btih:7691B40420E31B237C934855AC09F29F822916DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +262,8 @@ magnet:?xt=urn:btih:7691B40420E31B237C934855AC09F29F822916DF
 magnet:?xt=urn:btih:A87BE3080FBE90DE9914D99F065C1148F0D7C777
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:A87BE3080FBE90DE9914D99F065C1148F0D7C777
 ```bash
 magnet:?xt=urn:btih:2831228E55784A1DB9F62E8B1E63D7EF8F3804C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:2831228E55784A1DB9F62E8B1E63D7EF8F3804C6
 magnet:?xt=urn:btih:31CBC6E5B1CA15EB7EC8DF2215D38C3CD8176703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:31CBC6E5B1CA15EB7EC8DF2215D38C3CD8176703
 ```bash
 magnet:?xt=urn:btih:71E77E6530E581BB995CB58268F6AEC6984F8C52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:71E77E6530E581BB995CB58268F6AEC6984F8C52
 magnet:?xt=urn:btih:89B8A448055830EFB8B7FECAA25AE948CC0955F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:89B8A448055830EFB8B7FECAA25AE948CC0955F6
 ```bash
 magnet:?xt=urn:btih:B96653FEC972D82CE2D5441C134E4EB324FB2AE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:B96653FEC972D82CE2D5441C134E4EB324FB2AE6
 magnet:?xt=urn:btih:9052D5AE00146034EA75D96FDC8E0FE2839DEE89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:9052D5AE00146034EA75D96FDC8E0FE2839DEE89
 ```bash
 magnet:?xt=urn:btih:0E88E350A8831EDEBE8737D3C39594EBA60BC6CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:0E88E350A8831EDEBE8737D3C39594EBA60BC6CB
 magnet:?xt=urn:btih:A039A5F9CB92803D30FD9A729DBBCF5B446FAF6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:A039A5F9CB92803D30FD9A729DBBCF5B446FAF6B
 ```bash
 magnet:?xt=urn:btih:F20131C8B85FF0ED0CA2C1FF28F8C4C77277F3F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:F20131C8B85FF0ED0CA2C1FF28F8C4C77277F3F8
 magnet:?xt=urn:btih:5D2A339BABDF82F72E7600CF8278E2A1ABAE2016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:5D2A339BABDF82F72E7600CF8278E2A1ABAE2016
 ```bash
 magnet:?xt=urn:btih:1CF05D89CA341817A6F4CF9E25ADF235767A8B97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:1CF05D89CA341817A6F4CF9E25ADF235767A8B97
 magnet:?xt=urn:btih:B5AC43FD9904E0B7CC17F8DF76DD9C802A854CAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:B5AC43FD9904E0B7CC17F8DF76DD9C802A854CAE
 ```bash
 magnet:?xt=urn:btih:4F2681822CCD38246CED1A8E55F7F9793E6F7E93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:4F2681822CCD38246CED1A8E55F7F9793E6F7E93
 magnet:?xt=urn:btih:DA924F43D64CB56CAFFF7A29D762BF5D3F2BD216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:DA924F43D64CB56CAFFF7A29D762BF5D3F2BD216
 ```bash
 magnet:?xt=urn:btih:46C265C9BC3EDBFEA4E56933ED7E273668D9C971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:46C265C9BC3EDBFEA4E56933ED7E273668D9C971
 magnet:?xt=urn:btih:F2901609156D165EEFA2B96D2360145175D15558
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527228   (736914) от 28.01.2022
-
-Альфред Хичкок - Ранние фильмы (1925-1934) / Alfred Hitchcock - Films De Jeunesse (1925-1934) (2004) DVDRip [FR / RU, EN Sub]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_736914.jpg" />
-</div>
-
-
-###  Подробнее
-
-В фильме рассказывается о годах становления Альфреда Хичкока в качестве режиссёра. Киновед Бернар Эйзеншиц и кинорежиссер Клод Шаброль анализируют фильмы раннего периода его творчества и делятся от них своими впечатлениями. Также в фильме присутствуют фрагменты из беседы кинорежиссёра Франсуа Трюффо с Альфредом Хичкоком, состоявшейся в 1966 году.Производство: ФранцияЖанр: документальный, история, кинематографРежиссер: Ноель СимсолоПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (krigararr, внешние), английские (внешние)Продолжительность: 00:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F962DB41F13CF156F6AE8A5150C1496C6572B315
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

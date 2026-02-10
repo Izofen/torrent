@@ -22,6 +22,8 @@ VA - The Best Lounge Vol.46(Compiled by Sergio) (2016) [MP3|320 Kbps] <Lounge, C
 magnet:?xt=urn:btih:A2AD2610055B9328452D1DE9721F007997438100
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Rock Classics 60s-80s: Remastered Version (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:073B42FE511388AF03E6777C10B6F43C984125A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -80,6 +84,8 @@ VA - Pure Trance Emotions (2012) [MP3|320 кб/с]<Trance, Progressive Trance, V
 ```bash
 magnet:?xt=urn:btih:2A3C39835694E25DC0B21699CED7BF9863E2F46D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -114,6 +120,8 @@ VA - Creative Electro Box 1 (2012) [MP3|320 кб/с]<House/Electro House/Electro
 magnet:?xt=urn:btih:AA3C4BA38220A45AEF3989EEAC931B50C7D796EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +148,8 @@ VA - Eternal Vices (2020) [MP3|320 Kbps] <Rock Indie, Alternative>
 ```bash
 magnet:?xt=urn:btih:B459051EA7ACEC9C653A4DAFE8874325C81577B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +178,8 @@ VA - Empire Records - Chill Out 5 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downt
 magnet:?xt=urn:btih:6D1E0B177CC17161843187B2F0C778B3EB78434D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +206,8 @@ Adele - 100% Adele (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:B4D5F6DEE9864E70777E1A86B9FDFEBB2555A892
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +236,8 @@ VA - Только хиты тебе в уши (2018) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:DD130C6A1406A36C5211E37367287A4BE6104D41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +264,8 @@ VA - Empire Records - Chill Out 3 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downt
 ```bash
 magnet:?xt=urn:btih:FB29661A8221D4E19854E183A86E067907350CE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +294,8 @@ VA - Graceful Vocal Trance (2016) [MP3|320 Kbps] <Vocal Trance, Electro>
 magnet:?xt=urn:btih:913ABCF6200DF262C641EEE842C8689935EDD0E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +322,8 @@ VA - House In My Head New Edition (2016) [MP3|320 Kbps] <Electro House, Dance, C
 ```bash
 magnet:?xt=urn:btih:B77894D935A690CD4ED586761E2D52F84CA18DA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +352,8 @@ VA - не Громкие новинки недели 92 (2020) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:F8AE232133604264E859C8281F8593610EF4EF5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +380,8 @@ VA - Empire Records - Club Hit 3 (2016) [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:7B13AC4F23A3ADD9ED81C666532DAF43FF69CFE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +410,8 @@ VA - My Chillout Music (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:7AA1E6463FE19D582AE4CD3011712A78AC6E6AAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +437,8 @@ DigitalPuffy - Technology (2016) EP [MP3|320 Kbps] <Breaks>
 ```bash
 magnet:?xt=urn:btih:7A6A1821C2B6CE506671210A57B94FDF31A3E10D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +467,8 @@ VA - Truly Passionate Chillout (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 magnet:?xt=urn:btih:1DB0429E4DE80E3DCCFE6938CC6570DC7A8751B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +495,8 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:EC072BBC03062906D1C0B29BFC52B207948CDB78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +525,8 @@ VA - HGM: Move With The Beat (2020) [MP3|320 Kbps] <Vocal House>
 magnet:?xt=urn:btih:DC001002BAC658027B8C5F1523822607D65E3DED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +553,8 @@ CD1: Preparty
 ```bash
 magnet:?xt=urn:btih:E2F91AF32CB8F4FA534E447DB2C4D7A52A90DF86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +583,8 @@ VA - Лучшие хитовые треки в стиле Rap, Hip Hop & R'n'B �
 magnet:?xt=urn:btih:E41739ECF8E7C316F94F76F4B7C8233327E47310
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +611,8 @@ VA - Music News vol.156 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 ```bash
 magnet:?xt=urn:btih:4C5E5BCB8FFF80A288DAD1F85527C8BA55E58645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +641,8 @@ VA - The Official UK Top 100 Singles Chart 17.12.2021 [MP3|320 Kbps] <Pop, Dance
 magnet:?xt=urn:btih:5853511D48D16CD15D7A0F73C6F90555D0A99DFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +669,8 @@ VA - Record Super Chart 618 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 ```bash
 magnet:?xt=urn:btih:8493E28516ABFABD5210D3303ADB996EA60847C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +699,8 @@ VA - New Disco 80s Remix (2020) [MP3|320 Kbps] <Disco, New Generation, Remix>
 magnet:?xt=urn:btih:6DC41ED0D6FADAECBEF89736D97FC036F42DEC98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -680,6 +728,8 @@ VA - The Official UK Top 40 Singles Chart 20.12.2019 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:1040607993AEC9AF89EA326206B768710A3A4E92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -706,6 +756,8 @@ VA - Лучшие хитовые треки в стиле Industral Rock & Nu Me
 ```bash
 magnet:?xt=urn:btih:E02430F9D63C7B8F5F33986E718E82C2BE9988DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

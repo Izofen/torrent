@@ -19,6 +19,8 @@ Redeemer (2017) [Ru/Multi] (1.5) Repack R.G. Catalyst
 magnet:?xt=urn:btih:8D4C991ED8A09D6E6764513AD92BBF887F0E53F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Rock of Ages 2: Bigger & Boulder продолжает сокрушительны
 ```bash
 magnet:?xt=urn:btih:1425E9C2A71EB9C802302944B002F3B0A359DA32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Rock of Ages (2011) [Ru/Multi] (1.11) Repack R.G. Catalyst
 magnet:?xt=urn:btih:ED8FFD59B7DB4BAC245C2BB952B8EBFE80B76DF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Castlevania: Lords of Shadow - Mirror of Fate HD (2014) [Ru/Multi] (1.0.684579) 
 ```bash
 magnet:?xt=urn:btih:3C8A4CA2BB5DB80EAD669688AD490DF897C4AD2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Treasure Adventure World (2018) [En] (1.02) License PLAZA
 magnet:?xt=urn:btih:9AE9C47034A1FC1C9872F1510483B6C7551B8005
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Zombie Derby 2 (2016) [Ru/Multi] (1.1/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B65F7F8661E863FBDB39C250E648525547D74678
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Team Sonic Racing совмещает лучшие элементы аркады 
 magnet:?xt=urn:btih:E2109B9B1259FFD9AABCBFEE6DEBF587508AB455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.8) Repack xatab (обновля�
 ```bash
 magnet:?xt=urn:btih:20372E4EA90F20FBD5DD82F3CD4D90A84048A9BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Sonic Forces (2017) [Ru/En] (1.04.79/dlc) Repack Mizantrop1337
 magnet:?xt=urn:btih:F8714E86F4F4626D5CF7E1F61815116E39AA040A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Johnny Graves—The Unchosen One (2017) [Ru/En/Ge] (1.0) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:FF20ACDCDE7D9B51B403CEC51F8787BE638BA435
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Graveyard Keeper - самый недостоверный симулятор ср
 magnet:?xt=urn:btih:2F51A7220B3EC2D37C226FE429FFBCB302A61D9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Wulverblade - двухмерный брутальный классический
 ```bash
 magnet:?xt=urn:btih:8DA8D9B90220579E54D4BD82D2EBC26DB0590FD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Mark of the Ninja: Remastered (2018) [Ru/Multi] (1.0rc1) License GOG
 magnet:?xt=urn:btih:A510E3360CB69CF6F3C0A687F4639597F1180D42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ My Memory of Us – это воспоминание о дружбе между �
 ```bash
 magnet:?xt=urn:btih:38596A7EA2CD53A0F976FB552394CC8B5AC2D49F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ DYSMANTLE (2021) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:23FD71B7C245E088EA9C26EF60FE3DC3EEB941C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Sonic Forces (2017) [Ru/Multi] (1.04.79/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:D3B2122888DBD45CE7B6928B9F087CCC63F46F86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Dead or Alive 5: Last Round — это доработанная версия з�
 magnet:?xt=urn:btih:D38B53D6595DCEF01AF5D0AF66291DB585400F21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Sonic Forces (2017) [Ru/Multi] (1.04.79/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:0E1A04F75BC9F7663DF3EFC54F36373B28457D4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Halfway – пошаговая стратегическая ролевая иг�
 magnet:?xt=urn:btih:99460AF1813ECB1FE70EA8CC975BB798345EC4AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Pray for Death (1996) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:4A56A90BC5E20A83B2BA8EDD18CD906B841E1E0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ SOULCALIBUR VI / SOULCALIBUR 6 (2018) [Ru/Multi] (02.31.01/dlc) License CODEX [D
 magnet:?xt=urn:btih:DDE6C26AA677583429CDEB4A8790DD0B7AB5F8FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Binding of Isaac: Rebirth (2014) [Ru/Multi] (1.75/dlc) License PLAZA [Comple
 ```bash
 magnet:?xt=urn:btih:6F248DB5179DBCA653A364F9523F18DAE4017D4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Epic Chef (2021) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:3CD48FDBC33810CC9475ACEBC548EAD86D55E7D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Mortal Kombat: Komplete Edition (2013) [Ru] (1.07) Repack xatab
 ```bash
 magnet:?xt=urn:btih:1E1FBACD550F03305BF5FD64476DD53C666FA3DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Ori and the Blind Forest (2016) [Ru/Multi] (1.0) Repack R.G. Catalyst [Definitiv
 magnet:?xt=urn:btih:9AFDFA7FD85529ABD8A901FC174517914AD45340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Bridge - удивительный платформер в котором в�
 ```bash
 magnet:?xt=urn:btih:A6A9743E49124026ED6E5C502952875C61D3C584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:B1C994382D4C471253ACE9B4F94927413B75CBF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:B1C994382D4C471253ACE9B4F94927413B75CBF6
 ```bash
 magnet:?xt=urn:btih:1642DB9E377E65776820580202B590CA80020A97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Шансон года: часть 1 - 2 (2003) [FLAC|Lossless|tracks + .cue
 magnet:?xt=urn:btih:76B014BF5700216ADE26A5B308D57D4C4CB1A635
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:76B014BF5700216ADE26A5B308D57D4C4CB1A635
 ```bash
 magnet:?xt=urn:btih:3FB470A53D0160A03EBD74337D32C7900C4BB021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:3FB470A53D0160A03EBD74337D32C7900C4BB021
 magnet:?xt=urn:btih:6A2EF766876931C032FACF1A3E73BC12048DE119
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:6A2EF766876931C032FACF1A3E73BC12048DE119
 ```bash
 magnet:?xt=urn:btih:BC29ED70FC6CC1373DFF2C8311E0E6207D1860DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Русская душа (1998) [FLAC|Lossless|image + .cue]<Шансон>
 magnet:?xt=urn:btih:7E38B9BDA0EE0401A1803F43BDF06199BD394A37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:7E38B9BDA0EE0401A1803F43BDF06199BD394A37
 ```bash
 magnet:?xt=urn:btih:506193E819B604DE92F2FCB386C205CB32715793
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:506193E819B604DE92F2FCB386C205CB32715793
 magnet:?xt=urn:btih:8504F86309F076F0B4B93CBF7415794992E345D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:8504F86309F076F0B4B93CBF7415794992E345D0
 ```bash
 magnet:?xt=urn:btih:2E403DC6B5F24AEEE0A28283F2327C0D19293367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Шансон в пути (2006) [FLAC|Lossless|image + .cue] <Chanson>
 magnet:?xt=urn:btih:71EB9CD1005FB4D4CDF101D533AD8E6E8CC14DBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:71EB9CD1005FB4D4CDF101D533AD8E6E8CC14DBC
 ```bash
 magnet:?xt=urn:btih:B97E825659B4887F821A0C3133F041B1C4B411F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:B97E825659B4887F821A0C3133F041B1C4B411F2
 magnet:?xt=urn:btih:22479ACD95531658A4FAEBB902B0AFAE192AEB78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:22479ACD95531658A4FAEBB902B0AFAE192AEB78
 ```bash
 magnet:?xt=urn:btih:168B1E3F68C89651DF35986EDBDCABF49E7BC269
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ magnet:?xt=urn:btih:168B1E3F68C89651DF35986EDBDCABF49E7BC269
 magnet:?xt=urn:btih:E0D8C186E44E1F25E234D24F4A4A697FC981AD3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:E0D8C186E44E1F25E234D24F4A4A697FC981AD3A
 ```bash
 magnet:?xt=urn:btih:8DF339A04220F9C336F398D4A8EB2ACCF785B202
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - 3D коллекция: Елена Ваенга, Ирина Круг, Рад
 magnet:?xt=urn:btih:645259239E8974CB184C4A9D1CA2D4A388A69D38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ magnet:?xt=urn:btih:645259239E8974CB184C4A9D1CA2D4A388A69D38
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:645259239E8974CB184C4A9D1CA2D4A388A69D38
 magnet:?xt=urn:btih:CF4AC8D88FFA762B804C3C89EA73D3FD61047E1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ magnet:?xt=urn:btih:CF4AC8D88FFA762B804C3C89EA73D3FD61047E1B
 ```bash
 magnet:?xt=urn:btih:AEA9E8B82BEC685B666D5300901D92DD525BF26F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Marie Laforet - French Collection (2000) [FLAC|Lossless|tracks + .cue] <Chanson>
 magnet:?xt=urn:btih:801BEBA3504517F13E20DA467F0F7580ECE0AC54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ magnet:?xt=urn:btih:801BEBA3504517F13E20DA467F0F7580ECE0AC54
 ```bash
 magnet:?xt=urn:btih:E4D92072E0B0BD8D16CD07BDE49664485A5E8A94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ magnet:?xt=urn:btih:E4D92072E0B0BD8D16CD07BDE49664485A5E8A94
 magnet:?xt=urn:btih:49731663C6466F1E1F36C74E9DED923E4DBBDABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +689,8 @@ magnet:?xt=urn:btih:49731663C6466F1E1F36C74E9DED923E4DBBDABA
 magnet:?xt=urn:btih:814D709DC5D74BCDC0AC491FD1CE3005B29BE98F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +714,8 @@ magnet:?xt=urn:btih:814D709DC5D74BCDC0AC491FD1CE3005B29BE98F
 ```bash
 magnet:?xt=urn:btih:D7E1AE49AF4BAA56A8ACB6C2A73D3DF7F9AA0A83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -693,6 +743,8 @@ magnet:?xt=urn:btih:D7E1AE49AF4BAA56A8ACB6C2A73D3DF7F9AA0A83
 ```bash
 magnet:?xt=urn:btih:0980F16D7E76E4213311EF52E0DD954ED8071B08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

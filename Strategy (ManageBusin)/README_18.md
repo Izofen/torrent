@@ -19,6 +19,8 @@ Railroad Tycoon 2 + OST (Rip) [Ru] 1999 | RG Games (Pilotus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Animal paradise tycoon (Rip) [En] 2002 | RG Games (Pilotus)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Surviving Mars (2018) [Ru/En] (Opportunity Update/dlc) Repack R.G. Механи�
 ```bash
 magnet:?xt=urn:btih:07445925F36B0302D1064933D4824415F188F2E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Theme Hospital / Частная клиника [En] 1997 | GOG
 magnet:?xt=urn:btih:A288DA378F3747891FA666B940D5DC7E05DE554E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ SimCity (2014) [Ru/En] (10.3.4/dlc) Repack xatab [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:3D9438A54967A03B6709E02E50B7621A7C342069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Space Run Galaxy от студии Passtech Games — сиквел игры Spac
 magnet:?xt=urn:btih:91FD232AB9574A69EECBC76260D812760186CC48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ TransOcean 2: Rivals – это захватывающее продолжени�
 ```bash
 magnet:?xt=urn:btih:85554C71EFB0B086C4BCE8E62C24E40B4C6FB6AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Pharaoh + Cleopatra (1999) [En] (2.1.0.15/dlc) License GOG
 magnet:?xt=urn:btih:23126A7E3FAF3CA0E20AE73218CDFA8226871AAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ The Sims 4 (2014) [Ru/Multi] (1.50.67.1020/dlc) Unofficial R.G. Origins [Deluxe 
 ```bash
 magnet:?xt=urn:btih:788A00E332A6DC3758210BB1ED66D8B3C0B155B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Offworld Trading Company (2016) [Ru/Multi] (1.21.26998/dlc) License RELOADED
 magnet:?xt=urn:btih:3EB9FA5061AA3128184847C49652CFADCB1D2E43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Lobotomy Corporation | Monster Management Simulation (2018) [Ru/Multi] (1.0.1.0�
 ```bash
 magnet:?xt=urn:btih:C59E74FEF9867EEB6721715F89FF1EF075EC8401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Tropico 4 (2011) [Multi] (1.6.345/dlc) License GOG [Complete Collection]
 magnet:?xt=urn:btih:5C2431D9EADCB383C2B92498AB3350E8198DC1B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Tropico / Тропико Трилогия [Ru] (Lossless RePack) 2002-2011 | R.G
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.1.20220103.476/dlc) Repack Other s
 magnet:?xt=urn:btih:0B2131D0F5BB001F6E03A5F4166AFF735C137CFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ The Settlers 2: 10th Anniversary (2006) [Multi] (11757) License GOG
 ```bash
 magnet:?xt=urn:btih:BA912D16E845F2D9012765F974E9ED59F865AFD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Industry Giant 2 / Промышленный Гигант II (2015) [Ru] (2.3.3.0
 magnet:?xt=urn:btih:95D999DCC2B44D3772BF00F35D4ABB1C70AD4550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Mars Horizon (2020) [Ru/Multi] (1.4.1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3D1A60BD65DAE455122762574FD17B775A2DF8F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Valhalla Hills (2015) [Ru/Multi] (1.05.17/dlc) License GOG [Two-Horned Edition]
 magnet:?xt=urn:btih:B21C93548E3FFDE25D71D33748C3B0263F10F3D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Spore - Complete Pack (2009) [Ru/En] (1.2.0.2818/3.0.0.2818) Repack R.G. Мех�
 ```bash
 magnet:?xt=urn:btih:A6F876B1B21BF3519C87AF0B6C3DFFF0F7EC2B4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Pizza Connection 3 (2018) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:F18F4330B6EE19B9FC3866D772C6CF2470FA8F5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Zoo Tycoon: Ultimate Animal Collection (2017) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:62B89B970D49BA8415B6CB0AEA1AE0691E10D23A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Barn Finders – это симулятор поиска "сокровищ" в г
 magnet:?xt=urn:btih:7EF7D516ED9474CE229C907947C62DE4B94B9DB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ Barn Finders (2020) [Ru/Multi] (16128) License CODEX
 ```bash
 magnet:?xt=urn:btih:0C192FDD6523ECC60C25F5650CDA8B865A43468F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ The Guild Gold Edition — вероятно, одна из самых необы
 magnet:?xt=urn:btih:ADC096E9937C2E987FBA63DC67620D36B841835E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Exodus Borealis (2021) [Multi] (5.2) License PLAZA
 magnet:?xt=urn:btih:DB4275CAC66C1D9B70C35DF75D04247EA522E5BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ SimCasino - симулятор создания и управления собс
 ```bash
 magnet:?xt=urn:btih:A4251D03ECD65C86F5629F685E1CC1BC97489346
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

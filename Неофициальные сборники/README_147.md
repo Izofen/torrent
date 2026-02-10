@@ -22,6 +22,8 @@ VA - Solo Projects From Queen (1973-2025) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:11A428B6E7C1E209F727221166251ED05DD478A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Santa Baby Sexy New Year (2025) [MP3|320 Kbps] <Insrumental, Easy Listening
 ```bash
 magnet:?xt=urn:btih:EED478F731AF70FAFBCE879F98CEF7F5E069AC3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Music News For Forum vol.147 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:DEEE5D0D7347566F8DEBFC0CA8DEE02EDB0F9BAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - 60 minutes. Old School Dance Music vol.31 (mixed by Dj V) (2025) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:9751B52C1B4772BBD030C33EBB9B11D0F298441A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - No name compilation part 5 Electronic, Other, AI (2025) [MP3|320 Kbps] <Ele
 magnet:?xt=urn:btih:78737F1226D9BC3FB7BFB6D6EE122A3448E4ED63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Delih - Favorites Collection (2025) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:DCCD35EBED8A7CE6E50C14E8D69A768FA1AE01FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - No name compilation part 6 Blues, Soul (2025) [MP3|320 Kbps] <Blues, Soul, 
 magnet:?xt=urn:btih:983F5CD665985C11ACDC4F4F354BF079FB8012F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ VA - No name compilation part 7 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Soul
 magnet:?xt=urn:btih:FF753AA04ADDE19BAF34D09C5DAA3ACE1D319F35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +253,8 @@ VA - No name compilation part 8 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Soul
 ```bash
 magnet:?xt=urn:btih:B9DD2267ECBF2A0DCD87873B55598A4476DF27E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ VA - Клубные Новинки Vol.82 from AGR (2012) [MP3|320 кб/с]<Club
 magnet:?xt=urn:btih:BBD43DD7F162CA2A582D08E04905EEEAC694D18A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +323,8 @@ VA - Radio DFM - Рашн Дэнс (21.05.2012) from AGR (2012) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:DB8F4BD2634F1F3594D240A473053F98FF107F0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +359,8 @@ VA - Гуляй душа. Блатной шансон (2012) [MP3|256 кб/с]<�
 magnet:?xt=urn:btih:684689E23DB0A6D803FBA82B7ADC66D4E25F59C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +384,8 @@ VA - Чарочка та шкварочка (2011) [MP3|256 кб/с] <Folk>
 ```bash
 magnet:?xt=urn:btih:2B539D198D8399E6202DA1D61DB0353001677507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +420,8 @@ VA - Сборник классных хитов (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:AF96D1A10DC6FB1EA43EA758CB57235D1BAAB04C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +448,8 @@ Smtve - Favorites Collection (2025) [MP3|320 Kbps] <Romantic / Cinematic Pop>
 ```bash
 magnet:?xt=urn:btih:A00685F5EBFC73E94F483E1B37A7E75EDC494DE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +478,8 @@ LIYNA - Favorites Collection (2025) [MP3|320 Kbps] <Vocal Deep House>
 magnet:?xt=urn:btih:FED13B8003BE14AC443511A925986ADD4B636C66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +506,8 @@ VA - Music News For Forum vol.148 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:1D7C29622F45AE766BC59F508884E6CD4DA767E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +536,8 @@ VA - No name compilation Deep Chill Vocal House part 11 (2025) [MP3|320 Kbps] <D
 magnet:?xt=urn:btih:1EF2D9C380E0D042D9257C5473A8F1DC29CA32B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +564,8 @@ Anna Zueva - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Easy Listening, 
 ```bash
 magnet:?xt=urn:btih:1E528AB63ED7E6FE49F695B0893AF16BDB84E2F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +594,8 @@ Reyvi - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:1AE909AF1AA7307F88C2700BB2CF89523F857004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +622,8 @@ Romantic Dreams - Favorites Collection Part 8 (2025) [MP3|320 Kbps] <Italodisco,
 ```bash
 magnet:?xt=urn:btih:A155683C60A3DDE3157160E4C229781C79BA5752
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +652,8 @@ VA - No name compilation part 9 Electronic, Other (2025) [MP3|320 Kbps] <Electro
 magnet:?xt=urn:btih:9F24A18D3877941553A79C8A3639302B2C21EB8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +681,8 @@ VA - No name compilation part 10 Instrumental, Other (2025) [MP3|320 Kbps] <Elec
 magnet:?xt=urn:btih:2BEB5AC35478A044EEC2D23B31DA77EC3EF2014D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +709,8 @@ VA - Сказочный том II (2013-2025) [MP3|320 Kbps] <Folk rock, Post pu
 ```bash
 magnet:?xt=urn:btih:DCE494EBDC0D8442FEC9454862BD6766789ADDF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -697,6 +745,8 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #86 (24.05.2012) [MP3|320 кб/с
 magnet:?xt=urn:btih:AF135903C2D5D15C96E4219B9D7ECB70E7EF5B06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -729,6 +779,8 @@ VA - Рок в Авто (Русский) (2012) [MP3|320 кб/с]<Pop Rock, Rock
 ```bash
 magnet:?xt=urn:btih:364751E4668DA6D63C8206A03271D2A94D8EDE72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

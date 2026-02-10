@@ -1,3 +1,29 @@
+###  Публикация: 995276   (886416) от 10.03.2016
+
+Григорий Неделько | Горячие сосиски! (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_886416.jpg" />
+</div>
+
+
+###  Подробнее
+
+В центре повествования - С. Р. Б. Н. Достабль, пострадавший от руки... э-э, лапы Библиотекаря. Эта о... этот ОРАНГУТАН причинил (печально) знаменитому торговцу сосисками, пирожками и прочая немало болезненных повреждений, о чём Достабль вряд ли скоро забудет. Впрочем, не всё так просто, и причина отнюдь не та, о которой подумаешь на первый взгляд. И только Моркоу (   Читать дальше...   )Жанр: Фэнтези, юмор, детектив, пародия, постмодернПродолжительность: 00:25:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8026D562450E0CF01E524265C7A162DA722C3DB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372262   (886475) от 02.04.2020
 
 Данияр Сугралинов | Чумной мор (2020) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:59F3E6AD519000A2ED0B6A03A5F4A8FF71835F10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:59F3E6AD519000A2ED0B6A03A5F4A8FF71835F10
 magnet:?xt=urn:btih:28166D6092A7A109B05C4BABEB9FED481B1FF8A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:28166D6092A7A109B05C4BABEB9FED481B1FF8A4
 ```bash
 magnet:?xt=urn:btih:9B9E4580B65B8980AF941365A20D6651CB9E49E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:9B9E4580B65B8980AF941365A20D6651CB9E49E5
 magnet:?xt=urn:btih:DDB3AA4E6436E17F583695B9989CD666F49A8BB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:DDB3AA4E6436E17F583695B9989CD666F49A8BB9
 ```bash
 magnet:?xt=urn:btih:4B2C9908C4F744D67EBD63798FDA82B0B8C63942
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:4B2C9908C4F744D67EBD63798FDA82B0B8C63942
 magnet:?xt=urn:btih:E2196AC34E1C7C3161DC8FCDE1D73480B0CF8F60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:E2196AC34E1C7C3161DC8FCDE1D73480B0CF8F60
 magnet:?xt=urn:btih:F7AC91E1711982AEF2D6699958B1D543EF505B23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +226,8 @@ magnet:?xt=urn:btih:F7AC91E1711982AEF2D6699958B1D543EF505B23
 ```bash
 magnet:?xt=urn:btih:74FE266F0A23B4787DD4ED7BDA5CAB229D15C37C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:74FE266F0A23B4787DD4ED7BDA5CAB229D15C37C
 magnet:?xt=urn:btih:FA36FAFBB621866A167B7A29C908E761118E4FD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:FA36FAFBB621866A167B7A29C908E761118E4FD0
 ```bash
 magnet:?xt=urn:btih:79704382F097F8B2B4DEEF32D3241435F862093B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:79704382F097F8B2B4DEEF32D3241435F862093B
 magnet:?xt=urn:btih:66001B0D1C458C582FE08F7692491E9B61524EE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:66001B0D1C458C582FE08F7692491E9B61524EE7
 ```bash
 magnet:?xt=urn:btih:8A429863DAD25F93FDD085BF5A2A37ECEA5937C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:8A429863DAD25F93FDD085BF5A2A37ECEA5937C5
 magnet:?xt=urn:btih:62C3FBF86B9EADB11905645BBDF11B8B4C83E369
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:62C3FBF86B9EADB11905645BBDF11B8B4C83E369
 ```bash
 magnet:?xt=urn:btih:4ABA5D1DE294BCF49DD86BC12E831D621DDA08AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:4ABA5D1DE294BCF49DD86BC12E831D621DDA08AE
 magnet:?xt=urn:btih:8D1A232729E133795A584CE4C9CF50834E898509
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:8D1A232729E133795A584CE4C9CF50834E898509
 ```bash
 magnet:?xt=urn:btih:EDA30060D3619C770A34FDD1CDC7E02958E06D8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:EDA30060D3619C770A34FDD1CDC7E02958E06D8B
 magnet:?xt=urn:btih:35E0FBAE2DB47495143C97293F91F5B71649F7D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:35E0FBAE2DB47495143C97293F91F5B71649F7D7
 ```bash
 magnet:?xt=urn:btih:CBA2B3277153A89568DD8BC1B6816733F49EE383
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:CBA2B3277153A89568DD8BC1B6816733F49EE383
 magnet:?xt=urn:btih:423DA7257EF66D5CF99AA36527F4ECF668A53586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:423DA7257EF66D5CF99AA36527F4ECF668A53586
 ```bash
 magnet:?xt=urn:btih:457AF6619E0465DFAD9134F2D00518B7C4C7D51A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:457AF6619E0465DFAD9134F2D00518B7C4C7D51A
 magnet:?xt=urn:btih:5467D201025D4B5C3B1E1686115CF3854916B9E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:5467D201025D4B5C3B1E1686115CF3854916B9E9
 ```bash
 magnet:?xt=urn:btih:05C7B20026F7CE60C86EB49E903629882C23C781
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:05C7B20026F7CE60C86EB49E903629882C23C781
 magnet:?xt=urn:btih:13CB92AE6747347984B192CB0161DDBDC580D464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:13CB92AE6747347984B192CB0161DDBDC580D464
 ```bash
 magnet:?xt=urn:btih:9E7D1042D3843D25A93CA70819E5A15219D7F9E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:9E7D1042D3843D25A93CA70819E5A15219D7F9E8
 magnet:?xt=urn:btih:0B4E541A4D856D885D024482843ED09764B55E85
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494108   (890687) от 06.09.2021
-
-Макс Корбин | Лорд Локслин (Книга 2). Первый урок чародея (2021) [MP3, Константин Загацкий]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не успел Дункан Кинкейд оправиться после локальной войны с вампирами, чародеями и шибко шустрым колдуном, как вляпался в расследование о пропаже людей, на деле оказавшееся серией ритуальных убийств. Тело последней жертвы нашли, и это – вампирша. Город снова закипает, старые враги строят новые козни, а один даже призраком с того света вернулся.Жанр: Боевое фэнтези, героическое фэнтезиПродолжительность: 10:38:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33F75D18A7CBE53AD82375353AE8D79E39E02408
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Dark City 3: Vienna / Мрачный Город 3: Вена (2019) [Ru] (1.0) Un
 magnet:?xt=urn:btih:B54FC321DBF84423B457799C9C789A38B99F2A93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Nex Machina (2017) [Ru/Multi] (1.06 0073) License GOG
 ```bash
 magnet:?xt=urn:btih:AB3232A814A2A6AA8C9C9D72DB845723A33DDC1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Formata (2017) [Ru/Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:50DA8AA54FABEE12E1C784B7AE6A087A301BB5F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ King of Dragon Pass (2015) [En] (1.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:0EA24346401A473FE7A5DD3061297B727314D1F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Christmas Stories 6: A Little Prince /Рождественские истори�
 magnet:?xt=urn:btih:1DF7E2ED5C76F715629780F0DA1B7236C3355D97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Ghost Files 2: Memory of a Crime / Дело призрака 2: След пре�
 ```bash
 magnet:?xt=urn:btih:2474668A12D64DE0CB7EFF3748B325D7D90F3DD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Amax Interactive представляет новейшую главу в сер�
 magnet:?xt=urn:btih:E965F8F5BFCF936F5AA89395F31CC60F00847C0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ RIDE 3 (2018) [Multi] (1.0/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:FD5539000AD4AC90FCE8413433997177FBDD51D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Iron Man — игра, созданная на основе одноименно
 magnet:?xt=urn:btih:7E2724B223C2F5B40432D9160EF82F1B07B57247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Bee Simulator (2019) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:A48DDBCF8DAA7430004E798A7194CBDFB3D43DAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Some Distant Memory (2019) [Ru/Multi] (1.0.4) Repack Other s
 magnet:?xt=urn:btih:F194687CE1ABC86B8D06659C2DF79A72C8BD18F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Hermes 2: War of the Gods / Гермес 2: Война богов (2019) [Ru] (1
 ```bash
 magnet:?xt=urn:btih:0300855151109CD3A97FFB5988F43F44E430EF26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Domina — симулятор (с элементами стратегии), ко
 magnet:?xt=urn:btih:77EF5202676125B3F7D07D5E442BF1AA65F630B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Super Lucky’s Tale — весёлая и увлекательная платф
 ```bash
 magnet:?xt=urn:btih:60EEBFEB634F6804C7D9CE2CE6DA7A3152569887
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Sally Face (2016) [Ru/Multi] (1.4.13/dlc) License PLAZA [Episode 1-4]
 magnet:?xt=urn:btih:EA1A80097AFC7A9976042C97ADA848A8DB739000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Grand Ages: Medieval (2015) [Ru/Multi] (1.1.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:4B72EF00D81F2BAC08A1B938D9F063AEC25165BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Superliminal (2019) [Ru/Multi] (1.0.2019.11.12.1) Repack Butter_
 magnet:?xt=urn:btih:01DDBE851F7C2CB3B565C2AA1953FE224D9317CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ SUNLESS SKIES — это готическая ролевая игра с эле�
 ```bash
 magnet:?xt=urn:btih:14D251969054FEFFA7044AA57BA12EC4AE5E4A19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ RUNE II (2019) [Ru/Multi] (0.0.9L) Repack xatab
 magnet:?xt=urn:btih:C0E587D9509E1BE72B5C49865E03EB7842EB3FFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Rise of Industry (2019) [Ru/Multi] (2.1.0.1211a/dlc) Repack R.G. Механик�
 ```bash
 magnet:?xt=urn:btih:AE3B3120F6589A61977C9F0734FC4C04029AA9B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Labyrinths of the World 10: Fool's Gold / Лабиринты Мира 10: Зол
 magnet:?xt=urn:btih:B874F2E6560CF6A6E9BA14407B27480AA95E08D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Royal Detective 6: The Last Charm (2019) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:03410202EB9C0DD369C816C44A2F6A03AE5A172F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Asterix & Obelix XXL 2 (2018) [Ru/Multi] (1.0) Repack xatab
 magnet:?xt=urn:btih:DB22CD84E1142B596C361103F932942B8CFBE69D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ This War of Mine - первая игра, которая позволяет ув
 ```bash
 magnet:?xt=urn:btih:D6DFB4DD1EC00C7A6B981497E947C7DEF636D5AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Black Mirror (2017) [Ru/Multi] (1.0.0.1005) Repack OneTwo
 magnet:?xt=urn:btih:8B64881182A83AB7F1AE74C27D167201A9C3ADC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Spirit Legends: The Forest Wraith (2018) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:5B8E1329A5241E39EE8B12AD2D3C4DA3B8EADB4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

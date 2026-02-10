@@ -19,6 +19,8 @@ Go Play Lumberjacks [Wii] [PAL] [Multi 3] (2011)
 magnet:?xt=urn:btih:451384A6505CF7BB0045B408DEA2EBFCFC822A2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ The Conduit – это шутер от первого лица в футурис
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ SpongeBob SquarePants: Creature From The Krusty Krab - это аркадный �
 magnet:?xt=urn:btih:F8579E5BFC1A47E24200D4F8F69567F85B3F707A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ ClockTower3 – продолжение популярной некогда се�
 ```bash
 magnet:?xt=urn:btih:A3EDD3B8179C63DBA78E400D8171CED31A485B15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ magnet:?xt=urn:btih:A3EDD3B8179C63DBA78E400D8171CED31A485B15
 magnet:?xt=urn:btih:4B4909CDBC04C10AD9940CC2B1A8D158DD510C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Phineas and Ferb: Across the 2nd Dimension [PSP] [FullRUS] (2012)
 magnet:?xt=urn:btih:8EA7F7E71368C31972103DDC00C3A27C0829CE9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ Onimusha: Dawn Of Dreams [PS2] [RUS, ENG] (2006)
 magnet:?xt=urn:btih:BA9347FBE7DDEF554537C97C8D10B98A6DC3B7B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ American Chopper 2 Full Throttle [GameCube] [ENG] (2005)
 magnet:?xt=urn:btih:9E6CEDCE307C2BA6C664C4D8F2220F51FE1E57E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ Gladius [GameCube] [NTSC] [ENG] (2003)
 ```bash
 magnet:?xt=urn:btih:826A26806DAC3BD1771D5B0D77563D145E70FC53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ Cooking Mama: World Kitchen [Wii] [NTSC] [Eng] (2008)
 magnet:?xt=urn:btih:7BAC465EE507CF562408A5054EF15747C5958968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ Alvin and the Chipmunks: Chipwrecked [Wii] [NTSC] [Eng] (2011)
 magnet:?xt=urn:btih:23433FBFF6E3562F545D0E74BF34EC9EC677DCFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ Eagle One: Harrier Attack - Коллекционная раздача [PS1] [SLE
 ```bash
 magnet:?xt=urn:btih:9161743D9BBE8BEC7060660AD69DCC327E928DD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ R: Racing это экстраординарная экшн-гонка, соде�
 magnet:?xt=urn:btih:5F6E5B2EE2DCF1C236DE141F1686345396A488F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ Medal of honor heroes 2 [Wii] [NTSС] [ENG] (2007)
 ```bash
 magnet:?xt=urn:btih:E46563936727EBA7052485B71EAB6F7363C24EAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ DmC является перезагрузкой знаменитой серии 
 magnet:?xt=urn:btih:94D246C2CE1A95654E594D6ABD0C6A709120ED5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ Guitar Hero III: Legends of Rock [PS3] [ENG] [PAL] (2007)
 ```bash
 magnet:?xt=urn:btih:805F9E7AA54AE90C2BE735443551591D0BC52173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ Kega Fusion + BIOS [Консоли Sega 2, 3 и 4 поколений] [ENG] (201
 magnet:?xt=urn:btih:2AD548D0480DBEAC33F5E41E8625D12F0D093920
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ Snes9x [SNES] [ENG] (2011)
 magnet:?xt=urn:btih:4A60608F2CCFD31243C3AAC30D100A2A4A046A11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ Assassin's Creed: Revelations [PS3] [PAL] [Ru/En] [Repack] 2011 | R.G. Inferno
 ```bash
 magnet:?xt=urn:btih:39F96C61E93867CCD70EBD7F476637D6BD6284E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ Disney Universe [PS3] [PAL] [ENG] (2011)
 magnet:?xt=urn:btih:583FF36D863A6B3045E1F8BB051D17BEDEE74B32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ Kung Fu Panda: Legendary Warriors [Wii] [PAL] [Multi 6] (2008)
 magnet:?xt=urn:btih:397737B059C724AEE007D38589851F633D241214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ Bionicle Heroes [Wii] [NTSC] [Eng] (2007)
 magnet:?xt=urn:btih:9722341C75D5D7E4D37A7A834C353A1124B76A8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ Williams Pinball Classics [Wii] [PAL] [Multi 3] (2011)
 ```bash
 magnet:?xt=urn:btih:6B8D38E7DD34FCEFB2509A531EA71BCF0A238913
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +647,8 @@ Assassin's Creed: Brotherhood [PS3] [PAL] [Ru/En] [Repack] (2010) | R.G. Inferno
 magnet:?xt=urn:btih:13B8A103AF2B4826AAC7E43B5779126818A33AA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ Country Dance 2 [Wii] [ENG] [NTSC] (2011)
 magnet:?xt=urn:btih:EAC587079EB14FB198B5D4C38D227CA0AAA08DE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ Vampire Crystals [WiiWare] [RegionFree] [Eng] (2012)
 ```bash
 magnet:?xt=urn:btih:564FECD8C7BD235C7728D29FDB2CEEC0EE066480
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Ratopia - это оригинальная стратегия, которая б�
 magnet:?xt=urn:btih:ADA6FBFBC74FD281EDE4A7773F3598D94DA4FD84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.2.19328) Repack Let'sРlay [Collect
 ```bash
 magnet:?xt=urn:btih:8940A6E9DBE2B495ADCD996A99EC8A2622C2B698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Codename: Ocean Keeper (2024) [Ru/Multi] (1.0.4) Repack Let'sРlay
 magnet:?xt=urn:btih:8991570D1F004F5B1DD78138C86F809ACC30466B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Terminator: Dark Fate – Defiance позволяет окунуться в су
 ```bash
 magnet:?xt=urn:btih:60C3E19A4EE060B3FD2AC23C90D20763B48BC90F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ My Friendly Neighborhood погружает юзеров на роль прос�
 magnet:?xt=urn:btih:0D58C7586050C4B4BC201664127A2BAF86328115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Ru/Multi] (1.10.5/dlc) Rep
 ```bash
 magnet:?xt=urn:btih:99FF5E6D7E863DE43B7D2A9ADB79FB412161F3B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Oxygen Not Included (2019) [Ru/Multi] (Build U56-679336-SCRP/dlc) Repack Let'sР
 magnet:?xt=urn:btih:802E92C5B01934F319862B4915BEEF290DFA7760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.05.297/dlc) Repack Let'sРla
 ```bash
 magnet:?xt=urn:btih:87F089919308B0F103E4A1499881222FA11CFA24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.16.2/dlc) Repack 
 magnet:?xt=urn:btih:08F424FCA439450ED8201A37DEB9060A9938A731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ M.O.O.D.S. (2024) [Ru/Multi] (1.0.03.0025) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D7C05CD63A08A2C477C06A1826BDCE8CF337B257
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Beff Jezos Simulator предлагает геймерам почувствов�
 magnet:?xt=urn:btih:A55B754AC257840E48D8E56A02CC072820D609FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Steep (2016) [Ru/Multi] (1.23.7640008/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F51AAAEE2090816844F6CACDA47F94CF01A04B49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dark Resolve (2025) [Ru/En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:C35B9A3D3ED0F379E5BD69AE95FAA51B2461FA3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Ship Graveyard Simulator 2 (2023) [Ru/Multi] (13486/dlc) Repack Other s [Wreckma
 ```bash
 magnet:?xt=urn:btih:9E90CF4F015A43259C10F4D01A013B2C6DE6CF30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Laser Tag Massacre – это хоррор-игра с сюжетом, вдох�
 magnet:?xt=urn:btih:8D7A13895E2E1F43A3CD1E8DAB04A21121C8E3FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Abiotic Factor - это научный экшен с видом от перво�
 ```bash
 magnet:?xt=urn:btih:EAAB88F76419FF72049001DE29034BFAC164D261
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Kunitsu-Gami: Path of the Goddess (2024) [Ru/Multi] (Build 19024694/dlc) Repack 
 magnet:?xt=urn:btih:2AC7CFB64B4337775D5119D6E481B8A2BA034D08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ StarMetal Crusaders ставит игрока во главе отряда на�
 ```bash
 magnet:?xt=urn:btih:99F71CA449AB2170E14E66B9B3CA20159408666B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Tintin Reporter Cigars of the Pharaoh (2023) [Ru/Multi] (1.0.39277) Repack Let's
 magnet:?xt=urn:btih:C71BC5FFED41DA7A49FC8E3962C1397AD56552FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Kick'n Hell помещает игрока в вид от первого лица
 ```bash
 magnet:?xt=urn:btih:A590BC3A95B719718B71925FE7461CB7EE09779A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Rekindled Trails (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:BAF69FC9C662D55DAD670F79F837CB2B97243861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Endzone 2 бросает вас в самую гущу постапокалип�
 ```bash
 magnet:?xt=urn:btih:18190D1655257DE191E4250046B3D594B07F5530
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ HD ремастер первой и второй частей любимой в�
 magnet:?xt=urn:btih:0DFD65257E339E571E3C0D0DD6FF3543880800D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Death Relives (2025) [Ru/Multi] (0.14.68.398) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:14D8BA0C07F7B9624CB3CB5C7BB5C80B3F320542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4184/dlc) Repack Let'
 magnet:?xt=urn:btih:A482FA1381466D38673B13BD7A51F68337EF6C80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Rooftops & Alleys - это больше, чем просто паркур и ф�
 ```bash
 magnet:?xt=urn:btih:252CF461E3A9581E54F5E0713BFB69D40DCD9F0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

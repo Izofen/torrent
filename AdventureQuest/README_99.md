@@ -1,27 +1,3 @@
-###  Публикация: 1335699   (851006) от 22.04.2020
-
-Ancestors: The Humankind Odyssey (2019) [Ru/Multi] (1.4) Repack Other s
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_851006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ancestors: The Humankind Odyssey — симулятор выживания с видом от третьего лица, придуманный создателем Assassin’s Creed. Исследуйте открытый мир, расширяйте свои владения и развиваете клан, чтобы перейти на следующую ступень эволюции. Отправляйтесь в невероятное путешествие по этапам человеческой эволюции, охватывающее период от 10 до 2 млн лет тому назад. Оно начнётся (   Читать дальше...   )Тип издания: RepackРазработчик: Panache Digital GamesЖанр: Adventure, Action, RPG, 3D, 3rd PersonЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D771944F1A2AA116E675F79AC9C22CE757B5B6EF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377616   (851256) от 22.04.2020
 
 The Flower Collectors (2020) [Ru/Multi] (1.0) Repack Other s
@@ -42,6 +18,8 @@ The Flower Collectors (2020) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FE58E997F790A81742F928F51AD1CE7A8F348FDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Terrarium Land (2016) [Ru/Multi] (1.0) License HI2U
 magnet:?xt=urn:btih:7B0AD1D161E8F668467BA952C4EC62E13872FA0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ I Saw Black Clouds (2021) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D3ECAD705DEE3D9D0370C94E48DED38AE904EF88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Murder Mystery Machine (2021) [Ru/Multi] (1.0.0) License GOG
 magnet:?xt=urn:btih:04E9FC10DAAC26742DD09B336A2C2B286F43175B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Hero of the Kingdom: The Lost Tales 1 (2020) [Ru/Multi] (1.00) Repack Other s
 ```bash
 magnet:?xt=urn:btih:FC07FA52CB19BA49FCA870B038402D55EF110EF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Sherlock Holmes: The Devil's Daughter (2016) [Ru/En/Ua] (1.0.8767.0) Repack R.G.
 magnet:?xt=urn:btih:BCBD9A98076584694E63791ABFDEE35CDFE65F62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ The Inquisitor Book I: The Plague (2014) [Ru/Multi] (1.0) Repack АRMENIAC [Nico
 ```bash
 magnet:?xt=urn:btih:9B694594187430249793296551BEF0CEA2E962E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ The Inquisitor Book II: The Village (2015) [Ru/Multi] (1.0) Repack АRMENIAC [Ni
 magnet:?xt=urn:btih:945A545176AEE10CBB574F0F4BFEC85D8BB61E0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Sherlock Holmes: The Devil's Daughter (2016) [Ru/En] (1.0.8767.0) Repack =nemos=
 ```bash
 magnet:?xt=urn:btih:AA454CEBCF69FB12B068ABC82776022777BA2F0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ The Count Lucanor - приключенческий RPG-рогалик с эле�
 magnet:?xt=urn:btih:52C5417997C5F7685253DF13F7887E6126F3B5F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Broken Age (2014) [Ru/Multi] (2.4.800398) Repack R.G. Механики [The Comp
 ```bash
 magnet:?xt=urn:btih:451BEA22EF066B0152DC9BD83C6BDA8B3A309D78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Biped — это динамичная приключенческая 3D-игра
 magnet:?xt=urn:btih:104E83CBC569D251953A47CF7DD549E21ABA5A76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Addams Family: Mansion Mayhem / Семейка Аддамс: Переполох 
 ```bash
 magnet:?xt=urn:btih:B2C2C005CF83F20FD90131F6FE56DAE52C7130CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Alternativa / Альтернатива: Нечего терять (2011) [Ru] (1
 magnet:?xt=urn:btih:1C00609196C5BC6950F41F0828D2B647882CDB00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Black Mirror 3: Final Fear / Черное зеркало 3 (2011) [Ru/Multi] (1.
 ```bash
 magnet:?xt=urn:btih:14DA251AB7C86C40FDF606CDCDC90D951624F3E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Sable (2021) [En] (3.2.9) License CODEX
 magnet:?xt=urn:btih:61A7BEB0C9724290236F7BB8603EBB14B2CC51D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ The Plane Effect (2021) [Ru/Multi] (1.01.2166) License DOGE
 ```bash
 magnet:?xt=urn:btih:7D255A23DE3D6C8AE0A5EE5706C6EFD81F3207FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Sunwards — это сложная приключенческая игра ос�
 magnet:?xt=urn:btih:806874984655672AA72EF91C4935BE6A1CAA9C3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Boogeyman 2 (2017) [Ru/Multi] (1.4.1) License HI2U
 ```bash
 magnet:?xt=urn:btih:AFAFD3F423AABA36A9CB9F4A62EE321D747F53E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Republique Remastered – игра в жанре стелс от студии Ca
 magnet:?xt=urn:btih:DFF66998CF948B44DE002985B2D528CF7E9D0E57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Day of the Tentacle Remastered представляет собой ремейк 
 ```bash
 magnet:?xt=urn:btih:6181B135248BC8D073BE31B7BB02072F17C25E80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Nelly Cootalot: The Fowl Fleet - это приключенческий квес�
 magnet:?xt=urn:btih:A8102C5BA574D3880611F9E62B891FF18A9F3F62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Republique Remastered – игра в жанре стелс от студии Ca
 ```bash
 magnet:?xt=urn:btih:DFDEE5D052663617D6BF8A2A766CF0E2F58A1A50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ The Mooseman / Человеколось (2017) [Ru/En] (1.0) Repack R.G. Мех�
 magnet:?xt=urn:btih:60CBD3EBE799928ED865A63447A16D4E1C8A2833
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ Republique Remastered – игра в жанре стелс от студии Ca
 ```bash
 magnet:?xt=urn:btih:797CDEBA3133F7C4A45E147BBFCAF1370C31F45E
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108290   (863797) от 24.02.2017
+
+Herald: An Interactive Period Drama - Book I & II (2017) [En] (1.0.2) License HI2U
+
+>>Win Игры
+>>Adventure/Quest
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Herald: An Interactive Period Drama – приключение в альтернативном варианте XIX столетия, где Запад объединился в колониальную суперсилу – Протекторат. Главным героем повествования выступает Деван Ренсбург, стюард на борту корабля Геральд. Его работа – поддерживать мир между командой и пассажирами, решая все возникающие недопонимания. Выполняя свое дело, парень случайно (   Читать дальше...   )Тип издания: LicenseРазработчик: WispfireЖанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3F95C0926C3FE8DB2D20B2D310634E0C04BEF33
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

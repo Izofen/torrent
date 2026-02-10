@@ -19,6 +19,8 @@ Magic Academy 2 / Академия Магии 2 (2009) [Ru] (1.0) Unofficial
 magnet:?xt=urn:btih:98047C020FC2A7C22C1EDE308ABCBDF28AD5C5FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Black Mirror III завершит историю ужасных событий �
 magnet:?xt=urn:btih:DF98EA6E3626809819642C0239517BDAEA5A31F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Iron Sky: Invasion - является космическим симулятор�
 magnet:?xt=urn:btih:26CEDB4F5D13EC0BA4D6CE5387E28062FD3C9216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ The Lost Chronicles of Zerzura [En] (L) 2012 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:FFD842E1C7DCCF1F2DB6F84655402CC0604A4273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ The Admin — футуристический экшен с видом от тр�
 magnet:?xt=urn:btih:654A79B94160D3085702834DCEA4413E1E847276
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Renoir — это сюжетный платформер-головоломка, 
 ```bash
 magnet:?xt=urn:btih:37E543D3F45374A3A65F8CA1D7C46514A90AB96E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Dawn of Hope 2: Daughter of Thunder / Рассвет надежды 2: Дочь 
 magnet:?xt=urn:btih:FBCFC6FF870FAC25F6AFEB2440EA8AEC720FE423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Antigraviator (2018) [Ru/Multi] (1.292/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:16EFE8BB694EB5EFE39DAF31A9BC57FCA60BC726
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Shadows: Awakening — это продолжение знаменитой сер
 magnet:?xt=urn:btih:50D02B304AEABCDCC5CF3C6A95A969A7DA591EBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Mystery Trackers 15: Darkwater Bay / Охотники за тайнами 15: Б
 ```bash
 magnet:?xt=urn:btih:44664B8BBE980178EF380319C8B9294249355166
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Turnip Boy Commits Tax Evasion (2021) [Ru/Multi] (1.1.3f1) License GOG
 magnet:?xt=urn:btih:62175C5BB69FCDCC2AC839FF43B70DE2FDFBAAE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Infinifactory - великолепная пазл-песочница с видо
 ```bash
 magnet:?xt=urn:btih:4E3E7B945EB6F4BE38A0FF89C5360289EF111246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Steamburg (2017) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:BE7F000D2F5B897B8DC7BC459EEDA40CC3850604
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Steamburg (2017) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:C80C269312083BA39049D01567752080EEA91036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Among the Sleep (2014) [Ru/Multi] (3.0.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:908E17DE37C819297CD67C2A52FC2B9C18B6D7E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ The Dark Eye. Chains Of Satinav [Ru/En] (Repack/1.1) 2012 | Fenixx
 magnet:?xt=urn:btih:01147959D29CF6D14627ABC4EBEB36C37C366824
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ No Place for Bravery - мрачный пиксельный ролевой экш
 magnet:?xt=urn:btih:82389484AB127D56E51B0A866F0B7D45B22006A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ TheNightfall (2018) [Ru/Multi] (1.5) Repack Other s [Halloween Edition]
 ```bash
 magnet:?xt=urn:btih:5A8220DA058EAA015E7BDEE9354B001CE550B114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Guns, Gore and Cannoli Dilogy (2015-2018) [Ru/Multi] (1.2.15/1.0.8) Repack R.G. 
 magnet:?xt=urn:btih:143305F3B9D3113816DF13F108C9AED8A3689FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ State of Mind – футуристический триллер на тему т
 ```bash
 magnet:?xt=urn:btih:0208B1842688DE54C43262F91D5CF92318A9B93E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Gears 5 (2019) [Ru/Multi] (1.0.1/upd1) License PLAZA [Language Pack]
 magnet:?xt=urn:btih:AA61A4AA13721B94F04D1A676AC2696DC73AC5CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Edge of Reality 4: Hunter's Legacy / Край Реальности 4: Насле
 ```bash
 magnet:?xt=urn:btih:54EEE2EDE99E75CA9088D8B094465BFE6796157B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Trine 4: The Nightmare Prince – очередная часть в серии л
 magnet:?xt=urn:btih:96B0A7E0EC7E2707A38801D557FAC09274B3CF9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ The Book of Unwritten Tales (2012) [Multi] (2.0.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:6390A38CB33529E8BB907F900D44A28031AFA139
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Edge of Reality 7: Call of the Hills / Край реальности 7: Зов �
 magnet:?xt=urn:btih:E3DF77223AAA09E1C5B512424596C7B569CE90A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Trailblazers (2018) [Multi] (5.6.5.11926743) License GOG
 ```bash
 magnet:?xt=urn:btih:0FD3EDA6F4815AE5EE7DD3A03782B38A464053AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

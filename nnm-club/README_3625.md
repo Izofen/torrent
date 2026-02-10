@@ -22,6 +22,8 @@ Opera Magna - Heroica (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Meta
 magnet:?xt=urn:btih:B1EE9AFF6B18CD0961B5F6C911D3747D6C887CAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ FotoMagico – популярный пакет для создания слай�
 ```bash
 magnet:?xt=urn:btih:35778CA62B88BA9AF8C04D361951C5C03FB6BCD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Blue Dawn - Reflections From An Unseen World (2023) [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:304D5D2919DF20894A557B6E841F3CB4E5AFA80F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Walter Trout - Broken (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] < Blues Rock>
 ```bash
 magnet:?xt=urn:btih:9606925EB4C90CE5E1B5D8788BE71AF5549584CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ V.A. - Chill Out Cafe Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu Ja
 magnet:?xt=urn:btih:B8F89B1E0E9C17D3A507B4481E5EC6A155BE21E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:B8F89B1E0E9C17D3A507B4481E5EC6A155BE21E5
 ```bash
 magnet:?xt=urn:btih:E360D087B0BED7F70473B7B3DDD9950480745387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +195,8 @@ DubVision @ IDEM (All Ages Show), RAI, Amsterdam Dance Event 2023-10-21:
 magnet:?xt=urn:btih:C7AF4A42CD9A60915885102099D8424483742F9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +223,8 @@ Empty Frame - Underdogs (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indi
 ```bash
 magnet:?xt=urn:btih:6C7DDE4770DFCDF3537743517FD1DF668759EB36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ Ivo Linna - Поёт Иво Линна (1983) [FLAC 24/192|Lossless|tracks] <Pop
 magnet:?xt=urn:btih:84F483AB2C85AC102D526839462FBD988F197511
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ Green Talisman (Skorsky / Carmona - Goings - Skorsky)
 ```bash
 magnet:?xt=urn:btih:C1AE867AF801BAAAB7156E7515019089917E9CF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ Silveroller - At Dawn (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Blu
 magnet:?xt=urn:btih:167F3D827BBBD93CC3F6394FA8EBD36C5AFE983B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +336,8 @@ magnet:?xt=urn:btih:167F3D827BBBD93CC3F6394FA8EBD36C5AFE983B
 ```bash
 magnet:?xt=urn:btih:B057EF0CBFEB02A28421555C6616FB4C5CEE6792
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +363,8 @@ Opera One 108.0.5067.20 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:9F6544FC27ADAB363E2BF130E6D9FB061A586E9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +389,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:383EAEA85E8D604F3222867926D59F09A38AFD0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:CD9BADD2EA24AB4D1EC3880ED174AFD0D3CE72EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +444,8 @@ Cars & Brides - The 1st Album (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro-Disco>
 magnet:?xt=urn:btih:2FA14BEE0045206CE986962BBD46960068403640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +469,8 @@ Comodo Dragon - быстрый универсальный браузер на б
 ```bash
 magnet:?xt=urn:btih:A1B9714F7BEA6E27E153EE455E32495EF741AE66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +499,8 @@ CD1 - Doomed Forever:
 magnet:?xt=urn:btih:86172170E3DEB7FA4F6527DB0602C43C3150DAC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +524,8 @@ magnet:?xt=urn:btih:86172170E3DEB7FA4F6527DB0602C43C3150DAC5
 ```bash
 magnet:?xt=urn:btih:B8AEB518802882DA88B0E279F71FC0FEDB12F794
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +552,8 @@ DxO PhotoLab 6 ELITE Edition 6.15.0 [Multi]
 magnet:?xt=urn:btih:D245B687B8E8462E2CCC231589B2902F20E0438C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +579,8 @@ Misutenaide Daisy | Don't Leave Me Alone, Daisy | Не покидай меня, 
 magnet:?xt=urn:btih:25A4C6E035C3148B38BB1050E60741E0377CACCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ magnet:?xt=urn:btih:25A4C6E035C3148B38BB1050E60741E0377CACCA
 ```bash
 magnet:?xt=urn:btih:AD704B62CE12AB23D31C690EF0DED592559011A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +631,8 @@ Music Collection - неплохая программа для создания �
 magnet:?xt=urn:btih:47ECD880760630F9E720B56C56C049BC8F5CE59C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +657,8 @@ magnet:?xt=urn:btih:47ECD880760630F9E720B56C56C049BC8F5CE59C
 magnet:?xt=urn:btih:024FB423041772180B42D5C9A5250A0331ECAA64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ Vivaldi 6.6.3271.48 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0D8BF9CF8D81EFF08C90001FE0F924D5AFE14FCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +711,8 @@ magnet:?xt=urn:btih:0D8BF9CF8D81EFF08C90001FE0F924D5AFE14FCC
 ```bash
 magnet:?xt=urn:btih:66163556EB990744FF0918EE7AF1D172A1EE0236
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

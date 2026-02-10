@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:207B1B60163C5C3748E5B9242A90B825C8DEC220
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ House Party (2017) [Ru/Multi] (1.4.0.13093/dlc) Repack Other s [18+]
 ```bash
 magnet:?xt=urn:btih:876EDF6501609A3A8CB4D68CD7D4C96CD7D66D8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Rosewater (2025) [Multi] (1.00.1) Repack FitGirl
 magnet:?xt=urn:btih:3FE3CB5AB78F6D72F27C13D45FADB542234F91A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:3FE3CB5AB78F6D72F27C13D45FADB542234F91A5
 ```bash
 magnet:?xt=urn:btih:608510A69452BAB89760477A329CECBCEE2F894F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ RustDesk Remote Desktop – программное обеспечение для
 magnet:?xt=urn:btih:8FC59E5B340B574C12D2569B7CCA5F594866FEBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:8FC59E5B340B574C12D2569B7CCA5F594866FEBD
 magnet:?xt=urn:btih:188A56858BEE225E7979A63AF4B94FEC19ED4887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:188A56858BEE225E7979A63AF4B94FEC19ED4887
 ```bash
 magnet:?xt=urn:btih:0E48D545E378353416FFE6CCD2F48421F9F591D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ CD-1 (42:51)
 magnet:?xt=urn:btih:3A0BDBB5480F0ADADC367CD76B2E444F63CD6611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Flintlock The Siege of Dawn (2024) [Ru/Multi] (1.1.72-268413/dlc) Repack Let'sР
 ```bash
 magnet:?xt=urn:btih:52FEF628585050A5810593CA64143A4BC4993BD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ After Effects — это ведущая в отрасли программа д�
 magnet:?xt=urn:btih:A8FCD9B945CB8719782C51EBE71BD839A6D7A307
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Adobe Premiere Pro 2025 - профессиональная программа д
 ```bash
 magnet:?xt=urn:btih:9F85E524C4A14706772902F0D6FB0A1CDC99EAA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:9F85E524C4A14706772902F0D6FB0A1CDC99EAA8
 magnet:?xt=urn:btih:DA2FBFB4663586BC1980137260B66DED8846DBEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:B9C0F0AE9B98C6F2B49B2C5AB8146780A3EC4AF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Taнцы нa льдy — coвceм нe тo, к чeмy cтpeмилcя Цyкaca Aк
 magnet:?xt=urn:btih:040DCBBF08AD04DA186C98EEF68036D4512A9C97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Opera One 117.0.5408.197 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AA0E56077793E69A3BF1D09DAC11DAA5B03C8871
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:AA0E56077793E69A3BF1D09DAC11DAA5B03C8871
 magnet:?xt=urn:btih:D6991797DEC8C4D9676205123FA17D53E68D8FFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:5A13E77BFF6ED388F4D8F5E339CCB0A7C4875629
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Ameku Takao no Suiri Karte / Ameku Takao's Detective Karte / Детективн�
 magnet:?xt=urn:btih:A9584D6944EA6892C89FAC83EED5056A2450FF2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Duplicate Cleaner - мощный и профессиональный инстр�
 ```bash
 magnet:?xt=urn:btih:087927317E6F8AD8C9CFB4B407DB9BDCD50CA641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:087927317E6F8AD8C9CFB4B407DB9BDCD50CA641
 magnet:?xt=urn:btih:69480E594C35C917C63D6E404FB484EEF6F6EC91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:69480E594C35C917C63D6E404FB484EEF6F6EC91
 ```bash
 magnet:?xt=urn:btih:CAABFB825336D411E3D4115950FA9EF78D7C53E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Tropico 6 (2019) [Ru/Multi] (23/dlc) Repack Let'sРlay [El Prez Edition]
 magnet:?xt=urn:btih:E5FC987F099ED81CD52A8024AB2591AAFF24944B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Lurking Danger (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:288A0F75FFCDE4F200094D87B342A97F1671ED17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Battle Brothers — это пошаговая тактическая ролев�
 ```bash
 magnet:?xt=urn:btih:5D19A57C95FCB759DB5A94F182E965E619D14767
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:5D19A57C95FCB759DB5A94F182E965E619D14767
 magnet:?xt=urn:btih:53849A42860742888792885F09CA3100D152DEBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Hana wa Saku, Shura no Gotoku / Flower and Asura / Цветок, распуск�
 ```bash
 magnet:?xt=urn:btih:3B13F64ED5372ABF15096FA645ADA037314EC095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

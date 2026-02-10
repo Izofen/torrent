@@ -22,6 +22,8 @@ VA - Bedtime Stories, Vol. 1 (A One Night Lounge Affair) (2021) [AAC|~310 Kbps] 
 magnet:?xt=urn:btih:55271DEA8DF1F87E89C7016C3AA83646430DB134
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ ABBYY FineReader PDF 16.0.14.7295 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6C751EDEB508DE3EAE0A7909E068482EB09AC129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Multiboot Collection Full v.5.3 [Ru/En]
 magnet:?xt=urn:btih:EA814D3886C1487C9A6C6009D6DD474FE503C384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:EA814D3886C1487C9A6C6009D6DD474FE503C384
 ```bash
 magnet:?xt=urn:btih:42D4D264E1C6D6C849F6FBA97CC91AA14186D30E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ VA - German Top 100 Single Charts 03.12.2021 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:11ADAF68E0C42278014CC7D088D9C79428186C83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Joe Lynn Turner - Belly Of The Beast (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 magnet:?xt=urn:btih:6747326A48FD6445900E0206823832204193B875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:6747326A48FD6445900E0206823832204193B875
 ```bash
 magnet:?xt=urn:btih:566F35A552A21932BE73C2CD9B32C7F1F6810128
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:566F35A552A21932BE73C2CD9B32C7F1F6810128
 magnet:?xt=urn:btih:2EE85E444ECBBDC2B09FA8BC4B2A9C3639CF3928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Assassin's Creed: Origins / Assassin's Creed: Истоки (2017) [Ru/En] (1.51/
 ```bash
 magnet:?xt=urn:btih:2C67466363652788A3CA6A84995F67E8219B68A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Galaxy Angel | Галактические ангелы [ТВ-1] [2001, TV, 24 э
 ```bash
 magnet:?xt=urn:btih:3642943F8BF8506680F5526EE8EF4C2BA58A9A5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:3642943F8BF8506680F5526EE8EF4C2BA58A9A5F
 magnet:?xt=urn:btih:DEE8243AEBF1B835A14BF0D639B85F88BE672725
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:DEE8243AEBF1B835A14BF0D639B85F88BE672725
 ```bash
 magnet:?xt=urn:btih:4EA42E66BFA3B63D28B7FEC4F413E7B670452E29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:4EA42E66BFA3B63D28B7FEC4F413E7B670452E29
 magnet:?xt=urn:btih:B8B9B4CEEA756E7DF17B62A248DB7DE9A57AE83B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:B8B9B4CEEA756E7DF17B62A248DB7DE9A57AE83B
 magnet:?xt=urn:btih:E9FC183A7A9E2F021CA27A49D8BBCDD3BFA22AF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:E9FC183A7A9E2F021CA27A49D8BBCDD3BFA22AF8
 ```bash
 magnet:?xt=urn:btih:5B0C0538FEFAC16939B87EC898169E28ACADEAA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ Fear Factory - Recoded (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Industrial Metal>
 magnet:?xt=urn:btih:AD65E0BA9F945558752FC4B2EA3598318323273A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ David Knopfler - Shooting for the Moon (2021) [FLAC|Lossless|WEB-DL|tracks] <Sof
 magnet:?xt=urn:btih:F5786E1D326900B2CC2301C4B7B713EF96ADDC4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:F5786E1D326900B2CC2301C4B7B713EF96ADDC4F
 ```bash
 magnet:?xt=urn:btih:8327341F025CD84E744A11BF662320201E6C2409
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ Discovery. Долгий путь вокруг Земли / Long Way Round (2004)
 magnet:?xt=urn:btih:7CE586901B0B79A13038688579F91BBC3D584E69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:7CE586901B0B79A13038688579F91BBC3D584E69
 ```bash
 magnet:?xt=urn:btih:858A3AA7F1CB9FB4F14BC21589DA52037017622E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ MultiBoot HDD 2019 22.09.2019 [Ru]
 magnet:?xt=urn:btih:D0FE404DBBBE83BEED06348C86DF1659BF6AC48B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:D0FE404DBBBE83BEED06348C86DF1659BF6AC48B
 magnet:?xt=urn:btih:16F48A7C52476C03CC35D484371F92220541ABBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:16F48A7C52476C03CC35D484371F92220541ABBD
 ```bash
 magnet:?xt=urn:btih:6434634B9D8AB2B74CB4AE02AB358AD2BDE4786E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ Sodom - 40 Years at War - The Greatest Hell of Sodom (2022) [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:CCB671EC25B60A61F58384D11D850E36463FD725
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:CCB671EC25B60A61F58384D11D850E36463FD725
 magnet:?xt=urn:btih:876F2F96C8315C9B6ADB05C30511BFDD8D1CED16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:876F2F96C8315C9B6ADB05C30511BFDD8D1CED16
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

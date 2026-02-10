@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:EC525F001F7F3B2A6FAFA3A469596AADBFFFC7D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:EC525F001F7F3B2A6FAFA3A469596AADBFFFC7D8
 ```bash
 magnet:?xt=urn:btih:8DD176CDAF952D68B87B55262B0ED8038710B761
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:8DD176CDAF952D68B87B55262B0ED8038710B761
 magnet:?xt=urn:btih:55E780299A29FBC08A67D499B53BE01651088B4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:55E780299A29FBC08A67D499B53BE01651088B4B
 ```bash
 magnet:?xt=urn:btih:CE436434F250D2D3AD62F200C489655889C93964
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Adobe Photoshop CC — многофункциональный графическ
 magnet:?xt=urn:btih:052662FBD393F82E2004A4288059BF8FBFEB76B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:052662FBD393F82E2004A4288059BF8FBFEB76B7
 ```bash
 magnet:?xt=urn:btih:D59FB8B6286D19D5339641087B6C31702CC066C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Borderlands Game of the Year Enhanced (2019) [Ru] (1.5.0/dlc) Repack Other s
 magnet:?xt=urn:btih:826F81DC86EF0750336D7755A5F0A7212C1636F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ TeamViewer 14.7.1965 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:82708375DBE14E7FE10098107976C9EE28F23093
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Crusher Joe | Крушила Джо [1983, Movie] BDRip 720p raw+rus
 magnet:?xt=urn:btih:61D2C9DD07935F5BB89345C01B17642ACFFF2A05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:61D2C9DD07935F5BB89345C01B17642ACFFF2A05
 ```bash
 magnet:?xt=urn:btih:25EB305C4974680F0CC62511A28968E362AEF84D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:25EB305C4974680F0CC62511A28968E362AEF84D
 magnet:?xt=urn:btih:DD8C1C92319909DEFF52D37A0B6A3D9296C9F549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:DD8C1C92319909DEFF52D37A0B6A3D9296C9F549
 ```bash
 magnet:?xt=urn:btih:6399532CE6540716F4CB0A47A4A3C492D230749E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Tor Browser Bundle 9.0 Final [Ru/En]
 magnet:?xt=urn:btih:B6FB5BE2A6013998B5478B129454804BA7F45CF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Lucky Day / Киллер по вызову (2019) WEB-DL [H.264/720p-LQ]  [VO]
 ```bash
 magnet:?xt=urn:btih:FCC7667710FC20EDF4EFB6CCEE70B6F7109A81F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:FCC7667710FC20EDF4EFB6CCEE70B6F7109A81F1
 magnet:?xt=urn:btih:D8E8E86B42EEAB5E9A2DD3D14170762B90C4938F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:D8E8E86B42EEAB5E9A2DD3D14170762B90C4938F
 ```bash
 magnet:?xt=urn:btih:F781E97A2494BC33A9B17ADC5FCA6E36E0E794D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:F781E97A2494BC33A9B17ADC5FCA6E36E0E794D2
 magnet:?xt=urn:btih:5A799A9D35D5E070A0036BE31D006D2AA6FDCB53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:5A799A9D35D5E070A0036BE31D006D2AA6FDCB53
 ```bash
 magnet:?xt=urn:btih:936C9C805F5B30272D3770D35CF5BDFA4B4F8908
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:936C9C805F5B30272D3770D35CF5BDFA4B4F8908
 magnet:?xt=urn:btih:FDC344D71B0A3007E0C0C3005C20EEAB5AF2CE40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:FDC344D71B0A3007E0C0C3005C20EEAB5AF2CE40
 ```bash
 magnet:?xt=urn:btih:1B6482E054D34A1472D0C8B931D8CAE84F105E7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:1B6482E054D34A1472D0C8B931D8CAE84F105E7F
 magnet:?xt=urn:btih:FB7872341B1F0E816E46A33B40C3E1785D631BF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:FB7872341B1F0E816E46A33B40C3E1785D631BF9
 ```bash
 magnet:?xt=urn:btih:7C29F9D521B2D949F6702C6D53443951113A00EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Agony – это приключенческий хоррор c видом от �
 magnet:?xt=urn:btih:6CFBBF1EADAF4E9904046A7BD0A785279E618E6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:6CFBBF1EADAF4E9904046A7BD0A785279E618E6F
 ```bash
 magnet:?xt=urn:btih:0D257A316F952AB1A1C4BF3DA5A9F7A47BC7915D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:0D257A316F952AB1A1C4BF3DA5A9F7A47BC7915D
 magnet:?xt=urn:btih:C2DA1E57859BE749DF3F77A9689E301D0E18235B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:C2DA1E57859BE749DF3F77A9689E301D0E18235B
 ```bash
 magnet:?xt=urn:btih:E3A92EB5CC09F6E4B489E3F43AE3F33712955DB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

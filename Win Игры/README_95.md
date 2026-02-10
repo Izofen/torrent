@@ -19,6 +19,8 @@ Spinch (2020) [Ru/Multi] (1.1) License GOG
 magnet:?xt=urn:btih:8BB60A44965393A85F6F398DD322695AD83D4D78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Songs of Silence погружает игроков в фантастически
 ```bash
 magnet:?xt=urn:btih:0807D6281E6C54D78CBEBDB989531A49A662DF54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Beneath Oresa (2022) [Ru/Multi] (1.1.5) Repack Let'sРlay
 magnet:?xt=urn:btih:AE467D1A1E77839781E6317B1D96D4A68F513738
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Amnesia A Machine for Pigs (2013) [Ru/Multi] (1.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:BF32DA679921CE7925A8746078A700FDACBB10CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Gym Nights (2024) [Ru/En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:87D4C222C1055A76CD72BAB505A2F354FBC86D82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 ```bash
 magnet:?xt=urn:btih:B9569028EAE9CD97C16FFB1CE67E176BDE31FAB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Amnesia: The Bunker — хоррор от 1-го лица, действие ко
 magnet:?xt=urn:btih:863D8032B28B0094062E2E194714D2EF668567FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Soulbind: Tales Of The Underworld - экшн-платформер, которы�
 ```bash
 magnet:?xt=urn:btih:37AF03555550D12C5B6CDCF12A8F507AC09C96D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Amnesia Rebirth (2020) [Ru/Multi] (1.40) Repack Let'sРlay
 magnet:?xt=urn:btih:DB3CA1CE21CABEB9253EEF047F9FD207D7F05866
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Plants vs. Zombies / Растения против Зомби (2009) [Ru] (1.2.0
 ```bash
 magnet:?xt=urn:btih:3E6CA95221A64505D18D5A7DB828FF011C9D4B24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (1.02.118358) Repack DjDI [Soundtrac
 magnet:?xt=urn:btih:CFB810B49542A09776A75538C556358AC48226FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Microtopia (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1CFB1106088ED40F2634C2A270E7E5FA01D74C8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Spirit of the Samurai - двухмерная игра в жанре sous-lik
 magnet:?xt=urn:btih:957D7329A227C9E550F10529110D0515CAF93E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Headquarters: World War 2, увлекательная пошаговая стр�
 ```bash
 magnet:?xt=urn:btih:5797494F1C69A63F63E29E2CB890ABAFD362A6CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (build 17370633) Repack seleZen
 magnet:?xt=urn:btih:28DBBEE1CDC28CE65A67CCCE6723ECEEBBC7A595
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Ranch Simulator - Build, Farm, Hunt (2023) [Ru/Multi] (1.152s/dlc) Repack FitGir
 ```bash
 magnet:?xt=urn:btih:938C1104DBDFF51DBB05D7C7C0AFEBDE95B02CDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (1.02.118358) Scene FAiRLiGHT
 magnet:?xt=urn:btih:AF0B17DAB1145858B197CD6F46293F5029B5B808
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ NINJA GAIDEN 2 Black (2025) [Ru/Multi] (1.0.7.0) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:AF1ADB64280A4F949BC56656E31E2D5C3501FDDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Galactic Simulator - это игра-кликер, основанная на п�
 magnet:?xt=urn:btih:DA54D0D83D9C3318D2EC1F2CCC2613D562C0C59A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Silent Hunter 5: Battle of the Atlantic (2010) [Ru] (1.2.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:F617D7ABDF4D447AFBE94DAC8D63BF314FF3C973
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Vertical Kingdom (2024) [Multi] (1.0.1) License GOG
 magnet:?xt=urn:btih:C5711D5FCFFADF28D6187DAD79B13820946A07AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Castle Crashers - двумерный платформер от студии Behe
 ```bash
 magnet:?xt=urn:btih:CFAC107121B88DCF2D7F18F222D394F67DD17710
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Bloomtown: A Different Story - это сюжетная JRPG про Америк�
 magnet:?xt=urn:btih:EF8E2E94675E8BD8B2ECB1EB6FB6DCB880A6034A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Supermarket Simulator (2024) [Ru/Multi] (0.6) Repack seleZen [Early Access]
 ```bash
 magnet:?xt=urn:btih:127E8B6866FB1F772FBF2640558AB43969AA57DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Commando Hero 2: First Blood (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:E3E42BEB6C4C2DE7A36408D6C067CAF13379F11C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ magnet:?xt=urn:btih:E3E42BEB6C4C2DE7A36408D6C067CAF13379F11C
 ```bash
 magnet:?xt=urn:btih:94E686355B84B0D754384CD17900A8F6500D6A94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

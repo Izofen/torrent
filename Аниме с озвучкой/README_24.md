@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:7017435D09FFFA53C2914D4DE89ABE722E82CE9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:7017435D09FFFA53C2914D4DE89ABE722E82CE9B
 magnet:?xt=urn:btih:AB069974142B0CEF63289D8A33D41D9497CEC0B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:AB069974142B0CEF63289D8A33D41D9497CEC0B7
 ```bash
 magnet:?xt=urn:btih:F81EFD2905B791A06D6BB9B071A720252F364BCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Kanojo mo Kanojo | Girlfriend, Girlfriend | Мои девушки [2021, TV, 12]
 magnet:?xt=urn:btih:2E0090461C51918B449DAF8B06706BE1D1B908AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Baoh Raihousha | Baoh the Visitor | Бао: Посетитель [1989, OVA] DVD
 magnet:?xt=urn:btih:CD07CF6DE90F6F8817C115B494135AB2BBB5B749
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Techno Police 21C | Технополиция XXI века [1982, Movie] BDRip  H
 ```bash
 magnet:?xt=urn:btih:93D03D439FF058EFAA9D960C7B7209DCC9C66A0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Otonari no Tenshi-sama ni Itsunomanika Dame Ningen ni Sareteita Ken | The Angel 
 magnet:?xt=urn:btih:D94A0C7D10C46A0B36622480746AA13A02ABE4DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Violence Jack: Jigoku Gai | Violence Jack: Evil Town | Жестокий Джек
 magnet:?xt=urn:btih:EDFF6386F5BD423C5D1DFE57A459F5C3A5079EAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Violence Jack: Harem Bomber Hen | Violence Jack: Slum King | Жестокий Д
 ```bash
 magnet:?xt=urn:btih:3FF48D9906130E6E21B9F4D71F594F75571959B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:3FF48D9906130E6E21B9F4D71F594F75571959B3
 magnet:?xt=urn:btih:716FA4AA4B2EDCC429F885A8119B5F450539E57F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Cyber City Oedo 808 | Кибер-город Эдо 808 [1990, OVA, 3 из 3] BDR
 ```bash
 magnet:?xt=urn:btih:70F73E75CF1A84703D7781E6B72149A529AA0E20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:70F73E75CF1A84703D7781E6B72149A529AA0E20
 magnet:?xt=urn:btih:45DAF45C43E5A9231B7A5DFB0BFF64F574DD3DE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Riding Bean | Боб на колесах [1989, OVA] BDRip 1080p HEVC 10-bit rus
 ```bash
 magnet:?xt=urn:btih:89BC5F0789168E9EC63766E59D59A489C36EF6E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Gigigoegoe seonghyeongsu | Beauty Water | Эликсир красоты [2020, M
 magnet:?xt=urn:btih:11D88F762084D1D7149CED134371401988141F03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ Shin no Nakama ja Nai to Yuusha no Party o Oidasareta node, Henkyou de Slow Life
 ```bash
 magnet:?xt=urn:btih:3869F8A4C752F422A5604F8F9451822F70078DBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ Shijou Saikyou no Daimaou, Murabito A ni Tensei Suru | The Greatest Demon Lord I
 magnet:?xt=urn:btih:FFDCD2F6928FBBDB5927265C011E01E283B49453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ Project A-ko 2: Daitokuji Zaibatsu no Inbou | Project A-Ko 2: Plot of the Daitok
 ```bash
 magnet:?xt=urn:btih:F9188233C70E803B6274105BADB77F430201DE72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ Project A-ko | Проект А-ко [1986, Movie] BDRip 1080p HEVC 10-bit raw+ru
 magnet:?xt=urn:btih:A0462D4D05778599C87D3B936ADAC0BEE901E69B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Armitage III | Армитаж III [1995, OVA, 4 из 4] BDRip 1080p HEVC 10-bit 
 ```bash
 magnet:?xt=urn:btih:A556BB4C2CB317126342C8400EB81F8B5F327BC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:A556BB4C2CB317126342C8400EB81F8B5F327BC1
 magnet:?xt=urn:btih:F357C911A91B73A42E46F62277918B2223B8E4CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ Armitage III: Poly Matrix | Армитаж: Полиматрица [1996, Movie]
 ```bash
 magnet:?xt=urn:btih:5492E97C86D5ECF3190335757109BDD040AA7D7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ Uma Musume: Pretty Derby | Девушки-лошадки: Милое дерби 
 magnet:?xt=urn:btih:4A4754A601006FDDC2AB1E5C1857B86E304EE15F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ Roujin Z | Старик Зет [1991, Movie] HDRip HEVC 1080p rus
 ```bash
 magnet:?xt=urn:btih:5100F8B86BC8D7132E908FB6ADD2E0581BADE9D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:5100F8B86BC8D7132E908FB6ADD2E0581BADE9D8
 magnet:?xt=urn:btih:81D28D83FC966988A05E5A8172E9644BFC609FA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ Kimetsu no Yaiba: Yuukaku Hen | Demon Slayer: Entertainment District Arc | Ис�
 magnet:?xt=urn:btih:C4BAB592FB86CCB6AB16A0A1E9F1D3BD443B3CEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Yofukashi no Uta | Call of the Night | Песнь ночных сов [2022, TV,
 ```bash
 magnet:?xt=urn:btih:26E5E33E293782FC39274B3D05285F3052696B17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

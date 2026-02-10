@@ -19,6 +19,8 @@ Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (20
 magnet:?xt=urn:btih:FDD9FC32FB5B630ADE2746AD341E375F6AC2E33A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Emergency 3 - Mission: Life / Emergency 3. Служба спасения 911 (20
 ```bash
 magnet:?xt=urn:btih:079327D0E923949246A18D3DE6232706FF358D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ RAILGRADE (2023) [Ru/Multi] (7.3.63.1) Repack FitGirl
 magnet:?xt=urn:btih:6A7FA09C2A751E7D9BDB69B7AE56E79B9906BA44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Terra Nil – градостроительный симулятор-песочн
 ```bash
 magnet:?xt=urn:btih:AC49F57FCF26B9ACE62C723F9F1AADAA03BD7888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Deck of Haunts (2025) [Ru/Multi] (1.16) Scene Tenoke
 magnet:?xt=urn:btih:0E1C2632262A74486589245B46CAAF5E6703D76D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Mars Base (2022) [Multi] (1.107) License GOG
 ```bash
 magnet:?xt=urn:btih:AF6A8FFCF036291F133B2ACCE3BF3CCED9CFBECF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ dotAGE - игра, где вы будете пошагово управлять 
 magnet:?xt=urn:btih:B6BA08FA91C972DC99EC2DB41E63A9CC2606D55B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Power & Revolution (2023) [Ru/Multi] (6.94/dlc) Repack FitGirl [2023 Edition]
 ```bash
 magnet:?xt=urn:btih:8976756C66C1291438FEC50B9660211ED1B09FB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Against the Storm - это игра c элементами roguelite и стро
 magnet:?xt=urn:btih:25B5CF1417287F150DF98F4F0A14B430FA789589
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Railway Empire 2 (2023) [Ru/Multi] (1.7.2.64310/dlc) Repack Let'sРlay [Deluxe E
 ```bash
 magnet:?xt=urn:btih:BF01DFD646BEC8EC42CADE74152D82489F8452F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Ratopia - это оригинальная стратегия, которая б�
 magnet:?xt=urn:btih:ADA6FBFBC74FD281EDE4A7773F3598D94DA4FD84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Endzone 2 бросает вас в самую гущу постапокалип�
 ```bash
 magnet:?xt=urn:btih:18190D1655257DE191E4250046B3D594B07F5530
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dungeons 4 - это фэнтезийная стратегия в реально�
 magnet:?xt=urn:btih:5A17B19EBE555F22A794FFC90A5817EFA8A324F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Dungeons 4 (2023) [Ru/Multi] (1.9.1/dlc) Repack Let'sРlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:1B6815E5198D5589E2DA8812B4892DDEE73B4335
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Reus 2 выделяется своей уникальностью и увлек�
 magnet:?xt=urn:btih:04E192082B1A982638F9D782020A6A6D1D2D2EEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Kaizen: A Factory Story (2025) [Ru/Multi] (1.0.0.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:16C11A21732D3C5C440DC9620F9F0068B62F18D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ ISLANDERS: New Shores (2025) [Ru/Multi] (Build #4ccdb730/dlc) Repack FitGirl [Th
 magnet:?xt=urn:btih:7108BA331252E2F179D57F5E82ED27632B726C91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Railway Empire 2 (2023) [Ru/Multi] (64144 114/dlc) License GOG [Digital Deluxe E
 ```bash
 magnet:?xt=urn:btih:F25D5BA8C1879BB0218FBB9EDBACF212FE0BC25A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Blood Bowl III (3) (2023) [Ru/Multi] (Build 52126/dlc) Repack FitGirl [Brutal Ed
 magnet:?xt=urn:btih:31C803359C83537E3447E47D79460F23D8890A29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Kainga: Seeds of Civilization (2022) [Multi] (1.2.21) License GOG
 ```bash
 magnet:?xt=urn:btih:47046E6E05B2335F2146359614CB174605382957
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Post-Apo Builder показывает постапокалиптический �
 magnet:?xt=urn:btih:F51B38B6E315A17C7885766F7C7DA97E230BFBFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Dungeons 4 - это фэнтезийная стратегия в реально�
 ```bash
 magnet:?xt=urn:btih:471C0BA83C64A2924E516C2B7B91B8E6A65410FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Dungeons 4 - это фэнтезийная стратегия в реально�
 magnet:?xt=urn:btih:B3999851C444F1DF04F18C1E22ACEEC9BF3EC8BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Deathless. Tales of Old Rus / Бессмертный. Сказки Старой 
 ```bash
 magnet:?xt=urn:btih:F545846F18D9430A038D4EF0BB42D8C1FC87119F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Railway Empire 2 (2023) [Ru/Multi] (1.7.0.64099/dlc) Repack seleZen [Digital Del
 magnet:?xt=urn:btih:BBA660C83F18D0E7AB4C14EBA7596377DD41436E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Kingdom Two Crowns является новым этапом развития э�
 ```bash
 magnet:?xt=urn:btih:9BF2924326BEE1EB94E9C7895093ABD53A446461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

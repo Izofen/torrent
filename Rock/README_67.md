@@ -22,6 +22,8 @@ Forgotten Suns - When Worlds Collide (2015) [MP3|320 кб/с]<Progressive Rock, 
 magnet:?xt=urn:btih:08008CABEA95E147115D5CB2A3BBB294D1073DA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Gnod - Infinity Machines (2015) [MP3|320 кб/с]<Psychedelic Rock>
 ```bash
 magnet:?xt=urn:btih:4DD3B6976F8979E461A3EBE44A1F9FED416E611C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ No More Pain - Debate And Rhyme (2012) [MP3|320 кб/с]<Heavy/Crossover Prog>
 magnet:?xt=urn:btih:DA54C6FAFFDD6EB0A43FE50B6CDDA6E9C403FEE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ The Sideshow Tragedy - Capital (2015) [MP3|320 кб/с]<Blues Rock, Garage>
 ```bash
 magnet:?xt=urn:btih:68C290BD9E86777AADA0B3BD592F2A15433A6A1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -134,6 +142,8 @@ Low-Pass - Trimurti (2012) [MP3|192 кб/с]<Instrumental Math Rock / Post-Rock>
 magnet:?xt=urn:btih:F48D64BD5DE772DBEC01B3CCE727A867B1243A7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -161,6 +171,8 @@ Herba D'Hameli - Interiors (2015) [MP3|320 кб/с]<Progressive Rock, Symphonic 
 magnet:?xt=urn:btih:AAC52CB0D72CD2FD16DA0D6EC24754DF5D3E1DDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +198,8 @@ Colaars - Wood Arsenal (EP) (2012) [MP3|320 кб/с]<Math Dance Indie Rock>
 ```bash
 magnet:?xt=urn:btih:B3311940A4586C40F5AF47DBC5990DBD82713B9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +228,8 @@ Jeff Beck - Performing This Week... Live At Ronnie Scott's (2015) Deluxe Edition
 magnet:?xt=urn:btih:1A8FFFF970FA091FAC1B3ED62E10C38057C7335E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +257,8 @@ Jimmy LaFave - The Night Tribe (2015) [MP3|320 кб/с]<Rock, Folk, Americana>
 magnet:?xt=urn:btih:DFF818641818E4D59E587841702A6869CB9B7690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +285,8 @@ MacIntyre - Live At The Moontower (2015) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:4B895DBA65DCFC6D806F520A574405B4FD25BAE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +321,8 @@ Panic Room - Skin (2012) [MP3|320 кб/с]<Progressive Rock>
 magnet:?xt=urn:btih:F2FDF4A297E593928950146BDAD12AF67FCF43F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +349,8 @@ Lindsey Buckingham & Christine McVie - Lindsey Buckingham & Christine McVie (201
 ```bash
 magnet:?xt=urn:btih:DF89A8AC963985750CF2A8A7980D457A3DDEA1F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +379,8 @@ Can - Delay 1968 (1981) Reissue, 1989, Spoon Records [MP3|320 Kbps] <Heavy Psych
 magnet:?xt=urn:btih:C13DF33543A4B5C3D3311B399720EEDA14B187E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +407,8 @@ BrainStorm - 7 Steps Of Fresh Air (2015) [MP3|320 кб/с]<Brit-pop, pop-rock>
 ```bash
 magnet:?xt=urn:btih:2DBFF61DAA93B8A815C121C35C474C4E12E3BFEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +437,8 @@ Recorded At Chess Studio Chicago, USA, 2120 South Michigan Avenue, 10/11 June 19
 magnet:?xt=urn:btih:B7359DA86668755BCAC584E950CCF0F21154A107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +465,8 @@ Indigo Girls - One Lost Day (2015) [MP3|320 кб/с]<Folk Rock>
 ```bash
 magnet:?xt=urn:btih:834305CE677EF531EA3A68251D6DA07204EF7BFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +496,8 @@ Fool's Garden (Fools Garden) - 12 Альбомов, 22 Сингла (1993-2021) 
 magnet:?xt=urn:btih:9D631FB7C173FC07D9FEAE66F9DA25E7F675197F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +524,8 @@ Phoenician - Last Orders (2017) [MP3|320 Kbps] <Stoner Rock>
 ```bash
 magnet:?xt=urn:btih:B26B44D07F77FFF24F6095F4975BE036F9885DA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +554,8 @@ Sting - Digitally Remastered (1998) Promo CD [MP3|320 кб/с]<Rock>
 magnet:?xt=urn:btih:B2C2226B21B635683FEC5D343DEADF20B973C898
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +582,8 @@ The Flies - Complete Collection 1965-1968 (2001) [FLAC|Lossless]<Garage Rock, Ps
 ```bash
 magnet:?xt=urn:btih:89310CDDF6AE3CCBF3036BD4EF63722E9A60EC12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +612,8 @@ Paice Ashton Lord - Malice In Wonderland (1976) Remastered, 2001, Purple Records
 magnet:?xt=urn:btih:AE53B58898FFE5E5840E37E699AEF847687C14F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +640,8 @@ It's a Beautiful Day - It's a Beautiful Day (1969) Reissue [MP3|320 Kbps] <Psych
 ```bash
 magnet:?xt=urn:btih:4C1C148A6BDF6830C3BA543020069F83CFA7240A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +670,8 @@ Breaking Orbit - Transcension (2015) [MP3|320 кб/с]<Alternative / Progressive
 magnet:?xt=urn:btih:07C1ABBDD26A49D5884935EB312F7FCAD6965755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +699,8 @@ magnet:?xt=urn:btih:07C1ABBDD26A49D5884935EB312F7FCAD6965755
 magnet:?xt=urn:btih:52595FE27775DF074275786C610AD083C74F25D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +726,8 @@ John Lennon - Icon (2015) [MP3|320 кб/с]<Classic Rock>
 ```bash
 magnet:?xt=urn:btih:DA34E975E215ED6DAD6509658D7B9D4176EC08A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -705,6 +755,8 @@ Roger Waters - Is This the Life We Really Want? (2017) [MP3|320 Kbps] <Progressi
 ```bash
 magnet:?xt=urn:btih:3DD7547F487ADBD1C23A05F425CD2694A926C8CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

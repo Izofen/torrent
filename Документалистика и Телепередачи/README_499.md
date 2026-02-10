@@ -1,3 +1,29 @@
+###  Публикация: 1028214   (690870) от 22.06.2016
+
+История криминалистики (2014) WEB-DL [H.264/720p] (серии 1-6 из 6)
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эксклюзивный цикл документальных драм, состоящий из 6 эпизодов. Он расскажет зрителям о том, как при помощи криминалистики раскрывались самые резонансные преступления: взрыв на улице Сен-Жермен в Париже, смерть Владимира Маяковского, похищение "Джоконды" Леонардо да Винчи и многие другие. В современном мире ежедневно совершается множество преступлений, (   Читать дальше...   )Телекомпания: Украина, FILM.UA, Signal RedЖанр: Документальный, история, реконструкцияРежиссер: Вера ЯковенкоПродолжительность: 6 x ~ 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2887D37B966E2FA029A395ECD8030B4A0DCDA55B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133999   (690887) от 14.05.2017
 
 Лучший аквариум для релаксации / The Best Aquarium for Relaxation (2017) WEB-DLRip [H.264/1080p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:407E85B679B2FA974ED83823A8D2A4A1F86B4E98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:407E85B679B2FA974ED83823A8D2A4A1F86B4E98
 ```bash
 magnet:?xt=urn:btih:A03AE13308B883CF6F7DF2608D184C261A02B821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:A03AE13308B883CF6F7DF2608D184C261A02B821
 magnet:?xt=urn:btih:6540C093B0647DED50C2C89C79D270A0B26A5B76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:6540C093B0647DED50C2C89C79D270A0B26A5B76
 ```bash
 magnet:?xt=urn:btih:1016D55BEB3C919961544A83899F900608B71E03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:1016D55BEB3C919961544A83899F900608B71E03
 magnet:?xt=urn:btih:8AA0D01BBEC82219825EC503DA06B66039822A2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:8AA0D01BBEC82219825EC503DA06B66039822A2F
 ```bash
 magnet:?xt=urn:btih:FE2286DF5380D9599D25EAF54AE67A029817287A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:FE2286DF5380D9599D25EAF54AE67A029817287A
 magnet:?xt=urn:btih:68B95B448D3A93650140E2704B570948FC3DB59F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:68B95B448D3A93650140E2704B570948FC3DB59F
 ```bash
 magnet:?xt=urn:btih:F6530D6289D94A8C631970F7EB0656251F2361A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:F6530D6289D94A8C631970F7EB0656251F2361A1
 magnet:?xt=urn:btih:FB2FDF0DA3F765260E251AF7D3AFB3D063D235C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:FB2FDF0DA3F765260E251AF7D3AFB3D063D235C4
 magnet:?xt=urn:btih:FB8BFFE921DE95CB37E408C45725178132D6BEBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:FB8BFFE921DE95CB37E408C45725178132D6BEBD
 ```bash
 magnet:?xt=urn:btih:215149C4757C4154BC3EB470FB3ABD030DAAF711
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:215149C4757C4154BC3EB470FB3ABD030DAAF711
 magnet:?xt=urn:btih:6E662BED1C1D2836A64FD76FE71249FDFDA5D884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:6E662BED1C1D2836A64FD76FE71249FDFDA5D884
 ```bash
 magnet:?xt=urn:btih:594C29B77DDDD3F370590874956C0E745E1377AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +393,8 @@ magnet:?xt=urn:btih:594C29B77DDDD3F370590874956C0E745E1377AC
 magnet:?xt=urn:btih:A958F4D05031A1EFA4DD026E3556FD10CD2DA4FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:A958F4D05031A1EFA4DD026E3556FD10CD2DA4FC
 magnet:?xt=urn:btih:A18141F50F7FA2B7E4B09F6AB761A1502A6AC4CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:A18141F50F7FA2B7E4B09F6AB761A1502A6AC4CC
 ```bash
 magnet:?xt=urn:btih:7059700EBEA91F76D467A17F12360FEB3E891494
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:7059700EBEA91F76D467A17F12360FEB3E891494
 magnet:?xt=urn:btih:9C4440C247B4B196F0EE4CF4F33D875DCB8D0864
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:9C4440C247B4B196F0EE4CF4F33D875DCB8D0864
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:9C4440C247B4B196F0EE4CF4F33D875DCB8D0864
 ```bash
 magnet:?xt=urn:btih:C9AD166FA9498701279E8C8DD937B64D8E3048AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:C9AD166FA9498701279E8C8DD937B64D8E3048AB
 magnet:?xt=urn:btih:78A0FBEF7FAB239DCF2FE3F718E9E0140C68F810
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:78A0FBEF7FAB239DCF2FE3F718E9E0140C68F810
 magnet:?xt=urn:btih:01319D67FAD68AF85E4DE748CD666FDB70C92321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:01319D67FAD68AF85E4DE748CD666FDB70C92321
 ```bash
 magnet:?xt=urn:btih:9BBCDF84C6B5140E8D6179B9A8D5FB7FF169FCD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:9BBCDF84C6B5140E8D6179B9A8D5FB7FF169FCD0
 magnet:?xt=urn:btih:132E570A7E78A4F8F83B526D00EB55BEB4F40D19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:132E570A7E78A4F8F83B526D00EB55BEB4F40D19
 ```bash
 magnet:?xt=urn:btih:89C8D6D3C72462B4A31AA40556C7F86527B47B98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:89C8D6D3C72462B4A31AA40556C7F86527B47B98
 magnet:?xt=urn:btih:6F6CC5870239267A57005D2EA243C76EDBF00145
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285404   (691614) от 13.03.2019
-
-Обитаемый остров / The Island Diaries (2016-2017) HDTV [H.264/1080i-LQ] (сезоны 1-2, серии 1-26 из 26)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_691614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Софи Фурон открывает жизнь на островах по всему миру. Она исследует её на воде, вдоль берега и в самых укромных уголках островов. Софи узнает у обитателей островов, какие трудности их подстерегают, что они едят, о ком заботятся, чем зарабатывают на жизнь и как они отдыхают.Производство: Канада, DBCom MediaЖанр: Документальный, природа, путешествияРежиссер: Николя БушеПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: серии x ~00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F6553145A038151059CCA57A655177101F992D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

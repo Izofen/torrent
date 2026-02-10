@@ -20,6 +20,8 @@ Curio – визуальный редактор для OS X с большими 
 magnet:?xt=urn:btih:4F9E1472DD3FC02ED992B582EAAACBC6E8AB2558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Touch Forms Pro - простой в использовании веб-разра
 ```bash
 magnet:?xt=urn:btih:EF8D3FB667F51FF604B14E539DFAD112677F684D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ MiniNote Pro — очень простое и удобное приложени�
 magnet:?xt=urn:btih:E489F1299294346E303616D159C651FDD1EB0B9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ ShredIt X отлично работает не только с локальны�
 magnet:?xt=urn:btih:CD268EACA8D28DC37395A2D67F855D05A8F4E766
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Logic Pro — самая совершенная версия Logic. Мощные
 magnet:?xt=urn:btih:3B58735BAFC14FB25BB1314C53E73B75F1B72C35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Debit & Credit - Учет финансов 2.5.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D9D8C01DF29A2F92953BFA9FE47F36C4744D52A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Framer позволяет создавать интерактивные аним
 magnet:?xt=urn:btih:352A29A22399E5EAA3CAD47DB747E111FBC647AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Dr. Cleaner Pro — это профессиональная версия Dr. Cle
 ```bash
 magnet:?xt=urn:btih:3F6F797BCA2E81A0D8E7A2222A4DF5754E960775
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Total Video Tools = Video Editor (Trim/Cut/Rotate/Merge/Extract…) + Screen/Voi
 magnet:?xt=urn:btih:8F76233880F38E8FAAD8537419613F0DC20841EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:8F76233880F38E8FAAD8537419613F0DC20841EC
 ```bash
 magnet:?xt=urn:btih:32A7F1962EA9C7D39CAF48D529F661FE652931E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ PDF Expert - это один из лучших инструментов для �
 magnet:?xt=urn:btih:55D65ECFB68788422473D90DC6EE756A81A9C14E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ Orion PDF Author - новый и простой способ создания и
 magnet:?xt=urn:btih:A87B1BD27BADB78A9155B58E28CAF775C75495D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ VoodooPad 5 v5.2.3 [Multi]
 ```bash
 magnet:?xt=urn:btih:BE6F05117B65B33AB7472128B17DAAEFE59C46D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ Split Screen является полностью настраиваемым пр
 magnet:?xt=urn:btih:96CAC950C4855AB504BE7B3AA5B50FD866A78ED9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ Cisdem WindowManager может разделить ваш экран на раз
 ```bash
 magnet:?xt=urn:btih:C7C4E3B279DD38A28DB5FE9272034CBEFEA8C196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ Cisdem PDF Creator представляет собой инструмент дл
 magnet:?xt=urn:btih:B47B9FFC8802B4872E40679523BD5BBD65C720B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ FoxTrot Professional Search утилита от компании CTM , в кот
 magnet:?xt=urn:btih:E8DE9C1160960BC9374424DB7B6B289560596DB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ Infographics 3.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:00B03A36FC49640B1825EAC77698DF71C26D49C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ Media Encoder CC. Универсальное приложение для обр�
 magnet:?xt=urn:btih:F1BD539250BDC1933BEFCA983B96DA9AC2E46060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ GraphicConverter 11 — полнофункциональный графичес�
 magnet:?xt=urn:btih:D467B3CDA4A0E736DEA9F7584A3E0591D7B425DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ CCleaner Pro 1.15.507 [En]
 ```bash
 magnet:?xt=urn:btih:7D0B251405FBBDD4AD18E2EF1CC3ED2895C2EF01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ Movavi Video Editor 15.4.1 [Multi/Ru]
 magnet:?xt=urn:btih:CD0C86E6C95EF9A86BEE639AD67C5144635AA523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ Diagrammix 2.15 (3013) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:91B9D6A8DD594AE2D221CF550FCE1D3841ADFA5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ DiskWarrior 4.2 Rev909 BootDVD (Alsoft)[English] (2009)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ iMovie c великолепным новым интерфейсом поможе
 magnet:?xt=urn:btih:957C639E35D032370D0570E6A474871EF18D0415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ Affinity Designer — самое быстрое, удобное и точное 
 ```bash
 magnet:?xt=urn:btih:878E38640388DA76BEF5000F88F9F3FBA6B37AEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

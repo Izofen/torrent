@@ -19,6 +19,8 @@ iGO R3 Here (NavTeq) Европа 2020.Q2 (.fbl, .fda, .fjw, .fjv (Russia), .fpa
 magnet:?xt=urn:btih:E5B668962E1324764C34B154B50B01E795B52A68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Advanced Download Manager and Torrent downloader v12.6.1 Pro Mod  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2D34332981432B7F07F83B6A7FEA510D44AE7A0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Garmin: Moldova Road Atlas & Topo 3D 2015.2 [Ru]
 magnet:?xt=urn:btih:30460EFE5D984209975B9AB0ECF7B303BF174F0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Garmin: Azerbaijan Map 2015 V01 [En]
 ```bash
 magnet:?xt=urn:btih:27C435CC5B510564FECDBA80D6900B9B4903B839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Turbo Grannies: Вялотекущая и скучная жизнь в доме 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Ebook Converter v1.13.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1DC5C341B3FE07E1E56A46006EB4929CC6F9D3FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Mind Games Pro / Игры ума v2.5.4 [Ru/Multi]
 magnet:?xt=urn:btih:B89F44748B440012BE37868228FA580DA12807A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Contra - Hard Corps 1.0.0 [En]
 ```bash
 magnet:?xt=urn:btih:55C65609B1AA0EB21B53F8414689A7B642DF5AD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ ROEHSOFT DRIVE-EXPERT 1.21 [Ru]
 magnet:?xt=urn:btih:C9C337D1EF43F25E405927468A1EC349620DB424
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Odin - официальная утилита для ПК, которая поз�
 ```bash
 magnet:?xt=urn:btih:72F3C9BE170598DDA427D2B271405B4AE4F9CA4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Sonic The Hedgehog 3 это третья часть известной игры 
 magnet:?xt=urn:btih:08442FC6A070322DE6E95BA50E097C5F386A0668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Garmin: City Navigator North Africa NT 2016.20 [En]
 ```bash
 magnet:?xt=urn:btih:92912633B6D65B0308F08C23AFA174B73B12F8FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Garmin: City Navigator South America NT 2017.10 [En]
 ```bash
 magnet:?xt=urn:btih:7C12D77F6831797CED680D32C6135904C2BEEEED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:7C12D77F6831797CED680D32C6135904C2BEEEED
 magnet:?xt=urn:btih:4F44C4CC17CB53EDBB943822562A7852EA3B780B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:4F44C4CC17CB53EDBB943822562A7852EA3B780B
 ```bash
 magnet:?xt=urn:btih:E1819D62ABCD5AD6A73A71AA3604D489011506CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:E1819D62ABCD5AD6A73A71AA3604D489011506CD
 magnet:?xt=urn:btih:6B9A105F662497C041A28ECD311B087CE4367077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ QuickPic 4.7.2.2404 [Ru] - Просмотрщик изображений с му
 ```bash
 magnet:?xt=urn:btih:C1CBB9C7938324A0B8B3DDE859FEA47C985C2107
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ APK Permission Remover - это замечательный инструмент,
 magnet:?xt=urn:btih:09AAEA776E0F0FF5FBAC6BB860B24869596E1423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Guitar Tuna v3.5.4 [Ru/Multi] - универсальный тюнер для н�
 ```bash
 magnet:?xt=urn:btih:DDB19DE78D5C170BC6F3DA91825FE314D290FFD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:DDB19DE78D5C170BC6F3DA91825FE314D290FFD5
 magnet:?xt=urn:btih:83A6B7B39E2D1A488A1388C96D977500B8675E39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:83A6B7B39E2D1A488A1388C96D977500B8675E39
 ```bash
 magnet:?xt=urn:btih:4C3329A3DD4E5F28C8F0F3C0F3285C895868EE19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Ultimate Mortal Kombat™ 3 — это игра жанра файтинг из �
 magnet:?xt=urn:btih:BCFD3DC8D04DDDB183C8253EF12880706A0F6BF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Pose Tool 3D 6.8.79 [En] - Инструмент постановки поз дл
 ```bash
 magnet:?xt=urn:btih:66E3D5D06E336D5E5C2ED3F29CAFDF72E599EB1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Om Nom Run / Ам Ням Погоня v1.07 [Ru/En]
 magnet:?xt=urn:btih:FF0521F7B5E27B6FE0CE7D258C11C506960C2A38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Dino Puzzle v2.7.3 [Ru/En]
 magnet:?xt=urn:btih:EC9674512B81D5E67399018A5CDCBCE9581F4346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Garmin: City Navigator Southern Africa NT 2017.30 [En]
 ```bash
 magnet:?xt=urn:btih:00D47DE4AE597FB43E1F5CA172287AE4764F09DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

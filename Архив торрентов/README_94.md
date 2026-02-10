@@ -19,6 +19,8 @@ iDownerGo – это приложение для загрузки мультим
 magnet:?xt=urn:btih:1955DD1D2F0D2677D827462A0DF61542896A7AD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ SoftMaker Office Professional 2024 rev. S1224.0308 RePack (& portable) by KpoJIu
 ```bash
 magnet:?xt=urn:btih:8B2DC0A4D17F14084A90ABB537D5C4E04AAFB370
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ v2rayN — это универсальный инструмент VPN и про�
 magnet:?xt=urn:btih:476EE67032FFDE03880ECD23C49D1F41B121DF39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:03DDB82B5B87D2FA70C03723C49BF2851AEA8D4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ MyLanViewer — программа для сканирования и монит
 magnet:?xt=urn:btih:85CB67E114DFC95896C20FDB42D33051E80285CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Windows 11, 24H2 [26100.3476] 38in1 (x64) by adguard (v25.03.12) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:16491A0D71A64C51A36D68491DF8479E3F47AEEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ DaVinci Resolve — единственное в мире решение для �
 magnet:?xt=urn:btih:6DD433549138C5BFB5445FDA7485263E826DA844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:41A609E543251DD70421FA810B3228DB636B8D32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:C063CAB84971D731BD97DE8B3D72170B2FB4A6E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:85BE73486478D4DD4ACA2C40782754767A85C224
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ VivaCut для Android - это профессиональный видеоре�
 magnet:?xt=urn:btih:1D1DE745418D35376F0605AFE813CD994506C19D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Sphinx — это очень мощный программный плагин-с
 ```bash
 magnet:?xt=urn:btih:5C2EFACBA2D28CAC1B5FF2ABFCF21E34E7B844CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ PicWish — фоторедактор с искусственным (   Чита
 magnet:?xt=urn:btih:B0521F21F1C9C8F2C9A9DCF3B7D9529AAD476A09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ VK Музыка: песни и подкасты v7.12 Mod by VK Equals [Ru/En]
 ```bash
 magnet:?xt=urn:btih:1C86A4674AF7C011AC059ABB3F1BCE466F5F1EA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Happy Color — самая популярная и излюбленная бес
 magnet:?xt=urn:btih:81E959C0B2BCF8A5DDCBBE40A02AD3C23FC49789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:24D200249D90A72E436E49DD34FB33235F8ED7FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ IPTV Pro v9.0.10 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:92CC7EE243C88B8DCF2933D8A2E89D5B07CBA460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Opera One 117.0.5408.142 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:F53491FE1961F1BE172E52B7C421F45E064C8618
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:F53491FE1961F1BE172E52B7C421F45E064C8618
 magnet:?xt=urn:btih:6ACBC97A85508D59F2C9CB93204A7665F1844B23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:6ACBC97A85508D59F2C9CB93204A7665F1844B23
 ```bash
 magnet:?xt=urn:btih:91C0F0CC52F4C889C7D2FB6A0610047C5D98E9D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Brave - защищенный браузер на базе Chromium, постро
 magnet:?xt=urn:btih:EDD760CD991FBA1A800385DC90351A8EA8CC5827
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ CalcKit это простая и мощная коллекция калькул�
 ```bash
 magnet:?xt=urn:btih:AAEC2BB4DC7481B9168DAFCE092558A1B4C945BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ AdGuard — уникальный блокировщик рекламы без ro
 magnet:?xt=urn:btih:D44769A82B4FBC611F91AAE3445604E7A41CE133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:D44769A82B4FBC611F91AAE3445604E7A41CE133
 ```bash
 magnet:?xt=urn:btih:5B1297665BF0A5D15D2FFD8311CF65EA29B74485
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ MediaHuman YouTube Downloader 3.9.9.98 (1903) RePack (& Portable) by elchupacabr
 magnet:?xt=urn:btih:C0E2C5051012FA2A605E7B7B495C14EAF7FC150E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ XnView - утилита, предназначенная для просмотр�
 ```bash
 magnet:?xt=urn:btih:E0D45B24CFE231F231172B5024A1B8C34B512994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Opera One 125.0.5729.12 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:9E846A4D32E6AB349D89135BD5B50747E752F48A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ DBF Viewer 2000® - приложение для просмотра и редак
 magnet:?xt=urn:btih:98F814993F23D7D7B60E8E49A92222B61D8FD6E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:CF49DCC801A0628D9B0DA9D8FCD623EC41C10E59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ ChrisPC Win Experience Index - бесплатная утилита, с помо�
 magnet:?xt=urn:btih:E71C787B1B85B124555A0918652932DBC2BE10CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ AnyDesk 9.6.6 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EEBB49B8CFE1A67356E1B8DA97F540B062944F99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ iTubeGo YouTube Downloader 10.10.0 RePack (& Portable) by elchupacabra [Multi/Ru
 magnet:?xt=urn:btih:06846D1C6AC6E80E36AA795A04BFF3B1153B0258
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:A535A0B9589F6C0B32BD550E630677DC694238CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:03DF56C56EE0B04798F7F362C37AD9EFFD78A935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Opera One 125.0.5729.15 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:65E19DB3D1F4BA6E99337762FC903AE9D626E0D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:25877D9F9119663B611BCE3CFAA407D5E1529914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ MAX Desktop 25.18.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:0A5AAC1EF0592D4B4EC0E2124CC2B4FC031088C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:1D5BD79C6415BC566EA76AA44F9AD675EBF82DA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:1D5BD79C6415BC566EA76AA44F9AD675EBF82DA2
 ```bash
 magnet:?xt=urn:btih:86C886C2495252A7AD47106D1CA83A701660D17B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Allavsoft Video Downloader Converter - это мощный видео загру
 magnet:?xt=urn:btih:C6E77361FFA718033856D74769BD47F97A043B27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:16281501C80A2D34D0A38D54F7E2772B803EC5E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ PrivaZer – полезная утилита, которая поможет ва
 magnet:?xt=urn:btih:A003581812FF5E8495177491D165A2B395ABEB33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:9F8D640BC6B7DCE1A7EC3D9B5458F6425A05EC01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ InnoExtractor - это приложение, которое поможет ва�
 ```bash
 magnet:?xt=urn:btih:73AC8320A25989F973BEB0EAFB05FAE007BDA88E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Ventoy - это инструмент с открытым исходным код
 magnet:?xt=urn:btih:587A4C2E3315A1FCB3E59E308A1AC70DC384E30C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Modern Tweaker - программная оболочка для твиков Win
 ```bash
 magnet:?xt=urn:btih:29C8961490116A983ACA2F054F0D3C3E44A4804C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Winaero Tweaker - системная утилита для настройки в
 magnet:?xt=urn:btih:B09D91DAFA6AB07200956D8F107A9B9E39F97763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:71DF094EA5AB3A49BFBC8A991EE96C8BFBCCE95E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:68752D371811902A0EC1AFC3C09B01F0D87661B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:BD5A218760B696F0123B33FA93EF0FAEA6935BC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Glary Utilities - функциональный набор системных т�
 magnet:?xt=urn:btih:89CB1AC7772DF886081FCE9A76933F667FCDBB75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Auslogics Driver Updater – программа представляющая с�
 ```bash
 magnet:?xt=urn:btih:FD3E003C1E7DF1E328A3BBBBC14C50D8B4F2F073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

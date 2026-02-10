@@ -1,3 +1,29 @@
+###  Публикация: 1061241   (450486) от 09.10.2016
+
+Битва экстрасенсов (2016.10.08) WEB-DL [H.264/720p-LQ]  (сезон 17, выпуск 6)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_450486.jpg" />
+</div>
+
+
+###  Подробнее
+
+С 3 сентября на ТНТ стартует долгожданный 17-й сезон «Битвы экстрасенсов» — самого мистического, непредсказуемого и загадочного проекта российского ТВ. Масштабный кастинг, новые яркие участники и высокие технологии в мире экстрасенсорики. Новый сезон обещает стать самым необычным и удивительным в истории шоу. «Мне бы очень хотелось, чтобы в новом сезоне экстрасенсы (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF57F46A882E62740F0849920239A5BE7CF2D07C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322303   (450501) от 28.08.2019
 
 Наследие цивилизаций. Древняя Азия / Ajia no kyodai iseki / Ring of Civilizations - Rediscovering Ancient Asia (2015) IPTVRip [H.264] (1-4 серии из 4)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0BA7769DD15E58C346FAD29F0A7884D2B88F5E7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:0BA7769DD15E58C346FAD29F0A7884D2B88F5E7C
 ```bash
 magnet:?xt=urn:btih:85A8CD939ACFC7E70CDDA3D67508FA5BCDCF6AFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:85A8CD939ACFC7E70CDDA3D67508FA5BCDCF6AFE
 magnet:?xt=urn:btih:7DA9A3EF6F8B6A4F0293A7304C2D5B4702C64B91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:7DA9A3EF6F8B6A4F0293A7304C2D5B4702C64B91
 magnet:?xt=urn:btih:819BE8C999E93A68FB0918D9F5544CF4F7EA7AB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:819BE8C999E93A68FB0918D9F5544CF4F7EA7AB9
 ```bash
 magnet:?xt=urn:btih:C0768D46CD9DEE4E8B72C93B0ED9BD7884ADC7E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:C0768D46CD9DEE4E8B72C93B0ED9BD7884ADC7E3
 magnet:?xt=urn:btih:84FD7699C5AB6407D01D24DE2DAE79F56B5E3A44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:84FD7699C5AB6407D01D24DE2DAE79F56B5E3A44
 ```bash
 magnet:?xt=urn:btih:ABF21C7A127B4CDB34C652087B901F404CDFF52E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:ABF21C7A127B4CDB34C652087B901F404CDFF52E
 magnet:?xt=urn:btih:93A1D1CF66739E1E4E02359B3D26688C1C17FA30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:93A1D1CF66739E1E4E02359B3D26688C1C17FA30
 ```bash
 magnet:?xt=urn:btih:FF3B3D9D6642FE6F8DC0EEB8AD0406FC8C6C8F64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:FF3B3D9D6642FE6F8DC0EEB8AD0406FC8C6C8F64
 magnet:?xt=urn:btih:FF65B4D72CDCF7B15FE0E6F46A1B09DE1B941DCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:FF65B4D72CDCF7B15FE0E6F46A1B09DE1B941DCD
 ```bash
 magnet:?xt=urn:btih:0D6946F87C9EB86CC83745F94CD5F6448C6C09A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:0D6946F87C9EB86CC83745F94CD5F6448C6C09A1
 magnet:?xt=urn:btih:ADA5D4E359E7461F24A42B3824D6D0B0BC72BA45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:ADA5D4E359E7461F24A42B3824D6D0B0BC72BA45
 ```bash
 magnet:?xt=urn:btih:EF880E7E110F5AA98FBB0C1752185BEF0B5E2CF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:EF880E7E110F5AA98FBB0C1752185BEF0B5E2CF2
 magnet:?xt=urn:btih:583794D7D287760C6A84AC4DB7CE3E96C0C74DD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:583794D7D287760C6A84AC4DB7CE3E96C0C74DD0
 ```bash
 magnet:?xt=urn:btih:B1CA3B83248D167BC322302CCE484CEE5B66F601
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:B1CA3B83248D167BC322302CCE484CEE5B66F601
 magnet:?xt=urn:btih:6D4377EC4467BE82956171ED916A5A9738258202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:6D4377EC4467BE82956171ED916A5A9738258202
 ```bash
 magnet:?xt=urn:btih:C1CD080724723A9DABB61F1DDF8D69CC85287F12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:C1CD080724723A9DABB61F1DDF8D69CC85287F12
 magnet:?xt=urn:btih:8F8CB30E1FD8ED5C4930A09A26B2DD08D17B6D18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:8F8CB30E1FD8ED5C4930A09A26B2DD08D17B6D18
 ```bash
 magnet:?xt=urn:btih:FFB554043D03C0C4CBE98C05A60CC8EE26016800
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:FFB554043D03C0C4CBE98C05A60CC8EE26016800
 magnet:?xt=urn:btih:F04A22D4A666091A8C8F6FB82B728A5D2C0CBB85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:F04A22D4A666091A8C8F6FB82B728A5D2C0CBB85
 ```bash
 magnet:?xt=urn:btih:4B52F0161FA1BD13C2BCC11D768A7A0CCD4F00AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:4B52F0161FA1BD13C2BCC11D768A7A0CCD4F00AC
 magnet:?xt=urn:btih:48D6D44CDCEB3A95F67E0CEBC5FAD29DBA47E23A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:48D6D44CDCEB3A95F67E0CEBC5FAD29DBA47E23A
 ```bash
 magnet:?xt=urn:btih:C5D279272DC0CAA3584DFABF4E60AADD0500EF5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:C5D279272DC0CAA3584DFABF4E60AADD0500EF5E
 magnet:?xt=urn:btih:28E555E2975EBFE916BC26E38A237BCAB610C523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:28E555E2975EBFE916BC26E38A237BCAB610C523
 magnet:?xt=urn:btih:98F25106134319389D3FAF79D336F2D7D8DD2DFF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943036   (451741) от 02.10.2015
-
-Секретные Истории - НЛО. Уход под воду (2009) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_451741.jpg" />
-</div>
-
-
-###  Подробнее
-
-Секреты, возвращенные из небытия и факты, окутанные тайной. Цикл документальных фильмов о самых деликатных моментах мировой истории, прошлого и сегодняшнего дня России. События второй мировой войны еще долгие годы будут поражать воображение современников драматическими поворотами и неожиданными интригами. Настало время раскрыть содержимое архивов под грифом «совершенно (   Читать дальше...   )Телекомпания: РЕН ТВЖанр: ДокументальныйПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:140D1B57873F102CAF2D1316F9FC7729290B18E4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,34 @@
+###  Публикация: 1224651   (664799) от 11.05.2018
+
+Евровидение 2018. Второй полуфинал / Eurovision 2018. Second Semi-Final (2018) WEB-DL [H.264/1080p-LQ] [UKR]
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_664799.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй полуфинал Евровидение 2018 состоялся в Лисабоне в четверг, 10 мая в 22:00 часа.
+
+За место в финале конкурса поборолись исполнители из 18 стран.01. Норвегия. Александр Рыбак - «That's How You Write А Song»
+02. Румыния. The Humans - «Goodbye»
+03. Сербия. Саня Илич и Балканика - «Nova deca»
+04. Сан-Марино. Джессика и Дженифер Бренинг - «Who We Are»(   Читать дальше...   )Телекомпания: Live StreamЖанр: Телешоу, песенный конкурсПеревод: ОтсутствуетЯзык озвучки: украинскийСубтитры: отсутствуютПродолжительность: 02:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1396ADDF3AF78C26D7EB17CEACA962D9AE068169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224690   (664859) от 11.05.2018
 
 Сигналы точного времени (2014) DVB (Сезон 1, Серии 1-4 из 4)
@@ -20,6 +51,8 @@
 ```bash
 magnet:?xt=urn:btih:6DDB0B17F5331330D21B175A7BBEDAE3CF923A27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +78,8 @@ magnet:?xt=urn:btih:6DDB0B17F5331330D21B175A7BBEDAE3CF923A27
 magnet:?xt=urn:btih:78445D159018DA926E7EDC4D987639E4E5BF484B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +103,8 @@ magnet:?xt=urn:btih:78445D159018DA926E7EDC4D987639E4E5BF484B
 ```bash
 magnet:?xt=urn:btih:60451C8CD8BD0B443B6BD2E67D212C188624007C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +130,8 @@ magnet:?xt=urn:btih:60451C8CD8BD0B443B6BD2E67D212C188624007C
 magnet:?xt=urn:btih:13E9172A1EF242B04812B72CD5E537AA0189D918
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +155,8 @@ magnet:?xt=urn:btih:13E9172A1EF242B04812B72CD5E537AA0189D918
 ```bash
 magnet:?xt=urn:btih:CE27DA167AD3790DF435F51CDA7A7385465D13B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +182,8 @@ magnet:?xt=urn:btih:CE27DA167AD3790DF435F51CDA7A7385465D13B7
 magnet:?xt=urn:btih:C2CB51F052BE9A9336CA85A5FC8D857B77F46146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +208,8 @@ magnet:?xt=urn:btih:C2CB51F052BE9A9336CA85A5FC8D857B77F46146
 magnet:?xt=urn:btih:25F0A446274C6B91877944C962A0DE825121107F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +233,8 @@ magnet:?xt=urn:btih:25F0A446274C6B91877944C962A0DE825121107F
 ```bash
 magnet:?xt=urn:btih:01C93E06E90035ED6A27C7464B05C6838D15FC7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +261,8 @@ magnet:?xt=urn:btih:01C93E06E90035ED6A27C7464B05C6838D15FC7F
 magnet:?xt=urn:btih:C956C37F4BA9213FB79984B2A4DBCCEB98083305
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +286,8 @@ magnet:?xt=urn:btih:C956C37F4BA9213FB79984B2A4DBCCEB98083305
 ```bash
 magnet:?xt=urn:btih:5BD018A144E1BF3A10A5BDE7D78D435CC185E8B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +315,8 @@ magnet:?xt=urn:btih:5BD018A144E1BF3A10A5BDE7D78D435CC185E8B0
 magnet:?xt=urn:btih:ADEFC2F76B63D863E997D04B543B17B02B3F3882
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +342,8 @@ magnet:?xt=urn:btih:ADEFC2F76B63D863E997D04B543B17B02B3F3882
 magnet:?xt=urn:btih:2C405E08B78C6A560C05BEF34D65001FAC2D3E5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +367,8 @@ magnet:?xt=urn:btih:2C405E08B78C6A560C05BEF34D65001FAC2D3E5C
 ```bash
 magnet:?xt=urn:btih:B2F37FC9880DF2253F976AB5163D8DE72E426E7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +395,8 @@ magnet:?xt=urn:btih:B2F37FC9880DF2253F976AB5163D8DE72E426E7C
 magnet:?xt=urn:btih:DC5D79A1110FA31BA630CCEAE4F7C0A88A83361E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +420,8 @@ magnet:?xt=urn:btih:DC5D79A1110FA31BA630CCEAE4F7C0A88A83361E
 ```bash
 magnet:?xt=urn:btih:84922631C643D0E5250FB78F305A1BD6B051CB1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +448,8 @@ magnet:?xt=urn:btih:84922631C643D0E5250FB78F305A1BD6B051CB1F
 magnet:?xt=urn:btih:F803D42B06DADE83F59A20725B5F97E098863E2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +473,8 @@ magnet:?xt=urn:btih:F803D42B06DADE83F59A20725B5F97E098863E2C
 ```bash
 magnet:?xt=urn:btih:74E7520968CCC597AAB09006D85DE5EDA992CA48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +500,8 @@ magnet:?xt=urn:btih:74E7520968CCC597AAB09006D85DE5EDA992CA48
 magnet:?xt=urn:btih:3C936194B17BD6F75193A0E09E8FEF3F685D9F51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +526,8 @@ magnet:?xt=urn:btih:3C936194B17BD6F75193A0E09E8FEF3F685D9F51
 magnet:?xt=urn:btih:169B05C5E854D2A0C54190B8928B5BF1FF95E9B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +551,8 @@ magnet:?xt=urn:btih:169B05C5E854D2A0C54190B8928B5BF1FF95E9B7
 ```bash
 magnet:?xt=urn:btih:FA560FFF5800F98CE3C9C7B9987E734B7592D06A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +583,8 @@ magnet:?xt=urn:btih:FA560FFF5800F98CE3C9C7B9987E734B7592D06A
 magnet:?xt=urn:btih:5A9FB9B870761831E86E0DCA41C0DDC93254E1E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +608,8 @@ magnet:?xt=urn:btih:5A9FB9B870761831E86E0DCA41C0DDC93254E1E1
 ```bash
 magnet:?xt=urn:btih:E8D06F11277F4CDBF8209D29D4CD6384B556DBAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +635,8 @@ magnet:?xt=urn:btih:E8D06F11277F4CDBF8209D29D4CD6384B556DBAB
 magnet:?xt=urn:btih:8BC3CF20A614C516AC8E40202E4DCAC57DC909F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +660,8 @@ magnet:?xt=urn:btih:8BC3CF20A614C516AC8E40202E4DCAC57DC909F3
 ```bash
 magnet:?xt=urn:btih:23995E6244E2D12AA0A0EC4CA8291494BA23E89D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,30 +689,7 @@ magnet:?xt=urn:btih:23995E6244E2D12AA0A0EC4CA8291494BA23E89D
 magnet:?xt=urn:btih:161D2CF731191B01A518279FB39822D8373E69C6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136768   (666576) от 27.05.2017
-
-Люди сотворившие ХХ век (У истоков ХХ века) / The 101 Who Made The Twentieth Century (2016) HDTV [H.264/1080p-LQ] (8 серий из 8)
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_666576.jpg" />
-</div>
-
-
-###  Подробнее
-
-ХХ век был эпохой удивительных перемен: несказанных ужасов и поразительных научных открытий. Это столетие, в котором империи прошлого рассыпались, чтобы освободить место для новых сверхдержав и новой эпохи. Столетие, в котором мир был, втянут в одну войну за другой.
-Но где радио, кино, телевидение, автомобили, самолеты и, наконец, компьютеры привлекли нас ближе друг (   Читать дальше...   )Производство: Австралия, WildBear Entertainment, DRG HistoryЖанр: Документальный, познавательный, историяПеревод: ДублированныйПродолжительность: 8 x ~ 00:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA75FCCAB54AA14F02B58DD92BBE1F0CE1C7D1C9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

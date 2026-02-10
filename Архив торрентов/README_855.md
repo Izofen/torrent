@@ -19,6 +19,8 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 magnet:?xt=urn:btih:3C86FDD9BCCC38D498FF33D63761C20CD840F94A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Moldiver | Молдайвер [1993, OVA, 6 эп.] DVDRip 480p raw
 ```bash
 magnet:?xt=urn:btih:325C744EE2464345DD9695B72AAF8B8AE929BE17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:549B57EDE1A25A2361B8D119BC4DA729A9674D7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Vivaldi 6.7.3329.21 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1E7A18339D39593BD48C8678BC86B45D3EBB9BFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Adobe InCopy позволяет авторам и редакторам текс�
 magnet:?xt=urn:btih:C54DE0C710B1A892B0395F7B4D52F4D75D088EAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:D607EB902C8B7B8773D61579F9AFA91C201B74C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:C31531544B38207368A7AE0A4E00CD327DB19186
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:A7AD0684233F6E7C36D4F8D2A80708A670489BAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:A7AD0684233F6E7C36D4F8D2A80708A670489BAE
 magnet:?xt=urn:btih:568F6E800E2383FB720560383710827573E763DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Wondershare UniConverter - простой в использовании виде
 ```bash
 magnet:?xt=urn:btih:0E0DCC250DD335F09DCA5BA32682BDB2439208A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Shotcut - мощное кроссплатформенное приложение
 magnet:?xt=urn:btih:11FABBB1E33F71F78269C3766D5479727F72D2C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Opera One 109.0.5097.68 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:4C61EDF78B503306D811E89C680DAC02EC4999BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:4C61EDF78B503306D811E89C680DAC02EC4999BD
 magnet:?xt=urn:btih:42FF00BB1580D6CB9201D46E1F812C05B2081DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:42FF00BB1580D6CB9201D46E1F812C05B2081DF8
 magnet:?xt=urn:btih:32AE5B4E0C3920531B37A5211749A479EA462676
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Image Uploader - бесплатная программа для Windows c отк
 ```bash
 magnet:?xt=urn:btih:EB157ACC67F1D510A24C57283CEF5CC4082446EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:EB157ACC67F1D510A24C57283CEF5CC4082446EE
 magnet:?xt=urn:btih:EBF04A1EA86C6127507502E83AC0312598E38628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Text Editor Pro 29.1.0 + Portable + Bonus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4AEE79890F363065A72E31F26E66CC8B7F5DF453
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ File & Image Uploader - удобная и просто незаменимая п
 magnet:?xt=urn:btih:582FC767C11F181F1240D18CB0E0CFE5E55D66DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:582FC767C11F181F1240D18CB0E0CFE5E55D66DF
 ```bash
 magnet:?xt=urn:btih:55870C0C42C686B0D45FC2B751C8EF94D8A2229D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 magnet:?xt=urn:btih:146E0D22CCE0FCD2C6AD454F67002529D4378232
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 magnet:?xt=urn:btih:53F82073D92DB08C04757A1021BE3046DB613474
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ n-Track Studio — кроссплатформенный аудиоредакто
 magnet:?xt=urn:btih:D3B3B0003F577CB8E452CEFC7B481CEF96B9AE36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 ```bash
 magnet:?xt=urn:btih:F9CA403752B57D360A011C96596B3178F0F5F708
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ simplewall 3.8.1 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:B8E0C5927689784BCA5382933961E5914EBCA8A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Free Download Manager - кроссплатформенный менеджер з
 magnet:?xt=urn:btih:8B3AA96E3CAF830609B5647E10EE6B4D9A158622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:86B3C1F8EF2FBD68E14DAC1053A074FCDB6E54ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

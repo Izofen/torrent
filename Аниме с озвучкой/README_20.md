@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:60D751BA9A4D1BBAA77935BD788644AC4B473483
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Kinsou no Vermeil: Gakeppuchi Majutsushi wa Saikyou no Yakusai to Mahou Sekai o 
 magnet:?xt=urn:btih:23BD9773982484A0DA9D5B469EA4EA2D29342A94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Dr. Stone / Доктор Стоун [2019, TV, 24 ep] WEB-DL 1080p Rus
 ```bash
 magnet:?xt=urn:btih:150A04536545DF074954E23BADF97A5B90156B9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Rozen Maiden: Traumend + Ouverture| Девы Розена: Сновидение 
 magnet:?xt=urn:btih:14FA1DFDAAF34E82A74F105669B41ABB34B75CA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Akuyaku Reijou nano de Last Boss o Katte Mimashita | Я стала злодей�
 ```bash
 magnet:?xt=urn:btih:F2E6A15E79EFC87D193056237CCCBF387A1B7F43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Arete Hime | The Adventure of Princess Arete | Принцесса Аритэ [20
 magnet:?xt=urn:btih:D9586A743715D6FAD48962109249412038057BCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Kumo no Mukou, Yakusoku no asho / The Place Promised in Our Early Days / За о
 ```bash
 magnet:?xt=urn:btih:2C9007A5394C43FD7A80CD042F0984D17A37593F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Kawaii Dake ja Nai Shikimori-san | Shikimori's Not Just a Cutie | Моя дев�
 magnet:?xt=urn:btih:44CF932CB68E564C267E095ABFB6CEACFA556ABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Bleach: Sennen Kessen Hen | Bleach: Thousand-Year Blood War | Блич: Тыся
 ```bash
 magnet:?xt=urn:btih:B0DD411A2C34AB83C9382136A4C3C7E9B7310FDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:B0DD411A2C34AB83C9382136A4C3C7E9B7310FDF
 magnet:?xt=urn:btih:3FF064D21259C9C08B60E9908F52BC89030CA859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Isekai One Turn Kill Nee-san: Ane Douhan no Isekai Seikatsu Hajimemashita | My O
 magnet:?xt=urn:btih:8460D02AB575B036BB08890D572DB6BD1FD8C649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Good Night World | Спокойной ночи, мир [2023, Web, 12] WEBRip 10
 magnet:?xt=urn:btih:CC3DEE8C49462ADF4D63AE363F9DA85AD120D3D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Kaminaki Sekai no Kamisama Katsudou | KamiKatsu: Working for God in a Godless Wo
 ```bash
 magnet:?xt=urn:btih:66EF0ED9178EE9754499D7782030EFA94424758F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:66EF0ED9178EE9754499D7782030EFA94424758F
 magnet:?xt=urn:btih:FAA557934D36F8BC22876DC82EB8513480FB05D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Quan Zhi Gao Shou | Quanzhi Gaoshou | The King`s Avatar | Master of Skill | Ав
 magnet:?xt=urn:btih:98D055BDD0BFCF59519B64A0AEA63DB4178DED6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Yuusha, Yamemasu | I'm Quitting Heroing | Перестану быть герое
 ```bash
 magnet:?xt=urn:btih:713A17C8517CCE2607A741B4866F26CE30440FCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ Fruits Basket TV-2 | Корзинка фруктов ТВ-2 [2020, TV, 25 из 2
 magnet:?xt=urn:btih:68A56EB0FBC4C66924EB00906AB6A690AF4BAF7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:68A56EB0FBC4C66924EB00906AB6A690AF4BAF7B
 ```bash
 magnet:?xt=urn:btih:6E31D7776030B8920CA0E325B8949D34FF8313C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:6E31D7776030B8920CA0E325B8949D34FF8313C1
 magnet:?xt=urn:btih:D4FF134C617F6DA2011CB84AE9B5796471124B4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ Tensai Ouji no Akaji Kokka Saiseijutsu | The Genius Prince's Guide to Raising a 
 magnet:?xt=urn:btih:E5B96052E0029A998D0913C9E152ED0B1914E7E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:E5B96052E0029A998D0913C9E152ED0B1914E7E9
 ```bash
 magnet:?xt=urn:btih:0D42AF66594DF61FC02D78EFABD5BF9BE40E1AD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:0D42AF66594DF61FC02D78EFABD5BF9BE40E1AD9
 magnet:?xt=urn:btih:7EC32656908A43FA10A64B55AD85A3A3B3690EA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:7EC32656908A43FA10A64B55AD85A3A3B3690EA3
 magnet:?xt=urn:btih:61C639718DA725CC8D9E90A895A3456BD9FC6D7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Wu Liuqi | Scissor Seven | Killer Seven | Киллер Севен  [ТВ-1] [201
 ```bash
 magnet:?xt=urn:btih:C19668C3F6C1E6D6F39676943F519527223C5096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:C19668C3F6C1E6D6F39676943F519527223C5096
 magnet:?xt=urn:btih:279026C7C55A170D4C270751A4BF58551553C10E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:279026C7C55A170D4C270751A4BF58551553C10E
 ```bash
 magnet:?xt=urn:btih:ADFAE1AA91F299E7AAA376784FB334A7D09F2E7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

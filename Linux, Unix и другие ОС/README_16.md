@@ -21,6 +21,8 @@ Debian GNU/Linux 9.0 Stretch (Testing, 10.08.2015) [x86-64] 3xDVD
 magnet:?xt=urn:btih:A88DD3EC6DF6CE0F40BD049488AD00602A7C9F78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Debian GNU/Linux 9.0 Stretch (Testing, 10.08.2015) [i386] 3xDVD
 ```bash
 magnet:?xt=urn:btih:69CF27BBB7B755538484196DA8ACF5D813DEA17A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ KaOS Linux 2015.08 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 magnet:?xt=urn:btih:BCCB0753AE73E3DB1B5E4886371C0D42C18AFAF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Debian Edu, также известный как Skolelinux, является д
 ```bash
 magnet:?xt=urn:btih:9BAA7698BDC242222A67587E916BECBEFD3CFBFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Debian GNU/Linux 9.0 Stretch (Testing, 03.08.2015) [x86-64] 3xDVD
 magnet:?xt=urn:btih:467734B54D87DCB5DC56CC5C2F4C9AD30A9BFE0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Parted Magic — готовое решение для работы с разде
 ```bash
 magnet:?xt=urn:btih:20AC27D71DD229373BC6B2AC5B563DB7CE2759E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ KDE neon 5.7.5 (15092016) [x86-64] 2xDVD
 magnet:?xt=urn:btih:D5C921E69A923856CF3764B45C69A2E7791C401E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ KaOS Linux 2016.09 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:7B7F4C9FC43A5A1D726BFDD023C5B8D5C3A19C82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Mageia 6 Sta 1 (+ KDE PLASMA 5) [i586, x86-64] 6xDVD
 magnet:?xt=urn:btih:7F5BA0F654BA804A596A6D14E3EC52A869B9BD86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ Runtu XFCE 16.04.3 x64 - 20170806  [amd64] 1xCD
 ```bash
 magnet:?xt=urn:btih:B84F14E29698220C0DB6743E28DF7D8991536612
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ Debian GNU/Linux 10.0 + nonfree Buster [i386] 4xDVD
 magnet:?xt=urn:btih:23E60CA5F29C5A6EA1D27689296DEA04FA11288C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Xubuntu — дистрибутив Linux, основанный на проект
 ```bash
 magnet:?xt=urn:btih:A4BB69D4BA38156CFFBFDFCE7AF2ED0C5685C004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ OpenMediaVault в первую очередь предназначен для и
 magnet:?xt=urn:btih:2879076159C34F979C311E656CACF26DBCC95EDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ Bio-Linux 8 является полнофункциональным, мощны�
 ```bash
 magnet:?xt=urn:btih:10D3D5B6225A84170F8569E1DF92FD5F7F77FB7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ NAS4Free основана на ОС FreeBSD, поддерживает обмен
 magnet:?xt=urn:btih:FE0EBDFEF4A294077D3404ADBE02F173B03E1866
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:E1C7FA152CD4F666D49464B99B9105BFF1D960BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Kubuntu 16.04.3 LTS Xenial Xerus [i386, amd64] 2xDVD
 magnet:?xt=urn:btih:7B87ECA873A711EF449CA52A69A01E4FC232AFA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ Brackets — Open Source IDE для веб-разработки от AdobeЯзы
 ```bash
 magnet:?xt=urn:btih:7724CBBBB2422EFCA5BF5007D51BBC44260090BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ Linux Mint — дистрибутив операционной системы Li
 magnet:?xt=urn:btih:254602B926D381B91103C9D2879B74ED20DBFAF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Parted Magic — готовое решение для работы с разде
 ```bash
 magnet:?xt=urn:btih:643A36830E22BC62FC0177AE866127DC46ECBFEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ Debian GNU/Linux 9.0 Stretch (Testing, 03.08.2015) [i386] 3xDVD
 magnet:?xt=urn:btih:5631147C5064EFB0268BA2AD6BDCFD8EA98A3714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ Mageia 7  [i586] 2xDVD
 ```bash
 magnet:?xt=urn:btih:621C391A63F49C4DBED9658E56BF7A1D82EFAD2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ CentOS 6.7 [x86-64] 2xDVD, 2xCD
 magnet:?xt=urn:btih:46D40AA1A651BC7BAE2104AC4EF771E4B00A3A87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ CentOS 6.7 [i386] 2xDVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:C3A8B7E971FC9941413AFDD99242EA9D8F93AD9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ KaOS Linux 2015.07 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 magnet:?xt=urn:btih:45B9E78B14EE640F01DB314E8857CEC122F4AFF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Lubuntu — это свободная операционная система н
 ```bash
 magnet:?xt=urn:btih:D1E3137BC9FB881F97CBDC7768BC5CF3ABD4064A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

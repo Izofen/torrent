@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:055D9CB399DC43EFD022E390DE8AD7D245870C0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:055D9CB399DC43EFD022E390DE8AD7D245870C0C
 magnet:?xt=urn:btih:B26E94A28B7A978E8D419DEB0AACA5E5BF68B6C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:B26E94A28B7A978E8D419DEB0AACA5E5BF68B6C2
 ```bash
 magnet:?xt=urn:btih:580E3738D4D751E859F50B368C04EB3470F099C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Ghost - Skeletá (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:7DD79FE03331AB3D9B81630A117B312C2251EB3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Bleed from Within — шотландская металкор-группа из 
 magnet:?xt=urn:btih:6CA595DF7531FC36F0B9B16F8D7B9B0CFC471E7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:6CA595DF7531FC36F0B9B16F8D7B9B0CFC471E7A
 ```bash
 magnet:?xt=urn:btih:CA069139499DE2D577D205DCEEC9CF65644338C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:CA069139499DE2D577D205DCEEC9CF65644338C1
 magnet:?xt=urn:btih:AD04726BAD1F0A4B027AA93E89FFF19CA5052133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:AD04726BAD1F0A4B027AA93E89FFF19CA5052133
 ```bash
 magnet:?xt=urn:btih:203DFE6BCACB8CA4DD7E24E9847E2548C461D23C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 magnet:?xt=urn:btih:5AF50E4EE5DCEDC59E0472BB4C164008FDA57A94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ XnView Shell Extension 4.1.14  + Standalone  [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FDD3CB0A1C62DC1C1E7EB4E64BF993B54648128C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:FDD3CB0A1C62DC1C1E7EB4E64BF993B54648128C
 magnet:?xt=urn:btih:609DAD05269AE44334646826E2FE17E0B2BF951B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:609DAD05269AE44334646826E2FE17E0B2BF951B
 ```bash
 magnet:?xt=urn:btih:5D9E06DA776532854F7457EB4F7F10A6E492AD02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Sunset Motel (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:AFFC08F3498947D4BC921B54C2D487D36E4E2D89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:AFFC08F3498947D4BC921B54C2D487D36E4E2D89
 ```bash
 magnet:?xt=urn:btih:7447A5441509830A4BC4BDE80FFE36E505202D23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Black Convergence - третья часть известной приключе�
 magnet:?xt=urn:btih:420714B27D4E23DE768179EB8F6DEE13DBB1036B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ CoolUtils Total Excel Converter 7.1.0.91 RePack (& Portable) by elchupacabra [Mu
 magnet:?xt=urn:btih:1A62F0BA9633E2C1FEBFD987BFA9491B7C3298DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Lords of the Fallen приглашает игроков в мрачный мир
 ```bash
 magnet:?xt=urn:btih:FEAA69C9C15941282DBA3E1967B11D566A1D4F02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Sante DICOM Viewer Pro не является «еще одним средств�
 magnet:?xt=urn:btih:04236650398271A8F1F50D05C2EB7FD36BF729DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Deca-Dence | Decadence | Декаданс | Дека-Данс [2020, TV, 12 из
 ```bash
 magnet:?xt=urn:btih:44015C1C7380D44EB2628CD261F4AF7612FE3F2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:44015C1C7380D44EB2628CD261F4AF7612FE3F2E
 magnet:?xt=urn:btih:F953456BE4AE290737EA940C6699B17A30455F1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:F953456BE4AE290737EA940C6699B17A30455F1C
 ```bash
 magnet:?xt=urn:btih:C2A889A888AECB23D96CAF5ECF1C3831BCFD125C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:C2A889A888AECB23D96CAF5ECF1C3831BCFD125C
 magnet:?xt=urn:btih:92F5648A35D0AB401AEBE2F3450E84AF2BB3F1A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:92F5648A35D0AB401AEBE2F3450E84AF2BB3F1A2
 ```bash
 magnet:?xt=urn:btih:4B4084C41194629D284BC6D8595B434371A71D6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ FBReader Premium v3.8.9 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:F9B64C98B61815D31026074D7015FBE44544490E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:F9B64C98B61815D31026074D7015FBE44544490E
 ```bash
 magnet:?xt=urn:btih:5BC519AC62012B04EB762B3AF884174B58CDBCE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ Inazuma Eleven: Outer Code | Одиннадцать молний: Внешний
 ```bash
 magnet:?xt=urn:btih:130900A2FF4A8ED7417EF0823D3FBE68B4A167D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Illogica - Underdogs in the Limelight (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard
 magnet:?xt=urn:btih:C9D98C148FBC26410BE7785B05410B18A8923BB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ The Chieftains - Tears of Stone (1999) [FLAC|Lossless|tracks + .cue] <Folk, Worl
 ```bash
 magnet:?xt=urn:btih:E0164106C91981893C5E288C0A1A59D2310AB675
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Toral Shah - Uncovered (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:EC018050704DEEB9AA1FCADE495462F2A6B46A8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ The Black Sorrows - The Way We Do Business (2024) [FLAC 24/48|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:A00304CB3C9660948CD4D7A8F2653E64138C36C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Caitlin Krisko & The Broadcast - Blueprints EP (2024) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:F811893D455F37287953EE7CDE8159A83628560C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Tony D - Electric Delta (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:54FBB121BB6FB58C599B156ECF8085E23CDD5368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Wizard Tattoo - Living Just For Knife Fighting (2024) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:E3E987B28E4C9B71C4116153C6329AED5A4A91F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Gary Rand - No Secrets (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:360DB5502C9A8527335159E2FF7169EBEE6B2DA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ The James Oliver Band - Frantic (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bl
 magnet:?xt=urn:btih:295E2F36BD8C9941D2FFE1AB0958423763AFCB29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ magnet:?xt=urn:btih:295E2F36BD8C9941D2FFE1AB0958423763AFCB29
 magnet:?xt=urn:btih:A0BFE7C3FEEB99499E0A5B5DC58719B193DACFCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +305,8 @@ Linux Format — первый ежемесячный журнал, целико�
 ```bash
 magnet:?xt=urn:btih:2958CA1E79B9E50C3F2FA3D9E7C3CF45FB7AB875
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +335,8 @@ Michael Jackson - Off the Wall (1979) CD, Album, Reissue, Remastered, Special Ed
 magnet:?xt=urn:btih:267D9D8B91967A7364C8EAB8404A00D26DEAA808
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +364,8 @@ VA - BRAVO - The Hits 2024 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:862BC665E5B83EE92793FDA8D0D086A9C7AF4CA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +391,8 @@ Chord Generator — это MIDI-инструмент, который генер�
 magnet:?xt=urn:btih:9A1E53845B148C1D23C2C44EBEE31938559F6B26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +416,8 @@ magnet:?xt=urn:btih:9A1E53845B148C1D23C2C44EBEE31938559F6B26
 ```bash
 magnet:?xt=urn:btih:0FD9EA0C700E23C44E25E2743F3FDE990A57057B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +446,8 @@ Love Music Zone, Marco Rinaldo, Sensual Lounge Music Universe, Sexual Piano Jazz
 magnet:?xt=urn:btih:36CEDF8211C4A5CE45628A0F51AF401CCD5D5CAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +471,8 @@ magnet:?xt=urn:btih:36CEDF8211C4A5CE45628A0F51AF401CCD5D5CAD
 ```bash
 magnet:?xt=urn:btih:EAD6DE7C7365B2B29581D0DBC0CBF50FB57F5E9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +498,8 @@ Linux Format — первый ежемесячный журнал, целико�
 magnet:?xt=urn:btih:5645DA7FDA5D3098756B443EA0093A15BFCEB100
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +523,8 @@ Kovoclak 1.12 [En]
 ```bash
 magnet:?xt=urn:btih:2F02FE521AB14188E7C16C5CC1A1848E503CFBC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +553,8 @@ Andrés Segovia - The Segovia Collection (Vol. 9): The Romantic Guitar (1991) CD
 magnet:?xt=urn:btih:83814E612EE5159ED003BEBDA5FB696BD5C85236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +580,8 @@ Repro-1 погружается в прошлое для аналогового �
 magnet:?xt=urn:btih:2B17FAEBCEA1289B87DA6884AA9C3B4A2246D4D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +605,8 @@ MF Ghost | MF Призрак [ТВ-1] [2023, TV, 12 эп.] BDRip 720p 10-bit raw
 ```bash
 magnet:?xt=urn:btih:0463CAD76573AC599A0A4C448191F7EE65A1ED5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +635,8 @@ Sexual Music Collection, Jazz Music Lovers Club - Provocative Jazz (2024) [FLAC|
 magnet:?xt=urn:btih:B4CECF512F9673E4394681D15704AC985C06685F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +663,8 @@ David Antony Clark - Spirit Dance - Freeing the Primal Soul (2013) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:C92909C9343F094E2816B92F859210B62CA1C571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +693,8 @@ Latter Reign - Order to Chaos (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:960B8C42948A21088D3F07E210717BFC7F4C5DE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +721,8 @@ magnet:?xt=urn:btih:960B8C42948A21088D3F07E210717BFC7F4C5DE7
 ```bash
 magnet:?xt=urn:btih:F74157DE9C3AF4F28D7EC83D77EA35F4BBD65885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

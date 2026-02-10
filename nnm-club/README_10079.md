@@ -1,57 +1,3 @@
-###  Публикация: 956368   (330387) от 14.11.2015
-
-VA - From Sunset to Sunrise Vol 1 20 Midnight Lounge Tunes (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gold Lounge - Vinile
-02. Himalaya - Incred Part
-03. Noban - Venus Mont
-04. Grace Rhythm - Caprice de mieu(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A93A12D4623E620B92F633BD3301A6B9D426C7D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956280   (330388) от 14.11.2015
-
-VA - Luxury Christmas Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silver - Robert Manos
-02. Laid Back - Bassface Sascha & JFC
-03. Go (Radio Remix) - Naomi feat. Selda Kaya
-04. For One Day Or Forever - Acoustique Parfum(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:01:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E3A0ABB327D667FAD3E929B4282DF92B005282
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956247   (330389) от 14.11.2015
 
 Ali McGregor - A Very Jazzamatazz Christmas (2015) [FLAC|tracks+.cue|WEB-DL]<Jazz>
@@ -75,6 +21,8 @@ Ali McGregor - A Very Jazzamatazz Christmas (2015) [FLAC|tracks+.cue|WEB-DL]<Jaz
 ```bash
 magnet:?xt=urn:btih:6C32C85DDD256D308DDDF341DA3DD531B2B32A26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +51,8 @@ Shorty Rogers and His Giants - Jazz Waltz (1962) 2013, Warner[FLAC|tracks+.cue]<
 magnet:?xt=urn:btih:6FA25E13EC1A1E4CF9352C41D9BAF7782470596E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +79,8 @@ Ronnie Mathews Trio - Selena's Dance (1988) 2015, Timeless Records[FLAC|tracks+.
 ```bash
 magnet:?xt=urn:btih:7E85A240CD3EEC6F2FCBA37AAB34E8980C849FF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +109,8 @@ Alex Pangman - New (2015) [FLAC|image+.cue]<Vocal Jazz>
 magnet:?xt=urn:btih:2D361A85CD2E5DEAAD7E1FD1177B50FE8F05DF5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +134,8 @@ magnet:?xt=urn:btih:2D361A85CD2E5DEAAD7E1FD1177B50FE8F05DF5E
 ```bash
 magnet:?xt=urn:btih:CB970262B141F465EBC5C96F59CF432F1BB16C7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +161,8 @@ magnet:?xt=urn:btih:CB970262B141F465EBC5C96F59CF432F1BB16C7F
 magnet:?xt=urn:btih:65FFE8613BCAD79E92A38CFE5D4419905C1599A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +187,8 @@ magnet:?xt=urn:btih:65FFE8613BCAD79E92A38CFE5D4419905C1599A1
 magnet:?xt=urn:btih:581E724BD25E14919AB4CF5CE36F71FA38F66D27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +212,8 @@ magnet:?xt=urn:btih:581E724BD25E14919AB4CF5CE36F71FA38F66D27
 ```bash
 magnet:?xt=urn:btih:36BF6061B33F06BDB380DD3FB682CEDB2ABF2B37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +240,8 @@ magnet:?xt=urn:btih:36BF6061B33F06BDB380DD3FB682CEDB2ABF2B37
 magnet:?xt=urn:btih:E3DCD88D93B68626A681264B0049DA63F9785F4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +267,8 @@ magnet:?xt=urn:btih:E3DCD88D93B68626A681264B0049DA63F9785F4D
 magnet:?xt=urn:btih:ED0B18CE3066E605C44780901E9DE242381077B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +292,8 @@ magnet:?xt=urn:btih:ED0B18CE3066E605C44780901E9DE242381077B3
 ```bash
 magnet:?xt=urn:btih:51BEC7F2327CD6DC99643DC75E7FE5DFFC63604C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +319,8 @@ magnet:?xt=urn:btih:51BEC7F2327CD6DC99643DC75E7FE5DFFC63604C
 magnet:?xt=urn:btih:07C6BC57003D17E7861DABBA8DB33CC71A7E3699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +344,8 @@ magnet:?xt=urn:btih:07C6BC57003D17E7861DABBA8DB33CC71A7E3699
 ```bash
 magnet:?xt=urn:btih:24707B22037A94131C9E91A517F78ABBB681CDFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +371,8 @@ Torque Pro OBD2 v1.12.100 [Ru/Multi]
 magnet:?xt=urn:btih:014BB6125FA4DF562116B8F0B135A6A0618D61B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +396,8 @@ magnet:?xt=urn:btih:014BB6125FA4DF562116B8F0B135A6A0618D61B2
 ```bash
 magnet:?xt=urn:btih:F78D4F96C01EC3EE734E0C6FD555BCB6ECBFE995
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +425,8 @@ magnet:?xt=urn:btih:F78D4F96C01EC3EE734E0C6FD555BCB6ECBFE995
 magnet:?xt=urn:btih:A23A4A87170E8C0A246F7DC83AEA6BE5D18E00CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +450,8 @@ magnet:?xt=urn:btih:A23A4A87170E8C0A246F7DC83AEA6BE5D18E00CE
 ```bash
 magnet:?xt=urn:btih:3469F69E035318631A5998B3E9EFDEB16BE3A45C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +477,8 @@ magnet:?xt=urn:btih:3469F69E035318631A5998B3E9EFDEB16BE3A45C
 magnet:?xt=urn:btih:4A823EA8D3ABD5CA1B6E38DFAEECEEB2DBBDE182
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +502,8 @@ magnet:?xt=urn:btih:4A823EA8D3ABD5CA1B6E38DFAEECEEB2DBBDE182
 ```bash
 magnet:?xt=urn:btih:4CDEA301E304EBE96AF864A5563D6B3E932DE7D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +529,8 @@ Prodeus — привычный шутер от первого лица, пере
 magnet:?xt=urn:btih:DAE0F0AC7FDBC28675AA569D4DAA07A6186D386A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +554,8 @@ magnet:?xt=urn:btih:DAE0F0AC7FDBC28675AA569D4DAA07A6186D386A
 ```bash
 magnet:?xt=urn:btih:D30E1B5B375C0BDEDC1DB7937AF78EF37697CF4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +581,8 @@ magnet:?xt=urn:btih:D30E1B5B375C0BDEDC1DB7937AF78EF37697CF4F
 magnet:?xt=urn:btih:B363AA9BDCE15062A374C3F206DB04CFDCDBCAAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +606,8 @@ magnet:?xt=urn:btih:B363AA9BDCE15062A374C3F206DB04CFDCDBCAAA
 ```bash
 magnet:?xt=urn:btih:F424C98A9E9BE024CE320F2AC153EC7182B9BBAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +633,60 @@ magnet:?xt=urn:btih:F424C98A9E9BE024CE320F2AC153EC7182B9BBAF
 ```bash
 magnet:?xt=urn:btih:E635BB17512737274CAF0F3E66E8AB4979E68575
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580160   (330469) от 01.10.2022
+
+Ирония судьбы в Голливуде / About Fate (2022) WEB-DL [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марго и Гриффин вполне могут стать идеальной парой. Единственная проблема в том, что они никогда не встречались, и оба собираются связать себя узами брака с другими людьми. Но все это вот-вот изменится, когда судьба сведет их вместе и откроет глаза на настоящую любовь.Производство: США / Aldamisa Entertainment, American International Pictures (AIP), Contentious MediaЖанр: мелодрама, комедияРежиссер: Марюс ВайсбергАктеры: Эмма Робертс, Томас Манн, Мэделин Петш, Льюис Тан, Бритт Робертсон, Фикайл Кани, Джаред Тройло, Шерил Хайнс, Дэннис Старосельский, Меган ХолавэйПеревод: Дублированный (Кириллица)Язык озвучки: русский, английскийСубтитры: английские (Forced, Full, SDH)Продолжительность: 01:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C09778F19F52355D1BC8E493774966531D64C710
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 175978   (330470) от 01.10.2022
+
+Рождение Нации / The Birth of a Nation (1915) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_330470.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эту трехчасовую киноэпопею Гриффит вложил все свои знания в области режиссуры. Фильм "Рождение нации" (1915), в котором прослеживалась история отношений двух американских семей на протяжении Гражданской войны и последующего периода восстановления страны, стал наиболее значительной картиной из всех, снятых в Америке до того времени. Особенно зрелищными (   Читать дальше...   )Производство: СШАЖанр: Драма, военный, историяРежиссер: Дэвид Уорк ГриффитАктеры: Lillian Gish, Mae Marsh, Henry B. Walthall, Ralph Lewis, George Siegmann, Walter Long, Spottiswoode AitkenПеревод: Одноголосый закадровыйПродолжительность: 03:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCC2F596E0D3FC5F689308C878806D8EF2ABF190
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

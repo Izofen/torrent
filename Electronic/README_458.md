@@ -22,6 +22,8 @@ VA - Love Hits Vol.1 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 magnet:?xt=urn:btih:317FBDE4990573D139034E1F0DCC42292E0E9534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Fifty Shades Darker - Music For A Sensual Evening (2017) [MP3|320 Kbps] <Do
 ```bash
 magnet:?xt=urn:btih:CC26A8A2DBE0310A1BED5D2E978EE9710AED6AB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Dance 2017 (Armada Music) (2017) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:19026057ECE3B8470649E8E6555CD00C232A09B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Best Of Rave 2 (Box Set) (1995) Low Price Music [FLAC|Lossless|tracks] <Bre
 ```bash
 magnet:?xt=urn:btih:D5529DFD2F70C6E0183727D42B5BD7C40E6D757F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Romantic Music: Romantic Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillou
 magnet:?xt=urn:btih:33B4890FE2F84C662DBFFDEC768ADF239D75FE28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Big Room Party Here (2017) [MP3|320 Kbps] <House, Electro House, Big Room>
 ```bash
 magnet:?xt=urn:btih:D82DE1DD8D3DDB521337054FE4E1EE20F5CC08E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Vocal House Sessions Vol.14 (2017) [MP3|320 Kbps] <House, Vocal House>
 magnet:?xt=urn:btih:7A610E1D6BEAE2D66A8B898982CB10B12052A4A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Urban Lounge Room Vol.4 (The Best In Lounge, Downtempo Grooves & Chill Out)
 ```bash
 magnet:?xt=urn:btih:F8E109826442116E73666C0BA1ECBBED695EDD91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - The Dark Side Of The Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 magnet:?xt=urn:btih:8780758E998CA3A0B3A72CBAD66F9159AB187F14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Lounge Tributes to Love (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:C1CA66EFB35E3CA9B189F3A033304C57F8E0C89A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - What's Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:2D0294F31AEDCEB4CAE4A14469C1583301542004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Cosy Winter Lounge Vol.2 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 ```bash
 magnet:?xt=urn:btih:84AA94B7640991B270CD77197DAD2FC1E080A077
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - City of Souls: Lounge Collection (2017) [MP3|320 Kbps] <Downtempo, Chillout
 magnet:?xt=urn:btih:109A736B5E88C1EE5850AFC6727C384BC8D8F9A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Moment Of Chill Vol.2 (Finest Selection Of Music To Chill) (2017) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:B8F0511F9708D6A3A7C929934E9114BAA87F6617
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Down For Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:6AF84EFDB14756E46D17AD4D717B2B5EADA09C32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Smooth Island Chill  Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loun
 ```bash
 magnet:?xt=urn:btih:6CEEB1EA70BDEA88014764B46937CC5C9C1421CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - The White Beach Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:2992629208707B2D53D1FB7FF883B8DD2820C5B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Physical Dreams - Cosmos (2016) [MP3|320 кб/с] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:61A8C491FAEBE6D640B7D4B32F301D625F412F5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Easily Embarrassed - EE4 (A/B/C) (2016) [FLAC|Lossless|WEB-DL|tracks] <Psychill,
 magnet:?xt=urn:btih:66836357B70F527CD18186A98E8B7F4DF4C778A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Stendeck - Discography 9 Releases (2002-2021) Geska Records, Tympanik Audio, Hym
 ```bash
 magnet:?xt=urn:btih:0C34EDE251C2E4D5A0EA65E7919BE6200A46780E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Lovely Mood Music presents: Chillaxing Time Series - 10 Releases (2013-2021
 magnet:?xt=urn:btih:8ADAE6FD162FB067B86E73886842A2A646BE2422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +631,8 @@ VA - The Best Of 2016 (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, D
 magnet:?xt=urn:btih:19783AF607372BE7869BC5AEBE806C25F67F8184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ Anugama - Shamanic Dream II (2000) [FLAC|Lossless|tracks + .cue] <New Age,Medita
 ```bash
 magnet:?xt=urn:btih:238711076A43029F0D48AA91215EF28A24843693
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ VA - The Shadow Masters: Drum'n'Bass (2000) Shadow Records [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:8D7FEF5761FEBBD2DED9D3B665C8F19877DD1902
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ VA - Dance Essentials (Armada Music) (2017) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:CCDC747A6A29726CAC2410E63A3F15B5AD600F96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ Activa @ Beachclub Bronze, Luminosity Beach Festival, Netherlands 2021-08-20(128
 ```bash
 magnet:?xt=urn:btih:2EB29DB2BBB7ACDCCBCDC8057B03BB6DC103778C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

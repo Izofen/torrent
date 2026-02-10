@@ -19,6 +19,8 @@ Sen to Chihiro no Kamikakushi / Spirited Away / Унесённые призра�
 magnet:?xt=urn:btih:6EFF0D8560D4F4AB35A3F56C9F79A17E79FE216A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:6EFF0D8560D4F4AB35A3F56C9F79A17E79FE216A
 ```bash
 magnet:?xt=urn:btih:163372F3F938928B800F02AE93EB16B0CEDE11AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Diablo - это action/RPG, в которой вам предстоит прол
 magnet:?xt=urn:btih:8DAFAC10EB75D27CCAB8C49FFDE2BC26768047D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:8DAFAC10EB75D27CCAB8C49FFDE2BC26768047D2
 magnet:?xt=urn:btih:60D81A0DFEF90EC1D08A1464921291D696AAE1E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:60D81A0DFEF90EC1D08A1464921291D696AAE1E8
 ```bash
 magnet:?xt=urn:btih:2998027B1409C332B6798B29F2C6BECAB2196AC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:2998027B1409C332B6798B29F2C6BECAB2196AC3
 magnet:?xt=urn:btih:229C7F3D990B6122ED90E04BD5EBFA27DDABC24F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Acronis True Image — это интегрированный пакет прог
 ```bash
 magnet:?xt=urn:btih:FC476B01E0DE0119C2E0E4AE959E248D89F2F38B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:FC476B01E0DE0119C2E0E4AE959E248D89F2F38B
 magnet:?xt=urn:btih:145A6653B31705F382245E773A5A921DEAF3370D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Jack to Mame no Ki / Jack and the Beanstalk / Джек в Стране Чуде�
 ```bash
 magnet:?xt=urn:btih:94C5AF054DAADE5A570D758D15705D3009E25256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:94C5AF054DAADE5A570D758D15705D3009E25256
 magnet:?xt=urn:btih:ADAF6AFBA4CF3693B3A2C7418FDB553AA263D794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ NVIDIA GeForce Game Ready Driver 417.01 - WHQL [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:06AB16B0188B1BADF27AC744FC48384565F2AC78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Elemental: War of Magic / Elemental: Войны магов (2010) [Ru] (1.09) Re
 magnet:?xt=urn:btih:D22D24E7D34ED532A369E1007B5D4A93F6A2818A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:D22D24E7D34ED532A369E1007B5D4A93F6A2818A
 ```bash
 magnet:?xt=urn:btih:E2FCE9E4B55A6D24B1E081CFFDBCC21A06BC2313
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Warlock: Master of the Arcane - новая стратегическая игра
 magnet:?xt=urn:btih:61925F511A2F2433FC483A9019B460AC24715458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Grotesque Tactics: Evil Heroes / Grotesque Tactics: Настоящие него�
 ```bash
 magnet:?xt=urn:btih:7795C41F5CBE5015E1F3ECD983FB655D900A9166
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:7795C41F5CBE5015E1F3ECD983FB655D900A9166
 magnet:?xt=urn:btih:757CC1FE03168143A26D9F551C4719D339B3D0F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Lost: Via Domus / Lost. Остаться в живых (2008) [Ru/En] (1.0) Lice
 ```bash
 magnet:?xt=urn:btih:F5BE060FACD395F7D0268C02471A9ABADB95FB79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ VA - Global Chillounge Revolution, Vol. 1 (2016) [MP3|320 Kbps] <Downtempo, Chil
 magnet:?xt=urn:btih:CD382452634B8158AA230D949F8ED06957838F36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ Downie – это простейший видео-загрузчик. Подде
 ```bash
 magnet:?xt=urn:btih:8F07AA7C0C283A9C2053BE9EE88C5B0D6C4F9294
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ VA - Now Sound Year Greetings (2016) [MP3|320 Kbps] <Club, Bass Music, Synthpop,
 magnet:?xt=urn:btih:E185D3A6AF50BEB32A24B00642DC192E054C39CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ KCNcrew Pack  -  это огромнейший сборник серийнико
 ```bash
 magnet:?xt=urn:btih:350CF8634F9B16BFBA0792952B1F6A091FF84470
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ VA - Global Chillounge Revolution, Vol. 3 (2016) [MP3|320 Kbps] <Downtempo, Chil
 magnet:?xt=urn:btih:6E68FBF9DC3228115264C67A2163C5CAC23A2799
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ VA - Lonely Nights Beats Vol.1 (The Beat For Lonely Hours) (2016) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:619515DB27BA25268A6F54FB5639252D937D274E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ Tyron - Rebels Shall Conquer (2016) [MP3|320 Kbps] <Heavy Metal ,Thrash Metal>
 magnet:?xt=urn:btih:F915C9EB7AF58E466D30CABC6575DBCB04E5FE62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ MarkdownD предлагает возможность форматировани
 magnet:?xt=urn:btih:23BECB39B0E6BDD23FA7D6E911FBEDFD79C78900
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ VA - Топ 200 Музыкайф Зарубежный 7 (2010) [MP3|128 kbps]<Po
 ```bash
 magnet:?xt=urn:btih:F3E0E63232E5A026BC222D22AB2890B36423F444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

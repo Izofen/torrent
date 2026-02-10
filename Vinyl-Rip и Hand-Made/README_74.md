@@ -22,6 +22,8 @@ A4. Heart's Grown Cold (4:15)(   Читать дальше...   )Произво�
 magnet:?xt=urn:btih:63C6F44FF58D39BCDEEF57E41650180BF44B7744
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ A4. Legion Of Aliens (3:37)(   Читать дальше...   )Производ�
 ```bash
 magnet:?xt=urn:btih:42E6D37D98E03BEF65A23D665C2EF3794717E9A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Richard Clayderman - 7 Albums (1978-1984) [FLAC 2.0|24/192|image + .cue|Vinyl-Ri
 magnet:?xt=urn:btih:4F00D51FEE3F07827505FF8324B11EA85C66953D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Gamma Ray — немецкая метал-группа, созданная в 19
 ```bash
 magnet:?xt=urn:btih:8EE1918D93BF6902C636FB2CDFD2DE185537AA30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Shinedown — американская рок-группа, основанная
 magnet:?xt=urn:btih:D7D23DD6DAF667EA772FC0C16774500CB38BF9AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:D7D23DD6DAF667EA772FC0C16774500CB38BF9AE
 ```bash
 magnet:?xt=urn:btih:119B0A483678636826F666896191C10049CE198E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ A4. Turning In Circles (3:32)(   Читать дальше...   )Произво�
 magnet:?xt=urn:btih:13DFB3F1B800C00EBC337220436272A56DFF494D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ A4. Tonight (3:40)(   Читать дальше...   )Производство: 
 ```bash
 magnet:?xt=urn:btih:E200C30D544F3F807D2EDBB1474285307C00418B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Car-Man (Кар-Мэн) - Кармания (Carmania) (1992) [FLAC 2.0|96/24|ima
 magnet:?xt=urn:btih:EE146ED843CC42F0767552426FD7ACAE57B11BCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ VA - Hits Of BBC And Alaska Records 1 & 2 (1977) [FLAC 2.0|96/24|image+.cue|Viny
 ```bash
 magnet:?xt=urn:btih:9B78BC52F3E8C73FC99C4F6238D2A72A9E6DCA86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +306,8 @@ Unisonic — немецкая метал-супергруппа, образов�
 ```bash
 magnet:?xt=urn:btih:49434313FE80F9B7F217FC3C7CF1110FFFBF39C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +336,8 @@ A4 Weird Of Hermiston(   Читать дальше...   )Жанр: Art Rock, Pro
 magnet:?xt=urn:btih:031AC6E8CA59882F1C8ED132CF6C5FF5BACC5B91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +363,8 @@ Down — метал-группа из США, основанная в 1991 го�
 ```bash
 magnet:?xt=urn:btih:735A1C9C5D74E5EAACCD17ECD327F5DE6C9684C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +393,8 @@ Genesis - Anthology 1970-1998 (2007) [FLAC 2.0|88.2/24|tracks|SACD] <Progressive
 magnet:?xt=urn:btih:0C1389C8554C8F5BC14F2F0ACA1441F54CFCFFCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +421,8 @@ Peter Gabriel - Up (2002) [FLAC 2.0|88.2/24|tracks|SACD] <Progressive Rock, New 
 ```bash
 magnet:?xt=urn:btih:B068C1F660AB66DB123712053D37A44DE2A8A52E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +451,8 @@ A3 Carnival(   Читать дальше...   )Жанр: Jazz, Big Band, SwingП
 magnet:?xt=urn:btih:F62F7E442900F898B14CE8CC31E4B9BC3A627BEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +479,8 @@ A4 Filipino Baby(   Читать дальше...   )Жанр: Folk, CountryПр�
 ```bash
 magnet:?xt=urn:btih:238BDC466E87923AECC91BE43A9655112EB54803
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +509,8 @@ A4. Слепой (1:57)(   Читать дальше...   )Жанр: Рок / А
 magnet:?xt=urn:btih:506E6A04F5BB2BBB92AFF19BB721F51E5BE209C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +537,8 @@ Walter Trout - Survivor Blues (2019) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Blues R
 ```bash
 magnet:?xt=urn:btih:3CE2E97977248B4A73A38A5F2ED7A72A00288B53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +567,8 @@ Thunderstone — финская англоязычная пауэр-метал-�
 magnet:?xt=urn:btih:2BFC7CA10275ED994DED6D706FF5CB9928819E4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +595,8 @@ A4. A Boat Lies Waiting (4:34)(   Читать дальше...   )Произво
 ```bash
 magnet:?xt=urn:btih:D2BDE3AB596AA4C8412E5D38A8415926E557351D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +625,8 @@ Written-By – D. Gerard, H.R. Barnes, R. BernetЖанр: Pop/ChansonПродо�
 magnet:?xt=urn:btih:0AEE0E8208925C43244D34F399E72D0F17804CC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +653,8 @@ A4. Drive (3:54)(   Читать дальше...   )Жанр: RockПродолж
 ```bash
 magnet:?xt=urn:btih:10474A267B5E17CB39D435849E7E70C776752E93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +683,8 @@ A4. Highway For Fools (3:14)(   Читать дальше...   )Производ
 magnet:?xt=urn:btih:B04EFF9E43E8745087B9197BBE12DCA581528BA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +712,8 @@ A4 The Same Parents(   Читать дальше...   )Жанр: New Age, Ambien
 magnet:?xt=urn:btih:C54C16F10D4881DA39F7E927111DE48A6126A9D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +740,8 @@ A4 Someday You'll Be Sorry(   Читать дальше...   )Жанр: Electron
 ```bash
 magnet:?xt=urn:btih:A767A155879B45C94EEE9D2CDCDD17E3280DCA4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Stellaris (2016) [Ru/Multi] (2.5.1/dlc) License GOG [Galaxy Edition]
 ```bash
 magnet:?xt=urn:btih:014DD01DA0B0B0E870FAC1CD8D2D8D207E69258E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:014DD01DA0B0B0E870FAC1CD8D2D8D207E69258E
 magnet:?xt=urn:btih:822758EB2248EC4DA53DABD38F5DFC988FB3E573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Wise Care 365 – программный пакет, предназначенн�
 magnet:?xt=urn:btih:9C96500ED41EDBD2071A4113D67A4159293DD4CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:9C96500ED41EDBD2071A4113D67A4159293DD4CB
 ```bash
 magnet:?xt=urn:btih:E7EE67BC735400C519A46C30154F836B7CA70379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:E7EE67BC735400C519A46C30154F836B7CA70379
 magnet:?xt=urn:btih:3E3E0A34F735449819E0340C449C0285791750C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:3E3E0A34F735449819E0340C449C0285791750C2
 magnet:?xt=urn:btih:755F3A2D4BADF5121A6F747D71F6C6AE95D42F7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:755F3A2D4BADF5121A6F747D71F6C6AE95D42F7B
 magnet:?xt=urn:btih:16D6F088059B09AAAE310D4DD783DC82510918CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Discovery: Почему? Вопросы мироздания. Как дейст�
 ```bash
 magnet:?xt=urn:btih:718CD96C89457655919B35ABAFF10C66B594B68E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Charlie Barnet - 1940 (2003) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big 
 magnet:?xt=urn:btih:FF625380E4A345DB0A649A79668E10D6FA792789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:FF625380E4A345DB0A649A79668E10D6FA792789
 ```bash
 magnet:?xt=urn:btih:950149D016B8571D03C4064675AADD87184C5659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:950149D016B8571D03C4064675AADD87184C5659
 magnet:?xt=urn:btih:17B74D167B3CB6436C292ECBA0FF3BD79DE5A4CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:17B74D167B3CB6436C292ECBA0FF3BD79DE5A4CB
 ```bash
 magnet:?xt=urn:btih:4C9F0404AE4D484C043EBA9303E7A7FD49F0C39E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:4C9F0404AE4D484C043EBA9303E7A7FD49F0C39E
 magnet:?xt=urn:btih:B113F5BB4F3406ECF00A2E8CF810A3A376D2D7B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Duplicate File Finder - утилита, которая находит дубли
 ```bash
 magnet:?xt=urn:btih:6404A0B69579E3ACFAA9BB48F0F342765BC87B8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ VA - A Day to Relax: Chillout Your Mind (2021) [AAC|~331 Kbps] <Lounge, Chill Ou
 magnet:?xt=urn:btih:72670051A1DD79C4D478ECB70F959414B013CDB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Lost Grimoires: Stolen Kingdom / Утерянные Гримуары: Краде
 ```bash
 magnet:?xt=urn:btih:FD29B5C05ED3E64C43F06A76C43091C7526D7B14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ AnVir Task Manager предоставляет подробную информа�
 magnet:?xt=urn:btih:7563962F04BE6812041702B35D2E508BD012F11C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:7563962F04BE6812041702B35D2E508BD012F11C
 magnet:?xt=urn:btih:928859F008146EA81A9F8CF2FA7BFEBD2DE176A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ Splash – проигрыватель мультимедийных файлов,
 ```bash
 magnet:?xt=urn:btih:2B272F1DA452A84C133827EAEFC472F49190F2F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ VA - Swing Sisters, Volume One (2021) [AAC|~318 Kbps] <Electro Swing, Nu Jazz, S
 magnet:?xt=urn:btih:943425734F51EB110719B3BE3ECAF3B6E32BE0F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:943425734F51EB110719B3BE3ECAF3B6E32BE0F1
 magnet:?xt=urn:btih:AE047A79EACC03DADA3D6C1AB7461449F058C775
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:AE047A79EACC03DADA3D6C1AB7461449F058C775
 ```bash
 magnet:?xt=urn:btih:CA54319791E163FF42C1A296116EC9C51BFB4189
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:CA54319791E163FF42C1A296116EC9C51BFB4189
 magnet:?xt=urn:btih:AAC0585B0345A71006DE184186475A1E57228FAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:AAC0585B0345A71006DE184186475A1E57228FAA
 magnet:?xt=urn:btih:56DE00235754D6FD5A26ACA67C269A3BB0D70639
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:56DE00235754D6FD5A26ACA67C269A3BB0D70639
 ```bash
 magnet:?xt=urn:btih:088B10530501E593C7685CAC12D3B418AD032D10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

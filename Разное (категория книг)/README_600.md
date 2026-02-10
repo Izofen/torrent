@@ -1,3 +1,31 @@
+###  Публикация: 1374466   (869091) от 12.04.2020
+
+Игумения Евпраксия (Инбер) | Дарим тебе дыхание: Рассказы о жизни рядом со старцем Наумом (2019) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869091.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой небольшой книге автор, игумения Евпраксия, рассказывает о жизни рядом со старцем, лаврским архимандритом Наумом (Байбородиным; 1927–2017). Много всего удивительного, чудесного происходило постоянно, но разве можно привыкнуть к чуду… А ведь самым большим чудом был сам Батюшка.
+
+Отец Наум был живым примером святости, примером невозможного для человека наших (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8969A457FCC5D80A06D10AE12A756714215CC190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 644700   (869143) от 16.04.2013
 
 Л. Аксенова | Современное виноградарство для семьи и заработка [2012] [PDF]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:5F1934D5CFF6CA98633EAADB6D696324555D1AD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:5F1934D5CFF6CA98633EAADB6D696324555D1AD7
 magnet:?xt=urn:btih:4AAACF237084CE7BCC8D04F40325CA90E4A88FCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:4AAACF237084CE7BCC8D04F40325CA90E4A88FCE
 ```bash
 magnet:?xt=urn:btih:B954878A3556F702EDCC46CCA2F76547BE4ACE76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +125,8 @@ magnet:?xt=urn:btih:B954878A3556F702EDCC46CCA2F76547BE4ACE76
 magnet:?xt=urn:btih:ED53C587C1C4960069A5B24F8B92E73DF9ED53CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +150,8 @@ magnet:?xt=urn:btih:ED53C587C1C4960069A5B24F8B92E73DF9ED53CA
 ```bash
 magnet:?xt=urn:btih:66EAFB5F1B8C6E9AE762B074CEBFB7EA197E7356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +178,8 @@ magnet:?xt=urn:btih:66EAFB5F1B8C6E9AE762B074CEBFB7EA197E7356
 magnet:?xt=urn:btih:B4AEFD78918F15D6212D5BDB890AC02A1A650E78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +203,8 @@ magnet:?xt=urn:btih:B4AEFD78918F15D6212D5BDB890AC02A1A650E78
 ```bash
 magnet:?xt=urn:btih:A3E7B8836B7A1B184120F4B05292D8CC3A528957
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +233,8 @@ magnet:?xt=urn:btih:A3E7B8836B7A1B184120F4B05292D8CC3A528957
 magnet:?xt=urn:btih:4E52309AE394D88F7AB066DA04B836098D3C6A60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +258,8 @@ magnet:?xt=urn:btih:4E52309AE394D88F7AB066DA04B836098D3C6A60
 ```bash
 magnet:?xt=urn:btih:427BD6A711AD62DF9DCD802BD1044C486BB93B31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +285,8 @@ magnet:?xt=urn:btih:427BD6A711AD62DF9DCD802BD1044C486BB93B31
 magnet:?xt=urn:btih:13740632C5F384F849B51D81F6DAD8F4C3DED180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +310,8 @@ magnet:?xt=urn:btih:13740632C5F384F849B51D81F6DAD8F4C3DED180
 ```bash
 magnet:?xt=urn:btih:1613BEC56336BBA6652C70C299CAB6A6B7B23BA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +337,8 @@ magnet:?xt=urn:btih:1613BEC56336BBA6652C70C299CAB6A6B7B23BA4
 magnet:?xt=urn:btih:B284A28988E02ED738AE1E5F109372CBD9903A2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +363,8 @@ magnet:?xt=urn:btih:B284A28988E02ED738AE1E5F109372CBD9903A2E
 magnet:?xt=urn:btih:9D1C2E7B4415FCF506EFE44A96525F7F7BA19157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +388,8 @@ magnet:?xt=urn:btih:9D1C2E7B4415FCF506EFE44A96525F7F7BA19157
 ```bash
 magnet:?xt=urn:btih:3E49DC6CBAAC6541DA41918E8E6920ABA6839068
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +416,8 @@ magnet:?xt=urn:btih:3E49DC6CBAAC6541DA41918E8E6920ABA6839068
 magnet:?xt=urn:btih:708E64BB3C7C6FDD20B440CA87A3CC2E9828E3A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +442,8 @@ magnet:?xt=urn:btih:708E64BB3C7C6FDD20B440CA87A3CC2E9828E3A4
 ```bash
 magnet:?xt=urn:btih:0851E5D2864D128E1A9B50D8DEBD39BF39142C99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +471,8 @@ magnet:?xt=urn:btih:0851E5D2864D128E1A9B50D8DEBD39BF39142C99
 magnet:?xt=urn:btih:99827CD5559365EB21B1F4757230EE3EE02392C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +496,8 @@ magnet:?xt=urn:btih:99827CD5559365EB21B1F4757230EE3EE02392C1
 ```bash
 magnet:?xt=urn:btih:EDED18837DAFF5F6F3769A9EF4FD8E048A47A6F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +523,8 @@ magnet:?xt=urn:btih:EDED18837DAFF5F6F3769A9EF4FD8E048A47A6F2
 magnet:?xt=urn:btih:F77A93C159E0A5B9F87394205FE2675DAA35D606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +548,8 @@ magnet:?xt=urn:btih:F77A93C159E0A5B9F87394205FE2675DAA35D606
 ```bash
 magnet:?xt=urn:btih:641311CA0C0FEB23D1C745829B95E4D692A60BBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +575,8 @@ magnet:?xt=urn:btih:641311CA0C0FEB23D1C745829B95E4D692A60BBF
 magnet:?xt=urn:btih:ED9C2EE94EC3DCFD312A963151719627F10E1028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +600,8 @@ magnet:?xt=urn:btih:ED9C2EE94EC3DCFD312A963151719627F10E1028
 ```bash
 magnet:?xt=urn:btih:0A70D781297F43C270C3647AFDE5F4B9C419D048
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +627,8 @@ magnet:?xt=urn:btih:0A70D781297F43C270C3647AFDE5F4B9C419D048
 magnet:?xt=urn:btih:2297B17A36A70F1CE3D6DEBA09F32B57F82C254D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +652,8 @@ magnet:?xt=urn:btih:2297B17A36A70F1CE3D6DEBA09F32B57F82C254D
 ```bash
 magnet:?xt=urn:btih:9736526DD27BDE8E6132BE21C5EB29FD4441D5EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +679,7 @@ magnet:?xt=urn:btih:9736526DD27BDE8E6132BE21C5EB29FD4441D5EF
 magnet:?xt=urn:btih:AAD6659356CBCAB453DF3EACB9A33A883FA7B0A4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496834   (869644) от 19.09.2021
-
-Наталья Керре | Вернуть вкус к жизни. Что делать, когда вроде всё хорошо, но счастья и радости мало (2021) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга не о том, как заработать миллион, моментально достичь процветания в бизнесе и очаровать всех людей на пару километров вокруг. Она о том, как понять, чего вы хотите на самом деле, и разрешить себе стремиться к цели, пусть даже другие крутят пальцем у виска. Ее автор, психолог-консультант Наталья Керре, поможет вам понять и полюбить самих себя – настоящих, (   Читать дальше...   )Жанр: Личная эффективность, О психологии популярноФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CF527F486F4AE4D403722DFF85AFBFAB201651B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

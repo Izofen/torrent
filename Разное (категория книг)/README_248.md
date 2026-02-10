@@ -1,3 +1,29 @@
+###  Публикация: 1330113   (345747) от 08.10.2019
+
+Диакон Илья Кокин | Страх возводит стены, любовь строит мосты (2018) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_345747.jpg" />
+</div>
+
+
+###  Подробнее
+
+На протяжении многих лет автор читал лекции и проводил беседы со старшеклассниками и студентами. Оказалось, что из всего многообразия тем слушателей сильнее всего волновали две: тема страха (и всего, что с ним связано, — тревоги, смерти и т. п.) и тема любви (в первую очередь между мужчиной и женщиной). Отталкиваясь от этих двух тем, разбирая наши главные страхи (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41F3A39EDB9B6CB40B15230F025CAD9B04413C41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257545   (345790) от 26.10.2018
 
 Р. Д. Гусейнов | Ярмарка клеветы (1984) [DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7A7F3CFC4543BDE1DFB2608EF59B20250A2AF7A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:7A7F3CFC4543BDE1DFB2608EF59B20250A2AF7A5
 magnet:?xt=urn:btih:984B1F43F8CE2DDE99E8518E811CC6CBFB6C107F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:984B1F43F8CE2DDE99E8518E811CC6CBFB6C107F
 ```bash
 magnet:?xt=urn:btih:A1FC9BB34BB2534BD8694BD61EE58FB20BD7EDA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:A1FC9BB34BB2534BD8694BD61EE58FB20BD7EDA8
 magnet:?xt=urn:btih:8432A33A0FA42F1703B3545A2AB9D3096C274494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:8432A33A0FA42F1703B3545A2AB9D3096C274494
 magnet:?xt=urn:btih:D7C08354698A9210E83797A54F92F26DD145A321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:D7C08354698A9210E83797A54F92F26DD145A321
 ```bash
 magnet:?xt=urn:btih:F7F7723A697E0F9ED129EE2BDDA9A3FF6B595D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:F7F7723A697E0F9ED129EE2BDDA9A3FF6B595D59
 magnet:?xt=urn:btih:A2BC87D794140E446CC48011DC473114F2DFF84E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:A2BC87D794140E446CC48011DC473114F2DFF84E
 ```bash
 magnet:?xt=urn:btih:8698B8AB7C74FE2A928401B882C38DD47DE0900D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:8698B8AB7C74FE2A928401B882C38DD47DE0900D
 magnet:?xt=urn:btih:29C2764417F0128970954E97DFB772A942BDEAD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:29C2764417F0128970954E97DFB772A942BDEAD7
 ```bash
 magnet:?xt=urn:btih:9D25BBFD96D8A3CC70AD553AAA317FC1F3840690
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:9D25BBFD96D8A3CC70AD553AAA317FC1F3840690
 magnet:?xt=urn:btih:6ABC589DF870B1A74858B378F975E7C594233689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:6ABC589DF870B1A74858B378F975E7C594233689
 ```bash
 magnet:?xt=urn:btih:AADFDBBA3BD934258615D7ED75DB9843F77375B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:AADFDBBA3BD934258615D7ED75DB9843F77375B8
 magnet:?xt=urn:btih:56006DB3996FEA1D9A6953FF692D7CA613E3F222
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:56006DB3996FEA1D9A6953FF692D7CA613E3F222
 ```bash
 magnet:?xt=urn:btih:A18AC587DCDE9B010E7688A6B3728B9130F0E5DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:A18AC587DCDE9B010E7688A6B3728B9130F0E5DD
 magnet:?xt=urn:btih:1EDB42DF131DC5D3577FAA52A6CF8AFF1225168D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:1EDB42DF131DC5D3577FAA52A6CF8AFF1225168D
 ```bash
 magnet:?xt=urn:btih:B39FF6E39DE4463DE8D560E1D7F89D127A12B188
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:B39FF6E39DE4463DE8D560E1D7F89D127A12B188
 magnet:?xt=urn:btih:554D0801FB00B23834F92FB64F820735F8503129
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:554D0801FB00B23834F92FB64F820735F8503129
 ```bash
 magnet:?xt=urn:btih:E3F16BF2690CC3A7D451E72D02A92C0B9EAAACB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:E3F16BF2690CC3A7D451E72D02A92C0B9EAAACB4
 magnet:?xt=urn:btih:D97DA583E9F1243DB5BC74002C02F12D37849EFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:D97DA583E9F1243DB5BC74002C02F12D37849EFB
 ```bash
 magnet:?xt=urn:btih:9673EB7CCB39F783A894E226D1D57E7AB4A5F324
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:9673EB7CCB39F783A894E226D1D57E7AB4A5F324
 magnet:?xt=urn:btih:4BBB5E33A7D1C3FC8C276D1D9AC5BCDB9EE4997F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:4BBB5E33A7D1C3FC8C276D1D9AC5BCDB9EE4997F
 ```bash
 magnet:?xt=urn:btih:3F89789C8506FB3DF536F4629872DBCEAD14913E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:3F89789C8506FB3DF536F4629872DBCEAD14913E
 magnet:?xt=urn:btih:9A1F2E7096D8C5CF87899D40BB8FD29EBBBBA5EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:9A1F2E7096D8C5CF87899D40BB8FD29EBBBBA5EE
 ```bash
 magnet:?xt=urn:btih:8D8A7324DB6B4ECA21DF6AA9D3E71A0ECD77C46F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:8D8A7324DB6B4ECA21DF6AA9D3E71A0ECD77C46F
 magnet:?xt=urn:btih:03B9EC3ED99F17791AFCCA7398C803482572828B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257006   (347353) от 25.10.2018
-
-Дэвид Перлмуттер, Кэрол Колман | Здоровый мозг. Программа для улучшения памяти и мышления (2017) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_347353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Потеря памяти – это не естественное следствие процесса старения, а симптом разрушительных процессов, происходящих в нашем мозге. Хорошая новость заключается в том, что разрушение мозга не следует считать необратимым процессом: вы можете его остановить и даже повернуть вспять. Вам не придется отказываться от мечты или идти на неприятные компромиссы просто потому, (   Читать дальше...   )Жанр: Популярная психология, Личная эффективность, ЗдоровьеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4916E91B56D06B318952CCC8ACCA6D0648843DD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

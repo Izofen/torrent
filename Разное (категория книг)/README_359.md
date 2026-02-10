@@ -1,3 +1,29 @@
+###  Публикация: 1134195   (533266) от 19.06.2022
+
+Дэниэл Ласерда | 2100 асан. Вся йога в одной книге (2017) [PDF]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_533266.jpg" />
+</div>
+
+
+###  Подробнее
+
+"2,100 асан. Вся йога в одной книге" – настоящий подарок для тех, кто готов каждый день открывать для себя новое в йоге. Здесь вы найдете асаны любой сложности и под любое настроение. Просто следуйте за своим сердцем и найдете то, что подойдет именно вам!Жанр: йогаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22540D2BB629EEBEF1CE729813B60B360F515A00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083316   (533271) от 19.06.2022
 
 Арнольд Нельсон, Юко Кокконен | Анатомия упражнений на растяжку (2014) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:D6A2A2825E6BB24C3C973D1B089B46FEA3DCAF3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:D6A2A2825E6BB24C3C973D1B089B46FEA3DCAF3E
 magnet:?xt=urn:btih:AB46B9AF43883896DEDA5305412E0E6D9D1C63E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:AB46B9AF43883896DEDA5305412E0E6D9D1C63E5
 ```bash
 magnet:?xt=urn:btih:E18068DE3414C38EDAB54B855A534156D85B00D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:E18068DE3414C38EDAB54B855A534156D85B00D0
 magnet:?xt=urn:btih:FA233C1FE8989ED924D84CBB4F719DF97AAA48CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:FA233C1FE8989ED924D84CBB4F719DF97AAA48CE
 ```bash
 magnet:?xt=urn:btih:2F2ACA9A444FA49809F12B1841F0544E1A066B10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ C. Fishel, B. Gardner | LogoLounge 4 [2010] [PDF] [En]
 magnet:?xt=urn:btih:3599C590B59C755C513AEEEC33B821B84A859515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:3599C590B59C755C513AEEEC33B821B84A859515
 ```bash
 magnet:?xt=urn:btih:4C79EB0A8EA79B05C87AB864C05BD8F627A488EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:4C79EB0A8EA79B05C87AB864C05BD8F627A488EB
 magnet:?xt=urn:btih:81900B2604C474EF1DCB4DF2ABE0F4166B9B2BF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:81900B2604C474EF1DCB4DF2ABE0F4166B9B2BF8
 ```bash
 magnet:?xt=urn:btih:F019D7B895B59F91C5C0534B5F53FB9266336127
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:F019D7B895B59F91C5C0534B5F53FB9266336127
 magnet:?xt=urn:btih:EAC7F0A3E23C55E157909D15C675BB580901814D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:EAC7F0A3E23C55E157909D15C675BB580901814D
 ```bash
 magnet:?xt=urn:btih:A4C320D046080EA29091D758D62E57830937AE85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:A4C320D046080EA29091D758D62E57830937AE85
 magnet:?xt=urn:btih:4E6BA6A664416970C2794E2A849ED3A296C26D1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:4E6BA6A664416970C2794E2A849ED3A296C26D1C
 ```bash
 magnet:?xt=urn:btih:D3EA3E9C6AF4A1E1C5F61B77BBC986D337C98EEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +393,8 @@ magnet:?xt=urn:btih:D3EA3E9C6AF4A1E1C5F61B77BBC986D337C98EEE
 magnet:?xt=urn:btih:A3F259420D5AE2D842AC91B501C50AD7143D2786
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:A3F259420D5AE2D842AC91B501C50AD7143D2786
 ```bash
 magnet:?xt=urn:btih:219B40790697A089C9C2D67B72CF70338B4AFAD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:219B40790697A089C9C2D67B72CF70338B4AFAD7
 magnet:?xt=urn:btih:A316C2F0D42A7D2B33456B2946CFA36540838371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:A316C2F0D42A7D2B33456B2946CFA36540838371
 ```bash
 magnet:?xt=urn:btih:73F947D4799A8E3E25E0856331ED3F3B39099479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:73F947D4799A8E3E25E0856331ED3F3B39099479
 magnet:?xt=urn:btih:671D16329752A6CC0DE62187CD441AC113026205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:671D16329752A6CC0DE62187CD441AC113026205
 magnet:?xt=urn:btih:352BAE4BD7B24526D8540FE51CAFA3C609D7AD58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +553,8 @@ magnet:?xt=urn:btih:352BAE4BD7B24526D8540FE51CAFA3C609D7AD58
 ```bash
 magnet:?xt=urn:btih:5A5B7C442ED6427C49B82BB368920CC9332018F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +582,8 @@ magnet:?xt=urn:btih:5A5B7C442ED6427C49B82BB368920CC9332018F3
 magnet:?xt=urn:btih:D24671FE368EAC9CA5FA417766C07DEDC3EC8C15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +607,8 @@ magnet:?xt=urn:btih:D24671FE368EAC9CA5FA417766C07DEDC3EC8C15
 ```bash
 magnet:?xt=urn:btih:29A39745D6049B2D71495DC0B1A87743F6009517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +636,8 @@ magnet:?xt=urn:btih:29A39745D6049B2D71495DC0B1A87743F6009517
 magnet:?xt=urn:btih:7E2F7C0348F2F165200D8DE2E90126CB993E4807
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +661,8 @@ magnet:?xt=urn:btih:7E2F7C0348F2F165200D8DE2E90126CB993E4807
 ```bash
 magnet:?xt=urn:btih:D3E2BA427DE7A77836FCE25477CD42FAB51E06FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,30 +689,7 @@ magnet:?xt=urn:btih:D3E2BA427DE7A77836FCE25477CD42FAB51E06FC
 magnet:?xt=urn:btih:BC86F12409ECE96EB2EAE5F8E384235C83124689
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155062   (535188) от 02.08.2017
-
-Валерий Апанасик | 20 великих бизнесменов. Люди, опередившие свое время (2012) [FB2, EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_535188.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этой подарочной книге представлены портреты 20 человек, совершивших революции в современном бизнесе и вошедших в историю благодаря своим феноменальным успехам.
-Истории Стива Джобса, Уоррена Баффетта, Джека Уэлча, Говарда Шульца, Марка Цукерберга, Руперта Мердока и других предпринимателей - это примеры того, что значит быть успешным современным бизнесменом, как (   Читать дальше...   )Жанр: О бизнесе популярно, Биографии и мемуарыФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64A8562274ABE88D704D591F926DD9A8FC3CFFA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

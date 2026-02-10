@@ -1,27 +1,3 @@
-###  Публикация: 1504414   (811980) от 23.10.2021
-
-Золушка и заколдованный принц / Cinderella and the Secret Prince (2018) WEB-DLRip [H.264/720p-LQ] [MVO]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_811980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время королевского бала, Золушка и ее друзья-мыши узнают невероятную тайну: злая ведьма превратила настоящего принца в мышь, а "принц" на королевском балу - подделка. Теперь Золушка и ее друзья отправятся в приключение, чтобы спасти настоящего принца и помочь ему одолеть злые чары.Производство: США / Gold Valley FilmsЖанр: Мультфильм, фэнтези, приключения, семейныйРежиссер: Линн СаузерлендПеревод: Профессиональный, многоголосый закадровый (HDRezka Studio)Субтитры: ОтсутствуютПродолжительность: 01:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1D509948184E809311BE71BB02ADD511EA30C3A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504571   (811989) от 23.10.2021
 
 Кругосветное путешествие Элькано и Магеллана / Elcano y Magallanes. La primera vuelta al mundo (2019) WEB-DLRip [H.264/720p-LQ]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:E1D509948184E809311BE71BB02ADD511EA30C3A
 ```bash
 magnet:?xt=urn:btih:EC7CBC3832EEE0F4D9A0960F1A269A2034084AC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:EC7CBC3832EEE0F4D9A0960F1A269A2034084AC1
 magnet:?xt=urn:btih:9B78FA8A0CFFE534FC5A2718C02B85BFEC899C39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:9B78FA8A0CFFE534FC5A2718C02B85BFEC899C39
 ```bash
 magnet:?xt=urn:btih:246DA144684C54C393DD25D750A1A9B5142FCAEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:246DA144684C54C393DD25D750A1A9B5142FCAEA
 magnet:?xt=urn:btih:7F9142F6F6AC7971AB5526F4AF95354C9843FC95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:7F9142F6F6AC7971AB5526F4AF95354C9843FC95
 ```bash
 magnet:?xt=urn:btih:9BEB7D1F8A4B17D354ACEECE3BE25C04D2828AF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:9BEB7D1F8A4B17D354ACEECE3BE25C04D2828AF0
 magnet:?xt=urn:btih:82203F881181F7EE9C8B05A12F3BFE172FC3A07C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:82203F881181F7EE9C8B05A12F3BFE172FC3A07C
 ```bash
 magnet:?xt=urn:btih:17243F78D1FBC94A53983433827C283CE9C2FB7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:17243F78D1FBC94A53983433827C283CE9C2FB7A
 magnet:?xt=urn:btih:F26107ACD779953EF802A3CA5F6BF1E881B226EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:F26107ACD779953EF802A3CA5F6BF1E881B226EC
 ```bash
 magnet:?xt=urn:btih:5781FAACA8232DB67EFA1CE7226C79F1DE7E300B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:5781FAACA8232DB67EFA1CE7226C79F1DE7E300B
 magnet:?xt=urn:btih:7ABE613DA1BD2A463C20FF923EA343549E719CFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:7ABE613DA1BD2A463C20FF923EA343549E719CFB
 ```bash
 magnet:?xt=urn:btih:9F0ECC0B85EF830ADA7C82811429357942D649AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:9F0ECC0B85EF830ADA7C82811429357942D649AB
 magnet:?xt=urn:btih:9EE542C40F2572F67B0F480460EC8FDBFAE06E13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ magnet:?xt=urn:btih:9EE542C40F2572F67B0F480460EC8FDBFAE06E13
 magnet:?xt=urn:btih:0C948756F02A4A7F920C05B3E8D0F27A937E2F0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +356,8 @@ magnet:?xt=urn:btih:0C948756F02A4A7F920C05B3E8D0F27A937E2F0A
 ```bash
 magnet:?xt=urn:btih:1EE0FDEA4B218C34F34866ADDEBB2D332B65E018
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:1EE0FDEA4B218C34F34866ADDEBB2D332B65E018
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:1EE0FDEA4B218C34F34866ADDEBB2D332B65E018
 ```bash
 magnet:?xt=urn:btih:168768E40FFF8A18A6C1B67667240FD92B488356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:168768E40FFF8A18A6C1B67667240FD92B488356
 magnet:?xt=urn:btih:90284B49039C4975C8614018E84634671127C2BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:90284B49039C4975C8614018E84634671127C2BE
 ```bash
 magnet:?xt=urn:btih:C18D94448B9EC9535DCBEB3609C7D766B80F33E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +488,8 @@ magnet:?xt=urn:btih:C18D94448B9EC9535DCBEB3609C7D766B80F33E9
 magnet:?xt=urn:btih:6F80F8FAB574D2573A986F6B554A512D69A65534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +513,8 @@ magnet:?xt=urn:btih:6F80F8FAB574D2573A986F6B554A512D69A65534
 ```bash
 magnet:?xt=urn:btih:68F63D0456484BB2182A302B659C01E313489526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +540,8 @@ magnet:?xt=urn:btih:68F63D0456484BB2182A302B659C01E313489526
 magnet:?xt=urn:btih:E2B647BB800D78954C201FA6BA69D0210E33B1E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +565,8 @@ magnet:?xt=urn:btih:E2B647BB800D78954C201FA6BA69D0210E33B1E8
 ```bash
 magnet:?xt=urn:btih:BEA17C672A1E03927F9F6A03BFE4D7880478799D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +592,8 @@ magnet:?xt=urn:btih:BEA17C672A1E03927F9F6A03BFE4D7880478799D
 magnet:?xt=urn:btih:ED98D7685C0D4A13FB8AE95B91D8D105ADE3A21B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +618,8 @@ magnet:?xt=urn:btih:ED98D7685C0D4A13FB8AE95B91D8D105ADE3A21B
 magnet:?xt=urn:btih:0D7C824A36D37C362E1C9C590E08D3DAD93B0E09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +643,34 @@ magnet:?xt=urn:btih:0D7C824A36D37C362E1C9C590E08D3DAD93B0E09
 ```bash
 magnet:?xt=urn:btih:44723AF6E38101A25E8F8518136ED08FCDF179DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1503533   (819380) от 19.10.2021
+
+100% Волк / 100% Wolf (2020) BDRip [H.264/720p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наследник семьи оборотней Фредди Люпин отчаянно желает стать как предки. Но на 13-й день рождения его ждёт шок, ведь он оборачивается не волком, а… пуделем.Производство: Австралия, Бельгия /  Create NSW, Flying Bark Productions, LotterywestЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Алекс СтадерманнАктеры: Илай Суинделлс, Самара Уивинг, Джай Кортни, Руперт Дегас, Риз Дэрби, Джерра Райт-Смит, Джейн Линч, Адриан Дафф, Лорен Грэй, Акмаль СалеПеревод: Дублированный (Баритон)Язык озвучки: Русский, английскийСубтитры: Английские (Full)Продолжительность: 01:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE4DC46B3FF1DFF9A57F254D40BF1E3E16FA419
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Hadashi no Gen / Barefoot Gen / Босоногий Ген (1983) raw rus
 magnet:?xt=urn:btih:ADB3E885C752EA63B53A883A482D84497D4FE26D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:ADB3E885C752EA63B53A883A482D84497D4FE26D
 magnet:?xt=urn:btih:D5A084725740762C67447312ED20E835B7BE406B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:D5A084725740762C67447312ED20E835B7BE406B
 ```bash
 magnet:?xt=urn:btih:A4F8407C1718F6309F450C6591CD871E7BD3E682
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Shine Post | Блестящий пост [2022, TV, 12 из 12] WEBRip 1080p rus
 magnet:?xt=urn:btih:1E2495D7B6F8685EB4EBF59D5B24A57EC557E143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Strike the Blood / Удар крови [2013, TV, 24 ep] BDRip Hi10p 720p Raw+Ru
 ```bash
 magnet:?xt=urn:btih:CDA9AD427F8E7A1591CF828191CBC0117FA5A51C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Kimetsu no Yaiba: Mugen Ressha Hen | Demon Slayer: Mugen Train Arc | Истре�
 magnet:?xt=urn:btih:6DC9BA53B95BA9F8DF7E3B8748401600D58DF9E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Overlord I | Повелитель [ТВ-1] [2015, TV, 13 ep] BDRip 1080p raw+rus
 magnet:?xt=urn:btih:67A2957460C6218F823C095CF94138B0A25DB9CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Overlord III | Повелитель [ТВ-3] [2018, TV, 13 ep] BDRip 1080p raw+r
 ```bash
 magnet:?xt=urn:btih:3358F16EF95C0B7D1DBED2CE55939D1A4D3D3E41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Gekijouban Soushuuhen Made in Abyss | Созданный в Бездне (ком
 magnet:?xt=urn:btih:5AFCD7894298AF6996F547F46B3734340B32C204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Overlord Specials: Ple Ple Pleiades | Повелитель: Пле-Пле-Пле
 ```bash
 magnet:?xt=urn:btih:6735CE435A9477F61BA854E462BA7803DF9343EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Vinland Saga | Сага о Винланде [ТВ-1] [2019, TV, 24 из 24] BDRi
 magnet:?xt=urn:btih:F3C0255A8F1B0E0AFCA2B75C19C3D019E469499A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Re: Zero kara Hajimeru Isekai Seikatsu 2nd Season | Re: Жизнь в альте
 ```bash
 magnet:?xt=urn:btih:AEC5ADB78602E063CFB95A039F011AF2F8890B94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Shuumatsu Nani Shitemasuka? Isogashii Desuka? Sukutte Moratte Ii Desuka? | Ес�
 magnet:?xt=urn:btih:4F36DDF903FC91A16768DB3A6B20CAA59EF1D1A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Spy x Family | Семья шпиона [ТВ-1] [2022, TV, 25 из 25] BDRip 108
 magnet:?xt=urn:btih:BD23251FD974BE84114137104B7F79C2ADF01AC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Yano-kun no Futsuu no Hibi | Yano-kun's Ordinary Days | Обыкновенные
 ```bash
 magnet:?xt=urn:btih:77F4558372C4ADB7E34ED3D79C0CC82D076DD360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:77F4558372C4ADB7E34ED3D79C0CC82D076DD360
 magnet:?xt=urn:btih:F0A59AABBA565C31052A7C429D879C5668DFB875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Shin Ikkitousen | Новые школьные войны: Истинная си�
 ```bash
 magnet:?xt=urn:btih:81C0FA8E95E04EAE63F99491C790FE38C26F4D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Koukaku Kidoutai: SAC 2045 2nd Season | Ghost in the Shell: SAC 2045 Season 2 | 
 magnet:?xt=urn:btih:36A447234E8FFCF7638ED49577F49B8E368B3018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Shuumatsu no Walkure | Record of Ragnarok | Повесть о конце све�
 ```bash
 magnet:?xt=urn:btih:A473FF8573654749CA7AAF0BA06F6192B1FAF17F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Ningen Fushin no Boukensha-tachi ga Sekai o Sukuu You Desu | Авaнтюрист
 ```bash
 magnet:?xt=urn:btih:170B2C5F82CF6B9E288F43A68E2E909EE2945CE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:170B2C5F82CF6B9E288F43A68E2E909EE2945CE6
 magnet:?xt=urn:btih:14F13540A2AE9ABBA2018E050D1B899A2DD3E756
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Pokemon the Series: Sun and Moon - Ultra Legends | Покемон: Солнце 
 ```bash
 magnet:?xt=urn:btih:299BCD5C25E1EE78464EAD9A840A9C216EF3EF9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Pokemon the Series: Sun & Moon—Ultra Adventures | Покемон: Солнце
 magnet:?xt=urn:btih:1BE7312E46DE47511EFFE66A749EDBD081EA2D5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Pokemon the Series: Sun & Moon | Покемон: Солнце и Луна (Seaso
 ```bash
 magnet:?xt=urn:btih:1BB2874587331F233283E40476CEDC0674C97ADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Engage Kiss | Клятвенный поцелуй [2022, TV, 13 из 13] BDRip 1
 magnet:?xt=urn:btih:1F51F4F67BEE948DE9A38FB03B903C1CD83CE72C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Bocchi the Rock! | Рок-тихоня! | Одинокий рокер! [2022, TV
 ```bash
 magnet:?xt=urn:btih:1A04074C6ED1018040BB36090BD8FDA28C65DC57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

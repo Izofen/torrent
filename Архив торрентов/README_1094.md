@@ -19,6 +19,8 @@ DVDFab – многофункциональное приложение для к
 magnet:?xt=urn:btih:7068773912EBF99A8DA86D09506BB25277B5E17D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:7068773912EBF99A8DA86D09506BB25277B5E17D
 magnet:?xt=urn:btih:CEC35B681E408171BBA93C4CAE3054A5C109115A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Unarchiver - Unzip RAR ZIP - простое в использовании при
 ```bash
 magnet:?xt=urn:btih:3D7E037727EA28BF921F69810EAE9223F62D9302
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ RapidWeaver является приложением все-в-одном, кот
 magnet:?xt=urn:btih:8A9392444218FB804B5BA01F2516728528F754AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:8A9392444218FB804B5BA01F2516728528F754AD
 magnet:?xt=urn:btih:99A516E8A4427CA3A820D954E7BED22111D90CA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ ToonMe 0.6.94 Mod by maxi123444 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:08E386E09DF313D68E11E6B02F8A92B165444511
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ ScreenToGif — удобный бесплатный инструмент, с п�
 magnet:?xt=urn:btih:76B8AC7335C5615E7089A0EB9B7B6C121A6024CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Aiseesoft Screen Recorder 2.9.20 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:7A7DBAE4D347E215B0187B69410D50119D518581
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:9BD7C8316FD4A0A58459E15B5F8EE7F37A06123B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ B4. Violet :: 08:20Жанр: Downtempo, Soul, Synth-pop, Pop RockФормат: V
 magnet:?xt=urn:btih:17801D47C6DC7558ECACEB58AFE786580ADCDC3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:17801D47C6DC7558ECACEB58AFE786580ADCDC3C
 ```bash
 magnet:?xt=urn:btih:911D8E0D46DA84AA6278B5EE34EB6B2D167FECFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:911D8E0D46DA84AA6278B5EE34EB6B2D167FECFF
 magnet:?xt=urn:btih:31783DC8A9A8D819D1BAC9D11FC9D1271E8E0928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ Melon VPN - это быстрый, неограниченный, стабиль�
 ```bash
 magnet:?xt=urn:btih:7C33CEF9837B440B182ABB9052EFE7A72C0C31F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +382,8 @@ magnet:?xt=urn:btih:7C33CEF9837B440B182ABB9052EFE7A72C0C31F3
 magnet:?xt=urn:btih:23C4A7C7A0CB834FEA0D42BB427F2EDF83948042
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ xrecode II – уникальный конвертер аудио , снабже
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ Fallen Enchantress: Legendary Heroes – самостоятельное допо
 magnet:?xt=urn:btih:F8BD457FA880DA9388D8B2EC186B0741979348B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ PicLab - Photo Editor v2.2.9 [En] - фоторедактор с поддержк
 magnet:?xt=urn:btih:95E2A1D213405C6F255EA6A0BA1507B7952569C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ Adobe AIR - (Adobe Integrated Runtime) - платформенно-независ
 ```bash
 magnet:?xt=urn:btih:024370F7E155383F53F50003C21FF859A69E9165
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +517,8 @@ TapinRadio - интернет радио от компании RaimerSoft (ра�
 magnet:?xt=urn:btih:1252E03D0AB0E0A5A5501209E874A6B76F133EEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:2C42244CC9299F58517D37997B18C82835FF4484
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ Apowersoft Screen Capture Pro – многофункциональная про�
 ```bash
 magnet:?xt=urn:btih:7280116B1446D4F715C9F82CE000A43833119AB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +600,8 @@ IsoBuster может работать с образами дисков, конв
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ CyberLink ColorDirector Ultra 11 - профессиональные инстру
 magnet:?xt=urn:btih:0E6193932878BC2695AA31A307F891572C037A7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ PDF Reader Pro - это приложение для редактирования
 ```bash
 magnet:?xt=urn:btih:AFE4EA359661A88528BB867DFDDD453DA254D098
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:7273AB8132794B05DDACBCA9687D7ACA7317657F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ FBackup — это свободно распространяемое прогр�
 ```bash
 magnet:?xt=urn:btih:A1E2D1C8EC37C196F6214EC0B32CEC183641D001
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

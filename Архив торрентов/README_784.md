@@ -27,6 +27,8 @@ Solar Spectrum - Source Energy Creations (2011) [MP3|320 кб/с]<Psychedelic / 
 magnet:?xt=urn:btih:1B546A95341D39E5B179F9B93629E598834105F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ magnet:?xt=urn:btih:1B546A95341D39E5B179F9B93629E598834105F4
 ```bash
 magnet:?xt=urn:btih:BC13D91FCD8E96ECF5D9866A513731A2952A0AE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:BC13D91FCD8E96ECF5D9866A513731A2952A0AE0
 magnet:?xt=urn:btih:215E616E018BD136B5260729344ABEBD82343F7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:215E616E018BD136B5260729344ABEBD82343F7C
 ```bash
 magnet:?xt=urn:btih:5AAA80B09A76CBF865E7F1FA5F2EC5B3A9155EB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:5AAA80B09A76CBF865E7F1FA5F2EC5B3A9155EB5
 magnet:?xt=urn:btih:C982DA60AD88F1E43C4AC44C9298134B97CB8583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:C982DA60AD88F1E43C4AC44C9298134B97CB8583
 magnet:?xt=urn:btih:2156A9C3DF99025DD001EF398E3BFE6DCB7DA7DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:2156A9C3DF99025DD001EF398E3BFE6DCB7DA7DE
 ```bash
 magnet:?xt=urn:btih:BD3950787873C84FF1C09BF1EE8DF623D8DE76EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +218,8 @@ Side Winder - Faith (2012) [MP3|~245 кб/с (V0)]<Psychedelic / Progressive>
 magnet:?xt=urn:btih:89BEE352DB37A7F2092E66990FFD854E4EF740A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:89BEE352DB37A7F2092E66990FFD854E4EF740A7
 ```bash
 magnet:?xt=urn:btih:D338C759DEFE654FD7B77A8F26817C006D435149
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +279,8 @@ VA - Deep House Smasher (2012) [MP3|320 кб/с]<Deep House>
 magnet:?xt=urn:btih:8B391079F10BF0F79F1247375765AE59A62BAF90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +314,8 @@ VA - Buddha: The Special Hits Selection (2012) [MP3|320 кб/с]<Downtempo, Chil
 magnet:?xt=urn:btih:B880B5FFC89580707E310300DEDCDC9DF1AC12F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +339,8 @@ magnet:?xt=urn:btih:B880B5FFC89580707E310300DEDCDC9DF1AC12F9
 ```bash
 magnet:?xt=urn:btih:9C080A7C73CFD22319EBF892132CAB0F7BF06448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +366,8 @@ magnet:?xt=urn:btih:9C080A7C73CFD22319EBF892132CAB0F7BF06448
 magnet:?xt=urn:btih:420B9B456061DB4CA4FA59C643FCE3275EB0518C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +391,8 @@ magnet:?xt=urn:btih:420B9B456061DB4CA4FA59C643FCE3275EB0518C
 ```bash
 magnet:?xt=urn:btih:F82C30CC46394B3599174B4473BE69E2ADD657FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +421,8 @@ magnet:?xt=urn:btih:F82C30CC46394B3599174B4473BE69E2ADD657FD
 ```bash
 magnet:?xt=urn:btih:AA0C49F1FFE509260679D5DA6EF9091AC8B6CC69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +457,8 @@ Synasthasia - Style Collector (2012) [MP3|320 кб/с]<Melodic Death/Thrash/Powe
 magnet:?xt=urn:btih:A8ED32A1E51CB9924363707B079240C5AE99EC9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +487,8 @@ magnet:?xt=urn:btih:A8ED32A1E51CB9924363707B079240C5AE99EC9E
 magnet:?xt=urn:btih:C7019BAE38D788C07915CC84D06387A0E3BE403F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +512,8 @@ magnet:?xt=urn:btih:C7019BAE38D788C07915CC84D06387A0E3BE403F
 ```bash
 magnet:?xt=urn:btih:FFC51D70C1FCC235975A98D4E274CE9CDB806A08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +543,8 @@ magnet:?xt=urn:btih:FFC51D70C1FCC235975A98D4E274CE9CDB806A08
 magnet:?xt=urn:btih:34F4E331CA15739D6FB18700FFDE8E13A0B93254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ magnet:?xt=urn:btih:34F4E331CA15739D6FB18700FFDE8E13A0B93254
 ```bash
 magnet:?xt=urn:btih:64AD19FD92732E068D0D4E709ACD1AECF47827A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +605,8 @@ magnet:?xt=urn:btih:64AD19FD92732E068D0D4E709ACD1AECF47827A9
 magnet:?xt=urn:btih:37584F7874200B23495C0A243F328EC35BCFDC87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +637,8 @@ Vulture - Oblivious To Ruin (2012) [MP3|~240 кб/с]<Stoner, Sludge, Doom>
 magnet:?xt=urn:btih:2108B47F67D905CCC550D7F03DCD1E8686AAB5F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +662,8 @@ magnet:?xt=urn:btih:2108B47F67D905CCC550D7F03DCD1E8686AAB5F0
 ```bash
 magnet:?xt=urn:btih:7920E870BB1DFF2FD7DBCA7D4760A7F755A53B1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +692,8 @@ magnet:?xt=urn:btih:7920E870BB1DFF2FD7DBCA7D4760A7F755A53B1A
 ```bash
 magnet:?xt=urn:btih:C51AA3828AD950F3DA05A7AF570E7F08846498A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -680,6 +728,8 @@ Sukkuba - Samara Gore Adok (2011) [MP3|256 кб/с]<Pornogrind>
 magnet:?xt=urn:btih:D3747729E8785C2F355DD1460307F96D63CC7ECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -703,6 +753,8 @@ magnet:?xt=urn:btih:D3747729E8785C2F355DD1460307F96D63CC7ECD
 ```bash
 magnet:?xt=urn:btih:B570425D3F2B7864B49E9D827F5AF125FB55BD57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

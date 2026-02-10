@@ -20,6 +20,8 @@ Discovery. COVID-19: Китай против вируса / COVID-19: Battling t
 magnet:?xt=urn:btih:10AD154C1C22EE82678A811B113B1FFD6F7AFBE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ NGW: Кошачьи приемы / Cat Attack-Tics (2019) WEBRip [H.264/1080p-LQ
 ```bash
 magnet:?xt=urn:btih:B5A7D7849CFF2E61A59146323683F3CD1CB887A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Porsche 991 — внутреннее обозначение для седьмо�
 magnet:?xt=urn:btih:D74411F43B18B58118DDFD7A612235C7AF3B4CCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 ```bash
 magnet:?xt=urn:btih:0FEF28F1C3AE8931A10518B45D50047BF37306A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/1080p]
 magnet:?xt=urn:btih:2C58776BB531864075BD791268D97F07F301C2AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ BBC: Скрытые убийцы в домах... / Hidden Killers (2013-2014) W
 ```bash
 magnet:?xt=urn:btih:CF7AD0A08CBB10B71AC5E1680DC31AB9E46A300E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ BBC. Horizon: Охота за бозоном Хиггса-Спец выпуск 
 magnet:?xt=urn:btih:3947533E0C60991E5ADD45C96440FF14A3C6F755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ BBC. Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p-L
 ```bash
 magnet:?xt=urn:btih:69A92C97410843B0AE4C409EC1D1487AEE411660
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/720p] 
 magnet:?xt=urn:btih:D116691246F63189B9942EA56DF02E72EDD9C8E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ BBC. Панорама. Нелегальная торговля органами 
 ```bash
 magnet:?xt=urn:btih:B9F271049D5E820A2049687AE8412532802E74E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:B9F271049D5E820A2049687AE8412532802E74E3
 magnet:?xt=urn:btih:F78E76E5568D1077524A7A4711689BD8AD3C1CDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ National Geographic: Самые опасные животные: Восьмин�
 ```bash
 magnet:?xt=urn:btih:8651ED639C50D466DBFC2AC246BD23DD1A9AFC8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Discovery. Чудаки и акулы / Jackass Shark Week (2021) HDTVRip [H.264
 magnet:?xt=urn:btih:FA9A02C4A3C3E2709759B3CBBBEBAAF1257BBE72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ BBC: Шок и Трепет. История электричества. Искр
 ```bash
 magnet:?xt=urn:btih:CA2E052DA5E5B8F3E5270C12F0D3DBBE46E69FE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Discovery. Величайшая загадка Эвереста / Everest's Grea
 magnet:?xt=urn:btih:F11F784A43833190B5D468705946489AB5CE1ED7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ BBC. Horizon. Охота за бозоном Хиггса / BBC. Horizon. The Hu
 ```bash
 magnet:?xt=urn:btih:5DECDD1C77C92DBB9CF4F0C79B99E544DD17B23D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ NGW: Холодные острова / Frozen Islands (2020) WEBRip [H.264/1080p
 magnet:?xt=urn:btih:DC8EB1DB10193D40E07FB185EC7F64693EA932F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ BBC. Нетронутые уголки дикой природы / Nature's Micr
 ```bash
 magnet:?xt=urn:btih:88E11B54804C2A4CC84B46F4DD360310D0AF3AD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ NG. Суперсооружения Третьего рейха / Nazi megastruct
 magnet:?xt=urn:btih:8937B583A682A915AE42CEDD7FBC9A8DA43829EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Animal Planet. Симпатичные котята и щенки / Too Cute (201
 ```bash
 magnet:?xt=urn:btih:7EB2EF400D1E674937026441BA349E51278DA631
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Animal Planet. Симпатичные котята и щенки / Too Cute (201
 magnet:?xt=urn:btih:5C20B12A61914B9DA3928C2F5EE14DB4198B4735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ NG. Джон Ф. Кеннеди. Пропавшая пуля / JFK: The Lost Bul
 ```bash
 magnet:?xt=urn:btih:0820375B5D005C6D54552E34BF8690CF7BC5D466
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:0820375B5D005C6D54552E34BF8690CF7BC5D466
 magnet:?xt=urn:btih:D1CB04D909A05237E536E414EF9FA2BAC21D6AA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ NG. Взгляд изнутри: Гугл / Inside: Google (2010) HDTVRip [H.264
 ```bash
 magnet:?xt=urn:btih:56578BFA94E93260448C6B971F1260D2FF668907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ NG. Освещённая пучина / Light the Ocean (2011) HDTVRip [H.264/10
 magnet:?xt=urn:btih:98E6E2696B8EBB0AEDE35ECAFE65B517D26639BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ BBC. Искусство Китая / Art of China (2014) SATRip (серии 1-3 
 ```bash
 magnet:?xt=urn:btih:AB9030B28FF8F66BD5A548CBF486FDD4F233828E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

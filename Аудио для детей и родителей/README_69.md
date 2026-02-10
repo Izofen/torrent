@@ -25,6 +25,8 @@ VA - Детские Песни (2003) [MP3|224 kbps]<Детские песни>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ VA - Детские Песни (2003) [MP3|224 kbps]<Детские песни>
 magnet:?xt=urn:btih:2F72BA090331C15D6D38F9837AB0AF9D7BE7CC23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:2F72BA090331C15D6D38F9837AB0AF9D7BE7CC23
 ```bash
 magnet:?xt=urn:btih:D4163473C97C2A4648731BA9E119A2AAAF942205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +110,8 @@ VA - Hey! Hey! Big songs for little people (2007) [MP3|128 kbps]<Детские 
 magnet:?xt=urn:btih:BB32A0E17F88D66256AE1797AA582B285ADF5964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -131,6 +139,8 @@ Fatcat & Fishface - Meanie (2007) [MP3|192 kbps]<Детские песенки>
 magnet:?xt=urn:btih:A230D695CA9CC72A368FBA84E025C62CD2F116DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ magnet:?xt=urn:btih:A230D695CA9CC72A368FBA84E025C62CD2F116DA
 ```bash
 magnet:?xt=urn:btih:41B2A652B334A140AE9855F3B7C2F49EFDD2BCF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:41B2A652B334A140AE9855F3B7C2F49EFDD2BCF9
 magnet:?xt=urn:btih:5E87F9F6A74D8D9F4909B21846184D008FAD55A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:5E87F9F6A74D8D9F4909B21846184D008FAD55A0
 ```bash
 magnet:?xt=urn:btih:D490BB55B5977517854A9479E3CCB9DABB4ABA77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:D490BB55B5977517854A9479E3CCB9DABB4ABA77
 magnet:?xt=urn:btih:4C2C954D47B7E75CAFC555F7F2225EE0690424A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:4C2C954D47B7E75CAFC555F7F2225EE0690424A2
 ```bash
 magnet:?xt=urn:btih:2A6C9DD33225EFB8E011F603BC7222BFE060AC55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ Cказка по одноименным мультфильмам к/с “Сою
 magnet:?xt=urn:btih:FBEC923D8A1C05435B40A2A7B35CFC437A562544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:FBEC923D8A1C05435B40A2A7B35CFC437A562544
 ```bash
 magnet:?xt=urn:btih:550A4D5F0808B50898D8502895795C4DE899ACD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:550A4D5F0808B50898D8502895795C4DE899ACD6
 magnet:?xt=urn:btih:A5F03401D1D18F00C57801637A4064DD850C6D5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:A5F03401D1D18F00C57801637A4064DD850C6D5C
 ```bash
 magnet:?xt=urn:btih:EF379A60A9E6CE1EA8C54180D4A1724D99A19298
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:EF379A60A9E6CE1EA8C54180D4A1724D99A19298
 magnet:?xt=urn:btih:1DF613FDFFB07BE0A6A086BD453DD90B15A8DF30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:1DF613FDFFB07BE0A6A086BD453DD90B15A8DF30
 ```bash
 magnet:?xt=urn:btih:E69C11D88B1CE5B8B00704EB0C5152747E3AA48B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:E69C11D88B1CE5B8B00704EB0C5152747E3AA48B
 ```bash
 magnet:?xt=urn:btih:2BB659A0027BBDC59FAF250394A3733ECE21B8A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:2BB659A0027BBDC59FAF250394A3733ECE21B8A0
 magnet:?xt=urn:btih:49BF74F0B0A7D5661ED24A22FECE448993A8BF7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:49BF74F0B0A7D5661ED24A22FECE448993A8BF7D
 magnet:?xt=urn:btih:A424376F24E6A0F985A18A3BA91D479232BF3D57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:A424376F24E6A0F985A18A3BA91D479232BF3D57
 ```bash
 magnet:?xt=urn:btih:0B628E7BBB2FB0685B1F425C042D9D7E2DF5A6DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:0B628E7BBB2FB0685B1F425C042D9D7E2DF5A6DF
 magnet:?xt=urn:btih:C67D29B92DE71351446FC1EC2DA26417BB76E0D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ magnet:?xt=urn:btih:C67D29B92DE71351446FC1EC2DA26417BB76E0D4
 ```bash
 magnet:?xt=urn:btih:DC09B368197FED812F187105C18D83B4C61BD3CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:DC09B368197FED812F187105C18D83B4C61BD3CF
 magnet:?xt=urn:btih:B1BBF48CE8AA119EB29D1C8D2BD256B7B995D5E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:B1BBF48CE8AA119EB29D1C8D2BD256B7B995D5E9
 ```bash
 magnet:?xt=urn:btih:3189B2F0A108465DCE126C191FC8F3B933C20558
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:3189B2F0A108465DCE126C191FC8F3B933C20558
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:3189B2F0A108465DCE126C191FC8F3B933C20558
 ```bash
 magnet:?xt=urn:btih:B6920D3DB1048118AEDDB89F00A2DE5DD4A92E40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 973425   (978126) от 10.01.2016
+
+dj Sasha Tyson - 90-X REBOOT 2 rus (ПЕРЕЗАГРУЗКА) (2016) [MP3|320 кб/с] <House, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_978126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Русский Размер - Пластинки (Dj A'rchi Remix)
+02 Ненси - Чистый Лист (Remix)
+03 Марина Хлебникова - Чашка Кофею (Dj Brooklyn Edit)
+04 Мечтать - Летчик (Dj Vengerov Remix)(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC5D2C61BC34A6766E371B28B37E6AFEBA408736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974040   (978163) от 10.01.2016
 
 VA - Dance Tropic (2016) [MP3|320 кб/с] <Dance, Club, Pop>
@@ -21,6 +50,8 @@ VA - Dance Tropic (2016) [MP3|320 кб/с] <Dance, Club, Pop>
 ```bash
 magnet:?xt=urn:btih:C24272E0D939A056CCC55576A71024CB80885DCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +79,8 @@ VA - Deep Sound Icons (2016) [MP3|320 кб/с] <Deep House, Electro>
 ```bash
 magnet:?xt=urn:btih:7ACC08B6F918832ABCC5174CB2E93B7B84EA4461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +115,8 @@ VA - Drum and Bass Pro V.6 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
 magnet:?xt=urn:btih:BD067DA4063AD48FBD0A1DD05D812E1EC95C266F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +143,8 @@ VA - Зимний Отборный Хит (2016) [MP3|256-320 кб/с] <Pop, Dan
 ```bash
 magnet:?xt=urn:btih:0B1C0BBF7871189D2DE59814662B36A302DE9806
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +173,8 @@ VA - Big Workout Hits 2016 - 40 Essential Fitness And Workout Hits (2016) [MP3|3
 magnet:?xt=urn:btih:C4AA90CE515BA82E3C3082BBC9ED7566CDD96F92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +201,8 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:10B7586A2FDC0C1E13364B1451F866CC6016964F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ VA - Lounge At The Seashore 2 (2014) [MP3|320 кб/с]<Downtempo, Chillout, Loun
 magnet:?xt=urn:btih:759B39A456D818536A947CAB641C08F94AB96C2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +259,8 @@ VA - Keep Growing: Deep Techno Electronic (2020) [MP3|320 Kbps] <Techno, Electro
 ```bash
 magnet:?xt=urn:btih:F3873AA0C64A9AA61071FA0BDDAB08DD3A7BEFCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +289,8 @@ VA - Road, Darkness & Music (2016) [MP3|320 кб/с] <House, G-House,  Progressi
 magnet:?xt=urn:btih:F72D67ED92511DB2D5FFD1E1540135DD8665D1AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +317,8 @@ VA - Best Of Vocal Trance (2016) [MP3|320 кб/с] <Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:2E6DCCAA2B8E3772ADFB4C38ABF0AA25C0991670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +347,8 @@ VA - Club Hits (2016) [MP3|320 кб/с] <House>
 magnet:?xt=urn:btih:9FDC2259B26060ACA554E483325232967FF02CD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +375,8 @@ VA - Громкие новинки Января Vol 2 (2020) [MP3|320 Kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:7A4CAC05BD670BFE4B05A8C3970FACCAFEC775B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +411,8 @@ VA - Итоговый Независимый Хит–Парад - «Чарто�
 magnet:?xt=urn:btih:9B2606C3BC7CC99342B160436E79B98AEE24D64F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +439,8 @@ VA - Back To 80's Disco Party Vol.1 (2015) [MP3|320 кб/с] <Disco, Italo Disco
 ```bash
 magnet:?xt=urn:btih:A1191C694D9D7B087685400AE474D8FC9151B367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +469,8 @@ VA - Подарочный Шансон (2016) [MP3|256 кб/с] <Шансон>
 magnet:?xt=urn:btih:DAF6FAE429DCAADEA330C616E7A8F21A40214C89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +497,8 @@ VA - (OST) Люди в Черном / Men in Black (1997) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:F49DA9D24A34559B8BFE3FEE3AE34E3E95567A2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +527,8 @@ VA - Extra Lounge (New year edition) (2016) [MP3|320 кб/с] <Lounge, Chill Out
 magnet:?xt=urn:btih:BA749C8A922A7398AF31738D4CDEB4DA97E9C89C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +555,8 @@ VA - Dance Empire 3 (2016) [MP3|320 кб/с] <Dance, Club>
 ```bash
 magnet:?xt=urn:btih:9AA19932D4C5BB53E583C406204488316CA80840
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +585,8 @@ VA - The Biggest Trance Classics Of All Time (2016) [MP3|320 кб/с] <Uplifting
 magnet:?xt=urn:btih:AC5E7301FA9C250E97C598B633B1CA799138D566
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +613,8 @@ VA - Ladies Night Festival (2016) [MP3|320 кб/с] <House, Progressive, Electro
 ```bash
 magnet:?xt=urn:btih:810B172F10971E627C7D02C1BAB429B241F942C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +643,8 @@ VA - Shazam Хит-парад Russia Top 100 Январь (2020) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:04D24463805695EA158DF0A7CD0650DE4A4B14B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +671,8 @@ VA - Music Collection (2019) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:04A1DE2ED9244E7FB3FD0DA35E0D018EE0DD4349
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +701,8 @@ VA - A mystery to people (2020) 2CD [MP3|320 Kbps] <Enigmatic, New age, Ethnic>
 magnet:?xt=urn:btih:0282D0E25337A1900953A53F1202AE70DFB471A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +729,8 @@ VA - Rap & Hip Hop: New Music Releases (2020) [MP3|320 Kbps] <Rap, Hip Hop>
 ```bash
 magnet:?xt=urn:btih:F7949679DF7E2A261A0E1A1FE9FD42D46D83FF6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -682,32 +759,7 @@ VA - Watercolor And Jazz (2020) [MP3|320 Kbps] <Jazz, Instrumental>
 magnet:?xt=urn:btih:DA8662A55CF354693A1BB0E76D303B631D961E56
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355852   (980529) от 29.01.2020
-
-VA - Beauty Interior Lounge Music (2020) [MP3|320 Kbps] <Lounge, Chillout, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_980529.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Carlo Peralta - Cala Carbo
-002. Silence Of The Sirens - Roberto Bronco
-003. Soulful-Cafe - Really Gone
-004. Love In Stereo - Mojardo(   Читать дальше...   )Жанр: Lounge, Chillout, RelaxПродолжительность: 11:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FAF1555A466398FD689DAD53CE363579E645117
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

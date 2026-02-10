@@ -19,6 +19,8 @@ TickTick: Менеджер задач, Органайзер и Календар�
 magnet:?xt=urn:btih:4A87BA992B5C623CE2BA77C2185A0800F81CA812
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Power Shade: Notification Bar Changer Manager - ещё один из функц�
 ```bash
 magnet:?xt=urn:btih:FAF78F9F079BE382A2763F30C42FABC625523272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Kuji Cam - это необычная камера с винтажными эфф
 magnet:?xt=urn:btih:1B22AA4BB2533873F1423A9AE28D51A1BB46FA7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ F-Stop Gallery - Обзор, организация и защита пароле
 ```bash
 magnet:?xt=urn:btih:A94528C5D260BA2DC936B7D81541F70EADD2E01C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ KISS - минималистичный и невероятно легковесн
 magnet:?xt=urn:btih:C28B7A0D44541331385003C3C768B78E6C5AEBD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Document Viewer v3.3 [Ru/Multi] (обновляемая)
 magnet:?xt=urn:btih:AD79326A129670C2D66F8EC4D7EBAB23ADE2803D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ GPS Camera with latitude and longitude v1.9.6 [En]
 ```bash
 magnet:?xt=urn:btih:DFEB64C523B81B3268E233BB7C4815C3B94EAC0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Wannalisn также является лучшим приложением для
 magnet:?xt=urn:btih:CF18E1ABD5EC0B32750A31E03CB82665F769E261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Body Language: Psychology behind everyday gestures v4.2.8 [En]
 magnet:?xt=urn:btih:FE3FF80FF5646D8435508E3A9CBBA8CC916FACC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ n7player Music Player - представляет из себя музыкаль�
 ```bash
 magnet:?xt=urn:btih:35297136D3B8087B71F55C43ABA415D3720826C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Umbrella - это уникальное решение для блокировк�
 magnet:?xt=urn:btih:617E1F4509AC0094DDB340E7CF777562E11787DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Zemana Antivirus 2021: Anti-Malware & Web Security v2.0.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:0B34D77C7C487E0F3FCDD5B274EC39B15081AC36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:0B34D77C7C487E0F3FCDD5B274EC39B15081AC36
 magnet:?xt=urn:btih:9F3347E59EAE810589D35DD8F08EC32CB476D8E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ NEW! Получите больше, чем лучший антивирусный
 magnet:?xt=urn:btih:AD19B3B0D46E4A7E92A8AEE0089D12695EE48A4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ AVG AntiVirus 2021 v6.39.5 [Ru] - Free Mobile Security
 ```bash
 magnet:?xt=urn:btih:701A8BC9AF8380FE7F0BFA0134A6327532F1CEBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Artly v2.9.2 [Ru] - Learn Art History, Artworks & Paintings
 magnet:?xt=urn:btih:2B51AA9CE7A8A489F4A03E09864AAA1E48615B46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Dictionary.com Premium v9.7.2 [En]
 ```bash
 magnet:?xt=urn:btih:1190592D6638F0F2BF0F328E1D6D377A1507A0FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ iGO R3 Here (NavTeq) Европа 2020.Q4 (.fbl, .fda, fds, .fjw, .fjv (Russia),
 magnet:?xt=urn:btih:495E9254521614806C8758FC6B56D17504E5A638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ MagicPlan захватывает размеры помещения с камер
 ```bash
 magnet:?xt=urn:btih:98AACDDE90B5CDF4F135EFD49C2F2C877E13F35E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Text Scanner v4.1.7 [Ru/En] - извлечение текста из изобр�
 magnet:?xt=urn:btih:069141DF8AA7F55AF811B3A01B467658C6E45822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:069141DF8AA7F55AF811B3A01B467658C6E45822
 ```bash
 magnet:?xt=urn:btih:6831294272538B60522FE3C19904A65E31B6ACB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ POIbase speed camera warner V7.2.3 [Ru]
 magnet:?xt=urn:btih:682102D651AF206493B53F1F9432088CD372DF5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ Dictionary - Merriam-Webster v5.1.1 [En]
 magnet:?xt=urn:btih:FD3F2E2E645E06BBF486B16E4C94112CD7C5AB3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ Ultra Volume v3.5.4 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:031B5EB54CCB1C9A529CC189ACC53B0319EA29C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ AUG Launcher - удобный, многофункциональным и быс�
 magnet:?xt=urn:btih:619011FD593060253BC7DE825289E5B25A02ACAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Mubert — мобильное приложение, которое генери�
 ```bash
 magnet:?xt=urn:btih:1CCD3A07DDF7519B3C7A25A0CB5870EB2C482883
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

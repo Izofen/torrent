@@ -22,6 +22,8 @@ Barry Harris - Live at Maybeck Recital Hall, Vol. 12 (1991) Concord Jazz [FLAC|L
 magnet:?xt=urn:btih:C73AE882CA8D710FD277DBA786F99517FC025A97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Lionel Hampton - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big 
 ```bash
 magnet:?xt=urn:btih:F2EDA2BFA2E9D5F33237CC62ECBB9ACA91DE2EEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Cedar Walton Trio - Ironclad (1989) 1995, Monarch Records [FLAC|Lossless|tracks 
 magnet:?xt=urn:btih:F66C07256E3CFB6D3E22F2E86F44EF452EADC6EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ YT Saver Video Downloader & Converter for Mac 7.4.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:CCA7CE9397390EF5F05D0DEF4E32B7842A106A52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:CCA7CE9397390EF5F05D0DEF4E32B7842A106A52
 magnet:?xt=urn:btih:5E5A8651CEE213F0F245C70FA65C65C9CA6EFFA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:5E5A8651CEE213F0F245C70FA65C65C9CA6EFFA0
 ```bash
 magnet:?xt=urn:btih:B22B85C131B25F7E5C1A0204A072617A7B22A63A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Kikki (Кикки) - Полуночное солнце (1986) [FLAC 24/192|Lossl
 magnet:?xt=urn:btih:EABA8D20A0F7CA8D0B54EEB2CB5386CDCB3B8A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ Disk Graph - инструмент, который позволяет прове�
 magnet:?xt=urn:btih:CF4E730FB4D7A70A4F2B64095BE3D2F6B84AC395
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ Dynamic Wallpaper Engine позволяет использовать живые 
 ```bash
 magnet:?xt=urn:btih:859DA949DE712816FBB74A8507746957A85A395F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ ToothFairy поможет вам перейти от одного выбранн
 magnet:?xt=urn:btih:8D66AA75BD20A8AABF7810B4626F307B5C66CDEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ Navicat Data Modeler Essentials — это мощный и простой в и�
 ```bash
 magnet:?xt=urn:btih:A736549B5BA1CDBC400CE36BF0DC1BE4B7DECB98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ magnet:?xt=urn:btih:A736549B5BA1CDBC400CE36BF0DC1BE4B7DECB98
 magnet:?xt=urn:btih:1A400B98EE50EDE89998296BF4E1C946AD24CC8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +357,8 @@ Give Me Some More Of Your Love(   Читать дальше...   )Жанр: Rock
 magnet:?xt=urn:btih:3D277D22A0677288779972C0B5462A169EC6B728
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ PopChar for Mac 10.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:0574D0FE38096E3A2656181CC43D6A2A8B78F875
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +409,8 @@ magnet:?xt=urn:btih:0574D0FE38096E3A2656181CC43D6A2A8B78F875
 ```bash
 magnet:?xt=urn:btih:C61C3127AEDAF3875712D99EBFA36DCD0214C971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +439,8 @@ The Count Basie Orchestra - Basie Swings The Blues (2023) Candid [FLAC|Lossless|
 magnet:?xt=urn:btih:F3E6ECDB8BFB33C349CC954D24406650EF925BFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +467,8 @@ Dario Margeli - Smooth Jazz Electric Guitar (2024) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:2F60DC4DB380CD3A2028D42EE76AFD9F4EC2E6D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +497,8 @@ Lucille (R. Bowling - H. Bynum)
 magnet:?xt=urn:btih:77FE250003184A4909CE652CBD7B59D2542D7DCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +522,8 @@ Folder Icons 1.6 [En]
 ```bash
 magnet:?xt=urn:btih:12A9A62E0D32FF2F78087D0F4A634095EAA84488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +552,8 @@ VA - Classy Hotel - Jazz & Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <J
 magnet:?xt=urn:btih:8E5679F9D116EA4C23D61AAA1B841721A1E3ABBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +581,8 @@ Toni Germani - Easy Pieces Against War, Virus And Crisis (2024) [FLAC|Lossless|W
 magnet:?xt=urn:btih:CA06812183508FD80B71C3C6037FFF546F7BD75D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +606,8 @@ magnet:?xt=urn:btih:CA06812183508FD80B71C3C6037FFF546F7BD75D
 ```bash
 magnet:?xt=urn:btih:A724783237FE42317242C80C4F04AE850712A8F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +633,8 @@ AutoCrypt - это приложение для шифрования / дешиф
 ```bash
 magnet:?xt=urn:btih:D07F2849A41CAC8DA67CF552D065CCDC41950F27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +663,8 @@ Skeletal Remains - Fragments Of The Ageless (2024) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:72E42A01C41B0B7488AB684940FE98AF52BA884D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +689,8 @@ magnet:?xt=urn:btih:72E42A01C41B0B7488AB684940FE98AF52BA884D
 magnet:?xt=urn:btih:750AB371623FBEDDB1C51C801E51FEA500C0D2F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +714,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:E586C024980A487F1AAE45C880C48CDA9A4524B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

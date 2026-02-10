@@ -22,6 +22,8 @@ Modern Talking - Video Collection (2024) WEBRip [H.264/1080p] [Handmade Upscale]
 magnet:?xt=urn:btih:E91810CD76CDF6A4DBC7E0DD789EB5E9FB3049C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:E91810CD76CDF6A4DBC7E0DD789EB5E9FB3049C6
 ```bash
 magnet:?xt=urn:btih:5A2316167516110C5AFE548A3B0EF637145FA697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:5A2316167516110C5AFE548A3B0EF637145FA697
 magnet:?xt=urn:btih:6DD94D5CCB5A8894317730A5466CDE7DC9112E07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:6DD94D5CCB5A8894317730A5466CDE7DC9112E07
 ```bash
 magnet:?xt=urn:btih:7ADAB2E29728FF8A6AD2A1A6A2F3149BA35DAAE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:7ADAB2E29728FF8A6AD2A1A6A2F3149BA35DAAE3
 magnet:?xt=urn:btih:245C41DD7CA8258BA870BC9CE7C38D66DA05A9C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:245C41DD7CA8258BA870BC9CE7C38D66DA05A9C4
 ```bash
 magnet:?xt=urn:btih:576CDDDE27C38E1A1CEACE63253785F3FA08969A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +195,8 @@ Two Steps From Hell - Europe Tour 2023 (2024) CamRip [H.264/1080p]
 magnet:?xt=urn:btih:7DBEFA9CCCD88A95011AF8170459A587B7D66CCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ magnet:?xt=urn:btih:7DBEFA9CCCD88A95011AF8170459A587B7D66CCE
 ```bash
 magnet:?xt=urn:btih:CC2D2C7CDEC6EDBB9D8B42E572E6898F6C2CC7D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:CC2D2C7CDEC6EDBB9D8B42E572E6898F6C2CC7D6
 ```bash
 magnet:?xt=urn:btih:986E246F82C156F61019D19DE9661F87497B5A51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -258,6 +276,8 @@ Dope - today is the day(   Читать дальше...   )Жанр: эроти�
 ```bash
 magnet:?xt=urn:btih:653B61CBCFB4BD921F820E1996ACAAE0B181B41C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +307,8 @@ magnet:?xt=urn:btih:653B61CBCFB4BD921F820E1996ACAAE0B181B41C
 magnet:?xt=urn:btih:95EA13AD38237DDC2D3DC0E0793C636E2D01E075
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +336,8 @@ The Black Keys - Live from the KROQ Helpful Honda Sound Space (2024) HDTV [H.264
 magnet:?xt=urn:btih:87E6BED2C7E4459E2C6788DE6DD77B06A17A5526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +361,8 @@ magnet:?xt=urn:btih:87E6BED2C7E4459E2C6788DE6DD77B06A17A5526
 ```bash
 magnet:?xt=urn:btih:8D8B7831A26426290E3B76CB3112BE04828593B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +391,8 @@ Andrea Bocelli & CeCe Winans: An Easter Music Special from Lakewood Church with 
 magnet:?xt=urn:btih:E2BEF17B862415EB629FDA0E94860D8DBE8AEC33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +420,8 @@ Synthony: Live at Auckland Domain with Auckland Philharmonia (2024) WEB-DL [H.26
 magnet:?xt=urn:btih:99C3B3882184BEF2FE5993A5E6DB8397A8646213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +445,8 @@ The Offspring - Live in Lollapalooza Brazil (2024) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:9BDCB2A504D31B908FAE1BAFE0178ACD3BE7E2E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +475,8 @@ AC/DC / No Bull (1996/2008) BDRip [H.264/1080p] [Director's Cut] [PR]
 magnet:?xt=urn:btih:96CAA232EF4DFDAD8B184FAC3514D7F872E50050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +504,8 @@ magnet:?xt=urn:btih:96CAA232EF4DFDAD8B184FAC3514D7F872E50050
 magnet:?xt=urn:btih:2B004DB8DE91D62F40D285FD3384E20D25AB17E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +529,8 @@ Elton John and Bernie Taupin: The Library of Congress Gershwin Prize for Popular
 ```bash
 magnet:?xt=urn:btih:A90BA655CAE29DD2DBD5902218F8D008C5B8E739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +558,8 @@ magnet:?xt=urn:btih:A90BA655CAE29DD2DBD5902218F8D008C5B8E739
 magnet:?xt=urn:btih:466C92A899D3CAC624E4A1BD70B535FC72862F71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +583,8 @@ Recorded live at Tokyo Dome City Hall, Japan, on March 26, 2021, during the Ride
 ```bash
 magnet:?xt=urn:btih:3FFD90DCD23A15829ADA8A7000D11A94BCDE860B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +613,8 @@ magnet:?xt=urn:btih:3FFD90DCD23A15829ADA8A7000D11A94BCDE860B
 magnet:?xt=urn:btih:F481A8D597F4A511FFDB03F152FE1CB01F409848
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +641,8 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 ```bash
 magnet:?xt=urn:btih:762794A6ECD81393B514C305865248C3542C5C00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +671,8 @@ Metallica: Сквозь невозможное / Metallica Through the Never (20
 magnet:?xt=urn:btih:4ABFE9ED36415663740A760464AE2BC1B29F376F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +700,8 @@ magnet:?xt=urn:btih:4ABFE9ED36415663740A760464AE2BC1B29F376F
 magnet:?xt=urn:btih:25020ED8CF23673FEE547001A7BB6445F814A4FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +728,8 @@ magnet:?xt=urn:btih:25020ED8CF23673FEE547001A7BB6445F814A4FF
 ```bash
 magnet:?xt=urn:btih:A278CCF61033E88BAEAB9AEA828F4AF202B051E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

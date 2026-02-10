@@ -20,6 +20,8 @@ Nerawareta Gakuen | Psychic School Wars | Школа под прицелом [20
 magnet:?xt=urn:btih:A5229FCE9C7B7D7113378E824874B41B62E5A4F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Tokyo Ghoul Root A | Токийский гуль [ТВ-2] [2015, TV, 12 из 12]
 ```bash
 magnet:?xt=urn:btih:1E851039BB3AB78A1260C27906BD35389394CDEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Kaguya-sama wa Kokurasetai: Tensai-tachi no Ren'ai Zunousen | Kaguya-sama: Love 
 magnet:?xt=urn:btih:A3309DE065E922321CE368A29D819ED9E0B1C4DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Garo: Honoo no Kokuin / Гаро: Клеймо пламени [2014, TV, 24 ep] 
 ```bash
 magnet:?xt=urn:btih:1A0455E45C40FB49D6778EAA9F2DD840A68EA850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Nanatsu no Taizai: The Seven Deadly Sins / Семь Смертных Грехо�
 magnet:?xt=urn:btih:A26DBA5A72DD429FA58C7BF47672CD3B744D4A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Kaguya Hime no Monogatari / The Tale of the Princess Kaguya / Сказание �
 ```bash
 magnet:?xt=urn:btih:5F67D5CE381DE55D62E3044FDD3D0C77E97DD2CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Shoujo Shuumatsu Ryokou / Girls' Last Tour / Последнее путешест
 magnet:?xt=urn:btih:564E3FB9A65E4020D34A828EB458FF29C2E94DAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Minami Kamakura Koukou Joshi Jitensha Bu / Женский велоклуб ст�
 ```bash
 magnet:?xt=urn:btih:9155DA056787D8CC240C66D98B5026ECF256D634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Nanako Kaitai Shinsho | Amazing Nurse Nanako | Изумительная медс
 magnet:?xt=urn:btih:66E4C1622FEC1B4EE4E2468E959E402CBFD1C8DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Pet Shop of Horrors | Магазинчик ужасов [1999, OVA, 4 эп.] DVD
 ```bash
 magnet:?xt=urn:btih:2FC742B08567ACFDF29E9ED050EB5C3F76DFB408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Robot Carnival | Карнавал роботов [1987, OVA, 9 из 9] BDRip 103
 magnet:?xt=urn:btih:48D7C5036EBB1D9D4FF18BA5E64AAB08CDD16029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Ruby Weiss Blake Yan (RWBY) / Red White Black Yellow (RWBY) / Красная, Б
 ```bash
 magnet:?xt=urn:btih:92E2002F9C6CE258CFD7DA40198E74DC9A72F4DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Death Parade / Парад смерти [2015, TV, 12 ep] HDTV 720p Raw+Rus
 magnet:?xt=urn:btih:8EF360F86A61EB9DCE59F894F2D7A97DF7CBA2D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Sword Art Online: Ordinal Scale | Мастера Меча Онлайн: Поря
 magnet:?xt=urn:btih:4A36E1D4AEBD695EAD7F2DCF5E549EBC2EBBF248
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Blend S | Садистская Смесь [2017, TV, 12 ep] BDRip 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:ACA0E82E1C8D198941D15471C8EBED45E2F1E7B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Gekijouban Bishoujo Senshi Sailor Moon Eternal | Pretty Guardians Sailor Moon Et
 magnet:?xt=urn:btih:3CE4F1D6DEAE6C4CBE61A5E726F347A21952B282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Kono Naka ni Hitori, Imouto ga Iru! / Nakaimo: My Little Sister is among Them! /
 ```bash
 magnet:?xt=urn:btih:5D7B84AE232200BF0A06C59D9176D53818F43C2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Sukitte Ii na yo. / Say "I Love You" / Скажи: «Я люблю тебя» [2
 magnet:?xt=urn:btih:89B937D204E9C6ED423C75ED8D5D36B40BCC2C2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Strike the Blood | Удар Крови [TV-1] [2013, TV, 24 ep] BDRip 1080p 10-b
 ```bash
 magnet:?xt=urn:btih:D82884E6C70E60C2548C910B934543EDF5E5B2F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:D82884E6C70E60C2548C910B934543EDF5E5B2F5
 magnet:?xt=urn:btih:351D0C6009120B7C26C877F3D19A4D73B583E601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Tokyo Ghoul | Токийский Гуль [ТВ-1] [2014, TV, 12 из 12] BDRip 
 ```bash
 magnet:?xt=urn:btih:69367BCD20A6C06C9611D4623EC96D24801C3A2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ K / K Project / Проект Кей [2012, TV, 13] BD-Rip 720p Hi10p Raw+Rus
 magnet:?xt=urn:btih:97B8A885CB12225CB760009AB271EEC9491CEF01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Eiga Koe no Katachi | A Silent Voice | Форма Голоса [2016, Movie] BDR
 ```bash
 magnet:?xt=urn:btih:5B961B219DDAE24F90D3FE33D55AE2226571FAAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Ni no Kuni | Вторая страна [2019, Movie] BDRip 1080p raw+rus
 magnet:?xt=urn:btih:47E601C7246FCC822ABC663B9B810A4EC769688A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Altered Carbon: Resleeved | Видоизменённый углерод: Вос�
 magnet:?xt=urn:btih:69ED57626F6177B9FCBB18E0F404A2CC6235078C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Ergo Proxy | Эрго Прокси [2006, TV, 23 эп.] BDrip 1080p Hi10P raw + 
 ```bash
 magnet:?xt=urn:btih:0B3EDC4E73B1A2F46E916AD7DF65F5E91674CB9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

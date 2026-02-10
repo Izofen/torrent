@@ -22,6 +22,8 @@ VA - Breezin' Smooth Jazz Tunes West Coast Lounge (2023) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:4F21FD63C84DDE544CB1B3D000FDCE8DE08DE50F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Confusion Project - Primal (2018) Soliton [FLAC|Lossless|WEB-DL|tracks] <Contemp
 ```bash
 magnet:?xt=urn:btih:3B34294DC14A2B73129612F1E0376E8B55E7DCFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Stefon Harris - African Tarantella: Dances With Duke (2006) Blue Note Records [F
 magnet:?xt=urn:btih:0CBE05F4167DF3872C30B73E46A15832B95AD4EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Lee Morgan - Tom Cat (1964) 1990, Blue Note [FLAC|Lossless|tracks + .cue] <Hard 
 magnet:?xt=urn:btih:28C62CEE7154C19F8C609D971829BE3029C98159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ Terence Blanchard & Donald Harrison - New York Second Line (1985) Concord Jazz [
 ```bash
 magnet:?xt=urn:btih:94865D61ADC980CD1AC86F6534C3E7CBE0F01309
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ Stevie Ray Vaughan & Double Trouble - 5 х CD Collection (1983-1991) /Re-mastere
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +208,8 @@ Eddie Higgins Trio - 4 альбомов (2000-2010) [FLAC|Lossless]<Bop, Mainstr
 magnet:?xt=urn:btih:9FD5B879F2E0F5E281B8B0022A458FFFE408111B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +236,8 @@ Doug Westberg - I Get The Blues (2020) [MP3|320 Kbps] <Blues Rock , Blues>
 ```bash
 magnet:?xt=urn:btih:6A2234D4EBBF27DF0542A7EA134278417C618011
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +266,8 @@ Doug Westberg - I Get the Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 magnet:?xt=urn:btih:73AE13BDB72C5B9FA2F5EECF4CF549A67ADBDCCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +294,8 @@ CD1 - Stan Meets Chet:
 ```bash
 magnet:?xt=urn:btih:4FDE585AEE1CD9F3D8313AF8F6BF3812F39E668C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +324,8 @@ John Verity Band - 11 albums (2006-2019) [FLAC|Lossless|image + .cue] <Blues Roc
 magnet:?xt=urn:btih:B91BC7E960FDA0E34E1C7312D9DA4ACDA59108A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +353,8 @@ Alan Hartwell's Big Band featuring Cozy Cole:
 magnet:?xt=urn:btih:81335A0B5D1E368F52A01076AF77AF24A2B57F9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +380,8 @@ The Michael Brecker Band - Live (1993) Jazz Door [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:93F0E9BFC2A19DDDA3995EB504211B0FB0FD078B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +410,8 @@ John Kirby - The Biggest Little Band In The Land (1938-1941) 1994, Jazz Portrait
 magnet:?xt=urn:btih:1A97760BD4F343EDBC982C6113DCA5684A712226
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +438,8 @@ The Johnny Smith - Quartet (1955) Remaster, 2016, Warner[FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:63830F6700AFD1AC4DC890C2C9ABB1F3323A5AA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +474,8 @@ Vargas Blues Band - Vargas Blues Band & Company (2012) [MP3|320 кб/с]<Blues R
 magnet:?xt=urn:btih:DA40A922E48E397819F3E3F41C4A12651C7C2669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +502,8 @@ Jack Wilson - Song For My Daughter (1968) Remaster, 2014, Universal[FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:FEE6B41B5ABBF31CFC3536B6E5ACFEB4F5C30395
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +538,8 @@ Jaimee Paul - Christmas Time Is Here (2010) [FLAC|Lossless]<Vocal Jazz, Christma
 magnet:?xt=urn:btih:48B5B07A8C8855C858343C4D2178C1153F279620
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +572,8 @@ Kevin Hays - 2 альбома (1994 & 2011) [FLAC|Lossless]<Jazz, Post-Bop>
 magnet:?xt=urn:btih:0CD2B8990EC8034EE74A5F910237A9DF6AA97654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +600,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:3CD700C5494B8CBCA404694F3B871598D92BBF84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +630,8 @@ Christina von Bulow - On the Brink of a Lovely Song (2018) Storyville Records [F
 magnet:?xt=urn:btih:78CBB92BF23D63025446D6F5BBD25E1D05A7E723
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +658,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:DD744850D99B0881CEFBA690A4EE8A92AC0BD0D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +688,8 @@ Christophe Wallemme - Om Project (2017) Bonsai Music [FLAC|Lossless|tracks + .cu
 magnet:?xt=urn:btih:C1BD25F1AFA5F99888827A30B3D1B55CFF32C694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,6 +716,8 @@ Papik - Cocktail Italy Vol. 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Jazz, Nu
 ```bash
 magnet:?xt=urn:btih:7EB721521F36FB7B06C275834417528CD543F06D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -698,6 +746,8 @@ Rag'n'Bone Man - Wolves (2016) EP [FLAC|Lossless|tracks + .cue] <Rhythm & Blues>
 magnet:?xt=urn:btih:79F54602E6095B51D8988CD502C5294FBE1B75F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -724,6 +774,8 @@ Andy Lindquist - Stone in the Blood (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 ```bash
 magnet:?xt=urn:btih:1EBD0A36FD4832E9B357BA354A700F8E70ADD0BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

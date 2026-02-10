@@ -24,6 +24,8 @@ DC8C является одним из наиболее гибких компре
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ DC8C является одним из наиболее гибких компре
 ```bash
 magnet:?xt=urn:btih:1CC552244680FD1DB1E32083C32F6958971CB347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:1CC552244680FD1DB1E32083C32F6958971CB347
 magnet:?xt=urn:btih:0DB3083EBB338FAD27AC37D6CEEF7DD1C66BCD15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:0DB3083EBB338FAD27AC37D6CEEF7DD1C66BCD15
 ```bash
 magnet:?xt=urn:btih:EDF3A484FB015D5CF0E3D11FBFFBA01B82E16E1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:EDF3A484FB015D5CF0E3D11FBFFBA01B82E16E1A
 magnet:?xt=urn:btih:6213896FC86CF3E701535DFD95FBF0ED62476F4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Genma Taisen / Harmagedon / Хармагеддон [1983p] BDRip 720 raw + rus
 ```bash
 magnet:?xt=urn:btih:D32FC148151909C0C45A7B9C33BA72A13A1EA403
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:D32FC148151909C0C45A7B9C33BA72A13A1EA403
 magnet:?xt=urn:btih:D3EC134C42AA87E58A89F267CDB754E2D91D8496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:D3EC134C42AA87E58A89F267CDB754E2D91D8496
 ```bash
 magnet:?xt=urn:btih:F62C1197F649F3F06F6EB19E2B4830DDD041AC3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +246,8 @@ magnet:?xt=urn:btih:F62C1197F649F3F06F6EB19E2B4830DDD041AC3E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ Google Chrome – браузер с открытым исходным кодом
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ Google Chrome – браузер с открытым исходным кодом
 ```bash
 magnet:?xt=urn:btih:EA107335EBE17221BB1672D61050ECD986127BEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:EA107335EBE17221BB1672D61050ECD986127BEA
 magnet:?xt=urn:btih:845A6B9B3ECB4253D215B8E89D59D607B991B161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ Zatox - The Noisemaker (Code Black remix) (2012) [MP3|320 кб/с]<Hardstyle>
 ```bash
 magnet:?xt=urn:btih:60BBFADCD8B6FB2B51E5C39B03197750B6D2ECE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:60BBFADCD8B6FB2B51E5C39B03197750B6D2ECE5
 magnet:?xt=urn:btih:86406FC29BE21BD2702E77830739BBAEAF403B30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ uTorrent l uTorrent 3.2 Beta Build 27239 [x86] [Мульти, есть русс�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ uTorrent l uTorrent 3.2 Beta Build 27239 [x86] [Мульти, есть русс�
 magnet:?xt=urn:btih:B08F3D710C36F5F7ED3E903BB9CCCC7F521B60B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:B08F3D710C36F5F7ED3E903BB9CCCC7F521B60B8
 ```bash
 magnet:?xt=urn:btih:8BE7AC31F9D093FF94D568900E465AEC0527911C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ AIMP - это многофункциональный аудио центр. Бл
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ NG: Джеймс Кэмерон: Путешествие к центру Земл
 ```bash
 magnet:?xt=urn:btih:A9758D21AEC7A4B5B7B580A0E57F30FFAAFE08E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ Robin Gibb (Ex. Bee Gees) - 4 альбома (1983 - 2003) /Studio Albums/ [APE,
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ UVS предназначен для упрощения процесса борь
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ UVS предназначен для упрощения процесса борь
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ UVS предназначен для упрощения процесса борь
 ```bash
 magnet:?xt=urn:btih:6C8DF39A1471D90AC1A32E728989ECE300F802F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +659,8 @@ Jef Stott - Arcana (2012) [MP3|320 кб/с]<Chillout, Tribal, Dubstep, World>
 magnet:?xt=urn:btih:9923585FE7412E25D575824A917665BADAA68712
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ magnet:?xt=urn:btih:9923585FE7412E25D575824A917665BADAA68712
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +711,8 @@ magnet:?xt=urn:btih:9923585FE7412E25D575824A917665BADAA68712
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

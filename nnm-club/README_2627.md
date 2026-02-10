@@ -22,6 +22,8 @@ VA - Jazz House Party Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, S
 magnet:?xt=urn:btih:000593D56F26FE0519E49CCE87056BC251A72E10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:000593D56F26FE0519E49CCE87056BC251A72E10
 ```bash
 magnet:?xt=urn:btih:131E5EA2C52410E3B57E9C9483C32AA10C33157F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:131E5EA2C52410E3B57E9C9483C32AA10C33157F
 magnet:?xt=urn:btih:6E48F21BE9ABA6DE79A7C041789392E546CC5EFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Rumors — смелый и привлекающий внимание шрифт,
 ```bash
 magnet:?xt=urn:btih:C78FB28F60F57704D5C98BE3D9FF61D348459EC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:C78FB28F60F57704D5C98BE3D9FF61D348459EC1
 magnet:?xt=urn:btih:2E3E1EE7D998615DE9CD3A4C9264649972FEAA4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ Atomic Peat - Demons And Other Friends (2025) [FLAC|Lossless|WEB-DL|tracks] <Hea
 magnet:?xt=urn:btih:AB380E237FF6EE7985063452A4EBB0E7F2745088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:AB380E237FF6EE7985063452A4EBB0E7F2745088
 ```bash
 magnet:?xt=urn:btih:53B3732E00C161AEE3BE3D6953AABB3C905B89A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:53B3732E00C161AEE3BE3D6953AABB3C905B89A5
 magnet:?xt=urn:btih:A2DC6F18227348A841A51E33AEE30040D3FE99F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +246,8 @@ magnet:?xt=urn:btih:A2DC6F18227348A841A51E33AEE30040D3FE99F1
 ```bash
 magnet:?xt=urn:btih:42C447C367BC0B71F1B35297E6F7C6AE8417C15D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -258,6 +276,8 @@ Ade - Supplicium (2025) [FLAC|Lossless|WEB-DL|tracks] <Oriental Death Metal>
 magnet:?xt=urn:btih:E72DEE16782B77AF3ABED438985201C667775C15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +305,8 @@ Hermyth - Aether (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Doom Metal, D
 magnet:?xt=urn:btih:0B260782C23BCF607945276257964AB9BB0C60DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +332,8 @@ magnet:?xt=urn:btih:0B260782C23BCF607945276257964AB9BB0C60DE
 ```bash
 magnet:?xt=urn:btih:E23B0953AA68D929DC96E10AE99CB3A6F789F4AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +362,8 @@ GRIMA - Nightside (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric Blac
 magnet:?xt=urn:btih:E51ECE2974A009F47177B2D0689E85A0220F4418
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +390,8 @@ Hazel Blackburn - Bajo Presión (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psyc
 ```bash
 magnet:?xt=urn:btih:08607DE0536232EC300F1D32169C638D76275C0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +420,8 @@ magnet:?xt=urn:btih:08607DE0536232EC300F1D32169C638D76275C0C
 magnet:?xt=urn:btih:A66FB1E1A6FE392B8750D02CABC85B4054782060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +448,8 @@ Obscura - A Sonication (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive
 ```bash
 magnet:?xt=urn:btih:8E725907E480184DAA1E530B2AE504EE638F15FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +478,8 @@ The Bleeding - рок-группа из Великобритании (Лондо
 magnet:?xt=urn:btih:5F0AB573A9D22E875D2884DF5AD4A43741A36E1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +506,8 @@ Heathen - Bleed the World (Live) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Spe
 ```bash
 magnet:?xt=urn:btih:E756CC631A93E64DD281003A4DE7C9F9781351B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +536,8 @@ Written-By – Ward, Butler, Dio, Iommi
 magnet:?xt=urn:btih:C48F60F5CCB0565974DE53C410D99351FB96295E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +561,8 @@ magnet:?xt=urn:btih:C48F60F5CCB0565974DE53C410D99351FB96295E
 ```bash
 magnet:?xt=urn:btih:54E1287946C9099EDC77DF2A86F5AAE529D7E911
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +588,8 @@ magnet:?xt=urn:btih:54E1287946C9099EDC77DF2A86F5AAE529D7E911
 magnet:?xt=urn:btih:6B217797634A57C6F34A5C30F637FD71CDF412FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +614,8 @@ Vivaldi 7.2.3621.63 include standalone [Multi/Ru]
 magnet:?xt=urn:btih:321FA00505D959DB2BFF9145973BEB754074F804
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +639,8 @@ magnet:?xt=urn:btih:321FA00505D959DB2BFF9145973BEB754074F804
 ```bash
 magnet:?xt=urn:btih:CC9880F60797E43B457D3BE5D87AABE2998A3B36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +667,8 @@ magnet:?xt=urn:btih:CC9880F60797E43B457D3BE5D87AABE2998A3B36
 magnet:?xt=urn:btih:B4D33DCBDB2DA511AFC5EFC4BDB2BB20CDD91ABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +692,8 @@ magnet:?xt=urn:btih:B4D33DCBDB2DA511AFC5EFC4BDB2BB20CDD91ABE
 ```bash
 magnet:?xt=urn:btih:DF31DB78D0CF9FC4848F7C2DEB5F7BC561060D23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,6 +721,8 @@ magnet:?xt=urn:btih:DF31DB78D0CF9FC4848F7C2DEB5F7BC561060D23
 ```bash
 magnet:?xt=urn:btih:1EDCA1DB2644008EE8623231B92D47B644020FAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Desktop.Calendar.Tray.OK 4.01 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:FD9955956EEE9C097B8883B28C39D57F1BAAA077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ R-Studio Network 9.3 Build 191227 RePack (& portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A77EE0F34141B3DFFED9FBA919C4C0F54A012C49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ EmEditor Professional - профессиональная версия мощно
 magnet:?xt=urn:btih:85DE57E7A39FDF6F6D4CD3E3228772328CBBEF8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ WizTree - небольшая и полезная утилита для опре�
 ```bash
 magnet:?xt=urn:btih:41AF7965BCEB699C15DD6CF965B6AC23C5BA8608
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ VidCoder - небольшая утилита, с помощью которой �
 magnet:?xt=urn:btih:5A1650E2E9C27AE8F20B742C58A436B10DBDB0B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ FastCopy - инструмент для быстрого копирования/�
 ```bash
 magnet:?xt=urn:btih:34C2B1B863981F9D3F03DAD7747A539776F46916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:242C4B08921C20AC35BA8A6A15CF8C8E8271057F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:242C4B08921C20AC35BA8A6A15CF8C8E8271057F
 ```bash
 magnet:?xt=urn:btih:0A2B95619AF2CE699AA38E6CE9B163B5EF1D5FCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ OneCommander V3 — это современный файловый менедж�
 ```bash
 magnet:?xt=urn:btih:325A128B4F2FB0A07901D23D930D5879962AAB09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Balabolka 2.15.0.838 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:B8144D3F8E80D4A79253187A8EE4FF7FC6DB2E78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Everyone Piano 2.5.7.28 [Multi/Ru]
 magnet:?xt=urn:btih:582E7445D6FA216276B363B5EAB9F4B81F964C8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Realtek Ethernet Driver 11.11.1206 | 10.63 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7ACF9BCABB5EC677C223FFAE089263E395BA3554
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Windows Update Viewer 0.5.17.0 + Portable [En]
 magnet:?xt=urn:btih:8356B1D5A450EECF4203D015C946329D26826070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Opera One 101.0.4843.43 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:58B4606E5A21CB8DD51DDF8E6D2E1D407217FC6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ FontLab 8 — это интегрированный редактор шрифт�
 ```bash
 magnet:?xt=urn:btih:875B3514F985FB1D0FFF5B46943C513E3DDE08A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Rainlendar Lite — календарик для рабочего стола с �
 magnet:?xt=urn:btih:9A634629919E579E838D128A71A44D2EDCCAC26A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ FBackup — это свободно распространяемое прогр�
 ```bash
 magnet:?xt=urn:btih:9BF790529807C0443CF6EDED80A47F8C4FD8F7AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ PhotoRoom v4.6.3 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:55A7622F4F542DACEFA1E577D332F66C65B95DC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 05.10.2022) [Ru]
 ```bash
 magnet:?xt=urn:btih:F1CF735477B7BB004683063A4A42F4EB3AB001A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:F46A9B70AAE9F54583FE4BCD37E1B735AB04AE27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ CareUEyes служит для изменения цветовой темпера
 ```bash
 magnet:?xt=urn:btih:017A0E2CEFB5CDCC6DF0477A8F2F975A0581ECA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:017A0E2CEFB5CDCC6DF0477A8F2F975A0581ECA0
 magnet:?xt=urn:btih:A7EE3E1EF951575DCA73E99F731791A1331C37D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 magnet:?xt=urn:btih:371231D6232483573AB4397A851C3E0AF258FAC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ Opera Crypto Browser 101.0.4843.43 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4E698C94CCA0980B868809392BBF5F0D6E2827E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ Blender - бесплатный редактор трехмерной графи�
 magnet:?xt=urn:btih:D1AFA442EF62C2C0830DA6AF0EB6030D85281155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ DxO PhotoLab 6 ELITE Edition 6.8.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:32C4EBEF289EAD60E3C20FFA44472630F0D25556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Jeff Carlson | The OS X Mountain Lion Pocket Guide [2012] [PDF] [En]
 magnet:?xt=urn:btih:ACE655B1A15F5964EAB51DD76260E306FCA0E869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:ACE655B1A15F5964EAB51DD76260E306FCA0E869
 ```bash
 magnet:?xt=urn:btih:A6451676FA7A64CAB69D9E6EE161B5828084C89E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:A6451676FA7A64CAB69D9E6EE161B5828084C89E
 magnet:?xt=urn:btih:960F8BF7EC93F63A1AF80CD637D0CC406E5059C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:960F8BF7EC93F63A1AF80CD637D0CC406E5059C8
 ```bash
 magnet:?xt=urn:btih:A68B41CE83E29A610B644CADAC9384B8C494C87E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:A68B41CE83E29A610B644CADAC9384B8C494C87E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:A68B41CE83E29A610B644CADAC9384B8C494C87E
 ```bash
 magnet:?xt=urn:btih:DAA9E1C63E8CC90EC275DF38C6D4E9FAE8DFB9DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:DAA9E1C63E8CC90EC275DF38C6D4E9FAE8DFB9DA
 magnet:?xt=urn:btih:CE80879CB1DB14723AFA9D05D82F83E34F96607A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Data Science (исследование данных) - одна из самых 
 magnet:?xt=urn:btih:D2880C26F72626E475BD3A9974771AA92607FEA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:D2880C26F72626E475BD3A9974771AA92607FEA9
 ```bash
 magnet:?xt=urn:btih:202D9CD0976055F111F6C96BC81A7BACA5D5CF36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:202D9CD0976055F111F6C96BC81A7BACA5D5CF36
 magnet:?xt=urn:btih:F8E509CE0BA38765642CE9B49AAE91385D6CCD3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:F8E509CE0BA38765642CE9B49AAE91385D6CCD3D
 ```bash
 magnet:?xt=urn:btih:4008812F35A8D7E5EB4DA58C09F5665E84012C74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:4008812F35A8D7E5EB4DA58C09F5665E84012C74
 magnet:?xt=urn:btih:B4C5BEAEC4EE5CF59F00DDA8E5A2CF16B8FC1FD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:B4C5BEAEC4EE5CF59F00DDA8E5A2CF16B8FC1FD2
 magnet:?xt=urn:btih:C45E00B62F777A60CB239986FF13413E50E31DBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:C45E00B62F777A60CB239986FF13413E50E31DBA
 ```bash
 magnet:?xt=urn:btih:B010F9D43223DF58315A6E72927C8676BB2F9842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Jennifer Niederst Robbins | Веб-дизайн. Самоучитель 4 в 1 (
 magnet:?xt=urn:btih:AED4DE93AEA31AA09879E3545D731E81768DA4D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Cегодня Big Data – это большой бизнес.
 magnet:?xt=urn:btih:3FD730E9904E9260581B6A0C0EF531E6EFD67066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Adobe Press | Adobe Audition CS6 Classroom in a Book [2012] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:B3353A99BE794FDFF94630776D43B465186A33B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:B3353A99BE794FDFF94630776D43B465186A33B2
 magnet:?xt=urn:btih:92E2FFB59927C50BADA5EBAD9C2CAD840187E0C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:92E2FFB59927C50BADA5EBAD9C2CAD840187E0C2
 ```bash
 magnet:?xt=urn:btih:4B9A6C57C928F64689CF11CEEEBA3C5EE25967E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:4B9A6C57C928F64689CF11CEEEBA3C5EE25967E6
 magnet:?xt=urn:btih:5F9BE09AA6E470CE43B357BEF1CD266EBC53E25C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:5F9BE09AA6E470CE43B357BEF1CD266EBC53E25C
 ```bash
 magnet:?xt=urn:btih:7FDA6FC5AA25F9FAE668688EF91861C2FBBC4C61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:7FDA6FC5AA25F9FAE668688EF91861C2FBBC4C61
 magnet:?xt=urn:btih:07ABDEF060F16A68112EF41770F7FD2E7218C309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:07ABDEF060F16A68112EF41770F7FD2E7218C309
 ```bash
 magnet:?xt=urn:btih:9F784DF0678DEC26DDA2D332C0EEF82D6117F2B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Jason P.Odell, Ph.D. | Capture NX2 для фотографов (Краткое �
 magnet:?xt=urn:btih:561D79B23E23F4A320D17803D7F1E8C28AE1A6F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:561D79B23E23F4A320D17803D7F1E8C28AE1A6F3
 magnet:?xt=urn:btih:E4475A30B6F2C4047F53D46827CA0FF55FD6F7DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:E4475A30B6F2C4047F53D46827CA0FF55FD6F7DB
 ```bash
 magnet:?xt=urn:btih:FDDCC8839ED581879754BE2899F3FF871640F0E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ VA - Hits All Time. Volume 1-60 (Compiled by Codename87) (~2000-2025) [MP3|128-3
 magnet:?xt=urn:btih:3D894BE5D6D3C55D125FD275C89DC1798F9FB616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ The Planet Crafter (2022) [Ru/Multi] (1.526/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:B45F6A7FA1A4B1EA4E21C1B4EA2BB993283A143F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:B45F6A7FA1A4B1EA4E21C1B4EA2BB993283A143F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:B45F6A7FA1A4B1EA4E21C1B4EA2BB993283A143F
 ```bash
 magnet:?xt=urn:btih:8253BB4019F2D085351B0B94CFC6D20E7C94C4D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ SnowRunner (2020) [Ru/Multi] (37.0/dlc) Scene Rune
 magnet:?xt=urn:btih:5B99305041F8D3357C20719A93F9F5DC0A251142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:5B99305041F8D3357C20719A93F9F5DC0A251142
 ```bash
 magnet:?xt=urn:btih:DBD36A8465042074D2BE78DDAA69560AA7547A25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:DBD36A8465042074D2BE78DDAA69560AA7547A25
 magnet:?xt=urn:btih:5214CEF4AEE7F537A5831EABF1BDD987B209309D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:5214CEF4AEE7F537A5831EABF1BDD987B209309D
 ```bash
 magnet:?xt=urn:btih:9F572AA6AEE63C1A526A285AABF2F7558A9E1971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:9F572AA6AEE63C1A526A285AABF2F7558A9E1971
 magnet:?xt=urn:btih:6054F24994C373EFF5CAD7BACCB9778C61EB6B61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:6054F24994C373EFF5CAD7BACCB9778C61EB6B61
 ```bash
 magnet:?xt=urn:btih:D00BDF84FD940AC080BD03D536152E64927DE1F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:D00BDF84FD940AC080BD03D536152E64927DE1F1
 magnet:?xt=urn:btih:EA8E80384B301A75926E38C286925C9B3A6D30EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Microsoft® Windows® 11 Enterprise LTSC x64 24H2 RU by OVGorskiy 06.2025 [Ru]
 magnet:?xt=urn:btih:17B6E5E1AF166ED32579E9FD443389654B99E0ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ The Elder Scrolls IV: Oblivion Remastered представляет собой п
 ```bash
 magnet:?xt=urn:btih:7DC2055E96EC54FDF3AE74ECDD42161350CBB0A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:7DC2055E96EC54FDF3AE74ECDD42161350CBB0A3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ ByeByeDPI v1.5.0 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:D3277F6317098985FF0BD48790B4D23147E2829E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:D3277F6317098985FF0BD48790B4D23147E2829E
 magnet:?xt=urn:btih:AA0A3DB9660DBBF5C972409849353079CD8A1FD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:AA0A3DB9660DBBF5C972409849353079CD8A1FD0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:AA0A3DB9660DBBF5C972409849353079CD8A1FD0
 magnet:?xt=urn:btih:BED14C7A3C5B0CE78C865F7F92382162906EED63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:BED14C7A3C5B0CE78C865F7F92382162906EED63
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:BED14C7A3C5B0CE78C865F7F92382162906EED63
 magnet:?xt=urn:btih:C44F871BFC4E6FFDC93E2675431B60B72BCDC4DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:C44F871BFC4E6FFDC93E2675431B60B72BCDC4DA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:C44F871BFC4E6FFDC93E2675431B60B72BCDC4DA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ UnderRail (2015) [En] (1.2.0.23/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:7CCF020844CBDE11440069197ABC8C9592F44ABD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:7CCF020844CBDE11440069197ABC8C9592F44ABD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

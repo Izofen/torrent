@@ -1,3 +1,29 @@
+###  Публикация: 981006   (954009) от 30.01.2016
+
+Скотт Джурек, Стив Фридман | Ешь правильно, беги быстро. Правила жизни сверхмарафонца (2014) [PDF, FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_954009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Скотт Джурек – сверхмарафонец, то есть соревнуется на дистанциях больше марафонских, вплоть до 200-мильных. Эта книга – не просто захватывающая автобиография. Это еще и советы профессионала по технике бега и организации тренировок на длинные и сверхдлинные дистанции. Это система питания: Скотт при своих огромных нагрузках – веган, то есть питается только натуральными (   Читать дальше...   )Жанр: Психология, Спорт, Здоровье, ПитаниеФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72D981CF1F219C41312B192772D2A01FEEE4CF7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361540   (954077) от 20.02.2020
 
 Фаузия Ибрагимова | Мастер кулинарии (2017) [PDF]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:FD0D4F6638E45D8CCF4ABED843C95A13CE05581B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:FD0D4F6638E45D8CCF4ABED843C95A13CE05581B
 magnet:?xt=urn:btih:49283DC1A34E6D142EE6CE5E0D8FA22961D7E1BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:49283DC1A34E6D142EE6CE5E0D8FA22961D7E1BC
 magnet:?xt=urn:btih:64113170024D84AD1ACA97D638D7D607896A49CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:64113170024D84AD1ACA97D638D7D607896A49CC
 ```bash
 magnet:?xt=urn:btih:B06788D88EF6A3FF7E0523A1CE08FCFB9EBAAEC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:B06788D88EF6A3FF7E0523A1CE08FCFB9EBAAEC7
 magnet:?xt=urn:btih:C3DC93D7C665481470CD97497154110CC1BC222C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:C3DC93D7C665481470CD97497154110CC1BC222C
 ```bash
 magnet:?xt=urn:btih:4B974E3E1E7FC2EC714FD73FF66B73533C1FEBE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:4B974E3E1E7FC2EC714FD73FF66B73533C1FEBE3
 magnet:?xt=urn:btih:37558642B0E659E7929D91FD8854786497094D2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:37558642B0E659E7929D91FD8854786497094D2A
 ```bash
 magnet:?xt=urn:btih:39916D5FB545035FBEDC21ABF09A233E976FC8EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:39916D5FB545035FBEDC21ABF09A233E976FC8EF
 magnet:?xt=urn:btih:DA81BA8A80AF132B02CF3339F6ECD85E40F77152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:DA81BA8A80AF132B02CF3339F6ECD85E40F77152
 ```bash
 magnet:?xt=urn:btih:1EB14EC99682FBC0BABC5962CE6F1433941939FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:1EB14EC99682FBC0BABC5962CE6F1433941939FB
 magnet:?xt=urn:btih:F167BB7C18F7CF567DE9643A7D07B288C4F5F93A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:F167BB7C18F7CF567DE9643A7D07B288C4F5F93A
 ```bash
 magnet:?xt=urn:btih:E0F8B18D8723CF9B45BF4F6BE1328D0384C857DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:E0F8B18D8723CF9B45BF4F6BE1328D0384C857DE
 magnet:?xt=urn:btih:88F63D08EC843345A212CC2A75205B63DACC5150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:88F63D08EC843345A212CC2A75205B63DACC5150
 magnet:?xt=urn:btih:8B610A3F52DB54E7669B1491B59C34D56B4DFA43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:8B610A3F52DB54E7669B1491B59C34D56B4DFA43
 ```bash
 magnet:?xt=urn:btih:E6E774330E9D252E553AAAA270DBDB4BADA31842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:E6E774330E9D252E553AAAA270DBDB4BADA31842
 magnet:?xt=urn:btih:F68ECA6FF9F2BF5E97FC0F6F184A67FE6E78AF69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:F68ECA6FF9F2BF5E97FC0F6F184A67FE6E78AF69
 magnet:?xt=urn:btih:3911A20C9DF2F0F27D630851D48601D2D761E868
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:3911A20C9DF2F0F27D630851D48601D2D761E868
 ```bash
 magnet:?xt=urn:btih:379873CD2586B72154A0C684FBC221E6D49576A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:379873CD2586B72154A0C684FBC221E6D49576A7
 magnet:?xt=urn:btih:E1D3C6356B7C17A0A1D7C10FB90975BB40261CFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:E1D3C6356B7C17A0A1D7C10FB90975BB40261CFE
 ```bash
 magnet:?xt=urn:btih:16F7D6429BA504A674AD68B5DDABB34A5EBB94CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:16F7D6429BA504A674AD68B5DDABB34A5EBB94CC
 magnet:?xt=urn:btih:E61F30149FD726A2BAE26DDBBA8685914903C846
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:E61F30149FD726A2BAE26DDBBA8685914903C846
 ```bash
 magnet:?xt=urn:btih:F0BD8590101FB18C6DFC49434833A3EAB3E66BF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:F0BD8590101FB18C6DFC49434833A3EAB3E66BF4
 magnet:?xt=urn:btih:6EABFDA0433E9692AE3C8D092153BF2FF3CDD7C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:6EABFDA0433E9692AE3C8D092153BF2FF3CDD7C6
 ```bash
 magnet:?xt=urn:btih:81C786A1FBBD924EB280E0CD9BBF4BAF3EDF5B99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,29 +685,7 @@ magnet:?xt=urn:btih:81C786A1FBBD924EB280E0CD9BBF4BAF3EDF5B99
 magnet:?xt=urn:btih:9AD39D35AD3587828D8366F3A38BA36BDBB1FB78
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980058   (956015) от 29.01.2016
-
-Инна Старожукова, Игорь Немировский | Выдающийся руководитель (2015) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_956015.jpg" />
-</div>
-
-
-###  Подробнее
-
-В нынешних условиях ни одна компания уже не может поддерживать свою конкурентоспособность путем хотя и постоянных, но незначительных повышений эффективности работы. Сегодня нужен прорыв. И чтобы его совершить, руководитель должен собрать команду сильнейших специалистов и использовать новаторские подходы и наиболее действенные методы управления. Справиться с такими (   Читать дальше...   )Жанр: Бизнес, управление, менеджментФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB55C75CACAD2C1C4FD0FD9BA216160A09962EE9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

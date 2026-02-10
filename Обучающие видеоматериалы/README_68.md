@@ -20,6 +20,8 @@ CG Cookie, Jonathan Lampel | ASSEMBLE: Introduction to Procedural Modeling with 
 magnet:?xt=urn:btih:865DAE5742865FEEBCB027177AABF34B5871C476
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Levelup.Digital, Rosa Lee | Sculpting & Texturing Harley Quinn (2019) PCRec [EN,
 magnet:?xt=urn:btih:4DE95201C16E2458737DE39DA487B44D535D1F7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Joker 2022 — международная Java-конференция. Спик�
 ```bash
 magnet:?xt=urn:btih:7681F7EF9983EC3470649739D9D4EA385A8F58D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:7681F7EF9983EC3470649739D9D4EA385A8F58D2
 magnet:?xt=urn:btih:70DCA67B6F0561D856C35CDAEE815B667D051662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ HolyJS 2022 Autumn - большая конференция для JS-разра�
 ```bash
 magnet:?xt=urn:btih:B359B27D420D5E2C34FF00F03525576B97941A75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ SkillUP | Тестировщик ПО с гарантией трудоустро
 magnet:?xt=urn:btih:6226FDA1B6C14DB2FD4B4210456D2AC534C6F954
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Erick Wendel | Mastering Node.js Streams with Erick Wendel (2022) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:7A61BBFC795BCCF4C3BD24986C7B01AF2D659A37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ YouTube — это стало проще благодаря Chat GPT и инст
 magnet:?xt=urn:btih:2126F824D27EA5A6214B7570852D35B51DAC6089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Motionguru, Jafar Fazel | Motion Design Course (Motion Hero) (2021) WEB-DL [AD] 
 ```bash
 magnet:?xt=urn:btih:D6969F7CE962F8B979F78171AEF52B93E986C3D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Udemy, Stephen Ulibarri | Unreal Engine C++ The Ultimate Game Developer Course (
 magnet:?xt=urn:btih:FEBC86C7A9B3BBEB95B862839F002D75006F6A42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Udemy, Roope Kiuttu | Make Money on YouTube Following PROVEN STEPS - Works in 20
 magnet:?xt=urn:btih:652587ADB13B920F42CA6540BFFE0409EBEF8AD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ Gumroad, Eugene Petrov | Handgun for Video games Tutorial (2019) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:327C119E9BCF16C908F5C64BEE4C8FB04FC6F1C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ Cubebrush, Marc Brunet | Complete Guide to a Concept Art Career (2017) WEB-DLRip
 magnet:?xt=urn:btih:E10DF374E16BA3906DE46B3C2C9490960AC494D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:E10DF374E16BA3906DE46B3C2C9490960AC494D8
 magnet:?xt=urn:btih:6C7C2FFF71431D2CBE4C4CF83C09AFD0CBA420DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ Udemy.com | Photoshop CC 2018 for Absolute Beginners (2018) PCRec [H.264/720p-LQ
 ```bash
 magnet:?xt=urn:btih:349E31E4C4DAB34971E0CC1616C6EC5D95127E3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ FlippedNormals, Henning Sanden | Character Face Texturing in Substance Painter (
 magnet:?xt=urn:btih:F722B33A1DCEF33978DA0AED94CEA0E0274FAEB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ The Gnomon Workshop, Ted Mebratu | Cinematic Lighting in Unreal Engine 5 (2022) 
 ```bash
 magnet:?xt=urn:btih:28AA62AA1CC2097F39C6E22CDC10708B9458E719
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ The Gnomon Workshop, Luis Carrasco | 3D Creature Design in ZBrush, Keyshot and P
 magnet:?xt=urn:btih:9BE84C2B25A5DF1D8FFA449E083721D716BFE9A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ The Gnomon Workshop, Charleston Silverman | Unreal Engine 5 Material System Over
 ```bash
 magnet:?xt=urn:btih:0B59282E94710F427AAD57EB5BD0C8BA3717DDA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ Mold3D Academy, Dylan Ekren | Creating Appealing Characters in 3D (2019) PCRec [
 magnet:?xt=urn:btih:34FD6836E74F8489FE5B1164A8457F807777F6A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ The Gnomon Workshop, Maarten Verhoeven | The Making of Red Myst (2022) PCRec [EN
 ```bash
 magnet:?xt=urn:btih:2C9F785E72D1A4AD437465F2D8AE005A5C185B2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:2C9F785E72D1A4AD437465F2D8AE005A5C185B2D
 magnet:?xt=urn:btih:94252508FD7174AD1D62AF9BFBD9E9EA71826E38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ IAmTimCorey, Tim Corey | Изучение C#: Blazor WebAssembly / Exploring C#:
 ```bash
 magnet:?xt=urn:btih:4987D6207E846A464A51FDDB90A379659CADDAA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +643,8 @@ Allow each of your engineering teams to work independently
 magnet:?xt=urn:btih:26112D9F351C81FC0C31C14D926B114C4E31AB61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ Strogoorganic, Мария Винокур, Эля Ямилева | Курс на�
 magnet:?xt=urn:btih:5E7692E15CA0EF6754931B525C4429D4D94878F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ AppSettings - это мощь (и сложность одновременно!) 
 ```bash
 magnet:?xt=urn:btih:3B407DF3D4199C8C06F8629CF39E217CCA9DA412
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

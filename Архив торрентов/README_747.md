@@ -26,6 +26,8 @@ Space Elves - Terrestrial Planet Finder (2012) [MP3|320 кб/с]<Psychedelic, Go
 magnet:?xt=urn:btih:09B576AD26F5AA7B3C34F961A825FCE9AC0FFACE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ magnet:?xt=urn:btih:09B576AD26F5AA7B3C34F961A825FCE9AC0FFACE
 magnet:?xt=urn:btih:E254ACF6BF7ACB19F35EB768E8B8C57C175ED82A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -78,6 +82,8 @@ NG: Возвращение носорогов / Rhino Rescue (2009) [720p] BDRip
 magnet:?xt=urn:btih:B57F4A5541AD7BB67FDDEDD4D641D62C7BFAFD0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:B57F4A5541AD7BB67FDDEDD4D641D62C7BFAFD0A
 ```bash
 magnet:?xt=urn:btih:5A94300232A8E19D733EF9D9E1EB0336414EFBC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -135,6 +143,8 @@ VA - Клубная дискотека Record vol. 2 Русская (2012) [MP3|
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +178,8 @@ VA - Kitties Wanna… Techno! (2012) [MP3|320 кб/с]<Techno, Tech House>
 magnet:?xt=urn:btih:347A38B8CAFF7584C73DDA9E152CA74341AE5E92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +203,8 @@ magnet:?xt=urn:btih:347A38B8CAFF7584C73DDA9E152CA74341AE5E92
 ```bash
 magnet:?xt=urn:btih:A80C05D2807AFD4CC1D5676909A947E0B20CBAC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +234,8 @@ magnet:?xt=urn:btih:A80C05D2807AFD4CC1D5676909A947E0B20CBAC6
 magnet:?xt=urn:btih:645CC25B1CFC6F2F1ED1D895CB11C5613FBF8EEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +259,8 @@ magnet:?xt=urn:btih:645CC25B1CFC6F2F1ED1D895CB11C5613FBF8EEF
 ```bash
 magnet:?xt=urn:btih:8E676285088DD0EA6C6887F3DEB7ACB1601CDC64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +287,8 @@ magnet:?xt=urn:btih:8E676285088DD0EA6C6887F3DEB7ACB1601CDC64
 magnet:?xt=urn:btih:B743120B2BA592A84904179B1B4EA78536D4A163
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +313,8 @@ magnet:?xt=urn:btih:B743120B2BA592A84904179B1B4EA78536D4A163
 magnet:?xt=urn:btih:05C29B6D91D084BB2A86F000A1199DCB68DDEEE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ magnet:?xt=urn:btih:05C29B6D91D084BB2A86F000A1199DCB68DDEEE1
 ```bash
 magnet:?xt=urn:btih:686EAE222951014E78E6215A61E02ECE23533B11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +369,8 @@ magnet:?xt=urn:btih:686EAE222951014E78E6215A61E02ECE23533B11
 magnet:?xt=urn:btih:1074D286D698870FCEE1EC009E22DF84280BBE81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ magnet:?xt=urn:btih:1074D286D698870FCEE1EC009E22DF84280BBE81
 magnet:?xt=urn:btih:A546DDAA670A0C0CC24F686E62406F78E876DC9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +420,8 @@ magnet:?xt=urn:btih:A546DDAA670A0C0CC24F686E62406F78E876DC9A
 ```bash
 magnet:?xt=urn:btih:F3DC2137E95D56F84E84C134D91EF3315B7A90C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ Don Ross - Breakfast for Dogs! (2010) [MP3|320 кб/с]<Acoustic Guitar, Fingers
 ```bash
 magnet:?xt=urn:btih:DD667E263CC25E75580F433C01DCAA42DC5C7E85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +490,8 @@ Ladylike Lily - Get Your Soul Washed (2012) [MP3|~245 кб/с (V0)]<Folk, Indie,
 magnet:?xt=urn:btih:A9A13C5C0F74DE6A5B2C56BDBDD3196280E04450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +515,8 @@ magnet:?xt=urn:btih:A9A13C5C0F74DE6A5B2C56BDBDD3196280E04450
 ```bash
 magnet:?xt=urn:btih:66A09D6E3B9938FB080CE9A8DDF8B0C62DA42AF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +542,8 @@ magnet:?xt=urn:btih:66A09D6E3B9938FB080CE9A8DDF8B0C62DA42AF2
 magnet:?xt=urn:btih:59446CAA2CB4E631DFF3AE33915F0490B7480ABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +567,8 @@ magnet:?xt=urn:btih:59446CAA2CB4E631DFF3AE33915F0490B7480ABE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +598,8 @@ magnet:?xt=urn:btih:59446CAA2CB4E631DFF3AE33915F0490B7480ABE
 magnet:?xt=urn:btih:BA1234B713FA38091C4B1C7298A1B16FBB0E1A1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +623,8 @@ magnet:?xt=urn:btih:BA1234B713FA38091C4B1C7298A1B16FBB0E1A1A
 ```bash
 magnet:?xt=urn:btih:623C54F28016761E69ED7EDB2DCEBE818AECB314
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +658,8 @@ VA - Overdose 3 (2012) [MP3|320 кб/с]<DubStep>
 magnet:?xt=urn:btih:C3148FD4B79A80588D3A5C6D26806E2E992E4B69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +689,8 @@ Wolfgang Amadeus Mozart
 ```bash
 magnet:?xt=urn:btih:CD3F12F9339F26EA6C24447D1EEA08C9ADD0B1CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -677,6 +725,8 @@ Pepe Romero - Guitar. Flamenco (1962) [MP3|320 кб/с]<Flamenco, Instrumental>
 magnet:?xt=urn:btih:4D3B295A3EC57CAD0CB6F09701ACE4F54A28D52D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,6 +750,8 @@ magnet:?xt=urn:btih:4D3B295A3EC57CAD0CB6F09701ACE4F54A28D52D
 ```bash
 magnet:?xt=urn:btih:D90F115B75A4CE3ECA9336406631615C2E47D3E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Vambrace: Cold Soul (2019) [Ru/Multi] (1.11-fix) License GOG
 magnet:?xt=urn:btih:C500A90790B59BD363C04C87678F1E687B10A526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Unpacking - медитативная игра, где нужно достава�
 ```bash
 magnet:?xt=urn:btih:2C7F672309628B5698FF4B8A45187F43CA20B2D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cities: Skylines (2015) [Ru/Multi] (1.14.0-f4/dlc) License CODEX [Deluxe Edition
 magnet:?xt=urn:btih:27D0DEECDEB5B67A436E6F88C72E8ED3B30333C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Rusty Rabbit (2025) [Ru/Multi] (Build 18177047) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:E67E0057679F4BF9879F848532AC39C5B013262F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Unyielder (2025) [Multi] (1.0.1) Scene Tenoke
 magnet:?xt=urn:btih:6C0B4B30D01067DE03CDB842607F1B605F19AFF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Slay the Spire (2019) [Ru/Multi] (2.2) License GOG
 ```bash
 magnet:?xt=urn:btih:E591D5313702846F02B9BFAA6DD99009A9AB01C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Counter-Strike 1.6 Warface (2020) [Ru] (1.1.2.7/pv48/b4554) Repack Ganniball
 magnet:?xt=urn:btih:A5AE9E8E23DEBE97D960308E8852E70C19D84409
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ WWE 2K20 (2019) [Multi] (1.08/dlc) Repack xatab [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:FE4E96C97DD2C4A3DAD6E4025E695C77E91301C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Saint Kotar: The Yellow Mask (2020) [Ru/Multi] (1.4) Repack Other s
 magnet:?xt=urn:btih:B986F9F1A8C6E7D939376CAE5823541CD3AB3AFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Christmas Wonderland 12 / Рождество. Страна Чудес 12 (2021) 
 ```bash
 magnet:?xt=urn:btih:65AB61AAAAF95515966F9134D5A56610D0A0604D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Mageseeker: A League of Legends Story - ролевое приключени�
 magnet:?xt=urn:btih:11D5C668BE679BF5E2124228913558F4F9502AE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ F.E.A.R. 3 (2011) [Ru/Multi] (20.1060) License GOG
 ```bash
 magnet:?xt=urn:btih:2F5BA81292C7D8BEAE5AFF2A17433892B2EC86B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Smurfs 2 - The Prisoner of the Green Stone (2023) [Ru/Multi] (1.02.06/dlc) S
 magnet:?xt=urn:btih:54854C51DCAFF0AF5FABC1BA4944DFE39AA629C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Wildfire (2020) [Ru/Multi] (1.04.06) License GOG
 ```bash
 magnet:?xt=urn:btih:042D1F71324D382D7FCAFCDB2886E417B9BBB973
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Teardown (2020) [En] (0.9.0) Unofficial [Early Access]
 magnet:?xt=urn:btih:AD46F9FA181990F16315608C67561A97A3EF059E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ VenusBlood HOLLOW International (2021) [En] (1.0.2/dlc) License GOG [16+]
 ```bash
 magnet:?xt=urn:btih:89606B75B1DD2028446A3989B283EAD498B8C08E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Stranded Sails Explorers of the Cursed Islands (2019) [Ru/Multi] (1.1) Repack Bu
 magnet:?xt=urn:btih:029C312F4FC5D7A328B4214326630EC545C39136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ BioShock Infinite (2013) [Ru/Multi] (1.0.1643565/dlc) License GOG [The Complete 
 ```bash
 magnet:?xt=urn:btih:79370CE7EECD7D827200356D64B90FB0178086FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ BioShock Infinite (2013) [Ru] (1.0) Unofficial [Русификатор]
 magnet:?xt=urn:btih:497457ACAD67A5355CC7CC313CE0793F6D26E580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Observer: System Redux (2020) [Ru/Multi] (1.3.0rc3) Repack xatab
 ```bash
 magnet:?xt=urn:btih:278CAD3BDBCC01208957A69CAB5E418C117D24F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ DEATH STRANDING (2020) [Ru/Multi] (1.05) License CODEX
 magnet:?xt=urn:btih:CE14E1C837B74FE4A4DAF30F0AB77743FD08042E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Saint Kotar - это психологический хоррор-квест в �
 ```bash
 magnet:?xt=urn:btih:0FCD5773C5F9733E88B33AB0528F704782FE78AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Oxygen - градостроительный симулятор, включающ
 magnet:?xt=urn:btih:A1AD6EAB339B95D9AED21F39CEFB13D7AFD30E63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Offroad Mechanic Simulator (2023) [Ru/Multi] (1.06) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:C538F6124146EBE9A5A68E3DEC9ABB7BC6706BFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ RoboCop: Rogue City (2023) [Ru/Multi] (1.1.1.0/00.014.032/dlc) Repack DjDI [Alex
 magnet:?xt=urn:btih:D64FF2D596EA68A09A285FF6EE147CF16B9392E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Chimeras 10: The Price of Greed (2019) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:67D5F543F748F49D6C82AC43406D4B994AB7D9E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

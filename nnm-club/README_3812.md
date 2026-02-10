@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6366419721015C7AE37E3D4200C0865EF72ED713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ AnyDesk взломали хакеры — похищены исходники и
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ AnyDesk взломали хакеры — похищены исходники и
 ```bash
 magnet:?xt=urn:btih:1A54D7A734F8ABC7DF68F7A32DBAE7C28148BB0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Mr. & Mrs. SmithСША, Великобритания, 2024 год.(   Читат
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Mr. & Mrs. SmithСША, Великобритания, 2024 год.(   Читат
 ```bash
 magnet:?xt=urn:btih:C0B05429C76EBEEDBBD33F0A85B83194A92967E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:C0B05429C76EBEEDBBD33F0A85B83194A92967E8
 magnet:?xt=urn:btih:B66029794E6859AA7CDBE778337329C67BE17406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:B66029794E6859AA7CDBE778337329C67BE17406
 ```bash
 magnet:?xt=urn:btih:96ED5F1D3D0260359EB2E754CD238F97056B960D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ BeachHead (2024) [En] (1.3.25) Repack FitGirl
 magnet:?xt=urn:btih:5E4D9B01C9D6CA323AD60296C81514B53C80A84C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Native Instruments - Guitar Rig 7 v7.0.2 Standalone, VST 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:521B947D6E9E551D8943D503BDF86D2E0BB143F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Mississippi Shakedown - Mississippi Shakedown QLD (2024) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:3569979F335D27450F27AD461527F8DBC20E03E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ A4 Ramund(   Читать дальше...   )Жанр: Atmospheric Black Metal, 
 ```bash
 magnet:?xt=urn:btih:5ED376654036B0920377373ACCEAAC855CCD647C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ Johnny Rawls - Walking Heart Attack (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:1CA887B9AC6C720FBAD3D111F28BC8C9D8C46C64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Kenny Barron Trio - Lemuria-Seascape (1991) 2023, Candid [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:BF3324E7445B0F3B6E7C508B35DB3BA7847082A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ Tyrants - Warlord (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Speed, Thrash Me
 magnet:?xt=urn:btih:D7047F171D2FA4A188C45B883DED4118900F3121
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:D7047F171D2FA4A188C45B883DED4118900F3121
 ```bash
 magnet:?xt=urn:btih:30721BB898D9A16B281B262D71B7ECAFF6162430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ A4 Byssan Lull(   Читать дальше...   )Жанр: Atmospheric Black Me
 magnet:?xt=urn:btih:6DF39500BFC0B3C0B038E5EE2892A261311FD103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ Siren - Financial Suicide (1989) Reissue, 2018, Blacksmith Productions [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:7277D47374CB59E0EDF0CEEAECCFF983F98D9660
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ A4 Vølvens Spådom(   Читать дальше...   )Жанр: Atmospheric Bla
 magnet:?xt=urn:btih:737582707B432ED1CE9E4C5C2F085355CCC02B2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:737582707B432ED1CE9E4C5C2F085355CCC02B2B
 ```bash
 magnet:?xt=urn:btih:7097EAF9E53B16EE2190F33D1F4F0F2CE3868996
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ Shaytan - Chapter One (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 magnet:?xt=urn:btih:3EE8AD7B416749EBF2AE6E16719DB7C06A7F7EAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +574,8 @@ magnet:?xt=urn:btih:3EE8AD7B416749EBF2AE6E16719DB7C06A7F7EAD
 magnet:?xt=urn:btih:1980772FD00045CB510CB32D209E05B5071BF4DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:1980772FD00045CB510CB32D209E05B5071BF4DC
 ```bash
 magnet:?xt=urn:btih:A5FBC8ECA820DDD95FF174957509C3B0BB2D0BD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +629,8 @@ Lloyd Foulks - They Call Him Joe (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Ja
 magnet:?xt=urn:btih:B31D31F70D8D7A4E4FB7BA28EF408D7FCEF42C7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +657,8 @@ Mark Dillon - T.A. Vern's (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:015132B7A420684D7B9A44D5C5B3D04C182B6D44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +687,8 @@ Sacrify Souls - The New Begin (2023) [MP3|320 Kbps] <Heavy Metal>
 magnet:?xt=urn:btih:4B9D3BC4606D439A24A34C28843FCD2D0F6B053E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +715,8 @@ Emanuel Casablanca - Strung Out On Thrills (2024) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:D7AB4CDCC1F25234CBE1F9789D09767E01D073A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

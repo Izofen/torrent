@@ -1,3 +1,29 @@
+###  Публикация: 938440   (482089) от 18.09.2015
+
+Анатолий Вассерман. Открытым текстом (18.09.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_482089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анатолий Александрович Вассерман — журналист, политический консультант, известен как многократный победитель интеллектуальных телеигр в программе «Новости24. Открытым текстом» за 10 минут даёт свой обзор главного в прошедшей неделе...Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68A2A63ECCF8C0FB3B8B6EB585826DF9A8E35EDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938551   (482095) от 18.09.2015
 
 Вести в 20-00. Большие Вести. Россия 1 (18.09.2015) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:AB2B18BE9ED71F07690026082C68971617A5F2F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:AB2B18BE9ED71F07690026082C68971617A5F2F0
 magnet:?xt=urn:btih:6DFC27280C1D9EC7DF68474AEF0BBD884FF7005E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:6DFC27280C1D9EC7DF68474AEF0BBD884FF7005E
 ```bash
 magnet:?xt=urn:btih:B89FEEACDC5A03023134C33928BEC6CB42803177
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:B89FEEACDC5A03023134C33928BEC6CB42803177
 magnet:?xt=urn:btih:315D7804682912DE207614C90B2D8FE972A42F4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:315D7804682912DE207614C90B2D8FE972A42F4C
 ```bash
 magnet:?xt=urn:btih:7405783A40C412A12279B709B5DF3668D566A40A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:7405783A40C412A12279B709B5DF3668D566A40A
 magnet:?xt=urn:btih:43332BE7FE1FB9C7314A869AEBC6C2FDD7B5613E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:43332BE7FE1FB9C7314A869AEBC6C2FDD7B5613E
 ```bash
 magnet:?xt=urn:btih:C68A9712CC5F83B619B05DFEF0914FE72FD9F631
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:C68A9712CC5F83B619B05DFEF0914FE72FD9F631
 magnet:?xt=urn:btih:D217801A70E2E1E5F1525F8158B2C501190E8284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:D217801A70E2E1E5F1525F8158B2C501190E8284
 ```bash
 magnet:?xt=urn:btih:DD60ED92F8356F6376FBB2E58A145B70C52B4603
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:DD60ED92F8356F6376FBB2E58A145B70C52B4603
 magnet:?xt=urn:btih:939572DA5C1902876C0C974CEACC0798E725DC30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:939572DA5C1902876C0C974CEACC0798E725DC30
 ```bash
 magnet:?xt=urn:btih:155B2F9288F2D4FB9AC095CBAFB3503F78437C50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:155B2F9288F2D4FB9AC095CBAFB3503F78437C50
 magnet:?xt=urn:btih:9B9A235B4B8AE9ED2D7CDBC7C93AD5E0FF8F39AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:9B9A235B4B8AE9ED2D7CDBC7C93AD5E0FF8F39AA
 ```bash
 magnet:?xt=urn:btih:BE36469D91E14F383C6DBAEC5EFA11D4263AD433
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ ___Авторы этой программы всегда знают больше
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ ___Авторы этой программы всегда знают больше
 ```bash
 magnet:?xt=urn:btih:0A047EA57DD371F11B43E0863F434F10E6F42E52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:0A047EA57DD371F11B43E0863F434F10E6F42E52
 magnet:?xt=urn:btih:131B433508B2AE1BD53D8B60709A887D96905291
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:131B433508B2AE1BD53D8B60709A887D96905291
 ```bash
 magnet:?xt=urn:btih:EACB251DD0E1F85317BBB09F609367B62101DA35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:EACB251DD0E1F85317BBB09F609367B62101DA35
 magnet:?xt=urn:btih:E84C07D5893C154559C85AA5F213A45D7876D07A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:E84C07D5893C154559C85AA5F213A45D7876D07A
 ```bash
 magnet:?xt=urn:btih:6C7E0FD980000DF0F4A2506DC904B0D0D9576B3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:6C7E0FD980000DF0F4A2506DC904B0D0D9576B3C
 magnet:?xt=urn:btih:98ABE0095FA31C1472D0D8F6F21AFFB580739A97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:98ABE0095FA31C1472D0D8F6F21AFFB580739A97
 ```bash
 magnet:?xt=urn:btih:5FFDB6EF01262C8BB10A628982B35A3C9563D8A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:5FFDB6EF01262C8BB10A628982B35A3C9563D8A1
 magnet:?xt=urn:btih:5E764B29FAA7992BD206DF0D80323D3E4A53CCE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:5E764B29FAA7992BD206DF0D80323D3E4A53CCE8
 ```bash
 magnet:?xt=urn:btih:DFF4CA2F14BA9097FCE10E1AE862E8ABF5C855E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:DFF4CA2F14BA9097FCE10E1AE862E8ABF5C855E8
 magnet:?xt=urn:btih:646D3E618B43AE647A0C3DAEE846DDA1544CEE83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:646D3E618B43AE647A0C3DAEE846DDA1544CEE83
 magnet:?xt=urn:btih:A5097821B96E2B809F6A837DB3B25016E9200D04
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159455   (483818) от 20.08.2017
-
-Танцы (2017.08.19) HDTV [H.264/1080i] (сезон 4, выпуск 1)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_483818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Танцы 4 сезон, в очередном сезоне любимого миллионами танцевального проекта нас ждет противостояние полов, потому что Егора Дружинина больше нет в числе членов жюри. Его место заняла знаменитый хореограф Татьяна Денисова. С появлением нового судьи будут связаны крупные изменения новых деталей проекта. В проекте окажутся хореографы Татьяны, которые станут трудиться (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 01:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B1C104AA3CF020F73F376F966E59CB5A4925446
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 793657   (430187) от 14.09.2017
+
+Геннадий Седов | Матильда Кшесинская. Любовница царей (2014) [FB2, PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_430187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блистательная Малечка Кшесинская, прима-балерина и любимица театрального Петербурга стала любовницей Николая II, а затем двух великих князей. Родила сына от одного Великого князя, а жила на деньги второго. Соперницы ославили ее как взяточницу и карьеристку... Чего только не рассказывали о ней... И что ждет ее впереди? Эмиграция, нищета и забвение или успех или всемирная (   Читать дальше...   )Формат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE77EADF6F934ECD08B1348FA322C11677228F88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165707   (430189) от 14.09.2017
 
 М.А. Давыдов | Вин чунь. Массажная пластика лица и тела (2011) [PDF]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:404C2F2AD6FFCD12C4BB5710C07DE5994EE5846B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:404C2F2AD6FFCD12C4BB5710C07DE5994EE5846B
 ```bash
 magnet:?xt=urn:btih:C8D6C1C7037EC023291908C3B0D583D9956CD10B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +103,8 @@ magnet:?xt=urn:btih:C8D6C1C7037EC023291908C3B0D583D9956CD10B
 magnet:?xt=urn:btih:AE0C880E9C0BDA6413640D35F7205A4FDA10CB8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +129,8 @@ magnet:?xt=urn:btih:AE0C880E9C0BDA6413640D35F7205A4FDA10CB8D
 magnet:?xt=urn:btih:DD6DC32EC2EBD3311D850F87DB8D1E1513BF8A19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:DD6DC32EC2EBD3311D850F87DB8D1E1513BF8A19
 ```bash
 magnet:?xt=urn:btih:4C6B8676BBEF73E12E679229A1D3350A7FA02E0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +183,8 @@ magnet:?xt=urn:btih:4C6B8676BBEF73E12E679229A1D3350A7FA02E0F
 magnet:?xt=urn:btih:76178CCB9D67492740DF158EF103851FCEB7142D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:76178CCB9D67492740DF158EF103851FCEB7142D
 ```bash
 magnet:?xt=urn:btih:206C6D6AE1BA3C1D2BD828A2B46C03192BBD3DEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:206C6D6AE1BA3C1D2BD828A2B46C03192BBD3DEE
 magnet:?xt=urn:btih:C9559AFF45002E0E48D0FFA782E9DA7615B829A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:C9559AFF45002E0E48D0FFA782E9DA7615B829A2
 magnet:?xt=urn:btih:3E7C8FF2B1A20F4D6CDBB7D9B4B3ED3FB022E47E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:3E7C8FF2B1A20F4D6CDBB7D9B4B3ED3FB022E47E
 ```bash
 magnet:?xt=urn:btih:C6E697FB1B2508D0B69747244C064140BB411898
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +315,8 @@ magnet:?xt=urn:btih:C6E697FB1B2508D0B69747244C064140BB411898
 magnet:?xt=urn:btih:1E7FC1142856289BE15A5696245E3F7563E5F1F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +342,8 @@ magnet:?xt=urn:btih:1E7FC1142856289BE15A5696245E3F7563E5F1F2
 ```bash
 magnet:?xt=urn:btih:3BB684EE84440E6F7B31139D56381C8F6BB348E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +371,8 @@ magnet:?xt=urn:btih:3BB684EE84440E6F7B31139D56381C8F6BB348E7
 magnet:?xt=urn:btih:9E1E71802008D0EA886C4AB86CB6260580A2E50B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +396,8 @@ magnet:?xt=urn:btih:9E1E71802008D0EA886C4AB86CB6260580A2E50B
 ```bash
 magnet:?xt=urn:btih:C04BE8AF6A0A9726A5BBA1691B786C96D7F678AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +425,8 @@ magnet:?xt=urn:btih:C04BE8AF6A0A9726A5BBA1691B786C96D7F678AD
 magnet:?xt=urn:btih:6343D038CA988E0BD3C3CB6BCC6ECA7C5C7A73A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +450,8 @@ magnet:?xt=urn:btih:6343D038CA988E0BD3C3CB6BCC6ECA7C5C7A73A2
 ```bash
 magnet:?xt=urn:btih:50FA5510E6A51E7383B60FACDE8EDCBD4E1D2D3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +480,8 @@ magnet:?xt=urn:btih:50FA5510E6A51E7383B60FACDE8EDCBD4E1D2D3D
 magnet:?xt=urn:btih:F8946C2A8E418A449B1A7B74419E62C3EB5091E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +505,8 @@ magnet:?xt=urn:btih:F8946C2A8E418A449B1A7B74419E62C3EB5091E2
 ```bash
 magnet:?xt=urn:btih:6A7B5659207F2F590CC2CB435C3FAC87A3A70E96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +532,8 @@ magnet:?xt=urn:btih:6A7B5659207F2F590CC2CB435C3FAC87A3A70E96
 magnet:?xt=urn:btih:CA0F0FE05771014288C6E60BE3793A10951AF610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +557,8 @@ magnet:?xt=urn:btih:CA0F0FE05771014288C6E60BE3793A10951AF610
 ```bash
 magnet:?xt=urn:btih:B3CC1910F7C80A4482CDF593E250E51DB739A48D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +585,8 @@ magnet:?xt=urn:btih:B3CC1910F7C80A4482CDF593E250E51DB739A48D
 magnet:?xt=urn:btih:AB19BE7B16FB3BDA38FA15BCC151D523D2D2C4E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +610,8 @@ magnet:?xt=urn:btih:AB19BE7B16FB3BDA38FA15BCC151D523D2D2C4E7
 ```bash
 magnet:?xt=urn:btih:1F5761D78D5A3F342B5748176A44BE9F9D00E825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +637,8 @@ magnet:?xt=urn:btih:1F5761D78D5A3F342B5748176A44BE9F9D00E825
 magnet:?xt=urn:btih:E7F3743535DCE7600229E37975A6B0106E5321FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +662,8 @@ magnet:?xt=urn:btih:E7F3743535DCE7600229E37975A6B0106E5321FD
 ```bash
 magnet:?xt=urn:btih:F51B1A3C842C0E4F67FAC10D837AF3066C11BDA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,29 +691,7 @@ magnet:?xt=urn:btih:F51B1A3C842C0E4F67FAC10D837AF3066C11BDA9
 magnet:?xt=urn:btih:3A4021EC5C7248B2A0884720FC1EFD342B5BFF6B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945930   (431856) от 11.10.2015
-
-А. Н. Кочетов | Критика мировоззренческих основ буддизма (1980) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431856.jpg" />
-</div>
-
-
-###  Подробнее
-
-В брошюре раскрываются мировоззренческие основы первой по времени возникновения мировой религии — буддизма. Автор опровергает взгляды буржуазного религиоведения на буддизм как на некую особую религию без веры в бога и душу, без сверхъестественного, показывает несостоятельность попыток представить буддизм как чисто моральное учение, как религию, не противоречащую (   Читать дальше...   )Жанр: История, религиоведение, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBF2F62300A45D65C166AB0D33E4694D24E1F78B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

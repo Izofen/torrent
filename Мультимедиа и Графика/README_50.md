@@ -20,6 +20,8 @@ Winxvideo AI  - это набор инструментов для масштаб
 magnet:?xt=urn:btih:15284856CEE16939E2DBABF38F86940BCD39A8B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ WinX VideoProc Converter - усовершенствованная версия, 
 ```bash
 magnet:?xt=urn:btih:2585966D779B203E1175AAEBAF50223D77B8A5B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:D5B63002FF9716850DDB661F1AF0D804016E6D86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Radiant Photo - это программа для редактирования ф
 ```bash
 magnet:?xt=urn:btih:174CF15CDA7004523E7A006212282C7C5B22FF19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ SlowView пожалуй один из самых быстрых в мире пр
 ```bash
 magnet:?xt=urn:btih:EB60DBBC2306C8B303DFA2E7007B340F2149086F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ PixPlant – очень мощный и нестандартный графич�
 magnet:?xt=urn:btih:58D05DB59ECD0A7E12CF40D6CBF7D6836047AD81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ FastStone Photo Resizer - программа для различных мани�
 ```bash
 magnet:?xt=urn:btih:8D43C7509DB8114592EDA64F1B295415BF451E80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ DxO PureRAW 2.0.2 Build 1 [Multi]
 magnet:?xt=urn:btih:670BB94E526DB4BC36E1B67CB361BBF71B3584BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Adobe Substance 3D Stager – данный цифровой продукт пр�
 ```bash
 magnet:?xt=urn:btih:651E85C5E749394176FF18C2F7B52E71B0D8BBCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Movavi Picverse - представляет собой один из самых �
 magnet:?xt=urn:btih:ED9CDC3FA1D9DA1270A66D84A2AB5ABA6817194C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ EximiousSoft Logo Designer 3.90 Standart / 3.75 Pro Repack (& Portable) by elchu
 ```bash
 magnet:?xt=urn:btih:1CA2BA5CDC7C9B380DBB922ED8A12336D31A5F5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ EximiousSoft Vector Icon – программа для создания уник
 magnet:?xt=urn:btih:424745962FD5370ABFECA98085E80D20A16F5FBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ EximiousSoft Business Card Designer 5.11 Standart / 3.75 Pro Repack (& Portable)
 ```bash
 magnet:?xt=urn:btih:0BF89AE3215D720EDEA5EEE56199C4753A8D3F46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Adobe Photoshop 2026 - новая версия программы для обр�
 magnet:?xt=urn:btih:135F37EFDBB08C10E9E71B42B58824D50C533F09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ JetAudio - это универсальный проигрыватель музы
 ```bash
 magnet:?xt=urn:btih:DC17C8C321E81FE12147099519BCBED861AAEF01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Adobe Photoshop 2026 - новая версия программы для обр�
 magnet:?xt=urn:btih:3D8EA593796CBDF141D3D7D6A49CDE36ECDDA341
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Capture One - один из лучших профессиональных кон
 ```bash
 magnet:?xt=urn:btih:76CD52479B57C5D7E4A1A8C607A7B78D47BA4E5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ SoftOrbits Photo Retoucher 6.0 [Multi/Ru] (sharewareonsale до 11 декабр�
 magnet:?xt=urn:btih:F9499F6C3CBB12F3CC5000D0BD8F40F688737024
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ dslrBooth Professional 6.42.2011.1 [En]
 ```bash
 magnet:?xt=urn:btih:97DAEC8E430C648C2C069855419E3DB54D2E18E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Adobe Substance 3D Painter 9.0.0 build 2585 [Multi]
 magnet:?xt=urn:btih:CF3AC6154D9785C0F34162117C86C4ABE65FA5B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ CyberLink ColorDirector Ultra 11 - профессиональные инстру
 ```bash
 magnet:?xt=urn:btih:097E610657CA33B6F47809152234EF657CB6F7AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Triad - новый многоканальный процессор на базе
 magnet:?xt=urn:btih:C5CC513205ED79046A30C48B0D89C6D8262D4FD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ ActivePresenter — программа для создания презента�
 ```bash
 magnet:?xt=urn:btih:AF91669AC5045D01C71C4170B4624C2047A09E07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ GiliSoft Audio Recorder Pro — это программа для записи з
 magnet:?xt=urn:btih:138AD926A860C3BB45F7C950D5CB750EB68F29A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Lightroom объединяет фотографии в «коллекции» �
 magnet:?xt=urn:btih:ACAE3DF6C727D68A6E7D3949D49FF86BC7458A84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Adobe Photoshop - новая версия программы для обрабо
 ```bash
 magnet:?xt=urn:btih:D939A79781F1FA3E2D4420A083B9823943C7D059
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

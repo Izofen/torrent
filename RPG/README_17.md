@@ -19,6 +19,8 @@ The Rangers in the South — это pixelart action roguelike rpg, действ�
 magnet:?xt=urn:btih:F02B7136742F461BF8EFDD22F4A1FBA567BE6BA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dream Tactics - это стратегическая ролевая игра, п�
 ```bash
 magnet:?xt=urn:btih:F8A63893099468888294E841178CC625C058A52E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ METRO QUESTER (2023) [Multi] (1.0.0) License GOG
 magnet:?xt=urn:btih:8517D0551EBB78BF3B309621F14161F8A6D990F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Outward – приключенческая РПГ, события которой
 ```bash
 magnet:?xt=urn:btih:FCD803473778FD3171BC68D74722AE965E7A5C1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Final Fantasy VII Rebirth (2025) [Multi] (1.0.0.0/dlc) Repack DjDI [Digital Delu
 magnet:?xt=urn:btih:56D8C2485B5E3A5EDD0548A01E19CF270CFF6EB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Terra Memoria - ролевая игра с фантастическим миро
 ```bash
 magnet:?xt=urn:btih:39E229E0150EB7BEB604BFF9C357B636563F8C91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Astral Throne (2025) [En] (1.0.0) Repack FitGirl [Supporter Bundle]
 magnet:?xt=urn:btih:5329D6DA057286BDBE64277520DB3037AC032A10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Final Fantasy VII Rebirth (2025) [Multi] (build 17035252/dlc) Repack FitGirl [Di
 ```bash
 magnet:?xt=urn:btih:3F4CD2ABA6E90C359D18C65DC57692A6CEF3F065
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 17026604 Patch 5/dlc) Repack 
 magnet:?xt=urn:btih:C3CE1E65014F2823A9E521425BFDCF0C6A758058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Trinity Fusion – это выполненный в 2.5D научно-фанта
 ```bash
 magnet:?xt=urn:btih:9DCC5EE46411228067574CDAA99AFA1F0B70DC21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Hogwarts Legacy - ролевая игра по мотивам знамениты
 magnet:?xt=urn:btih:C7F9BC06E9514E8458C6761D66F0FDE3544B196A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Techno Banter (2025) [Multi] (1.0.3) License GOG
 ```bash
 magnet:?xt=urn:btih:7713D08807A42F10B0E4DBC76EFCE67A154603FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ FRONT MISSION 1st: Remake (2023) [Multi] (16) License GOG
 magnet:?xt=urn:btih:35C5C96F1E9D77ECF2BAFEC3862D606ABAC37F83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Small Saga (2023) [Ru/En] (Build 12840998) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:E19147BC75F8D5F4F24458A664E81FBBF44FEC70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ SKALD: Against the Black Priory может понравиться любител
 magnet:?xt=urn:btih:335ADF841CD93B4CF7C514C36477A6616A36E0B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Axis Unseen — это игра в жанре хэви-метал хорро
 ```bash
 magnet:?xt=urn:btih:8399E632A52BF896B6161B23E829345D590E0B54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Megaloot (2024) [Ru/Multi] (1.17.1) Scene Tenoke
 magnet:?xt=urn:btih:026FD0DE9EB2C5567ECA8D465B3B30ECF3D73C62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Dark PGT (2025) [Ru/En] (build 17435047) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4F31ACF71C9138CAB910786076E38805167953C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Fallout 3 - это сочетание шутера от первого лица,
 magnet:?xt=urn:btih:98EB4334E0DABBC7E97266DE55B57BDFF55FCA83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Dark PGT (2025) [Ru/En] (build 17435047) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:B09F9FD0EA720DC8F58898AD771F14B6AB931424
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Beneath Oresa (2022) [Ru/Multi] (1.1.5) Repack Let'sРlay
 magnet:?xt=urn:btih:AE467D1A1E77839781E6317B1D96D4A68F513738
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ KAMiBAKO - Mythology of Cube - (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:46D5F512952163DD13AF99F996A1436CF1C5CB50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Grim Dawn (2016) [Ru/Multi] (1.2.1.5a/dlc) Repack dixen18
 magnet:?xt=urn:btih:8DE29017BAB4508ED4407E8BAE7125E80CA4E666
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Robin Hood - Sherwood Builders – это приключенческая рол�
 ```bash
 magnet:?xt=urn:btih:0861F04AA10DC576A6FFDA94C0DB65FD622AE12F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Few Nights More предлагает уникальное сочетание у�
 magnet:?xt=urn:btih:155809B1DA0A6A00A12C8822798E63359C398D07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Avowed (2025) [Ru/Multi] (1.2.5.0/dlc) Repack FitGirl [Premium Edition]
 ```bash
 magnet:?xt=urn:btih:B706DC4B8E689CD3213D70CF84D3DE176A741477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

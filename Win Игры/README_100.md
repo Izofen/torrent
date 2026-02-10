@@ -19,6 +19,8 @@ Ambulance Life: A Paramedic Simulator (2025) [Ru/Multi] (build 17163084) Repack 
 magnet:?xt=urn:btih:99185556132637B1BC0F0A7FBAED42090EA9D15A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ City of Stories 3: The Hunter's Heart / Город Историй 3: Сердц�
 ```bash
 magnet:?xt=urn:btih:16A0A0580D3A17F8EF860DCEF8DEDD9161AD8BD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Instruments of Destruction (2024) [Ru/Multi] (1.11а) Repack Let'sРlay
 magnet:?xt=urn:btih:634F7D14189B426B7A55C35CE503643C1CDC6944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Kingdom Come: Deliverance II - захватывающий сюжетный ро�
 ```bash
 magnet:?xt=urn:btih:CF6D4DC88975CFCB78323700F5459A0C2E343009
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Metal Slug Tactics (2024) [Multi] (1.0.3c) License GOG
 magnet:?xt=urn:btih:BE2AF9314D4319522C50C3F3194B45D3F1AC1F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Eyes of War (2023) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0FD13F7A48BEA0C0485DD24BEDCB278B1E0EE1EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Teenage Mutant Ninja Turtles: Splintered Fate / Черепашки-ниндзя:
 magnet:?xt=urn:btih:A4CEB9ACC7259FA290C4AFB2014436EFBCF78B4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Teenage Mutant Ninja Turtles: Splintered Fate (2024) [Ru/Multi] (1.7.0/dlc) Repa
 ```bash
 magnet:?xt=urn:btih:1C4998F0B8CE0A4AFE37B52CA885FCC89A85C6BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Dying Light: The Following (2016) [Ru/En] (1.38.0/dlc) Repack xatab [Enhanced Ed
 magnet:?xt=urn:btih:DED8DDF6D0FAEFA1E652A8076B6C3799D0DF17E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Status One - это тактический шутер в 3D с видом све
 ```bash
 magnet:?xt=urn:btih:97AC44D92E6699EF3A8BDF270D43411D7E257A79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ McPixel 3 (2022) [Ru/Multi] (1.0.38) License GOG
 magnet:?xt=urn:btih:C6A25F9357893D68B447E03D0B219EB0C3AACC88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Poppy Playtime (2021) [Ru/Multi] (build 17177248/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:78BD2FD7B372DF513F1D696389A4B3A4D507EAAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Detective Club: Missing in the Fog / Детективный Клуб: Пропа
 magnet:?xt=urn:btih:FD1358BDCD5A48A80336738F4512591458A0B8D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Dead Season (2024) [Ru/Multi] (build 15673615) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:0215304D5A95B13AD32B3DF2ED81875A0A2390F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Guns, Gore & Cannoli (2015) [Ru/Multi] (1.2.21) Repack Let'sРlay
 magnet:?xt=urn:btih:344CC0CFC42E6A3794C34D28CD15150DFA26688A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Snufkin: Melody of Moominvalley (2024) [Ru/Multi] (Build 17112046/dlc) Repack Le
 ```bash
 magnet:?xt=urn:btih:BDA35211B901DEAB71CF672CC656E30604E8C405
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Great War: Western Front - это проработанная стратег�
 magnet:?xt=urn:btih:9E01D64C423FDF24C05AC21D5465800C4575C34F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Sims 2 (2025) [Ru/Multi] (1.0.0.72/dlc) Repack FitGirl [Legacy Collection]
 ```bash
 magnet:?xt=urn:btih:B5EB06644C1442830C5DFDAB5CF75CAAE14C92B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Big Helmet Heroes (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 magnet:?xt=urn:btih:B714C634AAEFF8C7E13F94E7D51994CEA1EDA311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Warhammer 40,000: Shootas, Blood & Teef (2022) [Ru/Multi] (1.0.36) Repack Let's�
 ```bash
 magnet:?xt=urn:btih:5AF73424C4BAAE931FEC7F11174E0E089C1CBBCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.8) Repack Let'sРlay
 magnet:?xt=urn:btih:09DDC2E94C95752B13DEC138B9458849F76FB363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Industry Giant 4.0 (2024) [Ru/Multi] (0.4.2) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:95DC24673CD3E44975188A7638BDFB68B9833360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Sims 2 (2025) [Ru/Multi] (Build 17175009/dlc) Scene Tenoke [Legacy Collectio
 magnet:?xt=urn:btih:4C0EB4868652F86FD1AB274ED236C865E1163094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Kingdom Rush 5: Alliance TD бросает вас в мир, где враги �
 ```bash
 magnet:?xt=urn:btih:189BE44E4FC0D18541C0024F29F90FB56560DD31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Big Helmet Heroes (2025) [Ru/Multi] (27289703) Scene FairLight
 magnet:?xt=urn:btih:05B70FA92090BDC6F0BBC7C47F07C819797BB6FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Tails of Iron 2: Whiskers of Winter (2025) [Ru/Multi] (1.14327/dlc) Repack FitGi
 ```bash
 magnet:?xt=urn:btih:9DDE285ACD670B6163C065CACC91E81F5B0467CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,38 @@
+###  Публикация: 531298   (542596) от 05.08.2012
+
+VA - Скорая музыкальная помощь 50/50 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Delta pro. - Наше лето
+02 Mike Indigo - Bam Baram (Original Radio Edit)
+03 Dan Balan - Не любя
+04 Sean Paul feat. Pitbull - She Doesn't Mind
+05 Бьянка - Весна-Лето 3 (Про Зою)
+06 Jennifer Lopez feat. Flo Rida - Goin' In
+07 SPACE4 и Антон Зацепин - Невозможно Не Любить
+08 Linkin Park - Burn It Down
+09 Слава - Sex не любовь
+10 Nelly Furtado - Big Hoops (Bigger The Better) (Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627B5B197CC50021CF7A593B31B751C428BB3CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531615   (542600) от 05.08.2012
 
 VA - German TOP 100 Single Charts (05.08.2012) [MP3|~186~276 кб/с]<Dance, Pop, Club>
@@ -28,6 +63,8 @@ VA - German TOP 100 Single Charts (05.08.2012) [MP3|~186~276 кб/с]<Dance, Pop
 magnet:?xt=urn:btih:C7F2201ED7B6A7B150BD67E10B879E15D2059853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +91,8 @@ VA - Top 100 Популярный Сборник (2015) [MP3|256 кб/с]<Рор
 ```bash
 magnet:?xt=urn:btih:C52AAB9336DB830F077C3B68D2C604425C0047CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +121,8 @@ VA - Shazam Хит-парад Russia Top 100 Июнь (2019) [MP3|320 Kbps] <Pop
 magnet:?xt=urn:btih:625EE3772F0FE8985C04CC341665AC45FC693480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +149,8 @@ VA - Радио ENERGY (NRJ) часть 4 (2015-2016) [MP3|192-320 Kbps] <Dance,
 ```bash
 magnet:?xt=urn:btih:D40911BAEBFB8844A58515B036B6E9016BD9C796
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +179,8 @@ VA - Pop Rock Ballads - New And Classic (2016) [MP3|192~320 Kbps] <Pop, Rock>
 magnet:?xt=urn:btih:9F4DB7AF0026D1293B7C8E0263F42087AF8F63AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -160,6 +205,8 @@ VA - German Top 100 Single Charts 28.06.2019 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:311FEAB937A3F52819F9D7D14CDD258CE664C576
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +235,8 @@ VA - Popular Summer Time (2019) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:C51BFACA2BB18D6285D28A7F1F1AB98E483B1F13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +263,8 @@ VA - Night Eurodance Music (2018) [MP3|320 Kbps] <Eurodance>
 ```bash
 magnet:?xt=urn:btih:3899A6168344CBD813A8A29ACADAC03788629080
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +293,8 @@ VA - German Top 50 Party Schlager Charts 24.06.2019 (2019) [MP3|320 Kbps] <Pop, 
 magnet:?xt=urn:btih:C6344FD9FD47057FD04AE25E0831306C23B3910C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +321,8 @@ VA - Горячие Новинки От Зайцев.Нет часть 1 (2016) 
 ```bash
 magnet:?xt=urn:btih:BAB627713C17D6C2E5706E8FBAC876981A6850DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +351,8 @@ VA - Shazam: Хит-парад Russia Top 100 Июль (2018) [MP3|320 Kbps] <Po
 magnet:?xt=urn:btih:86271A260B8E94FA0FE6ED750CA7FEA68DB9878D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +379,8 @@ VA - German Top 100 Single Charts 27.07.2018 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:BC690AE6AACF6F0E52B605DAE76B0C142E50D1A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +409,8 @@ VA - Музыка Хорошего Настроения на Ретро FM  (201
 magnet:?xt=urn:btih:6D5841E6C3EBE886A4CF8B381C87062E2C3C388C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +438,8 @@ VA - Асталависта. Суперсборник от Русского ра
 magnet:?xt=urn:btih:06AF601C62A35C810896CC6F8D418E3815374A28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +466,8 @@ VA - Музыкальный адреналин. Top Hits (2016) [MP3|256 Kbps] <
 ```bash
 magnet:?xt=urn:btih:4603D9B916CFEED3AEA46E17C92DAFF254571D3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +499,8 @@ VA - The Official UK Top 40 Singles Chart (25-08-2013) [MP3|320 кб/с]<Pop, Da
 magnet:?xt=urn:btih:75907E54E1B9E8635C3D9BB59322813C874F4063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +527,8 @@ ABBA - DMC Classic Mixes I Love ABBA Volume 1 (2016) [MP3|320 Kbps] <Pop, Disco,
 ```bash
 magnet:?xt=urn:btih:86F3F3CC82B556CA06CC4DDD2C417FC18C2EBA29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +557,8 @@ VA - Танцевальный ритм - 8 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:3A3AC3FEFEDC6BB73E5DDB2CEFA95F7A516D7A5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +585,8 @@ VA - Massive Vocal, Euro, Dance Hits (2016) [MP3|179~320 Kbps] <Pop, Eurodance>
 ```bash
 magnet:?xt=urn:btih:E115708A882C8107D9ABB5880E49230BC94A7C45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +615,8 @@ VA - Абсолютные Хиты Лета 8 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:D7BFFE9F1818E80ACCE3FF42F7C1BF9CC933E317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +643,8 @@ VA - The Best of 80-90's (2016) [MP3|320 Kbps] <Pop, Techno, Dance>
 ```bash
 magnet:?xt=urn:btih:E56668DEC413166638DED65F1AF595C691202221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +673,8 @@ VA - Русский Хит от Зайцев.Нет (2016) [MP3|320 Kbps] <По�
 magnet:?xt=urn:btih:E141F13323EC290BB42BFFECF42534A94F5A6F67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +701,8 @@ magnet:?xt=urn:btih:E141F13323EC290BB42BFFECF42534A94F5A6F67
 ```bash
 magnet:?xt=urn:btih:5DCECD7C37F52114F29FB95338B7348513A2B87D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +731,8 @@ VA - Реальные пацаны (2016) [MP3|320 Kbps] <Pop, Hip Hop, Soundtra
 magnet:?xt=urn:btih:0A3E0A2FE32CD8C7FC8CC1DD57E1E2B488BB0503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -677,32 +760,7 @@ VA - Хитовый бум. Сборник 2 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:390DBA4DAF3B0403AB3ABAC1FA0DAA7578B7A5EB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047232   (550103) от 29.08.2016
-
-VA - Breathe We Love The 90s (2016) [MP3|320 Kbps] <Dance, Hip-Hop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_550103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nine Inch Nails - Hurt 06:16
-02. Michael Hutchence - The Passenger 04:36
-03. Fatboy Slim - Praise You 05:23
-04. Cradle Of Love - Billy Idol 04:39(   Читать дальше...   )Жанр: Dance, Hip-Hop, RockПродолжительность: 05:21:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD8128D6E825F263EB3CC2D2B94BC9522436779
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@ Gakken | Артбук по фильмам Звёздные войны / Star War
 magnet:?xt=urn:btih:88691953887B0BF91A3709B479017BE40A382AFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ CD1:
 magnet:?xt=urn:btih:DE64BD8FA1B26A3FEF35A4A5939A149E86408FD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:DE64BD8FA1B26A3FEF35A4A5939A149E86408FD9
 magnet:?xt=urn:btih:477FF931D4D0C7F007F80B3D6FC0420336B96907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:477FF931D4D0C7F007F80B3D6FC0420336B96907
 ```bash
 magnet:?xt=urn:btih:D84688CDCA3439C0A3ADA1194CA339FC884CAAEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:D84688CDCA3439C0A3ADA1194CA339FC884CAAEB
 magnet:?xt=urn:btih:AFAEDEBBDD258A5E7F993C6E257869E51FA16E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:AFAEDEBBDD258A5E7F993C6E257869E51FA16E82
 ```bash
 magnet:?xt=urn:btih:A3C95DBEF9A44A8CD029CD94BB90A65AD6A96B26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:A3C95DBEF9A44A8CD029CD94BB90A65AD6A96B26
 magnet:?xt=urn:btih:592681A1EF2FFED621E71E9C46CFBDF6B58A3709
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Titan Magazines | Артбук по фильму Стартрек: Бескон�
 ```bash
 magnet:?xt=urn:btih:936EB9A48E4A299B8C39A1F4F3FCF4E36400DEE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Chaos Vantage 2.8.0 [En]
 magnet:?xt=urn:btih:9F953578FA43DBBAFD267BCAD1242066E5388BEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Old Skies (2025) [En] (1.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:79A568201EC3D8331B2F6B0ADEF7C75310E3C907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:79A568201EC3D8331B2F6B0ADEF7C75310E3C907
 magnet:?xt=urn:btih:82A142190713025C7066BB856FE11AF1EE1040B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:82A142190713025C7066BB856FE11AF1EE1040B5
 ```bash
 magnet:?xt=urn:btih:E673EB10ACFD70ECA63E100B76E31C947F9CCE28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:E673EB10ACFD70ECA63E100B76E31C947F9CCE28
 magnet:?xt=urn:btih:48F87920D7479767FC978176B6BAC6179E9CDEBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:48F87920D7479767FC978176B6BAC6179E9CDEBE
 ```bash
 magnet:?xt=urn:btih:6E471D371E035DE7E57CB6363D40159D13A27038
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:6E471D371E035DE7E57CB6363D40159D13A27038
 magnet:?xt=urn:btih:81A0E30E6CE1D60064A6B6CF8C7B529527914DC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Kingdom Rush Vengeance (2020) [Ru/Multi] (1.16.3.16/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:32A200F6F5CFC74EE78CFE8956525FDC76CB4E4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Dolls Nest (2025) [Multi] (1.0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:28934680333E5E31F922391C889717738174587C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:28934680333E5E31F922391C889717738174587C
 magnet:?xt=urn:btih:17317D15332884DFE829059A5F518CBA678558FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:17317D15332884DFE829059A5F518CBA678558FF
 ```bash
 magnet:?xt=urn:btih:AB7B2B998166BFE9811352DC15B269D0D828C8A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:AB7B2B998166BFE9811352DC15B269D0D828C8A1
 magnet:?xt=urn:btih:37111A253DFDA32F148021511E460FACC1CC0873
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ MiniTool Power Data Recovery - это инструмент предназнач�
 ```bash
 magnet:?xt=urn:btih:DA410CC4FCCD2C02CCA33DD760F58F7E4B0B6B39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ VA - Ultimate 80s (2025) [MP3|320 Kbps] <Pop, Rock, Dance>
 magnet:?xt=urn:btih:AF106960D5E95A937E00EFC62386ECBD0A8B5343
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:AF106960D5E95A937E00EFC62386ECBD0A8B5343
 ```bash
 magnet:?xt=urn:btih:8068AA2C578862FCAFBB4518B3A692F809224882
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ magnet:?xt=urn:btih:8068AA2C578862FCAFBB4518B3A692F809224882
 magnet:?xt=urn:btih:8005844BD1D99DB5733802BB88675061FFEAE939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ Badlands Crew передает геймеру контроль над боево
 magnet:?xt=urn:btih:3E0B38525B1EFECF4B6C827CB5BBC3DC4800591D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Pax Augusta (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:410DF57F874D648C6E2F5D94B5E2A796F202891D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Workout Music 2023 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:4C90B74C02797877615E12634C08ADDA481433F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Dream Dance Vol 94 - The Annual (2023) [MP3|320 Kbps] <Trance, Progressive>
 ```bash
 magnet:?xt=urn:btih:D6A244D76827CD12009D58836F4C608EA2F450D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Relaxing Vocal Jazz (2023) [MP3|320 Kbps] <Jazz>
 magnet:?xt=urn:btih:06DC69FE4BC0F341CD342D47FC16AAE683DFF500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - 60 minutes. Old School Dance Music vol.19 (mixed by Dj V) (2023) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:8C18AC2076CBABC4A153FE38A5B41F48D7BB0CA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Blues In The Garden (2023) [MP3|320 Kbps] <Blues, Country Blues>
 magnet:?xt=urn:btih:150787B27943372CEDE3046063FED7F3355035E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Trance In Motion Vol.362 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 ```bash
 magnet:?xt=urn:btih:A0BDEACA21F8B96AFC20EA8C40E4518B048EE878
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Ringtone Track Masters - Ringtone Tunes Guitar Riffs (2009) 3CD [MP3|320 Kbps] <
 magnet:?xt=urn:btih:DA7B5D91BD53C30B30CC7C2118219B93FFE7D314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Music News vol.279 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:0B67F7D60E1D00D4E7372E113346E6E4B0DB0FCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - 30(17) Новые Песни (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:4E68C8C777AA0DE88D87CB62B145BBEDC8E5D645
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Музыка для машины Vol.31 (2023) [MP3|320 Kbps] <Pop, Dance, 
 ```bash
 magnet:?xt=urn:btih:055B396F685FED18F2673A978E6313CE6E65CA4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Power Hour (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:9369F85D45057802943A06489EDA80661E343600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - German Top 100 Single Charts 07.07.2023 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:602BC7B897A08143667700273CF1C9844DD2421A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Ibiza Mega Hits (2023) [MP3|320 Kbps] <Electropop, Funky, Indie Dance, Club
 magnet:?xt=urn:btih:369751E56464C4B16D1F48FAF7E54E8886243123
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Jamaica Reggae: Relax & Sound (2023) [MP3|320 Kbps] <Reggae, Ridim>
 ```bash
 magnet:?xt=urn:btih:C7835085EFF33A330E4163F8B446DB3E090832E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Music News vol.278 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:90105F625E4FB2D33560EC7301BD357222938404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - The Charming Blues (2022) [MP3|320 Kbps] <Blues, Rock>
 ```bash
 magnet:?xt=urn:btih:6135E8C2577934EEEE2949467CCDC3012458FBDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - We Will Rock You (2022) [MP3|320 Kbps] <Classic Rock>
 magnet:?xt=urn:btih:B4AA515E374E1BB33AC1441D453AEDA8CAF38955
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Шансон 2020 Музыкальный хит-парад [часть.04] 
 ```bash
 magnet:?xt=urn:btih:843B6C9A06E1070FDFF558B598EFFDE1F3E431BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Music News vol.277 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:F82FB44186ECA9188E0346419D654FC1D70F4FD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Blues For Your Evening (2023) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:7737BA6BADB44CA8FB995B0CF5D922410F2A09E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Music News vol.276 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:0AD49E4500A4770B3790C98A17C8BF7969E30E68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Zivert: the best (2022) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:ED4396D4DB83010AF7FA3C99A0BA2B77069EF03B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ George Kopaliani - This Is George Kopaliani (2023) [MP3|320 Kbps] <Easy Listenin
 magnet:?xt=urn:btih:A1CEAA3492465D38B74F5643E621B91C477D9D51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +689,8 @@ VA - Громкие новинки Августа (2022) [MP3|320 Kbps] <Pop, Da
 magnet:?xt=urn:btih:9E88C2B6DD58DD30B15E58691452A3890CADE2F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ VA - Club&Dance Зимние Треки 2023 Remix NNM [MP3|320 Kbps] <Pop, Danc
 ```bash
 magnet:?xt=urn:btih:AA1BB6E175ACF27DF6E6C37B9A9E2B6DC57B7901
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -694,6 +744,8 @@ VA - Дискотека 2023 Dance Club Vol. 214 от NNNB (2023) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:BA3412940D3429BDF38D1508C7EA468E08E14437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

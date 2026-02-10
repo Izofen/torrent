@@ -19,6 +19,8 @@ Hotel Owner Simulator (2025) [Ru/Multi] (1.0.5.5) Repack FitGirl
 magnet:?xt=urn:btih:D4D87102E37AFDCAAA7C9B3E7102A797FC386017
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Spyro Reignited Trilogy (2019) [Ru/En] (Build 3849171) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:5A33A6C683200B6A5FE323EA20BD8BB12DE1661D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Doom 3: BFG Edition - это переиздание Doom 3. Жанр и смыс
 magnet:?xt=urn:btih:E611C7D5DE36C4DAA3177B276D3E8B0546CEA116
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Gemini Rue / Gemini Rue: Заговор на Барракусе (2011) [Multi] (
 ```bash
 magnet:?xt=urn:btih:4CAE8CC6E2D6D6F39DBB168BC0C79ACBC92D64FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Unavowed (2018) [En] (2.5) License GOG
 magnet:?xt=urn:btih:AE3EDF3490471F8A1F18F571E2F98867671253DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Forgive me Father – шутер от первого лица с мрачным 
 ```bash
 magnet:?xt=urn:btih:FC0E2C6E17A320D0814980A0B38D0295701274C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.1.1.85) Repack dixen18
 magnet:?xt=urn:btih:4451BDDF1A058FEFB115CC068FF033FE6F5CD846
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Deck of Haunts (2025) [Ru/Multi] (1.01) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8767BB32F2C34D1E4EA586D177B5C509287AE5F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Ultimate Fishing Simulator 2 (2022) [Ru/Multi] (1.25.05.09.3975) Repack seleZen
 magnet:?xt=urn:btih:6AD0706264776ABBAF360F9187DEEA45F3879A8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Mirror of Heaven (2023) [Ru/Multi] (1.41/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:80379E7ED1EC9819BCF3D86E3E2ED87A27927CA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Spirit of the North 2 (2025) [Ru/Multi] (12765) Repack FitGirl
 magnet:?xt=urn:btih:1F38A0210B0015F7EBEC4223904D4765851DE42E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ XENOBREAKERS: Classic Tower Defense (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:8D3EA0F1BED2A9D82BE9F5A5AD7D790BAC4EF99E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dark Envoy объединяет классическую механику RPG с
 magnet:?xt=urn:btih:4ED654D0B3444A3DE6EEACF1148BE970440C299A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Spirit of the North 2 (2025) [Ru/Multi] (12765) Scene Rune
 ```bash
 magnet:?xt=urn:btih:A75940F5ACB0E82ECD9C9F8749DD352E0CD63BE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Anoxia Station - игра об управлении подземной горн�
 magnet:?xt=urn:btih:E3AEB8093A6E4089764F8EE6EC34B68AADDCEB94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ iDigging - это увлекательная кооперативная (до 5 
 ```bash
 magnet:?xt=urn:btih:BAB37E572A6889457F455C1EB818A099C399F676
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ ZEPHON (2024) [Ru/Multi] (1.1.0/dlc) Repack FitGirl [Supporter Edition]
 magnet:?xt=urn:btih:C22E4E4989F8F943D65AC0FEFF58331149A260B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Phasmophobia – психологический хоррор с наличием
 ```bash
 magnet:?xt=urn:btih:0592B22F3DFAFC50C89DFB50835C7383016815DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.4) License GOG
 magnet:?xt=urn:btih:F95577A97F7B090EBCFC65B81B22FA7790EC2A71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834/dlc) License GOG [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:2A667A14A99266B3113CC554096E7FC52D21A041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Mind Over Magic — это симулятор колонии, действие �
 magnet:?xt=urn:btih:8B33466B93B88D6973E59AB51717BA38537812E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Ratopia - это оригинальная стратегия, которая б�
 ```bash
 magnet:?xt=urn:btih:149A7C43420B1C0C27C95EC4D9AAB6CDF910D773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Midnight Walk (2025) [Ru/Multi] (Build 18383361) Repack seleZen [VR]
 magnet:?xt=urn:btih:06320BA34FB83A5B7D4CFFE0DB3431CE5FE0CE4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Volcanoids – игра в стиле стимпанка, где все дейс
 ```bash
 magnet:?xt=urn:btih:A2F87D1831A70A3D253695A2BFBD06E5C50D7BFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Ary and the Secret of Seasons - удостоенная наград приклю
 magnet:?xt=urn:btih:735F82A14BE8DAA6206A72E31487CCB354E84105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Breath of Fire IV (4) (2000) [Multi] (1.0 HotFix 4) License GOG
 ```bash
 magnet:?xt=urn:btih:8BD1AADB65F518BC430A3CC36EDBF42993968BCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

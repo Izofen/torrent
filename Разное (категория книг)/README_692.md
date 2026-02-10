@@ -1,3 +1,31 @@
+###  Публикация: 982950   (945032) от 05.02.2016
+
+Александр Навроцкий | Ковка и художественная отделка кованых изделий (2016) [PDF]
+
+>>Разное (категория книг)
+>>Строительство и ремонт
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_945032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Единственное полное руководство по художественным изделиям методом ковки от признанного мастера работ с металлами Александра Георгиевича Навроцкого.
+
+Книга предназначена для студентов, обучающихся по специальности «Технология художественной обработки материалов», и тех, кто желает порадовать себя и своих близких красивыми изделиями из металла, изготовленными самостоятельно.Жанр: Сделай Сам, Руководства, Хобби, Ремесла, Кузнечное ремесло, МеталлообработкаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E5862627418290E4F39E7B3967C62AB1B230438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982749   (945054) от 05.02.2016
 
 Стивен Кови и др. | 4 правила эффективного лидера в условиях неопределенности (2010) [FB2, PDF]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:C688ADEADEDE44B0E8783351799C9DCEC20AF6F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:C688ADEADEDE44B0E8783351799C9DCEC20AF6F4
 magnet:?xt=urn:btih:0BA348639021DE8CD263355B7382C356F8032C68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +99,8 @@ magnet:?xt=urn:btih:0BA348639021DE8CD263355B7382C356F8032C68
 magnet:?xt=urn:btih:0BAF96D1F495A2F1C2E46FA8B39F123F014B501A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +124,8 @@ magnet:?xt=urn:btih:0BAF96D1F495A2F1C2E46FA8B39F123F014B501A
 ```bash
 magnet:?xt=urn:btih:D444B03195AC4C2E3FE0B6B36BDF20EF8FB0050D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +153,8 @@ magnet:?xt=urn:btih:D444B03195AC4C2E3FE0B6B36BDF20EF8FB0050D
 magnet:?xt=urn:btih:2C5E147B03308394DB8ED1FDD10E290E702F6993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +178,8 @@ magnet:?xt=urn:btih:2C5E147B03308394DB8ED1FDD10E290E702F6993
 ```bash
 magnet:?xt=urn:btih:4C5DA6FC9733D60F57703BE587184C523464E7FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +206,8 @@ magnet:?xt=urn:btih:4C5DA6FC9733D60F57703BE587184C523464E7FB
 magnet:?xt=urn:btih:FB20117085A5D523F91C74AB4C2DB67E93F8B06B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +233,8 @@ magnet:?xt=urn:btih:FB20117085A5D523F91C74AB4C2DB67E93F8B06B
 magnet:?xt=urn:btih:32B9848452BD9E7D293680F7A01EB1E8F7D3ACFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +258,8 @@ magnet:?xt=urn:btih:32B9848452BD9E7D293680F7A01EB1E8F7D3ACFE
 ```bash
 magnet:?xt=urn:btih:BB4A54987A48FF64F4989F1EEDAD8859C6D2B682
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +285,8 @@ magnet:?xt=urn:btih:BB4A54987A48FF64F4989F1EEDAD8859C6D2B682
 magnet:?xt=urn:btih:89EB85105CA17EFA9ACAADABD9A2E61AA200C5AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +310,8 @@ magnet:?xt=urn:btih:89EB85105CA17EFA9ACAADABD9A2E61AA200C5AD
 ```bash
 magnet:?xt=urn:btih:9EE9D03C59EEBECA7ABCA7E44850C8C457C64AFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +339,8 @@ magnet:?xt=urn:btih:9EE9D03C59EEBECA7ABCA7E44850C8C457C64AFD
 magnet:?xt=urn:btih:D2E1B1EB5886ECF1F462EF975627DD892A7D8194
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +364,8 @@ magnet:?xt=urn:btih:D2E1B1EB5886ECF1F462EF975627DD892A7D8194
 ```bash
 magnet:?xt=urn:btih:9796EA652FDD3D55DC88DAA31E674083CE22706D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +391,8 @@ magnet:?xt=urn:btih:9796EA652FDD3D55DC88DAA31E674083CE22706D
 magnet:?xt=urn:btih:46AB682DAA9B63DE5954EDFE71C89FBA96D62958
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +417,8 @@ magnet:?xt=urn:btih:46AB682DAA9B63DE5954EDFE71C89FBA96D62958
 magnet:?xt=urn:btih:9A22F4C6C358E7B88094A6739D7142B0B4B13F8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +442,8 @@ magnet:?xt=urn:btih:9A22F4C6C358E7B88094A6739D7142B0B4B13F8D
 ```bash
 magnet:?xt=urn:btih:7BD89C63E57B9BD4CB64BA5F876188A72D9BC988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +470,8 @@ magnet:?xt=urn:btih:7BD89C63E57B9BD4CB64BA5F876188A72D9BC988
 magnet:?xt=urn:btih:6437E58420ED78D9FB69C79CE82FD64766CCB06F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +497,8 @@ magnet:?xt=urn:btih:6437E58420ED78D9FB69C79CE82FD64766CCB06F
 magnet:?xt=urn:btih:3BB14F14788BAA4BEDB83A21DCBE50FC7FA3D261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +522,8 @@ magnet:?xt=urn:btih:3BB14F14788BAA4BEDB83A21DCBE50FC7FA3D261
 ```bash
 magnet:?xt=urn:btih:3FBA95819D80C237AAA01E4CFF21714714E0885B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +549,8 @@ magnet:?xt=urn:btih:3FBA95819D80C237AAA01E4CFF21714714E0885B
 magnet:?xt=urn:btih:8A6F2824C02908382B1EB1E9A1120B7FAEBF6764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +574,8 @@ magnet:?xt=urn:btih:8A6F2824C02908382B1EB1E9A1120B7FAEBF6764
 ```bash
 magnet:?xt=urn:btih:43485569595FD7CD310E1213B396D1053A3B28E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +601,8 @@ magnet:?xt=urn:btih:43485569595FD7CD310E1213B396D1053A3B28E1
 magnet:?xt=urn:btih:24632364126788FA9F7AD11A07E80E98DABF6701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +626,8 @@ magnet:?xt=urn:btih:24632364126788FA9F7AD11A07E80E98DABF6701
 ```bash
 magnet:?xt=urn:btih:62F7DF1C740FB9240E74D6AF5655797832EA2133
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +653,8 @@ magnet:?xt=urn:btih:62F7DF1C740FB9240E74D6AF5655797832EA2133
 magnet:?xt=urn:btih:9A74B94F9A8ECC0C49DAE98A04C75F2CADCA8E12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,29 +679,7 @@ magnet:?xt=urn:btih:9A74B94F9A8ECC0C49DAE98A04C75F2CADCA8E12
 magnet:?xt=urn:btih:75650F7EED135EE3699CE8D4CDE08ED2C0B4B058
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090347   (947229) от 06.01.2017
-
-Евгений Медреш | Между прочерками: фантазии в манере Гештальта (2015) [FB2, RTF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_947229.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Вторая книга известного мастера психотерапии, посвященная действительно важнейшему для человека искусству – искусству быть живым. Искусству встречаться и расставаться, работать, путешествовать, создавать и прислушиваться, побеждать и сдаваться, не чувствуя себя при этом ни жертвой жизни, ни ее начальником. Друзья и ученики автора настоятельно рекомендуют (   Читать дальше...   )Жанр: Психология. СамоменеджментФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:086DAFC258D77AF8BFBDDA00BF3CBA65DFE6C6C0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

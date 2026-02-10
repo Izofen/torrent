@@ -1,3 +1,30 @@
+###  Публикация: 908699   (632328) от 15.06.2015
+
+Переславль-Залесский. Ярославские путешествия (2014) HDTVRip [720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_632328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по заказу агентства по туризму Ярославской области и предлагает ознакомиться с многочисленными достопримечательностями Переславль-Залесского.
+Переславль  располагается на юго-восточном берегу Плещеева озера при впадении в него реки Трубеж. Город рассекается рекой на две почти равные части: Южную и Северную. Кремль, лишенный стен, занимает центральное положение. (   Читать дальше...   )Телекомпания: ИА "Верхняя Волга"Жанр: ДокументальныйПродолжительность: 00:25:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:067A002416C897B2A83B3527553D034C573CF224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908763   (632331) от 15.06.2015
 
 Право голоса. Польша. Русский вопрос (15.06.2015) SATRip
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:58681109D9733DC07AA26360E2D859102F27CD22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:58681109D9733DC07AA26360E2D859102F27CD22
 magnet:?xt=urn:btih:6508ED259A15427411688DC1C40F15479159708F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:6508ED259A15427411688DC1C40F15479159708F
 magnet:?xt=urn:btih:DD9A01A6E3181FEACF4F16B66455042AA795C945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +123,8 @@ magnet:?xt=urn:btih:DD9A01A6E3181FEACF4F16B66455042AA795C945
 ```bash
 magnet:?xt=urn:btih:9B7BCFAFB228F6478CAE1883EAC300DDBE26B903
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:9B7BCFAFB228F6478CAE1883EAC300DDBE26B903
 magnet:?xt=urn:btih:3AF61026B4300068C3AD5D2A84BE63102208E116
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +176,8 @@ magnet:?xt=urn:btih:3AF61026B4300068C3AD5D2A84BE63102208E116
 ```bash
 magnet:?xt=urn:btih:6149FADF9F4B1B5B009EDE9D7B341625A997AE7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:6149FADF9F4B1B5B009EDE9D7B341625A997AE7D
 magnet:?xt=urn:btih:A4FB9F38F9A71336BFF7EDF90E84A1404C7F288F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +228,8 @@ BBC: Усадьба эпохи Эдуарда [6 из 6] / The Edwardian Country
 ```bash
 magnet:?xt=urn:btih:70EAE9622D56C53F611CA1EA01C59FEE33EAAC98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +255,8 @@ BBC: Викторианская аптека [4 из 4] / Victorian Pharmacy (20
 magnet:?xt=urn:btih:CDF11178E7379E853FE0989DE278E0779A6C9DA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +280,8 @@ magnet:?xt=urn:btih:CDF11178E7379E853FE0989DE278E0779A6C9DA9
 ```bash
 magnet:?xt=urn:btih:A1E94697C5A3A1B47FA1F7A6BA761385368B1DAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +307,8 @@ magnet:?xt=urn:btih:A1E94697C5A3A1B47FA1F7A6BA761385368B1DAD
 magnet:?xt=urn:btih:F63C9C28DD133043A4807D2D91D5D0DCFC302128
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +332,8 @@ magnet:?xt=urn:btih:F63C9C28DD133043A4807D2D91D5D0DCFC302128
 ```bash
 magnet:?xt=urn:btih:510442B0249A3B5197A6565F4D57ADC3212B0B6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +359,8 @@ BBC: Средневековая монархия. Ранние королевы 
 magnet:?xt=urn:btih:88AAE42A2E579AD202B9EBA1146E219C71DB369E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +384,8 @@ magnet:?xt=urn:btih:88AAE42A2E579AD202B9EBA1146E219C71DB369E
 ```bash
 magnet:?xt=urn:btih:278140B1847B99A259A2511D214CDC213EB20FF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +411,8 @@ magnet:?xt=urn:btih:278140B1847B99A259A2511D214CDC213EB20FF6
 magnet:?xt=urn:btih:E31D6645B14DC592D334263A790CC7341249C609
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +436,8 @@ magnet:?xt=urn:btih:E31D6645B14DC592D334263A790CC7341249C609
 ```bash
 magnet:?xt=urn:btih:05F8F4703D79085696FC3CBA0075D3BBB85F635A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +464,8 @@ magnet:?xt=urn:btih:05F8F4703D79085696FC3CBA0075D3BBB85F635A
 magnet:?xt=urn:btih:3DCA04711A40AB46259DA89FFEF66D513B34DE61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +489,8 @@ magnet:?xt=urn:btih:3DCA04711A40AB46259DA89FFEF66D513B34DE61
 ```bash
 magnet:?xt=urn:btih:DCC598D52CDFE8C8C9CC9550B12236ADFBA41BBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +517,8 @@ magnet:?xt=urn:btih:DCC598D52CDFE8C8C9CC9550B12236ADFBA41BBA
 magnet:?xt=urn:btih:DE077B83D6099101871D6B5F5343A01BD7CA2394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +542,8 @@ magnet:?xt=urn:btih:DE077B83D6099101871D6B5F5343A01BD7CA2394
 ```bash
 magnet:?xt=urn:btih:56CDF0DB117004C8F2C104366CBC6ECF8B5383E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +569,8 @@ magnet:?xt=urn:btih:56CDF0DB117004C8F2C104366CBC6ECF8B5383E1
 magnet:?xt=urn:btih:2A60F2664F4BAD11065DD5CCA24E624FC8DFD169
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +594,8 @@ magnet:?xt=urn:btih:2A60F2664F4BAD11065DD5CCA24E624FC8DFD169
 ```bash
 magnet:?xt=urn:btih:80C5D4F2E4E96DAAD98B21BE1D65FEA66FFDD893
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +621,8 @@ magnet:?xt=urn:btih:80C5D4F2E4E96DAAD98B21BE1D65FEA66FFDD893
 magnet:?xt=urn:btih:A9CE515D686E3235746E0AC3B3C54FD1472A9216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +646,8 @@ magnet:?xt=urn:btih:A9CE515D686E3235746E0AC3B3C54FD1472A9216
 ```bash
 magnet:?xt=urn:btih:556252CAFAE31EA071405CD5681741FA929E1E07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,29 +673,7 @@ magnet:?xt=urn:btih:556252CAFAE31EA071405CD5681741FA929E1E07
 magnet:?xt=urn:btih:F006C3D102952329F00C95B611CEB58E5351E7B2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 633020   (633942) от 13.07.2016
-
-Земля из космоса / Earth from space (2013) HDTVRip [720p]
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земля из космоса приглашает вас на эпические поиски обнаружения невидимых сил и процессов, которые поддерживают жизнь на нашей планете и впервые вы увидите их в действии в их естественной среде в ярких деталях. Эти поистине уникальные изображения будут изучать глубочайшие тайны существования, вызвав глубокие вопросы и сложные старые предположения о том, как работает (   Читать дальше...   )Телекомпания: Fly Over, NASAЖанр: Документальный, научный-популярный, исследования, космосПеревод: Одноголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CD80474310AE667BF518DB312FDB51D6EED14A4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

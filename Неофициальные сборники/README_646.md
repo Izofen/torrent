@@ -1,3 +1,38 @@
+###  Публикация: 602763   (997547) от 13.01.2013
+
+VA-Зажигательные Зимние Хиты (2013) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_997547.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Yolanda Be Cool - Before Midnight (Yolanda Be Cool's Mentalmen Mix)
+002 Milk & Sugar - Let the Sun Shine 2012 (Tocadisco Radio Edit)
+003 Tom Pulse feat. Fit4Funk - Flying Through The Air (Original Edit)
+004 Carlprit - Fiesta (Michael Mind Project Radio Edit)
+005 Far East Movement feat. Flo Rida & Sidney Sampson - Change Your Life
+006 Alex Clare - Too Close (DJ Yonce Radio Remix)
+007 DJ Stretch feat. Di Land - I Need You (Radio Edit)
+008 Miami Club feat. Nicci - Supernova (R.I.O. Radio Edit)
+009 Owl City feat. Carly Rae Jepsen - Good Time
+010 Sisi - Never Bye Bye (Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 05:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4756D1D9F294F5C45EC90770E936908F2584B84A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 602670   (997576) от 13.01.2013
 
 VA - Voices in my Head Volume 53 (2013) [MP3|320 кб/с]<Vocal Trance>
@@ -27,6 +62,8 @@ VA - Voices in my Head Volume 53 (2013) [MP3|320 кб/с]<Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:DE37CCDC3F13D641E5C850120ABBAEAE8217C897
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -61,6 +98,8 @@ VA-Зимняя русская best-of-ка (2013) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:D07DF64F905CC6395D62160E861DDABEDD8E48CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +132,8 @@ VA - Muz Эйфория Зимы (2013) [MP3|256 кб/с]<Pop,Dance>
 ```bash
 magnet:?xt=urn:btih:9D3E6050BB4951D9009ECF8C7BCC8D92E55AFE4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +168,8 @@ VA - Ambient Elect (2013) [MP3|320 кб/с]<Chillout, Lounge>
 magnet:?xt=urn:btih:EC62AE05FC67FFCD0946FD04DD0C02F2ED4D9225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +202,8 @@ VA - Экспресс Хиты От Европа Плюс (2013) [MP3|256 кб/�
 ```bash
 magnet:?xt=urn:btih:366E52F85672E7336789B902696FB886282E9F37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +238,8 @@ VA - Зимние Хиты На Love Radio (2013) [MP3|256 кб/с]<Рор>
 magnet:?xt=urn:btih:1DE87AAB54BBA599215BEBAC73D7D0957ABABF37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +271,8 @@ VA - Electro Life 21 (by ZiP) (2012) [MP3|320 kbps]<Electro House, Dubstep, Hous
 ```bash
 magnet:?xt=urn:btih:32BFE6A2C0A92A722D19D77D79B531D2E1507E7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -258,6 +307,8 @@ CD1:01. Sugarfree - Cleptomania
 magnet:?xt=urn:btih:0C46D775767F25A116A622774BDE56CE42273C07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +341,8 @@ VA - Simply Dubstep December 2012 (2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:A45B3054EF7DA00486A1FA9D6E25D7B69F7BA2B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +377,8 @@ VA - 200 лучших хитов от радио Отрыв (Часть 1) (2013
 magnet:?xt=urn:btih:4DE589DB84F427371EC13B2749F65DD3007AC931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +411,8 @@ VA - Русский хитовый взрыв №3 (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:405C5277A5B946DFA2A558FC7738A8B49DA16F0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +447,8 @@ VA - Песни на стихи Сергея Есенина (2010) [MP3|160-320 
 magnet:?xt=urn:btih:732DF569D9ED65583F329EBB71EABF911D6B348F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +481,8 @@ VA - Авто Ритм. Убойный музон в авто (2011) [MP3|256-32
 ```bash
 magnet:?xt=urn:btih:B9C741BA68BDBBAF3E948BCD1012B2B0A20C06F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +517,8 @@ VA - Золотой шансон. Жиганский 2 (2012) [MP3|320 кб/с]<
 magnet:?xt=urn:btih:6D481727203169CB62ABD17E988C36C7CCFCD59F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +551,8 @@ VA - Дискотека 2013 Dance Club Vol. 99 (2013) [MP3|320 кб/с]<Dance, 
 ```bash
 magnet:?xt=urn:btih:ADAFBD83DC28BC95BD41FD1BC0B312231906D247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +587,8 @@ VA - Gangnam Style Hits (2013) [MP3|320 кб/с]<Dance, Club, Pop>
 magnet:?xt=urn:btih:D1C3A075F5F152DE43A9F760C6484A27A64D173C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +621,8 @@ VA - Top 100 Зимний драйв - 2013 (2013) [MP3|256 кб/с]<Pop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +657,8 @@ VA - Tropiques Dancefloor 2013 (2012) [MP3|320 кб/с]<Dance, Pop,Club>
 magnet:?xt=urn:btih:C04C5274007D51EBE1528FBF5674F89862615945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +691,8 @@ VA - Итоговый Независимый Хит–Парад - «Чарто�
 ```bash
 magnet:?xt=urn:btih:8580217263D144F1BD0069F9295EEEBBA2501E17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +727,8 @@ VA - Союз 51 (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:AC9BD3D17692A41A5202EEF9BEC735F9DB02E653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,6 +761,8 @@ VA - Trance. Vocal Fascination 42 (2013) MP3 (2013) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:D8B7F15982CEBFAFECA8E7AB5A1C0514751164E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -720,6 +797,8 @@ VA - Понты дороже денег (2013) [MP3|128 кб/с]<Шансон>
 magnet:?xt=urn:btih:59E35B3CB24D15A67C4EFA6EC0374E32CE3D6BCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -752,6 +831,8 @@ VA - Дискотека 80-х. Лучшее (2013) [MP3|320 кб/с]<Disco>
 ```bash
 magnet:?xt=urn:btih:D2715D1FB34AC72196F9005EA5DEB6C290FACAC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -786,6 +867,8 @@ DJ Smash - Новый мир (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:E15FBEB94D693EB2D64D1641C4D202FBC740F4B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -819,29 +902,7 @@ VA - Aqua Trance Volume #01 - #31 (2012-2013) (Обновляемая) [MP3|320 
 нет
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597714   (999976) от 04.01.2013
-
-VA - Модный Зимний Выпуск (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_999976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 05:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A9D53EF16B2A07877BB097C2233812353C1230D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

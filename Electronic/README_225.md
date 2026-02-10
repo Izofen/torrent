@@ -22,6 +22,8 @@ VA - Buddha Zen: Downtempo Bar (2017) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 magnet:?xt=urn:btih:8D722FB46C215666D2C4F652E395ACF2B2BA5EE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Empire Of Love - Mysterious II (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:4D6929AD246F0F11ABD5932DBD15D799677A402E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -81,6 +85,8 @@ VA - Gleaner (2011) [FLAC|Lossless|WEB]<Progressive House>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -107,6 +113,8 @@ Rildrim - Discography 9 Releases (2006-2017) [FLAC|Lossless|WEB-DL|tracks]<Ambie
 ```bash
 magnet:?xt=urn:btih:9C49662489469785E590145AB61D76FB41AEDF86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -135,6 +143,8 @@ VA - Lounge And The City (30 Beautiful Tunes) (2017) [MP3|320 Kbps] <Downtempo, 
 magnet:?xt=urn:btih:6963076E7007A8AEC120D52A1E73AEA4FE3F005D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ VA - The Big Chill (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 magnet:?xt=urn:btih:091309D4D8E294DB5FCBA983439FEFA96C5B764D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +200,8 @@ VA - Festival House: Session 6 (2017) [FLAC|Lossless|tracks] <House,Progressive 
 ```bash
 magnet:?xt=urn:btih:6F6D32D71F32A6443C00F5457484B1D9A12EF953
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +236,8 @@ VA - House With Sax Appeal Vol.1 (2010) [MP3|320 кб/с]<Deep House, Sax House>
 magnet:?xt=urn:btih:5670EC4198CDCB7E88343FE2EF169C06CB105ED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +268,8 @@ Digital Rain - My Dreams (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 magnet:?xt=urn:btih:93C39D09A38AC056885796706CC3424CE94F850F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +296,8 @@ VA - Grand Chillout Vibrations (100 Tracks Special Edition) (2017) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:1FF716C1733343ABEB693DA32AB3F45EDA347F93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +326,8 @@ VA - Sunshine Live Vol.61 (2017) [MP3|320 Kbps] <House, Trance, Dance>
 magnet:?xt=urn:btih:02117A4BC3E95BC973443279F4912B00F73977C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +355,8 @@ VA - Autumn 2017 Lounge Collection (30 Beautiful Tunes) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:EAACB3B04B1C24C1FFE01D0C204CD68479D7A5FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +381,8 @@ Naibu - Again / Uncalled (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:37326FDFB87F45FAC4683C934FBC118B6CBEDBE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +411,8 @@ High Contrast - Night Gallery (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 magnet:?xt=urn:btih:B000FDEA1BC7EEEA68147940BEC0BA060CE8A7EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +439,8 @@ Night Runner - Thunderbird (2017) [MP3|320 Kbps] <Synthwave, Synth-pop>
 ```bash
 magnet:?xt=urn:btih:4B481B1850BF702530DE491D48E897E563B1FC41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +469,8 @@ VA - The Sound Of Trance Vol. 06 (2017) [FLAC|Lossless|tracks] <Trance>
 magnet:?xt=urn:btih:47248267D5D6F7E82123FAF381C81B715A625700
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +497,8 @@ VA - Underground Trance (2017) [FLAC|Lossless|tracks] <Trance>
 ```bash
 magnet:?xt=urn:btih:D5C4832E7B6AE3D6DAC871A56A10C9EA87B515CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +527,8 @@ VA - Kamasutra Tantra Music, Vol 5: Sounds of Love (2017) [MP3|320 Kbps] <Balear
 magnet:?xt=urn:btih:936BAF8E067AF1C048C181C544A5F0B26104913E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +555,8 @@ VA - Best Of Electronic Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Electr
 ```bash
 magnet:?xt=urn:btih:6969C82C5DE3C474DCA6242AA59A36D31803CEA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +585,8 @@ VA - Ahmed Romel - Orchestrance 213 (2017) [MP3|320 Kbps] <Trance,Uplifting Tran
 magnet:?xt=urn:btih:B8274B4495FC750391D8E57D18AE7C88E0C1B895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +613,8 @@ VA - Acoustic Chillout Session (2017) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:DFA85427F25D87666234AEA63391BAADE8047CB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +643,8 @@ Sander van Doorn pres. Purple Haze - SPECTRVM (2017) [MP3|320 Kbps] <House, Prog
 magnet:?xt=urn:btih:490A33A5E40668888C65E3FDEB5EF4CB7AD02082
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +671,8 @@ VA - 5 Years of Saturate Audio (Mixed by Basil O'glue & Styller) (2017) [MP3|320
 ```bash
 magnet:?xt=urn:btih:06BEF9B7FAE5F83016760B360A08DDC82E0DD9C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +701,8 @@ VA - New York Fashion House (A Finest House Selection) (2017) [MP3|320 Kbps] <Ho
 magnet:?xt=urn:btih:C4D25C0AA24E39D5C2AE7BF9C5D2A5C21AABEDEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,6 +730,8 @@ VA - Deep Flavors (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
 magnet:?xt=urn:btih:2AEAA3C323186F151437247D6F0E218FE09E76BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -708,6 +758,8 @@ Depeche Mode - Cover Me (Remixes) (2017) [FLAC|Lossless|WEB-DL|tracks] <Synthpop
 ```bash
 magnet:?xt=urn:btih:549DC3602551209AFC1B5A3B30DF1A1E7B3FB0AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

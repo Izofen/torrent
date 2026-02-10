@@ -19,6 +19,8 @@ Chicken Police: Into the HIVE! - увлекательное детективно
 magnet:?xt=urn:btih:BFA450AA4A302FFF1344209A93647DEBF647EEF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Goat Simulator: Remastered предлагает игрокам необычны�
 ```bash
 magnet:?xt=urn:btih:02F40C3EA2F2BB8EE37E2701AFE0B426F0DBDA3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ City Car Driving – реалистичный симулятор вождени�
 magnet:?xt=urn:btih:FC51BE3ECD91BEA950434C475B08A49A9C68C165
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Beat Hazard 3 (2024) [Ru/Multi] (1.028) License GOG
 ```bash
 magnet:?xt=urn:btih:E9FE939E27A59F0604E718B8C75C6716B1E16557
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Potion Tycoon / Магнат зельеварения (2023) [Ru/Multi] (1.0.8/d
 magnet:?xt=urn:btih:5737D5CCC6A250264C7757AADBD7B9762C59E8EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Metro Awakening - это разработанный специально для 
 ```bash
 magnet:?xt=urn:btih:35AE6C782D42F18EE9DA041E46F9E81C46FD03BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Techtonica представляет собой симулятор строите
 magnet:?xt=urn:btih:184B70D2DDB9C2117E06477DDC8E60E6FE4D50A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:C23723CC133360522A335905A1BE01422F0E3C79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Techtonica представляет собой симулятор строите
 magnet:?xt=urn:btih:117872BF2BFBCDA175E1D1A85206C7D71AD36D1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.0.1/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5050AD0683DEF1E59275A44F56466CB399436AA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ SOS OPS! – отправьтесь навстречу забавной кооп
 magnet:?xt=urn:btih:89CA4C5E6D6C386866FF12A7E16FF49E9728DB66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Five Nights at Freddy's: Into the Pit (2024) [Ru/Multi] (1.0.9.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:EE6CC631B53A20B7A27F55494EAFBA5B367A590F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.19.0/dlc) Repack FitGirl [Ultimat
 magnet:?xt=urn:btih:81D6D5A4CF3891D5B4502B0AA11641875774F125
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Crysis: Warhead - продолжение приключенческого шут
 ```bash
 magnet:?xt=urn:btih:5CB5374964F46B39086ABA513D3FE18454955183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Crysis 2 Remastered (2022) [Ru/En] (Build 9461303) Repack Wanterlude
 magnet:?xt=urn:btih:3682A9EAFEB793AE224282B673B7C34797626BDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Quake - это первый по-настоящему трехмерный шу�
 ```bash
 magnet:?xt=urn:btih:0A2BCFC0C9987740BA8CAA65091916FB84B028CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Crysis 3 Remastered (2022) [Ru/En] (Build 9460220) Repack Wanterlude
 magnet:?xt=urn:btih:6568E3C928DCA1E4A340DB05C0C0740AAA3C323B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Crysis: Remastered (2021) [Ru/Multi] (3.0.0) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:242F5A5E1610B3AF84F36C6358A0727B83E821A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Massacre At The Mirage (2024) [En] (1.0) License GOG
 magnet:?xt=urn:btih:529EB74BAA9D9626C793C88C8669532291E1AEFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Empire of the Ants (2024) [Ru/Multi] (1.02.19732) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F8C4D357CDB6EF82BC3F1AECA28AF089B4340AF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Technotopia (2024) [Ru/Multi] (1.0.7.1) License GOG
 magnet:?xt=urn:btih:3EEE1D5ACF71538B0A2A3472B802A3CAC76C2056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272/dlc) Repack FitGirl [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:B07444763EAA80933E7A92B025154056E395DA6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Atlas Fallen: Reign Of Sand (2023) [Ru/Multi] (1.119040/dlc) Repack LetsPlay
 magnet:?xt=urn:btih:56130EEE2D12251A3D9793FC010769CAC335E30E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Frostpunk – игра от создателей This War of Mine. Это игр
 ```bash
 magnet:?xt=urn:btih:0588899834DEA32F8EA6D2125BEC0C8476717E92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Ghostrunner 2 (2023) [Ru/Multi] (42294_40/dlc) License GOG [Brutal Edition]
 magnet:?xt=urn:btih:FFCCC75457107971D783EFC9F6D1BE990906CE01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Empire of the Ants (2024) [Ru/Multi] (1.02.19732/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:02598873B9350C3CF9AF277F73B91624AF3CA9F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Harry James - 1939 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Ban
 magnet:?xt=urn:btih:30596BDFB894CF9A9F518F2E0D47ECCB8FA2544D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Francesca Lee - Moonhattan (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Synthpop,
 ```bash
 magnet:?xt=urn:btih:1FAF19207F40841E75D182BACCB5E149366B5620
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Sonic Flash Vol. 3 (2023) [MP3|320 Kbps] <Dance, Dancecore, Hard Beat, Hand
 magnet:?xt=urn:btih:3571C6DEA36223C6635F6F2E6759D1B5E7FB8809
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Chip Z’Nuff - Perfectly Imperfect (2022) [FLAC|Lossless|WEB-DL|tracks] <Glam H
 magnet:?xt=urn:btih:70B94EC8C6CED8F2790105C7EB76263F8327B08F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ VideoDuke 1.16 [En]
 ```bash
 magnet:?xt=urn:btih:8F0F962F14848B476516394A5970C22450C957B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ magnet:?xt=urn:btih:8F0F962F14848B476516394A5970C22450C957B3
 magnet:?xt=urn:btih:8340412E906834BD99EE38A0ED9F2AC904A7EFF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:8340412E906834BD99EE38A0ED9F2AC904A7EFF3
 ```bash
 magnet:?xt=urn:btih:4B460986842279754D7A53078A1E1D7D78D7F92A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ Grover Washington, Jr. - Next Exit (1992) [FLAC|Lossless|image + .cue] <Smooth J
 magnet:?xt=urn:btih:F4500CE4EB266256A80BF69FA657E770492A07A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ Dimension Zero - Silent Night Fever (2002) [FLAC|Lossless|image + .cue] <Melodic
 magnet:?xt=urn:btih:6596130B0EC9E656D3ACCE725A568650CC926305
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:6596130B0EC9E656D3ACCE725A568650CC926305
 ```bash
 magnet:?xt=urn:btih:15418F63F8613FD331D7596B555AEF78ABA065D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ WinPaletter 1.0.7.6 Standalone [Ru/En]
 magnet:?xt=urn:btih:6C9F16E5D0210FC4ECD35095A305F7792C17E8E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ Soft Organizer - утилита для полного удаления нену�
 ```bash
 magnet:?xt=urn:btih:3ADC4B266765AAD2B0183C230B0AE02409033F97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ Dusk - Spectrums (2023) [MP3|320 Kbps] <Progressive Metal, Metalcore>
 magnet:?xt=urn:btih:9AD0AA80C2F2B1C1B3D7946354AA65B0F8FCE81E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +385,8 @@ Victims of the Future — четвёртый сольный студийный �
 magnet:?xt=urn:btih:8064BBE9A55679918AF5826F45804305CE478D30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:8064BBE9A55679918AF5826F45804305CE478D30
 ```bash
 magnet:?xt=urn:btih:8BCF4E0D132577D30BA3A71A91C3ED0E93444CC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +440,8 @@ Airbag - All Rights Removed (2011) [FLAC|Lossless|tracks + .cue]<Progressive Roc
 magnet:?xt=urn:btih:CD1CD1A3D2A113FD7CA5C10ED3798412A86927C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ DoYourData AppUninser - очень мощный, но простой в испо
 ```bash
 magnet:?xt=urn:btih:98AE0733525D100BD8BF65735E56E51BEB26DE97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ magnet:?xt=urn:btih:98AE0733525D100BD8BF65735E56E51BEB26DE97
 magnet:?xt=urn:btih:9128D12D8DBF04EC8A10DB09700477CF569FF715
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:9128D12D8DBF04EC8A10DB09700477CF569FF715
 ```bash
 magnet:?xt=urn:btih:FE438B8DE4E49F402C6F591B352C947EE3C27F62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:FE438B8DE4E49F402C6F591B352C947EE3C27F62
 magnet:?xt=urn:btih:BA32F5C2391E1B328E73A79B4C1EA4E656BD7F2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:BA32F5C2391E1B328E73A79B4C1EA4E656BD7F2A
 magnet:?xt=urn:btih:D83848CF502E417A2C0FA6B5055C7AE602966E41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ magnet:?xt=urn:btih:D83848CF502E417A2C0FA6B5055C7AE602966E41
 ```bash
 magnet:?xt=urn:btih:3811DD45E232AB99DDFA906BBEC043DC36BDE9C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ Brutai - Born (2016) [MP3|256 Kbps] <Progressive Metal, Melodic Metalcore>
 magnet:?xt=urn:btih:22A053966AB403ABD7CEF6941AB25ABB9D086B98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:22A053966AB403ABD7CEF6941AB25ABB9D086B98
 ```bash
 magnet:?xt=urn:btih:B7D40360E9BB69733C785611EC24BF7B5348DA16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ Organectomy - Existential Disconnect (2019) [WavPack|Lossless|image + .cue] <Bru
 magnet:?xt=urn:btih:9599FBF001D9E4B9FD7E9058CFD4CF8F17789042
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ Afterdusk - Fatalize (2023) [MP3|320 Kbps] <Progressive Metalcore>
 ```bash
 magnet:?xt=urn:btih:7F1D6A065F15156F3455A744053327322FBAB10C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9109FF89D2BEAC2B1243D38064281A70A56B364A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:9109FF89D2BEAC2B1243D38064281A70A56B364A
 magnet:?xt=urn:btih:D47C0E7F1681029AD42BE321EE0230A40E33AA55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:D47C0E7F1681029AD42BE321EE0230A40E33AA55
 ```bash
 magnet:?xt=urn:btih:29E94E4B458262350E332324A29D35B3A70E76F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ VA - Forty Below Records Sampler, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <B
 magnet:?xt=urn:btih:FB2CC5F30212B4197C160652A0DDF0DF374F2DF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Kerion - Tales of the Past (Best of Kerion) (2023) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:0C3849AA556E65344905D6856D5E62D3F84B23DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:0C3849AA556E65344905D6856D5E62D3F84B23DB
 ```bash
 magnet:?xt=urn:btih:BEBB1933C8F9C2C6966551397818B8AC92A2BBFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:BEBB1933C8F9C2C6966551397818B8AC92A2BBFE
 magnet:?xt=urn:btih:F4057CB2E0B26F9FEAE8005608D8C7930F86B6D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:F4057CB2E0B26F9FEAE8005608D8C7930F86B6D8
 ```bash
 magnet:?xt=urn:btih:B5D209F59B8D0FCEC02D60C3E34F4A865BE7A458
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:B5D209F59B8D0FCEC02D60C3E34F4A865BE7A458
 magnet:?xt=urn:btih:5B6BCE81230188C4B70BDD5F89408649E14EEEBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:D645DD92BAB74F5A1F3A218F8B6FC1BB77375A30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:D645DD92BAB74F5A1F3A218F8B6FC1BB77375A30
 ```bash
 magnet:?xt=urn:btih:2590FC40E0B68AEA389E0416CA63D239E7E74BC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ Rival Sons - Darkfighter (2023) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blues-
 magnet:?xt=urn:btih:6840B30A6BA96700E22DD085E99B99B243467B09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ VA - Шоферской 6 (2001) [MP3|320 Kbps] <Шансон>
 magnet:?xt=urn:btih:5F689351CF97B97585D1D680886FB76FDA01B371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:5F689351CF97B97585D1D680886FB76FDA01B371
 ```bash
 magnet:?xt=urn:btih:9356C2AC5459B578E0B8B524D2676E5869ABB0A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:9356C2AC5459B578E0B8B524D2676E5869ABB0A2
 magnet:?xt=urn:btih:FB9525CD0147EBB49E09800CB5817E27C9A154B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ CCCР считался читающей страной и в этом немал
 ```bash
 magnet:?xt=urn:btih:C4D6D77C46E6DBFA439C930EC1E545381F8B8FBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ Amandus - Her Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:7EF0307E62A713B28A54EAFC8AFF49F2591A20EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ Avidemux - небольшой, простой редактор для работ
 magnet:?xt=urn:btih:5604235A5549423E3EEA1B18EDF45B5317849ED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:6D6BF50BD77523EDA651F03997AA02A4569F3CBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ Egor Lappo - Naturealism (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 magnet:?xt=urn:btih:DFA07B11FB848266AB0C6A3B597B92535D6C8064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:DFA07B11FB848266AB0C6A3B597B92535D6C8064
 ```bash
 magnet:?xt=urn:btih:7934D5A22478E7DA359F5B9B709FD405B112AE1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ Briar - это приложение для обмена сообщениями, 
 magnet:?xt=urn:btih:DB2A32464076BF3ABDFBA0A9F9F20C855885D8E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:DB2A32464076BF3ABDFBA0A9F9F20C855885D8E1
 ```bash
 magnet:?xt=urn:btih:9DAE446D066DC1DF308DF387E14DED4BF14EFB9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:9DAE446D066DC1DF308DF387E14DED4BF14EFB9C
 magnet:?xt=urn:btih:A611A32AD55E312D944910EAFFE6884CA9F7C17F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ AOMEI Backupper – программа для создания резервно�
 magnet:?xt=urn:btih:6BD911138E25FEFF4202C3DB1D8BE87C271DE645
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:6BD911138E25FEFF4202C3DB1D8BE87C271DE645
 ```bash
 magnet:?xt=urn:btih:09FC8969EB4C639A7699B4A2C7ECE35AED138B70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

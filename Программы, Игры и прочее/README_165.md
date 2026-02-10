@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A2CC68885D269E1623370B666A5408169A560DCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:061E4C7BC7D18DB633C409D4F354BD4B590A21ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ One Read / Все Документы Читатель - Офис v1.2.7 Mod by T
 magnet:?xt=urn:btih:78D135C53616007F7D721274627C21D4B01C4CD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Mary’s recipes: рецепты, меню v7.0.0 Mod by Alex.Strannik [Ru/Multi
 magnet:?xt=urn:btih:DDF7A2AFC4A77CC8E487A037930185E1EED09741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Hear Clear / Услышать на расстоянии v1.2.0.2 Mod by Garant68
 ```bash
 magnet:?xt=urn:btih:E9485FA96EF7DB7FF02DD3B4CC54E5D23FEC9564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ TapScanner — сканер документов, это простой скан
 magnet:?xt=urn:btih:E0C84786AEE734255BD28A686D85CE67B22AA6EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Smart AudioBook Player Pro v11.6.5 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F6689C7009CF2874C4C3BD487AD6A738FB3733F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 magnet:?xt=urn:btih:9D968AE2EFD1358FCB28D0D44C649DE3A37849BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Lighting calculations / Расчеты освещения v6.1.11 Mod by Balatan
 ```bash
 magnet:?xt=urn:btih:5650B472DAF5F1E64582FEFEBBBB5D5C54185CE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:5650B472DAF5F1E64582FEFEBBBB5D5C54185CE3
 magnet:?xt=urn:btih:F366AB02BB786D1374B963D944E073D4E06CD887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:F366AB02BB786D1374B963D944E073D4E06CD887
 ```bash
 magnet:?xt=urn:btih:49ADFD91DB7FE168FFBF518F8AFC57AD4D6AEF8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Cozy Magnifier & Microscope Plus v7.0.1 Mod by derrin [Ru/Multi]
 magnet:?xt=urn:btih:FED5303E2B64D8BE3C1DBBCC1EC05406D91C10EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ ProShot v8.32.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:09FADBCC6EE010BE7FC597B75AB6220BCF766E8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ FacePic — приложение AI Face, приложение для легко
 magnet:?xt=urn:btih:E101CDD4E97CB0E503FBBF4AA26BD40A14C056E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Flud - простой и элегантный BitTorrent клиент для о�
 ```bash
 magnet:?xt=urn:btih:69848426F30F8D75F4442C5F61EB01658EE0F828
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:69848426F30F8D75F4442C5F61EB01658EE0F828
 magnet:?xt=urn:btih:76E446B5D1678B8C76EAD722573A0D9C8FD176AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ PianoMeter – Piano Tuner v5.0.0 Mod by Alex.Strannik [Ru/En]
 magnet:?xt=urn:btih:969197BA023DEF1E3CEB0523537AB470875EB70F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:969197BA023DEF1E3CEB0523537AB470875EB70F
 ```bash
 magnet:?xt=urn:btih:64BCDA4E8B555E3778FDE6CE3740C913073BF9F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:64BCDA4E8B555E3778FDE6CE3740C913073BF9F3
 magnet:?xt=urn:btih:E5F1D93FCFF3B37CC7FBB0C6A6C24A726AF9F05D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Smart AudioBook Player Pro v11.6.5 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:51E837B8325E9E4CFC0D5E8F6178D1B5C5BDC9A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Smart AudioBook Player Pro v11.6.5 Mod by Kirlif' [Ru/Multi]
 magnet:?xt=urn:btih:1A1CCD21995CB0EE484FA78A6B4D72C3FDBF544C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Rosetta Stone: Изучение языков 8.34.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5F005D2CABF6C32970B58623CC93E39B4DBF0288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Resident Evil Survival Unit v1.3.1 [En]
 magnet:?xt=urn:btih:0513A37E8EFF57FBF6D00A43A2BA34780BC068D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:0AD7BC78F76F9B790E504214EA0CAD551CFCBD0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Device Info — простое, но мощное приложение для An
 ```bash
 magnet:?xt=urn:btih:068A919E117AAAD64E788E46F884651720EDF88C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +679,8 @@ Planet of Lana v1.6.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:8B325F5AE20A352308E3CD23AD639D57FFB81A8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

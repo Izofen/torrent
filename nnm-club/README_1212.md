@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:7D66674CECC2F3DCBA1279DC14EA4C31288B9FEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Megafauna - I Owe This Land a Body (2025) [FLAC|Lossless|WEB-DL|tracks] <Dark Am
 ```bash
 magnet:?xt=urn:btih:135AF2569AC0ACFA4982DF9514CBB908C51D86BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Pink Floyd - Live At Empire Pool (Wembley, London, UK, 15 November 1974) (2024) 
 magnet:?xt=urn:btih:4334D22AA4832768421EAE483140D5B934F4D6F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Pink Floyd - Live At The Hippodrome (Bristol, UK, 13 December 1974) (2024) Live 
 magnet:?xt=urn:btih:7231767DA4C22D7823342E8916E4CA286050C4A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:7231767DA4C22D7823342E8916E4CA286050C4A3
 ```bash
 magnet:?xt=urn:btih:A09C3132EFC71B43F4B371423523FDA4B91EDB9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ The House of Da Vinci 3 (2022) [Ru/Multi] (Build 10591427) Repack Let'sРlay
 magnet:?xt=urn:btih:28950A3CEF5F867CDA0C931C9DC2334159958231
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ The House of Da Vinci (2017) [Ru/Multi] (Build 5703690) Repack Let'sРlay
 magnet:?xt=urn:btih:639AD88E5BCA31E16900B1B21649FDC0A6000FDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:639AD88E5BCA31E16900B1B21649FDC0A6000FDC
 ```bash
 magnet:?xt=urn:btih:9119D0EF0E5310DD5405CF791EDE73F4D1C5D166
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ Eleni Violaris - Rainstriker (2015) [MP3|320 кб/с]<New Age, World>
 magnet:?xt=urn:btih:C8C58AF76E20C5FF641C8855864596A7CE1F7BE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:C8C58AF76E20C5FF641C8855864596A7CE1F7BE8
 magnet:?xt=urn:btih:13636DBCF7D9B76FEB1652BEBA21C9EBB880554E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:13636DBCF7D9B76FEB1652BEBA21C9EBB880554E
 ```bash
 magnet:?xt=urn:btih:CF4203C3444A3E5126459523091A152D897EC7CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ Kimetsu no Yaiba: Katanakaji no Sato Hen | Demon Slayer: Swordsmith Village Arc 
 magnet:?xt=urn:btih:6E788D7BC53AFC8B43C52A490CEBA33DB0FB0304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:6E788D7BC53AFC8B43C52A490CEBA33DB0FB0304
 ```bash
 magnet:?xt=urn:btih:742B72FADD0135AA18BB43F8546ECED8B46845FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:742B72FADD0135AA18BB43F8546ECED8B46845FE
 magnet:?xt=urn:btih:3FC150383B974A333CA913C289117CC40BCEB3E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:3FC150383B974A333CA913C289117CC40BCEB3E9
 ```bash
 magnet:?xt=urn:btih:6851292D4D1A5EF4797244D686AB5F004C61E88C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ The House of Da Vinci 2 (2020) [Ru/Multi] (Build 6381373) Repack Let'sРlay
 magnet:?xt=urn:btih:0EFE39ADDBF2C165B9693EED635EED7EBC038C4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:0EFE39ADDBF2C165B9693EED635EED7EBC038C4E
 magnet:?xt=urn:btih:371274A5742528573E4073559016DA674966ED17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:371274A5742528573E4073559016DA674966ED17
 ```bash
 magnet:?xt=urn:btih:3EFE8401F39EFBF7147FB12DD1340280CF09A872
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ Tarif — это семейство шрифтов, вдохновленное �
 magnet:?xt=urn:btih:C7A31542FB825C6E46249E8590784FE6845FCB2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:C7A31542FB825C6E46249E8590784FE6845FCB2D
 ```bash
 magnet:?xt=urn:btih:722E06CC5D09789E2E964B1E873E77B326AFE401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ Pink Floyd - Live At Usher Hall (Edinburgh, UK, 5 November 1974) (2024) Live [FL
 magnet:?xt=urn:btih:9D909266FAA1F6E7744BC6B5EAC9E0AEDA628AA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:9D909266FAA1F6E7744BC6B5EAC9E0AEDA628AA8
 magnet:?xt=urn:btih:72870D7929308517DED5BE77CAC51B1371C1ECB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:72870D7929308517DED5BE77CAC51B1371C1ECB8
 ```bash
 magnet:?xt=urn:btih:A5A2E4C382A4CBC4D3E8B882F8F0615BCC54D867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ VA - Шансон премьера 2024 (Лучшие песни) (2025) [FLAC|L
 magnet:?xt=urn:btih:933AA520BC47F9C62CB0803C5D50ADC38504FADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:933AA520BC47F9C62CB0803C5D50ADC38504FADA
 magnet:?xt=urn:btih:0551E2E1CD20D857ACC6C011E1D9C71B1C8493E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ magnet:?xt=urn:btih:0551E2E1CD20D857ACC6C011E1D9C71B1C8493E2
 ```bash
 magnet:?xt=urn:btih:0CCAC7C24D0E276FE5F296E106C1127D8824A1CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

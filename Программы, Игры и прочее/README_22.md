@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:FF5B29E0994429D83C88D29F432E28CFE866294A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Periodic Table / Таблица Менделеева 2024 PRO v3.5.6 Mod by Bala
 ```bash
 magnet:?xt=urn:btih:C58B247921BA7B885FE04884DBBB4153107DEEBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Sleep Cycle — это интеллектуальный будильник, ко
 magnet:?xt=urn:btih:FB3E7EA9DBAE6FC7330272D6E15DE9EC6DDA3E86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ AdGuard — уникальный блокировщик рекламы без ro
 magnet:?xt=urn:btih:B71011FADFD9E8B34A07C6E39B021F6BEB74C002
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Torrent Pro - Torrent Download - приятное в использовании 
 ```bash
 magnet:?xt=urn:btih:BB953D8AE2A1E9E8F9775D028E97C592419D44A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ PowerDirector – Video Editor v14.6.1 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:8AAC0BE1790BED145D8B1094768CF5EEAE22DC56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Photo Sherlock v1.123 Mod by Mixroot  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:21A2CBAA2CBEB635E6025C9AA7782AA49F9AD95F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:21A2CBAA2CBEB635E6025C9AA7782AA49F9AD95F
 magnet:?xt=urn:btih:D849F6C17D2537A6BC58CEB11B5213B039E5A41F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:D849F6C17D2537A6BC58CEB11B5213B039E5A41F
 ```bash
 magnet:?xt=urn:btih:C4E8FF8EF613C16A4F58F446F071DFAE198F1DDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:C4E8FF8EF613C16A4F58F446F071DFAE198F1DDB
 magnet:?xt=urn:btih:C3C44B92921850CB1D7C7C1C8C9FE3F5BFD4849C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:5DE9D51B582ED1BB25D6A6C29EED710280CB4D52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ NewPipe v0.27.3 Free + Mod by Alex.Strannik  [Ru/Multi]
 magnet:?xt=urn:btih:B937B69AA78DA873216C4C1366FBFEDF2950B793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ AirBrush: ИИ Фоторедактор v7.4.600 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3B1FE211699B2E57F6AC07BEDFD61178099F31C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Colorize Images - это сервис, основанный на автомат�
 magnet:?xt=urn:btih:0275E42AC31D23606D31BF0AED28511C0EE9A131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.31.7 Gold
 ```bash
 magnet:?xt=urn:btih:C37DD3FD46E5E79C743C008554EC52145D1A058F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:8001D032491E93C1C81D9BA43DD81EFDA9FD2F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:DAF6B34FC454B54DC25CA432F5B7A8A74F00D695
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ AdGuard — уникальный блокировщик рекламы без ro
 magnet:?xt=urn:btih:032BF54884F7AF0D03D5A5C3F43172B0F31B6094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:133F13138A97FCD4C8A1049C0C35FF3623B32641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Grab Photos From Videos / Фото из видео v11.3.2 Mod by Mixroot [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:B03674AF46DC6FEEFFC8E5619AEBC93E9B828079
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Magnifying Glass / Увеличительное стекло v3.9.1 (от Pony M
 magnet:?xt=urn:btih:84EF63F199F998F7A5E31903224D1EA97A4E16E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ INKredible PRO включает в себя все функции покупки
 ```bash
 magnet:?xt=urn:btih:B50C94A01C687585F6CD81771A14F7A9974418E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ SHINE – уникальное путешествие в мир особого �
 magnet:?xt=urn:btih:470C749D03FCBE604168349282DF5E80D5DB66B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:470C749D03FCBE604168349282DF5E80D5DB66B9
 magnet:?xt=urn:btih:E25B72B4A880958364E884C30D55BB926AB2C57E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ Netmonitor: 5G, Cell & WiFi v1.25.15 Premium Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:1690544E21097F7CB5C7508F6A97E7A477C70D13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.32.5 Mod 
 ```bash
 magnet:?xt=urn:btih:9018A8DF3694C7ACEB82767F618BE4DA9C84A788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

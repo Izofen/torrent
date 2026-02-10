@@ -21,6 +21,8 @@ Men of War: Assault Squad / В тылу врага 2: Штурм (RePack/2.05.15
 magnet:?xt=urn:btih:0C45674ABF3167C69300BB454662A786FB3E3BD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Men of War: Assault Squad Game of the Year Edition / В Тылу врага 2: �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -81,6 +85,8 @@ Worms: Ultimate Mayhem [Ru/En/Multi9] (Steam-Rip/DLC) 2011 | R.G. Игроман
 magnet:?xt=urn:btih:FDDCCF0A7E5C7A49A9EA4E0774C19340A12F244F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -113,6 +119,8 @@ Universe at War: Earth Assault - следующая научно-фантаст�
 magnet:?xt=urn:btih:F5786EF8B672594FAF619F3BF7B894E2D7B01A6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -136,6 +144,8 @@ Men of War: Assault Squad 2 - Cold War (2019) [Ru/Multi] (1.006.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:DABFE5B6F8FF582045D9030A5C522B91D33F78AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -161,6 +171,8 @@ Day of the Shell – это динамичная тактическая игра
 magnet:?xt=urn:btih:17FAC25091A4673BDA280AE3110A4970F12F0ACE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +196,8 @@ Partisans 1941 (2020) [Ru/Multi] (1.1.04/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:4FAB0D13B771FD209B2E340462536C43CAD721D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ Warhammer 40,000: Battlesector — динамичная пошаговая ст�
 magnet:?xt=urn:btih:0234AA04EC28DAE4BB1161CA67A311D0CB8F30D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ Siege Survival: Gloria Victis (2021) [Ru/Multi] (6998499) License GOG
 ```bash
 magnet:?xt=urn:btih:607720D677EC5406C2CBC31231B68BB1FC470BF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ UFO2: Extraterrestrials — приквел к UFO: Extraterrestrials, котор
 magnet:?xt=urn:btih:E46EA16DB006EA690661C3C6FED05200D34C9916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Red Solstice 2: Survivors (2021) [Ru/Multi] (6877287) License Fairlight
 ```bash
 magnet:?xt=urn:btih:A08B4DD9DA35A4DF5016B092BBD6CE7E3EACE625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ Defender's Quest: Valley of the Forgotten (2012) [Ru/Multi] (2.2.6) License GOG
 magnet:?xt=urn:btih:CBA6D891E281D2E0D528CBAC26BE3297A825C8DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ Commandos 2 - HD Remaster (2020) [Ru/Multi] (1.13.010) License GOG
 ```bash
 magnet:?xt=urn:btih:DF02CE0A4641F91C16DD48176FB25DC0C15707F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ They Are Billions (2019) [Ru/Multi] (1.1.4.10) License GOG
 magnet:?xt=urn:btih:4A0FD2AA6CBD3901864B29930FA9C19EED8EFB12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ Adeptus Titanicus: Dominus — адаптация трехмерной поша�
 ```bash
 magnet:?xt=urn:btih:2C4096D8572A0CBAC6EA951AEE6A5CC49C756D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ Empires in Ruins / На развалинах империй (2021) [Ru/Multi] (1
 magnet:?xt=urn:btih:EEEA0BA70197CEAD2581256333432CE6649F4E66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ Star Renegades – это межпространственная стратег�
 ```bash
 magnet:?xt=urn:btih:DD7C03F99C2C51485E57B3AAF7A4E3C4127D07F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ Stronghold: Warlords - первая игра, воссоздающая хозя�
 magnet:?xt=urn:btih:94203F1CA95BA6D3B02F5B2B7368938067D2C80D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ Iron Harvest — это стратегия в реальном времени (R
 ```bash
 magnet:?xt=urn:btih:5DD6635198D192A3A6E98F134F8CE8D9CC58CAD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ Stronghold: Warlords (2020) [Ru/En] (1.0.19135) Repack West4it
 magnet:?xt=urn:btih:09FC8715729FC31CAB0329745991B99FB8C9B7F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (45340/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:E89CFE6C6DB8F8D4B72CEA06FC15C5FCE7C6D149
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ Warhammer 40,000: Mechanicus (2018) [Ru/Multi] (1.4.10.0/dlc) License GOG [Omnis
 magnet:?xt=urn:btih:FADFDB92BA92EF207BD3868AC909FDABDFC3C388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ Age of Empires II: Definitive Edition (2019) [Ru/Multi] (Build 44725) License CO
 ```bash
 magnet:?xt=urn:btih:A4A7494DD62B8799F830D0C50FCFD45CCD0C5A1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ Iron Harvest (2020) [Ru/Multi] (1.1.2.2001/dlc) Repack xatab [Deluxe Edition]
 magnet:?xt=urn:btih:89EEAE054752B5CE8E93C4E02EFE217C7BFB3989
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ Wasteland 3 — это продолжение серии ролевых игр, 
 magnet:?xt=urn:btih:C20E2628696D9D336369F13B4C5CC73AA4FE41DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Punk Wars (2021) [Ru/Multi] (1.2.11/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:0D8A430E89B2BEF1008CE4FE0AAEE5CF9EFA5730
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

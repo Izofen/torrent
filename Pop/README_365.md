@@ -1,3 +1,148 @@
+###  Публикация: 1607546   (1043952) от 27.01.2023
+
+Mylene Farmer - L'Autre... (1991) [OGG Vorbis|480 Kbps] <Electronic, Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1043952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agnus Dei
+02. Desenchantee
+03. L'autre
+04. Je t'aime melancolie(   Читать дальше...   )Жанр: Electronic, Pop, ChansonПродолжительность: 00:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1546CF45AAD106B6EAE7A755032BFDCE6A085704
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607465   (1044005) от 26.01.2023
+
+VA - GANGSTER MUSIC, Vol. 7 (2023) [MP3|320 Kbps] <Eurodance, Technopop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044005.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Slider & Magnit - Stacked
+2. TRITICUM - Petrunko 2.0
+3. NVTION PVNIC/KDDK - Hypnotizes
+4. VUDOO/Kolya Funk - Kruzak (Kolya Funk Remix)(   Читать дальше...   )Жанр: Eurodance, TechnopopПродолжительность: 01:19:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70B4E7B8EC45290AB32D245096DFA0B70754761C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607058   (1044051) от 26.01.2023
+
+VA - Megahits 2023-die Erste [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044051.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Ed Sheeran - Celestial (3:29)
+02. Sam Smith - Unholy (2:36)
+03. Tiesto - 10 35 (2:52)(   Читать дальше...   )Жанр: PopПродолжительность: 02:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B67326D2044DE0C5E079DEB54759BD4E6D5FC16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607274   (1044055) от 26.01.2023
+
+Sting - Sacred Love (2003) [OGG Vorbis|450 Kbps] <Rock, Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inside
+02. Send Your Love
+03. Whenever I Say Your Name
+04. Dead Man's Rope(   Читать дальше...   )Жанр: Rock, Pop, Pop RockПродолжительность: 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B421B8124FF44FB62218E93C1A966E82C21354F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607029   (1044056) от 26.01.2023
+
+Adriano Celentano - Le Volte Che Celentano E'Stato 1 (2003) [OGG Vorbis|450 Kbps] <Rock, Pop, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1044056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 24.000 baci
+02. Nata per me
+03. Si e'spento il sole
+04. Ciao ragazzi(   Читать дальше...   )Жанр: Rock, Pop, ChansonПродолжительность: 01:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B24FC88EEE19A8DFC1A3C3F9B9E93032C34F1BAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607205   (1044062) от 26.01.2023
 
 Sting - Brand New Day (1999) [OGG Vorbis|450 Kbps] <Rock, Pop, Pop Rock>
@@ -21,6 +166,8 @@ Sting - Brand New Day (1999) [OGG Vorbis|450 Kbps] <Rock, Pop, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:3082EB96DAF6C863FC9F84CD55567D459C645DFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ Seal - Seal (1991) 4CD, Deluxe Edition, Remastered, 2022, Rhino - Warner Records
 magnet:?xt=urn:btih:8BB0BA4FC5F9A68490C7A0F53FA3162A2CB87374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ Shania Twain - Up! (2002) [OGG Vorbis|480 Kbps] <Rock, Country Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:157D5B4056AEA9653F64E086865F7F510107F5D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ VA - Disco Nights (The Collection) (2009) [FLAC|Lossless|WEB-DL|tracks] <Disco, 
 magnet:?xt=urn:btih:C36F570793C961B4A363FEB08A8D85DE31CB0159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +282,8 @@ VA — Танцуют все! / Оригинальные записи 1962-1988 
 ```bash
 magnet:?xt=urn:btih:0C1734272C6D9464397D1B007F476C60C3F65222
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +312,8 @@ RSF - Metropol Nights (2022) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Italoda
 magnet:?xt=urn:btih:9E7DB99D6F6BC5339C05C32FC0BDE61A30B5539C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +340,8 @@ Re-Tide - Adventures With The Right Groove (2023) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:32BB43F82D5C238468BA9E247A0D671E82F86CDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +370,8 @@ Mylene Farmer - En Concert (1989) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, C
 magnet:?xt=urn:btih:395BFDF2205648BE8B744579491371E32B1901EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +398,8 @@ Celine Dion - Ultimate Box (2008) 2 CD [OGG Vorbis|480 Kbps] <Rock, Blues, Pop>
 ```bash
 magnet:?xt=urn:btih:EF0770974F8A346671A2C105E329191E39FBCB5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +428,8 @@ CC Catch - Best Of (1998) [OGG Vorbis|480 Kbps] <Electronic, Synth-pop, Euro Hou
 magnet:?xt=urn:btih:C2DFA8A5E5577A789705189385E5CB7CCD552589
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +456,8 @@ Londonbeat - Legends (2004) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Pop, Europop
 ```bash
 magnet:?xt=urn:btih:8423DABD62C70808AC7166CB0D53F581F2289BB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +486,8 @@ Kovacs - Child Of Sin (2023) [FLAC|Lossless|tracks] <Pop, Vocal Jazz, Soul>
 magnet:?xt=urn:btih:B23394ADB2839F9C9507B907A662C8E6037F2EA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +514,8 @@ Bad Boys Blue - House Of Silence (1991) [OGG Vorbis|900 Kbps] <Electronic, Disco
 ```bash
 magnet:?xt=urn:btih:91023FEAE3F90404828DF0D5D5073B00BA6E4E38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +544,8 @@ VA - 70s Forever (2019) 3 CD [OGG Vorbis|450 Kbps] <Rock, Soft Rock, Pop>
 magnet:?xt=urn:btih:00A42164FD9E1CFCED5E9325351116D18794D8EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +572,8 @@ CD - 1 - Get Down:
 ```bash
 magnet:?xt=urn:btih:72690CB817AD2E76521C69E752B1015A3D4DFA46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +602,8 @@ Rüdiger Meng (Roger Meno) - Disco Groovin' (1988) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:D6716BBA7A86A9B79DD5C78CEC28789D87AE0470
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +630,8 @@ Rüdiger Meng (Roger Meno) - Rhythm And Energy (1991) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:8B654D47A2EAE7BFB3A79F71F2DF7640F8B5CC9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +660,8 @@ Elton John - Elton John (1970) Reissue, 2011, Mercury [OGG Vorbis|430 Kbps] <Roc
 magnet:?xt=urn:btih:1954BF87A8E320649DFD242C31F4EDA402C90CC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +685,8 @@ magnet:?xt=urn:btih:1954BF87A8E320649DFD242C31F4EDA402C90CC0
 ```bash
 magnet:?xt=urn:btih:6FE26CFE4DA4A168563E71AE8D424DA29EDF58C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +715,8 @@ VA - Hits Nu Disco Views 002 (2023) [MP3|320 Kbps] <Indie Dance, Nu Disco, Deep 
 magnet:?xt=urn:btih:83F45F44711E3F2F6F13345B5DCC7574BDE89056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,140 +744,7 @@ VA - Best Of Nu Monkey Records 2022 Part 1 (2022) CD, Compilation [MP3|320 Kbps]
 magnet:?xt=urn:btih:17260D42B21B56BAB9D90DBED5C1AC1F64895957
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604611   (1045275) от 14.01.2023
-
-Gilla - 5 Albums (1975 - 2000) [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tu Es ( Remix 2000 ) 3:44
-02. Tu Es  3:36
-03. Willst Du Mit Mir Schlafen Gehen? 3:38
-04. Mir Ist Kein Weg Zu Weit 3:46(   Читать дальше...   )Жанр: DiscoПродолжительность: 03:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B79A6A7B2F7F48B24AA5857FF9A55CD8F14B08BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604592   (1045313) от 14.01.2023
-
-VA - Best Of Nu Monkey Records 2022 Part 2 (2023) CD, Compilation [MP3|320 Kbps] < Nu-Disco & Jackin, Soulful, Funky, Indie Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JMMSTR - Miracles
-02. Souxsoul, Sibylle - Specialize In Love (DLD Touch Remix)
-03. Jerem A - You've Got Me Burnin' Up (Nu Disco Mix)
-04. DJManuel, Jakilin Tunes - Opps(   Читать дальше...   )Жанр: Nu-Disco & Jackin, Soulful, Funky, Indie DanceПродолжительность: 01:28:38 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD1E67159AD496DD44EF6B04091062809F381B5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604595   (1045314) от 14.01.2023
-
-The Magic Disco Machine - 2 Albums (1975, 1976) LP [MP3|320 Kbps] <Funk, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045314.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студийный симфонический диско-фанк проект. Свободный коллектив продюсеров и артистов из собственного списка Motown, таких как Фрэнк Уилсон, Мел Ларсон, Джерри Марчеллино, Хэл Дэвис, Глория Джонс, Bottom & Co., Sisters Love, Клейтон Айви и др.01. Control Tower (4:14)
-02. Window Shopping (2:50)
-03. Jumbo Sam (2:25)
-04. Let's Go Back To Day One (2:49)(   Читать дальше...   )Жанр: Funk, DiscoПродолжительность: 01:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20A8E1143F71A53724607CFE8542AAA6545284D1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604635   (1045325) от 14.01.2023
-
-VA - Discofox Vol. 4 - Die ultimative Schlagernacht (2023) [MP3|320 Kbps] <German Pop, Dance, Schlager, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silvia Confido - Da ist mehr als du denkst
-02. Maria Levin - Endlich richtig sein (DJ Mix)
-03. Celina Mars - Jetzt und hier
-04. Natalie Lament - Komm mit mir an die Cote d'Azur (Radio Version)(   Читать дальше...   )Жанр: German Pop, Dance, Schlager, DiscoПродолжительность: 02:02:44 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6385880915703669FCCB35FFB38F0697ADA02AF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604247   (1045417) от 13.01.2023
-
-Peter Gabriel - Up (2002) [OGG Vorbis|430 Kbps] <Electronic, Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045417.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Darkness
-2. Growing Up
-3. Sky Blue
-4. No Way Out(   Читать дальше...   )Жанр: Electronic, Rock, Pop RockПродолжительность: 01:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A12075B34EF536FD4869E514CB71B8112035BFAF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

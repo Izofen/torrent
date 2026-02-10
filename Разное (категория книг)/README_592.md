@@ -1,3 +1,29 @@
+###  Публикация: 645850   (864045) от 19.04.2013
+
+Н.Л.Вадченко | Сад без забот. Современный календарь садовода [2013] [PDF]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Садоводство — хобби миллионов, увлекательное и доходное занятие. Каждый стремится выбрать лучшие сорта, обеспечить хороший уход за растениями, ежегодно собирать богатый урожай. В этом ему помогут рекомендации опытных садоводов.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4639F8D44C5952FCAEA85F691C1C2701B14955B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 646021   (864053) от 19.04.2013
 
 Л. Кратенко | Праздничные салаты [2012] [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:C1E1686AA47237294A8B640AF394D4B925BA5B55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:C1E1686AA47237294A8B640AF394D4B925BA5B55
 magnet:?xt=urn:btih:6D071A8C1995C76F4380942C537DCA956265CF0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:6D071A8C1995C76F4380942C537DCA956265CF0E
 ```bash
 magnet:?xt=urn:btih:302E165E57B19D40486AB979C401CF47F2071A72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:302E165E57B19D40486AB979C401CF47F2071A72
 magnet:?xt=urn:btih:EA47DEE7EE7463253EA3363D0FB461DEE679CE12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:EA47DEE7EE7463253EA3363D0FB461DEE679CE12
 ```bash
 magnet:?xt=urn:btih:98BC7EEEC202F4975F442B236FA2071A5DA11EC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:98BC7EEEC202F4975F442B236FA2071A5DA11EC0
 magnet:?xt=urn:btih:FB0552331F490DBD8578057824374EC33A534A62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:FB0552331F490DBD8578057824374EC33A534A62
 magnet:?xt=urn:btih:6C7C659E61F72FCD04928AB7152D5D3F120136F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:6C7C659E61F72FCD04928AB7152D5D3F120136F3
 ```bash
 magnet:?xt=urn:btih:2FD27B4EF75C48008EB6A218F6942710CD83C442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:2FD27B4EF75C48008EB6A218F6942710CD83C442
 magnet:?xt=urn:btih:E0A7328EFD4D0661730999E83583AA1015D3F2DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:E0A7328EFD4D0661730999E83583AA1015D3F2DB
 magnet:?xt=urn:btih:B6CC204C9C9FB5B28F18CD53B63C56C47A9B0F1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +315,8 @@ magnet:?xt=urn:btih:B6CC204C9C9FB5B28F18CD53B63C56C47A9B0F1D
 magnet:?xt=urn:btih:C6F5349827477EEF76E02E3B92CA327A98260BC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:C6F5349827477EEF76E02E3B92CA327A98260BC7
 magnet:?xt=urn:btih:C9A734B2EFFD19C078B38FBD43B99EEE01AB7F6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:C9A734B2EFFD19C078B38FBD43B99EEE01AB7F6F
 ```bash
 magnet:?xt=urn:btih:EAC8AF49AF9A48E789DF3EDEC46A5894FED29D69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:EAC8AF49AF9A48E789DF3EDEC46A5894FED29D69
 magnet:?xt=urn:btih:CFEDE27E66A58F2ED34211A89452894434424269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:CFEDE27E66A58F2ED34211A89452894434424269
 ```bash
 magnet:?xt=urn:btih:A5E161420B0FC34CCE0CB25A22E4B65012D27E92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:A5E161420B0FC34CCE0CB25A22E4B65012D27E92
 magnet:?xt=urn:btih:2F09D617F6560CF89D0225AD355661F0D46E51ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:2F09D617F6560CF89D0225AD355661F0D46E51ED
 ```bash
 magnet:?xt=urn:btih:0A905589E0F8DA809378362529F5147A6C1D9137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:0A905589E0F8DA809378362529F5147A6C1D9137
 magnet:?xt=urn:btih:C72F10E20202DC6049A2A921398F2B2F0D1EADCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:C72F10E20202DC6049A2A921398F2B2F0D1EADCF
 magnet:?xt=urn:btih:63F726F67A55D7BCF8BC4477803C452B98600E6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:63F726F67A55D7BCF8BC4477803C452B98600E6F
 ```bash
 magnet:?xt=urn:btih:FA9E1D474E90FAFE93D44D111FD67A93174A8DF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:FA9E1D474E90FAFE93D44D111FD67A93174A8DF1
 magnet:?xt=urn:btih:684FACB33A76CF4288F89336C09AA20A9A521747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +607,8 @@ magnet:?xt=urn:btih:684FACB33A76CF4288F89336C09AA20A9A521747
 magnet:?xt=urn:btih:D894E7206905A1EF5C3D31FE585B1807FBC415EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:D894E7206905A1EF5C3D31FE585B1807FBC415EA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +659,8 @@ magnet:?xt=urn:btih:D894E7206905A1EF5C3D31FE585B1807FBC415EA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,29 +685,7 @@ magnet:?xt=urn:btih:D894E7206905A1EF5C3D31FE585B1807FBC415EA
 magnet:?xt=urn:btih:97A448501CD9EEB51D11E0E8B0F0B564F9D6B1F2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108307   (864739) от 24.02.2017
-
-Габриэль Кампо Вильегас cmf | Умирая, они пели (2000) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864739.jpg" />
-</div>
-
-
-###  Подробнее
-
-20 июля 1936 г. во время кровавого религиозного преследования в Испании группа революционеров напала на общину Миссионеров Кларетинов в городе Барбастро (провинция Уэска), состоявшую из 9 священников, 12 братьев и 39 семинаристов, и арестовала всех ее членов. Миссионеры, в большинстве своем молодёжь, приготовились к мученичеству в атмосфере молитвы и радостного принятия (   Читать дальше...   )Жанр: ЖитиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B14E051BDC914332132CC0D88D229E5D6C9D7EA5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

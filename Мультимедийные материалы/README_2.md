@@ -19,6 +19,8 @@ CHIP | CHIP - DVD приложение к журналу CHIP №1 (январь
 magnet:?xt=urn:btih:35046F12D64B6B301F0B072A1D75C9FA610871EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Chip (Чип) — первый компьютерный журнал в Евро
 ```bash
 magnet:?xt=urn:btih:BBEF88EE8DD2441394ADE19A71D56E58ACAD8F75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ HTML Academy | Дизайн для фронтендеров (2022) [unpacked]
 magnet:?xt=urn:btih:3BA907B0DA6101C4C8A94D2FE62A057024C03490
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ CSS-in-JS — это современный подход к стилизации
 ```bash
 magnet:?xt=urn:btih:FEFE38FFB87D27CF8BFE2B8D78821D2101ECEE9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:FEFE38FFB87D27CF8BFE2B8D78821D2101ECEE9C
 magnet:?xt=urn:btih:556DF9D32E3552BAA0F837D9DD6FBC155C1CF4D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Chip (Чип) — первый компьютерный журнал в Евро
 ```bash
 magnet:?xt=urn:btih:DC6C6D51523DB3633A08BEA25949CB5389F863A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ American English Pronunciation Chart - средство, позволяющее 
 magnet:?xt=urn:btih:3BC1BC139B69A70C86F86F1021B57C8D7AC5E31C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ HTML Academy | Основы наставничества (2022) [unpacked]
 ```bash
 magnet:?xt=urn:btih:E30279C5192A4FDE6673D9410AD20884C9ED6E43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ HTML Academy | Git и GitHub (2022) [unpacked]
 magnet:?xt=urn:btih:D68ACD8872C8E1054743C5F754674C858247315A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ HTML Academy | Проект на JavaScript «Сайт объявлений»  (
 ```bash
 magnet:?xt=urn:btih:8D78183D12AF51332602BEFD04D86D5F7B0331EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ WebforMyself, Андрей Кудлай | Создание интернет-ма
 magnet:?xt=urn:btih:721AD56F23333F112E545171586539BD9590670F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ HTML Academy | Онлайн-курс «Вёрстка email-рассылок» (
 magnet:?xt=urn:btih:C6BAA895A79EC19935DC9457F9C7179D813AE690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:C6BAA895A79EC19935DC9457F9C7179D813AE690
 ```bash
 magnet:?xt=urn:btih:F1AAF693765170CE402A4E660B95D3488DA5A136
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:F1AAF693765170CE402A4E660B95D3488DA5A136
 magnet:?xt=urn:btih:59528EA9629AD9766BC25D799160CBED387136D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:59528EA9629AD9766BC25D799160CBED387136D3
 ```bash
 magnet:?xt=urn:btih:91F76B9FCC70CEEE5A0938FE77A1FAB27EF11A1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ Stepik | WEB Парсинг на Python (2022) [unpacked]
 magnet:?xt=urn:btih:76FA3FCAF5BD4E5D3F4EEDB965165336676B46C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ Stepik | Делаем бота с Aiogram, SQLAlchemy(PostgreSQL) и Docker (202
 magnet:?xt=urn:btih:55E5E6A2D9E4FF689324AFC97A93CDB9E7737E35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ Stepik, Sergey Romanenko | JavaScript Базовый уровень (2023) [unpa
 ```bash
 magnet:?xt=urn:btih:03F2ABD45619F5A9619C817887C21D2E2DB16C1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:03F2ABD45619F5A9619C817887C21D2E2DB16C1F
 magnet:?xt=urn:btih:48D70F427B0B2300228BE32217480B05BCD30BE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ HTML Academy | Анимация для фронтендеров (2020) [unpacked
 ```bash
 magnet:?xt=urn:btih:C809B583EA4D67865E9AA4095A27A9C588F25047
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ Devman, Игорь Перепилицын | Чат-боты на Python (2020) [
 magnet:?xt=urn:btih:5D7C2EEC372C00D4FB6612C6C3C3CDAB7AAC942C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:5D7C2EEC372C00D4FB6612C6C3C3CDAB7AAC942C
 ```bash
 magnet:?xt=urn:btih:C511EBE7C48F1F9D43B041B0AD609B46EA3FEA19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:C511EBE7C48F1F9D43B041B0AD609B46EA3FEA19
 magnet:?xt=urn:btih:C665BACF41521ADD811F992010E05DBC1C6C6015
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:C665BACF41521ADD811F992010E05DBC1C6C6015
 ```bash
 magnet:?xt=urn:btih:F75329E9BF85871801895CA683D39D6BC8D1A24E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:F75329E9BF85871801895CA683D39D6BC8D1A24E
 magnet:?xt=urn:btih:BB4ECA1A1B8C0B2EF7BC0F339AE29683CD96A06F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ Stepik, Павел Хошев | Асинхронный Python (2023) [unpacked]
 ```bash
 magnet:?xt=urn:btih:DEAA3068DEF45600867A73D3CC59E0885CD22243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

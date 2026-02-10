@@ -21,6 +21,8 @@ Kubuntu — производный от Ubuntu дистрибутив Linux. Kub
 magnet:?xt=urn:btih:DEC9C4A940947889F8FB0DEE42998B55882C8E97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Sabayon 16.06 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE и server) [amd64] 7xDV
 magnet:?xt=urn:btih:226BD167DD49BE2957EFEA2A0F02BECFCCAA1A7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ ROSA Desktop Fresh R9 KDE 4 [i586, x86_64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:C03365DC4F9A2CFE1744DA3BDDFA2728751C058D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ GeckoLinux — дистрибутив Linux на базе openSUSE. Дистри
 magnet:?xt=urn:btih:2475E25A974EB15AA7CA1ECC4C58265A217BA6DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Lubuntu — это свободная операционная система н
 ```bash
 magnet:?xt=urn:btih:C9197F381B261A3DFD771DE02DD4C9FC0110D656
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Edubuntu — дистрибутив операционной системы Linu
 magnet:?xt=urn:btih:E92AD7322E6CC5550ADBEBFD8BFE49008EFC41E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Kali Linux 2021.4a (ex. BackTrack) [amd64, i386, arm] 6xDVD, 3xCD Аудит б�
 ```bash
 magnet:?xt=urn:btih:16D23A0E1B9E417DD8A3DB2EFA7FAB185537E72A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Sabayon 14.05 [amd64] 4xDVD, 1xCD
 magnet:?xt=urn:btih:D14EAAC39F74D8247B36C0C22ED882FA90B9C3EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Sabayon 14.05 [x86] 4xDVD, 1xCD
 magnet:?xt=urn:btih:DAFE3840B823CF13B0AF3451E0F6301F07BEA64B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ OSGeo-Live 10.5 (Дистрибутив для географов, картог�
 ```bash
 magnet:?xt=urn:btih:4FD2BEAD6998C6DA7C28821692B036F8907BD1ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ ArchBang Linux 2015.03.28 (Легкий дистрибутив) [i686, x86-64] 2
 magnet:?xt=urn:btih:718F423454E925595A6CA14F1F2199AC2E354927
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ BlackArch Live поставляется в виде (   Читать дальш
 ```bash
 magnet:?xt=urn:btih:4E049C7C5636911AB7DAA8C6DDC6596C74B83A7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ Calculate Linux 14.16 [x86-64] 2xCD, 4xDVD
 magnet:?xt=urn:btih:62661A5979EA73704A7E7C1FEE01F9BE93CCE4B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ Calculate Linux 14.16 [i686] 2xCD, 4xDVD
 ```bash
 magnet:?xt=urn:btih:931FEBB825F4BC7C6B43283D4619CEFB3BFD91DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ Debian GNU/Linux 8.0 Jessie RC3 (Testing, 20.04.2015) [i386] 3xDVD
 magnet:?xt=urn:btih:58E43D2CCBDF804A3579123E99FB3CAAD7D63483
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Debian GNU/Linux 8.0 Jessie RC3 (Testing, 20.04.2015) [amd64] 3xDVD
 magnet:?xt=urn:btih:F5610742D6B82B6F16BD0AC77129634D8C07318A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:8B44B2D84C5EC1DE43951DEF6E5C0B5A42FF567F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ BackBox - дистрибутив Linux для пентеста, основанн
 magnet:?xt=urn:btih:BA17656ABCC7F4B0C1C4C5F71C91F1397D31C472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ Q4OS - дистрибутив операционной системы Linux, с�
 magnet:?xt=urn:btih:BE5D9C1273A392742F71A699A691531DE62F5296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ OSGeo-Live 9.5 (Дистрибутив для географов, картогр
 magnet:?xt=urn:btih:D4E4DBACC89EC17DAE517E2740C81AE90C840E98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ SnowLinux Frosty 4 базируется на Ubuntu 13.04 и используе�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ Manjaro Linux 0.8.6 (Arch + XFCE, openbox, net) [i686, x86-64] (4xCD, 2xDVD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ ZevenOS 3.1 Neptune [x64] (1xDVD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ Phoenix OS - проект по портированию ОС Android на пер
 ```bash
 magnet:?xt=urn:btih:CC63E0E0EEFA2B46869E9D104C562ABF4E90C012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ Chakra (Arch + KDE) 2013.05 Benz [x86-64] (1xDVD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ Scientific Linux 7.1 (w. LiveDVD) [x86-64] 3xDVD, 1xDL DVD, 2xCD
 ```bash
 magnet:?xt=urn:btih:AF04870AE19C64257A57760E31E05CEA411A5E38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Nat King Cole - 1944 - 1945 (1996) Classics [FLAC|Lossless|tracks + .cue] <Vocal
 magnet:?xt=urn:btih:AF379CA40D8FC6B68F824BE89B8156290E9DD8BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VK X 6.6.2_pub [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5CA91D3A70BDB98D396E14A2925849871FCAAD49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Wolfsbane - Massive Noise Injection (1993) Japanese Edition [FLAC|Lossless|image
 magnet:?xt=urn:btih:F3C8B04D3A02FC687BB99DB90C0516C58D09D2D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:F3C8B04D3A02FC687BB99DB90C0516C58D09D2D3
 ```bash
 magnet:?xt=urn:btih:A5A65C2E5205420640F1711D72F1C0B2F0355EC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ FastFlix - это простой и дружественный графичес�
 magnet:?xt=urn:btih:CD9AE682533AF70CB1808CB1D9256AA222A77D08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:CD9AE682533AF70CB1808CB1D9256AA222A77D08
 ```bash
 magnet:?xt=urn:btih:F4A4F36C9B4F6E0A513F786D886B607C03BD042C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Naglfar - Cerecloth (2020) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
 magnet:?xt=urn:btih:C42CF8266A94FBB4C33C1512CF82BB5189F49DA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ CD-1
 magnet:?xt=urn:btih:0A63579A7DB7B58E85D099C042B21FCD64B0B8DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:0A63579A7DB7B58E85D099C042B21FCD64B0B8DC
 ```bash
 magnet:?xt=urn:btih:824EC19D9A96B28DE73DE0B6F596DDA071A6C3C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:824EC19D9A96B28DE73DE0B6F596DDA071A6C3C9
 magnet:?xt=urn:btih:C4237E8F58186AEFEB010E3EA670E941D2F852A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Aiseesoft Audio Converter for Mac Конвертер аудио файлов, п
 ```bash
 magnet:?xt=urn:btih:1432279EEE85A90BE7013960317EF6D4715C0ABD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ Bob Brookmeyer - Holiday: Bob Brookmeyer Plays Piano (2001) Challenge Records [F
 magnet:?xt=urn:btih:989CE35308CD2A4F2B7BDC93D9478E471B4596E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ Tipard Mac Video Converter Ultimate for Mac 10.2.22 [Multi]
 ```bash
 magnet:?xt=urn:btih:DAC08D056E52A0952BD47A096963F0105AA950FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Flip Phillips - Swinging With Flip (1952) 2007, Membran Music [FLAC|Lossless|tra
 magnet:?xt=urn:btih:BDAF674CCB7BCFE71CE320D91E8796358FA78FC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ Default Folder X - Расширяет функциональные возмож�
 ```bash
 magnet:?xt=urn:btih:7019EB37D3E1E91AF8985183D7A4D7836885FF3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ Adastra - Death Or Domination (2008) [APE|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:9C67C4A8D6F64A772098802AD76DAF8F7B9872DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ magnet:?xt=urn:btih:9C67C4A8D6F64A772098802AD76DAF8F7B9872DD
 magnet:?xt=urn:btih:00F815F38CEA0C2A5DAA5797DE3CBBF55A402961
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ Aiseesoft AnyCoord for Mac 1.0.16 [Multi]
 ```bash
 magnet:?xt=urn:btih:3A6FEE3E2EF22EF64FAA098CF3AD2303F5640A2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ Apeaksoft iOS Unlocker 1.0.50 [Multi]
 magnet:?xt=urn:btih:0AD8A9E6C80887253C61958825F5CEF1ED16EB28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ GraphicConverter 11 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:46DFB1A5BC932B8CDFA36A3D719356DAFA65A0F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ PDF Reader Pro - это приложение для редактирования
 magnet:?xt=urn:btih:7640CAB96A14A6A37A81EAD8BA40EF099CE39AE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:B09D93D0F30B1E39F16110ABCD02210B4769DA9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ Aiseesoft Mac (   Читать дальше...   )Тип издания: macOS 
 magnet:?xt=urn:btih:67E57C746A2943CDF87106B0ECA89B432007FD70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ AlDente Pro fo Mac 1.23 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C98B289B1808BECA05B74DD5C4D07A1EFF4F99B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ War Curse - Confession (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Heav
 magnet:?xt=urn:btih:28FCAA72587065BDADE01C8FF84B559B7C2C53B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ MediaHuman YouTube Downloader 3.9.9.87 (0811) RePack (& Portable) by TryRooM [Mu
 ```bash
 magnet:?xt=urn:btih:5D5F584EEFC580631895B152CA727F5FAB800AF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

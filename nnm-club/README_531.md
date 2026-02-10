@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5C6496D3F337571BA1FD4236DDA8A71FCD791B1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Lil School, Lil School | Сборник видео из платных курс�
 ```bash
 magnet:?xt=urn:btih:69957851B6E3752B22975EA61EBAC35821D6ABC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:69957851B6E3752B22975EA61EBAC35821D6ABC0
 magnet:?xt=urn:btih:AEC5DCF80B5A07E2555340A74BD1645EB241FF0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Chill Town (2024) [Ru/Multi] (1.0.0 Build 63) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0DC4B6AAE8317E47D06299D80077555481061487
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ VA - Musical kaleidoscope part 43 Assorted (2025) [MP3|320 Kbps] <Electronic, In
 magnet:?xt=urn:btih:ABD31FC6D174C0311439B9DF3BDEEC3347E7FEF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:ABD31FC6D174C0311439B9DF3BDEEC3347E7FEF5
 ```bash
 magnet:?xt=urn:btih:D4E149BDCB13A92DD05C66D8C45C4EC869F1B152
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:D4E149BDCB13A92DD05C66D8C45C4EC869F1B152
 magnet:?xt=urn:btih:BCAB97228F74DF0F8D26AC9F4C9200A621B9D02A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:BCAB97228F74DF0F8D26AC9F4C9200A621B9D02A
 ```bash
 magnet:?xt=urn:btih:722BE657AD068E0C525541527B663AC812611CFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:722BE657AD068E0C525541527B663AC812611CFE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:722BE657AD068E0C525541527B663AC812611CFE
 ```bash
 magnet:?xt=urn:btih:BA466606605ECD26C0671904C744272CFD9BD5D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:BA466606605ECD26C0671904C744272CFD9BD5D1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ At Dead Of Night (2020) [Ru/Multi] (Build 14844637) Repack EXROW
 ```bash
 magnet:?xt=urn:btih:C5507E60C851DDE6417A960BA6346034387AB974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 magnet:?xt=urn:btih:412BAA2859477F5CF29173EE0FBA09F4AA5252FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Kanpeki Sugite Kawaige ga Nai to Konyaku Hakisareta Seijo wa Ringoku ni Urareru 
 magnet:?xt=urn:btih:BD20D584CFB0E01D16F850D40D5E5407879D7130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:BD20D584CFB0E01D16F850D40D5E5407879D7130
 ```bash
 magnet:?xt=urn:btih:1A7E3BF1244687D76E6B3F77F105206B6351026E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Wind Breaker Season 2 | Ветролом 2 [2025, TV, 12 эп.] WEBRip 720 raw
 magnet:?xt=urn:btih:410295744FFA9A3435DBB0C605B9BE8307FE59AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:410295744FFA9A3435DBB0C605B9BE8307FE59AA
 ```bash
 magnet:?xt=urn:btih:462142A0563877DA12A71E21EE3F0B021A09FEF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:462142A0563877DA12A71E21EE3F0B021A09FEF4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Cortical Labs запустила CL1 — первую коммерческую �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Cortical Labs запустила CL1 — первую коммерческую �
 magnet:?xt=urn:btih:478F71C6896B332B8F3D38510107AB4C71135B17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ After Effects — это ведущая в отрасли программа д�
 ```bash
 magnet:?xt=urn:btih:E364C5E56A7F4E5EC748C60DD271504BE1132ECA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:E364C5E56A7F4E5EC748C60DD271504BE1132ECA
 magnet:?xt=urn:btih:A20DEDCA139C9ED304E53AF05DB5D777A889C147
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Minecraft в кино / A Minecraft Movie (2025) BDRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:1861B18747E9BCC059D419C210DD41DE65864850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 magnet:?xt=urn:btih:6109DECC9077706EC9DCD109A190B4846AC023BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:6109DECC9077706EC9DCD109A190B4846AC023BB
 magnet:?xt=urn:btih:944B16139762249431E92F7D04CE70CF4F2768E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Broken Arrow (2025) [Ru/Multi] (1.0.6.p/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:772CDA137FE1225B4DAF5FE048568F5324065DEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

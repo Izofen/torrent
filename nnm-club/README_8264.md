@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8BBF34212D8FB0C8DABA5813A8F2CFBE46EE424A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:8BBF34212D8FB0C8DABA5813A8F2CFBE46EE424A
 ```bash
 magnet:?xt=urn:btih:6AA386E29C74B1CF99742F041BFE64FB0D9373D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:6AA386E29C74B1CF99742F041BFE64FB0D9373D0
 magnet:?xt=urn:btih:527CC6FFDD1CC23A1C19A79C01C7F75A23D23AE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:527CC6FFDD1CC23A1C19A79C01C7F75A23D23AE0
 magnet:?xt=urn:btih:41A58B4BA35B66FEC1FAB36A4E3F8048FEB56237
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Crime Detective Red Flags - игра, вдохновлённая реально�
 ```bash
 magnet:?xt=urn:btih:D1450F4C7C395672FB880C8627B0DC7C5F21E9D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:D1450F4C7C395672FB880C8627B0DC7C5F21E9D2
 magnet:?xt=urn:btih:5AFA6DF46A9AB644512343F0D3B7119FDBA181AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:DDE7FB91B21446D43895FD872721CA719E2B287B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:DDE7FB91B21446D43895FD872721CA719E2B287B
 magnet:?xt=urn:btih:E9A6B404276620D25CBD3D05FAAF23C2EF4B295B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.1.0/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:CE1A7C820C7D7A98E5196BE7049CCCAC94061A49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ SpongeBob SquarePants: The Cosmic Shake (2023) [Ru/Multi] (1.4b/dlc) License GOG
 magnet:?xt=urn:btih:FF9B1A16F6A1AF8A7B3A255355486C889508524F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:68A7D53E456C4844C73D7EB002EB8617BC58BC30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:68A7D53E456C4844C73D7EB002EB8617BC58BC30
 magnet:?xt=urn:btih:ECFF1FB3903F657D062F1DE29C77FC50EA49086C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 ```bash
 magnet:?xt=urn:btih:0EFDF6BEECF259EAE83CC9085ECFD1624441D1C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Colorize it v2.1.1 [Multi]
 magnet:?xt=urn:btih:5CEB3DBCCA9E6D8CFA9CB213F183B71FDBE7104C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:5CEB3DBCCA9E6D8CFA9CB213F183B71FDBE7104C
 magnet:?xt=urn:btih:99D1A3AF42E84C9198E8C8B36E566FBDC79494A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.2.0/dlc) Repack seleZen [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:A3376C3D2A41108C52072C7E0AEA53F9C2F257B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ NG: Запреты / Табу / Taboo (2002-2012) HDTVRip [H.264/720p-LQ] (се�
 magnet:?xt=urn:btih:A1AB63CE2B1EEA590329B7ECE9CFCEED6E0A48F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:A1AB63CE2B1EEA590329B7ECE9CFCEED6E0A48F8
 ```bash
 magnet:?xt=urn:btih:C9991C55FAA63F1309ADA67C52D056D4CD920CC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:C9991C55FAA63F1309ADA67C52D056D4CD920CC2
 magnet:?xt=urn:btih:051055BDDBF40E4D4298B7DE621876896DBF89DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ A Light in the Dark – это визуальная новелла с рисов
 ```bash
 magnet:?xt=urn:btih:E07775FDF426A47BBD35D695174F774F0C5DB65E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Carlos Munoz - Августо,(   Читать дальше...   )Перевод
 magnet:?xt=urn:btih:DAF8AD976DC7BBE69E8F3702FC57F2D81B5FC292
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ WhatsApp Desktop - программа предназначена для прям
 ```bash
 magnet:?xt=urn:btih:B7407BADE6EB144A6951C94E234CD502A75EBE6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:B7407BADE6EB144A6951C94E234CD502A75EBE6A
 magnet:?xt=urn:btih:784F488D5D19601F3584E9BB6463735E36A7B7C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:784F488D5D19601F3584E9BB6463735E36A7B7C1
 ```bash
 magnet:?xt=urn:btih:C2B96BF697DFF7C8B839BD8824D57762AF482D3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:C2B96BF697DFF7C8B839BD8824D57762AF482D3F
 magnet:?xt=urn:btih:51166DC927351D45561F1F35FB9ED39685CDF80C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:51166DC927351D45561F1F35FB9ED39685CDF80C
 ```bash
 magnet:?xt=urn:btih:EE968FD9656231990AF0F68476366DA1C3771A0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

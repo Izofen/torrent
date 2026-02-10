@@ -19,6 +19,8 @@ NG: Гибель Вселенной / Death of the Universe (2008) HDTVRip
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG. В погоне за равноденствием / Chasing the Equinox (201
 ```bash
 magnet:?xt=urn:btih:410F4724C847BE023B394EEB9233241F8650693B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:410F4724C847BE023B394EEB9233241F8650693B
 magnet:?xt=urn:btih:FED44CBE38034AFBCD41FDE9BECA394201891C3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NGW. Дикая Африка: династии / Africa's Wild Side. Dynasties (
 ```bash
 magnet:?xt=urn:btih:781F42361158A384DE5EB0336B296BCE5F0C645A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:781F42361158A384DE5EB0336B296BCE5F0C645A
 magnet:?xt=urn:btih:163868AF0B4CDF4F62AD9D63E7291EF05CBBC654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG. Путешествия с Гордоном Рамзи / Gordon Ramsay - Unch
 ```bash
 magnet:?xt=urn:btih:5D429F58B038C24C872E71D6DC31F88BE692624A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NG: Последствия: Преданные Солнцем / Aftermath: Betra
 magnet:?xt=urn:btih:C47BA8AE825302CFFA378D5CF5E498BEC995834D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NG. Путешествия с Гордоном Рамзи / Gordon Ramsay Unchar
 ```bash
 magnet:?xt=urn:btih:E18CAEF021E32ECCDE69955B8F9FF3958B04AA55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ NGW: Поместье луговой собачки / Prairie Dog Manor (2019) H
 magnet:?xt=urn:btih:166E4473161CE3614F20A58C4DF0EC7C2036D5FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ NG: С точки зрения науки. Рукотворные катастр
 ```bash
 magnet:?xt=urn:btih:3A133AA6F29B95A14618836AC7FC120BAE75B275
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:3A133AA6F29B95A14618836AC7FC120BAE75B275
 magnet:?xt=urn:btih:2767A4A5A6FA5E29DD8C68D33C034B9E8CB6FEF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:2767A4A5A6FA5E29DD8C68D33C034B9E8CB6FEF2
 ```bash
 magnet:?xt=urn:btih:31EB7E30A22CEB8B30DB6AEB4D048DE677BC7153
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2023) 
 magnet:?xt=urn:btih:B706798D4F42DBFD9C256761E0C00AAB5617AB3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:B706798D4F42DBFD9C256761E0C00AAB5617AB3C
 ```bash
 magnet:?xt=urn:btih:21BF88037AA635BA93B574A89BBAA00C99AFCA30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:21BF88037AA635BA93B574A89BBAA00C99AFCA30
 magnet:?xt=urn:btih:A04D75740694EDC0DF3237437B5F77FD033DB4F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ NGW: Чудеса океана / Wonders of The Ocean (2019) WEBRip [H.264/1080p
 ```bash
 magnet:?xt=urn:btih:84CB9ADF69CFAC568C4C1BDCCA17F8B50C0043CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ NGW. Путешествие по Атлантике / Facing The Atlantic (2011)
 magnet:?xt=urn:btih:0A7E65D3C45FB85AB46D0256E03109248EC61C08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ NG. Тайны слонов / Secrets of the Elephants (2023) WEB-DL [H.264/1080
 ```bash
 magnet:?xt=urn:btih:4C1C76CE89AB80000E67124AC4205148E3A1CC7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ NG. Львы с Крокодильей реки / Lions of Crocodile River (2007
 magnet:?xt=urn:btih:3612B8D9A7CD8D0D6EA542A40B30444548E8B2C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ NG. Море надежды. Подводные сокровища Америк�
 ```bash
 magnet:?xt=urn:btih:DADB9231AF439D6B9DE54ED99B05C3DB4F5D3EC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ NG. Смертельно опасные монстры Австралии / Aust
 magnet:?xt=urn:btih:9987836F2EE8A7AAEE77A0B516EFA5CF242037A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ NG. Затерянные города с Альбертом Лином / Lost Ci
 ```bash
 magnet:?xt=urn:btih:82A22C56AE41F89AC9BC4838E49FBB1F8BAC033E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ NG: Затерянные сокровища Египта / Lost Treasures of Egy
 magnet:?xt=urn:btih:701DB84D9842B5EFA4FF1ED7485142A0CCFDC390
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ NG: Шершни из ада / NGS: Hornets From Hell (2002) DVDRip
 ```bash
 magnet:?xt=urn:btih:4F3F5C4C6C1069A36A0756B65A759A03FE9CDD66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ NG. Салли / Sally (2025) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
 magnet:?xt=urn:btih:487FB52028F13B0A257E4BA63D5A346E50A3254B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ NG. Салли / Sally (2025) WEB-DL [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:668DFC94405510F1A9689188C93279582A9C03D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

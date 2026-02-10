@@ -1,3 +1,31 @@
+###  Публикация: 1175563   (378324) от 18.10.2017
+
+Руслан Хоменко, Александра Пожарская | Речевая самооборона (2017) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_378324.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конфликты разрушают отношения – как личные, так и деловые. Научиться выходить из сложных ситуаций грамотно, легко и элегантно – сложная, но выполнимая задача.
+Следуя простому алгоритму амортизации конфликта или манипуляции, разработанному авторами, вы сможете в любой ситуации сохранить свою репутацию и найти эффективное решение возникшей проблемы.
+В этой книге вы (   Читать дальше...   )Жанр: Психология, О бизнесе популярноФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED3824C0740E8731BBA369041765CEC8F4245B13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175213   (378334) от 18.10.2017
 
 Троицкий мост | Сборник рецептур блюд для предприятий общественного питания на производственных предприятиях и в учебных заведениях. Справочник (2017) [PDF]
@@ -20,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:5A95681C895C09F57010588838BFE93910B996F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +77,8 @@ magnet:?xt=urn:btih:5A95681C895C09F57010588838BFE93910B996F4
 magnet:?xt=urn:btih:82228D9721973ADE6D90AD47652AEB78C2DC485D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +102,8 @@ magnet:?xt=urn:btih:82228D9721973ADE6D90AD47652AEB78C2DC485D
 ```bash
 magnet:?xt=urn:btih:DC8CBE4D90D1D48CFF6854A90943FF7728C06347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +130,8 @@ Cлышали ли вы когда-либо совет «показывай, а 
 magnet:?xt=urn:btih:3A7054861502D6946B466CF7045BD132BF2B43B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +155,8 @@ magnet:?xt=urn:btih:3A7054861502D6946B466CF7045BD132BF2B43B6
 ```bash
 magnet:?xt=urn:btih:A0EDB849FDAC37B8DDE4E555A16D8EE77C8F09D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +183,8 @@ magnet:?xt=urn:btih:A0EDB849FDAC37B8DDE4E555A16D8EE77C8F09D4
 magnet:?xt=urn:btih:B47E728F4B0389DE834CECCB95A4AC0069D52485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +210,8 @@ magnet:?xt=urn:btih:B47E728F4B0389DE834CECCB95A4AC0069D52485
 magnet:?xt=urn:btih:93E877642F75F1352B50093E7EA8FEDDBABBC000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +235,8 @@ magnet:?xt=urn:btih:93E877642F75F1352B50093E7EA8FEDDBABBC000
 ```bash
 magnet:?xt=urn:btih:1D3E993E9F79FF3C175B983CB192F92939BB3C1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +263,8 @@ magnet:?xt=urn:btih:1D3E993E9F79FF3C175B983CB192F92939BB3C1F
 magnet:?xt=urn:btih:107BFBAF65F67DEB050E39CCFCE7CD3686D0C074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +290,8 @@ magnet:?xt=urn:btih:107BFBAF65F67DEB050E39CCFCE7CD3686D0C074
 magnet:?xt=urn:btih:2A00E45B95D7DB223ED2BE9E5289458540E91577
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +316,8 @@ magnet:?xt=urn:btih:2A00E45B95D7DB223ED2BE9E5289458540E91577
 ```bash
 magnet:?xt=urn:btih:81DA7458EBFD70A7711E2750D3DD46904EC1175A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +345,8 @@ magnet:?xt=urn:btih:81DA7458EBFD70A7711E2750D3DD46904EC1175A
 magnet:?xt=urn:btih:405072D57C89708F4EDC4AEC413DDC1839B279FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +370,8 @@ magnet:?xt=urn:btih:405072D57C89708F4EDC4AEC413DDC1839B279FA
 ```bash
 magnet:?xt=urn:btih:8A25DBEDCE9E8B465CE20E2E65C5FC069D7DB915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +397,8 @@ magnet:?xt=urn:btih:8A25DBEDCE9E8B465CE20E2E65C5FC069D7DB915
 magnet:?xt=urn:btih:ED3967C8759DFF5ABC0D981F166C04DAC90BFE9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +422,8 @@ magnet:?xt=urn:btih:ED3967C8759DFF5ABC0D981F166C04DAC90BFE9C
 ```bash
 magnet:?xt=urn:btih:5A7DC97D83AC0515BBF60193459757A6A1DF0690
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +452,8 @@ magnet:?xt=urn:btih:5A7DC97D83AC0515BBF60193459757A6A1DF0690
 magnet:?xt=urn:btih:085347BD793B0AEAB118524369F33FF97CFB2FB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +478,8 @@ magnet:?xt=urn:btih:085347BD793B0AEAB118524369F33FF97CFB2FB6
 magnet:?xt=urn:btih:E443AF8DFA15D1897E8D6B334BD8CEFDDC7370E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +503,8 @@ magnet:?xt=urn:btih:E443AF8DFA15D1897E8D6B334BD8CEFDDC7370E3
 ```bash
 magnet:?xt=urn:btih:7C6849601D40E3B3064D5CA237EE7B075881130D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +532,8 @@ magnet:?xt=urn:btih:7C6849601D40E3B3064D5CA237EE7B075881130D
 magnet:?xt=urn:btih:9088842DBBF794C8E951D9E4BF6896811657155A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +560,8 @@ magnet:?xt=urn:btih:9088842DBBF794C8E951D9E4BF6896811657155A
 magnet:?xt=urn:btih:82C8FE13CE48A4BEB5848E657214316AF916A1A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +585,8 @@ magnet:?xt=urn:btih:82C8FE13CE48A4BEB5848E657214316AF916A1A2
 ```bash
 magnet:?xt=urn:btih:DA71B7452CB18597EFCD307FFE33EEAA12B62347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +612,8 @@ magnet:?xt=urn:btih:DA71B7452CB18597EFCD307FFE33EEAA12B62347
 magnet:?xt=urn:btih:65CA6A44A1A181406F65BF15F15F7E6B7D627759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +637,8 @@ magnet:?xt=urn:btih:65CA6A44A1A181406F65BF15F15F7E6B7D627759
 ```bash
 magnet:?xt=urn:btih:88CD5B78CEC11AEA1CFBBA15D249AFEB44F17AC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +664,8 @@ magnet:?xt=urn:btih:88CD5B78CEC11AEA1CFBBA15D249AFEB44F17AC9
 magnet:?xt=urn:btih:5F2B6493AEEB7C55248FF17182BC4CBE90FFDE0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,29 +690,7 @@ magnet:?xt=urn:btih:5F2B6493AEEB7C55248FF17182BC4CBE90FFDE0B
 magnet:?xt=urn:btih:E6FDF1135125F18510695DDF5FC8F4C03933AD2C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949274   (379263) от 22.10.2015
-
-Валерий Лейбин | Краткий психоаналитический словарь-справочник (2015) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_379263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Краткий психоаналитический словарь-справочник содержит определения терминов психоанализа. Он представляет интерес для студентов, специалистов и всех тех, кто стремится понять бессознательную деятельность человека, причины возникновения психических расстройств и пути разрешения внутриличностных конфликтов.Жанр: ПсихоанализФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37C260FCEBB0CE274EAB7529A4D956ED8A8CB850
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

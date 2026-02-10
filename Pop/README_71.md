@@ -22,6 +22,8 @@ VA - Песни 70-х (2 CD) (2005) [FLAC|Lossless]<Retro>
 magnet:?xt=urn:btih:908E4E2FD83E0248ED5BD15CE6D9E3D652E1626F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Мелодии и ритмы советской эстрады (2003) (Вы
 ```bash
 magnet:?xt=urn:btih:C2823BC5845CE0D63902B341D1B9C299C5CB9A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Superhits 2021 [MP3|320 Kbps] <Euro Dance, Pop Dance>
 magnet:?xt=urn:btih:3A2FFF70790DD0E2EF5F1673C5DBE25461B920F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:3A2FFF70790DD0E2EF5F1673C5DBE25461B920F8
 ```bash
 magnet:?xt=urn:btih:CDB0AED91C6C6CFDB6C63D315B55F773B1743591
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:CDB0AED91C6C6CFDB6C63D315B55F773B1743591
 magnet:?xt=urn:btih:AB6E658AB677CC8A6B90CE458A9AD9E3E759F4BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:AB6E658AB677CC8A6B90CE458A9AD9E3E759F4BC
 ```bash
 magnet:?xt=urn:btih:1A86A46627E491049AD8BF4B2419939AC13A3C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:1A86A46627E491049AD8BF4B2419939AC13A3C62
 magnet:?xt=urn:btih:F07D2F6C6274DDBCCA9FBE374514E652960FA841
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - В русском ресторане. Оригинальные записи
 ```bash
 magnet:?xt=urn:btih:29B6EAD3840B2438C9D28A5733D715174D40026D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ VA - Кружатся диски. Хиты 70-х (2002) CD № 1 [FLAC|Lossless]
 magnet:?xt=urn:btih:F5B542B237EF6E44D55ACCBE02DE55D8D039560F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ magnet:?xt=urn:btih:F5B542B237EF6E44D55ACCBE02DE55D8D039560F
 ```bash
 magnet:?xt=urn:btih:EAC471C2DD032EE8BFC947FEE787E00A3B466BE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ magnet:?xt=urn:btih:EAC471C2DD032EE8BFC947FEE787E00A3B466BE7
 magnet:?xt=urn:btih:00366344BF84B3485FBCE1F28CD0D2E811838FE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +343,8 @@ magnet:?xt=urn:btih:00366344BF84B3485FBCE1F28CD0D2E811838FE3
 ```bash
 magnet:?xt=urn:btih:5C7B3736910B53D54B0EA7082578A6FF7F517846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +373,8 @@ magnet:?xt=urn:btih:5C7B3736910B53D54B0EA7082578A6FF7F517846
 magnet:?xt=urn:btih:089F5C0D9F5130B81D0F1C300E53C94914DDC143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +402,8 @@ V.A. - В русском ресторане - Романсы (Выпуск 2) (2
 magnet:?xt=urn:btih:D276A11B3393B647C02D10FB4F774C334B350C69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +427,8 @@ magnet:?xt=urn:btih:D276A11B3393B647C02D10FB4F774C334B350C69
 ```bash
 magnet:?xt=urn:btih:02C15A8A3C8B94DAE2611E87E94D4F7D0D04B09C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +457,8 @@ magnet:?xt=urn:btih:02C15A8A3C8B94DAE2611E87E94D4F7D0D04B09C
 magnet:?xt=urn:btih:63B7841E993BC3E437DC24088A64BF012CC7D17D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +485,8 @@ Rod Stewart - The Tears of Hercules (2021) Japanese Edition [FLAC|Lossless|image
 ```bash
 magnet:?xt=urn:btih:91E980F98115268D75DA8FDE1FFE0BE6B6B31740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +515,8 @@ magnet:?xt=urn:btih:91E980F98115268D75DA8FDE1FFE0BE6B6B31740
 magnet:?xt=urn:btih:641292A96ED375A75BD1848961D35D0B807251A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +543,8 @@ magnet:?xt=urn:btih:641292A96ED375A75BD1848961D35D0B807251A5
 ```bash
 magnet:?xt=urn:btih:349302FC4129717B8CFE34FEA825792F71BA0C0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +573,8 @@ magnet:?xt=urn:btih:349302FC4129717B8CFE34FEA825792F71BA0C0E
 magnet:?xt=urn:btih:0CB0E5B02350F452A6221AAAD80356A90726E333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +601,8 @@ VA - Незабытые танго (2010) [APE|Lossless]<Retro>
 ```bash
 magnet:?xt=urn:btih:D888CE025ACB37DA05BA7D04D4062CADE2B99F8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +631,8 @@ VA - Для тебя, Рио-Рита! (2007) [FLAC|Lossless]<Ретро>
 magnet:?xt=urn:btih:1AAA21AAC1E93B2980B014B421C01CB60080B3D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +659,8 @@ CD 1Жанр: Retro/ PopПродолжительность: 01:19:52
 ```bash
 magnet:?xt=urn:btih:75D36FEE048B4362048F754748D6E9AC45CFCCE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +689,8 @@ Barbara Law - Take All Of Me (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Di
 magnet:?xt=urn:btih:4032236D1A8D8E67F33F559EA41A88A2A0C61B8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,6 +718,8 @@ magnet:?xt=urn:btih:4032236D1A8D8E67F33F559EA41A88A2A0C61B8B
 magnet:?xt=urn:btih:23B24D60954B5D2A8A9988C74EA73DAFF826DABF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Soprano Турецкого - Новогодние хиты (2020) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:96DB0F868C91DA3359C9ADAB1A1FCBBA55C880A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

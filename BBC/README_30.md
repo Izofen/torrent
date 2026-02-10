@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9EE298F2A7E215345976005CBEBEFDC131BBDE6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC: Королевские дворцы / The Queen's Palaces (2011) HDTVRip [H
 ```bash
 magnet:?xt=urn:btih:DA711CBD0180EA831A2BAEE77F1A7C03824762D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC: Секреты устройства античных городов. Афи
 magnet:?xt=urn:btih:B725C25FE83F26D3233BB4AA3904CE95555BB12D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC: Мир природы. Каланы. Малышка на миллион / N
 ```bash
 magnet:?xt=urn:btih:81F2A3FC8D0DDE237F24457AE760564540903EAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC: Семь возрастов звездного света /  Seven Ages of 
 magnet:?xt=urn:btih:FE3B8265ECBED185B310BED0E23F6E365215ED60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BBC: Внутри человеческого тела / BBC: Inside the Human Bo
 ```bash
 magnet:?xt=urn:btih:09A610CC646B8C6D4915FFF6BBE5FA1B943D6B0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ BBC: Эйнштейн и Хокинг. Гении нашей Вселенной 
 magnet:?xt=urn:btih:F352D9C6AB3E2EAF4CF86074B31431B6E1BD2F9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:F352D9C6AB3E2EAF4CF86074B31431B6E1BD2F9E
 ```bash
 magnet:?xt=urn:btih:E6700505E7A01052E475C1B2946F037DC8130547
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ BBC: Орбита: Необыкновенное путешествие план�
 magnet:?xt=urn:btih:0574B072EE27A5DC121DD9CC877F8596E88E66D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:0574B072EE27A5DC121DD9CC877F8596E88E66D4
 ```bash
 magnet:?xt=urn:btih:EA0F82420DFA0BBA308495197F2C45B1BC417A88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ BBC: Орбита: Необыкновенное путешествие план�
 magnet:?xt=urn:btih:CD4B27317EFD8E045B19CF5408FE8E5159DCC5B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ BBC: Тайная жизнь льда / The Secret Life of Ice (2011) HDTVRip [H
 ```bash
 magnet:?xt=urn:btih:1ABB8B4E980CCB801141FE66AC5448300E46F4C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ BBC. Тайны Тихого океана "Странные острова" / So
 magnet:?xt=urn:btih:A37CFC0CBD26BFA389809E7B2343EA20B9C660DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ BBC. Horizon. Тайная жизнь кошек / The Secret Life of the Cat (2
 ```bash
 magnet:?xt=urn:btih:3B0E6D8FB2578FC825D016B141E3BBCE315402C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ BBC: Армада. Неизвестная история (12 дней чтобы
 magnet:?xt=urn:btih:4F7D51486B6FBDA07E538C6E95307A62343EFE82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:4F7D51486B6FBDA07E538C6E95307A62343EFE82
 ```bash
 magnet:?xt=urn:btih:18FB0D1FD581A2EB99A21FC91E45DAFDA1D09A7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ BBC: Охота на гравитационные волны / The hunt for grav
 magnet:?xt=urn:btih:FA6EC4736AAB361A0595175831572D0641ABD922
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:FA6EC4736AAB361A0595175831572D0641ABD922
 ```bash
 magnet:?xt=urn:btih:AD98A9F7B6A1F545FFAAC73EE3FEBA3D53BCF716
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ BBC: Путешествие человека / The Incredible Human Journey   (2
 magnet:?xt=urn:btih:9B7CA6332B977059025987C33C0E96610E4772FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:9B7CA6332B977059025987C33C0E96610E4772FB
 ```bash
 magnet:?xt=urn:btih:91A2AC9A472A3037D62725FCFA9EEFD532F7F016
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ BBC. Аттенборо и Гигантский Слон / Attenborough and the 
 magnet:?xt=urn:btih:E212A1561F4334E1A7F6A210C7328C412F8FE385
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ BBC. Семейка гепардов и Я (Семья гепардов и Я) /
 ```bash
 magnet:?xt=urn:btih:932741E0810997C9A2C504D501D4AEA7E12EB900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ magnet:?xt=urn:btih:932741E0810997C9A2C504D501D4AEA7E12EB900
 magnet:?xt=urn:btih:B0E5CD7F1DD4D7C42A8BF8502E5C000E8CB364D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ magnet:?xt=urn:btih:B0E5CD7F1DD4D7C42A8BF8502E5C000E8CB364D0
 ```bash
 magnet:?xt=urn:btih:A6D5FC793616CD37BF7B51C6C94CD6BFF35E8AC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ BBC: Апокалипсис древних цивилизаций - 4 - Содо
 magnet:?xt=urn:btih:2B1DCAAB975F881EC685A72ECD8AB9CC00C6AFE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ BBC: Апокалипсис древних цивилизаций - 3 - Гибе
 ```bash
 magnet:?xt=urn:btih:33A0D4D068E0A835F63E23E0B1245CD8F894D3B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:41ABD558533A9D6EB8E54F8726A8758A509DC781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Winterland - Life's What You Make It (2025) [FLAC|Lossless|WEB-DL|tracks] <Melod
 ```bash
 magnet:?xt=urn:btih:F38A5D43723705540C2C5C9ED5C6C98ED3C7C1EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ VA - Armin van Buuren - A State Of Trance 1228 (2025) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:94E6B67D8809EB4F418F2998179D1F27A7F45972
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Streetcar Revenge - Streetcar Revenge (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard
 magnet:?xt=urn:btih:F4D1D3A8BAC47F0AD210FD66FE4CC7B8710038BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:F4D1D3A8BAC47F0AD210FD66FE4CC7B8710038BC
 magnet:?xt=urn:btih:C2C0E89C6A6BA05C076815B22F9D123B9AACA016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:C2C0E89C6A6BA05C076815B22F9D123B9AACA016
 ```bash
 magnet:?xt=urn:btih:FD0C860A96A987A2E99B16610332487872F95E73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:FD0C860A96A987A2E99B16610332487872F95E73
 magnet:?xt=urn:btih:D27D114D29502512D19A701686BF16AE3F33DDDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:D27D114D29502512D19A701686BF16AE3F33DDDC
 ```bash
 magnet:?xt=urn:btih:D32D9C634244FB5645730DB1D97AACD53D76D25A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:D32D9C634244FB5645730DB1D97AACD53D76D25A
 magnet:?xt=urn:btih:698AAD3A0EE9139617C241C6C3092C035D5EBD79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:698AAD3A0EE9139617C241C6C3092C035D5EBD79
 ```bash
 magnet:?xt=urn:btih:74D9E3918489433DC5BC4125EEE8B6EB98360EDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:74D9E3918489433DC5BC4125EEE8B6EB98360EDE
 magnet:?xt=urn:btih:5F107D0442C75694C6297188EDFF7B75609A68C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:5F107D0442C75694C6297188EDFF7B75609A68C1
 magnet:?xt=urn:btih:F11A77BC9CC428EE6E9228ED92FABEB761A595D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:F11A77BC9CC428EE6E9228ED92FABEB761A595D1
 ```bash
 magnet:?xt=urn:btih:A42496CA4E85818B8E1B700B8EA12289A413411B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:A42496CA4E85818B8E1B700B8EA12289A413411B
 magnet:?xt=urn:btih:5764EC6B59895F71AD7E420E59D01EA431F2C83C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:5764EC6B59895F71AD7E420E59D01EA431F2C83C
 ```bash
 magnet:?xt=urn:btih:733B9F5EC00BFC0FE698BF44618807EBD7FE779F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ ANNA ASTI - Высшие силы (2025) Deluxe Edition [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:FF39526C72150A449CD768E79C643B6A3F3ABC74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:FF39526C72150A449CD768E79C643B6A3F3ABC74
 ```bash
 magnet:?xt=urn:btih:9E39A084FD2D357DC6DCE0F45EAB9B38CEC4339A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ VA - AFTERLIFE ANYMA The End of Genesys (2025) [MP3|320 Kbps] <Melodic House & T
 magnet:?xt=urn:btih:9BE3A9E479E29E3E41378AAD9F50FB8EEBBB1B3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ PictureThis - Plant Identification v5.5.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9261BADA547098FF88551000DA7E58D91EC1157B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:9261BADA547098FF88551000DA7E58D91EC1157B
 magnet:?xt=urn:btih:78E4B74DF05AF01DB1704DBF6F3617FEC2E1F44A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:78E4B74DF05AF01DB1704DBF6F3617FEC2E1F44A
 magnet:?xt=urn:btih:5F19223D7D388DB999E7DCC9CD39B8ECF68B372D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:5F19223D7D388DB999E7DCC9CD39B8ECF68B372D
 ```bash
 magnet:?xt=urn:btih:581A34375569C221A2C1CE4FF0951599C1B0FD13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:581A34375569C221A2C1CE4FF0951599C1B0FD13
 magnet:?xt=urn:btih:4F0C8CD5F0A61EF684535C7DFE01B21D085CEF2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ Linux Magazine - журнал, целиком посвященный опера�
 magnet:?xt=urn:btih:027B8D3CB2D16F56A7D128A3BF96B1262BB9061F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:027B8D3CB2D16F56A7D128A3BF96B1262BB9061F
 ```bash
 magnet:?xt=urn:btih:BAD77B4525835679B62924B22865859C04D8C5DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +693,8 @@ Fantastic Negrito - 6 Albums, 2 EP (2014 - 2024) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:E2D89A56BF2B261A0CA479577800D39694223141
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

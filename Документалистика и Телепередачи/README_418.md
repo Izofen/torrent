@@ -1,3 +1,29 @@
+###  Публикация: 1151709   (570355) от 20.07.2017
+
+Казни египетские / The Biblical Plagues (2009) HDTVRip [H.264/720p-LQ] (Серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_570355.jpg" />
+</div>
+
+
+###  Подробнее
+
+Египет. Богатая, могучая империя эпохи фараонов. А народ Израиля - в рабстве, под игом фараона. Чтобы отвоевать свободу, Моисей насылает на Египет десять казней. На Египет обрушивается гнев Божий. С казнями приходят несчастья, болезни, смерть - так написано в Библии. Что это? Просто легенды или так оно и было?Производство: Германия, Taglicht Media Production for ZDFЖанр: Документальный, история, исследованияРежиссер: Габриэль ВенглерПеревод: Многоголосый закадровый, профессиональный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 00:49:48+00:48:26+00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B73E8E5257B36ADBCD6BAE6DCBA2DF939C186DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043648   (570473) от 17.08.2016
 
 Американский секрет советской бомбы (2015) DVBRip [H.264] (Серии 1-2 из 2)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:4A3860420FC932D377E9821BAB7446DAFE95A502
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:4A3860420FC932D377E9821BAB7446DAFE95A502
 magnet:?xt=urn:btih:87BD2CA577C67E5A9BC12BFFDBD7AB73CAE7A884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:87BD2CA577C67E5A9BC12BFFDBD7AB73CAE7A884
 ```bash
 magnet:?xt=urn:btih:B4B441B93FC6E3F73C3D35090F444835E0883B10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:B4B441B93FC6E3F73C3D35090F444835E0883B10
 magnet:?xt=urn:btih:26AE9CCFFCEDE3A70288563CC18B917C44D80B44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:26AE9CCFFCEDE3A70288563CC18B917C44D80B44
 ```bash
 magnet:?xt=urn:btih:9C2BCD25D27D8FBDCCDFDF37136F2C05A61CFA1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:9C2BCD25D27D8FBDCCDFDF37136F2C05A61CFA1F
 magnet:?xt=urn:btih:9948D3F64AF759887F870044B4344096819699C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:9948D3F64AF759887F870044B4344096819699C9
 ```bash
 magnet:?xt=urn:btih:1A20BB956A7581755B00BFD323C1AE00C3210D7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:1A20BB956A7581755B00BFD323C1AE00C3210D7F
 magnet:?xt=urn:btih:2BFD8A63722C1C61499D5314C6314D6007817040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:2BFD8A63722C1C61499D5314C6314D6007817040
 ```bash
 magnet:?xt=urn:btih:6314EB36449D560A83285FCE472E8367A49AB27B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:6314EB36449D560A83285FCE472E8367A49AB27B
 magnet:?xt=urn:btih:5B0503FAF2AF9744BAE0F43A9B5936782ABA3CCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:5B0503FAF2AF9744BAE0F43A9B5936782ABA3CCE
 ```bash
 magnet:?xt=urn:btih:64FE50C0F85DEFC876CF5C862A3DDCC6D4358356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:64FE50C0F85DEFC876CF5C862A3DDCC6D4358356
 magnet:?xt=urn:btih:2107DB91F8630B79427E5206736110BE8023B370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:2107DB91F8630B79427E5206736110BE8023B370
 ```bash
 magnet:?xt=urn:btih:46945FA70AC4CF01AF9E0EC0E69AC8D96233427D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:46945FA70AC4CF01AF9E0EC0E69AC8D96233427D
 magnet:?xt=urn:btih:0908C6AD822CB55AA5BA1970A1EA6E7992DEE468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:0908C6AD822CB55AA5BA1970A1EA6E7992DEE468
 magnet:?xt=urn:btih:70786E729EF0242426567CDE938840D1424FC02E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:70786E729EF0242426567CDE938840D1424FC02E
 ```bash
 magnet:?xt=urn:btih:882873F3E73896848DD79C99E2F66E7BC3BE07B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:882873F3E73896848DD79C99E2F66E7BC3BE07B2
 magnet:?xt=urn:btih:28E507B577530AB043C1210B6228D9B5871CE439
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:28E507B577530AB043C1210B6228D9B5871CE439
 magnet:?xt=urn:btih:51E48FDF35D8124E02199038F527463C6850F2CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:51E48FDF35D8124E02199038F527463C6850F2CB
 ```bash
 magnet:?xt=urn:btih:D590FF13E0D2AA9E1E47F189B01E2868E5CAB9F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:D590FF13E0D2AA9E1E47F189B01E2868E5CAB9F9
 magnet:?xt=urn:btih:F5671EB556B2D17F2422DFC48FC05A52DBC92E0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:F5671EB556B2D17F2422DFC48FC05A52DBC92E0B
 magnet:?xt=urn:btih:C7A60A9454C6FD8B524DEAD6E4CD55E97A82793E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:C7A60A9454C6FD8B524DEAD6E4CD55E97A82793E
 ```bash
 magnet:?xt=urn:btih:4929FA02F0352104111424E11CB4441EDE542BCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:4929FA02F0352104111424E11CB4441EDE542BCF
 magnet:?xt=urn:btih:1FCB4EEA128558881850197282BCAB264CFD9D6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:1FCB4EEA128558881850197282BCAB264CFD9D6B
 ```bash
 magnet:?xt=urn:btih:E873E19D273C465301AEDCD0F83B54B1CE236773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:E873E19D273C465301AEDCD0F83B54B1CE236773
 magnet:?xt=urn:btih:894007D7E38CF4E8524255EAC5AE4EE5CFA76786
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043611   (572836) от 16.08.2016
-
-Александр Каверзнев. Афганский капкан (2006) DVBRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_572836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журналист Александр Каверзнев был легендой отечественного телевидения. Его умению привлекать зрителя, его обаянию завидовали и поражались все. Он ломал правила и стереотипы. Этого удивительного человека до сих пор считают своим учителем звезды российской тележурналистики. Александр ушел из жизни внезапно, после командировки в Афганистан. Что там произошло? Какая (   Читать дальше...   )Телекомпания: Россия, Студия-АЖанр: ДокументальныйЯзык субтитров: РусскийПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AE7FBC591814C4A7CA05B07EBDDE71D903B4035
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

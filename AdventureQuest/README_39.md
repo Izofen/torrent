@@ -19,6 +19,8 @@ Five Nights at Freddy's: Security Breach - хоррор-выживастик, г
 magnet:?xt=urn:btih:C9A9002DFDDE0F34D4C96C09864FDA95360DB4A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tad the Lost Explorer - это увлекательный трехмерный �
 ```bash
 magnet:?xt=urn:btih:64B2E437FD984FC2A2E00287A80AE2F678B96037
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Three Kingdoms Story: Conussia - это история о Герое, оказа
 magnet:?xt=urn:btih:7B3BD35D04F251F168554EB162DD680836C01891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Staffer Reborn – здесь вы узнаете о сверхъестеств�
 ```bash
 magnet:?xt=urn:btih:186C92257265EC78F5F6FDAC0F631AE81A6CA9B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Chihiro Himukai Always Walks Away (2021) [Multi] (1.0.1/dlc) License GOG [18+]
 magnet:?xt=urn:btih:E02363E25735FB9751E55CBE82AF5CC2F62EECD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:E02363E25735FB9751E55CBE82AF5CC2F62EECD4
 ```bash
 magnet:?xt=urn:btih:4390C3EE2F9AD65F61C5C5D0144C24E2020E3C9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ This is a Ghost (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:331BA7B2B1C3662D5032C8E1889A9673575EF26D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Once a Tale - приключенческая игра с кинематогра�
 ```bash
 magnet:?xt=urn:btih:9BBC6A5649CAB913553A98EC0A51315ABAC0040E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ MADievals - The rise of Rusty Steelknee (2023) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:CCADF74E61AB27784958AD173AE3F43D1004EF0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Jawbreaker (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5BE314DF37DD97624794F4710EFB146114E89560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Scott Whiskers in: the Search for Mr. Fumbleclaw - забавная приклю
 magnet:?xt=urn:btih:73CA1850746821225CB9D2A157F3A3E6A6299D4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Rauniot - приключенческий квест, представленны�
 ```bash
 magnet:?xt=urn:btih:676A6FC8BE288D3C60D167EE6FA26474A053D383
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Shinkansen 0 отправляет геймеров в уникальное пр�
 magnet:?xt=urn:btih:B1006B08DE57CFE513C9E8D89C77766D4160B9F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ LAKE The Legend of Snowblind - атмосферная приключенческ
 ```bash
 magnet:?xt=urn:btih:7523D350C3FF14B52EBCB985903E99A3DD672CA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Aquamarine - это созерцательное, пошаговое прикл�
 magnet:?xt=urn:btih:A473C887F96886EEF6079037BB0EF93DC7FD4428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Sophia the Traveler позволяет пользователям очутить
 ```bash
 magnet:?xt=urn:btih:E359CB6EE6FB7D14FADC0722922A6BDC355F90C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Witch's Cauldron - это мрачная история, в которой �
 magnet:?xt=urn:btih:6216B5E682AE097FB9A11AAD5BEC67EF10AD2308
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Agatha Christie Hercule Poirot: The London Case (2023) [Ru/Multi] (1.0.7) Licens
 ```bash
 magnet:?xt=urn:btih:EE7DA14EF29B29F2170746FE02FA4590CC2FA5CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Scars Above использует научно-фантастический се�
 magnet:?xt=urn:btih:EB5B4505E83A9C55CAFEB098E7B2B3FD7014C2DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ My love with the GirlsGroup (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:C0FB1E1842EAED19A90F4CA672ECD09986B695B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Agatha Christie - Murder on the Orient Express (2023) [Ru/Multi] (20231222-20582
 magnet:?xt=urn:btih:ABFE3E271D949215F4C2212551C0DD8EF52346BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Inspector Schmidt A Bavarian Tale (A Bavarian Tale: Totgeschwiegen) - ролев
 ```bash
 magnet:?xt=urn:btih:D55875A738A48C9FEB19D98F5249035DB7711E62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Lil Doll House - атмосферный хоррор в формате escape th
 magnet:?xt=urn:btih:E7A4ECD341643687DCF75C674F802EC740FC2132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Grand Canyon - это игра, которая предлагает вам по�
 ```bash
 magnet:?xt=urn:btih:95E4DF973FBC98241B3C4C8B3D5E62503FB02E10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Purpose 1951 переносит вас в мир отставного врача
 magnet:?xt=urn:btih:13E36B05C9245E25A06167C7A62B31BEAE5AD338
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ DYSCHRONIA: Chronos Alternate (2024) [Multi] (1.0) Repack FitGirl [Dual Edition]
 ```bash
 magnet:?xt=urn:btih:A535CDEBBD2822E9C90F1DD785A406684BE57BB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

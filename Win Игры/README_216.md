@@ -19,6 +19,8 @@ Pool Cleaning Simulator предлагает в увлекательной и н
 magnet:?xt=urn:btih:38330361791F45B76377183E7837F8EBA6815ED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Fallen Leaf (2024) [En] (1.0.0.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F02D8C80B09C8D66C4899DBC203398A650B94DC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Enchantment 2: Sun's Tear (2024) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:FBA4979AB5B0C5D85FD1A5D0D78951D0B10419D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Enchantment: Secret Hideaway (2023) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:99F3713DD9DC5FE983558EECD82D2B041756976F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Crystal Shard Adventure Bundle - это не просто обычный сбо�
 magnet:?xt=urn:btih:A4348E326063DDC56E8D39F46CFE4C06D5FE3E0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Punch Club 2: Fast Forward - это двухмерный экшен-файтин
 ```bash
 magnet:?xt=urn:btih:9ABDBEFE767F0DB2FA9157EF73C1193DDD18FB58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ A Memoir Blue – это невероятно трогательная и мил
 magnet:?xt=urn:btih:CCC86F54C9A39D900A30352AC963A8864534E16A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Magical Delicacy - это не просто пиксельный платфор�
 ```bash
 magnet:?xt=urn:btih:56B5BCC4E4CFEA696728074D93A04543F137AACA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Park Beyond (2023) [Ru/Multi] (4.0.0/dlc) Scene Rune
 magnet:?xt=urn:btih:E7575D855B1B2213AC73A71C68FF9C6C02D973F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Lifecraft представляет собой симулятор управле�
 ```bash
 magnet:?xt=urn:btih:145F03B27FA5B98E11328BF23B9611E897A18D70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ City of Stories 2: The Professor's Secret (2024) [En] (1.0) Unofficial [Collecto
 magnet:?xt=urn:btih:2345B083D20049D646CD04DF95DAF08FF8C26BF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ I Was a Teenage Exocolonist (2022) [En] (1) License GOG
 ```bash
 magnet:?xt=urn:btih:44D888E9843FAC8F7BB2783F41DE10A3D8DB2B26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Asterix & Obelix: Slap them All! представляет знаковых пе�
 magnet:?xt=urn:btih:22D07D1353DEA3DB367B3B28455D5BE397B8C6A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Donut Dodo (2022) [En] (1.3.9.1) License GOG
 ```bash
 magnet:?xt=urn:btih:E0D479C54AF79A50F2095B4CC94C9D40A08A33D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Paper Trail - это увлекательная головоломка, кото
 magnet:?xt=urn:btih:14EA413BA8724BA7638F43711654D7DC3526449D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Detectives United 7: Mission Possible (2024) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:D5CBBAC8C8D318D230EA4084254A67C6437F764C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Siralim Ultimate - пошаговая ролевая игра, позволяю�
 magnet:?xt=urn:btih:00BCAD407B8D0512D40F2CC18D848F008A1B2FD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ TY the Tasmanian Tiger 4 - экшен от третьего лица, в цен�
 ```bash
 magnet:?xt=urn:btih:D71246E97F90B77D7FFEBDC2C6EEA4DBF0732131
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Criminal Archives 4: Blade of Deceit (2024) [Multi] (1.0) Unofficial [Collector'
 magnet:?xt=urn:btih:B8F6C25429C3420C54477CC4632FF070A27DFD92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ No Sleep for sole - это сюрреалистическая игра в жан
 ```bash
 magnet:?xt=urn:btih:75F95509F182BD980F0B6838F3F8A26D71236FFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Echoes of Despair (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:366BCE22A4158ACA140D2371FA3CA01C02D01E8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Paranormal Files 11: Sacrifice to Shadows (2024) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:00266B84F6D625FE544F5CA7B22EC11BE7A6547F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Pizza Possum - это забавная аркада с поддержкой ко
 magnet:?xt=urn:btih:B4FAF24044532275713B98CA6CFA5001BE3B6E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Cavern of Dreams (2023) [En] (7.5) License GOG
 ```bash
 magnet:?xt=urn:btih:0A5CC1599D1633F51B0A4FD9FBE387CB48807C4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Dark City 9: Amsterdam (2024) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:A01A1DBF86A97896A8012A249946526B11142A4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Harmony: The Fall of Reverie - это увлекательная приключ�
 ```bash
 magnet:?xt=urn:btih:166DE722C29E64F813223D88AD5345054D90E69D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

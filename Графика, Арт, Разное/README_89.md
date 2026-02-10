@@ -1,51 +1,3 @@
-###  Публикация: 921861   (573437) от 26.07.2015
-
-Картинки - Красавица Средиземноморья - Италия. 50 обоев 8К [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Солнечная темпераментная Италия, "загорающая" на прекрасных пляжах адриатического и средиземноморского побережий. Былая могущественная Римская империя, руины которой влекут к себе туристов со всего мира. Незабываемая зеркальная Венеция с ее тишиной и покоем, где слышны только плеск волн да крики одиноких чаек, разбавляемые мелодичным пением гондольеров. (   Читать дальше...   )Формат: JPGРазрешение файлов: 7680х4320
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAE7723F57EE9137FDEC45AA9CD7962D68EC76E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527684   (573551) от 28.07.2012
-
-[Wallpapers] Nature HD Wallpapers (27.07.12)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_573551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89B9AB2C67B4EB03D0070F632BDA2BDCDD4B5AB0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921689   (573589) от 26.07.2015
 
 Обои - Коллекция обоев FullHD #4 [JPG]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:89B9AB2C67B4EB03D0070F632BDA2BDCDD4B5AB0
 ```bash
 magnet:?xt=urn:btih:325EE36698ABC816AAB2C9F05C8201E185727940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +45,8 @@ magnet:?xt=urn:btih:325EE36698ABC816AAB2C9F05C8201E185727940
 magnet:?xt=urn:btih:C2956069B452C00E3697DB9E2C10849C1EEE5613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +70,8 @@ magnet:?xt=urn:btih:C2956069B452C00E3697DB9E2C10849C1EEE5613
 ```bash
 magnet:?xt=urn:btih:F843F62C8D3E973B672F620637586B4A1937FDD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +97,8 @@ magnet:?xt=urn:btih:F843F62C8D3E973B672F620637586B4A1937FDD2
 magnet:?xt=urn:btih:6655698F48CCB08679E6E2C68DB3C1046465B675
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +122,8 @@ magnet:?xt=urn:btih:6655698F48CCB08679E6E2C68DB3C1046465B675
 ```bash
 magnet:?xt=urn:btih:0F944178DDA41DCEEAABE93D9BE0D3E7F903B936
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +153,8 @@ Item – 35 Ultimate Light Effects Volume 3 | Pack contains ready to use 35 high
 magnet:?xt=urn:btih:AEBC5F568B82F706C2CBE6EE8E26135715445505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +178,8 @@ magnet:?xt=urn:btih:AEBC5F568B82F706C2CBE6EE8E26135715445505
 ```bash
 magnet:?xt=urn:btih:4587BB3222088AF7D3527BB0BAE70AB75C7BB560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +205,8 @@ magnet:?xt=urn:btih:4587BB3222088AF7D3527BB0BAE70AB75C7BB560
 magnet:?xt=urn:btih:0CF55453644E72DECC1329B66D90051BAAFB0324
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +230,8 @@ magnet:?xt=urn:btih:0CF55453644E72DECC1329B66D90051BAAFB0324
 ```bash
 magnet:?xt=urn:btih:DEFD905AF526EE52173A7B09D136887D3E38A851
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +257,8 @@ magnet:?xt=urn:btih:DEFD905AF526EE52173A7B09D136887D3E38A851
 magnet:?xt=urn:btih:893ED3FA9DDC302A013C49047D1643FB26043519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +283,8 @@ magnet:?xt=urn:btih:893ED3FA9DDC302A013C49047D1643FB26043519
 magnet:?xt=urn:btih:F994707797C835E10E5F7251323ACBCE0C0EABE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +308,8 @@ magnet:?xt=urn:btih:F994707797C835E10E5F7251323ACBCE0C0EABE9
 ```bash
 magnet:?xt=urn:btih:4BB7AA011A0CC263A2F52F73C09003DC11AC3CFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +336,8 @@ magnet:?xt=urn:btih:4BB7AA011A0CC263A2F52F73C09003DC11AC3CFD
 magnet:?xt=urn:btih:CF5B3954A318196E15C891DCEE8DF0C17D7C78B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +362,8 @@ magnet:?xt=urn:btih:CF5B3954A318196E15C891DCEE8DF0C17D7C78B8
 ```bash
 magnet:?xt=urn:btih:6F02B5285E1F38B0C906E62D43B518B7FE2D8664
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +390,8 @@ magnet:?xt=urn:btih:6F02B5285E1F38B0C906E62D43B518B7FE2D8664
 magnet:?xt=urn:btih:64C0AF165962ABF8399748BE9BB958EA687D5A1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +415,8 @@ magnet:?xt=urn:btih:64C0AF165962ABF8399748BE9BB958EA687D5A1C
 ```bash
 magnet:?xt=urn:btih:424527EF684116BE3020FA1A4E4AA4F78A4CC625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +442,8 @@ magnet:?xt=urn:btih:424527EF684116BE3020FA1A4E4AA4F78A4CC625
 magnet:?xt=urn:btih:A96D912BD854B05792A29285BF03EA27CE8C5BFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +467,8 @@ magnet:?xt=urn:btih:A96D912BD854B05792A29285BF03EA27CE8C5BFB
 ```bash
 magnet:?xt=urn:btih:B1B51648C19ED3976D7358BA3D1ABF387C9CA35B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +494,8 @@ magnet:?xt=urn:btih:B1B51648C19ED3976D7358BA3D1ABF387C9CA35B
 magnet:?xt=urn:btih:C3228D7ED71F0C764E78AE72EDB112CE35DAF229
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +519,8 @@ magnet:?xt=urn:btih:C3228D7ED71F0C764E78AE72EDB112CE35DAF229
 ```bash
 magnet:?xt=urn:btih:9E1455FE81849E841BCCDF2A0773DA67E2522253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +547,8 @@ magnet:?xt=urn:btih:9E1455FE81849E841BCCDF2A0773DA67E2522253
 magnet:?xt=urn:btih:2DD9ED5519079CF9AB74BA47947702544A24B0D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +572,8 @@ magnet:?xt=urn:btih:2DD9ED5519079CF9AB74BA47947702544A24B0D8
 ```bash
 magnet:?xt=urn:btih:FEA5383B502F040BEE920F40508EF2C96AB3BB17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +599,8 @@ magnet:?xt=urn:btih:FEA5383B502F040BEE920F40508EF2C96AB3BB17
 magnet:?xt=urn:btih:2896374C579E001B3D145127D643D8DCB4F782C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +624,60 @@ magnet:?xt=urn:btih:2896374C579E001B3D145127D643D8DCB4F782C8
 ```bash
 magnet:?xt=urn:btih:3C5F77718395ACE7AC428EA8F4D0A00CEF0A9DAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358504   (583647) от 04.07.2011
+
+[Картинки] Позитивные фотографии животных )))
+
+>>Графика, Арт, Разное
+>>Интернет-творчество
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень позитивные фотографии животных-сборник ))
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E96E407F37C3157055465B63C987B454AC9D9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358479   (583786) от 04.07.2011
+
+[Картинки] Демотиваторы "100" №8
+
+>>Графика, Арт, Разное
+>>Интернет-творчество
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_583786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая подборка прикольных демотиваторов поднимет вам настроение.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FDA196EE0F61EAD498939ED6E070DF0361295F4
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

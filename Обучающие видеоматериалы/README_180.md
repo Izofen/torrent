@@ -20,6 +20,8 @@ Anthony DiLuglio | The Art of Strength (2006) DVDRip [H.264/1080p-LQ] [EN]
 magnet:?xt=urn:btih:026ADED886B0525DB778030ACD810692BAB92207
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ CG Forge, Tyler Bay | Quaternions & Matrices (2019) PCRec [EN, RU]
 magnet:?xt=urn:btih:8AB91C4C4A50A9DE5AFF0175C9A174C2D13E9FCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Fireship.io | Firestore Data Modeling Course (2019) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:7E9179091416F8199AEB96DD256151C81D6421E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Firebase Security — полный курс научит вас писать, с
 magnet:?xt=urn:btih:2B19781123500A824D017566D60EB4436E46706D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Epic Games, Zak Parrish | UE4 Performance and Profiling (2017) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:1812702191C8233900A41992EFE935CDFB67CAE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:1812702191C8233900A41992EFE935CDFB67CAE3
 magnet:?xt=urn:btih:C0F918CE9D361CDD5C6FFC28AAA1B711EADDF850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:C0F918CE9D361CDD5C6FFC28AAA1B711EADDF850
 ```bash
 magnet:?xt=urn:btih:5DA197475A66E3AA16CCF25AC9C6D156CF33EBAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:5DA197475A66E3AA16CCF25AC9C6D156CF33EBAE
 ```bash
 magnet:?xt=urn:btih:C14A5F891B2737183368D073385C99B97138533E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:C14A5F891B2737183368D073385C99B97138533E
 magnet:?xt=urn:btih:B373927DD1E241EC39B9EDDE6012AE98B48128E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:B373927DD1E241EC39B9EDDE6012AE98B48128E3
 magnet:?xt=urn:btih:C2C130151BDE59FF98FBCBA05E3714E6578F3F3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Sjoerd de Jong покажет вам множество функций пост-
 magnet:?xt=urn:btih:1D98A6F747196D1094C32FECF8264D97178EAB5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ XXI век – эпицентр информационного взрыва. П�
 ```bash
 magnet:?xt=urn:btih:9E963EA3516EE33A0DA91C47304A602B7E7C6B40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:9E963EA3516EE33A0DA91C47304A602B7E7C6B40
 ```bash
 magnet:?xt=urn:btih:7B0088132AB38CB27D477E1AC3CBCE5FF1802B35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ Python & DevOps(   Читать дальше...   )Жанр: Программи�
 magnet:?xt=urn:btih:55367208F17D8334F2D987683DF414860720B4F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ Simon Payne | Creature Creators Handbook Volume 2 Part D (2012) PCRec
 ```bash
 magnet:?xt=urn:btih:FBB5FC9466285922841CEA9A671A27AF8B7AF242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ cmiVFX представляет второй том мастер класса п
 magnet:?xt=urn:btih:084436A835FC41EC5AC6971C1FB60D939668ECFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:084436A835FC41EC5AC6971C1FB60D939668ECFD
 ```bash
 magnet:?xt=urn:btih:202C8366679DBE49501F38E9F47651BC254B6C58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ Pluralsight.com | Python Fundamentals (2013) PCRec [H.264] [RU/EN]
 ```bash
 magnet:?xt=urn:btih:68430CD661C0C3A5C0F15C691B3D0644AB1B2F8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:68430CD661C0C3A5C0F15C691B3D0644AB1B2F8E
 magnet:?xt=urn:btih:91F089C6C148C41B71513FF7259AD04FDAE8CB56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ GoFingerstyle, Максим Ярушкин | Блюз на акустике (202
 magnet:?xt=urn:btih:57A90BDE891C115D058E4A052EF9851D9764DB6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ EC-Council, Bred W. Beatty | The Computer Hacking Forensic Investigator (CHFI) (
 ```bash
 magnet:?xt=urn:btih:0BEF8F732C3B19405AD22C61FF26735CD2060216
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:0BEF8F732C3B19405AD22C61FF26735CD2060216
 magnet:?xt=urn:btih:773B6075C799BDB1560F431394FAB8ABC7FC730B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:773B6075C799BDB1560F431394FAB8ABC7FC730B
 magnet:?xt=urn:btih:CAC399DB9A1FE02446B7B90525B540600BC9523C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ Stellar Works | Game Ready Ar-15 Weapon Course (2021) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:A94BE4C8E89786A5DEBE6E41D38EF7A230452C9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:A94BE4C8E89786A5DEBE6E41D38EF7A230452C9C
 magnet:?xt=urn:btih:F5A0565AE4DA1A3B34014B5D206DA8DF1E866B6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:F5A0565AE4DA1A3B34014B5D206DA8DF1E866B6F
 ```bash
 magnet:?xt=urn:btih:4A4CE7CDD1B8D8062F355F8F27394FAE11A9D521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

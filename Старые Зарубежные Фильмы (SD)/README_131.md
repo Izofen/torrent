@@ -1,27 +1,3 @@
-###  Публикация: 934526   (502255) от 05.09.2015
-
-Вынужденная месть / Forced Vengeance (1982) DVDRip [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_502255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лос-Анджелес. Из Гонконга прибывает посланец кредитора, желающего получить неуплаченные долги. После ряда физических «убеждений» деньги поступают бесперебойно. Гонконг. Игорный дом, в котором работает этот «посланец» — шеф службы безопасности, — подвергается нападению. Это предупреждение со стороны другой могущественной мафиозной семьи, которая жаждит перекупить (   Читать дальше...   )Производство: СШАЖанр: Боевик, приключенияРежиссер: Джеймс ФаргоАктеры: Чак Норрис, Мэри Луиз Уэллер, Камила Григгс, Майкл Кавана, Дэвид Опатошу, Сейджи Сакагучи, Фрэнк Майкл Лью, Боб МайнорПеревод: Авторский (Андрей Гаврилов)Продолжительность: 01:30:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B19618875057B1B2DF3D5699C57CC40B690670F9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317247   (502295) от 30.07.2019
 
 Стенка на стенку / Tuff Turf (1985) HDRip [H.264] [AVO]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:B19618875057B1B2DF3D5699C57CC40B690670F9
 ```bash
 magnet:?xt=urn:btih:F03851D0C496D06F1C64DF88D4FDB49F7C7D6E8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:F03851D0C496D06F1C64DF88D4FDB49F7C7D6E8E
 magnet:?xt=urn:btih:70DDA3246BB9A2A82F2210087009403B2DEDF82C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:70DDA3246BB9A2A82F2210087009403B2DEDF82C
 ```bash
 magnet:?xt=urn:btih:1C21F6870147716F211105998F732DBF684DEF13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:1C21F6870147716F211105998F732DBF684DEF13
 magnet:?xt=urn:btih:F72EF2DDD8E4B84FF5C4916D03D3C113EAE13656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:F72EF2DDD8E4B84FF5C4916D03D3C113EAE13656
 magnet:?xt=urn:btih:B0ED2C4C2E410EE3ECBC86E137BF1522173874CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +148,8 @@ magnet:?xt=urn:btih:B0ED2C4C2E410EE3ECBC86E137BF1522173874CE
 ```bash
 magnet:?xt=urn:btih:3E5CB8907390B5C5D02A678B36EBE0A5BB1C39E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:3E5CB8907390B5C5D02A678B36EBE0A5BB1C39E5
 magnet:?xt=urn:btih:254E28606EB9F94892C0B5D57B138186624622C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +203,8 @@ magnet:?xt=urn:btih:254E28606EB9F94892C0B5D57B138186624622C3
 magnet:?xt=urn:btih:A125ED8C9FC695056696A4E40F06CAD6D9679C79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:A125ED8C9FC695056696A4E40F06CAD6D9679C79
 ```bash
 magnet:?xt=urn:btih:678D1050FA6492E2FF29C1231B4F78DD186D94D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:678D1050FA6492E2FF29C1231B4F78DD186D94D1
 magnet:?xt=urn:btih:60CCF92A00C9AA1B6D26F006FAC17CC35BF143B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:60CCF92A00C9AA1B6D26F006FAC17CC35BF143B1
 ```bash
 magnet:?xt=urn:btih:0F71A73C39B7BAEF758B4FB36C53389D844953B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:0F71A73C39B7BAEF758B4FB36C53389D844953B7
 magnet:?xt=urn:btih:B1CFCCF1B7492226F04D352EADBF640D1981AEE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:B1CFCCF1B7492226F04D352EADBF640D1981AEE1
 ```bash
 magnet:?xt=urn:btih:724C251BE6DB392DCC1B2AF713E537DA7BBF3CD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:724C251BE6DB392DCC1B2AF713E537DA7BBF3CD0
 magnet:?xt=urn:btih:ECDA0E4BE017F083C6EDA6DE91E439203103A2C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:ECDA0E4BE017F083C6EDA6DE91E439203103A2C9
 ```bash
 magnet:?xt=urn:btih:1F398A4781403527FBE48758137E2ACD1F4D8318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +412,8 @@ magnet:?xt=urn:btih:1F398A4781403527FBE48758137E2ACD1F4D8318
 magnet:?xt=urn:btih:EE9DCAF96C5193C8920AFA5B2D8A9F6AC2F9B91E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +437,8 @@ magnet:?xt=urn:btih:EE9DCAF96C5193C8920AFA5B2D8A9F6AC2F9B91E
 ```bash
 magnet:?xt=urn:btih:36A54C257540B8E808B61FC83F0C0DD7BEA54700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +464,8 @@ magnet:?xt=urn:btih:36A54C257540B8E808B61FC83F0C0DD7BEA54700
 magnet:?xt=urn:btih:83DE96B0E34ACCC82C32D06F1DE927E3F1B34649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +490,8 @@ magnet:?xt=urn:btih:83DE96B0E34ACCC82C32D06F1DE927E3F1B34649
 magnet:?xt=urn:btih:421D0D8624AB99AE8242121AEE21E340FDC31E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:421D0D8624AB99AE8242121AEE21E340FDC31E62
 ```bash
 magnet:?xt=urn:btih:C6DFDB54E56B223C7A5BA01A8138ECE9019673F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +543,8 @@ magnet:?xt=urn:btih:C6DFDB54E56B223C7A5BA01A8138ECE9019673F0
 magnet:?xt=urn:btih:473B44BE36207D2BAE18C4130973BD81F8FC344E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +568,8 @@ magnet:?xt=urn:btih:473B44BE36207D2BAE18C4130973BD81F8FC344E
 ```bash
 magnet:?xt=urn:btih:A60A51F07ED88267EC93B89F0C7D424E0E46D5F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +595,8 @@ magnet:?xt=urn:btih:A60A51F07ED88267EC93B89F0C7D424E0E46D5F4
 magnet:?xt=urn:btih:57905E546586AFB7B6ABFB30FAE7F5BA982C687C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:57905E546586AFB7B6ABFB30FAE7F5BA982C687C
 ```bash
 magnet:?xt=urn:btih:DE162558CDAC4CDF3B3723681B0B14335B85977F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +647,34 @@ magnet:?xt=urn:btih:DE162558CDAC4CDF3B3723681B0B14335B85977F
 ```bash
 magnet:?xt=urn:btih:F67EAE54A64723070956B8AD73836796D8F2680C
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563175   (506313) от 12.07.2022
+
+Бронко Билли. Мародеры поездов / The Train Wreckers (1905) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_506313.jpg" />
+</div>
+
+
+###  Подробнее
+
+Драматическая история, о том как отважная девушка, её жених-железнодорожник и его коллеги противостоят жестокой банде грабителей поездов. Эта тема была и есть излюбленной в американском кино. Очевидно, что это было большой проблемой в Америке. Ну, что скажешь - не было у них ОАО РЖД, вот и не было порядка.  :umnik:Производство: США, Edison Manufacturing CompanyЖанр: Короткометражный, боевик, драма, немое киноРежиссер: Эдвин С. ПортерАктеры: Гилберт М.(Бронко Билли) Андерсон, Margaret IllingtonПеревод: НемойПродолжительность: 00:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C807FD39DD3D819C89597004EC25EE1EC37ECB
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

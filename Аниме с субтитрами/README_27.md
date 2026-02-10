@@ -20,6 +20,8 @@ Kamiarizuki no Kodomo | Child of Kamiari Month | Дитя месяца бого�
 magnet:?xt=urn:btih:375A26FCB6691A7A6D93C348F9C3D5F3893F95ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Hatsukoi Monster | First Love Monster | Моя первая любовь - мо�
 ```bash
 magnet:?xt=urn:btih:A12EF0E16A137176C12FBA510267F3B4A3555FFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Black Cat | Чёрный кот [2005, TV, 23 эп. + 1 SP] DVDRip 480p raw+eng
 magnet:?xt=urn:btih:A3059E785624B46D6D4909D1D51ED06BB47705D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Uchi no Kaisha no Chiisai Senpai no Hanashi / Story of a Small Senior in My Comp
 ```bash
 magnet:?xt=urn:btih:B16D6821ED0B8737EB73B61965E7501A16B6CF94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Dekiru Neko wa Kyou mo Yuuutsu | The Masterful Cat Is Depressed Again Today | К
 magnet:?xt=urn:btih:6A0EDBE9B3E31589898E6A82AAA8E4FBB88224E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Edens Zero 2 | Нулевой Эдем [ТВ-2] [2023, TV, 25 из 25] WEBRip 72
 ```bash
 magnet:?xt=urn:btih:0A8DCB0672A760656B2BA8DE31D692494645DDB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Spy Kyoushitsu 2 / Spy Classroom 2 / Шпионский класс 2 [2023, TV, 
 magnet:?xt=urn:btih:88B5E317EA29B72401E8EA1714617B8E4E47D1D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ AI no Idenshi | The Gene of AI | Ген искусственного интел�
 ```bash
 magnet:?xt=urn:btih:B400047E8904EB14D4E00FFF4716183C652CABC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Kanojo, Okarishimasu 3 | Rent-a-Girlfriend (2023) | Девушка на час [
 magnet:?xt=urn:btih:3A098952303E44142C8215D97EC169CA872A2134
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Mugen no Juunin: Immortal | Blade of the Immortal | Клинок бессмер�
 ```bash
 magnet:?xt=urn:btih:05247BF3A6C3992ECC39EF18C3F64BDA9FD73865
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Kaze ga Tsuyoku Fuite Iru | Run with the Wind | Почувствуй ветер 
 magnet:?xt=urn:btih:385F306994B8E90DE3ED579053BD018F1DF8222E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Mahou Sensei Negima! Anime Final Gekijouban | Волшебный учитель 
 ```bash
 magnet:?xt=urn:btih:4D229104F4ED69CEFA4A78F9D6AF322B8DE49807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Mahou Sensei Negima! Mou Hitotsu no Sekai | Волшебный учитель Н
 magnet:?xt=urn:btih:A7A63530117950A5064B733EEA05BDE1D1600BDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Mahou Sensei Negima! Shiroki Tsubasa Ala Alba | Волшебный учител�
 ```bash
 magnet:?xt=urn:btih:5354F3CB32E418FB261C061AA35EC1FB5AF60D9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Hataraku Maou-sama!! 2nd Season / The Devil is a Part-Timer!! 2nd Season / По�
 magnet:?xt=urn:btih:E033A95044853F2CEEF2F0944552AAEFEFC5CFAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Kaguya-sama wa Kokurasetai: Ultra Romantic | Kaguya-sama: Love is War Ultra Roma
 magnet:?xt=urn:btih:0324CC077EF1F8F25BDA33EF2BFAF761CD570427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Kuromukuro | Чёрная сталь [2016, TV, 26 эп.] BDRip 720p 10-bit raw
 ```bash
 magnet:?xt=urn:btih:6C19B886AF6DC4C0320C97FD3B2423CC545E053A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Shiro Seijo to Kuro Bokushi / Saint Cecilia and Pastor Lawrence / Святая �
 magnet:?xt=urn:btih:628F953EB799E6863752969BAB05E37746A18337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ Shi Cao Lao Long Bei Guan Yi E Long Zhi Ming | A Herbivorous Dragon of 5,000 Yea
 magnet:?xt=urn:btih:5DFD892EC3A9E59D836BBCF1BE71D01B2FF18E47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Ayane-chan High Kick | Ayane's High Kick | Высокий удар Аянэ [199
 ```bash
 magnet:?xt=urn:btih:B2354EDEF57131B829C3B829918425074A7DEAD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Birdie Wing: Golf Girls Story | История гольфисток [ТВ-1] [20
 magnet:?xt=urn:btih:33DF08FA4687B28385D5C44625096591A40AD6DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Undead Girl Murder Farce | Фарс убитой нежити [2023, TV, 13 эп
 ```bash
 magnet:?xt=urn:btih:EFB10DA3BF40A7436442168168BE1873F607FA96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Suki na Ko ga Megane o Wasureta | The Girl I Like Forgot Her Glasses | Моя в
 magnet:?xt=urn:btih:0F192C35FBE2426A1F06BF104DE933FBC1BF5628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Niehime to Kemono no Ou | Sacrificial Princess and the King of Beasts | Жерт
 magnet:?xt=urn:btih:9F5DF4F05FD872865F905AAF5195E0CE21C30EF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ I'll/CKBC | I'll/Crazy KOUZO Basketball Club | Лихая баскетбольн
 ```bash
 magnet:?xt=urn:btih:CBCC59C16B3BA9FBE9E6FDC8589BB99BE6265EA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +683,8 @@ Takunomi. | Алкогольные посиделки [2018, TV, 12] BDRip 720p 
 ```bash
 magnet:?xt=urn:btih:C63FC307A69221155D0356B1CD65F05B295A74C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

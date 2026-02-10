@@ -22,6 +22,8 @@ VA - Matura Party Mallorca (2016) [MP3|320 кб/с] <Club, House, Funky, Progres
 magnet:?xt=urn:btih:68F2744360F7F77CD87EAB266707F6FBA5A4C40C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - electronica2@*.lv (2004) Ingus Baušķenieka Ieraksti [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:A4F6223D647ADE0226968725F3F1CDB1EFC4A4B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - electronica@*.lv (2003) Ingus Baušķenieka Ieraksti [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:5CAEB67C8302AD2D774638C7F1007C910E683A8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Mirage Of Deep - Discography 10 Releases (2009-2020) [MP3|320 Kbps] <Lounge, Amb
 ```bash
 magnet:?xt=urn:btih:1885A53D222E5B2401D446C97306039EF609F713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - EDM 2016 Ibiza Opening Party (2016) [MP3|320 кб/с] <House, Electro House
 magnet:?xt=urn:btih:848134CF34EBD152DA2306641D45FDACE1B41583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:848134CF34EBD152DA2306641D45FDACE1B41583
 ```bash
 magnet:?xt=urn:btih:9E7DAA9A22BCC164343B6500FD192608A06850D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Enhanced Ibiza 2016 (unmixed tracks) (2016) [MP3|320 кб/с] <House, Elect
 magnet:?xt=urn:btih:82E58AAA44EE6A8DDF7DA74FCCB1BA8A3E4142B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Nina - Sleepwalking (2018) Deluxe Edition [MP3|320 Kbps] <Synthpop, Synthwave, N
 ```bash
 magnet:?xt=urn:btih:51D0061F23F8694A2A728016A6D067C89D05501D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Holi Festival (2016) [MP3|320 кб/с] <House, Progressive House>
 magnet:?xt=urn:btih:D28F9199E7AEFDA6265417081C9801E2439FEE94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Buddha Luxury Vol.2 (Esoteric World Music) (2018) [MP3|320 Kbps] <Downtempo
 ```bash
 magnet:?xt=urn:btih:14DEE926570EC4EEA5779DDD53D584A118811CE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Akshan - World Of Duality (2018) Altar Records [FLAC|Lossless|WEB-DL|tracks] <Ps
 magnet:?xt=urn:btih:4F3235D3B63E00084D625A52730E3F0F29CD69DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Lounge Bar New York Vol.2 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 ```bash
 magnet:?xt=urn:btih:5F6201A24748171C5361F9A6FDCE4674D21C209C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Silk Cords - Chill Out And Relax (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 magnet:?xt=urn:btih:4820C94FEC82BC3F706201183C1C8B63F0C0ADA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Dirkie Coetzee - Reverie (2019) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:36CFF1FC2F28B583237C849490F25B5398B74C38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Markus Schulz:
 magnet:?xt=urn:btih:AD97B86167953EDE9BDE45C16F8CE835CA5263EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ VA - Easter Chilling Breakfast (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:712CCBA3117057D200B1A11DF44EBDCABB97048F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ Eyephone - Discography 7 Releases (1995-2016) [FLAC|Lossless|tracks+.cue, tracks
 ```bash
 magnet:?xt=urn:btih:036CD5D61EFB01BCE19169E8E817D09829D4EBF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ DJ Nikolaevv - Melody Of Leaving Summer (2018) [MP3|320 Kbps] <Trance, Uplifting
 magnet:?xt=urn:btih:0FFB40DCF976EED70AF6782EB01B42ABFDD74953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +537,8 @@ Label Pack - Hypercut Records - 38 Releases (2013 - 2017) [MP3|320 кб/с] <Tra
 ```bash
 magnet:?xt=urn:btih:8CA9DC0D0D4C265C10BAB2AF2FD6BDAD24D59847
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +564,8 @@ Label Pack - Kearnage Recordings - 77 Releases (2010 - 2017) [MP3|320 кб/с] <
 magnet:?xt=urn:btih:AD5A51EE81614E69C4539E88947A9F078D60181C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +589,8 @@ Alon Mor & Clockvice - The Fifth Collaje (Single) (2016) [FLAC|Lossless|WEB-DL|t
 ```bash
 magnet:?xt=urn:btih:584D2782B5B381EB044EB8651DD3A3D85C78F198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +619,8 @@ VA - The Top 100 Of Fitness Music June 2020 Get Things Started [MP3|320 Kbps] <H
 magnet:?xt=urn:btih:6C3E0E80DE8D6C410F0C1B6B9BBDE8C786658542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +647,8 @@ VA - Formation 2 (2019) [MP3|320 Kbps] <Techno, Ambient>
 ```bash
 magnet:?xt=urn:btih:4D26687947D8BD23336BD8F241A2A1B095ABDC1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +677,8 @@ VA - Beautiful Vocal Trance - Chapter 2 (2018) [MP3|320 Kbps] <Trance,Vocal Tran
 magnet:?xt=urn:btih:7DDCF579D249431CFAAA257B3CEFDB500625154B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +706,8 @@ LaserDance - Greatest Hits & Remixes (2015) 2CD [FLAC|Lossless|image + .cue] <Sp
 magnet:?xt=urn:btih:AACBBA70BBE3E3F8E3BDA6D10021012B33546C08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -684,6 +734,8 @@ KlubbHeads - 5 Albums , 12 Compilations (1996 - 2004) [FLAC|Lossless]<House, Pum
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

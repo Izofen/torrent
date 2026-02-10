@@ -28,6 +28,8 @@ Sandra - Everlasting Love (1988) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Synthpop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ C4. Mr. Blue Sky (5:05)(   Читать дальше...   )Жанр: Progressive
 ```bash
 magnet:?xt=urn:btih:93C2844022BD79A6C25A115CF23B4C1369958FAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ Billy Talent — канадская рок-группа. Была сформир
 magnet:?xt=urn:btih:FEEB64DDC9870C87808846C58D77D278B15B4AB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ VA - Белый Теплоход - Золотые шлягеры 70-х (2000) Co
 ```bash
 magnet:?xt=urn:btih:F522A15013992F2B2A0DA733DB978CFAFA2D4E51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ Bad Company - Rough Diamonds (1982)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Ro
 magnet:?xt=urn:btih:FC2A661789B5C4A58D10283D083063A97D31409A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ VA - Звезды Мехико (1969) (Л. Барашков, Т. Миансар�
 ```bash
 magnet:?xt=urn:btih:7A6AFC1DEBE7D1E0B3CA6F28B0F3994563883DA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ Sting (настоящее имя — Го́рдон Мэ́ттью То́мас 
 magnet:?xt=urn:btih:52C49FF41CA21DD68F1C1009453571DDA407F144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +231,8 @@ Mastodon — американская метал-группа из Атлант�
 magnet:?xt=urn:btih:B9FC2D182522D1529345B5F1C021AED4ACFDCCC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +259,8 @@ Opeth — метал-группа из Швеции. Для ранней муз�
 ```bash
 magnet:?xt=urn:btih:77849C14990A67012EB6383067160B9F49AA1ED3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +290,8 @@ Twisted Sister — американская глэм-метал-группа и�
 magnet:?xt=urn:btih:4FB7C0E85787712182A6D13CF60A8EE7B11EAAA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +318,8 @@ A4 Парафраза(   Читать дальше...   )Жанр: Jazz, Easy Li
 ```bash
 magnet:?xt=urn:btih:EB3EB617B322DEC6AFD9997B13D1BC7727A82D48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +348,8 @@ A4 Ангелочек (Angie Baby)(   Читать дальше...   )Жанр: 
 magnet:?xt=urn:btih:1655F0090854A45F02B4616BF73161E16B5AC5B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +376,8 @@ A4 Let's Put Out The Lights (And Go To Sleep)(   Читать дальше...   
 ```bash
 magnet:?xt=urn:btih:D554410E59E11D75E351C627B965CC74770AC44A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +406,8 @@ A4 Яак Йоала - Подберу Музыку(   Читать дальше.
 magnet:?xt=urn:btih:EC0D1A40407AA866ADF95FB8C0E354A6F8A8D043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +434,8 @@ A4. Top Jimmy (3:01)(   Читать дальше...   )Жанр: Hard RockПр�
 ```bash
 magnet:?xt=urn:btih:D06854D4B32B2584F86081D4E764026D44453965
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +464,8 @@ magnet:?xt=urn:btih:D06854D4B32B2584F86081D4E764026D44453965
 magnet:?xt=urn:btih:B9258C86254D062CB9A287D909694D832CD4FDD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +492,8 @@ magnet:?xt=urn:btih:B9258C86254D062CB9A287D909694D832CD4FDD6
 ```bash
 magnet:?xt=urn:btih:D0C29062D77F0B1F8A3577109D6BD00F8AF65079
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +522,8 @@ A4 Tony Bennett - I've Grown Accustomed To Her Face(   Читать дальше
 magnet:?xt=urn:btih:6C9C3382778439949BC6EDAB0034DD6BE31F43BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +550,8 @@ A4 Carmen McRae - Exactly Like You(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:BC26ADCA15833D7CA36C185E8FAB32048C1FE669
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +580,8 @@ Bing Crosby (Бинг Кросби) - Play A Simple Melody (1985) [FLAC 1.0|96/2
 magnet:?xt=urn:btih:A7F86F31BAD4CA4FF98182D16A2AAECF9E6E33FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +609,8 @@ A4 Art Tatum - Хумореска (Humoresque)(   Читать дальше...  
 magnet:?xt=urn:btih:DABD8BC7D5A01F33BC91F52D3EAD1DEA6C0C8E2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +636,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:CA9BC1DE0C466BC3F64B5398EDB5229BC15D7852
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +666,8 @@ Uriah Heep - Innocent Victim (1977) Reissue, 1978, Bronze [FLAC 2.0|192/24|image
 magnet:?xt=urn:btih:DBDFFC492D13357BC3A0CEF1CB27C731BA894362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +694,8 @@ Side 1:
 ```bash
 magnet:?xt=urn:btih:7CAF7AAD55B9C0712280BAD210322E49762FAB7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +724,8 @@ A4 Cheryl Lynn - At Last You`re Mine(   Читать дальше...   )Жанр
 magnet:?xt=urn:btih:CCB6F2B7D781BB17B0604F73581BFFBFE9C0B110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +752,8 @@ A4 A4(   Читать дальше...   )Жанр: Synth-pop, DiscoПродол�
 ```bash
 magnet:?xt=urn:btih:BC5137EDBBB84445E7956DAAAABB28F35A3E8041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

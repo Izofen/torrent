@@ -1,51 +1,3 @@
-###  Публикация: 957959   (325546) от 19.11.2015
-
-Иконки - Vista-like Visual Studio 2013 Boxes - Vol.2 - Translucent [ICO, PNG]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vista-like - это коробочные продукции распространенных операционных систем Windows и не только выполненные в стиле Windows Vista Box.Формат: ICO, PNGРазрешение файлов: 16x16 - 483x483
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5AAC814D0881D6634AC028994FB1EB2E9B710CF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957865   (325547) от 19.11.2015
-
-FastStone Capture 8.3 RePack (&Portable) by VIPol [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_325547.jpg" />
-</div>
-
-
-###  Подробнее
-
-FastStone Capture представляет собой довольно мощное, но в то же время простое средство для захвата снимков с рабочего стола Windows. Позволяет захватывать как отдельные элементы, окна, части рабочего пространства, так и полный экран (поддерживается прокрутка страниц). Оснащена небольшой панелью для манипуляций с изображениями. Кроме того, имеются в наличии такие (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59B138947C11E9FE7446DD48C21E67BA956235BE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957741   (325548) от 19.11.2015
 
 А.В. Кондратьев, Л.Ю. Желтухин и др. | Hyundai Solaris (Седан/Хэтчбек) (2011) [PDF, DJVU]
@@ -67,6 +19,8 @@ magnet:?xt=urn:btih:59B138947C11E9FE7446DD48C21E67BA956235BE
 ```bash
 magnet:?xt=urn:btih:CDCD0C5B45CF6178C781AB2032CF7B33DA0D109A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +47,8 @@ magnet:?xt=urn:btih:CDCD0C5B45CF6178C781AB2032CF7B33DA0D109A
 magnet:?xt=urn:btih:07E9F0D49A7A0326B8FDFD256EB4186BB301F491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +72,8 @@ magnet:?xt=urn:btih:07E9F0D49A7A0326B8FDFD256EB4186BB301F491
 ```bash
 magnet:?xt=urn:btih:8F32C9351E7424AD36ACBBB0F5C3A9312A18F542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +99,8 @@ Vista-like - это коробочные продукции распростра
 magnet:?xt=urn:btih:E163855A48F27912B2BB3A2023F7694DF6DB0AF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +124,8 @@ magnet:?xt=urn:btih:E163855A48F27912B2BB3A2023F7694DF6DB0AF4
 ```bash
 magnet:?xt=urn:btih:6971D9DE9E2965B7A46AA14E2224B8826EC74491
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +151,8 @@ magnet:?xt=urn:btih:6971D9DE9E2965B7A46AA14E2224B8826EC74491
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +176,8 @@ magnet:?xt=urn:btih:6971D9DE9E2965B7A46AA14E2224B8826EC74491
 ```bash
 magnet:?xt=urn:btih:57BCFEBC7CE6708DE9C45341BBDF0737A8B45E40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +203,8 @@ magnet:?xt=urn:btih:57BCFEBC7CE6708DE9C45341BBDF0737A8B45E40
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +228,8 @@ magnet:?xt=urn:btih:57BCFEBC7CE6708DE9C45341BBDF0737A8B45E40
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +255,8 @@ magnet:?xt=urn:btih:57BCFEBC7CE6708DE9C45341BBDF0737A8B45E40
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +280,8 @@ magnet:?xt=urn:btih:57BCFEBC7CE6708DE9C45341BBDF0737A8B45E40
 ```bash
 magnet:?xt=urn:btih:70C9D067D8873CAD3902364A1EA849DA2624B8C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +310,8 @@ magnet:?xt=urn:btih:70C9D067D8873CAD3902364A1EA849DA2624B8C0
 magnet:?xt=urn:btih:46354425D367C182F223E49C4600892D364B6B47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +339,8 @@ magnet:?xt=urn:btih:46354425D367C182F223E49C4600892D364B6B47
 magnet:?xt=urn:btih:00249212630BB395D92365A2BF503A864FEF2AA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +364,8 @@ magnet:?xt=urn:btih:00249212630BB395D92365A2BF503A864FEF2AA0
 ```bash
 magnet:?xt=urn:btih:175F31433DAB77349655AE7641DCE632EAC00AA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +394,8 @@ Ellefson-Soto - Vacation In The Underworld (2022) [FLAC 2.0|48/24|tracks|WEB-DL]
 magnet:?xt=urn:btih:49EA9F71DFAB7B2F26B1C162109420C9DEFCAB6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +423,8 @@ Kylie Minogue - Disco (Guest List Edition) (2020) 3 CD, Reissue, 2021, BMG [OGG 
 magnet:?xt=urn:btih:10232DEB28C3DAD42E13AF796023F187FA1C8D27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +449,8 @@ magnet:?xt=urn:btih:10232DEB28C3DAD42E13AF796023F187FA1C8D27
 magnet:?xt=urn:btih:BE83B037F4B478759701166FA254B1336AB22504
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +474,8 @@ Macrorit Data Wiper Unlimited Edition – мощная утилита, кото�
 ```bash
 magnet:?xt=urn:btih:206FE285FB54E2AAC8F0843A0B0852156761BC38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +504,8 @@ Caravan - Better by Far (1977) Japanese Edition, Reissue, Remastered, 2022, Bell
 magnet:?xt=urn:btih:6EC026BB2B1465A72C2F0580D43308958779D1B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +532,8 @@ The Cult - Under The Midnight Sun (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternat
 ```bash
 magnet:?xt=urn:btih:C0D535C60B39929FD6A8A0EC8FE7A3DE847AC492
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +562,8 @@ The Diego Rivera Quartet - Hercules (2004) 2006, Rivera Records [FLAC|Lossless|t
 magnet:?xt=urn:btih:0865D1F4A33E446FDA4869B39FA817C81CFD531F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +590,8 @@ Bush - The Art Of Survival (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Roc
 ```bash
 magnet:?xt=urn:btih:1D0589E4619B0F5CE4BBEB4528A5DA5588311B2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +620,8 @@ DPrize - 2 Albums (2021-2022) [MP3|320 Kbps] <Melodic Death, Black Metal>
 magnet:?xt=urn:btih:825CC686A2E91447B7E4A458E0259BBDA465761E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +645,66 @@ magnet:?xt=urn:btih:825CC686A2E91447B7E4A458E0259BBDA465761E
 ```bash
 magnet:?xt=urn:btih:70F84B18737C37620B8C589C41A318CAF08E1E14
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581571   (325591) от 07.10.2022
+
+Obituary - Cause Of Death - Live Infection (2022) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_325591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infected
+02. Body Bag
+03. Chopped In Half
+04. Circle Of The Tyrants(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D90D13AFA81E2F34B5BD6F0AB8C5FA1BAD08429A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581573   (325592) от 07.10.2022
+
+Obituary - Slowly We Rot - Live & Rotting (2022) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_325592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Internal Bleeding
+03. Godly Beings
+04. Til Death(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4B0919C3BC14B4DE395722FC7C1B58F82129530
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:8742912121502EDF7AE3DEF73628794256127D6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:8742912121502EDF7AE3DEF73628794256127D6E
 magnet:?xt=urn:btih:E5E220914C88654EE652FCE55A32040146AE29F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:E5E220914C88654EE652FCE55A32040146AE29F8
 ```bash
 magnet:?xt=urn:btih:51F5F75BEAB0C5A65E331AAB2661265EE25668C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ Galaxy Hunter - Sleeping Child (2009) [MP3|320 кб/с]<Spacesynth>
 magnet:?xt=urn:btih:D73EAC7E5F8BCB6A3CB46B9F51FC3EA567DDBC33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:D73EAC7E5F8BCB6A3CB46B9F51FC3EA567DDBC33
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:D73EAC7E5F8BCB6A3CB46B9F51FC3EA567DDBC33
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ magnet:?xt=urn:btih:D73EAC7E5F8BCB6A3CB46B9F51FC3EA567DDBC33
 ```bash
 magnet:?xt=urn:btih:DE39ABCC1AABA65D11C1492EC2E8958AC414F285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Memories are Made of This (1999) 10CD [MP3|320 кб/с]<Oldies>
 magnet:?xt=urn:btih:368DC8CABB70CBDD0A933F7568125EF95F6D61E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ VA - Поклонимся Великим Тем Годам (2010) [MP3|320 kbps]
 ```bash
 magnet:?xt=urn:btih:0C27672EF71BEC6EA4A9C81C7873BB7C348B537C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +324,8 @@ VA - Война закончилась давно (2005) [MP3|320 kbps]<Воен
 magnet:?xt=urn:btih:9A62019B66D859122432A9E10DDC3853D71867D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +358,8 @@ Yoshida Kiyoshi - Warriors (2011) [MP3|320 кб/с]<New age, Ethnic>
 ```bash
 magnet:?xt=urn:btih:C3F1FD30DB9520391D5C85AB822C13296A34F989
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +394,8 @@ Parzival (+ Stiff Miners) - 8 albums (1995-2011) [mp3|192-320 kbps] <Martial Ind
 magnet:?xt=urn:btih:CE31BA52520A516A779A0E84DD0AFF5F18B39D01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +429,8 @@ VA - Лучшие Хиты Радио DFm Часть 8 (2012) [MP3|256 кб/с]<
 magnet:?xt=urn:btih:FB65F1ED13203202D8146EEE48B386DDD4143139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +462,8 @@ Various Artists - The Hearts Of Shadow Gods (1996) [mp3|320 kbps] <Dark Ambient,
 magnet:?xt=urn:btih:24C3E2030C6D8D7744F92BB210F29832DCB23D27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +487,8 @@ magnet:?xt=urn:btih:24C3E2030C6D8D7744F92BB210F29832DCB23D27
 ```bash
 magnet:?xt=urn:btih:314630492D5D2F33B156BEE397EF52F2F1408C85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +523,8 @@ Synthaurion - Distant Frontier (2010) [MP3| ~189-221 кб/с ]<Spacesynth>
 magnet:?xt=urn:btih:C6917FAAA5825DA620357718438DC0C11C80B33D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +549,8 @@ magnet:?xt=urn:btih:C6917FAAA5825DA620357718438DC0C11C80B33D
 ```bash
 magnet:?xt=urn:btih:927EAF2B5E548A5472DE6B7C3B48F697C93BFAA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +578,8 @@ magnet:?xt=urn:btih:927EAF2B5E548A5472DE6B7C3B48F697C93BFAA4
 ```bash
 magnet:?xt=urn:btih:55696D59D0EFBE2A1FACE3742B51E63F8C89BD9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +611,8 @@ Offline Explorer Enterprise объединяет лёгкость использ
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +637,8 @@ Offline Explorer Enterprise объединяет лёгкость использ
 magnet:?xt=urn:btih:1C61A6187534BC49CB4C22C6ECD8E9761B4DB071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +662,8 @@ magnet:?xt=urn:btih:1C61A6187534BC49CB4C22C6ECD8E9761B4DB071
 ```bash
 magnet:?xt=urn:btih:D9EE0250A82A4F607853AB43DCE8B00D6D6E94FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +698,8 @@ magnet:?xt=urn:btih:D9EE0250A82A4F607853AB43DCE8B00D6D6E94FA
 magnet:?xt=urn:btih:7253DF8520BD94124C0199753DAB51313ED3EC14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +724,8 @@ magnet:?xt=urn:btih:7253DF8520BD94124C0199753DAB51313ED3EC14
 magnet:?xt=urn:btih:797269BEFD3DD56C8C21FFC540C06A39C61BE9A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -701,6 +749,8 @@ magnet:?xt=urn:btih:797269BEFD3DD56C8C21FFC540C06A39C61BE9A8
 ```bash
 magnet:?xt=urn:btih:F61C2AEFFDC2AFF717A16C0F46553EA6B42B7FCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -727,6 +777,8 @@ magnet:?xt=urn:btih:F61C2AEFFDC2AFF717A16C0F46553EA6B42B7FCA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

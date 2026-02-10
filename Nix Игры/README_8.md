@@ -19,6 +19,8 @@ World of Tanks - это массовая многопользовательск�
 magnet:?xt=urn:btih:7A67962837CFD341EAE40787D981D41F119A0F4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dirt 3 Complete Edition вобрал в себя все вышедшие доп�
 ```bash
 magnet:?xt=urn:btih:94358D7F17B7449B9665DCD6C33FEC692B02E2BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sheltered – игра на выживание в постапокалиптич
 magnet:?xt=urn:btih:2E7DB05ECB00D3A77267AB4028B8354F3C0EE61C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ We Are Chicago - игра в которой нам предстоит отпра
 ```bash
 magnet:?xt=urn:btih:67EEEE5910B9CA53FBA1E3A067AFA1E561FE1DD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:67EEEE5910B9CA53FBA1E3A067AFA1E561FE1DD6
 magnet:?xt=urn:btih:05F16735D0C3DE0D9F5962EDD3EDD099A00AAE95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:05F16735D0C3DE0D9F5962EDD3EDD099A00AAE95
 magnet:?xt=urn:btih:451F52430C0B5CE05323D90A7E064780141C7A4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:451F52430C0B5CE05323D90A7E064780141C7A4B
 ```bash
 magnet:?xt=urn:btih:1FC1C79FEC3D12851F04CE4580543C4CCCF5DEA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:1FC1C79FEC3D12851F04CE4580543C4CCCF5DEA3
 magnet:?xt=urn:btih:CE9675A77AF94996EF69CD1DE6AB2D2CFF14D264
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:CE9675A77AF94996EF69CD1DE6AB2D2CFF14D264
 ```bash
 magnet:?xt=urn:btih:36360AC52A381F70F2332D62D85CCB322BEFC07B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:36360AC52A381F70F2332D62D85CCB322BEFC07B
 magnet:?xt=urn:btih:3F748BF0D3BDF21A9114E744A1BB0AD0AE142B7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Feist - атмосферный платформер о маленьком сущ
 ```bash
 magnet:?xt=urn:btih:4458123D9F2F2FAC1F6DECD3C18004C224C1BD44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:4458123D9F2F2FAC1F6DECD3C18004C224C1BD44
 magnet:?xt=urn:btih:6D46EC9481A79406C4E567B82851072119D722DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:6D46EC9481A79406C4E567B82851072119D722DA
 ```bash
 magnet:?xt=urn:btih:2DCEC74C6F53C5FE59EF0DDF8F84F4DA3D1BB589
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Lifeless Planet - новое трёхмерное приключение для 
 magnet:?xt=urn:btih:F297ADC744002EB56CFFB7B2E47D6F05B41DF2FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ The Long Dark – это глубоко проработанный симуля�
 ```bash
 magnet:?xt=urn:btih:D9E7549085A6E196D529BA234C4C2EF1B3FC1B28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:D9E7549085A6E196D529BA234C4C2EF1B3FC1B28
 magnet:?xt=urn:btih:3F6D09EC0F23286BF1A67DFABB610BDEEB931322
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:3F6D09EC0F23286BF1A67DFABB610BDEEB931322
 ```bash
 magnet:?xt=urn:btih:3CE53AE4CA3C9FBEE76D8D0FE92A78EB471B5EC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:3CE53AE4CA3C9FBEE76D8D0FE92A78EB471B5EC5
 magnet:?xt=urn:btih:17F69185253A5A882898002BD41B633AE40C412D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Causality — головоломка о манипуляциях со време
 ```bash
 magnet:?xt=urn:btih:42CE8600DCF8C699923BD6FA78EC2A21E97EC692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ ABC Murders - это приключенческая игра с расследо
 magnet:?xt=urn:btih:6356AE6C6E8A06350E531D6DD6CE038F479628D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Sunless Sea - это приключенческий rpg хоррор, в кот�
 ```bash
 magnet:?xt=urn:btih:E0AEA0D8C7711F1B41A6FABE9BAAEF695C253A12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Transistor - научно-фантастическая игра в жанре э
 magnet:?xt=urn:btih:895E7496BDB82C6AA2A4E81C6D3B6DA965FADB07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:895E7496BDB82C6AA2A4E81C6D3B6DA965FADB07
 ```bash
 magnet:?xt=urn:btih:7F01E6ADE2477E37122BB10858D6341A96F4DD76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Neverending Nightmares - это психологический хоррор, с�
 magnet:?xt=urn:btih:99367FD62903833A592C0653EBC48D543BB13C36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ magnet:?xt=urn:btih:99367FD62903833A592C0653EBC48D543BB13C36
 magnet:?xt=urn:btih:79446DEDD133EEA9752657041746FFA5631252AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ magnet:?xt=urn:btih:79446DEDD133EEA9752657041746FFA5631252AD
 ```bash
 magnet:?xt=urn:btih:97111EABEB0D783928FDDF02A90587782B9154CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

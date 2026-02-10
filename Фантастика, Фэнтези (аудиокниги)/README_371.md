@@ -1,3 +1,30 @@
+###  Публикация: 1557878   (537371) от 17.06.2022
+
+Юлия Резник | Грешник (2022) [MP3, Петр Лупенко]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_537371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она была женой его сына. Но тогда, в самом начале, Глеб Громов об этом не знал. Сначала было… Нет! Даже не слово. Голос…
+Глубокий, завораживающий, тягучий, словно мед, который они в далеком, подернутом дымкой времени детстве добывали из гнезд диких пчел, сдирая в кровь коленки и рискуя свалиться с дерева. Он как будто в пропасть упал, как только ее услышал. Не разбирая (   Читать дальше...   )Жанр: Современные любовные романы, Эротические романыПродолжительность: 06:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:515D3E638424BC01CE906EF45E64072AD11BF3B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557849   (537378) от 17.06.2022
 
 Юлия  Васильева | Милые чудовища (2022) [MP3, Александр Башков]
@@ -20,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:9E227C4F829E2F5BBDB9B059F1E032ADA18051E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:9E227C4F829E2F5BBDB9B059F1E032ADA18051E8
 ```bash
 magnet:?xt=urn:btih:5AEE95EE576120E795095F11CF66541532C3D442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +101,8 @@ magnet:?xt=urn:btih:5AEE95EE576120E795095F11CF66541532C3D442
 magnet:?xt=urn:btih:2401CC59FE6DC5D33A8091363DE8ADF03DC2D568
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:2401CC59FE6DC5D33A8091363DE8ADF03DC2D568
 ```bash
 magnet:?xt=urn:btih:5DF05E9465FA754AAB790D702E559793CF85C56C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:5DF05E9465FA754AAB790D702E559793CF85C56C
 magnet:?xt=urn:btih:4F36D7ACA2017AC2BB6DD39F83D5AE00DD409932
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:4F36D7ACA2017AC2BB6DD39F83D5AE00DD409932
 ```bash
 magnet:?xt=urn:btih:3F91177E870FD5AF3448D5BF30715DEB7C77B4C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +205,8 @@ magnet:?xt=urn:btih:3F91177E870FD5AF3448D5BF30715DEB7C77B4C6
 magnet:?xt=urn:btih:D34F53264D21469AD007872077B20163F179E22F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ magnet:?xt=urn:btih:D34F53264D21469AD007872077B20163F179E22F
 ```bash
 magnet:?xt=urn:btih:947980D7FDB2B4858C2BD97928AF483688DB3D6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:947980D7FDB2B4858C2BD97928AF483688DB3D6C
 magnet:?xt=urn:btih:ACF2333E1048C2850C73882FA03404A8FACB405B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:ACF2333E1048C2850C73882FA03404A8FACB405B
 ```bash
 magnet:?xt=urn:btih:8F0C502AF272F0ACD130C7EBEEE5758F598245AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +311,8 @@ magnet:?xt=urn:btih:8F0C502AF272F0ACD130C7EBEEE5758F598245AA
 magnet:?xt=urn:btih:34F4D11B18170197E47D67D26B2A6397C00230A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +336,8 @@ magnet:?xt=urn:btih:34F4D11B18170197E47D67D26B2A6397C00230A6
 ```bash
 magnet:?xt=urn:btih:9BDFEFB09CCFCCF579D04E40908D1C633DC9FB93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:9BDFEFB09CCFCCF579D04E40908D1C633DC9FB93
 magnet:?xt=urn:btih:13B9128F6E83640FBC2E68A7842B12E02B95FDAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +388,8 @@ magnet:?xt=urn:btih:13B9128F6E83640FBC2E68A7842B12E02B95FDAC
 ```bash
 magnet:?xt=urn:btih:35514F91E752AFD9CC2999F0ADB7D7471B495548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +417,8 @@ magnet:?xt=urn:btih:35514F91E752AFD9CC2999F0ADB7D7471B495548
 magnet:?xt=urn:btih:37A68485461108D564BF1750E7EED95B602AC339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +442,8 @@ magnet:?xt=urn:btih:37A68485461108D564BF1750E7EED95B602AC339
 ```bash
 magnet:?xt=urn:btih:AF0C08DB49579502F47BA1E986DAA10F7D02FA1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +469,8 @@ magnet:?xt=urn:btih:AF0C08DB49579502F47BA1E986DAA10F7D02FA1F
 magnet:?xt=urn:btih:7E444DD23D318BDFB960FE68E30F6B113AE52C73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +495,8 @@ magnet:?xt=urn:btih:7E444DD23D318BDFB960FE68E30F6B113AE52C73
 magnet:?xt=urn:btih:56E32510DAAF957058D040362AEF5B311AB8E2E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +520,8 @@ magnet:?xt=urn:btih:56E32510DAAF957058D040362AEF5B311AB8E2E0
 ```bash
 magnet:?xt=urn:btih:C6D79E8F9BD248E17380BAD7B8FECE344B11A79D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +548,8 @@ magnet:?xt=urn:btih:C6D79E8F9BD248E17380BAD7B8FECE344B11A79D
 magnet:?xt=urn:btih:48F259E12160FC6A270D32C4A06010AFFCF80D63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +573,8 @@ magnet:?xt=urn:btih:48F259E12160FC6A270D32C4A06010AFFCF80D63
 ```bash
 magnet:?xt=urn:btih:A804449E74D1197E906920AA110C44DC0922C88E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +600,8 @@ magnet:?xt=urn:btih:A804449E74D1197E906920AA110C44DC0922C88E
 magnet:?xt=urn:btih:F38F7E09018CEDB6E28E61416BB3A43E26EDD569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +626,8 @@ magnet:?xt=urn:btih:F38F7E09018CEDB6E28E61416BB3A43E26EDD569
 magnet:?xt=urn:btih:A037D12D5B14853317A39ECCA7208A56F6AACC8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +651,8 @@ magnet:?xt=urn:btih:A037D12D5B14853317A39ECCA7208A56F6AACC8B
 ```bash
 magnet:?xt=urn:btih:60B7503606939AFD10EDBFF073D8B6CA0BA06BC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +680,7 @@ magnet:?xt=urn:btih:60B7503606939AFD10EDBFF073D8B6CA0BA06BC9
 magnet:?xt=urn:btih:9D24D53BF00627DBC4EA8C73C85EEE7A24A00CE2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239053   (542277) от 03.08.2018
-
-Франциска Вудворт | Осторожно! Муж – волшебник, или Любовь без правил (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_542277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимый муж, ребенок… Счастливую жизнь Виктории перечеркнула авария, и девушка очутилась в положении бесправной рабыни в другом мире. Она стремится разыскать свою семью, вот только что принесет эта встреча? Радость или боль разочарования? Срывая маски, придется набраться смелости и взглянуть на истинные лица окружающих. Кто друг и кто враг? Кому вообще можно верить (   Читать дальше...   )Жанр: Романтическое фэнтези, ПопаданцыПродолжительность: 09:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:509809323771AE80C754759A97B400A313F984D9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

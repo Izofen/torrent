@@ -19,6 +19,8 @@ Ring of Pain (2020) [Ru/Multi] (1.0.26) License GOG
 magnet:?xt=urn:btih:6096101D863D4EA27BB8CF6A5957FA20F241961E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Karos – это новая бесплатная онлйн игра в жанр
 ```bash
 magnet:?xt=urn:btih:8337C9F13AE05C94E3F8D224397290E7C783F798
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ DreadOut - на удивление весьма страшная хоррор-а
 magnet:?xt=urn:btih:4B5219C0376630CF013EDC3D393241C30F6A57A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Nights of Azure 2: Bride of the New Moon (2017) [En/Ja/Ch] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:2D17DE01062DD554308ED2B463D7C93224FECEC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Sea Of Lies 4: Tide Of Treachery / Море лжи 4: Поток предате�
 magnet:?xt=urn:btih:81BDB52D131573444605D66BDAC706028AFF3234
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/u8) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:1D434805980373987F5A55762D2726A1473CCE8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Frontline Zed (2019) [Ru/Multi] (1.00) License HOODLUM
 magnet:?xt=urn:btih:B1D789BCC1CC267FA7F73E967EE94D7949AA4791
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Minoria — новая амбициозная игра от студии Bombser
 ```bash
 magnet:?xt=urn:btih:2F88E282EB5CF50B7C885A01781D5C81BAC3C2FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Candle приключенческая игра, в которой вам пре�
 magnet:?xt=urn:btih:6A68F549C987F5EED9A90EF24C9B7B8656CFF582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Worlds Align: Beginning (2019) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:96CF77137AB06DABFE9717047FF6FC2CA5BC625D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Assassin's Creed 3: Трейнер (Trainer/+6) | FLiNG
 magnet:?xt=urn:btih:E31587D43A1831C2ABB6A8EBC568AF5D1E790043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Assassin's Creed 3: Трейнер (+5) | LinGon
 magnet:?xt=urn:btih:FF512DB2E9F9C15E65B1BD04241DAF9548B23B87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Resident Evil 6 (2013) [Ru/En] (1.0.6.165/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:E23BF3BAC40890B306F7837F789DB80DABB4C7EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Deer Hunter: Reloaded — это симулятор охоты от первог
 magnet:?xt=urn:btih:CD1049529EA97CE6E688D7DFC35E7F22AA0BEEA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ League of Light 2: Wicked Harvest / Лига Света 2: Нечестивый 
 ```bash
 magnet:?xt=urn:btih:F82206B587A0721866CF09870589D6E791F523F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Grim Tales 9: Threads of Destiny (2015) [En] Unofficial [Collector's Edition / �
 magnet:?xt=urn:btih:F42C251FAA7764CA8E07DC866E43954A72C43B8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Blood Bowl 2 - сиквел прекрасной стратегии, созда�
 ```bash
 magnet:?xt=urn:btih:9EB44DBD8925F4A16829D5E00D58749FA5C5D0B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Reigns: Game of Thrones создана на основе знаменитого 
 magnet:?xt=urn:btih:B065CFD20D3EE7A925E3E60641DC9DBA4D6BEDF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Final Exam – кровавый платформер, наполненный е�
 ```bash
 magnet:?xt=urn:btih:905DAFA10D6A9AFA6800C4E41B4399BA873BEAD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ WARSAW – это увлекательная тактическая RPG на у�
 magnet:?xt=urn:btih:0CA5D062C31BE09B55B393D6345C29523D400A2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Revival Productions с гордостью вам представляет нов
 ```bash
 magnet:?xt=urn:btih:5B714D0ED7D6993798FB476FA08B264BD3C097BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Omensight - это экшн игра-головоломка. Вы - Предве
 magnet:?xt=urn:btih:A28F4DFCFE95B5462D03309305A5B0E1C54262A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ Anomaly 2 - сиквел высоко оцененной игры Anomaly Warzon
 ```bash
 magnet:?xt=urn:btih:6B6387E64C39669443609493AF86648B130A9C56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Disciples: Liberation - это история в жанре «тёмное фэ�
 magnet:?xt=urn:btih:EEE3D9059C183380423B61EE8DDF5C7AAF02CD22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Demon Archive. The Adventure of Derek / Архив Демона. Приключ�
 magnet:?xt=urn:btih:523124D2D050A72B343E7BF8DC2020DAA96B035D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Witches' Legacy 7: Awakening Darkness / Наследие ведьм 7: Восс�
 ```bash
 magnet:?xt=urn:btih:F7633A1C50880AA462873020CB4848EDAF9D5BCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

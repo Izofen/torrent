@@ -23,6 +23,8 @@ Peter Davison - What Happened Next... (2016) [MP3|320 Kbps] <New Age, Meditation
 magnet:?xt=urn:btih:2C1B2E292E098B3263739848901B130FC91D6EFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ Afternova - For All Mankind (2015) [MP3|320 кб/с] <ChillOut>
 magnet:?xt=urn:btih:64AC9DD4C94B3BA90FCC4B78D88F6619539379F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:64AC9DD4C94B3BA90FCC4B78D88F6619539379F4
 ```bash
 magnet:?xt=urn:btih:27F8940C917F64D58F9A8433644F658FB1F41738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +109,8 @@ Dead Meadow - The Nothing They Need (2018) [FLAC|Lossless|tracks + .cue] <Stoner
 magnet:?xt=urn:btih:AFD4445204DD270CBC00C0996E445A8D9D68A933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +138,8 @@ VA - 100 Greatest 10s: The Best Songs of Last Decade (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:0FBD909CF57B9836519C1CEFBF535E5376162BEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:0FBD909CF57B9836519C1CEFBF535E5376162BEC
 ```bash
 magnet:?xt=urn:btih:2FDB9EE93346CCAB5C5AD5B21AF21B3C235D3E79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:2FDB9EE93346CCAB5C5AD5B21AF21B3C235D3E79
 magnet:?xt=urn:btih:9428201C4DBBA2C70F0EF02C07D18AB22C7E7085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:9428201C4DBBA2C70F0EF02C07D18AB22C7E7085
 ```bash
 magnet:?xt=urn:btih:77E129311AD894578848B65F2E4B5041D6558D7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ VA - Moulton Music Presents Best Of 2018 (2018) [MP3|320 Kbps] <House, Soulful, 
 magnet:?xt=urn:btih:B2E17A10A26666CF40F5D73BBACF28AF95252C2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ J.S. Bach - Toccatas BWV 910-916 for piano (Wolfgang Rubsam) (1993) [FLAC|Lossle
 magnet:?xt=urn:btih:A34D15A4550B8DC8D80E7E2292F9338DACD02337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ magnet:?xt=urn:btih:A34D15A4550B8DC8D80E7E2292F9338DACD02337
 magnet:?xt=urn:btih:17E069D032659A96121FCDF90A50AE9DA4BCFD0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:17E069D032659A96121FCDF90A50AE9DA4BCFD0C
 ```bash
 magnet:?xt=urn:btih:15B51BB7025B67F70A1BB301C4E1465FAF671944
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ VA - Best Of Phoenix Music (2018) [MP3|320 Kbps] <House, Soulful, Funky>
 magnet:?xt=urn:btih:224D46CC9DE528A950ABF4056EB8D8CABA12D201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:224D46CC9DE528A950ABF4056EB8D8CABA12D201
 ```bash
 magnet:?xt=urn:btih:140F11E728647DBDFCFC8C47516CD672680C2AD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:140F11E728647DBDFCFC8C47516CD672680C2AD5
 magnet:?xt=urn:btih:D588E13B2CD3575DD9D50025F768D359142F86B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:D588E13B2CD3575DD9D50025F768D359142F86B1
 magnet:?xt=urn:btih:807AFDF7628FD88FFE65CE5BD96CB6439DA28E28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ Yohane the Parhelion - Blaze in the Deepblue - это 2D-метроидвани�
 ```bash
 magnet:?xt=urn:btih:95EE8414075205EEDCFB586F602318956536CE3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:95EE8414075205EEDCFB586F602318956536CE3A
 magnet:?xt=urn:btih:CBEEB1CFECC23ABC9CFFBEDF7B9383809E7AE060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:CBEEB1CFECC23ABC9CFFBEDF7B9383809E7AE060
 ```bash
 magnet:?xt=urn:btih:87D32AB4699004A61337DCF3FF414E9239160300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ Golden Kamuy (2020) | Золотое божество [ТВ-3][2020, TV, 12 эп
 magnet:?xt=urn:btih:85A48A4F69073107F09F9808F273EC5B35B88800
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ Carcariass - Hell And Torment (2012) Compilation [MP3|~245 кб/с (V0)]<Technic
 magnet:?xt=urn:btih:21A16480161CDB3FD7C640F20B800F1FDFE5E59D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:21A16480161CDB3FD7C640F20B800F1FDFE5E59D
 ```bash
 magnet:?xt=urn:btih:429C25DF934C0F4BCB8741E21DC465129363146F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ Felix: The Reaper v.1.12.0 (2019) [Multi/Ru] [macOS Native game]
 magnet:?xt=urn:btih:FCD2EA767BDDA2CC2A216E36A168E8B619939E78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:FCD2EA767BDDA2CC2A216E36A168E8B619939E78
 ```bash
 magnet:?xt=urn:btih:5D40A751FFEFF4243F067151F069BAB0DC49CA6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ Keep It 2.3.4 [Multi]
 magnet:?xt=urn:btih:2D50891683AC0BA5807428995AE7B9ED382F1D49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:2D50891683AC0BA5807428995AE7B9ED382F1D49
 ```bash
 magnet:?xt=urn:btih:4AE98E31B88737FC6BA6848F63D3A768CD2A3475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

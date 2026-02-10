@@ -19,6 +19,8 @@ Wise Disk Cleaner 11.0.4.818 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:C5F5E2A55977C78EA80A08A5D1D1CDDA8896BEED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Vov Sticky Notes 8.4 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6BEC9BC12D040E8BBDCE6B3112957DE0F72A976B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ WifiInfoView - небольшая бесплатная утилита, кото�
 magnet:?xt=urn:btih:8BBDB7BB72659796B06C8C0B45A414724B6EE06E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ ZW3D Professional представляет собой очень мощный и
 ```bash
 magnet:?xt=urn:btih:82A1C170D064196138CE446608076DB484E9DF7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:A643F3C923B290AA03C1C38ABAE37D3B1C2E0CEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NirLauncher Package - универсальный пакет из более че
 ```bash
 magnet:?xt=urn:btih:C283FAA3E1952DE1A85E4EED47DB8029EEF7CD45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Delete.On.Reboot - небольшая и эффективная бесплатн
 magnet:?xt=urn:btih:9208E20D02D3BF4FA644BB2586F6FD491EC28DE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Ashampoo WinOptimizer - новая линейка пакета программ,
 ```bash
 magnet:?xt=urn:btih:0AB9A85F3DC5B9136AE45682E4CB6512044378D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Opera One 102.0.4880.16 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:32872BF79C4216CBE7BCDE537EE39EC15977DFB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Adobe Acrobat Reader — приложение Reader для самых важн�
 ```bash
 magnet:?xt=urn:btih:A6D6C001DD09E84E91B690B983E8D80B075188E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Android Studio предоставляет быстрые инструменты 
 magnet:?xt=urn:btih:BD4A4D4B091CFD4D9789A5E09936BEF116CFA160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:BD4A4D4B091CFD4D9789A5E09936BEF116CFA160
 ```bash
 magnet:?xt=urn:btih:EAB10B146D8AA5F028BE62FF235B7A2BBE242465
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ ThisIsMyFile — это небольшая, но эффективная прог
 magnet:?xt=urn:btih:DD9A8D0E30865ED126ED4910656B73244E3EAA43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Defender Remover Portable 12.5.3 [En]
 ```bash
 magnet:?xt=urn:btih:B2A07984C9077E5E890AEF2AFF7C4BDF255CFFEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 magnet:?xt=urn:btih:699099ACF05A43EDB0AEA74A4857C13621F0DB58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ YouTube ReVanced - это реинкарнация проекта YouTube Vanced
 ```bash
 magnet:?xt=urn:btih:2BCEE74F2D1350F3CADA4C73F2D0A8431C1679CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:B116BE6AA834BAC0730326C06ADC7EA419FD582B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:1D828F85514F39E2BBFC09F7790FB4D223C35E94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:6EDC4E9F7AF5BE527D6BF88F03833C7E9D5704BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ IceCream Ebook Reader Pro 6.34 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1FECF7511645F29E1951C6E8CDDF8FB5FE978633
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Download Master эффективно решает 3 главных пробле�
 magnet:?xt=urn:btih:59062A0A2DFDB3155577B75E5F4FEA985292C05B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Viber для Windows позволяет бесплатно отправлять 
 magnet:?xt=urn:btih:72C84EDB9E166767B776CE742599E02C658A8F0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:3E8FF45E520013825331DDB2DDE78EA23D38895A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:62ED1A93F77F38CF9084E2ED2FDD9DDBA97EBB0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ IceCream Ebook Reader Pro 6.34 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A0539DBCCD0C3B730DE330952D635A2591DA67B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +673,8 @@ Little Snitch 5.7 [Multi]
 ```bash
 magnet:?xt=urn:btih:EED0D872396E6DF4DF053A0C64734903DB0C5726
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,31 @@
+###  Публикация: 925287   (541314) от 06.08.2015
+
+Битва на поле Куликовом (2005) DVDRip
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_541314.jpg" />
+</div>
+
+
+###  Подробнее
+
+"…Безбожный нечестивый ордынский князь Мамай… выступил с огромным войском, желая пленить землю Русскую. Узнал об этом великий князь Дмитрий Иванович, собрал множество воинов и пошел… защитить свои вотчины, за святые церкви и за правую веру христианскую и за всю землю Русскую…"
+(из летописной повести "О побоище на Дону")
+"Я слушаю рокоты сечи (   Читать дальше...   )Производство: РоссияЖанр: ДокументальныйРежиссер: А. МалиновскийПродолжительность: 00:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5240BDA472C6566C9562041FF9E73C277B1CF73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 818515   (541340) от 03.09.2014
 
 Гражданская оборона. Выпуск 2 (2014.09.02) SATRip [RUS/UKR]
@@ -19,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:1E4D7B77869B9F574890001164850DE5BEDC49AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +74,8 @@ magnet:?xt=urn:btih:1E4D7B77869B9F574890001164850DE5BEDC49AB
 magnet:?xt=urn:btih:EF03E954E420501D0003A1FCA1128C7FB45A5A51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +99,8 @@ magnet:?xt=urn:btih:EF03E954E420501D0003A1FCA1128C7FB45A5A51
 ```bash
 magnet:?xt=urn:btih:0F8568AE8127A04E8F3D404A52ACFA01ABA94EA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +126,8 @@ magnet:?xt=urn:btih:0F8568AE8127A04E8F3D404A52ACFA01ABA94EA5
 magnet:?xt=urn:btih:73F82B0A8B2B5CC9546C5663C4D5726869D6CBC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +151,8 @@ magnet:?xt=urn:btih:73F82B0A8B2B5CC9546C5663C4D5726869D6CBC6
 ```bash
 magnet:?xt=urn:btih:0882EFFCA625B34B4F68E4B1EF8DC5581D830F5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +178,8 @@ magnet:?xt=urn:btih:0882EFFCA625B34B4F68E4B1EF8DC5581D830F5C
 magnet:?xt=urn:btih:0064E850C43512948463AE7B9DDBC3346ECFBDE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +203,8 @@ magnet:?xt=urn:btih:0064E850C43512948463AE7B9DDBC3346ECFBDE2
 ```bash
 magnet:?xt=urn:btih:B77EF7F482F7F95AC677167F5D26ECC6C5506BC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +233,8 @@ magnet:?xt=urn:btih:B77EF7F482F7F95AC677167F5D26ECC6C5506BC7
 magnet:?xt=urn:btih:1915E35D7F27900F55E2B35E6E268D6742910ED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +258,8 @@ National Geographic. Очевидцы: День «Д» / Eyewitness: D-Day (2019
 ```bash
 magnet:?xt=urn:btih:236AB8D36569011309C663E07BBB9FF5D5E7CC72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +285,8 @@ National Geographic. Очевидцы: День «Д» / Eyewitness: D-Day (2019
 magnet:?xt=urn:btih:FD4A619505D982C31158D83B13F7A7DDE270B16F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +311,8 @@ magnet:?xt=urn:btih:FD4A619505D982C31158D83B13F7A7DDE270B16F
 magnet:?xt=urn:btih:B658C14CAB038F10465D842B5BDAEDF7B92FF338
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +336,8 @@ magnet:?xt=urn:btih:B658C14CAB038F10465D842B5BDAEDF7B92FF338
 ```bash
 magnet:?xt=urn:btih:FA41A777CDF1598EC5193467BBB595DD3D94643C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +364,8 @@ magnet:?xt=urn:btih:FA41A777CDF1598EC5193467BBB595DD3D94643C
 magnet:?xt=urn:btih:8ABDE82DD172F2410937019C3187958E741586CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +389,8 @@ magnet:?xt=urn:btih:8ABDE82DD172F2410937019C3187958E741586CA
 ```bash
 magnet:?xt=urn:btih:CB1E2C282959EADE880300572853975DD6EAFF69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +416,8 @@ magnet:?xt=urn:btih:CB1E2C282959EADE880300572853975DD6EAFF69
 magnet:?xt=urn:btih:6C0C5EB406D8E2C9BA63F5C4A5749FCC068D960D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +441,8 @@ magnet:?xt=urn:btih:6C0C5EB406D8E2C9BA63F5C4A5749FCC068D960D
 ```bash
 magnet:?xt=urn:btih:C09DAABEE5786EA187EEE7F13EC92C9050DE535F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +468,8 @@ magnet:?xt=urn:btih:C09DAABEE5786EA187EEE7F13EC92C9050DE535F
 magnet:?xt=urn:btih:E0094933574BB9EDB96DA6BD7C891E3F272D234C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +493,8 @@ magnet:?xt=urn:btih:E0094933574BB9EDB96DA6BD7C891E3F272D234C
 ```bash
 magnet:?xt=urn:btih:6428C526FB760E48F24642EEDD8C67EB7820412D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +520,8 @@ magnet:?xt=urn:btih:6428C526FB760E48F24642EEDD8C67EB7820412D
 magnet:?xt=urn:btih:C071A40FF61801612FDB12C1E269534637F7EA41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +545,8 @@ magnet:?xt=urn:btih:C071A40FF61801612FDB12C1E269534637F7EA41
 ```bash
 magnet:?xt=urn:btih:F47951327FA3A1517F8739BB2A3E8E9128D3F458
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +572,8 @@ magnet:?xt=urn:btih:F47951327FA3A1517F8739BB2A3E8E9128D3F458
 magnet:?xt=urn:btih:18F98B81DCC3D8BD013BCE0867712753A21ACB35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +597,8 @@ magnet:?xt=urn:btih:18F98B81DCC3D8BD013BCE0867712753A21ACB35
 ```bash
 magnet:?xt=urn:btih:B895CA6371FCEB5CCCE41D383A1590F0BFCF85D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +624,8 @@ magnet:?xt=urn:btih:B895CA6371FCEB5CCCE41D383A1590F0BFCF85D7
 magnet:?xt=urn:btih:1C343E763C8D3F7D1D91796F57EE8DD8B254AB3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +649,8 @@ magnet:?xt=urn:btih:1C343E763C8D3F7D1D91796F57EE8DD8B254AB3A
 ```bash
 magnet:?xt=urn:btih:33395B36A2C13C316F6DF6258D09E3D2C1BB77B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +676,7 @@ magnet:?xt=urn:btih:33395B36A2C13C316F6DF6258D09E3D2C1BB77B0
 magnet:?xt=urn:btih:07537A8FCB62F0C35F481D9B2F071E5AC8221A0E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924766   (543004) от 05.08.2015
-
-Путешествие к Сатурну. Луны / Horizon. Resolution on Saturn. The Moons (1981) SATRip
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает о полете аппарата "Вояджер" в систему планеты Сатурн.Телекомпания: BBCЖанр: ДокументальныйПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC09A50B0B1CBB187DADB1A8FFB557CFCD24A8D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

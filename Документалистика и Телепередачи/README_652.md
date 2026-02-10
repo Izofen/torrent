@@ -1,3 +1,29 @@
+###  Публикация: 1106440   (873743) от 19.02.2017
+
+Лучше всех (2017.02.19) SATRip (сезон 2, выпуск 2)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_873743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новое детское телевизионное шоу талантов, куда приглашаются юные участники от трех до 12 лет. Если ваш ребенок проявляет экстраординарные способности, то его ждут в нашем шоу!Телекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 01:16:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E34F1D7EB93DD0E90931736F905A511FDD04E8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106238   (873751) от 19.02.2017
 
 Минута славы (2017.02.18) HDTVRip [H.264/720p] (выпуск 3)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:230334581A662D73EE970E9E6875D99BC2674927
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:230334581A662D73EE970E9E6875D99BC2674927
 magnet:?xt=urn:btih:FEC96BA17A508703FFE3EBB737081982FA170640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:FEC96BA17A508703FFE3EBB737081982FA170640
 ```bash
 magnet:?xt=urn:btih:017E79FCC483F3203642D121DD8501477586E77B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ K2: Сирена Гималаев / K2: Siren of the Himalayas (2012) WEB-DL [H.
 magnet:?xt=urn:btih:EE4DDC38042A70CEE0134A5C46CB44726C2395E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:EE4DDC38042A70CEE0134A5C46CB44726C2395E8
 magnet:?xt=urn:btih:18601516368C0A3EC23D279D10076A699F8AB72E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ magnet:?xt=urn:btih:18601516368C0A3EC23D279D10076A699F8AB72E
 ```bash
 magnet:?xt=urn:btih:A4566DE4312B8C42A1F87127409871ABE5D7F120
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:A4566DE4312B8C42A1F87127409871ABE5D7F120
 magnet:?xt=urn:btih:DAA8F84F8BAD90EB59F8AA0EC84C84AF66BDC0F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:DAA8F84F8BAD90EB59F8AA0EC84C84AF66BDC0F5
 ```bash
 magnet:?xt=urn:btih:7CAF8CA863002D9A13100AD2F6B1371FE7DA865D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:7CAF8CA863002D9A13100AD2F6B1371FE7DA865D
 magnet:?xt=urn:btih:FC0C0DCBF4F0AE707E72B785E792DDF60172D3BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:FC0C0DCBF4F0AE707E72B785E792DDF60172D3BB
 ```bash
 magnet:?xt=urn:btih:FBEE35B969A5F00B0119508B6D7B2E758BCF3DD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:FBEE35B969A5F00B0119508B6D7B2E758BCF3DD1
 magnet:?xt=urn:btih:5D7ACD3EDC07FAF1DF32F3B10F2D7CC48FAC84C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:5D7ACD3EDC07FAF1DF32F3B10F2D7CC48FAC84C6
 ```bash
 magnet:?xt=urn:btih:0DD981DDB17678623023D6AFB648B50C5DFA912F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:0DD981DDB17678623023D6AFB648B50C5DFA912F
 magnet:?xt=urn:btih:7BECD1730BCDA35BEBAE852CAD17322027AFBCD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:7BECD1730BCDA35BEBAE852CAD17322027AFBCD5
 ```bash
 magnet:?xt=urn:btih:D83D65DDAA302E94B56B5E3D30EA403BEC6203A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:D83D65DDAA302E94B56B5E3D30EA403BEC6203A9
 magnet:?xt=urn:btih:DA69DA70D98EEAA21D0DBDD87D82BF673DE7B4C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:DA69DA70D98EEAA21D0DBDD87D82BF673DE7B4C8
 ```bash
 magnet:?xt=urn:btih:4F0172C510B8C30D28C6382BD21E968ED9D840BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:4F0172C510B8C30D28C6382BD21E968ED9D840BA
 magnet:?xt=urn:btih:CEAB2F4E610EAFF6D5F710EC7B23D336D988A96D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:CEAB2F4E610EAFF6D5F710EC7B23D336D988A96D
 ```bash
 magnet:?xt=urn:btih:448E3EE56664289C422289C651EF843583C5800D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:448E3EE56664289C422289C651EF843583C5800D
 magnet:?xt=urn:btih:0D0277F01C7D2F041938EA45B893DAC14B558E0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:0D0277F01C7D2F041938EA45B893DAC14B558E0F
 ```bash
 magnet:?xt=urn:btih:7CFC087830BFC6857B7B420A7C07E4A92B2FB8AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:7CFC087830BFC6857B7B420A7C07E4A92B2FB8AA
 magnet:?xt=urn:btih:4A948919CB12D7DA865BFD93B0ADA9B393DDB4EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:4A948919CB12D7DA865BFD93B0ADA9B393DDB4EC
 ```bash
 magnet:?xt=urn:btih:296C60085A15C4D727CD4366B9896895E8E1114F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:296C60085A15C4D727CD4366B9896895E8E1114F
 magnet:?xt=urn:btih:3DCA4EBEC64CCD094FDD5390A116A926C9C12DB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +643,8 @@ magnet:?xt=urn:btih:3DCA4EBEC64CCD094FDD5390A116A926C9C12DB3
 ```bash
 magnet:?xt=urn:btih:7B93B48D6C5565B951CC8E6FA82A6231DD3FF601
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,29 +670,7 @@ magnet:?xt=urn:btih:7B93B48D6C5565B951CC8E6FA82A6231DD3FF601
 magnet:?xt=urn:btih:388BA709712EEAB4C3FE58867805429BC48F7D54
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105199   (876408) от 17.02.2017
-
-Вымысел исключён. Век разведчика (2017) IPTVRip [H.264]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот человек впервые стал доступным для журналистов в 90 лет. 10 февраля 2017 года ему исполняется 100 лет. Слова "живая легенда" в свой адрес Алексей Николаевич Ботян воспринимает иронично. Легенды ведь не всегда подтверждаются делами. Нашего героя можно назвать "человек-быль". Герой России, разведчик Алексей Ботян - настоящий свидетель века. (   Читать дальше...   )Телекомпания: Россия / ВГТРКЖанр: Документальный, История, БиографияПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A97A6D3D0FDB4DD87E561403A3629281E9390FF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

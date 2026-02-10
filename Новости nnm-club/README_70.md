@@ -21,6 +21,8 @@ Darksiders 2: Death Lives [Ru/En] (Repack/u6) 2012 | R.G. Catalyst
 magnet:?xt=urn:btih:DC0D7D27BC916416D26C89B54837F236598738DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Test Drive: Ferrari Racing Legends [En/Multi5] (L) 2012 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:B488EDECBBCA0395956F46E99BBEA87E92F159F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:B488EDECBBCA0395956F46E99BBEA87E92F159F5
 magnet:?xt=urn:btih:1DDC48773E03487AF8E15B0F09EB7F9E081C2C4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:1DDC48773E03487AF8E15B0F09EB7F9E081C2C4F
 ```bash
 magnet:?xt=urn:btih:36FF83F58D3216F3282398ECC5B0C4BDE4BD5F7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:36FF83F58D3216F3282398ECC5B0C4BDE4BD5F7E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Dying Light - экшн-игра на выживание от первого ли
 ```bash
 magnet:?xt=urn:btih:73DF72F24346A495A3C74F136C1913E50FAD9C0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:73DF72F24346A495A3C74F136C1913E50FAD9C0A
 magnet:?xt=urn:btih:127FD7CEAAF1470877D081B4FD9B79E6657DFB20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Tom Clancy’s Rainbow Six® Осада – новая часть всемирн
 ```bash
 magnet:?xt=urn:btih:5A8BB1AF858A887E15F342F29AC1EE393B318116
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:5A8BB1AF858A887E15F342F29AC1EE393B318116
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ The Matrix: Path of Neo / Матрица: Путь Нео (2005) [Ru/En] (1.2) R
 ```bash
 magnet:?xt=urn:btih:A629C3D47A710168DBC38E1DB9F5CDADB8A862F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Joe Cocker - Fire it Up Live (2013) BDRip [720p]
 magnet:?xt=urn:btih:785B98535340476A4BC3ACED1FE1901A3CDEEAA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:785B98535340476A4BC3ACED1FE1901A3CDEEAA8
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:785B98535340476A4BC3ACED1FE1901A3CDEEAA8
 magnet:?xt=urn:btih:DC1B793C4158808714AA09E38A09C2D09393B0A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:DC1B793C4158808714AA09E38A09C2D09393B0A5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Bandicam позволяет записать определенную облас
 magnet:?xt=urn:btih:144D5B702547C3FC02CCFF9FA2EFF497A6153C29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:144D5B702547C3FC02CCFF9FA2EFF497A6153C29
 ```bash
 magnet:?xt=urn:btih:8CC80BBD57ABC02C3CA4F2987E62412E9F2CE5EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:8CC80BBD57ABC02C3CA4F2987E62412E9F2CE5EF
 magnet:?xt=urn:btih:5D60F420CB47E14CC421A5257AF5C49C9565A82A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:5D60F420CB47E14CC421A5257AF5C49C9565A82A
 magnet:?xt=urn:btih:0BD56A2B49ACE227A1DFDBB48391433AC1108F30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:0BD56A2B49ACE227A1DFDBB48391433AC1108F30
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Far Cry 3 Deluxe Edition [Ru/En] (RePack/1.02) 2012 | R.G. Shift
 magnet:?xt=urn:btih:210A3E5CB56E39093F0C1839D4AC9479D21A7CB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Final Fantasy VI, вышедшая в свет в 1994 году, стала ше
 ```bash
 magnet:?xt=urn:btih:DCE5D2FB148FF856EEA4076DC329FB771F826B6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Stronghold Kingdoms: World 4 (2012) [Ru/En] (2.0.30.7) License
 magnet:?xt=urn:btih:C0F4F5EC9753496C2D580BA8DAC902B78AC2B105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ City Navigator Russia NT 2016.30 Navicom [Ru/En]
 ```bash
 magnet:?xt=urn:btih:19B66547A1A1DFEAFB4925BC3C94DB5955C86846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Viber для Windows позволяет бесплатно отправлять 
 magnet:?xt=urn:btih:08B5DA746BE6C116BEE5FAE2B87C1D0033638C46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:08B5DA746BE6C116BEE5FAE2B87C1D0033638C46
 magnet:?xt=urn:btih:B0FDA60C8B3EAB37B35FE4B67734BCA221441718
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:B0FDA60C8B3EAB37B35FE4B67734BCA221441718
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

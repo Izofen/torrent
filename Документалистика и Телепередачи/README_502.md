@@ -1,3 +1,29 @@
+###  Публикация: 1133332   (695117) от 12.05.2017
+
+Трискелион. Природа Бретани / Triskell. Bretagne Sauvage (2016) HDTVRip [H.264/1080i-LQ]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_695117.jpg" />
+</div>
+
+
+###  Подробнее
+
+В северо-западной Франции лежит Бретань, огромный скалистый полуостров, который бросает вызов Атлантике в течение миллионов лет. Это земля контрастов славится своими многочисленными сокровищами и захватывающими дух пейзажами. Волшебство природного наследия раскрывается через череду впечатляющих кадров, каждый вид продолжает писать историю земли с живой душой и уникальным (   Читать дальше...   )Производство: Франция, Artisans du Film, FTЖанр: Документальный, фауна, флораРежиссер: Лукас Аллейн, Базиле Джербод Ромен Генард Мэтью МауПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: ОтсутствуютПродолжительность: 00:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D73862C8B7E5D12F76C1269ED34E5A5346A1780
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133266   (695118) от 12.05.2017
 
 Убийство Павла. Расследование гибели журналиста Шеремета / Вбивство Павла. Розслідування загибелі журналіста Шеремета (2017) HDTV [H.264/720p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:5BFB2EE692317FAD4C0D5BA2177E5C83535F1FA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:5BFB2EE692317FAD4C0D5BA2177E5C83535F1FA4
 magnet:?xt=urn:btih:C69DA4408AE18477F923EE2C40125AFF7E20B514
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:C69DA4408AE18477F923EE2C40125AFF7E20B514
 ```bash
 magnet:?xt=urn:btih:84589FAAFE9B757B6B80D7A55E4F08622ADAC0BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:84589FAAFE9B757B6B80D7A55E4F08622ADAC0BE
 magnet:?xt=urn:btih:DF6E69D1B8B9000BFF587C00687F6AE01C86156B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:DF6E69D1B8B9000BFF587C00687F6AE01C86156B
 ```bash
 magnet:?xt=urn:btih:2F4B51D573C5E5E83601490347B4A7240CAC8A08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:2F4B51D573C5E5E83601490347B4A7240CAC8A08
 magnet:?xt=urn:btih:A8828028CC2C6EDA7F5DC3D1EB9A48175D428528
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:A8828028CC2C6EDA7F5DC3D1EB9A48175D428528
 ```bash
 magnet:?xt=urn:btih:78BC78A485C2569B4EAD1CFABECC1362DBF1387C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ The Beatles: Вернись / The Beatles: Get Back (2021) WEBRip [H.264/720p] (
 magnet:?xt=urn:btih:4873C30538BAFC6B0062D4970A1C1EBD70013A95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:4873C30538BAFC6B0062D4970A1C1EBD70013A95
 ```bash
 magnet:?xt=urn:btih:A04ED24FA836D704073AE95AFEF62C92C309F4EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:A04ED24FA836D704073AE95AFEF62C92C309F4EC
 magnet:?xt=urn:btih:B48DEE7946DD038D1104BDB45EAB49E4F7223170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:B48DEE7946DD038D1104BDB45EAB49E4F7223170
 ```bash
 magnet:?xt=urn:btih:00D3CE2F100F6ABDBE7C3CDD542F3B767C08964D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:00D3CE2F100F6ABDBE7C3CDD542F3B767C08964D
 magnet:?xt=urn:btih:86C0D78E849D395F45D7404DC91C4FD3E36F95C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:86C0D78E849D395F45D7404DC91C4FD3E36F95C8
 ```bash
 magnet:?xt=urn:btih:EFB8ED85E9F6A5A7675921C3C214AB8CA9A7C032
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:EFB8ED85E9F6A5A7675921C3C214AB8CA9A7C032
 magnet:?xt=urn:btih:B2055E0EB063373B2CECA2A79A45E14CD5833218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:B2055E0EB063373B2CECA2A79A45E14CD5833218
 ```bash
 magnet:?xt=urn:btih:9D157359C91E184475AE0E67E5E65E65936A9711
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:9D157359C91E184475AE0E67E5E65E65936A9711
 magnet:?xt=urn:btih:03E20ECBC7E536ACCB82595E5C0C27FBBA8CED62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:03E20ECBC7E536ACCB82595E5C0C27FBBA8CED62
 ```bash
 magnet:?xt=urn:btih:28ECBD5FB406F81CBC0D408EDCB224D62EAC81B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:28ECBD5FB406F81CBC0D408EDCB224D62EAC81B9
 magnet:?xt=urn:btih:30D45CFBD27342A473071C185D6F8885D0627D5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:30D45CFBD27342A473071C185D6F8885D0627D5B
 ```bash
 magnet:?xt=urn:btih:A018E66FFE73B075FC73435931EDAF6FCAD70C60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:A018E66FFE73B075FC73435931EDAF6FCAD70C60
 magnet:?xt=urn:btih:9425BA84DA07378691AEBE0061726EA690225739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:9425BA84DA07378691AEBE0061726EA690225739
 ```bash
 magnet:?xt=urn:btih:EC4D5562F93FE3C1DB7E08D9E76C739599565DAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:EC4D5562F93FE3C1DB7E08D9E76C739599565DAC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:EC4D5562F93FE3C1DB7E08D9E76C739599565DAC
 magnet:?xt=urn:btih:121427ABF13DDEA793E5B5690A0CDFEF32973117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:121427ABF13DDEA793E5B5690A0CDFEF32973117
 ```bash
 magnet:?xt=urn:btih:272E1D8A9CDEA1C925A7CC918094CD5C166E12C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:272E1D8A9CDEA1C925A7CC918094CD5C166E12C8
 magnet:?xt=urn:btih:32DCB8578EB788C6894621AC0A22C460E01EC244
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027370   (696535) от 19.06.2016
-
-Верю - не верю. Парагвай (17.06.2016) SATRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_696535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любители путешествий, Андрей Бедняков зовет вас в увлекательный тур по невероятным странам! В места, где раньше никто и никогда не был. В уголки планеты, которые хранят вековые тайны. По городам, о которых вы нигде больше не узнаете. Бородатый ведущий с прекрасной эрудицией проведет эксклюзивную экскурсию по местам вашей мечты. О каждом из них он расскажет пять интересных (   Читать дальше...   )В этом выпуске: Парагвай. государство находится в центре Южной Америки. Это одна их самых удивительных стран, полная интересных противоречий. Здесь есть железная дорога, но поезда не ходят. У них самый большой в мире флот, но нет выхода к морю. Помимо этого, Парагвай имеет двусторонний флаг, а одним из национальных героев является донской казак Иван Беляев. Но еще больше интересных (   Читать дальше...   )Телекомпания: Пятница!Жанр: ТелепередачаПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B20EF9BCE087EA14297E0AFB6AF00207635A479
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

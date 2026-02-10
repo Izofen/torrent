@@ -22,6 +22,8 @@ Stella - Works for You (2017) [FLAC|Lossless|tracks] <Pop, Dance>
 magnet:?xt=urn:btih:5050CE0AD6CDCB741B1AB509313B95DFDB8ED493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ Modern Talking - Ready For Romance - The 3rd Album (1986) [FLAC|Lossless]<EuroDi
 magnet:?xt=urn:btih:4D21D35B0BF1C11AFC232E7B7B5C00649159EEB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ Two Of Us - Inside Out (1988) [APE|Lossless|image + .cue] <Synth-Pop, Sophist-Po
 ```bash
 magnet:?xt=urn:btih:053B5304FA80BA517FBC327CD100DE8CCB365593
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -110,6 +116,8 @@ ABBA - Gold - Complete Edition (2008) /Universal Music, Japan/ [FLAC|Lossless]<P
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -136,6 +144,8 @@ Jive Bunny And The Mastermixers - ...The Best!! (1994) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:F7CB4783239DF42ACEBC3D8C2598D4CA8CF70405
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +174,8 @@ Gabrielle - Do It Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B>
 magnet:?xt=urn:btih:68879A5B266F8011EA3C4DF578BC01092FD82AD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +202,8 @@ Hound Dog & The Megamixers - The Greatest Ever Junior Party Megamix (1990) [FLAC
 ```bash
 magnet:?xt=urn:btih:471BDA0EA009628FFF5FA4477A3F79DB59E7EAFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +232,8 @@ Dino Sauro-Rex - Walk The Dino Dance (1993) [FLAC|Lossless|image + .cue] <Pop Ro
 magnet:?xt=urn:btih:3AC74E865461D298C73117E4C11225EDF945C69E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +260,8 @@ Francisca Valenzuela - Tajo Abierto (2014) [FLAC|Lossless|WEB-DL|tracks] <Altern
 ```bash
 magnet:?xt=urn:btih:EC0CBD352D05D8097167DEA71B1A5EBD4D817D1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +290,8 @@ VA - BRAVO Hits 96 (2017) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop
 magnet:?xt=urn:btih:36AD1AD45936FE439BCDC0196C4CB0514F9DBA4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +318,8 @@ Duran Duran - Notorious (1986) Unofficial Release [APE|Lossless|image + .cue] <P
 ```bash
 magnet:?xt=urn:btih:1A18AEFA91BAE3FCF295B1340ADBE657FC7BB016
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +348,8 @@ EL Кравчук - На облаках (2012) [FLAC|Lossless|tracks + .cue]<Pop
 magnet:?xt=urn:btih:236B4E79781B1C15F2FC199B5F3EFCBF63292FF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +376,8 @@ Two Of Us - Twice As Nice (1985) 1986, CBS/Sony (Japan) [FLAC|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:644A33546C1F71171BD932A9F3A23ADD1EE7FB72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +406,8 @@ Aly & AJ - A Touch of the Beat Gets You Up on Your Feet Gets You Out and Then In
 magnet:?xt=urn:btih:088E70013B6609CA0EFAFDC80DEC45529D32563A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +434,8 @@ Fun Fun - Greatest Fun - The Best Of (1994) [FLAC|Lossless|image + .cue] <Italo-
 ```bash
 magnet:?xt=urn:btih:25699B89AA884855997AF7A8660B29CE9E81EF87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +470,8 @@ Sarah Brightman - Greatest Hits (2CD) (2008) [APE|Lossless]<Europop, Vocal, Clas
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +498,8 @@ Freiheit - Fantasy (1988) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:17FA75E15E67B17B6373C90A4D7D8B31E91E033C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +534,8 @@ Duffy - Endlessly (2010) [FLAC|Lossless]<Pop>
 magnet:?xt=urn:btih:EEDECF53AEC5442430FF793BA7FD85A808310223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +569,8 @@ Vienna Teng - Aims (2013) [FLAC|Lossless]<Pop, Singer-songwriter>
 magnet:?xt=urn:btih:5B3EAF6B7AFA2D3A0676D9E8DA3DA5622A2975BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +597,8 @@ Bomb The Bass - Into The Dragon (1988) [APE|Lossless|image + .cue] <Dance, Acid 
 ```bash
 magnet:?xt=urn:btih:983F428E342510EEC286E98674C58DF1A01AD3C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +627,8 @@ Yazz - Wanted (1988) [FLAC|Lossless|image + .cue] <Dance, Funk, Acid House>
 magnet:?xt=urn:btih:2FA7A5DD802E2E02AEABA57B23A8317E18BF6E78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +652,8 @@ Sheryl Crow - 100 Miles From Memphis (2010) [FLAC|Lossless]<Pop Rock>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +682,8 @@ VA - BBC Radio 1's Live Lounge (2013) Deluxe Version [FLAC|Lossless]<Pop Rock>
 magnet:?xt=urn:btih:DB4EED9CFA8BBE07EA90FB7772F0758BBB889772
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +710,8 @@ Billie Eilish - Dont Smile At Me (2018) EP, Japan Limited Edition [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:3061AD4B5EEF99ED9AE753BD91EDEB71F8D93FA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -692,6 +740,8 @@ Billie Eilish - When We All Fall Asleep, Where Do We Go? (2020) Target Exclusive
 magnet:?xt=urn:btih:A1D292ED3FA67FF48207BF0D297DB8434D7B045C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -718,6 +768,8 @@ Sam Bailey - The Power Of Love (2014) Величайшие хиты XX века 
 ```bash
 magnet:?xt=urn:btih:6D8254B5C1C3892FE12159259E8862AEEBD752A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

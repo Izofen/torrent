@@ -19,6 +19,8 @@ Ario бросает игроков в фэнтезийное царство, т�
 magnet:?xt=urn:btih:556C9C70A470F1783CEE83322EC3FBD33901167F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:556C9C70A470F1783CEE83322EC3FBD33901167F
 ```bash
 magnet:?xt=urn:btih:F23C93164271B9785010BC0F345275526ED7B542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Open Roads (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:D3AA18199231ABB8D06A06E67C3F01FB252C6BF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Far manager — бесплатный файловый менеджер с под
 ```bash
 magnet:?xt=urn:btih:D907AD9D660050AA249F981A2996B5B90D5E361E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ OBS Студия - бесплатное программное обеспече�
 magnet:?xt=urn:btih:88AEBCB41CB54ABF9F760D01E20E1D92CB512750
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Kodi (ранее XBMC) — бесплатный кроссплатформенн
 ```bash
 magnet:?xt=urn:btih:8B1F33F4EF3D6283BFF50D2F8CC0046EE05152A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ JetBrains DataGrip - это инновационное программное о
 magnet:?xt=urn:btih:0C12866D68A08144EA508A2EC6CD021FA9FA3774
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:0C12866D68A08144EA508A2EC6CD021FA9FA3774
 magnet:?xt=urn:btih:3474991906FF2A29E8F5EFF217802D81E2286149
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Sea of Stars - динамичное ролевое приключение, ра�
 ```bash
 magnet:?xt=urn:btih:53F1ACC60BBB2D7483EC8DEC5051A69CA7F2C30B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Kodi (ранее XBMC) — бесплатный кроссплатформенн
 magnet:?xt=urn:btih:69378A3CEEAD00137054F373E5D6EB33AED43BF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:69378A3CEEAD00137054F373E5D6EB33AED43BF3
 ```bash
 magnet:?xt=urn:btih:D42318FA9982A65BEB72B6B17BB1E31B237C7DBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Withering Rooms отличается от многих хорроров. Во-п
 magnet:?xt=urn:btih:415C582D3877CE102FB1CD4C85B853D22FA841E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ YouTube – платформа почти безграничных возмож�
 magnet:?xt=urn:btih:7AD865418A5A28D52985DF2F9D86D6DA31C7D388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ SnapTube - YouTube Downloader VIP v7.17.0.71750910 Final Mod by Balatan [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:7BFF618AA2962EB6A6769D29145EE91BA85B3C73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:7BFF618AA2962EB6A6769D29145EE91BA85B3C73
 magnet:?xt=urn:btih:0B62740F52B79055CC74BA0143A4F7978F471AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:0B62740F52B79055CC74BA0143A4F7978F471AB8
 ```bash
 magnet:?xt=urn:btih:40CB0E49166532C7B2DAF281F60E1C67B3D2A894
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:40CB0E49166532C7B2DAF281F60E1C67B3D2A894
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:40CB0E49166532C7B2DAF281F60E1C67B3D2A894
 ```bash
 magnet:?xt=urn:btih:3E2A9D1881DDE69696508C6364EEA113D4EA0C3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:3E2A9D1881DDE69696508C6364EEA113D4EA0C3C
 magnet:?xt=urn:btih:C74B7388215F3A482B555F31190049F90A369F43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:C74B7388215F3A482B555F31190049F90A369F43
 ```bash
 magnet:?xt=urn:btih:D6827DAAA707064FA31D9FAE639A534A2A8E79AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:D6827DAAA707064FA31D9FAE639A534A2A8E79AE
 magnet:?xt=urn:btih:856895904DF5BF3450D0D242712A9A4A71A62559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ DYSCHRONIA: Chronos Alternate (2024) [Multi] (1.0) Scene Tenoke [Dual Edition] [
 ```bash
 magnet:?xt=urn:btih:59EA8F0E91EC3604BBB13902910694E8395C1E14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:59EA8F0E91EC3604BBB13902910694E8395C1E14
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Shingeki no Kyojin: The Final Season - Kanketsu-hen | Attack on Titan: Final Sea
 ```bash
 magnet:?xt=urn:btih:36442EC554EE1C31BFC85B7F826A1843D8B9D843
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Pathfinder: Gallowspire Survivors, созданная по мотивам поп
 magnet:?xt=urn:btih:70B455260E2680AF111C8EA6AE3726AC0CA0D20F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:70B455260E2680AF111C8EA6AE3726AC0CA0D20F
 ```bash
 magnet:?xt=urn:btih:D9E375CB9587A1F91567D6505CF0451E25699565
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

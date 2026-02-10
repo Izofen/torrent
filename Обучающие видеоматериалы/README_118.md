@@ -20,6 +20,8 @@ Altblog, Кирилл Рамирас | Курс «Ракурс» — взгля�
 magnet:?xt=urn:btih:F3617224B1553B0845D8E4788E53E4F7A7C25BCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:F3617224B1553B0845D8E4788E53E4F7A7C25BCB
 ```bash
 magnet:?xt=urn:btih:A50105B01DBDE6489357DD95157CD21FD1F7021E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Vesperfin, Арина Веспер | Личные финансы (2022) WEB-DL [
 ```bash
 magnet:?xt=urn:btih:C5752691E1A291686A42DC7635C9F458880AC8D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:C5752691E1A291686A42DC7635C9F458880AC8D0
 magnet:?xt=urn:btih:B67AE0E64A080B42F72B11DE163C82B680898406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:B67AE0E64A080B42F72B11DE163C82B680898406
 ```bash
 magnet:?xt=urn:btih:8A8E11395D841385A70F750A278B1EBE198B63F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:8A8E11395D841385A70F750A278B1EBE198B63F2
 magnet:?xt=urn:btih:E75FC43D78B9B2440A77BEA9D705D73D7504DC2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:E75FC43D78B9B2440A77BEA9D705D73D7504DC2A
 ```bash
 magnet:?xt=urn:btih:7AF4CEC876F4609D88065C9AD9F5DE64570D4012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ Rocket Sales, Георгий Кичев | Цифровой отдел прода
 ```bash
 magnet:?xt=urn:btih:52C2C0180B49CD78A243BC27804A17BCA400A235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +246,8 @@ magnet:?xt=urn:btih:52C2C0180B49CD78A243BC27804A17BCA400A235
 magnet:?xt=urn:btih:2C931B6242FC3B5F7E919A59ED52999264EE24B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ Udemy, Imran Teli | DevOps Beginners to Advanced | Decoding DevOps with Projects
 ```bash
 magnet:?xt=urn:btih:D6EA931FD96027746D212F627A4DD6B033D5F4CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +304,8 @@ magnet:?xt=urn:btih:D6EA931FD96027746D212F627A4DD6B033D5F4CE
 magnet:?xt=urn:btih:59869543589D52BB1E755BA1759EE021C9D92B71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ KodeKloud, Mumshad Mannambeth | DevOps Pre-Requisite Course (2022) WEB-DL [EN / 
 magnet:?xt=urn:btih:0785DAD2183074F12D2FB3620531E64785948613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +357,8 @@ KodeKloud, Mumshad Mannambeth, Vijin Palazhi | Learning Linux Basics Course & La
 ```bash
 magnet:?xt=urn:btih:7A6655D3EF9D60FA625992E40C26CB31B3A06B8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +387,8 @@ Regina Doctor | Все, что нужно знать про анализы (2022
 magnet:?xt=urn:btih:F9BB145C76FEBAF89AA38389BF3FF826533D062E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +412,8 @@ Samouchka School, Алексей Меркулов, Максим Маркевич
 ```bash
 magnet:?xt=urn:btih:2CAFBB840DF7544C33B3E9F3DB44DB2549C0CE1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +439,8 @@ Gumroad, Flycat | Blender – Bunny Girl – Full process videos by Flycat (2021
 magnet:?xt=urn:btih:6A9610E319FA85FCF1F48BE9F5AB49A35EBA140B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ Gumroad, Flycat | Create an MMORPG character style in Blender – Real-time proc
 ```bash
 magnet:?xt=urn:btih:4D65E262C2DBE83121F1AE8D9DE4A388CE513EAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +496,8 @@ magnet:?xt=urn:btih:4D65E262C2DBE83121F1AE8D9DE4A388CE513EAE
 magnet:?xt=urn:btih:7D9A244248B62BE49E3EF7A6091FBA2494DFF59F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +526,8 @@ magnet:?xt=urn:btih:7D9A244248B62BE49E3EF7A6091FBA2494DFF59F
 ```bash
 magnet:?xt=urn:btih:D569CBA28FA278015DC590D43F3B5F9A4C838BB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +558,8 @@ magnet:?xt=urn:btih:D569CBA28FA278015DC590D43F3B5F9A4C838BB9
 magnet:?xt=urn:btih:B4BDE9970C93B2DA89979F07567723E71AC347DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +587,8 @@ Udemy, Зоя Теммерман | 3Д моделирование в SketchUp (2
 magnet:?xt=urn:btih:68EE740B4C02249AD6E47023CF5472B85F7D0260
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +612,8 @@ Amlab, Каюрова Наталия | Как рисовать в Photoshop (201
 ```bash
 magnet:?xt=urn:btih:568457BE2F9B55EEE4D28D9D8194D2F30ADDBB5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +639,8 @@ Flycat | Blender 3.1 – Tracer Character Modeling – Full process videos and 3
 magnet:?xt=urn:btih:2720C534174A0DC51A18C14FBD9017454250CC76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +664,8 @@ Gumroad, Flycat | Blender 3.0 - JinX Modeling – Full process video and 3D mode
 ```bash
 magnet:?xt=urn:btih:7BA5E0A4F4E5955728F85CE97BA3DA50AF1262AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +691,8 @@ Digital Tutors, Clinton Crumpler | Creating Rock Structures for Games in ZBrush 
 magnet:?xt=urn:btih:1B2EBE065254AD103A5A7EB0218E5191A557D600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ Patreon, FlyCat | Ahri Modelling - Full process videos and 3D model (2021) PCRec
 ```bash
 magnet:?xt=urn:btih:8DA34E5CC2CC362541BF3F6D441DB3C6B88F03B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

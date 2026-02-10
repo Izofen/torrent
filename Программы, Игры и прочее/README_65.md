@@ -20,6 +20,8 @@ Genius Art: Image AI Generator v1.5.3 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:9E9E2B45DCD225BF1AE0583D41CB6974CD72490C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:9E9E2B45DCD225BF1AE0583D41CB6974CD72490C
 magnet:?xt=urn:btih:73FCB4BEEEDA5039FFCDFCD21BC6B27E78181F4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:73FCB4BEEEDA5039FFCDFCD21BC6B27E78181F4F
 ```bash
 magnet:?xt=urn:btih:C80E4D24F62FD5A3D4B451F810669E16BA688CFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Russian crosswords v1.15.3 [Ru/En] (обновляемая)
 magnet:?xt=urn:btih:410D325184EA03C3B79DA072C023C1F3E0EA3EC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:410D325184EA03C3B79DA072C023C1F3E0EA3EC7
 magnet:?xt=urn:btih:7B9D3BC66A3D8D1EAD0186DD0A1A427D43DF45A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Do It Now: RPG список дел, ежедневник, планировщик
 ```bash
 magnet:?xt=urn:btih:B43A543377E60114C1C0C5183A55D112B76C90A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Lantern: Лучше, чем VPN v6.8.10 [Ru/Multi]
 magnet:?xt=urn:btih:40BD2771DEB629A1DC2CA7958EB0B68A8FF93DFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ NYMF – это авторское мобильное приложение Да�
 magnet:?xt=urn:btih:08FCE38EA885AA8696F9830A9FF1C1842694CF0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Electrical Calculations Pro / Электрические расчеты v9.0.5-h
 ```bash
 magnet:?xt=urn:btih:9B9AF7333D0DF1922ED45E3ADC7448957DC14BEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Reface v3.54.0 Mod by Mixroot [Multi]
 magnet:?xt=urn:btih:F5021DAC836005FD56D07B9E84F03B9D80D8848E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Lighting calculations / Расчеты освещения v5.3.1 Mod by vedsereg
 magnet:?xt=urn:btih:E8409FC9FD700FD1009892B86FF452B988EBDB6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:E8409FC9FD700FD1009892B86FF452B988EBDB6E
 ```bash
 magnet:?xt=urn:btih:311718A26F4FB93D5A4BD352515AAC6E6EF50E3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Bubble Screen Translate распознает любой текст на ваше
 magnet:?xt=urn:btih:BCC8978FE248167C9AC3F6AF86C17C68FB2FF993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Ventusky: Прогноз погоды v29.0 Mod by maxi123444 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:55B7E4BE2479B41CCC9AA4DC251387EDF2B758EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:55B7E4BE2479B41CCC9AA4DC251387EDF2B758EF
 magnet:?xt=urn:btih:65F151A3929A2AD51327FF6689783056B66AEFDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ VPN Russia - VPN сервера в России 1.183 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:ACB0ED89F2F0B2E63B7BD456BA944EC64D084475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ Toy Defense 2 / Солдатики-2 v2.7.0.1 + Mod [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B89D987C45F3D6DED1C464DD4066CD49167892AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:B89D987C45F3D6DED1C464DD4066CD49167892AC
 magnet:?xt=urn:btih:D553AF496C9EA425BB8EF4BF07214A6727433C6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Photo Map - это ваша новая персональная интеракт
 ```bash
 magnet:?xt=urn:btih:55A39ABFE565F76C2599B2553FC212F9BFF4DBE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ Filmix Android - каталог из ~ 100 000 фильмов и сериало�
 magnet:?xt=urn:btih:8E999CC48284951171199F115F7CB7262820AF3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ Find my kids – это приложение для родителей, кото
 ```bash
 magnet:?xt=urn:btih:2A009AC6FEDDE9953C1AAE2EA54BABE03F90FD8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:2A009AC6FEDDE9953C1AAE2EA54BABE03F90FD8F
 magnet:?xt=urn:btih:72C3C26C7E4A2E3521FAB3FE399C0135D9EC31E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ My TTS: Text-to-Speech v1.1.6 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:5A8BF15D0B83A58B0FE5E9AE1F681C4204E3D012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ Enhancer - AI Photo Enhance v1.5.1 Mod by maxi123444 [En]
 magnet:?xt=urn:btih:54CEE7A823476478953F0D226FA23BA4BE200224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:54CEE7A823476478953F0D226FA23BA4BE200224
 magnet:?xt=urn:btih:D1D67082A328AA93BD4ED57FC3C5C062DD6AFF86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Colorfy - это раскраска, призванная помочь вам у
 ```bash
 magnet:?xt=urn:btih:8CF37BAF1E9FEC4190E1C9B642C1A480E7E37845
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

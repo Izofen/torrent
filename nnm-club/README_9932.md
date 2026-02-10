@@ -1,52 +1,3 @@
-###  Публикация: 958692   (321501) от 22.11.2015
-
-Проекты - Motion Array - Plastic Card Promotion [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321501.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания презентации ваших кредитных карт.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:419475BDDE3C318D11C33E3188F13026394E611A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958721   (321502) от 22.11.2015
-
-Гранит науки / Rocket Science (2007) HDTV [H.264/1080i-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хэл Хефнер — обычный заикающийся подросток с таким же приятелям-неудачником Хестоном. Однажды, когда Хэл едет домой, он знакомится с Джинни, симпатичной предводительницей дискуссионного клуба. Она просит Хэла заменить её отсутсвующего партнера Бена, и Хэл соглашается. В процессе практики Хэл влюбляется в Джинни…Производство: США, B&W Films, Duly Noted, HBO FilmsЖанр: Драма, КомедияРежиссер: Джеффри БлитцАктеры: Николас Д'Агосто, Анна Кендрик, Уткарш Амбудкар, Кендес Шольц, Марго Мартиндейл, Рис Томпсон, Винсент Пьяцца, Дэнис О`Харе, Лизабет Бартлетт, Аарон ЙуПеревод: Многоголосый закадровый (AMedia)Продолжительность: 01:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C933156B9DC4CDC0F98B02CD9F0B6FD6918CEF90
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958747   (321503) от 22.11.2015
 
 QupZilla 1.8.9 + Portable [Multi/Ru]
@@ -67,6 +18,8 @@ QupZilla — web-браузер построенный на базе Qt и бр�
 ```bash
 magnet:?xt=urn:btih:DEA18E647ED028ABF2BFAFC722904A82D485051A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +45,8 @@ magnet:?xt=urn:btih:DEA18E647ED028ABF2BFAFC722904A82D485051A
 ```bash
 magnet:?xt=urn:btih:610DB0F88AFCCB1109E407F27A0B13C0D131F440
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +75,8 @@ magnet:?xt=urn:btih:610DB0F88AFCCB1109E407F27A0B13C0D131F440
 magnet:?xt=urn:btih:7301ABC8EF509F2171C4DE792323ECC48B9E7A2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +100,8 @@ magnet:?xt=urn:btih:7301ABC8EF509F2171C4DE792323ECC48B9E7A2E
 ```bash
 magnet:?xt=urn:btih:EBB175BDCA06CD9500DCC974548E1232E6CDA0A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +127,8 @@ magnet:?xt=urn:btih:EBB175BDCA06CD9500DCC974548E1232E6CDA0A0
 magnet:?xt=urn:btih:9CD91583C12C8DFDBD45B8E9E5F92E73B0597CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +152,8 @@ Ashampoo Burning Studio 16 - это всё то, о чём Вы просили. 
 ```bash
 magnet:?xt=urn:btih:561CDF2C4B23E24256A70D2BEA8796A827688FB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +179,8 @@ magnet:?xt=urn:btih:561CDF2C4B23E24256A70D2BEA8796A827688FB5
 magnet:?xt=urn:btih:5A373B886A8B7C0EF6E8387FC080BE1B2816DF5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +204,8 @@ magnet:?xt=urn:btih:5A373B886A8B7C0EF6E8387FC080BE1B2816DF5D
 ```bash
 magnet:?xt=urn:btih:D5D8039C716C533F88C3B4C56CC7569A65EBD1C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +231,8 @@ magnet:?xt=urn:btih:D5D8039C716C533F88C3B4C56CC7569A65EBD1C4
 magnet:?xt=urn:btih:ACA6C71C63E0318766A09ECDC548DDE5CA00C85D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +256,8 @@ magnet:?xt=urn:btih:ACA6C71C63E0318766A09ECDC548DDE5CA00C85D
 ```bash
 magnet:?xt=urn:btih:114239C7553D664407D735E6EEED86A389C924FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +286,8 @@ VA - SolarstonePresents... Pure Trance V4 (MixedBySolarstone+GaiBarone) (2015) [
 magnet:?xt=urn:btih:6D7FBDD0D28E6F9DC7B91D83CBDC538442EA2841
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +311,8 @@ magnet:?xt=urn:btih:6D7FBDD0D28E6F9DC7B91D83CBDC538442EA2841
 ```bash
 magnet:?xt=urn:btih:176816B71DF4FAA8DB6F7CE70365090009301D62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +341,8 @@ VA - Chilled, The After-Hours Sessions (2002) Carbon Recordings [FLAC|Lossless|t
 magnet:?xt=urn:btih:9487D9A41F036952EB723A916454BCDEC01534C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +368,8 @@ magnet:?xt=urn:btih:9487D9A41F036952EB723A916454BCDEC01534C3
 ```bash
 magnet:?xt=urn:btih:208410F40A8AB26DB5BE208448DBDB97BFA24E08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +398,8 @@ magnet:?xt=urn:btih:208410F40A8AB26DB5BE208448DBDB97BFA24E08
 magnet:?xt=urn:btih:9F5A4FF45C48A2F6EC6D48A6AFC3A0CEADA7D050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +426,8 @@ Acker Bilk & His Paramount Jazz Band - Mr Acker Bilk's Lansdowne Folio (1960, 19
 ```bash
 magnet:?xt=urn:btih:F14676B1C82C80A0A2175A90FC28784691609936
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +456,8 @@ magnet:?xt=urn:btih:F14676B1C82C80A0A2175A90FC28784691609936
 magnet:?xt=urn:btih:FEE52025234998FB33FFAF93CDCD0600B55D541B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +484,8 @@ magnet:?xt=urn:btih:FEE52025234998FB33FFAF93CDCD0600B55D541B
 ```bash
 magnet:?xt=urn:btih:7980B6CF915DB3139573D80C2938C0309C0A3F5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +514,8 @@ Iain Matthews - Excerpts from Swine Lake (1998) 1999, Tangible Music [FLAC|Lossl
 magnet:?xt=urn:btih:409F8C8BE40FF1AEC045E4CEFE82F6CB74BDE687
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +542,8 @@ magnet:?xt=urn:btih:409F8C8BE40FF1AEC045E4CEFE82F6CB74BDE687
 ```bash
 magnet:?xt=urn:btih:BED77278F78940D20D94DDF76EFBE2B6E2BAF062
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +572,8 @@ Mara - ...If You Only Knew (2003/2010) [FLAC|Lossless|WEB-DL|tracks] <Progressiv
 magnet:?xt=urn:btih:19F586037BC5E95EA7375376123E26AC4A577F12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +600,8 @@ Evergrey - Recreation Day (2003) (Remastered 2018) [FLAC|Lossless|image + .cue ]
 ```bash
 magnet:?xt=urn:btih:373CB2E27B234A6E049D055707B729F7C8333D11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +630,8 @@ Walter Giardino - Temple (1998) [APE|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:B6D7239E7C7FCE700DCAE8A507D5E9E4B2E8AEB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +658,67 @@ Powermad - Absolute Power (1989) [APE|Lossless|image + .cue] <Power Metal, Heavy
 ```bash
 magnet:?xt=urn:btih:41B27A98F5E0AA23197560359718982940817B1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259319   (321527) от 03.11.2018
+
+Sahib Shihab - Complete Sextets Sessions 1956-1957 (2008) 2CD, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321527.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Swiss Movement [4:57]
+02. Night People [4:42]
+03. I've Got You Under My Skin [3:12](   Читать дальше...   )Жанр: Hard Bop, BopПродолжительность: 01:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA36057458056A8C8A417B69FAB308290539F3CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 62985   (321528) от 03.11.2020
+
+Kevin Kern - 8 альбомов (1996 - 2005) [APE|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ке́вин Ке́рн (англ. Kevin Kern; род. 22 декабря 1958) — американский композитор и пианист. Кевин Керн родился пятым из шести детей в семье хирурга и домохозяйки в Детройте, штат Мичиган, США.
+Начал учиться играть на фортепиано с четырёх лет, с восьми стал писать музыку. В 14 он уже выступал с группой, которую основал сам. Кевин был полон решимости стать (   Читать дальше...   )Альбомы:
+1996 - In the Enchanted Garden
+1997 - Beyond the Sundial
+1998 - Summer Daydreams(   Читать дальше...   )Жанр: New AgeПродолжительность: 06:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCE60C49FFDDA24CE055FCF84A4CC7174EE1405F
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

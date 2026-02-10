@@ -28,6 +28,8 @@ VA - Psytrance Frequency (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 magnet:?xt=urn:btih:8956C2550E01AED77C87B53CE6585531D4BECC4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ magnet:?xt=urn:btih:8956C2550E01AED77C87B53CE6585531D4BECC4C
 magnet:?xt=urn:btih:B80F73F75ED091AF45A09413127E93808AB951E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:B80F73F75ED091AF45A09413127E93808AB951E3
 ```bash
 magnet:?xt=urn:btih:7BE415AD90DB7021F7BF5DE230ED4621CA2C4A8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:7BE415AD90DB7021F7BF5DE230ED4621CA2C4A8A
 ```bash
 magnet:?xt=urn:btih:6A08B2FEB717FCE21CC2A2E9C2EEE2B8A5B54F46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ Kuba - Random Precision (2012) [MP3|320 кб/с]<Ambient, Downbeat, Lounge, Dub>
 magnet:?xt=urn:btih:2D86DCF525C480877957C3523F1569EE38B74A7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +179,8 @@ Lemon - With A Twist (2005) [MP3|320 кб/с]<Easy Listening, Lounge, Bossanova>
 magnet:?xt=urn:btih:282D8D436FFA1BFD3C5F9E25ACB751E9E2B8103B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +205,8 @@ magnet:?xt=urn:btih:282D8D436FFA1BFD3C5F9E25ACB751E9E2B8103B
 ```bash
 magnet:?xt=urn:btih:3CFE8FCA3F0E1A9B89F5BDD8694F35958F94A531
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +234,8 @@ magnet:?xt=urn:btih:3CFE8FCA3F0E1A9B89F5BDD8694F35958F94A531
 ```bash
 magnet:?xt=urn:btih:0E3D9D68C06643992720F8BAAE54AB8FDAAA0946
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +270,8 @@ VA - Русская Заводная Танцевалка 2 (2012) [MP3|256 kbps
 magnet:?xt=urn:btih:DA3788A2573603ED45742A386FF630BBDBB931CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +299,8 @@ magnet:?xt=urn:btih:DA3788A2573603ED45742A386FF630BBDBB931CB
 ```bash
 magnet:?xt=urn:btih:9A2F1FA2E13E126BC35EF0DFE3437767A89A84CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +335,8 @@ Prometheus - 1001 (2012) [MP3|320 кб/с]<Heavy/Power Metal>
 magnet:?xt=urn:btih:5DFA21D2DF9C5C6E65E54D9F4EE32FBA1196B292
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +361,8 @@ magnet:?xt=urn:btih:5DFA21D2DF9C5C6E65E54D9F4EE32FBA1196B292
 ```bash
 magnet:?xt=urn:btih:EF791CDA07FCE51DF53D22C99E65CB6B1FC70DD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +392,8 @@ magnet:?xt=urn:btih:EF791CDA07FCE51DF53D22C99E65CB6B1FC70DD0
 magnet:?xt=urn:btih:83B40147EDE3E44E79EBBCCD7417AABDDD03B167
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +417,8 @@ magnet:?xt=urn:btih:83B40147EDE3E44E79EBBCCD7417AABDDD03B167
 ```bash
 magnet:?xt=urn:btih:DDC87732D67122BE62A175729712D94EE5DD9721
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +447,8 @@ magnet:?xt=urn:btih:DDC87732D67122BE62A175729712D94EE5DD9721
 ```bash
 magnet:?xt=urn:btih:A8F84D7D4960DC7331D817CED4FBAC727BE13A9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +483,8 @@ The Explorers Club - Grand Hotel (2012) [MP3|320 кб/с]<Lo-Fi, Easy Listening,
 magnet:?xt=urn:btih:C65156CD5E2D07C882F09A5AE58B4C37C81C2CE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +518,8 @@ VA - Dance Жара. Зарубежный (2012) [MP3|256 кб/с]<Рор>
 magnet:?xt=urn:btih:28502A3F7E749FAFE9A867937795237C61A621F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +547,8 @@ Fadios - Paradiso (2012) [MP3|320 кб/с]<Trance, Uplift, Progressive, Tech, Dr
 magnet:?xt=urn:btih:FBD414C714523D24181C00F63ACD245BFA9E3E5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +572,8 @@ magnet:?xt=urn:btih:FBD414C714523D24181C00F63ACD245BFA9E3E5F
 ```bash
 magnet:?xt=urn:btih:0B0273ACD5C6A030C94B41D103EE3B84C5FF9274
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +608,8 @@ Hobo - Iron triangle (2012) [MP3|320 кб/с]<tech-house>
 magnet:?xt=urn:btih:9A23608B2EA128E203C9AE04CAE1B5E349518982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +633,8 @@ TapinRadio - это простой и достаточно надежный ра
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +661,8 @@ Zee Avi - 2 Альбома (2009-2011) [FLAC|Lossless]<Acoustic Pop, Ballad, Voc
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +697,8 @@ VA - Souz RnB (2012) [MP3|320 kbps]<RnB>
 magnet:?xt=urn:btih:E7AB0DBCC85110387D3472DBFDF6DD797CB66D64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +722,8 @@ magnet:?xt=urn:btih:E7AB0DBCC85110387D3472DBFDF6DD797CB66D64
 ```bash
 magnet:?xt=urn:btih:E8F75467D8B94785AF251C6618F5587EAF61C8B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -704,6 +752,8 @@ magnet:?xt=urn:btih:E8F75467D8B94785AF251C6618F5587EAF61C8B8
 ```bash
 magnet:?xt=urn:btih:F36E9BF58A195D20D62BC3006C852BD77B7B0850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -737,6 +787,8 @@ Nite Jewel - One Second of Love (2012) [MP3|320 кб/с]<Electronic, Indie-Pop, 
 ```bash
 magnet:?xt=urn:btih:BC2390D4B6451C9C7E2E13B64622F18264F1F5B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 958248   (324886) от 20.11.2015
-
-USDownloader 1.3.5.9 (20.11.2015) Portable [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Universal Share Downloader - это программа для скачивания файлов. В первую очередь оптимизирована под скачивание (в том числе полностью автоматическое) с различных файлообменных серверов типа rаpidshаrе.cоm, LetitBit, Deposit и прочих, сайтов с видео YouTube.com, RuTube.com и прочих. Universal Share Downloader поддерживает более 120! Вам достаточно добавить в программу (   Читать дальше...   )Язык интерфейса: Русский, Английский.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF365130797C45639A1F3E828F1302674C7217F8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958079   (324887) от 20.11.2015
 
 Михаил Попов | Темные воды Тибра (2014) [FB2]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:FF365130797C45639A1F3E828F1302674C7217F8
 ```bash
 magnet:?xt=urn:btih:EB9FE3AAE3723C671125F5BDC44627AC0939AB51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Alex Wright - Temptation (2015) Single [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:33D3E488D8C737A29997E7CC6E80C9E2B69E891B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Chrysta Bell - This Train (2011) [FLAC|Lossless]<Trip-Hop, Pop, Downtempo>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Cent Browser - является усовершенствованной верс�
 magnet:?xt=urn:btih:02EDA58B6D69B2315ACF637A8D1D440218BB8BD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ WeChat — это бесплатное приложение для обмена 
 ```bash
 magnet:?xt=urn:btih:1D4F86C055F8A067D85FF250748A363B8DCC82B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +152,8 @@ magnet:?xt=urn:btih:1D4F86C055F8A067D85FF250748A363B8DCC82B5
 magnet:?xt=urn:btih:A70C611361A82DCEB99B17C652ACC612350AC6B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +177,8 @@ magnet:?xt=urn:btih:A70C611361A82DCEB99B17C652ACC612350AC6B5
 ```bash
 magnet:?xt=urn:btih:61BE046A83F2542778A117C1CC6E8D56F5D19367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +204,8 @@ Koufuku Graffiti / Gourmet Girl Graffiti / Граффити счастливой
 magnet:?xt=urn:btih:DCB4B1AA0ACAB547E3FE12577A6395CACD84FFEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +229,8 @@ magnet:?xt=urn:btih:DCB4B1AA0ACAB547E3FE12577A6395CACD84FFEC
 ```bash
 magnet:?xt=urn:btih:B4C0098F2ACC0996AA7C9D3E29640ECE190538D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +256,8 @@ Arctic Motion - Transformers (2015) Single [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:8657B68E51F3D16B65D6A678AC52464CBFBE23EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +286,8 @@ VA - Solarstone Presents Pure Trance 4 (Mixed by Solarstone + Gai Barone) (2015)
 magnet:?xt=urn:btih:3E90D86709CD2EA6AD40B00689C175BBFC67EE05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +312,8 @@ magnet:?xt=urn:btih:3E90D86709CD2EA6AD40B00689C175BBFC67EE05
 ```bash
 magnet:?xt=urn:btih:0EBE7A700ECE07A6A42D7FF9089F6FD94DA7B1D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +342,8 @@ ChronoSync представляет собой приложение для Mac, 
 magnet:?xt=urn:btih:45F2925A4328D286D66EA7F01F23B4CDF1FDFFCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +367,8 @@ magnet:?xt=urn:btih:45F2925A4328D286D66EA7F01F23B4CDF1FDFFCD
 ```bash
 magnet:?xt=urn:btih:A7406DA7BE79CDEACE5678C9A3ADB635464A4F9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +403,8 @@ magnet:?xt=urn:btih:A7406DA7BE79CDEACE5678C9A3ADB635464A4F9E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +428,8 @@ CocCoc Browser - браузер, который является продукт�
 ```bash
 magnet:?xt=urn:btih:A4B0052B4B66621DC47263994B36FDCA7F59641F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +458,8 @@ The Wallflowers - Bringing Down The Horse (1996) [FLAC|image+.cue]<Alternative R
 magnet:?xt=urn:btih:8A184BAA9345B4AA5CDC2C4D7504557621858211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +483,8 @@ magnet:?xt=urn:btih:8A184BAA9345B4AA5CDC2C4D7504557621858211
 ```bash
 magnet:?xt=urn:btih:D9A21911DE32A3F70A894E8C7476585FCE854399
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +512,8 @@ VA - Defcon Winter Sampler (2015) EP [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:6FB6B1EAC9C6448EE9CC43FD00F10C55C5BCB941
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +537,8 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:74D440C31D2B4F44E59E90D7F632C668E29C0F6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +567,8 @@ VA – Cubic EP (2015) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:E029B0C6DEA35D8A5199E82BB45111A2303BF692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +593,8 @@ magnet:?xt=urn:btih:E029B0C6DEA35D8A5199E82BB45111A2303BF692
 magnet:?xt=urn:btih:3D43F481CE12FCDB372EF8E34995DB2CF0EDBF36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +618,8 @@ Simon Templar - Meltwater (Part III) Single (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:68261B432E7D46CDFA1FB15E6674F950BF6D9261
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +648,8 @@ VA - Trancemission Amsterdam (2015) [MP3|320 кб/с]<Trance,Uplifting Trance>
 magnet:?xt=urn:btih:DDFE3F149CBA121CE66B994ECCD3BB1E214E9415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +673,35 @@ Will Atkinson & Rowetta - Mesmerise (2015) Single [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:941B414F2939EBDF92E6A450DEF1B534BF2DB36C
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958169   (324968) от 20.11.2015
+
+WeAreAliens - A Day (2015) Single [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_324968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Day (6:43)
+02. A Day (Souhail Semlali Remix) (6:45)Жанр: TranceПродолжительность: 00:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3528802753242F8A7109DFF926E9F2B0323B2D50
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

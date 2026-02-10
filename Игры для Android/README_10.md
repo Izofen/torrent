@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7674689214594774DF9BFB66E3CDB4E7BE5E7AD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ WordHane сочетает в себе словесные игры в угада�
 ```bash
 magnet:?xt=urn:btih:C1371FEC6814AADB5E1531BBB33848E27D7FC4E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Jewel Legend: игра три в ряд v3.18.3 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:80B99FE15D8C7FEC732BB71C5CF4ECB6C95CE936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:80B99FE15D8C7FEC732BB71C5CF4ECB6C95CE936
 ```bash
 magnet:?xt=urn:btih:91DE6B444887469083F914C8988C9D88CDBDF05D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Tacticool v0.945 [Ru/En]
 magnet:?xt=urn:btih:6FAA2D938F094F6800FD4B39EF853243F3FB7D0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ CatchaAll - игра сделанная по мотивам легендарно
 ```bash
 magnet:?xt=urn:btih:91BC053EB3993359D8E2789C99926F051933ECED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Furry Pet Hospital v1.0 [En]
 magnet:?xt=urn:btih:EE16922023A379483E5462BCA78DB7E4A2BBFB2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Hitman: Sniper – великолепный тир с известным по с
 ```bash
 magnet:?xt=urn:btih:B06710EBD410DD3E025434135D6679C609880775
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Sky Force 2014 v1.41 [Ru]
 magnet:?xt=urn:btih:3876A99DE3182CE0D4D2ACCEE7949ECA28453AE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Jetpack Joyride v1.34.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:F6BAB8E91E384E4868A7228E467EF41A5EB29086
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Real Monster Fishing 2020 v0.1.178 [Ru/Multi] (обновляемая)
 magnet:?xt=urn:btih:55A5B720C836255F212C107729CF24A605AD7C3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Plague Inc – Редко, когда мобильные проекты выхо
 ```bash
 magnet:?xt=urn:btih:43B5C29D352CAA951D532CA54180D18FA57539D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ Civilization Revolution 2 v1.4.4 [Ru/Multi]
 magnet:?xt=urn:btih:69581BD8878AFECC75488021D140562D5CBA20AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ RONTLINE COMMANDO 2 - Продолжение военного экшена, пр
 ```bash
 magnet:?xt=urn:btih:7C46F1D2968E03D640221158CF7C42795ADABA62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Among Us – это потрясающая экшен-игра, в которо�
 magnet:?xt=urn:btih:822DEA883B78419B3F20978A5C337E32B56EAB08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ Brawl Stars v30.242 [Ru]
 ```bash
 magnet:?xt=urn:btih:AE9DF00040E333512283F6435D5ADECFCD46C7CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Warlords of Aternum v1.11.0 [Ru]
 magnet:?xt=urn:btih:E68887AA0922500B03850249BE1F14C0CB800B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:E68887AA0922500B03850249BE1F14C0CB800B25
 ```bash
 magnet:?xt=urn:btih:77644CA5C9FCD93C215D42FF3E8224F9DFD83AC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Sky: Дети Света - волшебное приключение на Androi
 magnet:?xt=urn:btih:E6FDDBB649166DC088CC33809EAE70772AD06EE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Who Are You, Mr. Cooper? - увлекательная приключенческ
 magnet:?xt=urn:btih:D16A5096ABBC2992A8512AB08CEB2E0AFB0124B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Plants vs. Zombies™ Heroes v1.36.42 [Ru]
 ```bash
 magnet:?xt=urn:btih:B5D2301C05E4F8CD445EEFED989AC36BE00DB05F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Age of Civilizations II - интересная и захватывающая с�
 magnet:?xt=urn:btih:816CA530708F6C9609077061E9038EF3DD9B69C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Cookies Must Die v1.1.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:14055B557DF7439D0FB02C7E8F7141DC5FC40C27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ Johnny Trigger v1.11.5 [Ru]
 magnet:?xt=urn:btih:7F86B62F62C150A440276E079A41C1F1CBEEE1BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ Quake 3 Droid - порт Quake 3 Arena - лучший порт Quake 3 для А
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Angry Birds Rio – это еще одна история о сердитых п
 ```bash
 magnet:?xt=urn:btih:11C0789CE3CE602A7156D28A5C77B8AC50AAC5B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

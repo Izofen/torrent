@@ -19,6 +19,8 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12] Blu-ray 108
 magnet:?xt=urn:btih:8EB4FDA0168DA8E05DF5D494AB99F1BD3041D6B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Konohana Kitan / Сказания о Конохане [2017, TV, 12] BDRemux 108
 ```bash
 magnet:?xt=urn:btih:0E0692A9EC5DD9675435C88F2A80B84FC3D9868D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Can Ci Pin: Fangzhu Xingkong | The Defective | Дефектные: Доступ 
 magnet:?xt=urn:btih:1171F4704AA6B7E94D27E5CA4BFC1247272E436F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ On Your Mark / На старт! [1995, OVA] BDRemux 1080p raw+eng
 ```bash
 magnet:?xt=urn:btih:F99ED6FA2B9C43D9922611B5C21390E916CC3134
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Mibao zhi guo | The Country Of Rare Treasure | Страна таинственн
 magnet:?xt=urn:btih:DF0EE7B37980EF699E4745CEE1EB65318224E077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Yes! Bang Dream! & Hoshi no Kodou / Группа Мечты! [2016, Movie] BDRip
 ```bash
 magnet:?xt=urn:btih:1149B5186FD65D9D1E9837ABF6ED87069BE2FDA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Hitori no Shita: The Outcast | Hitorinoshita: The Outcast | Один из отв
 magnet:?xt=urn:btih:EC429672F07B2397F3A46B0F6136D4C3D38F25CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Nerawareta Gakuen / Psychic School Wars / Школа под прицелом [Mo
 magnet:?xt=urn:btih:9324D879951B2CDB8F2A5E40FF1FC3F0247D5F18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ Spiritpact / Контракт душ [2017, TV, 10] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:075C3FCC2A1730D9499AFCB3A6088D525F0E948F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Sol Levante | Восходящее солнце [2020, ONA] MasterRip 2160p/4K H
 magnet:?xt=urn:btih:8C1803CAC943A5D7C4C34DC21644C97C8E7AA7FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Sol Levante | Восходящее солнце [2020, ONA] WEBRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:9D56BF5E9C7B471E446CAFFB9F4BEE3C698BE221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Lixiang Jinqu | Evil or Live | Злой или живой [2017, TV, 12] WEBRip 
 magnet:?xt=urn:btih:806C4E2B0A95D10DDF00643EBF29D06045F652E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:806C4E2B0A95D10DDF00643EBF29D06045F652E6
 ```bash
 magnet:?xt=urn:btih:902B4A233F3F64EB3D630A7494A8AA340CDF17C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Violet Evergarden Gaiden: Eien to Jidou Shuki Ningyou / Виолетта Эве�
 magnet:?xt=urn:btih:A922A986708DEA3D5B943AE77CAC8F0C568DBE49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:A922A986708DEA3D5B943AE77CAC8F0C568DBE49
 ```bash
 magnet:?xt=urn:btih:8C1982B59747D519522207A0B50CE35F5767F38A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Uchuu Kaizoku Captain Harlock / Space Pirate Captain Harlock /Космическ
 magnet:?xt=urn:btih:39FEBC93F5F91E7FB2794EF8F1A6C1A880599A62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Wanmei Shijie | Wan Mei Shi Jie | Perfect World | Идеальный мир | Б
 ```bash
 magnet:?xt=urn:btih:7F95284A5FB1810A25E7BFD75D6C794C0A9BC3AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Hoshi o Ou Kodomo / Children Who Chase Lost Voices from Deep Below / Ловцы 
 magnet:?xt=urn:btih:BED863C0CC25DC5258C4DB2161CDB7A69341186D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:BED863C0CC25DC5258C4DB2161CDB7A69341186D
 ```bash
 magnet:?xt=urn:btih:7A358A602BE244C095C3D6F5A5FBE48FA5F29AD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Byousoku 5 Centimeter / 5 Centimeters per Second / Пять сантиметро
 magnet:?xt=urn:btih:C42504809F785F646A5ACD3E8C3E460EABDC87B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Blood: The Last Vampire
 ```bash
 magnet:?xt=urn:btih:18301906017D486B924236D78FFA7A701E81FAAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ Juuni Kokuki | The Twelve Kingdoms | Двенадцать королевств [
 magnet:?xt=urn:btih:175FC5D610303C239878DE12C75CB36CA431C339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ Macross Frontier Music Clip Shuu: Nyankuri | Macross Frontier Music Clip Collect
 ```bash
 magnet:?xt=urn:btih:AEB845B7FD57D4BC3C3852B5D734E0B1FEB78790
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ Mutsu Enmei Ryuu Gaiden: Shura no Toki / Shura no Toki - Age of Chaos / Врем
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ Wu Shen Zhu Zai | Wushen Zhuzai | Боевой мастер | Повелител
 ```bash
 magnet:?xt=urn:btih:EA712785E0C3B3CE29314C7C7F9F637767E67AEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +692,8 @@ Hellsing Ultimate / Хеллсинг [2006-2012, OVA, 10 из 10 + SP] BDRemux 1
 ```bash
 magnet:?xt=urn:btih:97A9CFD9D576BF50193FD80CECB1F51670B78E48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

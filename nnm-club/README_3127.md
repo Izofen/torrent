@@ -28,6 +28,8 @@ StudioTan - StudioTan (2012) [FLAC|Lossless]<Fusion, Jazz-Funk, Chillout>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ Wise Registry Cleaner - бесплатная утилита для чистки 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -83,6 +87,8 @@ Vergissmeinnicht - 2 albums (2008-2011) [mp3|320 kbps] <Neofolk, Ambient>
 ```bash
 magnet:?xt=urn:btih:5DA5BB37DDF3DAE69C203F1369E14D6C8E968144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +123,8 @@ VA - Максимальный Отрыв (2012) [MP3|256 кб/с]<Pop. Dance>
 magnet:?xt=urn:btih:E69D30F858E998FFAAD013A088F011D4851EEAAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +157,8 @@ VA - Западный Еврохит Топ-Чарт (2012) [MP3|256 кб/с]<Po
 ```bash
 magnet:?xt=urn:btih:A6DB178260E4FD160ED95E54704907935F9E34B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +193,8 @@ Alpha Kawu - Cryogenic time (2011) [MP3|320 кб/с]<Ambient / Easy listening / 
 magnet:?xt=urn:btih:49A796EEF607EFD71F937492289E02186BE247D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +228,8 @@ Before The Dawn - Rise Of The Phoenix (2012) [MP3|256 кб/с]<Melodic Death Met
 magnet:?xt=urn:btih:582F7C1D171283879AB3554AE71F1E7E54A3D674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +253,8 @@ magnet:?xt=urn:btih:582F7C1D171283879AB3554AE71F1E7E54A3D674
 ```bash
 magnet:?xt=urn:btih:D124AA99347E7C399293416FD06C53A2F324B831
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +283,8 @@ magnet:?xt=urn:btih:D124AA99347E7C399293416FD06C53A2F324B831
 ```bash
 magnet:?xt=urn:btih:78CB66540EA3EEC4DC133B9832943D4ECC9FBB78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +319,8 @@ Brendan Benson - What Kind Of World (2012) [MP3|320 кб/с]<Rock>
 magnet:?xt=urn:btih:009EA992CAA0B83C201FDFB0C46820C77CA0D982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +349,8 @@ magnet:?xt=urn:btih:009EA992CAA0B83C201FDFB0C46820C77CA0D982
 magnet:?xt=urn:btih:633AA5D8BAE77DAAEAF681E325FB82E6DDF45E31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +374,8 @@ magnet:?xt=urn:btih:633AA5D8BAE77DAAEAF681E325FB82E6DDF45E31
 ```bash
 magnet:?xt=urn:btih:8E3C0BA23716F1C9289E3D211959E83F15A0B9B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +401,8 @@ magnet:?xt=urn:btih:8E3C0BA23716F1C9289E3D211959E83F15A0B9B1
 magnet:?xt=urn:btih:7AAA00A1F484367FCE4B5D0C7B9EB0B9B0B125C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +426,8 @@ magnet:?xt=urn:btih:7AAA00A1F484367FCE4B5D0C7B9EB0B9B0B125C9
 ```bash
 magnet:?xt=urn:btih:C64A9F79D8F91E5D42DC5613DE0AA1B085F5B299
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +453,8 @@ magnet:?xt=urn:btih:C64A9F79D8F91E5D42DC5613DE0AA1B085F5B299
 magnet:?xt=urn:btih:DBC90FF10411BE118DD7453D51784C369B54D716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +478,8 @@ magnet:?xt=urn:btih:DBC90FF10411BE118DD7453D51784C369B54D716
 ```bash
 magnet:?xt=urn:btih:BAFB8C7A30DA1E864E6A3A031F65455D45891D1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +505,8 @@ magnet:?xt=urn:btih:BAFB8C7A30DA1E864E6A3A031F65455D45891D1F
 magnet:?xt=urn:btih:406EEE17D9888DE0E256AFC4BC527528991DC5B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +530,8 @@ magnet:?xt=urn:btih:406EEE17D9888DE0E256AFC4BC527528991DC5B9
 ```bash
 magnet:?xt=urn:btih:090574B70836FA8DAD83CE19F80AEF001BDE246D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +566,8 @@ CD1 (00:45:58)
 magnet:?xt=urn:btih:68B37BBBA59558DB465053C2A9009AD1DAAFB456
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +591,8 @@ magnet:?xt=urn:btih:68B37BBBA59558DB465053C2A9009AD1DAAFB456
 ```bash
 magnet:?xt=urn:btih:E578BA47F972E874CFE40CF72B85FDDA8DB84345
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +627,8 @@ VA - Клубные Новинки Vol.64 from AGR (2012) [MP3|320 кб/с]<Club
 magnet:?xt=urn:btih:3D66211B7FEC963573CCFEEE451FFB6524E621B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +653,8 @@ magnet:?xt=urn:btih:3D66211B7FEC963573CCFEEE451FFB6524E621B6
 magnet:?xt=urn:btih:42CE714BE502B03CB33A73FA30E3B0CB8C5AF529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +678,8 @@ magnet:?xt=urn:btih:42CE714BE502B03CB33A73FA30E3B0CB8C5AF529
 ```bash
 magnet:?xt=urn:btih:EAF6957DB845CA2B8030214E9C5185EF31502F24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +708,8 @@ magnet:?xt=urn:btih:EAF6957DB845CA2B8030214E9C5185EF31502F24
 ```bash
 magnet:?xt=urn:btih:FBF2E7BBAB5F14B9E5B9176BF72FBB9053958AD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -696,6 +744,8 @@ VA - Club Charts (2012) [MP3|256 кб/с]<Dance, Club>
 magnet:?xt=urn:btih:78186D29F1CC9F4DE0D866552335E2D1665AD8C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -728,6 +778,8 @@ VA - Клубные Новинки Vol.63 from AGR (2012) [MP3|320 кб/с]<Club
 ```bash
 magnet:?xt=urn:btih:5EC1CF05B349F116C763D8A7AF22D5270998315E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ AdwCleaner - программа, которая ищет и удаляет ре�
 magnet:?xt=urn:btih:8EBA34CF17C2746D4C319659F46B149A0E964855
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:9B69DCAAAB1D477E04DD743D1AF7CC38325E5E96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Driver Booster сканирует и определяет устаревшие �
 magnet:?xt=urn:btih:B8159FF5C12040271829EB338EB3889A00C5DD6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Icecream Video Editor - простой редактор видео для Window
 ```bash
 magnet:?xt=urn:btih:65F60A5CE116F6F5E3A02FE361CE08E376972FB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ CoolUtils Total XML Converter - уникальное приложение для
 magnet:?xt=urn:btih:1481C89B764E60FF5A415757E67166145E6883E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Wise Disk Cleaner 11.2.1.838 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:848FA19F2368B9EE01A6F5008BE754664149A95F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:11C2AC843CB7848B3AF601A309BCC831E660723B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ KORG - multi/poly native 1.0.2 Standalone, VSTi 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:EB421F70FE341162D4F2F6B587C6388F44277343
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ foobar2000 - это аудиоплеер, подкупающий своим ве
 magnet:?xt=urn:btih:0035E49A7E508F2CD3E56B6F7098EA727B6C55F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:5549A80546F70CA713A7262A82CEB1835B2FA7E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Capture One - один из лучших профессиональных кон
 magnet:?xt=urn:btih:5DFF03BDC657C346C88355BB90F6DDB01610B0B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Driver Store Explorer — это легкий инструмент, которы
 ```bash
 magnet:?xt=urn:btih:71AFE97871BF09A8B6EBC2E94ED581F5C2978D2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ UsbTreeView - маленькая портативная утилита, реал
 magnet:?xt=urn:btih:970BE3ECFD0E4EE076772ED822D386B5634EF95A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 magnet:?xt=urn:btih:3873C3EAAB074CE72F273AA2A5D66C508454ED5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ RAM Saver Pro - инструмент для профессионального �
 magnet:?xt=urn:btih:F13DC34DA64294905A2795E22D6A1B212475A11B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:F13DC34DA64294905A2795E22D6A1B212475A11B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:841DEC0550F03F8D6DF70F6C26EE97AFF2342B82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ VMware Workstation — популярная программа для созда
 ```bash
 magnet:?xt=urn:btih:94197B0990F93E89D0C1AFEE51058928596CE67B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:6D96CEB547D45529CB39D00784046F3F278974EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Alfa eBooks Manager - одна из самых популярных програ
 ```bash
 magnet:?xt=urn:btih:923CFF684E66A5A5ED5A8C1734EC1F3322FDAE51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:AF397F4DCE306490912D53420878968FBA1A82B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:BD05B2147D8AB80193EA8EC9B7A6E38D7E6C2513
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Magic Eraser - это революционное приложение для р�
 magnet:?xt=urn:btih:142F68AACDDB8191015276569F2F8571316A69B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:374BF78EBF52E81C18C3EC67CF9C31C1933CAF43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Free Download Manager - кроссплатформенный менеджер з
 magnet:?xt=urn:btih:96EEA7084F880796F902E9832FF2B11819C90AF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ IPTV# (ex. LazyIPTVDeluxe) v3.15 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5F4622B2442387142AF079B746B458914B6692D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

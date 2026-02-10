@@ -22,6 +22,8 @@ Carrie Underwood - Storyteller (2015) [FLAC|Lossless|tracks] <Pop, Pop Rock, Cou
 magnet:?xt=urn:btih:4F335BA23B70E3386F345554634CC418537FD068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Tennis - Swimmer (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 ```bash
 magnet:?xt=urn:btih:D8AEF7031E4B985FCC0015299CA50F949166B4A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ a-ha - Scoundrel Days (1986) 2CD, Deluxe Edition, Remastered, 2010, Warner Bros 
 magnet:?xt=urn:btih:E1C99FA968FB07384692745D427AB17EF8F15E91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Viva Italia - Canzone Italiana (2006) [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:74FBDB6E12CE2EB392BE2CB6817B726E9C78EDF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - I Grandi Successi Degli Anni 90 Vol.2 (2005) [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:59B74C2E2FCC9B90B4C09F63589572B8AAAE11FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - I Grandi Successi Degli Anni 80 Vol.1 (2005) [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:4E4C26F7377FA67CD9FE294E487C31A696CBD926
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - I Grandi Successi Degli Anni 80 Vol.2 (2005) [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:CE83D9F6D4C8C0FBAE9D0B9F8C0FF5298A62A255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Tomas N'Evergreen - Since You've Been Gone (2003) [APE|Lossless|image+.cue] <Eur
 ```bash
 magnet:?xt=urn:btih:35C295B18BFEDA1C878E46BA46B9A1F8FF05DB52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Red Hot Hits (2005) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, House>
 magnet:?xt=urn:btih:54E98E5B7432B321E3B3708E24B0B0D4F6708B40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - DJ Soul Ballads vol.1 (2000) [APE|lossless|image+.cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:1935722C97B75471D9273C7655CFAAF3AA2D7AD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Deborah Harry - Debravation (1993) [APE|Lossless|image+.cue] <Pop Rock, Synth-po
 magnet:?xt=urn:btih:13D39D2EC139BBCCD68826F783A4764C450CCFAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ VA - Miamibiza Hits 2014 (2014) [FLAC|Lossless|tracks + .cue] <Dance, Pop, Latin
 ```bash
 magnet:?xt=urn:btih:F062DF7E7DA79C5C69048B53DB24B20DEA629E0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +368,8 @@ VA - 2008 Grammy Nominees (2008) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rock, S
 magnet:?xt=urn:btih:C9310E7184CF2AD91510EFA8764C1349B2F62AEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +397,8 @@ VA - 2006 Grammy Nominees (2006) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
 magnet:?xt=urn:btih:DEB4F102663287A4A3EB5ACFC56555D7639D9274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ Joy Enriquez - The Call (2016) [FLAC|Lossless|tracks] <Pop, Folk, CCM>
 ```bash
 magnet:?xt=urn:btih:E13ED441359B09087A6D0908D29340527C47CE2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +461,8 @@ Tina Turner - Platinum Collection (3 CD)(2009) [APE|Lossless]<Pop-rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +489,8 @@ Roxette - The Ballad Hits (2002) Limited Edition, 2xCD [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:F76A88CEFC93B302AD84E8DED74123B8562A9B53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +519,8 @@ Asgeir - Bury The Moon (2020) Ásgeir [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
 magnet:?xt=urn:btih:D2B2CE6A62C1F542DC2C000EE036756E833B2524
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +547,8 @@ Kovacs - Shades Of Black (2015) 2 CD Limited Dutch Edition [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:0BD7FD015D95045E6D5E90DFEA7E85825EE45401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +577,8 @@ Everything But The Girl - Walking Wounded (1996) Remastered, 2015, Edsel Records
 magnet:?xt=urn:btih:95092861A71AD2FDDBD81D1106042E49905499D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +605,8 @@ Everything But The Girl - Temperamental (1999) Remastered, 2015, Edsel Records, 
 ```bash
 magnet:?xt=urn:btih:BD677A788A3CD997BAEF0E588DD935531D1B4FBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +635,8 @@ Richard Marx - Limitless (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
 magnet:?xt=urn:btih:3BA40933B59414BAB679B56A1338EFD8D27A7B89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +663,8 @@ Tracey Thorn (Everything But The Girl) - Love And Its Opposite (2010) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:97834C4BF5FD8E09DD2D8FA2D99CAAB906480457
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +699,8 @@ VA - Танцевальный рай 32 (2013) [FLAC (image+.cue)|Lossless]<Pop,
 magnet:?xt=urn:btih:E1DF314019F8712C118A509CFFF2E9A663AD80B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,6 +734,8 @@ VA - NRJ Party Hits 2013 (2013) [FLAC|Lossless]<Pop, Dance, House, Electro, R&B>
 magnet:?xt=urn:btih:D1C1C3B1E8C8594D9CE0244C8DD294ED0EE03941
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -718,6 +768,8 @@ a-ha - How Can I Sleep With Your Voice In My Head (Live) (2003) [FLAC|Lossless]<
 ```bash
 magnet:?xt=urn:btih:2AC13E11914C00018CB1993070C17362B8C1945D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

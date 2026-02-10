@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:952271812A011B451C55067AA16FAD4B13746C35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Enterclass, Марина Ласаева | Дачное настроение (202
 magnet:?xt=urn:btih:65138A38520C2A721162C5748C6ADC36ACFFCFB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ INE | Penetration Testing Student v2 [Learning Path] (2022) WEB-DL [EN / EN Sub]
 ```bash
 magnet:?xt=urn:btih:9384D636BAD6276BFCFCCF37E9367878F00F123F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:9384D636BAD6276BFCFCCF37E9367878F00F123F
 magnet:?xt=urn:btih:F395427693BB265E75ABAC17D4EDF6D845B5900F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:F395427693BB265E75ABAC17D4EDF6D845B5900F
 magnet:?xt=urn:btih:A44C2342A774BFDEA3EAE61D83DBDF755B148B05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ Udemy, Tom Looman, Epic Games | Unreal Engine 4 Mastery Create Multiplayer Games
 magnet:?xt=urn:btih:04BC04F2586881B3E15CA3F7BFCF89DEDE203FD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ CG Sphere | Frostmourne Sword Full Process + Files (2021) PCRec
 magnet:?xt=urn:btih:232377100FBA8049D0FB614E98D672CC60F4A16C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Rebelway, Saber Jlassi | Advanced Houdini FX - RISE (2020) PCRec [RU]
 ```bash
 magnet:?xt=urn:btih:89C353160E3C44DF1BF67C23C7CDB68E0425D5D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:89C353160E3C44DF1BF67C23C7CDB68E0425D5D8
 magnet:?xt=urn:btih:37B8895E1D70F1B00EBC4BCA40D4084ACDE4BA18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Uartsy, Tomas Wittelsbach | Jewelry Design In ZBrush (2015) PCRec [EN, RU]
 magnet:?xt=urn:btih:35D647B61FDA86A06FB11BF2E14D71E24F1FA75E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Pixel Front, Mario Reitbauer | A Full Introduction To Grooming For VFX in Houdin
 ```bash
 magnet:?xt=urn:btih:AABEBAF60F2350CB6C27EACBBEBA7FB6E125BE68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Udemy, David Long | Conway's Game of Life with SDL2 and C++ (2022) WEB-DL [EN / 
 magnet:?xt=urn:btih:1D8249B1C10F9D16E456A0710A591FAD0F8928AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:1D8249B1C10F9D16E456A0710A591FAD0F8928AA
 magnet:?xt=urn:btih:DB0A3DC4197EEA7FCD93E75264F0FA3B33883588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:DB0A3DC4197EEA7FCD93E75264F0FA3B33883588
 ```bash
 magnet:?xt=urn:btih:E937F4CB76C173FB9AE5608A43FEADBE9A4AE4ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:E937F4CB76C173FB9AE5608A43FEADBE9A4AE4ED
 magnet:?xt=urn:btih:0B17C5EAFEFF1ACF8603AB6B547BE1CE8F09568F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ Entagma, Moritz Schwind | New in Houdini 18.5 (2020) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:70A499480E06BCE76D1C57A15839CDABC035150A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ FXPHD, Jeronimo Maggi | HOU222 - USD in Houdini 19.5 (2022) WEB-DL [EN]
 magnet:?xt=urn:btih:B2CE6C051E48FF2AF1F6DF6BCCF6839D2F154E72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ FXPHD, Jeronimo Maggi | HOU221 – USD and LOPs for Houdini Artists (2022) WEB-D
 ```bash
 magnet:?xt=urn:btih:A092F3594ADC8A939A24B12B180AFCB2458103B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ Enterclass, Сергей Курбатов | Весна в городе (2023) WE
 magnet:?xt=urn:btih:370022F1C7A975238F6734A6B39F4F266239D4E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ Uartsy, Ryan Kingslien | Artistic Anatomy in ZBrush (2014) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:1F99221C1809F921ED7DE64D03DE5834F08B4E54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ Epic Games, Harrison Moore | Paragon Character Texturing Pipeline (2017) PCRec [
 magnet:?xt=urn:btih:D0B9AA644EC60C642E9016D8ADE76AF8F04B42A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ Udemy, Jingtian Li | Introduction to Unreal Engine 4 Ability System Part 2 (2019
 ```bash
 magnet:?xt=urn:btih:9C4525DCE6D6955B264839E5032DE11675336F5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ Gcircuit, Adam Priester | Stylized Skin Growth in Houdini (2020) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:6D48E4E4A44B726A0C49E15ABE4CFF16617C0AA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:6D48E4E4A44B726A0C49E15ABE4CFF16617C0AA8
 magnet:?xt=urn:btih:5ECDA4012A20D6E0AFC0716AFE591D57C737C86F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ Rafa Souza Academy, Rafa Souza | Introdução ao ZBrush (2023) PCRec [RU, PT]
 ```bash
 magnet:?xt=urn:btih:EEEA17574E054CB20DB2B9A45B9B15F78ADA35A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +702,8 @@ Rafa Souza Academy, Rafa Souza | Anatomia de Personagens 2.0 (2021) PCRec [RU, P
 ```bash
 magnet:?xt=urn:btih:010049A27EFC70C69FA95D15A14C5DDE36C2CA98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

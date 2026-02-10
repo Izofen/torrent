@@ -1,3 +1,29 @@
+###  Публикация: 1463297   (1020677) от 17.04.2021
+
+В.В. Артёмов | Православные чудеса (2006) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1020677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Светлые, благодатные, всегда нежданные и радостные чудеса издревле свершались у мощей святых, в храмах и кельях, на путях паломнических странствий. В ответ на искреннюю и сердечную молитву люди получали исцеление, чудесное избавление от бед и скорбей. Но не только в прошлом происходили такие события, и в наши дни (причём особенно часто в России последнего десятилетия) (   Читать дальше...   )Жанр: Православие. Научно-популярное изданиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E818B246F7AE3A8BF7CE401265FFCB3A6DB58707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462791   (1020746) от 16.04.2021
 
 Владимир Волнин | Аналитическая фабрика. Как настроить финансовую аналитику под задачи бизнеса (2021) [EPUB]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:DF23E70FD239F139C03E10B911C81208956E1905
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:DF23E70FD239F139C03E10B911C81208956E1905
 ```bash
 magnet:?xt=urn:btih:3EDEED1475A03F7D9F2EA6BD3F1C77B6CABBE336
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:3EDEED1475A03F7D9F2EA6BD3F1C77B6CABBE336
 magnet:?xt=urn:btih:4EB3BF9954E023521624BA32FEB2937584DBB328
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:4EB3BF9954E023521624BA32FEB2937584DBB328
 magnet:?xt=urn:btih:AE51DB85C2DB6DC8423AFE597B17964736703212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:AE51DB85C2DB6DC8423AFE597B17964736703212
 ```bash
 magnet:?xt=urn:btih:6F110229C3F73E10BB5E06EFFC6C27271B623CC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:6F110229C3F73E10BB5E06EFFC6C27271B623CC4
 magnet:?xt=urn:btih:65E85C2EF7F37F6F803C2D1513EA677C3F464CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:65E85C2EF7F37F6F803C2D1513EA677C3F464CAA
 magnet:?xt=urn:btih:B0ED11964320CE60996267E985E48921ACBCC003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:B0ED11964320CE60996267E985E48921ACBCC003
 ```bash
 magnet:?xt=urn:btih:AD59789B99D8B3334A88CDE6136ECC782EEE3FF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:AD59789B99D8B3334A88CDE6136ECC782EEE3FF5
 magnet:?xt=urn:btih:A5CA60384C8C52F108819E49E38CCE2C6EF71AEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:A5CA60384C8C52F108819E49E38CCE2C6EF71AEE
 ```bash
 magnet:?xt=urn:btih:CAEC890AB47BF89A2A703E42CB769B0E6723F128
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:CAEC890AB47BF89A2A703E42CB769B0E6723F128
 magnet:?xt=urn:btih:854EA72E05AFFB4E03F37A491796220551FB9690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:854EA72E05AFFB4E03F37A491796220551FB9690
 ```bash
 magnet:?xt=urn:btih:90B65C0CF7EA93E34C5E97ABDF0854F20B4232F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:90B65C0CF7EA93E34C5E97ABDF0854F20B4232F2
 magnet:?xt=urn:btih:B66E4F8E89E5C05C0350A0B8035C7075498F79FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:B66E4F8E89E5C05C0350A0B8035C7075498F79FB
 ```bash
 magnet:?xt=urn:btih:577F64F31700549B43894908454D35F9D3256C38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:577F64F31700549B43894908454D35F9D3256C38
 magnet:?xt=urn:btih:9C88FA65CE72D4C9D950C630F215E1E2FCF1BEEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:9C88FA65CE72D4C9D950C630F215E1E2FCF1BEEE
 ```bash
 magnet:?xt=urn:btih:0419D9802506E1EECEF6FBB1B644CE04FB012A41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:0419D9802506E1EECEF6FBB1B644CE04FB012A41
 ```bash
 magnet:?xt=urn:btih:9D150781AC10CFA8AD1520D013B8BEC969581692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:9D150781AC10CFA8AD1520D013B8BEC969581692
 magnet:?xt=urn:btih:6EB61B57B9A38464E8A5EF056D28B97AB1E6EBC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:6EB61B57B9A38464E8A5EF056D28B97AB1E6EBC2
 magnet:?xt=urn:btih:76166960288728B8154ECBEF287C453A00C40A5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:76166960288728B8154ECBEF287C453A00C40A5C
 magnet:?xt=urn:btih:4B058D3C374313FAE22A63BD2036363EDBE832E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:4B058D3C374313FAE22A63BD2036363EDBE832E3
 ```bash
 magnet:?xt=urn:btih:212AEAD0D00F9713E090553F8B1D39DE1FBB3ACB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:212AEAD0D00F9713E090553F8B1D39DE1FBB3ACB
 magnet:?xt=urn:btih:B0648113738C14015E0BD8C97D1D134D80B5301B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:B0648113738C14015E0BD8C97D1D134D80B5301B
 magnet:?xt=urn:btih:BB931EC600C4C56A0DCF3D47C12C73CD5243EDBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:BB931EC600C4C56A0DCF3D47C12C73CD5243EDBB
 ```bash
 magnet:?xt=urn:btih:0B5F3798EBAD12C27A46515272F2AF9773A151EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:0B5F3798EBAD12C27A46515272F2AF9773A151EF
 magnet:?xt=urn:btih:28081E56AB87143E555C7483E14934E1119A4F0B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 715207   (1022074) от 08.04.2021
-
-Сергиев Посад. Свято-Троицкая Сергиева Лавра | Душеполезный Собеседникъ. Издание Афонского Русского Пантелеймонова Монастыря. 1888 г. (2013) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1022074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Душеполезный Собеседникъ. Издание Афонского Русского Пантелеймонова Монастыря. 1888 г. Периодическое издание.Жанр: ПравославиеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E03494BCA41BC858904641F32E5C2F0A30D5E54E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

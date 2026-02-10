@@ -22,6 +22,8 @@ Binary Paradigm - Road 666 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:5AACA87D1B25DDB7F0F79DBF23ECBC7DE6BE398E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ magnet:?xt=urn:btih:5AACA87D1B25DDB7F0F79DBF23ECBC7DE6BE398E
 magnet:?xt=urn:btih:4A78702DFCD5B612B00525FE4505FD8D0C43C991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -77,6 +81,8 @@ John William Gordon - John William Gordon (2005) CD, Album [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:39B1498BE27E3F2C1D48600884AFA795B5689027
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -105,6 +111,8 @@ Mark Murphy - Four Classic Albums (1956 - 1961) 2CD, 2022, Avid Jazz [FLAC|Lossl
 magnet:?xt=urn:btih:8953ADEFD92D4FF38CD40EE19FFAF759983871C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -131,6 +139,8 @@ VA - Verve Jazzclub - 154 Albums + Box Set (2006-2013) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:B6E3DCD0FA54C6735BFC2D0F842CE79367EF298A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +170,8 @@ Jazz Ballads 3: Lester Young(   Читать дальше...   )Тип изда�
 magnet:?xt=urn:btih:838DCB9AB5586B99148952FFA3163D3A83159BF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +198,8 @@ VA - The Perfect Jazz Collection: 25 Original Albums (2010) Box Set, 25 CD [FLAC
 ```bash
 magnet:?xt=urn:btih:3AE1815AE93A08BAF0357BC08C5BB3F7DFB00AD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +228,8 @@ VA - Jazzy Date Night (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:D87F5E048B82AC15AA9BCC38E315C60113D9B855
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +256,8 @@ Paul Brown - So Much To Say (2025) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:9652204112AD076622CE06E63992EF0EBD1177DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +286,8 @@ The Voodoohounds - The Voodoohounds (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:F5B365C56B86D9EDF8F49843419C250E8B4E57CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +314,8 @@ VA - Jazz Bello Fresco (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:A0A33B6A2A9D1D1F373186B8E6282B4971627DC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +344,8 @@ The New Old School - Mississippi Black Police Chief Sykes (2025) [FLAC|Lossless|
 magnet:?xt=urn:btih:621A639190071A48741230E0F8213819159291B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +372,8 @@ The Gravel Project - Find What You Need (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 ```bash
 magnet:?xt=urn:btih:6F0158E9439C8262A7FDAD4DEB33A1BE75716A3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +402,8 @@ The Muthas - They Come (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, America
 magnet:?xt=urn:btih:067B0D2EC23838A3FE80E66E9C3C0A3783171288
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +431,8 @@ Tomas Lindqvist featuring Per Lindvall and Lars Larry Danielsson - Can´t wait (
 magnet:?xt=urn:btih:AB16A20BD8A982BECAC9801401499A1561B30ABB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +459,8 @@ Skip House - Big Daddy Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:F33F19FFF55CF432442CC604E4A81082607F9C98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +490,8 @@ Big Bands(   Читать дальше...   )Жанр: JazzПродолжите�
 magnet:?xt=urn:btih:13F6E6AB71689CFE23389AB09B62988BC3679D4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +518,8 @@ Cottonfield Blues - Silent Porch (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:49AC58BEF6A4D635E42E6474BE01604C7E32D651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +548,8 @@ Dyer Davis - Kiss The Ring (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:32996EF01F7E3D85B9EEE36702A6230B0147FC0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +576,8 @@ Olav & The Blues Cruise - Fulltime Lover (2025) [FLAC|Lossless|WEB-DL|tracks] <B
 ```bash
 magnet:?xt=urn:btih:92384686A53F6873F6CF48A73AF8BF288C23C53A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +606,8 @@ Leanne Binder - I Got Something To Say (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 magnet:?xt=urn:btih:1A364725F0987033E4EAB42A42913221CF02A251
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +634,8 @@ Nate Hammer - Dirty Pennies (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:053E0BAE7207D83A80FECD837C4843EDA9E649D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +664,8 @@ Fearless Scoundrels - Too Damn Blue (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 magnet:?xt=urn:btih:6FBAE2792AEC38B1A40153C01CFD97111673A887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +692,8 @@ Robert Sidney Smith - 12 Bar Bob (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:091049DB674CCEA4C339883ECB21FAE2802CDC1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -674,6 +722,8 @@ Ed Wills - Comin' Home (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:2421B71290BF6A19D409E65BBA590AAF0016F7F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,6 +750,8 @@ Victor Feldman - The Arrival of Victor Feldman (1958) 1998, Original Jazz Classi
 ```bash
 magnet:?xt=urn:btih:4B32F7FBD95E4269BEDA1843CFC99A9869B60ADC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

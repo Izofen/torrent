@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B902D16D116A14EBC05F20C34D40FAF2FE87655D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Handgemeng - Ultraritual (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Sludge, D
 magnet:?xt=urn:btih:6D2865E982BAA42DF0D990A5B2E7448D008E76C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:6D2865E982BAA42DF0D990A5B2E7448D008E76C4
 ```bash
 magnet:?xt=urn:btih:F058BEB1CDDB583348E1AB5E0194CC3A76773801
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ MediaInfo - программа для получения подробной те
 ```bash
 magnet:?xt=urn:btih:B66AC7BF0483F22561B5722DA46F0EC3DE029FDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Adventure - Tales of Belle Part 1: Across the Ocean (2022) [FLAC 2.0|44.1/24|WEB
 magnet:?xt=urn:btih:9BB903915DCA50669AC277D5289841177AFEED19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:9BB903915DCA50669AC277D5289841177AFEED19
 magnet:?xt=urn:btih:A46E8EF52A696CBAA744E1D72BDA758B379D20B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Wise Care 365 – программный пакет, предназначенн�
 magnet:?xt=urn:btih:B9FE2FDC0A62E9643E9C7E3587FC04126D730217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:B9FE2FDC0A62E9643E9C7E3587FC04126D730217
 ```bash
 magnet:?xt=urn:btih:DE7B7061486B67E04D99D2409CC43BCC1F533319
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ Dead Shaman - Under the Influence (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, S
 magnet:?xt=urn:btih:1767453EA18BDDDDDBA7B21F9165CF01AB0847BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ VA - ЕвроХит Топ 40 Europa Plus 12.08.2022 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:5BE13EE56EDED436B35FF3AE2F5B3237ECD8E1F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ VA - We Love Summer Vol. 1 (Ibiza Deep House Edition) (2023) [MP3|320 Kbps] <Hou
 magnet:?xt=urn:btih:76A996E3210F8D53CF70EC15A24F119DCADF798E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ Brinklz - How do you like my hairdo? (2017) [FLAC|Lossless|WEB-DL|tracks + .cue]
 magnet:?xt=urn:btih:126B7E930EDCC14463C42992B138E8D16B2379EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ magnet:?xt=urn:btih:126B7E930EDCC14463C42992B138E8D16B2379EF
 ```bash
 magnet:?xt=urn:btih:D3FB58F7040C750D10F6AB42523C1BD25EF5AC90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ magnet:?xt=urn:btih:D3FB58F7040C750D10F6AB42523C1BD25EF5AC90
 magnet:?xt=urn:btih:4B79B2674035BF6F1DDFE64EEE6E271F46DECC7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:4B79B2674035BF6F1DDFE64EEE6E271F46DECC7E
 ```bash
 magnet:?xt=urn:btih:3D6F44FC2FB52C99CF03CE0079916DEBF0D8C981
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +440,8 @@ Kreeature - Two Leaves / Dos Hojas (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Pro
 magnet:?xt=urn:btih:7D1071EA212CC901104DD2487877EFB099A1C8B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +466,8 @@ magnet:?xt=urn:btih:7D1071EA212CC901104DD2487877EFB099A1C8B9
 magnet:?xt=urn:btih:6D5E6C2DB491B04B8ADF5F61EBCEB6313B3074AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:6D5E6C2DB491B04B8ADF5F61EBCEB6313B3074AE
 ```bash
 magnet:?xt=urn:btih:BC6951D9DA33AFF73A06F999654A6007986F74F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +521,8 @@ Two Sinners - Brutal Emotion (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy
 magnet:?xt=urn:btih:C18FEF74609E0D2948916351876599F5FD415D34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +550,8 @@ Dapayk & Padberg - Harbour (2017) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downt
 magnet:?xt=urn:btih:E18743A288459435229309E7E0155A10D94FFCE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +578,8 @@ magnet:?xt=urn:btih:E18743A288459435229309E7E0155A10D94FFCE3
 magnet:?xt=urn:btih:15B4F532DCF9CC86A54FB8ABF50F21D944C05AB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +605,8 @@ GroupsPro позволяет создавать и упорядочивать г
 magnet:?xt=urn:btih:5716053F238AE3D1AA9992AE76604AA86605A59C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ magnet:?xt=urn:btih:5716053F238AE3D1AA9992AE76604AA86605A59C
 magnet:?xt=urn:btih:C120B620B7870211955082BD49DF4781E079FAD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:C120B620B7870211955082BD49DF4781E079FAD6
 ```bash
 magnet:?xt=urn:btih:8B35B586EDAA218FBE507CA4CA3444FCB3E99358
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +686,8 @@ Motus - Here Comes the Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psy
 magnet:?xt=urn:btih:3854CF3FA40308A5D78D212B72E74D3FB49DA615
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ n-Track Studio Suite 9.1.8 Intel/ARM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:88B68A3066933585B18494A6586A9F78630D5628
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

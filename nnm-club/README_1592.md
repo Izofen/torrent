@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B9155D89A7B8801513FDB438750EC0453D61B703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Helloween - Better Than Raw (1998) Remastered, 2024, Sanctuary Records [FLAC 24/
 ```bash
 magnet:?xt=urn:btih:1D6F6BAC43EFA3D5928A178197932B328C8CC2B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Alphaville - Forever! Best Of 40 Years (2024) [FLAC 16,24/44.1,96|Lossless|WEB-D
 magnet:?xt=urn:btih:C56E14407B8CFCD40F42233CA422227C9E70F36C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ ZD Soft Screen Recorder - программа для записи видео с �
 ```bash
 magnet:?xt=urn:btih:1F3BAD704817D51917EB53F14C240509D8CAF4E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:1F3BAD704817D51917EB53F14C240509D8CAF4E7
 magnet:?xt=urn:btih:0E316393C2098E18032EC3BFD5E4330DCD7763D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:0E316393C2098E18032EC3BFD5E4330DCD7763D7
 ```bash
 magnet:?xt=urn:btih:B2E8F9FAE6E3E878D7DC96893C28A4BEB1EBEC22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ VA - Billboard Global 200 Singles Chart (28.09.2024) (2024) [MP3|320 Kbps] <Pop,
 magnet:?xt=urn:btih:15EA26A364044A152684AEDC722766AFB5EA7527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:15EA26A364044A152684AEDC722766AFB5EA7527
 ```bash
 magnet:?xt=urn:btih:98621FDACDFD9DDFDEF71CCE9B1A8AB4705544F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ VA - Musical Kaleidoscope Part 5 (2024) [MP3|320 Kbps] <Electronic, Instrumental
 magnet:?xt=urn:btih:04D2E75392AB1CB6D740C569610877B191796C70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:04D2E75392AB1CB6D740C569610877B191796C70
 magnet:?xt=urn:btih:DCDD62D5F59C7CFCD1001F7ECC6A5E2AD88B2C52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:DCDD62D5F59C7CFCD1001F7ECC6A5E2AD88B2C52
 ```bash
 magnet:?xt=urn:btih:683409690DB87A4E314323609C59563B84F690A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:683409690DB87A4E314323609C59563B84F690A3
 magnet:?xt=urn:btih:C525A51373A23133C0686651B82F9CDF7A87104C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Denoise it - ИИ фоторедактор v1.2.0 Mod by srajawwal09 [Ru/Multi]
 magnet:?xt=urn:btih:C781A04E6A34A95FD359B57FE1D01F0FC711A8E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:C781A04E6A34A95FD359B57FE1D01F0FC711A8E3
 ```bash
 magnet:?xt=urn:btih:3BC314C6579D308E6E8E1B3369DB02639224CF1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:3BC314C6579D308E6E8E1B3369DB02639224CF1B
 magnet:?xt=urn:btih:845B1A8386A5F169143D44274FA6100F14C96F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:845B1A8386A5F169143D44274FA6100F14C96F15
 ```bash
 magnet:?xt=urn:btih:8D59237AFD7318C2EF5A716E9BB5CEF65A86BFE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Colorize it v2.2.0 Mod by derrin [Multi]
 magnet:?xt=urn:btih:3DEF5AC551B37ABFF0F511C8141A5962B353F6AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:3DEF5AC551B37ABFF0F511C8141A5962B353F6AF
 ```bash
 magnet:?xt=urn:btih:3A56491454B3BA966D5257093B4D7250D6B61CC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:3A56491454B3BA966D5257093B4D7250D6B61CC8
 magnet:?xt=urn:btih:D322CB31F4990287797E43FB677C06BCCC8326EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:D322CB31F4990287797E43FB677C06BCCC8326EE
 ```bash
 magnet:?xt=urn:btih:33157E40304F66674D91333FAF830013EFFA2D47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:33157E40304F66674D91333FAF830013EFFA2D47
 magnet:?xt=urn:btih:9668B0D93F2AEAC12C3C2CEDB94EF99EE6DE0963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:9668B0D93F2AEAC12C3C2CEDB94EF99EE6DE0963
 magnet:?xt=urn:btih:1308BF0B48AF726481C9240B2E83239C80500630
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:1308BF0B48AF726481C9240B2E83239C80500630
 ```bash
 magnet:?xt=urn:btih:99CC9DABB49705E940E850A58D38C49749B53DCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ Monument Valley 2 3.7.501 Mod by youarefinished [Ru]
 magnet:?xt=urn:btih:D5C222577FCA0C0DFC614E4097EABE519E030BA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ Zoom Player - мощный, гибкий и настраиваемый DVD/Blu-r
 magnet:?xt=urn:btih:AE6A9CF9FBE875D402F88DB15D07217918B98A01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:AE6A9CF9FBE875D402F88DB15D07217918B98A01
 ```bash
 magnet:?xt=urn:btih:0ECA809A36C76E6C8B99F08EFE1F7EFD5D9633F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

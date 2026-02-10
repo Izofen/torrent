@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4675CD4974EAABE65A2774202EDED60290054AE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:4675CD4974EAABE65A2774202EDED60290054AE4
 magnet:?xt=urn:btih:BB33B3A99CC04A57C3ED997E48A9C38670FDF61E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:BB33B3A99CC04A57C3ED997E48A9C38670FDF61E
 magnet:?xt=urn:btih:A3ADB37BEA952CE1846B22FA02AD9025E7DBA64F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:A3ADB37BEA952CE1846B22FA02AD9025E7DBA64F
 ```bash
 magnet:?xt=urn:btih:AA7A8C2C1DE93A828B4798B7F91310A29EA97AC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:AA7A8C2C1DE93A828B4798B7F91310A29EA97AC1
 magnet:?xt=urn:btih:333F8DDE6BB3B5068A6C237BE3AD20B9F2EA617B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:333F8DDE6BB3B5068A6C237BE3AD20B9F2EA617B
 ```bash
 magnet:?xt=urn:btih:38FEB54BB697D1209F28AFCFDB2C545A82A9B3B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:38FEB54BB697D1209F28AFCFDB2C545A82A9B3B7
 magnet:?xt=urn:btih:47EF353AE9601FF5EC9AEC59B2ABD5F4FB5586A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:47EF353AE9601FF5EC9AEC59B2ABD5F4FB5586A9
 ```bash
 magnet:?xt=urn:btih:4D0DD4F68252E3820AD1C9CB0A6308C5D4B113F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:4D0DD4F68252E3820AD1C9CB0A6308C5D4B113F4
 ```bash
 magnet:?xt=urn:btih:A6F109DD4145CBBF8635F58076316980F04E6697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Purvpn 10.1+ [En/Farsi]
 magnet:?xt=urn:btih:F70A007E87EA9E2C67FCBE5DAF32A4DDF6D3B21B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Papik, Laura Lanzillo & Claudio Fiori - Yes I Know My Way (A Tribute To Pino Dan
 ```bash
 magnet:?xt=urn:btih:5F557F215727E075699399E04CFCB06BFE97A24F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:5F557F215727E075699399E04CFCB06BFE97A24F
 magnet:?xt=urn:btih:909F62CB532BFA76D91357B3D8962477244C7CC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ Ford против Ferrari / Ford v Ferrari (2019) BDRip [H.265/2160p] [4K, HDR10
 ```bash
 magnet:?xt=urn:btih:55706E46F0CA53F5C1EC4D614D5BD853E0D33BCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ Tomb Raider 1-3 Remastered Starring Lara Croft - ностальгический 
 magnet:?xt=urn:btih:9C7D2A8466E9CEBB5CD60F76189FB9D53EE96E24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:9C7D2A8466E9CEBB5CD60F76189FB9D53EE96E24
 ```bash
 magnet:?xt=urn:btih:D73114BE0BB336B109485B5F0BCFA727CC9CBC65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:4D99694E6B2D6F767A577E9E895CB4D60061C59E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:4D99694E6B2D6F767A577E9E895CB4D60061C59E
 ```bash
 magnet:?xt=urn:btih:707451E9E3FDF45EB9034CF86A2D85C914CFAAC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ R-Wipe & Clean - программа для невосстановимого уд
 magnet:?xt=urn:btih:24052564E93804E3186E93E404BE0A241F4EE8ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Rose of Wind (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2A377E2F85DF8CBA4180292AD2F1A6EBCDEB8E94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ Mind Diver (2025) [Ru/Multi] (1.0.93) Repack FitGirl
 magnet:?xt=urn:btih:930CECE3543B42AD084436CA5CF21747B088633F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru] (2.100) Repack Necros [20th An
 magnet:?xt=urn:btih:846F8A275A986E3C660D160C828A2949C8DA0AEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:846F8A275A986E3C660D160C828A2949C8DA0AEB
 ```bash
 magnet:?xt=urn:btih:87D54DD2524A0A25DA8B60337250774E1884C8B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ Caravan Palace - <I°_°I> (2015) 2025, 10th Anniversary Edition [FLAC 24/44.1|L
 magnet:?xt=urn:btih:439C7FE74CFDCCB65C35A07D8014DCCD75F5D33D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:439C7FE74CFDCCB65C35A07D8014DCCD75F5D33D
 ```bash
 magnet:?xt=urn:btih:4C82F6097AF212400904A4EE79849A39D6BC5310
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:4C82F6097AF212400904A4EE79849A39D6BC5310
 ```bash
 magnet:?xt=urn:btih:6B5B5E3B1C720E2D31AF028A8C2BAE7E9F37072D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:6B5B5E3B1C720E2D31AF028A8C2BAE7E9F37072D
 ```bash
 magnet:?xt=urn:btih:483AFF8E49ACB5781862A0070DBFD1099353F82C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

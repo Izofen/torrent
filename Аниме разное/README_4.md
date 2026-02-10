@@ -19,6 +19,8 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 magnet:?xt=urn:btih:C95F8E04E037C37C00F14071A1509CB9389D7756
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Sayonara no Asa ni Yakusoku no Hana o Kazarou | Maquia: When the Promised Flower
 ```bash
 magnet:?xt=urn:btih:3AF2C7747681F98A152D642D81324563205474C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Tong Ling Fei | Имперская наложница | Принцесса-ме�
 magnet:?xt=urn:btih:E19645C850274A26F4D239675B81429CAB2E7A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 ```bash
 magnet:?xt=urn:btih:85EC584439803977683CFCB5822E90FC01B992A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Hosi no Kaabi | Kirby of the Stars | Звезда Кирби [2001, TV, 100 эп
 magnet:?xt=urn:btih:EDA4B0223510FEB5DDEC9E29BFA7BEF8AD82BCD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:EDA4B0223510FEB5DDEC9E29BFA7BEF8AD82BCD4
 ```bash
 magnet:?xt=urn:btih:7FD6936D0586362499D0DFF29FF32817F8D3F021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Mononoke Hime | Принцесса Мононокэ | Princess Mononoke | При
 magnet:?xt=urn:btih:8FB8C756665606CB11BF98E0A1F1B48D3DBFDC73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Yao Shen Ji | Tales of Demons and Gods | Сказания о демонах и �
 ```bash
 magnet:?xt=urn:btih:20920E3E6C549F9B7F96D38C9046B7987216E6E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Tunshi Xingkong| Swallowed Star | Пожиратель звёзд | Поглощ
 magnet:?xt=urn:btih:22227534D0025AF6EE993FF161735DF5AFA59083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Tunshi Xingkong| Swallowed Star | Пожиратель звёзд | Поглощ
 ```bash
 magnet:?xt=urn:btih:80C44695B3388A200757E447B0FD088DBAADB91D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Hotaru no Haka | Grave of the Fireflies | Могила светлячков [198
 magnet:?xt=urn:btih:31AC9885F425ED9FCBD029DC433A3728F58AE27D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:31AC9885F425ED9FCBD029DC433A3728F58AE27D
 ```bash
 magnet:?xt=urn:btih:3AC5DEECE0CA8661EBED533469C04750199218D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Doupo Cangqiong | Dou Po Cang Qiong | Fights Break Sphere | Battle Through The H
 magnet:?xt=urn:btih:4AC2FF94F0294DCD46B07C582BE67B55CB306EAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Da Wang Rao Ming | Spare Me, Great Lord! | Пощади меня, Великий
 ```bash
 magnet:?xt=urn:btih:DC8C16C3406C8017832254E838820746006D0F0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Tsundere Akuyaku Reijou Liselotte to Jikkyou no Endou-kun to Kaisetsu no Kobayas
 magnet:?xt=urn:btih:37F945EC581EA0D86CC70210F7BFCF4EA46A4C2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:37F945EC581EA0D86CC70210F7BFCF4EA46A4C2D
 magnet:?xt=urn:btih:32F6E3FDD11F7B329C28EFED8B24DCF9E20E1D63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Boku dake ga Inai Machi | Erased | Город, в котором меня нет
 ```bash
 magnet:?xt=urn:btih:64FFAB89B6982158893F72FB19B862690AD3D7B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Mononoke Hime | Принцесса Мононокэ | Princess Mononoke | При
 magnet:?xt=urn:btih:B40336292CEF69ED54E44D8B72FE38ED7AB29067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Darling in the FranXX | Любимый во Франксе [2018, TV, 24 из 24
 ```bash
 magnet:?xt=urn:btih:DC7DE7F016D7D6933B371302DA9836357A9327E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Princess Connect! Re:Dive 2 / PriConne 2 / Связь принцесс! Ново
 magnet:?xt=urn:btih:B425371DF2D129B93EC61F0334555C09F81A984C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Dog Soldier: Shadows of the Past | Пес войны [1989, OVA] LDRip 480p HS+r
 ```bash
 magnet:?xt=urn:btih:A05BABED9D87C594C848FBCD7E1DD6551DC94673
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 magnet:?xt=urn:btih:00381117D2B617609021F736B5D067FB85158C10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Josee to Tora to Sakana-tachi | Josee, the Tiger and the Fish | Её завет�
 ```bash
 magnet:?xt=urn:btih:A864E4E58BA96499E08783856E4EE483AAD07051
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ DVD бонус к пятому фильму One Piece
 magnet:?xt=urn:btih:7A091FDD26ADB8E3E46BB9C239FC5B401AD3036B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ DVD бонус к второму фильму One Piece
 magnet:?xt=urn:btih:678B06EF59BEE961A707EB2AA70D9A654EDD93E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ DVD бонус к третьему фильму One Piece
 ```bash
 magnet:?xt=urn:btih:E2279D8088D7B57213B438C6ED16471830EA5565
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

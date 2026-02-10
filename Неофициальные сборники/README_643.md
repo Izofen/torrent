@@ -1,3 +1,32 @@
+###  Публикация: 1353789   (990416) от 19.01.2020
+
+VA - Winter House Party: Deep Edition (2020) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_990416.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nixxa - You Know It
+002. Victor Lorero - That Lipstick Again
+003. Rautu - Horizon (Original Mix)
+004. Dan Zalot - Extra Ordinary(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60282ACAACC87511C7C98D4F54F2994F75C67DF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353812   (990428) от 19.01.2020
 
 VA - Ecoutez La Musique De L'amour (2020) [MP3|320 Kbps] <Chanson, Pop Lyric, Soul>
@@ -21,6 +50,8 @@ VA - Ecoutez La Musique De L'amour (2020) [MP3|320 Kbps] <Chanson, Pop Lyric, So
 ```bash
 magnet:?xt=urn:btih:8A3C32D506689D6D56254419F1107DBC56A9F876
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +86,8 @@ VA - Клубная Zона №3 (2013) [MP3|256 кб/с]<Pop,Dance>
 magnet:?xt=urn:btih:9607608857BB6CF0394E2059AC292A361E165133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -78,6 +111,8 @@ N/AЖанр: Trance,Progressive Trance.Продолжительность: 06:55
 ```bash
 magnet:?xt=urn:btih:9957B47C23991DE657BE349AB6E47992EF76CC01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -112,6 +147,8 @@ VA - Drum and Bass Pro v.1 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
 magnet:?xt=urn:btih:67115FD23A61DDADCFB8FA81837D775E0E7F8356
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +175,8 @@ VA - 100 Greatest 90s Rock Hits (2020) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:C5C1E5837208ACF9AB7C6495DA235506778F9220
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +211,8 @@ VA - Drum and Bass Pro V.3 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
 magnet:?xt=urn:btih:A9E9F2C0F07684300FCDB025EF66E9C7194CF5E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +242,8 @@ VA - Club Dubstep №26 - Club Dubstep №26 (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:DF371F64A32F15AF1A74A635DC629A5C2F643445
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +270,8 @@ VA - Дискотека Зеленоглазое Такси Золотой вы�
 ```bash
 magnet:?xt=urn:btih:656281419882126BED621EF14D8E786DF6A6741D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +306,8 @@ VA - Exotic Wafture #33 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting
 magnet:?xt=urn:btih:AEBE06E648829F9D336F265322F1AD6E60414BEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +334,8 @@ VA - Chillout: Supreme Relaxation (2020) [MP3|320 Kbps] <Chillout, Ambient, Down
 ```bash
 magnet:?xt=urn:btih:CF09043C14BB79A4E5E46A8DB920FC15872BDDDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +364,8 @@ VA - ЕвроХит Топ 40 Europa Plus 17.01.2020 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:F78E9971E3886A76E88C965DFE41A72D0D4F1DB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +392,8 @@ VA - не Громкие новинки недели 52 (2020) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:D7EB05657F27BC2B8F76004D05722599710B95D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +422,8 @@ VA - Vocal House: Club Edition (2020) [MP3|320 Kbps] <Vocal House>
 magnet:?xt=urn:btih:E856D5185B668D999557B2FDD2B6F0C65D9244A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +450,8 @@ VA - Beatport Tech House: January Pack #02 (2020) [MP3|320 Kbps] <Tech, Deep Hou
 ```bash
 magnet:?xt=urn:btih:1731F2890B75206633F4AA7A697B93AFE8AEEFD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +480,8 @@ VA - Record Super Chart 621 (2020) [MP3|320 Kbps] <Pop, House, Dance>
 magnet:?xt=urn:btih:1DD81E5D952581E3597D63B98189427238594B20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +509,8 @@ VA - German Top 100 Single Charts 17.01.2020 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:5A1FC30887210B76F2EEFB79AA03C06FA3A8D813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +537,8 @@ VA - Rise Up DnB Mixtape (2020) [MP3|320 Kbps] <Drum & Bass, Bassline, Dubstep>
 ```bash
 magnet:?xt=urn:btih:3FFF950BF45278803383892F121E3CAE17510FFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +573,8 @@ VA - Слушай и танцуй. Лучшие хиты 2 (2013) [MP3|256 кб/
 magnet:?xt=urn:btih:FF8CA36D2EDE440E13A1E8A2A82914DEBA0BC3BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +602,8 @@ VA - Лучшие Trance треки Ver.12 (2019) [MP3|320 Kbps] <Trance, Uplift
 magnet:?xt=urn:btih:D0B87F088553B1DDD8438D34494D889DF00FF86E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +630,8 @@ VA - Top50: Tracks Deep House Ver.16 (2019) [MP3|320 Kbps] <House, Deep House, P
 ```bash
 magnet:?xt=urn:btih:7409D10B1A3AF79910C5AB29792D6E408A417854
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +666,8 @@ VA - Drum and Bass Pro V.2 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
 magnet:?xt=urn:btih:FFA730F09DC7DF37299875C6B4710A8EAE66F806
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +698,8 @@ VA - Club Dubstep №23 - ERROR (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:9BD42B04A5659809FBF4247203CAB6FDF3639AB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +727,8 @@ VA - Club Dubstep №24 - HNY (2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:CE9BD559831A937ABE3A86AD4A1B8C15296FE004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -688,6 +763,8 @@ VA - Creative Electro Box 2 (2013) [MP3|320 кб/с]<Electro House, House, Elect
 magnet:?xt=urn:btih:2C7FEAE8AEAC7B13EC6E631BFC3B3CDB6EB1C909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -721,38 +798,7 @@ VA - In Da Club Vol.69 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 magnet:?xt=urn:btih:9D35957E94114BE82AD0C52F269423A9371B7CE5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610298   (991304) от 28.01.2013
-
-VA - Клубные Новинки Vol.227 (2013) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_991304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TyDi feat. Sarah Howells - When I Go (Arnej Remix)
-02. Sabrina Terence - About You (Mito & Moe Aly Edit)
-03. Soarsweep - If There Was Love (Original Mix)
-04. Teknova - Mistik (Stephan F Remix Edit)
-05. Stephan F - Majestic (Club Mix)
-06. Will Bailey and Poisound - In The Echo (Original Mix)
-07. Santerna - Parallax (Andrew Riqueza Bootleg)
-08. Steve Brian & Cressida - Casablanca (Radio Edit)
-09. Mark Van Dale with Enrico - Water Verve (Leon Bolier Remix)
-10. Mika V. - Biography (Radio Edit)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 04:22:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1FFD4816FB78C5D6954447A5904D7B77CAE4B19
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

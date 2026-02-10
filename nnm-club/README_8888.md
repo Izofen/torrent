@@ -19,6 +19,8 @@ Jekyll and Hyde / Джекил и Хайд [Ru] (RePack) 2010 | Martin
 magnet:?xt=urn:btih:2B28F99DF5340F86BCAFC64423E0E8383CE4DE74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MR PEEL - Mixtape #1 Trip Hop & Abstract Hip Hop (2017) [FLAC|Lossless|Web-DL|tr
 ```bash
 magnet:?xt=urn:btih:0891A7D32F1E5B782B957A6572629D7C7B00825E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ CD1 - Suite Cubana:
 magnet:?xt=urn:btih:7431ED30D386F60F94022ABC4D601C2F39EB32F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ VA - Kulor 001 (2018) Kulør [FLAC|Lossless|WEB-DL|tracks] <Techno>
 ```bash
 magnet:?xt=urn:btih:66F55A6BBBBAE45A5A433EA796529168EAD28DEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ MR PEEL - Mixtape #2 Jazz & Fusion' (2017) [FLAC|Lossless|Web-DL|tracks] <Hip Ho
 magnet:?xt=urn:btih:525CC3812E85F8AA18479995626423BEE1D245E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:525CC3812E85F8AA18479995626423BEE1D245E9
 ```bash
 magnet:?xt=urn:btih:470E51FBE0DBE31084C05553E05723A9F30A6A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ Charlie Haden & Brad Mehldau - Long Ago And Far Away (2007) 2018, Universal [FLA
 magnet:?xt=urn:btih:B1E0E3748062C83C59C2B854F6FD7EC4FA33B3DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ Earl Klugh - Life Stories (1986) Warner [FLAC|Lossless|tracks + .cue] <Smooth Ja
 magnet:?xt=urn:btih:F15E7311EBBC812DC5D2365B189D95019FB79463
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:F15E7311EBBC812DC5D2365B189D95019FB79463
 ```bash
 magnet:?xt=urn:btih:36A2A761331DF3AEE4E0D811AD06FD94F9FBB4A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:36A2A761331DF3AEE4E0D811AD06FD94F9FBB4A2
 magnet:?xt=urn:btih:27618999974DAA72245523A31DE7791E515ACD3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:27618999974DAA72245523A31DE7791E515ACD3F
 magnet:?xt=urn:btih:DAC6326969DC3F17BC5F4EA96521328498E80E23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ Just Dance 2020 (2019) [Wii] [USA] [License] [En]
 ```bash
 magnet:?xt=urn:btih:74A1308F9835BE3F1604A8BE32A894DFE2A7F555
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:74A1308F9835BE3F1604A8BE32A894DFE2A7F555
 magnet:?xt=urn:btih:29DFE6FEDA71992187C914095FE4310CA52DCD02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) UHD BDRemux [H.265/21
 ```bash
 magnet:?xt=urn:btih:DCDF82FB0823065020333F759573CBC2300F6175
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ Playboy - легендарный журнал для мужчин, основа�
 magnet:?xt=urn:btih:4C44F05049614592F1B9C812AEF06C163CF165F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:4C44F05049614592F1B9C812AEF06C163CF165F7
 ```bash
 magnet:?xt=urn:btih:D372096ACE16F6739ABAE7FD39C339F5AFF746AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:D372096ACE16F6739ABAE7FD39C339F5AFF746AE
 magnet:?xt=urn:btih:64A90B39ACD78EF61441E41FC485902E6EE89793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ Discolored (2019) [Ru/Multi] (1.0) Repack Butter_
 ```bash
 magnet:?xt=urn:btih:639482EE246858FCDC686B4F9BDED432C51EA805
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:639482EE246858FCDC686B4F9BDED432C51EA805
 magnet:?xt=urn:btih:1C19F78C2D0D88AA09903A6181DE6FC039FBE99C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:1C19F78C2D0D88AA09903A6181DE6FC039FBE99C
 ```bash
 magnet:?xt=urn:btih:D44D4D5000D9D541330524D2620EFD1D652799A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ SketchUP Pro - является профессиональной версией 
 magnet:?xt=urn:btih:4325A89F28B1ADC576FA7991E1BC62B646149096
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:4325A89F28B1ADC576FA7991E1BC62B646149096
 ```bash
 magnet:?xt=urn:btih:274A559EE31942DD2B98FD0A0CC3AA72C040C524
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:274A559EE31942DD2B98FD0A0CC3AA72C040C524
 magnet:?xt=urn:btih:5E164CDFE69DE4131CB89258B1C94BC2DDF28594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ Closers - это эпизодическая ролевая игра в стил�
 ```bash
 magnet:?xt=urn:btih:809516BAF974DF4CE7FABA84188EAC5EAF1473A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:809516BAF974DF4CE7FABA84188EAC5EAF1473A2
 magnet:?xt=urn:btih:7F0C050A9DD4244363ADCD2C4E4A0935E595EA65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ VideoHive - Christmas Particles - 24991720 [MOV]
 ```bash
 magnet:?xt=urn:btih:5D8A8ABF7E7B3F8D3B60CC69C90038507C5830A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

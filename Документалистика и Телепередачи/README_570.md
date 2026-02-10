@@ -1,3 +1,29 @@
+###  Публикация: 1210869   (778486) от 04.03.2018
+
+Революция космических роботов / Space Robot Revolution (2016) HDTVRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_778486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Робототехника сейчас везде. Люди уже очень тесно сотрудничают с роботами, а кое-где заменены ими. Но ключевую роль роботы должны сыграть в будущем завоевании космоса. Некоторые андроиды уже отправлены туда, другие же, более высокого качества, скоро придут им в помощь или на смену. Что же делают космические роботы, и как они выглядят? Почему и каким образом они так (   Читать дальше...   )Производство: Франция, Films Concept Associes Production, RMC DécouverteЖанр: Документальный, научно-популярный, исследованияРежиссер: Мелани ДалсайсПеревод: Одноголосый закадровый, профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:342BDE098C9D1A9583803B6D0EB14F2FDD788A19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210738   (778497) от 04.03.2018
 
 Роллинг Стоунз. Ураган / The Rolling Stones. Crossfire Hurricane (2012) DVB
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:90F320029EFA63EBB346B2F93BC41F4B210E7202
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:90F320029EFA63EBB346B2F93BC41F4B210E7202
 magnet:?xt=urn:btih:DA7D31E6EFBBB8B9BA99930D99801F207A3AB734
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:DA7D31E6EFBBB8B9BA99930D99801F207A3AB734
 ```bash
 magnet:?xt=urn:btih:D2C8C18A3EB9AC12090E28410876819BA8A6C031
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:D2C8C18A3EB9AC12090E28410876819BA8A6C031
 magnet:?xt=urn:btih:96BCF2084450690CABEC952C663F86A5694783BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:96BCF2084450690CABEC952C663F86A5694783BE
 ```bash
 magnet:?xt=urn:btih:7E3EA1EFBD7234CCA8467CB637238CE575783032
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:7E3EA1EFBD7234CCA8467CB637238CE575783032
 magnet:?xt=urn:btih:008C7C195C5788A459D86F9F8539F52CEE26F876
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:008C7C195C5788A459D86F9F8539F52CEE26F876
 ```bash
 magnet:?xt=urn:btih:3D5B93EEA7A826E4C302A69304E0A34860C87804
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:3D5B93EEA7A826E4C302A69304E0A34860C87804
 magnet:?xt=urn:btih:113C7BFB57AB583BE047F137949AA46B4CC32174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:113C7BFB57AB583BE047F137949AA46B4CC32174
 ```bash
 magnet:?xt=urn:btih:67430E4EB0C04757C83023C0ABEC4E8F7A3B2E3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:67430E4EB0C04757C83023C0ABEC4E8F7A3B2E3F
 magnet:?xt=urn:btih:620967043923BF75D6EBEBE2B8041BF044169EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:620967043923BF75D6EBEBE2B8041BF044169EDC
 ```bash
 magnet:?xt=urn:btih:C632D9AF3B0FAC2F7560A39A52C2EA1C6C382467
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:C632D9AF3B0FAC2F7560A39A52C2EA1C6C382467
 magnet:?xt=urn:btih:5285DE6D39CCF3773784D0898DDDFDD6872C8153
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:5285DE6D39CCF3773784D0898DDDFDD6872C8153
 ```bash
 magnet:?xt=urn:btih:CC8B57237C2F8587521251AF3F4D231582E1F6D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:CC8B57237C2F8587521251AF3F4D231582E1F6D1
 magnet:?xt=urn:btih:19A2C9C9E931F4A2542E9924F2C53B68E97B1307
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:19A2C9C9E931F4A2542E9924F2C53B68E97B1307
 ```bash
 magnet:?xt=urn:btih:94BB24FDF11E386EC11E7AA1D1A34762D5304879
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:94BB24FDF11E386EC11E7AA1D1A34762D5304879
 magnet:?xt=urn:btih:DE225CBCA3C3661B6D2A54A269728F6810A1F6F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:DE225CBCA3C3661B6D2A54A269728F6810A1F6F6
 ```bash
 magnet:?xt=urn:btih:863460844C8B4B9764164196C20E48485A773EC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:863460844C8B4B9764164196C20E48485A773EC7
 magnet:?xt=urn:btih:476442E4C3023366A71465B43C15346ACA22D382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:476442E4C3023366A71465B43C15346ACA22D382
 ```bash
 magnet:?xt=urn:btih:7EAA2E950E40D7293CA6EF9A0FC208526C606501
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:7EAA2E950E40D7293CA6EF9A0FC208526C606501
 magnet:?xt=urn:btih:7BD433DCA763DD7F4093D2271BC3974A7A93882C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:7BD433DCA763DD7F4093D2271BC3974A7A93882C
 ```bash
 magnet:?xt=urn:btih:5677A218E290AB2795D6006C542C84AFF6CA263F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:5677A218E290AB2795D6006C542C84AFF6CA263F
 magnet:?xt=urn:btih:6CCB72E27237BD1403CAFD03B195B5B891BCA6F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:6CCB72E27237BD1403CAFD03B195B5B891BCA6F1
 ```bash
 magnet:?xt=urn:btih:E2AA6247D1C733D7BEB60403B0123901EFBA5F89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:E2AA6247D1C733D7BEB60403B0123901EFBA5F89
 magnet:?xt=urn:btih:F156023DE389985520FAFDB666957B4E2F959C9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:F156023DE389985520FAFDB666957B4E2F959C9A
 magnet:?xt=urn:btih:A174D28520FDA77E442043C3DC17B3DAF08CA0C1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209443   (779367) от 26.02.2018
-
-Маленькие но значительные: Пауки / Little Matters: Spiders (2014) HDTVRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_779367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предположительно пауки появились в Палеозойскую эру в Каменноугольный период. Это было примерно 2-2,5 млрд. лет назад. Среди обитателей животного царства пауки относятся к группе беспозвоночных живых существ. Пауки входят в самый многочисленный тип группы беспозвоночных - тип членистоногих. Как и для других классов, относящихся к этому типу, таких как насекомые, (   Читать дальше...   )Производство: Испания, Amprods, Alvaro Mendoza ProductionsЖанр: Документальный, фаунаРежиссер: Альваро МендозаПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B477B7BA325FD39751D18A5B747489706BF23AE7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

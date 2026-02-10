@@ -1,3 +1,32 @@
+###  Публикация: 1100495   (899938) от 04.02.2017
+
+VA - Empire Records - Dancenudisco 7 (2017) [MP3|255-320 Kbps] <Disco, Dance, Nu-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_899938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knightlore & Colin Rouge - Drowning In Your Space (Extended Mix)
+02. Free 2 Night - Under The Sun (Original Mix)
+03. Disco Sugar - Disco Roller (Milk Boys Remix)
+04. Camilo Franco - Disco(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91E2F8BEF02B465A0AF9B0D270C440FDB269CF3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992384   (900314) от 02.03.2016
 
 VA - Мой Любимый Русский Рок (2016) [MP3|128-320 кб/с] <Rock>
@@ -21,6 +50,8 @@ VA - Мой Любимый Русский Рок (2016) [MP3|128-320 кб/с] <R
 ```bash
 magnet:?xt=urn:btih:3C8823E22292D519B8CEFD9D19FA52C94888A2F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - не Громкие новинки недели 60 (2020) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:437B858F000452FCED559ED74A59A97DCA9C4DCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Hypnotic City Mix (2020) [MP3|320 Kbps] <Techno, Tech House>
 ```bash
 magnet:?xt=urn:btih:3DE3176E61841B08FD9560705EE4797EAFA66237
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +144,8 @@ VA - Хит парад русских Ди Джеев (2013) [MP3|224 кб/с]<D
 magnet:?xt=urn:btih:10F7C6DB7383AA1035C96E9F304319C045BC06AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +172,8 @@ VA - La Cabana R&B Jam Mixtape (2020) [MP3|320 Kbps] <R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:DC45238A6F7073308F794BFC286211A471A91E9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +202,8 @@ VA - Fresh Club Music Vol. 1 (2017) [MP3|320 Kbps] <Club, Dance, House, Electro 
 magnet:?xt=urn:btih:189FFD6E70112A5F94A2CEDF249C02B76A9F015D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ VA - Collection Reggae (2016) [MP3|320 кб/с] <Reggae, Ska, Hip-hop>
 ```bash
 magnet:?xt=urn:btih:029D879445419C715FCA04E9C6FF3B9CF17DFA1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +260,8 @@ John Lennon & Plastic Ono Band - The Ultimate Collection (2021) 8CD [MP3|320 Kbp
 magnet:?xt=urn:btih:1BEC893B9EC86833E6FDE284C7A523FA1AA0A6D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +288,8 @@ VA - Europa Plus Украина Тор 40 February 4th week (2016) [MP3|320 кб
 ```bash
 magnet:?xt=urn:btih:C4173AE3E61A7082698495761E3FC2FADDA0C98B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +318,8 @@ VA - Золото Русского Диско - 12 (2013) [MP3|256-320 кб/с] 
 magnet:?xt=urn:btih:05C8FCEF1A3E612E8425765781A9F1407EDBC039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +346,8 @@ VA - Золото Русского Диско - 16 (2014) [MP3|256-320 кб/с] 
 ```bash
 magnet:?xt=urn:btih:53F48C15FB4750F7D81EFC816BDAC8BCDB452347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +376,8 @@ VA - Promo DJ Top 100 Remixes Winter 2017 (2017) [MP3|320 Kbps] <House, Big Room
 magnet:?xt=urn:btih:42F5F9B474ED9C08E10B9E98B02955CE9402533E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +404,8 @@ VA - Золото Русского Диско - 17 (2015) [MP3|128-320 кб/с] 
 ```bash
 magnet:?xt=urn:btih:45344DCBC790D03FAB6E06654439AFE8959D5691
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +434,8 @@ VA - Fitness Mania Vol. 4 (2016) [MP3|320 кб/с] <Club, Dance, House, Euro>
 magnet:?xt=urn:btih:86779031B0BCE3B211E474D0BD6C008762B9C8E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +462,8 @@ VA - Radio Eurodance: Big Format Club House Mix (2016) [MP3|128-320 кб/с] <Cl
 ```bash
 magnet:?xt=urn:btih:6B485372189F7679F4E4F052E773AF28143DDB04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +492,8 @@ VA - German Dance Hits №7 (2016) [MP3|256-320 кб/с] <Pop>
 magnet:?xt=urn:btih:63FBA3FE29EC520469E619D42E19F25991DB24C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +520,8 @@ VA - Драйвовый клубный музон (2016) [MP3|320 кб/с] <Club
 ```bash
 magnet:?xt=urn:btih:E63B8FF679C6D26D0E6498225A6019F0D1F9DC2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +550,8 @@ VA - Water Oblivion: Chillout Deep Session (2016) [MP3|320 кб/с] <Chillout, L
 magnet:?xt=urn:btih:952EE0E4493B8388E3BA652207D2C7779A48BEFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +578,8 @@ VA - Traces Of Serenity: Longe Episode (2016) [MP3|320 кб/с] <Longe, Downtemp
 ```bash
 magnet:?xt=urn:btih:BA1E5B1B00685CA93AA0441082070F727C488DCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +608,8 @@ VA - Тонна шансона 2 (2016) [MP3|256 кб/с] <Шансон, Авт�
 magnet:?xt=urn:btih:A2E81C7584F5AEBF8CEFD81E7989A5C0F648182F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +636,8 @@ VA - Фитнес - Хит (2017) [MP3|217-320 Kbps] <Dance, House>
 ```bash
 magnet:?xt=urn:btih:2EAE532CE9CA76280EBC15C44DB7562C24E72E53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +669,8 @@ Hits of My Soul - сборник электронной и инструмент�
 magnet:?xt=urn:btih:8DC6F25E56FA7A1B460FE26F77E37085D1114DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +697,8 @@ Metallica - 100% Metallica (2020) [MP3|320 Kbps] <Metal, Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:2218BEDCBEA0C4C98719C0F54319B4F62CAE6FA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +727,8 @@ Pink Floyd - 100% Pink Floyd (2020) 2CD [MP3|320 Kbps] <Progressive Rock, Psyche
 magnet:?xt=urn:btih:10031DBC654B2B4812905CEE24174DB1D8A7546B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -679,32 +756,7 @@ VA - Space And Time (2017) vol.3 [MP3|320 Kbps] <Disco, Electonic, Space-rock>
 magnet:?xt=urn:btih:80414B507B1174CFDE6D9F72604518BAA39C8895
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100099   (901306) от 03.02.2017
-
-VA - 100 HITS Around Gravitation (2017) [MP3|252-320 Kbps] <Funky, Progressive, Hands Up, Club, Bigroom, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_901306.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chris Robin & Jonas Saalbach - Fridge Slap (Original Mix) 07:34
-002. Jdakk & French - Just A Feeling (Belfast Radio Edit) 03:51
-003. Igness - Avor 2015 (Extended Arena Mix) 05:00
-004. Hi-Lo - Renegade Mastah (Original Mix) 04:04(   Читать дальше...   )Жанр: Funky, Progressive, Hands Up, Club, Bigroom, Future HouseПродолжительность: 09:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40F1ABDABE541CAEAA861E7713A546705F3BF16
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

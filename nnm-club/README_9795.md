@@ -1,57 +1,3 @@
-###  Публикация: 1583240   (314656) от 13.10.2022
-
-Varials - Scars For You To Remember (2022) [MP3|320 Kbps] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Body Wrapped In Plastic - Prologue [00:03:20]
-02 - The Cycle Of Violence - Chapter 1 [00:02:38]
-03 - Ritual Division (HAÜS) [00:03:09]
-04 - Scars For You To Remember [00:02:22](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:31:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF41EF8558ED10AFA0D4428E335E3878FF52330A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582909   (314662) от 13.10.2022
-
-Jimmy Sticks - 2 Albums (2019-2022) [MP3|320 Kbps] <Thrash Groove Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гробы, бабы, самогон! [00:04:01]
-02. Бог узнает своих [00:03:22]
-03. Давай, гад! Давай! [00:04:18]
-04. Фантомас [00:04:42](   Читать дальше...   )Жанр: Thrash Groove MetalПродолжительность: 00:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD255574DA8475820A965DC462F45950DA2B696F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583233   (314666) от 13.10.2022
 
 Loggerhead - Terrestrials (2022) [MP3|320 Kbps] <Sludge, Psych, Doom, Stoner>
@@ -75,6 +21,8 @@ Loggerhead - Terrestrials (2022) [MP3|320 Kbps] <Sludge, Psych, Doom, Stoner>
 ```bash
 magnet:?xt=urn:btih:2BA43D0E2932A9DDF5669E72D5117E5F24FEF2A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +51,8 @@ Dagger Threat - Weltschmerz (2022) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
 magnet:?xt=urn:btih:CD4889ABF1D19687E76C91E99549B3172F3CE048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +78,8 @@ magnet:?xt=urn:btih:CD4889ABF1D19687E76C91E99549B3172F3CE048
 ```bash
 magnet:?xt=urn:btih:94CE8670F178A9A78EB27D808DE9C02F04B7EA64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +108,8 @@ Primus - The Desaturating Seven (2017) [FLAC|Lossless|tracks + .cue] <Alternativ
 magnet:?xt=urn:btih:D960C6294DFF59A34A6588A0B868F21018E622AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +136,8 @@ magnet:?xt=urn:btih:D960C6294DFF59A34A6588A0B868F21018E622AD
 magnet:?xt=urn:btih:9CAC18096CCCBB09C0698EDEFA8A0F4729BAE038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +161,8 @@ magnet:?xt=urn:btih:9CAC18096CCCBB09C0698EDEFA8A0F4729BAE038
 ```bash
 magnet:?xt=urn:btih:BDD0353AEEF50E6AC18C685F3B8D36CFD9024B54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +189,8 @@ Script Debugger предлагает пользователям всё, что �
 ```bash
 magnet:?xt=urn:btih:34410C90D4D09449501C81A29F8BF94499128B91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +219,8 @@ Primus - Suck on This (Live) (1989) 1990, Caroline Records [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:10147A9E6E42CF5F43DB281A9487AFFC15F189CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +247,8 @@ magnet:?xt=urn:btih:10147A9E6E42CF5F43DB281A9487AFFC15F189CA
 ```bash
 magnet:?xt=urn:btih:6BB31B6CDE49FD6E572176264DF9644C77BB9A59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +277,8 @@ Matt Bianco - Gran Via (1995) [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Sa
 magnet:?xt=urn:btih:FCDC0437084CFC6949A3542B2F07500A77E5751E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +305,8 @@ blessthefall - Hard Feelings (2018) [FLAC|Lossless|tracks + .cue] <Metalcore>
 ```bash
 magnet:?xt=urn:btih:241F015B1D7347641A14626BBA549B3AE5C81DAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +335,8 @@ magnet:?xt=urn:btih:241F015B1D7347641A14626BBA549B3AE5C81DAB
 magnet:?xt=urn:btih:78ABF769905719FE5640540A5F10936C244BFD53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +361,8 @@ magnet:?xt=urn:btih:78ABF769905719FE5640540A5F10936C244BFD53
 ```bash
 magnet:?xt=urn:btih:DE9FE4C9C74B47D670C5C63E1CF7F895813F8A42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +391,8 @@ Primus - Brown Album (1997) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 magnet:?xt=urn:btih:74C99878CEF299D21BD41392D907C5802875401D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +416,8 @@ magnet:?xt=urn:btih:74C99878CEF299D21BD41392D907C5802875401D
 ```bash
 magnet:?xt=urn:btih:59394C326968695BFA96B418BC8878DBD2AFD44C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +446,8 @@ Primus - Animals Should Not Try to Act Like People (2003) EP [FLAC|Lossless|trac
 magnet:?xt=urn:btih:26E0AD35B8234DA8CDDE622B1BF4D734A2B4DDC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +471,8 @@ magnet:?xt=urn:btih:26E0AD35B8234DA8CDDE622B1BF4D734A2B4DDC1
 ```bash
 magnet:?xt=urn:btih:41CBC42A77B7D1927E95CDB1ACD1DC186C930C09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +501,8 @@ magnet:?xt=urn:btih:41CBC42A77B7D1927E95CDB1ACD1DC186C930C09
 magnet:?xt=urn:btih:A7F79182E6B2CD94271D7C60149791CEE391C001
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +526,8 @@ magnet:?xt=urn:btih:A7F79182E6B2CD94271D7C60149791CEE391C001
 ```bash
 magnet:?xt=urn:btih:6D6A40BE51041C65A6CE8AAC86C8A50E6986501B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +555,8 @@ Acronym - Burgundy (2018) Stilla Ton [FLAC|Lossless|WEB-DL|tracks] <Techno>
 magnet:?xt=urn:btih:0486DC282857E6FCA8920E18ECC42DEFF9889243
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +580,8 @@ magnet:?xt=urn:btih:0486DC282857E6FCA8920E18ECC42DEFF9889243
 ```bash
 magnet:?xt=urn:btih:027480DCF45899E024335E76B3AC1BC082D55745
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +610,8 @@ VA - Five Years Eisenwaren (2018) [MP3|320 Kbps] <House, Techno, Minimal>
 magnet:?xt=urn:btih:42F95F3FD5C376C6DE6D7E59380620C32613D907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +636,8 @@ magnet:?xt=urn:btih:42F95F3FD5C376C6DE6D7E59380620C32613D907
 ```bash
 magnet:?xt=urn:btih:31798B51591CAD5CC1951EA360A165FC7A0348F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +665,61 @@ Primus - Miscellaneous Debris (1992) EP [FLAC|Lossless|tracks + .cue] <Alternati
 ```bash
 magnet:?xt=urn:btih:5EAC8F23821BD735FA2C5F63A889E61B012902BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959556   (314707) от 25.11.2015
+
+Галина Гончарова | Синяя птица счастья (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое счастье? Как мы его понимаем? Говорят же - синяя птица счастья... А что бы рассказала сама птица? Получилась такая коротенькая сказка...Жанр: ФентезиПродолжительность: 01:33:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9322E213A28F58ACE11953BC223767179626EB45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959551   (314708) от 25.11.2015
+
+Журнал | Men's Health [Россия] №8 (август 2015) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314708.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Men's Health» - самый узнаваемый мужской журнальный бренд категории lifestyle. Журнал освещает все стороны жизни мужчины – пишет о здоровье, фитнесе, моде, правильном питании, отношениях, путешествиях, технике, карьере. Это единственное издание, созданное чтобы показать мужчинам, как они могут улучшить свою жизнь.
+«Men's Health» - самый успешный из международных. (   Читать дальше...   )Жанр: Мужской журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C825AB528F6859E4D915F82D92167EAF4F470D1
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

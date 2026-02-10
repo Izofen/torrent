@@ -22,6 +22,8 @@ VA - Unique Sense History Vol. 1 (Mixed By Abstract Vision) (2015) [MP3|320 кб
 magnet:?xt=urn:btih:CF113E3CF2F6611F2CEE909CD1183E21A3E3E632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Global Communication - Transmissions (2020) Remastered | Evolution [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:362566FFE1DCCC4EC6162D56CC80463DBEF625F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Female Vocal Trance Vol. 2 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 magnet:?xt=urn:btih:85E46C5FA41C631FBABC324D8BF8B7920E72ECFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Faction - The End Of Tel Aviv Redux (2020) False Industries [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:462CF46ADFBD647626C8BE574D07DCBEC78E1A0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ VA - Deep Nu Disco House Sounds (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 ```bash
 magnet:?xt=urn:btih:D98075B05E96DE99437E9664CD9D0C96D57CB1E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ Various Artists - Ministry Of Sound - Deep House (2012) [MP3|320 кб/с]<Deep H
 magnet:?xt=urn:btih:870A0463C97DFAE290B59EDEA668316ECCDFE2EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +201,8 @@ VA - Ministry of Progressive (50 Supreme Tunes) Vol. 1 (2018) [MP3|320 Kbps] <Pr
 ```bash
 magnet:?xt=urn:btih:61E1700C5717ED25373F302BB57284FE9A6341E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +237,8 @@ Dunkan - Freshtime (2012) [MP3|320 кб/с]<Progressive House>
 magnet:?xt=urn:btih:80CC2FC4B904F57B94AEBF6A2DE4B4068C16B4EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +264,8 @@ VA - Ibiza Summer Club 2012 (2012) [MP3|320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:4FF06301318C3249EE9E51BA39B917BC34B473C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +300,8 @@ Various Artists - Club 86 Recordings Ibiza Closing 12 (2012) [MP3|320 кб/с]<P
 magnet:?xt=urn:btih:232EC5B6DD426485747527657FA813B4D26FB6BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +328,8 @@ VA - Halloween Rave (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
 ```bash
 magnet:?xt=urn:btih:493560203EDA0ECA9FB01C60093C59E3F70AF953
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +358,8 @@ BineMusic - Label Pack 27 Releases (2009-2017) [FLAC|Lossless|tracks+.cue, track
 magnet:?xt=urn:btih:853FB1B505DE3B387CFA136FF391C9BE66105ED5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +386,8 @@ V.A. - Vintage Cafe: Lounge & Jazz Blend Vol. 14 (2019) Special Selection [FLAC|
 ```bash
 magnet:?xt=urn:btih:77185702557F3DEFC52BDD86A81D7F1CA9677C6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +416,8 @@ Avicii - Stories (2015) [FLAC|image+.cue]<Dance, House, Electronic>
 magnet:?xt=urn:btih:A2C34EA52350C833CA4DEBD0B129ADEFCA50BA16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +444,8 @@ VA - Markus Schulz – World Tour Best Of (2012)(2CD)[FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:3435AC12E0F1FC06C20B4E689243ADF4E7CFAF29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +474,8 @@ Modjo - Modjo Remixes (2013) [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco, Ele
 magnet:?xt=urn:btih:E9E6BE344707B27D3CF0C6154DCD5C914958420E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +502,8 @@ VA - Bikini Beach, Vol. 9 (2019) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:99FABB98806884F679E9705F5D81B19D03F1A047
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +532,8 @@ Craig Connelly - Live @ Pepsi Max Arena, Creamfields UK, United Kingdom 2019-08-
 magnet:?xt=urn:btih:1CF054EC4FAA055BD56FDD4E12A810A1EB312AE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +560,8 @@ VA - Stay a While and Dance (2016) [MP3|320 Kbps] <Funky, Progressive, House>
 ```bash
 magnet:?xt=urn:btih:4B4B4D782E8A9C7F8546AF47C1D085D37EF8B16D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +590,8 @@ Masterboy - Generation Of Love - The Album (1995) Vinyl-rip, Reissue, Remastered
 magnet:?xt=urn:btih:189F37B622B314C5AE0517453024C99B150C59E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +619,8 @@ VA - Epic Trance Vol.3 (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:EF42D6D43364C16EC9A144C38E508575FA4F5F29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +647,8 @@ VA - Nothing But... Total Trance Selections Vol.05 (2018) [MP3|320 Kbps] <Trance
 ```bash
 magnet:?xt=urn:btih:1A84DBD0ADA372B5B02C0612B46220002BBF12B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +678,8 @@ Kim & Buran - петербургский музыкальный коллекти
 magnet:?xt=urn:btih:0795CBA09454F51B806552216D6262C50424D702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +706,8 @@ VA - FSOE Ibiza (2022) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:4C9CE9BC382CD0BD293D36A0237D266BD0DF16DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -688,6 +736,8 @@ One Arc Degree - Gravity Shaped (2020) [FLAC|Lossless|WEB-DL|tracks] <Downtempo,
 magnet:?xt=urn:btih:22948555692719C608BC7C1D95F580D30ADC8344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -714,6 +764,8 @@ AK1200 with MC Navigator - Mixed Live: Moonshine Overamerica, San Francisco (200
 ```bash
 magnet:?xt=urn:btih:7C4F48E17FBF7FFCE3255AC51713C39CD5486251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

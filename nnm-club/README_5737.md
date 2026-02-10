@@ -22,6 +22,8 @@ Skillshare, Simon Van Den Hende| Основы скриптинга на Python �
 magnet:?xt=urn:btih:282073517B72CA9D9A43CD97AFFF1712447126F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:282073517B72CA9D9A43CD97AFFF1712447126F1
 ```bash
 magnet:?xt=urn:btih:951B83ACC04BB7A1D66BA7B16C88928B31F0A2B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:951B83ACC04BB7A1D66BA7B16C88928B31F0A2B0
 magnet:?xt=urn:btih:F71178390BB47240C6F96ACE01CFC4929F5A0332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:F71178390BB47240C6F96ACE01CFC4929F5A0332
 magnet:?xt=urn:btih:2742FA64639AAA186FEC8A2F562510A768CEA0C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Room Arranger - программа специально предназначен
 ```bash
 magnet:?xt=urn:btih:A5C7563C066F68B003FB1E2E3ACF6DFDFC5E23A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:A5C7563C066F68B003FB1E2E3ACF6DFDFC5E23A7
 magnet:?xt=urn:btih:F828CB77118648A1843F742B5173AE577333E79F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:F828CB77118648A1843F742B5173AE577333E79F
 ```bash
 magnet:?xt=urn:btih:C7E7B5D3F040B6A9E4E42C4C755F2988121C23B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Microsoft может перейти к распространению Windows 12
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Microsoft может перейти к распространению Windows 12
 ```bash
 magnet:?xt=urn:btih:399753B68B3DB32D6DC66DA431564A24A1C69894
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ NG. С Точки Зрения Науки: Полёт в систему Юпит
 magnet:?xt=urn:btih:65EF533F71F784E4931178A909640E3BB75CEC82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:65EF533F71F784E4931178A909640E3BB75CEC82
 ```bash
 magnet:?xt=urn:btih:6710A9962FE36A83199152393BCE93A0504876F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:6710A9962FE36A83199152393BCE93A0504876F0
 magnet:?xt=urn:btih:B599709FF3A2D5FBAC064A7B83F7E7171FDE7EED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:B599709FF3A2D5FBAC064A7B83F7E7171FDE7EED
 magnet:?xt=urn:btih:B45EED4D7E80131DA1AFE65AE7EA520589A9EBCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:B45EED4D7E80131DA1AFE65AE7EA520589A9EBCA
 ```bash
 magnet:?xt=urn:btih:CF15996F03BAFEB223DDA1A669A103527BAE80C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:CF15996F03BAFEB223DDA1A669A103527BAE80C4
 magnet:?xt=urn:btih:85605E8F676167CFDAE2BA1A9664D50DE1FDAE28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ Udemy, MrBriit | End-To-End Machine Learning Projects&Deployment Mastery 2021 (2
 magnet:?xt=urn:btih:2DC0F6BA40A8D228EB7FE83F1D939ACB794719C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:2DC0F6BA40A8D228EB7FE83F1D939ACB794719C4
 magnet:?xt=urn:btih:71175CBB34ED604DF274A1B50746E38C012C9069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:71175CBB34ED604DF274A1B50746E38C012C9069
 ```bash
 magnet:?xt=urn:btih:0A9EBE299FD40BF60A66A3D34124EAD41FA5CD6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:0A9EBE299FD40BF60A66A3D34124EAD41FA5CD6C
 magnet:?xt=urn:btih:B11875528C2E75E83CB69D948450C99A4CF76C92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:B11875528C2E75E83CB69D948450C99A4CF76C92
 magnet:?xt=urn:btih:19D40906A676FF193EA4D06F1F2CF4347543D7EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:19D40906A676FF193EA4D06F1F2CF4347543D7EF
 ```bash
 magnet:?xt=urn:btih:6E3A8FCC2676797927EFBF01AA61F589D832E142
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ Capture One Pro один из самых мощных профессиональ
 magnet:?xt=urn:btih:E9A347BDA5AA68263523FBB18E1428F574CE6185
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:E9A347BDA5AA68263523FBB18E1428F574CE6185
 ```bash
 magnet:?xt=urn:btih:AE9DD7898200187C9E542D59BCA32BD99EDB2565
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ BBC: Мир природы: Болота. В ад и обратно / The Natura
 magnet:?xt=urn:btih:8A31B83512D2600956372CEA7137C0A188C835C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:8A31B83512D2600956372CEA7137C0A188C835C8
 ```bash
 magnet:?xt=urn:btih:C795A3D95C35BB3FB72A9571792D49948F5170F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +691,8 @@ Gumroad, Evolving CG | Создание малыша Йоды / Creating Baby Yo
 ```bash
 magnet:?xt=urn:btih:9BBA3C7647D39F0044966342107AF9B05C60F937
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

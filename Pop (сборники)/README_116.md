@@ -1,3 +1,32 @@
+###  Публикация: 862011   (931367) от 22.01.2015
+
+VA - Дискотека 80-90 годов по - новому от Виталия 72 - Часть- 4 (2015) [MP3|313 - 320 кб/с]<Eurodance, Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_931367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Ashley - Touch By Touch
+02. Dieter Bohlen - Love Me On The Rocks (Dj Alex Dolce Remix )
+03. Disco Service - Come And Dance
+04. A-Ha - Early Morning (DJ Amure Remix )(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:29:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44ECC9D23F7F7B29FBAF8D3C77C32165BA742DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094001   (932428) от 16.01.2017
 
 VA - Автозвук. Отборный зимний хит (2017) [MP3|256 Kbps] <Pop>
@@ -21,6 +50,8 @@ VA - Автозвук. Отборный зимний хит (2017) [MP3|256 Kbps
 ```bash
 magnet:?xt=urn:btih:3B44016543692EC354035C77E74B309420AEDC2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - 100 пудовые зимние хиты на Europa Plus. Выпуск №
 magnet:?xt=urn:btih:411BC1834EAA644F1894156846DC26DB05F1470D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Дискотека зимних дорог. Русские хиты. Час
 ```bash
 magnet:?xt=urn:btih:F9543AD56AB31D7714066EB8DE2550E5E7BB1C6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Музыкальные новинки. Only Best Hits. Часть № 6 (20
 magnet:?xt=urn:btih:EE0FDC81396118A8A375CE965FEE6670C5E71E26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Снегопад новинок. Сборник № 5 (2017) [MP3|256 Kbps]
 ```bash
 magnet:?xt=urn:btih:AECC0B267B41ADB84943501EC540714A6CC30160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Снежный хит-парад. Русские хиты Выпуск № 
 magnet:?xt=urn:btih:A90AB9733BB3EAF9CA2DEA248A36D13F8C5EC613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Зимняя зажигательная дискотека. Русский 
 ```bash
 magnet:?xt=urn:btih:045D57D1E563EB2DB2ADA597EB85BA4CE71F2317
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Музыкальное потрясение зимы от Русского 
 magnet:?xt=urn:btih:CCAD4413DA4A41C2BFFCB06615CB71D3198E3978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Музыкальный плен. Выпуск № 7 (2017) [MP3|256 Kbps] <
 ```bash
 magnet:?xt=urn:btih:7FEF8456E667123D24C955940AC2FBFC25E19B35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Отрывайся с лучшими хитами. Часть № 9 (2017) 
 magnet:?xt=urn:btih:E030E56E28C8E9774CCDDA5B65DA5B9D41599BBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ magnet:?xt=urn:btih:E030E56E28C8E9774CCDDA5B65DA5B9D41599BBE
 ```bash
 magnet:?xt=urn:btih:3DDFDFA849EC42E58FD6BB4528F4B894DC571868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Take Your Chance: Eurodance Mix (2020) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:015A938215EA4DF21CB98756E34A17E612C5F909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +399,8 @@ VA - Empire Records - Blue Line 2 (2017) [MP3|128-320 Kbps] <Dance, Club, Electr
 magnet:?xt=urn:btih:69F88A4D6C0BE51EB7A1D8C3385F0F1AA2FBF1F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +426,8 @@ VA - The Official UK Top 40 Singles Chart (10-03-2013) [MP3|320 кб/с]<Pop, Da
 ```bash
 magnet:?xt=urn:btih:70E2F86FD2A4C72CC4F6932D3D513C33957DA13C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +456,8 @@ VA - Unknown 80's (part II) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthpop
 magnet:?xt=urn:btih:1DB40C1324B386C95EFE266E691B2A57EF5B32A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +484,8 @@ VA - German Top 100 Single Charts 13.01.2017  [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:29F5C531B6455FA8574852F6BE88C324B02602E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +514,8 @@ VA - Evolution of Disco - CD1 (1964-2015) [MP3|128-320 кб/с] <Funk,Disco,Hous
 magnet:?xt=urn:btih:8CEEADD9CC9A37311C16AFE12125CF3DCD77EFD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +542,8 @@ VA - 100 Hits Of The 70's & 80's & 90's (2020) [MP3|320 Kbps] <Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:8128756D49711DD3BCAB44F58320A199711C8AE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +572,8 @@ VA - UNKNOWN 80'S (PART XII) (2020) [MP3|320 Kbps] <Electronic Pop Rock, Synthpo
 magnet:?xt=urn:btih:0E3D8EDE94912119B83725BD3B9EFCE7A5321398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +600,8 @@ VA - Русская дискотека. Энергия хитов (2016) [MP3|25
 ```bash
 magnet:?xt=urn:btih:56B20DEB2C0E278B097DA1D4B353771142F3A02C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +630,8 @@ VA - German dance hits №3 (2016) [MP3|256-320 kbps] <Pop>
 magnet:?xt=urn:btih:C4E5A23BF62994A577F3B2A153F07AE24C181F73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +658,8 @@ VA - Evolution of Disco - CD2 (1964-2015) [MP3|192-320 кб/с] <Funk,Disco,Hous
 ```bash
 magnet:?xt=urn:btih:13015E19BE7429459EFF76FF6D6C88ABFF54FDA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +688,8 @@ Donna Summer - Queen of Disco (2020) 2CD Compilation [MP3|320 Kbps] <Pop, Disco>
 magnet:?xt=urn:btih:D7810074557D882617A1C5BD8387D443F21D150D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +716,8 @@ VA - The Dance Riot (2020) [MP3|320 Kbps] <Dance, Disco, EDM>
 ```bash
 magnet:?xt=urn:btih:81DA368960C3E9A036C6BB5E6CBDCCA7B7B6C8A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,32 +746,7 @@ magnet:?xt=urn:btih:81DA368960C3E9A036C6BB5E6CBDCCA7B7B6C8A5
 magnet:?xt=urn:btih:21C11EC462CF93E4B6A15449467283F643983516
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984603   (938495) от 09.02.2016
-
-VA - Italo & Space Disco Vol.2 (2016) [MP3|320 кб/с] <Italo-Disco, Spacesynth>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ernesto – Laser Coaster (04:39)
-02. Digital Galaxy – Planet Of Fire (05:02)
-03. Holomatrix – A Star Was Born (04:45)
-04. Synthesis – Guardian Of The Galaxy (07:00)(   Читать дальше...   )Жанр: Italo-Disco, SpacesynthПродолжительность: 05:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1BF0EFFD2D73A7BC26E2E2AC1914F7B58249F54
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

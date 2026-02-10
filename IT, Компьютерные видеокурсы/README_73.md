@@ -21,6 +21,8 @@ ASP.NET Core MVC для .NET 5. Первая часть.
 magnet:?xt=urn:btih:247CBECA2D514717595D47AF16B5363D7F6645A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ GeekBrains | Профессия Веб-аналитик (2020) PCRec
 magnet:?xt=urn:btih:8367F07E6368AC4C3FEEF81A663845288075C182
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:8367F07E6368AC4C3FEEF81A663845288075C182
 magnet:?xt=urn:btih:25E7C408B7B130F65684292ED951D8BE4DC04CB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:25E7C408B7B130F65684292ED951D8BE4DC04CB8
 ```bash
 magnet:?xt=urn:btih:F0AD08D093A6A199A6707FFA2663C525E60DC2B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Microsoft – мировой лидер продаж программного о
 ```bash
 magnet:?xt=urn:btih:A0ADD695AD8C5517A1FB6D98BF3C169288C346F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:A0ADD695AD8C5517A1FB6D98BF3C169288C346F2
 magnet:?xt=urn:btih:332E7B8491DA30393C6F386BC42F2AC268DBC5E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ Front-end Science | ReactJS (2017) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:4DCE1680F0C31A38F14BFD73965EC0B4A29D2A27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ ProfIT | PHP (1-3 уровень): Введение в профессию/Про
 magnet:?xt=urn:btih:0FD539DB02DF7BE7035F27AC8D0B81B8FA1ECD0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ C# Express – курс третьей стадии обучения – пос�
 ```bash
 magnet:?xt=urn:btih:386FA9B9E84C27DC840B44A73FF96D842D219D02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:386FA9B9E84C27DC840B44A73FF96D842D219D02
 magnet:?xt=urn:btih:629CEF28AB3E25C4871239C31C588B9F4E5D3D90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ ProfIT | PHP-1: Введение в профессию (2016) PCRec
 magnet:?xt=urn:btih:A9A90DF8E33FCF5722387301610AB2F10C000A2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ Golang создавался для внутренних нужд Google, а се
 ```bash
 magnet:?xt=urn:btih:C448193128B6ECC5717823E809971899433E7DCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:C448193128B6ECC5717823E809971899433E7DCC
 magnet:?xt=urn:btih:BE6F5338151CCBC76B560ADF75BB0DAB0E585D21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ OTUS | Product Manager IT-проектов (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:2AF1F18FB83F63806A648AE8F5274B6DCE21B61F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ OTUS | Архитектура и шаблоны проектирования [Ч
 ```bash
 magnet:?xt=urn:btih:CDD86D0AD55306AF9DEE14A7562A977F8F5C151F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ OTUS | React.js разработчик (2020) PCRec
 magnet:?xt=urn:btih:E38E1F6678B312248512EC314EBDA847EDC87F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ OTUS | Framework Laravel [Часть 1-3] (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:CB661F7D372359ED8FBD12B74C2B4AD34A5D8779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ Python и PostgreSQL являются двумя наиболее востреб
 magnet:?xt=urn:btih:C91567014C24F0FD0BD6DCA2FDD358E7A22E648A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ Docker - это инструмент, позволяющий пользоват�
 magnet:?xt=urn:btih:31EDB0B31114E43A81E491267E9E5104849F9E09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ Udemy, Dzianis Matveyenka | JDBC (2022) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:4EBD6DCD5B0E93DF246E8D0C81EF599A5DE10C99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ kts.studio, Александр Опрышко | Асинхронное прог�
 magnet:?xt=urn:btih:45A0D2BDA11ABC8FD4DB6B57F86C646BA23990FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:45A0D2BDA11ABC8FD4DB6B57F86C646BA23990FF
 ```bash
 magnet:?xt=urn:btih:78CCF8B227B79AC658B48D9C1A78456E4C26F74C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:78CCF8B227B79AC658B48D9C1A78456E4C26F74C
 magnet:?xt=urn:btih:1D3D33991EE52BE4444FBAD1FF0F05D85F77F09D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:1D3D33991EE52BE4444FBAD1FF0F05D85F77F09D
 ```bash
 magnet:?xt=urn:btih:DC07AB5133E6AC9649090DE93914CB237E0E8D42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ Metaspoit Framework является инструментом с открыты�
 magnet:?xt=urn:btih:097E4DE7D9F58410E41BF704BB45382AE4B91F5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:097E4DE7D9F58410E41BF704BB45382AE4B91F5F
 ```bash
 magnet:?xt=urn:btih:1DA227932191CAE42C8EBA6935828D9E2F41E3BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

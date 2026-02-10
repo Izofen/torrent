@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:68393BE6CF70CA9FCCC0BF2E6E32773001642037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Udemy, Paweł Ciepliński | Mikrotik MTCNA (2021) PCRec [En / En Sub]
 ```bash
 magnet:?xt=urn:btih:7DE02084926A474CBD836797AC7DFC93E828AEF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ open isp закрытые порты понимание переадресаци
 magnet:?xt=urn:btih:5632ADBCFE5EF1998CDC696AAEF33E4DC82C102F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Udemy, Maher Haddad | Network Automation on MikroTik using Python (2020) PCRec [
 ```bash
 magnet:?xt=urn:btih:F55650E18861972C3EFE378B219C2AE255B9E0F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ Udemy | MikroTik from Beginner to Expert (2018) PCRec [En / En Sub]
 magnet:?xt=urn:btih:1521569E5D80E1AC91F63E35959BAA7C8F6A5E1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Udemy, Maher Haddad | MikroTik Failover Setup with LABS (2019) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:D89396E4359A541A15AD54E427F6A540E7A946AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ Udemy, Maher Haddad | MikroTik Switching - Spanning Tree Protocol  (2019) PCRec 
 ```bash
 magnet:?xt=urn:btih:02546FC1CE14E5760358D242B3DCC9FDA57D101A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ Udemy, Сергей Голяков и др. | Базовый курс по ин�
 magnet:?xt=urn:btih:9D953005BED5144EE72D3C7CE9BC1AFAE6E3B98E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ IPv6 - это будущее !!!!
 magnet:?xt=urn:btih:4E7BB73E5527EAF4ED084E0432B3517F3B677846
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ Udemy, Maher Haddad | Learn MikroTik ROUTE with Hands-on LABS from scratch (2018
 ```bash
 magnet:?xt=urn:btih:D9D7A89CE9F225ADC8AE0C8B71BE1D1013C1AB06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ Udemy, Maher Haddad | MikroTik Hotspot with User Manager (2018) PCRec [En / En S
 magnet:?xt=urn:btih:E9FBC77770589D93DC37DDA27693BB028C8F798F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ BGP - это протокол маршрутизации в Интернете. 
 ```bash
 magnet:?xt=urn:btih:D9E583B20B0019A2ACBAA92567D892407A05E01C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ Udemy, E-Preceptor Online Training | MikroTik Basic - Module 1 based on the MTCN
 magnet:?xt=urn:btih:3EE098CCA3DB2354AE4265DFC22A2E419C1D1217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ Udemy, Tomislav Fedek | MikroTik configuration as failover and firewall setup (2
 magnet:?xt=urn:btih:3901A3A90808D6EBC920DC144F2A210D165B7B98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:3901A3A90808D6EBC920DC144F2A210D165B7B98
 ```bash
 magnet:?xt=urn:btih:8C1A92F3B84A99C5F1B4A1806ECB2A9F5FC933CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ Udemy, Anton Golosnichenko |  React Native с нуля на практике [20
 magnet:?xt=urn:btih:BA1055954B23C935FD0944D6BA433B006E58FC06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ Udemy, Maher Haddad | MikroTik Monitoring with LABS  (2020) PCRec [En / En Sub]
 ```bash
 magnet:?xt=urn:btih:4690CDF2AA4A1EFC89049B6A0E5B626890FE0C68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ Udemy, TCM Security  | Linux Privilege Escalation for Beginners  (2020) PCRec [E
 magnet:?xt=urn:btih:A99E18E1CC125D432279F68115B6FF4DD9FACC3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ Udemy, TCM Security  | Windows Privilege Escalation for Beginners (2020) PCRec [
 magnet:?xt=urn:btih:C0E965A530AC178229B53F70935EA560C5D4518C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ Udemy, Lazaro Diaz | The Only IP Course you Will Ever Need!  (2020) PCRec [En / 
 ```bash
 magnet:?xt=urn:btih:A0E3FC14D07A55DAC22C60CD8E98819EAD26E7F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +576,8 @@ Udemy, Renat Lotfullin | Excel VBA – Программирование макр
 magnet:?xt=urn:btih:1C9373554DC37BB18559ED2F62DEE3B2C6BF362B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ magnet:?xt=urn:btih:1C9373554DC37BB18559ED2F62DEE3B2C6BF362B
 ```bash
 magnet:?xt=urn:btih:6C6DC446610867E34C526D5C8CBC5CE738A8418B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +631,8 @@ Python - вероятно, самый популярный язык програ
 magnet:?xt=urn:btih:114F032D3C1CAE25915B79A1A68B39A2CEF3C468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +660,8 @@ SkillUP, Евгений Макаренко |  Вводный курс Тести
 magnet:?xt=urn:btih:913CD8CA25F346B1168094F9CA87CCB84AD413DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +687,8 @@ Udemy, Maher Haddad |  MikroTik Traffic Control with LABS  (2019) PCRec [En]
 magnet:?xt=urn:btih:5779C1B47698E59A63A906CE61ABE4BCF496471A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +713,8 @@ Udemy, Maher Haddad | MikroTik CAPsMAN with LABS (2019) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:845A72784ADD417AE661FEC830CE255685F7BB15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

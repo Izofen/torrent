@@ -22,6 +22,8 @@ Le Winston Band - Zig Zag Zydeco Zoo (2019) [FLAC|Lossless|tracks + .cue] <Zydec
 magnet:?xt=urn:btih:6EEDB9AB40C6ED42276642AF727443233CC649AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Damien Jurado - In the Shape of a Storm (2019) [FLAC|Lossless|tracks + .cue] <Fo
 ```bash
 magnet:?xt=urn:btih:45AA095DF27E681AB80057114E48DB4F93C6F1BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Alicia Deschênes (Alicia Deschenes) - Comme June aime Johnny (2019) [FLAC|Lossl
 magnet:?xt=urn:btih:BC2C2F652E878C8B0E819734A91D278B08F215DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Saint-Preux - Odyssee (1986) [FLAC|Lossless|image + .cue] <Instrumental, Neoclas
 ```bash
 magnet:?xt=urn:btih:DC4F26F72B510B1B5DE9000200B56EDD63A90338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Paul Sills - Universe Within (2018) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:F08406FDA36671600D17A0E1117A887882752166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Paul Sills - Aniem (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:21F661F0F326440AD8A83B0718A253AFE53EEBD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Celtic Collection 1 (2016) [MP3|320 Kbps] <New Age, World, Celtic>
 magnet:?xt=urn:btih:41B959054252280DA631B11BC9C66AC18D25114A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Vangelis - Light And Shadow: The Best Of Vangelis (2013) [MP3|320 Kbps] <Electro
 ```bash
 magnet:?xt=urn:btih:3F1BA9FF71774FAC21E5DF3F78A2B92B7D2D000F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ David Thomas - Edheldred (2015-2016) 2 альбома [MP3|320 Kbps] <Epic, New 
 magnet:?xt=urn:btih:0FCCDDBD69A164C7E86B5C649CE1C96B7BA416A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - The True Nature of Happiness: 50 Calm Relaxing Music (2017) [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:CDECC97C74805F3FD5881AA6E2AC74206CCF6E56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Zen Tracks Deep Inner Peace (2017) [MP3|320 Kbps] <Chillout, Ambient, New A
 magnet:?xt=urn:btih:8C7148E40972F67867C1F3A80895102262D9F6E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ David Arkenstone - Pure Sleep (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:B86C72DA9D16F03D629465B42FB1E7A84E2B65EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:B86C72DA9D16F03D629465B42FB1E7A84E2B65EF
 magnet:?xt=urn:btih:1ABE305F41EF2474349A7248818E09CC51708052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:1ABE305F41EF2474349A7248818E09CC51708052
 ```bash
 magnet:?xt=urn:btih:624B2755B382427AC41842620435D9C37230ADA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ The Guggenheim Grotto - 3 альбома [MP3|128-320 кб/с]<Folk-pop>
 magnet:?xt=urn:btih:441CFD7A61DF7E4EBB90C446384FE0AED9D057F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ VA Hit Country - Hit Country (2014) [MP3|320 Kbps] <Country, Alt Country>
 ```bash
 magnet:?xt=urn:btih:249D5DBC8C1981E711DABE1119D45E0C3AE492F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ Marc Shaiman - Семейка Аддамс / The Addams Family (2014 (1991)) [FL
 magnet:?xt=urn:btih:1B7F3B646B2FBA84E5FD25A38657D22B8B546D93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +521,8 @@ Patty Loveless - Mountain Soul (2001) [FLAC|Lossless|image + .cue] <Country, Blu
 magnet:?xt=urn:btih:8A49B19CAC1F32A6FC5167E752529BB56389F548
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +549,8 @@ Wuauquikuna - VII: The Sun Of The Inka's (2016) [FLAC|Lossless|image + .cue] <Na
 ```bash
 magnet:?xt=urn:btih:2470BD5CD96534ACAA5CE009DDC55EFCFDFA6723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +585,8 @@ Namaste - True Crystals (2009) [MP3|256 kbps]<New age, Meditative>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +613,8 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:E6498A6B484BF91B21D37774F304F15EF14520BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +643,8 @@ Our Native Daughters - Songs of Our Native Daughters (2019) [FLAC|Lossless|track
 magnet:?xt=urn:btih:88820EF7A32FA65D9FB890001317E82F3CC3A77C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +671,8 @@ California Guitar Trio - Masterworks (2012) [MP3|213~253 Kbps (V0)] <Instrumenta
 ```bash
 magnet:?xt=urn:btih:6CBDA4D5159DC1A5C68D46E69213D6C738793843
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +701,8 @@ magnet:?xt=urn:btih:6CBDA4D5159DC1A5C68D46E69213D6C738793843
 magnet:?xt=urn:btih:21D28A06DAC6C2C675C6CBD6CDD13C96699F804A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,6 +729,8 @@ VA - Spice (2016) [MP3|320 Kbps] <New Age, Ambient>
 ```bash
 magnet:?xt=urn:btih:CF1A1FA412B44AAC7CB4B149E2F655BFB74233F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -714,6 +764,8 @@ magnet:?xt=urn:btih:CF1A1FA412B44AAC7CB4B149E2F655BFB74233F8
 ```bash
 magnet:?xt=urn:btih:0CC8D08FB05C60E865C03BE2BB4DFB39CC057937
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

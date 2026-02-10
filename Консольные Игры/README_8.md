@@ -19,6 +19,8 @@ Never Alone / Kisima Ingitchuna (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO]
 magnet:?xt=urn:btih:FA6ED0CE5CBAB1005096FFFBCAD8F0AC60DEB626
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Winter Stars (2011) [PS3] [EUR] 3.72 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 ```bash
 magnet:?xt=urn:btih:409EF555164DFE6834A7491C80D45AF976D7FB19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Karaoke Joysound позволит вам спеть десятки любимы�
 magnet:?xt=urn:btih:48FE7FD501B8BC917926192E8E6050F2F983BBAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ New Super Mario Bros. U Deluxe (2019) [Switch] [EUR] 8.1.0 [NSZ] [License] [Ru/M
 ```bash
 magnet:?xt=urn:btih:E587D3ADE2C48FC5E7562446493B4B792EC9209C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Nintendo Land (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Ru/Multi]
 magnet:?xt=urn:btih:BA76EFB410814B86D33D612943E3EF9BCC3CB2E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Legend of the Guardians: The Owls of Ga'Hoole The Videogame (2010) [Xbox360] [Re
 ```bash
 magnet:?xt=urn:btih:6FD167AFD967438856CCF85B0F36AF1D68C9CBA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Skate 3: Complete Edition [XBOX360] [Ru] [Freeboot] (2010)
 magnet:?xt=urn:btih:977601C4EBF092E177856E01E05D999646877467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ QT377665, сокращенно QT3, — устаревшая модель. Ро�
 ```bash
 magnet:?xt=urn:btih:123706B8844FB0DC7183097A434B1D778E13D79A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Halo: Combat Evolved Anniversary (2011) [Xbox360] [Region Free] FreeBoot [Unoffi
 magnet:?xt=urn:btih:3A7F84A2853CE6EADC97353337DC09B481D998E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ The Order 1886 (2015) [PS4] [EUR] 5.05 [License] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:01140EF138EBAB31A6EF0D7852A060BB5753F0DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Blur [PS3] [EUR] [En] [3.21] [Cobra ODE / E3 ODE PRO ISO] (2010)
 magnet:?xt=urn:btih:92B58E05522E6FAB430325C08A26E4C98C221270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ I am Setsuna (2016) [PSVita] [JAP] 3.60  [HENkaku] [Unofficial] [Ru]
 ```bash
 magnet:?xt=urn:btih:47FCDDC615DE43269D40D4635084BC4AB977024B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Back To The Future: The Game (2012) [PS3] [EUR] 4.01 [Cobra ODE / E3 ODE PRO ISO
 magnet:?xt=urn:btih:EEE921DB694BC0362AEFC440DEBCE7FD06F719D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ R.U.S.E. – увлекательная стратегия в реальном �
 ```bash
 magnet:?xt=urn:btih:0447710A11FDBC461D7D947AA4C6B39E13899B34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ MotorStorm: Apocalypse [PS3] [PAL] [RUSSOUND] [3.56] [Cobra ODE / E3 ODE PRO ISO
 magnet:?xt=urn:btih:0590E97E5CE31BD9FEC217736923CA691544BDB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ MotorStorm: Pacific Rift - зеленый пальмы, булькающие б�
 magnet:?xt=urn:btih:7E38A99F74A1A2ED8B8A90EB167B4CF0F6284AA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Kinectimals: Now with Bears! [XBOX360] [KINECT] [Ru] [Freeboot] (2011)
 ```bash
 magnet:?xt=urn:btih:C9A78FB296453C9A0D69673081322BC253F56CBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Deus Ex: Human Revolution [PS3] [Ru/En] [Repack / 1.01 / 3 DLC] (2011) | R.G. In
 magnet:?xt=urn:btih:36C94D7A74F12C43C4DF121BD46AB942B88731D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ FIFA 19 на движке Frostbite подарит игрокам поистин
 ```bash
 magnet:?xt=urn:btih:84FAF1904C8C0A236E20753BB5AAC1549D49BC1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Grid Autosport (2019) [Switch] [USA] 9.0.1 [NSZ] [License / DLC / 1.5_46790] [Ru
 magnet:?xt=urn:btih:D2848D0C567E22674903FFA52F7F75C26ED0C172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Super Smash Bros. Ultimate — нетрадиционный файтинг, в �
 ```bash
 magnet:?xt=urn:btih:D6ABB2A18C8C308CFA0FFD1A5D961EA71245883C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ MX vs. ATV: Reflex (2010) [PS3] [EUR] 3.01 [Cobra ODE / E3 ODE PRO ISO] [License
 magnet:?xt=urn:btih:BC3DE62FD5638A09E517A318DD1030AAF1C63774
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Terraria (Террария) — инди-игра в жанре приключе
 ```bash
 magnet:?xt=urn:btih:E2BD6105203B936C118921556B65C435C56237A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Guitar Hero Van Halen – следующая часть знаменитой с�
 magnet:?xt=urn:btih:831A519CC40F4EDAEE98BC9A79D19878094349F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Unravel Two (2019) [Switch] [USA] 9.1.0 [NSZ] [License] [En]
 magnet:?xt=urn:btih:5344C3A95D4D9341C5050EDE205A266E7864C135
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Mario Kart 8 Deluxe (2017) [Switch] [EUR] 16.1.0 [NSZ] [License / 3.0.0 / DLC] [
 ```bash
 magnet:?xt=urn:btih:7E90973638E59843303C8636B1097F9BC853682A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

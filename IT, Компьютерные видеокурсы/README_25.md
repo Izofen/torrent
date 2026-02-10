@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:46C722F58246DAA6974784BB126291AF7BB332BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Skill.Im, Екатерина Нечипоренко | Visual Basic for Applicati
 ```bash
 magnet:?xt=urn:btih:1E0BF92DC84681EDA76CDBCCE0270B4430DB8EAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Rebrain | Онлайн-тренажер Prometheus by Rebrain  (2023) WEB-DL [AD
 magnet:?xt=urn:btih:EFADD4D87C1AF98E26FE7CB7A41FF333FD2FB567
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ In this comprehensive hands-on course, you'll delve into the world of stock anal
 ```bash
 magnet:?xt=urn:btih:EF56C3393AC0BEE2D7E4E754D2C07A7967813C9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:EF56C3393AC0BEE2D7E4E754D2C07A7967813C9E
 magnet:?xt=urn:btih:61C61A878270ECF33D6059BAB5912EE849CA1AD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:61C61A878270ECF33D6059BAB5912EE849CA1AD8
 magnet:?xt=urn:btih:103E0297CC3330D76345F59BEEEE27BCBAE3AFA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:103E0297CC3330D76345F59BEEEE27BCBAE3AFA2
 magnet:?xt=urn:btih:8C98849F9E44F1C2950C0D5400266C9F269F2459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:8C98849F9E44F1C2950C0D5400266C9F269F2459
 ```bash
 magnet:?xt=urn:btih:C064310E483EE35454618C4778E343E6E8BF3191
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:C064310E483EE35454618C4778E343E6E8BF3191
 magnet:?xt=urn:btih:375B8A1630E5B1731CCFE0F193CA58FD29F34C93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:375B8A1630E5B1731CCFE0F193CA58FD29F34C93
 magnet:?xt=urn:btih:3309228D34292BCEC675B5E5EA213B7251CDE5C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:3309228D34292BCEC675B5E5EA213B7251CDE5C5
 ```bash
 magnet:?xt=urn:btih:D34013BDDAF2DF3BB9838B4C0A61234D6A8A9E36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ magnet:?xt=urn:btih:D34013BDDAF2DF3BB9838B4C0A61234D6A8A9E36
 magnet:?xt=urn:btih:92E479EA6EA1295980FB6BC0B82E1D498FD16131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ magnet:?xt=urn:btih:92E479EA6EA1295980FB6BC0B82E1D498FD16131
 magnet:?xt=urn:btih:4C24175AD5B2B9B5953A0434243E881ADAC2BE00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ magnet:?xt=urn:btih:4C24175AD5B2B9B5953A0434243E881ADAC2BE00
 ```bash
 magnet:?xt=urn:btih:D4D48015F6FCBF192BB4B579972CBA1F3ABCD213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +412,8 @@ magnet:?xt=urn:btih:D4D48015F6FCBF192BB4B579972CBA1F3ABCD213
 magnet:?xt=urn:btih:7BCF134BB8D11662239030DF2AC0236E46546D60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ Concluding with valuable bonus content, this masterclass (   Читать да�
 ```bash
 magnet:?xt=urn:btih:5B9EEECD62FEEEF7EA50F17C58DA8BA1EE1D5988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +467,8 @@ magnet:?xt=urn:btih:5B9EEECD62FEEEF7EA50F17C58DA8BA1EE1D5988
 magnet:?xt=urn:btih:2A0AE102A70407B703BD09794B19FFA2155806D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +494,8 @@ Udemy, Mahadi | Create and Publish a Mobile RPG Game with Unreal Engine (2025) P
 ```bash
 magnet:?xt=urn:btih:9B52DEEF79888C47C1ADD253FF9E0FD99B5EBF98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +524,8 @@ Slurm (Слёрм), Дмитрий Горчаков | Микросервисы �
 magnet:?xt=urn:btih:33C005F74055B0F5ADFFD17F4E002FDBBBC6DF4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +552,8 @@ magnet:?xt=urn:btih:33C005F74055B0F5ADFFD17F4E002FDBBBC6DF4E
 ```bash
 magnet:?xt=urn:btih:C66E791C176A30063548DA1946F21ED9B02A23B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +582,8 @@ magnet:?xt=urn:btih:C66E791C176A30063548DA1946F21ED9B02A23B9
 magnet:?xt=urn:btih:F589657ACDF4B228A0F7731ADD00E02723866FD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +607,8 @@ magnet:?xt=urn:btih:F589657ACDF4B228A0F7731ADD00E02723866FD7
 ```bash
 magnet:?xt=urn:btih:622B1D9A705CE29B71EA65CD34AF1AEDA6BBCDB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +635,8 @@ Udemy, MrBriit | End-To-End Machine Learning Projects&Deployment Mastery 2021 (2
 ```bash
 magnet:?xt=urn:btih:2DC0F6BA40A8D228EB7FE83F1D939ACB794719C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +665,8 @@ OTUS, Павел Пархомец и др. | Безопасность веб-п�
 magnet:?xt=urn:btih:CC3FC060BB78C50E73CE3679FD82EB3693F1DB83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +690,8 @@ Udemy, Vinoth Selvaraj | Selenium WebDriver и Паттерны Проектир
 ```bash
 magnet:?xt=urn:btih:04FF7C8AD0A40471256436CCA8F43075B6DDC9ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +717,8 @@ Udemy, Zoran Horvat | Рефакторинг под паттерны проек�
 ```bash
 magnet:?xt=urn:btih:732F23DBE2D6D2F02B6EF690A0E974FEF2850AA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

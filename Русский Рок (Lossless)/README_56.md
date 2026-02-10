@@ -1,3 +1,32 @@
+###  Публикация: 1048985   (544915) от 04.09.2016
+
+Grobut Neerg - Схрон (2012) [FLAC|Lossless|image + .cue] <Folk Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лес есть лес (Grove Is Grove)
+02. Подхвати мой клич (Howl)
+03. Нам туда (Go Forward)
+04. Сотня бочек (AHundred Barrels)(   Читать дальше...   )Жанр: Folk Metal, Death MetalПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6FD734E82609660E3F1A00A3C6D3F41BB85A6C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048590   (546275) от 02.09.2016
 
 Крематорий - Люди-невидимки (2016) [FLAC|Lossless|image + .cue] <Rock>
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:969CA8CF7E26C86161F99AC22CD13E3030A0F358
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ magnet:?xt=urn:btih:969CA8CF7E26C86161F99AC22CD13E3030A0F358
 magnet:?xt=urn:btih:3BA12CA88E81879B99F2A6C066DF9D33CAB471B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ magnet:?xt=urn:btih:3BA12CA88E81879B99F2A6C066DF9D33CAB471B5
 ```bash
 magnet:?xt=urn:btih:7939FABFF684D972A0CE552A24A641875E7A8019
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ magnet:?xt=urn:btih:7939FABFF684D972A0CE552A24A641875E7A8019
 magnet:?xt=urn:btih:611FF9645D8DA55D800E49F1B4E8C47558A76FCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ magnet:?xt=urn:btih:611FF9645D8DA55D800E49F1B4E8C47558A76FCC
 ```bash
 magnet:?xt=urn:btih:8AA517DD7B20AC08E33136E2DFCD670704D4BBE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ magnet:?xt=urn:btih:8AA517DD7B20AC08E33136E2DFCD670704D4BBE5
 magnet:?xt=urn:btih:A63A0C5923BBCDCD562F545F65031070DD398B96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +225,8 @@ magnet:?xt=urn:btih:A63A0C5923BBCDCD562F545F65031070DD398B96
 magnet:?xt=urn:btih:97BB22C21A12C1CEE7651A2E5131BD5E3EBBF255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +250,8 @@ magnet:?xt=urn:btih:97BB22C21A12C1CEE7651A2E5131BD5E3EBBF255
 ```bash
 magnet:?xt=urn:btih:69CAC5DAE6604B4904A9AA043DA0ED77392588E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +279,8 @@ magnet:?xt=urn:btih:69CAC5DAE6604B4904A9AA043DA0ED77392588E9
 ```bash
 magnet:?xt=urn:btih:3C16D19177E8360C1081FE24A0904D3A859C72EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +314,8 @@ magnet:?xt=urn:btih:3C16D19177E8360C1081FE24A0904D3A859C72EF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +343,8 @@ magnet:?xt=urn:btih:3C16D19177E8360C1081FE24A0904D3A859C72EF
 magnet:?xt=urn:btih:504E3D9DDF9837E91F1EE05455835181064BE833
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +368,8 @@ magnet:?xt=urn:btih:504E3D9DDF9837E91F1EE05455835181064BE833
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +398,8 @@ Siberian Meat Grinder - Hail To The Tsar , Versus The World (2015) [FLAC|Lossles
 magnet:?xt=urn:btih:C8D19999E190F23BC039133B0881B64C02E35775
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +426,8 @@ magnet:?xt=urn:btih:C8D19999E190F23BC039133B0881B64C02E35775
 ```bash
 magnet:?xt=urn:btih:2AF56396ABC608D6375E993EEF41551295E8CC33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +456,8 @@ Znaki - Видеть больше (2019) [FLAC|Lossless|tracks + .cue] <Rock>
 magnet:?xt=urn:btih:8341B129287A15A9FC4F91C042E433359B613668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +485,8 @@ magnet:?xt=urn:btih:8341B129287A15A9FC4F91C042E433359B613668
 magnet:?xt=urn:btih:B4E86683A1AEBD1177E70C26D9201EE2795C240B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +513,8 @@ magnet:?xt=urn:btih:B4E86683A1AEBD1177E70C26D9201EE2795C240B
 ```bash
 magnet:?xt=urn:btih:0F0B937F900E068C52131202E262862BE4AE2DA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +549,8 @@ magnet:?xt=urn:btih:0F0B937F900E068C52131202E262862BE4AE2DA5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +577,8 @@ magnet:?xt=urn:btih:0F0B937F900E068C52131202E262862BE4AE2DA5
 ```bash
 magnet:?xt=urn:btih:77B35099C803790A969D95F18A39486E55764507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +607,8 @@ magnet:?xt=urn:btih:77B35099C803790A969D95F18A39486E55764507
 magnet:?xt=urn:btih:46AEF314BDF23AC6957607B8500761AFA19C5A0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +635,8 @@ magnet:?xt=urn:btih:46AEF314BDF23AC6957607B8500761AFA19C5A0C
 ```bash
 magnet:?xt=urn:btih:ABF5D0969C46FD6DCE2335199B0199CB02DA061C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +665,8 @@ magnet:?xt=urn:btih:ABF5D0969C46FD6DCE2335199B0199CB02DA061C
 magnet:?xt=urn:btih:C7E9277BDF2B4D913B156CC491C4BA8F72029D83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +693,8 @@ magnet:?xt=urn:btih:C7E9277BDF2B4D913B156CC491C4BA8F72029D83
 ```bash
 magnet:?xt=urn:btih:B08FEF5B6020C4232A1EC7C92AC4B062AE6B3BA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +723,8 @@ magnet:?xt=urn:btih:B08FEF5B6020C4232A1EC7C92AC4B062AE6B3BA9
 magnet:?xt=urn:btih:9974FE0EDAB1E0A99BA1A566650FBF1336D12B63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,32 +752,7 @@ magnet:?xt=urn:btih:9974FE0EDAB1E0A99BA1A566650FBF1336D12B63
 magnet:?xt=urn:btih:811220E9B0DE34F312F37B8D2268DAD1E28DFF56
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551352   (590228) от 15.05.2022
-
-Morok - Вне света & На круги своя (1997) 2CD, Remastered & Reissued, 2022, Der Schwarze Tod/COD Music [FLAC|Lossless|image + .cue] <Russian Pagan Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_590228.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Полночь
-2. Предтеча
-3. Сгоревшая река
-4. Дыхание осени(   Читать дальше...   )Жанр: Pagan Metal, Black MetalПродолжительность: 01:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2016FC08C55D91A9AAD8A49B7787613BAF69FB9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

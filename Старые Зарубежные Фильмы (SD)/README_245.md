@@ -1,27 +1,3 @@
-###  Публикация: 1604741   (1045206) от 15.01.2023
-
-Кто была та леди? / Who Was That Lady? (1960) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1045206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энн Уилсон застает своего мужа Дэвида, преподавателя химии в Колумбийском университете, целующимся со студенткой. Чтобы спасти брак, Дэвид просит друга, писателя Майкла, сочиняющего сценарии для телешоу, придумать и для его поступка оправдательную легенду. Майк предлагает Дэвиду признаться жене в том, что он агент ФБР под прикрытием...Производство: США, Ansark-SidneyЖанр: комедия, мелодрамаРежиссер: Джордж СидниАктеры: Тони Кёртис, Дин Мартин, Джанет Ли, Джеймс Уитмор, Джон МакИнтайр, Барбара Николс, Ларри Китинг, Ларри Сторч, Саймон Оукленд, Джои ЛэнсингПеревод: профессиональный многоголосый (1 канал)Субтитры: английскиеПродолжительность: 01:53:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34AFA9A664F80012BD0D281009F7C482540CB61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604716   (1045207) от 15.01.2023
 
 Чайки летают низко / I gabbiani volano basso / Seagulls Fly Low (1978) BDRip [VO]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:C34AFA9A664F80012BD0D281009F7C482540CB61
 ```bash
 magnet:?xt=urn:btih:98CF8485C3C5E780F96E3135C463AFF0E2115309
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:98CF8485C3C5E780F96E3135C463AFF0E2115309
 magnet:?xt=urn:btih:E8BCCD2F8B16B97967F0E92DC24E57724AB3589A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:E8BCCD2F8B16B97967F0E92DC24E57724AB3589A
 ```bash
 magnet:?xt=urn:btih:42875367D6E7BE6E082EFF3884ACAF003171D85E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:42875367D6E7BE6E082EFF3884ACAF003171D85E
 magnet:?xt=urn:btih:5EDA2CD422534B32394D2115CEC958F4C440CF91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:5EDA2CD422534B32394D2115CEC958F4C440CF91
 ```bash
 magnet:?xt=urn:btih:28D572FDAF2AD29BC37E2BA2D2A6078BC437365F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:28D572FDAF2AD29BC37E2BA2D2A6078BC437365F
 magnet:?xt=urn:btih:E58CF178545003AB6FEB821CACB064346456D21D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:E58CF178545003AB6FEB821CACB064346456D21D
 ```bash
 magnet:?xt=urn:btih:EA4EFF06E5D7925F80D024809A69EB2B6251A9F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:EA4EFF06E5D7925F80D024809A69EB2B6251A9F9
 magnet:?xt=urn:btih:F61A91A631B09BC0FDD60B85AA488E1672B521C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:F61A91A631B09BC0FDD60B85AA488E1672B521C1
 ```bash
 magnet:?xt=urn:btih:8EB0D1CE663BBA509A81CADF35EC4B7F042FC848
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:8EB0D1CE663BBA509A81CADF35EC4B7F042FC848
 magnet:?xt=urn:btih:D96CB1C24AC6482799252F859ACDA2C7E43402AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:D96CB1C24AC6482799252F859ACDA2C7E43402AB
 ```bash
 magnet:?xt=urn:btih:CB7F8639A107F06D7FF9ABA52C4D605D239E8929
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:CB7F8639A107F06D7FF9ABA52C4D605D239E8929
 magnet:?xt=urn:btih:A20B7DE198542B1B2582A77013E7FEC51006CEF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:A20B7DE198542B1B2582A77013E7FEC51006CEF9
 ```bash
 magnet:?xt=urn:btih:1E7C538AA0DCC318FCCF840473ABC62601144F58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:1E7C538AA0DCC318FCCF840473ABC62601144F58
 magnet:?xt=urn:btih:BA5952246557F58F6D6C9FA2A097748736703BDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ magnet:?xt=urn:btih:BA5952246557F58F6D6C9FA2A097748736703BDA
 ```bash
 magnet:?xt=urn:btih:AE5D49CD4186DE6E7258659931BE18C7A8C387E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ magnet:?xt=urn:btih:AE5D49CD4186DE6E7258659931BE18C7A8C387E7
 magnet:?xt=urn:btih:2149F2CA567846EAE78819943C6B9B4B6BDD3495
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ magnet:?xt=urn:btih:2149F2CA567846EAE78819943C6B9B4B6BDD3495
 ```bash
 magnet:?xt=urn:btih:13C6A335CAE356F307646158907F9FA73F28B818
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:13C6A335CAE356F307646158907F9FA73F28B818
 magnet:?xt=urn:btih:F9C059D1349F6AEEAD782E63CD1EF03816C6A6EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ magnet:?xt=urn:btih:F9C059D1349F6AEEAD782E63CD1EF03816C6A6EA
 ```bash
 magnet:?xt=urn:btih:6624F657F9D94D6867C3FF2C6C850680AECD1427
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ magnet:?xt=urn:btih:6624F657F9D94D6867C3FF2C6C850680AECD1427
 magnet:?xt=urn:btih:4CEC7AE191863205AB1294DAE51FAB58922094FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ magnet:?xt=urn:btih:4CEC7AE191863205AB1294DAE51FAB58922094FA
 ```bash
 magnet:?xt=urn:btih:DCDEE0ABBB58F81DE8D1E422E956403605B425EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:DCDEE0ABBB58F81DE8D1E422E956403605B425EE
 magnet:?xt=urn:btih:05BF075668D92B54FD3EF824B63AB04BC037BA64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +594,8 @@ magnet:?xt=urn:btih:05BF075668D92B54FD3EF824B63AB04BC037BA64
 magnet:?xt=urn:btih:3DC54CF5C36C245CDF9589A8E016BC8F30AA65CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:3DC54CF5C36C245CDF9589A8E016BC8F30AA65CD
 magnet:?xt=urn:btih:E7C22C8AC745C95A45BAA8E4DDC744CA0B40E99A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +645,35 @@ magnet:?xt=urn:btih:E7C22C8AC745C95A45BAA8E4DDC744CA0B40E99A
 ```bash
 magnet:?xt=urn:btih:D5650F8B707CF0CE71750E3784B766E1A6EAD037
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602086   (1046259) от 03.01.2023
+
+Ночь перед Рождеством / Nuit de Noel (1908) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1046259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несмотря на название, это вовсе не сказочная рождественская история. А вовсе даже наоборот.
+Молодая женщина провожает своего мужа-моряка в плавание, прямо под самое рождество. Она так расстроена, что даже плачет. Но жизнь продолжается, слезы высохли. Она везет зерно на мельницу, там на нее обращает внимание мельник. Потом они встречаются в церкви на службе, потом (   Читать дальше...   )Производство: Франция, Pathé FrèresЖанр: драма, немое кино, короткометражныйРежиссер: Нет сведенийАктеры: Нет сведенийПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:09:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842C3E431BF7A839DC8C4A0AA26668C19E443A75
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

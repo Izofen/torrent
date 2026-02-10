@@ -19,6 +19,8 @@ Windows 10 Pro 22H2 19045.3324 x64 by SanLex [Lightweight] [Ru/En] (2023.08.12)
 magnet:?xt=urn:btih:38B7BD471F50E7B5D3CE6CEEB9BA69B5EDF37019
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:38B7BD471F50E7B5D3CE6CEEB9BA69B5EDF37019
 ```bash
 magnet:?xt=urn:btih:2B84A77D91B793A331520712A72C9569F6F8AF80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Star Wars Episode 1-6 / Звездные войны Эпизод 1-6 HDTV [720p]
 magnet:?xt=urn:btih:8FC672084139E253ACBF0133AC37014EB741ED44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ ABBYY FineReader PDF 16.0.14.7295 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6C751EDEB508DE3EAE0A7909E068482EB09AC129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Multiboot Collection Full v.5.3 [Ru/En]
 magnet:?xt=urn:btih:EA814D3886C1487C9A6C6009D6DD474FE503C384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Assassin's Creed: Origins / Assassin's Creed: Истоки (2017) [Ru/En] (1.51/
 ```bash
 magnet:?xt=urn:btih:2C67466363652788A3CA6A84995F67E8219B68A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ MultiBoot HDD 2019 22.09.2019 [Ru]
 magnet:?xt=urn:btih:D0FE404DBBBE83BEED06348C86DF1659BF6AC48B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:D0FE404DBBBE83BEED06348C86DF1659BF6AC48B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:D0FE404DBBBE83BEED06348C86DF1659BF6AC48B
 magnet:?xt=urn:btih:D98373FEF0414B5D49B86CAFB22F91131D3D8776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Nvidia поясняет для чего нужно покупать дороги
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.0.20122) Repack DjD
 ```bash
 magnet:?xt=urn:btih:5E7B5B43BDD0D197D2D2EDF49244EBCD4B33C6F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:5E7B5B43BDD0D197D2D2EDF49244EBCD4B33C6F6
 magnet:?xt=urn:btih:9C9D2E063AFCB2C29EB643B0B2D0FF73FD8ED3E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:9C9D2E063AFCB2C29EB643B0B2D0FF73FD8ED3E8
 ```bash
 magnet:?xt=urn:btih:7967F5A4F2CE24D6DDD00585E073B44DA9F42CB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:7967F5A4F2CE24D6DDD00585E073B44DA9F42CB2
 magnet:?xt=urn:btih:F243EE3BDD21475AF95DAB3A2333C2E8E6D9EB49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 ```bash
 magnet:?xt=urn:btih:ADC0F6787B2B83608D6A52295715ACDEB5BA62C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Linux для дома 22.7.7 (Mint, Mate DE) [amd64]
 magnet:?xt=urn:btih:5F1F2183ADA2C369AF25F278F078738231F01FE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Icarus – free-to-play многопользовательская коопер�
 ```bash
 magnet:?xt=urn:btih:04742FE9E6A2B14A050BBF80CE27383B5FC83E9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:04742FE9E6A2B14A050BBF80CE27383B5FC83E9C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:04742FE9E6A2B14A050BBF80CE27383B5FC83E9C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Adobe Photoshop - новая, следующая за CC 2020 версия пр�
 magnet:?xt=urn:btih:7A3D1AC78D38EEB04CFFD3FC45EB3E8CE3B397A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:7A3D1AC78D38EEB04CFFD3FC45EB3E8CE3B397A1
 ```bash
 magnet:?xt=urn:btih:410534E0B642D6AFEAEBE1143F94F96647EC7256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:410534E0B642D6AFEAEBE1143F94F96647EC7256
 magnet:?xt=urn:btih:F63992F80277A6CEC5D0AA8D8FAA50E501B2EFB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:F63992F80277A6CEC5D0AA8D8FAA50E501B2EFB2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ The Talos Principle - это философская головоломка с в
 magnet:?xt=urn:btih:659A0EB9D10F64B0E399CECD504DC39E81D95F0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/E
 magnet:?xt=urn:btih:57C927CA98E1491B708DB5368A1652D7375D1B9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Dishonored 2 (2016) [Ru/En] (1.77.9/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:B1B2C7C9903606D41CDB8713B3651E6E973C54B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

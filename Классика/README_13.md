@@ -22,6 +22,8 @@ The Piano Guys - Limitless (2018) [MP3|320 Kbps] <Neoclassical>
 magnet:?xt=urn:btih:D73CAD780DBD2DEA0CDB279F03E9ECF70A7A8557
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Concerto No. 1 in E minor, for piano and orchestra, Op. 11
 ```bash
 magnet:?xt=urn:btih:C920A829C5CF9A4F377ADE70D8306E68D2728171
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Liszt - Symphonic Poems - Michael Halasz (Vol.2) (1992) [FLAC|Lossless]<Classica
 magnet:?xt=urn:btih:1B393567C9D4DCDD1F2AECBCC36C582E9856CD9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Vivaldi - Concerto in C major
 ```bash
 magnet:?xt=urn:btih:97402A30491970392E1F88E46BCFF0305801650F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ New London Chorale - It's For You (1999) [FLAC|Lossless|image + .cue] <Сrossove
 magnet:?xt=urn:btih:AB1E1278C6CADE9545C56ADE21001FDC3E84A72C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ New London Chorale - Songs from the Heart (2008) [FLAC|Lossless|image + .cue] <C
 ```bash
 magnet:?xt=urn:btih:2BFFCBFD5AF5C590A6A84EA290842E2CA15EC97E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Antonio Vivaldi; Il giardino armonico - "The Four Seasons"
 magnet:?xt=urn:btih:86C33BD11339D82AB85761C8BEFFA669F3857878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Simon Rattle & Berliner Philharmoniker - Чайковский: Щелкунчи�
 ```bash
 magnet:?xt=urn:btih:1D35565819F75B72B8D8E3A5602CDAF9DA0196CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ Johann Sebastian Bach MUnchener Bach-Chor, Munchener Bach-Orchester, Karl Richte
 magnet:?xt=urn:btih:E42DCF56B36B9AA03565BC8F6A5255A7F6629C73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Part II: No. 25. Accompagnato (Tenor) 'All they that see Him' (0:41)
 ```bash
 magnet:?xt=urn:btih:F682E4925E8805D25256F4B97F9FF13933ADD2E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Carlo Bergonzi - Carlo Bergonzi - Grandi Voci (1958-1967) 1994 Decca Records [FL
 magnet:?xt=urn:btih:C222755990F13C297BF2E0925534A575078E1224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ magnet:?xt=urn:btih:C222755990F13C297BF2E0925534A575078E1224
 ```bash
 magnet:?xt=urn:btih:3E6E9943D17A296C2548B6048CB84112EA4C81BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ magnet:?xt=urn:btih:3E6E9943D17A296C2548B6048CB84112EA4C81BC
 magnet:?xt=urn:btih:27A6D14BF4A8FBE9666D06705D17631A6ACD505D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ David Garrett - Unlimited: Greatest Hits (Deluxe Version, Digipak) (2018) [FLAC|
 ```bash
 magnet:?xt=urn:btih:880CD09798CFC2C13680E2451AE25D30BF8E892A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ Piano Concerto No. 1 in F sharp minor, Op. 1
 magnet:?xt=urn:btih:99DDB8FF3194D95479E7463FC17C32B92745E68D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ Symphony No. 1 in C minor, Op. 68
 ```bash
 magnet:?xt=urn:btih:94AF953C4196504BF52849E284470470B991EEA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ Trio in D major (after Symphony No. 2, Op. 36)
 magnet:?xt=urn:btih:2345A5C57767C8430ADED6DB139004039CA0D270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ Sarah Brightman - Hymn (2018) [FLAC|24/44,1|Lossless|WEB-DL|tracks] <Pop, Classi
 ```bash
 magnet:?xt=urn:btih:A9E8DCB75E3E8BC2654909BCD80543C8631380E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ David Garrett - Rock Revolution (Deluxe Edition) (2017) [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:699285FDA690A3E33DA22B825236759659A9F467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +568,8 @@ Partita № 2,BWv 1004 - Chaccone (13:41)Жанр: Classical, PianoПродол�
 ```bash
 magnet:?xt=urn:btih:8C5EC1A6842B770D50B28FF6EF8F0790CE87C357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +600,8 @@ ______________________________________________________________
 magnet:?xt=urn:btih:62E30F0AC3DCCD1DEB27057009488BD9A723F8AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ Alexis Ffrench - Evolution (2018) Sony Classical [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:501E7307DAC98245B9C886C4F56DC4FA9F1B3A29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +664,8 @@ VA - Best of Tchaikovsky (1996) [FLAC|Lossless]<Classic>
 magnet:?xt=urn:btih:6546A4772623638A3C5483C20F530E7B21ED8713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +692,8 @@ magnet:?xt=urn:btih:6546A4772623638A3C5483C20F530E7B21ED8713
 ```bash
 magnet:?xt=urn:btih:806817332AD436E3A08684508F6D18D85234567D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -674,6 +722,8 @@ magnet:?xt=urn:btih:806817332AD436E3A08684508F6D18D85234567D
 magnet:?xt=urn:btih:66B075595C08145DBF31D5EF7F03C7335F471957
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,6 +750,8 @@ magnet:?xt=urn:btih:66B075595C08145DBF31D5EF7F03C7335F471957
 ```bash
 magnet:?xt=urn:btih:19CA892AE9E016C9E7AE8034BB6DA81C5A97368F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

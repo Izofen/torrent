@@ -19,6 +19,8 @@ OCCT 15.0.2 Portable [En]
 magnet:?xt=urn:btih:02EFD396B9A014C14D11FE0BA2979063C6E39547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:41FC7564C7779098F0A9CD381031BAA22DA9E4C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PDF-XChange Editor - программа для просмотра, редакт�
 magnet:?xt=urn:btih:62C118774CC94EE314CD8568A2616330F5935C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:62C118774CC94EE314CD8568A2616330F5935C49
 ```bash
 magnet:?xt=urn:btih:513CC715D684F7B8C77174EC3EA32073CC29AE63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Help+Manual - это полнофункциональный инструмент
 magnet:?xt=urn:btih:517768C925BCEA0B87785103EB452B2225DD01FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:FEBBA3BB92C2E6BAF7DBC560CBBF8BF1EF1E0191
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ BackUp Maker может создать резервную копию любой 
 magnet:?xt=urn:btih:50541E92904EF464EB8B166BF8FB7E165D1DCF4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ UltraSearch ищет файлы и папки на локальных диска
 ```bash
 magnet:?xt=urn:btih:32A8DEC69A04272DE978B9D6968D70754AA6E3E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ ASCOMP Secure Eraser — программа для полного удалени
 magnet:?xt=urn:btih:0E924D9DD0D3F8E4EEF87B3F1177CC1AD7FDE3AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ F-Rename – программа для быстрого и простого пе
 ```bash
 magnet:?xt=urn:btih:6FDA455826984C22D8B5E21997448CB76C7A6EDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ ASCOMP Text-R Professional - компактная и быстрая програ
 magnet:?xt=urn:btih:B30A6548EE8F5B3A9FB58253D0421546B1411373
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ PDF Conversa - легкий и быстрый в использовании оф
 ```bash
 magnet:?xt=urn:btih:CC22FB14CFE580DFE8027F9115EA7481C565D87E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Synchredible - синхронизирует, копирует и сохраня�
 magnet:?xt=urn:btih:7CC62166059305F69CA4D98C1276F7556117E4FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ PDF Imager Pro (Repack & Portable) -  простая и быстрая прог�
 ```bash
 magnet:?xt=urn:btih:DD8F3464B35CB9E7F8A23789B67DB0EC0B06825A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Secure-PDF поможет зашифровать свои собственные
 magnet:?xt=urn:btih:5EB1804C860994E8808F2E0989D7231E7C0C88EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ FontLab 7, это новая программа, для профессионал
 ```bash
 magnet:?xt=urn:btih:D3610A6AA495A0D0AD6623C1A8B53B248E73302F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ EaseUS Data Recovery Wizard служит для восстановления у�
 magnet:?xt=urn:btih:8140AC3B5EEF19DFA5EFABF7E9331499CFD9E0ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Veeam® Endpoint Backup™ FREE — простое решение для рез�
 magnet:?xt=urn:btih:17BBF27C6F05F57A0C568D1C0C38B53848FFB4C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Advanced SystemCare PRO - это мощный пакет для оптимиза
 ```bash
 magnet:?xt=urn:btih:804C2BF5D3CBFF8DCC830A673F73483342E4260F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:804C2BF5D3CBFF8DCC830A673F73483342E4260F
 magnet:?xt=urn:btih:E352A392F6278F65B0FF73B14D5EBE92ED723FE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:E352A392F6278F65B0FF73B14D5EBE92ED723FE3
 ```bash
 magnet:?xt=urn:btih:45C0863EC7FF047F75C3F0C0AEFFB5B3FCB8C88E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:45C0863EC7FF047F75C3F0C0AEFFB5B3FCB8C88E
 magnet:?xt=urn:btih:4687232A5069A4DDDD2B8F1C0F8240A5C09C25B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Wowza Streaming Engine надежное, индивидуально настра
 ```bash
 magnet:?xt=urn:btih:741803AAB7566A6A1EE6698D07082FD850C2CEEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Vivaldi разрабатывается большой командой разр�
 magnet:?xt=urn:btih:510E74FDE26926B3576D75905FA184C8F7A9B9B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Wise JetSearch 4.1.4.219 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:78DE4169FCF72CD6473E81C76242D9FABE905B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Screen Calipers представляет собой обыкновенный ш�
 ```bash
 magnet:?xt=urn:btih:E1D832B6796EDB938BA6D4E09374CED03FE22C7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

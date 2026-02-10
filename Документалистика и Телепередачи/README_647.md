@@ -1,3 +1,29 @@
+###  Публикация: 998800   (868326) от 20.03.2016
+
+Где логика? (2016.03.20) SATRip (выпуск 9)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_868326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звездные семейные пары, партнеры по съемочной площадке, просто хорошие друзья и знакомые будут вместе пытаться выстраивать логические связи между самыми, казалось бы, нелогичными событиями, предметами или фактами. Почему мы оставляем официантам на чай, но не оставляем врачам на бинты? Для чего нам мизинцы на ногах? Зачем мыть машину в ноябре? Почему существует сухое (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:48:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB6CCB7F9E92BDD81D52DA279921991DE10899FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107300   (868329) от 22.02.2017
 
 Вечерний Ургант (2017.02.21) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:98A93A679E8B800C91058B5B0C56A63765ECBAA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:98A93A679E8B800C91058B5B0C56A63765ECBAA6
 ```bash
 magnet:?xt=urn:btih:40C2D03DDE70E05DBEB9AD4C6285F48A55FB3787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:40C2D03DDE70E05DBEB9AD4C6285F48A55FB3787
 magnet:?xt=urn:btih:E6C5A35EE15330E7C7CC565C8B07977F9994E922
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:E6C5A35EE15330E7C7CC565C8B07977F9994E922
 ```bash
 magnet:?xt=urn:btih:278979BFC4C39C0EDBE2A3398BD63B99FF22A566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:278979BFC4C39C0EDBE2A3398BD63B99FF22A566
 magnet:?xt=urn:btih:558DF839CFF0D33EC050503DB3E71C5AA4924891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:558DF839CFF0D33EC050503DB3E71C5AA4924891
 ```bash
 magnet:?xt=urn:btih:F175423898A4A5A66600F57BEC26F1D9EBCDD077
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:F175423898A4A5A66600F57BEC26F1D9EBCDD077
 magnet:?xt=urn:btih:1121E22A8E09E257BEB16F17A06383A851D9704F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:1121E22A8E09E257BEB16F17A06383A851D9704F
 ```bash
 magnet:?xt=urn:btih:EAE89611FDD8EFC30417530E15F99378C4AC35F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:EAE89611FDD8EFC30417530E15F99378C4AC35F8
 magnet:?xt=urn:btih:521063633CCDAF0080BBC490FA8CFAE0FDB5B10E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:521063633CCDAF0080BBC490FA8CFAE0FDB5B10E
 ```bash
 magnet:?xt=urn:btih:B27A03D856477B91DF4608794627D6603D696302
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:B27A03D856477B91DF4608794627D6603D696302
 magnet:?xt=urn:btih:A1A587C53C39F245EFE8F8730F711DDBE197523C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:A1A587C53C39F245EFE8F8730F711DDBE197523C
 ```bash
 magnet:?xt=urn:btih:04B2C2F7FE46C923BC3F547FAF0F1D75A8A0A3F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:04B2C2F7FE46C923BC3F547FAF0F1D75A8A0A3F9
 magnet:?xt=urn:btih:1D3502C2A9A3545B982A706E01E120EEBB66B2F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:1D3502C2A9A3545B982A706E01E120EEBB66B2F1
 ```bash
 magnet:?xt=urn:btih:B43CF7189DF9866080998A97CA1403B0453F1ACC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:B43CF7189DF9866080998A97CA1403B0453F1ACC
 magnet:?xt=urn:btih:54C30C04769D5EDBCD976CC21A4D8E2E635D13FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:54C30C04769D5EDBCD976CC21A4D8E2E635D13FD
 ```bash
 magnet:?xt=urn:btih:3930457E9D1E86DBB61DB3A7B1AA5FD6DB67A950
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:3930457E9D1E86DBB61DB3A7B1AA5FD6DB67A950
 magnet:?xt=urn:btih:2B79C4B159BAB7B26534F49851F3B5F87D6614BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:2B79C4B159BAB7B26534F49851F3B5F87D6614BA
 ```bash
 magnet:?xt=urn:btih:412F969FB734A16864836EE5F6F26F1D8EEA3421
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:412F969FB734A16864836EE5F6F26F1D8EEA3421
 magnet:?xt=urn:btih:76F991D4ABF143081D6F20456CB9E4162DE6C524
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:76F991D4ABF143081D6F20456CB9E4162DE6C524
 ```bash
 magnet:?xt=urn:btih:775A0B4DBC174701AC102199A3A97AC60E82B910
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:775A0B4DBC174701AC102199A3A97AC60E82B910
 magnet:?xt=urn:btih:AB5D7E3032C9DF4A555CE4BEBB8CF42BCABFB517
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:AB5D7E3032C9DF4A555CE4BEBB8CF42BCABFB517
 ```bash
 magnet:?xt=urn:btih:9E8F872FA0811640434A3885860CB04DA8E9B2BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:9E8F872FA0811640434A3885860CB04DA8E9B2BF
 magnet:?xt=urn:btih:98D8B50FAF93ADFD06EC566B74A3F2E0EA499592
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:98D8B50FAF93ADFD06EC566B74A3F2E0EA499592
 ```bash
 magnet:?xt=urn:btih:C6DF6828449E4E3340AC53E41D1D11F592E8C5E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:C6DF6828449E4E3340AC53E41D1D11F592E8C5E7
 magnet:?xt=urn:btih:C3934413BAB6D7EA55E717A54788A33E3D287DB2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496801   (869783) от 19.09.2021
-
-Правда о вакцинах / The truth about vaccines (2016) WEBRip (7 серий в 10 частях) [AVO]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_869783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторы не за и не против вакцинаций, они против безоглядной оголтелости в этом вопросе и за то, чтобы во главу угла ставили безопасность вакцин для человека, и их эффективность, а не прибыли тех, кто вакцины производит.Производство: СШАЖанр: документальный, медицинаРежиссер: Тай БоллинджерПеревод: Одноголосый авторский (Ксения Нагева)Субтитры: отсутствуютПродолжительность: 10x ~01:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71BE45FED731908C7CC51B138F3E6BB2162031A1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

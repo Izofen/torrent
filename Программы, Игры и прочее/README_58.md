@@ -19,6 +19,8 @@ Ventusky: Прогноз погоды v48.0 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:5E0F1D95F8A2BD14329A4AED5B806FC905EA095D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Fraction Calculator by Mathlab / Калькулятор Дробей v2025.09.55
 ```bash
 magnet:?xt=urn:btih:D7D2A15E11ADEC8A7CE94EA50C375C2E53D8DDAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:D7D2A15E11ADEC8A7CE94EA50C375C2E53D8DDAC
 magnet:?xt=urn:btih:FA3CDC5621B82F05557959C9D2DF726249E56661
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ OTT Онлайн прямое телевидение, в котором вы н�
 ```bash
 magnet:?xt=urn:btih:3117819AE4F2F911C5B6F1376599817E69BEF9E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Mirror Lab стремится быть самым веселым, простым
 magnet:?xt=urn:btih:479DFAC65158D2302C9BC93F808E2E161569F5C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:479DFAC65158D2302C9BC93F808E2E161569F5C2
 magnet:?xt=urn:btih:6F4C1D8094B43381CD396966E53275290A36CFE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:6F4C1D8094B43381CD396966E53275290A36CFE5
 ```bash
 magnet:?xt=urn:btih:9B2C71C08831910FC4074BE5475DF28130A23B8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ OsmAnd+ - это приложение с картами всего мира на
 magnet:?xt=urn:btih:99A44900322DAF24E12C57150A823F8CE81E429A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ One Read / Все Документы Читатель - Офис v1.2.6 Mod by v
 ```bash
 magnet:?xt=urn:btih:2598F5B16796D83BCDDE808F0441AB9A2335F0CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:2598F5B16796D83BCDDE808F0441AB9A2335F0CB
 magnet:?xt=urn:btih:5879891745344662CE74C28F80FA3DDA0506687B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:5879891745344662CE74C28F80FA3DDA0506687B
 ```bash
 magnet:?xt=urn:btih:D8581E7F07C58DD5AED34B0B7572F964B3C832A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Magic Eraser - это революционное приложение для р�
 magnet:?xt=urn:btih:20AF455423FC2D62E06190EA9AAAD2C6DBD872D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:632CF724574DFDC63618101C4FA708D34A480148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Words – это лучшее приложение для изучения сл�
 magnet:?xt=urn:btih:43027789D1312C02E0720BB9A0FED645FFE00E6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ CamToPlan / Рулетка измерительна v4.2.1 Mod by derrin [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:C1F32680326A703C06F4F79BE0621BC3E8A47393
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Xodo PDF Reader & Editor - просто великолепное приложе�
 magnet:?xt=urn:btih:D0F7A70B9012A3FE264BE749B4CE38ECF0B717F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:4AD8AA488A4ABF4D305FE79CDFFEB0113DDBD018
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Xodo PDF Reader & Editor - просто великолепное приложе�
 magnet:?xt=urn:btih:19E3385FBCF0095427E9A0CB8362DC2F850C49E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Pro Pool 2024 v1.54 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4E3DFF3CD3EA4ABFE69E700ADF718DB91330413E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:4E3DFF3CD3EA4ABFE69E700ADF718DB91330413E
 magnet:?xt=urn:btih:5B0D9D02CDC8055D75592A91B1AF2B9688E13C1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ RS Проводник - запросто поможет вам в управле
 ```bash
 magnet:?xt=urn:btih:3EA61AF98C5F48EF044F9CA27EB627A8454211A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:3EA61AF98C5F48EF044F9CA27EB627A8454211A3
 magnet:?xt=urn:btih:EE636762054723743B811E7DB6D1670DD4934487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:EE636762054723743B811E7DB6D1670DD4934487
 ```bash
 magnet:?xt=urn:btih:77A95E995362E002ED1A1691E621472A2A434EFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Listen Audiobook Player v5.2.4 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:0DA2D4F6DB282C5CAD093C9D92CDBDC57905E8F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:0DA2D4F6DB282C5CAD093C9D92CDBDC57905E8F4
 magnet:?xt=urn:btih:D49CC55B28DED379F273986A5FBD8308BDD09031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ YouCut - один из самых удобных и оптимальных по 
 ```bash
 magnet:?xt=urn:btih:4959BC2C8FD4F0347EAAE81274E344F2453F6CD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ OpenNumismat является удобным и надежным приложе�
 magnet:?xt=urn:btih:FAA4A7F64D062B0DDE1E01FD54FCC556DE4D1AFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Exif Pilot - EXIF редактор используется для просмо�
 ```bash
 magnet:?xt=urn:btih:665C21B8AA025883FA044F9A1F2C75579547B3DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Bloom Drum Breaks объединяет энергичные барабанные
 magnet:?xt=urn:btih:D65C19AA9878ACBB876FC92EE5FC16E5B8115FFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:AC17657B9C04ECD494236AC9510F1D5037A950EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Kontakt позволяет вам воспроизводить и обрабат
 magnet:?xt=urn:btih:2153F562B02E5035EB078C9AF513D315BC18F7B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 ```bash
 magnet:?xt=urn:btih:7D5B41CFC9DA6DF5896C1CD91E7A37B4CD8FC3E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Wondershare PDFelement - программа для общего редактир
 magnet:?xt=urn:btih:CAB2E1C97AD34A429A952823C6C1567EA8BF4750
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:12ED6A67F5EA691719688C8C21E16EE9FEE72B32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Adobe Acrobat Reader — приложение Reader для самых важн�
 magnet:?xt=urn:btih:D2BC31F2240179194A8B469A6828CB08024C9368
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:FF2D54343858C7F0B16D4CDD5B0CE71EEF856FA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ uTorrent Pro 3.6.0 Build 47044 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 magnet:?xt=urn:btih:34490FE183A4D5B04D5273CF54EC5415E351A425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Microsoft Visual C++ Redistributable Package – это распространя
 ```bash
 magnet:?xt=urn:btih:D26D5D2CD53E648A936423B541FE2B66323CCCBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ AnyDesk 8.0.9 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:3A5CA6EF62944F8E0D2006A43FAF288C2733639D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Avidemux - небольшой, простой редактор для работ
 magnet:?xt=urn:btih:D1F892A55B2B6AF0D1232247C8A8A0D4C9358AF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:D1F892A55B2B6AF0D1232247C8A8A0D4C9358AF4
 ```bash
 magnet:?xt=urn:btih:45B754BEAE19842487DDBF96E989E4E667C11353
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Wireshark - бесплатный сниффер, предназначенный 
 magnet:?xt=urn:btih:D8D21878F1A9C6945EB9C2096CDC5E30CF613D4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ O&O Defrag Professional – инструмент дефрагментации д
 magnet:?xt=urn:btih:8A1BB68F143ED018FD297FF5E9B033C7696D35CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Mp3tag предоставляет пользователям мощный и п�
 ```bash
 magnet:?xt=urn:btih:C2EA6D111774E04E2FBD88492D6DB4B283DB1514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Macrorit Disk Scanner Unlimited - инструмент для проверки �
 magnet:?xt=urn:btih:9105D8C9AEA920EA125BBFBF0F5E7CFF075ADC78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ CrystalMark - это простая в обращении и мощная по �
 ```bash
 magnet:?xt=urn:btih:A45955A09C6C14DC10124DCB67418F3C5D875394
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ ExtraDisks - это набор инструментов для создания 
 magnet:?xt=urn:btih:E10A69809DB9E94F1761557174E01D61EBBEF3A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ MediaInfo — позволит узнать техническую информ�
 ```bash
 magnet:?xt=urn:btih:9BEECB245A39A8A67A8123E6732B7F39A8575485
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:F2AACB66524B5CEFBA87F8CA93BFA9DF6C5C3CA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:6F925A4176F74D28F284E9324BBEB28C6374DF2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ MediaHuman YouTube Downloader 3.9.9.90 (0321) RePack (& Portable) by TryRooM [Mu
 magnet:?xt=urn:btih:273F382104BC48ADCCEDF574102473E8A84BF0D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 ```bash
 magnet:?xt=urn:btih:AF82AAA33CCDB4FA760CA21B187FEBDBAE777D21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

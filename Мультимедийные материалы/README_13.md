@@ -20,6 +20,8 @@ Visible Body | 3D Атлас анатомии и физиологии. Anatomy a
 magnet:?xt=urn:btih:0647BE367319B9BF0A22EC1C033FDB26BDAB0D10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ tinkoff.ru | «Эксель» и «Гугл-таблицы» для начина
 magnet:?xt=urn:btih:FC1E7D0703E1FE311F2DF93D61301491BA744898
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ blender | DVD training 5: Chaos & Evolutions (2010) [unpacked] [EN]
 magnet:?xt=urn:btih:6C2EBEFA3976FE0896ACBFC8A286B865A9D09862
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Chip (Чип) — первый компьютерный журнал в Евро
 ```bash
 magnet:?xt=urn:btih:F6F7E22E43EC86ED2DC35951C1EFCCA9A18FC43A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:F6F7E22E43EC86ED2DC35951C1EFCCA9A18FC43A
 magnet:?xt=urn:btih:DF7D4D7317C495BD3B57F6052688C25B6D25BE6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:DF7D4D7317C495BD3B57F6052688C25B6D25BE6A
 ```bash
 magnet:?xt=urn:btih:EC67374A44ED5C7BDAD9788CEFA418628435E7C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:EC67374A44ED5C7BDAD9788CEFA418628435E7C7
 magnet:?xt=urn:btih:FB1B8299B497BF662969F38ACF592A9C23336E0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ DVD приложение к журналу «Computer Bild» – крупней�
 ```bash
 magnet:?xt=urn:btih:4581C1754E8A08E427A7210F3FC2668449A5C570
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:4581C1754E8A08E427A7210F3FC2668449A5C570
 magnet:?xt=urn:btih:80BCC68103ACB61AB0B2C7CE1FB6EC3AFF3A64FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Chip (Чип) — первый компьютерный журнал в Евро
 ```bash
 magnet:?xt=urn:btih:AA23BB11A38FE01088BAFDBC0007CEAEDF01A8B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:AA23BB11A38FE01088BAFDBC0007CEAEDF01A8B1
 magnet:?xt=urn:btih:4D1A13720C1800D7A92865A9457FE6E1AAEAE009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:4D1A13720C1800D7A92865A9457FE6E1AAEAE009
 ```bash
 magnet:?xt=urn:btih:F7B19603A914072107FEAAA5D9DAAC647245E3AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:F7B19603A914072107FEAAA5D9DAAC647245E3AD
 magnet:?xt=urn:btih:24666364842DB2938D67FBA0C85F43D7408BB4E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:24666364842DB2938D67FBA0C85F43D7408BB4E6
 magnet:?xt=urn:btih:E383F5A09F0E93BA7F649A91507E343FB24E79EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ DVD приложение к журналу Computer Bild № 5 за 2011 г.На
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ DVD приложение к журналу Computer Bild № 5 за 2011 г.На
 magnet:?xt=urn:btih:105CDE432356E23C3D22FB7B055365B819220002
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ ProfIT | PHP не для сайтов (2016) PCRec
 magnet:?xt=urn:btih:8D7CCF601D076A7CEB05A1690DD22B732ED3FEA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ Chip — первый компьютерный журнал в Европе, с�
 magnet:?xt=urn:btih:0D33FB03D0CA6ADFDFB67B3276FB9E8EE362247D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ OLAN AT&S Ltd. | Глаголы иврита / Hebrew Verbs 1.2 [Иврит] (20
 ```bash
 magnet:?xt=urn:btih:2B35A209304A9F5E6AF4E7FCA69FA20E4B8069A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:2B35A209304A9F5E6AF4E7FCA69FA20E4B8069A0
 ```bash
 magnet:?xt=urn:btih:766DE777117E65CB8BA8BEC38F48DC3B6E96D695
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:766DE777117E65CB8BA8BEC38F48DC3B6E96D695
 magnet:?xt=urn:btih:BDA9DBC26FB1CE833C149AA51544E786110DB51E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ Chip (Чип) — первый компьютерный журнал в Евро
 ```bash
 magnet:?xt=urn:btih:A10286E8A050C0BDDD238DF49AF92436116E8701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ WebForMyself (Андрей Кудлай) | Телеграм-бот мастер.
 magnet:?xt=urn:btih:5AE03A6A48BE587E779E6692EC75250CA2C8DE81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ TradeLikeaPro | ExcelTrader. Скрытая мощь Excel для успеха �
 ```bash
 magnet:?xt=urn:btih:4E22B03430F17639790A3D9273F55E9D97807F71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:4E22B03430F17639790A3D9273F55E9D97807F71
 magnet:?xt=urn:btih:1340FFCD025D2D1542AEA1C56D50BE1B17B6C273
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:1340FFCD025D2D1542AEA1C56D50BE1B17B6C273
 ```bash
 magnet:?xt=urn:btih:5A781B7594AD25DDF12E412F9E227C031D4E1A08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

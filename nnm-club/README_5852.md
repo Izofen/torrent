@@ -19,6 +19,8 @@ Rufus - небольшая утилита помогает отформатир�
 magnet:?xt=urn:btih:0C968B4DAE984F48534D7E30300929423EEB9242
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:0C968B4DAE984F48534D7E30300929423EEB9242
 ```bash
 magnet:?xt=urn:btih:47ACF0F85544151DFDE677C2E80EE3779DF271BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Yes - Yessingles (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 magnet:?xt=urn:btih:5F3B6D454A91441F11B190376732353DABB9C751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Joe Bonamassa - Blues Deluxe Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 magnet:?xt=urn:btih:7204A2BDF63354727116573B048C1ADE471306FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:7204A2BDF63354727116573B048C1ADE471306FC
 ```bash
 magnet:?xt=urn:btih:EE6D1F47D5F24EA812D5D2FE671EBF3315DCFAC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Alien Shooter 2 - The Legend (2020) [Ru] (1.2.0) Repack Other s
 magnet:?xt=urn:btih:521DF52A64255CF29FF66B33160C89F11DF59B9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:521DF52A64255CF29FF66B33160C89F11DF59B9B
 ```bash
 magnet:?xt=urn:btih:809FF081E357F0F44D0DC6410853F6D8569F977F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Joe Bonamassa - Blues Deluxe Vol. 2 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:2D635216205D51EE3130557DC1EC4F906ECB51A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:2D635216205D51EE3130557DC1EC4F906ECB51A5
 magnet:?xt=urn:btih:445870032B7DCC2DB08F6F942B53136CE5CFE70E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ Adobe Acrobat Reader для PDF 22.10.0.24437 Mod by derrin [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CF7A95429A69323C7E02AFA95881237C86D8417A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:CF7A95429A69323C7E02AFA95881237C86D8417A
 magnet:?xt=urn:btih:40C49A0F88A3CA0ECB6056DB7439F5FCD124CE13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:40C49A0F88A3CA0ECB6056DB7439F5FCD124CE13
 ```bash
 magnet:?xt=urn:btih:9FF359701AD4B2D5B914C47BA910B0182280A8EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:9FF359701AD4B2D5B914C47BA910B0182280A8EB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ RSS Guard предоставляет строгий и лаконичный по
 ```bash
 magnet:?xt=urn:btih:E4B62A8E3C19713AEB55224932652D5E8C2E37DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ Volker Rosin - Alle Kinder tanzen (2012) [MP3|320 kbps] <Детские танц
 magnet:?xt=urn:btih:59FE767201700FB32AF4A42BF3CC597DA06F90EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:59FE767201700FB32AF4A42BF3CC597DA06F90EB
 magnet:?xt=urn:btih:00A7144DDC10E173496F944E92FB2D4DA0CE8782
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:00A7144DDC10E173496F944E92FB2D4DA0CE8782
 ```bash
 magnet:?xt=urn:btih:B03D0F851306C4F2DAE21E038D4639EEFFE8B9AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ Zucchero - Blue's (1987) [MP3|320 Kbps] <Blues, Pop>
 magnet:?xt=urn:btih:D93102286572F0EC25FF02E95F76E3AF2AB435CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:D93102286572F0EC25FF02E95F76E3AF2AB435CA
 ```bash
 magnet:?xt=urn:btih:4D05A8A1DA9B50DF5EB42CD7E933B800E540D553
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ ChimbaBench v2.5 (3.5.2.0) [En]
 magnet:?xt=urn:btih:C12C40657BF75511CB9476F076CA95F16416446A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ Nvidia DriverPack - это единый пакет со стандартными
 ```bash
 magnet:?xt=urn:btih:C50DCE33F1547366432B9133601514F9A891A1C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:C50DCE33F1547366432B9133601514F9A891A1C3
 magnet:?xt=urn:btih:9B79A85AF4D593CF82C92D2CCF0A5B873C49B3BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:9B79A85AF4D593CF82C92D2CCF0A5B873C49B3BE
 ```bash
 magnet:?xt=urn:btih:C8EB4645CF180E4D902775DB2465C26DF2FE9B71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:C8EB4645CF180E4D902775DB2465C26DF2FE9B71
 magnet:?xt=urn:btih:B81E2081A4973CC77579A18A37F73DB0830DA3B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:B81E2081A4973CC77579A18A37F73DB0830DA3B8
 ```bash
 magnet:?xt=urn:btih:D60410F7CC4B845B79BE8D84A47C5A01F5ACA711
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:D60410F7CC4B845B79BE8D84A47C5A01F5ACA711
 ```bash
 magnet:?xt=urn:btih:9431D15D3AEB34BE8D372A69ECEA844F69EBFD91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

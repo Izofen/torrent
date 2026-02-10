@@ -19,6 +19,8 @@ Youtube Downloader HD - бесплатная и предельно проста�
 magnet:?xt=urn:btih:4BBB4CDE0EA4C1CEC162CA4ABE26111904FAB2B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:4BBB4CDE0EA4C1CEC162CA4ABE26111904FAB2B6
 magnet:?xt=urn:btih:374C14298B3792A1627CD297280C3816A5CE7D02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ MediaHuman YouTube Downloader 3.9.15 (2607) RePack (& Portable) by Dodakaedr [Mu
 ```bash
 magnet:?xt=urn:btih:BDD3113940237AE0C489CDA2B11E443C04FC38D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Cleaner for Zapret 1.3 [Ru]
 magnet:?xt=urn:btih:8556669598F9ED5D2985856BE463DC7E32E7A477
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ MailWasher Pro включает антивирусную защиту, обес�
 magnet:?xt=urn:btih:6792BF12D6B46116DE8DB48CA6FB0F4225D47ADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ MediaHuman YouTube to MP3 Converter 3.9.14 (1407) RePack (& Portable) by elchupa
 ```bash
 magnet:?xt=urn:btih:C195BB50AC662332256FC23CD1D45BC69DF950C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:03F2B235F84176321F0C2D8FE71207D169655571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:03F2B235F84176321F0C2D8FE71207D169655571
 ```bash
 magnet:?xt=urn:btih:0561A9DB81AA594BDBF71CEFF92DF78E0D1F89BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Karing - Утилита прокси с простым и мощным инте�
 magnet:?xt=urn:btih:0EF5E1FCFEAE7A71E4E8467A6394EB64C9F7DCCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:0EF5E1FCFEAE7A71E4E8467A6394EB64C9F7DCCF
 ```bash
 magnet:?xt=urn:btih:98F88C86F826B6E78B37E36512A2E3688D6E3C33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:98F88C86F826B6E78B37E36512A2E3688D6E3C33
 magnet:?xt=urn:btih:0248A9EACD67EAB5FAF064E1536704A2F7B1151D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:0248A9EACD67EAB5FAF064E1536704A2F7B1151D
 ```bash
 magnet:?xt=urn:btih:4A9D701087D1F9171805D0234CDDDF771A1AA55C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:568B98933A8E25078C4D71C0CC817A1BB6BE9CDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:568B98933A8E25078C4D71C0CC817A1BB6BE9CDE
 ```bash
 magnet:?xt=urn:btih:B5688C0B4FCE0C15293E57A4A22981A282A7BC96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:96913DD278A5D73E385814F844012E801A9D5BD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ MediaHuman mTube - программа будет отличным решение
 ```bash
 magnet:?xt=urn:btih:1B54D9F6E9A2B3DF431A6EB786E504A43ABE2A9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Total Mail Converter Pro простая в использовании прогр
 magnet:?xt=urn:btih:9BFA72E817BE214434063B2BC8796EF3913CAD02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:00A6426E2ED13CC6CE32693036B0025D19AFCCA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Altus поддерживает темы, несколько учётных за�
 ```bash
 magnet:?xt=urn:btih:D22C82559CD6316F6DD4DFAE9F3DBD218079E526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ YTDisBystro - сбока на основе zapret от KDS.
 magnet:?xt=urn:btih:5D3452D037A27F5EB75AC1C15E7C1063F7BDED56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ BitComet - это функциональный, быстрый и простой
 ```bash
 magnet:?xt=urn:btih:878D4E34A8EA7441742A09D12B79565B9D5BFA69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Find MAC Address  - небольшая утилита, которая позво
 magnet:?xt=urn:btih:B2B21EF1E318AA190C035725D9C5FB6BB1303F13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ BitTorrent – программа-клиент пиринговой сети. П
 ```bash
 magnet:?xt=urn:btih:968FDB3B729324B7FE22DD3BB62C940551048B01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Wi-Fi Scanner — удобная программа, с помощью кото�
 magnet:?xt=urn:btih:949CF9B34E85ECC9DC0082B25F27CC9199A30F34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:2601EF2E47EBE16AC025C325C09D11A2E06FBA1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +680,8 @@ WinSCP, это FTP и SFTP клиент с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:E9EE1690862F53AC08C009A35BFDAFA1F8D23433
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 1489439   (925180) от 16.08.2021
-
-Город головорезов / Cut Throat City (2020) BDRip [H.265/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925180.jpg" />
-</div>
-
-
-###  Подробнее
-
-2005 год. Четверо друзей возвращаются в разрушенный и пострадавший от урагана Катрина девятый округ Нового Орлеана. Очень скоро они осознают, что теперь у них могут возникнуть сложности с работой. Поэтому им ничего не остаётся, как обратиться за помощью к местному гангстеру, который нанимает их для совершения ограбления казино прямо в центре города.Производство: США / Rumble Riot Pictures, Patriot PicturesЖанр: Боевик, триллер, драма, криминалРежиссер: RZAАктеры: Шамеик Мур, Деметриус Шипп мл., Дензел Уитакер, Киан Джонсон, Уэсли Снайпс, Кэт Грэм, Ти-Ай, Терренс Ховард, Роб Морган, Эйса Гонсалес, Итан ХоукПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 02:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:411E3424107DCF7BBE4ADDF22CD4B8AD5FA40B61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1486680   (925207) от 16.08.2021
 
 Мулан / Mulan (2020) BDRemux [H.264/1080p]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:411E3424107DCF7BBE4ADDF22CD4B8AD5FA40B61
 ```bash
 magnet:?xt=urn:btih:E76FF9D8CFB81D313C30F9F76C189DFDCF74D4F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:E76FF9D8CFB81D313C30F9F76C189DFDCF74D4F0
 magnet:?xt=urn:btih:FF16B7F42B9197A9C82EA9168F0C0BE977F76646
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:FF16B7F42B9197A9C82EA9168F0C0BE977F76646
 ```bash
 magnet:?xt=urn:btih:E99BBCBA1B8691F702BF0E73EB802A3540315E27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:E99BBCBA1B8691F702BF0E73EB802A3540315E27
 magnet:?xt=urn:btih:D30A50631BC57E22459A84484DF116EC49EA1AD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:D30A50631BC57E22459A84484DF116EC49EA1AD0
 ```bash
 magnet:?xt=urn:btih:14B028ABB51127E9D674FC8609842761BE775E05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:14B028ABB51127E9D674FC8609842761BE775E05
 magnet:?xt=urn:btih:82176A2B6BD5993287A777FD1E03BAADB86FE160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:82176A2B6BD5993287A777FD1E03BAADB86FE160
 ```bash
 magnet:?xt=urn:btih:38E21C1095F2F2036B3527A13E1BBED6D4D65F25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:38E21C1095F2F2036B3527A13E1BBED6D4D65F25
 magnet:?xt=urn:btih:5E851FFC2B1A137085C795B9D66B664645088E05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:5E851FFC2B1A137085C795B9D66B664645088E05
 ```bash
 magnet:?xt=urn:btih:041E5B34AFCC32AA630B7F034781DEF1469E6E6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:041E5B34AFCC32AA630B7F034781DEF1469E6E6D
 magnet:?xt=urn:btih:DD6F93317A1717B5245F12D590E177B402291331
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:DD6F93317A1717B5245F12D590E177B402291331
 ```bash
 magnet:?xt=urn:btih:2D968913CF3C90E7E2C3C5F1C0A9FA38D323F5D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:2D968913CF3C90E7E2C3C5F1C0A9FA38D323F5D5
 magnet:?xt=urn:btih:0944DBC8DB734C03E1F871102F2CBCFD900967A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ magnet:?xt=urn:btih:0944DBC8DB734C03E1F871102F2CBCFD900967A7
 ```bash
 magnet:?xt=urn:btih:E33BEB757541A474F2AFAD96B546397850CF21CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:E33BEB757541A474F2AFAD96B546397850CF21CF
 magnet:?xt=urn:btih:7609D9677C40FB97FCF76660B8AA0781CE59E1D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +383,8 @@ magnet:?xt=urn:btih:7609D9677C40FB97FCF76660B8AA0781CE59E1D1
 ```bash
 magnet:?xt=urn:btih:107AA55F54C49D6CAFB535F3DBC7A1D9703B5775
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:107AA55F54C49D6CAFB535F3DBC7A1D9703B5775
 magnet:?xt=urn:btih:74A32024129372CF9A18E643D0FFC2FE3FCEE91A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:74A32024129372CF9A18E643D0FFC2FE3FCEE91A
 ```bash
 magnet:?xt=urn:btih:6B4A5EE93F2F9EA94A0A7FCA15D64DAE733D5CA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:6B4A5EE93F2F9EA94A0A7FCA15D64DAE733D5CA2
 magnet:?xt=urn:btih:5578BD26191CDBD785CABECDD9202A35DB44477E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +488,8 @@ magnet:?xt=urn:btih:5578BD26191CDBD785CABECDD9202A35DB44477E
 ```bash
 magnet:?xt=urn:btih:9F53738C74415C6F4941358E04EDE856A189E694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:9F53738C74415C6F4941358E04EDE856A189E694
 magnet:?xt=urn:btih:581AE1B2E7DE4A1E7153FD84EC4E2C3BBB908539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +540,8 @@ magnet:?xt=urn:btih:581AE1B2E7DE4A1E7153FD84EC4E2C3BBB908539
 ```bash
 magnet:?xt=urn:btih:90281CD40ADC41705574893D7924BC624F4776A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:90281CD40ADC41705574893D7924BC624F4776A2
 magnet:?xt=urn:btih:2B7DA41AB2C401DEBC9F4DFC53E4922B811E3AE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +592,8 @@ magnet:?xt=urn:btih:2B7DA41AB2C401DEBC9F4DFC53E4922B811E3AE5
 ```bash
 magnet:?xt=urn:btih:42CFE4F92E49C6A843794B9BD8173176579FD171
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +619,8 @@ magnet:?xt=urn:btih:42CFE4F92E49C6A843794B9BD8173176579FD171
 magnet:?xt=urn:btih:CF37341457A081C563198A0107B97EBEE1C1A958
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +644,34 @@ magnet:?xt=urn:btih:CF37341457A081C563198A0107B97EBEE1C1A958
 ```bash
 magnet:?xt=urn:btih:5E3E1E138BDE8B0E21F6BCE8AB25831E480D5E89
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095318   (925853) от 20.01.2017
+
+Смотри ещё раз / Baar Baar Dekho (2016) HDRip
+
+>>Зарубежное кино
+>>Индийское кино
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джай - подающий надежды молодой профессор математики, который мечтает защититься и работать в престижном университете Лондона. У молодого человека есть все шансы на осуществление этой мечты, но единственное, что его останавливает на пути к заветному контракту - это брак с подругой детства Дией. Девушка буквально жаждет выйти замуж за любимого человека, обзавестись (   Читать дальше...   )Производство: ИндияЖанр: Драма, МелодрамаРежиссер: Нитья МехраАктеры: Сидхарт Мальхотра, Катрина Кэйф, Саяни Гупта, Раджит Капур, Рам Капур, Сарика, Тааха ШахПеревод: Профессиональный многоголосыйЯзык субтитров: русский (толко на песни)Продолжительность: 02:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D48CA227B278A198B4D8620C2B7296AF926F1486
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

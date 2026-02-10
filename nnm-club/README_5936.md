@@ -19,6 +19,8 @@ Burak Serdar | Effective Concurrency in Go (2023) [PDF][EN]
 magnet:?xt=urn:btih:BBAFEC0311B67D22EEFB764A11E8734607A8405B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Best Of FSOE (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
 magnet:?xt=urn:btih:435836A39030E7665BE7DBA794CEE032A3FA7FD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Spy Kyoushitsu 2 / Spy Classroom 2 / Шпионский класс 2 [2023, TV, 
 ```bash
 magnet:?xt=urn:btih:88B5E317EA29B72401E8EA1714617B8E4E47D1D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Nirvana - 9 Albums, 3 Box-Sets, 6 Singles, 43CD (1989-2013) [FLAC|Lossless|image
 magnet:?xt=urn:btih:5EA9D75001F3A7D9481EF31D27C5D883C3FF3F98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:5EA9D75001F3A7D9481EF31D27C5D883C3FF3F98
 magnet:?xt=urn:btih:9A1F4222BF4DFE483D59D229306DD3C1674F0CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:9A1F4222BF4DFE483D59D229306DD3C1674F0CAA
 ```bash
 magnet:?xt=urn:btih:C5EE4651632436C8B840A0037105950E94AB1264
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ Som Prakash Rai | Core Java: Made Simple (2023) [PDF][EN]
 magnet:?xt=urn:btih:4E77F4B140916A397307407B4CEB0503F2D60AA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:4E77F4B140916A397307407B4CEB0503F2D60AA3
 ```bash
 magnet:?xt=urn:btih:3A862809A6C5E0731E0B0E717CE37C7F57A36411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ Bennie And The Jets - Lipstick and Leather (2022) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:B6B36711D215CEB3681DCCEB0C44CF3EE5413756
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:B6B36711D215CEB3681DCCEB0C44CF3EE5413756
 ```bash
 magnet:?xt=urn:btih:2A4D4F71A9ABF69B9786744C7AFFC0F86C31C72F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Walk In Darkness - 4 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Sympho Go
 magnet:?xt=urn:btih:0C2B2510F582D33C3C05F9D90B91C35863ADBC46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ Marcelo Guerra Hahn, Araks Tigranyan, John Asatryan | Expert C++, 2nd Edition (2
 ```bash
 magnet:?xt=urn:btih:A4971FF48DE4AD01D967029C9784514728B1AA20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ PDF-XChange Pro - универсальная программа для рабо�
 magnet:?xt=urn:btih:231597AE0C48596C57E6544AB6D89D4BFE8A0612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:231597AE0C48596C57E6544AB6D89D4BFE8A0612
 magnet:?xt=urn:btih:2910552305C746CF51AC461505B5F7435E8FC9F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:2910552305C746CF51AC461505B5F7435E8FC9F3
 ```bash
 magnet:?xt=urn:btih:6DCEB77285E0472ABE0628A6B8A24E74EA7AC01D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:6DCEB77285E0472ABE0628A6B8A24E74EA7AC01D
 magnet:?xt=urn:btih:77011DC8F4A18F1DD4F4C29D4534DBADCD434F9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ AI no Idenshi | The Gene of AI | Ген искусственного интел�
 ```bash
 magnet:?xt=urn:btih:B400047E8904EB14D4E00FFF4716183C652CABC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ An Abstract Illusion - Woe (2022) [FLAC|Lossless|tracks + .cue] <Melodic Death M
 magnet:?xt=urn:btih:E1C1A54E2253A0B69C30B5D72F21EC67FCA15E18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:E1C1A54E2253A0B69C30B5D72F21EC67FCA15E18
 ```bash
 magnet:?xt=urn:btih:79AB8B50FDBE8E045871C2479FB20D07E0AD5397
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:79AB8B50FDBE8E045871C2479FB20D07E0AD5397
 magnet:?xt=urn:btih:FE0094F487C4210B13A6C3A6C07560A90976A51A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:FE0094F487C4210B13A6C3A6C07560A90976A51A
 ```bash
 magnet:?xt=urn:btih:A3AC7153871EE15E2E1FD7B289B862D9B73F63C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:A3AC7153871EE15E2E1FD7B289B862D9B73F63C8
 magnet:?xt=urn:btih:117C1153AFE8C335890F5FB04D5355FA2B78C564
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:117C1153AFE8C335890F5FB04D5355FA2B78C564
 ```bash
 magnet:?xt=urn:btih:ADE67369A2DCE22664D840068C51D511D0C9ACBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:ADE67369A2DCE22664D840068C51D511D0C9ACBB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:ADE67369A2DCE22664D840068C51D511D0C9ACBB
 ```bash
 magnet:?xt=urn:btih:CD4BD9670B8F129552F7F168D2F52148FD19D06F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +692,8 @@ History Channel. Тайны древности. Варвары: Монголы /
 ```bash
 magnet:?xt=urn:btih:0B496CB4EF21DC0B70158637A9E533E671F93AF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

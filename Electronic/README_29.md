@@ -22,6 +22,8 @@ Pet Shop Boys - Nonetheless (2024) [FLAC|Lossless|WEB-DL|tracks] <SynthPop>
 magnet:?xt=urn:btih:A4FCF0ECD52069BD42D4B26F84B8A6D257027610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Sirup Ibiza 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 ```bash
 magnet:?xt=urn:btih:2AC81E754212B6DE485AFDAA03A401FCADB83AEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Sensual Chillout Beats (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill 
 magnet:?xt=urn:btih:C8B6C0F590C1871AD48D470CDA14FECA11842C4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Depeche Mode - Some Great Reward (1984) 1st German Press [APE|Lossless|image + .
 ```bash
 magnet:?xt=urn:btih:52153A29EEA42ABA7643274EFC3E0A15815FB374
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Acylum - Zuchthaus (2024) Bonus Version [FLAC|Lossless|WEB-DL|tracks] <Dark Elec
 magnet:?xt=urn:btih:3ABB43139C3427DDBC6E4A1A884C466A59FFA12A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Jamie B and Nova Scotia - Because Of You (2018) [FLAC|Lossless|WEB-DL|tracks] <S
 ```bash
 magnet:?xt=urn:btih:5C5F84471589DFC3F024D3F07D64D4CF8691F66D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ VA - Deep-House Heaven, Vol. 2 (2024) [MP3|320 Kbps] <House, Deep House, Dance, 
 magnet:?xt=urn:btih:444099AE2B702C4B6279DF892CECBD8C3EA2FE71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ CJ Stone & Quiz ft. Jenny - Surrender (2024) [FLAC|Lossless|WEB-DL|tracks] <Euro
 ```bash
 magnet:?xt=urn:btih:5E4CFB6AA3A22742C2306C49699FAD513D0E29F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ VA - Spring Deep House Hits 2024 (2024) [MP3|320 Kbps] <House, Deep House, Dance
 magnet:?xt=urn:btih:4B188DBC72781203B08B97AE9322EA3C0373B07F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ Nova Scotia - Power Of Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Trance, Pop Tr
 ```bash
 magnet:?xt=urn:btih:004494C8940C4C798955A80799551E33DE27640C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +304,8 @@ VA - Hardstyle XXL Megamix 2024 [MP3|320 Kbps] <Hardstyle>
 magnet:?xt=urn:btih:6A7B17E35EC58E478028405913EC07C51B9A2AB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +332,8 @@ Korolova - Live @ Tulum Jungle, Mexico (2024-04-04) [MP3|320 Kbps] <Progressive 
 ```bash
 magnet:?xt=urn:btih:67D99B35FEE7DE97E7728CCB3304F7B11FB6F0D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +362,8 @@ Koan - Dell'arte (Side A-B) (2024) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Down
 magnet:?xt=urn:btih:BDFA60D37D2AE57D36E2A07AF3865F8DEEFF80C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +390,8 @@ Broken Videos - Memories of Tomorrow (2024) [MP3|320 Kbps] <Synthwave, Retrowave
 ```bash
 magnet:?xt=urn:btih:483F9A092C14A50484C3A67FCFA2A471C43DADB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +420,8 @@ VA - Trance 2024 Legends (2024) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:41F9B6857A94F21B502A5EF227F81C05F9EE5EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +448,8 @@ VA - Lounge Delicious, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chil
 ```bash
 magnet:?xt=urn:btih:C58E6DCE1A876C8D41E58616A03792FE6B964099
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +478,8 @@ VA - Armin van Buuren - A State of Trance (Celebration Weekend) (unmixed tracks)
 magnet:?xt=urn:btih:0619158D61BA7BA6D30A6DA63D59F1DD110081F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +507,8 @@ VA - A State Of Trance Radio Top 50 - 2024, Vol. 1 (2024) [MP3|320 Kbps] <Trance
 magnet:?xt=urn:btih:47ECC571AE54684B489569CB9CB7AFE809587A12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +532,8 @@ VA - Live @ Tomorrowland Winter, France (2024) [MP3|320 Kbps] <Trance, Techno, M
 ```bash
 magnet:?xt=urn:btih:3A14150E7E6D596CB89AB47C801288514F926FC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +562,8 @@ VA - Dance Covers 2024 - The Best Party Hits Only! [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:612ADF48A35ACC344ED4307D01C785B3F560A480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +590,8 @@ Pet Shop Boys - Dancing star (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 ```bash
 magnet:?xt=urn:btih:96ECB685C20217F5558546CE4F26D2CE3A4EBFD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +620,8 @@ V.A. - Vintage Cafe: Lounge and Jazz Blends, Vol. 23 (2024) [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:A6E0ED7DED040F18868E1258262DF7EEF6AA6496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +648,8 @@ VA - Erotic Lofi-Fi & Lounge Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge,
 ```bash
 magnet:?xt=urn:btih:FB5B683FDE3F339E9E6A02E6575B10D7F856262E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +678,8 @@ Corvin's Breed - 2 Albums (2019-2024) [FLAC|Lossless|WEB-DL|tracks] <Dark Electr
 magnet:?xt=urn:btih:74FB98C4A0CFC61E27BEEC2942BF15F061BB2BF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +707,8 @@ VA - Exx Underground Miami 2024 (2024) [MP3|320 Kbps] <Progressive House, Melodi
 magnet:?xt=urn:btih:7FC4EF212B5C123D9F9291FBB787E33D619B979E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -685,6 +735,8 @@ Scooter - Open Your Mind And Your Trousers (2024) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:2C9EFAEC4878DF3C98060C2A688C9643BDEEFEB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

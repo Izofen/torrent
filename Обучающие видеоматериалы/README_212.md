@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:19C72E17F2C3F7EAA70D2B6C0882F290001D4AF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:19C72E17F2C3F7EAA70D2B6C0882F290001D4AF0
 ```bash
 magnet:?xt=urn:btih:F199341D7CE557956AB3275CB59CD51A59A80E64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:F199341D7CE557956AB3275CB59CD51A59A80E64
 magnet:?xt=urn:btih:4F27B12B25FEAB6F4CCA69537FFDBD849FADBC15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:4F27B12B25FEAB6F4CCA69537FFDBD849FADBC15
 ```bash
 magnet:?xt=urn:btih:F2F99BA6125DA4E89463DB27E43E7093D6A5A2D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Allan McKay | FX Technical Director Transformation Module 16 (2015) PCRec
 magnet:?xt=urn:btih:EDA2589FCA5758BC0471E3A25D4892D0542CE0BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Geekbrains | FreeBSD. Администрирование серверов (2014)
 magnet:?xt=urn:btih:BF6AB41257D5DBBA9B34FE19A8863D2432EB4DFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ ITVDN | Видео курс Выполнение домашнего задани
 ```bash
 magnet:?xt=urn:btih:D4D3C9374C4A5CAA418050FEAA8189F42CB136EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ HTML Academy | React. Разработка сложных клиентских �
 magnet:?xt=urn:btih:75F9058E473098266B9B7C2C8D5D44B33BAE0574
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Knower school, Дмитрий Смирнов | Создание 3D график�
 ```bash
 magnet:?xt=urn:btih:21512844F6C7365A6CB2D193EC214CA16EFC8CA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:21512844F6C7365A6CB2D193EC214CA16EFC8CA0
 magnet:?xt=urn:btih:53B298307C9EC75A88CABAD6A0FA0868C27DD068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ TeamLead | Confluence. Базовый тренинг для администра
 magnet:?xt=urn:btih:64BA52845C673BD549BF97ED361866CC178D4F74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:64BA52845C673BD549BF97ED361866CC178D4F74
 ```bash
 magnet:?xt=urn:btih:6CC25B270771F7C6B3F7ED27E54D52AE7DEE8A61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:6CC25B270771F7C6B3F7ED27E54D52AE7DEE8A61
 ```bash
 magnet:?xt=urn:btih:A9F202C19E3FB1DD823EE6EA744DC62370B05E30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:A9F202C19E3FB1DD823EE6EA744DC62370B05E30
 magnet:?xt=urn:btih:1DBEE113FE8D5B2E57165360F0AC059B94040A9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ magnet:?xt=urn:btih:1DBEE113FE8D5B2E57165360F0AC059B94040A9E
 ```bash
 magnet:?xt=urn:btih:D17BE45A4CB4B53002610710BFEFA4580D7A34B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:D17BE45A4CB4B53002610710BFEFA4580D7A34B2
 magnet:?xt=urn:btih:1F6CBCBB472F3BB00CE4E4C0AF86777064E15EBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:1F6CBCBB472F3BB00CE4E4C0AF86777064E15EBE
 magnet:?xt=urn:btih:040C1B0A32D0FF621789B383ADDFF36903F66595
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ Pluralsight, Chidi Mbadugha | 3ds Max Graphite Modeling Tools Fundamentals (2017
 ```bash
 magnet:?xt=urn:btih:06A7B75C5FB273C2324178EC3CF43B75F27B776F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:06A7B75C5FB273C2324178EC3CF43B75F27B776F
 magnet:?xt=urn:btih:069CA082804173F8CC69312714A4577539F222BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:069CA082804173F8CC69312714A4577539F222BD
 magnet:?xt=urn:btih:13498B110EB3CD4540B56D54CC1B379612EF4B12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:13498B110EB3CD4540B56D54CC1B379612EF4B12
 ```bash
 magnet:?xt=urn:btih:41120A43E45BCDF99E4B80CC6EAB7B254C2FAAE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:41120A43E45BCDF99E4B80CC6EAB7B254C2FAAE6
 ```bash
 magnet:?xt=urn:btih:19857B9BD62E05E67C454A750EDCCB66C095ACEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +629,8 @@ magnet:?xt=urn:btih:19857B9BD62E05E67C454A750EDCCB66C095ACEB
 magnet:?xt=urn:btih:63449DFD5AEAA42D98D3566456E94F0B329318A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +657,8 @@ magnet:?xt=urn:btih:63449DFD5AEAA42D98D3566456E94F0B329318A2
 ```bash
 magnet:?xt=urn:btih:9DC50D1FD7B969AC0E35B67C53FDD3200000DF58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +687,8 @@ magnet:?xt=urn:btih:9DC50D1FD7B969AC0E35B67C53FDD3200000DF58
 magnet:?xt=urn:btih:D917604950DC091CCBA359EE4074FE0D8556334C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +715,8 @@ magnet:?xt=urn:btih:D917604950DC091CCBA359EE4074FE0D8556334C
 ```bash
 magnet:?xt=urn:btih:938DAB1C378EA3732BE1598CFFF7C58EBB1EC43F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

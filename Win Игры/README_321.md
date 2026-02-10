@@ -19,6 +19,8 @@ BATMAN: Рыцарь Аркхема торжественно завершает 
 magnet:?xt=urn:btih:75DD6E8C4BFEC918E9124ADBF4A5DEFA1E143786
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ball of Light — это атмосферное приключение, в ко�
 ```bash
 magnet:?xt=urn:btih:9DEE9D1E852EA53EC8B83A4BE62A1B7285653D34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Incredible Adventures of Van Helsing II / Van Helsing 2: Смерти воп
 magnet:?xt=urn:btih:12F79468324673B43209C32C86E724DADB1A98E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Thick Air (2016) [Ru/En] (0.1/Early Access) Repack Other s
 ```bash
 magnet:?xt=urn:btih:DACFCE5F74BDF27E2964D0A35DE80E83715C855E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Signal Ops (2013) [En] (1.0.5361) License GOG
 magnet:?xt=urn:btih:065C3BD3DF78E298BAF07AA2496552424E373C5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Wolf Among Us (2013) [Ru] (1.0.0.1) Repack xatab [Episodes 1-5]
 ```bash
 magnet:?xt=urn:btih:27229CB3490D771E2274F60AEADF9AFCD8711242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ STASIS – это приключенческая игра «укажи и щел
 magnet:?xt=urn:btih:197353F3B6FE8E4FF2DAB95EDCCF1C1BAD897FA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Ritual on Weylyn Island (2015) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:D4DD408DD5085D5830D2E5D255E2B2481498618A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Last Dream (2015) [Ru/En] License Specialbit Studio [Developer's Edition]
 magnet:?xt=urn:btih:E99C370EB8B14268BBDDA63FA2ED2CCC645CDA37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Motorsport Manager (2016) [Ru/Multi] (1.53/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:D43EADD6B52049450FE54111DF4F2F9C8BB27526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ LIMBO (2011) [Ru/Multi] (3.0.0.1) Repack Other s
 magnet:?xt=urn:btih:7A439B1BF38B18FAFED872C8854478F530936716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Wanted Corp — это экшн с видом сверху, в котором в
 ```bash
 magnet:?xt=urn:btih:4E4547317247D31E6B3FE71C9140F315B5AA3E79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Root Of Evil: The Tailor - история об одном случае прои�
 magnet:?xt=urn:btih:A15E5506C2B6BF8ABD6FA4E73A3788852BFB7E3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ D Series OFF ROAD Racing Simulation - это колдобины на дорог�
 ```bash
 magnet:?xt=urn:btih:310E867BB1C25BCC2368F509603F4E6DC41063DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Demon Hunter 2: New Chapter / Охотник на демонов 2: Новая �
 magnet:?xt=urn:btih:B154B8AE150EC6E56768AC75B7E51245DDB38EFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:B154B8AE150EC6E56768AC75B7E51245DDB38EFF
 ```bash
 magnet:?xt=urn:btih:341DAEA731F66F655F6B14E673AFB74A2E064910
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Paranormal Files 2: The Tall Man / Секретные досье 2: Верзил
 magnet:?xt=urn:btih:BE91CC2FCFFE86E34BADFAFFE8F33E0D7F6C0BEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Lost Horizon 2 продолжит историю, начатую в предыд
 ```bash
 magnet:?xt=urn:btih:0CFDE3710806E9F7DCD4DCE89752234A6CA9F83B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Lost Horizon / Затерянный горизонт (2010) [Ru/En] (08.12.2015)
 magnet:?xt=urn:btih:F03CC527B638F038072F0662807894BE4934908A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ World of Final Fantasy (2017) [Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:4358472D8EBAAB47AA696B6FE31AA6FE55FBDFD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Nioh: Complete Edition — полное издание приключенчес�
 magnet:?xt=urn:btih:B941024EB3A9B8D735EC88DE55F0F9ACD332072F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Agony – это приключенческий хоррор c видом от �
 ```bash
 magnet:?xt=urn:btih:6CFBBF1EADAF4E9904046A7BD0A785279E618E6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Bomber Crew (2017) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:26B42CA8D08E83D2320A8BD0C4237D8D54FDD67A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ EARTH'S DAWN (2016) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:C364A2F84C00A2E75197A02ED0D52BCD4F4B5A45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Sacred Almanac: Traces of Greed / Священный Альманах: След�
 magnet:?xt=urn:btih:3EDD0F8A76A4D43C6F5E7101AD2005FFA66869CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Her Majesty's SPIFFING — забавная приключенческая point
 ```bash
 magnet:?xt=urn:btih:883CC1374C2CCEBEE1C942D9429F9D0E8F460849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

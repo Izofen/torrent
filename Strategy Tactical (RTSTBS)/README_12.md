@@ -19,6 +19,8 @@ Commandos 3 - HD Remaster – переиздание одноименного и
 magnet:?xt=urn:btih:25A54612EAE5FB3131183BE070E7F8B3837831B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Blackguards 2 - это продолжение пошаговой стратег�
 ```bash
 magnet:?xt=urn:btih:027725436749FD70AD950A3ED33E9B7D85338074
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Eisenwald: Blood of November (2016) [Ru/Multi] (1.0) Repack Dok2
 magnet:?xt=urn:btih:37F1560425A86A0939EF4614A3DD0472ACE60677
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Dungeon Rats - это пошаговый партийный данжен кра�
 ```bash
 magnet:?xt=urn:btih:821015126DABB369372F9C4C4970C06135C5045F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Eador: Masters of the Broken World / Эадор. Владыки миров (2013
 magnet:?xt=urn:btih:1D0C8F9BF1AF3B04405496214BF2ABF1055F2B61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Space Hulk: Tactics – новый взгляд на старую добрую �
 ```bash
 magnet:?xt=urn:btih:3A8DCC80B8E5AB32FDB58012ED1C02890AEFF578
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Men of War: Assault Squad 2 - Cold War (2019) [En] (1.004.0) License CODEX
 magnet:?xt=urn:btih:681CDAF49333A3C8C9A8C0ED7D597E6AE284D5E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Achtung! Cthulhu Tactics (2018) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:E0CABBFB91755B27F28CADB20C7AD132F3B822AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Space Hulk: Tactics – новый взгляд на старую добрую �
 magnet:?xt=urn:btih:CC802DBF3099CDF386B15CC7827515FFC0A7148C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Eisenwald: Blood of November (2016) [Ru/Multi] (1.3) License GOG
 magnet:?xt=urn:btih:4B198A8965DCFA65011E20D31D3010FCC8481F6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ Total War: WARHAMMER II - это стратегическая игра поис�
 ```bash
 magnet:?xt=urn:btih:EF1662727ACA5073103A830636A40E3012A07985
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Confrontation / Confrontation: Последняя битва [Ru/En] (RePack/v.1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Ancestors Legacy (2018) [Ru/Multi] (64724/dlc) License GOG [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:E68FE0EEB4963E63103D72205E89D4BED2E650A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Praetorians - HD Remaster (2020) [Ru/Multi] (1.04) License GOG
 magnet:?xt=urn:btih:CC09DBD4E3FBE409C1CF1DD532BDF2392AA93970
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Nantucket (2018) [En] (1.4c/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:CD722D2E6BCF6EECCC7B7BAE78E0CBB2DAF1957C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Trapped Dead: Lockdown - это тактическая стратегия в р�
 magnet:?xt=urn:btih:6CAB0309A19EAA841CE8FDF3B35E6846F66719C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Immortal Realms: Vampire Wars это увлекательная стратеги
 ```bash
 magnet:?xt=urn:btih:D86D770C3942AF66D0B490E5B40682F2AD56949F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Prodigy Tactics — тактическая ролевая игра в пошаг
 magnet:?xt=urn:btih:44262BD461B97284652FB31CAA183E8EE0326034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Emergency 2016 (2015) [Multi] (1.0.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:BCD7B9F0E6A981E2C0AFFC4A8BAB95A416CFF535
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Warhammer 40,000: Deathwatch (2015) [Ru/Multi] (1.0) Repack xatab [Enhanced Edit
 magnet:?xt=urn:btih:E82B8F0A2D7381834833528ADB547E026D0A106D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Dungeons 2: A Game of Winter (2015) [En] (1.5.1.392/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:2B929B60238A27A2EA8EF48BE5735944E1F51739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ Tryst - это стратегия в реальном времени, дейст
 magnet:?xt=urn:btih:EF3E1367E3B2937A0BBACB68DF95A3D2AD94D2EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ CastleStorm II продолжает tower defense игру CastleStorm, пред
 ```bash
 magnet:?xt=urn:btih:AFEBAF352073F69733B9FFB1A61086C568A094DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ Commandos 2: HD Remaster - это обновлённая версия культ
 magnet:?xt=urn:btih:A2831FD59C85E792CE1A92F8AF8950FD4849B389
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ This War of Mine (2014) [Ru/Multi] (6.0.0/dlc) License CODEX
 magnet:?xt=urn:btih:FEF9B80672ADBAD8AC7DC5F92CE8FCF6A7DD83BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Legends of Eisenwald / Легенды Эйзенвальда (2015) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:D5EEFE254FBCBD506A6E1431D3491A95643FC267
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

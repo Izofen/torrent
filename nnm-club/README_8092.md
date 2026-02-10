@@ -22,6 +22,8 @@ VA - The London Chillout (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 magnet:?xt=urn:btih:FAA5B2AA9A23FBAF3DAE41AE5AEC657F3A46A1BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:FAA5B2AA9A23FBAF3DAE41AE5AEC657F3A46A1BD
 ```bash
 magnet:?xt=urn:btih:9FCC48783ED9695E2A954B9639F1F01FB6313D1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Heidevolk - De Strijd Duurt Voort (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Pagan
 magnet:?xt=urn:btih:328163D58E195DE24A54B69F141D5AF94DB0D507
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:328163D58E195DE24A54B69F141D5AF94DB0D507
 ```bash
 magnet:?xt=urn:btih:80C4DC31B30841DC890F52EF5ED71B5AF030EBE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Stats - это приложение с открытым исходным код�
 magnet:?xt=urn:btih:10B760A4842452FB243DB2FC1E03530FE6A429A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Paletter 4 v4.1.0 [En]
 magnet:?xt=urn:btih:90E81147C61F174553BE99C4F5BBB3A2C86BF7DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:90E81147C61F174553BE99C4F5BBB3A2C86BF7DE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ VA - Звездная вечеринка. Зарядись хитами. Вып�
 magnet:?xt=urn:btih:6B65AAEAF94E39B743A2EF3BA43958571C0A0582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Eddie B - I'm Holding On (2023) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:AF0DDBBBFD3931B1DFD2EE2CCB746497214D0CB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ VA - EDM Deejay Compilation 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
 magnet:?xt=urn:btih:8EB670C8C6F3CA8784124F75046036AC0D9EEFBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ FigrCollage - программа для создания удивительны�
 ```bash
 magnet:?xt=urn:btih:81B5DEF12A14B31F84F12C6F7109A249089F8CC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:81B5DEF12A14B31F84F12C6F7109A249089F8CC0
 magnet:?xt=urn:btih:6C3E763BEA271BB2CFD66366C8862AF1F2076E79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:6C3E763BEA271BB2CFD66366C8862AF1F2076E79
 ```bash
 magnet:?xt=urn:btih:E08049618C43EE385A3F7A08CFE312DE8640C036
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ Rooms Of Ruin - The Hollow Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Ston
 magnet:?xt=urn:btih:B805E380D17929EAB54E3B59B224484B16A446D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:B805E380D17929EAB54E3B59B224484B16A446D9
 magnet:?xt=urn:btih:35EB5F63D4AE5655311B9731CBE212711D646AC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:35EB5F63D4AE5655311B9731CBE212711D646AC0
 ```bash
 magnet:?xt=urn:btih:DE0A81744E00C7CA8CD06CA15BCB28703AF8D958
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ Oliver Nelson, King Curtis, Jimmy Forrest - Soul Battle (1960) 1992, Prestige[FL
 magnet:?xt=urn:btih:DF5E5DF3CD445FAC326A4F8AFE8E47AEC1844DD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ Tune Sweeper - мощный инструмент для очистки ваше�
 magnet:?xt=urn:btih:208966DB844F18ECB944A59862C9B2E5EB56C640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:208966DB844F18ECB944A59862C9B2E5EB56C640
 ```bash
 magnet:?xt=urn:btih:512D619880DBAC53FBF747FDB18D141F15097B0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ VA - Calm Down and Chill, Vol. 2 (2022) [AAC|~315 Kbps] <Lounge, Chill Out, Down
 magnet:?xt=urn:btih:766E09E9BC3EA50AFBD2544F6BF527700EAF8C1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ ViMu Media Player for TV - это гибкий и удобный медиапл�
 ```bash
 magnet:?xt=urn:btih:745AE96B7524D47DC41B9D5D9545A882D0E19478
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ Riddlemaster - Bring The Magik Down (2017) [FLAC|Lossless|tracks + .cue] <Progre
 magnet:?xt=urn:btih:80CE47C3AB7EC833727B5EE1616E4885238A7D89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ Angellore - Errances (2013) [FLAC|Lossless|image + .cue] <Doom Metal, Death Meta
 ```bash
 magnet:?xt=urn:btih:2F3CD3E0ED6321FBC285B35CF9ABF41BC4CF13DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +650,8 @@ Alcatrazz - Take No Prisoners (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:7C0B9BABCA061934457530E5D8601EB2C63FF29D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:7C0B9BABCA061934457530E5D8601EB2C63FF29D
 ```bash
 magnet:?xt=urn:btih:4D1A5711EB1B4E4ED7D34E8FAB99F880A8497DCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:4D1A5711EB1B4E4ED7D34E8FAB99F880A8497DCC
 ```bash
 magnet:?xt=urn:btih:1A261692F72DA7D64C19B0151ED240302EC682EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

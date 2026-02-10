@@ -28,6 +28,8 @@ Perry Como - Legends (2001) [FLAC|Lossless]<Vocal Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ Perry Como - Legends (2001) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:E95028FCE25E7C1A1EEFE3F3F922C45C60146A64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:E95028FCE25E7C1A1EEFE3F3F922C45C60146A64
 magnet:?xt=urn:btih:9C22C323DFAEC1BCC96C9221531BD411A0A11C0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:9C22C323DFAEC1BCC96C9221531BD411A0A11C0E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:9C22C323DFAEC1BCC96C9221531BD411A0A11C0E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:9C22C323DFAEC1BCC96C9221531BD411A0A11C0E
 magnet:?xt=urn:btih:42D5182AB495FB60D578419EE03954C8134DFA8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:42D5182AB495FB60D578419EE03954C8134DFA8B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:42D5182AB495FB60D578419EE03954C8134DFA8B
 magnet:?xt=urn:btih:40E90886419E633364AA306C0889DD180166DF4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Nat Geo Wild: Возвращение дымчатых леопардов / Retur
 ```bash
 magnet:?xt=urn:btih:81F82E3B08EA03CCF836396973EB1D6C48FB40E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ Deep Purple — британская рок-группа, образованна
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ Deep Purple — британская рок-группа, образованна
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ Deep Purple — британская рок-группа, образованна
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +361,8 @@ Tindersticks - The Something Rain (2012) [FLAC|Lossless]<Indie Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +393,8 @@ Super Hits (2002)Жанр: Funk  |Продолжительность: 03:45:24
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +418,8 @@ Super Hits (2002)Жанр: Funk  |Продолжительность: 03:45:24
 ```bash
 magnet:?xt=urn:btih:AD0D7CD661236D5DDEA234AF170B81C4A3600998
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +445,8 @@ magnet:?xt=urn:btih:AD0D7CD661236D5DDEA234AF170B81C4A3600998
 magnet:?xt=urn:btih:7B48130439900CE658FA9457DBEDA33C260F491B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +470,8 @@ Eric Clapton - Live In Hyde Park (2001) DVD9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +497,8 @@ Eric Clapton - Live In Hyde Park (2001) DVD9
 magnet:?xt=urn:btih:FDA0F4A2DEA54F2515785F19D75DBE4C6D9FA6E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +523,8 @@ magnet:?xt=urn:btih:FDA0F4A2DEA54F2515785F19D75DBE4C6D9FA6E3
 magnet:?xt=urn:btih:45833E50BAC1DF50723F0D208EFC9670B5C2A2C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +548,8 @@ magnet:?xt=urn:btih:45833E50BAC1DF50723F0D208EFC9670B5C2A2C2
 ```bash
 magnet:?xt=urn:btih:8B4847663ECFDDEA727695BA511D5E28899D7536
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +576,8 @@ magnet:?xt=urn:btih:8B4847663ECFDDEA727695BA511D5E28899D7536
 magnet:?xt=urn:btih:AA75CC838E34B8885EE215A754D245FF2D6919A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ Kreator - 14 Альбомов (1985-2009) Japan 1-st Press [FLAC|Lossless]<Thras
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +628,8 @@ Kreator - 14 Альбомов (1985-2009) Japan 1-st Press [FLAC|Lossless]<Thras
 magnet:?xt=urn:btih:B8D64920B9F141374559CDCE19DA72506CF3E0CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:B8D64920B9F141374559CDCE19DA72506CF3E0CC
 ```bash
 magnet:?xt=urn:btih:1DC9E8A3B1ABA6FC98F67ED0C79A629E1AD075B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:1DC9E8A3B1ABA6FC98F67ED0C79A629E1AD075B3
 ```bash
 magnet:?xt=urn:btih:61CCDF08150F2B2910D1CBCF30D98852B4BEBC73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +710,8 @@ P.S. RUS + Multi5 - тут как у многих игр есть выбор я�
 ```bash
 magnet:?xt=urn:btih:2ABED86956E6ED36653AB505AC9CD00AB0D6E3C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

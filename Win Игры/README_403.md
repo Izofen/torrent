@@ -1,27 +1,3 @@
-###  Публикация: 1302976   (577993) от 18.05.2019
-
-Mystery Tales 10: The Reel Horror / Загадочные истории 10: Настоящий ужас (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вас вызвали как паранормального детектива, чтобы исследовать призрачную активность в заброшенном кинотеатре. Во время восстановления этого театра, кинотеатр ужасов Себастьяна, архитектор и ее команда исчезли. Как полагают, это вызвано активностью призраков. Познакомьтесь с сумасшедшим, высокомерным призраком Себастьяна Флеминга, директора, который страдает от страха (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC2C9B2B1C9BB459A4B8E1D267B6AE19EBB44C0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 360924   (578293) от 09.07.2011
 
 [Repack] Super Meat Boy [Update 21] (Multi10/+) 2011 | THETA
@@ -42,6 +18,8 @@ Super Meat Boy - это крутой, как яйцо, платформер, г�
 ```bash
 magnet:?xt=urn:btih:2EC864CFA8F8628C9F6F595D4B37561631962FE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +52,8 @@ Bit.Trip Runner - следующая часть из серии Bit.Trip.
 magnet:?xt=urn:btih:A48FA96B42496F89B8C1278AB3FE8E7535C25FFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +77,8 @@ Magic City Detective: Wings Of Revenge / Волшебный Город: На к�
 ```bash
 magnet:?xt=urn:btih:C365371F4644A3F7421D24622A51C83FADC9C75A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +104,8 @@ Dungeons 3 / Dungeons III (2017) [Ru/Multi] (1.6.0/dlc) License PLAZA
 magnet:?xt=urn:btih:244AFC95A916D11DE374194778531FD68A0DB4F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +129,8 @@ Assassin's Creed III Remastered / Assassin's Creed 3 (2019) [RuMulti] (1.0.3/dlc
 ```bash
 magnet:?xt=urn:btih:4B73560CC8242A6ADF38D3512808836F0BD03C3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +156,8 @@ Bubsy: Paws on Fire! (2019) [Multi] (1.0) License SKIDROW
 magnet:?xt=urn:btih:347B7838582A5B383C908CEB41ED204BF0A90AC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +181,8 @@ Shrouded Tales 2: Revenge of Shadows (2015) [En] Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:8A72D8590583B65D8B2A3284D8E98D4FE5641BCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +208,8 @@ Hard Reset Redux (2016) [Ru/Multi] (1.1.3.0) License GOG
 magnet:?xt=urn:btih:B84CF20996789469982C8F6E4A48C1EDB1AE2AFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +233,8 @@ Meridian: Squad 22 является продолжением футуристи�
 ```bash
 magnet:?xt=urn:btih:47A68FAF8096014D3B05BE6FF4DACF575B1139BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +260,8 @@ Eisenhorn: XENOS – приключенческий экшен, основанн
 magnet:?xt=urn:btih:F49E3FF17FBE7330B274E1971B8105F4C1C1D61E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +285,8 @@ CASE: Animatronics (2016) [Ru/Multi] (1.0/u1) License PLAZA
 ```bash
 magnet:?xt=urn:btih:8F19B592FC47E866C632FFE1C7DFFD115D3C023E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +312,8 @@ SNIPER BLACKLIST (2016) [En] (1.0) License PLAZA
 magnet:?xt=urn:btih:5406CF2713C424320DA2186CB70B6050AE8B8940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +337,8 @@ magnet:?xt=urn:btih:5406CF2713C424320DA2186CB70B6050AE8B8940
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +364,8 @@ Tembo The Badass Elephant (2015) [Multi] (1.0) License SKIDROW
 magnet:?xt=urn:btih:3B3AAF984FF3C3018091CA3E2FAC21CA9156F2BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +389,8 @@ Yasai Ninja — игра жанра hack`and`slash, и своеобразная 
 ```bash
 magnet:?xt=urn:btih:72EFA6FAB0E937F6D9742EAE91C565B858FF2BF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +416,8 @@ Banished – городской симулятор, в котором вы уп�
 magnet:?xt=urn:btih:5196273F172F74B43C38F653353F1742F9424CE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +441,8 @@ Imperator: Rome — новейшая масштабная стратегия о�
 ```bash
 magnet:?xt=urn:btih:32BEC703BF0D11D80F0BBC749C90AFE98EBDB462
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +468,8 @@ The Subject (2018) [En] (2.0.3) License PLAZA
 magnet:?xt=urn:btih:DFDBF1EC298A3E1D1533E7591E7B96317D3F1B54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +493,8 @@ Shadwen (2016) [En/Multi] (1.0.0/build 1356/dlc) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:3867800519DDC75DB17C66B56025F5EC8476F9DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +520,8 @@ ________________________________________________________________________________
 ```bash
 magnet:?xt=urn:btih:0DDF60381200D6DCAD3F3E1B21481F802890AAFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +549,8 @@ Orbital Gear — это динамичный шутер, в котором вы 
 magnet:?xt=urn:btih:BBC8D3E83F3A4CBFDDAFFCDF24084D9E84E69613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +574,8 @@ Grim Legends 2: Song of the Dark Swan (2014) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:CD6CF948BF9F4A4BCFCB1C039ECA6AAB530FD114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +601,8 @@ Shadwen, нервная игра о ремесле средневекового 
 magnet:?xt=urn:btih:EBC1829D37E1234C0D082B5BB75F3B289A198E44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +626,8 @@ The Solus Project , захватывающая история выживания
 ```bash
 magnet:?xt=urn:btih:F6A7541A8CF412D57DB48F00DD1876FDF84B779F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +655,34 @@ Badland Bandits – новый шутер в фантастическом мир
 ```bash
 magnet:?xt=urn:btih:BBA962A97AA5D4393D41467EE4A77214E04F787A
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919364   (581698) от 20.07.2015
+
+Star Hammer: The Vanguard Prophecy [Pacth] (2015) (1.0.2) Official RezMar
+
+>>Win Игры
+>>Patch/Tweak/Trainer/Other для Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Данный Update позволяет обновить игру до версии 1.0.2. Исправлен ряд ошибок игры, к тому же улучшены текстуры прорисовки кораблей, и много прочих вкусностей. Приятной игры.Тип издания: Официальный патчРазработчик: Black Lab Games
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423F7397242EE2370B4237FDBC21692B18599E24
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

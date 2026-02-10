@@ -19,6 +19,8 @@ Soul Browser - добротный браузер, что несмотря на �
 magnet:?xt=urn:btih:C83A24239D081F2BB564146E04EDEC84159017BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Jazz Hop #1 (Relaxing Lo-fi Jazzy Chill) (2023) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:DF0D213E6152B4DDDABDE7BB2BC91BA0BDC7753B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:DF0D213E6152B4DDDABDE7BB2BC91BA0BDC7753B
 magnet:?xt=urn:btih:7EAB250009AAE9A3105994D5707EA737BE791D8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:7EAB250009AAE9A3105994D5707EA737BE791D8F
 ```bash
 magnet:?xt=urn:btih:DA2EC5535D8198D171AE68BB27392B212A18FD59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ VA - Sister Bossa Vol. 11 (Cool Jazzy Cuts With A Brazilian Flavour) (2023) [FLA
 magnet:?xt=urn:btih:CD5261E1667D1C49C2095681BEC480288AA24BF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:CD5261E1667D1C49C2095681BEC480288AA24BF7
 magnet:?xt=urn:btih:1661C4AF9D50733A5515BDFE02368A1D64069604
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:1661C4AF9D50733A5515BDFE02368A1D64069604
 ```bash
 magnet:?xt=urn:btih:49EF3339564798E77FCE4EBD1FEE2AF365D55B35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ Big Big Train - Ingenious Devices (2023) [FLAC|Lossless|image + .cue] <Progressi
 magnet:?xt=urn:btih:86863A9A29E18D35D58EB0DE5325F07CF2DDBCDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:86863A9A29E18D35D58EB0DE5325F07CF2DDBCDF
 magnet:?xt=urn:btih:E6F3A76D64C34186E6AAC8CECE618F9DE5714DA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:E6F3A76D64C34186E6AAC8CECE618F9DE5714DA2
 ```bash
 magnet:?xt=urn:btih:5966B9447512310D1797AED85BEA205C961FB8C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:5966B9447512310D1797AED85BEA205C961FB8C9
 ```bash
 magnet:?xt=urn:btih:91B8AC9577B865E44631A2FE29A30F5E9CBF9EDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ Ramsey Lewis - The Beatles Songbook: The Saturday Salon Series, Vol. 1 (2022) St
 magnet:?xt=urn:btih:98A6DE3E7BEBA5F5A22638069C202394DCD89603
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ McCoy Tyner - The Impulse Albums Collection (1961 - 1964) 4CD, 2022, Enlightenme
 magnet:?xt=urn:btih:B53EFF49F67A4BEF3E298F0D00E0A44F6E45A728
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:B53EFF49F67A4BEF3E298F0D00E0A44F6E45A728
 ```bash
 magnet:?xt=urn:btih:5E1FF02FE499E19E131DCCDB468BF3703F62C1F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ Jeff McMillan - I Wish You Would (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 magnet:?xt=urn:btih:5757BCF73729BF2F1A08E4F15EE1C72BCE9F8DCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:5757BCF73729BF2F1A08E4F15EE1C72BCE9F8DCB
 magnet:?xt=urn:btih:5DECA7194233A3ABC2F58AE42F844C38A72EAECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ magnet:?xt=urn:btih:5DECA7194233A3ABC2F58AE42F844C38A72EAECD
 ```bash
 magnet:?xt=urn:btih:F70B6F7C78591F501C81D9427901D3D45C681C4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +491,8 @@ VA - Chilly Ambient Smooth Operator Jazz Lounge Playlist (2023) [FLAC|Lossless|W
 magnet:?xt=urn:btih:3DF9AA9B5CDEB7FB8AAD5EBB827D89CC645FB46D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +520,8 @@ magnet:?xt=urn:btih:3DF9AA9B5CDEB7FB8AAD5EBB827D89CC645FB46D
 magnet:?xt=urn:btih:85E2EF5B5106A85961C69120398143B46155D9DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:85E2EF5B5106A85961C69120398143B46155D9DF
 ```bash
 magnet:?xt=urn:btih:FCC190FCAE092CE378C5E2E8735C38FBE3587AAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +575,8 @@ The Woodleigh Research Facility - Phonox Nights (2023) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:E1B0085E95E18A627CB580BC64045A6A45410EDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ magnet:?xt=urn:btih:E1B0085E95E18A627CB580BC64045A6A45410EDF
 ```bash
 magnet:?xt=urn:btih:0E001E16D59BA2B0343D769F157265F13FB1BF5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:0E001E16D59BA2B0343D769F157265F13FB1BF5D
 ```bash
 magnet:?xt=urn:btih:1F44AC7B3E4874F252FE95CC2268C7712294CE94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ Alison Goldfrapp - The Love Reinvention (2023) [FLAC|Lossless|WEB-DL|tracks] <In
 magnet:?xt=urn:btih:B6EB41CCE1ED55D8F87516EA13971C5395CBC2CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ Soul Browser - добротный браузер, что несмотря на �
 ```bash
 magnet:?xt=urn:btih:44A4DD3991D0BE0C3CE0BEA773F6F2B251C74CD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +709,8 @@ magnet:?xt=urn:btih:44A4DD3991D0BE0C3CE0BEA773F6F2B251C74CD3
 ```bash
 magnet:?xt=urn:btih:38C56703C629B0B60F50C44B11C55889DB25AB91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

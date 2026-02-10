@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D82A1ED2778E399FF820FD675E2092D1D0EA456A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dungeon Golf, объединяющая мини-гольф и подземель
 ```bash
 magnet:?xt=urn:btih:BDA18E6BB32E2DCFE5D3778F5A5D39DB9B216740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:BDA18E6BB32E2DCFE5D3778F5A5D39DB9B216740
 magnet:?xt=urn:btih:8B131E9A0D2915B166D30164A0BA11C2834388CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Total PDF Converter - преобразовывает PDF в RTF, Doc, Excel, HTM
 ```bash
 magnet:?xt=urn:btih:B2F53EDBC7F93722EDADC30DB674E9FEBC85A984
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Microsoft Visual Studio Professional 2019 - полный набор инстру
 magnet:?xt=urn:btih:25141D73B7B4ED1F29C998BAA1620DF4EA9E0C1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:25141D73B7B4ED1F29C998BAA1620DF4EA9E0C1B
 ```bash
 magnet:?xt=urn:btih:B020D053F24618803C70BAC3360A37AF2BB92C9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:B020D053F24618803C70BAC3360A37AF2BB92C9F
 magnet:?xt=urn:btih:24B866CF67DE82B6812B84D38FDA0F5A6352EA5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:24B866CF67DE82B6812B84D38FDA0F5A6352EA5F
 ```bash
 magnet:?xt=urn:btih:AC4360E9E8EE24AAFB569E5CB34882A61CC5D8BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:AC4360E9E8EE24AAFB569E5CB34882A61CC5D8BF
 magnet:?xt=urn:btih:CB2E29DA940501AFC47689D0DA2E2B2A528DE32B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Stellarium – бесплатный эмулятор звездного неба
 ```bash
 magnet:?xt=urn:btih:2D293F683CED17D5F37C3D751FB033A5BAA5FE6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:2D293F683CED17D5F37C3D751FB033A5BAA5FE6B
 magnet:?xt=urn:btih:C1C015B3420589B8E8025D17EF1680B56C4E5F03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:C1C015B3420589B8E8025D17EF1680B56C4E5F03
 ```bash
 magnet:?xt=urn:btih:4C2591C0F7ECFB270B401AFF0366A8D5E5F4227A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:4C2591C0F7ECFB270B401AFF0366A8D5E5F4227A
 magnet:?xt=urn:btih:8074775A8D83881372BBF6AC4871A6A22EB042FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:8074775A8D83881372BBF6AC4871A6A22EB042FC
 ```bash
 magnet:?xt=urn:btih:F0EA94B13777D4336C689521FFC0C113DFC6AEB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:F0EA94B13777D4336C689521FFC0C113DFC6AEB1
 magnet:?xt=urn:btih:690D6A8B247AA0376FD8F26097A35FF42009AF68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:690D6A8B247AA0376FD8F26097A35FF42009AF68
 ```bash
 magnet:?xt=urn:btih:14A29D68BE67F9D40426EFDA3E635DDC912368EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:14A29D68BE67F9D40426EFDA3E635DDC912368EE
 magnet:?xt=urn:btih:8D7365652E949EC9926B8037497E550F0D75F351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:8D7365652E949EC9926B8037497E550F0D75F351
 ```bash
 magnet:?xt=urn:btih:C5426C04B968FAAB56B42D51CD17B2362DDCF3A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:C5426C04B968FAAB56B42D51CD17B2362DDCF3A1
 magnet:?xt=urn:btih:FF9F7D5ED0A0E1AE7BF6E6ED225C0AEBD94E0B71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:FF9F7D5ED0A0E1AE7BF6E6ED225C0AEBD94E0B71
 magnet:?xt=urn:btih:BEDAABA0240EC6E5B2D141A32E7934B01EA6250A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Garmin: AnaDigit Map 6.41 (Greek Anavasi TopoNavigator) [En]
 ```bash
 magnet:?xt=urn:btih:072BC30E4E3DDAE80AA836A35587B0C2BB88F67F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Privatus - это простое приложение для удаления н
 magnet:?xt=urn:btih:E07189A4FAC0AB1BA2757EDCD36D7F4CC527BB1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:E07189A4FAC0AB1BA2757EDCD36D7F4CC527BB1A
 magnet:?xt=urn:btih:F2B77D7B716D6ABD9114EA3F90B65A6FB9483C45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:F2B77D7B716D6ABD9114EA3F90B65A6FB9483C45
 ```bash
 magnet:?xt=urn:btih:2784DB3F35E9CA5B91543B8FEE2915A8290B40DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:2784DB3F35E9CA5B91543B8FEE2915A8290B40DC
 magnet:?xt=urn:btih:E05FD0530DE039633517090066AA4681568DDD33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ DJ Skydreamer - Happy Hardcore (2005) Монолит [APE|image+.cue] <Hardcore>
 ```bash
 magnet:?xt=urn:btih:C2E0FEC1274572C62468601D17291C8A7F29BD46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

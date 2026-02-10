@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:AC1C8D8C29B8D4B28C49AFC9A35F0392165F7809
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Музыкальный телетайп 2 (1987) [FLAC 24/192|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:2BD7B0717C88D51D53C900667CA0D6A8730BF198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Парад ансамблей (3) (1985) [FLAC 24/192|Lossless|tracks] <Pop
 magnet:?xt=urn:btih:362FEC8518B298EFCCBD0863A8736D22758C888E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Room Arranger - программа специально предназначен
 ```bash
 magnet:?xt=urn:btih:608A38B4CDF3D15F6B0453F6FF81971B70DB00E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Subtitle Edit - редактор субтитров. При помощи это�
 magnet:?xt=urn:btih:4A0D640CADE5911380636A85A5B5C0067B3A0DD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:4A0D640CADE5911380636A85A5B5C0067B3A0DD9
 ```bash
 magnet:?xt=urn:btih:769C8BF42AA54D2EA30DED2EFC548DB09BBDD35A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:769C8BF42AA54D2EA30DED2EFC548DB09BBDD35A
 magnet:?xt=urn:btih:CCA6E47BDAF3884FD32A862B5CDABCD016CEF9D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:CCA6E47BDAF3884FD32A862B5CDABCD016CEF9D8
 magnet:?xt=urn:btih:37F7363EB42096BEFFF4C2E5A3ADF2D147D550CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:37F7363EB42096BEFFF4C2E5A3ADF2D147D550CD
 ```bash
 magnet:?xt=urn:btih:D46D3B61AB26FCDB10DFE933D39B8CBA259EAA19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:D46D3B61AB26FCDB10DFE933D39B8CBA259EAA19
 magnet:?xt=urn:btih:89988F66EF98BB99BDA2B88EF69A0B134845678F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:89988F66EF98BB99BDA2B88EF69A0B134845678F
 ```bash
 magnet:?xt=urn:btih:3EC7E97623DB9A57EFEAD922637038485E56DDED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:3EC7E97623DB9A57EFEAD922637038485E56DDED
 magnet:?xt=urn:btih:C3F986E75A1993B324AD9A3D3A638918C8ABA4F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:C3F986E75A1993B324AD9A3D3A638918C8ABA4F5
 magnet:?xt=urn:btih:CC641C57B76124056BBD1F4AA84DA291087FAD80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:CC641C57B76124056BBD1F4AA84DA291087FAD80
 ```bash
 magnet:?xt=urn:btih:59D0DD5B54D6E0A3C70086D2237A8E93C7A43DF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Depeche Mode - The Singles 81-85 (1985) 1st German Press [APE|Lossless|image + .
 magnet:?xt=urn:btih:318C57ADC31B82B717301C704F8B3CE0CC026E78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:318C57ADC31B82B717301C704F8B3CE0CC026E78
 magnet:?xt=urn:btih:D5F6B5A3CF0C3F6C08F42213DE8DE3217DDCA79B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ YT Saver Video Downloader & Converter for Mac 7.4.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:3EEE07AC2165597923CA3877E72B6378D6658C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ VA - Мелодии в танцевальных ритмах (1972) [FLAC 24/192
 magnet:?xt=urn:btih:6B39B57FA8CCA2C0FF097955D5144BD84C4A91B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ Simply Piano - это одно из лучших приложений для о�
 ```bash
 magnet:?xt=urn:btih:6452A392DAC3A166DD7CD40C491869AE0F08221C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ Picsart AI Photo Editor, Video v24.5.4 Final Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:F3FC8B2434B04A51463A52703B694081EC4AE94F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:F3FC8B2434B04A51463A52703B694081EC4AE94F
 ```bash
 magnet:?xt=urn:btih:B70FEFF7B2C6CAFC83767B2B2576F9B8A7C81C7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:B70FEFF7B2C6CAFC83767B2B2576F9B8A7C81C7A
 magnet:?xt=urn:btih:18545C045E3F38A729854CFEA0D343D07F66742F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:60E440E51CD8C9AD7408FEA539D187A81618DF05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:60E440E51CD8C9AD7408FEA539D187A81618DF05
 magnet:?xt=urn:btih:28263CA6BC668A931E0945609FB991C87E473446
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:28263CA6BC668A931E0945609FB991C87E473446
 magnet:?xt=urn:btih:A18D628B0C4A97D3D0525E4A7685FFAF9F50A158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:A35E9310188B84F7702FEF36ECC140B3C6D53523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

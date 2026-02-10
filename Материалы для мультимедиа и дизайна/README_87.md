@@ -20,6 +20,8 @@ Correction Brush - это шрифт с ручной росписью, кото�
 magnet:?xt=urn:btih:5A580A9721932434D4B88CE63149E82D2B95F3AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:5A580A9721932434D4B88CE63149E82D2B95F3AB
 ```bash
 magnet:?xt=urn:btih:B75E37C23CCE65B87C9CB4CEBE76BD1EFF9B5F75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:B75E37C23CCE65B87C9CB4CEBE76BD1EFF9B5F75
 magnet:?xt=urn:btih:913DE614D50BC442B427C3C62EC71AA02ADAAF17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:913DE614D50BC442B427C3C62EC71AA02ADAAF17
 ```bash
 magnet:?xt=urn:btih:850EB28FDFF30B89CBBF7CE84DE2042EB92ED2E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:850EB28FDFF30B89CBBF7CE84DE2042EB92ED2E1
 magnet:?xt=urn:btih:D17A6465B56579B6CB3A0A861E32CBF513FF9F7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:D17A6465B56579B6CB3A0A861E32CBF513FF9F7C
 ```bash
 magnet:?xt=urn:btih:00D6EA2A6B0489266DD9EA13AD69863FA0104C79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Piazzolla обладает характерным голосом, который
 magnet:?xt=urn:btih:BFF9A90A384414A968FAF1330BCC2B26D3E7CE88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Segment A - это мощное отображаемое семейство шр
 ```bash
 magnet:?xt=urn:btih:B175396F8773971B164D5690A3AD9B4A231349EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:B175396F8773971B164D5690A3AD9B4A231349EF
 magnet:?xt=urn:btih:1A2FE13AC37766CCFAB06BFDEFB7EB78F43C9E74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Ice Cream – это продукт заброшенной концепции ш
 ```bash
 magnet:?xt=urn:btih:5776FFBBEE9B8DE64D29ED4F1339225ECF5328DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:5776FFBBEE9B8DE64D29ED4F1339225ECF5328DE
 magnet:?xt=urn:btih:4294B6C13A237FD1E58C0B3623D9A89255666C54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:4294B6C13A237FD1E58C0B3623D9A89255666C54
 magnet:?xt=urn:btih:311661AF33A976B21310A25AF9DD332F8412647D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Burlesk — это современное семейство шрифтов, б�
 ```bash
 magnet:?xt=urn:btih:80464013BF57092905210BC86F362145F6468740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Dazed and Condensed - это модульный гротескный шрифт,
 magnet:?xt=urn:btih:0435B486AF93A8F7D0138A5F9756B1A02000A611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:0435B486AF93A8F7D0138A5F9756B1A02000A611
 ```bash
 magnet:?xt=urn:btih:9C46948523B9582C82C81A1EF6757F8E4A6BD2A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ WAV (4608 kbps, 24 bit, stereo, 96 kHz)
 magnet:?xt=urn:btih:7512BACA8BEB3376D7FBD747B55EDA4A5F5F582F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Astra — это изысканный геометрический шрифт б
 ```bash
 magnet:?xt=urn:btih:C78CB2956A4217304F5D1F72F61E944B72D4FD80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:C78CB2956A4217304F5D1F72F61E944B72D4FD80
 ```bash
 magnet:?xt=urn:btih:F0BE245C86B0A264D9F3ACD21F53A6F1BBC83CC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Thriftly UI Kit подходит и легко настраивается в с�
 magnet:?xt=urn:btih:7D11E8364F4552B5D0547C92F53358308AD1FCEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Zariantz Book — универсальный гротескный шрифт с 
 ```bash
 magnet:?xt=urn:btih:781F22980A7E698BA7F3C1168D1D679F21F9809D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:781F22980A7E698BA7F3C1168D1D679F21F9809D
 magnet:?xt=urn:btih:67F04771C0C4E2B3DA557B3073CFEBB229D97D08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:67F04771C0C4E2B3DA557B3073CFEBB229D97D08
 ```bash
 magnet:?xt=urn:btih:51FE6921409887235775F9288E09F9E4A81E0815
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:51FE6921409887235775F9288E09F9E4A81E0815
 magnet:?xt=urn:btih:772532BF12722512433AAAFC3C106B3EABF5A8B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:772532BF12722512433AAAFC3C106B3EABF5A8B6
 ```bash
 magnet:?xt=urn:btih:78E62DE17F3046AD5C67EB02BA0E6629D3F99A4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:78E62DE17F3046AD5C67EB02BA0E6629D3F99A4B
 magnet:?xt=urn:btih:705BD37C4045597F63E7388EC25153FF070B4D3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:705BD37C4045597F63E7388EC25153FF070B4D3A
 ```bash
 magnet:?xt=urn:btih:BBB0578CAAA534B15366F7907324037F930AB5E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

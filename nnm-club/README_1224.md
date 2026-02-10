@@ -19,6 +19,8 @@ Franzis ANALOG Professional — это высококачественное пр
 magnet:?xt=urn:btih:D52BDE0AF82A7E71CD4A1A319542ACD2380D603C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D52BDE0AF82A7E71CD4A1A319542ACD2380D603C
 ```bash
 magnet:?xt=urn:btih:62F0F3C1FD5846FA9FF2B9CB68605B251C177FD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:62F0F3C1FD5846FA9FF2B9CB68605B251C177FD6
 magnet:?xt=urn:btih:D3ECE502689BBDFD1C481E1D36FB2919168C04FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Monster Jam Steel Titans (2019) [Ru/Multi] (1.1a/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:F2CEF6A7658BB98FC412CC88E8973709BC46C0B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:F2CEF6A7658BB98FC412CC88E8973709BC46C0B8
 magnet:?xt=urn:btih:42BEBD8DA87941575CAA4DD4C2696487ACF1702B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ ExtraDisks - это набор инструментов для создания 
 ```bash
 magnet:?xt=urn:btih:EB442665E492DADAD3098458A0E4B40F85CCF3B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:EB442665E492DADAD3098458A0E4B40F85CCF3B7
 magnet:?xt=urn:btih:1BF654568BA9AE3F0F7C30B3DF10E58D7D7E645D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Penny’s Big Breakaway (2024) [Ru/Multi] (1.2.20240313) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:7FF8CA957313E63CB1BD3B19823C000EB0607FCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:7FF8CA957313E63CB1BD3B19823C000EB0607FCD
 magnet:?xt=urn:btih:1B8E8223C73A41CFD16AECDF4D8ABDC23B67ACD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:1B8E8223C73A41CFD16AECDF4D8ABDC23B67ACD0
 ```bash
 magnet:?xt=urn:btih:929913092A8F56F10B55F77A3CA5A1A0E75F65DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:680C798A7CC4C422A0DB238ABD0B0E5CB9A39F13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Finding Frankie (2024) [Ru/Multi] (Build 16260850) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2D18EF68A1232918D91ED5A2934BD575FBE95B92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Alias v1.5.9 Mod by Dymonyxx [Ru/Multi]
 magnet:?xt=urn:btih:5E23A70CC8F3972409EE5B324CE618A40507A70C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:5E23A70CC8F3972409EE5B324CE618A40507A70C
 magnet:?xt=urn:btih:7B3F73B2842EB7E97A512833A4A4EF0B6D6E49B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Jigsawscapes® - Пазлы v3.6.10 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:76CA9C144B13059EB1D1EA61B69729A102DEBEE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Cowboy 3030 (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:1A5797427295D9DE74DBF11DDD73CAE0DC6AA69B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:1A5797427295D9DE74DBF11DDD73CAE0DC6AA69B
 ```bash
 magnet:?xt=urn:btih:499148D95E86A3BF6174B0FA065787C8858B4510
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:499148D95E86A3BF6174B0FA065787C8858B4510
 magnet:?xt=urn:btih:8541E6721A248129C7E57C71CD00EBF3BDA05C19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:8541E6721A248129C7E57C71CD00EBF3BDA05C19
 ```bash
 magnet:?xt=urn:btih:AB43283ED529517266BD5F92C3E335C96F9E7623
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:AB43283ED529517266BD5F92C3E335C96F9E7623
 magnet:?xt=urn:btih:605529480A8D8660B7B788C24A5917C89663503A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ IPTV Pro v9.0.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5144C3B312806210A1CB9CA49A42943D14A0C773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:5144C3B312806210A1CB9CA49A42943D14A0C773
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:5144C3B312806210A1CB9CA49A42943D14A0C773
 ```bash
 magnet:?xt=urn:btih:9A85A56C00833B2A6BD8D07EC643E1FAA21EF021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:9A85A56C00833B2A6BD8D07EC643E1FAA21EF021
 magnet:?xt=urn:btih:D5787BB8041C25FCD5AEB7A53F99080370B0CE48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:D5787BB8041C25FCD5AEB7A53F99080370B0CE48
 magnet:?xt=urn:btih:6668A682595F918CDE279F8E11BE249C659460D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:6668A682595F918CDE279F8E11BE249C659460D7
 ```bash
 magnet:?xt=urn:btih:26D221D24D4DB9B98664899875D7813A49693DB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

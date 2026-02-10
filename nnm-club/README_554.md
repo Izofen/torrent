@@ -22,6 +22,8 @@ Metallica - Load (1996) Remastered, 2025, UMC (Universal Music Catalogue) [MP3|3
 magnet:?xt=urn:btih:0F7ADBF9388225397E3EA3D6172E2AD18DDF6423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Metallica - Load (1996) Remastered, 2025, UMC (Universal Music Catalogue) [FLAC 
 magnet:?xt=urn:btih:C8F2F5551C1A03370C9934B009A61AB09AEB8037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ VA - Magical Pop (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:F519FA24B15071BA227008504369E88E98AD8D48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:F519FA24B15071BA227008504369E88E98AD8D48
 ```bash
 magnet:?xt=urn:btih:7789D2F804206F04BB4B204EC12AB392CC5C68A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:7789D2F804206F04BB4B204EC12AB392CC5C68A1
 magnet:?xt=urn:btih:C143142F18D3A152274A9C90835883850C0B1966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:C143142F18D3A152274A9C90835883850C0B1966
 ```bash
 magnet:?xt=urn:btih:423D318CF443D0F1D04F5F627742AED61F9E98A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:423D318CF443D0F1D04F5F627742AED61F9E98A4
 magnet:?xt=urn:btih:10379FE12409126CED2CC1A377196EC0E9243C68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:10379FE12409126CED2CC1A377196EC0E9243C68
 ```bash
 magnet:?xt=urn:btih:BF861FB9AD157044748BB899405C92CB86BCF06A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Saxon - Eagles Over Hellfest (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:DB7BE273087E7D4CEC6647BDECD219FDFD9F3DF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Wildheart - Wild 'N Three (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:0719664311DF06B192C5F4E06AB49CE025743D42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Queen - Epic (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-
 magnet:?xt=urn:btih:EB3BDECFA034741E7E957D9728B23109E5840B01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ Minimal Audio - Effect Bundle 2025.6.12 VST, VST 3, AAX Repack by TCD [En]
 magnet:?xt=urn:btih:E46146CAC5C67C2C899230B23371B7668D680158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:E46146CAC5C67C2C899230B23371B7668D680158
 ```bash
 magnet:?xt=urn:btih:1EAE2ECBACD59F89AF34DC4A31B7C0733C45ACC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:1EAE2ECBACD59F89AF34DC4A31B7C0733C45ACC4
 magnet:?xt=urn:btih:93E403D921A1DC91DD711AB362FE68474463753D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:93E403D921A1DC91DD711AB362FE68474463753D
 ```bash
 magnet:?xt=urn:btih:76E694DDAD8DBDCC40D6FF7FF112E16C6CE72B09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ Solid Explorer - это приложение для управления фай�
 magnet:?xt=urn:btih:88CE175946253C5633AF1E6B7686FA184BC28C15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:88CE175946253C5633AF1E6B7686FA184BC28C15
 ```bash
 magnet:?xt=urn:btih:819FD5B6B751A666A454EBB67CBC1B6B38D87C22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:819FD5B6B751A666A454EBB67CBC1B6B38D87C22
 magnet:?xt=urn:btih:83B98E26229016A57BAA952AB922F6B7636750DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:83B98E26229016A57BAA952AB922F6B7636750DF
 ```bash
 magnet:?xt=urn:btih:1D78F4D66C0C50E6D323E22C2E6429E635151F9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ Mind Echoes 2: Remnants of the Past / Эхо разума 2: Отголоски 
 magnet:?xt=urn:btih:8C61D6CFFD70B539B0E1B00E8D59C927CD802D8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:8C61D6CFFD70B539B0E1B00E8D59C927CD802D8C
 ```bash
 magnet:?xt=urn:btih:A45E64F689075961675EE4D5EEB0A8C426470F87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:A45E64F689075961675EE4D5EEB0A8C426470F87
 magnet:?xt=urn:btih:C25E0964767E8EC829EE28A81D74EAC81FBA661A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:C25E0964767E8EC829EE28A81D74EAC81FBA661A
 magnet:?xt=urn:btih:1F54485DB9235BEEE7B05C2317283E791E9B682D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:C8AA1F19493174A1577BFC683F69B5D7D918172B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ Looky — это элегантный и всеобъемлющий UI Kit, ра
 magnet:?xt=urn:btih:6E11B5A20AEB0B5897E55470CA13C75B93A0104A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:6E11B5A20AEB0B5897E55470CA13C75B93A0104A
 ```bash
 magnet:?xt=urn:btih:C75DE62BBCC60184980D5F91DCE4DAACB9677834
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

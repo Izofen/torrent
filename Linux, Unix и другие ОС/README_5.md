@@ -19,6 +19,8 @@ Debian GNU/Linux 11.2.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 magnet:?xt=urn:btih:B3114F34782C532FF6EBA6AF2CB2E20B97557973
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:B3114F34782C532FF6EBA6AF2CB2E20B97557973
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Cyborg Hawk - Linux дистрибутив, в состав которого в�
 magnet:?xt=urn:btih:1A11B5B9EF9A22C2BA921E6EA689B1303CF4DA96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Whonix - дистрибутив Linux на основе Debian, ранее из�
 ```bash
 magnet:?xt=urn:btih:47F17FB2B5A1C1EE9F011F13D8325C140A798B37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Kali Linux 2022.4 [amd64, i386, arm64] 8xDVD, 3xCD
 magnet:?xt=urn:btih:E3FF8A584543E4156324FDF38C455CBEF52ED974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Debian GNU/Linux 11.6.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 ```bash
 magnet:?xt=urn:btih:63F78740458A9F360715EA5EBD10433122B4D166
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Debian Edu, также известный как Skolelinux, является д
 magnet:?xt=urn:btih:C931FA9DDEE93A131D8B128034597678193B138F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Debian GNU/Linux 11.6.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 ```bash
 magnet:?xt=urn:btih:A53FC97489671F363C2C58351B73188EEA7ABDD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ CentOS 8.3 (2011) [amd64] 1xDVD, 1xCD
 magnet:?xt=urn:btih:C74F445DD8E201C83B27F6DA89DEF64E0EC4EA55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ BackBox Linux 8 [Аудит безопасности, хакинг] 1xDVD [amd64
 magnet:?xt=urn:btih:21453AB67034650239B4A2A2306EA91EE7232AA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ BlackArch Linux — специализированной Live модификац
 ```bash
 magnet:?xt=urn:btih:BAA9690E031413E152B1D3C2A13E5E07A11C9FD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Debian GNU/Linux 10.7.0 + nonfree Buster [amd64] 4xDVD
 magnet:?xt=urn:btih:ED9FF2508F0E5598A7B0DFB2785D2712D8D66754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Debian Edu, также известный как Skolelinux, является д
 ```bash
 magnet:?xt=urn:btih:8B9031B8B34BC29983163B1356816B3905BDB883
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Debian GNU/Linux 10.7.0 + nonfree Buster [i386] 4xDVD
 magnet:?xt=urn:btih:C1A3A4940F916DC4E504751543DD3C9F00030CFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Kali Linux 2023.3 [amd64, i386, arm64] 11xDVD
 ```bash
 magnet:?xt=urn:btih:84A50043B9F64FBD5AD32310A80EBA5A370FDAA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ BlackArch Linux 2020.12.01 [Хакинг, аудит, безопасность] 
 magnet:?xt=urn:btih:EBB53589EF9F3E591ACB555AAEB856580C13F8B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ KingStation - универсальный фронтенд для множест�
 ```bash
 magnet:?xt=urn:btih:811A97928771197F6CC0BFA006F99A33694F3DE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ SystemRescue - восстановительный диск, основанный
 magnet:?xt=urn:btih:EBD94367D527F4AAF2996AFD32910C6D3C507BA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Athena OS amd64 [Хакинг, аудит, безопасность] 22.11.04 [a
 ```bash
 magnet:?xt=urn:btih:9FF33E3988F31CDFC917A96D7AB2B3015BB7C0FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Mageia 9 [x86-64] 4xDVD
 magnet:?xt=urn:btih:D87CEF7605F501C07AE033089FC52EC2344B2EFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Mageia 9 [i586] 2xDVD
 ```bash
 magnet:?xt=urn:btih:4DF62B644A9693F94148643619C01FDA31B456AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ AltLinux 8 СП [amd64] 3xDVD
 magnet:?xt=urn:btih:891552B57EA36117B9FB3FB12BD05E2DA7512E9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Kali Linux 2023.2 [amd64, i386, arm64] 8xDVD, 3xCD
 ```bash
 magnet:?xt=urn:btih:272EF1FF7E4130FC541624AE5CC42E764C495792
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Ubuntu*Pack 20.04 Budgie (май 2023) [amd64] 1xDVD
 magnet:?xt=urn:btih:B7284B450A1A2FA9CDC3A8F4158824950E91394D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Ubuntu*Pack 20.04 Cinnamon (май 2023) [amd64] 1xDVD
 magnet:?xt=urn:btih:537A6C6EBCA7022AC37F88B59023680E045BB064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Ubuntu*Pack 20.04 GNOME (май 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:9B5D53AE5EBD66D4BFEAA5FB42CE1FAB84B1F964
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

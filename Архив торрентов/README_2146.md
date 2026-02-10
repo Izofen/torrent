@@ -22,6 +22,8 @@ Luca De Maas - The Journey (2017) [FLAC|Lossless|tracks] <Trance>
 magnet:?xt=urn:btih:670E8E63CF00C9A5FF3D29D50F7F999A245A1A26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ YouTube Downloader - простая и легкая в использовани�
 magnet:?xt=urn:btih:4BD4C849438502E13EFE3977DAEEC6D92631E675
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:BA1E52E846B323A776FE54731495C8C123C60A9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Tweetbot - клиент Twitter для Mac. Этот полнофункцион�
 magnet:?xt=urn:btih:1EF60593C3FD00F9191FE3ECA1604BF229C93D1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ GoldWave — звуковой редактор который легко про�
 magnet:?xt=urn:btih:0C4EED976F3788F57773AE6849F5DC098A6C3297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ MacX Video Converter Pro — приложение, которое автомат
 ```bash
 magnet:?xt=urn:btih:EC7D70C435D1CD29A3CBA280561489CDE2D5A95A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:EC7D70C435D1CD29A3CBA280561489CDE2D5A95A
 magnet:?xt=urn:btih:F99077A1293C5290F0F5DFFBBFBD57A533D43174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:EB3DAED287088B5CA1E8ACA373FAEBDCBC856944
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ DeskCover это простое Мак-приложение, которое по
 magnet:?xt=urn:btih:55728900EEF6D70C48455889975781E964B851E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ WiFi Scanner 2.9.4 [En]
 ```bash
 magnet:?xt=urn:btih:4CE3E46AB701AB1B0A4C97696DCA475BE6ED89BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Big Mean Folder Machine - интересное приложение, предн�
 magnet:?xt=urn:btih:B51EF9F63A9E55DEFBEEA806B626152165F866FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:B51EF9F63A9E55DEFBEEA806B626152165F866FF
 magnet:?xt=urn:btih:815CD8EB780950A7732A5A697948B9A721544D12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:815CD8EB780950A7732A5A697948B9A721544D12
 ```bash
 magnet:?xt=urn:btih:531C4067BF420A14028817DC0AA16176EA8F311A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ Al Stewart - Orange / Past, Present & Future / Modern Times (2004) 2CD Set [FLAC
 magnet:?xt=urn:btih:33F9EC243B848CCDA7EAD6B3E78C6EAC94FFFAB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ magnet:?xt=urn:btih:33F9EC243B848CCDA7EAD6B3E78C6EAC94FFFAB9
 magnet:?xt=urn:btih:21F5EDD5A83CEBAD1CCDDB0642FBE8E83D1C5383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:21F5EDD5A83CEBAD1CCDDB0642FBE8E83D1C5383
 magnet:?xt=urn:btih:2CEF610A2F8760B3FF8769E499B740731A7C7D34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:2CEF610A2F8760B3FF8769E499B740731A7C7D34
 ```bash
 magnet:?xt=urn:btih:43383A2174067408943C39A8A36F111B1D5D7E82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ Rafau Etamski - Remember To Forget (2015) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:1B975FAF8EC0B513B2F6B1A11B973015F00CC76E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ Kinza Browser - японский браузер на базе Chromium с доп
 ```bash
 magnet:?xt=urn:btih:3B76D25C9F1FF0DA97CB742E342AC20B55DD9F47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ Privacy Eraser Free 4.30.2 Build 2415 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:D3D8B1C783537E0E8D8AA94BB7F3EDE65A45AE7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ Yesterday / Yesterday (2019) BDRip [H.264/720p]
 magnet:?xt=urn:btih:A2E717CEC6292ABD14F8A4669663F92C5A711293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ Noise Machine - это генератор белого шума и звуков�
 ```bash
 magnet:?xt=urn:btih:D7CDCD9D2A3D45B667DD27B10632A60B0A16731A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ Steve Hauschildt - Nonlin (2019) Ghostly International [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:49BD707D4AADF477EC8FB9E44281FD744E10746A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ Airmail – это почтовый клиент для операционной
 ```bash
 magnet:?xt=urn:btih:2463CD474CC4227A02A37CD28CE080E048809B5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ Matthew Collings - Uzonia (2019) Denovali Records [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:216EA0F11FF6B5E1B130DD266E545C9EEB8A6F6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ Q-Dir позволяет получать быстрый доступ к час�
 ```bash
 magnet:?xt=urn:btih:DE1E9D81E98ECA194B65A4E7DFB2F70BD4CBA8F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

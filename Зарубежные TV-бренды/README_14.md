@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3E0459B0816868234186620311C187AE3D6BA516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:3E0459B0816868234186620311C187AE3D6BA516
 ```bash
 magnet:?xt=urn:btih:92E57A8708442E7811B575619E583F5931B19BED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NGW: Море теней / Sea of Shadows (2019) HDTV [H.264/1080i-LQ]
 magnet:?xt=urn:btih:A18B3132A6CCE06528D3F46A467F3900A84C4C1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:A18B3132A6CCE06528D3F46A467F3900A84C4C1B
 ```bash
 magnet:?xt=urn:btih:8761FA6C3F836DE991AE7B2C31C27641EE958F84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DLRip [H.
 magnet:?xt=urn:btih:D254DD918B76FD3322B24B140D69C02A13D47B65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:D254DD918B76FD3322B24B140D69C02A13D47B65
 magnet:?xt=urn:btih:9594617139E09CFD299C210AFFC4FC89E9F6DD88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ NGW: Дикая природа Великобритании / Wild Great Britain
 ```bash
 magnet:?xt=urn:btih:45CE6C9620171146F54FE84D900F52B104AFB3A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ NGW: Дикие места Африки. Величайшие архитекто
 magnet:?xt=urn:btih:D6B59B5E91D674B153A5523AEDA76F1219D594D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Discovery: Разрушители легенд / MythBusters (2015) SATRip  (с�
 ```bash
 magnet:?xt=urn:btih:87C1F622705AC80ED804BB6D61B5C632398F1260
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:87C1F622705AC80ED804BB6D61B5C632398F1260
 magnet:?xt=urn:btih:4859A7AA2197F7B5E5874941C444FC487F744548
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ NG. Великолепные лошади / The Noble Horse (1999) DVDRip
 ```bash
 magnet:?xt=urn:btih:2DD51BB26EB79B65079844EE505DE0AC5C1619E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 magnet:?xt=urn:btih:D19513FBB466C3E2B096FAF8DD5BDCAF8D3883E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Nat Geo Wild: Дикая Австралия / Wild Australia [серии 1-4 и�
 ```bash
 magnet:?xt=urn:btih:47A48FF1EA4E4F7FD7401961C25B557CC0522FC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:47A48FF1EA4E4F7FD7401961C25B557CC0522FC6
 magnet:?xt=urn:btih:263335B8BE4DA267461109D854146C9BDCEC675B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:263335B8BE4DA267461109D854146C9BDCEC675B
 ```bash
 magnet:?xt=urn:btih:5A8EEADD41A7287B0762E0268B0B59A8249F39DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:5A8EEADD41A7287B0762E0268B0B59A8249F39DB
 magnet:?xt=urn:btih:E7038F5F3AD89523430D7D108F73FD3A19632019
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ BBC. Замёрзшая планета 2 / Frozen Planet II (2022) WEB-DLRip [H.
 ```bash
 magnet:?xt=urn:btih:72F44D0E1014D9DE640195568063946DCEF85A0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 magnet:?xt=urn:btih:B4130636A615EF2DB3939404449A4E937DF7D9B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:B4130636A615EF2DB3939404449A4E937DF7D9B7
 ```bash
 magnet:?xt=urn:btih:1741D90F294DC40D9E3409B13211906A49AEC93C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 magnet:?xt=urn:btih:44DAB50F76799569D1F0C5E4FCCC00C1DBF2CAB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ NG: Добро пожаловать на Землю / Welcome to Earth (2021) WE
 ```bash
 magnet:?xt=urn:btih:1432FD0AE767860239B1704855C0A7632AAEB486
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ NG. Экстремальное путешествие: Вторая мирова
 magnet:?xt=urn:btih:E9AC95411556847E3855AF2D3C9DF62FD6CFEF36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:E9AC95411556847E3855AF2D3C9DF62FD6CFEF36
 ```bash
 magnet:?xt=urn:btih:B40A653493DB7720C95D87738D8F9FE5D5A3A17F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Discovery. Насекомые "Чужие" (Молящийся Богомол) /
 magnet:?xt=urn:btih:B2C89FFA8A924CEE052A5376CF235A2182154156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 magnet:?xt=urn:btih:7278DD2E187DAD43ED688EECA6E56D2A3DEA02B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Discovery: Последние тайны долины Царей / Valley of the
 ```bash
 magnet:?xt=urn:btih:DF8DA48B8038C8FA6CAA9633096BB64B7281DFF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

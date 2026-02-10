@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:4011AA0F7A6E806AA3BB7D809F374E64E2C6E379
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:4011AA0F7A6E806AA3BB7D809F374E64E2C6E379
 ```bash
 magnet:?xt=urn:btih:F50ED5B9CD7B964EF3B2375FF753013681E71086
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F50ED5B9CD7B964EF3B2375FF753013681E71086
 magnet:?xt=urn:btih:A0FE4395A1C12A464091F450AF25DEE8FF23AB8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Yakuza Kiwami (2019) [Multi] (1.011a) License GOG
 ```bash
 magnet:?xt=urn:btih:6EF2E3293F3F243044B37626CC47BB8DB1EDF31D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Neon Chrome (2016) [Ru/Multi] (1.1.12/dlc) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:70FDDCB592A2BC7B2CAB27FCB7A9405B101E6255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:70FDDCB592A2BC7B2CAB27FCB7A9405B101E6255
 ```bash
 magnet:?xt=urn:btih:18E899A1A10B62D63650928A61D6B491152152BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:18E899A1A10B62D63650928A61D6B491152152BF
 magnet:?xt=urn:btih:791B648C0AA48CEC616844DC1291E3A10DDA51C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:791B648C0AA48CEC616844DC1291E3A10DDA51C8
 ```bash
 magnet:?xt=urn:btih:35ABD94973EA35C5F8E495F108F926F231D2D3A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Megacubo - это бесплатный IPTV-тюнер для Windows, кото�
 magnet:?xt=urn:btih:7ECD67E392A7821FF39BAB1F68393E25E771440E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ BitTorrent – программа-клиент пиринговой сети. П
 magnet:?xt=urn:btih:B019A955D230754B9661EA45CD3F93DC1A176EAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:B019A955D230754B9661EA45CD3F93DC1A176EAB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Tonikaku Kawaii 2 / Tonikawa: Over the Moon for You 2 / Красавица: Ун
 magnet:?xt=urn:btih:725ACF2FF7C42AE3AC0D57E8F9FFF5F84C0F383E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Filmic Pro - функциональное приложения для веден
 ```bash
 magnet:?xt=urn:btih:AABD04097695BD1CAF55A5CB926F7C9BF9FA9EA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Tor Browser Bundle 12.5.0 [Multi/Ru]
 magnet:?xt=urn:btih:C23D7CCD20EEBB26C1CC049FCEE7AE3DE4F39F42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Discovery. Канализационные водолазы / Sewer Divers / (202
 ```bash
 magnet:?xt=urn:btih:BEBD8AA8F3E78703A44D5D7CE41C65E2D97E41A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:BEBD8AA8F3E78703A44D5D7CE41C65E2D97E41A7
 magnet:?xt=urn:btih:49562441D034896708D7204B134516F78A619E07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:49562441D034896708D7204B134516F78A619E07
 ```bash
 magnet:?xt=urn:btih:EE23150F0928A7D93A532AB2C05687F932DEA32D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:EE23150F0928A7D93A532AB2C05687F932DEA32D
 magnet:?xt=urn:btih:0863387335B976DF59F336516D4296C15A711C0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:0863387335B976DF59F336516D4296C15A711C0A
 ```bash
 magnet:?xt=urn:btih:D0E79F6C0209E38EB583E16636940850274D54AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:D0E79F6C0209E38EB583E16636940850274D54AB
 magnet:?xt=urn:btih:7AC0741DD0BEA926E490481BD0686D1725920E0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 ```bash
 magnet:?xt=urn:btih:C5B1E5D25D9F631C5DEFEFE5EFC1AC373F48FEAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:C5B1E5D25D9F631C5DEFEFE5EFC1AC373F48FEAD
 magnet:?xt=urn:btih:6E682AF78682829E53C703C45412CB2508D3F666
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Tesla vs Lovecraft (2018) [Ru/Multi] (1.0.7/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:C88295A086D94E99268C17A05580B81983827370
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:C88295A086D94E99268C17A05580B81983827370
 magnet:?xt=urn:btih:2608D3E45309608CBA7DC097B8F3E1E23AD3040C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:2608D3E45309608CBA7DC097B8F3E1E23AD3040C
 magnet:?xt=urn:btih:31D134345C7B392390B3EF828183CB1FF1974F08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:31D134345C7B392390B3EF828183CB1FF1974F08
 ```bash
 magnet:?xt=urn:btih:1C7F659F7A3FD86AA2DB24261ACBD8173CCADEA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

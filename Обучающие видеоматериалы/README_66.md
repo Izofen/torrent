@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:5DEEB1D16446A90469D253E20C87BCFC1E0F0BE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Cubebrush, Marc Brunet | ULTIMATE Guide Drawing The Human Anatomy (2019) WEB-DLR
 magnet:?xt=urn:btih:3358D314B93DB99554493A7783E850649AC3309F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:3358D314B93DB99554493A7783E850649AC3309F
 ```bash
 magnet:?xt=urn:btih:F5A3DE57FFA332AD88139A439990D2A93DDD9311
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:F5A3DE57FFA332AD88139A439990D2A93DDD9311
 magnet:?xt=urn:btih:97FBE6A4089C8D8467E2B5E24C0B46F43FFE1B9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:97FBE6A4089C8D8467E2B5E24C0B46F43FFE1B9F
 magnet:?xt=urn:btih:0C966E7E6B2E79A5684A97C6CAA1B3B250F3D034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Learn Squared, Pablo Dominguez | Vehicle Concept Art (2020) PCRec [EN, ES]
 magnet:?xt=urn:btih:97D1F99885AF13153BB4D3EFF91F2843052DD64E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Schoolism, Craig Mullins | Painting Sci-Fi from Start to Finish (2020) PCRec [EN
 ```bash
 magnet:?xt=urn:btih:841238C219CE8EC645FA44743D7BDED1D041AF78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ I БЛОК
 magnet:?xt=urn:btih:73F9839B32EC7DE04FAACF31BE46CCE7D67761FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ New Masters Academy, Glenn Vilppu | Многофигурная композиц�
 magnet:?xt=urn:btih:121E8F3BDC081E987088B0AAEDC0FB51B637AF5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Cильное искусство, это обычно сочетание тех�
 magnet:?xt=urn:btih:EFEE0D121720BCF42633EF73E37B539D66B35552
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Schoolism, Jason Seiler | Realistic Portraits (2018) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:9EE5ACF39A08C4BC8486DB8986A26AF4DCCAF1EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ Schoolism, Jonathan Hardesty | Essentials of Realism (2016) PCRec [EN, RU]
 magnet:?xt=urn:btih:00B714EAEA6385BC06F842876A7571015C71E1A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ KkartSchool, Карина Кино | Создание книги (2023) WEB-DL [
 ```bash
 magnet:?xt=urn:btih:BD5C3F8AF192568509EFFAFE3A01E3BFE3433734
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ Schoolism, Thomas Fluharty | Oil Painting (2016) PCRec [RU]
 magnet:?xt=urn:btih:0A3E85220639428AE9F397AF2369C20EF381A306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ PBS, Джозеф Кэмпбелл, Билл Мойерс | Сила Мифа (1
 ```bash
 magnet:?xt=urn:btih:DB2537B65F34BAFEEBDE629DE9F8089C6D830BA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ Kalachevaschool, Виктория Акулова | Эмоциональная а
 magnet:?xt=urn:btih:20DF798A6610460ED42ED70B3A3B542866308C5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:20DF798A6610460ED42ED70B3A3B542866308C5A
 ```bash
 magnet:?xt=urn:btih:B4491395FD8E6486C1924D34B094C3BA564ADC17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ Skillbox, Андрей Котельников, Никита Акулич | По�
 magnet:?xt=urn:btih:7C011B5F98213C2F4726CFF2829086DDD6C944C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ Udemy, Mrawan Hussain | BLENDER: Learn how to create the military Black Hornet d
 ```bash
 magnet:?xt=urn:btih:9FB10A979B8D09C5BC8C4CB7315AA2119C3673BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ XYZ School, Женя Пак | Hard Surface (2020) HDTVRip
 magnet:?xt=urn:btih:0ACA836E2E7B4E7A3B7EAD1C73B66C17D436CBDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ Gumroad, Duard Mostert | AAA Game Assets with Fusion 360 Tutorial (2021) PCRec [
 magnet:?xt=urn:btih:CCC9B30EF272F3033846516089F277396CAFF77B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ Udemy, Visadi Khalikov | Этичный хакинг с Metasploit для нач
 ```bash
 magnet:?xt=urn:btih:B3E08F1B68F3844AC2D7A4AE759E1638ECCDC189
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ Skillbox, Марина Брагинская и др. | Декорировани�
 ```bash
 magnet:?xt=urn:btih:07F79586F765C5466AB237A96211C7E78D3919E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:07F79586F765C5466AB237A96211C7E78D3919E3
 magnet:?xt=urn:btih:48FCA5C95542C1B14ED368A3A46D41E4A30A6466
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ Udemy, 3D Tudor | Blender Beginner’s Bootcamp (2023) WEB-DL [AD] [EN, RU / EN,
 magnet:?xt=urn:btih:CF68D24E469D2C927AABE268CC81D81422FFEB09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ Udemy, А_мир Хамитов | AutoCAD с нуля и до очень даж�
 ```bash
 magnet:?xt=urn:btih:D94BB7F41CDC44C9F14A2FBB573E901F31E58E30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

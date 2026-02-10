@@ -1,3 +1,29 @@
+###  Публикация: 1255212   (363458) от 18.10.2018
+
+Роберт Джордан | Новая весна [Глава 1] (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роман, возникший из одноименной повести, вошедшей в знаменитый сборник "Легенды". Пролог знаменитой саги Роберта Джордана "Колесо Времени" - мирового бестселлера, одной из популярнейших фэнтези-эпопей за всю историю жанра. Потрясающая возможность вернуться в полюбившийся миллионам поклонников Джордана мир - и узнать, какие события послужили толчком (   Читать дальше...   )Жанр: ФентезиПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D5FAD714A529415C68BE0901D5EEBCD1AE91E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 576774   (363576) от 17.11.2012
 
 Вячеслав Лазурин | Желтая звездочка [2012] [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:C20FD76EDB6EB7516BCD62967AA1D1AB30AB722C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ Zampolit | Неверный ленинец (Книга 2). Пулеметчик 
 magnet:?xt=urn:btih:C4C6F56B397F3824E93184EE190C6BF6DCBA3C59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:C4C6F56B397F3824E93184EE190C6BF6DCBA3C59
 ```bash
 magnet:?xt=urn:btih:8B4E62D51B4EA3C6546E1C1DE77D14D578555B3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:8B4E62D51B4EA3C6546E1C1DE77D14D578555B3E
 magnet:?xt=urn:btih:BC3D227BA73E21474594532BE71494151F9BC928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:BC3D227BA73E21474594532BE71494151F9BC928
 ```bash
 magnet:?xt=urn:btih:3177CEC416B64B3EB5261447DE493D90E2BFE8B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:3177CEC416B64B3EB5261447DE493D90E2BFE8B2
 magnet:?xt=urn:btih:A2325A9A8DC17FF992E78E40A10D529C4A7C0207
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:A2325A9A8DC17FF992E78E40A10D529C4A7C0207
 ```bash
 magnet:?xt=urn:btih:60527E8BB439A3327DD6EBB57D07CAE0DBECB39E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:60527E8BB439A3327DD6EBB57D07CAE0DBECB39E
 magnet:?xt=urn:btih:14AD4C946FA6BCA892EC88DEC30A4E7B5254B433
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:14AD4C946FA6BCA892EC88DEC30A4E7B5254B433
 ```bash
 magnet:?xt=urn:btih:F8F29C8E73150182478F6F4A4C61FE2D31AE8702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:F8F29C8E73150182478F6F4A4C61FE2D31AE8702
 magnet:?xt=urn:btih:554CCAD56FA01FBFE67CF95777A88E16609C8CCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:554CCAD56FA01FBFE67CF95777A88E16609C8CCE
 ```bash
 magnet:?xt=urn:btih:080748AC7FBFDE5F04A5835606BB6A35F2186742
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:080748AC7FBFDE5F04A5835606BB6A35F2186742
 magnet:?xt=urn:btih:0484F41BCD866C449D413363A7C245FA38E6128A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:0484F41BCD866C449D413363A7C245FA38E6128A
 ```bash
 magnet:?xt=urn:btih:4DE689F4EA726BF5ADDBE929792A6707B71C56A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:4DE689F4EA726BF5ADDBE929792A6707B71C56A9
 magnet:?xt=urn:btih:653BEA06046932CD21957D00432B0E996FD0DE7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:653BEA06046932CD21957D00432B0E996FD0DE7A
 ```bash
 magnet:?xt=urn:btih:87E617F9B8306338D2E2F42EDB409981149298F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:87E617F9B8306338D2E2F42EDB409981149298F3
 magnet:?xt=urn:btih:51626335C552BF6DDCDA19A6AB35E19E2CC5963D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:51626335C552BF6DDCDA19A6AB35E19E2CC5963D
 ```bash
 magnet:?xt=urn:btih:17117FC07F869D0EF143AAE65B4414416B7B288C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:17117FC07F869D0EF143AAE65B4414416B7B288C
 magnet:?xt=urn:btih:36A227A52A9BEFA0E99ED3148C171B945304A8E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:36A227A52A9BEFA0E99ED3148C171B945304A8E0
 ```bash
 magnet:?xt=urn:btih:5D58352E4AF51F94E4D025070C308EE1FD722D16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:5D58352E4AF51F94E4D025070C308EE1FD722D16
 magnet:?xt=urn:btih:2DD69696EDA1D8BF9CC99AADA1D1622A7B2C4E5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:2DD69696EDA1D8BF9CC99AADA1D1622A7B2C4E5A
 magnet:?xt=urn:btih:1AC033EBF579433F901F6C53718A750BEE89556C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:1AC033EBF579433F901F6C53718A750BEE89556C
 ```bash
 magnet:?xt=urn:btih:A84C2654C513D43E23EE7D6AD219875043C83C87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:A84C2654C513D43E23EE7D6AD219875043C83C87
 magnet:?xt=urn:btih:C3DC9FB8A7C38A1D5D6AB68489258BC9149FDD59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:C3DC9FB8A7C38A1D5D6AB68489258BC9149FDD59
 ```bash
 magnet:?xt=urn:btih:686612A4D6349CBB1D15940F4523BB7496C36F9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,29 +685,7 @@ magnet:?xt=urn:btih:686612A4D6349CBB1D15940F4523BB7496C36F9A
 magnet:?xt=urn:btih:7289DB5861C4EF5C131FCDB110A24A28DBDBC03A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328121   (365868) от 29.09.2019
-
-Роджер Желязны | Рыцарь Теней (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_365868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мерлин проникает в Крепость Четырёх Миров, чтобы в конце концов решить загадку колдуна-преследователя. В активную игру вступают основные силы Вселенной — Огненый Путь и Логрус, знаки Порядка и Хаоса. Мерлин проходит подтеневой мир, спасает друзей и оживляет призраков. Он отказывается от предложенного выбора...Жанр: Классика фэнтезиПродолжительность: 08:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AABCD48DE19CB9CCBD87523DA7539FCCFF709B48
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

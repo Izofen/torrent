@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:386957B57C7418D29B974C136F7457B4D253C774
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ AGContacts - звонилка и менеджер Контактов, Избра
 ```bash
 magnet:?xt=urn:btih:66EDB029F1A8E5F84881A828CF9EC723934949D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Logic Circuit Simulator PRO предоставляет вам место для 
 magnet:?xt=urn:btih:A0B6F363D8F5F48C1E502E364CD246DBF88D2729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ VN - это видеоредактор предназначенный специ
 ```bash
 magnet:?xt=urn:btih:1B09A038F29DB420B6255FF3C7985B90FB00CF98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:1B09A038F29DB420B6255FF3C7985B90FB00CF98
 magnet:?xt=urn:btih:4122EE57CD8C7C27B47F56A422A717A5650E9151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ SD Maid v5.6.2 Extra Mod + Dark-Venom Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:F7F54F1AFD2063952597BEF5FE26808B670C148B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Photo Retouch v2.3.4 Mod by Alex.Strannik [En]
 ```bash
 magnet:?xt=urn:btih:CECEC2E8F0785A22268B875C3F0AFC83A0B5D386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:CECEC2E8F0785A22268B875C3F0AFC83A0B5D386
 magnet:?xt=urn:btih:8E8FFD1F78471AE6978B3FFC9B17950013226282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:8E8FFD1F78471AE6978B3FFC9B17950013226282
 ```bash
 magnet:?xt=urn:btih:8537BD1AE2E07A442CECC5BC09834859D30F0AE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:8537BD1AE2E07A442CECC5BC09834859D30F0AE8
 magnet:?xt=urn:btih:5D53F55273BEBF4DFFC7D16ED6352BD0EDB2B6A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ PictureThis - Plant Identification v3.66 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1E1BAD2F69DF33E7DC30A1F7696C0C6BB99B330C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Simple Gallery v6.28.1 [Ru/Multi]
 magnet:?xt=urn:btih:3D8182F6DFDBEDC55CB649A2C17D2DE65EDF2759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Thenx v4.29 Mod by  Alex.Strannik [En]
 ```bash
 magnet:?xt=urn:btih:280A080A13B9F5D1AACE5141609EC42198DD2D42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Lock Me Out v7.0.6 [Ru/Multi]
 magnet:?xt=urn:btih:0FCEB6C25769E7FB11FFE4EF201E24EA5631E248
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ RAR компании RARLAB способен создавать RAR и ZIP и р
 ```bash
 magnet:?xt=urn:btih:5807FD4A102E727136F9CFFD1E012EB832D908D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ ColorNote — ColorNote это простой блокнот. Он предос�
 magnet:?xt=urn:btih:209DCA58363033CFA864A524BF9ED8E22249171E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Relax Rain: sleeping sounds v6.7.3 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:256C97FC935482F7BEB44648AD95407508EC0E93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:256C97FC935482F7BEB44648AD95407508EC0E93
 ```bash
 magnet:?xt=urn:btih:72B2D1DDC26B1F28F1EFE895F59532624B7F7B59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:72B2D1DDC26B1F28F1EFE895F59532624B7F7B59
 magnet:?xt=urn:btih:C8EE859DAF02C182B2BA1FF66A27CC9A71AB0657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:C8EE859DAF02C182B2BA1FF66A27CC9A71AB0657
 magnet:?xt=urn:btih:7E11010580B789543614E6D519DDB38C7BAE0692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:6136CEFD0DD0337B404D85F67D0D2C1EAD54732D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ ActionDirector- это единственный 📹 видеоредактор,
 magnet:?xt=urn:btih:2E2796146F0BEB0A1BF52945673A935A88CBBB32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:2E2796146F0BEB0A1BF52945673A935A88CBBB32
 ```bash
 magnet:?xt=urn:btih:DC6C84015A55EF570F1CD0CC4A1E86D5FECAC65B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Poweramp - это мощный аудиоплеер для АндроидаТи�
 magnet:?xt=urn:btih:6E3E3177B46705DBF7257B1163277CD0C0E648F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Poweramp Music Player - версия для мобильных платформ 
 magnet:?xt=urn:btih:8ABA63D6D61E0F9853A1E13BB3F37ADDE1FDC2EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Carly — OBD2 car scanner 48.47 Mod by derrin [Multi]
 ```bash
 magnet:?xt=urn:btih:E71EAB9D4E234736F8680DD19E404FCAB1DF025E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Scriabin, Prokofiev, Shostakovich - The Authorised Recordings: Sviatoslav Richte
 magnet:?xt=urn:btih:CB70DB6387B4CECBF4500268FA89BDB04AAA0BAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Piano Concerto No. 1 in E minor
 ```bash
 magnet:?xt=urn:btih:79567148066FBFCF82B2419AC69B8DE5568A0092
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ David Garrett - Unlimited - Greatest Hits (2018) 2CD [MP3|320 Kbps] <NeoClassica
 magnet:?xt=urn:btih:33BA1C83424F7FA25E8E0C87328BEB4273E187A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Symphonic Rock Orchestra - Classical Highlights (1988) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:81BFE5AB52CC5072158DB7058FEEB37767852658
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ German Classic Rock Orchestra - World Classics (2002) [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:FF88344F2C11313EA0D524422BB9DDE3278DD256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ Sonata for piano, 4 hands in C major ("Grand Duo"), D. 812 (Op. posth. 140)
 ```bash
 magnet:?xt=urn:btih:4307A929C4D996BAE975931F7BE0D129CE034A27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ Symphony No. 6 in B minor ("Pathtique"), Op. 74(   Читать дальше... 
 magnet:?xt=urn:btih:283E8A684BA7137EC72D3399CE5A7F0FB6AE6592
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ Piano Concerto No. 17 in G major, K. 453
 ```bash
 magnet:?xt=urn:btih:BB8D9C9B56CF1161B0E842A4FAF44806AE2E8769
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +250,8 @@ Requiem No.1 ( la mmoire de Louis XVI), for chorus & orchestra in C minor
 magnet:?xt=urn:btih:04F2B7600F7997732A35B7A963B912ED181C7D43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +277,8 @@ I. Allegro (21:37)
 ```bash
 magnet:?xt=urn:btih:46BFDB029A50405447D847DE943CF5663AFC6562
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +313,8 @@ Brian Crain - Sienna (2003) [MP3|320 кб/с]<Neoclassical, New age, Piano>
 magnet:?xt=urn:btih:399019B70257A3C2F7FC8DE1B732A258748DE064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +342,8 @@ magnet:?xt=urn:btih:399019B70257A3C2F7FC8DE1B732A258748DE064
 magnet:?xt=urn:btih:56C774EAF9AA4E85E7FCF8BDB7CCB2868B75B673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ Mozart - The Authorised Recordings: Sviatoslav Richter (1994) 2CD [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:6B59C666DCB67788F2C7D94A9D808E7323BD0B2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +398,8 @@ Gustav Mahler - Symphony No. 10, completion by Rudolf Barshai - Vladimir Ashkena
 magnet:?xt=urn:btih:9D4480890664E43FD182571EA6FA098C0E6463F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ Chiharu Naruse - Kenneth A. Kuhn: Piano Works (2018) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:9B34335270D9ABDC64D78A372D0E8E4EA6FBB55D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ Andrea Bocelli - Cinema (Deluxe Edition) (2015) [FLAC|Image+cue]<Pop, Classical 
 magnet:?xt=urn:btih:490C31D4B970AE68A51CBBD322F45E3C79ADBB91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ Wolfgang Amadeus Mozart - Piano Concerto No.13 in C Major, K.415:
 ```bash
 magnet:?xt=urn:btih:96420D69048A48DE348825518394478B2DC71B22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +520,8 @@ VA - The Acoustics Collection. Guitar (2002) [MP3|320 кб/с]<Classical, Instru
 magnet:?xt=urn:btih:FDFE65331039471DD399590B2FA9B7AD9FEAFE3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +548,8 @@ Lindsey Stirling - Artemis (2019) [FLAC|Lossless|image + .cue] <Instrumental, Cl
 ```bash
 magnet:?xt=urn:btih:36553ED7E6AF0579CA132B71FD3571D206CD15A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +584,8 @@ Barbara Hendricks & VA - Ave Maria (1994) [FLAC|Lossless]<Classical, Vocal>
 magnet:?xt=urn:btih:02C1811E6C1E61EE2205B78A1C8DC1C3C10C6EE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +612,8 @@ Die Sieben letzten Worte unseres Erlosers am Kreuze (The Seven Last Words of Chr
 ```bash
 magnet:?xt=urn:btih:1E8B5884197DDB8EEEA419094B3CFF2500BFD9D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +642,8 @@ Ludwig van Beethoven - Berliner Philharmoniker conductor Herbert von Karajan (19
 magnet:?xt=urn:btih:07F732550BD96F4BD414DAB6C40522388A56E695
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +670,8 @@ Symphony No. 1 ("Afro-American")
 ```bash
 magnet:?xt=urn:btih:A95418444FA91E2D1262B753129DB0078437FB3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +700,8 @@ RIOPY - Tree of Light (2019) Warner Classics [FLAC|Lossless|WEB-DL|tracks] <Mode
 magnet:?xt=urn:btih:0CD4EC227DDBE096E68F31FF6431D83A7C8A0983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,6 +729,8 @@ Jordi Savall, Hesperion XXI - BAL·KAN Miel et Sang - Honey and Blood [3CD] (201
 magnet:?xt=urn:btih:B485B6E9737A11F3D4EBDE861D5B9AAE64AF3AB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -707,6 +757,8 @@ Joep Beving - Conatus (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary, Neo-Cl
 ```bash
 magnet:?xt=urn:btih:7E484499FEB3BFB1DA60F4015FC2A02BD4F337CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

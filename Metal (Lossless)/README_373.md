@@ -1,3 +1,73 @@
+###  Публикация: 619615   (967855) от 16.02.2013
+
+Psychofagist - Il Secondo Tragico (2009) [FLAC|Lossless]<Technical Jazzcore Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uomo O Merda [01:32]
+ 02. Tema: Collasso [02:29]
+ 03. Untitled (Black on Grey 69/70) [02:49]
+ 04. Nouvelle De Spasticité & épilepsie [04:13]
+ 05. Defragmentation Rotunda [02:22]
+ 06. Il Secondo Tragico [05:49]
+ 07. Corpuscles [02:07]
+ 08. Pithecanthropus Sapiens Sapiens [02:45]
+ 09. Biodegradazioni [05:34]
+ 10. Free-Non-Jazz Powerviolence Sonata [02:18]Жанр: Technical Jazzcore DeathПродолжительность: 00:31:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619077   (967919) от 16.02.2013
+
+Sons Of Aeon - Sons Of Aeon (2013) [FLAC|Lossless]<Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Faceless (7:41)
+02. Cold Waves (3:48)
+03. Burden (5:30)
+04. Enemy Of The Souls (4:23)
+05. The Centre (03:51)
+06. Havoc & Catharsis (3:52)
+07. Weakness (6:37)
+08. Seeds Of Destruction (3:25)
+09. Wolf Eyes (3:55)
+10. Black Sheep Process (5:45)Жанр: Melodic Death MetalПродолжительность: 00:48:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 744797   (968110) от 14.01.2014
 
 Shadow of the Colossus - End Game (2013) [FLAC|Lossless]<Progressive Metalcore\Deathcore>
@@ -28,6 +98,8 @@ Shadow of the Colossus - End Game (2013) [FLAC|Lossless]<Progressive Metalcore\D
 magnet:?xt=urn:btih:F8B56D12E5017CD8D14D7F857B356DCFD572BA10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +126,8 @@ Delain - Apocalypse & Chill (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:69DAF36A0B9A86326135D64D78ED5770E5DE2CF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -87,6 +161,8 @@ Eluveitie - Slania (2008) [FLAC|Lossless]<Celtic Melodic Death Metal>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +199,8 @@ Discogs
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +227,8 @@ Rhapsody Of Fire - Into The Legend (2016) Limited Edition [FLAC|Lossless|image+.
 ```bash
 magnet:?xt=urn:btih:DDB5B1B8F83CB8FA2A7773BB3DD1C6F137CAE600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +260,8 @@ Fiend - The Blooming Tremble (2009) [WavPack|Lossless|.iso.wv]<Melodic Death Met
 ```bash
 magnet:?xt=urn:btih:E4B5EA0FE79DA35CD210B3E5E23ADD3FE6F47D90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +296,8 @@ Evergreen Terrace - Dead Horses (2013) [FLAC|Lossless]<Metalcore/Hardcore>
 magnet:?xt=urn:btih:EA05F12EBF71A61DDD0EA559E7C1B71F497AB9E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +329,8 @@ Dorn - Schatten Der Vergangenheit (2002) [WavPack|Lossless|.iso.wv repack]<Black
 ```bash
 magnet:?xt=urn:btih:5E0F2C84032C987601ED96B9553E81A1F26E90C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +365,8 @@ Vicious Rumors - Vicious Rumors (1990) Japan [FLAC|Lossless]<Heavy Metal / Power
 magnet:?xt=urn:btih:81B1BCF7E70DE4910F40EA20348807D0953B5AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +399,8 @@ Dying Tears - Amnesia (2000) [WavPack|Lossless|iso.wv repack]<Symphonic Gothic /
 ```bash
 magnet:?xt=urn:btih:3AE8E02BEF7523A92D27BED96A3D409CA8F1BA32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +435,8 @@ Dominium - Psycho Path Fever (2002) [WavPack|Lossless|.iso.wv repack]<Progressiv
 magnet:?xt=urn:btih:24EE5BB1158011F34585AF889B3F5DF9726DB854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +463,8 @@ Sepultura - Quadra (2020) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Thrash Me
 ```bash
 magnet:?xt=urn:btih:A7FF48815C3A957175A220382546D6C1667F7195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +493,8 @@ Rage - Wings of Rage (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy
 magnet:?xt=urn:btih:D3C486C32BE3141F7AD3644DC569577DA83CD320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +522,8 @@ Godsticks - Inescapable (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 magnet:?xt=urn:btih:E360B8449DE1D62F22BA4EBB156E771BC1BDAEA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +550,8 @@ Odin's Court - Turtles All the Way Down (2015) [FLAC|Lossless|image + .cue] <Pro
 ```bash
 magnet:?xt=urn:btih:16A2A946387BC0AAE4BF82E485F3580417A2D207
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +586,8 @@ Staind - 8 Альбомов (1996-2012) Дискография [FLAC|Lossless] <
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +614,8 @@ Ayreon - Дискография (1995-2009) [FLAC|Lossless]<Progressive metal>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +649,8 @@ Emerald Mind - Tales Of Soveena (2009) [FLAC|Lossless]<Power Metal>
 magnet:?xt=urn:btih:ADE66EC6D05218345B5BC7F32892626DB25624F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +678,8 @@ Rhapsody Of Fire - Into The Legend (2016) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 magnet:?xt=urn:btih:662D4E51CEC2EE39DC6587D2B30D6737BF23CE25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +706,8 @@ Mammoth Storm - Fornjot (2015) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom Metal>
 ```bash
 magnet:?xt=urn:btih:2ECA60757CCCC471E08FC2C348481877032A39C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +742,8 @@ Yngwie J. Malmsteen's Rising Force - Spellbound (2012) /SHM-CD, Japan/ [FLAC|Los
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +777,8 @@ Korozy - From The Cradle To The Grave (2000) [WavPack|Lossless]<Symphonic Black 
 magnet:?xt=urn:btih:46CFC6BEF816C7D704CA64E261ACC32F513093ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +805,8 @@ Leecher - Deviant (2020) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Gothic Metal,
 ```bash
 magnet:?xt=urn:btih:76111FE0A95607F688AF62C402BA56DA882C73B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -719,56 +835,7 @@ Axel Rudi Pell - Game Of Sins (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:CFD4D87EA81667150B8181624B921BE02550DE02
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974882   (973358) от 14.01.2016
-
-Tank - Valley of Tears (2015) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_973358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Valley of Tears
-02.War Dance
-03.Eye of a Hurricane
-04.Hold On(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578E654997349DF56D01A8A7EDA970502CBF1E6B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 439188   (973516) от 20.01.2012
-
-Metallica - Live At The Fillmore: 30th Anniversary (9CD) (2011) [FLAC|Lossless]<Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-2011Жанр: MetalПродолжительность: 10:27:47
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

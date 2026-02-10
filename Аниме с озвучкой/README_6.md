@@ -19,6 +19,8 @@ Beyblade Burst Gachi | Beyblade Burst GT | Бейблэйд Взрыв — Сх�
 magnet:?xt=urn:btih:B0DF6B27AE5EB035114B8845773E0E591EBCB2EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Inazuma Eleven | Одиннадцать Молний [2008, TV, 127 эп.] WEB-D
 ```bash
 magnet:?xt=urn:btih:A3AF409F2BF98A8DF5AA1A182AAF94184EE3679B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:A3AF409F2BF98A8DF5AA1A182AAF94184EE3679B
 magnet:?xt=urn:btih:91DEB4F489D038E12CC4B3E90D3A96175EADE366
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:91DEB4F489D038E12CC4B3E90D3A96175EADE366
 magnet:?xt=urn:btih:1DD19D46B626BAC3E22F994FDBEA866DFBF1E49D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:1DD19D46B626BAC3E22F994FDBEA866DFBF1E49D
 ```bash
 magnet:?xt=urn:btih:C8E6E38DF097F10E25069C8367D54FCCF173CD7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Kusuriya no Hitorigoto | The Apothecary Diaries | Монолог фармаце�
 magnet:?xt=urn:btih:10A57B14BC52710A72D26F0BC82C099108CB8556
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Yamada-kun to Lv999 no Koi o Suru | My Love Story With Yamada-kun at Lv999 | М�
 ```bash
 magnet:?xt=urn:btih:7EC03ED23E4115C8F36B66E47492213B2027E69D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Kimetsu no Yaiba: Hashira Geiko Hen | Demon Slayer: Hashira Training Arc | Ис�
 magnet:?xt=urn:btih:8066EA62A6B04C58484EAB53377F567F44237004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Benriya Saitou-san, Isekai ni Iku | Handyman Saitou in Another World | Маст�
 ```bash
 magnet:?xt=urn:btih:EB6B9C8590B40F27D3924158E8601EFB9E0D3A92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Tsuki ga Michibiku Isekai Douchuu Dai Ni Maku | Tsukimichi: Moonlit Fantasy 2 | 
 magnet:?xt=urn:btih:E79E11CF8284A721FB4F206367DDABB86D9ECD07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Tsuki ga Michibiku Isekai Douchuu | Tsukimichi: Moonlit Fantasy | Лунное �
 ```bash
 magnet:?xt=urn:btih:78FCF15A801A2B448034812CA6768AC8F51D7263
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Maou no Ore ga Dorei Elf o Yome ni Shitanda ga, Dou Medereba Ii? | Madome | Ка
 magnet:?xt=urn:btih:494E715EDD712B5B2461EA43A805964BD5A85537
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Uzumaki | Спираль [2023, TV, 4 из 4] WEBRip 1080p raw+rus+eng
 ```bash
 magnet:?xt=urn:btih:4DB5F9DA9DD407275AC667BC0D19645B6D97911E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Unnamed Memory | Безымянная память [ТВ-1] [2024, TV, 12 из 1
 magnet:?xt=urn:btih:3E6AAD7B3FF3E6DAAED9F0708BA4B4770F9A6FD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Shinigami Bocchan to Kuro Maid 3 | The Duke of Death and His Maid 3 | Смерт
 ```bash
 magnet:?xt=urn:btih:62783FC923F3E9D79229462E6E5336EED001AAEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Shinmai Ossan Boukensha, Saikyou Party ni Shinu Hodo Kitaerarete Muteki ni Naru 
 magnet:?xt=urn:btih:9B0E4F43D4F9306F6D288B13F1FDD61337E250BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Kekkon Yubiwa Monogatari | Tales of Wedding Rings | Легенда свадеб�
 ```bash
 magnet:?xt=urn:btih:9CB42BD0057EADE8D323E530CAB813FDF0616273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Shinigami Bocchan to Kuro Maid | The Duke of Death and His Maid | Смертон
 magnet:?xt=urn:btih:D74C02A7FD9ED1D80A7A9A7D337C0BDCAD43A692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Helck | Хельк [2023, TV, 24 из 24] BDRip 1080p HEVC 10-bit raw+rus
 magnet:?xt=urn:btih:F9F08797F82D7A3EC2A5099FBAC45EC219BC2693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Summer Time Render | Summer Time Rendering | Летнее время [2022, TV, 
 ```bash
 magnet:?xt=urn:btih:59C19EBB8CA50C56B09EECD4EBC4EA6ED13F8ACA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:59C19EBB8CA50C56B09EECD4EBC4EA6ED13F8ACA
 magnet:?xt=urn:btih:7ED0D324806FE19B0792CCA699B295DD4AF4B4D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Girls Band Cry | Плач девичьей группы [2024, TV, 13] WEBRip 10
 ```bash
 magnet:?xt=urn:btih:D0CAFEF6F1A90E3E52413E2843B72AE7E170803F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:D0CAFEF6F1A90E3E52413E2843B72AE7E170803F
 magnet:?xt=urn:btih:EF8DB32B3676D592ED9AC102D2070ED52BF26F75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo | Hyakkano | Сто
 ```bash
 magnet:?xt=urn:btih:0EE5803CF5B480FAD9207B83510A7841D9CF1ABE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:0EE5803CF5B480FAD9207B83510A7841D9CF1ABE
 magnet:?xt=urn:btih:48789425349E6204C8980CA7B9AF733C2C8A9241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:48789425349E6204C8980CA7B9AF733C2C8A9241
 ```bash
 magnet:?xt=urn:btih:030BB1606D36C47E87C26035336E402B84C06CC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

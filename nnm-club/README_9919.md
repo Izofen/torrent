@@ -1,51 +1,3 @@
-###  Публикация: 582319   (320962) от 29.11.2012
-
-Журнал | Вязание модно и просто №24(154) [ноябрь 2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320962.jpg" />
-</div>
-
-
-###  Подробнее
-
-В журнале представлены осенние модели: мужской жакет, пончо, черно-белый комплект: белый пуловер+черный кардиган, шарфы, шапочки и многое другое.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC1471CC3C52C5CA28BED536E8FA5DE99FD7B39
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582080   (320966) от 29.11.2012
-
-Xzibit. Napalm (2012) [H.264/720p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_320966.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RAP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE7FED1E461A19167FA026B379E996836EE95CA2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582663   (320967) от 10.10.2022
 
 IObit Driver Booster Pro 10.0.0.36 RePack (& Portable) by 9649 [Multi/Ru]
@@ -66,6 +18,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:1B5675197B38C0120C5058C090FEA545C15BF149
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +45,8 @@ ImgDrive позволяет одним щелчком мыши монтиров�
 ```bash
 magnet:?xt=urn:btih:9EEE90507EC73CCFFEAE6CFFD4A375D430D32EDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +75,8 @@ Santiano - Die Sehnsucht ist mein Steuermann - Das Beste aus 10 Jahren (2022) 2C
 magnet:?xt=urn:btih:4CFD558B9ECDC9309BB6ACCBE2B38DD7A06D9621
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +101,8 @@ Sandboxie - yтилита для контроля за работой разли
 magnet:?xt=urn:btih:65F9586E706BF554F3A5DA33200835A37933ACFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +126,8 @@ Macrorit Partition Extender - утилита, доступная также в �
 ```bash
 magnet:?xt=urn:btih:857ED47F2E85FF70B7323F0E70B60CCC968F018E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +154,8 @@ magnet:?xt=urn:btih:857ED47F2E85FF70B7323F0E70B60CCC968F018E
 magnet:?xt=urn:btih:3312E367A961FB775C4719461B311A1AAA8E258B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +179,8 @@ Macrorit Data Wiper Unlimited Edition – мощная утилита, кото�
 ```bash
 magnet:?xt=urn:btih:80B6278D70D8340C23D6A12D3B48D4251053547A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +206,8 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 magnet:?xt=urn:btih:82E378519EFF0F0C554AB0F0DB51DF582E994B4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +232,8 @@ magnet:?xt=urn:btih:82E378519EFF0F0C554AB0F0DB51DF582E994B4A
 magnet:?xt=urn:btih:C7AD89391E38F93C793CB5A97CE98CFD2EE64CD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +257,8 @@ magnet:?xt=urn:btih:C7AD89391E38F93C793CB5A97CE98CFD2EE64CD3
 ```bash
 magnet:?xt=urn:btih:49958EDD6C51439BF92173693E61F5B3F2D45C17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +287,8 @@ magnet:?xt=urn:btih:49958EDD6C51439BF92173693E61F5B3F2D45C17
 magnet:?xt=urn:btih:24C55C865856836BF92255DBD55B0B383D3D8316
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +316,8 @@ magnet:?xt=urn:btih:24C55C865856836BF92255DBD55B0B383D3D8316
 magnet:?xt=urn:btih:4A2F012C246602CC6110C9FCD119A39DC3DFAA69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +342,8 @@ magnet:?xt=urn:btih:4A2F012C246602CC6110C9FCD119A39DC3DFAA69
 ```bash
 magnet:?xt=urn:btih:536597CBE8D84FC4D1EC941F649FD477794044A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +372,8 @@ John McLaughlin And Mahavishnu - Adventures In Radioland (1993) [FLAC|Lossless|t
 magnet:?xt=urn:btih:1CD473659AF5E303B6EADAA1A198A562B521767B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +401,8 @@ magnet:?xt=urn:btih:1CD473659AF5E303B6EADAA1A198A562B521767B
 magnet:?xt=urn:btih:D3C0BB7EA360941F751C7F2460CDE8AB4CF65103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +426,8 @@ magnet:?xt=urn:btih:D3C0BB7EA360941F751C7F2460CDE8AB4CF65103
 ```bash
 magnet:?xt=urn:btih:3D123DBB8436FB652A56BFB52238DF4686951822
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +456,8 @@ Stay Away - Олдэйджер (2022) [MP3|320 Kbps] <Punk Rock>
 magnet:?xt=urn:btih:6B5F1210BF1DA4DACD2A359A74442DFAC42154D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +484,8 @@ Refugium - Refugium (2022) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:22EA2B78FF90075AE0CCD64C01BB557D0941157B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +514,8 @@ Sympuls-E - Immensity (2022) [MP3|320 Kbps] <Technical Melodic Death Metal>
 magnet:?xt=urn:btih:F1AA67F379E454F02EC38CC6AB8CCD9EDA75632C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +542,8 @@ Commoner - I (2022) [MP3|320 Kbps] <Heavy, Doom Metal, Crust>
 ```bash
 magnet:?xt=urn:btih:6E1882603B49F5B45A52C5D86F3EEBD67D0F16A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +572,8 @@ Craig Armstrong & Adam Peters - Snowden / Сноуден (Original Soundtrack) +
 magnet:?xt=urn:btih:91FC50756E8302011A8E193DF6FC8695A4AD7C9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +601,8 @@ VA - Музыкальные новинки mp3. Сборник 3 (2016) [MP3|256
 magnet:?xt=urn:btih:3933990FFC7069347D7D2305D619EC5E8A64FF19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +626,8 @@ magnet:?xt=urn:btih:3933990FFC7069347D7D2305D619EC5E8A64FF19
 ```bash
 magnet:?xt=urn:btih:BFE905EEAE693164441F829A55048841B974DCF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +653,64 @@ magnet:?xt=urn:btih:BFE905EEAE693164441F829A55048841B974DCF6
 ```bash
 magnet:?xt=urn:btih:FD057A87A61636A31EDA0385A8C7410D700D6CF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075382   (320997) от 22.11.2016
+
+Andrea Schroeder - Void (2016) [MP3|320 Kbps] <Indie Rock, Alt. Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_320997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Void (03:40)
+02. Black Sky (03:11)
+03. Burden (03:41)
+04. My Skin Is Like Fire (04:37)(   Читать дальше...   )Жанр: Indie Rock, Alt. RockПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A7194BFB27923FD47A3667BAF114154386EB90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075526   (321000) от 22.11.2016
+
+iMazing 2.1.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321000.jpg" />
+</div>
+
+
+###  Подробнее
+
+iMazing: отличная альтернатива iTunes
+Согласитесь, iTunes – отличный инструмент для работы с iДевайсами и медиафайлами, однако в нем чего-то не хватает. Разобраться, чего именно, решили разработчики софтины iMazing, которая не только может стать шикарной заменой «яблочному» сервису, но и неотъемлемым инструментом для полноценного функционирования вашего iPhone или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22 ноября 2016Разработчик: DigiDNAПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:396E3A8F654FE3D12623E3262BDC2EB7D61C51C3
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5DC8A1B4EE5417960EB9B7FB00D30AFB243D1280
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Legendary Tales возвращаются с новой историей-прик
 ```bash
 magnet:?xt=urn:btih:57065886E5A3519DF9187D4EB1AB26C74DA4C2AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:57065886E5A3519DF9187D4EB1AB26C74DA4C2AF
 magnet:?xt=urn:btih:E2382F3EF02326CBF0F630FC407100442F5C6126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:E2382F3EF02326CBF0F630FC407100442F5C6126
 magnet:?xt=urn:btih:E169F921DC7F8DC145FD04DE1DB33360C0C750B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:E169F921DC7F8DC145FD04DE1DB33360C0C750B8
 ```bash
 magnet:?xt=urn:btih:FC3D47E08B31F229A714619EAD0344A41BDD60D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ VA - 00s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:62AC1E791B143414FFD888B3E5638127DB9F9127
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Sugar Ray & The Bluetones - Blues from Sibculo (2025) [FLAC 24/48|Lossless|WEB-D
 magnet:?xt=urn:btih:6C36D12A016A165C9DF293FC282ABF69CACD3130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:00FE5A515BD3823933B8D9701A5B2BE2BC039340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:00FE5A515BD3823933B8D9701A5B2BE2BC039340
 ```bash
 magnet:?xt=urn:btih:577D96A9513FBD9228C10FA7A9951FAF460A2E5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Randy Johnston - Rockin' Soul at the Star Tavern (2025) [FLAC 24/48|Lossless|WEB
 magnet:?xt=urn:btih:C8BFDD3EC90FE8F74681283703867FC4E03BF52E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Mike Bourne Band - Kansas City O'clock (2025) [FLAC 24/44.1|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:6838548951DBE32E93A911B972374E4BFAED10D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ MELL VF - Echoes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
 magnet:?xt=urn:btih:35BD992F602EBF5A4705C9972285CC0604AE39A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:35BD992F602EBF5A4705C9972285CC0604AE39A8
 magnet:?xt=urn:btih:5AEEEDFDACD7BA64C9A57E28DFF9DA388ECF9E96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:5AEEEDFDACD7BA64C9A57E28DFF9DA388ECF9E96
 ```bash
 magnet:?xt=urn:btih:CFB73797B0CBF4E624A9A7EA771385442CDB9014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ Mark Cameron - Blues Factory (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 magnet:?xt=urn:btih:AF7676A6108395FB61749ED9DBEF195523AA868D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ Citadel Arcanes (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:356A0999C19761C6DAE97C942544BB02BD5275DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ Laura Cox - Trouble Coming (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues R
 magnet:?xt=urn:btih:A61049F2DC3731B9A7218B60F87E7EE646E7F2A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ K-Lite Codec Pack в различных вариантах содержит вс
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ VA - Новинки Танцевального Радио DFM (2012) [MP3|256 к
 magnet:?xt=urn:btih:AEBA7043801498D54D67A6A9BB006863D57FE37F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CF450D0F8C8C698C8756E6D12653FE12073C48A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ magnet:?xt=urn:btih:CF450D0F8C8C698C8756E6D12653FE12073C48A7
 magnet:?xt=urn:btih:E2BE324FE51A452E4A75153BFAD113FF06193FDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:E2BE324FE51A452E4A75153BFAD113FF06193FDD
 ```bash
 magnet:?xt=urn:btih:F8FFB855A1C069CB3D87FC17E209E77FA8BFE86D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +626,8 @@ Europa Universalis V (5) (2025) [Ru/Multi] (1.0.0/dlc) Repack Pioneer
 magnet:?xt=urn:btih:2EF369930146EDDBA0B2CCA4140799E0436967C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ Playboy — легендарный журнал для мужчин, основ�
 ```bash
 magnet:?xt=urn:btih:C8682EF9B99A848E9A925C980950D7D366B6AD1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ Need for Speed Heat - это гоночная игра в открытом ми�
 magnet:?xt=urn:btih:B4CEBBDC6F01EA67EE364BAF99C2F0C5A8E8DCB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:B4CEBBDC6F01EA67EE364BAF99C2F0C5A8E8DCB9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

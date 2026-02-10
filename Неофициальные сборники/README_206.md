@@ -1,3 +1,32 @@
+###  Публикация: 1072627   (349980) от 14.11.2016
+
+VA - Beatport Top 100 Electronica / Downtempo October (2016) [MP3|320 Kbps] <Electronica / Downtempo, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349980.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Kollektiv Turmstrasse - Jupiter Sunrise (Original Mix) 4:09
+002.Moby - Porcelain (Arty Remix) 3:31
+003.dubspeeka - K304v2 Walk With Me (Original Mix) 4:27
+004.KMLN - Sabilu (Feat Mian - Schon Long Remix) 5:59(   Читать дальше...   )Жанр: Electronica / Downtempo, HouseПродолжительность: 10:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:818277777D2361361E68262779789279144F902D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072550   (349981) от 14.11.2016
 
 VA - Deep House Collection Vol.96 (2016) [MP3|320 Kbps] <Deep House, Club House, Tech House>
@@ -21,6 +50,8 @@ VA - Deep House Collection Vol.96 (2016) [MP3|320 Kbps] <Deep House, Club House,
 ```bash
 magnet:?xt=urn:btih:36245A38719C0F5E3C823824D36B13D0D4774DE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Urban Loudness Friends Styles (2016) [MP3|320 Kbps] <Dancehall, Dance, Elec
 magnet:?xt=urn:btih:8AF489914D887D4C8DC130E5F14CA6B758D63DFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Осенняя Хит Атака Выпуск 50х50 (2016) [MP3|256 Kbps] 
 ```bash
 magnet:?xt=urn:btih:0889F1F32003726DE38B81B9E4005CA7D7E53C2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - DJ Ramirez: Remixes (2018 - 2019) bootleg [320 kbps|Mp3|CBR]<Pop, Club, Hou
 magnet:?xt=urn:btih:DC05F000621DC5CD450DB443F2CA46519B34CAAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ Motley Crue это целая эпоха в мире музыки. В сборн
 ```bash
 magnet:?xt=urn:btih:3211D8E6A1F0F029ECE328703A0280DC7BCFFD48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Dj Nejtrino: Remixes (2019) bootleg [320 kbps|Mp3|CBR]<Pop, Club, House>
 magnet:?xt=urn:btih:EEB8807D44494E0741C3BF8E4D5BA90F7C301156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Fern World: Magical Sounds Of Lo Fi Music (2018) [MP3|320 Kbps] <Lo Fi, Lou
 ```bash
 magnet:?xt=urn:btih:25211E2848344D8DE595867E948488625E85422F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - 60 Minutes. Old School Dance Music vol.11 (mixed by Dj V) (2022) [MP3|320 K
 magnet:?xt=urn:btih:70727742D0062C02878558996F6805845C64B9CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Welcome Singles November (2016) [MP3|320 Kbps] <House,  Bass House, Bounce,
 ```bash
 magnet:?xt=urn:btih:A915DF3ACA92E30DABEFF0328A44D1F28F937EE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - не Громкие новинки недели 37 (2019) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:D3B84F835D36208213302673FFBBC7B826AAF26F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +337,8 @@ VA - The Official UK Top 150 Best-selling Singles Of The 21st Century (2000-2012
 ```bash
 magnet:?xt=urn:btih:D1C8D3CE6E954A883857EBFF5CF49962D3D04E48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +366,8 @@ VA - Record Super Chart 607 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 ```bash
 magnet:?xt=urn:btih:F0FA4702D1A096BEB462B053A9FA53A759EDD184
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +402,8 @@ VA - Зарубежная дискотека (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:1CD21EB2EC1E220EF06647E0F726D614456A3D5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +430,8 @@ VA - Music News vol.42 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:96FA48F5D5F416F35936BC5F7F2291C72303946C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +460,8 @@ VA - Kiss FM Top 40: Октябрь (2017) [MP3|320 Kbps] <House, Pop, Dance>
 magnet:?xt=urn:btih:2C1D42E8566E87D4F35CBA5BFA2D2563A834D9C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +488,8 @@ VA - Лучшие хитовые треки в стиле Electro, Deep, Techno 
 ```bash
 magnet:?xt=urn:btih:901E4E482541368ADDB634FF5C77FA86483FD571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +524,8 @@ VA - Русские новинки Ноябрь  (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:D9EBFDFD98530C7A973F0E860D97DE1790C2F617
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +559,8 @@ VA - Sexy Trance #49 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Tr
 magnet:?xt=urn:btih:D041DE7A4C0A9DDF038A5A9A2DDF8D56F550EC1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +587,8 @@ magnet:?xt=urn:btih:D041DE7A4C0A9DDF038A5A9A2DDF8D56F550EC1B
 ```bash
 magnet:?xt=urn:btih:D7782A431B4D348121A39C032B85BBF9696F9086
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +620,8 @@ VA - Trance. Vocal Fascination 37 (2012)
 ```bash
 magnet:?xt=urn:btih:AD8286701D2BBDA18A211EC1F3C0799E3497405B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +656,8 @@ VA - Dubstep Impression (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:28AD66E163F1AF73AC184F8A1C3965B21C06BBF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +688,8 @@ VA - Trancern 38.3: Official Compilation (November 2012) (2012)
 magnet:?xt=urn:btih:12978500C9C7609A20426A99D3BFEDBD8CA53AD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +716,8 @@ VA - Europa Plus Eurohit Top 40 October 2015 (2015) [MP3|160-320 кб/с]<Pop, D
 ```bash
 magnet:?xt=urn:btih:CE1C824D1459E4B39D6A654342CC0F303F14535F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,6 +746,8 @@ VA - По волне моей памяти: Том 29 (Compiled by Виктор3
 magnet:?xt=urn:btih:170776B21D98F1E881210AEDA3899CB2D2CD885C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,32 +775,7 @@ VA - Top 100 Зайцев.Нет Октябрь (2015) [MP3|320 кб/с]<Pop, Da
 magnet:?xt=urn:btih:2572D8EDD3127D90280F4FD30B13CF8989935698
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179066   (351273) от 30.10.2017
-
-VA - По волне моей памяти: Том 28 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская эстрада>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Александр Маршал - Ливень 3:55
-02.  Игорь Саруханов - Парень с гитарой 4:22
-03.  Валерий Сюткин - Любите, девушки 2:36
-04.  Николай Носков - Паранойя 3:47(   Читать дальше...   )Жанр: Поп, Ретро, Советская эстрадаПродолжительность: 02:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC191FE07D552AC00A4A8B5A55F234D3A8F532F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

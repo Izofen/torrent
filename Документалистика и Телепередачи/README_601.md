@@ -1,3 +1,29 @@
+###  Публикация: 1010137   (806199) от 23.04.2016
+
+Новые русские сенсации. Шаляпин и Калашникова (2016.04.23) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_806199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа "Русские сенсации" - это еженедельное документальное приложение к "Программе Максимум". Созданная в лучших традициях расследовательской журналистики, программа развивает и углубляет этот жанр, затрагивая темы, о которых раньше никогда не рассказывало отечественное ТВ. Большинство фильмов - уникальные разработки, слишком громкие и масштабные (   Читать дальше...   )Телекомпания: НТВЖанр: ДокументальныйРежиссер: Глеб Ясиницкий, Андрей Куренков, Дмитрий ЦураСубтитры: ОтсутствуютПродолжительность: ~ 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455B7ECC6CE714217250699CD7DD54064B7972F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010138   (806200) от 23.04.2016
 
 Линия защиты. Прирождённые коллекторы (2016.04.20) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:5DE2B98D1AC613424614516FEC079CDDF2539E44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:5DE2B98D1AC613424614516FEC079CDDF2539E44
 magnet:?xt=urn:btih:9A788C98555FCE745227CB3E863F841070BD39DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:9A788C98555FCE745227CB3E863F841070BD39DD
 ```bash
 magnet:?xt=urn:btih:751C31796E605B052B089849BE15CBF8E21911B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:751C31796E605B052B089849BE15CBF8E21911B7
 magnet:?xt=urn:btih:9A3A70AC9EF14FC5F4610EA27CE1E45B805A3D9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:9A3A70AC9EF14FC5F4610EA27CE1E45B805A3D9A
 ```bash
 magnet:?xt=urn:btih:3F9197DBA4C9F1BA4224A97BFA9161D83C6311EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:3F9197DBA4C9F1BA4224A97BFA9161D83C6311EE
 magnet:?xt=urn:btih:D1EA78FEF3E299AFD4B2B701930FE9B5D249F1E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:D1EA78FEF3E299AFD4B2B701930FE9B5D249F1E4
 ```bash
 magnet:?xt=urn:btih:87525C294945128538444E0808672ECE0590E3ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:87525C294945128538444E0808672ECE0590E3ED
 magnet:?xt=urn:btih:AF6C47605FBDF13FBF3AAE5304BFF31559DEDD9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:AF6C47605FBDF13FBF3AAE5304BFF31559DEDD9A
 ```bash
 magnet:?xt=urn:btih:D15E03EE97E8F05CE5CBAB1298937F3DEBE763B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:D15E03EE97E8F05CE5CBAB1298937F3DEBE763B8
 magnet:?xt=urn:btih:FE10F6DF5930AC5E17BFC6475B2FA211EB9E8FD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:FE10F6DF5930AC5E17BFC6475B2FA211EB9E8FD0
 ```bash
 magnet:?xt=urn:btih:0D9F191CD2D7016FACE670DF241964A37907F72D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:0D9F191CD2D7016FACE670DF241964A37907F72D
 magnet:?xt=urn:btih:51FFBCC57522A797EC483B3C70FCC518094A50F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:51FFBCC57522A797EC483B3C70FCC518094A50F0
 ```bash
 magnet:?xt=urn:btih:5D265B84A54AF84A73A1C1BF9B7C8CF7A0EB7AC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:5D265B84A54AF84A73A1C1BF9B7C8CF7A0EB7AC0
 magnet:?xt=urn:btih:7F09D2E4EBBD21E042A9422268BC8F4F2BB60A78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:7F09D2E4EBBD21E042A9422268BC8F4F2BB60A78
 ```bash
 magnet:?xt=urn:btih:FA5B475E12675EDC6C908755C12ACDA56A9E7882
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:FA5B475E12675EDC6C908755C12ACDA56A9E7882
 magnet:?xt=urn:btih:FB7D9E14BB168002A4744097CE3D99BD8CE86560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:FB7D9E14BB168002A4744097CE3D99BD8CE86560
 ```bash
 magnet:?xt=urn:btih:1D2ADAB0D3B3C1815F24C83384406F578849C3CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:1D2ADAB0D3B3C1815F24C83384406F578849C3CE
 magnet:?xt=urn:btih:27BA11429779266B764A02FC3502FFCA53203BAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:27BA11429779266B764A02FC3502FFCA53203BAD
 ```bash
 magnet:?xt=urn:btih:2B07C9F42ACF62BBA1E89F927F87A5E4881FB07C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:2B07C9F42ACF62BBA1E89F927F87A5E4881FB07C
 magnet:?xt=urn:btih:C0FACD2A100243AFB917F3AD0FFC96F0E2E57A35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:C0FACD2A100243AFB917F3AD0FFC96F0E2E57A35
 ```bash
 magnet:?xt=urn:btih:CF86AFE47E1B1DC7FD12FDB651DC623202A81D41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:CF86AFE47E1B1DC7FD12FDB651DC623202A81D41
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:CF86AFE47E1B1DC7FD12FDB651DC623202A81D41
 ```bash
 magnet:?xt=urn:btih:F9ADD92DF1E0E91C4ACB7A24C4CB4DCD6242D4ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:F9ADD92DF1E0E91C4ACB7A24C4CB4DCD6242D4ED
 magnet:?xt=urn:btih:8A3BD67DC67A3FB7373049BB27B1A520432F9E70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:8A3BD67DC67A3FB7373049BB27B1A520432F9E70
 magnet:?xt=urn:btih:12A3154CC1B9BB0EAA9415095A6E6E788B82B891
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 658172   (807688) от 19.05.2013
-
-Дунай: Европейская Амазонка. От Чёрных лесов до Чёрного моря / Danube: Europe's Amazon. From The Black Forest to The Black Sea (2012) HDTVRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дунай, протекающий по территориям 10 стран, является самой многонациональной рекой в мире и второй по протяжённости рекой в Европе (после Волги), объединяющей разнообразные ландшафты и природные зоны. Река берёт исток на территории Германии, в горах Шварцвальда. Далее Дунай протекает или является границей десяти государств: Германия, Австрия, Словакия, Венгрия, Хорватия, (   Читать дальше...   )Производство: Германия, Франция, США, ScienceVision, ORF Universum, Norddeutscher Rundfunk (NDR)Жанр: Документальный, природа, флора, фаунаРежиссер: Михаэль Шламбергер, Рита ШламбергерПеревод: Профессиональный одноголосый (АРК-ТВ, текст читал Игорь Тарадайкин)Продолжительность: 00:45:00
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -24,6 +24,8 @@ Kiss – Creatures Of The Night (1982) 40th Anniversary 2022 remaster [DTS-ES Di
 magnet:?xt=urn:btih:695242D560B937D657DE3853DCA81FF126D29FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ A4 Сцена прощания(   Читать дальше...   )Жанр: Rock
 magnet:?xt=urn:btih:9EFF4AC77BF50A3704E82B84B4F0FB9D6C5FCD82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ Gloria Estefan - Greatest Hits (1992) 2002 remix [DTS 5.1 CD-DA|44.1/16|image+.c
 ```bash
 magnet:?xt=urn:btih:703EAE6D0E8F69C68F70A2DAEB72042F532148DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ Side A:
 magnet:?xt=urn:btih:50A56115793206BD7460245434412BB5EC6706E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ magnet:?xt=urn:btih:50A56115793206BD7460245434412BB5EC6706E1
 ```bash
 magnet:?xt=urn:btih:D080BC1187730DE3931B2E38C72E2E47942B736B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ Lenny Kravitz - Greatest Hits (2000) Reissue, 2022, Virgin;Universal Music Hong 
 magnet:?xt=urn:btih:5BFCE7AC8A2DA71D31BB7019BF279EC650370079
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ Bathory — шведская группа, внёсшая значительны
 ```bash
 magnet:?xt=urn:btih:407B5A3C6067B04B9BFBA040B26DADB14FCF09C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +220,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:82C712DB72B74F771C8CCB2D9B8C39F647EBEB45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ SHM-SACD (Super High Material SACD) is the ultimate Super Audio CD that utilizes
 magnet:?xt=urn:btih:E6DFD828195E35DFE6228D03FB2F24A6932F2F37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ Janis Joplin - Легенды Зарубежного Рока (2001) Compilation
 magnet:?xt=urn:btih:7B2EC3EA1552B50F7040E67FAA32B619846642D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ Gloryhammer — шотландская пауэр-метал-группа, ос�
 ```bash
 magnet:?xt=urn:btih:CD43CF7A96F69B1C66BAF50A6C8A2AAA715EC087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ Side A:
 magnet:?xt=urn:btih:EA6FAB84FC4BA1F43C91B6643E388F302776B9CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ Hiromi - Spectrum (2019) Japanese Edition [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Ja
 ```bash
 magnet:?xt=urn:btih:53BB26AEB46DCB90CB4F7CB22944F535FE6BB9CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ Side A:
 magnet:?xt=urn:btih:ABBB3609798A7AC5A9202CBF01CA363336DD64D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ Brahms - Piano Quartet No. 1, Op. 25
 ```bash
 magnet:?xt=urn:btih:E3C660166311E5563D4DABB66BFA0E8F67AA48B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ Master / Мастер (1990) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Thrash, Hea
 magnet:?xt=urn:btih:F49ECB2007F2D0C9E059AD1DD6E4C9A45044A0A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ A4 Точка Отсчета(   Читать дальше...   )Жанр: Hard R
 ```bash
 magnet:?xt=urn:btih:EC495827F156A441266CC297CEF0F26BC359F5A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ Alkonost - Studio Albums (15 releases) (2004-2025) hand made [restored, declippe
 magnet:?xt=urn:btih:906218C82AA30C8B47261EEF2C3CEC4C1E1C6E97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ Within Temptation - Shed My Skin (2021) hand made [restored, declipped] [FLAC 2.
 ```bash
 magnet:?xt=urn:btih:9211FAC881F4F8591F674156A56E27D452602055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ A4 Wishing(   Читать дальше...   )Жанр: Prog Rock, Symphonic Roc
 magnet:?xt=urn:btih:B3874243E70F4E3A7B443B1D14C4566ED417DBF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ B1 The Chosen Few(   Читать дальше...   )Жанр: Thrash MetalПр�
 ```bash
 magnet:?xt=urn:btih:06469C1096A26FC42BB87F979892593406538DE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ A4 Goin' Out Of My Head • Я Схожу С Ума(   Читать дальше
 magnet:?xt=urn:btih:9BCC3AD9183F07B42C3A2D754456B4F7D1CFB450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ Kiss – 42 Альбома (1974-2012) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Hard 
 ```bash
 magnet:?xt=urn:btih:4DEB28FEA7D153A67F73376AABE59CEDBDA1D44E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +686,8 @@ Pink Floyd - The Dark Side of the Moon (1973) [FLAC 2.0|96/24|image+.cue|Vinyl-R
 magnet:?xt=urn:btih:FE8A338EEA5B1C10C759FEF4DC3F42E42B1881AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ A4 The Diary Of Horace Wimp(   Читать дальше...   )Жанр: Pop Roc
 magnet:?xt=urn:btih:F22BDD8CC9582039405F5DEF751DCDEABED0FE55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ A4 One Step Closer(   Читать дальше...   )Жанр: Pop Rock, Prog R
 ```bash
 magnet:?xt=urn:btih:A4BA8AC14B7F5B6963C6A316363423C56132203D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

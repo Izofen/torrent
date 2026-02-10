@@ -20,6 +20,8 @@ Liveclasses, Виталий Новиков | Продающее ценообра
 magnet:?xt=urn:btih:C2E0F9EE44D3CF7F45E4CED714423C4E11F96773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Skillshare, Daniel Kim | Sci-Fi Vehicle Creation with Blender and Substance Pain
 ```bash
 magnet:?xt=urn:btih:9E3393ABF66FF1D89FFC6F19D7B99C63742365D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Skillshare, Daniel Kim | Sci-Fi Character Armor with Blender and Substance Paint
 ```bash
 magnet:?xt=urn:btih:EAA9763E1CF6FCA6B9A0CE07FDF12C292DC21406
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:EAA9763E1CF6FCA6B9A0CE07FDF12C292DC21406
 magnet:?xt=urn:btih:BF17CD52BBAC4F5084A12478282B00D9A4FA9B6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Skillshare, Daniel Kim | Space Marine Helmet - 3D Game Art with Blender and Subs
 magnet:?xt=urn:btih:F54E41CB40E5583C03E16190DF43CAE6DDC4ECB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Skillshare, Daniel Kim | Spaceship Concept Art with Affinity Photo and Blender 2
 ```bash
 magnet:?xt=urn:btih:D2CCF478D802B3BC2D8A19BEF47CBCBE2B62D99E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:D2CCF478D802B3BC2D8A19BEF47CBCBE2B62D99E
 magnet:?xt=urn:btih:8668EAC347CE5B7D53F5CA66BF565F3D9CFD37B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:8668EAC347CE5B7D53F5CA66BF565F3D9CFD37B3
 ```bash
 magnet:?xt=urn:btih:F91C74E5496BBE571A9E5E276055BC8CAA561487
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:F91C74E5496BBE571A9E5E276055BC8CAA561487
 magnet:?xt=urn:btih:B9568117A0473934193484CE59B480B7E5DA225C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:B9568117A0473934193484CE59B480B7E5DA225C
 magnet:?xt=urn:btih:30A1FB7E8D251233582F7B9030C2A71084688E0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:30A1FB7E8D251233582F7B9030C2A71084688E0C
 ```bash
 magnet:?xt=urn:btih:09CE47B955876EA5656AA91F2D835BF66666AF6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:09CE47B955876EA5656AA91F2D835BF66666AF6C
 magnet:?xt=urn:btih:F2CCA92C8AC2564D4EE2F43A1E492961FA0FE126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Learning the basics of a job is one of the most important things to consider. In
 ```bash
 magnet:?xt=urn:btih:E4DCC68369DCA99451ADD46E25D764AEE08DBBA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Domestika, Ruth Wilshaw | Fantasy Landscapes with Watercolor & Gouache (2022) WE
 ```bash
 magnet:?xt=urn:btih:C754219BFA5BB487BD19D52A183B8084E3D393A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ Dream&Draw, Анастасия Козлова | Марафон по акваре
 magnet:?xt=urn:btih:F2355ED17B05D0624DCD5BBA21402E2DDB3AD0BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:F2355ED17B05D0624DCD5BBA21402E2DDB3AD0BA
 ```bash
 magnet:?xt=urn:btih:6E76D7DB649F0006F2BA2A4AB93F23C7BC1E1CA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Designlectures, Ольга Косырева | Коллекционный диз�
 magnet:?xt=urn:btih:170C59101204D5301C90EBD8E0B3BB1131C1E374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:170C59101204D5301C90EBD8E0B3BB1131C1E374
 magnet:?xt=urn:btih:9ACEA155F91A83B13B7A56ECD480352B4049C377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:9ACEA155F91A83B13B7A56ECD480352B4049C377
 ```bash
 magnet:?xt=urn:btih:2358EFEDEC48680B43FA4AAC3A4A9723E1E3BE2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:2358EFEDEC48680B43FA4AAC3A4A9723E1E3BE2F
 magnet:?xt=urn:btih:7548E47C3B4A1F4F34553ED9E00D351169E3B41B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:7548E47C3B4A1F4F34553ED9E00D351169E3B41B
 magnet:?xt=urn:btih:7E3AD84ADEF39F95FC57B01D9D27221A9CED7B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ Udemy, Hossein mashayekhi | Complete Unreal Engine 5 Mastery (2023) WEB-DL [AD] 
 ```bash
 magnet:?xt=urn:btih:9FA3280C50177AF22AAF19AA3DBF765732E1C249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:9FA3280C50177AF22AAF19AA3DBF765732E1C249
 magnet:?xt=urn:btih:44364B2075DCA1770E372C4A53AE9F34D6321912
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ Udemy, Raffi Bedross | Real-time VFX in EmberGen and Unreal Engine 5 (2023) WEB-
 ```bash
 magnet:?xt=urn:btih:42AED4DFA8E79D4F4B00E1C979859EC064E2080F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:42AED4DFA8E79D4F4B00E1C979859EC064E2080F
 magnet:?xt=urn:btih:58FF8DD8C02EDCE8D61ECC72A34EEA307B5DFF42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ Udemy, Nafay Sheikh | Unreal Engine 5 - Product Animation - Visualization (2023)
 ```bash
 magnet:?xt=urn:btih:12C9B169F097554F84DF2C3E258245CA0D12421F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

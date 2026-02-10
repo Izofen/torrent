@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:19B8E7CC5F48D447DF6282B74C14822274FF48E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Navagon - Prepare To Meet Thy God (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 ```bash
 magnet:?xt=urn:btih:57A43572BE83E00C6CCF4425B49A9FE93CF0D1AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ El Reno Renardo - Regreso al Metalverso (2024) [FLAC|Lossless|WEB-DL|tracks] <He
 magnet:?xt=urn:btih:89807435548C2232FB6277BEF52013D981810DB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ El Reno Renardo - Regreso al Metalverso (2024) [FLAC 24/44.1|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:BCC93E86C554D095C525E7FCACF312E62DC5CEFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Stan Getz - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <West Coast Jazz,
 magnet:?xt=urn:btih:FA17A464DA040E79EBAC1B825FAF1C84E20BF78D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ Navicat для Redis — это простой в использовании в�
 magnet:?xt=urn:btih:C83A93C485D98F67268D701834D6666247CCDBFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ Navicat for SQLite on Mac 16.3.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9FF47E6C9EE29C8C9FB55B8198F97543847F5299
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ Text Workflow 1.8.1 [En]
 magnet:?xt=urn:btih:91E29E3F3D6B2BF3788E38D5EBA8BCB8A4D0CBF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Navicat for Oracle — идеальное решение для админист
 ```bash
 magnet:?xt=urn:btih:083760C3D4D18A677B0F860E25DB01B55E17CCE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Infant Island - Obsidian Wreath (2024) [FLAC|Lossless|WEB-DL|tracks] <Screamo, H
 magnet:?xt=urn:btih:FB2BE31B89E0743733EC8F66F3949E463C312E84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ Edge Of The Blade - Trick Of The Light (2023) [FLAC|Lossless|image + .cue] <Melo
 ```bash
 magnet:?xt=urn:btih:6B63C107CF70237E119299D94519D832FEFCF655
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +329,8 @@ Care Of Night - Love Equals War (2018) Japanese Edition [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:6B9542A9D203C8A835DA30C07A74CB402265B70C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ magnet:?xt=urn:btih:6B9542A9D203C8A835DA30C07A74CB402265B70C
 ```bash
 magnet:?xt=urn:btih:DDF665A549C7ABD964AF3F159BC4638604FAC086
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +384,8 @@ Atlas - Built To Last (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 magnet:?xt=urn:btih:13B31FA3F6FEF3D6C4CC26D49BF6E9F7E84F8355
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +413,8 @@ Emil Sigfridsson - Back to Yesterday (2023) [FLAC|Lossless|image + .cue] <Melodi
 magnet:?xt=urn:btih:EC90F1DA491D4CE94B28F7EE7320525549E8735B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ magnet:?xt=urn:btih:EC90F1DA491D4CE94B28F7EE7320525549E8735B
 magnet:?xt=urn:btih:0839C16312B7ABDA5AB05E5EEF12C05C22A9797C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:0839C16312B7ABDA5AB05E5EEF12C05C22A9797C
 ```bash
 magnet:?xt=urn:btih:B4F4E20221B3CBBB72777F0C8AD5334727B336B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +494,8 @@ Ray Noir - Scorpio (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Pop>
 magnet:?xt=urn:btih:75EF0754E530C26B2CCA46CA6D6BA532CFAD8311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +523,8 @@ Edge Of Forever - Ritual (2023) Japanese Edition [FLAC|Lossless|image + .cue] <M
 magnet:?xt=urn:btih:69340A79F2725BFFA106526DCCE02418A0AA1DBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +548,8 @@ magnet:?xt=urn:btih:69340A79F2725BFFA106526DCCE02418A0AA1DBA
 ```bash
 magnet:?xt=urn:btih:976FBBC5B7FBA2DDAEB01F68D51760CF8A8BE0AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +578,8 @@ Crucifer - Hell Is for the Hopeful (2024) [FLAC|Lossless|WEB-DL|tracks] <Death, 
 magnet:?xt=urn:btih:43028868F04555452CD5591F86744F95DF5FBF87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ magnet:?xt=urn:btih:43028868F04555452CD5591F86744F95DF5FBF87
 ```bash
 magnet:?xt=urn:btih:3101AB49A11DF18EAB82C921B574529BF688E281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +632,8 @@ magnet:?xt=urn:btih:3101AB49A11DF18EAB82C921B574529BF688E281
 magnet:?xt=urn:btih:9D7E6FD0CF5369BD4A463B1E9B8073C4E67FA5B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +658,8 @@ Find Any File не содержит никаких подменю с настр�
 ```bash
 magnet:?xt=urn:btih:66E0148F223583A9B6820BEBC207F1C0EA7B4789
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +686,8 @@ Tagr - редактор метатегов. Tagr поможет вам орга�
 magnet:?xt=urn:btih:6B8F3B0E878515FDCC6EA7B541A4F4B7C82A2189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ magnet:?xt=urn:btih:6B8F3B0E878515FDCC6EA7B541A4F4B7C82A2189
 ```bash
 magnet:?xt=urn:btih:778663F03AE11BB1455A6D3A526C2BEA9B6EDB92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ ABRISS - это атмосферная игра с механикой на ос�
 magnet:?xt=urn:btih:3AC75BC148EF751C05FC906247036087A13FEA1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kerbal Space Program - многожанровая игра, где вы созд
 ```bash
 magnet:?xt=urn:btih:D1DD64DCA5C5A29419ED1CAD75F6CA2449FAF5B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Christmas Massacre (2021) [En] (1.02) License GOG
 magnet:?xt=urn:btih:AA8647DA6C9CF651AACF2E405316B321907AA3A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ New York Mysteries 5: Power of Art / Загадки Нью-Йорка 5: Сил�
 ```bash
 magnet:?xt=urn:btih:012D336A0CB47A711F32536A6B4761EB4F942740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Reflections of Life 11: Spindle of Fate (2022) [En] (1.0) Unofficial [Collector'
 magnet:?xt=urn:btih:E457E19B32AC6A6058621DC163EF182851FA2725
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Gordian Quest (2020) [Ru/Multi] (1.4.2) License GOG
 ```bash
 magnet:?xt=urn:btih:0DB57E2159C06D600DCCBF231C8873EB44BD9B52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Samudra - двухмерная приключенческая головолом
 magnet:?xt=urn:btih:EA7F666189BC980B486130B5B65A0CDEBA4C4C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Little Witch Nobeta - трехмерная экшен рпг уже как тр�
 ```bash
 magnet:?xt=urn:btih:9D10385089991E069035EE7AAAA1C0511E7DF4C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Demonologist — это кооперативная игра ужасов, в к�
 magnet:?xt=urn:btih:D19DACFA38F00242E66E6791202CED5D36546033
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Fall of the Dungeon Guardians - Dungeon Crawler RPG с видом от пе�
 ```bash
 magnet:?xt=urn:btih:EDB94796D57B93B708C5F5BECB3F4C5946091114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Diary of Lucie - это сюжетно-ориентированный экшен
 magnet:?xt=urn:btih:AC60188FD7FF5CC3CE11983295E07DCFB218DA38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Ghostbusters: Spirits Unleashed — это увлекательная много
 ```bash
 magnet:?xt=urn:btih:FE19EBAF17C067347A25F1F43763A7A43B43F35F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Unsolved Case 4: Above the Law (2023) [Multi] (1.0) Unofficial [Collector's Edit
 magnet:?xt=urn:btih:FBB09CCE08949FCABFC7CB17FCA18B33B0BDC752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ DOOM Eternal от id Software – прямое продолжение хита D
 ```bash
 magnet:?xt=urn:btih:54BD0BF10E4776D13024D7AA927F16BE08626087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ CONVERGENCE: A League of Legends Story - динамичный платформе
 magnet:?xt=urn:btih:314E10146197837ACC4F95C11167517B69103C56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Think of The Children - это веселая аркада и по совмес�
 ```bash
 magnet:?xt=urn:btih:2AD8C698DC3BE9A0E77376F0FEADD1081B8E5332
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Saint Kotar: The Yellow Mask - хоррор-квест, представленн
 magnet:?xt=urn:btih:8DE8756B2E17D96CF4956CC45A703B7715BB8C25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Cosmic Wheel Sisterhood (2023) [Ru/Multi] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:EE5AB3D4C0321909D42DB5D32028509C4BA54B81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ DOOM Eternal от id Software – прямое продолжение хита D
 magnet:?xt=urn:btih:33090F084D6EEB33740938C9FEE5A663C98FDDD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Isonzo (2022) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:824D0CD61C8C906B168A51CA1F77F377ED05E04E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Revenge of ILCOIN (2023) [En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:A67B904AA64D79AC5C8B85D003B299E6BC3D1AFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Terminal 81 (2023) [Ru/Multi] (1.2.7) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:542E7652388D43C16C4892AED9A29DFFA5D8E9F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Lempo – это психологический хоррор, вдохновле
 magnet:?xt=urn:btih:C32CB1AB6037CBF125E71F85537D433500978A9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Mountain Bicycle Rider Simulator (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:EE5D4E4363BBC7D572B29FC3204C4D94CA63336C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Darkest Tales (2022) [Ru/Multi] (1.05.1) License GOG
 magnet:?xt=urn:btih:6E96C17CB03EC3FD00813F8BE143C47FC4130B28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Lovecraft’s Untold Stories 2 – ролевой экшен с элемента
 ```bash
 magnet:?xt=urn:btih:329C3C79331B2BA90D8872D568261D0E86FC225C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

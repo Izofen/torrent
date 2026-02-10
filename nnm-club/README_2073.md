@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5FCC0B91F9D3693201583B31601A5E7193EA7DEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:5FCC0B91F9D3693201583B31601A5E7193EA7DEF
 ```bash
 magnet:?xt=urn:btih:CEBE8372DF4E344E307EDF8A59840DEEA5BCC70A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:CEBE8372DF4E344E307EDF8A59840DEEA5BCC70A
 magnet:?xt=urn:btih:323C0719806AEE18C6E7BF5188A267C3C1D168B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Noctuary - сплав визуальной новеллы и приключен�
 ```bash
 magnet:?xt=urn:btih:08819F9E24D0A9789D9B4B8698C1E7FD3AE99C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:08819F9E24D0A9789D9B4B8698C1E7FD3AE99C62
 magnet:?xt=urn:btih:53F41C4C8226CE9130224DE50982CB959A1E11A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Tribe Must Survive погружает геймеров в мрачные в�
 ```bash
 magnet:?xt=urn:btih:A35C7E1A37DE77B246F5AC6176AF7F5AA021A2B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Field of Glory: Kingdoms - это необычная стратегия, поз�
 magnet:?xt=urn:btih:422AFD139DA244A4F048FAFEDEDD44C84D03B7DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Mercenary Battle Company: The Reapers бросает вас в неистову�
 magnet:?xt=urn:btih:23F63B7830212AE02B7F641B76E15F8E723CBA8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ AyuGram - это клиент телеграмма, основанный на ex
 ```bash
 magnet:?xt=urn:btih:EE3E57887657238076F25EED034AD5F0C3A009EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:EE3E57887657238076F25EED034AD5F0C3A009EE
 magnet:?xt=urn:btih:795F31DC5C7568052E01EF74125FD25CA4731665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:795F31DC5C7568052E01EF74125FD25CA4731665
 ```bash
 magnet:?xt=urn:btih:7A9452E16423C7F57CF2098D1351D78912E2FC24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:7A9452E16423C7F57CF2098D1351D78912E2FC24
 magnet:?xt=urn:btih:EC53390E9FDBCB394F4C4A81B20D03A4736E91BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Windows 10 Pro 22H2 19045.4412 x64 by SanLex [Lightweight] [Ru/En] (2024.06.05)
 magnet:?xt=urn:btih:3BBE76E7E17FF98CA016F3A574962CE1894F98E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Medieval Kingdom Wars – глобальная стратегия в реаль�
 ```bash
 magnet:?xt=urn:btih:7743B27E0E5A9766F600C3F64910F8E96695F25F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ VA - Понемногу отовсюду by Yuridar #A (1992-2022) Compilation A
 magnet:?xt=urn:btih:F145985644507A19E896C32EAB0F6EA801E52CBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:F145985644507A19E896C32EAB0F6EA801E52CBA
 ```bash
 magnet:?xt=urn:btih:94EA5D23FCDBBD044C30E0F997C2D3E83E09AACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Call of Duty: Black Ops - седьмая часть знаменитой сер�
 magnet:?xt=urn:btih:01BB0705A8534E6CE8F113A52214EA0A23EC5BCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:01BB0705A8534E6CE8F113A52214EA0A23EC5BCB
 ```bash
 magnet:?xt=urn:btih:8DD3F177F3952B3B3D5514152F70FA8ABEB61C65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:8DD3F177F3952B3B3D5514152F70FA8ABEB61C65
 magnet:?xt=urn:btih:48A9EC349374BFAAC81EE520C3C563C53C77264D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Grand Theft Auto IV (2008) [Ru/Multi] (1.0.8.0/1.1.3.0/dlc) Repack FitGirl [Comp
 magnet:?xt=urn:btih:CC472D398D1434184C7BC08E58ABA88A1E76DE5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Perimeter / Периметр (2024) [Ru/En] (3.1.3) Repack FitGirl [Legate Editi
 ```bash
 magnet:?xt=urn:btih:2B9E2DED279E73B701AFD8CD4318137FD5AAC3A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ VA - Club&Dance Летние Треки Remix NNM (2024) [MP3|320 Kbps] <Club, D
 magnet:?xt=urn:btih:D8B39CDE3316F94C58AB59A83466F228975D73AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Total Commander является самым мощным и стабильным
 magnet:?xt=urn:btih:7A6B6413C20C1904A8A59F37ECF1F06E38E2951E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Alien: Isolation - ужастик от первого лица с элемент
 ```bash
 magnet:?xt=urn:btih:E0FE21B7B5CC813147D75DC64C75655967DCA4BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Live синхронизирует все и работает в режиме р�
 magnet:?xt=urn:btih:ECBA1F77BC11EB429B6E72FD2555F0A757060C4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:ECBA1F77BC11EB429B6E72FD2555F0A757060C4A
 ```bash
 magnet:?xt=urn:btih:BF0CC245CB3D4B31EBCCA01C8FA5C77DBD408FEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

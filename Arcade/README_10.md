@@ -19,6 +19,8 @@ Voidwrought (2024) [Ru/Multi] (0.27.56) Scene Tenoke [Deluxe Edition]
 magnet:?xt=urn:btih:E867D091DD076CBCE9D355531ADD7A4535B7CF15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ashes of the Union (2024) [Ru/Multi] (Patch #7 Hotfix) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:D3C5D07F290A0D0F62D4A65556CE94CE9E3D0A79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Guilty Gear -Strive- (2021) [Multi] (1.40/dlc) Scene Tenoke
 magnet:?xt=urn:btih:F0C287BA978F2597E70FDF28432117C25A10DA41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Vampire Survivors (2021) [Ru/Multi] (1.12.105/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:A0FB2D8691C49B06C53F0C6EB36EFC05C9EF43C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Jujutsu Kaisen: Cursed Clash (2024) [Multi] (20240925/dlc) Scene Tenoke [Ultimat
 magnet:?xt=urn:btih:ED1BD19BA6075D7E378518938E5999C78D5E44C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Deadly Days - уникальная стратегическая игра в ан
 ```bash
 magnet:?xt=urn:btih:214E9A78A5CC1E016C1023D99744ED9255767E6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Brotato (2022) [Ru/Multi] (1.1.3.0/dlc) Repack seleZen
 magnet:?xt=urn:btih:071353CA34950BE0AB109AB1B81DF2C52D0BD409
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:071353CA34950BE0AB109AB1B81DF2C52D0BD409
 ```bash
 magnet:?xt=urn:btih:F1C5C7ABB04CD09811FDF0C62E5B38B9452E1467
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Finding Frankie (2024) [Ru/Multi] (1.0.0) Scene Tenoke
 magnet:?xt=urn:btih:0EB903DBE4E1FB4939244EADB065C3F7C5BE08DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Fall / 沦陷 (2024) [Ru/Multi] (build 16154369) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:996B247759200451B910F3AB858EF4BF16D3514C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Fall / 沦陷 (2024) [Ru/Multi] (build 16154369) Scene Tenoke
 magnet:?xt=urn:btih:109AECA51590EA5B1BDC8B8F4784B753F46D9BA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Super Dark Deception (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:46F08193551096E3576E501B2B31495C81367C5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Rugrats: Adventures in Gameland (2024) [En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:66BBC6D34344285E7BC6E82A22EB8F56AF21F1EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Yars Rising (2024) [Multi] (1.1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:75A05319EECCB32E2E7C4E5C28873421094CC5B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Supermoves предлагает игрокам освоить фриран и п
 magnet:?xt=urn:btih:331C9F65648C911FC3713D25EE85383D2D159C0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Ember Knights (2023) [Ru/Multi] (2.0.0/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:8D8C72BCBF2EFEBFC2B7267D576B8459C49887FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Glitchpunk - отдушина для всех любителей динамич�
 magnet:?xt=urn:btih:DB2C297048552B6D8B5272627D466E914E95BDD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Glitchpunk - отдушина для всех любителей динамич�
 ```bash
 magnet:?xt=urn:btih:8129DBA183FD3A75AD1CD3EF12F4053973491D7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Portal with RTX (2022) [Ru/Multi] (Build 14355597) Repack Other s
 magnet:?xt=urn:btih:C661DE9D4C44270A61A3CFB21954AE1CB2583164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ HellO — это крупнейшая компания по поставкам �
 ```bash
 magnet:?xt=urn:btih:D609F99572FA30B48F5E8E1CA433CA1FC7F1AD30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Portal 2 (2011) [Ru/Multi] (Build 14822445) Repack Other s
 magnet:?xt=urn:btih:C3A27C45950FA4EC1301EA74F211630C32402991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Portal - игра от Valve для одного игрока, действие 
 ```bash
 magnet:?xt=urn:btih:AF023E1CB907EE3E54C8B7CE78749E37D53AA80B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Super Mario Party Jamboree (2024) [Ru/Multi] (1.1.0) Repack FitGirl
 magnet:?xt=urn:btih:0DA3D748E353F2DECCF3D2537137F3655E8673BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Wooden Sen'SeY (2013) [Multi] (4.2.2.12621) Scene PROPHET
 ```bash
 magnet:?xt=urn:btih:EBA97EAE0C99E14C041D1A3376D4089948F3BBB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ EARTH DEFENSE FORCE: WORLD BROTHERS 2 (2024) [Multi] (1.0/dlc) Repack FitGirl
 magnet:?xt=urn:btih:36217E8777CCA80C165DB9F3F6FB47722F779124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Freedom Planet (2015) [En] (1.21.5) License GOG
 ```bash
 magnet:?xt=urn:btih:404933E945E69C97D1FBF2CFEB32819CDCB2D46C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

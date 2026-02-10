@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D0D6C2AD53F40207AC3F6D75976741E77EDBB7D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:D0D6C2AD53F40207AC3F6D75976741E77EDBB7D8
 magnet:?xt=urn:btih:E39CCE9226B0D445127FAE0D17A0561EB7F64320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:E39CCE9226B0D445127FAE0D17A0561EB7F64320
 ```bash
 magnet:?xt=urn:btih:9C6399C7BF8C16F55F1086C04B95D0FDEB78D0CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:9C6399C7BF8C16F55F1086C04B95D0FDEB78D0CE
 magnet:?xt=urn:btih:3ABC24793D81C79A1E063011C399C60F9B9C33DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:3ABC24793D81C79A1E063011C399C60F9B9C33DD
 ```bash
 magnet:?xt=urn:btih:B6CD6C7E270A09E4A7AB674E8D6839C1F83032E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:B6CD6C7E270A09E4A7AB674E8D6839C1F83032E8
 magnet:?xt=urn:btih:C9ECBD4C966A6266C95C44E2B487DD1A708D3E7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:C9ECBD4C966A6266C95C44E2B487DD1A708D3E7F
 ```bash
 magnet:?xt=urn:btih:840FF4AFA32B6D94406F7616D5627BE0353FD274
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:840FF4AFA32B6D94406F7616D5627BE0353FD274
 magnet:?xt=urn:btih:DDE778DAFE09869991A247F6A227AF0CDEF927FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:DDE778DAFE09869991A247F6A227AF0CDEF927FE
 ```bash
 magnet:?xt=urn:btih:692CD0A4268B3F89CDD57F5C3057F006AF0B62AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:692CD0A4268B3F89CDD57F5C3057F006AF0B62AA
 magnet:?xt=urn:btih:089D1A2BE4CD0C069376DC8C16B2DDA6E5B355D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:089D1A2BE4CD0C069376DC8C16B2DDA6E5B355D4
 ```bash
 magnet:?xt=urn:btih:444B3FE223FA8AA731D85B68CBECD84DEFF829A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:444B3FE223FA8AA731D85B68CBECD84DEFF829A7
 magnet:?xt=urn:btih:4D0C9755EEAF0C75E602342BE9634CA14A1F131D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:4D0C9755EEAF0C75E602342BE9634CA14A1F131D
 ```bash
 magnet:?xt=urn:btih:9DBDBB27D2E045D3630079FAA9A71362E3A95551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:9DBDBB27D2E045D3630079FAA9A71362E3A95551
 magnet:?xt=urn:btih:992A58919870E0C1AC36F154E3AD86699A82B878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:992A58919870E0C1AC36F154E3AD86699A82B878
 ```bash
 magnet:?xt=urn:btih:0EEC76D6D6EC05A9E4D15056475C54417501ED2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:0EEC76D6D6EC05A9E4D15056475C54417501ED2C
 magnet:?xt=urn:btih:593277B7776C07702AA05BB7A77053E1BD6881F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:593277B7776C07702AA05BB7A77053E1BD6881F4
 ```bash
 magnet:?xt=urn:btih:C3073FC012A9BFC9DC4CABE39259E9A17959933C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:C3073FC012A9BFC9DC4CABE39259E9A17959933C
 magnet:?xt=urn:btih:04C0316622376B900817D4270299C355D9E2036F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:04C0316622376B900817D4270299C355D9E2036F
 ```bash
 magnet:?xt=urn:btih:160CBA0E1D1896ED0DA5C9ADFB42EEE5C5E4628B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:160CBA0E1D1896ED0DA5C9ADFB42EEE5C5E4628B
 magnet:?xt=urn:btih:EE197B03C86BF1684C1D4037EBD352B9EBC6A483
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:EE197B03C86BF1684C1D4037EBD352B9EBC6A483
 ```bash
 magnet:?xt=urn:btih:949DF7A1C7F91C8D0D5AE53690697439B430D310
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:949DF7A1C7F91C8D0D5AE53690697439B430D310
 magnet:?xt=urn:btih:BDDC8DAB9F616A61C8BE3E93AF7ACEC582CC817E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,37 @@ magnet:?xt=urn:btih:BDDC8DAB9F616A61C8BE3E93AF7ACEC582CC817E
 ```bash
 magnet:?xt=urn:btih:23325C2BC342B560F93F9E2C2CE88D0F5F0E2176
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 294786   (338030) от 26.09.2022
+
+Мультфильмы Владимира Дегтярёва. Сборник (1954 - 1968) 3хDVD5
+
+>>Мультфильмы
+>>Отечественные Мультфильмы (коллекции, сборники / *логии)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_338030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборники мультфильмов режиссера  Владимира Дегтярёва:
+DVD 1  - Паровозик из Ромашкова - сборник мультфильмов
+DVD 2  - Кто самый сильный? - сборник мультфильмов
+DVD 3  - Кто сказал мяу? - сборник мультфильмовЖанр: Рисованая анимация, Кукольный, ДетскийРежиссер: Владимир ДегтярёвАктеры: Клара Румянова, Георгий Вицин, Мария Виноградова, Анатолий Папанов, Юлия Юльская, Михаил Яншин, Мария Виноградова, Тамара Дмитриева, Юлия Юльская, Роза Макагонова, Владимир Володин, Александра Денисова, Зинаида Бокарева, Александр Баранов, Юрий Хржановский, Рина Зеленая, Лев Потемкин, Александр Баранов, Юрий Хржановский, Рина Зеленая, А. Хвыля, А. Грибов, С. Цейц, (   Читать дальше...   )Субтитры: отсутствуютФормат: DVD VideoПродолжительность: 01:23:49 + 01:16:54 + 01:15:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +650,8 @@ magnet:?xt=urn:btih:23325C2BC342B560F93F9E2C2CE88D0F5F0E2176
 magnet:?xt=urn:btih:D9572BE66B3F2FB72BCD7B936107FDA6DAAD200D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,29 +676,7 @@ magnet:?xt=urn:btih:D9572BE66B3F2FB72BCD7B936107FDA6DAAD200D
 magnet:?xt=urn:btih:1EBC4756F9F82BA510277E7B3192A52EE9D4E51B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258090   (338111) от 29.10.2018
-
-Пришельцы в доме / Luis and His Friends from Outer Space (2018) BDRip [H.264/1080p-LQ] [EN] [PR]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338111.jpg" />
-</div>
-
-
-###  Подробнее
-
-У 12-летнего Луиса нет друзей, а у его отца постоянно не хватает на него времени. Тот страстно увлечен уфологией и даже не догадывается, что те, кого он так жаждет найти, находятся прямо у него перед носом. Луис становится единственным свидетелем аварийной посадки трех чудаковатых инопланетян рядом с их домом. Троица пришельцев быстро находит общий язык с мальчиком. (   Читать дальше...   )Производство: Германия, Люксембург, Дания / Ulysses Filmproduktion,Fabrique d'Images,A. FilmЖанр: Мультфильм, Приключения, Комедия, Семейный, ФантастикаРежиссер: Кристоф Лауэнштайн, Вольфганг Лауэнштайн, Шон МакКормакПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:25:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D4F3D059425DDE6284BA400CB8629175E021A6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

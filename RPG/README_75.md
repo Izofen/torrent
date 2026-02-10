@@ -19,6 +19,8 @@ The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (upd4/dlc) Repack xatab [De
 magnet:?xt=urn:btih:0D96D1DF2389A29A4A8123D928BE82699B2503C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ultima™ 4: Quest of the Avatar (1985) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:FB967306260C4786D0C5C83F90FA7E11F4F29684
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Arcanum: Of Steamworks and Magick Obscura (2001) [En] (1.0.7.4hf) License GOG
 magnet:?xt=urn:btih:E8614647E01921281F8F6F9F33F0FE03AF8128DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Delivery from the Pain — это игра на тему выживания. Н�
 ```bash
 magnet:?xt=urn:btih:572D35D3DC5D8AA8982AF68B890CB77A80A348B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Portal Knights (2017) [Ru/En] (1.7.2/dlc) Repack xatab
 magnet:?xt=urn:btih:F3B7E00F2CA482881B63E00C4B1DCFF33B69FC47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Ethereal Legends – экшен-РПГ от независимых разраб�
 ```bash
 magnet:?xt=urn:btih:B14A772EE5E1C979619B2855BB4B25B6F479BCAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Razenroth - это темный ролевой экшен в стиле Diablo, 
 magnet:?xt=urn:btih:4E846376B8D469CE5C6E920355CF64422F4985CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ SpellForce 3: Soul Harvest (2019) [Ru/Multi] (1.05.75935) Repack xatab
 ```bash
 magnet:?xt=urn:btih:AB8690595708670DF051D79487E0FFE9591438A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Tails of Iron (2021) [Ru/Multi] (1.37768) License CODEX
 magnet:?xt=urn:btih:74C49E3EA2D54B8CE721B345A970C933F1C06A10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Elder Scrolls V: Skyrim VR (2018) [Ru/En] (1.4.15.0.8/dlc) Repack xatab [VR]
 ```bash
 magnet:?xt=urn:btih:25683F3139E0C505F7397ED537DC589B2F934127
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Iron Danger — игра, в основе которой лежат тактич
 magnet:?xt=urn:btih:11ED8FE09273C872B3EDDDA217033F5EA91096AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Fallout: A Post Nuclear Role Playing Game (1997) [Ru/Multi] (1.2/1.2.1/1.3.5) Li
 ```bash
 magnet:?xt=urn:btih:B5E5F8E04FFCFC715AEE47A3CC4E71EA6EF9CC3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Eastward (2021) [Multi] (1.0.5) License CODEX
 magnet:?xt=urn:btih:2B317810DC9854FDDB5800B7ACF76EEAADDB6CF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ ATOM RPG: Trudograd (2021) [Ru/En] (1.0/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:02ACEA84B6837FD88B972ED4AC99975232BBC6D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Fallout 2 - культовая ролевая игра, справедливо �
 magnet:?xt=urn:btih:657E2113B93A5F5BC3248B06D74ED5C132761468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Fallout 4, легендарное пост-апокалиптическое пр
 ```bash
 magnet:?xt=urn:btih:E4B338973DD033F3744A6CE066A005D00B33C208
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ UnderRail (2015) [En] (1.0.1.4) Repack R.G. Механики
 magnet:?xt=urn:btih:BE9A498297F3452D954677E92E6EB9438953E110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ RPG о выживании в городе. Человечество порази
 ```bash
 magnet:?xt=urn:btih:7AA101640C53BED50F14E16D24A7A2327338BAE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst 
 magnet:?xt=urn:btih:548B379366EC013E9E1F8F9FD3550C94BD544DEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Dungeon Of Dragon Knight (2019) [Ru/Multi] (1.0151/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:708A8F719558E32C1CA9AD1D728932842A8969FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Final Fantasy IV (2021) [Ru/Multi] (1.0) License Fairlight
 magnet:?xt=urn:btih:8455D0B543376B60E52A2EE08664840ECFB08509
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Terrain of Magical Expertise (2021) [Ru/Multi] (7310529) License CODEX
 ```bash
 magnet:?xt=urn:btih:D058DB50879D90117674DDAA1995C4C1AD32D64B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Operencia: The Stolen Sun включает в себя всё то, что вы 
 magnet:?xt=urn:btih:3B34985D4E9562357E228E495D37EC3671039765
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Tales of Berseria (2017) [Ru/Multi] (1.48.00#193/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:4B8D84A81B852AFF43537CC0E168FE05E2C6465A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Encased: A Sci-Fi Post-Apocalyptic RPG (2021) [Ru/Multi] (1.0.906.0546/dlc) Repa
 magnet:?xt=urn:btih:038E35420D07BEF50F2151A6B5F03C81BCD729E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Arboria (2021) [En] (1.0.0.1055) License CODEX
 ```bash
 magnet:?xt=urn:btih:27C1A74083A8BD247C3E25DB1DFC0C4C20C9D3A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

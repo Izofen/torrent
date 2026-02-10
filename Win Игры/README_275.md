@@ -19,6 +19,8 @@ Magic City Detective 3: Rage Under Moon / Волшебный город 3: Яр�
 magnet:?xt=urn:btih:753D6FB551507F53036900E1D7BAFD161C447961
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Edelweiss - это JRPG в жанре ужасов, которая отправ�
 ```bash
 magnet:?xt=urn:btih:067CF981007A18BBB2DE552E31C4CC964FD011F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ DIG - Deep In Galaxies - приключенческий платформер в 
 magnet:?xt=urn:btih:33FEDF559C8DAD17F65CD154E503BD0B50299C4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Backfirewall_ – приключение, которое понравится л
 ```bash
 magnet:?xt=urn:btih:344F38D7A4E92C061640525DE26B92CDDFF71BB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Saga of Sins - это атмосферный ролевой экшен в мра
 magnet:?xt=urn:btih:473AAD8B73C7ED48D2B921223BAD4BD9512ED2CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Cursed Mansion - это леденящий душу ролевой хоррор,
 ```bash
 magnet:?xt=urn:btih:E58B14142773CB0DE9874D90D82F3B0A4B107BC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Solomon Snow: First Contact - это научно-фантастический �
 magnet:?xt=urn:btih:36514BD3CB0792D7D60330C21F84B6F4C6E2FFDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Panzer War: Definitive Edition - это игра-стрелялка по тан�
 ```bash
 magnet:?xt=urn:btih:52963633E241E6F8D82A7707765D7EEBB804DF8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ RC Airplane Challenge (2021) [En] (1.0) Scene PLAZA [VR]
 magnet:?xt=urn:btih:5E7531865E376DC85B037FF029754144823FA2E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Cant Drive This - гоночная аркада с элементами симу
 ```bash
 magnet:?xt=urn:btih:A90B715876D89B7F086BEC64F9B48C6CC5A96E96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Before I Forget - детективная история, рассказываю�
 magnet:?xt=urn:btih:0DA4DFA39163AA291234950E32ED15EDA2A54FAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Rendezvous - это уникальная адвенчура, действие к
 ```bash
 magnet:?xt=urn:btih:C393684315B19C7FD66FAD39EA9944A7042886DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Pets Hotel (2023) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:2A3FE2F9AC9FC0BF7AECC743B233A9507AD3FA52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Zodiacats - это расслабляющая казуальная игра со
 ```bash
 magnet:?xt=urn:btih:6E48EDF9DAE8FB7495854CAAB30776912530640D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Switchball HD - Puzzle Platformer – платформер с элементам
 magnet:?xt=urn:btih:6EDA6BE24C7A1B360FA2EDD4059FA145288366AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Moviehouse позволяет игрокам стать владельцами �
 ```bash
 magnet:?xt=urn:btih:C5B30F4B1CBDFB5F3F6DC396C913A52DBD840403
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ KITS - это сборочная игра. Открывайте, создава�
 magnet:?xt=urn:btih:B95708ABD56723E46DC737F1E191BC085C126C0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Blasphemous (2019) [Ru/Multi] (4.0.67/dlc) Repack Necros [Digital Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:D89FCE9342FF4713CE6537C865E3CE22023E737B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 magnet:?xt=urn:btih:5BC80049E34FE034781D99B586754072D25AC960
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 ```bash
 magnet:?xt=urn:btih:43F03D7428AD44D57CA9D0C7362F1540D1249A1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Dead Island 2 (2024) [Ru/Multi] (7.0.0.1243375/dlc) Repack Wanterlude [Ultimate 
 magnet:?xt=urn:btih:D74F6AD769E502509248CF85969C2122AE211A2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Plants vs. Zombies: Replanted - это ремастер оригинальной
 ```bash
 magnet:?xt=urn:btih:DDDAC6028935099E26AD86F05C2F9BF595A0DFB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.2.0/dlc) Scene Rune [Digital Deluxe Editi
 magnet:?xt=urn:btih:B9D6223A9DF8EFD77E1052FDDF419CA85B83B907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Oxide Room 104 — это сочетание экшена и жанра «эск
 ```bash
 magnet:?xt=urn:btih:B2CF95CA46947EBECD3C37F068EEF42396311E8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Midnight Fight Express совмещает динамические схватк�
 magnet:?xt=urn:btih:CDCD4F30DA8DC4DE11CB57AFF34BFAAA6EDE1D92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Boom Blaster – двухмерный шутер с боковой прокру�
 ```bash
 magnet:?xt=urn:btih:E56661AFA1A5BE7F79B2A962E73F95514B7CA30B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

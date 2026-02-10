@@ -19,6 +19,8 @@ Banner Saga 3 - грандиозное завершение захватываю
 magnet:?xt=urn:btih:017CA043775E15E556606093474FA4CF7A8F6036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Gabriel Knight: Sins of the Fathers (2014) [Multi] (2.02) License GOG [20th Anni
 ```bash
 magnet:?xt=urn:btih:F5B04985324F77F9D16E04B50EACEB38A520B0E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Five Nights at Freddy's 4 (2015) [En] (1.1) Unofficial
 magnet:?xt=urn:btih:45A8D21EA50ABA18864E87DE984CE6AB19E72251
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ WWE 2K18 (2017) [Multi] (1.04/u1) License CODEX [patch]
 ```bash
 magnet:?xt=urn:btih:E95DAD7B7CD4FE0C49A9F4806881985C6B5FE976
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Dark Parables 9: Queen of Sands / Темные притчи 9: Королева 
 magnet:?xt=urn:btih:BE1A4E2B8EF4925DDA67744384454265C99E9A27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Nioh: Complete Edition — полное издание приключенчес�
 ```bash
 magnet:?xt=urn:btih:1B557B529B884C410EB4DE5E9C9AC2B719F1E71B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Obduction (2016) [Ru/Multi] (1.6.5) Repack R.G. Catalyst
 magnet:?xt=urn:btih:3D761EA00A804D7870D32CF7F0BF0B5C0FF247A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Dark Parables 10: Goldilocks and the Fallen Star (2015) [En] Unofficial [Collect
 ```bash
 magnet:?xt=urn:btih:37FB51DD3D8464C82E916F20163E2B69B78F66D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Eventide: Slavic Fable (2015) [En] Unofficial [Collector's Edition / Колле�
 magnet:?xt=urn:btih:FB109F3039667452B2FBE56FBE23D3E54486546C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Surface 8: Return to Another World (2015) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:1D115443706F193AAFE2CD8E2691104D37B5432C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Asterix и Obelix с помпой возвращаются в новой вер�
 magnet:?xt=urn:btih:CC23138CDEE9E92BC280E88D069986CA7AD71216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Dark Shadows - Army of Evil [En] (L) 2012 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:B852788CF5F98E2B56F06CC6B842C6B66203BCF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Metal Gear Rising: Revengeance (2014) [Ru/Multi] (1.0/upd2) Repack xatab
 magnet:?xt=urn:btih:C5E8773E1E369684A2C17C36699F7DD9AB3903F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Crimes and Punishments — это детективный квест, посвя�
 ```bash
 magnet:?xt=urn:btih:DFE6C9512F617CE7CE9DF4B8A4DE45A10F68C140
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Project R.I.P. (2019) [Ru/Multi] (1.05) Repack Other s
 magnet:?xt=urn:btih:080831761402534743FE64262EF54D2C04AB1ACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Layers of Fear 2 (2019) [Ru/Multi] (1.3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3DBE73045954DFFF04C73956941BF276D9003989
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Void Bastards (2019) [Ru/Multi] (2.0.24/dlc) Repack Mizantrop1337
 magnet:?xt=urn:btih:3333B79B464ACC2BEDB2889D70D14F9124B645AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Morels The Hunt (2019) [Ru/Multi] (1.0) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:6FD69AFDABE191B126F0AD0B0D18A8D52B3B6941
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Layers of Fear 2 — это психологический хоррор от п�
 magnet:?xt=urn:btih:2A0E95720D92BD36CCDD9203B0A84E59F839B5E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ HuniePop – это своеобразный симулятор для PC, Mac �
 ```bash
 magnet:?xt=urn:btih:4D3E3EE338AD21400A1E7CF7905C1C16DF89DA09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ MouseCraft (2014) [Ru/Multi] (1.20) License GOG
 magnet:?xt=urn:btih:BACAE38FC7FF88537502331E03DB4E31F9D1D6AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Battle Chasers: Nightwar - это красочная ролевая игра с 
 ```bash
 magnet:?xt=urn:btih:DFC04B9384C2346DF0961C07CA6396B9FE78E723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Other Half – темная фэнтезийная экшен РПГ, в к�
 magnet:?xt=urn:btih:09777FD7B1D9A69C831E29FEFB2BBB05003C3542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ de Blob (2017) [Multi] (0.28b) License GOG
 ```bash
 magnet:?xt=urn:btih:005B8BE773F69126C8F5E5E1050B604815DCA13D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) License RELOADED [Epi
 magnet:?xt=urn:btih:9603016868EFCCF542928CF90224E5179E337BC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ True Fear: Forsaken Souls Part 2 / Реальный ужас: Души прок�
 ```bash
 magnet:?xt=urn:btih:3BE2EEE94B4B6E904AF4F2D6EA7D10388A236435
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

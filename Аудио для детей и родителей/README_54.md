@@ -22,6 +22,8 @@ VA - Barbie Let's All Party (2009) [MP3|160 kbps]<Детские песни/Danc
 magnet:?xt=urn:btih:DC66CF5AA587FBF2F7A0C0CC9A0DDA03AB640236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Новогодний мюзикл. Потому что Зима - это з
 ```bash
 magnet:?xt=urn:btih:693164D513C1E85230E7AD63DB7FA142D81BFE39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Ритмы детства. Веселые детские танцеваль
 magnet:?xt=urn:btih:52F9ECB1E5A71CA945DDDD35C845F232E63B86F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ magnet:?xt=urn:btih:52F9ECB1E5A71CA945DDDD35C845F232E63B86F9
 magnet:?xt=urn:btih:E64039B2CFA2448A09C3E24F6ECB104A4309F810
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:E64039B2CFA2448A09C3E24F6ECB104A4309F810
 ```bash
 magnet:?xt=urn:btih:3AE53E56C5548208CF1CF5E65502B7BC78DEB625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Anthony Miles - Мама и ребенок / Mother & Baby (2000) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:19DD1ED28764CFEA7F48F0C5426DB8995292CB1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ CD 01:
 magnet:?xt=urn:btih:14533698BC041E3BE0BD76F20DB071BEF0F20D58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:14533698BC041E3BE0BD76F20DB071BEF0F20D58
 ```bash
 magnet:?xt=urn:btih:D13EDC39345A8EEEBA10EA7525B09DAED4C2897F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ Nicolette Larson - Sleep Baby Sleep (1994) [MP3|160 kbps]<Колыбельные
 magnet:?xt=urn:btih:D569F46A69C9657BD47E01927591C6DE9B1FE0CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:D569F46A69C9657BD47E01927591C6DE9B1FE0CE
 ```bash
 magnet:?xt=urn:btih:A29612F696DFDE0F3DA89620257C2E71A0251C4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ magnet:?xt=urn:btih:A29612F696DFDE0F3DA89620257C2E71A0251C4C
 magnet:?xt=urn:btih:819125388AF24826CAA7B1D955759115A7A0288E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:819125388AF24826CAA7B1D955759115A7A0288E
 ```bash
 magnet:?xt=urn:btih:44ED30729C9CED1254FD9EE8672A138EDDA65969
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:44ED30729C9CED1254FD9EE8672A138EDDA65969
 magnet:?xt=urn:btih:9E929E59C719E667A37D39BA449ADDE2071759AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:9E929E59C719E667A37D39BA449ADDE2071759AC
 ```bash
 magnet:?xt=urn:btih:2C54DE3D5FA84740C95B8BC2103F213366E5C8E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ magnet:?xt=urn:btih:2C54DE3D5FA84740C95B8BC2103F213366E5C8E5
 magnet:?xt=urn:btih:7DF66D9E47C3A60AED9549A660499810C5D1D5FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:7DF66D9E47C3A60AED9549A660499810C5D1D5FC
 ```bash
 magnet:?xt=urn:btih:E480382384B0EF1F5E667DC7362E06778805B2DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:E480382384B0EF1F5E667DC7362E06778805B2DE
 magnet:?xt=urn:btih:84507FD1AB7259FD7263F25C9706F0B55E1BB9CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:84507FD1AB7259FD7263F25C9706F0B55E1BB9CE
 ```bash
 magnet:?xt=urn:btih:C857832FA58EB669D2CE451A0A1BCD196FFAB8AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ VA - DisneyMania [7 CD] (2002-2010) [MP3|150-267 kbps]<Детские песни
 magnet:?xt=urn:btih:E47034C4ADDC0B3B6E46AD4E156781B8B84AD3C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:E47034C4ADDC0B3B6E46AD4E156781B8B84AD3C2
 ```bash
 magnet:?xt=urn:btih:2746B106FB8B5D3DFBB2CFF5C68BDD9512DBBD0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ VA - The Smurfs Christmas Party (1996) [MP3|192 kbps]<Детские песен�
 magnet:?xt=urn:btih:5ED0B611496CD56CFEAE61088F91012589A9F343
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ VA - 200 лучших детских песен (2011) [MP3|256-320 kbps]<Дет
 magnet:?xt=urn:btih:24EF320FA12C94C8255C0A5BC727CE5601F820C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:24EF320FA12C94C8255C0A5BC727CE5601F820C8
 ```bash
 magnet:?xt=urn:btih:5DA6341D9489FD75F192DAF2B135259B1B293BF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ magnet:?xt=urn:btih:5DA6341D9489FD75F192DAF2B135259B1B293BF8
 magnet:?xt=urn:btih:D78B9F28F4899356E52CFA0D0BE33472322D54EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:D78B9F28F4899356E52CFA0D0BE33472322D54EF
 magnet:?xt=urn:btih:C860F5E7FE6E2700D3305744E11893465426DE4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:C860F5E7FE6E2700D3305744E11893465426DE4B
 ```bash
 magnet:?xt=urn:btih:28EC16B05275F97478D83835E9DA7EA14933AEFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

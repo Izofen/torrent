@@ -21,6 +21,8 @@ Digital Tutors, Pluralsight, Paul Conner | Professional Tips for Modeling Comple
 magnet:?xt=urn:btih:CFDCBA03F97573CBEF4E96C825FDDDB725DE553B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:CFDCBA03F97573CBEF4E96C825FDDDB725DE553B
 ```bash
 magnet:?xt=urn:btih:3042951C3E3187016EBA3D3D925F54984257362C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:3042951C3E3187016EBA3D3D925F54984257362C
 magnet:?xt=urn:btih:AA40396E9965A08485826DB5D746EC5FE6CA507E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Udemy, Илья Зернов | Энциклопедия Adobe Premiere 2.0. На
 ```bash
 magnet:?xt=urn:btih:D9C932AE9EE27E36C2F60317D79F9C8EC905EC9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Udemy, Neil Bettison | Blender 4 Creator Course Stylized 3D Models (2023) WEB-DL
 magnet:?xt=urn:btih:63BF187ECEDDACC77512A943CC63F0CFC1F45ECA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Udemy, Aidan Perry | Unreal Engine: Ultimate Survival Horror Course (2022) WEB-D
 magnet:?xt=urn:btih:26E68AAB2270DD6C1856F3996357C97B43F6C6DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ AmigosCode, Nelson Djalo | Mastering Kubernetes (2023) WEB-DL [AD] [EN]
 ```bash
 magnet:?xt=urn:btih:9E04BC283D9F7F2F7297513D0EF58BB65F661AC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ Udemy, Phil Ebiner, Viola Kanka Malaspina | AI Video Production: Create Videos 1
 magnet:?xt=urn:btih:6532B55F55862B3A6AF83A8EB0930031AEF68D1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:6532B55F55862B3A6AF83A8EB0930031AEF68D1D
 magnet:?xt=urn:btih:F36CF0C7F437AECD3AF1B6658BF303707EBC86EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ Udemy, Vincent Noot | Drawing the Human Skull (2023) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:B5466BCD4E3FAA70BC1EE98E615DA4DCBCB26386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +302,8 @@ magnet:?xt=urn:btih:B5466BCD4E3FAA70BC1EE98E615DA4DCBCB26386
 magnet:?xt=urn:btih:0EC36FE6E92005229FB970F5E6D89B166E7364AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +330,8 @@ CG Boost, Martin Klekner |  Substance Painter Launch Pad (2020) PCRec [EN, RU / 
 magnet:?xt=urn:btih:B8FE071E13BECCAB506979C19CC3E25BC368F877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ OTUS, Евгений Аристов, Виталий Попов, Владимир
 ```bash
 magnet:?xt=urn:btih:96724668521D852E59981CDC43B7ABCA67126BF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +382,8 @@ School of Motion, Joey Korenman, Greg Stewart и др. | A motion design masterp
 magnet:?xt=urn:btih:0AA23E1690C6596FAD03EC9D2F9E6CC06C5B9988
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ ChatGPT — это диалоговый агент на базе искусст�
 ```bash
 magnet:?xt=urn:btih:EA75FF8AF93BFDB38BED31B7E3EED6774C9416A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ Udemy, Mrawan Hussain | Blender: Rolls Royce Spectre in 3D (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:8ED2856C81E05C97F66CA6FCD55A3BCD220CF26E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +466,8 @@ magnet:?xt=urn:btih:8ED2856C81E05C97F66CA6FCD55A3BCD220CF26E
 magnet:?xt=urn:btih:659DB5EA3E1C186572F0034DAA5A08682A404F6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +494,8 @@ Java — это язык программирования, который спр
 magnet:?xt=urn:btih:D596B1B53E8B7FCD2B1BEE1B275988D3A197BAC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ Udemy, Manas Roy | DALL-E and Adobe Firefly Course: AI Art Generation Ethically 
 ```bash
 magnet:?xt=urn:btih:1E2BC0268F20B8D61EBF71E8D928E9BEEC9F5070
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +551,8 @@ Udemy, Manas Roy | Adobe Firefly Course: Beginner to Pro AI In One Go (2023) WEB
 magnet:?xt=urn:btih:2A857C3E06273BC3CC41163B2ECA1B6C0E6C94FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +576,8 @@ Succeeding at a new job starts with a good foundation, an effective strategy, an
 ```bash
 magnet:?xt=urn:btih:52B684747B2B6EE56298AF3E2765619103689A42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +606,8 @@ GNEURO, Никита Глухов, Артур Форостяк | Stable Diffusio
 magnet:?xt=urn:btih:EF257C0671EBB128FEFB22496E1726F4F071E53F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ Udemy, English Academy | Living in U.S.: Speaking English for Everyday Situation
 ```bash
 magnet:?xt=urn:btih:CD99AE84A13BA217E42602BE4CD8AC436E4FF255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +658,8 @@ Gumroad, Val Orlov | How to create in 3D Character Concept Art (2023) WEB-DL [EN
 magnet:?xt=urn:btih:05117FAB081042B5C56B5D09FC11C00BF58D191D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ Udemy, Mepi.pl Video Tutorials | Mastering Real-Time Animation in Unreal Engine:
 ```bash
 magnet:?xt=urn:btih:1D077F75D81D9B4360E660712672404A32A18118
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +712,8 @@ magnet:?xt=urn:btih:1D077F75D81D9B4360E660712672404A32A18118
 ```bash
 magnet:?xt=urn:btih:4967F46EE122A69D78194E019D6AAFC58A417EB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

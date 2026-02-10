@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:BA04C7A91F6D99E7703536D79CD0634B008DABD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:BA04C7A91F6D99E7703536D79CD0634B008DABD2
 ```bash
 magnet:?xt=urn:btih:EB4BE45923EAE2745002E5B80AC3862B43A48D38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:EB4BE45923EAE2745002E5B80AC3862B43A48D38
 magnet:?xt=urn:btih:9B6135102A866D3984B1D7A765A4FCDE79589319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:9B6135102A866D3984B1D7A765A4FCDE79589319
 ```bash
 magnet:?xt=urn:btih:AB684C40A845258294FC7A0550264F923B79EA96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:AB684C40A845258294FC7A0550264F923B79EA96
 magnet:?xt=urn:btih:01E07BD27327A0C5269416BB555A284B653A3CFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:01E07BD27327A0C5269416BB555A284B653A3CFC
 magnet:?xt=urn:btih:7A8BB7C0D86B031144D103675DBF810C83E33C4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:7A8BB7C0D86B031144D103675DBF810C83E33C4C
 ```bash
 magnet:?xt=urn:btih:10B595391593AF186A07DD20E43DA0799E05D26F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:10B595391593AF186A07DD20E43DA0799E05D26F
 magnet:?xt=urn:btih:D2258A8C991ADBFF573382F32672E87BA97980F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:D2258A8C991ADBFF573382F32672E87BA97980F6
 magnet:?xt=urn:btih:73F27A4FADC9132231202C26BADB7685527E0B36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:73F27A4FADC9132231202C26BADB7685527E0B36
 magnet:?xt=urn:btih:30B114004185B8696875C15F7F985E91F7E23780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Leigh Neville | The SAS 1983–2014 (2016) [EPUB, PDF] [Elite #211] [EN]
 ```bash
 magnet:?xt=urn:btih:815B8C8EF8D6D9C5CDE024D3F60979609ED53ACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:815B8C8EF8D6D9C5CDE024D3F60979609ED53ACD
 magnet:?xt=urn:btih:6A15AB4ABD2E846783A47125A54287170D70EA0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:6A15AB4ABD2E846783A47125A54287170D70EA0B
 magnet:?xt=urn:btih:C17A8EC461CB0B0EE750D205D5F3C82A2750F4B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ Speakout - Шестиуровневый курс английского язык
 ```bash
 magnet:?xt=urn:btih:08BD7F5DC04F4259592D4419EC0B8D57B42EAD35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Speakout - Шестиуровневый курс английского язык
 magnet:?xt=urn:btih:EFD3BAB402125453202F926485A5985CB22C987F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ Speakout - Шестиуровневый курс английского язык
 ```bash
 magnet:?xt=urn:btih:5DAF675EE6676E3A0031BDB028358D86E85640D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ Speakout - Шестиуровневый курс английского язык
 magnet:?xt=urn:btih:335A3B1FF7806524D11676B6B86927E68CE08CC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:335A3B1FF7806524D11676B6B86927E68CE08CC8
 ```bash
 magnet:?xt=urn:btih:7C7BB2EE68A4BC5AE81AF0CEB3E4C7BC24494908
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ Michael McCarthy, Felicity O'Dell | English Vocabulary in Use. Elementary (2017)
 magnet:?xt=urn:btih:F2BDDCAF6FA1B1BC2BE57168721413EE9F366A46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Michael McCarthy, Felicity O'Dell | English Vocabulary in Use. Upper-Intermediat
 ```bash
 magnet:?xt=urn:btih:5F39951F67E5BB377349FC4F0D1056CB5D81F542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:5F39951F67E5BB377349FC4F0D1056CB5D81F542
 magnet:?xt=urn:btih:BAE74E3EAD8493A731FA912D353D126F625C1F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:BAE74E3EAD8493A731FA912D353D126F625C1F1A
 ```bash
 magnet:?xt=urn:btih:64F93A246D35F952505C451A266B5522963410BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:64F93A246D35F952505C451A266B5522963410BB
 magnet:?xt=urn:btih:036FB882ED21B5A906EB0A04D2455826511E9D36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:036FB882ED21B5A906EB0A04D2455826511E9D36
 ```bash
 magnet:?xt=urn:btih:7EAA2E3E2D1288A693DCFEA145CBC9325072E0CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:7EAA2E3E2D1288A693DCFEA145CBC9325072E0CA
 magnet:?xt=urn:btih:C7EF132155AAB2F5E0F66ED73A81ED0EE846AB48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:C7EF132155AAB2F5E0F66ED73A81ED0EE846AB48
 ```bash
 magnet:?xt=urn:btih:8073665C7803C428397A902DE325BC75643B6B30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

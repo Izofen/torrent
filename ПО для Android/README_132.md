@@ -19,6 +19,8 @@ Point Blur) – простое в использовании приложени�
 magnet:?xt=urn:btih:755EB28BB84734E9611A37ECAE7B9DFD9626D1AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Photo Grid - Collage Maker Premium v7.90 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FF44D1FD61742333AEA8A6D22FE9B84068DA5095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:FF44D1FD61742333AEA8A6D22FE9B84068DA5095
 magnet:?xt=urn:btih:F382B0086DAFF8CA2C1BF667D90F38218ED00A73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Cut Paste Photos v9.10.3 Pro [Ru/En] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:B978FAFE69D887DCA7F41C72FDBAE45C16E44336
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Solid Explorer - это приложение для управления фай�
 magnet:?xt=urn:btih:68B5E89A94FA809C19E9818F2FE551679C4BF230
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Voice Training / Голосовая тренировка ver.Autoscroll Fix (120
 magnet:?xt=urn:btih:DD15E02C6AFCFC96910192A013B95A0054D9BF3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Selena v0.2.18 [Ru/Multi] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:D6C8EA09D0A12D62D7C6B85FC2D309564D82F826
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:D6C8EA09D0A12D62D7C6B85FC2D309564D82F826
 magnet:?xt=urn:btih:F3753978D219D4413C04FCD361A554C9F244129A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ DailyArt - Daily Dose of Art v2.9.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9933FC393240613CD76AF66D93794D67429373BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ LocalCast - приложение №1 для видеопотока на Android
 magnet:?xt=urn:btih:297142300D9240A32DA2F0479908E7A05F2F1D09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ RuStore отечественный магазин приложений от VK �
 ```bash
 magnet:?xt=urn:btih:2959B1154FC0647B0FDF1BA9A99BBFB157212B6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Adobe Master Collection For Android - Сборник всех программ �
 magnet:?xt=urn:btih:93461482F0A148F825434E0C9CFD646A68AD1047
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Ski Tracker - отслеживание на лыжах, это приложен�
 ```bash
 magnet:?xt=urn:btih:470E7DB9B2C10710532F8292FA09EE7935516793
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ VPN Private v1.1.1 [En]
 magnet:?xt=urn:btih:A3A09A1FBD62D37D19BC6FD9D30241703F446762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Carmin приложение, чтобы получить и показать д�
 ```bash
 magnet:?xt=urn:btih:9B1845191EA874E6CE75690DE2E2967D26C25AD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ OTT Navigator IPTV v1.6.3.8 Mod [Ru]
 magnet:?xt=urn:btih:0C5095EAE8DB4347A754B8061BBDF06DBA0B5944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ AR Plan 3D – инновационное приложение, использу
 ```bash
 magnet:?xt=urn:btih:F30024E480B5E7DC611A504F14A4E3BDDE320025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Titan Workouts / Сила Титана v3.2.5 [Ru/En]
 magnet:?xt=urn:btih:3D387792E7A8CDA33DBAB5C51BF037A892C88CAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:3D387792E7A8CDA33DBAB5C51BF037A892C88CAF
 ```bash
 magnet:?xt=urn:btih:A06A1A5A64094438A44DB23D1C9938635903E19F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:A06A1A5A64094438A44DB23D1C9938635903E19F
 magnet:?xt=urn:btih:FA1AF76B7F3FB40C6ED9BFEAD6C6F9815C32BCA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ Dub Premium музыкальный плеер - потрясающий прои�
 ```bash
 magnet:?xt=urn:btih:ABE712EEA01488860028C7DEAFB49BCA8CB6B831
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ Denoise it v1.0 [Ru/Multi]
 magnet:?xt=urn:btih:21B9D76279439FAB424F0F3155A4F5D1C85CE1F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ Planner 5D - простое и удобное приложение, которо
 ```bash
 magnet:?xt=urn:btih:855CADA762F58A7353BF0606A4A054C75E7F65F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:855CADA762F58A7353BF0606A4A054C75E7F65F9
 magnet:?xt=urn:btih:FC9A05A90E686307921C9DB83AD0754693588D51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:FC9A05A90E686307921C9DB83AD0754693588D51
 magnet:?xt=urn:btih:F02205198A63C78BD3265A30AC361BB54CD219EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:F02205198A63C78BD3265A30AC361BB54CD219EE
 ```bash
 magnet:?xt=urn:btih:E1895669AAB02FD028C1D808B6CCFDA794671E03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

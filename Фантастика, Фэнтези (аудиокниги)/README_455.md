@@ -1,3 +1,29 @@
+###  Публикация: 1511824   (788323) от 22.11.2021
+
+Александр и Евгения Гедеон | У оружия нет имени (Книга 5). Делай что должен (2021) [MP3, Иван Букчин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_788323.jpg" />
+</div>
+
+
+###  Подробнее
+
+Далёкое будущее, в котором человечество давно освоило новые планеты, приспособив их для жизни. Технически наиболее развиты жители планет, входящих в Консорциум. Развиты настолько, что научились создавать армию из искусственно выращенных солдат-репликантов. Им не дают имён – им присваивают номера. Ведь у оружия нет имени. Репликанты не боятся смерти, и для них выполнение (   Читать дальше...   )Жанр: Боевая фантастика, Космическая фантастика, Социальная фантастикаПродолжительность: 12:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4808E0522CB46F8A914B7CCF0BB7EF87AD5B338A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511831   (788324) от 22.11.2021
 
 Том Светерлич | Исчезнувший мир (2021) [MP3, Александр Кузнецов]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:E02D432D65DE446933A4B466DACAFC0AE5F76112
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +75,8 @@ magnet:?xt=urn:btih:E02D432D65DE446933A4B466DACAFC0AE5F76112
 magnet:?xt=urn:btih:CA67A9C425F6B1564C1AF27E168C8AB299837053
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:CA67A9C425F6B1564C1AF27E168C8AB299837053
 magnet:?xt=urn:btih:4E07FB8807B97539AE62CE08AAC9BB0D1467A050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:4E07FB8807B97539AE62CE08AAC9BB0D1467A050
 ```bash
 magnet:?xt=urn:btih:AA59EB9757E90CA5A94723BBF9259861A7764C19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:AA59EB9757E90CA5A94723BBF9259861A7764C19
 magnet:?xt=urn:btih:417BA2EA3BEFBEA3D7D9758C56950A680D7F0B68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:417BA2EA3BEFBEA3D7D9758C56950A680D7F0B68
 magnet:?xt=urn:btih:F5A819BFD4B7A75F18E4E3FBED3F77F95EAF3D78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:F5A819BFD4B7A75F18E4E3FBED3F77F95EAF3D78
 ```bash
 magnet:?xt=urn:btih:E658A7BDEEC4C468B5ADFD90C6E24249BD6DB149
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:E658A7BDEEC4C468B5ADFD90C6E24249BD6DB149
 magnet:?xt=urn:btih:D5232BD9470BFF7DA708509117570FF0BC29CA95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:D5232BD9470BFF7DA708509117570FF0BC29CA95
 ```bash
 magnet:?xt=urn:btih:FE88C4BAFCD6AA0D0593595690F1DCBA6244BD7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:FE88C4BAFCD6AA0D0593595690F1DCBA6244BD7F
 magnet:?xt=urn:btih:609125B00616F1297BE9597F627FCE2263B1E8CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:609125B00616F1297BE9597F627FCE2263B1E8CB
 ```bash
 magnet:?xt=urn:btih:52F9F8B22BDD0F653A1265AC6114BA2895993440
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:52F9F8B22BDD0F653A1265AC6114BA2895993440
 magnet:?xt=urn:btih:06AF243FEF655011C3B86D49D8CFD279844A1F97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:06AF243FEF655011C3B86D49D8CFD279844A1F97
 ```bash
 magnet:?xt=urn:btih:8C510D495EC15C9E0FBA834900BF89B0882D2147
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:8C510D495EC15C9E0FBA834900BF89B0882D2147
 magnet:?xt=urn:btih:5F8BBD063E2395FEA95F157DCF26B555BAC52452
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:5F8BBD063E2395FEA95F157DCF26B555BAC52452
 ```bash
 magnet:?xt=urn:btih:F11C5B117C47CDF993933580E06E64B05776EF13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:F11C5B117C47CDF993933580E06E64B05776EF13
 magnet:?xt=urn:btih:4E7735F12ABD3FC74CCBAC96890AAEFDB47D337D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:4E7735F12ABD3FC74CCBAC96890AAEFDB47D337D
 ```bash
 magnet:?xt=urn:btih:CE0792A69EEE5CF257A9BB2EA4EE26F088C338C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +503,8 @@ magnet:?xt=urn:btih:CE0792A69EEE5CF257A9BB2EA4EE26F088C338C7
 magnet:?xt=urn:btih:73A3F2CEF37BB034B1FF30FD2C5A381CF98552C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +531,8 @@ magnet:?xt=urn:btih:73A3F2CEF37BB034B1FF30FD2C5A381CF98552C2
 magnet:?xt=urn:btih:1BC04AEB77E8F9223A1A44575A602A293EB6656F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +557,8 @@ magnet:?xt=urn:btih:1BC04AEB77E8F9223A1A44575A602A293EB6656F
 ```bash
 magnet:?xt=urn:btih:DED5208701BC99D9804F961E67D4515DA4BC0A28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +585,8 @@ magnet:?xt=urn:btih:DED5208701BC99D9804F961E67D4515DA4BC0A28
 magnet:?xt=urn:btih:95EFC6A624547D2044ADC3294CF1FF73F6A5E32D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +610,8 @@ magnet:?xt=urn:btih:95EFC6A624547D2044ADC3294CF1FF73F6A5E32D
 ```bash
 magnet:?xt=urn:btih:59C9804E2448338C9C38A931D627534D9EC4595B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +639,8 @@ magnet:?xt=urn:btih:59C9804E2448338C9C38A931D627534D9EC4595B
 magnet:?xt=urn:btih:0CD0D9E1850AE2F6B63B40C2B525F534AAC04B2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +664,8 @@ magnet:?xt=urn:btih:0CD0D9E1850AE2F6B63B40C2B525F534AAC04B2A
 ```bash
 magnet:?xt=urn:btih:8B5B5492BCB52967355D4DBE27FF4DCCC1113B5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,29 +691,7 @@ magnet:?xt=urn:btih:8B5B5492BCB52967355D4DBE27FF4DCCC1113B5E
 magnet:?xt=urn:btih:83BC1A65BB435A91B06C6918C5023831746D4AB7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173029   (789698) от 29.01.2018
-
-Николай Побережник | Бремя выбора (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_789698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прошло немногим больше года, по новому летоисчислению и по новому времени после Волны. Пережившие планетарную катастрофу люди собираются в анклавы, республики, общины. На карты нанесены новые берега новых материков и островов, новые реки и заливы. Одни строят новую жизнь, другие, потеряв все, плывут по течению событий, третьи, сделав выводы из случившегося, стараются (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 11:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365F03C295BBB3F2E92F89F92EF181DFF54338F7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

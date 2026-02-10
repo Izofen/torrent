@@ -19,6 +19,8 @@ ScreenToGif — удобный бесплатный инструмент, с п�
 magnet:?xt=urn:btih:8D0A672AA858E4DF8303C0349918FBC51F68C648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:8D0A672AA858E4DF8303C0349918FBC51F68C648
 ```bash
 magnet:?xt=urn:btih:01AEC0BCDDD11B0286E2BD346D1C2A6B70065899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:01AEC0BCDDD11B0286E2BD346D1C2A6B70065899
 magnet:?xt=urn:btih:D694FB393DED0B83B043C1709729239ACD50AA4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Youkoso Jitsuryoku Shijou Shugi no Kyoushitsu e | Classroom of the Elite | До�
 ```bash
 magnet:?xt=urn:btih:C7019ADF84D2A26C4CC955C48BDB017533F4E160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:C7019ADF84D2A26C4CC955C48BDB017533F4E160
 magnet:?xt=urn:btih:374B444B257850C3184C50595771BC9CCB590F75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:374B444B257850C3184C50595771BC9CCB590F75
 ```bash
 magnet:?xt=urn:btih:73215E6B6F12C3BD58B487BA112C70C18428459B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:73215E6B6F12C3BD58B487BA112C70C18428459B
 magnet:?xt=urn:btih:D8F8F9685EE0D92BB1057E8C4674335B9244419E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:D8F8F9685EE0D92BB1057E8C4674335B9244419E
 ```bash
 magnet:?xt=urn:btih:170C56A54D7959E37DBE756ECAFCA403F0AE42C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:170C56A54D7959E37DBE756ECAFCA403F0AE42C2
 magnet:?xt=urn:btih:3902B3ADF63E26FC69A7D3A3AF977021AD8BBDF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:3902B3ADF63E26FC69A7D3A3AF977021AD8BBDF5
 ```bash
 magnet:?xt=urn:btih:9FC44D7733CD2309D5CB96BFA562A38CC37DD472
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Activation Program 1.12 b02  Portable by Ratiborus [En]
 magnet:?xt=urn:btih:901D55B124F15A713D31CE17E7876C65F92D9998
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:901D55B124F15A713D31CE17E7876C65F92D9998
 ```bash
 magnet:?xt=urn:btih:0202C958097C51A3011F2C9C15F12A1FFB2AC08E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:0202C958097C51A3011F2C9C15F12A1FFB2AC08E
 magnet:?xt=urn:btih:8E9D09090C7B0A63FBCEB840C61EA25E6CCB5857
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:8E9D09090C7B0A63FBCEB840C61EA25E6CCB5857
 ```bash
 magnet:?xt=urn:btih:4D6947D63914F53BC191E1D12A1C95927D7BA988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Tormented Souls - это игра, которая вновь погрузит в
 magnet:?xt=urn:btih:A53C6FBF23E016A066A08FA9F1DB2C300439C802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Tormented Souls 2 (2025) [Ru/Multi] (1.0.1) Repack Let'sРlay [Demo]
 ```bash
 magnet:?xt=urn:btih:07304F6AB9B6566CC64417E6E611D4CD783DF8B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:07304F6AB9B6566CC64417E6E611D4CD783DF8B5
 magnet:?xt=urn:btih:2C8DCF487CA756EB3014D165F0986A31D051A3D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:2C8DCF487CA756EB3014D165F0986A31D051A3D7
 ```bash
 magnet:?xt=urn:btih:1721AF259619A2A972F72CDA12A8A3FB39D9DD80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:1721AF259619A2A972F72CDA12A8A3FB39D9DD80
 magnet:?xt=urn:btih:DADE06D3A365757FEF1899D132D0801E098745EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Morbid Metal - это экшн-rogue-lite, в котором игроки мог
 ```bash
 magnet:?xt=urn:btih:BFEF44E1B16752EA28D7BB3AC0F0860DAF721D6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:BFEF44E1B16752EA28D7BB3AC0F0860DAF721D6D
 magnet:?xt=urn:btih:D138824743D0EA79E67FD520F549A0319916960A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:D138824743D0EA79E67FD520F549A0319916960A
 ```bash
 magnet:?xt=urn:btih:8CB0AA72767ACB3A0F31324D2940955B6DEC42CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:8CB0AA72767ACB3A0F31324D2940955B6DEC42CA
 magnet:?xt=urn:btih:5A018741C0192029C44D1DF887CDD97C358C773B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:5A018741C0192029C44D1DF887CDD97C358C773B
 magnet:?xt=urn:btih:A21F15E1708B543D525DBD3FD4EE4E145A4B2278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ UnderRail (2015) [En] (1.2.0.23/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:7CCF020844CBDE11440069197ABC8C9592F44ABD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:7CCF020844CBDE11440069197ABC8C9592F44ABD
 ```bash
 magnet:?xt=urn:btih:79E48C8040DEAFD94CB98B31989EA4E653397C55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

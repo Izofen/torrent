@@ -1,3 +1,29 @@
+###  Публикация: 462403   (793170) от 30.05.2020
+
+[Карты] Карты боев 1941 06-12
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_793170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подробные военные карты боев проходивших на Северо- Западном, Центральном и Юго западном фронте в период 1941 года. Карты немецкие и русские, от Ирана до Финляндии.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:738FED38E04A596551BFAE2E56F29467871A8B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123061   (793190) от 06.04.2017
 
 Армен Гаспарян | Война после Победы. Бандера и Власов: приговор без срока давности (2017) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:87A3C81E1D7EFA7A64E20DDB1070D3E435EC53D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:87A3C81E1D7EFA7A64E20DDB1070D3E435EC53D2
 magnet:?xt=urn:btih:BA55D27340771DC8847C9632B1543E70CEF36F52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +102,8 @@ magnet:?xt=urn:btih:BA55D27340771DC8847C9632B1543E70CEF36F52
 magnet:?xt=urn:btih:D4301D676F50ECCDF7B9EDA04C5338B874BC0635
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +129,8 @@ magnet:?xt=urn:btih:D4301D676F50ECCDF7B9EDA04C5338B874BC0635
 magnet:?xt=urn:btih:A254A9FB3821AD54029AF2F408D04D572084DDC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:A254A9FB3821AD54029AF2F408D04D572084DDC8
 magnet:?xt=urn:btih:9B60972E02745D9533AD88EFEFF090AC513A05E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:9B60972E02745D9533AD88EFEFF090AC513A05E1
 ```bash
 magnet:?xt=urn:btih:38CCF0541C5B574AD000977638A996727626461B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:38CCF0541C5B574AD000977638A996727626461B
 magnet:?xt=urn:btih:EF618A4C025A99CDBB1F3364C42B3A1B1DFEDADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:EF618A4C025A99CDBB1F3364C42B3A1B1DFEDADE
 magnet:?xt=urn:btih:5680CDF59DCCD22AFD35039A3147A590C7C35247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:5680CDF59DCCD22AFD35039A3147A590C7C35247
 ```bash
 magnet:?xt=urn:btih:6334EC5BD62A02D410C88AED4EAE0FD916B6493E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:6334EC5BD62A02D410C88AED4EAE0FD916B6493E
 magnet:?xt=urn:btih:09591E633C71F429D043EAC7DDED40BB4EB465F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:09591E633C71F429D043EAC7DDED40BB4EB465F1
 ```bash
 magnet:?xt=urn:btih:1FFB03C645A1E1A694C7407873E1A800112577BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:1FFB03C645A1E1A694C7407873E1A800112577BD
 magnet:?xt=urn:btih:DBB7F113FC9468D6256CF904E066F6FBC4AAA278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +367,8 @@ magnet:?xt=urn:btih:DBB7F113FC9468D6256CF904E066F6FBC4AAA278
 magnet:?xt=urn:btih:2DCB1552EEE1ABC69AA981826A36F2D9CE8734A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +392,8 @@ magnet:?xt=urn:btih:2DCB1552EEE1ABC69AA981826A36F2D9CE8734A7
 ```bash
 magnet:?xt=urn:btih:B58478709B07EC0B4FFB0B9A1109A1E48AE6FAFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:B58478709B07EC0B4FFB0B9A1109A1E48AE6FAFD
 magnet:?xt=urn:btih:616C858562CD5E0A32A5E39B71A09C0A20AFFA27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:616C858562CD5E0A32A5E39B71A09C0A20AFFA27
 ```bash
 magnet:?xt=urn:btih:E480D72F5E2E29FB981D9F1007C0E3E460D027E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:E480D72F5E2E29FB981D9F1007C0E3E460D027E1
 magnet:?xt=urn:btih:2CA64A02C435602EE54BAA438C52A3136592C810
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:2CA64A02C435602EE54BAA438C52A3136592C810
 ```bash
 magnet:?xt=urn:btih:C6B3D6E0A201E29A97B4021F6036C7D42273D203
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:C6B3D6E0A201E29A97B4021F6036C7D42273D203
 magnet:?xt=urn:btih:567F766200B834A09FCFDB2F69574CED661348EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:567F766200B834A09FCFDB2F69574CED661348EB
 ```bash
 magnet:?xt=urn:btih:5B512013754BF2E8FBC7F37F66746EBCA5418E72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:5B512013754BF2E8FBC7F37F66746EBCA5418E72
 magnet:?xt=urn:btih:8D0160EC5C1CECC78C271BC3F3E19EB8C08865A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:8D0160EC5C1CECC78C271BC3F3E19EB8C08865A6
 ```bash
 magnet:?xt=urn:btih:1F309212491217FD475D3F83FF65CBC2BF1598F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:1F309212491217FD475D3F83FF65CBC2BF1598F3
 magnet:?xt=urn:btih:16F038F603A8227F138A89AACB1B29E443CE466B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:16F038F603A8227F138A89AACB1B29E443CE466B
 ```bash
 magnet:?xt=urn:btih:3E59EB27B98AEDD3DD1B69F8AC30E1573B96FE17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,30 +682,7 @@ magnet:?xt=urn:btih:3E59EB27B98AEDD3DD1B69F8AC30E1573B96FE17
 magnet:?xt=urn:btih:965331BFC9A7CD4FA5D2D8BFF07303214F725769
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122524   (794154) от 05.04.2017
-
-Барбара Шер | Давно пора! Как превратить мечту в жизнь, а жизнь в мечту (2017) [FB2, RTF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_794154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пошаговый план от Барбары Шер, который поможет вам найти свое призвание и заниматься тем, что вы любите.
- Если вы давно мечтали о работе, которая дает вам нечто большее, чем зарплату, или хотели заняться своим любимым делом вместо унылой карьеры, не приносящей вам никакой радости - самое время начать! В этой книге Барбара Шер предлагает простые и конкретные инструкции, (   Читать дальше...   )Жанр: Практическая психология. Достижение успеха в жизниФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1C2B5C526A2DD23331DA68E38481FF1E4D9CC26
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

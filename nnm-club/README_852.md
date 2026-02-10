@@ -19,6 +19,8 @@ KiCad – уникальный в своем роде программный п�
 magnet:?xt=urn:btih:342DF7842F34A4CA72D93380B2E7D918FBF07EF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Planet Crafter (2022) [Ru/Multi] (1.410/dlc) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:F361ECB75356CC6A965E95580AAAACE5E8EF1986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F361ECB75356CC6A965E95580AAAACE5E8EF1986
 magnet:?xt=urn:btih:6A088EEAA79FD02EB460A1376DAD5B6AB4AD7518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:6A088EEAA79FD02EB460A1376DAD5B6AB4AD7518
 ```bash
 magnet:?xt=urn:btih:C48F43E0CB4ADBD95BB98E0DED9D69AA8D2E209A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Kimi no Koto ga Dai Dai Dai Dai Daisuki na 100 Nin no Kanojo 2 | Сто деву
 magnet:?xt=urn:btih:DC9F91217906BD97B9FA1C99DD26504C75970F2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ OpenVPN – мощная программа для работы с частны�
 ```bash
 magnet:?xt=urn:btih:7881F13DD55EBB3F53470655ED8855323FA3DC05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Windows избавится от синего «экрана смерти»
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ XVIII век. Людовик XVI, его жена Мария Антуанетт
 magnet:?xt=urn:btih:B4C3F07755741F8F37BEC53FC12EB0CEB7BA48B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ magnet:?xt=urn:btih:B4C3F07755741F8F37BEC53FC12EB0CEB7BA48B4
 ```bash
 magnet:?xt=urn:btih:6ED918F6B93678211FC1DE06A17F836F89458F52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:6ED918F6B93678211FC1DE06A17F836F89458F52
 magnet:?xt=urn:btih:71E849203929496B1F50E5805846EECB3D433E6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ American Truck Simulator (2016) [Ru/Multi] (1.54.2.3/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:D035CF3E7B9205309F57D35222E9F915B2600D61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ iTubeGo YouTube Downloader 10.2.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:EDF5C7336DAF782EFDC167C21C14186DE4FEC8E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:EDF5C7336DAF782EFDC167C21C14186DE4FEC8E1
 ```bash
 magnet:?xt=urn:btih:20D245F87BE25F939F35D31E64E8B82D52D6ED39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:20D245F87BE25F939F35D31E64E8B82D52D6ED39
 magnet:?xt=urn:btih:CA7D60B7C593EDD4C3EB2E51DD4CB68BCF829F47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:CA7D60B7C593EDD4C3EB2E51DD4CB68BCF829F47
 ```bash
 magnet:?xt=urn:btih:8939A26523F4A1C54CA12E42A8C278F9CCF20F47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:8939A26523F4A1C54CA12E42A8C278F9CCF20F47
 magnet:?xt=urn:btih:BD15F2277C9AC524D45FC44B76AE84DDDC2E7A81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:BD15F2277C9AC524D45FC44B76AE84DDDC2E7A81
 ```bash
 magnet:?xt=urn:btih:270DBCB460AB60666AA5A7CD60B5BAA2A80BCB43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:270DBCB460AB60666AA5A7CD60B5BAA2A80BCB43
 magnet:?xt=urn:btih:003A925059E34CE9BF66F976EB2AD418476BB70D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Mars Vice - это приключенческая игра, действие к�
 ```bash
 magnet:?xt=urn:btih:C88B863D0FE0D3E2F6677347DB13C91F6DBBECFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ CopyQ это легкий, но многофункциональный мене�
 magnet:?xt=urn:btih:425850FDD6E2F25957CBF0AA97D0682473F58998
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:425850FDD6E2F25957CBF0AA97D0682473F58998
 ```bash
 magnet:?xt=urn:btih:4E8C406FAE00FB7520EAC39CEBDF46F47929D9E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:4E8C406FAE00FB7520EAC39CEBDF46F47929D9E2
 magnet:?xt=urn:btih:E3B33D501496F1257AF1751DF140470F8D9B348F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Fiora (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A654A2A4189FAB9D32DD1F543A6C4EE434A220FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:A654A2A4189FAB9D32DD1F543A6C4EE434A220FA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ Ship Simulator: Maritime Search and Rescue (2014) [Multi] (1.0) Repack R.G. Ме
 magnet:?xt=urn:btih:4417F6725E33281462E3EF8E531EBDFF63A0C4CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:4417F6725E33281462E3EF8E531EBDFF63A0C4CB
 ```bash
 magnet:?xt=urn:btih:09904007730C83575F94D2BAE35E9CC07271488E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

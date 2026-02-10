@@ -19,6 +19,8 @@ Forgotten Fields представляет собой инди-приключен
 magnet:?xt=urn:btih:15CA3C8ACAF864807D8310986CFCE8F509E2C398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Case of the Golden Idol - это детективная приключенч
 ```bash
 magnet:?xt=urn:btih:05DA63A587E4C1C38262592C0420556D2D17D36B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Frozen Shelter (2023) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:4600FA163C41310180D8EB61440D876979E2665E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Dordogne (2023) [Ru/Multi] (1.12.15) Scene Rune
 ```bash
 magnet:?xt=urn:btih:6AAFE541675F6780916E037B4A0BECDE6C036060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Deadly Delivery — хоррор от первого лица. Ваша цель
 magnet:?xt=urn:btih:7F3C4228F2A5913FC7481119033E9A39D4380E3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Amnesia: The Bunker - хоррор от первого лица от созда�
 ```bash
 magnet:?xt=urn:btih:ECE2B18C44759378E350A1B2843B9BCFD1EDFA3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Harmony: The Fall of Reverie - это увлекательная приключ�
 magnet:?xt=urn:btih:3B5C97484DEB674729628A813237699815A3A4FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Scorn - атмосферный приключенческий хоррор от 
 ```bash
 magnet:?xt=urn:btih:1323E14E52F8B0B1492265CBF13DD57900A4221C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Basements n' Basilisks: Storms of Sorcery - это смесь из класси�
 magnet:?xt=urn:btih:E0387740D8339C869403DD84B2199C74B93240DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Voodoo Detective (2022) [En] (0.0.31) License GOG
 ```bash
 magnet:?xt=urn:btih:A3A2DCF9D659D819031C2FD27C96971B26C9BFE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Amnesia: The Bunker - хоррор от первого лица от созда�
 magnet:?xt=urn:btih:10BEBFED201B7CCB420FD7925E6806D0EBD0ADCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Killer Frequency (2023) [Ru/Multi] (1.0) Scene Rune [VR]
 ```bash
 magnet:?xt=urn:btih:32C087BA5E4A9D65B42646FAB37F9211F7A1E567
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Hello Goodboy - это добрая и интересная история пр�
 magnet:?xt=urn:btih:9F72149902D08D8BDAE4DFC5D938DD552441D6BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Infliction – психологический хоррор с главным г�
 ```bash
 magnet:?xt=urn:btih:829B243370BA3A537A02E45C91572058BC093A7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Backfirewall_ – приключение, которое понравится л
 magnet:?xt=urn:btih:344F38D7A4E92C061640525DE26B92CDDFF71BB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Everlight: Of Magic & Power / Хроники Мелвина. Проклятье 
 ```bash
 magnet:?xt=urn:btih:4DE36F00BBF81A6DD639E24878FB33E1FC059B30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Before I Forget - детективная история, рассказываю�
 magnet:?xt=urn:btih:0DA4DFA39163AA291234950E32ED15EDA2A54FAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Neighbours Back From Hell (2020) [Ru/Multi] (1.2.1) License GOG
 ```bash
 magnet:?xt=urn:btih:77CAA2362EE9EF9A98AA7388AC4037BFB41E16C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Oxide Room 104 — это сочетание экшена и жанра «эск
 magnet:?xt=urn:btih:B2CF95CA46947EBECD3C37F068EEF42396311E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Spelljammer: Pirates of Realmspace (1992) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:5AEFFEB117C65913D8FFC6EB339C87826DCFD891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Outcast 1.1 - переиздание приключенческого экшен
 magnet:?xt=urn:btih:F0815DFD92FEF4C2918DB59F327432E72F638D78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Failure Drill (2023) [En] (0.9.4.0) Scene Tenoke [16+]
 ```bash
 magnet:?xt=urn:btih:4424B8182B33C860C08A2B901FC777204FB06D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ A Building Full of Cats – игра-головоломка, предлагаю�
 magnet:?xt=urn:btih:F260AE96A799CFC67C2CAAF8B2AABA211A88734B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Subnautica — это подводная приключенческая игра
 ```bash
 magnet:?xt=urn:btih:B780180657A9A0956F4DF728080E96887829F26D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ FAR: Lone Sails (2018) [Ru/Multi] (1.31) License GOG
 magnet:?xt=urn:btih:B56CBE2F30F367005951945CE5DA6D7FF85060AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Wreck (2023) [Multi] (1.0.0) License GOG [Supporter Edition]
 ```bash
 magnet:?xt=urn:btih:F64B0519B34EA4368B54778C8DE71A72990D459B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

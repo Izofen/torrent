@@ -19,6 +19,8 @@ CCleaner - программа для оптимизации системы, а �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ CCleaner - программа для оптимизации системы, а �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Fraps состоит из трёх модулей Benchmarking Software, Screen 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Dungeons of Dredmor {1.0.10} (P) [En] 2011 | THETA
 ```bash
 magnet:?xt=urn:btih:BC70D42DBEF062BADC20A3088DBF4FA11E9242B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:BC70D42DBEF062BADC20A3088DBF4FA11E9242B2
 magnet:?xt=urn:btih:FB983242636B2FE59B561E747D7DB6DAE4C287AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:FB983242636B2FE59B561E747D7DB6DAE4C287AA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ RealStrat – виртуальный инструмент основанный �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Total Commander — популярный файловый менеджер с п
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Total Commander — популярный файловый менеджер с п
 magnet:?xt=urn:btih:EFAEEFA00957D9A78721CD3812C4DD0C2B340A6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:EFAEEFA00957D9A78721CD3812C4DD0C2B340A6F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:EFAEEFA00957D9A78721CD3812C4DD0C2B340A6F
 ```bash
 magnet:?xt=urn:btih:3D7E3DE3B8E15813E42FC7CC2AB83B50B81FA9A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:3D7E3DE3B8E15813E42FC7CC2AB83B50B81FA9A1
 magnet:?xt=urn:btih:6CAD9BA8B624EBB6F5DF9DC0072ADC2CA2D4820D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:6CAD9BA8B624EBB6F5DF9DC0072ADC2CA2D4820D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Ubuntu Studio — дистрибутив Linux, основанный на Ubuntu
 magnet:?xt=urn:btih:52C55C82796BD9F4E8B841D0A93D17C96EBE7855
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:52C55C82796BD9F4E8B841D0A93D17C96EBE7855
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:52C55C82796BD9F4E8B841D0A93D17C96EBE7855
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ SQLite Expert Professional 3.4.9.2218 3.4.9.2218
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ SQLite Expert Professional 3.4.9.2218 3.4.9.2218
 magnet:?xt=urn:btih:8F2E08E9F3E60A51D3E18EF072419CA278A40829
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Risen {1.10} (RePack) [Ru] 2009 | UltraISO
 ```bash
 magnet:?xt=urn:btih:6B9A9F2431E131642DEDEE140ECE50919323763B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ Risen 2: Dark Waters строится вокруг пиратской темат
 magnet:?xt=urn:btih:901CD0B32323340DE14126235FF020BEE7F48C63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:901CD0B32323340DE14126235FF020BEE7F48C63
 ```bash
 magnet:?xt=urn:btih:A5D741408B70EEC8ACA26E62B3BA97102E39BA76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:A5D741408B70EEC8ACA26E62B3BA97102E39BA76
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:A5D741408B70EEC8ACA26E62B3BA97102E39BA76
 magnet:?xt=urn:btih:3F40C7C67C6F4D05A4533A2D154F3C3ACD6DF27E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Daum PotPlayer - качественный проигрыватель файло�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ Krynn Антология [En] (RePack) 1990-1992 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Krynn Антология [En] (RePack) 1990-1992 | Pilotus
 ```bash
 magnet:?xt=urn:btih:F3269B1D52435087315795EF935312DBA97160DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

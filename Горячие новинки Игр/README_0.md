@@ -19,6 +19,8 @@ Arctic Awakening - приключенческая игра от первого �
 magnet:?xt=urn:btih:3337225C5936EB0B3BA38DE6AF0AD8A63F72A7FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Mai: Child of Ages (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C37AEDAF823457E8E37089CD86E0064F14BED89C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Platypus Reclayed (2025) [Ru/Multi] (1.0.20) Repack FitGirl
 magnet:?xt=urn:btih:126AA1AE7F2949B34FC7AAC013C0513178E5278C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ TurretGirls предлагает управлять оперативником �
 ```bash
 magnet:?xt=urn:btih:D6A695949AD5451BA954D07B36CCCF494DCA85A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack Wanterlude
 magnet:?xt=urn:btih:9B64D36B530C95931F03426507430B1A986CE5A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Let'sРlay [Digital Delu
 ```bash
 magnet:?xt=urn:btih:A1019DCC6E64612BA0B4B8E8833864200CE5EB10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack FitGirl
 magnet:?xt=urn:btih:7FF90903D9D4FB1AA818D716024CBF730F93883F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:CCE01B52DFDA79C3B8C1956392096A9570C712F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Other s [Digital Deluxe 
 magnet:?xt=urn:btih:F0B2BA803DE5A0E90C4312CAECD1C7B577CF855C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0/dlc) Repack Let'sРlay [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:C74D4B92C7A559C1402278E6007E919F7BB7FA61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Hades II (2) (2024) [Ru/Multi] (1.131346) Repack Other s
 magnet:?xt=urn:btih:7A88CB3C66BD8E94E15AD8F2B9297C2AA50DA03B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Dying Light The Beast (2025) [Ru/En] (1.2.2/dlc) Repack Let'sРlay [Deluxe Editi
 ```bash
 magnet:?xt=urn:btih:807579930906A2EEC7209B00EC833ABCB928EB1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Hollow Knight Silksong (2025) [Ru/Multi] (1.0.28750) Repack Let'sРlay
 magnet:?xt=urn:btih:E0EFF8AC63DB0FCBF1B4E076F731DB33EB398FB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Hell is Us - это приключенческий экшен от третье�
 ```bash
 magnet:?xt=urn:btih:D1E101CA0FC54609DEB3547AF41B2EDC5D000B9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Lightkeeper - психологический хоррор, действие 
 magnet:?xt=urn:btih:3E92FBCCB73F0B5D3921FADFD3622F62BA0DEFD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28650) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:132B52353CBC217E5F40526E7C7599A258A1DA27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Dying Light: The Beast (2025) [Ru/En] (1.2.1/dlc) Repack dixen18 [Deluxe Edition
 magnet:?xt=urn:btih:9A6CF1A9422AF1F16C3B91C6B021ACD23E7949DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Decepticon [Digital Delu
 ```bash
 magnet:?xt=urn:btih:E92612E475F99FD2196C371C82979E0738290CA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Dying Light The Beast (2025) [Ru/Multi] (1.2.1/dlc) Repack Wanterlude [Deluxe Ed
 magnet:?xt=urn:btih:40BBBE2518BE7122359F23F816C9262623775E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Wanterlude [Digital Delu
 ```bash
 magnet:?xt=urn:btih:D2EE55D3D1A45B4FF7E4835D7445EAE21C4CB977
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack FitGirl [Digital Deluxe 
 magnet:?xt=urn:btih:0B8E11587C8FAB87FCBA1E9DB5A57261A04E30F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack seleZen [Digital Deluxe 
 ```bash
 magnet:?xt=urn:btih:16D26A85AA61D2ADD34F3B1E93BE78D9C01D4AF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Scene Rune [Digital Deluxe Edit
 magnet:?xt=urn:btih:BB8CADC93A14D76B3B5EB36357D35ED79E7BC786
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack West4it [Digital Deluxe 
 ```bash
 magnet:?xt=urn:btih:61FFD9BC624778AAE50B8DF7BF8D7056A4726D72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Hell is Us - это приключенческий экшен от третье�
 magnet:?xt=urn:btih:75158107F16DB95827147CFD2F097364335F0BA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Bad Cheese - это психологический хоррор, вдохнов�
 ```bash
 magnet:?xt=urn:btih:4492B15645556DE7E019380BB8045A1BFE87F761
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

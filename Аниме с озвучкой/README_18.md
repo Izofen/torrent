@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D11EF467255E469427CB2F11D28C455C0AA06817
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Taimadou Gakuen 35 Shiken Shoutai / Антимагическая академи�
 magnet:?xt=urn:btih:2F57C3F310F76C04E47EBAD76D4E003238917DC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:2F57C3F310F76C04E47EBAD76D4E003238917DC7
 ```bash
 magnet:?xt=urn:btih:6DDCE1438DED51B0B0C77F0E896D0B5D55D43C87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:6DDCE1438DED51B0B0C77F0E896D0B5D55D43C87
 magnet:?xt=urn:btih:0FA74AE3384FDFA76CFF83E7B5179E6A802AD9D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Fairy Gone / Пропавшие феи [2019, TV, 24 ep] WEBRip 1080p Rus
 ```bash
 magnet:?xt=urn:btih:4E5E8255520EC83CD9974541EFFE036715463CE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Gate: Jieitai Kanochi nite, Kaku Tatakaeri | Врата: Там Бьются Н�
 magnet:?xt=urn:btih:7C0642B0B72A1B253A6397AFB83733A785D0CEDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Cyborg 009 | Киборг 009 [1966, Movie] WEBRip 720p rus
 ```bash
 magnet:?xt=urn:btih:1D7CE17ED4A75FC011EF5D6E674BBB94E1C3B44A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ TV-1 (AniDub), (Anilibria), - внешними файламиЯзык субти
 magnet:?xt=urn:btih:3BE03195036C2D0E159D81C6D277AC1117B4FAAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:3BE03195036C2D0E159D81C6D277AC1117B4FAAA
 ```bash
 magnet:?xt=urn:btih:AA2C6272ACC7974E892765B418542D72BB799594
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Absolute Duo / Абсолютный Дуэт [2015, TV, 12 ep] BDRip Hi10p 720p 
 magnet:?xt=urn:btih:4DCE888027C86D39B31D7E9291DF58241DD0A9CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:4DCE888027C86D39B31D7E9291DF58241DD0A9CF
 ```bash
 magnet:?xt=urn:btih:6A8BE7E94253D4C701AFC3D55E40F6A192E1D58A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Eiga Senpai wa Otokonoko: Ame Nochi Hare | Senpai Is an Otokonoko Movie: Sunshin
 magnet:?xt=urn:btih:C2BC3B82BA26EA3008A9A9BB47C7C5A5DCAD92F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Boruto: Naruto the Movie / Боруто: Фильм Наруто [2015, MV] BDRi
 magnet:?xt=urn:btih:5B5F7A16BB48E7B6E0CFEFE4C591BEEA4AD6968B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Tejina Senpai | Фокусница-старшеклассница | Magical Semp
 ```bash
 magnet:?xt=urn:btih:008D20FAA55FFEE117427CE03E200B33B8C7EDC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Bishoujo Senshi Sailor Moon Crystal / Pretty Guardian Sailor Moon Crystal / Пр
 magnet:?xt=urn:btih:648C8E62D8F6AFEEBCD12B2AC344653D7314EE55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Utawarerumono | Shadow Warrior Chronicles | The One Being Sung | Прослав�
 ```bash
 magnet:?xt=urn:btih:CF87185E2382DDE533C285ABB97A316AADE34500
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Utawarerumono: Itsuwari no Kamen | Utawarerumono: The False Faces | Просла
 magnet:?xt=urn:btih:67CFE6E6313024C07364C08517EF346C22035576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Utawarerumono | Прославленный [2009, OVA, 3 + 3] BDRip 1080p HEVC 1
 ```bash
 magnet:?xt=urn:btih:9971EA19A0514A7D8591518316C970D00458091E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Utawarerumono: Tusukuru-koujo no Karei Naru Hibi | Прославленный: �
 magnet:?xt=urn:btih:89E1A9349AADF9256845795A37543E4D760C9DD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:89E1A9349AADF9256845795A37543E4D760C9DD2
 ```bash
 magnet:?xt=urn:btih:97C0E56ED9567C3604CC2C0089750E225E2FAB77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ Shoukoku no Altair / Altair: A Record of Battles / Альтаир: На Поро
 magnet:?xt=urn:btih:EFA32CA65CDC14FC37EF8279E83138B14715A5B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:EFA32CA65CDC14FC37EF8279E83138B14715A5B6
 magnet:?xt=urn:btih:B3A005D767A9713B6807E85743D8E6837E4D94A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Kono Subarashii Sekai ni Bakuen wo! | Konosuba: An Explosion on this Wonderful W
 ```bash
 magnet:?xt=urn:btih:344C2830313FAEFE276049311C14D35EF92518FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Gekijouban Fairy Tail -Dragon Cry- | Fairy Tail: Dragon Cry | Хвост Феи:
 magnet:?xt=urn:btih:8A998C9C116603AD062474A7C3D7CF19F5B6C366
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Seikoku no Dragonar / Dragonar Academy / Академия Драконьих Н�
 magnet:?xt=urn:btih:692C229C49281B312E1A35BC6DA4262E5A90F665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Inuyashiki / Инуяшики [2017, TV, 11 ep] HDTV 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:464786935DFBF87C07B6C64601A33D69D7C212CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

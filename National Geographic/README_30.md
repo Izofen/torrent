@@ -19,6 +19,8 @@ V3: суперпушка Гитлера / Building Hitler's Supergun / Hitlers S
 magnet:?xt=urn:btih:1326794AE0E133A82604A98A40D23C711628A0A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:1326794AE0E133A82604A98A40D23C711628A0A8
 ```bash
 magnet:?xt=urn:btih:8C62EE30BF12F90DD52FEB0D9B38047A73420A49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG. Гении / American Genius (2015) WEB-DLRip [H.264/720p-LQ] (Сезон 1,
 magnet:?xt=urn:btih:F584BDAF814C64833896DBA90F90464A819D2449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG: Титаник. Дело закрыто / Titanic. Case Closed (2012) HDTV [
 ```bash
 magnet:?xt=urn:btih:43BB1AB5A7F6C1565E01C9130B6C5FC23980D9AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NG: Война Гитлера против прессы / Hitler's Battle Agains
 magnet:?xt=urn:btih:2808600C8B065A7F75F26FF387EF4B4D7C977E38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NGW: Царство леопардов / Leopard Kingdom (2018) HDTV [H.264/1080
 ```bash
 magnet:?xt=urn:btih:1DC472E2DC66B4EE21A0CD6948EEE0A357B0C0DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NGW: Охотница / Malika. Leopard Huntress (2018) HDTV [H.264/1080i-LQ]
 magnet:?xt=urn:btih:D595F4A4C5D7459FB6049BE84B7FF3D4C8B58CD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:D595F4A4C5D7459FB6049BE84B7FF3D4C8B58CD0
 ```bash
 magnet:?xt=urn:btih:154CD6DAE6F732C8A8981D89742C2C1B8A36CDAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NG: Вторжение на Землю / Invasion Earth (2014) HDTVRip [H.264/72
 magnet:?xt=urn:btih:618FCB6D29AB63A5F3762B0D7C0272C79E4E9B74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:618FCB6D29AB63A5F3762B0D7C0272C79E4E9B74
 ```bash
 magnet:?xt=urn:btih:22458F8E3B6BB6F01EAB819AE7DD3605913B6CE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2021) 
 magnet:?xt=urn:btih:FA45564CAAD09827D7B258EB148738243B652DF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ NG: Реальность или фантастика / NG: Is it Real? [19 се�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ NG: Дьяволы морских глубин / Devils of the Deep (2003) DVD5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ NG. Черная мамба: поцелуй смерти / Black Mamba Kiss of D
 ```bash
 magnet:?xt=urn:btih:35054A9468D8488CAFFAA5259C7D29B6710C23A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ NGW. Волчьи горы / The Wolf Mountains (2013) HDTV [H.264/1080i-LQ]
 magnet:?xt=urn:btih:37C390AE8396559FF1593805FB8D1BA544A138E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ NG: Птица-динозавр / Dino-Bird (2017) HDTVRip
 ```bash
 magnet:?xt=urn:btih:7AE84E4F12BDF10B453D83EB81421DAD2225FB11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:7AE84E4F12BDF10B453D83EB81421DAD2225FB11
 magnet:?xt=urn:btih:9E0BF4A099E35450330A5321B534E6C7595D9659
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ NGW: Смертоносная Африка. Побережья / Africa's Deadly
 ```bash
 magnet:?xt=urn:btih:626AFBA3AD52D9BA3B9EB713825E1151322D3684
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:626AFBA3AD52D9BA3B9EB713825E1151322D3684
 magnet:?xt=urn:btih:B941A7E2DA366728D5B8F20872A257FC3E8F75BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ magnet:?xt=urn:btih:B941A7E2DA366728D5B8F20872A257FC3E8F75BA
 ```bash
 magnet:?xt=urn:btih:7B0C8C97CE1789A7A7347E3C6000BDA67AB920F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ NG: Китайская мегагробница. Секреты терракот
 magnet:?xt=urn:btih:7EEF0234FCC8F68C71F01D235B1F7A844899CD56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ NG: Осушить океан. Титаник / The Drain Titanic (2015) HDTV [H
 ```bash
 magnet:?xt=urn:btih:E23252E57FDF4A1AA56AE1AC64172F5A6C018687
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ NG: Спасти Титаник с Бобом Баллардом / Save the Tita
 magnet:?xt=urn:btih:99FE3FF1E6F1244B9F44CC71B6555449F10D3472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ NG: Войны насекомых / Insect wars (2005) HDTVRip [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:6B83ED02C8FFF7F5697D0BD74949B6ADE739738B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ NG. Реальность или фантастика? Привидения / Is 
 magnet:?xt=urn:btih:6BB40E797F6EF04A58BE4AD44F6B681C72EA6E2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ NGW: Дикая природа. Южная Африка / Wild South Africa (201
 ```bash
 magnet:?xt=urn:btih:19125F48D658400D3A433AEA24D9C8294712AA81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

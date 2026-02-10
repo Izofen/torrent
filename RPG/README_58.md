@@ -19,6 +19,8 @@ ONINAKI (2019) [Multi] (1.0.0/dlc) License HOODLUM
 magnet:?xt=urn:btih:E7B505851FD1BC86F0123B365B528C482109FC55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Legend of Grimrock 2 — это ролевая игра в стиле dungeon cr
 ```bash
 magnet:?xt=urn:btih:426DBB533BF05F869D139AFEBC6C2F512A4ACBC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Space Rogue — игра про капитана космического кор
 magnet:?xt=urn:btih:018DAF9AAFC87766DDC9DA372AEE9416FD8015EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (cs:6544/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:D5BFB8D9535798F7B3C94E07265C257AF41103EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Neverwinter Nights: Enhanced Edition (2018) [Multi] (78.8186/dlc) License CODEX 
 magnet:?xt=urn:btih:FC042C3D81EE8B3038538F388D84F39BC6A14116
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Dead State – ролевая игра, действие которой разв
 ```bash
 magnet:?xt=urn:btih:C8351098CC51BA2B569446F011AA784EB57E503B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Two Worlds: Game Of The Year Edition [Ru] (RePack) 2008 | Spieler
 magnet:?xt=urn:btih:0CA9C87B3611BC55E175AE868B9352948CE703EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Vanaris Tactics рассказывает историю группы людей,
 ```bash
 magnet:?xt=urn:btih:4BFE84B791708903C4F5CA1D874C4AC409777C91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Paradise Killer (2020) [En] (1.0.8.0) License GOG
 magnet:?xt=urn:btih:D532897829D113E18A1B5B429960D9235851106B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Midnight Protocol (2021) [Ru/Multi] (1.3.1) License GOG
 ```bash
 magnet:?xt=urn:btih:E7ADB5FFE3F52273786409E91C6F14BEB1335B0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Hard West 2  — это пошаговое тактическое путешес
 magnet:?xt=urn:btih:3629A7EDBEE62DC9EF37040249C86105027E3196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Masquerada: Songs and Shadows - это тактическая ролевая и�
 ```bash
 magnet:?xt=urn:btih:6CF500AA292B2A8C65C771CDAE412C29FC22C4F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Hero Siege – это пиксельный рогалик, в котором в�
 magnet:?xt=urn:btih:2AC8BDEE84F995FF736AB9CA0ABA58A9DA4BBF7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Herolike – ролевая игра с экшен боями, в которой
 ```bash
 magnet:?xt=urn:btih:9401D6E4C6DABFD982BD574E843820C7F8A04950
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ bit Dungeon II — динамичный RPG-рогалик со случайно
 magnet:?xt=urn:btih:23507D3BBFA63FA96A7841E479FEB71E294A0B4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Tower of Time — удивительная игра со множеством п
 ```bash
 magnet:?xt=urn:btih:1341EE834E6944B972FBA66D3B0F8C00B214FB72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Windbound – это грандиозное морское приключени�
 magnet:?xt=urn:btih:7A2A89F8D7042181C8F6627077401DA1D1DABFC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Vestaria Saga - это серия стратегических ролевых и
 ```bash
 magnet:?xt=urn:btih:9F1CFF410D1F4D9B1215A0F5F73FB669F625AC24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ ATOM RPG это пост-апокалиптическая инди-игра вд
 magnet:?xt=urn:btih:7B4E55914F02C6172555B4F9E5D0E62B3E47D27D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Immortals Fenyx Rising - ролевая игра в открытом мире, �
 ```bash
 magnet:?xt=urn:btih:96B61C418E137F1D5FDB089F21193865A602AEFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Darkwood (2017) [Ru/Multi] (1.3) License PLAZA
 magnet:?xt=urn:btih:5CDF69E5525BA22C6E37FEA7C9AE0D96FCA92872
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Blue Horizon (2017) [Ru/Multi] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:B24F811544F25123A0E3DB1DC757CBCF941064B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ The Legend of Heroes: Trails of Cold Steel (2017) [En/Jp] (1.0.6430.37816/dlc) L
 magnet:?xt=urn:btih:416A2C2BC225C607387D4B900F9FADDE2D7ECB03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Sword Coast Legends (2015) [Ru/En] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:3B35070295F24B574B41F4430F2EEBC313930CCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Tales of Hongyuan (2017) [En/Ch] (1.1.0/dlc) License PLAZA
 magnet:?xt=urn:btih:4065B2228D4656280E82ACC36ED8CEDEE5E78404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Animus - Stand Alone (2019) [Ru/Multi] (1.1.1) License PLAZA
 ```bash
 magnet:?xt=urn:btih:7BC9F86E54C312B36D4FE64F1B2B5E6C66751C98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

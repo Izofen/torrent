@@ -20,6 +20,8 @@ Subtitle Workshop - некогда популярная программа дл�
 magnet:?xt=urn:btih:02BB27FCEC8783EF02FDDBB8FE55FCE8A2FB029D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Jeff McMillan - Compilation (2024) [MP3|320 Kbps] <Rock, Blues Rock, Soul>
 magnet:?xt=urn:btih:A2EE62BE508A4DE34598D4348DC301DB48FD5A4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Photo Supreme — вспомогательная программа для вл�
 ```bash
 magnet:?xt=urn:btih:1782BC8B1D34789AC006F996E0F27E40CA34C7F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ VA - Митьки никого не хотят победить! (2023) [FLAC|Lo
 magnet:?xt=urn:btih:13D06EA9455AFC7A849AFA72EB83E67A38478592
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ DJ Rosell and Angel Garcia DJ - Be My Lover (2023) [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:E945EC984D50DBAC1413A0D082A2834A5806238B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:E945EC984D50DBAC1413A0D082A2834A5806238B
 magnet:?xt=urn:btih:21172242694CD6E268FCCB9FD7C28DCA89BF5244
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:30AA5D0F722D6365A19C893A24C784045C0DA9EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ XYplorer - продвинутый файловый менеджер, котор�
 ```bash
 magnet:?xt=urn:btih:E41524850760CEF4D6EB74D09BFBCDED1023D9A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:E41524850760CEF4D6EB74D09BFBCDED1023D9A0
 magnet:?xt=urn:btih:98719A0DCEBEC3AE3397223798E487FFACE14CE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:98719A0DCEBEC3AE3397223798E487FFACE14CE7
 magnet:?xt=urn:btih:EA9AC4C5F0594DCEEE0204231AB9E6317362741C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ AirBrush: ИИ Фоторедактор v6.5.0 Mod by ImanAlien [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9161CC1088F4870CAAEE7D4FB50616293C682924
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ Text Edit Plus — это простой, но мощный текстовый �
 magnet:?xt=urn:btih:02B509294CC53489E5E0ABEDFF53490486A2530E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ Dark City 9: Amsterdam (2024) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:A01A1DBF86A97896A8012A249946526B11142A4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:A01A1DBF86A97896A8012A249946526B11142A4D
 magnet:?xt=urn:btih:261267DD97E4834B57D0F22B43FE271B3D86F682
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ Radiant Photo - это программа для редактирования ф
 ```bash
 magnet:?xt=urn:btih:28BA1AA755B7B39AC5172CDCE39A5986CF0AF886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ Modwave, выпущенный в 2021 году, основан на наслед
 magnet:?xt=urn:btih:EC86812673D91727FACC171A549CDBB4DB28572C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ FileZilla Server представляет собой очень простой, 
 magnet:?xt=urn:btih:24CE9A5716215165B7CEEA5154C279D0AA301F2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:24CE9A5716215165B7CEEA5154C279D0AA301F2D
 ```bash
 magnet:?xt=urn:btih:7154C676FF939DC9A5288A1F6C7F780C61FA4A76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ PortableApps.com Platform - это функциональная платформ
 magnet:?xt=urn:btih:4A3B80923FF78D63E2D6F443AA05124D03208C48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:4A3B80923FF78D63E2D6F443AA05124D03208C48
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:4A3B80923FF78D63E2D6F443AA05124D03208C48
 ```bash
 magnet:?xt=urn:btih:1BFB70DD83271E9229D9CB22246C2FA4157CDE6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:1BFB70DD83271E9229D9CB22246C2FA4157CDE6B
 magnet:?xt=urn:btih:05F453B1151F79D0E267BEEA9178B98F7F86B6D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ Snagit предлагает неограниченные возможности 
 ```bash
 magnet:?xt=urn:btih:09460E8095842EA08470FF343C63D196111D4BB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ Disc 3: What’s Love, Live from the Blockbuster Pavilion San Bernardino, Califo
 magnet:?xt=urn:btih:1065B54D042724828E036CEA02A737184CDCF5C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:1065B54D042724828E036CEA02A737184CDCF5C0
 ```bash
 magnet:?xt=urn:btih:F9E045084BECF9741BDA841FDFC8E6C55C6F689F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +693,8 @@ EssentialPIM - это отмеченное различными наградам
 ```bash
 magnet:?xt=urn:btih:00453DA4CBECD33014D9B32AE0EAFE79943A54DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Doors: Paradox – головоломка, сосредоточенная на �
 magnet:?xt=urn:btih:C1D3211F2513AEA28242F8228F3C2AFCEC471070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Shadow Warrior 3 (2022) [Ru/Multi] (1.06de/dlc) Repack Decepticon [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:D91B61142965B9931E2F9216206BF39CC8F6A9CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Inquisitor - это сюжетная приключенческая игра
 magnet:?xt=urn:btih:BB8BC7B0BD18FDE7A3D197E14EB6E39E95DC960D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Succubus With Guns соответствует своему названию. И�
 ```bash
 magnet:?xt=urn:btih:9EDC4F76EE2A77FC00428CFAC8D14FF4FA46AFDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Exotica: Petshop Simulator (2024) [Multi] (1.0.6) Repack FitGirl
 magnet:?xt=urn:btih:D372014089E40ECA6EC66EC3AF79E4F39E6E6386
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Realms of Arkania: Blade of Destiny представляет собой реме
 ```bash
 magnet:?xt=urn:btih:D772D773F98CE5C06428D7751F7310A7E17F1332
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Master of Magic (2022) [Multi] (1.09.13/dlc) Scene Rune
 magnet:?xt=urn:btih:45ACD6EAB64FF588E72935823E7FDE9EB809AA21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ My Recycling Center – теперь в вашем распоряжении ес
 ```bash
 magnet:?xt=urn:btih:1014EB4F275DE7775709683E9A6EAB5924E12BC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ GSClient Counter-Strike 1.6 - старая-добрая CS1.6 с авто-обн
 magnet:?xt=urn:btih:04E1C7B41E8CD45EB7CCC5BB374C0B5D43438225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Rise to Ruins - это игра, в которой сочетаются меха
 ```bash
 magnet:?xt=urn:btih:C00A7478577C4869CFE9EB1E460EFEBEF60CA1F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Maze of Realities 4: Symphony of Invension (2024) [Multi] (1.0) Unofficial [Coll
 magnet:?xt=urn:btih:921E5BFE35C29D1ED2DAAA4277FEF54D03499386
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Chronique des Silencieux (2024) [Multi] (3.7.7f) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7C742AB8A9A73CB338DEA7A22E4D250CCAB4ABE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Pixel Noir (2024) [En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:1B387A4817E90F5DA52D68AF5333953A1AE281AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Ocean's Heart - ролевая игра, выполненная в духе кл
 ```bash
 magnet:?xt=urn:btih:97DDC8DECE372E8419FE1849EFCF7DC2285FDA6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Slot Shots Pinball (2024) [En] (1.0) Scene Skidrow [Ultimate Edition]
 magnet:?xt=urn:btih:F09DB0F8CF662DCE9950A6F2462428489EAB58FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Inquisitor - это сюжетная приключенческая игра
 ```bash
 magnet:?xt=urn:btih:6F6823D379EC4FA3371EFFE781E39D253EBFCE1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Heretic HD PBR - масштабный мод, созданный разрабо�
 magnet:?xt=urn:btih:C0308B5F541EFE1358A7E2D995549379C9799C36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Weird West (2022) [Ru/Multi] (1.78819/dlc) Repack Decepticon [Definitive Edition
 ```bash
 magnet:?xt=urn:btih:8E03A15415E0391995A75CA45006F7B94802422C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Lizards Must Die / Русы против ящеров (2023) [Ru/En] (20240204/d
 magnet:?xt=urn:btih:BF9A54BD1A091E586B226BC0DD27F1C58BC9FE76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Dungeons 4 - это фэнтезийная стратегия в реально�
 ```bash
 magnet:?xt=urn:btih:D560DAD87DF86418A5B52119111A37BEF7EF50DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Legendary Tales возвращаются с новой историей-прик
 magnet:?xt=urn:btih:E599E63CD0766C4A7C6914B8B9089C9E7D3954BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ River Town Factory – а что вы скажете на то, чтобы от�
 ```bash
 magnet:?xt=urn:btih:0489AB7F4FA17BDB4FD2CADF99EB7E2FA1CC0CD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Cursed Fables 4: Before the Clock Strikes / Проклятые предания 
 magnet:?xt=urn:btih:5904AEE6BF2D3616D606CFB313600E179FD03BFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Axiom of Maria переносит геймера в будущее. Соглас
 ```bash
 magnet:?xt=urn:btih:DEA552B08E96F0B0F5897D76A1C65D3AFE754B32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ CLeM (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:9977BDF3BC0AAB7CCAEC61E5CF3661419E4F29A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Nexus PI (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2607A6DEA1DB6AEDFC3FD8E89AE4D02FAA7CC0E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 843043   (326519) от 20.11.2014
-
-VideoHive - Blue Tunnel [AEP]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_326519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект презентации чего угодно на экране виртуальных дисплеев. Кроме основного, есть три различных цветовых решения: красное, жёлтое и зелёное. Требуются плагины Optical Flares и Particular v2. Превью, текстовый файл помощи и чистый муз. трек (128 Кбит/сек) - в раздаче.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:364771504B1756DFFFA7D4163C3CCB845CA716D3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957668   (326523) от 18.11.2015
 
 ReviverSoft Driver Reviver 5.3.2.28 RePack by Manshet [Multi/Ru]
@@ -42,6 +18,8 @@ Driver Reviver – это приложение, которое проскани�
 ```bash
 magnet:?xt=urn:btih:A2CC599CBAC15E884233DEE31C97199DF3008084
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Opera 33.0.1990.115 Stable RePack (& Portable) by D!akov [Multi/Ru]
 magnet:?xt=urn:btih:69E29A79F80C8E26367264DAD8AF6FE01DBFE93F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:69E29A79F80C8E26367264DAD8AF6FE01DBFE93F
 ```bash
 magnet:?xt=urn:btih:64C4682FE94D40E5A9B4E40AB2B074D618630ACC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:64C4682FE94D40E5A9B4E40AB2B074D618630ACC
 magnet:?xt=urn:btih:5A632D5DFC29B603ACCF647A1FFA0080E9B85006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Soft Organizer 5.02 RePacK by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:07846E536FC7D7F214C4E278DB982011F40ABD15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ MetaComplex (aka Dublicator) - Collection 4 Releases (2010-2015) [MP3|320 кб/�
 magnet:?xt=urn:btih:5FAC540E98941AF08558D41FADACDDF84A121709
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:054DD9A923DC0BFD445F5456B4122B81E1BC9F7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:054DD9A923DC0BFD445F5456B4122B81E1BC9F7D
 magnet:?xt=urn:btih:D3DB676D9107B74184CE04D3AB0588CBD77B0707
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:D3DB676D9107B74184CE04D3AB0588CBD77B0707
 ```bash
 magnet:?xt=urn:btih:9B561566D076D110F2D36D926A430DE198A7D91B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ Foxit MobilePDF Business 3.6.0.1117 [Ru/Multi]
 magnet:?xt=urn:btih:6944332FCA806A1788CE05A9ED0CEB6D26A7862E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:15112CFFD3E2CC290CC95DB6E25A8EDF293C4CA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:15112CFFD3E2CC290CC95DB6E25A8EDF293C4CA5
 magnet:?xt=urn:btih:E5105FDAFD3DA815659E9ABFD969A22BC049536F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +332,8 @@ TapinRadio — простой и достаточно надежный ради�
 magnet:?xt=urn:btih:17FD1A24FA322BF16607EC9D207483F85208F71D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +357,8 @@ TapinRadio — простой и достаточно надежный ради�
 ```bash
 magnet:?xt=urn:btih:184E66EABFD716A678F92FEECB5337A6F627DF59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +387,8 @@ Blocs избавляет от необходимости написания ко
 magnet:?xt=urn:btih:6167ED6EBB5C1D13EE4A013CAF7AA885E13607CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +412,8 @@ magnet:?xt=urn:btih:6167ED6EBB5C1D13EE4A013CAF7AA885E13607CF
 ```bash
 magnet:?xt=urn:btih:47E6BC4C72DDFAE0B5DA35837190A405C6CB2409
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +439,8 @@ magnet:?xt=urn:btih:47E6BC4C72DDFAE0B5DA35837190A405C6CB2409
 magnet:?xt=urn:btih:4657061F98285A6FC921DEFF92324439B4EB5796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +464,8 @@ magnet:?xt=urn:btih:4657061F98285A6FC921DEFF92324439B4EB5796
 ```bash
 magnet:?xt=urn:btih:2DDE23046D8A081459A4C4F5A8BBF664F2234BD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +491,8 @@ magnet:?xt=urn:btih:2DDE23046D8A081459A4C4F5A8BBF664F2234BD2
 magnet:?xt=urn:btih:AC418FA76C6B1167831BA41A8D2F58A6BC25A5E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +516,8 @@ magnet:?xt=urn:btih:AC418FA76C6B1167831BA41A8D2F58A6BC25A5E5
 ```bash
 magnet:?xt=urn:btih:973A44176340A6F50946984BC590F7FF5249983A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +543,8 @@ Sergey Nevone & Simon O'Shine - Ethereal Rhapsody (2015) Single [MP3|320 кб/с
 magnet:?xt=urn:btih:76D94276EDA54ABAAC0F71272314060CD37F9C80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +568,8 @@ Free Studio 6.5.11.1117 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8F3EA6C0A4F826CCF72A63BD868E11097BEA5464
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +595,8 @@ Avira Free Antivirus - бесплатный антивирус, антишпио
 magnet:?xt=urn:btih:EEB664FCE8C59AE44EA007BDE2550AEA52A1C6D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:EEB664FCE8C59AE44EA007BDE2550AEA52A1C6D4
 ```bash
 magnet:?xt=urn:btih:C182223CC01A42F2B024A84553BD150502D6E79A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +647,37 @@ iPulse - Утилита для мониторинга работы Mac OS.
 ```bash
 magnet:?xt=urn:btih:6D841C1D7370F3CD35742EDA3AF78062B1038074
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957212   (326709) от 18.11.2015
+
+VA - Shogun Audio Presents: 2015 (2015) [MP3|320 кб/с]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_326709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed:It - Centre Suite
+02. Liz-E - On My Mind
+03. Submorphics - The Divine (feat. Jenna G)
+04. Technimatic - Dirty Hands(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9566C5AF2A91CC56B2FE019B12993CFD43394C98
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

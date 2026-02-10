@@ -19,6 +19,8 @@ Voice Aloud Reader – весьма удобное приложение для �
 magnet:?xt=urn:btih:44B61EDAE52241B34C641CBDD7A0AEA750C3304F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Aqua Map Marine - Boating GPS v20.4 [En]
 ```bash
 magnet:?xt=urn:btih:C930237CBB44502EF82C7D29E8CAD4B720FBD81D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Memory для детей 1.0.0 [Ru]
 magnet:?xt=urn:btih:DCCD9D25A9CDED3DA143F375A8F86810FEF14A4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ tinyCam Monitor PRO v15.3.4 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5335BB833F1DFEE9F7838D2D8AA41D6357D3200A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:5335BB833F1DFEE9F7838D2D8AA41D6357D3200A
 magnet:?xt=urn:btih:3E72565E435643741FAAA2107402011084AAD3EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:3E72565E435643741FAAA2107402011084AAD3EB
 magnet:?xt=urn:btih:D8ACCABA9E397F9EF81D4F22C39E0EDB8FA3E117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:D8ACCABA9E397F9EF81D4F22C39E0EDB8FA3E117
 ```bash
 magnet:?xt=urn:btih:82897DEDA150EEB2265D364E2E354F1B3B94E0CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ GPS АнтиРадар работает как радар-детектор и п
 magnet:?xt=urn:btih:DCD2F731B8A040493BB9EC2A1F00B7925D370B4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:DCD2F731B8A040493BB9EC2A1F00B7925D370B4F
 ```bash
 magnet:?xt=urn:btih:664D970C02A8D97223D11CA07F9F841E80A61C74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:664D970C02A8D97223D11CA07F9F841E80A61C74
 magnet:?xt=urn:btih:3A5151C8DFE21C4A00831D006DFD023A7EACFE93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Randomer - программа, с помощью которой Вы может�
 ```bash
 magnet:?xt=urn:btih:1433A231E130482DD26A4118EA5E6041774108C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:1433A231E130482DD26A4118EA5E6041774108C1
 magnet:?xt=urn:btih:B16A1FCA002DECC48FE63C9B53B7A6839B8BF05B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:B16A1FCA002DECC48FE63C9B53B7A6839B8BF05B
 ```bash
 magnet:?xt=urn:btih:110EB368760CC4DEC8A53B75B678C3575383AC9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:110EB368760CC4DEC8A53B75B678C3575383AC9A
 magnet:?xt=urn:btih:6DACAC8200B1F596040DEB11189ED0B5B0799B64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Garmin: TOPO France v4.01 PRO [Fr]
 ```bash
 magnet:?xt=urn:btih:2451E3354CAEA929663DF1B670C2F0CDCE25CFBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Garmin: Onroute MotorEurope 2015 [En]
 magnet:?xt=urn:btih:EE9B8082A853D37BB633421BAF792C6CB5CC0DA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Garmin: City Navigator India NT 2015.20 [En]
 ```bash
 magnet:?xt=urn:btih:D92BD43BAF8CB47F7C6FF7187C57CC2E38DB0945
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Weather Channel предоставляет вам самую важную и т�
 magnet:?xt=urn:btih:AD3DFF729210204912F18BD1567A2FB510406126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Super Backup Pro: SMS&Contac - это программа для быстрого
 ```bash
 magnet:?xt=urn:btih:F3B3DE88B93A7998AE8527E6790A3EEEDEBD75F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Overkill - широко известный и популярный тир от �
 magnet:?xt=urn:btih:12B605C363E16C0EE7C28F4C1B7E11B0873CF196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:12B605C363E16C0EE7C28F4C1B7E11B0873CF196
 ```bash
 magnet:?xt=urn:btih:7B2CC9891F0541E685FA219181A2C8E51ADC973D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:7B2CC9891F0541E685FA219181A2C8E51ADC973D
 magnet:?xt=urn:btih:C851FC8B7D1CDC75839D0687E0A8D3854D4E4FC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:C851FC8B7D1CDC75839D0687E0A8D3854D4E4FC1
 ```bash
 magnet:?xt=urn:btih:AD8F3A577A986FFB8FE12A6089B10780F6E132FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:AD8F3A577A986FFB8FE12A6089B10780F6E132FE
 magnet:?xt=urn:btih:BF98C2B88345DCD62CA8B54A3A69CE3BC428B7B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:BF98C2B88345DCD62CA8B54A3A69CE3BC428B7B7
 magnet:?xt=urn:btih:6785551AB0EB4BFDF9A4C52A97F1369CF78215FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ SeeTV.tv v1.03 Ad-Free [Ru/Ua/En]
 ```bash
 magnet:?xt=urn:btih:C8C414060C385DDBD6F3D8CD8B18CA85C1A92B43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

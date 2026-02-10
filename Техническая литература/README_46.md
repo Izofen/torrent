@@ -1,149 +1,3 @@
-###  Публикация: 1448661   (1030680) от 18.02.2021
-
-А.П. Достанко (ред.) | Технологии субмикронных структур микроэлектроники (2018) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1030680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассмотрены и обобщены результаты исследований и разработок в области технологии и оборудования для производства и диагностики субмикронных структур полупроводниковой микроэлектроники.
-Предназначена для инженерно-технических работников предприятий электронной и других отраслей промышленности, специалистов научно-исследовательских институтов, аспирантов, магистрантов (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D89B233F0FD74A81AE98919C3D9EAE164F94C5EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447614   (1031546) от 14.02.2021
-
-С.В. Богданов | Умный дом 2-е изд. (2005) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для кого это все написано? Если вы способны включать телевизор с пульта, вы в состоянии понять все, что здесь написано, а при желании — и добавить «ума» своему дому. Все оборудование «Умного Дома» отличается от обычных выключателей, розеток, ламп, как старый телевизор с ручкой переключения каналов отличается от современного телевизора с пультом дистанционного управления. (   Читать дальше...   )Жанр: ЭлектроникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE632848080B00D7D62CA134495E5352EFF913E5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447403   (1031815) от 13.02.2021
-
-Т. Ли и др. | Эксплуатация и обслуживание сетей электропередач в режиме реального времени (2019) [PDF]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга последовательно знакомит с теоретическими основами и инструментами производства работ по обслуживанию  распределительных  сетей  при  бесперебойной  подаче  электроэнергии,  излагает основные  принципы  производства  работ,  процедуры  и  методы  производства  работ  для  типовых проектов,  и  обобщает  опыт  организации  производства  и  практические  организационные  меры безопасности (   Читать дальше...   )Жанр: Энергетика, электротехникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED8BFC37BC5535353DA8F38D56EDD0BF777C89F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145273   (1032630) от 17.03.2023
-
-Серия книг | "СОЛОН" - радиолюбителям [42 книг + 7 CD] (1999-2016) [PDF, DJVU] [Обновляемая]
-
->>След.
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Устройство и ремонт радио и телевизионной техники. Принципы функционирования и подробное описание элементной базы. Советы мастеров и множество схем к популярным моделям (включая принципиальные). Книги для профессионалов и увлекательные книги для юных радиолюбителей.Жанр: ЭлектроникаФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E56307E7030E10ED0F8223D44907E2F420DCF99A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619282   (1032705) от 17.03.2023
-
-Е.А. Зельдин  | Децибелы (1977) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Просматривая характеристики различных устройств, часто приходится сталкиваться  термином "децибел", как он используются радиоэлектронике и акустике. Почему используется именно это математическое понятие и даст прочтение этого выпуска МРБ.
-В книге формулируются понятия логарифмической единицы - децибела. Описываются способы вычисления децибел и выполнение (   Читать дальше...   )Жанр: Массовая радио  библиотека (МРБ) , радио, математикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE74AD3AF8933AF9823352167B998A66162D1A27
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619101   (1032708) от 17.03.2023
-
-Л.М. Фолкенберри  | Применения операционных усилителей и линейных ИС (1985) [DJVU]
-
->>Научная и техническая литература
->>Техническая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1032708.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге известного американского специалиста рассмотрены методы построения и расчета электронных устройств с применением интегральных микросхем (ИМС) операционных усилителей, линейных и импульсных стабилизаторов напряжения, преобразователей данных, а также токоразностных и измерительных усилителей. Содержится много практических примеров создания таких устройств. (   Читать дальше...   )Жанр: Учебная литература, радиоэлектроникаПеревод: Пер. с англ. - М.: Мир, 1985Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C27AE4BC0DF8BECC119BB067D3038DD0FEADCA40
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445721   (1033348) от 06.02.2021
 
 Марко Шварц | Интернет вещей с Arduino Yún (+code) (2014) [PDF]
@@ -165,6 +19,8 @@ magnet:?xt=urn:btih:C27AE4BC0DF8BECC119BB067D3038DD0FEADCA40
 ```bash
 magnet:?xt=urn:btih:44E43325F367156979E46D681CCBACA8EFE0E1F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +46,8 @@ magnet:?xt=urn:btih:44E43325F367156979E46D681CCBACA8EFE0E1F9
 magnet:?xt=urn:btih:1A1231367948B39CCFABC4E41172921125727550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +71,8 @@ magnet:?xt=urn:btih:1A1231367948B39CCFABC4E41172921125727550
 ```bash
 magnet:?xt=urn:btih:799CDD02A64EB5015D315822B8C95F04B114C0C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +99,8 @@ magnet:?xt=urn:btih:799CDD02A64EB5015D315822B8C95F04B114C0C4
 magnet:?xt=urn:btih:D2994D2EE209BC2AF4D2B3113932101700EBD6AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +125,8 @@ magnet:?xt=urn:btih:D2994D2EE209BC2AF4D2B3113932101700EBD6AC
 magnet:?xt=urn:btih:E44B9DD7A2100F9B348A3C2CA25C008E7C25BD4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +150,8 @@ Raspberry Pi был очень популярен в производстве Si
 ```bash
 magnet:?xt=urn:btih:8A6982ED0CEBD54EFEF5D4E0CF8E86CAD086EC71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +178,8 @@ magnet:?xt=urn:btih:8A6982ED0CEBD54EFEF5D4E0CF8E86CAD086EC71
 magnet:?xt=urn:btih:4FC0E404C0BB3742564EC6A3C72ACF59C77A4A42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +203,8 @@ magnet:?xt=urn:btih:4FC0E404C0BB3742564EC6A3C72ACF59C77A4A42
 ```bash
 magnet:?xt=urn:btih:34F67E0FFB054F2AEAB07A0DC4D20D3EEC990EAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +230,8 @@ magnet:?xt=urn:btih:34F67E0FFB054F2AEAB07A0DC4D20D3EEC990EAC
 magnet:?xt=urn:btih:0EF55D6AE0000044ECC9506FBBBA22B58E636B6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +255,8 @@ magnet:?xt=urn:btih:0EF55D6AE0000044ECC9506FBBBA22B58E636B6C
 ```bash
 magnet:?xt=urn:btih:3D6F789C3544684D859410988FA7FA73C157A953
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +282,8 @@ magnet:?xt=urn:btih:3D6F789C3544684D859410988FA7FA73C157A953
 magnet:?xt=urn:btih:9E826BE9E6A3AD0103400C90C53CF074FF543D03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +307,8 @@ magnet:?xt=urn:btih:9E826BE9E6A3AD0103400C90C53CF074FF543D03
 ```bash
 magnet:?xt=urn:btih:3E1F6E58C6E4175C6220F7FFB0399AA0AE3398F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +334,8 @@ FPV-дроны широко используются как украинские
 magnet:?xt=urn:btih:13693E95E784F60B4970BCC8CD61392E2333569F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +360,8 @@ magnet:?xt=urn:btih:13693E95E784F60B4970BCC8CD61392E2333569F
 magnet:?xt=urn:btih:F187FB537FD481DDE66999079B5383289085DAF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +385,8 @@ magnet:?xt=urn:btih:F187FB537FD481DDE66999079B5383289085DAF7
 ```bash
 magnet:?xt=urn:btih:A22C73E7D4D20136F8A115B37A99BC374D6034D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +413,8 @@ magnet:?xt=urn:btih:A22C73E7D4D20136F8A115B37A99BC374D6034D9
 magnet:?xt=urn:btih:4AF0AAD791FBAD17F6D2EDE2B5E6CA0284FCC865
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +439,8 @@ magnet:?xt=urn:btih:4AF0AAD791FBAD17F6D2EDE2B5E6CA0284FCC865
 magnet:?xt=urn:btih:1473FC8123B88539992D96EFB5699DCF8BD36F30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +464,8 @@ magnet:?xt=urn:btih:1473FC8123B88539992D96EFB5699DCF8BD36F30
 ```bash
 magnet:?xt=urn:btih:EA04DFC34B012DACEA535B804E7590CD5C8B2CFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +493,8 @@ magnet:?xt=urn:btih:EA04DFC34B012DACEA535B804E7590CD5C8B2CFC
 magnet:?xt=urn:btih:2494125962B52E198CDDBEC86B0C4AF29D10BDF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +518,172 @@ magnet:?xt=urn:btih:2494125962B52E198CDDBEC86B0C4AF29D10BDF2
 ```bash
 magnet:?xt=urn:btih:B3959793CB378E7CC1AED07741FA3AAEB6D5C1E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1848499   (1052673) от 17.01.2026
+
+Г. Крон | Применение тензорного анализа в электротехнике (1955) [DJVU]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена применениям разрабатываемого автором метода расчета сложных электрических цепей и вращающихся электрических машин. В книге собраны в сокращенном и переработанном виде результаты опубликованных ранее работ автора. Материал основных глав изложен в форме, доступной для инженеров-электриков с обычной математической подготовкой. В конце книги приводится (   Читать дальше...   )Жанр: ЭлектротехникаИздательство: Государственное энергетическое издательствоФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B930ACC29B83CE3AE373C57AABB2EDDBADB1AAD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849228   (1053441) от 21.01.2026
+
+Dan Piestun, Felecia Killings и др. | Basic Electrical And Electronics Engineering. 3rd Edition (2023) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1053441.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book contains information obtained from highly regarded resources. Reprinted material sources are
+indicated. Copyright for individual articles remains with the authors as indicated and published under
+Creative Commons License. A Wide variety of references are listed. Reasonable efforts have been made
+to publish reliable data and views articulated in the chapters (   Читать дальше...   )Жанр: Электротехника, ЭлектроникаЯзык: АнглийскийИздательство: 3G E-learningФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A97A0726DBA059C8DEC0B6F69DB518E36361AFF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849396   (1054080) от 
+
+Технические нормы и правила (обновления) [01.01.2026] (2026) [HTML]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обновления электронной базы документов "Технические нормы и правила" (01.01.2026)
+
+Данная сборка представляет собой структурированный архив нормативных и правовых документов, предназначенный для удобного офлайн-доступа, хранения и поиска информации.
+Для использования нужно открыть файл cat.html в директории prod.Жанр: Нормативные документыФормат: HTMLКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D1CF40D83BBB50E500F895E4C1396ED76B273A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850264   (1054145) от 
+
+Musarrat Husain Warsi , Rishabha Malviya | Biopolymers. Green and Sustainable Approaches for Drug Delivery, Food Products and Packaging (Materials Horizons. From Nature to Nanomaterials) (2026) [PD ...
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054145.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book presents an in-depth exploration of biopolymers in biomedical engineering, spanning 15 chapters. Each chapter delves into different aspects of biopolymers, including their origins, development, potential, and sustainable sources, as well as advanced eco-friendly production methods. The text covers a wide range of applications, from advanced drug delivery (   Читать дальше...   )Жанр: БиополимерыЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E4639AE809A8AA36D6A2CD3F1F31BC261564A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850641   (1054469) от 
+
+Yong Ching Lim, Paulo S. R. Diniz, Yih-Fang Huang | Signal Processing for Autonomous Systems (Unmanned System Technologies) (2026) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054469.jpg" />
+</div>
+
+
+###  Подробнее
+
+This textbook provides information about the essential technical components of building autonomous systems. The book starts by briefly covering basic principles of statistical estimation theory, an essential tool required in various steps in the implementation of autonomous systems. The book also includes technical details of the navigation systems along with their (   Читать дальше...   )Жанр: Unmanned System TechnologiesЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2CE22F8E567C7496C01D4365D358BD4ABAB1F76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850624   (1054618) от 
+
+Francis D. K. Ching, Steven R. Winkel | Building Codes Illustrated. A Guide to Understanding the 2024 International Building Code. 8th Edition (2025) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054618.jpg" />
+</div>
+
+
+###  Подробнее
+
+STAY INFORMED OF THE LATEST UPDATES TO THE INTERNATIONAL BUILDING CODE WITH THE LEADING VISUAL REFERENCE
+
+In the newly revised Eighth Edition of Building Codes Illustrated: A Guide to Understanding the 2024 International Building Code®, architectural drawing expert Francis D.K. Ching and well-known architect Steven R. Winkel deliver a beautifully illustrated and (   Читать дальше...   )Жанр: Architectural Codes & Standards, Architecture, Architectural Drafting & PresentationЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DFDEFA52950AEEED427EA5069977D16F766FFCA
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

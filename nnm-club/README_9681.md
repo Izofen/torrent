@@ -20,6 +20,8 @@ Triage X / Искусственный отбор [2015, TV, 10 ep] BDRip Hi10p 7
 magnet:?xt=urn:btih:B2F72CA2C3808B12060914A4A90D74560B47C26E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Windows 10 x86 x64 pe StartSoft 89-2015 [Ru]
 ```bash
 magnet:?xt=urn:btih:535EAEA5EBD5A057427CE51A793D0D3B0AA1F446
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:535EAEA5EBD5A057427CE51A793D0D3B0AA1F446
 magnet:?xt=urn:btih:15A6EC4F3EB7FF875E68F4BCECCD23F6B0DFF1FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:15A6EC4F3EB7FF875E68F4BCECCD23F6B0DFF1FA
 ```bash
 magnet:?xt=urn:btih:8709E53C4197C50E6C415BC3CA1475D102238877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:8709E53C4197C50E6C415BC3CA1475D102238877
 magnet:?xt=urn:btih:AB7192EEB15D56421B695C9C2000F3F230E94233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:AB7192EEB15D56421B695C9C2000F3F230E94233
 ```bash
 magnet:?xt=urn:btih:FA9FA2F6BF6DB5E6BBC4B6856F22E63F1B595C5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Windows Server - это проверенная масштабируемая пл
 magnet:?xt=urn:btih:5BD66D023184C5669A9B218610674759307BBC09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ WinPE 10 Sergei Strelec (x86) 27.11.2015 [Ru]
 ```bash
 magnet:?xt=urn:btih:76A1B404C0F21FE83DB11F02B5FA79390F17C86A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Satellite Reign - это стратегия в реальном времени. 
 magnet:?xt=urn:btih:F644DFF2F8FD5E5A6BD96009BF2D4B3720252B0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:F644DFF2F8FD5E5A6BD96009BF2D4B3720252B0E
 ```bash
 magnet:?xt=urn:btih:6CBC97B5AD1EB6964A39B84EFC27AC9C18DA2450
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:6CBC97B5AD1EB6964A39B84EFC27AC9C18DA2450
 magnet:?xt=urn:btih:5D6115C8F7B872859DEEECAE4E26979C9CF5FA3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:5D6115C8F7B872859DEEECAE4E26979C9CF5FA3A
 ```bash
 magnet:?xt=urn:btih:405B90E4A2D9B4DF140A59AFC50180EEC11AA461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Pure Pool - Snooker pack (2015) [Ru/Multi] (1.05) License POSTMORTEM
 magnet:?xt=urn:btih:DDDD77A61390226ACB2ED916EC9B904C8BD10245
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:DDDD77A61390226ACB2ED916EC9B904C8BD10245
 ```bash
 magnet:?xt=urn:btih:27050810768D5802BE815D8A2356A84336C45E8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:27050810768D5802BE815D8A2356A84336C45E8E
 magnet:?xt=urn:btih:B44B1CF8C140D683208C5F84FEC55BA2405490C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Minecraft: Story Mode предлагает отправиться в попул�
 ```bash
 magnet:?xt=urn:btih:3E89B9D69D79D02737D6A54BCC35CB54CE410C28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:3E89B9D69D79D02737D6A54BCC35CB54CE410C28
 magnet:?xt=urn:btih:C9B25BEED968FD97B88A3B8975D61869536F50F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:C9B25BEED968FD97B88A3B8975D61869536F50F5
 ```bash
 magnet:?xt=urn:btih:80C10FB8AEC3FF4AE49D7CBAF8AB00F41519B70E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:80C10FB8AEC3FF4AE49D7CBAF8AB00F41519B70E
 magnet:?xt=urn:btih:E1720CAAF18DE30B95DEA6DDB56FAE06906F0793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:E1720CAAF18DE30B95DEA6DDB56FAE06906F0793
 magnet:?xt=urn:btih:303C7F5FB72A90BACC1550BE0DCCEB7B20FE2C36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Tales from the Borderlands (2014-2015) [Ru] (1.0.1) Repack =nemos= [Episodes 1-5
 ```bash
 magnet:?xt=urn:btih:7C4463E351E56713238D22895525A4DB3FE09378
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Smart Launcher Pro разблокирует истинный потенциал 
 magnet:?xt=urn:btih:3BE3B8A86FF02A4DAE2047260B47491DEB6599FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0/dlc) Repack R.G. Механи�
 ```bash
 magnet:?xt=urn:btih:1BC2F1900E0C32141C0634848376216CB7CE96C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Dead Space 3 (2013) [Ru/En] (1.0.0.1/dlc) Repack Other s [Limited Edition]
 magnet:?xt=urn:btih:DCDA24964355BA726AEA75CAAEFD501688AEC79E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Microsoft Office 2016 хорошо демонстрирует, как сегод
 magnet:?xt=urn:btih:ADE658D2393F4DC40D24F470A6CF7E1687218FCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:ADE658D2393F4DC40D24F470A6CF7E1687218FCA
 ```bash
 magnet:?xt=urn:btih:5C79CAD60830C1072C92881C983D4D87004D5B52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

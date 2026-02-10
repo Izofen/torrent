@@ -19,6 +19,8 @@ Unravel пленяет домашним теплом и уютом. Каждый
 magnet:?xt=urn:btih:89EE2EF470F547B32DCF6F4C6676BF42130AB13B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ SEUM: Speedrunners from Hell - это экшен-платформер, смеш�
 magnet:?xt=urn:btih:667BE3859FC612607ECE3353ED2C1AD28DFD2A04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Anarcute (2016) [En] (1.0) Repack Elektra
 ```bash
 magnet:?xt=urn:btih:801E80E01351AEEEB9404A85F9AA0D0F503A577D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Portal Dilogy / Дилогия [Ru/En] (RePack) 2007/2011 | R.G. Shift
 magnet:?xt=urn:btih:331C58B2A8F19FF252A7363E3CC1954D9B2798A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Cлучалось ли вам сталкиваться со своим худш�
 ```bash
 magnet:?xt=urn:btih:C0FFE120EC54D326DA2DCD3326BEA69B7E80072C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Cлучалось ли вам сталкиваться со своим худш�
 magnet:?xt=urn:btih:F2F73A97DCE7B8187878B6C06E95F89CBAD0ADA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ The LEGO Movie 2 Videogame (2019) [Ru/Multi] (1.0/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:548589AE32F66C7EA60008F247A02FA651EE71D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ The Hong Kong Massacre (2019) [En] (1.04) Repack R.G. Catalyst
 magnet:?xt=urn:btih:43F33A9051BAF79DCD4652A429DB3B5296B4A82D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ God's Trigger (2019) [Ru/Multi] (1.1.58505) License CODEX
 ```bash
 magnet:?xt=urn:btih:7DE85FA43B674A25A755D53B2C32417E46272886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Sonic Adventure 2 - переиздание игры 2001 года, и одна �
 magnet:?xt=urn:btih:4EE6E7586A46BD66EC8251541025C1DE4914A8C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Nine Parchments - это полная магического ералаша иг
 ```bash
 magnet:?xt=urn:btih:E2EB3EB4F70B23B25F522383904D95523F94B268
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Enter the Gungeon - это подземное приключение со стр
 magnet:?xt=urn:btih:48ADD70872415DBB768247B7620048F4E549C48C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ The Hong Kong Massacre (2019) [En] (1.04) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B8CF23BD2235862A536109EBD9D6E619B22E2FB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Rogue Stormers (2016) [Ru/En] (1.0 build 34) Repack Mizantrop1337
 magnet:?xt=urn:btih:64233194BC7AD8A22AEC0B9EF4BAE20811F08A0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Gish (2004) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:DA3B45B39BC5C5FCE1951A91EA61DF81C0D76F1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ The Hong Kong Massacre (2019) [En] (1.04) License CODEX
 magnet:?xt=urn:btih:E2A24689D8484416B4183DB1C3B05D8CEE42E944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Mortal Kombat X / Mortal Kombat XL (2015) [Ru/En] (0.305-05.126703.1/dlc) Repack
 ```bash
 magnet:?xt=urn:btih:60619F8520C2D1DCC8877A7481B5D9803EB08D99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Hyperdimension Neptunia Re;Birth1 (2015) [En/Ru] (4.3.0b10.18.10) Repack R.G. Ga
 magnet:?xt=urn:btih:369301C3F6600A392882B3F3E5457A4585E7AC8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:369301C3F6600A392882B3F3E5457A4585E7AC8C
 ```bash
 magnet:?xt=urn:btih:37EEF34CE77D03AC9BF9DDACD6F4BE0958190EE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Caveblazers - отличный фентезийный RPG-рогалик с ис
 magnet:?xt=urn:btih:F18D1DB9518DEC7BE4DBCE996F8B8D8E8BA5CC0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ LEGO The Lord of the Rings (2012) [Ru/En] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:B837212F1E56F909E871CDD4D54203F5FBB288BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ Grow Home - экспериментальная аркада, где вы сыг�
 magnet:?xt=urn:btih:92C940972135F54EE7D0B2289C6198E6A799C589
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Distrust (2017) [Ru/Multi] (1.1.5.2) Repack R.G.Catalyst
 ```bash
 magnet:?xt=urn:btih:EDA8ECD3DA38E62E9198A06B5A5D69109AEF8A47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Ice Age: Continental Drift - Arctic Games / Ледниковый период 4:
 magnet:?xt=urn:btih:0E9A6F80E2F9210281A3262E16A49505EABB7B29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Shank - Дилогия [Ru/En] (RePack) 2010-2012 l R.G. Механики
 magnet:?xt=urn:btih:867F623F349F575CCA7537AB6C94F7C3E702E755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Rocket League - это аркадный проект, который сочет�
 ```bash
 magnet:?xt=urn:btih:852737F770939349C604DEEC28676633FC714169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

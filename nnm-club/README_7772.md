@@ -19,6 +19,8 @@ Google завершила свою конференцию I/O интересны
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Iron Walrus - Tales Never Told (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom, Sludg
 magnet:?xt=urn:btih:A5C64A28E86EA7D625D456853A3936122CBE29F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:A5C64A28E86EA7D625D456853A3936122CBE29F2
 ```bash
 magnet:?xt=urn:btih:335EC957B9903D91CE039BA9141818013FAE292D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:335EC957B9903D91CE039BA9141818013FAE292D
 magnet:?xt=urn:btih:ABBFEB26E6D04B9AD30C36FBE0D6ACD90C98C6CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:ABBFEB26E6D04B9AD30C36FBE0D6ACD90C98C6CB
 magnet:?xt=urn:btih:BD7FC385045AB03224ACF7D55F41BA8A9F16201D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:BD7FC385045AB03224ACF7D55F41BA8A9F16201D
 ```bash
 magnet:?xt=urn:btih:5F74CECB098316EB2C0AB30C0F9122F2716367D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:5F74CECB098316EB2C0AB30C0F9122F2716367D3
 magnet:?xt=urn:btih:BA04C7A91F6D99E7703536D79CD0634B008DABD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ The Gnomon Workshop, Wojtek Piwowarczyk | Creating Procedural Environments in Ho
 ```bash
 magnet:?xt=urn:btih:941DFC51FF030CCCFD187E17670E865F6CD7BB57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ VA - Музыка для машины Vol.15 (2023) [MP3|320 Kbps] <Pop, Dance, 
 magnet:?xt=urn:btih:3D1BA4DB14E177907C5298CD2E8B7E581C84D301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:3D1BA4DB14E177907C5298CD2E8B7E581C84D301
 ```bash
 magnet:?xt=urn:btih:0E53CB75C38E7CED5E6836608540D7434B07A288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ Riotor - Recrudescence of Darkness (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, 
 magnet:?xt=urn:btih:19CA28E020197283674892ECAD90EE7453587AE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ Nana Rashid - Music For Betty (2023) [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:256CEB91A47DBEA6E237D263DF1486B1D3ACAD95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ Dig Me No Grave - Under The Pyramids (2020) [FLAC|Lossless|image + .cue] <Death 
 magnet:?xt=urn:btih:6183053DC104622C3EC483E03BADAFD9DAE02571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ Tyranis - Failure to Yield (2023) [MP3|320 Kbps] <Heavy, Power Metal>
 magnet:?xt=urn:btih:36FE503C4ECDAED08DB2117E40C730CCA53325C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:36FE503C4ECDAED08DB2117E40C730CCA53325C5
 ```bash
 magnet:?xt=urn:btih:6F512D55114C2EEB7F0AC2BCA2E7CD0E046402EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ VA - The Contemporary Jazz (2023) [MP3|320 Kbps] <Jazz, Instrumental, Improvisat
 magnet:?xt=urn:btih:C4A3CAA02FD472A847EA686B38C67A6689266E87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:C4A3CAA02FD472A847EA686B38C67A6689266E87
 magnet:?xt=urn:btih:E0F5532CD6121B2F90ED50C1FA3487B8BE932EC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:E0F5532CD6121B2F90ED50C1FA3487B8BE932EC4
 ```bash
 magnet:?xt=urn:btih:BBF16B1089C32006F3B6CA4593FBF9CEC3D42B51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:BBF16B1089C32006F3B6CA4593FBF9CEC3D42B51
 magnet:?xt=urn:btih:99AB36F2CE734489E095D7BD936894E3D582473A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ Perc3ption - Once and for All (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive,
 ```bash
 magnet:?xt=urn:btih:B2506B06F410903A33102A8CACAFAB3FEB3D1AF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ Caro Emerald - Deleted Scenes From the Cutting Room Floor (Deluxe Edition) (2011
 magnet:?xt=urn:btih:1F68058881FC3BAD3398B64983A30E1E5D296D15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ Hellstompers - Let's Go Stomp (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychobilly,
 magnet:?xt=urn:btih:17A34622B1FB681A75D55AFBF43F45448FB86C62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ magnet:?xt=urn:btih:17A34622B1FB681A75D55AFBF43F45448FB86C62
 ```bash
 magnet:?xt=urn:btih:EB4BE45923EAE2745002E5B80AC3862B43A48D38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ Radiant Photo - это программа для редактирования ф
 magnet:?xt=urn:btih:31419FF45E6E4D9994A4393A017DC8861781372E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ WinCatalog - это простая в использовании програм�
 magnet:?xt=urn:btih:1A258B9D3E557261FB5E8B687A697ECBCB7660FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ magnet:?xt=urn:btih:1A258B9D3E557261FB5E8B687A697ECBCB7660FA
 ```bash
 magnet:?xt=urn:btih:77C3CE520F0C2AFA55C10F2B021393B0DF0A81C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

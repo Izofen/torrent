@@ -19,6 +19,8 @@ Izure Saikyou no Renkinjutsushi? / Possibly the Greatest Alchemist of All Time /
 magnet:?xt=urn:btih:2B2BDA687A1B2996DE4E2767BDAB86A4FEC590CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Revo Uninstaller Pro 5.3.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C98C8BE4FDFA1305FF631FC4313373358E8F25E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sonic X Shadow Generations (2024) [Ru/Multi] (1.01/dlc) Repack FitGirl
 magnet:?xt=urn:btih:F754CBB3B978A71C16D09DA1E8004ADC797D4B6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:F754CBB3B978A71C16D09DA1E8004ADC797D4B6A
 ```bash
 magnet:?xt=urn:btih:AB8730969ABB8FBEEB096FC1BD4A5A5396199690
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Windows 11 PRO 23H2 22631.5039 Update 17 by Ghost Spectre [En]
 magnet:?xt=urn:btih:EA7BC03CF23BED842811D57629714272AF6E95C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ DSSGroup, Даниил Попов | Школа автоподбора (2024) WEB
 magnet:?xt=urn:btih:7EE2CBC41011383C62631A617F90CEBEA542DE18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:7EE2CBC41011383C62631A617F90CEBEA542DE18
 ```bash
 magnet:?xt=urn:btih:BB391234B78A8A131377AE3DFA533C930F51AE3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Heretic: Shadow of the Serpent Riders - темное фэнтези, шутер 
 magnet:?xt=urn:btih:C8041E457D4408DCC4E94D5995F0F55ECBDEF5DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:C8041E457D4408DCC4E94D5995F0F55ECBDEF5DA
 ```bash
 magnet:?xt=urn:btih:9C1CE9AF91CDE4AA3024DFB80825702B042962EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:9C1CE9AF91CDE4AA3024DFB80825702B042962EB
 magnet:?xt=urn:btih:CF0D00870A0D1BBDBABA60426146C53865F863EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:0D15B084E36FAA97140FD9FFA208583207D9F0BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ LosslessCut — простой видеоредактор для нарезки 
 magnet:?xt=urn:btih:144EA76F662DA423E56E539AE56CBB73AD48F02F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Jagged Alliance 3 (2023) [Ru/Multi] (1.5.1.366685) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:E16C1069AE504D3620B6D0B0C21B1AB5F2C13CF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ EZ CD Audio Converter - утилита для преобразования ау�
 magnet:?xt=urn:btih:FE20936C06DDA0A3831CF52BCE23C15C950D9F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:FE20936C06DDA0A3831CF52BCE23C15C950D9F1A
 ```bash
 magnet:?xt=urn:btih:6C5D97C267643B79700307BB870D8050206CC117
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:6C5D97C267643B79700307BB870D8050206CC117
 ```bash
 magnet:?xt=urn:btih:75AECCBDE124ECAE00083CB46F67A7F39E8E77CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:75AECCBDE124ECAE00083CB46F67A7F39E8E77CC
 magnet:?xt=urn:btih:9169B82AC3576F3986416EBBB348F6DD312CF6BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Succubus (2021) [Ru/Multi] (18354/dlc) Repack Decepticon [The Worshipper Bundle]
 ```bash
 magnet:?xt=urn:btih:BC430B93908AC6953959EEE0F59EA5E9D66B75B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:BC430B93908AC6953959EEE0F59EA5E9D66B75B4
 magnet:?xt=urn:btih:E12E6F377BCED3A6B306388993741BDC296E9A1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Windows 11 - это серия операционных систем, разра
 ```bash
 magnet:?xt=urn:btih:410FC5FFDF3CB4F757C8D3C5AF5E84FA7ACDACA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ Split Fiction (2025) [Ru/Multi] (Build 17714403) Repack Wanterlude
 magnet:?xt=urn:btih:ED5814B893471F3BD3E3E71144FE8AD00F27E1CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ RRed Dead Redemption 2 – приключенческий шутер от тре
 ```bash
 magnet:?xt=urn:btih:6E7808C526AE59053CB3C0AD99FA07A138853BAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:6E7808C526AE59053CB3C0AD99FA07A138853BAC
 magnet:?xt=urn:btih:672F33079198C1E484B9B9E95CC7738B7FE3CEAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:672F33079198C1E484B9B9E95CC7738B7FE3CEAC
 ```bash
 magnet:?xt=urn:btih:EC8C0FD785076C454F07ABC756AAD8DC1A9D9209
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Dungeon Tycoon приглашает игроков отправиться в п�
 magnet:?xt=urn:btih:B8F737BA2F6A6370ABB0B59EEA0CC7C58C06F4A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:B8F737BA2F6A6370ABB0B59EEA0CC7C58C06F4A6
 ```bash
 magnet:?xt=urn:btih:86744592D6DBDEE5F5FDC7F9DC1136BBFFDAFD0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

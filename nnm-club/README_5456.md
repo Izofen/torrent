@@ -22,6 +22,8 @@ Hallas - The Hällas Saga - Live at Cirkus (2023) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:7A3D3780A58FBC637F33D781989D7B0B83DECDEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:7A3D3780A58FBC637F33D781989D7B0B83DECDEB
 ```bash
 magnet:?xt=urn:btih:88347C4DF751AADEA6AAA726FAED2B948C18593A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Adobe Animate, пришедший на смену Flash Professional - это м
 magnet:?xt=urn:btih:4A793D80C96DED224540E5168466AFEDF756C6DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:4A793D80C96DED224540E5168466AFEDF756C6DE
 ```bash
 magnet:?xt=urn:btih:B8C65389377E03AB5C4494085DB0680A36FA3CDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Sodom - Genesis XIX (2020) [FLAC|Lossless|image + .cue] <Thrash Metal>
 magnet:?xt=urn:btih:E9D1C5D2B909973B9C1782D1FE8E5934E173BAB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:E9D1C5D2B909973B9C1782D1FE8E5934E173BAB8
 ```bash
 magnet:?xt=urn:btih:CA05D689B4FEA5B1EEB12A7C11C7E5919A176BC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Beyond Shadows - Beyond Shadows (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic De
 magnet:?xt=urn:btih:A1816AB3ACEDB90789110680B4F40A0E2D7FEBFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Zoe Rahman - The Cynic (2000) Manushi Records [FLAC|Lossless|tracks + .cue] <Pos
 magnet:?xt=urn:btih:71A832FA68ACAED959F9ECCA51E91BE8B912A8F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:71A832FA68ACAED959F9ECCA51E91BE8B912A8F7
 ```bash
 magnet:?xt=urn:btih:7140B880385C832E4C07A894C645EEFB24F483F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:7140B880385C832E4C07A894C645EEFB24F483F2
 magnet:?xt=urn:btih:0619496E890398D1DC88AADFC07B64032D441DD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Navicat Premium представляет собой очень мощный ин
 magnet:?xt=urn:btih:762E7C89407510F140F38A86AB3B11EA3FDD4A3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:762E7C89407510F140F38A86AB3B11EA3FDD4A3B
 ```bash
 magnet:?xt=urn:btih:E87498E9F9A0AECE246C47FBA658D012E3737C23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Folder scanner - визуально анализирует диск / папку
 magnet:?xt=urn:btih:8C27F3CC121B2C363C86DF7299C74255AF38B4DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:394EFC206E9FC6D0C31820077C74F7351D21D877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:394EFC206E9FC6D0C31820077C74F7351D21D877
 magnet:?xt=urn:btih:C7FE9586C7309F579EE71A2166285CC0D9CE578A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:C7FE9586C7309F579EE71A2166285CC0D9CE578A
 ```bash
 magnet:?xt=urn:btih:798B96F4B8997F3AB769B066B3D42D1967398E8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:798B96F4B8997F3AB769B066B3D42D1967398E8A
 magnet:?xt=urn:btih:B11C8525898EFE1039ECC6E3E1F2FF6A484831C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:6D3AC406455542C528565A766E4BC958CC432E5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ Bill O'Connell - A Change Is Gonna Come (2022) Savant [FLAC|Lossless|tracks + .c
 magnet:?xt=urn:btih:53D1984DFED7D6714AC9C497A07BA20EC704AC56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:53D1984DFED7D6714AC9C497A07BA20EC704AC56
 ```bash
 magnet:?xt=urn:btih:E0526B976BB38AEC2109DDD9418D6775C87A1016
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:E0526B976BB38AEC2109DDD9418D6775C87A1016
 magnet:?xt=urn:btih:A22C2E7A6B70962360EF909D226A16DED035B75D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:A22C2E7A6B70962360EF909D226A16DED035B75D
 ```bash
 magnet:?xt=urn:btih:6449C39A04977B98B3D82A58CC54F4ED23DB8405
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:6449C39A04977B98B3D82A58CC54F4ED23DB8405
 magnet:?xt=urn:btih:822D0289EDBF940039E68FDE7763AFDFD6710C42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:822D0289EDBF940039E68FDE7763AFDFD6710C42
 ```bash
 magnet:?xt=urn:btih:85854BC61705FD6D2E76B7E864F73668586C8E8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:85854BC61705FD6D2E76B7E864F73668586C8E8F
 magnet:?xt=urn:btih:9646A399AB887FE1A05FEA2979BF628738B69076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:9646A399AB887FE1A05FEA2979BF628738B69076
 ```bash
 magnet:?xt=urn:btih:CADB6B856AF4485178393C43DA1D63DB65F0D3B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

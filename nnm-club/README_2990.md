@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:0D070C8127695AC32A11F3FC6E2B90B72AEA3B5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Fancy - Locomotion (2001) [FLAC|Lossless]<EuroDisco>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +85,8 @@ Fancy - Locomotion (2001) [FLAC|Lossless]<EuroDisco>
 magnet:?xt=urn:btih:24ECE0996871401766A4C80DA217F9923035BC13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -104,6 +110,8 @@ magnet:?xt=urn:btih:24ECE0996871401766A4C80DA217F9923035BC13
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -138,6 +146,8 @@ VA - Для всех, кто служит (2006 - 2008) (2CD)[MP3|320 кб/с]<�
 magnet:?xt=urn:btih:91E4548D5C653271074C9A71FF2296950017FE37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +181,8 @@ VA - Мы Вас помним и чтим (2010) [MP3|320 kbps]<Ретро, во
 magnet:?xt=urn:btih:AB17CD5B4FE75242F83823D742EFB9D19CA4D266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +206,8 @@ magnet:?xt=urn:btih:AB17CD5B4FE75242F83823D742EFB9D19CA4D266
 ```bash
 magnet:?xt=urn:btih:96B4555078B5ABE61A9656EEBF9C295AFBC2E106
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +233,8 @@ magnet:?xt=urn:btih:96B4555078B5ABE61A9656EEBF9C295AFBC2E106
 magnet:?xt=urn:btih:747336C8D34CFD62B1DDB68EEE23BE68869A5951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +258,8 @@ magnet:?xt=urn:btih:747336C8D34CFD62B1DDB68EEE23BE68869A5951
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +286,8 @@ magnet:?xt=urn:btih:747336C8D34CFD62B1DDB68EEE23BE68869A5951
 magnet:?xt=urn:btih:8AD4C286BF52686E7F2254858074E20024B224D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:8AD4C286BF52686E7F2254858074E20024B224D3
 magnet:?xt=urn:btih:ED80997C0F188A9854C7721468417ADFCE67EF3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ magnet:?xt=urn:btih:ED80997C0F188A9854C7721468417ADFCE67EF3B
 ```bash
 magnet:?xt=urn:btih:929C7377F339E33816D399571CDAE6DF861CD46D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +373,8 @@ VA - Galaxy (2011) [MP3|256 кб/с]<Spacesynth>
 magnet:?xt=urn:btih:4160D594876CFB752C0B452602CA6F9E5C5456D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +408,8 @@ CD1  (240 - 269 кб/с) (00:51:17)
 magnet:?xt=urn:btih:5AD53006F84974E054896D52884EA6AF0804D3F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +434,8 @@ magnet:?xt=urn:btih:5AD53006F84974E054896D52884EA6AF0804D3F2
 ```bash
 magnet:?xt=urn:btih:516AA2A62A92B2031AE2EF63F2D67505D706BB31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +470,8 @@ Anosphere - Nation of Love (2009) [MP3|320 кб/с]<Spacesynth>
 magnet:?xt=urn:btih:E08842AB22395B1520D59BC29354A47BBB3916A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +497,8 @@ magnet:?xt=urn:btih:E08842AB22395B1520D59BC29354A47BBB3916A3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +522,8 @@ magnet:?xt=urn:btih:E08842AB22395B1520D59BC29354A47BBB3916A3
 ```bash
 magnet:?xt=urn:btih:D8A9AE0AB46D2A58B020A08CB10B28C15DDC5E94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +553,8 @@ magnet:?xt=urn:btih:D8A9AE0AB46D2A58B020A08CB10B28C15DDC5E94
 magnet:?xt=urn:btih:A1C10B640151C8EBB8E8FE4BFB982CAB411E1495
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +579,8 @@ VA - Инструментальная музыка (2012) vol. № 17 [MP3|320 �
 magnet:?xt=urn:btih:71ACB2E13795EF5F11826F8F5223498898F2B6C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +604,8 @@ VA - Инструментальная музыка (2012) vol. № 16 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:828304F095D0BF42569C8CB2BF9C7C1F4237D800
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +632,8 @@ magnet:?xt=urn:btih:828304F095D0BF42569C8CB2BF9C7C1F4237D800
 magnet:?xt=urn:btih:58965008EC503A3B1F1E82C479333AE1D534A7F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ magnet:?xt=urn:btih:58965008EC503A3B1F1E82C479333AE1D534A7F6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ magnet:?xt=urn:btih:58965008EC503A3B1F1E82C479333AE1D534A7F6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +713,8 @@ magnet:?xt=urn:btih:58965008EC503A3B1F1E82C479333AE1D534A7F6
 ```bash
 magnet:?xt=urn:btih:26ADA51A61A37926523DE2914C6DB5D66936BA99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -690,6 +740,8 @@ magnet:?xt=urn:btih:26ADA51A61A37926523DE2914C6DB5D66936BA99
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

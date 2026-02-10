@@ -19,6 +19,8 @@ Google Earth Pro 7.3.6.9285 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:817A36868F1A798A7C8676F93C09167D0FF94B4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:E0AA8FE7E971B5C4FA95055CF8A98F53538F2447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:E0AA8FE7E971B5C4FA95055CF8A98F53538F2447
 magnet:?xt=urn:btih:A7A57E81C7332E6A30FAE2A08CC4EF71C2B74716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:A7A57E81C7332E6A30FAE2A08CC4EF71C2B74716
 magnet:?xt=urn:btih:F4895CC7435AD59C1267AC96BCA6C059C074013A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Discovery. Потерянный город Тутанхамона / Tut's Lost C
 ```bash
 magnet:?xt=urn:btih:F74F740ED836BA1733776B0010C719F353805CE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:F74F740ED836BA1733776B0010C719F353805CE2
 magnet:?xt=urn:btih:6DBD999358700E1725F694511EC277B025F207F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ WXAudio - NANI Plugin 2.0.2 VST 3 (x64) RePack by JustFun598 [En]
 magnet:?xt=urn:btih:4F2E91B935A658ABBACB7E9DA78B505B0259C390
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:4F2E91B935A658ABBACB7E9DA78B505B0259C390
 ```bash
 magnet:?xt=urn:btih:62A69D8BD43155A2385F780A537A92630892CB5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ VA - BPR Compilation Vol 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Minimal, Tech H
 magnet:?xt=urn:btih:122DAAE6BFD35CC1690415AF7FF6727148675CAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:122DAAE6BFD35CC1690415AF7FF6727148675CAE
 magnet:?xt=urn:btih:190F969C17B4937109A9CC5A983079020D10547E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:190F969C17B4937109A9CC5A983079020D10547E
 ```bash
 magnet:?xt=urn:btih:092C82D5C0B9F2E04F5DE3A1D2A7FD7AAD1B2C5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ Pearl Jam - Soldier Field, Chicago 1995 (2023) [MP3|320 Kbps] <Modern Rock>
 magnet:?xt=urn:btih:86B590533BE9DC943CC9006441D8AF1784C4D930
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:86B590533BE9DC943CC9006441D8AF1784C4D930
 ```bash
 magnet:?xt=urn:btih:EA5CB68657639D665D13A0683CCA73298CD00252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:EA5CB68657639D665D13A0683CCA73298CD00252
 magnet:?xt=urn:btih:E6E5FAE80C1335C9498FC111E4701228436F34D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:E6E5FAE80C1335C9498FC111E4701228436F34D7
 magnet:?xt=urn:btih:D51142A4AD0F6356B25AD5E6DF2C3C02D8AAA6CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:D51142A4AD0F6356B25AD5E6DF2C3C02D8AAA6CE
 ```bash
 magnet:?xt=urn:btih:A9C5D12DA4BB4322BC32E4339D13C67F7E4211BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ The Chemical Brothers - For That Beautiful Feeling (2023) [MP3|320 Kbps] <Breakb
 magnet:?xt=urn:btih:13EA3FEDFCBF22E8C444D6CA21D615A03D9EC538
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:13EA3FEDFCBF22E8C444D6CA21D615A03D9EC538
 ```bash
 magnet:?xt=urn:btih:C83CB5EFE93057D358D24400D2B1ACD897E8A666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:C83CB5EFE93057D358D24400D2B1ACD897E8A666
 ```bash
 magnet:?xt=urn:btih:EF86F89F06EBC3DD09D0F5CD933BDC5F9E884D0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ Myrath - Karma (2023) [MP3|320 Kbps] <Oriental Progressive Metal>
 magnet:?xt=urn:btih:CA27C76C9A7CED74B2F025F70244814E93949B3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ AIMP 5.10 Build 2411 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A9F8118219B4EEAC2904A2732F8C9EE0B10A34F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ Gary Del Vecchio - Buzzin (2023) [MP3|320 Kbps] <Proto Hard, Psych, Prog, Garage
 magnet:?xt=urn:btih:AEEF905177324D9B1F0A2D14A18448A0F48906FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:AEEF905177324D9B1F0A2D14A18448A0F48906FB
 ```bash
 magnet:?xt=urn:btih:37FBE2AFA083E9AFC0A013588B126B88FB9CF75E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ Brandy Kills - Невечное лето на многолюдном пляже 
 magnet:?xt=urn:btih:1A6DA956669B72DEEBB09468C261C95676345CB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:478DF497ECAFD94BF4885D6954D149070472D301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ magnet:?xt=urn:btih:478DF497ECAFD94BF4885D6954D149070472D301
 ```bash
 magnet:?xt=urn:btih:E008EA951EDE2BD71E80AEB8FEA3C965F35B150B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Bodyfarm - Ultimate Abomination (2023) [FLAC|Lossless|image + .cue] <Death Metal
 magnet:?xt=urn:btih:7EF209AEC1ED952624493AA8D57841D4FB91148E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Geraint Watkins and The Mosquitoes - Here and There (2025) [FLAC 24/44.1|Lossles
 ```bash
 magnet:?xt=urn:btih:45DA9700352E609E2AD2A34C2F2759ED5FCB97C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Massimo Rosner - Long Rest (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Free Ja
 magnet:?xt=urn:btih:FA3CE4972D0E4CE3841693279889B6E2EAE27F57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:FA3CE4972D0E4CE3841693279889B6E2EAE27F57
 ```bash
 magnet:?xt=urn:btih:A96980D46B1662B401C45D15FE19A510A986F608
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ A4 - He Dives Down(   Читать дальше...   )Жанр: Sludge, Stoner M
 magnet:?xt=urn:btih:90D376C49D71509908A41A7FA134F99EDACF9F9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:90D376C49D71509908A41A7FA134F99EDACF9F9C
 magnet:?xt=urn:btih:6CC5C04365CB486242276AC49B6BAFDBE9F62DAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:6CC5C04365CB486242276AC49B6BAFDBE9F62DAA
 ```bash
 magnet:?xt=urn:btih:6244252A228878148806D1038B6A97B2ED4C602B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +218,8 @@ A4 - Hate Yourself(   Читать дальше...   )Жанр: Post-Black Metal
 magnet:?xt=urn:btih:C576B703FFDD783F23CF021AD90E544BCD3BDC13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:C576B703FFDD783F23CF021AD90E544BCD3BDC13
 ```bash
 magnet:?xt=urn:btih:00A0BBB0737E8100B42D657306AC009EFA588F66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:00A0BBB0737E8100B42D657306AC009EFA588F66
 magnet:?xt=urn:btih:58653DAEF6EEBF1FF22411E5DFD40204868237D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:58653DAEF6EEBF1FF22411E5DFD40204868237D3
 ```bash
 magnet:?xt=urn:btih:408D9B6039614DC4EF51481E2D69B00272162474
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ Magiore — шрифт без засечек с дружелюбным хара�
 magnet:?xt=urn:btih:4136FA0E19F3F298F3E91BB5BA91FE14A9A0123C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ Adhd Sans — это визуальный эксперимент, который
 ```bash
 magnet:?xt=urn:btih:EA51E54C24ED45D2D28F0C9AFD290ED39C58B12A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ Nightwish - Wishmaster (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Po
 magnet:?xt=urn:btih:C6DED3E50D2CB38544C7C0489F31978DE4C23885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +412,8 @@ Mathieu вдохновлялся пропорциями, текстурой и �
 ```bash
 magnet:?xt=urn:btih:3C11A39D975A9C7E6A97F548FFF9FD69F8D8FF5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +442,8 @@ Kris Pohlmann - Relentless (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues R
 magnet:?xt=urn:btih:10C35245FCEE57EDE45FD60622937C0ECA81AF98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +470,8 @@ Traveler - Echoes of Tomorrow (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:1D7B50CC40AF218476FA59AD4E03E99603880648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +500,8 @@ Emily Remler - Cookin' At the Queens: Live In Las Vegas (1984,  1988) 2CD, 2024,
 magnet:?xt=urn:btih:A960E123838A0DB935420365BEF2174A4AA95B49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +529,8 @@ Vhäldemar - Sanctuary Of Death (2024) Japanese Edition [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:30666BD9684770B4C39C3FF4F285024359BAC08F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +557,8 @@ magnet:?xt=urn:btih:30666BD9684770B4C39C3FF4F285024359BAC08F
 magnet:?xt=urn:btih:F29D87C3CE46DC02ED90305076EF4A72A7B98BBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +582,8 @@ magnet:?xt=urn:btih:F29D87C3CE46DC02ED90305076EF4A72A7B98BBA
 ```bash
 magnet:?xt=urn:btih:382E8174BF02445E73CBB35D957F5671F1C916E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +611,8 @@ Realise Slab — семейство шрифтов с засечками, кот
 magnet:?xt=urn:btih:35B40888554ACA00E4954DE3A00665E06065EBCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +638,8 @@ magnet:?xt=urn:btih:35B40888554ACA00E4954DE3A00665E06065EBCE
 ```bash
 magnet:?xt=urn:btih:F5CC08CB63A787874136F0EBBA24539CAC272293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +668,8 @@ magnet:?xt=urn:btih:F5CC08CB63A787874136F0EBBA24539CAC272293
 magnet:?xt=urn:btih:6B57A994EE609A5E9FFA23F0060557125D0A3940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +697,8 @@ Darkness Light - Alive and Not Alone (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:77AA1168E2DAEBC4D0F7CAB22BB0118C958E2A80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,6 +725,8 @@ magnet:?xt=urn:btih:77AA1168E2DAEBC4D0F7CAB22BB0118C958E2A80
 ```bash
 magnet:?xt=urn:btih:C9365AA4B8DAB0E38A2D114BA5B538E318C34CCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Process Lasso позволяет вручную или автоматическ�
 magnet:?xt=urn:btih:9E5FBDF02973B8CDCD7722DF4996D278C1802E5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MultiTimer - это простое и универсальное таймер-п
 ```bash
 magnet:?xt=urn:btih:E523EC6C135FEAA95777BABF59DF1EB3549A8DC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ RUTUBE — официальное приложение одноименной о
 magnet:?xt=urn:btih:302C104769C82DCEFCB1184EE848281C409A0EB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ MassTube Plus — очень простая в использовании про
 ```bash
 magnet:?xt=urn:btih:0E7A73073E35251E6BD7FB5A69136EDC3054DD5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ ES File Explorer (File Manager) — это полнофункциональны�
 magnet:?xt=urn:btih:85528D8F41BE9C66A778852BC4D48D3BEB935244
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Wise Disk Cleaner 11.2.3.843 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7461AB3B62DEF631CA8F1D29021F45C05F5860BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:7461AB3B62DEF631CA8F1D29021F45C05F5860BC
 magnet:?xt=urn:btih:0C51CD1B9D4C0B011FD56318A9CB50FD0898D7CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:28FAE5824715D04817B500CB7479DBB1A4B30DCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ MyLanViewer — программа для сканирования и монит
 magnet:?xt=urn:btih:F5CFF70469F66195A18A3A3F9979CD4C71E68A15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.0.22 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E9681504351D65AB09CBB26D764B9D595C0A80FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:E9681504351D65AB09CBB26D764B9D595C0A80FE
 magnet:?xt=urn:btih:1FECD7D43D23CBB9D1644B55B908485A65052008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:68763735BC6203BD040DCF4F7C9FC222F70A8249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:68763735BC6203BD040DCF4F7C9FC222F70A8249
 magnet:?xt=urn:btih:4478FF564EDE104AB1BF6B84E542100106C91D43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ MediaHuman YouTube Downloader 3.9.12 (2405) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:EE2CF5DCE4D3682890A34E614FB532272336DD47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Jigsawscapes® - Пазлы v3.8.13 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:4731D2BFBBEE13F07CCFE69E5B023A7124FE47E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:E50ED00C87527E6CBE1F70FB1F08255A5234D8BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Smart AudioBook Player Pro v11.4.4 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:27C512AA7B00041910B893CD5633ABE0589C2773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ MediaHuman YouTube Downloader 3.9.12 (2305) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:7BAE24F3FF512DF83E52F1547BA43C507A53D99C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ SnapEdit — одно из лучших приложений для редакт
 magnet:?xt=urn:btih:38B63E2AE1749B1FEBBE2D32BD389E558AC7B2C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:45E3376354ECC6E813ADEEA16EDFE65B58DCA8E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Android-версия популярной идентификации проце�
 magnet:?xt=urn:btih:8F199845F79C3DE4D6C71A77D2D7D6300EFF3A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:34B52F36E155BDF0B03C3DE1D3469E89DB03D515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:DF8F5BF4C09574CBC959DA1F278FFA67EB0D9FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ GPU Shark 2 является преемником GPU Shark 1. GPU Shark 2 - э�
 ```bash
 magnet:?xt=urn:btih:D5CCBF63EFFCC435AA993325DA27BB8311BC5B43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ FurMark 2 является преемником почтенного FurMark 1..
 magnet:?xt=urn:btih:431FFC669267D18C765E8C3245FD6AA7A1C3D3E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:431FFC669267D18C765E8C3245FD6AA7A1C3D3E1
 ```bash
 magnet:?xt=urn:btih:C969B0E9186003B4FA41007E6150393B77515DEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

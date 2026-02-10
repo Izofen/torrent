@@ -1,3 +1,29 @@
+###  Публикация: 997945   (867611) от 20.03.2016
+
+Скрытый раздел SAMSUNG NP700Z5C-S01RU Microsoft Windows 7 Домашняя расширенная Build 6.1.7601 [Ru/En]
+
+>>ОС Windows
+>>Windows OEM Recovery СD/DVD
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_867611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Образ системного раздела SAMSUNG NP700Z5C-S01RU, скопированный через Acronis true image 2014 и загрузочный раздел на 100 мб.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D52584D29E3027F6B1021F83FBC7A1E8F4A3A215
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374462   (872159) от 10.04.2020
 
 Windows Thin PC SP1 x86 [En] (6.1.7601) + langPatch [Multi/Ru]
@@ -20,6 +46,8 @@ Windows Thin PC представляет собой специальную ре�
 ```bash
 magnet:?xt=urn:btih:5646D2B695C2257ACB6F982FB3C3A8D798E1C24F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ Windows 10 — операционная система для персональ
 magnet:?xt=urn:btih:CF134FF7DCA6A93D010003B62C9C312DEB67886C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ Microsoft Windows Server 2008 R2 SP1 - Оригинальные образы с 
 ```bash
 magnet:?xt=urn:btih:9A26846EDBDF5820E498B93406E0AB52A7AAD3EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ Windows 10 — операционная система для персональ
 magnet:?xt=urn:btih:93C03493513E5F614FC91BC0EF903BF6DC5BC385
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ Microsoft Windows Server 2008 R2 SP1 - Оригинальные образы с 
 ```bash
 magnet:?xt=urn:btih:B84686FA7977BF2410A1D8E0C77E9DFDB931E274
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ Windows 7 с интегрированным пакетом обновления 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ Windows 10 — операционная система для персональ
 ```bash
 magnet:?xt=urn:btih:A9FC10226180E38278D5CC34C35AC652D1487308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ Microsoft Windows 7/Server 2008 R2 SP1 RTM Language/Locale Pack - Оригина
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ Windows 10 — операционная система для персональ
 ```bash
 magnet:?xt=urn:btih:A7E07E9980D566CCD129564D2216C26236392E62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ Microsoft Windows 10.0.18363.720 Version 1909 (March 2020 Update) - Оригин
 magnet:?xt=urn:btih:EFADBFD2253B970E3139302ACC447B7F20D781DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ Windows Server 2019 LTSC Version 1809 Build 17763.1098 (Updated March 2020) Ор
 ```bash
 magnet:?xt=urn:btih:D7B378B9586AF533BBC1C51F3479437B579FF2BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ Windows 10 — операционная система для персональ
 magnet:?xt=urn:btih:A01F57019C5A14A33D0EB02CA89CEA8169A9AF34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ Windows 10 — операционная система для персональ
 ```bash
 magnet:?xt=urn:btih:FB1DDF0FE8931FE64E707DBAC98AFEA4B576D5AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ Microsoft Windows 10.0.18362.720 Version 1903 (March 2020 Update) - Оригин
 magnet:?xt=urn:btih:4824073CA41BB93ED20346E6BA7CF7C9BC66C233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ Microsoft Windows 10.0.17763.1098 Version 1809 (March 2020 Update) - Ориги�
 ```bash
 magnet:?xt=urn:btih:3AE9CDFED5B794520BAE7515D6D946210471B287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ Microsoft Windows 10.0.18363.720 Version 1909 (March 2020 Update) - Оригин
 magnet:?xt=urn:btih:FC33097FA58614B33FD8023FE02AA2A8FEBB891A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 ```bash
 magnet:?xt=urn:btih:79FFB94D488A7C99D1570E76B6F89E0B3919323A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ Microsoft Windows 10.0.18362.720 Version 1903 (March 2020 Update) - Оригин
 magnet:?xt=urn:btih:825CA0865AE84BCE239F1C80CAAF4BCCC0714725
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ Microsoft Windows 10.0.17763.1098 Version 1809 (March 2020 Update) - Ориги�
 ```bash
 magnet:?xt=urn:btih:101241C3CBA47D982533780485C59AEC9F4F3867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +548,8 @@ Microsoft Windows 10 Insider Preview, Version 21H2 [10.0.19044.1165] - Ориг�
 magnet:?xt=urn:btih:EBE8749ACCC0E2DE52A77B936A5244E885ECD1DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ Windows Server - это проверенная масштабируемая пл
 ```bash
 magnet:?xt=urn:btih:4928C0138801610D9BF3B287CEC512D33988A611
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +603,8 @@ Recovery USB-Flash for Lenovo IdeaPad 100-15IBD / Windows 10 Home (х64) [Ru]
 magnet:?xt=urn:btih:AF664CD14788B46590A4ABC2DAB2CAF1BD624438
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ Windows 10 — операционная система для персональ
 magnet:?xt=urn:btih:8FB78F6C2C9B6BAA689C49610817F5DBA592E987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +654,8 @@ Windows 10 — операционная система для персональ
 ```bash
 magnet:?xt=urn:btih:0FDAB584CDA21CD52854561BAB15A99EB207801A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,30 +683,7 @@ Recovery Partition for ASUS X55VD / Windows 7 Home Basic (х64) SP1 [Ru/En]
 magnet:?xt=urn:btih:07C010F5CC656FADCD9A812283CD7C3E2FC975E0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489849   (914884) от 22.08.2021
-
-Microsoft Windows 10.0.19043.1165, Version 21H1 (Updated August 2021) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_914884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.1165.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D1CC4AD452423531FEB3EC82149CABCF2F53AD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

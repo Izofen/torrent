@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:F09D8CA334EC8F79E3AE1DFE68510936A74709EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:F09D8CA334EC8F79E3AE1DFE68510936A74709EA
 magnet:?xt=urn:btih:70824BEF0BD62B4A0FED0F2F648E29D398997710
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ PowerISO - программа позволяет создавать, конве�
 ```bash
 magnet:?xt=urn:btih:5EE6FAB0E45B60A8B48BCF4F442A30EB8403D00F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:5EE6FAB0E45B60A8B48BCF4F442A30EB8403D00F
 magnet:?xt=urn:btih:9CD67E170998AF683B7540D66429123A33E2100B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:9CD67E170998AF683B7540D66429123A33E2100B
 ```bash
 magnet:?xt=urn:btih:AA9B5D1040DAA1ED0FAE7ACD3670696B95B5D30E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:AA9B5D1040DAA1ED0FAE7ACD3670696B95B5D30E
 magnet:?xt=urn:btih:4DEBDCFC15C1A4774AE128BE187AD93FD2DFEBE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Ford против Ferrari / Ford v Ferrari (2019) WEBRip [H.264] [Line, AD]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Windows 11 Pro 23H2 (x64) +/- Office 2021 by xCOrei2 (22.11.2023) [RU]
 ```bash
 magnet:?xt=urn:btih:68734A893005F20E4995978B32A080B6A497FBCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:68734A893005F20E4995978B32A080B6A497FBCB
 magnet:?xt=urn:btih:7FCE6EDDCA7DC84448DE99C01323B75DE45A085E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:7FCE6EDDCA7DC84448DE99C01323B75DE45A085E
 magnet:?xt=urn:btih:4794B0A832352F89A4EA624D1641783515C5E59D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:4794B0A832352F89A4EA624D1641783515C5E59D
 ```bash
 magnet:?xt=urn:btih:277BDC81C97929B2184D979638919DC4C3146FD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ Deep Forest - Deep Symphonic (2020) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Down
 magnet:?xt=urn:btih:6CC1A651966C38850B7FBAE358B7B71B05BD24C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:6CC1A651966C38850B7FBAE358B7B71B05BD24C4
 magnet:?xt=urn:btih:D1E7F2AA07989A6C7E1ECB28A672FB31EF0A47A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:D1E7F2AA07989A6C7E1ECB28A672FB31EF0A47A1
 ```bash
 magnet:?xt=urn:btih:08C7C1B1DDCA671D511BCB12AF6AA44CCBE920B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ Dee D. Jackson - The Singles Collection (1977-1984) [MP3|320 Kbps] <Electronic, 
 magnet:?xt=urn:btih:B22D72D7F10F99BB789728F759BF72C955766912
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:B22D72D7F10F99BB789728F759BF72C955766912
 ```bash
 magnet:?xt=urn:btih:662C2139ECC3304CA65EE57F9D6264DA07572A77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:662C2139ECC3304CA65EE57F9D6264DA07572A77
 magnet:?xt=urn:btih:2FB95F33F456A6CF99EC2AEB65D22694589441D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:2FB95F33F456A6CF99EC2AEB65D22694589441D6
 ```bash
 magnet:?xt=urn:btih:91BE4A3F62F046A4B45E9B2E824C31B6637C5623
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:91BE4A3F62F046A4B45E9B2E824C31B6637C5623
 magnet:?xt=urn:btih:B78D148B732916F9D1ECEBAC6B8FD3B96DDAAC51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:B78D148B732916F9D1ECEBAC6B8FD3B96DDAAC51
 magnet:?xt=urn:btih:B03E49352D9913FD0F23F662065C86FC8D72EAA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:B03E49352D9913FD0F23F662065C86FC8D72EAA9
 ```bash
 magnet:?xt=urn:btih:296FC0F19336811755C2149196C449E816C93AC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ Darren Hayes - Spin (2002) [FLAC|Lossless|tracks + .cue] <Pop>
 magnet:?xt=urn:btih:06BD30B7269D92B2C762DA5DA14608940CEFE7E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:06BD30B7269D92B2C762DA5DA14608940CEFE7E4
 ```bash
 magnet:?xt=urn:btih:A83FC3A5022950351E775A4D12178748221EC1E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) License GO
 magnet:?xt=urn:btih:8628F6EEC2D45AA9450620E6BF2118DD93187023
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ SamDrivers 20.12 LAN [Multi/Ru]
 magnet:?xt=urn:btih:44D3ABD67D5E513F6945B016977536D38E8B6A02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:44D3ABD67D5E513F6945B016977536D38E8B6A02
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

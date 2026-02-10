@@ -22,6 +22,8 @@ The Osceola Brothers - Out of Nowhere (2016) EP [MP3|320 Kbps] <Classic Rock>
 magnet:?xt=urn:btih:F20C9EEACB00956933220DB1F86B78CB5911B50C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Mick Rogers - Sharabang (2013) [MP3|320 Kbps] <Pop Rock, Hard Rock>
 magnet:?xt=urn:btih:500011E663A2036868E735A0A6B58E9F57232EEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Full Trunk - Time For Us To Move (2015) [MP3|320 кб/с]<Rock, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:3E764D914D16B90C59781354FA6BCB095067DE25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ The Walkabouts - Satisfied Mind (1993) [MP3|160-320 кб/с]<Indie rock, Alterna
 magnet:?xt=urn:btih:3464A507A907668EF85AB76F2D3B2D45E291DEA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ Zdob si Zdub - 20 de Veri (2015) [MP3|320 кб/с]<Folk Rock>
 ```bash
 magnet:?xt=urn:btih:8F797AF9671EE557E631E8130A97CEEE935C33B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +179,8 @@ VA - Desperate Rock'n'Roll (20CD Set) (2000) [MP3|320 кб/с]<Rock & Roll, Rock
 magnet:?xt=urn:btih:C61B10483990B7FE88739B99FF733337F33C9C47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +207,8 @@ Chris Norman - Crossover (2015) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:796C505255C0DC3DAFD68582AFFD5CD84D3B762B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +237,8 @@ Marc Bolan - Tramp King Of The City (2018) [MP3|320 Kbps] <Glam Rock, Rock>
 magnet:?xt=urn:btih:348666678DF028E94FA56DA50E8889EED93B4571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +265,8 @@ David Gilmour - Rattle That Lock (2015) Deluxe Edition [MP3|320 кб/с]<Progres
 ```bash
 magnet:?xt=urn:btih:ECC2C000FB7E91D19279382FDB4A62BD73DC858F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +295,8 @@ Three Colours Dark - The Science Of Goodbye (2020) [MP3|320 Kbps] <Progressive R
 magnet:?xt=urn:btih:0634E7570707CB44A480D179A0C7F5F3066D703D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +324,8 @@ Sting - Discography (1985-2010) [MP3|320 kbps]<Rock / Soft-rock / Pop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +360,8 @@ Black Country Communion - Black Country (2010) [MP3|320 kbps]<Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +388,8 @@ Suspension Solar - Crisis del Arte (2022) [MP3|320 Kbps] <Progressive Rock, Cros
 ```bash
 magnet:?xt=urn:btih:79CEC34075A44E89A723DC936F192433805FA039
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +424,8 @@ Stabbing Westward - 4 альбома (1994-2001) [MP3|320 кб/с]<Industrial Ro
 magnet:?xt=urn:btih:66179C24EA105B549525F60B69B0D232AB19215B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +459,8 @@ Buck Dharma - BD Archive 3CD (2000) [MP3|320 кб/с]<Rock>
 magnet:?xt=urn:btih:C3ADAFE1417D3F476DB3A5CE58C600419A9C3AE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +487,8 @@ Guru Guru - Guru Guru (1973) Reissue, 1997, Repertoire Records [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:B177749E1DC389BA99C764547C88C68BA3919787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +517,8 @@ Cravinkel - Cravinkel (1970) Reissue, 1998, Repertoire Records [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:3044FE50D43140526BEDDB067A6B8913EB46B996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +544,8 @@ Cravinkel - Garden Of Loneliness (1971) Reissue, 2003, Walhalla [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:34B39ECF3093BF0BEC6E953D359B61D24E1CCCA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +573,8 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:A71D6692DAE2DFB417558E569DF1939A86FBE6BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +609,8 @@ Cosmos - Mind Games (2012) [MP3|320 кб/с]<Rock>
 magnet:?xt=urn:btih:C5C16D2FB0EE1F18DCE995443821A0B40E02F5B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +638,8 @@ Shroud of Bereavement - A Beautiful Winter (2022) [MP3|320 Kbps] <Epic Doom, Neo
 magnet:?xt=urn:btih:36456ECFA0BD1E42F963335E5CB94BE74C11EA24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +666,8 @@ Joe Macre - The Dream Is Free (2022) [MP3|320 Kbps] <Progressive Rock>
 ```bash
 magnet:?xt=urn:btih:B3DED5CB406CC5ABD18F6CE98404E0931D0F5DEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +702,8 @@ Pikku-Orava - 3 Альбома (2006-2007) [MP3|320 kbps] <Comedy Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -684,6 +730,8 @@ Uriah Heep - Sweet Freedom (Live) (2019) [MP3|320 Kbps] <Hard Rock, Classic Rock
 ```bash
 magnet:?xt=urn:btih:5F5B7E2C6C9AB86D566D1CA7AF14C4C77115D3AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -712,6 +760,8 @@ VA - Discover More Classic Rock (2020) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:D49AFB547629F9D76009E2A43702A162FC26C10B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -738,6 +788,8 @@ The Goo Goo Dolls - Chaos In Bloom (2022) [MP3|320 Kbps] <Alternative Rock, Pop-
 ```bash
 magnet:?xt=urn:btih:D3A373165D357CDD6D37BDCA40B9CFF5574E16F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

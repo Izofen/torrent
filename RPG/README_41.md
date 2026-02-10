@@ -19,6 +19,8 @@ Cookie Cutter - жестокая постапокалиптическая 2D-М�
 magnet:?xt=urn:btih:FB92A107323DF0677FD58468DC09F09B950B6E03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ World of Horror - это ролевой хоррор, нарисованный �
 ```bash
 magnet:?xt=urn:btih:F5003880A403000BEB4C0E8714FC6737879F0D35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Urtuk: The Desolation (2021) [Ru/Multi] (1.0.091b) License GOG
 magnet:?xt=urn:btih:399122B0C1256BD51A9806EE62133EC77489417E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ King Arthur: Knight's Tale (2022) [Ru/Multi] (2.0.0/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:3012942D184CC5E2FF5A743A487C6F9BA5B9FCB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Beyond Divinity / Beyond Divinity: Оковы судьбы [Ru/En] (L/1.5) 2004
 magnet:?xt=urn:btih:59288289D62B2E5AFF57F45B2C0E23EC2AE1F2AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Fuga: Melodies of Steel 2 переносит в разрушенный войн�
 ```bash
 magnet:?xt=urn:btih:B32FCA428B649CC73668A283C434450FC7BE190B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Anvil Saga (2022) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:CB8F911B5CF7C039D91A347A855A5A9CC576448C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Epic Tavern (2017) [En] (1193) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:BE23A1C3F0BD7C3805D95DB2C2602E4CB862F9FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Dungeon Defenders является смесью двух популярных ж
 magnet:?xt=urn:btih:7F20EAB0F8E330A92FE083A567971758398A5D6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Ghoul Castle 3D: Gold Edition переносит пользователей в �
 ```bash
 magnet:?xt=urn:btih:24484DB03EAFF2D23477F5CE4CB6A4308D922ED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Anvil of Dawn (1995) [En] (1.1) License GOG
 magnet:?xt=urn:btih:12A10019087BA80DDC03351268063B15783963D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Tales of Arise - японская ролевая игра, выступающа�
 ```bash
 magnet:?xt=urn:btih:DE92F0E8B040B0C34B872433FB419AAD79A9FE05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ Dead Age (2016) [Ru/Multi] (1.12-fix) License GOG
 magnet:?xt=urn:btih:ACEE5FA5C0CE3ECAA42AD4D16C83FAB2889B290C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Baldur's Gate: Dark Alliance (2021) [Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:0B2386FDB62466D14BA1C510A416AF8D205E5DE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Dragon's Dogma: Dark Arisen (2016) [Ru/En] (1.0.10.8756) Repack R.G. Механ�
 magnet:?xt=urn:btih:913A1CF1FA32733305D53124EEE8A93160D50450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Darkest Dungeon - сложная пошаговая ролевая roguelike-и�
 ```bash
 magnet:?xt=urn:btih:7493EEC032159C56D1C4F1E3CCE6ECC05D2029C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Hades (2020) [Ru/Multi] (1.37133) Repack xatab
 magnet:?xt=urn:btih:C910BB2AAAF6E2C5E5B2D75A99CCEB5C39F0A188
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Kraken Academy!! (2021) [Ru/Multi] (1.0.12.2) License GOG [End of the World Edit
 magnet:?xt=urn:btih:BF77360895DCD3DA26E3232FF74958B4654A2545
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Gothic 2 / Готика 2 (2003-2005) [Ru/En/Ge] (1.30.0/2.6/dlc) Lossless Repac
 ```bash
 magnet:?xt=urn:btih:E0F7549E5D95CAE2C254B628CB784F9E05E1E137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Mass Effect Dilogy / Mass Effect Дилогия [Ru/En] (RePack) 2008 - 2010 | R
 magnet:?xt=urn:btih:6AF81BB2F3593C948C93EA554C79DF62E53A70E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Ashen – экшен-РПГ с открытым миром, что расска�
 ```bash
 magnet:?xt=urn:btih:BC4A49D2ED0426FD15DFCAE47C1CCEAB2F4BF65F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Octopath Traveler (2019) [Ru/Multi] (Update 1) Repack xatab
 magnet:?xt=urn:btih:E7762F1B70F793014B2CBFD6C4FD4A24D8162B94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Hand of Fate (2014) [Ru/Multi] (1.3.14/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:345FED82EA50D50F5D49CEF4514FD86B45BCA98C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Fallout 3 (2009) [En] (1.7.0.3/dlc) License GOG [Game of the Year Edition]
 magnet:?xt=urn:btih:CD37BB188B1EA90426144898BF67D3FB8BB7CC82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Stray Blade – это мрачное фентези, в котором игро
 magnet:?xt=urn:btih:461F92F9FFEFF1D089F89596FFA14B06EDC14285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ ATOM RPG это пост-апокалиптическая инди-игра вд
 ```bash
 magnet:?xt=urn:btih:0FB0462040D6AA6D2E6812427DB21F0A3B114076
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

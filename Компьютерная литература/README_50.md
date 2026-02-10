@@ -19,6 +19,8 @@ Asterisk - это платформа конвергентной телефони
 magnet:?xt=urn:btih:C158A0D133E9D758A1AE7EAA02F5786AE4A67A5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C158A0D133E9D758A1AE7EAA02F5786AE4A67A5B
 ```bash
 magnet:?xt=urn:btih:F3DAF51A9FCC3F0A3A06C67ECD82C340FE3E19CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ C# - мощный язык программирования, который ст
 magnet:?xt=urn:btih:CD2A526670E247FDD8A05700FF925F52DF6B093F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:CD2A526670E247FDD8A05700FF925F52DF6B093F
 ```bash
 magnet:?xt=urn:btih:6D5A6272F10A0FF5E4BB727FC6F34CD1A44A1777
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:6D5A6272F10A0FF5E4BB727FC6F34CD1A44A1777
 magnet:?xt=urn:btih:E7032EA7A9727CEFC53E853E34C48044FE1F3189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:E7032EA7A9727CEFC53E853E34C48044FE1F3189
 ```bash
 magnet:?xt=urn:btih:E827A628ACEB29C72770EB9D2997071C1965EBFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:E827A628ACEB29C72770EB9D2997071C1965EBFA
 magnet:?xt=urn:btih:2FEA3F8D68A1030786192750074F1D4289EE6C74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:2FEA3F8D68A1030786192750074F1D4289EE6C74
 ```bash
 magnet:?xt=urn:btih:9F06213999D7984B894858D4B64BBF285E80B3C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Brad Dayley, DaNae Dayley | Photoshop CS6 Bible / Photoshop CS6. Библия п
 magnet:?xt=urn:btih:25D0A7B488075DBEF5533D193BB7A45FC9FAD4BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:25D0A7B488075DBEF5533D193BB7A45FC9FAD4BA
 ```bash
 magnet:?xt=urn:btih:9C6D0F59D0DF97C09AD25C35F618EB618ED0F7F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:9C6D0F59D0DF97C09AD25C35F618EB618ED0F7F2
 magnet:?xt=urn:btih:A80EDC3D9825A5A4663F6F452CE276627CBB4CA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:A80EDC3D9825A5A4663F6F452CE276627CBB4CA6
 ```bash
 magnet:?xt=urn:btih:321AD996EBF130D471655179D813823AD97AF105
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ Backbone - это javascript-библиотека для тяжелых фрон
 magnet:?xt=urn:btih:CC4B4CFB7FF48AAC2198EF23CE46E49EBA6B7A51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Steve Belovarich | Fullstack Web Components (2020) [PDF, EPUB, MOBI] [EN]
 ```bash
 magnet:?xt=urn:btih:695516846460230B8113727B5B528844E4DA0A0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:695516846460230B8113727B5B528844E4DA0A0F
 magnet:?xt=urn:btih:7320C8D802D63A0DE7E7CAB6F06C0E38BBBEBB3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ Microsoft | TechNet Technical Information Library November [2010] [ISO]
 magnet:?xt=urn:btih:A015167F83A8E4B9D690F0B12A0591DD50492B36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Raphael Amiard, Gustavo A. Hoffmann | Введение в язык програ�
 ```bash
 magnet:?xt=urn:btih:27D420B08107FE3650870564B4FAC306A6BFE078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ Silverlight 4 Unleashed охватывает весь процесс разра�
 magnet:?xt=urn:btih:495427A18C772E2DD7559B63A7A0162BC2D645C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:495427A18C772E2DD7559B63A7A0162BC2D645C8
 magnet:?xt=urn:btih:7797CC9A0C170CD93257167FFC86DB3EFEEDF34B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:7797CC9A0C170CD93257167FFC86DB3EFEEDF34B
 ```bash
 magnet:?xt=urn:btih:23DB587BA2026D92F1FF732DE0A04DD852B6B509
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:23DB587BA2026D92F1FF732DE0A04DD852B6B509
 magnet:?xt=urn:btih:0ADBFE5B95982112915F5B44FF18E0B3DD20B211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:0ADBFE5B95982112915F5B44FF18E0B3DD20B211
 magnet:?xt=urn:btih:EC4C8482801D173797664E8D471C7CC134883634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ Elastic-стек - это набор мощных современных инс�
 ```bash
 magnet:?xt=urn:btih:BC90467614DB39DCE4D3B394A3AD441AE6A69A8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ Microsoft Excel — одно из мощнейших приложений пак
 magnet:?xt=urn:btih:79A0DB8A8F9C9C110BBAB6933C7284325E2EEBE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:79A0DB8A8F9C9C110BBAB6933C7284325E2EEBE7
 magnet:?xt=urn:btih:44E82768887714C8EB414FF4688AE3C5DEAF7C18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:44E82768887714C8EB414FF4688AE3C5DEAF7C18
 ```bash
 magnet:?xt=urn:btih:AB4ADA0E2C8EEA90FFF802809C8279C362B729F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

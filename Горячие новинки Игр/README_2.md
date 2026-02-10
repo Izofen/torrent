@@ -19,6 +19,8 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 magnet:?xt=urn:btih:9352D58F4E490E315107A16F6494E7BE1717768E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dead Reset (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:89D03F89230429B80D9B32CB97C6431AD235F246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Antioma (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:6C285028D71334CB27A89C5FE8711CC17693457F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Infestation: Origins (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2588504CCB905EEC053BBD2AC5043A6ECE1E8F33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Gloomy Eyes (2025) [Multi] (1.0.0) License GOG
 magnet:?xt=urn:btih:D27EEBC25D0902107C8C563216E8B8C77AE909CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28561) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0CE03BB8464A0B5E7F1630DD662A544DF3D8F3B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Shape of Dreams (2025) [Ru/Multi] (1.0.0.RC12 s) Repack FitGirl
 magnet:?xt=urn:btih:B6765B7C49A3E0C0149DA4152670F6B3972C147C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Shape of Dreams (2025) [Ru/Multi] (build 19939749) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:35BDCA9202F23BC1F418CA11521D1CDDA5B0AFC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Adventure of Samsara - это двумерная приключенческая 
 magnet:?xt=urn:btih:7CD98B93C5CAA066EA9A695C64326CC078AAE039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Otherskin (2025) [Ru/Multi] (Build 19817814) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:17A9624B07174614DD7A49BAF8582796DE23A35B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 magnet:?xt=urn:btih:1386305D333E85B89B88D23BA42CE460636ACEF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Mortal Sin - хаотичная и кровавая игра в жанре rogue
 ```bash
 magnet:?xt=urn:btih:170653429D97199E84ABC3A3150C3C42EE75F07C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Metal Eden – научно-фантастический адреналинов�
 magnet:?xt=urn:btih:7281EE50F1283253E03C668CAE5673A28113B3FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Sword of the Sea (2025) [Ru/Multi] (build 19645438) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:730A7C9C296A0736F3B2D4A57F1EC2009FF2C79B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Sword of the Sea (2025) [Ru/Multi] (build 19645438) Repack FitGirl
 magnet:?xt=urn:btih:9F4E0D3BFDBE983FA39BC3C5656C5475867B1899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Daemon X Machina: Titanic Scion (2025) [Ru/Multi] (1.0.3/dlc) Repack Let'sРlay 
 ```bash
 magnet:?xt=urn:btih:1CCDE71A5DBDB7BBC7B49C32EF7BACF95AB55D2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack seleZen
 magnet:?xt=urn:btih:E86403A4AB76B7C7B9449B99EA1648E1D4360406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7214A458E7FBF6DBDCEA9A07721F8D1556E708B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ KELDER (2025) [Ru/Multi] (1.0.4) Repack FitGirl
 magnet:?xt=urn:btih:D2F9E5AD3DBE3E715C6B18939BE73725F392CCD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28324) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:E563ABD0A6ABC0710C02ADC9AE99DAF2C1E1257F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 magnet:?xt=urn:btih:3960265E392AF5B998204C74DB2873E75138F340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ KELDER (2025) [Ru/Multi] (1.0) Scene DOGE
 ```bash
 magnet:?xt=urn:btih:4E5B57F087BAA0644070B4AD123B7DDFE4D4D2A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28324) Repack FitGirl
 magnet:?xt=urn:btih:227F16073CDC4AF03CCFCC0C8A7ECEF59A32BE24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Hordes of Hel - захватывающая игра-рогалик на выжи
 ```bash
 magnet:?xt=urn:btih:009C657C089967EA9E61491645E6F96276FA1848
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Hollow Knight Silksong (2025) [Ru/Multi] (1.0.28324) Scene FairLight
 magnet:?xt=urn:btih:5C47FD0C3030369FA1883122BBBC55C5C68E3F53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 ```bash
 magnet:?xt=urn:btih:1AD26D302D70A71DDDC43EB3EBDB89885F640A14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

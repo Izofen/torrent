@@ -22,6 +22,8 @@ Stravaganzza - Su Historia (2009) 4CD [FLAC|Lossless|image + .cue] <Symphonic Me
 magnet:?xt=urn:btih:32FEAB1BA7367CE7EF12096F946077354757EF29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Searing Meadow - Corroding From Inside (2005) [WavPack|Lossless|image + .cue] <M
 ```bash
 magnet:?xt=urn:btih:5C37002860EB3FF85F38CB51EB17715EFB244A73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ For All We Know - Take Me Home (2017) [FLAC|Lossless|image + .cue] <Melodic Prog
 magnet:?xt=urn:btih:18901ACDFAA8B104B0BB66AD7D9CD6F4F8259CAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ DxO PhotoLab 2 ELITE Edition 2.3.3 (build 47) [Multi]
 ```bash
 magnet:?xt=urn:btih:DDBA9008B7A7040D07A8539006FED4FE6A2A8FD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ CD1:
 magnet:?xt=urn:btih:A3640F0B58BCFDE9955AEC864F096A9DEEF41CBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Hartmann - Home (2007) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
 magnet:?xt=urn:btih:05EADAD96868A0269E9A6F04A687A129B995E17F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ magnet:?xt=urn:btih:05EADAD96868A0269E9A6F04A687A129B995E17F
 ```bash
 magnet:?xt=urn:btih:0228C98B3E0B1BD9DAF76D74C21EF44CAE005EDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -207,6 +221,8 @@ For All We Know - For All We Know (2011) [FLAC|Lossless|image + .cue] <Melodic P
 magnet:?xt=urn:btih:1376DEBAAA02B61D98809D0656E74BC5D163BD7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ Revenge - From Hell (2008) [FLAC|Lossless|image + .cue] <Thrash Metal>
 magnet:?xt=urn:btih:8C23916C2EE3490218FA601909C2DD7CBDA9EDE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +276,8 @@ magnet:?xt=urn:btih:8C23916C2EE3490218FA601909C2DD7CBDA9EDE7
 magnet:?xt=urn:btih:CF18C835F9E702FFF52C86F3EC1A57FAEBF837A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ Iridient Developer - мощное приложение для обработки
 ```bash
 magnet:?xt=urn:btih:204D0994C4558CCAC203ACD71812BC8A6D4DC0EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +331,8 @@ Dragon - Horde of Gog + Horda Goga (1989+1990) Remastered, 2008 [FLAC|Lossless|i
 magnet:?xt=urn:btih:D825EFF2F2A7D66C966011886507D1FA993C93A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +359,8 @@ Peshmerga - Murderous Acts of Cruelty (2010) [FLAC|Lossless|image + .cue] <Bruta
 ```bash
 magnet:?xt=urn:btih:5F830221B3631B20A3F3AEAB00BC7E0D2C1A12EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +389,8 @@ Lenny Breau - Last Sessions (1988) Genes Records [FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:FE0C580F2F47001D85CDA23FB0B3759ACB11B837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ magnet:?xt=urn:btih:FE0C580F2F47001D85CDA23FB0B3759ACB11B837
 magnet:?xt=urn:btih:10DBA9AEF9C192D6E870ACB993C8FCE4E9B7C02B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +440,8 @@ YTD Video Downloader позволяет загрузить нужный вам �
 ```bash
 magnet:?xt=urn:btih:A3ABA57CD470D4DC4A3FD565F1D4AAED9EA00D9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +468,8 @@ magnet:?xt=urn:btih:A3ABA57CD470D4DC4A3FD565F1D4AAED9EA00D9F
 magnet:?xt=urn:btih:4B590E30E1A60F74201D802758E3847A8E856792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +494,8 @@ magnet:?xt=urn:btih:4B590E30E1A60F74201D802758E3847A8E856792
 ```bash
 magnet:?xt=urn:btih:09E62F5E0C1181356475AF3AC17A056CB05F52C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +524,8 @@ magnet:?xt=urn:btih:09E62F5E0C1181356475AF3AC17A056CB05F52C5
 magnet:?xt=urn:btih:EFA072E0E92F6B3E83F47A10DEDE9315DFEDB69E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +549,8 @@ magnet:?xt=urn:btih:EFA072E0E92F6B3E83F47A10DEDE9315DFEDB69E
 ```bash
 magnet:?xt=urn:btih:089DFC8C1F1C051362619907980292F03D8ADC35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +576,8 @@ magnet:?xt=urn:btih:089DFC8C1F1C051362619907980292F03D8ADC35
 magnet:?xt=urn:btih:22E1356CBA8FF2D897A5EA69AED43E9592661945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +602,8 @@ magnet:?xt=urn:btih:22E1356CBA8FF2D897A5EA69AED43E9592661945
 magnet:?xt=urn:btih:4D96E1493F8D05D7DE059CB613E0F9580BD637C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ magnet:?xt=urn:btih:4D96E1493F8D05D7DE059CB613E0F9580BD637C2
 ```bash
 magnet:?xt=urn:btih:EE098509DA1A41106AB0A9F8D0B902BEB8242792
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:EE098509DA1A41106AB0A9F8D0B902BEB8242792
 magnet:?xt=urn:btih:527864B03C09C5EF5C3E78455D9AB489E1F3A07C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:527864B03C09C5EF5C3E78455D9AB489E1F3A07C
 magnet:?xt=urn:btih:C7144C4F603B8DACFDF992784D6B17F117E4428E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ Comedy Woman (2017.11.17) WEB-DL [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:CF1A7A44ADB4C4CDB26FFCCF4E9EF62239C43F83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Motivation Training Music 2016 (2017) [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:817EF78BF0F3DED7A754C72371BD022E3902EEF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Deep Chilled Island Moods - Volumen Uno (2016) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:D63A7B28AB0CFAC1146AB45018B5FA27370CE7E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - I Love Fitness Training (2017) [MP3|320 Kbps] <Minimal, Tech House>
 magnet:?xt=urn:btih:E76F1BE9D1F7FFED9BAC7C321DE3978742F4767D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Ibiza Fitness Music (2016) [MP3|320 кб/с] <Club, Progressive, Future Hou
 ```bash
 magnet:?xt=urn:btih:C7A3D70BDE58A7D47174480C97B51C62AEA2C025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Cinematic Chillout: Wintertime Collection (2017) [MP3|320 Kbps] <Deep House
 magnet:?xt=urn:btih:7E0D788B2D5AB357A91C33E322ABDA670CF20C47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Cool Chillout Music: Nice Chill Out Bestsellers (2017) [MP3|320 Kbps] <Chil
 ```bash
 magnet:?xt=urn:btih:61B0638C9474E1D65A6CF0745E2FD7DBEE093665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Kind Vibrations (2015) [FLAC|Lossless|tracks] <Downtempo, Ambient, House>
 magnet:?xt=urn:btih:B568E97F330AFB41E0BC9D7BB28DED519822532B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Redux Presents : The Progressive Selection Vol. 1 (2016) [MP3|320 Kbps] <Tr
 ```bash
 magnet:?xt=urn:btih:0418757EAC622B70920B5ABC86B0CACFA1D97834
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ SKAM Records (Skam, 33, Kasm, 30mil Recordings) - Label-Pack 118 Releases (1991-
 magnet:?xt=urn:btih:F94243C38E216F85B3E364873ABAFFB413EBB282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Jon Hopkins - Discography 41 Releases (2005-2021) [FLAC|Lossless|tracks+.cue, tr
 ```bash
 magnet:?xt=urn:btih:9FA79D4AE734B792D4558CECF92333F108B42CFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Aukai - Discography 10 Releases (2016-2020) [FLAC|Lossless|WEB-DL|tracks] <Ambie
 magnet:?xt=urn:btih:1983A7238FF63CFD3B90B1B00CD3B6E7E4358F58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ R.Hz - Discography 53 Releases (2016-2021) Ubertrend Records, Toxic Recordings [
 ```bash
 magnet:?xt=urn:btih:83660884DAE8A226FBAB315110A2F41B12856251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Arandel - Discography 13 Releases (2010-2021) Infiné [FLAC|Lossless|tracks+.cue
 magnet:?xt=urn:btih:9BC5643B0AC1C22A14F58714ECB9CC3F71E4A9EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ The Alchemical Theory - Discography 11 Releases (2018-2021) Annulled, Illegal Al
 ```bash
 magnet:?xt=urn:btih:E6790B25F70B5B5DDEC015B151D8AC38B8028AD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Psychill Blossom, Vol. 1 (Compiled by Dense) (2020) Cosmicleaf Records [FLA
 magnet:?xt=urn:btih:9CC6BC2A764F43FEAB432FF8557D01D9F60087C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ ASOK - MISTRESS 14 (2020) Mistress Recordings [FLAC|Lossless|WEB-DL|tracks] <Tec
 magnet:?xt=urn:btih:491E5B65FA84F5EEC0B836A4555F10363B4BBC5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +485,8 @@ Vitalic - Voyager (2017) [MP3|320 Kbps] <Electro House, Nu-Disco>
 ```bash
 magnet:?xt=urn:btih:CE1B9C3E613DFF27CC9A4F465E1ECD07A476ED99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +520,8 @@ VA - United Colours Of Trance Vol. 1 (Compiled by Elektronick) (2010)
 magnet:?xt=urn:btih:5E00CEE7222B807FBE3F3FA28C5D9146F9F258E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +548,8 @@ VA - Into The Wildness (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:6204121A48D37306307FECB1E3088D188CB692C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +578,8 @@ Everything But The Girl - The Best Of (1996) Compilation [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:B840F920E851920EDDDF3D04493D59040DC906AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +606,8 @@ Markus Schulz - City Series Collection (2016) [MP3|320 кб/с] <Progressive Tra
 ```bash
 magnet:?xt=urn:btih:2EDAFAFF4B3037BFC5417FD1B6FC619F0EBA2334
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +636,8 @@ Trademarks & Copyrights - Marble Girls (2016) [FLAC|Lossless|WEB-DL|tracks] <Vap
 magnet:?xt=urn:btih:338ABD6FB423DBBCF433EDA870C5BE0079239E1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +664,8 @@ End.user - Enter to Exit (2016) Hands Productions [FLAC|Lossless|tracks+.cue] <D
 ```bash
 magnet:?xt=urn:btih:F69C2DA56BA4B08E6BDBB379EA2822240362AFCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +694,8 @@ VA - Aria Selections Class Of 2016 (Mixed by David Forbes) (2017) [MP3|320 Kbps]
 magnet:?xt=urn:btih:F086BFC0848F567FECD3BD4C1CA71C68EA6B7A90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,6 +723,8 @@ Portico - Living Fields (2015) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Downtem
 magnet:?xt=urn:btih:A27870513949B1202C6711044B0C4B0E428259D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -701,6 +751,8 @@ VA - Only Chillout Vol. 03 (Compiled & Mixed By Seven24) (2016) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:79659B276238886DA71475B75470C18E9D36450E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

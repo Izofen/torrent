@@ -1,3 +1,29 @@
+###  Публикация: 531191   (558726) от 04.08.2012
+
+Большие и маленькие (1963) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_558726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько новелл этого фильма расскажут об истории сложных взаимоотношений трудных детей и их родителей, и, может быть, помогут вам избежать уже совершенных кем-то ошибок.Жанр: ДрамаРежиссер: Мария ФедороваАктеры: Геннадий Некрасов , Клавдия Лепанова, Любовь Виролайнен, Лидия Королева, Василий Ливанов, Нина Меньшикова, Лев Свердлин, Николай Романов, Николай БарминПродолжительность: 01:27:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924510   (558953) от 03.08.2015
 
 Люди не все знают (1963) VHSRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:1A84C422BFF2EA163789DE76D9AF89A177C161E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:1A84C422BFF2EA163789DE76D9AF89A177C161E8
 magnet:?xt=urn:btih:5273D8147B34C87EEAFFBAAAE8C27F0B3433CBF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:5273D8147B34C87EEAFFBAAAE8C27F0B3433CBF1
 magnet:?xt=urn:btih:E793B1A3FA7F874FDA1B10CDD31BA3B200E59178
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:E793B1A3FA7F874FDA1B10CDD31BA3B200E59178
 ```bash
 magnet:?xt=urn:btih:7AE9C97CE38A68AD8748A7AE6D6FD8C76FCE4260
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:7AE9C97CE38A68AD8748A7AE6D6FD8C76FCE4260
 magnet:?xt=urn:btih:46F84154BC2E61F306524331298B6DF62A77083D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:46F84154BC2E61F306524331298B6DF62A77083D
 ```bash
 magnet:?xt=urn:btih:512991EEF3686FB141A606C4797DB06C59E6F3B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:512991EEF3686FB141A606C4797DB06C59E6F3B1
 magnet:?xt=urn:btih:3300956C28AB91BD53A1DA43A3AA2F28758E7B21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:3300956C28AB91BD53A1DA43A3AA2F28758E7B21
 magnet:?xt=urn:btih:D82D84751E62823EBC9D63271CC5F313CC14EE5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:D82D84751E62823EBC9D63271CC5F313CC14EE5C
 ```bash
 magnet:?xt=urn:btih:5425FAD7CF0F7CA39451CDC49727D4DC23CF995D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:5425FAD7CF0F7CA39451CDC49727D4DC23CF995D
 magnet:?xt=urn:btih:09251B576467C3A66A8F7FA52B23F00D4323C886
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:09251B576467C3A66A8F7FA52B23F00D4323C886
 ```bash
 magnet:?xt=urn:btih:C64C3E4136A3C8BCE9B355F65A46DCE5B11C877F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:C64C3E4136A3C8BCE9B355F65A46DCE5B11C877F
 magnet:?xt=urn:btih:D766DEFDE15534F9716369A8C947B89B5F9863B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:D766DEFDE15534F9716369A8C947B89B5F9863B5
 ```bash
 magnet:?xt=urn:btih:A62E4D16FDA983519FDFF24A80D54C1D16A8D6D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:A62E4D16FDA983519FDFF24A80D54C1D16A8D6D4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:A62E4D16FDA983519FDFF24A80D54C1D16A8D6D4
 ```bash
 magnet:?xt=urn:btih:EFA9424B66A9CDD9D15E3FA26BB3E5AEE7F04702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:EFA9424B66A9CDD9D15E3FA26BB3E5AEE7F04702
 magnet:?xt=urn:btih:8A1AC4B658B56D8FD7349CF065995D2134EC3D44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:8A1AC4B658B56D8FD7349CF065995D2134EC3D44
 ```bash
 magnet:?xt=urn:btih:64E36E05E6543D10931FFF375A852FC5A2EBC330
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:64E36E05E6543D10931FFF375A852FC5A2EBC330
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:64E36E05E6543D10931FFF375A852FC5A2EBC330
 ```bash
 magnet:?xt=urn:btih:B596E3665E95699D4D6AB96955D9013E75B2CDA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:B596E3665E95699D4D6AB96955D9013E75B2CDA8
 magnet:?xt=urn:btih:A44E65A7A523DCE55E71A45EBAB6161496B4D952
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:A44E65A7A523DCE55E71A45EBAB6161496B4D952
 ```bash
 magnet:?xt=urn:btih:6B43967B2F7C571C00346D1DA2FE98BC7E0A7F6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:6B43967B2F7C571C00346D1DA2FE98BC7E0A7F6D
 magnet:?xt=urn:btih:12757EE60ECC7974BE72CEE0A3F94FDD700DA61A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:12757EE60ECC7974BE72CEE0A3F94FDD700DA61A
 ```bash
 magnet:?xt=urn:btih:B6240410983AE30831981074501687E3D10207B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:B6240410983AE30831981074501687E3D10207B3
 magnet:?xt=urn:btih:17168FA4448857E9FE3F73E0E8B2B8158B989287
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:17168FA4448857E9FE3F73E0E8B2B8158B989287
 magnet:?xt=urn:btih:8EECFC93436071E67B7083A8FBDC0E738129F2F7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555843   (567356) от 05.06.2022
-
-Крейцерова соната (1914) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_567356.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноименной повести Льва Толстого. Фильм из знаменитой коллекции Тимана и Рейнгардта "Русская Золотая серия". История человека, который — через неудачные попытки построить отношения с не близкой ему женщиной, через борьбу с чувственным, «животным» началом в себе, через ревность при отсутствии любви — приходит к страшному поступкуПроизводство: Российская империя, П. Тиман и Ф. РейнгардтЖанр: Драма, короткометражный, экранизация, немое киноРежиссер: Владимир ГардинАктеры: Михаил Тамаров, Борис Орский, Елизавета Уварова, Лидия СычеваСубтитры: Русские интертирыПродолжительность: 00:27:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB5040FA4FB7922CD17685E90C070FE565688513
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

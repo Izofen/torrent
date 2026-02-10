@@ -19,6 +19,8 @@ Amazing Cultivation Simulator – игровой проект, разработ�
 magnet:?xt=urn:btih:606E616C91913A35B7DE2742421132DBCFBCD427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Flooded - стратегическая видеоигра в режиме реа
 ```bash
 magnet:?xt=urn:btih:11742DA7C2CD975FF18133B7F3577D9B6BB9C32D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Kardboard Kings - это симулятор управления магазин�
 magnet:?xt=urn:btih:5D5DC0E3AD6BA48892D5EDBDA164310B10E0308E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Sims Legacy Collection (2025) [Multi] (17149764/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B4DB96F63B4C3B58E504CE8A29A59E8A9DC923B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Eyes of War (2023) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:0FD13F7A48BEA0C0485DD24BEDCB278B1E0EE1EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Sims 2 (2025) [Ru/Multi] (1.0.0.72/dlc) Repack FitGirl [Legacy Collection]
 ```bash
 magnet:?xt=urn:btih:B5EB06644C1442830C5DFDAB5CF75CAAE14C92B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Sims 2 (2025) [Ru/Multi] (Build 17175009/dlc) Scene Tenoke [Legacy Collectio
 magnet:?xt=urn:btih:4C0EB4868652F86FD1AB274ED236C865E1163094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Foundation: Новая эра в средневековых строительн
 ```bash
 magnet:?xt=urn:btih:D3B7C3C2B6FB7B0AB037CAECF3ED6D1B42BD7454
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Foundation: Новая эра в средневековых строительн
 magnet:?xt=urn:btih:383BE82DF7A1E11C86D319C5F7241CAAB4914D9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Learning Factory - симулятор, который призван созда�
 ```bash
 magnet:?xt=urn:btih:D8BCA8F806F1471950ABEF020F504902365D4184
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ None Shall Intrude (2025) [Ru/Multi] (1.0.01) Repack FitGirl
 magnet:?xt=urn:btih:3C880B76587B7853EC1888F951D7B4E7EBBCCD2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Frostpunk 2 открывает новые грани жанра выживани
 ```bash
 magnet:?xt=urn:btih:A940B6ED928AADE6CE79653E1979CB1EEDCD1C6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Catizens (2022) [Ru/Multi] (1.0.r153) Repack FitGirl [Game & Soundtrack Bundle]
 magnet:?xt=urn:btih:187CA3AA105A776654DD6EB007A7DBAF95545254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Reus 2 выделяется своей уникальностью и увлек�
 ```bash
 magnet:?xt=urn:btih:8BCCD1E2629EC683C305E5657D2D8F23CCA95B72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Builders of Egypt (2025) [Ru/Multi] (1.036) Repack seleZen
 magnet:?xt=urn:btih:68CEC7E5F1F939170587AB30809CF5E43150D592
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Builders of Egypt (2025) [Ru/Multi] (1.036) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F177F079281DBD0C85D2422D4B4E98BB1A06CBA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Builders of Egypt (2025) [Ru/Multi] (1.036) Repack R.G. Freedom
 magnet:?xt=urn:btih:A407D6260720C56DB341476D386870EDF8E5F02D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Millennia - пошаговая стратегическая игра, охват
 ```bash
 magnet:?xt=urn:btih:5C9AF489A555FA0CBAACEA4BD1A8B672D17301AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Slipways (2021) [Multi] (1.3-1143) License GOG
 magnet:?xt=urn:btih:B0602135474CDC5C93109E87158006AFD03AEC0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ From the Depths - это аркадный экшен, в котором игро
 ```bash
 magnet:?xt=urn:btih:B4A21C886B49727277F36A22FCF964D175F7E428
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Airship: Kingdoms Adrift - это симулятор торговли и бое�
 magnet:?xt=urn:btih:5E4F105C0253F9DBF9C287C150168043B1CBFDB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Sims 3 (2009-2013) [Ru/Multi] (1.67.2.024037/dlc) Repack dixen18 [Complete E
 ```bash
 magnet:?xt=urn:btih:11B11D7CE7908D213CF3DE90E40050D655DF1515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Trade Conquest (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:35B1B82B20519E1786D76FE7138FEF6B24418EE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Trade Conquest (2024) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:0F91708A0BD8E3DAF6A116DC73272DE4EC5C57F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Between the Stars (2019) [Ru/Multi] (1.0.0.8) License GOG
 magnet:?xt=urn:btih:BEF7D83A2613A534B123C7BF44C0B4F078C6FB3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Dungeons 4 - это фэнтезийная стратегия в реально�
 ```bash
 magnet:?xt=urn:btih:A74439A95938BE54FA6D3C766038491E13FB89C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

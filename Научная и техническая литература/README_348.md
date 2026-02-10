@@ -1,3 +1,57 @@
+###  Публикация: 916479   (590950) от 08.07.2015
+
+А. А. Болдырев | Карнозин (1998) [PDF]
+
+>>Научная и техническая литература
+>>Здоровье и медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография посвящена дипептиду карнозину, открытому в начале XX века В. С. Гулевичем. Рассмотрены химические свойства, распространение в тканях и метаболизм карнозина. Описаны исследования его биологической роли как специфического гидрофильного антиоксиданта в возбудимых тканях. Подробно проанализирована защитная роль карнозина при работе нейронов и мышечных клеток (   Читать дальше...   )Жанр: Медицинская литература, Генетика, МикробиологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C71158B1A590A397707EF4D163ACC60C95AA07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916206   (590989) от 08.07.2015
+
+Лев Успенский, Ксения Шнейдер | За семью печатями (1958) [FB2]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_590989.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале XVIII века на берегу Дона был найден громадный слоновый зуб. Откуда он тут взялся?
+Древнегреческие писатели и историки сообщают, что в землях скифов на вершинах гор жили «стерегущие золото грифы», таинственные полуптицы-полулюди. Что это? Только сказка? А если нет, то какими они были, эти древние жители гор?
+На скалах, на месте будущего Братского моря, в (   Читать дальше...   )Жанр: ИсторияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA31FC6F7949FE68D0172E3D64B2CCB40A54A9B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915877   (591332) от 07.07.2015
 
 Майкл Сэндел | Справедливость. Как поступать правильно? (2013) [FB2, DOCX, EPUB, MOBI]
@@ -19,6 +73,8 @@
 ```bash
 magnet:?xt=urn:btih:9510A51B8AAFD137610CCA28C7831127EF50A633
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +100,8 @@ magnet:?xt=urn:btih:9510A51B8AAFD137610CCA28C7831127EF50A633
 magnet:?xt=urn:btih:EF83597FF081AF06CCE8C60A5C397F65C6DED074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +125,8 @@ magnet:?xt=urn:btih:EF83597FF081AF06CCE8C60A5C397F65C6DED074
 ```bash
 magnet:?xt=urn:btih:0414C8BAB60DDAD9DAFB0ABF04AD6751E7C378C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +153,8 @@ magnet:?xt=urn:btih:0414C8BAB60DDAD9DAFB0ABF04AD6751E7C378C0
 magnet:?xt=urn:btih:0DF75E1FBEF05BD09F02C6DF51CEEFBB49D1ACFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +178,8 @@ magnet:?xt=urn:btih:0DF75E1FBEF05BD09F02C6DF51CEEFBB49D1ACFE
 ```bash
 magnet:?xt=urn:btih:864EC7F8C057FB6C13EFD806E340CEDB91EE93E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +205,8 @@ magnet:?xt=urn:btih:864EC7F8C057FB6C13EFD806E340CEDB91EE93E9
 magnet:?xt=urn:btih:7C6993B2F5CE7A424997CCA02CEADB9C8CB7E4B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +230,8 @@ magnet:?xt=urn:btih:7C6993B2F5CE7A424997CCA02CEADB9C8CB7E4B0
 ```bash
 magnet:?xt=urn:btih:47EDA5FD81630DE00D61AF321139984888922CDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +257,8 @@ magnet:?xt=urn:btih:47EDA5FD81630DE00D61AF321139984888922CDC
 magnet:?xt=urn:btih:5C13D5E4F09D14E11F583711A28C8153B5F6D671
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +282,8 @@ magnet:?xt=urn:btih:5C13D5E4F09D14E11F583711A28C8153B5F6D671
 ```bash
 magnet:?xt=urn:btih:9C8BFD5CC1A574D0586E130DD3D8BA109D0A6630
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +309,8 @@ magnet:?xt=urn:btih:9C8BFD5CC1A574D0586E130DD3D8BA109D0A6630
 magnet:?xt=urn:btih:FE3F078EDEE5846C0717EB8733DA83C16C2482B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +334,8 @@ magnet:?xt=urn:btih:FE3F078EDEE5846C0717EB8733DA83C16C2482B3
 ```bash
 magnet:?xt=urn:btih:38DE60902E68D8CB04319DFB7F7DD07F9635C4ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +361,8 @@ magnet:?xt=urn:btih:38DE60902E68D8CB04319DFB7F7DD07F9635C4ED
 magnet:?xt=urn:btih:0FE7F6A268E3089C33F2875FACAD54E4E9199BCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +386,8 @@ magnet:?xt=urn:btih:0FE7F6A268E3089C33F2875FACAD54E4E9199BCB
 ```bash
 magnet:?xt=urn:btih:F5E9E5C23236F830F605B38DB4F432683E29FF97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +413,8 @@ magnet:?xt=urn:btih:F5E9E5C23236F830F605B38DB4F432683E29FF97
 magnet:?xt=urn:btih:64F9CCD3C0B87A51CD567ED3D7686AF7E36A7DD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +438,8 @@ magnet:?xt=urn:btih:64F9CCD3C0B87A51CD567ED3D7686AF7E36A7DD7
 ```bash
 magnet:?xt=urn:btih:8D8DE66093C686D084EA2050E8B4686BDE6B5BCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +465,8 @@ magnet:?xt=urn:btih:8D8DE66093C686D084EA2050E8B4686BDE6B5BCF
 magnet:?xt=urn:btih:878EDD77C40F65A7ED314A0E12EC187F21138315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +491,8 @@ magnet:?xt=urn:btih:878EDD77C40F65A7ED314A0E12EC187F21138315
 magnet:?xt=urn:btih:A7BFA9FB5B2F2A629A2BE35FB0B7C2E253CB0703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +516,8 @@ magnet:?xt=urn:btih:A7BFA9FB5B2F2A629A2BE35FB0B7C2E253CB0703
 ```bash
 magnet:?xt=urn:btih:21DAB6C4B9EE271B96B4FABBBB42CA6D98E1AB94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +544,8 @@ magnet:?xt=urn:btih:21DAB6C4B9EE271B96B4FABBBB42CA6D98E1AB94
 magnet:?xt=urn:btih:50A3AB9FEB603CD69C5143B83AA212F155A523BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +569,8 @@ magnet:?xt=urn:btih:50A3AB9FEB603CD69C5143B83AA212F155A523BE
 ```bash
 magnet:?xt=urn:btih:0754B08953FE91DE6B18A3677CDC6F3C015A8574
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +596,8 @@ magnet:?xt=urn:btih:0754B08953FE91DE6B18A3677CDC6F3C015A8574
 magnet:?xt=urn:btih:E299F3836AE065CCB25C45608124997361D3A137
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +621,8 @@ magnet:?xt=urn:btih:E299F3836AE065CCB25C45608124997361D3A137
 ```bash
 magnet:?xt=urn:btih:A31EFEFF1808585778B9ECA969B95C82A25FFAB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +648,8 @@ magnet:?xt=urn:btih:A31EFEFF1808585778B9ECA969B95C82A25FFAB9
 magnet:?xt=urn:btih:17B1E35DB56A8C5C650DC2141F089629D5D1924D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,55 +674,7 @@ magnet:?xt=urn:btih:17B1E35DB56A8C5C650DC2141F089629D5D1924D
 magnet:?xt=urn:btih:A488FC23D77EFF6770A483E5B913FD6080505886
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300552   (592775) от 07.05.2019
-
-Л.Л. Лазаренко | Итальянский с итальянскими писателями. L'italiano Attraverso gli Scrittori Italiani (2017) [PDF]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592775.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга для чтения содержит отрывки из произведений итальянских писателей XX века. Каждый текст (разной степени сложности) сопровождается комментариями, упражнениями и вопросами, которые не только помогают усвоить определенный объем лексики, но и способствуют пониманию и закреплению изучаемого материала.
-Учебное пособие предназначено для студентов младших курсов, изучающих (   Читать дальше...   )Жанр: Учебное пособиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64EC0C1AEC7D7E14F03C5D0E9EAD8A072A8EEA6A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549738   (592780) от 08.05.2022
-
-Antonia Clare, J. J. Wilson | Speak Out 2nd Advanced (2015) [PDF] [Student's book | Workbook | Teacher's book | Extra| Including MP4, MP3, DOCX] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_592780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Speakout - Шестиуровневый курс английского языка для взрослых, созданный на базе аутентичных материалов BBC, эффективно развивающий все четыре речевых навыка. 6 уровней: A1-C1 (Starter-Advanced). Отбор лексико-грамматического материала ориентирован на потребности реального повседневного общения.
-Данная подборка уровня Advanced (C1), включает следующие книги и материалы (   Читать дальше...   )Жанр: Образование, Аглийский языкФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49FE1C8E37F6201E3C515CF7223A068D95296D6D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

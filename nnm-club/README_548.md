@@ -19,6 +19,8 @@ The Planet Crafter (2022) [Ru/Multi] (1.526/dlc) License GOG
 magnet:?xt=urn:btih:B45F6A7FA1A4B1EA4E21C1B4EA2BB993283A143F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:B45F6A7FA1A4B1EA4E21C1B4EA2BB993283A143F
 ```bash
 magnet:?xt=urn:btih:BA10C2970C8230660CBA0BE6909548EF64794122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:BA10C2970C8230660CBA0BE6909548EF64794122
 magnet:?xt=urn:btih:99529915CB1ACC788FC55B82D84FFBE66E9C224E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:99529915CB1ACC788FC55B82D84FFBE66E9C224E
 ```bash
 magnet:?xt=urn:btih:D705B96C3C4BD18D39BD2A25FFCF69B27C7754CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:D705B96C3C4BD18D39BD2A25FFCF69B27C7754CC
 magnet:?xt=urn:btih:EDA6B29687387591E1EB2F883B23CFEC91F8ADFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:EDA6B29687387591E1EB2F883B23CFEC91F8ADFB
 ```bash
 magnet:?xt=urn:btih:0ABD7AFB95FE8C58F1CB949BA9F125180F9FA37F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Discovery: Экоград / Ecopolis (2008) SATRip (серии 1-6 из 6)
 magnet:?xt=urn:btih:085851B6BEC80A698AEAD0D904A3DFEDD5FA31DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:085851B6BEC80A698AEAD0D904A3DFEDD5FA31DE
 ```bash
 magnet:?xt=urn:btih:63FAE1953F86932F92184EDC9D34A18F5973E149
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:63FAE1953F86932F92184EDC9D34A18F5973E149
 magnet:?xt=urn:btih:968755C51B9A25FAAC232621AE49E54E7B7798AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:968755C51B9A25FAAC232621AE49E54E7B7798AE
 magnet:?xt=urn:btih:DB9B0AA72DB2410C66E937F51053D2512DBF7F28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:DB9B0AA72DB2410C66E937F51053D2512DBF7F28
 ```bash
 magnet:?xt=urn:btih:AF3A81E1E350EA4946ABAE1822C1DF5311AF4BAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:AF3A81E1E350EA4946ABAE1822C1DF5311AF4BAF
 magnet:?xt=urn:btih:9D98168E7272AA971FB0EC22050830137D0244EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ VA - Remix NNM 10 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:F1156B2A87CE8D8E1932528D386AF3F70DA86AB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Discovery: Шахты на Луне / Mining the Moon (Роб Бимер) HDTVRi
 ```bash
 magnet:?xt=urn:btih:550CE60ABC2274346811CB6A12E573C29479FD8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:550CE60ABC2274346811CB6A12E573C29479FD8C
 magnet:?xt=urn:btih:1B670B0ACA99B562DF31B6F0F4AD2CD6BB55DCEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:1B670B0ACA99B562DF31B6F0F4AD2CD6BB55DCEA
 ```bash
 magnet:?xt=urn:btih:6B4006B2F24D6B709DD9C8F74B364F201EC78E51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:6B4006B2F24D6B709DD9C8F74B364F201EC78E51
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:6B4006B2F24D6B709DD9C8F74B364F201EC78E51
 ```bash
 magnet:?xt=urn:btih:F6F9E67571512A3E92EB32EDE3AE1835D99465EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:F6F9E67571512A3E92EB32EDE3AE1835D99465EC
 magnet:?xt=urn:btih:339399DC1AF3E5770438CF1556E266DBD0CFA829
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:339399DC1AF3E5770438CF1556E266DBD0CFA829
 magnet:?xt=urn:btih:14236C3132D54F56823F2772E3B31533AF7EB4C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Device Info — простое, но мощное приложение для An
 ```bash
 magnet:?xt=urn:btih:EDA26F98C9CFEFF066E146BE91D129FC60313437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:EDA26F98C9CFEFF066E146BE91D129FC60313437
 magnet:?xt=urn:btih:78C4EAEE56EA32F56469713009103F06D0459E5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:78C4EAEE56EA32F56469713009103F06D0459E5C
 ```bash
 magnet:?xt=urn:btih:29751BF2507985FA448295E73283D789E35A68DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:29751BF2507985FA448295E73283D789E35A68DA
 magnet:?xt=urn:btih:5B7FCB72E5441DD0BBFAC97F031217E79895E36B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ CoolUtils Total XML Converter - уникальное приложение для
 magnet:?xt=urn:btih:3772CEDB53F4FEFC19EDE02C905A1098E3434E43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:075921DEB2BEFFA6C6262DC6FC2FF21730D98A58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

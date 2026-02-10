@@ -19,6 +19,8 @@ Macrorit Disk Scanner Unlimited - инструмент для проверки �
 magnet:?xt=urn:btih:EFD995CE27EE50665E3CFDEDDFEA573F5C79F7AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Tropical Fuck Storm - Goody Goody Gumdrops (2023) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:1B41F9430F32C091B75CBDFB67590C61B2F6C838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:1B41F9430F32C091B75CBDFB67590C61B2F6C838
 magnet:?xt=urn:btih:46A47514DADAF77A67443C6473A832B9929C8375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:7782AC3AC739FB15179188A1D67FF6F344A5568F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Udemy, Michael Gerard | Unreal Engine 4: Learn How to Create a Natural Scene Par
 magnet:?xt=urn:btih:CB8D216ED654905988D188D73E027BEAB96EADFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:CB8D216ED654905988D188D73E027BEAB96EADFB
 ```bash
 magnet:?xt=urn:btih:8D65931FB8E991604735A25DE469CD317B45C6F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Kollapsed - An Altar in Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric S
 magnet:?xt=urn:btih:AEE9B70826CE360C3D4791923FCD202BDF279F7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Dauda - dauda eldfjall (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Black metal>
 magnet:?xt=urn:btih:2E3AB3ECF26830AF2CF24CBD1E178D68A1B251B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:2E3AB3ECF26830AF2CF24CBD1E178D68A1B251B5
 ```bash
 magnet:?xt=urn:btih:903988C0DF2113023DECF6C2A00E4BF2FB935552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ Mitch Malloy - The Last Song (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 magnet:?xt=urn:btih:43F7C0A726266F7F574598602F2B73D2462486C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ Moby – Reprise (Box Set, Special Edition) (2021) [DTS-ES Discrete 6.1 CD-Audio
 magnet:?xt=urn:btih:437005EDDED4F3FDA4BDC26B43F0FAA9335653E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:437005EDDED4F3FDA4BDC26B43F0FAA9335653E3
 ```bash
 magnet:?xt=urn:btih:5A3ADEED784C8CE0A4489C9D12BE32CBAA422AAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:5A3ADEED784C8CE0A4489C9D12BE32CBAA422AAD
 magnet:?xt=urn:btih:0E817267FFDC2A3866204149D575DE1BB82DEAA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:0E817267FFDC2A3866204149D575DE1BB82DEAA4
 ```bash
 magnet:?xt=urn:btih:9CCB0A4A2A1F6269BDB0AD19EDE48A54DFEED23F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ Cthulhuss - Obliteration of Souls (2022) [FLAC|Lossless|WEB-DL|tracks] <Death, D
 magnet:?xt=urn:btih:D795F883A918854DDEFBB5C90AA9E746D696FD73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:D795F883A918854DDEFBB5C90AA9E746D696FD73
 ```bash
 magnet:?xt=urn:btih:1BDA354A47C4602E67AD2BEB0C5A9BE990AC6E51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:1BDA354A47C4602E67AD2BEB0C5A9BE990AC6E51
 magnet:?xt=urn:btih:0E3557068AFB401599EC8624510BD0BC788DC371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ PullTube 1.8.5.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C66DA8F585FDEF2C0851123BAE50553B00C04551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ Suren Arustamyan - I Am Free (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:10076032C0F2AD645B8F98B343ACE8F794013D62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ Mecca - Everlasting (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 magnet:?xt=urn:btih:92C47A016F9123B6081E552721ED50DD2A811DFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:92C47A016F9123B6081E552721ED50DD2A811DFE
 ```bash
 magnet:?xt=urn:btih:A19C74FA38A715042973220EB52C4885AE7CB02D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:A19C74FA38A715042973220EB52C4885AE7CB02D
 magnet:?xt=urn:btih:53CA294441871379BDF8EDA96A3CC1FA12FEDB99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:53CA294441871379BDF8EDA96A3CC1FA12FEDB99
 ```bash
 magnet:?xt=urn:btih:3CE3FCBFD421B613D5B125C58C24D7047881C4E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ Def Leppard - Def Leppard (2015) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
 magnet:?xt=urn:btih:BA6D22AE07BF00648BAD97E379EDB314F008A938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:BA6D22AE07BF00648BAD97E379EDB314F008A938
 magnet:?xt=urn:btih:7BEEEC009608122FAC283E95E1295DC9F6599E15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:7BEEEC009608122FAC283E95E1295DC9F6599E15
 ```bash
 magnet:?xt=urn:btih:BAB902564EA7C46FDA257FCACA4A7445786DEAE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

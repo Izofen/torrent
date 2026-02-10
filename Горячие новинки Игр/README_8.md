@@ -19,6 +19,8 @@ Lords of Ravage - это тактическая ролевая с элемент
 magnet:?xt=urn:btih:13815FF536598CA07F92E6EFD46FF7248D01FB12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BALL x PIT - динамичный фэнтезийный рогалик, где 
 ```bash
 magnet:?xt=urn:btih:AA8607045BFC4B889762510621961CAFD1E1394F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Spindle (2025) [Multi] (1.0.3) License GOG
 magnet:?xt=urn:btih:937EE4B099141ADCC0284E0679436B3D2B0700DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 ```bash
 magnet:?xt=urn:btih:91B76BAE4F8D036A87758803D8B1D4E13034B93A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Beneath - это шутер на выживание от первого лиц
 magnet:?xt=urn:btih:2973D2BFE736E45DE0A0C760DCF8116D813443F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Silly Polly Beast (2025) [Ru/Multi] (0.97) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C38DD1272ACEF647D018CBD99DC955D30D072B7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Escape Simulator 2 - это продолжение самого продавае
 magnet:?xt=urn:btih:A8A6066520C93383DA14016E96325E8404B3AF62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Master of Command - это тактическая стратегия в реал
 ```bash
 magnet:?xt=urn:btih:98B0F95CD37A41B6FDD2BFA6E1264B938FAEADDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Beneath - это шутер на выживание от первого лиц
 magnet:?xt=urn:btih:6594DAFA9F17B945FF6A2181B166451EF56ED5AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Dispatch - это комедия о рабочем месте супергеро
 ```bash
 magnet:?xt=urn:btih:D442FE45C8C627DB3EB782DF155494263188D82A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Beneath - это шутер на выживание от первого лиц
 magnet:?xt=urn:btih:129ECC82F0BD96D8D33DC10C687805324AFD55B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Wreckreation (2025) [Ru/Multi] (1.0.144924) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:30AE8AC68C8F42EBC442FD34753D26FD8841911B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dark Moon – стратегическая игра о выживании, гд�
 magnet:?xt=urn:btih:5D9687BEDEA5AFEDEF1BA4EC7963D3A5874EC9F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Silly Polly Beast (2025) [Ru/Multi] (1.01) License GOG
 ```bash
 magnet:?xt=urn:btih:A4631BC23E3BB1C6D906F146807C6989894C87F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Mortal Kombat: Legacy Kollection позволит игрокам узнать и
 magnet:?xt=urn:btih:9323FDE004B5573331A1B026B6C8BA6ED667DFB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Escape Simulator 2 - это продолжение самого продавае
 ```bash
 magnet:?xt=urn:btih:8285C6EED219AFD3FABBBC8432DEF51232B96A62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Silly Polly Beast (2025) [Ru/Multi] (0.97) Repack seleZen
 magnet:?xt=urn:btih:6C09EC74DF0DE34FD8C6F47DFD9EB8048AE48E95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Wreckreation (2025) [Ru/Multi] (1.0.144924) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:96333B80F966B2903A742A2D54BAC85D0BA669BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Beneath - это шутер на выживание от первого лиц
 magnet:?xt=urn:btih:8446DFA157A9528361C5EB8178357A4FFC229532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Dark Moon – стратегическая игра о выживании, гд�
 ```bash
 magnet:?xt=urn:btih:42892582BA40D6B2D0F25CC86EC0789D4D6CBA8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ CUFFBUST (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:53635FC7EB6020DCABDB38E048F89453E2DB52DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Lessaria - это наследник Majesty. Мы возвращаем на с�
 ```bash
 magnet:?xt=urn:btih:C5211AFCF242634A982C50077686DFB4432CEBA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Wreckreation (2025) [Ru/Multi] (0.9c) License GOG
 magnet:?xt=urn:btih:E779AA92977C4473E70214CA91D46845B6D4A6C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Silly Polly Beast (2025) [Ru/Multi] (0.97) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C786A907B2E6FAC47D7197D09AC176EEA9DB0F9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Bleak Haven - это игра в жанре survival horror, в которой �
 magnet:?xt=urn:btih:5031B8EB8A9FE614FCBEE1E17668C0DE624D8B48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Avernum 4 Greed and Glory - мрачное фэнтезийное приключ
 ```bash
 magnet:?xt=urn:btih:74D0D3D6426D58464353C1E3CD91C531C8F04CFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

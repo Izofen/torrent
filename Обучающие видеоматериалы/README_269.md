@@ -19,6 +19,8 @@ Udemy, Prateek Narang и др. | Data Structures & Algorithms, Level-up Course (
 magnet:?xt=urn:btih:920EF767E43C325F67145B0436AF20FB4550DB11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ James Paick | Environment Basics 1 Basic Composition & Values (2015) PCRec [En, 
 magnet:?xt=urn:btih:5A60A880FF60639F590568DC8B6FD47B15102D66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Nate Hallinan | Painting Fur (2014) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:251265F71BCDE8311B002166FFB9FE82FC670631
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Ben Adler | Intro to PBR in Unreal Engine 4 (2014) PCRec [En, Ru]
 magnet:?xt=urn:btih:4F1374F1E20F839DB5AB5F9D1515E4BAC80B6F69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Eytan Zana | Graphic Composition For Environments (2014) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:A08DF976971AC331553771810C5BB5EF3623A1D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ James Paick | Environment Basics 4 Lighting & Textures (2015) PCRec [En, Ru]
 magnet:?xt=urn:btih:1E08D54635E182AF26095B52D3904A185A7C6C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ James Paick | Environment Basics 2 Perspective & Layout (2015) PCRec [En, Ru]
 magnet:?xt=urn:btih:4F0A2067BC59E98C982BAA89E8937AA3C428C7C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Nate Schutta, Neal Ford | Presentation Patterns (2016) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:9841FEE420BEA14E48398C8BA42A3435362E11CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:9841FEE420BEA14E48398C8BA42A3435362E11CF
 magnet:?xt=urn:btih:73D8D1ECE132B10F73BA46A07A273F740E8D0F25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ Linux Academy | Certified Kubernetes Administrator (CKA)  (2021) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:85AEA3E7EA7D2C2960CF1F6187E7BA7C905CC83C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:85AEA3E7EA7D2C2960CF1F6187E7BA7C905CC83C
 magnet:?xt=urn:btih:05D5C1B362A19F9B8C52D30538195D695E9AA2B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ ITVDN,  Александр Бреславец | Web Testing (2021) PCRec
 ```bash
 magnet:?xt=urn:btih:2B2ACF249437B0BE8BED7DC4961C8E9590C32B86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ Kurt Papstein | Character Creation in ZBrush (2014) PCRec [En, Ru]
 magnet:?xt=urn:btih:020FA2BA1F23C10B297962D56D5D418124B52C55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ Anthony Eftekhari | Concept Art for Production (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:3DCC00EFFC2E0CD75F573ACBE1AAC7B33DAEC11E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ Udemy, Kane Ezki и др. | The Ultimate 2021 Fullstack Web Development Bootcamp
 magnet:?xt=urn:btih:87EC93A3BC8E6CEAD3A34D7D47B305C1F31A1E9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ Maciej Kuciara | Environment for Video Games: Callouts (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:789CF84B8E7698961618CF1537C13E3A6FDB454D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ AmigosCode, Nelson | Database Design & Implementation (2021) PCRec [En]
 magnet:?xt=urn:btih:C695D0B4947DD81D69FACC18FC13D902A6B608FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ Octane – это мощный и легкий/удобный в использ�
 magnet:?xt=urn:btih:03C75049E60CA8975EA5082EAAD635C2A3E151FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ Eytan Zana | Color and Light (2014) PCRec [En, Ru]
 magnet:?xt=urn:btih:745B13E9DE64051E6BAE0F6F6D922645A3E4BC3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ James Paick | Creative Environments for Games Part 1 of 4 (2014) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:8F3BEB62236BD4B65EB4B1CAB77DDC83149E3D66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:8F3BEB62236BD4B65EB4B1CAB77DDC83149E3D66
 magnet:?xt=urn:btih:2082141E8F96FE869406B96341B183A944E01D65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ FlippedNormals, Konrad Hetko | Создание лицевого рига в Ble
 magnet:?xt=urn:btih:30A923D3227E4E5F7B3EF82EA529BADB9F791ACE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ Anthony Eftekhari | 3D Matte Painting Tutorial (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:54398FA1C0910BBF1023496BA2059692C082F804
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ Sergey Gricay | Dynamic wall SD Video tutorial Part 1 (2017) PCRec
 magnet:?xt=urn:btih:B6AF50D6769523EEE3B8A86AB27276C3036A217C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ Python — один из самых популярных инструменто�
 magnet:?xt=urn:btih:7AAFB8F77631EB6968306E75528276551DAE3F1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ CSS Grid - это удобный механизм для настройки ра
 ```bash
 magnet:?xt=urn:btih:E468613C7EE2A2F53623618A0E03928D02FC65E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

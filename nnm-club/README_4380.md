@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:99AC973410D2133492F559FEF94A793E4DE753D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:99AC973410D2133492F559FEF94A793E4DE753D1
 magnet:?xt=urn:btih:804ADFB53072C5AF56809382972B5E8970216223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:804ADFB53072C5AF56809382972B5E8970216223
 ```bash
 magnet:?xt=urn:btih:523C72D23145C2B8CC1EB0161038BDB1CC823D35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ VA - Легенды Русского Рока I (1996) 6CDs Box-Set [FLAC|Lossle
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Coquelicot-zaka kara | Со склонов Кокурико [2011, Movie] Blu-ra
 ```bash
 magnet:?xt=urn:btih:B1B7541F1D7AD0B0B5BAC072EAD316D217AA10F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ NullDC 1.0.4 r141 + BIOS + VMU [English] (2012) [Dreamcast]
 magnet:?xt=urn:btih:BA04E653C875D9FF5A637A2738D2E52A8BAB5C83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Talkao Translate - голосовой переводчик. Talkao Translate —
 ```bash
 magnet:?xt=urn:btih:E13D6D3A54414F7C02E06FEE86ED961F248F944A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:E13D6D3A54414F7C02E06FEE86ED961F248F944A
 magnet:?xt=urn:btih:1BB1E296597E3847531CFD46DF9187DE443E960E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:1BB1E296597E3847531CFD46DF9187DE443E960E
 ```bash
 magnet:?xt=urn:btih:021E2837B6942AE4D49A0DF3C5A84193B47AE8C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:021E2837B6942AE4D49A0DF3C5A84193B47AE8C1
 magnet:?xt=urn:btih:09B4A5FEE6FFAC30616FBD96BF6966BDF1804DEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ Transparent clock & weather / Прозрачные часы и погода 6.47
 ```bash
 magnet:?xt=urn:btih:1F98421695561EA280DF57F1BFF551A6FEC6F205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ PC Cleaner Pro - программа для оптимизации и очист�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ PC Cleaner Pro - программа для оптимизации и очист�
 ```bash
 magnet:?xt=urn:btih:C8EC2594651F953A92BA7495CB2EBFAED0C8C7AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:C8EC2594651F953A92BA7495CB2EBFAED0C8C7AF
 magnet:?xt=urn:btih:D6C230B73A09584D139793E974D3FA92A0887A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:D6C230B73A09584D139793E974D3FA92A0887A48
 ```bash
 magnet:?xt=urn:btih:6E0A75AE91E49521D3114B0A3F2AE9A23833C903
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Protoxide: Death Race - это интересный симулятор гоно�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ Bruce M. Van Horn II, Quan Nguyen | Hands-On Application Development with PyChar
 ```bash
 magnet:?xt=urn:btih:7A50D2C575D4A5FD029C26FE6B9E307A9FEF82DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ Fstoppers, Andres Moline | Mastering Macro Photography - The Complete Shooting a
 magnet:?xt=urn:btih:6F54A12B2587AA261DBC32C66A91937A394F6314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Henry S. Warren, Jr. | Алгоритмические трюки для прог
 magnet:?xt=urn:btih:FA7906B6131126C85561D5603FCB0EED3410AA40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:FA7906B6131126C85561D5603FCB0EED3410AA40
 ```bash
 magnet:?xt=urn:btih:1C4C204339096824987DD811B31A0F3A3695E874
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:1C4C204339096824987DD811B31A0F3A3695E874
 magnet:?xt=urn:btih:E8806CD0AC74472289565FBF312D214A619AC320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ VA - Record Super Chart 25.11.2023 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:832856FFBBE75DB971BE7097EC6DFDA3C5DD7A59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:832856FFBBE75DB971BE7097EC6DFDA3C5DD7A59
 magnet:?xt=urn:btih:903DEA2FC2C0AC71FF5F5973581C223557C5202A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ Kane & Lynch: Dead Men [En] (L) 2007 | HATRED
 ```bash
 magnet:?xt=urn:btih:7E408DE9AC82504096704940BB84E21215EBF8B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +698,8 @@ magnet:?xt=urn:btih:7E408DE9AC82504096704940BB84E21215EBF8B5
 ```bash
 magnet:?xt=urn:btih:A4ACADD622BC67E6EEB3118354D270FCE4461F16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

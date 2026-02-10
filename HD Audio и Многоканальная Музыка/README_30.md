@@ -22,6 +22,8 @@ VA - Шлягеры Уходящего Века (2000) [FLAC 2.0|48/24|image +.c
 magnet:?xt=urn:btih:51DF8F30C6B8827120BF08FCF07B529EFE7343B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ The Gathering — рок-группа из Нидерландов, основа�
 ```bash
 magnet:?xt=urn:btih:9F9F569124D39D09264B26A2B1D7FCFF8B55A781
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Sexual Music Collection - Jazz SEXtet: Sexy Sounding Jazz for Couples in Love (2
 magnet:?xt=urn:btih:5E346A1E7DF294D331E358291559FDA8633F4AFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Dua Lipa - Dua Lipa Live from the Royal Albert Hall (2024) [FLAC 24/48|Lossless|
 ```bash
 magnet:?xt=urn:btih:0BEFDF2D47DDECE8C9A7773844C3A60655E32C0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Roxette - Crash! Boom! Bang! 30th Anniversary Edition (1994) Reissue, 2024, Warn
 magnet:?xt=urn:btih:EF055FF9E03E605248DC09319645508021A7B9ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Xandria — немецкая группа, исполняющая музыку �
 ```bash
 magnet:?xt=urn:btih:29EB4C05C222406CFAE0E94EA0598B0516FBFC6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Virgin Steele — американская рок-группа, играющая
 magnet:?xt=urn:btih:1A0294FEA70E264685E687A3C5BEF1E143B91339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:FCFAFFAB9FF9C37E3D7C33483DF4BDD6417172C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Duran Duran - Evil Woman (2024) The Remixes, 2024, BMG [FLAC 24/48|Lossless|WEB-
 magnet:?xt=urn:btih:07F41842588412A756276333F5609A25DF2061B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Denigrate - To the Goddess Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:2797D6526BB1A711EF333A751416772149E06713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +314,8 @@ Clannad (Кла́ннад) — ирландская музыкальная гр�
 magnet:?xt=urn:btih:B227BB4338E6CF9319159AECEF5262600484B444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +342,8 @@ Little Glee Monster - Break Out of Your Bubble (2024) [FLAC 24/96|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:70891E1AFDDA5842B91F47A85045E6E19F211E76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +372,8 @@ Il Volo - Ad Astra (2024) International Edition, 2024, Masterworks [FLAC 24/44.1
 magnet:?xt=urn:btih:99437D027E8F5CCA6979FB48D0BF188E59D034C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +400,8 @@ CYN - Valley Girl (2024) Extended [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Euro
 ```bash
 magnet:?xt=urn:btih:62314942B3E1DAE3B4E7D8573FD43761CEE72D61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +430,8 @@ Megan McDuffee - Crimson Legacy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Sy
 magnet:?xt=urn:btih:1187B6A393DFF7BC0088761ED5762A1EBF67A150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +458,8 @@ Alphaville - Afternoons in Utopia (1986) Remaster, 2021, WM Germany[FLAC 24/96|L
 ```bash
 magnet:?xt=urn:btih:1912B2D75F611F7DC36B0B66F7A5CE25967602C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +488,8 @@ Lara Fabian - Je suis la (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Fren
 magnet:?xt=urn:btih:69EEE2AC6828FF99C006B96CFACA49E6BF9E2EF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +516,8 @@ Cliff Richard - Exclusive (2024) Remastered, 2024, DMI [FLAC 24/44.1|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:856963EB2A6B2256F0C1A4C4EBA74F148B39C92E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +546,8 @@ The Smoothies - Variations of Autumn (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:C1EFD7DC6895EB2398DE1D4962FA3CAF55A9457A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +574,8 @@ Various Artists - Eric Clapton's Crossroads Guitar Festival 2023 (Live) (2023) 2
 ```bash
 magnet:?xt=urn:btih:23FFA87C264FED9D3A360DA19D3EA9D4D5A50785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +604,8 @@ Side One:
 magnet:?xt=urn:btih:BCB283DA76F5A3448190ECFE562B1019388CF351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +632,8 @@ David Rose - In Your Embrace (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:8FF75F42D7A2A048A046F84CBF0A422FDB9D07A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +662,8 @@ Ginger Evil - Hands Move to Midnight (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:6324A8FCAAA1F30A7151C26DD96CD60417D61463
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +690,8 @@ We Are The Catalyst - Friction (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt M
 ```bash
 magnet:?xt=urn:btih:C016BE9D28F2D6F620B25ED9A5E78F05BDB721F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +720,8 @@ Benjamin Croft - We Are Here to Help (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:60114C3E90476F1C152C1D074F28FE54E09F2032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,6 +748,8 @@ Keep of Kalessin — метал-группа из Тронхейма, Норве
 ```bash
 magnet:?xt=urn:btih:238CFB97E998C7E3439221401141B8645FE8AAAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

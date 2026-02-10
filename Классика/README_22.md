@@ -22,6 +22,8 @@ Piano Sonata no21 in Bf, D960
 magnet:?xt=urn:btih:ADE862730A30D7B0DA411E7B54AE6ABDDF474615
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Piano Concerto No. 3 in C minor, Op. 37
 ```bash
 magnet:?xt=urn:btih:0593B45F2B10425F6DF946EDDAFA942F62C2CDF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Missa Nr.34 in C major
 magnet:?xt=urn:btih:C8BE1DE887AB37CF50C237BF46B459029E65394F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Johann Sebastian Bach & Alessandro Marcello-Konzerte und Sinfonien fur Oboe: Cam
 ```bash
 magnet:?xt=urn:btih:BBC85EC4083089855F237A478CBD631F1BD397F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Concerto in D minor BWV1052R
 magnet:?xt=urn:btih:DAB32A03E077F2ED5F2D982624E4CD02BCAE7852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Concerto for Violin and Orchestra in E minor, Op. No.6
 ```bash
 magnet:?xt=urn:btih:39A6B67BB878246A65430B95AE37EFC460142A3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Chris Snelling - Piano Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, P
 magnet:?xt=urn:btih:5A274C95ED4B8A452FC02CDB01AC43BDC4CB694A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Schubert - The Complete Impromptus, Moments Musicaux (Alfred Brendel) (2CDs) (19
 ```bash
 magnet:?xt=urn:btih:8C0A29B9840F120BA6253F5FEF00EEE0E4312B5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ Serenade For Strings In C Major, Op. 48
 magnet:?xt=urn:btih:A5DDD45A83B586E6FEA4CF261C8B85B898502C3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Ancient Airs and Dances, Set 1, arrangements (4) for orchestra, P. 109
 ```bash
 magnet:?xt=urn:btih:003C7FE2FBD33061DB5516C41E9868625DD58599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Luciano Pavarotti - The People's Tenor (2017) [MP3|320 Kbps] <Classical, Opera>
 magnet:?xt=urn:btih:6A97101849E35894DC62BC13399B7001E66E940C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ Ludovico Einaudi - Seven Days Walking (Day 6) (2019) Decca Records [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:AD30E6AAF26BDE209F77DA2078AD45FF1C003CD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ CD - 1:
 magnet:?xt=urn:btih:590D2A47DDDF8C25365FF1A3246A284FA0610D93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ Toccatas, transcriptions (2) for piano in D minor & C major (BWV 564/565; BBGA 7
 ```bash
 magnet:?xt=urn:btih:01245AF71B44419353AC1C64E620388C2A55975A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ Trio for Piano and Strings no 2 in D minor, Op. 9 "Trio élégiaque"
 magnet:?xt=urn:btih:663E64670DCE04D06E6EB887ECFB28DF5D362B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ Scenes from Childhood for piano, Op. 15
 ```bash
 magnet:?xt=urn:btih:11A7A6761F83660E7F9671E1D23C7B986D89FCEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ Sabine Meyer многократно отмечалась музыкальной 
 magnet:?xt=urn:btih:6835EC362C47B1382F6A7A40FE42178AF261D5EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ Piano Sonata in F major, Hob.16/23
 ```bash
 magnet:?xt=urn:btih:27C07A481E7D4598CEB0F93411668591A5ECBBC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ Organ Concerto No. 1 in G major
 magnet:?xt=urn:btih:3B0429908BA8FE3601DC6EA105196CD6497E52D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ Il Volo with Placido Domingo - Notte Magica - A Tribute To The Three Tenors (201
 ```bash
 magnet:?xt=urn:btih:1A651D59E58DD7ACBCD83B17B269B7D0EBA95303
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +605,8 @@ VA - Лучшая музыка против стресса #100 (2012) [MP3|224 
 magnet:?xt=urn:btih:7E9FE728F69F4EF4000E234A54B1757ACF1191BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +633,8 @@ Piano Sonata No. 26 in E flat major ("Les Adieux"), Op. 81a
 ```bash
 magnet:?xt=urn:btih:D4D7CDD7D328C3CB60552E408446474BE6427967
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +663,8 @@ A German Requiem op. 45 (for soloists, chorus and orchestra)
 magnet:?xt=urn:btih:00A44E600F05F2631D8CFC34E1EA83244F0DB5C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +691,8 @@ Cristian Petrescu - Georges Enesco: Oeuvres pour piano (2005) 3CD [FLAC|(image+.
 ```bash
 magnet:?xt=urn:btih:ABB5083A7FE25E0A637C7606A6B07EF4B4340BA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +721,8 @@ Sleeping Beauty
 magnet:?xt=urn:btih:2A9B575EC1D966BF832DDC33EE6E208ABF657CF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ Symphony No. 38 in D major ("Prague"), K. 504
 ```bash
 magnet:?xt=urn:btih:F63C7AD93217D4070CE1BD1BD0C92F026904D4BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

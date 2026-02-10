@@ -19,6 +19,8 @@ Swallow - это психологический хоррор от первого
 magnet:?xt=urn:btih:81BBC6F4D478EE6A4F3DEC209188F094E64DD86F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Tarnishing of Juxtia сочетает мрачные фэнтезийные 
 ```bash
 magnet:?xt=urn:btih:7D82C4CC81EF45A11F1BC8420B9DD1E112EA1CBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Fobia - St. Dinfna Hotel (2022) [Ru/Multi] (Build 8905722) Repack Other s
 magnet:?xt=urn:btih:EC5975A14525A96844C4D211AE55E3E98A6E8366
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Hunting Simulator 2 (2020) [Ru/Multi] (1.0.0.311.66949/dlc) Repack R.G. Меха
 ```bash
 magnet:?xt=urn:btih:B294577C84DC94E54EBC66965961BB288AF9FA1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Royal Romances 3: The Power of Chosen One (2023) [En] (1.0) Unofficial [Collecto
 magnet:?xt=urn:btih:D17898AAC583F1F8297D54DAAD0AD41929AC58F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Big Earth - платформер со сложными головоломкам�
 ```bash
 magnet:?xt=urn:btih:B6E4E558CE383AC3362E96C9A0A5B173EA914E64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Gloomy Tales: Horrific Show / Мрачные Истории: Кошмарное 
 magnet:?xt=urn:btih:9E9CAABC692DC6536B4CC0D569F1E46AF82E33FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Ms. Holmes 4: The Case of the Dancing Men (2023) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:55F012333560900D87C2ED79576145A2567D3D00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Strange Investigations 3: Secrets Can Be Deadly (2023) [En] (1.0) Unofficial [Co
 magnet:?xt=urn:btih:6CEC1D36DD65A228D72FFF00C3DDBFB6C602EF6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Intersection of Worlds: 100 Doors / Перекрёсток миров: 100 �
 ```bash
 magnet:?xt=urn:btih:383E84A647456EDCB628A90A20DFCE368BC71CD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Relicta - основанная на законах физики головоло
 magnet:?xt=urn:btih:252141291A28A21BB9964F8679F09E50B77DF31C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Heretic и Hexen, созданные студией Raven Software на моди
 ```bash
 magnet:?xt=urn:btih:5E45D24E9CD845BE4AD1FAF7167E2E55CDD03A58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Beneath - это шутер на выживание от первого лиц
 magnet:?xt=urn:btih:2973D2BFE736E45DE0A0C760DCF8116D813443F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Silly Polly Beast (2025) [Ru/Multi] (0.97) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:C38DD1272ACEF647D018CBD99DC955D30D072B7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Mari & Bayu: The Road Home – кооперативное 2D-приключен�
 magnet:?xt=urn:btih:141630019555B77A0DC059DD0494D512A1F828D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Riftbreaker™ – это игра на выживание и построй
 ```bash
 magnet:?xt=urn:btih:5C1C74086FDE36B5D23270525EA3AA4CA2379E81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.8.1023.1614/dlc) Repack Wanterlude [Di
 magnet:?xt=urn:btih:D3ED9367D8509F9DBBE4B9582EB735CF0A4C8518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Escape Simulator 2 - это продолжение самого продавае
 ```bash
 magnet:?xt=urn:btih:A8A6066520C93383DA14016E96325E8404B3AF62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Master of Command - это тактическая стратегия в реал
 magnet:?xt=urn:btih:98B0F95CD37A41B6FDD2BFA6E1264B938FAEADDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Ghost of Tsushima (2024) [Ru/Multi] (1053.8.1023.1614/dlc) Repack Let'sРlay [Di
 ```bash
 magnet:?xt=urn:btih:AEABAAED8E8BFA427FD3AB73CAFA1132EDF44160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Hollowbody (2024) [Ru/Multi] (2.1) Repack Let'sРlay
 magnet:?xt=urn:btih:6D3985C8880E4E3C3DC634DF5F24E743A85E73FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Happy Holidays 4: Trick or Treat / Счастливые праздники 4: К
 ```bash
 magnet:?xt=urn:btih:81B9F6690DEB71E64476DF8FF9BBB709A796A424
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Beneath - это шутер на выживание от первого лиц
 magnet:?xt=urn:btih:6594DAFA9F17B945FF6A2181B166451EF56ED5AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ PowerWash Simulator возвращается! Красота в чистоте! 
 ```bash
 magnet:?xt=urn:btih:D63761FE2D6ABD363EEB796232A83D073D259FDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Haven Park (2021) [Ru/Multi] (1.2.1.2) License GOG
 magnet:?xt=urn:btih:1350A8683EEA11EF24504E3BDA724C918B4EB9E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Banner Saga (2014) [Ru/Multi] (2.60.02) License GOG
 ```bash
 magnet:?xt=urn:btih:1DE937C6D3ED595A0B96A5D6128E852E804E6BDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

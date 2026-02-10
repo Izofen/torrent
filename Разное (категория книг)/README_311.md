@@ -1,3 +1,29 @@
+###  Публикация: 942659   (453245) от 01.10.2015
+
+Станислав Махов | Штурмовой бой ГРОМ – система личной безопасности (2014) [FB2]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_453245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Необходимость в безопасности была и есть актуальна во все времена. Человек живёт в условиях, где опасность для него слишком велика, особенно когда инстинкт самосохранения приглушён ложной иллюзией безопасности созданной мифом о цивилизованности общества. Поэтому человек желающий обезопасить себя и своих родных должен владеть навыками штурмового боя ГРОМ, обеспечивающего (   Читать дальше...   )Жанр: Самосовершенствование, спорт, фитнесФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1FE22665A5EC97D6ED10DF9A68E9ECE59A2518D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942643   (453251) от 01.10.2015
 
 Станислав Махов | Штурмовой бой ГРОМ. Методика многофунционального тренинга (2014) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:F563728AF06970C983204A697E49D4B50DB8FB4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:F563728AF06970C983204A697E49D4B50DB8FB4B
 magnet:?xt=urn:btih:70FA0FD8F1E4DA874D7211F45D5066390BA65729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:70FA0FD8F1E4DA874D7211F45D5066390BA65729
 magnet:?xt=urn:btih:2F3040779B5FE71946720886474C3CF4831DA745
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:2F3040779B5FE71946720886474C3CF4831DA745
 magnet:?xt=urn:btih:BEBE6C56019DF75EC4D5839597AAAF4689DA2EB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:BEBE6C56019DF75EC4D5839597AAAF4689DA2EB1
 ```bash
 magnet:?xt=urn:btih:BBE50D0ED8473668970185E937FD2039F440133F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +181,8 @@ magnet:?xt=urn:btih:BBE50D0ED8473668970185E937FD2039F440133F
 magnet:?xt=urn:btih:521010DB3CEBF74FE0F7766C12E416ACCC56417D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:521010DB3CEBF74FE0F7766C12E416ACCC56417D
 ```bash
 magnet:?xt=urn:btih:22171EC6D215D638B5CCEFFC8F2B78D365D13BC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:22171EC6D215D638B5CCEFFC8F2B78D365D13BC2
 ```bash
 magnet:?xt=urn:btih:6B23C8F2ECEADF8D591A3D171116E3389569976B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +262,8 @@ magnet:?xt=urn:btih:6B23C8F2ECEADF8D591A3D171116E3389569976B
 magnet:?xt=urn:btih:FF9BB58FEB206FAC8605396AEEAD07FCFC81FA4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:FF9BB58FEB206FAC8605396AEEAD07FCFC81FA4A
 ```bash
 magnet:?xt=urn:btih:DFF2F78047F519D023A6D6D68D233744A5C9C787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:DFF2F78047F519D023A6D6D68D233744A5C9C787
 ```bash
 magnet:?xt=urn:btih:C57DF3C47CC0D82F55D1F904AF883406ED8BAA68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +343,8 @@ magnet:?xt=urn:btih:C57DF3C47CC0D82F55D1F904AF883406ED8BAA68
 magnet:?xt=urn:btih:7ACD1C4A883F478915C7199FDE817F4ED3ECB812
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +368,8 @@ magnet:?xt=urn:btih:7ACD1C4A883F478915C7199FDE817F4ED3ECB812
 ```bash
 magnet:?xt=urn:btih:237388DC4FBBF2BE62FEF279FD8B39435DF9BB6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:237388DC4FBBF2BE62FEF279FD8B39435DF9BB6A
 magnet:?xt=urn:btih:876926CE60365B7C67FDCE1729451B60B041F8C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:876926CE60365B7C67FDCE1729451B60B041F8C5
 ```bash
 magnet:?xt=urn:btih:A89E5D53CDB0830910C0C0E40E780405B10E5F39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:A89E5D53CDB0830910C0C0E40E780405B10E5F39
 magnet:?xt=urn:btih:DC5A839D36797822563569D19C586E59B52E1E4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:DC5A839D36797822563569D19C586E59B52E1E4B
 ```bash
 magnet:?xt=urn:btih:4605628586487DFCDD69219A7C26C40528DBC95A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +503,8 @@ magnet:?xt=urn:btih:4605628586487DFCDD69219A7C26C40528DBC95A
 magnet:?xt=urn:btih:68854A79123221FB78890FE1FCA1DC0B046721FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +530,8 @@ magnet:?xt=urn:btih:68854A79123221FB78890FE1FCA1DC0B046721FA
 magnet:?xt=urn:btih:7D02D72389ACAA476488001D3620D5E2607D3406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +555,8 @@ magnet:?xt=urn:btih:7D02D72389ACAA476488001D3620D5E2607D3406
 ```bash
 magnet:?xt=urn:btih:11DE3546EADE94183280090B8001815671B63B91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +584,8 @@ magnet:?xt=urn:btih:11DE3546EADE94183280090B8001815671B63B91
 magnet:?xt=urn:btih:3449E6B01474D3E61C3CA8067EBC69EF4331CE40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +610,8 @@ magnet:?xt=urn:btih:3449E6B01474D3E61C3CA8067EBC69EF4331CE40
 magnet:?xt=urn:btih:717C89F49C897F423A16E06E77C77BE09BCA91B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +635,8 @@ magnet:?xt=urn:btih:717C89F49C897F423A16E06E77C77BE09BCA91B1
 ```bash
 magnet:?xt=urn:btih:924F1482F76A88C15404A5318356BDA2F7D73EC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +664,8 @@ magnet:?xt=urn:btih:924F1482F76A88C15404A5318356BDA2F7D73EC0
 magnet:?xt=urn:btih:B60035402DFA1DD4A0E82FDF9052B749A3CBE379
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,29 +692,7 @@ magnet:?xt=urn:btih:B60035402DFA1DD4A0E82FDF9052B749A3CBE379
 magnet:?xt=urn:btih:9F4AF0EC86CE1FC959828FE8C4C249897100731F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161839   (454961) от 03.09.2017
-
-Шио-Мгвимский монастырь (изд.) | Житие преподобного Шио Мгвимского. Служба параклиса молебнаго святому преподобному Шио Мгвимскому (2016) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_454961.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Святой и богоносный отец наш Шио происходил из Сирийской страны, из города Антиохии, который был некогда славен многими великими и святыми мужами. Преподобный родился от благочестивых и богатых родителей, имена которых остались для нас неизвестны. Других детей, кроме сего святого Шио, они не имели. Он был единственным утешением их старости и наследником их огромного (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F291CB864687E6F843C2A9CCFBE71F05420237A0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

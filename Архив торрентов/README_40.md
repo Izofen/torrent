@@ -19,6 +19,8 @@ XMedia Recode - отличная утилита, цель которой - по�
 magnet:?xt=urn:btih:A9637AA6CE3275AE9DF9668B9ECAD4182D67EB27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:3E32C563EF700BC85588A8FAEF90B463B9DAC693
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:32C3B8C7CBBF0733CA893C62E4E2EE13E3ECFFC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Taskito - это приложение для управления задачам
 ```bash
 magnet:?xt=urn:btih:2675397947E75641D87766B3BD671272497FC997
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ IPTV Pro v9.0.16 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:D2C851E7C208F5DD7C33A095CD0A17F2CEC186BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ RUTUBE — официальное приложение одноименной о
 ```bash
 magnet:?xt=urn:btih:592451B66ECFD400F7E246F38D227D9DD2F9992A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:EC89BE338F6167486480A65A7F04F19554BC508B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:EC89BE338F6167486480A65A7F04F19554BC508B
 ```bash
 magnet:?xt=urn:btih:CDD30E1975335EF72AC10B5FB7E4AA35C240B40C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:CDD30E1975335EF72AC10B5FB7E4AA35C240B40C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ Proton VPN — это единственное в мире бесплатное 
 ```bash
 magnet:?xt=urn:btih:C3C41CE025F9917C8C0E47DF3E00D8CA7E836A49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ ByeByeDPI v1.5.3 [Ru/Multi]
 magnet:?xt=urn:btih:98866B541B291B232B77F7ABE116E736FD049354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ MediaHuman YouTube Downloader 3.9.14 (0107) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:5B8538B265EE5CF7EE5CDAF6BA2D73B4F3CF3985
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:5B8538B265EE5CF7EE5CDAF6BA2D73B4F3CF3985
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:5B8538B265EE5CF7EE5CDAF6BA2D73B4F3CF3985
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:5B8538B265EE5CF7EE5CDAF6BA2D73B4F3CF3985
 magnet:?xt=urn:btih:442D89B7A8458B80FE001E0BF39090A8AB5B463F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:442D89B7A8458B80FE001E0BF39090A8AB5B463F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:73B2079B65B380345550971033CAB625A033377D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 magnet:?xt=urn:btih:C821E78ADEFBA9B2FD20B906139C6D19C18D90E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ OsmAnd+ - это приложение с картами всего мира на
 ```bash
 magnet:?xt=urn:btih:5CF4DA46E4492A6F90AB0829867060B9B94D58C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ Wise Care 365 – программный пакет, предназначенн�
 magnet:?xt=urn:btih:E942732C1FBDB01B9761FEC734184051F62ED139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ MediaHuman YouTube Downloader 3.9.14 (0107) RePack (& Portable) by Dodakaedr [Mu
 ```bash
 magnet:?xt=urn:btih:487D8B8F3D6FFE72F677886652953F25259E5100
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ Genius Art: Image AI Generator v1.3.8 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BBE2E84D4774979A7CDE2A5B70A3DF50A4EA4DDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:BBE2E84D4774979A7CDE2A5B70A3DF50A4EA4DDC
 magnet:?xt=urn:btih:52300C3FBE796227BC213993776BD4EB44AE1C61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:52300C3FBE796227BC213993776BD4EB44AE1C61
 ```bash
 magnet:?xt=urn:btih:1198178346B7C777D70D1EED9E529F396DC0056A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ Media Player Classic Home Cinema – удобный во всех планах �
 magnet:?xt=urn:btih:17F94B4268985AD912E5F5812B7E3E83CB177877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:17F94B4268985AD912E5F5812B7E3E83CB177877
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 985330   (935545) от 11.02.2016
+
+VA - Chill And Deep House Music (2016) [MP3|320 кб/с] <Chill, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935545.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aba Abas - Dance with Her Tonight 05:53
+002. Salvatore Stallone - Silvia's Element 09:41
+003. Jon Craig - North 06:57
+004. The Sura Quintet - 2night 05:52(   Читать дальше...   )Жанр: Chill, Deep HouseПродолжительность: 08:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:731257F11490576BF16B971A209DA810AC82C45D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985105   (935556) от 11.02.2016
 
 Фарит Фартовый -Голубоглазая волчица (2016) [MP3|320 кб/с] <Шансон>
@@ -22,6 +51,8 @@
 magnet:?xt=urn:btih:2B6359802AA99FCC51298655ABD938AF36B82026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +76,8 @@ VA - 500 Greatest Albums Of All Time (1950-2003) [MP3|128-320кб/с] <Pop, Rock
 ```bash
 magnet:?xt=urn:btih:7700C3C137A25249CD4E517F36D56A203DD6BE7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +106,8 @@ VA - 100 Hits Of The 70's & 80's & 90's (2020) [MP3|320 Kbps] <Rock, Pop>
 magnet:?xt=urn:btih:8128756D49711DD3BCAB44F58320A199711C8AE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +134,8 @@ VA - не Громкие новинки недели 57 (2020) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:4A3E9057A07A9799909A0050BBDE1D84909A4114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +165,8 @@ VA - Billboard Top 25 Hot Rock Songs (24-01-2015) [MP3|320 кб/с]<Rock, Pop, D
 magnet:?xt=urn:btih:C7B5C7362FA483884355F46D4B46504480541FA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +193,8 @@ VA - UNKNOWN 80'S (PART XII) (2020) [MP3|320 Kbps] <Electronic Pop Rock, Synthpo
 ```bash
 magnet:?xt=urn:btih:0E3D8EDE94912119B83725BD3B9EFCE7A5321398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +223,8 @@ VA - Blues Collection (2016) [MP3|320 кб/с] <Blues, Blues-rock, Jazz>
 magnet:?xt=urn:btih:29662E5CEC3A9BD2FD98E147E3C12A3C5A2A1CAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +251,8 @@ VA - Русская дискотека. Энергия хитов (2016) [MP3|25
 ```bash
 magnet:?xt=urn:btih:56B20DEB2C0E278B097DA1D4B353771142F3A02C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +281,8 @@ VA -Танцевальная Зима 2016 Тор 100 (2016) [MP3|320 кб/с] <
 magnet:?xt=urn:btih:C5C6FAC979149C1FC880A1F225C07BCC4D261437
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +310,8 @@ VA - Каюсь. Сборник хитов русского шансона (2016
 magnet:?xt=urn:btih:C43076EE0D75A0896B6500BF4976DF5EA9D4AA93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +338,8 @@ VA - German dance hits №3 (2016) [MP3|256-320 kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:C4E5A23BF62994A577F3B2A153F07AE24C181F73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +371,8 @@ Hits of My Soul - сборник электронной и инструмент�
 magnet:?xt=urn:btih:2515EDB73E60CF235EC4FC988077DB714D617CFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +399,8 @@ VA - Evolution of Disco - CD2 (1964-2015) [MP3|192-320 кб/с] <Funk,Disco,Hous
 ```bash
 magnet:?xt=urn:btih:13015E19BE7429459EFF76FF6D6C88ABFF54FDA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +429,8 @@ VA - Этапом к северу. Академия хитов шансона (2
 magnet:?xt=urn:btih:75BF289560C5E689C92D0547BF36C01026F90594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +457,8 @@ VA - Wicked Bass: Psychill Dubstep (2016) [MP3|320 кб/с] <Dubstep, Electro, D
 ```bash
 magnet:?xt=urn:btih:E4C011E2B6FE87049659E71DCEAA540E91D98B47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +487,8 @@ VA - After Ultimate Club Anthems (2016) [MP3|320 кб/с] <Club, House, Progress
 magnet:?xt=urn:btih:CBB91FEF0562073AC5330EF1F054DAA67577B3C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +515,8 @@ VA - Miami Dance - Lights Impression (2016) [MP3|212-320 кб/с] <Acid House, H
 ```bash
 magnet:?xt=urn:btih:E1518F3825215807B5D7F1FA792A55100E1C6FE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +545,8 @@ VA - Respect System Groove Dancing (2017) [MP3|251-320 Kbps] <Club, Funky, Elect
 magnet:?xt=urn:btih:49A9A256828E48D850EC6E989288B5A33764A2AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +573,8 @@ VA - The Big Party Omega (2017) [MP3|195-320 Kbps] <Club, Progressive, Vocal, Ha
 ```bash
 magnet:?xt=urn:btih:37D81D5D53AA3C0C6DBB3E1FF4A9591CEF9856C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +603,8 @@ VA - Aboved Singles Reviews (Trance Pack  9 January) (2017) [MP3|320 Kbps] <Tran
 magnet:?xt=urn:btih:CDE30396F9C8C50A745FB4D37F81F60DEB87F177
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +631,8 @@ VA - SuperBomb Club Music Pack 60 (2016) [MP3|320 Kbps] <Progressive House, Big 
 ```bash
 magnet:?xt=urn:btih:46BF6DB08F970A465120FB446B60C16D71C89BCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +661,8 @@ VA - Trance Elegance On This Year 007 (2017) [MP3|320 Kbps] <Trance, Melodic, Up
 magnet:?xt=urn:btih:FCEFFECA011FD716E9AD9F462CD43BC4B1B69D4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +689,8 @@ Donna Summer - Queen of Disco (2020) 2CD Compilation [MP3|320 Kbps] <Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:D7810074557D882617A1C5BD8387D443F21D150D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +719,8 @@ Pat Travers - Travelin' Blues (2020) 2CD Compilation [MP3|320 Kbps] <Blues, Blue
 magnet:?xt=urn:btih:74924FC012B9A4404C3593A0826159AA0E6B8FF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,32 +748,7 @@ VA - 100 Greatest Trance Anthems (2020) [MP3|320 Kbps] <Progressive Trance>
 magnet:?xt=urn:btih:743164582D5E9C7AF67794484DFCF8C70FA83B0E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364242   (937908) от 02.03.2020
-
-VA - Beatport Electro Dance: Pack #18 (2020) [MP3|320 Kbps] <Electro House, Club House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roby Sampler - Xover
-02. Martin Geldres - Rude
-03. Deejavu - Get Lost
-04. The Boedjanx Lapoex - Mortal Chumbut(   Читать дальше...   )Жанр: Electro House, Club House, ProgressiveПродолжительность: 07:22:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E44B0B66F98BB08A35A07B0F0B61B65335C705C4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

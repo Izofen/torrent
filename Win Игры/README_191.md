@@ -19,6 +19,8 @@ Three Kingdoms Story: Conussia - это история о Герое, оказа
 magnet:?xt=urn:btih:7B3BD35D04F251F168554EB162DD680836C01891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Remnant: From the Ashes - шутер на выживание от третьег
 ```bash
 magnet:?xt=urn:btih:B4597ADE67270947AEA3D9E90AEC9EF98578F115
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Phantom Fury (2024) [Ru/Multi] (17276) Scene Tenoke
 magnet:?xt=urn:btih:4C0FADA96D92BC053EF9E26F3B239D9B6CD7918F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Staffer Reborn – здесь вы узнаете о сверхъестеств�
 ```bash
 magnet:?xt=urn:btih:186C92257265EC78F5F6FDAC0F631AE81A6CA9B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Fall of the Dungeon Guardians - Dungeon Crawler RPG с видом от пе�
 magnet:?xt=urn:btih:CCF69E40FE159060603FE82D431EA8AFED88EABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Sand Land (2024) [Multi] (1.0.3/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:5D137846872A9CC1F7ED6F7E5AB0D3130C50BE38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Fallout 4 - это продолжение знаменитой постапок�
 magnet:?xt=urn:btih:4D3DC12C5C57B8A02FD74BA31CB7BF47C3213AB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ SaGa Emerald Beyond - это новейшая отдельная игра в с�
 ```bash
 magnet:?xt=urn:btih:A3379A6070A9F8E3ABC33D7C6A277DDC612EF875
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ ColorBlend FX: Desaturation – сплатианцы будут смешиват
 magnet:?xt=urn:btih:D0983287831D84BD35DF476BB4FB7F4A152415CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Chihiro Himukai Always Walks Away (2021) [Multi] (1.0.1/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:E02363E25735FB9751E55CBE82AF5CC2F62EECD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Sand Land (2024) [Multi] (1.0.3/dlc) Scene FAiRLIGHT [Deluxe Edition]
 magnet:?xt=urn:btih:C0AD49D21378D05C98657A3F2F759BC88326A233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Truck Driver (2021) [Ru/Multi] (1.35.2.32/dlc) Scene DOGE
 ```bash
 magnet:?xt=urn:btih:0BD9F8FAB845F0284E496682BB39782F070142FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Trailmakers (2019) [Ru/Multi] (1.8/dlc) Scene Tenoke
 magnet:?xt=urn:btih:F0624861B5332EEFAE612B50FA994D94B938F9F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Paranormal Files 10: Counterpart / Паранормальные явления 1
 ```bash
 magnet:?xt=urn:btih:FCD46E5C17ADB239B0A524001A6937E184535F6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Cryostasis: Sleep of Reason / Анабиоз: Сон разума (2008) [Ru] (1
 magnet:?xt=urn:btih:7851BC6B2794E72540E5B756B8EFDB639CEC4C4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Tents and Trees (2024) [Ru/Multi] (2404041009) License GOG
 ```bash
 magnet:?xt=urn:btih:AE4FD1002B8A52A9DBC767618088A35C3FDA8AD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Ready, Steady, Ship! - кооперативная игра для дивана, 
 magnet:?xt=urn:btih:CF0A496D58E9D901A3E194DD515C7CA2545B14EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Teenage Mutant Ninja Turtles Arcade: Wrath of the Mutants (2024) [Multi] (1.0) R
 ```bash
 magnet:?xt=urn:btih:A808C7C6EC7688ED03B4DB734DF01532C374F60A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Rise of the Triad - это культовый шутер, созданный н�
 magnet:?xt=urn:btih:D331687EDFAAB78FBDE9E53DAFFC006A8EB7CC6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Diluvian Winds - это оригинальный симулятор с элем�
 ```bash
 magnet:?xt=urn:btih:89ECFFD04C5FD3CD7F626495233AB0649BF78572
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:89ECFFD04C5FD3CD7F626495233AB0649BF78572
 magnet:?xt=urn:btih:4390C3EE2F9AD65F61C5C5D0144C24E2020E3C9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Strayed Lights (2023) [Ru/Multi] (1.4.0) License GOG
 ```bash
 magnet:?xt=urn:btih:E02E59A6D024B562EDBE3C60475F97C09E1917F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Phantom Fury (2024) [Ru/Multi] (17276) Repack FitGirl
 magnet:?xt=urn:btih:A6EC2CFA6A0760CEF7FB8C43909662FC16F8E075
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Gensokyo Odyssey (2024) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F0273A3C6DF7EB017A667C0741B0E33C01CF491E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Royal Order - это вселенная, пропитанная интригам
 magnet:?xt=urn:btih:E404C31787568E0935C5FCD6549AE3E10D24E140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ This is a Ghost (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:331BA7B2B1C3662D5032C8E1889A9673575EF26D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

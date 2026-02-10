@@ -28,6 +28,8 @@ Various Artists - Burlesque Swing [Selected by Bart & Baker] (2011) [FLAC|Lossle
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -58,6 +60,8 @@ Patricia Barber - Companion (1999) [FLAC|Lossless]<Lazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +96,8 @@ Ahead Full Band - Ahead Full (2011) [MP3|~225 кб/с (V1)]<Blues Rock>
 magnet:?xt=urn:btih:3C844408C44ECC710E8D9B42E10782ACC451BE3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +130,8 @@ Belogenis Malaby Dunn Sawyer - Twice Told Tales (2003) [FLAC|Lossless]<Post-Bop,
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +166,8 @@ Battista Lena Trio - Plays (2000) [FLAC|Lossless]<Contemporary Jazz, Modern Jazz
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +200,8 @@ Banda Uniao Black - Banda Uniao Black (2006) [FLAC|Lossless]<Soul, Funk>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +236,8 @@ Blues Blend - One More Turn (2012) [FLAC|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +264,8 @@ Pinetop Perkins - Heaven (2012 Compilation) [FLAC|Lossless]<Blues, Piano Blues, 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +298,8 @@ Vince Esquire - First Offense (2012) [FLAC|Lossless]<Blues Rock>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +334,8 @@ Midnight Serenaders - Hot Lovin' (2011) [FLAC|Lossless]<Swing, Retro Swing, Big 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +368,8 @@ VA - Blues Busters Volume 1 (1993) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:1359D4921750A89097E86839671110847B036B6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +404,8 @@ VA - Blues Busters Volume 2 (1994) [MP3|320 кб/с]<Blues>
 magnet:?xt=urn:btih:AC320A44751BF14C8190892E47D64AF759FF4B22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +438,8 @@ Bemibek - Dziennik Mej Podrozy (1993) [FLAC|Lossless]<Vocal Jazz, Pop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +474,8 @@ Bob Baldwin - Betcha By Golly Wow: The Songs Of Thom Bell (2012) [FLAC|Lossless]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +504,8 @@ John McLaughlin, Al DiMeola, Paco De Lucia - Passion, Grace & Fire (1983) [FLAC|
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +540,8 @@ Chris Botti - Impressions (2012) [FLAC (tracks+cue)|Lossless]<Smooth Jazz, Trump
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +575,8 @@ Charles Brown - Charles Brown (1946) (1997) [FLAC|Lossless]<Vocal Jazz, Piano Bl
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +603,8 @@ Annie Ross - The Best of Annie Ross (2025) Remastered [FLAC 24/44.1|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:1F27889396690415E8BFBCFF61767B3B7FA610C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +633,8 @@ Big Jim Slade - This is Delicious (2008) [FLAC|Lossless]<Blues>
 magnet:?xt=urn:btih:CEAB35F4B732DB2BB9715F2F23C77A8D21C5AF99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +661,8 @@ Fernando Noronha & Black Soul - Ain't No Hiding From The Blues (2025) [FLAC 24/4
 ```bash
 magnet:?xt=urn:btih:1519ADB8B9EAC9A12AB61BE1F0403310C865C087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +691,8 @@ Melani L. Skybell - Through The Years (1998) Self-Released [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:B2070D0DF23D0B23903D32536D3ECE69425B0F5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +720,8 @@ Woody Herman & His Bands - Their Finest Albums (1952 - 1963) 4CD, 2022, Enlighte
 magnet:?xt=urn:btih:B0E5A02499DE2AE3AAF80C290A8A15ABDE546179
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -704,6 +748,8 @@ The Phil Woods Quartet - 'More' Live (1979) 1995, Genes [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:88CB90D2C457F31C9CCBF52383BFBCD87C16CAF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -734,6 +780,8 @@ Gary Moore - After Hours (1992) Japanese Edition, Reissue, 2023, Universal [FLAC
 magnet:?xt=urn:btih:8E048BE309C6CE5BC2EDE7ED5FCC34B8FCC28B42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -761,6 +809,8 @@ The Curse of K.K. Hammond - Death Roll Blues (2023) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:DFBA2979C2E34C21FD245403415648E90575CFE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -787,6 +837,8 @@ Joe Bonamassa - Tales Of Time (2023) Live [FLAC|Lossless|image + .cue] <Blues Ro
 ```bash
 magnet:?xt=urn:btih:85484C9C2BA792367147F0CA4863B1244972EB8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

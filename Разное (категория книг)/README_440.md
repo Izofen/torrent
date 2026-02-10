@@ -1,3 +1,30 @@
+###  Публикация: 1032303   (645842) от 07.07.2016
+
+В.Т. Козак | В лес за грибами (1992) [DJVU]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите иметь на своем домашнем столе различные салаты, икру, наваристые супы, жульены, шашлыки, соки, кисели, компоты, настойки? Идите в лес! Все эти замечательные кушанья из обычных лесных грибов и ягод. Они не только вкусны, но и полезны. Многие из них применяются в народной медицине.
+Книга, предлагаемая вашему вниманию, содержит множество тайн, больших и малых (   Читать дальше...   )Жанр: КулинарияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4312046F3F6C0C946BC78E45BBAD5FE67544D7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032313   (645847) от 07.07.2016
 
 Елена Бойко | Варенья, компоты, джемы (2007) [PDF]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:E11D26B9D6C657F0F33590A0714D80985901F4A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:E11D26B9D6C657F0F33590A0714D80985901F4A9
 ```bash
 magnet:?xt=urn:btih:2E246F1CEBFD23C810597D0EBC2D0F68E18E23B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +101,8 @@ magnet:?xt=urn:btih:2E246F1CEBFD23C810597D0EBC2D0F68E18E23B5
 magnet:?xt=urn:btih:E926637A316385F7E3918D8C920F696F6472039A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +129,8 @@ magnet:?xt=urn:btih:E926637A316385F7E3918D8C920F696F6472039A
 magnet:?xt=urn:btih:74D672DC6F7556C121BC9FF633C5E4B57BBAE0D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +155,8 @@ magnet:?xt=urn:btih:74D672DC6F7556C121BC9FF633C5E4B57BBAE0D2
 ```bash
 magnet:?xt=urn:btih:67E3461E705466A6A915ED3F0C26A9CE063F064D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +185,8 @@ magnet:?xt=urn:btih:67E3461E705466A6A915ED3F0C26A9CE063F064D
 magnet:?xt=urn:btih:D2403B14608AFD15A13B48B1CC245AD5E5690892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +213,8 @@ magnet:?xt=urn:btih:D2403B14608AFD15A13B48B1CC245AD5E5690892
 magnet:?xt=urn:btih:A8FDC888776D5DB0F24C827EBEC524D01666FDDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +238,8 @@ magnet:?xt=urn:btih:A8FDC888776D5DB0F24C827EBEC524D01666FDDB
 ```bash
 magnet:?xt=urn:btih:EA2B0DD5C8E1F289FE18BAA34468C03FF11027A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +269,8 @@ magnet:?xt=urn:btih:EA2B0DD5C8E1F289FE18BAA34468C03FF11027A0
 magnet:?xt=urn:btih:24DC267B945193E42023BC1B2ED2B6F1B10B5B27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +298,8 @@ magnet:?xt=urn:btih:24DC267B945193E42023BC1B2ED2B6F1B10B5B27
 magnet:?xt=urn:btih:5C5F6D4D73A9E3E03C47CFDC00FEE026B5F29EE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +323,8 @@ magnet:?xt=urn:btih:5C5F6D4D73A9E3E03C47CFDC00FEE026B5F29EE0
 ```bash
 magnet:?xt=urn:btih:CD7AC94870E7EA437CA585C2EC71E224CBC7C00C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +352,8 @@ magnet:?xt=urn:btih:CD7AC94870E7EA437CA585C2EC71E224CBC7C00C
 magnet:?xt=urn:btih:0403BE6E9697498011B9C99DE861FE00302EB567
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +379,8 @@ magnet:?xt=urn:btih:0403BE6E9697498011B9C99DE861FE00302EB567
 magnet:?xt=urn:btih:678EA73A3832E82D4465A8CEEB816EAE0108B554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +404,8 @@ magnet:?xt=urn:btih:678EA73A3832E82D4465A8CEEB816EAE0108B554
 ```bash
 magnet:?xt=urn:btih:0FCF69D6EEE8FD18650A56954367ECDED6B0E7CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +434,8 @@ magnet:?xt=urn:btih:0FCF69D6EEE8FD18650A56954367ECDED6B0E7CA
 magnet:?xt=urn:btih:9A1CE60006D0BE06E803C2CD9093A0628B3028BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +459,8 @@ magnet:?xt=urn:btih:9A1CE60006D0BE06E803C2CD9093A0628B3028BA
 ```bash
 magnet:?xt=urn:btih:29BB38A77DE855C9855B1A18E35A6BED7C444C08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ magnet:?xt=urn:btih:29BB38A77DE855C9855B1A18E35A6BED7C444C08
 magnet:?xt=urn:btih:DCC6DBC0D032751C78C8DDB1A541FA29E8D767C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +511,8 @@ magnet:?xt=urn:btih:DCC6DBC0D032751C78C8DDB1A541FA29E8D767C4
 ```bash
 magnet:?xt=urn:btih:00F9F089EE567A725C741F9F95D6AE42AE7A8CCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +538,8 @@ magnet:?xt=urn:btih:00F9F089EE567A725C741F9F95D6AE42AE7A8CCA
 magnet:?xt=urn:btih:C4BD001DCABDF6D7733840F85EE6F4C7728C01FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +563,8 @@ lee | Инструкция к реальности (2015) [PDF, EPUB]
 ```bash
 magnet:?xt=urn:btih:A59144D14AB0E1D5D0BAB44BCEE631391BEABBB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +590,8 @@ magnet:?xt=urn:btih:A59144D14AB0E1D5D0BAB44BCEE631391BEABBB9
 magnet:?xt=urn:btih:71A1135F3C2E27143697421D17FAC0D564151FB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +615,8 @@ magnet:?xt=urn:btih:71A1135F3C2E27143697421D17FAC0D564151FB8
 ```bash
 magnet:?xt=urn:btih:A4E852A23F857C0550957BD9D9D9CB6D214A8952
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +642,8 @@ lee | Как материализовать мысли (2016) [PDF, EPUB]
 magnet:?xt=urn:btih:DC084713C35C3F19BCC5861AA7A77F2F15F63ED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +667,8 @@ lee | Книга вибраций (2016) [PDF, EPUB]
 ```bash
 magnet:?xt=urn:btih:BDE03AC57F19B028B6A84232258F4D39FF95ED3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,29 +694,7 @@ magnet:?xt=urn:btih:BDE03AC57F19B028B6A84232258F4D39FF95ED3A
 magnet:?xt=urn:btih:1A3AF1D377175597838C6BADFEF0C7B3C33E4903
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032259   (647408) от 06.07.2016
-
-Хенрик Фексеус | Игра во власть. Управляйте всем и всеми (2015) [FB2, RTF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_647408.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хенрик Фексеус – знаменитый шведский психолог и специалист по невербальной коммуникации, автор нескольких бестселлеров и авторских методик, ведущий популярного шоу «Расплавленное сознание». В этой книге он раскрывает тайны, которые до сих пор были известны лишь тем, кто достиг вершин власти. Непринужденно и убедительно Хенрик Фексеус объясняет, как достичь желаемого (   Читать дальше...   )Жанр: Практическая психологияФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD1EF6DCDC61454EC32F4A553E422196977A20A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

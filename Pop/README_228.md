@@ -1,3 +1,154 @@
+###  Публикация: 520565   (631435) от 09.07.2012
+
+Medina - Forever (2012) [MP3|320 кб/с]<Pop, Dance, House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever (03:31)
+02. Butterflies (03:41)
+03. Scars (03:39)
+04. Happening 04:03)
+05. Boring (04:02)
+06. Hotels (03:29)
+07. Good To You (04:02)
+08. Close To Nothing 03:52)
+09. Keep Me Hangin' (03:20)
+10. Black Lights(03:45)(   Читать дальше...   )Жанр: Pop, Dance, HouseПродолжительность: 00:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C43FA30E071F123A49EA8528C00891A150E79F7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143998   (631486) от 20.06.2017
+
+VA - Venti Compilation 3 (2014) 2CD, Compilation [FLAC|Lossless|image + .cue] <Italo-Disco, Hi NRG, Synth-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Hooker - Nobody Loves Me (Iventi Remix)
+02. Ken Laszlo - S.O.S.(Vocal Version)
+03. Miko Mission - Universal Feeling (Vocal Mix)
+04. Victor Ark - Coming Back (80s Remix)(   Читать дальше...   )Жанр: Italo-Disco, Hi NRG, Synth-popПродолжительность: 02:25:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFAAE7B626D8A2E7FED32C56918DEB7325BBC235
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143992   (631491) от 20.06.2017
+
+Группа Крестьяне.RU - 2 альбома (1999-2000) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Судьба-разлучница (3:48)
+02. Бывшая любимая (3:52)
+03. Маленькая хулиганка (3:54)
+04. Туман (4:14)(   Читать дальше...   )Жанр: PopПродолжительность: 01:30:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:551EE29E1021A86C21794BF283CC2078A9994654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908744   (631570) от 15.06.2015
+
+Modern Talking - Greatest Hits Mix (1988) [MP3|320 кб/с]<Euro Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mix 1:
+01. Brother Louie
+02. Geronimos Cadillac
+03. You Can Win If You Want(   Читать дальше...   )Жанр: Euro Disco, PopПродолжительность: 00:52:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49ADE29541BE8E72555277DBF455164512980028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143930   (631630) от 20.06.2017
+
+Supersempfft & Roboterwerke - 3 Albums (1979, 1981) LP [MP3|320 Kbps] <Electronic, Space Rock, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_631630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Состав: Dieter Kolb, Franz Aumuller.  Вдохновленные веяниями электронной музыки тех лет (Kraftwerk, Telex..), но не потерявшие своей оригинальной изюминки выпустили в одном и том-же составе предлагаемые три примечательных альбома. Последний вышел под новым названием группы, аналогичному названию их первого альбома - RoboterwerkeСписок альбомов:
+1. Supersempfft - 1979 - Roboterwerke
+2. Supersempfft - 1981 - Metaluna
+3. Roboterwerke - 1981 - Futurist(   Читать дальше...   )Жанр: Electronic, Space Rock, Synth-pop, DiscoПродолжительность: 01:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97AC1DFD37A86C96099618BE2D76E746F48047FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543390   (631835) от 10.04.2022
 
 Виктория Черенцова - Карантин (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -21,6 +172,8 @@
 ```bash
 magnet:?xt=urn:btih:15699D4FE94381D537A176B15C30B724455233F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +202,8 @@ Weyes Blood - Titanic Rising (2019) [FLAC|Lossless|tracks + .cue] <Indie Pop>
 magnet:?xt=urn:btih:83E224C1CE0EC0B086D11B257E393492B0F2485F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +230,8 @@ VA - Ещё одна вечеринка!! (1995) [FLAC|Lossless|image + .cue]<Po
 ```bash
 magnet:?xt=urn:btih:B85882F0058BEC2735DC0C08C8F4D895F1B6A52F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +260,8 @@ magnet:?xt=urn:btih:B85882F0058BEC2735DC0C08C8F4D895F1B6A52F
 magnet:?xt=urn:btih:8DDCEDF5DB75177EC3E92C87BEDFDD6923CDF4FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +289,8 @@ Ladies of Soul - Live at the Ziggo Dome (2018) [MP3|320 Kbps] <Soul, R&B, Pop, D
 magnet:?xt=urn:btih:9CC43C7E6BE665F79ABF8D57947726417019127A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +317,8 @@ Ottawan - серия "Золотые хиты дискотек" (2001) compilati
 ```bash
 magnet:?xt=urn:btih:13D8E02711063C58D58EB5B7FE7A5A9050B732F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +348,8 @@ Philippe Renaux -  продюсер, автор и аранжировщик ра
 magnet:?xt=urn:btih:99B1AA6F259AAD934391846D40E2849339650553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +376,8 @@ Walk Off the Earth - Sing It All Away (2015) [MP3|320 кб/с]<Indie Pop>
 ```bash
 magnet:?xt=urn:btih:A626BE2F5A3D839A981583BD831FBD2224BFDA6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +406,8 @@ Sydne Rome - итальянская актриса и певица. Родила
 magnet:?xt=urn:btih:58384886B9990921DB194DF819BDCC0FD48EA30A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +434,8 @@ Kacey Musgraves - Pageant Material (2015) [MP3|320 кб/с]<Country, Pop, Folk>
 ```bash
 magnet:?xt=urn:btih:C64E832D8D81E51BF7BF641452DE9E98D029F005
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +464,8 @@ Sarah Cracknell - Red Kite (2015) [MP3|320 кб/с]<Indie Pop, Synthpop>
 magnet:?xt=urn:btih:E92E625B51EEF49C83B54F95DE3377374A58ED85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +492,8 @@ Jon Secada – Heart, Soul & A Voice (1994) [APE|Lossless|image + .cue] <RPop Ro
 ```bash
 magnet:?xt=urn:btih:ADF5D7F2B00441E737F7A716692DD23A171BD5F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +528,8 @@ magnet:?xt=urn:btih:ADF5D7F2B00441E737F7A716692DD23A171BD5F6
 magnet:?xt=urn:btih:A3F7319A2D432D8895EFCDC98EF9BE6623B54C3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +562,8 @@ VA - Самые Яркие Звёзды 80-х (2СD) (2012) [MP3|320 кб/с]<Po
 ```bash
 magnet:?xt=urn:btih:92AB99B4DFA21513EAAAD63F2766F11E0F2A0B7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +598,8 @@ Giorgio Moroder & Joe Esposito - Solitary Men (1983) [MP3|320 кб/с]<Pop/Elect
 magnet:?xt=urn:btih:CE1B6BD1A5B89EE821D14C016E40B35144756516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +627,8 @@ magnet:?xt=urn:btih:CE1B6BD1A5B89EE821D14C016E40B35144756516
 magnet:?xt=urn:btih:2396E0862E28958B53A2221BD3C4B0DC276F210B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +655,8 @@ magnet:?xt=urn:btih:2396E0862E28958B53A2221BD3C4B0DC276F210B
 ```bash
 magnet:?xt=urn:btih:A0446FBCE4EAC727CDFC394D64C2AC7848ACC737
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +691,8 @@ Duran Duran - A Diamond in the Mind, Duran Duran – A Performance – 2011 (201
 magnet:?xt=urn:btih:37C0494C2833C7BD0AE3AE4697A601C8D1D6B3DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +719,8 @@ Patty Ryan - Golden Disco Hits (2001) [FLAC|Lossless|tracks + .cue] <Euro-Disco>
 ```bash
 magnet:?xt=urn:btih:F6175A5487D665057AC8A6F9CBF36F6E691B2F1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +749,8 @@ CD 01:
 magnet:?xt=urn:btih:FEFF59A000C444EA1AFE37947D63089A821D8C05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,142 +778,7 @@ Marie Fredriksson - I En Tid Som Var (1996) [FLAC|image + .cue]<Pop, Pop-Rock>
 magnet:?xt=urn:btih:CD1CACEA25C15A85E7BAFCF179380A4E5BCF4978
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034468   (634224) от 13.07.2016
-
-Pino D'Angio - 7 Albums (1981-1991) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящее имя артиста - Giuseppe Chierchia, он родился в небольшом городке Pompei на юге Италии 14 августа 1952 года.
-Первый успех пришел к нему в 1980 году после записи сингла "Ma Quale Idea", годом позже вышел первый альбом исполнителя, продажи которого превысили миллион экземпляров.
-Последующие альбомы Pino D'angio имели гораздо меньший успех. Возможно, (   Читать дальше...   )Список альбомов:
-1981 - ...Balla!
-1982 - Ti regalo della musica
-1983 - Una notte maledetta(   Читать дальше...   )Жанр: Electronic, Disco, Funk-SoulПродолжительность: 04:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A963B3A585FAD9B518B00FEBAF99A17AF04E3AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143655   (634661) от 18.06.2017
-
-Modern Talking - Back For Gold (The New Version) (2017) [MP3|320 Kbps] <Eurodance, Euro-Disco, Europop>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Brother Louie (New Version 2017)  3:21
-02.  You're My Heart You're My Soul (New Version 2017)  3:33
-03.  Cheri Cheri Lady (New Version 2017)  3:41
-04.  You Can Win If You Want (New Version 2017)  3:26(   Читать дальше...   )Жанр: Eurodance, Euro-Disco, EuropopПродолжительность: 01:13:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58CDAE6D1B73D5B97E45663A5CEBF0BF466612E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143492   (634843) от 18.06.2017
-
-VA - Die Hit Giganten Best Of 90's Dance (2017) 3CD [MP3|320 Kbps] <Eurodance, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dr. Alban - It's My Life  4:01
-02.  Snap! - Rhythm Is A Dancer  3:42
-03.  Culture Beat - Mr. Vain  4:18
-04.  Eiffel 65 - Blue (Da Ba Dee)  3:40(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 03:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73F8E975A2450A22168B0436C0FB49DCAC8E7EB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143566   (634846) от 18.06.2017
-
-Николай Караченцов - Лучшее и Неизданное (2014) 2CD [MP3|320 Kbps] <Советская эстрада>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кленовый лист (М.Дунаевский - Л.Дербенев), из т/ф «Маленькое одолжение» 1984
-02. Что тебе подарить? (Р.Майоров - С.Алиханов, А.Жигарев), дуэт с Ириной Уваровой 1984
-03. Серенада Рикардо (Г.Гладков - М.Донской), из т/ф «Собака на сене» 1977
-04. Ты меня на рассвете разбудишь... (А.Рыбников - А.Вознесенский), из рок-оперы «Юнона и Авось» 2002(   Читать дальше...   )Жанр: Советская эстрадаПродолжительность: 02:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:000459014007EF9334AA02D1070A379A6BD619DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143549   (634971) от 18.06.2017
-
-Алла Йошпе и Стахан Рахимов - Лучшие песни (2009) [MP3|320 Kbps] <Ретро,Советская эстрада>
-
->>Pop
->>Советская эстрада, Ретро
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_634971.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Поговорим, родные, по душам (4:05)
-2. Алеша (3:45)
-3. Опять война (3:41)
-4. Осенние колокола (4:50)(   Читать дальше...   )Жанр: Ретро,Советская эстрадаПродолжительность: 01:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1BC500D8F935EF778AB7A1838295478019B2772
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Blue Tribe - Deep Sentiment (2006-2011) (6 альбомов) [MP3|320 кб/с] <
 magnet:?xt=urn:btih:2BE566EB8E1827EF4B94C81E55BAD2E92DA64FB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Eloy Fritsch (ex.Apocalypse) - 8 альбомов (1997 - 2012)[FLAC|Lossless|im
 magnet:?xt=urn:btih:65FAC25CB0FBA3C1B1E41166D80A4028B131BA74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ Llewellyn - Native American Gold (2016) [MP3|320 кб/с] <New age, Relax, Medit
 ```bash
 magnet:?xt=urn:btih:C58D7E760473D25C2AE0E56B8A18AEDE8DB3513B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ VA - Fitness Latino Party Vol. 2, 3CD (2018) [MP3|320 Kbps] <Reggaeton, Zumba, M
 magnet:?xt=urn:btih:721C3E354321A56B7C6E4EB4CA57D65364EB4B5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ Blue Tribe - Deep Spirit (2006-2012) 3CD [MP3|320 кб/с] <Native American, Eni
 ```bash
 magnet:?xt=urn:btih:C2EC2F3782050A5F31C165482BA0C2232164A41B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +165,8 @@ Spirit Nation - 2 альбома (1998-2006) [MP3|320 кб/с] <Native American,
 magnet:?xt=urn:btih:B54CB00E4B6CB9E8B0E1AA1472D12F27DDF46F04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ Liquid Mind - XI: Deep Sleep (2016) [FLAC|Lossless|tracks] <New-age, Ambient, Re
 ```bash
 magnet:?xt=urn:btih:5858F5D834E4F7FC2A88886BF1F5784A1D285027
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ Robin Spielberg - Another Time, Another Place (2015) [FLAC|Lossless|tracks] <New
 magnet:?xt=urn:btih:C8F20145F4C945A012E890EAECD8FC8820FCFB14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ Jonn Serrie - Flightpath (1989) Reissue, 1995, Miramar, BMG [MP3|320 кб/с] <A
 ```bash
 magnet:?xt=urn:btih:C73CE757D09D2F8CCAF605AEBDA548B76027877C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +281,8 @@ Jed Kurzel - Alien: Covenant / Чужой: Завет (Original Motion Picture S
 magnet:?xt=urn:btih:0413B49AC1FE70E8B02298BACE17326B1D05F8C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ VA - 50 Vinyasa Chill Yoga: Healing & Relaxing Yoga Exercises (2017) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:4514D4B8632D8C5E2801D8D0ECC9A672196837BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +339,8 @@ Jim Beckwith and Hans Christian - Be Love (2017) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:90824202E9EDD076ACCBA249B2464D5064726E4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ VA - Die Hit-Giganten: Best Of One Hit Wonder (2013) [FLAC|Lossless]<Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:6B8D26B15CDAB9E81FC2F288BFE248B56241FB0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +397,8 @@ CD1
 magnet:?xt=urn:btih:C4060A685E62962053581E2A39A4F21A76A049D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ Jim Brickman - Soothe, Vol. 4: Subzero - Sounds That Spark the Senses (2018) [FL
 ```bash
 magnet:?xt=urn:btih:D27825A2BF16276605F24D51FF5D2AD0CC908646
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ magnet:?xt=urn:btih:D27825A2BF16276605F24D51FF5D2AD0CC908646
 magnet:?xt=urn:btih:A826178750883806A742D16CFA7CCAA7A491A8F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ Toby Keith - How Do You Like Me Now?! (1999) [FLAC|Lossless|tracks + .cue] <Folk
 ```bash
 magnet:?xt=urn:btih:C609A47F216293D0BFB79E46304B942B6A66BD9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ Toby Keith - Greatest Hits 2 (2004) [FLAC|Lossless|tracks + .cue] <Folk, Country
 magnet:?xt=urn:btih:963D425B830B635F8A6840EE38BF9A0B2FF328EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ Toby Keith - Greatest Hits Volume One (1998) [FLAC|Lossless|tracks + .cue] <Folk
 ```bash
 magnet:?xt=urn:btih:9AD87F7878A3A3264DDD51D65BDCBD45E2D09E83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +571,8 @@ Toby Keith - Pull My Chain (2001) [FLAC|Lossless|tracks + .cue] <Folk, Country>
 magnet:?xt=urn:btih:66909DEEA2AD6F9A5C75D21B57758DAFAD3A2C05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ Vince Gill - Pocket Full Of Gold (1991) [FLAC|Lossless|tracks + .cue] <Folk, Wor
 magnet:?xt=urn:btih:6608F27F61546E2142399D121DFEFEB87B340902
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ Ajeet Kaur - Shuniya: Healing Chants (2018) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:C43E63EB07CC0685BF251C89B5620378DC7880D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +657,8 @@ VA - Pure... Country (2010) Box Set, 4 CD [FLAC|Lossless]<Country>
 magnet:?xt=urn:btih:E360BB6FC01B37FA69994FEC54217B0C35AD6551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +685,8 @@ Kitaro - Sacred Journey of Ku-Kai, Volume 5 (2017) [FLAC|Lossless|WEB-DL|tracks 
 ```bash
 magnet:?xt=urn:btih:9ED82BC411E27F4DA7446A4BA802AFAD68976260
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +715,8 @@ VA - Your Own Personal Buddha: Cafe Ethnic Lounge (2017) [MP3|320 Kbps] <New Age
 magnet:?xt=urn:btih:F85175B6874E57853AD25468FA5BD29CBA04400D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ Glenn Morrison - How We Are (Motion Picture Soundtrack) (2017) [MP3|320 Kbps] <S
 ```bash
 magnet:?xt=urn:btih:BC905047673007078EB4C748E4B2AE256A878873
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

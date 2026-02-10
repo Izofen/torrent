@@ -19,6 +19,8 @@ SpaceBourne II (2) (2023) [Multi] (5.2.4) License GOG [Early Access]
 magnet:?xt=urn:btih:867092ED0D5FE10CC4F5965106BBEE935C32A60B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:867092ED0D5FE10CC4F5965106BBEE935C32A60B
 ```bash
 magnet:?xt=urn:btih:990EACE3E2C2908785E775FB4282771B4888FEFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:990EACE3E2C2908785E775FB4282771B4888FEFD
 magnet:?xt=urn:btih:65767B347E73E319DC4BCA0DB3780564960B4C6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ The Sims Legacy Collection (2025) [Ru/En] (1.0.0.139/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:B01D9E0216CB2729EB3A06F79BC8DF1264D08685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Myst (2021) [Ru/Multi] (3.0.1) Repack seleZen [VR]
 magnet:?xt=urn:btih:6A7C510F9ED14D3DB97A140CBA49B45E08B824FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Have a N.I.C.E day! (1997) [Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:D2E0B50DEEA354E02AFDE212709B660C810A6C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:D2E0B50DEEA354E02AFDE212709B660C810A6C41
 magnet:?xt=urn:btih:186B0A5F66753701749538D8A1889946FA99D3DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:186B0A5F66753701749538D8A1889946FA99D3DB
 ```bash
 magnet:?xt=urn:btih:D42E0239ECB4A8D17092EA5A7DB1D14A474F47EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:D42E0239ECB4A8D17092EA5A7DB1D14A474F47EA
 magnet:?xt=urn:btih:D34DD280C209ED4DEA8E0C2F5D9C7FF0EC3036E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:D34DD280C209ED4DEA8E0C2F5D9C7FF0EC3036E3
 ```bash
 magnet:?xt=urn:btih:BFBA11F0B56D368D2C0FDF2FBAE20F7D7C92344B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:BFBA11F0B56D368D2C0FDF2FBAE20F7D7C92344B
 magnet:?xt=urn:btih:B890FB52F5EF1FB6D78B638E7A2FED02F230614D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:B890FB52F5EF1FB6D78B638E7A2FED02F230614D
 ```bash
 magnet:?xt=urn:btih:8CE8C14133B53CF8757A95248F47DB05FC18E6CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:8CE8C14133B53CF8757A95248F47DB05FC18E6CC
 magnet:?xt=urn:btih:812AEBACAC3C190EF48DCA38CFCAA5E0DB935921
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ GIMP — это редактор, позволяющий работать со �
 ```bash
 magnet:?xt=urn:btih:7BC1E2A791A58692B94DCAD64970D79CA792B986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:7BC1E2A791A58692B94DCAD64970D79CA792B986
 magnet:?xt=urn:btih:78BB774E5A664DC0C6F94291F30C4E7E9222A6DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:78BB774E5A664DC0C6F94291F30C4E7E9222A6DD
 ```bash
 magnet:?xt=urn:btih:AFA844682BC8F3EB449B8E4F3C2AD3B30814729F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:AFA844682BC8F3EB449B8E4F3C2AD3B30814729F
 magnet:?xt=urn:btih:A271990D6FEE454CCE0E55FA19FC82D38ED3634F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:A271990D6FEE454CCE0E55FA19FC82D38ED3634F
 ```bash
 magnet:?xt=urn:btih:2FAEE8E8BFA2EEBD774A766FB1D67CB09DD78B99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Electrical Calculations Pro / Электрические расчеты v10.3.1 
 magnet:?xt=urn:btih:6E5C3FB10D6D1ED2E72EBD2C1381EC6483D19D2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 ```bash
 magnet:?xt=urn:btih:A6D68CDD2B0928CA378EE4A7956F3463DF8B77B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ AirBrush: ИИ Фоторедактор v7.6.0 Mod by PieMods [Ru/Multi]
 magnet:?xt=urn:btih:1AD67F2845824828D3E6E7CAA67A1021E6D43A6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Balabolka 2.15.0.890 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FCD248121B56822982033F1F2E989B2E7D391184
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ VA - Musical kaleidoscope part 34 Easy listening (2025) [MP3|320 Kbps] <Electron
 magnet:?xt=urn:btih:3196D8DBA206382E8D7A72E7B578498C4A57D557
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 ```bash
 magnet:?xt=urn:btih:295A7FE2F3E575F750C97EC688C786F76FBEF20C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Rush - Rush 50 (2025) Anniversary Super Deluxe [MP3|320 Kbps] <Progressive Rock,
 magnet:?xt=urn:btih:C8014F9A89365630C718D48DCF0C564C23188921
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Leningrad Nights - Collection (2024) [MP3|320 Kbps] <Disco, Pop>
 ```bash
 magnet:?xt=urn:btih:A969843ED3284628AFA93EE35C3B03B52FFC94A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

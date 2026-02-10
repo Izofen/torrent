@@ -1,3 +1,29 @@
+###  Публикация: 1452472   (1027734) от 06.03.2021
+
+Нокс Атакама / Nox Atacama (2017-2020) WEBRip [H.264/2160p] (3 фильма)
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1027734.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пустыне Атакама самые тёмные и чистые небеса в мире. Вид на ночное небо с бесчисленным количеством звёзд и фантастических туманностей в одном из самых тихих и пустых мест на Земле.Производство: ЧилиЖанр: Документальный, видовойРежиссер: Мартин ХекПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: серии x ~00:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B0741C46F8CDF583B1EA3A53A22788A1A8047EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452482   (1027737) от 06.03.2021
 
 Генезис / Genesis (2020) WEBRip [H.264/2160p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:EFBA6466BAF085C9D520D03D70116EA1D1CD8837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:EFBA6466BAF085C9D520D03D70116EA1D1CD8837
 magnet:?xt=urn:btih:6F279CE8C039FB2CCAAADCA7F29AC8933B0EC94E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:6F279CE8C039FB2CCAAADCA7F29AC8933B0EC94E
 ```bash
 magnet:?xt=urn:btih:3AD0B251C5614DFF6520B150A0F5E9D3EA57E3DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:3AD0B251C5614DFF6520B150A0F5E9D3EA57E3DA
 magnet:?xt=urn:btih:50F47206FEDD4E03FD59FA462A6C85F614F049AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:50F47206FEDD4E03FD59FA462A6C85F614F049AF
 ```bash
 magnet:?xt=urn:btih:A1242647689274F6A2A129F4C5502D4775B99E85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:A1242647689274F6A2A129F4C5502D4775B99E85
 magnet:?xt=urn:btih:1562A9403A2ED987543B4CB094DFBA606C7FE392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:1562A9403A2ED987543B4CB094DFBA606C7FE392
 ```bash
 magnet:?xt=urn:btih:4626738ECE3E9D3B6BBF05ADE6B9DA0A27219027
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:4626738ECE3E9D3B6BBF05ADE6B9DA0A27219027
 magnet:?xt=urn:btih:BEED00AF833582E6B1E422538DE7A2455B3A2323
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:BEED00AF833582E6B1E422538DE7A2455B3A2323
 ```bash
 magnet:?xt=urn:btih:CACCBC82E538A9A3AAF9EA16DCB98C3B7E1273BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:CACCBC82E538A9A3AAF9EA16DCB98C3B7E1273BF
 magnet:?xt=urn:btih:8593A89FBB3873763FF4E7E0641122B0D6FF96BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:8593A89FBB3873763FF4E7E0641122B0D6FF96BE
 ```bash
 magnet:?xt=urn:btih:786636F1F1DC89DAAF7C1D2A46BF0C7C7CFAB0DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:786636F1F1DC89DAAF7C1D2A46BF0C7C7CFAB0DF
 magnet:?xt=urn:btih:4429ABEDC676A7B4881FD9AAEBB66CB7917B4F28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:4429ABEDC676A7B4881FD9AAEBB66CB7917B4F28
 ```bash
 magnet:?xt=urn:btih:32AFB42BC08D416323E3126CB23237A6B8E362F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:32AFB42BC08D416323E3126CB23237A6B8E362F5
 magnet:?xt=urn:btih:1D0C0850B5B17C8810943FA39D1323FDA26E0D61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ BBC. Реактивные двигатели холодной войны / Cold 
 ```bash
 magnet:?xt=urn:btih:B50883D47149AF1376D088D4B1E58955B41C2364
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:B50883D47149AF1376D088D4B1E58955B41C2364
 magnet:?xt=urn:btih:912CD9EBE588D23CECE346CCF0D14063121692DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +460,8 @@ magnet:?xt=urn:btih:912CD9EBE588D23CECE346CCF0D14063121692DD
 ```bash
 magnet:?xt=urn:btih:71B6494E3CBE7BCD49BD9618B1C363251DC2B839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:71B6494E3CBE7BCD49BD9618B1C363251DC2B839
 magnet:?xt=urn:btih:5C0AFF573FB30E66035C4D68C46B242A00F49E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +512,8 @@ magnet:?xt=urn:btih:5C0AFF573FB30E66035C4D68C46B242A00F49E46
 ```bash
 magnet:?xt=urn:btih:AB42A5D114B4AE20F905A0D49DA73C02E74D077A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:AB42A5D114B4AE20F905A0D49DA73C02E74D077A
 magnet:?xt=urn:btih:A79533671D647D65B0701749FCD6D4FA62C133DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +564,8 @@ magnet:?xt=urn:btih:A79533671D647D65B0701749FCD6D4FA62C133DD
 ```bash
 magnet:?xt=urn:btih:F2DF4B9A06ECA1CE5229F783AD7666E6AABF69B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:F2DF4B9A06ECA1CE5229F783AD7666E6AABF69B7
 magnet:?xt=urn:btih:EAF925D67E3A23D57295C14759B9CB830C4EDA2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +616,8 @@ magnet:?xt=urn:btih:EAF925D67E3A23D57295C14759B9CB830C4EDA2E
 ```bash
 magnet:?xt=urn:btih:4875467829EB9B0C3348A644227440753B515985
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +643,8 @@ magnet:?xt=urn:btih:4875467829EB9B0C3348A644227440753B515985
 magnet:?xt=urn:btih:C86F60B5A2B6FD866B63519B857F4D162C0EF1AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,29 +669,7 @@ magnet:?xt=urn:btih:C86F60B5A2B6FD866B63519B857F4D162C0EF1AD
 magnet:?xt=urn:btih:A17601C994DDC843DEDC426F639B5D93DEB1F4B8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451800   (1028061) от 04.03.2021
-
-Земля, изваянная ветрами / Tuulte tahutud maa (2018) HDTVRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1028061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Великолепный фильм Йоозепа Матьюса о дикой природе Эстонии, завораживающий потрясающей красотой пейзажей, съемками диких животных и стай перелетных птиц.Производство: Эстония, WildKinoЖанр: Документальный, природа, флора, фаунаРежиссер: Йоозеп МатьюсПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 01:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F5188248F41D5BD693FECDB430D878328E65E5C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

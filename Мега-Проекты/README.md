@@ -20,6 +20,8 @@ NG: Суперсооружения древности / Ancient Megastructures (
 magnet:?xt=urn:btih:88A7EC6667E4451EEFCE409E0DACEC64723D3480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ NG: Суперсооружения: Мегазаводы. Суперавтомо
 ```bash
 magnet:?xt=urn:btih:004211061CE72CBA8F5D932FF11188F438A947EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:004211061CE72CBA8F5D932FF11188F438A947EB
 magnet:?xt=urn:btih:E4C56D15DEEAFA869AA64E45F06BD4A6D64A90C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ NG: Суперсооружения: Саграда Фамилья / Megastructur
 ```bash
 magnet:?xt=urn:btih:7CF495BAA2C59F0F26B61E46E8B569A65A153B58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:7CF495BAA2C59F0F26B61E46E8B569A65A153B58
 magnet:?xt=urn:btih:020BA7A714447A33AFD7A5B5E7DBE0525B327DBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ NG: Суперсооружения. Корейская Супермагистр�
 ```bash
 magnet:?xt=urn:btih:0FE0C6F7F74F61E27923123E7B9B559362AB1BB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Discovery. Суперфабрики любимая еда / Super Factories Food
 magnet:?xt=urn:btih:39BC177144B21D53E865ACA1997C28E734A3FD67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ NG: Суперсооружения: Мегакорабли. Крупнейший
 ```bash
 magnet:?xt=urn:btih:F326E422B27F8E6C661D454A1DE4A9E539478E6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ NG: Суперсооружения: Мегазаводы. Суперавтомо
 magnet:?xt=urn:btih:61F6ADCADEEC3BDBF28AFE4A980F1E2091C93ED6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:61F6ADCADEEC3BDBF28AFE4A980F1E2091C93ED6
 ```bash
 magnet:?xt=urn:btih:A0F5D36B1EED9F59E2E2D0D886D81D9FC97769B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:A0F5D36B1EED9F59E2E2D0D886D81D9FC97769B8
 magnet:?xt=urn:btih:6D65DB0638ACCE434BE55FBC248AD0AC377106FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ NG: Строительство тоннеля / Building the Channel Tunnel (201
 ```bash
 magnet:?xt=urn:btih:359D79897BCBBB5281C01F0F80AD928C708A8782
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:359D79897BCBBB5281C01F0F80AD928C708A8782
 magnet:?xt=urn:btih:681614B8521D91A8D5A36E3A8121F896862B4C25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ NG: Суперсооружения: Мегазаводы. Грузовики М�
 ```bash
 magnet:?xt=urn:btih:0A0A797E2CDF1D46765DDA072C5FE22A091CFCEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Bacardi Limited — крупная компания, базирующаяся н
 magnet:?xt=urn:btih:0EFBC790031E1F0B313EDC6979A3A0D56B88F349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ MV Agusta – производитель мотоциклов, располож�
 ```bash
 magnet:?xt=urn:btih:E84337DD354FA4F45F7BABEF409A1D6F909BE3A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ NG: Суперсооружения: Мегазаводы. Мак-Трак / Mega
 magnet:?xt=urn:btih:F7BB2DFF1ECB26D18BB7904CC4C00D6DD4CDB54E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:F7BB2DFF1ECB26D18BB7904CC4C00D6DD4CDB54E
 ```bash
 magnet:?xt=urn:btih:3841BF0341BD5EA5CD1F76D21B47169354F9B5FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 magnet:?xt=urn:btih:1550B174D0230502CDF2A72F21316C8087D9B190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Discovery: Самые крепкие инструменты / World's Toughest T
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ NG. Суперсооружения. Мегазаводы. Экстремальн
 magnet:?xt=urn:btih:8DD784B94678224DE0BAE6E78FF39B3CC0842B63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 ```bash
 magnet:?xt=urn:btih:E616A867911F84D094E21D999EFF72B8C962BF93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Discovery: Самые крепкие инструменты / World's Toughest T
 magnet:?xt=urn:btih:E3A0838FC411DB1BBD53D2C2F1A1FAB8B33E996E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ NG. Мегазаводы: Wargaming / Ultimate Factories: Wargaming (2013) HDTVR
 ```bash
 magnet:?xt=urn:btih:3EA078F6C5A8AC9E63825656D58E3DAF0D67B7B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Porsche 991 — внутреннее обозначение для седьмо�
 magnet:?xt=urn:btih:D74411F43B18B58118DDFD7A612235C7AF3B4CCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ NG. Суперсооружения. Мегазаводы. Суперавтомо
 ```bash
 magnet:?xt=urn:btih:0FEF28F1C3AE8931A10518B45D50047BF37306A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

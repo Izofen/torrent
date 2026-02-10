@@ -19,6 +19,8 @@ Nat Geo Wild: Пауки - Самураи / Samurai Spiders (2004) SATRip
 magnet:?xt=urn:btih:AF234C0352C49FA5FA13ECC4BD1D1671A34FC48C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Wave In Head - Remixed (2012) [MP3|192-320 кб/с]<Synthpop>
 magnet:?xt=urn:btih:8416D48714A3FA6C087CBE455C8C4EF777DCBADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Yesterday Live - это наш шутливый ответ америкнско�
 ```bash
 magnet:?xt=urn:btih:8D8B5292B863CC3B304AF8AEF4C495862064D585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +109,8 @@ magnet:?xt=urn:btih:8D8B5292B863CC3B304AF8AEF4C495862064D585
 magnet:?xt=urn:btih:5F8854C6A3BF344E43CF49657369576CE0F6F8B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ foobar2000 - аудиоплеер, основные черты которого 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +170,8 @@ VA - Deep House Party (2012) [MP3|320 кб/с]<Deep House>
 magnet:?xt=urn:btih:5A200158A815C082CE8E1051C220845BF1308609
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +204,8 @@ magnet:?xt=urn:btih:5A200158A815C082CE8E1051C220845BF1308609
 ```bash
 magnet:?xt=urn:btih:501E7A10E6638A65F10D4B9D262D1DFF0D1CDEA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +240,8 @@ VA - Shanti Jatra II-Shamans And Healers (2012) [MP3|~262 кб/с (V0)]<Psychede
 magnet:?xt=urn:btih:BDD3DBF6547BCB7055A7D1197CD08BB63E7EE702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +265,8 @@ magnet:?xt=urn:btih:BDD3DBF6547BCB7055A7D1197CD08BB63E7EE702
 ```bash
 magnet:?xt=urn:btih:92119AD91EEDBAB1B7EAC1BD9615416A2FCC94FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +301,8 @@ VA - Sense Of Trance #29 (09.05.2012) [MP3|320 кб/с]<Uplifting Trance, Trance
 magnet:?xt=urn:btih:7FEE488EF23AED1680663665E9FFC4C56329106E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +326,8 @@ magnet:?xt=urn:btih:7FEE488EF23AED1680663665E9FFC4C56329106E
 ```bash
 magnet:?xt=urn:btih:C36F88CCAD6FAA3D4756C99E6E597FF0341452FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +360,8 @@ VA - Brain Killer 24 Hard Invasion (2011) [MP3|311-320 кб/с]<Electro,Electro 
 ```bash
 magnet:?xt=urn:btih:1E09D652542DDC964502D3C3FC4D6DA6D1711C01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +396,8 @@ VA - Vocal Trance Volume 26 (08.04.2012) [MP3|320 кб/с]<Vocal Trance>
 magnet:?xt=urn:btih:8227D54E5FBDF9C78D0376C0C7F992F177A8305A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +425,8 @@ magnet:?xt=urn:btih:8227D54E5FBDF9C78D0376C0C7F992F177A8305A
 ```bash
 magnet:?xt=urn:btih:BC6EF12A0B2172495ADEB01E8193DBA476B61F14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +460,8 @@ VA - Synth Radio Russians Vol.1 (2010) [MP3|320 кб/с]<Synthpop, Futurepop, El
 magnet:?xt=urn:btih:CAF5335CAD9C832A8975B8F11ADF45C74763F9AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +486,8 @@ magnet:?xt=urn:btih:CAF5335CAD9C832A8975B8F11ADF45C74763F9AA
 magnet:?xt=urn:btih:3B7121D4F3C780B698C1B43C090593C82B9B0BAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +511,8 @@ magnet:?xt=urn:btih:3B7121D4F3C780B698C1B43C090593C82B9B0BAB
 ```bash
 magnet:?xt=urn:btih:92D3F004C77F8D67F42574D028601C1ABD2C3329
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +547,8 @@ VA - Vocal Trance Volume 27 (18.04.2012) [MP3|320 кб/с]<Vocal Trance>
 magnet:?xt=urn:btih:9C1BB873E889ED0680860FD47955071BC581331C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +572,8 @@ magnet:?xt=urn:btih:9C1BB873E889ED0680860FD47955071BC581331C
 ```bash
 magnet:?xt=urn:btih:15FEA8D4616C4BCA1BC6F1C5223C838972B8F4B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +599,8 @@ magnet:?xt=urn:btih:15FEA8D4616C4BCA1BC6F1C5223C838972B8F4B7
 magnet:?xt=urn:btih:38669B465A7BB703CC33D4DB8462F2DF9B0A5CBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +624,8 @@ magnet:?xt=urn:btih:38669B465A7BB703CC33D4DB8462F2DF9B0A5CBF
 ```bash
 magnet:?xt=urn:btih:E2CE28B31B5BF691E465AC8E23CAEE228B19AD6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +653,8 @@ magnet:?xt=urn:btih:E2CE28B31B5BF691E465AC8E23CAEE228B19AD6C
 magnet:?xt=urn:btih:241ACBE5CE68804B78C7CC2E7E2748C69DDB0B53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +681,8 @@ magnet:?xt=urn:btih:241ACBE5CE68804B78C7CC2E7E2748C69DDB0B53
 ```bash
 magnet:?xt=urn:btih:EEE2DB638160D718E5FB4E2529A47C8C4CAD7BAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +714,8 @@ VA - Happy House (Special Speed Garage) (1998)Год: 1998  |  Лейбл: Feel 
 magnet:?xt=urn:btih:3CD89E992DC5266BC403B759DF8A33B6281FAA46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +743,8 @@ Madness - The Business (The Definitive Singles Collection) (1993) [FLAC|Lossless
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -718,6 +768,8 @@ Madness - The Business (The Definitive Singles Collection) (1993) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:BF9444C2F298D6B300CEF45DDA5D2DCEF61CAFB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

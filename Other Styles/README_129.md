@@ -22,6 +22,8 @@ Julia Kent - Temporal (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Classic
 magnet:?xt=urn:btih:7F8A49DA98E482CBFD0859F9879444B5A65B75FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ The Shadows - The Best Of The Shadows (1999) Unofficial Release [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:ABE60287C4E440B65FFFB29D26E80B1F9DE75BD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Really Slow Motion - Miraculum (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 magnet:?xt=urn:btih:A7CB0DDFDA3391577FF3D201D9EC3BF6D40C800F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Atom Music Audio - EON (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orc
 ```bash
 magnet:?xt=urn:btih:3F8C9F7B278BF9B9B8CFFBA7EC6A30FA2684A565
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Atom Music Audio - Vortex (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 magnet:?xt=urn:btih:CC0C7C4E896D58F9D3BF4B6015463AF86D86E7F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - The Fate of the Furious / Форсаж 8 (The Album) (2017) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:208FB825F5C00E334256B41DC93FDC1435C30043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - The Fate of the Furious / Форсаж 8 (The Album) (2017) [FLAC|Lossless|
 magnet:?xt=urn:btih:907020AECF82FCB1184DA0D968CE46F776DC0065
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ bethel music - starlight (live) (2017) [MP3|320 Kbps] <Christians, worship>
 ```bash
 magnet:?xt=urn:btih:3E9DB40AAB982B00BF26AF48A5B1FBEB59BA3A1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Sambodhi Prem - Circle of Light (2016) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:7938F3F90826419A0DB66B0546AC04965E4E3783
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Caroline Reese and the Drifting Fifth - Tenderfoot (2017) [FLAC|Lossless|tracks]
 ```bash
 magnet:?xt=urn:btih:57F5447EAFF0C709E1DA3525325FD2CDABDC509A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Khruangbin - Mordechai (2020) [FLAC|Lossless|tracks + .cue] <Reggae, Funk, Neo-p
 magnet:?xt=urn:btih:2E6F4C3F2B78E37D13A06E5C2F225C3DE080FFB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Nadama - Waves of Love (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Ins
 ```bash
 magnet:?xt=urn:btih:1284F39925C436E563572C3528F3B21F060B6A81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ David Arkenstone - Frontier (2000) [FLAC|Lossless]<New Age, Soundtrack>
 magnet:?xt=urn:btih:9864AEA8E9F58AC5908A4A09BF54246066DB032C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - The Best Tango Album In The World...Ever! (2014) [FLAC|Lossless]<Tango>
 ```bash
 magnet:?xt=urn:btih:FAEB06B77EACB9D3C90FF79F6667BB93662B9556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Greg Maroney - Quiet Piano Improvisations, Vol. 1 (2016) [MP3|320 кб/с] <Inst
 magnet:?xt=urn:btih:56BD5E3BA7B6297D3F46A1761F931A979B86849C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ James Last - My Favourites. Die Schonsten Pop-Titel Aus Den Jahren 1989-1993 (19
 ```bash
 magnet:?xt=urn:btih:CCECBF6388BD2C1E176B87F34AD981C7CA0F9BF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Great Melodies From Great Musicals (1999) [MP3|320 Kbps] <Instrumental, Cla
 magnet:?xt=urn:btih:543E41273136D37CE89EB1051B979B8DAFA6EAC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ The Gino Marinello Orchestra - Guitar Masterpieces (2000) [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:7B37C8E006F961F5DB95495170191317664D732F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Hilmar Orn Hilmarsson & Sigur Ros - Englar Alheimsins (2001) [FLAC|Lossless|trac
 magnet:?xt=urn:btih:2C471921BE1BB1B87EE9C15E3B48AD55C88C9625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Geoff McGarvey, Graeme Keavney - Dusk (2018) [FLAC|Lossless|WEB-DL|tracks] <Mode
 ```bash
 magnet:?xt=urn:btih:FD0A4DC83A98AE4BFE4B00E843D4EAA1393C0112
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Graeme Keavney, Geoff McGarvey - Dawn (2018) [FLAC|Lossless|WEB-DL|tracks] <Mode
 magnet:?xt=urn:btih:0A081BFFD14C28D7B5DE9F5BD1DA0BEA66A51B7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Hang Massive - Beats For Your Feet (2012) [FLAC|Lossless|tracks] < Folk, World, 
 ```bash
 magnet:?xt=urn:btih:6425163A5582C8A217C49E3CB34629259719FB29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Emir Kusturica & The No Smoking Orchestra - The Best Of... (2009) [FLAC|Lossless
 magnet:?xt=urn:btih:5CA5781B3ED5233A4E56D1ABE0986D7E9C64B074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Piano Ballade (1984)
 ```bash
 magnet:?xt=urn:btih:327ABDE9B798A4B27D93B2EF7FE9F61B6B1D9957
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Robin Spielberg - Moonlight & Lovesongs (2018) [FLAC|Lossless|WEB-DL|tracks] <Ne
 magnet:?xt=urn:btih:EC2278F06D8E41251186F5AB935FC1D3F129F3E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Michael E & Jirka - The Garden Of The Open Mind (2018) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:70CDB81393B1651FA88EB453952D69671B7C92E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ History Channel. Супербомбы / Rise of the Superbombs (2017) HDTVRip
 ```bash
 magnet:?xt=urn:btih:AB0B7525147304733B908D66642EFA460721E2B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ History Channel. Супербомбы / Rise of the Superbombs (2017) HDTVRip
 magnet:?xt=urn:btih:63C77B58B765C12D6985EB9E679018822E9282D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:63C77B58B765C12D6985EB9E679018822E9282D5
 ```bash
 magnet:?xt=urn:btih:713024B6B2CA7DD94A8766320AA07FF122CEF8FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Discovery: Жизнь отвратительных животных / Nasty by N
 magnet:?xt=urn:btih:8271E1797BE5711260FC8B879E77126B17836987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ NGW: Африканские охотники / Africa's Hunters (2018) HDTVRip [
 ```bash
 magnet:?xt=urn:btih:CAB171FD47CD7B7693BF36D10BE22467941A7FBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:CAB171FD47CD7B7693BF36D10BE22467941A7FBE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:CAB171FD47CD7B7693BF36D10BE22467941A7FBE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ BBC: Райские птицы с Дэвидом Аттенборо / Attenborou
 magnet:?xt=urn:btih:59678E6FE81B4DE26CD578DC064179A2089E4ACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Discovery. Дороги России: Ладога (2016) HDTVRip [720p-LQ]
 ```bash
 magnet:?xt=urn:btih:1952C48E05E9A482F64F8C68BDBD39588974E337
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Discovery. Как это работает? / How it's made? (2016-2019) WEB-DL [
 magnet:?xt=urn:btih:4C4115B395020B6B8D6E7FB253D76F8AC55F9B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ NGW: Невероятная Африка. Сокровища Восточног�
 ```bash
 magnet:?xt=urn:btih:738DFEC1BAC0797DA1E8B735F5D60407AE2626CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ NGW: Невероятная Африка. Назинга / Extraordinary Africa.
 magnet:?xt=urn:btih:873A83672AB55CC0AABD4C3C3EC1CCEA352F3C08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ BBC. Дикая природа: шпион среди антилоп гну / Tr
 ```bash
 magnet:?xt=urn:btih:28933CFD453E3D89FFCB5D0C373D0DD12FBC13AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ NGW: Испытания в дикой природе / Trials of the Wild (2018)
 magnet:?xt=urn:btih:BF8D2B563A5DBF7985AC800ADBCF41DA68162605
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:BF8D2B563A5DBF7985AC800ADBCF41DA68162605
 ```bash
 magnet:?xt=urn:btih:D690A338148632B461C12862BBDBCA41B4784246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Discovery. Взрывая историю / Blowing up History (2016) HDTVRip [H.
 magnet:?xt=urn:btih:F8A4FEF7FF5DF0D2E21F110E792B21AE3515EC18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ NGW: Невероятная Африка. Последний лес / Extraordin
 ```bash
 magnet:?xt=urn:btih:8ABB81A033E060C09DC53E23F2D37E6D127EDDAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:8ABB81A033E060C09DC53E23F2D37E6D127EDDAF
 magnet:?xt=urn:btih:2C1D33B0E23F4CE2690FF6AAE68E6D568FF6D7A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:2C1D33B0E23F4CE2690FF6AAE68E6D568FF6D7A0
 ```bash
 magnet:?xt=urn:btih:B2704A6BEF60CDB7CE23F3C2FB6806344F4A0D72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ NG: Затерянная гробница Александра Великого 
 magnet:?xt=urn:btih:2965B42230FC85421A906BAC3F072A23AEBE63EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ NG: Леопарды дельты Окаванго / Leopards of Dead Tree Islan
 ```bash
 magnet:?xt=urn:btih:A70ACF8C9ABE72FE3562C4B5BDCC7128DD3663D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ NGW. Окаванго: Река мечты / Okavango: River of Dreams (2019) HD
 magnet:?xt=urn:btih:0584A3D9B52942E7ED85DDFB9F821C5E0E377221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:0584A3D9B52942E7ED85DDFB9F821C5E0E377221
 ```bash
 magnet:?xt=urn:btih:717EA31270DFEF4774049D7161144782B77D1E96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:717EA31270DFEF4774049D7161144782B77D1E96
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:717EA31270DFEF4774049D7161144782B77D1E96
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:84750145A44EC22BAD4D6BA8D7787118BAA22D92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Beth Hart & Joe Bonamassa - Black Coffee (2018) [FLAC 2.0 24/192|image|Vinyl-Rip
 ```bash
 magnet:?xt=urn:btih:C8F48E93BD74B0141E5DFFF4E3344AA5035C4398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ A.3	Funky Dung(   Читать дальше...   )Жанр: Rock Style, Psychede
 magnet:?xt=urn:btih:418BC6E4078AC7E347422BA10A68C233C907467B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ A4 Но Это Так	5:45(   Читать дальше...   )Жанр: Blues Ro
 ```bash
 magnet:?xt=urn:btih:A7DA5BAAA20D1D964E1E4287A66FD1E9994324B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ A4 	Cold Arranged      5:37(   Читать дальше...   )Жанр: Classic
 magnet:?xt=urn:btih:1A20DDDEDFFB26CE2BFEAC312FF9F19327D0EBBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ B1. Jabdah (Long Version)(   Читать дальше...   )Жанр: Italo-Dis
 ```bash
 magnet:?xt=urn:btih:10BEC0F31F573A2C030CB9BA579C1DB5952FEDD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Judas Priest - Painkiller (1990) Reissue, 2017, Columbia [FLAC 2.0|192/24|image 
 magnet:?xt=urn:btih:43D981169D9A7F41E9D75B517ABBBB48591C13EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ A4	До Диез Минор. Соч.10. Presto(   Читать дальше...  
 ```bash
 magnet:?xt=urn:btih:B23FD37C08CEF21647A635AA3CA2B25FCC79F30E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:B23FD37C08CEF21647A635AA3CA2B25FCC79F30E
 magnet:?xt=urn:btih:7A26CF19BBEDECF335AAAE346FE0B578BE3BA8DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ A4. Crying In The Rain (4:22)(   Читать дальше...   )Произво�
 ```bash
 magnet:?xt=urn:btih:365EC4B13142CA1BF1868B2AFD46426DCC9B8AB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ A4 Увижу, Узнаю(   Читать дальше...   )Жанр: Pop, Schl
 magnet:?xt=urn:btih:DAB094A46908BD52C495E2A06464C3BF808767D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Piano – Сергей Курёхин(   Читать дальше...   )Жан�
 ```bash
 magnet:?xt=urn:btih:B6F53772CD7D0F267625D8E80793695C7D38AC8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ D Todd Duncan With Eva Jessye Choir - Buzzard Song(   Читать дальше.
 magnet:?xt=urn:btih:14B9E82E3C995C53FED2F8AC41156887BB76CE81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:14B9E82E3C995C53FED2F8AC41156887BB76CE81
 ```bash
 magnet:?xt=urn:btih:C87AE37165705FCBC621E7F4800A68ED7D79A4F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ A4 I'm In The Mood For Love(   Читать дальше...   )Жанр: Jazz, P
 magnet:?xt=urn:btih:CB76396D3CA873C176950026DCEA6FDC2B27D4F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:CB76396D3CA873C176950026DCEA6FDC2B27D4F3
 ```bash
 magnet:?xt=urn:btih:590F72C164DD7D4A99428A403D3E7D903C7EC39B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ A4 Piccadilly(   Читать дальше...   )Жанр: Alternative Rock, New
 magnet:?xt=urn:btih:029A2C774FBC437B2EA0D8AB98F6007E52DE748F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Diana Krall - All For You (A Dedication to the Nat King Cole Trio) (1996) 2016 [
 ```bash
 magnet:?xt=urn:btih:F168EFECC63290A2C66FD7EE949660AA2BB0E0B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ B2. Funky Shit (05:23)(   Читать дальше...   )Жанр: BreakbeatП�
 magnet:?xt=urn:btih:782AF8D99A0F7D8CA2F55BDE1BC1800BE8963D27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Moby - Reprise (2021) [WavPack 2.0|32/192|image + .cue|Vinyl-Rip] <Downtempo, El
 ```bash
 magnet:?xt=urn:btih:73D656F1944EBED68A845F91F95F65ABEF25BD27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ ABBA - Voyage (2021) [WavPack 2.0|32/192|image + .cue|Vinyl-Rip] <Pop>
 magnet:?xt=urn:btih:CE53AF75DA6560AE91499E8166AC24BC6F283FC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ A4. Sooner Or Later (4:25)(   Читать дальше...   )Производс
 ```bash
 magnet:?xt=urn:btih:DA32A8782BAB0FA456CFD2F447A6D73301B9257E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ A4 Waist Deep In The Big Muddy(   Читать дальше...   )Жанр: Folk
 magnet:?xt=urn:btih:8C26BC584BA47B69EE368832E6EF611C4C2D147F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ A4. Clean Heart (4:01)(   Читать дальше...   )Производств
 ```bash
 magnet:?xt=urn:btih:D3048926114DED2031AAFC5845A63E24A651E54E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ A4. The Force(   Читать дальше...   )Жанр: Synth-pop, DiscoПр�
 magnet:?xt=urn:btih:A72D1100049543FDE2A1DA4F56221D5C8D4243F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ VA - RETROспектива, часть XVI. Мелодии и песни из к
 ```bash
 magnet:?xt=urn:btih:8E160C5FD11760312B9D7BAE929ED5F724B63B63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 988258   (922338) от 19.02.2016
-
-По ту сторону убийства / Murder on the Home Front (2013) BDRip [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922338.jpg" />
-</div>
-
-
-###  Подробнее
-
-После совершенного во время бомбежки убийства Молли Купер становится незаменимым помощником патологоанатома Леннокса Коллинза, не слишком хорошо знакомого с делами об убийствах, но одержимого в достижении правды. Новый подход к сохранению места преступления в неприкосновенности, скрупулезное исследование каждой детали путем химического анализа и других доступных (   Читать дальше...   )Производство: ВеликобританияЖанр: Детектив, ТриллерРежиссер: Джеффри СаксАктеры: Джеймс Флит, Аманда Фейрбэнк-Хайнс, Холли Аткинс, Патрик Кеннеди, Айэйн МакКи, Джон Боуи, Томми МакДоннел, Крис Коулин, Джэйк Каррен, Тэмзин Мёрчант, Марк Флиттон, Гай УильямсПеревод: Одноголосый закадровый, любительскийПродолжительность: 01:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED18AC26710E17618EEC526B3F8980AFD51731C5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096025   (922345) от 22.01.2017
 
 Жанна Пуассон, маркиза де Помпадур / Jeanne Poisson, Marquise de Pompadour (2006) DVDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:ED18AC26710E17618EEC526B3F8980AFD51731C5
 ```bash
 magnet:?xt=urn:btih:C7E1E8CDAB5234EE9C4FF304266B925162F2FEF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:C7E1E8CDAB5234EE9C4FF304266B925162F2FEF4
 magnet:?xt=urn:btih:30453303D4900B56E5E24668E4AF3FF2CE0376B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:30453303D4900B56E5E24668E4AF3FF2CE0376B4
 ```bash
 magnet:?xt=urn:btih:65D332855E52298B058BC97BA37898987167226F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:65D332855E52298B058BC97BA37898987167226F
 magnet:?xt=urn:btih:774AF6F6DBD48AB776F032E8C6014FA1A6108C16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:774AF6F6DBD48AB776F032E8C6014FA1A6108C16
 ```bash
 magnet:?xt=urn:btih:BA8833E92FC0B162F10D01ADAC51658BACD2E3F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:BA8833E92FC0B162F10D01ADAC51658BACD2E3F4
 magnet:?xt=urn:btih:179BC1423F14A06C0194327227167815C61EC6C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:179BC1423F14A06C0194327227167815C61EC6C3
 ```bash
 magnet:?xt=urn:btih:779EBFDED963C089C586883F344C37166F3BD12F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:779EBFDED963C089C586883F344C37166F3BD12F
 magnet:?xt=urn:btih:F6956CADA30E4836A813A482F07579DFDB604BE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:F6956CADA30E4836A813A482F07579DFDB604BE9
 ```bash
 magnet:?xt=urn:btih:E9FF0A484AB07C72988AB85189BF4B2B8834DFFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:E9FF0A484AB07C72988AB85189BF4B2B8834DFFB
 magnet:?xt=urn:btih:C4E639DCD66B6572D58A6293EB37F525F171A9B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:C4E639DCD66B6572D58A6293EB37F525F171A9B9
 magnet:?xt=urn:btih:9E4A587944C9C528A52154E941C81D35B4CB8684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:9E4A587944C9C528A52154E941C81D35B4CB8684
 ```bash
 magnet:?xt=urn:btih:CCD1472B5CC4AC1FBC77042B382291BA2DF0C1EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +333,8 @@ magnet:?xt=urn:btih:CCD1472B5CC4AC1FBC77042B382291BA2DF0C1EC
 magnet:?xt=urn:btih:199536A47F13F7AC31C4E5814FF9F50B02F31127
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:199536A47F13F7AC31C4E5814FF9F50B02F31127
 ```bash
 magnet:?xt=urn:btih:84DAB24CF28BF8ACF3CA65707E97795FE800431F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +385,8 @@ magnet:?xt=urn:btih:84DAB24CF28BF8ACF3CA65707E97795FE800431F
 magnet:?xt=urn:btih:6D86B24A1B648AAAEDD6DD9CD3E30CEA1E5807E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +410,8 @@ magnet:?xt=urn:btih:6D86B24A1B648AAAEDD6DD9CD3E30CEA1E5807E4
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +437,8 @@ magnet:?xt=urn:btih:6D86B24A1B648AAAEDD6DD9CD3E30CEA1E5807E4
 magnet:?xt=urn:btih:D07036D84657AE208D6A444FCE4839461603A292
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +462,8 @@ magnet:?xt=urn:btih:D07036D84657AE208D6A444FCE4839461603A292
 ```bash
 magnet:?xt=urn:btih:A07C18FF5C0FEE03C4D584948DD5A6E3BD8C8F78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +489,8 @@ magnet:?xt=urn:btih:A07C18FF5C0FEE03C4D584948DD5A6E3BD8C8F78
 magnet:?xt=urn:btih:D734CCB63F0FD747D8F9B4437894C95C27C57606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:D734CCB63F0FD747D8F9B4437894C95C27C57606
 magnet:?xt=urn:btih:99BA35858DD46867B07A631219F0C3FF5A147BF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +540,8 @@ magnet:?xt=urn:btih:99BA35858DD46867B07A631219F0C3FF5A147BF7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +569,8 @@ magnet:?xt=urn:btih:99BA35858DD46867B07A631219F0C3FF5A147BF7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +594,8 @@ magnet:?xt=urn:btih:99BA35858DD46867B07A631219F0C3FF5A147BF7
 ```bash
 magnet:?xt=urn:btih:488ADF4C3F35D35AA638B384A7CEEED8867FF567
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +621,8 @@ magnet:?xt=urn:btih:488ADF4C3F35D35AA638B384A7CEEED8867FF567
 magnet:?xt=urn:btih:9CC4A0BD1B9C960C9DFD71E0EE5FA7F7C3A6ABF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +646,34 @@ magnet:?xt=urn:btih:9CC4A0BD1B9C960C9DFD71E0EE5FA7F7C3A6ABF8
 ```bash
 magnet:?xt=urn:btih:908DD1BAE00F163FE4B0D4900F77C1E85DEB56A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456641   (923310) от 17.08.2021
+
+Кто-то там внизу меня любит / Nekdo tam dole me ma rad (2009) DVDRip [VO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923310.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ото, полностью парализованный и прикованный к инвалидной коляске мужчина, становится свидетелем изнасилования и зверского убийства своих жены и дочери. Будучи не способным отомстить подонкам самостоятельно, Ото взывает о возмездии к высшим силам, и дьявол быстро откликается на его мольбы.Производство: Чехия / Horor Film, Scumfilms, Sinerama FilmsЖанр: ужасы, криминалРежиссер: Роман ВожкувкаАктеры: Иржи Хромечка, Andrea Civanova, Андреа Циванова, Джастин Диас, Джастин Диаз, Мартин Фрайт, Мартина Герыкова, Милос Копржива, Милослав Копржива, Павел Ладислав КрокаПеревод: Одноголосый закадровыйСубтитры: Русские (hardsub)Продолжительность: 01:59:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:984F421D3538A790F31EB3A28F1A7536BD7B495F
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

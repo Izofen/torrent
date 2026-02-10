@@ -19,6 +19,8 @@ Liveclasses, Андрей Журавлев | Adobe Photoshop: замена цв�
 magnet:?xt=urn:btih:CBF7D92D899EF54E319AC9CCA2D9B9F493605A9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ M-Art, Ольга Адамовна | Графический медиа и моу
 magnet:?xt=urn:btih:2A34997AB7C2656EB28F7571C52AC5948C1FE951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Schoolism, Nathan Fowkes | Environment Design (2015) PCRec [RU]
 ```bash
 magnet:?xt=urn:btih:6B4A49EA0AC38E484AA4A2D8BBEC43351D95A2DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Artstation, Aleksandr Kirilenko | Bringing Life To Clothes In ZBrush (2020) HDRi
 magnet:?xt=urn:btih:B4D7900F1908D494062A4BBDD3B964D7252D86AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Lynda | Цвет для видеомонтажёров / Color for Video Editors
 magnet:?xt=urn:btih:1E911977971E18F2C3ECC14F3130D41C5E704932
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Chalene Johnson | PiYo (2014) DVDRip [EN]
 ```bash
 magnet:?xt=urn:btih:0A303E9423622B9EE8452CA722421FB82F6BCE5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ ITVDN | Swift Starter (2017) PCRec [H.264/1080p-LQ]
 magnet:?xt=urn:btih:651A1F3E8EB1AC09FA6E3E0C02EEBDAB3BB608FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ ITVDN | Программирование на платформе UWP (2017) PCRe
 ```bash
 magnet:?xt=urn:btih:2FA54CD45A14E0D0AD4A20619FA83282DE416611
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ XTrain — это комплекс эффективных занятий, кот
 magnet:?xt=urn:btih:07187532B9385F51A0F888B617398FDE24DA0ED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Louis Van Amstel | LaBlast (2017) HDRip [H.264] [EN]
 ```bash
 magnet:?xt=urn:btih:167D1D722763E61D657E28786B6E3211FE969872
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:167D1D722763E61D657E28786B6E3211FE969872
 magnet:?xt=urn:btih:491A659B88748841988CD4867DB80A61EEC434F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ NSA, Владимир Дадали | Образовательный курс п�
 magnet:?xt=urn:btih:EDEF52583440B888640B964A00B344852167E9F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Artstation Learning, Rico Cilliers | Intro to Sculpting in Blender (2020) PCRec 
 ```bash
 magnet:?xt=urn:btih:D948B891D7ECDC9E1C34B244DC7BA341356C8786
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:D948B891D7ECDC9E1C34B244DC7BA341356C8786
 ```bash
 magnet:?xt=urn:btih:C3F9912544B6AFDD8CC1C5D94A04E2E425A6D485
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ Eкaтepинa Mиpимaнoва | Минус 60. Худеем за 21 день (2
 magnet:?xt=urn:btih:AC137089EBA4AE4E7F2768E3FCF9452640285FC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ Python-разработчик создаёт бэкенд сайтов: мозг
 ```bash
 magnet:?xt=urn:btih:7BE666E8033E226762070980EF4F7221E1780C3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ Gumroad, Cane Townsend | Hard Surface in ZBrush (2021) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:DF9C85188A4182B3AF787980133C84F8BE19283F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:DF9C85188A4182B3AF787980133C84F8BE19283F
 magnet:?xt=urn:btih:7032DEE53187722FED49355860D799913D572452
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ ITVDN | Решение практических задач на C++ (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:3E2B1C43141588A47466D4AA33FDFC33797E65BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ Firoz Khan | Learn Real Estate Photo Editing in Lightroom (2020) PCRec [En / En 
 magnet:?xt=urn:btih:CE6E1B800CBC393BC0580FA10D1F1821FE23D9F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ Jillian Michaels | Killer Body (2015) DVDRip [EN]
 ```bash
 magnet:?xt=urn:btih:22230B461C238463C5A55BB57D8830D2ACE642C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:22230B461C238463C5A55BB57D8830D2ACE642C1
 magnet:?xt=urn:btih:39EB85F9F6D620BD3AD7C45D530500CF8763317C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:39EB85F9F6D620BD3AD7C45D530500CF8763317C
 ```bash
 magnet:?xt=urn:btih:B7FAB78D593F24A1DAA67AC325126311F6930DA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ magnet:?xt=urn:btih:B7FAB78D593F24A1DAA67AC325126311F6930DA0
 magnet:?xt=urn:btih:58D5FC5773977C242E863269B126F47FA4C32F7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ Gumroad, Pierrick Picaut | Искусство эффективного ригг�
 magnet:?xt=urn:btih:0B364F2CCB6CF02CDAAA808C3DA643552B92A6CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:0B364F2CCB6CF02CDAAA808C3DA643552B92A6CB
 ```bash
 magnet:?xt=urn:btih:0B7D1338C1B51B8DB28BA3A795C9BAB9968B04B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

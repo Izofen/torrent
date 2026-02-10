@@ -19,6 +19,8 @@ Deep Rock Galactic – научно-фантастический шутер пр
 magnet:?xt=urn:btih:DDBBDF7B6915623D1345B56EAD5C9745A3735666
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:DDBBDF7B6915623D1345B56EAD5C9745A3735666
 ```bash
 magnet:?xt=urn:btih:E778318BAEF1BD8ECBC828D6DB7E07CDC994EFD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Gal Guardians: Servants of the Dark (2025) [Multi] (1.4.0/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:2EA236EB52C70F77ADCBDE63DBAECE5562547E73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Perfect Heist 2 – это соревновательный шутер на те
 ```bash
 magnet:?xt=urn:btih:B7C095702E91A9E93D82D8F804EEF5AE0D11066C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Blood Bowl III (3) (2023) [Ru/Multi] (Build 52126/dlc) Repack FitGirl [Brutal Ed
 magnet:?xt=urn:btih:31C803359C83537E3447E47D79460F23D8890A29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Frog Jump ставит игроков под контроль амфибии с 
 ```bash
 magnet:?xt=urn:btih:FE4F5F5041F36FF08EFA1678AD71C65CC0573C01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Tales of Maj’Eyal – это ролевая игра в стиле roguelike �
 magnet:?xt=urn:btih:62CEB84881376E09D411E21EBFA7A1201CAFE802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Moonstone Island – это более 100 островов для исслед�
 ```bash
 magnet:?xt=urn:btih:5CAC1136B5E8807A5FA14DC32FBA6A20B2CCD485
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Kainga: Seeds of Civilization (2022) [Multi] (1.2.21) License GOG
 magnet:?xt=urn:btih:47046E6E05B2335F2146359614CB174605382957
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Spell Brigade - это кооперативная онлайн-игра, в 
 ```bash
 magnet:?xt=urn:btih:7F006AABCE3BCBBD526B857C40DFD628E2C89720
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Lonely Mountains: Snow Riders (2025) [Ru/Multi] (1.2.101/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:85AB2FFCE694D910FDF67C77781580B02F56F632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:85AB2FFCE694D910FDF67C77781580B02F56F632
 ```bash
 magnet:?xt=urn:btih:E2779316F0180EBD7644F9CD03A67DFC8F094358
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:E2779316F0180EBD7644F9CD03A67DFC8F094358
 magnet:?xt=urn:btih:E47F80BB0BEBDC2EEBAC901E45C60D5AA05EB290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.10) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:35C5566A2D9CD388194E5BC0A7CD5FC3A41A3EB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.03) Repack Let'sРlay
 magnet:?xt=urn:btih:C3E3CD8E8B448B9BD0A8BC5E55D4269D61C8A91C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ KARMA: The Dark World (2025) [Ru/Multi] (karma250620) License GOG
 ```bash
 magnet:?xt=urn:btih:1AC8E7D20A73EA977FFDBD40B53541CE8FB4F678
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Deep Rock Galactic – научно-фантастический шутер пр
 magnet:?xt=urn:btih:C378024816B4614190F5753B2EF6CBBD3D45E953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ DOOMER SIMULATOR погружает игрока в жизнь человека,
 ```bash
 magnet:?xt=urn:btih:755B76B4AB4B85B761C54E424DF88DF06FE5936F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.1.0.6) Repack FitGirl
 magnet:?xt=urn:btih:5D8CEF14F5D98956EECC00638400AEC724F439B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Post-Apo Builder показывает постапокалиптический �
 ```bash
 magnet:?xt=urn:btih:F51B38B6E315A17C7885766F7C7DA97E230BFBFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Pocket Bravery - динамичный файтинг, знакомящий с х
 magnet:?xt=urn:btih:A6A487BCBD29584EAA44155DB010C8F7D5C3489D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Coridden (2025) [Ru/Multi] (1.3.1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:2907D4505CE21B7E13548B57DA606F570616D64D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Spacechem (2011) [Ru/Multi] (1016hf) License GOG
 magnet:?xt=urn:btih:0250D0C00F2A5DCF2CCD3BBFD447EFE70EC344C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ STAR WARS: Episode I: Jedi Power Battles (2025) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:CC1B1F0BA770A1D50A947B110BD1EC51AD9F6543
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Sandwalkers – это пошаговый «рогалик», где главн�
 magnet:?xt=urn:btih:9762B02336B3D91B04D63135CD0804DFB7C6BAA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Operator - это не типичная стрелялка или прикл
 ```bash
 magnet:?xt=urn:btih:687E239F622DBA1FFC8A8D14B69A098149C7BAF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

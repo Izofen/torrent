@@ -23,6 +23,8 @@ Laura Cantrell - Just Like A Rose: The Anniversary Sessions (2023) [FLAC|Lossles
 magnet:?xt=urn:btih:A21EE4241419458AF111BAD53BB55F46E131770E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Native American Music Consort - Trance Rhythms for Astral Travel (2025) [MP3|320
 ```bash
 magnet:?xt=urn:btih:3F5995E82533FE0DCFE4560592D42AA003ED501C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ Native American Music Consort - The Calling of the Wolf (2025) [MP3|320 Kbps] <N
 magnet:?xt=urn:btih:2BB9C2A25080D8D4981EB9421CAE7BE68E5D217D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Hauser - Cinema (2025) [FLAC|Lossless|image + .cue] <Soundtrack, Instrumental, E
 ```bash
 magnet:?xt=urn:btih:D586C50F5B8BE44D5E6B6490384B7F158FC1810F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ magnet:?xt=urn:btih:D586C50F5B8BE44D5E6B6490384B7F158FC1810F
 magnet:?xt=urn:btih:4DE18957FABDC9399A16B70FE23C4A534E49C658
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ magnet:?xt=urn:btih:4DE18957FABDC9399A16B70FE23C4A534E49C658
 ```bash
 magnet:?xt=urn:btih:905A2686593E1DF2C632B3DFDE8225F3FE66BF80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ VA - The Orient Collective: Tibetan Spirits (2025) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:2F1B98CD1C032C375B2D02CF4987705AD82653D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ OTTA-Orchestra - Дискография (2014-2025) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:21366C228C0A6F614B964733C9462A4D27008EF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +255,8 @@ VA - The Orient Collective: Mystic Sands (2024) [FLAC|Lossless|WEB-DL|tracks] <W
 magnet:?xt=urn:btih:B8B2309D6A749D959C6F4B9F3B1B19192D544D6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ VA - 101 Greatest Country Hits - Vol. Two: Country Sunshine (1994) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:D2109B6CA87707CDE33889E5376D408BA9673070
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +313,8 @@ Joan Baez - Gone From Danger (1997) CD, Album [FLAC|Lossless|tracks + .cue] <Pop
 magnet:?xt=urn:btih:749FF62F2BF88DC1119DF9A8B5A58B27141B04A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +342,8 @@ Brulе - We the People (A Tribal Gathering Of Music) (1996) CD, Album [FLAC|Loss
 magnet:?xt=urn:btih:BF0E123CCB75332D99142778302F3CE726A9B0EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:BF0E123CCB75332D99142778302F3CE726A9B0EE
 ```bash
 magnet:?xt=urn:btih:091511AD62921B4F205F1EB9C529FDE76509BDFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +406,8 @@ Milla Jovovich - The Divine Comedy (1993) [FLAC|Lossless]<Folk-rock, soft-rock>
 magnet:?xt=urn:btih:D440F94449A02247D14EFEB4D9739B0FA4F07DAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +436,8 @@ Clair Obscur: Expedition 33 — компьютерная ролевая игра
 magnet:?xt=urn:btih:24BA43A06CCA01B69568DFF266517B4F1A17196B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +464,8 @@ Secret Garden - Secret Summer (2025) [FLAC|Lossless|WEB-DL|tracks] <Celtic, Neo-
 ```bash
 magnet:?xt=urn:btih:A6CC520A3680399A595E229440383EC67858D950
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +494,8 @@ Blue Flower (Sri Chinmoy, Голубой цветок) - O Beauty-Infinity (О, 
 magnet:?xt=urn:btih:788DA8B6C8024DA684D0F57ED5FF655753C3132A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +522,8 @@ Ennio Morricone - Morricone Conducts Morricone (2025) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:B37C11D6560017E91CEE4A53BF6380CAA148381C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +552,8 @@ VA - The Orient Collective : Ayahuasca (2025) [FLAC|Lossless|WEB-DL|tracks] <Wor
 magnet:?xt=urn:btih:7C56DD8C8EEF6AEA60F179E01D2859BF8401602B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +580,8 @@ VA - The Orient Collective: Sacred Earth (2025) [FLAC|Lossless|WEB-DL|tracks] <W
 ```bash
 magnet:?xt=urn:btih:E9C66095697C8D2964585101D5F2D31BCC26E709
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +610,8 @@ VA - The Orient Collective: Earth And Sky (2025) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:C44309419E7D3131752D17C73BD3B4DE9DB5797A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +638,8 @@ Jean Michel Jarre - The Concert In China (1982) Reissue, 1984, Polydor 2CD [FLAC
 ```bash
 magnet:?xt=urn:btih:A12DF3ACC8A2C1A826ABB1B38FDD9BBAA1C80FB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +668,8 @@ VA - Pioneer LaserActive - The Art Of Entertainment - Private Music Sampler (199
 magnet:?xt=urn:btih:0CEB543B0FAC28C5B08DEEBE99108E2F24BBF8E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +696,8 @@ Alabama - In Pictures (1995) [FLAC|Lossless|tracks + .cue] <Folk, Country Rock, 
 ```bash
 magnet:?xt=urn:btih:63E5DEC3DD07F3C92C5E3E8DAC33E8D8FBE5AD3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -678,6 +726,8 @@ VA - The Orient Collective: Ancient Beauty (2025) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:45639DB9FE223B803FD5BE2E75E51BA6083FB285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -704,6 +754,8 @@ James Horner - Titanic: Music From the Motion Picture (1997) CD, Album [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:3651805C7371788706905CAB0B0D308A553D8338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

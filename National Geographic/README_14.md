@@ -19,6 +19,8 @@ NGW: Дикое королевство / Savage Kingdom (2016) HDTV [H.264/1080i
 magnet:?xt=urn:btih:5967748F6E2F8C0342D5D0DDFE72080180340D50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG: Возвращение на Титаник / Back to the Titanic (2020) WEB-
 ```bash
 magnet:?xt=urn:btih:6E772BAA39193F1081836B943AAD035B1359AF90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NGW: Матриархат / Girl Power (2018) HDTV [H.264/1080i-LQ]
 magnet:?xt=urn:btih:CC4C6B52D860F53097C9339A4D4BF9530B8B00E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NGW: Охота ягуара на побережье / Jaguar Beach Battle (2018
 ```bash
 magnet:?xt=urn:btih:72936119E8D82DE6A154B67EF2C9DF91C67DF8DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NGW: Грозовые кошки / Storm Cats (2016) HDTVRip [H.264/1080p-LQ]
 magnet:?xt=urn:btih:B0B56EB7E33480E8181BFBAB9AB0DB615FC393C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG. Зеленоглазый леопард / Jade Eyed Leopard (2020) WEB-DL [H
 ```bash
 magnet:?xt=urn:btih:6E52A4E22A2C85B8E6FDB66B8675C90707EAD075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ NGW: Вся правда о крокодилах / The whole truth about crocodi
 magnet:?xt=urn:btih:BA1C597F3D26FDEDE155E0A8653F578007C717B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ NG. Тайная семерка Африки / Africa's Secret Seven (2003) HDTV
 magnet:?xt=urn:btih:EC1148E20CE66F7A6B82DB4D79F3B71CFF3640A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ NGW: Национальные парки Америки / America's National Par
 ```bash
 magnet:?xt=urn:btih:54C5A33F6556B447B505BC8ABEEE082A85A45B56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ NGW: Прекрасная Америка: Величественный Севе�
 magnet:?xt=urn:btih:5989C1C717F985506B6F782C41EA3A7DBC66797B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ NG: Голливудская наука. Чудо машины / Hollywood Scien
 ```bash
 magnet:?xt=urn:btih:506BC5F44CFA7188076366BD88636C1BA6D02428
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ National Geographic: Американские транссексуалы / Ameri
 magnet:?xt=urn:btih:A11B7F7DCE3333A962E93E84D3AA68B83C9C9E41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ NG. Нападение нацистов на США (Атака нацистов
 ```bash
 magnet:?xt=urn:btih:0937D5C25382E81804DB730046FB6C45CC5718E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ NG: Исследователь 2.0 / Explorer (2015) HDTV [H.264/1080i] (8 се�
 magnet:?xt=urn:btih:8EF10324C6CDEF1BDCA794A4DCEC17A1E0437252
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Nat Geo Wild: Война львов / Lion Battle Zone (2011) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:61EBE93ABE26333CC4291AA22B84FA56A16D270D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Nat Geo Wild: Война львов / Lion Battle Zone (2011) HDTVRip
 magnet:?xt=urn:btih:71B0C3103639ED4A526CA85A2EC5A3305A03C96B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ NG: Международный аэропорт Дубай. Серия 2 / Ultim
 ```bash
 magnet:?xt=urn:btih:3E256155478B64C909243CFC909572E2D40A6D7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ NG. Мафия. Тото Риина / Mafia Confidential. Toto Riina (2018) DVB
 magnet:?xt=urn:btih:4FB05752C82D72925E2F0CC576B92BB554FB6FF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ NGW: Удивительные летучие мыши / Incredible Bats (2016) H
 ```bash
 magnet:?xt=urn:btih:3339ADE0FE06123FF202F217E905C6178EA151C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ NG: Взгляд изнутри: Северная Корея - тогда и с�
 magnet:?xt=urn:btih:6939B0CC42D91BCC1576600FE5196D1839D38118
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ NG. Легенда о хрустальном черепе / Legend of the Crysta
 ```bash
 magnet:?xt=urn:btih:8B422E227106DBB0F980386709FBA26563AC1B52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ NG: Реальные "Злые птицы" / Real Angry Birds (2014) HDTVRip
 magnet:?xt=urn:btih:F798C4ABF1A51E640FA1A51E10E83508549C0AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ NG:Больше, чем тираннозавр / Bigger Than T.Rex (2014) HDTV [
 ```bash
 magnet:?xt=urn:btih:41D00A0BEC5DCB50898B28D05FD7A67DD5391051
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:41D00A0BEC5DCB50898B28D05FD7A67DD5391051
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ NG. Акула-молот: в поисках рекордсмена / World's Bi
 magnet:?xt=urn:btih:60CE0008AD81371D335C30CD5D2B18B99A332D65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:60CE0008AD81371D335C30CD5D2B18B99A332D65
 ```bash
 magnet:?xt=urn:btih:F4BA38D74CC84CCE03B806F95C251A109E110904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

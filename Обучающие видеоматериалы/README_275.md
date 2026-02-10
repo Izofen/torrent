@@ -20,6 +20,8 @@ WebDesign Master | Создание крутого Swiper-слайдера от 
 magnet:?xt=urn:btih:BBB8C88BF4583D7B92FBB44DB908E642AAB7677F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:BBB8C88BF4583D7B92FBB44DB908E642AAB7677F
 ```bash
 magnet:?xt=urn:btih:3731EDF0848B51E6B7986361AD653F0C5B32DB25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:3731EDF0848B51E6B7986361AD653F0C5B32DB25
 ```bash
 magnet:?xt=urn:btih:B94646D2D206F452AAF5E2389BD9A84AF63EA137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Profit, Степанцев Альберт | Вебинар "Почему огр�
 magnet:?xt=urn:btih:1162D8F64AA9E30EB1A125DE55D3E26E35288A85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:1162D8F64AA9E30EB1A125DE55D3E26E35288A85
 magnet:?xt=urn:btih:0BAA461458A16A64F2EB696967A11DD67ADA0A37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Udemy, Alexander Gol | Full-Stack разработка веб приложени
 ```bash
 magnet:?xt=urn:btih:967A85913D8026591CC01EEB36CA3FDDF6D4A633
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ Python - язык мультипарадигменный. И комбинаци�
 magnet:?xt=urn:btih:871FB6575EFA5851D193645EB94711BFC9B382D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ CG Cookie, Wayne Dixon | Основы риггинга - Узнай как со�
 ```bash
 magnet:?xt=urn:btih:1185BCC081D28FCDD3009A4D407E40F5E1DED632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ Udemy, Keith O'Hare, Dip TESOL, MSc. | Fluency for IELTS Speaking  (2021) PCRec 
 magnet:?xt=urn:btih:2C8D5C2B22BFF89446CB6837D74BE9676CC7C6FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ Udemy, Vasyl Velmyk | Webpack, Babel - Детальное Руководство
 ```bash
 magnet:?xt=urn:btih:56E8B459CF83F92E43E1B2DA15A0821C2B1FFA39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ Udemy, Nana Janashia и др. | Complete Terraform Course - Beginner to Advanced
 magnet:?xt=urn:btih:E58664C8B6E47923656F9E3A2822C879847E6654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Udemy, Tim Buchalka | Java SE 11 Developer 1Z0-819 OCP Course - Part 1 & 2 (2021
 ```bash
 magnet:?xt=urn:btih:C97273DAE8603C5C1D839A40F9ADEAE3932EF4EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ CG Cookie | Кузница шейдеров - Создание материал�
 ```bash
 magnet:?xt=urn:btih:4108EAF15E1748FE89BAEB522741FFC6FCCBE922
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ Udemy, Marcus Ng | Flutter Firebase Bloc Instagram Clone | iOS and Android 2021 
 magnet:?xt=urn:btih:D0D0DCE7D8DF3845CDE9E4A6F47C80F714181BBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ Angular 1 и NodeJS вместе с ExpressJS (NodeJS Framework) и MongoDB сф
 magnet:?xt=urn:btih:43E85CE9EE7F3961FFAE1BA39BC27406FCA23B40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Jeff Minakata | OSINT for hackers and penetration testers (2020) PCRec [En / En,
 magnet:?xt=urn:btih:46217961D7CF10ADB1D87E88A60AE333D1828071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ CG Cookie, Jonathan Lampel | Основы текстурирования в Blen
 ```bash
 magnet:?xt=urn:btih:989DE2628B436CE9966419CE10B513E6D932B879
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ Udemy, Rafael Silva Pinto | Optimization with Python: all you need for LP-MILP-N
 magnet:?xt=urn:btih:4354AADAA47ADC646855201FBB4C29529CC42C4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ Leigh Halliday | Next Level Next.js (2021) PCRec [En]
 magnet:?xt=urn:btih:3F3076B4EBAF7C6417A36F6303C18233A9A18A9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +535,8 @@ WingFox, Gavin O'Donnell | Стилизованная иллюстрация - �
 ```bash
 magnet:?xt=urn:btih:70B4C3B417976DE2CD61EACFA54ADD8B53D5D1EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ Node.js, вероятно, самый популярный и современн
 magnet:?xt=urn:btih:4D0D2B35941165FCB327141857EDFBB27873EE84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ JavaScript - это САМЫЙ важный язык программирова�
 ```bash
 magnet:?xt=urn:btih:CE68F71E08616558F038DED7A5E540B0F60705DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ Udemy, Google Cloud Platform Gurus ! | Ultimate Google Cloud Certifications: All
 magnet:?xt=urn:btih:644B04E2D09953DAD07FA7A71B65D54BC2A40F98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ Jan Urschel | Введение в движок рендеринга Octane дл�
 ```bash
 magnet:?xt=urn:btih:5397FDB0A0E10B5838A8F94433A5DE3317AF551E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ ArtStation, Rico Cilliers | Скульптинг органики в Blender 2.9
 magnet:?xt=urn:btih:51C49436D823E07AAD271842BD5E0D402BBF8CC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ Rachel Smith | Rachels English Academy (2021) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:4C49678DA6AE0B878934AC4FD8B58ABAFDDAA294
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

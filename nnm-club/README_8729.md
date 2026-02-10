@@ -22,6 +22,8 @@ Wes Montgomery - Dangerous (1961 - 1963) 1999, Milestone Records [FLAC|Lossless|
 magnet:?xt=urn:btih:C07F6972EEFDA6E9F700F83146B27A8B6114218A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:C07F6972EEFDA6E9F700F83146B27A8B6114218A
 ```bash
 magnet:?xt=urn:btih:B346B31897F4F97686C70F15C0B1211C9837A9C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Surr - Discography 3 Releases (2008-2017) Eternell [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:721006CEE047BE026C9A3193405B95FE0188B24E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Uplifting Only Top 15: December (2017) [MP3|320 Kbps] <Trance, Uplifting Tr
 ```bash
 magnet:?xt=urn:btih:31974953626B3171E1CD24E25C1463C1039AED50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Chris Potter - Moving In (1996) Concord Records [FLAC|Lossless|tracks + .cue] <P
 magnet:?xt=urn:btih:FB69E14AAACBB486F10EF77789C745A945704DBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Trance Elegance On This Year 015 (2017) [MP3|320 Kbps] <Trance, Uplifting T
 ```bash
 magnet:?xt=urn:btih:141DDF98B4E8C6D317D061D2A0AD664119EE9931
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ George Otsuka Trio - Page 2 (1968) 2014, Nippon Columbia [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:F4065EE6A70C40DDA682C982B037FC8EC9E12561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Chris Potter - Pure (1994) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
 ```bash
 magnet:?xt=urn:btih:65AF49D6CBBDE30AB080B6BF312B32B43F39A55D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Lionel Hampton & Friends (1990) Groove Merchant [FLAC|Lossless|tracks + .cue] <S
 magnet:?xt=urn:btih:EF99ABF7A84ABAA9AF0E2F164F4AF0A387781E2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ magnet:?xt=urn:btih:EF99ABF7A84ABAA9AF0E2F164F4AF0A387781E2A
 ```bash
 magnet:?xt=urn:btih:3AB625FD5D71D93AADD4B368D7A2907505BEE945
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +306,8 @@ magnet:?xt=urn:btih:3AB625FD5D71D93AADD4B368D7A2907505BEE945
 magnet:?xt=urn:btih:EB546A154786B924060D6194FED5BBFB390D7EEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ magnet:?xt=urn:btih:EB546A154786B924060D6194FED5BBFB390D7EEC
 ```bash
 magnet:?xt=urn:btih:5576BA32F439AD1C5B5FE3D08794E3840FD29669
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +358,8 @@ magnet:?xt=urn:btih:5576BA32F439AD1C5B5FE3D08794E3840FD29669
 magnet:?xt=urn:btih:906981C9E2E22C9549C9145FB663E18DCBA698A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ AnyDesk 5.4.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0582E7A7F8DE9106EC3710531285E67C68E09153
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +413,8 @@ Lindemann - F&M: Frau Und Mann (2019) Deluxe Edition [FLAC 2.0|24/44|tracks|WEB-
 magnet:?xt=urn:btih:8916270269B2B2F60AE1FC3B6BD3BEDAD7EDA036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ Woodshop News — издание представляет самую после�
 ```bash
 magnet:?xt=urn:btih:2AD52DD35CC1856E928DCB5411C66F68ABFA0916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +468,8 @@ magnet:?xt=urn:btih:2AD52DD35CC1856E928DCB5411C66F68ABFA0916
 magnet:?xt=urn:btih:5F12C591856C6E40A4187BE08634FFED3DCE7383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ Brukel (2019) [Ru/Multi] (1.0.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:4964430258A36757A98474DB7CB65DD0B0DCBC44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +520,8 @@ National Geographic. Нераскрытые тайны Второй мирово
 magnet:?xt=urn:btih:0D05F30C059A8AEE925CA54678C718C0BB5AB5C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ magnet:?xt=urn:btih:0D05F30C059A8AEE925CA54678C718C0BB5AB5C2
 ```bash
 magnet:?xt=urn:btih:16CA41001006FC57966C04C05591793706711A92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ VideoHive - Popular Messenger Builder v2.0 - 19770231 [AEP]
 magnet:?xt=urn:btih:AB0AC63FA9EFDC28713981C1BA3FE8413A76E5F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ magnet:?xt=urn:btih:AB0AC63FA9EFDC28713981C1BA3FE8413A76E5F8
 ```bash
 magnet:?xt=urn:btih:740DCD1EF552E56478B5EF5E83F66A7C2A5F9C9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:740DCD1EF552E56478B5EF5E83F66A7C2A5F9C9E
 magnet:?xt=urn:btih:F427853D34E251E5D4D6DDF908A464FE399DC9BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ Nintendo | Артбук по игре Legend of Zelda: Breath of the Wild / The 
 ```bash
 magnet:?xt=urn:btih:3AEAFB5E0636A17CB83359EC334E1D86AC9DEC20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ Wondershare Filmora - удобный видеоредактор, содержа�
 magnet:?xt=urn:btih:68635167CDC1975A679958AD44DD5037173E4A2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ Daz 3D - Structures [DUF]
 ```bash
 magnet:?xt=urn:btih:32244A32F88E154CBEEE258BCDA704FAE9DB33B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

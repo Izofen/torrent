@@ -28,6 +28,8 @@ VA - Золотые Хиты Кавказа 2 (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:ADF55F50652DEB3D35E78533526CCF7007A08747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ VA - The Official UK Top 40 Singles Chart (29-01-2012) [MP3|320 kbps]<Pop, Rok, 
 ```bash
 magnet:?xt=urn:btih:1D9794216E1511BBE83158107E264548EF5FDB35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ VA - Record Super Chart № 226 (04.02.2012) [MP3|192-320 kbps]<House, Trance, D
 magnet:?xt=urn:btih:F691104A08D187B8C6F902247BEF4B15010DC651
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +123,8 @@ VA - 538 Dance Smash 2012 Vol.1 (2012) [MP3|320 kbps]<Dance>
 ```bash
 magnet:?xt=urn:btih:654663B3A737A2B4BDC2D9249CE78A6E46139B9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +159,8 @@ VA - New Russian Electro - Vol.16 (2012) (2012) [MP3|320 kbps]<Electro House,Hou
 magnet:?xt=urn:btih:D4D125AC18F987E9E41E93F5828C9A1A4FB3893D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +193,8 @@ VA - Minimal Art v.6 (14.02.2012) [MP3|320 kbps]<Minimal>
 ```bash
 magnet:?xt=urn:btih:A31A56845F226F0F60CFBF35FF477BAF030B57A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +229,8 @@ VA - Minimal Art v.5 (13.02.2012) [MP3|320 kbps]<Minimal>
 magnet:?xt=urn:btih:E524D5FA25AFB867CCCF6044C458466270459980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +263,8 @@ VA - Record Super Chart № 228 (18.02.2012) [MP3|~142-320 kbps]<House, Trance, 
 ```bash
 magnet:?xt=urn:btih:949BBB3E7E949D069EE0C09BE1893F296608BE1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +299,8 @@ VA - Minimal Art v.2 (10.02.2012) [MP3|320 kbps]<Minimal>
 magnet:?xt=urn:btih:AF2FBE53AD32B0B7372FDB419C7BCF234998E1F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +333,8 @@ VA - Minimal Art v.1 (09.02.2012) [MP3|320 kbps]<Minimal>
 ```bash
 magnet:?xt=urn:btih:A6C4CF8D9E190CCEDDEEBDDAC3EA4247698424E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +369,8 @@ VA - Minimal Art v.9 (17.02.2012) [MP3|320 kbps]<Minimal>
 magnet:?xt=urn:btih:41C9E3BF5BF53918349DE66079E0DEB9A40E73D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +403,8 @@ VA - Minimal Art v.7 (15.02.2012) [MP3|320 kbps]<Minimal>
 ```bash
 magnet:?xt=urn:btih:FD329286EA85C203B56C73047C2CC297A937952E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +439,8 @@ VA - Minimal Art v.8 (16.02.2012) [MP3|320 kbps]<Minimal>
 magnet:?xt=urn:btih:FA2B6992696D22FBF66562B0F79D2F2A677FE610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +473,8 @@ VA - Minimal Art v.10 (18.02.2012) [MP3|320 kbps]<Minimal>
 ```bash
 magnet:?xt=urn:btih:EEE05E1089EA0849955044BA64E2D8CAC0A261CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +509,8 @@ VA - Minimal Art v.12 (20.02.2012) [MP3|320 kbps]<Minimal>
 magnet:?xt=urn:btih:8E1B4E78F8697A1A18BA98152CA8FDD5205C7D2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +543,8 @@ VA - Progressive Music (20.02.2012) [MP3|320 kbps]<Progressive House>
 ```bash
 magnet:?xt=urn:btih:CDD9F888C57903B51D72C45C78B504CF348DEA84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +579,8 @@ VA - Minimal Art v.11 (19.02.2012) [MP3|320 kbps]<Minimal>
 magnet:?xt=urn:btih:25E95BCE5B94CBE4FCC3C63E090C95714D07F61F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +608,8 @@ Ronnie Romero - Voice Of Rock - Compilation (2012-2025) [MP3|320 Kbps] <Hard roc
 magnet:?xt=urn:btih:7BB18F9748D72228D3C856B875B0EF69AA962404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +636,8 @@ VA - Music News For Forum vol.137 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:5A951F68EAFFD320861B687D6F092E32404A276E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +669,8 @@ VA - Drum and Bass Deafening (2012) [MP3|256~320 кб/с]<Drum and Bass>
 ```bash
 magnet:?xt=urn:btih:4A51B7F9D0FEAEA4AAE2A68D0A74B077B57BF277
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -665,6 +705,8 @@ VA - The Official UK Top 40 Single Charts (19.02.2012) (2012) [MP3|320 кб/с]<
 magnet:?xt=urn:btih:10ECA95B8F25537E26E2956702D6ABAA711DF317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +739,8 @@ VA - Dubstep Boom Vol.2 (2012) [MP3|320 кб/с]<Dubstep>
 ```bash
 magnet:?xt=urn:btih:9A424BE65B1C3A19DB55B21DE723919BD9B48BD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -731,6 +775,8 @@ VA - Trance Maniacs Party: Melody Of Heartbeat 75 (01.03.2012) [MP3|320 кб/с]
 magnet:?xt=urn:btih:09CDF84AD2F291D11B9F53ED457632D854889AE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -764,6 +810,8 @@ VA - Trance Eve Volume 23 (03.03.2012) [MP3|320 кб/с]<Uplifting Trance, Vocal
 magnet:?xt=urn:btih:5282A4076641D7CCF417BB6363F09D8269536814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -790,6 +838,8 @@ VA - Seashore Desire #23 (2012) [MP3|320 kbps] <Uplifting Trance, Dream Trance, 
 ```bash
 magnet:?xt=urn:btih:1B2E0B25A7C1C6BA98DC3EA132AFDE5726A0CFB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -823,6 +873,8 @@ VA - Trance. Vocal Fascination 14 (06.03.2012) [MP3|320 кб/с]<Uplifting Tranc
 ```bash
 magnet:?xt=urn:btih:45E09C4AC6EFF38F0C1E4EE6C256BFEBB8CF268C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

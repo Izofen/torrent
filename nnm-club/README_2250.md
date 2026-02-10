@@ -21,6 +21,8 @@ App Manager обладает красивым пользовательским �
 magnet:?xt=urn:btih:95FDA371CA84D8D298E02F9F88B86E2F55C5C25F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:95FDA371CA84D8D298E02F9F88B86E2F55C5C25F
 ```bash
 magnet:?xt=urn:btih:43BCDB727C8AD7B710E338863EEE965D94C6D36E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:43BCDB727C8AD7B710E338863EEE965D94C6D36E
 magnet:?xt=urn:btih:5914C23DBDA50D6B7F128F74A614384F3CD38502
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:5914C23DBDA50D6B7F128F74A614384F3CD38502
 ```bash
 magnet:?xt=urn:btih:6B660A4EC6852C3281329B8411793E3A52A84A75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Astria Ascending (2021) [Multi] (1.0.154/dlc) License GOG [Digital Collector's E
 magnet:?xt=urn:btih:0E5F8EA2BE35497EF7AACCCCAF6A625120C86CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Agatha Christie Hercule Poirot: The London Case (2023) [Ru/Multi] (1.0.7) Licens
 ```bash
 magnet:?xt=urn:btih:EE7DA14EF29B29F2170746FE02FA4590CC2FA5CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:EE7DA14EF29B29F2170746FE02FA4590CC2FA5CD
 magnet:?xt=urn:btih:724CF220857C5CD139338D4EE7E0CA1A36B2B9C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:724CF220857C5CD139338D4EE7E0CA1A36B2B9C5
 ```bash
 magnet:?xt=urn:btih:CAF744D47F2EF7BC6A42C4980A15AA267CD653E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:CAF744D47F2EF7BC6A42C4980A15AA267CD653E2
 magnet:?xt=urn:btih:1EEADE3E6CE6C78277EC978301898B9ACA2507EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Scars Above использует научно-фантастический се�
 magnet:?xt=urn:btih:EB5B4505E83A9C55CAFEB098E7B2B3FD7014C2DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:EB5B4505E83A9C55CAFEB098E7B2B3FD7014C2DE
 ```bash
 magnet:?xt=urn:btih:F835FE2B88753871BF300AACADB517495B2E3B36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Part 1 (Discoteka):
 magnet:?xt=urn:btih:B0211F234FAAAF0FCFF473BB7EBC47184E29F769
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ World Turtles - это увлекательная средневековая г�
 ```bash
 magnet:?xt=urn:btih:8F8CCA07EFFF045C8900D54B89AB6210B2ED022F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Malwarebytes Windows Firewall Control - утилита, с помощью кот
 magnet:?xt=urn:btih:CB0C50D7D99D546433E73236C0B8BE1A7CB7B7F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:CB0C50D7D99D546433E73236C0B8BE1A7CB7B7F4
 ```bash
 magnet:?xt=urn:btih:CD8C9126B7596670B58952B4FD96BF7417A335ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:CD8C9126B7596670B58952B4FD96BF7417A335ED
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ The Repair House: Restoration Sim - это умиротворяющая и за�
 ```bash
 magnet:?xt=urn:btih:9A493992B01F72B96B2EC12C0244BBDF7626B9B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Knights and Guns - аркадное приключение, выполненно
 magnet:?xt=urn:btih:CAADC894DFD58C5E45C4A458B42BE93326C870B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ My love with the GirlsGroup (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:C0FB1E1842EAED19A90F4CA672ECD09986B695B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:C0FB1E1842EAED19A90F4CA672ECD09986B695B7
 magnet:?xt=urn:btih:C94B6F63C2E50664645B3C8E14442933215E8EB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:C94B6F63C2E50664645B3C8E14442933215E8EB0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Vampire - The Masquerade: Bloodlines - компьютерная игра в жа
 ```bash
 magnet:?xt=urn:btih:968DB5BEB195B1C71E224AC54B56ADC837FDFFDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:968DB5BEB195B1C71E224AC54B56ADC837FDFFDE
 magnet:?xt=urn:btih:0937EE4F1E2BC8C0C2F9A8DBF99D793044D51891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ FarCry по-русски это мод, сделанный на движке cry
 ```bash
 magnet:?xt=urn:btih:EBF4456616A23B768689A3A5A8164CCD422AFF77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:EBF4456616A23B768689A3A5A8164CCD422AFF77
 magnet:?xt=urn:btih:3D645C99F40A1DF294D21696154B53C3BAFA9299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:3D645C99F40A1DF294D21696154B53C3BAFA9299
 ```bash
 magnet:?xt=urn:btih:0C62CAEFC940639341D15BEEB3DC2EB3A6281ED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

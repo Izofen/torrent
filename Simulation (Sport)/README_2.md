@@ -19,6 +19,8 @@ Project Hunt - приближенный к реализму симулятор �
 magnet:?xt=urn:btih:4872FD855F0E9907C8262BFEF9F765BEC5C28942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Hunting Unlimited 2 - симулятор охоты от компании SCS So
 ```bash
 magnet:?xt=urn:btih:55C87BA7B46425594067147449AFC7556C4534DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Hunting Unlimited 4 - симулятор охотника, являющийся 
 magnet:?xt=urn:btih:6BE3B739C58629D49AAE856522350404B2D05A16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Hunting Unlimited 3 (2004) [En] (1.0) License ELEGANCE
 ```bash
 magnet:?xt=urn:btih:2D65EBA517E4E86826BD2A8800C5E3C8FB0C8947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Hunting Unlimited 2009 - охотничий симулятор, часть пр�
 magnet:?xt=urn:btih:DAF9675B39BC5013BA39A52A3754525D030A8EE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Dungeon Golf, объединяющая мини-гольф и подземель
 ```bash
 magnet:?xt=urn:btih:BDA18E6BB32E2DCFE5D3778F5A5D39DB9B216740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Barton Lynch Pro Surfing 2022 – спортивный симулятор, пр�
 magnet:?xt=urn:btih:3F0170E84FD7415B3C92D5B2C61017145FA71E10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ PES 2016 - официальная видеоигра Лиги чемпионов
 ```bash
 magnet:?xt=urn:btih:661951DAD05F8C6C61B7999B2CD25B8E10E434FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Hydrofoil Generation перенесет вас в мир парусного сп
 magnet:?xt=urn:btih:792EAB3CFD608157FC799AEC3A612F8EE06C25BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Shaun White Snowboarding (2008) [Ru/En] (1.01) Lossless Repack R.G. Origami
 ```bash
 magnet:?xt=urn:btih:27D612129CF2A9415D58CD1EF9D1E8B46A4FFFEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Shaun White Skateboarding призывает Вас превратить окр�
 magnet:?xt=urn:btih:233CBEC5DCE0E15325D917B99D2A5A2EF2D939A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ TT Isle Of Man: Ride on the Edge 3 (2023) [Ru/Multi] (20231109/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:B764C32D55E377231D4C9CFB967B5CC180F02B09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ MXGP 2020 - The Official Motocross Videogame (2020) [Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:3BC5BB1626D0717B4494BD560BFCC70FD4E3FD7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ WWE 2K20 (2019) [Multi] (1.08/dlc) Repack xatab [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:FE4E96C97DD2C4A3DAD6E4025E695C77E91301C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ WWE 2K23 – это симулятор профессионального рес
 magnet:?xt=urn:btih:FB2305CDF0FBDB5CD2A2197A96AFD848AD6FAB5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Tony Hawk's Pro Skater 1 + 2 (2023) [Multi] (1.0/dlc) Scene Rune [Digital Deluxe
 ```bash
 magnet:?xt=urn:btih:1484E5ADED3841F94213F0653E69650D97FDC421
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ FIFA 07 (2006) [Ru/Multi] (1.00) Scene iMMXpC
 magnet:?xt=urn:btih:DA175059B9FC5D3C3B46DD5026DE7CD67ACEB1BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Mountain Bicycle Rider Simulator (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:EE5D4E4363BBC7D572B29FC3204C4D94CA63336C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Charrua Soccer - это аркадная игра, наполненная экш
 magnet:?xt=urn:btih:AC8C9ABFBACBDB177A42B839F7BC88EBEA826245
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ WildTrax Racing заставляет виртуальных гонщиков в�
 ```bash
 magnet:?xt=urn:btih:2ADD6740F988E691D408B47616571361D926B000
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Incredi Beachvolleyball / Улётный пляжный волейбол (2008) 
 magnet:?xt=urn:btih:A4022E81ABE0CF97B81C479D721FCEABDD10D1BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ WWE 2K23 – это симулятор профессионального рес
 ```bash
 magnet:?xt=urn:btih:D1786D8FE224F2A011D26C7C0848B21D41049682
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ MotoGP 23 (2023) [Multi] (1.0/dlc) Scene Rune
 magnet:?xt=urn:btih:799440E0B742F665F218AD62C61E6F6CD9B33CCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Tennis Manager 2023 - это проработанный спортивный с�
 ```bash
 magnet:?xt=urn:btih:0CDBD8DC649C35BA5BB0E2C68F041CB3C68282D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ World Championship Boxing Manager 2 является продолжением в
 magnet:?xt=urn:btih:9333A2063620729E925EEE185EB560E1F7362C0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Franchise Hockey Manager возвращается в сезоне 2022–2023 г
 ```bash
 magnet:?xt=urn:btih:10A3773B052F79055A99C3B032F853FA21A36AC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Ui Kits - UI8 - Lumen Loops [SVG, WEBM, MP4, FIG]
 magnet:?xt=urn:btih:D58A4373D0EBD5BE571649877DCDCA3E41D91CE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Virtual Brain — это приложение чат-бота на основе 
 ```bash
 magnet:?xt=urn:btih:A1142E5FA6F65C5EA1745960527A116055235D12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Marz — это не просто набор пользовательского 
 ```bash
 magnet:?xt=urn:btih:7604D54FDAE2582ED58EB23CDF0B725A1B6C1223
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Oxtopus — это элегантное и удобное мобильное п�
 magnet:?xt=urn:btih:2B53DB5D590FA73A6AF16E667FBD275A254752AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Arch — это передовой современный шаблон в сфе
 ```bash
 magnet:?xt=urn:btih:76CACCFF973D3F4CCA8136D6F4CE5F33CE960892
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Travela — это комплексный набор пользовательс�
 magnet:?xt=urn:btih:185E5A28B11270F3CCEF96CF370CDCF1D479CB79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Ui Kits - UI8 - Farmiant - Farming Assistant App UI Kit [FIG]
 ```bash
 magnet:?xt=urn:btih:2384005B9FF97E7C96D09CC7D672B56E17BE2CA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ HotelQu — это UI-кит для мобильного приложения б
 magnet:?xt=urn:btih:7EA82937FA33A91026B4AF1C0520B2812BCB91C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Frequency — это современный и минималистичный ш
 ```bash
 magnet:?xt=urn:btih:AA41C9BEEDF182DB6212B82DB72A65B1233EBD20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Lodgify — это премиальный и высококачественны�
 magnet:?xt=urn:btih:C9F55110D4E08914219D419D7973DA7EC28A7624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Ui Kits - UI8 - NutriMart - Grocery Shopping App UI Kit [FIG, XD, SKETCH]
 ```bash
 magnet:?xt=urn:btih:B2413F11943F0F0E71FEAA09F941A06884163CA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ Akshan - Furniture E-Commerce UI Kit с более чем 13+ премиум-э�
 magnet:?xt=urn:btih:DE0EA328B87A33C560C0705BAEDF664D8B6B9C8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Ui Kits - UI8 - UI KIT | AI Art Generator App - bento & glassmorphism style [FIG
 ```bash
 magnet:?xt=urn:btih:F62E1FCDC28A9D9EF2E8E06C0FCBA7135048F08F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Dolphin VPN — это премиальный и высококачествен�
 magnet:?xt=urn:btih:5A2269153DE02C3925E09B70FED89BC4B2FA9D9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Ui Kits - UI8 - Lumine - Minimalistic Brand Guidelines [FIG]
 ```bash
 magnet:?xt=urn:btih:3E0D23FF77C40DE028368EDBBEAAD3A43693E712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ Ui Kits - UI8 -  ANXOE.AI – AI Personal Assistant Dashboard UI Kit [FIG]
 ```bash
 magnet:?xt=urn:btih:1DC6A82E49EBDBC279020A58BE1E40DF3E7BF493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ Elementor - это современный визуальный конструк�
 magnet:?xt=urn:btih:42EAD1C5345DCA241D317ACE5E0E2C63A998D7D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ Synapz — это современный UI-комплект с темным р�
 ```bash
 magnet:?xt=urn:btih:CD227DED033226859C4AFE3FCD37638D42EC62DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ Fodidi — это набор UI-элементов для приложений �
 magnet:?xt=urn:btih:A5CE05497E3529B7FFED5DCE19805CC15D27AA7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ Core помогает дизайнерам быстрее и проще разр
 magnet:?xt=urn:btih:84BE4BFFAAFF713183759D38376412A6BEC439EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ Ui Kits - UI8 - Landing page Bundle [FIG]
 magnet:?xt=urn:btih:7FD1A64C212F02909794EAB71EFECB07C2C5FC60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ SkrinUI — это универсальный набор пользовател�
 ```bash
 magnet:?xt=urn:btih:6070BF8AA866A704D3851A423EA4B4AC418C3C43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ Ui Kits - Creative Market - Buttons and Switches - Mega UI V1 - 291442093 [PSD]
 magnet:?xt=urn:btih:A20F79D707B94479253A8C9A828B5E674283C259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:A20F79D707B94479253A8C9A828B5E674283C259
 ```bash
 magnet:?xt=urn:btih:BF931FFC7BE8367EDDFC8D1A182C434B4CF787C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ magnet:?xt=urn:btih:BF931FFC7BE8367EDDFC8D1A182C434B4CF787C8
 magnet:?xt=urn:btih:700A71017A9CA251A3C204CDEEF7A3C5DF10B99B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Zior iOS App Ui Kit разработан специально для интер�
 ```bash
 magnet:?xt=urn:btih:DF7A7F5FA63E1703B71DDADF8C4E18222D0FF3C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

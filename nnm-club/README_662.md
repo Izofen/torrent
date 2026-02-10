@@ -22,6 +22,8 @@ Orchestral Manoeuvres in the dark - Bauhaus Staircase (2023) The Complete Editio
 magnet:?xt=urn:btih:478B0DFD616C99764916D205C1FE9B2BC1FADAFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:478B0DFD616C99764916D205C1FE9B2BC1FADAFB
 ```bash
 magnet:?xt=urn:btih:93F3600517953CD43CECE28F598B2679E0F792CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:93F3600517953CD43CECE28F598B2679E0F792CB
 ```bash
 magnet:?xt=urn:btih:984F1E601D8B456D6DFD185009141496B11EF9E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Groove Armada - Black Light 15th Anniversary (2010) 2025 15th Anniversary Deluxe
 magnet:?xt=urn:btih:7FA2094953F36889257A2F8BDBAADF1B33E93F4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ Boney James - Morning Sax (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 magnet:?xt=urn:btih:CBFB2B912F0B602211C775A98AE65E2F7C01699F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:CBFB2B912F0B602211C775A98AE65E2F7C01699F
 ```bash
 magnet:?xt=urn:btih:9F3852A058722F68C9D1D92AB1F56C35DD4AD502
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ Dizzy Gillespie - Jambo Caribe (1964) 1998, Verve Records [FLAC|Lossless|tracks 
 magnet:?xt=urn:btih:4F6570EC2DF98CFE7DDA6A4A63583562890AA0B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:4F6570EC2DF98CFE7DDA6A4A63583562890AA0B6
 ```bash
 magnet:?xt=urn:btih:C0BC07E089A564E72D1EB5C4C422176B9D46AFCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ CD1:
 magnet:?xt=urn:btih:536C60F0C31492759DDB69E437F9C0489B8E0E69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:536C60F0C31492759DDB69E437F9C0489B8E0E69
 ```bash
 magnet:?xt=urn:btih:EA4BBE59ED713EAA8B5C27C185F6B5E4091A78CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:EA4BBE59ED713EAA8B5C27C185F6B5E4091A78CB
 magnet:?xt=urn:btih:CFEF4BC5A29C99ED062232E3E430160EA00F6F08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:CFEF4BC5A29C99ED062232E3E430160EA00F6F08
 ```bash
 magnet:?xt=urn:btih:9250983AFDD79F5DC1C2872392609506677C4E21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ Offline Translator - это автономный переводчик
 magnet:?xt=urn:btih:40FB3AD67F7E61E301AF606A9945C14B4A34DD60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ S.T.A.L.K.E.R.: Legends of the Zone Trilogy (2025) [Ru/Multi] (1.7.0.12606) Repa
 ```bash
 magnet:?xt=urn:btih:A69DCEDD4EA98312CB53D8C9410688B89C9C3C7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:A69DCEDD4EA98312CB53D8C9410688B89C9C3C7F
 magnet:?xt=urn:btih:25C9106338C370BC46D4986D56F49F04966080DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ Face Swap - AI Photo Editor v1.4.1 Mod by MixRoot [Multi]
 ```bash
 magnet:?xt=urn:btih:7C8BE85B12068F7309921B721B3B4B84DAE06861
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ Lycoris Recoil: Friends Are Thieves of Time. / Ликорис Рикойл: Др
 magnet:?xt=urn:btih:F545457B5C102505E5641B51A2DD004C2BFA1242
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Yofukashi no Uta | Call of the Night | Песнь Ночных Сов [2022, TV,
 ```bash
 magnet:?xt=urn:btih:AB7F46A8FC88DEF8369E33B71411F1FE5AC890BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 magnet:?xt=urn:btih:EB9754F381B47E82A9A143890ECC844FC297D094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:EB9754F381B47E82A9A143890ECC844FC297D094
 ```bash
 magnet:?xt=urn:btih:6B75FB2C11927A2F6C03E42D035FE8F768B89545
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ VA - Blues ballad positive (2025) [MP3|320 Kbps] <Blues, Slow Blues, Instrumenta
 magnet:?xt=urn:btih:763DC7B647B660C9F1A6B5B073B37892024136F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:763DC7B647B660C9F1A6B5B073B37892024136F4
 ```bash
 magnet:?xt=urn:btih:5771449F094C8FBCB17A575F20CAF755CDEDA43F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:5771449F094C8FBCB17A575F20CAF755CDEDA43F
 magnet:?xt=urn:btih:EA92344897EC3AD10AFE5F4C5D6B4DD8C791323F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:EA92344897EC3AD10AFE5F4C5D6B4DD8C791323F
 ```bash
 magnet:?xt=urn:btih:5862993F5905FE1D07039C034E69B4E45981E0B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:5862993F5905FE1D07039C034E69B4E45981E0B7
 magnet:?xt=urn:btih:19729A86C31ABEF19DE50A419E86931D5DF69742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ Katie Workman & Robin Miller | Готовим в будние вечера (2024
 ```bash
 magnet:?xt=urn:btih:9E3BAEB0976B7E5504C1EBBD53A6D7BBFC2AD2F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

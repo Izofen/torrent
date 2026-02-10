@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:66EF4DE3A5B7CDCF97D9D583A252074B540151F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Journey to the Savage Planet (2021) [Ru/Multi] (1.0.10/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:4FE5AC4870BD34214532BB6B709FBC1F06D3176D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 magnet:?xt=urn:btih:862479FEE8F7C832ABCD9382F2BA55C8514A3EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Eugen Qu | Тёмный маг (2025) [FB2, PDF] [Авторская разда�
 ```bash
 magnet:?xt=urn:btih:A7FE262E4C83A30EB38D2428F0C264330F355A90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Colony Ship: A Post-Earth Role Playing Game - пошаговая ролевая 
 magnet:?xt=urn:btih:9FF1FCDEAD0568775637CA3745E37998378E1EAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:9FF1FCDEAD0568775637CA3745E37998378E1EAC
 ```bash
 magnet:?xt=urn:btih:CD194BEA8C8A0ECA2D85F4D292661C8E0D7652E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:CD194BEA8C8A0ECA2D85F4D292661C8E0D7652E6
 magnet:?xt=urn:btih:13A09AF6CC4A6FAA72C8C967E0BD1459E89E2D17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:13A09AF6CC4A6FAA72C8C967E0BD1459E89E2D17
 ```bash
 magnet:?xt=urn:btih:B386796BB0AFC8E0A7B7818B0A5C87D5410EB9DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:B386796BB0AFC8E0A7B7818B0A5C87D5410EB9DC
 magnet:?xt=urn:btih:27632C20B25B9133921B8321BC74294E617E20AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Revita (2022) [Multi] (1.0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:29420C88C2063A107FF96A8449780E4A85BA6E27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:29420C88C2063A107FF96A8449780E4A85BA6E27
 magnet:?xt=urn:btih:F206F0A983B048EE359A5E0DD1FF41A5DC223F3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:F206F0A983B048EE359A5E0DD1FF41A5DC223F3C
 ```bash
 magnet:?xt=urn:btih:3637BA6CA88152F84AE5E11B02B2D99851AA295B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:3637BA6CA88152F84AE5E11B02B2D99851AA295B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:3637BA6CA88152F84AE5E11B02B2D99851AA295B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:3637BA6CA88152F84AE5E11B02B2D99851AA295B
 magnet:?xt=urn:btih:F3CF639CA8BDB5CBCDD86A5DEE45A6B208FF4C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:F3CF639CA8BDB5CBCDD86A5DEE45A6B208FF4C5F
 ```bash
 magnet:?xt=urn:btih:6067CF63AA340C349ED900D4FFF7ED6FD103B004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Mötley Crüe, Quiet Riot сформировавшая лос-анджелесс
 magnet:?xt=urn:btih:254C80D4C6A185178D3E4BD71082E099CD20673E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Microsoft анонсировала серьезные изменения в ра
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ BBC: Я и гравитация. Сила, формирующая нашу жи�
 magnet:?xt=urn:btih:55ED6ED8E918C440213235B2521D45050A129884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:55ED6ED8E918C440213235B2521D45050A129884
 ```bash
 magnet:?xt=urn:btih:A3A557373287CBB44BB7E6DDA711F0B0CF5800F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:A3A557373287CBB44BB7E6DDA711F0B0CF5800F2
 magnet:?xt=urn:btih:77415CB4143C6E023176D7BE3EF25F86D4519A80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:77415CB4143C6E023176D7BE3EF25F86D4519A80
 ```bash
 magnet:?xt=urn:btih:31D686EB750B5E94EDED21A60619F437469E6378
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:31D686EB750B5E94EDED21A60619F437469E6378
 magnet:?xt=urn:btih:F659ECEC21A4F22ED4F040F8CA5CC28AC1451B58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:F659ECEC21A4F22ED4F040F8CA5CC28AC1451B58
 ```bash
 magnet:?xt=urn:btih:0883A980F28D9AF703336857D7FD77A24F02D661
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ MultiTimer - это простое и универсальное таймер-п
 magnet:?xt=urn:btih:E5B7522E4B892441D904D585C1E8C7041D3FD650
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Summer Wars | Летние Войны [2009, Movie] BDRemux 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:F0E74C7BF543E27A3F954C53349251A502AB63EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

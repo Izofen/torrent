@@ -19,6 +19,8 @@ Hammer: Герои, легенды и монстры / Hammer: Heroes, Legends a
 magnet:?xt=urn:btih:68837F38644AAAE0B14C964D271E4A531C6760AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:68837F38644AAAE0B14C964D271E4A531C6760AC
 magnet:?xt=urn:btih:F7ECA46F929049D11C58C6247D70382838299E67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:F7ECA46F929049D11C58C6247D70382838299E67
 ```bash
 magnet:?xt=urn:btih:C3FEF13BECE36A165AFF10181A3FA9063D062BF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:C3FEF13BECE36A165AFF10181A3FA9063D062BF0
 magnet:?xt=urn:btih:936EC8CBD438FDEBF60C860C61A1AF30755323AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:936EC8CBD438FDEBF60C860C61A1AF30755323AA
 ```bash
 magnet:?xt=urn:btih:7E3958BC0F998A45D9E4F1A58CB67D1CE0AE152D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:7E3958BC0F998A45D9E4F1A58CB67D1CE0AE152D
 magnet:?xt=urn:btih:2A66FD0DAF025224F4A7FABB9C09BB4CC24C54CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:2A66FD0DAF025224F4A7FABB9C09BB4CC24C54CB
 magnet:?xt=urn:btih:C8527F232ABA423477166D16258961FC708AC1DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:C8527F232ABA423477166D16258961FC708AC1DD
 ```bash
 magnet:?xt=urn:btih:89EBA8A05F76E83CB0E7542B9B9E3C8FD9169391
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:89EBA8A05F76E83CB0E7542B9B9E3C8FD9169391
 magnet:?xt=urn:btih:EB87B86F379918D7F4529A4DAF39105B10E2E464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:EB87B86F379918D7F4529A4DAF39105B10E2E464
 ```bash
 magnet:?xt=urn:btih:869D799D23900364DE147E559A824CF3C25193EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:869D799D23900364DE147E559A824CF3C25193EE
 magnet:?xt=urn:btih:8D93BF8B290E4334546A6CBA71026392F012110C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:8D93BF8B290E4334546A6CBA71026392F012110C
 ```bash
 magnet:?xt=urn:btih:E14BDB8E5461DC7A98B2AE4DC07508C7B18D5BAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:E14BDB8E5461DC7A98B2AE4DC07508C7B18D5BAB
 magnet:?xt=urn:btih:12810D122489CD12AA63E6F45C15E537E383AE03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:12810D122489CD12AA63E6F45C15E537E383AE03
 ```bash
 magnet:?xt=urn:btih:2CD80E57283B1732E87F5D7EBBAD7F547DCD4F6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:2CD80E57283B1732E87F5D7EBBAD7F547DCD4F6B
 magnet:?xt=urn:btih:D547D0DC5C8D3BE56194F5859397A163DA526B07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:1428CA3ED21E2D6A5677F33CD5481660E5079D32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:1428CA3ED21E2D6A5677F33CD5481660E5079D32
 magnet:?xt=urn:btih:63DE54DF41DAA70D98F839DFFA4B4D356043D4D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:63DE54DF41DAA70D98F839DFFA4B4D356043D4D4
 magnet:?xt=urn:btih:0DC55EFB52EAA7DAAF2AE63A1B99553246372437
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:0DC55EFB52EAA7DAAF2AE63A1B99553246372437
 ```bash
 magnet:?xt=urn:btih:EF48E2E66569CF366338DA92CF940BF420531CA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:EF48E2E66569CF366338DA92CF940BF420531CA7
 magnet:?xt=urn:btih:4AAB1A6ECD5D22C459005A21CDC6EC4DCF75F03E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:4AAB1A6ECD5D22C459005A21CDC6EC4DCF75F03E
 magnet:?xt=urn:btih:31FD5E91118E0E5205F85C037F6759C25E030E3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ RAR - это консольное приложение, позволяющее �
 ```bash
 magnet:?xt=urn:btih:6E4ABAAE565BA0782B83A1503B91E87BC8243D33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:6E4ABAAE565BA0782B83A1503B91E87BC8243D33
 magnet:?xt=urn:btih:037B91982B74D9BF0322A68E3355B5DD4B03A1CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Shields of Loyalty - это пошаговая стратегия в мире т
 ```bash
 magnet:?xt=urn:btih:D27D5E6B96B9548F349EEEF60BB25B68B9CDAEE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Side A:
 magnet:?xt=urn:btih:91C2EE03AFD15369DE3FD346C3A0D2C62AA10E5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:91C2EE03AFD15369DE3FD346C3A0D2C62AA10E5E
 ```bash
 magnet:?xt=urn:btih:962039FFF6A64C77BAB275ABDC18D406EB7DFC5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

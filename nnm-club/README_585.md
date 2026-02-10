@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:8EA8538A2979B356D8DE29A73063F0A988EF880C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:8EA8538A2979B356D8DE29A73063F0A988EF880C
 ```bash
 magnet:?xt=urn:btih:26E5B1424B24B9CB46E486CB0BDC67812BB1877B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Queen Latifah - Trav'lin' Light (2007) CD, Album, Club Edition [FLAC|Lossless|tr
 magnet:?xt=urn:btih:0395799C592EBDE8293469EC17A05BD74910DABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ When Rivers Meet - Addicted To You (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <R
 ```bash
 magnet:?xt=urn:btih:4FB10FE0CADCA29D1E4CEEA58F9B3A031D0AAAA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:4FB10FE0CADCA29D1E4CEEA58F9B3A031D0AAAA2
 magnet:?xt=urn:btih:0361416D9F5A9109A497753EE03A7CA3EB99C833
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:0361416D9F5A9109A497753EE03A7CA3EB99C833
 ```bash
 magnet:?xt=urn:btih:8B2619B6B2A03A5E5EA6323F2B068E2F36193289
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ Angel Ice - Play It Hard Play It Loud (2025) [FLAC|Lossless|WEB-DL|tracks] <Heav
 magnet:?xt=urn:btih:D2C27BED58A38344641267A65481BEBD6C8C041F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ Gary Hoey - Avalanche (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:56CD0F6690292DD5B233F0C9B95A0B7DEDD2141C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +248,8 @@ Mark Murphy - Love Is What Stays (2007) Verve Records [FLAC|Lossless|tracks + .c
 magnet:?xt=urn:btih:3E5E8EECAC1761B25B134A1DA45E3FEE1050B266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +276,8 @@ Joe & The Regulators - Are You Regulated? (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:CE534CCC220CAEFA846AE584758792A03683BB41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +306,8 @@ Omen - Kell az ima (2025) [MP3|320 Kbps] <Power, Thrash, Speed Metal>
 magnet:?xt=urn:btih:1907D818A22E634298030C8E31555C3F3A8D6909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ Keb' Mo', Taj Mahal - Room On The Porch (2025) [FLAC 24/48|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:72295E5C38255FF1A3B1D87B801A7E65A2A597F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +364,8 @@ Joe Kelly & The Royal Pharmacy - Cast Me Down (2025) [FLAC 24/44.1|Lossless|WEB-
 magnet:?xt=urn:btih:B988FA8F49043590C433E71B543E3501B68A4A52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +393,8 @@ Edgar Blues Trio - SHINE (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Roc
 magnet:?xt=urn:btih:91AA2CDB7D25F2C0D5CD51CB968EAAA6E8D3F7EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +418,8 @@ magnet:?xt=urn:btih:91AA2CDB7D25F2C0D5CD51CB968EAAA6E8D3F7EC
 ```bash
 magnet:?xt=urn:btih:1AD1B4E6624CC57DEF1433FA4A849E9595ADF288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +445,8 @@ Picsart AI Photo Editor, Video v27.6.5 Final Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:1D14F82A5668AFE00496AE47E4A0ED8702CA15DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +470,8 @@ magnet:?xt=urn:btih:1D14F82A5668AFE00496AE47E4A0ED8702CA15DF
 ```bash
 magnet:?xt=urn:btih:7125581D0D8BA8897C6AAA7C45FB744E6676B10A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +500,8 @@ VA - Music News For Forum vol.099 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:DE81DCE4482CE11B92AC800326304C2CF5536DFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +526,8 @@ magnet:?xt=urn:btih:DE81DCE4482CE11B92AC800326304C2CF5536DFE
 ```bash
 magnet:?xt=urn:btih:864CE8A66236CAE60C03B1B657F6EAB45502ED63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +554,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:82CE13B9D57704A3F5CB22658DC87363EA8CF8E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +579,8 @@ Arturia - MiniFreak V 4.0.1 STANTALONE, VSTi, VSTi 3 (x64) [En]
 ```bash
 magnet:?xt=urn:btih:B23BF6983B917F68F1FD541C3F1FFFD1D74FC4EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +606,8 @@ magnet:?xt=urn:btih:B23BF6983B917F68F1FD541C3F1FFFD1D74FC4EA
 magnet:?xt=urn:btih:5D85638BE42DAB2B3F36FBD26B68CABEACCF521A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +632,8 @@ magnet:?xt=urn:btih:5D85638BE42DAB2B3F36FBD26B68CABEACCF521A
 magnet:?xt=urn:btih:67A6D8A3AFC7D86D22D4F74472A84DCF211AD645
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +657,8 @@ magnet:?xt=urn:btih:67A6D8A3AFC7D86D22D4F74472A84DCF211AD645
 ```bash
 magnet:?xt=urn:btih:FEAC88B59E6FCDE7B5D76528D40EFC267D7347B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +687,8 @@ magnet:?xt=urn:btih:FEAC88B59E6FCDE7B5D76528D40EFC267D7347B6
 magnet:?xt=urn:btih:8CED7EFC35D7841D6D3CAF4D5CB80B9F6BB4DBEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +715,8 @@ Jeff Lynne's ELO - Wembley or Bust (2017) [FLAC|Lossless|image + .cue] <Progress
 ```bash
 magnet:?xt=urn:btih:AC6C13BAFD9AA4F92FAECCBE3F14FA63228D6586
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

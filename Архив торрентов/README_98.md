@@ -19,6 +19,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:3C12AF46FD92B39EEAD492EF4D2F0DCB21697C97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ CopyQ это легкий, но многофункциональный мене�
 ```bash
 magnet:?xt=urn:btih:52B9F0AD4E949C28296EB70919ABB96391227FBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ SketchUP Pro - является профессиональной версией 
 magnet:?xt=urn:btih:E554F6D09491E45E21C435F17B90058812F11698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:F34C081EBCF61DD9C6A08D3032F6AE19F24AE448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Microsoft® Windows® 10 x64 Ru 22H2 4in1 Upd 03.2025 by OVGorskiy
 magnet:?xt=urn:btih:92639233306D9766B6A2D2681D5F444ED09D6CE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Alfa eBooks Manager - одна из самых популярных програ
 magnet:?xt=urn:btih:7F7E271DB2613D595715E6DF6A53920607A467DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ AIMP 5.40 Build 2668 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:121EF18F05AD8D0CC4AF903C3F1333AA4300A1C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ GPS Локер создан для того чтоб не терять фикс�
 magnet:?xt=urn:btih:5D492E1D6D4200D8F532980E7BCD3B45C99C6162
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Shazam (шазам) распознает любую песню за секунд
 ```bash
 magnet:?xt=urn:btih:AE7B55D2E71B2559826393F185CE38EF36711F0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Sleep as Android: отличный сон v20250220 Mod by Alex.Strannik [Ru/Mul
 magnet:?xt=urn:btih:71D057A747556F27F3F7737315FE607E8B7DBF91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ EF Commander  — замечательный двухпанельный файл
 magnet:?xt=urn:btih:A1859045E36E911B3D04A49A6FBF5E8A7897F92F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Instant Translate On Screen — это мощное приложение для 
 ```bash
 magnet:?xt=urn:btih:4C6E233EE58E7654406FAB259BC98C7634D0C3CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ EmEditor Professional - профессиональная версия мощно
 magnet:?xt=urn:btih:68240C0F671702FEC5CFF4F70210E4233E417F08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ digiKam — фото-менеджер для Windows — программа дл
 ```bash
 magnet:?xt=urn:btih:946551EC0ED8882F8435E4035AF694EF85AA6B9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Rosetta Stone: Изучение языков v8.32.1 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:22E981980FD2CDB0964FDBC15AAFA308F3C88B15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ MobaXterm - это комплекс утилит, в котором есть в�
 ```bash
 magnet:?xt=urn:btih:FFABFA3AB273D52CFE69679D056E974F25693D2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ FurMark 2 является преемником почтенного FurMark 1..
 magnet:?xt=urn:btih:A0C00909FB1F2FA5B4019F7148A7878971DC6BB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:7D412538FE89FEBF6CBB35C8FF78D62A2FAA9BF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ iTubeGo YouTube Downloader 10.2.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:4FB9C355C0AC65E6C4D0849DB25CB44B3C4671D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:DAE67FD76EF681A3E5550AE4921953D0BD204C6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:01B11CCEE97A823396683C00B7598BED90E97A44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ CoolUtils Total HTML Converter - это решение профессионал�
 ```bash
 magnet:?xt=urn:btih:7D64DF7C634CDF3CE2219D9D153B16754C8EBE75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Chaos Vantage 2.7.1 [En]
 magnet:?xt=urn:btih:743BD3960DC2A2B8101FEE25949AFCC2B9AC73F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ FxSound (ранее DFX Audio Enhancer) - отличное приложение,
 ```bash
 magnet:?xt=urn:btih:6E61D40E5A1A41B4E2C1F2428C8A491E5C8E88C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:87C3E562D672F59D805183A5A43D77214423A548
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Life is Strange: Double Exposure (2024) [Ru/Multi] (1.0.3) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FC4D810AE57C0DFC2BF5D6C2D86326A651A19576
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

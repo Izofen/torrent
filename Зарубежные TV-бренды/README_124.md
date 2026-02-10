@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:99EFBF3D0B7220385CDD95C50C1FF45CD5E9B24F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PBS. Секреты Колизея / Colosseum. Roman Death Trap (2015) WEB-DL [
 ```bash
 magnet:?xt=urn:btih:99F4ABEC864CB984481528CD601C649D0BE8B852
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC: Не могу выбросить тебя из головы / Can't Get You
 magnet:?xt=urn:btih:3E4EC1CA9F498E9E9584E5E0C0BE82279CF21721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ NG. Человек против акулы / Man vs Shark (2019) WEB-DL [H.264/1
 magnet:?xt=urn:btih:F512568C5CDC4EB90B21D79F3BF5CBA56955003A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ NG. Огромная акула-молот / Mega Hammerhead (2016) WEB-DL [H.26
 ```bash
 magnet:?xt=urn:btih:C555FD26D3E46119982958337BEE7E183AC9A742
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ BBC. Связанные: Шесть ступеней отдаления / Connec
 magnet:?xt=urn:btih:FF42AB4CD9DDB1733D476992DFC7FD8773572338
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ NG. Чудесная посадка на Гудзон / Miracle Landing on the H
 ```bash
 magnet:?xt=urn:btih:FDAB369A9651DCE01BFD931330C1125A7FCBEAC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ NG. Человек среди гепардов / Man Among Cheetahs (2017) WEB-D
 magnet:?xt=urn:btih:C2F90DEE1A9FD8EAAA3A23DBDF51CDF369D49DF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ NG: Загадки королевской кобры / Secrets of the King Cobra
 ```bash
 magnet:?xt=urn:btih:3731E2629F0291E28A27E03390B40C299A548F30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ BBC. Королева Виктория и её девять детей / Queen V
 magnet:?xt=urn:btih:6413D65D8EFE991D4853F477D31AA29825AC4740
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ NG: Секреты гробницы Христа: специальный реп�
 ```bash
 magnet:?xt=urn:btih:4A9BB02F0FCC17663586A37CF061422AC0C3E81B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Discovery. Жизнь с Тиграми / Living with Tigers (2003) TVRip (се�
 magnet:?xt=urn:btih:840103DDEDC48660B94C1E52AB8C804D737C2061
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ NG: Нотр Дам: невероятная гонка против ада / Not
 ```bash
 magnet:?xt=urn:btih:DCEA9565B58524F7E272B200AACB19E3F22DB1B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Discovery: Разрушители легенд / MythBusters (2013) WEB-DL [H.26
 magnet:?xt=urn:btih:8A066771ADDB1D6C13D11F25E88E2889DDC0AE4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ BBC. Тайные правила современной жизни: Алгори
 ```bash
 magnet:?xt=urn:btih:F499E843C025DFF2CC92F64238521BFAFA4C2B1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ NG. В погоне за равноденствием / Chasing the Equinox (201
 magnet:?xt=urn:btih:9829A8A2DED8B7961CC49B68F1BBB49E55C0787E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ NG. Спасти Нотр-Дам / Saving Notre-Dame (2020) WEB-DL [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:5EEFF1F396D99DD3D00A5A7EF489D3A135FCD03F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ NG. Миссия полета к Солнцу / Mission to the Sun (2018) WEB-DL
 magnet:?xt=urn:btih:081E1A293CE3247B2AB5ADFF8BD7383D38277ECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:081E1A293CE3247B2AB5ADFF8BD7383D38277ECD
 ```bash
 magnet:?xt=urn:btih:94EF0FC17488AA6D6CEE4040708D37987C9F1E74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Discovery. Золотой прииск Фредди Доджа / Gold Rush: Fred
 magnet:?xt=urn:btih:B13B0D417E3943B335FB3FD96CEC182EAFB7FB70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:B13B0D417E3943B335FB3FD96CEC182EAFB7FB70
 ```bash
 magnet:?xt=urn:btih:C38FD7E25993729F32D4CA2D864DCF0E06D9D65A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Discovery: На дне океана / Expedition Deep Ocean (2021) HDTV [H.264/1
 magnet:?xt=urn:btih:9A3B9A6238C6AC3876F14B7DFC8FB619B0333A54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:9A3B9A6238C6AC3876F14B7DFC8FB619B0333A54
 ```bash
 magnet:?xt=urn:btih:6458A0073E5F7B548663F23693957641873B8344
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ BBC: Горизонт. Хаббл. Открытие тайн космоса / Ho
 magnet:?xt=urn:btih:AFEBE7B83E46146D083A0A6704F2176E071FC955
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ NG: Последствия: Когда Земля перестанет вращ�
 magnet:?xt=urn:btih:F4FD27ADEB24D02CA56EA0D677641CC6076B2A95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ magnet:?xt=urn:btih:F4FD27ADEB24D02CA56EA0D677641CC6076B2A95
 ```bash
 magnet:?xt=urn:btih:6F9A01A1CD2B7CE37261F8D93D64A9DC1A26C5F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

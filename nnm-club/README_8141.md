@@ -22,6 +22,8 @@ VA - Mega Hits 2010 (2023) [OGG Vorbis|480 Kbps] <Pop>
 magnet:?xt=urn:btih:4C25EAA84AD810EF1BB3C6140C98B3199190081C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:4C25EAA84AD810EF1BB3C6140C98B3199190081C
 ```bash
 magnet:?xt=urn:btih:715785C22D24EE47C8E7B4CC08F9AED7D65475FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Nancy Wilson - Hollywood-My Way (1963) 2006, Capitol Jazz[FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:721B60357C3968AA87968E5671AF20758C25DE42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Vargas Blues Band - Stoner Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Roc
 magnet:?xt=urn:btih:308D17E05E78DDE1E042695FB6E7FA62F17A0D65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:308D17E05E78DDE1E042695FB6E7FA62F17A0D65
 magnet:?xt=urn:btih:FEFE01A36D09282E7F4B254FE5A415DFB5ED25F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:FEFE01A36D09282E7F4B254FE5A415DFB5ED25F5
 ```bash
 magnet:?xt=urn:btih:8606D7B6FC0C76FD5D78546C25AAA2C984E4E4F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ Louie Bellson And His Big Band - Live From New York (1994) Telarc [FLAC|Lossless
 magnet:?xt=urn:btih:7A6EED7920B1806231042B0C4BDF340E612C566F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ CG Sphere | Frostmourne Sword Full Process + Files (2021) PCRec
 ```bash
 magnet:?xt=urn:btih:232377100FBA8049D0FB614E98D672CC60F4A16C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ VA - Oasisphere (Compiled by Salvo Migliorini) (2020) [AAC|~315 Kbps] <Deep Hous
 magnet:?xt=urn:btih:64EBFB5197B027F8097FBEDF30BC5362967611AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ Count Basie & Joe Williams - Count Basie Swings, Joe Williams Sings (1955) 1993,
 ```bash
 magnet:?xt=urn:btih:379DAF41702D3C48B03C3180E14BC5A326071101
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +302,8 @@ VA - Amsterdam Dance Night (2023) [MP3|320 Kbps] <Electronica, Melodic House & T
 magnet:?xt=urn:btih:9A6C26213E2FB3E3863AB30B1B3221B72D1EEB32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ magnet:?xt=urn:btih:9A6C26213E2FB3E3863AB30B1B3221B72D1EEB32
 ```bash
 magnet:?xt=urn:btih:46F930A9FB274B3F513A1CA3F1E639E5C9FB856A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +358,8 @@ ScreenFlow - создаем свои скринкасты
 magnet:?xt=urn:btih:16EEA657496FA2F2139448AFF5BE2235948922CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +385,8 @@ Templates for Pages – DesiGN 7.3 [Multi/Ru]
 magnet:?xt=urn:btih:939C673C06BDE19129BBE0ACBF1F2FA3E191BC10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:939C673C06BDE19129BBE0ACBF1F2FA3E191BC10
 ```bash
 magnet:?xt=urn:btih:CE41203FD9E34D0B954B24EF2979CBAACA6866A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +440,8 @@ Guido Manusardi Trio - No More No Less (2006) SoundHills Records[FLAC|Lossless|t
 magnet:?xt=urn:btih:71EA4C671A3590E42F713C4F54AD63A0D3577340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +466,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:C3A68401C38334B9A267494DF82A6C0249DB0367
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ Addictive Drums 2 представляет из себя полноценную 
 ```bash
 magnet:?xt=urn:btih:610F237D6BCD6ED09B36F8255C810932C5D6E3EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +521,8 @@ Shakin' Stevens - Re-Set (2023) [FLAC|Lossless|image + .cue] <Pop-Rock, Rock 'N'
 magnet:?xt=urn:btih:96185A536A4FBD8977601E659501A3635F8A9B10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +550,8 @@ The Bronx Casket Co. - Sweet Home Transylvania (2001) [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:B1D46836075221D8B6063A2CEF3C523E612C1122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +575,8 @@ magnet:?xt=urn:btih:B1D46836075221D8B6063A2CEF3C523E612C1122
 ```bash
 magnet:?xt=urn:btih:1B216418C2920CC0DD1FA3F9E0E8C8781AD360E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +605,8 @@ magnet:?xt=urn:btih:1B216418C2920CC0DD1FA3F9E0E8C8781AD360E2
 magnet:?xt=urn:btih:C2A4E03936A18D54FFF02E25B5F8276B4DCFEA9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +630,8 @@ magnet:?xt=urn:btih:C2A4E03936A18D54FFF02E25B5F8276B4DCFEA9C
 ```bash
 magnet:?xt=urn:btih:ED32E6433F495A652274F02584E87EFD2E37F196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ VA - I Love The 90's 10 Years Anniversary Edition (2017) 5CD, Compilation [FLAC|
 magnet:?xt=urn:btih:A5BFBE6BAB3D8B74E8E91133088EE2D973CAECD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ magnet:?xt=urn:btih:A5BFBE6BAB3D8B74E8E91133088EE2D973CAECD8
 ```bash
 magnet:?xt=urn:btih:476F8D7D62CAB4DF09D588919A2D1E2DEEC09243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +711,8 @@ Angel Vivaldi - Away With Words, Part 1-2 (2014-2023) 2EP [MP3|320 Kbps] <Progre
 ```bash
 magnet:?xt=urn:btih:7E12E3222F52AC336F5A164699FED5E71C933C5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

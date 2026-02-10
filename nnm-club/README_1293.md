@@ -19,6 +19,8 @@ RUTUBE — официальное приложение одноименной о
 magnet:?xt=urn:btih:F253E36A1EB40CA22D78E069DB409D19E06BA422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:F253E36A1EB40CA22D78E069DB409D19E06BA422
 magnet:?xt=urn:btih:695FF117D65D694CFAA844E3FBAC33C391CBF6E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:695FF117D65D694CFAA844E3FBAC33C391CBF6E3
 ```bash
 magnet:?xt=urn:btih:ECC50A05915DE6D3304AAE7106A47BA78D677D51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Scrap Mechanic – креативный симулятор выживания, �
 magnet:?xt=urn:btih:8C1B56E7108C37B8C29930B0814F045068BDCB5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Autopsy Simulator – симулятор с элементами хоррора,
 ```bash
 magnet:?xt=urn:btih:AE17CA869376ACD5AE4AC48C4AA85064423D4045
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ AVS Video Software представляет собой комплект из т�
 magnet:?xt=urn:btih:2140A86DB77592678D87E47BA2777918C1F7DB51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:2140A86DB77592678D87E47BA2777918C1F7DB51
 ```bash
 magnet:?xt=urn:btih:A4F85ED77FB108C3617B7163306732752ABF3ADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:A4F85ED77FB108C3617B7163306732752ABF3ADF
 magnet:?xt=urn:btih:2E1914BD20143D57ED3962ACDF8FBA5D3C3B3B35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:2E1914BD20143D57ED3962ACDF8FBA5D3C3B3B35
 ```bash
 magnet:?xt=urn:btih:0BBB5528F0700A11C6500DAF23EEB41F812494C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Generation Zero (2019) [Ru/Multi] (2901094/dlc) Repack seleZen
 magnet:?xt=urn:btih:EBA3D95BC01EA9C7750AD3C4D624CD5AB566624B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Dungeons 4 - это фэнтезийная стратегия в реально�
 ```bash
 magnet:?xt=urn:btih:A74439A95938BE54FA6D3C766038491E13FB89C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:A74439A95938BE54FA6D3C766038491E13FB89C0
 magnet:?xt=urn:btih:E3F7E16AEC432153CCCDC096AF8B1BF2F739326E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ IsMyLcdOK - небольшая бесплатная программа для о
 magnet:?xt=urn:btih:43EED8658EADA13B61242CBC0202B4996A9CC11F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Gekijouban Inazuma Eleven: Saikyou Gundan Ogre Shuurai | Inazuma Eleven the Movi
 ```bash
 magnet:?xt=urn:btih:E034A8637C2E22A70AB183D6687AA96CEADF7F21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Skul — это динамичный экшен с элементами rogue-li
 magnet:?xt=urn:btih:AB2960341B6393FA82221166AAA6B071CAC467EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:AB2960341B6393FA82221166AAA6B071CAC467EA
 magnet:?xt=urn:btih:A538B87974DC92E0EA6083800E7C284AEF351842
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Metrolist 10.7.0 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CF500AE6F9D6997752C97C83DD613A6855F70243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:CF500AE6F9D6997752C97C83DD613A6855F70243
 magnet:?xt=urn:btih:08DED6CED450831CA6561293EAB039F07768AA8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:08DED6CED450831CA6561293EAB039F07768AA8E
 magnet:?xt=urn:btih:4A86257EB7AD74854D0519FE4BE589CF32C9A88A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Hairdresser Simulator (2024) [Ru/Multi] (1.030/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:894A609F6D3D35405321431E24C32022B1AAFAB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 magnet:?xt=urn:btih:77DC460DA4F7992606723A2B14007D93C460B3E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Forbidden Fantasy - визуальная новелла для взрослых,
 ```bash
 magnet:?xt=urn:btih:E940C24BFF1D10933757D1335E10FAAB30C228DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:E940C24BFF1D10933757D1335E10FAAB30C228DB
 magnet:?xt=urn:btih:C624C1D1DBB639084E94A75417263864976B2C8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:D2038D4B6CF01517809FE3C50B5B4384DDBE4F90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:D2038D4B6CF01517809FE3C50B5B4384DDBE4F90
 magnet:?xt=urn:btih:9E468AB86F2FB930471AC11F4096D607F1372510
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:9E468AB86F2FB930471AC11F4096D607F1372510
 ```bash
 magnet:?xt=urn:btih:FA46C47A9423971A443D026C75E1467205B3DEF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2016.11.30 [Ru]
 magnet:?xt=urn:btih:DBF7B577849F7EC257366F72A6340BCFDBA53CFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Deus Ex: Mankind Divided (2016) [Ru/Multi] (1.11.616.0/dlc) SteamRip R.G. Origin
 ```bash
 magnet:?xt=urn:btih:5E747981D7C0E69F9D1499C69271A7C8F9D53DC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:5E747981D7C0E69F9D1499C69271A7C8F9D53DC4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Sacred 2 Gold: Падший Ангел & Лёд и Кровь [Ru] (Repack/2.65.
 ```bash
 magnet:?xt=urn:btih:605DA6E29829D38339EC03841C51B4A08D3EDBCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:605DA6E29829D38339EC03841C51B4A08D3EDBCC
 magnet:?xt=urn:btih:C195A8E8C965F913DCF2CC4AF3292714E5737E7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Assassin's Creed Odyssey / Assassin’s Creed: Одиссея (2018) [Ru/Multi] 
 ```bash
 magnet:?xt=urn:btih:E6491858E258AA3174851F88F17FC670460A95D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ OfficeSuite является наиболее полным приложение 
 magnet:?xt=urn:btih:4A9D5112596F51C3015EE71F70C08321A2773CA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Star Wars: Republic Commando (2005) [Ru/Multi] (1.2.1) License GOG
 ```bash
 magnet:?xt=urn:btih:9BED345579C4D70BEBFEC60E3F18724062CE15D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:9BED345579C4D70BEBFEC60E3F18724062CE15D4
 magnet:?xt=urn:btih:F00BC6FBB904E3CA3F86D2F720EB7AA462E9B637
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:F00BC6FBB904E3CA3F86D2F720EB7AA462E9B637
 ```bash
 magnet:?xt=urn:btih:C66C6065B30C48A37C8B4E19D4F578852F14132E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Total War: Rome II/2 (2013) [Ru] (2.2.0 Build 16155.736913/upd17/dlc) Repack =ne
 magnet:?xt=urn:btih:9A0CF092C2BDDFB7F0436677681B1F463162ADF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:9A0CF092C2BDDFB7F0436677681B1F463162ADF6
 ```bash
 magnet:?xt=urn:btih:6EEF5663ED40BDC1943472A8D9C74FE8C9A48B8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Darksiders II (2015) [Ru/En] (1.0/upd2/dlc) Repack R.G. Механики [Deathi
 magnet:?xt=urn:btih:D04A62AE076E77E1885DE415CCBBD02E9BA55A23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:D04A62AE076E77E1885DE415CCBBD02E9BA55A23
 ```bash
 magnet:?xt=urn:btih:5C994F686714264B6663D4821BF9B923A18B6518
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Vampire: The Masquerade-Bloodlines - игра, которая сочетает �
 magnet:?xt=urn:btih:A6EFE30137B3524E72F8CC252B6AC816070A5D15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:A6EFE30137B3524E72F8CC252B6AC816070A5D15
 ```bash
 magnet:?xt=urn:btih:56385703BC3538B667E7C17B16F110539420F859
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ The Outer Worlds — новая однопользовательская нау�
 magnet:?xt=urn:btih:FF8A4037379B4DCDC4CE3F88967D4F0588C45AC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Pirates of the Caribbean / Корсары 2: Пираты Карибского �
 ```bash
 magnet:?xt=urn:btih:FC3B9BCA147C5BE530E51D38BDEA151C59F591C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ ru_windows_7_professional_with_sp1_vl_build_x64_dvd_622441
 magnet:?xt=urn:btih:07347E0827649AC79CCC994F356C119764109624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Adobe Acrobat Pro DC — это полностью обновлённая нас
 ```bash
 magnet:?xt=urn:btih:54EA048E6D3D40787DBDEAE65DA1CD6D3A0CC9CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Adobe Photoshop - это комплексное решение для профе
 magnet:?xt=urn:btih:2EAAC858AFA4B2542BEFA4E9F569E496C79C8A19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Adobe Illustrator CC 2018 22.0.1.253  RePack by KpoJIuK  [Multi/Ru]
 magnet:?xt=urn:btih:8DD7E5B3AA844B5B7597F71B0CE20EE858451715
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ qBittorrent - бесплатный, мощный и удобный в работ
 ```bash
 magnet:?xt=urn:btih:59790FB3447D975440096013565B5A5FDBB4A4EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ VA - Hard Pro v.1-60 (2012-2014) [MP3|320 кб/с]<Hardstyle, Hardcore, Hands Up
 magnet:?xt=urn:btih:0075B2EE5D3DD89D05B68E35D91E29A076CF3CF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Linux Mint — дистрибутив операционной системы Li
 magnet:?xt=urn:btih:B20CCB7D31975D74ECC9F55A6998DAC92D9F9D0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Kerio Connect 7 – новое поколение почтовых сервер�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Native Instruments Effects Plugins Pack 08.2024 VST, VST 3, AAX (x64) [En]
 magnet:?xt=urn:btih:BCA89C7F0B83D5446B0399A646C6D1BB58753EDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Inpaint - позволяет умно удалять нежелательные 
 ```bash
 magnet:?xt=urn:btih:CD3986E280546E40D50C491B5A0391FEFE528CB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 magnet:?xt=urn:btih:DFA0587CBBDE5ADA1E0D3340F948C89BE3B2A897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ GOM Player Plus - мультимедийный плеер со множеств�
 ```bash
 magnet:?xt=urn:btih:1C27FA138A3977424FC66F01E80213518647EAC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ GOM Player Plus - мультимедийный плеер со множеств�
 magnet:?xt=urn:btih:A6ACF3F8FC91AFE88E558F9C1F977E2E5CA6B673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Celemony - Melodyne Studio 5.4.1.004 STANDALONE, VST 3, AAX (x64) Repack by R2R 
 magnet:?xt=urn:btih:9A0E9648CF9DD654B76D9E9322FAD52482833D57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Sweet Home 3D – замечательная программа для созд�
 ```bash
 magnet:?xt=urn:btih:EF5E21C40D45BC1430BC36FC39DB222EFE315BD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ WonderFox DVD Video Converter — удобный конвертер всех н�
 magnet:?xt=urn:btih:E8A6DC1723843D3794E91ABB49A4E0EE5D1C0695
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Sonible - pure:comp 1.0.2 VST, VST 3, AAX (x64) RePack by TCD [En]
 ```bash
 magnet:?xt=urn:btih:D5E59BB8E930205728DD63CEC520CF55FC74136D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Nuro Audio - Pro Vocal Production Bundle 08.2024 VST 3, AAX (x64) RePack by Zom 
 magnet:?xt=urn:btih:81FE5B3453789BCFFA0D99ED2F9F8C3695F3E2C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ AVS Audio Software представляет собой комплект из д�
 ```bash
 magnet:?xt=urn:btih:86E85FAC1E9BE980FE657043BE59DFD53E9F50E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Analog Mastering Tools (AMT) включает в себя три процесс�
 magnet:?xt=urn:btih:0C2FA4F77B02AA90938D1AAF4B52AA0CFD04C614
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Unfiltered Audio - Fault 1.4.1 VST, VST 3, AAX (x64) RePack by TCD [En]
 ```bash
 magnet:?xt=urn:btih:CC4F6AB06639F8B288E8CF01A38C9FF6C948A580
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ pure:EQ предлагает простой контроль над спектр
 magnet:?xt=urn:btih:DCFAE573A775752D897318151C758EA1715BF72B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ pure: limit без особых усилий укрощает пики, урав
 ```bash
 magnet:?xt=urn:btih:0EB36839354A9FD0C7FDE680C7995C3A45DCC0F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Plugin Alliance & THX - Spatial Creator 1.1.0 VST 3, AAX (x64) RePack by TCD [En
 magnet:?xt=urn:btih:BDA840A7324864E3D27E0BD35C00AEB230545D1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ bx_XL V3 позволяет мастеринг-инженерам создава
 ```bash
 magnet:?xt=urn:btih:46A0EB302ACAEE4EA4886062ABB326E7C0561701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ TAL Software GmbH — небольшая компания, основанная 
 magnet:?xt=urn:btih:4F380A51EAC1EEF454F02D14326259614BF559B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Sound Normalizer - звуковой нормализатор звука, пре�
 ```bash
 magnet:?xt=urn:btih:4621D41EF0D5987729A2D8B9E06A8D3BD54BEEEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Fakin The Funk 6.0.0.162 [Multi/Ru]
 magnet:?xt=urn:btih:41DEE0ADC51EE18F67665E4A134FD2F2EAF1C5C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ True Iron - это плагин, номинированный на премию 
 magnet:?xt=urn:btih:A4ABB5D9A84185D9D7E1C66EA2E374EC270D35A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Producers Vault - Romantic Keys 2.8.4 VSTi 3 (x64) Retail [En]
 magnet:?xt=urn:btih:C7197B8384586D2B7D4EAD2F69CEFB972C7C81CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Excite Audio - Bloom Bundle 2024.7.31 STANTALONE, VSTi, VSTi 3, AAX (x64) RePack
 ```bash
 magnet:?xt=urn:btih:ED0E2E5E7167E6304D733376B3AD3DA44E70C782
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ BenVista PhotoZoom Pro 9 — это программное решение ном
 magnet:?xt=urn:btih:F47EC4AC047E16259DCC654102F74D43BBC945DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Xara Web Designer Premium 19.0.1.65946 [Multi]
 ```bash
 magnet:?xt=urn:btih:3F9841FA68FAA3EBFCB62B2B9DB82EF62181841E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +680,8 @@ Bitwig Studio 5 обзавёлся пятью новыми MSEG (мультис�
 ```bash
 magnet:?xt=urn:btih:238EA537C33E0172F4D9640EF0E01105A602376C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

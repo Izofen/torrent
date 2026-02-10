@@ -1,30 +1,3 @@
-###  Публикация: 1181945   (321695) от 08.11.2017
-
-Владимир Высоцкий - Спортивные песни (2002) [FLAC|Lossless|image + .cue] <Авторская песня>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_321695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песня о конькобежце на короткие дистанции
-02. Песня о сентиметальном боксёре
-03. Профессионалы
-04. Утренняя гимнастика(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:54:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3777650EB26FCDDF199EBCADFC3448CBDE0E5ED3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181903   (321696) от 08.11.2017
 
 UC Browser 7.0.69.1022 [Multi/Ru]
@@ -45,6 +18,8 @@ UC Browser для Windows - современный веб-браузер, кот
 ```bash
 magnet:?xt=urn:btih:E745976554959054EFAB0934FDEADEBCB433636E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +45,8 @@ BurnAware - простая и в тоже время мощная програм
 magnet:?xt=urn:btih:0296C9ADDBD9D507ECE4CA2C4C1310B61260E6DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +70,8 @@ magnet:?xt=urn:btih:0296C9ADDBD9D507ECE4CA2C4C1310B61260E6DC
 ```bash
 magnet:?xt=urn:btih:A6D0A15C2C903BE9E07F084CEF3B4AFA1050CB98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +100,8 @@ Quiver — это записная книжка, специально созда
 magnet:?xt=urn:btih:C0CE802F9182BBE660DCD9E9ABEA1B8FFEF7A414
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +125,8 @@ magnet:?xt=urn:btih:C0CE802F9182BBE660DCD9E9ABEA1B8FFEF7A414
 ```bash
 magnet:?xt=urn:btih:68063420935696B1C20EB1436B12DBF238B901C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +152,8 @@ magnet:?xt=urn:btih:68063420935696B1C20EB1436B12DBF238B901C2
 magnet:?xt=urn:btih:D06F4653B3EFA751C49B1BF5F92D1F234867D1BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +177,8 @@ Cent Browser является усовершенствованной верси�
 ```bash
 magnet:?xt=urn:btih:AD3603C052E97ACAB02C197BAD84A5FEB501E6AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +204,8 @@ Futuremark 3DMark 2.15.7078 Developer Edition RePack by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:95995D71A6FB4FCCAD4286749DC14AD845B39059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +229,8 @@ magnet:?xt=urn:btih:95995D71A6FB4FCCAD4286749DC14AD845B39059
 ```bash
 magnet:?xt=urn:btih:0F0CA70681096A7A26D8173C190C176340633C45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +256,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:B668389CC5EA0EE8EB0C6FD2EE1C823335255F13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +282,8 @@ Skype - бесплатная программа для текстового, г�
 magnet:?xt=urn:btih:BDB14F7A8B2AF9F25ED35050EFCDFA999B8249FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +307,8 @@ PDFCreator –  бесплатная программа для конверти�
 ```bash
 magnet:?xt=urn:btih:CEF2E3FBF581E0B304931E9963E64A0F2894DAC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +337,8 @@ Ilai - Endshift (2017) [MP3|320 Kbps] <Psy-Trance>
 magnet:?xt=urn:btih:11ECB3D14EAA7D77A8049D602A76AB9B43313074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +362,8 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:8EE99BEAB354C7948DE7CD8F06F29B2EF0317D9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +389,8 @@ Slimjet 16.0.3.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:4522D8789C2FD24176AAFBF6FF647852C731775E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +414,8 @@ magnet:?xt=urn:btih:4522D8789C2FD24176AAFBF6FF647852C731775E
 ```bash
 magnet:?xt=urn:btih:2F77D71E76B3E84C209395BDEF216A8F0426A387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +444,8 @@ Sneijder - Everything Changes (2015) [MP3|320 кб/с]<Trance , Breaks , Chillou
 magnet:?xt=urn:btih:D73B39B4472938E88092A0EEC3422F229C47CBC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +469,8 @@ magnet:?xt=urn:btih:D73B39B4472938E88092A0EEC3422F229C47CBC7
 ```bash
 magnet:?xt=urn:btih:266937C3900844CE7784AFED54819523504E5028
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +496,8 @@ Comodo Dragon - быстрый универсальный браузер на б
 magnet:?xt=urn:btih:6BC3E999C7DA129336D0A280E40B9F49779BA71B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +521,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:0DE005CDA988CA4809E5688417FDC5FD9ED5E0B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +549,8 @@ HiBit Uninstaller - идеальное решение для удаления п
 magnet:?xt=urn:btih:E15A39DD813C67AD642F017238F0F3C36A23E1FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +574,8 @@ Virgin Australia Supercars Championship. Сезон 2017. ITM Auckland SuperSpri
 ```bash
 magnet:?xt=urn:btih:96B5855F58761EB28333EA7476FBE0E23CDB92EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +604,8 @@ Subset - SRS (The Collection) (2017) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
 magnet:?xt=urn:btih:4130D6ADD0192261C20AEADA3A1996A138389601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +629,8 @@ Monster Energy Nascar Cup Series-2017, Этап 32 - Hollywood Casino 400, Kansa
 ```bash
 magnet:?xt=urn:btih:76FFE4EA3037A87B7558C01B24497BA6913E9E35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +656,34 @@ PDF-компрессор предназначен для сокращения р
 ```bash
 magnet:?xt=urn:btih:6F8EF6D1CC4446E3F878BB40B331AE35EE36D0FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181669   (321924) от 08.11.2017
+
+Monster Energy Nascar Cup Series-2017, Этап 34 - AAA Texas 500, Texas Motor Speedway (2017) WEB-DL [H.264/720p-LQ] [VO]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_321924.jpg" />
+</div>
+
+
+###  Подробнее
+
+34 этап Monster Energy Nascar Cup Series, Texas Motor Speedway, AAA Texas 500 (334 laps, 501 miles).Телекомпания: Premier SportsЖанр: СпортПеревод: Двуголосый закадровый, любительскийПродолжительность: 04:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA8504E5DC29E7382BC6ACA29A2E3B06411E5BB
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

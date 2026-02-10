@@ -21,6 +21,8 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 5 (2016) PCRec [Ru]
 magnet:?xt=urn:btih:9D59C13A4C9F3DE616719D9A9D44B1505EB7D890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 2 (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:0E9B1F1415120EEC28BC4F1ABB7C0FC70872C589
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 3 (2016) PCRec [En, Ru]
 magnet:?xt=urn:btih:34B0E448757624E3AAFEDC9303A74820D36C4CB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Anastasia Opara | Houdini Procedural Lake Houses Volume 4 (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:D8AC7D0BCD8CA8B62E2A295BDA377987B031D140
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:D8AC7D0BCD8CA8B62E2A295BDA377987B031D140
 magnet:?xt=urn:btih:C7D82AEB82621D51519F6F3BCEE953984BD2B314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Svelte.js (или просто «Svelte») - это современный ко�
 ```bash
 magnet:?xt=urn:btih:0B47B7A52EDBF926958D363B081BEC42B4F6ECA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Udemy, Andrei Dumitrescu | Linux Administration: The Complete Linux Bootcamp 202
 ```bash
 magnet:?xt=urn:btih:6DAC2BA141D28DBD20924863CFF6B9B6C926566C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ Udemy, Dmitri Nesteruk | Design Patterns in C# and .NET (2021) PCRec [En / En Su
 magnet:?xt=urn:btih:F7E302BABCD406894053AE5AC5E6A3AE9E2DC02C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Jeremy Huxley | Vegetation & Plants for Games (2018) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:2A44F8DA51815D4ED49C957A4F9B862E77DD7906
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:2A44F8DA51815D4ED49C957A4F9B862E77DD7906
 magnet:?xt=urn:btih:740CAF0E4C6B4443BD659744958EF074C7E3834A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ magnet:?xt=urn:btih:740CAF0E4C6B4443BD659744958EF074C7E3834A
 magnet:?xt=urn:btih:A7D1B6A03E9C61F4A7F2C52D8F4BFFFFED615B8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ Learn Enough, Michael Hartl | Разработка веб-приложений �
 ```bash
 magnet:?xt=urn:btih:E9AB2EB17947B26D30DAF0812A1A3F8002A742B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ Tim Cgi | Abstract Visuals - Houdini and Redshift (2019) PCRec
 magnet:?xt=urn:btih:3B7087093B6795C62652211E9182C71B4D717883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ KnowThen, James Moore | Elixir и Phoenix для начинающих / Elixir &
 ```bash
 magnet:?xt=urn:btih:07C831F41D2C6A1761C79E6A4F37B5C72DC4CD33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ Network for Everyone (NFE, N4E) | Работа с Wireshark (2023) WEB-DL [AD] [
 magnet:?xt=urn:btih:15C3CAEA41BE4C9945143E61CB2FC8E81B07C872
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ The Coding Gnome, Dave Thomas  | Elixir для программистов / Elix
 ```bash
 magnet:?xt=urn:btih:EA28F104F63045ECB26948E1AA7F23958B632C9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ Portraitsrussian | Московская Коллекция - Мега Пакет
 magnet:?xt=urn:btih:E58690FF77ED7DD89E5365BB1F8F45AF42EFFB13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ Udemy, Stephen Grider | Полный курс по Elixir и Phoenix / The Compl
 ```bash
 magnet:?xt=urn:btih:40ED1C1B77199AD0189A16C8F0FEF5C32CB00368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ Tara Mapes | Tara Mapes - Уроки изобразительного искус
 magnet:?xt=urn:btih:BE6CD8758036CE70763AAD8D43C94DBE15EC6968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ Docker - это открытая платформа для разработчи�
 ```bash
 magnet:?xt=urn:btih:7DD3CEDFD403274AB47B7D6D06B29E385D10E303
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ Udemy, Chang Tan | Введение в разработку эксплойтов
 magnet:?xt=urn:btih:879FDAF36964A20B1D8FE8CFBD5B7910939FF462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ Skillbox, Мария Сулимова | Элементарная музыкал�
 magnet:?xt=urn:btih:FF1207569E55625E02D1F4ED9174E87A477B9D86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ Modern Javascript Bootcamp (2020) фокусируется на том, чтоб
 ```bash
 magnet:?xt=urn:btih:F687EE6CDFB0A62BFC9F10F1F19C66012EE58A45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:F687EE6CDFB0A62BFC9F10F1F19C66012EE58A45
 magnet:?xt=urn:btih:00962280F813D832E927BEDF04CC8D7F0728F246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ Houdini является одной из самых запутанных и сл
 magnet:?xt=urn:btih:5B255A28AA9833A2346D3F8C3297F4A48CB162B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ Alan Thorn | Advanced Game Mechanics In Unity 5 Volume 1 (2015) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:4BA35B0355A6B2CC5F260F5AA00EBEE838C30490
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

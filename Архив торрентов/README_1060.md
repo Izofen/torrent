@@ -19,6 +19,8 @@ PIDKey 2.0.9 build 1006 Final Portable [Multi/Ru]
 magnet:?xt=urn:btih:83E861254F139D41231999BDD9EB3A445D7795EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:83E861254F139D41231999BDD9EB3A445D7795EA
 ```bash
 magnet:?xt=urn:btih:5880DBA2CBE399F9C1C856760747FA6B5487F833
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ App Cleaner - Лучшее приложение для удаления файл
 magnet:?xt=urn:btih:1781A16B3519835CA12603CA949FDA10A9F2A8C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Downie поддерживает более 1,000 популярных сайто
 magnet:?xt=urn:btih:BC99691A82DB60C38CDC524CF51117DAE811BA7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Punto Switcher — автоматический переключатель ра�
 magnet:?xt=urn:btih:F3F5D604F0FE9523DFE35179BFE7CEE0EDF4AE4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ KiCad – уникальный в своем роде программный п�
 ```bash
 magnet:?xt=urn:btih:6D0839BACBAED8246DFE75AC7E76AF364C04FE7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 magnet:?xt=urn:btih:DCF885E154087F8E53BC67DC9294CDE0ED11B581
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:DCF885E154087F8E53BC67DC9294CDE0ED11B581
 magnet:?xt=urn:btih:4638DDD9F03639700ECDC8FAEE3FAEF546FA457A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Hard Disk Sentinel — отличная программа для монитор
 ```bash
 magnet:?xt=urn:btih:7F0E9EDC084D1821C40B7ED88968E1A74FD8CE0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Risssing - Risssing (2016) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Breaks, Do
 magnet:?xt=urn:btih:24D6839085CDD45FA070545375BB6AD9CA59CCCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Bob Holroyd - In Motion (2013) [FLAC|Lossless|tracks + .cue] <Ambient, Downtempo
 magnet:?xt=urn:btih:221D64ECEFD18F422973DC69469BBACA925AAB21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ My Daily Wallpaper - небольшая портативная программ�
 ```bash
 magnet:?xt=urn:btih:A690CE687818D3E95756BA8CA1D3DCE7F249D832
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ iSoftPhone - программа представляет весьма ориги
 magnet:?xt=urn:btih:B356205E05E3593873DC4327DD3C90030B574A65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:B356205E05E3593873DC4327DD3C90030B574A65
 ```bash
 magnet:?xt=urn:btih:6F312937C2FB52C1A359CECAA2BE5DC5F59350DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ Torch Browser - браузер на платформе Chromium с расшир�
 magnet:?xt=urn:btih:7697E6F54F8F04322D48A85EC0FE75CDD7AE4649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Enen no Shouboutai Ni no Shou | Fire Force 2 | Пламенная бригада
 ```bash
 magnet:?xt=urn:btih:D6FAD5115D060ACEE2CE3C55FC942292037AB4D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ GreenBrowser 6.8.1228 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:CA84732BEA9ABED32C16046B417C9A403C7FBC4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ Bulk Image Downloader (BID) - это программа для загрузки 
 ```bash
 magnet:?xt=urn:btih:D3E5ED5B0F3F54606E39F686088DF851B7C8A85E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ PDF Expert - редактор  PDF
 ```bash
 magnet:?xt=urn:btih:A50ECAD71826ECFB8BEB530BCF4579CCCE6B0B6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ Senko - Dronetudes (2014) [MP3|320 кб/с]<Abstract, Ambient, Experimental, Gli
 magnet:?xt=urn:btih:F7BA3D5938D48DC13B55FA929828E5F10E604B0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ Cradle Orchestra - Transcended Elements (2010) [FLAC|Lossless|tracks + .cue] <Hi
 magnet:?xt=urn:btih:D85177B2132F70D177655F067B8FEFA40FF57F99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ Metadata Converter - это интуитивно понятный редакто
 ```bash
 magnet:?xt=urn:btih:664A0A0411DED916FB841D523B50B2A9079C1647
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ Performance Index 64 Pro 4.2.2 [En]
 magnet:?xt=urn:btih:9F355C95AB4218FAF4483C4028DA75DD9E17B79F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:9F355C95AB4218FAF4483C4028DA75DD9E17B79F
 ```bash
 magnet:?xt=urn:btih:06BB216CBDDB13D22A277C01F4F8F6730D849EB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Busi
 magnet:?xt=urn:btih:B0CF20EDA58F6984BCE4E671F15D579CBC45EF04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ Risssing - The Four Seasons (2014) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, T
 ```bash
 magnet:?xt=urn:btih:7FAAC4E1830F44ED14E9F10A20C82793C52EA872
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 1122890   (786344) от 08.04.2017
-
-Каньон черной лошади / Black Horse Canyon (1954) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_786344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Двое ковбоев, Рок и Ти, помогают своей хорошенькой, но своенравной соседке Элдис изловить жеребца, много лет назад сбежавшего с её ранчо. Их соперник Дженнингс тоже хочет заполучить жеребца на племя, и, не сумев избавиться от конкурентов, пытается переманить их на свою сторону, обещая процент от будущей сделки. Тем временем Ти не на шутку увлекается Элдис, и Рок (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: ВестернРежиссер: Джесси ХиббсАктеры: Джоэл МакКри, Мари Бланчард, Рейс Гентри, Мервин Вай, Ирвинг Бэйкон, Джон Пиккард, Юинг Митчелл, Пилар Дель Рей, Харольд Гудвин, Уильям Дж. УильямсПеревод: Авторский (А.Яковлев)Субтитры: ОтсутствуютПродолжительность: 01:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7720488BE0199617482974560D8DAAF8C209FC03
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277183   (786970) от 19.01.2019
 
 Резня в женской общаге / Sorority House Massacre (1987) BDRip [H.264] [VO]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:7720488BE0199617482974560D8DAAF8C209FC03
 ```bash
 magnet:?xt=urn:btih:F75D39FEE2F10CDD30A0676DE26E507713745550
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:F75D39FEE2F10CDD30A0676DE26E507713745550
 magnet:?xt=urn:btih:4C53BF34C2F0087E11F73DD7A5708591A9180112
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:4C53BF34C2F0087E11F73DD7A5708591A9180112
 ```bash
 magnet:?xt=urn:btih:C9827E85154131C74AFCB4E78435353AEFE3416C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:C9827E85154131C74AFCB4E78435353AEFE3416C
 magnet:?xt=urn:btih:8E19B699F0654CFF44AA7EE774E797D7F6E8559B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:8E19B699F0654CFF44AA7EE774E797D7F6E8559B
 magnet:?xt=urn:btih:0C889591FD6E4F813B6838F5817418DC58F42301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:0C889591FD6E4F813B6838F5817418DC58F42301
 ```bash
 magnet:?xt=urn:btih:21D7F330C45EDDED87E21D530BB0885657F7A0DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +177,8 @@ magnet:?xt=urn:btih:21D7F330C45EDDED87E21D530BB0885657F7A0DE
 magnet:?xt=urn:btih:C6E42F10F2BF6C8CB35CBB37870CDC81E2F4F63C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:C6E42F10F2BF6C8CB35CBB37870CDC81E2F4F63C
 ```bash
 magnet:?xt=urn:btih:52ECC97A8976F9CF6B3744CC77E9C5E0116D9A24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +229,8 @@ magnet:?xt=urn:btih:52ECC97A8976F9CF6B3744CC77E9C5E0116D9A24
 magnet:?xt=urn:btih:2816340D97C8300F4918AD9EC2C6F2E5A89A766C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:2816340D97C8300F4918AD9EC2C6F2E5A89A766C
 ```bash
 magnet:?xt=urn:btih:E4B3799012992B173DCA3EE7421E35A548841ED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +282,8 @@ magnet:?xt=urn:btih:E4B3799012992B173DCA3EE7421E35A548841ED0
 magnet:?xt=urn:btih:45B5BA46F60901F9312455DD9873043E9B700D80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:45B5BA46F60901F9312455DD9873043E9B700D80
 ```bash
 magnet:?xt=urn:btih:E2EFB1B6F5937D828FBA2287902BD2C34187B2FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +335,8 @@ magnet:?xt=urn:btih:E2EFB1B6F5937D828FBA2287902BD2C34187B2FB
 magnet:?xt=urn:btih:D281AED2489B37C0EC49691713C88FDE4DC03D28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +362,8 @@ magnet:?xt=urn:btih:D281AED2489B37C0EC49691713C88FDE4DC03D28
 magnet:?xt=urn:btih:46F04B246AECF155C7A47EA61779A4100F683764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +387,8 @@ magnet:?xt=urn:btih:46F04B246AECF155C7A47EA61779A4100F683764
 ```bash
 magnet:?xt=urn:btih:5B0CE1A514FB248C88239CF3DD1159739B76D8EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +414,8 @@ magnet:?xt=urn:btih:5B0CE1A514FB248C88239CF3DD1159739B76D8EA
 magnet:?xt=urn:btih:43B8E376123BEA8E52D6EAEC27178D9A32AC71AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +439,8 @@ magnet:?xt=urn:btih:43B8E376123BEA8E52D6EAEC27178D9A32AC71AC
 ```bash
 magnet:?xt=urn:btih:6ADAEF4E109A880BD3406CFEE207EF248B9EEE07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +466,8 @@ magnet:?xt=urn:btih:6ADAEF4E109A880BD3406CFEE207EF248B9EEE07
 magnet:?xt=urn:btih:2423297348B4183FC98B0E4211CA0FAE25218520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +491,8 @@ magnet:?xt=urn:btih:2423297348B4183FC98B0E4211CA0FAE25218520
 ```bash
 magnet:?xt=urn:btih:9BBA2A330C015B4267AFCF819A0CD4D974E3108E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +518,8 @@ magnet:?xt=urn:btih:9BBA2A330C015B4267AFCF819A0CD4D974E3108E
 magnet:?xt=urn:btih:797C0DDBC436221ADB84303FDEC5C4157944F7F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +543,8 @@ magnet:?xt=urn:btih:797C0DDBC436221ADB84303FDEC5C4157944F7F3
 ```bash
 magnet:?xt=urn:btih:CBCC7692ADF456AABB0A30B53D760FB248EEBB57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +570,8 @@ magnet:?xt=urn:btih:CBCC7692ADF456AABB0A30B53D760FB248EEBB57
 magnet:?xt=urn:btih:C2A43AEC5779324E45237742CE2D465D7BF4EFF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +595,8 @@ magnet:?xt=urn:btih:C2A43AEC5779324E45237742CE2D465D7BF4EFF0
 ```bash
 magnet:?xt=urn:btih:EBA8C7C090E3D45862C90C5D3EFA4681AA299A21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +622,8 @@ magnet:?xt=urn:btih:EBA8C7C090E3D45862C90C5D3EFA4681AA299A21
 magnet:?xt=urn:btih:9DD8494E839C8BA549AD618AA908F802EC8033D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +648,35 @@ magnet:?xt=urn:btih:9DD8494E839C8BA549AD618AA908F802EC8033D0
 ```bash
 magnet:?xt=urn:btih:A5A528FE4E1890463509D6411C0E753B54303565
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275458   (790321) от 11.01.2019
+
+Обвиняемые / The Accused (1988) WEB-DLRip [H.264] [Open Matte]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_790321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Героиня этого фильма, Сара Тобиас, рассказывает свою ужасную историю прокурору Кэтрин Мерфи. Сара была безжалостно изнасилована тремя мужчинами в баре. Однако преступников приговаривают лишь к небольшому сроку за хулиганство.
+Такое решение суда было основано на заключении следствия, в котором утверждалось, что Сара сама спровоцировала обвиняемых на насилие. По просьбе (   Читать дальше...   )Производство: США, Канада / Paramount Pictures, Jaffe-LansingЖанр: Драма, криминалРежиссер: Джонатан КапланАктеры: Келли МакГиллис, Джоди Фостер, Берни Колсон, Лео Росси, Энн Хирн, Кармен Ардженциано, Стив Энтин, Том О`Брайен, Питер Ван Норден, Терри Дэвид МаллиганПеревод: Профессиональный многоголосый, профессиональный двухголосый, авторскийСубтитры: Английские (Full, SDH), французские (Full), немецкие (Full)Продолжительность: 01:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E381F14F693E29FA0509F2914CF477AC346C9DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,67 @@
+###  Публикация: 1376586   (858926) от 18.04.2020
+
+Moonspell - Memorial (2006) 2CD, Reissue, 2020, Alma Mater Records [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. In Memoriam (Instrumental) [00:01:25]
+02. Finisterra [00:04:08]
+03. Memento Mori [00:04:27](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2253CC6C3B6C3ECD14ACF823FB28925B46373589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 647091   (858943) от 22.04.2013
+
+The Storyteller - Dark Legacy (2013) [FLAC|Lossless]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01.Release Me [04:25]
+02.Strength Of Valhalla [03:56]
+03.Dark Legacy [04:05]
+04.Uninvited Guest [05:23]
+05.Forever They Shall Kneel [04:00]
+06.God Of Gods [04:42]
+07.Upon Your Icy Throne [04:54]
+08.Sancto Sprito [04:04]
+09.Break The Bounds [04:09]
+10.Sands Of Time [03:07](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:51:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 874950   (859444) от 05.03.2015
 
 Jorn Lande & Trond Holter - Dracula: Swing Of Death (2015) Japanese Edition [FLAC|Lossless]<Hard Rock, Heavy Metal>
@@ -22,6 +86,8 @@ Jorn Lande & Trond Holter - Dracula: Swing Of Death (2015) Japanese Edition [FLA
 ```bash
 magnet:?xt=urn:btih:CF8486079DC6C874CBC30640B633815DA80EAA9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +115,8 @@ Second Reign - Gravity (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power Metal
 ```bash
 magnet:?xt=urn:btih:2540CA91705B2BDA66F125497F75587C59D214C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -78,6 +146,8 @@ Melechesh - Enki (2015) [FLAC|Lossless]<Black, Death, Middle Eastern Folk Metal>
 magnet:?xt=urn:btih:8569E4DC3E29A9F9785BC9FBEFCD665EFF3228E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -104,6 +174,8 @@ Dream Ocean - The Missing Stone (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 ```bash
 magnet:?xt=urn:btih:76FD0ABF57AFFD55833653DE1E6BBA2F1D3B5F1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -132,6 +204,8 @@ Rebel's End - Sing To The Devil (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 magnet:?xt=urn:btih:43C03F741C2DA738BF1B8041C7648CA9D1A80DB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -158,6 +232,8 @@ A Pale Horse Named Death - Infernum In Terra (2021) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:B98AACBD1484859EB5B3C5CF0E1FE806362017E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -186,6 +262,8 @@ Tentation - Le berceau des dieux (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 magnet:?xt=urn:btih:A66E6322B9BABD83F52FAE3422E37FE2EC925DBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +290,8 @@ Thy Row - Unchained (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock
 ```bash
 magnet:?xt=urn:btih:447A410061C41A8D7B0A3BC1D750D3C0F9D7BD27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +320,8 @@ Rivers Of Nihil - The Work (2021) [FLAC|Lossless|WEB-DL|tracks] <Technical Death
 magnet:?xt=urn:btih:CF8D22744A77FCFA69FF4CF664FD5780C07128C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +349,8 @@ Stagewar - Danger To Ourselves (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Meta
 magnet:?xt=urn:btih:2BFB679C3D6DC6E701219EDC7F045FABF89F7EF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +377,8 @@ White Stones - Kuarahy (2020) [FLAC|Lossless|image + .cue] <Progressive Metal, D
 ```bash
 magnet:?xt=urn:btih:6444B63353AAA19670A3B69490D44BB55699795B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +414,8 @@ Heaven Shall Burn была основана осенью 1996-го под име
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +449,8 @@ Dorn - 4 альбома (2000 - 2007) [APE & FLAC|Lossless]<Black Metal / Doom M
 magnet:?xt=urn:btih:DE664AD782654E1561427FFFA13A44A9D01C9322
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +478,8 @@ Ignea (ex-Parallax) - The Realms of Fire and Death (2020) [FLAC|Lossless|tracks]
 magnet:?xt=urn:btih:074B3CD5BDB2AABF76F422718527D12991C860B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +506,8 @@ Aborted - La Grande Mascarade (2020) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death
 magnet:?xt=urn:btih:A8A487D32895876105AAB64768C2ACA95DAF2A37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +533,8 @@ Cadaver - D.G.A.F. (2020) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Thrash Met
 ```bash
 magnet:?xt=urn:btih:1BBE6C9B94A4DFFC4DEDAB395D6880CB54B5A1D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +563,8 @@ Divitius - Primordial (2020) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Progressi
 magnet:?xt=urn:btih:607022F06B77653D7EE7556C64B25A7C55ABD758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +591,8 @@ Ocean Chief - Den Tredje Dagen (2020) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal,
 ```bash
 magnet:?xt=urn:btih:A1184E8EB822142C0C1DADD281D1103E26AAD18F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +621,8 @@ Crusher - Unleashed (2020) [FLAC|Lossless|tracks] <Melodic Thrash Metal>
 magnet:?xt=urn:btih:FF240688610CD1758418A5A471932FD41353826F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +649,8 @@ Vermicide Violence - The Praxis of Prophylaxis (2020) [FLAC|Lossless|tracks] <De
 ```bash
 magnet:?xt=urn:btih:6054B3533993663D42D7A5E97B5E01A48C2042BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +679,8 @@ Burden Of Grief - Unchained (2014) Limited Edition [FLAC|Lossless]<Melodic Death
 ```bash
 magnet:?xt=urn:btih:5F21B0065E11D1BDC3B6845509829138D9AB2ABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +715,8 @@ Iron Maiden - Дискография (15 альбомов, 34 сингла, 7 к
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +743,8 @@ ToxicRose - In For The Kill (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, G
 ```bash
 magnet:?xt=urn:btih:CC7CA64487EE527D886C4E2D7B9B9B5BB04A07C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -663,59 +773,7 @@ Paradox - Heresy II: End Of A Legend (2021) [FLAC|Lossless|WEB-DL|tracks] <Power
 magnet:?xt=urn:btih:942F425D64C50607222BB24D5F77D752BFC45BD8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497872   (861431) от 24.09.2021
-
-Sceptor - Rise to the Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Past Reflections (01:33)
-02. Crown of Nails (04:36)
-03. The Curse of Orlac (04:36)
-04. Rise to the Light (05:05)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CD0049BE480828B833FED82512F52EEEEA8C6AC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497939   (861432) от 24.09.2021
-
-Exxperior - Escalating Conflicts (2021) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_861432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exitiabilis Creatura
-02. Escalating Conflicts...A World Goes Astray
-03. Timeless But Mindless
-04. A.A.A.(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7ECF1F07747324875038F5ACD8EB5370669171
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Carolyn Wonderland - Truth Is (2025) [FLAC|Lossless|image + .cue] <Blues Rock>
 magnet:?xt=urn:btih:34DCC99FE5572982ACE69D9557CE2E8EA6AAAEC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Reflect предлагает более 160 перетасованных бре�
 ```bash
 magnet:?xt=urn:btih:04B74CDCD31343E0AB75BAFA95332490D3596ADC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:04B74CDCD31343E0AB75BAFA95332490D3596ADC
 magnet:?xt=urn:btih:A51A1BE69E17CEA1C28187CEDDCE1216F9C6A34E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Cowling Sans AOE — очаровательный архитектурный ш�
 ```bash
 magnet:?xt=urn:btih:743A8DF5C3D1D2F1B9CED5F614B8171356E68DB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:743A8DF5C3D1D2F1B9CED5F614B8171356E68DB8
 magnet:?xt=urn:btih:A176B1331F9EE75C16DC474D865C1E25B3BB3BDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Icebound Secrets 2: Soul Hunter / Тайны ледяного мира 2: Охо
 magnet:?xt=urn:btih:49B29CF23BA1C4DF1DF1DF4767003116BC05C03A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:49B29CF23BA1C4DF1DF1DF4767003116BC05C03A
 ```bash
 magnet:?xt=urn:btih:5C9AA259FDE1D78B4CB7DE0C3FF1D56DA246E648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:5C9AA259FDE1D78B4CB7DE0C3FF1D56DA246E648
 magnet:?xt=urn:btih:5276E2906B8064AD09847518DF53F5133737CF75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:5276E2906B8064AD09847518DF53F5133737CF75
 ```bash
 magnet:?xt=urn:btih:D1644D8E7BC51DC02136185D571FEB76ABDE42A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ David Gilmour - The Luck and Strange Concerts (2025) [MP3|320 Kbps] <Rock, Progr
 magnet:?xt=urn:btih:ED37F47FE8524DF07C434F22691442E3649990AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Breaking News Photoreal Newspaper — это высококачественны�
 ```bash
 magnet:?xt=urn:btih:777E7D0E93B236D189FF0E2D8953ABA3ADAF0F81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ ABRISS - это атмосферная игра с механикой на ос�
 magnet:?xt=urn:btih:F7D7DA4A55828A7E1CE9EB93EFB43470EB371B4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ The Supper - приключенческая игра, раскрывающая �
 ```bash
 magnet:?xt=urn:btih:EC1AAFC091C609B98374C397EE46EDB1A195B990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ The Supper: New Blood повествует о Стюи С. Эпплтоне, е�
 magnet:?xt=urn:btih:0FCEDFB69A488C2CE3071C2DD7FCF1D12214C4A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:0FCEDFB69A488C2CE3071C2DD7FCF1D12214C4A6
 ```bash
 magnet:?xt=urn:btih:EC564491F5C38B2A604493F094843D395D986405
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:EC564491F5C38B2A604493F094843D395D986405
 magnet:?xt=urn:btih:FE4741455243F60F26554D33F044085F56E5BDCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Cat Quest III - продолжение популярной ролевой се�
 ```bash
 magnet:?xt=urn:btih:39D199EE0243FE0EAAB0DC6C3A6990D58FAB24EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Industry Giant 4.0 (2024) [Ru/Multi] (1.0.0-s.45+15021/dlc) Repack FitGirl
 magnet:?xt=urn:btih:1CEE5A6B74ECA4CBE5258761926DF9AAC0FF518B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:1CEE5A6B74ECA4CBE5258761926DF9AAC0FF518B
 ```bash
 magnet:?xt=urn:btih:4F4B98B532E14411367E9AAFF2A0B0410617E090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:4F4B98B532E14411367E9AAFF2A0B0410617E090
 magnet:?xt=urn:btih:EC34C91A49B7E52F6BADC8AEFD6800B6B0D4471F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Slimjet 48.0.0.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7EE0032E49DFC0EF281A3866693136EF6153E0C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:7EE0032E49DFC0EF281A3866693136EF6153E0C5
 magnet:?xt=urn:btih:0B556D78CDE652DD27EE754C08E81E112A986505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:0B556D78CDE652DD27EE754C08E81E112A986505
 ```bash
 magnet:?xt=urn:btih:9A2DB98B3214F462C185C7E64CB405AC2626993B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:9A2DB98B3214F462C185C7E64CB405AC2626993B
 magnet:?xt=urn:btih:C882FB5336068408F30345422961F7D6FCBC7459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ MAX Desktop 25.13.4 [Ru]
 magnet:?xt=urn:btih:BDEE89DB3A292DDBEB5DA1BB51A65731C817DD57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ HD Video Converter Factory Pro - удобный конвертер всех на
 ```bash
 magnet:?xt=urn:btih:30393274FC6D212D94BEE1A40A5E5952B2B1EF55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B6C3A5D4098EC79B6C5C82D5D57256BD406A5FB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:B6C3A5D4098EC79B6C5C82D5D57256BD406A5FB7
 magnet:?xt=urn:btih:F183C844CA333E2D40C02454CD08EBDAE5209B29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:F183C844CA333E2D40C02454CD08EBDAE5209B29
 ```bash
 magnet:?xt=urn:btih:0CA7F9526C5D5F2235E45CA9DF242BF19C474679
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:0CA7F9526C5D5F2235E45CA9DF242BF19C474679
 magnet:?xt=urn:btih:4A1F7CC56F6570C69FEFBFEF7D1CEDAFCEFCB171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:4A1F7CC56F6570C69FEFBFEF7D1CEDAFCEFCB171
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Dust Fleet (2023) [Multi] (6.4.5) License GOG
 magnet:?xt=urn:btih:CBC6686A577A1796659DD06F377607E8956ABAD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Bioweaver (2024) [Ru/Multi] (2.0.8b) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:935B4881DC07EDC6E4598F8992A83B7FA03D60F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Yes, Your Grace 2: Snowfall - кинематографичная игра про
 magnet:?xt=urn:btih:978C1AB36B57B9F05008A4CAA328869CB059455B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:978C1AB36B57B9F05008A4CAA328869CB059455B
 ```bash
 magnet:?xt=urn:btih:8C42E720FF7E3A19A2BB8E1BFC3B95A0EA5B3DD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Terminator: Dark Fate – Defiance - стратегическая игра в р
 magnet:?xt=urn:btih:F849012C238BB8DDE1EDAD2A9858958EA0A7BC68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ System Shock 2: 25th Anniversary Remaster (2025) [Multi] (1.2.4546) License GOG
 ```bash
 magnet:?xt=urn:btih:55FD758215AA19D80FE7C03023A4888E0353E26B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:55FD758215AA19D80FE7C03023A4888E0353E26B
 magnet:?xt=urn:btih:8FFEC06BA8173F4716DD695EEFD343A5D50E5867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Grit and Valor - 1949 (2025) [Ru/Multi] (1.4.0/dlc) Repack Let'sРlay [Resistanc
 ```bash
 magnet:?xt=urn:btih:CC5C05BC1FCD18D7CA8FC6942EEF363D70CA0697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Windows 11 Pro Version 24H2 Build 26100.4946 by Igors_VL [RU]
 magnet:?xt=urn:btih:0F6A16207DABBA6F7DC51DDBEA00F91B51991BD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:0F6A16207DABBA6F7DC51DDBEA00F91B51991BD6
 ```bash
 magnet:?xt=urn:btih:5EE5C4E1DA71AEE98CF3D43D7358B0C299095676
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ JDM: Japanese Drift Master сочетает в себе реалистичную
 magnet:?xt=urn:btih:51D01F356EF173C7CB2B6845AC1F7CA8A9773D3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:51D01F356EF173C7CB2B6845AC1F7CA8A9773D3F
 magnet:?xt=urn:btih:5BD1BDC95F0959183BB188E2829AB5E8D9A7EB55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:5BD1BDC95F0959183BB188E2829AB5E8D9A7EB55
 ```bash
 magnet:?xt=urn:btih:91C9CFA227C97C5F5352537AF272FC38863C6291
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Dashiell Royston - Soul and Beyond (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:27B2E47B2C086FAC4DBF603B4B08D18BC8AC79AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ JP LeBlanc - All In My Blood / Je l'ai dans l'sang (2025) [FLAC 24/44.1|Lossless
 ```bash
 magnet:?xt=urn:btih:BA3D5320E75072B721B2364066A786C37895F0F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ Heaven Shall Burn - метал-группа из Тюрингии, Герман�
 magnet:?xt=urn:btih:4E2A44239342F9A3F054D3F7B44BC05A1FB0357C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ Kellen Brixton - Mindstate (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:A75A9132AAE9C9093C504439642A205170991877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ Last prophets - Time Moved Again (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Roc
 magnet:?xt=urn:btih:47C576572D0E4CF57B30A49BF6537EF859596F4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ Aisha Khan - Seven Shades of Blue Aisha Khan & the Rajahs (2025) [FLAC 24/48|Los
 ```bash
 magnet:?xt=urn:btih:09A96CEF7123F819B49960227C04990E3D4A356B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ Junior Vic Band - Let the Good Times Roll (2025) [FLAC 24/48|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:B8495458D833CFFE9831C46D4F0800B47484E2CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ Knox Morgan - Loudspeaker (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:2CA72006925966E96A4B9384CE65801A9A59B892
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

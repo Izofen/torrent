@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:B67FFEC3EF1EDB54A09CF24CBB8B72C8311F7B72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:B67FFEC3EF1EDB54A09CF24CBB8B72C8311F7B72
 magnet:?xt=urn:btih:5228E0755438873526DD4508D748B90BA3EFCB22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:5228E0755438873526DD4508D748B90BA3EFCB22
 ```bash
 magnet:?xt=urn:btih:69FDB6D75047A62EC03E7F61D78D6A13DE753DC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:69FDB6D75047A62EC03E7F61D78D6A13DE753DC3
 magnet:?xt=urn:btih:B7AD641E5A298A0EF550E9A6B5E0A34F7C13A5F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:B7AD641E5A298A0EF550E9A6B5E0A34F7C13A5F6
 ```bash
 magnet:?xt=urn:btih:04DB26C8154F10EE860CAE1876DDDD40431FD7C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ MotoE, официальное название FIM Enel MotoE World Cup, это 
 magnet:?xt=urn:btih:3A431F3D4AA93A4D54006A7630A6626ACB30A3D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:3A431F3D4AA93A4D54006A7630A6626ACB30A3D0
 ```bash
 magnet:?xt=urn:btih:78E4ACCB0C3374651DA362545A325180A1401F1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:78E4ACCB0C3374651DA362545A325180A1401F1F
 magnet:?xt=urn:btih:B6D5F23ABC5D6F4013E2E2088A9B897F7A00289B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:B6D5F23ABC5D6F4013E2E2088A9B897F7A00289B
 ```bash
 magnet:?xt=urn:btih:2AB44AF50761C3272F1EFDCA6C6F162C4E3514A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Bennetts British Superbike Championship — ведущий чемпионат п
 magnet:?xt=urn:btih:49880B0614C8C272B7B186949CFBE47A38264632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ MotoAmerica — это организация, которая продвигае
 magnet:?xt=urn:btih:DC756FD2265949D3A576FC7492B053519DBD69BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:DC756FD2265949D3A576FC7492B053519DBD69BF
 ```bash
 magnet:?xt=urn:btih:E34DAB707E14FA8DE154318A1F9635C4991D9295
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:E34DAB707E14FA8DE154318A1F9635C4991D9295
 magnet:?xt=urn:btih:9D8A85216328452520CE14729BA43A9B0904A8ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:9D8A85216328452520CE14729BA43A9B0904A8ED
 magnet:?xt=urn:btih:5E4788FA4BB7D260B9CE131F6F7364ACA588CE44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ MotoGP. Этап 11. Гран-при Австрии. Гонка (15.08.2021) WEB
 magnet:?xt=urn:btih:326BF67CBFFF7F70ABF15651F0577CD679529767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ MotoGP. Этап 11. Гран-при Австрии. Квалификация (1
 ```bash
 magnet:?xt=urn:btih:39044F0049AA5E88DA22845A717B37079F06042A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:39044F0049AA5E88DA22845A717B37079F06042A
 magnet:?xt=urn:btih:D860A7168D3DCCF6FC49897489F99330ABA74B88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:D860A7168D3DCCF6FC49897489F99330ABA74B88
 ```bash
 magnet:?xt=urn:btih:05B65C8CC1AEC37583E8C4E8BFE46247C738551C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:05B65C8CC1AEC37583E8C4E8BFE46247C738551C
 magnet:?xt=urn:btih:64F0126A9CE2A278A510E8BB41E81D746101E02C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:64F0126A9CE2A278A510E8BB41E81D746101E02C
 ```bash
 magnet:?xt=urn:btih:3CB9FEDA79B25B659A91E97CE41BF6FAFD471D2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:3CB9FEDA79B25B659A91E97CE41BF6FAFD471D2D
 magnet:?xt=urn:btih:8FD5FBCEC49A24E99A675613ECDE16E1E78581A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:8FD5FBCEC49A24E99A675613ECDE16E1E78581A0
 magnet:?xt=urn:btih:F1D7BA5F5DE513DA16690994F3574D2EFEE55C86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:F1D7BA5F5DE513DA16690994F3574D2EFEE55C86
 ```bash
 magnet:?xt=urn:btih:8E8B3F6B40EE86138A823B4AC37320773BAD2276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:8E8B3F6B40EE86138A823B4AC37320773BAD2276
 magnet:?xt=urn:btih:04F04BBDD1DC29776C5204597ED5960B8C1A0A4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:04F04BBDD1DC29776C5204597ED5960B8C1A0A4E
 ```bash
 magnet:?xt=urn:btih:82AE3A2417D5A3018761062063AD088CA965CA0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:82AE3A2417D5A3018761062063AD088CA965CA0E
 ```bash
 magnet:?xt=urn:btih:15DD7ED64EC7EFC42435289D70948A6693367948
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

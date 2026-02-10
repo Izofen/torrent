@@ -26,6 +26,8 @@ Begging For Incest - Orgasmic Selfmutilation (2012) [MP3|320 кб/с]<Brutal Dea
 magnet:?xt=urn:btih:65FA38556A2B7DAE36FF5911591B2C35628C3152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -59,6 +61,8 @@ VA - Русские Новинки 9 (2012) [MP3|256 kbps]<Pop>
 magnet:?xt=urn:btih:B0715220438BE501A9675DFBBD13BABCF43FA4ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -85,6 +89,8 @@ magnet:?xt=urn:btih:B0715220438BE501A9675DFBBD13BABCF43FA4ED
 ```bash
 magnet:?xt=urn:btih:3680E452B1C780BC15482CD09D80838DD772E054
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +125,8 @@ VA - Дискотека Бездна Original Шансон vol. 3 (2012) [MP3|12
 magnet:?xt=urn:btih:4735EFD19D3C7BCC5AB53EE37CCECE7A4F2A83AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +159,8 @@ Che Pazzo Band - Jean-Baptiste (2011) [MP3|320 кб/с]<jazz, swing>
 magnet:?xt=urn:btih:C60AD1DCFBC625788F0DC6987BED30A62CF89109
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +184,8 @@ magnet:?xt=urn:btih:C60AD1DCFBC625788F0DC6987BED30A62CF89109
 ```bash
 magnet:?xt=urn:btih:9710AEF87F6AD6C688424506FB65F4DB2190081D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +211,8 @@ magnet:?xt=urn:btih:9710AEF87F6AD6C688424506FB65F4DB2190081D
 magnet:?xt=urn:btih:1E2EA1B76122CB61C861BAC6EE793BA94B503E51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +236,8 @@ magnet:?xt=urn:btih:1E2EA1B76122CB61C861BAC6EE793BA94B503E51
 ```bash
 magnet:?xt=urn:btih:EE600900D61CBCD8B061F9E2A392F109107F3196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +272,8 @@ VA - Танцевальный клубный поп хит vol.1 (2012) [MP3|256
 magnet:?xt=urn:btih:0DFE5B3AA03947F403650CB52E702FB1472A2B03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +307,8 @@ VA - Граммофон Рекордс (2012) [MP3|256 kbps]<Pop | Dance>
 magnet:?xt=urn:btih:213711A2CF5C6FF3F5B4470AA3906D88B48D3170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +332,8 @@ magnet:?xt=urn:btih:213711A2CF5C6FF3F5B4470AA3906D88B48D3170
 ```bash
 magnet:?xt=urn:btih:B88CC9956DD010F4FE5DFEB8AF2849ED7DF587CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +368,8 @@ New Eden - Solving for X (2012) [MP3|320 кб/с]< Progressive Power Metal>
 magnet:?xt=urn:btih:8E7BB0A88F2706F522FEC9126FFA7E866F725A15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +402,8 @@ VA - Мега Ватт от Радио Энергия (2012) [MP3|256 kbps]<Club
 ```bash
 magnet:?xt=urn:btih:3FB65284B810A5697469B4B5282DD1C29CEBBFC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +438,8 @@ Monigo - Coprometidos Con La Causa ''Shit & Honor!'' (2011) [MP3|320 кб/с]<Gr
 magnet:?xt=urn:btih:A06076C835CD26E3AB626AE21548F9B229092809
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +464,8 @@ magnet:?xt=urn:btih:A06076C835CD26E3AB626AE21548F9B229092809
 magnet:?xt=urn:btih:35D3F9D80FC23A5361FF0800897F6446FFF686D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +489,8 @@ magnet:?xt=urn:btih:35D3F9D80FC23A5361FF0800897F6446FFF686D6
 ```bash
 magnet:?xt=urn:btih:7830E2EF543B8211CCD304D47D76A9481B57D7F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +519,8 @@ Illuminatus - Glasnost (2011) [MP3|320 кб/с]<Alternative Metal | Progressive 
 magnet:?xt=urn:btih:F2E940982F19E153F1DB0AC17C5389012E4C2A85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +544,8 @@ magnet:?xt=urn:btih:F2E940982F19E153F1DB0AC17C5389012E4C2A85
 ```bash
 magnet:?xt=urn:btih:BBCAE6C4F589118D7023F024E376C8B496451595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +575,8 @@ magnet:?xt=urn:btih:BBCAE6C4F589118D7023F024E376C8B496451595
 magnet:?xt=urn:btih:21BC258F9B33D31FA9C056321B1FA801F0D94E93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +601,8 @@ magnet:?xt=urn:btih:21BC258F9B33D31FA9C056321B1FA801F0D94E93
 magnet:?xt=urn:btih:3913C6405DE1910A55FD84BFC56FFEB260B5B765
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +626,8 @@ magnet:?xt=urn:btih:3913C6405DE1910A55FD84BFC56FFEB260B5B765
 ```bash
 magnet:?xt=urn:btih:EAA409F92BB64958BF4C5B35D19CC7B722D34821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +662,8 @@ VA - Весенняя танцевальная вечеринка (2012) [MP3|16
 magnet:?xt=urn:btih:4F6E3F346F64A5DBA6DF89EE3BAE5276AFEEAFFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +696,8 @@ VA - Logic Energy (1997-2012) [MP3|320 кб/с]<Progressive house, Electro, Tech
 ```bash
 magnet:?xt=urn:btih:378AD882309B3DE5C8BF21E390989F44C591707E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -686,6 +732,8 @@ VA - CLUBная эйфория (2012) [MP3|128-192 kbps]<Pop | Club | Dance>
 magnet:?xt=urn:btih:58FBDC55499382A132F89DC16D2C5E2E6A85F023
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -709,6 +757,8 @@ magnet:?xt=urn:btih:58FBDC55499382A132F89DC16D2C5E2E6A85F023
 ```bash
 magnet:?xt=urn:btih:854AD789E2035878F2D2C41AF4129E8C81A345C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -742,6 +792,8 @@ Distorted - Voices from Within (2008) [WavPack|Lossless]<Gothic Metal,Melodic De
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

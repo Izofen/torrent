@@ -28,6 +28,8 @@ Pyotr Ilyich Tchaikovsky - The Seasons (2000) [FLAC|Lossless]<Classic>
 magnet:?xt=urn:btih:D043A20286FD267242096BB1CEEB4442CB2228C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -56,6 +58,8 @@ Pablo Sarasate - Music for Violin and Orchestra: Tianwa Yang (2009) CD3 [MP3|224
 ```bash
 magnet:?xt=urn:btih:1E6A106B3E60D3E0EC7C8C26A2B38EB0DA4F3DBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -90,6 +94,8 @@ VA - 100 Шедевров класики 1 (2013) [MP3|256 кб/с]<Класси
 magnet:?xt=urn:btih:E0D77542262C560589D71FD0FB491673A276C538
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +129,8 @@ Ludovico Einaudi - In a Time Lapse (2013) [MP3|320 кб/с]<Neoclassical>
 magnet:?xt=urn:btih:9657D61294D66813D4331E5049ECCDAE73F8AEFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +158,8 @@ Concerto h-moll RV 424
 magnet:?xt=urn:btih:CE0A51319962709EECE8014340945C9D059DDB00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +186,8 @@ Secret Garden - Storyteller (2019) Japan Edition [FLAC|Lossless|image + .cue] <N
 ```bash
 magnet:?xt=urn:btih:B7ADF8B8CC87E66D9864E428E8DC4F317F79BE50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +222,8 @@ Concerto in B flat major, RV 503
 magnet:?xt=urn:btih:4C50A5E8CA4A1B817AC36D597E6581D4E8F2074B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +256,8 @@ Concerto for Strings and Harpsichord, in G Major
 ```bash
 magnet:?xt=urn:btih:C6F6929AC331E6B0B0061F2AFA00D2DFACBD74C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +292,8 @@ Et resurrexit – Primo tempo
 magnet:?xt=urn:btih:0662A6CAB5479F8D77833C0B09D326C9AF5D1E1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +326,8 @@ Concerto Saint Marc
 ```bash
 magnet:?xt=urn:btih:8E5C3E599E01585967FDA7285D83529B8F83A9D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +363,8 @@ Symphony No 2
 magnet:?xt=urn:btih:0A1363B3AE3F107AEF13E3D6D342CA32623B4046
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +398,8 @@ Violin Concerto No.3 G-Dur KV.216 (1775)
 ```bash
 magnet:?xt=urn:btih:E337B239590ACED6D0309A2707EA614F2A1502D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +437,8 @@ P.S.
 magnet:?xt=urn:btih:F3A26384F717A0F476C4FCA9A9AD27B4594DB94D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +472,8 @@ magnet:?xt=urn:btih:F3A26384F717A0F476C4FCA9A9AD27B4594DB94D
 magnet:?xt=urn:btih:CA89DED14128C0FE42B9219071A9AFC1C8D5EF83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +504,8 @@ Antonio Lucio Vivaldi-New Discoveries Modo Antiquo Federico Maria Sardelli (2008
 ```bash
 magnet:?xt=urn:btih:5D990C9FA48968D75B43A0A908588EC714C5A370
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +540,8 @@ Pablo Sarasate - Music for Violin and Orchestra: Tianwa Yang (2009) CD2 [MP3|224
 magnet:?xt=urn:btih:BFA002127F6FA465811EE59225737B49C6AC6960
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +571,8 @@ magnet:?xt=urn:btih:BFA002127F6FA465811EE59225737B49C6AC6960
 magnet:?xt=urn:btih:C15219919DB2B8BB758AD63EC576F752F72370BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +597,8 @@ Wolfgang Amadeus Mozart–Requiem Mass in D minor KV 626: BBC Symphony Orchestra
 ```bash
 magnet:?xt=urn:btih:739A5022A6A28A296E72C94169FFC313BB032A4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +633,8 @@ CD1Жанр: VocalПродолжительность: 01:09:43
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +665,8 @@ Francesca da Rimini, Op. 32
 ```bash
 magnet:?xt=urn:btih:83A2486B2403B0D398C80563EAE4086AA3B42560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +701,8 @@ VA - 50 Golden Piano Favorites (3 CD Box) (1994) [FLAC|Lossless]<Instrumental, E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +733,8 @@ Pablo Sarasate - Music for Violin and Orchestra: Tianwa Yang (2009) [MP3|256 к�
 magnet:?xt=urn:btih:55F4EE4883F9DCCD9CFD474D5BAD4089B9691CC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -718,6 +762,8 @@ VA - Classical Chillout: 14 Calm and Relaxing Modern Classical Pieces (2020) [FL
 magnet:?xt=urn:btih:DD6C9533F77465B23827C185D84855F355A2CFAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -741,6 +787,8 @@ magnet:?xt=urn:btih:DD6C9533F77465B23827C185D84855F355A2CFAC
 ```bash
 magnet:?xt=urn:btih:80651F1D4BBCCFB92007C81BF50D1A8F5A87380A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -769,6 +817,8 @@ Sofiane Pamart - PLANET (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, 
 magnet:?xt=urn:btih:FEAEB646990DEC9747BCC7DC03736642ECFEC50A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -795,6 +845,8 @@ Strozzi, Monteverdi, Kapsberger, Carissimi, Frescobaldi - Lamento (Romina Basso)
 ```bash
 magnet:?xt=urn:btih:F75F5FD109FB0DE20D6E30848EDDA785331C4C1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -28,6 +28,8 @@ Blindstone - Rare Tracks (2012) [FLAC|Lossless]<Heavy Blues Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ Grant Lyle - Traces (2002) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:58768EAD4D2FEDB5A0151B1375049593A78229B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ The Frank Wess Orchestra - Entre Nous (1990) (1991) [FLAC|Lossless]<Big Band>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +132,8 @@ VA - Chicago Blues 2 (1998) 2CD [MP3|320 кб/с]<Blues, Chicago Blues>
 ```bash
 magnet:?xt=urn:btih:2D62849005067D53BA4AA170376A60199764E808
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +168,8 @@ Erroll Garner - The Original Misty (1954) (1988) [FLAC|Lossless]<Bop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +202,8 @@ VA - Chicago Blues 1 (1997) 2CD [MP3|320 кб/с]<Blues, Chicago Blues>
 ```bash
 magnet:?xt=urn:btih:79AB2CD030ED083C183C646AE3C6F80CA3600D6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +238,8 @@ Craig Erickson - Galactic Roadhouse (2012) [MP3|320 кб/с]<Blues Rock>
 magnet:?xt=urn:btih:38678AB589CD9C7B1C36230C2903951CB936797C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +273,8 @@ Blindstone - Rare Tracks (2012) [MP3|320 кб/с]<Heavy Blues Rock>
 magnet:?xt=urn:btih:A29174689799767ECEDC357DEF183E984B3343D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +301,8 @@ Leap of Faith (2009)Жанр: BluesПродолжительность: 01:23:47
 ```bash
 magnet:?xt=urn:btih:8D98CE8D632FF5FCF0008579DF018FF018F948DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +337,8 @@ Oscar Peterson - Exclusively For My Friends 6CD +1CD (1993 & 1996) [FLAC|Lossles
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +365,8 @@ Robert Kane - Blues Is Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:F466F79B4D20603001776347BA6439B978BFB7E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +395,8 @@ Scott Weis Band - Scott Weis Band XX (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 magnet:?xt=urn:btih:079356FE2B472A41E4121AAED25419A93FEEBA2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +423,8 @@ Stray Dawg and the Wolves - Blues on the Inside (2025) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:908D4166AEEB70A6D969F355CD21A4E5175245FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +453,8 @@ The Joel Dupuis Band - Very Best Fool (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 magnet:?xt=urn:btih:09F52773CCFDA32A5E846662C026FF6D2219E7E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +481,8 @@ Sean McDonald - Have Mercy! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:63BD212E155B9D83E2BEFACA2417D00CAEEC8F4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +511,8 @@ The Zac Schulze Gang - Straight to It (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 magnet:?xt=urn:btih:7011A442D5DDADABB7B36698975B00692E46ECAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +539,8 @@ The Soul of John Black - Soul Salvation (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 ```bash
 magnet:?xt=urn:btih:4EF0000A22F6A17D459C386B79D19B9BD254ACBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +569,8 @@ Fourplay - Elixir (1995) 2025, 30th Anniversary Edition, Remastered [FLAC 24/192
 magnet:?xt=urn:btih:D861EC353E3C870BD4D7EF2A4BF6F51F7467ECA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +597,8 @@ Ray Lemelin - Stirring The Pot (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:7BDDDFE1EF074F62856859BA5C2A3E1450AFA5FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +633,8 @@ Jacky Terrasson & Cassandra Wilson - Rendezvous (1997) [FLAC|Lossless]<Jazz>
 magnet:?xt=urn:btih:BDDF6AF5D5D785E190EE6131D0294651786F34C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +661,8 @@ Red Slim - Good to Go (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:B29C41BCDE3A47D5D8AC344C5D0C5DED7DC422A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +691,8 @@ Wayne Madder - Disconnect (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:82BBF186EC86399F2D1F93C967C58289BC368C43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,6 +719,8 @@ White Feet, Nasser Ben Dadoo - Blue Legacy (2023) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:EFD4A947A89DA4865CEB78786E0EC46D3DCB01CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -703,6 +749,8 @@ VA - Blind Raccoon & Nola Blue Collection Vol. 5 (2023) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:6B9CC89EE8CE0EE6C93C737728ADD9D188AFA60D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -730,6 +778,8 @@ Jimi "Primetime" Smith - The World In A Jug (2023) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:13A648F09EF76A4FAB5C8ED5085F995464D72611
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -756,6 +806,8 @@ Brian Culbertson - Day Trip (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth J
 ```bash
 magnet:?xt=urn:btih:B44405D002B4333097B175F1DCFD75F06173A0B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

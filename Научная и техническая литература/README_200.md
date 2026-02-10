@@ -20,6 +20,8 @@ John Farndon | Inventions: A Visual Encyclopedia (2018) [PDF]
 magnet:?xt=urn:btih:979236FDE2CA5F60944AA25FDAC8DDAB3C8DAD86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:979236FDE2CA5F60944AA25FDAC8DDAB3C8DAD86
 ```bash
 magnet:?xt=urn:btih:F3C2FA7E54ABA98BADEC8A636E8F9CB8CD0B474F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:F3C2FA7E54ABA98BADEC8A636E8F9CB8CD0B474F
 magnet:?xt=urn:btih:52AF1D0F6A6D403F125EB1AA5B169D274813BE87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:52AF1D0F6A6D403F125EB1AA5B169D274813BE87
 ```bash
 magnet:?xt=urn:btih:62F95703D5142BE336EB907ABEE7AFE5CF23CF6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:62F95703D5142BE336EB907ABEE7AFE5CF23CF6C
 magnet:?xt=urn:btih:5C345F41D8EA026948A65818AB37402A65D66541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:5C345F41D8EA026948A65818AB37402A65D66541
 ```bash
 magnet:?xt=urn:btih:CCE3026B5EEA83C32806B3D2C7FB8FC303A3E4E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:CCE3026B5EEA83C32806B3D2C7FB8FC303A3E4E3
 magnet:?xt=urn:btih:1323BD7CCBD65B5A7DFC87CD60AC3E97F00753AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:1323BD7CCBD65B5A7DFC87CD60AC3E97F00753AB
 ```bash
 magnet:?xt=urn:btih:C594DF3597580281A051C21043B64C9558A85571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:C594DF3597580281A051C21043B64C9558A85571
 magnet:?xt=urn:btih:FCC6C814238790E4876CC8714F18CDAE50729521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:FCC6C814238790E4876CC8714F18CDAE50729521
 ```bash
 magnet:?xt=urn:btih:F691AEDB1F60DC8A472F182800EEC0E1683ABB99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:F691AEDB1F60DC8A472F182800EEC0E1683ABB99
 magnet:?xt=urn:btih:C9D22DA703DC8A66EDD3C888460B226A757114D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:C9D22DA703DC8A66EDD3C888460B226A757114D2
 ```bash
 magnet:?xt=urn:btih:9DF955EE5FF83E22324F508CA35D0FF5E23E84CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:9DF955EE5FF83E22324F508CA35D0FF5E23E84CF
 magnet:?xt=urn:btih:DF8CD1ACB46E776AE715E40306F75ADC525CCF0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:DF8CD1ACB46E776AE715E40306F75ADC525CCF0E
 ```bash
 magnet:?xt=urn:btih:3124F8835F350EF92511A562DDBA9C12651C8244
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:3124F8835F350EF92511A562DDBA9C12651C8244
 magnet:?xt=urn:btih:BB20282102ECC4EEC75BDDB25183B6EF1305094D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:BB20282102ECC4EEC75BDDB25183B6EF1305094D
 ```bash
 magnet:?xt=urn:btih:333D9AEFE1BE7799ADE1BD7BA155ABF7A517C015
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:333D9AEFE1BE7799ADE1BD7BA155ABF7A517C015
 magnet:?xt=urn:btih:B25E95ACD987525DB0E8E55E246C20D0FA8BA33E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Steven J. Zaloga | Early US Armor: Tanks 1916–40 (2017) [PDF] [New Vanguard #2
 ```bash
 magnet:?xt=urn:btih:BFB566DC4A1DC66726E59EF61AA88E7BB4848938
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:BFB566DC4A1DC66726E59EF61AA88E7BB4848938
 magnet:?xt=urn:btih:E0FE962F9F9274166C47BD210DE3A02E87BA8F2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:E0FE962F9F9274166C47BD210DE3A02E87BA8F2F
 magnet:?xt=urn:btih:D25809A5120929A9BF8F8CFFB277748E7DB40B40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:D25809A5120929A9BF8F8CFFB277748E7DB40B40
 ```bash
 magnet:?xt=urn:btih:B2960264AD8471865FCA122EA715D46E93BEB8B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:B2960264AD8471865FCA122EA715D46E93BEB8B8
 magnet:?xt=urn:btih:2169CFB2E61E9D5C2A42AC68A47105F819955CAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:2169CFB2E61E9D5C2A42AC68A47105F819955CAC
 magnet:?xt=urn:btih:46D50B81310EFB929FBA8FFFC3620A91D2EF3BF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:46D50B81310EFB929FBA8FFFC3620A91D2EF3BF1
 ```bash
 magnet:?xt=urn:btih:00357DCA6259C8ED9A3E7274F6A9567D615E0FF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:00357DCA6259C8ED9A3E7274F6A9567D615E0FF8
 magnet:?xt=urn:btih:AB2E50553C2BE85B6B95C04F3449AC1CF28C049D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:AB2E50553C2BE85B6B95C04F3449AC1CF28C049D
 ```bash
 magnet:?xt=urn:btih:D6D51DCAAFB4698AF4C096AE5CDD49EE51A906C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

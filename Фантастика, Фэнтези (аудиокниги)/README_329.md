@@ -1,3 +1,29 @@
+###  Публикация: 398768   (401937) от 11.10.2011
+
+Сергей Палий | Безымянка [Сергей Кузнецов] [2011] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_401937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это роман мистический и приключенческий, любовный и героический. История постъядерной Самары, тайны сталинских бункеров и законсервированных советских секретных объектов, отчаянная романтика беспризорников и страсть, за которые платят жизнью, – в "Безымянке" Сергея Палия все сплелось, все смешалось. Хорошо и умело написанная, с душой придуманная... Нет, (   Читать дальше...   )Жанр: Фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C22E6BD36C12D9D15EBF51A168BCD6360F5DD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169726   (402092) от 28.09.2017
 
 Антон Емельянов, Сергей Савинов | Первый игрок (2017) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:907B8D8053A1B68F0166B313C4964412D39E9AB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:907B8D8053A1B68F0166B313C4964412D39E9AB1
 magnet:?xt=urn:btih:A28758D86429FF63172EC01D52A570D5A77E6462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:A28758D86429FF63172EC01D52A570D5A77E6462
 ```bash
 magnet:?xt=urn:btih:5AB1FDC40DA53E66F7B0A1FA8DB75BBBFEEA5029
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:5AB1FDC40DA53E66F7B0A1FA8DB75BBBFEEA5029
 magnet:?xt=urn:btih:81CABC74105AD032A6CA5B26AD8920A86FDF9B82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:81CABC74105AD032A6CA5B26AD8920A86FDF9B82
 ```bash
 magnet:?xt=urn:btih:F6322D1E4E22493F368D56A56C684E98885503A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:F6322D1E4E22493F368D56A56C684E98885503A3
 magnet:?xt=urn:btih:1FBAB03764BBFFF2A0CB5EC3716802ED31D96DC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:1FBAB03764BBFFF2A0CB5EC3716802ED31D96DC8
 ```bash
 magnet:?xt=urn:btih:48A2073B73F548F1AEF18F461A6756C1DDEF82AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:48A2073B73F548F1AEF18F461A6756C1DDEF82AC
 magnet:?xt=urn:btih:261937002585474D7A4CA2CAF0C28D78E823F95B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:261937002585474D7A4CA2CAF0C28D78E823F95B
 magnet:?xt=urn:btih:97022881DDD9F8AE99E4FEB043E243727DCCE534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:97022881DDD9F8AE99E4FEB043E243727DCCE534
 ```bash
 magnet:?xt=urn:btih:08463C863B1C707B15B0E1D9FF6132EFE769A32F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:08463C863B1C707B15B0E1D9FF6132EFE769A32F
 magnet:?xt=urn:btih:E9189A60BC9D8F82EDF093D7A3466B185B887F98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:E9189A60BC9D8F82EDF093D7A3466B185B887F98
 ```bash
 magnet:?xt=urn:btih:7BD063B3E75B4C2BBDE281BBA9827BB67CD89A3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:7BD063B3E75B4C2BBDE281BBA9827BB67CD89A3D
 magnet:?xt=urn:btih:C530AB799CC7CFCE5787B3B5C0561E80E9786B7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:C530AB799CC7CFCE5787B3B5C0561E80E9786B7C
 ```bash
 magnet:?xt=urn:btih:73A95B22924C815091376B816DBB4611D898A837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:73A95B22924C815091376B816DBB4611D898A837
 magnet:?xt=urn:btih:F6F744335B1353AD876FEDD911F49BC5A23AF22F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:F6F744335B1353AD876FEDD911F49BC5A23AF22F
 ```bash
 magnet:?xt=urn:btih:F175F6F32BCF137BA78D28A0B51DB48A520C9658
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:F175F6F32BCF137BA78D28A0B51DB48A520C9658
 magnet:?xt=urn:btih:3DFBF6DECA8DEFF4E273EF654FDA8433E23DD134
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:3DFBF6DECA8DEFF4E273EF654FDA8433E23DD134
 ```bash
 magnet:?xt=urn:btih:277700485BEEBA8634161B0AB6707FCF293BAD3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:277700485BEEBA8634161B0AB6707FCF293BAD3B
 magnet:?xt=urn:btih:1724FCBBA0FBB7A26F98471A4AE7DFDC51A3D115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:1724FCBBA0FBB7A26F98471A4AE7DFDC51A3D115
 ```bash
 magnet:?xt=urn:btih:68BB6061B2A84E8EE2DDBE731E99691ED44BCBF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:68BB6061B2A84E8EE2DDBE731E99691ED44BCBF9
 magnet:?xt=urn:btih:6C39DC5F86BCCBA2D16EF62CC7622FFC794249BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:6C39DC5F86BCCBA2D16EF62CC7622FFC794249BD
 ```bash
 magnet:?xt=urn:btih:353F1921FC975D55783CBFEC37634723BDF674E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:353F1921FC975D55783CBFEC37634723BDF674E8
 magnet:?xt=urn:btih:F8B14B785CBCEC77521CC51B668765B461DFE7F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:F8B14B785CBCEC77521CC51B668765B461DFE7F1
 magnet:?xt=urn:btih:B08A32B8684A5A06DA779E82BB420568CC5D70DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:B08A32B8684A5A06DA779E82BB420568CC5D70DF
 magnet:?xt=urn:btih:E71945EA5D90A4F5452F740BD462064152B31B98
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559462   (407776) от 13.10.2012
-
-Стивен Кинг | Кэрри [2012] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_407776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кэрри — обычная 17-летняя девушка в маленьком провинциальном городке Чемберлене, над которой все издеваются, «белая ворона». Она старомодно одевается, не гуляет со сверстниками. Её мать строгая и религиозная женщина, которая досаждает ей не меньше одноклассников. Долгое время она накапливала в себе обиду и злость, сдерживала гнев... Пока не открыла в себе способности к телекинезу. И вот тогда все её обидчики узнают кто она есть и поплатятся, весь городок получит полный расчёт за все унижения, что пережила Кэрри...Жанр: Мистика, хоррорПеревод: А. Корженевский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79C02A1BC28935CF8A31E9FF41DF098C123DEA4E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

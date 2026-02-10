@@ -1,3 +1,29 @@
+###  Публикация: 1122094   (798830) от 05.04.2017
+
+Свято-Троицкий монастырь (изд.) | Преподобные старцы Оптиной Пустыни (1992) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBE915251290A0FED71EE494D6064FB611AA28EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122183   (798993) от 04.04.2017
 
 Марк Тигелаар | Как читать, запоминать и никогда не забывать (2017) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:29D341EF8E851DD045B11DB8BADB6329DE7A3888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:29D341EF8E851DD045B11DB8BADB6329DE7A3888
 ```bash
 magnet:?xt=urn:btih:60D77B614BC18CB66A005632A931D171AEAD1E91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:60D77B614BC18CB66A005632A931D171AEAD1E91
 magnet:?xt=urn:btih:0A1EAACA9157512560EB3C8745EB16D69DD6BAD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:0A1EAACA9157512560EB3C8745EB16D69DD6BAD7
 ```bash
 magnet:?xt=urn:btih:79DCD09CE9D3C55F1F386D8E993F18176B12A41C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:79DCD09CE9D3C55F1F386D8E993F18176B12A41C
 magnet:?xt=urn:btih:D569980D02A9EA9018259085AC92BE2E4EC25996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:D569980D02A9EA9018259085AC92BE2E4EC25996
 magnet:?xt=urn:btih:69DAF67744DF3736C4EB609D7B86FE7DFEDE0C7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:69DAF67744DF3736C4EB609D7B86FE7DFEDE0C7E
 ```bash
 magnet:?xt=urn:btih:1709004D7D221462C71FF07241A68E0EE6038699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:1709004D7D221462C71FF07241A68E0EE6038699
 magnet:?xt=urn:btih:B1AAC536470663977E6F5E9644A166F1886DD1DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:B1AAC536470663977E6F5E9644A166F1886DD1DF
 ```bash
 magnet:?xt=urn:btih:7640EAD0FDAD9204BD19E18D88A89FAF30BE1EE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:7640EAD0FDAD9204BD19E18D88A89FAF30BE1EE8
 magnet:?xt=urn:btih:04D30D71F6CA742B40A7F444EE7CA7638A80E6A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:04D30D71F6CA742B40A7F444EE7CA7638A80E6A7
 ```bash
 magnet:?xt=urn:btih:F2349185CB081870B6BB47C10BD1CAEECC15BC6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:F2349185CB081870B6BB47C10BD1CAEECC15BC6E
 magnet:?xt=urn:btih:13FBEA62515FD251917B10ED0CD11BB6C1BEBBAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:13FBEA62515FD251917B10ED0CD11BB6C1BEBBAB
 ```bash
 magnet:?xt=urn:btih:BA10E2B3DBB411341AF114C2D893FE94A127B1C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:BA10E2B3DBB411341AF114C2D893FE94A127B1C4
 magnet:?xt=urn:btih:76CD88FAA7658ABA83EE36BBEF34DD3EDE1F208A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:76CD88FAA7658ABA83EE36BBEF34DD3EDE1F208A
 ```bash
 magnet:?xt=urn:btih:DBAC2BF460184D658CB63205B511C74F520820DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:DBAC2BF460184D658CB63205B511C74F520820DE
 magnet:?xt=urn:btih:D7CBF05BE067B4D211CABBD6BA73B144F78F6ECA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:D7CBF05BE067B4D211CABBD6BA73B144F78F6ECA
 ```bash
 magnet:?xt=urn:btih:713680537A4B84D835D04E90E394A040F46B883A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:713680537A4B84D835D04E90E394A040F46B883A
 magnet:?xt=urn:btih:AE22DAE226F0D0AA3DFCA775F039F45FBF0A9540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:AE22DAE226F0D0AA3DFCA775F039F45FBF0A9540
 magnet:?xt=urn:btih:D2EC9C0DFA44C04F78C4AC4149B000A297A3BC73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:D2EC9C0DFA44C04F78C4AC4149B000A297A3BC73
 ```bash
 magnet:?xt=urn:btih:4D7D46587CE5D32EC891FFC3A68FC7D1A198B160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:4D7D46587CE5D32EC891FFC3A68FC7D1A198B160
 magnet:?xt=urn:btih:236D4396A41653A06589188E1769A462F7B6BC5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:236D4396A41653A06589188E1769A462F7B6BC5A
 magnet:?xt=urn:btih:53CF2E49943B486B87E76A607D59BBD96EFC7E69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:53CF2E49943B486B87E76A607D59BBD96EFC7E69
 ```bash
 magnet:?xt=urn:btih:31F8F97BE1197DBBE625A6F41E1160E21629BA96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:31F8F97BE1197DBBE625A6F41E1160E21629BA96
 magnet:?xt=urn:btih:42DDDA066AA9DD1AAF34A2C25BC9589711A7F6CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:42DDDA066AA9DD1AAF34A2C25BC9589711A7F6CC
 magnet:?xt=urn:btih:C947FB0AA915D19679B8F7BD8BC1912C1F3EFC01
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385087   (800035) от 23.05.2020
-
-Сергей Кардаполов | Исцеляющая Гравитация. Авторская методика самовосстановления позвоночника (2017) [PDF]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сергей Кардаполов - человек, который пришёл к своим уникальным знаниям и наработкам через боль и тяжёлые испытания судьбы. Более 25 лет назад автор пережил тяжелейшую травму во время аварии. Шансы на нормальную полноценную жизнь были невелики. Но сила духа и любовь к жизни открыли Сергею путь к здоровью. Книга содержит базовую информацию по теории и практике методики (   Читать дальше...   )Жанр: Массаж. ЛФКФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCA316C87C7E650728505AC22A10EA8E8E275B8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

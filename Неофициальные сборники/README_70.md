@@ -28,6 +28,8 @@ VA - Самый убойный хит (2012) [MP3|320 кб/с]<Шансон>
 magnet:?xt=urn:btih:8BE3257EED3F2A5D14B63E22C901201B13EB14AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ VA - Tunnel Trance Force: Best Of Vol.63 (2012) [MP3|320 kbps]<Trance, Hard Tran
 ```bash
 magnet:?xt=urn:btih:169CEF3EB6FAEC3C7852CB26A4347E506FC467D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ VA - Best of Berlin Minimal Underground Vol.2 (2012) [MP3|320 kbps]<Progressive 
 magnet:?xt=urn:btih:0C138730A719374CDC7DCB1BE03C7A1C6EB11333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +132,8 @@ VA - USA Hot Top 40 Singles Chart 30 December (2012) (2012) [MP3|256 кб/с]<Po
 ```bash
 magnet:?xt=urn:btih:7B5EB6CCB1673756221B291B9EE99E0BBE6B2F78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +168,8 @@ VA - Winter Trance 2012 (2012) [MP3|320 kbps]<Trance>
 magnet:?xt=urn:btih:BFF8037208C83B30661CE0D79902C5183D133DEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +203,8 @@ VA - Aropa Records - Best Of 2012 (2012) [MP3|320 kbps]<Trance>
 magnet:?xt=urn:btih:7A384C695404B3F7FFE5FC413A5E401BEBA69D9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +231,8 @@ VA - Night Rider 7 (2023) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:9FB0AB297683EC5E4F9C3F35F080E91FE5EB3994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +261,8 @@ VA - Romantic Relaxing and Nostalgic Blues Music (2023) [MP3|320 Kbps] <Blues>
 magnet:?xt=urn:btih:69457AB884B635D2D67E3E30F2523535EC4D0F64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +289,8 @@ Subbota - This Is Subbota (2023) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:AEAA8CE4A4AE332E509450B122CBDA8A923EE24B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +320,8 @@ VA - Chill & Dub v.10 (2012) [MP3|320 кб/с]<Chillout/DubStep>
 ```bash
 magnet:?xt=urn:btih:44FE0FB98A8FA3F0F39E1AEC29C5D756BA3C1FF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +356,8 @@ VA -Fly-Radio : Улётные хиты -  (2012) [MP3|128-320 кб/с]<Pop>
 magnet:?xt=urn:btih:22E9790F6FC46E18D57A6821071BB3902BB38083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +390,8 @@ VA - Зимняя музыкальная эйфория 50/50 - (2012) [MP3|256 
 ```bash
 magnet:?xt=urn:btih:2D579ED0E3343ACE94A821564EA56C0E82D38B96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +426,8 @@ VA - Клубный Super Автохит 5 50/50 - (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:D92892936285DE0D398EDF8659A8461B97C4E784
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +461,8 @@ VA - Another Rock'n'Roll Christmas (2002) [MP3|320 кб/с]<Pop, Swing, Rock'n'R
 magnet:?xt=urn:btih:3C368D8F92EA22A44D92660DCF32E74209244F9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +490,8 @@ VA - Русские Хиты 7 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:11E38F044C187A3A1BA7D282363348019C05E87A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +518,8 @@ VA - ЕвроХит Топ 40 Europa Plus 01.12.2023 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:B6C18CC264B849DD5A83B40E167527E47DEE7300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +554,8 @@ VA-Новогодний АвтоХит от Деда Мороза 2013 (2012)  [
 magnet:?xt=urn:btih:5944BB768695F2D49FFDCAC5A22056ED29DBD84A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +588,8 @@ VA - Ferry Corsten presents Best Of Corsten's Countdown (2012) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:692F398EBDA796D11BCA2B7CFA75F4D011733677
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +624,8 @@ VA - Sunset High Dreaming (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:96C225F557304B3311EFF3AAACF5D87CFCCF67BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +652,8 @@ VA - Music News vol.320 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:2B587BC27EAC041947B1A2978C83C0F73AE4AA2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +688,8 @@ VA - Хозяйка Бара.Сборник Лучшего Шансона - (200
 magnet:?xt=urn:btih:DEBA70DD095BF82A46B839FD98B43766FC8E4786
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,6 +723,8 @@ VA - Новогодняя Авто Дискотека DFM 50+50 - (2012) [MP3|25
 magnet:?xt=urn:btih:923E6C307DE53D6ACEC53CB39449778BC147867F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -704,6 +748,8 @@ VA - 100 золотых романтических хитов - 10 (2012) [MP3|2
 ```bash
 magnet:?xt=urn:btih:BFEBA97CD3483F7142A68E80D104E6C321322098
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -738,6 +784,8 @@ VA-New Year Party 2013  (2012) [MP3|320 кб/с]<Dance, Pop, House>
 magnet:?xt=urn:btih:C959E901C03960B86FADE0D4F73559276528D9CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -761,6 +809,8 @@ VA - Супер Свежачок от Снегурочки (2012) [MP3|160 - 320
 ```bash
 magnet:?xt=urn:btih:56E5AC584E29280B788FFF07FA78968443762CE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -788,6 +838,8 @@ VA - Это Новый год! (2023) [MP3|320 Kbps] <Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:594608DC8450428CFFF758FD9470956A749375D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

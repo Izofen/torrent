@@ -22,6 +22,8 @@ Blank & Jones & Marc-George - Rediscovered Works (2025) [FLAC 24/48|Lossless|WEB
 magnet:?xt=urn:btih:C1296C80B7E60D3F63668ECA18A0DE6B4E95454A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:C1296C80B7E60D3F63668ECA18A0DE6B4E95454A
 magnet:?xt=urn:btih:E93784FD1330815612D8B51DD84F36CE0786BE7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Hige o Soru. Soshite Joshikousei o Hirou. | Higehiro: After Being Rejected, I Sh
 ```bash
 magnet:?xt=urn:btih:E6198E6D2FC49F183F1B6FD305197AA8C8EC89E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:E6198E6D2FC49F183F1B6FD305197AA8C8EC89E2
 magnet:?xt=urn:btih:77D1DA5F83DBEB9C973A69D7C04BD9DC271051E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:77D1DA5F83DBEB9C973A69D7C04BD9DC271051E6
 ```bash
 magnet:?xt=urn:btih:FFCDA8270EF74C36AE98B434A76ED86B95A724C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:FFCDA8270EF74C36AE98B434A76ED86B95A724C8
 magnet:?xt=urn:btih:9C9C0EC9BA7A5156F2C4A14D581245263EC3A213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:9C9C0EC9BA7A5156F2C4A14D581245263EC3A213
 magnet:?xt=urn:btih:160FB8867B24FA910377D9FEC7E721D2D28A6E94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:160FB8867B24FA910377D9FEC7E721D2D28A6E94
 ```bash
 magnet:?xt=urn:btih:7D5F37D2236D2E99D7B8ED02C28778D85C571B81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Restrike — элегантный рукописный шрифт, призва�
 ```bash
 magnet:?xt=urn:btih:1D962CA3B9A0F8803864A00FBB25909986315DC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ Solid Explorer - это приложение для управления фай�
 magnet:?xt=urn:btih:900B0923EE49D83294D5B83616CE5C819B8D887E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:900B0923EE49D83294D5B83616CE5C819B8D887E
 ```bash
 magnet:?xt=urn:btih:25F9699A9E2DFEE1E3812FE1E5FEA7F8F80585A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ Kdenlive - бесплатный нелинейный видеоредактор,
 magnet:?xt=urn:btih:460C73523B31334DC084C75CCD43B8BDE8170120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:460C73523B31334DC084C75CCD43B8BDE8170120
 ```bash
 magnet:?xt=urn:btih:DE7A659D7D6F061F3B10FFA92C3E7015711EF598
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:DE7A659D7D6F061F3B10FFA92C3E7015711EF598
 magnet:?xt=urn:btih:80D00643F92F2C9BB2985B27DD7B4CADEC3BF157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:80D00643F92F2C9BB2985B27DD7B4CADEC3BF157
 ```bash
 magnet:?xt=urn:btih:70944F83A10970A4D0863A802014C3D496D89D7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ Roboquest - это динамичный рогалик от первого ли�
 magnet:?xt=urn:btih:46DECF6B1B5FC5BFF6C52F6495203B23B1019100
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:46DECF6B1B5FC5BFF6C52F6495203B23B1019100
 magnet:?xt=urn:btih:335551070AF0BADB65B134FBAB7F6E97EA283776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ ExtraDisks - это набор инструментов для создания 
 ```bash
 magnet:?xt=urn:btih:D1DB7477B19AFF7A8F043088BE1771AE73F11BD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ VA - House of the past years (2025) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:7E38F660098E8C612B2E381B8BCAB824B2DB0760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ Stoto - Compilation (2025) [MP3|320 Kbps] <Electronic, Instrumental>
 ```bash
 magnet:?xt=urn:btih:BBEFB11E46D464744A60F7423D9FD78124B422D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ Lacuna Coil - Sleepless Empire (2025) [FLAC|Lossless|image + .cue] <Gothic, Alte
 magnet:?xt=urn:btih:1E1FDCC72A7CB0D04D3D32031029893E86EEC3AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ TuneIn объединяет спортивные события, музыку, �
 ```bash
 magnet:?xt=urn:btih:F5D6050345ECF522EFA920D53C508B5E70A23FD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:F5D6050345ECF522EFA920D53C508B5E70A23FD0
 ```bash
 magnet:?xt=urn:btih:272FA1EAE3E9AB2F206B1F0AB157A029ACACDBAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ VA - Compilation part 143 (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:5EF9FD49E30229A5B7D134128E0C0A4FAC914FE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ VA - ADE Underground Amsterdam Sampler (2025) [MP3|320 Kbps] <Progressive House,
 magnet:?xt=urn:btih:B0A9A751A5B2614F3CDC2B385B23761EE75B532D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ Tune Of The Year Vote 2024
 ```bash
 magnet:?xt=urn:btih:5D8394B2C28C916CF02EC402701CEA596A576345
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Harvest Moon: The Winds of Anthos приглашает отправиться в
 magnet:?xt=urn:btih:CAA6FAAB41ECD491C7B4A3E8E5D7ABD2957C30CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Call of the Wild: The Angler (2022) [Ru/Multi] (2.0/dlc) Repack FitGirl [Ultimat
 ```bash
 magnet:?xt=urn:btih:80365C5CEDA5BD6D4EA9CD652D67AEFE1DDC76F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Chrono Ark – ролевое приключение в классическом
 magnet:?xt=urn:btih:B74A599021FB72FB63476F41C72FCF1D3C177BBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ L.A. Noire – мрачный и жестокий триллер. В игре и
 ```bash
 magnet:?xt=urn:btih:E6BAAAB363BD82B42D802E7D020EB658F090BA68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Farmagia (2024) [Multi] (1.0.1/dlc) Scene Tenoke
 magnet:?xt=urn:btih:EC2193E3DF8DC0FE377E82E7DB91922E105FA501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:BA87C76B26BF8B6980442EB09A44B168AD5AA1F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Ashes of the Union (2024) [Ru/Multi] (Patch #7 Hotfix) Scene Skidrow
 magnet:?xt=urn:btih:D3C5D07F290A0D0F62D4A65556CE94CE9E3D0A79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Quadrober Simulator / Симулятор Квадробера (2024) [Ru/En] (1.
 ```bash
 magnet:?xt=urn:btih:9C6A23F5BA838BCA5B8E3B88F526522201249409
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Subnautica: Below Zero (2019) [Ru/Multi] (Build 49371) Repack Other s
 magnet:?xt=urn:btih:755719E3DDE81E59D145ECF1B3D8B12E95A7CC98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Max Payne 3 (2012) [Ru/Multi] (1.0.0.272/dlc) Repack Other s [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:AF57BCCB50DB3D18AD529B848FA8A5FF68365824
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Quadrober Simulator / Симулятор Квадробера (2024) [Ru/En] (1.
 magnet:?xt=urn:btih:78C48427C0F2B566AB481A7193F316F81EE22212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.37.0/1.0.38.0) Repack FitGir
 ```bash
 magnet:?xt=urn:btih:E1B2AB65532BEF825AC69EBAF605AF695BF5D605
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Call to Arms - Gates of Hell: Ostfront – стратегия в реально�
 magnet:?xt=urn:btih:7E081A2A18154FC1153600790611D603B5081291
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ WWE 2K24 позволит вам заново пережить культовы�
 ```bash
 magnet:?xt=urn:btih:DBFAD909344065DE3BEA08E4E46F71219DAE95CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Guilty Gear -Strive- (2021) [Multi] (1.40/dlc) Scene Tenoke
 magnet:?xt=urn:btih:F0C287BA978F2597E70FDF28432117C25A10DA41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Sofie: The Echoes (2024) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:51BEB3E6412BA695E917662E6F0EE380ED38AD06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Granny Remake (2023) [Ru/Multi] (3.5) Repack seleZen
 magnet:?xt=urn:btih:552E643F6C30286D9A38156A882D254CD131011D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Moon Mystery приглашает игроков в космическую од�
 ```bash
 magnet:?xt=urn:btih:26451534CB9B4D1A7A507B5686E2F2CE5E1D19A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Vampire Survivors (2021) [Ru/Multi] (1.12.105/dlc) Repack seleZen
 magnet:?xt=urn:btih:A0FB2D8691C49B06C53F0C6EB36EFC05C9EF43C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Deponia (2012) [Ru/Multi] (3.3.1357) License GOG
 ```bash
 magnet:?xt=urn:btih:0795988FFCB5BB9EF16AAC4B3123FDFAAC3AA67D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Shadows of the Damned: Hella Remastered - долгожданное переиз�
 magnet:?xt=urn:btih:2A93D70FFDFF2F5A18B0F7DAC74DD0FA1CF61DFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Horizon Zero Dawn Remastered (2024) [Ru/Multi] (1.0.37.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:97F131FC3C09EBB2DA907962E1BE4EFB8B835EF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ DREDGE (2023) [Ru/Multi] (1.5.3/dlc) Repack FitGirl [Complete Edition]
 magnet:?xt=urn:btih:821E877DC29FD5B46D3CDD4B7640BB2CCFB1B0E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Chaos on Deponia (2012) [Ru/Multi] (3.3.2351/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:16CAD74230189BB66038DCA77DEA304C8D43FA33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Dragon Age: The Veilguard (2024) [Ru/Multi] (Build 16179329/dlc) Scene Rune [Del
 magnet:?xt=urn:btih:758EB36764C30A26E8E5201F53E0E0DBDEB61EB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Goodbye Deponia (2013) [Ru/Multi] (3.3.3335/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:CEC0E7ABCCFEE9F7E1AF79FA6285742C2476804F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

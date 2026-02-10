@@ -22,6 +22,8 @@ VA - Ministry Of Sound - Chilled House Ibiza 2015 (2015) [FLAC|Lossless|WEB-DL]<
 magnet:?xt=urn:btih:47A14A7C28159BC56B4773D1A03BA0A974EB264B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Ministry Of Sound: Sessions Twelve (Mixed By Tenzin & Generik) (2015) [FLAC
 ```bash
 magnet:?xt=urn:btih:42F80ED3B8A7ED984D419CBB4522B8A07520841A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Sirup House Anthems Las Vegas 2015 (2015) [FLAC|Lossless|WEB-DL]<Progressiv
 magnet:?xt=urn:btih:9AC50C53502F0E9FD539F9A5E568626936263773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Tangerine Dream - Les Genies du Rock - Rockoon (1995) [MP3|320 кб/с]<Electron
 ```bash
 magnet:?xt=urn:btih:946D3E0BB703DDFB62B4E3285DC8980A25381333
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - 50 Lounge and Chillout Classics (2016) [MP3|320 Kbps] <Downtempo, Chillout,
 magnet:?xt=urn:btih:B6D307A6087762CC50601B537B214E6880DE4837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - 100% Hotel Deluxe Music Vol.7 - The Best in Lounge and Chill out Essential 
 ```bash
 magnet:?xt=urn:btih:7D47748BDBDB00FD2249CCB13C099B078B8A85D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ Lab's Cloud - Organic Mathematics (2011) [FLAC|image+.cue, Lossless]<Psybient, D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ VA - Late Night Chill Out (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:DF2AA809030B6B216E76D83F5BA9C3726130B550
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ New Composers - Advanced Indigo (2004) [FLAC|tracks +.cue]<Ethno Chill, Downtemp
 magnet:?xt=urn:btih:B6A880705BCDB8CC274992317B6A9EE8E058A8BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ Physical Dreams - Only Trance (2019) [FLAC|Lossless|WEB-DL|tracks] <Trance, Upli
 ```bash
 magnet:?xt=urn:btih:774A6C151F37778B8F78CC18E007C6AADFE2C913
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ VA - Sal Mar E Pura Relajacion (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lou
 magnet:?xt=urn:btih:37E8BFECB822F6B6ABFC7B353E670F9B29FF92A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +347,8 @@ Mystic Crock - Seduced Senses (2019) Nomad Records / iM Mystic Crock [FLAC 2.0|4
 magnet:?xt=urn:btih:B25936A0C6BD9B63A16802E32E37E3118918D286
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +375,8 @@ VA - Sunset Lounge Bar, Vol. 4 (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Relax
 ```bash
 magnet:?xt=urn:btih:9432391F61C0910AE6718BC159A2FA3DB263CB0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +407,8 @@ Tears For Fears - 7 Album (1983-2006) [MP3|320 Kbps] <Electronic, Synthpop, Pop 
 magnet:?xt=urn:btih:AF448115D57D45D0EA428DDD37FA1CA4A0E3C5C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +435,8 @@ The Midnight - Endless Summer (2016) [MP3|320 Kbps] <Electronic, Synthpop, Synth
 ```bash
 magnet:?xt=urn:btih:D5C1E0C57A4DC91FD6E7944DF516ED523A1A41B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +465,8 @@ Pendulum - Hold Your Colour (2014) Reissue [FLAC|Lossless|WEB|tracks] <Drum & Ba
 magnet:?xt=urn:btih:8E11797DC1A64A283E4FA6C3CCB2C16AC43DDAE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +493,8 @@ The Chemical Brothers - Born in the Echoes (2015) Deluxe Edition [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:AA2DC8B6A55CA46E82864DD190445C4394AB25E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +523,8 @@ VA - Anjunabeats Worldwide 10 (Mixed By Fatum) (2022) DJ Mix [FLAC|Lossless|WEB-
 magnet:?xt=urn:btih:53AEF700ABBA3E8C81B4806FA3D371BE221389C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +551,8 @@ VA - Sound of Nature, Vol. 1 (Pure Chill out & Meditation Grooves) (2015) [MP3|3
 ```bash
 magnet:?xt=urn:btih:95877667A0F3EA1B5040845B315B989124C8F24D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +581,8 @@ VA - Space Ibiza (2016) [MP3|320 Kbps] <Funky, Minimal, Soulful, UK Garage>
 magnet:?xt=urn:btih:0E7035B0B20CBC23E789E8B9F5C610AD616A0155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +610,8 @@ VA - Romantic Dinner Lounge (2019) (Chillout Your Mind) [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:22382C1DA5EBEF6CF915CC943F119B7A9366C2D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +638,8 @@ Professor Trance & The Energisers - Shaman's Breath (2002) [FLAC|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:6EC7D8FD4D78F2CAF155DC76DAD51619CFB5D1E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +674,8 @@ VA - Ibiza Summer (2011) [MP3|320 kbps]<House>
 magnet:?xt=urn:btih:F4D231DB41432681C44C0EAF6FF0904A8ED573D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +702,8 @@ VA - Total Disco House, Vol.1 (2019) [MP3|320 Kbps] <Nu Disco, Indie Dance,  Jac
 ```bash
 magnet:?xt=urn:btih:21657D53D2818C3E50027D6DE390C9177E3454D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -684,6 +732,8 @@ VA - House Music Anthems '19 (2019) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:5D8A947C626C197E78455E397C08B25E9FF69A3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -710,6 +760,8 @@ VA - Cafe Del Mar XXII (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:6ACF2910209F1027007DC0747771BD0C0196E916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

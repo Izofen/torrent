@@ -20,6 +20,8 @@ darktable — фоторедактор, предназначенный для о
 magnet:?xt=urn:btih:2CE57B7FC10FA715F64F230B711ED91F93E1D4F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ SlimBrowser – браузер, построенный на базе Mozilla Fir
 magnet:?xt=urn:btih:9BCFA686EB944E8A3F4E175B7F3BEEEC92DCBC9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:9BCFA686EB944E8A3F4E175B7F3BEEEC92DCBC9D
 ```bash
 magnet:?xt=urn:btih:A7961ADDF12E42D830F2CCB2E3A6D56B0177B880
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Privacy Eraser Free - комплексный инструмент для защ�
 magnet:?xt=urn:btih:1276100E831158D0B7AFD025944E92D5B87B6AE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:1276100E831158D0B7AFD025944E92D5B87B6AE6
 ```bash
 magnet:?xt=urn:btih:2F734EC5CC37255FD8DA781CC0BAD03DAE783F06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:2F734EC5CC37255FD8DA781CC0BAD03DAE783F06
 magnet:?xt=urn:btih:32B8E06833A726868B85CF75D52FEBEBFFDB5266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Futuremark 3DMark 2.25.8056 Professional Edition RePack by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A4763334AC4407B4B554CE8A24A78B3A1874922A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Abelssoft SSD Fresh - если вы счастливый обладатель SS
 magnet:?xt=urn:btih:94FC75F135713F0D521E90690C0829A06CD70EA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ FastStone Capture представляет собой довольно мощн�
 magnet:?xt=urn:btih:203CDD1B82E77ACCA66C580A4BC8483AF8EE2A72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 ```bash
 magnet:?xt=urn:btih:446C4A690E5856065BD69091B5D8C6FA1A702980
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ LDPlayer 9 — мощный бесплатный эмулятор устройс
 magnet:?xt=urn:btih:42B2E707DA538A5C4840B2C569EF9D96C31247A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Windows 11 Manager - это универсальная утилита специ
 ```bash
 magnet:?xt=urn:btih:E35E7590E83605230B0463746246B42A5157AF65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ FastStone Capture представляет собой довольно мощн�
 magnet:?xt=urn:btih:587B202A1527602AE70FF3292CDD49E7D04B57EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ MiniTool Power Data Recovery - это инструмент предназнач�
 ```bash
 magnet:?xt=urn:btih:B1E62C0578D362C9827D77A253CA20B4A6BC291D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ MediaHuman YouTube Downloader 3.9.9.78 (2212) RePack (& Portable) by TryRooM [Mu
 magnet:?xt=urn:btih:8789117E7CE5E9B1EA64A1B217008A1D556F5101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:C4EFF8FEDFF63114AF955D73B8FFD2B1B39AD26C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:C4EFF8FEDFF63114AF955D73B8FFD2B1B39AD26C
 magnet:?xt=urn:btih:B4E324137FE7B8E8FDF48B6E52A7E7D2D4585DE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Master PDF Editor — простая, но эффективная програм
 ```bash
 magnet:?xt=urn:btih:86EE48EFC9139AFA44B82E958DFADAB5F757CA4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ AIMP 5.10 Build 2418 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:975A0ACA4FCE682B832C8980A17D92FD38F2C70D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ GOM Player Plus - мультимедийный плеер со множеств�
 ```bash
 magnet:?xt=urn:btih:867B86760D809565FE52AE2D9D355BE08EAF55AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ TreeSize Pro 8.5.2.1715 (x64) + Portable [Multi/Ru]
 magnet:?xt=urn:btih:7F873F9642317887F86C1F89C0CF9ED5729C1515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:30178F045A2DAABD8ED2A0CE3EEDDF672FFE1BBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Windows and Office Genuine ISO Verifier - компактная утилита д
 magnet:?xt=urn:btih:03474C611BF923B75B546245D6E738959A41B6CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:03474C611BF923B75B546245D6E738959A41B6CB
 ```bash
 magnet:?xt=urn:btih:6FD3EB6CC70D9044E4068B686355526680AB7230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:74858C45B3F0CE34436750AAC8A2638576747840
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ TreeSize Free 4.6.3.520 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CD3B9F68FD773E9EF6D7057F1D54C728AD3CE0C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

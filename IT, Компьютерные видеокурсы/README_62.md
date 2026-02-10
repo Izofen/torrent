@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:E229B00EC4C327AC6DF9C3F71AD419409D7B306E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Camtasia Studio — профессиональный видеоредактор.
 magnet:?xt=urn:btih:72D4B0437F7F413A00C512D1D2106503C21E61FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:72D4B0437F7F413A00C512D1D2106503C21E61FA
 ```bash
 magnet:?xt=urn:btih:5D1EC96F38F0B849DD80BAFBA5AEA6341FD6D8A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:5D1EC96F38F0B849DD80BAFBA5AEA6341FD6D8A1
 magnet:?xt=urn:btih:8C29550F2D221ABA4E0C17034918514F68102194
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:8C29550F2D221ABA4E0C17034918514F68102194
 ```bash
 magnet:?xt=urn:btih:F5CF15EE508AB25E5DBD807BF68F6B476743DD65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:F5CF15EE508AB25E5DBD807BF68F6B476743DD65
 magnet:?xt=urn:btih:4A170DEDB10E29ADC3695968DC9F2BF446D84310
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:4A170DEDB10E29ADC3695968DC9F2BF446D84310
 ```bash
 magnet:?xt=urn:btih:0AE6E2C8F5831BB829C312733A17C051F3F2901F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Udemy | Spring и Hibernate для новичков [включая Spring Boot]
 magnet:?xt=urn:btih:2CB30D4534BFC0CA2D1E26F9485175B6ECF18A4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:2CB30D4534BFC0CA2D1E26F9485175B6ECF18A4E
 ```bash
 magnet:?xt=urn:btih:B62A8DEEECBD75F127C7DD03A330F07123455406
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:B62A8DEEECBD75F127C7DD03A330F07123455406
 magnet:?xt=urn:btih:E1AAEC2EB2F7DBF0F5884FE35711B585E4935835
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ PluralSight | Check Point Certified Security Administrator Install & Deploy (201
 ```bash
 magnet:?xt=urn:btih:2AB2EE7CF18ED725606047104C893BDCAB0B048C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ Udemy, Angela Yu | 100 Days of Code - The Complete Python Pro Bootcamp (2021) PC
 magnet:?xt=urn:btih:9D09019E929FAF90F93F32DFE0C4815DD8ACCAFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:9D09019E929FAF90F93F32DFE0C4815DD8ACCAFA
 magnet:?xt=urn:btih:7A5454B7F7F96F4C187507614EC4366FFEEC7C04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ Geekbrains | Node.js Серверное программирование на Ja
 ```bash
 magnet:?xt=urn:btih:C10FF1269B715A75BC244E57116313FDACD04638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:C10FF1269B715A75BC244E57116313FDACD04638
 magnet:?xt=urn:btih:E4E84B9BC2A65809A8F2893B0E80C952DE9CE935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ AngularJS всего за пару лет превратился из "еще о
 ```bash
 magnet:?xt=urn:btih:181228508B676EBED3B2C3024A943394D9B7D426
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ Cybrary, Robert Smith и др. | Become a SOC Analyst - Level 1 (2020) PCRec [EN
 magnet:?xt=urn:btih:53E7EF410D9692D73CD4CF9D164DC1859A17DB2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Udemy | Kickstart ur Network Security Career: Checkpoint CCSA Course (2015) PCRe
 ```bash
 magnet:?xt=urn:btih:145898402FC7757BB435940DD6A91165B4F906B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ ITVDN | Видео курс C++ Starter (2018) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:BA9F5361F2BCFD477296210D3134B3BEC458EC9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ Check Point GAiA - это новое поколение защищенной о�
 ```bash
 magnet:?xt=urn:btih:DF5FD3A81234B5E5ED3E7F40BAFE6193DC06DA51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Pluralsight | CheckPoint Certified Security Administrator: Backup and Updating (
 magnet:?xt=urn:btih:F163698F374C37B5D022E8B2DEC56853C378E71A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Geekbrains | Objective C. Уровень 2 Профессиональная ра
 ```bash
 magnet:?xt=urn:btih:559DB3F14E79255FF998070300812A0B56BC0D6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ Veeam Academy, Дмитрий Шалымов | С#/NET- разработчик (
 magnet:?xt=urn:btih:75CD38096BB80933EE738505911AA802DC92DC24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ Master-CSS | Вёрстка шаблона Л.Е.В (2015) PCRec [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:2367DA7C63E4051F2D9AF4DEEE206849D0CBF5B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:2367DA7C63E4051F2D9AF4DEEE206849D0CBF5B7
 magnet:?xt=urn:btih:8E99F5E2A9325F2D631B73483EC63A9584087F64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:8E99F5E2A9325F2D631B73483EC63A9584087F64
 ```bash
 magnet:?xt=urn:btih:2D63CE09914F75C20E351413F73DA65D727B56FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

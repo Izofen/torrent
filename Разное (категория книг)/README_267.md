@@ -1,3 +1,30 @@
+###  Публикация: 574143   (375653) от 12.11.2012
+
+Black & Decker | Домашний мастер. Фотогид [2008] [PDF] [En]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_375653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руководство для домашнего мастера в картинках (более 2000). Книга выпущена совместно с известной фирмой по производству инструмента "Black & Decker". Иностранный язык смущать вас не должен, поскольку все подробно иллюстрировано.
+Основные главы: внутренние работы (полы, стены); окна и двери; внешние работы (крыша, стены); сантехника и электрика; отопление и вентиляция.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5924FF745D3BABA6C342870F0F2B592E222F8F1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 709205   (375754) от 12.10.2020
 
 Е. А. Авдеева, Н. Н. Маслов  | Поваренная книга русской опытной хозяйки (1912) [PDF]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:6FFAA90308A25D4CAFA5AAC75FD48ED8BD7969D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:6FFAA90308A25D4CAFA5AAC75FD48ED8BD7969D8
 magnet:?xt=urn:btih:3CC0CBF8BC4DFA78FD5B1706D5CB090E20FDA2FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:3CC0CBF8BC4DFA78FD5B1706D5CB090E20FDA2FE
 ```bash
 magnet:?xt=urn:btih:5B7B76290A824004DC7A5F349D45A875A5F13FF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:5B7B76290A824004DC7A5F349D45A875A5F13FF3
 magnet:?xt=urn:btih:8AA6492621F257DA4A58C04A3707854650928738
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:8AA6492621F257DA4A58C04A3707854650928738
 ```bash
 magnet:?xt=urn:btih:4C633347251F97A33631D6D63DD210BDA9BB6BAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:4C633347251F97A33631D6D63DD210BDA9BB6BAF
 magnet:?xt=urn:btih:F52F8CB6A9C30CB10EDE8FE034C61AA23CF7495E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +204,8 @@ magnet:?xt=urn:btih:F52F8CB6A9C30CB10EDE8FE034C61AA23CF7495E
 ```bash
 magnet:?xt=urn:btih:24C994DE16D7F843423D831AFB773E1E549CC5B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:24C994DE16D7F843423D831AFB773E1E549CC5B7
 magnet:?xt=urn:btih:2F30CAA893F92E8CFE79D8FFB6BC9702D7635200
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +258,8 @@ magnet:?xt=urn:btih:2F30CAA893F92E8CFE79D8FFB6BC9702D7635200
 magnet:?xt=urn:btih:E5572FE0117B4A9BA08EC6FBC4CD27B4FF9A9F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +283,8 @@ magnet:?xt=urn:btih:E5572FE0117B4A9BA08EC6FBC4CD27B4FF9A9F46
 ```bash
 magnet:?xt=urn:btih:1D5EB55252C1715F021FCAE5E523FD8A5890BB47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ magnet:?xt=urn:btih:1D5EB55252C1715F021FCAE5E523FD8A5890BB47
 magnet:?xt=urn:btih:4F0298CBFEB989143FB75B4078D960B0D82098A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +338,8 @@ magnet:?xt=urn:btih:4F0298CBFEB989143FB75B4078D960B0D82098A1
 magnet:?xt=urn:btih:157F9ACAD4172DCCCE1CEF6E88BE354FC23D3348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:157F9ACAD4172DCCCE1CEF6E88BE354FC23D3348
 ```bash
 magnet:?xt=urn:btih:892D6AF1BF8FD54B8837401DD5248BB9E9C62FF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +391,8 @@ magnet:?xt=urn:btih:892D6AF1BF8FD54B8837401DD5248BB9E9C62FF2
 magnet:?xt=urn:btih:BEE8FBC163ED8F28D336BB24F667F0A507D8875F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +417,8 @@ magnet:?xt=urn:btih:BEE8FBC163ED8F28D336BB24F667F0A507D8875F
 magnet:?xt=urn:btih:02BEE9EAEDDD21AEF6D5D3F7E1DF25BA5E5A8702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +442,8 @@ magnet:?xt=urn:btih:02BEE9EAEDDD21AEF6D5D3F7E1DF25BA5E5A8702
 ```bash
 magnet:?xt=urn:btih:21C9347DE4957EBA1150E5FE7F78408C3E7E5AE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +472,8 @@ magnet:?xt=urn:btih:21C9347DE4957EBA1150E5FE7F78408C3E7E5AE8
 magnet:?xt=urn:btih:2F80CCABCA2F3F8F2F0F64821BEDE570960D629D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +498,8 @@ magnet:?xt=urn:btih:2F80CCABCA2F3F8F2F0F64821BEDE570960D629D
 magnet:?xt=urn:btih:6737F4F3CF737D6B367A3ABA1C10E30EC1D32AAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +523,8 @@ magnet:?xt=urn:btih:6737F4F3CF737D6B367A3ABA1C10E30EC1D32AAB
 ```bash
 magnet:?xt=urn:btih:880CA905AFED0E5CEFEA1669B2EDB1FBFE3231E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +552,8 @@ magnet:?xt=urn:btih:880CA905AFED0E5CEFEA1669B2EDB1FBFE3231E4
 magnet:?xt=urn:btih:5B6612CDC4C806064F8F6928D7FD5BA5935C1B4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +577,8 @@ magnet:?xt=urn:btih:5B6612CDC4C806064F8F6928D7FD5BA5935C1B4D
 ```bash
 magnet:?xt=urn:btih:CD684BB96F5C7D2CC840E2EA1A78F19D370EAF23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +605,8 @@ magnet:?xt=urn:btih:CD684BB96F5C7D2CC840E2EA1A78F19D370EAF23
 magnet:?xt=urn:btih:B8A0032054F980BF2CCB30EB735AB6FDF5FAC17A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +631,8 @@ magnet:?xt=urn:btih:B8A0032054F980BF2CCB30EB735AB6FDF5FAC17A
 magnet:?xt=urn:btih:E273815B00BF0ECBFD887AE9E2D6D1B2D2AC3911
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +656,8 @@ magnet:?xt=urn:btih:E273815B00BF0ECBFD887AE9E2D6D1B2D2AC3911
 ```bash
 magnet:?xt=urn:btih:F8D8B4A167609190DEA3C88C0E4C9C95C16EC908
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,29 +685,7 @@ magnet:?xt=urn:btih:F8D8B4A167609190DEA3C88C0E4C9C95C16EC908
 magnet:?xt=urn:btih:42B9ADF320DF3B4D6AEBF13E409FE29847ACF5DD
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175476   (376773) от 19.10.2017
-
-А. И. Герцен | Русский народ и социализм (1921) [DJVU]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376773.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Русский народ и социализм» - произведение русского писателя, общественного деятеля Александра Ивановича Герцена (1812-1870). В этой статье А. И. Герцен стремиться дать мыслителям Запада правильное представление о России и русской культуре. Особое внимание автор уделяет сельской общине. Он считает, что человек будущего в патриархальной России — крестьянин.Жанр: История, политология, культурологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB70332BCCA16BF2D778C9E67B9BDEA92013CBC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

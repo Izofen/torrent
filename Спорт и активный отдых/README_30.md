@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:1A0BF8F04AAB112D02CC4AF413D5A986E6CDC953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:1A0BF8F04AAB112D02CC4AF413D5A986E6CDC953
 magnet:?xt=urn:btih:E0F2D8D3E99E8310B2827F309DA8FC50B471E6EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:E0F2D8D3E99E8310B2827F309DA8FC50B471E6EC
 ```bash
 magnet:?xt=urn:btih:F9588EA43EDA75F2E5E1C48877DABD9A9E7ACE30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:F9588EA43EDA75F2E5E1C48877DABD9A9E7ACE30
 magnet:?xt=urn:btih:AAFE2E3EDD535F10D95F5B9DEAB686237824D9A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ MotoGP. Этап 12 из 20. Гран-при Арагона. Гонка (01.09.2
 ```bash
 magnet:?xt=urn:btih:847A69F66F4F45930BE53B26497904B3925B243E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:847A69F66F4F45930BE53B26497904B3925B243E
 magnet:?xt=urn:btih:BAFE39EC251E6A9ABD74A66C3F86032834CE4D48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ MotoGP. Этап 12 из 20. Гран-при Арагона. Квалифика�
 ```bash
 magnet:?xt=urn:btih:7D52B02B90DA466B07DDF5F5DBBCBAD6A235F0D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:7D52B02B90DA466B07DDF5F5DBBCBAD6A235F0D8
 magnet:?xt=urn:btih:E04689F52E097A4C89D0DB2E0D911EE4C8B3C18D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ MotoGP. Этап 12 из 20. Гран-при Арагона. Спринт (31.08
 ```bash
 magnet:?xt=urn:btih:7801FC9FD743B114E08E5DCCA808896FA9551644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:7801FC9FD743B114E08E5DCCA808896FA9551644
 magnet:?xt=urn:btih:792783A8C0ED4914B3B06A6DA21411BEEB15040C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:792783A8C0ED4914B3B06A6DA21411BEEB15040C
 ```bash
 magnet:?xt=urn:btih:A0A80736E0697667DFCA8FE9A21E949A425D57B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:A0A80736E0697667DFCA8FE9A21E949A425D57B2
 magnet:?xt=urn:btih:59787FA8363C703AAA4A31D9A32221B65626C569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ MotoGP. Этап 11 из 20. Гран-при Австрии. Гонка (18.08.2
 ```bash
 magnet:?xt=urn:btih:79F19B29D344364BB4F3FD2709CE1AD87B7790CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ MotoGP. Этап 11 из 20. Гран-при Австрии. Квалифика�
 magnet:?xt=urn:btih:EC5F016E19EB5047255483636EE75EE45EEB0367
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ MotoGP. Этап 11 из 20. Гран-при Австрии. Спринт (17.08
 ```bash
 magnet:?xt=urn:btih:F314A0BE27DF6DC7CE29377332CD34E52D03BCE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:F314A0BE27DF6DC7CE29377332CD34E52D03BCE8
 magnet:?xt=urn:btih:9B1D44CB56FB282482D7BA278D4A31EAB105660C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:9B1D44CB56FB282482D7BA278D4A31EAB105660C
 magnet:?xt=urn:btih:77B06D0037065A12B5FE41E101D7C4AF9659F6C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ MotoGP. Этап 10 из 20. Гран-при Великобритании. Го�
 ```bash
 magnet:?xt=urn:btih:FD5ACF665EE0B3D820747C84A7146F72147F3FE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ MotoGP. Этап 10 из 20. Гран-при Великобритании. Сп�
 magnet:?xt=urn:btih:9CD5EBA943AB81376C99729B21416379AB431756
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ MotoGP. Этап 10 из 20. Гран-при Великобритании. Кв�
 ```bash
 magnet:?xt=urn:btih:8A1058397619088AB6402DAA48DD2CDCBCF9B73B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:8A1058397619088AB6402DAA48DD2CDCBCF9B73B
 magnet:?xt=urn:btih:ABCEF04765201A27C1306A848103B8FA3DCAC271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:ABCEF04765201A27C1306A848103B8FA3DCAC271
 ```bash
 magnet:?xt=urn:btih:E34FEEAC6B74053C95C645B05A977715B4433B7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:E34FEEAC6B74053C95C645B05A977715B4433B7A
 magnet:?xt=urn:btih:175E60135208A4F8620769FDA244522E008268CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:175E60135208A4F8620769FDA244522E008268CE
 ```bash
 magnet:?xt=urn:btih:CCFA516BACF657480764C3D90DEA07772BFB1860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:CCFA516BACF657480764C3D90DEA07772BFB1860
 magnet:?xt=urn:btih:5F63D2CBF9CF26F12DD28B2637F5116A8EE34808
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:5F63D2CBF9CF26F12DD28B2637F5116A8EE34808
 ```bash
 magnet:?xt=urn:btih:F5B38CDCAC27D1B9A537FAE926243E7CC68611B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

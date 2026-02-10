@@ -1,3 +1,136 @@
+###  Публикация: 905440   (648721) от 06.06.2015
+
+Звуковые библиотеки - AudioJungle Bundle 2015 vol. 2 [WAV, MP3]
+
+>>Материалы для мультимедиа и дизайна
+>>Звуковые библиотеки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Здесь представлены некоторые популярные музыкальные треки, которые часто используют для музыкального сопровождения проектов After Effects. Некоторые треки имеют различные версии. Треки MP3 с битрейтом 320 kbps. Убраны повторы.
+
+Музыкальные треки которые вошли в сборник, под спойлером:Формат: WAV, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C4CA02F922554EB09B09864D911AA62AF153D51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905524   (648722) от 06.06.2015
+
+Футажи - VideoHive - Transitions All In One [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Действительно большой инструментарий, который содержит 90 переходов со звуковыми эффектами. Чрезвычайно полезно каждому редактору и дизайнеру. Все 90 QuickTime-файлов могут быть легко использованы в любом видеомонтажном редакторе. Весь пакет, за исключением Matte-переходов, можно использовать в качестве верхнего слоя с различными режимами смешивания. Ссылки на мануалы (   Читать дальше...   )Формат: MOVРазрешение файлов: 1920х1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:902B5A498EFE5B79DAA5B1178F32B71AB090E8AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905503   (648723) от 06.06.2015
+
+Футажи - VideoHive - Elemental 2D FX pack [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elemental 2D FX pack - содержит более чем 100 мультипликационных FX-анимациЙ. Анимация разделена на слои, чтобы настроить цвет и сочетание fx элементОВ. Они поставляются с альфа-каналом в QuickTime(PNG) с Full HD/12 fps. Можно использовать все нелинейные инструменты редактирования, которые поддерживают наложение и композитинг Adobe Premier, Adobe After Effects, Sony (   Читать дальше...   )Формат: MOVРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0686E88DB1DCBF8727E3E78BDE88B8245773FE9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904864   (648731) от 06.06.2015
+
+3D материалы - Texture Kit Pro 3.0 [LIB4D, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Texture kit - это набор из более чем 600 процедурных и текстурных материалов для Cinema 4D.
+Посмотреть материалы можно прямо на сайте разработчика.Формат: LIB4D, JPG
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82D6A3898E2C723A06A6959636462209AA5A722F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 345377   (649076) от 03.06.2011
+
+Растровый клипарт - Садовый клипарт [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_649076.jpg" />
+</div>
+
+
+###  Подробнее
+
+Садовые декоративные деревья, в основном, хвойные. А также 2 цветущих куста. 10 слоев в 3 файлах. Слои отключены.Формат: PSDРазрешение файлов: 4033x1100, 3554x1100, 3079x3484
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6FEC9BF87A04A6F6E0C2972AC57B336557202BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031902   (649222) от 05.07.2016
 
 Шаблоны - GraphicRiver - Photo Album Portofolio Photographer [PSD]
@@ -18,6 +151,8 @@
 ```bash
 magnet:?xt=urn:btih:610083CC120AE7C14DDEBD0C6FD3B43F5F5F8744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +178,8 @@ magnet:?xt=urn:btih:610083CC120AE7C14DDEBD0C6FD3B43F5F5F8744
 magnet:?xt=urn:btih:BA3B9C7D6C028EC499C553D2DC4778AC748ED28B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +203,8 @@ magnet:?xt=urn:btih:BA3B9C7D6C028EC499C553D2DC4778AC748ED28B
 ```bash
 magnet:?xt=urn:btih:352C6035B26A7213A15B45875E70785E3DBA19BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +230,8 @@ magnet:?xt=urn:btih:352C6035B26A7213A15B45875E70785E3DBA19BE
 magnet:?xt=urn:btih:58DB7169887F1C3934A553A4BB72C3A20D02DFED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +255,8 @@ magnet:?xt=urn:btih:58DB7169887F1C3934A553A4BB72C3A20D02DFED
 ```bash
 magnet:?xt=urn:btih:281BDF40C68EFEC159A88F546622A66991A90744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +282,8 @@ magnet:?xt=urn:btih:281BDF40C68EFEC159A88F546622A66991A90744
 ```bash
 magnet:?xt=urn:btih:32F640D85348E45777F25D418A03FFC57CBE3CAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +311,8 @@ magnet:?xt=urn:btih:32F640D85348E45777F25D418A03FFC57CBE3CAB
 magnet:?xt=urn:btih:4C3C56D80013404CFB1A5C0D7A5E92C21DC355E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +338,8 @@ magnet:?xt=urn:btih:4C3C56D80013404CFB1A5C0D7A5E92C21DC355E0
 ```bash
 magnet:?xt=urn:btih:1DC37470258E7C3E41B50FFBB3CD79D238A5D672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +367,8 @@ magnet:?xt=urn:btih:1DC37470258E7C3E41B50FFBB3CD79D238A5D672
 magnet:?xt=urn:btih:7615D7925A858CA4547FF849EA5FA1E5C22252F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +394,8 @@ magnet:?xt=urn:btih:7615D7925A858CA4547FF849EA5FA1E5C22252F2
 ```bash
 magnet:?xt=urn:btih:D86BC6A5F32AC5BD40F5B28CB6CE0B13DF563152
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +423,8 @@ magnet:?xt=urn:btih:D86BC6A5F32AC5BD40F5B28CB6CE0B13DF563152
 magnet:?xt=urn:btih:F4AA12FEA3678F1226BF95F96ABEC83A6D422A2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +450,8 @@ magnet:?xt=urn:btih:F4AA12FEA3678F1226BF95F96ABEC83A6D422A2C
 ```bash
 magnet:?xt=urn:btih:982183BB23E93861BC57F4EE8D6A07E7C171DD44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +479,8 @@ magnet:?xt=urn:btih:982183BB23E93861BC57F4EE8D6A07E7C171DD44
 magnet:?xt=urn:btih:B89EAA8D627DC9AE6087A39392021748932AF6F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +506,8 @@ magnet:?xt=urn:btih:B89EAA8D627DC9AE6087A39392021748932AF6F9
 ```bash
 magnet:?xt=urn:btih:281DE4489D593CE6466B5A1B14114C3458AD2681
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +535,8 @@ magnet:?xt=urn:btih:281DE4489D593CE6466B5A1B14114C3458AD2681
 magnet:?xt=urn:btih:4BD9BDC4FBEB1F4F7CAF1E67A0FD771061C90464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +562,8 @@ magnet:?xt=urn:btih:4BD9BDC4FBEB1F4F7CAF1E67A0FD771061C90464
 ```bash
 magnet:?xt=urn:btih:143582DC7ECD6EC7A6A7FAAFDB05479ABC0532A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +591,8 @@ magnet:?xt=urn:btih:143582DC7ECD6EC7A6A7FAAFDB05479ABC0532A7
 magnet:?xt=urn:btih:9B80612EDDC5A8E31C964A61944E409F66594B27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +618,8 @@ magnet:?xt=urn:btih:9B80612EDDC5A8E31C964A61944E409F66594B27
 ```bash
 magnet:?xt=urn:btih:0B5D868808D8E2817FEEADBB94975C86EBC4EAA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +647,8 @@ magnet:?xt=urn:btih:0B5D868808D8E2817FEEADBB94975C86EBC4EAA3
 magnet:?xt=urn:btih:CDAB7A3088D78D2486259D1DD090EB72BC4E2CBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +674,8 @@ magnet:?xt=urn:btih:CDAB7A3088D78D2486259D1DD090EB72BC4E2CBB
 ```bash
 magnet:?xt=urn:btih:97CEA64153B30B86E4E52BBE2DDA9DC3F7D74760
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,125 +703,7 @@ magnet:?xt=urn:btih:97CEA64153B30B86E4E52BBE2DDA9DC3F7D74760
 magnet:?xt=urn:btih:B9C11AD10222751A06B15B321972E83022460E8F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904847   (650770) от 05.06.2015
-
-Шрифты - Creativemarket Sputnik Typeface 285717 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650770.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький набор шрифтов в стиле пропагандистских плакатов, в основном тех которые встречались в СССР.Формат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A25F1FB4B7CA40010454B4ABF31F34FD7F0EB63
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904199   (650915) от 05.06.2015
-
-Стили - Cartoon Halloween Text Style [ASL,PSD]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650915.jpg" />
-</div>
-
-
-###  Подробнее
-
-8 текстовых стилей для PhotoshopФормат: ASL, PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6CCEA3A8267B12ED0E4EA1A851CAE254C8F4F18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031563   (651016) от 04.07.2016
-
-3D модели - Badges collection [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляю вашему вниманию коллекцию 3d моделей автомобильных значков 4х авто: Alfa Romeo, Dacia, Lamborghini и Porsche - с момента основания по сегодняшний день.Формат: V-Ray|*.max
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5992F4D5E8254AED22E021465C517A261D67915B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031570   (651031) от 04.07.2016
-
-Рамки - GraphicRiver - 10 Frames Vol.4 - Vintage Ornament [PSD, EPS, AI]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651031.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 винтажных рамок - четвертый пакет (для фотошопа и иллюстратора). В Adobe Photoshop - возможность послойного редактирования включая изменения размера и цвета. Отключая слои, из одной рамки получаем несколько. В Adobe Illustrator - возможность полного редактирования версий рамок. На уровне элементов. Великолепная находка для ваших дизайнерских работ или фоторамок. (   Читать дальше...   )Формат: PSD, EPS, AIРазрешение файлов: 1500x2120
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EC16A79FB2839869D1A3C56733BCFB8D1699F9F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031655   (651122) от 04.07.2016
-
-Текстуры - Abstract Grunge background collection [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет текстур для вашего творчества.Формат: JPGРазрешение файлов: 4000x3000 - 5000х5000 / 300 dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:253AB36326B1156E8760BB72E640FAA376E68A7A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

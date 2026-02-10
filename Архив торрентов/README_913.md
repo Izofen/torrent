@@ -20,6 +20,8 @@ Moog Music - Complete Moogerfooger Effects Bundle 1.2.3 VST 3, AAX (x64) RePack 
 magnet:?xt=urn:btih:B745671B94296895E0BF2FAECA410A0E4E33C9F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Music Collection - неплохая программа для создания �
 ```bash
 magnet:?xt=urn:btih:D9AB8C908EDECFBD79A73537ACFF7B1CD61D1FA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Sante DICOM Viewer Pro не является «еще одним средств�
 magnet:?xt=urn:btih:165D06657A9FA9F8D1357C2FE9B99D1787A16193
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Kontakt позволяет вам воспроизводить и обрабат
 magnet:?xt=urn:btih:CB7B3B80C2A221DD724EA05D204157FB0DC84B9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Maxthon Browser — многофункциональный браузер со �
 ```bash
 magnet:?xt=urn:btih:05024F0118B5230A75ADB67083D06A29A229DAD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ simplewall 3.7.8 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:13CD005BA815725F6CD9683873C66C158FF6E8DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Mariana - это новый программный синтезатор басо
 magnet:?xt=urn:btih:0EC66C12B8268B776B1EA82FCADA344AA9998301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ GoldWave - звуковой редактор, предназначенный д�
 ```bash
 magnet:?xt=urn:btih:BC6D760C83A489988E03D1BE5BC3E236EAC447A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Windows 11 Debloater – небольшая утилита для тонкой �
 magnet:?xt=urn:btih:3CEFC5187F14CB6F37D44B632B14DF5BFC655EFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ AOMEI Partition Assistant Standard Edition бесплатный многофун
 ```bash
 magnet:?xt=urn:btih:FCAFA2C0B43EABC9005CFDDF3BC833AFE022563B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Total Commander 11.02 (26.01.2024) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:F573559C53E4E782F38DACB3C020FE653478378D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:16308B878080D86389D7E7CC75B6471E86242ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:16308B878080D86389D7E7CC75B6471E86242ECD
 magnet:?xt=urn:btih:1D17DA19694C9C221B990DE7ACA22A0C8ABCBCCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Camtasia Studio - утилита для записи изображения с �
 ```bash
 magnet:?xt=urn:btih:68D85199B80DBAD8490B0681CEA8F70E50A552BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Total Commander является самым мощным и стабильным
 magnet:?xt=urn:btih:43527E1D933D2FAF8C2BA177BB44E7FBA1BA350C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ AdwCleaner - программа, которая ищет и удаляет ре�
 magnet:?xt=urn:btih:10498A6204C71D92D6A7A152D439A8B60D558DCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ AOMEI Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:2E46D917A2C1081BC31123BB3AC4823DE002FDB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 magnet:?xt=urn:btih:F5A7161531E00BE57BDF30B4511896A77F5FCD79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Windows 10 Debloater – небольшая утилита для тонкой �
 ```bash
 magnet:?xt=urn:btih:1C6197CC6F60E067587CB2A782381214914ED684
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Adobe Illustrator 2024 28.2.0.532 RePack by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:53BA8B82ADF272EA13665E885F983DC4FFE6CA08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ AnyDesk 8.0.8 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2A5D446D135C426E0314977103545D408B9086A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 magnet:?xt=urn:btih:3D34C7B481AEE484F11AAEEE1CF24F0FD8FA4242
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ OmniReader - полифункциональное приложение для ч
 ```bash
 magnet:?xt=urn:btih:F2C7B789A94A961B1043075C57236D88736D54A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Mimestream сочетает в себе мощь macOS с расширенным
 magnet:?xt=urn:btih:FACFA0809BB64FF06A426F691B3E25B06716565B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ iReal Pro 2024.1 [Multi]
 magnet:?xt=urn:btih:E5AC2A1C2024FE8AA30284127DF0FC83FF4C06D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ PullTube 1.8.5.24 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C8AF671403485BB3EEBDFF7C28D3512E71F645C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

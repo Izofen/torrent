@@ -22,6 +22,8 @@ Crypta - Shades of Sorrow (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 magnet:?xt=urn:btih:99CA238F711EA735DDD949DF5F75730673D23574
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:99CA238F711EA735DDD949DF5F75730673D23574
 magnet:?xt=urn:btih:9BE966F507B3A888D6B617F9982850A3FF03B35B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Repix Pro - универсальное решение для всех ваших
 ```bash
 magnet:?xt=urn:btih:068F08633649DBC5A8C9A5D419B4E94066A62CD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Somnus Aeternus - A Nightmare Lit by a Dying Star (2023) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:7C9D20B28DB201CBC97BF47BE5DE64FC2E9A0100
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Acorn (   Читать дальше...   )Тип издания: macOS Software
 ```bash
 magnet:?xt=urn:btih:486CEB4B3D0F9B3146E95CF70A73D44F4DEAACD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ TG Pro — контроль температуры и вентиляторов �
 magnet:?xt=urn:btih:10A15B309C1E7EC9ED4B2FF1271366D99CDA8B54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Cardhop 2.2.13 [Multi]
 ```bash
 magnet:?xt=urn:btih:EF524ECBB42A47F075F8D6598AF1B28EC843B2C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Rocket Typist Pro 3.0.2 [Multi/Ru]
 magnet:?xt=urn:btih:25B8C738D89C2C9F7512961C96F8672A65113C5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Coming soon 3 v.3.19 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B2C029BFB0EE405725451E28D4BEA227B5AC6F0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ Grant Green - The Holy Barbarian, St. Louis (1959, 1960) 2012, Uptown Jazz [FLAC
 magnet:?xt=urn:btih:81071E3E46B6451AEE1B78487E205F742152F581
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ Piezo не требует никаких настроек, достаточно 
 magnet:?xt=urn:btih:8F43F01284917EC19DE1A6E9DCD8739E0E11E063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ ScreenFloat — приложение для создания висящих на
 ```bash
 magnet:?xt=urn:btih:5602C7B5057A1190868C3FC230F23A889A3D421A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ Psygnosis - Mercury (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Progressiv
 magnet:?xt=urn:btih:1BB9401BFE3AF2D98EA5457462ECA8D278DB28BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ Alfred PowerPack 5.1.3  [En]
 magnet:?xt=urn:btih:CDE3457346F4A6816323E446597A0DE4E66CBA35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ Eddie "Lockjaw" Davis & Johnny Griffin Quintet - The Complete Sessions (1960, 19
 magnet:?xt=urn:btih:34DA21B644F811C8D4D5765DB34F4E914B8BE624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Keep It 2.3.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:F25003CCD625DCB6820DF60B736D7D09C922613D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ Loopback 2.3.1 fc3 Beta [En]
 magnet:?xt=urn:btih:A6076FCC3686650A8961C7516C8D9619976A0F22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ BatchOutput DOC автоматизирует создание и печать PD
 ```bash
 magnet:?xt=urn:btih:B30E962186C0544A3853A25813BB4B4B4CCFEB73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ Psychework - Karelian Hills (2018) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 magnet:?xt=urn:btih:2B431CDC24758B14F002979EB13E836313A9233B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ Alfred PowerPack 5.1.4 Pre-release  [En]
 ```bash
 magnet:?xt=urn:btih:8A9557BE3E4C6BF4F0354BCA4F6444CB66FD1252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ The Eddie "Lockjaw" Davis-Johnny Griffin Quintet - Tough Tenors (1970) 1988, MPS
 magnet:?xt=urn:btih:C45AC85BA1BB542675E85AA333F1DF7CDEDBDF5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ KOMPLETE KONTROL — это простой в использовании инс�
 ```bash
 magnet:?xt=urn:btih:970F20BFC57B7BE7322C7E059A092FAFD9C7FE69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ Piezo не требует никаких настроек, достаточно 
 magnet:?xt=urn:btih:DC060DFC80ED3675868975A390E29B3C65268523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ BatchOutput PDF упрощает вашу жизнь, автоматически
 magnet:?xt=urn:btih:921FCFB25083DD8989691F2F0C732E68E3B61073
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ Windows 10 v22H2 19045.3570 и Windows 10 Корпоративная LTSC v21H2 
 magnet:?xt=urn:btih:DE6F67AADFCF6BC8515ACF20E71ED52D36FD1A02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:DE6F67AADFCF6BC8515ACF20E71ED52D36FD1A02
 ```bash
 magnet:?xt=urn:btih:675C1FE2A9A371A04E72857381D314F154A8A046
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

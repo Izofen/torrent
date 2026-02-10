@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:DD00B22D11E1A5C6563644D4235BFC2A7484FFCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:DD00B22D11E1A5C6563644D4235BFC2A7484FFCB
 magnet:?xt=urn:btih:E867B9D7E8BE333708F93F1308FA3A09C1A780EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:E867B9D7E8BE333708F93F1308FA3A09C1A780EF
 ```bash
 magnet:?xt=urn:btih:FA4526A6766AB80D553188D9BE7172B543860495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:FA4526A6766AB80D553188D9BE7172B543860495
 ```bash
 magnet:?xt=urn:btih:831A30AA62A73AAF88CA5C6E8B96CCF403AD5F85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ Sobre Nocturne - Serpentine Dreamweaver (2000) [FLAC|Lossless] <Symphonic Doom M
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ Sobre Nocturne - Serpentine Dreamweaver (2000) [FLAC|Lossless] <Symphonic Doom M
 ```bash
 magnet:?xt=urn:btih:27775BC22F5C686AD82A7B6FB301609D1225338B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:27775BC22F5C686AD82A7B6FB301609D1225338B
 magnet:?xt=urn:btih:E14567440747F9ADED7FCBF3BC3F3ECD95C3AC21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ magnet:?xt=urn:btih:E14567440747F9ADED7FCBF3BC3F3ECD95C3AC21
 magnet:?xt=urn:btih:F187B6D614132FDA3FC322AAAEEAD3478895488B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:F187B6D614132FDA3FC322AAAEEAD3478895488B
 ```bash
 magnet:?xt=urn:btih:F09E2E6FF6C34A257B3C484A4987E4513D4CF1E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:F09E2E6FF6C34A257B3C484A4987E4513D4CF1E7
 magnet:?xt=urn:btih:9842C6C5DBE93000683B355DA138D764377DDDB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:9842C6C5DBE93000683B355DA138D764377DDDB0
 ```bash
 magnet:?xt=urn:btih:1DCED06434DC023B6FC7BEDC2CF04E3899F8FD2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +332,8 @@ Ladysmith Black Mambazo - Shaka Zulu (1987) [MP3|320 кб/с]<Ethnic, A Capella,
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ Ladysmith Black Mambazo - Shaka Zulu (1987) [MP3|320 кб/с]<Ethnic, A Capella,
 ```bash
 magnet:?xt=urn:btih:A64CA0D5741153C640C5B4DCA2A4CB16E075CBEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +391,8 @@ magnet:?xt=urn:btih:A64CA0D5741153C640C5B4DCA2A4CB16E075CBEA
 magnet:?xt=urn:btih:066E1379CB95F163A7642DA9FA0F01C005B231D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +421,8 @@ magnet:?xt=urn:btih:066E1379CB95F163A7642DA9FA0F01C005B231D4
 magnet:?xt=urn:btih:AA7C5199583ED3FD85BB4990A7222E22E47F2EB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +446,8 @@ magnet:?xt=urn:btih:AA7C5199583ED3FD85BB4990A7222E22E47F2EB2
 ```bash
 magnet:?xt=urn:btih:5D9BB3233B10EED78DF4C3B01D4955CF4440A857
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +482,8 @@ Red Elvises - Drinking With Jesus (2008) [MP3|320 кб/с]<Rock-n-Roll, Rockabil
 magnet:?xt=urn:btih:2B36F36D78F390B4819DC507989D00E1DCB725F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +517,8 @@ Grabesmond - 2 albums (1997-1999) [FLAC/APE|Lossless] <Medieval, Neoclassical, E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +548,8 @@ Grabesmond - 2 albums (1997-1999) [FLAC/APE|Lossless] <Medieval, Neoclassical, E
 magnet:?xt=urn:btih:7A8E6FE6DA67ED609C5115EB9AA31C7317017C8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +573,8 @@ magnet:?xt=urn:btih:7A8E6FE6DA67ED609C5115EB9AA31C7317017C8B
 ```bash
 magnet:?xt=urn:btih:6EB844AE27257D8C0004B4ADDE7733C6FB6C4263
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +609,8 @@ Barry Levenson & Jake Sampson Band - Closer To The Blues (2000) [FLAC|Lossless]<
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +644,8 @@ Dzivia - Stracanyja Padanni (2012) [MP3|320 кб/с]<atmospheric orchestral>
 magnet:?xt=urn:btih:46AA0804BD1FE15F89468A11973B5AC37FA453A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +669,8 @@ Pусская версия самого известного в мире еже�
 ```bash
 magnet:?xt=urn:btih:8D5F884B1AB6975056C984F060AC1A526124D952
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +700,8 @@ magnet:?xt=urn:btih:8D5F884B1AB6975056C984F060AC1A526124D952
 magnet:?xt=urn:btih:F3AF690AB43A988DB87B29C3C193BEC20B679C24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +726,8 @@ Foto & Video – популярный журнал, посвященный фо�
 magnet:?xt=urn:btih:925976011019393E85F4BB31FDF3080F166E6635
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -701,6 +751,8 @@ Stereo & Video первым встречает и представляет са�
 ```bash
 magnet:?xt=urn:btih:E361339A02C8022DE47E944281E253D29DDF0E12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

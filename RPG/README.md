@@ -20,6 +20,8 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.4.0/dlc) License GOG [Deluxe Ed
 magnet:?xt=urn:btih:08FAB06B7C85141105CFC0BAA66534520C55A82A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Sengoku Dynasty (2023) [Ru/Multi] (1.1.0.16) License GOG
 ```bash
 magnet:?xt=urn:btih:26B2543C78BCFFE57CDB4A0C1AC7D2C7D14CE79E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Wartales - ролевое приключение в открытом мире, �
 magnet:?xt=urn:btih:47550133360A506BBCCE21F64E55D292CC9FAA27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Coromon – ролевое инди-приключение про прируче
 ```bash
 magnet:?xt=urn:btih:7F8FEE0BFDD99B37929494B5FDD931FFA37F49C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Wandering Sword - это уникальная РПГ с элементами к�
 magnet:?xt=urn:btih:8E1F6932897615EEC669D1B1372670FC5E44E9D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Alaloth: Champions of The Four Kingdoms (2022) [Ru/Multi] (2025.07.14.17f5b0a/dl
 ```bash
 magnet:?xt=urn:btih:AF60B24A4B3DDA1D1ED78D78B3CB42FC22BDD9DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Seal of Evil (2006) [En] (1.06) License GOG
 magnet:?xt=urn:btih:8511C3156E84C1AF545C5729CA4D6E39AD36634F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Soundt
 ```bash
 magnet:?xt=urn:btih:40E5FBD0ACFE1799A7FFC292F700F08E8BEF7ABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land (2025) [Ru/Multi]
 magnet:?xt=urn:btih:C135356846F01A13CCEA24D9BCE21DADC5B45183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Wartales (2021) [Ru/Multi] (1.0.43382 HF2/dlc) Repack Let'sРlay [The Mercenarie
 ```bash
 magnet:?xt=urn:btih:0F8AC47689D1EB309CA953F5CE5FFC45C20118C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Wartales - ролевое приключение в открытом мире, �
 magnet:?xt=urn:btih:5FC3678CF7416A4E16D325D6BB74A207E67320DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Knock on the Coffin Lid - ролевая игра с элементами стр
 ```bash
 magnet:?xt=urn:btih:3C81370AD047B3A05677A75166B418EBAF30ABD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.8.0) Repack FitGirl
 magnet:?xt=urn:btih:7536CA034DBC9DA3C27A7E11C2DAEA0850BDA838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ HELLCARD – это карточный «рогалик», поддержива�
 ```bash
 magnet:?xt=urn:btih:B67CAAF7EBA082845F99B91DCB0E94015154C7C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Tainted Grail: The Fall of Avalon – мрачная фэнтезийная ро
 magnet:?xt=urn:btih:795F9B2B37E78AF091D8E2624BADFA5B1208A257
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Core Keeper (2022) [Ru/Multi] (1.1.2.4-fb3f) License GOG
 ```bash
 magnet:?xt=urn:btih:D4660E277FB2B46330B2FAC4DA65A303E5C74DA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Kingdom Come: Deliverance II - захватывающий сюжетный ро�
 magnet:?xt=urn:btih:8C5A46070376DE0514002309B996957EE8BB3F9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Crashlands 2 (2025) [Ru/Multi] (1.3.0-rc.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:F501FD6EA91AC7150AD5F2A91D86CDA1D0EFE78E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Lies of P (2023) [Ru/Multi] (1.12.0.0/dlc) Repack Let'sРlay [Deluxe Edition]
 magnet:?xt=urn:btih:9E6D174FC5F1AFBC48C39AE4E92FE8B5A74DE582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Elden Ring: Nightreign — самостоятельная глава знаме�
 ```bash
 magnet:?xt=urn:btih:0655CAA572E613287B5A3F47B82F28CB037B8B44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326/dlc) Repack Want
 magnet:?xt=urn:btih:5801C7DC1577FE0CD1721B244AAAFAA27FD19D8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ WUCHANG: Fallen Feathers - это ролевая игра в жанре souls-li
 ```bash
 magnet:?xt=urn:btih:A9FED3A167E7192243CFDD1BB913CA2B2577A9C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ The Legend of Heroes: Trails through Daybreak II (2025) [Multi] (1.2.15/dlc) Lic
 magnet:?xt=urn:btih:C1E4783D9D1A1B7541339459461E4F1F2CA0E45B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179243/dlc) Repack Wanterlude [Delux
 ```bash
 magnet:?xt=urn:btih:897916AF527D2FE9A6DA99DD9060FB02738397CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ You Will Die Here Tonight - ролевой экшен с пошаговыми э
 magnet:?xt=urn:btih:E0E12A9E27A5FB17F23DF0AB5D4615C5508F3BE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Reality Break (2025) [Multi] (1.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:1D265ED7707760381B6AF09330F409653C2AAC2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

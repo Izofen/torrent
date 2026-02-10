@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:84D5C36CE9D89D7F4B5264461BD4300B28CD8A68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Millumin - создание аудиовизуальных и интеракти
 ```bash
 magnet:?xt=urn:btih:FEAA58AA066418634382B46610D32DCC2A2E9FE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Veonity - Into the Void (2016) [FLAC|Lossless|image + .cue] <Power Metal>
 magnet:?xt=urn:btih:A37B049119FC1505772ECC1BD6DCD298533E1032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ AOMEI Backupper Pro (Professional) – комплексная, простая и
 magnet:?xt=urn:btih:1D631AE25ADC37560ACD2B546062865105FB0C4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:D2870A5D79D55BCB1B83477B7FD7D9CC7BD00186
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ The Night Eternal - Fatale (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:1817EB74FA24E392E2330626AB0BA81B493851A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:1817EB74FA24E392E2330626AB0BA81B493851A1
 magnet:?xt=urn:btih:8C53C82704A79F36207B48239DF133CC0F8AE6B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Bandicam позволяет записать определенную облас
 ```bash
 magnet:?xt=urn:btih:843A4A82B1E49EB79DE14CB50A40FE713B420D60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Vansidian - Reflecting the Shadows (2023) [MP3|320 Kbps] <Melodic Death, Power M
 magnet:?xt=urn:btih:B8717A9B320615190013E138CDB2A59E881F5AC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ AnyDesk 7.0.9 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:10D1E0F9B408289CA3952A51285AEBC91D14006C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ VA - Uplifting Only Top 15: June 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Tr
 magnet:?xt=urn:btih:26039F3098DF70D2D38F11E9F4D36DC98A72D771
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:26039F3098DF70D2D38F11E9F4D36DC98A72D771
 magnet:?xt=urn:btih:B2D1F04A62825EEEED861F207FCA68D68636BF4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:4B03F9932A8AC77ED3A2EC603FC4F5BEDE7A7843
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ Venus - Two-0-One-9 (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
 magnet:?xt=urn:btih:265D3AAD1DD8BF97CC920B894BB9C121B35483D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:265D3AAD1DD8BF97CC920B894BB9C121B35483D4
 magnet:?xt=urn:btih:64E0C94B2DBB217C8323D65FB0B2BA6D756BD8A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ UltraUXThemePatcher 4.4.0 [En]
 ```bash
 magnet:?xt=urn:btih:DD427941E1B2B22A5415C35E44A818685A7A657F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:DD427941E1B2B22A5415C35E44A818685A7A657F
 magnet:?xt=urn:btih:C0995D4C5AA71CB8787D9595C4EF854A294B4DA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ VA - Keep It Trance Vol. 13 (2023) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:36E7DB1F03AADDEA471A48EDFE437276430CB514
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:36E7DB1F03AADDEA471A48EDFE437276430CB514
 ```bash
 magnet:?xt=urn:btih:0508950797B8F3876445D02C167C56F7A5EE7ACC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ Unsoulicited - Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal
 magnet:?xt=urn:btih:D62F62F94C93D51F0C34672E2A65A57DA2806C1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:D62F62F94C93D51F0C34672E2A65A57DA2806C1E
 ```bash
 magnet:?xt=urn:btih:2B79675B8CD5FC4B0705D031C913B67BDF7A6E48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ Frenzy - Blind Justice (2019) [MP3|320 Kbps] <Heavy Metal>
 magnet:?xt=urn:btih:D1130181CCDF2CA7D33F11609DA8B52C8393904E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ Daniel Ilett | Building Quality Shaders for Unity: Using Shader Graphs and HLSL 
 ```bash
 magnet:?xt=urn:btih:1AC71EEC1FE390A8E229D2EB5062A7A9B902EC35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ Middle Of The Road - Chirpy Chirpy Cheep Cheep, Tweedle Dee, Tweedle Dum and oth
 magnet:?xt=urn:btih:AA03A5BABA5D53E8FA538C3D0221E4EDAFD55035
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ VA - Armin van Buuren - A State Of Trance 1127 (2023) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:841E9FC53412AD98CBC527960D536B4CF6401134
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:841E9FC53412AD98CBC527960D536B4CF6401134
 ```bash
 magnet:?xt=urn:btih:D28976B57AC424FB9F6BA41B09FE80CF3A4AD332
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

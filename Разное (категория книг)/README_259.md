@@ -1,3 +1,29 @@
+###  Публикация: 951360   (362933) от 29.10.2015
+
+Зигмунд Фрейд | Оговорки (2015) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362933.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зигмунд Фрейд наиболее известен как основатель психоанализа, который оказал значительное влияние на психологию, медицину, социологию, антропологию, литературу и искусство XX века. Воззрения Фрейда на природу человека были новаторскими для его времени и на протяжении всей жизни исследователя не прекращали вызывать резонанс в научном сообществе. Интерес к теориям ученого (   Читать дальше...   )Жанр: Афоризмы и цитаты, Классики психологииИздательство: ЦентрполиграфФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C1E54C7986EEB5E2368198C6D484F2234BC0107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328477   (362946) от 30.09.2019
 
 Уильям Уокер Аткинсон | Память и ее развитие (2019) [FB2]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:029886EE73F2E731B2B9C07325854BCFB7FC19E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:029886EE73F2E731B2B9C07325854BCFB7FC19E3
 magnet:?xt=urn:btih:93965B29DF7BEE349EC1C5544B9E7975AC19C7AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:93965B29DF7BEE349EC1C5544B9E7975AC19C7AA
 magnet:?xt=urn:btih:17BF6004AB905F0BE74D69B189AA61FC94D54CE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:17BF6004AB905F0BE74D69B189AA61FC94D54CE7
 ```bash
 magnet:?xt=urn:btih:683D0862D20A80DCD39DB9182258E8D0396085A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:683D0862D20A80DCD39DB9182258E8D0396085A3
 magnet:?xt=urn:btih:6FAA188DDCEC5B626261205EF000549A9A0F86EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:6FAA188DDCEC5B626261205EF000549A9A0F86EF
 ```bash
 magnet:?xt=urn:btih:755CC4C68383870CC7E83F338C44D42173B86B50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:755CC4C68383870CC7E83F338C44D42173B86B50
 magnet:?xt=urn:btih:561285CBB1873A8C7DD174F7B3B393B496A7C980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:561285CBB1873A8C7DD174F7B3B393B496A7C980
 magnet:?xt=urn:btih:141B3BB91537A777C68C47217D3EF6E0BED137A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:141B3BB91537A777C68C47217D3EF6E0BED137A7
 ```bash
 magnet:?xt=urn:btih:4D3760A838BC51F585C4806BBD96657C23B8A855
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:4D3760A838BC51F585C4806BBD96657C23B8A855
 magnet:?xt=urn:btih:AD6AC27CB7AF51ADA419EC74EF4CDF13B097E0FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:AD6AC27CB7AF51ADA419EC74EF4CDF13B097E0FB
 ```bash
 magnet:?xt=urn:btih:40E816098E28942A51779640E5AAADCE4079CF19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:40E816098E28942A51779640E5AAADCE4079CF19
 magnet:?xt=urn:btih:DBACA0A8962A0F6AA87684B33ADAC47D7CEFED00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:DBACA0A8962A0F6AA87684B33ADAC47D7CEFED00
 ```bash
 magnet:?xt=urn:btih:5EBC2E7106CEFB3300A7FE0CA5F331055AA840DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +393,8 @@ magnet:?xt=urn:btih:5EBC2E7106CEFB3300A7FE0CA5F331055AA840DC
 magnet:?xt=urn:btih:1DFBC7A8FEE17116AAEF5B933A6DB65CABC9B683
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:1DFBC7A8FEE17116AAEF5B933A6DB65CABC9B683
 ```bash
 magnet:?xt=urn:btih:189BF3D5CBD881E6F67CB0CFAA10C8793D8890B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:189BF3D5CBD881E6F67CB0CFAA10C8793D8890B3
 ```bash
 magnet:?xt=urn:btih:431C2431FE0FE6AD6AC9414F776D484B6F09B15D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:431C2431FE0FE6AD6AC9414F776D484B6F09B15D
 magnet:?xt=urn:btih:D0AC689D10957C396C4353F524BB8A4DE4CA0A8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +502,8 @@ magnet:?xt=urn:btih:D0AC689D10957C396C4353F524BB8A4DE4CA0A8B
 magnet:?xt=urn:btih:0511AA9856ACE1251BD3B10368A174A67FF9C6CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:0511AA9856ACE1251BD3B10368A174A67FF9C6CB
 magnet:?xt=urn:btih:63B5220220DC20F376A09955F7005B3C99E9F666
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +553,8 @@ magnet:?xt=urn:btih:63B5220220DC20F376A09955F7005B3C99E9F666
 ```bash
 magnet:?xt=urn:btih:73B109378E27293E8B7F45814E9B5242D294AC1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +582,8 @@ magnet:?xt=urn:btih:73B109378E27293E8B7F45814E9B5242D294AC1E
 magnet:?xt=urn:btih:FF102A6D8B1969A8A42964212CB05DB9C7C36B2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +607,8 @@ magnet:?xt=urn:btih:FF102A6D8B1969A8A42964212CB05DB9C7C36B2E
 ```bash
 magnet:?xt=urn:btih:A0A663B79F5327727A27AB2F8E1268588654A6C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +634,8 @@ magnet:?xt=urn:btih:A0A663B79F5327727A27AB2F8E1268588654A6C8
 ```bash
 magnet:?xt=urn:btih:6524FD90F73BD2A97D047E78B9E362AF3BE44E27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +663,8 @@ magnet:?xt=urn:btih:6524FD90F73BD2A97D047E78B9E362AF3BE44E27
 magnet:?xt=urn:btih:9A92047E27DDE1A7B594D2C7B821893338E46299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,29 +690,7 @@ magnet:?xt=urn:btih:9A92047E27DDE1A7B594D2C7B821893338E46299
 magnet:?xt=urn:btih:E2373F780A1BD0F74FB3B5BCAFE89D0F50623E96
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951082   (364942) от 28.10.2015
-
-Брайан Трейси | Как управляют лучшие (2015) [FB2]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_364942.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лидерство – критически важный навык, обеспечивающий успех любой компании или отдельного подразделения. В этой книге бизнес-гуру Брайан Трейси обобщил опыт лучших топ-менеджеров и собственников компаний, который позволяет им добиваться поразительных результатов на конкурентных рынках. Вы узнаете, как применять самые действенные принципы лидерства, чтобы управлять, (   Читать дальше...   )Жанр: Управление, подбор персонала, деловая литератураФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25A40D274A62D2F7D580FF46B9CD154E71DE426
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

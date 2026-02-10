@@ -19,6 +19,8 @@ Daniel Chen | Pandas for Everyone: Python Data Analysis, 2nd Edition (2023) [PDF
 magnet:?xt=urn:btih:BB3717B78D21B0B812AFA5AEF2E93751CC00D597
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Alan Alickovic | React Application Architecture for Production (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:CEACD5338203205B10996C81431AB605D81A48CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ John Paul Mueller | Beginning Programming with Python For Dummies, 3rd Edition (
 magnet:?xt=urn:btih:E5B8A92D08FC032E087E37F443004AA65ACE9E32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:E5B8A92D08FC032E087E37F443004AA65ACE9E32
 magnet:?xt=urn:btih:41C28042F759067BB8960FE1CDB416D57F6B1D4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:41C28042F759067BB8960FE1CDB416D57F6B1D4B
 ```bash
 magnet:?xt=urn:btih:C69423EDE6B3BD590167C1D863F5D975A96FA1E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:C69423EDE6B3BD590167C1D863F5D975A96FA1E1
 magnet:?xt=urn:btih:CF7B312B6409490BB2346D50EEDA33F8B31C9EB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:CF7B312B6409490BB2346D50EEDA33F8B31C9EB2
 ```bash
 magnet:?xt=urn:btih:ACB29B59CB3F26900AB5DA84589507279A3D17D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:ACB29B59CB3F26900AB5DA84589507279A3D17D1
 magnet:?xt=urn:btih:5BBA400C872580E011DC7B6E599F4482B69E6A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ ImagineFX | Как рисовать анатомию / How to Draw and Paint Ana
 ```bash
 magnet:?xt=urn:btih:E8A2D9D444A621D1F95A9043F21AC5FAEB496F29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:E8A2D9D444A621D1F95A9043F21AC5FAEB496F29
 magnet:?xt=urn:btih:5984FC7985614430A1822EB640735D7C952E13D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:5984FC7985614430A1822EB640735D7C952E13D2
 ```bash
 magnet:?xt=urn:btih:E8B6DD5120F677107B65B8BF56D31CD4B6924B4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:E8B6DD5120F677107B65B8BF56D31CD4B6924B4C
 magnet:?xt=urn:btih:5638D806E05857FBE3B251CC6E4ADFC44685216F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:5638D806E05857FBE3B251CC6E4ADFC44685216F
 ```bash
 magnet:?xt=urn:btih:7CD0E0F3EF8070677502751EBC5FAA23BEDA324F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:7CD0E0F3EF8070677502751EBC5FAA23BEDA324F
 magnet:?xt=urn:btih:D9525B1AC3C011E28EC0D092E8C4D19293025609
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ UVLayout является автономным приложением созда
 ```bash
 magnet:?xt=urn:btih:C5BDFB5EC131A0DB02853DFCF31A10957B8BAE2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Sculptris – элегантная, мощная и в то же время пр
 magnet:?xt=urn:btih:803236E7A6A2DDC7F6B58A574A15439DBCDEC158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:803236E7A6A2DDC7F6B58A574A15439DBCDEC158
 magnet:?xt=urn:btih:A4750FAEB5B9E8DF6B9FE7E33F8785ECFE11BCE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ PascalABC.NET — современная версия языка програм�
 ```bash
 magnet:?xt=urn:btih:97F455EDFCD7F8157B3D69CFB952D2CB33DF2496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Roger Ye | .NET MAUI Cross-Platform Application Development (2023) [PDF] [EN]
 magnet:?xt=urn:btih:913E0F158EFC9D79F60BE5ED18189F93D9C3E9E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:913E0F158EFC9D79F60BE5ED18189F93D9C3E9E5
 ```bash
 magnet:?xt=urn:btih:2526ABC3790E11416C946BE3F6F298E98B1E8C57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:2526ABC3790E11416C946BE3F6F298E98B1E8C57
 magnet:?xt=urn:btih:BCBA9CEAA4148489EA301E51F2E82B0C3BF088D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:BCBA9CEAA4148489EA301E51F2E82B0C3BF088D7
 ```bash
 magnet:?xt=urn:btih:BE65F4A2BF330A9BABCAC746680F732C46877532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Haksun Li, PhD | Numerical Methods Using Kotlin (2023) [PDF] [EN]
 magnet:?xt=urn:btih:CDD96108A304511FE169FDC6E5AB52B66F375E9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:CDD96108A304511FE169FDC6E5AB52B66F375E9D
 ```bash
 magnet:?xt=urn:btih:92DDEC683963CDF60BF4DF9CEBA7B5E7C29BE08C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:92DDEC683963CDF60BF4DF9CEBA7B5E7C29BE08C
 magnet:?xt=urn:btih:48C9826E01D1518F8F5D117921A02E194FEEE38C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ ZBrush от компании Pixologic - приложение для цифро�
 ```bash
 magnet:?xt=urn:btih:98EE0BB62B464679187C82EC1B224048E3179813
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

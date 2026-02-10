@@ -1,3 +1,29 @@
+###  Публикация: 1484522   (1006012) от 20.07.2021
+
+Воспоминания Победы (2021) WEBRip [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1006012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известные актеры рассказывают о своих родных, прошедших войну, и читают письма неизвестных солдат и тех, кто их ждал с фронта. Письма, которые почти спустя 75 лет были найдены в сумке убитого военного почтальона. Каждый из героев делится трагическими и нежными, доблестными и честными историями своих семей. Историями людей, не щадивших себя ради жизни будущих поколений.Производство: Россия / Русское киноЖанр: Документальный, историяРежиссер: Андрей ГрачевАктеры: Сергей Чонишвили, Владимир Епифанцев, Дарья Повереннова, Денис Семенихин, Михаил Горевой, Олег Фомин, Виктория Полторак,  Дмитрий Белоцерковский, Максим ЛинниковСубтитры: ОтсутствуютПродолжительность: 01:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAA7AD536C86B329671E4471A653B2F9097496A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1484518   (1006013) от 20.07.2021
 
 Сокровенный человек (2020) WEBRip [H.264/1080p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:730EF42801DEF112A55FC746E66838CE00506129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:730EF42801DEF112A55FC746E66838CE00506129
 magnet:?xt=urn:btih:405D57431EEF05CD5091FEFCFE1DFF85070D1F1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:405D57431EEF05CD5091FEFCFE1DFF85070D1F1E
 magnet:?xt=urn:btih:C9C5CD8884DFFEABBC049ADB699D8390C3AD45F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:C9C5CD8884DFFEABBC049ADB699D8390C3AD45F9
 ```bash
 magnet:?xt=urn:btih:3AA98E009C9888285BEDC5CF5987804E64D9F92F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:3AA98E009C9888285BEDC5CF5987804E64D9F92F
 magnet:?xt=urn:btih:70821BCD215D3E48880DAB686F1D0E19FCF12113
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:70821BCD215D3E48880DAB686F1D0E19FCF12113
 ```bash
 magnet:?xt=urn:btih:AF835D8540FD864F5675410ECAD5847E51DC6D3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:AF835D8540FD864F5675410ECAD5847E51DC6D3A
 magnet:?xt=urn:btih:661EFECE681A34FA71E1077EFCF101C1C554B965
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:661EFECE681A34FA71E1077EFCF101C1C554B965
 magnet:?xt=urn:btih:7A1DA2143CFA0DEFFC1555883989C03E6073257F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:7A1DA2143CFA0DEFFC1555883989C03E6073257F
 ```bash
 magnet:?xt=urn:btih:B605F1D1C1F1993AB7B4B823B4282FDED7F8229D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:B605F1D1C1F1993AB7B4B823B4282FDED7F8229D
 magnet:?xt=urn:btih:40517F27146128969A8F35A64039D8C914D4635E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:40517F27146128969A8F35A64039D8C914D4635E
 ```bash
 magnet:?xt=urn:btih:B0FD41FA5CB1851763FE0245B60D95E24DB0F4CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:B0FD41FA5CB1851763FE0245B60D95E24DB0F4CF
 magnet:?xt=urn:btih:F790E9115D61F89A788C4D7C929051635CC7491F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:F790E9115D61F89A788C4D7C929051635CC7491F
 magnet:?xt=urn:btih:49930A820D173C44F895756CC4697B4BB1BFF4AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:49930A820D173C44F895756CC4697B4BB1BFF4AC
 ```bash
 magnet:?xt=urn:btih:279A9A6267D166D53C395018A203B6AD0AD83DC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:279A9A6267D166D53C395018A203B6AD0AD83DC1
 magnet:?xt=urn:btih:97F0320073DF77BB4562421F39E4CF9AD65D83CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:97F0320073DF77BB4562421F39E4CF9AD65D83CC
 ```bash
 magnet:?xt=urn:btih:28D5F82ADD87C1D93802002615D7B79409F362F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:28D5F82ADD87C1D93802002615D7B79409F362F5
 magnet:?xt=urn:btih:DD29B0EB2D9E729BDE3BF2827680BAE1BDE40C10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:DD29B0EB2D9E729BDE3BF2827680BAE1BDE40C10
 ```bash
 magnet:?xt=urn:btih:D803B388743BF88F7BAB7FA12D29FF9BAD39B216
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:D803B388743BF88F7BAB7FA12D29FF9BAD39B216
 magnet:?xt=urn:btih:F38DE7156505BD115A6C139CFA9CB2B91CF82495
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:F38DE7156505BD115A6C139CFA9CB2B91CF82495
 ```bash
 magnet:?xt=urn:btih:5B77CE17C6708BC8D5FF2AB67CB6C43BB9E2FF92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:5B77CE17C6708BC8D5FF2AB67CB6C43BB9E2FF92
 magnet:?xt=urn:btih:CB6FBD794113806C9BE206A5151128D407F05D7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:CB6FBD794113806C9BE206A5151128D407F05D7B
 ```bash
 magnet:?xt=urn:btih:10E357CC6CCD4EFB90D6AC1D643D6DE721A8EC1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:10E357CC6CCD4EFB90D6AC1D643D6DE721A8EC1A
 magnet:?xt=urn:btih:B3FA8C31ACD3DA1B5901A886B0DB93610A4B44DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:B3FA8C31ACD3DA1B5901A886B0DB93610A4B44DC
 ```bash
 magnet:?xt=urn:btih:E780CCBB5A96453E43EBE335456B3FBD9FA9C77C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:E780CCBB5A96453E43EBE335456B3FBD9FA9C77C
 magnet:?xt=urn:btih:FAFF7CE425FFDF9C2E6A608943C24A3C96A003C5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482303   (1007749) от 07.07.2021
-
-От Шурика до Шарикова. Заложники одной роли (2018) IPTVRip [H.264]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1007749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Авторы документального фильма расскажут о трагических судьбах любимых актёров. Почему режиссёры перестали давать Александру Демьяненко главные роли, и как он пытался компенсировать этот пробел? Как роль Светланы Афанасьевны в "Большой перемене" сломала жизнь одной из самых красивых актрис советского кино Натальи Богуновой? Через что прошёл Владимир Толоконников, (   Читать дальше...   )Производство: Россия / "ПАНЧ ТВ"Жанр: ДокументальныйРежиссер: Елена ЛапенковаЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E385984EFAA71FF0F6003CA59C851A5B255CC7E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

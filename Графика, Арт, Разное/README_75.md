@@ -1,51 +1,3 @@
-###  Публикация: 931136   (512879) от 25.08.2015
-
-Обои - Оружие 2 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на тему оружияФормат: JPGРазрешение файлов: 1280x800 - 2560x1920
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3B48AB1DFD8378274970FF67DBE13F3F9B4B9BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931138   (512924) от 25.08.2015
-
-Обои - Пейзажи 2 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_512924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои на тему пейзажейФормат: JPGРазрешение файлов: 1280x800 - 2560x1920
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCEA940263B68F0C86463FAFA19F6343836D7E46
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 930907   (512925) от 25.08.2015
 
 Обои - Добро пожаловать в пиццерию. 1920x1080-3840x2160 - 100 шт [JPG]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:CCEA940263B68F0C86463FAFA19F6343836D7E46
 ```bash
 magnet:?xt=urn:btih:5F6C3AA44E5839096E9A7E8AA9888469EB16515A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +45,8 @@ magnet:?xt=urn:btih:5F6C3AA44E5839096E9A7E8AA9888469EB16515A
 magnet:?xt=urn:btih:831CC7A3A58B463AD15CBD7B308511EDCB001F5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +70,8 @@ magnet:?xt=urn:btih:831CC7A3A58B463AD15CBD7B308511EDCB001F5F
 ```bash
 magnet:?xt=urn:btih:C1ABA1A2D252DA60A254DCA6E17C5527887B1C57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +97,8 @@ magnet:?xt=urn:btih:C1ABA1A2D252DA60A254DCA6E17C5527887B1C57
 magnet:?xt=urn:btih:D5651EDC556883D3D53F902EBDEB8CE45C167CCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +122,8 @@ magnet:?xt=urn:btih:D5651EDC556883D3D53F902EBDEB8CE45C167CCB
 ```bash
 magnet:?xt=urn:btih:406DDF0C61C9C13A8C247371C533F218A7D19185
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +149,8 @@ magnet:?xt=urn:btih:406DDF0C61C9C13A8C247371C533F218A7D19185
 magnet:?xt=urn:btih:B928D03FD596C775C11CF4F90080A180E8362EC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +174,8 @@ magnet:?xt=urn:btih:B928D03FD596C775C11CF4F90080A180E8362EC5
 ```bash
 magnet:?xt=urn:btih:389B31ECC179481785FB453CD504ABD90FE04C11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +201,8 @@ magnet:?xt=urn:btih:389B31ECC179481785FB453CD504ABD90FE04C11
 magnet:?xt=urn:btih:0E1D0F1D165F9ED7AE85A45C4669BF6C93EF01A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +226,8 @@ magnet:?xt=urn:btih:0E1D0F1D165F9ED7AE85A45C4669BF6C93EF01A5
 ```bash
 magnet:?xt=urn:btih:4A244D063CE6ED37717766E7DCCD5F099B60D853
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +253,8 @@ magnet:?xt=urn:btih:4A244D063CE6ED37717766E7DCCD5F099B60D853
 magnet:?xt=urn:btih:FDCD20BCB72893F980F65E7748CCD230B63545D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +278,8 @@ magnet:?xt=urn:btih:FDCD20BCB72893F980F65E7748CCD230B63545D7
 ```bash
 magnet:?xt=urn:btih:6FA1686084635EC4ACCCB04F435DE3C15FCC688E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +305,8 @@ magnet:?xt=urn:btih:6FA1686084635EC4ACCCB04F435DE3C15FCC688E
 magnet:?xt=urn:btih:C1A0844064EB9CC46B154B6114054C238EC426C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +330,8 @@ magnet:?xt=urn:btih:C1A0844064EB9CC46B154B6114054C238EC426C4
 ```bash
 magnet:?xt=urn:btih:96D82B1E06415EDC52D992BC66FC1272401D83B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +357,8 @@ magnet:?xt=urn:btih:96D82B1E06415EDC52D992BC66FC1272401D83B7
 magnet:?xt=urn:btih:0AB5B9740219B1E3E511D929319AC332FBE62806
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +382,8 @@ magnet:?xt=urn:btih:0AB5B9740219B1E3E511D929319AC332FBE62806
 ```bash
 magnet:?xt=urn:btih:D9AC2E65E63E20E9345DF6CC42841228E16C965F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +409,8 @@ magnet:?xt=urn:btih:D9AC2E65E63E20E9345DF6CC42841228E16C965F
 magnet:?xt=urn:btih:559DFC05A260A9090B225B0A40E91FFDD3633999
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +434,8 @@ magnet:?xt=urn:btih:559DFC05A260A9090B225B0A40E91FFDD3633999
 ```bash
 magnet:?xt=urn:btih:449BAC47F68A69A28E83B60276F07F2FACB1844F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +461,8 @@ magnet:?xt=urn:btih:449BAC47F68A69A28E83B60276F07F2FACB1844F
 magnet:?xt=urn:btih:331F1C04F7F669E0B95BE7B9A77E3D28C3A41125
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +486,8 @@ magnet:?xt=urn:btih:331F1C04F7F669E0B95BE7B9A77E3D28C3A41125
 ```bash
 magnet:?xt=urn:btih:ED4AC48F706E0DEBCAD7BECF10F27EEDC4671EE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +513,8 @@ magnet:?xt=urn:btih:ED4AC48F706E0DEBCAD7BECF10F27EEDC4671EE1
 magnet:?xt=urn:btih:68889D04AEADD7B76BCE66264B16D5E303472658
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +538,8 @@ magnet:?xt=urn:btih:68889D04AEADD7B76BCE66264B16D5E303472658
 ```bash
 magnet:?xt=urn:btih:87CB2E5603F11598A94E43B357C79F9A2DC6302B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +565,8 @@ magnet:?xt=urn:btih:87CB2E5603F11598A94E43B357C79F9A2DC6302B
 magnet:?xt=urn:btih:5D80DD48442DA5B5999E360F8431F16FBF24CA12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +591,8 @@ magnet:?xt=urn:btih:5D80DD48442DA5B5999E360F8431F16FBF24CA12
 magnet:?xt=urn:btih:E17D7B43BC5F3AA82BAB4029D16DCBE744D64ACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +616,60 @@ magnet:?xt=urn:btih:E17D7B43BC5F3AA82BAB4029D16DCBE744D64ACD
 ```bash
 magnet:?xt=urn:btih:153AD2DB44AD28AB16D7CFA6F4CC31D85C5D5488
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536504   (514301) от 18.08.2012
+
+[Фотография]Фотоманипуляции Елены Дудиной
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник фотоманипуляций Елены Дудиной.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05508968FFFF31A4C204EAD3728579B2844E87A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 536340   (514410) от 18.08.2012
+
+[Цифровой арт] Kerem Beyit
+
+>>Графика, Арт, Разное
+>>Современное изобразительное искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_514410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Работы цифрового художника Kerem Beyit.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9703081C8F6D9A55414996F9791623F66D8AB04
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

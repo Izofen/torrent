@@ -19,6 +19,8 @@ Logoist  - Мощный графический редактор, который 
 magnet:?xt=urn:btih:E32E03FA54F0A0BE959A59581AA12C5CF6A49A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Europe - Super Hits (1998) [FLAC|tracks+.cue]<Rock>
 ```bash
 magnet:?xt=urn:btih:AFBA74E2484A69FF7DFA54850BF44956CF78BC85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Scorpions - Best (1999) [FLAC|tracks+.cue]<Hard Rock>
 magnet:?xt=urn:btih:B974D202FC1FF1EC50967F38B84E14DED766DF25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:B974D202FC1FF1EC50967F38B84E14DED766DF25
 magnet:?xt=urn:btih:9D1C080C4E81DB0373E694211464F029A8C33234
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:9D1C080C4E81DB0373E694211464F029A8C33234
 ```bash
 magnet:?xt=urn:btih:1F11D1F5FA484116C19A9F9DB1649AD3B39AD06D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Infix PDF Editor Pro 6.46 RePack by D!akov [Ru/En]
 magnet:?xt=urn:btih:61A1B906FBCA5F7E86489E7AB3FE3CE96530C89E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:61A1B906FBCA5F7E86489E7AB3FE3CE96530C89E
 ```bash
 magnet:?xt=urn:btih:E748306D71E5776E1EEB66DDF5F0D80784DCAB20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:E748306D71E5776E1EEB66DDF5F0D80784DCAB20
 magnet:?xt=urn:btih:701A9C6A9B3161726B5A52F653766C96DA61D76B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:701A9C6A9B3161726B5A52F653766C96DA61D76B
 ```bash
 magnet:?xt=urn:btih:BE5F93BC8EF15392E79DCDC2BC87473549DC6AE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ GreedFall (2019) [Ru/Multi] (4324602/dlc) Repack xatab
 magnet:?xt=urn:btih:83B77F8B661BCA7E43158A63F5E16ED1670D6BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Sewayaki Kitsune no Senko-san | The Helpful Fox Senko-san | Заботливая
 ```bash
 magnet:?xt=urn:btih:63A4FA2AAC91DC850CECF5158910323E5E95AF53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Crusher Joe | Крушила Джо [1983, Movie] BDRip 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:B41CB545F9DB06511F2178B43A1A9C18B7141227
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Udemy | HTML5, CSS3, FlexBox верстка сайтов с нуля. Курс 2
 magnet:?xt=urn:btih:E6CF4D02575AC132571D38815E973089621D2D47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Fan-made фильм рассказывает о бывшем обитателе 
 ```bash
 magnet:?xt=urn:btih:B41FEBCB9220E89AB922BFC2D8B9278E5ACE7DF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Darren Porter - 2 Compilations, 48 Singles, 58 Remixes, 3 Tracks (2009 - 2019) [
 magnet:?xt=urn:btih:3C64414F66A9631FB163CB9EF31697239409541C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:3C64414F66A9631FB163CB9EF31697239409541C
 ```bash
 magnet:?xt=urn:btih:609CB68AC8BB98B3580218413621BC26865B848B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ VA - Самые лучшие треки интернета Осень 2019 [MP3|
 magnet:?xt=urn:btih:9C70C57141D4916CAEF2AEFEFF99463A9495B5EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:9C70C57141D4916CAEF2AEFEFF99463A9495B5EB
 ```bash
 magnet:?xt=urn:btih:09825A052FDEB6A0EFF8B92367D1FA15B154EA7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:09825A052FDEB6A0EFF8B92367D1FA15B154EA7C
 magnet:?xt=urn:btih:051AD82D3F68A986C08735B937C67BBE84619C82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ Tau Analyzer - бесплатная программа, которая може�
 ```bash
 magnet:?xt=urn:btih:40F4760BF7DE1D584C68A73AA2E112D721F34FA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:40F4760BF7DE1D584C68A73AA2E112D721F34FA7
 magnet:?xt=urn:btih:362F43003942072D4E7DF2F79F13C6A3D939F064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ Strategic Mind: The Pacific - пошаговая стратегия, событ�
 ```bash
 magnet:?xt=urn:btih:39A85FB63D2C4CF6FF1CBB238A9295843740AA5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:39A85FB63D2C4CF6FF1CBB238A9295843740AA5D
 magnet:?xt=urn:btih:E7A5E23476A34622893E48ACA2FB70A6D4404804
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ magnet:?xt=urn:btih:E7A5E23476A34622893E48ACA2FB70A6D4404804
 magnet:?xt=urn:btih:210D8C346BD9DD1706CCAC0E8DCCAD52C7ECBE37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:210D8C346BD9DD1706CCAC0E8DCCAD52C7ECBE37
 ```bash
 magnet:?xt=urn:btih:86B85DFB2973FA8DFB6B1B23365153EAE316EDFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +687,8 @@ Shimo - VPN-клиент, который в отличие от других VPN
 ```bash
 magnet:?xt=urn:btih:9FBB902694332ADB41074302CEAC135F4C3F426F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

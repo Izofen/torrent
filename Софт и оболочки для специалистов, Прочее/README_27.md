@@ -19,6 +19,8 @@ SAS.Планета / SAS.Planet / SASPlanet – свободно распрос�
 magnet:?xt=urn:btih:39921FC81B73E25738A55173F903A9F4EEEA85B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ WinPE 11-10-8 Sergei Strelec (x86/x64/Native x86) 2025.12.14 [Ru]
 ```bash
 magnet:?xt=urn:btih:A8F406AFB847D0041AB9356D5B8DB12F62368369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:A8F406AFB847D0041AB9356D5B8DB12F62368369
 magnet:?xt=urn:btih:473AC5F36404578CDF50E911999A8C464F4F3F62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Hex Editor Neo – Редактор Шестнадцатеричных и Бин
 magnet:?xt=urn:btih:39703A93B0B16214CD006DC583CF6A51F11D245C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Keysight Advanced Design System 2026 Update 1 [En]
 ```bash
 magnet:?xt=urn:btih:AD9718FDE5B7F4F488826B4912B863062B8504A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ PSIM - программа для проектирования и моделир�
 magnet:?xt=urn:btih:18155F363671998CEEC45159B56F8E6D9EF5BE52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ SkyCAD Electrical Pro 1.3.61.23785 [En]
 ```bash
 magnet:?xt=urn:btih:35E07F8CBA9E1D1DB9C9FB0E1A1D2DE3D594EBEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ WinToUSB - позволяет устанавливать и запускать �
 magnet:?xt=urn:btih:97CE42220D1209F4E2B299327EA2E8ED9BB83A1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Visual Studio — это мощное средство разработчика,
 magnet:?xt=urn:btih:8F7B399D488E18B9F45F3A7856A8D7A99DBE324B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Visual Studio 2026 - это один из самых амбициозных ша
 ```bash
 magnet:?xt=urn:btih:F37EFF0B68DF9A314944CE54D11B3175F13E5C6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ JetBrains DataGrip - это инновационное программное о
 magnet:?xt=urn:btih:DCF4C170F370C266601BCDD02B8184DFA7157BAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Multiboot Collection Full v.8.9 (Обновляемая) [Ru/En]
 ```bash
 magnet:?xt=urn:btih:BE31233CA99DF1D806C26D1456FB9F35DA744E48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Jinn'sLiveUSB - конструктор мультизагрузочной фле
 magnet:?xt=urn:btih:8EF9ABEF64C69637190EED6EED68DD177927D49B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ ICM-Pro расширяет возможности биологов или хим
 ```bash
 magnet:?xt=urn:btih:F957350122B6625FB48BAFA1CF689C7E1F7EA106
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Altium Designer — это мощная система, позволяющая �
 magnet:?xt=urn:btih:1E05B28A17DFBC877027F4475769E18D3DF96AA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ DipTrace - это многофункциональная САПР по разр�
 ```bash
 magnet:?xt=urn:btih:CC14D825E6A4911C88666D28A747BE54CE0AF0AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ PilotEdit можно использовать для редактировани�
 magnet:?xt=urn:btih:F4F3D1425FEB36057504CCD867BF5489094D51CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 ```bash
 magnet:?xt=urn:btih:53A6191B3C59302BD83DAAD13685CF80AF4C59A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ WinToHDD - программа 3-в-1, которая позволяет выпо
 magnet:?xt=urn:btih:6B184EC39D8460C2B5C0EAE2C4BC8D84301EA7A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ SQL Dynamite 2.5.3.1 [En]
 ```bash
 magnet:?xt=urn:btih:C685091E7722C35BFB8FB7973CB165C67D1D33A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ TopSolid 7 объединяет автоматизированное проек�
 magnet:?xt=urn:btih:9E1D485244E28CDE9DE51B41C2EB2FEAE7B1FC34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ QSPICE 2026.1.4 [En]
 ```bash
 magnet:?xt=urn:btih:51FBE9785903EA3D7B1AD7292DAB97FF5A1DEE37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ InfineonSpice 2025.04.1 [En]
 magnet:?xt=urn:btih:CE3993134B71CA9A9CCE363F24C93EF52C3E8CAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ PhpStorm – это интегрированная среда разработк
 ```bash
 magnet:?xt=urn:btih:5D0D1658DAEFC4BB52B0CEEF4EB41C1E47407C2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ IDE GoLand предлагает широкий спектр инструмент
 magnet:?xt=urn:btih:98B68C9505590D267DA99D2EFF5854EF9FA67849
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ JetBrains IntelliJ IDEA Ultimate - это профессиональный ин�
 ```bash
 magnet:?xt=urn:btih:BD2384E83F5E9CC6361B202AAF7C07703F792E2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

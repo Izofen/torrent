@@ -19,6 +19,8 @@ Faces of War / В тылу врага 2 (2006) [Ru/En] (1.04.1) License GOG
 magnet:?xt=urn:btih:AB1A4C12B6E03B733326393D2BB53A65DFEAC70F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Titan Quest: Immortal Throne (2007) [Ru] (1.1) License [Expansion Pack]
 ```bash
 magnet:?xt=urn:btih:EB35DAB4CE4CCFF5CBCB07200E44ADE08A439C74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Hunting Unlimited 2 - симулятор охоты от компании SCS So
 magnet:?xt=urn:btih:55C87BA7B46425594067147449AFC7556C4534DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Of Light and Darkness: The Prophecy (1998) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:94BA4D2750C6883972DE53E683D0551579FE23F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ RollerCoaster Tycoon (1999) [Multi] (1.20.015/dlc) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:CBC3225FE030F179890EECD778B68E90277CF618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Red Faction (2001) [En/Ge] (1.21) License GOG
 ```bash
 magnet:?xt=urn:btih:7A9FA8137B4295CB6D13C654C83BC3B1B2B1B68A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ DethKarz (1998) [En] (1.0) License GOG
 magnet:?xt=urn:btih:99A77CB951DE0DEB7381E140F4BD14B6CFD513F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Hunting Unlimited 4 - симулятор охотника, являющийся 
 ```bash
 magnet:?xt=urn:btih:6BE3B739C58629D49AAE856522350404B2D05A16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Hunting Unlimited 3 (2004) [En] (1.0) License ELEGANCE
 magnet:?xt=urn:btih:2D65EBA517E4E86826BD2A8800C5E3C8FB0C8947
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ LEGO Star Wars III: The Clone Wars (2011) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:BE86A001793E25C416A3AA1FC2EB29A51B61A552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Star Wars: Jedi Knight - Dark Forces II (1997) [En] (1.01) License GOG
 magnet:?xt=urn:btih:8C5A8D26887C6035DE00925F01E6BF2119E4E2E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Star Wars: Jedi Knight: Mysteries of the Sith — самостоятельно �
 ```bash
 magnet:?xt=urn:btih:E1D5070529229275A3E4A55110B70061D97B6160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Big Fish Games Universal Crack / Активатор игр Big Fish Games (2016)
 magnet:?xt=urn:btih:D219A3BD667D98EE9735D5EF4CBE7498A69EBEEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Broken Sword 4: The Angel of Death / Сломанный меч 4: Ангел с�
 ```bash
 magnet:?xt=urn:btih:D9D5DB435FCAE85F7366904A2F63EDE67785F0B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Broken Sword: The Sleeping Dragon / Сломанный меч 3: Спящий д
 magnet:?xt=urn:btih:8A3D76222F28ADA0DD058227C11B77D774DA9DFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Thief™ Gold (1999) [En] (1.26ND) License GOG
 ```bash
 magnet:?xt=urn:btih:561A324397E3C849E4A285FB1E0032240A343D1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:561A324397E3C849E4A285FB1E0032240A343D1B
 magnet:?xt=urn:btih:0DEC25865723D54F4CA4C563C6EA36AC9B770DB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Space Clash: The last frontier / Космические войны: Послед
 ```bash
 magnet:?xt=urn:btih:5056D403F593D17322ADC1708BE20C4CEC636B0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Grand Theft Auto: London 1969 - дополнение для игры Grand Theft
 magnet:?xt=urn:btih:6CC6A885EECE6A59943760B34F68D4917038DD8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Microsoft Flight Simulator — серия гражданских авиа сим
 ```bash
 magnet:?xt=urn:btih:9A52ABFD607303E9FAA28ABCD3C0A313F0DE26D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Serious Sam 2 / Крутой Сэм 2 (2005) [Ru] (2.100) Repack Necros [20th An
 magnet:?xt=urn:btih:846F8A275A986E3C660D160C828A2949C8DA0AEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Warcraft Trilogy (1994-2002) [Ru/En] (1.2/2.02/1.26a/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:F1758A42BFF845B69E0FF64E440D4DC5CE1E7EA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Imperialism (1997) [Multi] (1.1) License GOG
 magnet:?xt=urn:btih:8367512C24ECC4F58717596009EF6AB0ADF438E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Dune 2000 - стратегия в реальном времени с видом 
 ```bash
 magnet:?xt=urn:btih:4236E5D1AC6EE80C9A7F8F0A7E7E339B0C75E21D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Thief: Deadly Shadows / Thief 3: Тень смерти (2004) [Multi] (1.1) Lice
 magnet:?xt=urn:btih:8C11DAA6231C44B359EDD2C17638A4995557B651
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Submarine Titans / Морские Титаны: Зов Глубин (2000) [En] 
 ```bash
 magnet:?xt=urn:btih:854A65829FAB9D92A7BA7BE906045F855BC48376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

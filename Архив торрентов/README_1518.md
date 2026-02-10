@@ -19,6 +19,8 @@ Textra SMS v4.63 Pro [Ru/Multi]
 magnet:?xt=urn:btih:DDCF1C8A3D8A51E4A473E3C9BDD671350D91E049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ ISO Workshop – небольшая программа для работы с о
 ```bash
 magnet:?xt=urn:btih:EE968A39A36136F84F0BA21F35E913AB7CBE5144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Wondershare PDFelement - программа для общего редактир
 magnet:?xt=urn:btih:D92F4878ADB5FE29B712AC8969438FF820BBC375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Revo Uninstaller Pro 5.0.6 RePack (& Portable) by Dodakaedr [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F94195C0C3AFC11F4E942E7A754398C97BCCC15B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ TuneIn объединяет спортивные события, музыку, �
 magnet:?xt=urn:btih:778DB7085F2D1AF049EA90A16DECD7522C9B8E3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Bandicam позволяет записать определенную облас
 ```bash
 magnet:?xt=urn:btih:2BA0BC4EA87D7578BDD527EC91FB8581E52BFE2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ CPU-Z способен показать различную информацию 
 magnet:?xt=urn:btih:1DDF138606D299B1621987DA0ECD6E44BEB37BC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:1DDF138606D299B1621987DA0ECD6E44BEB37BC6
 ```bash
 magnet:?xt=urn:btih:AEDAB1642E627C1122698632052E5163DB364F0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Antivirus Removal Tool - портативный набор официальны�
 magnet:?xt=urn:btih:1336D50D6E84917645ACAFDB82B4F88FD597F516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ GOM Player Plus - мультимедийный плеер со множеств�
 ```bash
 magnet:?xt=urn:btih:CE8E0F1FDC62C6B034B734CF80224D0CEF38DC70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:82EFFC3CECF623A8F0CA6EADA004B1524DA2542C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ AOMEI Partition Assistant Standard Edition бесплатный многофун
 ```bash
 magnet:?xt=urn:btih:6ADECEBE3718E0838280EF3566E51F36B7A5F167
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Adobe Substance 3D Painter 8.1.3 [En]
 magnet:?xt=urn:btih:CADCACD0599100A63E6AE05F26E640B887E15F5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:C5B2D84C03552559178AA0AAA7BA3A821D7237BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 magnet:?xt=urn:btih:9D146C2DDF7C42DFB5593A37DDB63CF237C6DB6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:0368CC504A3E56C2B69969ACF3975B06DFAFA296
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:B279033588A7E70DCC6432CBF54029433527E9C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ SysAdmin Software Portable v.0.6.3.0 by rezorustavi (Update 26.08.2022) [Ru]
 ```bash
 magnet:?xt=urn:btih:2983543317D6B1896FA68F83ED27D3ED48B6DEF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ AOMEI Partition Assistant – мощная программа для работ�
 magnet:?xt=urn:btih:2BE159377C77DB158D9571A3F3B9F7578A9E09E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:372B9955D70A1F7B79DFFE888C9781AAAB1E2A04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ digiKam — фото-менеджер для Windows — программа дл
 magnet:?xt=urn:btih:6D3E8C52A5D906C85C3A15603BED6B044CC29BBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:6D3E8C52A5D906C85C3A15603BED6B044CC29BBF
 ```bash
 magnet:?xt=urn:btih:4277DB85B18BE819B16F2341A7498B37DF8DEDF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Opera One 100.0.4815.47 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:D5510B9D71F37C16196A6E344C2DFFF963050859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ PC Cleaner - поможет исправить ошибки Windows на ваш�
 ```bash
 magnet:?xt=urn:btih:E3E6254539DFFDAEEBFE840F7A705ED9D5747A3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:CDC1054FB395F289FCE9B5520CAA13A3855CE903
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Macrorit Partition Extender - утилита, доступная также в �
 ```bash
 magnet:?xt=urn:btih:A28FB6F663F3361421196148FE342D8B7AD637AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

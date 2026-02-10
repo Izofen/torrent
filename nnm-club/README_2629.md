@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:D33C7336699F5C1112FB0A141BD0984EC4D3FBDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Tokyo Blade - Time Is the Fire (2025) [FLAC|Lossless|image + .cue] <NWOBHM, Heav
 magnet:?xt=urn:btih:94E510DDADCC7DE132002C2E3C9F8643E672D33F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:94E510DDADCC7DE132002C2E3C9F8643E672D33F
 magnet:?xt=urn:btih:550DF8E78237CFA1A6002A7ABD548F0628973861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:550DF8E78237CFA1A6002A7ABD548F0628973861
 ```bash
 magnet:?xt=urn:btih:03DBC9477847C434517EE1B80D9423340AF4D00C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Imminence - The Return of The Black (2025) [FLAC|Lossless|WEB-DL|tracks] <Metalc
 magnet:?xt=urn:btih:FB786CFFC2366B18245EAA7871F568D0CC90DEDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ A4 For The Love I Bear(   Читать дальше...   )Жанр: Death, Doom 
 magnet:?xt=urn:btih:76ECB60708AFB9489D029D806546FE47AFB94CE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:76ECB60708AFB9489D029D806546FE47AFB94CE6
 ```bash
 magnet:?xt=urn:btih:D427535C0BA581C60740B124E31D75D65E4FF11C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +218,8 @@ magnet:?xt=urn:btih:D427535C0BA581C60740B124E31D75D65E4FF11C
 magnet:?xt=urn:btih:0F1AD9B4FBB0200CD9FBC21294B201C14421791D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:0F1AD9B4FBB0200CD9FBC21294B201C14421791D
 ```bash
 magnet:?xt=urn:btih:FB11465EB0A5EA7A112B4985678D5715231894BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ Don Juan Dracula вернулись! Когда-то их называли од�
 magnet:?xt=urn:btih:FE3EBE4EBDD19608B5DFF673C95849DFF10A20D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:FE3EBE4EBDD19608B5DFF673C95849DFF10A20D8
 magnet:?xt=urn:btih:0859770E92889D9A645F39C7ABB88D91776F88A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ Capital Press | Коломенский завод. 160 лет труда, тал
 ```bash
 magnet:?xt=urn:btih:82BE846822BEFCDD5EE4B8FF6A5BE7BA4FD703AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:82BE846822BEFCDD5EE4B8FF6A5BE7BA4FD703AC
 magnet:?xt=urn:btih:7475599A1DD20B57890D7DC6B6A41925A5C322FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:7475599A1DD20B57890D7DC6B6A41925A5C322FD
 magnet:?xt=urn:btih:1E9738ECDDA7460B3BA14DCE543380FD12750014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ GeoGebra — мультиплатформенная программное об�
 ```bash
 magnet:?xt=urn:btih:7851E136BC8B3FB7069657B1BCF9D1E86AD75FE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:7851E136BC8B3FB7069657B1BCF9D1E86AD75FE3
 magnet:?xt=urn:btih:C6F19F503ACC95F386F87A4E79343E38A8235221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:C6F19F503ACC95F386F87A4E79343E38A8235221
 ```bash
 magnet:?xt=urn:btih:95453046A9C800B07B4A05FF6E7978FAC96CB074
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ Helloween - Unarmed - Best Of 25th Anniversary (2009) Japanese Edition, Limited 
 magnet:?xt=urn:btih:FB3CE77286D2F616FE9C16D060548E224F1CA628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:FB3CE77286D2F616FE9C16D060548E224F1CA628
 magnet:?xt=urn:btih:A4CD701EF0AF01143EE47E585DB50154BAF0F68B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:A4CD701EF0AF01143EE47E585DB50154BAF0F68B
 magnet:?xt=urn:btih:5903A40BA36A3977E861A5EBE1EEC2DF4611A709
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ XYplorer – удобный многовкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:035D2A561CB71D7BDE041039CBA4F9C198542D78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ VA - 40 Years Techno Club (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:B5B923B652F6F8B42DD062680C17DA9E55D75617
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:B5B923B652F6F8B42DD062680C17DA9E55D75617
 magnet:?xt=urn:btih:0785CCAF4B34253AFD1FAF1657B5FD16477AB7E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:0785CCAF4B34253AFD1FAF1657B5FD16477AB7E9
 ```bash
 magnet:?xt=urn:btih:DD3A33376C56AD474738F389EEF4C6FE2DC43A38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:DD3A33376C56AD474738F389EEF4C6FE2DC43A38
 magnet:?xt=urn:btih:2B7736D50DA6F86B356CA64F02738AE308590B4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:2B7736D50DA6F86B356CA64F02738AE308590B4C
 ```bash
 magnet:?xt=urn:btih:E06F17DFA3F2875CBA0879E4BFB1940CB0B54DD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

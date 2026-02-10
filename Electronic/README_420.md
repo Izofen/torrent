@@ -22,6 +22,8 @@ DJ Licious - Tomorrowland Friendship Mix (2021-11-04) [MP3|320 Kbps] <Dance, Ele
 magnet:?xt=urn:btih:6C350A70971D2BE9D678E0FD27C318BA9B0CD797
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Vip Room Saint-Tropez Famous Club - 20th Anniversary (2009)( mixed by Jean-
 ```bash
 magnet:?xt=urn:btih:92263B7392E28218E602A86F09BC32BCC74916D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - We Are Trance - January (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:DDE89823B49E0352029A96AF25E14CA75136B895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Tioan - Cinemagic (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
 ```bash
 magnet:?xt=urn:btih:AF9B540D351B37643A725BC7ABF0065B2BBDDDEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Infrasonic Progressive Selection Volume 6 (2018) [MP3|320 Kbps] <Trance,Pro
 magnet:?xt=urn:btih:0CA14CAA7E4D37FE412CC1487D24987F15E1A149
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Top Sexy House Electro (2016) [MP3|320 кб/с] <House, Electro House>
 ```bash
 magnet:?xt=urn:btih:CB11C879F0AA78A7370F2A1F85C9039502ECD9CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Global DJ Broadcast Top 20 April (2016) [MP3|320 кб/с] <Trance, Progress
 magnet:?xt=urn:btih:6DE2F0D1853B43833EEE99D5B2DD6D28E62175BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - The Finest 30 Chill Out Multibundle (2016) [MP3|320 кб/с] <Downtempo, Ch
 ```bash
 magnet:?xt=urn:btih:2D7CCBC8D8E96284F39B674EB198F37B4AF944A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Progressive Guide Vol.1 (2016) [MP3|320 кб/с] <House, Progressve House>
 magnet:?xt=urn:btih:30D03CAEBF3F3A0B2308C1BEA3CA5DEC051650F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Deep Erotica - Love is in the Air. Making Love Music Background (2020) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:AF47A5F5806787D9EFFA6F3966ABD1AF0C717320
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Miguel Migs – Nude Tempo One (2002) [FLAC|Lossless|tracks + .cue] <Deep H
 magnet:?xt=urn:btih:D471CFDA7C5E52E8CD4A9E5AA44308BCC1E1CFD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Erotic Lounge Essential Summer (2020) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:D3CEEFCA5B1127134AEA5A38289019774E7209D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ V.A. - Coffee Bar Lounge, Vol. 19 (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Lis
 magnet:?xt=urn:btih:2BBCFDFC8D3125362F642A91FDAE97435E489B5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Testpattern - Apres-Midi (1982) Reissue CD, 1990, Yen Records [MP3|320 Kbps] <El
 ```bash
 magnet:?xt=urn:btih:9A15C000088FF5020069F58110C405C5C5782A92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Lisa Shaw - Cherry (2005) [FLAC|Lossless|tracks + .cue] <Deep House, Broken Beat
 magnet:?xt=urn:btih:1D0362843C2D2B21DC138960F4FD96943D77AE20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Aurolab - Anna (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Nu-Disco>
 ```bash
 magnet:?xt=urn:btih:9EED296569EBA394E3B8B75FCB062A5AACA2709C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Jody Wisternoff - Nightwhisper (2020) Extended Edition [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:998B041732AE20C4159989D56E431F8AC44FB7CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Olive - CD Коллекция (4 CD, 2 Albums) (1997-2000) [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:5908EF77DF2D6BB336DD5701C274CF547A8F6707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Gagarin Selection 2021 (2021) [MP3|320 Kbps] <Spacesynth, Synthpop, Synthwa
 magnet:?xt=urn:btih:153F7C9F18ED6C609F6F8F75A1191259B9E57A36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Gagarin Selection 2021 (2021) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Sy
 ```bash
 magnet:?xt=urn:btih:CF8D92C76CF29ABE02001E331C50CEAF26856EF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Johan Tronestam - Space Collection (2017) [MP3|320 Kbps] <Berlin-School, Space M
 magnet:?xt=urn:btih:3F567C28A382A5B451EAD839B75A1D1292EED5CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Johan Tronestam - Space Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <Berlin-
 ```bash
 magnet:?xt=urn:btih:B036BE763BACA1659E784EFA5723E6624A61C0BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Jean-Michel Jarre - Welcome To The Other Side - Live in Notre Dame VR (2021) [FL
 magnet:?xt=urn:btih:C479799F06CD73BEB98F74B3D60C273CF278E8E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ CamelPhat - Live @ The Palms, CRSSD Fest, United States (2021-09-25) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:EFDDA354A88D13CFB276115614F2E881598319B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Above & Beyond @ ABGT 450 (Deep Warm Up Set), River Lea London, United Kingdom:
 magnet:?xt=urn:btih:607FC8BD3F0B493C485619A1407ACC949A947BE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Josh Le Tissier - Ministry of Sound - HD Life presents Fresher Land (2021-10-07)
 ```bash
 magnet:?xt=urn:btih:FE7AFA582364609C7E41CE282E9CC88444FB7A9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

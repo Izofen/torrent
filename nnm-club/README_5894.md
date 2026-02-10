@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:0C658AAF2FE8907A930A9580C5A47A12572147ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Hal Galper Quintet - Live At The Berlin Philharmonic (1977, 19768) 2CD, 2021, Or
 magnet:?xt=urn:btih:FE3A6A832B5FC0C6BBEC73468A5B7207B061CFB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:FE3A6A832B5FC0C6BBEC73468A5B7207B061CFB5
 magnet:?xt=urn:btih:80A38C3BFE84D371166060DFFA4B29D5E0597C2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:80A38C3BFE84D371166060DFFA4B29D5E0597C2C
 ```bash
 magnet:?xt=urn:btih:128CE2187F45D2B41CB5E6A70A6FCE41C738A71C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:128CE2187F45D2B41CB5E6A70A6FCE41C738A71C
 magnet:?xt=urn:btih:2E9B54EC385A1F4DC879C2F78F7B9B57128C72FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:2E9B54EC385A1F4DC879C2F78F7B9B57128C72FA
 ```bash
 magnet:?xt=urn:btih:F83DA39F7FC4B933F983FC3C7DA695B0150604BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Antoine Holler - No Regrets (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:1497E1CBCDB9C97BB511B05CD1F8DCC5ED73E20D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:1497E1CBCDB9C97BB511B05CD1F8DCC5ED73E20D
 magnet:?xt=urn:btih:D9A2659B637AA256A5E6B497911073BF92E3941B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:D9A2659B637AA256A5E6B497911073BF92E3941B
 ```bash
 magnet:?xt=urn:btih:19F00A9F55592C535B05CE7D794B9ACEDDCD7E8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ CLO - 3D Fashion Design Software 6.0 [Multi/Ru]
 magnet:?xt=urn:btih:D650215BB609D8A4F201308BCE557AE44EAC5D81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ InShot - очень впечатляющее своими возможностя
 ```bash
 magnet:?xt=urn:btih:AACD837520A0483CFDBA2DB454C95441D448A4A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ Soluna - Synesthesia (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive-Metalcore
 magnet:?xt=urn:btih:E8F82BBDA4872B35C7C902E200F5937864D0761B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ Nurcry - Destino, yo te busco (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal,
 magnet:?xt=urn:btih:51ADE7EAD2E1149684F80A38F4C26A79B1C8DC55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:51ADE7EAD2E1149684F80A38F4C26A79B1C8DC55
 ```bash
 magnet:?xt=urn:btih:DF5AE56056DBCB0CA65496CD940B9F0C4C162809
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ SHeDAISY — одна из тех современных кантри-групп
 magnet:?xt=urn:btih:CD88E73A3F3508433F4B6C9941BBCFF520EED56E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:CD88E73A3F3508433F4B6C9941BBCFF520EED56E
 magnet:?xt=urn:btih:35FF6967C9BE557589DC5ECF157AB5C476B0CE42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:35FF6967C9BE557589DC5ECF157AB5C476B0CE42
 ```bash
 magnet:?xt=urn:btih:CDCACE671644DF785587352FDB49CA2641775B0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ Kodachi Linux [анонимный доступ в сети] 7.6 [amd64] 1xDVD
 magnet:?xt=urn:btih:98EF8FAD52F6BD32A9685324A74991FBEEEE942A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:98EF8FAD52F6BD32A9685324A74991FBEEEE942A
 ```bash
 magnet:?xt=urn:btih:98AD16965C5DC891E5B508F6EB97051B4C5701F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ Angry at the World - Angry at the World (2023) [FLAC 24/44.1|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:B134C3288574A9705ABA364D248973083081D954
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:B134C3288574A9705ABA364D248973083081D954
 magnet:?xt=urn:btih:4CC80294C1395C47727A89960E6BDF8AB3918EF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ InnoExtractor - это мощное приложение, которое пом�
 ```bash
 magnet:?xt=urn:btih:E35C499A7E560C89E3DA098380354E6E048A3385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ Fatal - Soul Burning Still - A Fatal Retrospective (2017) Compilation [FLAC|Loss
 magnet:?xt=urn:btih:B5C20B24C6CA5F831566225DC600779C29850F79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ magnet:?xt=urn:btih:B5C20B24C6CA5F831566225DC600779C29850F79
 ```bash
 magnet:?xt=urn:btih:565D35CB48ED1E6726D4B61A5D0D1B45D4F4727E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:565D35CB48ED1E6726D4B61A5D0D1B45D4F4727E
 ```bash
 magnet:?xt=urn:btih:4BA71B945E333A8FC14EC1D616C852649366D9CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +704,8 @@ October Falls - The Womb of Primordial Nature (2008) [FLAC|24/192|image + .cue|V
 ```bash
 magnet:?xt=urn:btih:25CAA81F498E82E7CDB3A121B3B5F1E98B9685C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

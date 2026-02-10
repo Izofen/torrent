@@ -1,27 +1,3 @@
-###  Публикация: 1008659   (812956) от 19.04.2016
-
-LostWinds: The Blossom Edition (2016) [En/Multi] (1.0) License TiNYiSO
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812956.jpg" />
-</div>
-
-
-###  Подробнее
-
-LostWinds 2: Winter of the Melodias является продолжением популярного приключенческого платформера LostWinds, приносящим с собой еще больше чудес и магии. Осваивайте новые возможности геймплея и управляйте сменой времен года, чтобы помочь Току и Энри найти пропавшую мать мальчика. Темная магия таится в сердце Summerfalls, и только Току может снять проклятие и положить (   Читать дальше...   )Тип издания: LicenseРазработчик: Frontier DevelopmentsЖанр: Arcade (Platform) / 3DЯзык озвучки: -/-Язык субтитров: Английский и другиеЯзык интерфейса: Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DAD7C21FD418AC80B69FCC68CA9085EB6D49F1B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008884   (812958) от 19.04.2016
 
 Survivor Squad: Gauntlets (2015) [En] (1.03) Repack ARMENIAC
@@ -42,6 +18,8 @@ Survivor Squad: Gauntlets (2015) [En] (1.03) Repack ARMENIAC
 ```bash
 magnet:?xt=urn:btih:85B88A43F13BF6539AA28AFED1E8B94C792CB2D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Outpost 13 - point-and-click экшен-приключение с элемент
 magnet:?xt=urn:btih:F03D8EC593EDD14EFD3B4C0E47939521A5BD1A46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ DmC - Devil May Cry (2013) [Ru/Multi] (1.0r3/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:7E8BC00EE94AAA1F058E8F39667D01DE19383CE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Remember Me (2013) [Ru/Multi] (1.0.2/dlc) Repack R.G. Механики
 magnet:?xt=urn:btih:DD0D6CE7183EA1B4CFF1F25CBA2BC250000DDAE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ The Surge (2017) [Ru/Multi] (Update 11/dlc) SteamRip R.G. Origins [Complete Edit
 ```bash
 magnet:?xt=urn:btih:E99DDF6067E02C220AAF76934DC484C793142B02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Poppy Playtime (2021) [Multi] (7543327) License DARKSiDERS
 magnet:?xt=urn:btih:FC0516F940D58A995DF21B5A85890A2CA1DDA31C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Gorogoa – изящное развитие жанра головоломок, �
 ```bash
 magnet:?xt=urn:btih:D2720A6FB2CE9BB5D60BB70DBFA3ECEB7CA8F14D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ This Land Is My Land (2021) [Ru/Multi] (0.0.9.18436) License CODEX
 magnet:?xt=urn:btih:43F50B04C1A15976356034A7E6153C73ABE39F33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Youtubers Life 2 (2021) [Ru/Multi] (1.2.1.3) License DOGE
 ```bash
 magnet:?xt=urn:btih:B79BDD50A25C8EDC2579A61F36361515E1BC3600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Okinawa Rush (2021) [Multi] (1.1) License GOG
 magnet:?xt=urn:btih:AC027DBE7D2C965747CCD4B03859AA4B481F2D9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Tandem: A Tale of Shadows - новое слово в жанре платформ
 ```bash
 magnet:?xt=urn:btih:87BAC0CD233B7D7C3228C48E1D36602728089EA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Evertried (2021) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:38780C138E41691FCA71FD0C92BCB2C5408A21FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ Hidden Motives: The Diamond Rush / Скрытые мотивы: Алмазная
 magnet:?xt=urn:btih:E34E780DBCA7D3AE4F6D92D679BCBC326FEE3DD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +356,8 @@ Dark City 6: Paris (2021) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:8547CC321481C7286B7ADAA64B4E08B084C83132
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +386,8 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.7/dlc) SteamRip R.G. Origins [Deluxe Ed
 magnet:?xt=urn:btih:CEDFACF62605DFD868BEA0383E43F290398DDFB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +411,8 @@ Blitzkrieg 2 Anthology / Антология Блицкриг 2 (2008) [Ru] (1.6.
 ```bash
 magnet:?xt=urn:btih:5DF83CADCE243A181323768017DBAFB2BFB6E95A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +438,8 @@ Fortify - необычная RTS c элементами тауэрдефа, в �
 magnet:?xt=urn:btih:13035162932FA90DEEF90E87792D71138C407D3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +463,8 @@ Taken (2015) [Ru/Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:89279160C0BE50CC4ADCA88C1188C3964986A91F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +492,8 @@ Armed Assault 2 / ArmA 2: Reinforcements / ArmA 2: Второй фронт [Ru] 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +517,8 @@ Doorways: The Underworld — это приключенческий хоррор 
 ```bash
 magnet:?xt=urn:btih:3B6B5725620CB4E9D41DF40010DB417C3E2A3494
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +544,8 @@ Fallen Legion — это напряженная ролевая игра, в ко
 magnet:?xt=urn:btih:0D38749BCB6C6157841EAD12D6742B3640E7BC2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +570,8 @@ Masquerada: Songs and Shadows (2016) [Ru/Multi] (1.22) License GOG
 magnet:?xt=urn:btih:7718185DB1E71D08AC0E50F4C46A83027081A6A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +595,8 @@ Castle. Never Judge a Book by Its Cover / Касл. Не судите книгу
 ```bash
 magnet:?xt=urn:btih:C4EB7656E60954E0E45B76373B8230C8AC982BC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +623,8 @@ Metro: Last Light / Метро 2033: Луч надежды (2013) [Ru/Multi] Lic
 magnet:?xt=urn:btih:D750C5B335393650A224DE0AA2C1C5041D7458CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +648,34 @@ Oriental Empires (2017) [Ru/Multi] (1.0.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:EAF7E78E58FA3A8CB0FD160099A52B810D6C0499
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197527   (815007) от 07.01.2018
+
+Dungeon Defenders (2011) [Multi] (8.3/dlc) License PLAZA [Collection Edition]
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Является смесью двух популярных жанров: экшен-РПГ и Tower Defense. В игре вы выступите в роли одного из четырех героев, чье призвание - защитить свой замок от орд противников. Однако вам предстоит не только расставлять защитные сооружения и ловушки, но и непосредственно принимать участие в боях. Также вы будете повышать характеристики персонажа, собирать различный (   Читать дальше...   )Тип издания: LicenseРазработчик: Trendy EntertainmentЖанр: RPG, Action, 3DЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6337B80B82459736F9E9A681D6AAF2C148288257
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

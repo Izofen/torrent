@@ -22,6 +22,8 @@ Karpov.courses, Александр Сахнов, Валерий Бабушкин
 magnet:?xt=urn:btih:C6B7EA7152167391640827B584BBAD04A0724077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ OF3D Academy, Ander Alencar | Masterviz (2023) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:B615B6196A93BB2A8B7E451CA98803A9A8AD4950
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Udemy, VFX 3D Pro | PolyModeling in Houdini (2019) WEB-DL [EN]
 magnet:?xt=urn:btih:B28DD983B99E932282A3B799532BFCA99157EEB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Stepik, Askarov Workshop | Рисунок карандашом - построе�
 magnet:?xt=urn:btih:0E68FDB4C33E6F6C01C688B4A1FBCE94CEBE3F84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ Udemy, Neyamul Hasan, M.Pharm | ChatGPT PROFIT: Complete Passive Income Supremac
 ```bash
 magnet:?xt=urn:btih:AF6E34560DEE07B8735CAD7C7C2A783FA1ADA39A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:AF6E34560DEE07B8735CAD7C7C2A783FA1ADA39A
 magnet:?xt=urn:btih:B986B61D68BA64C3D4E7FAC3427A1D3468D22476
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Gumroad, FlippedNormals, Tim Bergholz | Полное Руководство По
 ```bash
 magnet:?xt=urn:btih:67103C053ECFA5C9AE6A43BFA97EB2CC53F64F8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +220,8 @@ lectoroom, Елизавета Залегина | Натюрморт «Завтр
 magnet:?xt=urn:btih:202EB11161EF46A7390F2EC2BAD73AA6084320A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +246,8 @@ Slurm (Слёрм), Алексей Барабанов | Rabbit MQ (2022) WEB-DL 
 magnet:?xt=urn:btih:395E51565760DFFB39C3CC061CF91A2DD3E68E84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ Slurm (Слёрм), Кирилл Борисов | Jenkins: СI/CD для DevOps 
 ```bash
 magnet:?xt=urn:btih:D8506594F65FC69671E82782D0FEBE14EE0AFFCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ Slurm (Слёрм), Иван Чувашов | Оптимизация запро�
 ```bash
 magnet:?xt=urn:btih:65FB9F8A4B156EF26B89291EB15C7D6BCBFF2E0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +329,8 @@ magnet:?xt=urn:btih:65FB9F8A4B156EF26B89291EB15C7D6BCBFF2E0C
 magnet:?xt=urn:btih:9B58DDC0B5EB8A22A0C31EB1ECE7B63D61EAF9FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ Pandas Advanced. Составляем отчетность.(   Читать да
 magnet:?xt=urn:btih:003EDE5B5CB7907AC67B350AFA4F257A1572FFB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ itProger, Гоша Дударь | C++. Изучение языка C++, WinForms
 magnet:?xt=urn:btih:0EF94425A42401AE6C440F95A50B0B50EBCBB261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +413,8 @@ Merion Academy, Иван Тишин | Администрирование MS Wind
 ```bash
 magnet:?xt=urn:btih:72773560D96582070500834F7332A5D59E5670B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +443,8 @@ GeekBrains, Андрей Заярный и др. | C#. Базовый и про�
 magnet:?xt=urn:btih:3079CA627D6E7B1A63259AC797FE88F0AA70D38B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +472,8 @@ magnet:?xt=urn:btih:3079CA627D6E7B1A63259AC797FE88F0AA70D38B
 magnet:?xt=urn:btih:1268D4E76DE08FF6989D440192845F664BC2CB3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +498,8 @@ magnet:?xt=urn:btih:1268D4E76DE08FF6989D440192845F664BC2CB3E
 magnet:?xt=urn:btih:1F891C0F036CD5EA465A955F449339D331429320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +523,8 @@ Udemy, Dr. Ryan Ahmed и др. | Мастер-класс по современн
 ```bash
 magnet:?xt=urn:btih:2D02615C01FDDF570EBBD0C5E661CFC82E32EF61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +553,8 @@ magnet:?xt=urn:btih:2D02615C01FDDF570EBBD0C5E661CFC82E32EF61
 magnet:?xt=urn:btih:FF717DE5E5302AC7E7A711B3CDEA5075D38F5CDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +579,8 @@ Udemy, DevelopIntelligence Team | Node Микросервисы / Node Microserv
 magnet:?xt=urn:btih:F87A7DBD5C9E3A15B4CC496E73D07593436E0453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ Domestika, Gemma Roman | Adobe Photoshop for Illustration (2022) WEB-DL [ES / ES
 ```bash
 magnet:?xt=urn:btih:78C36987034B9F0E32EA2D0752DC5E5D7FFAD87A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +632,8 @@ Udemy, Кирилл Несмелов | Профессия Ui/Ux веб-диза�
 magnet:?xt=urn:btih:92BBE0ED0A8423D391C3FB7C85BAEBB3D996CCCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +657,8 @@ magnet:?xt=urn:btih:92BBE0ED0A8423D391C3FB7C85BAEBB3D996CCCC
 ```bash
 magnet:?xt=urn:btih:278BE4878CAA624A2B2618CC5122991CB6A54AA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +685,8 @@ Udemy, Timur Mashnin | SEO: Введение в поисковую оптими�
 magnet:?xt=urn:btih:7C86E86103A9B464C1354788EB0E8EE118BED7D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ GeekBrains, Фёдор Гребенников и др. | Создание сай
 ```bash
 magnet:?xt=urn:btih:47184DD5E8E06E63319B929771BB1AD992B50C5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

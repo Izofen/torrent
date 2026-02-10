@@ -1,3 +1,148 @@
+###  Публикация: 1283014   (741049) от 15.02.2019
+
+VA - Sanremo 2019 (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741049.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+01. Loredana Berte' - Cosa ti aspetti da me
+02. Ultimo - I tuoi particolari
+03. Patty Pravo & Briga - Un po' come nella vita(   Читать дальше...   )Жанр: PopПродолжительность: 01:24:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D05EEC26846030AAC8300C49ED013ADD886004F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283017   (741058) от 15.02.2019
+
+Robbie Williams - Under the Radar, Vol. 3 (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741058.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Impossible
+2. Gold
+3. Dirty Rotten
+4. Good People(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2742B9C5AA595456AA4E094D7E2498C83883CC7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283144   (741060) от 15.02.2019
+
+VA - Italo Disco Evolution (2018) [MP3|320 Kbps] <Italo-Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cy-Ro - It's All up to You (Extended Mix) 05:56
+02. Michelle Rose - Hard to Say I'm Sorry (Extended Mix) 06:11
+03. Ciao Ciao - The Magic of Sunshine (Extended Mix) 06:07
+04. Francis Cooper - Pretty Woman (Extended Mix) 05:50(   Читать дальше...   )Жанр: Italo-Disco, Hi-NRGПродолжительность: 01:00:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D36BED608878E4D3C2FE7F4BE342C55FF3F66F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283062   (741062) от 15.02.2019
+
+Del Faro - 2 Albums (1988, 2015) CD [MP3|320 Kbps] <Electronic, Italo-Disco, Europop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Piazza (3:51)
+02. Sara (4:27)
+03. A Chi (3:20)
+04. Volare (3:37)(   Читать дальше...   )Жанр: Electronic, Italo-Disco, EuropopПродолжительность: 02:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87FCAF208953FB5A2B87EC3804F6D83CEB07AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283154   (741168) от 15.02.2019
+
+Bodies Without Organs - Prototype (2004) [MP3|320 Kbps] <Pop, Synth-pop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_741168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sixteen Tons Of Hardware (3:28)
+02. Conquering America (3:20)
+03. Son Of A Gun (3:25)
+04. Open Door (Ballad Version) (3:29)(   Читать дальше...   )Жанр: Pop, Synth-pop, DiscoПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5D00D9FB9524B9CC82DCB3B8FD9D1B6D6819F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397140   (741340) от 19.07.2020
 
 VA - Holiday Body Workout Hits (2020) [MP3|320 Kbps] <Pop>
@@ -21,6 +166,8 @@ VA - Holiday Body Workout Hits (2020) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:558B43781E0A68BC308300EA857F75F5935AF140
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -50,6 +197,8 @@ magnet:?xt=urn:btih:558B43781E0A68BC308300EA857F75F5935AF140
 magnet:?xt=urn:btih:CCAD5ABA2416DB8E2BD04AB798F462898224ED81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +225,8 @@ CD1
 ```bash
 magnet:?xt=urn:btih:D51400D4EBCD4C4B3C22C07A477BD57423276639
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +255,8 @@ Azoto - 2 Albums (1978, 1980) [MP3|320 кб/с] <Electronic, Disco, Funk, Soul>
 magnet:?xt=urn:btih:F9C95D3CDB84C587894EE71C5B51FA01D278D441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +283,8 @@ Deana Carter (Дина Картер) - Father Christmas (2001) Rounder Records [
 ```bash
 magnet:?xt=urn:btih:1F26258B6ED3ED69B321B429F7BAC3DDE496B9BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +313,8 @@ Patricia Paay -  голландская поп исполнительница, �
 magnet:?xt=urn:btih:7EDCBB744B7F5F10068F0100760E0E2CB2F42E04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +341,8 @@ CD01:
 ```bash
 magnet:?xt=urn:btih:A3DD18C11191DCA79A84B1FD29E6A92B1F7CCC62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +371,8 @@ VA - Ultimate Workout Music Hits (2020) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:0B91C6A43B0F81B3F5305BE22845D3DAFD6EB182
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +399,8 @@ VA - Your Favorite Sing Along Ballads (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:8FF47FAF9674FEF88B86512993316B8F49C50F7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +429,8 @@ Kylie Minogue - Golden (2018) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:9D9185BB285687A31BB19BD8AB1BFF077703539F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +457,8 @@ Thomas Anders - History (2016) [FLAC|Lossless|tracks + .cue] <Pop, Electronic, E
 ```bash
 magnet:?xt=urn:btih:D7197B407106182A8CEF059C3AEDE0F456A01B9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +487,8 @@ Deana Carter (Дина Картер) - The Deana Carter Collection (2002) Capito
 magnet:?xt=urn:btih:E450A52678C1C371F7BA16F270DC41EEDFD45D0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +515,8 @@ Supermax - Best Of Remixes (2008) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Dis
 ```bash
 magnet:?xt=urn:btih:B7AE59D0A728A02361D2364C32D2F4C9D651A442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +545,8 @@ magnet:?xt=urn:btih:B7AE59D0A728A02361D2364C32D2F4C9D651A442
 magnet:?xt=urn:btih:9A11F6C02412725BAFB8E5860D22FEC61576FC5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +573,8 @@ VA - Erotic Dreams - Over 60 Minutes Of Music (1991) [FLAC|Lossless|image + .cue
 ```bash
 magnet:?xt=urn:btih:DAACD5106007DB9F6F6725A1339AD5E5385190C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +603,8 @@ The J.B.'s - Groove Machine (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Dis
 magnet:?xt=urn:btih:F2E45C42181132DBE772B7C058EE7FF31C604A11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +631,8 @@ Sony Music в последнем выпуске из серии  Pure... соб�
 ```bash
 magnet:?xt=urn:btih:59A30A1AC3DBC6F001DE92854D0142CE3AE1B72C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +661,8 @@ Tantra - The Collection (2013) 2CD [MP3|320 кб/с] <Electronic, Disco, Euro-Di
 magnet:?xt=urn:btih:70ADB6D75278AE3704092C79F701AA629BE35FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +689,8 @@ Kristian Leontiou - Some Day Soon (2004) [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:9279F6EBAD8777847DC8AD1B913249BD4C632510
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +719,8 @@ Disc 1:
 magnet:?xt=urn:btih:7519C599B532E53EB0F4A616F566079B5F26A187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,137 +748,7 @@ Amy Holland - 2 Albums (1980, 1983) Reissue CD [MP3|320 Kbps] <Soft Rock, Pop Ro
 magnet:?xt=urn:btih:68D6A235B9792F02E47AF7C06ADAF1641619C25C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 665484   (744215) от 06.06.2013
-
-Lenka - Shadows (2013) [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216992   (744626) от 03.04.2018
-
-VA - Q-Music Top 500 van de 90's Box (2013) 6CD [MP3|320 Kbps] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744626.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Топ-500» 90-х годов - это ежегодный список хитов, который транслируется на Vlaamse радиоканале Q-music в феврале. Список впервые транслировался в 2013 году.CD1:
-01. DJ Paul Elstak - Rainbow In The Sky
-02. Anouk - R U Kiddin' Me
-03. Whitney Houston - I Will Always Love You(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 07:20:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1116473E1EA9AF9C8C0BC46A2B6FE9C6903B2FF1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217229   (744945) от 03.04.2018
-
-Deana Carter (Дина Картер) - Did I Shave My Legs For This? (1995) Patriot Records [MP3|320 Kbps] <Country, Alternative Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дина Картер - американская кантри певица. Прорывом в карьере Дины Картер стал 1994 год. Тогда она приняла участие в благотворительном концерте «Farm Aid». Певица была замечена компанией «Capitol Records», после чего был подписан многообещающий контракт. В 2013 году у Дины Картер вышел последний диск, получивший название «Southern Way of Life». Так же певица недавно (   Читать дальше...   )01. Angel Without A Prayer 5:22
-02. Rita Valentine 3:30
-03. I've Loved Enough To Know 3:27
-04. I Can't Shake You 3:17(   Читать дальше...   )Жанр: Country, Alternative CountryПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1DBDF1A9BBBC8043399AEE6A539011E40C24199
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217232   (744949) от 03.04.2018
-
-Deana Carter (Дина Картер) - Did I Shave My Legs for This? (1996) Capitol Nashville [MP3|320 Kbps] <Country, Alternative Country>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_744949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дина Картер - американская кантри певица. Прорывом в карьере Дины Картер стал 1994 год. Тогда она приняла участие в благотворительном концерте «Farm Aid». Певица была замечена компанией «Capitol Records», после чего был подписан многообещающий контракт. В 2013 году у Дины Картер вышел последний диск, получивший название «Southern Way of Life». Так же певица недавно (   Читать дальше...   )01. I've Loved Enough To Know 3:24
-02. We Danced Anyway 3:23
-03. Count Me In 3:25
-04. If This Is Love 2:56(   Читать дальше...   )Жанр: Country, Alternative CountryПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69CCB7AD59B06A657C800CEE8C9F2778525B5DF3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020494   (745223) от 26.05.2016
-
-VA - Radio Italia Summer Hits (2 CD) (2015) [FLAC|Lossless|image + .cue] <Italo-Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_745223.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Eros Ramazzotti – Il Tempo Non Sente Ragioni 4:04
-02. Malika Ayane – Senza Fare Sul Serio 3:34(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB44E93F8EE604E868B0745977C144126B328A48
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

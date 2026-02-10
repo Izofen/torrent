@@ -22,6 +22,8 @@ Manfred Mann’s Earth Band - Watch (1978) Japanese Edition, Reissue, 2022, Bell
 magnet:?xt=urn:btih:BFF8E7C43519952C2CDC31C716D6EB60A4E28D6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Pink Floyd - The Endless River (Deluxe) (2014) [FLAC|24/96|WEB|Tracks]<Psychedel
 magnet:?xt=urn:btih:3E4F9579EC200FD46A23024540A20456FD3D4C4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Abyssphere - 4 Albums (2010-2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, 
 ```bash
 magnet:?xt=urn:btih:BD5ECB012F246BBF18CE7DEB65EBCACB5159ED0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +110,8 @@ Country: United Kingdom, SolikamskПродолжительность: 13 CD, 11:
 magnet:?xt=urn:btih:6BC3D3CF507DEDECA73D6ECB151F93C9C3C4C714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:6BC3D3CF507DEDECA73D6ECB151F93C9C3C4C714
 ```bash
 magnet:?xt=urn:btih:129B306C9A10D01F66EBC0F0C1EC8201A9BA5B8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +168,8 @@ House Of Lords - Saints and Sinners (2022) Japanese Edition [FLAC|Lossless|image
 magnet:?xt=urn:btih:10F0CAB845144AE3AC3A134E2E21D1D164D72D8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:10F0CAB845144AE3AC3A134E2E21D1D164D72D8D
 ```bash
 magnet:?xt=urn:btih:0A86D6E04CF8EB8EDDC66ACC162BE124E0DD5F3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +226,8 @@ Tsygun - 2 Albums (2017-2022) [FLAC|Lossless|WEB-DL|tracks] <Crust, Grindcore, B
 magnet:?xt=urn:btih:33CCB2369E70BBB06B28E9E3FDB4CE25B2DC1626
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +254,8 @@ B.O.W. (Brotherhood Of Wolves) - A Dump Of Twisted Destinies (2022) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:A06810596176D74BE367D81243F11EB25BF3F66B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +284,8 @@ magnet:?xt=urn:btih:A06810596176D74BE367D81243F11EB25BF3F66B
 magnet:?xt=urn:btih:616074B459777D36289052EE4953B3BC717B3202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +312,8 @@ Dynazty - Final Advent (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Har
 ```bash
 magnet:?xt=urn:btih:13CA5491F753E136BB87CCD3AF39804A42031BC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +342,8 @@ Compass - Theory of Tides (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, Pro
 magnet:?xt=urn:btih:671F0361DA574E1EA943AB36AB6A25CC5A88A4BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:671F0361DA574E1EA943AB36AB6A25CC5A88A4BE
 ```bash
 magnet:?xt=urn:btih:98E64502CCAB6F20E6C46214439E91B067B646C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +400,8 @@ magnet:?xt=urn:btih:98E64502CCAB6F20E6C46214439E91B067B646C7
 magnet:?xt=urn:btih:D6AC7F5DB75CF66F48A815871D3F91B8DA9295F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ Allen/Olzon - Army Of Dreamers (2022) [FLAC|Lossless|image + .cue] <Symphonic Me
 ```bash
 magnet:?xt=urn:btih:C1F14CB4630029BA789FA9DE44B843F04CFDC7E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +458,8 @@ Def Leppard - London To Vegas (2020) (4 CD) [OGG Vorbis|484 Kbps] <Rock, Hard Ro
 magnet:?xt=urn:btih:339783475BE2C91BF8CD2BB00A6541178AA79824
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +486,8 @@ magnet:?xt=urn:btih:339783475BE2C91BF8CD2BB00A6541178AA79824
 ```bash
 magnet:?xt=urn:btih:FAFE8006D23DD97CC8E2B81B197955651C78CE59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +516,8 @@ magnet:?xt=urn:btih:FAFE8006D23DD97CC8E2B81B197955651C78CE59
 magnet:?xt=urn:btih:9E52561F91751CAA9DA3852659B86FCFBC5C9740
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +544,8 @@ Jess Harnell - The Sound Of Your Voice (1995) Japanese Edition, Reissue, 1998, A
 ```bash
 magnet:?xt=urn:btih:9203416EA8F979C4402BD785E20552F738AD5F0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +574,8 @@ Rik был фронтменом популярной австралийской 
 magnet:?xt=urn:btih:1B8B8660D9B9907B7CD62787715A5C95694A562A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +602,8 @@ The Project Hate MCMXCIX - 9 Albums (2003-2021) [MP3|320 Kbps] <Industrial Death
 ```bash
 magnet:?xt=urn:btih:576206CD62489293CB366E8344A3059204AE741E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +632,8 @@ magnet:?xt=urn:btih:576206CD62489293CB366E8344A3059204AE741E
 magnet:?xt=urn:btih:8C5105BF7D9E9368AB84ABAD80004F9F881C772B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +661,8 @@ magnet:?xt=urn:btih:8C5105BF7D9E9368AB84ABAD80004F9F881C772B
 magnet:?xt=urn:btih:360123AAD45107CC6A6482567BDA0295A942C632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ magnet:?xt=urn:btih:360123AAD45107CC6A6482567BDA0295A942C632
 ```bash
 magnet:?xt=urn:btih:A6896211145F36C759598FD9756CF0BFD33FB73B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ I
 magnet:?xt=urn:btih:5AFF1603E7F6E4A33EBD09D02B9E6C4B573816A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Zdob Si Zdub - Белое вино / Красное вино (2010) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:23DF8FE3893658DFFE9225E0D0F5D40C4BA0B75D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

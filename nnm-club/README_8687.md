@@ -19,6 +19,8 @@ Sniper: Ghost Warrior 3 (2017) [Ru/Multi] (3.8.6/dlc) License GOG [Gold Edition]
 magnet:?xt=urn:btih:A889B28B551082EBBF192F26623F160E1A8BDA34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:A889B28B551082EBBF192F26623F160E1A8BDA34
 magnet:?xt=urn:btih:E30154A9952D25E67FF8CAF227C5F2B99E176321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:E30154A9952D25E67FF8CAF227C5F2B99E176321
 magnet:?xt=urn:btih:2E0CAAD4F68D64A47E4F9033761FDAB834EF199F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:2E0CAAD4F68D64A47E4F9033761FDAB834EF199F
 ```bash
 magnet:?xt=urn:btih:1FF8554D23D7F94019B3FB42B16930C4ED1546E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:1FF8554D23D7F94019B3FB42B16930C4ED1546E4
 magnet:?xt=urn:btih:89ED0501A08E37AB8982BC9B461BE2977C156063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:89ED0501A08E37AB8982BC9B461BE2977C156063
 magnet:?xt=urn:btih:7BB7E0A4ADC000DB18667C849BF70660AE4F0E3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:7BB7E0A4ADC000DB18667C849BF70660AE4F0E3F
 magnet:?xt=urn:btih:B72D3F249EA3FABAF8A46FBB83EADB006CEA5DFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Adobe Premier Pro 2020 14.0.0.572  [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FB69803CA0C0EF8AB7A21F6C35650CE364BF83DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ VA - Radio DFM Top D-Chart Ноябрь 2019 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:765106E8C31B9616651C25FA73B933B41281AB3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ Heavy Rain (2019) [Ru/Multi] (build 362) Repack xatab
 ```bash
 magnet:?xt=urn:btih:73A16B29F9EDC8ECAE990585C000C7FEADCA6106
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ VA - Нормас Пати (2019) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:3A88273C75925226DB07733AE45285F54B17B7CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:3A88273C75925226DB07733AE45285F54B17B7CF
 magnet:?xt=urn:btih:E771472F838A1B537E7CDCBEE982F85D424F7B61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Victoria 5.1 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:69304981CFBB6B242F6EE003292303AD88DF563C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ ru_windows_10_business_editions_version_1809_updated_nov_2019_x64_dvd_e11dc0f3 �
 magnet:?xt=urn:btih:2929015C95658ACE5FAF1AC8231DA7624BEA92FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:2929015C95658ACE5FAF1AC8231DA7624BEA92FA
 ```bash
 magnet:?xt=urn:btih:75C96BB870329ACF3EE90F0570C6E91903498D95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ COMSS Boot USB 2019.11 [Ru/En]
 magnet:?xt=urn:btih:AB0C4D28268EA8FAC99F8148F1E8CF7D550BC312
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:AB0C4D28268EA8FAC99F8148F1E8CF7D550BC312
 ```bash
 magnet:?xt=urn:btih:CA6F4AF643E9F877D4B0C294CE9543D78DD9C656
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ Gipsy Kings - Instrumental Best (1995) [FLAC|Lossless|image + .cue] <Flamenco, I
 magnet:?xt=urn:btih:83575BD258EB493AA39A895053676A41618C9519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ Hi-Fi News - журнал для ценителей высококачестве
 magnet:?xt=urn:btih:7E82F4C9BAC8C5FC32C097B6CA2D39CB1EF6C84E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:7E82F4C9BAC8C5FC32C097B6CA2D39CB1EF6C84E
 ```bash
 magnet:?xt=urn:btih:A3347A3EC6B90576ECAAC33FB2FE7029C9ADA956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:A3347A3EC6B90576ECAAC33FB2FE7029C9ADA956
 magnet:?xt=urn:btih:936D768E0275328E3CA3CFE3C464626310B742F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:936D768E0275328E3CA3CFE3C464626310B742F1
 ```bash
 magnet:?xt=urn:btih:EF84C6A0E0D54987ED11F129D0BA24A441B4EEE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ VA - 70's Monday Morning Lights (2017) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:06640D7A05E640EF4E6243645776AF829277B5B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:06640D7A05E640EF4E6243645776AF829277B5B1
 ```bash
 magnet:?xt=urn:btih:EE37033BD9537770CEAE504D0C41E9431142896F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:EE37033BD9537770CEAE504D0C41E9431142896F
 magnet:?xt=urn:btih:71F55A11A99184BAB6EE311F8C4703CAD14A77B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:71F55A11A99184BAB6EE311F8C4703CAD14A77B5
 ```bash
 magnet:?xt=urn:btih:8A017AD917F876177317AC77B4BC25C28DB3D97C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

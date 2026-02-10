@@ -22,6 +22,8 @@ The Kennedy Veil - Imperium (2017) [FLAC|Lossless|tracks + .cue] <Technical Brut
 magnet:?xt=urn:btih:BDCA3F8229310BB3AE1F3E32450F1CEB95AE108F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:BDCA3F8229310BB3AE1F3E32450F1CEB95AE108F
 ```bash
 magnet:?xt=urn:btih:C7D76303D4D77C16CE49C7217CA4F8E3F01218E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Spacechillers Vol. 2 (Сompiled by Maiia) (2019) Mystic Sound Records [FLAC
 magnet:?xt=urn:btih:6726B5FEC904B8E39E5AD4F9570BCD72C4C2A07A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ All India Radio, Josh Roydhouse - Lost Realm (2021) [AAC|~267 Kbps] <Downtempo, 
 magnet:?xt=urn:btih:795E29F5143B2AA0A87C5F2584F35B5081828EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:795E29F5143B2AA0A87C5F2584F35B5081828EF7
 ```bash
 magnet:?xt=urn:btih:4BF260255535472E5D34AA4A535C6E0024E530AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Zoc terminal - является довольно известным telnet/SSH/S
 magnet:?xt=urn:btih:F2BB45A8418384CE3B771CA915AA947847388134
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Imperator: Rome v.1.3.2 (2018) [Multi/Ru] [macOS Native game]
 ```bash
 magnet:?xt=urn:btih:20C84796C815FF10B9477388CDC217EB94DD6308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:20C84796C815FF10B9477388CDC217EB94DD6308
 magnet:?xt=urn:btih:F60CC747B8F779B2640829A1BCE2419B6D432E5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:F60CC747B8F779B2640829A1BCE2419B6D432E5C
 ```bash
 magnet:?xt=urn:btih:FE8F5A23393E10AA2D9D16947AF996A3634C50CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ VoltLab v5.1.4 Pro [Ru/En]
 magnet:?xt=urn:btih:FD867A24541E14D98D913D20D257170E82C79F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Posterino – программа, ориентированная на созда
 magnet:?xt=urn:btih:8136C6B1AFC9A68A88A9DB2373D874406A7C7CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Chimeras 10: The Price of Greed (2019) [En] (1.0) Unofficial [Collector's Editio
 ```bash
 magnet:?xt=urn:btih:67D5F543F748F49D6C82AC43406D4B994AB7D9E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ Levelup.Digital, Rosa Lee | Sculpting & Texturing Harley Quinn (2019) PCRec [EN,
 magnet:?xt=urn:btih:4DE95201C16E2458737DE39DA487B44D535D1F7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:4DE95201C16E2458737DE39DA487B44D535D1F7A
 ```bash
 magnet:?xt=urn:btih:5FE32617B3E9930FD38CC85E346776C5E5EDC227
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ The Kennedy Veil - Trinity of Falsehood (2014) [FLAC|Lossless|tracks + .cue] <Te
 magnet:?xt=urn:btih:4F57474654B1E1E6296C4C14B02F99913CCF99C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:4F57474654B1E1E6296C4C14B02F99913CCF99C5
 ```bash
 magnet:?xt=urn:btih:47D17FAB09C88D75FC70E9430D09A86AC0495036
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:47D17FAB09C88D75FC70E9430D09A86AC0495036
 ```bash
 magnet:?xt=urn:btih:B45E7665D215F8BCEF716C5CEE643F99C9471904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:B45E7665D215F8BCEF716C5CEE643F99C9471904
 magnet:?xt=urn:btih:248734540E04A1C67E4C7C0EA7CBADE5C02A9D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ Donemax DMmenu 1.4 [En]
 ```bash
 magnet:?xt=urn:btih:67B0AD679D71E4FC6BCBFA695C626EB65DA2422D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:67B0AD679D71E4FC6BCBFA695C626EB65DA2422D
 magnet:?xt=urn:btih:6E28672320D37189B505DCF9E872676D50445839
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ VA - Chillout King Ibiza: The Chill Wave (2020) [AAC|~329 Kbps] <Lounge, Chill O
 magnet:?xt=urn:btih:5D6C5A18967724D10D28DD4DA1777616ECB605F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ Pixelmator представляет собой мощный инструмент
 ```bash
 magnet:?xt=urn:btih:0B11A8B48C694E92DBF20E1B53066EE67847F8BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ LiteManager Free - бесплатная программа для удаленн
 ```bash
 magnet:?xt=urn:btih:8FD08D62E13D0F5F2AC94EB8EAEDCE90ECBA2906
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:8FD08D62E13D0F5F2AC94EB8EAEDCE90ECBA2906
 magnet:?xt=urn:btih:0104FE1AD1A75F08EC4DCE8D76C157194D59CB0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ MacClean360 - удобный и безопасный уборщик вашего
 ```bash
 magnet:?xt=urn:btih:3EB85327E480437C66A97B4831CA582949AFBF11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:3EB85327E480437C66A97B4831CA582949AFBF11
 ```bash
 magnet:?xt=urn:btih:DC8B545D1C2E65677F9C7031736A5819BBE1945D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

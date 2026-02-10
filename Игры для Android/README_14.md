@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:664D970C02A8D97223D11CA07F9F841E80A61C74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Overkill - широко известный и популярный тир от �
 magnet:?xt=urn:btih:12B605C363E16C0EE7C28F4C1B7E11B0873CF196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Chess Fusion- настольная игра шахматы на андроид, 
 ```bash
 magnet:?xt=urn:btih:141872E213F2C30A7B0B922E058EB36E82EEB2A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Isoland - в этой игре вы будете помогать главном
 magnet:?xt=urn:btih:04D50ACDB0AFBB7095F4EC106EDF71A94B74BE04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Prince of Persia Classic 2.0.2 [Ru]
 magnet:?xt=urn:btih:C84CADC1B81CCF793D87B4D486417DB544C9AD45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:C84CADC1B81CCF793D87B4D486417DB544C9AD45
 ```bash
 magnet:?xt=urn:btih:5D3010A513A37EFC8F47B745F6FD933243C5E7E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:5D3010A513A37EFC8F47B745F6FD933243C5E7E2
 magnet:?xt=urn:btih:98DF42614D9E49463104D0AB876E890171D34428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Pokemon GO — игра в жанре дополненной реальност�
 ```bash
 magnet:?xt=urn:btih:DB1C255538F5995E738505C4755842AB50CA3764
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Sky Force 2014 1.38  [Ru]
 ```bash
 magnet:?xt=urn:btih:A7501DA8F1A482A0BA60EC8D688F732A5FC376D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Summer Promotion Started! 30% Discount on all items in Lost Bubble!
 magnet:?xt=urn:btih:D273E1AE7AB157718D83FD19B23ACDA845BF9E3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:D273E1AE7AB157718D83FD19B23ACDA845BF9E3E
 magnet:?xt=urn:btih:F4604B3CF7BED38267EBA288CBD17CAC568DBCF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:F4604B3CF7BED38267EBA288CBD17CAC568DBCF3
 ```bash
 magnet:?xt=urn:btih:CA2F35DA842A9F63F18120248D04881E03633594
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Swamp Attack - защитите свое жилище-хижину от напа
 magnet:?xt=urn:btih:8BA64A3BF2B5B5FFBC2D93E6A0C0B97B1F565FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Call Of ModernWar:Warfare Duty – Великолепный экшн на наш
 magnet:?xt=urn:btih:9DE5F18A9E145F27C5A755C90536BDE079797CFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Major GUN - шутер-тир от первого лица в котором н�
 ```bash
 magnet:?xt=urn:btih:9269EFA4DB79BE83B6707BD4B6ECFD032DFA7E37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:9269EFA4DB79BE83B6707BD4B6ECFD032DFA7E37
 magnet:?xt=urn:btih:EA27194582F542BC60298BC8A55B64D171263CF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ World of Goo - увлекательная аркадная головоломк�
 ```bash
 magnet:?xt=urn:btih:331E2E6AAB444E1B5F74B2BAF8C6E2192D67E6BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Angry Birds 5.1.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:ED82ABD6A69F62D695898BC56FABB307E5917C66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:ED82ABD6A69F62D695898BC56FABB307E5917C66
 magnet:?xt=urn:btih:B2540A822D0E50340D3F19DB34B8B542A1B662B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Angry Birds устраивают торжества по поводу разли
 magnet:?xt=urn:btih:A673DE7FAA39CAAA2C5347B793DF891FF69FF128
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:A673DE7FAA39CAAA2C5347B793DF891FF69FF128
 ```bash
 magnet:?xt=urn:btih:75E4FE1A60DD2D4C23769AFD4BD78CB737B7B10D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:75E4FE1A60DD2D4C23769AFD4BD78CB737B7B10D
 magnet:?xt=urn:btih:E428874ED6541567D13A123442E17F273E68DC72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ Life Is Strange Anthology [Ru/En]
 ```bash
 magnet:?xt=urn:btih:CA9B96760E44E355BF7BB9EF608870C036627850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:CA9B96760E44E355BF7BB9EF608870C036627850
 magnet:?xt=urn:btih:683D2D81904CD8D63B3B0255289D4F24ED059317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ Half-Life HD+ADDONS+MODS [Ru]
 ```bash
 magnet:?xt=urn:btih:254131741EAE52E002710C2F6729FE7481615D0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +690,8 @@ DLC «Father's Promise» представляет:
 ```bash
 magnet:?xt=urn:btih:ED15B770E57186A12F5B7A531A3737A86C5EDAF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

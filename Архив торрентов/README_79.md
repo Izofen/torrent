@@ -19,6 +19,8 @@ Notification Dots v1.2.61 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:3D1C4519D3F7DE47E0D4993FC3F4DB6531F43E6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ GeoGebra — мультиплатформенная программное об�
 ```bash
 magnet:?xt=urn:btih:35D578BDD3A31F22B65AAA2DB59E059EF8C5A595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:FF18C1CF9DE05AB23913F0EA2C077C7AE980CAAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Sandboxie - yтилита для контроля за работой разли
 magnet:?xt=urn:btih:41740B20A9F753614FCE6E6719E5BE5E9A0DE083
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ EPIK - весьма и весьма функциональный фоторед�
 ```bash
 magnet:?xt=urn:btih:7FDB19068706BC8890586E35D5D1EE1E57B38131
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:7FDB19068706BC8890586E35D5D1EE1E57B38131
 magnet:?xt=urn:btih:A2307CD26E44D7D0B2417AB40D1522D2FFE09BA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Folder Player Pro - это ориентированный на каталоги 
 ```bash
 magnet:?xt=urn:btih:AB8A7AAC948771E4F52DF04BAEAE936AA473A58D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Vivaldi 7.3.3635.11 include standalone [Multi/Ru]
 magnet:?xt=urn:btih:86BA4DED16F2F1E47A36782AC55726A4DA8E3712
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ pdfFactory Pro - удобное приложение, представляюще
 ```bash
 magnet:?xt=urn:btih:641397648B6D5E648C1AD99D3E2A50D382D63B49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:9A944E683A4521C8DA50C03EDE2253D16EDD3EF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Oracle VM VirtualBox является многофункциональным и�
 ```bash
 magnet:?xt=urn:btih:151CF53A9BC8E9D92A95698DC77F4C78A21E8270
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ AIMP 5.40 Build 2673 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:988415CE72F6E36BAEB04A5210D8F7F05CAB5786
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ FinePrint - многофункциональный драйвер для при�
 ```bash
 magnet:?xt=urn:btih:6DAE1A1E14EBEDBF3424352FDC75E8D341630A48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ NokoPrint v5.21.08 Mod by derrin [Ru/Multi]
 magnet:?xt=urn:btih:308EAC220253D055EA7FA4E25823D020FD7233AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ KineMaster - Video Editor & Maker v7.6.9.34606.GP Mod by Shadow_Patcher [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:D53F42FB91FD54F94689138AA6270BD48D7D5FF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Wondershare UniConverter - простой в использовании виде
 magnet:?xt=urn:btih:232F2342F34D6B9B187D6E8E27838F8598953DB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Scaler 3 это уникальный и вдохновляющий MIDI-проц
 ```bash
 magnet:?xt=urn:btih:DB7B7D3DD27D7BAAF8FA3F2FBEE19BB5BD0C9301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Background Eraser (InShot Inc.) v2.252.76 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:EC06E0BF04F2F98798D9D31A4A543C166772FDCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ OCCT 14.0.2 Portable [En]
 ```bash
 magnet:?xt=urn:btih:29A9C37492633511DC4C9F704B71DF8757029709
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:29A9C37492633511DC4C9F704B71DF8757029709
 magnet:?xt=urn:btih:8F96530C501A08018C3A0DA824CAC173C839DDF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ AAF Optimus DCH Audio Driver Realtek Mod аудио драйвер — всё в
 ```bash
 magnet:?xt=urn:btih:EB38FDECCB167A693A3D3C92C50FC30ADCF9BB42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ UniFab - этот комплексный медиа-инструмент от DV
 ```bash
 magnet:?xt=urn:btih:24D403DAF30FE60C35FC23D62E19414EAC69AA82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Solid Explorer - это приложение для управления фай�
 magnet:?xt=urn:btih:996686298CD88C64AC98735E1EAEC084B3073B24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Battery Guru предоставляет продвинутые инструме�
 ```bash
 magnet:?xt=urn:btih:DD71273E143383DC7F54C52FBE55D1E17C9CBD03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Open Server Panel 6 — это обновлённая версия популя�
 magnet:?xt=urn:btih:2FC9384BF622F71166290323C0F07CC213EE4C97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ OCCT 14.0.1 Portable [En]
 ```bash
 magnet:?xt=urn:btih:9B3B1F46D232DA8431490091CFCBED30D75511CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

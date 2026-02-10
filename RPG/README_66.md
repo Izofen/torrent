@@ -19,6 +19,8 @@ Goliath (2016) [Ru/En] (1.04/dlc) Repack R.G. Механики
 magnet:?xt=urn:btih:08BC97AA7DCD7C55B9E991F496FB01DA3B8DD5EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ My Time At Portia (2019) [Ru/Multi] (2.0/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:63E2F2A2F82E53D6A966A24ABB8B2AF9F0623EA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Hammerting - это вертикальный симулятор гномьей �
 magnet:?xt=urn:btih:504902D98427C7465DB5979A100613543CB4ED07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Might and Magic: Clash of Heroes - является приквелом к Heroes
 ```bash
 magnet:?xt=urn:btih:CEE1BB906C5387CA431458F2D34C61A3530F03A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Another War / Другая Война (2002) [Ru] (2.48) Unofficial
 magnet:?xt=urn:btih:04F53B11F743DB7BA191FAF093662C8D89CA9110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Sanctuary RPG (2015) [En] (2.3.1) License GOG [Black Edition]
 ```bash
 magnet:?xt=urn:btih:ADBD0835A328E3DE697A087C58AED96FD363C71B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Caligula Effect: Overdose (2019) [En/Ja] (1.0) License CODEX
 magnet:?xt=urn:btih:5D22CDAE6C0F3F8B80D3D515711D9BF28ADD839A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Aethra's Chronicles (RePack) [En] 1994 | Pilotus (RG Games)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Demon's Rise - Lords of Chaos - пошаговая, тактическая RPG, 
 magnet:?xt=urn:btih:6C08FADCA14F875755FE44D06A1D889EA35902EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Quest Hunter (2019) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:BE101A12988E866C0956D9768268DA4C53908C3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ King's Bounty: Crossworlds / King's Bounty: Перекрестки миров (2
 ```bash
 magnet:?xt=urn:btih:694ABCF2BA9A18CF7FF975E6CF05FD50F80E5B3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ King's Bounty: Принцесса в доспехах* - Новая приклю
 magnet:?xt=urn:btih:738E6DA8CC77432B9BF2710D32EE3835911D69F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Joe Dever's: Lone Wolf HD Remastered (2014) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5C76793A032DF9B4E2F1183A3AAB4533C1696BA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Rebel Galaxy – это удалое приключение в открытом 
 magnet:?xt=urn:btih:D6BA28A832FDCBBD61FA68236523EF1DE921773D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Below – процедурно генерируемое приключение �
 ```bash
 magnet:?xt=urn:btih:594AF829884D7BD5B2C48D642B1098686F0FDEA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Elden Ring – фэнтезийное экшен-РПГ приключение, 
 magnet:?xt=urn:btih:32330D8FDF90C52A825AC36B898C1B3443EB677F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Fallout Tactics: Brotherhood of Steel [Ru] (L) 2001
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Ys VIII: Lacrimosa of DANA — это игра в жанре экшен с ро�
 magnet:?xt=urn:btih:C59654778CF983B8D76E82B1FAB6F60378F916BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ For The King — это стратегическая RPG, которая соч�
 ```bash
 magnet:?xt=urn:btih:60598E6B258DE4E8D14BE5083F1A052E6AE97B2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ For The King (2017) [Ru/Multi] (1.0.7724) License CODEX
 magnet:?xt=urn:btih:882D7075277FADA432D3247CDA16BC8E259C4CB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Ys VI: The Ark of Napishtim (2015) [En] (13.04.2018) License GOG
 ```bash
 magnet:?xt=urn:btih:D2F74A4C81616184F32FE6DC34EADD4FA37CB10E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ My Time At Portia (2018) [Ru/Multi] (2.0) License CODEX
 magnet:?xt=urn:btih:E545A089A39C5872BD39419039CCA41B903206D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ All Walls Must Fall – это изометрическая RPG с элемен�
 ```bash
 magnet:?xt=urn:btih:F655C7EE2C5CC3A95A0005881704ACC4B4A8B4A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Hand of Fate 2 — это «ползание по подземельям» в с
 magnet:?xt=urn:btih:6AD9B779E356E3F2BB2669E18C553D7820C3B948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Monark (2022) [Multi] (1.00/dlc) License CODEX
 magnet:?xt=urn:btih:D719C6EB39B6FABBF7042103ABACFAFD72C386A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Kenshi — революционная ролевая «песочница», в 
 ```bash
 magnet:?xt=urn:btih:8C36721CAADE790AD3181F384094827938D1D0B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

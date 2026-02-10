@@ -19,6 +19,8 @@ Farming Simulator 25 (2024) [En] (1.2.1.0) Scene Rune
 magnet:?xt=urn:btih:6A379D5206E22099BEF47A4B17CB4F19C25F0A36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:6A379D5206E22099BEF47A4B17CB4F19C25F0A36
 ```bash
 magnet:?xt=urn:btih:8B56F688F7AC3F15B78C273A1724B4F9FF1507BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:8B56F688F7AC3F15B78C273A1724B4F9FF1507BE
 magnet:?xt=urn:btih:A0ACDA4C45A9769EA8510DF1C449B43209A0D18F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:A0ACDA4C45A9769EA8510DF1C449B43209A0D18F
 ```bash
 magnet:?xt=urn:btih:8C11A8483BAFD929662BA657DF6A49B3A31D2FD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:8C11A8483BAFD929662BA657DF6A49B3A31D2FD6
 magnet:?xt=urn:btih:632320B81633DB86FBAAD365630B73C4EA65FA0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Aiseesoft Screen Recorder 3.0.92 RePack (& Portable) by elchupacabra (x64) [Mult
 ```bash
 magnet:?xt=urn:btih:0BF655B2373BDEE514026F28BE8D6E81433B4911
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Wall World сочетает в себе несколько жанров. В эт
 magnet:?xt=urn:btih:1914C198556ECFB4B91714AD16938029E168666F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:1914C198556ECFB4B91714AD16938029E168666F
 ```bash
 magnet:?xt=urn:btih:6C92AB9765D33F89A1B7C663191E4734191D392D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:DCD0DD5938EA4EC7A97E29EC3F4262E06F112E11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:DCD0DD5938EA4EC7A97E29EC3F4262E06F112E11
 ```bash
 magnet:?xt=urn:btih:DC1E596DE0C9FB2E4224E5B5DF115CAC65405678
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ FileZilla Server представляет собой очень простой, 
 magnet:?xt=urn:btih:782AB7A89442DE18C7FA8F6748D371930FA8F17F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:782AB7A89442DE18C7FA8F6748D371930FA8F17F
 magnet:?xt=urn:btih:541A30ADE0CACF66B7F59FA68D9D3509448CE273
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ magnet:?xt=urn:btih:541A30ADE0CACF66B7F59FA68D9D3509448CE273
 ```bash
 magnet:?xt=urn:btih:0D40C8E45B8175C777A8C2CFA3C040FC6B89CB51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ VA - Melancholic Rock Blues (2024) [MP3|320 Kbps] <Rock, Blues>
 magnet:?xt=urn:btih:B591312800C51AE2C80B2534BC31B41EB2A06E35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ EssentialPIM - это отмеченное различными наградам
 ```bash
 magnet:?xt=urn:btih:C82AC0290AA4B3D2C005D5110DE09A81F8D6142E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Linkin Park - From Zero (2024) [MP3|~245 Kbps (V0)] <Alternative Rock>
 magnet:?xt=urn:btih:D822A2DFC54B18149A4F39A4F207B5B31C2C8CCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Joplin - это бесплатное приложение для создани�
 ```bash
 magnet:?xt=urn:btih:AC7BEE227C6BC353DBC222DECC3708712D34108B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Kreator — немецкая трэш-метал-группа, основанн�
 magnet:?xt=urn:btih:2E766A677B505A92D94E77AB6748E446F2DB29AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ VA - Warm Time Electro House (2024) [MP3|320 Kbps] <Electro, House>
 magnet:?xt=urn:btih:759BB99DC86797534C3B71AB24BC6E37027C64D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ The Elder Scrolls: Blades 1.31.0.3481802 (ARM64) [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:85115C6D264904DF1187E208EC0DF051F012E076
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:85115C6D264904DF1187E208EC0DF051F012E076
 magnet:?xt=urn:btih:FF1A8F1C98619361C1538E10B7C446A98DA635DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ Hello Neighbor 2 создана в мультяшном стиле, а вы ис
 ```bash
 magnet:?xt=urn:btih:D9652C0B124A59ABCCD1826D85E3F18A997CC8E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:D9652C0B124A59ABCCD1826D85E3F18A997CC8E6
 magnet:?xt=urn:btih:D31227A0E77778EA1EDD12F18F5350C60E398AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:D31227A0E77778EA1EDD12F18F5350C60E398AB8
 ```bash
 magnet:?xt=urn:btih:DAC39D86F669FDB0E00CB77D246038C8F4FAAE4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:DAC39D86F669FDB0E00CB77D246038C8F4FAAE4E
 magnet:?xt=urn:btih:BF888E820D82BE6DC83D20FB85CA4CFB0AA18C78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:BF888E820D82BE6DC83D20FB85CA4CFB0AA18C78
 ```bash
 magnet:?xt=urn:btih:5D715A473ED8FD685D967B9A4A977750399B53D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

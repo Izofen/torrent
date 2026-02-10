@@ -1,3 +1,29 @@
+###  Публикация: 1223674   (671236) от 06.05.2018
+
+Саят Хе | S-T-I-K-S. Дети подземелий (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_671236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никогда не знаешь, улыбнулась тебе судьба или показала угрожающий оскал, понять суть происходящего поможет лишь время. История о жизни небольшого жирного стаба, в котором появились чужаки из ниоткуда. Сначала странная брюзжащая тетка с ручным монстром, затем – тихий знахарь с подозрительной тетрадью. Обратный отсчет спокойной жизни начался. Ручные монстры, бесполезные (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 13:25:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E96E4D80B23538556CE779EF329032841AEC6EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223782   (671308) от 06.05.2018
 
 Грег Бир | Корпус-3 (2018) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:9E430BA07457D8B84DEE82B4F54FBA2624758FF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:9E430BA07457D8B84DEE82B4F54FBA2624758FF7
 magnet:?xt=urn:btih:BE78D4EE28F199A2A03D9EF798F2A4B7977F2A1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:BE78D4EE28F199A2A03D9EF798F2A4B7977F2A1E
 magnet:?xt=urn:btih:2C0A3C8B7106ABDB247948CB75F4D9F8221AAA2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:2C0A3C8B7106ABDB247948CB75F4D9F8221AAA2D
 ```bash
 magnet:?xt=urn:btih:12DA893F30AF7D7E08FA6E10D92A84B11357CCDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:12DA893F30AF7D7E08FA6E10D92A84B11357CCDD
 magnet:?xt=urn:btih:46DA9799490DC736A1F4CD0370B49F9BE97D8D28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:46DA9799490DC736A1F4CD0370B49F9BE97D8D28
 ```bash
 magnet:?xt=urn:btih:00142AD75B6AE1AA20A7722F5237CE9F1DC847D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:00142AD75B6AE1AA20A7722F5237CE9F1DC847D9
 magnet:?xt=urn:btih:A5713AE31DD6495AAA077BF1C4E58FCEF7BF25B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:A5713AE31DD6495AAA077BF1C4E58FCEF7BF25B4
 magnet:?xt=urn:btih:530A6AFAE15221025EF496BC3D57787335D4C848
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:530A6AFAE15221025EF496BC3D57787335D4C848
 magnet:?xt=urn:btih:9C4A5012B2944AA9AE5CBFE43D38657DA65B1EE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:9C4A5012B2944AA9AE5CBFE43D38657DA65B1EE4
 ```bash
 magnet:?xt=urn:btih:0B262482CC49B621363167F1AE97B7C9A290E3F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:0B262482CC49B621363167F1AE97B7C9A290E3F6
 magnet:?xt=urn:btih:13A67FAE4CF7F9FD2103816B6A51D32B2C515DC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:13A67FAE4CF7F9FD2103816B6A51D32B2C515DC1
 magnet:?xt=urn:btih:DB7A787863523BD54DC9A8455659538B4EAB7B02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:DB7A787863523BD54DC9A8455659538B4EAB7B02
 ```bash
 magnet:?xt=urn:btih:B90CB61B52F984311356FA3C53B2C50C6BC0F303
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:B90CB61B52F984311356FA3C53B2C50C6BC0F303
 magnet:?xt=urn:btih:E6F953EB23A5D82A2ADC7A2032A32AE3F6D1D0C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:E6F953EB23A5D82A2ADC7A2032A32AE3F6D1D0C7
 ```bash
 magnet:?xt=urn:btih:3C912D71E2F9368231CC6FD92084ECCEBD7DF700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:3C912D71E2F9368231CC6FD92084ECCEBD7DF700
 magnet:?xt=urn:btih:4A155F6D487E488586D75E4AE64094E52551F755
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:4A155F6D487E488586D75E4AE64094E52551F755
 ```bash
 magnet:?xt=urn:btih:594AD2D0385B9B882193BC21739A9AC889499528
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:594AD2D0385B9B882193BC21739A9AC889499528
 magnet:?xt=urn:btih:BC58C00E6B586B7F583CE9D0A01071570828459E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:BC58C00E6B586B7F583CE9D0A01071570828459E
 magnet:?xt=urn:btih:F69DDA1426479E31F47F7EDA8CD41F3FC302C2BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:F69DDA1426479E31F47F7EDA8CD41F3FC302C2BE
 ```bash
 magnet:?xt=urn:btih:F5C8AC8D69CB48AC563E6530DCAABD353AA3B3C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:F5C8AC8D69CB48AC563E6530DCAABD353AA3B3C9
 magnet:?xt=urn:btih:318A22FEB6ED63FE21852899D888EC11F19C20C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:318A22FEB6ED63FE21852899D888EC11F19C20C4
 magnet:?xt=urn:btih:0DB26108688561F41F0A71DD31ECA2322E08C3C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:0DB26108688561F41F0A71DD31ECA2322E08C3C4
 ```bash
 magnet:?xt=urn:btih:0E117B6EE64CD59D5E1DB859FF141A5D13FAC7F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:0E117B6EE64CD59D5E1DB859FF141A5D13FAC7F5
 magnet:?xt=urn:btih:1AD225ABB6D4F74D74ABFD3091D0896DC08BCAB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:1AD225ABB6D4F74D74ABFD3091D0896DC08BCAB1
 magnet:?xt=urn:btih:B5A56EED4EFCBCA7DD6C2CD81B21DCA4CB75D4F6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536571   (674982) от 12.03.2022
-
-Борис Штерн | Феникс Сапиенс (2021) [MP3, Кирилл Головин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга повествует о вымышленном будущем – вплоть до очередного ледникового периода. С некоторой натяжкой ее можно назвать научно-фантастической при том, что собственно фантастики в ней не так много. Формально книга относится к жанру «постапокалипсис», или просто постап. Благополучная цивилизация, разомлевшая в комфорте, созданном предыдущими поколениями, в одночасье (   Читать дальше...   )Жанр: Фантастика, ПостапокалипсисПродолжительность: 10:56:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4425098D65D15BDEA8022D09DB3BC4DDEB18F271
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

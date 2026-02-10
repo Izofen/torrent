@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:F8E0F97966C18A8FB2B836CA7E582370C9A2C082
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:F8E0F97966C18A8FB2B836CA7E582370C9A2C082
 magnet:?xt=urn:btih:2E79469D419A7CF245B89A9FEFC37CD26D243E66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:2E79469D419A7CF245B89A9FEFC37CD26D243E66
 ```bash
 magnet:?xt=urn:btih:B50CB43C501B9BAC8969797D2AE6934C55589069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:B50CB43C501B9BAC8969797D2AE6934C55589069
 magnet:?xt=urn:btih:8DA871A0B610F6D26AB9B16564EF3035414FBA62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:8DA871A0B610F6D26AB9B16564EF3035414FBA62
 magnet:?xt=urn:btih:7F3A8808278ED24222442C91C53A77CBB34CBD60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:7F3A8808278ED24222442C91C53A77CBB34CBD60
 magnet:?xt=urn:btih:C85499A3B7FC51E7CB4A6306D912788FFBACBEF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:C85499A3B7FC51E7CB4A6306D912788FFBACBEF3
 ```bash
 magnet:?xt=urn:btih:52B0A1ACCBCCE16B361D49523DF733273BC3EC28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:52B0A1ACCBCCE16B361D49523DF733273BC3EC28
 magnet:?xt=urn:btih:0BEEFE3D416768F367C66DDD496970B576E62674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:0BEEFE3D416768F367C66DDD496970B576E62674
 ```bash
 magnet:?xt=urn:btih:210B9676D2BD5152B6FEEC8DBC569F91A51C5375
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:210B9676D2BD5152B6FEEC8DBC569F91A51C5375
 magnet:?xt=urn:btih:CE57BDF51608276E489DCE668262AB0A1850648D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:CE57BDF51608276E489DCE668262AB0A1850648D
 ```bash
 magnet:?xt=urn:btih:E07E26C53CA4AB269D64CF81FB3AD33524636384
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:E07E26C53CA4AB269D64CF81FB3AD33524636384
 magnet:?xt=urn:btih:CBD1484C134BFAA05D1C813A1FC466F0016C6A02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:CBD1484C134BFAA05D1C813A1FC466F0016C6A02
 ```bash
 magnet:?xt=urn:btih:6D0AB4D471D878BA0BC82B287BAF8CC39FF60640
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:6D0AB4D471D878BA0BC82B287BAF8CC39FF60640
 magnet:?xt=urn:btih:C57D6FED52DB6E44D842E5EE92937FF36C334FDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:C57D6FED52DB6E44D842E5EE92937FF36C334FDA
 magnet:?xt=urn:btih:C41A2F8D300D04007FECD804CB8B30E93C8FCCDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:C41A2F8D300D04007FECD804CB8B30E93C8FCCDB
 ```bash
 magnet:?xt=urn:btih:8E1E5BE8728304CEBBC4CBD75EAA7DD32E0AAF9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:8E1E5BE8728304CEBBC4CBD75EAA7DD32E0AAF9B
 magnet:?xt=urn:btih:2A3F3653C19D2B6999637E4D7B2C4C949A10DB2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:2A3F3653C19D2B6999637E4D7B2C4C949A10DB2A
 ```bash
 magnet:?xt=urn:btih:C7CE3244EBDAA99BEF9D2FDB82E1CEC7F733CC55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,34 @@ magnet:?xt=urn:btih:C7CE3244EBDAA99BEF9D2FDB82E1CEC7F733CC55
 magnet:?xt=urn:btih:83EF44E493DA3A3D299F7EEE6159CFF483E73071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581497   (338045) от 27.11.2012
+
+Юри Куускемаа | Кадриорг. Дворцово-парковый ансамбль XVIII века [1985] [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_338045.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Петр Великий, будучи в Ревеле, изволил быть на загородном дворе, и близ того же двора размеривали фундамент, где быть палатам и огороду; в присутствии был архитектор Микетти», - так записано в царской хронике 1718 года. Более двух с половиной столетий минуло с тех пор, а великолепный Кадриоргский дворец и парк продолжают радовать посетителей своей красотой, являясь примером успешного творческого сотрудничества художников и архитекторов разных национальностей.Формат: DJVU
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:83EF44E493DA3A3D299F7EEE6159CFF483E73071
 ```bash
 magnet:?xt=urn:btih:4D5FF1C26ADB5F5963B8ED8AF612E5A09AD31571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:4D5FF1C26ADB5F5963B8ED8AF612E5A09AD31571
 ```bash
 magnet:?xt=urn:btih:5126FD25820A02876E10E64F9D8480E7E7C038C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:5126FD25820A02876E10E64F9D8480E7E7C038C8
 magnet:?xt=urn:btih:B28CC2AE520A2416E73FB1A20194661F89EFF687
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:B28CC2AE520A2416E73FB1A20194661F89EFF687
 magnet:?xt=urn:btih:9A3CB7FDFE23186DEE1D2E4C112E04F313F6A62D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:9A3CB7FDFE23186DEE1D2E4C112E04F313F6A62D
 ```bash
 magnet:?xt=urn:btih:44A4B1366E766DAD2BBD20664FB7B359FF2910B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,30 +688,7 @@ magnet:?xt=urn:btih:44A4B1366E766DAD2BBD20664FB7B359FF2910B6
 magnet:?xt=urn:btih:9DDD759D737224161534AF64D341D2399BE54991
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074266   (338431) от 19.11.2016
-
-Г.В. Конюшков и др. | Специальные методы сварки плавлением в электронике (2017) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_338431.jpg" />
-</div>
-
-
-###  Подробнее
-
-В учебном пособии рассмотрены особенности сварных соединений в электронной технике с помощью основных способов сварки плавлением: электрической дугой с ее разновидностями, электронно-лучевой, лазерной и газовой, а также теоретические основы этих методов сварки. Даны краткие рекомендации по выбору параметров режимов.
-Для студентов бакалавриата, обучающихся по направлению (   Читать дальше...   )Жанр: Электроника, сваркаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40DDBD53BA76AC55F181DCE37B386BAD47EFBDD0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

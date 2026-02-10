@@ -22,6 +22,8 @@ VA - The Orient Collective: Red Carpet (2024) [FLAC|Lossless|WEB-DL|tracks] <Wor
 magnet:?xt=urn:btih:0784070B69AEA5FAC2865C87AF9103FC45E15884
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:0784070B69AEA5FAC2865C87AF9103FC45E15884
 ```bash
 magnet:?xt=urn:btih:83159ECC59AFA6531EA1109BACC72FF3BAEC7D96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - The Orient Collective: Golden Sand (2024) [FLAC|Lossless|WEB-DL|tracks] <Wo
 magnet:?xt=urn:btih:93C3B433B52B9E44F5E6365A3423626D087E1D71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:93C3B433B52B9E44F5E6365A3423626D087E1D71
 ```bash
 magnet:?xt=urn:btih:5215F97D984B6666B25155E10D975A26A5377A8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Baran Yildiz - Bridging Worlds (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age, Wo
 magnet:?xt=urn:btih:BCB7F7F61080A997F08C44C970459B0ECC6E408D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ Combichrist - No Redemption (Official DMC Devil May Cry Soundtrack) (2013) [FLAC
 magnet:?xt=urn:btih:E506487F985029777EA8C5E09A68CDC61A5EB00A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ Asian Meditation - Meditationsmusik (2007) [WavPack|Lossless|image + .cue] <Rela
 ```bash
 magnet:?xt=urn:btih:39876765DE500BE78F02B629A0A12A3195134691
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +218,8 @@ Mark Ashley - Instrumentals Vol. 3 (2024) [MP3|320 Kbps] <Instrumental Pop>
 magnet:?xt=urn:btih:F7F9B55CE126B27ECD19BA6FEC06F5DD1D74659C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +246,8 @@ Mark Ashley - Instrumentals Vol. 2 (2024) [MP3|320 Kbps] <Instrumental Pop>
 ```bash
 magnet:?xt=urn:btih:9942F2D9C91A584A05F6BCDF6B2C378D82C02815
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -258,6 +276,8 @@ Elyanna - WOLEDTO (2024) [MP3|320 Kbps] <World, Arabic, R&B>
 magnet:?xt=urn:btih:01C61B4F7B790846A18C1DBE245093B3737E48D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +304,8 @@ El Mental - Стакан наполовину дичь, Часть 1-2 (2024) [F
 ```bash
 magnet:?xt=urn:btih:08B0C900CF92DC58C92668DC371AFE5652EE9D22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +334,8 @@ VA - Nomadica 2024 [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 magnet:?xt=urn:btih:6AD09ABE447896D9B65E5D806A2DA0214451CD84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +362,8 @@ Saxophone Dreamsound - Today's Top Hits on Saxophone (2022) 2CD [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:A384097BCEAE7DD1615530201BD3D1D2D1A5F19C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +392,8 @@ Kitaro - Warme-Cosmic Love (1985) [FLAC|Lossless|tracks + .cue] <New Age, Ambien
 magnet:?xt=urn:btih:9063C5E57EFCD1A6E398F8A38691186580CFDD80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +419,8 @@ VA - Tibetan Incantations: The Meditative Sound of Buddhist Chants (1998) [FLAC|
 ```bash
 magnet:?xt=urn:btih:3CD6BA2636B70AB129504B454E268CD206E8B4D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +449,8 @@ Spiritual Seasons - Medieval Time (2019) [FLAC|Lossless|image + .cue] <Folk>
 magnet:?xt=urn:btih:B176D60114CF901E5781B7A995CE97A20AFD27F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +477,8 @@ Spiritual Seasons - Villeman (2022) [FLAC|Lossless|image + .cue] <Folk>
 ```bash
 magnet:?xt=urn:btih:2A5CC89F6DA4C61CE5DA9006E5F58394A2E4989B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +507,8 @@ Spiritual Seasons - Metal Age (2017) [FLAC|Lossless|image + .cue] <Folk>
 magnet:?xt=urn:btih:9B01FCCEE2DA9014ECDF428EF6B95AD6A5DE34F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +535,8 @@ Kvitka Cisyk (Квітка Цісик, Kacey Cisyk) - Kvitka Two Colors (1989) [
 ```bash
 magnet:?xt=urn:btih:BB24290BD0807F6498328BC31084C1C46C02F14E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +565,8 @@ Kvitka Cisyk (Квітка Цісик, Kacey Cisyk) - Kvitka (1980) [FLAC|Lossle
 magnet:?xt=urn:btih:F7D5FAAD4D5AA61DEE6541E2C0703ABD25C025EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +593,8 @@ magnet:?xt=urn:btih:F7D5FAAD4D5AA61DEE6541E2C0703ABD25C025EF
 ```bash
 magnet:?xt=urn:btih:6CC9132FDCBB54C20492ADED48C7FC179BC7A1E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +623,8 @@ magnet:?xt=urn:btih:6CC9132FDCBB54C20492ADED48C7FC179BC7A1E8
 magnet:?xt=urn:btih:AC1C8D8C29B8D4B28C49AFC9A35F0392165F7809
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +651,8 @@ Johnny Whitehorse - Riders of the Healing Road (2009) [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:24918B763C369A44FB5D03D5C4F93CAFCD4B776F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +681,8 @@ Shamanic Chants - Forest Whispers Shamanic Journey (2024) [MP3|320 Kbps] <Native
 magnet:?xt=urn:btih:780E188EAAE5794922FE985649702E45A644791A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +710,8 @@ Syntheticsax - Silhouettes (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, In
 magnet:?xt=urn:btih:90888D30DB669067EA4A6D59073B1DFAECBD9A80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,6 +738,8 @@ VA - The Orient Collective: The Caravan (2023) [FLAC|Lossless|WEB-DL|tracks] <Wo
 ```bash
 magnet:?xt=urn:btih:9B8BAC9B36BD1963844A7820922EB504E79AEAE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Corruption 2029 (2020) [Ru/Multi] (1.03) Scene Tenoke
 magnet:?xt=urn:btih:9596DAE0F0F985E87DED119ADF579F8F7A3C46D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Don't Stare - это сюжетный стелс-платформер, в кот
 ```bash
 magnet:?xt=urn:btih:23AB8664CCCB5D347C56604204A80F2707663E0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Perennial Order - это 2D-игра в жанре растительного у
 magnet:?xt=urn:btih:337AA277D70938EB981614775D34FAB4B758C20B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Forklift Simulator (2024) [Ru/Multi] (1.0.6) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E3F5DC28F2DCF8E29B4ED9118DEB825E96E9E11A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ CODE VEIN (2019) [Ru/Multi] (1.53.61787/dlc) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:94EC4ECFF6E0246B0041A8A92297586891C081D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Shadow of the Ninja Reborn (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:2F43091306945E9945B58C0D0D3655B5DD788F53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ WARCANA (2024) [Multi] (15354714) Scene Tenoke
 magnet:?xt=urn:btih:F1902B35E36F5B0D47B57C836AA62DD84FE7BA31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Dungeons of Sundaria – ролевая кооперативная видеои�
 ```bash
 magnet:?xt=urn:btih:FFE3ED0513AC6F6ABF3599380F5721E3B8EA3427
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Selfloss (2024) [Ru/Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:FA6864D68D50DE768278708B70A5716D4F78D5F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Skoof Simulator / Симулятор Скуфа (2024) [Ru/En] (1.0) Scene Tenok
 ```bash
 magnet:?xt=urn:btih:A079F1EC11BA8EE28106F0C0E0C5772D98B1ABE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Three Kingdoms: The Last Warlord - двумерная пошаговая стр�
 magnet:?xt=urn:btih:2B835D80CA5B43B014980C7248FC50A8DBA5DA78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Punch Club 2: Fast Forward - это двухмерный экшен-файтин
 ```bash
 magnet:?xt=urn:btih:E0F3A174FB429639E4D089A9D2A7FE8995506BFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Chornobyl Liquidators - симулятор ликвидатора Чернобы
 magnet:?xt=urn:btih:DCD8B7849C7BE87674191D5F01E3338C50E4542F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Motel Manager Simulator предлагает игрокам встать на м
 ```bash
 magnet:?xt=urn:btih:CDAF6E5EE495762CBD5C935DE7819FEC670E2302
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Survival: Fountain of Youth (2024) [Ru/Multi] (1648/dlc) Scene Tenoke
 magnet:?xt=urn:btih:729D8D783F673A69497FC33B23300C09E6187787
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Corruption 2029 (2020) [Ru/Multi] (1.03) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:60446AEF1DA4D641788CF00AFCFA0EE7C343A548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Resident Evil 3 - полностью обновленный ремейк хор�
 magnet:?xt=urn:btih:9754CBDF17315A4ADA594E305C0EE412338A7941
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (Build 15521170/dlc) Repack F
 ```bash
 magnet:?xt=urn:btih:0D4164CB5C4345190DFF732BCA8664E7F9723868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Lone Fungus переносит пользователей в фэнтезийн�
 magnet:?xt=urn:btih:9D3900CEA4D36D033A8BEA0082C80EC0B947F641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Kamikaze Lassplanes - это визуальная новелла, в котор�
 ```bash
 magnet:?xt=urn:btih:8CD2C5767A77A63F7CC3A0004417F49D8CD72FDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Kamikaze Lassplanes - это визуальная новелла, в котор�
 magnet:?xt=urn:btih:F3C1821E8EC558E3AAF2B595CADE170A073DEEAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Why don't they laugh? (2024) [Ru/Multi] (1.08) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0CC944BB3CC6AF06CEBB609D61E4F97098E8AA26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ GUNDAM BREAKER 4 (2024) [Multi] (1.0/dlc) Repack FitGirl
 magnet:?xt=urn:btih:125D673FAC58A9AC4614E1C3387EEECFF37C598F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15473676/dlc) Repack DjDI [D
 ```bash
 magnet:?xt=urn:btih:96F89F2716D9EB79BE0143BB9FC8AA56A30A2EDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Sentinel Girls2: Snezhinka - это пиксель-арт игра, где юз�
 magnet:?xt=urn:btih:8DBE5C87D2AC99BED77A2549247C9567784604AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Sunset Hills - это нарисованная от руки игра-голов
 ```bash
 magnet:?xt=urn:btih:692F754DC5A9BE3D4BFA51EB846625A2EA19FF5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ iTubeGo 9.3.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:08A8E0E522C494C9FBBAD56A1F8E87B3A07F9214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ TrafficMonitor - портативная утилита с минималисти
 ```bash
 magnet:?xt=urn:btih:383A90C02F4A13442DAEC262633392D2A1589E60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:383A90C02F4A13442DAEC262633392D2A1589E60
 magnet:?xt=urn:btih:1325BF4E8157A6FE26AD36A56E684DCDCE80A205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ The Bat! – общепризнанная система обработки эл
 magnet:?xt=urn:btih:6A1BBCAAA576EE1DF6BF9A80555C2EC9D74A7A97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ YTD Video Downloader — простая в использовании прогр
 ```bash
 magnet:?xt=urn:btih:7D9FE1DF20155C83A0177B0485FF601D0B8DA7D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Nekoray – это программное обеспечение, которое
 magnet:?xt=urn:btih:6984BF2E8A229B99D48B9D335E397619D87B83A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ YT Saver Video Downloader & Converter 9.2.2 Portable by zeka.k [Multi/Ru]
 magnet:?xt=urn:btih:CE9BE1128DDB5B5CF5BC28E3160736EF07365059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Outline Client VPN 1.14.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1B282C309975B94CC952F2A07FAACE7FC1015CE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ ECH, Sing-box, V2ray, Xray, Vless, Vmess, Reality, TUIC, Hysteria, ShadowTLS, SS
 magnet:?xt=urn:btih:4610A5FD204F67013ACBBA78F2613CEDEFD21143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Download Master эффективно решает 3 главных пробле�
 ```bash
 magnet:?xt=urn:btih:021AD7A253320F78548D2634759CFB6F8FFD140D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ PingPlotter Pro – приложение, которое предоставля�
 magnet:?xt=urn:btih:168C8E0D16EDAC327925385C786F07A4E792E01D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:168C8E0D16EDAC327925385C786F07A4E792E01D
 ```bash
 magnet:?xt=urn:btih:CD616CB2C6159BCFC1EE40B53AC6DCBE49079A48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Mailbird - это простой, удобный и главное быстры�
 magnet:?xt=urn:btih:724E7D54745D52953AA0B10484B573558CBF97F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ DameWare Remote Support & DameWare Mini Remote Control 12.3.2.5 [En]
 ```bash
 magnet:?xt=urn:btih:025463E40E4CF6BC6A4DE8ACC19146686B946B2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Chromium – веб-браузер с открытым исходным кодо
 magnet:?xt=urn:btih:39B4366F97DDC65FF79FEFAED506C97E748CE0CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Vivaldi 7.6.3797.58 include standalone [Multi/Ru]
 magnet:?xt=urn:btih:AE088CC8F82E94DDCA1A4CD39C89EC5A0264B849
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:59B93C100E0373A8F88AA8AF43988101130FC295
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:5480DC498F078F67BC33D5CB05C778761FE0DDFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:5CABC303219BBB27C31E499A13716FF8350D0DBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:A32F1AB593DF1F29493AA53B107D47CA20472272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ WifiInfoView - небольшая бесплатная утилита, кото�
 ```bash
 magnet:?xt=urn:btih:4BABBCF94A8FE1A9A3FCE25A9300D9F7E648AE9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ AyuGram — кроссплатформенный кастомный клиент
 magnet:?xt=urn:btih:64E373574AF46CCB69BA20E20DA26C40C41D5197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:64E373574AF46CCB69BA20E20DA26C40C41D5197
 magnet:?xt=urn:btih:AB93825808EAED13F70E7D53B12DEB451736D48B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Bulk Image Downloader – это программа для загрузки из
 ```bash
 magnet:?xt=urn:btih:064B5F187C38877A2BC46DE33A70C0EF088850A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Viber - десктопная версия популярного мобильн�
 magnet:?xt=urn:btih:92E97D90FA5D0256142FDD060EB426C81975A9F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ SRWare Iron 126.0.6400.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:14842244CDD4E8FB9CA3B301232C36934C243594
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@ Fraps - предназначена для подсчета количества 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Fraps - предназначена для подсчета количества 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ SoftOrbits Photo Retoucher 1.0 [Multi/Rus] Portable by T_BAG
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ SoftOrbits Photo Retoucher 1.0 [Multi/Rus]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ SoftOrbits Photo Retoucher 1.0 [Multi/Rus]
 magnet:?xt=urn:btih:0917570D2DFD44734A6755403E00D3F5EE710EAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ MediaInfo - программа, которая предоставляет под
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ NOD32 Update Viewer 5.00.3 [Multi/Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +218,8 @@ Yes Solos - Members Albums Collection (2011) 6xSHM-CD Papersleeve Box Set / Arca
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ Yes Solos - Members Albums Collection (2011) 6xSHM-CD Papersleeve Box Set / Arca
 magnet:?xt=urn:btih:9CEE92DB6B6B12D530F88DC2B3FA0CE8069EAC85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:9CEE92DB6B6B12D530F88DC2B3FA0CE8069EAC85
 ```bash
 magnet:?xt=urn:btih:A1C0F51F537E6B2A2F46E86A930326D3E7418439
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +305,8 @@ magnet:?xt=urn:btih:A1C0F51F537E6B2A2F46E86A930326D3E7418439
 magnet:?xt=urn:btih:91E4AE5C8B33954F87EB73EB1252674B27435720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +332,8 @@ Nomen est omen переводится, как: "имя говорит само �
 magnet:?xt=urn:btih:E160EBD92BFAA55F38958E5A738362D0749BA79B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +357,8 @@ Easy CD-DA Extractor - один из самых универсальных па�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ Mirillis Action! - позволяет в режиме реального вре�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +421,8 @@ Composed and Produced by Jay Vee(   Читать дальше...   )Жанр: El
 magnet:?xt=urn:btih:B928445661612A8594CD6B1840222B711683E5F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Club Hits Of The 80'S (2004) [Box Set 3 CD] [FLAC|Lossless]<Pop, Electronic
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +486,8 @@ VA - Club Hits Of The 80'S (2004) [Box Set 3 CD] [FLAC|Lossless]<Pop, Electronic
 magnet:?xt=urn:btih:BD953A6D1DE499F741FB4B3F88260D1EEBC761FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +513,8 @@ KNOPPIX 7.0.1 Live System [x32, x86] (1xDVD)
 ```bash
 magnet:?xt=urn:btih:1284883AFDFFE32CEFED07A268AE6834F47DAE9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +542,8 @@ Arashi no Yoru ni: Himitsu no Tomodachi / Ночная буря [2012, TV, 1-3 �
 magnet:?xt=urn:btih:55015F43033E82A3962CBDA18E17DEDDE28911E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +567,8 @@ magnet:?xt=urn:btih:55015F43033E82A3962CBDA18E17DEDDE28911E9
 ```bash
 magnet:?xt=urn:btih:F4B09C142EFEF103149E4016CE85A80C802FEFED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +597,8 @@ Loquinervifectios (FC202) - Полностью сформированные зо
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +623,8 @@ Zentimo xStorage Manager - это менеджер USB устройств, он 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +648,8 @@ Zentimo xStorage Manager - это менеджер USB устройств, он 
 ```bash
 magnet:?xt=urn:btih:5C33D74117572A8722AEE131FAF51312D8EBB927
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +684,8 @@ VA - Grease (1991) [APE|Lossless]<OST/Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +712,8 @@ VA - Grease (1991) [APE|Lossless]<OST/Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +737,8 @@ VA - Grease (1991) [APE|Lossless]<OST/Rock>
 ```bash
 magnet:?xt=urn:btih:03ADEF7DE44E35984E2609506610F0D386816C5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

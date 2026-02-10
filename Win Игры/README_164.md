@@ -19,6 +19,8 @@ Ogu and the Secret Forest - это двухмерная приключенчес
 magnet:?xt=urn:btih:E3E92E7B60B33B8350004B69653DF109176CA20E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Hannah’s Day (2024) [Ru/En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4DACD34E1FE9C20895017B62CB5FCE3AB42314BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Barrhell – в этой быстроразвивающейся и сложно�
 magnet:?xt=urn:btih:CA5FF466146299FA5991A77CAED58515A669D1F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Secrets of Magonia (2024) [En] (1.03) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4940F5DE812686D74C353C2CF9876496B8D0F93A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Abnormal1999:Sector 49 / Аномалия1999:Зона 49 (2024) [Ru/Multi] (1.0
 magnet:?xt=urn:btih:24B7E748286221F8D40627EE4D60FECC0C8ED505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Prey (2017) [Ru/Multi] (12742273/dlc) License GOG [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:5CA1BDDAE99ABE5F12B5A3B0E72247C21F65AD62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Nobody Wants to Die с головой окунает вас в Нью-Йорк �
 magnet:?xt=urn:btih:8729F48EBC860C4EE20554ADD5EDB9FED43E215F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Dystobel – что может быть лучше сочетания класс
 ```bash
 magnet:?xt=urn:btih:C0834D65E7C265BBABB91D8B981BCEAEC942D618
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Bo: Path of the Teal Lotus - яркий платформер, предлагаю
 magnet:?xt=urn:btih:13B6A4392685F42A26CCF92EE55C82C09D4F896C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Director Simulator (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:530CD3628063569E34198CB10F7E3D691575A0D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Ruzar - The Dark Stones расширяет основы подземелий, з
 magnet:?xt=urn:btih:AF4B24ACD47D98A99C384FCC14927ACEB7B41E87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Ruzar - The Life Stone - ролевой данжен-кроулер, в кото
 ```bash
 magnet:?xt=urn:btih:A3749F3FFF58C14F298AB04F138DB50EFC94A3C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Conscript (2024) [Ru/Multi] (1.0.0.2/dlc) Repack Other s
 magnet:?xt=urn:btih:E3E6180EC3E0A366FA41EE9600832E972A4CBC1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ War for the Overworld (2015) [Ru/Multi] (2.1.1/dlc) Repack FitGirl [Ultimate Edi
 ```bash
 magnet:?xt=urn:btih:AB62C32FB312E046D979047440B3249525CF5435
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ State of Decay 2 - игра-антиутопия про выживание в о
 magnet:?xt=urn:btih:44CCE2836E60DB4A11F136F0F70002BE301B9171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Renovator: Origins представляет собой инди-хоррор
 ```bash
 magnet:?xt=urn:btih:0B9BF7322C92A75C48EF443471ECF4B3ACC99B50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ TROUBLESHOOTER: Abandoned Children (2020) [Ru/Multi] (20240719/dlc) Scene Tenoke
 magnet:?xt=urn:btih:B1FFE6BD34D23AEECC95CA841FBC147B369C9F6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Thaumaturge - изометрическая ролевая игра с глу
 ```bash
 magnet:?xt=urn:btih:E2D427BDED2CD944A5C544D175162C9863FB4E80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Aliens: Dark Descent (2023) [Ru/Multi] (98246/dlc) Scene Tenoke
 magnet:?xt=urn:btih:FC984E3DF23064467D2748A21CC23035A34F4991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Mystical Riddles 5: Haunted Portraits (2024) [Multi] (1.0) Unofficial [Collector
 ```bash
 magnet:?xt=urn:btih:69ECCE065AAB6F5BD3DC5C81B4C72649F5E45E1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ THE ORIGIN: Blind Maid - хоррор-выживастик от первого �
 magnet:?xt=urn:btih:FE26C954738B1DD7BF14EE9EC2229E83C2F6AB47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Downward - это живописная приключенческая игра �
 ```bash
 magnet:?xt=urn:btih:A8C7C5A56EBF9B1919807CBEFC0D90D0181C882D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Let's School - это уникальная градостроительная с
 magnet:?xt=urn:btih:C7BE96580A54AAB6AEF5DDCFE91270E9E4C10447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Totally Accurate Battle Simulator - сумасшедшая тактическа�
 ```bash
 magnet:?xt=urn:btih:57D88E28C96AA8A3F6D5ECD5038A1BAE8715BCBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Pinball FX - это не пыльный аркадный автомат ваше
 magnet:?xt=urn:btih:16EB5DC9E824E4EBD1B84018D770E8FF3436F13C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Monolith (2023) [Multi] (1.1.7) License GOG
 ```bash
 magnet:?xt=urn:btih:EAD223C4EE7E9BC9759BD404BB074922C364EBF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

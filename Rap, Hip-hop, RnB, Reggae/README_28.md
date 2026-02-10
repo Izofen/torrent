@@ -1,3 +1,32 @@
+###  Публикация: 1374498   (873156) от 10.04.2020
+
+zavet - Жилы (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_873156.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 (Продолжительность: 00:34:37):
+01. Зелёная змея [02:18]
+02. Мотоцикл [02:35]
+03. НКВД [02:27](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35FC3E21E3302CD4A4E65C6EF20C32E268C6CD69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 299780   (874056) от 25.02.2011
 
 Ноггано - Лучшие треки (2011) [MP3|320 kbps]<Рэп и Хип-Хоп>
@@ -27,6 +56,8 @@
 ```bash
 magnet:?xt=urn:btih:E15C620AB19D00BB57BFF906D00D30E91AC1D587
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -61,6 +92,8 @@ Toni Braxton - Playlist: The Very Best Of Toni Braxton (2008) [MP3|320 кб/с]<
 magnet:?xt=urn:btih:C964A6C1CCA9D15D2ADA4FC478B6CCC20056CDDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -87,6 +120,8 @@ magnet:?xt=urn:btih:C964A6C1CCA9D15D2ADA4FC478B6CCC20056CDDB
 ```bash
 magnet:?xt=urn:btih:A8B2D8FE001586DDCB254FD355BF9D1ACD804961
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +150,8 @@ VA - Chillhop Raw Cuts (2017) [FLAC|Lossless|Web-DL|tracks] <Chill Hop, Hip-Hop,
 magnet:?xt=urn:btih:91B7508CE495644108837E9121E1064F0F70F9A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +179,8 @@ Thundercat - It Is What It Is (2020) [FLAC|Lossless|Web-DL|tracks] <R'n'B, Funk,
 magnet:?xt=urn:btih:D4390BACF76336E8B916E11540969DBDF84C010A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +206,8 @@ magnet:?xt=urn:btih:D4390BACF76336E8B916E11540969DBDF84C010A
 ```bash
 magnet:?xt=urn:btih:8E2E4C96378370B44D44D5E8A93C7F9E5CD232E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +236,8 @@ INSTASAMKA - MAMACITA (2020) [MP3|320 Kbps] <Rap, Trap, Mumble>
 magnet:?xt=urn:btih:7F46A0C6015ABA5F456BFA7BEE1F3A1F8028E416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +263,8 @@ BvdLvd - BALLYMORY (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:CA995D9A4BC436A60B252DC370D2741943C4520B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +293,8 @@ Becko - Genesis (2020) [MP3|320 Kbps] <Rap, Rapcore, Nu Metal>
 magnet:?xt=urn:btih:211E75F1918A02B7213728B09F70997147B5D177
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +321,8 @@ AKTHESAVIOR & Leon Fanourakis - FLATBU$H ¥EN (2020) [MP3|320 Kbps] <Rap, Hip-Ho
 ```bash
 magnet:?xt=urn:btih:C296821FB54A31B19F090B5FA6AEA4EC761D008E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +351,8 @@ magnet:?xt=urn:btih:C296821FB54A31B19F090B5FA6AEA4EC761D008E
 magnet:?xt=urn:btih:FA46F3B8454FFC287112BED6ACAF8C097925F394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +379,8 @@ magnet:?xt=urn:btih:FA46F3B8454FFC287112BED6ACAF8C097925F394
 ```bash
 magnet:?xt=urn:btih:B9AAF80D7DD5191CCAA0E7B99DC8F8D3B89109AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +409,8 @@ magnet:?xt=urn:btih:B9AAF80D7DD5191CCAA0E7B99DC8F8D3B89109AD
 magnet:?xt=urn:btih:A36C191A5AC949309436C1CA68A9EC5535C044FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +437,8 @@ magnet:?xt=urn:btih:A36C191A5AC949309436C1CA68A9EC5535C044FA
 ```bash
 magnet:?xt=urn:btih:08FFB2B9702709D3FA6D0EE2776FB8BE33C46A27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +467,8 @@ Apollo Brown - Grandeur (2015) [FLAC|Lossless|tracks + .cue] <Hip Hop>
 magnet:?xt=urn:btih:DDE0E07217ADD9BB00BE6FE15E45824C7572E3A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +495,8 @@ magnet:?xt=urn:btih:DDE0E07217ADD9BB00BE6FE15E45824C7572E3A6
 ```bash
 magnet:?xt=urn:btih:1FF52E76393AE12F92F1CFBD58F630D37819C4CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +525,8 @@ Enemy Radio - Loud Is Not Enough (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
 magnet:?xt=urn:btih:F245AC270DC68B36729ECE4D30879E7024A2CC7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +554,8 @@ Dropout Kings - GlitchGang (2020) [MP3|320 Kbps] <Rap, Rapcore, Nu Metal>
 magnet:?xt=urn:btih:1B379A4057B98A04256629ADF79A14F0BB6AA580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +582,8 @@ A$AP Twelvyy - Before Noon (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:44D9361E1E54416D7D08878579362ECD27B3409A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +618,8 @@ Pharrell Williams - G I R L (2014) [FLAC|Lossless]<R&B, Funk>
 magnet:?xt=urn:btih:73220C6346F79D015CA67E8351BD34BCED1EDE92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +646,8 @@ Rag'n'Bone Man - Human (2017) Deluxe Edition [FLAC|Lossless|Web-DL|tracks] <R'n'
 ```bash
 magnet:?xt=urn:btih:978F1E41E357FBABEF29B654139E74F1CA8B241B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +676,8 @@ Joyner Lucas - ADHD (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:9B752B24F87BCA3C5D0FC9B313E3D25F98783946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +704,8 @@ Conway the Machine & The Alchemist - LULU (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:B697E55C780E4FA369D9DC821F32D690B7AD1427
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +734,8 @@ Jadakiss - Ignatius (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:FC9FAAB3664C92A73B2987F4331800354C72E751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,32 +763,7 @@ Slim Thug - THUG LIFE (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:7B783E0842C0696A8D0F38A04503EED07C6CC774
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371744   (888679) от 01.04.2020
-
-Jay Electronica - A Written Testimony (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_888679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Overwhelming Event [02:17]
-02. Ghost Of Soulja Slim [04:26]
-03. The Blinding (feat. Travis Scott) [02:48]
-04. The Neverending Story [04:21](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D49B3B9BD978C27BDBE6C27B5FD601D7748E5F2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

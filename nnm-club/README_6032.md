@@ -22,6 +22,8 @@ VA - Celtic Chill Out Lounge (2010) [FLAC|Lossless|image + .cue] <Chillout>
 magnet:?xt=urn:btih:EF449EA5B0FC3A365040B5CA25F35F8521BC93CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Space Runaway Ideon | Densetsu Kyojin Ideon | Космический бегле�
 ```bash
 magnet:?xt=urn:btih:96EDA7CBC178BB45AE87D298DA925454E8DFEF3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:96EDA7CBC178BB45AE87D298DA925454E8DFEF3F
 magnet:?xt=urn:btih:C5E6770D57D565F1573A237B3E8A6884D6AF5D47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:C5E6770D57D565F1573A237B3E8A6884D6AF5D47
 ```bash
 magnet:?xt=urn:btih:4BE2F39EC04FDD46A99CABAD56A1C5986BD922FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ DaisyDisk - утилита которая весьма необычным обр
 magnet:?xt=urn:btih:536DFD4FBDC023EE3B39568382B8152FF8462809
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:536DFD4FBDC023EE3B39568382B8152FF8462809
 ```bash
 magnet:?xt=urn:btih:5B3F034742402913F7C88DADE30520E024B6BA77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:5B3F034742402913F7C88DADE30520E024B6BA77
 magnet:?xt=urn:btih:2766A1A6182F1B753842EFA083A851406338C05A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:2766A1A6182F1B753842EFA083A851406338C05A
 magnet:?xt=urn:btih:6C2E5A299B53389CB2DCCD435BD11E40CAC76A4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:6C2E5A299B53389CB2DCCD435BD11E40CAC76A4B
 ```bash
 magnet:?xt=urn:btih:49E13100678D5AA812C6750715469D3D1D873F7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ QuickPanel — панель быстрого запуска приложений
 magnet:?xt=urn:btih:02DB00FD8C6A11EA2E6858FDC1C499A473D76DF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:02DB00FD8C6A11EA2E6858FDC1C499A473D76DF4
 magnet:?xt=urn:btih:6BE3F03C47D55668FFA6B9FA0219EF2CF033786E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 ```bash
 magnet:?xt=urn:btih:BBAF0415430D3E350775F7F18FD8BBAD18ADA1CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ C.C. Catch - Diamonds - Her Greatest Hits (1988) [OGG Vorbis|480 Kbps] <Electron
 magnet:?xt=urn:btih:DBF3C9796B3043EDF51E0FE78FA2A9561E35A77C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Yuusha ga Shinda! | The Legendary Hero is Dead! | Герой мёртв! [2023, 
 ```bash
 magnet:?xt=urn:btih:A284B4B2DEA31A11B2B66DD44EFA30729A7218CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ Blender - бесплатный редактор трехмерной графи�
 magnet:?xt=urn:btih:8DD31396729E1C82F08ECCF6BF245044C5104B84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:8DD31396729E1C82F08ECCF6BF245044C5104B84
 magnet:?xt=urn:btih:0E978AE0898D4C29FFCBFEDDB23772C878D40F2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ Dark City 5: Budapest / Мрачный город 5: Будапешт (2020) [Ru
 magnet:?xt=urn:btih:56BFA10F8EDF95C2C37862800710D80816DB0D1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:56BFA10F8EDF95C2C37862800710D80816DB0D1E
 ```bash
 magnet:?xt=urn:btih:4FAFBFA5FFB6FD7D6CAF26A7C7771C7815823604
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ Murya | Buspin Jieber - Discography 9 Releases (2011-2020) Touched Music, Rafton
 magnet:?xt=urn:btih:46E3D2F6034CEF5436A200611BC7F348AD7FAA80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:46E3D2F6034CEF5436A200611BC7F348AD7FAA80
 magnet:?xt=urn:btih:8261DDD4C8A83AA9B4D23D2A10811BDEB83EF02A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:8261DDD4C8A83AA9B4D23D2A10811BDEB83EF02A
 ```bash
 magnet:?xt=urn:btih:7E4A947136C8D26F5C65CF7B7E2839870F2B75F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:7E4A947136C8D26F5C65CF7B7E2839870F2B75F8
 magnet:?xt=urn:btih:36761B858F4539E6194CB74FD8E9DDF86E5E5832
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:36761B858F4539E6194CB74FD8E9DDF86E5E5832
 ```bash
 magnet:?xt=urn:btih:27B2756B978609F0343C58164758E5BBBE26EADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:27B2756B978609F0343C58164758E5BBBE26EADF
 magnet:?xt=urn:btih:3E76FB1AF373E4325CCC77C0DCE2740999FB7202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:CDFAF052AF909BB858DE98DD217DBBB3AAF38BA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +693,8 @@ Tineidae - Shadows (2014) Tympanik Audo [FLAC|24/44.1|WEB|Tracks]<IDM, Downtempo
 ```bash
 magnet:?xt=urn:btih:DFE69A4FE5B7FBD26716A0654ACC449D3C62929A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

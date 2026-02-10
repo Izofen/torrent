@@ -22,6 +22,8 @@ IconJar 1.0.6 [En]
 magnet:?xt=urn:btih:6BB5B2E24F2584E5413CD0E083AB0966C0EF00A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - Black Hole Trance Music 02-17 (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:0261EB22AF924D74FE1BB9C3D2AB61036677A8C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ One Commander V3 — это современный файловый менедж
 magnet:?xt=urn:btih:67E08B269A9E76E4D5414393FE7919C864FC877E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Freemake Video Converter - это бесплатное универсально�
 ```bash
 magnet:?xt=urn:btih:F3F26CBE688D722720BFEB9C816CE49BFB9E1F35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ doPDF — программа для преобразования докумен�
 magnet:?xt=urn:btih:E31CD98DBA762ADD6457346A7CB3B90614F49C84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ NetWorker - это приложение, которое удобно отобр�
 ```bash
 magnet:?xt=urn:btih:CBA594015FB01FE2D486F2903A802FE07B820CF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ PhotoLine - простая в обращении программа, предс�
 magnet:?xt=urn:btih:E40259A2CAED82C44E9ED62DA79A6188EE2E090F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Revo Uninstaller Pro 5.0.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D35110443CDC0F2A7EEC8F7647AC43A36B7B78FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ iA Writer 5.6.10 [Multi/Ru]
 magnet:?xt=urn:btih:D81ECAF927D8A6B84929682543FA54B5FE6C1F76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ Export for iTunes -  экспортируйте свои плейлисты и �
 ```bash
 magnet:?xt=urn:btih:B8BE4B1270C83FE2AE0F014736B23D20C2F12B63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ FinePrint - это многофункциональный драйвер для 
 magnet:?xt=urn:btih:8A193F4148FD197D109FE6485FC296F7C1D385E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ WonderPen - приложение для как для профессиональ
 ```bash
 magnet:?xt=urn:btih:AEA3038893819EBC0D67A5671DB1CAA4495469C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Magoshare Data Recovery - одно из самых мощных приложен
 magnet:?xt=urn:btih:212231C31A480C0130E05D670CA52E756998F550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:4047F3F26C62BDB6ADFEE51F34861D2B4D05E077
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ DxO PureRAW 2.1.1 build 1 RePack by KpoJIuK [Multi]
 magnet:?xt=urn:btih:ECB58ADA1BBCCF7FC4494A873780F6F561654A5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ Posterino – программа, ориентированная на созда
 ```bash
 magnet:?xt=urn:btih:3D87C6143ACE852E4F8B76041C04F33612DD5411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:3D87C6143ACE852E4F8B76041C04F33612DD5411
 magnet:?xt=urn:btih:0C099D671017921DA079BC77455442CABA6A422D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ Path Finder - один из лучших файловых менеджеров, 
 magnet:?xt=urn:btih:82540C38704AF12CC811438992EE03E3D072B18D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:821C902C929B8EEF851CEED1A0B0D52115C8BB17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ Marked 2 — универсальный превью-инструмент для
 magnet:?xt=urn:btih:0CD665D5CAEEF963986FBEDDD1455EBAE6B86AD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 ```bash
 magnet:?xt=urn:btih:DFAAAA3BE9D1BDDEC1DAED65BCDB46F2178FE671
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ Checksum Thing - это приложение строки меню, которо
 magnet:?xt=urn:btih:B48704CFF2AE0C599109A806D01FD78C54355189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:81C48A5AFBB1E14D1083F55967B0FFA5AD61A654
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ FSNotes - это менеджер текстовых заметок для macOS
 magnet:?xt=urn:btih:A05AF21F041D05480219422445793ED28318792B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ Camtasia for Mac — эффективное приложение для созд
 ```bash
 magnet:?xt=urn:btih:F299A86FEE67C559061C9338C061F117FC0FC5D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:F299A86FEE67C559061C9338C061F117FC0FC5D9
 ```bash
 magnet:?xt=urn:btih:3C5A2D8C590E3194419D691F22524529DCFAE83D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

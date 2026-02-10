@@ -19,6 +19,8 @@ NG: Миссия Сатурн (Внутри колец Сатурна) / Mission
 magnet:?xt=urn:btih:6E5ACBF1590FB5069FCFF378AF1C9A6F7C462A4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG: Похороны Тутанхамона / Burying King Tut (2009) HDTVRip [H
 ```bash
 magnet:?xt=urn:btih:43CFD77A07B5D22529DF7BCD17D819C5879951FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC. В краю муссонов: Экстравагантные изгои / W
 magnet:?xt=urn:btih:0C7CFF3710FBF3F8BFE3B0E77C7EAC2D3B0EB5ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG: Похороны Тутанхамона / Burying King Tut (2009) HDTVRip
 ```bash
 magnet:?xt=urn:btih:6BFFEC06A7F840512721B53B06285799D8B86B08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:6BFFEC06A7F840512721B53B06285799D8B86B08
 magnet:?xt=urn:btih:F2D72B4CF8A1723804A89573E5FFE24CBCCF9F14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NGW: Прекрасная Америка: Дикий Юго-Запад. Доли
 ```bash
 magnet:?xt=urn:btih:0A9FA15197950C2E715B87A804F77CE9E943873C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NGW: Дикая природа Шотландии: Высокогорье / Wild
 magnet:?xt=urn:btih:BA2112553566ADE21473990041DCF876C4D083FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NGW: Полчища акул / Shark Swarm (2017) HDTV [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:6C841E10EBFD6CDCA8B15BFB74D8CDF26E198EE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NGW: Анаконда. Королева змей / Anaconda. Queen of the serpen
 magnet:?xt=urn:btih:8788462FCA1276445251F3608D917DA393CE0A81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ NG: Женщина, воспитанная обезьянами / Woman Raised b
 ```bash
 magnet:?xt=urn:btih:74FC2CB7896C8F7F43F2593DA7B74C9D8ACE9C7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ BBC: Horizon. Таинственные сигналы из космическо�
 magnet:?xt=urn:btih:91141E884B917009721D9FBEA413E783DD29B046
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ NG. Загадки истории: Королева-девственница / H
 ```bash
 magnet:?xt=urn:btih:D6BAA418748758086B33F497847C07F525722C35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ BBC: Мир природы. В мире жуков / Natural World. Beetlemania 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ PBS Nova: Великая тайна математики / The Great Math Myster
 ```bash
 magnet:?xt=urn:btih:D40EF29DC0D3419400DD21430E4B3836F902BA45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Discovery: Миссия "Эверест" / Mission Everest [чч. 1, 2] (2007) S
 magnet:?xt=urn:btih:F9CA0C7C238841D6C89E15AC8402106DFA89C17E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ NGW: Удивительные слоны (Душа гиганта) / Soul of the
 ```bash
 magnet:?xt=urn:btih:22CE90DE22D95CF0C098034F8C316086749863C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:22CE90DE22D95CF0C098034F8C316086749863C0
 magnet:?xt=urn:btih:8740E7975EFCA964D47C473CC204350F7664E333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ DV: Радость победы / The Joy of Winning (2018) IPTVRip [H.264]
 ```bash
 magnet:?xt=urn:btih:D4444B1FDCB09DB8A22E2C8EAE3AFCF2069AF18E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:D4444B1FDCB09DB8A22E2C8EAE3AFCF2069AF18E
 magnet:?xt=urn:btih:6D65DB0638ACCE434BE55FBC248AD0AC377106FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ BBC: Сказочный замок короля Людвига II / The Fairytal
 ```bash
 magnet:?xt=urn:btih:F04D4AA496259E03981F9D67C41E0485E19830C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ BBC: Вся правда о вкусе / The Truth About Taste (2013) SATRip
 magnet:?xt=urn:btih:2B8DC4B6609F25CD084C759314429E51A9BC91E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ magnet:?xt=urn:btih:2B8DC4B6609F25CD084C759314429E51A9BC91E0
 ```bash
 magnet:?xt=urn:btih:56C64F3A878145D2E657992551B3D7396C333A00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ BBC: Бахус. Античный бог экстаза / Bacchus Uncovered: Anc
 magnet:?xt=urn:btih:53D42989C449DE6DCFC07663028C59230820BA1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ History Channel: Великая Марсианская война 1913-1917 / Th
 ```bash
 magnet:?xt=urn:btih:EB3DDB7EA0F7EDC76CE4BEE730F04B9B1A732872
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ BBC: Вся правда о вкусе / The Truth About Taste (2013) HDTVRip [H
 magnet:?xt=urn:btih:00ED7C3F3590FE4A88E87C9B50137F073004EDC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ NG: Осушение океана: Вторая мировая война / Drai
 ```bash
 magnet:?xt=urn:btih:3D19D0662183DE4FC8B24DA8EB93E3944F43F787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

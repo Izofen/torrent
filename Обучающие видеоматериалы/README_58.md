@@ -21,6 +21,8 @@ Udemy, Илья Фофанов, Валерий Павлов | Бэкенд ра�
 magnet:?xt=urn:btih:349FC2DB421285A4117797532D2B3B01953BCED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ kobezzza.channel, Андрей Кобец | Устройство компиля�
 magnet:?xt=urn:btih:333ABA7E4C7148110146DCECDEFF3A39F8FA0427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:333ABA7E4C7148110146DCECDEFF3A39F8FA0427
 ```bash
 magnet:?xt=urn:btih:2BA94F48D35F678C0618EDB99DB04C416A9D267F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:2BA94F48D35F678C0618EDB99DB04C416A9D267F
 magnet:?xt=urn:btih:C4F4D6F9C109344240404ED679FA4B0FA3F4C09A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:C4F4D6F9C109344240404ED679FA4B0FA3F4C09A
 magnet:?xt=urn:btih:B076520D092FC09A2553D4D4EB3C9D4204C9BEE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:B076520D092FC09A2553D4D4EB3C9D4204C9BEE2
 ```bash
 magnet:?xt=urn:btih:FE98B4005B9476BC0DF8434B0311CE1B880283C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ kobezzza.channel, Андрей Кобец | Интенсив «Рефлекси�
 magnet:?xt=urn:btih:7ED790854D0212D7558980749AF9FA5D1F2E7763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:7ED790854D0212D7558980749AF9FA5D1F2E7763
 ```bash
 magnet:?xt=urn:btih:F7B80318960F4BE3BBD41F894BEA449B8FEFEDF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Udemy, Joe "tripplejaz" Zavaletta | How to Design Comic Book Characters Course (
 ```bash
 magnet:?xt=urn:btih:04912FD185C4D600B8189A9645733E6317E24E17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ Revuer, Евгений Дюжакин | МК «Ретушь и работа с �
 magnet:?xt=urn:btih:52A6AA1007EBF5DA979E5C572F5CB6CEB3CB332C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ ProArt School, Майк Вазовский | Game Art иллюстрация (20
 magnet:?xt=urn:btih:A88198E522F412E56FDFD384C4C9035FAF1D68A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Alpina Digital, Артемий Анцупов | Канбан-метод. Как 
 ```bash
 magnet:?xt=urn:btih:7D6C9FF092C1BA048A5BB8DCEF5880FFB1241AC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ Kaplan School, Гунефа Матюшенкова | Техники скетчи
 magnet:?xt=urn:btih:1CAABF1FBE10F0E559B4B245FC89E5D1234F367A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:1CAABF1FBE10F0E559B4B245FC89E5D1234F367A
 magnet:?xt=urn:btih:51A42A8FF17F17ED5DCC5914833635278A9BEEF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ Learn Squared, Milan Nikolic | Creature Design (2018) WEB-DLRip [RU, EN]
 ```bash
 magnet:?xt=urn:btih:8A173E6D80DBC2D978EB2D2BE5AAA80BE8BCD5E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:8A173E6D80DBC2D978EB2D2BE5AAA80BE8BCD5E3
 magnet:?xt=urn:btih:21D1EC5AB9F7D93B8C32B1631820A51FC5622775
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ SOA Academy | Photorealism with Corona Renderer Online (2021) WEB-DL [AD] [EN]
 ```bash
 magnet:?xt=urn:btih:662524D1C4DCB3156124EE43FD1BF2DD8EAE3FD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:662524D1C4DCB3156124EE43FD1BF2DD8EAE3FD4
 magnet:?xt=urn:btih:43F3D3548E7955A55CAC9AA843619EC67D333DE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:43F3D3548E7955A55CAC9AA843619EC67D333DE6
 ```bash
 magnet:?xt=urn:btih:084556E01E340FE6B4DF5D1F7859072C61B52E3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ Contrse, Дарья Калугина | Левитация: еда в движе�
 magnet:?xt=urn:btih:525D03FE7B8F19B7FB23876BFD692C3FE46E52CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ Compositing Academy, Alex Hanneman | VFX Color Grading and Re-Lighting in Nuke �
 ```bash
 magnet:?xt=urn:btih:93E34BBB669EF2FCEC26802C6EA971C60CD9E78D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +602,8 @@ magnet:?xt=urn:btih:93E34BBB669EF2FCEC26802C6EA971C60CD9E78D
 magnet:?xt=urn:btih:6C300EA06997B702EEBE3CB0817B0B570019B080
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ Tania_govorit, Татьяна Шаврова | Полное собрание м�
 magnet:?xt=urn:btih:B8805FF9332CC30FD793E764FC65A563ADCA9632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:B8805FF9332CC30FD793E764FC65A563ADCA9632
 ```bash
 magnet:?xt=urn:btih:24EE2581505095871ED20E9B901AE8388D0BE397
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +685,8 @@ magnet:?xt=urn:btih:24EE2581505095871ED20E9B901AE8388D0BE397
 magnet:?xt=urn:btih:FB7F48F50CDE0276A3FF0CFEADF381B016425DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ magnet:?xt=urn:btih:FB7F48F50CDE0276A3FF0CFEADF381B016425DF8
 ```bash
 magnet:?xt=urn:btih:7E3F2DF8F11A49B4ED0961387A118E3628E83645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

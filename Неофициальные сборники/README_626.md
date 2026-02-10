@@ -1,3 +1,32 @@
+###  Публикация: 981482   (951739) от 01.02.2016
+
+VA - Exquisite Deephouse (2016) [MP3|320 кб/с] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_951739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chronogramm - Plexus
+02. Sixteenth Pulse - Crossing Thoughts
+03. Christian Hornbostel - Elective Affinities
+04. Self Explanatory - Voice Recognition(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF1EF57BCF229672BF1CB4FCD44B1135A56F433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089308   (951813) от 03.01.2017
 
 VA - DFM Top 50 (2016) итоговый (2016) [MP3|224-320 Kbps] <Dance, Club House, Electro House>
@@ -21,6 +50,8 @@ VA - DFM Top 50 (2016) итоговый (2016) [MP3|224-320 Kbps] <Dance, Club H
 ```bash
 magnet:?xt=urn:btih:43570023E40A2368F3B2427CCB396EB5A7C08CBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Золотые застольные хиты. Сборник № 8 (2016) [
 magnet:?xt=urn:btih:54DBEA2C9FF393DE7A32E3C282908270329279D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Dr. Metal Presents: Vol.9 (2016) [MP3|224 Kbps] <Heavy, Speed, Power Metal>
 ```bash
 magnet:?xt=urn:btih:668A4578BA3C4BE1865FEBEFC4DCBF9351302056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Зарубежные хиты экспресс. Версия № 2 (2016) [
 magnet:?xt=urn:btih:43D7167193D2FCC9B27FFF20841308DFE0379E4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Fun Disco House: Gross Funk Party (2017) [MP3|320 Kbps] <Nu Disco, Funky Ho
 ```bash
 magnet:?xt=urn:btih:314EA4B6E6DDFE7DBB86622EF015603A550BBB8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Empire Records - Chill Out 6 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downt
 magnet:?xt=urn:btih:31DAAC3FFEBF00BBD9E1D68D333E544379F599CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Empire Records - Chill Out 7 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downt
 ```bash
 magnet:?xt=urn:btih:C99D06CC7B3D0556D5E733EC39727D8E9FE0AFA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Noire Flawless Deep House (2017) [MP3|320 Kbps] <Deep House, Electro>
 magnet:?xt=urn:btih:AD5BE36F71C4536D16439F388F9AE4635E15ABC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - ЕвроХит Топ 40 Europa Plus 21.02.2020 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:C96FB5A960A359CDB82956F915DE252DB6B387F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Зайцев нет. Январский топ 100 (2016) [MP3|256 - 320 к
 magnet:?xt=urn:btih:F05C5ABE66FDCE44C5CCC01368A62D139867161B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Pussy Brats - Vintage American Adult Film Soundtrack Music (2013) [MP3|~245
 ```bash
 magnet:?xt=urn:btih:F3713EB37AB99AC285795B1FD65A27CC40A95CB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Наша Музыка (Лучшее 2014 - 2015) [MP3|256 кб/с] <Поп,
 magnet:?xt=urn:btih:34B68A95656A14D2B8F3D0E22B514E2E08274428
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Billboard Hot 100 Singles Chart 23.01.2016 (2016) [MP3|320 кб/с] <Pop, D
 ```bash
 magnet:?xt=urn:btih:5C18471A5DAD110E4AB0D2C3A69C737919E801A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Турбо Модные Хиты В Зимний Вечер (2016) [MP3|225
 magnet:?xt=urn:btih:F44435967D2786D1AE2C0FB497EB490BBB67F8BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ Vol. 1
 ```bash
 magnet:?xt=urn:btih:922C379A0FE8E8655532950A7DB4DF70EF9711D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - Душа кричит Академия хитов шансона (2016) [MP
 magnet:?xt=urn:btih:AF525CDAED45E32F1598922F57A756CF7F9ADB33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ VA - Trance Traveling 73 (2016) [MP3|320 кб/с] <Trance>
 ```bash
 magnet:?xt=urn:btih:D48913438916C4B51CB385C368C7E8E1A440B012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ VA - House Lounge (2016) [MP3|320 кб/с] <Deep House, Chill House>
 magnet:?xt=urn:btih:C58528E465CBE0C5B58817A9B032F0AC53C5E3B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ VA - Carnival 2016 (Best of Dance, House, Electro & EDM) (2016) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:47319A86C4B5ED97A5E4FB03B59E2110C5F71060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ VA - DFM: Итоговый D-Chart Top50 (2016) [MP3|320 Kbps] <House, Pop, Club
 magnet:?xt=urn:btih:22AB44C4D7B281E797F2F6ACC9DBFF29CFD5911A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ VA - Танцевальная зима. Снежная 100-ка. Часть № 
 ```bash
 magnet:?xt=urn:btih:A51DC28D4363A359B57A269232BC41CA8DA897C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ Ozzy Osbourne - The Great & Powerful (2CD) (2017) [MP3|320 Kbps] <Heavy Metal, H
 magnet:?xt=urn:btih:DFA98AF2A32D590C58B52C45A18381D2B9C1E095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ VA - Новогодние песни (1945-2016) [MP3|256-320 Kbps] <Pop, Rock, 
 ```bash
 magnet:?xt=urn:btih:4EA3AA800E1FAE8133B761A882423FD55812970F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ VA - American Folk Blues (2017) [MP3|320 Kbps] <Folk Blues, Rock Blues>
 magnet:?xt=urn:btih:272518DF2FBBE5E04848B90CA92D2D67D09317B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ VA - УЛИ-ганские ПЕСНИ (2016) [MP3|96-320 Kbps] <Поп, Шанс
 magnet:?xt=urn:btih:A10595B898F89F0747EDBDBF7A12D00D4C87B078
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089024   (953610) от 02.01.2017
-
-VA - Начинаем отмечать! №2 (2016) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_953610.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Robbie Williams - When You Know
-002. Spada Feat. Elen Levon - Don't You Worry
-003. Banks - Mind Games
-004. Гена Селезнев - День Когда Встретил Тебя(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F0416DC44D1AA649F917FBEE65B318DBB6C25B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

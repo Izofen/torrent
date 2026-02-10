@@ -1,3 +1,29 @@
+###  Публикация: 1240847   (522955) от 14.08.2018
+
+Святой Иоанн Кронштадтский | Сердце говорит о Боге [Бальзам для души] (2013) [FB2, PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_522955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Из литературного наследия св. Иоанна Кронштадтского для настоящего издания выбраны и систематизированы слова, посвященные трезвению, или хранению сердца. Это духовное делание позволяло о. Иоанну сохранять молитвенный настрой в суете мира и возвело его на высоты святости. Отец Иоанн объясняет роль сердца в духовной жизни, учит понимать его язык и отличать сердцем (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:628C8160CDA4B9C68CF39FF56170728CF92916D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240711   (522959) от 14.08.2018
 
 Священник Сергий Тишкун, Илья Кабанов | Люди Греческой Церкви: Истории. Судьбы. Традиции (2015) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:886AD29740AA17B615BFA723521CC6C12A028600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:886AD29740AA17B615BFA723521CC6C12A028600
 magnet:?xt=urn:btih:1B2CA2B4445000C4FF2104995E37AD174AB8B81A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:1B2CA2B4445000C4FF2104995E37AD174AB8B81A
 ```bash
 magnet:?xt=urn:btih:5E1B1B96A7BC2812FF34327B2F0DE427073FB721
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +130,8 @@ magnet:?xt=urn:btih:5E1B1B96A7BC2812FF34327B2F0DE427073FB721
 magnet:?xt=urn:btih:06E74DBB1107275F99FAB5945A133E4318B13A7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +156,8 @@ magnet:?xt=urn:btih:06E74DBB1107275F99FAB5945A133E4318B13A7F
 magnet:?xt=urn:btih:0A89BF7E80724253FB90FA143DACFC59AFB0B636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +181,8 @@ magnet:?xt=urn:btih:0A89BF7E80724253FB90FA143DACFC59AFB0B636
 ```bash
 magnet:?xt=urn:btih:29D44C2A53B5EFB3C09367FD841600E5F43DF926
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +209,8 @@ magnet:?xt=urn:btih:29D44C2A53B5EFB3C09367FD841600E5F43DF926
 magnet:?xt=urn:btih:FDE5016853AB51C8952891746BC32EF36FF2A1E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:FDE5016853AB51C8952891746BC32EF36FF2A1E1
 ```bash
 magnet:?xt=urn:btih:D886CBFD9BCEE25BAB973E5276F4EB299783F928
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +263,8 @@ magnet:?xt=urn:btih:D886CBFD9BCEE25BAB973E5276F4EB299783F928
 magnet:?xt=urn:btih:BD78AD2C5A3E7490AA3FA07D7F51935121C6623C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:BD78AD2C5A3E7490AA3FA07D7F51935121C6623C
 ```bash
 magnet:?xt=urn:btih:F07E6DCE6A0949D3028765AF0637819DD9E363A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +316,8 @@ magnet:?xt=urn:btih:F07E6DCE6A0949D3028765AF0637819DD9E363A2
 magnet:?xt=urn:btih:0B7EF76C23625DD97C315DC0C143291987A8D200
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:0B7EF76C23625DD97C315DC0C143291987A8D200
 ```bash
 magnet:?xt=urn:btih:0ACD1B055D678B0CF5FCCF4AB2406310404229DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +369,8 @@ magnet:?xt=urn:btih:0ACD1B055D678B0CF5FCCF4AB2406310404229DA
 magnet:?xt=urn:btih:81051A19232355236628EB61DD66BBCCB67988D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +396,8 @@ magnet:?xt=urn:btih:81051A19232355236628EB61DD66BBCCB67988D4
 magnet:?xt=urn:btih:7518B5CD1BE8C3FBC4693B9A15769DF0D2CB729B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +421,8 @@ magnet:?xt=urn:btih:7518B5CD1BE8C3FBC4693B9A15769DF0D2CB729B
 ```bash
 magnet:?xt=urn:btih:6292C15E92964198CA7058618AC19CD3DFC34E39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:6292C15E92964198CA7058618AC19CD3DFC34E39
 magnet:?xt=urn:btih:71C3FC8E42C48FC28D6610738993745694A44F26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:71C3FC8E42C48FC28D6610738993745694A44F26
 ```bash
 magnet:?xt=urn:btih:71AD98FC6F2222075FE3C302EDC38605D2E83A45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +502,8 @@ magnet:?xt=urn:btih:71AD98FC6F2222075FE3C302EDC38605D2E83A45
 magnet:?xt=urn:btih:858B982C7644B49D5D38BA469157B767AEF780CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:858B982C7644B49D5D38BA469157B767AEF780CC
 ```bash
 magnet:?xt=urn:btih:FEBFDA31808DC3B305FBEB1DBD928783DE540AD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +556,8 @@ magnet:?xt=urn:btih:FEBFDA31808DC3B305FBEB1DBD928783DE540AD5
 magnet:?xt=urn:btih:6345B7D3CBC9099CD251EB57CE2878875971F936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +583,8 @@ magnet:?xt=urn:btih:6345B7D3CBC9099CD251EB57CE2878875971F936
 magnet:?xt=urn:btih:9E8E0CA343040991A56E95F0EAD8BA83F483B6B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +608,8 @@ magnet:?xt=urn:btih:9E8E0CA343040991A56E95F0EAD8BA83F483B6B0
 ```bash
 magnet:?xt=urn:btih:6D143D4C3C21E9B5DF86E8F1FCED6C27DE33575E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +638,8 @@ magnet:?xt=urn:btih:6D143D4C3C21E9B5DF86E8F1FCED6C27DE33575E
 magnet:?xt=urn:btih:E141B719A00DC8C6DDD2ABFC2C9C78AEEB12FA41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +663,8 @@ magnet:?xt=urn:btih:E141B719A00DC8C6DDD2ABFC2C9C78AEEB12FA41
 ```bash
 magnet:?xt=urn:btih:5D2F476BF641E0640376B7E1335150894C64BC70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,29 +690,7 @@ magnet:?xt=urn:btih:5D2F476BF641E0640376B7E1335150894C64BC70
 magnet:?xt=urn:btih:1BEA3F7FC21655E699A945BB7E683CFFEFBE7158
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 760551   (523979) от 14.08.2015
-
-Курт Зонтхаймер | Как нацизм пришел к власти (2009) [DJVU] [UKR]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_523979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это книга о немецком опыте истории от конца Первой мировой войны до прихода к власти нацистов. Интерес человечества к событиям тех лет объяснять вряд ли надо – нацистская идеология, а затем практика воплощения идей национал-фашизма стоили человечеству десятков и десятков миллионов людей, убитых, уничтоженных, погибших от голода и болезней. Шаг за шагом автор описывает (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79596DFC88100AE2F486BE7619E6E2D91C4D306A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

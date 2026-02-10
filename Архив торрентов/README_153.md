@@ -19,6 +19,8 @@ Digiarty AIArty Image Matting — это инновационное програ
 magnet:?xt=urn:btih:9702E1BD977B8FA324BACCB5FAB38769668CD667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Daff Moon Phase (Фазы Луны) v3.42 Mod by shv7net [Ru/En]
 ```bash
 magnet:?xt=urn:btih:E195E633676203244848105B9AFA466356B5F45A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ updated_nov_2024_x64_dvd_ccbcec44.iso.
 magnet:?xt=urn:btih:2C6BC554CB236A8E9232398B8F074592FE1DA68B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:2C6BC554CB236A8E9232398B8F074592FE1DA68B
 ```bash
 magnet:?xt=urn:btih:FC05B20A89676E39540559F520D396F83C5EA8C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:C513DC44F40ADD94FDBE217893B8332F47BFDEBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Ventusky: Прогноз погоды v39.0 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C1C31B9219209AE1E99797BA442B225AF477C294
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Subtitle Workshop - некогда популярная программа дл�
 magnet:?xt=urn:btih:8E3B7C313179DB02ABB6B5E8461241F112EB7B80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:23F0E08D18FD50522548223FB5B5C27C7D337B07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Icecream Slideshow Maker - это приложение для создания �
 magnet:?xt=urn:btih:D9AB5B29607BBBF09BE4A749C0FD1EAA79DE3D9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ PhotoRoom v5.6.4 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B04840381C7422BB92DB6648902E9B23C30D6AD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Duplicate Cleaner - мощный и профессиональный инстр�
 magnet:?xt=urn:btih:3D8E830FA47B2CF7CE483E2E0E00687C16B59C01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ FastStone Capture - мощная и многофункциональная пр
 ```bash
 magnet:?xt=urn:btih:038E7AA635ECC6D03C409764D4E098E98C5FBEB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Icecream Video Editor - простой редактор видео для Window
 magnet:?xt=urn:btih:F6D22C020B1B8610CAEDD5CEE770DF5F29E5829D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:FB284C3E56E78216371E78386B6F7A59A5D37A87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:E6F7932F2187EDADBC2BE73AEDDE3A4E2CE645B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:7BFB42C4B2E006C76170786A640B05FAA8CCEA73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:07DEE8C9504CA78E0BA99897DA01A8DEB25FB39C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Icecream Screen Recorder – простая программа для запис
 ```bash
 magnet:?xt=urn:btih:BFD138CC7BFA3556DDE1546F8DD90EC01E003845
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Duplicate Cleaner - мощный и профессиональный инстр�
 magnet:?xt=urn:btih:C55D63C51D6BE6067E68E56CC23EEC903AA1BA69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:74A4323BEF2FCAFCF586E411379CE94FC73B1D1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ simplewall 3.8.5 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:C5D0BD0D1F7A8441D7522B0E91C56BE81F9BD5CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Any Burn - небольшая бесплатная утилита для раб�
 magnet:?xt=urn:btih:742BD19C877AE70BF04A9B09EE821185E2216D84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:742BD19C877AE70BF04A9B09EE821185E2216D84
 ```bash
 magnet:?xt=urn:btih:4FCC5339132178D25F9228FF6DF5AC29FF40FBB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ CrossOver создаётся компанией CodeWeavers на основе и
 magnet:?xt=urn:btih:550C4BFD6317AA6370725EC257F06F739A0C259C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Defender Remover Portable 12.8.2 [En]
 ```bash
 magnet:?xt=urn:btih:6F509C0DA85AD665EC8D5312C133DA2A92B84BFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +679,8 @@ Solid Explorer - это приложение для управления фай�
 ```bash
 magnet:?xt=urn:btih:5303C775A6E6D568C51C77432E813F89A13A7D0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

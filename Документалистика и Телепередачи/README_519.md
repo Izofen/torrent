@@ -1,3 +1,29 @@
+###  Публикация: 1024496   (718050) от 08.06.2016
+
+Бродский не поэт (2015) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_718050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история о человеке, который навязал миру свою конституцию. О ленинградском мальчике, который хотел стать мировым поэтом — и стал. Америка и Россия, конечно, главные страны Бродского. Но только в его любимый Италии вдруг понимаешь, что Иосиф Александрович, наш современник, откликавшийся на мобильный, на самом деле жил будто бы до нашей эры и дошел к нам в переводах (   Читать дальше...   )Телекомпания: Россия, ООО "Центральное телевидение"Жанр: Документальный, БиографияПродолжительность: 01:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2550D4410D93C4D4FFD244B6957334BC1858223E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110955   (718137) от 30.04.2017
 
 Голос. Дети (2017) HDTVRip [H.264/720p-LQ] (сезон 4, выпуски 1-11)
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:C982E5725AE3233DBC6655B13114D2518F51B1A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:C982E5725AE3233DBC6655B13114D2518F51B1A6
 magnet:?xt=urn:btih:7BB0563D6CD58AA89F63F094AF226A5DB46C8EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:7BB0563D6CD58AA89F63F094AF226A5DB46C8EF7
 ```bash
 magnet:?xt=urn:btih:38148766EC9762C26B01A4092B0988BA0FDDB444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:38148766EC9762C26B01A4092B0988BA0FDDB444
 magnet:?xt=urn:btih:09FD311B3D03E75A715B5E1319C83883F3C7D8D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:09FD311B3D03E75A715B5E1319C83883F3C7D8D6
 ```bash
 magnet:?xt=urn:btih:E72DBD4DEF4B147520E8A1F94B8B5A7FCEE2364B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:E72DBD4DEF4B147520E8A1F94B8B5A7FCEE2364B
 magnet:?xt=urn:btih:6A447AA9F6EF398E1D3B2AD46C3D388973F96608
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:6A447AA9F6EF398E1D3B2AD46C3D388973F96608
 ```bash
 magnet:?xt=urn:btih:AD4374C2E4CD7702BCAC751C337BC0609310D7BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:AD4374C2E4CD7702BCAC751C337BC0609310D7BC
 magnet:?xt=urn:btih:E6A51A2C0FACA02F286E6E76EF10326F21EA1493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:E6A51A2C0FACA02F286E6E76EF10326F21EA1493
 ```bash
 magnet:?xt=urn:btih:CAD176F9A1B0210F655D45B60C31C28CE5FF5150
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:CAD176F9A1B0210F655D45B60C31C28CE5FF5150
 magnet:?xt=urn:btih:DC4F28A3CFB2617F7EFFE59823113083CEA75B16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ Travel: Музейные тайны / Mysteries at the Museum (2015) HDTVRip [H.
 ```bash
 magnet:?xt=urn:btih:2691CB5C592BE1C3A60CD5632654639098017642
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:2691CB5C592BE1C3A60CD5632654639098017642
 magnet:?xt=urn:btih:EAB0AEB1FF5FB0016AB92DAC738F4804610DECF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:EAB0AEB1FF5FB0016AB92DAC738F4804610DECF4
 ```bash
 magnet:?xt=urn:btih:E16721C253DFC874FB16DE9DDBDC9B2D35EBDD40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:E16721C253DFC874FB16DE9DDBDC9B2D35EBDD40
 magnet:?xt=urn:btih:D58BACAE7955A5B6D5B3878C87A47FBA65119F63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:D58BACAE7955A5B6D5B3878C87A47FBA65119F63
 ```bash
 magnet:?xt=urn:btih:A34425E03BBFC1DB8EA310C3997CF886BF62F578
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:A34425E03BBFC1DB8EA310C3997CF886BF62F578
 magnet:?xt=urn:btih:57946068D5751E0C5CAF6E3BF0DCAE85AFDB15A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:57946068D5751E0C5CAF6E3BF0DCAE85AFDB15A8
 ```bash
 magnet:?xt=urn:btih:5AD34DCA961DC52C74A25409C1C33E298F9C461D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:5AD34DCA961DC52C74A25409C1C33E298F9C461D
 magnet:?xt=urn:btih:12466DF6D05B0565ECEAB5724E33A0D7D275D691
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:12466DF6D05B0565ECEAB5724E33A0D7D275D691
 ```bash
 magnet:?xt=urn:btih:05ACEBBCE12E8479E51D82B2D7B023DD9F432A16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:05ACEBBCE12E8479E51D82B2D7B023DD9F432A16
 magnet:?xt=urn:btih:960CA3C53811C422544250DCC6ABE221565CE1F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:960CA3C53811C422544250DCC6ABE221565CE1F3
 ```bash
 magnet:?xt=urn:btih:DDD49CC1E8F67D626840BDDCF3EA30D6C4B7030F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:DDD49CC1E8F67D626840BDDCF3EA30D6C4B7030F
 magnet:?xt=urn:btih:0CDD11C9C531075B3F0271EC746E4C666FB723B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:0CDD11C9C531075B3F0271EC746E4C666FB723B9
 magnet:?xt=urn:btih:348A7B1A1EE08BF4CF4DC05596E2B32DFBDB8A35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:348A7B1A1EE08BF4CF4DC05596E2B32DFBDB8A35
 ```bash
 magnet:?xt=urn:btih:25BF18FA200BE22440F514A70BBA2603D0CD3559
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:25BF18FA200BE22440F514A70BBA2603D0CD3559
 magnet:?xt=urn:btih:FD75A7444E05A51639E23530AE2E482365A6CE74
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130085   (718701) от 30.04.2017
-
-Взгляд изнутри: Убийство Джона Кеннеди / Inside JFK'S Assassination (2013) HDTV [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_718701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телохранитель, фотограф, случайный свидетель и будущая вдова президента - все они были в Далласе 22 ноября 1963 года и видели то, что навсегда останется в их памяти - убийство Джона Кеннеди. Каждый из них расскажет нам свою версию событий того злополучного дня. Вся правда о стрельбе, которую кто-то слышал в Дили-Плаза, о больнице Парклэнд, о вскрытии и Арлингтонском (   Читать дальше...   )Телекомпания: Франция / Program33, ARTE FranceЖанр: Документальный, история, исследованиеРежиссер: Патрик ЖедиПеревод: ДублированныйПродолжительность: 00:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB856F9651EE5B4C8C6139DB54923503F24A14D9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

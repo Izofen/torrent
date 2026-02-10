@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1C502851DAE97A427693B9846DD7104FD1239150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:1C502851DAE97A427693B9846DD7104FD1239150
 ```bash
 magnet:?xt=urn:btih:47538C0159E388DEA1D06B9DF6B42FF546FE53A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:47538C0159E388DEA1D06B9DF6B42FF546FE53A1
 magnet:?xt=urn:btih:3E142AF727DB119F8EBB28419A0A0AB6ABFA4140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Monosnap 2.3.19 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FBF6715DEB4582914348BAC43EB0B1C2CAA37515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Jason van Wyk - Days You Remember (2013) White Notebook [FLAC|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:B06658576E5703C7C1A1202B6497770B97E6B3E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:B06658576E5703C7C1A1202B6497770B97E6B3E5
 ```bash
 magnet:?xt=urn:btih:096871C4B9A3ED476C8962DFE1818AF16B0B569F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:096871C4B9A3ED476C8962DFE1818AF16B0B569F
 magnet:?xt=urn:btih:FF1C219F261BF5AB1C059783FA5B13AD030736B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Gregorian - Pure Chants (2021) BDRip [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:11D20ABD93AB1902BCFEB521F632098930C8F946
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Amorphis - Borderland (2025) [FLAC|Lossless|image + .cue] <Heavy Metal, Melodic 
 magnet:?xt=urn:btih:EAADDD5164491FC99770B83B8AA27935E8520E8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:EAADDD5164491FC99770B83B8AA27935E8520E8F
 magnet:?xt=urn:btih:21D1EC5AB9F7D93B8C32B1631820A51FC5622775
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:21D1EC5AB9F7D93B8C32B1631820A51FC5622775
 ```bash
 magnet:?xt=urn:btih:2EA8EB7B7E3DA410C87EC640F34926DED4B7359C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:2EA8EB7B7E3DA410C87EC640F34926DED4B7359C
 magnet:?xt=urn:btih:4270F29453E012819D18D47323FDFE9BA0B92B64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:4270F29453E012819D18D47323FDFE9BA0B92B64
 magnet:?xt=urn:btih:2F619A78A183D2FEEE084DCF9758A09691E97DA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:2F619A78A183D2FEEE084DCF9758A09691E97DA8
 magnet:?xt=urn:btih:C54812B70B865D55B866DB7495244EE14F6C7478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:C54812B70B865D55B866DB7495244EE14F6C7478
 ```bash
 magnet:?xt=urn:btih:AC78F8316CE221A2774C9890CC740AB588832E33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:AC78F8316CE221A2774C9890CC740AB588832E33
 magnet:?xt=urn:btih:16A9A8EDE74026712D25793A956B3665C730354D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:16A9A8EDE74026712D25793A956B3665C730354D
 ```bash
 magnet:?xt=urn:btih:4923CADAE622273F65BAC68B5E7EE8200DB71D72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ Downie поддерживает более 1,100 популярных сайто
 magnet:?xt=urn:btih:6F7412E86512C4098DCB782A53F553137BF7504F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:6F7412E86512C4098DCB782A53F553137BF7504F
 magnet:?xt=urn:btih:97A2E57676C7985C065AC0AE230AE3B679240B59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:97A2E57676C7985C065AC0AE230AE3B679240B59
 ```bash
 magnet:?xt=urn:btih:B9121440FD9E4B350097AA46538B3EF1E8237DD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:B9121440FD9E4B350097AA46538B3EF1E8237DD9
 magnet:?xt=urn:btih:A8713A4D993F33EA1E50BC5FB0D14DBC91DF98F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:A8713A4D993F33EA1E50BC5FB0D14DBC91DF98F7
 magnet:?xt=urn:btih:F62944F9E3F7508CE7391489831C5CFD84C65DF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:F62944F9E3F7508CE7391489831C5CFD84C65DF6
 ```bash
 magnet:?xt=urn:btih:7BDBD9AF23BFE26CE7C11E15C9C8B4E8017318F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ Nitzinger - One Foot In History (1973) Reissue, 1999, Buy Or Die Records [MP3|32
 magnet:?xt=urn:btih:17179870FF7EC4AB82D7A8A0B99E2728B36B6E27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ Imperialism (1997) [Multi] (1.1) License GOG
 magnet:?xt=urn:btih:8367512C24ECC4F58717596009EF6AB0ADF438E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:8367512C24ECC4F58717596009EF6AB0ADF438E9
 ```bash
 magnet:?xt=urn:btih:9CBCAC9D243B323E644A916853630E9C1652B65A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Top Hit Music Mission Charts (2016) [MP3|239~320 Kbps] <House, Funky,  Nu D
 magnet:?xt=urn:btih:5F1A495AEF05B7A697BFD4DCAC4BBB66469FE783
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Заключительная осенняя дискотека. Верси�
 ```bash
 magnet:?xt=urn:btih:789FC0778C2E98225051B0A1A5364E14610A0082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Звездная вечеринка. Зарядись хитами. Час�
 magnet:?xt=urn:btih:7547DC93EA7FB18D79C1E2E2703E7EBB0C4E2BC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Flex All Night: Electronic Dance Mix (2023) [MP3|320 Kbps] <Synthwave, Danc
 ```bash
 magnet:?xt=urn:btih:1F0DF1E4C289BDA07838E1A6E46A803B39950780
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - 00s Anthems (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
 magnet:?xt=urn:btih:95148B522EEFA15FA70D89FFC5B7C58C2656062B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Hayit Murat - Compilation (2023) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:31EC30F78C846A23B6ADC86DB8C4DD380DC0340D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Sunshine Universe Harmonies (2016) [MP3|320 Kbps] <Trance, Melodic, Uplifti
 magnet:?xt=urn:btih:DCB402D8DDE1C3964019A470B69CA3EDD963F722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Finding Around Happiness (Energy Tech Trance) 011 (2016) [MP3|320 Kbps] <Tr
 ```bash
 magnet:?xt=urn:btih:296BCC6447EECDEDBE37C6E68CA2482646988D37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Europa Plus №7 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:8866D18875D1B7FB556EA349E361A2966412EE85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Top 100 DJs Chart (24-March-2023) (2023) [MP3|320 Kbps] <Pop, Dance, Electr
 ```bash
 magnet:?xt=urn:btih:E9C2D0EDE89227924E262E762FFCC7A1C746099A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Sunshine Live Vol.59 (2016) [MP3|320 Kbps] <Future House, Trance, Nu Disco,
 magnet:?xt=urn:btih:F0C2A3B98979E34203D56328092DE7C9848E97D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - R&B Nation (2021) [MP3|320 Kbps] <R%B, Soul>
 ```bash
 magnet:?xt=urn:btih:654B82E711CC2A335D8883033A1079552458E461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Country Dark Rock (2023) [MP3|320 Kbps] <Country, Blues, Rock>
 magnet:?xt=urn:btih:C8A6A6DEAE147E4A875722F37B5FAE98C9196C88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Dance:
 ```bash
 magnet:?xt=urn:btih:5715394CE1599F5A8126F802625C53A779F53D78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Сотка модных хитов. Выпуск 6 (2016) [MP3|256 Kbps] <P
 magnet:?xt=urn:btih:B2E69342642DE1D6DC8F644FC173DB09696BD4B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - Звездная вечеринка. Зарядись хитами 50/50 (2
 ```bash
 magnet:?xt=urn:btih:A9BAD560AE5137A5D12FEF87AEA5EB5DB63798AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Digital Confession (2021) [MP3|320 Kbps] <Techno, Electronic>
 magnet:?xt=urn:btih:DB3BCDC293BFD3409C8EACA3D771E33B5B317528
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Осенняя дискотека по-русски. Выпуск 5 (2016) 
 ```bash
 magnet:?xt=urn:btih:858F5914DD1A7370CCC90F0F921834BAD7FA5123
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Горячий хитовый драйв. Выпуск 8 (2016) [MP3|256 Kb
 magnet:?xt=urn:btih:38E690DC5930E6D6BC22B27541DE3F16D940A54D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Compilation  part 16 Electronic (2023) [MP3|224-320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:3EFE5F24C1C6E72648AE8E33916A6B367FBADA40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Z-Deep - Compilation (2023) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:7847F951CBD923D6F99EC15D7DB69409EABB718E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ VA - Весна на Love Radio (2022) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:9AA096D5FAF65FB36AB45BA9BAD4C6A72FDB2069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ VA - Summer Light Deep (2022) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:80AF9B68B872086D934FF274209A91E0F3F0ED78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Davvi - Compilation (2023) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:714D5BA0004AA2AFB2338435C37567727603A29C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ VA - Советская Психоделика 1970-80х (1988) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:B05ED77879487C6F1D8D9AEF36056B00EB21A646
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ VA - German Top 50 Official Dance Charts 18.11 (2016) [MP3|256-320 Kbps] <Dance>
 ```bash
 magnet:?xt=urn:btih:56486034301BCBD5C67779800058A5FAEE28A47A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -28,6 +28,8 @@ Charlie Chaplin - The Essential Film Music Collection-2 CD (2006) [MP3|320 кб/
 magnet:?xt=urn:btih:C314282D289B75C63DE5551DBA2460CE16FC6BFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Brule - Star People (2001) [MP3|198~257 Kbps (V1)] <Native American, North Ameri
 ```bash
 magnet:?xt=urn:btih:68F3C4E5E1BAB5E1EE54A0FB200D27F19A0CDB23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ Angi Schiliro - White Lady (1992) Japan 1-st Press 1993 [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:4A2B30A09E01998141F9F156A1DAF8852E537EC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ VA - Country Legends - Men & Women - Country Legends - Men & Women (2013) [MP3|3
 ```bash
 magnet:?xt=urn:btih:6DF57AC550DD458D0DF192A93ED63EB8FD6869FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +150,8 @@ Rain Dance - Music Power for Peace (2002) [MP3|320 кб/с]<New Age, Native Amer
 magnet:?xt=urn:btih:F48CAEC2A0B725BB1DD0156EBE61631924DC78F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +178,8 @@ Kenio Fuke - Atlantida (2008) KF Music [FLAC|Lossless|WEB-DL|tracks] <New Age, R
 ```bash
 magnet:?xt=urn:btih:AF021B5F7BB057972672624B41A17E32DEC5758B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +208,8 @@ Echosonica - Midnight Wonderland (2018) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:A69BEB4327C932A1E1E22EB74BC700B66758C491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +236,8 @@ Shambhu - Lilac Skies (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Jazz, Acous
 ```bash
 magnet:?xt=urn:btih:7BD75305131E20A6099036F5F738C1A9C71062B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +266,8 @@ Kamarius - Call Of The Spirit (2020) [MP3|320 Kbps] <New Age, Native American>
 magnet:?xt=urn:btih:278F776BCFE7CE769EDAAD6358093D4DB08D6C97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +294,8 @@ Amure - GEO (2016) 2CD [MP3|320 Kbps] <New Age, Enigmatic>
 ```bash
 magnet:?xt=urn:btih:4C04488E3582BCFD15D0D4C75DF8CA2EBFB982A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +324,8 @@ Faun - Pagan (2022) [FLAC|Lossless|WEB-DL|tracks] <Medieval, Folk>
 magnet:?xt=urn:btih:3B101F44C05B5777AB78E0C8D31FC1D0CA03EED5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +352,8 @@ VA - Golden Cinema Hits (2006) [FLAC|image + .cue]<Soundtrack>
 ```bash
 magnet:?xt=urn:btih:276415D60ACD521FBC822E509F314FFE1BF46FEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +382,8 @@ Deva Premal & Miten with Manose - Songs For The Sangha (2015) [MP3|320 кб/с]<
 magnet:?xt=urn:btih:38FC50FB051E91760E404EE1A4A56EA5C7D0ADC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +411,8 @@ VA - Игра престолов / For The Throne (Music Inspired by the HBO Ser
 magnet:?xt=urn:btih:EC2D32730A6A2F79BB1F06393E2EDEAF2326571C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +438,8 @@ Bear McCreary - Godzilla: King of Monsters / Годзилла 2: Король м
 magnet:?xt=urn:btih:8942D57776D9E38EBEC56944EA876D2E5A6DBD81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +464,8 @@ Bear McCreary - Godzilla: King of Monsters / Годзилла 2: Король м
 ```bash
 magnet:?xt=urn:btih:E1D121838E407EF035B74A3441191EECAA88DE6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +494,8 @@ DBUK - Songs Nine Through Sixteen (2019) [FLAC|Lossless|tracks + .cue] <Folk, Am
 magnet:?xt=urn:btih:D689ED015B36526B665778469FB7608EA030353E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +522,8 @@ Angelight - Четыре ветра (2006) [FLAC|Lossless|tracks + .cue] <New Ag
 ```bash
 magnet:?xt=urn:btih:CAB7412B5FFFFEA952694AEBE35B6012708A3F4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +552,8 @@ Alan Silvestri - Avengers: Endgame / Мстители: Финал (Original Moti
 magnet:?xt=urn:btih:2200CA7F36190D7FBA634F8D5D9E199833ADDD93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +580,8 @@ VA - Deadpool 2 / Дэдпул 2 (2018) [MP3|320 Kbps] <Pop, Rap, Electronic>
 ```bash
 magnet:?xt=urn:btih:D33A213F8CD1FB8FD9AF407CB8C03A901FF45748
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +610,8 @@ VA - Sax & Sex Collection (1995)(10CD)[FLAC|Lossless|tracks + .cue] <Smooth Jazz
 magnet:?xt=urn:btih:74E5D4D4F5E7C4A69643488F4E6820CC46660E58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +638,8 @@ Empire Of Love - Mysterious I-II (2016-2017) [FLAC|Lossless|WEB|tracks] <New Age
 ```bash
 magnet:?xt=urn:btih:A2B497B5B3FD313FCEE8D0A9E9A90AA07316FB9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +668,8 @@ Disc 1
 magnet:?xt=urn:btih:267F760097CC60CF88E2E195F2974EA17A9FB4CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +696,8 @@ Edelis - Sensation of the World (2009) Rerecorded Version, 2017, ROMAN Music Rec
 ```bash
 magnet:?xt=urn:btih:0D8CFF43D0F8CA62D782B56F24FF290A87C9CF8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -678,6 +726,8 @@ Lynn Tredeau - Shifting Sands (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pia
 magnet:?xt=urn:btih:4D35B2407ED0629CA3FCF090324D4253423AD8F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -704,6 +754,8 @@ Lynn Tredeau - Shifting Sands (2017) [MP3|320 Kbps] <New Age, Piano, Instrumenta
 ```bash
 magnet:?xt=urn:btih:907614CBF95A2726B73B3EC50F9AF6CBC116D8F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

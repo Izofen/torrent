@@ -1,3 +1,148 @@
+###  Публикация: 1177246   (365475) от 24.10.2017
+
+Fever - 2 Albums (1979, 1980) LP [MP3|320 Kbps] <Electronic, Funk, Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fever (Лихорадка) - американская трио диско группа, созданная в 1978 году в  Сан-Франциско. Записали только эти два альбома.01. Beat Of The Night (5:54)
+02. Work Me (5:23)
+03. Treat Me Right (5:16)
+04. Pump It Up (4:53)(   Читать дальше...   )Жанр: Electronic, Funk, Soul, DiscoПродолжительность: 01:11:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0EC5C82C736BE5E610F0E6FD8775AA265F4A628
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 250879   (366259) от 03.11.2010
+
+Quest Pistols - Дискография (3 альбома) (2008-2009) [MP3|320 kbps]<Pop/Rock>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop/RockПродолжительность: 00:45:19
+
+01. Белая стрекоза любви
+02. Все пахнет тобой(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964D3460C4210C1D2B7D623DD6D75BF92E575049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576393   (366493) от 14.09.2022
+
+Pharao - Pharao (1994) [OGG Vorbis|484 Kbps] <Electronic, Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There is a Star
+02. King Pharao
+03. I Show You Secrets
+04. World of Magic(   Читать дальше...   )Жанр: Electronic, EurodanceПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91D6FE59D1E27FC72AE817BDF02C1D7CC49181E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576364   (366513) от 14.09.2022
+
+Ace Of Base - Hidden Gems (2015) [OGG Vorbis|484 Kbps] <Electronic, Pop, 	Eurodance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Would You Believe                   	2:50
+02. Go Go Go                                 	3:29
+03. Into The Night Of Blue          	4:13
+04. Don’t Stop                               	2:49(   Читать дальше...   )Жанр: Electronic, Pop, 	EurodanceПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55758E09996C0DF3196671BAF56893C49539DB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070746   (366659) от 07.11.2016
+
+Иракли - Ангелы и демоны (2016) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. По лезвию ножа
+02. На бульварном
+03. Мужчина не танцует (feat. Леонид Руденко)
+04. Вокруг Земли(   Читать дальше...   )Жанр: PopПродолжительность: 01:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3239496E90A318060B454D8C177052E4213156DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416407   (367260) от 16.10.2020
 
 Нюша (Nyusha) - Solaris Es (2020) Deluxe Edition [MP3|320 Kbps] <Pop>
@@ -21,6 +166,8 @@
 ```bash
 magnet:?xt=urn:btih:527CEDD425DD1A25C1CA4C2D813C6DA2C5A0A2D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +202,8 @@ CD1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -78,6 +227,8 @@ t.A.T.u. - 200 KM/H In The Wrong Lane (10th Anniversary Edition) (2012) [MP3|320
 ```bash
 magnet:?xt=urn:btih:05CB0F62423ABECD23A5F89040A893428F879062
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -106,6 +257,8 @@ A-ha - Lifelines (2019) Deluxe Edition, Remastered [FLAC|24/44.1|Lossless|WEB-DL
 magnet:?xt=urn:btih:72DEA13CBA409043FEA856F997486387BA577788
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -132,6 +285,8 @@ A-ha - Minor Earth, Major Sky (2019) Deluxe Edition, Remastered [FLAC|24/44.1|Lo
 ```bash
 magnet:?xt=urn:btih:0B5C614B29E058084ED6243D936635D4779847DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +321,8 @@ magnet:?xt=urn:btih:0B5C614B29E058084ED6243D936635D4779847DD
 magnet:?xt=urn:btih:AFF4F23758364E94A32EA2651DDCF1E2D8BC66D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +355,8 @@ magnet:?xt=urn:btih:AFF4F23758364E94A32EA2651DDCF1E2D8BC66D7
 ```bash
 magnet:?xt=urn:btih:16FBAA7B9B4D0C9D54FA9DE65895F374D579F132
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +391,8 @@ Eros Ramazzotti - Somos (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:5316ADC8FDB01C067A0B5638799C131F2BA8423B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +426,8 @@ White Nights Brass - Soviet Retro (2003) [MP3|320 кб/с]<Retro>
 magnet:?xt=urn:btih:4CF014403D397239A9FF7D2AEED1990180AA1E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +454,8 @@ VA - ZYX Italo Disco New Generation Vol. 21 (2022) 2CD, Compilation [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:95A4D9D4DE9139E5852CD74D169A2F1963711E7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +484,8 @@ Chris Norman - Rediscovered Love Songs (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:29145F65E2BE9ED9B20A49B10B23200E199B8ED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +512,8 @@ Julio Iglesias - Love Songs (2007) [MP3|320 Kbps] <Pop Latino>
 ```bash
 magnet:?xt=urn:btih:88485BCE3BD17922A12C48D259820361CFDF957A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +542,8 @@ Cliff Richard - Love Songs (1981) Remaster, 1987, Parlophone[MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:5AC8660E9A82150F8A05D0B25F39CF107511B523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +570,8 @@ VA - Italo Disco - The Lost Legends Vol. 23 (2018) [FLAC|Lossless|tracks + .cue]
 ```bash
 magnet:?xt=urn:btih:58F507C05FAC4883040F38495026CAB173C9FE00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +600,8 @@ Zivert - Vinyl #1 (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:71ACB5CF43D8533B880F894B9748AB87C81E7217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +628,8 @@ Carl Douglas - Kung Fu Fighting (1994) The Best Of Carl Douglas [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:49B5546A60B3F9B61352246490B7C009CE164C9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +664,8 @@ VA - Суперхиты дискотеки 90-х. Золотые баллады 
 magnet:?xt=urn:btih:8EA1D0EDD08F97AB548E7C2E3B67188062698C52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +692,8 @@ One Direction - Four • The Ultimate Edition (2014) [FLAC|image + .cue]<Pop>
 ```bash
 magnet:?xt=urn:btih:0667ABA1BDD495AE880DD41E88B55A379BDD5AB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +728,8 @@ magnet:?xt=urn:btih:0667ABA1BDD495AE880DD41E88B55A379BDD5AB8
 magnet:?xt=urn:btih:8419DAFF1B4A4D0CB1AD7A57927EA6F93D44BA91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +763,8 @@ VA - Суперхиты дискотеки 90-х ...продолжение (2011
 magnet:?xt=urn:btih:3FC04CFE1F247CDF774AD03EC3E14892063773B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,146 +792,7 @@ Svenne & Lotta (в некоторых странах Sven & Charlotte) - поп-
 magnet:?xt=urn:btih:A7245E0CACAE5E3F7C743512783F50A59A7FB259
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574979   (370897) от 14.11.2012
-
-Eros Ramazzotti - Noi (2012) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noi
- 02. Un Angelo Disteso Al Sole
- 03. Questa Nostra Stagione
- 04. Io Sono Te (feat. Giancarlo Giannini)
- 05. Fino All'Estasi (feat. Nicole Scherzinger)
- 06. Abbracciami
- 07. Balla Solo La Tua Musica
- 08. Infinitamente
- 09. Polaroid
- 10. Sotto Lo Stesso Cielo(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB5EE60573323584F509A31D72846F3CA1E0B4AA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070091   (370997) от 05.11.2016
-
-Serebro - Сила трёх (2016) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_370997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мало тебя
-02. Kiss
-03. Mimimi
-04. Перепутала(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C89DE9F854AAD3695DBA7BFFBAD33CD9ABEDFCD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069623   (371290) от 05.11.2016
-
-Jack Savoretti - Sleep No More (2016) [FLAC|Lossless|image + .cue] <Pop, Folk, Acoustic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When We Were Lovers 03:31
- 02. Deep Waters 03:46
- 03. I'm Yours 03:08
- 04. Helpless 03:14(   Читать дальше...   )Жанр: Pop, Folk, AcousticПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A93DACE3C0BDDCD88E4258C978F739235FCF5903
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069990   (371320) от 05.11.2016
-
-Champagne - The Best Of (2007) CD [MP3|320 Kbps] <Disco, Funk-Soul, Pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371320.jpg" />
-</div>
-
-
-###  Подробнее
-
-Их называли - "Голландский ответ АВВА". К сожалению выпустили всего два альбома в 1977 и 1979 годах, которые полностью и поместились на этот диск.01. Oh Me, Oh My, Goodbye (3:24)
-02. No Love At All (2:27)
-03. Rock 'n Roll Star (2:53)
-04. Kiss You Baby (3:05)(   Читать дальше...   )Жанр: Disco, Funk-Soul, PopПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A295D7496E32A6B34A936D138EA80F45436742
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069655   (371401) от 05.11.2016
-
-VA - Studio 57 vol.1 (1983) 2xLP [MP3|320 Kbps] <Electronic, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_371401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мегамикс из творчества американского музыканта, композитора и продюсера Bobby Orlando.01. The Flirts - Passion (7:11)
-02. Bobby "O" - I'm So Hot For You (6:11)
-03. Bobby "O" - She Has A Way (8:10)
-04. Free Enterprise - Make It On My Own (6:25)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 01:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:853DB2947168DDDAFD97D3FCD08A329F1BA25403
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

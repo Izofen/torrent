@@ -19,6 +19,8 @@ Star Wars: Galactic Battlegrounds Saga (2001) [Ru/En] (1.1) Repack R.G. Меха
 magnet:?xt=urn:btih:2D11F3F4255FBC5BC61DEB3D3D66E83033E8E7F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Hearts of Iron: Trilogy / День Победы: Трилогия (2002-2009) [E
 ```bash
 magnet:?xt=urn:btih:4EFF856766417DD877148B8B2D7AE4A603054589
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Total War: ROME II (2013) [Multi] (2.4.0/dlc) License CODEX [Emperor Edition]
 magnet:?xt=urn:btih:FFF75C0B0B87D10067DD1E5D391F958C7A573005
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Cossacks Anthology / Козаки Антология (2003) [En] (1.15/1.30/1.35
 ```bash
 magnet:?xt=urn:btih:19F62017486BE34209BDC66D2F6F1DCA470F6F03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Command & Conquer: Generals + Zero Hour - это стратегия в реал�
 magnet:?xt=urn:btih:AF2AD26A1ED0C8DE576B6B865CAA3B3B1B3EA40C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Imperialism 2: The Age of Exploration (1999) [En] (1.03) License GOG
 ```bash
 magnet:?xt=urn:btih:D3E54DED862542DE9E9A3DD40B40043CC5E8B612
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Victoria 2 / Виктория 2 + DLC [En/Ru] (L) 2010
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Sudden Strike 3: Arms for Victory (2007) [Multi] (1.4) License GOG
 ```bash
 magnet:?xt=urn:btih:F5B17C9313C3A0348C8EB7595764A9DFF3AEC5D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Sudden Strike: Resource War / Sudden Strike: Битва за ресурсы (200
 magnet:?xt=urn:btih:89660EB35E81C7F37B2479F53C4AE44C89F96C58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Star Wars: Galactic Battlegrounds Saga (2002) [Ru/Multi] (1.10/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:0BCCCD9775C96776159455C8B0AEBA49F61441E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Plague Inc: Evolved - сверхпопулярная игрушка, хорош�
 magnet:?xt=urn:btih:BBB81E8360D7E9ABD468F32D79015F588940B671
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ MarZ: Tactical Base Defense (2019) [Ru/Multi] (1.0/upd8) Repack Other s
 ```bash
 magnet:?xt=urn:btih:1531290B51F19C2D7BB0A174B892904A44C74493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Re-Legion (2019) [Ru/Multi] (1.3.1.314) Repack R.G. Catalyst
 magnet:?xt=urn:btih:AF3D737C34DCE9F3D4895B413A8BFBB037A1E373
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Warparty (2019) [Ru/Multi] (1.0.9) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:013ADBAAD813CB087246CA73C9877D8E45D6F6DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Hive - новая стратегия в реальном времени с �
 magnet:?xt=urn:btih:E74AC484AD711E2FE2941B55779B34F4AAE685BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Iron Heart (2019) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:00B3996D2A3776337007E13BB4CF3ABEEE2514BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Fragile Allegiance (1997) [En] (1.0) License GOG
 magnet:?xt=urn:btih:946DBFE5961F41CFDF0B9C81EA703FC2EFD40968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Aggression: Reign over Europe / Агрессия (2007) [Ru] (1.23) Repack R.G. 
 ```bash
 magnet:?xt=urn:btih:9AA2B7868545DD82A92BA7F8E652E8F1B554C096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Stellaris (2016) [Ru/Multi] (1.2.5.24012/dlc) Repack от Let'sPlay [Galaxy Edit
 magnet:?xt=urn:btih:A521809C185E46289DEDF2F67966664F2314E5B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Master of Orion предлагает игрокам исследовать бе�
 ```bash
 magnet:?xt=urn:btih:E6770C803333C39AC910E8B1522076F6C3F2403C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Hostile Waters: Antaeus Rising / Враждебные воды: Территор
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Dungeons 3 (2017) [Ru/En] (1.6.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:3AD0620227B08A3EF72D2824A228BDF85C0624FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ War For The Overworld (2015) [Ru/Multi] (2.0.7/dlc) Repack R.G. Catalyst [Underl
 magnet:?xt=urn:btih:09371733EFA0049ABBEF378190DC488F8EFBDCAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Ultimate General: Civil War - тактическая военная игра. В
 ```bash
 magnet:?xt=urn:btih:22CE4E8756BC259597A2DEB719CB7BC5F80A2361
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Dungeons 3 / Dungeons III (2017) [Ru/Multi] (1.6/dlc) Repack R.G. Catalyst
 magnet:?xt=urn:btih:52CFBE15FDFEC1E7EF8E48CBB904F17B480469E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Sacrifice / Жертвоприношение (2000) [Ru/En] (15.08.2016) License
 ```bash
 magnet:?xt=urn:btih:05EDE49559BCAC186F6D35072F3C518A20974326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

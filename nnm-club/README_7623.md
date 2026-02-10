@@ -22,6 +22,8 @@ BlackSun Horizon - Who Will Live to Tell the Tale (2023) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:2D05E1239824FC8D2DBB2E45DC3F7BEB75CBED21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Icecream Video Editor - простой редактор видео для Window
 magnet:?xt=urn:btih:6680B8F494BC24F29077FF9173D804D7D9D43950
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:6680B8F494BC24F29077FF9173D804D7D9D43950
 ```bash
 magnet:?xt=urn:btih:EB41BCC4DA34E855104E90DC9091F69E1A768F2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Stahlnebel & Black Selket - Time Between Passion & Despair (2019) Limited Editio
 magnet:?xt=urn:btih:8AB8F19BFEE68CC47E1239A24AC7B15EA9D85EC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:8AB8F19BFEE68CC47E1239A24AC7B15EA9D85EC0
 magnet:?xt=urn:btih:AA99569FD7BEF603ADF57B1F64B616B5C9AFFEA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ ibis Paint X - известное благодаря своим качества
 ```bash
 magnet:?xt=urn:btih:6C1AEEC4C30464EB6CF12729A63B7C214C03D3F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:6C1AEEC4C30464EB6CF12729A63B7C214C03D3F2
 magnet:?xt=urn:btih:9CBD03B0A0001D6980694E8D1CC8BC38B553CB2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:9CBD03B0A0001D6980694E8D1CC8BC38B553CB2D
 magnet:?xt=urn:btih:150EFBCD90B8B4342A97DC4C2188DB77BAEC939F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:150EFBCD90B8B4342A97DC4C2188DB77BAEC939F
 ```bash
 magnet:?xt=urn:btih:F70B694CD2FE3577FD67A4012D4CDA3A6A313387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Sonic Taboo - Kind of Venom (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Psych, 
 magnet:?xt=urn:btih:E43CE1040D6FFADA048701D8D6DC8A4BA4153720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ NOAA Weather by RainViewer (RainViewer: Метеорадары, ДМРЛ) 3.0.3 
 ```bash
 magnet:?xt=urn:btih:7C8BC5633B903381E0D81EC4BA1503487FF75A64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:7C8BC5633B903381E0D81EC4BA1503487FF75A64
 magnet:?xt=urn:btih:FE9B0FA9C1F5784EB473CEE6661E4D6B6C67B94D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ Dynamic Island - ещё один проект предлагающий поль�
 ```bash
 magnet:?xt=urn:btih:BBD50B965B83E7467FF86CEAD667D0EB996DEAA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ XnViewMP (или XnView) — неплохой кроссплатформенны
 magnet:?xt=urn:btih:944128D32206815864F74A4A42A05F33A241D9B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:944128D32206815864F74A4A42A05F33A241D9B4
 ```bash
 magnet:?xt=urn:btih:88031C5711C1724302E87288D0AEB8EEA598B8E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ Birds of Prey - Sulfur & Semen (2008) [FLAC|Lossless|image + .cue] <Death, Sludg
 magnet:?xt=urn:btih:FDF8EC99386C725BCD61F1B10EB90F0A85D0F25C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:FDF8EC99386C725BCD61F1B10EB90F0A85D0F25C
 magnet:?xt=urn:btih:A6463BBFEA0BA0CD0D1739B3EFF860436D901025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ InfoCity - Азербайджанский ежемесячный журнал о
 ```bash
 magnet:?xt=urn:btih:8DEE9826EC4D18D199AD92EFD21AE25D98370A74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ Revolution Saints - Eagle Flight (2023) Japanese Edition [FLAC|Lossless|image + 
 magnet:?xt=urn:btih:B2A10C3C6A054DDC8F1DED6C9D72040AC8E6DA7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:B2A10C3C6A054DDC8F1DED6C9D72040AC8E6DA7D
 ```bash
 magnet:?xt=urn:btih:BB189882D764CD6067AAAAA3D06B2878411F005C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ Cerebral Invasion - A Story Of Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 magnet:?xt=urn:btih:51C3490BED8BC8993D74DC04C90301F77873B919
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ Matteo Mancuso - The Journey (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 ```bash
 magnet:?xt=urn:btih:170A077333DBC94FBF708E8A531D510552E3564C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ ituroki.info, Jamalov Elchin | IP телефония 3CX (2022) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:CD9DD1C9ED96915F46DAA9DDEB943212E2BBADC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ VIP Notes - программа-блокнот, что несмотря на св
 magnet:?xt=urn:btih:7551F044BDA844832C13DBB7CDF896CFBEC5FD6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:7551F044BDA844832C13DBB7CDF896CFBEC5FD6F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +700,8 @@ Nocturna - Daughters Of The Night (2022) Japanese Edition [FLAC|Lossless|image +
 ```bash
 magnet:?xt=urn:btih:8EDC23DCC2088DB042B4412C5642174966365D63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Halloween Stories 6: Mark on the Bone / Хеллоуинские истории 
 magnet:?xt=urn:btih:BF5D73D7797143E0E61E87E709EFF4ED073FAD1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Cats Hidden in Paris отправляет игроков в восхитител
 ```bash
 magnet:?xt=urn:btih:74CC68A262A15A738F83F92BCC79DAA4763B501C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Bilkins' Folly - увлекательная игра, которая отпра�
 magnet:?xt=urn:btih:4B966CD760E6CA5FFAB4579506E4D2D457B9E127
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ New Joe & Mac Caveman Ninja (2022) [Ru/Multi] (2022112301) License GOG
 ```bash
 magnet:?xt=urn:btih:AFA94201FF7D3F734486839A8F02E3DBDDD5E2A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Project Wingman — это экшен с боевыми полетами, в к�
 magnet:?xt=urn:btih:F28E0C99316A06A9204261B61771E50BA4454E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Chronos: Before the Ashes (2020) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:9287D10D2DBDBC8F717B76F3645C73D681B9F55A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Phoenix Point (2020) [Ru/Multi] (1.9.3/dlc) Repack xatab [Year One Edition]
 magnet:?xt=urn:btih:7AFCDCED633D5AEF1BE22C2DDC8012E705E7EA2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Dragon Quest XI: Echoes of an Elusive Age (2018) [Ru/Multi] (1.0/dlc) Repack xat
 ```bash
 magnet:?xt=urn:btih:0F4CB91620C7911B29EF062773B2116DEA6BC304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Resident Evil 2 (2019) [Ru/Multi] (1.05u13/dlc) Repack Decepticon [Deluxe Editio
 magnet:?xt=urn:btih:2028221A35860362554ADE9E601236E7A8C6D839
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Staxel - творческая игра о фермерстве и жизни в 
 ```bash
 magnet:?xt=urn:btih:9664301124FF8412C2B37520E5464968086A5C06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Resident Evil: Revelations 2 (2015) [Ru/En] (6.0/dlc) Repack Decepticon
 magnet:?xt=urn:btih:477EC3FAA5CC1170A12233601AF121ADBDE1918D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Resident Evil® Revelations после доработки снова на пла
 ```bash
 magnet:?xt=urn:btih:04206BF588E7C498AD76757EA75948BD9C195FEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Druidstone: The Secret of the Menhir Forest (2019) [Ru] (1.2.12) Repack Other s
 magnet:?xt=urn:btih:B1F2D708AD1DA02954FE0548E5F7AD4CCC2737FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Skeleton Crew – новый захватывающий платформер, г
 ```bash
 magnet:?xt=urn:btih:4517E65980779B542C8807B9BDDB2E490941F10E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Project Wingman — это экшен с боевыми полетами, в к�
 magnet:?xt=urn:btih:16C8B4D426F3EC3B575DB444A3415E918DC190E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Living Legends 8: The Crystal Tear / Живые легенды 8: Хрустал
 ```bash
 magnet:?xt=urn:btih:4ED30EE5FF9F56D142CBED4C253BCFC914F3C062
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Halloween Stories 7: Written in Blood (2023) [En] (1.0) Unofficial [Collector's 
 magnet:?xt=urn:btih:6B5B615FEE8A90EE6D06BDE10CDB9B8444DFA48D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Resident Evil 5 (2009) [Ru/Multi] (1.2.0/dlc) Repack Decepticon [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:2986393E091399EF339C3B2F5EDA56477A4A07D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Dust to the End (2021) [Ru/Multi] (1.0.1) Repack Other s
 magnet:?xt=urn:btih:E88AC4EDEEACCFC14848310F32BECBD15B3AB89D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Alien Shooter 2 - The Legend (2020) [Ru] (1.2.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:521DF52A64255CF29FF66B33160C89F11DF59B9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Christmas Stories 9: The Christmas Tree Forest (2020) [En] (1.0) Unofficial [Col
 magnet:?xt=urn:btih:F4C0E2623A04D0F590643A80DBE850665C7E9A16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ UFO: Extraterrestrials Platinum (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:2E5362D6D2BAC4D3F26E4C61F57E8976C1BDA5E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Amok Runner сделана по мотивам новеллы Амок, напи
 magnet:?xt=urn:btih:07DE9EB0A2634CEE5E541DB4B15951C0F5A0FC47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Magicka 2 (2015) [Ru/Multi] (1.2/dlc) License HI2U
 ```bash
 magnet:?xt=urn:btih:2CAF3250A6EAF0DCF98556DF954337A1BDBA18FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Empire of Sin — новая стратегическая игра от Romero G
 magnet:?xt=urn:btih:B03D4800F33B9F8BC7C552B6695897BE457D5EA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Crossroads 2: Escaping the Dark / Перекресток 2: Побег из ть
 ```bash
 magnet:?xt=urn:btih:5CB2F548CA319A9862A523592AC68508738D2C77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

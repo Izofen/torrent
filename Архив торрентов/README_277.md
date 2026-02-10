@@ -19,6 +19,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:4060F6E1B8E6B242DC701E078EFAB49DAE0EE7D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Windows 11 PRO 23H2 22631.3447 Update 8 by Ghost Spectre x64 [En]
 magnet:?xt=urn:btih:72E76EE4AF22141E7F1E1AD6D60E529B113801A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ foobar2000 - это аудиоплеер, подкупающий своим ве
 ```bash
 magnet:?xt=urn:btih:2D5BB829228B2DC519046EF37EE4A7FABCAE36FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Antivirus Removal Tool - портативный набор официальны�
 magnet:?xt=urn:btih:7BCF813D80C26D7A666DF6B447823082642E8DF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Opera One 109.0.5097.45 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7BAA3D24A3E6FFFEB742E837C2795C47322AE5D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 magnet:?xt=urn:btih:B6D44B750FA6D8ECF9E9B58E1C1C934298B9971A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ UsbTreeView - маленькая портативная утилита, реал
 ```bash
 magnet:?xt=urn:btih:200667A059EB9C2E96466192DE75C2D180577E5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ LDPlayer 9 — мощный бесплатный эмулятор устройс
 ```bash
 magnet:?xt=urn:btih:1EBE3B72E15792139D475933B4F9F32EFE55E974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Windows 7 SP1 x64 Rus by OneSmiLe [14.04.2024]
 magnet:?xt=urn:btih:A2E6001A1CE68466F95ACF1BB4855CAC69653892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:81ED9F33695BE51BF8BC4DA6EB59C3E3CCA68049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 magnet:?xt=urn:btih:87700DF3A2CD6821E31C03E53EC65CCDA8981F8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Windows Firewall Control - утилита, с помощью которой, в�
 ```bash
 magnet:?xt=urn:btih:62113911973EE448073AB907D795B12CF014FEE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:62113911973EE448073AB907D795B12CF014FEE4
 magnet:?xt=urn:btih:18E3C35BB6EA6DA196AAB209851D017C5FFBEFA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:1E69AAD7489372EEA8C36698FDC0E1B50000AA89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Cockos Reaper является одной из самых продвинутых
 ```bash
 magnet:?xt=urn:btih:F4C74F74031376AB8D9505767993C85BC69CC4A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 magnet:?xt=urn:btih:FD37E3A8528629369A6E18EF3359B3BC613A2B52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Microsoft .Net Packages AIO 11.04.24 RePack by xetrin [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BFB2079CCAC8AADD2F926BAA3FB749E1561A003C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ OpenVPN – мощная программа для работы с частны�
 magnet:?xt=urn:btih:81652793EF464419AC657DE65813418D98D1A924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:147C02A7B9EA8DDA4C63060774966A30978C68A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Topaz A.I. Gigapixel — это первое и единственное при�
 magnet:?xt=urn:btih:6F679AE02AA8AF50509AA37E9823EAB9D7453902
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:6F679AE02AA8AF50509AA37E9823EAB9D7453902
 ```bash
 magnet:?xt=urn:btih:35C71A2C350E7E672E9499756F55753DBCDA5BCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 magnet:?xt=urn:btih:A659EF96AE0A67C91018D57FAEA8EAD7DA48DEE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Windows Firewall Control - утилита, с помощью которой, в�
 magnet:?xt=urn:btih:F9C7A793696A801075115E8B450FA92EBCCCEA68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Duolingo: изучай языки 5.146.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:47A802984E36CA8CC4084A693E22FF7D752DFEE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ ASUS GPU Tweak III - программа для пользователей вид
 magnet:?xt=urn:btih:C8C5DC5C3636EC88B30A8390C3A8AF0BC97E49D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:27E412DD6DE5E8F7D5E3386284D438F212517998
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

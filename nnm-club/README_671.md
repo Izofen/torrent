@@ -22,6 +22,8 @@ Morgenshtern (Моргенштерн) - Alisher (2025) [FLAC 24/48|Lossless|WEB-
 magnet:?xt=urn:btih:8F0BC02385965D4DAAA077FCA76B14EBBEC12CD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:8F0BC02385965D4DAAA077FCA76B14EBBEC12CD8
 ```bash
 magnet:?xt=urn:btih:8F91B74D82A2FC9CFB65993424F63D2CBCE74596
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:8F91B74D82A2FC9CFB65993424F63D2CBCE74596
 magnet:?xt=urn:btih:7F1729C56551578C1F3EE1A35469797DC0CAFE9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:7F1729C56551578C1F3EE1A35469797DC0CAFE9C
 ```bash
 magnet:?xt=urn:btih:510D1C4D0746547ED19E60FB494646DEE075D393
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:510D1C4D0746547ED19E60FB494646DEE075D393
 magnet:?xt=urn:btih:459F38DBD945C45CED1ABB67AC524C0735F91C08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:459F38DBD945C45CED1ABB67AC524C0735F91C08
 ```bash
 magnet:?xt=urn:btih:BCE47F9BE0E4D80447761736CF13ABB1054D2EEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:BCE47F9BE0E4D80447761736CF13ABB1054D2EEF
 magnet:?xt=urn:btih:D4BE90B12675A0992194F15886E1AFF78EEF544F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:D4BE90B12675A0992194F15886E1AFF78EEF544F
 ```bash
 magnet:?xt=urn:btih:7FB5482DCC281674EB4CB21C63AA811A36E9C891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Mushoku Tensei II: Isekai Ittara Honki Dasu | Реинкарнация Безр�
 magnet:?xt=urn:btih:F0E8130BC2DF799FA8D38B83F2FDDC2BE9BD245A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:F0E8130BC2DF799FA8D38B83F2FDDC2BE9BD245A
 ```bash
 magnet:?xt=urn:btih:DCE5EF48508163DDF54D004725B36293F96E3BD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:DCE5EF48508163DDF54D004725B36293F96E3BD6
 magnet:?xt=urn:btih:F52060E149F84162DC60566F1981BCCE593955F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Space Engineers - это фантастическая песочница, где
 ```bash
 magnet:?xt=urn:btih:CD3264523E3088246CDC20742816DA7B163A761B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:91C6373EF3B9DF8D4065C4D48F2E78CEC1363C29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:0A9BF72DD6C7A17E196E0AE4EC2713931AFCDC0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 magnet:?xt=urn:btih:C369C933F35809C5FB0986C4E3E0A0AB87DE09A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:C369C933F35809C5FB0986C4E3E0A0AB87DE09A9
 ```bash
 magnet:?xt=urn:btih:EC3BB3BF53DE62129EFDA28259D7259FA9331AF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:EC3BB3BF53DE62129EFDA28259D7259FA9331AF9
 magnet:?xt=urn:btih:055DFC33F4591F85234B4E0C442107E36630D820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:055DFC33F4591F85234B4E0C442107E36630D820
 ```bash
 magnet:?xt=urn:btih:0A5A4CD4847FB2D3E0674D8C574B1A07AE1CE6A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 magnet:?xt=urn:btih:D30DA46FAC02580B06E6F6A8E3F8CDED46F16AE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:D30DA46FAC02580B06E6F6A8E3F8CDED46F16AE6
 ```bash
 magnet:?xt=urn:btih:73FB1FE8031D17185CD9365AF4B3FB7325681FD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:73FB1FE8031D17185CD9365AF4B3FB7325681FD5
 ```bash
 magnet:?xt=urn:btih:84A1AEA8FFB517C8EAAF39CC354BD8033EF160B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ BOUDOIR Inspiration — это платформа и журнал, посвящ�
 magnet:?xt=urn:btih:1BE72D6758275EDCD49E8C87ACF6BF9259ECD108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:1BE72D6758275EDCD49E8C87ACF6BF9259ECD108
 magnet:?xt=urn:btih:538BB28B0612D99BEF5FA4F76EE4DB3CFEB04BEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:538BB28B0612D99BEF5FA4F76EE4DB3CFEB04BEA
 ```bash
 magnet:?xt=urn:btih:A6431D8CC74A3078467E40ADA9BDFAD79E00B488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:A6431D8CC74A3078467E40ADA9BDFAD79E00B488
 magnet:?xt=urn:btih:C24E053CA1AECD1C2518E406587D1EA022D22F28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:C24E053CA1AECD1C2518E406587D1EA022D22F28
 ```bash
 magnet:?xt=urn:btih:1B892C3706078EDF17CDC273DF308552B718C888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

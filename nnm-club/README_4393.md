@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6393E624E7AE68A59FA232FD974FE7F5BC058A14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ VA - Progressive House Vol.2 (2012) [MP3|320 кб/с]<Progressive House, Club Ho
 magnet:?xt=urn:btih:39BB26A6E9C1EC26976FAEB5B914053DDA7C138E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +85,8 @@ E. C. Scott - 4 Альбома (1995 - 2003) [MP3|320 кб/с]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -104,6 +110,8 @@ E. C. Scott - 4 Альбома (1995 - 2003) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:DE4E051C7E23A661F16DD8C6F78564FD8D4DF9DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -138,6 +146,8 @@ Various Artists - Essential Delta Blues (2009) [FLAC|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +181,8 @@ VA - Xmas Night Party (2012) [MP3|320 кб/с]<Funky, Club House>
 magnet:?xt=urn:btih:CBC2AA399A3A1C7D7FB9DCD6B68F52E3B3BA0662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +213,8 @@ Seven Daily Sins - Say Yes to Discomfort (2011) [MP3|320 кб/с]<Progressive De
 ```bash
 magnet:?xt=urn:btih:E64DAB769470773AE18ADDCD4A30372B6C78EFF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +249,8 @@ Angela - Selections (2009) [FLAC|Lossless]<Jazz Vocal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +274,8 @@ Angela - Selections (2009) [FLAC|Lossless]<Jazz Vocal>
 ```bash
 magnet:?xt=urn:btih:74138201B437A7162171FE28A0577435CB410C93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +310,8 @@ VA - Bed Time Christmas Stories (Sensualism compiled by DJ MNX) (2012) [MP3|320 
 magnet:?xt=urn:btih:04D119DF4A6D4297C1CC0BC76267DE81FB985E93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +339,8 @@ magnet:?xt=urn:btih:04D119DF4A6D4297C1CC0BC76267DE81FB985E93
 magnet:?xt=urn:btih:EA2230E5DEC8D84FD88DAF520A2E4E6392305844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +364,8 @@ magnet:?xt=urn:btih:EA2230E5DEC8D84FD88DAF520A2E4E6392305844
 ```bash
 magnet:?xt=urn:btih:525E0FE2C00E75D53F5F6ECC292416DFAE8DCB80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +397,8 @@ Alien Autopsy - Paranormal (2011) [MP3|320 кб/с]<Industrial death metal/death
 ```bash
 magnet:?xt=urn:btih:B34650FB7BFE601C40A40E26279EBD03AD8EE592
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +433,8 @@ Margie Gibson - Say it with Music (1993) [FLAC|Lossless]<Jazz Vocal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +468,8 @@ Butterfly - Favorite Colors Episode 063: End of Year 2012 (Part. 1) (22.12.2012)
 magnet:?xt=urn:btih:86BE16CA246F5FCF078C86B4924D457E94782FBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +494,8 @@ magnet:?xt=urn:btih:86BE16CA246F5FCF078C86B4924D457E94782FBA
 magnet:?xt=urn:btih:9B44AA19913CCA3FD49CCB81AF7BB858E5C2C970
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +519,8 @@ Animal Wallpapers (18.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:453733727F270240A62553EF4488423800B96BF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +548,8 @@ Freddy Todd - Sick in the City, Alive in the Woods (2012) [MP3|320 kbps]<Dubstep
 ```bash
 magnet:?xt=urn:btih:A4222B2A149210E9DDA3814AB5D6695B275FAA16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +584,8 @@ VA - Keri Gen - True Trance Nation (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:8528D18543B5A1A39328A7EFE1096370F21C1863
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +619,8 @@ VA - Trancern 2012.5 - Official Compilation (Best of 2012) (2012) [MP3|320 кб/
 magnet:?xt=urn:btih:822E91B81BF0AADE5C8F94111C059B1E77FC1051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +645,8 @@ Windows 8 x64 Pro Reactor v2 [Русский]
 ```bash
 magnet:?xt=urn:btih:24FB0DF03A78B92758921786DB5101FB4B274879
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +673,8 @@ magnet:?xt=urn:btih:24FB0DF03A78B92758921786DB5101FB4B274879
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +698,8 @@ magnet:?xt=urn:btih:24FB0DF03A78B92758921786DB5101FB4B274879
 ```bash
 magnet:?xt=urn:btih:278CBD2FD1007F68829B89C42D5580529842AA0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -681,6 +727,8 @@ Wiki, World-ArtЖанр: спорт, повседневностьРежиссе�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -705,6 +753,8 @@ Wiki, World-ArtЖанр: спорт, повседневностьРежиссе�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -728,6 +778,8 @@ Wiki, World-ArtЖанр: спорт, повседневностьРежиссе�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

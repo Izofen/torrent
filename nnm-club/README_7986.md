@@ -22,6 +22,8 @@ Math Marriage Abel and Krell - Откровение (2021) [MP3|320 Kbps] <Extre
 magnet:?xt=urn:btih:2C101229E1DADBE8DC0272FD63A208F39A68F7BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Evergrey - Escape Of The Phoenix (2021) [FLAC|Lossless|image + .cue] <Progressiv
 magnet:?xt=urn:btih:D308F45D207914F3C51BD87152FC4CF8EB32F15F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ Opera Crypto Browser 99.0.4788.47 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:CAC29E46E38ECD623B6AAA1A3912DB4ED89F623C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:CAC29E46E38ECD623B6AAA1A3912DB4ED89F623C
 ```bash
 magnet:?xt=urn:btih:A355EE48F78BC286CD9417D584F3032E3C14CE6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Aiseesoft Mac Video Enhancer - новый продукт от компании A
 magnet:?xt=urn:btih:29EFFBF84226E07A5C0606C95F4B1C8AD0DBD0A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:29EFFBF84226E07A5C0606C95F4B1C8AD0DBD0A8
 ```bash
 magnet:?xt=urn:btih:4FEB2B9CE71CB669CA768EB255622DEAFA5D6E69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Just Before Dawn - An Army at Dawn (2020) [MP3|320 Kbps] <Old School Death Metal
 magnet:?xt=urn:btih:69861605E6703C237EEA3EB349F386F6615BCB0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ The Cross - Act II: Walls of the Forgotten (2022) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:8613FA48EEF9100AAFBA084FE29BB6179B146AB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:8613FA48EEF9100AAFBA084FE29BB6179B146AB0
 magnet:?xt=urn:btih:CBD6ADC93C82A26205BFFB3552F697C02E0D98B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:CBD6ADC93C82A26205BFFB3552F697C02E0D98B5
 ```bash
 magnet:?xt=urn:btih:A501191A76462334409E4AC482D91F7B77E89DAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ Reba McEntire - Read My Mind (1994) [FLAC|Lossless|tracks + .cue] <Country Rock>
 magnet:?xt=urn:btih:1B0790EB4AE9DB87BC829E0603F7B41E02A98407
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ Carla Riehl - Heroes (1991) [FLAC|Lossless|image + .cue] <Soft Rock, Lite AOR, C
 ```bash
 magnet:?xt=urn:btih:96890B85A50B5ECA54D514B747DFAAF253E257C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +357,8 @@ Saxon - More Inspirations (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:6B6C6F45905263AC9895543985985DCB3295B9D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ Text Scanner - это мощный инструмент сканирования
 ```bash
 magnet:?xt=urn:btih:8DD101EACB18103150BA06359C7E015B8D3AA909
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +409,8 @@ magnet:?xt=urn:btih:8DD101EACB18103150BA06359C7E015B8D3AA909
 magnet:?xt=urn:btih:068A405F6741CA98449E9688DA5A2D169257A356
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:068A405F6741CA98449E9688DA5A2D169257A356
 ```bash
 magnet:?xt=urn:btih:9095DA01C5176CA34E8C46526B1E339CAEC3AEDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ magnet:?xt=urn:btih:9095DA01C5176CA34E8C46526B1E339CAEC3AEDC
 magnet:?xt=urn:btih:B247F8166A216ED38C4E48FA71E9CCB82E1ECD8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ Luminar Neo 1.0.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2D5EC7610F9C20E0535340DB7C453E055CE1F861
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ Hollywood Vampires - Live In Rio (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:F01D9B218644945161571CEBBBB281A6227F938E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +547,8 @@ VA - The Best Valentines Album In The World...Ever! (2023) [OGG Vorbis|480 Kbps]
 magnet:?xt=urn:btih:4803FA9AF9429EB373D13A84F00C5FDF02246DB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:4803FA9AF9429EB373D13A84F00C5FDF02246DB2
 ```bash
 magnet:?xt=urn:btih:FB04ABD1BAAC9D46E3F9239028598641D519311D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:FB04ABD1BAAC9D46E3F9239028598641D519311D
 magnet:?xt=urn:btih:14F9DC6D9C19736D08A2705445D5A4C52FA1AD8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:14F9DC6D9C19736D08A2705445D5A4C52FA1AD8A
 ```bash
 magnet:?xt=urn:btih:F4664EAF1B275E7ABC826A1006DE7AA5BE5950C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ Power Quest - Sixth Dimension (2017) Japanese Edition [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:95A9032BD28615E998220EE428E80592025DA2F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ House of Shakira - XIT (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
 magnet:?xt=urn:btih:1FF1689C5A68797B3B05E7DAD40ADC878F2E28F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ Aiseesoft Mac FoneTrans 9.1.66 [En]
 ```bash
 magnet:?xt=urn:btih:463E1E18CF99F45639E0DE9B162D1FC7BE69B756
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

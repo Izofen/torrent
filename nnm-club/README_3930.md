@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1C978155D55F332CD7667F159848413492E3D387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:1C978155D55F332CD7667F159848413492E3D387
 ```bash
 magnet:?xt=urn:btih:8F1F72338091D8EF40D9A9DCB2BF612471ADE41D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:8F1F72338091D8EF40D9A9DCB2BF612471ADE41D
 magnet:?xt=urn:btih:D8C24ABCAEF8A39E1E7283B1413FED516FCE3878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:D8C24ABCAEF8A39E1E7283B1413FED516FCE3878
 ```bash
 magnet:?xt=urn:btih:7403607880DFA1FE0AF4189C765EDE255AFABB12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:7403607880DFA1FE0AF4189C765EDE255AFABB12
 magnet:?xt=urn:btih:47D7BBB233B925B13D798DC41C4D748BBD6DB235
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:47D7BBB233B925B13D798DC41C4D748BBD6DB235
 ```bash
 magnet:?xt=urn:btih:8CF6F23B6D6E47BD630369F81A25144D1DD442B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Windows 10 2022 Update (под кодовым названием "22H2") это 
 magnet:?xt=urn:btih:40F4D740EC29E247F47EC8FD9C3755ECD1AC834A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Udemy, Bogdan Stashchuk | Kubernetes - Полный Курс по Kubernetes (20
 ```bash
 magnet:?xt=urn:btih:C761E6BEBF2562AAF69F62335FAC34B67E536B69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:C761E6BEBF2562AAF69F62335FAC34B67E536B69
 magnet:?xt=urn:btih:1644F1F9450D6DAFF8F62E76DC04583D927D9F1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:1644F1F9450D6DAFF8F62E76DC04583D927D9F1D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:1644F1F9450D6DAFF8F62E76DC04583D927D9F1D
 magnet:?xt=urn:btih:B79D5645846AFC07A2D295BAACCD2BDDC3F31D91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Shadow Gambit: The Cursed Crew (2023) [Ru/Multi] (1.2.133.f.r40893/dlc) License 
 ```bash
 magnet:?xt=urn:btih:B02B3488A69BBDE99C7589E50D30FA0E06DF6238
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Shingeki no Kyojin: The Final Season (2022) | Attack on Titan The Final Season (
 magnet:?xt=urn:btih:4CF69C7F7C61395FE386A26C5EE420440CE1BE36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:4CF69C7F7C61395FE386A26C5EE420440CE1BE36
 ```bash
 magnet:?xt=urn:btih:1BACD4ACDA2FE68E7B26EB6724AE5A5475CBF64C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:1BACD4ACDA2FE68E7B26EB6724AE5A5475CBF64C
 magnet:?xt=urn:btih:DF91B7A79F69D75048742E22C40623CC02106F0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:DF91B7A79F69D75048742E22C40623CC02106F0A
 ```bash
 magnet:?xt=urn:btih:A1AD7673F7BF1C986B1280C82E6C7D9AD37061E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:A1AD7673F7BF1C986B1280C82E6C7D9AD37061E0
 magnet:?xt=urn:btih:997BF98D17063896DAA81B1A637FC45D4A76C0DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:997BF98D17063896DAA81B1A637FC45D4A76C0DC
 magnet:?xt=urn:btih:7DF30FC7C8F0B2EAD7877B874A558291ACFBF8E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ The Cub (2024) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:69CFBBAB653CFEF9D02AAF8F8C311ACB7894D084
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:69CFBBAB653CFEF9D02AAF8F8C311ACB7894D084
 magnet:?xt=urn:btih:23D3980FF6FAC46BFAADB361EC4698D5F8D1C20E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Deacon Stone - That Little Girl (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:E56C217D5009599C42EEF2E64908E26475B0B44B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Dred Buffalo - Dred Buffalo (2020) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Roc
 magnet:?xt=urn:btih:6E3DE111CFDFF2F86794E4804B2F27D135986012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:6E3DE111CFDFF2F86794E4804B2F27D135986012
 ```bash
 magnet:?xt=urn:btih:710D785E5BFE314E39FC6FAEFF0CE7D02F5DAF70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ Michael Nadolny - Heart Beast (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:72F7C2AC97DFFA06F786ED2470AE094B0683DBD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:72F7C2AC97DFFA06F786ED2470AE094B0683DBD0
 ```bash
 magnet:?xt=urn:btih:4DF51C12C0ADC495524B7193EF331286EDC812BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:4DF51C12C0ADC495524B7193EF331286EDC812BF
 ```bash
 magnet:?xt=urn:btih:5E9CEEB48DE9262EABEEB3B04D13687C62CD297F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

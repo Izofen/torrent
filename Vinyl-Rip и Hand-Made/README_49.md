@@ -22,6 +22,8 @@ A4 The Roads To Iliad (Instrumental)(   Читать дальше...   )Жанр
 magnet:?xt=urn:btih:7C9ECF181107B420F04BB08026294B065A36FCAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ A3 Ut I Vannets Dyp Hvor Morket Hviler(   Читать дальше...   )Жан
 magnet:?xt=urn:btih:CEB7A67230D97F07FF5E23B6F1CAC4671B51BD22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ B1 The FrightЖанр: Black Folk MetalПродолжительность: 00:10
 ```bash
 magnet:?xt=urn:btih:A886DDBFF03D3C7ECFAC8C49F90F5501A1DFB3C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ A1d Seasons Of Seclusion (The Prison)(   Читать дальше...   )Жан�
 magnet:?xt=urn:btih:8923432A52D32990EDE7E67455F82C62975E5B62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ A4 I Ei Gran Borti Nordre Asen(   Читать дальше...   )Жанр: Blac
 ```bash
 magnet:?xt=urn:btih:66A7C03D6F8C5E8D7848014A49042F67B3AA0911
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +165,8 @@ A2 Машина Времени - Путь
 magnet:?xt=urn:btih:AFA2192E2F02FFA62F1DCFADE4DF814872045F2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ Bullet - шведская хэви-метал группа, основанная
 magnet:?xt=urn:btih:C661170641C51765D8D63B43D70D698525AF3E1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ magnet:?xt=urn:btih:C661170641C51765D8D63B43D70D698525AF3E1A
 ```bash
 magnet:?xt=urn:btih:B3EE7A2312B8522ADCE2EFF8C00475B892F02A8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -234,6 +250,8 @@ Noumena — мелодик-дэт-метал группа из Эхтяри, Ф�
 magnet:?xt=urn:btih:02B8130AB524ACE1B3C6914CD77226239A1A1653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +278,8 @@ Eucharist — шведская метал-группа, основанная в 
 ```bash
 magnet:?xt=urn:btih:B58C92B655A0974235EF4E4CA06AA1FAD14BC230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +308,8 @@ Seal - (Henry Olusegun Adeola Samuel) - британский певец и ав�
 magnet:?xt=urn:btih:77414652581AC4BA03506BA37F740B9E191C9BFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +336,8 @@ A3. Suzie Q (8:39)(   Читать дальше...   )Производство: 
 ```bash
 magnet:?xt=urn:btih:7CFCC2E0C2D272E01C5CF01265553FCC60E3C261
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +366,8 @@ A3 Белая Ночь(   Читать дальше...   )Жанр: Rock, Heavy 
 magnet:?xt=urn:btih:E42C9CABBE7ABF5E978735361F8B64F80FACE9D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +394,8 @@ magnet:?xt=urn:btih:E42C9CABBE7ABF5E978735361F8B64F80FACE9D6
 ```bash
 magnet:?xt=urn:btih:40F0F5D119F75403D0C08EFBB02654F6B2FBC17F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +424,8 @@ A4 АВИА - Шла Машина Грузовая (The Passing Lorry)(   Чит
 magnet:?xt=urn:btih:03F9CAB8636D6D22AA648427F2C0004401111BE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ magnet:?xt=urn:btih:03F9CAB8636D6D22AA648427F2C0004401111BE3
 magnet:?xt=urn:btih:4F14EE1F259D198B5DC0EF4D437637AA29DCA3BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +480,8 @@ Behind the Scenery - Melodic Death Metal группа из Германии.1997
 ```bash
 magnet:?xt=urn:btih:34AAA72DB8E8085B95AF966E6733A610E517CBDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +510,8 @@ A4 Stop, Baby, Stop(   Читать дальше...   )Жанр: Synth-pop, Clas
 magnet:?xt=urn:btih:70E8ADA202400372300268E368776B0D80B8EE7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +538,8 @@ A4 Любовта, която остава(   Читать дальше...   )Ж
 ```bash
 magnet:?xt=urn:btih:4BDA3403F6CAB1454C51DBB792713612209758C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +568,8 @@ Joe Lynn Turner - Studio Albums (11 releases) (1985 - 2022) hand made [restored,
 magnet:?xt=urn:btih:60BC13BAD60394CF97C74DB61C0E45A6083DCB12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +597,8 @@ Nuclear Assault — американская трэш-метал/кроссов�
 magnet:?xt=urn:btih:619312F4DD4A8BFE0F4CFA248B4EDE18D121009F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +623,8 @@ B - Man Ov SteelЖанр: Industrial, Progressive Death MetalПродолжит�
 ```bash
 magnet:?xt=urn:btih:5ECD61F490627987AC99F4D9587F97C78D9D5D4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +653,8 @@ CD-1 (48:51)
 magnet:?xt=urn:btih:32C3F8BE03473FF7EE213FBC12A9EE58910032A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +681,8 @@ A4 Daydream(   Читать дальше...   )Жанр: Pop, BalladПродол
 ```bash
 magnet:?xt=urn:btih:4A2A6BDD35F966321D66D3B0DC8487AD783665D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -663,6 +711,8 @@ A2 Lemon Pie(   Читать дальше...   )Жанр: Prog RockПродол�
 magnet:?xt=urn:btih:48E3B0F168FE5E6E8835206CDAC244C27EA38642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -689,6 +739,8 @@ A4 - Phreqs(   Читать дальше...   )Жанр: Experimental Death Meta
 ```bash
 magnet:?xt=urn:btih:59F62B4929AFA05E482E6E0FB6DC32187F5FC3F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

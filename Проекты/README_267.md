@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:DA8281067EE6DBE260F8B944234294AAB56408BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Winter Walk - шаблон After Effects, разработанный по мот
 magnet:?xt=urn:btih:8636F00F0F434B65A562056B40CD243012F95DBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Watercolor Logo - в этом проекте анимация логотипа �
 magnet:?xt=urn:btih:ECC5DE53EE5AA175DC2FAEF117BFBFE06ED0673F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Demo Reel - добавьте экстрима к вашим проектам с 
 ```bash
 magnet:?xt=urn:btih:776B708D74CA7D577885E93CFA0041D1D887D662
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Lessons - шаблон After Effects, разработанный по мотив
 magnet:?xt=urn:btih:47ABB70C63CD41D3F91D8798550FCE76B309B1F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Clean Pieces - демонстрация вашего логотипа или н�
 ```bash
 magnet:?xt=urn:btih:DDAA7225FF5B8A3D58AF0CDCC8AAB08EF378F443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:DDAA7225FF5B8A3D58AF0CDCC8AAB08EF378F443
 magnet:?xt=urn:btih:6213076C492A0928678D0586CD9555718A575174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Electric Logo - отличная анимация для логотипов с �
 ```bash
 magnet:?xt=urn:btih:A3B22BD67312C78D6352BD6CD1DF952232B79656
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Hypnotic II - воодушевляющий проект с быстрым и м�
 magnet:?xt=urn:btih:26E0DDD21A99956D28708F0980A8312718F93204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:26E0DDD21A99956D28708F0980A8312718F93204
 ```bash
 magnet:?xt=urn:btih:01D65B38B1F754BF97C8D145C17585380EE26207
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:01D65B38B1F754BF97C8D145C17585380EE26207
 magnet:?xt=urn:btih:DAC089BF93165CC9CF085B8DEBDF6F3BE422B999
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:DAC089BF93165CC9CF085B8DEBDF6F3BE422B999
 ```bash
 magnet:?xt=urn:btih:0518D9681D2CC80A881780E0C29E6A784B3F776B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:0518D9681D2CC80A881780E0C29E6A784B3F776B
 magnet:?xt=urn:btih:BE63BE3DC7E4838352541C225466B5051C251B00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:BE63BE3DC7E4838352541C225466B5051C251B00
 ```bash
 magnet:?xt=urn:btih:A2FF4E15D7ADCF4C11F40CA83A2FD90531B3A859
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:A2FF4E15D7ADCF4C11F40CA83A2FD90531B3A859
 magnet:?xt=urn:btih:6297B36830EDFBD37BE017CE6247E8CE8325F04C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:6297B36830EDFBD37BE017CE6247E8CE8325F04C
 ```bash
 magnet:?xt=urn:btih:E8BEA50B5B705CD6A606044755934E34A5B3416A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:E8BEA50B5B705CD6A606044755934E34A5B3416A
 magnet:?xt=urn:btih:A5E6005BFF3086334993440B792344C254488A61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:A5E6005BFF3086334993440B792344C254488A61
 ```bash
 magnet:?xt=urn:btih:71F573109CB70AE8DAB5EE247D9F54CD6B06A712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ Film Strip содержит 8 заполнителей для Ваших изо�
 magnet:?xt=urn:btih:708B172573962E50B55A50A59B90099B05A68AA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:708B172573962E50B55A50A59B90099B05A68AA5
 ```bash
 magnet:?xt=urn:btih:261AF25AE174D10E08D7D28550B516705A104EC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:261AF25AE174D10E08D7D28550B516705A104EC0
 magnet:?xt=urn:btih:D0110432193BAAA383DD2919635D6AC0C7534EF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ Urban Glitch Opener - шаблон глюк эффектов, быстрый т�
 magnet:?xt=urn:btih:E25D0084ABC9286B0F01954ABD5679DC232983ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:E25D0084ABC9286B0F01954ABD5679DC232983ED
 ```bash
 magnet:?xt=urn:btih:FBD673B11CED7FE164D0E5130022287483C08A63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ Speed Lines - в двух разных вариантах для ваших пр
 magnet:?xt=urn:btih:F4475F5E7B0B260D9A9C4C747B4799CAF9604043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:F4475F5E7B0B260D9A9C4C747B4799CAF9604043
 magnet:?xt=urn:btih:A3FCE87C4471FA2525259E5AFFACDF21411DCD9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:A3FCE87C4471FA2525259E5AFFACDF21411DCD9A
 ```bash
 magnet:?xt=urn:btih:E5DE8D9A41275BCA9193F51CE4AED05DDD72C3F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

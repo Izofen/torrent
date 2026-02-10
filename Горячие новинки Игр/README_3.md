@@ -19,6 +19,8 @@ Metal Eden – научно-фантастический адреналинов�
 magnet:?xt=urn:btih:F5F8C1130B860064F74982AC266C0C637F0A08EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Neyyah - приключение Point-and-click с видом от первог�
 ```bash
 magnet:?xt=urn:btih:537817ED23B752ED0D5E15A7554AF0400653A89A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Metal Eden – научно-фантастический адреналинов�
 magnet:?xt=urn:btih:62370F4104700A197D4F8FF7481EB31F44743933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Otherskin (2025) [Ru/Multi] (Build 19817814) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:562DF374F5A94912DFCE76E2D9370B9B6EC01456
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Hell is Us - это приключенческий экшен от третье�
 magnet:?xt=urn:btih:74C3A29F6313110C54437332C41AE6F115DB8C9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Rogue Hex - это проект, объединяющий элементы ко�
 ```bash
 magnet:?xt=urn:btih:45186DAEAB8FAEF2D650323C0F89F09A78A55053
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Ra Ra BOOM (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:72DEF164072D48A6F014298DB888DC8922968BDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Dark Queen of Mortholme (2025) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:66496BFD86F6816CAE7846B26F29B7B29BF3ABB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Relic Hunters Legend - это быстрая RPG в жанре looter-shooter, �
 magnet:?xt=urn:btih:1623ED38B4D93EEE73C0CDCD4791B83F175AA50F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Hell is Us - это приключенческий экшен от третье�
 ```bash
 magnet:?xt=urn:btih:CB573B03BAC9CD4FB21C0F1111B59D4BDF2C3853
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.4) Repack Let'sРlay
 magnet:?xt=urn:btih:A1A2F98D53B1DA7CFA3995DDFBA0B6B25A61B929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 ```bash
 magnet:?xt=urn:btih:A468F8BA0348F258BA6A459010EB4EFA3972B564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Hell is Us - это приключенческий экшен от третье�
 magnet:?xt=urn:btih:38151E93FBBF0E0EB2F814D674CBD7FBFD80E023
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Otherskin (2025) [Ru/Multi] (Build 19817814) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:6BAB06644CD7313152992F9FA4EC3D988A6FF4E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ INCISION (2022) [En] (1.0) License GOG
 magnet:?xt=urn:btih:65AB1A11AF971A61BFEE2625950E53689D653A5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Shantae Advance Risky Revolution (2025) [Multi] (1.0.2/dlc) Repack Let'sРlay [D
 ```bash
 magnet:?xt=urn:btih:A733CC6613DE2AE186C76CE3911FB86B31B76B5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Relic Hunters Legend - это быстрая RPG в жанре looter-shooter, �
 magnet:?xt=urn:btih:0DDA220FAABE60A34481B73687AB7464ECED8697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Artis Impact (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5CE356DFD411DCDDE0B8A70EF62AD987B824910C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Forgotten Realms: Demon Stone (2025) [Ru/Multi] (BuildID 19330718) Repack FitGir
 magnet:?xt=urn:btih:7C6888D1AF24DC2F80E777B40B231F45A4CE7F09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ World War Z VR – это иммерсивный однопользовател�
 ```bash
 magnet:?xt=urn:btih:CFC7B653449E80DFD79984C3C2079D331EAE13BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Alien: Rogue Incursion Evolved Edition (2025) [Ru/Multi] (Build 20147338/dlc) Re
 magnet:?xt=urn:btih:8247026EF6408A04D3A461D54F7E9C19209FF73E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Lord Ambermaze - это увлекательное приключение на �
 ```bash
 magnet:?xt=urn:btih:63B60D6116FBB6787E0F0838A9E58C8DA0A6D151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Heartbeat in Thailand / Сердцебиение в Таиланде (2025) [Ru/
 magnet:?xt=urn:btih:21D1907856B102ADFDA8806E49F8586DC6C2FD07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Puzzle Quest: Immortal Edition (2025) [Ru/Multi] (1.0.0.3388) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A92BC2261FD810E6CCC78F880AD89905A2A3785F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Wobbly Life - яркая и динамичная песочница, делаю�
 magnet:?xt=urn:btih:939476A43CFFE3629723D6A222B8B680955FD358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Strange Antiquities (2025) [Ru/Multi] (1.0.29) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:DE3308C1DD552B3FEE899D8385B63AD2F66E3B5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

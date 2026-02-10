@@ -22,6 +22,8 @@ VA - Discofox Megahits Vol.4 (2018) [MP3|320 Kbps] <Schlager>
 magnet:?xt=urn:btih:ABA1C7B2B15C377B958F455F823F1069331445D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Cloud One - 2 Albums (1976, 1977) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:6CCF229EDC6115643C05D8C068B6B27694143B1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Blue Hawaii - Open Reduction Internal Fixation (2019) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:9C54598AB9EB3712A644398815B99CAAB928385C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Samantha Fox - Disco Collection (2001) [MP3|320 кб/с]<Pop, Disco, Retro>
 ```bash
 magnet:?xt=urn:btih:4F26B7BD71FBEE864141CB87A8BEA1F6D0971E83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,38 @@ VA - Barbra Streisand & Partners (2014) [FLAC|tracks + .cue]<Pop, Vocal, Ballad>
 magnet:?xt=urn:btih:14B29E67FBAB2436644426AF6B1082B6EE99B197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 581487   (337430) от 27.11.2012
+
+Enrique Iglesias - 12 альбомов + 7 синглов (1995-2011) [MP3|320 кб/с]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_337430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glam As You Club Mix by Guena LG [07:59]
+02. Junior Caldera Club Mix [05:20]
+03. Jody Den Broeder Club Mix [07:51]
+04. Jody Den Broeder Dub Mix [07:51]
+05. Jody Den Broeder Radio Mix [03:59]Жанр: Pop, DanceПродолжительность: 00:33:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +196,8 @@ VA - 1982 The Collection (Time Life) (1994) [FLAC|Lossless]<Pop, Rock, Jazz, Ele
 ```bash
 magnet:?xt=urn:btih:4E67AADE6C3D52F950E742B6988436A113D18BC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +226,8 @@ Missio - Discography (2016-2020) 3 Albums, 2 EP's, 14 Singles [FLAC|Lossless|WEB
 magnet:?xt=urn:btih:370F6C3127BCB777419624BC919C643BFC3C6180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +254,8 @@ VA - Christmas 2020 Songs (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Chris
 ```bash
 magnet:?xt=urn:btih:2113136AF159E42FE3AB51C1753E85568A161542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +290,8 @@ Ricchi E Poveri - Perdutamente Amore (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:B8DE02E58D05628B39DA3BDAC470A9DCE6B20018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +325,8 @@ magnet:?xt=urn:btih:B8DE02E58D05628B39DA3BDAC470A9DCE6B20018
 magnet:?xt=urn:btih:09630FB291C0A826984756C66DD0BDD722A5E197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +353,8 @@ Frequenz - The First Album / Телефонный поцелуй (2000) [MP3|320
 ```bash
 magnet:?xt=urn:btih:98F49E259512C450FD6A7632A75E9FD0B58B5B1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ VA - Cosmic Future Groove Vol. 2 (2012) Spaced Out Disco & Funkified Electronic 
 magnet:?xt=urn:btih:F29A524ECE2ED8B7AD41E47A252E01F898775D5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ Soraya - Soraya (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:B5E8B09D01E7CB5154DF4541A48C1009EBC30688
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,34 @@ VA - Cosmic Future Groove Vol. 1 (2010) Spaced Out Disco & Funkified Electronic 
 magnet:?xt=urn:btih:CD6CAB453817666EA6205B73B92FB36630B8EE12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 411091   (338561) от 16.11.2011
+
+Gianni Morandi - Questa E' La Storia (1994) [FLAC|Lossless]<Italo-pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_338561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Italo-popПродолжительность: 01:16:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +495,8 @@ Robbie Williams - XXV (2022) (2 CD) [OGG Vorbis|484 Kbps] <Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:13E0B028E2E3C274D29F893958948BDE1D9E2CEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +525,8 @@ Madonna - You'll See (1996) [OGG Vorbis|485 Kbps] <Electronic, Rock, Synth-pop>
 magnet:?xt=urn:btih:686099CE612F299AD17AA64122727E3C07E5FE23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +553,8 @@ VA - Grammy Nominees 2016 [MP3|320 кб/с] <Pop, Country, Rock>
 ```bash
 magnet:?xt=urn:btih:EC5368E1C9C55B2B1DA86C95AABA77DFFC825722
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +583,8 @@ RSAC x ELLA - ФЕЛЛА (2019) [MP3|320 Kbps] <Alternative Pop, Indie Pop, Elec
 magnet:?xt=urn:btih:857F39C40912EA64D53A5D72FD35037739C2B036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +608,8 @@ VA - W9 Hits 2020 (2019) 4CD [MP3|320 Kbps] <Pop, Dance, Rock>
 ```bash
 magnet:?xt=urn:btih:93E949035B382CCC215C8CA89E4A07FAC419CA6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +638,8 @@ Oblivion - Voyage To Discovery (2017) [FLAC|Lossless|WEB-DL|tracks] <Disco, Spac
 magnet:?xt=urn:btih:1BD5530CB1BC6FB94B3A13D032794874DF7A76DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +666,8 @@ Vol.1, CD1:
 ```bash
 magnet:?xt=urn:btih:48AD20075F6E339EB4079E7D535DE7728312CCFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +696,8 @@ Dominique Guiot - L'Univers De La Mer (1978) LP [MP3|320 Kbps] <Electronic, Left
 magnet:?xt=urn:btih:06503F703070551276573944413D0374BC2894A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +724,8 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:86F0E31BBEDCD7616A31D7523AC5ECF8F4B24DAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,59 +754,7 @@ CD1
 magnet:?xt=urn:btih:4D6C526FDF9A6488B7174EF0A37B7B3B7DF3FE52
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954677   (339466) от 08.11.2015
-
-Secret Service - Disco Collection (2001) [MP3|320 кб/с]<Synthpop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh Susie (03:37)
-02. Cry Softly (Time Is Mourning) (03:31)
-03. Ten O'Clock Postman (03:38)
-04. Let Us Dance Just A Little Bit More (04:25)(   Читать дальше...   )Жанр: Synthpop, DiscoПродолжительность: 01:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2658F0F0542E8C03AC950AEC9B2F533AFF14A836
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954613   (339478) от 08.11.2015
-
-Lara Fabian - Ma vie dans la tienne (2015) [MP3|320 кб/с]<Pop, Classical>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_339478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quand je ne chante pas
- 02. Ma vie dans la tienne
- 03. Le desamour
- 04. S'il ne reste qu'un ami(   Читать дальше...   )Жанр: Pop, ClassicalПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB8518A595AC4389EBB115EAE2F69B85EAB2D377
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

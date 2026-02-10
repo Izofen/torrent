@@ -19,6 +19,8 @@ Driver Genius - программа для управления драйвера�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Driver Genius - программа для управления драйвера�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Driver Genius - программа для управления драйвера�
 magnet:?xt=urn:btih:C4B1A572BC9F28BD65BADEBC64AB9D5D55B0991C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:C4B1A572BC9F28BD65BADEBC64AB9D5D55B0991C
 ```bash
 magnet:?xt=urn:btih:54B0D8FF96A05CEE94D1A9EB12E96909B7A88D5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ CrystalDiskInfo отслеживает состояние жёстких дис�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ CrystalDiskInfo отслеживает состояние жёстких дис�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ CrystalDiskInfo отслеживает состояние жёстких дис�
 ```bash
 magnet:?xt=urn:btih:3EAB58F1C0E1B4513E98457435CCD9893D765C74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:3EAB58F1C0E1B4513E98457435CCD9893D765C74
 magnet:?xt=urn:btih:8F38C5DCB875FE3C3DA78D70AC05F27DF5853AD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:8F38C5DCB875FE3C3DA78D70AC05F27DF5853AD1
 ```bash
 magnet:?xt=urn:btih:594DA2F1D41D3287340B19DF353E714BCFB5B5D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ Photo Collage Max – программа, которая создает фото
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ VLC Media Player - медиа-плеер,  проигрывает аудио и 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ VLC Media Player - медиа-плеер,  проигрывает аудио и 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ VLC Media Player - медиа-плеер,  проигрывает аудио и 
 ```bash
 magnet:?xt=urn:btih:D4B38E6375A74AE977F4ED6E10762B6E126B5851
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ Brown Eyed Girls - Plastic Face (Lady Gaga - Poker Face) (2012) HDTVRip
 magnet:?xt=urn:btih:7E629340E18C8FB65F74A357D3CCBB840F356E63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ Desktop Wallpapers (17.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:C36152866E8E4C1E402E74B382C36B589E68B069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ Blu-ray Player имеет полную поддержку Bluray фильмов,
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ VA - Shakti TandaV (2012)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +499,8 @@ Evil Not Alone - Just FUCK! (2012) [MP3|320 kbps] <Nu-Metal / Rapcore>
 magnet:?xt=urn:btih:65CF7BC2AE4BD5BD752B1ECB14B9FE75DDDDE1D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +534,8 @@ Ludovico Technique - Some Things Are Beyond Therapy (2012) [MP3|256-320 kbps] <I
 magnet:?xt=urn:btih:F4E009B4F91EFE995804B9B07E0794415453EEB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +559,8 @@ Opera – один из самых популярных браузеров, об
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +588,8 @@ Opera – один из самых популярных браузеров, об
 magnet:?xt=urn:btih:903053DBFF3964A105AF0C159DAC2402C43425DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +613,8 @@ Jethro Tull - 20 Years Of J. T. The Definitive Collection (1988) [FLAC 2.0 24/96
 ```bash
 magnet:?xt=urn:btih:CEE9BBE50B801B0CE8D6BB572323A0C79932DE13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +641,8 @@ magnet:?xt=urn:btih:CEE9BBE50B801B0CE8D6BB572323A0C79932DE13
 magnet:?xt=urn:btih:DD5A706774C4625482BBCE0AC7BA90F2101B8E5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +667,8 @@ magnet:?xt=urn:btih:DD5A706774C4625482BBCE0AC7BA90F2101B8E5B
 magnet:?xt=urn:btih:71F9987C049B25AEB6617B9989058E2A55159F9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +692,8 @@ RedNotebook - это простое GTK+ / Gnome приложение напис
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +722,8 @@ RedNotebook - это простое GTK+ / Gnome приложение напис
 ```bash
 magnet:?xt=urn:btih:BF89CDE1FD2D4196B0D21D4EF856FCA953D4DF89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

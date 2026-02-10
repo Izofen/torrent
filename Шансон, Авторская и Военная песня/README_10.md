@@ -22,6 +22,8 @@ iSenin - Москва кабацкая (2025) [MP3|320 Kbps] <Chanson>
 magnet:?xt=urn:btih:681522F59C055D6FA90ADB235E4C418E99A11844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:681522F59C055D6FA90ADB235E4C418E99A11844
 ```bash
 magnet:?xt=urn:btih:5BDC5C5FF35E7C4625A2E7F02DD8AF3932686BBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:5BDC5C5FF35E7C4625A2E7F02DD8AF3932686BBE
 magnet:?xt=urn:btih:C231BEFBB3D49B0E62BBDEB88D579E633E9C6794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:C231BEFBB3D49B0E62BBDEB88D579E633E9C6794
 ```bash
 magnet:?xt=urn:btih:2CA5726D9841EDC2A90156A5A3506FFD388078B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:2CA5726D9841EDC2A90156A5A3506FFD388078B5
 magnet:?xt=urn:btih:7282B4E7DD6CABAC8794C18F54E685C0752A4A75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:7282B4E7DD6CABAC8794C18F54E685C0752A4A75
 ```bash
 magnet:?xt=urn:btih:233DEC8D524FEDF63A8801E9371C58D3CD5FFC5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Шансон премьера 2025 апрель (Новые песни. Н�
 magnet:?xt=urn:btih:1D9126D64A6298089E05AE0BE2C20A050974113B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:1D9126D64A6298089E05AE0BE2C20A050974113B
 ```bash
 magnet:?xt=urn:btih:38CE6C96886FDACA69893B5FB8E2B2A809EDF8AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:38CE6C96886FDACA69893B5FB8E2B2A809EDF8AA
 magnet:?xt=urn:btih:6A81D454BA4D525BFABF6B9C7A20CB5BBC0DA38A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:6A81D454BA4D525BFABF6B9C7A20CB5BBC0DA38A
 ```bash
 magnet:?xt=urn:btih:CAB489702C4C195C28558BF1DA2B002E2B44468B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:CAB489702C4C195C28558BF1DA2B002E2B44468B
 magnet:?xt=urn:btih:62B601C3CC43808379D0D40C25D7417312576004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:62B601C3CC43808379D0D40C25D7417312576004
 ```bash
 magnet:?xt=urn:btih:4C2209CA3481B51D8753BF4B3C1AA201607718F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:4C2209CA3481B51D8753BF4B3C1AA201607718F8
 magnet:?xt=urn:btih:2882CE748E65B9537C823484A6BBF814A91B09FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:2882CE748E65B9537C823484A6BBF814A91B09FC
 ```bash
 magnet:?xt=urn:btih:6401094F99AD86B3C72BC8E6D735AD94D6821079
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ magnet:?xt=urn:btih:6401094F99AD86B3C72BC8E6D735AD94D6821079
 magnet:?xt=urn:btih:BEE57D82431C9C929AE76F75D1E837E7F7FB66FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:BEE57D82431C9C929AE76F75D1E837E7F7FB66FC
 ```bash
 magnet:?xt=urn:btih:5A38A5AD62744780527D4E8419CB333226A7746C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Новые хитовые песни 2025, Часть 4 (2025) [FLAC|Lossle
 magnet:?xt=urn:btih:5D1CDCEEE54FCD586F98AE4551B09138264F4622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Плакала весна (Красивые весенние песни) (2
 ```bash
 magnet:?xt=urn:btih:069D425906C11C1B191FFCCE9EE43B1C9BCFCF00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:069D425906C11C1B191FFCCE9EE43B1C9BCFCF00
 magnet:?xt=urn:btih:24E1D4FB4B10C9B2AD963A658AF39D9CAA94BA11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Днесь. Трибьют. Стихи Анатолия Мариенгоф�
 ```bash
 magnet:?xt=urn:btih:36E6B203CD11A69CBCA9A254F81E3D462E39F2D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ magnet:?xt=urn:btih:36E6B203CD11A69CBCA9A254F81E3D462E39F2D5
 magnet:?xt=urn:btih:D92BBD8928C6FAC5EE287DD64F5625965D4291A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ magnet:?xt=urn:btih:D92BBD8928C6FAC5EE287DD64F5625965D4291A0
 ```bash
 magnet:?xt=urn:btih:5DD6014C10D094531B6BC84AE13A18223AD0352D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ magnet:?xt=urn:btih:5DD6014C10D094531B6BC84AE13A18223AD0352D
 magnet:?xt=urn:btih:4C1E86083FEC3672D82EFBD4E94A8A0B983E04E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ magnet:?xt=urn:btih:4C1E86083FEC3672D82EFBD4E94A8A0B983E04E8
 ```bash
 magnet:?xt=urn:btih:095406C1F57E58E33FBA1BF5B92DE4FB3FEA5783
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ magnet:?xt=urn:btih:095406C1F57E58E33FBA1BF5B92DE4FB3FEA5783
 magnet:?xt=urn:btih:92A2769F270A62C474453E28EC52D10CE34B3FC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ VA - Авторский сборник Шансона otKOSTETa (2025) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:4DDE5AF0B46A2BD404729090387F1F876C6E7C75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

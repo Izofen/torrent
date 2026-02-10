@@ -19,6 +19,8 @@ Umbrella - это уникальное решение для блокировк�
 magnet:?xt=urn:btih:617E1F4509AC0094DDB340E7CF777562E11787DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Zemana Antivirus 2021: Anti-Malware & Web Security v2.0.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:0B34D77C7C487E0F3FCDD5B274EC39B15081AC36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:0B34D77C7C487E0F3FCDD5B274EC39B15081AC36
 magnet:?xt=urn:btih:9F3347E59EAE810589D35DD8F08EC32CB476D8E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ NEW! Получите больше, чем лучший антивирусный
 magnet:?xt=urn:btih:AD19B3B0D46E4A7E92A8AEE0089D12695EE48A4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ AVG AntiVirus 2021 v6.39.5 [Ru] - Free Mobile Security
 ```bash
 magnet:?xt=urn:btih:701A8BC9AF8380FE7F0BFA0134A6327532F1CEBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Artly v2.9.2 [Ru] - Learn Art History, Artworks & Paintings
 magnet:?xt=urn:btih:2B51AA9CE7A8A489F4A03E09864AAA1E48615B46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Dictionary.com Premium v9.7.2 [En]
 magnet:?xt=urn:btih:1190592D6638F0F2BF0F328E1D6D377A1507A0FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ MagicPlan захватывает размеры помещения с камер
 ```bash
 magnet:?xt=urn:btih:98AACDDE90B5CDF4F135EFD49C2F2C877E13F35E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Text Scanner v4.1.7 [Ru/En] - извлечение текста из изобр�
 magnet:?xt=urn:btih:069141DF8AA7F55AF811B3A01B467658C6E45822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:069141DF8AA7F55AF811B3A01B467658C6E45822
 ```bash
 magnet:?xt=urn:btih:6831294272538B60522FE3C19904A65E31B6ACB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ POIbase speed camera warner V7.2.3 [Ru]
 magnet:?xt=urn:btih:682102D651AF206493B53F1F9432088CD372DF5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ Dictionary - Merriam-Webster v5.1.1 [En]
 magnet:?xt=urn:btih:FD3F2E2E645E06BBF486B16E4C94112CD7C5AB3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Ultra Volume v3.5.4 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:031B5EB54CCB1C9A529CC189ACC53B0319EA29C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ AUG Launcher - удобный, многофункциональным и быс�
 magnet:?xt=urn:btih:619011FD593060253BC7DE825289E5B25A02ACAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ Mubert — мобильное приложение, которое генери�
 ```bash
 magnet:?xt=urn:btih:1CCD3A07DDF7519B3C7A25A0CB5870EB2C482883
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:1CCD3A07DDF7519B3C7A25A0CB5870EB2C482883
 magnet:?xt=urn:btih:CC80A2FDA2294183898D92FEF9EDAA1BA7969C7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:CC80A2FDA2294183898D92FEF9EDAA1BA7969C7A
 ```bash
 magnet:?xt=urn:btih:E51F5D9BFF6231704614DC16F3C05BCE74D6DD97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ Total - Recall Call Recorder – отличная программа для за
 magnet:?xt=urn:btih:BCC75EB7AF557041BBAA7DC644CBAAACC0A1EA9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ Parrot - это приложение для записи голоса, кото�
 ```bash
 magnet:?xt=urn:btih:09245EA4E15C3F6BC0CF9F5F44A4DF24F1732EE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ SoloLearn - это крупнейшая библиотека материало�
 magnet:?xt=urn:btih:654854D0A0363A379F3FB20F487AC68869538D00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ MIUI Калькулятор v12.3.12 + v12.2.0 (Mods) [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0C12145048A1CE9577745C21A1C4CFCFF9E6E852
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:0C12145048A1CE9577745C21A1C4CFCFF9E6E852
 magnet:?xt=urn:btih:7AD82D605218850848CB8B5E1089840B60F7FAD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ Mi Видео - бесплатный просмотр и загрузка вид
 ```bash
 magnet:?xt=urn:btih:8E139B5BB078E5C9575E5F0B939D2E3168684335
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ My Android Tools. Приложение от разработчика небез�
 magnet:?xt=urn:btih:C447C24DBCDC7CFBC59BBC6835C87B1C6A543AB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ Leanback on Fire 1.48 [Ru/En]
 magnet:?xt=urn:btih:812DB8B04199FCB257D00A0787CE2542059FDFE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Wide Launcher - лаунчер с уникальной концепцией, к�
 ```bash
 magnet:?xt=urn:btih:2004058E9DC3565DF11D71EB0F4C7CE2F7AE7960
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,55 @@
+###  Публикация: 1507172   (798636) от 03.11.2021
+
+Снег, чай и любовь / Zapada, Ceai si Dragoste (Snow, Tea and Love) (2021) WEB-DLRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трое мелких воришек бегут из тюрьмы с помощью местного гангстера и магического зелья телепортации. Вскоре они замышляют новое ограбление.Производство: Румыния / Zolit FilmЖанр: Комедия, фантастикаРежиссер: Каталон БунганАктеры: Андреас Петреску, Ралука, Александра Тимофт, Анка Динасу, Драгос Думитру, Кристи Джейкоб, Левент Сали, Ливию Варси, Ангел Попеску, Dan NegruПеревод: Многоголосый профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:53:46Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD841151866890501EFD4DDEF19B16DAA752F6C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507171   (798707) от 03.11.2021
+
+Снег, чай и любовь / Zapada, Ceai si Dragoste (Snow, Tea and Love) (2021) WEB-DLRip [H.264/1080p-LQ] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трое мелких воришек бегут из тюрьмы с помощью местного гангстера и магического зелья телепортации. Вскоре они замышляют новое ограбление.Производство: Румыния / Zolit FilmЖанр: Комедия, фантастикаРежиссер: Каталон БунганАктеры: Андреас Петреску, Ралука, Александра Тимофт, Анка Динасу, Драгос Думитру, Кристи Джейкоб, Левент Сали, Ливию Варси, Ангел Попеску, Dan NegruПеревод: Многоголосый профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:53:46Реклама: Присутствует баннер.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:621A4DB82CF5920C0FABAADFE313F90766117F63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506979   (798914) от 02.11.2021
 
 Плавучий маяк / Lightships (2021) WEB-DLRip [H.264/720p-LQ] [MVO] [AD]
@@ -18,6 +70,8 @@
 ```bash
 magnet:?xt=urn:btih:01755F242DC432A6A9B1076DED34DBCC914EE8D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +99,8 @@ magnet:?xt=urn:btih:01755F242DC432A6A9B1076DED34DBCC914EE8D5
 magnet:?xt=urn:btih:5F3A423179328320675C9D889DA0ED50D6880271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +124,8 @@ magnet:?xt=urn:btih:5F3A423179328320675C9D889DA0ED50D6880271
 ```bash
 magnet:?xt=urn:btih:C70032B6EEFB1FB82756A0F7BDF796F8BA03BCF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +151,8 @@ magnet:?xt=urn:btih:C70032B6EEFB1FB82756A0F7BDF796F8BA03BCF6
 magnet:?xt=urn:btih:E0C147FF8573DEF79921278D83F0061DA12CF387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +176,8 @@ magnet:?xt=urn:btih:E0C147FF8573DEF79921278D83F0061DA12CF387
 ```bash
 magnet:?xt=urn:btih:BB1D9433A7FFD823964055695C149BAA86EAAE82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +203,8 @@ magnet:?xt=urn:btih:BB1D9433A7FFD823964055695C149BAA86EAAE82
 magnet:?xt=urn:btih:BB897B5B3061CC2D2F19D0641E1BD0A56F2D7F9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +228,8 @@ magnet:?xt=urn:btih:BB897B5B3061CC2D2F19D0641E1BD0A56F2D7F9F
 ```bash
 magnet:?xt=urn:btih:B707DA4F76E39732BB0AABC10498F320001684EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +255,8 @@ magnet:?xt=urn:btih:B707DA4F76E39732BB0AABC10498F320001684EF
 magnet:?xt=urn:btih:3FF3591B6B9CF415D0DAE916DC5CFCB7F0DD7E0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +280,8 @@ magnet:?xt=urn:btih:3FF3591B6B9CF415D0DAE916DC5CFCB7F0DD7E0C
 ```bash
 magnet:?xt=urn:btih:2FF6A29B5F69D02081483E3E8EDAF1A762FA974D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +307,8 @@ magnet:?xt=urn:btih:2FF6A29B5F69D02081483E3E8EDAF1A762FA974D
 magnet:?xt=urn:btih:9C6D8086E89DD846E3D35E84B5B66D3DEAC7E656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +332,8 @@ magnet:?xt=urn:btih:9C6D8086E89DD846E3D35E84B5B66D3DEAC7E656
 ```bash
 magnet:?xt=urn:btih:683A994BF730D32FA46C9373ECC7BC9939AB8321
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +359,8 @@ magnet:?xt=urn:btih:683A994BF730D32FA46C9373ECC7BC9939AB8321
 magnet:?xt=urn:btih:7240BBA6E2A46F4996C9AFB77E1D8DC5FB96D7EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +384,8 @@ magnet:?xt=urn:btih:7240BBA6E2A46F4996C9AFB77E1D8DC5FB96D7EF
 ```bash
 magnet:?xt=urn:btih:63870F0A7EAC77EBD6FB671E493BB456C72857EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +411,8 @@ magnet:?xt=urn:btih:63870F0A7EAC77EBD6FB671E493BB456C72857EE
 magnet:?xt=urn:btih:CABDC53FD27C18BAB5D2E1294DEB1462E7FBC852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +436,8 @@ magnet:?xt=urn:btih:CABDC53FD27C18BAB5D2E1294DEB1462E7FBC852
 ```bash
 magnet:?xt=urn:btih:579654325CDDA23C6319CA92DF608AE39D86B438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +463,8 @@ magnet:?xt=urn:btih:579654325CDDA23C6319CA92DF608AE39D86B438
 magnet:?xt=urn:btih:B6637259CCCFE2F9AA0F2FC203AA48E8F44971E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +488,8 @@ magnet:?xt=urn:btih:B6637259CCCFE2F9AA0F2FC203AA48E8F44971E7
 ```bash
 magnet:?xt=urn:btih:35484EF2A37C2D803490871FFD9504A198C88B1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +515,8 @@ magnet:?xt=urn:btih:35484EF2A37C2D803490871FFD9504A198C88B1C
 magnet:?xt=urn:btih:F94A946C1CD96D6C34FC6F28049F04DE128FED73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +540,8 @@ magnet:?xt=urn:btih:F94A946C1CD96D6C34FC6F28049F04DE128FED73
 ```bash
 magnet:?xt=urn:btih:39BD78E6BBFEDF18D702FDE288B54FF03081373D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +567,8 @@ magnet:?xt=urn:btih:39BD78E6BBFEDF18D702FDE288B54FF03081373D
 magnet:?xt=urn:btih:3AAA2369CAC8488DF78639914CA852D99B52EF4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +592,8 @@ magnet:?xt=urn:btih:3AAA2369CAC8488DF78639914CA852D99B52EF4F
 ```bash
 magnet:?xt=urn:btih:633502E7251721C713DD3B614797481A10CCECFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +619,8 @@ magnet:?xt=urn:btih:633502E7251721C713DD3B614797481A10CCECFD
 magnet:?xt=urn:btih:5ADDD19AAFD6650147FD160A26FFC0906764157E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +644,8 @@ magnet:?xt=urn:btih:5ADDD19AAFD6650147FD160A26FFC0906764157E
 ```bash
 magnet:?xt=urn:btih:7C68580B99C461B9CB36FF3FF9FC19C206F6A8D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,53 +671,7 @@ magnet:?xt=urn:btih:7C68580B99C461B9CB36FF3FF9FC19C206F6A8D6
 magnet:?xt=urn:btih:9AD3F081207252CDFAF6AF37B0A824F85BC6D393
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384994   (800710) от 22.05.2020
-
-Интерпретаторы / Interpreters (2019) WEB-DLRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Странный преступник с помощью передовых технологий расправляется с жителями Саллена. Расследуя убийства, управление шерифа и бывший наёмник раскрывают, что угроза куда страшнее.Производство: США / Archetype PicturesЖанр: Фантастика, триллерРежиссер: Майкл РайанАктеры: Терри Маратос, Кристофер Криса, Рэйчел Килиан, Энди Фриман, Эшли Брекен, Sophia Ferguson, Вольфганг Дж. Вебер, Эйс Марреро, Стефан Хайек, Мэнни ЭрнандесПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:57:51Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A17CFE44AF3EAC0C5EB6A4D2851474372E5EB44E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196177   (800875) от 16.01.2018
-
-А вот и Полли / Along Came Polly (2004) HDRip [H.264] [Hand Made Extended Cut]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_800875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герою этой картины, страховому эксперту Рубену Феффер, крупно не повезло: он «застукал» свою молодую жену с накачанным инструктором по подводному плаванью прямо во время медового месяца! И теперь все планы на счастливое будущее с женщиной мечты, которые Рубен холил и лелеял, полетели в тартарары! Но неожиданно, на горизонте безутешного Феффера, появляется старая (   Читать дальше...   )Производство: США / Jersey Films, Loofah ProductionsЖанр: Комедия, МелодрамаРежиссер: Джон ГамбургАктеры: Бен Стиллер, Дженнифер Энистон, Филип Сеймур Хоффман, Дебра Мессинг, Алек Болдуин, Хэнк Азария, Брайан Браун, Хсу Гарсиа, Мишель Ли, Боб ДишиПеревод: Дублированный с вставками любительского псевдо-дубляжа ''Dars Group''Субтитры: ОтсутствуютПродолжительность: 01:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ECCF9CEA6B821A370B4AFEAC8C2E503B25A70A3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

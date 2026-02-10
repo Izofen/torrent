@@ -28,6 +28,8 @@
 magnet:?xt=urn:btih:C9DF754251B03200D9DF705377B201BC5176FF1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Hans Zimmer - Dune (3 CD) (2021) Music From The Soundtrack [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:D032DCF0CAE22267D017541C2EDD5F90EB6EFA8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ VA - Ёлки 5 (Музыка к фильму) (2016) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:0D314B0A6D2F848B11201FC11512D89217B323A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -109,6 +115,8 @@ Hans Zimmer - Dune Sketchbook (2021) Music from the Soundtrack [FLAC2.0|24/48|tr
 magnet:?xt=urn:btih:49D25D5FE09EE0B63979CD592596882221977625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ Photek - Need for Speed (EA Games Soundtrack) (2016) [MP3|320 кб/с] <Electron
 ```bash
 magnet:?xt=urn:btih:94E39EB4863FA08D7EEF69C0AA3DDB3752B9DB2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +179,8 @@ magnet:?xt=urn:btih:94E39EB4863FA08D7EEF69C0AA3DDB3752B9DB2B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +207,8 @@ Aenigmatica - Sanctum (2016) [FLAC|Lossless|tracks] <New Age, Chillout, Ambient>
 ```bash
 magnet:?xt=urn:btih:97DA2F20EA27ECC86985CC04AE51297647316FB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +237,8 @@ VA - Ёлки 5 (Музыка к фильму) (2016) [MP3|320 кб/с]<Soundtra
 magnet:?xt=urn:btih:7D3C855C2D2AC03333B148A3C7FDF50613DBD538
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +265,8 @@ magnet:?xt=urn:btih:7D3C855C2D2AC03333B148A3C7FDF50613DBD538
 ```bash
 magnet:?xt=urn:btih:23EAF3FFF7DD4436495704E6EF134AA11F9CECDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +295,8 @@ Sarah Patterson - Buddhasongs (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Wor
 magnet:?xt=urn:btih:0A406732959A4E7C5FD8AE63ACF7E6F4EDF772C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +320,8 @@ David Nevue - 10 albums (1991-2007) [MP3|320 kbps]<New Age, Solo pian>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +350,8 @@ Romantic Collection - HARP (2002) [MP3|320 кб/с] <Instrumental, vocal>
 magnet:?xt=urn:btih:A443639C09ECF53C11D15E07B9E5553190A77E6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +379,8 @@ magnet:?xt=urn:btih:A443639C09ECF53C11D15E07B9E5553190A77E6A
 magnet:?xt=urn:btih:3D5C576E9B2AD3BE8703D2896DCE9C780B38D882
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +407,8 @@ Romantic Collection - HARP (2002) [FLAC|Lossless|image + .cue] <Instrumental, vo
 ```bash
 magnet:?xt=urn:btih:E6F27DEE66C8E4A7029B03696B6401247E515E4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +442,8 @@ Existence - 10 albums (2004-2009) [MP3|320 kbps]<New Age, Relax, Meditative>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +467,8 @@ VA - Ballroom Dance Collection (10CD) (2001) [MP3|320 kbps]<Ballroom Dance | Eas
 ```bash
 magnet:?xt=urn:btih:969CE3E3E8E8D13DE848A08BC9C88C922B8EC280
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +497,8 @@ Pan flute или pan pipe или многоствольная флейта — �
 ```bash
 magnet:?xt=urn:btih:3A005889B180659F86931F455A0449F3C3618658
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +533,8 @@ Christophe Beck - Холодное сердце / Frozen (Русский Сау�
 magnet:?xt=urn:btih:CA86537AA00C3CF0380BDEE4CCFEAD9CAE9C5E17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +558,8 @@ magnet:?xt=urn:btih:CA86537AA00C3CF0380BDEE4CCFEAD9CAE9C5E17
 ```bash
 magnet:?xt=urn:btih:CD3AD68B2733CE103C7E3CD190845994E0709116
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +594,8 @@ Keith Urban - Fuse (2013) /Deluxe Version/ [FLAC|Lossless]<Country>
 magnet:?xt=urn:btih:244DF41CD3347BA33BE8464356A7A00C19879DC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +628,8 @@ Benoit Pioulard - Hymnal Remixes (2014) [FLAC|Lossless]<Ambient, Downtempo, Dron
 magnet:?xt=urn:btih:E16D66960349747338CCCE86732E0D2446E36AC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +656,8 @@ VA - Притяжение (Официальный Саундтрек) (2017) [FL
 ```bash
 magnet:?xt=urn:btih:A09F4B3FAC1FA959945C9EB3973C318535F508BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +692,8 @@ Rashni Punjaabi (Oliver Shanti) - Passage to the Orient (2002) [MP3|320 кб/с]
 magnet:?xt=urn:btih:AF2CC0B0C7B3AAB512B93A3523D5056B4BBF5BD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +720,8 @@ VA - Притяжение (Официальный Саундтрек) (2017) [MP
 ```bash
 magnet:?xt=urn:btih:DF19EF67D8466DBABF4C51ECF729B1E05595E034
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -702,6 +750,8 @@ VA - The Da Vinci Mysteries (2006) [MP3|320 Kbps] <Gregorian, New Age, Enigmatic
 magnet:?xt=urn:btih:FBB555B577F6B06ADCA9F1C2E6BF07BA448AE93E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -728,6 +778,8 @@ VA - The Da Vinci Mysteries (2006) [FLAC|Lossless|tracks + .cue] <Gregorian, New
 ```bash
 magnet:?xt=urn:btih:1EE40006D68CF45C3C624E6F82D01F32B1D5F090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

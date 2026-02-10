@@ -21,6 +21,8 @@ Little Wolf Band - 4 альбома (1995-2008) discography [MP3|320 кб/с]<Na
 magnet:?xt=urn:btih:7941122B9663B4C441B24A003FCFCF45C7800B6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Mgzavrebi - Mgzavruli (2014) [FLAC|Lossless|tracks + .cue] <Folk, Pop-Rock, Geor
 ```bash
 magnet:?xt=urn:btih:29599D5D28F1C1405A36F2555DC22A37723D9883
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Lisa Downing - The Wisdom of My Shadow (2016) [MP3|320 Kbps] <New Age, Solo Pian
 magnet:?xt=urn:btih:CD10BFE5722F450DBAC0119492F1E25A36AB00BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ Barry Goldberg & John Philip Shenale - Return of the Living Dead 3 (1993) [MP3|3
 ```bash
 magnet:?xt=urn:btih:C7B3EF4C8280792BB28572BEF29E641F7F8C661F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ Eamonn Karran - Celtic Skies (2016) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:4CFA416EC135DF10387EF12CBC8FDE1D59D4D4E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ Steven Price - Suicide Squad / Отряд самоубийц (Original Motion Pi
 ```bash
 magnet:?xt=urn:btih:682080C84E86703FEA60A5884EC51F492A42A9EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +195,8 @@ Steven Price - Suicide Squad / Отряд самоубийц (Original Motion Pi
 magnet:?xt=urn:btih:7824935393EF7E3F596AEDEBEC95B23B8B952C72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Mike Pachelli - Acoustic Painting (2004) [FLAC|Lossless|image + .cue] <Contempor
 magnet:?xt=urn:btih:5F8BD8F26E77C8E03BF52637F40D951F3A6D6175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +249,8 @@ Rocky OST - I, II, III, IV, V, Balboa (1976-2006) [MP3|320 kbps]<Soundtrack>
 ```bash
 magnet:?xt=urn:btih:ECCCF0FB945BA482625C8DBB21FFEC05A544BAC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +279,8 @@ VA - Cab Canavaral - Electro Swingster (2015) [MP3|320 кб/с]<Electro Swing, B
 magnet:?xt=urn:btih:52856031F7F6A4B619E0AA1E36F8226EC55B2553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +307,8 @@ Golana - Meditations for Two (2014) [MP3|320 кб/с]<New Age, Meditative>
 ```bash
 magnet:?xt=urn:btih:CDE086DB00269F3C630F39DF15391F1D9F0103F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +339,8 @@ Mel Sutton - Golden Dream (1995) [MP3|160-256 kbps]<New age, Relax>
 magnet:?xt=urn:btih:A62A08144546C8E49B542CADA075A96395375E71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ Vigilante 8 - 2nd Offense (2000) [MP3|320 кб/с]<OST>
 ```bash
 magnet:?xt=urn:btih:EF3613831C9FC1A570956963092685F8F8CE6AC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +397,8 @@ Michel Pepe - Offrandes (Best Of 2008-2015) (2016) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:6EB6D6DBC6D9E6277637C6C5CFF7074F81D5648A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ Daisuke Minamizawa - Solo Guitar no Shirabe - Studio Ghibli Sakuhinshu (2000) [F
 ```bash
 magnet:?xt=urn:btih:9F4AFD585826E045E3498188F980FC5252B3F018
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ Zhang Yi - Strings Of Love (2015) [FLAC|Lossless]<New Age>
 magnet:?xt=urn:btih:388F5857B04A3558244B361976F47D67141F3AC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ Marcus Viana - Pleiadian Connections (2015) [MP3|320 кб/с]<New Age, Instrumen
 ```bash
 magnet:?xt=urn:btih:FC8A15BC90C44DDF365129D6EBF5EC833AE0535A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ VA - Suicide Squad / Отряд самоубийц (The Album) (2016) [FLAC|Loss
 magnet:?xt=urn:btih:80D89690821D611D38F602C876B45048545017EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +539,8 @@ OST Daft Punk - Tron Legacy (2010) [MP3|320 kbp/s]<Soundtrack>
 magnet:?xt=urn:btih:E7CEC3F53A69A134C28B52A3210DE66E19FAC15E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +564,8 @@ magnet:?xt=urn:btih:E7CEC3F53A69A134C28B52A3210DE66E19FAC15E
 ```bash
 magnet:?xt=urn:btih:1459E7E68C2DCDA5DB2C805B2925D62793BBF1B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +594,8 @@ Zhang Yi - Strings Of Love (2015) [MP3|320 кб/с]<New Age>
 magnet:?xt=urn:btih:838FADBACC1869545B4F00341217D74C1BF0445F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +619,8 @@ OST - Vangelis - Blade Runner (Esper Edition) [2 CD] (2003) [OGG|192-320 kbps]<E
 ```bash
 magnet:?xt=urn:btih:09165685B6C6B9804974A3E3806686755B4C0C04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +649,8 @@ Suicide Squad: The Album - Отряд самоубийц (2016) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:5F1B195BD7657A554D5381B0DF13B3B44C78577E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +677,8 @@ Era - The Live Experience (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:F79ADB53EEF1DCFE1FF2851EB347048CFC5A32C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -665,6 +713,8 @@ magnet:?xt=urn:btih:F79ADB53EEF1DCFE1FF2851EB347048CFC5A32C3
 magnet:?xt=urn:btih:DDAEBCCDEA2A0107A940B2A0A8BF81B838845259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,6 +738,8 @@ Vladimir Cosma - The Best World Instrumental Hits (2010) [MP3|320 kbps]<Instrume
 ```bash
 magnet:?xt=urn:btih:9996BABADECEFD4780210A0CC7D44B79141C1093
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Tiger Woods PGA Tour 12: The Masters [Wii] [PAL] [Eng/Fr] (2011)
 magnet:?xt=urn:btih:D2B9B7F13FAAFA1CAE69F6B70780FD70477377BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Minecraft Dungeons (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.17.0.0 / DLC]
 ```bash
 magnet:?xt=urn:btih:9CE0AA62786172ABFC1066E13C3A48EC33F2379D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Record of Lodoss War [Dreamcast] [PAL] [RUS] [CDI] (2001)
 magnet:?xt=urn:btih:A3752A1D455CBF98067778BC2925F9255C4BA0C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Borderlands 3 Ultimate edition (2023) [Switch] [USA] 16.1.0 [NSP] [License / 1.0
 magnet:?xt=urn:btih:6AAD6EDF95BEE416DA85BA73924EBE30693121F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ NullDC 1.0.4 r141 + BIOS + VMU [English] (2012) [Dreamcast]
 ```bash
 magnet:?xt=urn:btih:BA04E653C875D9FF5A637A2738D2E52A8BAB5C83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Tournament of Legends – это файтинг по сюжету антично
 ```bash
 magnet:?xt=urn:btih:843AD5FEC82E0377E2D0D196C6E761E3553B507B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Mega Man Powered Up [PSP] [ENG] (2006)
 magnet:?xt=urn:btih:0B883D333CFB18CE915E2BFB3CE61D37C13E9753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Geometry Wars: Galaxies [Wii] [PAL] [Multi 5] (2008)
 ```bash
 magnet:?xt=urn:btih:2551D5F76917988209230322134F4BB4DB10DC7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Need for Speed: Heat Deluxe Edition (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.0
 magnet:?xt=urn:btih:AA02798359EB35B2FF69511F65250E53103DE8A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Saints Row: The Third Remastered позволяет возглавить Свя�
 ```bash
 magnet:?xt=urn:btih:482D103A43B8F2280146CF0A1C58BEB03A2B3C65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ LEGO Star Wars: The Force Awakens (2016) [PSVita] [EUR] 3.60 [NoNpDRM] [License]
 magnet:?xt=urn:btih:D4AD8BD888724FF6C6AEDD877E19791908183A98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Ninja Gaiden Sigma 2 Plus (2013) [PSVita] [USA] [HENkaku] [Unofficial] [Ru]
 ```bash
 magnet:?xt=urn:btih:9FDF07A5E7AB3E40D78BE42B4B90028168C47F27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Black Rock Shooter: The Game [PSP] [En] (2013)
 magnet:?xt=urn:btih:9880F7411D359DBC5A6D6193DC5C2D2675E02251
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Catherine [PS3] [EUR] [Ru] [3.55] [Cobra ODE / E3 ODE PRO ISO] (2012)
 ```bash
 magnet:?xt=urn:btih:AFFC148FB624A67AA388B6D88DE3A086661AF082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Ninja Gaiden Sigma Plus (2012) [PSVita] [EUR] [HENkaku] [Unofficial] [Ru] | R.G.
 magnet:?xt=urn:btih:0DB69D171FD4B60C2BCEC498110E323E8989FDCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Castlevania: Lords of Shadow Mirror of Fate HD [XBOX360] [RUSSOUND] [XBLA] [Free
 magnet:?xt=urn:btih:E87A274CB2F9E47572B7E45FEBB543E2877F57C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Alan Wake [XBOX360] [Ru] [Freeboot] (2010)
 ```bash
 magnet:?xt=urn:btih:02E44856092E8EF273A3E4460576AA67268E4160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Drakengard 3 (2014) [PS3] [EUR] 3.41 [CFW / HEN] [Repack / 1.01 / DLC] [Ru]
 magnet:?xt=urn:btih:B0D298EA74C069430DE096678C493FA27CBFD756
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Super Mario Maker for Nintendo 3DS (2016) [3DS] [EUR] 10.7 [CIA] [License / 1.02
 ```bash
 magnet:?xt=urn:btih:0A9B892C0DEE4BBDE64CDD7BE0B64A12E303AB8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ Men in Black: Alien Crisis – очередная игра, созданная �
 magnet:?xt=urn:btih:A702187799A9475AF786ACC50829D82E38CA3EBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Winter Sports 2011: Go for Gold (2010) [PS3] [EUR] 3.50 [Cobra ODE / E3 ODE PRO 
 magnet:?xt=urn:btih:E8233ADA9988A7544F270C5E82BCE77FC22C4146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Far Cry 6 Game of the Year Edition (2021) [PS4] [EUR] 5.05 [HEN] [License / 1.12
 ```bash
 magnet:?xt=urn:btih:998A84A4230DD526A653DA06B1133FAAD3EB9B31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Knock-Knock / Тук-Тук-Тук (2016) [PSVita] [EUR] 3.60 [NoNpDrm] [License
 magnet:?xt=urn:btih:D63EFBF1EEA7D861E6E436D2407AE9266A3067EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Octodad: Dadliest Catch — это игра о разрушении, хитро�
 magnet:?xt=urn:btih:79DECC5FE31EAE3FA385D23F6AD8F28B8C93E0E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Shantae: Half-Genie Hero – четвёртая часть серии Shantae. �
 ```bash
 magnet:?xt=urn:btih:D97D9BEA0FFDE4CFC74A184C223C07799822C3E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +678,8 @@ zBookr [PSP] [Ru/Eng] [Homebrew] (2009)
 ```bash
 magnet:?xt=urn:btih:73C5609B87B940C4CB6F04F8196DB3BAA99D168D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

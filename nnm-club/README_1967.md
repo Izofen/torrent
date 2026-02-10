@@ -20,6 +20,8 @@ Video Compressor v1.2.62 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:33E8E216408C01047778954B56F0124327209BC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ My Museum Prologue: Treasure Hunter понравится всем любител
 ```bash
 magnet:?xt=urn:btih:433916FE4D40641F2FD6D3020A2B5A70D585210F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Senua's Saga: Hellblade 2 - продолжение ролевого экшена
 magnet:?xt=urn:btih:9E84744027E470C9890BDFEE81B4CD6C268517E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Hunt the Night – приключение в стиле ретро, включа
 ```bash
 magnet:?xt=urn:btih:67DA7C80B86A6AD82C04D1B98B046461A9BA1C5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:67DA7C80B86A6AD82C04D1B98B046461A9BA1C5C
 magnet:?xt=urn:btih:9AA5A9F9F2D092780A4445D61D5EED4DADE4E342
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:9AA5A9F9F2D092780A4445D61D5EED4DADE4E342
 ```bash
 magnet:?xt=urn:btih:93B9EB0235CC8390DCCBAA047756C080C3F09E5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:93B9EB0235CC8390DCCBAA047756C080C3F09E5D
 magnet:?xt=urn:btih:A116D45A83E2646D393E998722A51FAC5F8C39E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Kaijuu 8 Gou | Kaiju No. 8 | Кайдзю номер 8 [2024, TV, 12 эп.] WEBR
 ```bash
 magnet:?xt=urn:btih:61CBFBD7BD77DEF2CDB2972B9863B3C40F55BDE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:61CBFBD7BD77DEF2CDB2972B9863B3C40F55BDE9
 magnet:?xt=urn:btih:D460FC47249BE7E8CE02E1B40F2843C97C6BCC7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:D460FC47249BE7E8CE02E1B40F2843C97C6BCC7A
 ```bash
 magnet:?xt=urn:btih:DD74B215B4B0AAC8E7B19E68A1A84965D9662CCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Garden Life: A Cozy Simulator - не просто песочница, а еще 
 magnet:?xt=urn:btih:C6AD3FDEC1DA87FFB3F0E6417A3F154AA5177BC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ The New Gate | Новые врата [2024, TV, 12 эп.] WEBRip 720 raw
 ```bash
 magnet:?xt=urn:btih:37F265D4B4BED4108F9A934711BC8D5D7794EEF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:37F265D4B4BED4108F9A934711BC8D5D7794EEF0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:37F265D4B4BED4108F9A934711BC8D5D7794EEF0
 ```bash
 magnet:?xt=urn:btih:8C908AE1A6CF7C9D315A7D0B8FD5345AB8819755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Chris Isaak  "BEST OF" (2006) DVD5
 magnet:?xt=urn:btih:484206F5E971D1BB1782900808FCBE7BF4EB3533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Backpack Hero переносит игроков в фэнтезийную все
 ```bash
 magnet:?xt=urn:btih:03E8F272571614DC2DF14B97E8BD6AF9D540628B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:03E8F272571614DC2DF14B97E8BD6AF9D540628B
 magnet:?xt=urn:btih:A3E5A434A52F10FDD9864EFCBC1CC1711FE154C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:A3E5A434A52F10FDD9864EFCBC1CC1711FE154C2
 ```bash
 magnet:?xt=urn:btih:D1BC94D9F7594D839BE7CD5CFBB0BDAAF6206758
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Doom 3: BFG Edition - это переиздание Doom 3. Жанр и смыс
 magnet:?xt=urn:btih:BAC92894D236577BE9B17EC3FD7A3E1C135E3280
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:BAC92894D236577BE9B17EC3FD7A3E1C135E3280
 ```bash
 magnet:?xt=urn:btih:B6158C7C9B56B8AE60D60AEFF4EDF5F19BAE1749
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:B6158C7C9B56B8AE60D60AEFF4EDF5F19BAE1749
 magnet:?xt=urn:btih:97BBCA74A4D17166F1B61E693A2421F409C13EBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Curious Expedition 2 – это пошаговый нарративный рог
 magnet:?xt=urn:btih:CA175BFBC8920F75C3F3DCD129B56D7C455F9EFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:CA175BFBC8920F75C3F3DCD129B56D7C455F9EFC
 ```bash
 magnet:?xt=urn:btih:0EC3CC17FA51F9714AA83283C3E8543E924CD271
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:0EC3CC17FA51F9714AA83283C3E8543E924CD271
 magnet:?xt=urn:btih:8D7BE4CB8EAC3FECED8B4DDDA7FF1D86E5A65623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:8D7BE4CB8EAC3FECED8B4DDDA7FF1D86E5A65623
 magnet:?xt=urn:btih:80769E3C4960EEF6E132AD8ECF2AA82D10FDC62B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:80769E3C4960EEF6E132AD8ECF2AA82D10FDC62B
 ```bash
 magnet:?xt=urn:btih:316483AF4A32A53E675E6FFEB664B1E00C778E9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 1020206   (746055) от 25.05.2016
-
-Видеодром / Videodrome (1983) BDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_746055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телевизионный продюсер Макс Ренн, разыскивая свежее и оригинальное порно для своего кабельного канала, случайно натыкается на «Видеодром» — ведущуюся из ниоткуда передачу про секс и убийства, многократный просмотр которой разлагает не только психику, но и плоть человека…Производство: КанадаЖанр: Ужасы, фантастикаРежиссер: Дэвид КроненбергАктеры: Джеймс Вудс, Соня Смитс, Дебора Харри, Питер Дворски, Лесли Карлсон, Джек Крили, Линн Горман, Джули ХанерПеревод: Дублированный (СТС)Субтитры: ОтсутствуютПродолжительность: 01:28:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0661D1F77296729810F22D864995F08498F777CA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020087   (746159) от 25.05.2016
 
 Коммандос / Commando (1985) BDRip [H.264] [Director's Cut]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:0661D1F77296729810F22D864995F08498F777CA
 ```bash
 magnet:?xt=urn:btih:B89FF8D3F05401A0468FDB1B578C58B4F529BCE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:B89FF8D3F05401A0468FDB1B578C58B4F529BCE2
 magnet:?xt=urn:btih:C217E3BB6E56965A1D0AD29A321378DCB84A2E23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:C217E3BB6E56965A1D0AD29A321378DCB84A2E23
 ```bash
 magnet:?xt=urn:btih:A6676EE5C7B4B6B57D75A86EF92FF8AAED850E29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +100,8 @@ magnet:?xt=urn:btih:A6676EE5C7B4B6B57D75A86EF92FF8AAED850E29
 magnet:?xt=urn:btih:42263BC86385AD0B2FAC710F31A36B298B5884B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +125,8 @@ magnet:?xt=urn:btih:42263BC86385AD0B2FAC710F31A36B298B5884B8
 ```bash
 magnet:?xt=urn:btih:324DE045C91CA3592BDFC61B7C10C946B0661D80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +152,8 @@ magnet:?xt=urn:btih:324DE045C91CA3592BDFC61B7C10C946B0661D80
 magnet:?xt=urn:btih:8114ED3A91391C192680C87B14BDA830C46E8181
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +177,8 @@ magnet:?xt=urn:btih:8114ED3A91391C192680C87B14BDA830C46E8181
 ```bash
 magnet:?xt=urn:btih:F66FCD04A348F6E74AA01A467C85E2EE35583419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +206,8 @@ magnet:?xt=urn:btih:F66FCD04A348F6E74AA01A467C85E2EE35583419
 magnet:?xt=urn:btih:84F8423492A5A80E126E26ECEDEF0D4E720087D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +231,8 @@ magnet:?xt=urn:btih:84F8423492A5A80E126E26ECEDEF0D4E720087D1
 ```bash
 magnet:?xt=urn:btih:FE28AE8132E35EA8C0CE06CE3D04E800698594DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +260,8 @@ magnet:?xt=urn:btih:FE28AE8132E35EA8C0CE06CE3D04E800698594DE
 magnet:?xt=urn:btih:51B13A5FD43A1860E49262711A4A7660B1C807F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +287,8 @@ magnet:?xt=urn:btih:51B13A5FD43A1860E49262711A4A7660B1C807F7
 magnet:?xt=urn:btih:154F08CD2D36D95D52783A86440B65E2D1DF2CDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +312,8 @@ magnet:?xt=urn:btih:154F08CD2D36D95D52783A86440B65E2D1DF2CDA
 ```bash
 magnet:?xt=urn:btih:4318A2CCF9DD661A3A57722CB331C37884228E8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +339,8 @@ magnet:?xt=urn:btih:4318A2CCF9DD661A3A57722CB331C37884228E8F
 magnet:?xt=urn:btih:EE24794776AC5482D5527E7BF83B57DBE423F958
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +365,8 @@ magnet:?xt=urn:btih:EE24794776AC5482D5527E7BF83B57DBE423F958
 ```bash
 magnet:?xt=urn:btih:5143BF42B8E02E26BFD3DA67B87B628C54602BD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +394,8 @@ magnet:?xt=urn:btih:5143BF42B8E02E26BFD3DA67B87B628C54602BD4
 magnet:?xt=urn:btih:1413A8766AD904CCC4014E4266731738D67D6A0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +420,8 @@ magnet:?xt=urn:btih:1413A8766AD904CCC4014E4266731738D67D6A0B
 magnet:?xt=urn:btih:883F6EC0BA0EDF7FAF3F40FA54CEEBCB20858CE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +445,8 @@ magnet:?xt=urn:btih:883F6EC0BA0EDF7FAF3F40FA54CEEBCB20858CE1
 ```bash
 magnet:?xt=urn:btih:17EACB0EB568A26974D885ABA5D9A555B177F812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +473,8 @@ magnet:?xt=urn:btih:17EACB0EB568A26974D885ABA5D9A555B177F812
 magnet:?xt=urn:btih:A4BA88F04D4BFE045818589C729821995699E589
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +498,8 @@ magnet:?xt=urn:btih:A4BA88F04D4BFE045818589C729821995699E589
 ```bash
 magnet:?xt=urn:btih:389755419DE7C6E2A69ECA526D9177FCBE72C61C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +525,8 @@ magnet:?xt=urn:btih:389755419DE7C6E2A69ECA526D9177FCBE72C61C
 magnet:?xt=urn:btih:6C5ED31284AAEF47A1A169B737D614CD8D30FA2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +550,8 @@ magnet:?xt=urn:btih:6C5ED31284AAEF47A1A169B737D614CD8D30FA2B
 ```bash
 magnet:?xt=urn:btih:D176314DCFDCE4049A122A7C566EF7396367C93D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +577,8 @@ magnet:?xt=urn:btih:D176314DCFDCE4049A122A7C566EF7396367C93D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +603,8 @@ magnet:?xt=urn:btih:D176314DCFDCE4049A122A7C566EF7396367C93D
 ```bash
 magnet:?xt=urn:btih:3EAE25569A9798394BC74F282B997C9DCB556F21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +632,8 @@ magnet:?xt=urn:btih:3EAE25569A9798394BC74F282B997C9DCB556F21
 magnet:?xt=urn:btih:60E3A8B725496DF0574DD0E3162E1BAD3B1F5D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +659,34 @@ magnet:?xt=urn:btih:60E3A8B725496DF0574DD0E3162E1BAD3B1F5D72
 ```bash
 magnet:?xt=urn:btih:DC301B20F7122D4019C3AA8B4E987825A1876374
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523104   (753382) от 10.01.2022
+
+Золотые копи / Гора Сапог / La Collina degli stivali / Boot Hill (1969) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_753382.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дикий Запад. Времена золотой лихорадки. Банда Финча, нанятая крупными владельцами приисков, гоняется за мелкими золотоискателями, отстреливая их по одному и отбирая их наделы. Но однажды они сталкиваются с крутым парнем, не желающим просто так отдавать свою землю...Производство: Италия, B.R.C. Produzione S.r.l., Cronocinematografica S.p.a., San MarcoЖанр: комедия, вестернРежиссер: Джузеппе КолицциАктеры: Теренс Хилл, Бад Спенсер, Вуди Строуд, Эдуардо Чианнелли, Джордж Истмен, Глауко Онорато, Альберто Дэлль’Акква, Наццарено Дзамперла, Виктор Буоно, Лайонел СтэндерПеревод: любительский одноголосыйСубтитры: английскиеПродолжительность: 01:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E637C5ACC769134564E9CC3617B3FDE6D99C29D
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

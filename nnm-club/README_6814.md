@@ -19,6 +19,8 @@ R-Studio Network 9.3 Build 191227 RePack (& portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:A77EE0F34141B3DFFED9FBA919C4C0F54A012C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ EmEditor Professional - профессиональная версия мощно
 magnet:?xt=urn:btih:85DE57E7A39FDF6F6D4CD3E3228772328CBBEF8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:85DE57E7A39FDF6F6D4CD3E3228772328CBBEF8F
 ```bash
 magnet:?xt=urn:btih:61C39249D190F5A0241DB577FD93A732B03D56C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:61C39249D190F5A0241DB577FD93A732B03D56C3
 magnet:?xt=urn:btih:716FA4AA4B2EDCC429F885A8119B5F450539E57F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:716FA4AA4B2EDCC429F885A8119B5F450539E57F
 ```bash
 magnet:?xt=urn:btih:A8CDAA898F5C8D6B93FD601F447258937895FE67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:A8CDAA898F5C8D6B93FD601F447258937895FE67
 magnet:?xt=urn:btih:18F2634DF119D7D622E06497C09EA73A3CABBEEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:18F2634DF119D7D622E06497C09EA73A3CABBEEE
 ```bash
 magnet:?xt=urn:btih:9CEF38767F940837D850301BAFC80E3CA0AAE57E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:9CEF38767F940837D850301BAFC80E3CA0AAE57E
 magnet:?xt=urn:btih:C932F49512A4056C9CA8DFD9DE27C56E22D6D036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:C932F49512A4056C9CA8DFD9DE27C56E22D6D036
 ```bash
 magnet:?xt=urn:btih:AB2882A32E348AEC88CC4717FAA370B806A92AEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:AB2882A32E348AEC88CC4717FAA370B806A92AEB
 magnet:?xt=urn:btih:248179D1AF6E562E52013F5E95042BAE61C9F192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:248179D1AF6E562E52013F5E95042BAE61C9F192
 ```bash
 magnet:?xt=urn:btih:C963A237E19E2D71855B470FCFAFAECACBB9EF17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:C963A237E19E2D71855B470FCFAFAECACBB9EF17
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:C963A237E19E2D71855B470FCFAFAECACBB9EF17
 ```bash
 magnet:?xt=urn:btih:ED9D182041D4EAADFEF42CDD64349DED96409A38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ VA - 80s Music Mix (2023) [MP3|320 Kbps] <Pop, New Wave, Post-Disco, Rock>
 magnet:?xt=urn:btih:C6D8332974A990F6BACAB425EFA55F2F6F76D8F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Baby Storm (2023) [Multi] (2.12.4) License GOG
 ```bash
 magnet:?xt=urn:btih:6C0DCE2FB4DB2E1BC05112668795529034899DE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:6C0DCE2FB4DB2E1BC05112668795529034899DE3
 magnet:?xt=urn:btih:F71315DE4DD62B2FE06686BD80C6BD1F393F3FE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ WizTree - небольшая и полезная утилита для опре�
 ```bash
 magnet:?xt=urn:btih:41AF7965BCEB699C15DD6CF965B6AC23C5BA8608
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:41AF7965BCEB699C15DD6CF965B6AC23C5BA8608
 magnet:?xt=urn:btih:92FDD7A5B3582AFE2E9E7BFE3F1D88532A002FF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:92FDD7A5B3582AFE2E9E7BFE3F1D88532A002FF9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:92FDD7A5B3582AFE2E9E7BFE3F1D88532A002FF9
 magnet:?xt=urn:btih:3761E193ADFADCF14CCFF5B9D2370F8002D57186
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Super Sound - очень мощный редактор для редактиро
 magnet:?xt=urn:btih:43CC125675668C0BD51B778CA736ECEEF62BD724
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:43CC125675668C0BD51B778CA736ECEEF62BD724
 ```bash
 magnet:?xt=urn:btih:70BFAD10ED389A61A7657C291B0D3E04E8EA2590
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:70BFAD10ED389A61A7657C291B0D3E04E8EA2590
 magnet:?xt=urn:btih:ACC6D0ED7732811D01E6196DD0254C5AC2EA7298
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:ACC6D0ED7732811D01E6196DD0254C5AC2EA7298
 ```bash
 magnet:?xt=urn:btih:598E15E063AF3D26618BFB1B4E46B9FF6FC8A76A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ VidCoder - небольшая утилита, с помощью которой �
 magnet:?xt=urn:btih:5A1650E2E9C27AE8F20B742C58A436B10DBDB0B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:5A1650E2E9C27AE8F20B742C58A436B10DBDB0B3
 ```bash
 magnet:?xt=urn:btih:9ED3BE842A6290F103EB23D87F51FDBB45A31C58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

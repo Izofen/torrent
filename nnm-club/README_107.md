@@ -19,6 +19,8 @@ Antioma (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:6C285028D71334CB27A89C5FE8711CC17693457F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ SoftPerfect RAM Disk - программа для создания виртуал
 ```bash
 magnet:?xt=urn:btih:C888285419B26761A627B78BF318E471B8A39176
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Infestation: Origins (2024) [Ru/Multi] (1.0.1) Repack FitGirl
 magnet:?xt=urn:btih:2588504CCB905EEC053BBD2AC5043A6ECE1E8F33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Hard Disk Sentinel Pro — отличная программа для монит
 ```bash
 magnet:?xt=urn:btih:2A72DD078556AE5BABE1C85F95BB84C210A8DDB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:2A72DD078556AE5BABE1C85F95BB84C210A8DDB4
 magnet:?xt=urn:btih:89EBD386297C0F421950BC4A6B9A6D1FFDFCEED6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Dream Engines: Nomad Cities - это градостроительный симу
 ```bash
 magnet:?xt=urn:btih:C39C3FD32D98CA77661CDA28D2ACFC02D61028DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 magnet:?xt=urn:btih:D7014B428F12CFD2D8AD1F7EFC4D7C5F4A0DF025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Stepik, Даниил Беликов | Первая работа в IT. Стра�
 ```bash
 magnet:?xt=urn:btih:0F81C270DBDC898EB4FC2D8E8EA6625E9CF7BFFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:0F81C270DBDC898EB4FC2D8E8EA6625E9CF7BFFD
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Auslogics Anti-Malware предлагает дополнительную защ�
 magnet:?xt=urn:btih:E15693A65378E59BFA3EBD938125F3D01F528B03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:E15693A65378E59BFA3EBD938125F3D01F528B03
 ```bash
 magnet:?xt=urn:btih:4B8F00A687D3E1D53D9C87913F43E88F160A2B5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Luminar Neo – это отдельный редактор, который вк�
 magnet:?xt=urn:btih:53C3085F64B1CC888108623308E2054A6147C14B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ IPTV Pro v9.1.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:17B0A9499B2975507A38AB30EB27998C43FA91C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:17B0A9499B2975507A38AB30EB27998C43FA91C8
 magnet:?xt=urn:btih:C4546FFE3BD6B366C75C662A88953A02BF6C9362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Metro Simulator 2 - уникальная игра, в которой предс�
 ```bash
 magnet:?xt=urn:btih:C75C9B0AE8D012236E53531F8BC1B54C477812F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ X-Morph Defense (2017) [Ru/Multi] (SVN_29109.TC_129.DATA_12/dlc) Repack Let'sРl
 magnet:?xt=urn:btih:7E8CBF5B73424122AD889E78D339D717A502C7C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:7E8CBF5B73424122AD889E78D339D717A502C7C7
 ```bash
 magnet:?xt=urn:btih:1EAC86B8CE6F3B4E1D7E0E67C336FD6D8CF65DA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Gloomy Eyes (2025) [Multi] (1.0.0) License GOG
 magnet:?xt=urn:btih:D27EEBC25D0902107C8C563216E8B8C77AE909CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ CINEMA 4D – простая в использовании профессион�
 ```bash
 magnet:?xt=urn:btih:368E4A96D614C2D9E05C60D11F922977CA4AA07A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28561) Repack Other s
 magnet:?xt=urn:btih:0CE03BB8464A0B5E7F1630DD662A544DF3D8F3B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Technobabylon (2015) [En] (3.6) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:8B5120041613D2892EFFA1DBF9CA3C1CB020C276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:8B5120041613D2892EFFA1DBF9CA3C1CB020C276
 magnet:?xt=urn:btih:107CEB5E09CB29A6B68C2DB3F8FA221D9756D8DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:107CEB5E09CB29A6B68C2DB3F8FA221D9756D8DD
 ```bash
 magnet:?xt=urn:btih:11E8A3B3EBA04DF6A27308F3FAB4E37FD301645A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:11E8A3B3EBA04DF6A27308F3FAB4E37FD301645A
 magnet:?xt=urn:btih:5C65B45F524CFAA350BB73A3D45DD5BDDC9E9A0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:5C65B45F524CFAA350BB73A3D45DD5BDDC9E9A0D
 magnet:?xt=urn:btih:DE2A527FC79B50BE5C1763A5BDE39C671945D494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:DE2A527FC79B50BE5C1763A5BDE39C671945D494
 ```bash
 magnet:?xt=urn:btih:46FBD4A442E70A9A3E891689C5744D799442DA1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

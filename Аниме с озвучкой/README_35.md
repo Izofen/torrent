@@ -19,6 +19,8 @@ Peter Grill to Kenja no Jikan | Peter Grill and the Philosopher's Time | Пёт�
 magnet:?xt=urn:btih:0AF60CEEEB2EC43FE41E40A3BF68EFA1AB7BB5C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kurenai no Buta / Porco Rosso / The Scarlet Pig / Crimson Pig / Порко Ро�
 ```bash
 magnet:?xt=urn:btih:832D1C35F80082EC89E0899FE926768142663A72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Nobunaga the Fool / Чудак Нобунага [2014, TV, 24 ep] WEBRip 720p Ra
 magnet:?xt=urn:btih:21C6CAA2A44ED0B541333AB0AD96D5E1D18870D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:21C6CAA2A44ED0B541333AB0AD96D5E1D18870D6
 ```bash
 magnet:?xt=urn:btih:5FB43B0642E92E96EEF3AA69CBBF53EF3E5C5C2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Kanojo, Okarishimasu / Rent-A-Girlfriend / Девушка на час [2020, TV,
 magnet:?xt=urn:btih:66A9BE71B26415D22C955AECE48E452FA9278EA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Lapis Re:Lights [TV-1] [2020, TV, 12 из 12] WEB-DL 1080p rus
 ```bash
 magnet:?xt=urn:btih:C58ED661BB2990AE5EA6A0966407E7803B117BCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Danshi Koukousei no Nichijou | Daily Lives of High School Boys | Повседн�
 magnet:?xt=urn:btih:37B827D9336E4DFF2EB25819F15820A6C1956A46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Miru Tights | Созерцая колготки [2019, TV, 13 из 13] BDRip 108
 ```bash
 magnet:?xt=urn:btih:FCA8CA14410704EDAE16AB66B44A6BF02005AE5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Juubee Ninpuuchou / Ninja Scroll / Манускрипт ниндзя [1993] BDRi
 magnet:?xt=urn:btih:133B53C86E266008CDFDDD1AC377A29A566D06CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ Shingeki no Kyojin: Lost Girls / Attack on Titan: Lost Girls / Атака Тит
 ```bash
 magnet:?xt=urn:btih:B2A96D07995F4EE7951516B85A5F620725863714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Hundred | Сотня [2016, TV, 12 из 12] BDRip 1080p raw+rus
 magnet:?xt=urn:btih:D609E41D62DCAFB065F2C085051A1ECF58D96FB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Mahou Tsukai no Yome: Hoshi Matsu Hito / The Ancient Magus' Bride: Those Awaitin
 magnet:?xt=urn:btih:3C38015DD4CC4CA9D82B1D83471A47FBB4B1FE0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Naruto The Movie 10: The Last Naruto the Movie / Наруто последний
 ```bash
 magnet:?xt=urn:btih:B894206474929154A293B22E7DED4B42B3BD0325
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ Isekai Maou to Shoukan Shoujo no Dorei Majutsu / How Not to Summon a Demon Lord 
 magnet:?xt=urn:btih:4CC8D21FF56C8D181B027D7708E3532AD318C7E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Outbreak Company / Мятежная компания [2013, TV, 12 ep] BDRip Hi1
 ```bash
 magnet:?xt=urn:btih:7FA290A8856E0113DADE037D3C886A76A75F7821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Berserk / Берсерк [TV-2] [2016, TV, 12] WEB-DL 720p rus
 magnet:?xt=urn:btih:DA59E542EEDD2045AA4643E975A891E9B348D9E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Koukaku Kidoutai Stand Alone Complex | Ghost in the Shell: Stand Alone Complex |
 ```bash
 magnet:?xt=urn:btih:4A43D082CE800F52F5DF8B2780C0C47732950B5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Mahouka Koukou no Rettousei / The Irregular at Magic High School / Бездар�
 magnet:?xt=urn:btih:8DA965D1EC4D451B28C938BEC903AD8D9DFF3D96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Shokugeki no Souma / Food Wars! Shokugeki no Soma / Кулинарные пое�
 ```bash
 magnet:?xt=urn:btih:50AF87C309C53E84F07F42BE5885064379B9304E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Birthday Wonderland | The Wonderland | В стране чудес [2019, Movie] 
 magnet:?xt=urn:btih:9EEEFA359EB00184B8CE7469F3F10557542B9805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Shimoneta to Iu Gainen ga Sonzai Shinai Taikutsu na Sekai / Скучный ми�
 ```bash
 magnet:?xt=urn:btih:746843BD31A61B494346EC5FBAD58C2AF62C24BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Kotonoha no Niwa / The Garden of Words / Сад изящных слов [2013, M
 magnet:?xt=urn:btih:5AFF2F0051965CAA25291713986EF69641FBF16E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Arslan Senki / Сказания об Арслане [2015, TV-сериал, 25] 
 magnet:?xt=urn:btih:0CDF06FC370DACC5C97B0F92206442D60A5BF38F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Kotonoha no Niwa / The Garden of Words / Сад изящных слов [2013, M
 ```bash
 magnet:?xt=urn:btih:69EE1E084DB3B81F8059BD3A75C10EC66A116B01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Koukaku Kidoutai 2.0 / Ghost in the Shell 2.0 / Призрак в доспеха
 magnet:?xt=urn:btih:2F503830998ED4343DA20E69EE4BFE8792C447ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Soten no Ken / Fist of the Blue Sky / Кулак Синего Неба [2006, TV
 ```bash
 magnet:?xt=urn:btih:91AA98760BFD7C8B89266A3B491A61C18C7E5C85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

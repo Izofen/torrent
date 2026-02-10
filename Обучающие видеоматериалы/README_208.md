@@ -21,6 +21,8 @@ Austin Batchelor | Курс по креативному проектирован
 magnet:?xt=urn:btih:03A67EAB640485D166736339D449716A316D8DB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Skillbox, Борис Куприянов и др. | Как выбирать кн�
 magnet:?xt=urn:btih:C2DD7E1EC478B59E1593000B608F8C46FFC4E5F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:C2DD7E1EC478B59E1593000B608F8C46FFC4E5F6
 magnet:?xt=urn:btih:1975F1192E06569A4E40ABD425FCC8F80EE14468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ CGMA, Tyler Edlin | Fundamentals of Design with Tyler Edlin (2020) PCRec [EN, RU
 ```bash
 magnet:?xt=urn:btih:72CF1704BB26D20CD46D574297962D5FC774C3B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Gumroad, Gianpietro "Ganjica" Fabre | Wastelander - Texture Breakdown in Substan
 magnet:?xt=urn:btih:BD056224FC56DF7491E9149272A6459B33F40330
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Udemy, Nexttut | Introduction to Blender 3.0 (2022) PCRec [EN / EN Sub]
 magnet:?xt=urn:btih:7D3FDCCF1291D0FD9C11AF6443BA74E04447EB91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Ctrl + Paint, Matt Kohr | Digital Sketching 5: Imaginary Subjects (2016) PCRec [
 ```bash
 magnet:?xt=urn:btih:19EA5902726F4F8EBF3EF1C6D7A93BFB44E0BBF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Metaspoit Framework является инструментом с открыты�
 magnet:?xt=urn:btih:097E4DE7D9F58410E41BF704BB45382AE4B91F5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:097E4DE7D9F58410E41BF704BB45382AE4B91F5F
 ```bash
 magnet:?xt=urn:btih:05FE2C44E013690FCFC0335E427C4ABC9D0F8748
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:05FE2C44E013690FCFC0335E427C4ABC9D0F8748
 magnet:?xt=urn:btih:1DA227932191CAE42C8EBA6935828D9E2F41E3BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ Ean Golden | Принцип работы на DJ-контроллере Native I
 magnet:?xt=urn:btih:EED420F6959A11699982B22185C3B7FDB189D32F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:EED420F6959A11699982B22185C3B7FDB189D32F
 ```bash
 magnet:?xt=urn:btih:C750EDC93B4CCE799E657BC7845BFA231F107029
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:C750EDC93B4CCE799E657BC7845BFA231F107029
 ```bash
 magnet:?xt=urn:btih:AA9EA709AF7481C2FE111AB9A38D5AFA5C2FF19A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:AA9EA709AF7481C2FE111AB9A38D5AFA5C2FF19A
 magnet:?xt=urn:btih:A7F8B60116DEAB7870D399AA3A167FC0BFF5CB0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ magnet:?xt=urn:btih:A7F8B60116DEAB7870D399AA3A167FC0BFF5CB0A
 magnet:?xt=urn:btih:994C6B34A77A1766678CDE6CEB12C89F670AA725
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:994C6B34A77A1766678CDE6CEB12C89F670AA725
 ```bash
 magnet:?xt=urn:btih:BC22C57503499EBC8BD62ED2123866D2D1D21F6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:BC22C57503499EBC8BD62ED2123866D2D1D21F6C
 magnet:?xt=urn:btih:F0280CA87E54F453A1BF3A74932C2103861A9AE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ magnet:?xt=urn:btih:F0280CA87E54F453A1BF3A74932C2103861A9AE3
 magnet:?xt=urn:btih:7B556644B8EDCEC2D0CF0FE34E7576117B12B641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +518,8 @@ Udemy, Dzianis Matveyenka | SQL (2022) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:68B526D3DCB0076DB6E26BF7CF4A994C3583C1C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +548,8 @@ magnet:?xt=urn:btih:68B526D3DCB0076DB6E26BF7CF4A994C3583C1C4
 magnet:?xt=urn:btih:ED3A37CF83FDCC982A025AE3863FEEF18CD663C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +573,8 @@ magnet:?xt=urn:btih:ED3A37CF83FDCC982A025AE3863FEEF18CD663C0
 ```bash
 magnet:?xt=urn:btih:43814C7DE670D9E25F387C4FD09E8B51EF37D44E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +601,8 @@ City Business School | Директор по маркетингу (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:C5E4C0601C2AC57C7CEC46CAF9080EA07B37E2F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +631,8 @@ magnet:?xt=urn:btih:C5E4C0601C2AC57C7CEC46CAF9080EA07B37E2F9
 magnet:?xt=urn:btih:3849DAA6418D87104CFB1D18DF46F40D283902A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +658,8 @@ Udemy, JumpEng School | Английский за 10 недель + БОНУСЫ
 ```bash
 magnet:?xt=urn:btih:97B582DBA49AB023B6D744BE652EF6AF91CA3ED7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +687,8 @@ Udemy, JumpEng School | Грамматика Английского в дета�
 magnet:?xt=urn:btih:1EE6FAD01D1C88A46752261C781284D7B02B54C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +713,8 @@ Udemy, Yassine Larayedh | The Ultimate Guide to 3D Environments in Blender 3.0 (
 ```bash
 magnet:?xt=urn:btih:F9C8F1667A63219663159E6A601642D8421F47BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

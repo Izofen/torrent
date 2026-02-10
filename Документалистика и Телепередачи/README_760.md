@@ -1,3 +1,30 @@
+###  Публикация: 1617714   (1034366) от 10.03.2023
+
+Диагноз: Жизнь (2022) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1034366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о врачах Донбасса. Они не мечтали оказаться на передовой, не планировали рисковать своими жизнями ради спасения жизней других, но в их дома, в их больницы пришла война. Уезжать или остаться? Большинство остались. Почему? Неужели дело в клятве Гиппократа?..
+В коротких новеллах герои делятся своими переживаниями: чего боятся, о чем мечтают, как (   Читать дальше...   )Телекомпания: Россия | НТВЖанр: ДокументальныйСубтитры: РусскиеПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470874FE3AB69C177929FA526CDBDA2A672C5842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444507   (1034368) от 02.02.2021
 
 K-Pop под скальпелем (2020) WEBRip [H.264/720p-LQ]
@@ -18,6 +45,8 @@ K-Pop под скальпелем (2020) WEBRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:CFB9EAADAC3B79BA3D7A00661EE04BE91DDA6A85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:CFB9EAADAC3B79BA3D7A00661EE04BE91DDA6A85
 magnet:?xt=urn:btih:C81BDE9D45F95B8524D72F42A6E1B1C1D6D77208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:C81BDE9D45F95B8524D72F42A6E1B1C1D6D77208
 ```bash
 magnet:?xt=urn:btih:1B403D91E5897D5915B69ADED35F4BD9A7A6AB7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:1B403D91E5897D5915B69ADED35F4BD9A7A6AB7C
 magnet:?xt=urn:btih:5CE06905D521C71E17CB3288E78436117C179809
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ magnet:?xt=urn:btih:5CE06905D521C71E17CB3288E78436117C179809
 ```bash
 magnet:?xt=urn:btih:9CBA91F37AAF3F7034C2C1FC99413D9249898E6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +176,8 @@ magnet:?xt=urn:btih:9CBA91F37AAF3F7034C2C1FC99413D9249898E6F
 magnet:?xt=urn:btih:B118A95F05AC8983979E20F0450715FD60AB1970
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +201,8 @@ magnet:?xt=urn:btih:B118A95F05AC8983979E20F0450715FD60AB1970
 ```bash
 magnet:?xt=urn:btih:D0B7C0803F0346CF8EBE66B337A130BFAEC017E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +228,8 @@ magnet:?xt=urn:btih:D0B7C0803F0346CF8EBE66B337A130BFAEC017E3
 magnet:?xt=urn:btih:15540CAD5827B8EFEC360E731F3550BAB3E6159E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +253,8 @@ magnet:?xt=urn:btih:15540CAD5827B8EFEC360E731F3550BAB3E6159E
 ```bash
 magnet:?xt=urn:btih:CDA641215B05837028F5396DC9C08DD8F3922186
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +280,8 @@ magnet:?xt=urn:btih:CDA641215B05837028F5396DC9C08DD8F3922186
 magnet:?xt=urn:btih:DD824FC3950E1FBE9ED862E16AC0EDE657770EF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +306,8 @@ magnet:?xt=urn:btih:DD824FC3950E1FBE9ED862E16AC0EDE657770EF9
 magnet:?xt=urn:btih:262C9A652384858FD6A2BC15242392056C9DD66E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +331,8 @@ magnet:?xt=urn:btih:262C9A652384858FD6A2BC15242392056C9DD66E
 ```bash
 magnet:?xt=urn:btih:910A2BDCA73B145ADD66DF73B8B2E911B7C415C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +359,8 @@ magnet:?xt=urn:btih:910A2BDCA73B145ADD66DF73B8B2E911B7C415C9
 magnet:?xt=urn:btih:6BE151B61C1B45C04B95F1F910E65DF37288F94D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +384,8 @@ magnet:?xt=urn:btih:6BE151B61C1B45C04B95F1F910E65DF37288F94D
 ```bash
 magnet:?xt=urn:btih:6C8C717E4607C8F4E44F5987259347EFE2E1D556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +411,8 @@ magnet:?xt=urn:btih:6C8C717E4607C8F4E44F5987259347EFE2E1D556
 magnet:?xt=urn:btih:CA15C70DABEC60D6BB6405325391F337CC857A19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +436,8 @@ magnet:?xt=urn:btih:CA15C70DABEC60D6BB6405325391F337CC857A19
 ```bash
 magnet:?xt=urn:btih:228240226537DA0715DA1C2707A871E52932BACF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +463,8 @@ magnet:?xt=urn:btih:228240226537DA0715DA1C2707A871E52932BACF
 magnet:?xt=urn:btih:1B3724F2602F626D4A98ECDBA95E61AA3EBEABAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +488,8 @@ magnet:?xt=urn:btih:1B3724F2602F626D4A98ECDBA95E61AA3EBEABAE
 ```bash
 magnet:?xt=urn:btih:2E0C38579AADBBBD190B9E5A735229A787A3B82F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +515,8 @@ magnet:?xt=urn:btih:2E0C38579AADBBBD190B9E5A735229A787A3B82F
 magnet:?xt=urn:btih:F7DF6AD5C71367109F620CB53AB9B68A5092B557
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +540,8 @@ magnet:?xt=urn:btih:F7DF6AD5C71367109F620CB53AB9B68A5092B557
 ```bash
 magnet:?xt=urn:btih:0A0BD6919CDAA8EE62D67A191EEA4E6F29609D27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +567,8 @@ magnet:?xt=urn:btih:0A0BD6919CDAA8EE62D67A191EEA4E6F29609D27
 magnet:?xt=urn:btih:A35E3C51F5704C95D273DB9246D21F43F622252C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +592,8 @@ magnet:?xt=urn:btih:A35E3C51F5704C95D273DB9246D21F43F622252C
 ```bash
 magnet:?xt=urn:btih:AB06BC70689A001162521D25EBEA0E3FAFB7C15F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +619,8 @@ magnet:?xt=urn:btih:AB06BC70689A001162521D25EBEA0E3FAFB7C15F
 magnet:?xt=urn:btih:64BC5AA86D3DAFCE1F71F279617235885D4AA670
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +644,8 @@ magnet:?xt=urn:btih:64BC5AA86D3DAFCE1F71F279617235885D4AA670
 ```bash
 magnet:?xt=urn:btih:AE59FEEFB0748B2753201EF9C1BB2587782FB47C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,29 +671,7 @@ magnet:?xt=urn:btih:AE59FEEFB0748B2753201EF9C1BB2587782FB47C
 magnet:?xt=urn:btih:2C5725C08740A2A219034CE830E6582E4E71FE87
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444177   (1034946) от 31.01.2021
-
-Своя игра (31.01.2021) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играСубтитры: ОтсутствуютПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2295184A21A896A63EB39BBAA3F37865F10ED2A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

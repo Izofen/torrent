@@ -28,6 +28,8 @@ VA - Four Seasons: Winter mixed by Paul Oakenfold (2012) [MP3|320 kbps]<Trance, 
 magnet:?xt=urn:btih:4C4E271988E3CAE84491EA5A7A22F6FB84B6494C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ magnet:?xt=urn:btih:4C4E271988E3CAE84491EA5A7A22F6FB84B6494C
 ```bash
 magnet:?xt=urn:btih:BB12F93F5D6C9FA36FA77476ED5E083A60A1AE98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ VA - Minimal Art v.4 (12.02.2012) [MP3|320 kbps]<Minimal>
 magnet:?xt=urn:btih:83C7836E0C2716C4052BD382EEFD8E7CFAD4BB06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +123,8 @@ VA - Jumpin' With The Big Swing Band (2003) [FLAC|Lossless]<Jazz, Swing, Big Ban
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +159,8 @@ VA - Minimal Art v.8 (16.02.2012) [MP3|320 kbps]<Minimal>
 magnet:?xt=urn:btih:FA2B6992696D22FBF66562B0F79D2F2A677FE610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +193,8 @@ VA - Minimal Art v.3 (11.02.2012) [MP3|320 kbps]<Minimal>
 ```bash
 magnet:?xt=urn:btih:9E581143ED7E60AEE91BFF68673F08AC316E8B2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +229,8 @@ VA - Minimal Art v.10 (18.02.2012) [MP3|320 kbps]<Minimal>
 magnet:?xt=urn:btih:EEE05E1089EA0849955044BA64E2D8CAC0A261CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +263,8 @@ Mark May Band - Release My Soul (2011) [APE|Lossless]<Blues>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +299,8 @@ VA - Words Matter LP (2012) [MP3|320 kbps]<Drum and Bass>
 magnet:?xt=urn:btih:11B8DCEADEC99BC0CD0A52F44D8083A7CEA093B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +333,8 @@ Toronzo Cannon - Leaving Mood (2011) [APE|Lossless]<Blues>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +369,8 @@ Nick Colionne - Keepin' It Cool (2006) [FLAC|Lossless]<Smooth Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +403,8 @@ Technicolour - FabricLive Bukem In Session (2012) [MP3|320 кб/с]<Drum and Bas
 ```bash
 magnet:?xt=urn:btih:5A0B8C3F67E76CE9C5C9C28E1D1DE39CF0FC5CCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +439,8 @@ VA - Wine Lovers Vintage (2010) [MP3|-V0 ~245 кб/с]<Lounge, Jazz, Soul>
 magnet:?xt=urn:btih:5FFA317FE5F68BFF2A189601E73B52958F521026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +473,8 @@ Karin Krog - Raindrops, Raindrops (2002) [FLAC|Lossless]<Contemporary Female Voc
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +509,8 @@ Spotlight mix Moguai:
 magnet:?xt=urn:btih:3678B38707735F40D87041ADB55EE6F4F338D0A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +543,8 @@ VA - Black Box One (2012) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:0F09AD1E47890CF648B511AECBE277536070E63D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +579,8 @@ VA - Minimal Art v.12 (20.02.2012) [MP3|320 kbps]<Minimal>
 magnet:?xt=urn:btih:8E1B4E78F8697A1A18BA98152CA8FDD5205C7D2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +611,8 @@ November's Flame - На Обочине Больного Мира (ЕР) (2012) [
 magnet:?xt=urn:btih:29FE15E1DD9E417875218DB2ADED1CE08AA6A9F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +639,8 @@ Fox Stone - Deep EP (2011) [MP3|320 кб/с]<Dubstep, Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:95E9515ED2FABDF588C1D6716540A97F22F90DB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +670,8 @@ Southell (Италия) - Alcohol Fueled, Weed Inspired (2011) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:E39BBA26B64823453E049AACA06C782896EAD6BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -666,6 +706,8 @@ VA - Sex Room. The Sextape Vol. 1 (2012) [MP3|128 кб/с]<RnB, Rap, Pop>
 magnet:?xt=urn:btih:60DAF4AABFF08413A6D0B34ADF706CEE0AD3D1F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,6 +740,8 @@ VA - Jazz for Lovers vol.6 (2002) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -732,6 +776,8 @@ Dave Greenslade - Routes-Roots (2011) [FLAC|Lossless]<Jazz-Rock,  Fusion>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -757,6 +803,8 @@ Dave Greenslade - Routes-Roots (2011) [FLAC|Lossless]<Jazz-Rock,  Fusion>
 magnet:?xt=urn:btih:0F256EB188F1F7D9AA18D04A0E2A7D98676CD2D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -781,6 +829,8 @@ magnet:?xt=urn:btih:0F256EB188F1F7D9AA18D04A0E2A7D98676CD2D8
 magnet:?xt=urn:btih:53C78CF17ACBFB81AECB80D190AACD53F30CC491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -804,6 +854,8 @@ magnet:?xt=urn:btih:53C78CF17ACBFB81AECB80D190AACD53F30CC491
 ```bash
 magnet:?xt=urn:btih:96DB826F81F2C983D05EA9A05F39CC4A0A90C8D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

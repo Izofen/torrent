@@ -19,6 +19,8 @@ Skin Deep - затягивающий шутер от первого лица. В
 magnet:?xt=urn:btih:CC2364AAE906042E8C40F61A73B317C203687070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Haunted House Renovator (2025) [Ru/Multi] (1.3.190) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7499BF54783C66B15B9A3B36686D8460EE03ACD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ XXIII век. Нью-йоркский таксист Корбен Даллас �
 magnet:?xt=urn:btih:4DE9558B72CC79CE18843128FAC9410F14B2F790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) Repack FitGirl [Backstage Ed
 ```bash
 magnet:?xt=urn:btih:E110D6B5D38C7DB44312DB18CD57B4CB4A11C344
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ theHunter Call of the Wild (2017) [Ru/Multi] (2989309/dlc) Repack Let'sРlay [Ul
 magnet:?xt=urn:btih:BF87B692CE3E4C5ECEA574F115E824E0346E3D88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:BF87B692CE3E4C5ECEA574F115E824E0346E3D88
 ```bash
 magnet:?xt=urn:btih:A7D8C3103463B7BC3F2AB7C6137C0B2FB3A73A0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:A7D8C3103463B7BC3F2AB7C6137C0B2FB3A73A0E
 magnet:?xt=urn:btih:0137A5479281802066FAA5368D78480F98D89065
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:0137A5479281802066FAA5368D78480F98D89065
 ```bash
 magnet:?xt=urn:btih:EEA02962A6A7269A8F2DE960B3473544858404CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:EEA02962A6A7269A8F2DE960B3473544858404CA
 magnet:?xt=urn:btih:E59B05EE44B110F6383C0E2CEA160EA006FED6D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:E59B05EE44B110F6383C0E2CEA160EA006FED6D5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (0.20074/dlc) License GOG
 magnet:?xt=urn:btih:CE6B8B84FA9505ED65A35421B679BE0A45B85AB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:CE6B8B84FA9505ED65A35421B679BE0A45B85AB4
 ```bash
 magnet:?xt=urn:btih:ADA838C5C7752821B6319B9C522DAF73D12BD922
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:ADA838C5C7752821B6319B9C522DAF73D12BD922
 magnet:?xt=urn:btih:078EEA8A71B0A2254F9F8C181EFCD93D9F87EA06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:078EEA8A71B0A2254F9F8C181EFCD93D9F87EA06
 ```bash
 magnet:?xt=urn:btih:C1B22A2BDF003AC664AD8C37430CB0771938BB91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:C1B22A2BDF003AC664AD8C37430CB0771938BB91
 magnet:?xt=urn:btih:3FAD8B28454FA1B5282F53254845A086974A391E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:3FAD8B28454FA1B5282F53254845A086974A391E
 ```bash
 magnet:?xt=urn:btih:126C97D530798AA4B1B4E2B60CDAE8C66C0CE9B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ MobaXterm - это комплекс утилит, в котором есть в�
 magnet:?xt=urn:btih:0FFF8C8BEAD0FA2BDD3BC9E890B564FB52A21913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Solium Infernum (2024) [Ru/Multi] (1.1.3p1_85049/dlc) Repack Let'sРlay [Collect
 ```bash
 magnet:?xt=urn:btih:B7CEE7E9230413D698A0BBE501B1B48A9E2ADD77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:B7CEE7E9230413D698A0BBE501B1B48A9E2ADD77
 magnet:?xt=urn:btih:B2F2954EF5C998B949AC1984ADFAE1BC998AAC07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ magnet:?xt=urn:btih:B2F2954EF5C998B949AC1984ADFAE1BC998AAC07
 ```bash
 magnet:?xt=urn:btih:4A187F1F76CEE3A753BFDFC2547D39B703808442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:4A187F1F76CEE3A753BFDFC2547D39B703808442
 magnet:?xt=urn:btih:02BFEC4E6F3CF963CBC91B8CA3824B283A6536C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ magnet:?xt=urn:btih:02BFEC4E6F3CF963CBC91B8CA3824B283A6536C4
 ```bash
 magnet:?xt=urn:btih:A8BBAF7274EB0CF24F3B5CC93C219C815DBB1087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ KIBORG (2025) [Ru/Multi] (20 2.50.4_30: 1:50) Repack FitGirl
 magnet:?xt=urn:btih:F4C99753B7F2D9AD650907AD3BA8194F7A33C35E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Moroi предлагает геймплей, включающий сражени
 ```bash
 magnet:?xt=urn:btih:2406060E712E0E90CACEB3706DFE871599EB254B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Victory at Sea Atlantic - World War II Naval Warfare (2024) [Ru/Multi] (1.0.1.2)
 magnet:?xt=urn:btih:CF7FA8DA8A89D089BEA1021E4AF45F2F776E12E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ magnet:?xt=urn:btih:CF7FA8DA8A89D089BEA1021E4AF45F2F776E12E5
 ```bash
 magnet:?xt=urn:btih:025B9F4F9C6F72CF9D166696D187FFEEAE75266E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

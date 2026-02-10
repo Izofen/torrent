@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E9B5F86A2C9BB62B6D0B2097F58A6E3007285746
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Guy Renardeau - Four Shades of Blue (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:17B029BB31C0438B15D43E421FC0AEAC221034DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:FCA229644374943556D064E7E45284675EE7532F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:FCA229644374943556D064E7E45284675EE7532F
 magnet:?xt=urn:btih:48A071BAD5A13CC9886239E02E8149A611B2FA7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:48A071BAD5A13CC9886239E02E8149A611B2FA7D
 ```bash
 magnet:?xt=urn:btih:46B3A75F766DBCABD51316B8DC6219220B384BFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:46B3A75F766DBCABD51316B8DC6219220B384BFC
 magnet:?xt=urn:btih:975B163C20514CC661D864E77FEAC4AACDBB3A98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:975B163C20514CC661D864E77FEAC4AACDBB3A98
 ```bash
 magnet:?xt=urn:btih:6CD08F34BE5B4251AF9DEBC68E48BE61A9F34C89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:6CD08F34BE5B4251AF9DEBC68E48BE61A9F34C89
 magnet:?xt=urn:btih:4CE3BC1797D12C10CE56624CE8F18605B0DBFE88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:4CE3BC1797D12C10CE56624CE8F18605B0DBFE88
 magnet:?xt=urn:btih:EA9868DF60FF14C92F39582E73430747D91F992E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:EA9868DF60FF14C92F39582E73430747D91F992E
 ```bash
 magnet:?xt=urn:btih:780AD4293F026B5E7F087121EC24EF176B14FCE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Arthritic Soul - Angel Honour Me (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blu
 magnet:?xt=urn:btih:FAD7396B7302E10748C677ED93EA4A70726B6D2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:FAD7396B7302E10748C677ED93EA4A70726B6D2A
 ```bash
 magnet:?xt=urn:btih:8CADFAE25F079E3180430FABE35107166D7B4297
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Diplomacy is Not an Option (2024) [Ru/Multi] (1.0.98) Repack Necros
 magnet:?xt=urn:btih:908DDEE3D86BC8CD3B8D565FB73C532A7367A39E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Risk of Rain 2 - это кооперативный шутер от третье�
 ```bash
 magnet:?xt=urn:btih:0457EBEF2BD66488A3036B4D2D8B347C1DC03C00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:0457EBEF2BD66488A3036B4D2D8B347C1DC03C00
 magnet:?xt=urn:btih:9BBF96446981A3F1B4D13187C89D81C6AC007DCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Europa Universalis V (2025) [Ru/Multi] (1.0.6/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:AAE5BE21FD03D4F629AB91E5E0F21001805880BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ Frozen Overlays — это высококачественный видеошаб
 magnet:?xt=urn:btih:A0F8858AD47A1E17A8405308F4BB9DC16EDA1541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Peglin (2024) [Ru/Multi] (1.1.23) Repack Necros
 magnet:?xt=urn:btih:E2FA08E6CA667A56FAED9F4428DE472A08D093BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Poly Bridge 3 (2023) [Ru/Multi] (1.5.10) Repack Necros
 ```bash
 magnet:?xt=urn:btih:20C4953D9AA115342FFF146EE5C975E42634A83C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Elithium - Strangers Parade (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 magnet:?xt=urn:btih:37A347974F2EF91A3571E23F75F020F00BC597F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:37A347974F2EF91A3571E23F75F020F00BC597F8
 magnet:?xt=urn:btih:A1F3F9D05380167F810E86D78A4ACAEF424A0305
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ For The King II (2023) [Ru/Multi] (1.10.9/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:3EED5D6969A6BE58447489B0775ED4585075B171
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:3EED5D6969A6BE58447489B0775ED4585075B171
 magnet:?xt=urn:btih:7185BB72882A62DE76AB038748F3EB0A13961F05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Dead Space (2008) [Ru/Multi] (1.0.0.222) Repack Necros
 ```bash
 magnet:?xt=urn:btih:AAF6282BAAF39FC2771C168EEEA5794E907E8B1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ NDIKA — игра от третьего лица с историей о стр�
 magnet:?xt=urn:btih:044E82A3CD459974A4CDA603418114E71F402639
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Microsoft Activation Scripts (MAS) 3.9 portable [En]
 ```bash
 magnet:?xt=urn:btih:0226AA1E30B7523C1F226F25946ACBDEAA350280
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3EDA5F3D8F47D5A6B0B56068F7DC14322EF2F09A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:3EDA5F3D8F47D5A6B0B56068F7DC14322EF2F09A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:3EDA5F3D8F47D5A6B0B56068F7DC14322EF2F09A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ George Harrison - Early Takes, Volume 1 (2012) [FLAC 2.0 24/96|tracks (WEB-DL)]<
 magnet:?xt=urn:btih:279B6F58A685C6E2369D4BF6058A2B14F11F5C45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:279B6F58A685C6E2369D4BF6058A2B14F11F5C45
 magnet:?xt=urn:btih:EB000D91A16703331AF5AE7699F8F0BA36FD0E86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:EB000D91A16703331AF5AE7699F8F0BA36FD0E86
 ```bash
 magnet:?xt=urn:btih:3E32030343DF4F09D28DB842CFD3147F13CD75E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:3E32030343DF4F09D28DB842CFD3147F13CD75E9
 magnet:?xt=urn:btih:56206D67D3CB6D10331364F1D2492502976D125D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:56206D67D3CB6D10331364F1D2492502976D125D
 ```bash
 magnet:?xt=urn:btih:24FCC67D9789F0B8EA420450235CB744E5E4A7C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:24FCC67D9789F0B8EA420450235CB744E5E4A7C6
 magnet:?xt=urn:btih:CD669F147855FCE869A1AF3C94BBD162C8E7B8EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:CD669F147855FCE869A1AF3C94BBD162C8E7B8EC
 ```bash
 magnet:?xt=urn:btih:3391724D7A2427F8FCC05B258D988676EF0904D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:3391724D7A2427F8FCC05B258D988676EF0904D8
 magnet:?xt=urn:btih:F39D29F03F928D36605E7625C712686BB70DD06F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:F39D29F03F928D36605E7625C712686BB70DD06F
 ```bash
 magnet:?xt=urn:btih:9067F5B52966912BF2A4BD93571A77D8F1B547E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:9067F5B52966912BF2A4BD93571A77D8F1B547E0
 magnet:?xt=urn:btih:E9773301F365F7B04E8E2C016CEA93AA26328237
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ Jiro Inagaki - Woodstock Generation (1970) 2009, P-Vine Records [FLAC|Lossless|t
 magnet:?xt=urn:btih:0B828303A1834D46CB25BB907E92CD6FE0F8D582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ magnet:?xt=urn:btih:0B828303A1834D46CB25BB907E92CD6FE0F8D582
 magnet:?xt=urn:btih:AB63E2F1F360625D5AC03E43A1BD50CFC4CC2892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:AB63E2F1F360625D5AC03E43A1BD50CFC4CC2892
 ```bash
 magnet:?xt=urn:btih:5D5923BAA51D88D640B0F4B6CA5074DF08257758
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ Gil Evans - The Honey Man (1986) 1994, New Tone Records [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:C80C3C28F368074B4015EF5EAA9A44DEDA4FBF44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ Antiquus Scriptum - Immortalis Factus (2008) [FLAC|Lossless|image + .cue] <Symph
 ```bash
 magnet:?xt=urn:btih:42629B589E6A180817A953CA5795BFB361B6D6DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ Gil Evans Orchestra - Live at Umbria Jazz 87, Vol.2 (2000) Egea [FLAC|Lossless|i
 magnet:?xt=urn:btih:66419D6C67365DD1B78BDAEE9FBCF3149791CFF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +547,8 @@ Gil Evans Orchestra - Live at Umbria Jazz 87, Vol.1 (2000) Egea [FLAC|Lossless|i
 magnet:?xt=urn:btih:8682ACB2579AC66D7E0009B4B47F5052BCCED55F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:8682ACB2579AC66D7E0009B4B47F5052BCCED55F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:8682ACB2579AC66D7E0009B4B47F5052BCCED55F
 magnet:?xt=urn:btih:6CEE4E205FB236CA7C278E2FA34F81C5A73D8FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:6CEE4E205FB236CA7C278E2FA34F81C5A73D8FCB
 magnet:?xt=urn:btih:5AAB3BC1B3DB8A5D1EC514CC66582DB84AEE4D24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:5AAB3BC1B3DB8A5D1EC514CC66582DB84AEE4D24
 ```bash
 magnet:?xt=urn:btih:A5BA1214CE2EC2C498F31084DB4D21D4D6D77AF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:A5BA1214CE2EC2C498F31084DB4D21D4D6D77AF4
 magnet:?xt=urn:btih:F7411A3157C12F2F18341ADD8E51CAC424454F72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ magnet:?xt=urn:btih:F7411A3157C12F2F18341ADD8E51CAC424454F72
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

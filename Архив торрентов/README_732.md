@@ -23,6 +23,8 @@
 magnet:?xt=urn:btih:FAE2196E7C7474FA0BBED9BDB17D0A141BF7C24A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -56,6 +58,8 @@ VA - Time Travel Volume 2 (2010) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:72D7C1BCF627189A85D207CC8D6D9436038DC03E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -80,6 +84,8 @@ magnet:?xt=urn:btih:72D7C1BCF627189A85D207CC8D6D9436038DC03E
 magnet:?xt=urn:btih:DD955C23F747D2902FE43C35FBB77C77B2AB78FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ magnet:?xt=urn:btih:DD955C23F747D2902FE43C35FBB77C77B2AB78FC
 ```bash
 magnet:?xt=urn:btih:3468C7FACB8EACA0056A6D73D4CF71BCA75ECB2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ VA - Beat Generation 2 (2009) [MP3|320 кб/с]<Psy-Prog>
 magnet:?xt=urn:btih:BA9B21410AF39BDF56CB8560775B8668ADF3977E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +173,8 @@ magnet:?xt=urn:btih:BA9B21410AF39BDF56CB8560775B8668ADF3977E
 ```bash
 magnet:?xt=urn:btih:0077C968A33B7AE4A2E810A904FB016B8536A96F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +204,8 @@ magnet:?xt=urn:btih:0077C968A33B7AE4A2E810A904FB016B8536A96F
 magnet:?xt=urn:btih:2EF2635889029D43BDA055BDE56B9212C770B003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +234,8 @@ magnet:?xt=urn:btih:2EF2635889029D43BDA055BDE56B9212C770B003
 magnet:?xt=urn:btih:AD48F16BBB94DAC2E89DD8457524139FD7AB7034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +259,8 @@ magnet:?xt=urn:btih:AD48F16BBB94DAC2E89DD8457524139FD7AB7034
 ```bash
 magnet:?xt=urn:btih:AFB9A9D24D3E633A82675033F1B2F866D3E7D8A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +290,8 @@ magnet:?xt=urn:btih:AFB9A9D24D3E633A82675033F1B2F866D3E7D8A8
 magnet:?xt=urn:btih:F15FAAA55AF321846C0EE531B642260BDCB61F25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +315,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +342,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 magnet:?xt=urn:btih:0305E08885897E916DE3401469307346CC49D4EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ Thunderbird - простая и удобная бесплатная програ
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +403,8 @@ Patе de Fuа - Boquita Pintada (2011) [MP3|320 кб/с]<Ethnic Jazz, Easy Liste
 magnet:?xt=urn:btih:E2E15F6F4563F55DD8D74854344A64B918B437CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ FAR Manager - мощнейший известный всем консольны�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +464,8 @@ Overkill - The Electric Age (2012) [MP3|~245 кб/с (V0)]<Thrash Metal>
 magnet:?xt=urn:btih:B72374426FBB158F9FD2CAAE04534E55D32E0FAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +489,8 @@ magnet:?xt=urn:btih:B72374426FBB158F9FD2CAAE04534E55D32E0FAF
 ```bash
 magnet:?xt=urn:btih:B7695ABA69FAFB895C16F5C90ED17DEC2C911432
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +519,8 @@ magnet:?xt=urn:btih:B7695ABA69FAFB895C16F5C90ED17DEC2C911432
 ```bash
 magnet:?xt=urn:btih:A5D173E7876C3CFAA959A6B245F140421B14EF1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +555,8 @@ CD1 Продолжительность: 01:10:48
 magnet:?xt=urn:btih:4FFE9BDF572A927D24A25AD226CE3AC2C91C9BA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +590,8 @@ Artёm Puchkoff & Sasha Fresh - Jam Sation vol.1 (2012)/2012, Resonanse Records/
 magnet:?xt=urn:btih:6E26455219E571A7EB96933669653FC767DE684A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +616,8 @@ magnet:?xt=urn:btih:6E26455219E571A7EB96933669653FC767DE684A
 magnet:?xt=urn:btih:EAC5608541E078AB6BB2AEEC7DA82D8260EDE267
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +641,8 @@ magnet:?xt=urn:btih:EAC5608541E078AB6BB2AEEC7DA82D8260EDE267
 ```bash
 magnet:?xt=urn:btih:327C5E2BD886CE2DA8F8D64A8C3A1823AD636643
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +672,8 @@ magnet:?xt=urn:btih:327C5E2BD886CE2DA8F8D64A8C3A1823AD636643
 magnet:?xt=urn:btih:6E6C61E8D03082F53F54E93518BFB94381A51412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +697,8 @@ magnet:?xt=urn:btih:6E6C61E8D03082F53F54E93518BFB94381A51412
 ```bash
 magnet:?xt=urn:btih:D3D9D649278E8773194D4317FD331DA42E44C2A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -682,6 +730,8 @@ MonaStream - След золы (2012) [MP3|320 кб/с]<Heavy Metal>
 magnet:?xt=urn:btih:5974C531B26FB173C812B9F0CD4AC101D402517D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -709,6 +759,8 @@ magnet:?xt=urn:btih:5974C531B26FB173C812B9F0CD4AC101D402517D
 ```bash
 magnet:?xt=urn:btih:FC10CDAE3E9787ECF4FCD42CD5FBFDC4CA15F1A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,31 @@
+###  Публикация: 325939   (726961) от 20.04.2011
+
+Без вести пропавший (1956) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726961.jpg" />
+</div>
+
+
+###  Подробнее
+
+1942 год. В одном из боев раненый советский офицер, воспользовавшись документами умирающего чешского врача, служившего в фашистской армии, добирается до Словакии и разыскивает мать погибшего.
+
+Здесь он находит временный приют и поддержку, вступает в интернациональный партизанский отряд и вскоре становится его командиром…Жанр: ВоенныйРежиссер: Исаак ШмарукАктеры: Михаил Кузнецов, Софья Гиацинтова, Наталия Ужвий, Виктор Добровольский, Николай Дупак, Байба Индриксоне, Лев Бордуков, Юрий Чекулаев, Олег Голубицкий, Лаврентий МасохаПродолжительность: 01:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BAF00B8A4E9DCD269C3680508FC6A14D40A5F20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530481   (728684) от 11.02.2022
 
 Дезертир (1990) WEBRip
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:1EF1EC9F095BCDEB088D9C1E90161AFB9808DA62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:1EF1EC9F095BCDEB088D9C1E90161AFB9808DA62
 magnet:?xt=urn:btih:5C23BDCF6461AEB15097519CC0686CEE449AC2AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:5C23BDCF6461AEB15097519CC0686CEE449AC2AB
 ```bash
 magnet:?xt=urn:btih:78D6FE5CB48BE66B186F74F04D803EDD9A4946CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +125,8 @@ magnet:?xt=urn:btih:78D6FE5CB48BE66B186F74F04D803EDD9A4946CC
 magnet:?xt=urn:btih:B6CEB673AA46154A54FEBD6945B24E682AFD8A3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +150,8 @@ magnet:?xt=urn:btih:B6CEB673AA46154A54FEBD6945B24E682AFD8A3E
 ```bash
 magnet:?xt=urn:btih:E6FC9A67F1F67D2CAAFED78A035552E0C976B7A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +178,8 @@ magnet:?xt=urn:btih:E6FC9A67F1F67D2CAAFED78A035552E0C976B7A6
 magnet:?xt=urn:btih:E42E6B259B3B3E48D6994CD5C6F15C02BC075D93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +203,8 @@ magnet:?xt=urn:btih:E42E6B259B3B3E48D6994CD5C6F15C02BC075D93
 ```bash
 magnet:?xt=urn:btih:2FF9B7FA1CEDE1E605B90F276AB857D026E6C42E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +230,8 @@ magnet:?xt=urn:btih:2FF9B7FA1CEDE1E605B90F276AB857D026E6C42E
 magnet:?xt=urn:btih:698A4B78948AC9176EF8812399AD668897FDBBC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +255,8 @@ magnet:?xt=urn:btih:698A4B78948AC9176EF8812399AD668897FDBBC8
 ```bash
 magnet:?xt=urn:btih:30CF58FB3A3118BA974E806E2DF8B873F455EA47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +282,8 @@ magnet:?xt=urn:btih:30CF58FB3A3118BA974E806E2DF8B873F455EA47
 magnet:?xt=urn:btih:A97C9A38349B7788470B0551B7126ADD2260F4C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +307,8 @@ magnet:?xt=urn:btih:A97C9A38349B7788470B0551B7126ADD2260F4C7
 ```bash
 magnet:?xt=urn:btih:FA5CC990B03971D767FBA2C345E324F28985F81D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +335,8 @@ magnet:?xt=urn:btih:FA5CC990B03971D767FBA2C345E324F28985F81D
 magnet:?xt=urn:btih:AB3400A7EF2F99C0EF90E82E31DAA4E6F04819CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +362,8 @@ magnet:?xt=urn:btih:AB3400A7EF2F99C0EF90E82E31DAA4E6F04819CE
 magnet:?xt=urn:btih:B706E008302F229DDD12F0AA03F414609FD0DD22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +387,8 @@ magnet:?xt=urn:btih:B706E008302F229DDD12F0AA03F414609FD0DD22
 ```bash
 magnet:?xt=urn:btih:D9B9F7E09FFBA59A77CB754AF18F1B74853EEAD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +414,8 @@ magnet:?xt=urn:btih:D9B9F7E09FFBA59A77CB754AF18F1B74853EEAD0
 magnet:?xt=urn:btih:0BEA8DF4882B784D8091C4A7C13581671BEBB58A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +439,8 @@ magnet:?xt=urn:btih:0BEA8DF4882B784D8091C4A7C13581671BEBB58A
 ```bash
 magnet:?xt=urn:btih:75C17768BE965EAB308A4C7AE31A7D3B3BE3BACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +466,8 @@ magnet:?xt=urn:btih:75C17768BE965EAB308A4C7AE31A7D3B3BE3BACD
 magnet:?xt=urn:btih:966FE6336948C07AC2F3B6B5A08DD33CD1FD8A87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +492,8 @@ magnet:?xt=urn:btih:966FE6336948C07AC2F3B6B5A08DD33CD1FD8A87
 magnet:?xt=urn:btih:5BABB1271DBBA4E3A780B677181D0548CA7120CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +517,8 @@ magnet:?xt=urn:btih:5BABB1271DBBA4E3A780B677181D0548CA7120CB
 ```bash
 magnet:?xt=urn:btih:0A01759AA626306ADBCF8DC66D8D572F85348D3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +545,8 @@ magnet:?xt=urn:btih:0A01759AA626306ADBCF8DC66D8D572F85348D3A
 magnet:?xt=urn:btih:1564B69CA4B249F03747E84F99D565A45E44ED00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +570,8 @@ magnet:?xt=urn:btih:1564B69CA4B249F03747E84F99D565A45E44ED00
 ```bash
 magnet:?xt=urn:btih:93B228E992636795A10BE4B2F401833BE04C6034
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +597,8 @@ magnet:?xt=urn:btih:93B228E992636795A10BE4B2F401833BE04C6034
 magnet:?xt=urn:btih:1C3C3B12AC1AF302D438407B28A3197D3B2C02EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +622,8 @@ magnet:?xt=urn:btih:1C3C3B12AC1AF302D438407B28A3197D3B2C02EC
 ```bash
 magnet:?xt=urn:btih:B59DD628B54A4DA8EE0D72CFEAF87BB7294E0FB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +649,8 @@ magnet:?xt=urn:btih:B59DD628B54A4DA8EE0D72CFEAF87BB7294E0FB5
 magnet:?xt=urn:btih:EE526B3D28C298A0877E32C203D735AC29A1221D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,29 +675,7 @@ magnet:?xt=urn:btih:EE526B3D28C298A0877E32C203D735AC29A1221D
 magnet:?xt=urn:btih:CA09B0FE5CFD19DF6746902AB83169A56F397432
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217731   (740850) от 06.04.2018
-
-Бабушка-генерал (1982) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_740850.jpg" />
-</div>
-
-
-###  Подробнее
-
-В небольшом современном узбекском селе живет старушка Анзират, бабушка десяти мальчишек-сорванцов. За крутой, но справедливый характер односельчане прозвали Анзират бабушкой-генералом. Когда-то, в 1930-е годы, она возглавляла колхоз, боролась с кулаками. Постарев, Анзират по-прежнему не хочет мириться с ленью, жадностью, бесхозяйственностью некоторых односельчан. (   Читать дальше...   )Производство: СССР, УзбекфильмЖанр: ДрамаРежиссер: Мелис АбзаловАктеры: Зейнаб Садриева, Гани Агзамов, Икрома Болтаева, Хусан Шарипов, Абдураим Абдувахобов, Джалол Юсупов, Айбек Нарзуллаев, Шахноза Хамраева, Наиля Ташкенбаева, Максум Юсупов, Нурмухан Жантурин, Дияс Рахматов, Джамал Хашимов, Сагди (Сегидход) Табибуллаев, Аброр Турсунов, Анвара Алимова, Тамара Косубаева, Гузаль Максудова, Эркин КамиловПродолжительность: 01:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1921692ADD7378038276878C7AEE6E93908B7603
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

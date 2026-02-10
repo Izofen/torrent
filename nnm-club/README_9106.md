@@ -22,6 +22,8 @@ VA - Trance Cloud II (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:EDF563BBD3348D5B8F4474ABE8536814196CD1AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Stan Kenton - Adventures In Jazz (1961) 1999, Capitol [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:EF485E2489F6CF31279BD8B82672CA6CC5555B70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:EF485E2489F6CF31279BD8B82672CA6CC5555B70
 magnet:?xt=urn:btih:8C0294A734F9CB52C2089EF90F47A7068B837DF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:8C0294A734F9CB52C2089EF90F47A7068B837DF9
 ```bash
 magnet:?xt=urn:btih:F6D405BD6C35EFEAD669189B090A4B50DCD6EBBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Freak Kitchen - Cooking with Pagans (2014) [OGG|503-524 кб/с]<Heavy Metal, Ha
 magnet:?xt=urn:btih:739B87A1EEEA25116B2B2744C483E00BCFF2A5F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Tiger B. Smith - Tiger Rock (1972) Reissue, 1997, Second Battle [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:0D40CC1DA25145B260E7BD4BAB6FE1818AC576E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Hardwell - United We Are Remixed (Extended Mixes) (2015) [FLAC|Lossless|WEB-DL]<
 magnet:?xt=urn:btih:9DA4D765E240BF670F048D696CBB9957230E54C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ Eloy - Destination (1992) Japanese Edition /1993, Victor [FLAC|image+.cue]<Progr
 magnet:?xt=urn:btih:3EC8A7090D896895A098A043AF3FFE9D0EEC97ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:3EC8A7090D896895A098A043AF3FFE9D0EEC97ED
 ```bash
 magnet:?xt=urn:btih:67F6C57ABD405E833D8717CBFCB5AE3C18781C52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +277,8 @@ VA - Pure Bliss Vocals: Best Of (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 magnet:?xt=urn:btih:DA498E316BDA7879D2D21A2FDB04B268B99E5458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +302,8 @@ magnet:?xt=urn:btih:DA498E316BDA7879D2D21A2FDB04B268B99E5458
 ```bash
 magnet:?xt=urn:btih:A4701012D7F8693212FD1500E2CE1CA7A2EFCB44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +329,8 @@ magnet:?xt=urn:btih:A4701012D7F8693212FD1500E2CE1CA7A2EFCB44
 magnet:?xt=urn:btih:E73E3203BAC912410CFF64A7B9B2A04DC94419AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ magnet:?xt=urn:btih:E73E3203BAC912410CFF64A7B9B2A04DC94419AB
 magnet:?xt=urn:btih:514D71975164A0E9A649E93DEA5F07905893758D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:514D71975164A0E9A649E93DEA5F07905893758D
 ```bash
 magnet:?xt=urn:btih:2F702B374948870914D673C25524EFB23075B12D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:2F702B374948870914D673C25524EFB23075B12D
 ```bash
 magnet:?xt=urn:btih:D938778B5798F427255C64343613469FE23BE2B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +438,8 @@ VA - Armada Deep Best Of (2015) [MP3|320 кб/с]<Deep House>
 magnet:?xt=urn:btih:88F4A679E5716E7F9A167A9057FA78499B9CE0D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +467,8 @@ Know - Niebo Sie Podarto (2015) [MP3|320 кб/с]<Nu-Metal, Rapcore>
 magnet:?xt=urn:btih:2C1D87C1477EA1EA6BB003792167A2B00EB3F1B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ magnet:?xt=urn:btih:2C1D87C1477EA1EA6BB003792167A2B00EB3F1B3
 ```bash
 magnet:?xt=urn:btih:3CF248D154BAF98E8D704AE1C24E7319A86129C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +519,8 @@ magnet:?xt=urn:btih:3CF248D154BAF98E8D704AE1C24E7319A86129C4
 ```bash
 magnet:?xt=urn:btih:460691E7E374C1BE383E50B208319CCB7289DC6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +549,8 @@ VA - Out Of Routine Goa Psy Trance (2015) [MP3|320 кб/с]<Psy, Goa Trance>
 magnet:?xt=urn:btih:3584C4AA3FD465232EB7081C889A7B8DB3B9D3DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +574,8 @@ magnet:?xt=urn:btih:3584C4AA3FD465232EB7081C889A7B8DB3B9D3DA
 ```bash
 magnet:?xt=urn:btih:165D2E71843DBCB0A1E9E7BAAF867D1E29786733
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +604,8 @@ VA - Great Fitness Music (2019) [MP3|320 Kbps] <Harstyle, Hard Dance>
 magnet:?xt=urn:btih:A9C3EE85A21E987CABA6FD22312709DB9F9CDB18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ Adobe Zii - это небольшая и замечательная утилит
 ```bash
 magnet:?xt=urn:btih:FE2794A848F2F6F836742A55B013BD2E3181621A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +658,8 @@ magnet:?xt=urn:btih:FE2794A848F2F6F836742A55B013BD2E3181621A
 magnet:?xt=urn:btih:72C12A7B9F81091748BDB2B1DF778DE1302921A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ YouTube By Click - отличный и удобный в использован�
 ```bash
 magnet:?xt=urn:btih:5B9A82B887768B712A7B3CE26C14CEDB882323CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +712,8 @@ Tyler Bates, VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: 
 ```bash
 magnet:?xt=urn:btih:2A37A8E6316B679033448105FCF3F4170A702461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

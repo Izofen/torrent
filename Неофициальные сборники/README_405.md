@@ -1,3 +1,32 @@
+###  Публикация: 904019   (656987) от 01.06.2015
+
+VA - Paris Lounge Airport (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_656987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gabriel Ferry - Faraway [03:47]
+02. Gabriel Ferry - My Love Part One [06:06]
+03. Hotel Riviera - Another Change of Love [04:40]
+04. Hotel Riviera - L'obuli [03:43](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 04:13:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:208F52E89FB0B31ADF9CB65DFC1667A371041BDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140131   (656998) от 05.06.2017
 
 VA - Near Reality: Emotional Trance (2017) [MP3|320 Kbps] <Trance, Progressive, Uplifting>
@@ -21,6 +50,8 @@ VA - Near Reality: Emotional Trance (2017) [MP3|320 Kbps] <Trance, Progressive, 
 ```bash
 magnet:?xt=urn:btih:D7D21F33B3D635D163B4C7FE6C157479758546BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +79,8 @@ VA - German Top 100 Single Charts 18.05.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:048FA8B89610A142A0693676619C06489DDAB877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +115,8 @@ VA - Русские Новинки Vol.60 (2012) [MP3|320 kbps]<Pop>
 magnet:?xt=urn:btih:FFCE776285B21F7D84AC1ED66A92069EB3C866D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ VA - Esthetics Lounge Vol. 2 (2012) [MP3|320 kbps]<Downtempo|Lounge|Chillout>
 ```bash
 magnet:?xt=urn:btih:82622C6FF7FFBED4184314D0A0A15F50D32EFB67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +185,8 @@ VA - Клубные Новинки Vol.94 (2012) [MP3|320 kbps]<Club|Dance>
 magnet:?xt=urn:btih:8E3A1E33573383EB21B18122B2F9B480A3ECDBA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +220,8 @@ VA - Летний Хитовый Музыкайф (2012) [MP3|256 kbps]<Pop>
 magnet:?xt=urn:btih:B7A8A7455AD46A70A0623AC7EDD2934E0E400EBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +245,8 @@ VA - Summer Hits Only (2012) [MP3|320 кб/с]<Dance>
 ```bash
 magnet:?xt=urn:btih:8274DDCD52391F854A26008140A5A46557CD679E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +281,8 @@ VA - Top Hits Pop Chart 50/50 (2012) [MP3|320 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:B58A7B44252B674231334035A049D3DA0D3AA83C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +316,8 @@ VA - Зарубежные Новинки Vol.60 (2012) [MP3|320 kbps]<Pop>
 magnet:?xt=urn:btih:AF16BCF40C17B7F7D0D098F0CF4B36E177644857
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +344,8 @@ VA - Dawn Of The Replicant: Synthwave Electronic (2022) [MP3|320 Kbps] <Synthwav
 ```bash
 magnet:?xt=urn:btih:EBA469CEEC946D1877853A4698701304BA591837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +374,8 @@ VA - Дискотека Популярных Хитов (2018) [MP3|320 Kbps] <�
 magnet:?xt=urn:btih:B2AF484A26F40D7F11CB59445BA5552AECAECECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +402,8 @@ VA - The best hits 80-90 (2017) [MP3|320 Kbps] <Eurodance, Pop, Dance, Rap, Hip-
 ```bash
 magnet:?xt=urn:btih:C09E037064435D8955E0A9B15FB0CC636E7DB38E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +432,8 @@ CD1
 magnet:?xt=urn:btih:1637C2DF62454C7BA03D67FFBC925702D98A6771
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +460,8 @@ VA - 150 Sport Dance Music (2018) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:96E317303FF51EBC793E9BDAD71B153CE67A2AE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +490,8 @@ VA - Tropical Serenity: 100 Relaxing Sounds (2017) [MP3|320 Kbps] <Downtempo, Ch
 magnet:?xt=urn:btih:EBDEF2AE3FD039CF6D6E7B267F5909C7ACB3C3F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +518,8 @@ VA - Lady And The Sun (2018) [MP3|320 Kbps] <Rap, Hip Hop, RnB>
 ```bash
 magnet:?xt=urn:btih:5CF56BF0D23644452082810E9700F7B366D56C4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +548,8 @@ VA - Oriental Blues (2018) [MP3|320 Kbps] <Blues, Rock Blues>
 magnet:?xt=urn:btih:1AB0B4F85FEFF2AE4B1B0118016A103FE322A1A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +576,8 @@ VA - Sexy Love Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge
 ```bash
 magnet:?xt=urn:btih:AAE776A4867B5A01D7B9DAEF89A18D6EFF52D22C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +606,8 @@ VA - UKF Dubstep (Album Megamix) (2013-2014) [MP3|128 кб/с]<Dubstep, Drum & B
 magnet:?xt=urn:btih:68859418426349B16B75AD25F52DF057B9067160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +635,8 @@ VA - Billboard Hot 100 Singles Chart (19.05.2018) (2018) [MP3|320 Kbps] <Pop, Da
 magnet:?xt=urn:btih:218B5C16E21ECCDBAF01A64DDD2FBB31AA8E29A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +663,8 @@ VA - Twilight: Deep House Mix (2018) [MP3|320 Kbps] <Deep House, Electro>
 ```bash
 magnet:?xt=urn:btih:D6359AABF658376A17777091C2F91F1E9F9BAF3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +699,8 @@ VA - Rock Hits of 20th Century Vol.1 (2012) [MP3|320 кб/с]<Hard Rock, Heavy M
 magnet:?xt=urn:btih:2C8E5BF27C24026F70FACE91C51E246825DC5259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +727,8 @@ VA - Billboard Hot 100 Singles Chart 06th June (2015) [MP3|256-320 кб/с]<Hip-
 ```bash
 magnet:?xt=urn:btih:0C1352D1B5400D18669DB5AD3783B875CCD824EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -688,6 +763,8 @@ VA - Шоферской хитовичок в дорогу Vol. 4 (2012) [MP3|25
 magnet:?xt=urn:btih:C67806DD47B860F9AA1FCEDDFEEBE62351C624D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -715,38 +792,7 @@ VA - Black (2015) [MP3|320 кб/с]<Techno, Electro, Dubstep>
 magnet:?xt=urn:btih:2F289DED8B6F4E456D5DD96E96E1342103535E40
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513744   (658152) от 24.06.2012
-
-VA - Пляжная Дискотека Хит FM 50+50 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Disco Temperer - Get Up
-02 Меседа Багаудинова - Дым
-03 Silent Circle - Tell Me Why
-04 Натаника - Жить Красиво
-05 Pitbull Feat. Ne - Yo & Afrojack & Nayer - Give Me Everything
-06 Жасмин - Тук-Тук
-07 Flashtronica - Like A Bomb (Radio Edit)
-08 Виктория Дайнеко - Always
-09 St Connection Feat. Sam Wood & Eddie Thoneick - Deeper Free Love (Martin Freak Mash Up)
-10 Maxima - Алло (Fidel Wicked Mix)2012Жанр: PopПродолжительность: 06:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68C66B8F93D347F8A08B2DABEEDC3D10AA07D6AD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

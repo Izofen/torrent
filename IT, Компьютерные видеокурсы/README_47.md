@@ -19,6 +19,8 @@ Coursera | Машинное обучение и анализ данных (2018)
 magnet:?xt=urn:btih:CE99EE24988C1F27A08AC5DA601B749C5C653C63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ HTML Academy | Интенсивный онлайн‑курс  Професси�
 magnet:?xt=urn:btih:91E746401F9BC8768370A2EA1F279CD28D3F6709
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:91E746401F9BC8768370A2EA1F279CD28D3F6709
 ```bash
 magnet:?xt=urn:btih:56C9E00807A4CE288F7600F65FF09659189A91A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ jsexpert | Фундаментальный Node.js (2018) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:5FDCCA6B30B4172B3C54DF329235C6E4CEF4D832
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:5FDCCA6B30B4172B3C54DF329235C6E4CEF4D832
 magnet:?xt=urn:btih:AD39CDE71291C79FB16B1379530AA5650AECEA47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:AD39CDE71291C79FB16B1379530AA5650AECEA47
 ```bash
 magnet:?xt=urn:btih:818AE4805E3B3F99C7FC71C41C7824226B132354
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:818AE4805E3B3F99C7FC71C41C7824226B132354
 magnet:?xt=urn:btih:3F84132B0251323818A954091F6469B4898C78AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Lynda.com | Techniques and Concepts of Big Data (2014) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:55705B2026A95BA4640B938BB760756AC8570AD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Drag and Drop – это техника, которая стала больше 
 magnet:?xt=urn:btih:BB744AC18C76798036E184BD9B22321E0223C58E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ HTML5: File API в подробностях.
 ```bash
 magnet:?xt=urn:btih:2BFD6A9E4F358A0131D2883DD4C32F6689202787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ Udemy | HTML5, CSS3, FlexBox верстка сайтов с нуля. Курс 2
 magnet:?xt=urn:btih:E6CF4D02575AC132571D38815E973089621D2D47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ ITVDN | SharePoint Администрирование (2015) PCRec
 ```bash
 magnet:?xt=urn:btih:C8389C06DF4CD317ABD8017D120AC0534271969C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +347,8 @@ Landing Page, она же - страница приземления или це�
 magnet:?xt=urn:btih:D682E98D3A71EE5EA005EDD79ABC8A5BEF8A7E3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:D682E98D3A71EE5EA005EDD79ABC8A5BEF8A7E3C
 magnet:?xt=urn:btih:3AA9E4FCC8BA3E88AD492EBDD105F2AFB273DC7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ Udemy, Alexandr Tyurin | Интерактивная веб-анимация 2020
 ```bash
 magnet:?xt=urn:btih:B0BEF69B8AE4B8FF558C0397D291CF075C3C5CFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ Udemy, Валерий Жданов | Как создать сайт на Node JS
 magnet:?xt=urn:btih:9077AE74D0FCCBD07C5B381046AE9C6B586F1682
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ Udemy, Денис Пугачев | Docker Swarm на практике (2020) PCR
 magnet:?xt=urn:btih:D886106DCBFB2F8AFF09DABCFE52C3F2CA7A7914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ Udemy, Imtiaz Ahmad | Master SQL For Data Science (2020) PCRec [En / En, Pl, Ro 
 ```bash
 magnet:?xt=urn:btih:D29CDF6FEB17934F704948B6631CE971394E9B30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ Udemy, 365 Careers Team | Statistics for Data Science and Business Analysis (202
 magnet:?xt=urn:btih:39E19F1078E4E293D7F311D14CF6F7EB6B13B135
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ Udemy, Samuel Hinton | Python для статистического анализ
 magnet:?xt=urn:btih:323FCD7BDB1034F2E8688516E22DD2FF8B08548B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ Udemy, Evgenii Puzakov | Check Point Sandblast Course (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:FDADE2F30DAEF0D6F81C34AF738476AE84D8AAE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:FDADE2F30DAEF0D6F81C34AF738476AE84D8AAE1
 magnet:?xt=urn:btih:C5FC9861CF9F70F9C4A94F243D1A36831261F172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ Udemy, Dr. Ryan Ahmed и др. | Программирование на Python 3.
 magnet:?xt=urn:btih:7DD1A6935E2A1A5F7551C90C5D7FB8F5CDF6B899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ Skillbox | Управление digital-проектами (2017) PCRec
 ```bash
 magnet:?xt=urn:btih:379B75BB9602E9CD6BC7EEE5EA5A6DE841D5FB0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ ITVDN | C# Стартовый на примерах из GTA 5 (2016) PCRec [H.2
 magnet:?xt=urn:btih:40FE4DC559C5B901DA5FBD59835F53CB5F78B293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ LiveClasses, Дмитрий Ларионов | Работа с MacOS: Полез
 ```bash
 magnet:?xt=urn:btih:E88AA0BEFB1639F2E1F8B0F66F00D159A99F27AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

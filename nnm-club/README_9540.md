@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:AF231D47A0B089D88DC21BFE4281B4071530FC56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ CD - 1 - Best Of Rock:
 ```bash
 magnet:?xt=urn:btih:0ECE0EFE47C30FC4F2D5961C972CA89026364842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Robert Miles - Dreamland (Remastered) (2016) [FLAC|Lossless|WEB-DL|tracks] <Tran
 magnet:?xt=urn:btih:5E2628D32FBF90FEFC596D07E54B72EF80AB653A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Vidiot - простой и бесплатный нелинейный видео�
 ```bash
 magnet:?xt=urn:btih:5124C2D447F1752CC855074928AABC191EED360A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ CoolVerter 2.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:A8333134EDF41E3F1E4BCAD49C112FD15E6F1C2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:A8333134EDF41E3F1E4BCAD49C112FD15E6F1C2B
 magnet:?xt=urn:btih:918D00E93DF1B61F19A8C4820C9E1B84B76873DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:918D00E93DF1B61F19A8C4820C9E1B84B76873DA
 magnet:?xt=urn:btih:57CB33AFEF869EEAA1AE57B5336AB16A7F577FD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:57CB33AFEF869EEAA1AE57B5336AB16A7F577FD3
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ Antonio Vivaldi; Il giardino armonico - "The Four Seasons"
 magnet:?xt=urn:btih:86C33BD11339D82AB85761C8BEFFA669F3857878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:86C33BD11339D82AB85761C8BEFFA669F3857878
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ Russian Money - Nothing for You There (2016) [FLAC 2.0|44.1/24|tracks|WEB-DL] <B
 magnet:?xt=urn:btih:0A7779C04F2EAF3BFA1732B3A494DD4F3FAA4DD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:0A7779C04F2EAF3BFA1732B3A494DD4F3FAA4DD3
 magnet:?xt=urn:btih:407F5AB4F0307ACF13900B59F1BF9B809092762B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ Sacred 2 Gold: Падший Ангел & Лёд и Кровь [Ru] (Repack/2.65.
 ```bash
 magnet:?xt=urn:btih:605DA6E29829D38339EC03841C51B4A08D3EDBCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ Far Cry 3 [PS3] [RUSSOUND] [FULL] [3.55+Kmeaw] (2012)
 magnet:?xt=urn:btih:1324F0EABFD6E7D183A282F72C890169A4B85607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:1324F0EABFD6E7D183A282F72C890169A4B85607
 ```bash
 magnet:?xt=urn:btih:5ABBBB53E3C2B3817E3885BFF5D62E0C1AE7FDEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ Primordia – point-and-click квест, сочетающий в себе кл�
 ```bash
 magnet:?xt=urn:btih:6B0E2252316E6D88F4BCFC4F09680E41B125C62B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ magnet:?xt=urn:btih:6B0E2252316E6D88F4BCFC4F09680E41B125C62B
 magnet:?xt=urn:btih:3C530068D21C21311189E24AB0E2D49196568470
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ Homefront – сюжетно-ориентированный кинематогр
 magnet:?xt=urn:btih:A889442516289C812C6E181E0D14380E834056CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ Mass Effect: Trilogy Edition  [PS3] [ENG] [USA] [4.30] (2012)
 ```bash
 magnet:?xt=urn:btih:FD432FA9BA088174570E1C5E57C7D1BA7299701E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +548,8 @@ Torchlight: Dilogy / Torchlight: Дилогия [Ru/En] (RePack) 2009 - 2012 | R
 magnet:?xt=urn:btih:B7D1DFC44C934E0BE987899F2C6DBE8BC2391204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +573,8 @@ magnet:?xt=urn:btih:B7D1DFC44C934E0BE987899F2C6DBE8BC2391204
 ```bash
 magnet:?xt=urn:btih:539AD4FE76FDFC3BCAB256A172A3BA2218D5A9A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +600,8 @@ magnet:?xt=urn:btih:539AD4FE76FDFC3BCAB256A172A3BA2218D5A9A1
 magnet:?xt=urn:btih:A4F4C88D6557A864E1AFDA79F6B1EF7C77DF6C1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ magnet:?xt=urn:btih:A4F4C88D6557A864E1AFDA79F6B1EF7C77DF6C1B
 magnet:?xt=urn:btih:312049ECCE6F13AFBD3A96A04F5894C9D6B2F050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016)  BDRi
 ```bash
 magnet:?xt=urn:btih:342A984C2061BC82B4097B5D41442ABC753C62A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ Affinity Designer — самое быстрое, удобное и точное 
 magnet:?xt=urn:btih:878E38640388DA76BEF5000F88F9F3FBA6B37AEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ magnet:?xt=urn:btih:878E38640388DA76BEF5000F88F9F3FBA6B37AEF
 ```bash
 magnet:?xt=urn:btih:A7BC8B1E6DC9CFFD9175688113E7B0FD67245C7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

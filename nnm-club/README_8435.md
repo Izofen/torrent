@@ -19,6 +19,8 @@ Warhammer 40.000: Space Marine (RePack/1.0.156.0) + 13 DLC [Ru/En] 2011 l R.G. O
 magnet:?xt=urn:btih:F016D80211527086DE190980D8BDAA481E693E58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Adestria - Chapters (2012) [FLAC|Lossless]<Metalcore>
 ```bash
 magnet:?xt=urn:btih:C59B930D0B01C8C695A8BC89196FC3760C20EDDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Big Jim Slade - This is Delicious (2008) [FLAC|Lossless]<Blues>
 magnet:?xt=urn:btih:CEAB35F4B732DB2BB9715F2F23C77A8D21C5AF99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:CEAB35F4B732DB2BB9715F2F23C77A8D21C5AF99
 ```bash
 magnet:?xt=urn:btih:022A2C30AEC85EDE66067BBECCD8F62A7E09ADFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ A4 Estrellita(   Читать дальше...   )Жанр: Latin, Easy Listening
 magnet:?xt=urn:btih:71E2F01FEA7592510FCB98C7593434B11E4FBFFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ A4 Mis Amigos(   Читать дальше...   )Жанр: Pop, Swing, Rock & Ro
 ```bash
 magnet:?xt=urn:btih:73606FF671830C07BC5A6B57306F7C8B9ABF4D24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ A4 You Pass Me By(   Читать дальше...   )Жанр: Pop, FolkПрод
 magnet:?xt=urn:btih:DA481CE8F7D3831F5151D0205B5304DDB9F2F8AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ Premiere Pro — это мощное, гибкое и удобное средс�
 magnet:?xt=urn:btih:371941EBC43A6656676AEAC076AFDC43F80EE5BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:371941EBC43A6656676AEAC076AFDC43F80EE5BD
 ```bash
 magnet:?xt=urn:btih:FA97E42F0BB733A30BC923C7BA7E50E2BA4C7A9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ The Comfort Revue - The Comfort Revue (2025) [FLAC 24/44.1|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:AEDBC19926305077491547BA1E20D82902A4A7FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:AEDBC19926305077491547BA1E20D82902A4A7FB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ Savage Mole - The Dunning Kruger Bias (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:DBA3F5895297D9EE63AF0A3834FA4E6304036105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:DBA3F5895297D9EE63AF0A3834FA4E6304036105
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ A4 James Taylor - Handy Man(   Читать дальше...   )Жанр: Rock, P
 magnet:?xt=urn:btih:EBC6CD7DD9158C2E550B2A81C63FB6B333FA315B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +412,8 @@ Rusty Bend featuring Trent McCallson - The Stage (2025) [FLAC 24/192|Lossless|WE
 magnet:?xt=urn:btih:CC9248044A36AD0CDC77F72938B7ECCAC5A8853E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:CC9248044A36AD0CDC77F72938B7ECCAC5A8853E
 ```bash
 magnet:?xt=urn:btih:07BE5F42FE0C196C1D9C154CAE8CBEA9632A3326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +467,8 @@ Robert Schilling - Trouble in the Heartland (2025) [FLAC 24/48|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:750E5F29B998CB2A8FFB596458FE2A488D1EFE50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ magnet:?xt=urn:btih:750E5F29B998CB2A8FFB596458FE2A488D1EFE50
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +519,8 @@ magnet:?xt=urn:btih:750E5F29B998CB2A8FFB596458FE2A488D1EFE50
 magnet:?xt=urn:btih:0910FB5AF23E51D03865F98860C90E35A3C90550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:0910FB5AF23E51D03865F98860C90E35A3C90550
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ Lucy's Seduction - Jay's Garage (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock
 magnet:?xt=urn:btih:5CEED9D414A58B0C01B01E641486289E99E7C349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ Alizee - En concert (2004) DVDRip
 ```bash
 magnet:?xt=urn:btih:F98942FBA20A9C54B9F01EE8663E4AB36EAD887A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +635,8 @@ M83 - Hurry Up, We're Dreaming (2011)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +663,8 @@ Chris Echo & The Verberations - Chris Echo & The Verberations (2025) [FLAC 24/48
 ```bash
 magnet:?xt=urn:btih:32688D0D17F0A32E33E807978A77BC22FDB86EA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +693,8 @@ magnet:?xt=urn:btih:32688D0D17F0A32E33E807978A77BC22FDB86EA6
 magnet:?xt=urn:btih:0B252D78F25434D91348466FADD3DF04D1C6B956
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +721,8 @@ Fernando Noronha & Black Soul - Ain't No Hiding From The Blues (2025) [FLAC 24/4
 ```bash
 magnet:?xt=urn:btih:1519ADB8B9EAC9A12AB61BE1F0403310C865C087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

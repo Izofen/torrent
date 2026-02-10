@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9BB59ACBC462A1098D3451F0EB8629133619FE02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Tears Of Mankind - Memoria (2011) [FLAC|Lossless|image + .cue] <Doom, Death, Dar
 magnet:?xt=urn:btih:E4CEFC5D8316EFEB59B2F2497AE4B93F6120E91C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:E4CEFC5D8316EFEB59B2F2497AE4B93F6120E91C
 magnet:?xt=urn:btih:AB58CA7EC99418DAD36268FAC0A819898EF78641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:AB58CA7EC99418DAD36268FAC0A819898EF78641
 ```bash
 magnet:?xt=urn:btih:70C876B1650AFF9BC7F999B19A1ADE1682E03672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:70C876B1650AFF9BC7F999B19A1ADE1682E03672
 magnet:?xt=urn:btih:0EFD528B1DD5FF63A54D658BC31486941686D8BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:0EFD528B1DD5FF63A54D658BC31486941686D8BB
 magnet:?xt=urn:btih:04AB21C5B2ACE2A0601CF37B4F8CF0F373F99B08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:04AB21C5B2ACE2A0601CF37B4F8CF0F373F99B08
 ```bash
 magnet:?xt=urn:btih:7B07F041DA4D283C4D769B74400C8768F9F19AAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-
 magnet:?xt=urn:btih:42A58A0133045866F81D6AF29058434146CBFDE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:42A58A0133045866F81D6AF29058434146CBFDE6
 ```bash
 magnet:?xt=urn:btih:3BB32128547FAD592C19F9112025F65A5CBC7D48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Dato поддерживает все языковые стандарты и яз
 magnet:?xt=urn:btih:367DAAD58163C4B8E3DA994F4B54209C36721182
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ WSCC (Windows System Control Center) - портативная программа
 magnet:?xt=urn:btih:3DBDB462D659CC2C94CF6EDEA5F4328392913BB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:3DBDB462D659CC2C94CF6EDEA5F4328392913BB8
 ```bash
 magnet:?xt=urn:btih:A796CDF9ECBB6BEC2E0FB28BA7ABD9CFC841866E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ Tyler Durdenn - Пепел космоса (2023) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:06DDA08AD954A6C55BAE202BA9C551255FF27FFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ A Canorous Quintet - The Only Pure Hate MMXVIII (2018) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:A9C1339532950F9129EE50884C07EBC5A1248021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ Moonspell - From Down Below: Live 80 Meters Deep (2022) [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:2F78DF525A2B0285A8612A7D0A0DB4B96EEA7082
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ Airmail – это почтовый клиент для операционной
 magnet:?xt=urn:btih:D76355B8C91BA068880575FC4FCB17588358F877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ Data Guardian 7 v.7.6.4 [En]
 ```bash
 magnet:?xt=urn:btih:5F92E9DDFF7ACB8E526DEDE4088AA0EDA78BE65F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ Dropshare - приложение строки меню для Drag & Drop заг
 ```bash
 magnet:?xt=urn:btih:2AA12E77A45D7F0D6032E669BA6F4ACAFE5F6B1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:2AA12E77A45D7F0D6032E669BA6F4ACAFE5F6B1E
 magnet:?xt=urn:btih:364B58A5E364B27BB898FFA328A39BB0BAB74A6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ GPU Shark - небольшая бесплатная и очень простая
 ```bash
 magnet:?xt=urn:btih:668F73B9564A570D2AA675F6931F2BA1C28746E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:668F73B9564A570D2AA675F6931F2BA1C28746E6
 magnet:?xt=urn:btih:88DB83C94E0160D747AA84607E9160D8EE54129E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:88DB83C94E0160D747AA84607E9160D8EE54129E
 ```bash
 magnet:?xt=urn:btih:2808214878300DE4BE572A5DE136D8AF1029A88F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:2808214878300DE4BE572A5DE136D8AF1029A88F
 magnet:?xt=urn:btih:A72016B93864D69441470F5D4B4452E7E379C9CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ House of Cards - это политическая драма о безнравс�
 ```bash
 magnet:?xt=urn:btih:19E94502A1FE75B7A4692A7DAF325DD75A1ED894
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:19E94502A1FE75B7A4692A7DAF325DD75A1ED894
 ```bash
 magnet:?xt=urn:btih:82E03FA210E4D55A29D5B5A01E1B5FDF6C51C9A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +697,8 @@ Jonathan M Dexter - Waking Sculptures (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog
 ```bash
 magnet:?xt=urn:btih:AD94B1D4E97518BD8E5F5FF5EA4EC790791602B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

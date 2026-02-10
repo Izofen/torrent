@@ -19,6 +19,8 @@ Modern Combat 4: Zero Hour [4.3+jailbreak]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 ```bash
 magnet:?xt=urn:btih:47506EC65B217F9A9EE15FF78A6A20582699755D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Tim Davis - A Swingin' Christmas ...1940's Style (1999) Unison Music [FLAC|Lossl
 magnet:?xt=urn:btih:1ED6EAA19439629E6AD21C73C12A1A2D296A3DB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:1ED6EAA19439629E6AD21C73C12A1A2D296A3DB1
 magnet:?xt=urn:btih:9B6A2F5C3821798618E6F3953C9C611BA74B82BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Water Logo Reveal - красивый, органичный раскрывате�
 ```bash
 magnet:?xt=urn:btih:57E88B35966744DA92E3173BDAC43176D7405075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ VA - The Piano Lounge - Piano Bar Music for Romantic Dinner for Two (2015) [MP3|
 magnet:?xt=urn:btih:D6DE8061455E3A58A79FB6CCAC68565FD2881D1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ VA - Black Hole Best Of (2018) [MP3|320 Kbps] <Trance,House>
 magnet:?xt=urn:btih:68398FD067DAC75BE6E16750A964ED7625282E78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Udemy, Mehmet Nuri Yumuşak | Разработка Backend (API) с Python от 
 ```bash
 magnet:?xt=urn:btih:47B586026DFECFD74D84087900478AF986798951
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ Dave McKenna & Buddy DeFranco - You Must Believe In Swing (1997) Concord Jazz [F
 magnet:?xt=urn:btih:55BEB9DB925BA4953A4F451E9D19382C31904241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ VA - Hit News Vol. 1'96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House, It
 magnet:?xt=urn:btih:7C054BFC941A6EC19DEB3D9C8E559E610A50D9A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:7C054BFC941A6EC19DEB3D9C8E559E610A50D9A6
 magnet:?xt=urn:btih:FECE76DAF9E25434159BAFD74D503B611545640E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ Hand of Fate (2014) [Ru/Multi] (1.3.14/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:345FED82EA50D50F5D49CEF4514FD86B45BCA98C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ Concrescence - Obscured By The Dark Years (2006) [FLAC|Lossless|image + .cue] <N
 magnet:?xt=urn:btih:2AED1F9054504420FD7387055E04458A5C0CB227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:2AED1F9054504420FD7387055E04458A5C0CB227
 ```bash
 magnet:?xt=urn:btih:BA173743F74153F7F93D0D651D18701BF699833C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:BA173743F74153F7F93D0D651D18701BF699833C
 magnet:?xt=urn:btih:197FDEADB8DAB46E9EA324E78B8E594CF46F7AB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ Champions of Anteria – тактическая стратегия, расска
 ```bash
 magnet:?xt=urn:btih:80D4C6AB4DE8780AEA8A231F44107C09AC0F144B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ Erroll Garner - 1954 (2007) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, 
 magnet:?xt=urn:btih:9F9B40A75967D18AAA91688F6D627BD433AB5704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ Papa Roach - 20/20 (2020) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Alternative
 ```bash
 magnet:?xt=urn:btih:21A0E67D01851B0479D52DBA3D86DAD0099D51DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:21A0E67D01851B0479D52DBA3D86DAD0099D51DF
 magnet:?xt=urn:btih:91A927327213FBF35E78BED5FCC9D998FC257788
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ VA - Dream Trance (Best Melodic Dance Cuts Vol 1) (2015) [MP3|320 кб/с] <Tran
 magnet:?xt=urn:btih:016A8138D63D9661A38BBBF493606C6600BE3C08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ MacFamilyTree 8 предлагает множество вариантов за�
 magnet:?xt=urn:btih:F1480AA8C4BF4C60B51BDF19E00256AD388C602B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ Apeaksoft iPhone Transfer может передавать файлы гибко,
 ```bash
 magnet:?xt=urn:btih:7E98565FB95EBF157C1E2975DB5460A5649FDBC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ Sports Show - прекрасный проект анимированный в с
 magnet:?xt=urn:btih:948169F9F3656D202ABD81A62A50173E90A08A90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:948169F9F3656D202ABD81A62A50173E90A08A90
 magnet:?xt=urn:btih:AFA3E57EF52370372A91EAAC29081A2569465E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:AFA3E57EF52370372A91EAAC29081A2569465E29
 ```bash
 magnet:?xt=urn:btih:EBCD28858DE932BAA9124F2377C19FB0D567A1A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +704,8 @@ magnet:?xt=urn:btih:EBCD28858DE932BAA9124F2377C19FB0D567A1A5
 ```bash
 magnet:?xt=urn:btih:C35359D9D7EDEB82A3D2A4953C5088B67494730C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Neckbreak (2019) [Ru/Multi] (1.3) License GOG
 magnet:?xt=urn:btih:40C2ECF3B7DB22A1532D5474487E35A532D30525
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:40C2ECF3B7DB22A1532D5474487E35A532D30525
 magnet:?xt=urn:btih:90E72A34D5B3723669551DBBC5A102AE75A8748C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Any Burn - небольшая бесплатная утилита для раб�
 ```bash
 magnet:?xt=urn:btih:742BD19C877AE70BF04A9B09EE821185E2216D84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ VA - Союз 19 Альбомов (1998-2007) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:631E2D89283AC8029B869F0444739BE34BBC2AEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Icecream Photo Editor - лучший бесплатный фоторедакто
 ```bash
 magnet:?xt=urn:btih:CC199F2FC9BE54A5EAF668888EC3B90C91A8243D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Side One:
 magnet:?xt=urn:btih:BCB283DA76F5A3448190ECFE562B1019388CF351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:BCB283DA76F5A3448190ECFE562B1019388CF351
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Sniper Ghost Warrior Contracts 2 - самая сложная игра в про�
 magnet:?xt=urn:btih:E703FB7C53396B20C5196FD2416B2EE3CF7D2F18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:E703FB7C53396B20C5196FD2416B2EE3CF7D2F18
 ```bash
 magnet:?xt=urn:btih:AF8453DAA309F317D48FAA419165E7F6AA04D2CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:AF8453DAA309F317D48FAA419165E7F6AA04D2CA
 magnet:?xt=urn:btih:4F4443799F066908E9B270F12814CD108CF12B86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Torrent Pro - Torrent Download - приятное в использовании 
 ```bash
 magnet:?xt=urn:btih:BB953D8AE2A1E9E8F9775D028E97C592419D44A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:BB953D8AE2A1E9E8F9775D028E97C592419D44A7
 magnet:?xt=urn:btih:332F39369603111BF0293F5D91F4D45544458ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:332F39369603111BF0293F5D91F4D45544458ED3
 ```bash
 magnet:?xt=urn:btih:8907D66B65A44A51288A6EA3D87B46C9208F8788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:8907D66B65A44A51288A6EA3D87B46C9208F8788
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:8907D66B65A44A51288A6EA3D87B46C9208F8788
 magnet:?xt=urn:btih:4FCC5339132178D25F9228FF6DF5AC29FF40FBB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ YT Saver Video Downloader & Converter 9.2.2 Portable by zeka.k [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CE9BE1128DDB5B5CF5BC28E3160736EF07365059
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:CE9BE1128DDB5B5CF5BC28E3160736EF07365059
 magnet:?xt=urn:btih:032345BF3427A49134D4C41C7D35748A02CB5C30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ The Rogue Prince of Persia – экшен-платформер в жанре rog
 ```bash
 magnet:?xt=urn:btih:81E95FB4745665444D034E9E1C65A4FA25DF95AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ Psy2.0 | Начинающий практик - путь к уверенному 
 magnet:?xt=urn:btih:C7D373EB2F2D813CD96EFB1936DA4783038936ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:C7D373EB2F2D813CD96EFB1936DA4783038936ED
 ```bash
 magnet:?xt=urn:btih:A272535939219C2B72B4DB76CE3F48379FDADA84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ CrossOver создаётся компанией CodeWeavers на основе и
 magnet:?xt=urn:btih:550C4BFD6317AA6370725EC257F06F739A0C259C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ Deep Inside (2024) [En] (Build 16288203) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3BD508A983E260EED1353CB6B01CCFA9AA892209
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:3BD508A983E260EED1353CB6B01CCFA9AA892209
 magnet:?xt=urn:btih:D5C58319D15EBE87679EC711BA8438C303FAEE5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:D5C58319D15EBE87679EC711BA8438C303FAEE5D
 ```bash
 magnet:?xt=urn:btih:7B57DAEBB0C304E0D19958EBA13FBBEEBC684BC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ Hive Jump 2: Survivors - научно-фантастическая ролева�
 magnet:?xt=urn:btih:66E0752EF3B134A1D19C812084C4FC4E1721E05E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:66E0752EF3B134A1D19C812084C4FC4E1721E05E
 ```bash
 magnet:?xt=urn:btih:FAAF8866C5338D5B6D58EDD5AED75563BAAAC697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

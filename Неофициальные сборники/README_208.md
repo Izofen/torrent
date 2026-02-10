@@ -1,3 +1,32 @@
+###  Публикация: 1072544   (352498) от 13.11.2016
+
+VA - Club Dance Ambience Vol.93 (2016) [MP3|320 Kbps] <Dance, Club, Club House, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_352498.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Antoine Clamaran, Agua Sin Gas - Comin' (Original Mix) 5:51
+002.Alex Blue - Still Losing Control (Tropical Mix) 4:30
+003.Alex Indigo - Xo4y (Niral Remix) 6:01
+004.AlunaGeorge & A - One - Not Above Love (DJ Vadim Adamov Mash UP) 3:58(   Читать дальше...   )Жанр: Dance, Club, Club House, HouseПродолжительность: 07:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E9A1EF0B03D5D055DD4281E46CF1C5C5B32BF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072604   (352500) от 13.11.2016
 
 VA - Ultimate Quick Pop Hits! (2016) [MP3|224-320 Kbps] <Pop, Dance, Southern Hip-Hop>
@@ -21,6 +50,8 @@ VA - Ultimate Quick Pop Hits! (2016) [MP3|224-320 Kbps] <Pop, Dance, Southern Hi
 ```bash
 magnet:?xt=urn:btih:2B47B0DE125FF14691582B01F2E36AC759439E7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Заключительная осенняя дискотека - 7 (2016) [
 magnet:?xt=urn:btih:88A27B0ADD4FCFD362EBE08A72886BD8A0141C3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Осенняя Дискотека По-Русски 3 (2016) [MP3|256 Kbps]
 ```bash
 magnet:?xt=urn:btih:ADE9978106C01C4C61EBDCCDAEDAE1C0DFAFDB81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Rock Classic Ballad: Special Performance (2020) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:B7024DF2F0AAE09E4774126EB59971849BD98EE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - 100 Greatest 00s R&B Hits (2020) [MP3|320 Kbps] <R&B>
 ```bash
 magnet:?xt=urn:btih:C558199B5D605673C53D99B140429067B361130F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +202,8 @@ VA - Dubstep 2012 vol.2 (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:5F23D52C9B54D79B75DCC003BFF22173045B960A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +228,8 @@ Bonnie Tyler - Good Songs (2015) [MP3|256-320 кб/с]<Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:DE18484C1D8E0005E85EA622E8D4F76660B336EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +261,8 @@ VA - Sense Of Trance #44 (2012)
 magnet:?xt=urn:btih:2623AFC4C2CFBAABDD1C3A1072774C17E571E221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +289,8 @@ VA - Lounge Tropic: Background Music (2020) [MP3|320 Kbps] <Lounge, Downtempo>
 ```bash
 magnet:?xt=urn:btih:02533C7DF67FB5B39808B672E43D574DC6C3983C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +319,8 @@ T.Rex - Greatest Hits (2020) [MP3|320 Kbps] <Glam-Rock>
 magnet:?xt=urn:btih:53BA959A6C9CF85E62DB498247CAB7581470A382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +346,8 @@ VA - Galactic Party (2015) [MP3|320 кб/с]<Space, SynthDisco, Spacesynth>
 ```bash
 magnet:?xt=urn:btih:778D85D4CDFF4CE82F2E55A9262BF7133D959EB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +376,8 @@ VA - По волне моей памяти: Том 27 (Compiled by Виктор3
 magnet:?xt=urn:btih:7904183E8E034537FEBF8AD0B642442A486A6518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +404,8 @@ VA - По волне моей памяти: Том 24 (Compiled by Виктор3
 ```bash
 magnet:?xt=urn:btih:E5D0075EB32928D423FD6A28270953A0109FCC04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +434,8 @@ VA - Reggae: The House Of Love (2017) [MP3|192-320 Kbps] <Reggae, Soul>
 magnet:?xt=urn:btih:7AA2E03BC54644E8EC643B9A652F26F21F42BB34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +462,8 @@ VA - Dancefloor Fever 2016 (The Best of Clubbing Music) (2015) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:41991DF10C3B01FF39029670085A17F83ED3B4A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +492,8 @@ VA - Love Christmas Relaxed Chill Lounge Winter Cuts (2015) [MP3|320 кб/с]<Do
 magnet:?xt=urn:btih:348EDDD0710C5EC7C5AB0BF34ECBE2A8494CADB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +520,8 @@ VA - Suntrip Uplifting Trance Session (2020) [MP3|320 Kbps] <Uplifting, Vocal Tr
 ```bash
 magnet:?xt=urn:btih:B8067592E7CB321D1AC35BBB3DC677A7F497426D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +550,8 @@ VA - Air Chilled Electro House (2020) [MP3|320 Kbps] <Chill, Deep House, Electro
 magnet:?xt=urn:btih:71E8C285116ED47920C5A23372297998EEA16A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +578,8 @@ VA - По волне моей памяти: Том 23 (Compiled by Виктор3
 ```bash
 magnet:?xt=urn:btih:CB5AB9A7CD1899A5522B4CF1159D5E561650C67E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +608,8 @@ VA - По волне моей памяти: Том 26 (Compiled by Виктор3
 magnet:?xt=urn:btih:2B37D2199D0059E0D2AAEA18FBF3E2BC88E0E6BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +636,8 @@ VA - По волне моей памяти: Том 25 (Compiled by Виктор3
 ```bash
 magnet:?xt=urn:btih:AA38A99508B3E58EA7FA486E1CEDD092FA8C4BD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +666,8 @@ VA - Golden Night Party 80s (2017) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:695901FB34354B906BBE3F96DE37DA66B0E09CDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +694,8 @@ VA - По волне моей памяти: Том 22 (Compiled by Виктор3
 ```bash
 magnet:?xt=urn:btih:578AB557EEFC800DD85E5891D7188FF2128EC787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +724,8 @@ VA - По волне моей памяти: Том 20 (Compiled by Виктор3
 magnet:?xt=urn:btih:21266AF08105886BEBD9FB61E179EEE10FBF5E73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,29 +753,7 @@ VA - Club Dance Ambience Vol.166 (2018) [MP3|320 Kbps] <Dance, Club, House>
 magnet:?xt=urn:btih:CA6FB9F88E8529655530BBF3BA7DDFAB2D9C2277
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256584   (353571) от 22.10.2018
-
-Tears for Fears - Shout (2017) Remix [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_353571.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Shout ★ DJ SAVIN Remix ★ Radio VersionЖанр: Deep HouseПродолжительность: 00:03:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E093320320B51C6391CA314CEAA2966A131F98
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

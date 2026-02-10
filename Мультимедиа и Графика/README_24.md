@@ -20,6 +20,8 @@ Arturia FX Collection 5 5.0.0 VST, VST 3, AAX, NKS (x64) [En]
 magnet:?xt=urn:btih:7BA052FF1C8C24F0C97502C1F062FB41FAE437B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ VLC Media Player - представляет собой мощный медиац
 ```bash
 magnet:?xt=urn:btih:6A44B58D1F67DA49B212335033C29CCC0D4C8B07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Plugin Alliance - MEGA Bundle Effects 2024 VST, VST 3, AAX [En]
 magnet:?xt=urn:btih:1701775A5C4D7DB24EB19D007D5F7FD57639B592
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ PowerDirector - самое быстрое и передовое программ
 ```bash
 magnet:?xt=urn:btih:9614A9497E91101F44769AE39DB5A64BB8F3E032
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Boris FX Silhouette 2024.0.0 Build 254 (x64) RePack by KpoJIuK [En]
 magnet:?xt=urn:btih:D4C24380C92B7D950BB002C737492B9166472DC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Lair - это телепорт сквозь время и место, перед
 magnet:?xt=urn:btih:2373B75D9C87D236ACA20BE7FF6773BBC0AF25BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Steinberg Nuendo 13.0.40.251 (x64) Portable by 7997 [Ru]
 ```bash
 magnet:?xt=urn:btih:80E8175634545A7D15842AC3081A7592DF3A42D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:80E8175634545A7D15842AC3081A7592DF3A42D3
 magnet:?xt=urn:btih:D7FF439A1C42CC999105086D69D35E6B08E33E33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:D7FF439A1C42CC999105086D69D35E6B08E33E33
 ```bash
 magnet:?xt=urn:btih:1CE623E24B727954FFC83474703B1C45193CA44B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Movie Studio 2025 - это мощное, но простое в использо
 magnet:?xt=urn:btih:A1154F1E9E0345F15DFEEE04C7974A8E32B6D80E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ HitFilm Pro - уникальное сочетание нелинейного р�
 ```bash
 magnet:?xt=urn:btih:700E153CA6FEE69EC4FC0D95CAE37D3EE12E04CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Adobe DNG Converter - удобный в использовании инстру�
 magnet:?xt=urn:btih:EF3B0E28C7A590D96AABEA6240A92B75A5F3C4D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Spotify - клиент для прослушивания музыки на од�
 ```bash
 magnet:?xt=urn:btih:644B174C699D7725207291AE4A52EF2B907E9FCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Machete - это удобная утилита для воспроизведен
 magnet:?xt=urn:btih:EF2FBF590F9FE8B1C1302A02483207FCF35720F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ MediaHuman Video Converter - удобное в использовании при
 magnet:?xt=urn:btih:5A06F26001329E4B2CA61C76C509BF15FA49DF83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:E3C53F62B8ED19777BFA90DC586E7EBBA6E16372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ SMPlayer - мощный мультимедиа проигрыватель, ко�
 magnet:?xt=urn:btih:EBDCB3E0CB9C0E347E3971A665305A3440511302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Streaming Audio Recorder 3.3.0.0 RePack (& Portable) by Dodakaedr [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C19AEC09D2F7D001AF3A6F34ABFCCF080869066E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:C19AEC09D2F7D001AF3A6F34ABFCCF080869066E
 magnet:?xt=urn:btih:1CEED3F199D19F941125336ADDD5124AAA478BE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ RX уже давно является популярным пакетом для
 magnet:?xt=urn:btih:9C0AAEFA141E1F5871E9DCFE84F3469D61A6F7EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ FastStone MaxView - быстрый и компактный просмотрщи�
 ```bash
 magnet:?xt=urn:btih:B32AD206AF59D8F61279F3F5DA2E1C0E4E615925
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Video Pro X – это прежде всего профессиональное 
 magnet:?xt=urn:btih:7CF6B9535837F840E9B4BEB4DFEA3878C74214EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Topaz Mask AI 1.3.9 RePack (& Portable) by elchupacabra [En]
 ```bash
 magnet:?xt=urn:btih:2830E2C7797D1033C82588D0FDCC65F86C45762B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Forester — это плагин для выращивания растений 
 magnet:?xt=urn:btih:FD9ADDEBD5B829D9B3D70B54AB059B115C6E4927
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:FD9ADDEBD5B829D9B3D70B54AB059B115C6E4927
 magnet:?xt=urn:btih:32011095B6C09CCD37588D8965F1742B6B36FB00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ CLO Standalone – это более мощная и продвинутая ве
 ```bash
 magnet:?xt=urn:btih:266DD2768BEB84B32EDD5BABA7D7828AB991A9FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

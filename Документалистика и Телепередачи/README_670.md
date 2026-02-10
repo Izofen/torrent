@@ -1,3 +1,30 @@
+###  Публикация: 254951   (903340) от 29.08.2021
+
+Discovery: Во вселенную со Стивеном Хокингом / Into The Universe With Stephen Hawking (2010) BDRip (сезон 1, серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_903340.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 серия: Внеземные существа / Aliens
+По мнению Хокинга инопланетная жизнь существут в разных формах, начиная от простейших организмов, до развитых цивилизаций. Но мы должны избегать контактов с инопланетным разумом, т.к. это может привести к катастрофическим последствиям...Телекомпания: Discovery ChannelЖанр: ДокументальныйПеревод: ДублированныйПродолжительность: 00:57:50+01:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35640B96AF4464A699D99774BBFC8278B111F2CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099916   (903349) от 02.02.2017
 
 Капитализм с человеческим лицом. Франклин Рузвельт (2007) IPTVRip [H.264]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:D2EFD1C6ABF78305379A83E115E8A95B749ABF30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:D2EFD1C6ABF78305379A83E115E8A95B749ABF30
 magnet:?xt=urn:btih:9C2ECC18F674FF18138F45F84A855B33BD86F789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:9C2ECC18F674FF18138F45F84A855B33BD86F789
 ```bash
 magnet:?xt=urn:btih:2BD47A8C78F740193D7582A269266C9CF1557C99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:2BD47A8C78F740193D7582A269266C9CF1557C99
 magnet:?xt=urn:btih:5B0678006ED769DA7A58B3BC1554F2801278C8C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ magnet:?xt=urn:btih:5B0678006ED769DA7A58B3BC1554F2801278C8C7
 magnet:?xt=urn:btih:DA1A34AA7975E7035A500239357A49DC3EDAC138
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +175,8 @@ magnet:?xt=urn:btih:DA1A34AA7975E7035A500239357A49DC3EDAC138
 ```bash
 magnet:?xt=urn:btih:2318014F10EE78369F7E10D031888A658BC11493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +205,8 @@ magnet:?xt=urn:btih:2318014F10EE78369F7E10D031888A658BC11493
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ NG. Гитлеровские лагеря смерти / Hitler's G.I. Death Cam
 ```bash
 magnet:?xt=urn:btih:F1C24187B30724827428BD81B3F8E3D1DEED82E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:F1C24187B30724827428BD81B3F8E3D1DEED82E7
 magnet:?xt=urn:btih:D67C00088A92316496A2E8EA3B5D4063A3190692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:D67C00088A92316496A2E8EA3B5D4063A3190692
 ```bash
 magnet:?xt=urn:btih:75EDA93BC2ECCBAB2515BFAB17FFC91FAAF7A468
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +310,8 @@ magnet:?xt=urn:btih:75EDA93BC2ECCBAB2515BFAB17FFC91FAAF7A468
 magnet:?xt=urn:btih:9189F955FA351C4A79CE72D2197576B0932E9AA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +336,8 @@ magnet:?xt=urn:btih:9189F955FA351C4A79CE72D2197576B0932E9AA4
 magnet:?xt=urn:btih:6AAFB761795273CABEC7FB8B55E505EC357B6CE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +361,8 @@ magnet:?xt=urn:btih:6AAFB761795273CABEC7FB8B55E505EC357B6CE2
 ```bash
 magnet:?xt=urn:btih:2E646ECBE1753675AAABC7B1581157F847CD7A86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +389,8 @@ magnet:?xt=urn:btih:2E646ECBE1753675AAABC7B1581157F847CD7A86
 magnet:?xt=urn:btih:30977A2CD3C49F93F354F737E19DD3C5A1C5B798
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +414,8 @@ magnet:?xt=urn:btih:30977A2CD3C49F93F354F737E19DD3C5A1C5B798
 ```bash
 magnet:?xt=urn:btih:2206B245E9ED0AC2480B4C6290A1EE7B8E2DE323
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +441,8 @@ magnet:?xt=urn:btih:2206B245E9ED0AC2480B4C6290A1EE7B8E2DE323
 magnet:?xt=urn:btih:A1AD3B278E8A57802A5947D6FB54219F2B1F2818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +466,8 @@ magnet:?xt=urn:btih:A1AD3B278E8A57802A5947D6FB54219F2B1F2818
 ```bash
 magnet:?xt=urn:btih:AC2B19AEBA54E26E73C9E97C1CC5E2EDD5FB641E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +493,8 @@ magnet:?xt=urn:btih:AC2B19AEBA54E26E73C9E97C1CC5E2EDD5FB641E
 magnet:?xt=urn:btih:D04B5BAC2E8909C8EC773A2BA3FF461D28BE4430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +518,8 @@ magnet:?xt=urn:btih:D04B5BAC2E8909C8EC773A2BA3FF461D28BE4430
 ```bash
 magnet:?xt=urn:btih:DF57D7035692A46C405841A68AF984878D87BA78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +545,8 @@ magnet:?xt=urn:btih:DF57D7035692A46C405841A68AF984878D87BA78
 magnet:?xt=urn:btih:82A2F2029B450F483C23FBA2379554E7680C6DAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +570,8 @@ magnet:?xt=urn:btih:82A2F2029B450F483C23FBA2379554E7680C6DAB
 ```bash
 magnet:?xt=urn:btih:0814D6E21AE523092F19930BED3B604DD45DBBDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +597,8 @@ magnet:?xt=urn:btih:0814D6E21AE523092F19930BED3B604DD45DBBDA
 magnet:?xt=urn:btih:B7065D53350249EAABE5346610AA36B16165D75D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +622,8 @@ magnet:?xt=urn:btih:B7065D53350249EAABE5346610AA36B16165D75D
 ```bash
 magnet:?xt=urn:btih:A652C8209E53DF59ACA8D84869B114BC119C99CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +649,8 @@ magnet:?xt=urn:btih:A652C8209E53DF59ACA8D84869B114BC119C99CC
 magnet:?xt=urn:btih:4868866B335CA731D7704A4814B1D8B9D67CA40A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,29 +675,7 @@ magnet:?xt=urn:btih:4868866B335CA731D7704A4814B1D8B9D67CA40A
 magnet:?xt=urn:btih:D609B35F5C6BA5B8978F4D39619CE88A3E3E1F0D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991693   (904426) от 29.02.2016
-
-Письма из провинции. Среди звёзд. Пермский край (2016) IPTVRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_904426.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мало кому известно о том, что закрытая в советское время Пермь была важнейшей частью космической программы СССР. Вначале на пермских заводах выпускали ракеты для обороны страны, а потом и для полетов в космос. Мотовилиха, крупнейший завод Перми, стал частью судьбы Светланы Мишлановой, которая организовала акцию  в память о простых рабочих, трудившихся во время войны. (   Читать дальше...   )Телекомпания: ГТРК, Санкт-ПетербургЖанр: ДокументальныйПродолжительность: 00:25:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFAC5527A410E00686940D2045042E67DF34670C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Tobacco Shop Simulator дает побывать в роли владельца 
 magnet:?xt=urn:btih:C65C0C235838756FF2D219820773CF4C42FA833A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Road Food Simulator ставит игрока непосредственно в�
 ```bash
 magnet:?xt=urn:btih:8E99D709C2C08CD41D6E88EA0AE9E08345257DFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ DRAGON BALL: Sparking! ZERO - продолжение легендарной се
 magnet:?xt=urn:btih:5738935ABAD4A2533F085B9DDAC18E30A0788786
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Afterlove EP рассказывает драматичную историю лю
 ```bash
 magnet:?xt=urn:btih:B8963FDBD29C78CA043B0F1325242CA75AE65CD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Knights in Tight Spaces (2025) [Ru/Multi] (1.2.19225) License GOG
 magnet:?xt=urn:btih:78D0997D00634B089C40FC257281C62ED1EC95BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Breach : 83 (2025) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:D50BED21DFED1790440A38F026B9604DE21E946E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Railway Empire 2 (2023) [Ru/Multi] (1.7.0.64099/dlc) Repack seleZen [Digital Del
 magnet:?xt=urn:btih:BBA660C83F18D0E7AB4C14EBA7596377DD41436E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Forgotten Mines - тысячу лет назад в шахтах Дорвгра�
 ```bash
 magnet:?xt=urn:btih:00242A6E00F7DD8E8B8D33E5EB35ED7B66C9C747
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Near-Mage (2025) [Ru/Multi] (1.1.4/dlc) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:7CBE3C59B3D3B4A7B79FCDDB64E82BFB8C476D5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Sorry We're Closed - это напряженный хоррор на выжив�
 ```bash
 magnet:?xt=urn:btih:832503F7D2855989E95B880F3E1B10C6C711C541
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Lightyear Frontier (2024) [Ru/Multi] (0.5.1593) Repack Pioneer [Early Access]
 magnet:?xt=urn:btih:B7F36E52194CD161A4319BF44E0D8F4E23624FA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Kingdom Two Crowns является новым этапом развития э�
 ```bash
 magnet:?xt=urn:btih:9BF2924326BEE1EB94E9C7895093ABD53A446461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Bulwark: Falconeer Chronicles (2024) [Multi] (1.2.18.0/dlc) License GOG
 magnet:?xt=urn:btih:5D79F0D57FE95436D85296E9669CBD5C440A177C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Stellaris (2016) [Ru/Multi] (4.0.1/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:44BDD9DF0EB0E6F851903717ACF7BAD5777CAB21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Maliki: Poison Of The Past (2025) [Multi] (1.3.2) Repack FitGirl
 magnet:?xt=urn:btih:FBE18A68751A95510D547A58DF6B3144832BE15E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Downfall: A Horror Adventure Game / Downfall: История в стиле хо�
 ```bash
 magnet:?xt=urn:btih:E8A8CDE6733E6D05A6F8C7670D42CDE1650A7825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Burnhouse Lane (2022) [Ru/Multi] (1.4.7) License GOG
 magnet:?xt=urn:btih:6A11A0776BF81023E7453C74453B926359C3FA8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:7B4FCBAAF3DF5F6E8F6F1B8E5354634A9F21FBF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Wizard of Legend 2 (2024) [Ru/Multi] (1.0) Repack seleZen
 magnet:?xt=urn:btih:1E79A6A09E6C76A23902F09E77207E0DBD7BF104
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Vivat Slovakia - это игра с открытым миром, действи�
 ```bash
 magnet:?xt=urn:btih:AC18DBA1AC038B977252A6384A36AA4FAD2D5247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Suit for Hire - захватывающий экшн с видом сверху, 
 magnet:?xt=urn:btih:EDA696348CA66578F749883B49BA17389CD48676
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Five Nights at Freddy's: Secret of the Mimic (2025) [Ru/Multi] (1.0.20250616_210
 ```bash
 magnet:?xt=urn:btih:995D436E5886B536A62510E8960E257CDA9F2773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Wizard of Legend 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:E4134586327F5294AEAB77A54282FD3D3F5D9595
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ TRON: Catalyst - новый изометрический приключенче�
 ```bash
 magnet:?xt=urn:btih:A477710FDC6CEE6A301383201EEC7AEAC8161270
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Snow Plowing Simulator (2024) [Ru/Multi] (2506161915) Repack FitGirl
 magnet:?xt=urn:btih:B4738C79C5CD0E1B94244606B2B0DC46070C4986
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Post Trauma (2025) [Multi] (1.04) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F718F74EF79594F27777BE005CF23ABF5B0503D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Tales of the Shire A The Lord of The Rings™ Game (2025) [Ru/Multi] (1.0.2.1) R
 magnet:?xt=urn:btih:AFD15EAE784E010FEC18961448A02EC3DC450F83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:AFD15EAE784E010FEC18961448A02EC3DC450F83
 ```bash
 magnet:?xt=urn:btih:6284D852F1933F55C39D2E270DD7FCD86954A96F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Esmarya — изысканный шрифт с засечками, создан�
 magnet:?xt=urn:btih:609610D6BA11E53A5832C28A6D1A34D4D9C374A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:609610D6BA11E53A5832C28A6D1A34D4D9C374A4
 ```bash
 magnet:?xt=urn:btih:8703682E14573EDF63F5712D561C1A617832C106
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Master PDF Editor — простая, но эффективная програм
 magnet:?xt=urn:btih:140AF8D8087DCC760469EA42BEAB7E2F53B4F40A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:5A2AAD8DB42E2AF315515EDDB45770CC74FAE613
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Revo Registry Cleaner Pro - это мощное и эффективное про
 magnet:?xt=urn:btih:7386796A6674D8C0E0CFEA3248BACC129A4BE20D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:7386796A6674D8C0E0CFEA3248BACC129A4BE20D
 ```bash
 magnet:?xt=urn:btih:A01DCD7638708A2ACCFF86B1EFBD0DA2DEE8D173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:A01DCD7638708A2ACCFF86B1EFBD0DA2DEE8D173
 magnet:?xt=urn:btih:0E1BD53E16F9C4C15455EFFFE2A6D57429EAA08A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:0E1BD53E16F9C4C15455EFFFE2A6D57429EAA08A
 ```bash
 magnet:?xt=urn:btih:04B43BAE82634E42C025BF84C456FF8E0B114864
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:04B43BAE82634E42C025BF84C456FF8E0B114864
 magnet:?xt=urn:btih:1499BBC7FA6C6892361660A95074157AFB3AECDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:1499BBC7FA6C6892361660A95074157AFB3AECDE
 ```bash
 magnet:?xt=urn:btih:7E8772C3F8962F9B4347AF6ED1037262F186654B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ CRETE (2025) [En] (Alpha 0.12.0) Repack Let'sРlay [Playtest]
 magnet:?xt=urn:btih:E7636D28982B08B112C4B145E673C6436931CB0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:E7636D28982B08B112C4B145E673C6436931CB0A
 ```bash
 magnet:?xt=urn:btih:6B8A391924D6EF46C081DAFBB1AA330EAE5332EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:6B8A391924D6EF46C081DAFBB1AA330EAE5332EB
 magnet:?xt=urn:btih:0CFF4502009AA04EBA187AD9CD4F3A03EDCFB7F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Slurm (Слёрм), Виталий Лихачев | Golang-разработчи�
 ```bash
 magnet:?xt=urn:btih:5D4AB79DA4620AD6ADEA4F4B089A11F8ADEEB062
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:5D4AB79DA4620AD6ADEA4F4B089A11F8ADEEB062
 magnet:?xt=urn:btih:6CEFA6D315F52BA3971E0826687006C3E858752D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:6CEFA6D315F52BA3971E0826687006C3E858752D
 ```bash
 magnet:?xt=urn:btih:FDE7406BA6B651F410EA7DB8780E88BF4DB377E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:FDE7406BA6B651F410EA7DB8780E88BF4DB377E0
 magnet:?xt=urn:btih:24BA980FAC919FCA1CE827CBFFA719FFB69A7EED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ magnet:?xt=urn:btih:24BA980FAC919FCA1CE827CBFFA719FFB69A7EED
 ```bash
 magnet:?xt=urn:btih:B8CA199960A3C2E5D9ED3527FEA1F0430660484E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ magnet:?xt=urn:btih:B8CA199960A3C2E5D9ED3527FEA1F0430660484E
 magnet:?xt=urn:btih:F5E506BB31F0BB6912434A4D691C51AF1B5F7F9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ magnet:?xt=urn:btih:F5E506BB31F0BB6912434A4D691C51AF1B5F7F9F
 ```bash
 magnet:?xt=urn:btih:0C8E3C6E830A6BD3C9E61A8192F3A17B67A44A23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:0C8E3C6E830A6BD3C9E61A8192F3A17B67A44A23
 magnet:?xt=urn:btih:12C965CF996BBAA52E364483149CD1B984957221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ magnet:?xt=urn:btih:12C965CF996BBAA52E364483149CD1B984957221
 ```bash
 magnet:?xt=urn:btih:BE22E95B1C954A4060D12FBBE846859BD196D095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ magnet:?xt=urn:btih:BE22E95B1C954A4060D12FBBE846859BD196D095
 magnet:?xt=urn:btih:9D8887C3CC24588A08BEA050F2E4D123C23D2C68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ magnet:?xt=urn:btih:9D8887C3CC24588A08BEA050F2E4D123C23D2C68
 ```bash
 magnet:?xt=urn:btih:6B85179ECC638FBA009FC00A1280477B88F4142B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

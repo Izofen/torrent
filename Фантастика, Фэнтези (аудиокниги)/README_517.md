@@ -1,3 +1,29 @@
+###  Публикация: 94283   (995732) от 19.01.2013
+
+Анджей Сапковский | Крещение Огнем [1996] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_995732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Словно прислушавшись к многочисленным стенаниям читателей, сетовавших на то, что в предыдущей книге цикла о самом ведьмаке было сказано слишком мало, пан Анджей «исправился». В этой книге мы вновь будем наблюдать такую сложную и неоднозначную жизнь «простого» ведьмака. В поисках Цири он готов объехать весь мир. И в этих стремлениях он не одинок, хотя и странная компания (   Читать дальше...   )Жанр: Фэнтези
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603578   (996973) от 15.01.2013
 
 Игорь Шапошников | Будущее не выбирают [2013] [MP3]
@@ -22,6 +48,8 @@
 magnet:?xt=urn:btih:46FD699E79801A624206752628AAC5FF8650FE9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:46FD699E79801A624206752628AAC5FF8650FE9E
 ```bash
 magnet:?xt=urn:btih:DF96A27A0C678ABBE0EFDD7EEEE1C2B1790344AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:DF96A27A0C678ABBE0EFDD7EEEE1C2B1790344AB
 magnet:?xt=urn:btih:1E6DEA1FFF276498ACE169BA49A740C8D9402430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:1E6DEA1FFF276498ACE169BA49A740C8D9402430
 ```bash
 magnet:?xt=urn:btih:E5DA9F79DA16C7BEBBF9B7248C63873E6CB33CDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +160,8 @@ magnet:?xt=urn:btih:E5DA9F79DA16C7BEBBF9B7248C63873E6CB33CDC
 magnet:?xt=urn:btih:F7F74FF80BD0E5F5FD9C14CAFF56FBC9B8870736
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +188,8 @@ magnet:?xt=urn:btih:F7F74FF80BD0E5F5FD9C14CAFF56FBC9B8870736
 magnet:?xt=urn:btih:A8DC91D447C0AF86ABF42A0CB39A39C47906EC1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +214,8 @@ magnet:?xt=urn:btih:A8DC91D447C0AF86ABF42A0CB39A39C47906EC1C
 magnet:?xt=urn:btih:4E5470647F5B4584BB160B64176B66A624E137EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +239,8 @@ magnet:?xt=urn:btih:4E5470647F5B4584BB160B64176B66A624E137EF
 ```bash
 magnet:?xt=urn:btih:6EBD42D58B05F153F0D0146A7378885EB92D18A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +269,8 @@ magnet:?xt=urn:btih:6EBD42D58B05F153F0D0146A7378885EB92D18A5
 magnet:?xt=urn:btih:7C7445A5A8F37B3FF04E18D9EE8B1DB1C9E1520C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +294,8 @@ magnet:?xt=urn:btih:7C7445A5A8F37B3FF04E18D9EE8B1DB1C9E1520C
 ```bash
 magnet:?xt=urn:btih:670095DC30CD7B299F54A4061498C7812121FB47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +321,8 @@ magnet:?xt=urn:btih:670095DC30CD7B299F54A4061498C7812121FB47
 magnet:?xt=urn:btih:E6F86A3E0DE91EA21324E96C79F95ED0FF12C2AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +347,8 @@ magnet:?xt=urn:btih:E6F86A3E0DE91EA21324E96C79F95ED0FF12C2AA
 magnet:?xt=urn:btih:90F56BAA1DB5FA1C24069677DAC7982BCBF2AFE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +372,8 @@ magnet:?xt=urn:btih:90F56BAA1DB5FA1C24069677DAC7982BCBF2AFE3
 ```bash
 magnet:?xt=urn:btih:E6BB538C973EC13B52D40C3ECFF2280C69800355
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +401,8 @@ magnet:?xt=urn:btih:E6BB538C973EC13B52D40C3ECFF2280C69800355
 magnet:?xt=urn:btih:E6CA1E5A31F17D81AE082917AE9FD5C355DFE7F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +426,8 @@ magnet:?xt=urn:btih:E6CA1E5A31F17D81AE082917AE9FD5C355DFE7F4
 ```bash
 magnet:?xt=urn:btih:0F370AB28FBD118D1CB1835FF8D7B4D3A43020AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +453,8 @@ magnet:?xt=urn:btih:0F370AB28FBD118D1CB1835FF8D7B4D3A43020AC
 magnet:?xt=urn:btih:4CE3087E0F61AF46C74F3566F274FEE2AC943D84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +478,8 @@ magnet:?xt=urn:btih:4CE3087E0F61AF46C74F3566F274FEE2AC943D84
 ```bash
 magnet:?xt=urn:btih:020CCF14415A5A6E8885E3AAC94454D66C556DC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +507,8 @@ magnet:?xt=urn:btih:020CCF14415A5A6E8885E3AAC94454D66C556DC7
 magnet:?xt=urn:btih:0E40022A42AC421B42799CF794411950BEE98361
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +532,8 @@ magnet:?xt=urn:btih:0E40022A42AC421B42799CF794411950BEE98361
 ```bash
 magnet:?xt=urn:btih:1B60E5B80285EA3927998C87AE76048750217977
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +560,8 @@ magnet:?xt=urn:btih:1B60E5B80285EA3927998C87AE76048750217977
 magnet:?xt=urn:btih:BB4BCEDF20FC768C40386DF252AAB573CC2FDD93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +585,8 @@ magnet:?xt=urn:btih:BB4BCEDF20FC768C40386DF252AAB573CC2FDD93
 ```bash
 magnet:?xt=urn:btih:B183CB11B353F572F748399816D988CBD561E59B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +613,8 @@ magnet:?xt=urn:btih:B183CB11B353F572F748399816D988CBD561E59B
 magnet:?xt=urn:btih:E00CA2F27867DE3063CBC85DE8DD189B7BB65A9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +638,8 @@ magnet:?xt=urn:btih:E00CA2F27867DE3063CBC85DE8DD189B7BB65A9C
 ```bash
 magnet:?xt=urn:btih:0F29F2EF0D839763B6AD2C08E293346B704EFB7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +665,8 @@ magnet:?xt=urn:btih:0F29F2EF0D839763B6AD2C08E293346B704EFB7E
 magnet:?xt=urn:btih:40E4DCD44DEBFB9707E275C775801003D0553369
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,29 +691,7 @@ magnet:?xt=urn:btih:40E4DCD44DEBFB9707E275C775801003D0553369
 magnet:?xt=urn:btih:F673C6D94BE0CB93A95A5AB77BB27F8D4B75EAA1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488493   (1002024) от 11.08.2021
-
-Борис Батыршин | Коптский крест (Книга 1) (2021) [MP3, Игорь Ломакин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1002024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наверное, каждый хотел бы побывать на экскурсии в прошлое. Героям книги это более чем удалось, ведь для них открыт временной портал и теперь всей семьёй можно заглянуть в XIX век. Вот только взрослым не стоит забывать, что дети всегда могут выкинуть нечто неожиданное, то, что в незнакомой эпохе может иметь для путешественников самые неприятные последствия, да и временные (   Читать дальше...   )Жанр: Историческая фантастика, попаданцыПродолжительность: 12:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D068708BE187AE663512232F44B84334D3D71076
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

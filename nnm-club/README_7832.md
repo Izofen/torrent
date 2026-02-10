@@ -19,6 +19,8 @@ Webcams 2.0.17 [En]
 magnet:?xt=urn:btih:B5BE4115E98123333E90F4B633BA460C054AA768
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Wings Of Destiny - Time (2015) [FLAC|Lossless|image + .cue] <Melodic Power Metal
 ```bash
 magnet:?xt=urn:btih:0863C4D9F01DF4949AB5B7798AF93BAC8303F439
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Black Art Jazz Collective - Ascension (2020) HighNote Records [FLAC|Lossless|tra
 magnet:?xt=urn:btih:4771DAD93DB30CC235B472F710C73D6C55121DF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Hippo - Quiet Pills (2023) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom-Metal, Ex
 ```bash
 magnet:?xt=urn:btih:A9F011BF72CCBE90139B2EEE214809CB1A76EC87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ VA - Ibiza Sundown Chillout (2021) [AAC|~295 Kbps] <Lounge, Chill Out, Downtempo
 magnet:?xt=urn:btih:5B22AF21145EADB8B8555E6C952845D2F1375D4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:5B22AF21145EADB8B8555E6C952845D2F1375D4C
 ```bash
 magnet:?xt=urn:btih:49B1F1B9ACA359DC5E1997DDD8427408553FF9C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Visual Studio Code – визуальный редактор кода от ко�
 magnet:?xt=urn:btih:F3565A0E619380F8670D22A1D33CDF2FAD872C61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:F3565A0E619380F8670D22A1D33CDF2FAD872C61
 ```bash
 magnet:?xt=urn:btih:31C104EBB96240929A0284C94AB8BCEA1A4C3F22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ Helsreach - Helsreach (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Hardco
 magnet:?xt=urn:btih:BB0EBB9621B02EFC22AE013B38AD232365D50869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-
 ```bash
 magnet:?xt=urn:btih:E1A316C149EDD53981EAB30F62D06B9B6A5C6B1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ Scrutiny проверит ваши изображения, ваши внутре
 magnet:?xt=urn:btih:C253816B5BC6509B0FCCC1732DD16FC888BAE68A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Wondershare UniConverter - простой в использовании виде
 ```bash
 magnet:?xt=urn:btih:A1656EB7DEFF0FF5B8A834AA30FEE61427B2D0BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -327,6 +351,8 @@ Larry Taylor and The Taylor Family - Generations of Blues_ West Side Legacy (202
 magnet:?xt=urn:btih:85149FBEB5B47E4BDACAD04E52EAC2A75FA54E6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:85149FBEB5B47E4BDACAD04E52EAC2A75FA54E6F
 ```bash
 magnet:?xt=urn:btih:EE6F1B58DE9ABCC519985047BAD8F21B109301D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ nakst - Apricot Hybrid Synth 1.1.9 (FL Studio Native) [En]
 magnet:?xt=urn:btih:D09B9ED33089870A643AF4E3E17E39F85F185C40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ FlippedNormals, Emiel Sleegers | Advanced Texturing in Substance Painter (2021) 
 ```bash
 magnet:?xt=urn:btih:43499AAE77592556D9ADBA68B5FD4CA27D60ACBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ Boo Boo Davis - The Trio 2008 - 2019 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues
 magnet:?xt=urn:btih:A11BAC48D83CA10DEDDB8B9D5227910D66FFE7ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Daniel Irvine | Build Your Own Test Framework: A Practical Guide to Writing Bett
 ```bash
 magnet:?xt=urn:btih:D46064E32D027230B54213F46B0C36FE3E643C96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ FastScripts - Утилита для быстрого запуска AppleScript-
 magnet:?xt=urn:btih:980070D45112934E68E9BD3B2A2651A52E726C50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ Valentina Studio - это идеальный инструмент управле
 ```bash
 magnet:?xt=urn:btih:113C67C511172BC0A1944E51E513D04665ED50E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ EXIF App 1.3 [En]
 magnet:?xt=urn:btih:97EC7EEC7E7F16D52EDE2EAD2B1E2E395A958329
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ Ecstatica: A State of Mind (1997) [En] (1.0) License
 ```bash
 magnet:?xt=urn:btih:F702B2B71AFFACC42B364041F93D7F393C1E2ED2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ Astral Moon - Into Solar Abyss (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 magnet:?xt=urn:btih:C9B8A61D6C67136815A3321B9579C3327A0E4636
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ Itzik Ben-Gan | T-SQL Fundamentals, 4th Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:81F08F677C1AFA7F351461AAE7E9C33122021234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ Charlie A’Court - A’Court, Spiegel, & Vinnick (2023) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:46EED9DD69F290D1B2A9BDCC4B0A07DF43D581B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:46EED9DD69F290D1B2A9BDCC4B0A07DF43D581B5
 ```bash
 magnet:?xt=urn:btih:DCDFA584B5400065EDC83726B3DB084BB9ED2C03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

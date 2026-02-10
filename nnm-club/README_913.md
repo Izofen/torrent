@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:635CD17C52E4B562811B727E6B5DC539EE32100C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:635CD17C52E4B562811B727E6B5DC539EE32100C
 ```bash
 magnet:?xt=urn:btih:32C7D9723AA9B96C1EA24BEA1D31099ADF1C3476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ MiniOS — это лёгкий и быстрый модульный дистри
 magnet:?xt=urn:btih:789E2FA2D2946D2121C0AA75FB7FB5DB482735F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Mortal Darkness (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:053D281BB4C10CC71147834FE8FC7A33F4942641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:053D281BB4C10CC71147834FE8FC7A33F4942641
 magnet:?xt=urn:btih:48FA5D45F88B850C33C5E7A839F449646DE3B3BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Film Transition Pack добавляет классическое, кинемат
 ```bash
 magnet:?xt=urn:btih:F91D4E302A53AC761FC85CF4BAC9C1F64C8C027F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:F91D4E302A53AC761FC85CF4BAC9C1F64C8C027F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:C4F6B7D8D68F5DE8DA4DB7CBFEC9320668E2B2C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:C4F6B7D8D68F5DE8DA4DB7CBFEC9320668E2B2C2
 magnet:?xt=urn:btih:B31A57CE39D60A5A8E3CF0424261E921003D2041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Grand Fantasy Heroes (2025) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:417DEFF4A3E8CA9D315654BE761907F2F6A9B915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Death Stream (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:D6A32ABB3BBFEFEA7F01B8092938AE3A7CB71B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:D6A32ABB3BBFEFEA7F01B8092938AE3A7CB71B6B
 ```bash
 magnet:?xt=urn:btih:A8EBE3682FF8C88878C56763D18C9AF3FBE63084
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Cities: Skylines II - это живая экономическая систем�
 magnet:?xt=urn:btih:80DCE7120401738126826D212E848430182EF737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Neverwinter Nights: Enhanced Edition (2018) [Multi] (89.8193.37-15b/dlc) License
 ```bash
 magnet:?xt=urn:btih:727848A1F0C5808B880DEF11D98D6E900B89A367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:727848A1F0C5808B880DEF11D98D6E900B89A367
 magnet:?xt=urn:btih:B3181A15A79CF557DF6B447EB0F438E1E9432E2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:B3181A15A79CF557DF6B447EB0F438E1E9432E2C
 ```bash
 magnet:?xt=urn:btih:648F3431E1487F127D921F50824E661ED0A09D3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:648F3431E1487F127D921F50824E661ED0A09D3F
 magnet:?xt=urn:btih:DF6A89E0A0E81186DA8A2288739E829F62358992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Microsoft® Windows® 10 Pro-Home Optim Plus x64 22H2 RU by OVGorskiy 03.2025
 ```bash
 magnet:?xt=urn:btih:896D269E7A2C6E52923F4A2431990B88A64D16B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:896D269E7A2C6E52923F4A2431990B88A64D16B3
 ```bash
 magnet:?xt=urn:btih:714B555FC5960B3699F5B1B212B3B948A01B8F36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:714B555FC5960B3699F5B1B212B3B948A01B8F36
 magnet:?xt=urn:btih:9F3C8F5C70C1DD3B4331602D23EA46BC91E6666E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Cities: Skylines II - это живая экономическая систем�
 ```bash
 magnet:?xt=urn:btih:F4950784431747AAEEA907C8F8E51FDC1D69B5DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:F4950784431747AAEEA907C8F8E51FDC1D69B5DC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:F4950784431747AAEEA907C8F8E51FDC1D69B5DC
 ```bash
 magnet:?xt=urn:btih:FDBDD3B1FF428911CB4E5B36CA311C311F1C61A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:FDBDD3B1FF428911CB4E5B36CA311C311F1C61A0
 magnet:?xt=urn:btih:FA5C044813339861B7AAF66A1828269BA249CCB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Total Commander является самым мощным и стабильным
 magnet:?xt=urn:btih:8ACA6943E2C110824F2CB67F08D29A896376BACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:8ACA6943E2C110824F2CB67F08D29A896376BACC
 ```bash
 magnet:?xt=urn:btih:AFD95D8F6D7DCF2FE0B3F83F8431996AD7ECF25D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

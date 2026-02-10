@@ -20,6 +20,8 @@ FreeTube использует собственный HTTP-API YouTube с наб�
 magnet:?xt=urn:btih:772440760B7170BBDA19BABD4C8EA60F714CC6DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:C86853F78244133C0981821250A94B31F241EFB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Snagit предлагает неограниченные возможности 
 ```bash
 magnet:?xt=urn:btih:D9E8BE4B9DB122943ECC147175AB98CEB97E41B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Camtasia захватывает действия и звуки в любой ч�
 ```bash
 magnet:?xt=urn:btih:DFDC1116C92D9670F46FFC928FC20CC3C782AE73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Screencapt — лучший инструмент для записи экран�
 magnet:?xt=urn:btih:743B62C0F24F483D0CA349E62F28D12AFBDED02A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Master PDF Editor — простая, но эффективная програм
 ```bash
 magnet:?xt=urn:btih:E4F7B058465BBA8C994C8F2B2329387ECBE526CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ SoftPerfect RAM Disk - программа для создания виртуал
 magnet:?xt=urn:btih:C888285419B26761A627B78BF318E471B8A39176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Hard Disk Sentinel Pro — отличная программа для монит
 ```bash
 magnet:?xt=urn:btih:2A72DD078556AE5BABE1C85F95BB84C210A8DDB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 magnet:?xt=urn:btih:82B19E4044D4E1466D35120DA7123C0E7301C836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 magnet:?xt=urn:btih:CF38BDF47306489C0EAE0DD6C3DC0FC8E8F6E12F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ iDownerGo – это приложение для загрузки мультим
 ```bash
 magnet:?xt=urn:btih:3304A5C4A6CD6AA28BBEBB9A7F0F739DB4841981
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ GerbView поддерживает форматы Gerber RS-274D и RS-274X , и 
 magnet:?xt=urn:btih:C2C21929AFDFF20C67157775CFA4E95FF7DA3995
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ PCMark 10 — это простой и удобный в использован�
 ```bash
 magnet:?xt=urn:btih:A6BE77BA12BF50E41FE21CC6B0E09F9C18696762
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ CPU Temp 1.8.0.0 [En]
 magnet:?xt=urn:btih:518B92197A9A6DA7DD82B5A7827FF1BC62632B18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 magnet:?xt=urn:btih:E6E09BB2362D7D0BDB029D8EA1FF7A13AC629407
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Ashampoo UnInstaller 16.00.02 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A6EE48B74AF15D20580C6A2C0BDD89F23E20934A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:04680C5344269C2F73DD67210F9F510B99B33DE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Download Master эффективно решает 3 главных пробле�
 magnet:?xt=urn:btih:AA15AE93EF5F30D217FCAC796F26AAA7720FCF87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Ashampoo WinOptimizer 28.00.14 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7CCEC835F7DC6E20A835D4AE61D2BF8166D40AE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Total Commander Extended - это x86 и x64 версии Total Commander в о�
 magnet:?xt=urn:btih:4D5C0F65C941767D7EEAC4CB7D56E7DA3F488282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:598F48EDC669E9E19BD0AB3FF7AE0C8F019B7265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ MobiKin Backup Manager for Android 2.0.24 [Multi/Ru]
 magnet:?xt=urn:btih:D52B980DE26BF5D2F245F28161A68E19219C7513
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Microsoft Activation Scripts (MAS) 3.7 portable [En]
 ```bash
 magnet:?xt=urn:btih:823B14FD517A1E0819179F3E5A272A5008532D0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ PDF Candy Desktop — универсальный инструмент, кото�
 magnet:?xt=urn:btih:198F85AE8BE41BE059570AC8F91AB043864C885B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 magnet:?xt=urn:btih:2959BC6B7FD476037EBC435C03BE61FE8472D158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:601BE7C2AFAC06871816EEECB5807F981239E8BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

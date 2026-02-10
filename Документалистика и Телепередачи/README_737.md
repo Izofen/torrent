@@ -1,3 +1,29 @@
+###  Публикация: 1469863   (1016136) от 14.05.2021
+
+Суворов. Альпийский поход (2010) IPTVRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1016136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ о самой яркой и драматичной странице жизни великого полководца Александра Васильевича Суворова - о легендарном альпийском походе его армии. Авторам фильма захотелось самим разобраться в том, что же на самом деле случилось с суворовской армией в 1799 году в швейцарских Альпах. Почему, несмотря на то, что прошло уже более двухсот лет, этот поход и сегодня будоражит (   Читать дальше...   )Производство: Россия / НП "Киностудия "НАТАКАМ"Жанр: Документальный, историяРежиссер: Татьяна ДенисоваЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F589AAD5C06D026E4A1900E3EEB1C3244BFAA1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469585   (1016221) от 13.05.2021
 
 Швейцария / Switzerland (2021) WEBRip [AV1/4320p] [8K, HDR, 60fps]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:DF55146DF4BFE27ADC96596C266A458468F4E241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:DF55146DF4BFE27ADC96596C266A458468F4E241
 magnet:?xt=urn:btih:86311020BCB2C61AC479B17603E985292AC8E798
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:86311020BCB2C61AC479B17603E985292AC8E798
 ```bash
 magnet:?xt=urn:btih:8475CD8A70A358F47355BECB7B74488D15499671
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:8475CD8A70A358F47355BECB7B74488D15499671
 magnet:?xt=urn:btih:A1A06D4DE4D7CA4C023DE988DF63D361D6AFC05D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:A1A06D4DE4D7CA4C023DE988DF63D361D6AFC05D
 ```bash
 magnet:?xt=urn:btih:70AE2B809386B54EAFF2E71FE635FDAF85560C15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:70AE2B809386B54EAFF2E71FE635FDAF85560C15
 magnet:?xt=urn:btih:6DEC1B92760F033172921FF07A3AE465ED4A2371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:6DEC1B92760F033172921FF07A3AE465ED4A2371
 ```bash
 magnet:?xt=urn:btih:E65C307B0C8963407A767DD91601B281703C3376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:E65C307B0C8963407A767DD91601B281703C3376
 magnet:?xt=urn:btih:D2358D5F59926B727F331E4A3B4E8D472451CC81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:D2358D5F59926B727F331E4A3B4E8D472451CC81
 ```bash
 magnet:?xt=urn:btih:3E5E270021532356BC30BF64C4969A40CCF889C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:3E5E270021532356BC30BF64C4969A40CCF889C2
 magnet:?xt=urn:btih:C07AF0F67D5253732B715E44BE1EC71A4B336C3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:C07AF0F67D5253732B715E44BE1EC71A4B336C3A
 ```bash
 magnet:?xt=urn:btih:F3E8A6729397580E19C687A629A91F56FEAE51CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:F3E8A6729397580E19C687A629A91F56FEAE51CD
 magnet:?xt=urn:btih:58567BA94F76FAC89445D3A77DFFAB90739E39D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:58567BA94F76FAC89445D3A77DFFAB90739E39D5
 ```bash
 magnet:?xt=urn:btih:22CC25211052CA823F5A4CD2216F2B3DAE63A6DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:22CC25211052CA823F5A4CD2216F2B3DAE63A6DC
 magnet:?xt=urn:btih:436743CDBA4F8BBD922B2B403B8F1EF27E68F3A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:436743CDBA4F8BBD922B2B403B8F1EF27E68F3A9
 ```bash
 magnet:?xt=urn:btih:6939D239860BCCDD84E3A48701290E53186D0ACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:6939D239860BCCDD84E3A48701290E53186D0ACE
 magnet:?xt=urn:btih:5065B59EDC90C147885CD4118B9211EB83CF00D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:5065B59EDC90C147885CD4118B9211EB83CF00D8
 ```bash
 magnet:?xt=urn:btih:E97DC568DF65A570F5488AFBF91405BB59A68744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:E97DC568DF65A570F5488AFBF91405BB59A68744
 magnet:?xt=urn:btih:1C0AB05E5777351FA8C57C82D61A68CDCA052351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:1C0AB05E5777351FA8C57C82D61A68CDCA052351
 ```bash
 magnet:?xt=urn:btih:980FDBB1525B3E0FF339F20890C7A053A7B13D16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:980FDBB1525B3E0FF339F20890C7A053A7B13D16
 magnet:?xt=urn:btih:F47D03A391BBA26DFC5E06C3DDE36A74D1D0D54E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:F47D03A391BBA26DFC5E06C3DDE36A74D1D0D54E
 ```bash
 magnet:?xt=urn:btih:8E728FAF263949D5B199E9C5CA645196E075B620
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:8E728FAF263949D5B199E9C5CA645196E075B620
 magnet:?xt=urn:btih:E0E8493D1CFC2DF7B38AF10141C167910858D4FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:E0E8493D1CFC2DF7B38AF10141C167910858D4FC
 ```bash
 magnet:?xt=urn:btih:A3068D24BD51A9468070A17F86576272E2D0C918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:A3068D24BD51A9468070A17F86576272E2D0C918
 magnet:?xt=urn:btih:1AD969B13BABF5E3B9E894FCABF43AD85519DB51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:1AD969B13BABF5E3B9E894FCABF43AD85519DB51
 magnet:?xt=urn:btih:3895C3E4F72D41F24040BC7E8D741D4B5096EE25
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467036   (1017899) от 03.05.2021
-
-Военная приемка. Умный «Калашников». Фильм первый (02.05.2021) WEBRip  [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1017899.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная приемка» подготовила для зрителей премьеру - обновленный АК-12. Главный конструктор концерна «Калашников» расскажет о новом прикладе и новом прицеле, а журналисты испытают автомат на прочность, выносливость и точность. Впрочем, новый АК ждут не просто броски с высоты и испытание пылью: «Военная приемка» посмотрит на него с точки зрения эффективности. Для (   Читать дальше...   )Телекомпания: ОАО «ТРК ВС РФ «ЗВЕЗДА»Жанр: ТелепередачаРежиссер: Александр ШильниковСубтитры: ОтсутствуетПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38BCD67A66689959A3F87DCC5E5872B181C4DEDC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

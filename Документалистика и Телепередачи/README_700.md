@@ -1,3 +1,29 @@
+###  Публикация: 1090485   (947316) от 06.01.2017
+
+В поисках Дон Кихота (2017.01.04) SATRip (серия 2)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Владимир Познер о своем проекте: "Это седьмая наша попытка рассказать о стране. Испания - одна из самых интересных стран Европы - с очень сложной историей, с выдающимися художниками и чем-то очень близкая, как это ни странно, России. Испания очень долго была под игом мавров, Россия - под игом монголо-татар. О России часто говорили, что это не совсем Европа. (   Читать дальше...   )Телекомпания: Первый каналЖанр: Документальный, биография, история, путешествияРежиссер: Валерий СпиринСубтитры: ОтсутствуютПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3191903D51904A1EF384B619CA7A468F1D977888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090351   (947333) от 06.01.2017
 
 Голос. На самой высокой ноте (2017.01.06) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:41A5B0A840402915580CB6665E8E4B5A92F5072F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:41A5B0A840402915580CB6665E8E4B5A92F5072F
 magnet:?xt=urn:btih:FD8249A0B45849607805739954519C5127167136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:FD8249A0B45849607805739954519C5127167136
 ```bash
 magnet:?xt=urn:btih:CBCD6F13BAC5373E09FEB5AC7DCD084C4421E39D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:CBCD6F13BAC5373E09FEB5AC7DCD084C4421E39D
 magnet:?xt=urn:btih:4D18C7885C65A8E443F3DE4722DB70387614486B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:4D18C7885C65A8E443F3DE4722DB70387614486B
 magnet:?xt=urn:btih:A9F5E3EE16E5C018F28AAB12ED82DEBEE0A9D7CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ magnet:?xt=urn:btih:A9F5E3EE16E5C018F28AAB12ED82DEBEE0A9D7CA
 ```bash
 magnet:?xt=urn:btih:6F0C77541977E41D219EDEE40CC3582C675C0FD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:6F0C77541977E41D219EDEE40CC3582C675C0FD3
 magnet:?xt=urn:btih:5C5B45D93FABD7E404F1A1B476ABD34E624E96C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:5C5B45D93FABD7E404F1A1B476ABD34E624E96C5
 ```bash
 magnet:?xt=urn:btih:0B706D437CB931A5B810A08C7D39FB2749D75A44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:0B706D437CB931A5B810A08C7D39FB2749D75A44
 magnet:?xt=urn:btih:48E21B075A7621C7D23C5CE7B99C867379B28E7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:48E21B075A7621C7D23C5CE7B99C867379B28E7A
 ```bash
 magnet:?xt=urn:btih:7D16751B9A83E0AEE25682E4B6087A2F616F3DE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:7D16751B9A83E0AEE25682E4B6087A2F616F3DE9
 magnet:?xt=urn:btih:7AD07EE5B8E86342D95BDE5AF3B703A629CDF647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:7AD07EE5B8E86342D95BDE5AF3B703A629CDF647
 ```bash
 magnet:?xt=urn:btih:3BC9B9C37ACF8D1F23D7860151AB89F184E04D29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:3BC9B9C37ACF8D1F23D7860151AB89F184E04D29
 magnet:?xt=urn:btih:6C3958D6B997C9A122F5D996CA28E0500A93BEF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:6C3958D6B997C9A122F5D996CA28E0500A93BEF2
 ```bash
 magnet:?xt=urn:btih:8FE91B444AD15CA5B4A467F81E459F6C3DE09A48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:8FE91B444AD15CA5B4A467F81E459F6C3DE09A48
 magnet:?xt=urn:btih:A37132DFB9B3F8BB4C6B1A3AB9EFF98C62FE8B61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:A37132DFB9B3F8BB4C6B1A3AB9EFF98C62FE8B61
 ```bash
 magnet:?xt=urn:btih:4F6758E9077D53831B7CEC9661CF2B23D392AAE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:4F6758E9077D53831B7CEC9661CF2B23D392AAE9
 magnet:?xt=urn:btih:0881A556D4AA69F1E382F69054A0BE30E2CCD73A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:0881A556D4AA69F1E382F69054A0BE30E2CCD73A
 ```bash
 magnet:?xt=urn:btih:35F701540B1C261E8B475BC30FF30BC5EE7A41E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:35F701540B1C261E8B475BC30FF30BC5EE7A41E1
 magnet:?xt=urn:btih:C1F5934FF7F71D700DD42B67EDFA5A99EF5ACB13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:C1F5934FF7F71D700DD42B67EDFA5A99EF5ACB13
 ```bash
 magnet:?xt=urn:btih:D0E08B15A9161299765B7447D8BC9B8630B55728
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:D0E08B15A9161299765B7447D8BC9B8630B55728
 magnet:?xt=urn:btih:2257BE4CE146872207FF36B221AE8216C701FE5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:2257BE4CE146872207FF36B221AE8216C701FE5A
 magnet:?xt=urn:btih:678DF0A5C242468575A3EB8A1DE3C0F025692AB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:678DF0A5C242468575A3EB8A1DE3C0F025692AB5
 ```bash
 magnet:?xt=urn:btih:7FD9458B19C1CC34442C49F237188E3A8FF5CEA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:7FD9458B19C1CC34442C49F237188E3A8FF5CEA5
 magnet:?xt=urn:btih:6A2A3E1C2C2CCE6FA66241D32F996D6969CB0008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:6A2A3E1C2C2CCE6FA66241D32F996D6969CB0008
 magnet:?xt=urn:btih:14A26D9BA65AF01AADD9D9C137F4DD9E4334BD39
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090085   (948726) от 05.01.2017
-
-Пророки. Даниил (2016) HDTVRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Религии и культы (Док/TV)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_948726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм с участием израильских и российских библеистов рассказывает о величайшем пророке Ветхого Завета Данииле, который стал духовным лидером своего народа в тяжелые времена изгнания. Как юноша из рабского племени, Даниил, попал в ряды "золотой молодежи" Вавилона? Почему царь назначил его своим главным советником? За что его бросили в ров со львами и как (   Читать дальше...   )Телекомпания: НеофитЖанр: ДокументальныйПродолжительность: 00:26:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:594DD04F495F81C927E5C6F87D305B4A9E69DCF4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 952951   (349153) от 04.11.2015
+
+Скотт Макферсон | Миллионер. Чего не знает большинство (2015) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_349153.jpg" />
+</div>
+
+
+###  Подробнее
+
+А вы знаете, кто такие миллионеры? А уверены, что правильно относитесь к деньгам и знаете все о них? В этой книге издательства AB Publishing мы расскажем вам не только об этом. Также вы узнаете о секретах и правилах богатства, о том, как превращать идеи в деньги, и то, чем же богачи отличаются от обычных людей. А советы известных миллионеров и рекомендации о пути (   Читать дальше...   )Жанр: Ценные бумаги, инвестиции, о бизнесе популярноФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:188B386C854A81411376FF27982C3D911CC08F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 953217   (349159) от 04.11.2015
 
 Томас Эванс | Как найти инвестиции и не потерять бизнес (2015) [FB2]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:6D70B00C83547FFD5B31FD0136D0B072C820D172
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:6D70B00C83547FFD5B31FD0136D0B072C820D172
 ```bash
 magnet:?xt=urn:btih:07769C4B8EF32C333C313C7BA4F36C4FD09E57D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +102,8 @@ magnet:?xt=urn:btih:07769C4B8EF32C333C313C7BA4F36C4FD09E57D9
 magnet:?xt=urn:btih:BA6B6CA757F792D1D0275FAC9BFB0B13D3761518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:BA6B6CA757F792D1D0275FAC9BFB0B13D3761518
 ```bash
 magnet:?xt=urn:btih:D54833F141177059F235541BFAC2C8B347BEABD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:D54833F141177059F235541BFAC2C8B347BEABD6
 magnet:?xt=urn:btih:D86BF9152C5CDA4AD660F3D212F1B68AB8C2D063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:D86BF9152C5CDA4AD660F3D212F1B68AB8C2D063
 ```bash
 magnet:?xt=urn:btih:B87E845FC854D50502F35C53A228954356E45EEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:B87E845FC854D50502F35C53A228954356E45EEF
 magnet:?xt=urn:btih:A468FC6A6C742A71058FE152FBF60F6C59AC7005
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:A468FC6A6C742A71058FE152FBF60F6C59AC7005
 ```bash
 magnet:?xt=urn:btih:6E7A3E6B9F261F616A07D03EB6E313274D7C8ACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:6E7A3E6B9F261F616A07D03EB6E313274D7C8ACD
 magnet:?xt=urn:btih:88402AE4D36E1864F8178EDEABAA2BC43EBC455C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:88402AE4D36E1864F8178EDEABAA2BC43EBC455C
 magnet:?xt=urn:btih:D0764C5190BDBA9EC2AA78F41F274A9151E669F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:D0764C5190BDBA9EC2AA78F41F274A9151E669F1
 ```bash
 magnet:?xt=urn:btih:9875ECEF8D245078D00302DB6C510031DD6348E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +340,8 @@ magnet:?xt=urn:btih:9875ECEF8D245078D00302DB6C510031DD6348E7
 magnet:?xt=urn:btih:0ED1BC022DD2A0E5B741C17E9DB13C74DD565FBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:0ED1BC022DD2A0E5B741C17E9DB13C74DD565FBA
 ```bash
 magnet:?xt=urn:btih:B2CD70657E610B91D53FC41A29594E5AF2842B73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:B2CD70657E610B91D53FC41A29594E5AF2842B73
 magnet:?xt=urn:btih:39C77A28C1B7327F85B7AB157C31BCFA32F98CC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:39C77A28C1B7327F85B7AB157C31BCFA32F98CC8
 magnet:?xt=urn:btih:6FDBC840B71721D2E2133FA2391A1323478531BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:6FDBC840B71721D2E2133FA2391A1323478531BB
 ```bash
 magnet:?xt=urn:btih:F9E894BEA6E16981BCB830CCEC50E959A996B83A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +474,8 @@ magnet:?xt=urn:btih:F9E894BEA6E16981BCB830CCEC50E959A996B83A
 magnet:?xt=urn:btih:04D76250549186C82091952CD1B038A350CC200C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:04D76250549186C82091952CD1B038A350CC200C
 ```bash
 magnet:?xt=urn:btih:A6ECD2EE6021FA69B55D248FDE21036241202AF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:A6ECD2EE6021FA69B55D248FDE21036241202AF1
 magnet:?xt=urn:btih:5C0D6F39AE01AEE125596C594075C45E943F5D96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:5C0D6F39AE01AEE125596C594075C45E943F5D96
 ```bash
 magnet:?xt=urn:btih:C35B87EFCA8A2A068B1842091062244A5AC9282B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:C35B87EFCA8A2A068B1842091062244A5AC9282B
 magnet:?xt=urn:btih:50017A7395F1D63A0E74C1AEC6D84DE032029A76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:50017A7395F1D63A0E74C1AEC6D84DE032029A76
 ```bash
 magnet:?xt=urn:btih:F3C7B1F1F3D786B307C757452D04E54296CFD97E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:F3C7B1F1F3D786B307C757452D04E54296CFD97E
 magnet:?xt=urn:btih:0F66EAEC1C6E1ECF18D0EFD9AD795F0478839022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:0F66EAEC1C6E1ECF18D0EFD9AD795F0478839022
 ```bash
 magnet:?xt=urn:btih:57A52AB8CB9145609786A160794571DA16A73CFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:57A52AB8CB9145609786A160794571DA16A73CFA
 magnet:?xt=urn:btih:546E08EE31C8204DE493AB595D105C001FD0E8DB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953238   (351288) от 03.11.2015
-
-Барбара Аутланд Бейкер | Арнольд и я. Жизнь в тени Австрийского Дуба (2015) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_351288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Откровенный рассказ об отношениях с легендой бодибилдинга, суперзвездой Голливуда и бывшим губернатором Калифорнии Арнольдом Шварценеггером.Жанр: Биографии и мемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CCC5BA8847CABCF7DF2CD0886C897C98F1A1E13
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

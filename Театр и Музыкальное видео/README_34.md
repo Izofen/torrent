@@ -19,6 +19,8 @@ Bee Gees - The Ultimate DVD only (2009) DVD5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Bee Gees - The Ultimate DVD only (2009) DVD5
 ```bash
 magnet:?xt=urn:btih:900A702F697A09F58600D3C0B19AA0BA8C8235FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:900A702F697A09F58600D3C0B19AA0BA8C8235FB
 magnet:?xt=urn:btih:697F2761F02F2EC3875C9D72CA1DD3AFEC9B6B8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Nightwish- Призрак оперы / Nightwish-Phantom of the opera (2006)[720
 magnet:?xt=urn:btih:7821E8C23966F164F40C2710B7154CC11D7BADA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:7821E8C23966F164F40C2710B7154CC11D7BADA8
 ```bash
 magnet:?xt=urn:btih:46FC4F39F433E5515249B9ED0FD258665A414A15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:46FC4F39F433E5515249B9ED0FD258665A414A15
 magnet:?xt=urn:btih:93ED3B2FE1DAD57E6D1A55DA066FBAD6E2B4C64D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:93ED3B2FE1DAD57E6D1A55DA066FBAD6E2B4C64D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Peter Hollens & Lindsey Stirling - Skyrim (2012) [H.264/1080p] WEBRip
 ```bash
 magnet:?xt=urn:btih:F6F8298AE605BA5CD2C22D5F728B5E0299EC769A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:F6F8298AE605BA5CD2C22D5F728B5E0299EC769A
 magnet:?xt=urn:btih:07520B2B8DBDCFF4DF8E7CE969E3F1AF3BCE5E33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:07520B2B8DBDCFF4DF8E7CE969E3F1AF3BCE5E33
 magnet:?xt=urn:btih:C32A717B2A86F5C2B23F4DA7074F11873E48D728
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:C32A717B2A86F5C2B23F4DA7074F11873E48D728
 ```bash
 magnet:?xt=urn:btih:5C1F6B2A7EA5AA50EE73B939A42C14F842776722
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:5C1F6B2A7EA5AA50EE73B939A42C14F842776722
 magnet:?xt=urn:btih:69B8D6B9BC395B7A3DE1BD376BC180FE90315923
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ Deep Purple - Phoenix Rising (2011) DVD9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ Deep Purple - Phoenix Rising (2011) DVD9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +411,8 @@ Pat Benatar & Neil Giraldo - Summer Vacation Tour (2001) DVD5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ Pat Benatar & Neil Giraldo - Summer Vacation Tour (2001) DVD5
 ```bash
 magnet:?xt=urn:btih:7CF049F3FE84ADAA01739B0E6A0D7E74E9D4FE8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +468,8 @@ magnet:?xt=urn:btih:7CF049F3FE84ADAA01739B0E6A0D7E74E9D4FE8C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +496,8 @@ magnet:?xt=urn:btih:7CF049F3FE84ADAA01739B0E6A0D7E74E9D4FE8C
 ```bash
 magnet:?xt=urn:btih:38E750707147C7A6FCDADEE6CFC38FE0CC79F9A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +527,8 @@ magnet:?xt=urn:btih:38E750707147C7A6FCDADEE6CFC38FE0CC79F9A0
 magnet:?xt=urn:btih:3F3F7363BFFBF18081AB2275FB511BD06339EE92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +556,8 @@ Best of Mtv / Mtv 2012 (2012) 720p 1080p WEB-DLRip
 magnet:?xt=urn:btih:93F247843CE9640E991C261681516D81ECDBA80C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +581,8 @@ magnet:?xt=urn:btih:93F247843CE9640E991C261681516D81ECDBA80C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +611,8 @@ magnet:?xt=urn:btih:93F247843CE9640E991C261681516D81ECDBA80C
 magnet:?xt=urn:btih:D3808FD808B554357CC29692C2D32C32BBF6B48F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +640,8 @@ Scorpions - Humanity - Hour I (Limited Edition) (2007) DVD5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +668,8 @@ Scorpions - Humanity - Hour I (Limited Edition) (2007) DVD5
 ```bash
 magnet:?xt=urn:btih:9B8DDE1A5814D57935ED5553B519909D8F3B25B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +704,8 @@ Interview Minneapolis'90(   Читать дальше...   )Жанр: Hard Rock�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -689,6 +739,8 @@ Interview Minneapolis'90(   Читать дальше...   )Жанр: Hard Rock�
 ```bash
 magnet:?xt=urn:btih:858ECCD07FF52000905751D854C3305CAD4E8302
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

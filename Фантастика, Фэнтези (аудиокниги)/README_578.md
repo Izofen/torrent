@@ -1,3 +1,30 @@
+###  Публикация: 1850793   (1054625) от 
+
+Рустам Разуванов | Баба Нюра. Осиново. Предания о колдунах и ведьмах (2025) [MP3, Елена Корнеева]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054625.jpg" />
+</div>
+
+
+###  Подробнее
+
+Окунитесь в манящую глубину легенд ныне несуществующей деревни Осиново, чьих жителей считали сильными колдунами. Книга предлагает проникнуться священным трепетом перед древними тайнами леса.
+Основа данной книги – былички, связанные с ныне не существующей деревней Осиново и ее жителями, которых люди в округе считали сильными ведьмами и колдунами, способными творить (   Читать дальше...   )Жанр: Мистика, ФольклорИздательство: Аудиокнига (АСТ)Продолжительность: 05:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEA67D14BEC97D7FED2710DB63CC2F72387126BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850805   (1054626) от 
 
 Александр Сухов | Лёд (Книги 1-5) (2021-2025) [MP3, Макс Родман, Михаил Обухов]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:A18F44CB0C338B88CD7A6A2FD3FBAE2902C11B1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:A18F44CB0C338B88CD7A6A2FD3FBAE2902C11B1F
 magnet:?xt=urn:btih:60E0DB0730EDD404F0E8892C327493822611DD3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:60E0DB0730EDD404F0E8892C327493822611DD3D
 magnet:?xt=urn:btih:EAF63ACCD7FAE39E8C760F64D2BA6BE552691EE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +123,8 @@ magnet:?xt=urn:btih:EAF63ACCD7FAE39E8C760F64D2BA6BE552691EE8
 ```bash
 magnet:?xt=urn:btih:467A7D1F0CEA50E86528F1CA24C9EC80F5F9AAF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:467A7D1F0CEA50E86528F1CA24C9EC80F5F9AAF1
 magnet:?xt=urn:btih:F18204E88FB9C1DC22DAD77A10A4E61C9BE07329
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:F18204E88FB9C1DC22DAD77A10A4E61C9BE07329
 ```bash
 magnet:?xt=urn:btih:7ACBF5C33A1CCC5FCB0E2A9C2F66184012A52CD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +205,8 @@ magnet:?xt=urn:btih:7ACBF5C33A1CCC5FCB0E2A9C2F66184012A52CD7
 magnet:?xt=urn:btih:47C109E7BE3FFD173A18DA4F7B52DDEE4505BD47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +231,8 @@ magnet:?xt=urn:btih:47C109E7BE3FFD173A18DA4F7B52DDEE4505BD47
 magnet:?xt=urn:btih:23AE4ECE9A5945F7E708923DE3AD9A56C2F6B935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +256,8 @@ magnet:?xt=urn:btih:23AE4ECE9A5945F7E708923DE3AD9A56C2F6B935
 ```bash
 magnet:?xt=urn:btih:B1A7981356B9BA3C5907115FC77BE1557B51E9C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +286,8 @@ magnet:?xt=urn:btih:B1A7981356B9BA3C5907115FC77BE1557B51E9C8
 magnet:?xt=urn:btih:54825D2FEDF4EB0AF97757E5EF39AC3B9C131AA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +311,8 @@ magnet:?xt=urn:btih:54825D2FEDF4EB0AF97757E5EF39AC3B9C131AA5
 ```bash
 magnet:?xt=urn:btih:8BD7EF36E3A671A5255D3151E953D83505605414
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +338,8 @@ magnet:?xt=urn:btih:8BD7EF36E3A671A5255D3151E953D83505605414
 magnet:?xt=urn:btih:978E8A7B6B1444547BEDE18A6F4740ACA7B87C84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:978E8A7B6B1444547BEDE18A6F4740ACA7B87C84
 ```bash
 magnet:?xt=urn:btih:DDBDB520ED36B36B0FBCD2A66113AD6A363411A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +393,8 @@ magnet:?xt=urn:btih:DDBDB520ED36B36B0FBCD2A66113AD6A363411A1
 magnet:?xt=urn:btih:1FC05A6BE7DE0341568F26E4E27F46E7CA0D0275
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +419,8 @@ magnet:?xt=urn:btih:1FC05A6BE7DE0341568F26E4E27F46E7CA0D0275
 ```bash
 magnet:?xt=urn:btih:5896A72B2D9BC7CEDAF7E452A001B02B50FA2889
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +448,8 @@ magnet:?xt=urn:btih:5896A72B2D9BC7CEDAF7E452A001B02B50FA2889
 magnet:?xt=urn:btih:5C5924FE27CD7B2BD6F745956C56C9A93C4B0D0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +473,8 @@ magnet:?xt=urn:btih:5C5924FE27CD7B2BD6F745956C56C9A93C4B0D0F
 ```bash
 magnet:?xt=urn:btih:6FF13D258DC88557972F4A1E826A0216EF3B04E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +501,8 @@ magnet:?xt=urn:btih:6FF13D258DC88557972F4A1E826A0216EF3B04E7
 ```bash
 magnet:?xt=urn:btih:ECB863819E419FE32212FF543116A1A650F91D61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +531,8 @@ magnet:?xt=urn:btih:ECB863819E419FE32212FF543116A1A650F91D61
 magnet:?xt=urn:btih:172A2AB89F988C06BD50DF9657FC04038182F030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +556,8 @@ magnet:?xt=urn:btih:172A2AB89F988C06BD50DF9657FC04038182F030
 ```bash
 magnet:?xt=urn:btih:296342251939C36AF32B0715B7C890D3353CF5C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +583,8 @@ magnet:?xt=urn:btih:296342251939C36AF32B0715B7C890D3353CF5C9
 magnet:?xt=urn:btih:B23F69F51DAB26FE00E0B4D0FE080460BCB8140D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +608,8 @@ magnet:?xt=urn:btih:B23F69F51DAB26FE00E0B4D0FE080460BCB8140D
 ```bash
 magnet:?xt=urn:btih:327268763EA6A264D055148BC84B3C0E258B47E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +638,8 @@ magnet:?xt=urn:btih:327268763EA6A264D055148BC84B3C0E258B47E2
 magnet:?xt=urn:btih:E7C6C7E74BCF43F59249BA2C8589C2A63E152094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +667,8 @@ magnet:?xt=urn:btih:E7C6C7E74BCF43F59249BA2C8589C2A63E152094
 magnet:?xt=urn:btih:17235F213E4CFE04BA9E7483381E35536094733A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,29 +693,7 @@ magnet:?xt=urn:btih:17235F213E4CFE04BA9E7483381E35536094733A
 magnet:?xt=urn:btih:D9F3C4894821C442DB8FF93F9C1863EBA8010C28
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851495   (1055106) от 
-
-Эдгар Грант | Марсианин (2025) [MP3, Нина Медведева]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Инновации, изобретения, новые технологии. Почему все достижения человечества превращаются в оружие? Наступит ли момент, когда плоды прогресса будут служить не разрушению, а созиданию. Что надо сделать, чтобы поставить человеческий гений на службу цивилизации. Возможно ли такое вообще? Однозначного ответа пока нет. Авторская версия представлена в романе «Марсианин».Жанр: Фантастика, ТриллерИздательство: ЛитРесПродолжительность: 15:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D8E3D001B433C07E3B08724FBFA603D909A9EA0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

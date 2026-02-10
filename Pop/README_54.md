@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:D062C248DEF20A18D91B8EA97503A19CD03D1BA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:D062C248DEF20A18D91B8EA97503A19CD03D1BA1
 ```bash
 magnet:?xt=urn:btih:1DBF095C1AB861831993D88735D37ADFD5F0BFE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Kelvin Momo - Kurhula (2023) [FLAC|Lossless|WEB-DL|tracks] <Afrobeats, Dance>
 magnet:?xt=urn:btih:52ED0E38B7AE88431AEC3E4645B19BBEA0AF3961
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Rebecca Ferguson - Heaven, Pt. II (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Fun
 ```bash
 magnet:?xt=urn:btih:ACDCDAD74D5CF6537056629740EFF6164DF2D2A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:ACDCDAD74D5CF6537056629740EFF6164DF2D2A5
 magnet:?xt=urn:btih:45FAC31FEC7D7B87ABD71DA1312463A2C93F345C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Aurora - The Gods We Can Touch (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Electr
 magnet:?xt=urn:btih:170F1580BA3B065BD8054B963AF407CB5AF1255D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ Ozo были уникальной многонациональной групп�
 ```bash
 magnet:?xt=urn:btih:CE150D5200A540DCE6678C4ED38FC3CEEC62FDDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ James Morrison - The Awakening (2011) [MP3|320 кб/с]<Soul, Adult Contemporary
 magnet:?xt=urn:btih:EA3543B3BE5AEF7C0BB4B4E48166E92B75759079
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +259,8 @@ AlimkhanOV A. - Way to You (2023) [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Eu
 ```bash
 magnet:?xt=urn:btih:7DA7A9415F8DC6C0567E52FC39CF52A637B5DF53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ magnet:?xt=urn:btih:7DA7A9415F8DC6C0567E52FC39CF52A637B5DF53
 magnet:?xt=urn:btih:BBD626B4DC99A3B608C2527617BD50A7034E301A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +316,8 @@ Kylie Minogue - Extension (2023) The Extended Mixes [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:5D5A25312A6C5E1AE98A97CABC1713BA464492B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +346,8 @@ Beach House - Once Twice Melody (2022) 3[EP] [FLAC|Lossless|WEB-DL|tracks] <Drea
 magnet:?xt=urn:btih:4A51A5457A39D18F5DCED5C879890FD0622C3A52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +375,8 @@ Tony Valor Sounds Orchestra - 2 Albums (1976, 1978) LP [MP3|320 Kbps] <Electroni
 magnet:?xt=urn:btih:7569E21CC44B71D57DBFE92391F1C306667672E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +403,8 @@ Molly Nilsson - Extreme (2022) [FLAC|Lossless|WEB-DL|tracks] <Dream Pop>
 ```bash
 magnet:?xt=urn:btih:938E3E603B696ACF6E34F9526BE29425A0211AAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +439,8 @@ Giorgio Moroder - The Best Of (2001) [FLAC|Lossless]<Pop, Disco>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +474,8 @@ Raggio Di Luna (Moon Ray) - Comanchero (1986) [FLAC|Lossless]<Italo-Disco>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +502,8 @@ Grisha Urgant - Estrada (2012) [MP3|320 кб/с]<Pop Rock>
 ```bash
 magnet:?xt=urn:btih:ABE7449E5CDD6F21448B9D7213E3807477BD22C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +532,8 @@ Dalida - Vive le vent (2023) [FLAC|Lossless|tracks] <Pop, French Music>
 magnet:?xt=urn:btih:07F2A0611AA4183FE51E02617D0F5EA9DD13FC35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +561,8 @@ Bryan Adams - Waking Up The Neighbours - Live At The Royal Albert Hall (2023) [F
 magnet:?xt=urn:btih:83D7E384B500399E26D782FB9E59941654FAFEBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +589,8 @@ Kameleon - Kameleon (1981) LP [MP3|320 Kbps] <Electronic, New Wave, Synth-pop, D
 ```bash
 magnet:?xt=urn:btih:9CCC0388F554B23F3E9910EB3546D6E7534BB681
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +625,8 @@ Doris Day - 3 альбома (1995-2004) [FLAC|Lossless]<Pop, Oldes>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +653,8 @@ Dee D. Jackson - The Singles Collection (2023) ESonCD, Unofficial Release [FLAC|
 ```bash
 magnet:?xt=urn:btih:F32685597A66DD3285BE6D9CA79E1C495A0B068C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +683,8 @@ magnet:?xt=urn:btih:F32685597A66DD3285BE6D9CA79E1C495A0B068C
 magnet:?xt=urn:btih:83B7684B437D1FA409034EE78F607DC58C83BCE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +711,8 @@ Frank Farian - Star-Discothek (1978) LP [MP3|320 Kbps] <Pop, Schlager>
 ```bash
 magnet:?xt=urn:btih:2266F3CD91DC8F9F143DD12C93606E1C0944BA78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -699,6 +747,8 @@ Kelly Clarkson - Greatest Hits Chapter One (Deluxe Edition) (2012) [MP3|320 кб
 magnet:?xt=urn:btih:8259214FE25FD5E2B244157E358D39A50C1B58CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -722,6 +772,8 @@ Baccara - Light My Fire (2023) Remastered [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:11B475FF3FFD7217781F0367DAAC692AEF20B4F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Europa (2024) [Ru/Multi] (build 16022486) Repack dixen18
 magnet:?xt=urn:btih:3FD5B682135C48BD6E855D1A58168A63CC5B5456
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Road 96: Mile 0 - приключение с сильным упором на п�
 ```bash
 magnet:?xt=urn:btih:854ACB775F328A15D1AD4AB333CF5CCEB31A324D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Ereban: Shadow Legacy в быстро развивающемся стелс-пл
 magnet:?xt=urn:btih:C09E14C583134F13B5E0749C1017B1FB315B36FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Epstein 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2318F439C94D5039699FCA59E07E011B95B8C97D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Talos Principle 2 предлагает увлекательный и зас�
 magnet:?xt=urn:btih:26C3148B4B039FE65E6DA8E760B352EEE1D9CB8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Unknown 9: Awakening (2024) [Ru/Multi] (Build 16069251/dlc) Repack FitGirl [Delu
 ```bash
 magnet:?xt=urn:btih:07E388ED994A436523B3B7701E1A22EA72692125
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Repack seleZen
 magnet:?xt=urn:btih:05EDFDD128819DCC0FD6D484567786A50ED1B9AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2267B949DCE4F826FD8C487190BEFFBF0DE00BD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ A Quiet Place: The Road Ahead - это однопользовательская 
 magnet:?xt=urn:btih:E962C21495D3985C63857E7F52682068BBD617F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0EC0B0D56AFC1ABADF726DD06AB844B21D5A9276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Unknown 9: Awakening (2024) [Ru/Multi] (build 16069251) Repack seleZen
 magnet:?xt=urn:btih:8CEF14C3D22C308A66F017FDB4F70931BE2F0B74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ A Quiet Place: The Road Ahead - это однопользовательская 
 ```bash
 magnet:?xt=urn:btih:E6AF46F17806D4B3F03888A25F59E3A79058E96A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Arsene Lupin - Once a Thief (2024) [Ru/Multi] (1.02) Scene FAiRLiGHT
 magnet:?xt=urn:btih:67645B6CD0148EA657AB46DB081534370CCB3697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Neva (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4A7ACA71C1A8ECFF498DB5FF91F36BD4D8A41F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Devil is in the Details, это хоррор-игра от первого л
 magnet:?xt=urn:btih:AD85C66DC303E9F7F443B4A8E10A1DAEDDEA2B04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Will of Arthur Flabbington – игра в жанре головоломок
 ```bash
 magnet:?xt=urn:btih:C97507A1D3CB1C77345F15A439AEB3BC8AA5E506
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Master Detective Archives: RAIN CODE Plus (2024) [Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:423361B80EBA0035A50C28A67B1B193A49A07FA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Talos Principle 2 предлагает увлекательный и зас�
 ```bash
 magnet:?xt=urn:btih:986D48B3EB26ADFBFD0EA56EA4E74162335967EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Europa (2024) [Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:C539C7ABD1CCF0BCFB948EB935821D1B2809BFAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Holy Gosh Darn (2024) [Ru/Multi] (1.1.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:60F0D64ABEB19FEEA077EC9F9E2F15802C7C62DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Forest (2018) [Ru/Multi] (1.12) Repack Pioneer
 magnet:?xt=urn:btih:651FF423BFE28D5A05E80DD04C9A7781EBD6C239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Dark Pictures Anthology: The Devil in Me (2022) [Ru/Multi] (build 11855829/d
 ```bash
 magnet:?xt=urn:btih:A22A4CBF503059AADB27A859CA30EBFF5E6DDE2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Medieval Delivery (2023) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:59A1F1AD9FB44E661C29692E9E27E47988C983D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Arctico (2022) [Ru/Multi] (2.2a) Repack Pioneer
 ```bash
 magnet:?xt=urn:btih:90AFCD3E5053246F7E579222DF1327ED89F739FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Repack FitGirl [Digital
 magnet:?xt=urn:btih:FB88F26BD640E0C43A7503419568E12BE21A9098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.236.114/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:D7CC44969B745F3A32CB880C67D9FD433452A08C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Opera One 103.0.4928.16 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:0C4527B2F1A3B6D50430E3E82569F7FC08E1CD94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 magnet:?xt=urn:btih:9CC7D4034102B961BF7DD0BFD2B8626553D8BC69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:CECAED0FC91D9A18984C1829EA86AE250345B80A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Bartender - утилита для простой организации икон
 magnet:?xt=urn:btih:A98F944CD3E134685C0DA734D797AB89EF707926
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Zoc terminal - является довольно известным telnet/SSH/S
 ```bash
 magnet:?xt=urn:btih:70FCE6C4A13D158A34FF81263FD1F67502355B3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Wondershare UniConverter - простой в использовании виде
 magnet:?xt=urn:btih:688BE28A7F16195092659B3A7100854FAB4F0C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:AA1106D00AD0F73E5A3775994EA5581CC5D7B39A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Network Kit X 8.0.0 [Multi]
 magnet:?xt=urn:btih:FA1BA499A500B1F26881CCF9F831A188967AFE18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ MX Player Pro - видеоплеер для Android с поддержкой ог
 ```bash
 magnet:?xt=urn:btih:93C591A5966E608942365A50714973A4690959DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ NetLimiter - программа, решающая проблему контро�
 magnet:?xt=urn:btih:35611E083B6CA4704C2D3C522FC2702872889116
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:F9E6E4C54826C1BD84209E88904C8A7240BECE52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ OCCT 12.1.8 Final Portable [En]
 magnet:?xt=urn:btih:70FAAE643BCDB42A5824639A9A42D90F6129672B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Numi - необычный калькулятор, который "общаетс
 ```bash
 magnet:?xt=urn:btih:083CB188127EB0A50F7F3575F87DC2C896CC0CC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Serial современный эмулятор терминала, которы�
 magnet:?xt=urn:btih:78316F61530118DBB72B14221C46713F508EFBA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ SILKYPIX JPEG Photography  - лучший инструмент для того, 
 ```bash
 magnet:?xt=urn:btih:AD05C8791FBBA36F12D067F9DE8496D1C039F738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ IceCream Ebook Reader Pro 6.37 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:6AEAF0D414D50569B05B8A27A22BFA6C89BB1AF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ PCDJ DEX 3 - профессиональное программное обесп�
 ```bash
 magnet:?xt=urn:btih:596D7304EB66F4FC79C78F47E2007B3654F39D53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Draw.io 22.0.2 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:D85F095B7537238399AFE38FC7B8170CB22616BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ NetLimiter - программа, решающая проблему контро�
 magnet:?xt=urn:btih:D61C9231D916AA7DB6EFF54835BF4B527D25BD71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:D61C9231D916AA7DB6EFF54835BF4B527D25BD71
 ```bash
 magnet:?xt=urn:btih:95655A480BB5C4C308DDDFE9181085762C98949D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ updated_nov_2022_x64_dvd_c148a37b.iso.
 magnet:?xt=urn:btih:5D65ED6F2E082FCAB444C615FD1E0BD4094471F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Dark Reader for Safari Это расширение для ухода за гла
 magnet:?xt=urn:btih:23957B06D88A5A69455C4315F05B2128F4E60C33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 magnet:?xt=urn:btih:C55D6D57A361D740BA78FA3AC55E459C51B20FCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Rottenwood 1.2.8 [En]
 ```bash
 magnet:?xt=urn:btih:B918F10E16A3D200C065328A9BCA2B27D36C2778
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Perfectly Clear WorkBench позволяет всего за пару клико
 magnet:?xt=urn:btih:B5BB09ED2BF4302E1CAA1E6BC821BE638BCECFD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ SILKYPIX Developer Studio Pro — мощное приложение, котор�
 ```bash
 magnet:?xt=urn:btih:54C333C8ADC4F794C73477E02F0C5860C8594E63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

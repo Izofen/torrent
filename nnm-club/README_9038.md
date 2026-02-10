@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A523CC756B14DA268A4936D102FF8D76A22D035B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Niva - Atmospherical (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Hard 
 magnet:?xt=urn:btih:06DE727A59C92B8606D32DD7FCB0D44CDABA736A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:06DE727A59C92B8606D32DD7FCB0D44CDABA736A
 magnet:?xt=urn:btih:77E07CE1D00E30668750F310A899E9AE715A2691
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:77E07CE1D00E30668750F310A899E9AE715A2691
 magnet:?xt=urn:btih:434AB7D0D344D67B5483833874821ED6A6B5703F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:434AB7D0D344D67B5483833874821ED6A6B5703F
 ```bash
 magnet:?xt=urn:btih:D623B10FA68FBBA8195A69CA39AEDDC2540B7D89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Dash - очень удобное приложение, включающее в �
 magnet:?xt=urn:btih:A9486046EE6DDC51488CB65A4797E1BC2E97B531
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:A9486046EE6DDC51488CB65A4797E1BC2E97B531
 ```bash
 magnet:?xt=urn:btih:8CB33931F919C86DFAA947197DFFFC534AF97423
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ DockShelf: функциональная замена док-панели (Mac)
 ```bash
 magnet:?xt=urn:btih:327D6EFB3152EE493306BD4C84337E00F49550E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ VA - Взрывной хит-парад. Часть 3 (2016) [MP3|256 Kbps] <Pop
 magnet:?xt=urn:btih:51B15F5EEDD51D1EB29C5ABEDAF872E25CD3A6DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Francois Jolin - Alice VR  (original soundtrack) (2016) [MP3|320 Kbps] <OST, Sco
 ```bash
 magnet:?xt=urn:btih:1500DB8E94E6E9EB5999677480BF8F8280C059A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ dj Sasha Tyson - 90-X REBOOT 3 eng (2016) [MP3|320 Kbps] <House, Nu Disco>
 magnet:?xt=urn:btih:DBFDE7D9F4CE21E805EC7EB6FF6148C3BF2F3878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ Sogou Browser обладает собственной многозадачной
 ```bash
 magnet:?xt=urn:btih:56C4CA40E1D4718656E7B7ED371F1725A5F09181
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ VA - Grotesque Essentials Autumn 2016 Edition (Mixed by Daniel Skyver & Amir Hus
 magnet:?xt=urn:btih:A3A1C70D1CAD7F8DD0E3F579D91370EAEAB22B72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:A3A1C70D1CAD7F8DD0E3F579D91370EAEAB22B72
 ```bash
 magnet:?xt=urn:btih:AD76C00AB0078476B1A6DCB157052823AEF286C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ About A Mile - Trust You All The Way (2016) [MP3|320 Kbps] <Pop Rock, Christian 
 magnet:?xt=urn:btih:3A749BA938D8FD9687A9660F07464EA16D5FC171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ Ulysses — работа с текстом для профи
 ```bash
 magnet:?xt=urn:btih:663E7D5F166AD873842ED59A12FB9BB3F9683038
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:663E7D5F166AD873842ED59A12FB9BB3F9683038
 magnet:?xt=urn:btih:002BA495F7E52296E4A01E408E43CDAC4D0EC5C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:A2CD5D9CC9D590EFD7B35F31BAF30C96AE54113D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ Sound Studio - простое в использовании приложение
 ```bash
 magnet:?xt=urn:btih:5D4558706F1B40897D43A9E3F850E402F3BBEF8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ VA - Best Of Deep House Vol.06 (2017) [FLAC|Lossless|WEB-DL|tracks] <House,Deep 
 magnet:?xt=urn:btih:7FE0B5A4E85B53839F7A72C06EC3755BDDC9A04E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ Massara C.A.S.T. - Volerai Volero (1982) 7 Inch [MP3|320 Kbps] <Electronic, Pop,
 ```bash
 magnet:?xt=urn:btih:D219A62E0AD7CECB0FDA3BA4502CDF282CD95239
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ The Ice Fox (aka Baridi Baridi) - The Ice Fox (2015) EP [FLAC|Lossless|Web-DL|tr
 magnet:?xt=urn:btih:808EBC4170B16138118EA32CB43840013D1E3FE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ VA - Best Of Deep House Vol.06 (2017) [MP3|320 Kbps] <House,Deep House>
 magnet:?xt=urn:btih:8185F7E9CDDE73C9030F89EDF5C3BBB069549E21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:8185F7E9CDDE73C9030F89EDF5C3BBB069549E21
 ```bash
 magnet:?xt=urn:btih:D79ED7AC363984BDDE89ABB36E391939AC2CBD95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ File Cabinet Pro  - менеджер документов из строки ме
 magnet:?xt=urn:btih:3EEF48CBCEAB0C5C28D0B66B4375921B7D6E7D45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ Art Pepper & Blue Mitchell - The Dolo Coker Sessions (1976) 2008, Synergy Record
 ```bash
 magnet:?xt=urn:btih:081F54F1B1BFFBF02DBDF5E6BA71DEAD74FC7277
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

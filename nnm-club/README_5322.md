@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:732824345E7316F379E43C45B68487980C95993A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ UctoX - это мощное приложение для выставления �
 ```bash
 magnet:?xt=urn:btih:F280109487D57591DE4985E1D4F525DC12280AB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:F280109487D57591DE4985E1D4F525DC12280AB4
 magnet:?xt=urn:btih:FD346ACAC9506C3E89BE8B13FA7EC1C479085F39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ DoYourData AppUninser - очень мощный, но простой в испо
 ```bash
 magnet:?xt=urn:btih:F6D1BD756E02AB8ED92E2366500976051184F3A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Multi Commander - мощный мультиоконный менеджер фа�
 magnet:?xt=urn:btih:043E04AE040DFC97C7C35322D8FC8B23A12917F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Tensei Shitara Ken Deshita | Reincarnated as a Sword | О моём переро�
 ```bash
 magnet:?xt=urn:btih:6C1A8E13DCB50F884A050C18F2A458B4C9E623C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:6C1A8E13DCB50F884A050C18F2A458B4C9E623C2
 magnet:?xt=urn:btih:5F3671EF13F9D4071903DABBBE4BCAD547BF2E20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:5F3671EF13F9D4071903DABBBE4BCAD547BF2E20
 magnet:?xt=urn:btih:1E9879FEFEA1E0E45EB617AD9A6DEE119EF6E66D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:1E9879FEFEA1E0E45EB617AD9A6DEE119EF6E66D
 ```bash
 magnet:?xt=urn:btih:1DF03C52B74AECAA5869EBF5FF660E787D836374
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Pop Team Epic (2022) | Попсовый эпос [ТВ-2] [2022, TV, 12 эп.] W
 magnet:?xt=urn:btih:14D5B890DAA0710048CFB6B3E782EE69A152528E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:14D5B890DAA0710048CFB6B3E782EE69A152528E
 magnet:?xt=urn:btih:F474E950BB5B9F3E24C4DDFA291BED2327CFD9F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ File List Export (бывший File list to Excel) - простое в испо�
 ```bash
 magnet:?xt=urn:btih:93363F39DBE61AB0C12E0AC080B37EC33E2CA846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Calendar 366 II v2.7.2 [Multi]
 magnet:?xt=urn:btih:7E81C7AC3D401932B9EF35E08CDE777F492DEF54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ DoYourData File Eraser для Mac может помочь вам безопас�
 ```bash
 magnet:?xt=urn:btih:C76BE5D5DCF3CD120CD43C181FA48116844A8BA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:C76BE5D5DCF3CD120CD43C181FA48116844A8BA1
 magnet:?xt=urn:btih:2EF5A5346034C6048E0A30E6DF59063965C997B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Picsart Photo & Video Editor v21.3.2 Mod by CXVUSER [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1631E6E38327B75A369684BCDCED65C5754650AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:1631E6E38327B75A369684BCDCED65C5754650AA
 magnet:?xt=urn:btih:E181B3169EFACFEF8A5F5242C82AB32C4CE41615
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:E181B3169EFACFEF8A5F5242C82AB32C4CE41615
 magnet:?xt=urn:btih:E111E20D2FD9D2752F01D114863AC76B815AB857
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ DuplicateViewer Pro 3.7 [En]
 ```bash
 magnet:?xt=urn:btih:DF720005C11491D1A02C4B1F608037B737DCDE39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:DF720005C11491D1A02C4B1F608037B737DCDE39
 magnet:?xt=urn:btih:B7599C3358160588478485E1946920DEFF4CE588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:B7599C3358160588478485E1946920DEFF4CE588
 ```bash
 magnet:?xt=urn:btih:D46307A418063BF7FD6BFFF006AEAB18447D5293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:D46307A418063BF7FD6BFFF006AEAB18447D5293
 magnet:?xt=urn:btih:C63D63790456743E684048853DB6712BB88581CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ Buduemy Dom ("Строим дом") - польский строительный 
 ```bash
 magnet:?xt=urn:btih:16058BA5CFE6B61E53F2B69E16E32D72C8AD1173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:16058BA5CFE6B61E53F2B69E16E32D72C8AD1173
 magnet:?xt=urn:btih:CE130B081EB2979A56C91A50C81C936620C653D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ BBC. История Вселенной (Наша Вселенная) / Our Unive
 magnet:?xt=urn:btih:7278DD2E187DAD43ED688EECA6E56D2A3DEA02B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ MyDraw включает в себя мощные функции, которые 
 ```bash
 magnet:?xt=urn:btih:16BD2DA467CC93145339D496115E7F8FE33ACB89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

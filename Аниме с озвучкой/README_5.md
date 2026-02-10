@@ -19,6 +19,8 @@ Beyblade Burst | Бейблэйд Бёрст [2016, TV, 51 эп.] WEB-DL 1080p r
 magnet:?xt=urn:btih:5C95E123C66E2B4CDA38372E2C59D640CFF9704C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Beyblade Burst God | Beyblade Burst Evolution | Бейблэйд Бёрст Эв
 ```bash
 magnet:?xt=urn:btih:51A540417F3576F505F1ABDE50B3124B9E1FDC85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Zhandou Wang: Jufeng Zhan Hun 5 | Infinity Nado 5 | Инфинити Надо 5 
 magnet:?xt=urn:btih:3DB90E98E67CBC18720402EB8E7C2B86D9EA0CB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Beyblade Burst Chouzetsu | Beyblade Burst Turbo | Бейблэйд Бёрст: �
 ```bash
 magnet:?xt=urn:btih:B7DD0779FBF8476CE43686703A96937149D3CD0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Tokidoki Bosotto Rossiya-go de Dereru Tonari no Alya-san | Alya Sometimes Hides 
 magnet:?xt=urn:btih:EDFE0A05816EE5C447251136D40AF8C90525CA67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Tate no Yuusha no Nariagari Season 3 | The Rising of the Shield Hero Season 3 | 
 ```bash
 magnet:?xt=urn:btih:CEEDDE5FF23856F190387A2B18D71B2C70623C07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:CEEDDE5FF23856F190387A2B18D71B2C70623C07
 magnet:?xt=urn:btih:A8CD058D45D5EAA8E6FAA393E35006289145388C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Sayounara Ryuusei, Konnichiwa Jinsei | Goodbye, Dragon Life | Прoщaй, жиз
 ```bash
 magnet:?xt=urn:btih:4C3EE82F01C9D200ED84F2979405F727A3B9AE5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:4C3EE82F01C9D200ED84F2979405F727A3B9AE5F
 magnet:?xt=urn:btih:08A9D511177424855DC448F833BCFAED6FDFBBF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Inazuma Eleven: Chou Jigen Dream Match | Одиннадцать молний: М
 ```bash
 magnet:?xt=urn:btih:A0EA9D7E21C1BD9A51AAD5E6D4B23DBAC9498B59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Gekijouban Inazuma Eleven Go: Kyuukyoku no Kizuna Gryphon | Inazuma Eleven GO th
 magnet:?xt=urn:btih:D1FEAB0B5709453CCE8F32E26959DDAC763310D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Gekijouban Inazuma Eleven Go vs Danbooru Senki W | Inazuma Eleven GO vs Danball 
 ```bash
 magnet:?xt=urn:btih:1CA24545818FFC0A2D063BA210614AC778EF94D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Maou-sama, Retry! R | Demon Lord, Retry! R | Князь Тьмы: Retry! R [ТВ
 magnet:?xt=urn:btih:780ED2D34B70F465F3823D8E598B2BD16D325F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Gekijouban Inazuma Eleven: Saikyou Gundan Ogre Shuurai | Inazuma Eleven the Movi
 ```bash
 magnet:?xt=urn:btih:E034A8637C2E22A70AB183D6687AA96CEADF7F21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Saikyou no Shien-shoku Wajutsushi Dearu Ore wa Sekai Saikyou Clan o Shitagaeru |
 magnet:?xt=urn:btih:248BB1CCA3D39DE7BDD72137619D6F1151022527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Ginga e Kickoff! | Victory Kickoff! | Вперед, ко вселенной! [20
 ```bash
 magnet:?xt=urn:btih:5079B7E8E1AF8C1113414C70DD595B640554EB45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Mirai Shounen Conan | Future Boy Conan | Conan, The Boy in Future | Конан -
 magnet:?xt=urn:btih:77B305D0EEB7D00BFF8AB7A4139BA5AF49AA5A98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:77B305D0EEB7D00BFF8AB7A4139BA5AF49AA5A98
 ```bash
 magnet:?xt=urn:btih:407595502787A92405E38A45B4246D75AD1C577F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Shinigami Bocchan to Kuro Maid 2 | The Duke of Death and His Maid 2 | Смерт
 magnet:?xt=urn:btih:D910A28DB4C7C1152D1C76E4EE0B921C1B75F01C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница чуда�
 ```bash
 magnet:?xt=urn:btih:D89D01B41C8BD955FE1087F68128C06EB7F20EBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Hibike! Euphonium 3 | Sound! Euphonium 3 | Играй, эуфониум! [ТВ-3
 magnet:?xt=urn:btih:7AD5BF51790CDA73FE5284A9F6D0FA1763E533EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Chiyu Mahou no Machigatta Tsukaikata | The Wrong Way to Use Healing Magic | Ка
 ```bash
 magnet:?xt=urn:btih:D224CDEC3F01A9AC783757C58F3F51B5A63D72FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Grand Blue | Необъятный океан [ТВ-1] [2018, TV, 12 эп.] BDRip
 magnet:?xt=urn:btih:3693C9A0BC2EEE5506E8D02E373973731DBFAEA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:3693C9A0BC2EEE5506E8D02E373973731DBFAEA6
 ```bash
 magnet:?xt=urn:btih:8BA9F508A8FB10C2EAE3D0E25B6364759FC54740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ DARLING in the FRANXX | Любимый во Франксе [2018, TV, 24 из 24
 magnet:?xt=urn:btih:70B0B7FD6C3E33645F9119C8D46C54009327854E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Bakeneko Anzu-chan | Ghost Cat Anzu | Кот-призрак Андзу [2024, Mo
 ```bash
 magnet:?xt=urn:btih:AFE72198ED3452D04A07EF293BB91F9ADCE0AD19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

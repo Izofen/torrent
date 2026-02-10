@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C368BA57AC53F870D760B36BB51DEF7A6850C6D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ George Perris - The Most Wonderful Time Of The Year (2023) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:A8EE49C209BF6BD5DCC6F809793852A98A6F1EF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:A8EE49C209BF6BD5DCC6F809793852A98A6F1EF9
 magnet:?xt=urn:btih:CE0A68F22A3F4F482AD9E9B8104CBB0E08E17769
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Proteus — это пакет программ для автоматизиров
 ```bash
 magnet:?xt=urn:btih:1393CFC7F0D5438583B7976DEF0F04254B60F1D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:1393CFC7F0D5438583B7976DEF0F04254B60F1D5
 magnet:?xt=urn:btih:9443A90D7EB7A5E0744329BF7339A2D331F29FB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:9443A90D7EB7A5E0744329BF7339A2D331F29FB8
 magnet:?xt=urn:btih:F63578BDBE4BA01CF8598474FC3358DCEE3D98D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Galaxy on Fire 2. Full HD [Ru/En/Multi11] (RePack/1.0.3) 2012 | Fenixx
 ```bash
 magnet:?xt=urn:btih:AAEC0BB7435CB97A9ED29AC1E5A2C147A03D78D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:AAEC0BB7435CB97A9ED29AC1E5A2C147A03D78D6
 magnet:?xt=urn:btih:2DF50928CCA795F261F029F47D1B7EF1ED07F6D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:2DF50928CCA795F261F029F47D1B7EF1ED07F6D6
 magnet:?xt=urn:btih:08DEB9E6AC645D9C69E1574B685B1E61BDA510E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:08DEB9E6AC645D9C69E1574B685B1E61BDA510E2
 ```bash
 magnet:?xt=urn:btih:5731193E1FADCC3B4C26BD6171298EF2783B6777
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:5731193E1FADCC3B4C26BD6171298EF2783B6777
 magnet:?xt=urn:btih:707DC465D07331B26946E3775E16937C22D99EFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:707DC465D07331B26946E3775E16937C22D99EFB
 ```bash
 magnet:?xt=urn:btih:8E6E474ADDA7186730071871109167EC48AB8C8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:8E6E474ADDA7186730071871109167EC48AB8C8C
 magnet:?xt=urn:btih:ADA57CE93A86722DB292292219C9BB0EABC0F776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:ADA57CE93A86722DB292292219C9BB0EABC0F776
 magnet:?xt=urn:btih:81D0A9164CD0191BEB45E31189B54F4CEA245BEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:81D0A9164CD0191BEB45E31189B54F4CEA245BEA
 ```bash
 magnet:?xt=urn:btih:114AB2CADEAB94896CB40B3332B5B7E54E84D851
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Cities in Motion Collection / Транспортная империя [En/Multi5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Cities in Motion Collection / Транспортная империя [En/Multi5
 magnet:?xt=urn:btih:214B9A46F99BA501577E8C3378CF920365B36DED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:214B9A46F99BA501577E8C3378CF920365B36DED
 ```bash
 magnet:?xt=urn:btih:8932D461745835614FD8CD89901269764C4BFAAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Neptunian Maximalism - 2 Albums (2020-2021) [FLAC|Lossless|WEB-DL|tracks] <Avant
 magnet:?xt=urn:btih:7F6525568B4394F85B169D69B1B048AFA73A0B6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:7F6525568B4394F85B169D69B1B048AFA73A0B6C
 magnet:?xt=urn:btih:1C455C2725B3639A16339A0C5BD70E8E1036DA08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:1C455C2725B3639A16339A0C5BD70E8E1036DA08
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:1C455C2725B3639A16339A0C5BD70E8E1036DA08
 magnet:?xt=urn:btih:62A004D7559F911A8FB12529DA53370316D120E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:62A004D7559F911A8FB12529DA53370316D120E6
 ```bash
 magnet:?xt=urn:btih:6B0AE974E2F67552F3809A62D8BC29E89ED20038
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Zuma's Revenge (2009) [Ru/En] (1.0) Unofficial
 magnet:?xt=urn:btih:7A478F75AF1B0B1909ADB0F16D88C4F19089A2B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:7A478F75AF1B0B1909ADB0F16D88C4F19089A2B2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Wreckfest (2018) [Ru/Multi] (20181221) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:4B0651947550256E4F78A966DC5C5A3CDD607552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

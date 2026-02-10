@@ -20,6 +20,8 @@ Udemy, Сергей Семёнов | Selenium и Selenide для начинаю�
 magnet:?xt=urn:btih:3CC5AFC5E576BEE31AC0138F82E5BE3FA6EFA95A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Udemy, Bogdan Stashchuk | Полное руководство по Git: пойм
 magnet:?xt=urn:btih:A7BD4D4BAB0DB56D5DA3D16AFA96184DF1937C62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Udemy, Alexander Batashov | Laravel - Создание Админ Панели. 
 ```bash
 magnet:?xt=urn:btih:54E0869FD2EB6C25D391017F585498C8B3B9BA66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:54E0869FD2EB6C25D391017F585498C8B3B9BA66
 magnet:?xt=urn:btih:1E4D8B9FD16F338656CCFDBF5E90D47D3A5D0DC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Udemy, Timur Mashnin | Введение в объектно-ориентиров
 ```bash
 magnet:?xt=urn:btih:66664688A90670824261A72247B6DD13AD379D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ SOLID - это аббревиатура, обозначающая SRP, OCP, LSP,
 magnet:?xt=urn:btih:378EB86EE55BC4CFB363F7096066BEC907FD1D19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ Greatercommons, Todd McLeod | Веб-разработка на языке про
 magnet:?xt=urn:btih:1EEEE103DC0A4955DF91347D2C1F0F17B0296448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ Udemy, Imtiaz Ahmad | Головоломки Java для устранения с
 magnet:?xt=urn:btih:4D563C899C1D6DCC5A394B2D63BD178BB1D33BB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Udemy, Mehmet Nuri Yumuşak | Разработка Backend (API) с Python от 
 ```bash
 magnet:?xt=urn:btih:47B586026DFECFD74D84087900478AF986798951
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ Udemy, Clyde Matthew | Секреты веб-разработки 2020 - CRP, HT
 magnet:?xt=urn:btih:C1CA61F72141F2AA6E5E23A2AF53E79DAAA811E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ Udemy, Holczer Balazs | Рекурсия, Бэктрекинг и Динамич
 ```bash
 magnet:?xt=urn:btih:4C28865770C73F93DE1E20512B657E19F7841D7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ Udemy, James Doyle | Learn To Create a Match-3 Puzzle Game in Unity (2021) PCRec
 magnet:?xt=urn:btih:12FB1AB53AE74D6ED692F3DCCA1370F4D0598BF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:12FB1AB53AE74D6ED692F3DCCA1370F4D0598BF8
 ```bash
 magnet:?xt=urn:btih:13181CCEF4DBBC1DF2F9097DA85497C63006FC68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ Udemy, Norbert B. Menyhart | React for Beginners - From HTML CSS & JavaScript to
 ```bash
 magnet:?xt=urn:btih:44F2028A890BBE64F08417FADB4F517AE8A445A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ OTUS | Нагрузочное тестирование [Части 3 из 3] (20
 magnet:?xt=urn:btih:B2DF1CB30A304ADFEC310D0D7541A2A2B6EA9D7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ Java - это очень мощный язык, который использу�
 ```bash
 magnet:?xt=urn:btih:9A0D68BCBC869FAE49D213E73AE4877CD8B910D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ Udemy, Grim Future Studio | Unreal Engine - базовый курс. С нуля
 magnet:?xt=urn:btih:FA54C6527F9CE2B04242FE840994299751386CA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ Genius Courses, Александр Сокирка | Марафон по WordPres
 magnet:?xt=urn:btih:1986446FC365AD08974CC596172D31F52F17A267
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:1986446FC365AD08974CC596172D31F52F17A267
 ```bash
 magnet:?xt=urn:btih:90636082743EED9F7D14549FFCE37FE0E8EDF1EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ magnet:?xt=urn:btih:90636082743EED9F7D14549FFCE37FE0E8EDF1EA
 magnet:?xt=urn:btih:34593261DE1599507CB3E6142AEEB357F97E301F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ Udemy, Stephen Ulibarri | Unreal Engine 5 C++ The Ultimate Game Developer Course
 ```bash
 magnet:?xt=urn:btih:993D341228A6D39669D6639E2CF880B550036E02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ Udemy, Илья Фофанов, Валерий Павлов | Бэкенд ра�
 magnet:?xt=urn:btih:349FC2DB421285A4117797532D2B3B01953BCED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ kobezzza.channel, Андрей Кобец | Устройство компиля�
 magnet:?xt=urn:btih:333ABA7E4C7148110146DCECDEFF3A39F8FA0427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:333ABA7E4C7148110146DCECDEFF3A39F8FA0427
 ```bash
 magnet:?xt=urn:btih:2BA94F48D35F678C0618EDB99DB04C416A9D267F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:2BA94F48D35F678C0618EDB99DB04C416A9D267F
 magnet:?xt=urn:btih:C4F4D6F9C109344240404ED679FA4B0FA3F4C09A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ magnet:?xt=urn:btih:C4F4D6F9C109344240404ED679FA4B0FA3F4C09A
 ```bash
 magnet:?xt=urn:btih:B076520D092FC09A2553D4D4EB3C9D4204C9BEE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

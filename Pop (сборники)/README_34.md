@@ -1,3 +1,32 @@
+###  Публикация: 951419   (363472) от 29.10.2015
+
+VA - MTV Ballads (2005) [MP3|192 - 224 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_363472.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. E. Lanto - I Can Do It (Watch Me Now)
+002. Al Di Meola & Leonid Agutin - If I'll Get A Chance
+003. Mylene Farmer - Ange, Parle-Moi
+004. Jenifer - C'est De L'or(   Читать дальше...   )Жанр: PopПродолжительность: 06:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C93712CE1F6B025EDCAE9603C3A1E92041C41E9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951572   (363473) от 29.10.2015
 
 VA - New Italo Disco 2 (2015) [MP3|320 кб/с]<Italo Disco, Eurodisco, Pop>
@@ -21,6 +50,8 @@ VA - New Italo Disco 2 (2015) [MP3|320 кб/с]<Italo Disco, Eurodisco, Pop>
 ```bash
 magnet:?xt=urn:btih:7FA88E363804F516B23547EA7F101792B9F09E89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +79,8 @@ VA - Autumn Dance (2015) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:F068E433987A4822BE07A1E009EBB79FC974F38E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +115,8 @@ VA - MAXI. Лучшие хиты для убойной вечеринки (2012)
 magnet:?xt=urn:btih:1EDA85CD512CEF3D786611226AFCD8957D18B6E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -111,6 +146,8 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:186CBA827B82EB572FE4A243BC239C752429B32D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +182,8 @@ VA - Звёздный удар от Русского радио. Сборник 
 magnet:?xt=urn:btih:661A7DFA64CED3A377277AC5D8AA4E496495D699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +216,8 @@ VA - До 19 и старше 27 Русский (2012) [MP3|128 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:D2B20DAA01074E62335B13B916AF47E27A2A89EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +252,8 @@ VA - Танцы До Упаду (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:CB3C2D04398DF94E86FAFE22F4D854C8D8D70515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +286,8 @@ VA - Звездный осенний хит 24 Зарубежный (2012) [MP3|
 ```bash
 magnet:?xt=urn:btih:F5EE441FF8B1AFEF6F28F78A1B77CD20BDEB8F40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +322,8 @@ VA - Хитовая жажда 50/50 (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:95B542B50AA0CBF7D46CAED1FDADE6A727AD2164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +356,8 @@ VA - Осенняя Московская Дискотека (2012) [MP3|256 кб
 ```bash
 magnet:?xt=urn:btih:AF67862DBB5CD82096F37B67A92BCFFAAD18D3F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +392,8 @@ VA - Осенняя Музыкальная сенсация (2012) [MP3|128 кб
 magnet:?xt=urn:btih:A305DFF485A96F0FF4025EA5DC95B79A500C105B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +420,8 @@ magnet:?xt=urn:btih:A305DFF485A96F0FF4025EA5DC95B79A500C105B
 ```bash
 magnet:?xt=urn:btih:273A5821E4D669E445E478E35BDDA1EC559C037B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +450,8 @@ magnet:?xt=urn:btih:273A5821E4D669E445E478E35BDDA1EC559C037B
 magnet:?xt=urn:btih:5B3CE99B038AB2684E6CFE098FA7DCA591C61B03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +478,8 @@ VA - Музыкальные новинки mp3 50/50 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:4DCEAAEFDA4FEFDFBDFDF1DDC9C9FBF835AAC437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +508,8 @@ VA - Осенний хит-отрыв. Русский выпуск (2016) [MP3|2
 magnet:?xt=urn:btih:EAC53A48087F84D3F1CB79F50D606267266705B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +536,8 @@ magnet:?xt=urn:btih:EAC53A48087F84D3F1CB79F50D606267266705B4
 ```bash
 magnet:?xt=urn:btih:B189B62412C02C6C7874425EBCA3B8D0DF9B63B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +572,8 @@ VA - Наше Радио: Лучшее и Новое (2012) [MP3|128 кб/с]<Р
 magnet:?xt=urn:btih:6BB5935F92B7790E8BCB5B239685AFB06709621A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +607,8 @@ VA - Самые Горячие Хиты Авторадио 3 (2012) [MP3|128 к�
 magnet:?xt=urn:btih:C29DDF2EFDAF8EA8F5744104CA7BBD425B62C027
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +635,8 @@ VA - Acoustic (2015) [MP3|320 кб/с]<Pop, Acoustic>
 ```bash
 magnet:?xt=urn:btih:2C9CB7D7D3198BAA1804A59DD1ABED28BCFCEBFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +665,8 @@ VA - New Music Releases Week 41 (2018) [MP3|192-320 Kbps] <Dance, Pop, Rock>
 magnet:?xt=urn:btih:B660B2EA725AA70AE8F13549124D5E3294459CE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +693,8 @@ Rie Sinclair - Collection (2006-2013) (2018) [MP3|256 Kbps] <Indie, Pop Rock Bal
 ```bash
 magnet:?xt=urn:btih:C9E2B1785B0E67234F9A66C835376B5BC4EE44D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +729,8 @@ VA - И Снова Лирика (2012) [MP3|256 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:150FE17A4B8B61191EFF1E9B74B1128809895793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +763,8 @@ VA - Coca-Cola Music Чарт 3 (2012) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:2DCAAEC313BDB5DDD64DAC1318EA1270B81B5AA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -724,6 +799,8 @@ VA - Музыкальное путешествие Европы плюс 50/50 (
 magnet:?xt=urn:btih:357477EC6D3A94496C86216FA166520F87772580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -751,32 +828,7 @@ The Beat Goes On! Vol.01
 magnet:?xt=urn:btih:CF7CDB8B9FB379A4F418E43A39EFAA5D3F301242
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950669   (368032) от 27.10.2015
-
-September - Dancing In Orbit (2008) [MP3|~225 кб/с (V1)]<Pop, Dance, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_368032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cry For You
-02. Looking For Love
-03. Can't Get Over
-04. Midnight Heartache(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1E6DCCDCBB87BEE0047AA8E746B93AAA64C527B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

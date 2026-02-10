@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:FF3713B63870B8253913609AC18F3A73B323CC60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:FF3713B63870B8253913609AC18F3A73B323CC60
 ```bash
 magnet:?xt=urn:btih:CAC70158F90E708C9ECDDB1BED6C39D642E37B3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:CAC70158F90E708C9ECDDB1BED6C39D642E37B3C
 magnet:?xt=urn:btih:89B3A62F50A828629B5C1178F39CB08AB6E509BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:89B3A62F50A828629B5C1178F39CB08AB6E509BB
 ```bash
 magnet:?xt=urn:btih:1477FC4CCE4DCF72B6D394F6E86A1B2BE9DE73CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:1477FC4CCE4DCF72B6D394F6E86A1B2BE9DE73CE
 magnet:?xt=urn:btih:2AC505AB76EDE9F1632459766109C8387B5EE77D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:2AC505AB76EDE9F1632459766109C8387B5EE77D
 ```bash
 magnet:?xt=urn:btih:AFD5650EA71D47FC1C3270B4CEED787438ADBCC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Eternal Evil (2022) [Ru/En] (Build 9865535) Repack Let'sРlay
 magnet:?xt=urn:btih:F1873AF9470B1E35F38C281F24FB5865EAABC518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:F1873AF9470B1E35F38C281F24FB5865EAABC518
 ```bash
 magnet:?xt=urn:btih:E06EF4E6F0F3E661014CB2F2D4113F4E43DE89C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:E06EF4E6F0F3E661014CB2F2D4113F4E43DE89C8
 magnet:?xt=urn:btih:1A5A5CB87EF77581D2FF55380508B40DC21C9531
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:1A5A5CB87EF77581D2FF55380508B40DC21C9531
 ```bash
 magnet:?xt=urn:btih:CBCE0E6F8BFB468E541651288EED90C698D4932F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:CBCE0E6F8BFB468E541651288EED90C698D4932F
 magnet:?xt=urn:btih:0F55B78AE19EE25ECFF1DCE64544A0AB57585D34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Microsoft Visual C++ Redistributable Package – это распространя
 ```bash
 magnet:?xt=urn:btih:62EF396B82D1173B17FA6B8474E7672BACDDCF1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Elden Ring Nightreign (2025) [Ru/Multi] (1.01/dlc) Repack FitGirl [Deluxe Editio
 magnet:?xt=urn:btih:9B4FC9B1C394D680EE3F08CF846184C357D875D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:9B4FC9B1C394D680EE3F08CF846184C357D875D4
 ```bash
 magnet:?xt=urn:btih:7FCFF9E63393E94CE566B198E3DAC99BA5B3DD9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Dungeon Meshi | Delicious in Dungeon | Подземелье вкусностей
 magnet:?xt=urn:btih:5554BF67F213742D911832C90CE53FBBEE448ABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 ```bash
 magnet:?xt=urn:btih:BC555540821324A8F3946251174ACD56C6F216E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:BC555540821324A8F3946251174ACD56C6F216E8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:BC555540821324A8F3946251174ACD56C6F216E8
 ```bash
 magnet:?xt=urn:btih:22676A82FEE0460A1EF12B3DE6B7635498F74173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Panzer Corps 2 - лучшая стратегическая игра о Втор�
 magnet:?xt=urn:btih:68C9189EF9FC1D63BF6A6877EC2A008C75087ACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ magnet:?xt=urn:btih:68C9189EF9FC1D63BF6A6877EC2A008C75087ACF
 magnet:?xt=urn:btih:90D6E85F325F222D3310F1ABCCD236D52F80B1F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +538,8 @@ magnet:?xt=urn:btih:90D6E85F325F222D3310F1ABCCD236D52F80B1F3
 ```bash
 magnet:?xt=urn:btih:2F4B5208CF48CC96FCE07AA66FEA0177ABB699AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ VA - The Orient Collective: Earth And Sky (2025) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:C44309419E7D3131752D17C73BD3B4DE9DB5797A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:C44309419E7D3131752D17C73BD3B4DE9DB5797A
 magnet:?xt=urn:btih:722C1169D4788944E6609189F1BE926EA9630BF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:722C1169D4788944E6609189F1BE926EA9630BF0
 ```bash
 magnet:?xt=urn:btih:626F5693C6395271F05C567B853470E86C0E4DC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Kingdoms and Castles позволит совершить грандиозное 
 magnet:?xt=urn:btih:5E843DE187988AE9213F48BC8D92C5DF53D38236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:5E843DE187988AE9213F48BC8D92C5DF53D38236
 ```bash
 magnet:?xt=urn:btih:DF7F637D365F6060C1A7DDA6C65BDE8DDAEE2CAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

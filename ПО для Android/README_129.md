@@ -19,6 +19,8 @@ Cinema HD TV v2.3.6.1 Mod [En]
 magnet:?xt=urn:btih:03BDAD99DA131C7C6C770EF7A7AEFA501173BBCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Radardroid Pro v3.73 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:212D16E96110081D407630031C4204B726C2D891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Instander – неофициальная модификация приложен
 magnet:?xt=urn:btih:45472A93C8C40A53EDC3D7DB210BCA15946383B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Map Marker v2.19.1 [Ru/Multi] - создание собственных мето
 ```bash
 magnet:?xt=urn:btih:0E4B28DFD446DACA9319E1B822D0CF8A27F3873C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ TiviMate IPTV Плеер v2.8.0 [Ru]
 magnet:?xt=urn:btih:C3825677AA5A4270CE72D7993FE3ACA070D9DC32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:C3825677AA5A4270CE72D7993FE3ACA070D9DC32
 ```bash
 magnet:?xt=urn:btih:E9A9E1EEE28A048DE353E79798CB67D3CEC86505
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Piano Ear Training Pro - тренажер для слуха
 magnet:?xt=urn:btih:FBC2F7295B185235DBBC7C05CFAC787B087F2641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Speed camera radar / Радар детектор v3.1.29 [Ru/Multi] (обнов�
 magnet:?xt=urn:btih:084B465C8597FEDFADA13382DCF6EA1BC9364C98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ WiFi Analyzer Pro v3.2.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E76987200CC7E51148A095B3816F88ACCC74312D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Perfect Player - IPTV/Медиа плеер с интерфейсом ТВ пр�
 magnet:?xt=urn:btih:9A9A52E09A063F06F8541AD75D269260E2E571F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ Vanced YouTube Music v4.18.50 [Ru]
 ```bash
 magnet:?xt=urn:btih:5A3306AF0AFC7F514A1072C3406EAD74B8CA22FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ Avast Cleanup v5.5.0 Premium [Ru] - очистка, ускорение и опт
 magnet:?xt=urn:btih:6D9047971DDB0B2721C33A8E379893AF15BD5A6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ C AVG Cleaner ваше устройство Android будет работать 
 ```bash
 magnet:?xt=urn:btih:FAF92B504562B4C8FFF91C8ACBFECF7121307CB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ ToonApp - карикатура фоторедактор лучшее прило�
 magnet:?xt=urn:btih:1353EFBBC03B316108145A9F40D90AEAAFE0ADF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Easy Text Scanner - это приложение для распознавани�
 ```bash
 magnet:?xt=urn:btih:1124CA51CAF1DB3E0E7110B8444BA9A6D7455287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:1124CA51CAF1DB3E0E7110B8444BA9A6D7455287
 magnet:?xt=urn:btih:99E0E2E0E2F48982A38AA04F8DED10691981D2C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:99E0E2E0E2F48982A38AA04F8DED10691981D2C5
 ```bash
 magnet:?xt=urn:btih:5610B316030183241693597CC41E13D50E3C8C96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:5610B316030183241693597CC41E13D50E3C8C96
 magnet:?xt=urn:btih:6EB1913242BC4F8B7467D413ADA600C4CA6A487F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ WOW Volume Manager v1.6 [En]
 ```bash
 magnet:?xt=urn:btih:5208FC20E48E6580659519DEF07035A4CE38E1A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:5208FC20E48E6580659519DEF07035A4CE38E1A6
 magnet:?xt=urn:btih:CCD6C9F4039EA17D1AD3CAA96868B90F2F5688B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ Handy GPS - Настоящий ручной GPS с множество функц
 ```bash
 magnet:?xt=urn:btih:41175347239423C818C8A95F689665BB9875CECF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ eWeather HD v8.2.4 Premium [Ru/Multi] - погода, качество возд�
 magnet:?xt=urn:btih:C50A007457E4D885932D5B777BFBB0799E2F9B09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ AutoTagger - авто и пакетный редактор тегов v3.3.4 [Ru
 magnet:?xt=urn:btih:EDCE167C473BAB914B425767D0FF6D16D0CB8BCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ SAI это продвинутый установщик APK с поддержко
 ```bash
 magnet:?xt=urn:btih:AF23F21DD6065F8C3257D876045F3569E8464388
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:AF23F21DD6065F8C3257D876045F3569E8464388
 magnet:?xt=urn:btih:691952402AB26B9F962AF8856A871D54A815D2A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ Freezer v0.6.9 [Ru]
 ```bash
 magnet:?xt=urn:btih:11C1A0BE831241A71F0ED9E265B2FAC536D7834D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

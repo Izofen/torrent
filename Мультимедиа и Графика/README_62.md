@@ -19,6 +19,8 @@ Dream MKV to AVI Converter — простая и эффективная утил
 magnet:?xt=urn:btih:7193F92125DD7BB1EA00B575638C09155C485585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MAGIX 3D Maker — программа для создания высококач
 ```bash
 magnet:?xt=urn:btih:00E771FA3BBA503A2A1A7C58B57C3F5C342F26C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PhotoScissors - простой инструмент, позволяющий бу
 magnet:?xt=urn:btih:88F1861D802533202A9D9458FE216A906CFB997B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Topaz ReMask 5.0.1 (x64) [En]
 magnet:?xt=urn:btih:A53B4E584A9AD4074C7D2F763756AC9CA96E960B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Aiseesoft Total Video Converter является многофункционал�
 ```bash
 magnet:?xt=urn:btih:1290D93C5FB2BC4DB914E6D39F0056272F782634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Tiffen Dfx - Программный комплекс состоящий из б�
 magnet:?xt=urn:btih:AE95E49413BB13ED9622090CE199CDDEFC7DC8B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Rhythmiq анализирует и понимает ваши ритмы и мг�
 magnet:?xt=urn:btih:414467AB5F783D4F4C9ECEAA1424A1C055C20FF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ AnyMP4 Video Enhancement - Видеоредактор для повышения 
 ```bash
 magnet:?xt=urn:btih:4F2381EEFD5A6ACDA7D44B7C4A8ECD1D7BEDCD52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Beatformer имеет четыре ручки (Boom, Punch, Squash и Air), ко
 magnet:?xt=urn:btih:E4891703722D2A2645051708DCAC83ADDA4208EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Accusonus - Regroover Pro 1.7.84 VSTi, AAX (x86/x64) [En]
 ```bash
 magnet:?xt=urn:btih:2A15739144FACF15387332CA458D884FF0DB5E77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ CD Label Designer - программа разработки дизайна и р
 magnet:?xt=urn:btih:73E6EC55E60F5EB6B6891A3DBDC118AA0654E2A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Redfield Unobtanium — плагин удаляет излишний фотор�
 ```bash
 magnet:?xt=urn:btih:B16273241D830D6B626FDE10187F3838A2A958BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Redfield Fractalius — плагин позволяет преобразоват
 magnet:?xt=urn:btih:73658B4587FAC84E8520A62E0AF4ABD7BB58A597
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Redfield Abstraction TX — плагин для Adobe Photoshop, который 
 ```bash
 magnet:?xt=urn:btih:D187AABE0D3A9C10F99B86AB6C52265D6D230EDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Dear Reality - dearVR Bundle (11.2020) VST, VST3, AAX [En]
 magnet:?xt=urn:btih:0AD087A989974D63BFE047A002783421D81736AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Union - это звуковой плагин волнового синтезат
 ```bash
 magnet:?xt=urn:btih:561BEB1AFE43927A4C59CBB557C87F09C8CFB6F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ AnyMP4 Audio Converter - простой в использовании аудио
 magnet:?xt=urn:btih:DEDABB05A13BC71C590D819AF07B36FE655CD9F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Adobe Animate CC 2018, пришедший на смену Flash Professional —
 ```bash
 magnet:?xt=urn:btih:89C181938E83371606822B5365B46EF87428B372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Cypher2 предназначен для глубокой звуковой раз
 magnet:?xt=urn:btih:CEA8E9B9F6C7AE743D6F01BA69CA91F0AC2FF1CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Magic DVD Ripper - программа для конвертирования DVD 
 ```bash
 magnet:?xt=urn:btih:05FD429620004D97F68FE1FBD45CD793BA830D53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ HY-Plugins - HY-Delay3 1.1.2 VST, VST3 (x86/x64) [En]
 magnet:?xt=urn:btih:EFD33E5497E3256EC6B6993696974A183FC3ABD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ HY-Plugins - HY-SEQ16x3v2 1.1.51 VSTi (x86/x64) [En]
 ```bash
 magnet:?xt=urn:btih:272054C58078D3308C6C692455FD7CB271E1D6C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Aiseesoft Blu-ray Player - универсальный в работе "все в
 magnet:?xt=urn:btih:E1C70E7CE6CDBD1947227473A3CAFC2EBDDED6AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Movavi 360 Video Editor 1.0.0 RePack by вовава [Ru/En]
 ```bash
 magnet:?xt=urn:btih:F521C55AA46BB7CA5F9AAE2C0172182E1E192986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ WALTR 2 — революционный способ передачи файло�
 magnet:?xt=urn:btih:B8502AFAD166BC1D33CFD86610B558EACCA79F66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Tipard DVD Ripper - мощная и простая в использовании
 ```bash
 magnet:?xt=urn:btih:E6071BF3676FC4DA73E0491DA33C23E52630FF1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

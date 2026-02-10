@@ -28,6 +28,8 @@ Koko Taylor - Deluxe Edition (2002) [FLAC|Lossless]<Blues>
 magnet:?xt=urn:btih:20EFDCBC209BD1701818309AB04F67B68026C06D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ Various Artists - The Music Maker Revue - Live! In Europe (2011) [WavPack|Lossle
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ Lenus Project - Lenus Lounge (2013) [MP3|320 кб/с]<Nu Jazz, Acid Jazz, Lounge
 magnet:?xt=urn:btih:D1DB0707F1B66BE944D71046E5E1D4B6A9F2B0E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +133,8 @@ Noon - Full Moon (2013) [MP3|320 кб/с]<Vocal Jazz>
 magnet:?xt=urn:btih:ABB0397ADD8D42D2426468FB120FCB68EFD6FAF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +161,8 @@ Maria Daines - I Believe in You (2023) [FLAC|Lossless|image + .cue] <Blues Rock>
 ```bash
 magnet:?xt=urn:btih:7CB874BBECD51925767A140C91C948044C0ABA86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +191,8 @@ Molina, Talbot, Lofgren, Young - All Roads Lead Home (2023) [FLAC|Lossless|track
 magnet:?xt=urn:btih:5B209B71474836F5CA6F0736C7084747C05D9309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +219,8 @@ Louis Armstrong - Swing That Music 1935 - 1939 (1990) Jazz Archives [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:767A07F117AA0C4D2B2175895EDC008A6706B402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +255,8 @@ Rossano Sportiello, Nicki Parrott & Eddie Metz - Live At The Jazz Corner (2012) 
 magnet:?xt=urn:btih:9B9CE0E585CB6CCFFC822CB9B28F1D0B4DFBF558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +284,8 @@ VA - Jazz Lullaby (2008) [FLAC|Lossless|tracks + .cue] <Jazz, Children>
 magnet:?xt=urn:btih:8798E9083E4F4B700773FA44E94DB98DC258E7EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +312,8 @@ VA - Verve & Blue Note Today (2019) [FLAC|Lossless|tracks + .cue] <Jazz, Mainstr
 ```bash
 magnet:?xt=urn:btih:19D26D95DBF2D578E23D3A39847037EDEFF8E0D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +348,8 @@ Randy Brecker - The Brecker Brothers Band Reunion (2013) [FLAC|Lossless]<Jazz-Fu
 magnet:?xt=urn:btih:3995A338297FE2D6746783C1D899609282DA59F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +376,8 @@ Bucky Pizzarelli - April Kisses (1999) Arbors Records [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:C50244D14A1B9DD875E3E48FB108396E7FF9761B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +406,8 @@ Mildred Bailey - A Forgotten Lady 1935 - 1942 (1996) Jazz Archives [FLAC|Lossles
 magnet:?xt=urn:btih:0B76C36F0F71BBA4D44D607CB4D9A595E19E5AA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +435,8 @@ Mildred Bailey - Band Vocalist, Vol. 2 1931 - 1934 (1994) The Old Masters [FLAC|
 magnet:?xt=urn:btih:99E86A4243BC7E526705327D2BB1E40C1AB5DBC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +463,8 @@ Mildred Bailey - Smoke Dreams 1935 - 1939 (1999) Definitive Records [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:CE618562713412ACC538EFDFEE9EB4C41082B6A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +499,8 @@ Akiko Osada With Eddie Higgins - Winter Moon (2006) [FLAC|Lossless]<Vocal Jazz>
 magnet:?xt=urn:btih:3C5BF023CF388A94CB0A171F575B422980380700
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +533,8 @@ Rhetta Butler - Still Rockin' (2013) [MP3|320 кб/с]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:5C1E555A6354AB375E93BB990D154DBAA135FA50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +569,8 @@ Louis Armstrong - Basin Street Blues (1989) [FLAC|Lossless]<Jazz>
 magnet:?xt=urn:btih:D8393DD3CE9AB06ADAC01EE2061650C011727D36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +604,8 @@ Frances Madden - If This Were A Dream (2014) [MP3|320 кб/с]<Vocal Jazz>
 magnet:?xt=urn:btih:930A3389861F7C3096607BB09E653BE07835E9BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +636,8 @@ Igor Dmitriev (Игорь Дмитриев)Trio - In A Siberian Mood (1998) [FLA
 magnet:?xt=urn:btih:34F175EF280D5261EB38E61148E0A52F1810C44F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +664,8 @@ Teeny Tucker - Put On Your Red Dress Baby (2018) [MP3|320 Kbps] <Blues>
 ```bash
 magnet:?xt=urn:btih:0866AC8B1228C10005B7EE672FAB412403AF2F34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +694,8 @@ CD1:
 magnet:?xt=urn:btih:C5A94F7C0FAAD25BC35979C35A60C11A03AAA122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +722,8 @@ Eric Reed - For Such A Time As This (2020) Smoke Sessions Records [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:0DF18B36E4084FF2DACB3C932BECEB8BB894DDF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -706,6 +752,8 @@ Miles Davis - Workin' (1956) 2016, Jazz Images [FLAC|Lossless|tracks + .cue] <Ha
 magnet:?xt=urn:btih:8E3CAFE31AB1A3A640ADF739B250452F606B0858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -733,6 +781,8 @@ Larry Coryell - Coryell (1969) 2016, Real Gone Music [FLAC|Lossless|tracks + .cu
 magnet:?xt=urn:btih:0B337278C6813F6A8E213CACB5C513429B841F03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -759,6 +809,8 @@ Duke Ellington - Festival Session (1959) 2016, Jazz Images [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:3E2FB3FED75A90CC69AB2E131B6609E065D61727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

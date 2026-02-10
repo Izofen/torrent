@@ -20,6 +20,8 @@ Ubuntu*Pack 20.04 (май 2023) [amd64] 1xDVD
 magnet:?xt=urn:btih:4D7A5C7C629EDE6FF5253A5E10B9417203ECCF78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ VA - 1 сентября [MP3|192 kbps] <Песенки для детей>
 magnet:?xt=urn:btih:E5FB5D8C1FE20EB221BD105FCA3F40B6A81732FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:E5FB5D8C1FE20EB221BD105FCA3F40B6A81732FA
 ```bash
 magnet:?xt=urn:btih:583E6B75BF3D032BE20D3E7D409615A03B1A7B67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:583E6B75BF3D032BE20D3E7D409615A03B1A7B67
 magnet:?xt=urn:btih:79CE629551FA0E4E21E5D8D3D7E11270016A56DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:79CE629551FA0E4E21E5D8D3D7E11270016A56DA
 ```bash
 magnet:?xt=urn:btih:4AE6AB772D42D598A3A6025325CFB3DA9B5EC8BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Ubuntu*Pack 20.04 MATE (май 2023) [amd64] 1xDVD
 magnet:?xt=urn:btih:4D4740446D3A15490C24EF93638999F8C13BF071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:4D4740446D3A15490C24EF93638999F8C13BF071
 ```bash
 magnet:?xt=urn:btih:8841ED4C3542090F562AE131F7AF14B415FE82CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:8841ED4C3542090F562AE131F7AF14B415FE82CF
 magnet:?xt=urn:btih:3BA9F2605875F4FCD648A8C7D3D51C6F144D5C9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ Osake wa Fuufu ni Natte kara | Love is Like a Cocktail | Любовь похож
 magnet:?xt=urn:btih:282580405C57DBF56D8873BAAEE75ED020CC0EC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:282580405C57DBF56D8873BAAEE75ED020CC0EC3
 magnet:?xt=urn:btih:2603E5A57A2956D616D13A42437F51A54A3F9CE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:2603E5A57A2956D616D13A42437F51A54A3F9CE1
 ```bash
 magnet:?xt=urn:btih:DD7400DA673DD2C9566469D739F53FD259C9F650
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:DD7400DA673DD2C9566469D739F53FD259C9F650
 magnet:?xt=urn:btih:8F6A6936CFF025674D97DE30BFDC82E2ECA3E18C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ magnet:?xt=urn:btih:8F6A6936CFF025674D97DE30BFDC82E2ECA3E18C
 ```bash
 magnet:?xt=urn:btih:4664AE1317CF468B9F55858C070C2B5753044836
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:4664AE1317CF468B9F55858C070C2B5753044836
 magnet:?xt=urn:btih:2E48F857E7E05CD58A59349CC4C6D09B64F25281
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ Opera One 100.0.4815.47 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D5510B9D71F37C16196A6E344C2DFFF963050859
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:D5510B9D71F37C16196A6E344C2DFFF963050859
 magnet:?xt=urn:btih:0912627EF6EE78A4AF632DBFDA45D92474A8AFE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:0912627EF6EE78A4AF632DBFDA45D92474A8AFE8
 ```bash
 magnet:?xt=urn:btih:430CE4A9E5AED5298FDC094FD980C7F3946682C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ PC Cleaner - поможет исправить ошибки Windows на ваш�
 magnet:?xt=urn:btih:E3E6254539DFFDAEEBFE840F7A705ED9D5747A3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:CDC1054FB395F289FCE9B5520CAA13A3855CE903
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:CDC1054FB395F289FCE9B5520CAA13A3855CE903
 magnet:?xt=urn:btih:D741771E3EEADDE4E9A37A5DB2BA106F84B22BDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:D741771E3EEADDE4E9A37A5DB2BA106F84B22BDF
 ```bash
 magnet:?xt=urn:btih:0682956A563A97A84CDCD4EF82CD75AC11312188
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:0682956A563A97A84CDCD4EF82CD75AC11312188
 magnet:?xt=urn:btih:824DF45E7B59513A37131DBBDD6DC1BC000D299B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:824DF45E7B59513A37131DBBDD6DC1BC000D299B
 ```bash
 magnet:?xt=urn:btih:11159BBDE28A0AD149B2F728E6683A01D875A9B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:11159BBDE28A0AD149B2F728E6683A01D875A9B1
 magnet:?xt=urn:btih:4634294887CA9B3CA8B34B1D2436B8C3FFAE3C34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:4634294887CA9B3CA8B34B1D2436B8C3FFAE3C34
 magnet:?xt=urn:btih:F7196AE35451229AFF04FCE6E4C376F7D33F98B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:F7196AE35451229AFF04FCE6E4C376F7D33F98B5
 ```bash
 magnet:?xt=urn:btih:8D1F59BC5DD7FB0F1A74AAD97F51BC319E4DB7E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

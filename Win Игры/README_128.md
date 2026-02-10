@@ -19,6 +19,8 @@ Revhead (2017) [Multi] (1.9.11049/dlc) Scene Skidrow
 magnet:?xt=urn:btih:096241EC9E98CE19BE504CE13C1B76D8B2BF1495
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Once Alive (2024) [Ru/Multi] (0.9.9.8) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:36BEFEFD76DEE459A97B06556DE9A8A6A97CE011
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Bullet Runner (2024) [En] (1.2.0) License GOG
 magnet:?xt=urn:btih:23742E7A2288C466CC8478AE0D0436B582D378FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Disney Dreamlight Valley – это симулятор жизни с элеме�
 ```bash
 magnet:?xt=urn:btih:B0A870EE4CE919B07AC61F817DE97A0949989B34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Devil Within: Satgat предлагает погрузиться в атмо
 magnet:?xt=urn:btih:8EE79E7745E029B6C7989DB5C45371A1435CA5AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Fall (2024) [Ru/Multi] (0.1.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CE27F9DDB8E131E9AEC91ADF82763F05A9CCA163
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 magnet:?xt=urn:btih:2A7568014F65E906719BF9BEB508BFB2292BD904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Tortuga - A Pirate's Tale (2023) [Multi] (1.2.0.62400) License GOG
 ```bash
 magnet:?xt=urn:btih:3EC9B3DC1C1A229E4281C6391CAD83442289B7FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Depersonalization (2022) [Multi] (2.0.30) Scene Tenoke
 magnet:?xt=urn:btih:3EC9C8E99D8C7920C15A4775FB0BA1ADB4E3E818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Ultimate Admiral: Dreadnoughts предлагает уникальную воз�
 ```bash
 magnet:?xt=urn:btih:C13FAB45B3B0937117165AAF9493BC1BE2256C11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ VIDEOVERSE - это приключенческая игра с элемента�
 magnet:?xt=urn:btih:22C9EA0D01F56FE17E0721004AE2A272C5A3C33C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Sker Ritual – фантастический боевик, который мож
 ```bash
 magnet:?xt=urn:btih:553C2BF68FE6E44F0B2B567C56C307C49947B471
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Farlanders - градостроительный симулятор, позвол
 magnet:?xt=urn:btih:893581A6120013904A6905808FD720834C171196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Men of War II (2) (2024) [Ru/Multi] (1.040/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:8E34FBD5FD14A4845851641B8B867EEA9A85711F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ LEGO Horizon Adventures (2024) [Ru/Multi] (1.1.0.0) Scene Rune
 magnet:?xt=urn:btih:368F84C98E1101BEFBFBF746C441975D21A25C58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Beloved Rapture представляет собой авторскую jRPG, с�
 ```bash
 magnet:?xt=urn:btih:B1496764F88C7311D70E4F1B270728D6C4E20D65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ V Rising (2024) [Ru/Multi] (1.0.10.1/dlc) Scene Rune
 magnet:?xt=urn:btih:9E15C5F261395F499BC80AFAA7A9392673240C7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Santa Monica Studio в сотрудничестве с Jetpack Interactive пр�
 ```bash
 magnet:?xt=urn:btih:72075DC2FB1AFF23647C755F6B3D7029BF77B3D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ EcoGnomix - это ролевая стратегия и градостроите
 magnet:?xt=urn:btih:56091168638D7323A0A49F2DD036CF859475949D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Pumping Simulator 2 отправляет вас в путешествие в м�
 ```bash
 magnet:?xt=urn:btih:063ADFB1A7BDDB9A342FC42B57CCFF37A4F39EEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Darkness II (2012) [Ru/En] (1.1/dlc) Repack Let'sРlay [Limited Edition]
 magnet:?xt=urn:btih:0FB61A08B6AF22FCD5D4D57B7A0A06E81BBF2190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Men of War II (2) (2024) [Ru/Multi] (1.040/dlc) Scene Rune [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:24562C154AF85AEAC10C26B86B7B922B7890A2A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ ChessBase - это персональная, автономная програм
 magnet:?xt=urn:btih:276D7252D83102B8D6117C1B52DC9A22C70D019D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Astor: Blade of the Monolith (2024) [Ru/Multi] (1.0) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:41D2E94B68B31E7692C9F3B7C160026073E59B6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Half-Life 2 официально исполнилось 20 лет, и по сл�
 magnet:?xt=urn:btih:3399945F15ABBBC6D0807F508D67E0617D00B0A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Black Mesa («Чёрная Меза», ранее известная как Blac
 ```bash
 magnet:?xt=urn:btih:01AE5A8F162F1932855AC181304BD68EB091FDF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

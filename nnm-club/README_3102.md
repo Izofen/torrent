@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B8E741161D36C25D9C87C687EE27C067480BE4F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Evadne - The Shortest Way (2012) [FLAC|Lossless]<Death Doom Metal>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -107,6 +113,8 @@ Blue Steel - International Hu$$la (2012) [MP3|320 кб/с]<Dirty South>
 magnet:?xt=urn:btih:5C8634DE8B784FB586B780E1F04B4ED5CFE79E6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +148,8 @@ Sebastien Drums feat. Mitch Crown - Fly Again(   Читать дальше...   
 magnet:?xt=urn:btih:D6C7A02C615C611746F130C3993240E0DD70E026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +177,8 @@ magnet:?xt=urn:btih:D6C7A02C615C611746F130C3993240E0DD70E026
 ```bash
 magnet:?xt=urn:btih:1B5E75DE50E126C88EB28D1C96C0E1E9F3E38C44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +208,8 @@ magnet:?xt=urn:btih:1B5E75DE50E126C88EB28D1C96C0E1E9F3E38C44
 magnet:?xt=urn:btih:D75EF90A2AACC949790F04DFBF32C87673186AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +238,8 @@ magnet:?xt=urn:btih:D75EF90A2AACC949790F04DFBF32C87673186AB8
 magnet:?xt=urn:btih:697C277ACE5819164E9F97F1E1B50ECDAB9FED70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +263,8 @@ magnet:?xt=urn:btih:697C277ACE5819164E9F97F1E1B50ECDAB9FED70
 ```bash
 magnet:?xt=urn:btih:EB1F16DB29C72054C9816C7EC7CBDE497CF09B76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +290,8 @@ Sector F - Рядом с улицей Бога (2007) [MP3|320 кб/с]<rap>
 ```bash
 magnet:?xt=urn:btih:F980EE6D5FE56528B226193D224B64655D15F927
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +326,8 @@ Disc 1:
 magnet:?xt=urn:btih:1BED3953C2AB5F00750F4340DB4D77ACB8432B7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +352,8 @@ magnet:?xt=urn:btih:1BED3953C2AB5F00750F4340DB4D77ACB8432B7F
 magnet:?xt=urn:btih:C1D1360B928E663054C5A69249268519B81F7512
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +377,8 @@ magnet:?xt=urn:btih:C1D1360B928E663054C5A69249268519B81F7512
 ```bash
 magnet:?xt=urn:btih:73450AEC8DE398A269AAFE80AAAF429ADC44BCDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +413,8 @@ VA-Trance Eve Volume 24 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
 magnet:?xt=urn:btih:89DDAEAEB0D5D26C0276AE4B22E72F2F3C0F4DBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +443,8 @@ magnet:?xt=urn:btih:89DDAEAEB0D5D26C0276AE4B22E72F2F3C0F4DBC
 magnet:?xt=urn:btih:FD4EC4C61B150750220F89F7B14C7114315C6E30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +468,8 @@ magnet:?xt=urn:btih:FD4EC4C61B150750220F89F7B14C7114315C6E30
 ```bash
 magnet:?xt=urn:btih:20F32667E27E23A41ACC8912379805D8BCE2EA2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +503,8 @@ VA - Easy Listening (2012) [MP3|320 кб/с]<Downtempo, Lounge>
 ```bash
 magnet:?xt=urn:btih:5D93689B17465657318F8E8508BBC6497CA81AB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +541,8 @@ Eric Sneo - Polarity (2012) [MP3|320 кб/с]<Techno>
 magnet:?xt=urn:btih:5F94CBFFDC9CA65966127B4D5026EEB1D186FE80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +566,8 @@ magnet:?xt=urn:btih:5F94CBFFDC9CA65966127B4D5026EEB1D186FE80
 ```bash
 magnet:?xt=urn:btih:747BC471BCCFFD6C20717B1F0DFB031E50767ECF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +602,8 @@ VA - Paul Oakenfold DJ Box - April (2012) (2012) [MP3|320 кб/с]<Trance, Progr
 magnet:?xt=urn:btih:15190C295DE5FE427EDCF4FD2CB9FCA5C4BD8B47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +637,8 @@ VA - Trance Eve Volume 25 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tranc
 magnet:?xt=urn:btih:F8807A4D60334DCA3804113C19084B4B482123BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +670,8 @@ Smoke DZA - Cuz I Felt Like It Ep (2012) [MP3|320 кб/с]<Rap>
 magnet:?xt=urn:btih:EC02FF549B24F19148DFC39E8281D6AF94ED98EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +699,8 @@ magnet:?xt=urn:btih:EC02FF549B24F19148DFC39E8281D6AF94ED98EC
 ```bash
 magnet:?xt=urn:btih:0F50194C3120FB95130FE788A8CE05288810507B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -689,6 +735,8 @@ Twin Vi - Крестовый Поход (2012) [MP3|320 кб/с]<Rap>
 magnet:?xt=urn:btih:FA5E8256671E8378B1FEBFC4EEE4B8787653E9F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -713,6 +761,8 @@ magnet:?xt=urn:btih:FA5E8256671E8378B1FEBFC4EEE4B8787653E9F6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -736,6 +786,8 @@ magnet:?xt=urn:btih:FA5E8256671E8378B1FEBFC4EEE4B8787653E9F6
 ```bash
 magnet:?xt=urn:btih:66BF9A4B2F94B58B9EE2B5E618D339F36CDAB1B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

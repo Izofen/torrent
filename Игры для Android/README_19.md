@@ -19,6 +19,8 @@ Need for Speed: Hot Pursuit на Android - радуйтесь новым гон�
 magnet:?xt=urn:btih:BAD8DEE55BD1F0FA7F333B9CD50BEFD14B5ADCFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Room – квестовая головоломка, в которой вам
 ```bash
 magnet:?xt=urn:btih:6D790145CC99EE752142662B7BCA287058DAA8DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Geometry Dash – веселый платформер на Андроид, в к
 magnet:?xt=urn:btih:AE3B33ED67E0E2B6565C46AC3E6E3C10B20EDE43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Human: Fall Flat 2019 – в этой игре вы будете управля�
 ```bash
 magnet:?xt=urn:btih:439CF6EADDE777140C570CD4B4D15261A4165AAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Terraria (Террария) – это знаменитая игра из жан
 magnet:?xt=urn:btih:E1D012998CA421A89E442614EDB4B21079763915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Shadow Fight 2 Special Edition – продолжение одного из са
 ```bash
 magnet:?xt=urn:btih:ABCB35818B2BAC6DB36AA447A9932D3D05031770
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:ABCB35818B2BAC6DB36AA447A9932D3D05031770
 magnet:?xt=urn:btih:F3C148F5953669B8DE599B61D7A1575FCC3C018D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Alien Shooter: Последняя надежда - на мир обрушила�
 ```bash
 magnet:?xt=urn:btih:DD32A86E114E6DCC0B31F26A8CD44158FB6FF0D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Get aCC_e55 – увлекательная головоломка на андр�
 magnet:?xt=urn:btih:8A58E8E851947E81D1CAAD0FC111A2EB5BEF39ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Shadow Fight 2 – файтинг от компании Nekki - Action and Fight
 ```bash
 magnet:?xt=urn:btih:8A2C2141C67871E1999CE71F85AEC448E76A7224
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Titan Quest: Legendary Edition - самое полное издание Titan Qu
 magnet:?xt=urn:btih:1695D8BB4DD84129648EE89917A727AE3B623E4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Modern Combat 4: Zero Hour - новая сюжетная линия популя
 ```bash
 magnet:?xt=urn:btih:25227F10940619A9E96CAA3D1986AA9557B21B44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ odern Combat 3: Fallen Nation - один из лучших и реалистич
 magnet:?xt=urn:btih:582B768F0163A059F5F622880ACF95F9F13E7B61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Machinarium - интересный квест на андроид, которы�
 ```bash
 magnet:?xt=urn:btih:BA7B0FCC65A7ED309383A21C32A3CE801162B5E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:BA7B0FCC65A7ED309383A21C32A3CE801162B5E9
 magnet:?xt=urn:btih:14FF86D958603267A220F9BBEB3679710712DC07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:14FF86D958603267A220F9BBEB3679710712DC07
 ```bash
 magnet:?xt=urn:btih:AAECFA50D6FA954C65281FCFAB3ED1ED93BED86C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Robot Warfare — увлекательный многопользователь�
 magnet:?xt=urn:btih:B9B9030FB515CD510AF67E1D1064E2D9F5588C44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Shadow of Death: Dark Knight - Stickman Fighting - стильный слэшер
 ```bash
 magnet:?xt=urn:btih:688017625F72B09A42C45F6B2DD082565D40234F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Legend of Solgard v2.17.4 [Ru/En]
 magnet:?xt=urn:btih:FD8EBECA4D95FEF67DEFC5F041A7E693E8F3E082
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Into The Badlands: Champions — этот мир построен на кров�
 ```bash
 magnet:?xt=urn:btih:077B4D0C1BF59425CB5160CD1BC137679186CA44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ FIRST STRIKE – Первый удар - это захватывающий ст�
 magnet:?xt=urn:btih:13C4673E33B577E5F44F4AAE091C3725E76BFCB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Scythe: Digital Edition -  мобильная версия успешной на
 ```bash
 magnet:?xt=urn:btih:7800FC5CD32CF9DD12755651306B3877ADA136F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Starman – занимательная головоломка на андрои�
 magnet:?xt=urn:btih:F37628DC3110BB056870D28BC2FAF96617FC20EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ STAR WARS: KOTOR II - продолжение культовой ролевой �
 ```bash
 magnet:?xt=urn:btih:C0F0CAE735A7B0101A8AE1296F576EAD6C8352DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Cell to Singularity - Evolution Never Ends - игра события котор�
 magnet:?xt=urn:btih:2944C2B925A57EEDAB94DBAD4B20E9C7072000A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Slay The Spire - игра с элементами традиционной ко�
 ```bash
 magnet:?xt=urn:btih:25827B593407AE75F4036A1D6E3F6237CAB55941
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

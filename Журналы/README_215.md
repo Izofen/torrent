@@ -1,27 +1,3 @@
-###  Публикация: 1580514   (330721) от 01.10.2022
-
-Журнал | Selber Machen №11 (2022) [PDF][De]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_330721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Selber Machen — немецкий журнал для домашних мастеров. В каждом выпуске: советы по ведению домашнего хозяйства, создание изделий из дерева для дома и сада своими руками, обустройство приусадебного участка, навыки обращения с рабочим инструментом, мелкий ремонт, идеи по оформлению интерьераЖанр: ДомоводствоЯзык: НемецкийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39A696F998074641A942213FE81C61BAE2A6233E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580416   (330727) от 01.10.2022
 
 Журнал | Popular Woodworking №268 (2022) [PDF][En]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:39A696F998074641A942213FE81C61BAE2A6233E
 ```bash
 magnet:?xt=urn:btih:ACC9955F4B012AE5CA36755F014775B5BE675907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:ACC9955F4B012AE5CA36755F014775B5BE675907
 magnet:?xt=urn:btih:B3EC5AE3F29A4F3B739211135E88308650792CB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:B3EC5AE3F29A4F3B739211135E88308650792CB8
 ```bash
 magnet:?xt=urn:btih:EEDB583308BBB6CF1746351844ED6AE20F54CEC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:EEDB583308BBB6CF1746351844ED6AE20F54CEC8
 magnet:?xt=urn:btih:17DC37BA7471D824AF3DFFAB50C985DB74091ADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:17DC37BA7471D824AF3DFFAB50C985DB74091ADD
 ```bash
 magnet:?xt=urn:btih:A836923C0AAB4E9811B156D500000DE921673578
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:A836923C0AAB4E9811B156D500000DE921673578
 magnet:?xt=urn:btih:C29D989D9D15349A4BD4D69393F591EA39483FEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Men’s Health — самый узнаваемый мужской журналь
 ```bash
 magnet:?xt=urn:btih:2351CB9CB13FE1F72782B551122134A808BB478B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:2351CB9CB13FE1F72782B551122134A808BB478B
 magnet:?xt=urn:btih:78FFB447BB1A922CFA89DB846698599C582BFB60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:78FFB447BB1A922CFA89DB846698599C582BFB60
 ```bash
 magnet:?xt=urn:btih:4832C1AC21071AA047EC0C85B281783D83402F1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:4832C1AC21071AA047EC0C85B281783D83402F1A
 magnet:?xt=urn:btih:1752BA4B567E39B359834CDE482A4655D3FE1D5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:1752BA4B567E39B359834CDE482A4655D3FE1D5A
 ```bash
 magnet:?xt=urn:btih:36F086E5CB661BFF5D028152822C36D634B2C825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:36F086E5CB661BFF5D028152822C36D634B2C825
 magnet:?xt=urn:btih:23CF9091B53F3F4582742534E39A8C2F13C6F6B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:23CF9091B53F3F4582742534E39A8C2F13C6F6B7
 ```bash
 magnet:?xt=urn:btih:1A3C840CA778073BECE4A101258A4840BF66C3B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:1A3C840CA778073BECE4A101258A4840BF66C3B0
 magnet:?xt=urn:btih:A9FE60A3B43F637168D46FE6A3AB21FEBF1655E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ magnet:?xt=urn:btih:A9FE60A3B43F637168D46FE6A3AB21FEBF1655E3
 ```bash
 magnet:?xt=urn:btih:2B662F4A1DC1059C6B8672FBAED5C7A06C773F62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ UPgrade – самый популярный еженедельный компь�
 magnet:?xt=urn:btih:18B4E2BD792160863C6FBF419C00085A110CAE9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ magnet:?xt=urn:btih:18B4E2BD792160863C6FBF419C00085A110CAE9E
 ```bash
 magnet:?xt=urn:btih:133C1D98FBAA547D1BA1AB95B3DA65EF5969AC79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:133C1D98FBAA547D1BA1AB95B3DA65EF5969AC79
 magnet:?xt=urn:btih:A2F2F3D33C9C2EAF62A9DAF256D1E7AAA172D108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ magnet:?xt=urn:btih:A2F2F3D33C9C2EAF62A9DAF256D1E7AAA172D108
 ```bash
 magnet:?xt=urn:btih:65D782E75881A8796C8650FE0CA1C32E63F8F2C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ magnet:?xt=urn:btih:65D782E75881A8796C8650FE0CA1C32E63F8F2C0
 magnet:?xt=urn:btih:5D555185B88D2D5770CB6AEEE6B4036664CC2359
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ magnet:?xt=urn:btih:5D555185B88D2D5770CB6AEEE6B4036664CC2359
 ```bash
 magnet:?xt=urn:btih:A48651B9EB07D56F402941D18746CBB385AB5B5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ magnet:?xt=urn:btih:A48651B9EB07D56F402941D18746CBB385AB5B5F
 magnet:?xt=urn:btih:F9E8BC88F1C4A95BC29D97016582D342F2BE0301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ magnet:?xt=urn:btih:F9E8BC88F1C4A95BC29D97016582D342F2BE0301
 ```bash
 magnet:?xt=urn:btih:38994D12F2A923CAF7215C5DE9C4AE26955A3027
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ magnet:?xt=urn:btih:38994D12F2A923CAF7215C5DE9C4AE26955A3027
 magnet:?xt=urn:btih:0AB25C34AAE69F8F53643F08B4A7A561612D2ADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ magnet:?xt=urn:btih:0AB25C34AAE69F8F53643F08B4A7A561612D2ADD
 ```bash
 magnet:?xt=urn:btih:53A74E51FD432EE5BECB314ABAFC69A97E5A0E7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955911   (332575) от 12.11.2015
+
+Журнал | Дом в саду №12 (Декабрь 2015) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_332575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для неравнодушных к своим дачным участкам. Множество практических советов и рекомендаций помогут вам в выращивании и получении  высокого урожая а также комфортного пребывания на своих дачных участках.Жанр: Дача, сад, огородФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8977510C9263EE1D2D20ABDC89FDB48CC49B1502
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ In Verbis Virtus – фантастический приключенческий
 magnet:?xt=urn:btih:8918DEACC2E3A6BC0B1027274C4B9A6F4DD3E729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Painted Memories — это приключенческая игра, в кото
 ```bash
 magnet:?xt=urn:btih:D4E4FE5983F28EE7E88C0C15C129869CF0F7C584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Call of Juarez Дилогия [Ru] (RePack) 2006-2009 | R.G. ReCoding
 magnet:?xt=urn:btih:7DE1A221E9725F29EE4A18E8752CE280AA064177
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Sprill: The Mystery of The Bermuda Triangle / Сприлл: Тайна Берм�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Shadow Warrior - ремейк шутера от первого лица от с�
 ```bash
 magnet:?xt=urn:btih:F203DB530068C89C5FCD1F585F31420E4697717E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Modern Tales: Age of Invention / Сказки Нашего Времени: Эр�
 magnet:?xt=urn:btih:E6C158FAC137EED2C937FE51157EDF594B484B21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Alpha Polaris: A Horror Adventure Game (2015) [Ru/Multi] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:9C02DDE521B68D18CBDFA27987FABBD196F4AA11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Legends of Dawn Reborn приглашает игроков в жестокий �
 magnet:?xt=urn:btih:66BB9113152084130EA7EC2EF7D0908EEA04D8C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ The Dwarf Run - старомодный RPG с элементами point-n-click
 ```bash
 magnet:?xt=urn:btih:AB80BBB449C129FFD37A991D8B6E93F324587C6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Magnetic: Cage Closed: головоломка с видом от первого 
 magnet:?xt=urn:btih:8C14C8703F0A8609CA87CD5F13F6F9FEE9C9BD01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Fatal Evidence: Cursed Island / Роковое доказательство. П�
 ```bash
 magnet:?xt=urn:btih:C05254E281140013979FCF43CC39FCE53004D808
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Lucid Dream — история о маленькой Люси и её путеш
 magnet:?xt=urn:btih:BFB1E59D4AD12CAFED1F2AAF5F96D450F0895BC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Surface 6: Game of Gods / За гранью: Игра богов (2014) [Ru] Uno
 ```bash
 magnet:?xt=urn:btih:1F2F569AEEDD5BFBB77D34C53E237F46AD010E5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Splinter Cell Conviction заставит адреналин бурлить в �
 magnet:?xt=urn:btih:6251749C40DB3EE67FCFAA6C7CE984B673845DC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Glacier / Ледниковый патруль (L) [Ru] 2009
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ Bayonetta - это настоящий боевик-мясорубка в сти�
 magnet:?xt=urn:btih:6323A0E2772F5085E22C2A73F7DC331291850ADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ South Park: Stick of Truth (2014) [Ru] (1.0.138083) Repack xatab
 ```bash
 magnet:?xt=urn:btih:E3B6187BAF3A054C0EE059EB26E4EA73C3D114E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Professional Farmer: American Dream (2017) [Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:EDC0D9A77B5BAAD6DED7D5E8F76D51AD7A7D8EC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ The Wild Eight (2017) [Ru/Multi] (0.7.28) Repack Other s
 ```bash
 magnet:?xt=urn:btih:57ADFCCB9C637669CE5DDD1D4D195C94490E555A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ The First Tree — красивый квест от третьего лица, �
 magnet:?xt=urn:btih:194405E376806DAF5333854C4D0B5FDCA19FD057
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Eador: Masters of the Broken World / Эадор. Владыки миров (2013
 ```bash
 magnet:?xt=urn:btih:1D0C8F9BF1AF3B04405496214BF2ABF1055F2B61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Palmyra Orphanage — это паранормальный хоррор от пе
 magnet:?xt=urn:btih:DC1505B6048AEE6FA13041259DB066176193D73D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Coast Guard (2015) [Ru/Multi] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:E577EDC2799BF4E2A8F9E98850DB92CA9AD10E75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ The Keeper of Antiques: The Revived Book / Антиквар: Книга кошм
 magnet:?xt=urn:btih:898ED1A04FE446FDC9CEC8CAD4A5F94F9CC9FFFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Chimeras 8: Heavenfall Secrets / Химеры 8: Секреты Хэвенфол
 magnet:?xt=urn:btih:72621874EC95507E18E28C6AA2CB4F80ED95187D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Divinity: Original Sin 2 – является продолжением леге�
 ```bash
 magnet:?xt=urn:btih:4C722FAC11988C62C974BB1CDC58593F9918621F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

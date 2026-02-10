@@ -21,6 +21,8 @@ GeekBrains | HTML/CSS Основы создания сайтов (2015) PCRec [H
 magnet:?xt=urn:btih:C88985AB3C1BD78F527362B6761CBA6D2F49F37E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ GeekUniversity | Вторая четверть. Разработка Backend-а 
 ```bash
 magnet:?xt=urn:btih:DA6642C6D3F4FA31415120AF97123ED62C90D01E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Marlin | Самый понятный курс по php для начинающи
 magnet:?xt=urn:btih:1DB77C83244EE49AA9C82F2F44138C60CA81CC7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Marlin | Объектно-ориентированное программиро�
 magnet:?xt=urn:btih:9D98231869F9E511E49D73BBADDE8145DDE71415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ eXeLaB.ru | Курс видеоуроков КРЭКЕРСТВО + ПРОГРА�
 ```bash
 magnet:?xt=urn:btih:CEC4E1EA51331C718923C165201CEE7A5DF9FD3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:CEC4E1EA51331C718923C165201CEE7A5DF9FD3B
 magnet:?xt=urn:btih:645D8D39E3137A0C58A6FF8F8F9697B7C2DD551D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Oleg Lav | Как создать флешку восстановления Windo
 magnet:?xt=urn:btih:2879912795EC3240B84780039801319640E96FF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Convert Monster | Google Adwords 2.0 (2015) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:2F6FBAA0A32DB9FC776CD14D5D87720754780D4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:2F6FBAA0A32DB9FC776CD14D5D87720754780D4F
 magnet:?xt=urn:btih:ACA919AD7EA5FE202BB2779A9B7DCF87DFEFE272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ ProfIT | Исключения - "серебряная пуля" для прог�
 magnet:?xt=urn:btih:D1751114F8D615DB52BE0E54314B1677E121FF83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:D1751114F8D615DB52BE0E54314B1677E121FF83
 ```bash
 magnet:?xt=urn:btih:3FA5138C227383730F9817012C3A58724F09224D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:3FA5138C227383730F9817012C3A58724F09224D
 magnet:?xt=urn:btih:65D488334B236DC8F4619F40E37795205B6F92D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:65D488334B236DC8F4619F40E37795205B6F92D5
 ```bash
 magnet:?xt=urn:btih:6DB9300D4441EF952F446EA46B2FA4F0FFB93BFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:6DB9300D4441EF952F446EA46B2FA4F0FFB93BFD
 ```bash
 magnet:?xt=urn:btih:9A999A3C9DCB01B9EF5C6DD319284BD955910D22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ Knockout.js - свободный JavaScript каркас (framework) веб-пр
 magnet:?xt=urn:btih:BFB30B6AF1A901E0D4CDACA0DF960E0E8D0A0458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:BFB30B6AF1A901E0D4CDACA0DF960E0E8D0A0458
 magnet:?xt=urn:btih:6F454AC86CD76738678104AE1F1373F1FAA12628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:6F454AC86CD76738678104AE1F1373F1FAA12628
 magnet:?xt=urn:btih:F8EDE79C54DFAFC5517AF5C0B8AF1DC33D3A047F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:F8EDE79C54DFAFC5517AF5C0B8AF1DC33D3A047F
 ```bash
 magnet:?xt=urn:btih:2E15FCCDF9DF1AD2023A101FC119E04B57C76581
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ Yandex.ru |  Второй Курс информационных технолог
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ Yandex.ru |  Второй Курс информационных технолог
 magnet:?xt=urn:btih:AD8C6DDE5665C73BF1AE02B3B4702FD210EFDFC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:AD8C6DDE5665C73BF1AE02B3B4702FD210EFDFC6
 ```bash
 magnet:?xt=urn:btih:A90BEF19C0CFAAB0F8F2A76BD44FEAC3CE10CED4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:A90BEF19C0CFAAB0F8F2A76BD44FEAC3CE10CED4
 magnet:?xt=urn:btih:C41BE700EA7A8C12559AB114B47AE79727F3AA2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ Udemy, Aray Kaken | Основы DevOps (2021) HDRip
 magnet:?xt=urn:btih:79DD23007ED292ED951FD9FAEE7A4BD76F486583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ Yandex.ru |  Курсы информационных технологий [2011]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ Yandex.ru |  Курсы информационных технологий [2011]
 magnet:?xt=urn:btih:588F6B69973D71D4D6B82D2F7F27A05D76DCA739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ magnet:?xt=urn:btih:588F6B69973D71D4D6B82D2F7F27A05D76DCA739
 ```bash
 magnet:?xt=urn:btih:198C8AD54765DE2E43DD7B4E02D134985D952768
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 911059   (620104) от 21.06.2015
+
+В. В. Хохлачев | Все о чае (1987) [DJVU]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_620104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга - об одной из древнейших сельскохозяйственных культур, возделываемых человеком. Читатель узнает, как было открыто чайное растение, и прочтет о его удивительных свойствах, о значении чая в жизни разных народов, ознакомится с достижениями отечественной и зарубежной науки и практики чайного дела, с современным состоянием чаеводства в нашей стране и во всем (   Читать дальше...   )Жанр: Кулинария, Напитки, ЧайФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:114B322B7155A99FCB96A01AE4F3DA40E0F2EF4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 910702   (620110) от 21.06.2015
 
 В. Ю. Лебедев и др. | Религиоведение: учебник для бакалавров (2013) [DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:81E6F4823F549E2A8BEC3413F4441C3FE3D5034B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:81E6F4823F549E2A8BEC3413F4441C3FE3D5034B
 magnet:?xt=urn:btih:A7E796EC3937C5A2DD48DB20F764C292BDE926D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:A7E796EC3937C5A2DD48DB20F764C292BDE926D9
 ```bash
 magnet:?xt=urn:btih:FA892806CE13028AA053CD07BA945DD61B9D79D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:FA892806CE13028AA053CD07BA945DD61B9D79D4
 magnet:?xt=urn:btih:6343109AAB867DCE4F776C68DCFCD97FABE71A27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:6343109AAB867DCE4F776C68DCFCD97FABE71A27
 ```bash
 magnet:?xt=urn:btih:871A49E1B34C1449A8C49D5F9FFF01352994F954
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:871A49E1B34C1449A8C49D5F9FFF01352994F954
 magnet:?xt=urn:btih:7D8A9D7B7D4526A662843AE57A2078556BE8F6CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:7D8A9D7B7D4526A662843AE57A2078556BE8F6CF
 ```bash
 magnet:?xt=urn:btih:7B340F2E095B6F05D53E03E9EEE4CE5EEE20DC83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:7B340F2E095B6F05D53E03E9EEE4CE5EEE20DC83
 magnet:?xt=urn:btih:923889DB63D5665041D6F491E6AF7885AAF6E3AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:923889DB63D5665041D6F491E6AF7885AAF6E3AB
 magnet:?xt=urn:btih:227C404819C99976216AE61857680428C86A4543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:227C404819C99976216AE61857680428C86A4543
 ```bash
 magnet:?xt=urn:btih:E6228DFD7A833EA091730A69104EC18068F80E47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:E6228DFD7A833EA091730A69104EC18068F80E47
 magnet:?xt=urn:btih:EA05520F8FD9A01D7A520374C473F7578A32DC0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:EA05520F8FD9A01D7A520374C473F7578A32DC0C
 magnet:?xt=urn:btih:6E476AA0B676943EF571F5D1DDBAE9CF4137B271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:6E476AA0B676943EF571F5D1DDBAE9CF4137B271
 magnet:?xt=urn:btih:79F4D2BF8D4443A9D350EFD0CC2806CC41DA27F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:79F4D2BF8D4443A9D350EFD0CC2806CC41DA27F6
 ```bash
 magnet:?xt=urn:btih:7B9A0A2247335ADA0896B0A3E5BC801F711D3E49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:7B9A0A2247335ADA0896B0A3E5BC801F711D3E49
 magnet:?xt=urn:btih:D724104D2EF7CBA0BE56993EEF6984C45BDB025E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:D724104D2EF7CBA0BE56993EEF6984C45BDB025E
 ```bash
 magnet:?xt=urn:btih:F15EEB7DA8CC33815DAA31CF254C0E7E50EACAFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:F15EEB7DA8CC33815DAA31CF254C0E7E50EACAFF
 magnet:?xt=urn:btih:96746604AA42B07066420F6689CF0B81A1B6ACB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:96746604AA42B07066420F6689CF0B81A1B6ACB1
 ```bash
 magnet:?xt=urn:btih:DDA05DA6A089FFD8632E1F3373AA54FB81B63602
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:DDA05DA6A089FFD8632E1F3373AA54FB81B63602
 magnet:?xt=urn:btih:8435CA3D2AD460376215E86A6748B7608FA47223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:8435CA3D2AD460376215E86A6748B7608FA47223
 magnet:?xt=urn:btih:EE401FF0306C7B3AD6E3BCFB4756B3FD1AEDD0B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:EE401FF0306C7B3AD6E3BCFB4756B3FD1AEDD0B1
 ```bash
 magnet:?xt=urn:btih:423788C7AB49E752570A7A7BEA8757E7E72E6CFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:423788C7AB49E752570A7A7BEA8757E7E72E6CFF
 magnet:?xt=urn:btih:A88ACA0E7CDD6B87D83EF7C515633DAA211C2CF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:A88ACA0E7CDD6B87D83EF7C515633DAA211C2CF7
 ```bash
 magnet:?xt=urn:btih:DE8DCD61083D876169B9DF1C8CD8A6E9B5760CCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:DE8DCD61083D876169B9DF1C8CD8A6E9B5760CCD
 magnet:?xt=urn:btih:6DEC1AE8CB95D63166709FC98FDA808DB4556F24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:6DEC1AE8CB95D63166709FC98FDA808DB4556F24
 magnet:?xt=urn:btih:D09C933D58AB7C3B1E8746F1935D40863BBDCA73
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 803524   (620939) от 09.07.2014
-
-Гуру Вар Авера | Астральное карате, или Биоэнергетическая основа греко-славяно-варяжского панкратиона (2003) [DJVU]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620939.jpg" />
-</div>
-
-
-###  Подробнее
-
-При всем обилии книг по «восточным единоборствам», и «Биоэнергетическом развитии личности», сразу скажу вам, что эта книга не имеет себе равных по данной тематике. Очень много новой, совершенно уникальной информации о санс-энергиях, формирующих основу рукопашного боя. Ну, а главное, что здесь даются не компилятивные выжимки из «древней мудрости», а излагаются личностные знания европейца ХХ века. Это не сухой учебник по нанесению и отражению ударов - это Учебник Жизни. Дарю его своим читателям и будущим ученикам.Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5F3BECD8E183DD599DB34EE2CC97A7C685A11C0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

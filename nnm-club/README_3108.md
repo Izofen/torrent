@@ -28,6 +28,8 @@ Various Artists - Tranceffect 9 (2011) [MP3|320 кб/с]<Trance, Vocal Trance>
 magnet:?xt=urn:btih:D91C67319043AAC00491FC859A08AB2FD952FC00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ The Book of Desires (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:0F779E45CB730C2D29B7B6BD8BB306D12ED900B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ VA - Clubничка Хит FM 50\50 (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:595A3A717A6893B18509D48832B4F6FC33130B80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ magnet:?xt=urn:btih:595A3A717A6893B18509D48832B4F6FC33130B80
 ```bash
 magnet:?xt=urn:btih:C676CE29E82D06763425908616A23979F0ECB776
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +150,8 @@ Upon A Burning Body - Red. White. Green. (2012) [MP3|~245 кб/с (V0)]<Metalcor
 magnet:?xt=urn:btih:A3035EDC57753ABA97B00B7DBBE743786839F60D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +175,8 @@ magnet:?xt=urn:btih:A3035EDC57753ABA97B00B7DBBE743786839F60D
 ```bash
 magnet:?xt=urn:btih:8DC4C48E2CEDA6A62E7C2DB3D6F99DC7EDD846AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +208,8 @@ Gary Boyle - Electric Glide (1993) [FLAC|Lossless]<Jazz-Rock>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +244,8 @@ Murder Bay - Never Was An Angel (2012) [MP3|320 кб/с]<Hard Rock>
 magnet:?xt=urn:btih:4F304FDCE09864CCFC58FDD70C6BF695930F2224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +279,8 @@ St. Prostitute - Here Come The Prostitutes (2012) [MP3|320 кб/с]<Hard Rock, S
 magnet:?xt=urn:btih:3D1E15482C4F7698833F33462B8DFFF8F51D1CF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +307,8 @@ iO and Goshva - Lazy Time EP (2012) [MP3|320 кб/с]<Tech House>
 ```bash
 magnet:?xt=urn:btih:4ECCAC36300CA620D80923700835CDC4F8F540AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +337,8 @@ magnet:?xt=urn:btih:4ECCAC36300CA620D80923700835CDC4F8F540AF
 ```bash
 magnet:?xt=urn:btih:D460370FFDE8D0D6E5600DFAB4F7F8A0C7F2296B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +373,8 @@ Andreas Vollenweider - Air (2009) [MP3|320 кб/с]<Electronic, New Age, Ambient
 magnet:?xt=urn:btih:AC0E4163BBC2D493F6E7EDA21DDA4A574542D0E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +398,8 @@ magnet:?xt=urn:btih:AC0E4163BBC2D493F6E7EDA21DDA4A574542D0E3
 ```bash
 magnet:?xt=urn:btih:37E1A98867791D6D2BAF27893C541E8A2DF2643F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +426,8 @@ magnet:?xt=urn:btih:37E1A98867791D6D2BAF27893C541E8A2DF2643F
 magnet:?xt=urn:btih:C4893FCA754D17071C6FC678A3FD75E8EE142D7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +452,8 @@ magnet:?xt=urn:btih:C4893FCA754D17071C6FC678A3FD75E8EE142D7F
 magnet:?xt=urn:btih:CC138AFC2D673ABF760885F27A08CF846964D126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +477,8 @@ magnet:?xt=urn:btih:CC138AFC2D673ABF760885F27A08CF846964D126
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +506,8 @@ Wise Disk Cleaner - программа для быстрого и легкого
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +531,8 @@ Wise Disk Cleaner - программа для быстрого и легкого
 ```bash
 magnet:?xt=urn:btih:106FB729C7F81B15D07447B1EB3AD2B7B548FCC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +561,8 @@ magnet:?xt=urn:btih:106FB729C7F81B15D07447B1EB3AD2B7B548FCC1
 ```bash
 magnet:?xt=urn:btih:85701B4C8AA224A95AB421364890449885A1669B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +597,8 @@ Simple Man - Galactic Prophecy (2012) [MP3|320 кб/с]<Psychedelic / Progressiv
 magnet:?xt=urn:btih:1070F48FAE4F547C08BE9201B2765600AEF5AD18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +622,8 @@ magnet:?xt=urn:btih:1070F48FAE4F547C08BE9201B2765600AEF5AD18
 ```bash
 magnet:?xt=urn:btih:6429FA4D2EF71FB4900762D525D1FAACD259B001
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +658,8 @@ VA - Klubnye novinki Vol.63 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
 magnet:?xt=urn:btih:719F36395203B65D967D9ECBE148AA41454B8B69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +687,8 @@ magnet:?xt=urn:btih:719F36395203B65D967D9ECBE148AA41454B8B69
 ```bash
 magnet:?xt=urn:btih:FE6F611020512ED4510D8B854DB036108428ECAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -677,6 +723,8 @@ VA - Out Of Body (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
 magnet:?xt=urn:btih:61545CA525958DE99FCAEB240036C82633874BEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -701,6 +749,8 @@ magnet:?xt=urn:btih:61545CA525958DE99FCAEB240036C82633874BEB
 magnet:?xt=urn:btih:DACF661DBD1713A622088FAEC9F4641585FFE839
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -724,6 +774,8 @@ magnet:?xt=urn:btih:DACF661DBD1713A622088FAEC9F4641585FFE839
 ```bash
 magnet:?xt=urn:btih:4B5805A0AD4F9F54BC7998DD6D712866D6845E35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

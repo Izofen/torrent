@@ -19,6 +19,8 @@ Monsters / Монстрики (P) [Ru] 2012
 magnet:?xt=urn:btih:0A9905DEC38B5E236BC82231D5F4EAA12886D1B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:0A9905DEC38B5E236BC82231D5F4EAA12886D1B5
 magnet:?xt=urn:btih:753DB8ABF2A398C6B1308F29BF8DC9E8052825E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:753DB8ABF2A398C6B1308F29BF8DC9E8052825E2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:753DB8ABF2A398C6B1308F29BF8DC9E8052825E2
 ```bash
 magnet:?xt=urn:btih:9D52B5C05DCFA2AFB667836A5014741E4D30B4DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Protect My Disk 6.3.0 [english]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Protect My Disk 6.3.0 [english]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Jascha Heifetz - The Heifetz Collection (1994) Vol.16 Beethoven Violin Sonatas /
 magnet:?xt=urn:btih:AF5C202A00BE56861B651A3ADE38DF6ED3AD6F19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:AF5C202A00BE56861B651A3ADE38DF6ED3AD6F19
 magnet:?xt=urn:btih:EE756703828A80CE9551AED36CB716B50693E1B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:EE756703828A80CE9551AED36CB716B50693E1B5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +274,8 @@ Chakra (Arch + KDE) 2012.04 [i686 + x86-64] (2xDVD+2xCD)
 magnet:?xt=urn:btih:114F3D598364D65AC067A05C7622B425D25692C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ magnet:?xt=urn:btih:114F3D598364D65AC067A05C7622B425D25692C0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:114F3D598364D65AC067A05C7622B425D25692C0
 ```bash
 magnet:?xt=urn:btih:E43F61A43385681542E215C229D285535613129C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:E43F61A43385681542E215C229D285535613129C
 magnet:?xt=urn:btih:CF15820D4CB7BA8D40FFC2D306A8B1318EC27B5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:CF15820D4CB7BA8D40FFC2D306A8B1318EC27B5E
 magnet:?xt=urn:btih:38D2370A5DEABBE7677D33C13EAA0C18C708D099
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:38D2370A5DEABBE7677D33C13EAA0C18C708D099
 ```bash
 magnet:?xt=urn:btih:966A31D0FBBD39306DDFB059775BAEB7BCF03E1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:966A31D0FBBD39306DDFB059775BAEB7BCF03E1A
 magnet:?xt=urn:btih:9E5C45C4E192B235CEC34A3B123BB78AB82B2AF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ Uriah Heep - The Best of Uriah Heep. Wizards (2CD) (2011) [MP3|320 кб/с]<Rock
 magnet:?xt=urn:btih:306D02532CB02F5A6F796A72E3447A638635A4C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:306D02532CB02F5A6F796A72E3447A638635A4C1
 ```bash
 magnet:?xt=urn:btih:C48A9A91C34FF748127E6571A187C167D4ED7FEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:C48A9A91C34FF748127E6571A187C167D4ED7FEF
 magnet:?xt=urn:btih:D923E61F74FD2656532407D1C3B63DFBE527F8BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:D923E61F74FD2656532407D1C3B63DFBE527F8BF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ VA - Инструментальная музыка (2012) vol. № 07 [MP3|320 �
 magnet:?xt=urn:btih:0A5827042703A0026899D319CF80E73CAD761822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:0A5827042703A0026899D319CF80E73CAD761822
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:0A5827042703A0026899D319CF80E73CAD761822
 ```bash
 magnet:?xt=urn:btih:69A0E930FF6326DAEBF5CE24141D67129FBE798B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ VA - Детские Песни (2006) [MP3|224 кб/с]<Детские песе�
 magnet:?xt=urn:btih:DCDF015BB5C64CA400F965DF0C4EAD9242201A07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ magnet:?xt=urn:btih:DCDF015BB5C64CA400F965DF0C4EAD9242201A07
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +709,8 @@ Gigi D'Agostino - L'Amour Toujours (1999) 2CD [FLAC|Lossless]<House, Euro House,
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

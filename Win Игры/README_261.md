@@ -19,6 +19,8 @@ Dark City 5: Budapest / Мрачный город 5: Будапешт (2020) [Ru
 magnet:?xt=urn:btih:56BFA10F8EDF95C2C37862800710D80816DB0D1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Pride and Prejudice. Blood Ties / Гордость и предубеждение
 ```bash
 magnet:?xt=urn:btih:D3C030D3F8D394C291303A8030BCB840770DB206
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Mystery Case Files 22: Crossfade (2020) [En] (1.0) Unofficial [Collector's Editi
 magnet:?xt=urn:btih:FA481C3B79FFDFB70675658EE2D46513701CA748
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.1.0/dlc) Repack Let'sРlay [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:4F16DF6C46614E8A5C86B4D9A0ADA93E93313419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Thief's Shelter - это 3D Point and Click Psychological Adventure, где ми
 magnet:?xt=urn:btih:BEBF70C10E2B2110D8CB3F98E75B35D239CC0A38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Lessaria - это наследник Majesty. Мы возвращаем на с�
 ```bash
 magnet:?xt=urn:btih:9C437E5743F385ECD7D9717E5C89DE113F75ED4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ CrossCode (2015) [Multi] (1.4.2-3/dlc) License GOG
 magnet:?xt=urn:btih:F972A52EF33C8B1B02CC0EC5A319A99889FDA04E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Avatar: The Last Airbender - Quest for Balance (2023) [Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:A979952660BCC711C0095A5274C23CF981F8B823
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Airship: Kingdoms Adrift - это симулятор торговли и бое�
 magnet:?xt=urn:btih:E52ED9D5BC6937C73DAD07B74ACF5877008789CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ InfraSpace дает возможность юзерам стать мэрами 
 ```bash
 magnet:?xt=urn:btih:1B1051A77FB9D8B50B162614E03E1A5D2F65AC04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Erannorth Renaissance - это RPG, в которой каждое решени�
 magnet:?xt=urn:btih:5BA9B73ADB757F5B306037EF3CD6306129CEF3B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Knight Cats 2: Waves on the Water (2023) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:94E248E1CB8FD3422BBFAD07AC1AA3248F354D99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Hello Engineer: Scrap Machines Constructor (2023) [Ru/Multi] (1.3.13u802) Scene 
 magnet:?xt=urn:btih:0C69ADEE09C1E3B5288201FE581B36F9366872C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Ship Graveyard Simulator 2 (2023) [Ru/Multi] (4607) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:D9EE4531BB9623BA104BE41919270FB3A0D6AC80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Knight Cats: Leaves on the Road / Коты-рыцари: Листья на до�
 magnet:?xt=urn:btih:D4A570AC83117C33A530E2DD99D68A2427984F19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Myth or Reality 2: Mystery of the Lake / Мифы или реальность 2:
 ```bash
 magnet:?xt=urn:btih:819F2681D9993D30CDA4C25171FFC8948CDAD4F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Summum Aeterna - это рогалик-метроидвания с динами�
 magnet:?xt=urn:btih:D870469B650D04C1FAAD7D3F7BE82AA250836D26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Gunbrella - это мрачный приключенческий экшен в �
 ```bash
 magnet:?xt=urn:btih:26EC482CFC77118F6BBB013153C57D01DEFAA750
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Gunbrella - это мрачный приключенческий экшен в �
 magnet:?xt=urn:btih:DE5A3BD54F47F832377F0AEBC6EB68BF17C7FBD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Lost Dreams – это новая глава из серии игр Suicide 
 ```bash
 magnet:?xt=urn:btih:5BB31AFC1CADEFF91C42248DCA83FE33D410C9BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Suicide Guy Sleepin Deeply – популярная приключенческа
 magnet:?xt=urn:btih:7A189DB9B41DE5F8F8BB86E38D8B594A760514DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Suicide Guy Deluxe Edition – это приключенческий экшен 
 ```bash
 magnet:?xt=urn:btih:6BD859C67D5A42A75E01284833E3E348083CEBD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Suicide Guy - игра от первого лица в жанре "action-puzzle
 magnet:?xt=urn:btih:DE3931654EC40755E713E4735A985BA3E0B8E66A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Strike Force 3 (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:6C7FA6AFF0EC945AB0A1E2218E64A59E006A334A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Horizon Chase 2 - классическая динамичная и проста�
 magnet:?xt=urn:btih:DE656409E867CAB6CAEE3C062EBA8FCDFA780579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Alder Forge (2023) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E881CF20C552A31E2C0714BD6DDC02057A0EB07E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

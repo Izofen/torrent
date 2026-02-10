@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E0398BAE2EF588EBAACF680811C6C7D406868443
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ EssentialPIM - высокофункциональный менеджер пер�
 ```bash
 magnet:?xt=urn:btih:9F4AD2AF0E2F94B68EFC19A85EA76A3014509BC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:8AEDA91A4CD25CC955C810143188BBCF9CA9CA59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ MediaHuman YouTube Downloader 3.9.9.77 (2111) RePack (& Portable) by Dodakaedr [
 ```bash
 magnet:?xt=urn:btih:8E15F7294626DF6511C87959646B981C878CFAB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ AVS Image Converter - лёгкая в использовании програм�
 magnet:?xt=urn:btih:E5C95BE5CADA84C94D200D7BC3586E5B797AE2FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ DesktopOK - небольшая бесплатная и портативная (�
 ```bash
 magnet:?xt=urn:btih:CCB32BE3A14D5F5F7932D8C1D64B3E0C9877F7F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 magnet:?xt=urn:btih:E85EA47AD7DE2D4F54EADF5A19C7F6E0A9A8ECC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:8EF4AF4A1F5933E776FEC2850D191552E2F13DF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Complete Internet Repair 9.1.3.6335 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:A342B32263BE18F78302EEF9CB3F37034FEC0DBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ PC Cleaner - поможет исправить ошибки Windows на ваш�
 ```bash
 magnet:?xt=urn:btih:D304002AFB012F5C8F141E31B98A631539863ABB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Smart Defrag - дефрагментатор, позволяющий довест
 magnet:?xt=urn:btih:7E857F15EF7AB41C87C74E2CB83A51263254D189
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:028FAF21510BD3DBA665CDC08308653398CE3B6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ EarthView — это динамические обои для рабочего �
 magnet:?xt=urn:btih:0E56D491C009001B6D553769CF75FF48AA165763
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Mp3tag предоставляет пользователям мощный и п�
 ```bash
 magnet:?xt=urn:btih:51818B1491306A918E52F812E79DA7503D415754
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:96B0F568F045CCFC37B64EB5B5043B7FDED6432B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ AAF DCH Optimus Sound Realtek Mod, аудио драйвер "всё в одно
 ```bash
 magnet:?xt=urn:btih:CF46674F10BA39E7FCA5B3588D2AA16B1A62C3CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Visual Studio Enterprise 2019 - Интегрированное комплекс�
 magnet:?xt=urn:btih:497432CC81259B4CCE93D7318B81267006F73928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ QownNotes – менеджер заметок, позволяющий четко
 magnet:?xt=urn:btih:CA151C330B81FE17D8DA1B3EF7059B2C6D09BC8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 ```bash
 magnet:?xt=urn:btih:656EE481C0CC416CC92DBF32073754E2A303C282
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ W. P. Alex Remark / Space Blaster - Pyramid / Magic Fly (1996) [OGG Vorbis|450 K
 magnet:?xt=urn:btih:19BDB367DCA37A2DAB6E52A4640508F8AE277EC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ RadioMaximus 2.32 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:6F8F7945EB9C699A544C599D12E361D80DF4D259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:3D5E11F3E8AC1DB79789D1CF39EB4723BCB23587
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:37B51453A3A1FE74A89C91FB31D42533CD15EB90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Microsoft Visual Studio Professional 2019 - полный набор инстру
 ```bash
 magnet:?xt=urn:btih:A06A999E37B15F2F01182E67A88DC9355D2EF67F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 magnet:?xt=urn:btih:91D7A34794428C6A39584B89B7B1CB4043CB5FCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Perfectly Clear WorkBench позволяет всего за пару клико
 ```bash
 magnet:?xt=urn:btih:78912984904934B2D324659ED7536715AF28E296
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

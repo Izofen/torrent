@@ -19,6 +19,8 @@ Splash – проигрыватель мультимедийных файлов,
 magnet:?xt=urn:btih:1FBFEA1EE8547899A7E56AC62903081C8B1AE9C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:1FBFEA1EE8547899A7E56AC62903081C8B1AE9C3
 magnet:?xt=urn:btih:06BB2F0518152B8661F25F38D3BC1C51B0DEA5CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Foobar2000 - аудиоплеер, основные черты которого 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Revo Uninstaller Pro 4.4.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0EFE8D3E18DB4FDBBA12E2FA346DE2BFB8EBE8B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Лучше �
 magnet:?xt=urn:btih:40B2302EA03319770B77E619C6A9E5D88ED1F6CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Space Wallpapers (17.12.12) [Wallpapers]
 magnet:?xt=urn:btih:F1C739DDEA8E12B0958E7922EE0A6C851785B8E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Araxis Merge - Самая популярная программа для сра�
 ```bash
 magnet:?xt=urn:btih:098889CADD1A8BC607E781F65AA852C36F4A1ACC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ Tineidae - Lights (2012) [MP3|320 кб/с]<IDM>
 magnet:?xt=urn:btih:484142BB817E7162C6824EA49BBB8B3C307B4CC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:484142BB817E7162C6824EA49BBB8B3C307B4CC8
 ```bash
 magnet:?xt=urn:btih:0DBCB350422C703D5FC5190EECFE1CD04E73E03A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:0DBCB350422C703D5FC5190EECFE1CD04E73E03A
 magnet:?xt=urn:btih:ACFD43DDA59A7B0430E201074E0AA81577B7394F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Ore ga Ojou-sama Gakkou ni "Shomin Sample" Toshite Gets-sareta Ken / Я стал
 ```bash
 magnet:?xt=urn:btih:59548AB263CB27C2A6D43D15FA6FBC8DC71B8BC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:59548AB263CB27C2A6D43D15FA6FBC8DC71B8BC4
 magnet:?xt=urn:btih:6409CA522434862FBFBF86B8E316A64BFB33B7F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:6409CA522434862FBFBF86B8E316A64BFB33B7F8
 ```bash
 magnet:?xt=urn:btih:E75AD3E8735CF18B6B10494746CB131EC6806A23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:E75AD3E8735CF18B6B10494746CB131EC6806A23
 magnet:?xt=urn:btih:2071E500EF2B14F913F59E39B09F39EBC7F36878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:2071E500EF2B14F913F59E39B09F39EBC7F36878
 ```bash
 magnet:?xt=urn:btih:29D9D09362F1BADF9C2956D73CCFEA19ACF4DF58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ Luminar Neo 0.9.1 (Early Access) [Multi/Ru]
 magnet:?xt=urn:btih:889D34CAF7C16393373A5108EDD996944635BA7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ Comedy Woman. 10 лет (2017.12.29) WEB-DL [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:7A131EB80490B891F43D6E244554F75C1661CE2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:7A131EB80490B891F43D6E244554F75C1661CE2A
 ```bash
 magnet:?xt=urn:btih:0C67A52D3DBAA241DBE453A5E76B8A7DFD826DEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:0C67A52D3DBAA241DBE453A5E76B8A7DFD826DEA
 magnet:?xt=urn:btih:115BBF7ED47D4D399889BCCA5B22ED9369935437
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ Kanojo ga Flag o Oraretara / Gaworare / Если бы я сломал её фл�
 ```bash
 magnet:?xt=urn:btih:0B7C3621A4B9FEFD7494302B0892D41C494DB649
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ DJ Kevlar - Beat Driver: The Best of 2017 [FLAC|Lossless|Web-DL|tracks] <Hip-Hop
 magnet:?xt=urn:btih:450B087C5694C979496DCC4EAAD8E07824D845F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ ORESUKI | Да как меня можешь любить только ты? | Or
 magnet:?xt=urn:btih:2D728A51D6A9AE30CA0FCAAC4940810B3CFDCBD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:2D728A51D6A9AE30CA0FCAAC4940810B3CFDCBD7
 ```bash
 magnet:?xt=urn:btih:3E97D1D1A26FCCE544831D739DA448A71C839915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ Wondershare Recoverit - профессиональное приложение, �
 magnet:?xt=urn:btih:55144A6FA4D9730B304BA42EC768F5A8DDC8000A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:55144A6FA4D9730B304BA42EC768F5A8DDC8000A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:55144A6FA4D9730B304BA42EC768F5A8DDC8000A
 ```bash
 magnet:?xt=urn:btih:56793DA8D91A406466DD8046B435AB3A5DF0E3E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

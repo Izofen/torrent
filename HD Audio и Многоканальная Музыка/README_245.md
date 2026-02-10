@@ -1,3 +1,32 @@
+###  Публикация: 1401903   (705145) от 12.08.2020
+
+The Beatles - Rare Beatles (The Beatles On Air) (1993) Unofficial Release [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_705145.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 I Saw Her Standing There
+A2 Too Much Monkey Business
+A3 I'll Get You
+A4 Lucille(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45EE93A0A33F859513707FD57302B7BD79771D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131738   (706397) от 06.05.2017
 
 Toto Cutugno - L'Italiano (1983) 1984, Jugoton[FLAC|24/192|image + .cue|Vinyl-Rip]<Pop>
@@ -21,6 +50,8 @@ A4. Donna, Donna Mia (3:01)(   Читать дальше...   )Производ�
 ```bash
 magnet:?xt=urn:btih:45463F8CF9286D4B7030D44C00B3B0DC00164888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Spirit Nation - Spirit Nation (1998) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Elect
 magnet:?xt=urn:btih:1CFF7A380E435B36C5D54008BC8E2BFAEFB79097
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ A3 Sabbath Bloody Sabbath(   Читать дальше...   )Жанр: Hard Rock
 ```bash
 magnet:?xt=urn:btih:8D5E764950E7576496CAF0FD5B7579643155E618
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ Side A:
 magnet:?xt=urn:btih:C0E79D3311E59FAD11CF60139C7AFBC47A8FB45D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ Norah Jones – Come Away With Me (2002)  [DTS 5.1 CD-DA|44.1/16|image+cue|SACD]
 ```bash
 magnet:?xt=urn:btih:265C444896EE29043590607E56DF11123E0C92E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +197,8 @@ Mudvayne — американская ню-метал-группа из Пеор
 magnet:?xt=urn:btih:15988A681858B2419594CD33AE9736AE52DFC8F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +225,8 @@ A4 Беседа (Conversation)(   Читать дальше...   )Жанр: Jazz
 ```bash
 magnet:?xt=urn:btih:CDD595CA78BD9E44EC0A62DE449957E455688A6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +255,8 @@ A4 Per Amare Cosa Vuoi? = За Да Ме Обичаш, Какво Искаш?(  
 magnet:?xt=urn:btih:8B2D2AA65E2A06C6A9ABBEBD33EA5841AB65538A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +284,8 @@ B1. Flight Of The Rat (7:57)(   Читать дальше...   )Производ
 magnet:?xt=urn:btih:49A5FCFA08692C7D54609C9328EB3046AABD2400
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +312,8 @@ A4 It's A Plain Shame(   Читать дальше...   )Жанр: Rock & Roll, 
 ```bash
 magnet:?xt=urn:btih:1A392C26F32F76170AE5A2889CED2F8F19E0F3A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +343,8 @@ Queen - The Game (1980) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Pop Rock, Classic Roc
 magnet:?xt=urn:btih:4E839A3808BD048268DDE74DFE13BF83483E7895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +371,8 @@ magnet:?xt=urn:btih:4E839A3808BD048268DDE74DFE13BF83483E7895
 ```bash
 magnet:?xt=urn:btih:90AEA6DA2EC770ACC48605C2C5F5FC73E157DA48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +401,8 @@ Various Artists - Любимые песни из фильмов  /Movie Songs (1
 magnet:?xt=urn:btih:4ECD299A21D9D284D6A4D25CAE019DE1A40EE08F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +429,8 @@ VA - Антология советского киношлягера - Любим
 ```bash
 magnet:?xt=urn:btih:6A80D841D90B62676494D323C24E9D01F0E180ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +459,8 @@ VA - Мельница: Песни И. Николаева (1988) [FLAC 2.0 24/96|
 magnet:?xt=urn:btih:06220FFA057ABCADE08BD23862E9BB4D72D0C3FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +487,8 @@ A4. Nobody Home (3:54)(   Читать дальше...   )Производств
 ```bash
 magnet:?xt=urn:btih:C66386E6A8D4786D67AF6FC32B3C01129F9B5963
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +517,8 @@ A4 Не Стреляй! (1982)(   Читать дальше...   )Жанр: Blue
 magnet:?xt=urn:btih:A7A38E00B185EEA503AC903D3D22F951017B5460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +545,8 @@ Lynyrd Skynyrd - Last of a Dyin' Breed (2012) [FLAC 2.0 24/192|image|Vinyl-Rip] 
 ```bash
 magnet:?xt=urn:btih:FF22B9BEB60AFD89E76E5C081B92F42347F835D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +575,8 @@ Jethro Tull – The Zealot Gene (2022) [DSD128 2.0|tracks|Vinyl-Rip] <Prog Rock>
 magnet:?xt=urn:btih:88B246F3D9053A5C3C39ACCB57FD00A839BC6131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +603,8 @@ magnet:?xt=urn:btih:88B246F3D9053A5C3C39ACCB57FD00A839BC6131
 ```bash
 magnet:?xt=urn:btih:6AD0DFDE4CBFC97D00B7516CBB06E3D9FE8309A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +633,8 @@ Secret Service - Collection (7 LP) (1979-1987) [FLAC 2.0 24/192|image(Vinyl-Rip)
 magnet:?xt=urn:btih:206AB242BB408334705B6533E3C25AE56E6033B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +661,8 @@ Telarc Heads Up SACD Sampler - Sound&Vision (2006) [DTS 5.1 CD-Audio|44.1/16|ima
 ```bash
 magnet:?xt=urn:btih:50B0E4708338C09DCABD3442743935B3EB87E5B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +691,8 @@ Madeleine Peyroux – Half The Perfect World (2006) 2008 [DSD128 2.0|tracks|Viny
 magnet:?xt=urn:btih:27F1EEF69DD3F4DDE3910F40BFE4D2F86CDE9D9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +716,8 @@ VA - Red Wave - 4 Underground Bands From The USSR (1986) 2LP [FLAC 2.0 24/96 | i
 ```bash
 magnet:?xt=urn:btih:9D258B93B68CDDE11AC870264B3455F73AFD0778
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,32 +746,7 @@ B1. Standing On Higher Ground (5:04)(   Читать дальше...   )Прои
 magnet:?xt=urn:btih:8FF8849ABAC2433115C8AA00E867F70C52A6B7F3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399102   (734306) от 29.07.2020
-
-Modern Soul Band - Meeting (1979) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_734306.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Motorrennerrock
-A2 Der Kater
-A3 Heut' Spielt Hier 'Ne Soul-Band
-A4 Gemeinsamkeit(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95553D0626A4F5B61519836C45250F8DF0861824
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Kodi 20.0 (Nexus) for Android [Ru/Multi]
 magnet:?xt=urn:btih:3CEE99147A0CC6EADB5DF3C35DCA0257A0EB5249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kodi (ранее известный как XBMC) — бесплатное и с 
 ```bash
 magnet:?xt=urn:btih:B8CA74CACC00E43B5A1358F174F0E6335D8005B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Affinity Photo — обеспечивает более высокую скоро
 magnet:?xt=urn:btih:9D0A10297060AE0CA473ED50FB6875FA73B7DC64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ MemTest86 - бесплатная программа, позволяющая пр
 ```bash
 magnet:?xt=urn:btih:1549E8A3A7884B0289FF4C617C8CEDAA4C58F0D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Red Button – это мощная утилита для оптимизации 
 magnet:?xt=urn:btih:4DF72856B479644A28F56096FEB33241DB22B987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ MediaHuman YouTube Downloader 3.9.9.85 (2708) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:DD6D2563366A85808B7D510E40E32BB34E8B514F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:9945BCDF0AA1A269BCB88D0906EFFA952C62E2F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ```bash
 magnet:?xt=urn:btih:D898424032293AE3946DD4FA1CE206349D141EA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Transmission, в отличие от многих других BitTorrent кли
 magnet:?xt=urn:btih:808D352D104B27E9A5777C72A5DB8D9E3B37F273
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:96F77E412B9501EFAEF58A4FCAA2732B8277DB3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ RX уже давно является популярным пакетом для
 magnet:?xt=urn:btih:1B3B87C5369BA1C17D08B10C922DBD8C71466335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:1B3B87C5369BA1C17D08B10C922DBD8C71466335
 magnet:?xt=urn:btih:D783A7EBB98E0607566F8FD8F4CB666D97DD29AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Vivaldi 5.6.2867.62 + Автономная версия (standalone) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6557448EE020C04BB3B9480D89C11A80F35FB753
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Final Draft — профессиональное программное обес
 magnet:?xt=urn:btih:0F555D379E0A7220AF89B303431EBCC76C16CDEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:FA4980E18548BCE7D231C7DC501D209321C440FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Dropzone - удобная утилита для автоматизация ру�
 magnet:?xt=urn:btih:4BCD66C7F0E945056CF6ECD0B51A34D7231F88B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 25.01.2023) [Ru]
 magnet:?xt=urn:btih:9BCFFC33EAF437287031C63ECCD9B8115782E593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Data Guardian 7 v.7.6.1 [En]
 ```bash
 magnet:?xt=urn:btih:99E6B281DCDA706F58EDBE05FFCFC8EFE2D63C3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Squeezer дружище веб-разработчика. Он может ком�
 magnet:?xt=urn:btih:979C2E6EBF46676095520619969DD3A9D8A587BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Allavsoft Video Downloader Converter поддерживает загрузку �
 ```bash
 magnet:?xt=urn:btih:39947A1B9566330DCA2F44DA20BB0E42FA583F95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:39947A1B9566330DCA2F44DA20BB0E42FA583F95
 magnet:?xt=urn:btih:1F85529E2CF7FD5D253872638242C778F4E73209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:F1DA52F4024B03931E998FF21EB949C0BFE45CE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Caramba Switcher - это новый, понятный автоматическ�
 magnet:?xt=urn:btih:1F5C5116FD08884F1F1677771206E68445FEFD71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ FireAlpaca - это достаточно простой, но удобный г�
 magnet:?xt=urn:btih:4501C2AD37A811014A0C7A8079A75C8FFF4D709A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ FastFlix - это простой и дружественный графичес�
 ```bash
 magnet:?xt=urn:btih:823A2A343988301963F68F110F4BEC51AB68AAEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ PhpStorm – это интегрированная среда разработк
 ```bash
 magnet:?xt=urn:btih:128AD036F6E81B4EF1A14D38D90541286A491990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

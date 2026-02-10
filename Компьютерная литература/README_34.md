@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:DA88F79B61D25C1A298F61C302D35C4831BE9BF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Alex Martelli и др. | Python in a Nutshell: A Desktop Quick Reference, 4th Ed
 ```bash
 magnet:?xt=urn:btih:F1B5A000341D21B44C72DE7E4E6F77619180CD6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F1B5A000341D21B44C72DE7E4E6F77619180CD6F
 magnet:?xt=urn:btih:CC260F2C918F4A535C0A3D0B57855FB28DEB55C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:CC260F2C918F4A535C0A3D0B57855FB28DEB55C6
 ```bash
 magnet:?xt=urn:btih:7F10044853D1FD805CB20D6BB2B2A5024289D524
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Marius Iulian Mihailescu, Stefania Loredana Nita | Pro Cryptography and Cryptana
 magnet:?xt=urn:btih:62C36E812A90BFC0F9EDA10097E4CCE89FDB4051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Wallace Wang | Beginning iPhone Development with SwiftUI: Exploring the iOS SDK,
 ```bash
 magnet:?xt=urn:btih:76DDAA99501D4A18583EB7023ADCF91301C7205E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Hans-Jürgen Schönig | Mastering PostgreSQL 15 (2023) [PDF] [EN]
 magnet:?xt=urn:btih:DB319DA13376BA1DE368B8A338E613016275A484
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Martine Dowden, Michael Gearon | Tiny CSS Projects (2023) [PDF][EN]
 magnet:?xt=urn:btih:3220C0A6883FB5C44B72EFEBA261E66C4E71E4DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Sumit Jaiswal | Git Repository Management in 30 Days (2023) [PDF][EN]
 magnet:?xt=urn:btih:193ABB54D978D946E2DA5DF713A85C33237659E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Dan Wellman | Ultimate Typescript Handbook (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:F362DA9D3146E1B8541E836FC96E1C0A13A7BCE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Martin Joo | Microservices with Laravel (Premium Package) (2022) [PDF] [EN]
 magnet:?xt=urn:btih:B86C182C0EE3AD616D72FD267EA16E7456D7216E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:B86C182C0EE3AD616D72FD267EA16E7456D7216E
 ```bash
 magnet:?xt=urn:btih:7BD916E16D85A167737A5BC67403C1E6077E0389
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Jos Dirksen | Learn Three.js: Program 3D animations and visualizations for the w
 magnet:?xt=urn:btih:6641E0B36AAFB336E25F68E11DD846FBF91DE04E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:6641E0B36AAFB336E25F68E11DD846FBF91DE04E
 ```bash
 magnet:?xt=urn:btih:62BE9B84BE38C9058137D9378C005C95135F4A01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:62BE9B84BE38C9058137D9378C005C95135F4A01
 magnet:?xt=urn:btih:3A37D27894190EEF36E903D9537C12648AA4CC4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Natale Vinto, Alex Soto Bueno | GitOps Cookbook (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:C4CBD984F099FE208D62F1A78AEB3C962093DF72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Primoz Gabrijelcic | Delphi High Performance, 2nd Edition (2023) [PDF][EN]
 magnet:?xt=urn:btih:83E661A89BEEFDC68DE82533E1169B477E7D0D6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:83E661A89BEEFDC68DE82533E1169B477E7D0D6D
 magnet:?xt=urn:btih:A83A5F2AC13C3A6418E1758383ACF35519A59880
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Sufyan bin Uzayr | Mastering Python for Web (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:4661FE4FE085664EDFD48C822B34D9755C88F182
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:4661FE4FE085664EDFD48C822B34D9755C88F182
 magnet:?xt=urn:btih:82CDFD64A339C74C4E610223E6BD52A74CFF6EF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:82CDFD64A339C74C4E610223E6BD52A74CFF6EF1
 ```bash
 magnet:?xt=urn:btih:6CAE3C9C4363D056DBD010FBC5808777D9B8A3E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Prabhu Eshwarla | Rust Servers, Services, and Apps (2023) [PDF][EN]
 magnet:?xt=urn:btih:4ACA58333C62681C24D4B96AE4C05F64092DEADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Pro Git (2-е изд.) – это полностью обновленное ру
 magnet:?xt=urn:btih:7E04B2C31013C0651812B67F09A5662F7712DCD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Joel Holmes | Shipping Go (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:4B1059DA0778C05E92E139AB06B4B9C508D90107
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Peter Spath | Pro Android with Kotlin - 2nd Edition (2022) [PDF][EN]
 magnet:?xt=urn:btih:8C46378E44AECBD1FA2E760928E5B52AED10DCE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Professional developers will produce leaner applications for the ASP.NET Core pl
 ```bash
 magnet:?xt=urn:btih:990DF944E43F22EA65507A6FD52AA78A3154C1E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

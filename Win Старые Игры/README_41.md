@@ -19,6 +19,8 @@ Nancy Drew: The Creature of Kapu Cave / Нэнси Дрю: Чудовище пе
 magnet:?xt=urn:btih:1DC6DB7FC7EF23CABC54A6CA9635E77BFE7002FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Worms 2 (1998) [En] (2.0.0.23) License GOG
 ```bash
 magnet:?xt=urn:btih:C9BC64E8180B854937097AA6771EC51DBD79EACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Jagged Alliance 2: Wildfire возвращает вас в Арулько, но 
 magnet:?xt=urn:btih:84C3357DE0A7BE2511FCD7FD1E358C1CB8487659
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Divinity 2 (II): Developer's Cut (2012) [Ru/En] (1.4.700.38) License GOG
 ```bash
 magnet:?xt=urn:btih:2D96A43195C51ED679CD899C31EE29F88CC2AEF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Adventures of Chris (2020) [Ru/Multi] (1.4) License GOG
 magnet:?xt=urn:btih:AFE229AD67E24E7F38F0E00E512571AE555E8AE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ MechWarrior 5: Mercenaries — это шутер от первого лица, �
 ```bash
 magnet:?xt=urn:btih:FA4AC65032C8205FEC946BAE1F8411C26181C951
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Galador: The Prince and the Coward / Галадор: Проклятие Прин
 magnet:?xt=urn:btih:964FBF672399110B894A8CC5C270D966CD04FB00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Geneforge 3 - это приключенческая ролевая инди-иг
 ```bash
 magnet:?xt=urn:btih:3CE162F175B9E1BD1DE3DD8CBF40D6A1AB7C4F61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ You Are Empty (2006) [Ru] (1.2) Repack Other s
 magnet:?xt=urn:btih:F2DEF7880A1158413FCACD50504FA46DF6D8C3A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Geneforge 4: Rebellion - это приключенческая ролевая и
 ```bash
 magnet:?xt=urn:btih:7BDE4411F9B78E7A221F5408DE59966E93F78CA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Geneforge 5: Overthrow - это ролевая приключенческая и
 magnet:?xt=urn:btih:6530BDD756C071EE16E1932297A08B850E73534A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ UnReal World - это уникальное сочетание ролевой и�
 ```bash
 magnet:?xt=urn:btih:D6605B33322C92BB790140844D707887DF777BE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Golden Gate 2: Goddess Heart / Золотые Ворота 2: Сердце Бо�
 magnet:?xt=urn:btih:4B4FEB0A6BE00DF072D16E76C42A11CC2D0B6B59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Gothic 2: Golden Gate / Готика 2: Золотые Ворота (2014) [Ru/E
 ```bash
 magnet:?xt=urn:btih:667268AEBDE416B285789E4937815CA6F2B7EF54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Shadow Vault / Shadow Vault: Зона теней (2004) [Ru] (1.0.28) License М
 magnet:?xt=urn:btih:CC8F11DEFEECC91932DF6A4150010302E3A65B6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Realmz - это фэнтезийная приключенческая ролев
 ```bash
 magnet:?xt=urn:btih:32BF2F93A11D50E7356E4CE72A7D3A84538A3F43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Syndicate Classic Dilogy / Syndicate Plus / Syndicate Wars (1993, 1996) [Multi] 
 magnet:?xt=urn:btih:E70137109BBFE2F9F809142240AC9CF930EBDC3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Warhammer: Dark Omen (1998) [Multi] (1.6) License GOG
 ```bash
 magnet:?xt=urn:btih:E8931202D5D6DD934C0B68AE600CE86D21076478
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Redline: Gang Warfare 2066 (1999) [En] (1.1) License GOG
 magnet:?xt=urn:btih:E548BDFB530DCE578F484430F0BFB5CB49068128
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Airborne Ranger (1988) [En] (441.01) License GOG
 ```bash
 magnet:?xt=urn:btih:2CFE6A796E2254961A3B3192D64082CC1A7F3D9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ ECHELON (1988) [En] (3.40) License GOG
 magnet:?xt=urn:btih:82FCBCDD6CE0BBBCE5EC2137F923A08B54B2E331
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Shogun: Total War – это стратегический симулятор к�
 ```bash
 magnet:?xt=urn:btih:18C212DF2E25A617ADE36640079C652A5AF4BBF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ No One Lives Forever 2: A Spy in H.A.R.M.'s Way / Никто не живет в�
 magnet:?xt=urn:btih:BF7FF018AB047C65300EDF6B93EE589E16C9C25F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Total War: MEDIEVAL 2 – Definitive Edition - это конечная верс�
 ```bash
 magnet:?xt=urn:btih:275F1D8378471F376030342EF64DB011E39DDEBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Total War: MEDIEVAL 2 – Definitive Edition - это конечная верс�
 magnet:?xt=urn:btih:2DC9CEF23180B713162C2AB39CA4290DBBF36504
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Rome: Total War - Alexander - второе официальное дополне
 ```bash
 magnet:?xt=urn:btih:2C6294D8B3C28EAED037DF269808C40EECED0D72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

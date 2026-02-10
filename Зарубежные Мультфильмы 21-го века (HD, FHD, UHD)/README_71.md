@@ -1,27 +1,3 @@
-###  Публикация: 1065611   (416008) от 24.10.2016
-
-История игрушек: Гавайские каникулы / Toy Story Toons: Hawaiian Vacation (2011) BDRemux [H.264/1080p] (Локализованный видеоряд)
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_416008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кен и Барби планируют романтический побег в тропический рай, но удастся ли им осуществить задуманное?..Производство: США | Walt Disney | Pixar Animation StudiosЖанр: Короткометражный, Комедия, СемейныйРежиссер: Гари РидстромПеревод: ДублированныйСубтитры: Русские, Украинские, Английские (форсированные / полные, вшитые, отключаемые)Продолжительность: 00:05:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E623B797E65E4471CABF144029A7EA8F9483F2E8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065941   (416014) от 24.10.2016
 
 История игрушек: Самозванец / Toy Story Toons: Small Fry (2011) BDRemux [H.264/1080p]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:E623B797E65E4471CABF144029A7EA8F9483F2E8
 ```bash
 magnet:?xt=urn:btih:4DC1F05D31EA7758FE6FA33D5E6CCDC06D81E8D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:4DC1F05D31EA7758FE6FA33D5E6CCDC06D81E8D8
 magnet:?xt=urn:btih:0ED26634970B02E98E4F8F684024E79C9BD9DFCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:0ED26634970B02E98E4F8F684024E79C9BD9DFCD
 ```bash
 magnet:?xt=urn:btih:9988D0A7A7509F31A3AA8FA0B52208ADEF31F3E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:9988D0A7A7509F31A3AA8FA0B52208ADEF31F3E0
 magnet:?xt=urn:btih:11FF495B3FA161EF5065686E3166C8A6EBC6ED20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:11FF495B3FA161EF5065686E3166C8A6EBC6ED20
 ```bash
 magnet:?xt=urn:btih:1A08B510FDCD39348661569020F3BC6A3B6A9282
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:1A08B510FDCD39348661569020F3BC6A3B6A9282
 magnet:?xt=urn:btih:42EFF1A20066E0DD898D31D1B1E43B7E2DE84A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:42EFF1A20066E0DD898D31D1B1E43B7E2DE84A08
 ```bash
 magnet:?xt=urn:btih:39EB683A013D77B67973F2218BAFF96C4D744A29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:39EB683A013D77B67973F2218BAFF96C4D744A29
 magnet:?xt=urn:btih:BD7C3257D5FFABA75BD031102AEB466C5CE79D6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:BD7C3257D5FFABA75BD031102AEB466C5CE79D6C
 magnet:?xt=urn:btih:784EB404CAB15BDE399E3AE4D616C6F955F1A4E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +252,8 @@ magnet:?xt=urn:btih:784EB404CAB15BDE399E3AE4D616C6F955F1A4E0
 ```bash
 magnet:?xt=urn:btih:B1A8A71C379A581AC4741D138FCAB73809280B82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:B1A8A71C379A581AC4741D138FCAB73809280B82
 magnet:?xt=urn:btih:9854EC97B3702A6EDEF39295BD119FF5060F5D33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:9854EC97B3702A6EDEF39295BD119FF5060F5D33
 ```bash
 magnet:?xt=urn:btih:C231ACDE56DF07CF4C8706BCF421AC774054518A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:C231ACDE56DF07CF4C8706BCF421AC774054518A
 magnet:?xt=urn:btih:2251E35A77E224E5A9C712EE5CB0131DC85442AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:2251E35A77E224E5A9C712EE5CB0131DC85442AD
 ```bash
 magnet:?xt=urn:btih:990CE4FB291D1DF22080ACBDEA064E375DA7EDDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:990CE4FB291D1DF22080ACBDEA064E375DA7EDDD
 magnet:?xt=urn:btih:82D34D699047E7CCBA9591056674D44539002EFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +410,8 @@ magnet:?xt=urn:btih:82D34D699047E7CCBA9591056674D44539002EFB
 magnet:?xt=urn:btih:24D4E8DC6016BACFC85A545E4F2859E906ADF0BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +435,8 @@ magnet:?xt=urn:btih:24D4E8DC6016BACFC85A545E4F2859E906ADF0BD
 ```bash
 magnet:?xt=urn:btih:8B242BDD9CE8F851A53D659FFB5937B3651D4A71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +464,8 @@ magnet:?xt=urn:btih:8B242BDD9CE8F851A53D659FFB5937B3651D4A71
 magnet:?xt=urn:btih:16A7F7461FEAD209BAFD636822ABB5CA313A71CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +489,8 @@ magnet:?xt=urn:btih:16A7F7461FEAD209BAFD636822ABB5CA313A71CB
 ```bash
 magnet:?xt=urn:btih:FF24D99C805813264F15C3CDE12413AF2ED2DEA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +516,8 @@ magnet:?xt=urn:btih:FF24D99C805813264F15C3CDE12413AF2ED2DEA9
 magnet:?xt=urn:btih:D08AAE11A905D334A44B82AF0ABB0C6A68C905B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +541,8 @@ magnet:?xt=urn:btih:D08AAE11A905D334A44B82AF0ABB0C6A68C905B7
 ```bash
 magnet:?xt=urn:btih:7982D1D2E0BE1D63EF430C129046849C2D7F26B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +568,8 @@ magnet:?xt=urn:btih:7982D1D2E0BE1D63EF430C129046849C2D7F26B8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +593,8 @@ magnet:?xt=urn:btih:7982D1D2E0BE1D63EF430C129046849C2D7F26B8
 ```bash
 magnet:?xt=urn:btih:910CF0F17B7E9F93E359E96D8AF8BFE68A9A1C6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:910CF0F17B7E9F93E359E96D8AF8BFE68A9A1C6C
 magnet:?xt=urn:btih:328C2385A731F58246A440DE38F833A53D41A95B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +645,34 @@ magnet:?xt=urn:btih:328C2385A731F58246A440DE38F833A53D41A95B
 ```bash
 magnet:?xt=urn:btih:3D4D7ADD22C6EBC256AF1E5CE9407C0C65825F3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324580   (422930) от 10.09.2019
+
+Тачки 2 / Cars 2 (2011) UHD BDRemux [H.265/2160p] [4K, HDR, 10-bit]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_422930.jpg" />
+</div>
+
+
+###  Подробнее
+
+Молния МакКуин и его друг Мэтр отправляются в международное путешествие — когда МакКуин получает шанс участвовать в соревнованиях для самых быстрых машин в мире, Мировом Гран-При. Этапы этих престижных гонок заведут друзей в Токио, на набережные Парижа, на побережье Италии, и на улицы туманного Лондона.Производство: США / Walt Disney Pictures, Pixar Animation StudiosЖанр: Приключения, КомедияРежиссер: Джон Лассетер, Брэд ЛьюисПеревод: ДублированныйСубтитры: Русские , АнглийскиеПродолжительность: 01:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7E30A4B22A0ADFF223CB462828C9C125167151C
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

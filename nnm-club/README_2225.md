@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:D918D2505843928110CBF3AAACADB67629902C4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:D918D2505843928110CBF3AAACADB67629902C4B
 ```bash
 magnet:?xt=urn:btih:0884EB1A58AE6E7EACB3CFD898F5CE44E026796B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:0884EB1A58AE6E7EACB3CFD898F5CE44E026796B
 magnet:?xt=urn:btih:0DBBB25A166BD6CBCD28CB6EDF22B5AFF936EF1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Chihiro Himukai Always Walks Away (2021) [Multi] (1.0.1/dlc) License GOG [18+]
 magnet:?xt=urn:btih:E02363E25735FB9751E55CBE82AF5CC2F62EECD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Sand Land (2024) [Multi] (1.0.3/dlc) Scene FAiRLIGHT [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:C0AD49D21378D05C98657A3F2F759BC88326A233
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ C.C. Catch - Collection (2024) [MP3|320 Kbps] <Disco>
 magnet:?xt=urn:btih:AF200B305907236A04000DD16ABD6DAE167DD56C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:AF200B305907236A04000DD16ABD6DAE167DD56C
 ```bash
 magnet:?xt=urn:btih:CC2D2C7CDEC6EDBB9D8B42E572E6898F6C2CC7D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:CC2D2C7CDEC6EDBB9D8B42E572E6898F6C2CC7D6
 magnet:?xt=urn:btih:67641FCE8D779B1CC68FFB8ED13B593E0B2F4385
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ XCOM: Area 51 (2016) [Ru/En] (0.971) Repack/Mod AndyFox
 magnet:?xt=urn:btih:9EF21135CBAD7AA409DF444D7B353FA85979B7CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ BBC: Юлий Цезарь без прикрас / Julius Caesar Revealed (2017)
 ```bash
 magnet:?xt=urn:btih:872A0BC425AC16E09575F0F763AE79FEEC264F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:872A0BC425AC16E09575F0F763AE79FEEC264F18
 magnet:?xt=urn:btih:CBEAD05207888DC61D40F01D200F700C786FB8D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:CBEAD05207888DC61D40F01D200F700C786FB8D1
 magnet:?xt=urn:btih:E158EDE869FF6CF643DDB835E510CE4BB0670C96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Truck Driver (2021) [Ru/Multi] (1.35.2.32/dlc) Scene DOGE
 ```bash
 magnet:?xt=urn:btih:0BD9F8FAB845F0284E496682BB39782F070142FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Zakk Wylde & Black Label Society - 21 albums, 1 single, 37 CD (1994-2024) [FLAC|
 magnet:?xt=urn:btih:3997D167DD48B1BEC28F5800D85BB71A57A077E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:3997D167DD48B1BEC28F5800D85BB71A57A077E4
 ```bash
 magnet:?xt=urn:btih:AA7E4FF8C9877B9E4DEFD414DAC056B63270F75D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ Michael Dunbar | Заточка режущего инструмента с по�
 magnet:?xt=urn:btih:7B8E108843A7D7DA5971D402EEB2C82DF8136C7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:7B8E108843A7D7DA5971D402EEB2C82DF8136C7B
 ```bash
 magnet:?xt=urn:btih:C96FFC57E0BB45849D217B720E4656B7604E8AC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:C96FFC57E0BB45849D217B720E4656B7604E8AC4
 magnet:?xt=urn:btih:3BB6ED914B720D1947EAFDC9FF6C619C0D646911
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:3BB6ED914B720D1947EAFDC9FF6C619C0D646911
 ```bash
 magnet:?xt=urn:btih:A0AFE126BEF265A347BFEFD4AC8ED08E926E0DEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:A0AFE126BEF265A347BFEFD4AC8ED08E926E0DEA
 magnet:?xt=urn:btih:6D458FFC54D8082D3BE11A1F91A254785DB78495
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Trailmakers (2019) [Ru/Multi] (1.8/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F0624861B5332EEFAE612B50FA994D94B938F9F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:F0624861B5332EEFAE612B50FA994D94B938F9F4
 magnet:?xt=urn:btih:C326F64D688BE1F0926FEFCF2942EBFCF40E60D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:C326F64D688BE1F0926FEFCF2942EBFCF40E60D9
 ```bash
 magnet:?xt=urn:btih:B463ACBF7C11C92B24569F94474D2BB2BF9A5314
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:B463ACBF7C11C92B24569F94474D2BB2BF9A5314
 magnet:?xt=urn:btih:86125E46879625CC8729769AD2AA012136A826EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:86125E46879625CC8729769AD2AA012136A826EA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:86125E46879625CC8729769AD2AA012136A826EA
 ```bash
 magnet:?xt=urn:btih:AAAE1FBE90EE3B2D12E7DB61703C29605A336783
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

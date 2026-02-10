@@ -22,6 +22,8 @@ Cirkus Prutz - Blues Revolution (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock,
 magnet:?xt=urn:btih:94DBFBF296B294EFDB3BB956F00DE6A6574C08C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Microsoft .NET 6.0.1 [Ru/En]
 magnet:?xt=urn:btih:02CAFB83EC93338908F19F5A91BFD1D62C272A9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:02CAFB83EC93338908F19F5A91BFD1D62C272A9A
 ```bash
 magnet:?xt=urn:btih:DE128A2492937D8EE0731E51A2D8A4C0905B121F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ SuperDuper! - утилита для клонирования жесткого д
 magnet:?xt=urn:btih:43FC623896753894466C0607988B728F932477D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Saint Kotar: The Yellow Mask (2020) [Ru/Multi] (1.4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B986F9F1A8C6E7D939376CAE5823541CD3AB3AFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:B986F9F1A8C6E7D939376CAE5823541CD3AB3AFF
 magnet:?xt=urn:btih:0A30843C779F41B2056EA43B4ED9CFEE7048389B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Awaken — приложение-будильник, которое позвол�
 magnet:?xt=urn:btih:ACD3085372F0879BC04829CDDB4068CA10C1EB4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Ion Fury - продолжение аркадного шутера Bombshell от
 ```bash
 magnet:?xt=urn:btih:144DAB7F2B04197A13FD81445F66CDFCE15241DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Balls Gone Wild - Stay Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:7B63ABCD78AFCB717BF28BC51D068E63FB67A4FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:7B63ABCD78AFCB717BF28BC51D068E63FB67A4FE
 magnet:?xt=urn:btih:119D27D8405F04D0775CF6428E4B66A03293A027
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:119D27D8405F04D0775CF6428E4B66A03293A027
 ```bash
 magnet:?xt=urn:btih:91966ACE7AC1E7938D2A1845024F846EF8CA587F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ EaseUS Data Recovery Wizard служит для восстановления у�
 magnet:?xt=urn:btih:AC527717692F1F37E1230F970155B8A82EB728E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:AC527717692F1F37E1230F970155B8A82EB728E8
 ```bash
 magnet:?xt=urn:btih:F3F717B8A94D05E2CE07030FBBDC908B42861006
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:F3F717B8A94D05E2CE07030FBBDC908B42861006
 magnet:?xt=urn:btih:657970B252051A7F50309868E0E29FB17A2AEE1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ YouTube Downloader v7.1 [Ru/En] (обновляемая)
 magnet:?xt=urn:btih:15D2F7D740151DC081D9D0AFA11B0255C1747E75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:15D2F7D740151DC081D9D0AFA11B0255C1747E75
 ```bash
 magnet:?xt=urn:btih:24E67F46132219F3F0C56C6203A9171E7B5FFE78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Elle King - Love Stuff + The Elle King EP (2016)  [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:EBBCF6AB0E646C032BABEF2BA27EB351433E837F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:EBBCF6AB0E646C032BABEF2BA27EB351433E837F
 ```bash
 magnet:?xt=urn:btih:0AB89097AF164A25F8EB84E44CC95E2D82F68E4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:0AB89097AF164A25F8EB84E44CC95E2D82F68E4D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:0AB89097AF164A25F8EB84E44CC95E2D82F68E4D
 ```bash
 magnet:?xt=urn:btih:F9E9B86BDC0BF56B38E30960FBA6A951F2023231
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:F9E9B86BDC0BF56B38E30960FBA6A951F2023231
 magnet:?xt=urn:btih:184E94899F6295BCEE1E7A158AF9891C77C7A57D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:184E94899F6295BCEE1E7A158AF9891C77C7A57D
 ```bash
 magnet:?xt=urn:btih:C1886191397B000D26493C3D85F5752C7A22FA2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:C1886191397B000D26493C3D85F5752C7A22FA2E
 magnet:?xt=urn:btih:51408E42EAF50A46C457961F5CC6AB64A2EE6F01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:51408E42EAF50A46C457961F5CC6AB64A2EE6F01
 ```bash
 magnet:?xt=urn:btih:7B961DFC776032F9B16C8A6FB003019F357649BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ CD 1: (01:18:35)
 magnet:?xt=urn:btih:86D759FBB229364C92F08A6535EF17EE2060EFDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Adobe Substance 3D Painter 7.4.1 [En]
 ```bash
 magnet:?xt=urn:btih:02EA0206AC3F7EC065C0A1D81B910C9C52B0C11F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

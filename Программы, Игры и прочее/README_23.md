@@ -19,6 +19,8 @@ FitAI - это персональный тренер на базе ИИ для �
 magnet:?xt=urn:btih:6769F39F0578BD06C8D1742FE9A78A2C78E896A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ meteoblue weather & maps - приложение, что гарантирован
 ```bash
 magnet:?xt=urn:btih:676383D7454DE6E450CDE8842E5A08CB23376A54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Speedtest - это приложение предназначено для опр
 magnet:?xt=urn:btih:547E9F942AF75ACBE51779068F33C9F243926F7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Image to text - Text scanner / OCR сканер текста v1.5.8 Premium Mod 
 ```bash
 magnet:?xt=urn:btih:41341473EE05711E4B02743D173DF6611FD82CA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:41341473EE05711E4B02743D173DF6611FD82CA8
 magnet:?xt=urn:btih:9AE96E6143D71EB5544BE35CCA5BA468A5978AB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Duolingo: изучай языки 6.7.3 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:67E939CAFC15FC1E669534B223FB02139BC9D77A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:67E939CAFC15FC1E669534B223FB02139BC9D77A
 ```bash
 magnet:?xt=urn:btih:08CA96D93398AE63807D10BE756E9A497330A633
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:08CA96D93398AE63807D10BE756E9A497330A633
 magnet:?xt=urn:btih:4E79760A5DE218B8BE6A373F4FEDA58CAFA7809A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Fishing Knots Pro / Рыбацкие узлы Pro v8.7.42 Paid [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:67B4877524CF7360B4604260B54C4D4B4979E9B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ VisionUp: Ваш Окончательный Тренер по Упражнени
 magnet:?xt=urn:btih:AB1C0D507FB669C062CDED02700EBB7B69FA4FFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:AB1C0D507FB669C062CDED02700EBB7B69FA4FFF
 ```bash
 magnet:?xt=urn:btih:7B31B09F0913C6F5C89D577AAAFF923D9BDC2384
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Keepsafe надёжно хранит личные фото и видео при�
 magnet:?xt=urn:btih:D0B6495BAB6AE64F2D0163F944D4BE973326CA42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ DIGI Clock - отличный способ персонализировать в
 magnet:?xt=urn:btih:55EBA724C44F1AEAD7846E880EFC3037EE002BA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ exFAT/NTFS for USB by Paragon Pro v5.0.0.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:70F1FCD0467CFEE366B63F65FA9C5D0DDA0046A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ AdGuard — уникальный блокировщик рекламы без ro
 magnet:?xt=urn:btih:ED6E2D0CBB7125A997A014FCB6027BE7A6BC5A57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:9AB211095EB80592C1351CCBD527E9399D198BDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ MyFitnessPal не будет вас ограничивать в еде, ведь
 ```bash
 magnet:?xt=urn:btih:487F275B5ABDF531ED22C734F14E2000115EE1BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Electrodoc - это новое имя приложения Electrodroid. То ж
 magnet:?xt=urn:btih:D07B5AED7487B5B62EDEF8DF7EE08D343DE188B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:D07B5AED7487B5B62EDEF8DF7EE08D343DE188B2
 ```bash
 magnet:?xt=urn:btih:29C623F1AD0523941FD0145290FF3A9C23DC4541
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ STEEZY - танцевальная студия №1 на вашем устрой
 magnet:?xt=urn:btih:888A2CF77CBD7FDCDA12F162998E20E7026EA5ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ DreamFace APP — это мощное приложение, созданное �
 ```bash
 magnet:?xt=urn:btih:AAFAA2555EAE7215479CAC8AD67AB595121AD4B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Solid Explorer - это приложение для управления фай�
 magnet:?xt=urn:btih:11E8A276861461E30F963CA5556C16642216CCA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:11E8A276861461E30F963CA5556C16642216CCA4
 magnet:?xt=urn:btih:A503B8162E89F6F4A0188C7BFC88949AEB01B9C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:A503B8162E89F6F4A0188C7BFC88949AEB01B9C2
 magnet:?xt=urn:btih:6B3605B4A574A02FF14BDA53C9C10C6240358B9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ The Elder Scrolls: Blades 1.31.0.3481802 (ARM64) [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:85115C6D264904DF1187E208EC0DF051F012E076
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +683,8 @@ MiHome v9.9.700 Mod by Vevs [Ru]
 ```bash
 magnet:?xt=urn:btih:0C147C8D7D432C3D4825DCFF9727682CA86870AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

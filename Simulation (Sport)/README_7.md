@@ -19,6 +19,8 @@ RTL Biathlon 2007 / RTL Биатлон 2007 (2006) [Ru] (1.0) Repack CoD - MW2
 magnet:?xt=urn:btih:E7E2046B327E7EB351A6388A64882593B4A84E7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ RTL Winter Sports 2009: The Next Challenge / RTL Зимние игры 2009: Н�
 ```bash
 magnet:?xt=urn:btih:E27F5B72E778E20A37F566DFD646C24657FFB5E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Torino 2006 (2006) [Multi] (1.0) Repack CoD - MW2
 magnet:?xt=urn:btih:39AB580A01F4AE6797661D0EC628DE90EE5140A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Alpine Skiing 2006 / Лучшие из лучших. Горный слалом 2
 ```bash
 magnet:?xt=urn:btih:137B6715E5D7C15DE5D31D3DCF3E4711E0097CDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Salt Lake 2002 является официальной игрой XIX зимни
 magnet:?xt=urn:btih:9BBF6B78A2280A50065C13BB28B554279FBD7FFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Alpine Skiing 2005 (2004) [En/Ge] (1.88) Repack CoD - MW2
 ```bash
 magnet:?xt=urn:btih:D4833679EB15C10A788F8DA6ABE8F8D559EAF241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Mutant Football League — современная интерпретация н�
 magnet:?xt=urn:btih:BDB68B295B627884DB57B3DF9B1C0F861C9CC056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Tennis Manager 2021 (2021) [Multi] (1.6.2129) License GOG
 ```bash
 magnet:?xt=urn:btih:AA41F474DA1048637D6EA712FD48DBAD67206364
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Revhead - продвинутый автомобильный симулятор, 
 magnet:?xt=urn:btih:8BA7BCC74A76CCC422E85F22DAF3F0A8B06E9CDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ GolfTopia - симулятор гольфа с элементами песочн
 ```bash
 magnet:?xt=urn:btih:1DB6FF39E89C21D4EE90C30EC5C07C585C73113F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Bassmaster Fishing 2022 (2021) [Ru/Multi] (1.0rls) License CODEX
 magnet:?xt=urn:btih:A0EA08C64A0FD771B1A48C7951EDB1FAD78C6CDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Franchise Hockey Manager 8 (2021) [En] (8.1) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:E5B24860220EBD17BCCC609C11075154C620566E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ A Little Golf Journey - спокойное приключение для люб�
 magnet:?xt=urn:btih:3E68CB7A0AE2FC307E3085CB5D1AE27215601D6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Real Boxing дарит тебе самый восхитительный, бес�
 ```bash
 magnet:?xt=urn:btih:1884548F932A2A3895E431902A9BC3BD9371C6F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:1884548F932A2A3895E431902A9BC3BD9371C6F2
 magnet:?xt=urn:btih:E1977074B51581117C4AB38C03FC5CE6C3BEA477
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ MXGP2 - The Official Motocross Videogame — это развитие преды�
 ```bash
 magnet:?xt=urn:btih:743358F19AD0B06984062DC70C3BEE53DC9FBDC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ MXGP2 - The Official Motocross Videogame — это развитие преды�
 magnet:?xt=urn:btih:D80B0AF8CD35A160ECD11360D666C65672AF45FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ MotoGP™20 (2020) [En] (1.0) Repaсk xatab
 ```bash
 magnet:?xt=urn:btih:B4AE391D222DA20843A64292D315752634663A82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Pool Nation - новейший симулятор бильярда, с один�
 magnet:?xt=urn:btih:D4308EC49C067AE344AC962E921CA247B2564B73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ NBA 2K22 подарит вам целую вселенную баскетбол�
 ```bash
 magnet:?xt=urn:btih:B86A8B8CEAF07BA67835F6B6A64978DB90BF3572
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ MicroProse™ Soccer (1988) [En] (2.0) License GOG
 magnet:?xt=urn:btih:AE48DFF8EE02809DCF66B15F95297FC61F078776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ F1 2015 (2015) [Ru/En] (1.0.22.4646) RePack =nemos=
 ```bash
 magnet:?xt=urn:btih:3F3E8E1DD35F39FBE1613778B178C8449E38A5C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ TT Isle of Man Ride on the Edge 2 – это новая часть серии п
 magnet:?xt=urn:btih:59A11236C60D7C13BFB04428FEE7578E02217E98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ PES 2016 - официальная видеоигра Лиги чемпионов
 ```bash
 magnet:?xt=urn:btih:86F25AEA3E5C891D9F8F4F6FF2AC6B314373C426
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Hunting Unlimited 2010 (2009) [Ru] (1.0) Repack =nemos=
 magnet:?xt=urn:btih:E2BAB63135F719DD59BB2ECB2C5E438528E9EDCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Lonely Mountains Downhill (2019) [Ru/Multi] (1.0.4) Repack Butter_
 ```bash
 magnet:?xt=urn:btih:F9E1E79BAC609964662331CA8685D6824DA9EEDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

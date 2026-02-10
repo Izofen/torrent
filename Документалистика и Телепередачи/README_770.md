@@ -1,3 +1,29 @@
+###  Публикация: 1613255   (1039661) от 18.02.2023
+
+Главная дорога (18.02.2023) SATRip [H.264]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1039661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Откуда берется жажда скорости и как ее уталить никого не убив? Жажда стресса! Именно это, по словам врачей, заставляет нас нарушать правила, пусть и немного. Ведь каждый любитель погонять — своего рода наркоман, только адреналиновый. Но можно ли на спорткаре ехать с разрешённой скоростью, не мешая другим, и получать удовольствие? Андрей Федорцов и Денис Юченков проверят, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:25:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7242572E456D9077BBF24D6110FD0006DF06BFA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439310   (1039828) от 13.01.2021
 
 Дитя Интернета: История Аарона Шварца / The Internet's Own Boy: The Story of Aaron Swartz (2014) WEBRip [H.264/1080p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:64A0D2EAD6D706CB0EA310BAD894FE447342F06C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:64A0D2EAD6D706CB0EA310BAD894FE447342F06C
 magnet:?xt=urn:btih:3B6717BF4D4C117377A2E742FA7C1DB673998AD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ Jean-Paul Belmondo, itineraire d'un acteur gate... (2001) HDTVRip [H.264] [FR / 
 ```bash
 magnet:?xt=urn:btih:B87F7D87F59C6FF59AD86D628CEF71FF8712AE0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:B87F7D87F59C6FF59AD86D628CEF71FF8712AE0D
 magnet:?xt=urn:btih:7493EE18899A8FF6A1F71788F1CAB78F8D6699D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:7493EE18899A8FF6A1F71788F1CAB78F8D6699D6
 ```bash
 magnet:?xt=urn:btih:6B04EDB73F5C7FC2C114FDAC940AA223DADFA4F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:6B04EDB73F5C7FC2C114FDAC940AA223DADFA4F2
 magnet:?xt=urn:btih:36B5C0969D7BFFC72809DB8782A034CF040B6D2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:36B5C0969D7BFFC72809DB8782A034CF040B6D2E
 ```bash
 magnet:?xt=urn:btih:FB091C74C1F23C09012D729F2EC6011F26091816
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:FB091C74C1F23C09012D729F2EC6011F26091816
 magnet:?xt=urn:btih:07D4A65AABCACFBA69A947A7CA0A37665C84E134
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:07D4A65AABCACFBA69A947A7CA0A37665C84E134
 magnet:?xt=urn:btih:569328F84CE8AB98E433B74FFB49A801E91C85E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +278,8 @@ magnet:?xt=urn:btih:569328F84CE8AB98E433B74FFB49A801E91C85E5
 ```bash
 magnet:?xt=urn:btih:56B1E817269B6457E6B2BDBCF7C3F4BD02E0E00D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:56B1E817269B6457E6B2BDBCF7C3F4BD02E0E00D
 magnet:?xt=urn:btih:40AEED44822D9739DD724BEC55610D9342E92BA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:40AEED44822D9739DD724BEC55610D9342E92BA8
 ```bash
 magnet:?xt=urn:btih:EC22A09AE0BE44FDCBC158ED5A0F723AAC6CE92B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:EC22A09AE0BE44FDCBC158ED5A0F723AAC6CE92B
 magnet:?xt=urn:btih:5F659F10CBB717FA524FAC4B5C943C17138E7FF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:5F659F10CBB717FA524FAC4B5C943C17138E7FF8
 ```bash
 magnet:?xt=urn:btih:F4295D27F402C0F93AC92C7D020177FDBAE2B4E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:F4295D27F402C0F93AC92C7D020177FDBAE2B4E2
 magnet:?xt=urn:btih:1FE97D9F18FFED134496732F82723106FA233D5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:1FE97D9F18FFED134496732F82723106FA233D5E
 ```bash
 magnet:?xt=urn:btih:3400CD65FAB74F68389654544ACE8768E23DF62F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:3400CD65FAB74F68389654544ACE8768E23DF62F
 magnet:?xt=urn:btih:A42140702D9BCDFA53C68482340958DF8DC20483
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:A42140702D9BCDFA53C68482340958DF8DC20483
 ```bash
 magnet:?xt=urn:btih:C2193B49A9DD3F747A015217DD06B17565564235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:C2193B49A9DD3F747A015217DD06B17565564235
 magnet:?xt=urn:btih:1D12426B6ED4EEF2C52801448B1532CB7EB52935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:1D12426B6ED4EEF2C52801448B1532CB7EB52935
 ```bash
 magnet:?xt=urn:btih:0D4ACB7F365A614322F1630A38355C9B67CF7FD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:0D4ACB7F365A614322F1630A38355C9B67CF7FD5
 magnet:?xt=urn:btih:0043015D8AA4870D80A5D5B30AA74DAA29AD1E1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:0043015D8AA4870D80A5D5B30AA74DAA29AD1E1D
 ```bash
 magnet:?xt=urn:btih:2F4C3461FD7D5D080E3DE92698B792CF06BC8E48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:2F4C3461FD7D5D080E3DE92698B792CF06BC8E48
 magnet:?xt=urn:btih:CDCCA0E905858E8DC0C8897BE41F3B3956F85943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +643,8 @@ magnet:?xt=urn:btih:CDCCA0E905858E8DC0C8897BE41F3B3956F85943
 ```bash
 magnet:?xt=urn:btih:9E30018744F381CE300D548EF1826FDA9B7A63F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,29 +670,7 @@ magnet:?xt=urn:btih:9E30018744F381CE300D548EF1826FDA9B7A63F4
 magnet:?xt=urn:btih:1FDB288D9BA35EFE20327779BB0BCDEA3209AD0A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611842   (1040746) от 13.02.2023
-
-Холокост — клей для обоев? (2013) HDRip [H.264]
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cестры Каратыгины получили то, к чему стремятся многие их ровесники – всероссийскую известность. Именно за ней они пришли на Муз ТВ, в программу «Безумно красивые», чтобы принять участие в примитивной викторине. Среди других им попался вопрос: «Что такое Холокост?» Ксения и Евгения дали короткий ответ: «Клей для обоев» – и взорвали русскоязычный интернет. Ролик с (   Читать дальше...   )Телекомпания: Россия / Бактрия фильмЖанр: ДокументальныйРежиссер: Мумин ШакировПеревод: Не требуетсяЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:00:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80E3B25C7FB8C696FAB89FCE4CC0CABCCB51D194
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

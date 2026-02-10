@@ -1,27 +1,3 @@
-###  Публикация: 1498522   (856039) от 27.09.2021
-
-Никто не услышал её крик / Nadie oyo gritar / No One Heard the Scream (1973) BDRip  [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элиза, за приличные деньги, - любовница старых богатеев. Профессия у неё такая. Однажды она отказывается от очередной встречи и не летит в Лондон, а отправляется в свою новую квартиру в фешенебельном доме. Поднявшись на этаж, он встречает там мужчину по имени Мигель, который пытается открыть двери сломанного лифта. Ночью Элиза слышит крики - Мигель ссорится со своей (   Читать дальше...   )Производство: Испания, P.I.C.A.S.A., Producciones Benito PerojoЖанр: ТриллерРежиссер: Элой де ла ИглесиаАктеры: Кармен Севилья, Висенте Парра, Мария Аскерино, Антонио Касас, Гойо Лебреро, Фелипе Солано, Рамон Лильо, Антонио дель Реаль, Тони ИсбертПеревод: Авторский (Андрей Дольский)Субтитры: АнглийскиеПродолжительность: 01:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222D8CC3788BE6E7D519BA03F83A0E95D801FFCB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 875725   (856090) от 07.03.2015
 
 Седьмое знамение / The Seventh Sign(1988) DVDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:222D8CC3788BE6E7D519BA03F83A0E95D801FFCB
 ```bash
 magnet:?xt=urn:btih:BF1338CA8C8A2548FA7BE049F1D600DBD8D919AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:BF1338CA8C8A2548FA7BE049F1D600DBD8D919AE
 magnet:?xt=urn:btih:9F359560AB85119AB07240AF6A4D275EACDFA7D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:9F359560AB85119AB07240AF6A4D275EACDFA7D3
 ```bash
 magnet:?xt=urn:btih:1012D3299ADEF37F1B3E8E447FECDE1889AEF397
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:1012D3299ADEF37F1B3E8E447FECDE1889AEF397
 magnet:?xt=urn:btih:10EB1055CF6C73C02B1A6F49E40DCA920FDA96F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:10EB1055CF6C73C02B1A6F49E40DCA920FDA96F0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +151,8 @@ magnet:?xt=urn:btih:10EB1055CF6C73C02B1A6F49E40DCA920FDA96F0
 magnet:?xt=urn:btih:4660F90E4A8CE55961B7601A9F69D6C74F0CF863
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:4660F90E4A8CE55961B7601A9F69D6C74F0CF863
 ```bash
 magnet:?xt=urn:btih:3D5AA33F181C4F041FCE901C7EF79025BA6B76BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +203,8 @@ magnet:?xt=urn:btih:3D5AA33F181C4F041FCE901C7EF79025BA6B76BC
 magnet:?xt=urn:btih:196254C7B7BE8C6178530D4D00D15301D420650B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:196254C7B7BE8C6178530D4D00D15301D420650B
 ```bash
 magnet:?xt=urn:btih:F9133EBA57926DA7C0CA68A38498C1D3E049E23F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:F9133EBA57926DA7C0CA68A38498C1D3E049E23F
 magnet:?xt=urn:btih:43AA80E42F4A3949DF8CFD4040167C275DD03D48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:43AA80E42F4A3949DF8CFD4040167C275DD03D48
 ```bash
 magnet:?xt=urn:btih:99FFC74CA50744B819440B7D396BCC7EB3AD3D9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +308,8 @@ magnet:?xt=urn:btih:99FFC74CA50744B819440B7D396BCC7EB3AD3D9D
 magnet:?xt=urn:btih:0F65D6569D44AC13240BF9EFE4BEB4C8F9DB712B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +333,8 @@ magnet:?xt=urn:btih:0F65D6569D44AC13240BF9EFE4BEB4C8F9DB712B
 ```bash
 magnet:?xt=urn:btih:DFE45BD8723D540DC7310FE2337FA760DCEFCF3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +360,8 @@ magnet:?xt=urn:btih:DFE45BD8723D540DC7310FE2337FA760DCEFCF3E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +385,8 @@ magnet:?xt=urn:btih:DFE45BD8723D540DC7310FE2337FA760DCEFCF3E
 ```bash
 magnet:?xt=urn:btih:B4885D3ABFEFE09FCBE766D33F2B00894FBFA1B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +412,8 @@ magnet:?xt=urn:btih:B4885D3ABFEFE09FCBE766D33F2B00894FBFA1B6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:B4885D3ABFEFE09FCBE766D33F2B00894FBFA1B6
 magnet:?xt=urn:btih:D5EAACDB92C88B9183401C6ED6109DFD312E3822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:D5EAACDB92C88B9183401C6ED6109DFD312E3822
 ```bash
 magnet:?xt=urn:btih:5BACD2A0D2F28A5C5E5B35FC2E5423CC740D6812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +492,8 @@ magnet:?xt=urn:btih:5BACD2A0D2F28A5C5E5B35FC2E5423CC740D6812
 magnet:?xt=urn:btih:FDD86BE2546C3885370EDB5E89E213A07A679D00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +518,8 @@ magnet:?xt=urn:btih:FDD86BE2546C3885370EDB5E89E213A07A679D00
 magnet:?xt=urn:btih:85D7904796130F1326EADE8B50E48613238137CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +543,8 @@ magnet:?xt=urn:btih:85D7904796130F1326EADE8B50E48613238137CB
 ```bash
 magnet:?xt=urn:btih:CD64038413EFD7C0CDEA2F850984ED395C0AC222
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +571,8 @@ magnet:?xt=urn:btih:CD64038413EFD7C0CDEA2F850984ED395C0AC222
 magnet:?xt=urn:btih:65EA8E9D3C2034B627B154615B445B49F765C04F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +596,8 @@ magnet:?xt=urn:btih:65EA8E9D3C2034B627B154615B445B49F765C04F
 ```bash
 magnet:?xt=urn:btih:E86CB30B35127555DB15246DF302E3CFA3395851
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +623,8 @@ magnet:?xt=urn:btih:E86CB30B35127555DB15246DF302E3CFA3395851
 magnet:?xt=urn:btih:9454E78A105498B7093B934E78D6D10A62A5E1EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +649,35 @@ magnet:?xt=urn:btih:9454E78A105498B7093B934E78D6D10A62A5E1EE
 ```bash
 magnet:?xt=urn:btih:C3E1FD1D1418A5B22D51382E4C08F24DA504D8CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 646835   (860593) от 21.04.2013
+
+Гарри и Хендерсоны / Harry and the Hendersons (1987) HDTVRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Семье Хендерсонов пришлось поверить в существование снежного человека после того, как их машина сбила на лесной дороге огромное мохнатое существо. Глава семейства, Джордж, принимает решение доставить бездыханное тело в научный центр или музей для изучения. В дороге «мохнатик» приходит в себя и поселяется у Хендерсонов под именем Гарри. Он заполняет дом не самым приятным запахом и «наводит порядок». Одним ударом кулака Гарри подгоняет дверной проем под свой рост, затем, погоревав над чучелами убиенных лесных собратьев, срывает эти кощунственные людские игрушки со стен.
+Жизнь среднестатистической американской семьи кардинально меняется с появлением Гарри. Спокойствия им не видать, зато каждый день - новое открытие.Жанр: Фэнтези, комедия, семейныйРежиссер: Уильям ДирАктеры: Джон Литгоу (George Henderson), Мелинда Диллон (Nancy Henderson), Маргарет Лэнгрик (Sarah Henderson), Джошуа Рудой (Ernie Henderson), Кевин Питер Холл (Harry), Дэвид Суше (Jacques Lafleur), Лэйни Казан (Irene Moffitt), Дон Амичи (Dr. Wallace Wrightwood), М. Эммет Уолш (George Henderson Sr.), Билл Онтиверус (Sgt. Mancini), Дэвид Ричардт (Dirty Harry Officer), Жаклин Москоу (DMV Clerk)Перевод: Многоголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:968FEC1C93B038E719C42C571173DCED5AF77D98
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

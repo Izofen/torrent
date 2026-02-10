@@ -1,3 +1,32 @@
+###  Публикация: 933603   (505201) от 02.09.2015
+
+VA - Всё сразу. 200 хитов. Выпуск 6 (2015) [MP3|128 - 320 кб/с]<Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505201.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. HOMIE feat. Андрей Леницкий - Лето как осень
+002. Dan Balan - Chica Bomb (Dj Dan Karim Chill Mix)
+003. Туситов - Последняя песня (kempel prod.)
+004. Thousand Foot Krutch - New Drug(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 12:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C1CEDC9044B60CACFB4CAB81F2C5C6414839F8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933753   (505270) от 02.09.2015
 
 VA - Billboard Hot 100 Singles Chart (12-09-2015) [MP3|320 кб/с]<Pop, Euro, Indie, Folk, Hip-Hop, RnB>
@@ -22,6 +51,8 @@ VA - Billboard Hot 100 Singles Chart (12-09-2015) [MP3|320 кб/с]<Pop, Euro, I
 ```bash
 magnet:?xt=urn:btih:AD75DB4BC4BE0FBB7EA59F5D564EDAC0D4F5C789
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -50,6 +81,8 @@ VA - String Illusion (2015) [MP3|320 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:85B402750BD3D90366B8EA688EDC5CCCCD82E948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -77,6 +110,8 @@ VA - 4 Years Melancholy (2015) [MP3|320 кб/с]<Melodic, Progressive, Trance, H
 magnet:?xt=urn:btih:F1EF081F2FE204354C97A2C5C034E41D0687003C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +138,8 @@ VA - Lounge Affair (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:5DE119B4F4640F4DADE253C68152C7D24AAE7FF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -137,6 +174,8 @@ CD 1(One) Продолжительность 01:05:45
 magnet:?xt=urn:btih:F1689E68C71DC983D7A04D06360C4DAD93F93BA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +202,8 @@ Nirvana - Come As You Are (2019) (Compilation) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:4450EDF9F56CB9B50E21FBE351D22A2EBE251262
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +232,8 @@ VA - I'm From The Slums: Rapstar Music (2019) [MP3|320 Kbps] <Rap, Hip Hop>
 magnet:?xt=urn:btih:38209C167019B552DF06A3E82B793A124337593C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +260,8 @@ VA - Рок-Весна (2015) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:CD6BA391633A28DB98F4CA54B2C8A9F7225301F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +290,8 @@ VA - Всё сразу 200 хитов Выпуск 5 (2015) [MP3|128 - 320 кб/
 magnet:?xt=urn:btih:842F4DF614BCEE6D7A2DE922866B21CB8EA46C3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +318,8 @@ Disc 1Жанр: Rock, MetalПродолжительность: 01:14:22
 ```bash
 magnet:?xt=urn:btih:89C2B897FB86243870C03C3DCFD737C05A5DC789
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +348,8 @@ Disc 1Жанр: Rock, MetalПродолжительность: 01:13:41
 magnet:?xt=urn:btih:1BC5547B379D5BA147FA224F5A0DE5BCB2A57292
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +376,8 @@ VA - В машине с музыкой Vol.285 (2022) [MP3|320 Kbps] <Pop, Dance
 ```bash
 magnet:?xt=urn:btih:9944B1A36226DE5675A8E9B3444C051B900DB0F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +406,8 @@ Kim Wilde - Compilation (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:211D2EC75EA19C438F050DF48C39531EA267B6C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +434,8 @@ VA - TOP August (2015) [MP3|320 кб/с]<Electronic, Lounge, Pop, Deep>
 ```bash
 magnet:?xt=urn:btih:D9552972D5A880DC1541195FC848BA2C07761748
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +464,8 @@ VA - В машине с музыкой Vol.284 (2022) [MP3|320 Kbps] <Pop, Dance
 magnet:?xt=urn:btih:711F42A5680CEEAF6F4F72A1996B360DC9AF47D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +492,8 @@ VA - Color Dance Expansion (2015) [MP3|320 кб/с]<Club, Minimal House>
 ```bash
 magnet:?xt=urn:btih:FDAA26E600EFECF1B79294D7CECDADA8702929CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +522,8 @@ VA - Trance Traveling 68 (2015) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:854D27484FAA9C7AC13B9929E59308CCBA036844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +551,8 @@ VA - Mega Bass Vol.2 (2012) [MP3|320 кб/с]<Hip Hop, Rap>
 ```bash
 magnet:?xt=urn:btih:74EA4A37AD551C13537885C0A41F45EC6B171908
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +585,8 @@ VA - Sexy Trance #45 (2012)
 magnet:?xt=urn:btih:E4AE6D0F74111310FC1A46A56E14F54F70E0DA80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +613,8 @@ VA - Shazam Хит-парад Russia Top 100 Июль (2019) [MP3|320 Kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:1F3CDA1E97C57B780D3BA44DD7052498C48C7CEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +649,8 @@ VA - Progressive Breaks v.2 (2012) [MP3|320 кб/с]<Atmospheric, Progressive Br
 magnet:?xt=urn:btih:EB67F8A459842126ABD6E70C54DD541AD939E079
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +683,8 @@ VA - Клубная Дискотека Record vol. 7 Зарубежная (2012)
 ```bash
 magnet:?xt=urn:btih:CB0ED7A3A34773F8F3CF818893D9AC3684DB2B39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +719,8 @@ VA - Лучшая 100ка Record: Взорви танцпол Vol.4 (2012) [MP3|
 magnet:?xt=urn:btih:F4D355C3E3097F514C3E51987D7D38076C2DB4C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +747,8 @@ VA - Ibiza Summer (2012) [MP3|320 кб/с]<Dance, House>
 ```bash
 magnet:?xt=urn:btih:AFF5F866E41B9ADCD866208747B274008AF3B155
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -706,32 +783,7 @@ VA - Soul of Ibiza Volume 42 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tr
 magnet:?xt=urn:btih:F921CD158C9AB59D54D99A7D7CAECFDB547C9123
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316323   (506864) от 25.07.2019
-
-VA - Dancehall And Best Reggae Music Songs (2019) [MP3|320 Kbps] <Reggae, Dancehall, Reggaeton>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_506864.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Brother Culture - Jump Up Pon It
-002. Kalidas Kp Feat. Té Dee - Life To The Fullest
-003. Phantom Imc - Hype Life
-004. Louzgain - Citoyen Du Monde(   Читать дальше...   )Жанр: Reggae, Dancehall, ReggaetonПродолжительность: 08:15:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:005A230BCA8C75D73EE14A1E12BDF54AA9DB8374
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

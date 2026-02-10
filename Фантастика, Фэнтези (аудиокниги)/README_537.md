@@ -1,3 +1,29 @@
+###  Публикация: 1460696   (1022436) от 06.04.2021
+
+Йон Айвиде Линдквист | Блаженны мертвые (2021) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1022436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мертвые восстали в Стокгольме! Они выбираются из моргов, могил, больниц. Необъяснимо, невозможно. Люди звонят в полицию в шоке и истерике от встреч с усопшими родственниками, с которыми уже простились. Положение катастрофическое. Премьер-министр Швеции отменяет встречу с Нельсоном Манделой и срочно летит домой. Из представителей министерств, полиции и врачей создается (   Читать дальше...   )Жанр: Мистика, триллеры, ужасыПродолжительность: 12:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:268F669E09FDD589DB9842B8CF91A7FD2E423C33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460543   (1022523) от 05.04.2021
 
 Василий Головачев | Черный человек (2020) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:23A843A74EC0E16625CE2F52651AAC975C4DD970
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:23A843A74EC0E16625CE2F52651AAC975C4DD970
 ```bash
 magnet:?xt=urn:btih:FC3DC431DBBCBFF5C2ACBA498D31A657592DF6AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:FC3DC431DBBCBFF5C2ACBA498D31A657592DF6AC
 magnet:?xt=urn:btih:DB7D23A619CAC08DBB374BFB6E354A8553B4C712
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:DB7D23A619CAC08DBB374BFB6E354A8553B4C712
 magnet:?xt=urn:btih:4D54E5202C765E4A80B9CA083A0CAE10BA640E90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:4D54E5202C765E4A80B9CA083A0CAE10BA640E90
 ```bash
 magnet:?xt=urn:btih:1552962C5328AFC347760D3DB3EA259CD7C7D74F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:1552962C5328AFC347760D3DB3EA259CD7C7D74F
 magnet:?xt=urn:btih:C2A9FFD05B408B2354E05D603F40979627B25FA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:C2A9FFD05B408B2354E05D603F40979627B25FA7
 magnet:?xt=urn:btih:E72FBD4CE5AD62F7FFFE40F5CC5F4BA6BCADD60C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:E72FBD4CE5AD62F7FFFE40F5CC5F4BA6BCADD60C
 ```bash
 magnet:?xt=urn:btih:B93AB5C9251C7A4467E42B06C7A589AF222844BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:B93AB5C9251C7A4467E42B06C7A589AF222844BF
 magnet:?xt=urn:btih:A625D3802E8D1E8E123A366BD5918C55A1C77174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:A625D3802E8D1E8E123A366BD5918C55A1C77174
 ```bash
 magnet:?xt=urn:btih:FDFEB54314C55F8FB4E89E4F2CCA2DBD928783D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:FDFEB54314C55F8FB4E89E4F2CCA2DBD928783D5
 magnet:?xt=urn:btih:6133F7D7F12A817F677A958B3F6BF4A698DCD68F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:6133F7D7F12A817F677A958B3F6BF4A698DCD68F
 ```bash
 magnet:?xt=urn:btih:671D6E8B26E25C138E07667F37EBBF16BBC454B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:671D6E8B26E25C138E07667F37EBBF16BBC454B4
 magnet:?xt=urn:btih:CF83FC8B587ED2A473B8A60A4C04B05B9EEF5EDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:CF83FC8B587ED2A473B8A60A4C04B05B9EEF5EDD
 ```bash
 magnet:?xt=urn:btih:814829EA893CEF671F50AE215033A3036B32E7D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:814829EA893CEF671F50AE215033A3036B32E7D1
 magnet:?xt=urn:btih:50DAE31FEC7F3288D4435AAE93A5B93567601D98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:50DAE31FEC7F3288D4435AAE93A5B93567601D98
 ```bash
 magnet:?xt=urn:btih:AF8E4159D3EFA8AB4D3470385F0AB97C1561B632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:AF8E4159D3EFA8AB4D3470385F0AB97C1561B632
 magnet:?xt=urn:btih:D7BF658130BD6069BCC72F8A27E12CAB2D9C5E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:D7BF658130BD6069BCC72F8A27E12CAB2D9C5E82
 magnet:?xt=urn:btih:4DE4B7C730AFC53A06B1B68FD6AE0C3E2FD47319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:4DE4B7C730AFC53A06B1B68FD6AE0C3E2FD47319
 ```bash
 magnet:?xt=urn:btih:421268629878FD74C452DAEF8CCE72891DA95AD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:421268629878FD74C452DAEF8CCE72891DA95AD5
 magnet:?xt=urn:btih:235CB178D4076A8956AE3932E89277807A014A65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:235CB178D4076A8956AE3932E89277807A014A65
 ```bash
 magnet:?xt=urn:btih:A0E5EB858DC5852E3CCBE5CEE342017D00C30459
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:A0E5EB858DC5852E3CCBE5CEE342017D00C30459
 magnet:?xt=urn:btih:3FB4405AB689301AC2F46B7898D20FB40764B96A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:3FB4405AB689301AC2F46B7898D20FB40764B96A
 ```bash
 magnet:?xt=urn:btih:93AAE5F19940D1D49C64255B84AE6D6C1B9CBB04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:93AAE5F19940D1D49C64255B84AE6D6C1B9CBB04
 magnet:?xt=urn:btih:1072610CEE18FBEA7F41656E5581F48940C09C07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:1072610CEE18FBEA7F41656E5581F48940C09C07
 magnet:?xt=urn:btih:F0C053708435DD2B6C8FEBCBB291194CF3A3CB63
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458698   (1023673) от 30.03.2021
-
-Саймон Дж. Морден | Фрэнк Киттридж. Билет в никуда. Книга 2 (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сражаясь за жизнь и право снова увидеть сына, Фрэнк Киттридж был вынужден убивать. Оставшись в одиночестве на марсианской базе, он решается на заключение сделки с корпорацией, пославшей его на смерть. Фрэнк знает, что для них он – «макака», но за возможность вернуться на Землю он готов терпеть и перевоплотиться в надсмотрщика Брэка, чтобы встретить астронавтов НАСА. (   Читать дальше...   )Жанр: Детективная фантастика, Зарубежная фантастика, Космическая фантастика, Научная фантастикаПеревод: Сергей СаксинПродолжительность: 14:21:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63EA1033C8098D6C47CDEEEC0BAD87830A45B938
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Vivaldi 6.2.3105.48 include standalone [Multi/Ru]
 magnet:?xt=urn:btih:436BDF92C0E8CFE194DD2ABD1CA110F76860C1D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 ```bash
 magnet:?xt=urn:btih:563CBDE5196BEE14A9DAD7D0D4F37163CBA65D69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ GeoGebra — мультиплатформенная программное об�
 magnet:?xt=urn:btih:0A45285DE6ABE3A9D5F86421BA8D0EA30CECCC33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ MusicBrainz Picard - простая в использовании програм
 ```bash
 magnet:?xt=urn:btih:7F44C63926537C59D5265F9944785291A64E161A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Downie поддерживает более 1,000 популярных сайто
 magnet:?xt=urn:btih:410D0F91E3D0EFE987609F89E83D6CC9C8CAACFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Omni Recover для macOS позволяет восстанавливать уд
 magnet:?xt=urn:btih:ACE8E60EB0CFD59A0A49EAB419456C05E4D44240
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ VLC Media Player - представляет собой мощный медиац
 magnet:?xt=urn:btih:6E448B524AAAB2C78C5A30E5892C5BAD24943E2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ ZEDGE - приложение в котором вы сможете найти н
 ```bash
 magnet:?xt=urn:btih:7727ACE3614AD9D6F9164895CF73BFFC50B091E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Mactracker предоставляет подробную информацию о
 magnet:?xt=urn:btih:6B08CB3AB22536EA9E9E4567BD6221A5D1D0BDA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Terragen ™ является мощным решением для рендер�
 ```bash
 magnet:?xt=urn:btih:CD7E3824AADB7573D9BA195AA544C12C4E861B6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Be Focused Pro - сосредоточитесь на производитель�
 magnet:?xt=urn:btih:BFA0406E7B756E8A01408C41097FA3D714698B99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ MAXON CINEMA 4D – простая в использовании професс�
 ```bash
 magnet:?xt=urn:btih:706AB5B88AC0CC251A1B954DD424837A375BC911
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Piezo не требует никаких настроек, достаточно 
 magnet:?xt=urn:btih:97D33CB1C1FAD33EC6AD8AEC819313F3C78832F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Stats - это приложение с открытым исходным код�
 ```bash
 magnet:?xt=urn:btih:9559A192F87473666FBC4E5280826BED3A4E85C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ SyncBird Pro - это файловый менеджер iPhone, который �
 magnet:?xt=urn:btih:C465C8FE372DB4291CA928B175EF9DF233390C72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ SnippetsLab — это простой в использовании менедж
 ```bash
 magnet:?xt=urn:btih:3FFC12B9251B74710A51AD333969445B85BAD8E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ File List Export (бывший File list to Excel) - простое в испо�
 magnet:?xt=urn:btih:E4A24AB00CB5047BB06DD720CAB650F491D8DE3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Abelssoft SSD Fresh - если вы счастливый обладатель SS
 ```bash
 magnet:?xt=urn:btih:6944A9CE2B6A221AC619FF9DFC694B9829D60ECB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ PreSonus выпустила обновлённую версию DAW PreSonus Stu
 magnet:?xt=urn:btih:E31F17B05D7372880E66D68DEF4033457A6565A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ TagScanner — это мощный инструмент для организа�
 ```bash
 magnet:?xt=urn:btih:545DE31F37D5EB8B74263B5E1303A001F08F9666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:4B11D2626EE5EE0E21F149EC2E8BBB82E1C1BF0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ OCCT 11.0.15 Final Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:88C39C25708C039D36E816BE44547CDB39D7D071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ ASAP Utilities позволяет упростить и автоматизиро
 magnet:?xt=urn:btih:2D753602ED5B4D99A2148CA3F192D563A42114DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Defender Remover Portable 12.5.6 [En]
 ```bash
 magnet:?xt=urn:btih:49B1DF0E9252B56C1B4A76A924B2D024E09980EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Sonible Plugins 11.2022 VST, VST 3, AAX (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:69744538829E7BC652563E8C6196B0C95B921E3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ DDMF - PluginDoctor 2.0.4 Standalone, VST, VST 3 (x86/x64) RePack by MOCHA [En]
 ```bash
 magnet:?xt=urn:btih:049673A857B215DF60DF17276AEA23EE657225BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

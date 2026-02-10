@@ -1,27 +1,3 @@
-###  Публикация: 809455   (585443) от 03.08.2014
-
-Красавчик Серж / Le beau Serge (1958) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_585443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франсуа возвращается из города в родную деревню. Он встречает Сержа, но тот, некогда преуспевавший, а теперь спившийся архитектор, не узнает друга детства…Производство: ФранцияЖанр: ДрамаРежиссер: Клод ШаброльАктеры: Жерар Блен, Жан-Клод Бриали, Мишель Мериц, Бернадетт Лафон, Клод Серваль, Джинн Перез, Эдмон Бошан, Андре Дино, Мишель Крёз, Клод ШаброльПеревод: Многоголосый закадровыйСубтитры: русские (отдельным файлом)Продолжительность: 01:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B9CF64232BC0BBECF47D47EDA157CD4B060178
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552754   (585723) от 22.05.2022
 
 Бит Стрит / Beat Street (1984) BDRip [H.264]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:90B9CF64232BC0BBECF47D47EDA157CD4B060178
 ```bash
 magnet:?xt=urn:btih:E492D1FDF5196E79142D19F205006A94D7DDBF29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:E492D1FDF5196E79142D19F205006A94D7DDBF29
 magnet:?xt=urn:btih:5D6AB281ECA6FCB29D6EDFAE4D14C3F83A186FDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:5D6AB281ECA6FCB29D6EDFAE4D14C3F83A186FDE
 ```bash
 magnet:?xt=urn:btih:259F3AF5DBB2A1E2EFF499CB90D68A8585FB3451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:259F3AF5DBB2A1E2EFF499CB90D68A8585FB3451
 magnet:?xt=urn:btih:F79943B6A92F12E3CD3A18889C6571E4237E64DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:F79943B6A92F12E3CD3A18889C6571E4237E64DC
 ```bash
 magnet:?xt=urn:btih:74574F5A057AE2816F7BB1785E28A63D6AA8AEC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:74574F5A057AE2816F7BB1785E28A63D6AA8AEC2
 magnet:?xt=urn:btih:AA10AE92F0B22D15C2FA1B212256BAA3C819970C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:AA10AE92F0B22D15C2FA1B212256BAA3C819970C
 ```bash
 magnet:?xt=urn:btih:F4B5662B79F4D1F525E6DC7E09F669AFE9F01242
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:F4B5662B79F4D1F525E6DC7E09F669AFE9F01242
 magnet:?xt=urn:btih:12F7B85F43E482D4353C016882168E3E1508B72E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:12F7B85F43E482D4353C016882168E3E1508B72E
 ```bash
 magnet:?xt=urn:btih:2140C8AA67D25DE4A27DE1A270F2F3C4ABBCDDF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:2140C8AA67D25DE4A27DE1A270F2F3C4ABBCDDF4
 magnet:?xt=urn:btih:409B7EA62A9B78E51A5405ABDB646A143DD0D5C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:409B7EA62A9B78E51A5405ABDB646A143DD0D5C0
 ```bash
 magnet:?xt=urn:btih:6DFEB6663AA5482E47DC85CADAE9D139A4BF388B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:6DFEB6663AA5482E47DC85CADAE9D139A4BF388B
 magnet:?xt=urn:btih:5F2F9870FA54EF3D2F66E09CCF396F4870B2438B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ magnet:?xt=urn:btih:5F2F9870FA54EF3D2F66E09CCF396F4870B2438B
 ```bash
 magnet:?xt=urn:btih:8AD2EBFF6E26F33AC86C0CCCADF6A31FD01092B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:8AD2EBFF6E26F33AC86C0CCCADF6A31FD01092B8
 magnet:?xt=urn:btih:94AC14ABCCDC5502D90B37371982C75172C32B26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +383,8 @@ magnet:?xt=urn:btih:94AC14ABCCDC5502D90B37371982C75172C32B26
 ```bash
 magnet:?xt=urn:btih:60B7AE38B355DE91366FCC2EA52DC8A11C525F29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +410,8 @@ magnet:?xt=urn:btih:60B7AE38B355DE91366FCC2EA52DC8A11C525F29
 magnet:?xt=urn:btih:7A57611FBA8D36E09935CD568E32213B4B9F066E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +435,8 @@ magnet:?xt=urn:btih:7A57611FBA8D36E09935CD568E32213B4B9F066E
 ```bash
 magnet:?xt=urn:btih:64E40313C210C6959D3E51BA69E785C48F1A0351
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +462,8 @@ magnet:?xt=urn:btih:64E40313C210C6959D3E51BA69E785C48F1A0351
 magnet:?xt=urn:btih:185A4F99D5D6E921180BC1495D186D6A75AA69B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +488,8 @@ magnet:?xt=urn:btih:185A4F99D5D6E921180BC1495D186D6A75AA69B0
 magnet:?xt=urn:btih:4A59FDD87D787B42DB1DA37B07199298E10C3050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +513,8 @@ magnet:?xt=urn:btih:4A59FDD87D787B42DB1DA37B07199298E10C3050
 ```bash
 magnet:?xt=urn:btih:920F385ED9FCAA1B16F7585F9460134362E2B0ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +541,8 @@ magnet:?xt=urn:btih:920F385ED9FCAA1B16F7585F9460134362E2B0ED
 magnet:?xt=urn:btih:CC4AC6B8B6CA334213A0B96E8053782C2701031C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +568,8 @@ magnet:?xt=urn:btih:CC4AC6B8B6CA334213A0B96E8053782C2701031C
 magnet:?xt=urn:btih:FA030757EB0C7833942D936FA648BB2C88712D63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +593,8 @@ magnet:?xt=urn:btih:FA030757EB0C7833942D936FA648BB2C88712D63
 ```bash
 magnet:?xt=urn:btih:551F44C0E9F477E7B5D067937709DF9DD84EE808
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:551F44C0E9F477E7B5D067937709DF9DD84EE808
 magnet:?xt=urn:btih:11D82B1C477162DE95A82F857810BD65C1343CC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +645,34 @@ magnet:?xt=urn:btih:11D82B1C477162DE95A82F857810BD65C1343CC6
 ```bash
 magnet:?xt=urn:btih:6CDB70E3BB59EBF4ADCC86E638ECB2063479D552
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 917956   (588640) от 13.07.2015
+
+Долгий перегон / The Quest: The Longest Drive (1976) DVDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_588640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ковбой с шестью другими перегонщиками, направляется со стадом в 1500 коров к Колорадо, а это путь в 1000 миль. По пути они столкнутся с индейцами, испытают панику, и прочувствуют в пустыне отсутствие воды...Производство: США / Columbia Pictures Television, David Gerber ProductionsЖанр: Вестерн, ПриключенияРежиссер: Бернард МакЭветиАктеры: Курт Рассел, Тим Мэтисон, Дэн О’Херлихи, Кинен Уинн, Вуди Строуд, Эрик Эстрада, Сэндер Джонсон, Купер Хукаби, Джон Рубинстайн, Гэри ЛоквудПеревод: Одноголосый закадровый (NezPerce)Субтитры: ОтсутствуютПродолжительность: 01:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5B9349DCA25188E2F3D75167A9DFB75E1B1E8CA
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

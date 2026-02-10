@@ -28,6 +28,8 @@ VA - Русские Новинки Vol.50 from AGR (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:ADF47FE7C0F434E03DE75C56E73BAB599193291E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ VA - 60 Minutes. Old School Dance Music vol.5 (mixed by Dj V)(2021) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:AAD53F5A6CEBC8FD355B33C01697A069637E749F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ VA - The Top 100 Most Played꞉ Pop (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:001C231E7CECF8FA3311CA65109B110BF0211375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ VA - Зайцев.нет Лучшие новинки Января (2022) [MP3|32
 ```bash
 magnet:?xt=urn:btih:5574DFB3CFACA153A0D42B5016E19CA7E7A594E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -137,6 +145,8 @@ VA - Love-Rap BEST (2012) [MP3|320 кб/с]<Rap>
 ```bash
 magnet:?xt=urn:btih:C289663F773B60BB3FA1861C216071286E709000
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +181,8 @@ CD 1 (04:50:55)
 magnet:?xt=urn:btih:EB6EDB31E4FF5CA289D1CBC2077914464E8FEB5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +210,8 @@ VA - 120 Best Slow Songs For Relax [part II] (2023) [MP3|320 Kbps] <Blues-Rock, 
 magnet:?xt=urn:btih:24C2F9128F9BB79AB1574327C981ED926E392762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +238,8 @@ VA - Музыка для машины Vol.50 (2023) [MP3|320 Kbps] <Pop, Dance, 
 ```bash
 magnet:?xt=urn:btih:A25B1ECC75FC58BF8CA91FB8B00504FA03E4A87F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -258,6 +274,8 @@ VA - Новогодний Хит За Хитом (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:7FA9829DAF3BE914A352970E3FC9156427EC6D61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +308,8 @@ VA - Отдыхай на все 100% (2012) [MP3|192 кб/с]<Pop, Dance, кав
 ```bash
 magnet:?xt=urn:btih:CD7B9FAD7A4CC92648165A16F34F5609115B695F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +344,8 @@ VA - Союз Зимний (2012) [MP3|256 кб/с]<Рор>
 magnet:?xt=urn:btih:78951DB74AE1B9309128417F54281637F3232E58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +378,8 @@ VA - 111 Golden Lounge Tunes (2012) [MP3|320 кб/с]<Lounge, Chillout, Lo-Fi>
 ```bash
 magnet:?xt=urn:btih:7791844848A37971D056BD0ADABB1A7B21466851
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +414,8 @@ VA - Уже Новый год на носу (2012) [MP3|256 кб/с]<Pop,Dance>
 magnet:?xt=urn:btih:F693F1D71D4A24E3080F6E797D16AA9A630F8D03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +442,8 @@ VA - Trance In Motion Vol.369 (2023) [MP3|320 Kbps|image + .cue] <Trance, Uplift
 ```bash
 magnet:?xt=urn:btih:C47E9B91652B8130287562398B47B1DFC96E8B10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +478,8 @@ VA - Подарок! (2012) [MP3|320 кб/с]<Dance>
 magnet:?xt=urn:btih:27E7898FEF530E76A5887D81C29027E6E93C38DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +512,8 @@ VA - Rockовое Нашествие-Русская версия (2012) [MP3|128
 ```bash
 magnet:?xt=urn:btih:E3CE0FE43F95787647EE4AC6478067D6396215B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +548,8 @@ VA - Заряд Новогодних Русских Хитов (2012) [MP3|256 �
 magnet:?xt=urn:btih:B17397500130EC75D7A6EFEBAB12742C9BA36C61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +582,8 @@ VA - New Age Style - Erotic Lounge 3 (2012) [MP3|320 кб/с]<New Age,Chillout, 
 ```bash
 magnet:?xt=urn:btih:773CA699AFF4E8B985174564A02EFCD976D7E7CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +618,8 @@ VA - Christmas Party Lights (2012) [MP3|256 кб/с]<Pop, Vocal, Dance>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +644,8 @@ VA - Радио Шторм - NeРусский Шторм - 84 (2012) [MP3|128-32
 ```bash
 magnet:?xt=urn:btih:5042476ED01B6ADED632E5C07B1FCA0AC846B3B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +680,8 @@ VA - 90's Hits Euro Dance Remix Classics Vol 2 (2012) [MP3|320 кб/с]<Funky, C
 magnet:?xt=urn:btih:90A6EAC825897E38C6EA8F5586C8DBD1C281CF2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +715,8 @@ VA 90's Hits - Euro Dance Remix Classics Vol 1 (2012) [MP3|320 кб/с]<Club, Ho
 magnet:?xt=urn:btih:06B03610A283AC1E265CF860198FC49A0889EA8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,6 +744,8 @@ VA - CarMusic 2 for lady (2023) [MP3|320 Kbps] <Pop, House, Other>
 magnet:?xt=urn:btih:BF5E2844D4A4195528394B604B6BC21BBA480427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -726,6 +772,8 @@ VA - Music News vol.321 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:31EFD85453E28F9494507203A39EC1D65FDB98B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -760,6 +808,8 @@ VA - Fresh Meat (2012) [MP3|320 кб/с]<Dub Step/Heavy Electro/Metalstep>
 magnet:?xt=urn:btih:2F5FD6EEFCDDD323D25E0152F5BF7A3CF85DC4E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -792,6 +842,8 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:72E847AA0AEAE095F6C30D82E270C6690E9C578C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

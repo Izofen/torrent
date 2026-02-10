@@ -19,6 +19,8 @@ Udemy, Filip Jerga | Rust & WebAssembly with JS (TS) - The Practical Guide (2021
 magnet:?xt=urn:btih:5CD47F17140A57A1D9B859F79FD6001DC401482B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Nikandr Surkov | Создание вирусных приложений для T
 magnet:?xt=urn:btih:C3D5EA7AA6BCFA5165516C6DC0EBAE6BB18DB664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Purpleschool, Антон Ларичев | JavaScript с нуля - основы 
 magnet:?xt=urn:btih:7513E0E247F4655722E01376390A8631A7796B5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ C++ — это один из самых живучих языков програ
 magnet:?xt=urn:btih:266FDF14EAFDB169EEA2324E072768430FBDBA35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ WebDesign Master | Three.js Большой практический курс (20
 ```bash
 magnet:?xt=urn:btih:4CA926D3946760E46B800FA6D27DAF32C2A09034
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Udemy, Арнольд Оберлейтер |  MCP: Создание агенто
 magnet:?xt=urn:btih:78602E8B80A480FE89D64DA174041A610D22B107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Udemy, Арнольд Оберлейтер | AI-агенты: автоматиз
 ```bash
 magnet:?xt=urn:btih:A1988FDD0ADE488BC18E013E025E910EE5A66FDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Udemy, Арнольд Оберлейтер | AI-Автоматизация: Со
 magnet:?xt=urn:btih:EC97F7FCB825E471BBDBD4FC7A4DAE876B7B324E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Udemy, Арнольд Оберлейтер | Голосовые ИИ-Агент�
 ```bash
 magnet:?xt=urn:btih:F7708C21B3CA4E9B8DEBD14CE73F9BEA969946F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Udemy, Арнольд Оберлейтер | RAG Agents: создание при
 magnet:?xt=urn:btih:F6C8796B7B92C7183389E3A2F96EAF4419625026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Udemy, Арнольд Оберлейтер | Всё об AI: ChatGPT, Midjourney
 magnet:?xt=urn:btih:E81BCD75D10072EEEAE741BBA78D651A3C78C6C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:E81BCD75D10072EEEAE741BBA78D651A3C78C6C5
 ```bash
 magnet:?xt=urn:btih:2D8F0B0A4FF4D6E0A378993392BF850ED71F7235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ R&D-лаборатория Devhands, Владимир Перепелица | И�
 magnet:?xt=urn:btih:A33E85FC87D789AA55B69794625FF4C43003022F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ JAVA - уже много лет самый популярный язык про�
 magnet:?xt=urn:btih:778F117380A108B415AAA50E30C20EC1C9E9D02F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ SmartMe University | Изучаем Ruby (2015) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:F1526A37B721C2A1E9D3AEF411F520EE2F88BBE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ Geekbrains | Как стать программистом (2017) PCRec [H.264]
 magnet:?xt=urn:btih:767A9EE4DA6BF24519B1EEB77B3F5C3207391095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:767A9EE4DA6BF24519B1EEB77B3F5C3207391095
 ```bash
 magnet:?xt=urn:btih:9F4C0A490AC198A11B65E100E91A0C6167527CE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ Lynda.com | Основы программирования: Алгоритмы / 
 magnet:?xt=urn:btih:344775A873AE610468F84866AB9C28C4301FD91A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:344775A873AE610468F84866AB9C28C4301FD91A
 ```bash
 magnet:?xt=urn:btih:8667181EEBDB95FBC0AC16116F23A1551BA87D98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ MonsterLessons | Интернет-магазин на React/Redux (2017) PCRec [
 magnet:?xt=urn:btih:8D5651F472B1BFF725AE3B5B75E61D8023F06DA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ Redux отлично (   Читать дальше...   )Жанр: JavaScript, 
 magnet:?xt=urn:btih:9D5EA3AE4A173DBB65515F8F3D029A20E9C1EFA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ Udemy | Unity 5 Professional Guide Mastering C# Programming / Профессио
 ```bash
 magnet:?xt=urn:btih:D04A76406F3942CC33CC39045DBE6170E085D0FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:D04A76406F3942CC33CC39045DBE6170E085D0FF
 magnet:?xt=urn:btih:47C3396E46F94111C96F645ED54F72057EA508C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ Udemy | Парсеры, роботы, автоматизация, Selenium, Phan
 ```bash
 magnet:?xt=urn:btih:E903274B92FB88F88FB1F931C76788258DD7CA24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ ProfIT | PhpStorm для самых маленьких (2018) PCRec [H.264/720p-
 magnet:?xt=urn:btih:B8A2943696F5934635D6C416F0566DA1C3D5FB64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ Webcademy | Gulp Сборка (2018) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:3DD43E7EBE98B2D2054A24C77707CF09A0B242EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

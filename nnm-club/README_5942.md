@@ -22,6 +22,8 @@ Grandier - The Scorn And Grace of Crows (2022) [FLAC|Lossless|WEB-DL|tracks] <Ps
 magnet:?xt=urn:btih:7E4D4F402891C8113A23FE87FCEAF1B098A63E4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:7E4D4F402891C8113A23FE87FCEAF1B098A63E4C
 magnet:?xt=urn:btih:B85216EA70CD067321E2C5F78B5867E527948989
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Return of the Phantom (1993) [En] (1.01) License GOG
 ```bash
 magnet:?xt=urn:btih:B21CC24117CBE2CB0C454A822EB75590530A99CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Griefbringer - The Horrible Wilting (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom M
 magnet:?xt=urn:btih:DF81D0424EFD8FD63ACF8912974E6FFD29CB070C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ The Legend of Nayuta: Boundless Trails (2021) [Multi] (1.0.7) Scene Rune
 ```bash
 magnet:?xt=urn:btih:95DC44EA11F88357E4B159B8476F09C61ADC61D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:95DC44EA11F88357E4B159B8476F09C61ADC61D8
 magnet:?xt=urn:btih:9DB3F79B97BCE6F3CCCB94D5EDFBCB43A3E7E1B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:9DB3F79B97BCE6F3CCCB94D5EDFBCB43A3E7E1B2
 magnet:?xt=urn:btih:6E456C5144D4C78E3DDC7DE944A6203A8D375BD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:6E456C5144D4C78E3DDC7DE944A6203A8D375BD3
 ```bash
 magnet:?xt=urn:btih:6D84A9AD38509373969524B80D4EC30B2E80FEAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:6D84A9AD38509373969524B80D4EC30B2E80FEAC
 magnet:?xt=urn:btih:FDE853D0707A80BF9A7EB9AF11871903B321A903
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:FDE853D0707A80BF9A7EB9AF11871903B321A903
 ```bash
 magnet:?xt=urn:btih:E54128BC24A23353788C38CA6142CC223ED6456C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:E54128BC24A23353788C38CA6142CC223ED6456C
 magnet:?xt=urn:btih:0F8DCEB478D3B535A8A741424DED97A7F226604D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:0F8DCEB478D3B535A8A741424DED97A7F226604D
 magnet:?xt=urn:btih:C0751BD97210361F6C284B1947A585ADF67015CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Stand Up (2023.09.29) SATRip (сезон 11, выпуск 2)
 ```bash
 magnet:?xt=urn:btih:100556C78A8C5BB7F4EE3B79D2325041A8365C21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:100556C78A8C5BB7F4EE3B79D2325041A8365C21
 magnet:?xt=urn:btih:4191805463D981163C157B3E527851A4B76025C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Zaycev.fm - приложение онлайн радио, которое отк�
 ```bash
 magnet:?xt=urn:btih:9214D83652E2D1B46A4C5408CE7B9AC9BC408EF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:9214D83652E2D1B46A4C5408CE7B9AC9BC408EF8
 magnet:?xt=urn:btih:113E580626505DE546CBB341C9FF43523B1C1E72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:113E580626505DE546CBB341C9FF43523B1C1E72
 ```bash
 magnet:?xt=urn:btih:92CE57A3DA85C53AA079DD991BD7145C5DE4086D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:92CE57A3DA85C53AA079DD991BD7145C5DE4086D
 magnet:?xt=urn:btih:2715CEDE5550D32767D41B42C470092735A0056A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:2715CEDE5550D32767D41B42C470092735A0056A
 ```bash
 magnet:?xt=urn:btih:095F075170866C47EE4AC584E19F88C17A1E8F3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:095F075170866C47EE4AC584E19F88C17A1E8F3E
 magnet:?xt=urn:btih:9E8995C950BD25400DAD2D11F1F0E9266CDD4095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:9E8995C950BD25400DAD2D11F1F0E9266CDD4095
 ```bash
 magnet:?xt=urn:btih:6359E4ABF2533C285D4369577B22DB1D228E1B0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:6359E4ABF2533C285D4369577B22DB1D228E1B0E
 magnet:?xt=urn:btih:BB99CD11C2A7F90A27A5A4725ED529667E66AC5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:BB99CD11C2A7F90A27A5A4725ED529667E66AC5F
 ```bash
 magnet:?xt=urn:btih:7000AE1DB17C4B62F20B9D9261A604A51E5322C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:7000AE1DB17C4B62F20B9D9261A604A51E5322C3
 magnet:?xt=urn:btih:2E6206A93C9CC5CC04183765D324BE326B7A45F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ ImageMeter предоставляет инструменты, которые п�
 magnet:?xt=urn:btih:57830580CD8A92396C22B38C8959F7BC0C5D088B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:57830580CD8A92396C22B38C8959F7BC0C5D088B
 ```bash
 magnet:?xt=urn:btih:07E7189F547787389F6044871FD0BC2E12E2700E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

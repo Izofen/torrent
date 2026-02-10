@@ -1,3 +1,32 @@
+###  Публикация: 1350217   (1003529) от 05.01.2020
+
+VA - The Official UK Top 40 Singles Chart 03.01.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stormzy - Own It (Feat. Ed Sheeran & Burna Boy) 3:37
+02. Lewis Capaldi - Before You Go 3:36
+03. Dua Lipa - Don't Start Now 3:03
+04. Arizona Zervas - Roxanne 2:44(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:09:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1B2C450548C34449B32C22A56ABDC0C23D3FA52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487493   (1003544) от 05.08.2021
 
 VA - Rock Classics (2021) [MP3|320 Kbps] <Classic Rock, Hard Rock, Metal>
@@ -21,6 +50,8 @@ VA - Rock Classics (2021) [MP3|320 Kbps] <Classic Rock, Hard Rock, Metal>
 ```bash
 magnet:?xt=urn:btih:77FCA245448C13E25A41924A6ED539CEA3762AAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - 5oFoF: Five Years of Friends of Friends (2014) [MP3|320 Kbps] <Electronic, 
 magnet:?xt=urn:btih:ACD9E6A1AC695C53620CCE3AD035F911DF633936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ The Beatles - Rare Beatles De-Noised (4 CD) (2020) Remaster SMRP [MP3|320 Kbps] 
 ```bash
 magnet:?xt=urn:btih:29A1807088D4AEF6708B273C1614B6005E9CF11F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ Genesis - Greatest Hits (2020) 2CD [MP3|320 Kbps] <Rock, Progressive Rock>
 magnet:?xt=urn:btih:0B198FCCDA17E601EA49500050DACA4542F9F107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ The Kelly Family - We Are The World (2019) Compilation [MP3|320 Kbps] <Pop, Rock
 ```bash
 magnet:?xt=urn:btih:28FE8058F1A7C61F50743FE5CC4592D77A2C3C54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Portal Transform: Psy Trance Music (2020) [MP3|320 Kbps] <Psychedelic Tranc
 magnet:?xt=urn:btih:43D17187039E6B50E5FD455455149A5D160026D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - German Top 100 Single Charts 03.01.2020 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:C9B448D4EEC051244B4CC19DCD5847327B5CCE88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Свежаки Лета Remix NNM (2021) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:78F7C734FAADFAE33CAEBE4A8194E2B9102F83DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - The Melancholy Blues (2021) [MP3|320 Kbps] <Blues, Soul>
 ```bash
 magnet:?xt=urn:btih:B7EA03FA732CB3294E80AFB40BB2E31EC02A1CED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - The Classic Blues (2021) [MP3|320 Kbps] <Blues, Classic, Retro Blues>
 magnet:?xt=urn:btih:2D360DD9C055B5478D91C647A2BEB032DC7D7CB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:7E3C33910184DC3673FD84C3A9D6DC4D22FC2F87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Tropical Jungle Club (2021) [MP3|320 Kbps] <Drum & Bass, Jungle>
 magnet:?xt=urn:btih:A640BD378EEB20A04796AE0857B45763D819375B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ Amure - Euphoria (2020) [MP3|320 Kbps] <New age, Enigmatic>
 ```bash
 magnet:?xt=urn:btih:CEDB0B0BB6E81114AE1B69432F3C2A8D254C03C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Cyber Space: Future Synth Electronic (2020) [MP3|320 Kbps] <Synthwave, Synt
 magnet:?xt=urn:btih:9D21921854A09B3D4CF09BFFD31B8E50B3F25226
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Hardstyle Dance Music For Fitness Vol.03 (2019) [MP3|320 Kbps] <Hard Dance,
 ```bash
 magnet:?xt=urn:btih:81D2100EBB87508DFBFEAAFC80154773D0778C59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - Animalistic Vol.02 (2019) [MP3|320 Kbps] <Hard Rock, Metal, Hardcore>
 magnet:?xt=urn:btih:E0AFD90A2141979EF82A080F0C8042C9973D0C40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ VA - Hi Games Vol.4 (Chiptune Edition) (2020) [MP3|320 Kbps] <Chiptune>
 ```bash
 magnet:?xt=urn:btih:C6D04DEB92B18DD99DCD8AFB31C2610595702365
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ VA - Finest Hour: Country Collection (2019) [MP3|320 Kbps] <Country>
 magnet:?xt=urn:btih:6B25CE78DE382B97DD95906CC405A6E85BA5C527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ VA - Techno Night: Future Electro Session (2021) [MP3|320 Kbps] <Techno, Electro
 ```bash
 magnet:?xt=urn:btih:FD98382EE9B4D6C432098883A69F6331A558A441
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ VA - Hardstyle Fitness Collection (2021) [MP3|320 Kbps] <Hardstyle, hard dance, 
 magnet:?xt=urn:btih:542A0FE96493B393476C0B323C99F1DF556BA627
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ VA - Tech Athletics Mix (2021) [MP3|320 Kbps] <Techno, Tech House, Electro>
 ```bash
 magnet:?xt=urn:btih:CC3BA6F41B077AB1C421FB0D0C45F161F022EC74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ VA - Hard Dance Clubbing: Hardstyle Megaset (2021) [MP3|320 Kbps] <Hard Dance, H
 magnet:?xt=urn:btih:CAF64E4C0FDB8ADCB570A5F11F27B73CD2011387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ VA - не Громкие новинки недели 50 (2020) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:A6C2C4A5BAADF5108503D7F26995624B627D5A07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ VA - Русские 90' (2021) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:03549065984F0AEFC6872C7D8A7D3CBE4AD11E57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ VA - Shazam & Apple Music Chart (Россия Топ 100 Июль) (2021) [MP3|3
 magnet:?xt=urn:btih:035A185F8D4C133F707BFC046E4207282AE2A8BA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486571   (1004550) от 01.08.2021
-
-VA - Chanson Soul De France (2CD) (2021) [MP3|320 Kbps] <Chanson, Folk Lyric>
-
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1004550.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Carla Bruni - Partir Dans La Nuit
-02. Lou - Comment Savoir(   Читать дальше...   )Жанр: Chanson, Folk LyricПродолжительность: 05:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F17087DF11422ABE11BA6B1BC7FC745A1FE53183
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

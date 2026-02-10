@@ -1,3 +1,30 @@
+###  Публикация: 1216206   (750726) от 30.03.2018
+
+Антон Емельянов, Сергей Савинов | Первый поход (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_750726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир Карика похож на игру: тут можно получать уровни, развиваться, воскресать в случае неудач. Но стоит допустить ошибку, и ты легко умрешь по-настоящему.
+Если сначала Коту все только казалось непростым, то теперь он в этом уверен на сто процентов. Практически каждый в отряде смог преподнести сюрприз, и ни один из них не оказался приятным. Тем не менее, сейчас приходит (   Читать дальше...   )Жанр: Боевое фэнтези, LitRPG, ПопаданцыПродолжительность: 14:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B66131AB3DB9A425B70038EC29A8F643766C82B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216249   (750821) от 30.03.2018
 
 Олег Дивов | Дама с собачкой (2018) [MP3]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:AC7099E7128C038C300A255155FCB44267AAF217
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:AC7099E7128C038C300A255155FCB44267AAF217
 magnet:?xt=urn:btih:C198802625841E0D458A5C68581E2456A665E57A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:C198802625841E0D458A5C68581E2456A665E57A
 ```bash
 magnet:?xt=urn:btih:03FA5C31E00749C1BC3255C52977C6253C403288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:03FA5C31E00749C1BC3255C52977C6253C403288
 magnet:?xt=urn:btih:265796E122C9D070CB154972CAB56585FEFBF150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:265796E122C9D070CB154972CAB56585FEFBF150
 ```bash
 magnet:?xt=urn:btih:A10A671D5F293927576F732FF10D176AF110A265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:A10A671D5F293927576F732FF10D176AF110A265
 magnet:?xt=urn:btih:82256BF846E2600B6A00F9846A20DDB19B74BD5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:82256BF846E2600B6A00F9846A20DDB19B74BD5A
 ```bash
 magnet:?xt=urn:btih:87D3FC53C08000526A752DEE5529030A33A3DA94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +230,8 @@ magnet:?xt=urn:btih:87D3FC53C08000526A752DEE5529030A33A3DA94
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +256,8 @@ magnet:?xt=urn:btih:87D3FC53C08000526A752DEE5529030A33A3DA94
 magnet:?xt=urn:btih:DAC9E6362F4C9CBC18D2A2167AFD8882B72AC779
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +281,8 @@ magnet:?xt=urn:btih:DAC9E6362F4C9CBC18D2A2167AFD8882B72AC779
 ```bash
 magnet:?xt=urn:btih:B200C4569F6B4A5D426887F7300FB31A1369AC3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +309,8 @@ magnet:?xt=urn:btih:B200C4569F6B4A5D426887F7300FB31A1369AC3A
 magnet:?xt=urn:btih:5410863E85F748B89D8DD1B9111749278FCFF63B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +334,8 @@ magnet:?xt=urn:btih:5410863E85F748B89D8DD1B9111749278FCFF63B
 ```bash
 magnet:?xt=urn:btih:AF6BB15AB4BA6B0337B7BB336774800937E17475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:AF6BB15AB4BA6B0337B7BB336774800937E17475
 magnet:?xt=urn:btih:6ACDA2B8C686E7AAF5751CE139CECB8A418A1F81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +388,8 @@ magnet:?xt=urn:btih:6ACDA2B8C686E7AAF5751CE139CECB8A418A1F81
 ```bash
 magnet:?xt=urn:btih:E85F37F5A08E5F1EB550E433F523F1820FAAEBF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +416,8 @@ magnet:?xt=urn:btih:E85F37F5A08E5F1EB550E433F523F1820FAAEBF1
 magnet:?xt=urn:btih:233CA60CB41FD25DECB757DE1749BB20A9EFF2C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +441,8 @@ magnet:?xt=urn:btih:233CA60CB41FD25DECB757DE1749BB20A9EFF2C1
 ```bash
 magnet:?xt=urn:btih:546BB82ED815E89FC77C268775EB74B3000C9E12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +468,8 @@ magnet:?xt=urn:btih:546BB82ED815E89FC77C268775EB74B3000C9E12
 magnet:?xt=urn:btih:2C34388A1A3479B91DF21E63332D626F02F17F97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +493,8 @@ magnet:?xt=urn:btih:2C34388A1A3479B91DF21E63332D626F02F17F97
 ```bash
 magnet:?xt=urn:btih:85A414BAC50E09D04C4929D33812415305234E6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +520,8 @@ magnet:?xt=urn:btih:85A414BAC50E09D04C4929D33812415305234E6E
 magnet:?xt=urn:btih:131A47972D8FF1FBD7EB484B2CEE86B4C1DDC29F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +545,8 @@ magnet:?xt=urn:btih:131A47972D8FF1FBD7EB484B2CEE86B4C1DDC29F
 ```bash
 magnet:?xt=urn:btih:5D0D9EA466F59EC99E0FDDE10EFB6D0D31CE607E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +572,8 @@ magnet:?xt=urn:btih:5D0D9EA466F59EC99E0FDDE10EFB6D0D31CE607E
 magnet:?xt=urn:btih:53D6E049A9EDCD4B6371CF5D23B0718C161BF557
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +597,8 @@ magnet:?xt=urn:btih:53D6E049A9EDCD4B6371CF5D23B0718C161BF557
 ```bash
 magnet:?xt=urn:btih:8CFD706E3D54CB07F260EFB376DB229519078153
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +624,8 @@ magnet:?xt=urn:btih:8CFD706E3D54CB07F260EFB376DB229519078153
 magnet:?xt=urn:btih:CC4948869B7F3753857A7180684E99DDDD72681D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +649,8 @@ magnet:?xt=urn:btih:CC4948869B7F3753857A7180684E99DDDD72681D
 ```bash
 magnet:?xt=urn:btih:83AE0CE46795155BFB47A10BC24ACC476C5A5159
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +676,7 @@ magnet:?xt=urn:btih:83AE0CE46795155BFB47A10BC24ACC476C5A5159
 magnet:?xt=urn:btih:274E8227BD770CD2DA8D84956DB8440BF645FA2B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281071   (751603) от 08.02.2019
-
-Джон Фланаган | Освобождение Эрака (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_751603.jpg" />
-</div>
-
-
-###  Подробнее
-
-Международный бестселлер The New York Times на протяжении многих лет, переведенный на 29 языков мира! Приключения Уилла продолжаются в седьмой книге серии. Предводителя Скандии Эрака похищают вероломные пустынные кочевники. Уиллу и его товарищу Холту предстоит отправиться в Арриду, чтобы найти Эрака и освободить его. Но раскаленная пустыня – опасное место даже для (   Читать дальше...   )Жанр: Героическое фэнтези, Зарубежное фэнтезиПродолжительность: 13:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40860EB7CE56A54C050E093D91D51178CC5E8EF3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

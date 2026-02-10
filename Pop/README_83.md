@@ -19,6 +19,8 @@ Living in a Box - Blow the House Down (1989) Single [FLAC|Lossless|tracks + .cue
 magnet:?xt=urn:btih:871CFF66D334BCE754E4004E0AF01CD9BE093BE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VA - Italo 2000 - Italo Dance Classics Vol. 1 (1998) 2CD [OGG Vorbis|480 Kbps] <
 ```bash
 magnet:?xt=urn:btih:CA601313A23D298B74FEE80FBD05453D5865F20C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Italo 2000 - Italo Dance Classics Vol. 2 (1998) 2 CD [OGG Vorbis|480 Kbps] 
 magnet:?xt=urn:btih:77B26A952996FE2847BF7820B9D3E8AF23DB15C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ VA - Italo 2000 - Italo Dance Classics Vol. 3 (1998) 2 CD [OGG Vorbis|480 Kbps] 
 ```bash
 magnet:?xt=urn:btih:64A707EB7F913A44DAAD92B5071B0CB5FA8753FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ CD1:
 magnet:?xt=urn:btih:8BDFEE12ECAF27D63705047F771872F53BA66A08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:8BDFEE12ECAF27D63705047F771872F53BA66A08
 ```bash
 magnet:?xt=urn:btih:FB464733AA541E1BB725306A9D0B7115075EC193
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ The Coral - Sea Of Mirrors (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie, Psychede
 magnet:?xt=urn:btih:815B65D0388781C67237457997C143BFB26A2390
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ DJ Bobo - Evolut30n (Evolution) (2022) [FLAC|Lossless|WEB-DL|tracks] <Eurodance,
 ```bash
 magnet:?xt=urn:btih:CE670C2BCA3B6BC02AE969B68479B41060E9D3A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ VA - Grand Prix 90's (2010) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Euro House>
 magnet:?xt=urn:btih:0029FD0301C352BB6D9A4999ABB67FF008AF930F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Olivia Rodrigo - Guts (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:9EF1A984580E5515A3E1B2175BF171A353688540
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ VA - KuschelRock 11 (1997) 2CD [FLAC|Lossless|tracks + .cue]<Pop, Rock>
 magnet:?xt=urn:btih:019A7E3D2E23A3D94CCD1EEBBF7B250A874F98EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ Romy - Mid Air (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance-Pop, Indie-Pop>
 ```bash
 magnet:?xt=urn:btih:AA1BEC6B79B9A170F81154A73B73730A576BD75D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ VA - Grand Prix 80's (2010) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco,
 magnet:?xt=urn:btih:CAF18B17C4BABA02A153D55778D6342B835C6B00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ Donna Summer - Donna Summer (1982) 40th Anniversary Edition 2022, Driven By The 
 ```bash
 magnet:?xt=urn:btih:20F58D498A0D716AFF5826B94B8AE52590E60E12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +427,8 @@ Dschinghis Khan (с нем.«Чингисхан») — западногерма�
 magnet:?xt=urn:btih:EECFDD5F4F096F55E4B93B66CC7DE3E93708789C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +455,8 @@ The Laser Cowboys - Radioactivity (1986) Remastered, Unofficial Release, 2018, V
 ```bash
 magnet:?xt=urn:btih:9AC3F93B9F2FC7818E92D82C7ADF7C0396F27E4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +485,8 @@ Blue System - The History Of Blue System (2009) 2 CD [OGG Vorbis|480 Kbps] <Elec
 magnet:?xt=urn:btih:F2024AC43F92E4CF761703D909DB8283D69433E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +513,8 @@ Blue System - Greatest Hits (2009) [OGG Vorbis|480 Kbps] <Electronic, Euro House
 ```bash
 magnet:?xt=urn:btih:6DF5CA3D9A8D8C50031626814E391EDBC4F182DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +543,8 @@ Master Genius - The Album (1984) LP [MP3|320 Kbps] <Electronic, Hip Hop, Disco, 
 magnet:?xt=urn:btih:56DAC7300343E4483313326C97C6E32780B43404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +571,8 @@ Laid Back - Road To Fame (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Easy Listeni
 ```bash
 magnet:?xt=urn:btih:C750C2F2C6B123BF2B72BAD02D8569EA4C054CCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +601,8 @@ Supermax - 3 Albums (1977 - 1986) Remastered, 2005, CD-Maximum [FLAC|Lossless|tr
 magnet:?xt=urn:btih:9D457C94472FEEE00EE2B5C7B64525E893B2DD78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +629,8 @@ magnet:?xt=urn:btih:9D457C94472FEEE00EE2B5C7B64525E893B2DD78
 ```bash
 magnet:?xt=urn:btih:E132584C0AAD34146AB183B269B524D2F9995C9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +659,8 @@ CD - 1:
 magnet:?xt=urn:btih:B7793434535665F8A703814F5C54F916E20CA024
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +687,8 @@ Blue System - 40 Jahre ZDF Hitparade (2009) [OGG Vorbis|480 Kbps] <Electronic, E
 ```bash
 magnet:?xt=urn:btih:24AD74779A68C37B0506B8F6DFA4FF24A5F35072
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,6 +717,8 @@ VA - ¡90's Rockstars Hits! (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:22305D0BCB193EE3EC19DB85A3B5A76B17269FEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ Roisin Murphy - Hit Parade (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Art
 ```bash
 magnet:?xt=urn:btih:9C670388E125D9456D9323D3D1A4EBDEEC40917C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

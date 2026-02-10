@@ -19,6 +19,8 @@ The House of Da Vinci (2017) [Ru/Multi] (1.0.3) License GOG
 magnet:?xt=urn:btih:1D19EF549CAB8EA0054B2B0F2B2C3DED981F146A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ COCOON (2023) [Ru/Multi] (13127050) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:D1977132C6ABFBE6D7DB1A6FDCEC4CBDB8375672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ I'm counting to 6... (2024) [Ru/En] (1.0) Repack Other s
 magnet:?xt=urn:btih:F7A1D428AD3A26DEC8129A79E62D60D344C6896A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Suicide of Rachel Foster (2020) [Ru/Multi] (1.0.9v) License GOG
 ```bash
 magnet:?xt=urn:btih:4D87D002FF66E0204E15896EBFC59A23076D0CDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Mahoutsukai no Yoru / Witch on the Holy Night / Ведьма святой ноч
 magnet:?xt=urn:btih:14EA086FFB3EAFC4466625452EEE1F95C34A87E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Children of Silentown – приключенческая инди-игра, с �
 ```bash
 magnet:?xt=urn:btih:1A3C3227024E23F55A4D4D5ECFFBE41775B92228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Lil' Guardsman - это восхитительная и увлекательна
 magnet:?xt=urn:btih:E483C0B7FCCE07FF6BBF974696E5DDB46BAAD871
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Train to Nowhere (2024) [Ru/En] (Build 11054454) Repack Other s
 ```bash
 magnet:?xt=urn:btih:2ECD7C969C270022D063C771DE6D54F0C8DB87B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ A Night at the Watermill – внезапно посреди ночи вы пр�
 magnet:?xt=urn:btih:0D57648FF89086C97909DACC6CBD2274713A9734
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Death of Marionette (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:C7AB006F4C170792CB92DAB503323727B1F2C34E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Source (2024) [En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:94BDFEFB4A71E6B6F919520CDBC8C7BB3FB2CB64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Viewfinder – отличное сочетание платформера и г�
 ```bash
 magnet:?xt=urn:btih:8BEC8F96250337E613AFCEEACB4BBA1E34D340CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Baldr Sky - визуальная новелла в аниме-стилистик
 magnet:?xt=urn:btih:70CDF079E4A27242CA3E8BFF5BF8DC4EA0DDFD82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Progeria: Vae Victis - визуальная новелла, созданная �
 ```bash
 magnet:?xt=urn:btih:DEF3E0265D4807CB5933A5FF1816F56B9E22492D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Despair: Blood Curse — выживание в жанре ужасов. Вид �
 magnet:?xt=urn:btih:357A88524D8D10BFC662198591DB5AE4A4D1A30A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Retreat To Enen переносит пользователей в 3600-й год 
 ```bash
 magnet:?xt=urn:btih:5A1A18F994194F5EEA01A5F76E3A4CF4890EACF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Supernormal (2024) [En] (1.3.3) Scene Tenoke
 magnet:?xt=urn:btih:5A8250FFA679D1A2809E95483B2DC9E97426F38A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ THE DESCENT (2024) [Ru/Multi] (1.0.8) Repack Other s
 ```bash
 magnet:?xt=urn:btih:6310172414A82BBA0595B4D7043401B6DF12BE0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Shining Song Starnova повествует о попытках девушек-а
 magnet:?xt=urn:btih:0FC529F2E68A1D1F02BCDB4FFCDC10323E74A3FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Aquarium (2023) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:92D913B314EDB15E0E8B7C34A32A36B992DD8B18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ So Blonde (2008) [En] (1.0) Scene Reloaded
 magnet:?xt=urn:btih:DD0DA566F331020893B32A814A2478456643E6E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Ditzy Demons Are in Love With Me – двухмерная визуальна
 ```bash
 magnet:?xt=urn:btih:7BA709C3BCB389A5080FA665C62B9F4B6FCC63C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ About a Boy – приключенческий квест с набором го
 magnet:?xt=urn:btih:75F35C8FAA8BD3607397FE602F4AB752B6229376
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Amatsutsumi - визуальная новелла в аниме-стилисти
 ```bash
 magnet:?xt=urn:btih:5A8E8AEBE4DC2EFB864913F8714CF35B34EC7C92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Night is Grey наполнена мрачной атмосферой тем�
 magnet:?xt=urn:btih:9C0076B214E7BCF98507465782CFB5169DE9B287
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ London Detective Mysteria - визуальная новелла в аниме-с
 ```bash
 magnet:?xt=urn:btih:7DB44E315363A49B6D227BAFF5CC3EEEC28658E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:88F6E074341680416CB6DBDDA146637033990C75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Marc Loy, Patrick Niemeyer, Daniel Leuck | Learning Java, 6th Edition (2023) [PD
 magnet:?xt=urn:btih:54E126227E2EFEEC3A28A27EE46CDB7B6D04F9AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:54E126227E2EFEEC3A28A27EE46CDB7B6D04F9AA
 ```bash
 magnet:?xt=urn:btih:2F90354BBA16E4243A10A7689B4C0FC44A5A4030
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Growth (2023) [Ru/Multi] (1.0rc2) License GOG
 magnet:?xt=urn:btih:C934E2CF4F2DD05E6DFA0D8DF573E710F06F0C9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:C934E2CF4F2DD05E6DFA0D8DF573E710F06F0C9F
 magnet:?xt=urn:btih:3C8D2A6796A67408DEA0D82E86A792A51C4B14BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:3C8D2A6796A67408DEA0D82E86A792A51C4B14BC
 ```bash
 magnet:?xt=urn:btih:FF85A06F77B3E0EDF23E53A3638249020B7FDC0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:FF85A06F77B3E0EDF23E53A3638249020B7FDC0F
 magnet:?xt=urn:btih:B4909A9EAFE6B0DFAEEE3993CD7506B134FD19C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:B4909A9EAFE6B0DFAEEE3993CD7506B134FD19C2
 magnet:?xt=urn:btih:A400E361ACF8E3C396F6EF03A8B73B059222B30A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Knight vs Giant: The Broken Excalibur (2023) [En] (1.0.0) License GOG
 magnet:?xt=urn:btih:1C47FFEB3D84F4096B6AF79C49617034F119DE92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:1C47FFEB3D84F4096B6AF79C49617034F119DE92
 ```bash
 magnet:?xt=urn:btih:6815D3D14EDC108E1C2F070A3504693CF8506B67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:6815D3D14EDC108E1C2F070A3504693CF8506B67
 magnet:?xt=urn:btih:DC87A2DF0349E5743C3147B3AB7BBA9870A5D1D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Parallels Desktop Business (   Читать дальше...   )Тип изда�
 magnet:?xt=urn:btih:2865D6569D89A29AF611441DA67124E7104F6F09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:2865D6569D89A29AF611441DA67124E7104F6F09
 magnet:?xt=urn:btih:256BA3F324012C83A7B5FF0121A7ED15A8607B3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:256BA3F324012C83A7B5FF0121A7ED15A8607B3B
 ```bash
 magnet:?xt=urn:btih:11C015E22FEC92579BC9465F64E6984BAD55E77C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:11C015E22FEC92579BC9465F64E6984BAD55E77C
 ```bash
 magnet:?xt=urn:btih:79E8CBE1D37CAF0F8E2F24CFCABE3DCE0748608C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:79E8CBE1D37CAF0F8E2F24CFCABE3DCE0748608C
 magnet:?xt=urn:btih:923A98C460BC847CFFF35A602B271F9C7622F7AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:923A98C460BC847CFFF35A602B271F9C7622F7AF
 ```bash
 magnet:?xt=urn:btih:986D6BC8C1794F23E52F6D4BBA0A9B7275444C1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:986D6BC8C1794F23E52F6D4BBA0A9B7275444C1C
 magnet:?xt=urn:btih:8F46E617FCBFDB73D0AAAB94301AE670C37FBC69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:8F46E617FCBFDB73D0AAAB94301AE670C37FBC69
 magnet:?xt=urn:btih:F8D7DC36575D891E2B17E3E21441F81F6F386321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:F8D7DC36575D891E2B17E3E21441F81F6F386321
 ```bash
 magnet:?xt=urn:btih:8653474871F6FE3682FFB65CCFA229F4A752EF47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:8653474871F6FE3682FFB65CCFA229F4A752EF47
 magnet:?xt=urn:btih:78DA40F3ECFDABA5E12030FC54569AA51DE76AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:78DA40F3ECFDABA5E12030FC54569AA51DE76AB8
 magnet:?xt=urn:btih:30B8940DC5172C2F53301B9E3AD50703FC67F1BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:154DE64C6C29C39B8A994A4F1B6C9E8901AE9D9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ A1 Toki Ni Wa Haha No Nai Ko No Yoni
 magnet:?xt=urn:btih:F5EBCC0B5A046021743BEE380E142C16DDD2F538
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ Jonny Lang - 8 Albums (1995 - 2017) [FLAC|Lossless|image + .cue, tracks + .cue] 
 magnet:?xt=urn:btih:9A9077900847FF6428E4FFA14A6629A4860FDBD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:9A9077900847FF6428E4FFA14A6629A4860FDBD1
 ```bash
 magnet:?xt=urn:btih:806A89972EABD3FFBAF16B834402309645D1111E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

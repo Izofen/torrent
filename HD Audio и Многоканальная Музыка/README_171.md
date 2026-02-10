@@ -22,6 +22,8 @@ Anathema — британская рок-группа, образованная 
 magnet:?xt=urn:btih:4BF29E8E1D4A78C405809317268B8522DCEEB99B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Nickelback — канадская рок-группа, основанная в 1
 ```bash
 magnet:?xt=urn:btih:63AA1ACD4209DAC660AACEA2DA8438DD13010882
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Minuit 10 - Sans Bruit (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive R
 magnet:?xt=urn:btih:6EA4ABC0E76DCCAC78D5D2C640A5C7E06F2C7E3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ My Life Story - Loving You is Killing Me (2024) [FLAC 24/44.1,96|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:158AA031BCFBE7B05812014B2E4DE6B9D5945964
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Heretic - Filthy Hymns for Sleazy Demons (2024) [FLAC 24/44.1|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:123C47D27A5A89E358080A085A0875D003BAD085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Anthony Jackson, Fodera electric contra bass(   Читать дальше...   )
 ```bash
 magnet:?xt=urn:btih:1D9C2B395DC04D68BABB27BEECFD41848222C71A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ A4 Blood, Tears, Dust(   Читать дальше...   )Жанр: Gothic Metal,
 magnet:?xt=urn:btih:BF7F1808F5780DA0A7AB7392D1EEB6B5E331B164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Elena Malaguti - Jazz Chronicles (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <S
 ```bash
 magnet:?xt=urn:btih:713C0654F680FBC8F7EBE4D8A11C5E54C7397386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ A4 Layers Of Time(   Читать дальше...   )Жанр: Gothic, Alternati
 magnet:?xt=urn:btih:30FCC6D7F71AF0BD0B76DD5147B676EC15FD6B03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ Elegant People and Lo Greco Bros - Stories Of Us (2024) [FLAC 24/44.1|Lossless|W
 magnet:?xt=urn:btih:C1A59ABF4D2F4F18176929DEC4A0824499C24F20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ Enemy of Reality - симфоник-метал группа из Афин, Гр�
 ```bash
 magnet:?xt=urn:btih:44C2D68CFBBF7A88BB661F9E0A0AB01F5028DDAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +340,8 @@ Cooking Jazz Music Academy, Instrumental Music Ensemble, Calming Jazz Relax Acad
 magnet:?xt=urn:btih:12F110D6FBF9166D8A39B1F434AA8D8A13008CD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ Il Divo - XX (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Neo-Classical, Classi
 ```bash
 magnet:?xt=urn:btih:B6478CED4E016524B7B3D30318996425834F127E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +398,8 @@ Chill Lounge Music Zone, Jazz Music Collection Zone - Night with Red Wine: A Toa
 magnet:?xt=urn:btih:E0ED9AFF1628D59AFC6A10F125741654F4F11DB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ Background Instrumental Music Collective, Romantic Music Center, Romantic Beats 
 ```bash
 magnet:?xt=urn:btih:86063DE8CC5BFECF6132AFA6BD1F27ED3B9A44C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ Coffee Lounge Collection, Restaurant Jazz Music Collection, Romantic Restaurant 
 magnet:?xt=urn:btih:9D2BDE65783C8FA757025A129FF3F16238420030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ A2 З. Невская – Дни Проходят(   Читать дальше..
 ```bash
 magnet:?xt=urn:btih:FBA01373695CCE41022568A170CF85B733F267CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +514,8 @@ Lacuna Coil - Broken Crown Halo (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Got
 magnet:?xt=urn:btih:1C3527333B9B6EFC6800DAB15D6A6ACC2278019F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ A4 Within Me(   Читать дальше...   )Жанр: Gothic Metal, Rock, Al
 ```bash
 magnet:?xt=urn:btih:EFF61C18CE046F4AF6EC1951C909EA2384DB6A89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +572,8 @@ Xentrix — британская трэш-метал-группа из Прес�
 magnet:?xt=urn:btih:EAA218895C43B067A97497D345320CB4398A1453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ A4 - My Wings(   Читать дальше...   )Жанр: Gothic Metal, Alterna
 ```bash
 magnet:?xt=urn:btih:883767E7AE364641ECAA4A80DDE31931CC2B8A78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +630,8 @@ Bob Marley & The Wailers - One Love (Original Motion Picture Soundtrack) (2024) 
 magnet:?xt=urn:btih:E581A44855514E9474C74FB90ED67FF6233D4DDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ Thin Lizzy - Vagabonds Of The Western World (1973) Deluxe Edition, 2023, Univers
 ```bash
 magnet:?xt=urn:btih:F1E78F20A51F1EB79B767C09B91E41A58035F5D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ Background Instrumental Music Collective - Joyful Jazz Session: Swingin' into Ha
 magnet:?xt=urn:btih:267E98D0937FEF630D7CE62979616B0BDF519613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ Love Music Zone - Sexy Valentine’s Day 2024 (2024) [FLAC 24/44.1|Lossless|WEB-
 magnet:?xt=urn:btih:21D858A6E132A8D5B69036A9BA508B1AD3ED95FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ VA, Marco Rinaldo - Saxophonic Haven: Sexy & Smooth Jazzed Up Evening (2024) [FL
 ```bash
 magnet:?xt=urn:btih:668D3A37E6D1ADFB197408B28246199191775483
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

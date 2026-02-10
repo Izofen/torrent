@@ -19,6 +19,8 @@ Python - бесплатный, с открытым исходным кодом, 
 magnet:?xt=urn:btih:6B9B32583578E4A596E56782F973E86009B20F95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Sufyan bin Uzayr | Mastering SQL: A Beginner’s Guide (2023) [PDF][EN]
 magnet:?xt=urn:btih:14DCC4FC2B7C4BB11C074AA1F469A800B28C699E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Joshua M Willman | Beginning PyQt, 2nd Edition (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:F03820A8DA3862CA398323F3F57109FD2E2E8426
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Patrick Hall, James Curtis | Machine Learning for High-Risk Applications (2023) 
 magnet:?xt=urn:btih:25F7DF4A6C84C5ED03009C02CE43754D221A9A41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Peter Royal | Building Modern Business Applications (2022) [PDF][EN]
 magnet:?xt=urn:btih:4E513004599AF3E5A1DB2C35C62A9470F24AE7D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:4E513004599AF3E5A1DB2C35C62A9470F24AE7D6
 ```bash
 magnet:?xt=urn:btih:0E05285852FA5ED839F8A51A5BA56CF02A9F02D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:0E05285852FA5ED839F8A51A5BA56CF02A9F02D1
 magnet:?xt=urn:btih:F206E7253B0F80415FF3878BF75004F574663698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:F206E7253B0F80415FF3878BF75004F574663698
 ```bash
 magnet:?xt=urn:btih:56274FE2C4D4BC28372C7113D3FAD5CE45E8A2A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:56274FE2C4D4BC28372C7113D3FAD5CE45E8A2A4
 magnet:?xt=urn:btih:C1C79E9C898BE1AB238DB9091C11648C47C8CEFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:C1C79E9C898BE1AB238DB9091C11648C47C8CEFA
 ```bash
 magnet:?xt=urn:btih:53EA77B23237D4EF5E0B8CA5D8DED1C6753FF279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Derek Fisher | Справочник по программе безопаснос
 magnet:?xt=urn:btih:93E839DB5AAD6E46028D460D976A0B4A66385926
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:93E839DB5AAD6E46028D460D976A0B4A66385926
 ```bash
 magnet:?xt=urn:btih:7DBE48E48EE7A3F47362668FCA26C3D47276A57C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:7DBE48E48EE7A3F47362668FCA26C3D47276A57C
 magnet:?xt=urn:btih:23FB7615F9FE0501B03F389F76503035CD7AA6B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:23FB7615F9FE0501B03F389F76503035CD7AA6B7
 ```bash
 magnet:?xt=urn:btih:63F1AB87F37D47E1473DED6077C527BDB5B044E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Ted Hagos | Beginning Kotlin (2022) [PDF][EN]
 magnet:?xt=urn:btih:72AF315FDFD85FB5350AC3F56777E2275B6B8BA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Hem Dutt | Full Stack iOS Development with Swift and Vapor (2023) [PDF][EN]
 magnet:?xt=urn:btih:D7C56A80EB78EB113DB8B26C1A0BBCF5ED5C42AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Alex Martelli и др. | Python в двух словах:/ Python in a Nutshell,
 ```bash
 magnet:?xt=urn:btih:2392AD076B3706026C52AC6B18230F22C10F6901
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Ryan Lambie (Editor) | Game Dev Cookbook / Кулинарная книга ра�
 magnet:?xt=urn:btih:D7B3753475117FF2CCAC9383C1BAB746A1AC7747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:D7B3753475117FF2CCAC9383C1BAB746A1AC7747
 ```bash
 magnet:?xt=urn:btih:6340DA99BCC5F4BBA0540D793B5EC2C0CD5C164A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ David Gonzalez | PostgreSQL for Jobseekers (2023) [PDF][EN]
 magnet:?xt=urn:btih:C28B27B54F2A8A4EF91CD95F4456A94E757BAA32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Justin Jenkins | MongoDB for Jobseekers (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:9D53E6F0921F6136217A2DFFBB2AF3028376E1A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Rohan Banerjee | Hands-on TinyML (2023) [PDF][EN]
 magnet:?xt=urn:btih:42B27A42B6BE7B677556A5B50FF1F10C67C34216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:42B27A42B6BE7B677556A5B50FF1F10C67C34216
 ```bash
 magnet:?xt=urn:btih:022609F6C1E993C0ED711A22A8FDD15D847517F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:022609F6C1E993C0ED711A22A8FDD15D847517F3
 magnet:?xt=urn:btih:E05190BA5A49462B2EEDFA62F537F76D788E28C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:E05190BA5A49462B2EEDFA62F537F76D788E28C2
 magnet:?xt=urn:btih:D4F748E47B1295DACDDB6A13DF06B1CAFDEB3B67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Greg L. Turnquist | Learning Spring Boot 3.0, 3rd Edition (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:789F9948E0C0B5CBAA63B80B0E942465E5BA8A24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

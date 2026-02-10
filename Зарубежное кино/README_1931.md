@@ -1,27 +1,3 @@
-###  Публикация: 862036   (924825) от 26.01.2015
-
-Обливион / Oblivion (2013) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_924825.jpg" />
-</div>
-
-
-###  Подробнее
-
-Земля, пережившая войну с инопланетными захватчиками, опустела; остатки человечества готовятся покинуть непригодную для жизни планету. Главный герой - техник по обслуживанию дронов - находит разбившийся корабль NASA, команда которого погибает у него на глазах. Ему удаётся спасти лишь одну женщину - и вскоре он понимает, что это перевернёт его жизнь.Производство: США | Universal Pictures, Truenorth Productions, Radical Studios, Radical Pictures, Ironhead Studios, Chernin EntertainmentЖанр: Фантастика, Боевик, Триллер, Приключения, МелодрамаРежиссер: Джозеф КосинскиАктеры: Том Круз, Ольга Куриленко, Андреа Райзборо, Морган Фриман, Николай Костер-Вальдау, Мелисса Лео, Зои Белл, Эбигейл Лоу, Изабель Лоу, Дэвид Мэдисон, Джон Л. АрмихоПеревод: Профессиональный дублированный, авторскийЯзык субтитров: Русский (Forced, Full), английскийПродолжительность: 02:04:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0095A7C039F60036D4B7F9DF152F328C013619BA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 863365   (924830) от 26.01.2015
 
 Зачётный препод (Иди к черту, Гете) / Fack ju Gohte (2013) HDRip
@@ -43,6 +19,8 @@ magnet:?xt=urn:btih:0095A7C039F60036D4B7F9DF152F328C013619BA
 ```bash
 magnet:?xt=urn:btih:65EF0C2BAB6197B222DC3EDB32D34F9EC84B3E7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +46,8 @@ magnet:?xt=urn:btih:65EF0C2BAB6197B222DC3EDB32D34F9EC84B3E7A
 magnet:?xt=urn:btih:7668894FBEFEA75725305F1E625F04C2C25F4FEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:7668894FBEFEA75725305F1E625F04C2C25F4FEF
 ```bash
 magnet:?xt=urn:btih:8E978D8EA174F936B4939C92F2C5DE81814C4E71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:8E978D8EA174F936B4939C92F2C5DE81814C4E71
 magnet:?xt=urn:btih:C331C03BE12D50C1082DCF0934AA6B336A36A5C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:C331C03BE12D50C1082DCF0934AA6B336A36A5C4
 ```bash
 magnet:?xt=urn:btih:9F2ED3CE6ABE7A73BF0F10075E3C0A02943A9AF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:9F2ED3CE6ABE7A73BF0F10075E3C0A02943A9AF5
 magnet:?xt=urn:btih:47957E2057351F6F7BA2EDA1E941BAFC8FC0CF8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:47957E2057351F6F7BA2EDA1E941BAFC8FC0CF8B
 magnet:?xt=urn:btih:1CD7800FFC5A3C9CF050CBECAEEB8C37C4EC35A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:1CD7800FFC5A3C9CF050CBECAEEB8C37C4EC35A5
 ```bash
 magnet:?xt=urn:btih:A9A0E8FF9A2B1E331BEB5D0B27605C3816BE6855
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +229,8 @@ magnet:?xt=urn:btih:A9A0E8FF9A2B1E331BEB5D0B27605C3816BE6855
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:A9A0E8FF9A2B1E331BEB5D0B27605C3816BE6855
 ```bash
 magnet:?xt=urn:btih:2B3E6BAA29701561680FF21760F66BA587D77733
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +281,8 @@ magnet:?xt=urn:btih:2B3E6BAA29701561680FF21760F66BA587D77733
 magnet:?xt=urn:btih:A6CC70D86FB9F5EEE7C03C050FC787335463B2AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:A6CC70D86FB9F5EEE7C03C050FC787335463B2AF
 ```bash
 magnet:?xt=urn:btih:1CEAFF122031207ADAAC0101157B798794DEB3D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +333,8 @@ magnet:?xt=urn:btih:1CEAFF122031207ADAAC0101157B798794DEB3D8
 magnet:?xt=urn:btih:5B5C40DFD7E02ECD4E7BB3E3A897058E8F5BAC6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:5B5C40DFD7E02ECD4E7BB3E3A897058E8F5BAC6D
 ```bash
 magnet:?xt=urn:btih:F312C6E59E6BF3266E054EABD5AA356F0EBDB638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:F312C6E59E6BF3266E054EABD5AA356F0EBDB638
 magnet:?xt=urn:btih:EBC778ABEDDFF08DC4FB664A1640B2C94A85EEFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +412,8 @@ magnet:?xt=urn:btih:EBC778ABEDDFF08DC4FB664A1640B2C94A85EEFD
 magnet:?xt=urn:btih:DF3A632AA64A5CDB9C9E303225C95D929D1A5D7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +437,8 @@ magnet:?xt=urn:btih:DF3A632AA64A5CDB9C9E303225C95D929D1A5D7D
 ```bash
 magnet:?xt=urn:btih:5C7E5EA8906DC8BADB659066BB8AEC08009002C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +465,8 @@ magnet:?xt=urn:btih:5C7E5EA8906DC8BADB659066BB8AEC08009002C0
 magnet:?xt=urn:btih:DA310CD93E60B012002E4EE804B97D86B96E026D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +490,8 @@ magnet:?xt=urn:btih:DA310CD93E60B012002E4EE804B97D86B96E026D
 ```bash
 magnet:?xt=urn:btih:7C0DF230C0A4E6C1F00EB72C38C8218C37FEF87D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +517,8 @@ magnet:?xt=urn:btih:7C0DF230C0A4E6C1F00EB72C38C8218C37FEF87D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +542,8 @@ magnet:?xt=urn:btih:7C0DF230C0A4E6C1F00EB72C38C8218C37FEF87D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +569,8 @@ magnet:?xt=urn:btih:7C0DF230C0A4E6C1F00EB72C38C8218C37FEF87D
 magnet:?xt=urn:btih:D517A3F680C8BBA559A24157D9EA4BAF59FC3030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +594,8 @@ magnet:?xt=urn:btih:D517A3F680C8BBA559A24157D9EA4BAF59FC3030
 ```bash
 magnet:?xt=urn:btih:70EAB5AF76169D5A4BA9AF5FED08045B7512F9AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +621,8 @@ magnet:?xt=urn:btih:70EAB5AF76169D5A4BA9AF5FED08045B7512F9AA
 magnet:?xt=urn:btih:C5574BADDFCE1A140B86D4ECB6F5D5803AF0627C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +647,34 @@ magnet:?xt=urn:btih:C5574BADDFCE1A140B86D4ECB6F5D5803AF0627C
 ```bash
 magnet:?xt=urn:btih:C35B51C20DB027D44EE83148166495ACBC74BD53
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489439   (925180) от 16.08.2021
+
+Город головорезов / Cut Throat City (2020) BDRip [H.265/1080p] [10-bit]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_925180.jpg" />
+</div>
+
+
+###  Подробнее
+
+2005 год. Четверо друзей возвращаются в разрушенный и пострадавший от урагана Катрина девятый округ Нового Орлеана. Очень скоро они осознают, что теперь у них могут возникнуть сложности с работой. Поэтому им ничего не остаётся, как обратиться за помощью к местному гангстеру, который нанимает их для совершения ограбления казино прямо в центре города.Производство: США / Rumble Riot Pictures, Patriot PicturesЖанр: Боевик, триллер, драма, криминалРежиссер: RZAАктеры: Шамеик Мур, Деметриус Шипп мл., Дензел Уитакер, Киан Джонсон, Уэсли Снайпс, Кэт Грэм, Ти-Ай, Терренс Ховард, Роб Морган, Эйса Гонсалес, Итан ХоукПеревод: Дублированный (iTunes)Язык озвучки: Русский, английскийСубтитры: Английские (Full, SDH)Продолжительность: 02:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:411E3424107DCF7BBE4ADDF22CD4B8AD5FA40B61
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

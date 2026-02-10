@@ -1,3 +1,32 @@
+###  Публикация: 776897   (816505) от 13.04.2014
+
+VA - Lounge At The Seashore 9 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_816505.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. New Edge - Solstice (feat. Iva from White Slaver)
+002. Koan - Tears of Thunder Spirit - Blue Mix
+003. Tycho - Dye
+004. Adil Ahanu - Long Desert Ride(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5C3B7908136F124F0B59DEA28650044CE3D8028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117746   (816634) от 23.03.2017
 
 VA - Rock Collection 1999 (2017) [MP3|320 Kbps] <Rock, Metal>
@@ -21,6 +50,8 @@ Disc 01:
 ```bash
 magnet:?xt=urn:btih:A2F5589CD7DA9A7FC1E3FC1DCE71420D08EF1E50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VА - Dіsсо 80's (2015) [MP3|320 Kbps] <Disco, Dаnсе>
 magnet:?xt=urn:btih:AC3F1EE79078DA5751D327824BC8AF2E61F19815
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ Disc 01:
 ```bash
 magnet:?xt=urn:btih:D4F243A46C68D6787E5665883372ADFECF1BC09B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Digital Aerobic Music (2016) [MP3|320 кб/с] <Dance, Electro, House>
 magnet:?xt=urn:btih:8CAF49BEB869F8DE3B342E9806333C80F6D26CC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Deep House Collection Vol. 113 (2017) [MP3|320 Kbps] <Deep House, Club Hous
 ```bash
 magnet:?xt=urn:btih:58543E08E6784767A284680573431A7296EAAF28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Этой ночью. Сборник хитов от Радио Динами
 magnet:?xt=urn:btih:95D57577F55FAF40F4CA09815B1C1A91F4490EB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ magnet:?xt=urn:btih:95D57577F55FAF40F4CA09815B1C1A91F4490EB0
 ```bash
 magnet:?xt=urn:btih:CEAFBB148F64FA97513A672AB469F2C1B0BA9300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ Dieter Bohlen & Blue System - Threemixed (The Remix Album) (2008) [MP3|320 Kbps]
 magnet:?xt=urn:btih:931EB5B3222FF10EF5B2C670292CED01206C65C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ KSHMR - The Best (2017) [MP3|320 Kbps] <House, Dutch, Electro House, Progressive
 ```bash
 magnet:?xt=urn:btih:712F871B07B2213CCA4B54085A396B6CA06CC359
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ Eddy Clearwater - 30 most slow Blues (2017) [MP3|256-320 Kbps] <Blues>
 magnet:?xt=urn:btih:FB2A6345932D0B476187018109C31470D0985BD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Лучшая дискотека на Europa Plus выпуск № 4 (2017) 
 ```bash
 magnet:?xt=urn:btih:2CE9352D7592679522EC80092D37420B753CC958
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Dream House (2020) [MP3|320 Kbps] <House, Electronic>
 magnet:?xt=urn:btih:2EE119A73F38E71112E73568DD8B654BAC4D566C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - The Jazz Story (2017) [MP3|320 Kbps] <Jazz, Jazz-Pop, Vocal>
 ```bash
 magnet:?xt=urn:btih:EB1E59A8FFBB36701EE8A1E85DFEE496C353A7CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Шальной шансон в дорогу. Часть № 2 (2017) [MP3|2
 magnet:?xt=urn:btih:C4D5327A07659FA276C5E32656F3EA6744E8E747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ Mr. Zivago - Best Of (2017) [MP3|320 Kbps] <Italo-Disco, Hi-NRG>
 ```bash
 magnet:?xt=urn:btih:38E7AE98058B748363E7972F85BC47B0B6309635
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - Любимые песни на радио Шансон выпуск № 3 (
 magnet:?xt=urn:btih:5C4DDD082C4ABD4783095855C542041E498BF36E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ VA - 100-ка популярных весенних хитов на Europa Plus 
 ```bash
 magnet:?xt=urn:btih:185F879C53B0C266866033F45A1FBB52D22698CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ VA - Весенние заводные хиты (2017) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:10AE26D7D1D6CB089BF860FA0005693DD0B4B3E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ Linkin Park - Celebrate Life in Honor Of Chester Bennington (2017) Live from Hol
 ```bash
 magnet:?xt=urn:btih:46A5CB78DC8170EEA9E3D50C95EFAC942BD081F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ VA - Empire Records - Dancenudisco 13 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Di
 magnet:?xt=urn:btih:6B40CA0EFF226C6D3574ADADC45D0D34D13AC73D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ VA - German Top 100 Single Charts (17.03.) (2017) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:A265754CD8BD90C1D1C6254A358F8A06FF3164F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ VA - Empire Records - ANDRS Parody 3 (2017) [MP3|320 Kbps] <Club, Dance>
 magnet:?xt=urn:btih:268A023B3DDC38994F5E34BCBBF4EA29C4E8B60A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ VA - Вечеринка на радио Шансон выпуск № 6 (2017) [
 ```bash
 magnet:?xt=urn:btih:7807969DDC1DC9958D2AC203A611CD1714D14578
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ VA - Отдыхаем душой на стильном радио Шансон �
 magnet:?xt=urn:btih:4810AA6657D83E5D8CE02B5F347CEAE918A1A744
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ VA - Miami Nights Trance Party (2017) [MP3|320 Kbps] <Dance, Club, Trance>
 magnet:?xt=urn:btih:CB49958E4EF21C8335CF059BEEC751CAB25DCD53
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117241   (817187) от 23.03.2017
-
-VA - Музыкальный презент хорошей музыки от Европы Плюс. Версия № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817187.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Катя Блейри - Мой Бой 3:57
-002. Миля - Выбирай Любовь 3:55
-003. Катя Ростовцева - Целуй 3:55
-004. Aisha - Взгляд 3:19(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A421ED6FD04469A2628AF98E28370BF2EF81925C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

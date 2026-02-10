@@ -19,6 +19,8 @@ Color Finale - плагин цветокоррекции от Color Grading Cent
 magnet:?xt=urn:btih:2AF811CA8A38D4E23E0FD0E8D8064254984C407D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Swapper — это 2D платформер, в котором предсто
 ```bash
 magnet:?xt=urn:btih:C68D7250868615A71FBD87F3A642BE37E87AAD97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:C68D7250868615A71FBD87F3A642BE37E87AAD97
 magnet:?xt=urn:btih:319A88F725F1C781B9A1DA84FB6F4A697D30FD42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:319A88F725F1C781B9A1DA84FB6F4A697D30FD42
 ```bash
 magnet:?xt=urn:btih:FE47F0764540F31616053BE599EDF68E90B8DF7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Adobe Media Encoder CC 2017 - это программа кодирования, 
 magnet:?xt=urn:btih:EF529D746A051F5B7C490B68A4392C24DDE77437
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:EF529D746A051F5B7C490B68A4392C24DDE77437
 ```bash
 magnet:?xt=urn:btih:AE89574D14C0D8C0723BE541D32027FA99CF6715
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:AE89574D14C0D8C0723BE541D32027FA99CF6715
 magnet:?xt=urn:btih:0658672718A25BF0ADCEF597E229DD1FEB3D3039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Lara Croft GO – пошаговая головоломка, главной ге
 ```bash
 magnet:?xt=urn:btih:002AA3D34319F22D19D376AC9B5B7886079471CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:002AA3D34319F22D19D376AC9B5B7886079471CD
 magnet:?xt=urn:btih:AA93C9B5F3CAD905D172CFA860355ACEF8AB1D06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:AA93C9B5F3CAD905D172CFA860355ACEF8AB1D06
 ```bash
 magnet:?xt=urn:btih:2F6A09F2CA79AF4A276EF9E5838E2295F863059F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Adobe Audition CC 2017.0.1 10.0.1.8 Portable by punsh [Multi/Ru]
 magnet:?xt=urn:btih:A7EA2A1D03615ABEBAEF9C84883E95997C4854DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:A7EA2A1D03615ABEBAEF9C84883E95997C4854DB
 ```bash
 magnet:?xt=urn:btih:B89226A60CEAC751514140EF932362BEC76DBF18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Smokie - 9 Albums (1975 - 1982) Remastered, 2016, Sony Music [FLAC|Lossless|imag
 magnet:?xt=urn:btih:DB5A81AFF387EBBF5AEEC277C28DA09312F63352
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:DB5A81AFF387EBBF5AEEC277C28DA09312F63352
 ```bash
 magnet:?xt=urn:btih:60286D555969116844B8F1CDE28DE5916E589F32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:60286D555969116844B8F1CDE28DE5916E589F32
 magnet:?xt=urn:btih:B91603914A40A3E48CE423A855DA2CEFE79FDAD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:B91603914A40A3E48CE423A855DA2CEFE79FDAD6
 ```bash
 magnet:?xt=urn:btih:70356BF6C59FCB397DB8C5794EB4021EF7467B52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:70356BF6C59FCB397DB8C5794EB4021EF7467B52
 magnet:?xt=urn:btih:20F1C4BF3B50C4315F39F5DC9C0B2FDB50D7B8B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ recALL - бесплатная, простая и лёгкая в использ�
 ```bash
 magnet:?xt=urn:btih:F6C24B92A31B35980F0EC45659662A738CAAF694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:F6C24B92A31B35980F0EC45659662A738CAAF694
 magnet:?xt=urn:btih:2EE95DFA050EAE6562FD2F1BC7192E4BD13D085B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:2EE95DFA050EAE6562FD2F1BC7192E4BD13D085B
 magnet:?xt=urn:btih:FF9700667D1C108DA5F752580D9092947AFF8F1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:FF9700667D1C108DA5F752580D9092947AFF8F1B
 ```bash
 magnet:?xt=urn:btih:EAC98E5E96726B47D74C773D7761461041824C78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:EAC98E5E96726B47D74C773D7761461041824C78
 magnet:?xt=urn:btih:A1BEC0253DE12F6A48CF4DE7B8FCCB59681919B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:A1BEC0253DE12F6A48CF4DE7B8FCCB59681919B5
 magnet:?xt=urn:btih:AD407768BD0ADE7A2F19CD1E52403FBD1CEB8238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:AD407768BD0ADE7A2F19CD1E52403FBD1CEB8238
 ```bash
 magnet:?xt=urn:btih:C4D1B44F67505C0D4E4B26424D657F76871518FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Rockets -Pi 3,14 (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electro, Synth
 magnet:?xt=urn:btih:72FA5930D05C0F7141A0157059789542E01A67DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:72FA5930D05C0F7141A0157059789542E01A67DD
 ```bash
 magnet:?xt=urn:btih:1B6A3B4DA40826D48818041759D5EC83AD0D44A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

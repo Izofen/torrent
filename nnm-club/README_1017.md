@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:D954B9A1BB93764FAA3DA4ECDBE2CE5FBDC09BA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Fight School Simulator (2024) [Ru/Multi] (build 17408091) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F10044D773351EB5DF6C23920C909E5B626C0C45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:F10044D773351EB5DF6C23920C909E5B626C0C45
 magnet:?xt=urn:btih:A91FD2586961AA2A5783043D2841C1FD9BC2313D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:A91FD2586961AA2A5783043D2841C1FD9BC2313D
 ```bash
 magnet:?xt=urn:btih:964F502E4BB50285142F6C31EB23648751839CFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:964F502E4BB50285142F6C31EB23648751839CFF
 magnet:?xt=urn:btih:3C8318849629C10F5A1BCA8AA887DB94D356398F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ CamScanner - Мощное приложение для сканирования. 
 ```bash
 magnet:?xt=urn:btih:1329B58CB0216FE1E2ED57E6C9D073C2E050B0C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ While Waiting (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:CFD9D7D5856C1D31070FD3FC055960F8971C570B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:CFD9D7D5856C1D31070FD3FC055960F8971C570B
 ```bash
 magnet:?xt=urn:btih:BC2584ABB75BC0881A06F73450D2953C677C8F72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Instruments of Destruction (2024) [Ru/Multi] (1.11c) License GOG
 magnet:?xt=urn:btih:F8AD194B15BAEFFEA3B210EFCEB436E1C8985BF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:F8AD194B15BAEFFEA3B210EFCEB436E1C8985BF0
 ```bash
 magnet:?xt=urn:btih:AB4DE93A03EC90EFA643AD3F545BFBD40056F616
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Ventoy - это инструмент с открытым исходным код
 magnet:?xt=urn:btih:9833DEC7D0306FC0C12315E7129B81098166684C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:9833DEC7D0306FC0C12315E7129B81098166684C
 magnet:?xt=urn:btih:5E794C54B61EDDE3C9E836DD2E3510F2999CE61D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Turbo Overkill - динамичный жесткий шутер от перво�
 ```bash
 magnet:?xt=urn:btih:CEADB74E27C664BEACA76322D19130F9573C2BB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ Krokus — ветераны швейцарского хард-рока, доби
 magnet:?xt=urn:btih:36191156D31ECFBE2EB0B798960BC13D2419022B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:36191156D31ECFBE2EB0B798960BC13D2419022B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:293F258764B61B655D0CE5252FCD968AB75C608C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:293F258764B61B655D0CE5252FCD968AB75C608C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:293F258764B61B655D0CE5252FCD968AB75C608C
 magnet:?xt=urn:btih:4C9BD589ACDAAD17C4FB704ADD76C6CB16A9446E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Discolored 2 (2025) [Ru/Multi] (1.3.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:D92F766EC76074C62B3AA5512C2C6E854479AFAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:D92F766EC76074C62B3AA5512C2C6E854479AFAB
 magnet:?xt=urn:btih:AA11D0E825BFF197C275A59F1516D00E40BC8C2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:AA11D0E825BFF197C275A59F1516D00E40BC8C2C
 ```bash
 magnet:?xt=urn:btih:567C1A2F8173F4A9270BA544A338F67B5118471B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:567C1A2F8173F4A9270BA544A338F67B5118471B
 magnet:?xt=urn:btih:6CC5BFE2B978500417A524DA834BAFA2187655D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ Dino Crisis 2 (2002) [Multi] (1.0hf2) License GOG
 ```bash
 magnet:?xt=urn:btih:E9851D25636A140856A8D33151C0E1C9D485CEE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:E9851D25636A140856A8D33151C0E1C9D485CEE5
 magnet:?xt=urn:btih:5127B77A8AE55DFBF95E43C8794576918589927F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ MiSide (2024) [Ru/Multi] (0.93) Repack EXROW
 magnet:?xt=urn:btih:037A8BD6F0C2CE1C83A988446BC541D96A98E4E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:037A8BD6F0C2CE1C83A988446BC541D96A98E4E3
 ```bash
 magnet:?xt=urn:btih:E9D270DA8747C8AEEA8368A92D6F693BC0BB2ACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

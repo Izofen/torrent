@@ -19,6 +19,8 @@ Apowersoft Video Download Capture 6.5.6.1 RePack (& Portable) by elchupacabra [M
 magnet:?xt=urn:btih:1D173DA3FD7D98FFEC21952BE6385C50B49A73DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ GPS Compass Navigator v2.20.28 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:36C821E4271B8E8411ADA6419A5DC9E62FBA977D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NewPipe v0.27.6 Free + Mod by Alex.Strannik  [Ru/Multi]
 magnet:?xt=urn:btih:431C58F13D9640EF532F57FFE7C8EEC35A0BFFA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Far manager — бесплатный файловый менеджер с под
 ```bash
 magnet:?xt=urn:btih:7BEFB0DB58ABD215FE4A5C53EB3F2677BD0D2299
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Ventoy - это инструмент с открытым исходным код
 magnet:?xt=urn:btih:222EEFBDADBD3242CE306A668E653CDDE66132C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ SketchUP Pro - является профессиональной версией 
 ```bash
 magnet:?xt=urn:btih:EDEF3B55912CD631A1901809F363196AA1FF2CE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Music Collection - неплохая программа для создания �
 magnet:?xt=urn:btih:D60CAFE8D3DC7C853AD40B8D985342DEFEB8CB5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Shazam (шазам) распознает любую песню за секунд
 ```bash
 magnet:?xt=urn:btih:7D13C8A3B8B7ADCB550FDD0773F49D5BC15A98CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Polarr v6.10.7 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:0A919E6068301B7637D00E38562B7CFC4850BD36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:0A919E6068301B7637D00E38562B7CFC4850BD36
 ```bash
 magnet:?xt=urn:btih:8D674A83BE941A2F21B28B4186064557EBB3E369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ XYplorer – удобный многовкладочный файловый ме
 magnet:?xt=urn:btih:383E13B024F65188C319096F382890BBA4DB6187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:5864C9CF95E7D6C6219597FD1BBBCB7D5B486E83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Opera One 117.0.5408.53 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:E5DF3C9D2133D20AFE5D8B3B8EC98F3AF060AB62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ R-Drive Image — является эффективной утилитой дл�
 magnet:?xt=urn:btih:63E194BD7D2AC5FA2DEEC5040AC3BBD186F1C7C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ R-Drive Image — является эффективной утилитой дл�
 ```bash
 magnet:?xt=urn:btih:7B06B8A01083932889444ACB3E0E43B10DC8F579
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Multi Commander - мощный многооконный менеджер фай�
 magnet:?xt=urn:btih:1C324A92B4A8C4AB94C94898B7E6D4FDD2AF786D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Capture One - один из лучших профессиональных кон
 ```bash
 magnet:?xt=urn:btih:B93D1821C3C25E68A646D359524246358A827118
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Joplin - это бесплатное приложение с открытым и
 magnet:?xt=urn:btih:D4A8FFC22D42266EB04AF9A0D66FBFA6389B226B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:0CED38AA1D6790C47551DEE9FCBDAC870E0BDDD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Attribute Changer - простенькая утилита для удобног�
 magnet:?xt=urn:btih:52C54D53BE574DB43B398651077EFDDA879C45FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Hard Disk Sentinel — отличная программа для монитор
 ```bash
 magnet:?xt=urn:btih:C28B12B0F02068AAC125D9D62852E20E5C90BA79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 magnet:?xt=urn:btih:3657C3482BED7D69A2AAC6AC233950BA3A0B1760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Driver Store Explorer — это легкий инструмент, которы
 ```bash
 magnet:?xt=urn:btih:6430E7D5A8C74F1C47AD464CD09F454FF5AC4D0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Blender - бесплатный редактор трехмерной графи�
 magnet:?xt=urn:btih:21E3321B5C0A61E2DD3CFCD81FE377ADF22B2A60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Snappy Driver Installer Origin (SDI Origin) - главная ветвь порт
 magnet:?xt=urn:btih:8B90F9D6335727DE13C3BD7D1A27A3C6F703DD14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:F53EB2C00AC0B64332150326C6609AD56208B1C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

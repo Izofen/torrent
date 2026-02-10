@@ -1,3 +1,32 @@
+###  Публикация: 978287   (959599) от 26.01.2016
+
+VA - Blues Forever vol.01 - vol.04 (2015) [MP3|320 кб/с] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_959599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Red Rooster - Little Darling
+02. Anni Piper - Untrue
+03. Steve Pryor Band - Moving Me
+04. Big Bad Voodoo Daddy - Maddest Kind Of Love(   Читать дальше...   )Жанр: BluesПродолжительность: 05:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F45D8E95C8C5A7355E1E886E5C3B23B916DAFE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 855633   (959639) от 03.01.2015
 
 W.A.S.P. - All ballads (1982-2012) 2CD Bootleg [MP3|320 кб/с]<Heavy Metal>
@@ -21,6 +50,8 @@ W.A.S.P. - All ballads (1982-2012) 2CD Bootleg [MP3|320 кб/с]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:7EA97CFAECF07A57B0976B24F042FD741D50B693
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Зимняя 100-ка Популярных Треков (2016) [MP3|256 к�
 magnet:?xt=urn:btih:FBE9014694044E490120935A9D6A18EA9522641D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Cafe Italiano, Vol. 1 (2016) [MP3|320 кб/с] <Nu Jazz, Lounge, ChillOut>
 ```bash
 magnet:?xt=urn:btih:285EFC7AA29A63A5E1B1CFC42388FBF5F1884803
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Hot Eurodance Party (2016) [MP3|160-320 кб/с] <eurodance, pop, house>
 magnet:?xt=urn:btih:E0D6DBF7EAF576D12F6BF59ABB7357F7384788D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ Robyx Party - Long Single Mix 1990 Mix Part 1-2 (2016) [MP3|320 кб/с] <Italo-
 ```bash
 magnet:?xt=urn:btih:711A81BEC9494F4133BBD41E107EDB52A4D08206
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +202,8 @@ VA - Romantic Blues Collection Vol.4 (2013) [MP3|320 кб/с]<Pop,Blues>
 magnet:?xt=urn:btih:18B4D6F7D46D39E63FAFD8E597D0E993953007B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ VA - Sunrise Avenue Vol.8: 20 Lounge and Chill-Out Pearls (2016) [MP3|320 кб/�
 ```bash
 magnet:?xt=urn:btih:CEEDBFFE075FF31C76803724EDB39476461892A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +260,8 @@ VA - Consciousness Determines Reality (2016) [MP3|320 кб/с] <Psy, Goa Trance>
 magnet:?xt=urn:btih:59BFC782174E8EAB79A4C1BEA60FF07BB4F6931A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +288,8 @@ VA - Restart The Game (2016) [MP3|320 кб/с] <Tech, Deep, Progressive House>
 ```bash
 magnet:?xt=urn:btih:CA26AFE56DCE1BA4E4E98E6DCF6F6C2AE9CAB930
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +318,8 @@ VA - Громкие новинки Февраля (2020) [MP3|320 Kbps] <Pop, Da
 magnet:?xt=urn:btih:A67ACCC173C5C0DEEBAE96227D67BC581D3463BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +346,8 @@ VA - Rap NNM 2020 [MP3|320 Kbps] <Rap>
 ```bash
 magnet:?xt=urn:btih:5493A3DF4D8E3C48AD2E7EC124486111A17C2E8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +376,8 @@ Blues Forever vol.09
 magnet:?xt=urn:btih:A91F0671A7CD60154B0157B433523FBA3B6CA2CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +404,8 @@ magnet:?xt=urn:btih:A91F0671A7CD60154B0157B433523FBA3B6CA2CF
 ```bash
 magnet:?xt=urn:btih:C8390386D23705F24A0D00B8AF208FD70C695419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +434,8 @@ VA - Зимний Муз-драйв 100-ка популярной музыки (
 magnet:?xt=urn:btih:126BB984306825319E14C44DA370626654966C95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +463,8 @@ Accept - Heavy Ballads (2015) 2CD [MP3|320 кб/с]<Heavy Metal>
 magnet:?xt=urn:btih:76DFAC8E80D7E9B23E03C80590BECFA2DE7A5CD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +488,8 @@ VA - Музыка любви - 5CD (2008) [MP3|320 kbps] <Other, Romantic>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +518,8 @@ VA - Bass House Grooves Sense (2016) [MP3|230-320 кб/с] <Dance, Club House, E
 magnet:?xt=urn:btih:3FCD1C35E9F86F09CC919000B713118A84524D35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +546,8 @@ VA - Indie Dance: Disco Elixir (2016) [MP3|320 кб/с] <Funky House, Nu Disco, 
 ```bash
 magnet:?xt=urn:btih:308B318C26DF8031AD3930C44BA6B3BE3673D647
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +576,8 @@ VA - Sound Golden Sand: Relax Session (2015) [MP3|320 кб/с] <Chillout, Lounge
 magnet:?xt=urn:btih:DE5101426A6D902D233852C26705EA4633B8F19E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +604,8 @@ VA - I Love House Music 2016: The Finest and Deep House Music Collection (2016) 
 ```bash
 magnet:?xt=urn:btih:85F0C086E1C6B4401BC35D15B5E8D06F9CFEF315
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +635,8 @@ VA - The Official UK Top 40 Singles Chart (19-01-2014) [MP3|320 кб/с]<Pop, Da
 magnet:?xt=urn:btih:8EB208371828AAE09321F2321F91624099FAA33B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +663,8 @@ VA - Rock & Pop Ballads Collection от ALEXnROCK Часть 1 (2020) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:FA241195D9D3605C84D46CA4C7EBC49531679209
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +693,8 @@ VA - ЕвроХит Топ 40 Europa Plus 14.02.2020 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:F7B2B368A9B43F950F9F3AC6A39BD1B187D96C9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +721,8 @@ VA - не Громкие новинки недели 55 (2020) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:007C25FEF577B36CF81E3A15F1F46D3D7AE5A5B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -674,32 +751,7 @@ VA - Unlimited Love (2020) [MP3|320 Kbps] <Pop, Rock>
 magnet:?xt=urn:btih:9C371EBAA785555A2D3D319CC1542DC386B60D58
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978567   (962037) от 24.01.2016
-
-VA - Дискотека 80-90 годов по - новому от Виталия 72 - ( Зарубежный выпуск - 22 ) (2016) [MP3|223 - 320 кб/с] <Eurodance, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_962037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fancy - Flames Of Love (05:16)
-02. Mr.Zivago - Little Russian (Brasil Import RMX) (06:13)
-03. Joy - Japanese Girls (Sky Mix) (06:14)
-04. Al Bano Romina Power - Felicita (Dj ViTar Reboot Mix) (03:51)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:072454122428B51BB7F0ACE41CF956BB5947E3BE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

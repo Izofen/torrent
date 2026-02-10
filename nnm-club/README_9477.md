@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3B0B111C85F44EC0DC6EF093F59F24A959FAF2AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Google Chrome 47.0.2526.73 Enterprise [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:629178F66AE9B9AADBEBBD2856BAD83DAD827DC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:629178F66AE9B9AADBEBBD2856BAD83DAD827DC1
 magnet:?xt=urn:btih:BE85261CE004580561D6F86F55BA128384BC04CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:BE85261CE004580561D6F86F55BA128384BC04CC
 ```bash
 magnet:?xt=urn:btih:DD14FB56B96329F9CB761C8139C392489546C85D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Piano Concerto no.5 in E flat major op.73 "Emperor"
 magnet:?xt=urn:btih:3FE1F02E39A33989A577348DC49208AC031710A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Sketch от Bohemian Coding — один из лучших векторных р
 magnet:?xt=urn:btih:495E69F62BEA16B03017C5ED14BE05CEE7770F72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:495E69F62BEA16B03017C5ED14BE05CEE7770F72
 ```bash
 magnet:?xt=urn:btih:7B003C3AD44873E6ED4E7800CC81655A6360EE2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ V Фестиваль Ленинградского рок-клуба. Ленин�
 magnet:?xt=urn:btih:387258F4FCDAE1F93EB351B96874EDCE0E152EEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:387258F4FCDAE1F93EB351B96874EDCE0E152EEF
 ```bash
 magnet:?xt=urn:btih:C48418F0361FAF4325982F225462D75BC3370163
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Robin Barrett & Coyote Kings - Howl (2015) [MP3|320 кб/с]<Blues Rock>
 magnet:?xt=urn:btih:AB481FA3F052472B52E53FEAEEB98CD5CDEFEFB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ VA - Beauty In Darkness Vol. 1-7 (1996-2004) [MP3|176-320 кбит/c]<Gothic, Ro
 magnet:?xt=urn:btih:D087B4F091FC3D1ABD98F0A5141A72A064BEDA5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:D087B4F091FC3D1ABD98F0A5141A72A064BEDA5E
 ```bash
 magnet:?xt=urn:btih:B67C1D55422B918AA6F5FA41AE93905E4CFCCD5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:B67C1D55422B918AA6F5FA41AE93905E4CFCCD5B
 magnet:?xt=urn:btih:F54FC00DE0F7306767BD89B3411EAF795B2C62C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:F54FC00DE0F7306767BD89B3411EAF795B2C62C1
 ```bash
 magnet:?xt=urn:btih:29A9743C3C1E1399E53AED56C416C7BF13791C12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:29A9743C3C1E1399E53AED56C416C7BF13791C12
 magnet:?xt=urn:btih:AC743DE2224A6F78A4CA08B17FDBCDEB3ED4C3C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ Money Wallpapers (06.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:D4361E3F8A81E2DDA010DC51F46C96D23301EEE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ VA - Interchill Records presents: Compilations Collection - 25 Releases (1997-20
 magnet:?xt=urn:btih:9206E509BD8F0BC0EBA46EB01A93A1D7A9116F69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:9206E509BD8F0BC0EBA46EB01A93A1D7A9116F69
 ```bash
 magnet:?xt=urn:btih:1EA9C2CC86CA942A52D46893E488EBF31EB46C3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ VA - Abora 200 Timeless Favorites (Mixed By Ori Uplift) (2019) [MP3|320 Kbps] <U
 magnet:?xt=urn:btih:D18FA54CCE4C8346691D30B8E6C256E1158CAA44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:D18FA54CCE4C8346691D30B8E6C256E1158CAA44
 magnet:?xt=urn:btih:9169183E8D4A41EB13B3921726F893FCDBE011AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:9169183E8D4A41EB13B3921726F893FCDBE011AC
 ```bash
 magnet:?xt=urn:btih:426ECBDCF1B1234C25606FD50819932CC681725C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:426ECBDCF1B1234C25606FD50819932CC681725C
 magnet:?xt=urn:btih:FDCF5EA54EE8A8CE6E947D8097390B9E8549B07F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ Van Morrison - Three Chords And The Truth (2019) [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:CA78D8B119EC826AAC8B858E6E15CA8CBF075039
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ VA - German Top 100 Single Charts 25.10.2019 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:B888D45EFA4DF5090CC199933F60A47769BE9B6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ VA - не Громкие новинки недели 40 (2019) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:852DD3C2518B55839BF5FB5189A97D27C1565F0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:852DD3C2518B55839BF5FB5189A97D27C1565F0E
 ```bash
 magnet:?xt=urn:btih:0493A8AAD86A60794B4AEB9F7FBB9A04F5F53725
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ A4 Gymnopodie No. 1(   Читать дальше...   )Жанр: Prog Rock, Inst
 magnet:?xt=urn:btih:566A2DD5A1B85B65F78EE5739A9AA3A81A0E131C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ A4 Vegvari Adam, Csepregi Eva - Elso Szerelem(   Читать дальше...   
 ```bash
 magnet:?xt=urn:btih:F8EFA58768DB0371AAB8611CE71AAF0E67C9359E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Slayer — американская метал-группа. Коллектив 
 magnet:?xt=urn:btih:1DD796BA825238F446AACC471E3AC304C20DB4E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:1DD796BA825238F446AACC471E3AC304C20DB4E7
 ```bash
 magnet:?xt=urn:btih:1F9152FEA6FA7194A80CEAA962B55981D0CC2995
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Imagine Dragons - Evolve (2017) [DSD 2.0|5.6448/1|tracks|Vinyl-Rip] <Rock, Pop>
 magnet:?xt=urn:btih:0EC6EF873D8750BC59803B59868FF5D4E2CC0C2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ magnet:?xt=urn:btih:0EC6EF873D8750BC59803B59868FF5D4E2CC0C2A
 magnet:?xt=urn:btih:6C85E45CB0746064ABBBAC8DF74572FBA2AD9E98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ Paul Mauriat And His Orchestra – Gone Is Love (1970) [DSD128 2.0|tracks|Vinyl-
 ```bash
 magnet:?xt=urn:btih:9B6E43B331867D0BA3FC1D0AEDE3B06D1F0B71CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ magnet:?xt=urn:btih:9B6E43B331867D0BA3FC1D0AEDE3B06D1F0B71CC
 magnet:?xt=urn:btih:3C1ED3739AAD88257D9482A2DC2525664EF9AF68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +256,8 @@ Muse - 4 Альбома (2001-2012) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Alternat
 ```bash
 magnet:?xt=urn:btih:11B96F35161B6272AF4CDBE00057B47C5CDCCEF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +286,8 @@ A3 Sgt. Pepper's Lonely Hearts Club Band(   Читать дальше...   )Жа
 magnet:?xt=urn:btih:ED79CAA200AAA39DE6A04C1F3E3CB96C0EB7126A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +314,8 @@ A3 From Me To You(   Читать дальше...   )Жанр: Beat, Pop RockП�
 ```bash
 magnet:?xt=urn:btih:43605E3D08B535E30D60EEEFB531B46D092426FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +344,8 @@ A4 Jeden Abend(   Читать дальше...   )Жанр: Art Rock, Krautrock�
 magnet:?xt=urn:btih:95D3BCDADD3CAACA5CA9B3EB783667458A8E77B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +372,8 @@ A4 God Bless The Child(   Читать дальше...   )Жанр: Jazz, Blues�
 ```bash
 magnet:?xt=urn:btih:313CBB8C30B09244837A7887109597C4D942DA18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +402,8 @@ A4 Can't Stand It Any Longer(   Читать дальше...   )Жанр: Pop Ro
 magnet:?xt=urn:btih:1B7CD35271646095C8214DB499F06230FD7BE04D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +431,8 @@ A Stranger In Town (Dance Mix)
 magnet:?xt=urn:btih:B50D1736179C1208ADABB4B60D83FBA6B8EEB0D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +459,8 @@ A4 Believer (Верящий)(   Читать дальше...   )Жанр: Heavy 
 ```bash
 magnet:?xt=urn:btih:1093B42A25CC5F36E0B57C13CFDA653138B1FFB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +495,8 @@ magnet:?xt=urn:btih:1093B42A25CC5F36E0B57C13CFDA653138B1FFB4
 magnet:?xt=urn:btih:D17C48478FBE2982789BCD16BE921A53BD36BEA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +530,8 @@ Pink Floyd - Delicate Sound Of Thunder (2 LP) (1988) [FLAC 2.0 24/192|traks(Vini
 magnet:?xt=urn:btih:1BD4DEFB6EB1687BA4A15514A3D0CD7F0060A206
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +558,8 @@ Deep Purple - Turning To Crime (2021) [DSD128 2.0|tracks|Vinyl-Rip] <Rock, Blues
 ```bash
 magnet:?xt=urn:btih:E52485D1D1AD75EF62EDA57DA58A8CA405BE2FB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +588,8 @@ B1 Something In The Air (Album Mix)
 magnet:?xt=urn:btih:7F438428D44C3DCE881E4A56F966E3AA90ABFDB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +617,8 @@ Metallica - Master Of Puppets (1986) [WavPack 2.0|192/32|image + .cue|Vinil-Rip]
 magnet:?xt=urn:btih:6D29BC2D7BE47F2CAF87841F007B6A668FA38004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +644,8 @@ CD2 - Queen Of The Damned (songs by Jonathan Davis)Жанр: Stage & Screen, Nu 
 magnet:?xt=urn:btih:DA11032AC2BC113E20A228B5C04D805E31CA55F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +669,8 @@ Coldplay - 4 альбома (Vinil-rip 24 Bit/96 kHz) (2000-2008) [FLAC|Lossless
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +699,8 @@ Coldplay - 4 альбома (Vinil-rip 24 Bit/96 kHz) (2000-2008) [FLAC|Lossless
 magnet:?xt=urn:btih:9A7395FFA3B85F4B35EF0A61B6A5B9978631B551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -680,6 +728,8 @@ Rush - 2112 (2012) 1976 [FLAC 5.1|96/24|tracks|Lossless|DVD-Audio] <Hard Rock, P
 magnet:?xt=urn:btih:587279EA375FC12967CCED75CC7B983A7B8D065B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -706,6 +756,8 @@ A4 FG-4(   Читать дальше...   )Жанр: Pop RocПродолжите
 ```bash
 magnet:?xt=urn:btih:64ACA1696805481EE1B2777631F7653EDB5CF05B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ NGW: Тайна Морского Дьявола / Manta Mystery (2011) HDTV [H.2
 magnet:?xt=urn:btih:62F771B20384A4195829F7482D56315B9F1663F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NGW:Дикая Ботсвана: Братство львов / Wild Botswana: Li
 ```bash
 magnet:?xt=urn:btih:D47C853A298404518F00E4D0676AD4D75232A4D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG. Скрытые тайны городов: Баку / Hidden Cities Revealed:
 magnet:?xt=urn:btih:36E1D506430F4E476F1F1C368D6EAD724545F492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NGW: Африканская суперзмея / Africa's Super Snake (2017) HDT
 ```bash
 magnet:?xt=urn:btih:15E29EF0BB5CB38700A38BAD5BDFA74B1DB7612C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NG. Осушить океан / Drain the Oceans (2018) WEB-DL [H.264/1080p] (1 
 magnet:?xt=urn:btih:DEAA4ECDBCBADE7288D61CC2432020D9E8AFBA52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG. Солнечный фараон Египта: тайны и сокровищ
 ```bash
 magnet:?xt=urn:btih:A818229708ABC33B46DE3DEBE75B9E9442744B72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NGW: Каждый тигр на счету / Counting Tigers (2019) HDTVRip [H.2
 magnet:?xt=urn:btih:05916DCFC12B86D95E1D32429F7AD57E5BFB3387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:05916DCFC12B86D95E1D32429F7AD57E5BFB3387
 ```bash
 magnet:?xt=urn:btih:A5B14431FE04EC23A34A07A770DEDD98A28BDCD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NG. Открытие потерянной могилы Ирода / Uncovering H
 magnet:?xt=urn:btih:951F216581E7C46A8BCF33B77276806460E356AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ NG: Международный аэропорт Дубай. Серия 5 / Ultim
 ```bash
 magnet:?xt=urn:btih:947A19C9EB2DF8DD77D5752299020529343B79A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ NGW: Дикая природа Перу: арена боев – Анды. Ди�
 magnet:?xt=urn:btih:FC3942291BC90FE6A517414B747F7686F703BCF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ NG: Международный аэропорт Дубай. Серия 4 / Ultim
 ```bash
 magnet:?xt=urn:btih:338C549865281DC77A0455F43EC001015D3A0C43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ NGW: Акулы на охоте / Shark The Hunt. Kill Zone (2018) HDTV [H.264/1
 magnet:?xt=urn:btih:4EC7EA7AB4F3DB588D9BA00D2C2298335720BF99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ NG. Осушить океан / Drain the Oceans (2018) WEB-DLRip (1 сезон:
 ```bash
 magnet:?xt=urn:btih:B67627DA5530BDFDD626E515479D32F92C432215
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ NGW: Сексуальное рабство 21 века / 21st Century Sex Slaves
 magnet:?xt=urn:btih:85BDD99CA160A3FDA9A538B3BB5A86A0D8A4CF03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ NG. Экстремальный Китай. Хайнань / Extreme China. Haina
 ```bash
 magnet:?xt=urn:btih:FFF3990FFF9D8ABBC80988364A46AF76C3B222A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ NG: Человек против youtube / Man v. Viral (2015) HDTVRip [H.264/108
 magnet:?xt=urn:btih:CBBACA2458FFB33FE7DC3C2B24400668166356F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ National Geographic: Острова Фиджи / Islands Fiji (2011) HDTVRip
 ```bash
 magnet:?xt=urn:btih:251140B945850FD3533478B54C5BA69B1076F8A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ N.G. Большие кошки. Удивительная семья / Big Cats: 
 magnet:?xt=urn:btih:E1D76F55F09764F0A77D63B2FF5155D994AFAB04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ NGW: На защите носорогов / Chasing Rhinos (2013) HDTV [H.264/10
 ```bash
 magnet:?xt=urn:btih:69089C4F566FE48DB31670D374DC4492CD0337CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ NG: Через миллион лет / Year Million (2017) HDTVRip  [H.264/720p-
 magnet:?xt=urn:btih:98F7F3756C21101A8257308E0C1950EDF0D2431C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ magnet:?xt=urn:btih:98F7F3756C21101A8257308E0C1950EDF0D2431C
 ```bash
 magnet:?xt=urn:btih:133701F4D909F34D4F5AF5C6D93E6E6D6C513B6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ NG: Мегасооружения: музей Лувр Абу Даби / Megastru
 magnet:?xt=urn:btih:BE8D79C04C76838CCB195855BA46FC483E9B7E43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ NGW: Остров муссонов. Паутина жизни / Island of the Mo
 ```bash
 magnet:?xt=urn:btih:A0537D3790F650016662A0D718B286F945AE9384
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ NG: Архитекторы древности / Architects of the Ancient World 
 magnet:?xt=urn:btih:F1AB19D578779A506F922095FCD5548D773DCA16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ NGW: Гонка жизни / Race of Life (2015) HDTVRip [H.264/1080p-LQ] (Се�
 ```bash
 magnet:?xt=urn:btih:FC9858B1899E4A85118D4BB124F8F98DA499EE8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,31 @@
+###  Публикация: 1218268   (725025) от 08.04.2018
+
+Мария Рыбина | Сейчастье. 52 идеи заботы о себе (2018) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_725025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Есть люди «сейчас»ные, а есть «потом»ные. Одни живут воспоминаниями и мечтами о призрачном будущем, а другие — в настоящем моменте. Их успех — не результат какого-то озарения или тайных секретных практик, а умение делать маленькие шаги, ведущие к большим результатам. Если вы чувствуете себя опустошенным и выдохшимся, книга для вас.
+
+В ней два смысловых раздела: один (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C043E90D96FE38DDB789C6BE8C2A63D6239A2958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 891138   (725248) от 23.04.2015
 
 Карл Хейлмен II |   Пейзажная фотография. Практическое руководство (2011) [PDF]
@@ -20,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:44443FE1F64FAFD6CC19BF94CD36DAC97DE899CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +75,8 @@ magnet:?xt=urn:btih:44443FE1F64FAFD6CC19BF94CD36DAC97DE899CF
 magnet:?xt=urn:btih:D804635719E116F38A51D0A46953D1631F7433D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +100,8 @@ magnet:?xt=urn:btih:D804635719E116F38A51D0A46953D1631F7433D7
 ```bash
 magnet:?xt=urn:btih:FCF50AF43F6E0CA377916D32F0832DB5AF67725C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +129,8 @@ magnet:?xt=urn:btih:FCF50AF43F6E0CA377916D32F0832DB5AF67725C
 magnet:?xt=urn:btih:E48D6C5A8501BACFA4C194DA777E48F819B49655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +155,8 @@ magnet:?xt=urn:btih:E48D6C5A8501BACFA4C194DA777E48F819B49655
 magnet:?xt=urn:btih:39F4C5E0BF0FA3E3F8D6DDDBF903CE3866D8EBE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +180,8 @@ magnet:?xt=urn:btih:39F4C5E0BF0FA3E3F8D6DDDBF903CE3866D8EBE2
 ```bash
 magnet:?xt=urn:btih:A7633C74A2550931ED3FF6EBC1AF6788CC518A59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +209,8 @@ magnet:?xt=urn:btih:A7633C74A2550931ED3FF6EBC1AF6788CC518A59
 magnet:?xt=urn:btih:665BFB16664E001344D3A4A67928ECE611011F59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +237,8 @@ magnet:?xt=urn:btih:665BFB16664E001344D3A4A67928ECE611011F59
 magnet:?xt=urn:btih:28CACDC0F205ECB4F681199C067D77F931CBD066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +262,8 @@ magnet:?xt=urn:btih:28CACDC0F205ECB4F681199C067D77F931CBD066
 ```bash
 magnet:?xt=urn:btih:CDD9C1F9D699987AD55430D8CE80D2CCFEEAFE02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +289,8 @@ magnet:?xt=urn:btih:CDD9C1F9D699987AD55430D8CE80D2CCFEEAFE02
 magnet:?xt=urn:btih:65D134DE24E3E45F804899410597515CB2B43081
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +314,8 @@ magnet:?xt=urn:btih:65D134DE24E3E45F804899410597515CB2B43081
 ```bash
 magnet:?xt=urn:btih:F5B1B957B6ECC405F2B3DA0F3A1841BF4C1A855E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +341,8 @@ magnet:?xt=urn:btih:F5B1B957B6ECC405F2B3DA0F3A1841BF4C1A855E
 magnet:?xt=urn:btih:56D4E18C8D7E08CC282898C0107EAA9797DE1D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +366,8 @@ magnet:?xt=urn:btih:56D4E18C8D7E08CC282898C0107EAA9797DE1D72
 ```bash
 magnet:?xt=urn:btih:2844A257D08DF9D20ED9FB412EAC4AB239697DE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +393,8 @@ magnet:?xt=urn:btih:2844A257D08DF9D20ED9FB412EAC4AB239697DE5
 magnet:?xt=urn:btih:1104C4D05FC5F867C6EDF36AC5B18DEAE710A1CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +419,8 @@ magnet:?xt=urn:btih:1104C4D05FC5F867C6EDF36AC5B18DEAE710A1CC
 magnet:?xt=urn:btih:B54B8D2AD9531E9D9E84BE412EB36EE66DDADE5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +444,8 @@ magnet:?xt=urn:btih:B54B8D2AD9531E9D9E84BE412EB36EE66DDADE5E
 ```bash
 magnet:?xt=urn:btih:C091EC52B12C338666FE23F00715F8C1D2FE9CF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +474,8 @@ magnet:?xt=urn:btih:C091EC52B12C338666FE23F00715F8C1D2FE9CF6
 magnet:?xt=urn:btih:7AB94EE604568D389F0DD21778B6A2CBBAA76807
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +501,8 @@ magnet:?xt=urn:btih:7AB94EE604568D389F0DD21778B6A2CBBAA76807
 magnet:?xt=urn:btih:D069DBA9D5A2C1439D14B9E6A70C211CC03F06EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +527,8 @@ magnet:?xt=urn:btih:D069DBA9D5A2C1439D14B9E6A70C211CC03F06EB
 magnet:?xt=urn:btih:24425F1469C16EC84E07D5AA846A3AB59BE81840
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +552,8 @@ magnet:?xt=urn:btih:24425F1469C16EC84E07D5AA846A3AB59BE81840
 ```bash
 magnet:?xt=urn:btih:B992D34D77A6F7604BFAA61EF72DE9E9EA46664C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +581,8 @@ magnet:?xt=urn:btih:B992D34D77A6F7604BFAA61EF72DE9E9EA46664C
 magnet:?xt=urn:btih:8FB53D5855B68F085AA5325B98B057F70190C68D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +607,8 @@ magnet:?xt=urn:btih:8FB53D5855B68F085AA5325B98B057F70190C68D
 magnet:?xt=urn:btih:9C262447CEB9D90F21AD88081C25C46A78568AC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +632,8 @@ magnet:?xt=urn:btih:9C262447CEB9D90F21AD88081C25C46A78568AC6
 ```bash
 magnet:?xt=urn:btih:82F6E9F68CD2C4E7BA2D5899982CE5A851D55734
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +660,8 @@ magnet:?xt=urn:btih:82F6E9F68CD2C4E7BA2D5899982CE5A851D55734
 magnet:?xt=urn:btih:BD19D6D2A265BE1509438DCE16CAE8E03889B432
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,30 +686,7 @@ magnet:?xt=urn:btih:BD19D6D2A265BE1509438DCE16CAE8E03889B432
 magnet:?xt=urn:btih:4AFD5BA4DC85049C5F0DD88D2F6EC3FDCDB2D3D8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 326193   (726901) от 20.04.2011
-
-Олег Андреев | Техника быстрого чтения [2009] [DJVU]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прочитав эту книгу и выполнив рекомендуемые упражнения, вы сможете читать в 4-5 раз быстрее, эффективно и глубоко осваивать прочитанную информацию, разовьете мышление, внимание и память.
-Наконец, вы приобретете, способность работать настолько эффективно, что каждый раз при чтении ваш мозг будет извлекать из всего потока воспринимаемой информации только самое значимое (   Читать дальше...   )Жанр: Саморазвитие, ЧтениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F994472FC858EEDEADB26459966132A2A61967AA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

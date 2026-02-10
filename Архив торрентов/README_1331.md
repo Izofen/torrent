@@ -19,6 +19,8 @@ PyCharm – это самая интеллектуальная Python IDE с п�
 magnet:?xt=urn:btih:950034AE540250198321BB97FD6BE017FE5EDF25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ GPU Caps Viewer - информационная утилита, позволяю�
 ```bash
 magnet:?xt=urn:btih:B53AA052E2EF27A5EEBC2817155D7E2FCBDC85E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Skype - бесплатная программа для текстового, г�
 magnet:?xt=urn:btih:32F1B10A0F92A4AC8A969D77299EF717D420F6F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ WhatsApp Messenger - это кроссплатформенное приложе�
 ```bash
 magnet:?xt=urn:btih:F87B96F4D3331D954A0A81CE4077270A7F907C7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ WinRAR - один из самых известных архиваторов. Т�
 magnet:?xt=urn:btih:1058810B861787B44425106BD3BB646CC540589F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Joplin - это бесплатное приложение для создани�
 ```bash
 magnet:?xt=urn:btih:F759AEFAF011AFDDF301DCC49AAC90320A27333C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Ventoy - это инструмент с открытым исходным код
 magnet:?xt=urn:btih:412A02B8E2AA0E406B9AE7C8BCD85F578D2D9D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Exif Pilot - EXIF редактор используется для просмо�
 ```bash
 magnet:?xt=urn:btih:BC694B4D6450B53F6F914D3E955D5B4B048B5E72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Slimjet 37.0.2.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:79F9B074890CF70218CDF6BE05E3CCD010F1FF6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ GPU Shark - небольшая бесплатная и очень простая
 ```bash
 magnet:?xt=urn:btih:273A5D9B559AC04226C8B8F88807BEFFBE42EACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Udemy, Andrey Sumin | Полный курс Андроид + Java с нуля (2
 magnet:?xt=urn:btih:16D7C4CEBBBBB67120892A557702011DEDDC9B80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Seal 1.7.0-beta.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:53CA2988B3CE65EEAD382FE10B78FA2B9876DD03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Wise Disk Cleaner 10.9.6.812 RePack (& portable) by Dodakaedr [Multi/Ru]
 magnet:?xt=urn:btih:01E1F7CE7A5D1F60735034711F62C879F53EFA59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:01E1F7CE7A5D1F60735034711F62C879F53EFA59
 ```bash
 magnet:?xt=urn:btih:F402BBE83D9AFA9170B482D0BABA287A366EE468
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:F402BBE83D9AFA9170B482D0BABA287A366EE468
 magnet:?xt=urn:btih:4BD8FA3492CD9F414399979915AE34E0673A1036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:4BD8FA3492CD9F414399979915AE34E0673A1036
 ```bash
 magnet:?xt=urn:btih:FFC97FCB895307CE4B05E285F991CC8EE70A0755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ WinBin2Iso 6.01 Build 001 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:075299CB4EC37B64F52193727120955C258693D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Defender Remover Portable 12.5.6 (04.10.2023) [En]
 ```bash
 magnet:?xt=urn:btih:7627D9E43E6E6D03B26F6A71D67C00EC7730258E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ uTorrent Pro 3.6.0 Build 46902 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 magnet:?xt=urn:btih:CACA0AEBA73C284E4870D694E0B7EACD7B4039CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 ```bash
 magnet:?xt=urn:btih:253FB2FBC0E29BA6082B4CF24675BC26934BB3D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Wise Disk Cleaner 10.9.6.812 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:FC5543CB2388939E13DC12748D23B881C8C1C4D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ TreeSize Professional - мощное и гибкое средство визуа
 magnet:?xt=urn:btih:27D864502AF674A08030FE2950FF30524A6567FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ OCCT 11.0.18.b1 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CF36BDE13C999E158C94D0B6F0E2B7C587348A1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:CF36BDE13C999E158C94D0B6F0E2B7C587348A1A
 magnet:?xt=urn:btih:F06F25DB45C81852BF710EF7C006C063F24917DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:F06F25DB45C81852BF710EF7C006C063F24917DC
 magnet:?xt=urn:btih:412DCC98B181AC81342DCB4EC0727EB39EAB3054
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ PowerDirector - самое быстрое и передовое программ
 ```bash
 magnet:?xt=urn:btih:2B535F11AACC852C89B9666FD6E79B10AD81637A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

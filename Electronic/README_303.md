@@ -22,6 +22,8 @@ VA - Ibiza Deep House (2015) [MP3|320 кб/с]<Deep House, Chill House>
 magnet:?xt=urn:btih:18F1D97648BD35D9CD6648138420ACDEE1575BB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Ibiza Deep House (2018) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:09181FD29BFCC30DB9D2119BA9B3CE05E2750C7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Active Agent Of Sound (2007) Klangwirkstoff Records [FLAC|Lossless|tracks] 
 magnet:?xt=urn:btih:7D28B1A5C149385770D937B555DA8F21B788EC08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Sunset Chill Lounge Lush Tropical Laid Back Chillout Selection (2015) [MP3|
 ```bash
 magnet:?xt=urn:btih:CC4FA15FC07043630E7180E51D71FB998100081F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Paris La Nuit - Chillin Lounge Selection Vol 2 (2015) [MP3|320 кб/с]<Eas
 magnet:?xt=urn:btih:A1510D85BC572678CCF66C17B8B9C789DC8058CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ VA - Ibiza 2017 - Dance For Love Vol 2 [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:3EA3F08EDA827020262441F285D509BCDE416480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ VA - Euphoric House Anthems 2017 [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:9ED35B50EB42155811AF43202CB7EBBAA65C8957
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ Deadmau5 - It Sounds Like (2009) [MP3|320kbps]<House / Progressive House / Tech 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +259,8 @@ Dance With the Dead - Out of Body (2013) [MP3|320 кб/с]<Electronic, Retro Wav
 ```bash
 magnet:?xt=urn:btih:5E8F2662894DDFA197E5711E82CE0DD67C0C363E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ Moby - The Remixes (Go, Porcelain, Natural Blues) (2016) [MP3|320 Kbps] <Progres
 magnet:?xt=urn:btih:924C1261F67B5EA66ED0FBB69D7511D1C5797603
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +318,8 @@ Simon Le Grec - Unique 3 (2016) [MP3|320 Kbps] <Downtempo, Chill Out, New Age>
 magnet:?xt=urn:btih:76576421C6C947F81F75A85BC0C46E75F2D1D377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +345,8 @@ Ori Uplift
 ```bash
 magnet:?xt=urn:btih:45C00051EA28E23E096443980A1C105FF0445A24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +375,8 @@ Figures At Dawn - In From The Cold (2001) [FLAC|Lossless|image + .cue] <Synthpop
 magnet:?xt=urn:btih:6B29207F7880033933178595CA65BDEF7C0CB564
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +403,8 @@ Defiant Machines - Disruption Of The Calm (2015) [MP3|320 Kbps] <Electronic, Syn
 ```bash
 magnet:?xt=urn:btih:2CA17C522C12C5C4E1D7F6819D759B47A36D6A60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +433,8 @@ VA - Defected In The House Croatia (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep Ho
 magnet:?xt=urn:btih:530C3741041D457D76FB181F00C666268DCD820B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ Bassnectar - Into The Sun (2015) [MP3|320 кб/с]<Dubstep, Future Bass, Trap>
 magnet:?xt=urn:btih:BA358848BB474B15258747D529418F8BBCEDE6AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +488,8 @@ Depeche Mode - Going Backwards (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Synt
 ```bash
 magnet:?xt=urn:btih:F08B54EAAB03881EB281AF2BEB12249C66E70593
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +518,8 @@ Dog Won't Bite - Schplatterfunk (1993) [FLAC|Lossless|image + .cue] <Acid Jazz, 
 magnet:?xt=urn:btih:2BDAAB553A017D50BDD81D7ADC79E1E7E4AA3947
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +546,8 @@ Jean-Michel (aka Bersarin Quartett) - Collection 5 Releases (1999-2011) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:225D4392DDEAA16A23B6F7F7E935925D9AC36BC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +576,8 @@ VA - Top From the Top: Tom Strobe (2015) [FLAC|Lossless|WEB-DL]<Progressive Hous
 magnet:?xt=urn:btih:62D385BDBBC14DB208E09B1CCD7E5701160805B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +604,8 @@ VA - Dark Summer (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:0ED1A276DCF8CA50ADDE5ECC41DC6AB2F55AB645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +634,8 @@ VA - Family Affair Vol.6 (Part 1-2) (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech H
 magnet:?xt=urn:btih:2E5A8A077271813EE062C5D56A60B3DB84A45BAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +662,8 @@ VA - South Beach Miami Vol 1 (2017) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:5E87C3769E3ADC87F7E3657C1701AA96492E5A1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +692,8 @@ Dj Dimension EDM - Party Music 2017 Summer Memories (2017) [MP3|320 Kbps] <Balea
 magnet:?xt=urn:btih:4B4A1E476C676DC1EDB4201F677244204062A670
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +721,8 @@ VA - This Is My Church Vol 7 (The House Edition) (2017) [MP3|320 Kbps] <Funky, C
 magnet:?xt=urn:btih:C222DE6D90486078638A69592CE97F4EFDE14241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ VA - Anjunadeep In Ibiza (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Progr
 ```bash
 magnet:?xt=urn:btih:695DDBB18FCD9D4A67B5F89363F03A09AB8C15EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

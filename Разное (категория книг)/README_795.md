@@ -1,3 +1,30 @@
+###  Публикация: 1437475   (1041956) от 05.01.2021
+
+Артём Голдман, Алексей Безымянный | Биохакнутый. Как держать здоровье под контролем, чтобы чувствовать себя на 100 % (2021) [EPUB]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Биохакинг как набор стратегий по улучшению качества жизни и ее продолжительности давно вызывает интерес во всем мире. Один из авторов этой книги, российский бизнесмен Артём Голдман, решил проверить действенность этих стратегий на себе и принял участие в полугодовом эксперименте по биохакингу, фиксируя все свои показатели и результаты.
+Врач-терапевт Алексей Безымянный (   Читать дальше...   )Жанр: Здоровье, Популярная и нетрадиционная медицинаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12A6D80C4DA51AEE29E723250E258D5C94F23734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437477   (1041966) от 05.01.2021
 
 Раймонд Моуди | Жизнь после жизни. Исследование феномена продолжения жизни после смерти тела (2020) [EPUB]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:DD7DDDAD630F8CBB312FB15FCBC32C15A360B807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:DD7DDDAD630F8CBB312FB15FCBC32C15A360B807
 magnet:?xt=urn:btih:044B93A71F0D0CD6429A701F5891C1701948332C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:044B93A71F0D0CD6429A701F5891C1701948332C
 ```bash
 magnet:?xt=urn:btih:CABDC9ED9BE8E8B1BCE68A6AAA7114C71C0F4866
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +127,8 @@ magnet:?xt=urn:btih:CABDC9ED9BE8E8B1BCE68A6AAA7114C71C0F4866
 magnet:?xt=urn:btih:B47BC2EF2731BD39F2A78B60C563724A172F05F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +154,8 @@ magnet:?xt=urn:btih:B47BC2EF2731BD39F2A78B60C563724A172F05F0
 magnet:?xt=urn:btih:E33AE79BC09E9612EA0F4BEFB84F992DFA175964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:E33AE79BC09E9612EA0F4BEFB84F992DFA175964
 ```bash
 magnet:?xt=urn:btih:0CB0C8E0AABCBD34D2EA2560FD2BC2EB7830F1F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +208,8 @@ magnet:?xt=urn:btih:0CB0C8E0AABCBD34D2EA2560FD2BC2EB7830F1F2
 magnet:?xt=urn:btih:3DF06757F2BA0928FDD10A108104A99718CDBF52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +233,8 @@ magnet:?xt=urn:btih:3DF06757F2BA0928FDD10A108104A99718CDBF52
 ```bash
 magnet:?xt=urn:btih:ACBA38790ED3FE0BCDB9928C1BD62DAD33168B91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +261,8 @@ magnet:?xt=urn:btih:ACBA38790ED3FE0BCDB9928C1BD62DAD33168B91
 magnet:?xt=urn:btih:A08E23739BF92E89AAB6DF14E854503F98920D9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +287,8 @@ magnet:?xt=urn:btih:A08E23739BF92E89AAB6DF14E854503F98920D9C
 magnet:?xt=urn:btih:4F968A12E03FB54AD7660BDBEA1FD505904D3D80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +312,8 @@ magnet:?xt=urn:btih:4F968A12E03FB54AD7660BDBEA1FD505904D3D80
 ```bash
 magnet:?xt=urn:btih:5D7043A83C3E529BC66D25C00136E280D3594379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +341,8 @@ magnet:?xt=urn:btih:5D7043A83C3E529BC66D25C00136E280D3594379
 magnet:?xt=urn:btih:D277D11660F28E26C8DE45D252663DC2DAACB474
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +367,8 @@ magnet:?xt=urn:btih:D277D11660F28E26C8DE45D252663DC2DAACB474
 magnet:?xt=urn:btih:AF1BEFA5EE498DEBD8D6ED5FD3D0FF8ACC1731F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +392,8 @@ magnet:?xt=urn:btih:AF1BEFA5EE498DEBD8D6ED5FD3D0FF8ACC1731F1
 ```bash
 magnet:?xt=urn:btih:3CCE75D349A44A687AC4C683EFB3604935B40337
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +420,8 @@ magnet:?xt=urn:btih:3CCE75D349A44A687AC4C683EFB3604935B40337
 magnet:?xt=urn:btih:381D1341C632C0FF8DA378DC2EEF7C0B1EAD31E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +445,8 @@ magnet:?xt=urn:btih:381D1341C632C0FF8DA378DC2EEF7C0B1EAD31E8
 ```bash
 magnet:?xt=urn:btih:264479CE5060F0AF064174F17FAB3DAB2746DE62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +474,8 @@ magnet:?xt=urn:btih:264479CE5060F0AF064174F17FAB3DAB2746DE62
 magnet:?xt=urn:btih:DE0704D1CCF9B8A45CE97B81F0021A3B660EDA58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +500,8 @@ magnet:?xt=urn:btih:DE0704D1CCF9B8A45CE97B81F0021A3B660EDA58
 ```bash
 magnet:?xt=urn:btih:D6B5E37B40E6060DC83D553A32940DE37BEBB80F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +529,8 @@ magnet:?xt=urn:btih:D6B5E37B40E6060DC83D553A32940DE37BEBB80F
 magnet:?xt=urn:btih:C7FAA8BC23E070873FA143D11B54B8E1CBB61889
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +555,8 @@ magnet:?xt=urn:btih:C7FAA8BC23E070873FA143D11B54B8E1CBB61889
 magnet:?xt=urn:btih:9E1DE49DE0AD9B782740BC45FFD23BE71D68BA0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +580,8 @@ magnet:?xt=urn:btih:9E1DE49DE0AD9B782740BC45FFD23BE71D68BA0A
 ```bash
 magnet:?xt=urn:btih:98EE146B972D21ED4BC38F185E0C67CA4935B4E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +608,8 @@ magnet:?xt=urn:btih:98EE146B972D21ED4BC38F185E0C67CA4935B4E2
 magnet:?xt=urn:btih:AF7B4C896AFBC3E73DC8894B037F0186CBEBE9D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +633,8 @@ magnet:?xt=urn:btih:AF7B4C896AFBC3E73DC8894B037F0186CBEBE9D1
 ```bash
 magnet:?xt=urn:btih:046318BDA2A4F2C9FFE0A90412E711855B48B78C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +661,8 @@ magnet:?xt=urn:btih:046318BDA2A4F2C9FFE0A90412E711855B48B78C
 magnet:?xt=urn:btih:C3159084EA3A2F93AC7CA35A3043FD5FF72E3D0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,29 +688,7 @@ magnet:?xt=urn:btih:C3159084EA3A2F93AC7CA35A3043FD5FF72E3D0E
 magnet:?xt=urn:btih:9674FCD0C75B243084A46EA885934D0599162BCB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437192   (1042491) от 03.01.2021
-
-Т.В. Измайлова | Пэчворк. Самое полное и понятное пошаговое руководство по лоскутному шитью для начинающих (2017) [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Новейшая энциклопедия пэчворка родилась не случайно! Лоскутное шитье стремительно набирает обороты популярности во всем мире. Мозаика из разноцветных тканей отличается огромным разнообразием возможностей, появляются новые техники и приемы, возрождаются из небытия старые и даже старинные, рождаются новые сочетания и новая стилистика. Именно поэтому в книге вы найдете (   Читать дальше...   )Жанр: Рукоделие, ХоббиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4010649649E53A8CC2320657DB4EBB3DEBA26F2F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

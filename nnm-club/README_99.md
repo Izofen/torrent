@@ -22,6 +22,8 @@ Sofia Bellini - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Italodisco, I
 magnet:?xt=urn:btih:B0697099B1E10B7126623E25EA8FABA2B1ACB505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - Compilation Part 192 Electronic (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:8FDA48B46E28FD83904E2B9ADE88D2F219209FF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Missing Hearts: Crimson Cruise (2025) [Multi] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:3D52ADAAA7B3073800B15965FD21E52D3AB64606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ VA - Bikini Machines, Vol. 4 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Cl
 magnet:?xt=urn:btih:0223D1668A20E2F5ADDBA7E2FDFEC970E13C0738
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ VA - Compilation Part 194 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 ```bash
 magnet:?xt=urn:btih:7C5811CFEBD549BAB8A72E06D554A78BCF1C0554
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ David Bowie - I Can't Give Everything Away (2002 - 2016) (2025) Reissue, Remaste
 magnet:?xt=urn:btih:ABCBC33A06C45AE140462F3B2A35DBF5F234822B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Talking Luna - Compilation (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco
 ```bash
 magnet:?xt=urn:btih:FF5ED598F293968B3A6D491A1C60A3710BA49EF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ VA - Compilation Part 191 Electronic (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:777205E6BA53D0BBAEA9FA519F206B39806C50DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ VA - Compilation Part 190 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 magnet:?xt=urn:btih:757BC4C9D95684FC5190E9689BCEEDDB4E98C747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +277,8 @@ magnet:?xt=urn:btih:757BC4C9D95684FC5190E9689BCEEDDB4E98C747
 ```bash
 magnet:?xt=urn:btih:A9D8688194E66E04C6CA35E0F4837F2C9598B57B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +307,8 @@ VA - Musical kaleidoscope part 53 Assorted (2025) [MP3|320 Kbps] <Electronic, Ea
 magnet:?xt=urn:btih:CCEC7D93C82699F80DD84543390A6D3B0E545EA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +333,8 @@ magnet:?xt=urn:btih:CCEC7D93C82699F80DD84543390A6D3B0E545EA5
 ```bash
 magnet:?xt=urn:btih:3B8CF5AB0D0074027DE1238C8D60B57557BC00C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +363,8 @@ Alex Christensen - Compilation (2025) [MP3|320 Kbps] <Instrumental, Vocal, Other
 magnet:?xt=urn:btih:2F7CFFF19F3D0D0F5216B705AACF5C032E26089E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +392,8 @@ VA - Compilation Part 193 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 magnet:?xt=urn:btih:01C1DBC6733E5C38B64330603CC97255F40307E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +420,8 @@ magnet:?xt=urn:btih:01C1DBC6733E5C38B64330603CC97255F40307E9
 magnet:?xt=urn:btih:C4CE7193DEE8DBB83F6E67E438871BE429A7880B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +446,8 @@ magnet:?xt=urn:btih:C4CE7193DEE8DBB83F6E67E438871BE429A7880B
 magnet:?xt=urn:btih:A47D83F925EFC0EA8C72DF1B75CB97ACBA3373FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +471,8 @@ magnet:?xt=urn:btih:A47D83F925EFC0EA8C72DF1B75CB97ACBA3373FD
 ```bash
 magnet:?xt=urn:btih:E7E00B002F3AEE5E35DFE620684A524932E811F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +501,8 @@ magnet:?xt=urn:btih:E7E00B002F3AEE5E35DFE620684A524932E811F8
 magnet:?xt=urn:btih:1C49A489C51486A4C7BD2528671BF914859F2DD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +530,8 @@ Romantic Dreams - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Disco, Ital
 magnet:?xt=urn:btih:32773D72484D4A72230BD327F875B6A9074A0FE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +555,8 @@ magnet:?xt=urn:btih:32773D72484D4A72230BD327F875B6A9074A0FE4
 ```bash
 magnet:?xt=urn:btih:BE743031CDFA0FBEAD600F09E86E31E9277BA126
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +582,8 @@ magnet:?xt=urn:btih:BE743031CDFA0FBEAD600F09E86E31E9277BA126
 magnet:?xt=urn:btih:7EAFC68E025976A2530A052A5AE221BF72ECC6F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +607,8 @@ magnet:?xt=urn:btih:7EAFC68E025976A2530A052A5AE221BF72ECC6F6
 ```bash
 magnet:?xt=urn:btih:475CBA594E74B5096ED2033B4A07A33B9125D247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +637,8 @@ magnet:?xt=urn:btih:475CBA594E74B5096ED2033B4A07A33B9125D247
 magnet:?xt=urn:btih:2E2731935A8BC66467069132A22C51B6B4F5B501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +666,8 @@ Elvis Presley - Compilation (1956-2003) [MP3|320 Kbps] <Rock & Roll, Rockabilly,
 magnet:?xt=urn:btih:A9A7103565E61BE91DA375DB3E6922806C70DE20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +692,8 @@ magnet:?xt=urn:btih:A9A7103565E61BE91DA375DB3E6922806C70DE20
 magnet:?xt=urn:btih:76AB68E7F913048681B57F9B0BEAFCFCD8B50C7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ magnet:?xt=urn:btih:76AB68E7F913048681B57F9B0BEAFCFCD8B50C7B
 ```bash
 magnet:?xt=urn:btih:78BF20B9D1B4ADD5F6A0F6D65F44BA67A31A1DC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

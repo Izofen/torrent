@@ -19,6 +19,8 @@ igoroutine.courses, Игорь Панасюк | The Nature of Concurrency - ку
 magnet:?xt=urn:btih:FD4F7B268D1B08A03AD20B1B644262FF5B87CB33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:FD4F7B268D1B08A03AD20B1B644262FF5B87CB33
 ```bash
 magnet:?xt=urn:btih:9BE19C247D30B8DE95DCDF39A67F84BFE253A10D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:9BE19C247D30B8DE95DCDF39A67F84BFE253A10D
 magnet:?xt=urn:btih:4FB45C949FD76264C628F4227810B3F195B729C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 magnet:?xt=urn:btih:012FE62417FBE7F9512ECDE9DF5AED60B079B58E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:012FE62417FBE7F9512ECDE9DF5AED60B079B58E
 ```bash
 magnet:?xt=urn:btih:A6A60203A8FFC1018D6B21CD8808482DB294D8E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:A6A60203A8FFC1018D6B21CD8808482DB294D8E1
 magnet:?xt=urn:btih:B7202F8833440FC43D4DC2B43DDB3333717B4F68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:B7202F8833440FC43D4DC2B43DDB3333717B4F68
 ```bash
 magnet:?xt=urn:btih:B86F752A2027649E7A80EB1BB7FAFF9663B8DA22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:B86F752A2027649E7A80EB1BB7FAFF9663B8DA22
 magnet:?xt=urn:btih:9FDA13ED3C331ED05F2C8AA2E212A99C878F4140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:9FDA13ED3C331ED05F2C8AA2E212A99C878F4140
 ```bash
 magnet:?xt=urn:btih:5DD73697DF33DAB9719AE243E740C457B4E45358
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326/dlc) Repack Want
 magnet:?xt=urn:btih:5801C7DC1577FE0CD1721B244AAAFAA27FD19D8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Opera One 122.0.5643.71 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B9F1383E5C8AAE57FA830323A26FCDD738C10AEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Osomatsu-san (2025) | Осомацу-сан [ТВ-4] [2025, TV, 12 из 13 эп.
 magnet:?xt=urn:btih:69A66CA4EB22D20CBC3229E7900772D334143BF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ PDF-XChange Pro — универсальное решение для работ�
 ```bash
 magnet:?xt=urn:btih:D843CDBB6E1828A8236404E76737B04181CDC53B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:D843CDBB6E1828A8236404E76737B04181CDC53B
 magnet:?xt=urn:btih:75D6813E87BFF5097BD7D2C00FE5A6B8619F051B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:75D6813E87BFF5097BD7D2C00FE5A6B8619F051B
 ```bash
 magnet:?xt=urn:btih:D23A5B121A7F8CCC767592C4B99C6F0C24B1D9D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ PIDKey Lite предназначена для просмотра, обновле
 magnet:?xt=urn:btih:FA2675ACB9C8FE74E4D1BAAA0E107F5B3CA034DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:FA2675ACB9C8FE74E4D1BAAA0E107F5B3CA034DC
 ```bash
 magnet:?xt=urn:btih:CC9FB01523B6F3E61E7732A8666C30219B88CD27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:CC9FB01523B6F3E61E7732A8666C30219B88CD27
 magnet:?xt=urn:btih:298E27B4FF3376E85F59298BA842F13F1F244A77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Hell is Us - это приключенческий экшен от третье�
 ```bash
 magnet:?xt=urn:btih:D1E101CA0FC54609DEB3547AF41B2EDC5D000B9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:D1E101CA0FC54609DEB3547AF41B2EDC5D000B9B
 magnet:?xt=urn:btih:3B43CDA84B603E5C18D92F4D0125ABD539717CC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:3B43CDA84B603E5C18D92F4D0125ABD539717CC6
 ```bash
 magnet:?xt=urn:btih:67D8BD4C564ACF93BED46DA97C69344D3F011542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:67D8BD4C564ACF93BED46DA97C69344D3F011542
 magnet:?xt=urn:btih:FCFCADFE3BC1137A1B161400D1D7E80F3A6605EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ magnet:?xt=urn:btih:FCFCADFE3BC1137A1B161400D1D7E80F3A6605EA
 ```bash
 magnet:?xt=urn:btih:BD0CA8952D9BD305992BF4FA0E7C9D33C3266B0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Tate no Yuusha no Nariagari Season 4 | The Rising of the Shield Hero Season 4 | 
 magnet:?xt=urn:btih:DC5FE29CD80FAE7C186E44F984BCD60A01BD27F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ OpenVPN – мощная программа для работы с частны�
 magnet:?xt=urn:btih:37BD627B22F1846A3B6C288A40F00C45647B3388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ magnet:?xt=urn:btih:37BD627B22F1846A3B6C288A40F00C45647B3388
 ```bash
 magnet:?xt=urn:btih:A54F68CB1F1DF39D9889F08C0E4580B61F0A47E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

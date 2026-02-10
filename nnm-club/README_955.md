@@ -20,6 +20,8 @@ CudaText — абсолютно бесплатный мультиплатфор�
 magnet:?xt=urn:btih:25921EF7F11B1EB97897F337C05892D8D59DF965
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Extreme Picture Finder - средство для автоматического 
 ```bash
 magnet:?xt=urn:btih:3893E376A8BE61F327999B0CB46530CDF81E2044
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:3893E376A8BE61F327999B0CB46530CDF81E2044
 magnet:?xt=urn:btih:0904EF9932785EFD47B6F4886341386FD61E7B7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ The Lego Movie Videogame (2014) [Ru/Multi] (1.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:B76280F57BEC3BBEFFC99FB51ABD15C0D57CCB06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Chord Generator — это MIDI-инструмент, который генер�
 magnet:?xt=urn:btih:CE2626C1D9ABE3DF9E96DBAE44534F41C63ED519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Playtown Genesis (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C5FBB12710187958D8D75382EF5BCA7121D301A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:C5FBB12710187958D8D75382EF5BCA7121D301A1
 magnet:?xt=urn:btih:0D4F6101E9850B557E8A946FF2670A93432B2612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Carmen Sandiego (2025) [Multi] (1.0/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:2330CF20DDB7E04E6CD3BB4DE82C55BFFA3AD5C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Carnaval Simulator - это инди-игра в жанре магната, си
 magnet:?xt=urn:btih:B917D20B420ECBC09C4A84DF3E89D671E2781787
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ FBReader Premium v3.8.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CB33A36BBCBACC818EBF63874DBAB87C5049FC96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:CB33A36BBCBACC818EBF63874DBAB87C5049FC96
 magnet:?xt=urn:btih:41EB7F5F6EFE76E198E7A1ABA6BE882D89AFC7E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:41EB7F5F6EFE76E198E7A1ABA6BE882D89AFC7E5
 ```bash
 magnet:?xt=urn:btih:4CE24B0B44BB5AE796AEA6CF629507C4040F2E78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:4CE24B0B44BB5AE796AEA6CF629507C4040F2E78
 magnet:?xt=urn:btih:E3922E9FF645C79E3D364E74A2C05094000200B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:E3922E9FF645C79E3D364E74A2C05094000200B0
 magnet:?xt=urn:btih:EC67BA88A80406022F47D80A7BA19CE3188FB40A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:EC67BA88A80406022F47D80A7BA19CE3188FB40A
 ```bash
 magnet:?xt=urn:btih:B5CB9430C0C5C672B41C4CED454B009D2550B82E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:B5CB9430C0C5C672B41C4CED454B009D2550B82E
 magnet:?xt=urn:btih:7D609760A20EEAA3CCC58A234308D857579CD9BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:7D609760A20EEAA3CCC58A234308D857579CD9BF
 ```bash
 magnet:?xt=urn:btih:66224AD23F2E51F9735F848EDB0F2F8ACB6B6D5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Beyblade Burst Super King | Beyblade Burst Sparking | Бейблэйд Взры�
 magnet:?xt=urn:btih:1EE78EA12019EAB036AA40B51FF1799EFB2494F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Slimjet 45.0.3.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7B612C92315E0ECF661D1E0A18CC6FFC3D63FF3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:7B612C92315E0ECF661D1E0A18CC6FFC3D63FF3C
 magnet:?xt=urn:btih:8F06B3D8598D30F7322C45848BCDB0225745168E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ FreeCommander XE - это довольно-таки удобный в работ
 ```bash
 magnet:?xt=urn:btih:AF4E1421CF25667686A07B1BFC36440DE477FCF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:AF4E1421CF25667686A07B1BFC36440DE477FCF0
 magnet:?xt=urn:btih:AD78B7195263D95E8CDE0D17960020D5219E3F7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:AD78B7195263D95E8CDE0D17960020D5219E3F7A
 ```bash
 magnet:?xt=urn:btih:FDB06B7C4854FEFD032C0681B76B11109F12F8EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:B1AE2983774D7E1E9CF1809B5580E908098512B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:B1AE2983774D7E1E9CF1809B5580E908098512B0
 magnet:?xt=urn:btih:5D8B1DC53C198924373B98A44A3154D1D3308C15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:5D8B1DC53C198924373B98A44A3154D1D3308C15
 ```bash
 magnet:?xt=urn:btih:DD167297CFDB464EFC10CEFA74457FF989FA81CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

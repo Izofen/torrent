@@ -1,3 +1,31 @@
+###  Публикация: 1382873   (815576) от 13.05.2020
+
+Святитель Игнатий (Брянчанинов) | Слово о человеке. О чудесах и знамениях (2018) [EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_815576.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книгу вошли работы епископа Игнатия (в миру Дмитрий Александрович Брянчанинов, 1807–1867) – известного проповедника, канонизированного Русской Православной Церковью в 1988 году, автора духовных трудов – «Слово о человеке», «Понятие о ереси и расколе», «О чудесах и знамениях», «Будущее России в руках Божественного промысла» и другие.
+
+«Ищите всюду Духа, а не буквы» (   Читать дальше...   )Жанр: ПравославиеФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705C5F39C8B7575EDAD65D2C87516BA052C0ECB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008467   (815673) от 18.04.2016
 
 Т. Чернышёва (сост.) | Заготовки из огурцов и помидоров. Лучшие рецепты (2013) [PDF]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:FBB4813C3768120F560AE3075F752B11BED150C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +75,8 @@ magnet:?xt=urn:btih:FBB4813C3768120F560AE3075F752B11BED150C2
 magnet:?xt=urn:btih:FC09FE6CC531E2BC083631DBB85361D66238BF1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +100,8 @@ magnet:?xt=urn:btih:FC09FE6CC531E2BC083631DBB85361D66238BF1E
 ```bash
 magnet:?xt=urn:btih:523D8F04159A652E202A20F9D587A9296FC5A451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +127,8 @@ magnet:?xt=urn:btih:523D8F04159A652E202A20F9D587A9296FC5A451
 magnet:?xt=urn:btih:68D7F66E3AB1B618903BE8A46C853E557F24BF12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +152,8 @@ magnet:?xt=urn:btih:68D7F66E3AB1B618903BE8A46C853E557F24BF12
 ```bash
 magnet:?xt=urn:btih:280511A7A1FAE6B9567809436AA3CD81EE3FE837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +179,8 @@ magnet:?xt=urn:btih:280511A7A1FAE6B9567809436AA3CD81EE3FE837
 magnet:?xt=urn:btih:61B06986E6E2343C20AA92EF46635BD8E2C6A7A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +204,8 @@ magnet:?xt=urn:btih:61B06986E6E2343C20AA92EF46635BD8E2C6A7A8
 ```bash
 magnet:?xt=urn:btih:0C49AB26EABA6CF4FC97649AF614FC8B54E61AA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +231,8 @@ magnet:?xt=urn:btih:0C49AB26EABA6CF4FC97649AF614FC8B54E61AA0
 magnet:?xt=urn:btih:2919B9F5FAE4571FAC594510902DCCC5F4DC547D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +256,8 @@ magnet:?xt=urn:btih:2919B9F5FAE4571FAC594510902DCCC5F4DC547D
 ```bash
 magnet:?xt=urn:btih:2C7B7B45A3DEAEDC7066DBCADE4E6747ACF15F74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +284,8 @@ magnet:?xt=urn:btih:2C7B7B45A3DEAEDC7066DBCADE4E6747ACF15F74
 magnet:?xt=urn:btih:B305F891E138CDB01DB96C0A8144C9EA36653C8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +309,8 @@ magnet:?xt=urn:btih:B305F891E138CDB01DB96C0A8144C9EA36653C8F
 ```bash
 magnet:?xt=urn:btih:E9948D6C4CA74A2C3062F2E38B3DD5C314E2C243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +337,8 @@ magnet:?xt=urn:btih:E9948D6C4CA74A2C3062F2E38B3DD5C314E2C243
 magnet:?xt=urn:btih:E5DCE0A17D922660581EFA055A83170063C3DE25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +362,8 @@ magnet:?xt=urn:btih:E5DCE0A17D922660581EFA055A83170063C3DE25
 ```bash
 magnet:?xt=urn:btih:1607E5C4A568DDC4924EE8412FBC2021CECEDCD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +389,8 @@ magnet:?xt=urn:btih:1607E5C4A568DDC4924EE8412FBC2021CECEDCD9
 magnet:?xt=urn:btih:91474CE604342CFE2ABCE19800A60D231443A466
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +414,8 @@ magnet:?xt=urn:btih:91474CE604342CFE2ABCE19800A60D231443A466
 ```bash
 magnet:?xt=urn:btih:BEEEDFF3C3036B50CBC913335A42AD9B31376DC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +441,8 @@ magnet:?xt=urn:btih:BEEEDFF3C3036B50CBC913335A42AD9B31376DC9
 magnet:?xt=urn:btih:DF854929648399A01E4844A15A483F0AA7685008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +467,8 @@ magnet:?xt=urn:btih:DF854929648399A01E4844A15A483F0AA7685008
 ```bash
 magnet:?xt=urn:btih:1DF2EE981944296E95A994FF3DB4E761942799EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +496,8 @@ magnet:?xt=urn:btih:1DF2EE981944296E95A994FF3DB4E761942799EB
 magnet:?xt=urn:btih:F452811E12EB33A65D98EC38091868D46BAE92F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +522,8 @@ magnet:?xt=urn:btih:F452811E12EB33A65D98EC38091868D46BAE92F5
 magnet:?xt=urn:btih:75E800A6A75BCBDB1B2DA713A5431C5D4945F0AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +547,8 @@ magnet:?xt=urn:btih:75E800A6A75BCBDB1B2DA713A5431C5D4945F0AE
 ```bash
 magnet:?xt=urn:btih:8BB496400001C5360E13728EED7CE5B0F95751BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +576,8 @@ magnet:?xt=urn:btih:8BB496400001C5360E13728EED7CE5B0F95751BD
 magnet:?xt=urn:btih:D66AE84A7B9BD69FA007B32D4E034F167A101E18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +601,8 @@ magnet:?xt=urn:btih:D66AE84A7B9BD69FA007B32D4E034F167A101E18
 ```bash
 magnet:?xt=urn:btih:F8AF60A74D1F78A038FF085DCADEC0D189244844
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +630,8 @@ magnet:?xt=urn:btih:F8AF60A74D1F78A038FF085DCADEC0D189244844
 magnet:?xt=urn:btih:D2EA62E465BA72947269876DED84F982DFC6D889
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +658,8 @@ magnet:?xt=urn:btih:D2EA62E465BA72947269876DED84F982DFC6D889
 magnet:?xt=urn:btih:800D2C093D37A540765D783BF9565C213491DA69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,29 +684,7 @@ magnet:?xt=urn:btih:800D2C093D37A540765D783BF9565C213491DA69
 magnet:?xt=urn:btih:FEC1E515582E833F1534BFE34A5114E38AA2C605
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196826   (817587) от 06.01.2018
-
-П. Гольбах | Карманное богословие (1961) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_817587.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Карманное богословие» Поля Гольбаха (1723—1789) принадлежит к числу лучших произведений мировой атеистической литературы. Бойкой, живой, талантливой называл В. И. Ленин публицистику атеистов XVIII века. Как и другие французские просветители, Гольбах считал, что религия — плод невежества народов и следствие обмана со стороны духовенства. Этот упрощенный взгляд преодолен (   Читать дальше...   )Жанр: История, политология, религиоведение, философия, словарьФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15875144A01AFF096B3212728965CAF9CBCA2F0E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

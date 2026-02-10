@@ -19,6 +19,8 @@ Mozilla Firefox - очень быстро работающий браузер, �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Reg Organizer - это многофункциональная программа
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Reg Organizer - это многофункциональная программа
 ```bash
 magnet:?xt=urn:btih:01A74B29F9E1E565FCC26D64DC0857ACC745494D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Virgin Black - 5 albums (1998-2008) [FLAC|Lossless] <Gothic / Doom / Symphonic /
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ The Piano Strings Ensemble - Piano Strings Tribute to Celine Dion (2004) [AAC|25
 magnet:?xt=urn:btih:8FD40F874DE14A7E0917BB730651CFAC3E97BAB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ magnet:?xt=urn:btih:8FD40F874DE14A7E0917BB730651CFAC3E97BAB4
 magnet:?xt=urn:btih:F7E0582A5E20F059684BE5D98DAB25C8D250271A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ magnet:?xt=urn:btih:F7E0582A5E20F059684BE5D98DAB25C8D250271A
 magnet:?xt=urn:btih:5A477121669DB0D3AF22AA3CB151FA3F080EF182
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:5A477121669DB0D3AF22AA3CB151FA3F080EF182
 ```bash
 magnet:?xt=urn:btih:03F3BAE8B051D99AC2869F67523F78B8969BCFC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ CHAVEneeZ - Great Spirit (2006) [FLAC|Lossless]<Native American Ethno, New Age>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +278,8 @@ CHAVEneeZ - Great Spirit (2006) [FLAC|Lossless]<Native American Ethno, New Age>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ CHAVEneeZ - Great Spirit (2006) [FLAC|Lossless]<Native American Ethno, New Age>
 ```bash
 magnet:?xt=urn:btih:A48B7253EBC42B85CA2C862D9841AF4E7B363375
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +345,8 @@ John Sposito St. James Music - Ouroboros (1999) [MP3|320 кб/с]<New age>
 magnet:?xt=urn:btih:E161141A8754581601686EF780EDB1A7987F86BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +380,8 @@ Geoff Achison & The Souldiggers - Little Big Men (2005) Remastered / 2012, Jupit
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +405,8 @@ Geoff Achison & The Souldiggers - Little Big Men (2005) Remastered / 2012, Jupit
 ```bash
 magnet:?xt=urn:btih:08E90FC1104DAAB2D0C7FCFAB51CF2ECB9EC597A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ Titus the Fox: To Marrakech and Back [En] (RePack) 1992 | RG games (Pilotus)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +470,8 @@ Titus the Fox: To Marrakech and Back [En] (RePack) 1992 | RG games (Pilotus)
 magnet:?xt=urn:btih:020F454DA7292E75182FC7DE44E2EE234C947383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +498,8 @@ Fraps - предназначена для подсчета количества 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +524,8 @@ Fraps - предназначена для подсчета количества 
 magnet:?xt=urn:btih:B18C01302066670074C774AC578523A2F370910B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +549,8 @@ BBC: Как вырастить планету. Триумф неудачника
 ```bash
 magnet:?xt=urn:btih:E19031583297971257178D22C27449733D31B37F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +585,8 @@ Yes Solos - Members Albums Collection (2011) 6xSHM-CD Papersleeve Box Set / Arca
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +610,8 @@ Yes Solos - Members Albums Collection (2011) 6xSHM-CD Papersleeve Box Set / Arca
 ```bash
 magnet:?xt=urn:btih:9CEE92DB6B6B12D530F88DC2B3FA0CE8069EAC85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +637,8 @@ magnet:?xt=urn:btih:9CEE92DB6B6B12D530F88DC2B3FA0CE8069EAC85
 magnet:?xt=urn:btih:57D3BAC17092B2211A89FB86D8A3C1E024FA4BEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +662,8 @@ magnet:?xt=urn:btih:57D3BAC17092B2211A89FB86D8A3C1E024FA4BEC
 ```bash
 magnet:?xt=urn:btih:A1C0F51F537E6B2A2F46E86A930326D3E7418439
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +698,8 @@ magnet:?xt=urn:btih:A1C0F51F537E6B2A2F46E86A930326D3E7418439
 magnet:?xt=urn:btih:91E4AE5C8B33954F87EB73EB1252674B27435720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +724,8 @@ Nomen est omen переводится, как: "имя говорит само �
 ```bash
 magnet:?xt=urn:btih:E160EBD92BFAA55F38958E5A738362D0749BA79B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -702,6 +752,8 @@ Mirillis Action! - позволяет в режиме реального вре�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

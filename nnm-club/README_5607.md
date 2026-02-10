@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2B89C0547E4FD765AF3FF2C6178FFFE238D812CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ PDF-компрессор предназначен для сокращения р
 magnet:?xt=urn:btih:ACAE0AC473A37918A09EDDE53709C208B1FDF63D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ GM EPUB Reader — это полнофункциональное приложе�
 ```bash
 magnet:?xt=urn:btih:C3E3B0A2992D9B568325F2484F88159E8C648F22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Sinful Way - Revolution (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy M
 magnet:?xt=urn:btih:A7ADBA6D51DBFF40A84D982E5FDA7C3E0350558E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:0B229FE356ACDC791052820F80D8CD1E3311A4C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Giant Flying Turtles - Let the Love In (2023) [FLAC|Lossless|WEB-DL|tracks] <Pro
 magnet:?xt=urn:btih:C26CCFA41C1CCEAAAA326984DAC8D60E008D1E06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Color Wheel 8.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:F0D0A099ED2996DB0B68D14D70660F4223B74DFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:F0D0A099ED2996DB0B68D14D70660F4223B74DFF
 magnet:?xt=urn:btih:9834CA6E4FA6859D4C3C58E3D0B296CF74C5AD8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:9834CA6E4FA6859D4C3C58E3D0B296CF74C5AD8D
 ```bash
 magnet:?xt=urn:btih:44CBEF9816D740455A4F2346E02E678623DBF5FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Web Confidential for Mac 5.4.1 U2B [Multi]
 magnet:?xt=urn:btih:18A090048D008497DCB16A27214F99CB57F099FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ OmniReader - полифункциональное приложение для ч
 ```bash
 magnet:?xt=urn:btih:1C717A92B8BAC4787B5EDA48A7CACC93481BCB2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ CADintosh позволяет ускорить проектные работы и
 magnet:?xt=urn:btih:CE6CDB11F28F1850F8E3F98A92203AE9CF008847
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:CE6CDB11F28F1850F8E3F98A92203AE9CF008847
 ```bash
 magnet:?xt=urn:btih:1AAC9596A8A133DA72CE9E6B3A0E92E972B57400
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:1AAC9596A8A133DA72CE9E6B3A0E92E972B57400
 magnet:?xt=urn:btih:46A3C183E71026341B972057002D4836E4EC8068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:46A3C183E71026341B972057002D4836E4EC8068
 ```bash
 magnet:?xt=urn:btih:FC22DA25E16A503283DB45435632636117747A00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Headshot - Eyes Of The Guardians (2022) [FLAC|Lossless|image + .cue] <Thrash Met
 magnet:?xt=urn:btih:2951735F839B591DF2E830897B400877E8A130CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:2951735F839B591DF2E830897B400877E8A130CD
 ```bash
 magnet:?xt=urn:btih:AC1FAAA6FFD7199F4EEE61F73B0803111C7477A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Thomas Dolby - Halloween: A Thomas Dolby Creation (2023) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:7FB4EDCBA2C579D0BC7E6187C12040AB8A07232D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ Robert Conti - To The Brink! (2005) Pinnacle Records [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:3AF114A04707D4FD6F09D62AAC5C29F971B0D23D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ Ruby Braff - The Mighty Braff (1954, 1955) 1989, Charly Records [FLAC|Lossless|i
 magnet:?xt=urn:btih:E832D4EB2225C180A75201D50B60AD984D1C834E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:E832D4EB2225C180A75201D50B60AD984D1C834E
 ```bash
 magnet:?xt=urn:btih:325F29827074883AE2D552FFFE76D04017576D80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ Thad Jones, Kenny Burrell, Frank Wess - After Hours (1957) 1992, Prestige [FLAC|
 magnet:?xt=urn:btih:59493F695EEFBA43FD6C17A2267E74CD34F4469F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ Grant Green - His Majesty, King Funk (1965) 2004, Universal [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:334E5A9EE2F72BD87CF1D27C21BDC4A8AB38398C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ Tombstone - Shadows of Fear (2019) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power M
 magnet:?xt=urn:btih:7C4454AC95BF760E464878D5F171C4DB8D098073
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ Viikate - Rillumarei! (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
 magnet:?xt=urn:btih:6E41BDF67AB43B4DDC5798AB13B28F1C17304838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ The Clare Fischer Latin Jazz Big Band - Ritmo! (2012) Clavo Records [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:EA4EB5A89905C86AB98986D53D120C848CF17F43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

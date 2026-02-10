@@ -1,3 +1,31 @@
+###  Публикация: 931157   (512732) от 25.08.2015
+
+Эленика Лис | Психология энергичных людей (2013) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_512732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люди часто жалуются на то, что им не хватает сил, куда-то деваются желания, и усталость настигает задолго до времени отхода ко сну. Неужели и правда у современного человека энергии меньше, чем у людей предыдущих поколений?
+
+Оказывается, нет. Но мы совершаем множество ошибок в использовании своего энергетического ресурса и поэтому нам кажется, что силы уже в первой (   Читать дальше...   )Жанр: Социальная психология, Личностный ростФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2F446172D8FF5FA55C5FFD16537F771DB678639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242935   (512748) от 24.08.2018
 
 Светлана Кузина | Психология влияния и обмана. Инструкция для манипулятора (2018) [PDF]
@@ -20,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:747D0F8B150A63EFD0435192A9A76BC2EBF2ACDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +77,8 @@ magnet:?xt=urn:btih:747D0F8B150A63EFD0435192A9A76BC2EBF2ACDD
 magnet:?xt=urn:btih:9A7477F2FD281D7FAD0F01F090D3BBFFF256CBD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +104,8 @@ magnet:?xt=urn:btih:9A7477F2FD281D7FAD0F01F090D3BBFFF256CBD9
 magnet:?xt=urn:btih:971F23304157830D90320F72F512ED2CDF94F462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +129,8 @@ magnet:?xt=urn:btih:971F23304157830D90320F72F512ED2CDF94F462
 ```bash
 magnet:?xt=urn:btih:F6BE58D404FFBE2636C02BD7539424A987CE9B02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +157,8 @@ magnet:?xt=urn:btih:F6BE58D404FFBE2636C02BD7539424A987CE9B02
 magnet:?xt=urn:btih:F189E7EE166713002E19CCFB5F8A43EF9838E258
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +182,8 @@ magnet:?xt=urn:btih:F189E7EE166713002E19CCFB5F8A43EF9838E258
 ```bash
 magnet:?xt=urn:btih:76B30A2436041AE1DA2FE3C1083CEDE548E4E81B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +209,8 @@ magnet:?xt=urn:btih:76B30A2436041AE1DA2FE3C1083CEDE548E4E81B
 magnet:?xt=urn:btih:CED4BFA20E93C63609E99FCC4105A3DAB55C203A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +234,8 @@ magnet:?xt=urn:btih:CED4BFA20E93C63609E99FCC4105A3DAB55C203A
 ```bash
 magnet:?xt=urn:btih:2CC67C0FF71046F5314BE878142B92AEE37C246A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +263,8 @@ magnet:?xt=urn:btih:2CC67C0FF71046F5314BE878142B92AEE37C246A
 magnet:?xt=urn:btih:A12DD5BCCAA10600BDBE685CB243E2950C611E4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +288,8 @@ magnet:?xt=urn:btih:A12DD5BCCAA10600BDBE685CB243E2950C611E4C
 ```bash
 magnet:?xt=urn:btih:1E759F5F5D1B527F1DEFD6F672324099FED5E8D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +317,8 @@ magnet:?xt=urn:btih:1E759F5F5D1B527F1DEFD6F672324099FED5E8D2
 magnet:?xt=urn:btih:C1403DCC41F4E8230FF94338333923EBC7819DED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +342,8 @@ magnet:?xt=urn:btih:C1403DCC41F4E8230FF94338333923EBC7819DED
 ```bash
 magnet:?xt=urn:btih:72A8EDD33E08978F175F1C53A7B960D72CDEE4E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +369,8 @@ magnet:?xt=urn:btih:72A8EDD33E08978F175F1C53A7B960D72CDEE4E8
 magnet:?xt=urn:btih:858C0F6D57B0FC0EC4E98FFD82612E6C7D4597C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +394,8 @@ magnet:?xt=urn:btih:858C0F6D57B0FC0EC4E98FFD82612E6C7D4597C1
 ```bash
 magnet:?xt=urn:btih:0DF3C79E72ED2846483CE496BE242A68CEC9878A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +421,8 @@ magnet:?xt=urn:btih:0DF3C79E72ED2846483CE496BE242A68CEC9878A
 ```bash
 magnet:?xt=urn:btih:D24578D472F58DF0D24202CA1F3F4B8B57EC52B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +451,8 @@ magnet:?xt=urn:btih:D24578D472F58DF0D24202CA1F3F4B8B57EC52B3
 magnet:?xt=urn:btih:024F56605C90E2D767AE71E7EAF0E895814B41C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +476,8 @@ magnet:?xt=urn:btih:024F56605C90E2D767AE71E7EAF0E895814B41C3
 ```bash
 magnet:?xt=urn:btih:CED544E096FE77D6D4BC80CA361FC5100797F401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +504,8 @@ magnet:?xt=urn:btih:CED544E096FE77D6D4BC80CA361FC5100797F401
 magnet:?xt=urn:btih:6512F563F72D0D46856D727D16AD1C3C0A49C254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +530,8 @@ magnet:?xt=urn:btih:6512F563F72D0D46856D727D16AD1C3C0A49C254
 ```bash
 magnet:?xt=urn:btih:A4B8369C61E89E29ACF562C002ADE76CCE9B8ED4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +559,8 @@ magnet:?xt=urn:btih:A4B8369C61E89E29ACF562C002ADE76CCE9B8ED4
 magnet:?xt=urn:btih:11E92C423DC10C74A36C7BDA367909AC755F2F90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +586,8 @@ magnet:?xt=urn:btih:11E92C423DC10C74A36C7BDA367909AC755F2F90
 magnet:?xt=urn:btih:A3327041BB02929CE703D51DC10685AD4BAA3DA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +611,8 @@ magnet:?xt=urn:btih:A3327041BB02929CE703D51DC10685AD4BAA3DA0
 ```bash
 magnet:?xt=urn:btih:1E8FE9E0E70CE8AF69265ACEE6B28ADE3DF63011
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +639,8 @@ magnet:?xt=urn:btih:1E8FE9E0E70CE8AF69265ACEE6B28ADE3DF63011
 magnet:?xt=urn:btih:91F18AAC9361FE5DF13E199558F4A132A0072BAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +665,8 @@ magnet:?xt=urn:btih:91F18AAC9361FE5DF13E199558F4A132A0072BAE
 ```bash
 magnet:?xt=urn:btih:12F7B786A8C6CB145E7AF9FD02F8C2E560F90118
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,30 +695,7 @@ magnet:?xt=urn:btih:12F7B786A8C6CB145E7AF9FD02F8C2E560F90118
 magnet:?xt=urn:btih:E8E15DA8D82DAFAD46562B9A7D4F2B2927B7D649
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242602   (513845) от 23.08.2018
-
-Семён Кибало | Охотник за идеями. Как найти дело жизни и сделать мир лучше (2018) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_513845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга написана по материалам блога «Охотник за идеями» и рассказывает от первого лица про громкий старт и успешное развитие бизнеса.
-Автор отвечает на вопросы: какими качествами надо обладать предпринимателю, как относиться к конкуренции, где найти спонсоров, как эффективно использовать соцсети и кампании по сбору средств для запуска проекта? Много внимания уделяется (   Читать дальше...   )Жанр: Практическая психологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E49B5E0DEDB995E3048ADC7767EAE6143F70B5CF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

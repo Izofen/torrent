@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:9EA0D2ADBC193EEF23CEB85A57E06ECF27CD4DD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:9EA0D2ADBC193EEF23CEB85A57E06ECF27CD4DD1
 magnet:?xt=urn:btih:666ED6E5157371F94ECC16FDC67CF116BD98E5F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Metal Garden - это короткий атмосферный шутер от п
 ```bash
 magnet:?xt=urn:btih:B6F66440F592B93C6424F8F805FC5460FD3D2FF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Cats & Cups (2025) [Ru/Multi] (1.0.5) Repack Necros
 magnet:?xt=urn:btih:944A66950EB8F8C4363C064F1B20893722A804D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ BALL x PIT — рогалик на выживание с разбиванием 
 magnet:?xt=urn:btih:82F506E5EB51A8A6A7117A74BCA581290EA0D3A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:82F506E5EB51A8A6A7117A74BCA581290EA0D3A5
 ```bash
 magnet:?xt=urn:btih:5A37D257F8E441B1472E25E3E33386DB6B477398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:5A37D257F8E441B1472E25E3E33386DB6B477398
 ```bash
 magnet:?xt=urn:btih:7EF88DAF9F1D1D2CCCD8E55634B7FD86D176E650
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:7EF88DAF9F1D1D2CCCD8E55634B7FD86D176E650
 magnet:?xt=urn:btih:5FE74C3EF5FC79D5090373E3C33939C4FE12A9AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ VA - 70s Rewind (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:ECCAEAE156F971E95586DADEB2B9410B21A7F48B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Snark Busters: High Society / Охотники за Снарком. Высшее
 ```bash
 magnet:?xt=urn:btih:1DDE43BC4F3957E5397B2F234C0BC2B8BCA47B0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ JavaFX — это платформа для создания Rich Internet Appli
 magnet:?xt=urn:btih:3FFAF542D404CC915E25FCF5CB4E2715D8BFAA05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ Astroburn Pro Portable - удобный инструмент для записи
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ Photo Slideshow Creator - представляет собой удобный и�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Photo Slideshow Creator - представляет собой удобный и�
 ```bash
 magnet:?xt=urn:btih:F1B74A04771DA1FD1FF005BF617F34F3085AAE2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ Playboy — легендарный журнал для мужчин, основ�
 magnet:?xt=urn:btih:87766EC910D009A29EDD488C6E90D01BB36BF271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:87766EC910D009A29EDD488C6E90D01BB36BF271
 ```bash
 magnet:?xt=urn:btih:8D9EE12EED8CAA02CE4139475362221A9B319081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:8D9EE12EED8CAA02CE4139475362221A9B319081
 magnet:?xt=urn:btih:77E51644920FDBB1D6A2B0F770A937608DD7F7CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:77E51644920FDBB1D6A2B0F770A937608DD7F7CE
 ```bash
 magnet:?xt=urn:btih:70C3E52AB41A79A8A45D2032FC38AAD13E673347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:70C3E52AB41A79A8A45D2032FC38AAD13E673347
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:70C3E52AB41A79A8A45D2032FC38AAD13E673347
 ```bash
 magnet:?xt=urn:btih:8342D94560B381F1E4DB181C04CA992CAF9C2781
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ AM 1984 - Star Horizon (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowav
 magnet:?xt=urn:btih:A14C528FC004587724A766DF0F15FF5881A80E11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ VA - No name compilation (2025) [MP3|320 Kbps] <Electronic, Easy listening, Inst
 ```bash
 magnet:?xt=urn:btih:151742A1B74FD411D77A463F4BE693EB47731C88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ VA - EDC Orlando 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 magnet:?xt=urn:btih:F01B83EA6146E469A44CFF31F00FC6C315A8A88E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ Morgan Luna - Compilation (2025) [MP3|320 Kbps] <Blues, Soul>
 magnet:?xt=urn:btih:BD90AEFFE458CB143D37EC8AA19BF68586384068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ VA - Инструментальная музыка (2012) vol. № 34 [MP3|320 �
 ```bash
 magnet:?xt=urn:btih:5EA4984A614C1CBCDEC4CD66767A84BB39385371
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +697,8 @@ AM 1984 - Best Of Remixes & Vocals (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthwa
 ```bash
 magnet:?xt=urn:btih:AEB914BCE4C25D993E2971615CCB914ABC1A05E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

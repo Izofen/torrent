@@ -22,6 +22,8 @@ VA - Trance 2021 (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
 magnet:?xt=urn:btih:593297F0A9EA85B01E945D867524568C5629A66D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Purple Disco Machine - Club Exotica (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, N
 ```bash
 magnet:?xt=urn:btih:EC8245465621D282FDA0C75B90C3657B4ED6D6D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Paul Sabin - STALK 2 (ORIGINAL SERIES SOUNDTRACK) (2021) [FLAC|Lossless|tracks] 
 magnet:?xt=urn:btih:82886C5E1C6C1E3BBF3DB1DD50E54198273038F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ CD-03Жанр: Dance-pop, Electro House, Tropical House, House, Chiptune, Electr
 ```bash
 magnet:?xt=urn:btih:66808E80BB056D655B777B9AB027A616A25D1C23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ ScAnDroid Experiment's - Mental Solubility (2023) авторская разда�
 magnet:?xt=urn:btih:84560FB2ED5FD1D99F2E1DA2302E4822C0DF2E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Club Trance 4 (1997) Exclusive Edition [FLAC|Lossless|tracks] <Trance, Hard
 ```bash
 magnet:?xt=urn:btih:E10769B7536AF9C2DE3839C6A333D193CF90C262
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Trance 2023 Vol. 8 (2023) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:979319CEC3059FBEEF948D36A4D90CB845D9CC72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Kryder Presents Metaverse Volume 1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Tr
 ```bash
 magnet:?xt=urn:btih:35D3A9AE5A59A838D7EE0D09793B1A8E1FFEFEEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ MORTEN - Live @ Mainstage, Mysteryland, Netherlands (2023-08-26) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:2B2D93D14738C430F480C0B34EB369337CA03B94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ Autograf - Affirmations (2023) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Hou
 ```bash
 magnet:?xt=urn:btih:E4673D521FABA45DDB62C24BBF066AF715BAD6A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Matisse & Sadko & Third ≡ Party & DubVision - Tomorrowland Friendship Mix (202
 magnet:?xt=urn:btih:A528AEF91241311DCC32593C731FF63D50979C8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ Tycho - Discography 54 Releases (2002-2020) Ghostly International, Ninja Tune [F
 ```bash
 magnet:?xt=urn:btih:CFADF36C18CBD3AAC26554FD5E543C286534843C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ Murya | Buspin Jieber - Discography 9 Releases (2011-2020) Touched Music, Rafton
 magnet:?xt=urn:btih:46E3D2F6034CEF5436A200611BC7F348AD7FAA80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ Tineidae - Shadows (2014) Tympanik Audo [FLAC|24/44.1|WEB|Tracks]<IDM, Downtempo
 ```bash
 magnet:?xt=urn:btih:DFE69A4FE5B7FBD26716A0654ACC449D3C62929A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ Blondie - американская группа, пионеры новой во�
 magnet:?xt=urn:btih:BBB6A8C1AF86F5DCEF666A4BF11830869E3BF187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ Helena Hauff - fabric presents Helena Hauff (Mixed) (2023) [FLAC|Lossless|WEB-DL
 ```bash
 magnet:?xt=urn:btih:2134F425FF7BA0EFF9DC42D58E7119880EC541A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ MediaData - Adore Resurrect (2020) Aliens Production [FLAC 2.0|44.1/24|tracks|WE
 magnet:?xt=urn:btih:C28234373C1E8E48BC78D4E71DD03FC1092A2E88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ Amethystium - Odonata: 20th Anniversary Edition (2020) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:591B6936F9D576EEA96D4A612508C7AFCB9F8462
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ VA - Outliers:2 (2020) Samurai Music [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass,
 magnet:?xt=urn:btih:B332B59D10BFC72ED19DAFE2EF364E39DF8BD62F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ VA - Sexy Love (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Chillout>
 ```bash
 magnet:?xt=urn:btih:622ED24B8A14C0CB3E5DD4C7D046179D74D9F093
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ Blank & Jones feat. Mick Roach - Christian (2023) EP [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:FC9D593D1274CC89DDA7099671BC70CAA64CB7D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ VA - Uplifting Only Top 15: September 2023 (Extended Mixes) (2023) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:4D3892800944DF67E760FB4C7833B5CF69DAC4C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +657,8 @@ Vintage Culture - Live @ elrow, Ushuaia Ibiza, Spain (2023-09-06) [MP3|320 Kbps]
 magnet:?xt=urn:btih:60D43711FF032AC9C5EF1062D4317EE04B89CB07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +685,8 @@ Cosmic Gate - Live @ Tomorrowland Store Rooftop Ibiza, Spain (2025-09-16) [MP3|3
 ```bash
 magnet:?xt=urn:btih:B45595F08B71AF72B4C767AB8F3210C0294E27D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +715,8 @@ VA - We Love Funky by Miguel Vizcaino (2016) [MP3|320 kbps] <House>
 magnet:?xt=urn:btih:50CC8A8B7B221E8475D73A06C243082EE6BECAA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ VA - A State Of Trance Radio Top 50 - 2023, Vol. 2 (2023) [MP3|320 Kbps] <Trance
 ```bash
 magnet:?xt=urn:btih:3B715BFA2A5B5BC39E7A46513158D06E0B9789DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

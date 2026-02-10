@@ -19,6 +19,8 @@ Avid Media Composer — это одна из ведущих систем нел�
 magnet:?xt=urn:btih:62C16E9D9914DBD39A630A715B16CD8E7C8B0C80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:62C16E9D9914DBD39A630A715B16CD8E7C8B0C80
 magnet:?xt=urn:btih:2DEF4FFD06A583A738D7B38E606390F9502BC1E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:2DEF4FFD06A583A738D7B38E606390F9502BC1E0
 ```bash
 magnet:?xt=urn:btih:E6470160B9676D7929A3BF67637D1E5DFF49281D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:E6470160B9676D7929A3BF67637D1E5DFF49281D
 ```bash
 magnet:?xt=urn:btih:EF51D11D41F07E9C5DDCD0FE7F999CD8DF7421FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Stepik | Терминал Linux. Основы работы в командной
 magnet:?xt=urn:btih:FD3FEE70DE27F4174B552796FFA562453A88F07D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Udemy, Colt Steele | HTML & CSS Bootcamp - 2023 Edition (2023) WEB-DL [EN / EN S
 magnet:?xt=urn:btih:C3B6B87FD13A4F06FFB0FD00A2F734927EE2F87B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Telegram Web App – это удобный инструмент для разр�
 ```bash
 magnet:?xt=urn:btih:419EB9A7B79186E61CC95EB37AC4378BFD354F41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:419EB9A7B79186E61CC95EB37AC4378BFD354F41
 magnet:?xt=urn:btih:692700F7B30E672813E1625FB09AF2FA251ABB7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:692700F7B30E672813E1625FB09AF2FA251ABB7A
 magnet:?xt=urn:btih:2BAE2E1F07D7893B3390DA5A442A44D173DFC61A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Zemskurs, Алексей Земсков | Замер и оцифровка кв�
 ```bash
 magnet:?xt=urn:btih:40F6BE736035D0168742B4BBDB8737265D2DE6E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:40F6BE736035D0168742B4BBDB8737265D2DE6E4
 magnet:?xt=urn:btih:B2B76830894ED5B1DF5A146F27209B3150A1B3D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:B2B76830894ED5B1DF5A146F27209B3150A1B3D8
 ```bash
 magnet:?xt=urn:btih:9ABE2AC5B32D903B674BE8915AFAC01AD1E8612F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ EngExpert, Диана Семенычева | Как в 10 раз эффекти�
 magnet:?xt=urn:btih:9A34111A25E4E4A8A46622BCF55971D88D9846E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ Zemskurs, Алексей Земсков | Замер и оцифровка кв�
 ```bash
 magnet:?xt=urn:btih:C4BA99096BDCF3D8A652876974DE02615B404FC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:C4BA99096BDCF3D8A652876974DE02615B404FC7
 magnet:?xt=urn:btih:C0C890258ADF86DAC1FB4BA08DA5B185685B2B61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ Guitardo, Данил Чечеткин | Гитара 30 за 30 (2024) WEB-DL [A
 magnet:?xt=urn:btih:612581CA9CFB658EC64DB3FE2E65BA6EFC6CD28F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ ITVDN, Руслан Ларионенко | Qt Framework (2019) PCRec [RU]
 ```bash
 magnet:?xt=urn:btih:CB15C623342BECC11568E455AB2C0AF8D6C91CF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ magnet:?xt=urn:btih:CB15C623342BECC11568E455AB2C0AF8D6C91CF1
 ```bash
 magnet:?xt=urn:btih:67AE036F4A3598BCE39FA11DF1D1ADC973119742
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +520,8 @@ ITVDN, Владимир Виноградов, Кирилл Чернега | C++ 
 magnet:?xt=urn:btih:5398E760C4F05DD93B7FA7B19D755A11708718AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:5398E760C4F05DD93B7FA7B19D755A11708718AA
 ```bash
 magnet:?xt=urn:btih:8B58B0ED4BD28BEF98F7BFDD214E332E6E091E9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +576,8 @@ magnet:?xt=urn:btih:8B58B0ED4BD28BEF98F7BFDD214E332E6E091E9A
 magnet:?xt=urn:btih:F7800478EA0C10837B9DDCF9CCD6CFDA62B6F3C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ magnet:?xt=urn:btih:F7800478EA0C10837B9DDCF9CCD6CFDA62B6F3C3
 ```bash
 magnet:?xt=urn:btih:09B96A58F25EEE794D937EDDEE932B43C142AC34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +634,8 @@ magnet:?xt=urn:btih:09B96A58F25EEE794D937EDDEE932B43C142AC34
 magnet:?xt=urn:btih:7121E182517E36E31B55D7B3B263E4244F2396AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +660,8 @@ George Vondriska | Деревообработка: основы отделки (
 ```bash
 magnet:?xt=urn:btih:F000F90AA67DF8D794CD5E6907A1FA20852B7BEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +690,8 @@ GeekBrains | Факультет дизайна (2023) WEB-DL [RU]
 magnet:?xt=urn:btih:B5E3141C1DE589EB5DB23D97776461798D381398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +716,8 @@ Subsurface моделирование - важный рабочий процес
 ```bash
 magnet:?xt=urn:btih:C4E4E79F09F32821EAD3C9836C4AE792B2F7C4E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

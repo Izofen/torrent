@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:228E7CD96320B8437B7D9498394B10231E2390F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:228E7CD96320B8437B7D9498394B10231E2390F0
 ```bash
 magnet:?xt=urn:btih:0FD5047E78B62BCDFF4C1AAFAD2D8A4F689B4056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ NizamovStudio | Разработка мобильного приложения B
 magnet:?xt=urn:btih:9470C7DDFC1E80C5D92C1B1F5F3B50C4F5FFF6DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:9470C7DDFC1E80C5D92C1B1F5F3B50C4F5FFF6DA
 ```bash
 magnet:?xt=urn:btih:F452D41BAC5B30B8B87A80D6DC539D52F2F71F02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Udemy | Полный Курс Python С Нуля До Героя (2017) PCRec [H
 magnet:?xt=urn:btih:20A020BB6D35BB806CE56C799A79024104A81AD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:20A020BB6D35BB806CE56C799A79024104A81AD2
 ```bash
 magnet:?xt=urn:btih:4E52B03DA1ED26C7FEEBA81C7A3636483C38A402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:4E52B03DA1ED26C7FEEBA81C7A3636483C38A402
 magnet:?xt=urn:btih:28E08A3E3E4A91247B92202AD0B9E2F5803887BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ HTML Academy | Профессиональный Node.js (2018) PCRec [H.264/1080
 magnet:?xt=urn:btih:172D59B1FC75FBF5786479FBFE8958FB9D497602
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ WebDesign Master | Создание контентного сайта на Jekyl
 ```bash
 magnet:?xt=urn:btih:DCCD807F7F38B716D3EB72431F16EFA751A9713B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ ProfIT | T4: быстрый вход в мир современных фрейм
 magnet:?xt=urn:btih:4DAAC5D98381D84065ABD7FCDC001E308C5B1F98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ PHP Academy | Курс PHP Developer (2017) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:8DC0B61E5E16AC1499741053D16D4A481B5ADA2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:8DC0B61E5E16AC1499741053D16D4A481B5ADA2C
 magnet:?xt=urn:btih:1ADE69397035C12DD23BB01B20B0778B75187100
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ OTUS | Руководитель разработки (2019) PCRec
 ```bash
 magnet:?xt=urn:btih:187879C394A056CB21FB8F0AD88E1CD27F387B22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ React был выпущен командой веб-разработчиков F
 magnet:?xt=urn:btih:1F4A10A9F868A448F36482D21E5AC519CD4E7E2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ Udemy, Coding Minutes, Prateek Narang | Data Structures & Algorithms Essentials 
 ```bash
 magnet:?xt=urn:btih:8A87CDE2D48E9330FCD5BFB48A6EADBE7E93DB36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ OTUS | Deep Learning Engineer (2018) PCRec
 magnet:?xt=urn:btih:801D94557CCD9534EC83018AE22337C395B277EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:801D94557CCD9534EC83018AE22337C395B277EE
 ```bash
 magnet:?xt=urn:btih:C084C377DE11E01B49B851270A318F3760014CE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:C084C377DE11E01B49B851270A318F3760014CE8
 ```bash
 magnet:?xt=urn:btih:B52A5F913EB859333489D2426DB183564637C917
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:B52A5F913EB859333489D2426DB183564637C917
 magnet:?xt=urn:btih:AB31CAE806FEC3511E8AFFE82D6F8E44F35439E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ Softwaretesting, Арсений Батыров, Виталий Котов | SQL:
 ```bash
 magnet:?xt=urn:btih:A8A2C9FB0B8B827C249837FA6818118D8976F1A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ PythonYoga, Leo Trieu | Build Your Own UberEats system with Python/Django and Sw
 magnet:?xt=urn:btih:E38133FB84F70CE4955B54EB5866EF9B731A1381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ PentestIT | Безопасность сетевой инфраструктуры
 ```bash
 magnet:?xt=urn:btih:C3F42BDC49EB51857206B622C3F571A6CBF52919
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:C3F42BDC49EB51857206B622C3F571A6CBF52919
 magnet:?xt=urn:btih:7BE3750B61E59437D0D4C2BDAF622F08A51B6059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:7BE3750B61E59437D0D4C2BDAF622F08A51B6059
 magnet:?xt=urn:btih:338FA3295101322E0517267F7D2511D0BD719F7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:338FA3295101322E0517267F7D2511D0BD719F7A
 ```bash
 magnet:?xt=urn:btih:E0E1C1C660BBDAE7935A1FC7BFAA1CD3EC778282
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +692,8 @@ Web-разработка, системные утилиты, десктопны�
 ```bash
 magnet:?xt=urn:btih:AA0755B3BA1A1780699913BC04086208D063328D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

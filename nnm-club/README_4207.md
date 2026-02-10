@@ -22,6 +22,8 @@ VA - Africa Gets Physical, Vol. 2 (2019) [AAC|~331 Kbps] <Afro House, Deep House
 magnet:?xt=urn:btih:6636ED6ADABD8D3DA0320FAF3E276877311EE486
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Strogoorganic | Органическое Садоводство - Междуна
 magnet:?xt=urn:btih:E9A1F947D9D4F570EB01A0E7F72848A8B23BE950
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:E9A1F947D9D4F570EB01A0E7F72848A8B23BE950
 ```bash
 magnet:?xt=urn:btih:1B35A255EFEC40ABD016F8765367E00E7FF3AE2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:1B35A255EFEC40ABD016F8765367E00E7FF3AE2D
 magnet:?xt=urn:btih:2CCB7CA94C386F1B4E1DA32216F514CCB23F0BB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:2CCB7CA94C386F1B4E1DA32216F514CCB23F0BB0
 magnet:?xt=urn:btih:D0F6F9005649D048B55356A80E59C268E78EF672
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:D0F6F9005649D048B55356A80E59C268E78EF672
 ```bash
 magnet:?xt=urn:btih:19F5DB55FFA0FC981C7CE2A5DED4C7C3EB5B012B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Foghat - Night Shift (1976) (Reissue 2008), Limited Edition, Remastered K2HD  [F
 ```bash
 magnet:?xt=urn:btih:7EC0EC02AFE3F744287376514D60D84214B27404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ VA - Club Charts Vol.2 (2012) [MP3|256 кб/с]<Dance, Club>
 magnet:?xt=urn:btih:9568692BAD42A9891BC700683FFCECA2BCE24963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ Gates of Ishtar - The Dawn of Flames (1997) [FLAC|Lossless|image + .cue] <Melodi
 magnet:?xt=urn:btih:A50A2CB223E4F8E5EC8F6FDC781CAF039C4CCE56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:A50A2CB223E4F8E5EC8F6FDC781CAF039C4CCE56
 ```bash
 magnet:?xt=urn:btih:56F2B50528AD1D937E9B3BBC63A03836FC197D5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ ISO Workshop – небольшая программа для работы с о
 magnet:?xt=urn:btih:C148F48F8173F4FC510DCA09D13C3E8395889B62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:C148F48F8173F4FC510DCA09D13C3E8395889B62
 ```bash
 magnet:?xt=urn:btih:AE8D5E1EAF202A3E2BE57949318C4399250EB530
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:AE8D5E1EAF202A3E2BE57949318C4399250EB530
 magnet:?xt=urn:btih:E01EFA0A1F3C16EDA928C978B4D60314D6D5FB86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:E01EFA0A1F3C16EDA928C978B4D60314D6D5FB86
 ```bash
 magnet:?xt=urn:btih:7D049E9CA641E2F9C60A5BDF9D009E25CE738E83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +413,8 @@ VA - Клубные Новинки Vol.65 from AGR (2012) [MP3|320 кб/с]<Club
 magnet:?xt=urn:btih:6BD8E45E5C3C818E1F36777961A99F4167E6C0A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ Mp3tag предоставляет пользователям мощный и п�
 ```bash
 magnet:?xt=urn:btih:1276391BA121945832C4FCFFDDF48AAE3BC61E55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ magnet:?xt=urn:btih:1276391BA121945832C4FCFFDDF48AAE3BC61E55
 magnet:?xt=urn:btih:88606AA3B666A00602C3B938473ECCA1249A9815
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ magnet:?xt=urn:btih:88606AA3B666A00602C3B938473ECCA1249A9815
 ```bash
 magnet:?xt=urn:btih:DDD007A04E5F790E47D9DBB9BA78104BB314FD6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:DDD007A04E5F790E47D9DBB9BA78104BB314FD6F
 magnet:?xt=urn:btih:75B805EF260D14F4879BCF11B2CD3EE46DCECF41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:75B805EF260D14F4879BCF11B2CD3EE46DCECF41
 ```bash
 magnet:?xt=urn:btih:347011B632B75B1072A6163B4A54C1011FE80C7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:347011B632B75B1072A6163B4A54C1011FE80C7D
 magnet:?xt=urn:btih:6AB2C505B368EDA3414A71D65C108FBB0B9134B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:CD2A0E5F46671722DCBB8F49DD0D873BF2D5314A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ VA - Fresh & Chill (2022) [MP3|320 Kbps] <Pop, Chillout>
 magnet:?xt=urn:btih:F3EB8DFB4E417C328FE501F0AD88BF8DDEFCFFDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:F3EB8DFB4E417C328FE501F0AD88BF8DDEFCFFDD
 ```bash
 magnet:?xt=urn:btih:7957D793D128CDD38A4580B8311C012B7A7DB896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ magnet:?xt=urn:btih:7957D793D128CDD38A4580B8311C012B7A7DB896
 magnet:?xt=urn:btih:2706927FAADED6BF62FE5A7A934AA754E26A084D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:2706927FAADED6BF62FE5A7A934AA754E26A084D
 ```bash
 magnet:?xt=urn:btih:9AC8AE6091136EF75FD14A9D020695A54810AC27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

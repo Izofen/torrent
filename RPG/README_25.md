@@ -19,6 +19,8 @@ Dark Sky (2024) [Ru/Multi] (1.0.1/dlc) Repack FitGirl [Supporter Edition]
 magnet:?xt=urn:btih:A0A2B5BB912F0D5542EA567E3038DE87BFE63B0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Starfield открывает новую главу в игровой вселе�
 ```bash
 magnet:?xt=urn:btih:783E04DB9496F4AD81DC74FB1E374B43321BEA21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Space Prison бросает вас в холодную реальность га
 magnet:?xt=urn:btih:82E6B48DB36B3B250EC6F32343B0E87E6F18890E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Flintlock: The Siege of Dawn с головой окунает вас в огро
 ```bash
 magnet:?xt=urn:btih:0A7DB438074D09C50A59978DEBB8C689364E8381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Dread Dawn (2024) [Ru/Multi] (2024.10.1.1000) Repack FitGirl
 magnet:?xt=urn:btih:9528AE775CA35C50AC98D192B2A81EBA9B3036C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ REYNATIS - это ролевая адвенчура в жанре городск
 ```bash
 magnet:?xt=urn:btih:A31A35676D3A71B89646D0C863A54A39600052B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NieR Replicant ver.1.22474487139... – обновленная версия NieR
 magnet:?xt=urn:btih:C9CDD12F99A10CCCD2C99DAD346EFDD1E184E055
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Dread Dawn (2024) [Ru/Multi] (2024.10.1.1000) Scene Rune
 ```bash
 magnet:?xt=urn:btih:214220F1C88E1B735E7C8FCE91780E1A0A4C02D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Starfield - первая более чем за 25 лет новая игров�
 magnet:?xt=urn:btih:B875AB8F81DBE9EF3D20E30C6BA14F28DD36B53F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Rogue Waters - это тактическая пошаговая игра в ду
 ```bash
 magnet:?xt=urn:btih:07EA433FEBC3427713D53DF24D38658FAAB9E96D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Rogue Waters - это тактическая пошаговая игра в ду
 magnet:?xt=urn:btih:CDA3D45733BCD226A8EE142E3BC6D19C3F3B4071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Nigate Tale – приключение, события которого прои
 ```bash
 magnet:?xt=urn:btih:1A0166D9316CD7E5F1030130D72D3E97A029C70F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Dwarven Realms - это ориентированная на действия 3D 
 magnet:?xt=urn:btih:7957448F825706424E7C410860B37E8B7AE4F933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Shadows of Doubt (2024) [Ru/Multi] (39.07) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7D6E84D10E8A82A85B7D0219DEB0541D2B2D5B0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Frontier Hunter: Erza's Wheel of Fortune совмещает элементы п�
 magnet:?xt=urn:btih:908C86675D9723BAF466922E16FC7380F8E353B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Last Epoch – приключенческая экшен-игра с глубо�
 ```bash
 magnet:?xt=urn:btih:E5CD2CA9F356094A69F230A30B70F2E76ED2FE63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Just A To the Moon Series Beach Episode - это казуальная прикл
 magnet:?xt=urn:btih:BECB59201B3DEA48C4328AAAA3DBBC27E6B1755B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Wolcen: Lords of Mayhem (2020) [Ru/Multi] (1.1.7.16/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:2D8107C4950E9A3DC5BE92E2C6652CDB7D387AD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Perennial Order - это 2D-игра в жанре растительного у
 magnet:?xt=urn:btih:F757FE7802E05BE0D03FD5D3C9C890E7CF74BC01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Starcom: Nexus (2018) [Ru/Multi] (1.0.13c) License GOG
 ```bash
 magnet:?xt=urn:btih:567456CB084B69551FCD9593013B04CA3E084651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Garlant: My Story - это игра, в которой вы отправляет
 magnet:?xt=urn:btih:9F15DB9F4BA3748D6DB9D0DD80E4F853C9639817
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Castle of Lord Velimir отправляет игроков в опасное п�
 ```bash
 magnet:?xt=urn:btih:501261B467FE409FB05E258542882ABE30BE1D5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Pirates Journey (2024) [Ru/Multi] (0.1.0.6) Scene Tenoke
 magnet:?xt=urn:btih:03B40A8D81BA3F26AC3025FC7FDDD58B39D498E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Ascent - экшн-RPG в духе киберпанка с режимами �
 ```bash
 magnet:?xt=urn:btih:73374A86543EA43065F48B4D2475C46B3F33BB34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.002.26228) Repack Other s
 magnet:?xt=urn:btih:4217A894FA008D0061C22359FB952E42E02D34C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Tactical Breach Wizards – тактическое ролевое приключ
 ```bash
 magnet:?xt=urn:btih:FD26D0BAC000DC5178F2596E8117844B3D0C9902
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

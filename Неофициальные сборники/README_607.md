@@ -1,3 +1,32 @@
+###  Публикация: 1367071   (919146) от 14.03.2020
+
+VA - The Official UK Top 40 Singles Chart 13.03.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_919146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weeknd, Max Martin, Oscar Holter, Abel Tesfaye - Blinding Lights 3:22
+02. Saint Jhn - Roses 2:57
+03. Aitch, Aj Tracey, Tay Keith - Rain 3:03
+04. Roddy Ricch - The Box 3:17(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0D0809C1224D46CA90589F8616A3B5E7559F03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988785   (919178) от 21.02.2016
 
 VA - Smooth Jazz n' Chill (2016) [MP3|320 кб/с] <Smooth Jazz, Lounge>
@@ -21,6 +50,8 @@ VA - Smooth Jazz n' Chill (2016) [MP3|320 кб/с] <Smooth Jazz, Lounge>
 ```bash
 magnet:?xt=urn:btih:4A9670DB3154EDBC275605F6A8F928702CB9028E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - February Top 100 - Collection Trance (2016) [MP3|320 кб/с] <Trance>
 magnet:?xt=urn:btih:1DFA25BF89FDAAF27FDCA886565C1235937C379A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ VA - House Nation Volume 3 (2015) [MP3|320 кб/с] <House, EDM, Club, Electro>
 magnet:?xt=urn:btih:8A1E191CEDC3BF1EEB8C8059476743E02BA6E3DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +137,8 @@ magnet:?xt=urn:btih:8A1E191CEDC3BF1EEB8C8059476743E02BA6E3DF
 ```bash
 magnet:?xt=urn:btih:7704F4A4B932F1F109AA2669AC85A3DB6B6D92DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +168,8 @@ VA - Electro Life 23 (by ZiP)(2013) [MP3|320 kbps]<Electro House, Progressive Ho
 ```bash
 magnet:?xt=urn:btih:E1AE3AEA64FE2B2EA0EBB76E050AFD2519CA6470
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +204,8 @@ VA - New Street Music One (2013) [MP3|320 кб/с]<Glitchhop, Trap>
 magnet:?xt=urn:btih:1E55B26CB000339D6F0D980A1D9BBB7DC9FCDF05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +232,8 @@ VA - Дискотека 2017 Dance Club Vol. 160 от NNNB (2017) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:8059EFA37C59E5F133DC59124EBB7F0F9BD8F9A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +268,8 @@ VA - Creative Electro Box 3 (2013) [MP3|320 кб/с]<House, Electro, Electro Hou
 magnet:?xt=urn:btih:0FBE8136934966E7938B5D2BA9631D70FA2EB1AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +293,8 @@ VA - Крутые 90е (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:18735D413B51B0FA4218069D39310A5536B9D62D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +323,8 @@ VA - Легенды Ретро FM. Лучшее. Зарубежный Выпус
 magnet:?xt=urn:btih:C457FBCAAFEB11C51F7722CCF888442082AF1F71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +352,8 @@ VA - 100 Greatest 2000s Love Songs (2021) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:622FEEF2CFCF22B97CD3E85249F2DF46529056F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +380,8 @@ VA - 100 Greatest 2010s Love Songs (2021) [MP3|320 Kbps] <Pop, Rock, Other>
 ```bash
 magnet:?xt=urn:btih:96D61F938705092BD6D30C6337A088587119F7D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +413,8 @@ Hits of My Soul - сборник электронной и инструмент�
 magnet:?xt=urn:btih:8B793BE8131D2528F29EC3B5DACA520AF45E3FB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +442,8 @@ VA - Music News vol.124 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
 magnet:?xt=urn:btih:98B7AF39DF999994E0B4325A6DB8D6FA0D649727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +468,8 @@ VA - XXL Супер Союз 2 50/50 (2011) [MP3|128 kbps]<Pop>
 magnet:?xt=urn:btih:72C920889B443350B28229E046C14C35B8942CDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +493,8 @@ VA - Вечеринка в разгаре (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:20662AF0430723922148EC67D20028D8ECF5BAB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +523,8 @@ VA - Europa Plus: Top 100 Хит-Презент (2017) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:E2396A9E54BB23F965A0DC5E89B0F85813B7538E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +548,8 @@ VA - Звезды в шоке 50/50 (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:9CEDE8ECB90D81EAC36208843B36AF0018CB94BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +578,8 @@ VA - Hits Cocktail (2017) [MP3|320 Kbps] <Dance , House , MashUp>
 magnet:?xt=urn:btih:A94491B11B1260B2034CF9E3601FC046B426962A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +606,8 @@ VA - Record Super Chart #471 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:98236396FAB51E337672111F937BA541537B049B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +636,8 @@ VA - За Рулем. Хиты Зимы. Зарубежный (2017) [MP3|256-32
 magnet:?xt=urn:btih:D54E9795B45405E3A6C9B07E63F6F25777A19920
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +664,8 @@ VA - Bass Killer 10 (2017) [MP3|320 Kbps] <Dubstep, Big Room, Trap, Electro, Fut
 ```bash
 magnet:?xt=urn:btih:F179C520C5F73B157649DA1EC566367BC20AF35C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +694,8 @@ VA - Function Total EDM (2017) [MP3|320 Kbps] <House, Future House, Progressive,
 magnet:?xt=urn:btih:DCBC23616FBDF91723CAAE19E3885D65533A370E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +722,8 @@ VA - Empire Records - Club Hit 5 (2017) [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:233673B7C9B249598A83D18191750F47FB17DAF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -675,32 +752,7 @@ VA - Empire Records - ANDRS Parody (2017) [MP3|320 Kbps] <Club>
 magnet:?xt=urn:btih:C418C17047D3BA4BE4B266BED527D34042D661F0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096242   (920981) от 23.01.2017
-
-VA - Empire Records - Club Hit 6 (2017) [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_920981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SRTW feat. Charity Children - Whispering Still (Little Rose Remix)
-02. Groove Insane - Broken Heart (Artful Fox Bootleg Remix)
-03. Mr & Mrs Cactus - Synchronized (Steve Diamond Remix)
-04. Klingande feat. M-22 - Somewhere New (George Kwali Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BEAA8929D93268324D66D171E2C91CFD1B563D9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

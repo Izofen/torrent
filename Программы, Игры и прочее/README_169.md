@@ -19,6 +19,8 @@ MIUI Hidden Settings Activity v1.6.13 Mod by TryRoom [Ru/Multi]
 magnet:?xt=urn:btih:AF5A24F942268D8069395541D178D19CD64111DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PictureThis - Plant Identification v5.18.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8EBA44AE73BDABB2E075524678E43F06DEC9CFE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:8EBA44AE73BDABB2E075524678E43F06DEC9CFE4
 magnet:?xt=urn:btih:FE701CC56857BE92AEFC61A7079FD089FE82C81D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Flud - простой и элегантный BitTorrent клиент для о�
 magnet:?xt=urn:btih:5B00E3E3ED70D614D4F0CE65C631E0665745F8E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ AirBrush: ИИ Фоторедактор v7.23.5 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:505C0505020C81B37514CAFAEB2BD20E22E4E57D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v2.0.0 Mod by v
 magnet:?xt=urn:btih:1C40FBF5B11858057E59AD2F565AA4166CFF00C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ AI Photo Editor Pro - Polish v1.711.245 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3C51938355DDBB5696930A24BB3DCD7548DBDC7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Strava: бег, велоезда, хайкинг v440.16 Mod by ReVanced Team [R
 magnet:?xt=urn:btih:85E677749E595D7B023F96F22D525FA820F7BED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ MX Player Pro v1.93.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:091E1539D8DCDACCF0365FCA2B38F1B4BA0AD4D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:091E1539D8DCDACCF0365FCA2B38F1B4BA0AD4D7
 magnet:?xt=urn:btih:2C1038187E47CF46B941F13464A8A4C2BC5C4D60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:2C1038187E47CF46B941F13464A8A4C2BC5C4D60
 ```bash
 magnet:?xt=urn:btih:D8B1FC6B08FED31B5921376E65E0ACE2838DD1FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ USB Camera Pro v11.9.0 Mod by ApplicazioniCR [Ru/Multi]
 magnet:?xt=urn:btih:31F0DCD86CE8265B9B807F8EFF7CC030C97AD2A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:31F0DCD86CE8265B9B807F8EFF7CC030C97AD2A4
 ```bash
 magnet:?xt=urn:btih:99E1838088568B253578563DF84F72AE2C1A6678
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Win 11 Launcher v9.33 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:AF8CCDD7DF7C3E94004D0B46D94C3802560334EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:69AF92CE6C92AE5CC760B51217744CE6153AE8D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ FitAI имеет базу данных из более чем 3900 упражн�
 magnet:?xt=urn:btih:A7F16A8729117B99A9BE96B823F07CD3AE15E975
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:D6C16AC0B2E7EF66C44C4E8BF7E4E46362F3B27D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ DjVu Reader & Viewer (читалка дежавю на русском языке
 ```bash
 magnet:?xt=urn:btih:87A52D4763C0EC06102FDE85647F2A13F85C0A8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Solid Explorer - это приложение для управления фай�
 magnet:?xt=urn:btih:B2D7BD7E27FD87144B433609078BD627A8691F44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Ocean Match / Рыбки: Три в ряд v3.3.4 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:BB28B19DC8CC6F30EDA06A9E20A199C8981108DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Eatr・Здоровые рецепты v2.11.1 Mod by vadj [Ru]
 ```bash
 magnet:?xt=urn:btih:CFA813CD8C7F5C7B87F8E854B192D81F08BE625B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 magnet:?xt=urn:btih:4B0BB378874AC46CC91EF595B0DA716170527192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ NewPipe v0.28.1 Free + Mod by Alex.Strannik  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:ACC1664F2ACAC900809AADFC478DAA4C5ADE480F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ NewPipe x SponsorBlock x Return YouTube Dislike v0.28.1 Mod by baalajimaestro  [
 magnet:?xt=urn:btih:5C54D79964CB4D4A7D4147391D8ABD8AE41BD551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:5C54D79964CB4D4A7D4147391D8ABD8AE41BD551
 magnet:?xt=urn:btih:FBF10793BB7B53FCA0EEE824EAF2D805D18C8B83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:FBF10793BB7B53FCA0EEE824EAF2D805D18C8B83
 ```bash
 magnet:?xt=urn:btih:F8D700E74C3052A6759449434D012A3E7538DA6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

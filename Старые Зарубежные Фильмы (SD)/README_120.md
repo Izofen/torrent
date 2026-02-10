@@ -1,28 +1,3 @@
-###  Публикация: 1062368   (441602) от 13.10.2016
-
-Охотники в прериях Мексики / Prariejager in Mexiko: Geierschnabel (1988) DVDRip [H.264] [2 серии]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_441602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мексика 70-х годов XIX века. Французский экспедиционный корпус высаживается в Мексике. Император Франции Наполеон III и местные консерваторы установили в стране монархию и решили посадить на трон Мексики — своего ставленника эрцгерцога Максимилиана Габсбурга.
-В начавшейся национально-освободительной войне свободолюбивые индейцы — мацтеки во главе со своим вождем (   Читать дальше...   )Производство: Германия (ГДР)/ Киностудия Дефа, Fernsehen der DDRЖанр: ВестернРежиссер: Ганс КнётчАктеры: Коле Дончев, Гойко Митич, Андреас Шмидт-Шаллер, Джоко Росич, Леон Немчик, Анна Мария Гюзелева, Рената Дралчева, Гельмут Шелхардт, Хорст Шульце, Ганс Кнётч, Ульрика Май, Эрвин Бернер, Ян Шпитцер, Иоахим Зибеншу, Вернер Эрлихер,  Экхард Бильц, Вилфрид ПухерПеревод: Дублированный (Киностудия им.А.Довженко)Субтитры: ОтсутствуютПродолжительность: 02:26:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D01DA5A061094267E4BD4560FF8CC8D4F86758FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062108   (443549) от 12.10.2016
 
 Долина проклятий / Damnation Alley (1977) BDRip [H.264] [AVO]
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:D01DA5A061094267E4BD4560FF8CC8D4F86758FF
 ```bash
 magnet:?xt=urn:btih:83737699A15CB825071942A584D7A856D6BC9980
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +45,8 @@ magnet:?xt=urn:btih:83737699A15CB825071942A584D7A856D6BC9980
 magnet:?xt=urn:btih:F73B55383694164E999160AF3ECD03B6DCFB5EDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +71,8 @@ magnet:?xt=urn:btih:F73B55383694164E999160AF3ECD03B6DCFB5EDB
 magnet:?xt=urn:btih:F084A375877DB239AA791DFC104A9A11D431FD7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +96,8 @@ magnet:?xt=urn:btih:F084A375877DB239AA791DFC104A9A11D431FD7A
 ```bash
 magnet:?xt=urn:btih:42568CA869DD473658AA7E1024EE8032B3E9F19A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +125,8 @@ magnet:?xt=urn:btih:42568CA869DD473658AA7E1024EE8032B3E9F19A
 magnet:?xt=urn:btih:9F5AB6D4AABEB0A7428DF0F4B829F4B4A28A9CF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +150,8 @@ magnet:?xt=urn:btih:9F5AB6D4AABEB0A7428DF0F4B829F4B4A28A9CF6
 ```bash
 magnet:?xt=urn:btih:6324EC797E036247E707F63335578BBDD41DF593
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +177,8 @@ magnet:?xt=urn:btih:6324EC797E036247E707F63335578BBDD41DF593
 magnet:?xt=urn:btih:D318F4D3E86EFD685FAE2C5B7F352CA69A13B559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +202,8 @@ magnet:?xt=urn:btih:D318F4D3E86EFD685FAE2C5B7F352CA69A13B559
 ```bash
 magnet:?xt=urn:btih:1730AABE0C18D4133CCD5CB4CF738F622C785309
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +230,8 @@ magnet:?xt=urn:btih:1730AABE0C18D4133CCD5CB4CF738F622C785309
 magnet:?xt=urn:btih:6C14281C111B745840B4ACF9A5AD4912B96621C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +255,8 @@ magnet:?xt=urn:btih:6C14281C111B745840B4ACF9A5AD4912B96621C3
 ```bash
 magnet:?xt=urn:btih:05B6B07C5CD05C92FB68F15DB79B6603EDF1B52E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +283,8 @@ magnet:?xt=urn:btih:05B6B07C5CD05C92FB68F15DB79B6603EDF1B52E
 magnet:?xt=urn:btih:388B79D3839A50162AFE983F72BEF6E560BB8B33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +308,8 @@ magnet:?xt=urn:btih:388B79D3839A50162AFE983F72BEF6E560BB8B33
 ```bash
 magnet:?xt=urn:btih:A741DB144911A0369DA2099ECBFF140E5CC72038
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +335,8 @@ magnet:?xt=urn:btih:A741DB144911A0369DA2099ECBFF140E5CC72038
 magnet:?xt=urn:btih:BE8D96AA82FEBEAA1CB678E2C45E36F93FA353E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +360,8 @@ magnet:?xt=urn:btih:BE8D96AA82FEBEAA1CB678E2C45E36F93FA353E9
 ```bash
 magnet:?xt=urn:btih:3DAA9877DFE192321B93521626967204AF54E634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +390,8 @@ magnet:?xt=urn:btih:3DAA9877DFE192321B93521626967204AF54E634
 magnet:?xt=urn:btih:AB953BEA5B18B58580DCE1B4139065C1756C0612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +415,8 @@ magnet:?xt=urn:btih:AB953BEA5B18B58580DCE1B4139065C1756C0612
 ```bash
 magnet:?xt=urn:btih:71F41D1995E67F389AE20326B43D5FCBB4A9DA9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +442,8 @@ magnet:?xt=urn:btih:71F41D1995E67F389AE20326B43D5FCBB4A9DA9C
 magnet:?xt=urn:btih:9B947F37D6C39CF10B767EA1423541C5C0E28F30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +467,8 @@ magnet:?xt=urn:btih:9B947F37D6C39CF10B767EA1423541C5C0E28F30
 ```bash
 magnet:?xt=urn:btih:C0E9CB822E75D555C0307960F730B9D5EB8EDC8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +494,8 @@ magnet:?xt=urn:btih:C0E9CB822E75D555C0307960F730B9D5EB8EDC8C
 magnet:?xt=urn:btih:84ACA848994C9ACDBC1F2E27BD4458EF5CC8645C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +519,8 @@ magnet:?xt=urn:btih:84ACA848994C9ACDBC1F2E27BD4458EF5CC8645C
 ```bash
 magnet:?xt=urn:btih:DD427D0430D860078A7C451FD73CB74079C9411B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +547,8 @@ magnet:?xt=urn:btih:DD427D0430D860078A7C451FD73CB74079C9411B
 magnet:?xt=urn:btih:745BB30919219D3D3FC05D79B88EA850D6664973
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +573,8 @@ magnet:?xt=urn:btih:745BB30919219D3D3FC05D79B88EA850D6664973
 magnet:?xt=urn:btih:9B6B9FCFD4EA0DDF7C3D4145AFF615C522760608
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +598,8 @@ magnet:?xt=urn:btih:9B6B9FCFD4EA0DDF7C3D4145AFF615C522760608
 ```bash
 magnet:?xt=urn:btih:637249CB687648F054B5D4159153037B248699FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +626,8 @@ magnet:?xt=urn:btih:637249CB687648F054B5D4159153037B248699FA
 magnet:?xt=urn:btih:A1F6E889CBC00428B59079293B14495ABE8E9805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +651,34 @@ magnet:?xt=urn:btih:A1F6E889CBC00428B59079293B14495ABE8E9805
 ```bash
 magnet:?xt=urn:btih:98354329E94EA00B894D160A110ED1D5BA087A0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569480   (451650) от 13.08.2022
+
+Джонни О Клок / Johnny O Clock (1947) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_451650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм рассказывает историю менеджера игрального клуба в Нью-Йорке, который после двух связанных с клубом убийств оказывается в центре сложной интриги с участием своего криминального босса, полицейского инспектора и двух влюблённых в него женщин...Производство: США, J.E.M. ProductionsЖанр: нуар, драма, криминал, триллерРежиссер: Роберт РоссенАктеры: Дик Пауэлл, Эвелин Кийес, Ли Дж. Кобб, Эллен Дрю, Нина Фош, Томас Гомес, Джон Келлогг, Джим Бэннон, Мэйбл Пейдж, Фил БраунПеревод: любительский одноголосый (Виктор Рутилов)Субтитры: русские (karlivanovich), английские SDHПродолжительность: 01:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4240A258B23DE59A4B4DFBC4179DBB7FC56DBBC
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

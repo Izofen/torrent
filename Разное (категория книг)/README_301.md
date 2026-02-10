@@ -1,3 +1,29 @@
+###  Публикация: 1410753   (433624) от 22.09.2020
+
+Анна Гудкова | Питчинг. Как представить и продать свою идею (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга позволит любому желающему разобраться в том, как представить себя и свой проект не только ярко и убедительно, но и эффективно и честно. «Питчинг» научит вас разговаривать с большим миром и быть честным с самим собой, поможет отточить навыки soft skills и начать создавать собственные миры, сделать первый шаг к работе мечты и не бояться идти навстречу новым (   Читать дальше...   )Жанр: Маркетинг, Ораторское искусство, риторика, Эффективная презентацияФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:442565E63447A65145C77EEF27E3F2B4CC260094
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1323827   (433675) от 05.09.2019
 
 Георгий Данелия | Безбилетный пассажир (2011) [PDF, FB2, EPUB, MOBI]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:6933BDE6C13AC140B94A0793A3600BBC2B5791CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:6933BDE6C13AC140B94A0793A3600BBC2B5791CC
 ```bash
 magnet:?xt=urn:btih:2E2974D32F7F9108B0B8B65DF9E76DDE01DE84E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:2E2974D32F7F9108B0B8B65DF9E76DDE01DE84E1
 magnet:?xt=urn:btih:B424C35114BAD86806F8B6BDDB5A9BE24FF38ED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:B424C35114BAD86806F8B6BDDB5A9BE24FF38ED2
 magnet:?xt=urn:btih:AE741F510E9CFB945BAEE6371242D7845538B179
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:AE741F510E9CFB945BAEE6371242D7845538B179
 ```bash
 magnet:?xt=urn:btih:F4FE73A30A562830C0DAE2FF386B9E4C709A8FAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:F4FE73A30A562830C0DAE2FF386B9E4C709A8FAA
 magnet:?xt=urn:btih:CDEC53010A63A7685F87DDF1A8C85C2237E801C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:CDEC53010A63A7685F87DDF1A8C85C2237E801C5
 ```bash
 magnet:?xt=urn:btih:5473750EA5A8882DDB1E2062CD4F8C6B5A8765B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:5473750EA5A8882DDB1E2062CD4F8C6B5A8765B0
 magnet:?xt=urn:btih:A2904D21475DD9E6A8F5E12A29B974EA51B9CC5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:A2904D21475DD9E6A8F5E12A29B974EA51B9CC5D
 ```bash
 magnet:?xt=urn:btih:5BDA80A6061BE3BD82382B4D37CD60696D71FEB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:5BDA80A6061BE3BD82382B4D37CD60696D71FEB6
 magnet:?xt=urn:btih:96B229DB8F81A1F5832F64E8C859F3F9C685463B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:96B229DB8F81A1F5832F64E8C859F3F9C685463B
 ```bash
 magnet:?xt=urn:btih:B91FC6762BC206C1F3B4206B33A9E472C2487E9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:B91FC6762BC206C1F3B4206B33A9E472C2487E9A
 magnet:?xt=urn:btih:51799A3691A6219513EFFFA4957AB4C1DEBB0509
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:51799A3691A6219513EFFFA4957AB4C1DEBB0509
 ```bash
 magnet:?xt=urn:btih:642D5200FDB59DFBB2F7C019ADBD6075DC5FB153
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:642D5200FDB59DFBB2F7C019ADBD6075DC5FB153
 magnet:?xt=urn:btih:7448F133371C711B09628E089D3B66672C716A79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:7448F133371C711B09628E089D3B66672C716A79
 magnet:?xt=urn:btih:C41D1936157ED05418960B5C632CBF4DA40C546D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:C41D1936157ED05418960B5C632CBF4DA40C546D
 ```bash
 magnet:?xt=urn:btih:DA4FD90061C627B81FACD34F3F657F2F33137470
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:DA4FD90061C627B81FACD34F3F657F2F33137470
 magnet:?xt=urn:btih:90EBEB7F8C97A6F9A2FB9A556F6F9F28910DA702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:90EBEB7F8C97A6F9A2FB9A556F6F9F28910DA702
 magnet:?xt=urn:btih:EFCA957336A2501A022D67EBEE2B3E86539A1ADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:EFCA957336A2501A022D67EBEE2B3E86539A1ADE
 ```bash
 magnet:?xt=urn:btih:8CD53F19E1CC0524160DD662AE90111F8EB6F819
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:8CD53F19E1CC0524160DD662AE90111F8EB6F819
 magnet:?xt=urn:btih:961EF03BBD787DCE84D03B421A1AEFCA4B9EE646
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:961EF03BBD787DCE84D03B421A1AEFCA4B9EE646
 ```bash
 magnet:?xt=urn:btih:50BBAAE98001CB082BC7158BDD719B5E457009C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:50BBAAE98001CB082BC7158BDD719B5E457009C5
 magnet:?xt=urn:btih:F86052727AA2E1FDC34C91E30E7A332F45BA94E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:F86052727AA2E1FDC34C91E30E7A332F45BA94E2
 magnet:?xt=urn:btih:08BA792D34E5476E7822A51F105EF899EC0A2249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:08BA792D34E5476E7822A51F105EF899EC0A2249
 ```bash
 magnet:?xt=urn:btih:3A668925BED2F367C175445D962AA06D38EA9AAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,30 +679,7 @@ magnet:?xt=urn:btih:3A668925BED2F367C175445D962AA06D38EA9AAD
 magnet:?xt=urn:btih:732E65D634B6C71907C09B360EE0C4C37C0B1B72
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323515   (435645) от 04.09.2019
-
-Дмитрий Калинский | Женщина глазами мужчины: что мы от вас скрываем (2018) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_435645.jpg" />
-</div>
-
-
-###  Подробнее
-
-В данной книге мы с вами сосредоточимся на очень узкой – и столь важной для каждого мужчины и каждой женщины – сфере: как построить гармоничные отношения, как создать счастливый мир для двоих.
-В общем-то, в этой книге я не сделаю особых открытий – лишь объясню вам честно, чего мужчина хочет от женщины. Стоп! Открытия все-таки будут! Потому что я не просто выдам вам (   Читать дальше...   )Жанр: Психология, Социология, ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E77FE6E35F44DE01D6ADD80F599DB1145F4E7B21
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

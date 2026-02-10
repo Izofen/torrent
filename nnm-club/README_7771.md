@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9C42CF169470406F99714411F9EBCD2897E0F695
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Alex Nunziati - Black Space Void (2023) [FLAC|Lossless|WEB-DL|tracks] <Horror He
 ```bash
 magnet:?xt=urn:btih:A2FB39263A79948D8AA0EBC9D51076D589129758
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:A2FB39263A79948D8AA0EBC9D51076D589129758
 magnet:?xt=urn:btih:037C4F6305049F882B380D705CE40C935271EA01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Saihate no Paladin | The Faraway Paladin | Паладин издалека [ТВ
 magnet:?xt=urn:btih:FBC342E3980B61CCBAAF4464FFB22135FF2BE120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:FBC342E3980B61CCBAAF4464FFB22135FF2BE120
 magnet:?xt=urn:btih:DFD88657A09C19FD8370B661D5FC5983160864C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ NetShred X - утилита не просто для удаления кэша �
 ```bash
 magnet:?xt=urn:btih:3C75B59DD3926134647666D0718729E3CF81C379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:3C75B59DD3926134647666D0718729E3CF81C379
 magnet:?xt=urn:btih:F059149830B73049CB8C02207A9673BC2CEDF937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Cry Of Dawn - Anthropocene (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 magnet:?xt=urn:btih:97FC64F98B81098B5424BF16731BE2593384817E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:97FC64F98B81098B5424BF16731BE2593384817E
 ```bash
 magnet:?xt=urn:btih:0723997812A1C2A33C0DCB1546C4028BDAF22FFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Mean Green - Mean Green (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner Doom, Sludg
 magnet:?xt=urn:btih:F74D87D185804AB09F616BEFEFB6ECBBD8165891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ Exgenesis - Solve et Coagula (2020) [FLAC|Lossless|image + .cue] <Melodic Doom, 
 ```bash
 magnet:?xt=urn:btih:2CD7DA1B6A0B81BB6301864C8DF71D39C38E18D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ VA - Erotic Lounge (2015) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
 magnet:?xt=urn:btih:0236E60BA26742D5A3102D7AD91DDAF6D36E51D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ FastStone Capture представляет собой довольно мощн�
 ```bash
 magnet:?xt=urn:btih:A232E1E1E73C17DBC00B11C24CCACC8D7067EA78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:A232E1E1E73C17DBC00B11C24CCACC8D7067EA78
 magnet:?xt=urn:btih:ABA4A2922FB45B47DB083C968361CC8CB725108D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:ABA4A2922FB45B47DB083C968361CC8CB725108D
 ```bash
 magnet:?xt=urn:btih:479568F434DE02B4D798B54D38E651519F6EA171
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ Sebia - Acceptance Of Reality (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:EF1ED968A7A4FBD5CF414BC42C1B9802FA671B59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ Massacre - Submergence: Live Beyond 2019 (2023) [FLAC|Lossless|WEB-DL|tracks] <D
 magnet:?xt=urn:btih:1BCC586279B48F9E8010EA75E11F38D8E920E8B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ ImageRanger - программа позволит найти все нужные
 ```bash
 magnet:?xt=urn:btih:F93AEC0CA0BAFCA0C7D4D21E6873CD4EBC9F0FDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:F93AEC0CA0BAFCA0C7D4D21E6873CD4EBC9F0FDF
 magnet:?xt=urn:btih:6D06B05B13486756E826FF62B39A5B76CC1F8015
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:6D06B05B13486756E826FF62B39A5B76CC1F8015
 ```bash
 magnet:?xt=urn:btih:BA27CD42618C09757FE0E9D210D0BE4B0D9CBF73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ magnet:?xt=urn:btih:BA27CD42618C09757FE0E9D210D0BE4B0D9CBF73
 magnet:?xt=urn:btih:8A788400A3BF29080815974E7333D38299A627C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ magnet:?xt=urn:btih:8A788400A3BF29080815974E7333D38299A627C9
 ```bash
 magnet:?xt=urn:btih:ACC85707E68F51A99BE2F97226AC5C5CDACA2433
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +628,8 @@ Caro Emerald - Deleted Scenes From The Cutting Room Floor (Acoustic Sessions) (2
 magnet:?xt=urn:btih:CC575C734465473C89D35C3E136E5F256F2A6F65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ Airmail – это почтовый клиент для операционной
 ```bash
 magnet:?xt=urn:btih:DC0D2F94AC7981D5C2779B4116524CA082E201C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +684,8 @@ VA - Музыка для машины Vol.16 (2023) [MP3|320 Kbps] <Pop, Dance, 
 magnet:?xt=urn:btih:0B72A6E219EBD441F39349135352211BB076614B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ magnet:?xt=urn:btih:0B72A6E219EBD441F39349135352211BB076614B
 ```bash
 magnet:?xt=urn:btih:7F7A16C62F48D053C23745430B27FFA321FF47BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

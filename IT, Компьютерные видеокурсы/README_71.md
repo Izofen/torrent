@@ -20,6 +20,8 @@ PHP входит в тройку самых востребованных и по
 magnet:?xt=urn:btih:D16DC0DED29AEA8ADB3B8C03B03412536781B027
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:D16DC0DED29AEA8ADB3B8C03B03412536781B027
 ```bash
 magnet:?xt=urn:btih:6AD3EF3BADEC94C32BB311FE14574866E6F8DE9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ JavaScript - одна из самых важных частей каждой с�
 magnet:?xt=urn:btih:D68BDBEA6478BEDB528F82FD5F2410D5D86ED948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:D68BDBEA6478BEDB528F82FD5F2410D5D86ED948
 ```bash
 magnet:?xt=urn:btih:57E9D0EB5C36D847B690632DC7953EE2240D852C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ PostgreSQL- это свободное программное обеспечен�
 magnet:?xt=urn:btih:1693D2DB56EF121268D7C7283A3D28531F80D931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:1693D2DB56EF121268D7C7283A3D28531F80D931
 magnet:?xt=urn:btih:2DD5A446A574E22CE67555FC6B985700901D73DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:2DD5A446A574E22CE67555FC6B985700901D73DF
 magnet:?xt=urn:btih:23910573704E7499A28D449F1EBF91C7C2B10327
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:23910573704E7499A28D449F1EBF91C7C2B10327
 ```bash
 magnet:?xt=urn:btih:0EBC0632FD0A6B5B71FC6AE1B9F0B81041F0F1E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ gRPC - это новый современный фреймворк для соз
 magnet:?xt=urn:btih:CF5ADEBEC7608EB8B9136832BCFA7F3993FDE76D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:CF5ADEBEC7608EB8B9136832BCFA7F3993FDE76D
 ```bash
 magnet:?xt=urn:btih:802BBA3D462DF13DC792E92A946F066884587CA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ learn.nestjs.com | Основы NestJS / NestJS Fundamentals (2020) PCRec [En / 
 ```bash
 magnet:?xt=urn:btih:6A7C3A850B31A088DDD4BACAB12EFFCD64CF4D09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:6A7C3A850B31A088DDD4BACAB12EFFCD64CF4D09
 magnet:?xt=urn:btih:12710BD64BF7E8A3677FB99605704E6F88CCABBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ Sean Allen | iOS Dev Launchpad (2020) PCRec [En]
 magnet:?xt=urn:btih:49756D5FB537B5CCE53F64A60E3F1290C3A2194E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:49756D5FB537B5CCE53F64A60E3F1290C3A2194E
 magnet:?xt=urn:btih:0B2610367676D9C9FC224149D9B19E170F9440F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ JavaScript. Уровень 1
 ```bash
 magnet:?xt=urn:btih:139A335329A18BAC0AAE9B8E1E0C882B7CE395A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:139A335329A18BAC0AAE9B8E1E0C882B7CE395A7
 magnet:?xt=urn:btih:D322068E9437CDD748D6B349EA69D54D4CB825C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:D322068E9437CDD748D6B349EA69D54D4CB825C1
 ```bash
 magnet:?xt=urn:btih:5D6F05CAF6212B03D5B29C3BDCF392844540E2B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:5D6F05CAF6212B03D5B29C3BDCF392844540E2B5
 magnet:?xt=urn:btih:E05CA8F014AE09D56CCA7FADBB8EAEE587175F58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:E05CA8F014AE09D56CCA7FADBB8EAEE587175F58
 ```bash
 magnet:?xt=urn:btih:65603945D33BEF5B249C59F93D0CFFF58BFCBF88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:65603945D33BEF5B249C59F93D0CFFF58BFCBF88
 magnet:?xt=urn:btih:E4C4FC39F6A767586D5FF98C77FDB5B8E0F9916D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ School.php | Пошаговое создание сайта от А до Я (д�
 magnet:?xt=urn:btih:BAD8D6F49EC2080A60DEE99ADE37E44ACDF2A0CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ ITVDN | ASP.NET WEB API2 (2018) PCRec [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:A990B5B8F22771C8842112093B3AC0BC850D7DA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ WebForMySelf | Курс по базе данных MySQL (2014) PCRec [H.264]
 magnet:?xt=urn:btih:20364103E99EBDEB352866D057D693EB39D4DC66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:20364103E99EBDEB352866D057D693EB39D4DC66
 ```bash
 magnet:?xt=urn:btih:094BCA1A88E38979BAC6D8680585437A74F9CFCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ Skillbox | Excel + Google Таблицы с нуля до PRO (2020) PCRec
 magnet:?xt=urn:btih:1FC12394ADFCF1F60E823E2FF4C96EA9360F9A2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ Skillbox | Работа в командной строке Bash (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:B760E8CDCAA5A8BEB6BD64E60A78D009A7690952
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -28,6 +28,8 @@ The Beatles - Abbey Road [Toshiba Black Triangle] (1969) [MP3|320 кб/с]<Rock>
 magnet:?xt=urn:btih:F4F57697E99E4F76B7C225C3F49647068D0D0740
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ CD1
 ```bash
 magnet:?xt=urn:btih:171C14A50799E6B6E3B78F04670B3AAD9002A77E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ VA - Good Rockin' Tonight: The Legacy of Sun Records (2001) [MP3|320 кб/с]<ro
 magnet:?xt=urn:btih:C66A45BB7824940B3B7DBDCD99F8746877788CD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +133,8 @@ The Alan Parsons Project (Alan Parsons, Eric Woolfson) - 17 Albums + 11 Compilat
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +161,8 @@ John Elefante ( Ex-Kansas, Mastedon ) and Mastedon - Revolution Of Mind (2010) [
 ```bash
 magnet:?xt=urn:btih:4CB8B5ECDD1EC1F14E1F38BB42350B39A9307C8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +191,8 @@ Samán (Saman) - II. Montaña roja (2022) [MP3|320 Kbps] <Heavy Psych, Stoner Ro
 magnet:?xt=urn:btih:4767103CA4FE8DEF8ACCFD1B9EE0166087257B8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +219,8 @@ Formation Ritual - The Shifting Dust (2022) [MP3|320 Kbps] <Heavy Psych, Stoner,
 ```bash
 magnet:?xt=urn:btih:49FA6E045D98E9735E325F88A578895D42723D06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +249,8 @@ Duster 69 - With Best Regards (2022) [MP3|320 Kbps] <Stoner Rock, Doom Metal>
 magnet:?xt=urn:btih:6DDEC2A274284A604E21320585B43A2B807841A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +277,8 @@ Obiat - Indian Ocean (2022) [MP3|320 Kbps] <Doom, Sludge, Stoner, Psych, Prog Ro
 ```bash
 magnet:?xt=urn:btih:DBAD4FA701491A7B27C520A13D993C5986528697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +312,8 @@ Liquid Smoke - Liquid Smoke (1969) [MP3|320 kbps]<Psychedelic Hard Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +340,8 @@ Black Light Burns - Cruel Melody (2008) Limited Edition [MP3|320 кб/с]<Altern
 ```bash
 magnet:?xt=urn:btih:EBEFFEC15F5EFED138058D241A1F9E29B590C6EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +370,8 @@ Chris - Days Of Summer Gone (2013) [MP3|320 кб/с]<Art Rock, Prog Rock, Sympho
 magnet:?xt=urn:btih:A61A7381CDC9E1E813FBE1C9D69798CBD2979B20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +398,8 @@ Captain Marryat - Captain Marryat (1974) [MP3|320 кб/с]<Rock, Psychedelic Roc
 ```bash
 magnet:?xt=urn:btih:5B65643617BE11369E64137A5E5428A5312B0EED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +434,8 @@ Mungo Jerry - Cool Jesus (2011) [MP3|320 кб/с]<Rock, Pop-Rock>
 magnet:?xt=urn:btih:89037AB40DC77916A35D09CCEC1726B7B5D84FD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +462,8 @@ Journey - Freedom (2022) [MP3|320 Kbps] <Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:19EF326AB40E7DC1C57C9A526002302F071BCD12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +492,8 @@ Hienas - Socavon (2022) [MP3|320 Kbps] <Sludge, Doom, Stoner, Grunge>
 magnet:?xt=urn:btih:6DDC967E1C39009B3CB84785510EA386A71AB5B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +520,8 @@ Julien-K - We’re Here With You (2012) Deluxe Edition [MP3|320 кб/с]<Industr
 ```bash
 magnet:?xt=urn:btih:DACC1B42464772C2FEC628FE299C2154D12CBD13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +550,8 @@ Edison's Children - Somewhere Between Here And There... (2015) [MP3|320 кб/с]
 magnet:?xt=urn:btih:4CA2FA4E53603DDDE192523C5E6D1977DF2D0994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +578,8 @@ Spock's Beard - The Oblivion Particle (Digipak Edition) (2015) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:D7C12C7B64995332AFEB356AF9CA51989CDFBEBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +608,8 @@ Fink - Fresh Produce (2000) [MP3|320 кб/с]<Electronic, Downtempo, Indie Rock>
 magnet:?xt=urn:btih:21A0261BCA1D3F850AB7D700DE69DA30CC671D0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +636,8 @@ Introitus - Fantasy (2007) [MP3|320 кб/с]<Symphonic Rock, Progressive Rock,  
 ```bash
 magnet:?xt=urn:btih:FBE210A6EB87432ABED123AD147DF4E3453700B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +672,8 @@ Protos - The Noble Pauper's Grave (2007) [MP3|320 кб/с]<Progressive Rock>
 magnet:?xt=urn:btih:6DEBEEC36EB39FB1568E6B9C11A176A2455B175A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +701,8 @@ Santana - Greatest Hits (2012) 3CD [MP3|320 кб/с]<Latin Rock, Blues Rock, Jaz
 magnet:?xt=urn:btih:43B171162317958C5B192C6E27F489B1F2A374E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -683,6 +729,8 @@ VA - Rock Playlist (2022) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:15E52FB9BC595329A63035026A51BE54BAE66A61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -717,6 +765,8 @@ Bente Smaavik - 1979-2011 (2012) [MP3|320 кб/с]<Melodic Rock>
 magnet:?xt=urn:btih:762FE5DEFD38396E2E1366BC0B4BBBD3EFE4E6AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -748,6 +798,8 @@ Phish - Lawn Boy (1990) [MP3|320 кб/с]<Progressive rock, Jazz-Rock, Fusion, A
 ```bash
 magnet:?xt=urn:btih:C99D5B37065B16B43282EDAFF2CDF64642BFAA11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

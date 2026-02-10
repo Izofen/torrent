@@ -1,3 +1,29 @@
+###  Публикация: 1037735   (611674) от 25.07.2016
+
+Ричард Бояцис, Энни Макки | На одной волне: Как управлять эмоциональным климатом в коллективе (2016) [EPUB, FB2, MOBI]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_611674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследования в области психологии лидерства убедительно доказывают, что способность руководителя вызывать у подчиненных эмоциональный отклик – резонанс – позволяет повысить эффективность управления. Но как конкретно действует этот механизм? На основе научных исследований текущего и прошлых десятилетий и практического опыта, накопленного в области консалтинга, авторы (   Читать дальше...   )Жанр: Менеджмент, модели управления, бизнесФормат: EPUB, FB2, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6B299A6BE8C0C82688BB9313F604DC67399617
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296322   (611742) от 17.04.2019
 
 Эдгар Шейн | Помощь. Как ее предлагать, оказывать и принимать (2019) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:8AF515DDDF44C32802C4A5D1191C624783901CDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:8AF515DDDF44C32802C4A5D1191C624783901CDE
 magnet:?xt=urn:btih:469F9395EAEB3A2421F88FD4F178C50822674E89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:469F9395EAEB3A2421F88FD4F178C50822674E89
 ```bash
 magnet:?xt=urn:btih:64B7896C0569E30B5F0DC704E45070FBD5FDB168
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:64B7896C0569E30B5F0DC704E45070FBD5FDB168
 magnet:?xt=urn:btih:50B5A2418BD8DA26763552F0BC00F13ACC5FE98E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:50B5A2418BD8DA26763552F0BC00F13ACC5FE98E
 ```bash
 magnet:?xt=urn:btih:3E99B22CBF7E4EEC11DFCC3751F62262E98C51CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:3E99B22CBF7E4EEC11DFCC3751F62262E98C51CA
 magnet:?xt=urn:btih:F3308B9FE26D5C3201D16A4F4FE1F9FFCEF1062D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:F3308B9FE26D5C3201D16A4F4FE1F9FFCEF1062D
 ```bash
 magnet:?xt=urn:btih:72A119EBC97AF2C2E55D4373BFC3F79FAD079119
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:72A119EBC97AF2C2E55D4373BFC3F79FAD079119
 magnet:?xt=urn:btih:8050074832335BE55695BC4EB5B59303CA524017
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:8050074832335BE55695BC4EB5B59303CA524017
 ```bash
 magnet:?xt=urn:btih:EE1E8007FEF1DF6CBF1A502C25D90FB1351E3844
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:EE1E8007FEF1DF6CBF1A502C25D90FB1351E3844
 magnet:?xt=urn:btih:24700F58D9900D58D0DFDB5C168A93BF20839DE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:24700F58D9900D58D0DFDB5C168A93BF20839DE5
 ```bash
 magnet:?xt=urn:btih:CB4B04C7318CA6D091ED06F04718C1686D8F868A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:CB4B04C7318CA6D091ED06F04718C1686D8F868A
 magnet:?xt=urn:btih:C30838421446B84F307EB47D33BB0F6B81184DAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:C30838421446B84F307EB47D33BB0F6B81184DAE
 ```bash
 magnet:?xt=urn:btih:F6712D57BF189C3BDFED0D2C8E48688233A0C732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:F6712D57BF189C3BDFED0D2C8E48688233A0C732
 magnet:?xt=urn:btih:3528FC28CFADCE63BFA3E279DE6D06D46ABF0702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:3528FC28CFADCE63BFA3E279DE6D06D46ABF0702
 ```bash
 magnet:?xt=urn:btih:8ADD26D92B35B6EF75F1C6368A08E3C6F39464AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:8ADD26D92B35B6EF75F1C6368A08E3C6F39464AB
 magnet:?xt=urn:btih:0D9D39C2FCD309CE9F65F735BB9FF0F304820868
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:0D9D39C2FCD309CE9F65F735BB9FF0F304820868
 ```bash
 magnet:?xt=urn:btih:B81384BC8FEE701E3C67BA1FCDA44C5EAD9A1C8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:B81384BC8FEE701E3C67BA1FCDA44C5EAD9A1C8B
 magnet:?xt=urn:btih:B7D7DCA8E55342F030AD29B80EA8D19A79EE69A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:B7D7DCA8E55342F030AD29B80EA8D19A79EE69A0
 ```bash
 magnet:?xt=urn:btih:D0713DC771E2A2C9F9CD17F1FA9D6930246C2C0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:D0713DC771E2A2C9F9CD17F1FA9D6930246C2C0F
 magnet:?xt=urn:btih:63CF1516C43EA253D19AA080F0D23F5F1F55F8D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:63CF1516C43EA253D19AA080F0D23F5F1F55F8D0
 magnet:?xt=urn:btih:42BBD2142DB6EA77CFE3FD31C2AA183C6B870449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:42BBD2142DB6EA77CFE3FD31C2AA183C6B870449
 ```bash
 magnet:?xt=urn:btih:F8CB6002968C0BB9310B5842119E4AF6B565B47B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:F8CB6002968C0BB9310B5842119E4AF6B565B47B
 magnet:?xt=urn:btih:EAA541DBA89F95BB4F0973B6865C6BC1854EC94D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:EAA541DBA89F95BB4F0973B6865C6BC1854EC94D
 ```bash
 magnet:?xt=urn:btih:18A7160246AF7BCE0859D18EC7A888030CCBA2C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:18A7160246AF7BCE0859D18EC7A888030CCBA2C9
 magnet:?xt=urn:btih:3D319BD2C1B5D0FA186AFA8556D1E908EB0A1388
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037372   (613248) от 24.07.2016
-
-Андрей Глазков | Одно дыхание. Медитация для занятых людей (2016) [FB2, RTF]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_613248.jpg" />
-</div>
-
-
-###  Подробнее
-
-От издателя: Умение правильно расслабляться и восстанавливаться – это великое мастерство, которое помогает отдыхать душой и телом и набираться сил. Работа, тренировки, бытовые хлопоты, даже общение – все это пусть незаметно, но утомляет, забирает энергию. Техника «Одно дыхание», разработанная Андреем Глазковым – специалистом по медитации, – создана для тех, кто не (   Читать дальше...   )Жанр: Эзотерика. МедитацияФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E4A0B71E96F00879F01FCFA2C0265D712277F86
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

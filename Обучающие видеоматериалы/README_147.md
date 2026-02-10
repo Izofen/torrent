@@ -22,6 +22,8 @@ Dodge&bern-Dodge&bern и частотное разложение.Частотн�
 magnet:?xt=urn:btih:EADD7E062E4D686B6B40AE667CC95499A3D30ECA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ LiveClasses, Антон Мартынов | Как снимать натюрмо�
 magnet:?xt=urn:btih:8C08B98B11DF106B2A51F30A5168F8EF6383F2BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Fstoppers, Patrick Hall, Lee Morris | Введение в видеопродак
 ```bash
 magnet:?xt=urn:btih:D7634BEABED202C596093CECC1D9C1AD44E5184E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:D7634BEABED202C596093CECC1D9C1AD44E5184E
 magnet:?xt=urn:btih:5E6EF95E389ADA5BD5BFFD835ED109B3148D3E5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Kickbox FastFix — это жиросжигающая кардио-тренир�
 ```bash
 magnet:?xt=urn:btih:D928D1942FFA959DF5626BD0E8A4C6AB4416A8B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:D928D1942FFA959DF5626BD0E8A4C6AB4416A8B6
 magnet:?xt=urn:btih:7E8DB0319760CC87CB372465C2BB41264CD85CD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:7E8DB0319760CC87CB372465C2BB41264CD85CD9
 magnet:?xt=urn:btih:AEEB615E8AAEBF98169A94662DB0BFE40047426E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:AEEB615E8AAEBF98169A94662DB0BFE40047426E
 magnet:?xt=urn:btih:98F6F75C89D94D8B78974991E072FC7FF367A052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:98F6F75C89D94D8B78974991E072FC7FF367A052
 ```bash
 magnet:?xt=urn:btih:9CA8FD90A1AE7292E42023679156DEBB8744DB26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:9CA8FD90A1AE7292E42023679156DEBB8744DB26
 ```bash
 magnet:?xt=urn:btih:F00C3A7521D48A55526B241DBB198DD6E267CC1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Lynda.com | Building Templates in Word - Работаем с шаблонами 
 magnet:?xt=urn:btih:2253109B449E7B9CEC7392F6752BA88BC5550CD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:2253109B449E7B9CEC7392F6752BA88BC5550CD8
 magnet:?xt=urn:btih:59D11D5018612ED216E4CE7B681E79995DA569DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ LiveClasses, Антон Мартынов | Логика настроек фот�
 ```bash
 magnet:?xt=urn:btih:112F10C4DFC20BDB9A8E81E74E4E58222A1230E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ LiveClasses, Антон Мартынов | Что такое хорошо и ч�
 magnet:?xt=urn:btih:6138A15129856D16CE8A2691BC79C39F1FA5CF57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ LiveClasses, Антон Мартынов | 20 знаменитых фотогр�
 ```bash
 magnet:?xt=urn:btih:701F2B63B7A90C8893599DBC9C785F7FD7AA7CDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ LiveClasses, Антон Мартынов | Мифы и правда об ISO (20
 ```bash
 magnet:?xt=urn:btih:2BFA7C651B151D8F5CD212A072522629AF656C65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:2BFA7C651B151D8F5CD212A072522629AF656C65
 magnet:?xt=urn:btih:2910192504240D39035A43D092C80BBC7AF60A11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Skillbox | Графический дизайнер с нуля до PRO (2020) P
 ```bash
 magnet:?xt=urn:btih:B1369B7236A1DC043C0A9A5EC802B13DD2F14927
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ XYZ School, Антон Агеев | Мастер-Класс. Создание м
 magnet:?xt=urn:btih:1A358D8E9760FBC120D7072247115B471479D79D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ Body Revolution с Джиллиан Майклс - полноценная про
 magnet:?xt=urn:btih:E9DF2DE28C2F33195D288C7B29A1191C24239BD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:E9DF2DE28C2F33195D288C7B29A1191C24239BD3
 ```bash
 magnet:?xt=urn:btih:343E6596A2746BDF02A4A1AE7AB7804A63F52155
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:343E6596A2746BDF02A4A1AE7AB7804A63F52155
 magnet:?xt=urn:btih:ADE46B70DE1964A664563842C0E7E9EAA5233783
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ Lynda.com | Access 2010: Forms and Reports in Depth - Access 2010: Формы и
 ```bash
 magnet:?xt=urn:btih:095C32304831D4CFD90B1782C610A4AA2C251FA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ Skillbox | After Effects с нуля до PRO (2019) PCRec
 magnet:?xt=urn:btih:66FD740A92D4EC841429157247797E1A1A47F5EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ Skillbox | ArchiCAD для дизайнеров интерьера (2020) PCRec
 magnet:?xt=urn:btih:E3C50BEF89F1FA1180C471F0F9B297CFCB1D75D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ AIC, Skillbox и Тэглайн подготовили для вас компл�
 ```bash
 magnet:?xt=urn:btih:1948FDFE1690B527BAA03D14A8A89DB7B3752D6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

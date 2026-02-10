@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Windows7 Ultimate AUZsoft RED x64x86 v.8.12. [RUS]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Counter-Strike: Source сочетает отмеченный наградами 
 ```bash
 magnet:?xt=urn:btih:3265C69431AA5E8AA177386F599DB63B5630064D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:3265C69431AA5E8AA177386F599DB63B5630064D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:3265C69431AA5E8AA177386F599DB63B5630064D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:3265C69431AA5E8AA177386F599DB63B5630064D
 ```bash
 magnet:?xt=urn:btih:DD4AD89E5D466B107E1FAE367FA01529DBFF38D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Resident Evil 4 + HD [Ru] (P) 2007
 magnet:?xt=urn:btih:A493AC65219FB4A4339126468A85C689F9056980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:A493AC65219FB4A4339126468A85C689F9056980
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Call of Duty: Modern Warfare 3 + COOP + TeknoMW3 v2.7.0.1 [Ru] (Lossless Repack)
 ```bash
 magnet:?xt=urn:btih:113B67A92DFBAEA52630E3097EA7DCE03DC2365B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.isoЯзык интерфейса
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ ru_windows_7_ultimate_with_sp1_x64_dvd_u_677391.isoЯзык интерфейса
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ DriverPack Solution это самая популярная программа д
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ DriverPack Solution это самая популярная программа д
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ Adobe Photoshop CS6 - программа для обработки растро�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ WPI by Viktor-VDV 03.2012 [Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ WPI by Viktor-VDV 03.2012 [Русский]
 ```bash
 magnet:?xt=urn:btih:64B56FD6060148DB5B3E04E5038C01B1176C5DCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:64B56FD6060148DB5B3E04E5038C01B1176C5DCA
 magnet:?xt=urn:btih:C00CBF245EEB7FEAE32BD32E985E11ACEB56A658
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ Angry Birds Space - главная особенность новой игры - 
 ```bash
 magnet:?xt=urn:btih:07029AF4C52EC457D31F281A408A75A9FE8FF77F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (Lossless RePack) 2012
 magnet:?xt=urn:btih:46E52B12021A42D9ADE1C554771284CBA1091EBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:46E52B12021A42D9ADE1C554771284CBA1091EBD
 ```bash
 magnet:?xt=urn:btih:E351637ABFD5238669C6BBED7C2E54A3FF85D7CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ Windows 8 Skin Pack for Windows 7 (x86/x64) 12.0 [Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ Heroes of Might and Magiс III Complete / Герои меча и магии 3 П
 ```bash
 magnet:?xt=urn:btih:99AAF326F4725FECE8B56840A9B91F4D3F9C7E02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:99AAF326F4725FECE8B56840A9B91F4D3F9C7E02
 ```bash
 magnet:?xt=urn:btih:5D2A2F8E1AFED692AB24F901B2C89DBE4DBE287D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ CPU-Control предоставляет пять различных способ�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ Naruto Shippuden: Ultimate Ninja Storm Generations – продолжение Na
 ```bash
 magnet:?xt=urn:btih:03C1DC7FEF14297E8E6CC4B51D1D1859FFDFC2D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +709,8 @@ magnet:?xt=urn:btih:03C1DC7FEF14297E8E6CC4B51D1D1859FFDFC2D7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

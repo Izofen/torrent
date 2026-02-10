@@ -1,3 +1,29 @@
+###  Публикация: 1411047   (429481) от 24.09.2020
+
+Bokura no Nanokakan Sensou | Seven Days War | Наша семидневная война [2019, Movie] BDRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_429481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта детективная история с элементами социальной сатиры начинается за день до летних каникул, когда внезапно пропадают все мальчики из первого класса средней школы в центре Токио. Несчастный случай? Массовое похищение? На самом деле, мальчишки просто заперлись в здании заброшенной фабрики, находящемся у русла реки. Это «зона освобождения», откуда они при поддержке (   Читать дальше...   )Производство: студия Ajia-dou / 亜細亜堂Жанр: драмаРежиссер: Мурано ЮтаПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 90 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A26EE32F8789C94F582FC00BCB5C1EDCC947729E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1411299   (429619) от 24.09.2020
 
 Yatogame-chan Kansatsu Nikki Nisatsume | Заметки Ятогамэ [ТВ-2] [2020, TV, 12 из 12] BDRip 1080p raw
@@ -19,6 +45,8 @@ Yatogame-chan Kansatsu Nikki Nisatsume | Заметки Ятогамэ [ТВ-2] 
 ```bash
 magnet:?xt=urn:btih:0B437CC4C2268803FACB9A295CDB06F0E4D5D6E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ Darker than Black: Gaiden / Darker than Black: Side story / Темнее Чер�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +100,8 @@ Shichisei no Subaru / Seven Senses of the Re'Union / Семь Чувств в Re
 magnet:?xt=urn:btih:88763EEFC0CB61E5B16272CB1D97220DB52C38FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ Arslan Senki (2015) | The Heroic Legend of Arslan (2015) | Сказание об
 ```bash
 magnet:?xt=urn:btih:A91782A4E2B559025A432D55143C7960024432BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ Gosenzo-sama Banbanzai! | Gosenzosama Banbanzai! | Долгих лет жизн�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ Magia Record: Mahou Shoujo Madoka Magica Gaiden | Magia Record: Puella Magi Mado
 ```bash
 magnet:?xt=urn:btih:1655761F7C3BF5C6E25DC038E641C0CC51E29EDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +207,8 @@ Psycho-Pass 3: First Inspector | Психопаспорт 3: Первый инс
 magnet:?xt=urn:btih:19A1BEF35D28BBA1A9C5EA1722DCDA36671858B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ Toaru Kagaku no Accelerator | A Certain Scientific Accelerator | Некий на
 ```bash
 magnet:?xt=urn:btih:AF5E38C8A7DEFC8BD948EA1C6AFD88477B22553B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +260,8 @@ Uchuu no Kishi Tekkaman Blade | Star Knight Tekkaman Blade | Space Knight Tekkam
 magnet:?xt=urn:btih:B436B406A56467C10AEDA70E959350794A9D985F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +287,8 @@ Yousei Ou | Король фей [1988, OVA] DVDRip 480p raw
 magnet:?xt=urn:btih:B995240974B6ABF8CAD508F293D1CFD67E9AD594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ Shinchou Yuusha: Kono Yuusha ga Ore Tueee Kuse ni Shinchou Sugiru | Этот г�
 ```bash
 magnet:?xt=urn:btih:F0AFED82B9819DC45B1F19AF215EAEDDCCD23860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +339,8 @@ Hataage! Kemono Michi | Rise Up! Animal Road | За дело! "Звериная 
 magnet:?xt=urn:btih:CD70536B299985CD93E1B98A5E95EB59A6DEF8C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ Uchuu no Kishi Tekkaman Blade II | Star Knight Tekkaman Blade II | Space Knight 
 ```bash
 magnet:?xt=urn:btih:3D6F1A5FCBF128FB4C82373F2C3B2B245A8ED4F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ Bokura no Nanokakan Sensou | Seven Days War | Наша семидневная в
 magnet:?xt=urn:btih:A45FC624DAC267CCAECD3AA25D6A93E6667251FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ Soredemo Sekai wa Utsukushii | SoreSeka | The World Is Still Beautiful | И вс
 ```bash
 magnet:?xt=urn:btih:4079EA4167291A9FD967FF248DA12FCED1AA4CC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ Saint Seiya Omega | Рыцари Зодиака (ТВ-2) [2012, TV, 97 эп.] We
 magnet:?xt=urn:btih:94F7733CAB3271FF3C28E778AD9D1D59007DC759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ Uchuu Senkan Yamato Fukkatsu-hen | Space Battleship Yamato: Resurrection | Ко�
 magnet:?xt=urn:btih:14494E7C45A550F053BE44A7A510FAD3445B29A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ Tsugu Tsugumomo | Цугумомо [ТВ-2] [2020, TV, 12 эп.] BDRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:ECA353417CD1B575B59294875F5763BDC7B1CCF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +522,8 @@ Recorder to Randsell Mi / Флейта в рюкзаке Ми [2013, TV, 12 + 1 
 magnet:?xt=urn:btih:6BBAAB65D2B09D07379B23A764EC3210452C641F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ Listeners | Слушатели [2020, TV, 12 из 12] BDRip 1080p 10-bit raw
 ```bash
 magnet:?xt=urn:btih:9A5A0DC08037CDB952565F3B33E3C6A5ED8B6496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +574,8 @@ Joukamachi no Dandelion / Castle Town Dandelion / Одуванчик из при
 magnet:?xt=urn:btih:758C1A41E18E370A38B87282AE04596B3BB37150
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ The Idolmaster Movie: Kagayaki no Mukougawa e! | The Idolmaster Movie: Beyond th
 ```bash
 magnet:?xt=urn:btih:082257E8504F8C50B68064C7942E9B8D1CF0A3F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +626,8 @@ Chio-chan no Tsuugakuro | Chio's School Road | Тио: Дорога в школ�
 magnet:?xt=urn:btih:956E8094370B8EBDE51737C2D4CEA29EBE09D6BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +651,8 @@ Hakugei Densetsu | Hakugei: Legend of the Moby Dick | Legend of the White Whale 
 ```bash
 magnet:?xt=urn:btih:E8F5334C9CA37DA0321A3275AB0A3191D91C9A1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,29 +678,7 @@ Harukana Receive | Харука и Каната принимают подачу 
 magnet:?xt=urn:btih:BBD5F4213BAB6E1F77D9F6B8A0D4AE1C66472688
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 677354   (436858) от 05.10.2013
-
-Danganronpa Kibou no Gakuen to Zetsubou no Koukousei The Animation [2013, TV, 13] HDTV 720p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_436858.jpg" />
-</div>
-
-
-###  Подробнее
-
-Макото Наэги сказочно повезло – ведь слепой жребий выбрал его из сотен желающих попасть в академию «Пик надежды», куда принимают только выдающихся учеников. Юные спортсмены и писатели, менеджеры и ученые, артисты и модели, даже хулиганы и отаку после поступления живут на всем готовом и могут спокойно развивать свои таланты. Наэги, самый обычный парень, боялся, что (   Читать дальше...   )Жанр: триллер, детективРежиссер: Киси Сэйдзи / Kishi Seiji / 岸誠二Субтитры: внешние русскиеПродолжительность: каждый эпизод по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D7871A1CA77ADAD8BACFEE34F7D73732F37568
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

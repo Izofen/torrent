@@ -19,6 +19,8 @@ Jurassic Park: The Game [PS3] [PAL] [Ru] [Repack] 2012 | R.G. Inferno
 magnet:?xt=urn:btih:D585DC77D2D2C4A8D048357760716721E209137C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Sky Crawlers — новый авиасимулятор от компании Nam
 ```bash
 magnet:?xt=urn:btih:4BEB57219B729EE1DC63834FE07540845D2F776F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Rabbids Go Home [Wii] [PAL] [Multi 9] (2009)
 ```bash
 magnet:?xt=urn:btih:A60BEB701145B1667B7F23FFE0BBF8E9236DCE68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Mortal Kombat Unchained является специальной дополнен
 magnet:?xt=urn:btih:E07D8C6DE69471044CDCB189C114D7400F65575C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Mario переходит из одного измерения в другое! �
 ```bash
 magnet:?xt=urn:btih:D0507B241707F1BB642D0D7656DA5FBB243AD829
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Colin McRae: DiRT 2 [Wii] [PAL] [Multi 5] (2009)
 magnet:?xt=urn:btih:672F2B86D406D4374EF312C518ECAB3EF559830C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:672F2B86D406D4374EF312C518ECAB3EF559830C
 ```bash
 magnet:?xt=urn:btih:5C30699E428C65BF4CF4E3DC3E898FFDFA2A15A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Dead Space 2 (2011) [PS3] [EUR] 3.40 [HEN / CFW] [Repack / DLC] [Ru/Multi]
 magnet:?xt=urn:btih:BBAECC7E2692A5BE34112381C91D90DB04A7B314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Just Dance 2020 — это совершенная танцевальная иг�
 magnet:?xt=urn:btih:BEECFCA61A73D19995F86D7997005E350C3CCEAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Super Monkey Ball: Banana Blitz [Wii] [NTSC] [Eng] (2006)
 ```bash
 magnet:?xt=urn:btih:DDEA4BF348E09DF52A88B6F2E300370F19A1D281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:DDEA4BF348E09DF52A88B6F2E300370F19A1D281
 magnet:?xt=urn:btih:C98C0779B1E60E98E330D4707E32966534A82419
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Punch-Out!! [Wii] [PAL] [Multi 5] (2009)
 ```bash
 magnet:?xt=urn:btih:A31F538DA4C891D5E03B84CFFF76BDB24A69080E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ We Dare самая сексуальная и причудливая игра д�
 ```bash
 magnet:?xt=urn:btih:FB00A816FBB7B9CA4279102B646FA69B57B8203A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ Gunslingers это рельсовый шутер в стиле вестерн(а
 magnet:?xt=urn:btih:DE44FE0610CA9642064E5329C91BE07DB5BB0D4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:DE44FE0610CA9642064E5329C91BE07DB5BB0D4B
 magnet:?xt=urn:btih:73ADD745BE52191C2BDB3700C67A68E2F4CD626D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ Guinness World Records: The Videogame [Wii] [PAL] [MULTI 5] (2008)
 ```bash
 magnet:?xt=urn:btih:267D033B46A31E04ACAB8EF634DDEAC9538217FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ Resident Evil Outbreak File#1 [PS2] [RUS] [PAL] (2004)
 ```bash
 magnet:?xt=urn:btih:E975D2D5D12DF58FDA2AD35979A52B479CC130F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ Terminator 3: Redemption – это настоящий подарок всем �
 magnet:?xt=urn:btih:953FF2F8E320255C9CDA4DAA020A72B5046F785F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ Resident Evil Outbreak File#2 [PS2] [RUS] [PAL] (2005)
 ```bash
 magnet:?xt=urn:btih:3CEEF92819E6403670CD211038C4EEE045D7EDAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ Genji: Dawn of the Samurai [PS2] [RUS] [NTSC] (2005)
 magnet:?xt=urn:btih:5DE55FD1B4B6E8BA614788739EF26354DF54B96D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ Resident Evil Dead Aim [PS2] [RUS, ENG] (2003)
 ```bash
 magnet:?xt=urn:btih:C355BF4F7711902D4A64FF7C46C778B0F0D296FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ Hunter The Reckoning. Wayward [PS2] [RUS] [NTSC] (2003)
 magnet:?xt=urn:btih:FA9A0B63B5CF22B9E47E3E48C9BEA78CEBED12CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ Altered Beast вы – спецагент, расследующий причин
 ```bash
 magnet:?xt=urn:btih:14EEA2CE7BBF38913EEB8E53C4778D0514C5F549
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ BlowOut [PS2] [ENG] [NTSC] (2003)
 ```bash
 magnet:?xt=urn:btih:138664A39A802485601483AC8A5DD06E6DC39425
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:138664A39A802485601483AC8A5DD06E6DC39425
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:138664A39A802485601483AC8A5DD06E6DC39425
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

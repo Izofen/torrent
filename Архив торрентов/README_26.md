@@ -19,6 +19,8 @@ Strava: бег, велоезда, хайкинг v421.4 Mod by PieMods [Ru/Multi
 magnet:?xt=urn:btih:668191079E745141EE0DF38237B8D01BB7FAADCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Purvpn 8.3 [En/Farsi]
 magnet:?xt=urn:btih:D0C30A7358909603DAB4E4D4C59A82A5BF613C95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Smart AudioBook Player Pro v11.5.1 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:E52CA10C7FDD492435426F1539A7D92422A01443
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:A25064404DE695C3BA00FA0BC99AB4519D3C6D5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ TVGuide v4.5.30 Premium Mod by Alex.Strannik [Ru]
 magnet:?xt=urn:btih:E265464E938FC95AFC0B64A8BB7DC0A5172CBB69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Kdenlive - бесплатный нелинейный видеоредактор,
 ```bash
 magnet:?xt=urn:btih:31CB7ACDE734A39C1C0C027A9CE9809331731F9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ PictureThis - Plant Identification v5.8.0 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:BA1867574FAD20B9BB48BBAC958B79AD42793161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:6804F3948BF309D39ED27A2197AB649109E8A464
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ RustDesk Remote Desktop – программное обеспечение для
 magnet:?xt=urn:btih:606BD57382FA45308D19EDB0E759A2AC48421861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 ```bash
 magnet:?xt=urn:btih:B8CAA8E0D8328844E8EEEE4FAA53EFCDE06DEFEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ iTubeGo YouTube Downloader 10.5.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:5A714D868D7ACDBA41C169939A8288C36619EDD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:5A714D868D7ACDBA41C169939A8288C36619EDD9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:FF6720635363A8204AEEF0DF4B8C69E769292F4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:FF6720635363A8204AEEF0DF4B8C69E769292F4C
 magnet:?xt=urn:btih:B1924634696FDC4198C8E0ECD82FA7F301CD1B86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:B1924634696FDC4198C8E0ECD82FA7F301CD1B86
 ```bash
 magnet:?xt=urn:btih:82E73329F191D5EB4650C61BA5AAD94B15FA70E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:82E73329F191D5EB4650C61BA5AAD94B15FA70E4
 magnet:?xt=urn:btih:A7CBFDCA8EC4BD8E9B0ECBC5A386734513D41185
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:A7CBFDCA8EC4BD8E9B0ECBC5A386734513D41185
 magnet:?xt=urn:btih:A6F5413C0A5232174A17BA99AFE953821A812C2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:A6F5413C0A5232174A17BA99AFE953821A812C2D
 ```bash
 magnet:?xt=urn:btih:13BF3BF7AAE53E26A9271EEABA45B946F655673A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:13BF3BF7AAE53E26A9271EEABA45B946F655673A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:13BF3BF7AAE53E26A9271EEABA45B946F655673A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:13BF3BF7AAE53E26A9271EEABA45B946F655673A
 ```bash
 magnet:?xt=urn:btih:AF0959E5BD4DF128D11FA63B65C861C4596D545C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:AF0959E5BD4DF128D11FA63B65C861C4596D545C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:AF0959E5BD4DF128D11FA63B65C861C4596D545C
 ```bash
 magnet:?xt=urn:btih:6EE876512A73A862ADF4CD20376682F929DE24B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:6EE876512A73A862ADF4CD20376682F929DE24B3
 magnet:?xt=urn:btih:76728015EF5A5AFFE9F97E5579188BDC8735940D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:76728015EF5A5AFFE9F97E5579188BDC8735940D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:25AB43BB1929500A7A5038211E62B9B6F28CC085
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

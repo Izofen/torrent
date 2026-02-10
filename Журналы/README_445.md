@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D7D32291BA3D32BCE4A2F3831D261B7DE63A39E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D7D32291BA3D32BCE4A2F3831D261B7DE63A39E3
 ```bash
 magnet:?xt=urn:btih:8AB0106759A09917491400D2A401876901B0CEB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:8AB0106759A09917491400D2A401876901B0CEB2
 magnet:?xt=urn:btih:735C09FA8486D7425B238288B67B03A46796D000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:735C09FA8486D7425B238288B67B03A46796D000
 ```bash
 magnet:?xt=urn:btih:2160E29AFB3F32809E973AF0CA3C4BE8CC5B96E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:2160E29AFB3F32809E973AF0CA3C4BE8CC5B96E2
 magnet:?xt=urn:btih:1263A486CE63173476E5C3B0B4C7C37FD3FC6915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:1263A486CE63173476E5C3B0B4C7C37FD3FC6915
 ```bash
 magnet:?xt=urn:btih:E745021698E1B63AF93CFBA2951485FCF2287E02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:E745021698E1B63AF93CFBA2951485FCF2287E02
 magnet:?xt=urn:btih:9C31E96195AA276B175178594D47192982C862B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:9C31E96195AA276B175178594D47192982C862B2
 ```bash
 magnet:?xt=urn:btih:2F8BAA0A08932B22A1F71E92CA0DB27E680D2362
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ PC Week - Журнал информирует о передовых технол
 magnet:?xt=urn:btih:E6B94B7A728BA8E033A0D1406CC06553F1E41CFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:E6B94B7A728BA8E033A0D1406CC06553F1E41CFE
 ```bash
 magnet:?xt=urn:btih:4EF564D69364E4D4084C19CD6282CBD9A39D56CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:4EF564D69364E4D4084C19CD6282CBD9A39D56CB
 magnet:?xt=urn:btih:95C228EE6ABE2CF1C5C0FF107E41E9F0DD7FA2FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:95C228EE6ABE2CF1C5C0FF107E41E9F0DD7FA2FC
 magnet:?xt=urn:btih:416055B1058448D7B9BD603E206B888E735A8388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:416055B1058448D7B9BD603E206B888E735A8388
 ```bash
 magnet:?xt=urn:btih:0AC8799B0BCF4AC4CBBB98C14D8D0AF1227BD2A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:0AC8799B0BCF4AC4CBBB98C14D8D0AF1227BD2A3
 magnet:?xt=urn:btih:6AA1DE839E04CBDB91016B8A53E964B2BFCA1A13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:6AA1DE839E04CBDB91016B8A53E964B2BFCA1A13
 ```bash
 magnet:?xt=urn:btih:A141A9CF5F474EC626047639F5634F65C9622A80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Linux Magazine - журнал, целиком посвященный опера�
 magnet:?xt=urn:btih:15FC42A84E16364C456A7A4B9CCC8893685D2D2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:15FC42A84E16364C456A7A4B9CCC8893685D2D2A
 ```bash
 magnet:?xt=urn:btih:BD67C4E972FFAC4B0D4CB0445C8D559284FAACF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Woodworker West - американский журнал, издаваемый р
 magnet:?xt=urn:btih:F9EAD9AC6BD7847D7D5BB8DFA7929465AA075394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:F9EAD9AC6BD7847D7D5BB8DFA7929465AA075394
 ```bash
 magnet:?xt=urn:btih:3EE7FB65476162CA956F9D52B66CD745D3D6A00F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:3EE7FB65476162CA956F9D52B66CD745D3D6A00F
 magnet:?xt=urn:btih:1D565E67E00A78B4BE7129062585A2E68EBBB423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Flugzeug Classic - это немецкий журнал, специализир�
 magnet:?xt=urn:btih:AED4283860EF7E569CC0D913E3E767BDE03885F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Chip — первый компьютерный журнал в Европе, с�
 ```bash
 magnet:?xt=urn:btih:5D54FA50D69B39AC984FD7A2FFC512D2ABA683E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:5D54FA50D69B39AC984FD7A2FFC512D2ABA683E4
 magnet:?xt=urn:btih:CAA06BA451F73680A69C1C24A2A93E798568F84C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:CAA06BA451F73680A69C1C24A2A93E798568F84C
 ```bash
 magnet:?xt=urn:btih:CC8ADF82C36C1CC27C3DF4508D4D33F46FC85EF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Chip — первый компьютерный журнал в Европе, с�
 magnet:?xt=urn:btih:ACF1724BB3D0A31E2FA512F0CABD65743CF3A25C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:ACF1724BB3D0A31E2FA512F0CABD65743CF3A25C
 ```bash
 magnet:?xt=urn:btih:FCA92E3AD7BCC9B8C0DA96B6DD64D956810DC4CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

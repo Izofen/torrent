@@ -19,6 +19,8 @@ Liminality (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:0710DEC8DCBD40C7DE1BDAF56EB798AEFC5ED695
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:0710DEC8DCBD40C7DE1BDAF56EB798AEFC5ED695
 ```bash
 magnet:?xt=urn:btih:44E063346FC7ED45A27B106414DA7B1221AE4ABD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:44E063346FC7ED45A27B106414DA7B1221AE4ABD
 magnet:?xt=urn:btih:174FAE94A591CBCC6528D4486E99D946188BFA81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:808B468840552AD42D27F79E3CDF68D55D4757AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:808B468840552AD42D27F79E3CDF68D55D4757AD
 magnet:?xt=urn:btih:DC2BB5ECC15AFABA21FB9F789D1B35E76FA3FE86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Pepakura Designer 6.1.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:23D1B01413CFD7EAA31622DB84D0975A503CBA3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:23D1B01413CFD7EAA31622DB84D0975A503CBA3B
 magnet:?xt=urn:btih:FEA912669818F01D8326BF8EA47363EFD02A487E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ OsmAnd+ - это приложение с картами всего мира на
 magnet:?xt=urn:btih:E110DDC553EE57CD73C7E26F4D1B0A092CA11164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:E110DDC553EE57CD73C7E26F4D1B0A092CA11164
 ```bash
 magnet:?xt=urn:btih:83A57D4D263327B2DDF702178B626012668EBD95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:83A57D4D263327B2DDF702178B626012668EBD95
 magnet:?xt=urn:btih:EE6F7EFAD6E76BBC9324CFE5E2D2B855204FDA61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ My Time At Portia (2019) [Ru/Multi] (2.0.141719/dlc) Repack FitGirl [Digital Del
 ```bash
 magnet:?xt=urn:btih:09AB23B261F61E81B7F0B15BADA88EB1EC2AC18D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:09AB23B261F61E81B7F0B15BADA88EB1EC2AC18D
 magnet:?xt=urn:btih:A09B5D0D3A93D41C67A3A8025050E28F1044420C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:A09B5D0D3A93D41C67A3A8025050E28F1044420C
 ```bash
 magnet:?xt=urn:btih:4C4F2D4ADC7F58D3B00A77CE14FC84F06EA6037E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ LUNAR Remastered Collection (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:D4B7617D4EB2FE718C4B4B48F849ADE4FB68C6DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:D4B7617D4EB2FE718C4B4B48F849ADE4FB68C6DB
 ```bash
 magnet:?xt=urn:btih:62D33C0073A3C434FF45396887B1116BF0332810
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ iTubeGo YouTube Downloader 10.2.6 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:0744968FBD2789574C1BD78DFE2EEBB9FA90FEAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ City Enigma / Тайна города (2025) [Ru] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:B46E64FC8C36FD578EE54BFDC72C20CD277BA5B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Process Lasso позволяет вручную или автоматическ�
 magnet:?xt=urn:btih:74C45ABADEF3F4FF57ED4F464E90031A17532CBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:74C45ABADEF3F4FF57ED4F464E90031A17532CBA
 ```bash
 magnet:?xt=urn:btih:E80684DF15628FFF95EF6B3EFDD5AEE74A53A6B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:E80684DF15628FFF95EF6B3EFDD5AEE74A53A6B6
 magnet:?xt=urn:btih:D88BE02FAE219B67DEA3826BACA24C942F150F20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:D88BE02FAE219B67DEA3826BACA24C942F150F20
 ```bash
 magnet:?xt=urn:btih:73F6668DAF1277DE9BDEC8D3431831E532774CE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:73F6668DAF1277DE9BDEC8D3431831E532774CE0
 magnet:?xt=urn:btih:8D5F1C7D4465173D0A058AD360154E7C9201B2BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:016D80986C4B45B8534F0E8DCB57DEA7C968854F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:016D80986C4B45B8534F0E8DCB57DEA7C968854F
 magnet:?xt=urn:btih:0843F560BC258F9D95CC6CAABCB7ED4DF57D7F52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:0843F560BC258F9D95CC6CAABCB7ED4DF57D7F52
 magnet:?xt=urn:btih:2002F9CBB0051F6E1174501FB11666804C584B38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:2002F9CBB0051F6E1174501FB11666804C584B38
 ```bash
 magnet:?xt=urn:btih:E444F655017AD58129446D0C73337491E9015111
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

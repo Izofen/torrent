@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:BDE4E16CAAFBC274C7E9FD8B305694ED0AF729E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:BDE4E16CAAFBC274C7E9FD8B305694ED0AF729E7
 ```bash
 magnet:?xt=urn:btih:5BA935A4D5A579A497D3530665FB749EA69CD80C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Bangles - Greatest Hits (1990) [FLAC|tracks+.cue]<Pop Rock>
 magnet:?xt=urn:btih:4DAF2E03292EC5C01FD80683CFA6A44577E4FA07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Cepia - Discography 8 Releases (2004-2010) Ghostly International, Cepia Music [F
 ```bash
 magnet:?xt=urn:btih:9334115FFD84A707C298318356DA3F3168880F14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Trio in D major (after Symphony No. 2, Op. 36)
 magnet:?xt=urn:btih:2345A5C57767C8430ADED6DB139004039CA0D270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:2345A5C57767C8430ADED6DB139004039CA0D270
 magnet:?xt=urn:btih:066A92F1C3C4E77624DDE6EC860AC79D753FA5DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:066A92F1C3C4E77624DDE6EC860AC79D753FA5DF
 ```bash
 magnet:?xt=urn:btih:FC14E86747CD6A413306A4F88B620524FA45B730
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ VA - Dont Stop The Music: New Disco Party (2019) [MP3|320 Kbps] <Disco, Pop>
 magnet:?xt=urn:btih:AA9C0F7E925372E5EEC8755A07CB743E56A3E33C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:AA9C0F7E925372E5EEC8755A07CB743E56A3E33C
 ```bash
 magnet:?xt=urn:btih:DF746813C6B9633F53A31B79124E71969ECD4AD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Side A:
 magnet:?xt=urn:btih:E3C8B317DCEF3FB23C92E2F815AE7D860439D942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:E3C8B317DCEF3FB23C92E2F815AE7D860439D942
 ```bash
 magnet:?xt=urn:btih:BDEDEE94A8A8B78125743F04748EAFB2C66009CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ VA - Jazz and '80s Part Two (2005) [MP3|160 кб/с]<Jazz, Lounge>
 magnet:?xt=urn:btih:9159D02371FB4E0EF3563164A4C6360AAEB23D65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ magnet:?xt=urn:btih:9159D02371FB4E0EF3563164A4C6360AAEB23D65
 magnet:?xt=urn:btih:D14BC841185B3826FDF7FC289C3DD146D2B2D269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:D14BC841185B3826FDF7FC289C3DD146D2B2D269
 ```bash
 magnet:?xt=urn:btih:914533426ACBF3FFA0B1B4D39F0F00F6516206D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ Luca De Maas - The Journey (2017) [FLAC|Lossless|tracks] <Trance>
 magnet:?xt=urn:btih:670E8E63CF00C9A5FF3D29D50F7F999A245A1A26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ Stephen Pearcy (ex-Ratt) - View To A Thrill (2018) Japanese Edition [MP3|320 Kbp
 magnet:?xt=urn:btih:F9FBEFA025E0152B1851B50EF3CC6AA52FB92834
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:F9FBEFA025E0152B1851B50EF3CC6AA52FB92834
 ```bash
 magnet:?xt=urn:btih:529C0CB33D1254568D4704F48B9DEFF508CEAD6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +494,8 @@ magnet:?xt=urn:btih:529C0CB33D1254568D4704F48B9DEFF508CEAD6D
 magnet:?xt=urn:btih:3C7034A735DCE674AAB180DD1A7C7502FEE41A3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +523,8 @@ magnet:?xt=urn:btih:3C7034A735DCE674AAB180DD1A7C7502FEE41A3A
 magnet:?xt=urn:btih:5421028A96CBF353AB919DFB868DD45E986BDA5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +549,8 @@ magnet:?xt=urn:btih:5421028A96CBF353AB919DFB868DD45E986BDA5D
 magnet:?xt=urn:btih:1A08EE085966506F3122FF0FBF390C1BD208119A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +574,8 @@ YouTube Downloader - простая и легкая в использовани�
 ```bash
 magnet:?xt=urn:btih:4BD4C849438502E13EFE3977DAEEC6D92631E675
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +604,8 @@ VA - Best Of Dance (2018) [MP3|320 Kbps] <EuroHouse, Eurobeat, Dance>
 magnet:?xt=urn:btih:52529B5B528AB1FB23C4F5C4DF6FCD0FB67E4E4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +630,8 @@ magnet:?xt=urn:btih:52529B5B528AB1FB23C4F5C4DF6FCD0FB67E4E4C
 magnet:?xt=urn:btih:14ED2DF7942A53C0D84E950273C7EAB1856CC605
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:BA1E52E846B323A776FE54731495C8C123C60A9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +685,8 @@ magnet:?xt=urn:btih:BA1E52E846B323A776FE54731495C8C123C60A9D
 magnet:?xt=urn:btih:01F5E4FD92A6D2FF73BC91276593012043C32CF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +713,8 @@ magnet:?xt=urn:btih:01F5E4FD92A6D2FF73BC91276593012043C32CF8
 ```bash
 magnet:?xt=urn:btih:796AC563874FF13B9B197A166A9D5BE3230B8B19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

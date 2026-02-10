@@ -1,28 +1,3 @@
-###  Публикация: 1232976   (594643) от 27.06.2018
-
-Полицейская в отделе нравов / La poliziotta della squadra del buon costume (1979) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новые приключения полицейской Джанны в исполнении блистательной Эдвиж Фенек.
-На этот раз к служительнице правопорядка обращается маленький мальчик, сбежавший из интерната, с просьбой найти его маму. Из показаний парнишки Джанна узнает, что мамаша, скорее всего, работает стриптизершей или ночной бабочкой. Полицейская решает внедриться в этот порочную среду и устраивается (   Читать дальше...   )Производство: Италия / Dania Film, Medusa DistribuzioneЖанр: Комедия, КриминалРежиссер: Мишель Массимо ТарантиниАктеры: Эдвиж Фенек, Альваро Витали, Лино Банфи, Марцио Онорато, Франко Диоджене, Джанфранко Барра, Сальваторе Боргезе, Джакомо Риццо, Фьямма Мальоне, Серджо Тардиоли, Джимми иль ФеноменоПеревод: Одноголосый закадровый (Andi999)Субтитры: ОтсутствуютПродолжительность: 01:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:853410DEE12C2B9D28473AB8B949860AA198C71A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549021   (594737) от 05.05.2022
 
 Пунктик / Clockwise (1986) BDRip [H.264]
@@ -44,6 +19,8 @@ magnet:?xt=urn:btih:853410DEE12C2B9D28473AB8B949860AA198C71A
 ```bash
 magnet:?xt=urn:btih:879BABD6E74592B0F21B488C2F3AED7FB3535891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +46,8 @@ magnet:?xt=urn:btih:879BABD6E74592B0F21B488C2F3AED7FB3535891
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +71,8 @@ magnet:?xt=urn:btih:879BABD6E74592B0F21B488C2F3AED7FB3535891
 ```bash
 magnet:?xt=urn:btih:7C19D87725E8E0E49902A4BBB3C20F2144DA2885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +98,8 @@ magnet:?xt=urn:btih:7C19D87725E8E0E49902A4BBB3C20F2144DA2885
 magnet:?xt=urn:btih:658D736EF9000C649519DC4945F8DE7D3ADFCB77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +123,8 @@ magnet:?xt=urn:btih:658D736EF9000C649519DC4945F8DE7D3ADFCB77
 ```bash
 magnet:?xt=urn:btih:CC8D0DEBFC21BBA54E9B91B81CE29D32FB24FD88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +151,8 @@ magnet:?xt=urn:btih:CC8D0DEBFC21BBA54E9B91B81CE29D32FB24FD88
 magnet:?xt=urn:btih:131731C52B156739C8C6CEAF4F46DD464430FEB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +177,8 @@ magnet:?xt=urn:btih:131731C52B156739C8C6CEAF4F46DD464430FEB8
 magnet:?xt=urn:btih:A014BF00C7E0EEAFA7A59B5F2F779B166924B75A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +202,8 @@ magnet:?xt=urn:btih:A014BF00C7E0EEAFA7A59B5F2F779B166924B75A
 ```bash
 magnet:?xt=urn:btih:AC52C9A0FE62D5500F65CF0C032EFFFBFC464228
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +230,8 @@ magnet:?xt=urn:btih:AC52C9A0FE62D5500F65CF0C032EFFFBFC464228
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +255,8 @@ magnet:?xt=urn:btih:AC52C9A0FE62D5500F65CF0C032EFFFBFC464228
 ```bash
 magnet:?xt=urn:btih:4115A360BCCB06532B51FDDA13676619F3A0B9F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +282,8 @@ magnet:?xt=urn:btih:4115A360BCCB06532B51FDDA13676619F3A0B9F4
 magnet:?xt=urn:btih:8AEBD34461802D3C70499E32EAA8CE72A934CD6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +307,8 @@ magnet:?xt=urn:btih:8AEBD34461802D3C70499E32EAA8CE72A934CD6F
 ```bash
 magnet:?xt=urn:btih:296A70586672C7B1B27572242139720D83C3C676
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +334,8 @@ magnet:?xt=urn:btih:296A70586672C7B1B27572242139720D83C3C676
 magnet:?xt=urn:btih:9646346537292F0A99AC79315EB9BA6572124966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +360,8 @@ magnet:?xt=urn:btih:9646346537292F0A99AC79315EB9BA6572124966
 magnet:?xt=urn:btih:171A542EFEA4377F81B393EE279AE2853F6A2FE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +385,8 @@ magnet:?xt=urn:btih:171A542EFEA4377F81B393EE279AE2853F6A2FE1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +413,8 @@ magnet:?xt=urn:btih:171A542EFEA4377F81B393EE279AE2853F6A2FE1
 magnet:?xt=urn:btih:C818EC37E0DC2AF3B6B109B29FFCFAB032EC45D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +438,8 @@ magnet:?xt=urn:btih:C818EC37E0DC2AF3B6B109B29FFCFAB032EC45D5
 ```bash
 magnet:?xt=urn:btih:0D89F723C0460C20B258F9C5BA2918949D23153F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +466,8 @@ magnet:?xt=urn:btih:0D89F723C0460C20B258F9C5BA2918949D23153F
 magnet:?xt=urn:btih:65372EE182BB67009EC03BE595E384385FD4BA5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +493,8 @@ magnet:?xt=urn:btih:65372EE182BB67009EC03BE595E384385FD4BA5E
 magnet:?xt=urn:btih:0F3DFE8131DB33A33E4854861CA62F55297D3FF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +518,8 @@ magnet:?xt=urn:btih:0F3DFE8131DB33A33E4854861CA62F55297D3FF7
 ```bash
 magnet:?xt=urn:btih:EE1A907D444DE4FE41F8D5778BC73C4ECF9E2BCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +545,8 @@ magnet:?xt=urn:btih:EE1A907D444DE4FE41F8D5778BC73C4ECF9E2BCD
 magnet:?xt=urn:btih:F4EEDD3EB1FC1A8F153E177C76B3A0689662CD49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +570,8 @@ magnet:?xt=urn:btih:F4EEDD3EB1FC1A8F153E177C76B3A0689662CD49
 ```bash
 magnet:?xt=urn:btih:D746E4AEEAE3368147E2D6FB3F7B90ED8CFA2483
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +597,8 @@ magnet:?xt=urn:btih:D746E4AEEAE3368147E2D6FB3F7B90ED8CFA2483
 magnet:?xt=urn:btih:A4CCDFBD9A13B9C9CE4438EE61828AFC7B580668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +622,8 @@ magnet:?xt=urn:btih:A4CCDFBD9A13B9C9CE4438EE61828AFC7B580668
 ```bash
 magnet:?xt=urn:btih:7DAAB5AD7237EEC66FB296A611F767C9CFA9BC66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +649,35 @@ magnet:?xt=urn:btih:7DAAB5AD7237EEC66FB296A611F767C9CFA9BC66
 ```bash
 magnet:?xt=urn:btih:259E6149FD875FF47FBA9730E88A4024E267EF44
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149384   (600979) от 10.07.2017
+
+Ровно в 3 часа / Three O'Clock High (1987) DVDRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_600979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассник Джерри Митчел опаздывает на занятия. Он еще не знает, что в школе появился опасный новичок — злобный и агрессивный Бадди Ревелл, громила и хулиган. Знакомство мальчишек заканчивается не самым приятным образом: Бадди вызывает Джерри на поединок, который должен состояться ровно в три часа.
+   Джерри в панике: драка может закончиться для него весьма печально, (   Читать дальше...   )Производство: СШАЖанр: КомедияРежиссер: Фил ДжоануАктеры: Кэйси Семашко, Энн Райан, Ричард Тайсон, Стэйси Глик, Джонатан Уайз, Митч Пиледжи, Роберт Аписа, Э. Кэтерин Керр, Джон Ротмен, Джеффри Тэмбор ...Перевод: Профессиональный многоголосый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:25:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:780EA2C121E7B012206D3D631F679E9252F517B9
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

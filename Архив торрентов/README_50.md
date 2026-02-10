@@ -19,6 +19,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:14833881936EE44AC4131D087800E3A7F52E0DC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ TreeSize Professional - мощное и гибкое средство визуа
 ```bash
 magnet:?xt=urn:btih:14A4948B650CF6155D650C23A222091F644B32BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Activation Program 1.12 b03  Portable by Ratiborus [En]
 ```bash
 magnet:?xt=urn:btih:7E4F6E2E3C4D0E40718FCF097C110E3EE37DDA2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:7E4F6E2E3C4D0E40718FCF097C110E3EE37DDA2E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ AirBrush: ИИ Фоторедактор v7.9.0 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CAA2417FE63A1D36BA8454CD10893A55AD84D8F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:C8AA1F19493174A1577BFC683F69B5D7D918172B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ MobiPDF: Редактор и сканер PDF  v11.6.267114 Mod by Balatan [Ru/M
 ```bash
 magnet:?xt=urn:btih:5A8FE6D0BF2ED9EC8B540C3B279C0B4C6787EF9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:5A8FE6D0BF2ED9EC8B540C3B279C0B4C6787EF9F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:5A8FE6D0BF2ED9EC8B540C3B279C0B4C6787EF9F
 magnet:?xt=urn:btih:6FBC7E7409375554947B378768E83C3671D91B6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Rufus - небольшая утилита помогает отформатир�
 ```bash
 magnet:?xt=urn:btih:C6EC794F7FE66181D70FE167B20CB2FC9EFAFF85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:C6EC794F7FE66181D70FE167B20CB2FC9EFAFF85
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Adobe Media Encoder 2025 25.2.0.141 (x64) Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C728DC8200CF24750FF32F44910DD89F88BC1B74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ TapScanner — сканер документов, это простой скан
 magnet:?xt=urn:btih:7C8815F88F5E2C15E3747E41232D483AC6488FBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Parrot Timer / Кухонный таймер v2.9.0 Mod by Alex.Strannik [Multi]
 ```bash
 magnet:?xt=urn:btih:93A21F85806387681BD33046A35FFA823DF871B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Shazam (шазам) распознает любую песню за секунд
 magnet:?xt=urn:btih:6ED8532A79F334298CBACA3D80F665660A37F407
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Jigsawscapes® - Пазлы v4.0.2 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DFBDE1E06FF7DF68EBBB9F53DE4C239FEFE40CA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ AdGuard — уникальный блокировщик рекламы без п
 magnet:?xt=urn:btih:229EB3C97FDCB1D168AA52C995AD63A00F11FA91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:229EB3C97FDCB1D168AA52C995AD63A00F11FA91
 ```bash
 magnet:?xt=urn:btih:EBCBEE15191A0C3934F5167061BC63C3B9B04F3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ WPS Office - очень полезное, офисное приложение д
 magnet:?xt=urn:btih:E5E0F42FCEFAC340CD20BC0EB7C0C120F8E052C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ RarmaRadio - программа для прослушивания и запис�
 ```bash
 magnet:?xt=urn:btih:B765F7C40666F84137988638BBAB8E79A07CE243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:8AEB390C1D47F05D763A679D987BB15691EB68DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Office Installer - программа предназначена для online �
 ```bash
 magnet:?xt=urn:btih:6370B992F93AF45C2021E4E8C76099895E071F08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:D2D114105EF3EBEE67C113F1DB4EDF3AF720E750
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ TuneIn объединяет спортивные события, музыку, �
 ```bash
 magnet:?xt=urn:btih:BF7BE4E17F8DBAB18E7491435482C9C2FA876FBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ MobiOffice - это полнофункциональный офисный пак
 magnet:?xt=urn:btih:C0BF0D4B70F5C1A3F18DDB690E03A78AB003A662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:C0BF0D4B70F5C1A3F18DDB690E03A78AB003A662
 ```bash
 magnet:?xt=urn:btih:9933FFCCD6609D2D11D284D9E6CBC8504CF1431A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

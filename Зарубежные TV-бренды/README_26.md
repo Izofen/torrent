@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:74B1CFFD302E8A71696135824775DE2F60A9E539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG. Смертельно опасные монстры Австралии / Aust
 ```bash
 magnet:?xt=urn:btih:9987836F2EE8A7AAEE77A0B516EFA5CF242037A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:9987836F2EE8A7AAEE77A0B516EFA5CF242037A6
 magnet:?xt=urn:btih:9EBE139DFCFF265FB436C3E7E1396771B3A603C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG. Затерянные города с Альбертом Лином / Lost Ci
 ```bash
 magnet:?xt=urn:btih:82A22C56AE41F89AC9BC4838E49FBB1F8BAC033E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:82A22C56AE41F89AC9BC4838E49FBB1F8BAC033E
 magnet:?xt=urn:btih:2C7F3ECCD1F134A56947668AD051DC3468154E43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NG: Затерянные сокровища Египта / Lost Treasures of Egy
 ```bash
 magnet:?xt=urn:btih:701DB84D9842B5EFA4FF1ED7485142A0CCFDC390
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:701DB84D9842B5EFA4FF1ED7485142A0CCFDC390
 magnet:?xt=urn:btih:7A90352C05A500273F312A09BC4E8D1B891D61E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Discovery: Разрушители автолегенд / Motor MythBusters (2021
 ```bash
 magnet:?xt=urn:btih:AEE4C10D0D978460718139F424A34D88634F5CBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NG: Шершни из ада / NGS: Hornets From Hell (2002) DVDRip
 magnet:?xt=urn:btih:4F3F5C4C6C1069A36A0756B65A759A03FE9CDD66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:4F3F5C4C6C1069A36A0756B65A759A03FE9CDD66
 ```bash
 magnet:?xt=urn:btih:E3E10872088A89D8A12196F739197A388CCD5E7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:E3E10872088A89D8A12196F739197A388CCD5E7E
 magnet:?xt=urn:btih:49A551B9A58A25AF06C203182ECD5114C43D5087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ BBC: Любовница и жена / The Mistress and the Wife (2009) SATRip
 ```bash
 magnet:?xt=urn:btih:35D9ABB396D52D71F70080E8CDF8B09F97405395
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ BBC. Год, Изменивший Планету  / The Year Earth Changed (2021
 magnet:?xt=urn:btih:BD478607AD27D03F8A3C066D88814566D4AEB197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ NG. Салли / Sally (2025) WEB-DL [H.265/2160p] [4K, HDR, 10-bit]
 magnet:?xt=urn:btih:487FB52028F13B0A257E4BA63D5A346E50A3254B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ NG. Салли / Sally (2025) WEB-DL [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:668DFC94405510F1A9689188C93279582A9C03D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:668DFC94405510F1A9689188C93279582A9C03D3
 magnet:?xt=urn:btih:670DB674FFED3F2A6DD53B0004BC90DD953A9724
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ NG: Запреты / Табу / Taboo (2002-2012) HDTVRip [H.264/720p-LQ] (се�
 magnet:?xt=urn:btih:A1AB63CE2B1EEA590329B7ECE9CFCEED6E0A48F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ PBS. American Experience: Осуждение Роберта Оппенгейме
 ```bash
 magnet:?xt=urn:btih:A2ADC613831AA3DC213064484F404735EE5162BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:A2ADC613831AA3DC213064484F404735EE5162BB
 magnet:?xt=urn:btih:60DA2A4E0258D4B70D089D4B701EA5A3B790F15C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ NG. Настольная книга диктатора / The Dictator's Playbook
 ```bash
 magnet:?xt=urn:btih:6969A3A68302875A48D1423ACDF203BF46962592
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ BBC. Охота на Питера Тобина / The Hunt for Peter Tobin (2025)
 magnet:?xt=urn:btih:29671F2053E705146C7934BA3BF78CE53803F091
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Discovery. Экспедиция: Назад в будущее / Expedition: Back
 magnet:?xt=urn:btih:E6441EBE9226BE233BD334FB664E0FCF5F74CADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Discovery. Суперфабрики любимая еда / Super Factories Food
 ```bash
 magnet:?xt=urn:btih:39BC177144B21D53E865ACA1997C28E734A3FD67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:39BC177144B21D53E865ACA1997C28E734A3FD67
 magnet:?xt=urn:btih:6AA8566E3804EB4E05462EC44ACBEFF8D434667C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:6AA8566E3804EB4E05462EC44ACBEFF8D434667C
 magnet:?xt=urn:btih:B92E844D50C4F850CC982539BB0A992BC67F8362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ NG: Расследования авиакатастроф / Air Crash Investigat
 ```bash
 magnet:?xt=urn:btih:4801252B94830178A8BEA8FB051BCECF4E0FE210
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

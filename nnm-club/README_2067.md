@@ -22,6 +22,8 @@ Color for Shane - End (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Ro
 magnet:?xt=urn:btih:F609EB4C02EC3030E7621CC8FAE59EC8FCCB9983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - Best Classical Music: 50 Masterpieces (2024) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:FEEF7036112792DE82F8C0453008E94729E12FD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Magic City Detective 5: The Carnival Begins / Волшебный город 5: �
 ```bash
 magnet:?xt=urn:btih:909A3FB8C317BC9EE1ACDB36C12F513456FA9F72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:909A3FB8C317BC9EE1ACDB36C12F513456FA9F72
 magnet:?xt=urn:btih:1795B599875FCDA064C55C3453E4F6947867EB78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ KStars - бесплатное, с открытым исходным кодом, 
 ```bash
 magnet:?xt=urn:btih:ADEA43261E1AC3C8C64047ECEC0B25E0F8CAE4FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:ADEA43261E1AC3C8C64047ECEC0B25E0F8CAE4FD
 magnet:?xt=urn:btih:E718430D651FAFE7771C0A52EB5C757FFB883E97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Dog Scanner: Породы собак v17.2.5-G Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3F21CAAAD1E8AF74AD15CA8D152615A1DAB522A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:3F21CAAAD1E8AF74AD15CA8D152615A1DAB522A1
 magnet:?xt=urn:btih:BE6E345D27F0B4948A50D309F1A4E8C28AF993C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Rolling Hills: Make Sushi, Make Friends – это погружение в бы�
 ```bash
 magnet:?xt=urn:btih:0CF4497314F95335D40DBC256CAA366C5324F699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:0CF4497314F95335D40DBC256CAA366C5324F699
 magnet:?xt=urn:btih:3095D5E61BD722D62E1D7E78C8804403A2CED8C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:3095D5E61BD722D62E1D7E78C8804403A2CED8C7
 ```bash
 magnet:?xt=urn:btih:E70B051796F13A6B9EF9E94799E5222CDF5D051A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ Apocalyptica - Plays Metallica, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Sym
 magnet:?xt=urn:btih:87F476915D3D1592AA31CE0092B9D834798E1657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:87F476915D3D1592AA31CE0092B9D834798E1657
 magnet:?xt=urn:btih:57C0D8BD8C1F52830C9A81A3B299C916AEA98DA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:57C0D8BD8C1F52830C9A81A3B299C916AEA98DA0
 ```bash
 magnet:?xt=urn:btih:E85E052E5410651C21A3859D104CD37BF3CD4A10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ Pet Shop Boys - A new bohemia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Éle
 magnet:?xt=urn:btih:B6E623A8AED5C899145283249C53B05EE2A91D47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ Rock N Roll Jesus - седьмой студийный альбом Kid Rock'а, 
 magnet:?xt=urn:btih:E9EF198CD87B474B769176752D017306AA17A109
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:E9EF198CD87B474B769176752D017306AA17A109
 ```bash
 magnet:?xt=urn:btih:312D65D4303EA0BA570472965CAED2074ACE2AD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:312D65D4303EA0BA570472965CAED2074ACE2AD7
 magnet:?xt=urn:btih:7EE2D52F95360964D15F91B592C6FFC3A1574264
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:7EE2D52F95360964D15F91B592C6FFC3A1574264
 ```bash
 magnet:?xt=urn:btih:3D924926C8F1EB6CECF3710E9B07A5693B7F4121
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:3D924926C8F1EB6CECF3710E9B07A5693B7F4121
 magnet:?xt=urn:btih:17DCC7136C9D456DB224588F7045B1D38E012064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ The Spanish English Bilingual Visual Dictionary by Dorling Kindersley is vocabul
 ```bash
 magnet:?xt=urn:btih:C7BA39DDAA5B38B6B83DAC3AB8DD9203F3D39DD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ Zet Zillions – перед вами классический одно-поль�
 magnet:?xt=urn:btih:C3F65E6C2504722839ED01F18A0821E40BA9EE96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:C3F65E6C2504722839ED01F18A0821E40BA9EE96
 ```bash
 magnet:?xt=urn:btih:A187254F79E7B4656AA19E66283A14F7F3420E41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:A187254F79E7B4656AA19E66283A14F7F3420E41
 magnet:?xt=urn:btih:C44D2633132BA7B260912CDE1C089803120A58D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:C44D2633132BA7B260912CDE1C089803120A58D6
 magnet:?xt=urn:btih:041459711B8ACE3F0AE3113FAAFD6EA8A0609E9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:041459711B8ACE3F0AE3113FAAFD6EA8A0609E9C
 ```bash
 magnet:?xt=urn:btih:6D0B44BDEE4BEBCD31F263E44B0FE724C4A0A1D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

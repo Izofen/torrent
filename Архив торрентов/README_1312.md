@@ -21,6 +21,8 @@ Microsoft Office 2021 for Mac LTSC v.16.78 VL [Multi/Ru]
 magnet:?xt=urn:btih:D5BF7C817AA1AAD15ABE3E4F12FD2D1ECF108F8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Revo Uninstaller Pro 5.0.8 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0ECE2B1B96B755338CC6E033F866F8BF8B3689C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Psiphon предназначен для предоставления вам от
 magnet:?xt=urn:btih:95FD118DB5EBEA74FE1DA5DEC207CC03101E05DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 magnet:?xt=urn:btih:CE3A417452E500EDCEC7D93DBD6F05A0415BE6B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:0495736E9174ED9D5B667409880BC59F81F96D28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Blender - бесплатный редактор трехмерной графи�
 magnet:?xt=urn:btih:ED973D7A968650341D3F1051F054FBAF9CF48A6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Geekbench - кроссплатформенная программа для пр�
 ```bash
 magnet:?xt=urn:btih:0325878C1946A5D33A30C22B9C7936447B4EE534
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ ru-ru_windows_10_business_editions_version_22h2_updated_sep_2023_x64_dvd_3e14a3b
 magnet:?xt=urn:btih:FBE683175229297A6597372E7D91E7AA59CAD837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Opera 73.0.3856.257 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A79EB2F95575EAE9F7F851061AD145D8D8185F72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:A79EB2F95575EAE9F7F851061AD145D8D8185F72
 magnet:?xt=urn:btih:3269679FED650DFB63BF82C3FE00ECC067687E78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Ashampoo® UnInstaller 12 помогает Вам устанавливать, т
 ```bash
 magnet:?xt=urn:btih:2A486781ABD26FE22EB14DD9D3A462339F2E6F98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ Rhinoceros 7 v7.1.20343 [Multi/Ru]
 magnet:?xt=urn:btih:C41BD8934C5AF826BD7837C806808ABDB83E1164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:49BDA58DF195641A073210F5F159E8318032CE8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Auslogics Disk Defrag Pro - это профессиональная версия
 magnet:?xt=urn:btih:5EE32CFDBAC564E2A9036F37F9E5AEA96D2414CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:2BEA6B22BA2FFBC0933DA4B0D3B26EBAAB352961
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ Audacity - свободный, простой в использовании зв
 magnet:?xt=urn:btih:09CB6F1CE5358852D7831969E5087592F28C19D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:7CA08A72332E2AA598EB91B4D1AF48333C017F2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:FEEA590865D338552A36A11B77AB3392A3D8CBA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Auslogics Driver Updater – программа представляющая с�
 magnet:?xt=urn:btih:61CB5FED1695E1EE9FC85424F8AFFCCFD5F961BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ MemTest86 - бесплатная программа, позволяющая пр
 ```bash
 magnet:?xt=urn:btih:C99D0210B175DBEB3422EF5976E4503A6A4A3367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ EmEditor Professional - профессиональная версия мощно
 magnet:?xt=urn:btih:2C116B4C7D2C797E7E8A65A21539628F26D615BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ Revo Uninstaller Free 2.4.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3E7E44093B80F1C8D2C7038B90E57ED548EAFEC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ Process Lasso позволяет вручную или автоматическ�
 magnet:?xt=urn:btih:5C513F730AA42FDDBAD4C4EF5B6D3D51E68EE42F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Auslogics Anti-Malware предлагает дополнительную защ�
 ```bash
 magnet:?xt=urn:btih:9B2BEA17EA30A758768232785D6B5CB2172C1D76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Adobe Zii - это небольшая и замечательная утилит
 magnet:?xt=urn:btih:5C4E326008A22EC7F7A3C2E156D904F9DE96DB87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:EB38732793E3241E9F63AC869814F0A42D91E809
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

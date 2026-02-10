@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:16E0811C7E9C4FE0F1A05BED32431A1625C78759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:16E0811C7E9C4FE0F1A05BED32431A1625C78759
 ```bash
 magnet:?xt=urn:btih:B2644A19AB59CB6AFDB979095A0883648B37D935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ D.A.F Band - Socialovism (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:9256ECEEABA243FC42D7C670D77711560DEDA4C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:9256ECEEABA243FC42D7C670D77711560DEDA4C4
 ```bash
 magnet:?xt=urn:btih:B3D29C9D71D2F93E497209F613D31A33425C7A64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Anbaric - Generator (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:365E9FE985ED5DA41C849792A056E3B28C84C703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Vito Rezza - Cognitive Dissonance (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fus
 ```bash
 magnet:?xt=urn:btih:71BD6C9A9715A6107E08DCB18581BC68B4767B5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ Tony Drake - Escape (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Roc
 magnet:?xt=urn:btih:4B0C221315867AFB47D19D71B5BBCEADB57C7990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:4B0C221315867AFB47D19D71B5BBCEADB57C7990
 magnet:?xt=urn:btih:8D1D74E1E181D45A4B0F5C6F19632E1B62F152E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:8D1D74E1E181D45A4B0F5C6F19632E1B62F152E2
 ```bash
 magnet:?xt=urn:btih:A3090E04D14EDAEC239CFCE1AA4B5031A432BDEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ Gama Bomb - Bats (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash Me
 magnet:?xt=urn:btih:3A86ADBA40C50440FD38520564A2E24507CAB137
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ Stats - это приложение с открытым исходным код�
 ```bash
 magnet:?xt=urn:btih:451C66BF9FF56B32539B181867B27D07615F936A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ Ante Valcic (Valčić) - Synchronicity (2024) [FLAC|Lossless|WEB-DL|tracks] <Jaz
 magnet:?xt=urn:btih:6600330498EC12F2604F384C26A18057BEF3BB5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ Debit & Credit Premium 6.3.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:891EC9975F509282B944A023308CD50AC8658EA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ Suspect Down - Living Life Fast (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:9308A587A15BDC277798F9D0DE943583256EA723
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ MWeb поддерживает расширенный синтаксис Github: 
 ```bash
 magnet:?xt=urn:btih:D4BD1CC7E656844C1C3605989C759B4C60AD1A98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +439,8 @@ Imagress - Sentient (2024) [FLAC|Lossless|WEB-DL|tracks] <Groove, Heavy Metal>
 magnet:?xt=urn:btih:4FC0E2B7B45345E301660A4ECC33C5C09F972084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ Iris — это высокопроизводительный экранный р
 magnet:?xt=urn:btih:60C8C5FC25D1120007CD8D01477B3A68BD01DAEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ NCH ClickCharts Diagram Pro 9.03 [En]
 ```bash
 magnet:?xt=urn:btih:DCEFFE7F4D125F80D0919690CE96B318A9A8714B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +520,8 @@ Grant Clarkson - South West Five (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusi
 magnet:?xt=urn:btih:64E1AC05200D6186620213B3ECE5AA7C5246FA13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +548,8 @@ Coccolite - Extrasystole (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jaz
 ```bash
 magnet:?xt=urn:btih:80AFDEBAAF565ABED477E030083D6DF1910A1E55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +578,8 @@ The Breadmen - Rise of the Breadmen (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz F
 magnet:?xt=urn:btih:53A1B7F0B7CAD4A0B9BDFDDD4BF8013BD6647BA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ File List Export (бывший File list to Excel) - простое в испо�
 ```bash
 magnet:?xt=urn:btih:FE6D39B085AB98CB09FF79887D058AD637DD1753
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +633,8 @@ magnet:?xt=urn:btih:FE6D39B085AB98CB09FF79887D058AD637DD1753
 magnet:?xt=urn:btih:9BF91F793757273866E54F2CD8AC8F1BCA556363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +658,8 @@ ForkLift – это альтернативный файловый менедже
 ```bash
 magnet:?xt=urn:btih:A30483DD2DCA49470014DF6091BE105F4C0966DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +686,8 @@ magnet:?xt=urn:btih:A30483DD2DCA49470014DF6091BE105F4C0966DE
 magnet:?xt=urn:btih:EF71B1387A6E742915ECCDAAD0E83AF0DCA7F780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ magnet:?xt=urn:btih:EF71B1387A6E742915ECCDAAD0E83AF0DCA7F780
 ```bash
 magnet:?xt=urn:btih:263D3FB279B84B4658FEC0AC31050FCAA58BAF16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:A24F3769F5F9B5BCBC3312F2CB7A534EC7D73221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:A24F3769F5F9B5BCBC3312F2CB7A534EC7D73221
 ```bash
 magnet:?xt=urn:btih:D0D0039A837BD97D423B8283E552FBCBF435C6D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Convert Monster | Идеальный Landing Page, Яндекс.Директ, Go
 magnet:?xt=urn:btih:4C40135DC470D444240F6B8905CA727ADCE3C812
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:4C40135DC470D444240F6B8905CA727ADCE3C812
 ```bash
 magnet:?xt=urn:btih:DB0AF543429FF74138FAEA4126A5B8F947F73E4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:DB0AF543429FF74138FAEA4126A5B8F947F73E4B
 magnet:?xt=urn:btih:92B4154EE1F18B06657027FFECF4EBE8CE7BFCB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Jacque Fresco - инженер, дизайнер, футуролог. Автор
 ```bash
 magnet:?xt=urn:btih:434548474F6B78F8DB11777BBABEEC5020664896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ React Query помогает избежать технического долг�
 magnet:?xt=urn:btih:71DB1EFE7B70B04A56A80A785169DF434C30859C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Udemy.com | Adobe Photoshop cc course from A-Z Beginner to Master (2019) PCRec [
 ```bash
 magnet:?xt=urn:btih:92CB720B2D375E9ECA26FB04848418D20ED4DE15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:92CB720B2D375E9ECA26FB04848418D20ED4DE15
 magnet:?xt=urn:btih:46194C2D680E2F8B02B30BF1F21929A7CB6D3772
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:46194C2D680E2F8B02B30BF1F21929A7CB6D3772
 ```bash
 magnet:?xt=urn:btih:991CA702B8186FD0028BCC26893F50C1A8300EF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ polski.online, Иванна Мных | Польский за 2 месяца (202
 magnet:?xt=urn:btih:38A0DB2A22DDDB361ADA280CC91F74F09B908C08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Vikisews, Виктория Ракуса | Немарафон по пошиву �
 ```bash
 magnet:?xt=urn:btih:16F70AF54F9D66629E3907D6F80DEC10FAA079BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ Hudozhnik Online, Полина Абдулаева | Черно-белый Нов
 ```bash
 magnet:?xt=urn:btih:1CF1EB088B8E5BB49CFE3167609810C277BAA751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Advanced Training, Иннокентий Солнцев | Курс «Cisco SPCORE
 magnet:?xt=urn:btih:41C7E860F9A0A8E8E4A3ABED9E444D157E01878F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ SQL - это САМЫЙ важный язык запросов, который �
 ```bash
 magnet:?xt=urn:btih:E984DB9B54D316CCC944E6C784EAE34E5BEC3BC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ Udemy, Stephen Grider | The Complete React Native + Hooks Course (2021) WEB-DL [
 magnet:?xt=urn:btih:837DDA877AFF27195946F6E2146B2655CE346BE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ Stan Air | AirHair Tutorial (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:E3CFFCF11BDFE108383F7F890ADC1D35DC07F3F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +494,8 @@ magnet:?xt=urn:btih:E3CFFCF11BDFE108383F7F890ADC1D35DC07F3F1
 magnet:?xt=urn:btih:CBBFB53BA1A9886F043E65F86B2951619CC84A7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ Motion Design School, Iaroslav Kononov | UI Animation Essentials (2019) WEB-DL [
 ```bash
 magnet:?xt=urn:btih:2B6F15E3353679E4780FF31708E0FBCD69C647D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ Skillshare, Alan Ayoubi | After Effects Motion Graphic Beast (2020) WEB-DL [EN]
 magnet:?xt=urn:btih:E309D85EA6161B5D803F001EE7C046F5D8F560FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ Tim Bergholz | Ultimate Grenade Tutorial Hardsurface 3D Course (2015) PCRec [EN,
 magnet:?xt=urn:btih:B3281EC173B829C100624449689DE71EFA05EC42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +597,8 @@ The Gnomon Workshop, Charleston Silverman | Unreal Engine Complete Material Syst
 ```bash
 magnet:?xt=urn:btih:F4A0D24C5B66972EB1AC6536EF965223F54113BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ Skillshare, 3D Tudor | Substance Painter to Unreal Engine 5 Masterclass (2022) P
 ```bash
 magnet:?xt=urn:btih:570065B9F8A558A18C17CA54B5AE8CA091CE83E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:570065B9F8A558A18C17CA54B5AE8CA091CE83E4
 magnet:?xt=urn:btih:FEA41EF0BB0DF2F017310AC428C2E84A3948E048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ Udemy, Titanforged Entertainment | Unreal Engine 5 Blueprints: Develop Your Firs
 ```bash
 magnet:?xt=urn:btih:3CF9D997DAB65A041E49D1E9271E346853ED99E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +707,8 @@ FlippedNormals, Tim Bergholz | Blender for Beginners & Blender Flashbang Grenade
 ```bash
 magnet:?xt=urn:btih:FEC926EB475DF35B0DF0960CF129F0F0D58C265F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

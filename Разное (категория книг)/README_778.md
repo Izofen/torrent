@@ -1,3 +1,29 @@
+###  Публикация: 1456969   (1024787) от 24.03.2021
+
+Иеродиакон Никон (Муртазов) | Ворон. Рассказы (2007) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1024787.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге иеродиакона Никона (Муртазова) собраны рассказы, посвящённые современной русской жизни. Какими бы ни были судьбы героев, в центре каждой судьбы, в центре всей жизни — Божий храм и путь человека к Истине.Жанр: Современная проза. ПравославиеФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A7F951AF1D72B887D1A28C6EC23187FB08C1A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456726   (1024865) от 23.03.2021
 
 Клаудия Хохбрунн, Андреа Боттлингер | Герои книг на приеме у психотерапевта. Прогулки с врачом по страницам литературных произведений (2021) [EPUB]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:78D8F60A08B65C32CB5CF4CAD030ECF76EFB407D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:78D8F60A08B65C32CB5CF4CAD030ECF76EFB407D
 magnet:?xt=urn:btih:FA06BFF6E6771328745A9B1DED1BF6203954A346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:FA06BFF6E6771328745A9B1DED1BF6203954A346
 ```bash
 magnet:?xt=urn:btih:24CB91CDDC4819AC9524795DC966A5B51B465F70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:24CB91CDDC4819AC9524795DC966A5B51B465F70
 magnet:?xt=urn:btih:B2A2585F0E6AF85E1C437FBC79D8EAC12664AC23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:B2A2585F0E6AF85E1C437FBC79D8EAC12664AC23
 ```bash
 magnet:?xt=urn:btih:C9AFEF62691400A3D41D4C4B1AE4FACA0CEBB833
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:C9AFEF62691400A3D41D4C4B1AE4FACA0CEBB833
 magnet:?xt=urn:btih:C2F9578A0974A468DCEDD75BE75A782A28EC1A44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:C2F9578A0974A468DCEDD75BE75A782A28EC1A44
 ```bash
 magnet:?xt=urn:btih:D385574F1A88B05797604770ABF8898E86180C88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:D385574F1A88B05797604770ABF8898E86180C88
 magnet:?xt=urn:btih:DA596D1BA8F0FAB095D3149D93DC378652D7F683
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:DA596D1BA8F0FAB095D3149D93DC378652D7F683
 magnet:?xt=urn:btih:9DA56088C2641D2C378BB065BC0E99A839032481
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:9DA56088C2641D2C378BB065BC0E99A839032481
 ```bash
 magnet:?xt=urn:btih:AF9D820C7729C0728A351FB12770362AC5B63AAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:AF9D820C7729C0728A351FB12770362AC5B63AAE
 magnet:?xt=urn:btih:12AF731B7E5C5EF2F951F48D98D55F189125CC0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:12AF731B7E5C5EF2F951F48D98D55F189125CC0B
 ```bash
 magnet:?xt=urn:btih:D127D738CBB5F88CA55D6F32CF07F56878B0D6A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:D127D738CBB5F88CA55D6F32CF07F56878B0D6A8
 magnet:?xt=urn:btih:429801FFBB13384D40DF09120A94CECFC5E4EAE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:429801FFBB13384D40DF09120A94CECFC5E4EAE1
 ```bash
 magnet:?xt=urn:btih:92F67D0567EAC674E6F70A73CA3F90C1EC4C97B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:92F67D0567EAC674E6F70A73CA3F90C1EC4C97B3
 magnet:?xt=urn:btih:456237DB24BC97B346108D393BCC02766ABDF9EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:456237DB24BC97B346108D393BCC02766ABDF9EA
 ```bash
 magnet:?xt=urn:btih:FB45DEC38696F27AE590F7A7C295338224C07CA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:FB45DEC38696F27AE590F7A7C295338224C07CA5
 magnet:?xt=urn:btih:9CA9467A13B3B273318D7CC0074FC4165430CAC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:9CA9467A13B3B273318D7CC0074FC4165430CAC3
 magnet:?xt=urn:btih:A8E6287DB589338C51CF1A65E81A76E1A12BE8F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:A8E6287DB589338C51CF1A65E81A76E1A12BE8F3
 ```bash
 magnet:?xt=urn:btih:4B71CD9F4379481FC07702DBCE99044EE840170C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:4B71CD9F4379481FC07702DBCE99044EE840170C
 magnet:?xt=urn:btih:10261AFBE8585F73DE5829F0F6CF022154065CB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:10261AFBE8585F73DE5829F0F6CF022154065CB2
 ```bash
 magnet:?xt=urn:btih:2B2BC19A20B05E78251398629550CE560094F875
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:2B2BC19A20B05E78251398629550CE560094F875
 magnet:?xt=urn:btih:8D464C4B158A9F196BF0DBB90575B27936962439
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:8D464C4B158A9F196BF0DBB90575B27936962439
 ```bash
 magnet:?xt=urn:btih:461953C642C72A47A7DE869EB4111BC64DCD2CB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:461953C642C72A47A7DE869EB4111BC64DCD2CB0
 magnet:?xt=urn:btih:B36E5DB7AE8B0D10F5B312488EF8C16CA9BE18D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:B36E5DB7AE8B0D10F5B312488EF8C16CA9BE18D3
 magnet:?xt=urn:btih:5B6A8E5BB913C159E946A9557022D9043DB204B9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455393   (1025676) от 19.03.2021
-
-Святитель Димитрий Ростовский | Воскресение души. Сборник поучений на Великий пост и приходских поучений (1999) [FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1025676.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Остерегайтесь, братие! Разрыв начинается незаметно. Сначала является охлаждение к Церкви, потом следует осуждение церковного строя жизни и её уставов, потом уклонение мыслей на сторону лжеучений. Душа ваша делается враждебной Церкви: ей не нравится всё церковное, она противится Церкви. И вот разрыв. Являются лжеучители. Они посевают в ваших душах вражду к Церкви, (   Читать дальше...   )Жанр: ПравославиеФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A5DE510F9640ED0F367D80AD0115B4A324E65D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

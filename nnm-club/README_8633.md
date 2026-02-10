@@ -22,6 +22,8 @@ VA - 90s Collection (Warner Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:6763739294204798A40F1C51C056A200F61FC7EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:6763739294204798A40F1C51C056A200F61FC7EE
 ```bash
 magnet:?xt=urn:btih:244E87CFA4CA7FB3FB921F08BBA17980630153CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:244E87CFA4CA7FB3FB921F08BBA17980630153CE
 magnet:?xt=urn:btih:F1817D83371C6627FFEE97F0A58FAF00762DFC0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:F1817D83371C6627FFEE97F0A58FAF00762DFC0F
 magnet:?xt=urn:btih:37308B005521F874F14FDB69DE53B8DA40A4726D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:37308B005521F874F14FDB69DE53B8DA40A4726D
 ```bash
 magnet:?xt=urn:btih:A38059A400C4800D0FFA7F793BB2C8E25F91D7CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ VA - Polyptych Limited: Year Four (2024) [MP3|320 Kbps] <Progressive House, Melo
 magnet:?xt=urn:btih:4C42A34E13DB64AD94B09D54C59DE9CA211EC8AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:4C42A34E13DB64AD94B09D54C59DE9CA211EC8AD
 magnet:?xt=urn:btih:E7578BF5D6BE801FB15B129E98835F88DF57BA29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:E7578BF5D6BE801FB15B129E98835F88DF57BA29
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:E7578BF5D6BE801FB15B129E98835F88DF57BA29
 magnet:?xt=urn:btih:353870C8E71C43A528B785BFF65734BB79213E8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:353870C8E71C43A528B785BFF65734BB79213E8A
 ```bash
 magnet:?xt=urn:btih:61A63F1FD46A4E3EB1890A5B8E8A3BECC20B5314
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:61A63F1FD46A4E3EB1890A5B8E8A3BECC20B5314
 magnet:?xt=urn:btih:A408B996AC426BC75A81C3CF3DA532C935FEB86B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:A408B996AC426BC75A81C3CF3DA532C935FEB86B
 ```bash
 magnet:?xt=urn:btih:C94D9B238909A2D0F1236945D0E442CF04C70320
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:C94D9B238909A2D0F1236945D0E442CF04C70320
 magnet:?xt=urn:btih:8577135F4A4DAE319F15E66A18573F2960B617EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:8577135F4A4DAE319F15E66A18573F2960B617EA
 ```bash
 magnet:?xt=urn:btih:ABA2DDD72F938E1EF6FE8401DD078AABEB767D3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:ABA2DDD72F938E1EF6FE8401DD078AABEB767D3B
 magnet:?xt=urn:btih:6879117F35BC79EAED76C204CFDE34C3D6275132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Tiny Bunny / Зайчик (2021) [Ru/Multi] (19835777) Repack Necros [Early Acce
 ```bash
 magnet:?xt=urn:btih:AB9FAA5E1EA6D289880C8CB4263979C2EE4A306C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ A.I.L.A — хоррор от первого лица в сеттинге нед
 magnet:?xt=urn:btih:E9D8170F5C5040039681E66EE49DBD248C10AABD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Granny Remake — захватывающий хоррор, где ваша це�
 ```bash
 magnet:?xt=urn:btih:B541CA66423EE78684EFD251A239481D2C1E5F6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ R-Studio Network 9.5 Build 191645 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:60AECACE98E4235274893EB63090DBF39667C3AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ v2rayN — это универсальный инструмент VPN и про�
 ```bash
 magnet:?xt=urn:btih:B2D369EB24930A776E91359072EA6961CB7B19FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:B2D369EB24930A776E91359072EA6961CB7B19FD
 magnet:?xt=urn:btih:1D1EC1F0FE0068E87A0EA61DBAB70C8FEDFD5D90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:1D1EC1F0FE0068E87A0EA61DBAB70C8FEDFD5D90
 ```bash
 magnet:?xt=urn:btih:459BD112D5EB604249F78611547C7F4E266269AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:459BD112D5EB604249F78611547C7F4E266269AB
 magnet:?xt=urn:btih:68F03DD58756853734D1BD251045FAB6193B5269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:68F03DD58756853734D1BD251045FAB6193B5269
 ```bash
 magnet:?xt=urn:btih:B22AC89289C2729A79439D2A0C47C375749FDFE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:B22AC89289C2729A79439D2A0C47C375749FDFE9
 magnet:?xt=urn:btih:6F2D76D69B5B7F9D16B74B1283635C61F7289599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:6F2D76D69B5B7F9D16B74B1283635C61F7289599
 ```bash
 magnet:?xt=urn:btih:62951758239204FE4BD49D89FCBDFC148E055E06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

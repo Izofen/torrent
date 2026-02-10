@@ -19,6 +19,8 @@ CG Cookie, Louis du Mont | Создание анимированного жут�
 magnet:?xt=urn:btih:5B210826C996BDE321BE216FE62B08E2C1254739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Full Pipe / Полная труба [Ru] (RePack) 2003 |  R.G. Catalyst Old-Game
 ```bash
 magnet:?xt=urn:btih:9ED1A68595C09992C705C0DEBBC5EE2095902545
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Paul McFedries | HTML, CSS, & JavaScript All-in-One For Dummies (2023) [PDF][EN]
 magnet:?xt=urn:btih:74017917C95166EEEBA3B10B9A53BEECE5F32582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:2FC1D92D13581C83587DF13C2D450C654277C183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ CD-1 (45:42)
 magnet:?xt=urn:btih:195B308004824B301633075387620139447D9723
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ F-Secure Freedome VPN - надежное и эффективное решени�
 magnet:?xt=urn:btih:9BF0EEF13FB4488A1367695C4DE7F7DE04694543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:9BF0EEF13FB4488A1367695C4DE7F7DE04694543
 ```bash
 magnet:?xt=urn:btih:FD6C7D30EE657F2E7AE365953A13CA171508C844
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma Про-уро
 magnet:?xt=urn:btih:5D3D55383603C353F0B97A9D7BECA10E46C16CB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:5D3D55383603C353F0B97A9D7BECA10E46C16CB9
 magnet:?xt=urn:btih:61C639718DA725CC8D9E90A895A3456BD9FC6D7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:61C639718DA725CC8D9E90A895A3456BD9FC6D7B
 ```bash
 magnet:?xt=urn:btih:2451B7D21F4483F285F895C70446FA59CC4FC9F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ David Garrett - Alive - My Soundtrack (2020) 2CD Deluxe Edition [FLAC|Lossless|i
 magnet:?xt=urn:btih:508B6A0401072704F6544516E2014777E912FC85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:508B6A0401072704F6544516E2014777E912FC85
 magnet:?xt=urn:btih:BE9B9EC225E0D9289650291C17FE7B4B4ACB3783
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:BE9B9EC225E0D9289650291C17FE7B4B4ACB3783
 ```bash
 magnet:?xt=urn:btih:D6E7BA81E96A8F1D67C4594C0382406FA2386748
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ CG Cookie, Chris Kuhn | Риггинг транспорта в Blender 2.6 / Rig
 magnet:?xt=urn:btih:16AFE4D0EC50ABA655BCBB88919F2D33DF407959
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:16AFE4D0EC50ABA655BCBB88919F2D33DF407959
 ```bash
 magnet:?xt=urn:btih:AC20F34610409FC25A34271FD80394C9DE8C588C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:AC20F34610409FC25A34271FD80394C9DE8C588C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ Wu Liuqi | Scissor Seven | Killer Seven | Киллер Севен  [ТВ-1] [201
 ```bash
 magnet:?xt=urn:btih:C19668C3F6C1E6D6F39676943F519527223C5096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:C19668C3F6C1E6D6F39676943F519527223C5096
 magnet:?xt=urn:btih:9905378EF8D6B147463F5F67ACBB556B16EDDD99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ Hatsukoi Monster | First Love Monster | Моя первая любовь - мо�
 ```bash
 magnet:?xt=urn:btih:A12EF0E16A137176C12FBA510267F3B4A3555FFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:A12EF0E16A137176C12FBA510267F3B4A3555FFA
 magnet:?xt=urn:btih:772879E895E83DCED72FA83D8DBF07BCD8E6ED7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ Paint.NET - Простой, но мощный и удобный редактор
 ```bash
 magnet:?xt=urn:btih:49EA02C42A92B6B4199B62C4BE85F5D8D6CCDA00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ Adobe Photoshop 2023 - мощное и продвинутое приложени
 magnet:?xt=urn:btih:CE11603353510D9ED73309D7497BC561D8E9407C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:CE11603353510D9ED73309D7497BC561D8E9407C
 ```bash
 magnet:?xt=urn:btih:1D48C350B4343E64DCDAC44394B3399FB5B6DAB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:1D48C350B4343E64DCDAC44394B3399FB5B6DAB1
 magnet:?xt=urn:btih:F8957BD0018AC0C85BD2841F0AA2F49082252A25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:F8957BD0018AC0C85BD2841F0AA2F49082252A25
 magnet:?xt=urn:btih:17808301C56D72ACC23C79F7CBF12BEA26B8F60A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:17808301C56D72ACC23C79F7CBF12BEA26B8F60A
 ```bash
 magnet:?xt=urn:btih:D644A422EF668068D1006F066A43DD773469CE4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

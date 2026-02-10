@@ -19,6 +19,8 @@ RegCool 2.040 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:33A73879AA3933352B703EEF571007D2C47495EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ DiskSavvy — это анализатор использования диско�
 ```bash
 magnet:?xt=urn:btih:C6B6274A9F25C0E1F718739F1EF41230D252DB77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Busi
 magnet:?xt=urn:btih:619C15F1EDFFE6CCB369ECC6CC4ED2FD1D775560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ iFind Data Recovery - программное обеспечение для во�
 magnet:?xt=urn:btih:7B7D5FDD1EF94B233135F731B7D3F5A0842D1945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Auslogics Driver Updater – программа представляющая с�
 ```bash
 magnet:?xt=urn:btih:D5CFB430DE6E46DC3D258E149421AC1551FFBACA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Active@ Disk Editor - это бесплатный расширенный инс�
 magnet:?xt=urn:btih:9A347BB0236260BDE93E1D2843F13EEF6577C82C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Macrorit Disk Scanner Unlimited - инструмент для проверки �
 ```bash
 magnet:?xt=urn:btih:5FDE50F9088416183F23556BC952866818DC0AAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Macrorit Data Wiper Unlimited Edition – мощная утилита, кото�
 magnet:?xt=urn:btih:6323964A4D448900D039EF2BF3F77A36E47F639E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Macrorit Partition Extender - утилита, доступная также в �
 ```bash
 magnet:?xt=urn:btih:DB0817524978CFB6603378597ABF3A5C6BF54B2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ DisplayFusion - программа для управления обоями ра
 magnet:?xt=urn:btih:8A4A4C7B52C942E3899158CF3A5C5B358E51D4ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ NoMachine – это средство доступа к удаленным ра�
 ```bash
 magnet:?xt=urn:btih:B984A1A0B83CC5D89D79BB93E85976E739B757A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ VueScan - программа предназначена для замены ст
 magnet:?xt=urn:btih:C492EC8A2095C992C2D8E2A61705C983AA4E623D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Duplicate File Finder Pro 2500 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:088E0E65A36A39982BFE3E8A9CE91423D2A187FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Musify Music Downloader - инструмент от создателя iTubeGo, 
 magnet:?xt=urn:btih:2284F4583F3DC90DB5F6C6CF7BEED56EEA514E90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Auslogics SSD Optimizer - специальный инструмент, разр�
 ```bash
 magnet:?xt=urn:btih:14A6C9C7808BA720F4E7403006FC1D7BAA40B842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:AD2584197A0F596A69190E0C3FAD5482B2A73246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ DVDFab StreamFab — это удобный и мощный инструмент 
 ```bash
 magnet:?xt=urn:btih:CD7A31793DB1864F7678310886581CB057C267C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ iTubeGo 9.3.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:08A8E0E522C494C9FBBAD56A1F8E87B3A07F9214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ TrafficMonitor - портативная утилита с минималисти
 ```bash
 magnet:?xt=urn:btih:383A90C02F4A13442DAEC262633392D2A1589E60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Macrorit Disk Scanner Unlimited - инструмент для проверки �
 magnet:?xt=urn:btih:E0F44A5F3AD9E540D22FC94E1FD599BADDD0D216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 ```bash
 magnet:?xt=urn:btih:BAFE854D67EE96FFCD50D9D8B438E476DFA14063
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Icecream PDF Editor PRO - программа для поистине прост�
 magnet:?xt=urn:btih:A5FCFCAC36CF93E97DBC6BE6A96E387B354BAACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Revo Uninstaller Pro 5.3.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DE79543948C8AB92FAD4C76F0E79EAEA00B10418
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ NIUBI Partition Editor – программа для простого и над�
 magnet:?xt=urn:btih:D93C877E2559422F6DBCAD7A49F6390417AA8503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ BurnAware - простая и в тоже время мощная програм
 magnet:?xt=urn:btih:EC2F7761C0E02AED7725F380F8A23160D2F1F0FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Directory List & Print – менеджер каталогов, предназн
 ```bash
 magnet:?xt=urn:btih:6B403B159F1952B2F676EEB14BBC0FEBE394C86D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ SMPlayer - кроссплатформенный мультимедиа прои�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Best HD Wallpapers Pack (23.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:316CDB639EE2CF893ADFFB2315328305B8D9C45E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Dance Hits Vol.277 - Vol 278 (2012) [MP3|128-320 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:1C1B7CA92FE13742B8DEC53743F36A0CA57F222C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Duolingo: изучай языки 5.129.5 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0494B32DF8F96CAA333714E3115ECB7594352DAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ FX Player Pro - универсальный медиаплеер который �
 magnet:?xt=urn:btih:4F78E9D5928C58C6D7DC277E0ECF7A6BFD28E91B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Waterfalls Wallpapers (24.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:6FA0F18812620AAF5AD7DFD55D9EC2603DF73A25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Square Home - красивый, стильный и функциональный
 magnet:?xt=urn:btih:A94571C5A4B705E54DECD21AD0C03856E41FC8E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:A94571C5A4B705E54DECD21AD0C03856E41FC8E8
 ```bash
 magnet:?xt=urn:btih:13E5F5BFD818B9E437DF36F796F9B9E207A2B889
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Sunrises and sunsets Wallpapers (22.12.12) [Wallpapers]
 magnet:?xt=urn:btih:E98704404CBB1626A919D136BE756AB8B68D84E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ WPS Office - очень полезное, офисное приложение д
 ```bash
 magnet:?xt=urn:btih:5D1962715EDCD298ADE94AF00D2BD3A1036B24DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Smart Launcher - лаунчер являющийся одним из самых 
 magnet:?xt=urn:btih:6ED7CDA126095F56C5B6050CD56AB96538984F9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Easy Data Transform for Mac 1.45.0 [En]
 ```bash
 magnet:?xt=urn:btih:0CE7304C4EF4DF6F24F1E0888928B6DB98155499
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Best HD Wallpapers Pack (24.12.12) [Wallpapers]
 magnet:?xt=urn:btih:6273F6EBF1A75DB9707D1309CAE17C350DC3100A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Desktop Wallpapers (24.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:293F3BE068BE9DE6F5C4C0F3D31DE14C16BE5881
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ Arty - Together We Are 027 (22.12.2012) [MP3|320 кб/с]<Trance, Progressive Ho
 magnet:?xt=urn:btih:D2D412A1C2E42A373F7FAA8341F13FB9FCA0CA16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 ```bash
 magnet:?xt=urn:btih:5847EA0FD1D5CCB367133F6D42C7681D5BB10C53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Birds Wallpapers (22.12.12) [Wallpapers]
 magnet:?xt=urn:btih:168A17E1819BE79C6DAA41D1E1BB09E13AF3799E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ Nature Wallpapers (23.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:AE45F49C9F8F9C97EE6D4B9D4856106630AC5FDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ Sumatra PDF - легкий просмотрщик  PDF, DjVu, CHM, ePub, MOBI, X
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ France Wallpapers (24.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:AFCA4093339ED66A96EEC325F67F8E8C6C9896C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ Rodents wallpaper (22.12.12) [Wallpapers]
 magnet:?xt=urn:btih:3DF92542D465BEF08B0264797F7D0A4704FFA467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ Animal Wallpapers (22.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:20B6A4759971751842A1635CB5DCE7B34F5407D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ Wallpapers Sexy Girls (23.12.12) [Wallpapers 16+]
 magnet:?xt=urn:btih:CB4530BB8852938FF1BE3D58ADDD8AA37438D559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ Computer Desktop Wallpapers Collection (22.12.12) [Wallpapers]
 ```bash
 magnet:?xt=urn:btih:2F5DC00FD9E0ACFD30E8790C61A7CE35D8AADE58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ PhotoRoom - приложение, что будет одинаково поле�
 magnet:?xt=urn:btih:D23B21701E0636ADF2D8C01094C307E1D7C85983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Lyn - легкий, быстрый и удобный просмотрщик из
 ```bash
 magnet:?xt=urn:btih:B8C6CE433F48EAA6FE7D4DE572AFB9E6712E956C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

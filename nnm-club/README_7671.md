@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:F4DBAA9146D010EC47F5CED7DB6FE714048CACEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ The Crimson Mask - Tales of Mayhem & Madness (2023) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:F86FEED169E8E081A786FD881107004C36757E67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:F86FEED169E8E081A786FD881107004C36757E67
 ```bash
 magnet:?xt=urn:btih:5E3E5F4FF151673C4648D3477F5A42870C8B99DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Texifier — это редактор LaTeX, предназначенный дл�
 magnet:?xt=urn:btih:48C8C670395184ED220CF68CF4316F8FEE16823B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:48C8C670395184ED220CF68CF4316F8FEE16823B
 ```bash
 magnet:?xt=urn:btih:98E836AC03ED08AFD6F630593BF9A6029826CF21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Coffin Mulch - Spectral Intercession (2023) [FLAC|Lossless|WEB-DL|tracks] <Death
 magnet:?xt=urn:btih:6B2E9D80A8C902CB39FBDBB412002CA2C1EF2297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:6B2E9D80A8C902CB39FBDBB412002CA2C1EF2297
 magnet:?xt=urn:btih:BC5D5A98853A5EA37C464FD9A8E8DF989E374635
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:BC5D5A98853A5EA37C464FD9A8E8DF989E374635
 ```bash
 magnet:?xt=urn:btih:41CB69B2097A5D3727D8805EEAC934F5D6F6C945
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Trove of Oddities at the Devil's Driveway - Witchthroat Serpent (2023) [FLAC|Los
 magnet:?xt=urn:btih:E8A97718049BCF50151BE5D95B7F8FD64295DA93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:E8A97718049BCF50151BE5D95B7F8FD64295DA93
 ```bash
 magnet:?xt=urn:btih:5434B6364B80B9C63270E3FFFBDF82A40F7D877A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Spy Kyoushitsu | Spy Classroom | Шпионский класс [ТВ-1] [2023, T
 magnet:?xt=urn:btih:8FF48C8CBBE063838474B6DF9374D55AB350A255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:8FF48C8CBBE063838474B6DF9374D55AB350A255
 ```bash
 magnet:?xt=urn:btih:A20037837EDE57A4CACCF62E55189CB1155BDB42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:A20037837EDE57A4CACCF62E55189CB1155BDB42
 magnet:?xt=urn:btih:2A510696885D2866FDBDC41D0EE58BF7EE6E58F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ vpnify: лучший БЕСПЛАТНЫЙ, БЕЗЛИМИТНЫЙ и высок�
 ```bash
 magnet:?xt=urn:btih:57033D7E90DAD040B930CB11B7E87EB100D9C071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ Viper - Timeless (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Power, Speed Meta
 magnet:?xt=urn:btih:CB3B2EC9BEFF2CC27E41841F7195C609F7DE1129
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ War Kry - Symphony Of Mortality (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Met
 magnet:?xt=urn:btih:2AA2E3C62B3E9BA140ECBEE852AB8A0C016A8E48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:2AA2E3C62B3E9BA140ECBEE852AB8A0C016A8E48
 magnet:?xt=urn:btih:6FB8D5C1729A7CB94BEBD12A02E6BF399F62E715
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:6FB8D5C1729A7CB94BEBD12A02E6BF399F62E715
 ```bash
 magnet:?xt=urn:btih:5DB243F46EC8D977B81FF5DF483EB0520F08D24A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:5DB243F46EC8D977B81FF5DF483EB0520F08D24A
 magnet:?xt=urn:btih:E5DE47E74C0719CFB0CD350D825308C842EA56D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Recuva - небольшая, но весьма эффективная утили
 ```bash
 magnet:?xt=urn:btih:CB40089149D00DE49C68588174CDB78395ADC662
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ Pistols At Dawn - Ascension (2022) [FLAC|Lossless|WEB-DL|tracks] <Alt.Metal, Har
 magnet:?xt=urn:btih:32325A03B065B4CF57FFAA2D5CB697E9844C1687
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:32325A03B065B4CF57FFAA2D5CB697E9844C1687
 ```bash
 magnet:?xt=urn:btih:44C5FD04F95D2F2D6D8E8A48278046625D348431
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ Heathen Hoof - Rock Crusader (2011) [WavPack|Lossless|image + .cue] <Heavy Metal
 magnet:?xt=urn:btih:1D8FFC8E217E8EC1B8144CFB703D57BFE96A921D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:1D8FFC8E217E8EC1B8144CFB703D57BFE96A921D
 magnet:?xt=urn:btih:769F3B438183C0E0E95C8B7E91072B32D10928B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:769F3B438183C0E0E95C8B7E91072B32D10928B8
 ```bash
 magnet:?xt=urn:btih:542AE53BC5BF44193CBF4D5CC6A8C2064E673C98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +695,8 @@ Cerebro - 2 EP (2021-2022) [MP3|320 Kbps] <Hardcore, Metalcore>
 ```bash
 magnet:?xt=urn:btih:3FCB50F6760E1E115C61E26D945D11E571CFE92A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

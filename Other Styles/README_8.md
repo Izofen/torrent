@@ -28,6 +28,8 @@
 magnet:?xt=urn:btih:8C79F95EECA4EC2779226598ADFB8943734FB73B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ VA - Музыка в гармонии с природой: Энергия вод
 ```bash
 magnet:?xt=urn:btih:2F59D0949525DB18C1A93A34CEC9E14CC99AA103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ VA - Музыка в гармонии с природой: Ave Maria (2005) [MP3
 magnet:?xt=urn:btih:354EA210349202CD6E54038399C11CC25F3BA0D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +125,8 @@ Yoko Shimomura - Games Soundtracks 6 Albums (1998 - 2010) [FLAC|Lossless]<Game S
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +161,8 @@ VA - Relax FM vol.10 (2011) [FLAC|Lossless]<Relax, Easy Listening, Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +186,8 @@ VA - Relax FM vol.10 (2011) [FLAC|Lossless]<Relax, Easy Listening, Pop>
 ```bash
 magnet:?xt=urn:btih:569BFEEB783FADB31799700EE348DD42FA098FAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +222,8 @@ VA - Русская народная хоровая песня (2000) [FLAC|Loss
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +256,8 @@ VA - 20 шедевров русского романса (1999) [FLAC|Lossless]<
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +292,8 @@ Michel Teló - Na Balada (2011) [MP3|320 кб/с]<Pop Folk / Sertanejo / World>
 magnet:?xt=urn:btih:9415CF1EA6D76802DCFAA133426BA20E85836025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +326,8 @@ magnet:?xt=urn:btih:9415CF1EA6D76802DCFAA133426BA20E85836025
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +362,8 @@ magnet:?xt=urn:btih:9415CF1EA6D76802DCFAA133426BA20E85836025
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +396,8 @@ VA - Шедевры православной музыки (2000) [MP3|320 кб/�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +432,8 @@ VA - Шедевры православной музыки (2000) [FLAC|Lossless]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +466,8 @@ VA - Уличные танцы 2 / Street Dance 2 (2012) [MP3|320 кб/с]<Sound
 ```bash
 magnet:?xt=urn:btih:17CCE7AFE4DD9CAA5A69AA8C3A6FCF3D873E8B03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +502,8 @@ James Last & His Orchestra - Viva Espana (1992) [MP3|320 кб/с]<Instrumental>
 magnet:?xt=urn:btih:9D7BF92FD4B33DB5A87A03B3A71FE14E3E54B70B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +536,8 @@ V.A. - Музыка Для Отдыха (Главный Советский По�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +561,8 @@ V.A. - Музыка Для Отдыха (Главный Советский По�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +597,8 @@ Laibach - Iron Sky [OST] (2012) [MP3|320 кб/с]<Industrial / Soundtrack>
 magnet:?xt=urn:btih:97CC8B327037B07A464B9F5A9366A8551D3EE1C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +622,8 @@ Celtic Woman - Believe (2012) [MP3|320 кб/с]<Celtic, New Age, Adult Contempor
 ```bash
 magnet:?xt=urn:btih:F5FE46485D786D9EE70534FD7DC1AF93B57E167D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +652,8 @@ magnet:?xt=urn:btih:F5FE46485D786D9EE70534FD7DC1AF93B57E167D
 ```bash
 magnet:?xt=urn:btih:9160CBDD1589153484FFAB4827165532651D3FF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +688,8 @@ Comet In Moominland (Весна)
 magnet:?xt=urn:btih:1C61849E134C65838A1262DD7813AAC910A8ED6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -680,6 +722,8 @@ magnet:?xt=urn:btih:1C61849E134C65838A1262DD7813AAC910A8ED6F
 ```bash
 magnet:?xt=urn:btih:9B94483C1F7568F7E0665F7184A21A573EADECE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -714,6 +758,8 @@ The Days of the Trumpet Call - 5 albums (1999-2010) [FLAC/APE|Lossless] <Neoclas
 magnet:?xt=urn:btih:ABEB88808A9B304BD3E85BA8FC3B44FA9AF956F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -746,6 +792,8 @@ VA - Relax. Anti Stress (2012) [MP3|320 кб/с]<Relax, New age, Chillout>
 ```bash
 magnet:?xt=urn:btih:E20095CA09A244B9A06F9F26F8BC843152E6F9B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -780,6 +828,8 @@ magnet:?xt=urn:btih:E20095CA09A244B9A06F9F26F8BC843152E6F9B0
 magnet:?xt=urn:btih:0A4840F048D2F0ECC471661AD31E7705DC6A50FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -812,6 +862,8 @@ Davide Swarup - Music for Hang (2007) [FLAC|Lossless]<Hang Drum>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

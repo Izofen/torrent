@@ -1,3 +1,32 @@
+###  Публикация: 1198935   (801606) от 15.01.2018
+
+VA - This Is Kizomba (2017) [MP3|320 Kbps] <Reggae, Pop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Kaysha - Despacito (Kizomba Remix)  4:39
+02 Lily - Tounen  4:30
+03 Jian Amari - South of Essex  4:23
+04 Kaysha - Unforgettable (Kizomba Remix)  4:24(   Читать дальше...   )Жанр: Reggae, PopПродолжительность: 01:21:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:304F02C489601C669883677A85AF6735FF4FBB4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120394   (801855) от 31.03.2017
 
 50 Cent - Best Of (2017) [MP3|320 Kbps] <Rap, Hip Hop, Gangsta Rap>
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:F0E3297C7F59CE827B68CEB6997F6198EA978150
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ magnet:?xt=urn:btih:F0E3297C7F59CE827B68CEB6997F6198EA978150
 magnet:?xt=urn:btih:CB62547A80F23650848D0BAC68D7FA69B2B7E414
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ Big Baby Tape & kizaru - BANDANA I (2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hi
 magnet:?xt=urn:btih:2A977BC92CCD467B5543F12BF7ECE3E5F9F31DCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +137,8 @@ VA - Reggae (2018) [MP3|320 Kbps] <Reggae>
 ```bash
 magnet:?xt=urn:btih:D782C53456086BC09C3AE91A70779F02DB516BB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +168,8 @@ VA - Pure... Urban (2013) Box Set, 4CD [FLAC|Lossless]<R&B, Soul>
 magnet:?xt=urn:btih:CBCA85A4E5D2C92A78BBA27E197412F1782A07F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +196,8 @@ Alai Oli - Равновесие / Глубина (2016) [MP3|320 кб/с] <Alter
 ```bash
 magnet:?xt=urn:btih:870D914181E4AEFEC361139D4F39360C6A9E1317
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +226,8 @@ All That Glue - Sleaford Mods (2020) [MP3|320 Kbps] <Hip-Hop, Indie, Punk>
 magnet:?xt=urn:btih:A709F96282420164CDCD2D435E20261E3425D207
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +254,8 @@ eto - The Beauty of It (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:1499B8EA012628E9171A2FB888B261603C0831AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +284,8 @@ Tanir & Tyomcha - До мурашек (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:6610B2403266435C2A9EECDF0E43BBC34D13042F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +312,8 @@ magnet:?xt=urn:btih:6610B2403266435C2A9EECDF0E43BBC34D13042F
 ```bash
 magnet:?xt=urn:btih:330EAA0ACAE7FCA1742E27227EB06181E92CC76A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +342,8 @@ Archi - Не спасти не сохранить (2020) [MP3|320 Kbps] <Rap, Hi
 magnet:?xt=urn:btih:23729DB02AC4BD420E9951B18A9017257DBA7176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +370,8 @@ magnet:?xt=urn:btih:23729DB02AC4BD420E9951B18A9017257DBA7176
 ```bash
 magnet:?xt=urn:btih:9196F984184D6E949A2F468E98676A6BB314D79C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +400,8 @@ NIGXNIZ - INFRA (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:F4AADDA3A1EDAE046B4191DBF13D01B619BD3321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +428,8 @@ L'One - Концерт с симфоническим оркестром (2018) [
 ```bash
 magnet:?xt=urn:btih:227F1A74D2037CD03555A3CDB78E4F94FA3836AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +458,8 @@ ATL - Лимб (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:06B1CA74B56458403A08B22704C88E2E9BDD5BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +486,8 @@ Lil Nas X - Montero (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Pop Rap, Trap
 ```bash
 magnet:?xt=urn:btih:4BE5BC76F4F66B4D5EE2AB563CE76DC3CFD327E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +516,8 @@ Atmosphere - WORD? (2021) [FLAC|Lossless|tracks + .cue] <Hip-Hop>
 magnet:?xt=urn:btih:A1A02AC624985A35C67389A09BE883C3A737A88E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +544,8 @@ Drake - More Life (2017) [MP3|320 Kbps] <Hip-Hop, Rap>
 ```bash
 magnet:?xt=urn:btih:97FDB1691122EC4EB004105B54BE192EFDE30711
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +574,8 @@ magnet:?xt=urn:btih:97FDB1691122EC4EB004105B54BE192EFDE30711
 magnet:?xt=urn:btih:906A5BD28865EAD78A2EDCB35975417CBE1D5393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +603,8 @@ magnet:?xt=urn:btih:906A5BD28865EAD78A2EDCB35975417CBE1D5393
 magnet:?xt=urn:btih:929242F3A78630AA01BDCCBD227AF553E0A650D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +631,8 @@ Guf & Murovei - Дом, который построил Алик (2020) [MP3|320
 ```bash
 magnet:?xt=urn:btih:3548213DD76599AFC7BDCF44D2B856DB2BBCF20D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +663,8 @@ Jillzay - Open Season (2017) EP [MP3|320 Kbps] <Hip-Hop>
 magnet:?xt=urn:btih:23AA37FAD37033ECD69393A4FB1D57C543005E48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +691,8 @@ VA - NOW Reggae Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Reggae, R&B>
 ```bash
 magnet:?xt=urn:btih:F7F3092C388BFBD5007FCFEAA65DCBEE5C4EE5DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +721,8 @@ magnet:?xt=urn:btih:F7F3092C388BFBD5007FCFEAA65DCBEE5C4EE5DA
 magnet:?xt=urn:btih:EABAC65BF8F223B3CEC9185EEBC44E51FB2C0B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,32 +750,7 @@ Brick Bazuka - Я и Мой Демон (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:209E53711A2D9978F752E505DD76E82B318303DC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380194   (834988) от 02.05.2020
-
-Jahmal TGK - Неваляшка (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_834988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Улица Сутулица [03:15]
-02. Мужик с пакетом [03:35]
-03. Жадная мразь [03:12]
-04. Пятно [02:26](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:30:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D9E650A0A7AF7C44CBCBABC385F04037A0EA4F8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

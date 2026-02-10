@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:38C871BCE358B65AD9238BE1EA27A2011601F583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:38C871BCE358B65AD9238BE1EA27A2011601F583
 ```bash
 magnet:?xt=urn:btih:1F40567DB1848C7F465855ACEF9490D4898CF2DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Best Vocal Chill Out Remixes For (2017) [MP3|320 Kbps] <Downtempo, Chillout
 magnet:?xt=urn:btih:008BBC5D4C8DD595C2E27F22991A5102B4D155EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ VA - Planeta Mix Hits 2018: Winter Edition (2017) [MP3|320 Kbps] <House, Dance>
 ```bash
 magnet:?xt=urn:btih:134476B228824CA0E92862529B1FE7545197BCEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Epolets - Діти моря (2017) [MP3|320 Kbps] <Alternative Rock, Indie Rock>
 magnet:?xt=urn:btih:874721687782AF3E52C1C5F5B357F9C5BCC03A9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Steve Angello - Genesis:
 ```bash
 magnet:?xt=urn:btih:8630CB767EE29D84B004741315A3B97A4AD5BCDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.18 (Compiled by Викто
 magnet:?xt=urn:btih:EB8E8D4A3A12E7DBEA8E1DFE796E4BD6A5818D3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:EB8E8D4A3A12E7DBEA8E1DFE796E4BD6A5818D3B
 ```bash
 magnet:?xt=urn:btih:1BBF3D59FB92AD0D3509B96842AFD904AA9D242B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ VA - Deep House Collection vol.148 (2017) [MP3|320 Kbps] <Deep House, Club House
 magnet:?xt=urn:btih:8EE4B9B05F978DDCFDAE82EFDFBD0B1046E9EF93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ VA - Innovations Deep House (2017) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:1F0F903FA864485BB1D40465DF618761121E761A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +303,8 @@ VA - Sunset Lounge (Chillout Your Mind) (2017) [MP3|320 Kbps] <Downtempo, Chillo
 magnet:?xt=urn:btih:DE8E8754A591BF0F4FB24A603D51BED3C69A1D1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ Herb Alpert with Symphony and Choir - The Christmas Wish (2017) Herb Alpert Pres
 ```bash
 magnet:?xt=urn:btih:B69470A0A06A48A207F63F8735235DCA49459C75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +361,8 @@ Lyn поддерживает все популярные графические 
 magnet:?xt=urn:btih:749562F580ABD0558E52CF184C8E21DD119800A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +389,8 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.16 (Compiled by Викто
 ```bash
 magnet:?xt=urn:btih:1AF6F1733D34DF29C0353023D3CE08C4FEFB2197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +419,8 @@ magnet:?xt=urn:btih:1AF6F1733D34DF29C0353023D3CE08C4FEFB2197
 magnet:?xt=urn:btih:C4FCE3241360D0C0E9D62BC21296B4A44635D531
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +444,8 @@ magnet:?xt=urn:btih:C4FCE3241360D0C0E9D62BC21296B4A44635D531
 ```bash
 magnet:?xt=urn:btih:954B0A133749E3BCDEC69658E22D4469BF8DF8CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +474,8 @@ VA - Ibiza Winter Lounge Session (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lou
 magnet:?xt=urn:btih:236ACD02351DDF45AEB508619C82832B007A5354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +503,8 @@ VA - Destination Chill House (2017) [MP3|320 Kbps] <Deep House,  Lounge, Downtem
 magnet:?xt=urn:btih:0BDD0A1992EB387986D008B1889C9708AA350F14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +528,8 @@ magnet:?xt=urn:btih:0BDD0A1992EB387986D008B1889C9708AA350F14
 ```bash
 magnet:?xt=urn:btih:3399AEC7C24E93AB9826301DE477B404ADE296A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +556,8 @@ magnet:?xt=urn:btih:3399AEC7C24E93AB9826301DE477B404ADE296A8
 magnet:?xt=urn:btih:E2EC878D65A7B8D28CE9F1498713236DB9F47702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +581,8 @@ magnet:?xt=urn:btih:E2EC878D65A7B8D28CE9F1498713236DB9F47702
 ```bash
 magnet:?xt=urn:btih:2B6EE2D881EEE450A3DCFF56BEADFA67D567AB8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +608,8 @@ magnet:?xt=urn:btih:2B6EE2D881EEE450A3DCFF56BEADFA67D567AB8C
 magnet:?xt=urn:btih:6306587D6FB41B83EA5ED2168821C4FB4874C199
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +634,8 @@ magnet:?xt=urn:btih:6306587D6FB41B83EA5ED2168821C4FB4874C199
 magnet:?xt=urn:btih:93FD6B3CDD5A3367D769B2882F6924EFAE242289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +659,8 @@ magnet:?xt=urn:btih:93FD6B3CDD5A3367D769B2882F6924EFAE242289
 ```bash
 magnet:?xt=urn:btih:673F82A51B453FC652B2A58B73C64FA8FDD7D7CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +688,8 @@ magnet:?xt=urn:btih:673F82A51B453FC652B2A58B73C64FA8FDD7D7CF
 magnet:?xt=urn:btih:A513BC3B1A392C63319D59EE41115884F378DC82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +713,8 @@ Bishoujo Senshi Sailor Moon S: Kaguya Hime no Koibito / Sailor Moon S Movie: Hea
 ```bash
 magnet:?xt=urn:btih:05E1CEE002C77BA5D550BCDF06EAA7BD0CEF8B98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

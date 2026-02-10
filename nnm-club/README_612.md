@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:79EABE4B13A5082A6D735423F5553FD572337014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Psychoscopy - это кооперативная хоррор-игра для 5 �
 ```bash
 magnet:?xt=urn:btih:A42224B6D0F7EA9F44433FC28B834DCD5A82E987
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:A42224B6D0F7EA9F44433FC28B834DCD5A82E987
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:A42224B6D0F7EA9F44433FC28B834DCD5A82E987
 magnet:?xt=urn:btih:53E657EB528D01622110426B806B1CF80F195E4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:53E657EB528D01622110426B806B1CF80F195E4D
 ```bash
 magnet:?xt=urn:btih:39DAC371EC97CC206C5F13687094A4DAE1DE6273
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:39DAC371EC97CC206C5F13687094A4DAE1DE6273
 magnet:?xt=urn:btih:1D6BED6097986E9AC2AC33737AB3DDD5E7C3A653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:1D6BED6097986E9AC2AC33737AB3DDD5E7C3A653
 magnet:?xt=urn:btih:1EFF0D45508624C50F0F0A01977005F99E3FE730
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:1EFF0D45508624C50F0F0A01977005F99E3FE730
 ```bash
 magnet:?xt=urn:btih:4E6B8351FF026489B6116F29EAEFDA6D98402ADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:4E6B8351FF026489B6116F29EAEFDA6D98402ADA
 magnet:?xt=urn:btih:F11CD4493DAA4E895BEFFE08969EFB14E47F588A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:F11CD4493DAA4E895BEFFE08969EFB14E47F588A
 ```bash
 magnet:?xt=urn:btih:33193438C434BE068B962CAB82638B92F9E1E88C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:33193438C434BE068B962CAB82638B92F9E1E88C
 magnet:?xt=urn:btih:A8C62BC8227FF440E6A82A73173D198C291AB3F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:A8C62BC8227FF440E6A82A73173D198C291AB3F0
 magnet:?xt=urn:btih:0B9B7E6545B7759AC1DBE9F333F4899E972B62D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:0B9B7E6545B7759AC1DBE9F333F4899E972B62D5
 ```bash
 magnet:?xt=urn:btih:C5C36B011BFAC4CD816D1B982A04045E23C8EAC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:C5C36B011BFAC4CD816D1B982A04045E23C8EAC7
 magnet:?xt=urn:btih:35B2D39F98DA89122534D56EA0C5704E30387D7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:35B2D39F98DA89122534D56EA0C5704E30387D7C
 ```bash
 magnet:?xt=urn:btih:BE409670570E15AD22115F8B4D67785B31520C63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:BE409670570E15AD22115F8B4D67785B31520C63
 magnet:?xt=urn:btih:4D2CB2933501C5998D2B8863EB9E080ACEAF4BFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:4D2CB2933501C5998D2B8863EB9E080ACEAF4BFE
 magnet:?xt=urn:btih:26CA48251159BF0EC222BA837E0DD8E623728796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:26CA48251159BF0EC222BA837E0DD8E623728796
 ```bash
 magnet:?xt=urn:btih:73C4A3D2FF7BF74F5D00F70E057EC463C16EDB5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:73C4A3D2FF7BF74F5D00F70E057EC463C16EDB5A
 magnet:?xt=urn:btih:CC556405D8212E752D81B813FD08B5152B123711
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ simplewall 3.8.6.1 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:03FB78389977D75EA4DB73C7D2D72D9CF4F53D9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ ES File Explorer (File Manager) — это полнофункциональны�
 ```bash
 magnet:?xt=urn:btih:64AAFB0DE156843D77596696A88227AE1E415C6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:64AAFB0DE156843D77596696A88227AE1E415C6B
 magnet:?xt=urn:btih:FAA2175F9319F7757B1ACD673ACF2E88AB8FB651
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ VIMAGE - AI Photo Animation v5.1.3 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4A12610D2323972F9C480070181EF1204C73C8DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ FANTASY LIFE i: The Girl Who Steals Time (2025) [Multi] (1.1.1/dlc) Repack FitGi
 magnet:?xt=urn:btih:5A426AA436B7E11BDDBBEBB4E5923B402397CB3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 magnet:?xt=urn:btih:752FEFD5448AF44EF0508827E4F2DC1F6BEFBD93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:752FEFD5448AF44EF0508827E4F2DC1F6BEFBD93
 ```bash
 magnet:?xt=urn:btih:C2695140EDF513C7EC806AA8E2544B59F2574F25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

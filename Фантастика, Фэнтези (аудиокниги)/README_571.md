@@ -1,3 +1,30 @@
+###  Публикация: 1847507   (1052214) от 12.01.2026
+
+Ся Цзя | Далекое лето (Сборник) (2025) [MP3, Владимир Князев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1052214.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Далекое лето» – уникальный сборник научно-фантастических рассказов из Китая, напоминающий по тону лучшие произведения Рэя Брэдбери. Ся Цзя соединяет в своих рассказах технологическое будущее с фольклорными корнями, мифами и ностальгией по исчезающему прошлому.
+Андроид-опекун заботится о дряхлом старике – под пристальным и наивным взглядом его сообразительной внучки. (   Читать дальше...   )Жанр: ФантастикаИздательство: Fanzon (Эксмо)Продолжительность: 12:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6998148E5EC2F2FEEA087978AF917FBF4B431F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847509   (1052215) от 12.01.2026
 
 Вадим Фарг | Призрак (Книга 1). Музыка Древних (2025) [MP3, Егор Федотов]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:FC2B71BE105FD7545E64A66D87774D02341C9CD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:FC2B71BE105FD7545E64A66D87774D02341C9CD5
 magnet:?xt=urn:btih:BB5C7596239958E58DBBF8FA8B0362F49DE15DD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:BB5C7596239958E58DBBF8FA8B0362F49DE15DD6
 ```bash
 magnet:?xt=urn:btih:F150D0C2F6AC69211E6B43164EEE7B401C3F17AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:F150D0C2F6AC69211E6B43164EEE7B401C3F17AD
 magnet:?xt=urn:btih:88106766E1885E92651BFC6F153E40338153E533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:88106766E1885E92651BFC6F153E40338153E533
 ```bash
 magnet:?xt=urn:btih:E88ED597F820E1249630D10C7528532082B962EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +180,8 @@ magnet:?xt=urn:btih:E88ED597F820E1249630D10C7528532082B962EB
 magnet:?xt=urn:btih:C1538CED2EE6EC790FB6DA5F20B03F58B52867FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +207,8 @@ magnet:?xt=urn:btih:C1538CED2EE6EC790FB6DA5F20B03F58B52867FC
 magnet:?xt=urn:btih:B7D6428E36B414E994B48FC6D09E4A9986A7412F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:B7D6428E36B414E994B48FC6D09E4A9986A7412F
 ```bash
 magnet:?xt=urn:btih:A3C9FCA7D43F75375F53363E7DB127FBBC7F94CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +259,8 @@ magnet:?xt=urn:btih:A3C9FCA7D43F75375F53363E7DB127FBBC7F94CA
 magnet:?xt=urn:btih:8F2709D77CBE7749569A842D0D854DD0F579D480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +284,8 @@ magnet:?xt=urn:btih:8F2709D77CBE7749569A842D0D854DD0F579D480
 ```bash
 magnet:?xt=urn:btih:573DF97C6AE8585D8934E4DBFDF66AF7B4669FB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ magnet:?xt=urn:btih:573DF97C6AE8585D8934E4DBFDF66AF7B4669FB4
 magnet:?xt=urn:btih:4A33D1A97FC5A3C94B8312E32EEBAFCD6594D724
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +337,8 @@ magnet:?xt=urn:btih:4A33D1A97FC5A3C94B8312E32EEBAFCD6594D724
 ```bash
 magnet:?xt=urn:btih:66A46BBE5ACFC5BEFB446095A513C0214A303C9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +364,8 @@ magnet:?xt=urn:btih:66A46BBE5ACFC5BEFB446095A513C0214A303C9D
 magnet:?xt=urn:btih:77B5C30A132DC74CB27C8241BD23AEF3CBC0548B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +389,8 @@ magnet:?xt=urn:btih:77B5C30A132DC74CB27C8241BD23AEF3CBC0548B
 ```bash
 magnet:?xt=urn:btih:D81548AD56061495D6D661483C729BA79D57173D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +419,8 @@ magnet:?xt=urn:btih:D81548AD56061495D6D661483C729BA79D57173D
 magnet:?xt=urn:btih:DDF0B12D3E500F55A2D35C4A2B8A7F5385470AFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +444,8 @@ magnet:?xt=urn:btih:DDF0B12D3E500F55A2D35C4A2B8A7F5385470AFB
 ```bash
 magnet:?xt=urn:btih:E0952B152C5ABA27FCCCB7AD64396E20985EDF3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +471,8 @@ magnet:?xt=urn:btih:E0952B152C5ABA27FCCCB7AD64396E20985EDF3E
 magnet:?xt=urn:btih:195A84F79E444B7EFBC40FCA9A24B17F86F03889
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +497,8 @@ magnet:?xt=urn:btih:195A84F79E444B7EFBC40FCA9A24B17F86F03889
 magnet:?xt=urn:btih:49E712DA0550D9EA8EFBE77CBF57C55B05C4AF97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +522,8 @@ magnet:?xt=urn:btih:49E712DA0550D9EA8EFBE77CBF57C55B05C4AF97
 ```bash
 magnet:?xt=urn:btih:D4DB353153BA306D05435174DBE4454D4DBE987C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +551,8 @@ magnet:?xt=urn:btih:D4DB353153BA306D05435174DBE4454D4DBE987C
 magnet:?xt=urn:btih:FF70D6D7115C6085D81E2B6F9CD02AEFA9557731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +576,8 @@ magnet:?xt=urn:btih:FF70D6D7115C6085D81E2B6F9CD02AEFA9557731
 ```bash
 magnet:?xt=urn:btih:A271C5579A66797DB59D9A6288917CBA649A98A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +603,8 @@ magnet:?xt=urn:btih:A271C5579A66797DB59D9A6288917CBA649A98A7
 magnet:?xt=urn:btih:CD176D5531A4F7178612C3D03259B5719EBF25BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +628,8 @@ magnet:?xt=urn:btih:CD176D5531A4F7178612C3D03259B5719EBF25BF
 ```bash
 magnet:?xt=urn:btih:0836F82C992CF47FD2F8B783D88F52EEE900CC88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +656,8 @@ magnet:?xt=urn:btih:0836F82C992CF47FD2F8B783D88F52EEE900CC88
 magnet:?xt=urn:btih:E14F9CD712703313EAB4B267EF51DB794849AE0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,30 +683,7 @@ magnet:?xt=urn:btih:E14F9CD712703313EAB4B267EF51DB794849AE0D
 magnet:?xt=urn:btih:30011043D55905D566C58E9867E45C6283D6C137
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847864   (1052472) от 15.01.2026
-
-Олег Савощик | Этажи. Небо Гигахруща (2025) [MP3, Михаил Стинский]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1052472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этажи, коридоры, лестницы и лифты – на многие километры вокруг. Размеры Гигахруща неизвестны. Что найдёт отчаянная экспедиция за границей обитаемых килоблоков? Наружность? Разумных отродий Самосбора? Секретные лаборатории отступников? А может, всё сразу?
-Ведь никто раньше не отправлялся в эти коридоры. Никто раньше не пытался устроить бунт в ликвидационном Корпусе. (   Читать дальше...   )Жанр: Фантастика, постап, триллер, ужасыИздательство: Крафтовая литератураПродолжительность: 12:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E64FEC0B32CD9F2DA3C1B89666F2058DA4D9DFD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

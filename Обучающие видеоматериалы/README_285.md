@@ -22,6 +22,8 @@ Udemy, TCM Security  | Linux Privilege Escalation for Beginners  (2020) PCRec [E
 magnet:?xt=urn:btih:A99E18E1CC125D432279F68115B6FF4DD9FACC3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Udemy, TCM Security  | Windows Privilege Escalation for Beginners (2020) PCRec [
 magnet:?xt=urn:btih:C0E965A530AC178229B53F70935EA560C5D4518C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ Udemy, Lazaro Diaz | The Only IP Course you Will Ever Need!  (2020) PCRec [En / 
 ```bash
 magnet:?xt=urn:btih:A0E3FC14D07A55DAC22C60CD8E98819EAD26E7F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ Udemy, Renat Lotfullin | Excel VBA – Программирование макр
 magnet:?xt=urn:btih:1C9373554DC37BB18559ED2F62DEE3B2C6BF362B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ magnet:?xt=urn:btih:1C9373554DC37BB18559ED2F62DEE3B2C6BF362B
 magnet:?xt=urn:btih:0B5B25A759A8DA58F6525903480D76BF25D31142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:0B5B25A759A8DA58F6525903480D76BF25D31142
 ```bash
 magnet:?xt=urn:btih:6C6DC446610867E34C526D5C8CBC5CE738A8418B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ Python - вероятно, самый популярный язык програ
 magnet:?xt=urn:btih:114F032D3C1CAE25915B79A1A68B39A2CEF3C468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ SkillUP, Евгений Макаренко |  Вводный курс Тести
 magnet:?xt=urn:btih:913CD8CA25F346B1168094F9CA87CCB84AD413DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ Stephen Silver | Advanced Character Design (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:EFD7AC651F07817361DD393A1BAD7358CEA1B71E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ Udemy, Maher Haddad |  MikroTik Traffic Control with LABS  (2019) PCRec [En]
 magnet:?xt=urn:btih:5779C1B47698E59A63A906CE61ABE4BCF496471A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +302,8 @@ Udemy, Maher Haddad | MikroTik CAPsMAN with LABS (2019) PCRec [En]
 magnet:?xt=urn:btih:845A72784ADD417AE661FEC830CE255685F7BB15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ Udemy, CG Masters | Энциклопедия Blender 2.8 / The Blender 2.8 Encyc
 ```bash
 magnet:?xt=urn:btih:83062CFE2F8A4419F00F9D98BBD8236DCBDDB0D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +355,8 @@ Marvelous Designer (MD4/ MD5) это передовое программное �
 magnet:?xt=urn:btih:A479F3C1E36188F7E76DBAF15423547B15001D42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ Udemy, Cyber Quince | Practical Cisco Networking Labs in Cisco Packet Tracer  (2
 ```bash
 magnet:?xt=urn:btih:C147D23B07FCA8C97D5A07FAFE3D58479BF41FA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ Camille Kleinman | Jackets & Coats Workshop (2016) PCRec [En, Ru]
 magnet:?xt=urn:btih:F94E73CA972B3460B752133BD09671DCCFA2FBB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ Mike Jensen | ZBrush Hard Surface Techniques (2011) PCRec [En, Ru]
 magnet:?xt=urn:btih:B3B5ED65B4DB3751B18262A1AEA1778D9D7A3FAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ Mike Jensen | ZBrush Hard Surface Techniques 2 (2011) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:4B396BAC476CFC358239DB950E30B10AF6BAF5D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +491,8 @@ Udemy, SS Code Academy |  Java 2021: Complete Java Masterclass: Zero to Hero Pro
 magnet:?xt=urn:btih:934DC8EAB78EA956A1211B07F900DAF9135E4905
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ Udemy, Chris Sikes |  Red Team Ethical Hacking - Beginner (2021) PCRec [En / En 
 magnet:?xt=urn:btih:96A562DBD43A59DF590AA9BA4BDABEF56D6119A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ Jake Weisler | Wedding Video Pro (2020) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:20874A11AC42CB1A7FC434075D6189F51D7A80AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ Microsoft Power BI - это самый простой в использован�
 magnet:?xt=urn:btih:BFDEA4D8FF064644FAD1972814AD40934255CCC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ Udemy, Lernen Hub Academy | C++ Programming Step By Step From Beginner To Ultima
 ```bash
 magnet:?xt=urn:btih:80241713BA81A8473EDC486F212AB9CE9D98CC20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +628,8 @@ Udemy, SS Code Academy |  Python 2021: Complete Python Bootcamp: Zero-Hero Progr
 magnet:?xt=urn:btih:5534B734E17CD25714312E1D56E12373F03D5BF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ Udemy, Paul Chin | Reverse Engineering: Create Your Own GUI CrackMe using C++  (
 ```bash
 magnet:?xt=urn:btih:E5E9B4CBA555CBC0173515B69F70A6347BA0C546
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ Udemy, David Bombal | Python Network Programming for Network Engineers (Python 3
 magnet:?xt=urn:btih:B0911CD5F14521805EF4E0D423BF9B1AB4B1F469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ Udemy, William McGuffey Academy |  [2021] Tableau 2020: A-Z Hands-on Tableau For
 ```bash
 magnet:?xt=urn:btih:E1D74BF212A4697E3907AE90116CA13E15BC9BBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

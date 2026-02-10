@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:08975A76654C2522999A88FA9E7FBB44EBD5ADCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:08975A76654C2522999A88FA9E7FBB44EBD5ADCE
 magnet:?xt=urn:btih:7853A9F0E08DC2274517F6B8BA38DB5D2120D230
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Grendizer U | Грендайзер U [2024, TV, 13 из 13] WEBRip 1080p Rus
 ```bash
 magnet:?xt=urn:btih:239B314FEE382E8F6359BE445A3F133F5E80433F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Mayonaka Punch | Полуночный удар [2024, TV, 12 из 12] WEBRip 108
 magnet:?xt=urn:btih:9D10AF4E1AE4A11393EC674F2A51F23960AE7ECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Shangri-La Frontier: Kusogee Hunter, Kamige ni Idoman to Su | Фронтир Ш�
 ```bash
 magnet:?xt=urn:btih:F585D453884310F379015884D5C0472BFF4A9F82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:F585D453884310F379015884D5C0472BFF4A9F82
 magnet:?xt=urn:btih:75437D0298A1F7406B51AF3173C2BAAFB6353948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:75437D0298A1F7406B51AF3173C2BAAFB6353948
 ```bash
 magnet:?xt=urn:btih:20C6BC7838DC396799CABEE9F0BE411BFEF02056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Mushoku Tensei II: Isekai Ittara Honki Dasu | Mushoku Tensei: Jobless Reincarnat
 magnet:?xt=urn:btih:49F65C28949240C42E543B8ADE69E4307FA8F4BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Goblin Slayer II | Убийца гоблинов [ТВ-2] [2023, TV, 12 из 12]
 ```bash
 magnet:?xt=urn:btih:82A2D58F6648E8068B82141EDD24108D213942F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:82A2D58F6648E8068B82141EDD24108D213942F3
 magnet:?xt=urn:btih:E02D898ABA065ED1960F885439D3BAC62021DA38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Madougushi Dahlia wa Utsumukanai | Dahlia in Bloom | Maгичecкaя peмecлeн
 ```bash
 magnet:?xt=urn:btih:8F61B5A6CBA02F6BBC7A46E6502AF831BF4F03D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Ore dake Level Up na Ken | Solo Leveling | Поднятие уровня в од
 magnet:?xt=urn:btih:E342A357A709E0E3F5EB082AAAF341AA4C76ED98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Isekai Yururi Kikou: Kosodate Shinagara Boukensha Shimasu | Iseyuru | Прикл
 ```bash
 magnet:?xt=urn:btih:798332A3B5171C4C7FA7B37AD91712D336919CAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:798332A3B5171C4C7FA7B37AD91712D336919CAC
 magnet:?xt=urn:btih:D02019ACDD1F50E990898000EAC0FE91EC3C5CFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:D02019ACDD1F50E990898000EAC0FE91EC3C5CFF
 magnet:?xt=urn:btih:C928E5861466A38A2BF02DFF2EA708AF9C273EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Date A Live V | Рандеву с жизнью [ТВ-5] [2024, TV, 12 из 12] B
 ```bash
 magnet:?xt=urn:btih:7B7877982D2F2149BA9380CA7008CCAF5C1B214C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:7B7877982D2F2149BA9380CA7008CCAF5C1B214C
 magnet:?xt=urn:btih:D32D6213CA6A89D62F981B27DA36E24AC354EDE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:D32D6213CA6A89D62F981B27DA36E24AC354EDE0
 ```bash
 magnet:?xt=urn:btih:3EDE3B6F1195468E3330BAB22F2B8D9A49F3A18C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Danball Senki W | Little Battlers eXperience W | LBX – Битвы малень
 magnet:?xt=urn:btih:3EB1815C8DDF3EE8DB5D1BE204FCC7C09B6059F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Lv2 kara Cheat datta Moto Yuusha Kouho no Mattari Isekai Life | Беззабот
 ```bash
 magnet:?xt=urn:btih:654BA5D85249FA6BC910B0A0218A096CEBB286D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Kage no Jitsuryokusha ni Naritakute! | The Eminence in Shadow | Восхожде
 magnet:?xt=urn:btih:D4D606F54BE58C79A8E591C9F694A59FFFC957D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Maou Gun Saikyou no Majutsushi wa Ningen Datta | Сильнейшим магом
 ```bash
 magnet:?xt=urn:btih:1631EA62F4F9C8366DBA1B04A2BDAF8CCB01B60B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Cтудент из Токио, Харуто Амакава, погибает в 
 magnet:?xt=urn:btih:9FD3F0DEF3D0FDC37B5F9D53DFD714AAC719797B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Danball Senki | Little Battlers Experience | LBX - Битвы маленьких
 magnet:?xt=urn:btih:9A02C8E5DF18CF09A8C6198636EC047F757F0D89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Dungeon Meshi | Delicious in Dungeon | Подземелье вкусностей
 ```bash
 magnet:?xt=urn:btih:B24D830C90FE1C99ED526F9BBA7B90502FA3478E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +683,8 @@ Terminator Zero | Терминатор Зеро [2024, Web, 08 из 08] WEBRip 1
 ```bash
 magnet:?xt=urn:btih:00FCBC1BD21E15F2350F262ECEC4A7D7F9D84C11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

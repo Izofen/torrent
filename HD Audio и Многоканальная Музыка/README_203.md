@@ -22,6 +22,8 @@ A4 Oh No, Don't Let Go(   Читать дальше...   )Жанр: Soft RockП�
 magnet:?xt=urn:btih:C5FA0771DEE15908CA0EE4D13BCEC5D787A9288F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:C5FA0771DEE15908CA0EE4D13BCEC5D787A9288F
 ```bash
 magnet:?xt=urn:btih:D50932E19C8023C3B9327815CC5E5F4F78B8F0BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Royal Academy of Music Soloists Ensemble, Trevor Pinnock, The Glenn Gould School
 magnet:?xt=urn:btih:2614A8535B9FB84FE8373CC2D08DEBDD8071636A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Thibaut García - El Bohemio (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic
 ```bash
 magnet:?xt=urn:btih:CB3CE5C16CDDD03C015BE60921DE9D99696DA24B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Ronin - Valak the Defiler (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Meta
 magnet:?xt=urn:btih:BDA925421A09C8837D8DBF876CFE022E677AA0E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Wolfheart - метал-группа из Лахти, Финляндия, осн�
 magnet:?xt=urn:btih:98483922B70E817E9F7AE204A2AA39AC55E0ED7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Jethro Tull - The Broadsword and the Beast (1982) 3DVD, 40th Anniversary Monster
 ```bash
 magnet:?xt=urn:btih:83508DF59A7474A11DEBBBB4CD611833BE312D9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ Taylor Acorn - Certified Depressant (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:F2BF5173028E9867AE00BA57F7BE9D23D63DA46F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ Sirenia — норвежский готик-метал-проект, основ�
 ```bash
 magnet:?xt=urn:btih:3CFFCE365B756EE82FACC92DDF929812D27B4FE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ A4 I Know That My Redeemer Liveth (From 'The Messiah')(   Читать даль�
 magnet:?xt=urn:btih:D6908EE3E570286E9AF5439E59B75EFDA1B4603D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ yeule - softscars (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Synthpop, cyber go
 magnet:?xt=urn:btih:D19F02A12B32E41A2DE1375622D3BFB55FCA2FEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +335,8 @@ Mortemia — готик-метал сайд-проект Мортена Вела
 ```bash
 magnet:?xt=urn:btih:3D0CD45A1431C2E03A5ADEBD2348E1D64C41CE36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +365,8 @@ A3 Ballade(   Читать дальше...   )Жанр: Classical, RomanticПр�
 magnet:?xt=urn:btih:3340FE0ABF6323E7917186F9C08D0600F10BC1DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +393,8 @@ Eva Under Fire - Love, Drugs & Misery (2022) Deluxe Edition, 2023, Better Noise 
 ```bash
 magnet:?xt=urn:btih:12090CC0F1C4BD100106A1C2BF4FD450252DAD28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +423,8 @@ Vengeance - Sewer Surge (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Spe
 magnet:?xt=urn:btih:CE22CAFB4374698F7F29FE144D81F08F2BD55A59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +451,8 @@ CHI - I've Seen The Lizard People (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Al
 ```bash
 magnet:?xt=urn:btih:FB91447B0914BB0E8F06AFE406936C78C1627C79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +481,8 @@ SDH (Semiotics Department of Heteronyms) - Fake Is Real (2023) [FLAC 24/44.1|Los
 magnet:?xt=urn:btih:2971AC409226E97D386780EAB986EEDF9B13F9BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +509,8 @@ Turn Me On Dead Man - Cassiopeia (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Har
 ```bash
 magnet:?xt=urn:btih:722C14942E4F7A17A37F41ACF85DDCA55239DEF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +539,8 @@ Dayshell - Pegasus (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardcore, 
 magnet:?xt=urn:btih:C10671E3D34499FBAB2665963230FB4624E2B838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +567,8 @@ Disc 1 Bob Ludwig 2011 Remaster:
 ```bash
 magnet:?xt=urn:btih:7C0D0526454AAE02687A40EFA5385BAA8A8E56A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +597,8 @@ Kim Petras - Problématique (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:AE526F4ACD1352A6BD8F5E36A7C804E82967E9F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +625,8 @@ Soft Riot - No. (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Punk, Minimal
 ```bash
 magnet:?xt=urn:btih:990840AA8CDCC887544F11118BBE464E27CFB3F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +655,8 @@ A2 (b) Rondeau(   Читать дальше...   )Жанр: Classical, BaroqueП
 magnet:?xt=urn:btih:FD5EF0CEEB204F592051B102CB6D3AD0D2122B11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +683,8 @@ Henry Hall - I Feel Amazing (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Ro
 ```bash
 magnet:?xt=urn:btih:90B7B260C7059EB151A9928AB07E66996FCC4CE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -665,6 +713,8 @@ Myrath (араб. ميراث‎, наследие) — ориентал-мета
 magnet:?xt=urn:btih:CDB5B44803276518C7572F62433471C016577E89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +741,8 @@ Heathen — группа из США, играющая в стиле спид/т
 ```bash
 magnet:?xt=urn:btih:D3F67AB7F0FAA9CAD2F25CBEEE20A8E1EA2D17AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

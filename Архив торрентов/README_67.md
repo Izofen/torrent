@@ -22,6 +22,8 @@ updated_april_2025_x64_dvd_a39ebe02.iso
 magnet:?xt=urn:btih:2D781541D2B46D0AEFF710E3CA1831EEEE8A0126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Proton VPN — это единственное в мире бесплатное 
 ```bash
 magnet:?xt=urn:btih:5F6325E7C31971390CB23A8A2066654A99182217
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Magic Eraser - это революционное приложение для р�
 magnet:?xt=urn:btih:429E5E3AF043A71F744594B279FF97A05BAFC7A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Microsoft exFAT/NTFS for USB by Paragon Pro v5.0.0.17 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2B137BCBB0AD0875B88F9151987906EB15A1DE81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ NewPipe v0.27.7 Free + Mod by Alex.Strannik  [Ru/Multi]
 magnet:?xt=urn:btih:0858DE2C07F447719FE0E9A1C62BD7B944F2EA98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:0858DE2C07F447719FE0E9A1C62BD7B944F2EA98
 ```bash
 magnet:?xt=urn:btih:56E710EC6C1F1C9995905E58E564D224315E7278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Battery Guru предоставляет продвинутые инструме�
 magnet:?xt=urn:btih:C88D12A008280F1D701869610F6AC5327E521ABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:C802D88400F1A7A2E7939528B7FBDD52FE4A197F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Adobe Photoshop Lightroom Classic 2025 14.3.1.1 Portable by 7997 [Multi/Ru]
 magnet:?xt=urn:btih:A4FB4538737A753018D03A39AD0FE649FAD36634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:D8B8ED6282C9998CF565224029E71921AD2DC0A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 magnet:?xt=urn:btih:650200EAFFAEF4C8A469A6029F9155BE4F1F6857
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ PDF-XChange Pro — универсальное решение для работ�
 ```bash
 magnet:?xt=urn:btih:E9C88739658231C785CC1AFB3A44D318A625F4C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Web Video Caster® позволяет смотреть на вашем ТВ ви
 magnet:?xt=urn:btih:F178B8B7C8D5B65CB604440A21BF3D0E7BDC44BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:F178B8B7C8D5B65CB604440A21BF3D0E7BDC44BA
 ```bash
 magnet:?xt=urn:btih:F01BB1302D41EBD8C3436D6136345184D6833FCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Screenshot Touch – это удобное и простое приложени�
 magnet:?xt=urn:btih:12D9A40228E64ED1D6F3492345327B23691B49B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ WeNote: заметки блокнот планер v6.30 Mod by PieMods [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:A6A389985EA661476F2F8EC1474766153D8843FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Pencil Photo Sketch - профессиональное приложение дл
 magnet:?xt=urn:btih:82B986FD80039A1B051E50A20F6485CC6C074D5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ TuneIn объединяет спортивные события, музыку, �
 magnet:?xt=urn:btih:F2ADABEACC7278FC5DF39464D0C021D11BA7B988
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ PowerDirector – Video Editor v15.2.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AEDB2B07A70C96FCC75B86967B37AB67DE5B2A78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:AEDB2B07A70C96FCC75B86967B37AB67DE5B2A78
 magnet:?xt=urn:btih:5E54B7CACE1B10A323FE3F252FC8D9FFDB07B28B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.10.5 Gold
 ```bash
 magnet:?xt=urn:btih:F5255C95A0695956763758132F77B4A5F744F3D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ BikeComputer Pro - возможно, одно из лучших приложен
 magnet:?xt=urn:btih:63E6B32C9C66B4BB4A33020F98B455B1D03C8DA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Logic Circuit Simulator PRO предоставляет вам место для 
 ```bash
 magnet:?xt=urn:btih:789AD1BD9CB91017D77B7BB7490954139439A940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ InnoExtractor - это мощное приложение, которое пом�
 magnet:?xt=urn:btih:81CC1FE7EB83E3239EC17B2648390BA58051BE6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ MediaHuman YouTube Downloader 3.9.11 (0605) RePack (& Portable) by Dodakaedr [Mu
 magnet:?xt=urn:btih:8972AC9747DC35B4CA75378586694FEF1A239A52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ HDRezka TV — это неофициальный клиент для просм�
 ```bash
 magnet:?xt=urn:btih:A01CBDD14D80D98A8B2509E816D7D36A2229F095
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

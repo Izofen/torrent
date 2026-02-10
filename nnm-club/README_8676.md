@@ -22,6 +22,8 @@ Spirit - The Family That Plays Together (1969) remaster, 2017, Audio Fidelity [W
 magnet:?xt=urn:btih:A22BECC53E994345E1D387E40E68792A265CC9F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:A22BECC53E994345E1D387E40E68792A265CC9F5
 magnet:?xt=urn:btih:E9C965E24C847E0A65B48AB5208D08250286D7DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:E9C965E24C847E0A65B48AB5208D08250286D7DD
 ```bash
 magnet:?xt=urn:btih:85C0DCE5F997F645B5D297DAE596FA656E7CA265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.13 (Compiled by Викто
 magnet:?xt=urn:btih:33A1C5C001D4B1E2670648F79B075FA45252780F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:33A1C5C001D4B1E2670648F79B075FA45252780F
 magnet:?xt=urn:btih:D16DA19CA21702A54C2AAE014364E47D50C26798
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:D16DA19CA21702A54C2AAE014364E47D50C26798
 ```bash
 magnet:?xt=urn:btih:E8E202ED8670BC3DD6C6D3C06C9B8CAEC10494AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ VA - Capriccio All’italiana: Italian Hit Parade Vol.15 (Compiled by Викто
 magnet:?xt=urn:btih:0CBF80B48E64D1753C2A18AA58EC1EF3521B0248
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ Spirit - Spirit (1968) remaster, 2017, Audio Fidelity [WavPack|Lossless|image + 
 magnet:?xt=urn:btih:0034EDCCE1FC89AC9418F5AF6D5103B066C277DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:0034EDCCE1FC89AC9418F5AF6D5103B066C277DB
 ```bash
 magnet:?xt=urn:btih:8F94FF3B6A11F94162CABA308C078E12FCDB88C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:8F94FF3B6A11F94162CABA308C078E12FCDB88C3
 ```bash
 magnet:?xt=urn:btih:2A141762D6D7B7346EB6F466AD311220C520E8B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ Charlie Haden & Antonio Forcione - Heartplay (2006) Naim Label [FLAC|Lossless|tr
 magnet:?xt=urn:btih:87F058C93981AF01F0FA9C9DA40BF9F9B8CE5E21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:87F058C93981AF01F0FA9C9DA40BF9F9B8CE5E21
 magnet:?xt=urn:btih:EA6BC5C73660FE2DD2A696124ADAAE56FD03CD63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:EA6BC5C73660FE2DD2A696124ADAAE56FD03CD63
 ```bash
 magnet:?xt=urn:btih:FE282D9D8F5F6D12D0FF1BE7DB354ED026672486
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Lindemann - F&M: Frau Und Mann (2019) Special Edition [FLAC|lossless|tracks + .c
 magnet:?xt=urn:btih:C242B2BE71C7C3B0A7BB2A32CC0AA1A080BEBC38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ Exoside QuadRemesher 1.01 for Cinema 4D [En]
 ```bash
 magnet:?xt=urn:btih:FC610F7BF2338A3382D9EABE2BFBB510786AFC57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:FC610F7BF2338A3382D9EABE2BFBB510786AFC57
 magnet:?xt=urn:btih:81C062FEB6FE3AA9923541B8B28298036CFD36CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:81C062FEB6FE3AA9923541B8B28298036CFD36CD
 magnet:?xt=urn:btih:D49785F35557C0C06C66D38752CF61DFE271C861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:D49785F35557C0C06C66D38752CF61DFE271C861
 ```bash
 magnet:?xt=urn:btih:4B196C72CB05AE90E01DBA09CE0B7C3CDBD87055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:4B196C72CB05AE90E01DBA09CE0B7C3CDBD87055
 magnet:?xt=urn:btih:DA4BF7E0F4022FE39E78B28AAC82F64CC7704299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:DA4BF7E0F4022FE39E78B28AAC82F64CC7704299
 magnet:?xt=urn:btih:DD52A920D092D1EAC2CA210CCCA17DCF37EAF48B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ Rainmeter - утилита для мониторинга ресурсов ком
 ```bash
 magnet:?xt=urn:btih:99B9533CB511E31C8F15D5BC135499BD47DB246D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ A Hard Day's Night - первый битловский фильм, снятый 
 magnet:?xt=urn:btih:6403CEF3F81EFEB129187AF821334FC945648082
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ Nvidia DriverPack - это единый пакет с драйверами GeFor
 magnet:?xt=urn:btih:9519A5BBF8437867D0EDF010A3BA1DA22F89A508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:9519A5BBF8437867D0EDF010A3BA1DA22F89A508
 ```bash
 magnet:?xt=urn:btih:ABAB74EE270FED2C1EDCF2BB906D894E60994336
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +669,8 @@ VideoHive - Holiday Particle Transitions - 23015843 [AEP]
 magnet:?xt=urn:btih:ACEB79E1E7C80ADCC6388553D8D9915B1EA2D1CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ KitBash3d - Props: Highways [DXF, C4D]
 ```bash
 magnet:?xt=urn:btih:1B58E7222F63FDE59D2DAE9B9D06F0F3A063E6BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

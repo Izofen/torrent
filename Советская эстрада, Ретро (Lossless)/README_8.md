@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:F648F70EE2309ABF99BF644EB75CADCE378BC1BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:F648F70EE2309ABF99BF644EB75CADCE378BC1BD
 ```bash
 magnet:?xt=urn:btih:693911A097C4C2D6799308DA9729663089D59943
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Песня 75, 76, 77 (3 CD) (2007) [FLAC|Lossless]<Retro|Pop>
 magnet:?xt=urn:btih:0A1C29F1156823861F97874C192A99601188B2FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA – Ваши любимые песни... (2001) [FLAC|Lossless|image + .cue]
 ```bash
 magnet:?xt=urn:btih:76B847F7105DA4B426E62183062C5E6FEA6BF57F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:76B847F7105DA4B426E62183062C5E6FEA6BF57F
 magnet:?xt=urn:btih:5676F4B9E2A5243FF51B123A5F4527CF71CDB8CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ magnet:?xt=urn:btih:5676F4B9E2A5243FF51B123A5F4527CF71CDB8CD
 magnet:?xt=urn:btih:82F8325C0268F3C67EF26C15C125F72478351E06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ VA - Дискотека у патефона. Музыка 30-40 годов (Vol.
 ```bash
 magnet:?xt=urn:btih:2BC2DB4504CAE1369A083C4F2FD49ADEB4E4AE10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ VA - Михаил Танич. Из старенького (1994) [APE|Lossless|i
 magnet:?xt=urn:btih:63C90070ADEE270B57AD1FC2FE5460FA6E6D0012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ VA - Старая пластинка: Сторона 1,2 (1988) Compilation, 2CD
 magnet:?xt=urn:btih:70095291FA4610BC3BCEE100A0592CCBC4BCAB79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +276,8 @@ magnet:?xt=urn:btih:70095291FA4610BC3BCEE100A0592CCBC4BCAB79
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +306,8 @@ magnet:?xt=urn:btih:70095291FA4610BC3BCEE100A0592CCBC4BCAB79
 magnet:?xt=urn:btih:B28E36301545A3F06FBA5E66A30172B2E5B45680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ magnet:?xt=urn:btih:B28E36301545A3F06FBA5E66A30172B2E5B45680
 ```bash
 magnet:?xt=urn:btih:5DD553DF48CCFD2C31E06BA22CF1C298B96FC3F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +364,8 @@ magnet:?xt=urn:btih:5DD553DF48CCFD2C31E06BA22CF1C298B96FC3F6
 magnet:?xt=urn:btih:DC8045CE5E124E841A9B2623159837B1703708E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +392,8 @@ magnet:?xt=urn:btih:DC8045CE5E124E841A9B2623159837B1703708E8
 ```bash
 magnet:?xt=urn:btih:38D4D715A11BB04CDCAC8FE142CC41D8AEB79738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +422,8 @@ magnet:?xt=urn:btih:38D4D715A11BB04CDCAC8FE142CC41D8AEB79738
 magnet:?xt=urn:btih:AE62488E5BC3A7B45ECD1E5FC75AE00F2B8823A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +450,8 @@ VA - Через Тернии К Звездам. Песни О Космосе (20
 ```bash
 magnet:?xt=urn:btih:D4F2F9B69DD87BE583658487A505677AF2CD65D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +480,8 @@ magnet:?xt=urn:btih:D4F2F9B69DD87BE583658487A505677AF2CD65D9
 magnet:?xt=urn:btih:97A59B0F120E789C295012301CA9605C901778CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +508,8 @@ VA - Памяти Анны Герман - "Мы долгое эхо друг-д�
 ```bash
 magnet:?xt=urn:btih:2A043C7D6AB5503DF8803C727FFF2676F684277F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +538,8 @@ magnet:?xt=urn:btih:2A043C7D6AB5503DF8803C727FFF2676F684277F
 magnet:?xt=urn:btih:A3D4F33DB4F41429DEED18E577D61FBDF9F98772
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +566,8 @@ VA - Есть глаза у цветов. Песни на стихи Расул�
 ```bash
 magnet:?xt=urn:btih:4985A95B83066B4D0BC07FC898C4AFF7EC18A60C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +596,8 @@ magnet:?xt=urn:btih:4985A95B83066B4D0BC07FC898C4AFF7EC18A60C
 magnet:?xt=urn:btih:18EA1D882881D1B8F1AC0FB4D5444D0368706BC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +624,8 @@ magnet:?xt=urn:btih:18EA1D882881D1B8F1AC0FB4D5444D0368706BC6
 ```bash
 magnet:?xt=urn:btih:F9A81E51C37CCFF1A2A6771B6E421468DA7279D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +654,8 @@ VA - Московские окна. Песни на все времена (1995)
 magnet:?xt=urn:btih:67F4460EF7751AFD16AED295464FD410236AF997
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +682,8 @@ magnet:?xt=urn:btih:67F4460EF7751AFD16AED295464FD410236AF997
 ```bash
 magnet:?xt=urn:btih:E1D287E01A982A420E4227A3B9FC2E9587B6D000
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +712,8 @@ VA - Ретро Шлягер "Зимний" (2006) [APE|Lossless|image + .cue] <
 magnet:?xt=urn:btih:7F26DA7E10B8B94AA56527642A0695FF129F4241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +740,8 @@ VA - Сборник советских песен Мой Мотив (2007) [FLAC
 ```bash
 magnet:?xt=urn:btih:4FB701A92FFB8E5CD9FAE6BA5A92211A07DC2AC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

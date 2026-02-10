@@ -22,6 +22,8 @@ Michael Rother - 9 Studio Albums (1977-2004) CD [MP3|320 Kbps] <Electronic, Krau
 magnet:?xt=urn:btih:721E152D492C75C694645437B7682AF8E3904C11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:721E152D492C75C694645437B7682AF8E3904C11
 ```bash
 magnet:?xt=urn:btih:6A662281C3481C73976547401E1D460AD3ADD0BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:6A662281C3481C73976547401E1D460AD3ADD0BD
 magnet:?xt=urn:btih:F28EF6C89F63602470C1D254AABCC0F32E7EF8B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:F28EF6C89F63602470C1D254AABCC0F32E7EF8B6
 ```bash
 magnet:?xt=urn:btih:1452344C4B16BA7F0BA8AD07B8CAFD112EA1F4DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Asia - Classic Asia - The Universal Masters Collection (2001) [FLAC|tracks+.cue]
 magnet:?xt=urn:btih:595A4D523325EBA0DB9F0F0F3EC5BF40E8CEEC47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Ram - Rod (2017) Limited Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:B8545557BED84D059E8076F17B39950723D37E42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Rush - R40 Live (2015) 3CD [FLAC|image + .cue]<Progressive Rock>
 magnet:?xt=urn:btih:26407144E032D97686E2D60F531276C19C7FD72A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Jet - Get Born (2003) [MP3|320 кб/с]<Hard Rock>
 ```bash
 magnet:?xt=urn:btih:767C95A9D1C7F9E7E9A549E7F0E10D69B80C50F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Bill Nelson - Northern Dream (1971) Reissue, Remastered, 2011, Esoteric [FLAC|tr
 magnet:?xt=urn:btih:207299A0E9B637D3A846F18D09163E241C1447CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Juicy Lucy - Do That And You'll Lose It (2006) [MP3|320 кб/с]<Rock, Hard Rock
 ```bash
 magnet:?xt=urn:btih:F6A120EF63A18855E31D9911A1C316C05E29B91A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +316,8 @@ Saturnus - Saturn In Ascension (2012) [MP3|320 кб/с]<Melodic Death, Doom Meta
 ```bash
 magnet:?xt=urn:btih:F573538033CA995B7C9AAB193ABE805D54F31361
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +352,8 @@ Uni_Form - 1984 (2012) [MP3|192 kbps] <Post-Punk / Indie Rock / Alternative>
 magnet:?xt=urn:btih:D883B61162889B42FA7F7A1717E0AA9E461787F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +386,8 @@ Mago De Oz - Hechizos, Pocimas Y Brujeria (2012) [MP3|320 кб/с]<Folk Metal>
 ```bash
 magnet:?xt=urn:btih:3CFA0EFD19133745E7E94A337399D290B8D6EF52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +422,8 @@ magnet:?xt=urn:btih:3CFA0EFD19133745E7E94A337399D290B8D6EF52
 magnet:?xt=urn:btih:6FCF68FF82DC52E2B0EDC7B4072E89EAD9DE7F5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +450,8 @@ Creedence Clearwater Revived - Creedence Clearwater Revived (2020) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:3ABD12EC96D7379E50AA4886F5C7ED35AEA07DA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +480,8 @@ Black Stone Cherry - The Human Condition (2020) [MP3|320 Kbps] <Hard Rock, South
 magnet:?xt=urn:btih:877324532B6E544B27269856FB4A759D27141E9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +508,8 @@ AC/DC - Rock Or Bust (2014) [FLAC|Lossless]<Hard Rock, Aussie Rock, Heavy Metal,
 ```bash
 magnet:?xt=urn:btih:16C21218A7E392838A7640264A0B7ECD51BB62A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +538,8 @@ Smokie - Early Successes (2016) [MP3|320 Kbps] <Rock, Soft Rock>
 magnet:?xt=urn:btih:EEA3457AD873CCA7D0607707CBB94107E8FEA6EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +566,8 @@ magnet:?xt=urn:btih:EEA3457AD873CCA7D0607707CBB94107E8FEA6EE
 ```bash
 magnet:?xt=urn:btih:60FEA730975A654314B6BEE658E522D4F3321551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +596,8 @@ Shortino - Make A Wish (2020) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:234BF12502F7C6ACCCB3A678154D7A468F399CEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +624,8 @@ S.O.T.O. - Origami (2019) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Metal
 ```bash
 magnet:?xt=urn:btih:9A18D9FEE837EF20CB13647925CB81EF063EEE77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +654,8 @@ Black Sabbath - Best Ballads (1996) [MP3|320 Kbps] <Hard Rock>
 magnet:?xt=urn:btih:90F67873EC5F55FEBC0C80E7C3939B8D82F3A22A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +682,8 @@ USM (United States Of Mind) - Silver Step Child (2000) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:843709A13914D5BEE3B296E672C0EE2E54C9AF42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -666,6 +712,8 @@ TCP (Temporal Chaos Project) - Temporal Chaos (2016) [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:3384EB236BDE97E5421C72388EC25F0431B2EFED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +738,8 @@ Mors Principium Est - 5 albums (2003-2014) [MP3|320kbps] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:7A538017FE4E533E7AD9FEEF5ACFB4332B17EDDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -717,6 +767,8 @@ Tony Carey - For You: Best Of 1988 - 1990 (1993)  [FLAC|Lossless|image + .cue]<C
 ```bash
 magnet:?xt=urn:btih:858FC7DF9AA9630D034DA6687BDF126A7374522A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

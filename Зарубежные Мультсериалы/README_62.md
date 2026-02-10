@@ -1,3 +1,55 @@
+###  Публикация: 1342430   (946302) от 25.02.2020
+
+Харли Квинн / Harley Quinn (2019) UHD WEB-DL [H.265/2160p] [4K, SDR, 8-bit] (сезон 1, серии 1-13 из 13) NewStation
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_946302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Харли Квинн разорвала отношения с Джокером и теперь пытается самостоятельно стать королевой преступного мира Готэма.Производство: США, DC Entertainment, Ehsugadee, Warner Bros. Animation, Yes, Norman ProductionsЖанр: Мультфильм для взрослых, фантастика, фэнтези, боевик, комедия, криминал, детектив, приключенияРежиссер: Сесилия Аранович, Мэтт Гарофало, Фрэнк МариноПеревод: Многоголосый любительский (NewStation) присутствует ненормативная лексика.Субтитры: русские (сообщество UGN SUBZ Translators), английскиеПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49C64C174DF55FC642C7011A4733E08495F84DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342432   (947557) от 24.02.2020
+
+Харли Квинн / Harley Quinn (2019) WEB-DL [H.264/720p-LQ] (сезон 1, серии 1-13 из 13) NewStation
+
+>>След.
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_947557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Харли Квинн разорвала отношения с Джокером и теперь пытается самостоятельно стать королевой преступного мира Готэма.Производство: США, DC Entertainment, Ehsugadee, Warner Bros. Animation, Yes, Norman ProductionsЖанр: Мультфильм для взрослых, фантастика, фэнтези, боевик, комедия, криминал, детектив, приключенияРежиссер: Сесилия Аранович, Мэтт Гарофало, Фрэнк МариноПеревод: Многоголосый любительский (NewStation) присутствует ненормативная лексика.Субтитры: русские (сообщество UGN SUBZ Translators), английскиеПродолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0727A8E714C7E2D18C63802A38DCAA357A76B44A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362267   (949344) от 23.02.2020
 
 Шесть рук / Seis Manos (2019) WEBRip [H.264/1080p-LQ] (сезон 1, серии 1-8 из 8) NewStation
@@ -18,6 +70,8 @@
 ```bash
 magnet:?xt=urn:btih:2F2F5541ACB20F1FDDC47D7FE65BAA0E5E83547E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +97,8 @@ magnet:?xt=urn:btih:2F2F5541ACB20F1FDDC47D7FE65BAA0E5E83547E
 magnet:?xt=urn:btih:43C9B0795C2BE33407CD8B6B5324678BA6ADF780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +122,8 @@ magnet:?xt=urn:btih:43C9B0795C2BE33407CD8B6B5324678BA6ADF780
 ```bash
 magnet:?xt=urn:btih:93E7E34EC775B56E92F9EE0CC8B80AD80BEF4BF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +149,8 @@ magnet:?xt=urn:btih:93E7E34EC775B56E92F9EE0CC8B80AD80BEF4BF0
 magnet:?xt=urn:btih:E9EDA3C999F6AA91F73B3BBCF758EE822B9DBF3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +175,8 @@ magnet:?xt=urn:btih:E9EDA3C999F6AA91F73B3BBCF758EE822B9DBF3B
 magnet:?xt=urn:btih:FFF8A283883F1131BA786147344A81FC944FA750
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +200,8 @@ magnet:?xt=urn:btih:FFF8A283883F1131BA786147344A81FC944FA750
 ```bash
 magnet:?xt=urn:btih:765D875531B341A3A86CFB435A194A076C4C1CAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +230,8 @@ magnet:?xt=urn:btih:765D875531B341A3A86CFB435A194A076C4C1CAE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +255,8 @@ magnet:?xt=urn:btih:765D875531B341A3A86CFB435A194A076C4C1CAE
 ```bash
 magnet:?xt=urn:btih:BB0559CF907D0B0AF95BD53E0DE7C4221CAB799B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +282,8 @@ magnet:?xt=urn:btih:BB0559CF907D0B0AF95BD53E0DE7C4221CAB799B
 magnet:?xt=urn:btih:351B1E8929ECEB20944ED339E5E1842F367FFB24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +307,8 @@ magnet:?xt=urn:btih:351B1E8929ECEB20944ED339E5E1842F367FFB24
 ```bash
 magnet:?xt=urn:btih:F750505A42BC9974979447C794DF1038D2FD5F02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +334,8 @@ magnet:?xt=urn:btih:F750505A42BC9974979447C794DF1038D2FD5F02
 magnet:?xt=urn:btih:81C6AA171AA27E530D7CFBE8B1D7AFE196DDF3D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +359,8 @@ magnet:?xt=urn:btih:81C6AA171AA27E530D7CFBE8B1D7AFE196DDF3D8
 ```bash
 magnet:?xt=urn:btih:DA6A2FAEF5D81B82D9822FBFCD17300EC22AAAC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +386,8 @@ magnet:?xt=urn:btih:DA6A2FAEF5D81B82D9822FBFCD17300EC22AAAC8
 magnet:?xt=urn:btih:3B82503DFF424E80A3CA32B9DDD33EADD3B68EC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +411,8 @@ magnet:?xt=urn:btih:3B82503DFF424E80A3CA32B9DDD33EADD3B68EC2
 ```bash
 magnet:?xt=urn:btih:623EDD33755BA62D65B7BEEAD3140D9CC76048A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +438,8 @@ magnet:?xt=urn:btih:623EDD33755BA62D65B7BEEAD3140D9CC76048A4
 magnet:?xt=urn:btih:4C1862DAC117A71E8D5F3D45EEF56D294EBB4B64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +463,8 @@ magnet:?xt=urn:btih:4C1862DAC117A71E8D5F3D45EEF56D294EBB4B64
 ```bash
 magnet:?xt=urn:btih:077E4C50F729807AF462FCE66F8599222F255AA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +490,8 @@ magnet:?xt=urn:btih:077E4C50F729807AF462FCE66F8599222F255AA7
 magnet:?xt=urn:btih:5E56E43CEA8A16F8F5576F097354777024FD7854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +515,8 @@ magnet:?xt=urn:btih:5E56E43CEA8A16F8F5576F097354777024FD7854
 ```bash
 magnet:?xt=urn:btih:CD18FA884070F9DB7E862066F5B04DC5BA12A4FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +542,8 @@ magnet:?xt=urn:btih:CD18FA884070F9DB7E862066F5B04DC5BA12A4FB
 magnet:?xt=urn:btih:BCB9976B18C0035E3F5A10773A8908DB229263CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +567,8 @@ magnet:?xt=urn:btih:BCB9976B18C0035E3F5A10773A8908DB229263CA
 ```bash
 magnet:?xt=urn:btih:4804872132968C8A6D83EFFA8CDB9CC8C629A46B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +594,8 @@ magnet:?xt=urn:btih:4804872132968C8A6D83EFFA8CDB9CC8C629A46B
 magnet:?xt=urn:btih:7CFB755C1102F9E010963B5379596AB72B9CF951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +619,8 @@ magnet:?xt=urn:btih:7CFB755C1102F9E010963B5379596AB72B9CF951
 ```bash
 magnet:?xt=urn:btih:094C0CB1FE1E166063B89BBE26DA11BB69C9B184
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +646,8 @@ magnet:?xt=urn:btih:094C0CB1FE1E166063B89BBE26DA11BB69C9B184
 magnet:?xt=urn:btih:2F4ACB1700759DEA6B194B0FC549B7FD2589FEB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,53 +672,7 @@ magnet:?xt=urn:btih:2F4ACB1700759DEA6B194B0FC549B7FD2589FEB7
 magnet:?xt=urn:btih:EE750EEC9468BD1E20EAA6DFAACE1A6CC5563B8C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 620704   (963689) от 19.02.2013
-
-Мой Маленький Пони: Дружба Это Чудо / My Little Pony: Friendship Is Magic (2010) WEB-DLRip [H.264/1080p-HQ] (сезон 1, серии 1-26 из 26) (Карусель)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963689.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная героиня — единорог Сумеречная Искорка, ученица Принцессы Селестии. Искорка всё время сидела за книгами и не желала ни с кем общаться. Принцесса Селестия понимая что Искорка уделяет учёбе слишком много времени, посылает её в Понивилль и даёт задание найти друзей. В Понивилле Искорка знакомится с задиристой Радугой, элегантной Рарити, трудолюбивой Эплджек, (   Читать дальше...   )Жанр: Комедия/Семейный/ФентезиРежиссер: Джэйсон Тиссен / Jayson Thiessen, Джеймс Вуттон / James WoottonПерсонажи: Сумеречная Искорка (Твайлайт Спаркл), Флатершай, Эплджек, Рарити, Радуга (Рейнбоу Дэш), Пинки ПайПродолжительность: 26 серий по ~00:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5582609B394CA3BA5BB58A7FA12812254F111BF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506334   (964852) от 18.02.2013
-
-ТРОН: Восстание (Сезон 1, серии 1-19 из 19) / TRON: Uprising (2012) WEB-DLRip
-
->>След.
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_964852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие будет разворачиваться между событиями первого и второго фильмов и расскажет о мрачном этапе в развитии мира Трона: этапе, когда Клу поднял бунт против Пользователей.Жанр: Компьютерная анимация, ПриключенияРежиссер: Чарли БинПерсонажи: Элайджа Вуд, Лэнс Хенриксен, Брюс Бокслейтнер, Эммануэль Шрики, Мэнди Мур, Натан Кордри, Реджинальд ВелДжонсон, Пол Рубенс, Тришиа Хелфер, Чарли БинПеревод: Любительский двухголосый (loster01 & Emeri)Продолжительность: Каждая серия 00:32:10
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

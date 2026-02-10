@@ -19,6 +19,8 @@ Advanced Mobile Care — приложение класса «все в одно�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Transparent clock & weather / Прозрачные часы и погода 6.47
 ```bash
 magnet:?xt=urn:btih:1F98421695561EA280DF57F1BFF551A6FEC6F205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Spirit Dark, Spirit Light, Spirit REDЯзык интерфейса: Ru/En
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Henry S. Warren, Jr. | Алгоритмические трюки для прог
 ```bash
 magnet:?xt=urn:btih:FA7906B6131126C85561D5603FCB0EED3410AA40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:FA7906B6131126C85561D5603FCB0EED3410AA40
 magnet:?xt=urn:btih:E8806CD0AC74472289565FBF312D214A619AC320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Kane & Lynch: Dead Men [En] (L) 2007 | HATRED
 ```bash
 magnet:?xt=urn:btih:7E408DE9AC82504096704940BB84E21215EBF8B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:7E408DE9AC82504096704940BB84E21215EBF8B5
 magnet:?xt=urn:btih:F13D4A3952420011965495CDBB1438D00C3669A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ C-Organizer Professional - красивый и мощный персональн
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ C-Organizer Professional - красивый и мощный персональн
 magnet:?xt=urn:btih:7C3251BC8D22C9D54A6DB37F81A1069D7CE38C29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ AIDA64 (бывший Everest) - утилита является мощным с�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ AllDup - бесплатный инструмент для поиска и уда
 magnet:?xt=urn:btih:52AA3F602A7189839665826CDECAF01B285A5F07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:52AA3F602A7189839665826CDECAF01B285A5F07
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Termius — мощный, простой в использовании и кра
 magnet:?xt=urn:btih:C8E32785DF85D6706E1BCB0427DDBF43885A38AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ Guitar Rock Tour 2 HD [Игра] (Symbian^3)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ PureBasic это кроссплатформенная среда разрабо�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ PureBasic это кроссплатформенная среда разрабо�
 magnet:?xt=urn:btih:784ACCF0106C45E4B487F60285BCD9A0CD7ADB8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ Lucky Patcher (Лаки патчер) – отличное решение есл
 magnet:?xt=urn:btih:6CCF471EACF836A5E484B48ABD4BAD66614267A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:6CCF471EACF836A5E484B48ABD4BAD66614267A3
 ```bash
 magnet:?xt=urn:btih:088CA6DB92B5CA38B842EA104D8712EF5AF6DF90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ MySims Racing [Wii] [NTSC] [Eng] (2009)
 magnet:?xt=urn:btih:B04976A23BEA807D883008A480F9A24D29BE0CA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ Aiseesoft Total Media Converter Platinum - мощная, универсальн�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ Calendar 366 II 2.14.1 [Multi]
 magnet:?xt=urn:btih:FABC31FF770AF64562C1D522EE724C515C853A4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:FABC31FF770AF64562C1D522EE724C515C853A4C
 magnet:?xt=urn:btih:4DD22493CD509161FC3404EE8FCA1CD70853CFFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:C9581B7DEF0E4AAC334AD6BE5412E290A8B95DAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ Comedy Woman. Новый формат. Выпуск №97 (2012.12.22) DVB
 magnet:?xt=urn:btih:4C2DA7771C8249F33539A1EB99EBBC02EDCE688D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ Live Wallpaper & Themes 4K позволяют использовать живы�
 magnet:?xt=urn:btih:8B76FEDF2936D6B663436199C740E88C5F6D2C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:8B76FEDF2936D6B663436199C740E88C5F6D2C5F
 ```bash
 magnet:?xt=urn:btih:10DD3E83892AAEE2F59318AE5CC42AD1BF0811E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

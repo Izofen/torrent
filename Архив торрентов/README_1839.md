@@ -20,6 +20,8 @@ VMware Workstation Player (ранее VMware Player) - виртуальная с
 magnet:?xt=urn:btih:088BBA5CEE88D5877FF33EF0CF22DD30DC0769DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Far manager — бесплатный файловый менеджер с под
 ```bash
 magnet:?xt=urn:btih:E55834D58EDB10824FC2F757BA492A599C84432C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:6FA962A517BBB5805FD1413C4C1274202A904539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Adobe Substance 3D Designer 11.3.3 Build 5429 [Multi]
 magnet:?xt=urn:btih:969D4B69339005D7D9AD66F2404187C8C8853594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:4D195FC52A2133C59E863C18D3225E66DE427F70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ PortableApps.com Platform - это функциональная платформ
 magnet:?xt=urn:btih:C6A7FE2BCE36231215034E7F0FE64A8800F4602A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Telegram — это облачный мессенджер для мобильн�
 ```bash
 magnet:?xt=urn:btih:54E91BDDA411FADC741544A4A5BF758C173581BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Reg Organizer® - это многофункциональная программ
 magnet:?xt=urn:btih:591F4DF0C88F378D644A150160F3C4F807725A84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ AnyDesk 7.0.7 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:65CB68C605DD006E37BCBC4CEC6F98174A2D056D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ GOM Player Plus - мультимедийный плеер со множеств�
 ```bash
 magnet:?xt=urn:btih:41B2BE50FA847C8DD77F0EC3860928BA389745E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ PhotoLine - простая в обращении программа, предс�
 magnet:?xt=urn:btih:5E39FFE33E09873F2F34507AC6460B37DDCF4E44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Movavi Screen Recorder - программа для захвата видео с 
 magnet:?xt=urn:btih:FB93F70D4D16BEADFDB33A45D5F94D10721425F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:5476F931786E26C13FFC651B561F8EBC9EE65F42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:5476F931786E26C13FFC651B561F8EBC9EE65F42
 magnet:?xt=urn:btih:AE9C75ABDDD32819CF00744DF754800D09ECBEB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ ALLPlayer, наверное, самая популярная программа 
 ```bash
 magnet:?xt=urn:btih:B4303C7A0E2D2E2B6716EDA56067F2D46B6866E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ RizomUV – одна, если не самая лучшая программ д�
 magnet:?xt=urn:btih:979E0E7FE2CA849AD8306D69D64825BF2174849D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ GreenNet VPN - это бесплатный и неограниченный пр�
 ```bash
 magnet:?xt=urn:btih:78FFA17859645E9DCF2BD78BCC432E8047BC7CE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Textra SMS v4.61 Pro [Ru/Multi]
 magnet:?xt=urn:btih:B2F5C809FD42453A35DF279AA4572ABD860E97F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Reg Organizer® - это многофункциональная программ
 magnet:?xt=urn:btih:F30558C3CF2306F3317A0613F7657D0D19AF7C64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ MediaHuman YouTube Downloader 3.9.9.81 (1503) RePack (& Portable) by TryRooM [Mu
 ```bash
 magnet:?xt=urn:btih:7BF2CB04786AFD4D8B8A9EF595C1F4CD094FCAFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ BELOFF [dp] 2022.07.3
 magnet:?xt=urn:btih:16F21F6D7AAA5AA10053E5C96BB7885D52ED0EE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Exif Pilot - EXIF редактор используется для просмо�
 ```bash
 magnet:?xt=urn:btih:46D7152D092C5F01FCA0B8E6A3C2582FC0382EB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Reg Organizer - это многофункциональная программа
 magnet:?xt=urn:btih:B61A5618FA63121E6ED48FA7DC2E356FDAE91B08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Hard Disk Sentinel Pro — отличная программа для монит
 ```bash
 magnet:?xt=urn:btih:1985F9EFF44FCAA1110A33A227F4382FDEF11291
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Allavsoft Video Downloader Converter - профессиональный инст
 magnet:?xt=urn:btih:7734B2782A260C21D198110F7A0BD06EC38D5845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ HitPaw Video Editor - это простое в освоении программ
 ```bash
 magnet:?xt=urn:btih:7C42ED7E7C6E37A7998811C52B63B1A2D0E0717F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

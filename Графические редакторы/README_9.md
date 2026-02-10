@@ -19,6 +19,8 @@ ACDSee Photo Studio Ultimate сочетает в себе поддержку с�
 magnet:?xt=urn:btih:57AE165AB44B0613738947F11404D3895E408ADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ reaConverter Pro - мощный инструмент для тех, кто им�
 magnet:?xt=urn:btih:8423587582EB91BBE48C853FA69EFBAD356B0D5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Corel Painter X3 13.0.1.920 [En]
 ```bash
 magnet:?xt=urn:btih:4F086307B76E79F5DFAA0BF971DBDF57A493C413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Corel Painter 12 12.2.1.1212 [En]
 magnet:?xt=urn:btih:5D6CE541273B080EF264ECFEBB87C48094251686
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Corel Painter по праву считается лучшей программо
 magnet:?xt=urn:btih:663F78430B30A668AA585B5C046CBA2C1DF3A3A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Corel Painter X - это самое мощное в мире программн�
 ```bash
 magnet:?xt=urn:btih:1DED848A5CF7A40C2959E8E7EBCBF8E325AE265D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Corel Painter IX.5 9.5 [En]
 magnet:?xt=urn:btih:E8F2BF7C63E83416275229152323CB96280EDE99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Painter всегда выделялся на фоне других програ�
 magnet:?xt=urn:btih:FB951AA016BC71F4A062A50C133AE62A5B8308CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ MetaCreations (Corel) Painter 6 6.1.0 build 69 [En]
 ```bash
 magnet:?xt=urn:btih:060682AB0631548D835F06419A5991E66CD9B976
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ MetaCreations (Corel) Painter 5.5 5.5.0.12 [En]
 magnet:?xt=urn:btih:667825861A4CF76EB329645103ABAF567587FB71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ CoolUtils Total Image Converter преобразует изображения в
 ```bash
 magnet:?xt=urn:btih:79C9D2A342438C7700BA4FFF96A03A11624B2EAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ RapidRAW — это современная высокопроизводител�
 magnet:?xt=urn:btih:808B3FB3C6C11A66B256B86F011FE61CFCF14CA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ reaConverter Pro - мощный инструмент для тех, кто им�
 magnet:?xt=urn:btih:2F60486FA8BDF2F350D2A9F32DBA3269DF44AFE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ WidsMob Portrait интеллектуально определяет и укра
 ```bash
 magnet:?xt=urn:btih:DA0175F4009BC7300C15E53A10276C4A34D9CE46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ Nature так же, как и Textures работают с 16-ти битным�
 magnet:?xt=urn:btih:CFB6BBF072397C24B34205FCB19B58B35C658652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ ArtIcons – удобная утилита, предназначенная дл�
 ```bash
 magnet:?xt=urn:btih:F89008FB912F0B6B1F2D9338E6AB80B96DAE52A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ Retouch Pilot - это инструмент для ретуши фото, кот
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ RasterStitch - утилита для соединения (сшивания) н�
 ```bash
 magnet:?xt=urn:btih:C8AEDCC6402EBFE86EB19B08FA3D7CE2DBD00713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ Luminar Neo – это отдельный редактор, который вк�
 magnet:?xt=urn:btih:B279297A7A959F7C350F8E83722C1C4F820153EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:B279297A7A959F7C350F8E83722C1C4F820153EA
 magnet:?xt=urn:btih:86559BB37478688CE6C272CE1BCFC9E6AE3B42DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:AFF3C6F6ADB4F9ACF6C17C2C35C095E30816DECF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ Coolmuster GIF Animator — удобная программа для созда�
 magnet:?xt=urn:btih:34C017240F466245613D3745A80DFAB37CB19743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ Monosnap 2.3.19 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FBF6715DEB4582914348BAC43EB0B1C2CAA37515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ ASCOMP Image Former - поможет мгновенно довести свои 
 magnet:?xt=urn:btih:8FFE1C143C7200DE6B0F2BF01E3996FB94F82517
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ MediBang Paint Pro 28.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:A33FED11BA561849FA60171B0B7AF6C631A5CA96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ Movavi Photo Editor – это простой фоторедактор для к
 ```bash
 magnet:?xt=urn:btih:FFA34135BD8648DB40384750A937FDDFC480DBB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

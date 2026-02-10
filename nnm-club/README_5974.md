@@ -21,6 +21,8 @@ Hearts of Iron IV v.1.12.14.50e7 (2018) [Multi/Ru] [macOS Native game]
 magnet:?xt=urn:btih:7D8C267B1C21C270079E92B2A8B879B78F77DD97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:917C3E6562E39B2DD1314B733414371D0ADB7C4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:917C3E6562E39B2DD1314B733414371D0ADB7C4F
 magnet:?xt=urn:btih:F62DDF6860FBE2A9B95200A2598EB7A1554177E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:F62DDF6860FBE2A9B95200A2598EB7A1554177E7
 magnet:?xt=urn:btih:328A52EF28818E2F7122BB3A0DE9CC44C4D287AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:328A52EF28818E2F7122BB3A0DE9CC44C4D287AB
 ```bash
 magnet:?xt=urn:btih:28063E7627F8342E692BA590AF6D5FFB65D9C9CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ VA - A State Of Trance - Future Favorite - Best Of 2020 - (Extended Versions) (2
 magnet:?xt=urn:btih:03AC5183C2286860BC519933E1EE1A84296381E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:03AC5183C2286860BC519933E1EE1A84296381E3
 ```bash
 magnet:?xt=urn:btih:E5728E616CFC2A0256A926CC491F3539C36BE20A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:E5728E616CFC2A0256A926CC491F3539C36BE20A
 magnet:?xt=urn:btih:B1A7AA1DA4A7538378564593FF96BDF9B255D1EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:B1A7AA1DA4A7538378564593FF96BDF9B255D1EC
 ```bash
 magnet:?xt=urn:btih:AB97F8DDE35DC17B0BA1AB6EF59269CA370811C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ VA - Pop 2020 [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:9E1696D132054A353A22BCCE9D1CB0D342CAC3D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:9E1696D132054A353A22BCCE9D1CB0D342CAC3D0
 ```bash
 magnet:?xt=urn:btih:C42DDB360F6D1FEFB7E5A019F20DF94DA3DC6F58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:C42DDB360F6D1FEFB7E5A019F20DF94DA3DC6F58
 magnet:?xt=urn:btih:A3FDFC5218FC10F7A9D6DFE41B856DEB43C9C32E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:A3FDFC5218FC10F7A9D6DFE41B856DEB43C9C32E
 magnet:?xt=urn:btih:4D6D5009AD451E1FD587C8A50188FD45E78642DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:4D6D5009AD451E1FD587C8A50188FD45E78642DC
 ```bash
 magnet:?xt=urn:btih:DFCF317FE6520CE39EB1A8A90BD0484430AB6031
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:DFCF317FE6520CE39EB1A8A90BD0484430AB6031
 magnet:?xt=urn:btih:78E480C3ED1133AB8679C4D518B69C2274740500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:78E480C3ED1133AB8679C4D518B69C2274740500
 ```bash
 magnet:?xt=urn:btih:E6C0F32099FEC4FB436996A0DEBD5B23163C6625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:E6C0F32099FEC4FB436996A0DEBD5B23163C6625
 magnet:?xt=urn:btih:95D4A02AA936E3C2DEB4C8D41DD8F3A76ADE8EBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:95D4A02AA936E3C2DEB4C8D41DD8F3A76ADE8EBB
 ```bash
 magnet:?xt=urn:btih:D52C7E0EC05D889831AC85041B2E4785182BD58E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:D52C7E0EC05D889831AC85041B2E4785182BD58E
 magnet:?xt=urn:btih:0E929385B4D1D706F8D084A12E8D1F6009EE9977
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ VA - Айсберг-Каникулы с Андреем Губиным  (2001) [F
 magnet:?xt=urn:btih:F5128581BE0904DD93FB139F3192ECB423F59E2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:F5128581BE0904DD93FB139F3192ECB423F59E2B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ Lelie Navigation (2021) [Multi] (v2/dlc) License GOG [18+]
 magnet:?xt=urn:btih:F39433D5B071F01039A7C87CA97A87F4EF25A350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:F39433D5B071F01039A7C87CA97A87F4EF25A350
 ```bash
 magnet:?xt=urn:btih:25932870C5790D1015AC6C40DA7BE1672BBFE771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:25932870C5790D1015AC6C40DA7BE1672BBFE771
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:25932870C5790D1015AC6C40DA7BE1672BBFE771
 magnet:?xt=urn:btih:8277FE624C4D78B06A0609C171295F53167A012B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ R-Drive Image - отличный инструмент для создания ф
 ```bash
 magnet:?xt=urn:btih:795B4F61E5F3F56FA1A351FA292580784CFCCCEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

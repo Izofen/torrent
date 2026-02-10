@@ -1,3 +1,32 @@
+###  Публикация: 1068868   (377713) от 02.11.2016
+
+Сплин - Ключ к шифру (2016) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_377713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Медный грош
+02. Пирамиды
+03. Нам, мудрецам
+04. Храм(   Читать дальше...   )Жанр: RockПродолжительность: 01:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDCA55617305BB085D1187FC990501379DBA6EA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069017   (377719) от 02.11.2016
 
 АлисА - Эксцесс (2016) [FLAC|Lossless|image + .cue] <Rock>
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:C2D955BCFC8D5D7360D13BFA5C470F3EE6EAA916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +86,8 @@ magnet:?xt=urn:btih:C2D955BCFC8D5D7360D13BFA5C470F3EE6EAA916
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -86,6 +119,8 @@ Atoll Nerat - Путешествия в отдельные реальности 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -112,6 +147,8 @@ Atoll Nerat - Путешествия в отдельные реальности 
 ```bash
 magnet:?xt=urn:btih:EA59B6B010461F707E252C82076D4583B97B98FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +177,8 @@ magnet:?xt=urn:btih:EA59B6B010461F707E252C82076D4583B97B98FB
 magnet:?xt=urn:btih:B52D8E5AD02CB068AF3BFF972E6C5F03B70C7628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +205,8 @@ Mysterious Narrators - EPISODE I (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic
 ```bash
 magnet:?xt=urn:btih:A8590D2267212D55352BBCE5E4849A3050C565CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +235,8 @@ Light? - Преждевременно и Навсегда (2022) [FLAC|Lossless|
 magnet:?xt=urn:btih:57D3EA8C12CADCE10586B6A9DE5836AC7747F73B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +263,8 @@ Ensemble of Christ the Saviour and Crude Mother Earth - Third World War: Police 
 ```bash
 magnet:?xt=urn:btih:6545F7B31A6D8A9057480267EA9BC9E2CB0AF073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +293,8 @@ Wine From Tears - I'm Fine (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, 
 magnet:?xt=urn:btih:CE3D976B1A2830480BFA12911A99DE561C804F68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +321,8 @@ Existenter - 3 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Met
 ```bash
 magnet:?xt=urn:btih:298229617E0E3065C6CF8C999D694BE850F998F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +357,8 @@ magnet:?xt=urn:btih:298229617E0E3065C6CF8C999D694BE850F998F1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +392,8 @@ magnet:?xt=urn:btih:298229617E0E3065C6CF8C999D694BE850F998F1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +417,8 @@ magnet:?xt=urn:btih:298229617E0E3065C6CF8C999D694BE850F998F1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +447,8 @@ magnet:?xt=urn:btih:298229617E0E3065C6CF8C999D694BE850F998F1
 magnet:?xt=urn:btih:76234BF5D23757EC6734E9BB0BF55FC5A23070E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +472,8 @@ magnet:?xt=urn:btih:76234BF5D23757EC6734E9BB0BF55FC5A23070E2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +502,8 @@ magnet:?xt=urn:btih:76234BF5D23757EC6734E9BB0BF55FC5A23070E2
 magnet:?xt=urn:btih:E7AA38833F8164BEBBF9034F65B93659DF7B2823
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +530,8 @@ magnet:?xt=urn:btih:E7AA38833F8164BEBBF9034F65B93659DF7B2823
 ```bash
 magnet:?xt=urn:btih:8FE087C8B7B5E5B015E80FA17B1E0AFA4550B982
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +560,8 @@ magnet:?xt=urn:btih:8FE087C8B7B5E5B015E80FA17B1E0AFA4550B982
 magnet:?xt=urn:btih:F1685DF8A4E5FDEBE5C6DD858C31DF58420EBD9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +589,8 @@ magnet:?xt=urn:btih:F1685DF8A4E5FDEBE5C6DD858C31DF58420EBD9C
 magnet:?xt=urn:btih:9188C9A20CE6B60B13D3159D39BF02C82D1A75A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +617,8 @@ magnet:?xt=urn:btih:9188C9A20CE6B60B13D3159D39BF02C82D1A75A0
 ```bash
 magnet:?xt=urn:btih:3F7415DE04312BDCF686F6A73D17B78708F11D2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +649,8 @@ magnet:?xt=urn:btih:3F7415DE04312BDCF686F6A73D17B78708F11D2A
 magnet:?xt=urn:btih:2EC7F4BD5080CC62E1BB0B78A26DE8168F0D6C09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +677,8 @@ magnet:?xt=urn:btih:2EC7F4BD5080CC62E1BB0B78A26DE8168F0D6C09
 ```bash
 magnet:?xt=urn:btih:F1DFC993C3D23772516C06911D5A188FBCA78767
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +707,8 @@ magnet:?xt=urn:btih:F1DFC993C3D23772516C06911D5A188FBCA78767
 magnet:?xt=urn:btih:5A8F90C24DFBFDD793E9C8A2FEB82E8154653786
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +732,8 @@ magnet:?xt=urn:btih:5A8F90C24DFBFDD793E9C8A2FEB82E8154653786
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -685,31 +762,7 @@ Amatory - 6 (2015) [FLAC|Lossless|tracks] <Alternative Metal, Nu-Metal>
 magnet:?xt=urn:btih:F0C5F37639DB4C32592617299B961E448905AB2D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171358   (395694) от 05.10.2017
-
-Amatory - Огонь (2016) EP [FLAC|Lossless|tracks] <Alternative Metal, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_395694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Монстр (feat. ATL) (3:15)
-02. Огонь (3:33)
-03. Молчание (3:40)Жанр: Alternative Metal, Nu-MetalПродолжительность: 00:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBD5203BF1AA2C1A8473D857C7AFAD74A993AE8F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

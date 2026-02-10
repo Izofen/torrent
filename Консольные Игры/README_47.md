@@ -21,6 +21,8 @@ Dusk Diver (2019) [Switch] [USA] 9.2.0 [NSP] [Unofficial / 1.0.5] [Ru/En]
 magnet:?xt=urn:btih:BADBEE97C78D2D2FDC7F37C5C7D83D0DE280B020
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ DreamWorks Super Star Kartz (2011) [PS3] [USA] 4.11 / Образ для Cobra OD
 ```bash
 magnet:?xt=urn:btih:B0BF874A48C890D808EC96E87EA037C247653E18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Forza Motorsport 3 - одна из самых красивых и реалист
 magnet:?xt=urn:btih:03F3CCDAB51F9470F71D6C5DA55A2D9F04FB4AAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ LEGO Jurassic World – новая часть нашумевшей франши�
 magnet:?xt=urn:btih:DE0615B72E1ADD24F223DB52A6D16D3A0BEB89DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ The Walking Dead: Michonne. Episodes 1-3 (2016) [PS3] [EUR] 4.21 [Repack / 1.05]
 ```bash
 magnet:?xt=urn:btih:9CDC5C54A7706F9942950F4F5C0944A48F571D7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Armageddon Riders (2011) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN] [Ru
 magnet:?xt=urn:btih:A10A8667D72C13EB5D863CAC5509808C8265593E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ The Bridge — двухмерная логическая аркада, разр�
 magnet:?xt=urn:btih:F0096757972F916E26E44BDDE839EE221DEBA7CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Disney Epic Mickey 2 The Power of Two (2012) [WiiU] [USA] 5.3.2 [Loadiine GX2] [
 ```bash
 magnet:?xt=urn:btih:D0AE54C59550B0FB6A8AF594B5CD9EA327044E8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ BADLAND — удостоенный многочисленных наград п�
 magnet:?xt=urn:btih:A35D010C29AD240109E9BEB334B8C252CCBCF68A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ FIFA 13 (2012) [WiiU] [USA] 5.3.2 [Loadiine GX2] [License] [En]
 ```bash
 magnet:?xt=urn:btih:F46A04E5FF3B9EBBC1EE06FB7C668A5B6FB3D301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Disney Самолеты / Disney Planes (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2]
 magnet:?xt=urn:btih:D58D1779107B11E4F4D7B775CA48F279D3F5FA5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Legend of Kay: Anniversary (2015) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [License] [M
 magnet:?xt=urn:btih:67AA4885D56952BEEF37C7B0A59E1D0412AF040D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ Child of Light (2014) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack / 1.0.1] [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:16BE5CC30CCC309D13A9D4C3EDCBF64A31542EA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ Hatsune Miku: Project Diva X — это музыкальная игра, в ко
 magnet:?xt=urn:btih:EB0C6A983FDEACE6E3F617D9B21E948FCB6B1E32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ DuckTales: Remastered (2013) [WiiU] [USA] 5.3.2 [Loadiine GX2] [Repack] [En]
 ```bash
 magnet:?xt=urn:btih:AC7907C60FF4BD90D870B0DFD4F8A2E45ECF47BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ SteamWorld Dig — это платформенная игра-копалка. И
 magnet:?xt=urn:btih:BEA2C7B36E5C6292D7EB3DAE8CC22FF3ABB7ECBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Trine Enchanted Edition рассказывает историю трех гер�
 ```bash
 magnet:?xt=urn:btih:A5CE7BAB77F84EC43144171526E68CD0CDC8E8AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Trine 2: Director’s Cut — это куда больше, чем обыкно�
 magnet:?xt=urn:btih:C376FEFAC42C14F0EB294E64ACB4AF0328715554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ Battle: Los Angeles (2011) [PS3] [USA] 3.55 [PSN] [En]
 magnet:?xt=urn:btih:9760779F69E933812FF17C25AEE99D534DB2A869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ The Elder Scrolls III: Morrowind - эпическая игра, где вы мо
 ```bash
 magnet:?xt=urn:btih:DE5CA557947A84FB0B99A8368D4A6116EA2D09E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ GoldenEye 007: Reloaded — современное воплощение знам
 magnet:?xt=urn:btih:BBAB8B51F7A30C7D7F1FAFED5E456883AD6C21ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ WALL-E / ВАЛЛ-И (2008) [PS3] [EUR] 2.35 [Cobra ODE / E3 ODE PRO ISO] [Licen
 ```bash
 magnet:?xt=urn:btih:0ED9CC096D6D26854B6BAD3F175E8DB0AD3BBCA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ Resident Evil: Revelations (2013) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [Repack] [Ru
 magnet:?xt=urn:btih:4FD4B52C7AA7F2EE071D9F3D8F800B1DFD5D3C0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ Final Exam (2013) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN] [En]
 ```bash
 magnet:?xt=urn:btih:D2C41E9CFC968F7306102756D6069605126AF3E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:D2C41E9CFC968F7306102756D6069605126AF3E8
 magnet:?xt=urn:btih:6F0A4442C3736E8A682867BEC76049396FAA8BCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Cars 2 / Тачки 2 (2011) [PS3] [EUR] 3.60 [Cobra ODE / E3 ODE PRO] [License]
 ```bash
 magnet:?xt=urn:btih:C7099D44B4FEC7C37C80CA0DD3E3C9FA5311BFFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

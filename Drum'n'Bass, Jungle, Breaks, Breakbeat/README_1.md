@@ -1,30 +1,3 @@
-###  Публикация: 952138   (358097) от 31.10.2015
-
-Muffler - Stone Cold (2015) [MP3|320 Kbps] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_358097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Breathe (feat. Sansa) (04:38)
- 02. Ranua  (feat. Keeno) (05:19)
- 03. Northern Lights (04:21)
- 04. Mountain Streams (05:20)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:135766B07A4457CBCF88961BEA9034652963B522
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1177099   (360503) от 26.10.2017
 
 ScAnDroid Experiment's - Strange Thoughts (2017) Авторская раздача [MP3|320 Kbps] <Drum & Bass, Dubstep, Trap>
@@ -48,6 +21,8 @@ ScAnDroid Experiment's - Strange Thoughts (2017) Авторская раздач
 ```bash
 magnet:?xt=urn:btih:B4F398F11068CC0B2A3F7D527C0B2E9D11BF58FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +51,8 @@ VA - Chilling On The Couch 02 LP (2015) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:B0F0DDA02DDCA7148A2D68ACACEDA9AB56CC00B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +79,8 @@ A-Mase - Emotions & Dreams (2019) [MP3|320 Kbps] <Atmospheric Breaks, Progressiv
 ```bash
 magnet:?xt=urn:btih:06B23719D1C944966C93B3230243F0DC7F0D75C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +109,8 @@ magnet:?xt=urn:btih:06B23719D1C944966C93B3230243F0DC7F0D75C9
 magnet:?xt=urn:btih:23CC0C128B5D20436ADA2C370429DFA84B21E14C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +137,8 @@ VA - Nothing But... Liquid Drum & Bass Vol.2 (2016) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:DF0089A5A8BA6A1F5D9A55B644B77577A34D9FBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +167,8 @@ VA - Welcome to the Jungle (Drum & Bass X Jungle) (2018) [MP3|320 Kbps] <Drum & 
 magnet:?xt=urn:btih:BD8D53268E06A7AECA1C4267391A6D1CE38E83B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +195,8 @@ VA - Liquid Drum & Bass Essentials Vol 02 (2017) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:5833442D92C713A9100D5064ACB71D9E2B478EEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +225,8 @@ Bcee - Northpoint (2017) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:8654BB0B23050603D78EE40B308257953856DAB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +253,8 @@ magnet:?xt=urn:btih:8654BB0B23050603D78EE40B308257953856DAB2
 ```bash
 magnet:?xt=urn:btih:C05BE8F7B3D54DC41116E9E89BFBC77B4C1A755F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +283,8 @@ Odesza - A Moment Apart (2017) [MP3|320 Kbps] <Chillout, Downtempo, Future Bass>
 magnet:?xt=urn:btih:D8AF06C346AC3F0AB024E6A3ADC178988FD490B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +312,8 @@ Asian Dub Foundation - Access Denied (2020) [MP3|320 Kbps] <Breakbeat, Electroni
 magnet:?xt=urn:btih:208747CC38800862F282BC36E271F62801275838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +338,8 @@ Physical Illusion - Cosmonaut Training Center (2017) EP [MP3|320 Kbps] <Drum & B
 ```bash
 magnet:?xt=urn:btih:71739882795D13C86CE5A4776EFB786DC262BA76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +368,8 @@ Physical Illusion - Solitary (2017) EP [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:F18EF0060C646049B0E07252E40134AFB34D92AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +396,8 @@ Jiva & Fr.om - Saturnine (2017) LP [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:281A654D16538A0B9301897758996A4526BA1F17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +426,8 @@ VA - Kosmos Gets Harder After Album (2016) EP [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:C22C9F039705F73361F848E1A69E95A84A795503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +451,8 @@ Utah Jazz - Vintage (2010) [MP3|320 кб/с]<Drum & Bass / Liquid Funk>
 ```bash
 magnet:?xt=urn:btih:7EE0F65EE2FCB895B4A166F09FD683279CEB95F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +481,8 @@ Eschaton - Carina (2017) EP [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:03687491877162B727B8F91CD5B25D0FCC592F4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +509,8 @@ The Living Tombstone - zero one (2020) [MP3|320 Kbps] <Electronic, Dubstep>
 ```bash
 magnet:?xt=urn:btih:5FDEF9C414CDDD4C28D5192C32D5572333FD35E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +539,8 @@ K-Chaos - Let The Heat In (2017) LP [MP3|320 Kbps] <Drum & Bass, Breaks, Techno>
 magnet:?xt=urn:btih:F408D8740A3E78245AEB20B3F574EBD4F84D0E0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +567,8 @@ Chase & Status - Tribe (2017) [MP3|320 Kbps] <Drum & Bass, Dubstep, Grime>
 ```bash
 magnet:?xt=urn:btih:82DFD27F5B981BAB49C2F9219F94BFA81125A6BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +597,8 @@ VA - Point Of Origin Vol. 1 (2015) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:FA5CFF86D9A4E891D564B5CDF3E7955D52E8BE6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +625,8 @@ Nero - Between II Worlds (2015) [MP3|320 кб/с]<Drum & Bass, Dubstep, House>
 ```bash
 magnet:?xt=urn:btih:EAA3ABA4AB401CA6A4F6252B8E761217DB3862AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +655,8 @@ VA - Mind Technologies Vol. 5 (2015) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:26361FA72248563A329AC2A702D98CC80E76F6E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +684,8 @@ VA - Retrospective Drum 'n' Bass: 10 Years (2018) [MP3|320 Kbps] <Drum'n'Bass>
 magnet:?xt=urn:btih:8DEBF7ABDBB2146E0021AEFB49700B1802D80938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,6 +709,37 @@ magnet:?xt=urn:btih:8DEBF7ABDBB2146E0021AEFB49700B1802D80938
 ```bash
 magnet:?xt=urn:btih:E1B58CF1B43757BE283FAF1C03A5490F4187826B
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929645   (518513) от 20.08.2015
+
+VA - Mind Technologies Vol. 6 (2015) [MP3|320 кб/с]<Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_518513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Okuli - Game Over
+02. Invadhertz - Listen Up
+03. Thesys - Brain Data
+04. Double Helix, Host - Velvet Future(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:19:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5777AE93073FDA5D2F6F5699E665DBE9759E6816
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 810999   (581409) от 07.08.2014
+
+Михаил Роттер и др. | Нечаянный Ци-Гун (2013) [DJVU]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_581409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издательством Ганга в 2012 г. выпущена книга о Ци-Гун школы Чань-Ми, написанная известным китайским мастером Фэн Шао И в соавторстве с Михаилом Роттером. Это серьезный труд, сухой и отстраненный. Предлагаемое же издание - художественное произведение, вместе с героями которого легче понять и освоить базовые техники школы.
+Произведение читается легко, но при этом не допускает вольностей. Эта книжка поможет занимающимся легче войти в мир Ци-Гун, где мужчины и женщины различных религиозных верований, принадлежащие (   Читать дальше...   )Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11CF38443DBD775B16BED63E174F14575977E44B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041693   (581477) от 10.08.2016
 
 Ф. Грант | Религия на службе американского капитала (1928) [DJVU]
@@ -20,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:84DFBE55A6C8C60839A6F41ECFF410AFD58A6D7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:84DFBE55A6C8C60839A6F41ECFF410AFD58A6D7E
 magnet:?xt=urn:btih:E457B33954B29A182F75F275194E439844FB95E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:E457B33954B29A182F75F275194E439844FB95E5
 ```bash
 magnet:?xt=urn:btih:4F326316B53F9E1C9B6B1743CF97660C4D19CB10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +128,8 @@ magnet:?xt=urn:btih:4F326316B53F9E1C9B6B1743CF97660C4D19CB10
 magnet:?xt=urn:btih:1206A7C1E38D7E6D67D2BACA51E2948AE96381AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +155,8 @@ magnet:?xt=urn:btih:1206A7C1E38D7E6D67D2BACA51E2948AE96381AF
 magnet:?xt=urn:btih:AE9C52C7E8CE9A1F48F6C6770E04D19BD049A939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +180,8 @@ magnet:?xt=urn:btih:AE9C52C7E8CE9A1F48F6C6770E04D19BD049A939
 ```bash
 magnet:?xt=urn:btih:A2BA5F522E73E3E14F6DBEA86357C2FA8AF5A2DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +207,8 @@ magnet:?xt=urn:btih:A2BA5F522E73E3E14F6DBEA86357C2FA8AF5A2DC
 magnet:?xt=urn:btih:D02109E7D6BCAD82ED5B8950235D0A39B322B873
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:D02109E7D6BCAD82ED5B8950235D0A39B322B873
 ```bash
 magnet:?xt=urn:btih:069ED09720D1967A8CD287CF5CFB74DE6947F62A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +259,8 @@ magnet:?xt=urn:btih:069ED09720D1967A8CD287CF5CFB74DE6947F62A
 magnet:?xt=urn:btih:EE9F161C1AE2FC8969B6F40B8999478F425DFB20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +284,8 @@ magnet:?xt=urn:btih:EE9F161C1AE2FC8969B6F40B8999478F425DFB20
 ```bash
 magnet:?xt=urn:btih:11F43D4F0DA6872829F4237110A698B4DEDAA2EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +313,8 @@ magnet:?xt=urn:btih:11F43D4F0DA6872829F4237110A698B4DEDAA2EB
 magnet:?xt=urn:btih:178866BE7560C293289A5F00087A141B1F34EC0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +338,8 @@ magnet:?xt=urn:btih:178866BE7560C293289A5F00087A141B1F34EC0C
 ```bash
 magnet:?xt=urn:btih:7996206251139CBBA211C68D8E652C230DB94EC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +365,8 @@ magnet:?xt=urn:btih:7996206251139CBBA211C68D8E652C230DB94EC1
 magnet:?xt=urn:btih:2DAC3833FECCEF45898ED3E983B9829539B296D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +390,8 @@ magnet:?xt=urn:btih:2DAC3833FECCEF45898ED3E983B9829539B296D2
 ```bash
 magnet:?xt=urn:btih:4DB77E09A03FD7E353410F088510C87CC861736E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +418,8 @@ magnet:?xt=urn:btih:4DB77E09A03FD7E353410F088510C87CC861736E
 magnet:?xt=urn:btih:692FAC77727174ECC3FEAE7066222067689716CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +443,8 @@ magnet:?xt=urn:btih:692FAC77727174ECC3FEAE7066222067689716CC
 ```bash
 magnet:?xt=urn:btih:E6F9E13B63B0501288FD92F9E2BCEF2013568145
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +470,8 @@ magnet:?xt=urn:btih:E6F9E13B63B0501288FD92F9E2BCEF2013568145
 magnet:?xt=urn:btih:B0FBEA11F2CEB422ED66106E4D59ABF954C13C38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +495,8 @@ magnet:?xt=urn:btih:B0FBEA11F2CEB422ED66106E4D59ABF954C13C38
 ```bash
 magnet:?xt=urn:btih:CE178521E0F8039544A655DF73585D39620635AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +524,8 @@ magnet:?xt=urn:btih:CE178521E0F8039544A655DF73585D39620635AF
 magnet:?xt=urn:btih:254C6326A459F5B412CA4881BF504882AD794D41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +549,8 @@ magnet:?xt=urn:btih:254C6326A459F5B412CA4881BF504882AD794D41
 ```bash
 magnet:?xt=urn:btih:47E78EDFE6EB0FBA9B3ADFEB46556F2BC2E68E6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +576,8 @@ magnet:?xt=urn:btih:47E78EDFE6EB0FBA9B3ADFEB46556F2BC2E68E6A
 ```bash
 magnet:?xt=urn:btih:E8B08BDA4F3B049AC25606A9C8E623421666E8B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +608,8 @@ magnet:?xt=urn:btih:E8B08BDA4F3B049AC25606A9C8E623421666E8B8
 magnet:?xt=urn:btih:68EFE597AA8B7D987D038476D1698C25D615A69D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +635,8 @@ magnet:?xt=urn:btih:68EFE597AA8B7D987D038476D1698C25D615A69D
 magnet:?xt=urn:btih:D33713E2A28D556D5B98BC5B85919128939F8EF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +660,8 @@ magnet:?xt=urn:btih:D33713E2A28D556D5B98BC5B85919128939F8EF8
 ```bash
 magnet:?xt=urn:btih:BCCCAA8D856B814BC523F158FDF814BC0BEF554E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,29 +689,7 @@ magnet:?xt=urn:btih:BCCCAA8D856B814BC523F158FDF814BC0BEF554E
 magnet:?xt=urn:btih:AE4D104BD8ED719FA51B6D8216C5A213F7CB9B15
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919745   (582684) от 19.07.2015
-
-Алексей Сухарев | Справочная книга мастера-любителя. Химия. Электротехника и электроника. Ремонтно-строительные работы (1997) [PDF]
-
->>Разное (категория книг)
->>Строительство и ремонт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_582684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, написанная в форме энциклопедии для домашнего мастера, может быть полезна каждому, кто стремится самостоятельно решить многочисленные бытовые проблемы.  В ней приведены рекомендации и советы по реализации всевозможных химических технологий в домашних условиях, подробно рассмотрены области и способы применения различных средств бытовой химии.  Значительное внимание (   Читать дальше...   )Жанр: Строительство, ремонтФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A1C5DCBD3FE883D347F9DD784D33ED4F709E101
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

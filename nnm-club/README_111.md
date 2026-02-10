@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:029282827A8DCE85A37251E962C4D5F06E5A0D2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Paris Kis - BLUES 6 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:5D104211A4BB592142088D1A105276F572211E74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:5D104211A4BB592142088D1A105276F572211E74
 magnet:?xt=urn:btih:1E5A5801D2353046A41748DDD2FC4EFE44939691
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:1E5A5801D2353046A41748DDD2FC4EFE44939691
 ```bash
 magnet:?xt=urn:btih:A18A9113A859CDC2F3BD6EF594FE2F32D5D0154F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Papik - Cocktail Sanremo, Vol. 1 (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop
 magnet:?xt=urn:btih:25D7555BFE971EED2065C1713691DC184540050F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Sheena Easton - The Definitive 12" Singles, 1983-1987 (2025) [MP3|320 Kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:1ED7559670BE97D45B1035C1CE79E7DF80E7E380
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ VA - Transorica Trance Dreams (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:BDD83A0D474CB891C41996AABB6C1AA87DDBEC23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:BDD83A0D474CB891C41996AABB6C1AA87DDBEC23
 ```bash
 magnet:?xt=urn:btih:BD0D2BB22E5EC05B294F805D13C204F8CF8A25C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ VA - 25 Years Of Anjuna Mixed By Martin Roth (2025) [MP3|320 Kbps] <Progressive 
 magnet:?xt=urn:btih:B6C3430131BD45CD154E755359B7A12B306E0747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ VA - Trance Fusion, Vol. 13 (2025) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:FFD57F9B7B9B7C403590F65A06E6E8702BCB2B2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ RG1 Project - Bourbon & Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:AB6A063A325CB62C13F9F61EA30CC2D1E825F246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +330,8 @@ Kyle Culkin - Shades of Trouble (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:5C6AF1C22350608BFF0CEAC1D183FC44855B4B65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ magnet:?xt=urn:btih:5C6AF1C22350608BFF0CEAC1D183FC44855B4B65
 ```bash
 magnet:?xt=urn:btih:8A7AC03E951DCDF4F39608B1ACCD9727F719931B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +382,8 @@ magnet:?xt=urn:btih:8A7AC03E951DCDF4F39608B1ACCD9727F719931B
 ```bash
 magnet:?xt=urn:btih:A70B749502743666DD61ECD79C3A40BBB5866A42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +412,8 @@ Knightmare-Ds - Twisted Love (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:7673E7EBDDC1DDD669CBB020AD77930FDBDECE61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ Raw Rhythm перенесёт вас в самое сердце хауса, ос
 ```bash
 magnet:?xt=urn:btih:D1B9F178D85DDEBDCD00F368FD5DF02890A02A6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:D1B9F178D85DDEBDCD00F368FD5DF02890A02A6E
 magnet:?xt=urn:btih:3934810439D6853BD43CE1EB6D6B056152EB5A47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:3934810439D6853BD43CE1EB6D6B056152EB5A47
 ```bash
 magnet:?xt=urn:btih:DDEE39F7934C44DA5413793C000AC6A859529F36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +519,8 @@ Ice Cube - Man Up (2025) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:7033697B6BB1D5C75FE32577111511CE9DC0CD9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:7033697B6BB1D5C75FE32577111511CE9DC0CD9E
 ```bash
 magnet:?xt=urn:btih:5EB0B71971B91EF4AEF49BA96F8C86A9ABCD69BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:5EB0B71971B91EF4AEF49BA96F8C86A9ABCD69BA
 magnet:?xt=urn:btih:C49F2B3581FA836ABD9F58A0E12D654F1129D8E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:C49F2B3581FA836ABD9F58A0E12D654F1129D8E0
 ```bash
 magnet:?xt=urn:btih:2BA85989B82D0979873D40E73E890E0FEAB04F41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:2BA85989B82D0979873D40E73E890E0FEAB04F41
 magnet:?xt=urn:btih:A86E236DDC2F891C3FC1E5FE51D511D7FDF03FBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ PowerDirector – Video Editor v15.7.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7BF2C6F091E8026A29211DAFCA22CF4514E014FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:7BF2C6F091E8026A29211DAFCA22CF4514E014FF
 magnet:?xt=urn:btih:2BB129A36536B7F3550CD1BE41FD88E34DA2C8A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ magnet:?xt=urn:btih:2BB129A36536B7F3550CD1BE41FD88E34DA2C8A5
 ```bash
 magnet:?xt=urn:btih:B2FF7EFCBB0D539142A902853D33E426817B8499
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

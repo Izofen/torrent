@@ -19,6 +19,8 @@ Carmageddon TDR2000 - продолжение игры Carmageddon и Carmageddon
 magnet:?xt=urn:btih:E41D4EB4D75BB16E4CD6FE78911F79FB9BAFD6C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Arcania: Fall of Setarrif / Аркания: Падение Сетаррифа (2
 ```bash
 magnet:?xt=urn:btih:EDBD639B12AA8A289324F95B9866291D3286D19F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Rugrats Go Wild (2003) [Ru/En] (1.0) License
 magnet:?xt=urn:btih:B7E12B10731FFA985D4E578B125F1A6C3E409F51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Return to Mysterious Island / Возвращение на таинственны
 ```bash
 magnet:?xt=urn:btih:08EB7315AE220442079D19966BB5351A2C7E36A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Space Empires IV / Space Empires 4 / Космическая Империя 4 (20
 magnet:?xt=urn:btih:5FB1447BD66F013D461C9291ADB897997D808650
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Just Cause 2 (2010) [Ru/Multi] (1.0.0.2) License GOG [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:42C797D21227E1F3DBD07A5CCAE04CAA1EC62A81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Terminus - космический симулятор с реальной физ�
 magnet:?xt=urn:btih:752E5B0CBD6ADA9817C8C01875866F1CB12A1059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Planescape: Torment - одна из величайших игр в истори�
 ```bash
 magnet:?xt=urn:btih:E41B9B68CECD054DBA9A11DC0F26CCDD3E8BA480
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Delta Force: Black Hawk Down / Delta Force: Операция "Черный Яс�
 magnet:?xt=urn:btih:118274A45D3E3C392245B274EFAE6901312C9CAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Delta Force: Xtreme / Delta Force: Первая кровь (2005) [En] (1.6.9.3)
 ```bash
 magnet:?xt=urn:btih:73487A5545D256FDC84989DBCFBF09955C88451A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Delta Force: Task Force Dagger / Отряд Дельта: Операция "Ки
 magnet:?xt=urn:btih:DEE6C02CA4FD4AE93C1D8C5217ABF48C4BF8D032
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Delta Force: Land Warrior / Отряд Дельта: Операция "Спец�
 ```bash
 magnet:?xt=urn:btih:141E73BB03D2EB67BB1C44B262043ACE0ED11451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Delta Force 2 - компьютерная игра, тактический шут
 magnet:?xt=urn:btih:81C14AF82D7BB7DECED0668A92B0889CFD2D8FEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Delta Force - компьютерная игра, тактический шуте
 magnet:?xt=urn:btih:90E777FBF7A684EA92B93D27F194BA99A1461672
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ Escape from Monkey Island (2000) [Ru/En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:13164B904866496EF2DA0179BEBD35769AC40D96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Red Orchestra: Ostfront 41-45 предоставляет игроку на вы�
 magnet:?xt=urn:btih:2057CA3B4FDD504B4918F85EEC74C0242BE5EEF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Army Men RTS / Вояки: RTS (2002) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:EACB3681518624F02C869398FF0C0670662CBE2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Metal Slug PC Collection (6 in 1) (1996-2003) [En] (1.0) Repack Super-Coctail
 magnet:?xt=urn:btih:62812F8BF4FAB4AF3E266EA185E241EDE1483680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Alone in the Dark 3 - компьютерная игра 1995 года, трет�
 ```bash
 magnet:?xt=urn:btih:AB51383E316605032633E9DB908323791257E322
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Alone in the Dark (1992) [En] (1.0) License GOG
 magnet:?xt=urn:btih:B797D0354A259DE82C60A11ABA90C7937EE4F101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Alone in the Dark 2 (1993) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:C443BFAE477E4541B058C758D1478B2954D182BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:C443BFAE477E4541B058C758D1478B2954D182BF
 magnet:?xt=urn:btih:FDFE546855C9DF4B8AC0F0E77DD2906E5EAD8BDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ The Curse of monkey Island  / Проклятие острова обезьян [
 magnet:?xt=urn:btih:E32D4A85893DBE86C726B2A847AEC6C33EC178FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Death Gate (Врата смерти) - компьютерная видеоигр
 ```bash
 magnet:?xt=urn:btih:94A302564B8195C1D0262C84591713793E26D62F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Warrior Kings: Battles / Лорды войны: Битва (2003) [En] (1.23) Li
 magnet:?xt=urn:btih:90D13ED4253B78ED7DAA1C03EEA9FD071429D023
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Fantasy General (1996) [Multi] (1.0.20211006/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:F1CB0E937F08765132D5090B4BFD46A884E58CB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

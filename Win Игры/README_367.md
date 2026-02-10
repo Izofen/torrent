@@ -1,27 +1,3 @@
-###  Публикация: 241423   (459904) от 01.10.2010
-
-Zombie Pirates - Collector's Edition [Eng] (P) 2010 | THETA
-
->>Win Игры
->>Strategy/Manager/Business (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_459904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультяшная игра в жанре аркадной стратегии, по механике напоминающаяТип издания: ПираткаРазработчик: Dust Devil StudiosЖанр: Strategy, Arcade, Real-time Strategy, Action, CasualЯзык озвучки: Язык интерфейса: 
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 550170   (460170) от 21.09.2012
 
 Dark Parables 4: The Red Riding Hood Sisters. Collector's Edition [En] (P) 2012
@@ -42,6 +18,8 @@ Dark Parables 4: The Red Riding Hood Sisters. Collector's Edition [En] (P) 2012
 ```bash
 magnet:?xt=urn:btih:D5A42CCA9162EAADB5B9F877B954B2487C0F5C81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ ONINAKI (2019) [Multi] (1.0.0/dlc) License HOODLUM
 magnet:?xt=urn:btih:E7B505851FD1BC86F0123B365B528C482109FC55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Silent Hill: Alchemilla — это самостоятельная модифик
 ```bash
 magnet:?xt=urn:btih:95C9DDA28E44355B9B45FE465B93C1730747B13F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Flynn & Freckles — молодой пират по имени Флинн реш
 magnet:?xt=urn:btih:CFAEA2A30F76DD76954D37738878F22FFD64EB8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Legend of Grimrock 2 — это ролевая игра в стиле dungeon cr
 ```bash
 magnet:?xt=urn:btih:426DBB533BF05F869D139AFEBC6C2F512A4ACBC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Mystery Tales 4: Her Own Eyes / Загадочные истории 4: Её гл
 magnet:?xt=urn:btih:487FBEC53D1281DF1ED1A8F57C39CEBB087689F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Parallels Cross / Пересечение судеб (2016) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:80BFF0788B7ECD6AB4B3535D995666D0F49E3BAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Selma and the wisp - это удивительный игровой платфо
 magnet:?xt=urn:btih:2B3954E6570A82F19D0E9AFB00A6AF9E71E9752C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Winter Ember (2022) [Ru/Multi] (1.6.0_526e457) License GOG
 ```bash
 magnet:?xt=urn:btih:E71EA16E9ACC9453D49C65105A7667877E3B9DF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Dying Light 2: Stay Human (2022) [Ru/En] (1.4.2/dlc) Repack West4it
 magnet:?xt=urn:btih:20E66B24BC822986694E1AC4BF1F601C72076E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Metel - Horror Escape — это 3D-игра от первого лица в ж�
 ```bash
 magnet:?xt=urn:btih:62DFC2DA68257B10E1D1436166116F6E711B16C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ Inversion [Ru/En] (Repack/1.0.u1) 2012 | R.G. Механики
 ```bash
 magnet:?xt=urn:btih:91FF81BB46D80AEFF437774E234F079C3AC4E525
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +339,8 @@ The Raven — Legacy of a Master Thief — это увлекательное к�
 magnet:?xt=urn:btih:6C4D3F7320135F1D4F674FD929921D33788479C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +364,8 @@ Sinister City (2010) [Ru/Multi] License PROPHET
 ```bash
 magnet:?xt=urn:btih:F45A5D27822C71F761F9E2F635F26BAC04370F90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +391,8 @@ Nevertales 4: Legends (2015) [En] Unofficial [Collector's Edition / Коллек
 magnet:?xt=urn:btih:3E7BD5EDAD772F7DAB971D016C2F40C86EABC08D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +416,8 @@ Age of Empires - легендарная стратегия в реальном �
 ```bash
 magnet:?xt=urn:btih:FCCB32FD69952A07EE773E1900EC691CA2D1AB89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +443,8 @@ Dark Deception (2018) [Ru/Multi] (1.6.0/dlc) License PLAZA
 magnet:?xt=urn:btih:E9DFE529CBD0C010AD9B6172B78F59CB7750D923
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +468,8 @@ Neverwinter Nights: Enhanced Edition (2018) [Multi] (78.8186/dlc) License CODEX 
 ```bash
 magnet:?xt=urn:btih:FC042C3D81EE8B3038538F388D84F39BC6A14116
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +495,8 @@ Silent Hill: Alchemilla (2015) [Ru/En] (1.02) Repack R.G. Freedom
 magnet:?xt=urn:btih:F432BF2542E09590EF18CD759A5EA608F9FA77CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +520,8 @@ Worms W.M.D (2016) [Ru/Multi] (1637.583366/dlc) License RELOADED
 ```bash
 magnet:?xt=urn:btih:95507F0E72D899D5C975AF56046B817F20FFEB82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +547,8 @@ Project Remedium - это приключенческий экшен, в кото
 magnet:?xt=urn:btih:245EA647AAD7D2A3F71935B3F3C9BEB85ACABDFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +572,8 @@ Silent Hill: Alchemilla — это самостоятельная модифик
 ```bash
 magnet:?xt=urn:btih:352982F4376EF5FEC49FEE2B791B75EA26856357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +599,8 @@ Prey - Mooncrash (2018) [Ru/En] (1.10) Repack =nemos=
 magnet:?xt=urn:btih:20056F28920FFACBEF96DE3864E5583939808598
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +625,8 @@ Mystery Case Files 19: Moths to a Flame (2019) [En] (1.0) Unofficial [Collector'
 magnet:?xt=urn:btih:472ADECF79E2BC2E4F9B15E7453C710F4D995718
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +650,34 @@ Battlefleet Gothic: Armada – стратегия в реальном време
 ```bash
 magnet:?xt=urn:btih:2CD238A54EA1133371CC3459A9C5905D41F57EE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918934   (463759) от 26.09.2015
+
+Star Hammer: The Vanguard Prophecy (2015) [En] (1.0.9) Repack leve1ord
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_463759.jpg" />
+</div>
+
+
+###  Подробнее
+
+В XXII столетии человечество покинуло погибающую Землю с целью основать новый дом Новус. Но вскоре стало понятно, что основание колонии вдалеке от родной планеты – не самое лучшее решение, ведь там люди столкнулись с наутилидами.Тип издания: RepackРазработчик: Black Lab GamesЖанр: Стратегия, ТактикаЯзык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42F5FE1C4BFD21BF2748F132ED9FFA1BFD02F662
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

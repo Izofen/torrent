@@ -19,6 +19,8 @@ VPN Master -VPN-прокси Hotspot 5.8.008 [En]
 magnet:?xt=urn:btih:F1D2D1C6941BF758565F9103B2A43B52BBABC176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Yoga VPN - безопасный прокси 7.0.530 [Multi]
 magnet:?xt=urn:btih:086BF6D2DD864A9DCD964597E4D17ABB9727232D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ XY VPN — это абсолютно бесплатный VPN! Быстрое и
 ```bash
 magnet:?xt=urn:btih:259BE51E8E2A0777FF0DB389FFDCCA0F1DF819BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Recipe finder 1.0.1 [Ru/Multi] (авторская)
 magnet:?xt=urn:btih:77C1F2859231C9793779AA54C172AF347DD918BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ CapCut — бесплатный универсальный инструмент 
 ```bash
 magnet:?xt=urn:btih:622645D813BEA63006EC884AF6CECB369D2438FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ VK X 6.6.2_pub [Ru/Multi]
 magnet:?xt=urn:btih:5CA91D3A70BDB98D396E14A2925849871FCAAD49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ AI Image Enlarger 3.0.4 Mod by TryRoom [En]
 magnet:?xt=urn:btih:A45FC579727A99A5E963D98D9BCD4A487A6CFF4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Background Video Recorder Pro — это приложение, которое п
 ```bash
 magnet:?xt=urn:btih:32349FB0B9796B84FA27182B5A0FCBC4C55865A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Image toolbox — это приложение, основанное на сов�
 magnet:?xt=urn:btih:3608A306FADA643AB50248C5912FBBC43A540AB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ vpnify: лучший БЕСПЛАТНЫЙ, БЕЗЛИМИТНЫЙ и высок�
 ```bash
 magnet:?xt=urn:btih:47D768D157E5AC1267CD3935CB69B872FE6F940D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ InShot - Мощный видеоредактор и фоторедактор н�
 magnet:?xt=urn:btih:F230FA913188E5D23F09DF852CE77066537F0259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:F230FA913188E5D23F09DF852CE77066537F0259
 ```bash
 magnet:?xt=urn:btih:355D5448AEE461E7BEDE787A222145DC5757F434
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:355D5448AEE461E7BEDE787A222145DC5757F434
 magnet:?xt=urn:btih:234848E30CCDAF5A46D4BBDE85E64570487D64F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Camera FV-5 v5.3.7 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:3EA9D6C095A04EA01872613DCCAAA014AFE97BF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Grooz VPN позволяет быстро и безопасно подключа
 ```bash
 magnet:?xt=urn:btih:26F12ECB2B7C342530D4426D07455CCB6779C458
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Daff Moon Phase (Фазы Луны) v3.23 [Ru/Multi]
 magnet:?xt=urn:btih:49859F51CA5DA40E8BB86921C67C523FBE9CB875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Zaycev.fm — это радиостанция, которая работает �
 ```bash
 magnet:?xt=urn:btih:F1B15E0828C55474D552442901A50E1681D8B30B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Tone Generator PRO v3.50 Mod by Alex.Strannik, papasha55 [En/Ru]
 magnet:?xt=urn:btih:1C3F0F29B222F447E82A69F51F9562C43E598C28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ English LinDuo HD v5.29.3 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CE4FD3E62EF695B4CB6922BC678EFA9EC631B713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Plus Messenger - неофициальное приложение для обме
 magnet:?xt=urn:btih:39702FBD2E0070C5874C9E79816A20E48E2AEA16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:39702FBD2E0070C5874C9E79816A20E48E2AEA16
 magnet:?xt=urn:btih:E222E9633DBE36E93AB40E405A7B584AB694990E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:E222E9633DBE36E93AB40E405A7B584AB694990E
 ```bash
 magnet:?xt=urn:btih:2425CE09A9776DF8B9C6D77B3C90091C1585C488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ TV+: Бесплатное Онлайн Телевидение
 magnet:?xt=urn:btih:BE2556F2DD61D7E0D5019F7E30C73225FA2DDCC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Blaze v1.6.4 [Ru/Multi] - Виртуальный Камин с разрешен�
 ```bash
 magnet:?xt=urn:btih:1641F697CEB8E19D136EE61D86FCFDF3F9F7A62A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ YouTube Downloader v7.1 [Ru/En] (обновляемая)
 magnet:?xt=urn:btih:15D2F7D740151DC081D9D0AFA11B0255C1747E75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ HD VideoBox Plus — это самый крупный онлайн киноте�
 ```bash
 magnet:?xt=urn:btih:62B2E04453A20023247ADC1B4DD0EE603DCC71A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

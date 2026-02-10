@@ -1,3 +1,29 @@
+###  Публикация: 1022044   (728933) от 02.06.2016
+
+The Descendant | Юноша в саду (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_728933.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 сентября 1862 года стало самым кровавым днём в истории Америки. Именно тогда во время Гражданской войны США состоялось сражение между федеральной армией и силами Конфедерации возле реки Энтитем-Крик, что рядом с городом Шарпсбург, штат Мэриленд. А вчера Флаттершай напевала что-то весёлое себе под нос, поливая сад. И эти события связаны между собой.Жанр: Драма, фантастикаПродолжительность: 02:00:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5103556734CFBFC0593641B9ECBC9CCEEDDBB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127828   (729217) от 23.04.2017
 
 Питер Уоттс | Ложная слепота (2017) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:38671ACF8C42CDA2EEA22E34D9397B2DA69B7D99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:38671ACF8C42CDA2EEA22E34D9397B2DA69B7D99
 magnet:?xt=urn:btih:5D12814439605EAFCFDADE0C48C25452EECC69EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:5D12814439605EAFCFDADE0C48C25452EECC69EE
 ```bash
 magnet:?xt=urn:btih:526324F2245EEF5DE4B137D59387383B03457A64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:526324F2245EEF5DE4B137D59387383B03457A64
 magnet:?xt=urn:btih:CD867BD34AC39986F5AE3DC8E82071525418C464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:CD867BD34AC39986F5AE3DC8E82071525418C464
 ```bash
 magnet:?xt=urn:btih:004D48AF940F91A722CE7ABD8684680AEF010C35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:004D48AF940F91A722CE7ABD8684680AEF010C35
 magnet:?xt=urn:btih:C4FFDFB451A41F77FE1808C26C7DCFBBA933947A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:C4FFDFB451A41F77FE1808C26C7DCFBBA933947A
 magnet:?xt=urn:btih:70D20DC8855A2FBD5691FB92543CE3B439A13D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:70D20DC8855A2FBD5691FB92543CE3B439A13D20
 ```bash
 magnet:?xt=urn:btih:796B51183D2F50C07417F9155564450972D0F660
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:796B51183D2F50C07417F9155564450972D0F660
 magnet:?xt=urn:btih:B60B40351CB089C96E03FA9A71374A31BB4F5654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:B60B40351CB089C96E03FA9A71374A31BB4F5654
 ```bash
 magnet:?xt=urn:btih:D9671D8FB189EA976FF56C41EEAD30F8BCABF30E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:D9671D8FB189EA976FF56C41EEAD30F8BCABF30E
 magnet:?xt=urn:btih:F27EDE657F13CD70DDAB0961BFBFF9E33A6058B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:F27EDE657F13CD70DDAB0961BFBFF9E33A6058B0
 ```bash
 magnet:?xt=urn:btih:D99B9C360EE6CE2902DAFA1D790926FC19D2C3DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:D99B9C360EE6CE2902DAFA1D790926FC19D2C3DB
 magnet:?xt=urn:btih:EA44CBDDB96644E25D06C1BB9D35645DE0530AF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:EA44CBDDB96644E25D06C1BB9D35645DE0530AF5
 ```bash
 magnet:?xt=urn:btih:8067E1E6BB3D482F9AE9280A01292326F0C75AF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:8067E1E6BB3D482F9AE9280A01292326F0C75AF4
 magnet:?xt=urn:btih:EEDBF7ADF3FB8E7A220ECBFBF4BFE42F24BF73F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:EEDBF7ADF3FB8E7A220ECBFBF4BFE42F24BF73F1
 ```bash
 magnet:?xt=urn:btih:72E7DCB1B705BE8F4030FD77CB9E7BEABD3EC0E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:72E7DCB1B705BE8F4030FD77CB9E7BEABD3EC0E7
 magnet:?xt=urn:btih:FD42C6724F76F26231971E24C5C4086ADADEBD42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:FD42C6724F76F26231971E24C5C4086ADADEBD42
 ```bash
 magnet:?xt=urn:btih:34BB1FBC41FA0824B471D6DCD7945FF00AC8092D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:34BB1FBC41FA0824B471D6DCD7945FF00AC8092D
 magnet:?xt=urn:btih:E03D05D3BD786748E6F851BCF91423E97F500905
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:E03D05D3BD786748E6F851BCF91423E97F500905
 ```bash
 magnet:?xt=urn:btih:9299843722A4DC39BC67D12C4FA1EA49C821E1DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:9299843722A4DC39BC67D12C4FA1EA49C821E1DB
 magnet:?xt=urn:btih:38773F7F08491C6FF232649B6CD453E85CDE313A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:38773F7F08491C6FF232649B6CD453E85CDE313A
 magnet:?xt=urn:btih:4E7AC85CB1781DD3EC1B09DABE110106606C4002
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:4E7AC85CB1781DD3EC1B09DABE110106606C4002
 ```bash
 magnet:?xt=urn:btih:4224F7081A77A94818F2DBBD5FF6BADE8098B564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:4224F7081A77A94818F2DBBD5FF6BADE8098B564
 magnet:?xt=urn:btih:C9D0B779D1F75CAFFC38410DCDD489B08EC3CCD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:C9D0B779D1F75CAFFC38410DCDD489B08EC3CCD4
 magnet:?xt=urn:btih:E9E3F1E30F2D0B61C1B6EF2A4E0B7EFBEACAF1A6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021452   (731642) от 30.05.2016
-
-Роберт Маккаммон | Лебединая песнь (2016) [MP3, BIGBAG, Елена Полонецкая]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_731642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зло явилось в страну, которая некогда поклялась “жить по закону Божьему и людскому”, но стала жить – по закону жадности и ненависти. Зло явилось во облике человеческом – в облике Человека Многоликого. Человека, точно знающего, КАК воздействовать на каждого из встреченных им на страшном его Пути. Ибо темная бездна ненависти, зависти и вожделения – есть душа человеческая. (   Читать дальше...   )Жанр: ПостапокалипсисПродолжительность: 37:28:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26940E6916CF024DD8F8162EFE9F1CAC3583DCA2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ kulinaria.nnm.ru | Кулинарная книга дока "Пельмешки 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ kulinaria.nnm.ru | Кулинарная книга дока "Пельмешки 
 ```bash
 magnet:?xt=urn:btih:614D57FF220A55AA8C0CA13E7789744D114D1009
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ Lexx: Спасаясь от гнева Божественной Тени, без
 magnet:?xt=urn:btih:E9C466A79C7B59CC810790F094AD1D2DC6363FDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:E9C466A79C7B59CC810790F094AD1D2DC6363FDC
 ```bash
 magnet:?xt=urn:btih:D69A1EBA860530A3AA5749F6026D51C522448B0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Creative DVD-Audio Sampler Disc (2002) [MLP 5.1 96/24|DVD-Audio] <Compilation>
 magnet:?xt=urn:btih:6821BDEC96F4359929CE153F58111D4D5CDFD0CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ Metallica - Black Album (2001) [MLP 5.1, 2.0|96/24|DVD-Audio] <metal>
 magnet:?xt=urn:btih:95E6E409489A7B0FB89239BBDB7AF24F0E721103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:95E6E409489A7B0FB89239BBDB7AF24F0E721103
 magnet:?xt=urn:btih:2B6D14E2815149328A712E19CB842C56887D942F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:2B6D14E2815149328A712E19CB842C56887D942F
 ```bash
 magnet:?xt=urn:btih:D6E20AAF0F426211A638EEB31182ADCED026E925
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:D6E20AAF0F426211A638EEB31182ADCED026E925
 magnet:?xt=urn:btih:8C71E8ED9B0D61B6A7F72317BAE72E31A5DA6ADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:8C71E8ED9B0D61B6A7F72317BAE72E31A5DA6ADA
 ```bash
 magnet:?xt=urn:btih:AABDBF71DD7EA7D0EB1D424F98BCF54770722D3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:AABDBF71DD7EA7D0EB1D424F98BCF54770722D3A
 magnet:?xt=urn:btih:594D7590413FB87721E4D9DD34088E89ECFF69A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:594D7590413FB87721E4D9DD34088E89ECFF69A4
 ```bash
 magnet:?xt=urn:btih:2C14D2D27BCB20C80D43CC79480BDD3462F017FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ Windows 10 Professional VL (x86/x64) Elgujakviso Edition (v.08.12.17) [Ru]
 magnet:?xt=urn:btih:C338C475DC5373E4AC3F0E0499725D633DC219E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ RAGE 2 (2019) [Ru/En] (1.09u4/dlc) Repack xatab (обновляемая)
 ```bash
 magnet:?xt=urn:btih:A943A49D8945803B0E7735427CDDFCE1789A2528
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ Adobe Photoshop — это комплексное решение для проф
 magnet:?xt=urn:btih:550327FF8DF3D7337490711704015F42CA11C648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ INSOMNIA – мрачная постапокалиптическая RPG, дей
 ```bash
 magnet:?xt=urn:btih:537BD8F5155CB35DB6E98CC40AD1416E0950CB4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:537BD8F5155CB35DB6E98CC40AD1416E0950CB4C
 magnet:?xt=urn:btih:1E82874378C6C7F351135C29057E0A34F8AC9ABC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:1E82874378C6C7F351135C29057E0A34F8AC9ABC
 ```bash
 magnet:?xt=urn:btih:2DC3CFEFD09946B1E4071E2267D277C0939DE10E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:2DC3CFEFD09946B1E4071E2267D277C0939DE10E
 magnet:?xt=urn:btih:29EA9A6D490543E2C4894E54E97A97050E3FE971
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:29EA9A6D490543E2C4894E54E97A97050E3FE971
 ```bash
 magnet:?xt=urn:btih:832499D55367DDF4C2497134786C93550C3EC8EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:832499D55367DDF4C2497134786C93550C3EC8EC
 magnet:?xt=urn:btih:6D23178B3A130A87A8726A739536378E01FA3B32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ Windows 7 22in1 (x86/x64) by Eagle123 11.2018 [Ru/En]
 magnet:?xt=urn:btih:DCDA9F265D9DE91324E9E6AD3247017D02DD6B5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ BELOFF 2018.12 Unpacked [Ru]
 ```bash
 magnet:?xt=urn:btih:EA1D6A6E5918B112F4A257F51CDA6B37344922CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

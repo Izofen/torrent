@@ -19,6 +19,8 @@ Horizon Forbidden West – продолжение приключения охо�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Sunless Skies - это готическая ролевая игра с элем�
 ```bash
 magnet:?xt=urn:btih:F63858D2E55CB7A64D7ADBA9868747F335C5A638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F63858D2E55CB7A64D7ADBA9868747F335C5A638
 magnet:?xt=urn:btih:355508E1B0D74177BC41E7CB0CEB0C80833B8661
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:355508E1B0D74177BC41E7CB0CEB0C80833B8661
 ```bash
 magnet:?xt=urn:btih:2CD31070D430447097FF40345C9168947F34B743
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:2CD31070D430447097FF40345C9168947F34B743
 magnet:?xt=urn:btih:A989E31E84C550155E3FB4F256D74C3CE67853CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:A989E31E84C550155E3FB4F256D74C3CE67853CF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Riven (2024) [Ru/Multi] (build 1294) Repack FitGirl [VR]
 magnet:?xt=urn:btih:0100D26290ED67F1AB7D97B6944FE2CB099D4A95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:0100D26290ED67F1AB7D97B6944FE2CB099D4A95
 ```bash
 magnet:?xt=urn:btih:C368121ACAD7A17CDFBCBF6645995EB911635F60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:C368121ACAD7A17CDFBCBF6645995EB911635F60
 magnet:?xt=urn:btih:E5EE66C18A93C2C2DD8BD83831A79F76023647BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:E5EE66C18A93C2C2DD8BD83831A79F76023647BB
 ```bash
 magnet:?xt=urn:btih:BCF07B8ED4F094B7FD0A6E2235B80D53EB9A5AFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:BCF07B8ED4F094B7FD0A6E2235B80D53EB9A5AFD
 magnet:?xt=urn:btih:EC96888DE7E1D16779F692DF93832FBD3320D049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ System software for Windows v.3.6.2 by CUTA [Ru]
 ```bash
 magnet:?xt=urn:btih:7BEF2A3D528DA8FAD346CFCA5F72323A25EB2E75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:7BEF2A3D528DA8FAD346CFCA5F72323A25EB2E75
 magnet:?xt=urn:btih:60C8696E9EF608D24B0025A39E2BFECBFF7BBA18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Long Zu | Dragon Raja | Дракон Раджа [2022, Web, 16 эп.] WEBRip 720
 ```bash
 magnet:?xt=urn:btih:C8E6E8DE63E3A3EDF41B5108B8551058F8633A67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Live синхронизирует все и работает в режиме р�
 ```bash
 magnet:?xt=urn:btih:C7A576616DA97991632BD5A2DE0A9B8C4075893E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ GoodbyeDPI 0.2.2 Launcher 7.7 [Ru]
 magnet:?xt=urn:btih:22F4236C5FD08A2B2723C41C5F913E20563A7E64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:07971E8D2B701061CDC01713AAC9F84AE785D494
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:07971E8D2B701061CDC01713AAC9F84AE785D494
 magnet:?xt=urn:btih:E8D345212AADC4ACB9EF658AD16FB807A16E5C47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:E8D345212AADC4ACB9EF658AD16FB807A16E5C47
 ```bash
 magnet:?xt=urn:btih:E7411E8F26329B834CF57B78DCB5ADDD90FC2927
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Ghostboy – хотите открыть для себя мир психичес
 magnet:?xt=urn:btih:97B212B26C99D608A17F15366538FB944E1CAE25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:97B212B26C99D608A17F15366538FB944E1CAE25
 ```bash
 magnet:?xt=urn:btih:B18FB468A8D6ABBD7832A94D41A448DA2C154D1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:B18FB468A8D6ABBD7832A94D41A448DA2C154D1E
 magnet:?xt=urn:btih:3B15A4508D5B140D85BF1AAD4812F9FC598C8377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:3B15A4508D5B140D85BF1AAD4812F9FC598C8377
 ```bash
 magnet:?xt=urn:btih:EE66AC0B16FD91CB2385C43C368FD841505E3B10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Lamb of God — американская грув-метал-группа, об�
 magnet:?xt=urn:btih:84DCB4B26807F062F94437F5BE11D25F6C86356E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ COCOON (2023) [Ru/Multi] (20240222) Scene Tenoke
 magnet:?xt=urn:btih:9BA3221EAF4FF78D5E92C518383DF585C52336B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:9BA3221EAF4FF78D5E92C518383DF585C52336B6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Ramin Djawadi - Игра престолов / Game of Thrones (Music from the HB
 magnet:?xt=urn:btih:C8759147F85C68912011B754E2E21830175F5B84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:C8759147F85C68912011B754E2E21830175F5B84
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ magnet:?xt=urn:btih:C8759147F85C68912011B754E2E21830175F5B84
 magnet:?xt=urn:btih:F345EF15F82A2C0A5A1EB26EE8A9C4535B88645A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ Andreas - Paradise Cafe (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Ch
 ```bash
 magnet:?xt=urn:btih:3AFDFB1DF784BDF57D8618EC079FAE9AAFBADC67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +149,8 @@ David Antinolfi - The Music Of Relaxation (2009) [MP3|128-320 кб/с]<New age, 
 magnet:?xt=urn:btih:20385C4FC6C51C133762CC7FC82FAEE47EFA8155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +177,8 @@ magnet:?xt=urn:btih:20385C4FC6C51C133762CC7FC82FAEE47EFA8155
 ```bash
 magnet:?xt=urn:btih:986CE49C6678B39AB26146F3E9465EC767BF2B54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +207,8 @@ Angus & Julia Stone - Angus & Julia Stone (2014) Deluxe Edition [FLAC|Lossless|t
 magnet:?xt=urn:btih:15AAC67873E89BCB55E9ADF857842D88669BAB6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +236,8 @@ A.R. Rahman - Best Of A.R. Rahman - Nadaan Parindey (2013) [MP3|320 Kbps] <Bolly
 magnet:?xt=urn:btih:7CBD87C09BBA9A46979E038290F3F4E933A9E702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +264,8 @@ Cosmic Inc. (Cosmic Baby) - Futura (1994) [FLAC|Lossless|image + .cue]<Trance, A
 ```bash
 magnet:?xt=urn:btih:BDFFD21C3E67A247C59DD83F517F9AABF5753F33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +300,8 @@ CD1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +328,8 @@ Wuauquikuna - The Best of Wuauquikuna (2016) [MP3|320 Kbps] <Native American, Ch
 ```bash
 magnet:?xt=urn:btih:AEB91942AB1CE51F11002FD64C024F9DF75D35C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +364,8 @@ Sex And The City 2 / Секс в большом городе 2 (2010) [MP3|320 �
 magnet:?xt=urn:btih:16BDA098700CE7F2767FB8EDCA7F01A687DBD074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +399,8 @@ Miss Congeniality / Мисс Конгениальность (1-2 части) (20
 magnet:?xt=urn:btih:D3C0E1850EA919601FE185B496ADAFABC772C0E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +427,8 @@ Frantz Amathy - Zen Piano Paradise (2018) [MP3|320 Kbps] <New Age, Instrumental>
 ```bash
 magnet:?xt=urn:btih:86A0F3FF6597F453DA134C91A1764FB73E9DA661
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +457,8 @@ Manish Vyas - Sahaj Atma (2017) [MP3|320 Kbps] <New Age, Ambient>
 magnet:?xt=urn:btih:77A741E4CDE02155D892BBAE25C12A29032468F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +485,8 @@ The Honeycutters - On the Ropes (2016) [FLAC|Lossless|tracks] <Country,Folk>
 ```bash
 magnet:?xt=urn:btih:AF0BA54932520E539EF34665EFE2ADB94319FAC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +515,8 @@ Gary Stewart - Boy Cries Wolf (2010) [MP3|128 Kbps] <Folk, Country>
 magnet:?xt=urn:btih:D0957B31213ED2BCDB724052CFCC31AC3EB7434D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +543,8 @@ Levon Minassian & Armand Amar - Songs from a World Apart (2005) [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:F1BD570D73B4A70E6D6D7C50CAE7333D175A6C3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +573,8 @@ VA - The Woman In Red (1984) [FLAC|Lossless|image + .cue] <Soundtrack, Funk & So
 magnet:?xt=urn:btih:369D75B48324B8FEE9D1CA9F277F33ECAFFD0520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +601,8 @@ Ashaneen - Waves of Life (2015) [FLAC|Lossless|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:D71EA43AD3553B0639D5B13CF25836D465D30168
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +631,8 @@ Mythos - The Best of Mythos Instrumentals (2014) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:1D1FAA59E722EDF8911584243FFEBAF7F9943C88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +659,8 @@ Mike Howe - Lichens (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Acoustic Guit
 ```bash
 magnet:?xt=urn:btih:7D956668F00BB0AE9E701240E309319F8B8FA3F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +692,8 @@ VA - Песни бушменов (2012) [MP3|192 кб/с]<Этно>
 ```bash
 magnet:?xt=urn:btih:3B91C48FFFF372FC75F99F99C26B6ED6333E7F4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -682,6 +728,8 @@ VA - The Music of Spain (2004) [FLAC|Lossless]<Instrumental>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -715,6 +763,8 @@ VA-African Tribal Music And Dances - African Tribal Music And Dances (2008) [MP3
 magnet:?xt=urn:btih:699C458FBCCC404DE8A7F6EF1DAF6A65739AC468
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -741,6 +791,8 @@ Michael Giacchino - Мир Юрского периода / Jurassic World (Origi
 ```bash
 magnet:?xt=urn:btih:A9B752D0EBDC7F62614A0818AA3BB54C0559FC45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

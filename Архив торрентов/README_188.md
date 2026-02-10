@@ -22,6 +22,8 @@ Windows 7 SP1 x64 Rus by OneSmiLe [15.09.2024]
 magnet:?xt=urn:btih:9BEB58A2FF52ED0B692B1B1FDCE1F0A9973CA8AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ FL Studio Producer Edition - это одна из лучших программ 
 ```bash
 magnet:?xt=urn:btih:5AD31F4722FA31F3403F141E60EE8AC0F44A3988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ FanControl – свободно распространяемый продукт,
 magnet:?xt=urn:btih:E92BD9BBBA2D2ABF5E4F176F05328585461E6257
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ ScreenToGif — удобный бесплатный инструмент, с п�
 magnet:?xt=urn:btih:AC745DF334C06AC1BEFC9446730B8A846954321D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:AC745DF334C06AC1BEFC9446730B8A846954321D
 ```bash
 magnet:?xt=urn:btih:3E6090AB5C22AB11214B3D34905CE1953A64638B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:0B258E4569D75874927D0333B9AF58E5C2097DD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Kaspersky Small Office Security – Антивирус Касперского д
 ```bash
 magnet:?xt=urn:btih:A6AF3FE0F5D0E80443878D0851BACEBFE6344E4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Text Edit Plus — это простой, но мощный текстовый �
 magnet:?xt=urn:btih:3493FB1B7B35AC14CC4537EECAB0AD5E2C99F77D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:B0B9B61065146309AB438424CE2789CE5EE3B2A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:3C9AAA4112F735A43E82A043654D38F82DB6902E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Alfa eBooks Manager - одна из самых популярных програ
 ```bash
 magnet:?xt=urn:btih:C11F93ACA41B44A37B76E9E4FB208AEB9EEC0F5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 magnet:?xt=urn:btih:D53EA87CCDD66F0E9869112F31643CC43D695BE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ XnView Shell Extension 4.1.11  + Standalone  [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2540977EF54EA55BA709A0D386977294C4A54FCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Microsoft Activation Scripts (MAS) 2.7 portable [En]
 magnet:?xt=urn:btih:0E61D0144B591C98A6F00BB67BCC84EA6BABD4D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Vivaldi 6.9.3447.44 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:72BCD1A24ACF5A4150714C34B6A388D3F8D65278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:9BC4AA039765E87A6168F52BEB22A129257D55DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:9BC4AA039765E87A6168F52BEB22A129257D55DB
 ```bash
 magnet:?xt=urn:btih:0A701131D9BDC52358919A09A395600EBA128CF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Synapse Audio - DUNE 3.6.2 VSTi, VSTi 3, AAX (x64) [En]
 magnet:?xt=urn:btih:DF31498C23F64A77B530CA1C5985A7F11685C8EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:5604EBA5FFCABBEA365A2AE69198056E9B31BBAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ FL Studio Producer Edition - это одна из лучших программ 
 magnet:?xt=urn:btih:3C77CBEA6840683CBEC20AD860207927842522D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ ProfiCAD - программа, которая будет очень полезн
 ```bash
 magnet:?xt=urn:btih:F5CABDCC21E3BAC49E82AB5FD86822E7FBFED533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7
 magnet:?xt=urn:btih:E63DE20D946D7580EF0D628D1633B87260C8F5CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:810059C9A367DB0EA2FCDE74858E34ECB9E89176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ Visual Studio Enterprise 2019 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:0416122F204BD25FF5E0F44A5D0FA32C715B31CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ EF Commander  — замечательный двухпанельный файл
 magnet:?xt=urn:btih:8BD05176CC94772CA19C86393C4A83F132034B2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ WinSCP, это FTP и SFTP клиент с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:1CFFB6981B8DC5C56B6C27321CF32150D47F672C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

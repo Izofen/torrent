@@ -1,27 +1,3 @@
-###  Публикация: 1107604   (867847) от 22.02.2017
-
-Пять дней лета / Five Days One Summer (1982) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шон Коннери играет британского врача, который увлекается альпинизмом и со своей молодой любовницей (и племянницей) Кейт проводит отпуск в швейцарских Альпах. Вскоре их молодого проводника Иоганна и Кейт начинает влечь друг к другу, что не остаётся незамеченным. Трагедия происходит тогда, когда Иоганн и Дуглас отправляются в горы.Производство: СШАЖанр: ДрамаРежиссер: Фред ЦиннеманАктеры: Шон Коннери, Бетси Брэнтли, Ламбер Вильсон, Дженнифер Хилари, Изабель Дин, Жерар Бур, Анна Мэсси, Шила Рид, Жорж Клесе, Кэти Мароти ...Перевод: Профессиональный двухголосый (ТК "Культура")Субтитры: ОтсутствуютПродолжительность: 01:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:935740E76B34C04FCFC4AF6BD3C0D2FEAB0393B9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1107517   (867849) от 22.02.2017
 
 Большой страх / The Tall T (1957) DVDRip [H.264]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:935740E76B34C04FCFC4AF6BD3C0D2FEAB0393B9
 ```bash
 magnet:?xt=urn:btih:17FB1473CB7BC2216C3D62BEFEF6E94597D50BF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:17FB1473CB7BC2216C3D62BEFEF6E94597D50BF6
 magnet:?xt=urn:btih:48F02646ED426C7BD78FB1912D1DB042EFD47CD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:48F02646ED426C7BD78FB1912D1DB042EFD47CD6
 ```bash
 magnet:?xt=urn:btih:9A3C3DDE792802F28AD2513C4D1AD9EE6BE6C43D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:9A3C3DDE792802F28AD2513C4D1AD9EE6BE6C43D
 magnet:?xt=urn:btih:42A9C259413D6BC0F15A05C9E8FC4773B3D3085E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:42A9C259413D6BC0F15A05C9E8FC4773B3D3085E
 ```bash
 magnet:?xt=urn:btih:E4DD9320151E706D4E945D6261DC782E4344E1EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:E4DD9320151E706D4E945D6261DC782E4344E1EF
 magnet:?xt=urn:btih:552FDDCEEBFA6C0AD3DB43D1BD50B94B1A15B3DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:552FDDCEEBFA6C0AD3DB43D1BD50B94B1A15B3DA
 ```bash
 magnet:?xt=urn:btih:94BC40D7FFF507BD78213540372A61FBBA06FEA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +203,8 @@ magnet:?xt=urn:btih:94BC40D7FFF507BD78213540372A61FBBA06FEA4
 magnet:?xt=urn:btih:3A34EBB7022CAE044CD208CCAAE6F9049551A6C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:3A34EBB7022CAE044CD208CCAAE6F9049551A6C5
 ```bash
 magnet:?xt=urn:btih:29DDF5CAED7060E12D8E090ADC6671C4ED3F789E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:29DDF5CAED7060E12D8E090ADC6671C4ED3F789E
 magnet:?xt=urn:btih:281967377BEF18060C2A66A349722A84C3F2D32A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:281967377BEF18060C2A66A349722A84C3F2D32A
 ```bash
 magnet:?xt=urn:btih:0D8FCA62878B96859967CB79BBCF7D22EC4CA018
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:0D8FCA62878B96859967CB79BBCF7D22EC4CA018
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +333,8 @@ magnet:?xt=urn:btih:0D8FCA62878B96859967CB79BBCF7D22EC4CA018
 magnet:?xt=urn:btih:1F6FD52FB94957879B82E8A56B32437C525E609F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:1F6FD52FB94957879B82E8A56B32437C525E609F
 ```bash
 magnet:?xt=urn:btih:FA8A7DEDE97A074E6B702A7156D543E067F15FC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:FA8A7DEDE97A074E6B702A7156D543E067F15FC3
 magnet:?xt=urn:btih:8F4413CAE08931BDC3FED783402982C68CA75EEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +413,8 @@ magnet:?xt=urn:btih:8F4413CAE08931BDC3FED783402982C68CA75EEF
 magnet:?xt=urn:btih:98D8BF47DF959C020C4521D00AABFC0C454071EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +439,8 @@ magnet:?xt=urn:btih:98D8BF47DF959C020C4521D00AABFC0C454071EB
 magnet:?xt=urn:btih:5F913367FF9C208393B575ACA9E4505F8EA2AE64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +464,8 @@ magnet:?xt=urn:btih:5F913367FF9C208393B575ACA9E4505F8EA2AE64
 ```bash
 magnet:?xt=urn:btih:240E28CA1A181243C099851A394D649F831A2CB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +492,8 @@ magnet:?xt=urn:btih:240E28CA1A181243C099851A394D649F831A2CB6
 magnet:?xt=urn:btih:B8978356E58145BADD21BB462BBE75C99306E637
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +517,8 @@ magnet:?xt=urn:btih:B8978356E58145BADD21BB462BBE75C99306E637
 ```bash
 magnet:?xt=urn:btih:E00BD5F4EE9F9CACC679BC32707B9AD85C4B4C4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +545,8 @@ magnet:?xt=urn:btih:E00BD5F4EE9F9CACC679BC32707B9AD85C4B4C4C
 magnet:?xt=urn:btih:617C9C94315E03F722DDE8D2F913D228C7848576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +571,8 @@ magnet:?xt=urn:btih:617C9C94315E03F722DDE8D2F913D228C7848576
 magnet:?xt=urn:btih:52BD6D1FF600B9CD3E485BE82272EB55E141EF24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +596,8 @@ magnet:?xt=urn:btih:52BD6D1FF600B9CD3E485BE82272EB55E141EF24
 ```bash
 magnet:?xt=urn:btih:9F31BB3393C415A164D42EB5DBD73F8E5EA21944
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +626,8 @@ magnet:?xt=urn:btih:9F31BB3393C415A164D42EB5DBD73F8E5EA21944
 magnet:?xt=urn:btih:7984C8C339BC34BA71C4E80DBF5FE6F858D7B691
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +652,34 @@ magnet:?xt=urn:btih:7984C8C339BC34BA71C4E80DBF5FE6F858D7B691
 ```bash
 magnet:?xt=urn:btih:D7DE56C5CFC067E93B5B11968DF8A918B82DCF6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106302   (871387) от 20.02.2017
+
+Держись подальше от Диабло / Ride Clear of Diablo (1954) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871387.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой фильма Клэй ОМара, служит на железной дороге, когда получает письмо из родного городка со страшной вестью — его отец и младший брат погибли от рук неизвестных бандитов. Клэй немедленно отправляется домой, чтобы узнать правду о смерти своей семьи. Однако скоро он понимает, что сделать это будет непросто. Клэю придётся взять правосудие в свои руки, стать (   Читать дальше...   )Производство: США / Universal International Pictures (UI or U-I)Жанр: ВестернРежиссер: Джесси ХиббсАктеры: Оди Мерфи, Сюзан Кэбот, Дэн Дюрьи, Эббе Лэйн, Расселл Джонсон, Пол Бирч, Уильям Пуллен, Джек Элам, Денвер Пайл, Ли АакерПеревод: Одноголосый закадровый (funny77)Язык субтитров: Русский, английскийПродолжительность: 01:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB3521E6A078DEBB46FA671B551BD9B59F6CC37C
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

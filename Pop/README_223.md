@@ -1,3 +1,163 @@
+###  Публикация: 1295505   (618805) от 13.04.2019
+
+VA - The Definitive Harem Records 12 '' (1997) 2CD [MP3|320 Kbps] <Electronic, Disco, Hi-NRG>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Диско сборник хитов конца 70х - начала 80х от британского DJ, автора и продюсера Simon Soussan, выпущенных на студии"Harem Records" - дочерней фирме "Polydor".01. Pattie Brooks - After Dark (7:57)
+02. Arpeggio - Love And Desire (8:57)
+03. Simon Orchestra - Mr.Big Shot (8:02)
+04. Jessica Williams - Queen Of Fools (8:27)(   Читать дальше...   )Жанр: Electronic, Disco, Hi-NRGПродолжительность: 02:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61031E234E8F0F9FB48DFBD70856DBF02E912E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523147   (618850) от 15.07.2012
+
+Demis Roussos - The Singles+ (2 CD) (2003) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618850.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1| Продолжительность: 01:15:18
+01. We Shall Dance
+02. Fire And Ice
+03. No Way Out
+04. My Reason
+05. Forever And Ever
+06. Velvet Mornings
+07. Goodbye My Love, Goodbye
+08. My Friend The Wind
+09. Schoes Madchen aus Arcadia(   Читать дальше...   )Жанр: PopПродолжительность: 01:17:25
+01. Kyrila
+02. Mourir Aupres De Mon
+03. Ainsi-Soit-Il
+04. Life In The City
+05. That Once In A Lifetime
+06. Loin Des Yeux, Loin Du Coeur
+07. The Wedding Song
+08. Lost In Love
+09. I Need You(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A312BE9BC879C207812AAC78F801A9A456239C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036607   (618907) от 21.07.2016
+
+ВИА Коробейники - Коробейники (2004) [FLAC|Lossless|image + .cue] <Советская эстрада, Ретро>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Золотые купола  "
+02. "Ой полным полна моя коробушка  "
+03. "Калинушка  "
+04. "Огромный мир  "(   Читать дальше...   )Жанр: Советская эстрада, РетроПродолжительность: 01:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F648F70EE2309ABF99BF644EB75CADCE378BC1BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230156   (618977) от 10.06.2018
+
+VA - The Mojo Machine Turns You On 1 (1997) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Напомню, что MOJO - это британский музыкальный журнал, выходящий ежемесячно и издающийся с 1993 года. Иногда он выпускает вот такие сборники групп и солистов, представленных в журнале. Как правило выпуск сопровождается достаточно интересным буклетом, являющимся как бы продолжением журнала. Сборники в продажу не поступают, а распространяются по подписке, о чем на (   Читать дальше...   )01. Gary Moore - Afraid of Tomorrow  (5:00)
+02. Steve Winwood - Fill Me Up  (4:27)
+03. Prefab Sprout - Whoever You Are  (2:49)
+04. John Mayall - Stone Cold Deal  (4:19)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FD550C67812BB5050B4099CE0420ED268C2E5E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036532   (618984) от 21.07.2016
+
+ABBA - The Album (1977) Reissue, Deluxe Edition, 2007, Polar [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_618984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eagle (5:53)
+02. Take A Chance On Me (4:07)
+03. One Man, One Woman (4:34)
+04. The Name Of The Game (4:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B4E81C9976FAF7A529FDCC6CEDA2D9DDDF362E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036732   (619094) от 21.07.2016
 
 Bruce & Bongo - 1 Albums, 3 Singles & EPs (1986-1992) [MP3|320 Kbps] <Electronic, Europop, Disco>
@@ -22,6 +182,8 @@ Bruce & Bongo (Брюс энд Бо́нго) — базировавшийся в
 ```bash
 magnet:?xt=urn:btih:12251F7D29D4E787C0D91743024C113246097FBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -50,6 +212,8 @@ Savage Garden - Savage Garden (1997) 2CD, Mixed [APE|Lossless|image + .cue] <Syn
 magnet:?xt=urn:btih:215EA7CA71DC9F16EB2462780D8596EE2AA36C02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +240,8 @@ VA - Главные песни о старом (2016) [FLAC|Lossless|image + .cu
 ```bash
 magnet:?xt=urn:btih:4C5C3AED4A7A39D1003EE2482D02D12C78EAE87E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +270,8 @@ Italove - The Album (Super Deluxe Promo) (2017) [MP3|320 Kbps] <Italo-Disco, Eur
 magnet:?xt=urn:btih:318CFA1F5FBFE3F6E026DD83B66F585E66711A91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +298,8 @@ Fun Fun - Greatest Hits & Remixes (2017) 2CD, Compilation [MP3|320 Kbps] <Italo-
 ```bash
 magnet:?xt=urn:btih:F901FA21EB45E6A6ACAB03233C17394B22DCFB88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +328,8 @@ magnet:?xt=urn:btih:F901FA21EB45E6A6ACAB03233C17394B22DCFB88
 magnet:?xt=urn:btih:2ABADF9B0C382B890443DAD68743B3B00E54F781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +356,8 @@ magnet:?xt=urn:btih:2ABADF9B0C382B890443DAD68743B3B00E54F781
 ```bash
 magnet:?xt=urn:btih:BB279E3E5618459D276212E83E18CB52FCA0CC1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +386,8 @@ magnet:?xt=urn:btih:BB279E3E5618459D276212E83E18CB52FCA0CC1D
 magnet:?xt=urn:btih:693911A097C4C2D6799308DA9729663089D59943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +414,8 @@ magnet:?xt=urn:btih:693911A097C4C2D6799308DA9729663089D59943
 ```bash
 magnet:?xt=urn:btih:FFB944EA6C9F19AC8D6DCAE2229BE00EC6E6B2B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +444,8 @@ magnet:?xt=urn:btih:FFB944EA6C9F19AC8D6DCAE2229BE00EC6E6B2B9
 magnet:?xt=urn:btih:6B0E4B603FACE49383A51AC4035187F22B6F2DE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +472,8 @@ magnet:?xt=urn:btih:6B0E4B603FACE49383A51AC4035187F22B6F2DE1
 ```bash
 magnet:?xt=urn:btih:5DA80F7645CA410BD9DB3AB12032182CED87484D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +502,8 @@ magnet:?xt=urn:btih:5DA80F7645CA410BD9DB3AB12032182CED87484D
 magnet:?xt=urn:btih:19CD0D2EA4403F836B51AE365F6E0B27F0A74A01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +530,8 @@ magnet:?xt=urn:btih:19CD0D2EA4403F836B51AE365F6E0B27F0A74A01
 ```bash
 magnet:?xt=urn:btih:12E713072CFA5B1469BC9AA5B87AEAC70C9EE121
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +560,8 @@ magnet:?xt=urn:btih:12E713072CFA5B1469BC9AA5B87AEAC70C9EE121
 magnet:?xt=urn:btih:F380371131A0ECFE02E9F2E9DE6215A35F9B9F5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +588,8 @@ magnet:?xt=urn:btih:F380371131A0ECFE02E9F2E9DE6215A35F9B9F5B
 ```bash
 magnet:?xt=urn:btih:8EBB2A225EDE31E44D2358CF2DF6E5C90DBC51CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +618,8 @@ Laid Back - Laidest Greatest (1995) [FLAC|Lossless|tracks + .cue] <Pop, Electron
 magnet:?xt=urn:btih:629DE2C94ACF4D1391ADDCC6E3D3CC3B2951AD09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +646,8 @@ Laid Back - Play It Straight (1985) Unofficial Release, 2003, Medley Records [FL
 ```bash
 magnet:?xt=urn:btih:321DA4499301FE530600757422EA0A797A1778CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +676,8 @@ magnet:?xt=urn:btih:321DA4499301FE530600757422EA0A797A1778CC
 magnet:?xt=urn:btih:1CC8E8FD1248DE1728F7448AC2FA1C45BD5F4DA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +704,8 @@ VA - Now That's What I Call Music! 102 (2019) 2CD, UK Series [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:58373F8CC3F9B5B49EDDC88CEBEE8BC01FCF52CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +734,8 @@ Boris Zhivago - The Best of Boris Zhivago (2019) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:AAE8C0F187E4FBF5170C241E6B412A1A9738D345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,140 +763,7 @@ VA - Sunlover Records Compilation Vol.3 - Italowave (2017) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:B3DAD15352FE6CBD2F210E019EABDCE32EAB725E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294974   (620759) от 12.04.2019
-
-Lalo Project - Твой путь (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Твой путь  (4:22)
-02 - Мечтания  (3:33)
-03 - Sea  (3:47)
-04 - Море  (3:47)(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:868FADF48C9BEF6966BCDCD273E682CA98B7E401
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294981   (620762) от 12.04.2019
-
-Lalo Project - Freak Hero (2013) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Listen to Me, Looking at Me  (3:45)
-02 - In This Moment  (3:45)
-03 - Never  (2:51)
-04 - My Sun  (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE93BA4BEEA4A608AADBA9EBBCC816406104B9DA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295333   (620767) от 12.04.2019
-
-Sara Bareilles - Amidst the Chaos (2019) [FLAC|Lossless|tracks + .cue] <Pop, Indie Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire (03:49)
-02. No Such Thing (03:57)
-03. Armor (04:27)
-04. If I Can't Have You (04:13)(   Читать дальше...   )Жанр: Pop, Indie Pop, Pop RockПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81986A3FB5FC03342DF4C5A13CD4CC26DDD92B8B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230008   (620878) от 09.06.2018
-
-Melanie C - Version Of Me (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dear Life (3:28)
-02. Escalator (3:22)
-03. Anymore (3:04)
-04. Something Gor The Fire (3:48)(   Читать дальше...   )Жанр: PopПродолжительность: 01:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC890421922F82601C707AD82F557E00B095281
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230020   (620879) от 09.06.2018
-
-Ivan Cattaneo - Bandiera Gialla (1983) CGD, Reissue, 1988 [FLAC|Lossless|image + .cue] <Italo-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Bambolina Che Fa No No (Une Poupee Qui Fait Non) 3:23
-02. Bang Bang (Al Cuore Bang Bang) 2:49
-03. Sono Bugiardo (I'm Believer) 3:08
-04. Ho Difeso Il Mio Amore (Nights In White Satin) 2:59(   Читать дальше...   )Жанр: Italo-Disco, Synth-popПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:051286872D6A335AB7D9FEAFF53B3B41C4468811
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

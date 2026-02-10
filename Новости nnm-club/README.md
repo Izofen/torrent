@@ -20,6 +20,8 @@ Palworld это приключенческая игра, где вы иссле�
 magnet:?xt=urn:btih:4C8656578274999AE4976DBD0FBEF22654963368
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:4C8656578274999AE4976DBD0FBEF22654963368
 ```bash
 magnet:?xt=urn:btih:2C8B808CC43669A682546382418BA668F77AAFFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Palworld предлагает находить и использовать пр�
 magnet:?xt=urn:btih:161D2CC93F700A83593B223DC36701E8073302A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Hitman: Blood Money / Hitman: Кровавые деньги (2006) [Ru] (1.2) Re
 magnet:?xt=urn:btih:322CCEBB1B86B45A344A8C148772DACFE0A0D94B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ MultiBoot 2k10 7.40 Unofficial [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7DF53ACA5774DEADBEE20445B78B979398E7562F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Vintage Culture - Culture Shock 001-146 (2021-2025) [MP3|320 Kbps] <House, Tech 
 magnet:?xt=urn:btih:2B059CAA5DB8731376978C923EB724C5AE31D518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:2B059CAA5DB8731376978C923EB724C5AE31D518
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Wartales - ролевое приключение в открытом мире, �
 magnet:?xt=urn:btih:C04329D79F92EC2A4D57975CECE2C0CE2809FFB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:C04329D79F92EC2A4D57975CECE2C0CE2809FFB5
 ```bash
 magnet:?xt=urn:btih:62CC2156856C865CD62B4BE5E9884D4B16637B81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Windows 10 Pro 22H2 19045.6332 x64 by SanLex [Lightweight] [Ru-En] (2025.09.25)
 magnet:?xt=urn:btih:1B18925852D7EE198DC26865A199E5928E4DA3C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:D78C54BD5A05D07C01E887C56DE5361D2F0D6E84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 magnet:?xt=urn:btih:E92E246A5E4431E0BB5BC74E0256A477D4B59E8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.1.0c/dlc) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:CC0CBBB3AF824DCA906401072B7D0D52D184A3A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:CC0CBBB3AF824DCA906401072B7D0D52D184A3A7
 magnet:?xt=urn:btih:00D97848883598FC37CA7ABD5B2C57AA8371A634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:00D97848883598FC37CA7ABD5B2C57AA8371A634
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Kingdom Come: Deliverance II – это продолжение культово
 ```bash
 magnet:?xt=urn:btih:CBB08FBF03CE948F1DCB6CF5EBD28C05DDAE396F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:CBB08FBF03CE948F1DCB6CF5EBD28C05DDAE396F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Witch Watch | Ведьмнадзор [2025, TV, 24 из 25 эп.] WEBRip 720 raw
 ```bash
 magnet:?xt=urn:btih:2BF65E2558BB0BE563E4436821369A351794DCF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:2BF65E2558BB0BE563E4436821369A351794DCF3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:2BF65E2558BB0BE563E4436821369A351794DCF3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Euro Truck Simulator 2 / С грузом по Европе 3 (2013) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:079C21117DBB3A6AE535A6E4BEB1E3BB0AB4B430
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Rutube объяснил: пиратский контент на хостинг �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Rutube объяснил: пиратский контент на хостинг �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Rutube объяснил: пиратский контент на хостинг �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Rutube объяснил: пиратский контент на хостинг �
 magnet:?xt=urn:btih:0B9C94C506F55EF11B939721FE53C6E0F75913F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Tempest Rising (2025) [Ru/Multi] (1.4.0+50185/dlc) Repack Let'sРlay [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:97754EA4913B42968038543791F7834429473C09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

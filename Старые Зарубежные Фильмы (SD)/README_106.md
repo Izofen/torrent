@@ -1,27 +1,3 @@
-###  Публикация: 1072486   (352006) от 13.11.2016
-
-Фантазм 2 / Phantasm II (1988) HDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_352006.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Верзила» возвращается! Смертельным вихрем мчится он по Западу США, окруженный на сей раз целым легионом Серебряных Сфер и демонов, ставших еще быстрее и опаснее.Только его противники, Майк и Реджи, способны сполна оценить угрозу, исходящую от зловещего мертвеца. Приняв в свою команду ясновидящую красавицу Лиз, друзья решают навеки покончить с «Верзилой». Если он (   Читать дальше...   )Производство: СШАЖанр: Ужасы, фантастика, фэнтези, боевик, триллерРежиссер: Дон КоскареллиАктеры: Джеймс ЛеГрос, Рэджи Бэннистер, Энгус Скримм, Паула Ирвин, Саманта Филлипс, Кеннет Тайгар, Рут С. Энджел, Марк Энтони Мейджор, Рубин Кушнер, Стэйси ТрэвисПеревод: Профессиональный многоголосый, авторскийСубтитры: ОтсутствуютПродолжительность: 01:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF71A3C92B7B2724D80385AC33625EC9FBF34AF4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 724079   (352285) от 19.11.2013
 
 Смысл жизни по Монти Пайтону / Monty Python's The Meaning of Life / The Meaning of Life (1983) HDRip [H.264]
@@ -43,6 +19,8 @@ magnet:?xt=urn:btih:EF71A3C92B7B2724D80385AC33625EC9FBF34AF4
 ```bash
 magnet:?xt=urn:btih:9D15274FDFA1FE3D160FBD86143D8C4497053CB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +46,8 @@ magnet:?xt=urn:btih:9D15274FDFA1FE3D160FBD86143D8C4497053CB0
 magnet:?xt=urn:btih:648415978574F1A756066ED17C9752C11DA5AF05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:648415978574F1A756066ED17C9752C11DA5AF05
 ```bash
 magnet:?xt=urn:btih:8F960990E8F6F699A91918BD97F7BBE42FC0DD1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:8F960990E8F6F699A91918BD97F7BBE42FC0DD1C
 magnet:?xt=urn:btih:B91580826D928BEF6CCDD74F1761B27CAAA5CFD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:B91580826D928BEF6CCDD74F1761B27CAAA5CFD5
 magnet:?xt=urn:btih:38DB4D954C85690708BA81B0A19FAE763F789913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:38DB4D954C85690708BA81B0A19FAE763F789913
 ```bash
 magnet:?xt=urn:btih:5FCFF99A297418B57449446595C0C1C77EDDF00E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +177,8 @@ magnet:?xt=urn:btih:5FCFF99A297418B57449446595C0C1C77EDDF00E
 magnet:?xt=urn:btih:7DABE31B670E63F5538B0FE2E8BCDEDC0C2ABF99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:7DABE31B670E63F5538B0FE2E8BCDEDC0C2ABF99
 ```bash
 magnet:?xt=urn:btih:7DC9FF0E033B2F56CD99004B5D86ABF927E8906F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +229,8 @@ magnet:?xt=urn:btih:7DC9FF0E033B2F56CD99004B5D86ABF927E8906F
 magnet:?xt=urn:btih:3CB84D8C91AE61BA07A0D1A107AC4D440E311391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:3CB84D8C91AE61BA07A0D1A107AC4D440E311391
 ```bash
 magnet:?xt=urn:btih:08B4326E91955D350B6CCE55C2C2823B15D9C62C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +282,8 @@ magnet:?xt=urn:btih:08B4326E91955D350B6CCE55C2C2823B15D9C62C
 magnet:?xt=urn:btih:DB604AA5AE262BAF4C509E78D7313739716F273D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:DB604AA5AE262BAF4C509E78D7313739716F273D
 ```bash
 magnet:?xt=urn:btih:CA01E21EEBA7663CEC7548D6102A1E351B8A6B4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:CA01E21EEBA7663CEC7548D6102A1E351B8A6B4D
 magnet:?xt=urn:btih:C5B5922A29C66C6C534DFB5204B010840129470B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:C5B5922A29C66C6C534DFB5204B010840129470B
 ```bash
 magnet:?xt=urn:btih:3C1FCF70AC7311669BF29DBF58B7F58A4BF56E7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:3C1FCF70AC7311669BF29DBF58B7F58A4BF56E7E
 magnet:?xt=urn:btih:561BCD4071BA632A3C7AAF72CA5740B66F03FA5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:561BCD4071BA632A3C7AAF72CA5740B66F03FA5B
 ```bash
 magnet:?xt=urn:btih:2D0CE429B0946B61F71C76EB5DA13C3FFC71A7B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:2D0CE429B0946B61F71C76EB5DA13C3FFC71A7B0
 magnet:?xt=urn:btih:B4F4F63A75F71F20AF4BD971920A3D77E65EE227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:B4F4F63A75F71F20AF4BD971920A3D77E65EE227
 ```bash
 magnet:?xt=urn:btih:31EC14E5F50A43FF79C9304CEC1B80D2EB1AFD9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +490,8 @@ magnet:?xt=urn:btih:31EC14E5F50A43FF79C9304CEC1B80D2EB1AFD9B
 magnet:?xt=urn:btih:A3ED0CB8F3652BA8380D6C85B440D9BE09553D76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:A3ED0CB8F3652BA8380D6C85B440D9BE09553D76
 ```bash
 magnet:?xt=urn:btih:0AFAC22C20FE778FB0A2770E039E2BE99BA17CE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +544,8 @@ magnet:?xt=urn:btih:0AFAC22C20FE778FB0A2770E039E2BE99BA17CE3
 magnet:?xt=urn:btih:47A19EEEF0CB8F68D7D8F4EA24F8172103866B5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +571,8 @@ magnet:?xt=urn:btih:47A19EEEF0CB8F68D7D8F4EA24F8172103866B5F
 magnet:?xt=urn:btih:FDDD1245AA28E4C1BBBA91BE4B30BDA33CF0AA2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +596,8 @@ magnet:?xt=urn:btih:FDDD1245AA28E4C1BBBA91BE4B30BDA33CF0AA2E
 ```bash
 magnet:?xt=urn:btih:22F4BF520723BBBA7EC7BF20E065E25E88F2A7CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +623,8 @@ magnet:?xt=urn:btih:22F4BF520723BBBA7EC7BF20E065E25E88F2A7CE
 magnet:?xt=urn:btih:5B28F81CA23FBFED2E0674E042877820A2B9E8FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +648,35 @@ magnet:?xt=urn:btih:5B28F81CA23FBFED2E0674E042877820A2B9E8FD
 ```bash
 magnet:?xt=urn:btih:75B70D014CCF8D939BC728D472B8C8ADAFF91D79
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256309   (356563) от 21.10.2018
+
+Полицейский (Легавый) / Un conde (1970) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_356563.jpg" />
+</div>
+
+
+###  Подробнее
+
+По рассказу Пьера-Виала Лезу "Смерть легавого".
+Расследуя убийство владельца бара, в перестрелке погибает честный полицейский. Понимая, что законными способами наказать убийц напарника невозможно, детектив Фавенен прибегает к незаконным…Производство: Франция, Италия / Empire Films, Stéphan FilmsЖанр: Триллер, Драма, КриминалРежиссер: Ив БуассеАктеры: Мишель Буке, Франсуаза Фабиан, Джанни Гарко, Мишель Константен, Энн Каррер, Рюфюс, Тео Сарапо, Анри Гарсен, Пьер Массими, Бернар ФрессонПеревод: Профессиональный (многоголосый закадровый)Субтитры: ОтсутствуютПродолжительность: 01:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64DE29479EAC5606A5DA62988C0B77B454884297
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

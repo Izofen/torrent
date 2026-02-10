@@ -19,6 +19,8 @@ BLACKSHARD предлагает игроку изучение от первог�
 magnet:?xt=urn:btih:B366009F27647BFE808FFD81FE7AC2A1000E6CF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/En] (1.12u
 ```bash
 magnet:?xt=urn:btih:3FF8B533C7D6E0D92B3EBCFA6885537AEC85EF6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ House of Lost Souls - это атмосферная сюжетная игра о
 magnet:?xt=urn:btih:7DC670E5DE80026CF4432A399A6E4B9B80723E06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Mother Hub (2025) [Ru/En] (16) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:0619724B1BB3D89359FEB311DBADAD1D2CFEFD91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Assassin’s Creed Единство - приключенческий экшн, �
 magnet:?xt=urn:btih:4CCB70C001240D8C4F69ADC81ACDE4A24C617780
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (Build 18281736) Repack Let's
 ```bash
 magnet:?xt=urn:btih:4B03C852FFC62F2B30BEC2D476215554C4BA5E8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ inZOI - игра в жанре симулятора жизни, в которо�
 magnet:?xt=urn:btih:F6EC9F419A2225DE662016E2D328D3E2523FD64C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Drive Beyond Horizons (2025) [Ru/Multi] (911) Repack Other s [Early Access]
 ```bash
 magnet:?xt=urn:btih:92974D7713C8AEDEC2C5DE0640AD7A0559A52541
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Once Upon A Puppet (2025) [Ru/Multi] (2.14.4.1/dlc) Repack seleZen
 magnet:?xt=urn:btih:6BEBC5DD26F0BE426F295433B9B5A949813AD14C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ FATAL FURY: City of the Wolves (2025) [Ru/Multi] (1.1.2-72904/dlc) Repack Wanter
 ```bash
 magnet:?xt=urn:btih:3DB2D5FFBC4F99D4D54FDD4F4A3D6F111D005A43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Survivalist: Invisible Strain (2020) [Ru/Multi] (242) Repack FitGirl
 magnet:?xt=urn:btih:3CD4018BB053CE322E7908C224FA8481674963F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/En] (1.12 
 ```bash
 magnet:?xt=urn:btih:57FEDE632A4D7E338B572F7FD6E9AAA8D29FE72B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Orphans (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:4A41C23D80721E1B7F2BE2FECA0154165729C8CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack FitGirl [Digital
 ```bash
 magnet:?xt=urn:btih:FA5CBFCA83F80CA010DA634420052507DADD00DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Last Man Survivor - мрачный roguelike, в котором вам пр�
 magnet:?xt=urn:btih:A3F1E977857A614C3F44A1D42E965AA7CC81DCFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Forgive Me Father 2 (2023) [Ru/Multi] (1.1.1.8) License GOG
 ```bash
 magnet:?xt=urn:btih:689844B8B920170FFDE18ADF3096645FD2E3DD24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Amerzone - The Explorer's Legacy (2025) [Ru/Multi] (1.0) Repack seleZen
 magnet:?xt=urn:btih:6A55A5E720566DAA086060EA8899E9672DD9A49A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ DRAGON BALL: Sparking! ZERO - продолжение легендарной се
 ```bash
 magnet:?xt=urn:btih:D05264550C229B60FD64F90021F7C928A994A8BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Viking Frontiers (2025) [Ru/Multi] (1.0.0) Repack FitGirl
 magnet:?xt=urn:btih:E46DDFD2E7FB672F7729E57058CEA505A3635867
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Travelers Refrain (2025) [En] (04) License GOG
 ```bash
 magnet:?xt=urn:btih:2C574AAFEDB7A49B45505EA4D23EE6897A045198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (1.10/dlc) Repack Wanterlude
 magnet:?xt=urn:btih:13CA7577791711B241B35E9588B4F8067DBC3066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Disciples: Освобождение - это история в жанре «тё
 ```bash
 magnet:?xt=urn:btih:1ECA885B3EBBB7444ABF7D016053B01CF44078E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ SWORD ART ONLINE Fractured Daydream - это захватывающее ново
 magnet:?xt=urn:btih:D6927CF329475823970FD378B101D5471628C59B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Steel Seed - захватывающая приключенческая экше�
 ```bash
 magnet:?xt=urn:btih:4D92275556D2BFEA4785BE64DFD61F3CAFF102D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Night Slashers: Remake - это возрождение классическог�
 magnet:?xt=urn:btih:2E38B6A85228F59D24314E197F587DD11D227EF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Hero's Hour – это простая, но захватывающая и мас
 ```bash
 magnet:?xt=urn:btih:4162F161D37089FF5A40433B96D62E2D1715ECAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

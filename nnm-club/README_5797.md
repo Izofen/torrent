@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1E90DBEC32324F72AB21E81AC5EE8E4DB7074D70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:1E90DBEC32324F72AB21E81AC5EE8E4DB7074D70
 magnet:?xt=urn:btih:C398B004D2863912B6006F0C2EC43A361D4BC033
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:C398B004D2863912B6006F0C2EC43A361D4BC033
 ```bash
 magnet:?xt=urn:btih:86E42FDC09917116EBB33258FD61C73892E13BCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Mod X - Secrets (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Ro
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ In Nightmare (2022) [Ru/Multi] (Build 9999022) Repack Other s
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ SQL для тестировщиков (2017)
 magnet:?xt=urn:btih:C5822C1BF3D083C693E8CAF75DA98AED47FC22D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:C5822C1BF3D083C693E8CAF75DA98AED47FC22D1
 ```bash
 magnet:?xt=urn:btih:91D7E1B31105B8440EA9BD34E4011E7A2AC2FD78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Twin Mirror (2020) [Ru/Multi] (1.0) Repack xatab
 magnet:?xt=urn:btih:56E45383D8DEB23887ECCD9BB8234608D09687C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:56E45383D8DEB23887ECCD9BB8234608D09687C3
 ```bash
 magnet:?xt=urn:btih:3EE6A03BAF9E6704FDD44019916C5B131AAA7CB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:3EE6A03BAF9E6704FDD44019916C5B131AAA7CB9
 magnet:?xt=urn:btih:F4D4C81159D7AE5BB502805E3B97136A076E997E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:F4D4C81159D7AE5BB502805E3B97136A076E997E
 ```bash
 magnet:?xt=urn:btih:359385B1CD523FBE8C456FA2F1E1E308062CF77A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ ESET Endpoint Security 7 — это комплексное решение для
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Yuusha, Yamemasu | I'm Quitting Heroing | Перестану быть герое
 ```bash
 magnet:?xt=urn:btih:713A17C8517CCE2607A741B4866F26CE30440FCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:713A17C8517CCE2607A741B4866F26CE30440FCA
 magnet:?xt=urn:btih:6616157CF48218A50AF08422B5B2E62B97F6C650
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:6616157CF48218A50AF08422B5B2E62B97F6C650
 ```bash
 magnet:?xt=urn:btih:E1EBC02EF7CB8205FEC64A7B8C90FF084E548D69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:E1EBC02EF7CB8205FEC64A7B8C90FF084E548D69
 magnet:?xt=urn:btih:FE10269AAC0712B4EB155EFB62C6BB7A7F45C648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ uTorrent Pro 3.6.0 Build 46590 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:31EE6A3965E2543F76B39C14EFF5768CF25B3A3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Poisonblack - Of Rust And Bones (2010) [FLAC|Lossless|image + .cue] <Gothic Meta
 magnet:?xt=urn:btih:3836B5358AB207421E2A2A15BAEB2F199F08A5FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:3836B5358AB207421E2A2A15BAEB2F199F08A5FA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ SysAdmin Software Portable v.0.6.4.0 by rezorustavi (Update 02.12.2022) [Ru]
 magnet:?xt=urn:btih:83948A31E1216C5AEB1F79DB943DF7C8E44BDCDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:83948A31E1216C5AEB1F79DB943DF7C8E44BDCDE
 ```bash
 magnet:?xt=urn:btih:CE1A2FF4C2C7B65440702AE18CCD794FEA6C9C5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ Deserta - Don't Dare Stop (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ Poisonblack - Escapexstacy (2003) [FLAC|Lossless|image + .cue] <Gothic Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ Cooking Simulator (2019) [Ru/Multi] (4.0.31/dlc) License CODEX
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ Cooking Simulator (2019) [Ru/Multi] (4.0.31/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:F20E05E456D6C70EE7C66F0C025502907255E87F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +687,8 @@ Planet VPN 1.4.05.01 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:89234C9B2EC5471F0559311AFF71321C657CDFC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:21305C3111CE80E08A933F0E297620007BF0E55B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:21305C3111CE80E08A933F0E297620007BF0E55B
 magnet:?xt=urn:btih:1EC44024F0601C1123E416425C2FB2060FFC3705
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:1EC44024F0601C1123E416425C2FB2060FFC3705
 ```bash
 magnet:?xt=urn:btih:F3DAFA4920FCBC00521780455201565C6395EAE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:F3DAFA4920FCBC00521780455201565C6395EAE7
 magnet:?xt=urn:btih:AF443B44960592110032FE2AC8FEF3D62F0C4D4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:AF443B44960592110032FE2AC8FEF3D62F0C4D4A
 ```bash
 magnet:?xt=urn:btih:2341A37C9A56E1919EDEABFE023B0D01DDE397C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:2341A37C9A56E1919EDEABFE023B0D01DDE397C9
 magnet:?xt=urn:btih:2FB3BA6E1A5F72C3974F3E891A298863A467651B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:2FB3BA6E1A5F72C3974F3E891A298863A467651B
 ```bash
 magnet:?xt=urn:btih:12385A425B37886F07030700C7208CE786F79BF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:12385A425B37886F07030700C7208CE786F79BF3
 magnet:?xt=urn:btih:E9960C210FC27FF09A50F227373B0FB1B7391887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:E9960C210FC27FF09A50F227373B0FB1B7391887
 ```bash
 magnet:?xt=urn:btih:E9F75D43070F8C584AA15C396165A041417B6E55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:E9F75D43070F8C584AA15C396165A041417B6E55
 magnet:?xt=urn:btih:4E52249413E48E9FA4748715AD94D3B59634F0A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:4E52249413E48E9FA4748715AD94D3B59634F0A5
 ```bash
 magnet:?xt=urn:btih:EAA6FF281C2C6B7243B0A6CA02760DF0DA8D89C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:EAA6FF281C2C6B7243B0A6CA02760DF0DA8D89C0
 magnet:?xt=urn:btih:5518E2F9BBFC89618B0F8C1273EC229317C605A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:5518E2F9BBFC89618B0F8C1273EC229317C605A6
 ```bash
 magnet:?xt=urn:btih:29F3F535C2BBB3E4986CEB936A8CBFBCE70DFAF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,34 @@ magnet:?xt=urn:btih:29F3F535C2BBB3E4986CEB936A8CBFBCE70DFAF6
 magnet:?xt=urn:btih:BBE12C7A03160693E1DABC3DB449AA85C4B48DF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 7340   (344236) от 08.11.2014
+
+Новая Москва (1938)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_344236.jpg" />
+</div>
+
+
+###  Подробнее
+
+О приключениях юного изобретателя-провинциала, приезжающего в Москву с макетом тотальной реконструкции столицы. В финале механизм макета заедает и начинается грандиозный аттракцион — движение идет обратным ходом, и на месте новых дворцов возникают снесенные храмы во главе с Христом-Спасителем. Показ фильма был запрещен.Производство: СССРЖанр: комедияРежиссер: Александр МедведкинАктеры: Мария Блюменталь-Тамарина, Даниил Сагал, Нина Алисова, Мария Барабанова, Павел Суханов, Александр Граве, Лидия СмирноваПеревод: ОригинальныйПродолжительность: 01:16:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:BBE12C7A03160693E1DABC3DB449AA85C4B48DF3
 ```bash
 magnet:?xt=urn:btih:EAC3F903D98581019608306D050BD1155F49A252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:EAC3F903D98581019608306D050BD1155F49A252
 magnet:?xt=urn:btih:EB3B4B2A6627E3053DABCC2B647B785CF3A2BA0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:EB3B4B2A6627E3053DABCC2B647B785CF3A2BA0E
 magnet:?xt=urn:btih:DE0D1C1815B2E777D72A1096F0EB8E3D62AE1913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:DE0D1C1815B2E777D72A1096F0EB8E3D62AE1913
 ```bash
 magnet:?xt=urn:btih:4178B6FF6EB4C17E9F9B8485C407805909D674D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:4178B6FF6EB4C17E9F9B8485C407805909D674D4
 magnet:?xt=urn:btih:9CA7237CF0A053B60DC1252F42D89904B5D0336C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:9CA7237CF0A053B60DC1252F42D89904B5D0336C
 ```bash
 magnet:?xt=urn:btih:A79A6A7B4C59CD571BEE4CDA453B3DDE5C5B3BAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:A79A6A7B4C59CD571BEE4CDA453B3DDE5C5B3BAB
 magnet:?xt=urn:btih:0439F2613B028B609C04FBF4D84DBFFFCC4D1702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:0439F2613B028B609C04FBF4D84DBFFFCC4D1702
 ```bash
 magnet:?xt=urn:btih:72C45603C5E116B0F27EFA9A84241275234ED2FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:72C45603C5E116B0F27EFA9A84241275234ED2FC
 magnet:?xt=urn:btih:8AE6E297E1A5E2ED83954FFBBF149DB8F322E7E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:8AE6E297E1A5E2ED83954FFBBF149DB8F322E7E3
 ```bash
 magnet:?xt=urn:btih:E1E5128456B31A4516187F7E60C2B4103C103077
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:E1E5128456B31A4516187F7E60C2B4103C103077
 magnet:?xt=urn:btih:8B18A172DF45CD4797DCC7C87633B99B1A21D89F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953439   (346616) от 05.11.2015
-
-Урок жизни (1955) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_346616.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наташа бросает учебу в пединституте и едет с Сергеем на стройку. Успехи мужа делают его все более самоуверенным и грубым. Она же чувствует себя одинокой и чужой в собственной семье. Наступает момент, когда Наташа уже не может примириться ни с бесполезностью своей жизни, ни с его вероломством. Она уезжает, завершает учебу в институте и становится учительницей. Но (   Читать дальше...   )Производство: СССР, МосфильмЖанр: ДрамаРежиссер: Юлий РайзманАктеры: Валентина Калинина, Иван Переверзев, Ольга Аросева, Георгий Куликов, Маргарита Юрьева, Виктор Авдюшко, Ирина Акташева, Федор Шиманский, Евгений Весник, Андрюша МихайловПродолжительность: 01:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4C5A7D3F68643CD2F749F8D59A2D88A6D510AD8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

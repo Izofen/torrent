@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BCA2D6C1BCF9D2350E3DB1F900FF2E1F3A45BE5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:BCA2D6C1BCF9D2350E3DB1F900FF2E1F3A45BE5E
 magnet:?xt=urn:btih:35CCD973636F24ED1CA9AF20A632E24409B9BE72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Playboy — легендарный журнал для мужчин, основ�
 ```bash
 magnet:?xt=urn:btih:B1C2C8D34A84E050F393BFF5A6AABA19154BE871
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Hour 1:
 magnet:?xt=urn:btih:B0DEE6A43050D6F3E0B7FB97BE50714F20026441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:B0DEE6A43050D6F3E0B7FB97BE50714F20026441
 ```bash
 magnet:?xt=urn:btih:1EE39235E6747F926105D0EA23DF3F6B6F34EBD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:1EE39235E6747F926105D0EA23DF3F6B6F34EBD2
 magnet:?xt=urn:btih:220240A7695E039EF2E5C35C3DA3E9CD30ED7C08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ magnet:?xt=urn:btih:220240A7695E039EF2E5C35C3DA3E9CD30ED7C08
 magnet:?xt=urn:btih:02BA226490E9B5D5CF96E86E30D89A49943602E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ MKVToolnix - специальный аудио/видео контейнер, п
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +256,8 @@ Dynazty - Дискография (2009-2012) три альбома [MP3|320 kbps
 magnet:?xt=urn:btih:3D415755DCA21F3B98C17D9776F889B0B51EA39E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ magnet:?xt=urn:btih:3D415755DCA21F3B98C17D9776F889B0B51EA39E
 ```bash
 magnet:?xt=urn:btih:DC8540E3D770A7147DA42F2DC8FCA362B5DF12B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +316,8 @@ Talamasca - Made In Trance (2004) [APE (image+.cue)|Lossless]<Psychedelic / Full
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +350,8 @@ Duotekk - Dunamis (2011) [MP3|320 кб/с]<Psy-Progressive>
 magnet:?xt=urn:btih:B6174FBDC9D4F61E875CA8817DF79A474B8B1EFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +376,8 @@ magnet:?xt=urn:btih:B6174FBDC9D4F61E875CA8817DF79A474B8B1EFB
 magnet:?xt=urn:btih:E80948BF2C4D26138C51BE5466A2E2F21EC44F3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +401,8 @@ magnet:?xt=urn:btih:E80948BF2C4D26138C51BE5466A2E2F21EC44F3C
 ```bash
 magnet:?xt=urn:btih:CB8D476575EFA23E2C1824F90BDAC9AA08B681CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +431,8 @@ magnet:?xt=urn:btih:CB8D476575EFA23E2C1824F90BDAC9AA08B681CC
 ```bash
 magnet:?xt=urn:btih:662939B079F888BCD9B7FF496181616B7E3409B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +467,8 @@ Jungle Rot - Kill On Command (2011) [MP3|320 кб/с]<Death Metal>
 magnet:?xt=urn:btih:6D6F3250A978175C949D44821914669F66C92E41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +498,8 @@ magnet:?xt=urn:btih:6D6F3250A978175C949D44821914669F66C92E41
 magnet:?xt=urn:btih:ED4A011C6FD5DC9E5D517ACE7C7D8E895EC34FC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +528,8 @@ magnet:?xt=urn:btih:ED4A011C6FD5DC9E5D517ACE7C7D8E895EC34FC6
 magnet:?xt=urn:btih:736FCB50EF206A441F5887CD7B4B2B893FB879AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +553,8 @@ magnet:?xt=urn:btih:736FCB50EF206A441F5887CD7B4B2B893FB879AD
 ```bash
 magnet:?xt=urn:btih:DC2DD8DD8F082EE7F687C6E3B23A5B90EEE7E9A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +589,8 @@ Myon and shane 54 - International departures 119 (2012) [MP3|320 кб/с]<Trance
 magnet:?xt=urn:btih:908C7842400006E33A33C52C7DCD479D383592B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +624,8 @@ VA - Greenosophy (2012) [MP3|~237 кб/с (V0)]<Ambient , Downtempo , Electronic
 magnet:?xt=urn:btih:0074188B6297D246CCCF51134D0B185CBF64B66E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +654,8 @@ magnet:?xt=urn:btih:0074188B6297D246CCCF51134D0B185CBF64B66E
 magnet:?xt=urn:btih:538F42E4878A650DC7D6987711F9CD6B33634943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +679,8 @@ magnet:?xt=urn:btih:538F42E4878A650DC7D6987711F9CD6B33634943
 ```bash
 magnet:?xt=urn:btih:2C60840CAA5EB9B2EA72F35A334D25BF6E1A4B2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +713,8 @@ Symphonix - The Usual Suspects Remixes (2011) [MP3|320 кб/с]<Psy-Progressive>
 magnet:?xt=urn:btih:C175591FCACFDA02112B0CA4C1FEBA129CA16320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +738,8 @@ magnet:?xt=urn:btih:C175591FCACFDA02112B0CA4C1FEBA129CA16320
 ```bash
 magnet:?xt=urn:btih:A205DE13D3902896CABE467E25B67A88784DC2C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -723,6 +773,8 @@ AFFKT - Punto 0 (2012) [MP3|320 кб/с]<Minimal,Tech House,Deep House>
 ```bash
 magnet:?xt=urn:btih:E597C66839AA0E9D031D80E72769FDEE8D05928C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 940272   (469334) от 24.09.2015
+
+В теме. США и КНР (2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_469334.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Москве следят за исторической встречей в США. В страну с визитом прибыл лидер КНР Си Цзиньпин. Поездка направлена на укрепление доверия и сотрудничества между крупнейшими экономиками мираТелекомпания: Москва ДовериеЖанр: ДокументальныйПродолжительность: 00:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A61CD3627D574BDB5F936CFA3F253072ECECC723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940389   (469354) от 24.09.2015
 
 Линия защиты. Парниковый эффект (2015.09.23) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:359E754BFD43C4A3A02BE1227DF406D15230EB7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:359E754BFD43C4A3A02BE1227DF406D15230EB7D
 magnet:?xt=urn:btih:7DE86091567378B7CF41FE5DA8BCBDF0335114E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:7DE86091567378B7CF41FE5DA8BCBDF0335114E0
 ```bash
 magnet:?xt=urn:btih:7A4DF2E9ECF0AC919ABA1344183D360FC4CF5807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:7A4DF2E9ECF0AC919ABA1344183D360FC4CF5807
 magnet:?xt=urn:btih:10DDF54E017C98719D9A75309FDEB819F0A1467A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:10DDF54E017C98719D9A75309FDEB819F0A1467A
 ```bash
 magnet:?xt=urn:btih:7982E0BAADE7DFD98FBB47359077919E2087F77D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:7982E0BAADE7DFD98FBB47359077919E2087F77D
 magnet:?xt=urn:btih:560E9E78F4C8AD8264AE957A450DC29E8F7FD2A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:560E9E78F4C8AD8264AE957A450DC29E8F7FD2A2
 ```bash
 magnet:?xt=urn:btih:6A11A6437E98694574202627BBCACD6AB0F37355
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:6A11A6437E98694574202627BBCACD6AB0F37355
 magnet:?xt=urn:btih:06A7C1230AA06A73FB7C838F36A042F2654351DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:06A7C1230AA06A73FB7C838F36A042F2654351DF
 ```bash
 magnet:?xt=urn:btih:55AC429E9887E714C01FAF98B86F22C195888418
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:55AC429E9887E714C01FAF98B86F22C195888418
 magnet:?xt=urn:btih:EF6E4B2A0D9226462A1DFA8644328DF28858D2FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:EF6E4B2A0D9226462A1DFA8644328DF28858D2FA
 ```bash
 magnet:?xt=urn:btih:9AFB82CBDE4B53641E4144C1A08639A290666C28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:9AFB82CBDE4B53641E4144C1A08639A290666C28
 magnet:?xt=urn:btih:6A0BADB75041FFA38D9314E7E8D781A8F4ED272B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:6A0BADB75041FFA38D9314E7E8D781A8F4ED272B
 magnet:?xt=urn:btih:E6472C40BDF6AD778381102352D64BFFF37B72FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:E6472C40BDF6AD778381102352D64BFFF37B72FC
 ```bash
 magnet:?xt=urn:btih:6A1FA493793EC8758C77AA32D17335FE406AAA1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:6A1FA493793EC8758C77AA32D17335FE406AAA1B
 magnet:?xt=urn:btih:1DF9F20BFCDE7BC1D4D6C36A24C459324C336FDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:1DF9F20BFCDE7BC1D4D6C36A24C459324C336FDC
 ```bash
 magnet:?xt=urn:btih:C9F929AFF85AF7D20E723CB7F51159B17A519213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:C9F929AFF85AF7D20E723CB7F51159B17A519213
 magnet:?xt=urn:btih:616E8C95FC9B8C7F1A5067C7D3D75A69566AD14C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:616E8C95FC9B8C7F1A5067C7D3D75A69566AD14C
 ```bash
 magnet:?xt=urn:btih:6D1082D8F509DDB7472D8AE25FA9C6FB0F26A468
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:6D1082D8F509DDB7472D8AE25FA9C6FB0F26A468
 magnet:?xt=urn:btih:2676AC0261E818EF2A3D48B2603701A87199F891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:2676AC0261E818EF2A3D48B2603701A87199F891
 ```bash
 magnet:?xt=urn:btih:10A5C969C58F99C2142CF268423E319877A39D41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:10A5C969C58F99C2142CF268423E319877A39D41
 magnet:?xt=urn:btih:1C8923A8C845BAFF6123ED8CA8366BB8904C5D0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:1C8923A8C845BAFF6123ED8CA8366BB8904C5D0D
 magnet:?xt=urn:btih:C492E81CDB27C4569D72BC25535F924B3F3E8BDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:C492E81CDB27C4569D72BC25535F924B3F3E8BDF
 ```bash
 magnet:?xt=urn:btih:108AD01FFA4EEABA0B91BB254B15C0B7685659CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:108AD01FFA4EEABA0B91BB254B15C0B7685659CD
 magnet:?xt=urn:btih:635F0EF4645D3059B49A79DEE42D29E578076E2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:635F0EF4645D3059B49A79DEE42D29E578076E2B
 magnet:?xt=urn:btih:455CA8124B5FF652617C299C69EB0F18CA1E5F5E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406992   (470589) от 05.09.2020
-
-Эрик Клэптон: Жизнь в 12 тактах / Eric Clapton: Life in 12 Bars (2017) DVB [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_470589.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Клэптон — бог». Весь Лондон исписан такими граффити, а Эрик давно стал настоящим героем гитарной музыки. Это один из величайших музыкантов — единственный, кто трижды был включен в Зал славы рок-н-ролла, обладатель 18 премий "Грэмми" и известный всем как один из величайших исполнителей всех времен. Фильм дает возможность проследить за жизнью и карьерой (   Читать дальше...   )Телекомпания: Великобритания / Passion PicturesЖанр: Документальный, Биография, МузыкаРежиссер: Лили Фини ЗанукПеревод: Двухголосый профессиональныйСубтитры: Русские (Teletext)Продолжительность: 02:02:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2D8F77B21D25C0A083DF7437EC54AD66A44C8AD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

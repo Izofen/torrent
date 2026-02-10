@@ -19,6 +19,8 @@ SlimBrowser – браузер, построенный на базе Mozilla Fir
 magnet:?xt=urn:btih:0B5FAD43ACCEC965BE37C8283D492F05A535FA35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Soulver предназначен для «быстрой математики» 
 ```bash
 magnet:?xt=urn:btih:861B3C341647FF3DDB11A2BE4B173ADE5B226067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Script Debugger предлагает пользователям всё, что �
 magnet:?xt=urn:btih:529F88E4CD22512CA3EDD5E80F09498606998CFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Adguard — это лучший способ избавиться от разд�
 ```bash
 magnet:?xt=urn:btih:66F601B8155EEE26BB9501ED6D753A8E0F68BC3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Yate был разработан для людей, которые серьез�
 magnet:?xt=urn:btih:23E8068B729C7F6E0796000FA86CF23330CAAF68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Skylum Luminar AI 1.0.0.7326 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:D4F699807010A7293A10DF0616EB3D9B48070D4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:34C2983ABABE6340514EF40F4982E6B32D3435B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Text Workflow 1.7.1  [En]
 magnet:?xt=urn:btih:71AC04B381EEAEFF7D1A37070BDD15F9EF80F706
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ System Toolkit - приложение «все-в-одном» для монит
 magnet:?xt=urn:btih:EE3FAC29E4872E4141ABCBE6518D518B31B8031F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ GoodSync - программа из серии высоконадежного, у
 ```bash
 magnet:?xt=urn:btih:A5E4F2067B03D34F17E7D82B09464B5A756EEEB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Untouch 1.2.1 [En/Ru]
 magnet:?xt=urn:btih:859AE2F0730FEE0101D019B35487CBFA8C76AC3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ xScope — cоздан специально для дизайнеров и ра�
 ```bash
 magnet:?xt=urn:btih:21BA8A18884B2667D66B77E9172A5098A410374C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ PaintCode 3 v3.5.0 [En]
 magnet:?xt=urn:btih:4EB1723EDD46D439DE1454C9FB651C8F8EFE2C4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ MarsEdit 4 v4.5.6 [En]
 ```bash
 magnet:?xt=urn:btih:5BE8F70FCA7C3EBE49E499D24E95887B2414CA30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Image Resizer – Resize Photos  полезный и эффективный ин
 magnet:?xt=urn:btih:276D8BDFBA08949A1ACE091BBD4B1DABCFD6DC48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Awaken — программа-будильник, которая позволи�
 magnet:?xt=urn:btih:87DC875FE1DC9932AA06FDDABF02F66E7288B3CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Cent Browser является усовершенствованной верси�
 ```bash
 magnet:?xt=urn:btih:794A8872459501975AD8C166AC76D492206880A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ FastScripts - Утилита для быстрого запуска AppleScript-
 magnet:?xt=urn:btih:4C90DB88F093299F740CC0EF9B7ADB7C08976420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ CleanMyMac X — это пакет «все в одном», который сд
 ```bash
 magnet:?xt=urn:btih:34C323225065ACA904200893791E0E7483E2D9F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Smultron - простой и удобный редактор. Smultron - про�
 magnet:?xt=urn:btih:FCFED890CE89F556C4E2702A117EB8E1082049AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ VA - A Strangely Isolated Place 2019 (2019) ASIP [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:ADBA2083EAB3F22FCA689B317F953919742627F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ Ink2Go - интересное приложение, которое позвол�
 magnet:?xt=urn:btih:F59F0126894D56A31A70E641FECC88901147D1E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ PC HelpSoft Driver Updater автоматически сканирует раз�
 ```bash
 magnet:?xt=urn:btih:10340A39A53A04DB9197BC577AB7192CDA2F404A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Scrollow позволяет управлять различными параме
 magnet:?xt=urn:btih:717EC088C3D2EFB84695BDFB97ADF3ED268B3B60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:9AD1EBC578859E28DF28AA9D4C9BBBBD824A8FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Opera 65.0.3467.69 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:EC901FE1B745E92CAEFBBDB1A4630FF56CD93CAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

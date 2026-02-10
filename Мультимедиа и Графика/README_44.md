@@ -19,6 +19,8 @@ Aiseesoft Video Enhancer – набор инструментов для улуч
 magnet:?xt=urn:btih:783C91BC04705A756A7BCD5483723BE922B97DBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PhotoDiva - программа для ретуши портретных фото
 ```bash
 magnet:?xt=urn:btih:BA9CDA49E0C47AC4B7B4D33E56208C23CD90D318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PT Portrait - это графический редактор, предназна
 magnet:?xt=urn:btih:3608FA0CC70088BBC61AD19B7CCFBDA54976B7F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:3608FA0CC70088BBC61AD19B7CCFBDA54976B7F8
 magnet:?xt=urn:btih:8D602044F0A35027B024E1530253089259C40218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ LibFredo6 — это общая библиотека плагинов, испо�
 ```bash
 magnet:?xt=urn:btih:D6A75CECF1F1A0F085CC0903D3539760E866F056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ PhotoDiva — одна из лучших программ для ретуши п
 magnet:?xt=urn:btih:F10623276068A9EF1E7828C20472BC126A3CC228
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Tipard Video Converter Ultimate - профессиональная програ�
 ```bash
 magnet:?xt=urn:btih:85F6126F78340A0F907909ED19D0E2A33B45C2C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:85F6126F78340A0F907909ED19D0E2A33B45C2C0
 magnet:?xt=urn:btih:B15F2286D581DCA3502FCFD3C42544C70950EC91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ BluffTitler - программа для создания красивых тек
 ```bash
 magnet:?xt=urn:btih:35FD6A9CC03882F52882473F3D8923C8A274F539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ CrazyTalk — программа для анимации в реальном в�
 magnet:?xt=urn:btih:778053D72CE102A530A98226383A8564FA14AFEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Franzis SHARPEN Video #2 - программа созданная по анало
 ```bash
 magnet:?xt=urn:btih:0001C463C51D98E33C4B8C2D720AABF904A26D5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ XviD4PSP - универсальный пакетный аудио/видео к�
 magnet:?xt=urn:btih:560388D6486413BCA9FF8E9044621ABACE52BCB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Adobe Animate, пришедший на смену Flash Professional - это м
 ```bash
 magnet:?xt=urn:btih:96AD873424442C14725C8CCA245794844E94986A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Franzis SHARPEN projects гарантирует чёткие фотографи�
 magnet:?xt=urn:btih:2FB29E102F8D4B3814E6BFDB5A45D13E784CD5B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Cyberlink PhotoDirector Ultra — многофункциональный ред�
 ```bash
 magnet:?xt=urn:btih:0C82D8C18AA0D15CC43D58BBEB53020F8E9E6FBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Kirchhoff-EQ — это совершенный 32-полосный параме�
 ```bash
 magnet:?xt=urn:btih:F8868676B45E235F070C5F94A8ABDB14BE418639
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ MPV Player - Dolby Vision, HDR to SDR Mode Portable 0.35.1 (x64) RePack by Adven
 magnet:?xt=urn:btih:00FBBE1ABAC67F130AE3C9BD933A496C21B99EF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:00FBBE1ABAC67F130AE3C9BD933A496C21B99EF8
 ```bash
 magnet:?xt=urn:btih:08DB82505F9A1957DDB8ABDD344C839EBEC81FBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Movie To GIF — это простой в использовании конве�
 magnet:?xt=urn:btih:97F14DADC7B8DF6DFD892BEF3078A568A773CAB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ PhotoEQ - программное обеспечение для улучшени�
 ```bash
 magnet:?xt=urn:btih:CEEDE03D477CC735BB1C86378C632BC05ADE3115
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Pulsar 8200 — это точная имитация легендарного GM
 magnet:?xt=urn:btih:900A6C2DFA0AB385F3501CD7C4C4A9A8C609F071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Apowersoft ApowerCompress  - программа для сжатия изобра
 ```bash
 magnet:?xt=urn:btih:04763DBC9EF30283191663FC25E978224A2F26A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Serato DJ – продукт, ориентированный как на про�
 magnet:?xt=urn:btih:0BCF677F77937B8567B7BC7A082E3F952B88D1BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ DTS-HD Encoder – средство для кодирования потоков
 ```bash
 magnet:?xt=urn:btih:91F1B56DEFA8EF473BB42DBF218C8A7E9C5A8CF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Catalyst Production Suite — это пакет мощных инструмен�
 magnet:?xt=urn:btih:3F335EB1C48244A1F9347030BF6629DFAE32E112
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Exoside QuadRemesher 1.2.1 for 3ds Max [En]
 ```bash
 magnet:?xt=urn:btih:F8561C60B897840AAC6116180BEBF5E99364126A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

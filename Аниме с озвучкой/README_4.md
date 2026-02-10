@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:495077DBECE3EB7755CB779F0DC6243EA3973D89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Senpai wa Otokonoko | Senpai is an Otokonoko | Моя Сэмпай — Паре�
 ```bash
 magnet:?xt=urn:btih:25D22B664DE679F0448CB8291D473D72EF38649E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Arifureta Shokugyou de Sekai Saikyou Season 3 | Arifureta: From Commonplace to W
 magnet:?xt=urn:btih:B426AD3503A7275BD26EBCE645F31A366BF12D61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Renai Flops | Love Flops | Любовные неудачи [2022, TV, 12 из 12
 ```bash
 magnet:?xt=urn:btih:67E199BE46A74C9D14ECCFEBF15715085309D9C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Kanojo ga Koushaku-tei ni Itta Riyuu | Why Raeliana Ended Up at the Duke's Mansi
 magnet:?xt=urn:btih:302337D31ADC4ED11B788F37700A97ED24B89EF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Ji Jia Shou Shen: Baolie Feiche 5 | Screechers Wild 5! | Дикие Скриче
 ```bash
 magnet:?xt=urn:btih:0D1AD50E2C07CE89362E270DFA9922A393ACA98D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Dan Da Dan (2025) | Дандадан [ТВ-2] [2025, TV, 12 из 12] WEB-DL 1080
 magnet:?xt=urn:btih:89175EA06A9A0F545C0337A36E991DE9FEF63D67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Black Clover (2017) | Чёрный клевер [ТВ-1] [2017, TV, 170 эп. + 
 ```bash
 magnet:?xt=urn:btih:B341CEE2EF639DA14A18876C4EFBF3EBAFE7B398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:B341CEE2EF639DA14A18876C4EFBF3EBAFE7B398
 magnet:?xt=urn:btih:3376C5974DDDB778BB78C62FD1D5D76C58010DC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:3376C5974DDDB778BB78C62FD1D5D76C58010DC4
 magnet:?xt=urn:btih:AC5942A0B2C7CEC118E8E64FF608C9C696B6648A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ Blue Lock | Синяя тюрьма: Блю Лок [ТВ-1] [2022, TV, 24 из 2
 ```bash
 magnet:?xt=urn:btih:1BB25B9D59F5160B8C6C18CC6A4F19283DF8A2B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ Atri: My Dear Moments | Atri -My Dear Moments- | Атри [2024, TV, 13 из 13]
 magnet:?xt=urn:btih:DC07C0033B3B8FA406FCD44FE0AC10AC79291891
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Kimetsu no Yaiba: Katanakaji no Sato Hen | Demon Slayer: Swordsmith Village Arc 
 ```bash
 magnet:?xt=urn:btih:6E788D7BC53AFC8B43C52A490CEBA33DB0FB0304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:6E788D7BC53AFC8B43C52A490CEBA33DB0FB0304
 magnet:?xt=urn:btih:0CCAC7C24D0E276FE5F296E106C1127D8824A1CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:0CCAC7C24D0E276FE5F296E106C1127D8824A1CB
 ```bash
 magnet:?xt=urn:btih:6C4946F789314F08AC5B3776600351F0B55904E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ Maou 2099 | Demon Lord 2099 | Повелитель демонов 2099 [2024, TV
 ```bash
 magnet:?xt=urn:btih:D46BA4E9260FE0AEBD9665E5533CA385336C04C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ Gekijouban Bishoujo Senshi Sailor Moon Cosmos | Pretty Guardian Sailor Moon Cosm
 magnet:?xt=urn:btih:923A818994B2DE3BFD751D1ABEB6A6434235C368
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ Dan Da Dan | Дандадан [2024, TV, 12 из 12] WEBRip 396p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:7D0110EE57FCB72C61902C278C4410FC66A3E93B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:7D0110EE57FCB72C61902C278C4410FC66A3E93B
 magnet:?xt=urn:btih:307BF796CBB689C94A973B2A65FA53F9D6BA8FFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:307BF796CBB689C94A973B2A65FA53F9D6BA8FFA
 magnet:?xt=urn:btih:9B0850841648A4740809B1B53963D20FFAE3C6AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:9B0850841648A4740809B1B53963D20FFAE3C6AE
 ```bash
 magnet:?xt=urn:btih:087B7FA4994F197BD392E2050521CBE5D1FB9239
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ magnet:?xt=urn:btih:087B7FA4994F197BD392E2050521CBE5D1FB9239
 magnet:?xt=urn:btih:323E0B9F2A36BA6D9F56ECB0D099F7573865A3F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ Giji Harem | Pseudo Harem | Псевдогарем [2024, TV, 12 из 12] BDRip 
 magnet:?xt=urn:btih:3F0F5241AA901455F232E24B2A7C1D10BD488B5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ Aлиcия — cтapшaя дoчь знaтнoй ceмьи Уильямc, кoтopa�
 ```bash
 magnet:?xt=urn:btih:2397D652553914D9651369B4BB786F144EA112FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:2397D652553914D9651369B4BB786F144EA112FF
 magnet:?xt=urn:btih:288228C3F3342C77F78D0145514B857B39C5A516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:288228C3F3342C77F78D0145514B857B39C5A516
 ```bash
 magnet:?xt=urn:btih:45A5013C8F3B88EC41EDF9102C0F3F9B1DF83DD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

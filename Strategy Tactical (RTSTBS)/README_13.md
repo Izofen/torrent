@@ -19,6 +19,8 @@ Final Theory - это пошаговая стратегия, в которой �
 magnet:?xt=urn:btih:AFB9DA7AF79AEA60AA8358FDDF085456D76A57D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Frozen Synapse: Prime - трехмерный наследник популярн
 ```bash
 magnet:?xt=urn:btih:7CF08E3BFF2932C81E0746DE20FDCB039181E77A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Black and White Антология [Ru/En] (RePack) 2001-2006 | R.G. ReCoding
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Men of War: Condemned Heroes / Штрафбат [Ru] (Rip/1.00.2) 2012 | Audiosl
 magnet:?xt=urn:btih:3E8DAB2290BAD63096BA24CC8DE3272A6599F901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Battlestar Galactica Deadlock (2017) [Ru/Multi] (1.3.85/dlc) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:E85F5B0F55A5DD181E15FFB70F862B0FA9D428B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Winter Ember (2022) [Ru/Multi] (1.6.0_526e457) License GOG
 magnet:?xt=urn:btih:E71EA16E9ACC9453D49C65105A7667877E3B9DF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Worms W.M.D (2016) [Ru/Multi] (1637.583366/dlc) License RELOADED
 ```bash
 magnet:?xt=urn:btih:95507F0E72D899D5C975AF56046B817F20FFEB82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Battlefleet Gothic: Armada – стратегия в реальном време
 magnet:?xt=urn:btih:2CD238A54EA1133371CC3459A9C5905D41F57EE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Hard West (2015) [Ru/Multi] (1.5/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:330A3C3B6CE30F53DA9644AFF65EA08F6EE1FF66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Sword Legacy Omen (2018) [Ru/Multi] (1.1.1) License CODEX
 magnet:?xt=urn:btih:4645531B66D0A3C47790A2F704D025C5E94F62F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Cossacks 3 / Казаки 3 (2016) [Ru/Multi] (1.8.2.81.5642/dlc) License RELOAD
 ```bash
 magnet:?xt=urn:btih:9616BE9DB6E03F5857C3D55AEDA9765FD1D0E3C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Blackguards 2 (2015) [Ru/Multi] (2.3.9087) Repack R.G. Catalyst
 magnet:?xt=urn:btih:C69E42380EB265DBE1E28DA598C08D32A68DF563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Age of Wonders: Planetfall (2019) [Ru/Multi] (1.315/dlc) Repack xatab [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:5068003720279B3FF3336CFB3E57DA6369C25C2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Order of Battle – военная пошаговая стратегия, соб
 magnet:?xt=urn:btih:2B555367D2492FBE0F049C1EDB49F186E6E5E9C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Panzer Strategy - варгейм в сеттинге Второй Мировой
 ```bash
 magnet:?xt=urn:btih:54A4F4FF5CB03CE4D09840FED75E398172CEA49C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Warcraft III: Reforged - это потрясающая переработанн�
 magnet:?xt=urn:btih:31A5E218E1802352E1CA3C4335E95BBBB67D1438
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Ravenmark: Scourge of Estellion представляет собой пошаго
 ```bash
 magnet:?xt=urn:btih:A0082D88E4F1AC6CD33C956E8DC261CEE6B1203A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Galaxy Reavers (2016) [Ru/Multi] (1.0/dlc) Repack Other s
 magnet:?xt=urn:btih:8395AA3E71307A7A4BD963C2C59320E1B3379B1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Pacific Storm: Allies / Стальные монстры: Союзники [Ru] (
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Worms W.M.D (2016) [Ru/En] (1.0.1637/dlc) Repack Mizantrop1337
 ```bash
 magnet:?xt=urn:btih:A4697EC3430913ED7C99D16E68111E4F29527AD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ XIII век. Русь — огромное государство, много б
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Shadowrun Returns (2013) [Ru/Multi] (1.2.7/dlc) Repack R.G. Механики [De
 ```bash
 magnet:?xt=urn:btih:ABF49DB2FEA17003694A4794008EF841E981BD90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ Jagged Alliance: Crossfire – это полноценное дополнени�
 magnet:?xt=urn:btih:E3C2B1D2B5496D6919F30D0288650B3FA28665A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ Jagged Alliance: Crossfire – это полноценное дополнени�
 magnet:?xt=urn:btih:D501D502DE908D152A7F8E765C021B8D4584982B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ Invisible, Inc. (2015) [Ru/En] (1.0/upd2) Repack R.G. Механики
 magnet:?xt=urn:btih:CB3EF6849C71137B772CA59F0B1249651CC7AE73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ Chaos Reborn (2015) [Ru/Multi] (1.13.3) License GOG
 ```bash
 magnet:?xt=urn:btih:142D843A97E48B956344D1D0A16F37FBBC499E4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

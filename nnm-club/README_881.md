@@ -19,6 +19,8 @@ MOOD - это мрачная визуальная новелла, с элеме�
 magnet:?xt=urn:btih:9C30F8A480F891CB8BF5CF40A45C4083D149948F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:9C30F8A480F891CB8BF5CF40A45C4083D149948F
 ```bash
 magnet:?xt=urn:btih:515D52253F8389E2873517122B2C667B99EAF5BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:515D52253F8389E2873517122B2C667B99EAF5BA
 magnet:?xt=urn:btih:A42AE4AD0BF6496E8FFEFDE4AA72A154E64981B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ KARMA: The Dark World (2025) [Ru/Multi] (build 17844576) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:B76CB151148D23A369561A8BE74DC8A5B6BF9A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:B76CB151148D23A369561A8BE74DC8A5B6BF9A1D
 magnet:?xt=urn:btih:0692ECEAEC81470357A7420F8397DF65841A4F69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:0692ECEAEC81470357A7420F8397DF65841A4F69
 ```bash
 magnet:?xt=urn:btih:BB6E17A3094920D78D10833079BAD41A9278E870
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:BB6E17A3094920D78D10833079BAD41A9278E870
 magnet:?xt=urn:btih:D388E346C83CC2D607B032BEE2333AFA5ACC16FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Sins of a Solar Empire II (2) (2024) [Ru/Multi] (1.40.14/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:E734B0654F09CD45A087E7000BE1D2144C3E366F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:E734B0654F09CD45A087E7000BE1D2144C3E366F
 magnet:?xt=urn:btih:F0C97F1F3E1F6DCBBBE3E73DCAD0A6E5DEE5ED0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:F0C97F1F3E1F6DCBBBE3E73DCAD0A6E5DEE5ED0C
 ```bash
 magnet:?xt=urn:btih:A002264896967039AFF92F7660317D0E30D7D42A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:A002264896967039AFF92F7660317D0E30D7D42A
 magnet:?xt=urn:btih:B050DC81F1B80ACA4BC38A215314C26A5D9425E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Guild no Uketsukejou Desu ga, Zangyou wa Iya nano de Boss o Solo Toubatsu Shiyou
 ```bash
 magnet:?xt=urn:btih:FDBBC2AE870F61D3E4FF2E4435D0AB9CE42F9033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:FDBBC2AE870F61D3E4FF2E4435D0AB9CE42F9033
 magnet:?xt=urn:btih:F8E87CF1E0725FA83B11E238649F9D9154BB4EE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:F8E87CF1E0725FA83B11E238649F9D9154BB4EE1
 magnet:?xt=urn:btih:505FD3A43603B268EFE5B40569D890096BD46E2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:505FD3A43603B268EFE5B40569D890096BD46E2E
 ```bash
 magnet:?xt=urn:btih:C53E71F7BB1A0CE33E263E99964943D82A4061A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:C53E71F7BB1A0CE33E263E99964943D82A4061A1
 magnet:?xt=urn:btih:CFC1A7DAC30EB30B7D342E3427875EA706474EB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Spirit City: Lofi Sessions - это не совсем обычная адвен�
 ```bash
 magnet:?xt=urn:btih:18ED44995B18F68B67752C52C594CCBA9DDCD3FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Fuguu-shoku Kanteishi ga Jitsu wa Saikyou Datta / Убогий класс «Оц
 magnet:?xt=urn:btih:CBA98C70B546CBDAEAEB1DB91E20F7444BDABB76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:CBA98C70B546CBDAEAEB1DB91E20F7444BDABB76
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Trillion Game | Игра на триллион [2024, TV, 26 из 26 эп.] WEBR
 magnet:?xt=urn:btih:2E35A6E5D773046F663B7DCE494359CFE9BBABE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:2E35A6E5D773046F663B7DCE494359CFE9BBABE2
 ```bash
 magnet:?xt=urn:btih:6522CE85AE8B98E290808F0AA4AC2BB360D4C60F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:6522CE85AE8B98E290808F0AA4AC2BB360D4C60F
 magnet:?xt=urn:btih:CDAFEB8CE0634CA6C56A80DBDB4027CAC6821F7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:CDAFEB8CE0634CA6C56A80DBDB4027CAC6821F7E
 magnet:?xt=urn:btih:E4DAC132D4C5723EC03D4FEB51BAE9254396C166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:E4DAC132D4C5723EC03D4FEB51BAE9254396C166
 ```bash
 magnet:?xt=urn:btih:C56D08D1839C7CE7F5C9606A0EC8A9154FBC842E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:C56D08D1839C7CE7F5C9606A0EC8A9154FBC842E
 magnet:?xt=urn:btih:E3763006487BC160D56657E5ED21283534EB24D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:E3763006487BC160D56657E5ED21283534EB24D1
 ```bash
 magnet:?xt=urn:btih:BCED06239A693C39EB8B719E974EA1AF5E7103E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

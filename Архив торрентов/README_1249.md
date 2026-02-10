@@ -19,6 +19,8 @@ LosslessCut — простой видеоредактор для нарезки 
 magnet:?xt=urn:btih:16D16E2DA9924E44379B1EEDCBD25B9EDE172FA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:39EEB193EF28AB433F1D3ADC5D8DE5CB8386D97A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ FileZilla - популярный кроссплатформенный FTP кли
 magnet:?xt=urn:btih:7441767354F8D2694A5275A13ED3771CBA320AA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:7441767354F8D2694A5275A13ED3771CBA320AA3
 ```bash
 magnet:?xt=urn:btih:2FF9A141E1B6F0E3FE529609B457D19FEB937EF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Psiphon - это новый инструмент обхода интернет-�
 magnet:?xt=urn:btih:CEB55FB7D2D926E15059C139A08354ADB392EB39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:F3FDB7B0A31C1CFBE590EDBC3F7E38FA284E9406
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ WinRAR - один из самых известных архиваторов. Т�
 magnet:?xt=urn:btih:A9E7B27F37F35C0B2914E3002B2F83A5B6AF39BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ XtraTools — это универсальный инструмент для оп
 ```bash
 magnet:?xt=urn:btih:69D3C99B1A23670FCAEE61C6C163D3FD36DEB360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Microsoft Office 2010 — один из лучших наборов офисны
 magnet:?xt=urn:btih:67084269F2A36577512B897ABA13A59EB21C9A05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 ```bash
 magnet:?xt=urn:btih:17FA31AF89E1DA96ADD607994D91B2D941D1CD86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:17FA31AF89E1DA96ADD607994D91B2D941D1CD86
 magnet:?xt=urn:btih:BC1B3EA8E8734424BF2DF667FF65FBE3D85EFC7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Movavi Screen Recorder 21.1.0 [Multi/Ru]
 magnet:?xt=urn:btih:44DDC8B653CFCDE550FD0739CD73DE4B035834C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ RogueKiller Anti-Malware можно использовать бесплатно 
 ```bash
 magnet:?xt=urn:btih:7C231A1A76F15865CC4C792DB2EA9726D1419FA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ PDF24 Creator - бесплатная программа, которая позв
 magnet:?xt=urn:btih:E86EDCDE53EACB9CD783E1DF7FFFBA28E47E3CA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 ```bash
 magnet:?xt=urn:btih:0686041FFAA45F079F2F6B6986DF50A708485482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Pepakura Designer 5.0.18 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:DA1593055F293518DC0B0C2067E0AAB52E31972E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Martinic - AX73 1.0.3 VSTi (x86/x64) RePack by R2R [En]
 ```bash
 magnet:?xt=urn:btih:1DE532A53234F72517692C5B09C215594763C4F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Adobe Acrobat Reader DC — совершенно новое приложение
 magnet:?xt=urn:btih:A4167FE79A863E943467956463314CA59338E8C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Media Player Classic Home Cinema – удобный во всех планах �
 ```bash
 magnet:?xt=urn:btih:4A7D8AAC65AB156BEA4656C76A9C07FB3FDF0E87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Microsoft Office 2013 – лучший пакет прикладных прог�
 magnet:?xt=urn:btih:4A239C4D9382E2FF13C9A5AE888651B81EADFFED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Skype — программа от Microsoft, с помощью которой в
 ```bash
 magnet:?xt=urn:btih:1808102545CD024B5FE7FBECCBD5BD5A62CE9928
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ WindowManager - программа от разработчиков EarthView и 
 magnet:?xt=urn:btih:71B891AEB952D883BB05D7EFCF021863B7EAEBA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ Opera One 104.0.4944.36 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:6D316AE927FBAE7DBD4B67449DEBE96963447538
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Any Video Converter Ultimate - предоставляет пользовател
 ```bash
 magnet:?xt=urn:btih:7013BA945628715BE691F033D5C457A072B0A510
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ ABBYY Lingvo European 1.11.0 [Multi/Ru]
 magnet:?xt=urn:btih:EB5CA0183A6529181004292179C31A4B77B4C261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:5D0AE43D530D71450E9DFB1651C70F4168714F20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ OTUS | Математика для Data Science. Базовый курс (2020) 
 magnet:?xt=urn:btih:495AE708B3528CF4F73137B1DC211235F3FB949D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ OTUS | Android-разработчик. Базовый курс (2019) PCRec [H.2
 ```bash
 magnet:?xt=urn:btih:E434863AF9E7193E0C8E1F8187095CE4567E0348
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ OTUS | РНР для начинающих программистов (2020) PCRe
 magnet:?xt=urn:btih:F250682CB4B3FB088344B30F23D0118D7C0A8573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Pluralsight.com | JavaScript Promises и Асинхронное программ
 ```bash
 magnet:?xt=urn:btih:EA7BDDCCBE0AAC2E62FB1FC1F3887B93829D4BCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:EA7BDDCCBE0AAC2E62FB1FC1F3887B93829D4BCC
 magnet:?xt=urn:btih:3F8F59851816BAE8B3DF6AE50E6FFB231CCDC8AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:3F8F59851816BAE8B3DF6AE50E6FFB231CCDC8AC
 magnet:?xt=urn:btih:CEE1CEF2601221748CDBA328075E691DAEC8D952
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Udemy, Центр digital-профессий ITtensive | Основы прогр
 ```bash
 magnet:?xt=urn:btih:5A38ABCCE20F0C7DE262A48AACA40EEDF9B86F14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Udemy | Улучшение вашего рабочего процесса с Gul
 magnet:?xt=urn:btih:914606E19D2B784EBB7A43A107A9982755FFD589
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Udemy, Tim Buchalka's Learn Programming Academy, Dr. Frank Mitropoulos | Beginni
 magnet:?xt=urn:btih:C40A7F593BB12B2D90230D8868DD08EC44EB871A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Python - самый популярный язык программировани
 magnet:?xt=urn:btih:474B5B0F48AE94F7E17701C426D29B165587A967
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Udemy, Stephane Maarek | Ultimate AWS Certified SysOps Administrator Associate 2
 ```bash
 magnet:?xt=urn:btih:F87A99FE35ED8F33BC62CD088671A8130E3A953D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ Udemy, Chris Sikes | Red Team Ethical Hacking - Intermediate  (2021) WEB-DL [En 
 magnet:?xt=urn:btih:5E1E8BE66F9CF431BB20BF8BA2137B9064D3B66D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ This complete course is designed to educate and transform you into a job-ready, 
 ```bash
 magnet:?xt=urn:btih:03F3366123BD3CB040CADA717D7B25E7FD0FACE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ React Query стал идеальным решением для управлен
 magnet:?xt=urn:btih:FD5A4BF9B5BF51586657B37DD10E0CFF3415733E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ This course will show you--from start to finish--how to build a real-life applic
 ```bash
 magnet:?xt=urn:btih:FAB4E40A379DEA36DC818FAAD063115D83D94412
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ Context Tools | Автоматизация контекстной рекламы
 magnet:?xt=urn:btih:E570DB5C2EC858E6038E39028B0724FFAD855C26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ HTML Academy | Профессиональный онлайн‑курс HTML и 
 ```bash
 magnet:?xt=urn:btih:92E68D0A613DE117C04B9C30EC789A461A1C78ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ Udemy, Tim Buchalka's Learn Programming Academy, Jason Fedin | Advanced C Progra
 ```bash
 magnet:?xt=urn:btih:E9844443541621B28D0F6AB88106CC3B398D8F91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ Udemy, Guillaume Duhan | Svelte.js & Firebase: Pokedex edition (2021) WEB-DL [En
 magnet:?xt=urn:btih:C17CE015CF3E5B5678A068D241DDF0212A8F7278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ javascript.ninja, Виталий Слободин, Илья Климов | CI/CD
 ```bash
 magnet:?xt=urn:btih:5D88BF55921F19D0F3429A7725A0FACD3221A96D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:5D88BF55921F19D0F3429A7725A0FACD3221A96D
 magnet:?xt=urn:btih:B0D0293269EE1CE8412E4625B7A1327D7AD0F503
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ Solidprofessor | Подборка курсов по SolidWorks [2007-2013] PCRec
 magnet:?xt=urn:btih:7BBCBC0C09CDC5689F740A072E1D56B8351EC5DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ OTUS | Android-разработчик. Продвинутый курс (2019) PC
 ```bash
 magnet:?xt=urn:btih:3BC735F1AD2E37608E2836C0BA90DA496B4812B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ OTUS | Математика для Data Science. Продвинутый курс
 magnet:?xt=urn:btih:BC329CCE709C7167F101976B981DD8F9A1ED36E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ OTUS | Архитектор программного обеспечения (202
 magnet:?xt=urn:btih:828BD22F9797505106A4A337A819A0FABC8756DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ OTUS | Этичный хакинг. Практика тестирования н
 ```bash
 magnet:?xt=urn:btih:4DC1EE7C7B68F6A1DE33D618A282D1FB065449FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

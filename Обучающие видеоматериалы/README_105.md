@@ -19,6 +19,8 @@ PyPI — это репозиторий программного обеспече
 magnet:?xt=urn:btih:95ED1C7B0AA50D02CCA81B646F70489B849CD574
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ PySide6 — это официальный модуль Python из проект�
 ```bash
 magnet:?xt=urn:btih:0395A73E56BBF8B84832A3BB4C717B901E36A715
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Udemy, Destiny Franks | Build a Video Upload Website Using Django (2023) WEB-DL 
 magnet:?xt=urn:btih:E09EBCB13FB0E2036AF63DC3C3756AB4E08960D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:E09EBCB13FB0E2036AF63DC3C3756AB4E08960D3
 ```bash
 magnet:?xt=urn:btih:7D860281256DE5F7D264D4F8201083C0F23C5439
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ Skillbox, Николь Шахбазян, Динара Фахретдинова |
 magnet:?xt=urn:btih:58538989B29D52831BD7606491CFB87ED8372152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Udemy, Nour Design | Эпические фотоманипуляции с пом
 ```bash
 magnet:?xt=urn:btih:0F4985DAB8F0B6C061F3A3046D776862AEE1378A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:0F4985DAB8F0B6C061F3A3046D776862AEE1378A
 magnet:?xt=urn:btih:F251275B6420F967434B32CCF603BF2C33BFA465
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Udemy, Jose Portilla | Python for Machine Learning & Data Science Masterclass (2
 magnet:?xt=urn:btih:6201609B27C17E6E5BD58654A402424A5DBE199E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Udemy, John Purcell | Learn Advanced Java (2022) WEB-DL [EN / EN Sub]
 ```bash
 magnet:?xt=urn:btih:D8F34DCAFE934F335EA6BBA2ECF7BDB2D286F292
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ Udemy, Arno Pretorius | Python Django: Ultimate Web Security Checklist (2023) WE
 magnet:?xt=urn:btih:804877C8F5482B4DFC52880F1E0AA5E85F5D0DC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Udemy, Arno Pretorius | Python Django: Build an E-commerce Store - 2023 (2023) W
 ```bash
 magnet:?xt=urn:btih:0B7EEE9E70DCF52C7027A199D17D845512D3E91A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:0B7EEE9E70DCF52C7027A199D17D845512D3E91A
 magnet:?xt=urn:btih:97BCAEE46B23031DE61C0153326BCEB305D2CD16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ ZTM Academy, Luis Ramirez Jr | Unity Bootcamp: 3D Game Development (2023) WEB-DL
 ```bash
 magnet:?xt=urn:btih:AFE5FFCEF3F80EC58F6416BB6B3923E444E2E46C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Podlodka Crew | Java Crew #1 (2022) WEB-DL [RU]
 magnet:?xt=urn:btih:7BF7F4A59FE5DC7D43BFD4B4187508CDD03446C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ Podlodka Crew | Backend Crew #4 (2022) WEB-DL [RU]
 magnet:?xt=urn:btih:A233F63C0B9777B8B9585FCD9FFD26C0ADC752E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ Brad Traversy | Modern JavaScript From The Beginning 2.0 (2023) WEB-DL [EN]
 magnet:?xt=urn:btih:467C1A6CF71047620DA776DEEF9B83C41E8F890F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ TutorPlace, Татьяна Кузнецова | Графология (2025) WEB-
 ```bash
 magnet:?xt=urn:btih:2176AE6A16423D21B7BAE0B99540FF203A7549FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ Lectera, Lectera | Аналитическое мышление (2025) WEB-DL [RU
 magnet:?xt=urn:btih:7F87280DA550491CACD3C91ADF7965D7A377A520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:7F87280DA550491CACD3C91ADF7965D7A377A520
 ```bash
 magnet:?xt=urn:btih:37BA73866B30714D06BB7B1060A88FE8BBAA86E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ Study Kvo, Саня Кво | Курс по веб-дизайну 3.0 (2019) PCRe
 magnet:?xt=urn:btih:7D388E0CFA351B6638E1557DEF5519582F34CDB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ HolyJS 2020 Piter | Конференция для JavaScript-разработч�
 ```bash
 magnet:?xt=urn:btih:898AC60F8B2A6E4DE592F46E8233B16F6353E619
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:898AC60F8B2A6E4DE592F46E8233B16F6353E619
 magnet:?xt=urn:btih:06074534D4FE513B10290D0871A47F5095BC06FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:06074534D4FE513B10290D0871A47F5095BC06FC
 ```bash
 magnet:?xt=urn:btih:A3D514215A7D1D84F9481F4E86B1812C67BC86FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:A3D514215A7D1D84F9481F4E86B1812C67BC86FA
 magnet:?xt=urn:btih:DCF43F182AE154540C84EC40356C8CE5B1FAC316
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ AMS³, Надежда Бейнер | Видеокурс оформление п�
 magnet:?xt=urn:btih:97A8E0C520E735844F2EF1DEFC6997C9C31BCE65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ magnet:?xt=urn:btih:97A8E0C520E735844F2EF1DEFC6997C9C31BCE65
 ```bash
 magnet:?xt=urn:btih:64557DA5A62AA7C13C59C43FA83A412498A9A7F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

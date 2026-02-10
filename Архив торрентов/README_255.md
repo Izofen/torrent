@@ -19,6 +19,8 @@ FileMenu Tools настраивает пункты контекстного ме
 magnet:?xt=urn:btih:26B2500E6915D3655DF6D5B8D2E52BBE70D276BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 magnet:?xt=urn:btih:A4B32E959D86C7F23A2FC91164B9099EE6381A21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:0414759C3BDC4ECACB6FABFFD2A415B4C5EA2975
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:0414759C3BDC4ECACB6FABFFD2A415B4C5EA2975
 ```bash
 magnet:?xt=urn:btih:78E33D6E045E6355364B912C78EDE5E315322906
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Foxit PDF Editor Pro (ранее известный как Foxit PhantomPDF Busi
 magnet:?xt=urn:btih:3DE747719B944B0CA3655D6D59F5508AD8AE80BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Media Player Classic - Black Edition (MPC-BE) – универсальный п�
 ```bash
 magnet:?xt=urn:btih:D45DEDC81B6322222CFF36DFA5E0918DF9FFB985
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Duplicate Files Search & Link (Duplicate Searcher) - это приложение
 magnet:?xt=urn:btih:DB22F8236DFF7D92365E6893FA780F3B86B6C72B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Total Commander 11.03 (15.05.2024) Portable by MiG [Ru/En]
 ```bash
 magnet:?xt=urn:btih:089760E58EFE64875F2FE678795CF4AFA7C8D09B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Wondershare PDFelement - программа для общего редактир
 magnet:?xt=urn:btih:9DDB184FC6A502A56C2C7BF584D59A10516EEE1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ AlmaLinux 9.4 [x86_64] 8xDVD
 ```bash
 magnet:?xt=urn:btih:AC3085EFB7A7281035127C28A3F60E1EED41B7E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ WSCC (Windows System Control Center) - портативная программа
 magnet:?xt=urn:btih:9C3C04DAA239499D75460F5DB626309CB2FFB427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:A95C323EC4B9160755C36C7264D3698377053683
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ WinRAR - один из самых известных архиваторов. Т�
 magnet:?xt=urn:btih:B2631E95C04491DA7356A498E97C468AED256191
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ vpnify: лучший БЕСПЛАТНЫЙ, БЕЗЛИМИТНЫЙ и высок�
 ```bash
 magnet:?xt=urn:btih:C180E44A661589E74FA524C9449AB07EBE0BADB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7.iso
 magnet:?xt=urn:btih:B972EFEA87CAEFC787610C26419E8224FB8AAF81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:6CAAFF3C4ADB1B1B93D36A27EF1FCAEFA4927191
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Windows хороша, но всегда есть, что улучшить. Во�
 magnet:?xt=urn:btih:7751F79299530E3062F5384E7881C56ED27DAD47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:B3895DC0959F35094B4A09F3792485A32487F5C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Wondershare PDFelement - программа для общего редактир
 magnet:?xt=urn:btih:535C12E4E90BE4C273FA04B41C9333FEF1F6C33B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ IsMyLcdOK - небольшая бесплатная программа для о
 ```bash
 magnet:?xt=urn:btih:C3243C17376EA7D2395F0E4B9F44D47C729D2BBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Cyberlink PhotoDirector Ultra — многофункциональный ред�
 magnet:?xt=urn:btih:2130836C9602D6DA324485D27F354B172005854F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ WinCatalog - это простая в использовании програм�
 ```bash
 magnet:?xt=urn:btih:110BC748A6F68DA312CDCD5C31740F719B157E14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ NetLimiter - программа, решающая проблему контро�
 magnet:?xt=urn:btih:5FDFFABA166889BA0DB7A8C996E313B4C1DD2A82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:D2602F8A8C85E434831F8ECD3FD193759A509D10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Epic Pen – настольная программа для Windows, позво�
 magnet:?xt=urn:btih:4C76816CA87A2CCC1152F427FA25CB88B8C63F8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ ZWCAD 2025 SP0 Professional [En]
 ```bash
 magnet:?xt=urn:btih:006D223D8C09200BFBB150396825426E00EEF854
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

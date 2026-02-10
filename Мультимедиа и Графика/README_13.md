@@ -19,6 +19,8 @@ Polarr Photo Editor Pro 5.11.10 Portable by FC Portables [Multi/Ru]
 magnet:?xt=urn:btih:A52E7C5859A3BE3A95253D6339F1370D9ED4044A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Apricot - это бесплатный эффектный гибридный си
 ```bash
 magnet:?xt=urn:btih:E6C91EF1E9D809FF9DEC5BB15FD0D723A5F85C53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Synchro Arts Complete 27.03.2025 STANDALONE, VST 3, AAX (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:D78C5354DEF77611060DF35D04BAF4410A2D9FFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Sonic Academy - ANA 2 2.5.5 VSTi, VSTi 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:146410F4DF8DAAE3D55E24130FB0736C3963BDD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Presswerk (   Читать дальше...   )Язык интерфейса: А
 magnet:?xt=urn:btih:946C8C2700A57A240AD8917D9E1BEFB120BCF753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ GoldWave - звуковой редактор, предназначенный д�
 magnet:?xt=urn:btih:48DC640E44ABC2088FE92F08ADF03CC877A12B22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ GoldWave - звуковой редактор, предназначенный д�
 ```bash
 magnet:?xt=urn:btih:1C476FEE30CC163CD2A9717356DF893F66354EF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Topaz Gigapixel AI — это приложение, использующее с�
 magnet:?xt=urn:btih:F9001DD8B3C2C2B31FFF607EBA0191A0967015B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ InPixio Photo Editor - редактор графики, который улуч�
 magnet:?xt=urn:btih:F080FCA9A3394719F5FA9063ABDF9B830A5D0E7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ ABViewer – программный продукт для просмотра г�
 ```bash
 magnet:?xt=urn:btih:348C2B2655AD2F3B3807F69EEB2BCBFDD6571928
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ InPixio Photo Focus предлагает особые инструменты, ч
 magnet:?xt=urn:btih:81CEEEDAA0FD7875061870715DF67C4B27A67A02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ InPixio Photo Maximizer - графическая утилита для увел�
 ```bash
 magnet:?xt=urn:btih:C821EEF00E0BC7A3AF4E89B1CF152E572D567BC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ InPixio Photo Editor - редактор графики, который улуч�
 magnet:?xt=urn:btih:E02F9930C0A6C4D1645EC0A2E163A83997480FC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Mixland сообщает, что они раскопали скрытую жем
 ```bash
 magnet:?xt=urn:btih:178C82257B42FF9BF7008D1DC637AFB8CB37CD11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ u-he - TyrellN6 3.0.0 rev.16947 Beta VSTi, VSTi 3, AAX, CLAP (x86/x64) [En]
 magnet:?xt=urn:btih:F6AE23C3C79E1E2F1D42B78B7ACB4206D81DF38E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Protility - это набор полезных инструментов для �
 ```bash
 magnet:?xt=urn:btih:E56A3FC76FA0C36A7B72A3931A4769203140F0F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ LosslessCut — простой видеоредактор для нарезки 
 magnet:?xt=urn:btih:144EA76F662DA423E56E539AE56CBB73AD48F02F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ InPixio Photo Eraser - программа для удаления ненужны
 ```bash
 magnet:?xt=urn:btih:7A184668591DA31EE151A2AAB0192B174C4AA133
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Photo Cutter — программа, при помощи которой вы с�
 magnet:?xt=urn:btih:93726217333B344B3A9962A665E58F22D4F2545E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ MusicBee — это одновременно простой, но серьёзн
 ```bash
 magnet:?xt=urn:btih:8C080B42D28258E45C6DD0BD84EE2D7A163FF500
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ HD Video Converter Factory Pro - удобный конвертер всех на
 magnet:?xt=urn:btih:D2A713CCBF85A83520A5B725636D6D0A5232BBB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Tone Empire - ELUX 1.0.0 VST 3, AAX RePack by BUBBiX [En]
 ```bash
 magnet:?xt=urn:btih:A5E05CEC00B676AAA650ACF513CB6CD4F6D7F6DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Tape Face - Реалистичная эмуляция ленты с дополн
 magnet:?xt=urn:btih:38E17ACF7AC255275B6E03EE7722FEE8C4A3FE95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ FxSound (ранее DFX Audio Enhancer) - отличное приложение,
 magnet:?xt=urn:btih:1D7653F59700DCE09056781D8C9C3530D1FCBA2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ AVS Image Converter - лёгкая в использовании програм�
 ```bash
 magnet:?xt=urn:btih:9BAF14C8B670FA55D8090C77AE81D51F5F2C5E61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ KICK 3 позволяет вам без усилий создавать и фо�
 ```bash
 magnet:?xt=urn:btih:259D39D73C71665DB9B85CE89083A30F6A900BFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,38 @@
+###  Публикация: 517838   (645582) от 02.07.2012
+
+VA - Убойный Русский Club В Машину (2012) [MP3|192 kbps]<Club|Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_645582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Глюк`oza - Хочу мужчину (DFM mix)
+02. Светлана Лобода - На свете (Kerim Muravey & Graver remix)
+03. El Ray - Безлимитная любовь (Dj Denis Rublev & Dj Natasha Baccardi remix)
+04. Stephane Coker - Без Тебя (Dj Nejtrino Club Edit Unreleased)
+05. Michael Yousher - Там где мы будем (you & me) (extended mix)
+06. Steel Deluxe - Сердце открой (Johan K remix)
+07. DJ Miller & Julia Lasker - Raй (Arthur Project Tel-Aviv remix)
+08. Aksioma Project - Без тебя (D'Marzio remix)
+09. DJ Solovey feat. Leila - Всё впереди (Sergey Clash remix)
+10. ViRUS! - ЧЗF(   Читать дальше...   )Жанр: Club|DanceПродолжительность: 07:26:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2C73E0DEFA06FECC1D994B0E5C875D361856014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517842   (645589) от 02.07.2012
 
 VA - Midnight Club - Летний Драйв (2012) [MP3|256 kbps]<Club|Dance>
@@ -27,6 +62,8 @@ VA - Midnight Club - Летний Драйв (2012) [MP3|256 kbps]<Club|Dance>
 ```bash
 magnet:?xt=urn:btih:B4F3692A0CD93F7E035FCD41BDD6A7A5D65A3C24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -61,6 +98,8 @@ Mission Ibiza - Including 50 ibiza House Anthems (2012) [MP3|320 кб/с]<Club H
 magnet:?xt=urn:btih:799AEB70BF961AD53FFDD12E25111D3CCC4B0B92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -87,6 +126,8 @@ VA - Dance Leto (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:92A7D3A97430C34833A7086B5BE44F77E611EB32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +162,8 @@ VA - 25 лет клубу песни Восток [Bootleg] (unknown) [MP3|236-2
 magnet:?xt=urn:btih:3D04650324E39765006A2EA7DE897A930F3A6841
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +196,8 @@ VA - Горячая Дискотека 50/50 (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:CBBE79549129E34B3BBE6AA98EE6A7F7D7322493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +232,8 @@ VA - Chill Out Dreams 4 (2012) [MP3|320 кб/с]<ChillOut, Electronic, Downtempo
 magnet:?xt=urn:btih:C477B5BCD2ECF3BE3A8577AD2B155C5E675D0AE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +267,8 @@ VA - Club In Car Summer Vol.3 (2012) [MP3|320 кб/с]<Dance, Club>
 magnet:?xt=urn:btih:5E8D9CC982DD4AB7E98FBA549DB19B873E998C9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +292,8 @@ N/AЖанр: Progressive TranceПродолжительность: 01:09:34
 ```bash
 magnet:?xt=urn:btih:8FD4D8E6894EA0DEB094B796E61C395F41D97325
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +328,8 @@ VA - Попсовый Драйв Летний (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:8762031193D9C7011F4D9DEB4D31D4EA9AA5F2E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +362,8 @@ VA - Dance Club Party Vol.4 (2012) [MP3|256 кб/с]<Dance, Club>
 ```bash
 magnet:?xt=urn:btih:9D14C84FCB287415B46AA012A2A8791A7463076D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +398,8 @@ VA - Dance Club Party Vol.3 (2012) [MP3|256 кб/с]<Club>
 magnet:?xt=urn:btih:5A8B005CC4E5FFAA767D612A93273F1ED9CCDB03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +426,8 @@ VA - Пляжный Союз (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:7976D90384BD531E27EC103A0168CEEEEB5D39C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +456,8 @@ VA - Зарубежная Дискотека ХХ Века - 79 (2016) [MP3|320 
 magnet:?xt=urn:btih:DBB0BB63D5B51CF47837FB95FFC902C2D1024A3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +484,8 @@ VA - Зарубежная Дискотека ХХ Века - 72 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:23025483C437DCF4E6EE3288A27D8929A8A3E5CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +514,8 @@ VA - Зарубежная Дискотека ХХ Века - 76 (2016) [MP3|320 
 magnet:?xt=urn:btih:B58983F750AB8A924F8C443C9AEF7B445EBBE527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +542,8 @@ VA - The Best - In Music We Trust (2016) [MP3|320 Kbps] <House, Electro House, P
 ```bash
 magnet:?xt=urn:btih:8273ED27180924DEE78BDF8A7E6633FD22FA6BB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +572,8 @@ VA - Зарубежная Дискотека ХХ Века - 77 (2016) [MP3|320 
 magnet:?xt=urn:btih:D6F14B35652BCD3675E697A95B603D97C94BCB3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +600,8 @@ VA - Dreaming In Orange (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:385EBF226D1037860E59719FE36F83BE3C5C5859
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +630,8 @@ VA - Зарубежная Дискотека ХХ Века - 73 (2016) [MP3|320 
 magnet:?xt=urn:btih:B3FA10FE537A23B2D0D8B1DEC970F8F0219B9669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +658,8 @@ VA - Зарубежная Дискотека ХХ Века - 75 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:A2DAD6AE33C6103281E23A042744ED748189A6FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +688,8 @@ CD1 - NOW
 magnet:?xt=urn:btih:B1DB7FDA672D477FAD5925181BBE2B66E04CECB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +716,8 @@ VA - Ночной клуб. Сборник танцевальных хитов (
 ```bash
 magnet:?xt=urn:btih:47466400125EB03BA87C4EB6D0C60D40B40A27C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +746,8 @@ VA - Зарубежная Дискотека ХХ Века - 74 (2016) [MP3|320 
 magnet:?xt=urn:btih:D8BD0F9A42B533128718C06BDBA1686A055FDB46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +774,8 @@ magnet:?xt=urn:btih:D8BD0F9A42B533128718C06BDBA1686A055FDB46
 ```bash
 magnet:?xt=urn:btih:EE903AF7958A16534D0553A43E10C87140FF377D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -721,32 +804,7 @@ VA - Trance Reflect (2016) [MP3|320 Kbps] <Trance, Melodic, Energy >
 magnet:?xt=urn:btih:E0CBCD2CCEEEB6CB5BE7A5A19AF9073B4F13F1A5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032356   (646175) от 07.07.2016
-
-VA - For Brunettes: Selected Chillout Rhythms (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_646175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexius Gabrikov - The Lone Seagull - Radiant Mix
-02. Bennie Cullen - Lying Down - The Grand Chill
-03. Cosmique Beats - Long Journey - Universal Mix
-04. Den Gordy - Few Cha - Champagne & Limousine Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:794E2F654739368D4C195913AE37742F0AEAE9AD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

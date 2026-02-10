@@ -1,3 +1,32 @@
+###  Публикация: 1290013   (678339) от 20.03.2019
+
+Randy Travis - Storms Of Life (1986) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_678339.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1:
+01. On The Other Hand
+02. The Storms Of Life
+03. My Heart Cracked (But It Did Not Break)(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8457D54F402AB5069967B61CB5491C65CA0B88C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222789   (678877) от 02.05.2018
 
 Владимир Высоцкий - VA №4 (Сборник песен) (1985) Мелодия [FLAC 2.0|96/24|image+.cue|Tape-Rip] <Chanson>
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:0C64BA2BB3405C3FD350CCD8902454093EBFB8A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +86,8 @@ Eruption - Leave A Light (1979) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Disco>
 magnet:?xt=urn:btih:1B35E73D61900F5B929186546421C39096AB1F1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +114,8 @@ magnet:?xt=urn:btih:1B35E73D61900F5B929186546421C39096AB1F1F
 ```bash
 magnet:?xt=urn:btih:756E627B77A5DCF1A1F3910EFECFA100F9E39747
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +144,8 @@ Garbage - Strange Little Birds (2016) [FLAC 2.0 24/192|image +.cue|Vinyl-Rip]<Al
 magnet:?xt=urn:btih:A550B11BE8C12202432B37A17DC07328B509C519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +172,8 @@ magnet:?xt=urn:btih:A550B11BE8C12202432B37A17DC07328B509C519
 ```bash
 magnet:?xt=urn:btih:25360C576CFB438B7EE1AA56F4BBD5C5FEC2F66C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +202,8 @@ Bread – The Best of Bread (2015) [DTS 4.0 44.1 /16 | .wav+.cue (SACD)] <Soft r
 magnet:?xt=urn:btih:5BBC5FB5F0C198B0E41CC4E729E7905C1868C77E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ A4. Nightrider (4:24)(   Читать дальше...   )Жанр: Progressive R
 ```bash
 magnet:?xt=urn:btih:BBC27298539BD13BA590413321F9BF24795A404D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +260,8 @@ A1c Part 3(   Читать дальше...   )Жанр: Art Rock, Prog RockПр�
 magnet:?xt=urn:btih:C26097F61DDA28D9D630E168DF71A30EF284270B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +289,8 @@ A3 Capri Saarel · на Острове Капри(   Читать дальше..
 magnet:?xt=urn:btih:02F5D0F7B7117B04632B4ED205341E3E6F0EB6D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +317,8 @@ Smokie & Chris Norman - The Best Of 20 Years (1995)  [PPCM 5.1|96/24|DVD-Audio] 
 ```bash
 magnet:?xt=urn:btih:DBAC50B854CCB3B89E4A6C0BFC732075576E0C05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +349,8 @@ magnet:?xt=urn:btih:DBAC50B854CCB3B89E4A6C0BFC732075576E0C05
 magnet:?xt=urn:btih:642DF0C7A6B26DF6C1CC35C162EE7822F6A515E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +377,8 @@ A1. Gas In The Tank
 ```bash
 magnet:?xt=urn:btih:822F139309BF725B1322410F9AECF02A80566D20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +407,8 @@ A4 Ob-La-Di, Ob-La-Da(   Читать дальше...   )Жанр: Pop Rock, Psy
 magnet:?xt=urn:btih:2A2AAA4FD7082BA267DE6AA85CF1AFA0C6F3B14B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +435,8 @@ magnet:?xt=urn:btih:2A2AAA4FD7082BA267DE6AA85CF1AFA0C6F3B14B
 ```bash
 magnet:?xt=urn:btih:E910DCF892C1980FB42D6F25C243D9797420D8CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +465,8 @@ VA - The Absolute Sound (2014) [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Classical, Fol
 magnet:?xt=urn:btih:9DC8526BFEE1F2A5F18C1D181292BD77A2999D35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +493,8 @@ A4 All Those Years Ago(   Читать дальше...   )Жанр: Pop Rock, Cl
 ```bash
 magnet:?xt=urn:btih:05B1F8F64BFB391086913FC53E92A74495250133
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +523,8 @@ A4 Just Love Me(   Читать дальше...   )Жанр: Hard RockПродо
 magnet:?xt=urn:btih:BFEBED8B5EB0AAA6D219FDB7F9D961E29262A747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +551,8 @@ A4 Time(   Читать дальше...   )Жанр: Hard Rock, Pop RockПрод
 ```bash
 magnet:?xt=urn:btih:8309D8D21EC3FADFB102F752FB0DD3C6C2DDD7B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +581,8 @@ A4 Suzanne(   Читать дальше...   )Жанр: Pop RockПродолжи
 magnet:?xt=urn:btih:7C63C9672ECC9D223D4658C1C8C036907B7EA02C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +609,8 @@ VA - Архив Популярной Музыки 1-12 (1988-1990) [FLAC 2.0|96/
 ```bash
 magnet:?xt=urn:btih:F1B9A12060A1FA9D892B95D145EAE4122F73D695
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +639,8 @@ Annihilator — трэш-метал группа, основанная в 1984 �
 magnet:?xt=urn:btih:193B72E44DD9C24FEF082A7C379DDB4D32964E2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +667,8 @@ A4 Hear About It Later(   Читать дальше...   )Жанр: Hard RockП�
 ```bash
 magnet:?xt=urn:btih:DA78E60A5E8A89BD5959016B8EA513DA20996B77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +697,8 @@ A4 Jennifer(   Читать дальше...   )Жанр: Hard RockПродолж
 magnet:?xt=urn:btih:4EC3E4981565D49CBAD6435161EC100A7D0E8EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +725,8 @@ magnet:?xt=urn:btih:4EC3E4981565D49CBAD6435161EC100A7D0E8EF7
 ```bash
 magnet:?xt=urn:btih:11842F6D9B4748E61EC6ADFB614BEECE2D6C6C44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -678,32 +755,7 @@ A4 Gypsy Child(   Читать дальше...   )Жанр: Hard RockПродо�
 magnet:?xt=urn:btih:5126E710D04761AE8D882E63902B6E0B569D43DC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401903   (705145) от 12.08.2020
-
-The Beatles - Rare Beatles (The Beatles On Air) (1993) Unofficial Release [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_705145.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I Saw Her Standing There
-A2 Too Much Monkey Business
-A3 I'll Get You
-A4 Lucille(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EE93A0A33F859513707FD57302B7BD79771D88
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

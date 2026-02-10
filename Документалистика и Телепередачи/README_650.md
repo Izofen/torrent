@@ -1,3 +1,29 @@
+###  Публикация: 997978   (871469) от 18.03.2016
+
+Голос. Дети (2016.03.18) SATRip (сезон 3, выпуск 5)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_871469.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Первый канал" представляет премьеру третьего сезона музыкального проекта "Голос. Дети". Детский конкурсный проект строится по тем же принципам, что и взрослый. Из тысяч заявок на участие, присланных в адрес "Первого канала", музыкальная редакция отобрала несколько сотен самых достойных. В ходе предварительных кастингов к участию в слепых (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 01:28:37Реклама: Присутствуют вставки голосовой и текстовой рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA6907956EF5F770A8C4919FA3C1B30DA8A930F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496576   (871535) от 18.09.2021
 
 Грузия сверху / Georgia From Above (2021) WEBRip [VP9/2160p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:9206CC68BE1C67609F6B779D0497D1F0CC04A123
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:9206CC68BE1C67609F6B779D0497D1F0CC04A123
 magnet:?xt=urn:btih:9006C73E42C0012709B88020898122E713228342
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:9006C73E42C0012709B88020898122E713228342
 ```bash
 magnet:?xt=urn:btih:721AD21F88CAFD3D410A38109064C999235F84A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:721AD21F88CAFD3D410A38109064C999235F84A1
 magnet:?xt=urn:btih:72DC6E52AD1E5FADF05E06BA27B9F02B14574BF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:72DC6E52AD1E5FADF05E06BA27B9F02B14574BF1
 ```bash
 magnet:?xt=urn:btih:A727A63A6D3F312FA3AB098233399E1BC5C8014B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:A727A63A6D3F312FA3AB098233399E1BC5C8014B
 magnet:?xt=urn:btih:027705AD11335DF735E921DAA4F4B5AB07E68199
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:027705AD11335DF735E921DAA4F4B5AB07E68199
 ```bash
 magnet:?xt=urn:btih:9EAE72175637DD4CBE6AEFD6BEDC6BC0395B00A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:9EAE72175637DD4CBE6AEFD6BEDC6BC0395B00A8
 magnet:?xt=urn:btih:DA95E81ED73FD3449B58A96F581D1DF5F74ECB8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:DA95E81ED73FD3449B58A96F581D1DF5F74ECB8D
 ```bash
 magnet:?xt=urn:btih:100627B7686A95414C674AA4EEB4D2781659F73D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:100627B7686A95414C674AA4EEB4D2781659F73D
 magnet:?xt=urn:btih:CF2B11877304BC8471A77EAB5CF00EBB45E6450B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:CF2B11877304BC8471A77EAB5CF00EBB45E6450B
 ```bash
 magnet:?xt=urn:btih:5513B705CC338A2E862BAE95DF0A6D12A2CB6629
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:5513B705CC338A2E862BAE95DF0A6D12A2CB6629
 magnet:?xt=urn:btih:1DBF062411E92C9126BD52A07EBFCCCA4A51BC44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:1DBF062411E92C9126BD52A07EBFCCCA4A51BC44
 ```bash
 magnet:?xt=urn:btih:9F3CC219FAA37C03A503BCE575C6F4682DA971FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:9F3CC219FAA37C03A503BCE575C6F4682DA971FB
 magnet:?xt=urn:btih:5211FEBCE2F3078E62A57A8EBB01733F19635627
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:5211FEBCE2F3078E62A57A8EBB01733F19635627
 ```bash
 magnet:?xt=urn:btih:34AE767046B35B92A36B5EF1F8181EDD1D70280C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:34AE767046B35B92A36B5EF1F8181EDD1D70280C
 magnet:?xt=urn:btih:01828D21C161AF62D6AE6DD55F05B17D50653926
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:01828D21C161AF62D6AE6DD55F05B17D50653926
 ```bash
 magnet:?xt=urn:btih:8943FEEF15614D3CE90D9AD8B292623C823993FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:8943FEEF15614D3CE90D9AD8B292623C823993FE
 magnet:?xt=urn:btih:C8FD94472D196F595CEAE1F795E5EE18C939261F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ magnet:?xt=urn:btih:C8FD94472D196F595CEAE1F795E5EE18C939261F
 ```bash
 magnet:?xt=urn:btih:987710EDD950A03327C211A18BCA285983AC3CF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:987710EDD950A03327C211A18BCA285983AC3CF6
 magnet:?xt=urn:btih:ED6DACA5A7FFD42019A5288A5D9BE1DCDE7F695F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +565,8 @@ magnet:?xt=urn:btih:ED6DACA5A7FFD42019A5288A5D9BE1DCDE7F695F
 ```bash
 magnet:?xt=urn:btih:189A6A4435D1FE438363728AE6A0DAC16DEA7593
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:189A6A4435D1FE438363728AE6A0DAC16DEA7593
 magnet:?xt=urn:btih:D383306FE9E2152DB254B833F88397DA185BBBF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +617,8 @@ magnet:?xt=urn:btih:D383306FE9E2152DB254B833F88397DA185BBBF7
 ```bash
 magnet:?xt=urn:btih:D887780065642C2CB51A0F5658ECE702FE295109
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:D887780065642C2CB51A0F5658ECE702FE295109
 magnet:?xt=urn:btih:0ED72079BF124B39CB395F6C55BC3E6142CAE573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,29 +670,7 @@ magnet:?xt=urn:btih:0ED72079BF124B39CB395F6C55BC3E6142CAE573
 magnet:?xt=urn:btih:E162FC9B2CF3E81118E6E55B0815DACB42054D44
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374418   (872172) от 10.04.2020
-
-Испанские города - объекты Всемирного наследия / Ciudades Patrimonio De La Humanidad De Espana (2016) IPTVRip (серии 10 из 10)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_872172.jpg" />
-</div>
-
-
-###  Подробнее
-
-Испания известна всему миру как страна, обладающая уникальными памятниками благодаря своей удивительной истории, в результате которой, в архитектуре испанских городов сочетаются черты различных культур, начиная от античной, пришедшей сюда во времена Римской империи, включая исламскую, оставшуюся от периода арабского владычества, заканчивая европейской, в том числе (   Читать дальше...   )Производство: Испания, RTVE 4KЖанр: Документальный, история, искусствоРежиссер: Белен МоринероПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 10 x ~00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A96F2085BDA748DEC445B421FB4D2C1F8379C2C8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

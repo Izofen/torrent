@@ -22,6 +22,8 @@ The 69 Eyes - Death of Darkness (2023) [MP3|320 Kbps] <Gothic Industrial Rock>
 magnet:?xt=urn:btih:7C3884193FF77C6EEC74E4EC52EFD0A17AEF1079
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Jukebox Heroes - Jukebox Heroes (1992) Reissue, 2023, Pride & Joy [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:F5D248DE73AB3A59D72731F83D0FECA52685E0B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Framauro - Alea Iacta Est (The Die Is Cast) (2023) [MP3|320 Kbps] <Progressive R
 magnet:?xt=urn:btih:C18176E3E222E134BFACE385BDECDD2D8E1A93C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Dan Wande - Highway 45 (2023) [MP3|320 Kbps] <Hard'n'Heavy>
 ```bash
 magnet:?xt=urn:btih:4C563F5B9983FB19511C4EBA6332A323BFB80104
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ VA - A Tribute To Queen (2012) [MP3|320 кб/с]<Rock, HardRock>
 magnet:?xt=urn:btih:ED4F7420EEE8E4D429241EF3E3B1DEB7502BB9AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +178,8 @@ magnet:?xt=urn:btih:ED4F7420EEE8E4D429241EF3E3B1DEB7502BB9AB
 ```bash
 magnet:?xt=urn:btih:2A3C18B8760C01F45DA11EBCB47F9FEA31FE81A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +214,8 @@ Time Life - Guitar Rock - FM Classics(   Читать дальше...   )Жан�
 magnet:?xt=urn:btih:E86D94F8EE802C0F776DECC5AFFD0EAD00D6A6C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +249,8 @@ Red Elvises - Drinking With Jesus (2008) [MP3|320 кб/с]<Rock-n-Roll, Rockabil
 magnet:?xt=urn:btih:2B36F36D78F390B4819DC507989D00E1DCB725F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +277,8 @@ Kiss - Alive! (Live) (1975) Remaster, 2025, UMe Direct 2 [MP3|320 Kbps] <Hard-Ro
 ```bash
 magnet:?xt=urn:btih:B73C6E00DD6CC2B19DE5E290980E3BD5377791DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +311,8 @@ Dumbsaint - Something That You Feel Will   Find Its Own Form (2012) [MP3|320 к�
 magnet:?xt=urn:btih:DEFEDA0815340E13D91213066F55754D23B13BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +343,8 @@ Cuzo - Alquimia Para Principiantes (2012) [MP3|320 кб/с]<Psychedelic Stoner R
 ```bash
 magnet:?xt=urn:btih:DF8F40765220328C15D3914A0D7B6184DD24268F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +379,8 @@ Royal Thunder - CVI (2012) [MP3|320 кб/с]<Psych Stoner Southern Hard Rock / F
 magnet:?xt=urn:btih:64016AA12097A2A8F5563BB928B3ECF4F5B41DDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +412,8 @@ Maribel - Reveries (2012) [MP3|256 кб/с]<Shoegaze Indie-Rock>
 ```bash
 magnet:?xt=urn:btih:A47F733B058C16E248B7003494FD085F9960D45F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +448,8 @@ Sennen - Lost Harmony (2012) [MP3|~281 кб/с (V0)]<Indie Rock>
 magnet:?xt=urn:btih:6E081DF319FDFA31C7C926CF1B7A30DCAEA2857B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +482,8 @@ VA - NOW That's What I Call Classic Rock Hits (2012) [MP3|256 кб/с]<2012>
 ```bash
 magnet:?xt=urn:btih:7981573C41848F4581823C2D003C7ED6E8978548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +518,8 @@ Paul McCartney - The Gold Collection [3CD] (2012) [MP3|320 кб/с]<Rock>
 magnet:?xt=urn:btih:49CC70376C4A8AF449E534984E58ABE7C2ECD527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +546,8 @@ Garrison - The Final Chapter (2025) [MP3|320 Kbps] <AOR, Arena-Rock>
 ```bash
 magnet:?xt=urn:btih:0B96AAEBAD6D62B17C9F4EB2D5DCB4E9D0E63258
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +582,8 @@ Richard Marx - Inside My Head (Compilation 2CD) (2012) [MP3|256 кб/с]<Melodic
 magnet:?xt=urn:btih:8A2F7C602F298E84851AA2B456BD8A301350ECD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +610,8 @@ ViceVersa - The Electric Flame (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:1E34CCC0A760C706AAFE2E2B690E27EB23685944
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +640,8 @@ VA - 101 Drivetime (2017) 5CD [MP3|320 Kbps] <Rock, Pop Rock, Pop>
 magnet:?xt=urn:btih:CC1EEC6A7E91A57D1976B23C2665F9E46B5B9831
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +668,8 @@ Epolets - Діти моря (2017) [MP3|320 Kbps] <Alternative Rock, Indie Rock>
 ```bash
 magnet:?xt=urn:btih:874721687782AF3E52C1C5F5B357F9C5BCC03A9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +698,8 @@ Intergalactic Touring Band (Межгалактическая Гастрольн�
 magnet:?xt=urn:btih:E8C44405A127AF1D5D574E08A7BACE17FFB4AE81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,6 +726,8 @@ Vintage Reserve - Vintage Reserve (2017) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:F6FAEDE49F6887AA3786ECAB69FBB3C474863A7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -710,6 +756,8 @@ Pianoбой - ХІСТОРІ (2019) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:1597FC5A26954546254DCB3270167131FD34AC7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -733,6 +781,8 @@ Ben Moody - 4 Альбома + B-Sides (2005 - 2011) Дискография [MP3
 ```bash
 magnet:?xt=urn:btih:1B2208BAAFD70485CC072C8E573A747114101FA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -760,6 +810,8 @@ Polecats - Polecats Are Go! (1981) Reissue CD, 2003, Anagram Records [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:02A9601566A3CF2B376248BFEF594DE5EEDEA63D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

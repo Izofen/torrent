@@ -19,6 +19,8 @@ Bulk Crap Uninstaller (BCUninstaller) - деинсталлятор програ�
 magnet:?xt=urn:btih:E36385424D834A7E740144B9BEEF855337DFED68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Auslogics Registry Cleaner поможет вам избавиться от ош�
 ```bash
 magnet:?xt=urn:btih:DBA9DB59B10C2A72AFA4F433B3A952928F745742
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Aiseesoft Video Downloader - это профессиональный загру�
 magnet:?xt=urn:btih:D9255325DE3994C9D655FDFAB5AC86A1B9597F45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:D9255325DE3994C9D655FDFAB5AC86A1B9597F45
 ```bash
 magnet:?xt=urn:btih:59C88A7CB6A1CBE2843ECDEA99E41D2E963DCCA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:59C88A7CB6A1CBE2843ECDEA99E41D2E963DCCA2
 magnet:?xt=urn:btih:022D3A73C88ADF4287288074212CA058687E7CB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:A13680078E2C4B9AFF1E00C31F0172B304B3BD5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Coldplay - A Head Full Of Dreams (2015) [FLAC|Tracks|WEB-DL]<Alternative Rock>
 magnet:?xt=urn:btih:891A8E47D6AC06A9BC18682028F8DFA3D6B70E1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:891A8E47D6AC06A9BC18682028F8DFA3D6B70E1E
 ```bash
 magnet:?xt=urn:btih:DEC010D40EB0F9052B55D5B036206A69415BD65A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Carbon Copy Cloner - утилита для клонирования дисков
 magnet:?xt=urn:btih:7FF06C7F53519E3DA61DE994D559E411BB987560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ AVG Remover 1.0.0.8 [En]
 magnet:?xt=urn:btih:129C3BD612C281A774DFFCA76CB43D50AA73720B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Comedy Woman  (2015.12.04) DVB [H.264]
 ```bash
 magnet:?xt=urn:btih:3E9040C02EBE290727063482D6E9A801BE08E271
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ C помощью iSkysoft DVD Creator Вы можете превратить в�
 magnet:?xt=urn:btih:F3538887496489FBB474BCA2D50A247A78CF4DED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ OCRKit представляет собой простое и рациональ�
 ```bash
 magnet:?xt=urn:btih:B642A361051B7D90E1E58FFBDF53BDAC5861CDCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Perfect Horizon Full 1.0.1 [En]
 magnet:?xt=urn:btih:EEB79978C7D5FCB1B3153EF5E8C7CBDDCEE2569D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Paste 2.5.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7BDB2C6EC17C34B3F5A99A0C82EFE94BC3838AF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ Progressive Downloader — бесплатный менеджер закачек 
 magnet:?xt=urn:btih:C13964F0EEE3A1310D176BCBDE91F454C85C81B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ ExactScan – современное решение для сканирован�
 ```bash
 magnet:?xt=urn:btih:93F9D68BC80FBBD18F4DF7352F3EA3365FB934C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ Alfred Powerpack - Лаунчер приложений для Mac OS X.
 magnet:?xt=urn:btih:337E4198E5D9B30611511A0C47A9C4BE598978E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ VA - Музыка с караоке кассет. Япония. Минусовк
 magnet:?xt=urn:btih:3975AFB1A5DC39818DEDB8124874596C6E314576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ Opera 56.0.3051.104 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:CBD842E39E089C2FE4B9FA46A3D7670034E0A539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ Macgo Mac Blu-ray Player - это один из лучших (если не ск
 magnet:?xt=urn:btih:C24EB0B9AE4CAAA6E4B1622FE42DC0E479315578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:C24EB0B9AE4CAAA6E4B1622FE42DC0E479315578
 ```bash
 magnet:?xt=urn:btih:25FFFFB755324F3D69A32D228E20C5C568293CEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ Grids переносит лучшее из Instagram на ваш Mac.
 magnet:?xt=urn:btih:B8DF7DB8B2A10F6E2B58885CBB7C6AC6AAB70BEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:B8DF7DB8B2A10F6E2B58885CBB7C6AC6AAB70BEA
 ```bash
 magnet:?xt=urn:btih:7C36D037F5694FFADE656661D91F3916F83DBBA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:7C36D037F5694FFADE656661D91F3916F83DBBA8
 magnet:?xt=urn:btih:4105FEA5478269EA2DB1005AA853B2EC03E12E33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ magnet:?xt=urn:btih:4105FEA5478269EA2DB1005AA853B2EC03E12E33
 ```bash
 magnet:?xt=urn:btih:1ECAFED85272CCA13BB2349D8B52EEB3584D57E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

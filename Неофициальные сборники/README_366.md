@@ -1,3 +1,32 @@
+###  Публикация: 1038544   (606839) от 28.07.2016
+
+VA - Soft Emotion: Chillout Mix (2016) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_606839.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Toni Verde - Heroes of Galaxy - Main Theme
+002. Oceanus - Arabamish - Original Mix
+003. Chill Out Hotel - Human - Original Mix
+004. Sanjay Farrell - Higher Level(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DF082FA503DA804DBC7F219C35123A9CC56EF0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038445   (606843) от 28.07.2016
 
 VA - Melody Spheric Sunrise (2016) [MP3|320 Kbps] <Trance, Emotional, Energy>
@@ -21,6 +50,8 @@ VA - Melody Spheric Sunrise (2016) [MP3|320 Kbps] <Trance, Emotional, Energy>
 ```bash
 magnet:?xt=urn:btih:8742ED879ED2F4169DA7CB02A08C469074CE703F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - City Dreams Vocal Radio Edit (2016) (2016) [MP3|320 Kbps] <Vocal, Progressi
 magnet:?xt=urn:btih:FFEB0E0942A352B493B91607527C66875B3A3EF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +109,8 @@ VA - Soft Soul & Jazz (2018) [MP3|320 Kbps] <Jazz, Vocal Jazz>
 magnet:?xt=urn:btih:1ABAD5C4B044589FC71F125ED0957FEBED601AA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +136,8 @@ VA - Undergraund Trance Extended Mix (2016) [MP3|320 Kbps] <Trance, Progressive>
 ```bash
 magnet:?xt=urn:btih:4EADD5EB36A5A0ADF007F14A4056F8F24B949AA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +166,8 @@ VA - Beatport Trance Pack (27.07.2016) [MP3|320 Kbps] <Trance, Progressive>
 magnet:?xt=urn:btih:F8B508ED2A7F913A3E2D233986B2924EFAF6D50F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +195,8 @@ VA - Dreamy Wave (2019) [MP3|320 Kbps] <Trance, Electro>
 magnet:?xt=urn:btih:0674755FE384A883162062EB6C8FD2931342DC1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +223,8 @@ VA - Record Super Chart 541 (2018) [MP3|320 Kbps] <House, Dance>
 ```bash
 magnet:?xt=urn:btih:574FC34728D271E0196E809ADBF3973FA3091C8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +259,8 @@ VA - Electro House ремиксы на современные русские х�
 magnet:?xt=urn:btih:9075FC407FAE40CF4BFC4A0514E077A02414CDB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +287,8 @@ VA - Мульт-и BOOM !!! (2015) [MP3|320 кб/с]<Soundtrack, Dance>
 ```bash
 magnet:?xt=urn:btih:265F19D1B7E69E5D81B03274B4900D529D44A6BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +317,8 @@ VA - Italo Disco Hits Vol.6 (2015) [MP3|208 - 320 кб/с]<Italo Disco>
 magnet:?xt=urn:btih:DC677052A8393BBB8C9D5F5D7E61FF8340E8D6F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +345,8 @@ VA - Sexy Deep House Grooves (2018) [MP3|320 Kbps] <Deep House, Electro>
 ```bash
 magnet:?xt=urn:btih:BB6A16AA8736C5A1EFE2DC077DD4CB53AA4D3050
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +375,8 @@ VA - 110 Electro House: Most Rated June (2018) [MP3|320 Kbps] <Club, Dance, Elec
 magnet:?xt=urn:btih:C3FAB282D7BDE9A016C5CE68183C34276B0AF073
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +403,8 @@ Niels Eje - MusiCure 1 - 10 (2003 – 2011) [MP3|320 кб/с]<New Age>
 ```bash
 magnet:?xt=urn:btih:E1F467B5CAD0854FAAF26B28EA7E540ACE03A9AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +433,8 @@ VA - Vocal Trance Seduction Vol 4 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 magnet:?xt=urn:btih:1850DC3ADB2326AB3F17978AB82F92222F3E37B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +461,8 @@ VA - Pop Rock Old Hits 70s-80s (2022) [MP3|320 Kbps] <Pop, Rock, Dance>
 ```bash
 magnet:?xt=urn:btih:433A9CDC5B8409E4DF1EB73A2F9A28CE751AE47A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +491,8 @@ VA - The Human League SynthSpace Thesis Party (2017) [MP3|192-320 Kbps] <Synthsp
 magnet:?xt=urn:btih:520E71AB684B12398426E92445B721E5C46F6C82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +519,8 @@ VA - Beatport Electro House: Sound Pack #513 (2022) [MP3|320 Kbps] <Electro Hous
 ```bash
 magnet:?xt=urn:btih:1F3932E3F36E5B74600F222F68C28EAF820268D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +555,8 @@ VA - Волчьи песни (2012) [MP3|320 кб/с]<Rock, Hard Rock, Heavy Met
 magnet:?xt=urn:btih:E986C96F84CC872E4DC02F4181EFE8C9DAA7FEC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +583,8 @@ VA - Summer Dance Vibe (2017) [MP3|320 Kbps] <Indie Dance, Synthpop, Future Hous
 ```bash
 magnet:?xt=urn:btih:A4A9AC9D93327351A50732201D4C169BB29ED45D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +613,8 @@ VA - Best of Deep House. Volume 6. Tribal & Funky House Summer Playlist [Compile
 magnet:?xt=urn:btih:9A57F2E0CC801CAC17BE7E4F806A8A48113428A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +641,8 @@ VA - Best of Chill House 2017. Volume 2. One Day in Africa [Compiled by Firstlas
 ```bash
 magnet:?xt=urn:btih:9028D032ABAA9B3BE1063D416B78F5EB146039F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +671,8 @@ VA - Beatport Techno: Electro Sound Pack #514 (2022) [MP3|320 Kbps] <Techno, Min
 magnet:?xt=urn:btih:39655493DAC31A9BD9F5E89731B9D9F03F6EAE7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +699,8 @@ VA - Relax Mix (2022) [MP3|320 Kbps] <Pop, Easy Listening>
 ```bash
 magnet:?xt=urn:btih:C085758C8313016312EDD5E4C937B9503CF3B3D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +729,8 @@ VA - Best of Deep House. Volume 4. Miss World [Compiled by Firstlast] (2017) [MP
 magnet:?xt=urn:btih:A4F7382BEA049694585B0654816B9054D6DB7197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,32 +758,7 @@ VA - Magic Plasma: Hardstyle Techno Dance (2017) [MP3|320 Kbps] <Hardstyle, Tech
 magnet:?xt=urn:btih:7283EF3F4A072591C3DA074B22E1783A39BB0682
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147678   (607736) от 03.07.2017
-
-VA - Plankton Essence: Psychedelic Trance Mix (2017) [MP3|320 Kbps] <Psy-Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_607736.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anubia - Visual Cortex (Original Mix) 7:30
-002. Streamers - Power of Emotion 8:58
-003. JBC Arkadii - Dark Energy 9:26
-004. Kaayaas & Crystal Mantis - Obsidian Circle 8:01(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 12:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E3887BA21128CDF2993FB7EABB76A7735EDEC7
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

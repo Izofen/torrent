@@ -20,6 +20,8 @@ Ocean Match / Рыбки: Три в ряд v2.6.3 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:5B18724E50F4CE889852C006627CD92BFE094795
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ ARuler - лучшее и бесплатное приложение на Android 
 ```bash
 magnet:?xt=urn:btih:A273DF0429C19505787EE7C8C13658529DB657E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:8CCAB6DA0CA0DD05BCBAA3CED67A7E5BAE8E21CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:8CCAB6DA0CA0DD05BCBAA3CED67A7E5BAE8E21CE
 ```bash
 magnet:?xt=urn:btih:7AA13D3235F83C3EA138CE531FBC132C04909E76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:7AA13D3235F83C3EA138CE531FBC132C04909E76
 magnet:?xt=urn:btih:3D529781B2BFF4A3D9228D14DBB1B56D27D952EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Henjin no Salad Bowl | A Salad Bowl of Eccentrics | Салатница чуда�
 ```bash
 magnet:?xt=urn:btih:D89D01B41C8BD955FE1087F68128C06EB7F20EBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:D89D01B41C8BD955FE1087F68128C06EB7F20EBA
 magnet:?xt=urn:btih:7FD265BCDAB64FFCE0E28C37AAEFDE0301948C99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ House Flipper – увлекательный и интересный в своё
 ```bash
 magnet:?xt=urn:btih:0F4D560DE285441751D508E1960E7ED313DB3B57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ TapScanner — сканер документов, это простой скан
 magnet:?xt=urn:btih:CE707DFB36A6A8AB5BB95E5DEAD59E1B4ABC8B72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:CE707DFB36A6A8AB5BB95E5DEAD59E1B4ABC8B72
 ```bash
 magnet:?xt=urn:btih:0D260A839A49E61EA396549E5696D469C51CC3DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ Black Stone Cherry - Hits, Rareties And Live (2014) [FLAC|Lossless]<Rock, Acoust
 magnet:?xt=urn:btih:8C44CFC78BA0F82C34600EC8E402C03E4FCF7F92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ A-ha - Compilation (1985-2022) [MP3|320 Kbps] <Synth pop, New wave, Pop rock>
 magnet:?xt=urn:btih:2785B519802CB1A4672D7C48BF3761ADE65FBAD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:2785B519802CB1A4672D7C48BF3761ADE65FBAD9
 ```bash
 magnet:?xt=urn:btih:75A246A36A500ADC33E06836521AA8D65E5CBB34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ No To Co - So What (1970) [FLAC|Lossless]<Folk-Rock>
 magnet:?xt=urn:btih:CB199C692831FC9AC00AD6BC1059F04F2724A2BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ tinyCam Monitor PRO - удобное приложение для работы с
 ```bash
 magnet:?xt=urn:btih:19C43A5511635963C278EB11C6C4DAEE196FEEC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:19C43A5511635963C278EB11C6C4DAEE196FEEC5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:19C43A5511635963C278EB11C6C4DAEE196FEEC5
 ```bash
 magnet:?xt=urn:btih:5BC754E5242F8A4D3451D4D234C14AABCDDC6F98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:5BC754E5242F8A4D3451D4D234C14AABCDDC6F98
 magnet:?xt=urn:btih:77FA401368C97554148E715FD02D0797AF9AD34F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:77FA401368C97554148E715FD02D0797AF9AD34F
 ```bash
 magnet:?xt=urn:btih:45D49F51B44459FDB1BF22175B27B217290B8609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:572C08A2DF246EE583B26A646C945683F1336B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:572C08A2DF246EE583B26A646C945683F1336B25
 ```bash
 magnet:?xt=urn:btih:93F886CE4ECEB3B7408C6740D8FBDFA3FEF3EA5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ Ashampoo Photo Optimizer 10.0.6.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:C7844B26C7DEEEC0176120F3A495458F9D4E8669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.32.8 Gold
 ```bash
 magnet:?xt=urn:btih:A9A6C99FBF04D3AF92BE632C9F96F8611C4268FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:A9A6C99FBF04D3AF92BE632C9F96F8611C4268FC
 magnet:?xt=urn:btih:C59CB9A9943CB93854F96FDCDC98B12E925175B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:C59CB9A9943CB93854F96FDCDC98B12E925175B8
 magnet:?xt=urn:btih:FF5B29E0994429D83C88D29F432E28CFE866294A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:FF5B29E0994429D83C88D29F432E28CFE866294A
 ```bash
 magnet:?xt=urn:btih:F3CD2ECF7A92362EF9687C46E8705D6AB0E8B906
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

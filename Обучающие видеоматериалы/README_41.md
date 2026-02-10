@@ -20,6 +20,8 @@ Kalacheva School, Анна Цымбал | Новые основы леттери
 magnet:?xt=urn:btih:7EAE9CEB015F90D46232DE95F1E0D057802FBAE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:7EAE9CEB015F90D46232DE95F1E0D057802FBAE0
 ```bash
 magnet:?xt=urn:btih:0A7F3B76B884E004F0CE80730AFC8889D0CEB481
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Udemy, Neil Bettison | The Blender 4 Ultimate Guide (2023) WEB-DL [EN] [RU]
 magnet:?xt=urn:btih:EFB8CF91C548A24A426D07695694F19EA7F5279B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Asya-Design, Александра Бавыкина | Курс по 3D визуа
 ```bash
 magnet:?xt=urn:btih:8201A08CEBCF49AE9DEC0F98E1FFF8BC072CB406
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:8201A08CEBCF49AE9DEC0F98E1FFF8BC072CB406
 magnet:?xt=urn:btih:28435017E565D60AA8C11867C6FB4FA4B8C09AE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:28435017E565D60AA8C11867C6FB4FA4B8C09AE4
 magnet:?xt=urn:btih:160293EC4021B9D5431BE4ED53254711E460C270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:160293EC4021B9D5431BE4ED53254711E460C270
 ```bash
 magnet:?xt=urn:btih:4B5CBFF9474EA3E97DFC7A671945D97B5301E3C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:4B5CBFF9474EA3E97DFC7A671945D97B5301E3C8
 magnet:?xt=urn:btih:2C87F577F5F719E18FEECF54A0D0C4C40120A4E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:2C87F577F5F719E18FEECF54A0D0C4C40120A4E4
 magnet:?xt=urn:btih:FC7B560D37A4F694AE515088752C1E2639562C54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ ProFinansy, Наталья Котовская | Финансовая подуш�
 ```bash
 magnet:?xt=urn:btih:A0A41CA257F5A4FDCB3BBDAE195CC6B954753C84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:A0A41CA257F5A4FDCB3BBDAE195CC6B954753C84
 ```bash
 magnet:?xt=urn:btih:6B734DD30AAC91C29750F8DD8CA94FB5810FF5D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:6B734DD30AAC91C29750F8DD8CA94FB5810FF5D0
 magnet:?xt=urn:btih:43D4D78BEAC542D89D5698D411A5604380724367
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ Udemy, Colt Steele | JavaScript Pro: Mastering Advanced Concepts and Techniques 
 ```bash
 magnet:?xt=urn:btih:CFC142E9094188A76327222B05CE70143B3435F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:CFC142E9094188A76327222B05CE70143B3435F9
 magnet:?xt=urn:btih:59C0EAD446ED704F0D6ABF058C3E6D4AB48D84E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ Udemy, Hussein Nasser | Fundamentals of Backend Engineering (2023) WEB-DL [EN / 
 ```bash
 magnet:?xt=urn:btih:0624EDDF65888145FC7E5561FBC8F0DDE15A1404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:0624EDDF65888145FC7E5561FBC8F0DDE15A1404
 magnet:?xt=urn:btih:8018C96544DC43A5C19E3DDE38BCDA9E6E650720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ Joakim Karlsson | The trio (2020) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:C9A18FD9AB054EF6AFE28E9D46B267483B31D44F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ Asya-Design, Александра Бавыкина | 3D моделировани
 magnet:?xt=urn:btih:0B0F59480269C2C9D7C77CF6A6E96B4C008FDC92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ Udemy, Oner Oncer | 3ds Max + Corona Render Photorealistic 3D Rendering Course (
 ```bash
 magnet:?xt=urn:btih:89DBDE9CE0CFA8D264CB417281EB7CD94D754EF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ Udemy, Brad Traversy | PHP From Scratch 2024 | Beginner To Advanced (2023) WEB-D
 magnet:?xt=urn:btih:C3082DE51E015D5878D8817D68F2A3C746990B9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ Udemy, Thomas Harle | Unreal 5 Niagara - Advanced Niagara (2023) WEB-DL [EN, RU]
 magnet:?xt=urn:btih:5152D8F4338971BACC002694F49D774A665E767B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ Podlodka Crew| Python Crew #2. Python для энтепрайза (2023) WEB-DL 
 magnet:?xt=urn:btih:9E30175D680B437BE9E4C1D0164B1B7E7169B456
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ Udemy, Uzochukwu Eddie Odozi | Microservices with NodeJS, React, Typescript and 
 ```bash
 magnet:?xt=urn:btih:E3BE6971CCBA465BF1FF4C2120B67CCCCFB0B891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ Skillbox, Евгений Дмитриев | DevOps-инженер. Docker (2022-
 magnet:?xt=urn:btih:57256712458B5936D629FE23E43CC22197E15C8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ Skillbox, Александр Крупин, Евгений Дмитриев | Dev
 magnet:?xt=urn:btih:D10FC7A666D8BFC2CA75155FC7CA1BC1D4FC1337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ DevOps-инженеры используют Kubernetes (k8s) для управ�
 ```bash
 magnet:?xt=urn:btih:1E03C1F435D83B178EA5B749FAD9AE901005BE29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

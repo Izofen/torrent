@@ -22,6 +22,8 @@ Leo Rojas - Flying Heart (2012) [FLAC|Lossless|image + .cue] <New age, Instrumen
 magnet:?xt=urn:btih:C4C785863776D82353F7D2E67FB971812B5F28AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:C4C785863776D82353F7D2E67FB971812B5F28AA
 ```bash
 magnet:?xt=urn:btih:E2555366D63286EA9E038C381C5B68EE6DAFF6B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ VA - Back To Nature (2012) [MP3|320 кб/с]<New age, Instrumental, Relax, Sound
 magnet:?xt=urn:btih:49E7EC4C508F8206EBB8240C7A77AE4A8346728A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -107,6 +113,8 @@ CD3: Следующий Танец за МнойЖанр: Instrumental, Easy Lis
 ```bash
 magnet:?xt=urn:btih:E34AA3F4C5BA189776BE86C94B4C1173C9A70400
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -135,6 +143,8 @@ Wuauquikuna - Original Edition (2020) [MP3|320 Kbps] <Native American, New age, 
 magnet:?xt=urn:btih:580B259BC8E1FF5AAE0A72147A92ACED09DEF24F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -161,6 +171,8 @@ Tommy Tallarico - Evil Dead: Hail To The King (2000) [MP3|~190 кб/с]<Score>
 ```bash
 magnet:?xt=urn:btih:2F7B81CF41C427D96424650D2415BFE2C84AA22A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +201,8 @@ Christopher Phillips - Piano Chill: Songs of James Taylor (2017) [FLAC|Lossless|
 magnet:?xt=urn:btih:A9AF426F9337669EA6D3252AB26F7CF8F7EE3A22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ Contagion - Thrill Kill (1998) [MP3|320 кб/с]<Soundtrack>
 magnet:?xt=urn:btih:E046BBAD6288C979AECCE0114FE6F257BFEDBE26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +256,8 @@ magnet:?xt=urn:btih:E046BBAD6288C979AECCE0114FE6F257BFEDBE26
 ```bash
 magnet:?xt=urn:btih:D450C9F4002D76C6C9B9A43642CD9C9B56EFB63D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +286,8 @@ Ennio Morricone - Ennio Morricone Lounge Vol 1 (2017) [MP3|320 Kbps] <Soundtrack
 magnet:?xt=urn:btih:23B9B16F0EAC48D5BDB547F84B3294349D4DBD78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +314,8 @@ Ennio Morricone - Ennio Morricone Lounge Vol 2 (2017) [MP3|320 Kbps] <Soundtrack
 ```bash
 magnet:?xt=urn:btih:1CA64642B0CC0192D1AF826A0004663F4B323D34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +344,8 @@ Prem Joshua - Breath Of Voavah (2017) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:52535AF5B93B884D5D05551279C3EC2EF6C98651
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +372,8 @@ Dark Territory - Libera Me (2005) [FLAC|Lossless|image + .cue] <Gothic, Medieval
 ```bash
 magnet:?xt=urn:btih:26251D1863AD114C242C13034EA1878DB60728D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +402,8 @@ VA - Лучшие цыганские песни конца ХХ века - Ал�
 magnet:?xt=urn:btih:32BA0AEB67232155E6294C103A28E55F8C128C7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +430,8 @@ Adam Andrews - Soar (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental,
 ```bash
 magnet:?xt=urn:btih:5B95AA942C8541B8389761C5A82F96BD93769A2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +460,8 @@ Wardruna - Runaljod - Ragnarok (2016) [MP3|320 Kbps] <Dark Folk, Pagan Folk>
 magnet:?xt=urn:btih:5A93834C9412CFFD5CC9E6CF8384E1741B936BBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +488,8 @@ magnet:?xt=urn:btih:5A93834C9412CFFD5CC9E6CF8384E1741B936BBF
 ```bash
 magnet:?xt=urn:btih:28003E6DDBC017B2984ADF60E6254B7B6DCEF738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +518,8 @@ Enigma - MCMXC a.D. (1990) [OGG|485 Kbps] <Ambient, New Age, Downtempo>
 magnet:?xt=urn:btih:DAF97AB2438AFA8099E1553B63A013BDDA6DE1B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +546,8 @@ Slavik...Kemmler - Close To Heaven (1998) [OGG|485 Kbps] <New Age, Tribal>
 ```bash
 magnet:?xt=urn:btih:574A3FFC11787C1B88272D3338BBD23369621442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +576,8 @@ VA - Music Selection for the Best Macrobiotic Restaurants (2015) [MP3|320 кб/�
 magnet:?xt=urn:btih:4160BCC28CD775F110941C33A77C5C49D7618A05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +604,8 @@ Nicklas Schmidt - Ronal Barbaren (2011) [MP3|320 кб/с]<Soundtrack>
 ```bash
 magnet:?xt=urn:btih:561BE66258017FAF326DEA61941D07A6DA9470C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +634,8 @@ CD1:
 magnet:?xt=urn:btih:88C5E77BE5627E1403B6880EC280229565F91BA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +663,8 @@ Garmarna - сборник, 7 альбомов (1993-2016) [FLAC|Lossless|tracks]
 magnet:?xt=urn:btih:604CEEE4114EEB899A49EC4978238AAF39C46B77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +690,8 @@ CD3: Этот Прекрасный МирЖанр: Instrumental, Easy Listening,
 ```bash
 magnet:?xt=urn:btih:9B0B432F29EEBAA58DEA365D3775A6F3562341A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +720,8 @@ Tantric Sex Background Music Experts - Asian Tantric Yoga (2019) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:39B526179D2721EE15897C450E9210853496A08A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,6 +748,8 @@ Christopher Phillips - Piano Chill: Songs of Billy Joel (2017) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:A9526E9C62549E6855E457E1C5BBA12535BBF717
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

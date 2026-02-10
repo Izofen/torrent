@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A8C649E81D283B60F1F22E986911DFF1DC7DF0FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Best Of The 90s (2016) 2 CD [OGG Vorbis|480 Kbps] <Pop>
 magnet:?xt=urn:btih:0F2D8D123A2A1E8A6CDDCFB0F7753001B9306CBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:0F2D8D123A2A1E8A6CDDCFB0F7753001B9306CBE
 magnet:?xt=urn:btih:82B85F5BA2F35BE0A8F56BB5ABC6585261FF0539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ NieR:Automata Ver1.1a 2 | Ниер: Автомата [ТВ-2] [2024, TV, 12 из
 ```bash
 magnet:?xt=urn:btih:9CF0A7B1343899A6F1E540339C30BC3120D00F55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:9CF0A7B1343899A6F1E540339C30BC3120D00F55
 magnet:?xt=urn:btih:984BE0B5AC187223DC1E27D41F8F48D2D4FE6357
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:984BE0B5AC187223DC1E27D41F8F48D2D4FE6357
 ```bash
 magnet:?xt=urn:btih:50A4C4559406CBEB59BC77833F8250BC56209F00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:50A4C4559406CBEB59BC77833F8250BC56209F00
 magnet:?xt=urn:btih:3ADBB19D45CD3F778C6C6993B612C4AC61C820B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ MediaHuman YouTube to MP3 Converter 3.9.10.0 (1604) RePack (& Portable) by elchu
 magnet:?xt=urn:btih:74EC62343264E38B0A795B623A04C918FA8D6319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ StoryKeepers: Hidden Mystery / Хранители историй: Скрытая
 ```bash
 magnet:?xt=urn:btih:ECAFAD98F8DD0AE63CCFC1D7C282C0D1206A20C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ VA - Pop Legends (2000) [OGG Vorbis|480 Kbps] <Pop>
 magnet:?xt=urn:btih:1479D49152296C87E92B4717CB17EC5EEA793283
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:1479D49152296C87E92B4717CB17EC5EEA793283
 ```bash
 magnet:?xt=urn:btih:DC3D961C4662B163CA7E7F557C98A438828D28F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Tor Browser Bundle 14.5 Portable [Multi/Ru]
 magnet:?xt=urn:btih:AD17F8FFAD767D38EAE0F981393619890B2FEAE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Koira (2025) [Ru/Multi] (1.0.7/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:42191DA4B18574551B0AB35BB34BA7EAA26D8AF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:42191DA4B18574551B0AB35BB34BA7EAA26D8AF3
 ```bash
 magnet:?xt=urn:btih:C7B4F78E8808C460C0CD934185B4DE541266B8B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:C7B4F78E8808C460C0CD934185B4DE541266B8B2
 magnet:?xt=urn:btih:0FAED14085B2EC4E0452BE1CCC4DF1C553B85EA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:0FAED14085B2EC4E0452BE1CCC4DF1C553B85EA1
 magnet:?xt=urn:btih:EDE489F0956E9D4BE21B86EA7B7BDEFF9DE3A087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Lushfoil Photography Sim – это невероятно красивая и р�
 ```bash
 magnet:?xt=urn:btih:A2D0CE82CFD6FB23D9FB35A37D7B14F50CAED231
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:A2D0CE82CFD6FB23D9FB35A37D7B14F50CAED231
 magnet:?xt=urn:btih:250262E0A25BD56FEC320457E85F8E0667965737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:250262E0A25BD56FEC320457E85F8E0667965737
 magnet:?xt=urn:btih:971D812B991C26C4F6AD89AC1B9FA1E3DB343742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ Space for Sale — межпланетный симулятор управлен�
 ```bash
 magnet:?xt=urn:btih:4398B1A6D22433DCB7795DC0E89ED3C63F068DB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:4398B1A6D22433DCB7795DC0E89ED3C63F068DB6
 magnet:?xt=urn:btih:1EFA3C8EFA37D2F18C45F8E9A5B003C678D2A376
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:1EFA3C8EFA37D2F18C45F8E9A5B003C678D2A376
 ```bash
 magnet:?xt=urn:btih:5875CF39E8EC44903249CF86C41D6FD4ABC3A766
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:5875CF39E8EC44903249CF86C41D6FD4ABC3A766
 magnet:?xt=urn:btih:6456F8E4238C4BDB15275991DED61EFD9846A761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6758295/dlc) Repack seleZen [Digi
 ```bash
 magnet:?xt=urn:btih:CEA399C3DD166B93E4F7E5AE9D7F81217D35C1BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Sweep (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:936521D8F949AB4469D7B2F068395C3B1FB66C5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:936521D8F949AB4469D7B2F068395C3B1FB66C5E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

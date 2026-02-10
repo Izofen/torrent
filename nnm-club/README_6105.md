@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:EE58E0410F57580955BE9DB4614100842C1C5CC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:EE58E0410F57580955BE9DB4614100842C1C5CC6
 ```bash
 magnet:?xt=urn:btih:FC01627C297252A622905E01EAA3DFBA26E22C6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:FC01627C297252A622905E01EAA3DFBA26E22C6F
 magnet:?xt=urn:btih:EB181912166DBFB6FEE5D73B6FF62303835B42B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:EB181912166DBFB6FEE5D73B6FF62303835B42B5
 ```bash
 magnet:?xt=urn:btih:F7E3822A40553138E30FA1CC28C2B08B232CA523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Downfall: Redux (2016) [Ru/Multi] (1.1.3) License GOG
 magnet:?xt=urn:btih:07AE5EAC572771B14F9CB01046045EE6C1D954A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:07AE5EAC572771B14F9CB01046045EE6C1D954A8
 ```bash
 magnet:?xt=urn:btih:66B1ACACEC6B0DB804B9C17718E7880E7829B1EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:66B1ACACEC6B0DB804B9C17718E7880E7829B1EC
 magnet:?xt=urn:btih:E64C41F25B8AF9D63F9653CF7FD853E420D4BF27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:E64C41F25B8AF9D63F9653CF7FD853E420D4BF27
 ```bash
 magnet:?xt=urn:btih:D919E23D875189105BD0BB69761B8C666910FBA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:D919E23D875189105BD0BB69761B8C666910FBA7
 magnet:?xt=urn:btih:CB96143F4D27CFD902EE0C81C808207CEB07A202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:CB96143F4D27CFD902EE0C81C808207CEB07A202
 ```bash
 magnet:?xt=urn:btih:D4BBA2D0674A87FB51E38012FA70405D927C2BEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:D4BBA2D0674A87FB51E38012FA70405D927C2BEC
 magnet:?xt=urn:btih:75F4044E4E328317524FCE21DE2B467E0E450ED4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:75F4044E4E328317524FCE21DE2B467E0E450ED4
 magnet:?xt=urn:btih:A14FC6FF78A28E033CE459334BAC2BDA1AD66571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Genjitsu no Yohane: Sunshine in the Mirror / Yohane the Parhelion: Sunshine in t
 ```bash
 magnet:?xt=urn:btih:3D195D1F0C92AB2B01D4C643657820CCCECBAA8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:3D195D1F0C92AB2B01D4C643657820CCCECBAA8C
 magnet:?xt=urn:btih:9EA9C0ED8B947472DD0F22477708F166DAD83511
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:9EA9C0ED8B947472DD0F22477708F166DAD83511
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ VA - Николай Добронравов: Лучшее... (2013) Мелоди�
 magnet:?xt=urn:btih:3EFE81F61BB8B1BC0E4BB610B284436FFE25306F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Sword and Fairy 7 - китайская приключенческая ролев
 ```bash
 magnet:?xt=urn:btih:F9DC93F15843F623FCA05417B3CD87F7289A72AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:F9DC93F15843F623FCA05417B3CD87F7289A72AE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:F9DC93F15843F623FCA05417B3CD87F7289A72AE
 ```bash
 magnet:?xt=urn:btih:F41CD768BC56663791DB8C0EE2998FDF2B8C701A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Ninja Gaiden 4 (2025) [Ru/Multi] (1.0.1.0/dlc) Repack Wanterlude [Deluxe Edition
 magnet:?xt=urn:btih:306BAFBDA15F54F7D8CF80137A5E03FC47557131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Warcraft I: Remastered (2024) [Ru/Multi] (1.0.0.2137) Repack Necros
 ```bash
 magnet:?xt=urn:btih:A83C71272CF92D6012AAAEF9FCC24B5D9D9468F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:A83C71272CF92D6012AAAEF9FCC24B5D9D9468F3
 magnet:?xt=urn:btih:DF399F0DEE65EDB1CEC4A251C20B8D233AAA3A2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Chromium – веб-браузер с открытым исходным кодо
 ```bash
 magnet:?xt=urn:btih:70886001F68EE060D07A3DA7ADFCEB3A0300DE11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:70886001F68EE060D07A3DA7ADFCEB3A0300DE11
 magnet:?xt=urn:btih:C58C5CBABAA184B1A0C330CD92B468044EFB890B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Kaspersky Free – это ограниченная бесплатная верс
 ```bash
 magnet:?xt=urn:btih:1710798496FD520098C195A2DD4B4109DB7777B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ iTubeGo YouTube Downloader 10.9.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DC69F0C4D0F2932EA5D83991BB8EE9843ED40187
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

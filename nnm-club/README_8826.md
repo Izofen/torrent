@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:29E5681FFF7D02B10AC74A6EDAFC354A2B045F2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Video Kids - On Satellite (2011) Unofficial Release [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:0A382D0C4F220D900E08CFFD2295E10F7FDD1111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:0A382D0C4F220D900E08CFFD2295E10F7FDD1111
 ```bash
 magnet:?xt=urn:btih:9E8C8CD20E18DC375A116B79B4369EEF498411C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ W O L F C L U B - Infinity (2018) [MP3|320 Kbps] <Synthpop, New Wave>
 magnet:?xt=urn:btih:CC0DCA5696C4EDD6D8B50E49FBF344717B554F6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Autorun Organizer - простое в использовании приложе�
 ```bash
 magnet:?xt=urn:btih:DC3B8946091673DFF3D1A7B79297C9C88F87D2A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ W O L F C L U B - Chasing The Storm (2018) [MP3|320 Kbps] <Synthpop, New Wave>
 magnet:?xt=urn:btih:B59A60E426303E9A01BF177FA4D3FE7B6A730A45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ WISIWYG-редактор - “что видишь, то и получишь”. 
 ```bash
 magnet:?xt=urn:btih:7E3E8FE15E72856FA8F3E2E0D18639E889A6C380
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ W O L F C L U B - W O L F C L U B (2017) [MP3|320 Kbps] <Synthpop, New Wave>
 magnet:?xt=urn:btih:C54EBC42FF54422A499BE0E08F624A68FF87C09F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Apowersoft ApowerRec - программа для захвата и записи 
 ```bash
 magnet:?xt=urn:btih:C9400534C04120CB3F76F00C112AD450774225AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ VA - Dance Hits 2019 (2018) [MP3|320 Kbps] <Club, Vocal, Groove, Indie Dance>
 magnet:?xt=urn:btih:BB5A3D6E85B23920B1D5BD789CB03E420DB27752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ Twinkstar - китайский браузер на базе Chromium. В Twinkst
 magnet:?xt=urn:btih:994EDC5A72FC547191B67565B747C065D7583654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:994EDC5A72FC547191B67565B747C065D7583654
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ VA - A State of Trance: Future Favorite - Best of 2018 (Extended Versions) (2018
 magnet:?xt=urn:btih:4588A59930F6AA8EE68505F855434B86B7D8D6E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ Wolfheart - проект небезызвестного в музыкальны�
 ```bash
 magnet:?xt=urn:btih:E71912C12071BC4E7E357FB19EFB600E2D32C634
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:E71912C12071BC4E7E357FB19EFB600E2D32C634
 magnet:?xt=urn:btih:9D02FE8C08699761AC8F9D81717582C895DED8BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ Futurecop! - Edge Of The Universe (feat. Parallels) (2018) [MP3|320 Kbps] <Synth
 ```bash
 magnet:?xt=urn:btih:8549DB88721CA7754FBA1AADF1661768E8C8FB9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +468,8 @@ Del Shannon-The Complete UK Singles More 1961-1966 (2013) [FLAC|Lossless|tracks 
 magnet:?xt=urn:btih:296424A06F680EB4712E65908CA1F55933949229
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ magnet:?xt=urn:btih:296424A06F680EB4712E65908CA1F55933949229
 ```bash
 magnet:?xt=urn:btih:70772410106D178F9B1DC276FFBAD4C96514DCCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +521,8 @@ Kalax - Singles (2016) [MP3|320 Kbps] <Synthpop, New Wave>
 ```bash
 magnet:?xt=urn:btih:DB0EB16C558F1FC79701B7AA769A527258F4F727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +551,8 @@ VA - Balearic Sundown Lounge-Beach Chill Out Summer Moods (2018) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:15F8BF6BEADEC272E1DF9348D3228B8ED7A4B129
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +579,8 @@ Futurecop! - Return To Alvograth (2017) [MP3|320 Kbps] <Synthwave>
 ```bash
 magnet:?xt=urn:btih:CE42A284CD445F856D16EB23605BA2F44E123D87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +609,8 @@ Futurecop! - The Lost Tapes (2016) [MP3|320 Kbps] <Synthwave>
 magnet:?xt=urn:btih:11E8643758E1975EC5E5D9BEACAA680F34E7A437
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +637,8 @@ Anonymous Various Artists - Covert 3 (2018) Touched Music [FLAC|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:1E3928C97B3A019B812BA54C7B1FAC6FE396B28A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +667,8 @@ VA - Visceral 069 (Mixed by James Warren) (2018) [FLAC|Lossless|WEB-DL|tracks] <
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +696,8 @@ Karizma Duo - Acoustic (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:7ECABDFB9202A43A7B27779A51FB923254332245
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +721,8 @@ iFinance 4 позволяет вам отслеживать доходы и ра
 ```bash
 magnet:?xt=urn:btih:FA5B469699DCD4F4E1131F83C2285421E658438F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

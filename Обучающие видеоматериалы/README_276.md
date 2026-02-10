@@ -21,6 +21,8 @@ Udemy, ZTM Academy, Andrei Neagoie | Подготовка к собеседов�
 magnet:?xt=urn:btih:0BA4F1AE45FC4664BF46EA066CC819F98AC8E8BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Udemy, ZTM Academy, Andrei Neagoie | Master the Coding Interview: Data Structure
 ```bash
 magnet:?xt=urn:btih:2180B5AF1DFA1B2489A5A3B7A523B58B83CCA241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Udemy, ZTM Academy, Andrei Neagoie | Complete Python Developer in 2021: Zero to 
 magnet:?xt=urn:btih:74B6A0FDBC5A82C9A6A0BF52FBE63A3BDAA18519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Udemy, Kunal Gupta | C++ Programming Bootcamp 2021: A-Z  (2021) PCRec [En / En S
 ```bash
 magnet:?xt=urn:btih:BC02F5EDA37F1C5AE6432B219995400FF3DD9DC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ CSS Demystified, Kevin Powell | Start writing CSS with confidence  (2020) PCRec 
 magnet:?xt=urn:btih:BFA8DB51665E9CCE07C82E684DF31EF08C26FF36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Servers for Hackers | Scaling Laravel (2021) PCRec [En]
 magnet:?xt=urn:btih:F3C8C86D15DBBBB8C49DD5AE5B409A2AFF9C5232
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ Webpack известен тем, что его сложно правильно �
 ```bash
 magnet:?xt=urn:btih:B01D5CB5F6A7C881CEA82E12C2F71F03A47C8131
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ Udemy, Rob Percival | The Complete Web Developer Course 2.0  (2021) PCRec [En / 
 magnet:?xt=urn:btih:4973931EE0459F3E9DA44EC17E3AACCAA805773A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ Udemy, Elena Vorobyeva | Английский по полочкам (для на
 ```bash
 magnet:?xt=urn:btih:36B540A8F3F5CE793AB677510BC820F54E5111E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ Puzzle Brain, Андрей Кисюк | Создание чат-бота в Tele
 magnet:?xt=urn:btih:A71EBE360A7CB999DC696AFFDC99444C30A620D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ Udemy, Colt Steele | The Web Developer Bootcamp 2021 (2021) PCRec [En / En Sub]
 ```bash
 magnet:?xt=urn:btih:27D108ACDC8240512A55078B537789C884F13E5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +331,8 @@ SF Education, Роман Павлов | Word: продвинутые возмо�
 magnet:?xt=urn:btih:7BF999169F2887575B430AA8D019195B17BA165E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +359,8 @@ SF Education, Барсукова Юлия | Презентации для про
 ```bash
 magnet:?xt=urn:btih:952FFE672EAA542FD23DC2F61D1BF3A12EF90DDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +389,8 @@ Javascript - самый популярный язык программирова
 magnet:?xt=urn:btih:03337F95CA26A03EB3398D6CE54E4057F1652792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +415,8 @@ WingFox, Maria Anikina | Создание реалистичных волос в
 magnet:?xt=urn:btih:B556C37142585DF0B01ED69B145681CA55963979
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +440,8 @@ Udemy, Денис Цветцих | Чистая архитектура на пр
 ```bash
 magnet:?xt=urn:btih:A428D9CB199EF475702B77E9D0BDF46653F959D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +470,8 @@ Udemy, Inder Singh | MERN Stack:React, Socket io, Nextjs, Express,MongoDb, Nodej
 magnet:?xt=urn:btih:85770B4CF6B92F3AD1B43AB00AE0207AFE011914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +497,8 @@ Udemy, Shikhar Verma | Red Hat System Administration I-II (RH124, SA1-SA2, RHEL8
 magnet:?xt=urn:btih:4A1FA0AE81F2E6F48BFA69B183A9983B1E8ADC4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +522,8 @@ Command Query Responsibility Segregation - это разделение сист�
 ```bash
 magnet:?xt=urn:btih:F47AC56DC00FBE79A2D781E40A5A6B9C6CE098DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +551,8 @@ The Tech Resume, Gergely Orosz | The Tech Resume. Inside out [Video Course + Ebo
 magnet:?xt=urn:btih:F4C7AFE051C6A24FE445FED9B547612E9BF502CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +578,8 @@ Skillbox, Николай Смирнов и др. | Таргетолог с ну�
 ```bash
 magnet:?xt=urn:btih:835F96A839399FD26E9C768102FBCEA463AB01CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +607,8 @@ Apache (   Читать дальше...   )Производство: UdemyЖа�
 magnet:?xt=urn:btih:1485C91B36E8D099640DC6180DC42FD0E4A8997E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +633,8 @@ magnet:?xt=urn:btih:1485C91B36E8D099640DC6180DC42FD0E4A8997E
 ```bash
 magnet:?xt=urn:btih:29B2DBC534AEEBC79225EBCF04D829F7E2A458C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +662,8 @@ Udemy, Danil Chigirev | Angular Architecture. How to Build Scalable Web Applicat
 magnet:?xt=urn:btih:3E7C707A1BD7C1A7914BA67546B0D148B691D858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +689,8 @@ Tableau Desktop - одна из самых популярных платформ
 ```bash
 magnet:?xt=urn:btih:866A9FD7701950CCEF812AE23ECDCA1E16EED0B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +718,8 @@ D3.js - это библиотека JavaScript для специалистов 
 ```bash
 magnet:?xt=urn:btih:92455224B87119F8CBA15740C805A765E1217A35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

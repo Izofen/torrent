@@ -22,6 +22,8 @@ VA - Music News For Forum vol.090 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:B21A702F9FCA58EDF78A7F934AB182DB198BA910
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Acoustic - сборник демо-записей, студийных и жив�
 ```bash
 magnet:?xt=urn:btih:BEA0639A67C3594CFBEF9E5533C8D1AB045B06BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Morcheeba - Escape The Chaos (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electro
 magnet:?xt=urn:btih:C258F7621D3AC9A687041A566075BEA184A3C9EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Sparks - MAD! (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Synth-pop>
 ```bash
 magnet:?xt=urn:btih:A4176953B3AD37DC43DF90EA266360924AAA3585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Green Day - Saviors (2024) edition de luxe, 2025, Reprise [FLAC 24/48, 24/96|Los
 magnet:?xt=urn:btih:B769FD2D957CE1D75B2BE09AC61B05C39995A41E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ magnet:?xt=urn:btih:B769FD2D957CE1D75B2BE09AC61B05C39995A41E
 magnet:?xt=urn:btih:A3A3FA36EC2123D94BBC6C1089E49F96005368BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:A3A3FA36EC2123D94BBC6C1089E49F96005368BD
 ```bash
 magnet:?xt=urn:btih:CD9904EE9C5C03DB4223FAD0FDD93A6684F1C636
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ VA - The Orient Collective: Ancient Beauty (2025) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:45639DB9FE223B803FD5BE2E75E51BA6083FB285
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:45639DB9FE223B803FD5BE2E75E51BA6083FB285
 ```bash
 magnet:?xt=urn:btih:B4E8E3EEEED733D3AE14124F3A91DDE9B8A9282E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:B4E8E3EEEED733D3AE14124F3A91DDE9B8A9282E
 magnet:?xt=urn:btih:74AFC27502E2846E52DCDAC531DC7CACA9BEEDDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:74AFC27502E2846E52DCDAC531DC7CACA9BEEDDA
 ```bash
 magnet:?xt=urn:btih:8F288DFDFF59B05103407DE2652DF40E1729D2CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ VA - Summer Mix 2025 (Best of Ibiza Deep House Sessions Music Chill out Mix) (20
 magnet:?xt=urn:btih:FA657AE832EB6718E2B75416D3A3A0A6E7CE9EBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ James Horner - Titanic: Music From the Motion Picture (1997) CD, Album [FLAC|Los
 magnet:?xt=urn:btih:3651805C7371788706905CAB0B0D308A553D8338
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:3651805C7371788706905CAB0B0D308A553D8338
 ```bash
 magnet:?xt=urn:btih:19FAEF238B4A11ECA1666FD0FC539CFC14DF5D23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ Lenny Kravitz - Let It Ride Remixes, Pt. 2 (2025) [MP3|320 Kbps] <Electronic, Da
 magnet:?xt=urn:btih:DA4B25E6681D1519D80F8A4E327E8D5E83DE3385
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:DA4B25E6681D1519D80F8A4E327E8D5E83DE3385
 ```bash
 magnet:?xt=urn:btih:3F6A6EC14569037DF88B88220403CE6DFE87815A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ Stay Away - Культ отсутствия личности (2025) [MP3|320 Kbp
 magnet:?xt=urn:btih:FD52D48F28C21369DE78B493EDD9F72A00560D32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ magnet:?xt=urn:btih:FD52D48F28C21369DE78B493EDD9F72A00560D32
 ```bash
 magnet:?xt=urn:btih:F6A81ED9A895B8133A6BB6C037645EFE85746489
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:F6A81ED9A895B8133A6BB6C037645EFE85746489
 magnet:?xt=urn:btih:BE80FE1062E7313C555ED6500D611ACD5313A6DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:BE80FE1062E7313C555ED6500D611ACD5313A6DF
 ```bash
 magnet:?xt=urn:btih:2ED9DD22F698C65F757DA4AFBCB10F708CCAD5C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:2ED9DD22F698C65F757DA4AFBCB10F708CCAD5C8
 magnet:?xt=urn:btih:29E9022A07CF069658A2BE8457E24C8F80A6A908
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:29E9022A07CF069658A2BE8457E24C8F80A6A908
 ```bash
 magnet:?xt=urn:btih:E7A3ADD9D8ECEB999CB01C4914BED07A68C526A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ Crungus - Hollow (2025) [FLAC|Lossless|WEB-DL|tracks] <Black, Death Metal>
 magnet:?xt=urn:btih:58367B3359568EC39C92CDEFEB0CFF7C6230E238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ magnet:?xt=urn:btih:58367B3359568EC39C92CDEFEB0CFF7C6230E238
 magnet:?xt=urn:btih:5FCE76B578A9058BE2A34169C30DD412E8717697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:5FCE76B578A9058BE2A34169C30DD412E8717697
 magnet:?xt=urn:btih:C013A0B9A43491C3FA17131C5354E4C1EB1C14C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:C013A0B9A43491C3FA17131C5354E4C1EB1C14C8
 ```bash
 magnet:?xt=urn:btih:33F40CCFAA26ED5AAE685420A050B5CA531815AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

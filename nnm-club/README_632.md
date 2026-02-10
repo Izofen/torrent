@@ -19,6 +19,8 @@ The Axis Unseen - это игра в жанре хэви-метал хоррор
 magnet:?xt=urn:btih:08923B57E9E4337E79325C630228C9139DC7FF0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:08923B57E9E4337E79325C630228C9139DC7FF0D
 magnet:?xt=urn:btih:957AE1888A855641CEB64505AE6207E20331E4F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:957AE1888A855641CEB64505AE6207E20331E4F8
 ```bash
 magnet:?xt=urn:btih:1668860BD0B050710F6B6EA0A2CC9140443E73AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Audio React Music Visualizer — отличный способ визуализ�
 magnet:?xt=urn:btih:E820C76D4B3A8CA54B52FE47DB6180D090B97E85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ ARES Mechanical — это программное обеспечение САП�
 ```bash
 magnet:?xt=urn:btih:A8BFE9792DB8A77207416DCE8AD33A251567F371
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Shelly Manne & His Men - Swinging Sounds, Vol.4 (1956) 1996, Original Jazz Class
 magnet:?xt=urn:btih:9E3C9E72D83CE79673270F3FE9546A5FC6668ED6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:9E3C9E72D83CE79673270F3FE9546A5FC6668ED6
 magnet:?xt=urn:btih:9C71E04B4B2A6C27DE92B863A49F89BC7B83F19D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Capital — это многофункциональное суперсемейс
 ```bash
 magnet:?xt=urn:btih:3A32EA96C21B3433B1CA8D933A89EAB7B4BB453D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Red Vinter - Lumbering Menace (2025) [MP3|320 Kbps] <Death, Doom Metal>
 magnet:?xt=urn:btih:DE034F330FC1E7F408BC535F7F8A6D6D99A35DB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ Primalfrost - Path of Resilience (2025) [MP3|320 Kbps] <Melodic Death, Power Met
 magnet:?xt=urn:btih:F4942E76471A86E7D3ABDABDC8C21EDBFDFC02E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:F4942E76471A86E7D3ABDABDC8C21EDBFDFC02E1
 ```bash
 magnet:?xt=urn:btih:46FA183D454108E137566862C53882A1461A3882
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:46FA183D454108E137566862C53882A1461A3882
 magnet:?xt=urn:btih:91FFBC7BA9B4A09EC51661FBB81130DC56F94DA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Age of Darkness: Final Stand — это стратегия в реальном �
 ```bash
 magnet:?xt=urn:btih:561219C0C371FBBF5902B71BD063FF6C6492E477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:561219C0C371FBBF5902B71BD063FF6C6492E477
 magnet:?xt=urn:btih:F93FA9E37E58E576F42C75BCCC7EA17C625F6C82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:F93FA9E37E58E576F42C75BCCC7EA17C625F6C82
 ```bash
 magnet:?xt=urn:btih:CAE50BCE63965DD68F1B33F80B08D55CDFA4EFC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Call of Duty Modern Warfare 2 (2022) - шутер от первого лица, 
 magnet:?xt=urn:btih:701B12B329685A45B8EF26970BF011EE82408E94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Call of Duty: Vanguard (2023) [Ru/Multi] (1.26) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:CF56130E7D13A1FC1529C54373B5CE72A8C4A1F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ King Arthur: Legion IX - это пошаговая RPG-стратегия, де�
 magnet:?xt=urn:btih:B97BC737E17F2ADAE44BA121014AACA844414253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:B97BC737E17F2ADAE44BA121014AACA844414253
 ```bash
 magnet:?xt=urn:btih:F8BFBCB876407248DAE49B687FBD1771E22DAD94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:F8BFBCB876407248DAE49B687FBD1771E22DAD94
 magnet:?xt=urn:btih:E5FCB202D91754FA94AE121ABE6698159F633FEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:E5FCB202D91754FA94AE121ABE6698159F633FEE
 ```bash
 magnet:?xt=urn:btih:7FF3BD30531A7A1C723B8F962584BC28BAD22D80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Call of Duty: Vanguard (2023) [Ru/Multi] (1.26) Repack seleZen
 magnet:?xt=urn:btih:BB78C7AE876325664A7F4F0FD3474B3DE50EE493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:BB78C7AE876325664A7F4F0FD3474B3DE50EE493
 ```bash
 magnet:?xt=urn:btih:11458E5CB5A4E4DBCEAF7393E7AB74799E88E15F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:11458E5CB5A4E4DBCEAF7393E7AB74799E88E15F
 magnet:?xt=urn:btih:678DD8F0629F2854C08FB66CF538E2AEE27FE24E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:678DD8F0629F2854C08FB66CF538E2AEE27FE24E
 magnet:?xt=urn:btih:5966D8DB7C5F47BEFF56D96BCD7F6FAB8B5B25D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:5966D8DB7C5F47BEFF56D96BCD7F6FAB8B5B25D1
 ```bash
 magnet:?xt=urn:btih:0DF604FD558B8A83B8B4031A9187465C67CA69D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

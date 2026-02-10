@@ -19,6 +19,8 @@ Bastion - ролевая игра с принципиально новым вз�
 magnet:?xt=urn:btih:1F0BA24F57559728A62068CC2A2C243866515472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Mass Effect 3: Special Edition (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [Licens
 ```bash
 magnet:?xt=urn:btih:CB7574F76DFE352060B869E3A783152F438C8376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Pro Evolution Soccer 2014 впервые в истории знаменитой 
 magnet:?xt=urn:btih:3594F9D1DBEF88999B6DC48292715D3098651DA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Just Dance 2016 (2015) [Xbox360] [RegionFree] [FreeBoot] [License] [En]
 ```bash
 magnet:?xt=urn:btih:23B673BE72E5F7B4887CD04E5D2ECBC6867EA668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ X-Blades (Ониблэйд) (2009) [Xbox360] [RegionFree] [FreeBoot] [License] [
 magnet:?xt=urn:btih:41E08D617AE2AE3C65EEED3CC6A6004DC89CBFC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ WWE 2K14 [PS3] [EUR] [En] [4.46] [Cobra ODE / E3 ODE PRO ISO] (2013)
 ```bash
 magnet:?xt=urn:btih:8282B6ED2CFC9620E4A00A8974704C2AFC33D98E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Tom Clancy's Splinter Cell: Blacklist (2013) [WiiU] [EUR] 5.3.2 [WUP Installer] 
 magnet:?xt=urn:btih:DAD3AE8E7F5FA886B4F9ECA2BDCF8037BA733AED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NHL Legacy Edition (2015) [Xbox360] [RegionFree] [LT+3.0] [License] [Ru]
 ```bash
 magnet:?xt=urn:btih:6ECD316F21BF010122C629B083F299E6786F9718
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Deus Ex: Human Revolution - третья часть популярного РП�
 magnet:?xt=urn:btih:4A0A202FDF3E4FADB5156129B5F51E1351FF21D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Summer Stars 2012 [PS3] [ENG] [PAL] [MOVE] [3.55] (2012)
 ```bash
 magnet:?xt=urn:btih:C81E7AB7FAD0C8C51352556D9BE93ECC88E280E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Earth Defense Force 2025 - это очередная часть безумног
 magnet:?xt=urn:btih:73D6636C0DE7ACAAF7AC8EEFD9972F61E185F216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ SteamWorld Heist (2016) [WiiU] [USA] 5.3.2 [Loadiine GX2] [eShop] [Ru/Multi]
 magnet:?xt=urn:btih:2D84D8BBFBA9B4E3052AEB6C1EF2F4B7B2BDFBA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Weird Park: The Final Show (2015) [PS3] [EUR] 3.55 [Cobra ODE / E3 ODE PRO ISO] 
 ```bash
 magnet:?xt=urn:btih:37D03C5393FA6138EAF0B7B2278619118EE9ED91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Redump.org это база данных и сообщество, храняще�
 ```bash
 magnet:?xt=urn:btih:90A8BF78651B1213ADBCDBAB20C06756513EA572
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Aksys Games с удовольствием анонсирует выход BlazBl
 magnet:?xt=urn:btih:6CAF006AE489B252C8CCBF811B0A29BCE01A2C3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Deus Ex: Human Revolution - третья часть популярного РП�
 ```bash
 magnet:?xt=urn:btih:41F13EB385463DD59E4EDEEB1D2240D7BA601197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Deadly Premonition: The Director's Cut [PS3] [3D] [EUR] [En] [4.31] [Cobra ODE /
 magnet:?xt=urn:btih:65B56608242B96F00587A5AC36C9E07180AB6354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ F1 2014 [PS3] [EUR] [En] [4.60] [Cobra ODE / E3 ODE PRO ISO] (2014)
 ```bash
 magnet:?xt=urn:btih:636E21AD7DC849D23EAF804F280C07249E80BD66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Warp [PS3] [PSN] [ENG] [NTSC] (2012)
 magnet:?xt=urn:btih:15B2E61A84ECCF070ED55422290D87942378311D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ How to Train Your Dragon (2010) [PS3] [EUR] 3.15 [Cobra ODE / E3 ODE PRO ISO] [L
 ```bash
 magnet:?xt=urn:btih:D29EEA6E19D4B7CD79035F0512A46B36283C1343
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Legend of the Guardians: The Owls of Ga'Hoole переносит игрока в
 magnet:?xt=urn:btih:505AD198DC20F6E1A3B5944CA997C71C32A1195C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Double Dragon Neon [PS3] [ENG] [NTSC] [3.55] (2012)
 ```bash
 magnet:?xt=urn:btih:5B5814E1EFCDD0EAD3E62869FC67F3C7FCA772C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Fix EBOOT на 3.55 http://narod.ru/disk/63536795001.24531daa454b445f682e1b46b4b
 magnet:?xt=urn:btih:283F9D028F69D3092D9C00A5CCE87A764015C81A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Crypt of the NecroDancer - хардкорная ритмичная игра в �
 magnet:?xt=urn:btih:BAAF4A670EA840E113F052C42107CF5D8E5D8A96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Syberia 2 / Сибирь 2 (2015) [Xbox360] [RegionFree] 17349 [Freeboot] [Unoff
 ```bash
 magnet:?xt=urn:btih:72643BCB19E78C7A1FBACCF4D607559FA9B62773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +681,8 @@ TANK! TANK! TANK! (2012) [WiiU] [EUR] 5.3.2 [WUP Installer] [License] [Multi]
 ```bash
 magnet:?xt=urn:btih:0D7FF61FABC80811A7AF92E493E3A0FBBCBAA353
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

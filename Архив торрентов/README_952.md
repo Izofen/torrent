@@ -19,6 +19,8 @@ NirLauncher Package - универсальный пакет из более че
 magnet:?xt=urn:btih:0BDFC943441CF5651FCD2A8C16D49724EA3FBE78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Windows хороша, но всегда есть, что улучшить. Во�
 ```bash
 magnet:?xt=urn:btih:6FCAEE5EC5ABACEF845FCDC15906C2704E2D6EB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PowerISO - программа позволяет создавать, конве�
 magnet:?xt=urn:btih:49CB346A2E54C6BA85996668588CC9EA51405C1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Adobe Media Encoder 2024 - это программа кодирования, к�
 ```bash
 magnet:?xt=urn:btih:B4A422DE4B57F86E9CBB84FC6053E136B053B1AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ OBS Студия - бесплатное программное обеспече�
 magnet:?xt=urn:btih:30694B8D9E65EBA905EBF006EEADB306AB181B12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ ACDSee Photo Studio Ultimate сочетает в себе поддержку с�
 ```bash
 magnet:?xt=urn:btih:EFB44543B12BA94264D00391A7C32019D4DCCAB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Soul Browser - добротный браузер, что несмотря на �
 magnet:?xt=urn:btih:C83A24239D081F2BB564146E04EDEC84159017BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Soul Browser - добротный браузер, что несмотря на �
 ```bash
 magnet:?xt=urn:btih:44A4DD3991D0BE0C3CE0BEA773F6F2B251C74CD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Speedtest - это приложение предназначено для опр
 magnet:?xt=urn:btih:B75A42C64156179B81EE7EE0D8833A9B696CAF4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Lark Player - это удобный и легкий аудио плеер, ко�
 ```bash
 magnet:?xt=urn:btih:0E81C9A4E05B8EAAFDD5D2BD5AE3AF7A284111C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Duolingo: изучай языки 5.131.8 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:C41EC6EB2DAF66CF2F97704D5BF1D206D3925FC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Adobe Photoshop Express - ещё одно крайне нужное и поле�
 ```bash
 magnet:?xt=urn:btih:DDD522FBCD886F94A7A65A4224C3C84D35E8A500
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Smart AudioBook Player - необходимое приложение для вс
 magnet:?xt=urn:btih:F67863E5DDBE6B85699BD025CE54F9420501B84C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Topaz Video AI 4.0.6 (x64) + All Models Portable by FC Portables [En]
 ```bash
 magnet:?xt=urn:btih:BE39B7E7702FD651B6AE8B0A7FA2438E186A0325
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ PDF Extra PDF Editor & Scanner v10.8.2228 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:B70C5D2795DF34501AC822244DB7D1B69DE31D38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ PowerISO - программа позволяет создавать, конве�
 ```bash
 magnet:?xt=urn:btih:68C8E743A9B68F185CD266612D3141133E3C0EA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:F1A8CDA57D7A8596D24DE959124B13FD19023A8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ W10Privacy - программа для изменения настроек си�
 ```bash
 magnet:?xt=urn:btih:5A2FC06FD904AC8801AADC8E09C2DDBB57D3EBC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:C01B1F70F2F3995695CC56D2DB774EE4900136D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:C01B1F70F2F3995695CC56D2DB774EE4900136D4
 magnet:?xt=urn:btih:E6C49CF781A8ACEA23B10ADF32CF67597A207FD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ SHAREit Premium: Pure Share v1.1.18.2 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:113F6DE171EA856D867291F20496D721E2DB6A12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Purvpn 10.0 [En/Farsi]
 magnet:?xt=urn:btih:966DA72173AAFB22386EB4B327A4311E8DCC026C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ FreeTube использует собственный HTTP-API YouTube с наб�
 magnet:?xt=urn:btih:B2B621815154A71E53329D9A30F378DE0BE40DF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ MAX Desktop 25.13.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:2CE19AD6918FABA69CCB7FF392D66542A3D9130D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:2CE19AD6918FABA69CCB7FF392D66542A3D9130D
 magnet:?xt=urn:btih:A0C18C6EF104F66DDC8D893FC2C8EC1215431E4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ BitTorrent - клиентская программа пиринговой сет
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

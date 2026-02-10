@@ -22,6 +22,8 @@ Reaxion Guerrilla - I Hate You (2010) Special Edition, 2020 [MP3|320 Kbps] <Dark
 magnet:?xt=urn:btih:72168812502FF9E0DEDDBC5ACBFFF34CF4CFBB13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Sabled Sun - 2149 (2021) [MP3|320 Kbps] <Dark Ambient>
 ```bash
 magnet:?xt=urn:btih:976BBB8CFFC5C78A127E1582FA6C29C3DD0E4DA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ ROÜGE - Ultimatum (2021) [MP3|320 Kbps] <EBM, Industrial, Techno>
 magnet:?xt=urn:btih:AF0C004FF2C8579B0CC778682A1D44AA01E8C735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ VA - Guy Mantzur - Goodbye 2020 Hello 2021 (2020) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:3897896774F3C465A1C28784DAA9F57C4D22AD08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Various Artists - Med School: Graduation (2020) Hospital Records [FLAC 2.0|24/44
 magnet:?xt=urn:btih:C8AD9D5934D30242627B9694208016AEC50E2BFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ DC Breaks - DCXV (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum 'n' Bass>
 ```bash
 magnet:?xt=urn:btih:A6863B094F7ED54854DFF6BA030F82B2C91B8586
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ Maxthor - Nothing (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrosynth
 magnet:?xt=urn:btih:B65E3846490AB25DBBA14F003CAB84BEA7853730
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ VA - Armada Electronic Elements, 2023 (2023) [MP3|320 Kbps] <House, Progressive 
 ```bash
 magnet:?xt=urn:btih:8C6B582477214AEF2FBF32DDA2EDBD3A8CED2FD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +248,8 @@ VA - Global Trance Masters Vol. 8 (2023) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:1004CABD022896F3CE1BB87BBF9FF2B2F5635B38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +276,8 @@ VA - Erotica Vol. 6 (Most Erotic Chillout & Lounge Music) (2021) [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:CA0DA4755E63F6B6A9D349A12BF275C3C7158E2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +306,8 @@ VA - Genix Presents: 20 Years Of Anjunabeats (2021) DJ Mix [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:0FCEEE29C73355C211DE6BD4B99E6DB5F44378F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ Fix8:Sed8 - The Inevitable Relapse (2021) Luxus [MP3|~245 Kbps (V0)] <Dark Elect
 ```bash
 magnet:?xt=urn:btih:9DCE016D8288647BE28F457F8CA4FB220EFFC6DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +364,8 @@ VA - Armada Music - Miami 2023 [MP3|320 Kbps] <Progressive House, Melodic House 
 magnet:?xt=urn:btih:AABF35E2619714EC60A30CD95599FE2AE16E5C79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +392,8 @@ VA - Armin van Buuren & Ruben de Ronde - A State Of Trance 1000 (2021) [MP3|320 
 magnet:?xt=urn:btih:96824C1E9BEE91BD5EAA5DB755ECA687E0B4AA7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +419,8 @@ VA - Black Hole Trance Music 01-21 (2021) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:E924FB914284B782920417EEA6869A3760EAA757
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +449,8 @@ VA - Coffee & Fireplace: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:75AEFA13ED19420A17CEA05CE7F61DB355472FCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +477,8 @@ VA - Aly & Fila - FSOE Top 20: January (2021) [MP3|320 Kbps] <Trance, UpliftingT
 ```bash
 magnet:?xt=urn:btih:288D7889831C1142E9BB0A6276F777C2B26A76A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +507,8 @@ VA - The Sound Of Christmas Gifts (2020) MixCult Records [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:F1E0F2FEEDA7ACE9405C8831C62331849C169D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +535,8 @@ Markus Schulz  played:
 ```bash
 magnet:?xt=urn:btih:6016AF2A67498F2E2D5B718483FFC9C7CE21F350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +565,8 @@ Eguana - Resurrected (2023) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, F
 magnet:?xt=urn:btih:94388C826BEA498AE23D80ED03F4743E59081FDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +593,8 @@ VA - DanceClub Beats Compilation (2023) CD, Compilation [MP3|320 Kbps] <Groove, 
 ```bash
 magnet:?xt=urn:btih:058BF7F56ED5E3D93BB84FFDDDE231F6A317F0C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +623,8 @@ VA - Trance 100 - (Extended Versions) (2021) [MP3|320 Kbps] <Trance, Progressive
 magnet:?xt=urn:btih:EADCC1677ACAA98A6E3513CDD5209070CBE51CC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +651,8 @@ Absolute Valentine - American Nightmares (2021) [MP3|320 Kbps] <Synthwave, Darks
 ```bash
 magnet:?xt=urn:btih:404BDEA142D04A59B5A0A6C31F6001D4040C4A4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +681,8 @@ VA - Best Of (2020) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:2E39D56C5E5027B9098921F3F1FE204E8802B4A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +710,8 @@ VA - Trance 100 - 2023 [MP3|320 Kbps] <Uplifting Trance>
 magnet:?xt=urn:btih:55630CCDB36E56566E8DC8D4CB1A3ED16F50346E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,6 +738,8 @@ VA - The Sound of 2023 Mix 4: Kuala Lumpur (2023) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:87C43C037C1366ECBA05514CF903CA8B1C1E23DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:FC1427F52ED09E1B6B025063EB0FA353FBC5E118
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Queen - Flash Gordon (Original Soundtrack Music) (1980) Japanese Edition, SHM-CD
 magnet:?xt=urn:btih:37AB6DB5F9CF50AFF1BA2308139B897D53A44151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:37AB6DB5F9CF50AFF1BA2308139B897D53A44151
 ```bash
 magnet:?xt=urn:btih:C47005D7C661A00E1240C369A5FE9766521EDC22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:C47005D7C661A00E1240C369A5FE9766521EDC22
 magnet:?xt=urn:btih:83A0DD4C23C7FDABFC01CF0745373DB9DF67DA76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:83A0DD4C23C7FDABFC01CF0745373DB9DF67DA76
 ```bash
 magnet:?xt=urn:btih:08E14C056A477EEB1CF87724E2A3801AD4BDA221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:08E14C056A477EEB1CF87724E2A3801AD4BDA221
 magnet:?xt=urn:btih:B69AEDFF8161E09190FAC28A729A99E10902208B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:90A41A5C38931D756096DF5D55E5D5AD0C3656CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:90A41A5C38931D756096DF5D55E5D5AD0C3656CC
 magnet:?xt=urn:btih:AE76C0DBEDFB807E8B56501BF63697BAEE186E1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:AE76C0DBEDFB807E8B56501BF63697BAEE186E1F
 magnet:?xt=urn:btih:FF9251DA35BA96B03E4E3F5A8685640119E307E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:FF9251DA35BA96B03E4E3F5A8685640119E307E5
 ```bash
 magnet:?xt=urn:btih:185A0B99364ACF05EAE0EA996B20A16476E2C512
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ CD1 - Original 2003 Mixes:
 magnet:?xt=urn:btih:C22D646C810C65FCB20EE2B9F863B3FD9699B88B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Music Collection - неплохая программа для создания �
 ```bash
 magnet:?xt=urn:btih:A73E4C29551277E749369C0A7CF13556CB8EB413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Melody Gardot - Live In Europe (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal
 magnet:?xt=urn:btih:8E4FD4E1A94AC9B57EA389C1CC0FE4A3AEE1F15A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ PhotoRoom v5.8.2 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DF4D580C1FFE030CE958E2D4EEAF33D226171EDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ Franz Ferdinand - The Human Fear (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <A
 magnet:?xt=urn:btih:CEA5995BACC6D7B9685588E2C1821C6085356435
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ VA - The Orient Collective: Spirits of the East (2025) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:823AEC571300B548D4D52C55EA99F39E642ED107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:823AEC571300B548D4D52C55EA99F39E642ED107
 magnet:?xt=urn:btih:46CA0DFC32C92D1316451C5FEF2DC5F03A74C71F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:46CA0DFC32C92D1316451C5FEF2DC5F03A74C71F
 ```bash
 magnet:?xt=urn:btih:4D8B63AEBE3FA70F8D730137AC3622D103534A04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +510,8 @@ magnet:?xt=urn:btih:4D8B63AEBE3FA70F8D730137AC3622D103534A04
 magnet:?xt=urn:btih:102C17125D44B4A106BB039A94FFC8F769AF1E90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ Broken Silence - Last Man Standing (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:6B06EF96CD2F96A6D477769B724B58E5631BB940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ VA - Grand Prix 70's (2010) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco,
 magnet:?xt=urn:btih:95413F948A22CA4C4DD5F0227E4FDE337B29E3CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ Malia - One Grass Skirt to London (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vo
 ```bash
 magnet:?xt=urn:btih:CCE8082C6F12C81FF23D02299433A9BF3D5AD585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +626,8 @@ VA - Armin van Buuren - A State Of Trance 1207 (2025) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:D0412B9C09184294A3C19C6F457881F99DC9DA00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:D0412B9C09184294A3C19C6F457881F99DC9DA00
 ```bash
 magnet:?xt=urn:btih:9FB6FC5F1D279C6050FA4448208D6CC5606AA922
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +684,8 @@ Woong San - Close Your Eyes (2010) Pony Canyon [FLAC|Lossless|image + .cue] <Voc
 magnet:?xt=urn:btih:AD194BDD9751563B6E134C2C68B2C1F69C2DC916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ Vov Sticky Notes 9.4 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:64F7E22077B531653E39C00BCC50C21089BB8D81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

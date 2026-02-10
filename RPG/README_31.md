@@ -19,6 +19,8 @@ Bloodstained: Ritual of the Night – это смесь готического �
 magnet:?xt=urn:btih:3CC2A520855F3F2276EC176D3CE94E9CB5E0E493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ SpiriTTea (2023) [Multi] (1.7.5) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:2DC1E3C5B0C9BFA280293E825D6A8EAB1F2010AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Potty Knight Saga бросает вас с головой в сложное пр
 magnet:?xt=urn:btih:8BE57072E4BB75F1E84909956045DC8CD8C1FB4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Wizard with a Gun - это кооперативная онлайн-игра в �
 ```bash
 magnet:?xt=urn:btih:32C47067E765493A020D88E24E50BC49C5F3EECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Hood Story: Kaito Yamazaki - вы сыграете за Кайто Ямадза�
 magnet:?xt=urn:btih:8C7F6850100A674EED3DA41392296BF1F98CBD56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Outward – приключенческая РПГ, события которой
 ```bash
 magnet:?xt=urn:btih:E6B3C185671365C11271B64324C4862E460A9B28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Sinderfury бросает перчатку игрокам, жаждущим гл
 magnet:?xt=urn:btih:25A643BA6CF7CE67313F9DFE2D81E7E0E52C1446
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Whispers in the Moss - это полномасштабная ретро JRPG, к
 ```bash
 magnet:?xt=urn:btih:33A12F5FD54200111CC78064DBFF40ABEC175249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Potty Knight Saga бросает вас с головой в сложное пр
 magnet:?xt=urn:btih:416885CAD9FE19425D851E535572DF5A6D1A1273
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ SKALD: Against the Black Priory может понравиться любител
 ```bash
 magnet:?xt=urn:btih:CD04FFEB7D9D15A4B01D09D1EDB649C2C1FA69E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Baladins погружает вас в причудливое приключен�
 magnet:?xt=urn:btih:1EBD4F3B0AA29A7A7646B188A3BDB6CC8DA51BE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Beneath Oresa (2022) [Ru/Multi] (1.0.23) Repack Wagner
 ```bash
 magnet:?xt=urn:btih:DE79D51882BB259CD42480BE038B82FA594CC5D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Inquisitor - это сюжетная приключенческая игра
 magnet:?xt=urn:btih:79CB4CAECD89876139A6B84036C48EC9C5CA3F68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Coromon – ролевое инди-приключение про прируче
 ```bash
 magnet:?xt=urn:btih:684B0045CA126D1073118A2BFE9754B971D55586
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ WitchSpring R (2023) [Multi] (1.307/dlc) Scene Tenoke
 magnet:?xt=urn:btih:E3CD0E4DAAF8C9D4943C65FFEF50DA11139933F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Ni no Kuni Wrath of the White Witch™ Remastered (2019) [Ru/Multi] (1.0) Repack
 ```bash
 magnet:?xt=urn:btih:435E3120AD7CD2D57EA68FA66C17AE4C72FF86A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Dark Souls II (2): Scholar of the First Sin (2015) [Ru/Multi] (1.03/dlc) Repack 
 magnet:?xt=urn:btih:E2DCA6ED24AE197D4686A9DD074726E4008A80FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Elder Scrolls V: Skyrim (2016-2021) [Ru/Multi] (1.6.1170.0.8/dlc) Repack dix
 ```bash
 magnet:?xt=urn:btih:88E381FB2C8A2F61E6D0F1C4EF9801C48E8EC2EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Elegy of Fate погружает вас в уникальное ролевое �
 magnet:?xt=urn:btih:FE782D10C8486E4EFF80A21F4C37C988EB768845
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Outcast - A New Beginning – это продолжение знаменитог
 ```bash
 magnet:?xt=urn:btih:F4443221E1B6B432BAF36F973C46263B96F5AD08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Cryptmaster – здесь вы сможете говорить что угод�
 magnet:?xt=urn:btih:20629DED352634B04ED9AFC0B38A27B6EB2CFBB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ SCP Operations (2024) [En] (1.0.0:73) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FDF2ADB4047B7572F083B57F95E760CF56989C82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Leviathan's Fantasy - это игра-симулятор, в которой 
 magnet:?xt=urn:btih:8D1AD84E5A0000E10812779949754565E394008D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Noctuary - сплав визуальной новеллы и приключен�
 ```bash
 magnet:?xt=urn:btih:08819F9E24D0A9789D9B4B8698C1E7FD3AE99C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Vendir: Plague of Lies погружает игроков в мир, наполн
 magnet:?xt=urn:btih:8B14207994812E19AE9054CC6F2256A12EB29F38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Wizardry: Proving Grounds of the Mad Overlord - это полный 3D-риме�
 ```bash
 magnet:?xt=urn:btih:E3C8D55B98E84308CC18320190176811427CF61A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

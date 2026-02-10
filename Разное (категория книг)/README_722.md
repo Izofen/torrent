@@ -1,3 +1,30 @@
+###  Публикация: 742573   (977822) от 06.01.2014
+
+Дуглас Мосс | Игры, в которые мы все играем. Тренинг по системе Эрика Берна (2012) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Психологический метод Эрика Берна помог десяткам миллионов людей по всему миру! Его слава среди психологов не уступает Зигмунду Фрейду, а эффективность подхода уже десятки лет восхищает сотни тысяч психотерапевтов в Европе, США, Австралии. В чем его секрет?
+Любая психологическая ситуация легко разбирается на составные части, выявляется суть проблемы, даются рекомендации по ее изменению... С этой книгой-тренингом провести такой анализ становится намного проще. К услугам читателей 6 уроков и несколько десятков упражнений, которые помогут научиться применять систему на практике.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EB1432AA9FDDF921D3FCF84BD33920667DB7053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 742242   (977823) от 06.01.2014
 
 Макс Таль | 30 новых мудр для удачи, достижения целей, обретения нужных качеств в нужный момент (2014) [PDF]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:1A666F43B6EF44B1B9C9AB6B7BDDCA463A1E79D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:1A666F43B6EF44B1B9C9AB6B7BDDCA463A1E79D7
 magnet:?xt=urn:btih:37E55FE4430DA6E0EA7B67AE106112F23B1E1EAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:37E55FE4430DA6E0EA7B67AE106112F23B1E1EAD
 ```bash
 magnet:?xt=urn:btih:66B0985D80B28C8DE83097605D15F1CEFFE9707B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:66B0985D80B28C8DE83097605D15F1CEFFE9707B
 magnet:?xt=urn:btih:F47F92A570A1F6EDAF931AE879ED82818A590CE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +152,8 @@ magnet:?xt=urn:btih:F47F92A570A1F6EDAF931AE879ED82818A590CE7
 ```bash
 magnet:?xt=urn:btih:E2BE4A3D5DA343F60F096C8CDE55F3A31BC73F47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +183,8 @@ magnet:?xt=urn:btih:E2BE4A3D5DA343F60F096C8CDE55F3A31BC73F47
 magnet:?xt=urn:btih:5FFEBE1ACF6B8B1131C63E169DCB686A9A9CB988
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +211,8 @@ magnet:?xt=urn:btih:5FFEBE1ACF6B8B1131C63E169DCB686A9A9CB988
 magnet:?xt=urn:btih:3D6ECA0C2B33799B43DBA27DC070DD38E0449E1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +236,8 @@ magnet:?xt=urn:btih:3D6ECA0C2B33799B43DBA27DC070DD38E0449E1D
 ```bash
 magnet:?xt=urn:btih:5598BDAF81F942787EF9576E0AC2AC980EE9E107
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +263,8 @@ magnet:?xt=urn:btih:5598BDAF81F942787EF9576E0AC2AC980EE9E107
 ```bash
 magnet:?xt=urn:btih:04416D319307A0A7AC0C79E02616110FC4902F01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +293,8 @@ magnet:?xt=urn:btih:04416D319307A0A7AC0C79E02616110FC4902F01
 magnet:?xt=urn:btih:60B069A3E985584248389DFA155B0739CF0AF26B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +321,8 @@ magnet:?xt=urn:btih:60B069A3E985584248389DFA155B0739CF0AF26B
 magnet:?xt=urn:btih:5512C1D18B92E99A878FDAB8C24A832436A2E252
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +347,8 @@ magnet:?xt=urn:btih:5512C1D18B92E99A878FDAB8C24A832436A2E252
 magnet:?xt=urn:btih:5372A5D6564277D0905D7FE6C4430B545D12ABC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +372,8 @@ magnet:?xt=urn:btih:5372A5D6564277D0905D7FE6C4430B545D12ABC5
 ```bash
 magnet:?xt=urn:btih:F52930D9603ACD7FE19114BFDA665FD766061E32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +400,8 @@ magnet:?xt=urn:btih:F52930D9603ACD7FE19114BFDA665FD766061E32
 magnet:?xt=urn:btih:9C775FF43503B23CA97CC4D90740E638759F7DC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +425,8 @@ magnet:?xt=urn:btih:9C775FF43503B23CA97CC4D90740E638759F7DC4
 ```bash
 magnet:?xt=urn:btih:5B17EC0A2E776A74DBAD2BAC4BAC479B96F4BBDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +452,8 @@ magnet:?xt=urn:btih:5B17EC0A2E776A74DBAD2BAC4BAC479B96F4BBDB
 magnet:?xt=urn:btih:81710CA34ADE1C5029D5A432E1CC4717D41C1F07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +478,8 @@ magnet:?xt=urn:btih:81710CA34ADE1C5029D5A432E1CC4717D41C1F07
 ```bash
 magnet:?xt=urn:btih:9561F4CC50F030BC040DDC921AC6E9ADA29E3BDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +507,8 @@ magnet:?xt=urn:btih:9561F4CC50F030BC040DDC921AC6E9ADA29E3BDD
 magnet:?xt=urn:btih:7922CF11DB3C238639346A3EA9A985B62BAAAD00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +532,8 @@ magnet:?xt=urn:btih:7922CF11DB3C238639346A3EA9A985B62BAAAD00
 ```bash
 magnet:?xt=urn:btih:38CCBDA0CAF86F3203BF68A11B6871F9E6ABBD77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +559,8 @@ magnet:?xt=urn:btih:38CCBDA0CAF86F3203BF68A11B6871F9E6ABBD77
 magnet:?xt=urn:btih:63BFFB646CAFDDB6C237A714B380486E8B2D0866
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +584,8 @@ magnet:?xt=urn:btih:63BFFB646CAFDDB6C237A714B380486E8B2D0866
 ```bash
 magnet:?xt=urn:btih:A41487DB2EA83E20F9E7CB0E2C35CDCF6D9C274A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +611,8 @@ magnet:?xt=urn:btih:A41487DB2EA83E20F9E7CB0E2C35CDCF6D9C274A
 magnet:?xt=urn:btih:D0B5EBEE1032B0683636438B4C0F1D3A77F8A154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +637,8 @@ magnet:?xt=urn:btih:D0B5EBEE1032B0683636438B4C0F1D3A77F8A154
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +666,8 @@ magnet:?xt=urn:btih:D0B5EBEE1032B0683636438B4C0F1D3A77F8A154
 magnet:?xt=urn:btih:79F0D4F21B8B02E0FFA87C3C9475837E9C0F67B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,29 +692,7 @@ magnet:?xt=urn:btih:79F0D4F21B8B02E0FFA87C3C9475837E9C0F67B9
 magnet:?xt=urn:btih:87F3EA4B56D153565E83B93163C9E3A670FEC1A9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973994   (978066) от 10.01.2016
-
-Е. Карпова (ред.) | Ваш дом: Подушки, шторы, портьеры и гардины, чехлы на мебель, столовое белье (2003) [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_978066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Множество новых идей для тех, кто любит украшать свой дом. Подушки, шторы, портьеры, гардины, чехлы на мебель, столовое белье. Подробные инструкции по изготовлению любых декоративных аксессуаров интерьера. Цветные иллюстрации каждой модели и описание всех операций по ее изготовлению.Жанр: ДомоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B159200146DCAA4921EE905120D789A7DBC4FD7C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

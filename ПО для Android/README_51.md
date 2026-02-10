@@ -19,6 +19,8 @@ Search By Image v9.0.1 Mod by vadj [En/Ru]
 magnet:?xt=urn:btih:5F00383AA413F3DF1E9043EA3B628B3B70C4C781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ BikeComputer Pro - возможно, одно из лучших приложен
 magnet:?xt=urn:btih:947D17D7B0A786C3556898B7BB8EF925E601256B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Doctronics - electronics DIY v2.5 Paid [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:52AB124BA64D0033FA6D3EDDDB008F64E3CC1575
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Melon VPN - это быстрый, неограниченный, стабиль�
 magnet:?xt=urn:btih:5801C1DD7D5A690929291CC19670B3DB7A841223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Mubert: AI Music Streaming v4.2.2 Mod by DEXUNPACKER [Ru/Multi]
 magnet:?xt=urn:btih:37419E1FB3D697C3FE80300D770D9A3A28D79768
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ MX Player Pro v1.74.6 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A4FDE1F7C5F14D3D074711F0095246976BDEA091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Smart AudioBook Player - необходимое приложение для вс
 magnet:?xt=urn:btih:9A4AB2DB2199660593C424966F204E65A13F7CC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Adobe Photoshop Express - ещё одно крайне нужное и поле�
 ```bash
 magnet:?xt=urn:btih:7AA658924F65209838B4E3588453C1BFB32FA629
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ PaperColor - превосходное приложение для рисован
 magnet:?xt=urn:btih:8DDFB705C3CCECA92C611B8FF4B65BBE9EC6A727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:8DDFB705C3CCECA92C611B8FF4B65BBE9EC6A727
 ```bash
 magnet:?xt=urn:btih:ED8EE9A578DF459359858F0B4803AE52FEC53DB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:ED8EE9A578DF459359858F0B4803AE52FEC53DB1
 magnet:?xt=urn:btih:3A23DD6E89A14EEA76B346DD65EF73BDCFEADA47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ BZ Напоминания и Дни Рождения PRO v3.10.2 Mod by vadj [Ru
 ```bash
 magnet:?xt=urn:btih:E59C94798D01A1E92E6A2E44FFDA47EA8F47BAB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Photo Sherlock v1.130 Mod by Mixroot  [Ru/Multi]
 magnet:?xt=urn:btih:E4E7201DF2C247BB2C39250C7D62E2D01B8E8CC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ FamilyGo — это GPS локатор, который позволит найт
 ```bash
 magnet:?xt=urn:btih:59AE462492A6F2E3703869282F6B105496F0912F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Carly v48.02 Premium [Ru] - OBD2 car scanner (обновляемая)
 magnet:?xt=urn:btih:B5423306D10A35CFBC7B5F34D404AD1F95777586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ SKRWT Pro v1.5.1 [Ru/Multi]  (обновляемая)
 ```bash
 magnet:?xt=urn:btih:217BCBD5B8996C6C137A0B38C649DB60055EC0C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ MyFuelLog2 v1.8.12 [Ru]
 magnet:?xt=urn:btih:BD8C4EEDFDD89C1DACC32025AE6FB1AEB3861CBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Jillian Michaels | Fitness App v4.4.2 [En]
 ```bash
 magnet:?xt=urn:btih:6B4A8DA5D63F9596C77DCA3804C878E02EB699C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Bluetooth Printer, USB, Receipt v4.3 [Ru/Multi]
 magnet:?xt=urn:btih:8C00C0A8B051154A38425F71526C26E0CD50029E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:8C00C0A8B051154A38425F71526C26E0CD50029E
 ```bash
 magnet:?xt=urn:btih:EDB34CB0D47BCDD35D424A4A4201AA6B75BFAD71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ Wheel Size v2.10.1 [Ru/Multi]
 magnet:?xt=urn:btih:A08C58FC5D9957109BF644A689DB375AECBDE3A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ Tap To Translate Screen v1.41 [En]
 magnet:?xt=urn:btih:B38A8CCD5C0AC35A2ACFCE14CA3164335E35FD57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ eWeather HDF - это точный прогноз погоды от двух м�
 magnet:?xt=urn:btih:97E311BFBAAE185E003699730E45972E114EF2B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ Numia: Астрология и Гороскопы v2.0.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:75520E3D16FAE1AD452E07D40934BCDFF15532B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ UPlayer (Видеоплеер со всеми форматами) - Удобны
 magnet:?xt=urn:btih:2BD785DB788868722EC7EAF5E5C519820B99DDDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ UPlayer (Видеоплеер со всеми форматами) - Удобны
 ```bash
 magnet:?xt=urn:btih:8F453A5739B5AD412B9AA8FF7B19812B6109CB8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

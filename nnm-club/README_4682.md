@@ -22,6 +22,8 @@ Violence Fog:
 magnet:?xt=urn:btih:F2129FC166DAA558BDE64325FE098F745DE59C97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:F2129FC166DAA558BDE64325FE098F745DE59C97
 magnet:?xt=urn:btih:7D15F728BED684F062ED976A9A28F0605C2D849E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Sabayon 16.01 (KDE, XFCE, GNOME, SpinBase, Minimal + теперь с MATE и ser
 ```bash
 magnet:?xt=urn:btih:E89314A189B2732BE160791E215D7289EB68A7E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ VA - Убойные хиты на Шансоне Часть № 6 (2016) [MP3|25
 magnet:?xt=urn:btih:57930404FBCFA15CD6AE89F2E9E86DE43B57C6A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:57930404FBCFA15CD6AE89F2E9E86DE43B57C6A8
 ```bash
 magnet:?xt=urn:btih:44981E961865DB3E72F0818B2B436500F9F1953E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ VueScan - программа для работы со сканерами HP, Min
 magnet:?xt=urn:btih:C72EDD633FCC66735AFDF264BE2B6682C151C237
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:C72EDD633FCC66735AFDF264BE2B6682C151C237
 ```bash
 magnet:?xt=urn:btih:39DEC9ACAFD2A68D003A55745264E83A24C9D51E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ VA - Christmas Hits 2023 - Pop Rock Xmas Songs (2023) [MP3|320 Kbps] <Pop, Rock,
 magnet:?xt=urn:btih:FF681FF0DA370D901B776EE8603051E9FDEBC272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:FF681FF0DA370D901B776EE8603051E9FDEBC272
 ```bash
 magnet:?xt=urn:btih:85F6BECBE50885F215A03CA954A1373A094DB138
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Ushinawareta Mirai wo Motomete / В поисках утраченного буд
 magnet:?xt=urn:btih:096EEE3EC706F81ACF9359731C3796A12846A414
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:096EEE3EC706F81ACF9359731C3796A12846A414
 ```bash
 magnet:?xt=urn:btih:866FF325EF27004C4A149BC59E4F272B5D72978A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:866FF325EF27004C4A149BC59E4F272B5D72978A
 magnet:?xt=urn:btih:9C9319ACE83743D2838CE676780831D287DDC629
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Eran Dinur | SPT201 SpeedTree Techniques for VFX (2018) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:063668F43F76B1B70274775C46F3AC744ED8A962
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Bratz: The Movie [Wii] [PAL] [Multi 2] (2007)
 magnet:?xt=urn:btih:FCED8E0F7F0F645F33BBB08705ED292E5021CEAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:FCED8E0F7F0F645F33BBB08705ED292E5021CEAC
 ```bash
 magnet:?xt=urn:btih:2B2822CC458D8794C0B265B162B78E2D52C06479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:2B2822CC458D8794C0B265B162B78E2D52C06479
 magnet:?xt=urn:btih:F5FA0A26069C9C47CDA474A3E945F133D38103B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:F5FA0A26069C9C47CDA474A3E945F133D38103B3
 magnet:?xt=urn:btih:D9CAE86D9F1A8DD96FA7AFCB446945F4440DF3BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:D9CAE86D9F1A8DD96FA7AFCB446945F4440DF3BB
 ```bash
 magnet:?xt=urn:btih:851E4B16A624E79F0DD799C2E443B2389A723FE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ Prana Breath: Дыши и Медитируй (Пранаяма) v9.5.1_4 [Ru/Mul
 magnet:?xt=urn:btih:5018B0897C05C6C61DA15A9A6BA5337B27574F1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:5018B0897C05C6C61DA15A9A6BA5337B27574F1F
 ```bash
 magnet:?xt=urn:btih:7199DD85CB4FF6884BB55A46C14CFFE01481C9BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ Dance:
 magnet:?xt=urn:btih:707108E05BD760B7ABDD264A0472B61DE694F3C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:707108E05BD760B7ABDD264A0472B61DE694F3C6
 ```bash
 magnet:?xt=urn:btih:255FD89A0E182BCDB6D5E58C46469057C9749F80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ Miss Crazy - Make America Crazy Again (2019) [MP3|320 Kbps] <Glam, Hard Rock,>
 magnet:?xt=urn:btih:523B59970F617E3BDFA6BF331315C69E438128C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:523B59970F617E3BDFA6BF331315C69E438128C6
 magnet:?xt=urn:btih:9D6E780DD19E0C0090CA31C0C0B25A0E4F67B65A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:9D6E780DD19E0C0090CA31C0C0B25A0E4F67B65A
 magnet:?xt=urn:btih:4B958D28E4A16B44EA7B2EAFDF487B2CB095496A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:4B958D28E4A16B44EA7B2EAFDF487B2CB095496A
 ```bash
 magnet:?xt=urn:btih:691E17CE616C1BD76A6BBA58A35E80BFBD306198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 985126   (936912) от 10.02.2016
+
+Специальный корреспондент. Терроризм под прицелом (10.02.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_936912.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Специальный корреспондент" - это популярная публицистическая программа, которая выходит на телеканале "Россия" с сентября 2002 года. Каждую неделю один из ведущих рассказывает в своем фильме-репортаже о какой-либо актуальной проблеме, существующей в современном обществе, посвящает зрительскую аудиторию в подробности наиболее значимых для страны (   Читать дальше...   )Телекомпания: РоссияЖанр: ДокументальныйПродолжительность: ~ 02:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC1ACCD7CC7F76793DB90DE19E842286033CC2E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984827   (937037) от 10.02.2016
 
 Структура Момента. Информационная война против России (09.02.2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:09B015E3C72A54017DD2E98FD6EA52AE9B4F513A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:09B015E3C72A54017DD2E98FD6EA52AE9B4F513A
 magnet:?xt=urn:btih:9FE7EC512284E24160CD28BEEB4C137CD7FD59A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:9FE7EC512284E24160CD28BEEB4C137CD7FD59A8
 ```bash
 magnet:?xt=urn:btih:CC2819471402E220311C1450D24AC9D10503074B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:CC2819471402E220311C1450D24AC9D10503074B
 magnet:?xt=urn:btih:6C626718AE09C7F39A5038E8D44A45E3305D8DD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:6C626718AE09C7F39A5038E8D44A45E3305D8DD5
 ```bash
 magnet:?xt=urn:btih:DA2A34138992DCEE4E443F79E26AAA46D4E3FC18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:DA2A34138992DCEE4E443F79E26AAA46D4E3FC18
 magnet:?xt=urn:btih:1813B477C742691D7F94B4B6A6E6D05386831107
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:1813B477C742691D7F94B4B6A6E6D05386831107
 ```bash
 magnet:?xt=urn:btih:557A88C4DEC1642877C26C52BD414C42DBCF5106
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:557A88C4DEC1642877C26C52BD414C42DBCF5106
 magnet:?xt=urn:btih:B83508D788289DC88FF35CB7BC7E9FB3D7D4CD59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:B83508D788289DC88FF35CB7BC7E9FB3D7D4CD59
 ```bash
 magnet:?xt=urn:btih:C89DF325093ED5D6B194D667FA18D92013119B52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:C89DF325093ED5D6B194D667FA18D92013119B52
 magnet:?xt=urn:btih:2CF67E5ED30AB78FEB94891110B3765BDAF76D82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:2CF67E5ED30AB78FEB94891110B3765BDAF76D82
 magnet:?xt=urn:btih:A1968D4DADD7167CA928F9BA0258556ED0922364
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +330,8 @@ magnet:?xt=urn:btih:A1968D4DADD7167CA928F9BA0258556ED0922364
 ```bash
 magnet:?xt=urn:btih:745B3D5E6BA5CCE265A9855717B9BF065AC52418
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:745B3D5E6BA5CCE265A9855717B9BF065AC52418
 magnet:?xt=urn:btih:117A01019895AFCB8BCF10213786BAAD8B587BAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:117A01019895AFCB8BCF10213786BAAD8B587BAC
 magnet:?xt=urn:btih:4DAD611CF271320AD67635DDAEE264CF4E34D52D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:4DAD611CF271320AD67635DDAEE264CF4E34D52D
 ```bash
 magnet:?xt=urn:btih:4C90444AE4D836D8E212D29C1F27E5713092E3C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:4C90444AE4D836D8E212D29C1F27E5713092E3C5
 magnet:?xt=urn:btih:B938DD9A6DFC6D53519F8C3610629569DE441791
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:B938DD9A6DFC6D53519F8C3610629569DE441791
 magnet:?xt=urn:btih:5E680D3FF0B2B565F9582A6E7C9EDAADCF412D79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:5E680D3FF0B2B565F9582A6E7C9EDAADCF412D79
 ```bash
 magnet:?xt=urn:btih:87BF4DF741EBC01B2C54727D1CAE5C28DA1718BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +524,8 @@ Top Gear (англ. Top Gear) — популярная английская те
 magnet:?xt=urn:btih:5E2E5E5B7A324FAE24F3FE0F4F7F2AF353B98989
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:5E2E5E5B7A324FAE24F3FE0F4F7F2AF353B98989
 ```bash
 magnet:?xt=urn:btih:A1A416DA30F2C061354B502C5698B6302E007FC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:A1A416DA30F2C061354B502C5698B6302E007FC9
 magnet:?xt=urn:btih:F55DB5197CBC0C80C1A9A0CCEC25247AD589F0A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:F55DB5197CBC0C80C1A9A0CCEC25247AD589F0A5
 ```bash
 magnet:?xt=urn:btih:B56FA24B4664262CF2A1921B60AE23F78C26A191
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:B56FA24B4664262CF2A1921B60AE23F78C26A191
 magnet:?xt=urn:btih:BE0DC181B7214DC158920BD482828667E8352D2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:BE0DC181B7214DC158920BD482828667E8352D2F
 ```bash
 magnet:?xt=urn:btih:B9997C757E09A685EFD78B6EC1493553E4E99C73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:B9997C757E09A685EFD78B6EC1493553E4E99C73
 magnet:?xt=urn:btih:B0611C7F4819BC3BA738EF5EEEFFF7816487BF9C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092536   (938770) от 12.01.2017
-
-В поисках Дон Кихота (11.01.2017) HDTVRip [H.264/720p-LQ] (выпуск 7)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_938770.jpg" />
-</div>
-
-
-###  Подробнее
-
-«В поисках Дон Кихота» — новый документальный авторский цикл Владимира Познера и Ивана Урганта. На этот раз они отправились в Испанию.В 2013 году в Испании был принят закон, признающий корриду национальным достоянием. С другой стороны, с каждым годом все больше испанцев высказывается за полный запрет корриды. Владимир Познер и Иван Ургант выясняют, что такое коррида для испанцев — одно из воплощений испанского национального духа, искусство или бесcмысленное, жестокое, кровавое развлечение? В сопровождении (   Читать дальше...   )Телекомпания: 1 канал HDЖанр: Документальный, биография, история, путешествияПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420248844E0196ED4715AA1E86F271BBC45BB153
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ ToonMe v0.7.8 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:C2DC287309273E76AF13EF7195B606B2EEA9B3FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tennis Manager 2024 – как насчет того, чтобы покорит�
 ```bash
 magnet:?xt=urn:btih:EE5E77DADD1E58D0659013B84286832953D0D93F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:EE5E77DADD1E58D0659013B84286832953D0D93F
 magnet:?xt=urn:btih:9F0D2919C27C073D72422CDFA7821A06D6E0BE5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:9F0D2919C27C073D72422CDFA7821A06D6E0BE5A
 ```bash
 magnet:?xt=urn:btih:3899131C33525C5085F045EC9D02858625B99EA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:3899131C33525C5085F045EC9D02858625B99EA4
 magnet:?xt=urn:btih:FC86230F8C478BCA83BACFB4890261E23D0B292C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Adobe Audition - Программа для работы с аудио-данны
 ```bash
 magnet:?xt=urn:btih:B4557CAA20521ECE3FA0D314B60DE0747815FDDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:B4557CAA20521ECE3FA0D314B60DE0747815FDDC
 magnet:?xt=urn:btih:9C8D721ECF231981B6A7B7C5068B27A65AF41C6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:9C8D721ECF231981B6A7B7C5068B27A65AF41C6A
 ```bash
 magnet:?xt=urn:btih:B74DFB2171975B8BF24941FCBE9A1E9FC718B80A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Queen: Rock Montreal (1981) UHD BDRip [H.265/2160p] [4K, HDR, 10-bit] [EN / EN S
 magnet:?xt=urn:btih:5742F8BA68C903BC8EE80E242EDF20EEE84BD1BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ VA - Best Road Trip Biker Music Rock Songs (2024) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:58A4623E2DDBD3D50F150A79B4E9B2D7FA9D1449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Venture to the Vile переносит геймеров в загадочный 
 ```bash
 magnet:?xt=urn:btih:C294A0F87386BA198F4652E92621F9AC1362AD13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:C294A0F87386BA198F4652E92621F9AC1362AD13
 magnet:?xt=urn:btih:45433DB46CE1D41FDCEAD3700F590573D4AE80BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:45433DB46CE1D41FDCEAD3700F590573D4AE80BD
 ```bash
 magnet:?xt=urn:btih:0F84AB3B08D075ADCCF41E30F6075F5A19BDFEB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Rutube v29.4.1 Mod by vadj [Ru/En]
 magnet:?xt=urn:btih:C2143E91AEDCF5E90675C9B94407CE8CAB34A876
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:C2143E91AEDCF5E90675C9B94407CE8CAB34A876
 ```bash
 magnet:?xt=urn:btih:05E2644C5ADFF099DB6EBA4133EFCB1156578507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Queen: Live Aid (1985) BDRemux [H.265/1080p] [10-bit] [EN]
 magnet:?xt=urn:btih:4D76DD87C9249AB920FF1DA0E73822628A0D824E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:FC2A4D5754B7742D0F06ECB220FE9497CC70CAC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:FC2A4D5754B7742D0F06ECB220FE9497CC70CAC3
 magnet:?xt=urn:btih:50DA753888DC7501FC0E19B59FCC088C3E773476
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:50DA753888DC7501FC0E19B59FCC088C3E773476
 ```bash
 magnet:?xt=urn:btih:47F33BB76C942106ED5886E3F0F0C20E4FA11F75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:47F33BB76C942106ED5886E3F0F0C20E4FA11F75
 magnet:?xt=urn:btih:8D54F6486FCF03C7640F328915B6E8E347A9233F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Bandizip — программа для работы с архивами. Дан�
 ```bash
 magnet:?xt=urn:btih:BB4D6C6969D2607BB06DDF5FBA0142FF2E27A84F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ SamDrivers 24.6 LAN [Multi/Ru]
 magnet:?xt=urn:btih:F2E6033F88EC30E28923D8BEBC05130C70EF623C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:F2E6033F88EC30E28923D8BEBC05130C70EF623C
 ```bash
 magnet:?xt=urn:btih:60550EA803EFF420691D87FDFF693B5E89FE506C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:60550EA803EFF420691D87FDFF693B5E89FE506C
 magnet:?xt=urn:btih:AC7CB9B74905AE844D48638DB977EA2BF37CD4D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:AC7CB9B74905AE844D48638DB977EA2BF37CD4D9
 magnet:?xt=urn:btih:215353C0AD956E33E8C9E94C3CB0CFE8FF313AE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:215353C0AD956E33E8C9E94C3CB0CFE8FF313AE7
 ```bash
 magnet:?xt=urn:btih:C85DC474C04F2B06B5D908EC944E60340C5294B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

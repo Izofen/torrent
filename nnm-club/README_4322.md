@@ -28,6 +28,8 @@ Ella Fitzgerald - Ella Fitzgerald's Christmas (1990) [FLAC|Lossless]<Jazz, Vocal
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ Morbid Silence - Дискография (10 релизов) (2010-2012) [MP3|320
 magnet:?xt=urn:btih:74C64AAB36F5D65E208DABE529648DE16108DCF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -78,6 +82,8 @@ magnet:?xt=urn:btih:74C64AAB36F5D65E208DABE529648DE16108DCF8
 ```bash
 magnet:?xt=urn:btih:018ABD8065363FA9A902E84E1CA926A5BAAB978E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -106,6 +112,8 @@ John Moulder - Through The Open Door (1997) Self-Released [FLAC|Lossless|tracks 
 magnet:?xt=urn:btih:82EC856655BC387580D6AF929B28A4995ECD50D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -133,6 +141,8 @@ Night In Gales - Sylphlike (1995) EP [FLAC|Lossless|image + .cue] <Melodic Death
 magnet:?xt=urn:btih:CACC1E09EFA535B8193737B0D5F32BC4A6BC60BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:CACC1E09EFA535B8193737B0D5F32BC4A6BC60BA
 ```bash
 magnet:?xt=urn:btih:80F6895B647C2E32A2952833A38400286064AA94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ magnet:?xt=urn:btih:80F6895B647C2E32A2952833A38400286064AA94
 ```bash
 magnet:?xt=urn:btih:74C0588482AB82D7D727F12BD0961D6AB194D6AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +229,8 @@ The Manhattan Transfer - The Christmas Album (1992) [FLAC|Lossless]<Jazz Vocal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +254,8 @@ The Manhattan Transfer - The Christmas Album (1992) [FLAC|Lossless]<Jazz Vocal>
 ```bash
 magnet:?xt=urn:btih:D7F78B96300FA1381CE6E00916D37001CE292A04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +281,8 @@ magnet:?xt=urn:btih:D7F78B96300FA1381CE6E00916D37001CE292A04
 magnet:?xt=urn:btih:4D405C8CC59B9D8D7134118D82577B07DAB75D9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +307,8 @@ magnet:?xt=urn:btih:4D405C8CC59B9D8D7134118D82577B07DAB75D9C
 magnet:?xt=urn:btih:E60E9A2BA91BE7F860A695137E9DAA0117F2CBA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +332,8 @@ magnet:?xt=urn:btih:E60E9A2BA91BE7F860A695137E9DAA0117F2CBA7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +362,8 @@ magnet:?xt=urn:btih:E60E9A2BA91BE7F860A695137E9DAA0117F2CBA7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +387,8 @@ magnet:?xt=urn:btih:E60E9A2BA91BE7F860A695137E9DAA0117F2CBA7
 ```bash
 magnet:?xt=urn:btih:5E99BEA474B2E72172CDD0C6DB0BA3E980CF6AB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +414,8 @@ magnet:?xt=urn:btih:5E99BEA474B2E72172CDD0C6DB0BA3E980CF6AB7
 magnet:?xt=urn:btih:65577B0315B76CCB30F4B96A0E1201F0C6EF3D13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ magnet:?xt=urn:btih:65577B0315B76CCB30F4B96A0E1201F0C6EF3D13
 ```bash
 magnet:?xt=urn:btih:53C49F467121B3FCCADB95CE098E84F80E052180
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +467,8 @@ Final Cut Pro X включает основные функции аудиомо�
 magnet:?xt=urn:btih:9195CE343E39F38871FB68CE356705104092D945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ magnet:?xt=urn:btih:9195CE343E39F38871FB68CE356705104092D945
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +519,8 @@ magnet:?xt=urn:btih:9195CE343E39F38871FB68CE356705104092D945
 magnet:?xt=urn:btih:FABC5F6CDBF4F4DEED126C3AA796D8002978A4E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ Parallels Desktop Business (   Читать дальше...   )Тип изда�
 ```bash
 magnet:?xt=urn:btih:F73EB8181689E9F56B83D96464BD97F1AC2B7AA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +580,8 @@ Connie Evingson - 8 Альбомов (1995 - 2012) [MP3|320 кб/с]<Vocal Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +605,8 @@ Connie Evingson - 8 Альбомов (1995 - 2012) [MP3|320 кб/с]<Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:F667CCE830751D37D86359AEF4EF9DF9D34B9B95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +632,8 @@ magnet:?xt=urn:btih:F667CCE830751D37D86359AEF4EF9DF9D34B9B95
 magnet:?xt=urn:btih:9CD8DFBCBB103A33BB8C92BB01407727A6E400E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +657,8 @@ magnet:?xt=urn:btih:9CD8DFBCBB103A33BB8C92BB01407727A6E400E3
 ```bash
 magnet:?xt=urn:btih:3D657FD0725F411CB67C60803DC951F991B11716
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +687,8 @@ GoodbyeDPI 0.2.2 Launcher 6.4 [Ru]
 magnet:?xt=urn:btih:DFDD8B8F96F3D18BFAE4A6AE104217103DC2E959
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ magnet:?xt=urn:btih:DFDD8B8F96F3D18BFAE4A6AE104217103DC2E959
 ```bash
 magnet:?xt=urn:btih:7FD6E7908F06F0366D0C78697CA84C615E174237
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

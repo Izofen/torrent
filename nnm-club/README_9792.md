@@ -1,54 +1,3 @@
-###  Публикация: 1259983   (314529) от 06.11.2018
-
-Анатолий Максимов | Разведчик атомного века (2018) [MP3]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга рассказывает о Владимире Борисовиче Барковском (1913-2003), выдающемся советском разведчике, полковнике внешней разведки, имя которого стоит в одном ряду с именами Рудольфа Абеля, Леонида Квасникова, членов "Кембриджской пятерки". Получив специальную подготовку в разведшколе, в конце 1940 года он был направлен на работу в Великобританию сотрудником (   Читать дальше...   )Жанр: Научно-популярное издание. Серия "Гриф секретности снят"Продолжительность: 11:29:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35C16917AC27761DAAF9AE81CC208331F4DDE217
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583114   (314530) от 13.10.2022
-
-Suffer UK - Sorrow We Sow, the Hatred We Know (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infernal Monologue [00:05:31]
-02. Escapism [00:03:53]
-03. Falsehood [00:04:11]
-04. Unhallowed Justice [00:03:13](   Читать дальше...   )Жанр: Beatdown DeathcoreПродолжительность: 00:45:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7039BA88128281ADFE47DDAD3513F65663CA3DB1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959597   (314532) от 25.11.2015
 
 Обои - Былое. 3840x2160 - 35 шт [JPG]
@@ -69,6 +18,8 @@ magnet:?xt=urn:btih:7039BA88128281ADFE47DDAD3513F65663CA3DB1
 ```bash
 magnet:?xt=urn:btih:6F8D6FACAC30EEDDC2AF4CABB165647EABD773A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +48,8 @@ Roxette - Tourism (1992) [OGG Vorbis|480 Kbps] <Rock, Pop>
 magnet:?xt=urn:btih:D8300C3675320B654888A7CC0A90F8DCE7A4CDA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +76,8 @@ MX5 развивает заложенную предшественником к�
 magnet:?xt=urn:btih:A313F49D0AC6BF4CF7671CADFDBAD26D6B4F74D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +102,8 @@ magnet:?xt=urn:btih:A313F49D0AC6BF4CF7671CADFDBAD26D6B4F74D4
 ```bash
 magnet:?xt=urn:btih:4E6787B5E3A43FDFE9B2E39D7F1CDCB929E19E27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +132,8 @@ Mystic Prophecy - Metal Division (2020) [FLAC|Lossless|image + .cue] <Heavy Meta
 magnet:?xt=urn:btih:7C9823279EBBB888F49E8E5E8D6FC2960B5D3CEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +158,8 @@ magnet:?xt=urn:btih:7C9823279EBBB888F49E8E5E8D6FC2960B5D3CEA
 magnet:?xt=urn:btih:C35DF64593BA2DE639A1A3F1C650594C341C9A2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +183,8 @@ magnet:?xt=urn:btih:C35DF64593BA2DE639A1A3F1C650594C341C9A2C
 ```bash
 magnet:?xt=urn:btih:0601DD63FB91C0ABB962FE685CE21041932807A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +211,8 @@ magnet:?xt=urn:btih:0601DD63FB91C0ABB962FE685CE21041932807A8
 magnet:?xt=urn:btih:46AA9FF933C1EBD781F7E3A90AFADA91176DB813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +237,8 @@ Thunderbird — это бесплатная почтовая программа,
 magnet:?xt=urn:btih:E2C810548D91781E54566AFA8718D948AFBE232B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +262,8 @@ magnet:?xt=urn:btih:E2C810548D91781E54566AFA8718D948AFBE232B
 ```bash
 magnet:?xt=urn:btih:629D0D6348B5302D3C709E21E83846E15FAA0453
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +292,8 @@ Jhonny Box - Proxima (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock>
 magnet:?xt=urn:btih:82693B39A8B4C5F8C2DBCBEC54BADF6AF71B3B30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +317,8 @@ Paw 2.2.5 [En]
 ```bash
 magnet:?xt=urn:btih:6D776E8341E9A6D57B4C6CFDC16E18660CFBCF01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +344,8 @@ magnet:?xt=urn:btih:6D776E8341E9A6D57B4C6CFDC16E18660CFBCF01
 ```bash
 magnet:?xt=urn:btih:AA41A6EFA912DC682DA924C0F4932F768633AB66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +374,8 @@ magnet:?xt=urn:btih:AA41A6EFA912DC682DA924C0F4932F768633AB66
 magnet:?xt=urn:btih:2BCCCEBE3BF54C99DCF4FD73C714644846ED9DA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +403,8 @@ VA - Maschinenfest 2018 (2018) Pflichtkauf [FLAC|Lossless|tracks+.cue] <Industri
 magnet:?xt=urn:btih:5DF69B78D649990CED598B5F114FC172F7E97BBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +431,8 @@ magnet:?xt=urn:btih:5DF69B78D649990CED598B5F114FC172F7E97BBC
 magnet:?xt=urn:btih:B9726E4D9119E219BE45E36452CDA21BE666F380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +458,8 @@ magnet:?xt=urn:btih:B9726E4D9119E219BE45E36452CDA21BE666F380
 magnet:?xt=urn:btih:A810439463A6F5FA1AFB082A66448062922F750D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +483,8 @@ magnet:?xt=urn:btih:A810439463A6F5FA1AFB082A66448062922F750D
 ```bash
 magnet:?xt=urn:btih:7776143579B4387446BE2E51FBAB8DB7B17AC930
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +513,8 @@ Once Was Never - The Great Dying (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore
 magnet:?xt=urn:btih:0B0173AF96E04367F64DBF8695C4AE0F7A3BDDBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +539,8 @@ magnet:?xt=urn:btih:0B0173AF96E04367F64DBF8695C4AE0F7A3BDDBA
 ```bash
 magnet:?xt=urn:btih:4DBA5822079C816B126EA5A5A6EC4603D11CEDB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +569,8 @@ Glass Hammer - At The Gate (2022) [MP3|320 Kbps] <Progressive Rock, Symphonic Pr
 magnet:?xt=urn:btih:411A42532C0B4B46D0CDDED61346CC6BCFB45537
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +597,8 @@ She Must Burn - Umbra Mortis (2022) [MP3|320 Kbps] <Symphonic Deathcore, Metalco
 ```bash
 magnet:?xt=urn:btih:1146CF1D2DC84DEF4AE0C6AB0A861D22035DF658
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +627,8 @@ VA - Full Circle (2018) A Strangely Isolated Place [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:1A1C341DC55FD4AFC5A087B7B962CC75C4E182CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +652,66 @@ magnet:?xt=urn:btih:1A1C341DC55FD4AFC5A087B7B962CC75C4E182CE
 ```bash
 magnet:?xt=urn:btih:E012D6618204C84C392DDDA62A4C8BEFB97151EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583035   (314565) от 13.10.2022
+
+Heavy Metal Perse - Jumalia Paossa (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jumalia Paossa [00:14:41]
+02. Kotikylää Kohti [00:03:47]
+03. Velhojen Vesuri [00:04:23]
+04. Aaltojen Valkoiset Hampaat [00:04:05](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E0F61E29D371C974AA738474207AFF6253D46DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959700   (314566) от 25.11.2015
+
+Александр Барыкин и группа Рок-Ателье - Фестивальный концерт (1985) [MP3|320 кб/с]<Pop-Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звёздный корабль (А.Барыкин – М.Пушкина) (4:27)
+02. Ты увидишь карнавал (А.Барыкин) (3:42)
+03. Дай мне руку (А.Барыкин) (5:27)
+04. Фестиваль (А.Барыкин – М.Пушкина) (5:25)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF07DF64C3EAD0E8DF06EB25EED657EFE6912DE0
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

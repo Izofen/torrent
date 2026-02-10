@@ -22,6 +22,8 @@ Alestorm - The Thunderfist Chronicles (2025) Deluxe Version, 3CD, Napalm Records
 magnet:?xt=urn:btih:CADEF8E425DE4E7E02EAB9054A693F19A825C3FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Kiss - Animalize (1984) Remastered, 2014, UMe Direct 2 [FLAC 24/192|Lossless|WEB
 ```bash
 magnet:?xt=urn:btih:10FD8089AE928AE0BEE766313773F455B1C19F0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Wizzo - Place of the Chosen Lords (2025) [FLAC|Lossless|WEB-DL|tracks] <Stoner, 
 magnet:?xt=urn:btih:2F58F6FD6E2EF3C38BC69BF20B1D9BA49B1F14A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Black Majesty - Oceans Of Black (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Meta
 magnet:?xt=urn:btih:F2B6F0B42A726151CBDD238AD1B9083054F711EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:F2B6F0B42A726151CBDD238AD1B9083054F711EE
 magnet:?xt=urn:btih:3FA390FB90F0135E505EFC4349C5B16B8BBCE30D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:3FA390FB90F0135E505EFC4349C5B16B8BBCE30D
 ```bash
 magnet:?xt=urn:btih:0C089F7F150261220A929EAD12E02B82E53A2134
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:0C089F7F150261220A929EAD12E02B82E53A2134
 magnet:?xt=urn:btih:EEB964F38FF14169EC80BC5B1747A6DD05F9B2CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:EEB964F38FF14169EC80BC5B1747A6DD05F9B2CE
 ```bash
 magnet:?xt=urn:btih:E09233C02B0F642BE8538F598335EF26E1F8253A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +247,8 @@ SanMinor - Изоляция (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:5A8DC97F6F79FA3CDE12811C478EFE9EDA08A161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +275,8 @@ Cryptopsy - An Insatiable Violence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:11155D088C9BE520BE7E207E82936BDB19CABC22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +305,8 @@ Cocojoey - STARS (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <hyperpop, bitpop, c
 magnet:?xt=urn:btih:F994D15222C264BEFB23C331A4D9AA17C09F713A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ Disc One:
 magnet:?xt=urn:btih:03516FD30964CF4CD27C5D54521387C31103BFEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +360,8 @@ Sander van Doorn - Punk'd (2004) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 ```bash
 magnet:?xt=urn:btih:47BA6B02B6116FB792A2BAE3842AF7C179B0A22D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +390,8 @@ Septulchu - Post Fata Non Resurgam (2025) [MP3|320 Kbps] <Death, Black Metal>
 magnet:?xt=urn:btih:299293067262B5A9836751372A51AADFDEB478C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +418,8 @@ magnet:?xt=urn:btih:299293067262B5A9836751372A51AADFDEB478C5
 magnet:?xt=urn:btih:0FE2D80588FB3730BA8B409D10BDA0B4A03C7177
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +445,8 @@ magnet:?xt=urn:btih:0FE2D80588FB3730BA8B409D10BDA0B4A03C7177
 magnet:?xt=urn:btih:9615B6858C35112D77D1184123998B41903B12B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +471,8 @@ Auto Reply: автоответчик v5.2 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:6F5F2CD28A20B20C0B9BA1C95D7660EB009BBD53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +496,8 @@ magnet:?xt=urn:btih:6F5F2CD28A20B20C0B9BA1C95D7660EB009BBD53
 ```bash
 magnet:?xt=urn:btih:BA3D84A3FB4D3FECBF11ACCBE46C8E15FBA0D6BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +526,8 @@ Kiss - Love Gun (1977) Remastered, 2014, UMe Direct 2 [FLAC 24/192|Lossless|WEB-
 magnet:?xt=urn:btih:773D635F7705AC1D61FD3B6D3FB1D18C0986B5F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +553,8 @@ magnet:?xt=urn:btih:773D635F7705AC1D61FD3B6D3FB1D18C0986B5F9
 magnet:?xt=urn:btih:A6DE65C1F229F2148C25964FA2E524EC74DF64C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +579,8 @@ magnet:?xt=urn:btih:A6DE65C1F229F2148C25964FA2E524EC74DF64C1
 magnet:?xt=urn:btih:57ACF6603B61895CCEF9D169327BD611BBFB0566
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ magnet:?xt=urn:btih:57ACF6603B61895CCEF9D169327BD611BBFB0566
 ```bash
 magnet:?xt=urn:btih:85FF519C11CF3B3C617BCB086C8F976C2374261A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +632,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:07E5D6822C9F95CC7F51F703F8E41773F815BC4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +658,8 @@ magnet:?xt=urn:btih:07E5D6822C9F95CC7F51F703F8E41773F815BC4E
 magnet:?xt=urn:btih:DA90C47F3F48194D16EB362A916C25B3F6906DCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:DA90C47F3F48194D16EB362A916C25B3F6906DCB
 ```bash
 magnet:?xt=urn:btih:A4B468C81C699BE756CC16282809745D7D7E2808
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +712,8 @@ Itinerum - Resurgence (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
 ```bash
 magnet:?xt=urn:btih:5457515BBCA2E33FCFD42D35A6480FEE6FB456DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

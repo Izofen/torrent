@@ -19,6 +19,8 @@ Bendy: Lone Wolf (2025) [Ru/Multi] (2.0.0) Repack FitGirl
 magnet:?xt=urn:btih:4AE8506652DC97424FA830FED8F9D18DEE7DD33D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Touhou Danmaku Kagura Phantasia Lost - это ритм-игра, построе�
 ```bash
 magnet:?xt=urn:btih:3FBD1B240BC683C310E2AD9115579780CEA9B050
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Last Flame (2024) [Ru/Multi] (1.0.3) Repack seleZen
 magnet:?xt=urn:btih:7ED13E7E211BA9902B24B2114F9BE296C913819E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Tale of Immortal, песочница с открытым миром, глубо�
 ```bash
 magnet:?xt=urn:btih:30A9EA5F6BD3501727954666B324AD442DD3AB8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Session: Skate Sim (2022) [Ru/Multi] (1.0.6.31/dlc) Scene Rune
 magnet:?xt=urn:btih:467497FF0FEA01F7931A8B97B884DD1D4A091E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ RimWorld (2018) [Ru/Multi] (1.6.4543/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:5A76683C8637EBFC59B279F7F4301AC49A2E8E31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Firehawk - это тактический симулятор FPV-дронов. П
 magnet:?xt=urn:btih:990A7E8EAA3625592D3AEC55FE53906051ABC8C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Grand Emprise 2: Portals Apart (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:2143F6C6E9F2C0BEA06A44081BBE2C64A345CF84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack Other s
 magnet:?xt=urn:btih:EC851C5535FD79B44D37F58E84C7ECA498A80A7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Primordia (2012) [Multi] (5.3) License GOG
 ```bash
 magnet:?xt=urn:btih:0CE3881A60A4DC5512B6417547BC64D304B601F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Coral Island – классический симулятор фермы, пер�
 magnet:?xt=urn:btih:755974C6A3AB9A50683C590B5C7033DF7D94F185
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Blood Storm: Alien Purge (2025) [Ru/Multi] (build 19692871) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:99BA1AAA6CA2D50574F019F65D111C79E1CD97AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Photo Studio Simulator предлагает игроку взять на себ�
 magnet:?xt=urn:btih:2BB74BA49ACF26BF80A3E7476930C5CE677D1950
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Stone Simulator - Just Be a Rock (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:80CCCD62D563613010E2420A2838522A3CDE9BBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Damnation (2009) [Multi] (1.0) Scene RELOADED
 magnet:?xt=urn:btih:38CBB8A6994AAF64E813BD168F6078E020D74CD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ YetiParty (2025) [Ru/En] (build 19685742) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:EA02714451F80BFBFDE42934EFC026986BD90D39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Iron Harvest - это стратегия в реальном времени (RTS
 magnet:?xt=urn:btih:E58E340047E441F19FDD8A4F61D9F6B8226614CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ JDM: Japanese Drift Master (2025) [Ru/Multi] (1.1.40.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:E8C07EF92E1D6BEEFBFC15D9D8B2BEC339225200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ AI Limit (2025) [Ru/Multi] (1.1.001/dlc) Repack Let'sРlay [Deluxe Edition]
 magnet:?xt=urn:btih:0688F52752FCD408B75D054DB0CF350831D8E299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Last Epoch – приключенческая экшен-игра с глубо�
 ```bash
 magnet:?xt=urn:btih:A38426C620E8C6E7EAF41E125E4325ADB6986B5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Reflections of Life 14: Gone But Not Forgotten (2025) [En] (1.0) Unofficial [Col
 magnet:?xt=urn:btih:A59E164D52335C57508353484EA1E3B920CA1ACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Dystopika, градостроитель, разработанный студие
 ```bash
 magnet:?xt=urn:btih:081AEA283157810627C4686CD2BE9F2FAFBBA513
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Beyond Citadel - это шутер от первого лица, черпающ�
 magnet:?xt=urn:btih:5B79114F31DF81361E2ACBBD20177F400A6CC242
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Herdling - это новое приключение от Okomotive, создав
 ```bash
 magnet:?xt=urn:btih:2CBCF11DE8FE4CB3E8879E83ED8E2F888D7CB861
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Monospaced Lovers сочетает в себе несколько жанров. 
 magnet:?xt=urn:btih:AF09464914CF98667F5E04F3A4B1AF859C84D10C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Unholy Priest предлагает захватывающее сочетан
 ```bash
 magnet:?xt=urn:btih:3D2F67056B21F5225FE26C043E44C0D24CA02A62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

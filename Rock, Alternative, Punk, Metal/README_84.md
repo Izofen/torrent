@@ -28,6 +28,8 @@ CD 1: (00:30:50)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ The Shadows - Platinum Collection 2CD (2006) [MP3|320 кб/с]<Instrumental Guit
 magnet:?xt=urn:btih:DB2A07069BC5B6097B0BC513AA35A36520535D6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Rammstein - LIFAD Demos Edition (2008) [MP3|128-320 kbps]<Industrial Metal>
 ```bash
 magnet:?xt=urn:btih:8ACFA327BAE035A06433ECDAFBCA7B2E281DBA89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -106,6 +112,8 @@ Creedence Clearwater Revival - Creedence Clearwater Revival. 10 CD Collection (1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +148,8 @@ Creedence Clearwater Revival - Creedence Clearwater Revival. 10 CD Collection (1
 magnet:?xt=urn:btih:5484C551559DABFFBDDA953E9EB94BEC587BA953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +182,8 @@ magnet:?xt=urn:btih:5484C551559DABFFBDDA953E9EB94BEC587BA953
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +218,8 @@ Fox - 2012 (2012) [FLAC|Lossless]<Melodic Hard Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +252,8 @@ Serenity - 3 альбома (2007 - 2011) [FLAC|Lossless]<Progressive Metal,Symp
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +288,8 @@ Suzi Quatro - Story (2011) [MP3|320 кб/с]<Rock, Hard Rock, Blues>
 magnet:?xt=urn:btih:68BED2C69474081733B14E0408DE7646DEF06244
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +322,8 @@ Yngwie Malmsteen - Best Ballads (1996) [MP3|320 кб/с]<Neo-classical metal>
 ```bash
 magnet:?xt=urn:btih:01107BC522E2C22F12D7316B1FCEE2C9C04D83C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +358,8 @@ magnet:?xt=urn:btih:01107BC522E2C22F12D7316B1FCEE2C9C04D83C4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +392,8 @@ Foreigner - Extended Versions (2011) [MP3|320 кб/с]<Rock, Hard rock>
 ```bash
 magnet:?xt=urn:btih:0198B3C2EC523C2B8C6F605D9AB68FF97D9CF942
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +428,8 @@ Foreigner - Extended Versions (2011) [FLAC|Lossless]<Rock, Hard rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +462,8 @@ Foreigner - Extended Versions (2011) [FLAC|Lossless]<Rock, Hard rock>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +498,8 @@ Overkill - The Electric Age (2012) [MP3|320 кб/с]<Thrash Metal>
 magnet:?xt=urn:btih:5F009844E3E78FBEC1B78DDF8F74D5F857B8394A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +532,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:184203F6350C760F05A5D22CBD64BDDB47BBD442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +568,8 @@ Powerwolf - Alive In The Night (Live) (2012) [MP3|320 кб/с]<Power Metal>
 magnet:?xt=urn:btih:88B65D915D8BD9B5C7AEE6D8B58F7E799C345E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +602,8 @@ magnet:?xt=urn:btih:88B65D915D8BD9B5C7AEE6D8B58F7E799C345E82
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +638,8 @@ Brian Johnson And Geordie - немецкое издание альбома-сб�
 magnet:?xt=urn:btih:88652BC056FFCEB9D433CB7200E11CB39C7B0603
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +673,8 @@ magnet:?xt=urn:btih:88652BC056FFCEB9D433CB7200E11CB39C7B0603
 magnet:?xt=urn:btih:AE022C41847F2FF7B16842D4D4873FE385299474
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +702,8 @@ Jeff Scott Soto - Damage Control [Deluxe Edition] (2012) [MP3|320 кб/с]<Hard 
 ```bash
 magnet:?xt=urn:btih:9C1950927FAEB6BD4E2BF29BD99532B5C9B647F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -696,6 +738,8 @@ magnet:?xt=urn:btih:9C1950927FAEB6BD4E2BF29BD99532B5C9B647F1
 magnet:?xt=urn:btih:66DF67543F0192CDEE7B941B548FF1BA9FE30846
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -729,6 +773,8 @@ Pr-Mex - 2012 (2012) [MP3|320 кб/с]<Rock, пародия>
 magnet:?xt=urn:btih:E67203773E08059F56B822A0D25FCF46354F8D4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -755,6 +801,8 @@ The Cranberries - Roses (2012) [WavPack |Lossless|image + .cue]<Alternative>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -786,6 +834,8 @@ Vienna Symphonic Orchestra Project - Symphonic Rock (1987) [MP3|320 кб/с]<Sym
 magnet:?xt=urn:btih:0703F11ABF261EBD160897918AEB04D1ABF68D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -809,6 +859,8 @@ VA - The Golden Age Of American Rock 'n' Roll (1991-2009) [MP3|320 кб/с]<Rock
 ```bash
 magnet:?xt=urn:btih:ABBEE181625B23F3BC3C213CFA57C9D4D8D9219B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1278221   (773019) от 24.01.2019
+
+VA - Unexpected Present (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_773019.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kelly Clarkson - Heartbeat Song
+002. Ania Dabrowska - Serce Nie Sluga
+003. Cleo - Film
+004. The Kinks - Days Acoustic Version(   Читать дальше...   )Жанр: PopПродолжительность: 09:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A77638FEE7131ABB7AB45318D50110C3178D1353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1213099   (773085) от 15.03.2018
 
 VA - Hard Rock Anthems Car Hits (2018) [MP3|320 Kbps] <Hard Rock, Alternative>
@@ -21,6 +50,8 @@ VA - Hard Rock Anthems Car Hits (2018) [MP3|320 Kbps] <Hard Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:FFD0F44DA9930676A3550E828523B063D8F070CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Music News vol.21 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
 magnet:?xt=urn:btih:7A8DADEB70D185584B4AE05566DCFED2B2C6E236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - National Rock Day (2020) [MP3|320 Kbps] <Rock, Alternative>
 ```bash
 magnet:?xt=urn:btih:5F9D9BB1718B11C88DB613938846EB207EA9FFD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Record Super Chart 641 (2020) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:C09539D8ADA81E49DB1F397D4EC325985A1A0733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Hotel Breez: Night Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lo
 ```bash
 magnet:?xt=urn:btih:6DE424AF5BF1FFB4F18039F2499754A9F9A2FB01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Wоrld Withоut Wаrs (2CD) (2016) [MP3|192-320 кб/с] <Spасеsуnth & 
 magnet:?xt=urn:btih:CD3FDCB34581BCE7F2A42240C0132705A2EFD616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Billboard Hot 100 Singles Chart 26.01.2019 (2019) [MP3|320 Kbps] <Pop, Danc
 ```bash
 magnet:?xt=urn:btih:25084C7EA878205F607AE39D7A5FF47832CF784F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Beatport Disco House: Sound Pack #108 (2020) [MP3|320 Kbps] <Funky, Disco H
 magnet:?xt=urn:btih:8DDE1FA517725AB5745427A45C46107FDC28E605
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - German Top 100 Single Charts 19.06.2020 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:C54E37903550BE2964CD732C893C7DB103258A7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Trance Desire Vol. 69 (2016) [MP3|320 кб/с] <Trance>
 magnet:?xt=urn:btih:722BF522051CC756C4A1D5A803AE09246345C76E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Future Trance Energy 002 May TOP (2016) [MP3|320 кб/с] <Trance>
 ```bash
 magnet:?xt=urn:btih:54C6479359FFFA8F2E1EF719F42E7124D69691E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Velkomst Nu Disco Dance (2019) [MP3|320 Kbps] <Nu Disco, Dance Disco>
 magnet:?xt=urn:btih:E08856280594E2A73BFD4FADD3CA75EFC77B8EC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Relax to House Vol. 7 (2017) [MP3|320 Kbps] <House, G-House, Chillout, NuDi
 ```bash
 magnet:?xt=urn:btih:67281EB77E45F9B34E57E9B62470BEE9ED7DA841
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - German Top 100 Single Charts 16.03.2018 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:02866798FA0037840C2A826AF56341627023AFCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +457,8 @@ VA - Ibiza Love Injection Trance Box Edition (2018) [MP3|320 Kbps] <Progressive,
 magnet:?xt=urn:btih:36941893033E05EE9A5128DAD852C5D49B1DD552
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +484,8 @@ VA - Let's Rock !!! (2016) [MP3|160-320 кб/с] <Hard, Heavy, Alternative>
 ```bash
 magnet:?xt=urn:btih:E3A5713BA8D0B3F927527AC52D801A6765A91CC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +514,8 @@ Ozzy Osbourne - The Best Hits (2016) [MP3|320 кб/с] <Rock>
 magnet:?xt=urn:btih:5EC812E0E420486D90BB07CFBE277D852731D3A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +542,8 @@ Part 1 (Discoteka 2019!):
 ```bash
 magnet:?xt=urn:btih:89571573710719430A370BDF5AE3DDC6404C3FFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +572,8 @@ VA - Empire Records - Deep Blue 3 (2019) [MP3|320 Kbps] <House, Deep House, Club
 magnet:?xt=urn:btih:5F58E0393C2947C2FC1AD48C891C1A360436AF1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +600,8 @@ magnet:?xt=urn:btih:5F58E0393C2947C2FC1AD48C891C1A360436AF1B
 ```bash
 magnet:?xt=urn:btih:659E72EBF58349715D9A63CD6D78650BDA6542C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +630,8 @@ VA - Popular Britpop May (2016) [MP3|210-320 кб/с] <Pop>
 magnet:?xt=urn:btih:CBB2A07AB4CC57AE45F57130562ED9D80214F40B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +657,8 @@ Savage - Only You (2017) Remix [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:FFA56103EB5721C23E333F5064826DE396FA197B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +687,8 @@ Nirvana - This Is Nirvana (2019) [MP3|320 Kbps] <Rock, Grunge>
 magnet:?xt=urn:btih:0B9AE45F40FC06F27118B10684D540046749B0D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +715,8 @@ VA - Italo disco 80s 100 Hits (2016) [MP3|224-320 кб/с] <Pop>
 ```bash
 magnet:?xt=urn:btih:BC20E28EDE5BA6693D13C22A86D19495D8A3653D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,33 +745,7 @@ VA - Новая Волна: Сборник Русского Рока (2018) [MP3
 magnet:?xt=urn:btih:2BBC5E02182A67F301978B310BAE5B7CA96202C9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278058   (774094) от 23.01.2019
-
-VA - Русский регги от ALEXnROCK часть 2 (2019) [MP3|320 Kbps] <Reggae>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_774094.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли песни от отечественных музыкантов, исполненные в стиле регги. Слушайте и заряжайтесь энергией солнечных мелодий. Это 2я часть сборника. Да пребудет с нами качественная музыка!. Все лучшее для вас. ALEXnROCK
-P.S Если кто то знает еще клевые вещи в стиле регги от наших исполнителей, оставляйте коменты и я сделаю продолжение сборника.01 Botanic project - Только Jah
-02 Александр Барыкин - Друг или враг
-03 Каникулы Бонифация - Тили-Бом
-04 Валерия - Бессоница(   Читать дальше...   )Жанр: ReggaeПродолжительность: 02:07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5BEB63780F978F563162F621BF39C5060BE56E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

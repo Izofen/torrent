@@ -1,3 +1,32 @@
+###  Публикация: 1036767   (619151) от 21.07.2016
+
+VA - Red Box EDM: Euromania Set (2016) [MP3|320 Kbps] <Dance, Club, EDM, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_619151.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. JockeyBoys - Higher (Extended Mix)
+002. Ken Martina - Memories (Extended Version)
+003. Matan Caspi - Be Free
+004. Reel 2 Real feat. Mad Stuntman - Can You Feel It?(   Читать дальше...   )Жанр: Dance, Club, EDM, HouseПродолжительность: 10:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BFF8130226FDF080993AABAC63BCA54B5305607
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036736   (619156) от 21.07.2016
 
 VA - Sexy Chill-Out Occasion Vol.1-3 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -21,6 +50,8 @@ VA - Sexy Chill-Out Occasion Vol.1-3 (2016) [MP3|320 Kbps] <Downtempo, Chillout,
 ```bash
 magnet:?xt=urn:btih:4C69A953F2061E03F501875D4F3C3A53F073DF1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +86,8 @@ VA - Клубный Хит Черного Моря (2012) [MP3|160 кб/с]<Danc
 magnet:?xt=urn:btih:661F2E5927C04818052CA9361B8D93BAB618295C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -88,6 +121,8 @@ VA - Mega Dance Party Summer Vol.2 (2012) [MP3|320 кб/с]<Dance, Club>
 magnet:?xt=urn:btih:03D859FB3597167F3BA699FFBDA6FDDFD53F470F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ VA - Extra Trance: Bonus [08] (2016) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:B48E6CFC030B764744D783C5CE3261C48596859E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +179,8 @@ VA - Open Air Yoga Sportive Chill and Relax Music (2016) [MP3|320 Kbps] <Downtem
 magnet:?xt=urn:btih:7EB4B7BB6208F9C24C007B8FF243CE77D7C59DF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +208,8 @@ VA - Top Ibiza Voice Club (2016) [MP3|320 Kbps] <House, Dance, Club>
 magnet:?xt=urn:btih:76820753D164893B8031DA34BFAC4E3974DB6A4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +236,8 @@ VA - Elevation Trance Dreams Visions (2016) [MP3|320 Kbps] <Trance, Melodic, Har
 ```bash
 magnet:?xt=urn:btih:478A7FE062BBE52EDDF08383C16DAB64FC1CAC3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +272,8 @@ VA - In Da Club: Fascination Volume 1 (Summer 2012) (2012) [MP3|320 кб/с]<Tra
 magnet:?xt=urn:btih:2D1D97380782F90B7A287831F9BA5A1500639E7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +300,8 @@ VA - The Ingredient Of Intellect Psy Trance (2016) [MP3|320 Kbps] <Trance, Psy-T
 ```bash
 magnet:?xt=urn:btih:275D3CD375E867F478D4EDF82D709F8823883141
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +330,8 @@ Pet Shop Boys - UltraTraxx Remixes Side (2017) [MP3|320 Kbps] <Synthpop, New Wav
 magnet:?xt=urn:btih:0173C7CC15DF4314A7990819EDBA0EBA48C38717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +358,8 @@ VA - Italo Disco Collection (2017) [MP3|320 Kbps] <Italo Disco>
 ```bash
 magnet:?xt=urn:btih:E912685C5DBF839DE18A69917033CC80B95DB0C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +388,8 @@ VA - Planet Disco (2017) [MP3|192-320 Kbps] <Disco, Italo-Disco, Eurodance>
 magnet:?xt=urn:btih:A7666C61693D41DE0DA22249C7006C62CBD3393E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +416,8 @@ VA - Empire Records - Trap (2017) [MP3|320 Kbps] <Trap>
 ```bash
 magnet:?xt=urn:btih:0407A64DA52A9D4B4542F606B8E6B97961AF9230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +446,8 @@ VA - About EDM Modern World (2017) [MP3|320 Kbps] <Club, Bigroom, Future House>
 magnet:?xt=urn:btih:9DCEE540FC0EC87AE07680170BDE961FA5E0D8F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +474,8 @@ VA - 100 хитов в дорогу: Русский выпуск (2019) [MP3|320
 ```bash
 magnet:?xt=urn:btih:C3026A35349D2E9285B70C087B296547DDBC3D6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +504,8 @@ VA - Extra House (episode 3) (2015) [MP3|320 кб/с]<House, Club House, Deep Ho
 magnet:?xt=urn:btih:0388D7406C7C2E28C4DD80713D5A51A92950B1CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +532,8 @@ VA - Vocal Drum & Bass Temptation Vol 2 (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:0C658E6170D4D06073F61067CEACA94686DE06B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +562,8 @@ Michelle Gurevich - Compilation (2022) [MP3|320 Kbps] <Alternative>
 magnet:?xt=urn:btih:6C04E3A36A96AD071A0C64CBC275D5D445D5D5E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +590,8 @@ VA - ЕвроХит Топ 40 Europa Plus 12.04.2019 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:3C23CE506F2B2ECF9FBD029B4834D8FAC8E6BD14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +620,8 @@ VA - Музыкальные Новости. Июнь (2018) [MP3|320 Kbps] <Pop,
 magnet:?xt=urn:btih:553940A4559C4C4DD1F15C238F9E4704DC2DCAD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +648,8 @@ VA - ЕвроХит Топ 40 Europa Plus 08.06.2018 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:33AF4B6DDF3A0A8228118D01FA5BCC6DFDF04FEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +684,8 @@ VA - Legendary Russian Rock (2012) [MP3|224-265 кб/с]<Rock>
 magnet:?xt=urn:btih:2D8955092066B80617F0327690EFC158D155C489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +712,8 @@ VA - Back in Blue (A Blues Tribute to AcDc) (2016) [MP3|320 Kbps] <Blues, Blues 
 ```bash
 magnet:?xt=urn:btih:890F80FED547DB9290AF1978DA10720F2B624A15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +742,8 @@ VA - Blues: Love & Devotion (2016) [MP3|320 Kbps] <International, Jazz, Vocal,Bl
 magnet:?xt=urn:btih:BDD715DFED0407BB1144EC86B9F334139F405A32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,32 +771,7 @@ VA - Vocal Drum & Bass Selected Works [Compiled by Zebyte] (2018) [MP3|320 Kbps]
 magnet:?xt=urn:btih:E96DD555787ECA781BA4F51E15759F9E7DB9DF59
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229924   (620888) от 09.06.2018
-
-VA - The Official UK Top 40 Singles Chart 08.06.2018 (2018) [MP3|192-320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_620888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris, Dua Lipa - One Kiss
-02. Jess Glynne - I'll Be There
-03. Anne-Marie - 2002
-04. Drake, Big Freedia, 5thward Weebie - Nice For What(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F78279DAD21CBD1106B1721BDD26484D9079B5B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

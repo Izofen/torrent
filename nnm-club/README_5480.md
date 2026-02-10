@@ -22,6 +22,8 @@ VA - Buddha Luxury, Vol. 3 (Esoteric World Music) (2019) [AAC|~318 Kbps] <Lounge
 magnet:?xt=urn:btih:0BA50A7EFF365F1169437FD4560748CEDD17687E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Phil K & Habersham - Cloudbrake (2005) Single [FLAC|Lossless|WEB-DL|tracks] <Pro
 ```bash
 magnet:?xt=urn:btih:1565C3125155F4093CBFE42A8A95CEAF95909306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:1565C3125155F4093CBFE42A8A95CEAF95909306
 magnet:?xt=urn:btih:1A9C2B0A80AEF23ED2D29583B287ED14F7F8D30E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ VA - Earthbound Collection, Vol. 2 (Compiled by Salvo Migliorini) (2021) [AAC|~3
 magnet:?xt=urn:btih:8AA06C654AB48ACD114E7722593C02E848E97B0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:8AA06C654AB48ACD114E7722593C02E848E97B0E
 ```bash
 magnet:?xt=urn:btih:B2D3F7FBCBDFBAAC837EF5B30B302B23AC3F6F65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:B2D3F7FBCBDFBAAC837EF5B30B302B23AC3F6F65
 magnet:?xt=urn:btih:1924AD8144E09C312303E3B9431A254B7C229566
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:1924AD8144E09C312303E3B9431A254B7C229566
 ```bash
 magnet:?xt=urn:btih:697421499BD1C0067592B50FC252E64FD1AF39BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Disk Diet 5.5.1 [Multi/Ru]
 magnet:?xt=urn:btih:7ED44D0ECD5979C9A0198FF5095C863F900B83F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Video Enhancer - лучший редактор видео в линейке пр
 magnet:?xt=urn:btih:876967CA33F8EB3DB1A813ADB8B3704800A81A01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:876967CA33F8EB3DB1A813ADB8B3704800A81A01
 ```bash
 magnet:?xt=urn:btih:5CA01E0AD7775F338A70F2630C0A3B6D56B6C3F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ Downie поддерживает более 1,000 популярных сайто
 magnet:?xt=urn:btih:1FBC9D935D91F9A6EF8822F6EDF3F072D0AF540C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ Bartender - утилита для простой организации икон
 magnet:?xt=urn:btih:7123D72844310B3E4718C5E56BEBC2EF69906BF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:7123D72844310B3E4718C5E56BEBC2EF69906BF7
 magnet:?xt=urn:btih:3ADFD4A7324FCC1D95750D7BC8EFEF8C7FE3AF6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:3ADFD4A7324FCC1D95750D7BC8EFEF8C7FE3AF6F
 ```bash
 magnet:?xt=urn:btih:7621641BA479B8650A743CEB33298197A8375CE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:7621641BA479B8650A743CEB33298197A8375CE1
 magnet:?xt=urn:btih:60C5CBB44713C47D72D2143B62954DC26FAFF86B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ MASSIVE X — новый флагманский синтезатор Native Inst
 ```bash
 magnet:?xt=urn:btih:01664F6E7E822356F2777C246A18194EB28B556D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ VA - Caravan 2 (2018) [AAC|~305 Kbps] <Chill Out, Downtempo, Organic House, Ethn
 magnet:?xt=urn:btih:5D6D69B0E33DECCF9B9A814A2CA5E307152205E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:5D6D69B0E33DECCF9B9A814A2CA5E307152205E2
 magnet:?xt=urn:btih:1F37E19AF6B187578D5D8C3AB034528F6F6F88BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:1F37E19AF6B187578D5D8C3AB034528F6F6F88BD
 magnet:?xt=urn:btih:30DD07EA60887FC40F55A51E7B13FF09155236F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:30DD07EA60887FC40F55A51E7B13FF09155236F6
 ```bash
 magnet:?xt=urn:btih:3F87293CA16738B6BC3E5DD4A9585FA76F8D822A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:3F87293CA16738B6BC3E5DD4A9585FA76F8D822A
 magnet:?xt=urn:btih:B02379A2BDCE397492450CE6A09725E8059197F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ Loopback 2.2.7 [En]
 magnet:?xt=urn:btih:E73BB0D98A34CFD334A43040E3F2FB14DA719180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ Infix PDF Editor Pro 7.4.4 RePack by KpoJIuK [Ru/En]
 ```bash
 magnet:?xt=urn:btih:8E08308B68D67A9B85E628FBC30EED95EE1660D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ Vhaldemar - Straight To Hell (2020) [FLAC|Lossless|image + .cue] <Power Metal>
 magnet:?xt=urn:btih:CB70AC3843FFE6F91E6057BDD903D981382BB78B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:CB70AC3843FFE6F91E6057BDD903D981382BB78B
 magnet:?xt=urn:btih:3883353DC2796067379BBF5C0051D35B4E1A0516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ Home Inventory 3.8.5 [En]
 ```bash
 magnet:?xt=urn:btih:FE6FD2F88D3D7FE81D5863CB6F58D0940CE2552C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

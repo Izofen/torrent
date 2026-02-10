@@ -19,6 +19,8 @@ NG. Файлы секретных служб: Охрана президента 
 magnet:?xt=urn:btih:9C9877764E85223FDA2F239E2CF122D9385FEF9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC: Невидимые миры / Richard Hammond's Invisible Worlds (2010) BDR
 ```bash
 magnet:?xt=urn:btih:7A2A1B5913403C53516FCBA88AC86F0D6A29A549
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC. Гении из царства животных / Super Smart Animals (2012
 magnet:?xt=urn:btih:EBFEA989CBD2E363F829B713ABE1EDF3E39784DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC: Европа: История континента / BBC: Wild Europe (2005)
 ```bash
 magnet:?xt=urn:btih:B5E47D6986BEFE14345A4409ACDF1752FBE5BB7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC: Тайная жизнь льда / The Secret Life of Ice (2011) SATRip
 magnet:?xt=urn:btih:E0E9679E96323ABFD2960971E73B07F8C6301EA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:E0E9679E96323ABFD2960971E73B07F8C6301EA9
 ```bash
 magnet:?xt=urn:btih:6E032295CE55FE102CDAC092C207D46405242AD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:6E032295CE55FE102CDAC092C207D46405242AD0
 magnet:?xt=urn:btih:04A57BFA874963C7364B9C03DE78DE56615CD410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:04A57BFA874963C7364B9C03DE78DE56615CD410
 ```bash
 magnet:?xt=urn:btih:2B8A22A78E430BCC4D41DDCF3A35544B8E95D6FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ BBC: Сетевой мир / Niall Ferguson's Networld (2020) WEBRip [H.264/1080
 magnet:?xt=urn:btih:149B21ED7F41A6ED0B6CC38CA5AD1318FBF016FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Discovery. Техногеника. Вертолеты-гиганты (2017) HDTV
 ```bash
 magnet:?xt=urn:btih:23E9EFE753668BB11FBA23159D3D560DF4FFEF5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ History Channel. Вселенная (2 сезон: 1-18 серии из 18) / Th
 magnet:?xt=urn:btih:5B46E8D95107F29FF99E0A7FC2555B0BEFA26A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ PBS. Тайна кода майя / Cracking the Maya Code (2006) HDTVRip [H.264
 ```bash
 magnet:?xt=urn:btih:45919DDD591B825E354F19B4BDA2C1F30BB8D998
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Discovery. Беар Гриллс: Как остаться в живых / Bear G
 magnet:?xt=urn:btih:A575850A2359671E39C6A7B6106264594ECCBB71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Discovery. Динозавры: Возвращение к жизни? / Dinosaurs
 ```bash
 magnet:?xt=urn:btih:B0B4B1EB98FD578CB10EDFAFF631223F359FDCAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:B0B4B1EB98FD578CB10EDFAFF631223F359FDCAA
 magnet:?xt=urn:btih:38C375F289FA2520636DA9CCCA644ACBA504D6D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ BBC. Таинственный мир гормонов / The Fantastical World of
 ```bash
 magnet:?xt=urn:btih:1ECC5494A16676CB7E6F0130196BB63F8E2AD26C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ NG. Львиное королевство / Lion Kingdom (2017) HDTV [H.264/1080
 magnet:?xt=urn:btih:6E14B7C64F895AF876AE40D003A631B40EC5AA0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ BBC: Как это работает. Таинственный Мир Матер�
 ```bash
 magnet:?xt=urn:btih:7A169BE5C792C5DDDE76B1BFC5EF19B0772EAEE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:7A169BE5C792C5DDDE76B1BFC5EF19B0772EAEE7
 magnet:?xt=urn:btih:17C6D8692FCA907475A7D1FB9BFB7A9BE31C4995
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ BBC Radio 1's Big Weekend Exeter 2016 / BBC Radio 1's Big Weekend Exeter 2016 (2
 magnet:?xt=urn:btih:2D351420B4D886FBBB5A4919B56F308CB7C3033B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ BBC Radio 1's Big Weekend Hull 2017 / BBC Radio 1's Big Weekend Hull 2017 (2017)
 ```bash
 magnet:?xt=urn:btih:BA562569CF76B1E7741675791699C55E52741BB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ BBC: 80 Чудес света (все 10 серий) / Around the World in 80 Tr
 magnet:?xt=urn:btih:5CA308C0AC4DAA2DED5F1DBF19E3986DF008BD54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ BBC: Эти загадочные животные / Weird Nature (2002) HDTVRip 
 ```bash
 magnet:?xt=urn:btih:DBFA7E94178FE719A2C303E997F4C81D99689CDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:DBFA7E94178FE719A2C303E997F4C81D99689CDE
 magnet:?xt=urn:btih:F8EEAAE6CD2463F6A48BB8B41A25BA322E4A2811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ BBC. Тропические островки Земли / Earth's Tropical Islan
 magnet:?xt=urn:btih:7C67864D7E0B9EB598C792B56675DC3B82EC3718
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:7C67864D7E0B9EB598C792B56675DC3B82EC3718
 ```bash
 magnet:?xt=urn:btih:C091AEAF7140859A4DC2D347448C3B245BCBDA32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

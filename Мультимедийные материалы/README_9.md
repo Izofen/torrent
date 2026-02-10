@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C12A551BE19B3C3831C9CE7442B14F03CC0091EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ DVD приложение к журналу "Хакер" №08 (163), 2012 [unpac
 magnet:?xt=urn:btih:4B1DBB1ED4C42F555353BCDCD4D8BBC125C7A7CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Chip — первый компьютерный журнал в Европе, с�
 ```bash
 magnet:?xt=urn:btih:5BF5F50BC228DCF3867DC66BD308F3A7CEEB2A04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ TradeLikeaPro | ExcelTrader Pro - продвинутый курс по рабо�
 magnet:?xt=urn:btih:55642B460C0731DD2215DBFE99B544EF568F2EEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:55642B460C0731DD2215DBFE99B544EF568F2EEE
 ```bash
 magnet:?xt=urn:btih:BCF8BE5CE9ABD6FE88068BD04C79485089C98740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:BCF8BE5CE9ABD6FE88068BD04C79485089C98740
 magnet:?xt=urn:btih:0C77489B23EC372F8133DF8769244013DED00B77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Chip — первый компьютерный журнал в Европе, с�
 ```bash
 magnet:?xt=urn:btih:0E0F4A9A0F3107CA144429953F25900506C32B46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:0E0F4A9A0F3107CA144429953F25900506C32B46
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ DVD приложение к журналу «Computer Bild» – крупней�
 ```bash
 magnet:?xt=urn:btih:69C63265CE32BC913C1B0146CDD922251C1BE87F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:69C63265CE32BC913C1B0146CDD922251C1BE87F
 magnet:?xt=urn:btih:D99BD30750EB2542AA74EB68BAF85AC1FA0DFDD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ CHIP | CHIP - DVD приложение к журналу CHIP № 8 (авгус�
 ```bash
 magnet:?xt=urn:btih:EF8B8E49CA094B9965E124D9FCDCC468476078A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ CD приложение к журналу Advanced Photoshop №25 2006 г.Жа�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ CD приложение к журналу Advanced Photoshop №25 2006 г.Жа�
 ```bash
 magnet:?xt=urn:btih:FB0C50C8731C6F8490BA9410E78DAE531C73F04C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:FB0C50C8731C6F8490BA9410E78DAE531C73F04C
 magnet:?xt=urn:btih:D4799C4AA7BF78526E8443D1DAE073C86F40BDA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ DVD приложение к журналу «Computer Bild» – крупней�
 ```bash
 magnet:?xt=urn:btih:60203906FC198F0B4639150B71C880DAB4949C06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:60203906FC198F0B4639150B71C880DAB4949C06
 ```bash
 magnet:?xt=urn:btih:1E50AC299F3A2779973DF0D934B50A54ADA3C97D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:1E50AC299F3A2779973DF0D934B50A54ADA3C97D
 magnet:?xt=urn:btih:75ACC983AB3070709D1E5FC4079D6A0D6F4EF4BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Chip (Чип) — первый компьютерный журнал в Евро
 ```bash
 magnet:?xt=urn:btih:58263CD56F2AD738A3BAADD19CFCDCF8DBADB060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ CD-диск к книге П.В. Евдокимов | С# на примерах 
 magnet:?xt=urn:btih:67C1586FA16E6C567BF862A691F351730ACF2D34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ DVD-диск - приложение к книгеЖанр: Компьютерн�
 ```bash
 magnet:?xt=urn:btih:B860E1212DE2AA632E825E5757C7213B97CD0E8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:B860E1212DE2AA632E825E5757C7213B97CD0E8B
 magnet:?xt=urn:btih:7897BCB633976B3280DB673EDE486E5D78B62E97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:7897BCB633976B3280DB673EDE486E5D78B62E97
 ```bash
 magnet:?xt=urn:btih:BB34DD4013527FCF598A1F4A679755C425489E63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:BB34DD4013527FCF598A1F4A679755C425489E63
 magnet:?xt=urn:btih:E22B31F57B0B54D7B32BF99555F20D8916964DD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ magnet:?xt=urn:btih:E22B31F57B0B54D7B32BF99555F20D8916964DD2
 magnet:?xt=urn:btih:8B8CB4F7CAAFBEA4653B92DB6FDF77B2B8C83F6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ Chip (Чип) — первый компьютерный журнал в Евро
 ```bash
 magnet:?xt=urn:btih:FD406CBBE92C321BE0599924CDD7A382A5416872
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:FD406CBBE92C321BE0599924CDD7A382A5416872
 ```bash
 magnet:?xt=urn:btih:30C682ADB5DCC1352F2DF8746A16075DE8786997
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

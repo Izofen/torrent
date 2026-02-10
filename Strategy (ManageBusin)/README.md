@@ -20,6 +20,8 @@ Yes, Your Grace 2: Snowfall - кинематографичная игра про
 magnet:?xt=urn:btih:028AF60B78115342EBC4F736BB28CE61D1F9CF4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Mr. Prepper - строительный симулятор, где вам пре�
 ```bash
 magnet:?xt=urn:btih:A9A769ED47E9AB23DB5ACC58FB94D4B8990AD8DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Kingdom Rush 5: Alliance TD бросает вас в мир, где враги �
 magnet:?xt=urn:btih:D70BBBD490A65BB14B69175D4DB71CF6961E1EA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Reus 2 выделяется своей уникальностью и увлек�
 ```bash
 magnet:?xt=urn:btih:1FF8F4DF91739934238CDD243C67561270AEB94D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Realpolitiks 3: Earth and Beyond (2024) [Ru/Multi] (1.250900) License GOG
 magnet:?xt=urn:btih:39D517A934E48FE51670AE516E9D5F374EF8ECD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Frostpunk 2 открывает новые грани жанра выживани
 ```bash
 magnet:?xt=urn:btih:F968D852388637B3878428D5620971CF8E473E1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Frostpunk 2 открывает новые грани жанра выживани
 magnet:?xt=urn:btih:51C5A4A5001DEED05C15BF56A04F564E874EB35D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Against the Storm - это игра c элементами roguelite и стро
 ```bash
 magnet:?xt=urn:btih:73D46AEAFA095AAF4D2D831B0D3C73A2D1794FB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ City Game Studio - стратегический симулятор, в кото�
 magnet:?xt=urn:btih:54321E6BEAB03ADDF74037D5556F0B293BCEF282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Rise of Industry 2 (2025) [Ru/Multi] (1.2.0/dlc) Repack FitGirl [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:85FE6F1F872F142A4BB99C94F5DAD0D9EEF508C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Rising Lords представляет смесь стратегии с карт�
 magnet:?xt=urn:btih:16F344194D18E1F980BB2F66EBC3520841138B7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Stronghold Crusader: Definitive Edition (2025) [Ru/Multi] (1.05) Repack Let'sРl
 ```bash
 magnet:?xt=urn:btih:9664D6A6DA305E06AD54EC0F04CECB290CBFC06B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ TerraScape позволяет игрокам осуществить свою м�
 magnet:?xt=urn:btih:7E21C6459A2C7C126CF4DF82F0C1410A76818CB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Terra Nil – градостроительный симулятор-песочн
 ```bash
 magnet:?xt=urn:btih:E901C8009950C4616AEA01E94145FAF9F233FD5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Frostpunk 2 открывает новые грани жанра выживани
 magnet:?xt=urn:btih:AEBC9CF86F851755BA395E7D02421892B27A9566
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Kaiserpunk (2025) [Ru/Multi] (1.01.010/dlc) Repack Let'sРlay [Supporter Edition
 ```bash
 magnet:?xt=urn:btih:E960954363864F6987084A9398CDFA25D3E1CE5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Reus 2 (2024) [Ru/Multi] (1.9.0/dlc) Repack Let'sРlay [Complete edition]
 magnet:?xt=urn:btih:64D9498F59D473053FA22629E6020D05A28B0A35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Against the Storm (2022) [Ru/Multi] (1.8.12R/dlc) Repack Let'sРlay [Complete Bu
 ```bash
 magnet:?xt=urn:btih:6AB863F87113643FA6F1C13DCF8BF4BEEA8554A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ The Sims 4 (2014) [Ru/Multi] (1.117.244.1020/dlc) Repack Wanterlude [Deluxe Edit
 magnet:?xt=urn:btih:3FA5006D8D59B04D03FF69E289D924D3102085EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ SPORE Collection (2008) [Ru/Multi] (3.1.0.29/dlc) Repack Yaroslav98
 ```bash
 magnet:?xt=urn:btih:538FD7E33BE7ABC0A64ECB7FBD4B366125F95E90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ The Colonists - это игра о создании инопланетной к�
 magnet:?xt=urn:btih:7B2BC9E068A2F51834973B05BC6A22E441700BEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Coral Island – классический симулятор фермы, пер�
 ```bash
 magnet:?xt=urn:btih:374783385EE9A459099C1EB5AC18ABBC1B100593
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Prison Architect (2015) [Ru/Multi] (1.02 r11056/dlc) Repack Let'sРlay [Total Lo
 magnet:?xt=urn:btih:F341A530F6574DB52D2E7B4705BCED7A076293B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Deathless Tales of Old Rus / Бессмертный. Сказки Старой �
 ```bash
 magnet:?xt=urn:btih:0740AD2AD1343FAFEFD6BC9FB0E6D3205BF3940E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Oddsparks: An Automation Adventure – это стратегия в режиме
 magnet:?xt=urn:btih:3983857AF285E075B20656D3B0837FED813EBFC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Tavern Manager Simulator - это увлекательный процесс во
 ```bash
 magnet:?xt=urn:btih:0656E6DDED7519C6108AF4F98AD81A0F751B4B50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

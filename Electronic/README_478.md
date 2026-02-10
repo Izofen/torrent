@@ -23,6 +23,8 @@ CD2 - Mix Two - Dawn (01:16:40)Треклист CD1:
 magnet:?xt=urn:btih:AB24C61520F4172BB24C9C55E2B143D32B251BDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - Bodybuilding Girly Edition 2016 Top 50 (2016) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:C3DFCC87C7F43E3713D036CC5F84452255D92012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -77,6 +81,8 @@ VA - Colours II. Ice (selected by AstroPilot) (2016) [MP3|320 Kbps] <Ambient, Ps
 magnet:?xt=urn:btih:6AB20D1DE05A229FE4900679357554F2B0E312ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ VA - Candybeach Compilation 2016 (2017) [MP3|320 Kbps] <House, Tech House, Deep 
 ```bash
 magnet:?xt=urn:btih:41D51D6B0D2CF5D4DB3BFE0B11022352F767B0F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -131,6 +139,8 @@ VA - Chill On the Board (2017) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:388ECCA7C01EE7829AC787C5DAEECD19B980F53D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Will Fast - The Greatest Hits (2017) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:0FFD971B053E7DDF3A3440B65B844E8129A98E53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ VA - House Seduction  Vol.11 (2017) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:1E94870C866195D14E07D85086E609FD5FA99E31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ VA - Global DJ Broadcast: Top 20 January (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:49C34226569DCAB56F8243D2BEDBD45B9B306687
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +255,8 @@ VA - Mountain Spa Collection Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, 
 magnet:?xt=urn:btih:2CB60594E637EBFAC8432DE90D62D004CE709D18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ VA - Best Release Of The Season (2016) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:F47A2661346FFFA00B4D0D6966C0010197D241C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +313,8 @@ magnet:?xt=urn:btih:F47A2661346FFFA00B4D0D6966C0010197D241C3
 magnet:?xt=urn:btih:C33CF95DC7B9CF27B32A46116AE19D0A057C898E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Prins Thomas - Bringing Mum to Panorama Bar (2020) Prins Thomas Musikk [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:96AFF6970A06F265BC8364BED3CC855E9BE97152
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Trentemoller - The Trentemoller Chronicles (2007) 2CD [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:FFDE16D9E1A3F54564A2CD75E8C6CA73C5BB8D1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Lounge Winter Garden (50 Amazing Tunes) (2016) [MP3|320 Kbps] <Lounge, Chil
 ```bash
 magnet:?xt=urn:btih:453DEC22317E902D51024162D079FC524F750448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Trentemoller - The Last Resort (2006) Limited Edition [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:B590D51BAC8A54148E04674792FEEDAC484D70AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ VA - Oasis Of Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:919C443D3F361B2E854D45CFC091BEF44DD0D9B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +485,8 @@ VA - Perfect Electronica Downtempo (2017) [MP3|320 Kbps] <Downtempo, Chillout, L
 ```bash
 magnet:?xt=urn:btih:F2693ACE97F3E4A4CC3C9C814C825F7D3A059943
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +521,8 @@ VA - House Vip (09.02.10) [MP3|128 - 320 kbps]<Electro House>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +549,8 @@ Pet Shop Boys - Discography: The Complete Singles Collection (1991) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:BF3D060B9B54AF8363650CEEDE52873EE53293F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +579,8 @@ Maya Jane Coles - Take Flight (2017) 2CD [FLAC|Lossless|tracks + .cue] <Electron
 magnet:?xt=urn:btih:74AC1EB9762F1BDFEC1E6A08A72BBA57411E2507
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +608,8 @@ Sopor Aeternus & The Ensemble of Shadows - Island of the Dead (2020) [FLAC|Lossl
 magnet:?xt=urn:btih:5AAA0CEF6AD705A803E023254DA21868555E8D90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +633,8 @@ Solar Fields - Origin #02 (2013) [Ultimae Records] [FLAC|Lossless]<Psybient, Dow
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +663,8 @@ Caribou - Suddenly (2020) [FLAC|Lossless|tracks + .cue] <Experimental, Progressi
 magnet:?xt=urn:btih:CC15B3277B6A7BA61EF74B067E4FB1522C5F22E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +691,8 @@ Cubicolor - Hardly A Day, Hardly A Night (2020) [FLAC|Lossless|tracks + .cue] <D
 ```bash
 magnet:?xt=urn:btih:F4CEAB02457AAD56F774F855C7F88AB9352BF9F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +721,8 @@ VA - 12"/80s (2005) 3CD Compilation [FLAC|Lossless|tracks + .cue] <Dub, Synth-po
 magnet:?xt=urn:btih:137D0E016ADCC21086BDE52A6E70B2DD603819C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ Visage - Demons To Diamonds (2015) [FLAC|Lossless|image + .cue] <Synthpop, New W
 ```bash
 magnet:?xt=urn:btih:7F19404D36FFB364779C2DB70486AAD603038416
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

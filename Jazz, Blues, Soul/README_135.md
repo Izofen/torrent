@@ -22,6 +22,8 @@ Joe Bonamassa - Merry Christmas Blues (2016) [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:74999805DAA61C9838CD31A5968C6F8237237A5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ Beegie Adair & David Davidson - Christmas Elegance (2012) [FLAC|Lossless]<Jazz, 
 magnet:?xt=urn:btih:47BA1F44DEF0F2E05E22411EC1C0EC14EC0EB368
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -83,6 +87,8 @@ BabaJack - Running Man (2013) [MP3|320 кб/с]<Acoustic Blues, Folk Blues>
 magnet:?xt=urn:btih:843E075DC3F2FF59B801E577F59CC7C153951601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -109,6 +115,8 @@ Franco Cerri and His European Jazz Stars (1959) Remaster, 2009, DIW Records[FLAC
 ```bash
 magnet:?xt=urn:btih:9E145FE4C7B457D836C9296E439D8FF3E49FE332
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -137,6 +145,8 @@ Terence Blanchard - The Malcolm X Jazz Suite (1993) Columbia[FLAC|Lossless|track
 magnet:?xt=urn:btih:2D79B72723D3798FE6DC9E6A10B0F4070236BD79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +173,8 @@ The Rein De Graaff Trio with Conte Candoli & Bob Cooper - Thinking Of You (1993)
 ```bash
 magnet:?xt=urn:btih:E8D9E7D09858A2EDED2830B644329FB6F096E625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +203,8 @@ Peter Delano - Peter Delano (1993) Verve[FLAC|Lossless|image + .cue] <Post-Bop, 
 magnet:?xt=urn:btih:F9E1C095268DD3D00384CE18FA9027669AD6472A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +231,8 @@ Lennie Niehaus - Volume 5: The Sextet (1956) Remaster, 2006, Victor[FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:333781BD6D4EB5EF38FB8A781AD2F883D80BC9AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +261,8 @@ Tommy Dorsey And His Orchestra - 1935-1936 (1995) Classics [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:D9D32A41F970FA0E013D91CFE332F2E8D137D465
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +289,8 @@ Barbra Lica - Christmas Present (2015) [MP3|320 Kbps] <Vocal-Jazz>
 ```bash
 magnet:?xt=urn:btih:B44FD395F036C1FD7E3872276B302715E93B5B13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +319,8 @@ VA - Cookin' Jazz vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:7B5F9C87E32E58E020892B224F8260C4063046C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +347,8 @@ Dinah Shore - Love And Kisses, Dinah (1951 - 1958) 1992, BMG [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:C78FD560239AA1144C8B14394F687330FA8EFF92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +377,8 @@ Tim Davis - A Swingin' Christmas ...1940's Style (1999) Unison Music [FLAC|Lossl
 magnet:?xt=urn:btih:1ED6EAA19439629E6AD21C73C12A1A2D296A3DB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +405,8 @@ Dave McKenna & Buddy DeFranco - You Must Believe In Swing (1997) Concord Jazz [F
 ```bash
 magnet:?xt=urn:btih:55BEB9DB925BA4953A4F451E9D19382C31904241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +435,8 @@ Erroll Garner - 1954 (2007) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, 
 magnet:?xt=urn:btih:9F9B40A75967D18AAA91688F6D627BD433AB5704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +463,8 @@ Katica Illenyi - Tango Classic (2018) IKP Music [FLAC|Lossless|tracks + .cue] <S
 ```bash
 magnet:?xt=urn:btih:CAD43E73469A40AFA22D4D1FB336D8117798A638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +493,8 @@ CD1:
 magnet:?xt=urn:btih:321CFACBB3FE5B496E6A419DD5FEEA1DFD58B572
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +521,8 @@ Clement Simon - Man on the Moon (2018) jazz family [FLAC|Lossless|WEB-DL|tracks]
 ```bash
 magnet:?xt=urn:btih:F805B958360D3EBFC905CED24929D5F19B4542C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +551,8 @@ VA - By the Sea Lounge Relaxing Luxury Elegance Instrumentals (2023) [FLAC|Lossl
 magnet:?xt=urn:btih:716BF24C05906EFA4AE71A25EC8451C584EB1B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +579,8 @@ Club d'Elf - So Below (2018) Face Pelt Records [FLAC|Lossless|WEB-DL|tracks] <Ja
 ```bash
 magnet:?xt=urn:btih:BD51106AADC78DC9217EF6A18F1BCE4A1E59B11C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +609,8 @@ Claudia Doffinger - Monochrome (2018) QFTF Records [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:41C1012C9098CFFC432BE0CD52D66C85A8AEA8A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +637,8 @@ Cowboys & Frenchmen - Bluer Than You Think (2018) Outside in Music [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:F4155A1C63FAF406F7967F25F726147DABD144E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +667,8 @@ P.J. Perry And The Edmonton Symphony Orchestra (1999) Justin Time [FLAC|Lossless
 magnet:?xt=urn:btih:5EF60798A1414E2AF5F25A1960F266B044D6FEDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +695,8 @@ Michel De Villers - Low Reed: Complete Small Groups Sessions 1946-1956 (2018) Fr
 ```bash
 magnet:?xt=urn:btih:E904A1BE2D7B82C5EA970647669DAF07AD191E56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -677,6 +725,8 @@ Gene Krupa Big Band - Drummer Man (1956) Verve [FLAC|Lossless|tracks + .cue] <Sw
 magnet:?xt=urn:btih:19A4E1D33637F7BF3EC50378F835083B83BD59F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -703,6 +753,8 @@ Guy Lafitte & Andre Persiany - Les Classiques du Jazz (1955, 1957) 2018, Fresh S
 ```bash
 magnet:?xt=urn:btih:7305A7AE71A030ED7794E258D03BE55C00711277
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

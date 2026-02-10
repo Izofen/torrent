@@ -22,6 +22,8 @@ VA - Aly & Fila - Future Sound of Egypt 526 (2017) [MP3|320 Kbps] <Trance, Uplif
 magnet:?xt=urn:btih:83539EC3BAC416294F92DD876A9832F473321D91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:83539EC3BAC416294F92DD876A9832F473321D91
 magnet:?xt=urn:btih:A0F1D93CA121CD824C067A663E93C323F70A0518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:A0F1D93CA121CD824C067A663E93C323F70A0518
 magnet:?xt=urn:btih:56D40B2F52F7A1C4E3BB92E25EF01EB32F5E2EB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:56D40B2F52F7A1C4E3BB92E25EF01EB32F5E2EB2
 ```bash
 magnet:?xt=urn:btih:96DE75896842C9B9C0DDF7CEB74EA457E811ECCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ VA - Electronic Emotional Music Volume One (2003) [FLAC|Lossless|tracks+.cue] <I
 magnet:?xt=urn:btih:E1BA8EA73C3A3D760B8D9AF58A6C3BC99835B49D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:E1BA8EA73C3A3D760B8D9AF58A6C3BC99835B49D
 ```bash
 magnet:?xt=urn:btih:E22DB9F60B7CCBAE30367B31AC994E9DC4D3A0B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ VA - Zone Remixes - Fundamental Trance (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:0DFEDD41F2373988F9B6E3FCCD6BBE0E224DAA0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ VA - Alter Ego: Progressive Best Of 2017 (Mixed by Luigi Palagano) (2017) [MP3|3
 ```bash
 magnet:?xt=urn:btih:BFD5904988E99E3E5A81D5476EBDBD923B49CECC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +247,8 @@ Mike Moreno - 3 For 3 (2017) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Con
 magnet:?xt=urn:btih:5CA3E3F12E6F42033FE4B0F3B9EF49D82AEACED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:5CA3E3F12E6F42033FE4B0F3B9EF49D82AEACED0
 ```bash
 magnet:?xt=urn:btih:A6AF1F7F068494B61D7708F90C350FE2B7AAADE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:A6AF1F7F068494B61D7708F90C350FE2B7AAADE7
 magnet:?xt=urn:btih:86280B09DED71AD8455B0DE72318B58B2973F43F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:86280B09DED71AD8455B0DE72318B58B2973F43F
 ```bash
 magnet:?xt=urn:btih:23F2B8531F59262F36EA96FA41142D1CE633A866
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +354,8 @@ VA - The Best Of Pulsar (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 magnet:?xt=urn:btih:4237E13B119A3790B45DA7A61F046A834E8C505E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ David Ian - Vintage Christmas Trio (2017) Prescott Records [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:A7C320B9E34C74C763F470A1A5D297059EFF9E34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:A7C320B9E34C74C763F470A1A5D297059EFF9E34
 ```bash
 magnet:?xt=urn:btih:1392DBDFE751F63F2DAB7E27E2D65349CF993DFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +438,8 @@ VA - Outburst Presents: Prism Vol. 2 (Mixed by Tempo Giusto & Mark Sherry) (2017
 magnet:?xt=urn:btih:63F2EBD110BD5FDCAC3D566C992E110701B93FAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +466,8 @@ magnet:?xt=urn:btih:63F2EBD110BD5FDCAC3D566C992E110701B93FAB
 ```bash
 magnet:?xt=urn:btih:F1E01576AC1D8C127A36954C906EFD00A920D56B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +496,8 @@ VA - Alter Ego: Best Of 2017 (Mixed by Luigi Palagano & Duncan Newell) (2017) [M
 magnet:?xt=urn:btih:101136174F3DA1379828C19CAA56BA5EBD0808A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +525,8 @@ Stephane Grappelli - Live 1992 (2002) Disques Dreyfus [FLAC|Lossless|image + .cu
 magnet:?xt=urn:btih:507731E79CA418056849A77D76C8E80CCF3F4BE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +553,8 @@ magnet:?xt=urn:btih:507731E79CA418056849A77D76C8E80CCF3F4BE6
 magnet:?xt=urn:btih:A9CB577355DF51F243F7693F877159836AF8A55C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +578,8 @@ magnet:?xt=urn:btih:A9CB577355DF51F243F7693F877159836AF8A55C
 ```bash
 magnet:?xt=urn:btih:05BD586CE6FB2D74C28AC92A61BCDF70BCCB07E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +605,8 @@ magnet:?xt=urn:btih:05BD586CE6FB2D74C28AC92A61BCDF70BCCB07E5
 magnet:?xt=urn:btih:3FD53E52B8E9B20FECC31AFFBE300E4961D55246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +630,8 @@ magnet:?xt=urn:btih:3FD53E52B8E9B20FECC31AFFBE300E4961D55246
 ```bash
 magnet:?xt=urn:btih:748F3651E758705704F947EB0338AFDB0946D863
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ magnet:?xt=urn:btih:748F3651E758705704F947EB0338AFDB0946D863
 magnet:?xt=urn:btih:730E6F2D418031A00B03033BDE22BB5E922A20C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:730E6F2D418031A00B03033BDE22BB5E922A20C5
 magnet:?xt=urn:btih:FA97414D2367CD8D92110794D040F7F97E8FB592
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ magnet:?xt=urn:btih:FA97414D2367CD8D92110794D040F7F97E8FB592
 ```bash
 magnet:?xt=urn:btih:9A57136241AC76DA0138D6E2E86A5A69FDAFAFA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

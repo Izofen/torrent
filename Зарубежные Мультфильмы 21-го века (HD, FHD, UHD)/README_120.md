@@ -1,27 +1,3 @@
-###  Публикация: 1486557   (893384) от 04.09.2021
-
-Лука  / Luca (2021) BDRemux [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Незабываемые каникулы, в которых есть место и домашней пасте, и мороженому, и бесконечным поездкам на мопеде, мальчик по имени Лука проводит в красивом приморском городке, расположенном на итальянской Ривьере. Ни одно приключение Луки не обходится без участия его нового лучшего друга, и беззаботность отдыха омрачает только лишь тот факт, что на самом деле в облике (   Читать дальше...   )Производство: США / Pixar Animation Studios, Walt Disney PicturesЖанр: Мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Энрико КасаросаАктеры: Джейкоб Тремблей, Джек Дилан Грейзер, Эмма Берман, Саверио Раймондо, Майя Рудольф, Джим Гэффиган, Сэнди Мартин, Саша Барон Коэн, Марко Барричелли, Питер СонПеревод: Дублированый (Невафильм), Любительский двухголосый (Pazl Voice)Субтитры: Русские (Forced, 2x Full - iTunes, FOCS), Английские (Full)Продолжительность: 01:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EED07CAE8BF4A3770D3785E3FA7BBB4DCDA2ACF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493772   (893395) от 04.09.2021
 
 Лука / Luca (2021) BDRip [H.265/1080p-LQ] [10-bit]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:2EED07CAE8BF4A3770D3785E3FA7BBB4DCDA2ACF
 ```bash
 magnet:?xt=urn:btih:0D4E21B9BF377A487F8E0366C55602AA5F05C2BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:0D4E21B9BF377A487F8E0366C55602AA5F05C2BC
 magnet:?xt=urn:btih:74ACDC9D5B0DDCAE95AE89587021AB086B89E76A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:74ACDC9D5B0DDCAE95AE89587021AB086B89E76A
 ```bash
 magnet:?xt=urn:btih:965ED676526D0AA3A4D3B8C98F0E86898B11502C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:965ED676526D0AA3A4D3B8C98F0E86898B11502C
 magnet:?xt=urn:btih:B15125A719FE53E32FD283C04AF9A5EF297EBF13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:B15125A719FE53E32FD283C04AF9A5EF297EBF13
 ```bash
 magnet:?xt=urn:btih:ABB3A3B86A48856EB1CEAE3B0CFE885273F5BF06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:ABB3A3B86A48856EB1CEAE3B0CFE885273F5BF06
 magnet:?xt=urn:btih:47BE8712B83AF13405DF5E3912A306037F226840
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:47BE8712B83AF13405DF5E3912A306037F226840
 ```bash
 magnet:?xt=urn:btih:6F6C8E618D62A9CF2D2C03D38009C392D8454C1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:6F6C8E618D62A9CF2D2C03D38009C392D8454C1A
 magnet:?xt=urn:btih:398D84A12C1BB7EF131BBB8577100BC774B46166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:398D84A12C1BB7EF131BBB8577100BC774B46166
 ```bash
 magnet:?xt=urn:btih:2785A01E043718AAD6F35A9BC338CF628FD079A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:2785A01E043718AAD6F35A9BC338CF628FD079A2
 magnet:?xt=urn:btih:D321E227C0E3320ECA8F468F13738FC9DD6A4F07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:D321E227C0E3320ECA8F468F13738FC9DD6A4F07
 ```bash
 magnet:?xt=urn:btih:2E2863D8755A2CD19F52BBA399AB5EB858D1E9FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:2E2863D8755A2CD19F52BBA399AB5EB858D1E9FA
 magnet:?xt=urn:btih:64D3E0943C52D05C29B42CE7B150CC9C66D55E5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ Playmobil фильм: Через вселенные / Playmobil: The Movie (2019
 ```bash
 magnet:?xt=urn:btih:2E7C45BD5E83807BD7DC947DD42E96C2129EB214
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:2E7C45BD5E83807BD7DC947DD42E96C2129EB214
 magnet:?xt=urn:btih:84990939D57F07E8A467D2CB37A2F794AFC24F67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +383,8 @@ magnet:?xt=urn:btih:84990939D57F07E8A467D2CB37A2F794AFC24F67
 ```bash
 magnet:?xt=urn:btih:1AFA55A8EB2986EBF89A2FA858538234A0CBDEAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +410,8 @@ magnet:?xt=urn:btih:1AFA55A8EB2986EBF89A2FA858538234A0CBDEAA
 magnet:?xt=urn:btih:3DCC9BD21FCD0EAE4CB02A24040EACE01A409478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +435,8 @@ magnet:?xt=urn:btih:3DCC9BD21FCD0EAE4CB02A24040EACE01A409478
 ```bash
 magnet:?xt=urn:btih:D378C207E04AF9B9FC9871CEE2BE20133D956580
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:D378C207E04AF9B9FC9871CEE2BE20133D956580
 magnet:?xt=urn:btih:9ECC4D781DD51CA7E2B9BC583F034C86A3B1D245
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +488,8 @@ magnet:?xt=urn:btih:9ECC4D781DD51CA7E2B9BC583F034C86A3B1D245
 ```bash
 magnet:?xt=urn:btih:FBB462A02F5B7947C81AAE0E8543DD260556DB93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +516,8 @@ magnet:?xt=urn:btih:FBB462A02F5B7947C81AAE0E8543DD260556DB93
 magnet:?xt=urn:btih:6EDA105FB388DE7608FB67229E7249F2B4430B14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +541,8 @@ magnet:?xt=urn:btih:6EDA105FB388DE7608FB67229E7249F2B4430B14
 ```bash
 magnet:?xt=urn:btih:13BBD974D705E7BD84E3502E01227204E1B11C2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +568,8 @@ magnet:?xt=urn:btih:13BBD974D705E7BD84E3502E01227204E1B11C2F
 magnet:?xt=urn:btih:1FED07CF617C7B2C5A264F453C09D4E40B32CEA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +593,8 @@ magnet:?xt=urn:btih:1FED07CF617C7B2C5A264F453C09D4E40B32CEA4
 ```bash
 magnet:?xt=urn:btih:42FCFD2F95B5F29C887CA14CBA5F48A81369E61E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:42FCFD2F95B5F29C887CA14CBA5F48A81369E61E
 magnet:?xt=urn:btih:A4ABDDBCC1210BDFAC69B04B36A8690B26FEE2E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +645,34 @@ magnet:?xt=urn:btih:A4ABDDBCC1210BDFAC69B04B36A8690B26FEE2E4
 ```bash
 magnet:?xt=urn:btih:66DF762369001C4C027DAB6796A966BD7D1274F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637252   (901547) от 30.03.2013
+
+Побег с планеты Земля / Escape from Planet Earth (2013) BDRemux  [1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_901547.jpg" />
+</div>
+
+
+###  Подробнее
+
+На планете Бааб, в самом центре Вселенной, два брата делают всё возможное, чтобы защитить свою галактику. Они — полные противоположности. Если девиз Гарри — «сначала подумай, потом сделай», то отважный Скорч живет по закону «сила есть — ума не надо», что не мешает им слаженно работать. Но однажды они получают сигнал S.O.S. с опасной планеты…под названием Земля. Скорч, (   Читать дальше...   )Производство: США, КанадаЖанр: Анимация, Фантастика, Комедия, ПриключенияРежиссер: Кэллан БрукнерАктеры: Брендан Фрейзер, Роб Кордри, Рики Джервэйс, Джонатан Морган Хейт, Джессика Альба, София Вергара, Пол Шеер, Джейсон Симпсон, Сара Джессика Паркер, Даг АбрахамсПеревод: ДублированныйЯзык субтитров: НетПродолжительность: 01:29:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E638B14152818C79D4A9A6BD18AA8C7A8FA4A79
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Yuletide Legends 3: Who Framed Santa Claus / Рождественская ист
 magnet:?xt=urn:btih:9B57E3CFE99B7B82395B1B5620BC0AC73CF01407
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Rogue Lords (2021) [Ru/Multi] (1.1.00/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F33D52129A4C51FF9656D6AC02F5A52E2335FACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Unsolved Case: Fatal Clue / Нераскрытое дело: Роковая ул
 magnet:?xt=urn:btih:56C5FF23BFF8C50BA9F6F5D2CD4C12E37DD98658
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Train Sim World 6 предлагает освоить три уникальны�
 ```bash
 magnet:?xt=urn:btih:29E118B393212CE34465293B8100370DE5960C60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Spirit Legends 3: Time for Change (2019) [En] (1.0) Unofficial [Collector's Edit
 magnet:?xt=urn:btih:8FB7C725A7F8D8CF7374DA80AAC6C39A1181118E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Fermi Paradox - это повествовательная стратегич
 ```bash
 magnet:?xt=urn:btih:E799E5227C44A9E2131507E39AD0687812F4DC15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Stray Souls (2023) [Ru/Multi] (1.0.0) License GOG
 magnet:?xt=urn:btih:4E3B27F6DEF50D40E1AF744DD1B6B65EAA542467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Citizens: On Mars - увлекательная стратегия, в котор
 ```bash
 magnet:?xt=urn:btih:DAEF5E1C26F5AC2D5EE8595C0C10AC3BFEE3F770
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Vengeance of Mr. Peppermint открывает перед игроком жес�
 magnet:?xt=urn:btih:21E7DFCC5DB4D8FE0027F9B0EB3EF030D1E843A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Christmas Spirit 5: Golden Ticket (2021) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:6E0BB41245898FC4CEC9DCE2373611CC1FDD88EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Phoenix Point - это новая стратегическая игра от с�
 magnet:?xt=urn:btih:01B8211420999A396C9CE8B9529C8572E29DA4EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Trine 4: The Nightmare Prince – очередная часть в серии л
 ```bash
 magnet:?xt=urn:btih:358B545EC98D6AE52FBA8C7ED2594C8078755EC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Choo-Choo Charles – это хоррор экшн, в котором польз
 magnet:?xt=urn:btih:C91DE56C4B11CB4F75FE83326E77E41442599E1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Titan Station — это однопользовательская мистери
 ```bash
 magnet:?xt=urn:btih:66817403CC2AE8BF89B2D9986A39C57ECFFB51A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Asterix & Obelix: Slap them All! (2021) [Multi] (1.0.0) License CODEX
 magnet:?xt=urn:btih:32035E29BB0134B27F121B45A5458A777FA60C73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Cursed Fables 2: Twisted Tower (2022) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:71A4039E3322CEE2B20B661E609219E3891D9BD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Conqueror's Blade - Многопользовательская ролевая т
 magnet:?xt=urn:btih:64A22D55E3FEEC2597323F5D975E7B866EECA62C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Mini Metro (2014) [Ru/Multi] (202211171226) License GOG
 ```bash
 magnet:?xt=urn:btih:A4148CE434EC7CD9BCE95439FBEA55568F033264
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Urbek City Builder – это возможность заняться строи
 magnet:?xt=urn:btih:45A60631533DB0B99CFD07447CC374071702516C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Unliving - Founder's Pack (2023) [Ru/Multi] (1.0.2892023_1631) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:9F93ED74CFA20E126AFECCA55107AC858C5F6DD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ DCOP (2023) [En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:B85A1F6D7DF7C6EFE11DED7572D11E7A19B5603D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Chimeras 12: Inhuman Nature (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:80563CCA6952E273B14AC7005D6EE2DC2F3E29A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Sands of Aura (2023) [En] (1.0) Scene Rune
 magnet:?xt=urn:btih:5BD516781913FA07160BBF8752C78C0EDB46A1EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Slay the Princess (2023) [En] (20231024) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:EE8309275CE3905D501055C9CCFA21B0A8C0843D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Bridge To Another World 10: Cursed Clouds / Мост в другой мир 10: 
 magnet:?xt=urn:btih:A1FDB17FE2F4FD29A754F3BDC59BBEFC09EDD94E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Aiko's Choice - это новое автономное дополнение к �
 ```bash
 magnet:?xt=urn:btih:AC1A8756C6C0D681EBAC8FDE328CE080CBA8ED8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

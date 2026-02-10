@@ -22,6 +22,8 @@ VA - Glam Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
 magnet:?xt=urn:btih:90E14486BFBEFD5BF067EADFDB2CB64F9715EE9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:90E14486BFBEFD5BF067EADFDB2CB64F9715EE9B
 magnet:?xt=urn:btih:02D07E32A88ED48D07A4EE6B6089D2ACF0920F0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Applied Houdini ("практический Houdini", "Houdini в практич�
 ```bash
 magnet:?xt=urn:btih:71CCAA7BF52DBBD7D77359583F0E898DF443688E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ VA - Lilja 4-ever OST (2002) [FLAC|Lossless|tracks + .cue] <OST>
 magnet:?xt=urn:btih:E96C476FEB9AE9B59D42C0901560ADCD8D1A754A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:E96C476FEB9AE9B59D42C0901560ADCD8D1A754A
 magnet:?xt=urn:btih:7D091C54CEBBAB9891277B1D513B59DF91228531
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:26A9CD6146AEC6E600D4AAFA63FE434960147CFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ BELOFF [dp] 2022.07.2
 magnet:?xt=urn:btih:07B76B7DE2B8B724A9791B5C2C04C2EB409A4F35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Remote Desktop Manager – это приложение для контроля �
 ```bash
 magnet:?xt=urn:btih:C276FFA550223568E997168F030DF5393998E31F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:C276FFA550223568E997168F030DF5393998E31F
 ```bash
 magnet:?xt=urn:btih:5DBF94F995D05EDEEA06CC9A3ADB45CBC88C9B9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ PhotoDiva — одна из лучших программ для ретуши п
 magnet:?xt=urn:btih:818DCB6CEC71A605940CEC8EFC4312D879C646A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:818DCB6CEC71A605940CEC8EFC4312D879C646A3
 magnet:?xt=urn:btih:0DBB7C4EA511612E2D3884B362B240A2AFCB12D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Ultimaker Cura - популярный слайсер для 3d-печати. О�
 ```bash
 magnet:?xt=urn:btih:EFD1E9225E78C27B244224F2715D354E1817D402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:EFD1E9225E78C27B244224F2715D354E1817D402
 magnet:?xt=urn:btih:AEC0719D91FC43015F04ED5A1703939BE8DBF319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ Scott Eaton | Anatomy for Artists Week 1-8 (2012) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:9E125118CA896A9B8B21506757F7526A775EFA06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:9E125118CA896A9B8B21506757F7526A775EFA06
 magnet:?xt=urn:btih:9D2351FF04F908DF227A8B40B0D328966ADED905
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ IDPhotoStudio - интересная программа для создания 
 ```bash
 magnet:?xt=urn:btih:48C5F418DC8DA5A95D084A68C82C1D3FFD42ACB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:48C5F418DC8DA5A95D084A68C82C1D3FFD42ACB5
 magnet:?xt=urn:btih:F0CE6D047F89C81A9C1973312DA1D4CF894C1F9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:F0CE6D047F89C81A9C1973312DA1D4CF894C1F9E
 ```bash
 magnet:?xt=urn:btih:8B033D5034E513F7AB7734146B9D2A193E69C51D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:8B033D5034E513F7AB7734146B9D2A193E69C51D
 magnet:?xt=urn:btih:36DD6BF128676376098F5D87D76BC66AF8828153
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ Shade: Wrath of Angels - это леденящая кровь история, п
 ```bash
 magnet:?xt=urn:btih:FE1530DC39B06803EE8FD00B050F0CB690BE4415
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:FE1530DC39B06803EE8FD00B050F0CB690BE4415
 magnet:?xt=urn:btih:C87470C832B83CB207C847FBB4A1559A73779A53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:0A0EE2F65940F80808F457EFEABEA9C44852E17E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:4F5504912271FD094EA268633A4D9AFC231F90D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ VA - Classic & Easy Soft Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Soft R
 ```bash
 magnet:?xt=urn:btih:AC9FE922EA7F33D43156F316C7894713218B696D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:AC9FE922EA7F33D43156F316C7894713218B696D
 magnet:?xt=urn:btih:83D0D4352B29332B42CA2334ECC20177FB0229C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:83D0D4352B29332B42CA2334ECC20177FB0229C5
 ```bash
 magnet:?xt=urn:btih:285DD341E2CA034C500111D9FF56BE5AB8339629
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

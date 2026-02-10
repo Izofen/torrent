@@ -21,6 +21,8 @@ The Idolmaster Shiny Colors 2nd Season | Идолмастер: Яркие цве
 magnet:?xt=urn:btih:75F3CD8A18A47FED7EF7A5F8B854859117712BF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Mahou Tsukai ni Narenakatta Onnanoko no Hanashi. | История девушки
 magnet:?xt=urn:btih:61711D0496EDEB885F658E2DA3106AFB300B9F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Sayonara Ryuusei, Konnichiwa Jinsei / Goodbye, Dragon Life / Прощай, жи�
 ```bash
 magnet:?xt=urn:btih:012F0E351AD58F7FF2C6B8CE2BDDA5B7296D8B46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Mecha-ude (2024) | Mechanical Arms | Механические руки [2024, TV
 magnet:?xt=urn:btih:921CA59B882DEE2FCC91D52C1F1CF018196926D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ NegaPosi Angler | Negative Positive Angler | Негативный позитив
 ```bash
 magnet:?xt=urn:btih:AA900F2F70978686DBACF4FEC3F2D1157F75AD03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Sword Art Online Alternative: Gun Gale Online II / Мастера меча он�
 magnet:?xt=urn:btih:20C1A2B3FC646194E05F29AA7C93A8CF17CA816E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Kekkon Surutte, Hontou Desuka / 365 Days to the Wedding / Вы правда же
 ```bash
 magnet:?xt=urn:btih:0B705D8A3348A839C5346BD98B500D22D19E1677
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Shi Cao Lao Long Bei Guan Yi E Long Zhi Ming S2 | A Herbivorous Dragon of 5,000 
 magnet:?xt=urn:btih:BF5A481E8CEF0A0A89688492C8013BB9F389FD61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:BF5A481E8CEF0A0A89688492C8013BB9F389FD61
 ```bash
 magnet:?xt=urn:btih:FDC4F22679154E4FD6C46FE431A288A769B2E043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Saikyou no Shien-shoku Wajutsushi Dearu Ore wa Sekai Saikyou Clan o Shitagaeru |
 magnet:?xt=urn:btih:E5DADE2E10265FFA2F7CFD1E20A0524FD208B8A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Tsuma, Shougakusei ni Naru. / If My Wife Becomes an Elementary School Student. /
 ```bash
 magnet:?xt=urn:btih:493B7698FFF3E2FD2EAF4D1562DC457652A794FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Maou-sama, Retry! R | Demon Lord, Retry! R | Король демонов, поп
 magnet:?xt=urn:btih:1C0945D7B484B3C50C3BF0A50846E58CAAAD84E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Hitoribocchi no Isekai Kouryaku / Loner Life in Another World / Нападени
 ```bash
 magnet:?xt=urn:btih:AB79985E6AF5C969074A6EEB6FCEFBB6876DE07B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ MF Ghost | MF Призрак [ТВ-1] [2023, TV, 12 эп.] BDRip 720p 10-bit raw
 magnet:?xt=urn:btih:0463CAD76573AC599A0A4C448191F7EE65A1ED5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Acro Trip | Плохая поездка [2024, TV, 12 эп.] WebRip 720p raw
 ```bash
 magnet:?xt=urn:btih:5AD2445C716BF99F44BB94CD0935CA7DBC74387F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Megami-ryou no Ryoubo-kun. | Mother of the Goddess' Dormitory | Комендан
 magnet:?xt=urn:btih:1FD4591021201370978BAC47E821A35D97CEBC09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Delico's Nursery | Детская Делико [2024, TV, 13 эп.] WebRip 720p 
 ```bash
 magnet:?xt=urn:btih:28DBE03D6E4581D442A2169B943A428C0BD4301D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Murai no Koi | Murai in Love | Любовь Мураи [2024, TV, 12 эп.] WebR
 magnet:?xt=urn:btih:901A5D9A5ABC6260F70C7EAB62446E8796FB31CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Ariel Deluxe | Deluxe Ariel | Роскошная Ариэль [1991, OVA, 2 из
 ```bash
 magnet:?xt=urn:btih:D9F3839AF6BCB1AD902708E8CABAB382D55E50AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Ariel Visual | Ариэль [1989, OVA, 2 из 2] BDRip 1080p HEVC 10-bit raw
 magnet:?xt=urn:btih:64D8A370C1566F5A7089D5D52B0BBFAE7B1F3925
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ eX-Driver: Nina & Rei Danger Zone | eX-Driver Danger Zone | Экс-драйве�
 ```bash
 magnet:?xt=urn:btih:3C77F3D926FC3B959EF8C3BC37846ECF32C7FFB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ eX-Driver the Movie | Экс-драйвер: фильм [2002, Movie + 3 SP] DVD
 magnet:?xt=urn:btih:2A7938ECEA485A793A502D789209BDA50A17F569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ eX-Driver | Экс-драйвер [2000, OVA, 6 эп.] DVDRip 480p raw+eng
 ```bash
 magnet:?xt=urn:btih:22C5510A2EF949A4F92C60E83E36726B9EA97822
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ High Card (2024) + OVA | Старшая карта [ТВ-2] + OVA [2024, TV, 12+
 magnet:?xt=urn:btih:E2DE0105BEA002CC2ED3108CEC9933FADB6776AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Shin Megami Tensei: Tokyo Mokushiroku | Tokyo Revelation | Новое вопло
 magnet:?xt=urn:btih:34C95EB4DEA001B7FB974BE5B87084E52FFC21E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Houkago Shounen Hanako-kun (2024) | After-school Hanako-kun (2024) | Ханак�
 ```bash
 magnet:?xt=urn:btih:B087B04FE9B24A9CB8BF965B46C00EAC599B4254
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

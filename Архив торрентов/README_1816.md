@@ -22,6 +22,8 @@ ru-ru_windows_10_business_editions_version_22h2_updated_june_2023_x64_dvd_c20565
 magnet:?xt=urn:btih:5FD5CAB6501EDA7D04D0BC3E39D8933F007C3320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Microsoft Office 2013 SP1 – лучший пакет прикладных пр�
 ```bash
 magnet:?xt=urn:btih:43DCFE1F5C315B773AC80FEF67C704F23222D59D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ ru-ru_windows_11_business_editions_version_22h2_updated_june_2023_x64_dvd_91ab07
 magnet:?xt=urn:btih:04FC816338C61B49C48E551F7F999210A673776E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:3BCEFEF72A5EF8DDF8C5F7A313BE38DB6F9B5D03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ R-Studio Network 9.2 Build 191166 RePack (& portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:17A36A9D868AE4DB6B7145895CB300CA67A954C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:0C97463772CD9466971CF33ABC7CFB947FC7A685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:0C97463772CD9466971CF33ABC7CFB947FC7A685
 magnet:?xt=urn:btih:45C3E921061012AC190D4693AE329E42E3454FAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Kaminaki Sekai no Kamisama Katsudou | Дeятeльнoсть Бoгa в мирe б
 ```bash
 magnet:?xt=urn:btih:FDF99CCFD8BD33DF09BC8F57AF462D7F3A7C52A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:FDF99CCFD8BD33DF09BC8F57AF462D7F3A7C52A6
 magnet:?xt=urn:btih:53456D327A3BB3B75C9C2882C6A075D2302776AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Adobe InDesign — профессиональный продукт для про
 ```bash
 magnet:?xt=urn:btih:754F535BB448626C2AE703EDE99A55F13FC55747
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 magnet:?xt=urn:btih:BE14C19874E551E2536928EBB8FFF0BBEB0A57B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Revo Uninstaller Pro 5.1.7 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0824499526750D076739EA5D15A9C2C971A8F352
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ System software for Windows v.3.5.7 [Ru]
 magnet:?xt=urn:btih:130A8F364456FE4264B9D78D107417B170505B97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Adobe Photoshop 2023 - мощное и продвинутое приложени
 ```bash
 magnet:?xt=urn:btih:C8F474AA2F9A0446AC9AC80B32AE48CFEAAE01DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ AnyDesk 7.1.13 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:728860716489978562A6C4AB79565608A089590B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ uTorrent Pro 3.6.0 Build 46828 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:71A1D6C92B6045C24768588525A608CCBD5A2818
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Start11 - очередная утилита от компании Stardock, из
 magnet:?xt=urn:btih:7D8092432174ABD3B5A5AB4F1A2E3796E926742B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ ABViewer – программный продукт для просмотра г�
 ```bash
 magnet:?xt=urn:btih:8F269CD8C0D01987417F70510B93E846F02D614D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Torrent File Editor 0.3.18 Portable [Multi/Ru]
 magnet:?xt=urn:btih:87A7F726BA41E52470C4B7059F13A9B6BFD0F628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:AD7A7F0D734CE520EE4CB7555BA645C896A6CEBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:AD7A7F0D734CE520EE4CB7555BA645C896A6CEBF
 magnet:?xt=urn:btih:238C08AAE44B3BB78318B666B0F4CF76F8C21CD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Driver Easy Professional — профессиональная и в тоже в�
 ```bash
 magnet:?xt=urn:btih:B8339C154AD156C65B7FD4ADC7B751B39ADCEAA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ WhatsApp Messenger - это кроссплатформенное приложе�
 magnet:?xt=urn:btih:8E341273A7EF3A599E4319256D28D7093AA5882C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ AVG AntiVirus FREE - не замедляющая работу системы б�
 ```bash
 magnet:?xt=urn:btih:9715809D07A8C3C726A9A2B118C17720400A1CCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Adobe Photoshop 2023 - новая версия программы для обр�
 magnet:?xt=urn:btih:282FEE6BA001517D89B24F921C9DE9B11239E366
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Adobe Premiere Pro 2023 - профессиональная программа д
 ```bash
 magnet:?xt=urn:btih:5AFD91BB91A190EF2086B771095492D540C41779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

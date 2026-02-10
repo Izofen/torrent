@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 magnet:?xt=urn:btih:42072AE48A8062D08E44B2CCF84D4AC1216E34C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:42072AE48A8062D08E44B2CCF84D4AC1216E34C6
 ```bash
 magnet:?xt=urn:btih:4FBBA4AF7BAD39D1449B5D09CB2B760A04F8DE1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Oirbo (2023) [En] (1.5.3) License GOG
 magnet:?xt=urn:btih:B8DE495A01C9AFF31F74130E553E0D723110B213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:B8DE495A01C9AFF31F74130E553E0D723110B213
 ```bash
 magnet:?xt=urn:btih:E517246211F0DD29B4F48D4551525A2FAC508999
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:E517246211F0DD29B4F48D4551525A2FAC508999
 magnet:?xt=urn:btih:D73D00BE5442A45CFC450DFF03391ABCDC12696D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:6D3AE31C4256D0D9CE5F11AD6AD40F3D701A7F1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:6D3AE31C4256D0D9CE5F11AD6AD40F3D701A7F1F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Danjo no Yuujou wa Seiritsu Suru? (Iya, Shinai!!) / Can a Boy-Girl Friendship Su
 ```bash
 magnet:?xt=urn:btih:37E10BDAE4B9614CCB34221A4E598D298B3C5024
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:37E10BDAE4B9614CCB34221A4E598D298B3C5024
 magnet:?xt=urn:btih:9E3C4039CA55163B1457C876E91D0A2EB22D19FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:9E3C4039CA55163B1457C876E91D0A2EB22D19FB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Mortal Kombat XL - игровой сборник популярного арка
 magnet:?xt=urn:btih:7974D2C9CA359F6CD83D56C15F1492CB0BC15FA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Splash Art Weapons And Poses Reference Pack содержит коллекцию 
 ```bash
 magnet:?xt=urn:btih:FB752208F963FE7953D843644C8F36BFFB8E27F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:FB752208F963FE7953D843644C8F36BFFB8E27F3
 magnet:?xt=urn:btih:243741C174C1F5D95FFAB4497E23C4FC317971A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Enen no Shouboutai San no Shou | Fire Force (2025) | Пламенная бриг
 ```bash
 magnet:?xt=urn:btih:EE6F7121CCFC9C9FAF0EA98BE72C0C966DB0249B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:EE6F7121CCFC9C9FAF0EA98BE72C0C966DB0249B
 magnet:?xt=urn:btih:CB70EF52B4C24FDA47D6F28336E43C5E6111A7A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:CB70EF52B4C24FDA47D6F28336E43C5E6111A7A3
 ```bash
 magnet:?xt=urn:btih:0CC90864BE7EC817E00C66431C5035375A382525
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:0CC90864BE7EC817E00C66431C5035375A382525
 ```bash
 magnet:?xt=urn:btih:4A2F9D632859AC2BFDAB0BFE5E6EB73DD6854D6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ YTDisBystro - сбока на основе zapret от KDS.
 magnet:?xt=urn:btih:5D3452D037A27F5EB75AC1C15E7C1063F7BDED56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:5D3452D037A27F5EB75AC1C15E7C1063F7BDED56
 magnet:?xt=urn:btih:C387B0463C33B5F1BA15C4DB898E8AD026D454A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:C387B0463C33B5F1BA15C4DB898E8AD026D454A5
 ```bash
 magnet:?xt=urn:btih:78B760826256CE663725149CBEB5A944ECE2D952
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:78B760826256CE663725149CBEB5A944ECE2D952
 magnet:?xt=urn:btih:EFD1D0694BC836BF68B2ADE63B000BE7AF2F1671
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Windows 10 3in1 x64 22Н2 (build 19045.6029) by ivandubskoj 17.06.2025 [Ru]
 ```bash
 magnet:?xt=urn:btih:63EA7926AF17E1406195D2926F6573979853C136
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:63EA7926AF17E1406195D2926F6573979853C136
 magnet:?xt=urn:btih:EE96DB95C6FF4C18A5FECC062F4AEBDF895466E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:EE96DB95C6FF4C18A5FECC062F4AEBDF895466E6
 magnet:?xt=urn:btih:27294AEC2FB79F35000BE3B8DC48564CCC85E70E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:C6C0E0A3108B36E6B89CDAB4306611C870078B48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

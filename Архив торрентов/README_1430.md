@@ -19,6 +19,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 magnet:?xt=urn:btih:C6027C861698284898328E370050BAEECDAB7743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ DxO PhotoLab Elite 6.7.0 build 219 RePack by KpoJIuK [Multi]
 ```bash
 magnet:?xt=urn:btih:0ECA43EC4826FDA231C0E9BEA8197065816C1653
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ AOMEI Backupper – программа для создания резервно�
 magnet:?xt=urn:btih:4931F04DD6ED692D49FDB98EC9A72223EE352101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:CE3B9EFD03FDB8CDCCEA67D8C2EB6301054E194B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:CE3B9EFD03FDB8CDCCEA67D8C2EB6301054E194B
 magnet:?xt=urn:btih:10224A9EA3EB3E83595C461AC26134B585B98383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:C134DCF465CA2AABC2F1185A2E67FB42A1704D8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ SamDrivers 23.6 LAN [Multi/Ru]
 magnet:?xt=urn:btih:A1F571D354FEA57C55D4A8063D76F99712F929E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:D38BEF4547090EED8E0D3B2B8299DBDC5EE3C10F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 magnet:?xt=urn:btih:14B2E1D63FD4B530EEB4DA79AE0C02194A007AC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ IceCream Ebook Reader Pro 6.32 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:34839E9F7FADC50D3678FF44A8F46E991B0DA8EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ Radiant Photo - это программа для редактирования ф
 ```bash
 magnet:?xt=urn:btih:05F9C2E2F8F320E5ED265E8942B4800029DF3AFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ DxO PureRAW 3.3.0 build 12 RePack by KpoJIuK [Multi]
 magnet:?xt=urn:btih:7670A0E407BFD9574ED094C092D1790273692A6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:6793D0D6E4A216B43D5B36AA574CD6F998A8D7FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Wondershare UniConverter - простой в использовании виде
 magnet:?xt=urn:btih:4101D3A708967F6394698DB56C1748D7E9647430
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Serato DJ – продукт, ориентированный как на про�
 ```bash
 magnet:?xt=urn:btih:624E99648851DF972FCDB25826D8F8B54A988147
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Ashampoo Photo Optimizer 9.3.4.32 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9A122CA92A21053074745979E0E14F177D9737CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Rootkit (руткит) - набор программ, которые хакер 
 magnet:?xt=urn:btih:7C38C80CAD44D1B72DC56BE360E654F275DFE9C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ AnyDesk 7.1.12 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A3A4F8A158E50C3AFFB114253D7C39537B106425
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Total Commander является самым мощным и стабильным
 magnet:?xt=urn:btih:3A5BA50EB86BC93D1BDADF0CF6F39D7D1DCADFFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Opera 99.0.4788.65 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:6151BC57CC7C6C6D1428BD9B012D04545B5BA0F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:B430FF183C1E7B9BFFAAA58973144F0B1C7B58AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ uTorrent Pack 1.2.3.69 (04.06.2023) Repack (& Portable) by elchupacabra [Multi/R
 magnet:?xt=urn:btih:A73936C52351BC45586A9A1141B7228EC297AA53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ priPrinter - это виртуальный принтер, который вы �
 ```bash
 magnet:?xt=urn:btih:AC7A985EAB3080602E6F300C158BA013D433530F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Revo Uninstaller Pro 5.1.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:CB6F13B4BE23B734074318AE6806E81424FB397D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:CB6F13B4BE23B734074318AE6806E81424FB397D
 ```bash
 magnet:?xt=urn:btih:42CB58237444819C00CC17F2E528AF18DAB5D28F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +674,8 @@ CurrPorts – полезная бесплатная программа для с
 ```bash
 magnet:?xt=urn:btih:30998D2B8B56434CFEBEE1301E906E8FB3E9ADBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

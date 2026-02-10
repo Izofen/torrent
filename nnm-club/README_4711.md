@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:CDE4EAF6293879033FC0EDA5699A56318B4E1D87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:CDE4EAF6293879033FC0EDA5699A56318B4E1D87
 magnet:?xt=urn:btih:CFE916E53AF28F2A5F2253FA20BDD5BB7D5F3029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Deadfall Adventures – приключенческий FPS, действия к�
 ```bash
 magnet:?xt=urn:btih:E4EBD8BDD8F49FDB077882601E1FBFF235DE4042
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:E4EBD8BDD8F49FDB077882601E1FBFF235DE4042
 magnet:?xt=urn:btih:78C113A93943E0B9BD63FCE23247392469508B39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:78C113A93943E0B9BD63FCE23247392469508B39
 ```bash
 magnet:?xt=urn:btih:5233AA23B56248AA1A705A2936893943FF3C46DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:5233AA23B56248AA1A705A2936893943FF3C46DA
 magnet:?xt=urn:btih:04773615F14F761C1C36EE0DD2C50F9893D15666
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Command & Conquer Generals Zero Hour: World War II (2013) [Ru/En] (0.27) Repack/
 ```bash
 magnet:?xt=urn:btih:78F97A7E57DEFA810EAC20C9F4765594239A2827
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:78F97A7E57DEFA810EAC20C9F4765594239A2827
 magnet:?xt=urn:btih:7640B902E3D978A23BF044B1A19F9607B068CF33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:7640B902E3D978A23BF044B1A19F9607B068CF33
 ```bash
 magnet:?xt=urn:btih:C4D7F35D9840B91B38076A9C6C41725A4A0B3753
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:C4D7F35D9840B91B38076A9C6C41725A4A0B3753
 magnet:?xt=urn:btih:45C9ACFD883C4F60FD87E27174AB869033776489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:45C9ACFD883C4F60FD87E27174AB869033776489
 ```bash
 magnet:?xt=urn:btih:E035DFA872D183FED1900851BD48EF20458A7624
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:E035DFA872D183FED1900851BD48EF20458A7624
 magnet:?xt=urn:btih:DEFFA76501BC07ED7C408DFC67C7723AC3F2DB8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Substance Painter - совершенно новое решение для 3D-р�
 ```bash
 magnet:?xt=urn:btih:D535822FDA094B373B3C2BABF09C187A743AB50E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ BioShock - это приключенческий шутер от первого 
 magnet:?xt=urn:btih:321998D5A81D8D5DAFF6F1B00DA7A50F85072170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:321998D5A81D8D5DAFF6F1B00DA7A50F85072170
 ```bash
 magnet:?xt=urn:btih:ED4D0DD798FE6B8695EBFDF35A91900F66CF0D21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:ED4D0DD798FE6B8695EBFDF35A91900F66CF0D21
 magnet:?xt=urn:btih:D3BD056B3A75102BB81B5D70F79A0D080F7A3968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:D3BD056B3A75102BB81B5D70F79A0D080F7A3968
 ```bash
 magnet:?xt=urn:btih:D1A0FEFCBCEE11714C97CD96EBD90237F2B78585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Komi-san wa, Komyushou Desu. | Komi Can't Communicate | У Коми пробле
 magnet:?xt=urn:btih:72445CB027E864DDB039560FD733693E74D5A2F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Smith Micro Poser Pro — мощный и в тоже время простой 
 ```bash
 magnet:?xt=urn:btih:E9440CF9A74564FBD83D66F768F3EFFA249A208D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:E9440CF9A74564FBD83D66F768F3EFFA249A208D
 magnet:?xt=urn:btih:90FDD8B64F92FDD394EAF5440508A3D1259D9AF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:90FDD8B64F92FDD394EAF5440508A3D1259D9AF4
 ```bash
 magnet:?xt=urn:btih:50D66474334BDAC648AD3563AEE9446AF54DA564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Malad - Malad (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 magnet:?xt=urn:btih:56F589AA8D85D3A9E1DA68D5EF87162E2ED49D74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:56F589AA8D85D3A9E1DA68D5EF87162E2ED49D74
 ```bash
 magnet:?xt=urn:btih:C92D63970CD13EB3F078BA64E12D4CC30C86D850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:C92D63970CD13EB3F078BA64E12D4CC30C86D850
 magnet:?xt=urn:btih:2952542D757E130C61F699A5AAF7DF9B1D19E72B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Skillberry | Все включено. Безлимитный доступ к 35 
 magnet:?xt=urn:btih:D4500CB9AF18172004C129E208FD9D51BF83867D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:D4500CB9AF18172004C129E208FD9D51BF83867D
 ```bash
 magnet:?xt=urn:btih:C27E1685442C62D459BF8BE37F23A1C56A125051
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1406188   (476829) от 02.09.2020
+
+VA - Лучшие из лучших Top 100 хитов радиостанций за Август (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_476829.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ЛАПКА - Грустный смайл (2:29)
+002. JOVI - Твой рай (3:35)
+003. Anji - Beautiful Eyes (3:09)
+004. Bastard! - F..k That (3:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:21:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F2CF986AC1019E356C9E62C64373A4D952E9886
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 547036   (476901) от 14.09.2012
 
 VA - DJ Tapolsky - Drum and Bass vol.6 (2002) [MP3|320 кб/с]<Drum & Bass>
@@ -28,6 +57,8 @@ VA - DJ Tapolsky - Drum and Bass vol.6 (2002) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:B7C4EB8C96175FE1E3EE43C4AA3589D58E0A1475
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +85,8 @@ VA - Spinnin Records Top 100 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:F215F1FD5EF293115B17F618F0A1AA72662E4A65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -88,6 +121,8 @@ VA - Битва DJ: Beauty vs. Bruno (2007) [MP3|320 кб/с]<Electro, Techno, T
 magnet:?xt=urn:btih:669521FE74FD692DC4CDB958CC360BEE1823FCEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -111,6 +146,8 @@ N/AЖанр: Progressive TranceПродолжительность: 01:16:48
 ```bash
 magnet:?xt=urn:btih:CA4A4B3825DD3CD273BE4505A39D96033DED9FD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +182,8 @@ VA - Trance Tattoe #23 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
 magnet:?xt=urn:btih:9A91E5526F783E8C524978E24503E4455A169FC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +210,8 @@ CD1: (01:16:34)
 ```bash
 magnet:?xt=urn:btih:0D879125EC2EEA00BED66DE657669E17E29F4624
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +246,8 @@ VA - Битва DJ: Dинамит vs. Бинокль (2007) [MP3|320 кб/с]<Ho
 magnet:?xt=urn:btih:E85390C973A0CB3F9F7458C3DE0B230C66B2433E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +274,8 @@ VA - Summer Break (2020) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:FA703625E582493BFB8A4BE8D0D95F31BD7AC5BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +304,8 @@ VA - Fitness And Workout Mix (2016) [MP3|320 Kbps] <Dance, Club, House, Electro>
 magnet:?xt=urn:btih:12CA6D33D3B38DF1FEE02E873D398ACCDD887D3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +332,8 @@ VA - Современная музыка от Зайцев.Нет (2015) [MP3|18
 ```bash
 magnet:?xt=urn:btih:4C53E9598BF235F64F7910D76A59A400FB6B334D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +362,8 @@ VA - не Громкие новинки недели 30 (2019) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:0E65270E7C9379CD2A101EF7EF9733FA74C260A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +390,8 @@ VA - Beatport Progressive House: Electro Sound Pack #165 (2020) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:6F1F03B629DA5008FCA775C8E34CE4CACC3CECA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +420,8 @@ VA - Happy Disco House (2020) [MP3|320 Kbps] <Funky, Disco House>
 magnet:?xt=urn:btih:00A00DE65AF743F3853FB3C451513F87422B16D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +448,8 @@ VA - Top 100 Твои любимые хиты (2015) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:AA25D6C6A17168C55955B4C971D576F8850E792F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +478,8 @@ VA - Beatport Psychedelic Trance: Electro Sound Pack #167 (2020) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:DF993EEE51AE25D791977DA09E96074AE0F09CF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +506,8 @@ VA - Dancefloor Workout Empire (2016) [MP3|223-320 Kbps] <Hands Up, Vocal, Eurod
 ```bash
 magnet:?xt=urn:btih:F66E424F71D2A84B08A51C97C94DE2597AE4C90F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +536,8 @@ VA - Record Super Chart #455 (2016) [MP3|320 Kbps] <House, Electro House, Future
 magnet:?xt=urn:btih:B6F3380A9E495D9EBAD62D3FB8527DBF62BC6541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +564,8 @@ VA - Luxury Lounge (2016) [MP3|320 Kbps] <Lounge, Dountempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:DAE994FBCC5324D586E21BC332194DADFA59F757
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +594,8 @@ VA - Русское Радио. Лучшее 2018 от DON Music (08.2018) [MP3|
 magnet:?xt=urn:btih:4D94AAEBD6E77188CF17854379539DE2323CA878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +622,8 @@ VA - Deep House and Techno - Dream Selection 2010-2015 vol.2 (2010-2015) [MP3|25
 ```bash
 magnet:?xt=urn:btih:701374C6D261E0F98CFA24A9F7F34EFF2EC59630
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +652,8 @@ VA - Мелодия русского шансона (2015) [MP3|256 кб/с]<Ш�
 magnet:?xt=urn:btih:724D1D9944756F4AF4D1E0841EAED9732DB65EF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +680,8 @@ VA - XXXL блатнячок на радио Шансон. Сборник 3 (201
 ```bash
 magnet:?xt=urn:btih:A7140B58C2FD505803AEF235107406B14021DD45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +710,8 @@ VA - TOP Non-Stop 2010-2015 - Lounge & Chillout (2010-2015) [MP3|192 кб/с]<Ch
 magnet:?xt=urn:btih:F4515C3A5A32908D2691803BFEDC27E0FE6A401E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +738,8 @@ VA - Acoustic Hour - We Are Independent (2015) [MP3|320 кб/с]<Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:493E8741E2D040A58F003BC390DED34642AA5325
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -691,32 +768,7 @@ VA - Atom 19.0 (Compiled and mixed by Deeper82) (2015) [MP3|320 кб/с]<Atmosph
 magnet:?xt=urn:btih:18EE71291340161D82AC1826302A38A4F286ABEA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939220   (478023) от 20.09.2015
-
-VA - Deep House Excitation Two - 15 Finest Deep-and Chillhouse Tunes (2015) [MP3|320 кб/с]<Deep House, Chill House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fallow - Engage - Paul Lock Remix
-02. Jaques Le Noir - Looking For
-03. Tafubar - Constructing the Void - Lemongrass Balearic Mix
-04. Dr. Beat - Lovely Lisbon(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A7A94ADC2175147AECD850B9ABD0C80E6A7D4F1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

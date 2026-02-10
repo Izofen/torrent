@@ -22,6 +22,8 @@ UltimateCourses, Todd Motto | Angular Pro (2020) PCRec [En]
 magnet:?xt=urn:btih:1F23402367EF9C536AA776E1F8DA2CFFD38FC830
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Udemy, Роман Сакутин | Создание игры 2D Minecraft на C
 ```bash
 magnet:?xt=urn:btih:09E4F1A41E50C62F63A347D11D0E50334B98F272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ C # - один из самых универсальных языков прог�
 ```bash
 magnet:?xt=urn:btih:C5862DD81100C843A570AB2B02E3C6674DA2F93A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Udemy, Kirill Eremenko | Python A-Z™: Python For Data Science With Real Exerci
 magnet:?xt=urn:btih:A24D5CBF19B021CF240E9B712D6EDCA2D35D00DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Udemy, Frank Kane | Taming Big Data with Apache Spark and Python - Hands On! (20
 magnet:?xt=urn:btih:8D5A9EDD7E297F58ECFDE1978B51A98D5383D544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Udemy, Lazy Programmer Inc. | Deep Learning Prerequisites: The Numpy Stack in Py
 ```bash
 magnet:?xt=urn:btih:081B6452AA3AA2678CCEC6158FDF7A1716E64CC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ ihatetomatoes, Petr Tichy | GreenSock - Bella (2020) PCRec [En]
 magnet:?xt=urn:btih:E0C9CB518166AC0B28CB483859F451DC14D1FA35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Udemy, Imtiaz Ahmad | The Complete Oracle SQL Certification Course (2020) PCRec 
 magnet:?xt=urn:btih:42B526DDC5499821D5169ECA85E70F0CFD783CB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Usegolang, Jonathan Calhoun | Web Development with Go (2022-2023) WEB-DL [EN] [�
 ```bash
 magnet:?xt=urn:btih:54AE612371757D3C38A88632520869FC35601983
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ Udemy, Jose Portilla | The Complete SQL Bootcamp 2021: Go from Zero to Hero (202
 magnet:?xt=urn:btih:5E4F941E28228D74E3968198ADC60AF21A9FC2AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Udemy, Sergei Semenov | Автоматизация API: REST Assured + Java, п�
 ```bash
 magnet:?xt=urn:btih:E06447B1E8AA6F42078C8BF5932AE7607C919459
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ Python стабильно входит в “топ -10 наиболее поп�
 magnet:?xt=urn:btih:F597F90BD01696A495CCAF70B73B485DC3590E10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ Udemy, Dzianis Matveyenka | HTTP. Servlets  (2022) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:B92A57C5BDA29D13751E386DDD384D685E94759A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ Slurm (Слёрм), Linkmeup, Алексей Учакин и др. | Сети д
 magnet:?xt=urn:btih:F7F8CD5719B2856ECC6B96FD8188DA20AC3BC935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ Stepik, Сергей Балакирев | Добрый, добрый Python ОО
 ```bash
 magnet:?xt=urn:btih:D182D900EA51B187CE513E643E9F2CF729912A35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:D182D900EA51B187CE513E643E9F2CF729912A35
 magnet:?xt=urn:btih:F8898F3D441AF0D0A4719AA1ADAF76F75B5CCF30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Udemy, Nikita Putintsev | Создание 3D игр на Unity. Shooter (2022) 
 ```bash
 magnet:?xt=urn:btih:A357141ED55B6BEF8677E62026DC00D1C9F0690C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:A357141ED55B6BEF8677E62026DC00D1C9F0690C
 magnet:?xt=urn:btih:8C04284C6036A83D71C253C62217B82438B86B3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ Svelte - это JavaScript фреймворк, который позволяет
 ```bash
 magnet:?xt=urn:btih:77FB602AEFCBD402E73448C6B177C81790CC3F76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ Udemy, Lucas Bazilio | The Complete Haskell Course: From Zero to Expert! (2023) 
 magnet:?xt=urn:btih:1ACD2A5831C05561C4B78185D578B4F17E2D6B79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ Udemy, Apaar Kamal, Prateek Narang | Dynamic Programming Algorithms Master Cours
 ```bash
 magnet:?xt=urn:btih:5CC729AE367AEE30C8622DD5803E03E53C22E0A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ Learn Python, Михаил Корнеев | Курс программирова�
 magnet:?xt=urn:btih:5BF35A2DA840D51C225138ABEDC1B1BB0D3A1BE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ Udemy, Anton Golosnichenko | Python для начинающих на практ�
 magnet:?xt=urn:btih:3D3438C5AFC8E61521F93078B2E46A63053A79F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ Udemy, Jose Salvatierra | Web Developer Bootcamp with Flask and Python  (2021) P
 ```bash
 magnet:?xt=urn:btih:CC965D6D52C06367607240F9056D219355B13CB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ Udemy, Ziyad Yehia | The Python Bible™ | Everything You Need to Program in Pyt
 magnet:?xt=urn:btih:74854D7A489DA357C6BD191930B21CB57BB520AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ Udemy, Леонид Тишкевич | Java курс c нуля и до перв
 ```bash
 magnet:?xt=urn:btih:1DF6F660936E62C1F4EE4A17FBD43341683A5D22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

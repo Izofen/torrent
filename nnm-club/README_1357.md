@@ -19,6 +19,8 @@ A pet shop after dark скрещивает два жанра. Это гибри�
 magnet:?xt=urn:btih:CC414B1BE4BA7DF6FCB915F15D7679AAFC2B8540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Daff Moon Phase (Фазы Луны) v3.42 Mod by shv7net [Ru/En]
 ```bash
 magnet:?xt=urn:btih:E195E633676203244848105B9AFA466356B5F45A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:E195E633676203244848105B9AFA466356B5F45A
 magnet:?xt=urn:btih:2AA157F3E0979B33D3AA77DDD211363960D1E05C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:2AA157F3E0979B33D3AA77DDD211363960D1E05C
 ```bash
 magnet:?xt=urn:btih:89BF6EA8CA3427C91F05E6D49225F9101B34FDB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Sky Oceans: Wings for Hire переосмысливает классическу
 magnet:?xt=urn:btih:CE140D0F70E7612B6639D451DCD59F411B62CE00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Warhammer 40,000: Inquisitor - Martyr (2018) [Ru/Multi] (2.9.4d/dlc) Repack Let'
 magnet:?xt=urn:btih:34E9C5433E4DD4276607894BD8EF5D6DDB6D665A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Homeworld 3 (2024) [Ru/Multi] (1.3-CL364034/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:651AE0FB2F6E8B008D9095B1B7809FCEEB613E81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Ruslan Sharipov | Изи навыки - (UX) (2024) WEB-DL [RU]
 magnet:?xt=urn:btih:74823D5A92FA8F59E72F6B6D21CF3AB8EB5FE85D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:74823D5A92FA8F59E72F6B6D21CF3AB8EB5FE85D
 ```bash
 magnet:?xt=urn:btih:80C8DEEF4EDC43AB580CF6ADC153F63D0C44A290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Elementary OS — это операционная система, основан
 magnet:?xt=urn:btih:707926186513360C28CCF62D19D3FE572B0E5369
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:707926186513360C28CCF62D19D3FE572B0E5369
 ```bash
 magnet:?xt=urn:btih:3DF7DED63B51435350635EF1A8666D4FAD62409B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:3DF7DED63B51435350635EF1A8666D4FAD62409B
 magnet:?xt=urn:btih:BB69D8DD548F96620190F07E664BF71786D3B66D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:BB69D8DD548F96620190F07E664BF71786D3B66D
 ```bash
 magnet:?xt=urn:btih:772FCE1432724BFFA27F7B03B216649F58184AEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ updated_nov_2024_x64_dvd_ccbcec44.iso.
 magnet:?xt=urn:btih:2C6BC554CB236A8E9232398B8F074592FE1DA68B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:2C6BC554CB236A8E9232398B8F074592FE1DA68B
 magnet:?xt=urn:btih:B5C8D9ABABEB3B56B8796669349E972593FC1BEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:B5C8D9ABABEB3B56B8796669349E972593FC1BEA
 ```bash
 magnet:?xt=urn:btih:BAC40BAA264C3116054B7357347378DDDB52B130
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Office Tab Enterprise новая версия небольшой, но очен�
 magnet:?xt=urn:btih:E8DA489907E1873189A52B86C4AA165781EDFDE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:E8DA489907E1873189A52B86C4AA165781EDFDE7
 ```bash
 magnet:?xt=urn:btih:5F87A8C036C56F3580688854110F26C4137E3A4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ IL-2 Sturmovik: Cliffs of Dover / Ил-2 Штурмовик: Битва за Б�
 magnet:?xt=urn:btih:AB0DA4268B6FB1C0C5A552E4E7840C955CE1262A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:AB0DA4268B6FB1C0C5A552E4E7840C955CE1262A
 ```bash
 magnet:?xt=urn:btih:F9BDB97463F42DBC7F529FA31FD0EE336C015ED1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:F9BDB97463F42DBC7F529FA31FD0EE336C015ED1
 magnet:?xt=urn:btih:110EE89DCAA6A3BD3BEEC21DA496B0297C53084E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ The Talos Principle 2 (2023) [Ru/Multi] (2.2.0 696260/dlc) Repack Let'sРlay [De
 ```bash
 magnet:?xt=urn:btih:CEEA9FED7274E408DCE515A0E4A026C069A84304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:CEEA9FED7274E408DCE515A0E4A026C069A84304
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:CEEA9FED7274E408DCE515A0E4A026C069A84304
 magnet:?xt=urn:btih:B10834204417ABD72EF43CB6C0379023F97A8207
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:B10834204417ABD72EF43CB6C0379023F97A8207
 ```bash
 magnet:?xt=urn:btih:ED9687217AB8C3E761E2B3D73E9ABD7120F12F53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:ED9687217AB8C3E761E2B3D73E9ABD7120F12F53
 ```bash
 magnet:?xt=urn:btih:A19AD04A354FA05FAAFE0606C557EB6969803F9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

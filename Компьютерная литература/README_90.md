@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:E20D684C90DF1C7D53B437145AE9E7DE1C184523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Matt Lombard | Mastering SolidWorks (2019) [PDF] [En]
 magnet:?xt=urn:btih:2B4938604082D62EEB92D72390B124308EA781F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:2B4938604082D62EEB92D72390B124308EA781F0
 ```bash
 magnet:?xt=urn:btih:203B2BE62D5575CBB8493612194B5E9BB5F13C09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:203B2BE62D5575CBB8493612194B5E9BB5F13C09
 magnet:?xt=urn:btih:41F48108F40CD02299579C0272C2A49FF3591CBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:41F48108F40CD02299579C0272C2A49FF3591CBC
 ```bash
 magnet:?xt=urn:btih:52984A66E0932334912BC042D8B473691A0A277C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:52984A66E0932334912BC042D8B473691A0A277C
 magnet:?xt=urn:btih:D3BECC4B4E5720BA256858B82723F5CA30E7AB30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:D3BECC4B4E5720BA256858B82723F5CA30E7AB30
 ```bash
 magnet:?xt=urn:btih:C64EF713E7084405E227CBF31D9DC617FCAF21D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:C64EF713E7084405E227CBF31D9DC617FCAF21D7
 magnet:?xt=urn:btih:9270814436F86EA013D35894737695678FE314C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:9270814436F86EA013D35894737695678FE314C8
 ```bash
 magnet:?xt=urn:btih:FB19BBA6B68BA8224B21D497B0192ED259E6BB7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ GIMP — многоплатформенное программное обесп�
 magnet:?xt=urn:btih:CCF9A648AEFDCD216442C683129018029EDFA4D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:CCF9A648AEFDCD216442C683129018029EDFA4D3
 ```bash
 magnet:?xt=urn:btih:F85A8D404092090CF2CE42A7E21D5CAC97795530
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:F85A8D404092090CF2CE42A7E21D5CAC97795530
 magnet:?xt=urn:btih:8F4688FCE9E9604DBD74EBF73E96C6A74B57D073
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:8F4688FCE9E9604DBD74EBF73E96C6A74B57D073
 ```bash
 magnet:?xt=urn:btih:E68C473C2E1A2AE068B4FB9132B9F2139BAC822C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:E68C473C2E1A2AE068B4FB9132B9F2139BAC822C
 magnet:?xt=urn:btih:96D31EDC810B228657027A1C35DD53952FD917C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:96D31EDC810B228657027A1C35DD53952FD917C5
 ```bash
 magnet:?xt=urn:btih:382EFAC917157A0A72EA85EF38BFC68381C5A7B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:382EFAC917157A0A72EA85EF38BFC68381C5A7B7
 magnet:?xt=urn:btih:FA0DA74C0A9AB8D4BD2CEAD69238F50F1D7F9671
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Ninja Squad | Become A Ninja With Angular / Стать ниндзя с Angular (
 ```bash
 magnet:?xt=urn:btih:43E3D99F179B35B54C32408FC3DCEC0FE667A973
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:43E3D99F179B35B54C32408FC3DCEC0FE667A973
 magnet:?xt=urn:btih:6699397226CDBAB23DA2A0FA32D2966009C5FDEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:6699397226CDBAB23DA2A0FA32D2966009C5FDEF
 ```bash
 magnet:?xt=urn:btih:0BEA345251485EA73FD188B685C9C62E8DBB5504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:0BEA345251485EA73FD188B685C9C62E8DBB5504
 magnet:?xt=urn:btih:9784538F323BA1F7A0808DA8564F3548846AFF7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:9784538F323BA1F7A0808DA8564F3548846AFF7E
 magnet:?xt=urn:btih:C304F6B62DA9C90F4E7ACCF6BE374A95FCA3841A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:C304F6B62DA9C90F4E7ACCF6BE374A95FCA3841A
 ```bash
 magnet:?xt=urn:btih:68E4997E190F2F89717C7FFFF18B700A1C322B14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:68E4997E190F2F89717C7FFFF18B700A1C322B14
 magnet:?xt=urn:btih:D570E1C0363B58424ADEEEB6005E32B999AD0EFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ FreeSWITCH — открытая телефонная платформа, рас�
 ```bash
 magnet:?xt=urn:btih:EAD869FF4A30D93560934CBCD26531DA37194E16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ FreeSWITCH — открытая телефонная платформа, рас�
 magnet:?xt=urn:btih:24472B8B8AFAE2E93CB6A766DE1CC0AF0195355E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:24472B8B8AFAE2E93CB6A766DE1CC0AF0195355E
 ```bash
 magnet:?xt=urn:btih:0E082E491A515FA8CEA79C6A766108F4641F08E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

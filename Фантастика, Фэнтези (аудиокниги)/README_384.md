@@ -1,3 +1,29 @@
+###  Публикация: 1234009   (574423) от 03.07.2018
+
+Елена Звёздная | О тёмных лордах и магии крови (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_574423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот роман продолжает известный цикл «Мертвые игры», погружающий читателей в особую атмосферу магии, приключений, соперничества и интриг в древнейшей Академии некромантии. Подготовка к Королевским Мертвым Играм в самом разгаре. Рие, талантливой девушке-артефактору, предстоит освоить свои новые способности, а еще – разобраться с тем, что происходит в ее сердце. Впрочем, (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 08:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83CEFB3AAE8E2251D9118D3AB732F32D3F85CDE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 527972   (574478) от 27.07.2012
 
 Стивен Кинг | Глаза дракона [2012] [MP3]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:95ADC90730CF577FA75E249407BD0603E9537F28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:95ADC90730CF577FA75E249407BD0603E9537F28
 magnet:?xt=urn:btih:30945EB6975AD88D7029665D17D6CE51CEF98BD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:30945EB6975AD88D7029665D17D6CE51CEF98BD6
 ```bash
 magnet:?xt=urn:btih:EC061AAE9385C1113215EF6C1156A9F06FB99DD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:EC061AAE9385C1113215EF6C1156A9F06FB99DD3
 magnet:?xt=urn:btih:D4F2979C52A43B019B55B72670429C55DA5B267A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:D4F2979C52A43B019B55B72670429C55DA5B267A
 ```bash
 magnet:?xt=urn:btih:D508331A55F5484211CB4115866D24DD1E47F021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:D508331A55F5484211CB4115866D24DD1E47F021
 magnet:?xt=urn:btih:E629D33C70F42A403D571DF53EE7E3424518284B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:E629D33C70F42A403D571DF53EE7E3424518284B
 ```bash
 magnet:?xt=urn:btih:9B16DDDA578AA7F008B8103D0799914CC9CAD8CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:9B16DDDA578AA7F008B8103D0799914CC9CAD8CF
 magnet:?xt=urn:btih:150470B636BD4F2A4A8196823876E5384D8AA316
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:150470B636BD4F2A4A8196823876E5384D8AA316
 magnet:?xt=urn:btih:0EC4D703CE8271DADE13930325B07E8B08D8FA9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:0EC4D703CE8271DADE13930325B07E8B08D8FA9E
 ```bash
 magnet:?xt=urn:btih:CE344BCFDC1EB77173E3425349D471E4302B42E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:CE344BCFDC1EB77173E3425349D471E4302B42E8
 magnet:?xt=urn:btih:E928B40A16D903EA151EEDC691BF71EF146A3F7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:E928B40A16D903EA151EEDC691BF71EF146A3F7E
 ```bash
 magnet:?xt=urn:btih:854B5423C546A541FA0E82725E2AAD625270F341
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:854B5423C546A541FA0E82725E2AAD625270F341
 magnet:?xt=urn:btih:8DC497E2510DD62675A543DB66CD8EBA9CF4E63D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:8DC497E2510DD62675A543DB66CD8EBA9CF4E63D
 ```bash
 magnet:?xt=urn:btih:B3E87DD5410261C4FB30249F111E251326EA564B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:B3E87DD5410261C4FB30249F111E251326EA564B
 ```bash
 magnet:?xt=urn:btih:01D5422BBC22C6D8427097DCD1892EB8D0405EDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:01D5422BBC22C6D8427097DCD1892EB8D0405EDD
 magnet:?xt=urn:btih:DE57C1E0949650B2827DED46533604F71472C779
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:DE57C1E0949650B2827DED46533604F71472C779
 magnet:?xt=urn:btih:B91BF62E1711ADC1D3B28D9A1C6F6D48ABADA80E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:B91BF62E1711ADC1D3B28D9A1C6F6D48ABADA80E
 ```bash
 magnet:?xt=urn:btih:F8BA93BEED657A1BF26CBF2EFC36113B14C4739F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:F8BA93BEED657A1BF26CBF2EFC36113B14C4739F
 magnet:?xt=urn:btih:1B79344BFB786590F9C644821BE64424BB51FEB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:1B79344BFB786590F9C644821BE64424BB51FEB0
 magnet:?xt=urn:btih:A37EDD6EFC03827BDA589FF00F2436EA3B46B143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:A37EDD6EFC03827BDA589FF00F2436EA3B46B143
 ```bash
 magnet:?xt=urn:btih:4531DCD1FC3A7B0C81795383837862A759021490
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +608,8 @@ magnet:?xt=urn:btih:4531DCD1FC3A7B0C81795383837862A759021490
 magnet:?xt=urn:btih:64CCEE1617B62A8AD455C6C3B32D2313EA1D46C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +634,8 @@ magnet:?xt=urn:btih:64CCEE1617B62A8AD455C6C3B32D2313EA1D46C6
 magnet:?xt=urn:btih:750CB4AA3294C7F3FCEFD2AA2F3C102C984E7B63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +659,8 @@ magnet:?xt=urn:btih:750CB4AA3294C7F3FCEFD2AA2F3C102C984E7B63
 ```bash
 magnet:?xt=urn:btih:8B26719ACD41D3315B5D8A4EE9A811F8B488FB0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,29 +687,7 @@ magnet:?xt=urn:btih:8B26719ACD41D3315B5D8A4EE9A811F8B488FB0A
 magnet:?xt=urn:btih:5A3E3B3B429E1516C02ED8567A67AAA0B76506F6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233793   (577938) от 01.07.2018
-
-Андрей Белянин | Сотник и басурманский царь (2018) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_577938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задумал как-то басурманский царь себе гарем обновить. И отправил он своих лучших воинов на Русь. Ну, те сразу-то с задачей не справились и позвали на подмогу злющую ведьму с чертями и разбойников лесных. Кстати, Баба-яга тоже в сторонке не осталась. Вот тут-то всё и завертелось, тут-то всё и началось… Казаки прыгнули на коней – и в погоню за разбойниками! А хитрые (   Читать дальше...   )Жанр: Юмористическое фэнтезиПродолжительность: 06:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF66C939553FD360FBC47B0EE39286DA65EA2D4D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

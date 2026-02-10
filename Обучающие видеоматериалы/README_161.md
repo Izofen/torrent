@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:623359DEA5FDF910C54EB385D6775702C0B99FC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:623359DEA5FDF910C54EB385D6775702C0B99FC5
 magnet:?xt=urn:btih:24F8718B67EF6E499A3248065BE33834F15F7AD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:24F8718B67EF6E499A3248065BE33834F15F7AD3
 ```bash
 magnet:?xt=urn:btih:5ED14A7BE534F66CAEEB8CD952C978439B5C2702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:5ED14A7BE534F66CAEEB8CD952C978439B5C2702
 magnet:?xt=urn:btih:E2975C363F7BEC13E0F0A88BEAC0573C112B2D6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:E2975C363F7BEC13E0F0A88BEAC0573C112B2D6C
 magnet:?xt=urn:btih:F27B3DC9A22243267F3EE14664527E60E8EA4576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:F27B3DC9A22243267F3EE14664527E60E8EA4576
 magnet:?xt=urn:btih:2E80F294A46C553A981D967C5D937DE2B7C17360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Eltray.com | Зануление и заземление [2011] PCRec
 magnet:?xt=urn:btih:67EB48F4E6F00E8E9E7346DF60228DA726657B07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:67EB48F4E6F00E8E9E7346DF60228DA726657B07
 ```bash
 magnet:?xt=urn:btih:0A2A218582ABF2292C115F85426F18CCBCD66B9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ Academind Pro | Vue 3 - Полное руководство (включая Rout
 magnet:?xt=urn:btih:9275204C64EE79187363275298FF2F6101C283AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:9275204C64EE79187363275298FF2F6101C283AD
 magnet:?xt=urn:btih:7ECA111D89AFF0C37B52D027942F11719794D62D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ Tim Bergholz | Mech Tutorial Complete Edition (2017) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:2270714D18AFFAA668E4EF2A950DA3DA7706270D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Angular является одним из самых популярных фре�
 ```bash
 magnet:?xt=urn:btih:018241364D36ED3A84D11AD0EA94FFFD24C16793
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:018241364D36ED3A84D11AD0EA94FFFD24C16793
 magnet:?xt=urn:btih:5D8F08657123B7BDAB86760BE5681913AE186D99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ magnet:?xt=urn:btih:5D8F08657123B7BDAB86760BE5681913AE186D99
 magnet:?xt=urn:btih:0C51305299645A47CA05A23267B61758047CBCAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ Joshua Kinney | Automotive Modeling in 3ds Max (2014) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:99D14A7963CF33C4C7B2B86A43F25EDE4A55F46A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ Emiel Sleegers | Mechanical Assets in 3ds Max Volume 1 (2016) PCRec [En, Ru]
 magnet:?xt=urn:btih:B09CD321585D5F37480568E10B056D2C5ECA4FDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ Megan Davies | Clean Week (2017) HDTVRip [H.264/720p-LQ] [EN]
 ```bash
 magnet:?xt=urn:btih:B676EE162EB86991A032AE7756E9F1A6043EE563
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ Emiel Sleegers | Mechanical Assets in 3ds Max Volume 2 (2016) PCRec [En, Ru]
 magnet:?xt=urn:btih:E4457619D642694188C6AD8A78895ABBA27F08A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ Emiel Sleegers | Mechanical Assets in 3ds Max Volume 3 (2016) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:5191F423B7E764FE372F70F7D83ABBCEA272AC99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ Joshua Kinney | Map Baking Techniques for Games in 3ds Max (2014) PCRec
 magnet:?xt=urn:btih:932CE8AECEE5C80A8F01C224629BC9E4DF22AC12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ Mzed | Alex Buono's Visual Storytelling 2 (2015) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:2ED010CF187CE10A4B61BA1BD5718D9384CB26D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ Skillshare, 3D Tudor | Unreal Engine 5 Beginners Guide to Building an Environmen
 magnet:?xt=urn:btih:95FA8C20EF23931B46F6D12031A9D3A7F1AADE82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ Hristo Velev | Thinking Particles. Часть 2 - Промежуточные к�
 ```bash
 magnet:?xt=urn:btih:C809732981900FE2C3B7C27D96EEDCF97F0CF728
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:C809732981900FE2C3B7C27D96EEDCF97F0CF728
 magnet:?xt=urn:btih:AEB8EA1CCA37B80049C3B53063978A4F3B8C10D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:AEB8EA1CCA37B80049C3B53063978A4F3B8C10D5
 ```bash
 magnet:?xt=urn:btih:E932B8DB1F92F78E221D77765DFFD1DD81394778
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +700,8 @@ daytradingschool.ru | Учим Создавать торговых робото�
 ```bash
 magnet:?xt=urn:btih:1DF8DE2F7E1C49B3925C2E07B06300A7BCFDBC44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

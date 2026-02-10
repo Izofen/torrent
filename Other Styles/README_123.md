@@ -22,6 +22,8 @@ Stive Morgan - Eclipse Of The Moon (2017) [MP3|320 Kbps] <Ambient, Chillout, New
 magnet:?xt=urn:btih:E6F2C804604A90C3191EC0A275FED4D79003CCC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Yanni - The Dream Concert Live from the Great Pyramids of Egypt (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:D25D2BD15EE53E5FBC8336526B9F2B839C4C4F54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Kelsea Ballerini - The First Time (2015) [FLAC|Lossless|image + .cue] <Country, 
 magnet:?xt=urn:btih:6DED4C5B676388E55E2411553DC11DD1654B8F2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:6DED4C5B676388E55E2411553DC11DD1654B8F2E
 ```bash
 magnet:?xt=urn:btih:7F388CD9E83F459C6DF3B571269664DA474CBBBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Ashley Monroe - The Blade (2015) [FLAC|Lossless|tracks + .cue] <Country, Folk>
 magnet:?xt=urn:btih:E27C5C25A3DBBB7990CB4D73CB2228AF8A27A7EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - 50 New Age Deep Meditation Tracks (2017) [MP3|320 Kbps] <New Age, Downtempo
 ```bash
 magnet:?xt=urn:btih:47A9165245911C081C82BD71C552B21D6E4E59CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Julian Bream - Guitar for Relaxation (2007) [FLAC|Lossless|tracks] <Instrumental
 magnet:?xt=urn:btih:91A15ECC45CB43DFE7F089DBC6758D4737E0740E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Piano Peace - Piano & Ocean (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, 
 ```bash
 magnet:?xt=urn:btih:A77E2E0E28B4694E7AA390A20E39C81DF04507D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +259,8 @@ Ari Pulkkinen - Trine (2009) [FLAC|Lossless]<OST>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +287,8 @@ Antoinette Ventura & The London Starlight Orchestra - Unforgettable (1992) [FLAC
 ```bash
 magnet:?xt=urn:btih:6E5D09B3176D9BA736FCA3808260B85DA3F5A476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +317,8 @@ CD 1
 magnet:?xt=urn:btih:CBB681101B5EFC53B7DFC1FCA7AA8264BFF50438
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +345,8 @@ VA - Enigmatic (2006) [MP3|320 Kbps] <New Age, Enigmatic>
 ```bash
 magnet:?xt=urn:btih:C15F473D83042382FF9D720EC34E80FB2776332D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +375,8 @@ VA - Los clasicos argentinos - Tango - Vol.16 - Osvaldo Fresedo: El aristocrata 
 magnet:?xt=urn:btih:FD5963C9D6C55C03ECA24DA73C14222506F0C34C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +403,8 @@ Lalo Schifrin - Magnum Force: The Original Score (1973) Remaster, 2005, Aleph Re
 ```bash
 magnet:?xt=urn:btih:6DBF24093C8ECC166267A2344BF5E727E12BA571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +433,8 @@ Sleepthief - Mortal Longing (2018) [FLAC|Lossless|tracks + .cue] <New Age, Downt
 magnet:?xt=urn:btih:AD25CBCD7517C8966114E35B8F25F8DF010B8ECA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +461,8 @@ VA - Los clasicos argentinos - Tango - Vol.15 - Hugo Del Carril: El cantor del p
 ```bash
 magnet:?xt=urn:btih:C85859FE943FAC20E810CE5352AA43ABE6302E9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +491,8 @@ Emily Rowe - Daydream (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Viol
 magnet:?xt=urn:btih:B1A80EA0E3365F003C69CAB6C98F94F5B5E79E58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +519,8 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol  9 (1994) [MP3
 ```bash
 magnet:?xt=urn:btih:55CE33304A986829D2EE8BEF9C946ECD7896624A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +549,8 @@ Big City Indians - Tuwa (2012) [MP3|320 Kbps] <Native american, New Age, World>
 magnet:?xt=urn:btih:0EE045129D966191EC8248F8908B6A58C46AC3DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +577,8 @@ Atom Music Audio - Nemesis (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic
 ```bash
 magnet:?xt=urn:btih:CD3B383F023A036C704DCCEF145AC2FDE39E47EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +607,8 @@ VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol  6 (1990) [MP3
 magnet:?xt=urn:btih:1F4D8426B7E070F35220178B64DC2BC192D23CEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +635,8 @@ Richard Osborn - Endless (2017) [FLAC|Lossless|tracks + .cue] <Acoustic, Folk, W
 ```bash
 magnet:?xt=urn:btih:37FAC1E711428E12C7E745252C9CA65168A6CCE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +665,8 @@ Justin Hurwitz - First Man (2018) Original Motion Picture Soundtrack [FLAC|Lossl
 magnet:?xt=urn:btih:8BA6DB8B431A93668F59587663A63D3C2DCB81A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +693,8 @@ VA - Не грози Южному Централу, попивая сок у с�
 ```bash
 magnet:?xt=urn:btih:5269F424AB3102D1CC116336A735EA2852B46330
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -675,6 +723,8 @@ VA - India Experience (Vol. 1) (2015) [MP3|320 Kbps] <Downtempo, Lounge, New Age
 magnet:?xt=urn:btih:EC4BC0CF84AA8FCF50A03AE073C3C4AC4772B875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -701,6 +751,8 @@ DeVotchKa ‎ - This Night Falls Forever (2018) [FLAC|Lossless|tracks + .cue] <F
 ```bash
 magnet:?xt=urn:btih:0F96A47E36880F951A7002E0116062B0941EE433
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

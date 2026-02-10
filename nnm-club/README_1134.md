@@ -22,6 +22,8 @@ CyberYozh, VektorT13, Qanon, Mik1st, Михаил Васильев | Взлом 
 magnet:?xt=urn:btih:D7F78EEA1D06CAAC0E9474E1155CF516B9B06FD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Nienix: Cosmic Warfare (2023) [Ru/Multi] (1.099) License GOG
 ```bash
 magnet:?xt=urn:btih:E8912B218298A6532EC5354301147477EF0D2F4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:E8912B218298A6532EC5354301147477EF0D2F4E
 magnet:?xt=urn:btih:F8687AB9B34A9CDF4D4C1EDDCD11C73BD2E0721D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Google оспорил в суде российский штраф в два ун
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Google оспорил в суде российский штраф в два ун
 ```bash
 magnet:?xt=urn:btih:EDED1C7D22DEC5A831C3021640675AFDE561B89E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Noreya: The Gold Project - 2D-метроидвания в стиле пиксе�
 magnet:?xt=urn:btih:0B2A798B79857BDBB20C7B3AEA72525E6544F684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:0B2A798B79857BDBB20C7B3AEA72525E6544F684
 ```bash
 magnet:?xt=urn:btih:50C28396CFFA082578996B9D72EB45A7484EE422
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ XIX век, Ирландия. Зима обещает быть голодной,
 magnet:?xt=urn:btih:12C2FD5EE5D6774F9EB194F64621250370F7DEEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:12C2FD5EE5D6774F9EB194F64621250370F7DEEF
 ```bash
 magnet:?xt=urn:btih:B2AABFB1A9EE518E9DECE539F113FE0956150ACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ BBC. Большой Барьерный риф с Дэвидом Аттенбор
 magnet:?xt=urn:btih:007FB67330726A42372B0CFEB5D034854A410747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:007FB67330726A42372B0CFEB5D034854A410747
 ```bash
 magnet:?xt=urn:btih:06AE2686C77FAEFEC838254A36F1B71186FD3850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:06AE2686C77FAEFEC838254A36F1B71186FD3850
 magnet:?xt=urn:btih:9BC8C11DC14F7248453E64A08DFCBF23C327FEEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:9BC8C11DC14F7248453E64A08DFCBF23C327FEEA
 ```bash
 magnet:?xt=urn:btih:D1264150B28F8DF59F5898F61AE64836328EF1E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:D1264150B28F8DF59F5898F61AE64836328EF1E7
 magnet:?xt=urn:btih:10F0998C8E9C937535A9C881B8AD5DE4B6993964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Vampire Survivors (2023) [Switch] [USA] 18.1.0 [NSP] [License / 1.12.108 / DLC] 
 ```bash
 magnet:?xt=urn:btih:36235C674B36034F72BFFD08D43499622A919D2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:36235C674B36034F72BFFD08D43499622A919D2B
 magnet:?xt=urn:btih:81DFA8C2804B275D4B96CF8D39B2C2E1D990186F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:81DFA8C2804B275D4B96CF8D39B2C2E1D990186F
 magnet:?xt=urn:btih:AACF3B7BC9D06F31663FC47F5659C078D22E9BEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:AACF3B7BC9D06F31663FC47F5659C078D22E9BEE
 ```bash
 magnet:?xt=urn:btih:C0ACF1EB9D85D538F4F953FF892476132AA31863
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:C0ACF1EB9D85D538F4F953FF892476132AA31863
 magnet:?xt=urn:btih:1FDC7C9A97EC73E9580BE8922F1EC6BE725FC142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:1FDC7C9A97EC73E9580BE8922F1EC6BE725FC142
 ```bash
 magnet:?xt=urn:btih:7D416D192AE359473D287B1F8843BF4D26C676E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ VA - Winter Car Music Hits 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Elect
 magnet:?xt=urn:btih:2B13AA4808777986C993CC51A1C182B753B314E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ VA - Dance Classics Gold (1991) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Funk,
 ```bash
 magnet:?xt=urn:btih:71039DF65AF85EB8F578381A27D2FAE71BE14BC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +608,8 @@ VA - Winter Car Music Hits 2025 (SSL Music) [FLAC|Lossless|WEB-DL|tracks] <House
 magnet:?xt=urn:btih:381752A302FDFFDF766C33980C95F125A7E597D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ VA - Italo Dance Classics Volume 3 (1990) [AAC|320 Kbps] <Electronic, Pop, Italo
 magnet:?xt=urn:btih:1B61308A333060B19938652AC93FFAAF4AECF537
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:1B61308A333060B19938652AC93FFAAF4AECF537
 ```bash
 magnet:?xt=urn:btih:34BB9EB007A1FB0E8DD822375522F55D7CDB8569
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +691,8 @@ VA - Dance Classics Gold (1991) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Disco
 ```bash
 magnet:?xt=urn:btih:5547D1426BAC27CFEF3FEDCB5DDCBC88DA1E0ED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

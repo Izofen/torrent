@@ -1,3 +1,30 @@
+###  Публикация: 1155062   (535188) от 02.08.2017
+
+Валерий Апанасик | 20 великих бизнесменов. Люди, опередившие свое время (2012) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535188.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой подарочной книге представлены портреты 20 человек, совершивших революции в современном бизнесе и вошедших в историю благодаря своим феноменальным успехам.
+Истории Стива Джобса, Уоррена Баффетта, Джека Уэлча, Говарда Шульца, Марка Цукерберга, Руперта Мердока и других предпринимателей - это примеры того, что значит быть успешным современным бизнесменом, как (   Читать дальше...   )Жанр: О бизнесе популярно, Биографии и мемуарыФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A64A8562274ABE88D704D591F926DD9A8FC3CFFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155322   (535198) от 02.08.2017
 
 Александр Проханов и др. | Сирийский армагеддон. ИГИЛ, нефть, Россия. Битва за Восток (2016) [FB2, EPUB]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:9D45ACCE3CA740DF1FBC6965B4CB4F51C3B55D3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:9D45ACCE3CA740DF1FBC6965B4CB4F51C3B55D3C
 magnet:?xt=urn:btih:0DE2661EC9541CE56FCCED646D56DC17834E6B34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:0DE2661EC9541CE56FCCED646D56DC17834E6B34
 ```bash
 magnet:?xt=urn:btih:E5011276C18C1F506A716D6E06B11654439C3756
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +128,8 @@ magnet:?xt=urn:btih:E5011276C18C1F506A716D6E06B11654439C3756
 magnet:?xt=urn:btih:2F3C326352C2A0964C0D80AD125865A11501F9A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:2F3C326352C2A0964C0D80AD125865A11501F9A7
 ```bash
 magnet:?xt=urn:btih:72D520436F8C89BF6C7384D2D171A8CA2D252E0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +182,8 @@ magnet:?xt=urn:btih:72D520436F8C89BF6C7384D2D171A8CA2D252E0E
 magnet:?xt=urn:btih:57C765A18369B5504177BB01D698E30F4B394F7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +207,8 @@ magnet:?xt=urn:btih:57C765A18369B5504177BB01D698E30F4B394F7E
 ```bash
 magnet:?xt=urn:btih:8342B0F16E1627EA3D5C60A0ECA04B8C386ABC8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +234,8 @@ magnet:?xt=urn:btih:8342B0F16E1627EA3D5C60A0ECA04B8C386ABC8E
 magnet:?xt=urn:btih:0785A656C91DA970C4967D09653736CB4D37FA34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +259,8 @@ magnet:?xt=urn:btih:0785A656C91DA970C4967D09653736CB4D37FA34
 ```bash
 magnet:?xt=urn:btih:255362764EB623758AF931F7CC58B65423513ECB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +286,8 @@ magnet:?xt=urn:btih:255362764EB623758AF931F7CC58B65423513ECB
 ```bash
 magnet:?xt=urn:btih:50A883D74976133F4EE38F523CB31B0C7E5D026F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +315,8 @@ magnet:?xt=urn:btih:50A883D74976133F4EE38F523CB31B0C7E5D026F
 magnet:?xt=urn:btih:E980F7D4D116548F047324905773A7EC65EBDF9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +341,8 @@ magnet:?xt=urn:btih:E980F7D4D116548F047324905773A7EC65EBDF9F
 magnet:?xt=urn:btih:4D73DC384CED5B2B04A32AA77E50A650787803B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +366,8 @@ magnet:?xt=urn:btih:4D73DC384CED5B2B04A32AA77E50A650787803B4
 ```bash
 magnet:?xt=urn:btih:E2D80ED14DF63FA47C22BFFEADAF36BD8EC7EEA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +395,8 @@ magnet:?xt=urn:btih:E2D80ED14DF63FA47C22BFFEADAF36BD8EC7EEA4
 magnet:?xt=urn:btih:1F6C67DD92F83F0EF5026A74773A2A5B999AAE13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +420,8 @@ magnet:?xt=urn:btih:1F6C67DD92F83F0EF5026A74773A2A5B999AAE13
 ```bash
 magnet:?xt=urn:btih:A7FEE030BF8D4E6A85099665B6B6FBCDD0859699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +447,8 @@ magnet:?xt=urn:btih:A7FEE030BF8D4E6A85099665B6B6FBCDD0859699
 magnet:?xt=urn:btih:863BE83C4C506A29B4E0F26774A110689AA95AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +472,8 @@ magnet:?xt=urn:btih:863BE83C4C506A29B4E0F26774A110689AA95AB8
 ```bash
 magnet:?xt=urn:btih:132BBC7E421C89D25F3E448366D71525ABB1713C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +501,8 @@ magnet:?xt=urn:btih:132BBC7E421C89D25F3E448366D71525ABB1713C
 magnet:?xt=urn:btih:4B8E06499671549BA4B6CBD9A267C7E4A37C2C71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +526,8 @@ Harvard Business Review – главный деловой журнал в мир
 ```bash
 magnet:?xt=urn:btih:56CAFD3956E2BBC285A9C3827BF28C6E20DF5BFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +555,8 @@ magnet:?xt=urn:btih:56CAFD3956E2BBC285A9C3827BF28C6E20DF5BFB
 magnet:?xt=urn:btih:A98AD3B5205FD5BA78EB40899A5D5679E5545929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +580,8 @@ magnet:?xt=urn:btih:A98AD3B5205FD5BA78EB40899A5D5679E5545929
 ```bash
 magnet:?xt=urn:btih:B0E3A44B64A143CA9244C7BA1E5FA8F9F8E85411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +607,8 @@ magnet:?xt=urn:btih:B0E3A44B64A143CA9244C7BA1E5FA8F9F8E85411
 magnet:?xt=urn:btih:C413E77029D651297254D5D65C2EF4A0C7C54F6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +633,8 @@ magnet:?xt=urn:btih:C413E77029D651297254D5D65C2EF4A0C7C54F6F
 magnet:?xt=urn:btih:26EE4483A94F98F93309A6101089B1E49518F7EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +658,8 @@ magnet:?xt=urn:btih:26EE4483A94F98F93309A6101089B1E49518F7EE
 ```bash
 magnet:?xt=urn:btih:949D07052C5D7D20C3085C9CC205912282BC0372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,29 +688,7 @@ magnet:?xt=urn:btih:949D07052C5D7D20C3085C9CC205912282BC0372
 magnet:?xt=urn:btih:E880FCA32D1F76BADF254FB75D621FBD77D41764
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154551   (537144) от 01.08.2017
-
-Г. А. Гурев | Дарвинизм и религия. Из истории идеологической борьбы в биологии (1957) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_537144.jpg" />
-</div>
-
-
-###  Подробнее
-
-При всей важности для истории естествознания выступлений ранних натуралистов-эволюционистов только Чарлзу Роберту Дарвину (1809—1882) привелось дать вполне убедительные, неопровержимые доказательства существования органической эволюции, т.е. непостоянства, «текучести» видов и их преемственности, родственной связи, и создать строго научное учение об историческом развитии (   Читать дальше...   )Жанр: Политология, биология, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B9EF310944C66DD9F9CE03484C152E4FC135B85
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

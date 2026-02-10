@@ -24,6 +24,8 @@ Intellect | Техника быстрого чтения [2007] DVDRip
 magnet:?xt=urn:btih:B0F687CA6E9C0585CEA3BBE66B48EB6DD5E1A871
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ magnet:?xt=urn:btih:B0F687CA6E9C0585CEA3BBE66B48EB6DD5E1A871
 ```bash
 magnet:?xt=urn:btih:741A524E89E075843A2B455DEC358BF72C141779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -78,6 +82,8 @@ Skillmed | Конференция "Анатомия медицинского м�
 magnet:?xt=urn:btih:1B0B8DED51789B72D01EA1EF6840CCA6537F0A3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ OTUS | C++ для начинающих программистов (2020) PCRec [
 magnet:?xt=urn:btih:93468E78584707EC089BDC8E369D1D02A376D4E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ Udemy | Blender 2.8 Полное руководство от новичка до
 ```bash
 magnet:?xt=urn:btih:E26E60926AF77283A6C84AAE3654830D4230F8E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Udemy, Stephen Ulibarri | Unreal Engine C++ The Ultimate Shooter Course (2021) P
 magnet:?xt=urn:btih:BC33C076A36A35DE30E76D15476B39C5778E90D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ TheNewBoston | Адоб Иллюстратор CS6 для начинающих /
 ```bash
 magnet:?xt=urn:btih:8C1E13D64B6AA9CC63E8EEBD77BAFA64FD08DEE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ Udemy, Tim Lash | Unreal Engine 4: Create Your Own First-Person Shooter (2021) P
 magnet:?xt=urn:btih:8F2EFF84977FFB828B285648FDBD97059CCD714A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:8F2EFF84977FFB828B285648FDBD97059CCD714A
 ```bash
 magnet:?xt=urn:btih:F48F0970CBD646C1593A6983EF97871234E71E77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ Udemy, Stephen Grider | Advanced React and Redux  (2021) WEB-DL [En / En Sub]
 magnet:?xt=urn:btih:3E8DC533220DAFAB18CB740D4BD2A56284B0E103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ Udemy, Filip Jerga | Next JS & Typescript with Shopify Integration - Full Guide 
 ```bash
 magnet:?xt=urn:btih:8C38BA02598607BDD33CE91FC62D4E9C8BA32632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:8C38BA02598607BDD33CE91FC62D4E9C8BA32632
 magnet:?xt=urn:btih:0AC61F0A84206629A63743B5855E5AD6542C0D09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ magnet:?xt=urn:btih:0AC61F0A84206629A63743B5855E5AD6542C0D09
 magnet:?xt=urn:btih:0EE9814EF11A313745A4193796AD8FD24C7C5F62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:0EE9814EF11A313745A4193796AD8FD24C7C5F62
 ```bash
 magnet:?xt=urn:btih:C13ACE50D52AFF5E909254A8C69D9AED37F77B88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ Udemy | Практический JavaScript (Продвинутый уровен
 magnet:?xt=urn:btih:48A18EE8B082E6F7DB9285A64CB412308C3934C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ OTUS | Инфраструктурная платформа на основе Kub
 magnet:?xt=urn:btih:34DAB4AC51B97EED864B506BED4341E551830FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ OTUS | Облачные сервисы (2020) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:566BF5B6E7577F85C7F8D5FA04BAF04A4A8A2CF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ Udemy, GameDev.tv Team м др.| C++ Fundamentals: Game Programming For Beginner
 magnet:?xt=urn:btih:F05A0ADE9087FE475C483406A9C05D364730BC23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ Specialist, Эпов Дмитрий Андреевич | Autodesk 3ds Max 2013 /
 ```bash
 magnet:?xt=urn:btih:74DDD44740E0165F5ECA84705764CE4B85AB0307
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ Udemy, Coding Revolution | React practice course, learn by practicing ( 2021 edi
 magnet:?xt=urn:btih:D64678DFAFB6021BCD7A3FADC9BE6DB6C4F5D6AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ Gumroad, Lu Dongjun | Snow Rock (2015) PCRec
 magnet:?xt=urn:btih:2F0B98B1714F483A459444D6BA4B7DCB32DD5C62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ Gumroad, Lu Dongjun | Lava Stone (2015) PCRec
 ```bash
 magnet:?xt=urn:btih:75110D4913BF00DA04C180CDFCAE7F24BDE5DEB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ Convert Monster | Быстрые результаты в SEO + Бесконеч�
 magnet:?xt=urn:btih:740A5677B34C2AB55079826BA1103230C0E4666E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ UNIX (Linux/FreeBSD) Level 3. Creating a high availability (clustering) solution
 ```bash
 magnet:?xt=urn:btih:981E3E52CD958731A10FF81356B1B5F549775A2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:981E3E52CD958731A10FF81356B1B5F549775A2D
 magnet:?xt=urn:btih:E33C8F1CB7FC370F6685C29984686576AA10E893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ magnet:?xt=urn:btih:E33C8F1CB7FC370F6685C29984686576AA10E893
 ```bash
 magnet:?xt=urn:btih:90A52AA291A81252335375DF7E8C40191122486E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

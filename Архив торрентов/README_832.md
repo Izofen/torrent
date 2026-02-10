@@ -19,6 +19,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 magnet:?xt=urn:btih:97A344775F9CB2FB827D234D960E282C740FBBEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Glary Utilities - комплексный набор инструментов д�
 ```bash
 magnet:?xt=urn:btih:84A1190539D9D31F8973733979E785E376C4A95A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:24FD04E4D24616162960DC51BBA115FACA3D43E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:D0419120F1FCDCEB9712657FE95106C5FD2AEEA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ XYplorer - продвинутый файловый менеджер, котор�
 magnet:?xt=urn:btih:0A521ACB551079EB3E0B67FD658D969481210820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:4CD081E9601F4F75240122EA45E17F8EE68C3479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ PDF Shaper Premium / Ultimate 14.4 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:5F268B8A7D48DCD5D72728B72BB7BCD34157897D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:2B30460EB5D54969D9A7E309D91E8BE470E726F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Extreme Picture Finder - средство для автоматического 
 magnet:?xt=urn:btih:8E7A5EA39CCA47B59BBA3E8F4002CC82A12E7DFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Extreme Picture Finder 3.66.8.0 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:856CEA154CC48F480AD72E11A49D850CF860EB5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:BF01D527A676051699EE23C91444B4569351195F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:4DA63FA4F273100D42BE5A7865175C3A4A23D5DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ PDF Shaper Premium / Ultimate 14.4 RePack (& Portable) by Dodakaedr [Ru/En]
 magnet:?xt=urn:btih:494C5617E81FE178FE273A121EBD747B652D03AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Vivaldi 6.8.3381.57 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A37EA1B7977F88C023A9318753FB87BA516F968B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ WinTools.net – набор инструментов для оптимизаци
 magnet:?xt=urn:btih:7CA16C00E311D227214578BB5F54561814F42256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:739A92DA5C816C37560A9543068BAB415657B7DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ WinTools.net – набор инструментов для оптимизаци
 magnet:?xt=urn:btih:3844ED4844B049D8DFC541B2B999CDD3FA35C6DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Double Commander - это свободный, с открытым исходны
 magnet:?xt=urn:btih:EC5401D3A2134A417398DE52773900CF21C300EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ R-Studio - основанная на новейшей уникальной те
 ```bash
 magnet:?xt=urn:btih:5ADC3E4DB2791BC5B4A2BA1D8E39E2481F77184D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ CareUEyes служит для изменения цветовой темпера
 magnet:?xt=urn:btih:84894B1EC4BF82DCA150E449A6D9BE970D537151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ PrivaZer - полезная утилита, которая поможет вам
 magnet:?xt=urn:btih:BFCCDE664046B1B36A11F8F7D2A2F5874DD1A542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Ashampoo UnInstaller 15 — это мощная программа для уда
 ```bash
 magnet:?xt=urn:btih:0D5B77FF19D25284C07AABFB2305DF476FE5A584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Balabolka 2.15.0.878 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:260909533B0B591ECC9FD8BD2A33ADE2FE820ECA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ AR Plan 3D – инновационное приложение, использу
 ```bash
 magnet:?xt=urn:btih:52383FFDAAEC2654F17791530D7528054677DB00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ R-Studio Network 9.4 Build 191349 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:A4341173B1B0F53AB13AE19F944EFC24BDE61BE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:E8607259F86868E4A48EF36D7394AB98DD34A924
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

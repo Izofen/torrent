@@ -19,6 +19,8 @@ Skype - бесплатная программа для текстового, г�
 magnet:?xt=urn:btih:09C2589CCE0A87DEAE9265A74A6A16E3650C0333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PreSonus Studio One 6 Professional 6.1.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:EA4CF749BB80E75F14DFA6E0543BE77264CEB87C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Aura (Аура леса) 2.8.10k.216 RePack (& Portable) by elchupacabra + MP3 �
 magnet:?xt=urn:btih:455CFFEA9C465158886B6ABB2B3E5E3AB2998200
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Default Folder X - Расширяет функциональные возмож�
 ```bash
 magnet:?xt=urn:btih:A4C4C6C5FBEB1B423775BAD312BDAC811B60C977
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Mozilla Thunderbird –  легкая и безопасная бесплатна
 magnet:?xt=urn:btih:3A4319381BD0D23C5FD8EE0113BB6B02422B63EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ DxO PhotoLab Elite 5.5.0 build 4770 RePack by KpoJIuK [Multi]
 ```bash
 magnet:?xt=urn:btih:23A47D251827B777E1DCE2B0CFEE39EC5BCDC9A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:23A47D251827B777E1DCE2B0CFEE39EC5BCDC9A0
 magnet:?xt=urn:btih:7C8956B815158DA1573ED8449AADC51A55AB3A7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:0DE1AC222468B4023FA673847F9661FACB63B087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ GoodNotes 5 v5.6.52 [Multi/Ru]
 magnet:?xt=urn:btih:AAE948C9CB83216A238A507D75E60188025AC5E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:AAE948C9CB83216A238A507D75E60188025AC5E0
 magnet:?xt=urn:btih:BFFEB5805A4FC34E460F1DF42FA94E8600B15BAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:FA3E78AC115439BF7DF2F4D38E420CF1A83F4936
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Dato поддерживает все языковые стандарты и яз
 magnet:?xt=urn:btih:9E2D75EEE8A9990CBC9BA846F3DFF2E451DC4C17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:B3AFF77345996E901E37B9771395804DE833D9AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ XnView MP - мощное многофункциональное приложен
 magnet:?xt=urn:btih:E2FA08EDCDDC1D5611E4F88F69E62B650311E5BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ GarageSale 8 v8.3.6 [Multi]
 ```bash
 magnet:?xt=urn:btih:7B2E9A074CDD0119D2E80875F667F6A9EC92A3BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Skype - бесплатная программа для текстового, г�
 magnet:?xt=urn:btih:1418F74A71BA1F7C50CABDC24D294ABCB8C3F579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:3D03AAACD4957887D18BEFBE95341377388978B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ VideoSolo Video Converter Ultimate позволяет конвертироват
 magnet:?xt=urn:btih:131AA029B15B53BB9D7437095F35A00630169092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:131AA029B15B53BB9D7437095F35A00630169092
 magnet:?xt=urn:btih:B0FA9502C4CD622A6306D505EB50F8E1B9899C17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:4FAAAC498505F13835F13FA26B23F29688ADD31D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ EtreCheckPro 6.4.3 U2B [En]
 magnet:?xt=urn:btih:5AB77E3D204792486994EAE91A2B1DF3A61826B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ FastCopy - инструмент для быстрого копирования/�
 ```bash
 magnet:?xt=urn:btih:3FEA29488DCF2E85C3BE158B8F8B6F4105B116A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:24685961654454C556A40B35CCBA809C2A857228
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Smultron - простой и удобный редактор. Smultron - про�
 ```bash
 magnet:?xt=urn:btih:0280A7CF5616C59A8202BCEA39A61C5D1B63B154
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ DxO FilmPack – очередной редактор фотографий с к�
 magnet:?xt=urn:btih:D631753E78AA960444BFD43D17FA69C62A5D8439
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Viber, вне зависимости от того каким устройств
 ```bash
 magnet:?xt=urn:btih:909F6B038BDA58461B766A70A477F9A98AAA7B24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Darker Than Black: Ryusei no Gemini / Темнее черного: Близне�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Wakaokami wa Shougakusei! | Хозяйка гостиницы из младше�
 ```bash
 magnet:?xt=urn:btih:F041A15663886507ED55DE875D8EF9246E41F3FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Shuumatsu Nani Shitemasuka? Isogashii Desuka? Sukutte Moratte Ii Desuka? | Sukas
 magnet:?xt=urn:btih:DB1C1411D622A9B7B35D07146423C111ECED7159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Galilei Donna - Storia di tre sorelle a caccia di un mistero | Галилей Д
 ```bash
 magnet:?xt=urn:btih:829D8910E5631C8833285176B27B6046FC0F2E7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ UC 0096. Правительство Земной Федерации, вновь 
 magnet:?xt=urn:btih:38FF910FCAB72E3069E2EA4AED1732B6E0AF3AC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ To Love-Ru: Trouble - Darkness OVA | To Love-Ru Trouble Darkness / Любовн�
 magnet:?xt=urn:btih:D81EA685076024426D4FC8012D2D891885418023
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Bokutachi wa Benkyou ga Dekinai | We Never Learn | Мы не можем учит
 ```bash
 magnet:?xt=urn:btih:1BDEAF424CD32BEEB5559227118E41C287DA65F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Glass Mask TV 2005 / Стеклянная маска [ТВ-2] [2005, TV, 51] SDT
 magnet:?xt=urn:btih:550E46413D9AC18506089CF3626D1B39E69E3A7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Koi to Uso | Love and Lies | Любовь и ложь [2017, TV, 12 из 12] BDR
 ```bash
 magnet:?xt=urn:btih:BE19977E3E8C928738BF16862B9E5F7951EB8C90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Shin Kidou Senki Gundam Wing | Mobile Suit Gundam Wing | Мобильный во
 magnet:?xt=urn:btih:979456EBAF62B5596E86CBF3A08CF1D4AA59293B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Devil's Line | Линия дьявола [2018, TV, 12 + 1 ОВА] WEBRip 720p r
 ```bash
 magnet:?xt=urn:btih:57B7ED49D422A3FE79B58BBC21400A68A18958EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Underbar Summer | Лето [2006, OVA, 2 эп. + 2 SP] DVDrip 720 10bit raw
 magnet:?xt=urn:btih:6AE258E5AB081A043F180AE2101E3FB2E41F9E22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Koukaku Kidoutai Stand Alone Complex: Solid State Society / Ghost in the Shell: 
 ```bash
 magnet:?xt=urn:btih:09C5CF21E85ED2ED32401E967C41D8DCDB7469A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ GTO / Great Teacher Onizuka / Крутой учитель Онидзука [1999
 magnet:?xt=urn:btih:7C62FFBCBD30E204E34C662273ED685ABE1D308F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:7C62FFBCBD30E204E34C662273ED685ABE1D308F
 ```bash
 magnet:?xt=urn:btih:373F4264DAA9C1A35CE705EAE64B308CA670CE18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ UQ Holder! Mahou Sensei Negima! 2 | Хранитель вечности! Вол�
 magnet:?xt=urn:btih:71EA32D8F853F30FE8267D1872CD9A7931EF6F9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Sword Art Online | Мастера меча онлайн [2012, TV, 25 эп. + 9 
 ```bash
 magnet:?xt=urn:btih:55D9253227DEB0C4EBA8B39ECA861C9AA248563E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Mouretsu Pirates - Akuu no Shin'en | Moretsu Pirates: Abyss of Hyperspace | Ли
 magnet:?xt=urn:btih:A8930F75ED32B5BC60F6A47BB114968C58EFE195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Full Moon wo Sagashite | Searching for the Full Moon | В поисках Пол�
 ```bash
 magnet:?xt=urn:btih:483FE2412228D65F4363F698A0F2A25AAE1C04A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Hoshi wo ou kodomo / Children Who Chase Lost Voices from Deep Below / Ловцы
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Turn A Gundam | Гандам: Объединение [1999, TV, 50 из 50] BDRi
 ```bash
 magnet:?xt=urn:btih:78E6D73988EB913368B53DCE630570ABE92CB983
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Kyousogiga / Шутки чокнутой столицы [2011, OVA] DVDrip raw
 magnet:?xt=urn:btih:C4B0E1AA2BF761AAF9DA778F371A19E4412A73F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Zutto Mae kara Suki Deshita. Kokuhaku Jikkouiinkai | I've Always Liked You: Conf
 ```bash
 magnet:?xt=urn:btih:D0F31B3F4AA7067D52E83FEF29A8F9BDDA19A1E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Rerided: Tokigoe no Derrida | РЕридеД: Деррида, что путеш�
 magnet:?xt=urn:btih:C6B91B82F1BE149F800FEEFA5755C702EC05345A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Charlotte | Шарлотта [2015, TV, 13 эп.] WEB-DL 720p raw
 ```bash
 magnet:?xt=urn:btih:E9F008B56B3D7A701251D8D71653115BB1EA1D5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +675,8 @@ Be-Bop High School / Старшая школа Би-Боп [1990, OVA 7 эп.] D
 ```bash
 magnet:?xt=urn:btih:EDF0E986E46F8168FB49720E4F39794E469D2771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

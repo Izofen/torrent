@@ -1,3 +1,145 @@
+###  Публикация: 1141745   (648497) от 11.06.2017
+
+Sezen Aksu - Biraz Pop Biraz Sezen (2017) [FLAC|Lossless|tracks + .cue] <Turkish Pop, Europop, Vocal, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648497.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. İsyancı
+2. Baba Evi
+3. İhanetten Geri Kalan
+4. Hakkımda Konuşmuşsun(   Читать дальше...   )Жанр: Turkish Pop, Europop, Vocal, BalladПродолжительность: 01:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1440B3F461B35529EAB52094E8977AD1D78EC546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540991   (648533) от 01.04.2022
+
+Beppe Cantarelli - Confusione (1980) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prendimi Con Te (5:49)
+02. Milano-Madrid (7:00)
+03. Come Un Sogno (4:18)
+04. Confusione (Un'aquila) (5:02)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA4696EBB71CF96F61C3FF67286A46AD2C54D789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540726   (648536) от 01.04.2022
+
+София Ротару - Листопад (2003) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Засентябрило
+02. Нет мне места
+03. Не спросишь
+04. Было время(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5676F4B9E2A5243FF51B123A5F4527CF71CDB8CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541040   (648544) от 01.04.2022
+
+Чёртово колесо инженера Ферриса - Левиафан (2022) [MP3|320 Kbps] <Power Pop, Dance Punk>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648544.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пусть крыша горит!
+2. Беги и режь!
+3. Плюнь на следы!
+4. Демоны и химеры(   Читать дальше...   )Жанр: Power Pop, Dance PunkПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEE276E87666349CCE0D0EEC3381A085476CD209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292169   (648623) от 28.03.2019
+
+The Palladium Singers - 100 Hits from the Musicals (2007) Box Set, 5CD, Compilation [FLAC|Lossless|image + .cue] <Pop, Cover, Stage & Screen>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Cover, Stage & ScreenПродолжительность: 05:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B5814B873FC469B8181553C458393A2F97C43D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292071   (648628) от 28.03.2019
 
 VA - 100 Greatest Sad Songs (2019) [MP3|320 Kbps] <Pop, Pop Rock>
@@ -21,6 +163,8 @@ VA - 100 Greatest Sad Songs (2019) [MP3|320 Kbps] <Pop, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:87EC59F48E4344851A07201FD6B2D2E079B73F58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +193,8 @@ Barbra Streisand - I Can Get It for You Wholesale (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:702F4558046930B09A295544D214EFFD74B86656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +221,8 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:C18CCE8915073E359E61EE9D44F2F7D070DB6BBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +251,8 @@ VA - Les Inrockuptibles: La bande-son du printemps 2019 (2019) [FLAC|Lossless|tr
 magnet:?xt=urn:btih:E0444D29082C6E72618F887E33E789704ECFF776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +279,8 @@ B. Fleischmann - Stop Making Fans (2018) [FLAC|Lossless|tracks + .cue] <Electron
 ```bash
 magnet:?xt=urn:btih:C7A99464265331D8BFBED0B99E0BD1B9AF7BC6C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +309,8 @@ CD1:
 magnet:?xt=urn:btih:431EF4A89CD1C110068AF3E8CBFAA74F3A59AE4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +337,8 @@ magnet:?xt=urn:btih:431EF4A89CD1C110068AF3E8CBFAA74F3A59AE4A
 ```bash
 magnet:?xt=urn:btih:8809C5510774C8059F513D65F3C124314FE22F02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +367,8 @@ magnet:?xt=urn:btih:8809C5510774C8059F513D65F3C124314FE22F02
 magnet:?xt=urn:btih:10B13376EF8FDF2EC7950C1E3FBA78FC30D7E86C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +396,8 @@ Odyssey - Love Train (1994) [FLAC|Lossless|tracks] <Eurodance>
 magnet:?xt=urn:btih:C34B6BA15307CE6A8486B25A67DC070755E4D365
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +421,8 @@ magnet:?xt=urn:btih:C34B6BA15307CE6A8486B25A67DC070755E4D365
 ```bash
 magnet:?xt=urn:btih:30EF6467CC90379B4531C82DB2A315223397C9C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +451,8 @@ magnet:?xt=urn:btih:30EF6467CC90379B4531C82DB2A315223397C9C9
 magnet:?xt=urn:btih:4B01A1A81BC8E475914458EA520B2F5729A0B9EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +479,8 @@ magnet:?xt=urn:btih:4B01A1A81BC8E475914458EA520B2F5729A0B9EB
 ```bash
 magnet:?xt=urn:btih:E3A7678508A301E7B7E196A289E41C0F35FA9DC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +509,8 @@ magnet:?xt=urn:btih:E3A7678508A301E7B7E196A289E41C0F35FA9DC4
 magnet:?xt=urn:btih:3C26BF789F41FB94D2D527B042B6C12D353330EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +537,8 @@ magnet:?xt=urn:btih:3C26BF789F41FB94D2D527B042B6C12D353330EB
 ```bash
 magnet:?xt=urn:btih:F06EEAFFB4234AC9AD11EDB774A0B8E8B95CA170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +568,8 @@ Ottawan & Pam N' Pat - 2 Albums, 2 Single (1980, 1981) LP [MP3|320 Kbps] <Electr
 magnet:?xt=urn:btih:3180F6A6045ADFCEF14020ED96017D2DD8A3837F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +596,8 @@ C.D. Band - HooDoo VooDoo (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco
 ```bash
 magnet:?xt=urn:btih:F81C7494A42ACA9FD2F7608859D8FF4E22503F1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +626,8 @@ Shaw - DISCOver Me (1976) LP [MP3|320 Kbps] <Funk-Soul, Soul-Jazz, Disco>
 magnet:?xt=urn:btih:50EB19B995A4220740B5195774E420A9F9A80651
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +654,8 @@ magnet:?xt=urn:btih:50EB19B995A4220740B5195774E420A9F9A80651
 ```bash
 magnet:?xt=urn:btih:21E75FA3780550F73BA477F08E8B2C4FE7B47614
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +684,8 @@ Gürcan Erdem - Dancing On The Fire (2018) Limited Edition, Remastered [FLAC|Los
 magnet:?xt=urn:btih:C3513FAAC242223936A8644DCC4B33806AB54FA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +712,8 @@ VA - Mega Hits Spring 2022 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:68F73B76C03FEC2B8340EB8B8FC77B2347D45969
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,140 +742,7 @@ VA - Die Grobe 4 Cd Party Box (1999) Box Set, 4CD, Compilation [FLAC|Lossless|im
 magnet:?xt=urn:btih:2E8A8FAD6BAA629723DE8EF0F991D45F87E442B7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291912   (650692) от 27.03.2019
-
-VA - Fashion Beats 2019.1 (2019) [MP3|320 Kbps] <Dance, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rabih - Leave the World Behind (Radio Edit)
-02. Andy Stroke - Dream Girl (Radio Edit)
-03. Addicted Craze;Kevin Kelly - Drinks up to the Sky (Max K. Remix Edit)
-04. Tasha - Black Due (Radio Mix)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 01:57:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40D2381DB22FE22E5EB64564CE68B7D0005F297
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905297   (651209) от 05.06.2015
-
-Crazy P - Walk Dance Talk Sing (2015) [MP3|320 кб/с]<Nu-Disco, Nu-Jazz, House, Electronic>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like A Fool (5:06)
-02. The Come On (5:40)
-03. Echo (7:05)
-04. Cruel Mistress (4:55)(   Читать дальше...   )Жанр: Nu-Disco, Nu-Jazz, House, ElectronicПродолжительность: 01:02:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EA3C5007AD94FBC42A2BE20CE903C0FBBDE5B17
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031581   (651488) от 04.07.2016
-
-Al Bano - The Best Platinum Collection (2007) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bianca Di Luna (3:32)
-02. Nel Sole (3:50)
-03. Quando Il Sole Chiude Gli Occhi (2:48)
-04. L'Oro Del Mondo (3:31)(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:17:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD426CFCA3A989B354D9FCC1CFC6357C5BC10FE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031616   (651492) от 04.07.2016
-
-Gianni Morandi - Questa E' La Storia Da "Canzoni Stonate" A "Banane E Lampone" (1994) [FLAC|Lossless|tracks + .cue] <Italo-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_651492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Canzoni Stonate (4:21)
-02. Solo All'Ultimo Piano (3:46)
-03. Come Posso Ancora Amarti (3:51)
-04. Grazie Perche (3:48)(   Читать дальше...   )Жанр: Italo-PopПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE7B85B3F1AA5445D09148C0A53BDB141510B41C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 678670   (651607) от 12.07.2013
-
-Анжелика Варум - Сумасшедшая (2013) [FLAC|image + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_651607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сумасшедшая  [04:30]
- 02. Настоящий ты [04:46]
- 03. Я всегда с тобой [04:41]
- 04. Нарисуй любовь [04:35](   Читать дальше...   )Жанр: PopПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

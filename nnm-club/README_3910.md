@@ -19,6 +19,8 @@ Little Nightmares III - это новая часть серии, предста�
 magnet:?xt=urn:btih:B297B8C0C1DEE3FD5F829BDCB2D59DAB43FBE8B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Michael Messer & Chaz Jankel - Mostly We Drive (2024) [FLAC 24/44.1|Lossless|WEB
 magnet:?xt=urn:btih:DBBE6DBC54F3DE12E387FCFEFBFEAF6B4D51A761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack FitGirl [Enhance
 magnet:?xt=urn:btih:D1C25B1FA0711AC3D56A126A6F485720BD3F46CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack seleZen [Enhance
 ```bash
 magnet:?xt=urn:btih:4460506B637B0ED50DF88E3BC4C59A1A51FC39CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Denny Newman - Reach Out - Music For Ruth Cape (2024) [FLAC 24/44.1|Lossless|WEB
 magnet:?xt=urn:btih:E3AD4C8ADF4CF00B30DDBB5B6B9754A0A60E5AB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Verbal Delirium - Conundrum (2022) [FLAC|Lossless|tracks + .cue] <Progressive Ro
 magnet:?xt=urn:btih:838D1010A9A2EA740765CAF1F4AC36F67BBFA933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066/dlc) Repack Other s [Enhance
 ```bash
 magnet:?xt=urn:btih:642BAED8AB4B7633EA14F68C3D596898315E8089
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Fumo - Entropy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Ro
 magnet:?xt=urn:btih:C8A45E3F4223AF08B104669A813D7682EE852D31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:C8A45E3F4223AF08B104669A813D7682EE852D31
 ```bash
 magnet:?xt=urn:btih:A6C7AE146FC135A800C3F436B24C55557B0A8FB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Polarnik - Протокол (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Bla
 magnet:?xt=urn:btih:4E2FA9704429E7A04CA91E5A83C326EFE6814AC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:4E2FA9704429E7A04CA91E5A83C326EFE6814AC5
 ```bash
 magnet:?xt=urn:btih:F9E3EDCDF32E8D9E439413621BB6E8CEF578A7D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ Haunt - Chariot  Volume 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:B4E487CF18EED50B96962AAC5903800E24F6594E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ djay Pro обеспечивает полный инструментарий дл
 ```bash
 magnet:?xt=urn:btih:C97D2DFB4CDE7AAB19BD167671BD99B7E77BADDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:C97D2DFB4CDE7AAB19BD167671BD99B7E77BADDD
 magnet:?xt=urn:btih:D1A22E733921DDD0BAA4F40F567F2C89CFC392DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ Stats - это приложение с открытым исходным код�
 magnet:?xt=urn:btih:05D6EF6DFBFCBE9EB0891406B1213803FA9B8400
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:05D6EF6DFBFCBE9EB0891406B1213803FA9B8400
 ```bash
 magnet:?xt=urn:btih:E68EBC3EDCA8E83DA08DCD25061F34F615BDF3EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ Suncity Blues - Blues on my mind (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <B
 magnet:?xt=urn:btih:1D484C7CE0FF4AB036C315608FD0F9EAFB895EA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ Smooze одушевляет ваш скролл и добавляет функц
 ```bash
 magnet:?xt=urn:btih:7FFB4D9453EC5DBBFB15452B9BD68320E20C59FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:7FFB4D9453EC5DBBFB15452B9BD68320E20C59FF
 magnet:?xt=urn:btih:CEC5F8EDEDEFEB2F95CF693ED8C9579CADBAB2E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:6E880F7416B360387C6B34EF47D72DCFCD6E99BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:6E880F7416B360387C6B34EF47D72DCFCD6E99BF
 magnet:?xt=urn:btih:652173381B8A3A937D537E243DF58D941F2B11D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:652173381B8A3A937D537E243DF58D941F2B11D7
 magnet:?xt=urn:btih:FB08AAA5A608D40E25B739A1530944C68304E2B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:FB08AAA5A608D40E25B739A1530944C68304E2B5
 ```bash
 magnet:?xt=urn:btih:3CA60E59A96568E567D5DE296E10129887E053E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ KJ Dale - Plays songs from Pioneers - End of time album (2024) [FLAC 24/44.1|Los
 magnet:?xt=urn:btih:AE9EA658EF06DE0987DC9A267266918A5ABB1F47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:AE9EA658EF06DE0987DC9A267266918A5ABB1F47
 ```bash
 magnet:?xt=urn:btih:FABAF79FAF6665EA1C9AB4E9E8A7086FD570BA9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +702,8 @@ VA - Lounge O'Clock, Vol. 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill 
 ```bash
 magnet:?xt=urn:btih:3497B273E9548EDB53DCD561E8F9C3A93736E07F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

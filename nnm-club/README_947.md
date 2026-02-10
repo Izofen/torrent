@@ -22,6 +22,8 @@ Meshuggah - Chaosphere (1998) SHM-CD, Japanese Edition, Reissue, Remastered, 202
 magnet:?xt=urn:btih:2C50901CA5F3FC436C87FBCFBF8D96DE129EC321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Lacrimosa - Dark is this Night (2025) Maxi-Single [FLAC 16,24/44.1|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:189A0CC7461EA84762200C56D56CF0DFB8FDCA6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Machinedrum - 3RMX82 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Bass, Drum & 
 magnet:?xt=urn:btih:BE5039D5A257D3B7CB4183CDB8EE52BEF72D8EBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:BE5039D5A257D3B7CB4183CDB8EE52BEF72D8EBF
 ```bash
 magnet:?xt=urn:btih:ABEF976452979E7AAE1616C7805014EF1F05F39B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:ABEF976452979E7AAE1616C7805014EF1F05F39B
 magnet:?xt=urn:btih:253C321435F8274DE985F63C9FE1C75C23AC3AE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Lights Of Skadi - A Cinematic Experience (2025) [FLAC 24/44.1|Lossless|WEB-DL|tr
 ```bash
 magnet:?xt=urn:btih:7BEAE1F836A3B98C4E5FC7DE7AAFAC97B7B369C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ magnet:?xt=urn:btih:7BEAE1F836A3B98C4E5FC7DE7AAFAC97B7B369C2
 magnet:?xt=urn:btih:E333420E4C82248454BCF4524074CA4BB8B16401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Travelin' Light - Makin' Whoopee (1993) Telarc Jazz [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:9E613C0255C9318DD4F175B21A7A1CB1623205EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ magnet:?xt=urn:btih:9E613C0255C9318DD4F175B21A7A1CB1623205EC
 magnet:?xt=urn:btih:9AD32788610DD52BC1F0D61B67856508D39F59E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +277,8 @@ Opera One 117.0.5408.93 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:35D63CC780C4DE7FF02C99062269E506CBC25716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +302,8 @@ magnet:?xt=urn:btih:35D63CC780C4DE7FF02C99062269E506CBC25716
 ```bash
 magnet:?xt=urn:btih:DAEF4C70EB0DE72A36EDA12BE487A0A2A4CD7EE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ magnet:?xt=urn:btih:DAEF4C70EB0DE72A36EDA12BE487A0A2A4CD7EE7
 magnet:?xt=urn:btih:61609A467AFCA46A72432430EBFDD32A763D351B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +357,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:4C3D45BEE1B65BF4B61986FD8BD6FE3C7BF9F921
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ Alfa eBooks Manager - одна из самых популярных програ
 ```bash
 magnet:?xt=urn:btih:F1AE9CE599B752A949411916C334A6F534869CBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +409,8 @@ magnet:?xt=urn:btih:F1AE9CE599B752A949411916C334A6F534869CBF
 magnet:?xt=urn:btih:BE40E7B3490F4FC9D880778177D5AFCE3F984D6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:BE40E7B3490F4FC9D880778177D5AFCE3F984D6C
 ```bash
 magnet:?xt=urn:btih:C39E26B7B3BD2062B6AD262D2DCF24F5EC329052
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ House of Caravan - атмосферный инди-хоррор с голово�
 magnet:?xt=urn:btih:8AC9C9BE1BA758811343D3CE807142DF3CA2CA68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ Kdenlive - бесплатный нелинейный видеоредактор,
 magnet:?xt=urn:btih:133210EABB05C2983486B3AC0A7E5099CEA391C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:133210EABB05C2983486B3AC0A7E5099CEA391C6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ Nostalgia Mix - 90s Synthwave (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, 
 magnet:?xt=urn:btih:4E5F1AA0DC9DE21BA4D956105025CF87435256D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +568,8 @@ magnet:?xt=urn:btih:4E5F1AA0DC9DE21BA4D956105025CF87435256D9
 magnet:?xt=urn:btih:1EF325B05BA366AA42D4D195D72CDD78FA209E30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:1EF325B05BA366AA42D4D195D72CDD78FA209E30
 ```bash
 magnet:?xt=urn:btih:6DB6A780B8FABDFAECCFDC1C345695375115A1F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ VA - Compilation Part 147 Electronic (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:90E14B7605F72850DD962E83830C5361608CC4B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ magnet:?xt=urn:btih:90E14B7605F72850DD962E83830C5361608CC4B7
 ```bash
 magnet:?xt=urn:btih:A7D8ED10A069DC529921AE574D1A1721F7F9DF95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:A7D8ED10A069DC529921AE574D1A1721F7F9DF95
 magnet:?xt=urn:btih:351CA64D4C3E7974C53544420D47338968D380CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:83EF1284E7C810648FAC0154307AD2F84243FB74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

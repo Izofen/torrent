@@ -19,6 +19,8 @@ Chorus of Carcosa (2025 ) [Ru/Multi] (01.08) Repack FitGirl
 magnet:?xt=urn:btih:553F5449C389C88B6C746DBDBF3730B34038F20C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:553F5449C389C88B6C746DBDBF3730B34038F20C
 magnet:?xt=urn:btih:0935BEA3A3C786C03B7ADBE7E89EF79D48F822EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Farmer's Life (2023) [Ru/Multi] (1.0.28/dlc) Repack Other s
 magnet:?xt=urn:btih:EC5848A4D7AF958A69387BC6852F53AC605DCAFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Lucky Season 2: End of the Rainbow / Сезон удачи 2: Конец рад�
 ```bash
 magnet:?xt=urn:btih:1F2ADA5C252B2B51E5337011D985C860D9E2B71E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:1F2ADA5C252B2B51E5337011D985C860D9E2B71E
 magnet:?xt=urn:btih:B8540D47078573234C681F41DBF232E70C1141B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 magnet:?xt=urn:btih:718C24554896A5213BAC5F8DF954809E602A99F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:718C24554896A5213BAC5F8DF954809E602A99F2
 ```bash
 magnet:?xt=urn:btih:2E770B506E044C53A7B52EBEFF843ED445F0AAD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:2E770B506E044C53A7B52EBEFF843ED445F0AAD6
 magnet:?xt=urn:btih:194E499DB5C6AC840A2C51C94EAD9866D48BDF7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ HiPER Calc Pro v11.1.1 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:82062711FF48B4BD6B8493DC8C53807D265D23CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:82062711FF48B4BD6B8493DC8C53807D265D23CB
 ```bash
 magnet:?xt=urn:btih:580DD0577E9182785AE0F0158825B5CBEA06C64C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Gary Tunes, Eric Blues, Red Whiskey - Save My Soul (Compilation) (2025) [MP3|320
 magnet:?xt=urn:btih:865887C8824FF5560CA504B439BEF98CCD141776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ FolderSizes 9.7.503 Enterprise [En]
 ```bash
 magnet:?xt=urn:btih:93CF8315DB1733422A89EEDC57EB6653F8802451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ VA - Car Karaoke Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:1808CD58DDB6F9FF5D4ED8DA59DC15FC789502E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:1808CD58DDB6F9FF5D4ED8DA59DC15FC789502E4
 ```bash
 magnet:?xt=urn:btih:743FBC57A42912216C52D799B7005E00B36E3DE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ Marina Kapuro (Марина Капуро) - Happy New Year (2024) [FLAC|Lossless
 magnet:?xt=urn:btih:770E87CE27AFD0B412687D0694439EC9EDBB71D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:770E87CE27AFD0B412687D0694439EC9EDBB71D4
 magnet:?xt=urn:btih:D0E2C5B0E709B38E88BE8A7450336B6B81D10FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:D0E2C5B0E709B38E88BE8A7450336B6B81D10FE2
 magnet:?xt=urn:btih:D6EB087F8367C8CC932A03732F0F730BE030839A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:D6EB087F8367C8CC932A03732F0F730BE030839A
 ```bash
 magnet:?xt=urn:btih:2414DF668F066C1E04CAF02C44BD7DF4881A7AD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:2414DF668F066C1E04CAF02C44BD7DF4881A7AD8
 magnet:?xt=urn:btih:12750E7C77EC7EB25A048932330E115EAD112046
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Cities: Skylines предлагает по-новому взглянуть на 
 magnet:?xt=urn:btih:F57A459DCA8F1AB91C9A3C894BFE05E4D5A79CF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:F57A459DCA8F1AB91C9A3C894BFE05E4D5A79CF5
 ```bash
 magnet:?xt=urn:btih:479F70CAB3124816778D25BED6318C9311AE1C4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ VA - Music For You vol.32 (2025) [MP3|320 Kbps] <Prog Rock, Heavy Metal>
 magnet:?xt=urn:btih:A4EAF0C48BEC98C77727541EAAAACE8335A0A7CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:A4EAF0C48BEC98C77727541EAAAACE8335A0A7CB
 magnet:?xt=urn:btih:162D122A326420F15F861835F60CC227FF56E251
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:162D122A326420F15F861835F60CC227FF56E251
 ```bash
 magnet:?xt=urn:btih:E193B0BD52040658DE048C012B9D6889266AACE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ Agata Viola - Compilation (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:C2CBBC5F9BE7134B85A6118F07B20C5F1C8CC1D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ Armin van Buuren - Live at Seven Wonders, Pillars of Creation ... (2025) [FLAC|L
 ```bash
 magnet:?xt=urn:btih:B635AEB0F7619F30193F809579D277C3A485CFAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

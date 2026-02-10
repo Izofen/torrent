@@ -1,3 +1,30 @@
+###  Публикация: 971246   (987094) от 02.01.2016
+
+Оксана Овчинникова и др. | Мозг на 100%. Интеллект. Память. Креатив. Интуиция. Интенсив-тренинг по развитию суперспособностей (2011) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_987094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мозг человека способен творить чудеса – запоминать огромные объемы цифр, текстов, событий, решать сверхсложные задачи, с легкостью находить выход из самой запутанной ситуации. Вы тоже все это можете, просто пока не знаете как. Хотите научиться?
+Эта книга – уникальный тренинг по развитию интеллекта, памяти, креатива и интуиции – сделает вас обладателем суперспособностей. (   Читать дальше...   )Жанр: Психология, ИнтеллектФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C970D1E1238D524E74ABF6E2F716FFD6A60F564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 612319   (987106) от 01.02.2013
 
 С. Пронин | Рекламисту о дизайне. Дизайнеру о рекламе [2004] [PDF]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:812EDB10959993F12A82D0A4DA7914D623C2898C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:812EDB10959993F12A82D0A4DA7914D623C2898C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:812EDB10959993F12A82D0A4DA7914D623C2898C
 ```bash
 magnet:?xt=urn:btih:F0E94FAAA832481AB905691C746920BF99207598
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:F0E94FAAA832481AB905691C746920BF99207598
 magnet:?xt=urn:btih:4A222DEBEF1D36C337C7056B306E327916CD2334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ magnet:?xt=urn:btih:4A222DEBEF1D36C337C7056B306E327916CD2334
 ```bash
 magnet:?xt=urn:btih:A9B6123C4D51D966B7448E894715BB7F27FB922A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +181,8 @@ magnet:?xt=urn:btih:A9B6123C4D51D966B7448E894715BB7F27FB922A
 magnet:?xt=urn:btih:D40F371A0B4F2A1C6C370276D6115449862475FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +206,8 @@ magnet:?xt=urn:btih:D40F371A0B4F2A1C6C370276D6115449862475FB
 ```bash
 magnet:?xt=urn:btih:9BD6895587B8CECBD3ECA1A89C0E0564E59726B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +233,8 @@ magnet:?xt=urn:btih:9BD6895587B8CECBD3ECA1A89C0E0564E59726B6
 magnet:?xt=urn:btih:7BA6F7F27A6CCFA511E0AA5F9B7C23C05A455AD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +258,8 @@ magnet:?xt=urn:btih:7BA6F7F27A6CCFA511E0AA5F9B7C23C05A455AD4
 ```bash
 magnet:?xt=urn:btih:E5CF07B94345FDA6AA3D2404688EFBDA479383EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +285,8 @@ magnet:?xt=urn:btih:E5CF07B94345FDA6AA3D2404688EFBDA479383EB
 magnet:?xt=urn:btih:4D6486C76B16DC2567398C7B225CAF196D394BB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +310,8 @@ magnet:?xt=urn:btih:4D6486C76B16DC2567398C7B225CAF196D394BB8
 ```bash
 magnet:?xt=urn:btih:47800031D59459819607CB62DA59E8B720647CE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +337,8 @@ magnet:?xt=urn:btih:47800031D59459819607CB62DA59E8B720647CE8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +362,8 @@ magnet:?xt=urn:btih:47800031D59459819607CB62DA59E8B720647CE8
 ```bash
 magnet:?xt=urn:btih:21F4694F1B2A715533EA4FCE0B859DF7FEDAA91E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +389,8 @@ magnet:?xt=urn:btih:21F4694F1B2A715533EA4FCE0B859DF7FEDAA91E
 magnet:?xt=urn:btih:C76281B0E024FE452025AC184546C52F187B6CF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +414,8 @@ magnet:?xt=urn:btih:C76281B0E024FE452025AC184546C52F187B6CF5
 ```bash
 magnet:?xt=urn:btih:C2BA985B386A192CC00EEBF08C5B5975260E44E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +444,8 @@ magnet:?xt=urn:btih:C2BA985B386A192CC00EEBF08C5B5975260E44E2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +469,8 @@ magnet:?xt=urn:btih:C2BA985B386A192CC00EEBF08C5B5975260E44E2
 ```bash
 magnet:?xt=urn:btih:91D8EAB9400E2A63EF722DEC1180068B6B9192BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +496,8 @@ magnet:?xt=urn:btih:91D8EAB9400E2A63EF722DEC1180068B6B9192BF
 magnet:?xt=urn:btih:46AD24A9474FBA07A97D68DBA8E250A89EDA0B29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +522,8 @@ magnet:?xt=urn:btih:46AD24A9474FBA07A97D68DBA8E250A89EDA0B29
 ```bash
 magnet:?xt=urn:btih:408204B92A050DE525F3D916193F6840608FBBDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +551,8 @@ magnet:?xt=urn:btih:408204B92A050DE525F3D916193F6840608FBBDC
 magnet:?xt=urn:btih:C4753253B7581274374794AA13176FF429D34EE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +576,8 @@ magnet:?xt=urn:btih:C4753253B7581274374794AA13176FF429D34EE0
 ```bash
 magnet:?xt=urn:btih:45A7589A584D25BADDE7FE48B3F42A21A17B128A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +603,8 @@ magnet:?xt=urn:btih:45A7589A584D25BADDE7FE48B3F42A21A17B128A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +628,8 @@ magnet:?xt=urn:btih:45A7589A584D25BADDE7FE48B3F42A21A17B128A
 ```bash
 magnet:?xt=urn:btih:DD79F4F92D63047B9D208CC45CAD936ACBB12223
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +655,8 @@ magnet:?xt=urn:btih:DD79F4F92D63047B9D208CC45CAD936ACBB12223
 magnet:?xt=urn:btih:A0846244BB9450D9958838688F81390893BE93FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,29 +681,7 @@ magnet:?xt=urn:btih:A0846244BB9450D9958838688F81390893BE93FF
 magnet:?xt=urn:btih:CD5B56708191C78EF29C080D59CB172E6CD3B2B9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971259   (987578) от 02.01.2016
-
-Ю. К. Субботин | Православные таинства (1990) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_987578.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге рассказывается о том, как возникли и для чего служат  главные обряды православия — «таинства». Показывается, что истоки «богоучреждённых» культовых действий лежат в первобытной  магии, с помощью которой наши далекие предки пытались вступить в общение со «сверхъестественными силами» грозной для них  природы. Раскрывается социальная роль таинств (   Читать дальше...   )Жанр: История, религиоведениеФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA1426D434E6A1225A6E7AD5C90CE64FA8018963
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 1095318   (925853) от 20.01.2017
-
-Смотри ещё раз / Baar Baar Dekho (2016) HDRip
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_925853.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джай - подающий надежды молодой профессор математики, который мечтает защититься и работать в престижном университете Лондона. У молодого человека есть все шансы на осуществление этой мечты, но единственное, что его останавливает на пути к заветному контракту - это брак с подругой детства Дией. Девушка буквально жаждет выйти замуж за любимого человека, обзавестись (   Читать дальше...   )Производство: ИндияЖанр: Драма, МелодрамаРежиссер: Нитья МехраАктеры: Сидхарт Мальхотра, Катрина Кэйф, Саяни Гупта, Раджит Капур, Рам Капур, Сарика, Тааха ШахПеревод: Профессиональный многоголосыйЯзык субтитров: русский (толко на песни)Продолжительность: 02:14:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48CA227B278A198B4D8620C2B7296AF926F1486
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094933   (925860) от 20.01.2017
 
 Аддеролловые дневники / The Adderall Diaries (2015) BDRip
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:D48CA227B278A198B4D8620C2B7296AF926F1486
 ```bash
 magnet:?xt=urn:btih:DE199E5598D2D13E706A13144C062B1163DA4B2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:DE199E5598D2D13E706A13144C062B1163DA4B2B
 magnet:?xt=urn:btih:E40CB9F84FE0B3D34546B252B39A2F1304CCBCA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:E40CB9F84FE0B3D34546B252B39A2F1304CCBCA3
 magnet:?xt=urn:btih:BE3FBF3C76B87E9A9FD6278F3328074857AFDD4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +96,8 @@ magnet:?xt=urn:btih:BE3FBF3C76B87E9A9FD6278F3328074857AFDD4D
 ```bash
 magnet:?xt=urn:btih:3452FF5360F08E10B17235ECC8887BE9AA38E564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +125,8 @@ magnet:?xt=urn:btih:3452FF5360F08E10B17235ECC8887BE9AA38E564
 magnet:?xt=urn:btih:2D055036957639A5AA8E5B7D5766A37A6596EC42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +151,8 @@ magnet:?xt=urn:btih:2D055036957639A5AA8E5B7D5766A37A6596EC42
 magnet:?xt=urn:btih:49A95C7A02AB83993AF697448120576430778F68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:49A95C7A02AB83993AF697448120576430778F68
 ```bash
 magnet:?xt=urn:btih:977D8404B03B7AD219A49D142684A6A166B1345F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +204,8 @@ magnet:?xt=urn:btih:977D8404B03B7AD219A49D142684A6A166B1345F
 magnet:?xt=urn:btih:925C84A1DC930325731C084A40D72457AAF3DE56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +229,8 @@ magnet:?xt=urn:btih:925C84A1DC930325731C084A40D72457AAF3DE56
 ```bash
 magnet:?xt=urn:btih:9F7C3F0758E11B54FA346C55F16EF93AFBB04A1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +257,8 @@ Aх, у скольких поклонниц замирает сердце! Он 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +282,8 @@ Aх, у скольких поклонниц замирает сердце! Он 
 ```bash
 magnet:?xt=urn:btih:751890CB139CD2F67A210908FF818E5D4B026E2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +312,8 @@ magnet:?xt=urn:btih:751890CB139CD2F67A210908FF818E5D4B026E2A
 magnet:?xt=urn:btih:97006417D687DACCF3F09A6FAA2744B804387FC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +340,8 @@ magnet:?xt=urn:btih:97006417D687DACCF3F09A6FAA2744B804387FC0
 magnet:?xt=urn:btih:B38BC3E926C5CCCDDC8FD600F2579E70D707B8E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +366,8 @@ magnet:?xt=urn:btih:B38BC3E926C5CCCDDC8FD600F2579E70D707B8E6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +394,8 @@ magnet:?xt=urn:btih:B38BC3E926C5CCCDDC8FD600F2579E70D707B8E6
 magnet:?xt=urn:btih:4709B9AFC60C15EFC34C17A50448C5B2AB13F124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +421,8 @@ magnet:?xt=urn:btih:4709B9AFC60C15EFC34C17A50448C5B2AB13F124
 magnet:?xt=urn:btih:2D61D593CAD5FD2D60CA1F1608ED6277AF8E03B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +446,8 @@ magnet:?xt=urn:btih:2D61D593CAD5FD2D60CA1F1608ED6277AF8E03B0
 ```bash
 magnet:?xt=urn:btih:04DF8DB1A353ECBC2459D345232C644EAEBD5F9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +473,8 @@ CODA: Ребёнок глухих родителей / CODA (2021) WEB-DL [H.265
 magnet:?xt=urn:btih:01127D128D2243E37689E835BE86C67CE27C6491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +498,8 @@ magnet:?xt=urn:btih:01127D128D2243E37689E835BE86C67CE27C6491
 ```bash
 magnet:?xt=urn:btih:46A7239F00C4F625BB5926571421BC692D4BFE8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +525,8 @@ magnet:?xt=urn:btih:46A7239F00C4F625BB5926571421BC692D4BFE8D
 magnet:?xt=urn:btih:F8F6BD2B5F0EECA824C22088DFDFB5ABFC963D13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +550,8 @@ magnet:?xt=urn:btih:F8F6BD2B5F0EECA824C22088DFDFB5ABFC963D13
 ```bash
 magnet:?xt=urn:btih:268D284D0D1E55BC0CA6318B278157DAFEBE0B4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +577,8 @@ magnet:?xt=urn:btih:268D284D0D1E55BC0CA6318B278157DAFEBE0B4E
 magnet:?xt=urn:btih:935AFF8E8211B59F001021B5B42A91E89CDC6F03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +602,8 @@ magnet:?xt=urn:btih:935AFF8E8211B59F001021B5B42A91E89CDC6F03
 ```bash
 magnet:?xt=urn:btih:9CBBFAFE8E1D2230D6F3C0C4F2CB76D6F8F8FA65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +630,8 @@ magnet:?xt=urn:btih:9CBBFAFE8E1D2230D6F3C0C4F2CB76D6F8F8FA65
 magnet:?xt=urn:btih:1B051DA0407A7DD756B7F7309699157040D83559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +655,34 @@ magnet:?xt=urn:btih:1B051DA0407A7DD756B7F7309699157040D83559
 ```bash
 magnet:?xt=urn:btih:72749136227481B3F0E1A6948FA051E0A57105FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 863004   (926650) от 25.01.2015
+
+Чужие против Хищника: Реквием / Aliens vs. Predator - Requiem (2007) BDRip [1080p] [Theatrical Cut]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_926650.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: СШАЖанр: Ужасы, фантастика, боевикРежиссер: Колин Штраус, Грег ШтраусАктеры: Стивен Паскуале, Рейко Эйлсворт, Джон Ортиз, Джонни Льюис, Эриель Гейд, Кристен Хагер, Сэм Траммелл, Роберт Джой, Дэвид Петкау, Том Вудрафф мл.Перевод: ДублированныйЯзык субтитров: Русский , АнглийскийПродолжительность: 01:33:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B970D9971329400C443B3182E2DCFF83D4C93847
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 915876   (591853) от 06.07.2015
+
+Урсула Ле Гуин | Апрель в Париже (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_591853.jpg" />
+</div>
+
+
+###  Подробнее
+
+Урсула Ле Гуин является не просто асом в сфере фантастики, но и классиком вообще для всей мировой литературы ХХ века. Миры, созданные в её воображении, читатели воспринимают как само собой разумеющееся, без лишнего пафоса.
+"Апрель в Париже" - милый и добрый рассказ о том, как людей из разных социальных слоев и разного времени объединяет одиночество.Жанр: ФантастикаПродолжительность: 00:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C741E6FFC5706AF95748E90826A03F34FB964752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1550538   (592023) от 11.05.2022
 
 Евгений Щепетнов | Пётр Синельников (Книга 5). Бандит-5. Принц (2022) [MP3, Олег Троицкий]
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:7DBAA5C12E25E7116DD9A2EEB7443F5BFC18A04B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:7DBAA5C12E25E7116DD9A2EEB7443F5BFC18A04B
 ```bash
 magnet:?xt=urn:btih:911E0F28CFB4315BAC49475B98F29CB355DA5B26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +101,8 @@ magnet:?xt=urn:btih:911E0F28CFB4315BAC49475B98F29CB355DA5B26
 magnet:?xt=urn:btih:9097F633E468C73B7B4D5CC0BEBFEAA959E048F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +127,8 @@ magnet:?xt=urn:btih:9097F633E468C73B7B4D5CC0BEBFEAA959E048F8
 magnet:?xt=urn:btih:960278985F79F6EE70863D23F46C31B8455C3AC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +152,8 @@ magnet:?xt=urn:btih:960278985F79F6EE70863D23F46C31B8455C3AC2
 ```bash
 magnet:?xt=urn:btih:2AA5039333B7257DDFABF44F0C500BC33911F53A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +181,8 @@ magnet:?xt=urn:btih:2AA5039333B7257DDFABF44F0C500BC33911F53A
 magnet:?xt=urn:btih:2DA70BF1A59AB104FEF0D9D76113CB849423D9B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +206,8 @@ magnet:?xt=urn:btih:2DA70BF1A59AB104FEF0D9D76113CB849423D9B8
 ```bash
 magnet:?xt=urn:btih:E39AC6343BD5299153E20A1E3EC7A8F6F8BC591E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +233,8 @@ magnet:?xt=urn:btih:E39AC6343BD5299153E20A1E3EC7A8F6F8BC591E
 magnet:?xt=urn:btih:BCB429531C315BA7BA63106578302E03512F4CC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +258,8 @@ magnet:?xt=urn:btih:BCB429531C315BA7BA63106578302E03512F4CC1
 ```bash
 magnet:?xt=urn:btih:082C53E0FD6EFC9FEB380D4382CFCD6258D13451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +288,8 @@ magnet:?xt=urn:btih:082C53E0FD6EFC9FEB380D4382CFCD6258D13451
 magnet:?xt=urn:btih:272D083A82BE9EEC8EFCE6C72600F2A3A3EC88EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +313,8 @@ magnet:?xt=urn:btih:272D083A82BE9EEC8EFCE6C72600F2A3A3EC88EE
 ```bash
 magnet:?xt=urn:btih:F4F92E4EE9E0FAE5D397E1C04E7A58D547B30748
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +342,8 @@ magnet:?xt=urn:btih:F4F92E4EE9E0FAE5D397E1C04E7A58D547B30748
 magnet:?xt=urn:btih:9A4ECA9A8105755E79CFFBF8283838AB53EB4010
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +368,8 @@ magnet:?xt=urn:btih:9A4ECA9A8105755E79CFFBF8283838AB53EB4010
 magnet:?xt=urn:btih:1DCD1DABE48C78201CC9FBE872B425C15A11B068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +393,8 @@ magnet:?xt=urn:btih:1DCD1DABE48C78201CC9FBE872B425C15A11B068
 ```bash
 magnet:?xt=urn:btih:A460CA30F3BEFFD8B54795F0AE71F66CE2BE1CB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +421,8 @@ magnet:?xt=urn:btih:A460CA30F3BEFFD8B54795F0AE71F66CE2BE1CB5
 magnet:?xt=urn:btih:6C1CBBA25812C4BCC4B2B222E237C5CBA057B62E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +446,8 @@ magnet:?xt=urn:btih:6C1CBBA25812C4BCC4B2B222E237C5CBA057B62E
 ```bash
 magnet:?xt=urn:btih:4BA2E810EE24A1C5E17D5A5A21503516EE18246B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +473,8 @@ magnet:?xt=urn:btih:4BA2E810EE24A1C5E17D5A5A21503516EE18246B
 magnet:?xt=urn:btih:C0A871CAC07D4321FD05D666167B427DA08C959B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +498,8 @@ magnet:?xt=urn:btih:C0A871CAC07D4321FD05D666167B427DA08C959B
 ```bash
 magnet:?xt=urn:btih:EA6A23E2EE4AD4C5D19EC2A21CDE2A641A54AD4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +526,8 @@ magnet:?xt=urn:btih:EA6A23E2EE4AD4C5D19EC2A21CDE2A641A54AD4C
 magnet:?xt=urn:btih:C99397086C644F08C03473429370605C97501AB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +552,8 @@ magnet:?xt=urn:btih:C99397086C644F08C03473429370605C97501AB0
 magnet:?xt=urn:btih:3300203E4FE4BE7BDBD388E1C7D1777D75BF6928
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +577,8 @@ magnet:?xt=urn:btih:3300203E4FE4BE7BDBD388E1C7D1777D75BF6928
 ```bash
 magnet:?xt=urn:btih:18FB8E2B015157832085446A9F1AA033DC5F6D74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +605,8 @@ magnet:?xt=urn:btih:18FB8E2B015157832085446A9F1AA033DC5F6D74
 magnet:?xt=urn:btih:E465BDB5713A19B534F9EF9D920BA39A2BAC4EA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +632,8 @@ magnet:?xt=urn:btih:E465BDB5713A19B534F9EF9D920BA39A2BAC4EA0
 magnet:?xt=urn:btih:7F3E02E9AF74E48D87DEF67450F8DA4CF687036A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +657,8 @@ magnet:?xt=urn:btih:7F3E02E9AF74E48D87DEF67450F8DA4CF687036A
 ```bash
 magnet:?xt=urn:btih:C08B39A5D8F03D105031B7B8D01BF79EC254CF63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,29 +686,7 @@ magnet:?xt=urn:btih:C08B39A5D8F03D105031B7B8D01BF79EC254CF63
 magnet:?xt=urn:btih:C445528D1CAC54E7906D6FD97CF78F6C646852CB
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040051   (593531) от 03.08.2016
-
-Тим Пауэрс | На странных берегах (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_593531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вест-Индия, таинственная земля отчаянных пиратов... Яркое солнце, изумрудные волны, «Веселый Роджер», реющий над белыми парусами. Где-то далеко остались святыни Старого Света, а здесь — царство черных богов вуду, зомби, вернувшихся с той стороны смерти, и кровавых духов зла. Здесь безраздельно властвует всемогущий и ужасный Барон Суббота, жестокий повелитель кладбищ. (   Читать дальше...   )Жанр: Морские приключенияПродолжительность: 13:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B081EAD21931FDAA2A2BEFBD3055A002339C7B73
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

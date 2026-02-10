@@ -1,3 +1,29 @@
+###  Публикация: 1119971   (805131) от 29.03.2017
+
+Бомбы, которые взорвали мир (2017) HDTVRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_805131.jpg" />
+</div>
+
+
+###  Подробнее
+
+На «Интере» вышел фильм с критикой НАТО, возмутивший Министерство информационной политики Украины. 24 марта 1999 года — черный день в истории Югославии. 18 лет назад мирный Белград превратился в ад. Это была первая в истории военная интервенция НАТО без ратификации ООН. Нарушив международный порядок, Югославия была атакована с воздуха. 78 дней бомбардировки. Война, (   Читать дальше...   )Телекомпания: Украина / ИНТЕРЖанр: Документальный, История, ХроникаПеревод: Многоголосый закадровый, профессиональныйПродолжительность: 00:41:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56D492CBD075B91B759419EC225EA8569753585
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009953   (805222) от 23.04.2016
 
 Теория заговора. Кетчуп и майонез (2016.04.23) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:30199B65860DC2FDB9C57C01E6860C31D4C0F032
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:30199B65860DC2FDB9C57C01E6860C31D4C0F032
 magnet:?xt=urn:btih:4624B774FF927C29A396BE0BDC8C9363E8CFB5BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:4624B774FF927C29A396BE0BDC8C9363E8CFB5BD
 ```bash
 magnet:?xt=urn:btih:8736B8444C261E4383E9201433C2B01179D7A74A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:8736B8444C261E4383E9201433C2B01179D7A74A
 magnet:?xt=urn:btih:CA9787D60D45EE5B940BE23DA8F043610C24D358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ History Channel. Тёмная сторона пути самурая / Samurai H
 ```bash
 magnet:?xt=urn:btih:B24523066FF119468F89C0469C65E0091B70690D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:B24523066FF119468F89C0469C65E0091B70690D
 magnet:?xt=urn:btih:DC3BA57BD0B8608233E67F81312935859E1CDEB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:DC3BA57BD0B8608233E67F81312935859E1CDEB3
 ```bash
 magnet:?xt=urn:btih:AE167145E1E50310E7102A20F0240179D6808521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:AE167145E1E50310E7102A20F0240179D6808521
 magnet:?xt=urn:btih:BDF1BA87DD1D209B54B470145DF3967665F78876
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:BDF1BA87DD1D209B54B470145DF3967665F78876
 ```bash
 magnet:?xt=urn:btih:31F5A3F62C83B83D8EC74F2C1911C4D01362B054
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:31F5A3F62C83B83D8EC74F2C1911C4D01362B054
 magnet:?xt=urn:btih:F2D8D46B9B3A90331419B93CD50438A9BDB06819
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:F2D8D46B9B3A90331419B93CD50438A9BDB06819
 magnet:?xt=urn:btih:BC43B6E481D7B45AB600C06705D4968EC484BC45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +330,8 @@ magnet:?xt=urn:btih:BC43B6E481D7B45AB600C06705D4968EC484BC45
 ```bash
 magnet:?xt=urn:btih:72F337A16A7B7388E33BBEF7C2D69E6AE8726F77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:72F337A16A7B7388E33BBEF7C2D69E6AE8726F77
 magnet:?xt=urn:btih:19B055F8BDDD144E80BC5D00E374043839691D47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:19B055F8BDDD144E80BC5D00E374043839691D47
 ```bash
 magnet:?xt=urn:btih:9F7E9222443FBC514322EF44BD50A16117F28B61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:9F7E9222443FBC514322EF44BD50A16117F28B61
 magnet:?xt=urn:btih:2E879CB29ED907A32F59933E043E87367259370B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:2E879CB29ED907A32F59933E043E87367259370B
 ```bash
 magnet:?xt=urn:btih:B722E490097210D4C1EF2D8B2F3C610029DCFFFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:B722E490097210D4C1EF2D8B2F3C610029DCFFFE
 magnet:?xt=urn:btih:DD345E32D925A12763B6A18682F22868ADA644BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:DD345E32D925A12763B6A18682F22868ADA644BA
 ```bash
 magnet:?xt=urn:btih:0D9B53D657E9D5AF358C8B4C768A7D2D29822602
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:0D9B53D657E9D5AF358C8B4C768A7D2D29822602
 magnet:?xt=urn:btih:0AAA4F172711D9F1094DEC2ECC1D4CB11768D6AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:0AAA4F172711D9F1094DEC2ECC1D4CB11768D6AC
 ```bash
 magnet:?xt=urn:btih:D79F737523E74BBE49FEE3B14DAAF7DDB3A63123
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:D79F737523E74BBE49FEE3B14DAAF7DDB3A63123
 magnet:?xt=urn:btih:86C75F46C1DD71A539FC131AC30855A75D040D7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:86C75F46C1DD71A539FC131AC30855A75D040D7B
 ```bash
 magnet:?xt=urn:btih:ED2FD86B5CAFE82F6E189647D1593B4BA8EA1387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:ED2FD86B5CAFE82F6E189647D1593B4BA8EA1387
 magnet:?xt=urn:btih:DE77276DB117E3B25FF8793B77DB880A1EC87CEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +643,8 @@ magnet:?xt=urn:btih:DE77276DB117E3B25FF8793B77DB880A1EC87CEA
 ```bash
 magnet:?xt=urn:btih:486E91A1FE7BACD5F38B9E8EF917C0BE69BC16DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,29 +670,7 @@ magnet:?xt=urn:btih:486E91A1FE7BACD5F38B9E8EF917C0BE69BC16DA
 magnet:?xt=urn:btih:5D47207F454CE95F06A5CF54B063151999E630B7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010137   (806199) от 23.04.2016
-
-Новые русские сенсации. Шаляпин и Калашникова (2016.04.23) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа "Русские сенсации" - это еженедельное документальное приложение к "Программе Максимум". Созданная в лучших традициях расследовательской журналистики, программа развивает и углубляет этот жанр, затрагивая темы, о которых раньше никогда не рассказывало отечественное ТВ. Большинство фильмов - уникальные разработки, слишком громкие и масштабные (   Читать дальше...   )Телекомпания: НТВЖанр: ДокументальныйРежиссер: Глеб Ясиницкий, Андрей Куренков, Дмитрий ЦураСубтитры: ОтсутствуютПродолжительность: ~ 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455B7ECC6CE714217250699CD7DD54064B7972F3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

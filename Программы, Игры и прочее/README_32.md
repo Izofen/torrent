@@ -19,6 +19,8 @@ Navigation Bar for Android v3.2.3 Mod by Alex.Strannik [Multi]
 magnet:?xt=urn:btih:B1E1168206828C9BA6218B5027692E030A049CCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Foxit PDF Editor 2024.5.2.0531.0820 Mod by AppModz [Ru]
 ```bash
 magnet:?xt=urn:btih:9645067BED5225AB64E4812CD4A6F1A553CCD92B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Floor Plan Creator v3.6.7 Mod by LITEAPKS, Maximoff ⁠[Ru]
 magnet:?xt=urn:btih:B72AB6E0973E70B4B3306169DCE3F97A3326C166
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ OfficeSuite Pro + PDF - это полнофункциональный офисн
 ```bash
 magnet:?xt=urn:btih:FFDA4780CB38C22DC3F068E879373A0AE601BE69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Real Sketch БЕЗ РЕКЛАМЫ! Он включает в себя 8 мощн�
 magnet:?xt=urn:btih:FF6C578DE3A9DF5620CC9769E618A73BFDD3E85D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Lingvotube позволяет вам переводить субтитры дл�
 ```bash
 magnet:?xt=urn:btih:4EA9B11674CF02EB7E2BE85D21E24EE70D66BD9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Protectstar™ DNS Changer для Android
 magnet:?xt=urn:btih:3231142EBA615CA6911858D15F507B0078A669FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ GPS Emulator v2.85 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2582400EA72ABFA166B2B5BE847339529DCC2D2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ PhotoRoom v5.1.7 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:EA9DBE46BFC71DDAB2C5AA6F36E0595E64443573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Listen Audiobook Player v5.2.8 build 1003 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:B88C6C9BBE00E1D3EC8680C3DAF9AFDC98EB5FD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ FBReader Premium v3.7.3 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:DA44FA2C8DEE9285028FDD7CA4722B0192A2CFDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ AirBrush: ИИ Фоторедактор v6.6.4 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:823E4516B42C0FDE8522BA135C18B896AED7C4D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Reanimation Inc. Скорая Помощь - surgeon simulator , играй в �
 magnet:?xt=urn:btih:526965CEAE7E6F323A2A0FE54DEB92F4C01C2665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ FolderSync обеспечивает простую синхронизацию ф
 ```bash
 magnet:?xt=urn:btih:7A961A34A43C1817D784C1C2FBAC6FD59CD602D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Plus Messenger - неофициальное приложение для обме
 magnet:?xt=urn:btih:C6CBB7948136EB7865EC3BCE9066EF99211DB20A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ BlackCam – черно-белая камера для Android. BlackCam пом�
 ```bash
 magnet:?xt=urn:btih:066BD46D838BA4DC5649E5F72E632A9B0FF91636
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Moon+reader относится к категории универсальных 
 magnet:?xt=urn:btih:6F9547299FCB25151FF11ABDB7295581B6862B80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:47581B3A36C55DA9A8602A100742EFB713DBFC8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:47581B3A36C55DA9A8602A100742EFB713DBFC8A
 magnet:?xt=urn:btih:36293334F513AC9B79F74F4B063E7FFD40C9F44D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ IPTV Pro v8.0.7 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:96F3CE498098C9ACCBC310AB5B87663F688E158E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Unblock Me – это простая и увлекательная игра-го
 magnet:?xt=urn:btih:FC58621BBD23665D8ED9243A24F602FB44E4E184
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ ES File Explorer (File Manager) — это полнофункциональны�
 ```bash
 magnet:?xt=urn:btih:172E79FB0A8B7FC8F8E72EE00B0DD1F71F992658
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ magnet:?xt=urn:btih:172E79FB0A8B7FC8F8E72EE00B0DD1F71F992658
 magnet:?xt=urn:btih:EFE167B3EDA79D87DF9738FF8AA2518F21749C91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Ventusky: Прогноз погоды v36.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4CF3F63366B5FC76D908F65895A9458D96F65739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ GPS АнтиРадар v45.0 Mod by 0x7d [Ru]
 magnet:?xt=urn:btih:EF0FB97C757503CA63E7BC9430B2369A61545BD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ HeadUp Display (HUD) – это возможность использовать 
 ```bash
 magnet:?xt=urn:btih:668715D540783F9CC868C6F86329BA4680080D80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

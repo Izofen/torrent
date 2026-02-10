@@ -1,54 +1,3 @@
-###  Публикация: 956937   (329308) от 15.11.2015
-
-IsMyHdOK 1.21 Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329308.jpg" />
-</div>
-
-
-###  Подробнее
-
-Достаточно маленькая, но эффективная утилита для проверки производительности жестких дисков. Среди плюсов можно отметить маленький размер, портативность, простоту использования, может работать как с HDD,SSD дисками и USB накопителеми , можно выполнять тест производительности, есть несколько режимов теста от быстрого до очень долгого.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF15B5AA459FEB86D86B0844E4F36CD5D048044
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956727   (329309) от 15.11.2015
-
-VA - Drive (Ministry Of Sound) (2015) [MP3|320 кб/с]< Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329309.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. David Guetta Feat. Sam Martin - Dangerous
-2. Dillon Francis & DJ Snake - Get Low
-3. Major Lazer Feat. MØ & DJ Snake - Lean On
-4. DJ Fresh & Adam F - Believer Adam F & DJ Fresh BBK Edit(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:20:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC00DE7A9409392CD559E2F5222A25F7B2A73FBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956656   (329310) от 15.11.2015
 
 В. М. Шубов | Красота силы (1990) [DJVU]
@@ -69,6 +18,8 @@ magnet:?xt=urn:btih:EC00DE7A9409392CD559E2F5222A25F7B2A73FBE
 ```bash
 magnet:?xt=urn:btih:8AC41EAD1C86969C0D0A47D25EC5F236AF4C2A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +46,8 @@ magnet:?xt=urn:btih:8AC41EAD1C86969C0D0A47D25EC5F236AF4C2A1D
 magnet:?xt=urn:btih:04CCC7B8904265C1803AFF10A550904233E9C619
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +72,8 @@ magnet:?xt=urn:btih:04CCC7B8904265C1803AFF10A550904233E9C619
 magnet:?xt=urn:btih:44AB3F2ADB501A5EB4033ED31256F1F1636F2E03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +97,8 @@ Bandizip — это легковесный архиватор с привлек�
 ```bash
 magnet:?xt=urn:btih:F0DA6026D7A1641F40155E392FFCD9AC51B19C2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +127,8 @@ VA - Дискотека 80-90 годов по - новому от Виталия
 magnet:?xt=urn:btih:589A8E1DF69F14E8C3B45C1D976D2FD84324FE92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +155,8 @@ magnet:?xt=urn:btih:589A8E1DF69F14E8C3B45C1D976D2FD84324FE92
 magnet:?xt=urn:btih:AFB808ED4DC5DD7B358F32911C3BE3C40CBC9205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +180,8 @@ magnet:?xt=urn:btih:AFB808ED4DC5DD7B358F32911C3BE3C40CBC9205
 ```bash
 magnet:?xt=urn:btih:46D50B81310EFB929FBA8FFFC3620A91D2EF3BF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +210,8 @@ Requiem in D minor, KV 626
 magnet:?xt=urn:btih:0D3FDC66B04562EE9E427A43C56D669ED6B4D680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +235,8 @@ magnet:?xt=urn:btih:0D3FDC66B04562EE9E427A43C56D669ED6B4D680
 ```bash
 magnet:?xt=urn:btih:8D4F9E6F2C3867581536DE0838B9F14B01FA83B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +262,8 @@ Privacy Eraser Free 4.6.0 Build 1671 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:3D05E8F8004BC52E498215A4FA5B71D94AE6AB68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +288,8 @@ magnet:?xt=urn:btih:3D05E8F8004BC52E498215A4FA5B71D94AE6AB68
 ```bash
 magnet:?xt=urn:btih:13BD860313DF572EDF1C486BF6B97CBB542C5DD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +318,8 @@ Piano Sonata in G major, Op. 37
 magnet:?xt=urn:btih:4CACFE47CA204D7DFC12722902486A341B2CD335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +344,8 @@ magnet:?xt=urn:btih:4CACFE47CA204D7DFC12722902486A341B2CD335
 magnet:?xt=urn:btih:EA61BB2316D901AF97B790910DB2A70E18EAEFE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +369,8 @@ LimNote 1.3.6 [Ru]
 ```bash
 magnet:?xt=urn:btih:651EBD5ECCB50ACC3981995715DD1415CF60DD5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +399,8 @@ Evanescence - Fallen (2003) [AAC|256 кб/с|WEB]<Alternative Rock, Nu Metal>
 magnet:?xt=urn:btih:754B064291E3A38FE67AAA2AA53AB9EA76B366B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +424,8 @@ magnet:?xt=urn:btih:754B064291E3A38FE67AAA2AA53AB9EA76B366B4
 ```bash
 magnet:?xt=urn:btih:7DA3FE3CB33B1AA882A0D4E536DFEF1062792635
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +454,8 @@ Aesthetic Perfection - Blood Spills Not Far From The Wound (2015) [OGG|484-556 �
 magnet:?xt=urn:btih:7F59A5BA0693896773928F01DA68902BFC73A08F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +482,8 @@ Ravel - Complete Piano Works - (Begona Uriarte, Karl-Hermann Mrongovius) (Vol.1)
 ```bash
 magnet:?xt=urn:btih:F0BAA21B9C7D7F45788DAD82BD4C7ADF55B7A9B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +512,8 @@ Italian Concerto for keyboard solo in F major, BWV 971
 magnet:?xt=urn:btih:5F7D005F98377C0F47E05DF41E474853D1BEFE94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +538,8 @@ magnet:?xt=urn:btih:5F7D005F98377C0F47E05DF41E474853D1BEFE94
 magnet:?xt=urn:btih:D2C3D6420089B6E5945DBE12B53577EE7C7CE798
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +563,8 @@ magnet:?xt=urn:btih:D2C3D6420089B6E5945DBE12B53577EE7C7CE798
 ```bash
 magnet:?xt=urn:btih:D9A53F5B1DB3CC4A3A100BF2B8187A3D0CBE85F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +593,8 @@ VA - Рок против шерсти (приложение к журналам 
 magnet:?xt=urn:btih:C1EB43215AC7D978808EC4F0607E609B4BAF1E27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +619,8 @@ magnet:?xt=urn:btih:C1EB43215AC7D978808EC4F0607E609B4BAF1E27
 magnet:?xt=urn:btih:EAE8EB25200D7367241387B7DE1479334F8DF778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +644,66 @@ magnet:?xt=urn:btih:EAE8EB25200D7367241387B7DE1479334F8DF778
 ```bash
 magnet:?xt=urn:btih:B781D816F88AAF92143073EB88A15AB229BBC832
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956861   (329367) от 15.11.2015
+
+VA - Italo Disco Hits Vol.8 (2015) [MP3|320 кб/с]<Italo Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Key West - Jesahel (04:59)
+02. Roger Meno - What My Heart Wanna Say (03:53)
+03. Johnny M5 - Moscow Nights (Maxi Version) (05:58)
+04. Lala - Johnny Johnny (Radio Version) (03:27)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 04:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9956E11CFB057E5E097B38EE42F0540CA3626331
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956124   (329368) от 15.11.2015
+
+Aesthetic Perfection - 'Til Death (2014) [OGG|486-536 кб/с]<EBM, Industrial, Synthpop, Futurepop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happily Ever After
+02. Antibody
+03. Lights Out (Ready To Go)
+04. Death Rattle(   Читать дальше...   )Жанр: EBM, Industrial, Synthpop, FuturepopПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EABFF6F949A560339E46455777D0AD37362E1E7
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

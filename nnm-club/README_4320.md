@@ -22,6 +22,8 @@ VA - The Best Of Suanda Music 2023 [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:A9BF95B8ADA3B8EE138F8E3DFB00CD5C98850881
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ Concerto Grosso no. 1 (1976-77)
 magnet:?xt=urn:btih:5763FF9D20E7EFDCF598C058A7250565D50DC296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:5763FF9D20E7EFDCF598C058A7250565D50DC296
 magnet:?xt=urn:btih:96AA8A1522AFB0E1210C0AEBD725D71AB81BF202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:96AA8A1522AFB0E1210C0AEBD725D71AB81BF202
 ```bash
 magnet:?xt=urn:btih:3FC3C92A80D54571BB2A7883228DEF0F80617692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -132,6 +140,8 @@ Elvis Presley - If Every Day Was Like Christmas (1994) [FLAC|Lossless]<Rock, Bal
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +169,8 @@ VA - The Best Of Suanda Future (2023) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:1111C150D8ADD53CD92B0CC998A41AACCB83A2CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:1111C150D8ADD53CD92B0CC998A41AACCB83A2CB
 ```bash
 magnet:?xt=urn:btih:2458AA839E6E0CAA5028CC37B000878A0DCD0681
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +226,8 @@ VA - Armin van Buuren - A State Of Trance 1149 (2023) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:44BF282212EAB0BFAFD65710B6D82BCE5629745D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +252,8 @@ magnet:?xt=urn:btih:44BF282212EAB0BFAFD65710B6D82BCE5629745D
 magnet:?xt=urn:btih:2F67436D466ABEE7E504BF97CFDDF334642CC651
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +277,8 @@ magnet:?xt=urn:btih:2F67436D466ABEE7E504BF97CFDDF334642CC651
 ```bash
 magnet:?xt=urn:btih:652FBFAFC1F65283340D485BCDE64322BBC3B7D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +313,8 @@ magnet:?xt=urn:btih:652FBFAFC1F65283340D485BCDE64322BBC3B7D4
 magnet:?xt=urn:btih:B499D1975A61C1BDE22A927CD3E25129E437F018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ magnet:?xt=urn:btih:B499D1975A61C1BDE22A927CD3E25129E437F018
 ```bash
 magnet:?xt=urn:btih:0366F94416EEA23E81EE83478AC4EE355477D216
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +368,8 @@ Daisy Jones & The Six - Aurora (2023) Super Deluxe Edition [FLAC 24/48,96|Lossle
 magnet:?xt=urn:btih:B684BF5413A937344BE1AAD36B4E56952AA1A9DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +393,8 @@ magnet:?xt=urn:btih:B684BF5413A937344BE1AAD36B4E56952AA1A9DB
 ```bash
 magnet:?xt=urn:btih:820528B5C6F1D16F3F7A4944CE351CCD72B67ED9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +422,8 @@ Robben Ford - Night In The City (Live) (2023) [FLAC 24/48|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:34773A77B13EB47D2E31B2A6332069159E93F5CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +457,8 @@ Zola Moon - 7 Альбомов (1995 - 2010) [MP3|320 кб/с]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +486,8 @@ Markus Schulz & Ilan Bluestone & Daniel Wanrooy - Global DJ Broadcast In Search 
 magnet:?xt=urn:btih:14C10F57E2338EFED550C6C61CC1101D461572F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +513,8 @@ magnet:?xt=urn:btih:14C10F57E2338EFED550C6C61CC1101D461572F0
 magnet:?xt=urn:btih:D16A9E2BA9AFB8431DDCCCB0569CAA48A1686012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +538,8 @@ magnet:?xt=urn:btih:D16A9E2BA9AFB8431DDCCCB0569CAA48A1686012
 ```bash
 magnet:?xt=urn:btih:3897A907EFDBD659658F68ABEEEA4B316D4F02D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +565,8 @@ magnet:?xt=urn:btih:3897A907EFDBD659658F68ABEEEA4B316D4F02D2
 magnet:?xt=urn:btih:6101DA33E2B2701E15709273C385F03FD1C3E871
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +590,8 @@ magnet:?xt=urn:btih:6101DA33E2B2701E15709273C385F03FD1C3E871
 ```bash
 magnet:?xt=urn:btih:F88525BAF224559ACFF818FEE98EEBDD383916BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +620,8 @@ VA - Crate Digging - Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:C4853DCCCFD117E126B15FDAE4885B1EAFDA224C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +649,8 @@ Lucky Troubles - The Road (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:920D59FBC5EA130D3AE20A5F9E7BD5E15AECA4E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +674,8 @@ magnet:?xt=urn:btih:920D59FBC5EA130D3AE20A5F9E7BD5E15AECA4E7
 ```bash
 magnet:?xt=urn:btih:4C098BF0D89705664E9936617F9A5B6B80685F91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +710,8 @@ VA - Jingle Bell Jam: Jazz Christmas Classics (1994) [FLAC|Lossless]<Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,6 +738,8 @@ Serenity - Nemesis AD (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic, Progressi
 ```bash
 magnet:?xt=urn:btih:A9BADD56A7DFD3759161AB5303CFF874FFF40DFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

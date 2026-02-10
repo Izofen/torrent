@@ -1,3 +1,29 @@
+###  Публикация: 1028766   (686480) от 24.06.2016
+
+Людмила Астахова | Честь взаймы (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_686480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все маги — коварные негодяи. Эту прописную истину знает в Эльлорской Империи каждый. Перед вероломством и жестокостью чернокнижников не способны устоять ни хрупкая, беззащитная женщина, ни всемогущий Канцлер Империи. У беглой вдовы государственного преступника Фэймрил Эрмаад злобные колдуны отобрали пятнадцать лет жизни, счастье материнства и свободу быть собой, (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 18:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6267D0C69C95EBF589F5DD0747CD525771DAAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028785   (686506) от 24.06.2016
 
 Стенли Вейнбаум | Марсианская одиссея (2016) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:BC1C08F5F5A8F9DD881A704BCF9918F185969DB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:BC1C08F5F5A8F9DD881A704BCF9918F185969DB4
 magnet:?xt=urn:btih:18B4437D3DC219377AAF04D4A541E5EBBEAF0DB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:18B4437D3DC219377AAF04D4A541E5EBBEAF0DB5
 magnet:?xt=urn:btih:5AF67ECF14927BE054A7EFA3BF25B59B02651F13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:5AF67ECF14927BE054A7EFA3BF25B59B02651F13
 ```bash
 magnet:?xt=urn:btih:C05F13F1E9988D70C0DB0038EFA988D98637E2E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:C05F13F1E9988D70C0DB0038EFA988D98637E2E4
 magnet:?xt=urn:btih:4FCA7930BEB8D2E3702267B878477DBA3E270865
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:4FCA7930BEB8D2E3702267B878477DBA3E270865
 ```bash
 magnet:?xt=urn:btih:8295BD478FFFB5BFB82DB64BCF3538DECAB5D0C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:8295BD478FFFB5BFB82DB64BCF3538DECAB5D0C6
 magnet:?xt=urn:btih:B1708A6ADC0D1D81EB76BB83C34572C2C8AFF28E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:B1708A6ADC0D1D81EB76BB83C34572C2C8AFF28E
 magnet:?xt=urn:btih:AEACD2E80AD37078A3ED32AB7ACC40B4A7C68EE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:AEACD2E80AD37078A3ED32AB7ACC40B4A7C68EE1
 ```bash
 magnet:?xt=urn:btih:2854915E01F1D84F84FB15682D6E03AEE2CF6D39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:2854915E01F1D84F84FB15682D6E03AEE2CF6D39
 magnet:?xt=urn:btih:678D688DE4251803E225CC5A76149CFE8B9EF10C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:678D688DE4251803E225CC5A76149CFE8B9EF10C
 magnet:?xt=urn:btih:A00CC3D537D2E151C356F67D0412B798BAC99731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:A00CC3D537D2E151C356F67D0412B798BAC99731
 ```bash
 magnet:?xt=urn:btih:0EEA6BDB0880D1C605BE7E113ABCA8FBDB3A492C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:0EEA6BDB0880D1C605BE7E113ABCA8FBDB3A492C
 magnet:?xt=urn:btih:A0496D6D06B382E69CD059CA2FA2F4E154A40586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:A0496D6D06B382E69CD059CA2FA2F4E154A40586
 ```bash
 magnet:?xt=urn:btih:6567120D0B4D1F8C613ACE7205E585DD03A48507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:6567120D0B4D1F8C613ACE7205E585DD03A48507
 magnet:?xt=urn:btih:D8016F2AFB591B551FDA7F1E43C94294379AE505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:D8016F2AFB591B551FDA7F1E43C94294379AE505
 ```bash
 magnet:?xt=urn:btih:3F01E36570EA27C468EDF043BE5281D559DBD312
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:3F01E36570EA27C468EDF043BE5281D559DBD312
 magnet:?xt=urn:btih:714FE160C12E2599168FA1ACDC66AD773D5ED786
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:714FE160C12E2599168FA1ACDC66AD773D5ED786
 ```bash
 magnet:?xt=urn:btih:8E5E94BE6799192C8626D2F70E708CAE34BB215B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:8E5E94BE6799192C8626D2F70E708CAE34BB215B
 magnet:?xt=urn:btih:3F471B60E3841DE8EA8C5402542089ADDF9714EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:3F471B60E3841DE8EA8C5402542089ADDF9714EA
 ```bash
 magnet:?xt=urn:btih:69CE8D123A571A14D212FED8A1A9FDA747CC23A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:69CE8D123A571A14D212FED8A1A9FDA747CC23A0
 magnet:?xt=urn:btih:127ACBD26D2DB84DF30FFD5108E31498746571C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:127ACBD26D2DB84DF30FFD5108E31498746571C6
 magnet:?xt=urn:btih:C27984690CC5D1A748FD01FF40DB28F6A994247D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:C27984690CC5D1A748FD01FF40DB28F6A994247D
 ```bash
 magnet:?xt=urn:btih:5CAB3DFAE50471566A827373A80D499FB64EAAA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:5CAB3DFAE50471566A827373A80D499FB64EAAA6
 magnet:?xt=urn:btih:F6A3D235B065FFBA6CC6F39E4BEB30D8A37C1C81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:F6A3D235B065FFBA6CC6F39E4BEB30D8A37C1C81
 magnet:?xt=urn:btih:672F0E47B1369913017845634C1B2FD20B1FC193
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028178   (690655) от 22.06.2016
-
-Роман Волков | Тьма из подвалов, или Военрук. [Часть 1] (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_690655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Друзья Роман и Андрей не раз слышали о том, что в их городе пропадают дети. А однажды узнали: все исчезнувшие ребята учились в их школе! Неужели что-то необычное и пугающее происходит прямо у них под боком? Роман и Андрей знакомятся с девчонкой, которая может обладать важными сведениями… и, кажется, выходят на след пропавших. Только друзья не подозревают, что сами (   Читать дальше...   )Жанр: Детские ужастикиПродолжительность: 03:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A6C1274B7BE874281A5174B43152342611B42E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

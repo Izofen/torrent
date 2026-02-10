@@ -20,6 +20,8 @@ Loopmasters - Bass Master 1.1.3 VSTi (x64) [En]
 magnet:?xt=urn:btih:392312C1053237D518B6766648EAE3A887DC4A9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Anime Studio Pro - профессиональная версия одной из
 ```bash
 magnet:?xt=urn:btih:9FDDC1DA1ACB8B519CE57A0D369C765028A5C9FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Loopmasters - Khords 1.0.4 VSTi (x64) [En]
 magnet:?xt=urn:btih:B7D04408C1DD4F826FEAA48CD2042D906F518025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:B7D04408C1DD4F826FEAA48CD2042D906F518025
 magnet:?xt=urn:btih:46B9C5BCC7F72BF38B4120A1997FBDF3A9163A28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Instagiffer 1.75 + Portable [En]
 ```bash
 magnet:?xt=urn:btih:DED2D1B7E6BF410F32E8F1BE29324D77482DC9FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ REmatrix воссоздает этот процесс в одном плагин
 magnet:?xt=urn:btih:5C7BEF5EF0E4B72B33B0E6EBFE72258DBD976DDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ PSP stompFilter — это творческий инструмент, предн
 ```bash
 magnet:?xt=urn:btih:950015D19A23998F7E456E13BACEB45440D29C86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Teorex Collection — сборник портативных, зарегистр�
 magnet:?xt=urn:btih:CCD7F5BEEC82CABF3652D615E4B83205EFD050CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Movavi Video Suite - пакет программ на русском языке,
 ```bash
 magnet:?xt=urn:btih:E16A4C1CB56FC9CAC547723F5F752C332B873FB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Sothink Logo Maker - простой в использовании инструм
 magnet:?xt=urn:btih:B91F56213A3D264E89E3FE3A99A6BFE82610B942
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Xilisoft Video Converter Ultimate 7.8.23 Build 20180925 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:45DDBF6775D9FB7247247AE98A25767EE2761D6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ TeoreX PhotoScissors - простой инструмент, позволяющи
 magnet:?xt=urn:btih:A526211B803A2B06BE82DC223CF13EF1F97E5BDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Movavi Video Editor Plus – универсальный инструмент д�
 ```bash
 magnet:?xt=urn:btih:9D2586844C5ED6D6F815860987B9965F17D0A33A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Chipspeech - это синтезатор речи в винтажном стил
 magnet:?xt=urn:btih:9F609406D509607BF37BBF176D928F3A339AC7CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Deelay - это бесплатный плагин задержки с набор
 ```bash
 magnet:?xt=urn:btih:C3DB3DBCEFAF9CA61A26250AE6DC057ECFD8AB87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Kolor Autopano Giga — программа для создания фото-па
 magnet:?xt=urn:btih:73AE373FF76E61B7808818A277894BF0B48714DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Kolor Autopano Giga - одна из лучших программ для быс�
 ```bash
 magnet:?xt=urn:btih:BF5F0AF75ECBA56A13F74673629C4C1448C9EC06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Bitwar Watermark Expert - это инструмент для исправлен�
 magnet:?xt=urn:btih:2034ED6270C2D2C19123C77B275BAA8445775B56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Roland - Jupiter 4 1.00 VSTi 3 (x64) RePack [En]
 ```bash
 magnet:?xt=urn:btih:9926AEE6B863B37D39A39AFB07FCC6B3E777B3D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Ashampoo Video Deflicker 1.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:0ED1E4B88079FCD8552EBFBFBF42C2F704D521DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Ashampoo Video Tilt-Shift добавляет в Ваши видео знамен
 ```bash
 magnet:?xt=urn:btih:64B9783D7E78BD666479C5DF38AA94F9763D8EF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ United Plugins & JMG Sound - Transmutator 2.5 VST, VST3, AAX (x86/x64)
 magnet:?xt=urn:btih:E631A69265959CC45793F483D73F8E7E5E05F15C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Freemake Video Converter - это бесплатное универсально�
 ```bash
 magnet:?xt=urn:btih:DB40A38FD9996A75C4D0487298640D4BF914A181
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Picasa — программа-органайзер ваших фотографи
 magnet:?xt=urn:btih:CE4C7B0DBDFFBE77B83A29C88666F09BC0CED4CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ DVDFab Media Player - мультимедийный плеер для Windows, с
 magnet:?xt=urn:btih:2BE08963E0FE780F1EE5043FEEA69ED69198309C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:2BE08963E0FE780F1EE5043FEEA69ED69198309C
 ```bash
 magnet:?xt=urn:btih:627080DD8D52BA21B2AF2909D8711B0EDF4FB884
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

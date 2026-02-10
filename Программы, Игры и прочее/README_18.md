@@ -19,6 +19,8 @@ Panels – набор панелей на краю экрана, которые 
 magnet:?xt=urn:btih:A1D8EAA41D943A3D432E9C262888381DAD817485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ ASR - это одно из лучших приложений-диктофоно�
 magnet:?xt=urn:btih:D7FC829EB42B90EE74EC92A8332265D9CE3A401B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:D7FC829EB42B90EE74EC92A8332265D9CE3A401B
 ```bash
 magnet:?xt=urn:btih:8EB8CFE2C4A4D0D035B527894DC4A83A294ADA5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:8EB8CFE2C4A4D0D035B527894DC4A83A294ADA5C
 magnet:?xt=urn:btih:A8F1B62DFDA9F643F1D4F49A69B922A58EDC8D51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:4987C79B1B6622C24FD3F41678275E6B68C6EFBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Young Detective: The Mutation v1.2.22 [En]
 ```bash
 magnet:?xt=urn:btih:FD7C5D6636B15A12B02BB32ED9139ADB5C8FEF7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:FD7C5D6636B15A12B02BB32ED9139ADB5C8FEF7E
 magnet:?xt=urn:btih:4EC4CDDDD6C51C6C0CEF19E2A55903551A02E4C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Unforeseen Incidents - это интерактивная детективная 
 ```bash
 magnet:?xt=urn:btih:B24C9FE356E26E4B8ACC44ECA21964982D7E351A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:B24C9FE356E26E4B8ACC44ECA21964982D7E351A
 magnet:?xt=urn:btih:F782ACDF9D2C249251A1D0E0707684ED9AEA8404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Auto Blur: Авторазмытие v2.7.0 Mod by 0x7d, oflarm [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:06172A27F67A309039E2988460A47C2938C665C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ XDownloader — это мощный инструмент, который поз�
 magnet:?xt=urn:btih:52964AC955A436A2BFA9C86E9547CB4928271762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ DYSMANTLE v1.4.0.03 [Ru]
 ```bash
 magnet:?xt=urn:btih:69260143F0DF5C0D3212CB5E4A0FAC975F1F2689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ Not Another Weekend v1.12 [En]
 magnet:?xt=urn:btih:B81B6C6A31077C8DF5E3455173AA420C5CEA09D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Universe for Sale — приключение в густых облаках Юп
 magnet:?xt=urn:btih:03DFC1D31EC08D7134DB5F0418478FD05055D8F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ The Grinch 1.0.0 [En]
 ```bash
 magnet:?xt=urn:btih:65153C019EAE22EE4AFE887D51DFFD2B13E8AE53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ Castlevania: SotN v1.0.4 [En]
 magnet:?xt=urn:btih:AC5189506378C29E8A822B4F9438716A9552D23A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ Homo Machina - это игра-головоломка, вдохновленна�
 magnet:?xt=urn:btih:614C12F63733BE7470DCE660181AA65374675E33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Last Day on Earth: Survival v1.31.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:0A43D035880EE421763A346AC98CDF43D26816CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ Woolly Boy and the Circus 1.0.0 [En]
 magnet:?xt=urn:btih:CCAE7CFF43257EFDE072C579619BAB36BFC1A130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ ARK: Ultimate Mobile Edition включает оригинальную карт�
 magnet:?xt=urn:btih:6C45AB375B2262759673CAA95851D11CF48ED0E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ A Kindling Forest v1.3 [En]
 ```bash
 magnet:?xt=urn:btih:03B7CDBB4289E35036ADBB593E732315C4DEF7FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ Bendy and the Ink Machine™ — игра-головоломка-экшн в ж�
 magnet:?xt=urn:btih:4DC9691C27AB9E44157F890FB019353F9C613F3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:4DC9691C27AB9E44157F890FB019353F9C613F3B
 ```bash
 magnet:?xt=urn:btih:523B7AEE3F9342AC62CA4D0D668A692E15E0B4DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ magnet:?xt=urn:btih:523B7AEE3F9342AC62CA4D0D668A692E15E0B4DE
 magnet:?xt=urn:btih:F83F5168EA4DA4EAD9F81A583589F2C5831B4E5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ Jigsawscapes® - Пазлы v3.6.7 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:7F218303C13023547BE825AC84C456D82A48CF2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ ToonMe v0.7.15 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:13DAE4345959D14F3A4CD23F36F44027A4048C1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

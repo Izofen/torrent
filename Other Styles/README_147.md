@@ -22,6 +22,8 @@ Mgzavrebi / Мгзавреби - PROстранства (2015) [WavPack|Lossless|
 magnet:?xt=urn:btih:BB0334860B18F1D5EBA70C568FDFFF0F8712C0DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Henry Jackman - Kong: Skull Island / Конг: Остров черепа (Origin
 ```bash
 magnet:?xt=urn:btih:3EC72C160C14135BF6F7180B79B1FECDCA621AAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Joe Bongiorno - Synfonia (2015) [MP3|320 Kbps] <New Age, Piano>
 magnet:?xt=urn:btih:AC7A938FC31F4E93DA2F10D7176F4CB19B2D3770
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Joe Bongiorno - Synfonia (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
 ```bash
 magnet:?xt=urn:btih:A600AAEC338D93BBA4D451536ABB903BA6341921
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -132,6 +140,8 @@ Shastro - 8 альбомов (1994-2001) [MP3|320 kbps]<NewAge, Meditative, Worl
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -158,6 +168,8 @@ Salvador Candel - Reflejos (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:DCD70DE05449FC0B1B4C71A5CC16BE8220B6E232
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -186,6 +198,8 @@ Clinton Shorter - The Expanse: Season One (Original Television Soundtrack) (2016
 magnet:?xt=urn:btih:991D3C1477CEC19C7DFDB2F10ED6362578ECCF21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +226,8 @@ Oliver Scheffner - Relax Lounge. Soothing Music for Recreation (2014) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:C420D652B826B04D280C7CF4B42FF7BDB9066504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +256,8 @@ Bino Dola, Luna Blanca, Fuegoitaliano - New Flamenco (2014) [MP3|320 Kbps] <Flam
 magnet:?xt=urn:btih:FE14E9240E2A76465641230318FD29D710015A90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +284,8 @@ Gheorghe Zamfir - Golden Pan Flute Melodies (1988) [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:344D4EA1D0501B412203BD1E81CA4C3C719359D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +314,8 @@ Club 8 - Pleasure (2015) [MP3|320 кб/с] <Pop, Rock, Electronic>
 magnet:?xt=urn:btih:AD8793BBC85F58BAA1EBD1BE842DC3BC7711124D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +343,8 @@ Katzenjammer - A Kiss Before You Go (2011) [FLAC|Lossless|tracks] <Pop, Folk, Vo
 magnet:?xt=urn:btih:8FCE9563B7547CF03CC8AC8D7B3325BC2E2A38DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ magnet:?xt=urn:btih:8FCE9563B7547CF03CC8AC8D7B3325BC2E2A38DC
 ```bash
 magnet:?xt=urn:btih:AA9C53976CFE6CF5979C0454E02EAEE0B8AA5EC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:AA9C53976CFE6CF5979C0454E02EAEE0B8AA5EC4
 magnet:?xt=urn:btih:882B9D7758E8AA2810C076E64546A7A3E09726CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ Joe Bongiorno - Love's Light (Solo Piano) (2016) [FLAC|Lossless|tracks] <New Age
 ```bash
 magnet:?xt=urn:btih:E3181758F5D77CDFFCD074EAD25CE2A0B211FBCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ Peter Kater - Hawai'i: A Tribute to Aloha Aina (2020) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:14B7CAC0AB47500844CE769296109C4AD4589294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ Luca Stricagnoli - Change Of Rules (2020) [FLAC|Lossless|WEB-DL|tracks] <Instrum
 ```bash
 magnet:?xt=urn:btih:81C5DE0FC8D45A7FE0D1456CE3D2E1DABFFE2E1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +514,8 @@ Gelka - Wishful Thinking (2020) [MP3|192 Kbps] <Electronica>
 magnet:?xt=urn:btih:501072ACDC65DC5805F98291A2F3BFAB8C27FD55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ magnet:?xt=urn:btih:501072ACDC65DC5805F98291A2F3BFAB8C27FD55
 ```bash
 magnet:?xt=urn:btih:F24437C6C9D140F9247AE6C276DB62A794F7F8EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +572,8 @@ Chris Spheeris & Paul Voudouris - Greatest Hits & Unreleased Masters (2017) [FLA
 magnet:?xt=urn:btih:FD58189819CF8AB4D7BD938933F19C7B35164108
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ Louis Landon - Southwest Solo Piano (2020) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 ```bash
 magnet:?xt=urn:btih:F408C8BCB698BF53AEE15F290C12AF889E1E621C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +630,8 @@ magnet:?xt=urn:btih:F408C8BCB698BF53AEE15F290C12AF889E1E621C
 magnet:?xt=urn:btih:4E71C7D49E4952E4575D617E06A682E69174121F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ CD 1:
 ```bash
 magnet:?xt=urn:btih:2FB1D543CADF6D5AEB14F7B2477951276D2C592C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ Richard Band - Troll / Тролль (1986) [MP3|320 кб/с] <Score>
 magnet:?xt=urn:btih:1878B8ABDB884145E00CC2324CB0EE02D3AF2071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +716,8 @@ Frederic Talgorn - Крепость / Fortress (1992) 1993 [MP3|320 кб/с] <Sc
 ```bash
 magnet:?xt=urn:btih:FA62B713BA169F6A393DC76BC26176FE92991B57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -701,6 +751,8 @@ The Chemical Brothers - Hanna (OST) (2011) [MP3|320 kbps]<Techno, Big-Beat>
 ```bash
 magnet:?xt=urn:btih:6A73D1528F265B578663D7C89EF74FE6F06C5C38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

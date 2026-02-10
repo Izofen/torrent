@@ -19,6 +19,8 @@ Yawara! Special: Zutto Kimi no Koto ga... | Yawara! Atlanta Special | Явара
 magnet:?xt=urn:btih:7D4B34BE3A7DF120988CE3664D4194B8BA6B85C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Yawara! A Fashionable Judo Girl | Явара! [1989, TV, 124 из 124] BDRip 108
 ```bash
 magnet:?xt=urn:btih:3F4563474AA5E9A4A6BC8B60E1B7334B1ED83CB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Yawara! Sore Yuke Koshinuke Kids!! | Yawara!: Go Get 'Em, Wimpy Kids!! | Ява�
 ```bash
 magnet:?xt=urn:btih:707E7FE1221E03D79758F534562085E3FC93D29C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Senki Zesshou Symphogear XV / Последняя Песня Боевых При�
 magnet:?xt=urn:btih:4B0BD5B8718ED51803258EADA63CA163F8620AD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Night Head 2041 | Сумеречный разум 2041 [2021, TV, 12 эп.] BDRi
 ```bash
 magnet:?xt=urn:btih:7D907C07DA9BFC351F0370A3CE673A1BA857EF9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Gekijouban Sidonia no Kishi | Knights of Sidonia | Рыцари Сидонии (
 magnet:?xt=urn:btih:02ACDF5FFEA960A934154B4EF256CEB37B6E9CAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Ikoku Meiro no Croisee The Animation | Croisee in a Foreign Labyrinth: The Anima
 ```bash
 magnet:?xt=urn:btih:3EB808EB62F1263C89C6F5C6169FB07AB212A12F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Gekijouban KanColle | Kantai Collection Movie | Fleet Girls Collection: Movie Se
 magnet:?xt=urn:btih:B6533E11863ADEDA51F5F9C6A9058BB207B916AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Gekijouban KanColle | Kantai Collection Movie | Fleet Girls Collection: Movie Se
 ```bash
 magnet:?xt=urn:btih:1E4D1ACFD4AE2FF1C28D011F4118E2835F0D7610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Owari no Seraph: Kyuuketsuki Shahar | Seraph of the End: Vampire Shahar | Пос
 magnet:?xt=urn:btih:250966A3BBC926467234C3B7A0AB3F4E57DEE8E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Nekopara: Koneko no Hi no Yakusoku | Кошачий рай: Обещания к�
 ```bash
 magnet:?xt=urn:btih:781DC2B7E6363C7B2C00FAB70612B61B3336F733
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Yawara! A Fashionable Judo Girl | Явара! [1989, TV, 124 из 124] BDRip 720
 magnet:?xt=urn:btih:28B0D9C93B0DCFA4404D45FE69E093920D1DA844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Uchuu no Kishi Tekkaman Blade / Teknoman / Star Knight Tekkaman Blade / Косм
 ```bash
 magnet:?xt=urn:btih:B3143B80976D04BB08A5249C58C2AEC9FD283E99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Extreme Hearts | Экстремальные сердца [2022, TV, 12 эп. + 1
 magnet:?xt=urn:btih:6637CA05ACE8A661C9C06985D34E76A1378B38EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Yuusha, Yamemasu | I'm Quitting Heroing | Перестану быть герое
 ```bash
 magnet:?xt=urn:btih:11602CF15436EC4BC015CADD96B2F992750139A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Shijou Saikyou no Daimaou, Murabito A ni Tensei Suru | The Greatest Demon Lord I
 magnet:?xt=urn:btih:01403BEB75E529CB8729E49ABC875C8DE6E8DD5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ Tenjoubito to Akutobito Saigo no Tatakai | Мунто (фильм) | После�
 ```bash
 magnet:?xt=urn:btih:57CFABF869ACB400E720DB428866751ACEF2ED4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Nyan Koi! / Nyankoi! / Кошачьи Прихоти!Год выпуска: 2009
 magnet:?xt=urn:btih:FD765C308D7A7CBB6BC24A718232E8B51B220EE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Kimagure Orange Road: Ano Hi ni Kaeritai | Capricious Orange Road: I Want to Ret
 magnet:?xt=urn:btih:EF91FD9FB95F6E74F7506E166482BDB2792BF296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Kimagure Orange Road | Capricious Orange Road | Капризы Апельсин�
 ```bash
 magnet:?xt=urn:btih:02F7282E9B2A21F34ADFBE8C5D3776DB7FF66AFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Sora o Miageru Shoujo no Hitomi ni Utsuru Sekai | Мунто [ТВ] [2009, TV, 9
 magnet:?xt=urn:btih:F8C7EA63F5CB2E2F5FD258D2CAFA3C8FF2AD19F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Kimagure Orange Road OVA | Capricious Orange Road OVA | Капризы Апел�
 ```bash
 magnet:?xt=urn:btih:D537652E0AA243EDDDD25223DF764F4ADAE01543
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Hana to Alice: Satsujin Jiken | The Case of Hana & Alice | Хана и Алис�
 magnet:?xt=urn:btih:407C8508838725B20D464A4DD195ECCC67E0DC92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ Darwin's Game | Игра Дарвина [2020, TV, 11 из 11] BDRip 1080p 10-bi
 ```bash
 magnet:?xt=urn:btih:5D9F7645127AB03BA89CEC30DE416A6A349F5AA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Laidbackers | Расслабонщицы [2019, Movie] BDRip 1080p raw
 magnet:?xt=urn:btih:3DFF0BBA5E9B6784B7B9DBE333D170F99D70180B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Idol Boueitai Hummingbird / Idol Defense Force Hummingbird / Боевая поп
 ```bash
 magnet:?xt=urn:btih:BDEA87CCFF454324F84818CFAA80799E1F430C35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

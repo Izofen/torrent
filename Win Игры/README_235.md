@@ -19,6 +19,8 @@ Remnant 2 - это атмосферная и брутальная комбина
 magnet:?xt=urn:btih:A5D604ECDC250A2572D8BD7189BC5E7F40345230
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tales of Arise - японская ролевая игра, выступающа�
 ```bash
 magnet:?xt=urn:btih:DE92F0E8B040B0C34B872433FB419AAD79A9FE05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ F.E.A.R. 3 [Ru/En/Multi9] (Steam-Rip/16.0.20.1060) 2011 | R.G. GameWorks
 ```bash
 magnet:?xt=urn:btih:07C5712E2ADD80F49A6F993AE1E5D0A0FC5C1295
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Warhammer 40.000: Space Marine [Ru/En/Multi9] (Steam-Rip/1.0.156.0/13 DLC) 2011 
 magnet:?xt=urn:btih:10801C419FDA1B9D55FCBA1DF098C1CC5B1E7512
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ I Am Alive [Ru/En] (LossLess RePack/1.01) 2012 | R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:6FCE4B69A16BF44B1EBEF2E7F16EB6DB501A7F04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Oddworld.Stranger's Wrath HD [Ru/En/Multi10] (Repack/1.5) 2012 | Fenixx
 magnet:?xt=urn:btih:3B12FA028E19A9D0402DD8849F32AAB3AF678CF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ Renegade Ops [Ru/En/Multi6] (Steam-Rip/13/2 DLC) 2011 | R.G. Игроманы
 magnet:?xt=urn:btih:E094626E64C00D0788EF502273862CDCA2034AE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ The Legacy - это кооперативное выживание в жанре 
 ```bash
 magnet:?xt=urn:btih:B48AF4833800FEEC9601253E30A310BDE809B56C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Jump King (2019) [Ru] (Build 14374430) Repack Necros
 magnet:?xt=urn:btih:2CFC4ED10676647F11F893F5BE654820AF93CB7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Dead Age (2016) [Ru/Multi] (1.12-fix) License GOG
 ```bash
 magnet:?xt=urn:btih:ACEE5FA5C0CE3ECAA42AD4D16C83FAB2889B290C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.10.13.12.03/dlc) Repack Oth
 magnet:?xt=urn:btih:FD25022680770E294211DFB5F22A91B1F337EF00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Project Hunt - приближенный к реализму симулятор �
 ```bash
 magnet:?xt=urn:btih:4872FD855F0E9907C8262BFEF9F765BEC5C28942
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Corporeal (2025) [Ru/Multi] (1.0) Repack seleZen
 magnet:?xt=urn:btih:77315C49E222354C34F3FF7EA072DC019B065301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ Corporeal (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:5FB7DC79C23E3DEFD9CBF3509CC3C63AB1901F89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ Bye Sweet Carole - это уникальная хоррор-игра, сочет
 magnet:?xt=urn:btih:D5C1A3485ACABE70AFCE0319118E99D97547F8FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Total War: THREE KINGDOMS - эта игра из популярнейшей ст
 ```bash
 magnet:?xt=urn:btih:113EC2D076954D421B9015BF544F2FC91A290187
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Baby Steps (2025) [Ru/Multi] (HotFix 2) Repack FitGirl
 magnet:?xt=urn:btih:714DCE0C1839B44A0276F2F5670B5317F44DE3D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ Resident Evil 3 – полностью обновленный ремейк хо�
 ```bash
 magnet:?xt=urn:btih:945781889B5FBA859D6D57765E1A1E04C29DFA9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ The Legacy - это кооперативное выживание в жанре 
 magnet:?xt=urn:btih:C119B728BBBBCC7AEB8AC1DDA173354A226D980D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Dark Light - сай-фай платформер с элементами метр
 ```bash
 magnet:?xt=urn:btih:4609414708BC02A273534D1505E7FF1D167D2217
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ Youropa (2018) [Ru/Multi] (2.0.10) License DOGE
 magnet:?xt=urn:btih:0B42E1F8EE8C6E9CACB6A72D582208571AF8A13D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Pathfinder: Wrath of the Righteous – непрямое продолжение �
 ```bash
 magnet:?xt=urn:btih:9E6AFC764A7DAF2724D3AA3D057B2F8289EF564B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Baldur's Gate: Dark Alliance (2021) [Multi] (1.0.4) License GOG
 magnet:?xt=urn:btih:0B2386FDB62466D14BA1C510A416AF8D205E5DE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Trash Sailors это приключения мультяшных пиратов 
 ```bash
 magnet:?xt=urn:btih:0EF447797236711883DE336117FB5659C6DD36DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ The Expanse: A Telltale Series (2023) [Ru/Multi] (1.0.902523) Repack dixen18 [Ep
 magnet:?xt=urn:btih:938738DF08DE53B02AE41B68C1BEA6531418BCBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ GRID 2 (2013) [Ru/En] (1.0.85.8679/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:06C7CF55663AC217DFC17D605B6AC61EB9E13202
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

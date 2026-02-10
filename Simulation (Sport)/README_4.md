@@ -19,6 +19,8 @@ NBA 2K18 (2017) [En] (1.0) License CODEX
 magnet:?xt=urn:btih:732082A7F38B26DA6930C827FF40CB275D1914E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PC Football 2007 / Лига чемпионов. Футбол (2006) [Ru] (1.6) L
 ```bash
 magnet:?xt=urn:btih:E5446C1B1F8B9F0F6223C41BEC17EF559D6F1E86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ International Snooker 2012 (2013) [En] (1.0) Unofficial
 magnet:?xt=urn:btih:A92DDC4A8C67BECFD4DD93CB3D6FAAA8B066183D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Deer Hunter: Reloaded — это симулятор охоты от первог
 ```bash
 magnet:?xt=urn:btih:CD1049529EA97CE6E688D7DFC35E7F22AA0BEEA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ eFootball PES 2021 (2020) [Ru/Multi] (1.01.00) License CPY
 magnet:?xt=urn:btih:16B16C47EEBD8D9897F8AF7D45A3ABF135C0EBE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ MotoGP™20 (2020) [Multi] (1.0/dlc) Repaсk R.G. Механики
 ```bash
 magnet:?xt=urn:btih:A8192006835E8294C249318EB044A0EAC3E17B0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Franchise Hockey Manager 3 (2016) [En] (1.0) License SKIDROW
 magnet:?xt=urn:btih:6970128D5C83F28B931964C0C9C2CE232B861033
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NBA 2K13 является продолжением серии баскетбол
 ```bash
 magnet:?xt=urn:btih:D41B2175CBFCF3EC0044699FA25BA77E2CE274A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Pro Evolution Soccer 2017 – это возвращение легендарно
 magnet:?xt=urn:btih:C112C7457297C5BA8CDC2FCE65FA063B11133962
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ FIFA 18 на базе Frostbite стирает границы между вир�
 ```bash
 magnet:?xt=urn:btih:4A2EA863C6D35C99EF88E0B8EFBD18512E567C0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Call of the Wild: The Angler (2022) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:ECD845CEB1006109EF0E344A3259B950D1015E2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ WWE 2K19 (2018) [Multi] (1.0/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:90337C11887FD476FAC6E3684C71DC169CEE8060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Madden NFL 19 дает вам возможность полного контро
 magnet:?xt=urn:btih:E628805320B38A1C3024DDABA093095915FF0329
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ PES 2016 / Pro Evolution Soccer 2016 - Удостоенная многих на�
 ```bash
 magnet:?xt=urn:btih:B8FD87183AA922CD94C179A91605F36801E8054D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Madden NFL 08 [En] (RePack/4.0) 2007 | R.G. Механики
 magnet:?xt=urn:btih:AC1CC10A4AFD926C94FC98A7610F981D1F04366C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Real Boxing дарит тебе самый восхитительный, бес�
 ```bash
 magnet:?xt=urn:btih:3E27526D1DC9A2A4BB3A0AE0F18954DC3E341B1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Tony Stewart's All-American Racing (2020) [En] (1.0) Steam-Rip CHRONOS
 magnet:?xt=urn:btih:13469AD5A334B1EAFF7FC9F54972B33EE8A24B37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Tour de France 2020 (2020) [Multi] (1.35.0.0) Steam-Rip CHRONOS
 ```bash
 magnet:?xt=urn:btih:B7CE7F8DD14C7A948E841D87611585FDADC7D4CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Hunting Simulator - симулятор настоящей охоты, в кот�
 magnet:?xt=urn:btih:B379A397FAE703F52E61AAA2279C13B3D7FB144E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Hunting Simulator — симулятор настоящей охоты, в ко�
 ```bash
 magnet:?xt=urn:btih:4745B915F9D8271DB8366846137E65AB0994BB76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Virtua Tennis 3 — ваш пропуск на корт, где собирают
 magnet:?xt=urn:btih:D2EF3A775C520B9A53BD2289F9F4D9A58B4913EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Pure Hold'em (2015) [Ru/Multi] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:B88F9F918667634CBA7BD1B4D4814E1D6EA42A1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ F1 2015 (2015) [Ru/Multi] (1.0.19.1175) Repack R.G. Games
 magnet:?xt=urn:btih:F5228CCD598188AA2D45258646D33923C868315A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Card Shark - приключенческая игра об уловках, инт
 ```bash
 magnet:?xt=urn:btih:DCF1140D5316F596D57F94C797F0BFE83CE9329B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Battle Chess реализует идею живых шахмат в средне
 magnet:?xt=urn:btih:DC621BB62092290145D5D88B5934619BF42BDA4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ MTX Mototrax (2004) [Ru/En] (1.0) Rip NeoGame
 ```bash
 magnet:?xt=urn:btih:489052EE7FB27435E727E5C2992AAAFEBA60F8B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

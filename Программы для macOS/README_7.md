@@ -19,6 +19,8 @@ Privatus - это простое приложение для удаления н
 magnet:?xt=urn:btih:72F2E8F85A144F6CD458BAE299C52930A81ABBD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MouseBoost pro for Mac 3.3.7 [En]
 ```bash
 magnet:?xt=urn:btih:7E9799D66ADC6D55A1E86C48FC0571D1C98F6061
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ GoodTask — это элегантная и мощная «напоминалк�
 ```bash
 magnet:?xt=urn:btih:208D04BE0CEE9C6C31C22B7D38886C42ADD45D9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ myTracks — замечательное приложение, которое б�
 magnet:?xt=urn:btih:15B7B09B8895EA0EB8169947FD8519B6D6380C91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Multitrack Editor: Beat Mixer 1.0.7 [Multi]
 magnet:?xt=urn:btih:9CF23A9955CFBEBCD9D676228C4247B9D99557B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ USBclean 3.9 [Multi]
 ```bash
 magnet:?xt=urn:btih:BF30F540E359154C726A92BF38197651BEFE268F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Syncovery for Mac 10.13.1 ARM/iNTEL [En]
 magnet:?xt=urn:btih:C63BBEFE56D409E7BCD80022D76AEAA3BE0A49A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ SponsorBlock — это краудсорсинговое расширение д
 ```bash
 magnet:?xt=urn:btih:D0A77292F19EE6DC32B35233ADC2215C7BEED95B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Aiseesoft Mac Screen Recorder 2.2.26 [Multi]
 magnet:?xt=urn:btih:C1DF938650789DED50B3BC1C23E3261AA73A71BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Hides 5.9.3 [En]
 ```bash
 magnet:?xt=urn:btih:EC9EF88BF4CD257FD61032C147C294526B1CE65A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ DataGraph — это программное приложение, предназ
 magnet:?xt=urn:btih:7CB9006E7F1471BFA64EC4180BEB75B094D21DB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Wing Pro - это интегрированная среда разработки
 magnet:?xt=urn:btih:6276F40A484FDECDD5E72667D453F47046EF8760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ NCH Express Invoice Plus 11.10 [En]
 ```bash
 magnet:?xt=urn:btih:D96CA1ECA5FB8AB0DB8D5945B5F08EA1E56FF091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Airmail – это почтовый клиент для операционной
 magnet:?xt=urn:btih:6F7427C6FDCBF5B747060FC92286D55C1BCD114F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:B046748534E73CB5B59CA4AA79764970D21E2B06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Sync Folders Pro - это простое в использовании прил�
 magnet:?xt=urn:btih:82880FCDD6E04F982FDF6F6FC1E1B29665F8A35C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ System Dashboard Pro — это современная интерпретаци�
 magnet:?xt=urn:btih:3E8D3F1C70F0D468149E1B0A6ED1867BB471770D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ WiFiSpoof - небольшая утилита, которая поможет в�
 ```bash
 magnet:?xt=urn:btih:F748D34D5217B4E47593953BA68EF41EAD146834
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Codepoint for Mac 1.16 [Multi]
 magnet:?xt=urn:btih:8893BD265CA27760A0E47B98A5D02218002ECF1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ RAW Power 3.4.20 [En]
 ```bash
 magnet:?xt=urn:btih:6C351F6974D1AE4A1F0A5BDAB369DCAFDE3C0C61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Screen Wonders 2.2.1 [Multi/Ru]
 magnet:?xt=urn:btih:8224F261D68B3339F1ACD4D8D3DD3BE31C301887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ CameraBag позволяет мгновенно применить одну из
 ```bash
 magnet:?xt=urn:btih:7109EC362F59CEB6988C3260242DDEE016F135F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Text Workflow 1.9.6 [En]
 magnet:?xt=urn:btih:6A9D1851C8A9CAE3FE340D390F6D4300863DA7B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ Wifi Signal Strength - отображение состояния уровня Wi
 magnet:?xt=urn:btih:8D003AED9732EB8E62061D704A28EA2EAA4FBFF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Principle — приложение для Mac OS, которое позволя�
 magnet:?xt=urn:btih:65BC99E7AD84396FCC1ED08559B921417CEC30D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ AirFoil – специальное программное обеспечение
 ```bash
 magnet:?xt=urn:btih:7621C44BD84B0B580593960117FA25A69992B292
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

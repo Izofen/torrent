@@ -23,6 +23,8 @@
 magnet:?xt=urn:btih:D594F56EE9D5050C9019ADE80026263FDE199AEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:D594F56EE9D5050C9019ADE80026263FDE199AEC
 ```bash
 magnet:?xt=urn:btih:BC119DBCEECD4C0E4DD24A10A193642250073BDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -80,6 +84,8 @@ Anna Abreu - Greatest Hits (2012) [MP3|~245 кб/с (V0)]<Pop, R&B, Dance>
 magnet:?xt=urn:btih:2A01394FA85C30E152CADD8939BFF222E53F8502
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -104,6 +110,8 @@ magnet:?xt=urn:btih:2A01394FA85C30E152CADD8939BFF222E53F8502
 ```bash
 magnet:?xt=urn:btih:478C6C5CBD40818649BD7AE8EAA816F0AFD3CA7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -138,6 +146,8 @@ VA - 100 A State Of Trance Tunes Vol 2 (25.02.2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:C6FB6184EF1382C5248FF6F93007AE4DF2AC6646
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +176,8 @@ magnet:?xt=urn:btih:C6FB6184EF1382C5248FF6F93007AE4DF2AC6646
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +205,8 @@ magnet:?xt=urn:btih:C6FB6184EF1382C5248FF6F93007AE4DF2AC6646
 magnet:?xt=urn:btih:62CF824442296A66248EEF54E6FA75F2CD9B2C19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ magnet:?xt=urn:btih:62CF824442296A66248EEF54E6FA75F2CD9B2C19
 ```bash
 magnet:?xt=urn:btih:9C0B66D6A6787163AC35F356CB7B1A776A652A9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +265,8 @@ VA - Overdose 2 (2012) [MP3|320 кб/с]<DubStep>
 magnet:?xt=urn:btih:DC29F6219167EB8039A0DA51E325410961D70EDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +292,8 @@ magnet:?xt=urn:btih:DC29F6219167EB8039A0DA51E325410961D70EDF
 magnet:?xt=urn:btih:92522D60C85B81579D6AF3B903A2E8E18A13D72D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +318,8 @@ RarmaRadio - программа для прослушивания и запис�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +343,8 @@ UPgrade – еженедельный журнал о компьютерах и �
 ```bash
 magnet:?xt=urn:btih:3362C3B335E8815A41E28F48A3397C647198061C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +379,8 @@ VA - XXXL Горячие Новинки. Зарубежный (2012) [MP3|256 к
 magnet:?xt=urn:btih:83A27B1648397220A0B0298D10C58D6523E17F30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +404,8 @@ Superstars — профессиональная рестлинг шоу от м�
 ```bash
 magnet:?xt=urn:btih:AD8BAB4FA579230AF6641D7A7C23860AF5759F3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +431,8 @@ magnet:?xt=urn:btih:AD8BAB4FA579230AF6641D7A7C23860AF5759F3C
 ```bash
 magnet:?xt=urn:btih:5390DE3F7B626712AFD0C5781BBCF4BCFF5F1AB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +469,8 @@ http://ru.wikipedia.org/wiki/Dir_en_greyПеревод: ОтсутствуетП
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +503,8 @@ Pitbull - Armando (2010) [MP3|320 kbps]<Hip-Hop, dance>
 ```bash
 magnet:?xt=urn:btih:859AE10AEC3BDD92DDC612712BDF48AF10D46301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +539,8 @@ VA - K-Boom Hits 242 (2012) [MP3|192 кbps]<Dance,Pop,Club>
 magnet:?xt=urn:btih:204333263A519ECD74B2759BEB5886C414A7C570
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +564,8 @@ FAR Manager – мощнейший известный всем консольн�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +600,8 @@ VA - Copy Kills (2011) [MP3|320 кб/с]<Psychedelic / Full On, Psy-Prog>
 magnet:?xt=urn:btih:F96D818BA0BE3F51CADCC05F28721CAFDA09840B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +625,8 @@ magnet:?xt=urn:btih:F96D818BA0BE3F51CADCC05F28721CAFDA09840B
 ```bash
 magnet:?xt=urn:btih:5077BD9AB9C1838D01094078290980E0695ADB2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +661,8 @@ VA - Dance Party (2012) [MP3|320 kbps]<Club | Dance>
 magnet:?xt=urn:btih:38FF4FA08392AB21846D730EFE5441E9C4369383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +686,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +722,8 @@ VA - Special Places (2012) [MP3|320 кб/с]<Ambient, Modern Classical>
 magnet:?xt=urn:btih:30931CAFA318942D6F304898B88C50E086281C08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -701,6 +749,8 @@ magnet:?xt=urn:btih:30931CAFA318942D6F304898B88C50E086281C08
 magnet:?xt=urn:btih:88A08F68CD43D1B628FB608EADA9FC14B65B60C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -724,6 +774,8 @@ magnet:?xt=urn:btih:88A08F68CD43D1B628FB608EADA9FC14B65B60C3
 ```bash
 magnet:?xt=urn:btih:3442CBA8E7EE93C0E0C75DB79AF1DDBD05800D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

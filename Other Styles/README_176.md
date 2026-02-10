@@ -22,6 +22,8 @@ John Powell - The Call of the Wild / Зов предков (Original Motion Pict
 magnet:?xt=urn:btih:32C901D57BEC474EA9C5CB8BD649F47C7DAF2E5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ John Powell - The Call of the Wild / Зов предков (Original Motion Pict
 ```bash
 magnet:?xt=urn:btih:D28C13B6B90E2B479CABEE820CAF563EB93E5376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Nathan Whitehead - Days Gone (Original Soundtrack) (2019) [MP3|320 кб/с]<Soun
 magnet:?xt=urn:btih:F04830CAE3EDC15EA4A6D0F2107A86AAE34E456E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Volker Bertelmann - Downhill / Под откос (Original Motion Picture Soundt
 ```bash
 magnet:?xt=urn:btih:EF3D033A850C529FAA465694DD7BD3A03E0462D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Volker Bertelmann - Downhill / Под откос (Original Motion Picture Soundt
 magnet:?xt=urn:btih:518A2784B6F9997ABCE67ADE2C4AE1C0C745C134
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Navid Hejazi - Mah (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]
 ```bash
 magnet:?xt=urn:btih:3360352637F04533FEF4BE1C7332ED1CE4EC6916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Gabriel Garrido Garcia - Etherborn (Original Game Soundtrack) (2020) [MP3|320 к
 magnet:?xt=urn:btih:F88E061E39186459D8260160B397EF192FC959A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Chad Rehmann - Camp Cold Brook (Original Motion Picture Soundtrack) (2020) [MP3|
 ```bash
 magnet:?xt=urn:btih:7C12E8C31AEC0D6E997ED7BE90FF735C89C8429E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Chad Rehmann - Camp Cold Brook (Original Motion Picture Soundtrack) (2020) [FLAC
 magnet:?xt=urn:btih:DA332C058E3476838F74D99646FC7D6BD52C840F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ StoneOcean - Home (2016) [MP3|320 кб/с] <New Age, Dance & Electronic>
 magnet:?xt=urn:btih:4BC9BA8ECA72DDAE54CE202C8FA79419DD75B4FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ magnet:?xt=urn:btih:4BC9BA8ECA72DDAE54CE202C8FA79419DD75B4FC
 ```bash
 magnet:?xt=urn:btih:4FC6495CBB764D50A4CEFC891354306546C1691F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ VA, Joby Talbot - Sing / Зверопой: Original Score + Original Soundtrack 
 magnet:?xt=urn:btih:065D3C44291178DB6BB98A3565CDEB6435541E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ VA, Joby Talbot - Sing / Зверопой: Original Score + Original Soundtrack 
 ```bash
 magnet:?xt=urn:btih:4692ED12A9D7D08E9BE075026E3DE87FDE15FF36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ Alan Silvestri - Allied / Союзники (Music from the Motion Picture) (2016
 magnet:?xt=urn:btih:FB69310BE0C74A99C86C53CF1B775BFEB0AAE270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ Alan Silvestri - Allied / Союзники (Music from the Motion Picture) (2016
 ```bash
 magnet:?xt=urn:btih:072F75372AFC5DB22AAEC1FD163BD3E39563C0D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ VA - Лёд 2 (саундтрек к фильму) (2020) [MP3|320 Kbps] <OST>
 magnet:?xt=urn:btih:A3DFAB380246B6B3813E695051AF0309219D1821
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ VA - Los clasicos argentinos Tango - Vol.07 (1996) [MP3|128 кб/с] <Tango>
 ```bash
 magnet:?xt=urn:btih:63D1D769FE7012D5628EE6B05131145D106958A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ Sacred Earth - The Way Home (2008) [MP3|320 кб/с] <New age, Meditative, Ambie
 magnet:?xt=urn:btih:6C9C2F03C59A486E78A2B99AEB590B9D5AE48B60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ VA - Ла-Ла Ленд / La La Land (Original Motion Picture Soundtrack) (2016)
 ```bash
 magnet:?xt=urn:btih:A31A63E644C7940BEDBED17A0A46A938FF164727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ VA & Justin Hurwitz - La La Land  / Ла-Ла Ленд (Original Score) + (Origi
 magnet:?xt=urn:btih:A80133D11D829C899D32AF40F8378CECFABDB1F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ VA - Ла-Ла Ленд / La La Land (Original Motion Picture Score) (2016) [MP3
 ```bash
 magnet:?xt=urn:btih:AAB29F5F9190F3DD0FEB99B48AC7DBA69C743DD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ Danny Elfman - The Girl on the Train / Девушка в поезде (Original 
 magnet:?xt=urn:btih:CCAE7220F68E4CC0D184BC15D7A279443207511C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +656,8 @@ Danny Elfman - The Girl on the Train / Девушка в поезде (Original 
 ```bash
 magnet:?xt=urn:btih:EB5D3F648058E52EEB822F5706870E4B6FEA40D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +686,8 @@ Enya - The Memory Of Trees (1995) Remastered, Limited Edition, 2015, Chinese Dra
 magnet:?xt=urn:btih:11179446908C0FAC21891466C5256A7CA4252E9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ VA - Die schonsten Wiener Walzer (2007) [FLAC|Lossless|tracks + .cue] <Classical
 magnet:?xt=urn:btih:C19DB637A8D358C7C61CB0DE451944F0F1A680A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ VA - Sirtaki Dance (1997) Instrumental [FLAC|Lossless|tracks + .cue] <Folklore>
 ```bash
 magnet:?xt=urn:btih:923F5B79D8885CA9E73A270FFF14764DE34774B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

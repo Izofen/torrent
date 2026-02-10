@@ -22,6 +22,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:E948F9E372B05E8C6036E0AC744AA2228C80F81B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:E948F9E372B05E8C6036E0AC744AA2228C80F81B
 magnet:?xt=urn:btih:E480EC9F75C04C7085FF7AFBFD38DF82F2D87E5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:E480EC9F75C04C7085FF7AFBFD38DF82F2D87E5F
 ```bash
 magnet:?xt=urn:btih:D81F061BEEA35331647643E168E63C89A4D2B9EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:D81F061BEEA35331647643E168E63C89A4D2B9EB
 magnet:?xt=urn:btih:21A2B9DDDFDFAB362E0AF76D46E6953A773F9607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:21A2B9DDDFDFAB362E0AF76D46E6953A773F9607
 magnet:?xt=urn:btih:BE91B7D03AFF5CAC9FDCEAB4BCB045CF5CE8C363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Quake - Квадрология (1996-2021) [Ru/Multi] (1.0/5971/1.32/1.4.3/dlc) 
 ```bash
 magnet:?xt=urn:btih:A08E3D742B1C01F1FCF7D50A11F24684E5BF7C69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Dr. John - 42 Albums, 2 Box Set (1968 - 2024) 64 CD [FLAC|Lossless|image + .cue|
 magnet:?xt=urn:btih:B84291A6CBD73B467F3B9313C291B1614222AFEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:B84291A6CBD73B467F3B9313C291B1614222AFEB
 ```bash
 magnet:?xt=urn:btih:CDB88B2B8E2C5625530904102388E682A15E08D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:CDB88B2B8E2C5625530904102388E682A15E08D6
 magnet:?xt=urn:btih:217551495CB124DB70EF92A6EE384F830F1D6AEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ The Axis Unseen — это игра в жанре хэви-метал хорро
 ```bash
 magnet:?xt=urn:btih:8399E632A52BF896B6161B23E829345D590E0B54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:8399E632A52BF896B6161B23E829345D590E0B54
 magnet:?xt=urn:btih:C492E99B94EB563E66989D7E6C71E5D09162549E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Megaloot (2024) [Ru/Multi] (1.17.1) Scene Tenoke
 magnet:?xt=urn:btih:026FD0DE9EB2C5567ECA8D465B3B30ECF3D73C62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:026FD0DE9EB2C5567ECA8D465B3B30ECF3D73C62
 ```bash
 magnet:?xt=urn:btih:57399A52E6CCD34205BEF0CA0A2C7269CA401FB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:57399A52E6CCD34205BEF0CA0A2C7269CA401FB5
 magnet:?xt=urn:btih:645669BCEB8CEDCA000A113083B33AE81DC8DA65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:645669BCEB8CEDCA000A113083B33AE81DC8DA65
 ```bash
 magnet:?xt=urn:btih:25EBB482906C4B25B2B7A0A9129CBEEA7F40B055
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ Boosty, Антон Назаров | Осознанная Меркантильн�
 magnet:?xt=urn:btih:8CAA8683DC37933F2D935A8C4B3F5A021A27897F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:32150E76387E9F86E63ADB6CE933371A26CA3B1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Simple Sticky Notes — простая в понимании программа 
 magnet:?xt=urn:btih:C65DF5901EA766F602F76F54845212D89229CF38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Thenx v6.0.4 [En] Mod by youarefinished
 ```bash
 magnet:?xt=urn:btih:70025B4ED027BC4D50C0BCC54495843FC052EACF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:70025B4ED027BC4D50C0BCC54495843FC052EACF
 magnet:?xt=urn:btih:8F5EF3D1537AD53310BCB8BA5400DA6843FBA4FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:8F5EF3D1537AD53310BCB8BA5400DA6843FBA4FE
 ```bash
 magnet:?xt=urn:btih:B815B253DD5DCAB910D2F7C7E667D41FD244EC5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ EarthView — это динамические обои для рабочего �
 magnet:?xt=urn:btih:197B4DAB426490F046678B35E5BFC5DF2FFE2732
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Romantic Juliette — реалистичный каллиграфический 
 ```bash
 magnet:?xt=urn:btih:4D84F30B9C612A60EB7B2D85CE246234E3BE8CD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:2D4F690F1CDD5F9B23351865E9D3B21539AEC73E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:A4517810E5B6228DE862AAB1017EF526797731B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

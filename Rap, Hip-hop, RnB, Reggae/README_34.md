@@ -1,3 +1,32 @@
+###  Публикация: 1467913   (1017413) от 06.05.2021
+
+Ka - Descendants of Cain (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Abstract Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1017413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Now and Then (3:34)
+02. Unto the Dust (3:07)
+03. Patron Saints (2:35)
+04. My Brother's Keeper (2:50)(   Читать дальше...   )Производство: Iron Works RecordsЖанр: Hip-Hop, Abstract HopПродолжительность: 00:32:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75945BCAA2B2B3FCD0762DEA4E691064ABB7F6C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1467883   (1017562) от 05.05.2021
 
 Snoop Dogg - From Tha Streets 2 Tha Suites (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
@@ -21,6 +50,8 @@ Snoop Dogg - From Tha Streets 2 Tha Suites (2021) [FLAC|Lossless|Web-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:2074FD7D8168A47B2C42511227A890660BB27519
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ Alfa Mist - Bring Backs (2021) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazz>
 magnet:?xt=urn:btih:6AE4658EC1D2141A5938B91867C09F322D3192FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ Uratsakidogi - Black Hop. Epos (2021) [MP3|320 Kbps] <Blackened Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:A0D71242D966A0443774657918DC63F50F8C7099
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ magnet:?xt=urn:btih:A0D71242D966A0443774657918DC63F50F8C7099
 magnet:?xt=urn:btih:4CFC4D65AAA33B4D17AE2656599AAF07361FB655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ magnet:?xt=urn:btih:4CFC4D65AAA33B4D17AE2656599AAF07361FB655
 ```bash
 magnet:?xt=urn:btih:F3770CE641371CE1002D86C7603DF61278245852
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ Leanje - Мертвая петля (2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hi
 magnet:?xt=urn:btih:24A67DF61575B2ABF4D3AD6AB1B92943BC7592DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ Leanje - Мертвая петля (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:4E046F95DE68034BC32ACEE6FE3BD0B542D6F197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ RAM - TRAUMATIX 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:7CA9754C20CDF039E42BEAF909511F8C43896DF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ RAM - TRAUMATIX 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:729E68132D1D2F1815C5D0DAD1FD2C738AC37447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ SwuM - Cycles (2021) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Instrumental, Chill
 magnet:?xt=urn:btih:704C568E6356210F4106473BF9AF9C8447985B98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ Onyx - Onyx 4 Life (2021) [MP3|320 Kbps] <Hip-Hop, Rap>
 ```bash
 magnet:?xt=urn:btih:0DF608054AB7C6D3DE993C5380D7BB56457F2D67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ Onyx - Onyx 4 Life (2021) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:3AAED4E93CD288D80E3DE8D0CF566F25AD682B52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ Face - Искренний (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:DC0D004ACC2AECA87587C329A113A7F998F0E6E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ SLIMUS - Новичок (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:D3D366C0612D514F87704A7B8C91664EC0AF9B7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ CD1
 ```bash
 magnet:?xt=urn:btih:9BA3BD312950C487586D507222A4A016B1D87B0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ Jah Khalib - Мудрец (Deluxe Version) (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:88310C1514A046BAD1139A279ACB7A7656F8C5F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ StaFFорд63 - Десять историй (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:AB08133A433D5CAB720576677628BF6471432AB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ Face - Варвар (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:960762B6C80EA37D1C4B283ADAAD28AE9F26CAE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ XIII - SEKTA (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:2BD35DFC7A15F0FAE4C528F14B406DA2B742C322
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ ST1M - Окна (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:5C179D4BA86E5346A9D1D8AF67E8FBD25ACABE51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ Horus - Герои вашего времени (2021) [MP3|320 Kbps] <Rap, Hip-H
 ```bash
 magnet:?xt=urn:btih:67AAFC1A04F2B75231D2CBFCDB26E36EDBF09E82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ ST1M - Сьерра-Леоне (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:B143AE2D90BECEB7A24556777460BDD0A91BFD19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ HammAli & Navai - Когда хорошему человеку плохо (2021)
 ```bash
 magnet:?xt=urn:btih:90BAF76EA32B1B1A426AF566D27CE0E93EF2942C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ magnet:?xt=urn:btih:90BAF76EA32B1B1A426AF566D27CE0E93EF2942C
 magnet:?xt=urn:btih:97042D76F61272510753C78D912358B9F2054940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ zavet - nights before gotika (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:ADCBC0247296FC7B85C7A5AE3ED7F193546D1CDF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459367   (1023282) от 01.04.2021
-
-Каста - Чернила осьминога (2021) Deluxe Edition [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1023282.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пароль от почты
-2. Не то
-3. Годы неправды (feat. Рем Дигга)
-4. Нипонимони(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:26:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC9E0216D590356A0D652A7B69BD5F7CEF0E7D3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

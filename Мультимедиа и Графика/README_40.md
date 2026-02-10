@@ -19,6 +19,8 @@ Any Video Converter Ultimate — предоставляет пользовате
 magnet:?xt=urn:btih:B865618117BE7A1C654464EC8EB5FED7A9845E05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ CameraBag позволяет мгновенно применить один из
 ```bash
 magnet:?xt=urn:btih:AC52A3C1C0B3A401A967BC8A1A9D0A2F3C7B5351
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ HitPaw Watermark Remover предоставит возможность вам у
 magnet:?xt=urn:btih:C6591A7B434D94C7803B88FAF9CED75F993A76E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ FastStone Photo Resizer - программа для всевозможных м�
 ```bash
 magnet:?xt=urn:btih:C8B72773FD55FD336DD58643DA0872B3D0F96014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ ImageGlass - это легкий и универсальный просмотр�
 magnet:?xt=urn:btih:9B63A6C12B4BFD50BCF76D53B5EF6DFB01D5AC33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ CoolUtils Total Image Converter преобразует изображения в
 magnet:?xt=urn:btih:EE228A428143806BC5720119955112C69A2B216C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Metasequoia - решение для расширения границ 3D-мод�
 ```bash
 magnet:?xt=urn:btih:D7C9519D4C29841F57DF67F61FB0D371C5D836AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ IcoFX - кроссплатформенная утилита для создан�
 magnet:?xt=urn:btih:33E8035B6D5A2390976677165F99BA527B42D041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Image Tuner - это программное обеспечение для пак
 ```bash
 magnet:?xt=urn:btih:9AEC0BB27E09163D94CF62F3320086DAC0B472D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ IcoFX - мощный редактор иконок и курсоров, обла
 magnet:?xt=urn:btih:22D032B7104E0872D5D7E0044E210CA50654A6CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Exposure X7 понравится всем тем, кто ценит фотоис
 ```bash
 magnet:?xt=urn:btih:AA517BC40F916E9AAAB1E3D8C6D7024172F0BE43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ BandLab Technologies запустила «Cakewalk by BandLab» - заменив
 magnet:?xt=urn:btih:4F54EE2A67BE5A9D69B829431A5556B69379FA8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Audio Damage Collection 12.2020 VST, VSTi, AAX (Retail) [En]
 ```bash
 magnet:?xt=urn:btih:639A1287738CE5C0264E07B83FACF5B2DF85B3BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Pixia - компактный но в то же время мощный граф�
 magnet:?xt=urn:btih:04FC7F929DDEB61DFCBDC99E0CAA0FA846178D7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ IcoFX - программа для создания и редактировани
 ```bash
 magnet:?xt=urn:btih:D2B3206C9ED965F3838518F31815172D3E8EE96B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ IcoFX - программа для создания и редактировани
 magnet:?xt=urn:btih:7AD13E1311909EDD60B021653EE587CF2C84E23C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ IcoFX - программа для создания и редактировани
 ```bash
 magnet:?xt=urn:btih:202360A79B36129166479CCCC7DB45847C6D5130
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Imagenomic Portraiture - плагин позволяющий ретуширов�
 magnet:?xt=urn:btih:EB2A2DA1F9814A0E743A260E844D2BA0C9F26B27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ ACDSee Photo Studio Ultimate сочетает в себе поддержку с�
 magnet:?xt=urn:btih:9D0879C878D0CFE64D3A89EBB30BF8D123722E0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Baby Paint | Детская рисовалка 3.50 Portable [En]
 ```bash
 magnet:?xt=urn:btih:5FFDEAFE2819A52B67226AFC622FC1E71926CB7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ VSDC Pro создан для тех, кто хочет освоить нелин
 magnet:?xt=urn:btih:50C0FE653EE03D8597740E21B118779582E75778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Toontrack - EZbass 1.0.7 (build 26474) Update 64-bit STANDALONE, VSTi, VSTi3 ReP
 ```bash
 magnet:?xt=urn:btih:C6DBFA7562FDD3B108B071254913BD7B550B40A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ GSG Plus Hub Plugings Transform, Topcoat, SuperText, библиотека Signal
 magnet:?xt=urn:btih:C50EAF41F5103D2D6ACB36187FF22F330F787BD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Polyverse Supermodal — мощный фильтр с современным з�
 ```bash
 magnet:?xt=urn:btih:235EBAC187E7B7C617F7AC1966907F00191AE726
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Cyotek Palette Editor позволяет создавать и работать 
 magnet:?xt=urn:btih:E42AB5E3ED41E63D51C4E5C057EA00A10BB8FDE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Valhalla Delay — это наш взгляд на классический и �
 ```bash
 magnet:?xt=urn:btih:261B795824D0269ADA2BD791B803F0685111E488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1EB599F1634621DA6B4CB80F5EC76C157E06ACCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:1EB599F1634621DA6B4CB80F5EC76C157E06ACCC
 ```bash
 magnet:?xt=urn:btih:93F71B557128D5B5DF7F91E07396102FD4093C3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Rammstein 1000% (2003)Жанр: Electronic, Breakbeat, NDH, Industrial MetalПр
 ```bash
 magnet:?xt=urn:btih:EAA4B676D94CF093B7A907353A58FB00C212C192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ VA - Modern View In Trance Music (2018) [MP3|320 Kbps] <Trance, Electro, Progres
 magnet:?xt=urn:btih:0DF45FCD011122F172496E77ACDC35EDAA7B5556
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Big Mean Folder Machine - интересное приложение, предн�
 ```bash
 magnet:?xt=urn:btih:45F5EC1100BA395C9D3B173372384E8F0E198426
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ CD01:
 magnet:?xt=urn:btih:EE3CA6DD37E77F391D1910448F9C006399884654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ VA - Vocal Trance Legends (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
 magnet:?xt=urn:btih:3116C31C89143B675A7A091C111ECDFC1CA9D0B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:3116C31C89143B675A7A091C111ECDFC1CA9D0B5
 ```bash
 magnet:?xt=urn:btih:906F36849A672A7CBE00920B6547ABFC3C9C6BE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:906F36849A672A7CBE00920B6547ABFC3C9C6BE1
 magnet:?xt=urn:btih:E4A5D8F2E6634BE74319D9C6F3E20F21EF640A8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ VA - Ultimate Vocal Collective House (2018) [MP3|320 Kbps] <Club House,Vocal Hou
 ```bash
 magnet:?xt=urn:btih:A7004D0233E5A9F68C7335283604932234076C95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ magnet:?xt=urn:btih:A7004D0233E5A9F68C7335283604932234076C95
 magnet:?xt=urn:btih:09F9755D0C95D63A98774C5232810297B76EB154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ magnet:?xt=urn:btih:09F9755D0C95D63A98774C5232810297B76EB154
 ```bash
 magnet:?xt=urn:btih:B3BC99476BE63B8BA65DB0902DE66821AD03AA0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +358,8 @@ VA - New Music Releases Week 47 of 2018 (2018) [MP3|~229 - 320 Kbps] <Dance, Pop
 magnet:?xt=urn:btih:5C0FE2565D318D3476862C7A9DF7E80C9AB51794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +384,8 @@ magnet:?xt=urn:btih:5C0FE2565D318D3476862C7A9DF7E80C9AB51794
 magnet:?xt=urn:btih:C25BE3CE2940CFBB8F04A9A97A3035EFFD76CBFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ magnet:?xt=urn:btih:C25BE3CE2940CFBB8F04A9A97A3035EFFD76CBFD
 ```bash
 magnet:?xt=urn:btih:EFA6A2E0AD6F8886591B97E51201627073D5D4CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +439,8 @@ VA - New Releases of the 24th Week of 2018 (2018) [MP3|320 Kbps] <Pop, Tropical,
 magnet:?xt=urn:btih:A54AF428921A63DCB4348A8C2EF9FA97B0277899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +467,8 @@ VA - Markus Schulz - We Are the Light (The Extended Mixes) (2018) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:25711B56B4B3757E107BBB673AFAB5FE39952608
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +497,8 @@ VA - Black Hole Trance Music 11-18 (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:29CE2253438904DB67FDCC237E70FB6E5EB46C13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +522,8 @@ Digital Sentry контролирует вашу систему для опре�
 ```bash
 magnet:?xt=urn:btih:D0585C430FAF4FB6E3DADD57D4A22C81D91A9C00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +552,8 @@ Lo Moon - Lo Moon (2018) Columbia Records [FLAC|Lossless|WEB-DL|tracks] <Alterna
 magnet:?xt=urn:btih:5ED294C9804A61EA48A5A3D243D8DA77B5BE18B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +580,8 @@ VA - Best of Trance  Vol.08 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:776C035ECE60D6A9C979B632CA78F0ACAE5A1443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +610,8 @@ Mary Wilson - Mary Wilson (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco>
 magnet:?xt=urn:btih:275EC3EE6AA3A37AE4ED860989B5E62398AF5F12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +639,8 @@ MovieSherlock позволяет загружать любое видео с You
 magnet:?xt=urn:btih:0279631754804F8197853986EE0588CBE8BC3F67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +667,8 @@ MindNode поможет вам упорядочить мысли и проник
 magnet:?xt=urn:btih:219E76DCA9CA643494DA6213282BD5787CA6663B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +693,8 @@ Black Mirror (2017) [Ru/Multi] (1.0) License GOG
 magnet:?xt=urn:btih:7AD47907BEDBF2A0D51A1B0FAE823B367B334E94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +718,8 @@ PayDay 2 - продолжение игры PayDay: The Heist, рассказыв
 ```bash
 magnet:?xt=urn:btih:384E90EABDB3A00FBFA8DB90D3536D2A6F7377F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

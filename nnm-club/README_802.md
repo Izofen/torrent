@@ -22,6 +22,8 @@ VA - Top Indie Rock Mix Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 magnet:?xt=urn:btih:322751D979CD2747C70B1A4AA87D20C81BDE2F70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:322751D979CD2747C70B1A4AA87D20C81BDE2F70
 ```bash
 magnet:?xt=urn:btih:93BA05CBE08B95B5A0D756DBBF1AD4B6204F79E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Todo Rock! 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:443EAE80DC07EAA88F03659E35EA1B1F75201B30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ VA - April is Rock 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:7DA13DA4F1145DEA09DD1428FADF7EBB1F103386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Vintage Culture - Live @ DNA Art Car, Arena Open Camboriu, Brazil (2025-03-02) [
 magnet:?xt=urn:btih:8CBD5F88FA61F0A3F5395DEB227EC86810CC7F5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Nightsteel - Nightsteel (2024) Remastered, 2025, Cosmic Fire Records [FLAC 24/44
 magnet:?xt=urn:btih:160DDDF9A371BE4D58C7AA7B1CC5DEB38A3C645E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:160DDDF9A371BE4D58C7AA7B1CC5DEB38A3C645E
 ```bash
 magnet:?xt=urn:btih:7A8A96200B43FCA925C10DB763CF105E48C5E483
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:7A8A96200B43FCA925C10DB763CF105E48C5E483
 magnet:?xt=urn:btih:987C98A7193AF26FA73A603A4331898DF93E7F7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:987C98A7193AF26FA73A603A4331898DF93E7F7F
 ```bash
 magnet:?xt=urn:btih:8A4B20FF0D2683CB357914784E875FC55F3B4813
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +277,8 @@ OK Go - And the Adjacent Possible (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:E658DEA835D70416FFC3FD251507B47B1BB1FC1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +305,8 @@ Chris Connor - Chris Connor (1956) 1991, Atlantic [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:77BB6294D8DF6E527C86A932F1E874FB63531449
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +335,8 @@ Slaughter the Giant - Asylum of the Damned (2019) EP [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:7A87686CD414316A375E7B6B847439B8E1FD1FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +362,8 @@ magnet:?xt=urn:btih:7A87686CD414316A375E7B6B847439B8E1FD1FA6
 ```bash
 magnet:?xt=urn:btih:E08C632441BE8B94230B32091744556B0815F7BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +391,8 @@ magnet:?xt=urn:btih:E08C632441BE8B94230B32091744556B0815F7BF
 magnet:?xt=urn:btih:302A4CE9333E9BB7B29B738CE05176CC866125D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +418,8 @@ magnet:?xt=urn:btih:302A4CE9333E9BB7B29B738CE05176CC866125D7
 magnet:?xt=urn:btih:08F90B07B73740DFCADF4663D9F906D26FEDEAC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +443,8 @@ magnet:?xt=urn:btih:08F90B07B73740DFCADF4663D9F906D26FEDEAC8
 ```bash
 magnet:?xt=urn:btih:A91E020265FAED7AA891F76E8F0A8AAE3D03D5AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +470,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 magnet:?xt=urn:btih:F216174040C0A58F231BC3AFEFE5A2BD870470F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +496,8 @@ magnet:?xt=urn:btih:F216174040C0A58F231BC3AFEFE5A2BD870470F6
 magnet:?xt=urn:btih:DA4E07D1C09DD90158BC433AB3472F832BA378D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ magnet:?xt=urn:btih:DA4E07D1C09DD90158BC433AB3472F832BA378D6
 ```bash
 magnet:?xt=urn:btih:CF0816900D90F46A6AA3126B63E09F85B05C9839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +551,8 @@ Joe Bonamassa - Santiago - The South American Broadcast (2024) 2 x CD [FLAC|Loss
 magnet:?xt=urn:btih:172C8ED8BF715D7C7ED02449973643CCCF23FA5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +576,8 @@ magnet:?xt=urn:btih:172C8ED8BF715D7C7ED02449973643CCCF23FA5D
 ```bash
 magnet:?xt=urn:btih:6742DC43B6F4932E0845851CA56FBED1CB05B7A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +603,8 @@ magnet:?xt=urn:btih:6742DC43B6F4932E0845851CA56FBED1CB05B7A9
 magnet:?xt=urn:btih:B1B4C12A1E97C2B994EF226A03EA57A82AB67A44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +628,8 @@ Notification Dots v1.2.61 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3D1C4519D3F7DE47E0D4993FC3F4DB6531F43E6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:3D1C4519D3F7DE47E0D4993FC3F4DB6531F43E6F
 magnet:?xt=urn:btih:73D6864C741609D838A8D264948F91E84426ED1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:73D6864C741609D838A8D264948F91E84426ED1E
 magnet:?xt=urn:btih:35EE00A0D72DE40F5400EB0BC1C52C607DCCCF8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ GeoGebra — мультиплатформенная программное об�
 ```bash
 magnet:?xt=urn:btih:35D578BDD3A31F22B65AAA2DB59E059EF8C5A595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

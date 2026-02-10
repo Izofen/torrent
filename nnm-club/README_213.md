@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:EB7901442786E35749C72A956400CF7238975C07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Adobe Premiere Pro 2025 - профессиональная программа д
 ```bash
 magnet:?xt=urn:btih:ABDA11F05B0EBF4D6D47CFA8F67970BE35A51F8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:ABDA11F05B0EBF4D6D47CFA8F67970BE35A51F8A
 magnet:?xt=urn:btih:AEE1A159E1FF2C57ECAF75128C784BE8006B3DEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Forgotten Realms: Demon Stone (2025) [Ru/Multi] (BuildID 19330718) Repack FitGir
 ```bash
 magnet:?xt=urn:btih:7C6888D1AF24DC2F80E777B40B231F45A4CE7F09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:45EF4B90FF1789AE854740225B32B57F8CCA7F8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Space Adventure Cobra - The Awakening (2025) [Multi] (0.01.35/dlc) Repack Let's�
 ```bash
 magnet:?xt=urn:btih:FE127468FE390B2416EAAFF3ED2B9073FD7DEDDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:FE127468FE390B2416EAAFF3ED2B9073FD7DEDDE
 magnet:?xt=urn:btih:7CB587027CA8F15DA9B873145ED7807D6FEF56A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:7CB587027CA8F15DA9B873145ED7807D6FEF56A9
 ```bash
 magnet:?xt=urn:btih:7F57C068E6F8C6E8263B58984891F01B6BC31E8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:7F57C068E6F8C6E8263B58984891F01B6BC31E8C
 magnet:?xt=urn:btih:C4D640F282C2BA68C748326CB72A9840348495D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Aurelia (2024) [Ru/Multi] (1.0.1) Repack Let'sРlay [18+]
 ```bash
 magnet:?xt=urn:btih:AC92A84224079114DF118A7DD9E24B99EE72E253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:AC92A84224079114DF118A7DD9E24B99EE72E253
 magnet:?xt=urn:btih:5805EE947347133C6261BC5B619FACA91E9811EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:5805EE947347133C6261BC5B619FACA91E9811EC
 ```bash
 magnet:?xt=urn:btih:CC4A2EAED5FD210CB3329BA4B2AA200B554265BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:CC4A2EAED5FD210CB3329BA4B2AA200B554265BF
 magnet:?xt=urn:btih:80BA58A8EDEFF6BAA8D6767F1B904A30949FD84E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Enemy Front - это шутер от первого лица, действие �
 magnet:?xt=urn:btih:38DDD4563F211074CEDEC2EE59898F281E0CCE7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ magnet:?xt=urn:btih:38DDD4563F211074CEDEC2EE59898F281E0CCE7D
 ```bash
 magnet:?xt=urn:btih:6E1C8685D35C71B23C0D0EED2CAC6BBEBA60B7CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ VA - Party Mix 80s 90s 00s 10s 20s (2025) [MP3|320 Kbps] <Pop, Dance, Disco, Roc
 magnet:?xt=urn:btih:6A2EA0F2F6F7EB216424993DB927ACAA6C406052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:6A2EA0F2F6F7EB216424993DB927ACAA6C406052
 magnet:?xt=urn:btih:581DE6BF06E886B282216E21842A6D7265DA0E63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ BROK The InvestiGator (2022) [Ru/Multi] (1.5.3.7/dlc) License GOG [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:86A1657B53A0FB31E7FF41F72E55338D0278ABC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:86A1657B53A0FB31E7FF41F72E55338D0278ABC4
 magnet:?xt=urn:btih:50FC16AA2B4D943D48DF52A1802BC097F030EA8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:50FC16AA2B4D943D48DF52A1802BC097F030EA8C
 ```bash
 magnet:?xt=urn:btih:3D87E11862FBA92932FB129AF34B953D8B514EC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:3D87E11862FBA92932FB129AF34B953D8B514EC8
 magnet:?xt=urn:btih:11C862FE57F148B4C478FB74ABB30170E55615D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:11C862FE57F148B4C478FB74ABB30170E55615D9
 magnet:?xt=urn:btih:84CB02944A469DD58AF5BF0D5670FA1DF220D3EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:84CB02944A469DD58AF5BF0D5670FA1DF220D3EA
 ```bash
 magnet:?xt=urn:btih:2B0A82A36BF0B9A495CBC715B8E8C2FC972F0BC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:2B0A82A36BF0B9A495CBC715B8E8C2FC972F0BC3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ magnet:?xt=urn:btih:2B0A82A36BF0B9A495CBC715B8E8C2FC972F0BC3
 magnet:?xt=urn:btih:A3945A210CA33EEAEEEBD9F3DC6163B7A0ABF70F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Nordhold (2025) [Ru/Multi] (1.1.05/dlc) Repack Let'sРlay [Supporter Bundle]
 ```bash
 magnet:?xt=urn:btih:27CE9131BE6BC6899BACE478DD772DB0F25128B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

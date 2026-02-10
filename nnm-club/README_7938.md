@@ -22,6 +22,8 @@ VA - Sola Presents: Miami (2023) [MP3|320 Kbps] <House, Funky House, Tech House,
 magnet:?xt=urn:btih:29F680618A49D6D4B9036C0124AC6CB1D61B83D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:29F680618A49D6D4B9036C0124AC6CB1D61B83D7
 magnet:?xt=urn:btih:1E16283A5A12FD89FCE3B9BB345913D6FBAC509B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:1E16283A5A12FD89FCE3B9BB345913D6FBAC509B
 ```bash
 magnet:?xt=urn:btih:586AE9AB004E67C1A57342D91495CAA0D518D090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ VA - Armin van Buuren - A State Of Trance 1124 (2023) [MP3|320 Kbps] <Trance, Pr
 magnet:?xt=urn:btih:707D0012EEAF28CF4C03A9664BE251385EF04208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ The Gnomon Workshop, Patrick Przybyla | Creating a Combat Finishing Takedown Wit
 ```bash
 magnet:?xt=urn:btih:308B408C0195635D877B15B35CFBA624B0CD07F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:308B408C0195635D877B15B35CFBA624B0CD07F4
 magnet:?xt=urn:btih:5DC1FF04B65CA8D66AAE56806774F8A115E3A777
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Capture All 2.30 [En]
 ```bash
 magnet:?xt=urn:btih:B961BF3BF4DB2C00060A447ED33B53A54E5A07E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ Daniel Blumberg - GUT (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock>
 magnet:?xt=urn:btih:56DE6B8B024E19B67C4CD6470B5AD92D5BFFD332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Sabaton - Defence Of Moscow (2021) WebRip 1080pЖанр: Power MetalПродол
 ```bash
 magnet:?xt=urn:btih:EC538DFDA44BCC17F04AF96A2211E981D2EC4B56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ DJ BoBo - Fantasy (2010) [OGG Vorbis|484 Kbps] <Electronic, Eurodance, Dance-pop
 magnet:?xt=urn:btih:402EF31593ACB37EB97FF0BE42865957E50A7CE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ VA - Rap NNM (2022) Русский Выпуск [MP3|320 Kbps] <Rap>
 magnet:?xt=urn:btih:B1A8AAB1502A0C3AE625358D37ABD79CE43CDFB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ IObit Uninstaller представляет собой удобный инстр�
 ```bash
 magnet:?xt=urn:btih:3AD9C6378F63F21480A1312BF4B2D6B78ABAF225
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ VA - Total EDM Invasion 2023 (2023) [MP3|320 Kbps] <Dance, Club, House, Electron
 magnet:?xt=urn:btih:A58118AF1D8E0AC40F500A6CB7BE9B22BEB98495
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ Kao the Kangaroo (2022) [PS4] [EUR] 5.05 [HEN] [License / 1.03] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3353D6E5F6B2D711BBCA397ADEBAC8693622024D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ CD1:
 magnet:?xt=urn:btih:9EC8838F9FC85124AAF664E6F45ECE2937B810A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ Catherine Wheel - Happy Days (1995) [FLAC|Lossless|tracks + .cue] <Alternative R
 magnet:?xt=urn:btih:E8067072FA8CBDDE295F98FA7B3ADF1A72BA05AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ magnet:?xt=urn:btih:E8067072FA8CBDDE295F98FA7B3ADF1A72BA05AD
 magnet:?xt=urn:btih:2CB4F9CAB6E6C8E09B1B67A20BC0D3654B058A06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ Paletro for Mac 1.8.0 [En]
 ```bash
 magnet:?xt=urn:btih:F890AF4C8F18D665E6D8A166A63F4F4DFB607720
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ Pressure Points - The Island (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive D
 magnet:?xt=urn:btih:22DDA18976CC9253C839CD0644C80261A7DACC25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ Old Man's Bones - Firebird (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Rock, Blues>
 ```bash
 magnet:?xt=urn:btih:C9CBD718F5F5882287DFA4F79F993DD5B2E7334A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +576,8 @@ Glass Kites - Glass Kites II (2021) [MP3|320 Kbps] <Progressive Rock, Crossover 
 magnet:?xt=urn:btih:D626D39C7EDDF7BF2C98350D987E15DFB31606AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:371EBD238460641C46DD639D8A2812791B071839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +629,8 @@ magnet:?xt=urn:btih:371EBD238460641C46DD639D8A2812791B071839
 ```bash
 magnet:?xt=urn:btih:4F56ED80C1531AEA84C55D6A6B1CCEBEC65E3E85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +659,8 @@ Take 6 - Feels Good (2005) I-More [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Sou
 magnet:?xt=urn:btih:F27269AC28412FAF55DF3B5C6CA1526BF854638B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +685,8 @@ magnet:?xt=urn:btih:F27269AC28412FAF55DF3B5C6CA1526BF854638B
 magnet:?xt=urn:btih:521EF77B024915A2882D26C7470851F0A8F1B71D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ magnet:?xt=urn:btih:521EF77B024915A2882D26C7470851F0A8F1B71D
 ```bash
 magnet:?xt=urn:btih:6F8121F3CF94E6C649F1AA2A53BF916B2650C346
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Johnny Winter - 55 Albums, 2 Box Set (1968 - 2016) 74 CD [FLAC|Lossless|image + 
 magnet:?xt=urn:btih:1FD72CE9497B8F57D23436D42E567466AC846E70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Microsoft заявила, что проводник в Windows 11 может р�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ The Smashing Pumpkins - 13 Studio Albums, 1 Live, 4 Compilation, 5 EP, 1 Box Set
 magnet:?xt=urn:btih:931C0781B37D1843A7137EF7B1CA26BA5F3FDF52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:931C0781B37D1843A7137EF7B1CA26BA5F3FDF52
 ```bash
 magnet:?xt=urn:btih:F605AF32AC9144703201A9392F498B7187B1278A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Subverse (2024) [Ru/En] (1.0.2/dlc) Repack Let'sРlay [18+]
 magnet:?xt=urn:btih:838D356BA9605549306E486E09C4BD1770312D27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Age of Defense (2019) [Ru/Multi] (1.19) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:488768E3A804AF894DF0C91C90D38BE42C71F50F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:488768E3A804AF894DF0C91C90D38BE42C71F50F
 magnet:?xt=urn:btih:E42B9058FDFE50738B449EA0D3E8A4DAA03D346D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Toyota провела тайные переговоры с бывшими авт
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Acrobat Pro — это полностью обновленная настоль�
 magnet:?xt=urn:btih:D12B9477CDAC30336026D8F56E9D6F2DA3F3410D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:D12B9477CDAC30336026D8F56E9D6F2DA3F3410D
 ```bash
 magnet:?xt=urn:btih:5066EC20BD99FFB0518AE6D23590B6AE6472EA74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:5066EC20BD99FFB0518AE6D23590B6AE6472EA74
 magnet:?xt=urn:btih:E02952C240EA179CCA62D70F9419FF3FC4ACE7AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:E02952C240EA179CCA62D70F9419FF3FC4ACE7AC
 magnet:?xt=urn:btih:D551578313AA67AE9739C81ADD12A82298AC92A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Railway Empire 2 (2023) [Ru/Multi] (1.6.0.63057/dlc) Repack FitGirl [Digital Del
 ```bash
 magnet:?xt=urn:btih:722473AE9AFC6CCD8FBC830FE3FA911B149DD0AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:722473AE9AFC6CCD8FBC830FE3FA911B149DD0AD
 magnet:?xt=urn:btih:AC7C70637066B38DA9096696F4902A80D79707A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ My Hotel – в этом странном и пугающем месте скр�
 ```bash
 magnet:?xt=urn:btih:B0EB364F3CF15896A433A0890032FD3429A374AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:B0EB364F3CF15896A433A0890032FD3429A374AE
 magnet:?xt=urn:btih:03E75EDC401B6A3CCDE2714841302324940E7235
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Kodachrome 64 — популярная цветная фотопленка, пр
 magnet:?xt=urn:btih:337099B3D02C77CE5F1BC232C6DBF96638CE10B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:337099B3D02C77CE5F1BC232C6DBF96638CE10B4
 ```bash
 magnet:?xt=urn:btih:933716C6C5784FFC92BE8A83E152184C5D639D14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:933716C6C5784FFC92BE8A83E152184C5D639D14
 magnet:?xt=urn:btih:66F793F04B0E4EC2C058A9F42595F8C7CF5D3D8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 ```bash
 magnet:?xt=urn:btih:B14ADD56D2C03A61C6F4494565C4D8CEDEA3083C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:B14ADD56D2C03A61C6F4494565C4D8CEDEA3083C
 magnet:?xt=urn:btih:ED703D63CC30A6A8CEFBA6207B238E041D4581C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Wise Disk Cleaner 11.2.0.837 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:011BD01FB1614156C76C546E74670719626E0B31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:011BD01FB1614156C76C546E74670719626E0B31
 magnet:?xt=urn:btih:93ED8721B1F4C84E5BD13571D778B38B6EFB8778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Shazam (шазам) распознает любую песню за секунд
 ```bash
 magnet:?xt=urn:btih:EA17099750B6229BDFD88B1E75A7EB4BF4DC5276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ VA - Trance Top 100, Vol. 1 (2025) [FLAC|Lossless|WEB-DL|tracks] <Trance>
 magnet:?xt=urn:btih:AB98FB780F10AADA2B7AD7CE3F0AFDB4215D8278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:AB98FB780F10AADA2B7AD7CE3F0AFDB4215D8278
 ```bash
 magnet:?xt=urn:btih:317BD7A408D4EA622A60C9807695FE35C174D2B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

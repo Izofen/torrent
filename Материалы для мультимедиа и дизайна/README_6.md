@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:DDEE39F7934C44DA5413793C000AC6A859529F36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:DDEE39F7934C44DA5413793C000AC6A859529F36
 ```bash
 magnet:?xt=urn:btih:213D7977A9D18DF9567339FC6920C5D4E35F262F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Dygyn - акцидентная антиква с северной душой. Ш
 magnet:?xt=urn:btih:F750F2F820BB78DFAAC83EE288EB61B5F37C4EC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:F750F2F820BB78DFAAC83EE288EB61B5F37C4EC4
 ```bash
 magnet:?xt=urn:btih:88329022A2240F1E777A2D6295E9EBE54AA81448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Arshila Typeface 2.0 — новое определение современно�
 magnet:?xt=urn:btih:6A4C346A57CB7E63517EC3FB120F5110567C2C97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:6A4C346A57CB7E63517EC3FB120F5110567C2C97
 ```bash
 magnet:?xt=urn:btih:3F834C3A46D8A9DCC826CF7B83049787C49F6B93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Neela — это шрифт с засечками в стиле модерн, р
 magnet:?xt=urn:btih:3F70F71975080945A14DF6F75AF9E3DE776DF528
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Spirala — это шрифт, который, с одной стороны, о�
 magnet:?xt=urn:btih:CE93F232B94589E1414F2EFF3E7B65AAB5C23A7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Ui Kits - UI8 - NutriMart - Grocery Shopping App UI Kit [FIG, XD, SKETCH]
 ```bash
 magnet:?xt=urn:btih:B2413F11943F0F0E71FEAA09F941A06884163CA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:B2413F11943F0F0E71FEAA09F941A06884163CA7
 magnet:?xt=urn:btih:A4087F59D88F6C90EB8BE24D50222A9D8E9847DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:A4087F59D88F6C90EB8BE24D50222A9D8E9847DF
 ```bash
 magnet:?xt=urn:btih:84F7DB5AC50F3BB6CD413EA39CBCCFC14FC7D57D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:84F7DB5AC50F3BB6CD413EA39CBCCFC14FC7D57D
 magnet:?xt=urn:btih:8EC3DDDB8631D94DA2256C33042D44B57AFAEABD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:8EC3DDDB8631D94DA2256C33042D44B57AFAEABD
 magnet:?xt=urn:btih:D430ABD16D3FDA09D6E6C1198318474C2C99E930
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Tripsis — это гибрид шрифта старого стиля и гро
 ```bash
 magnet:?xt=urn:btih:67048D77EC6BF0491400A852755F8B606D8163F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Grivel предоставляет идеальное пространство д
 magnet:?xt=urn:btih:37A1FF77A8A502B4742CE3D555B173E0CD6B638F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:37A1FF77A8A502B4742CE3D555B173E0CD6B638F
 ```bash
 magnet:?xt=urn:btih:0FBF26772AEDA14110360BCC0846B5813BA186BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:0FBF26772AEDA14110360BCC0846B5813BA186BE
 magnet:?xt=urn:btih:6D56F50ABA5530523245BD97FB1A0C95B0529907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Agneta — это современная интерпретация класси
 ```bash
 magnet:?xt=urn:btih:D13C08C63E43DA8F3811A179F073E25C81E2CF80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Noto - это глобальная коллекция шрифтов для пи
 magnet:?xt=urn:btih:9FEB3D9CE41242D10FFAB9E15412AA5F3F933BDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Noto - это глобальная коллекция шрифтов для пи
 magnet:?xt=urn:btih:E7D0F221560DF7F0B3F5AB417D394D0CCE7F97F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:E7D0F221560DF7F0B3F5AB417D394D0CCE7F97F3
 ```bash
 magnet:?xt=urn:btih:E28015C68C8115FA44E2DC98D82241E4DBD671D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:E28015C68C8115FA44E2DC98D82241E4DBD671D3
 magnet:?xt=urn:btih:9A23D8B57D81662309C911A7E305E2B60843D7E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Marchise — это семейство современных шрифтов с 
 ```bash
 magnet:?xt=urn:btih:46F02489398DE7311D721CE191AE8A1D3F2E17D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Truegrains содержит 120 векторных текстур в низко�
 magnet:?xt=urn:btih:A5E3972838AC7915DBE756434C36CFD2F627EC1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Wix Madefor - это компактное семейство шрифтов с �
 magnet:?xt=urn:btih:05BA91198E10DA4702CE0FE8DABE759B6014357A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:05BA91198E10DA4702CE0FE8DABE759B6014357A
 ```bash
 magnet:?xt=urn:btih:5BD2945B7DB3A0EF7D93A12FFD0D3F10F8A65EB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

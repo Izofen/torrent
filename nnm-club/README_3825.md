@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C10CBAEA14B29C767049E12FBE614F12C80A7269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C10CBAEA14B29C767049E12FBE614F12C80A7269
 ```bash
 magnet:?xt=urn:btih:5DCF1D778EA197A820630D5EC44ACD0427395468
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:5DCF1D778EA197A820630D5EC44ACD0427395468
 magnet:?xt=urn:btih:445827BA0D1FFDC89C6D100A016F9058ACA12CFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:445827BA0D1FFDC89C6D100A016F9058ACA12CFA
 ```bash
 magnet:?xt=urn:btih:38AD64A72D51FA581D5C4721C1A1D8EC5FEDF556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ uTorrent Pack 1.2.3.82 Repack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:592CA0820C316EE837D7CCA6FFF1DDE9A254351C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:592CA0820C316EE837D7CCA6FFF1DDE9A254351C
 ```bash
 magnet:?xt=urn:btih:3F89856A994670CEE7366CE713B7E203B7136B7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:3F89856A994670CEE7366CE713B7E203B7136B7A
 magnet:?xt=urn:btih:959F28B27C444C7563C0D4308ADBF5610DC85186
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:959F28B27C444C7563C0D4308ADBF5610DC85186
 ```bash
 magnet:?xt=urn:btih:AF03C882FA809392A981E32FB96C913148F621A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ CD1:
 magnet:?xt=urn:btih:587E1A0B6D614B3022D6F2C6D7AEED4597F5CE61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:587E1A0B6D614B3022D6F2C6D7AEED4597F5CE61
 ```bash
 magnet:?xt=urn:btih:58FADBBEDC515270BF241F29BA75656FA789B2EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:58FADBBEDC515270BF241F29BA75656FA789B2EF
 magnet:?xt=urn:btih:90EA636C0CDF38A388D98CC6936AC79B85854A7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Clean Master 9.4.9.3479 Mod by Dymonyxx [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D75D47D1724F345FE7A2838409375271B4905255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:D75D47D1724F345FE7A2838409375271B4905255
 magnet:?xt=urn:btih:442A0A15F514E42C37A87951328258A4586FBE27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Mushoku Tensei II: Isekai Ittara Honki Dasu | Реинкарнация безр�
 ```bash
 magnet:?xt=urn:btih:91B9195DA63483C190A31267E357AFA9DC846DDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Darkest Dungeon 2 - сиквел готической ролевой игры, �
 magnet:?xt=urn:btih:B82CC83B6BC524EF2AF203DF70129B51D1B0C4CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:B82CC83B6BC524EF2AF203DF70129B51D1B0C4CD
 magnet:?xt=urn:btih:74C5BFFEDDBA366171C863F26A17AFD202694412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:74C5BFFEDDBA366171C863F26A17AFD202694412
 ```bash
 magnet:?xt=urn:btih:B8637A049452083E0985C6495CA5A6244E7528C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:B8637A049452083E0985C6495CA5A6244E7528C9
 magnet:?xt=urn:btih:D7576A68A345E0D8E52A4C0BD43AD215F7633F44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:D7576A68A345E0D8E52A4C0BD43AD215F7633F44
 magnet:?xt=urn:btih:9F7263270AAFCF451C01AAF8F9B9A4ABDBAAD26A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:9F7263270AAFCF451C01AAF8F9B9A4ABDBAAD26A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ Boom One - Upgrade - это массивная, постоянно растущ�
 magnet:?xt=urn:btih:3BFF326CFEE3AAADF4A81B5D9FCB7E30F51E4D6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:3BFF326CFEE3AAADF4A81B5D9FCB7E30F51E4D6E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:3BFF326CFEE3AAADF4A81B5D9FCB7E30F51E4D6E
 magnet:?xt=urn:btih:5B55FFAF4DD4557CAB693AC7F88E52F0C7822704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ The Last Worker является атмосферным проектом, пре
 ```bash
 magnet:?xt=urn:btih:76C227427BC05B52D8EBB3C244068D69984252F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:76C227427BC05B52D8EBB3C244068D69984252F1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:76C227427BC05B52D8EBB3C244068D69984252F1
 ```bash
 magnet:?xt=urn:btih:94D5D0A62B273CD635CAAF3C6F76524A392AFEB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

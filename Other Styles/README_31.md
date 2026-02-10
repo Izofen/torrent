@@ -22,6 +22,8 @@ Spiritual Front - The Queen Is Not Dead (2023) [FLAC|Lossless|WEB-DL|tracks] <Ne
 magnet:?xt=urn:btih:F0CCAD6B6F05A0E9840734500201043684ADF53F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Painted Water - Forever With You (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, 
 ```bash
 magnet:?xt=urn:btih:F3C7CA5D461F6B88783F3B5516CCE73F9CF8AE2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Pam Asberry - Thankful Heart, Joyful Mind (2018) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:486150F05F9D4FBC6B7569AF925B6F2417671017
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ James Last - Gold: Greatest Hits (2003) [APE|Lossless|image + .cue] <Instrumenta
 magnet:?xt=urn:btih:536AABFD080414880B1D9285C804CF7626BE903D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ Yanni - Live at The Acropolis (1994) [APE|Lossless|image + .cue] <New Age>
 ```bash
 magnet:?xt=urn:btih:10D951B4D52FBCB31F90BFA6F9770B20FE998FDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -159,6 +169,8 @@ Karamazov Twins — российская рок-группа, созданная
 magnet:?xt=urn:btih:116218F92F4AAFF91D39742717EE05BB2E9331AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ Dr. Jeffrey Thompson - Theta Meditation System 2.0 (1999) [FLAC|Lossless|tracks 
 ```bash
 magnet:?xt=urn:btih:CDB4D8B2C3682C332E833D3F6A690A144430ECEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +225,8 @@ Kevin Braheny - Secret Rooms (1990) [FLAC|Lossless|tracks + .cue] <Electronic, N
 magnet:?xt=urn:btih:A2195668545B1D3FB7C60F5B46DDBFA65722C061
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +253,8 @@ StarCraft II - Legacy of the VoidЖанр: Electronic, Stage & ScreenПродо�
 ```bash
 magnet:?xt=urn:btih:186D381F07D50A0C59575EB0A02CB5F8FA92C651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +283,8 @@ Albums:
 magnet:?xt=urn:btih:3F9D80954B96F92ADD34DCB6E4A45432478453EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +311,8 @@ Georg Philipp Telemann, Markus Kuikka - Fantasias For Viola Da Gamba (2021) [FLA
 ```bash
 magnet:?xt=urn:btih:72620AC933A17BCCC220DFAFCFC860AAE6B7619A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +341,8 @@ Goran Bregovic - Music Inspired And Taken From Underground (1995) [FLAC|Lossless
 magnet:?xt=urn:btih:9E60BD2054B1726D2D7B15428A7118D0BE3E26D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +369,8 @@ Gente de Zona - En Letra de Otro (2018) [MP3|320 Kbps] <Reggaeton, Cubaton>
 ```bash
 magnet:?xt=urn:btih:37D6BD0FE63B82B64EBB6342DF3CA93A82653A05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +399,8 @@ Laura Sullivan - A Magical Christmas (2018) [FLAC|Lossless|WEB-DL|tracks] <Instr
 magnet:?xt=urn:btih:22BC191376C861965C094727BC34B6AD8F037828
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ Laura Sullivan - Serenity: Music for Meditation and Inner Peace [FLAC|Lossless|W
 magnet:?xt=urn:btih:36FA2117DD445A7F276CD9BD00EA99DEEF8AA5FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Willie Nelson - For the Good Times: A Tribute to Ray Price (2016) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:BD8968F1947959AF561CA334FAF49CBB7B5EE984
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ Riverdance - The Best Of (2005) [MP3|256 кб/с]<Folk, Dance>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +520,8 @@ Grand Theft Auto IV - Vladivostok FM (2008) [FLAC|Lossless|tracks+ .cue] <Soundt
 ```bash
 magnet:?xt=urn:btih:D5A2D6C320C1144923FFBC0D261A1E1BC3FD822D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +556,8 @@ magnet:?xt=urn:btih:D5A2D6C320C1144923FFBC0D261A1E1BC3FD822D
 magnet:?xt=urn:btih:5F165B7CB7D4D9439B64E7F8C0CE53592A9EC2D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +590,8 @@ VA - Radio 1 Sonar 1000, Vol. 3 (2013)3CD [FLAC|Lossless|WEB-DL]<Pop, Rock, Soul
 ```bash
 magnet:?xt=urn:btih:6B3703E689E891B8BE5D21F2627C0D783117724C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +626,8 @@ Volume 1: CD 1 - Melodies Forever
 magnet:?xt=urn:btih:691EFA81226632DFE5A8DDB51676EDBAA5B02558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +655,8 @@ VA - Piano Relaxation Covers (2022) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instru
 magnet:?xt=urn:btih:0F1EB82E8F7A29FF6ECD6AD7A288D4C2456D9CB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +683,8 @@ Blackmore’s Night - Here We Come A-Caroling (2020) EP [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:CEE9C83C88CD9D98F94857189E545956CE93C5B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +719,8 @@ A. J. Asiain - 4 albums (2009-2010) [MP3|192 кб/с]<New age, Instrumental, Rel
 magnet:?xt=urn:btih:C3999ED2BC3E9F5C4C31D002B28E73B7047FC407
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,6 +748,8 @@ Gary Ryan - Midnight Guitar (2007) [FLAC|Lossless|tracks + .cue] <Instrumental, 
 magnet:?xt=urn:btih:401CDCD016800A0848B0FB71C0DB7680B8F044A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -726,6 +776,8 @@ Gene Autry's - Christmas Cracker (2009) [FLAC|Lossless|WEB-DL|tracks] <Country>
 ```bash
 magnet:?xt=urn:btih:B384CD382E9C91593D0965F3AEDD72C0799075CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

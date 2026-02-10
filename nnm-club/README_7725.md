@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6CA2C61D8802265E27D796B6E6E63FF928281F78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Uplifting Only Top 15: May 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Tra
 magnet:?xt=urn:btih:A82C6065273208B1350193FD090AEBCC3D169EC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:A82C6065273208B1350193FD090AEBCC3D169EC3
 ```bash
 magnet:?xt=urn:btih:3147E247CA854D8708C13FA06E442B53AEB89C3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ iShowU Studio предоставляет эффективные инструме
 ```bash
 magnet:?xt=urn:btih:2AF481F65FB79071BA97BD5288200FBDDCFAE33E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Fear Button Band - Immigrant (2023) [FLAC|Lossless|WEB-DL|tracks] <Reggae Metal>
 magnet:?xt=urn:btih:2C5C7C6309E9FB4C11968CA4C18D3E725A859E05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:2C5C7C6309E9FB4C11968CA4C18D3E725A859E05
 ```bash
 magnet:?xt=urn:btih:74D1C6E20D3AB1E371CEF5D720A68A5E3BCE8C0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Elektronika Praktyczna (Практическая электроника) - жу�
 magnet:?xt=urn:btih:2FD96004421EAAE5F188D4C4C317E1B40599ED2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:2FD96004421EAAE5F188D4C4C317E1B40599ED2E
 ```bash
 magnet:?xt=urn:btih:38D74E43370F185B730B13C08F34CF8921BCED06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Blazing Eternity - 2 Albums (2000-2003) [FLAC|Lossless|WEB-DL|tracks] <Gothic Me
 magnet:?xt=urn:btih:36ADAB87DA7A9C53928A6ED0E82EF316710228E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ Screamer - Phoenix (2013) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:1F1B9379BE3833865613D554611B987B7D3841C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:1F1B9379BE3833865613D554611B987B7D3841C7
 ```bash
 magnet:?xt=urn:btih:CFF0215E9D10E4614EB13006ECC27083669AF25F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ The Gnomon Workshop, Vitaly Bulgarov | Robotic 3D Design for Entertainment (2018
 magnet:?xt=urn:btih:24690DB4F08E2E519BBF05A66F7A8834C4DFC079
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:24690DB4F08E2E519BBF05A66F7A8834C4DFC079
 ```bash
 magnet:?xt=urn:btih:F6CAEB312ADCA211FDC69FE70E44532FCD774796
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ FastScripts - Утилита для быстрого запуска AppleScript-
 ```bash
 magnet:?xt=urn:btih:AAE02955EBD2D2BB017F75FBC9BAB60951C4B045
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:AAE02955EBD2D2BB017F75FBC9BAB60951C4B045
 magnet:?xt=urn:btih:F022F6980811B6CF978CF4D1D2D5D2AFC7A28B5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ Revolution Saints - Eagle Flight (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:059039F353FB49E8548FF50BA09B622B2A128F7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ Okwaho - The Usurper Regime (2023) [MP3|320 Kbps] <Doom, Sludge Metal>
 magnet:?xt=urn:btih:F58D035E6560C8FB168AAB4A7FC63F226521D30E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:F58D035E6560C8FB168AAB4A7FC63F226521D30E
 ```bash
 magnet:?xt=urn:btih:384184841B3B6A84E9E54989041EB24EEAF3545F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ Manico 2.10 [En]
 ```bash
 magnet:?xt=urn:btih:7A1F26C483FD35011B6B7959059FFD01A0C16D0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ Engine of Chaos - Bleed Black (2023) [FLAC|Lossless|WEB-DL|tracks] <Engine of Ch
 magnet:?xt=urn:btih:79112F2626367315FEEE09902050CF65E394CEAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:79112F2626367315FEEE09902050CF65E394CEAC
 ```bash
 magnet:?xt=urn:btih:A44085364337D2EA34C9F8C579D098B90972F792
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:A44085364337D2EA34C9F8C579D098B90972F792
 magnet:?xt=urn:btih:E67A88FA3D6F77A9BEC26D885BF8A8745459B9BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:E67A88FA3D6F77A9BEC26D885BF8A8745459B9BC
 magnet:?xt=urn:btih:9BBE130B8435101970FDC42E14ADAACFDE88D6FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ magnet:?xt=urn:btih:9BBE130B8435101970FDC42E14ADAACFDE88D6FB
 ```bash
 magnet:?xt=urn:btih:43EAA6AEA0E164E03C33082601DFEBB79E5F1253
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ ScreaMachine - ScreaMachine (2021) Japanese Edition [MP3|320 Kbps] <Heavy Metal>
 magnet:?xt=urn:btih:BCA4996F619ED4AAA320025F7332024094FCD1E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ Death & Legacy - D4rk Prophecies (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Me
 ```bash
 magnet:?xt=urn:btih:DC6DEE6F39BC5026AD5047FBD2594DB38C3708CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

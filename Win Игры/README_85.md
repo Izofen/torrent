@@ -19,6 +19,8 @@ Siberian Way – детективная триллер-новелла. Погр�
 magnet:?xt=urn:btih:D5B655CE95EBDA1639CC2DF389697BDE8DB93171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NINJA GAIDEN 2 Black (2025) [Ru/Multi] (1.0.7.0) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:BC075E8205AB9E6AE3C8518E8D03391A04D454C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Eldrador Creatures Shadowfall (2025) [Multi] (20250131) Repack FitGirl
 magnet:?xt=urn:btih:25BD6498B510F0A7BFA8CE67B463A3A6CAE5C132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Ethereal Abyss - это однопользовательский шутер от
 ```bash
 magnet:?xt=urn:btih:BCB155A9FF53FBD2A9B50769FB85F13967192B06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ One Lonely Outpost (2023) [En] (0.9.11a022-c4afe) Repack FitGirl
 magnet:?xt=urn:btih:6381F85ABDB83AE237A90E0D8757A1CFBB5745B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Oasis Mission: Colony Sim - это стратегический симулято
 ```bash
 magnet:?xt=urn:btih:41DF2CBC8B74CFE976A8D829B908902CFDEC34A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Last Flame (2025) [Ru/Multi] (1.0.2) Repack Let'sРlay
 magnet:?xt=urn:btih:1A66574191B8D90C5FF65F535613FDF3AFB268BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Contra: Operation Galuga (2024) [Ru/Multi] (1.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:9A683090BE86972F232D9C4CE6A1EDD1933FCCBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Broken Roads создана командой настоящих энтузиас
 magnet:?xt=urn:btih:9B756BCD120567BDF5A1E019B5864A97269E9C4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Learning Factory - симулятор, который призван созда�
 ```bash
 magnet:?xt=urn:btih:E096EFB8C90C2B813EFFADE9B06E38D42B1C895A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Command & Conquer (2020) [Ru/Multi] (1.153.11.25007) Repack Let'sРlay [Remaster
 magnet:?xt=urn:btih:BE2D8A2D098E0B10756975B8A9E940DAB6D08A2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ One Military Camp (2023) [Ru/Multi] (1.1.0.38/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F186A54A7BEC3A5D452BD2CD8CE29E7EF22C7E7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Control (2020) [Ru/Multi] (Build 17677094/dlc) Repack Decepticon [Ultimate Editi
 magnet:?xt=urn:btih:44654DA8030F0809E7610382D37C210AE217039C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Test: Reality Check - это одна из нескольких частей
 ```bash
 magnet:?xt=urn:btih:1448865AA54F4A63464CDB2E0F4DEA013FF47143
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Tropico 6 (2019) [Ru/Multi] (23/dlc) Repack FitGirl [El Prez Edition]
 magnet:?xt=urn:btih:814C07282184C0C7DD913268DAA20FADABF4FC9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Control (2020) [Ru/Multi] (Build 17677094/dlc) Repack Wanterlude [Ultimate Editi
 ```bash
 magnet:?xt=urn:btih:BF35A8D4E0906B05B41AD8EE10518878E01A893D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Auto Sale Life (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:3CD062E2707E60E293903B02A47BD4293F4EB0BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ A Way Out (2018) [Ru/Multi] (1.2.0.2) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:D68979524B660DB789DD841101032297DE991F49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Jagged Alliance 3 (2023) [Ru/Multi] (1.5.1.366685) Repack Let'sРlay
 magnet:?xt=urn:btih:E3090BA32262EF07C764E78B0B2A581BED644169
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ My Life: Zoo Vet / Моя жизнь: Ветеринар зоопарка (2025)
 ```bash
 magnet:?xt=urn:btih:EFF3A1B4F8046ACE494F73BAC62C33A972778567
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Moorhuhn Kart 4 (2025) [Ru/Multi] (1.0.12) Repack FitGirl
 magnet:?xt=urn:btih:FC9593AC88C6A86E9F55B23B051407979A82A2D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Rise of the Ronin - динамичная ролевая игра, в котор�
 ```bash
 magnet:?xt=urn:btih:DBA0BA14834753CF2A0949FC1058FCDFF538B2FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Montezuma's Revenge (2025) [Multi] (1.15.0) License GOG [Director's Cut]
 magnet:?xt=urn:btih:666AB2D303CB518FCC145C727C028BA1585906AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Frontline: Assault Corps WW2 (2025) [Ru/Multi] (1.0.20) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:732644725CAC1A946053F78083681AD339AAD56B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Moorhuhn Kart 4 (2025) [Ru/Multi] (1.0.12) Repack seleZen
 magnet:?xt=urn:btih:5EA9B6C7DBC2E32180EC41E326A0CE7695D9CE69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Assassin's Creed IV: Black Flag (2013) [Ru/Multi] (1.08/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:513F69A1AB1838A06286B976A66F3D982CF9953E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:09C80DEC6274F84DB6D057E6A4C35B2B04B0FCA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Sweet Morning (Chill out and Lounge Collection), Vol. 4 (2021) [AAC|~317 Kb
 magnet:?xt=urn:btih:8C1655B7C54339FEBD4F66A5F99E458919484707
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:8C1655B7C54339FEBD4F66A5F99E458919484707
 ```bash
 magnet:?xt=urn:btih:09F8D4BFAE36A969CD9AB9A38A5F4B9F7EA34A5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Acromancer - Acromancer (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stone
 magnet:?xt=urn:btih:01356223D3D562CD50D75683000545F97B7FB22C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:01356223D3D562CD50D75683000545F97B7FB22C
 ```bash
 magnet:?xt=urn:btih:A268D64E3733C68826F24EBCDA21D2499E2AF0D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Stormhaven - Blindsight (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death 
 magnet:?xt=urn:btih:9926DE36965BF7E4A2BAD60F042F43F4CAE8EF25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ XYplorer - удобный мультивкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:DE6E27EF63CBCF87A0CE33306194B74173D50E85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:DE6E27EF63CBCF87A0CE33306194B74173D50E85
 magnet:?xt=urn:btih:3BFFEEA36488492C5F2852B89FE7F274F9773EA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ JANITOR BLEEDS - это вдохновлённая ретро хоррор иг�
 ```bash
 magnet:?xt=urn:btih:1614FA91E2DF3DC6B1F68555B44E5D5619ECB0A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ VA - After Work Chillout, Vol. 2 (2018) [AAC|~324 Kbps] <Lounge, Chill Out, Down
 magnet:?xt=urn:btih:89B6300B9DDD87CBA81AE227FAD145E382052BEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ Birth Control - 21 albums, 26 CD (1970-2022) [FLAC|Lossless|image + .cue | track
 magnet:?xt=urn:btih:3CFCB7328B588468EC3CED37AF241AEC57D8BA83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ Permute - очень простой видео конвертер с миним�
 ```bash
 magnet:?xt=urn:btih:E92A2F21401E982CA0D20775AD973926DB3CC0AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ Rune - The End of Nothing (2003) [FLAC|Lossless|tracks] <Technical Death Metal>
 magnet:?xt=urn:btih:892F9CAA8B16E19C657DC19472CAED7260408FE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:4970AFD0BC311CA8117E44B2541E1E7D5F6ECB2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ Suffer - Global Warming (1993) EP [FLAC|Lossless|image + .cue] <Death Metal>
 magnet:?xt=urn:btih:BC1C50E6AF89B679E349ED6012715B3FC8442092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:BC1C50E6AF89B679E349ED6012715B3FC8442092
 ```bash
 magnet:?xt=urn:btih:E504E7C8DF8CB84847C8E9D36BF46F74F3D035DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ VA - Vanlife Moods, Vol. 1 (2021) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
 magnet:?xt=urn:btih:3014DA7E84AC356C46FD5B7FFF712CF1012075C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ DoubleTake - приложение предназначено тем пользо
 ```bash
 magnet:?xt=urn:btih:F6F32B31A86AE0126CBA9943C55402501444E11D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ FSNotes - это менеджер текстовых заметок для macOS
 magnet:?xt=urn:btih:BD7A7CEDE65300F9D5413AE19158EA0BBE091E30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:BD7A7CEDE65300F9D5413AE19158EA0BBE091E30
 ```bash
 magnet:?xt=urn:btih:4932C6F75CD65A71B2A83A4044C19663DFF18E09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:4932C6F75CD65A71B2A83A4044C19663DFF18E09
 magnet:?xt=urn:btih:8D524EB294ECF7D6D78F7EE0A9598C2DA1E209B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:8D524EB294ECF7D6D78F7EE0A9598C2DA1E209B8
 magnet:?xt=urn:btih:6B424D4C844FDF786987E3937181C499D725242F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ Findroid | Избранник Башни (Книга 3). Tower Edition (2023) [M
 ```bash
 magnet:?xt=urn:btih:A09B0F0753EA4ECFD0F0D1F1993A2ED2F18D882C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ Nocturnal Breed - Carry The Beast (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash, 
 magnet:?xt=urn:btih:285D4B9AD359B24AAFB9FF8C816B0492E39B2F77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ Alice Francis - Electric Shock (2017) [AAC|~282 Kbps] <Neo Charleston>
 magnet:?xt=urn:btih:78A0708C958680E5D374279DA1A1A3B6CC6685D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-
 ```bash
 magnet:?xt=urn:btih:8A4695714A5DEC1FC65CF23C20AC98BCE0D0E3C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

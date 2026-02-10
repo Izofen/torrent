@@ -1,3 +1,29 @@
+###  Публикация: 1255124   (362894) от 18.10.2018
+
+Tmg Gang Feat Sabi Miss, Manro, Angelika Gal - Оскал (2018) [MP3|320 Kbps] <Rap Music>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_362894.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tmg Gang Feat Sabi Miss, Manro, Angelika Gal - ОскалЖанр: Rap MusicПродолжительность: 00:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54D9D490C48EA43CEC8A941C4F102E8468A62838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176833   (362986) от 25.10.2017
 
 VA - По волне моей памяти: Том 14 (2017) [MP3|320 Kbps] <Поп, Ретро, Советская Эстрада>
@@ -21,6 +47,8 @@ VA - По волне моей памяти: Том 14 (2017) [MP3|320 Kbps] <П�
 ```bash
 magnet:?xt=urn:btih:02C585D2A13F23451C813183B75AA9A92072C854
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +77,8 @@ VA - По волне моей памяти: Том 13 (2017) [MP3|320 Kbps] <П�
 magnet:?xt=urn:btih:5D7C5B01947A91C993A8A35A38548E64BB8EFF05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +105,8 @@ VA - По волне моей памяти: Том 10 (2017) [MP3|320 Kbps] <П�
 ```bash
 magnet:?xt=urn:btih:1E5DD536510627E06F65DE617B0DE6F4EB8C7D73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +135,8 @@ VA - По волне моей памяти: Том 9 (2017) [MP3|320 Kbps] <По
 magnet:?xt=urn:btih:89EA67F96723D067B026710393FDD1E134CBAD0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +163,8 @@ VA - По волне моей памяти: Том 11 (2017) [MP3|320 Kbps] <П�
 ```bash
 magnet:?xt=urn:btih:CF21A5E0A8C5A8A208F3DDCEE349DCCFA0D93825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +193,8 @@ VA - Don't Stop The Melody (2020) [MP3|320 Kbps] <Deep House, Electro>
 magnet:?xt=urn:btih:F6E23CF9F2F1AEB4DE4F764A4AE1C619D689436D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +221,8 @@ VA - Euronics Big Room Electro House (2020) [MP3|320 Kbps] <Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:877719A71CE68207BDB1D33243417FF12D521F1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +251,8 @@ VA - Exotic Chillout Sounds (Vol.02) (2020) [MP3|320 Kbps] <Chillout, Downtempo,
 magnet:?xt=urn:btih:7BE18470EDB249558F509B53484A02EFC6B2E116
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +279,8 @@ VA - The Official UK Top 40 Singles Chart 16.10.2020 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:9143B109FC0EE3F22D6CABC54790C0E95AB2DC88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +309,8 @@ Milli Vanilli - Good Songs (2015) [MP3|256-320 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:D86826ED84BCAAD7C64495D4C4FEFF18BA35D16E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +337,8 @@ VA - Music For Everyone - Chillstep & Dubstep Vol.5 (2017) [MP3|320 Kbps] <Chill
 ```bash
 magnet:?xt=urn:btih:29B1991B19ED554B8E87153CBFB11AD4D621AE7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +367,8 @@ VA - Defiled: Hardcore Collection (2020) [MP3|320 Kbps] <Hardcore, Metal, Hard R
 magnet:?xt=urn:btih:8B6CA806EB60E62934F768C0677E627DB51AB7A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +396,8 @@ VA - Hot Jazz in Denmark Vol.3 (2017) [MP3|320 Kbps] <Jazz>
 magnet:?xt=urn:btih:2F56E82B51BD050254DF4FA2D270141220EE7E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +424,8 @@ VA - Beatport Vocal Tranceю Electro Sound Pack #188 (2020) [MP3|320 Kbps] <Tran
 ```bash
 magnet:?xt=urn:btih:8F3559CA41282CCE45B07C914AC90D0CDA9CEB23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +460,8 @@ VA - Европа Плюс Включи Весь Мир! Часть 12 (2012) [M
 magnet:?xt=urn:btih:46E14A74E6EF00E3A6B83EFF5872CC61EB9D1C50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +488,8 @@ VA - Alive And Free: Grand Hip-Hop Collection (2019) [MP3|320 Kbps] <Hip-Hop, Ra
 ```bash
 magnet:?xt=urn:btih:19A93D3BA644A9FD1EADA8B2101CD90872F77855
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +518,8 @@ VA - Rap Constellation: The New Concert (2019) [MP3|320 Kbps] <Rap>
 magnet:?xt=urn:btih:402668E78C4A8865D289580B8531FDD5A61B3338
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +546,8 @@ VA - New Disco Funky Mode (2019) [MP3|320 Kbps] <Disco, Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:8FC68387712B2DA8DD47CE139797DE8437652855
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +576,8 @@ VA - Wild Love: Romantic Collection (2018) [MP3|320 Kbps] <Pop, Rock, Blues>
 magnet:?xt=urn:btih:D0937CB8C789E49CC5D5DBE8FEF82BAB547BEC38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +604,8 @@ VA - MTV Ballads (2005) [MP3|192 - 224 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:C93712CE1F6B025EDCAE9603C3A1E92041C41E9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +634,8 @@ VA - New Italo Disco 2 (2015) [MP3|320 кб/с]<Italo Disco, Eurodisco, Pop>
 magnet:?xt=urn:btih:7FA88E363804F516B23547EA7F101792B9F09E89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +662,8 @@ VA - Autumn Dance (2015) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:F068E433987A4822BE07A1E009EBB79FC974F38E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +698,8 @@ VA - DubStep - Pro V.4 (2012) [MP3|320 кб/с]<DubStep>
 magnet:?xt=urn:btih:875D4613F74F9E176293DEA39A531B87991183FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +733,8 @@ VA - Самые популярные осенние песни (2012) [MP3|320 �
 magnet:?xt=urn:btih:B8D40526F17930C36891E9D1FC2D750ED3BD7B57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,38 +762,7 @@ VA - High Atmosphere: Spirit Of Techno Music (2019) [MP3|320 Kbps] <Techno>
 magnet:?xt=urn:btih:6821204137E0432B905C3EC772BEF591988D80CE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576358   (363554) от 17.11.2012
-
-VA - MAXI. Лучшие хиты для убойной вечеринки (2012) [MP3|320 кб/с]<Pop, Dance, Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_363554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's Right - Innamorati (Radio Edit)
-02. Оксана Ковалевская - А Девочке Хочется
-03. Alex Megane - Turn Me On (Radio Edit)
-04. Allexinno feat. Starchild - Joanna (Radio Edit)
-05. Paul Van Dyk feat. Plumb - I DonСЌt Deserve You (Radio Edit)
-06. Xilent - Touch Sound
-07. Dirty Deejays - In The Club (Radio Edit)
-08. Inna - J'Adore (Radio Edit)
-09. YarosLOVE - Again
-10. DJ Kuba & Ne!tan ft. Heidi Anne - Be My Baby (Radio Edit)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 04:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EDA85CD512CEF3D786611226AFCD8957D18B6E4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

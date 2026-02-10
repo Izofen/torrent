@@ -1,3 +1,29 @@
+###  Публикация: 1350565   (1003287) от 06.01.2020
+
+И.А. Михайлова | 150 праздничных блюд (2016) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1003287.jpg" />
+</div>
+
+
+###  Подробнее
+
+150 – хорошая цифра, не много, но и не мало. Выбор большой. Все, что нужно для праздничного стола: закуски холодные и горячие, салаты легкие из свежих овощей и сытные с мясом или рыбой; мясное жаркое, рыбные деликатесы; пироги, тортики; фруктовые десерты и напитки. Меню получится отменное. И украсить блюда можно оригинально, о чем также рассказано в нашей книге.Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:675D3DAF617D48ACA8BDC729BC8927DCB3560883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487630   (1003300) от 06.08.2021
 
 Ричард Фентон, Андреа Вальц | Я хочу услышать «НЕТ». Как перестать бояться отказов и сделать их своим ресурсом (2021) [FB2]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:4372347B809163ED0ABE5405C9CC2A311CD8A2CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:4372347B809163ED0ABE5405C9CC2A311CD8A2CB
 ```bash
 magnet:?xt=urn:btih:0BE59CA4D952E16E123555E837DE1CEF8267760C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:0BE59CA4D952E16E123555E837DE1CEF8267760C
 magnet:?xt=urn:btih:201360D85B987C2BF201657C91160E3DD784AD6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:201360D85B987C2BF201657C91160E3DD784AD6F
 ```bash
 magnet:?xt=urn:btih:B51CF3E0EE51AB3305DBFC2E16D0D9C56E288635
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:B51CF3E0EE51AB3305DBFC2E16D0D9C56E288635
 magnet:?xt=urn:btih:C1BFBA62F753F95E161E1F598CF25052296CBD4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:C1BFBA62F753F95E161E1F598CF25052296CBD4B
 magnet:?xt=urn:btih:A20D0B0BAB2502F0A48321747ABACB5A06E8DE47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:A20D0B0BAB2502F0A48321747ABACB5A06E8DE47
 ```bash
 magnet:?xt=urn:btih:4A40AA8059041B61A90D5BB2A8850E779DECC644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:4A40AA8059041B61A90D5BB2A8850E779DECC644
 magnet:?xt=urn:btih:D24D2FBEDDA36316BB1EE63D6990AB6BAC1F9614
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:D24D2FBEDDA36316BB1EE63D6990AB6BAC1F9614
 ```bash
 magnet:?xt=urn:btih:E49D5C7803068A591EBEA7F1A1CE65026A0163C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:E49D5C7803068A591EBEA7F1A1CE65026A0163C0
 magnet:?xt=urn:btih:B9BDE9DD08860D928DA79E29FCB0BF21CB2FCF51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:B9BDE9DD08860D928DA79E29FCB0BF21CB2FCF51
 ```bash
 magnet:?xt=urn:btih:72478DA5EFBFC39648B69E4C2F47B504D6F008AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:72478DA5EFBFC39648B69E4C2F47B504D6F008AF
 magnet:?xt=urn:btih:DD054E52F0428800F27FCEB1CEE86B4AB10C1A84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:DD054E52F0428800F27FCEB1CEE86B4AB10C1A84
 ```bash
 magnet:?xt=urn:btih:844FB6BE1E3A40926A2745FBB75B80219BD3E520
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:844FB6BE1E3A40926A2745FBB75B80219BD3E520
 magnet:?xt=urn:btih:5E1724990529818118F1001E00AE35A0478A22BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:5E1724990529818118F1001E00AE35A0478A22BF
 ```bash
 magnet:?xt=urn:btih:2F6B54528B2EF3149D6DF1517CD079EEC4004E41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:2F6B54528B2EF3149D6DF1517CD079EEC4004E41
 magnet:?xt=urn:btih:3A17A96DDB904AEB227FC7B0EA7892788BB3F4DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:3A17A96DDB904AEB227FC7B0EA7892788BB3F4DF
 magnet:?xt=urn:btih:06B7BE0C1EAA7ABE9B9467F1279C903355BB510F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:06B7BE0C1EAA7ABE9B9467F1279C903355BB510F
 ```bash
 magnet:?xt=urn:btih:AFCA7AB3502EE16FD2F3BF204056A48A86848490
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:AFCA7AB3502EE16FD2F3BF204056A48A86848490
 magnet:?xt=urn:btih:5B8F3F7B04B832EBB03927C7B8CF6EF394E471C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:5B8F3F7B04B832EBB03927C7B8CF6EF394E471C6
 ```bash
 magnet:?xt=urn:btih:2AB40E65BE96FDCADE8AB046741F1C9C6EAEC86F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:2AB40E65BE96FDCADE8AB046741F1C9C6EAEC86F
 magnet:?xt=urn:btih:76FB7751C54D376319D3A96E5FFD549827F95DC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:76FB7751C54D376319D3A96E5FFD549827F95DC7
 ```bash
 magnet:?xt=urn:btih:CDF789E987410822D6BA5891F9384A7A257B483D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:CDF789E987410822D6BA5891F9384A7A257B483D
 magnet:?xt=urn:btih:2D7864978357F4029AE5D473A25992CD6FA0FB33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:2D7864978357F4029AE5D473A25992CD6FA0FB33
 ```bash
 magnet:?xt=urn:btih:978081CC14E064EF3734241D7B3BBA415C9D0D51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:978081CC14E064EF3734241D7B3BBA415C9D0D51
 magnet:?xt=urn:btih:0A5B25FB7B77AF621DEA78A016AF9DF44FBB05A7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350123   (1003762) от 04.01.2020
-
-Катрин Маландрино | Француженка. Секреты неотразимого стиля (2017) [PDF, FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1003762.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обольстительные француженки во всём мире считаются эталоном вкуса, стиля и уверенности в себе. Катрин Маландрино, француженка, работающая в Нью-Йорке, известный дизайнер, владелица собственного модного бренда, раскрывает секреты их привлекательности. Женщине необязательно родиться красивой, но необходимо быть смелой и открытой, любить жизнь и не бояться чувств. Настоящая (   Читать дальше...   )Жанр: Зарубежная прикладная литература, Косметика и косметология, Мода и стильФормат: PDF, FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F33D69C9090DE9BC637812FADF2DE19E779A51CE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

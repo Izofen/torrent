@@ -19,6 +19,8 @@ MediaHuman YouTube Downloader 3.9.9.93 (0715) RePack (& Portable) by elchupacabr
 magnet:?xt=urn:btih:4989D332D94BD77C7AD58DB07CBB67BDE5CA8662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:4989D332D94BD77C7AD58DB07CBB67BDE5CA8662
 ```bash
 magnet:?xt=urn:btih:8446D46E29F0E280FA811F27F55F701C406668BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ PDF Unlocker - небольшая программа для разблокиро
 magnet:?xt=urn:btih:CF2BC2701AE558B6278FA659228D6DEB69CF5A3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:E7189B3C15845295A9134024A68225C99B35316E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:5FB5B963167A7E16C69CC15759B16166E444E159
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ O&O ShutUp10 позволяет получить полный контроль �
 magnet:?xt=urn:btih:400F8B1BF082CECC82F47F578BCB829BAC6BBBBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:400F8B1BF082CECC82F47F578BCB829BAC6BBBBE
 ```bash
 magnet:?xt=urn:btih:1F45B6C3F5071479C985E30161BB712B4889A185
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:1F45B6C3F5071479C985E30161BB712B4889A185
 magnet:?xt=urn:btih:00FEDD8E3E6F75BC02E5D931E4E001DEEDE1CE20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:00FEDD8E3E6F75BC02E5D931E4E001DEEDE1CE20
 magnet:?xt=urn:btih:D66E40873562717ABDA4483A56421592E7C0D259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:D66E40873562717ABDA4483A56421592E7C0D259
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:D66E40873562717ABDA4483A56421592E7C0D259
 magnet:?xt=urn:btih:3DD165C80DE534A30F5C5757CD14CDADC173AB36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:3DD165C80DE534A30F5C5757CD14CDADC173AB36
 ```bash
 magnet:?xt=urn:btih:B84D505498DB131C33FBEA696F7C4CFBF0E923C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:B84D505498DB131C33FBEA696F7C4CFBF0E923C0
 magnet:?xt=urn:btih:4951AC8D2B57C9C25AFFE2E54C2D785C1D57C4A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:4951AC8D2B57C9C25AFFE2E54C2D785C1D57C4A4
 ```bash
 magnet:?xt=urn:btih:563B30BE9E0FAD3DD17C12591B3F1D47456C2967
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:563B30BE9E0FAD3DD17C12591B3F1D47456C2967
 magnet:?xt=urn:btih:EA4ABC957BF729B7DC28C493DBDAFE40B6FC8A10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:EA4ABC957BF729B7DC28C493DBDAFE40B6FC8A10
 ```bash
 magnet:?xt=urn:btih:5E27E667AFAAD23ED1A7D490A09F295492A13F66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:5E27E667AFAAD23ED1A7D490A09F295492A13F66
 magnet:?xt=urn:btih:0F934B2F27297FC4E1ABC28FA0FDBBD6266AE109
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:0F934B2F27297FC4E1ABC28FA0FDBBD6266AE109
 ```bash
 magnet:?xt=urn:btih:A845E6F52EAA2E483313EE453D0759063415DF5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:A845E6F52EAA2E483313EE453D0759063415DF5B
 magnet:?xt=urn:btih:4CB62EE8448B1635BAC6B049587C5AAAEB3DCA4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:4CB62EE8448B1635BAC6B049587C5AAAEB3DCA4C
 ```bash
 magnet:?xt=urn:btih:FFDCAE78778493A0BD36A6854BC3D89646EB54CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ GoodbyeDPI 0.2.2 Launcher 7.8 [Ru]
 magnet:?xt=urn:btih:2347AEEED0A5C28B59889165F92679F5E644D39B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:2347AEEED0A5C28B59889165F92679F5E644D39B
 ```bash
 magnet:?xt=urn:btih:B674ED8EA36F3ED1505214C4F46DB199C370B639
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:B674ED8EA36F3ED1505214C4F46DB199C370B639
 magnet:?xt=urn:btih:DC5CEC4EE5BFCF9F9EBB561353A67B935DB3CB32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:DC5CEC4EE5BFCF9F9EBB561353A67B935DB3CB32
 ```bash
 magnet:?xt=urn:btih:4ED051E7BD54C3D0D1A7004D76C2FD1A1B8F29D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Astro Looter: Survivor – настало время отправится нав
 magnet:?xt=urn:btih:6DBCD961DD201423C4F67522F6BFF8EED56AD3B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:6DBCD961DD201423C4F67522F6BFF8EED56AD3B9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

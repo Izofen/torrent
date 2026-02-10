@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5A1444AD37A45861FE4A3AAA257AD6491219F9C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:5A1444AD37A45861FE4A3AAA257AD6491219F9C6
 ```bash
 magnet:?xt=urn:btih:552D3F3A2CF9AC92F06AC0372500E0B89B7DDC18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ aCalendar+ Calendar & Tasks v2.9.0-2b Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:F398EFE65BCF39067EAB0CA3BF9142B3DE744E38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:F398EFE65BCF39067EAB0CA3BF9142B3DE744E38
 magnet:?xt=urn:btih:7EF13E367F40199748349BDE12F8CF6161D510AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ FBReader Premium v3.8.10 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:9089F5850FFA64B1F335847C4B8D6B4B446DA47E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ TapScanner — сканер документов, это простой скан
 magnet:?xt=urn:btih:49D546681ACBB41E3AD6BF08C34DBDADE0C594CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:903EF0E60CDD4E90C2B1AC02AE859575359F5195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ AdGuard — уникальный блокировщик рекламы без п
 magnet:?xt=urn:btih:8FD66520E71E20A1EE122720647C14ADA76F1315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ File Manager Plus / Файловый менеджер + v3.5.8 Mod by Balatan [R
 ```bash
 magnet:?xt=urn:btih:C88501AF6D913182B63685A30E0311277D934EDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Office Tool Plus - функциональная программа для раб
 magnet:?xt=urn:btih:507FE98F3368415488FF75886D5BBBB3E78FB3BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:74DAB3505BB7B262E7C6E539B77AF4E01F7673A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ iTubeGo YouTube Downloader 10.2.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:97850BD102BFC9C841ADD31C754E483728856EE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Perfectly Clear — приложение, которое позволяет вс
 magnet:?xt=urn:btih:12435A37DC097F08C3E5E39468E1D869CFD126B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:12435A37DC097F08C3E5E39468E1D869CFD126B7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:F16B95B2F9B1057E283C8B007165AADDB03F4CE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Adobe Photoshop 2025 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:17D397300B8068C81DE6D01DD00D9E7EE96590BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ HEU KMS Activator — это простая в использовании про
 magnet:?xt=urn:btih:8107073E8C51F0C02BA0FE45B72116C98AA13923
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 ```bash
 magnet:?xt=urn:btih:DAC386844D4BE4864BE9B28DF0BC531313DC50A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:DAC386844D4BE4864BE9B28DF0BC531313DC50A5
 magnet:?xt=urn:btih:E59C771A967A70CBAA0677F5C131DBA97588F4F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ WeNote: заметки блокнот планер v6.33 Mod by PieMods [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:437B38F21A284F29B5056280B4F6C42F4D920BD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ MobiPDF: Редактор и сканер PDF  v11.5.1.267066 Mod by Balatan [Ru
 magnet:?xt=urn:btih:9FF43B4B50F06F8A3B7D675E6BF3A32AEBF6E40E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:9FF43B4B50F06F8A3B7D675E6BF3A32AEBF6E40E
 ```bash
 magnet:?xt=urn:btih:BE35DD9F9FC9D8C83741AF054BCBD60FF100F854
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Folder Player Pro - это ориентированный на каталоги 
 magnet:?xt=urn:btih:671DBE9BBD3AE0873AC9251495CC9CF4F4FF3FC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Squid - рукописные заметки v4.4.0 Mod by Alex.Strannik [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:03A46801BC34B994A88BC7B86BABAE0E1B1F937C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:03A46801BC34B994A88BC7B86BABAE0E1B1F937C
 magnet:?xt=urn:btih:F293787F1F81DD92451DF01DEA6939D3EFB8F99C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Smart Defrag - дефрагментатор, позволяющий довест
 ```bash
 magnet:?xt=urn:btih:15BB049DCEEC6001A99AAFE63708F83BA66ADCFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

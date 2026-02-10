@@ -19,6 +19,8 @@ Gatling Gears это боевик, в котором вам предстоит �
 magnet:?xt=urn:btih:474225475110878A268C02C1D60E4234AC4C7000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Strider – сайд-скроллинговый платформер, дейст
 ```bash
 magnet:?xt=urn:btih:DE09AAD0E78B0CEF7CF6A690BBD3703AF07ED299
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ All Zombies Must Die! (2011) [PS3] [USA] 3.55 [Cobra ODE / E3 ODE PRO ISO] [PSN 
 magnet:?xt=urn:btih:4451A557440548EEAF6F9D135C0098FFEB6D2963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ R.A.W.: Realms of Ancient War – героическая hack & slash эпопе
 magnet:?xt=urn:btih:F10B781BBF83D69410BDEBA2A80C142B4CC8E158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Deadfall Adventures – приключенческий FPS, действия к�
 ```bash
 magnet:?xt=urn:btih:C9D760D5777EC773DEC9D785048956F5CEC3A05B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Iron Man 2, как и первая ее часть основывается на
 magnet:?xt=urn:btih:E970AE0D27647D901B1D437B583E0C759948CF17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ The Walking Dead: Michonne - A Telltale Games Mini-Series – небольшая
 ```bash
 magnet:?xt=urn:btih:26A0AA7008E510748E17B32F817ADA3D5FA2F665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Harry Potter and the Order of the Phoenix основана на пятой ча�
 magnet:?xt=urn:btih:61689687F8E75B3BE01189A847623FE49AD602A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ The Legend of Korra – экшен, основанный на одноименн
 ```bash
 magnet:?xt=urn:btih:3B8D5CAE1178F80F31501EF1E1DE23AAACFAA55A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Rugby Challenge 3 является продолжением спортивной
 magnet:?xt=urn:btih:1EBD7579590612D01F7AB29AE048D47EB73B1E3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ The Outer Worlds переносит игроков в будущее, где л�
 magnet:?xt=urn:btih:26B96CDEE3F66B2150DD73207DA33A83F39BD852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Driver: San Francisco / Driver: Сан-Франциско (2011) [PS3] [EUR] 3.6
 ```bash
 magnet:?xt=urn:btih:05286A3090812C4C8780929F4AF745E490ADECA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Asura's Wrath (2012) [Xbox360] [RegionFree] 13599 [FreeBoot] [Unofficial / TU1 /
 magnet:?xt=urn:btih:0E0528D8748F0A80A16D4FAA7C087708F4C35ABB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ One Piece Burning Blood (2016) [PSVita] [EUR] 3.60 [NoNpDrm] [License / DLC] [Ru
 ```bash
 magnet:?xt=urn:btih:0DD9B8860FD0FAF7969513FC54997979D36AE925
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Raw Danger! (2007) [PS2] [NTSC] PS2 [Unofficial] [Ru]
 ```bash
 magnet:?xt=urn:btih:0BEA6D05FD88E4A521C20C364D36FDB62F68DE46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ The Legend of Zelda: Skyward Sword HD (2021) [Switch] [USA] 11.0.0 [NSZ] [Licens
 magnet:?xt=urn:btih:B7A1F3D221A5CD75958C27CE84B1B05156DC0584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ LittleBigPlanet - Marvel Super Hero Edition (2014) [PSVita] [EUR] 3.60 [NoNpDrm]
 ```bash
 magnet:?xt=urn:btih:F872CEBA17465C52376CF758F7ADA59F0E59849B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Skylanders: Giants (2012) [WiiU] [EUR] 5.5.1 [WUP Installer] [License] [Multi]
 magnet:?xt=urn:btih:E440AE7626AB98696C33388274BDBCD2E6DB18EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Family Guy: Back to the Multiverse — на этот раз взят за осн
 ```bash
 magnet:?xt=urn:btih:5DF09232071DB28E7A45D6563678EB91395D5A3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Grey's Anatomy (   Читать дальше...   )Тип издания: Ли�
 magnet:?xt=urn:btih:54FDC925E20EB988F9718E2284CBF4836BB1C603
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Child of Light Complete Edition (2014) [PSVita] [EUR] 3.60 [NoNpDrm] [License / 
 ```bash
 magnet:?xt=urn:btih:04B13E65C30771E0C3471C0E42D8D350685F596B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ UEFA EURO 2016 включает в себя пакет всех выпущенн
 magnet:?xt=urn:btih:4ADA35F367439955946BCDCDA8C876794A8D3D8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Masquerade: The Baubles of Doom (2016) [Xbox360] [RegionFree] 16537 [FreeBoot] [
 ```bash
 magnet:?xt=urn:btih:3B255D582E890C7017CFC698B9BE5793D919C2B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Assassin’s Creed Chronicles: Trilogy (2016) [PSVita] [EUR] 3.60 [NoNpDrm] [Lic
 magnet:?xt=urn:btih:D1EAA9E2DD26381A2A77F83F1E17309A115C9B3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Marvel vs. Capcom 3: Fate of Two Worlds - это продолжение конс
 ```bash
 magnet:?xt=urn:btih:C7521DECE564BDF1F26103B5B9DFB74C369C1465
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +681,8 @@ Drakan: The Ancients' Gates [PS2] [PAL] [Multi5] (2002)
 ```bash
 magnet:?xt=urn:btih:1938E9157D5A76C5F8001711E78F9BD0A0842475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

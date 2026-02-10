@@ -1,3 +1,29 @@
+###  Публикация: 1039286   (594567) от 02.08.2016
+
+А. М. Тутаев | Реакционная секта Батал-Хаджи (1968) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594567.jpg" />
+</div>
+
+
+###  Подробнее
+
+В брошюре на конкретных местных примерах рассказывается о вредной преступной деятельности религиозной секты Батал-Хаджи в Ингушетии.Жанр: История, религиоведение, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9BF9A08A947813C5F48C07AF8913773ECF2390E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039432   (594571) от 02.08.2016
 
 А. В. Авксентьев | Ислам и быт (1964) [DJVU]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:10A67DD4B9BC9FC505FB9BF453C01139E64ABB23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:10A67DD4B9BC9FC505FB9BF453C01139E64ABB23
 magnet:?xt=urn:btih:4AE4E50B2CF6298D6C0AD4B0D4661277476B6962
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:4AE4E50B2CF6298D6C0AD4B0D4661277476B6962
 ```bash
 magnet:?xt=urn:btih:9D7DDF4F1B011D4684E6DB4855E0C7A6D4F47DC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:9D7DDF4F1B011D4684E6DB4855E0C7A6D4F47DC2
 magnet:?xt=urn:btih:F16A34800F2C61296A565EFD37803E9D8C1CEF1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:F16A34800F2C61296A565EFD37803E9D8C1CEF1C
 magnet:?xt=urn:btih:70095CA34C5B5841A4A348BA0782D3D3E7FD705C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:70095CA34C5B5841A4A348BA0782D3D3E7FD705C
 magnet:?xt=urn:btih:9D177F0CEBFEF8C928CBE7A70E5EE01958A1A552
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:9D177F0CEBFEF8C928CBE7A70E5EE01958A1A552
 ```bash
 magnet:?xt=urn:btih:20F7D8AAACEB5EA97DDEA01A0563616D1811A9ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:20F7D8AAACEB5EA97DDEA01A0563616D1811A9ED
 magnet:?xt=urn:btih:9B53AD2CE3F96C126FB08CF487A2B44EA1C95A1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:9B53AD2CE3F96C126FB08CF487A2B44EA1C95A1A
 ```bash
 magnet:?xt=urn:btih:9E9B1EB8DFC66FC24C10AA99FD55868287F8C81C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:9E9B1EB8DFC66FC24C10AA99FD55868287F8C81C
 magnet:?xt=urn:btih:B1C047FFC7E8B7A82FD04C74E407107F81FEA2C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:B1C047FFC7E8B7A82FD04C74E407107F81FEA2C6
 ```bash
 magnet:?xt=urn:btih:FA4780DAC982739E21C6CFA254C4272CB5B05268
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:FA4780DAC982739E21C6CFA254C4272CB5B05268
 magnet:?xt=urn:btih:389EE2095E1B6B66FDFE39EAA7D8162003019A5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:389EE2095E1B6B66FDFE39EAA7D8162003019A5C
 ```bash
 magnet:?xt=urn:btih:EA6C5EF7180CE51C1A721DEC6B42BF8777FC6B50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +393,8 @@ magnet:?xt=urn:btih:EA6C5EF7180CE51C1A721DEC6B42BF8777FC6B50
 magnet:?xt=urn:btih:EA60216F0DC2163E327D77C2637D863F79DCF694
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:EA60216F0DC2163E327D77C2637D863F79DCF694
 magnet:?xt=urn:btih:8EA8692A2A2C1859B2DFEFD1A22B862C13E44CB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:8EA8692A2A2C1859B2DFEFD1A22B862C13E44CB6
 ```bash
 magnet:?xt=urn:btih:24947047EC81C9CFD039520E5002E39DBD48BC8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:24947047EC81C9CFD039520E5002E39DBD48BC8E
 magnet:?xt=urn:btih:48C275548C04CFED016CBA0345B499F550B22AD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +498,8 @@ magnet:?xt=urn:btih:48C275548C04CFED016CBA0345B499F550B22AD2
 ```bash
 magnet:?xt=urn:btih:FC28B7F7A76EBA99B4A74019C0699B8CADE88031
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:FC28B7F7A76EBA99B4A74019C0699B8CADE88031
 magnet:?xt=urn:btih:23F4A8A00DDDC8B2B3734CFDE8E8E408EBED7E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +553,8 @@ magnet:?xt=urn:btih:23F4A8A00DDDC8B2B3734CFDE8E8E408EBED7E62
 magnet:?xt=urn:btih:3F8709F9B426600C979167937252EB25840F8053
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:3F8709F9B426600C979167937252EB25840F8053
 ```bash
 magnet:?xt=urn:btih:4C2CEBF4D54B3B5BDB6753C8B2B4C08EB52E7D0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:4C2CEBF4D54B3B5BDB6753C8B2B4C08EB52E7D0F
 magnet:?xt=urn:btih:1A06BB4B9E00E6979B59C257DAFAF7FDF4655074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:1A06BB4B9E00E6979B59C257DAFAF7FDF4655074
 magnet:?xt=urn:btih:32775D8CCF856C5BBFEB7B8F5B79A6573CADC56C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:32775D8CCF856C5BBFEB7B8F5B79A6573CADC56C
 ```bash
 magnet:?xt=urn:btih:0C33D0E06D2B1B86617F88E9C0652062BFA791D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,29 +685,7 @@ magnet:?xt=urn:btih:0C33D0E06D2B1B86617F88E9C0652062BFA791D0
 magnet:?xt=urn:btih:D5745726680878CD5BBB2EB4EF72F3CEAAC87522
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039691   (595609) от 01.08.2016
-
-Гай Дойчер | Сквозь зеркало языка. Почему на других языках мир выглядит иначе (2014) [FB2]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595609.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга «Сквозь зеркало языка» – один из главных научно-популярных бестселлеров последних лет. Почему в некоторых культурах синий и зеленый цвета обозначаются одним и тем же словом? Почему Гомер называл море «виноцветным»? Почему коренные жители Австралии вместо «правый» и «левый» говорят «западный» и «восточный»? Как язык определяет образ жизни человека и судьбу народа? (   Читать дальше...   )Жанр: Популярная лингвистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9646D1DC789E5DFED04D048895DD5C3A6219ED
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

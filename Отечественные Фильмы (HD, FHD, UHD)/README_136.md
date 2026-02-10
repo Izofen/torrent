@@ -1,3 +1,29 @@
+###  Публикация: 574368   (1031459) от 14.02.2021
+
+ДухLess (2012) BDRemux [H.264/1080p]
+
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой фильма — 29-летний топ-менеджер крупного международного банка по имени Макс. Он уверен, что жизнь удалась, ведь у него есть то, о чём многие не могут даже и мечтать: дорогая машина, пентхаус и вечеринки. Свою жизнь Максим тратит на зарабатывание денег, а деньги — на ночные клубы, шикарных девушек, кокаин и прочие атрибуты гламурной жизни. Но в какой-то (   Читать дальше...   )Производство: Россия / Art Pictures Studio, Фонд кино, КинословоЖанр: ДрамаРежиссер: Роман ПрыгуновАктеры: Данила Козловский, Мария Андреева, Артем Михалков, Никита Панфилов, Артур Смольянинов, Михаил Ефремов, Мария Кожевникова, Сергей Белоголовцев, Саша Бурдо, Дмитрий ДороховПеревод: Оригинал (Русский)Субтитры: ОтсутствуютПродолжительность: 01:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45D2E4214C6533D4A93BF31C691459ADDF177F9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447676   (1031609) от 14.02.2021
 
 Ездок (2021) WEBRip [H.264/720p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:6CE231B95099E18083F3F4EF83D3A44686B9A222
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:6CE231B95099E18083F3F4EF83D3A44686B9A222
 magnet:?xt=urn:btih:9E4B1C38A34E28208D65477218A50A89CBE333C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:9E4B1C38A34E28208D65477218A50A89CBE333C6
 ```bash
 magnet:?xt=urn:btih:BA1DC425804651177E0F34A367B999EB3664D129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:BA1DC425804651177E0F34A367B999EB3664D129
 magnet:?xt=urn:btih:ED009914CB97CDB26CB60BF74B2B5A05F7005E74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:ED009914CB97CDB26CB60BF74B2B5A05F7005E74
 ```bash
 magnet:?xt=urn:btih:B5AF1B428AD2A559F1B340DBD1A00CB49859A5B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:B5AF1B428AD2A559F1B340DBD1A00CB49859A5B1
 magnet:?xt=urn:btih:2446275637E7C5E855360308D6B46C2D3B19A836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:2446275637E7C5E855360308D6B46C2D3B19A836
 ```bash
 magnet:?xt=urn:btih:BADBAAE4C395E15BD76A75C8DD9B09951924059A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:BADBAAE4C395E15BD76A75C8DD9B09951924059A
 magnet:?xt=urn:btih:F144304F221788761CE463AE6DCA30611B4626F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:F144304F221788761CE463AE6DCA30611B4626F3
 ```bash
 magnet:?xt=urn:btih:F46E1A82B3E7FA78422139B51CEDAF92E4FE4D51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:F46E1A82B3E7FA78422139B51CEDAF92E4FE4D51
 magnet:?xt=urn:btih:CB5DE93DB7D113CA53BE84549519C07CE7A4ECC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:CB5DE93DB7D113CA53BE84549519C07CE7A4ECC6
 ```bash
 magnet:?xt=urn:btih:E81C74B78CA5D446C8ACF3E1DE76C1A057888114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:E81C74B78CA5D446C8ACF3E1DE76C1A057888114
 magnet:?xt=urn:btih:17CCF641EFC9075C5D0B6221DA638430298F6F90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:17CCF641EFC9075C5D0B6221DA638430298F6F90
 ```bash
 magnet:?xt=urn:btih:AD08218A6EBF28FC5FE38FE9DD9FEB4B0941FE41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:AD08218A6EBF28FC5FE38FE9DD9FEB4B0941FE41
 magnet:?xt=urn:btih:CC9E0A4CFAB51E947505BA481846835F517E7AB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +409,8 @@ magnet:?xt=urn:btih:CC9E0A4CFAB51E947505BA481846835F517E7AB1
 ```bash
 magnet:?xt=urn:btih:438D12DABF08B8C2A3ED295E73DFD86BBDDE21C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:438D12DABF08B8C2A3ED295E73DFD86BBDDE21C1
 magnet:?xt=urn:btih:E6528B511A0FB867F588E7697CD7426BCDD0B3EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ magnet:?xt=urn:btih:E6528B511A0FB867F588E7697CD7426BCDD0B3EC
 ```bash
 magnet:?xt=urn:btih:9421ED0F8C4BFC8ABF997D9DFEAB99AF77B38A52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:9421ED0F8C4BFC8ABF997D9DFEAB99AF77B38A52
 magnet:?xt=urn:btih:DD456095B0EC6DBDAD0BB1E980AFEC0DD8B5CA68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ magnet:?xt=urn:btih:DD456095B0EC6DBDAD0BB1E980AFEC0DD8B5CA68
 ```bash
 magnet:?xt=urn:btih:61CF2914C113C5CDFBEE73ED6283A56B264B822E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:61CF2914C113C5CDFBEE73ED6283A56B264B822E
 magnet:?xt=urn:btih:3F7B0F63E3B983447380C82B2CB01763EB7D672D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:3F7B0F63E3B983447380C82B2CB01763EB7D672D
 magnet:?xt=urn:btih:E08FD4E90FB5AC14B4B71948A05AE3A1DEF7CF69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:E08FD4E90FB5AC14B4B71948A05AE3A1DEF7CF69
 ```bash
 magnet:?xt=urn:btih:F289CE08B852EC589D7B5F66343ECF1E5DE2CC49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:F289CE08B852EC589D7B5F66343ECF1E5DE2CC49
 magnet:?xt=urn:btih:050127CE618F285EE257D4B233B4B21509D32F2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:050127CE618F285EE257D4B233B4B21509D32F2F
 ```bash
 magnet:?xt=urn:btih:5DA7AE5948C38BF62F742BFB1540FB57FDE38D41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,30 +671,7 @@ magnet:?xt=urn:btih:5DA7AE5948C38BF62F742BFB1540FB57FDE38D41
 magnet:?xt=urn:btih:03317B1EB65062456B394D6B8789D182432C5A1C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444609   (1034430) от 02.02.2021
-
-Обратные реакции (2018) WEBRip [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1034430.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам рассказа Виктории Токаревой «Центр памяти».
-В квартире пожилой женщины, Варвары Тимофеевны, происходят странные, пугающие вещи - трясутся стены, посуда вываливается из кухонных шкафчиков, мебель сама передвигается вдоль стен. Хождения с жалобами по инстанциям для Варвары Тимофеевны не увенчались успехом. Женщина напугана и пытается выяснить, в чем же дело, (   Читать дальше...   )Производство: Россия / СПБГИКиТЖанр: Короткометражный, трагикомедия, экранизацияРежиссер: Борис АроновАктеры: Антонина Введенская, Ольга Белявская, Юлия Шубарева, Александр Муравицкий, Василий Гузов, Александр Андреев, Сергей Яценюк, Дарья ЦиберкинаСубтитры: ОтсутствуютПродолжительность: 00:29:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09736E6C87A037264B7AD9EA718A447F9A023EB3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

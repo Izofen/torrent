@@ -1,3 +1,30 @@
+###  Публикация: 1005172   (834157) от 08.04.2016
+
+Другие оффшоры Президента. Оффшорная элита Украины (2016) HDTVRip [RUS, UKR]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Другие оффшоры Президента.
+Весь мир всколыхнула история о глобальном утечка огромного массива данных об оффшорных компаниях и их владельцев, получивший название «Панамские бумаги». Публикация задела украинского президента. Порошенко заверил, что это была просто техническая необходимость для передачи его бизнес в управление банка «Ротшидльд». На самом деле президент (   Читать дальше...   )Телекомпания: Радио СвободаЖанр: ТелепередачаПеревод: ОтсутствуетПродолжительность: 00:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74184D844E6E60F5CCD53FFF64E3F63FBD77E792
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 657267   (834247) от 08.04.2016
 
 Ушуайя: Тайный язык природы / Ushuaa nature: Les codes secrets de la nature (2008) BDRip [H.264/1080p-LQ]
@@ -20,6 +47,8 @@
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@
 magnet:?xt=urn:btih:3BC1C5BF71809E070F8A78DDA891D4B044C84AA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:3BC1C5BF71809E070F8A78DDA891D4B044C84AA2
 ```bash
 magnet:?xt=urn:btih:51AFE26FB78B7EE556843CEB942D1FC9406D89BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:51AFE26FB78B7EE556843CEB942D1FC9406D89BD
 magnet:?xt=urn:btih:89C0D254499B2192CA4ECB4FDD43CDADEAF49C25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:89C0D254499B2192CA4ECB4FDD43CDADEAF49C25
 ```bash
 magnet:?xt=urn:btih:BF9880DE64E0891489DE713084C7A8238CEEFD70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:BF9880DE64E0891489DE713084C7A8238CEEFD70
 magnet:?xt=urn:btih:5D17D24CA9006D33C0FCAF5E80D75AECB926DBCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:5D17D24CA9006D33C0FCAF5E80D75AECB926DBCC
 ```bash
 magnet:?xt=urn:btih:A1B190904E6675A9CE981F9DDEAB88BFB0ED282F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +230,8 @@ magnet:?xt=urn:btih:A1B190904E6675A9CE981F9DDEAB88BFB0ED282F
 magnet:?xt=urn:btih:8B320ADC983C0BBF686CE194354754DB11FFCA3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +255,8 @@ magnet:?xt=urn:btih:8B320ADC983C0BBF686CE194354754DB11FFCA3E
 ```bash
 magnet:?xt=urn:btih:5A62F05D3CFB46399DFC4A0FB9735DFBA2120F94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:5A62F05D3CFB46399DFC4A0FB9735DFBA2120F94
 magnet:?xt=urn:btih:1E46FF677D51A6A93468C92B21CCC67749D78F7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +307,8 @@ magnet:?xt=urn:btih:1E46FF677D51A6A93468C92B21CCC67749D78F7E
 ```bash
 magnet:?xt=urn:btih:15FBB1CC7B71851471191CC8283B9AA3EDA40067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +334,8 @@ magnet:?xt=urn:btih:15FBB1CC7B71851471191CC8283B9AA3EDA40067
 magnet:?xt=urn:btih:082AB53D5E9644D5D9F7C32D30F1C9197F0E9065
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +359,8 @@ magnet:?xt=urn:btih:082AB53D5E9644D5D9F7C32D30F1C9197F0E9065
 ```bash
 magnet:?xt=urn:btih:1EFDB9ACB866EC00E34376D99B880A9FB8BA245A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +386,8 @@ magnet:?xt=urn:btih:1EFDB9ACB866EC00E34376D99B880A9FB8BA245A
 magnet:?xt=urn:btih:D5E3F2C0AB82F56296CDDEC74BBBED0D8EB0E9D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +411,8 @@ magnet:?xt=urn:btih:D5E3F2C0AB82F56296CDDEC74BBBED0D8EB0E9D4
 ```bash
 magnet:?xt=urn:btih:8DDBFCCDD29267E4632BC87A4A6BDA702349E007
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +438,8 @@ magnet:?xt=urn:btih:8DDBFCCDD29267E4632BC87A4A6BDA702349E007
 magnet:?xt=urn:btih:11FA919E7181449C1DFADEC5265E237536030FF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +463,8 @@ magnet:?xt=urn:btih:11FA919E7181449C1DFADEC5265E237536030FF5
 ```bash
 magnet:?xt=urn:btih:431CB46A0F3D6C48650F8EE2017B61641B95B377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +490,8 @@ magnet:?xt=urn:btih:431CB46A0F3D6C48650F8EE2017B61641B95B377
 magnet:?xt=urn:btih:304E5B41B87347BBE1F2FD5C338DE631678CC2C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +515,8 @@ magnet:?xt=urn:btih:304E5B41B87347BBE1F2FD5C338DE631678CC2C4
 ```bash
 magnet:?xt=urn:btih:6511281444AE0A0961A239110F5EF64B89D8A139
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +545,8 @@ magnet:?xt=urn:btih:6511281444AE0A0961A239110F5EF64B89D8A139
 magnet:?xt=urn:btih:FE6ABD9556CF6BF8909BB6144E953F17214EF645
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +570,8 @@ magnet:?xt=urn:btih:FE6ABD9556CF6BF8909BB6144E953F17214EF645
 ```bash
 magnet:?xt=urn:btih:59B378E64EDB32BF3028AE157CB977F1F7C9112D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +597,8 @@ magnet:?xt=urn:btih:59B378E64EDB32BF3028AE157CB977F1F7C9112D
 magnet:?xt=urn:btih:D00FF87E32B894C274CB69ACB04935E40DC87F39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +622,8 @@ magnet:?xt=urn:btih:D00FF87E32B894C274CB69ACB04935E40DC87F39
 ```bash
 magnet:?xt=urn:btih:EEC2D43DC6A964CD243C6303C0114A59A3E13F5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +649,8 @@ magnet:?xt=urn:btih:EEC2D43DC6A964CD243C6303C0114A59A3E13F5C
 magnet:?xt=urn:btih:67B84648EAEC2837817493CE26BCB63CB9578429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,29 +675,7 @@ magnet:?xt=urn:btih:67B84648EAEC2837817493CE26BCB63CB9578429
 magnet:?xt=urn:btih:301C72B9FB31234E220ADA9A7C312417FBAA38E4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501526   (835117) от 10.10.2021
-
-Новые Танцы (2021) WEBRip [H.264/1080p] (сезон 1, выпуск 9)
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_835117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новое танцевальное шоу! Лучшие танцовщики страны снова выходят на сцену. Теперь не будет наставников и их команд, а только очные танцевальные поединки между участниками в четырёх категориях: соло, дуэты, дети и команды. Оценивать выступления участников будет Мигель совместно с двумя приглашенными гостями. Компанию неизменной ведущей Ляйсан Утяшевой составит Ульяна (   Читать дальше...   )Телекомпания: Россия, Comedy Club Production, Телеканал ТНТЖанр: Реалити-шоу, танцы, развлекательный, хореографияСубтитры: ОтсутствуютПродолжительность: 01:27:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF9D182EAAD0687D97EE848E1FC52E5AC1589DF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

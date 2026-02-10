@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:79A62223D12E1BAA3D397C7831DBB6774F84A331
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Resize Sense приложение, которое поможет вам изме
 ```bash
 magnet:?xt=urn:btih:BDBCBD283DC070992A15BF0E934D9AB546B8BFB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Tyrone Cotton - Man Like Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:67094D6A55EC9F6635AB86F4099FBA678F417762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:67094D6A55EC9F6635AB86F4099FBA678F417762
 ```bash
 magnet:?xt=urn:btih:834688865C10BB054578140EA3A50627F8E06EEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ B1. Slither (04:03)(   Читать дальше...   )Жанр: Progressive Dea
 magnet:?xt=urn:btih:E49269CE9A95AB7D03D11EEDCA85332FAB051E75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Memorial Day - Embark Hades (1995) [MP3|320 Kbps] <Gothic, Doom, Death Metal>
 ```bash
 magnet:?xt=urn:btih:93A047AD106AA08F0F2156DCB685DFE436BF57C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ magnet:?xt=urn:btih:93A047AD106AA08F0F2156DCB685DFE436BF57C3
 magnet:?xt=urn:btih:439DC904D606B9A4D82864FC321906FFB4EC8C82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ Jorg (Jörg) Danielsen - Foolin’ Around (2023) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:B69FDE73416C8C77040A96F08E2DAF4CB3131EC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:B69FDE73416C8C77040A96F08E2DAF4CB3131EC4
 ```bash
 magnet:?xt=urn:btih:89DFCBBDA669438F71D522ACBDE9E6B4BB5B47C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +277,8 @@ Just Before Dawn - On the History of Destruction (2017) Compilation [FLAC|Lossle
 magnet:?xt=urn:btih:EB3C703F89EF93AB4AFB6CDEB2D147B78D627A55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +303,8 @@ magnet:?xt=urn:btih:EB3C703F89EF93AB4AFB6CDEB2D147B78D627A55
 magnet:?xt=urn:btih:F31331BB158CACBEAA7FAC926786BC3453153013
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ magnet:?xt=urn:btih:F31331BB158CACBEAA7FAC926786BC3453153013
 ```bash
 magnet:?xt=urn:btih:9352070B21900F9F45C1B77D82586E429207EBE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +358,8 @@ Planethard - Equilibrium (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock, P
 magnet:?xt=urn:btih:228C6B731EC6ED7162688391FA601D8AC9DAA1AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +387,8 @@ Jetboy - Crate Diggin' (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:94BA306B72C7103891CDBBA62CFB0204683654F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +412,8 @@ Aspect Ratio X - калькулятор для расчёта соотношен
 ```bash
 magnet:?xt=urn:btih:3C78E058DF91C3AB9162193928B62D667B57B112
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +439,8 @@ JixiPix переносит винтаж в совершенно новый эк�
 ```bash
 magnet:?xt=urn:btih:FB309D6502AC825320F694F3A374D0D57E0E3F0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +469,8 @@ Don't Drop the Sword - Age of Heroes (2023) [FLAC|Lossless|WEB-DL|tracks] <Power
 magnet:?xt=urn:btih:8D0D3EE5834B26C576FEE16E883A9161051FF291
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +494,8 @@ magnet:?xt=urn:btih:8D0D3EE5834B26C576FEE16E883A9161051FF291
 ```bash
 magnet:?xt=urn:btih:CC0AD5412DA7C1F534F72F5B067A2AE131638E21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +522,8 @@ magnet:?xt=urn:btih:CC0AD5412DA7C1F534F72F5B067A2AE131638E21
 magnet:?xt=urn:btih:77331EA4F3F5011A20BB46E6F5340C23E78F3CA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +547,8 @@ magnet:?xt=urn:btih:77331EA4F3F5011A20BB46E6F5340C23E78F3CA8
 ```bash
 magnet:?xt=urn:btih:6F978749AC62A36FDC14DA7D4231EB3ECE3E7DAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +577,8 @@ Wet Cactus - Magma Tres (2023) [FLAC|Lossless|WEB-DL|tracks] <Desert Rock, Heavy
 magnet:?xt=urn:btih:EDE417D7DB11FAAC1056D621346DEAC2E9D14618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +606,8 @@ Silent Angel - Unyielding, Unrelenting (2023) [FLAC|Lossless|WEB-DL|tracks] <Pow
 magnet:?xt=urn:btih:C0097EFAFE8A073ADA1EB1A0A28173876D8123D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ magnet:?xt=urn:btih:C0097EFAFE8A073ADA1EB1A0A28173876D8123D4
 ```bash
 magnet:?xt=urn:btih:D93B6F3638ABA8C3A726B0D0188D42C762FF57D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +658,8 @@ magnet:?xt=urn:btih:D93B6F3638ABA8C3A726B0D0188D42C762FF57D0
 ```bash
 magnet:?xt=urn:btih:87D77EBAFD0760B542761F86CC01ECD3695824A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +687,8 @@ Pat Martino - Consciousness (1974) 1999, Sony Music [FLAC|Lossless|tracks + .cue
 ```bash
 magnet:?xt=urn:btih:369AE7301F921E6A0A277A5E764B68003B48B713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +720,8 @@ Deborah Coleman - 7 Альбомов (1997-2007) [MP3|320 кб/с]<Blues>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

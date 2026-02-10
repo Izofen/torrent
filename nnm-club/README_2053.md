@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D830563B91772A37768918595C0A0204F8586DA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Builders of Greece (2024) [Ru/Multi] (14640143) Repack Wagner [Early Access]
 ```bash
 magnet:?xt=urn:btih:7DE9121E64AD38757F471DD0C1627DCD96D9DA31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:7DE9121E64AD38757F471DD0C1627DCD96D9DA31
 magnet:?xt=urn:btih:510F91A01C7FCEB7C819DEA01BC5A70FADCF7837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:510F91A01C7FCEB7C819DEA01BC5A70FADCF7837
 ```bash
 magnet:?xt=urn:btih:8DFB0E2AD273C4CDDA398D0A1259F98A4C63BE50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Coromon – ролевое инди-приключение про прируче
 magnet:?xt=urn:btih:684B0045CA126D1073118A2BFE9754B971D55586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:684B0045CA126D1073118A2BFE9754B971D55586
 ```bash
 magnet:?xt=urn:btih:CF0DA4D9728B3602C92DE9D49C5AEF1609371A0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:CF0DA4D9728B3602C92DE9D49C5AEF1609371A0C
 magnet:?xt=urn:btih:07C564103BC1D597A3339707CB088758037945D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:07C564103BC1D597A3339707CB088758037945D3
 ```bash
 magnet:?xt=urn:btih:250CF6DA316E08AF40A58197FE5017BEDF323F39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Mafia (2020) [Ru/Multi] (1.0.3/dlc) Repack dixen18 [Definitive Edition]
 magnet:?xt=urn:btih:DC2556A068998339CDF4CD083545F9D89C8FF3FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Mafia II (2) (2020) [Ru/En] (1.0u1/dlc) Repack dixen18 [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:544F106C9114DD18EB6C231C38114292BF17C1BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ MY DESTINY GIRLS (2024) [Multi] (20240417) Scene Tenoke
 magnet:?xt=urn:btih:09AD4A64731D095E861D5726347B2F13274CDE0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Alone in the Dark (2024) [Ru/Multi] (1.0.5b/dlc) License GOG [Digital Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:6F62A8BBCB3258D3131B1B56417C01E182EFBF94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:6F62A8BBCB3258D3131B1B56417C01E182EFBF94
 magnet:?xt=urn:btih:BD7A7DE7EBEE3C4ADCDA1C68DD7443B9111E4F4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Mafia III (3) (2020) [Ru/Multi] (1.0.1/dlc) Repack dixen18 [Definitive Edition]
 ```bash
 magnet:?xt=urn:btih:28377E70CF9D8163B8CE02BAE59A77DDD8BB61F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:28377E70CF9D8163B8CE02BAE59A77DDD8BB61F6
 magnet:?xt=urn:btih:31F43E0AB3D450A92C5F6D3BE7F0DB6B50001850
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ WitchSpring R (2023) [Multi] (1.307/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:E3CD0E4DAAF8C9D4943C65FFEF50DA11139933F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:E3CD0E4DAAF8C9D4943C65FFEF50DA11139933F9
 magnet:?xt=urn:btih:970A85A3A427B66C60810BB9E1FD738D9A962006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:970A85A3A427B66C60810BB9E1FD738D9A962006
 magnet:?xt=urn:btih:7995C55C62BE026CC705DDD1E7926F690B058C35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Revo Uninstaller Pro 5.3.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D41047AB95B2BF6AAD77054EBC7AC9E83D3D2694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ ArtStation, Milad Kambari | Substance Painter Master Course (2024) PCRec [EN]
 magnet:?xt=urn:btih:3B97933F30AC2B3610304B719297C16B250FAB1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:3B97933F30AC2B3610304B719297C16B250FAB1B
 ```bash
 magnet:?xt=urn:btih:38A916C8B044E243E06278D5F0618F6F247E53DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:38A916C8B044E243E06278D5F0618F6F247E53DA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:38A916C8B044E243E06278D5F0618F6F247E53DA
 ```bash
 magnet:?xt=urn:btih:095A5E339BF2CCD414E3295963C8AAFB2A82C400
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:095A5E339BF2CCD414E3295963C8AAFB2A82C400
 magnet:?xt=urn:btih:7D43693224949811B90D70C6F4D3003E496B2512
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Highrise City совмещает в себе элементы как строи�
 ```bash
 magnet:?xt=urn:btih:78A2B07C90028D2069F83B8C14EE60A3EDF0A4A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:78A2B07C90028D2069F83B8C14EE60A3EDF0A4A9
 ```bash
 magnet:?xt=urn:btih:9DF6568A05F7C66588BD5F2D42CD496F93AFA540
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

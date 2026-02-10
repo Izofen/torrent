@@ -1,27 +1,3 @@
-###  Публикация: 779823   (770979) от 22.04.2014
-
-Тарзан / Tarzan (2013) BDRip [1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_770979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Во время крушения американского воздушного лайнера в джунглях погибли все пассажиры, выжил лишь один младенец. Он стал приемышем в стае диких обезьян, которые выкормили, вырастили его, научили выживать в этом жестком мире естественного отбора… Пришло время, и теперь мощный и ловкий, он должен защитить свой мир от врагов. Но главное — он должен снова стать человеком.Производство: ГерманияЖанр: Мультфильм, семейный, приключенияРежиссер: Райнхард КлооссАктеры: Келлан Латс, Спенсер Лок, Тревор Ст. Джон, Лес Бабб, Брайан Блум, Брайан Хаски, Роберт Капрон, Джейми Рэй Ньюман, Марк Деклин, Джо ОсмондПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EDCD7C04019ED37623F3DC2B1578D170C96E93C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 779622   (770989) от 22.04.2014
 
 Тарзан / Tarzan (2013) BDRemux [1080p]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:7EDCD7C04019ED37623F3DC2B1578D170C96E93C
 ```bash
 magnet:?xt=urn:btih:22CA9F1A63B4B6E8F46FD36E94484E9C26265ABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:22CA9F1A63B4B6E8F46FD36E94484E9C26265ABA
 magnet:?xt=urn:btih:207D8B31B471574AB7D9E5CABB4B754F0AA53443
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:207D8B31B471574AB7D9E5CABB4B754F0AA53443
 magnet:?xt=urn:btih:07EB2627C8613D19B51FFA59C1100386B1707BF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +96,8 @@ magnet:?xt=urn:btih:07EB2627C8613D19B51FFA59C1100386B1707BF2
 ```bash
 magnet:?xt=urn:btih:5CF21B7A9B0FC5F015BDE20A1D78E6405CB50F00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:5CF21B7A9B0FC5F015BDE20A1D78E6405CB50F00
 magnet:?xt=urn:btih:B7AE80D0ABED140C6594076666A9C7DDB656BFC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:B7AE80D0ABED140C6594076666A9C7DDB656BFC1
 ```bash
 magnet:?xt=urn:btih:279EA311AD19D8F1C5859497A999459B71F7BCFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +178,8 @@ magnet:?xt=urn:btih:279EA311AD19D8F1C5859497A999459B71F7BCFE
 magnet:?xt=urn:btih:9ADD03B0EE3CBD0A10276F331F5D36119BC51C4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +204,8 @@ magnet:?xt=urn:btih:9ADD03B0EE3CBD0A10276F331F5D36119BC51C4A
 ```bash
 magnet:?xt=urn:btih:75FCA405F39902FAC86D83A722CB4E5F849002CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +232,8 @@ magnet:?xt=urn:btih:75FCA405F39902FAC86D83A722CB4E5F849002CD
 magnet:?xt=urn:btih:07DA48D379B1EC90B2FF80C5D6C492175ACF1BA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +258,8 @@ magnet:?xt=urn:btih:07DA48D379B1EC90B2FF80C5D6C492175ACF1BA2
 ```bash
 magnet:?xt=urn:btih:2B0D8A0559E81FB8B0D0C8FBFF0AF281806C0F67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +286,8 @@ magnet:?xt=urn:btih:2B0D8A0559E81FB8B0D0C8FBFF0AF281806C0F67
 magnet:?xt=urn:btih:17926005DEBFA7BCE403A427CA6CF9E92F9C05AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +311,8 @@ magnet:?xt=urn:btih:17926005DEBFA7BCE403A427CA6CF9E92F9C05AD
 ```bash
 magnet:?xt=urn:btih:A76C7435CC3C2D59448B3581F0ECD2AF244DD1D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +338,8 @@ LEGO Супергерои DC: Лига Справедливости – Косм
 magnet:?xt=urn:btih:0724F23289C2C6DC266DD5AD617D63D216A7C111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +364,8 @@ magnet:?xt=urn:btih:0724F23289C2C6DC266DD5AD617D63D216A7C111
 magnet:?xt=urn:btih:600095DC797FB041996C4D898B88A3370172E0CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +389,8 @@ magnet:?xt=urn:btih:600095DC797FB041996C4D898B88A3370172E0CC
 ```bash
 magnet:?xt=urn:btih:68D3BD88ADE74B82820DE720C7A663196C605381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +417,8 @@ magnet:?xt=urn:btih:68D3BD88ADE74B82820DE720C7A663196C605381
 magnet:?xt=urn:btih:958265282C4E7187B249AA8C5A26937ABC360A26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +443,8 @@ magnet:?xt=urn:btih:958265282C4E7187B249AA8C5A26937ABC360A26
 magnet:?xt=urn:btih:BE43F00DFFA97F00CF5F4DF836426626149B3E44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +468,8 @@ magnet:?xt=urn:btih:BE43F00DFFA97F00CF5F4DF836426626149B3E44
 ```bash
 magnet:?xt=urn:btih:D29767C46EF17303438E3E653357CDADDF29F229
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +496,8 @@ magnet:?xt=urn:btih:D29767C46EF17303438E3E653357CDADDF29F229
 magnet:?xt=urn:btih:CFF7391512349A537D3B3BDC6B62AC9B9B955192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +521,8 @@ magnet:?xt=urn:btih:CFF7391512349A537D3B3BDC6B62AC9B9B955192
 ```bash
 magnet:?xt=urn:btih:7F08FC809F7E97A996CD6EB61A4B7990A9A1C6AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +548,8 @@ magnet:?xt=urn:btih:7F08FC809F7E97A996CD6EB61A4B7990A9A1C6AB
 magnet:?xt=urn:btih:8E02A678DD1F8EC9C68507C57C973B2EDBAD24BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +573,8 @@ magnet:?xt=urn:btih:8E02A678DD1F8EC9C68507C57C973B2EDBAD24BA
 ```bash
 magnet:?xt=urn:btih:60FDF79C86591184DBB62881724EFC14464FDED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +600,8 @@ magnet:?xt=urn:btih:60FDF79C86591184DBB62881724EFC14464FDED0
 magnet:?xt=urn:btih:EF4D328AD32AA85B89C77FAAD37288EEB701628B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +626,8 @@ magnet:?xt=urn:btih:EF4D328AD32AA85B89C77FAAD37288EEB701628B
 magnet:?xt=urn:btih:D832800CE75F05D14318B0B3B6527D5BA7FA4DC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +651,35 @@ magnet:?xt=urn:btih:D832800CE75F05D14318B0B3B6527D5BA7FA4DC8
 ```bash
 magnet:?xt=urn:btih:1A594E75168817098F312A09C19DE86BAA6EB2E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209560   (779164) от 27.02.2018
+
+Фердинанд / Ferdinand (2017) BDRip [H.264/1080p-LQ] [EN / EN Sub]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_779164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фердинанд — самый добродушный бык во всей Испании. Несмотря на внушительные размеры и недюжинную силу, он с детства предпочитал сидеть на лужайке и любоваться цветами вместо того, чтобы бодаться с другими быками. По нелепой случайности Фердинанд был выбран среди других соплеменников для участия в бое быков в Мадриде.
+Фердинанду предстоит отстоять свои миролюбивые (   Читать дальше...   )Производство: США, Blue Sky Studios, Davis Entertainment, Twentieth Century Fox AnimationЖанр: Мультфильм, Приключения, Комедия, СемейныйРежиссер: Карлос СалданаПерсонажи: Джон Сина, Кейт МакКиннон, Дэвид Теннант, Бобби Каннавале, Энтони Андерсон, Джек Гор, Джет Юргенсмейер, Найл Диас, Колин Х. Мерфи, Карлос Салдана ...Перевод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом)Продолжительность: 01:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E1F0363DFD49E8DFBD34D182E19CFF8891F7DB
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

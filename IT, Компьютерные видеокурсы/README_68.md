@@ -19,6 +19,8 @@ google | Сборник видеоуроков по Python [2006-2008] [EN] CamR
 magnet:?xt=urn:btih:48993A4D52C861318B8BFD98AC7862752546CD58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:48993A4D52C861318B8BFD98AC7862752546CD58
 magnet:?xt=urn:btih:0729B003F3276E5497AFDAC1801317634F13A1ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:0729B003F3276E5497AFDAC1801317634F13A1ED
 ```bash
 magnet:?xt=urn:btih:8A3D6D55562233A8C2CE574F1845812F0B183A63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:8A3D6D55562233A8C2CE574F1845812F0B183A63
 magnet:?xt=urn:btih:39C036A4BE83ADA99D5D8449988F976BCF048A35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:39C036A4BE83ADA99D5D8449988F976BCF048A35
 ```bash
 magnet:?xt=urn:btih:FB61EE1163EA95C8A99535085BBEA90ABF204ECB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:FB61EE1163EA95C8A99535085BBEA90ABF204ECB
 magnet:?xt=urn:btih:C59162687646929A79318C5274B7EA487AC5989F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ ProfIT | Современные PHP-фреймворки (2017) PCRec [H.264/720
 ```bash
 magnet:?xt=urn:btih:B37B95CBA8D40F34F8F533E27D34C1236013EB96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -207,6 +221,8 @@ magnet:?xt=urn:btih:B37B95CBA8D40F34F8F533E27D34C1236013EB96
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +246,8 @@ magnet:?xt=urn:btih:B37B95CBA8D40F34F8F533E27D34C1236013EB96
 ```bash
 magnet:?xt=urn:btih:94D7C4F1AF3DC16AF6D15ED7333193D3375115CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:94D7C4F1AF3DC16AF6D15ED7333193D3375115CA
 ```bash
 magnet:?xt=urn:btih:655A38FC3B825C9E317B437FA14CAEDF487531D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +304,8 @@ magnet:?xt=urn:btih:655A38FC3B825C9E317B437FA14CAEDF487531D0
 magnet:?xt=urn:btih:8C43B89C4B9DD433CD529F8E95BFEE9255DF5408
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ magnet:?xt=urn:btih:8C43B89C4B9DD433CD529F8E95BFEE9255DF5408
 ```bash
 magnet:?xt=urn:btih:3D6E3782C146BD9E1DAB69AA929FA2EB1AC3C8A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +361,8 @@ magnet:?xt=urn:btih:3D6E3782C146BD9E1DAB69AA929FA2EB1AC3C8A8
 magnet:?xt=urn:btih:5ECBD9AC06359BA5EC0E2A2F381E4D459A6FCFB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +390,8 @@ magnet:?xt=urn:btih:5ECBD9AC06359BA5EC0E2A2F381E4D459A6FCFB4
 magnet:?xt=urn:btih:79581533C439D2D16426D7E102E2BCA82D9C164E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +417,8 @@ magnet:?xt=urn:btih:79581533C439D2D16426D7E102E2BCA82D9C164E
 ```bash
 magnet:?xt=urn:btih:26A285D4A67CD766F431BA56EDBE5D5707E7904C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +446,8 @@ Hitesh Choudhary - международный спикер и консульта
 magnet:?xt=urn:btih:65A3277700C39232B3B65278B42983BC80A27CA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +473,8 @@ OWASP объединяет крупные компании, образовате
 ```bash
 magnet:?xt=urn:btih:992D0803DF67F51B08EAF8E9324A41C277247F67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +506,8 @@ magnet:?xt=urn:btih:992D0803DF67F51B08EAF8E9324A41C277247F67
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +531,8 @@ magnet:?xt=urn:btih:992D0803DF67F51B08EAF8E9324A41C277247F67
 ```bash
 magnet:?xt=urn:btih:5375C03114BE599AFD62CA4FE72B3277258738DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +558,8 @@ magnet:?xt=urn:btih:5375C03114BE599AFD62CA4FE72B3277258738DD
 magnet:?xt=urn:btih:A869A41FBD7698439BC49D8867B89FB409A085F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +584,8 @@ Sony Vegas - профессиональная программа для виде
 magnet:?xt=urn:btih:EC7D241286F2FA051E8B52103C160616036053D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +609,8 @@ magnet:?xt=urn:btih:EC7D241286F2FA051E8B52103C160616036053D5
 ```bash
 magnet:?xt=urn:btih:87897242599A3F5E27BB75955F363F5822DF3571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +645,8 @@ DVD-TEACH | Парсер контента собственными руками 
 magnet:?xt=urn:btih:CF509259DF7A706B28D62329DC292FACADD48156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +671,8 @@ magnet:?xt=urn:btih:CF509259DF7A706B28D62329DC292FACADD48156
 magnet:?xt=urn:btih:E3563CE698E74DD36E600957AF3FC406D5FCC95E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +696,8 @@ Lynda.com | PHP (2012-2014) [PCRec] [EN]
 ```bash
 magnet:?xt=urn:btih:E51FBCDE625F5756295F9C4BB0BE674D572348DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -674,6 +724,8 @@ magnet:?xt=urn:btih:E51FBCDE625F5756295F9C4BB0BE674D572348DE
 ```bash
 magnet:?xt=urn:btih:AECF8DE8F6BD84C513F604F6BBFF56507B720637
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

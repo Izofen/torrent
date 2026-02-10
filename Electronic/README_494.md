@@ -22,6 +22,8 @@ Dominik Eulberg - Mannigfaltig (2019) [FLAC|Lossless|tracks + .cue] <Techno, Tec
 magnet:?xt=urn:btih:0020D78DF4A05E02C425DC34B90E6ECBAE703339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Köhnen Pandi Duo (Kohnen Pandi Duo) - Darkness Comes In Two's (2017) Svart Lava
 ```bash
 magnet:?xt=urn:btih:BE6DEC51B2DE26B37B279B8180D4F05C71DAF772
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - BBC Radio 1 Dance Weekend (2021-08-06) [MP3|~245 Kbps (V0)] <House, Tech Ho
 magnet:?xt=urn:btih:23E0BC1DCB8207ACD02F962E399B00596894B866
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Max Cooper - Discography 61 Releases (2008-2021) Traum Schallplatten, Fields, Me
 ```bash
 magnet:?xt=urn:btih:4A7B7F15D11403BAF5031022FF192DC5C9C9F990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Nebulo - Discography 12 Releases (2006-2019) Hymen Records [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:E9CFF51247CAC0785E03D98B3C2721279A5FCCC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Clocolan - Discography 9 Releases (2016-2021) BauSatz [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:2A7702CA2FC944189B1E3FBF3617F552D09EF108
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Airplanemusic | Diego H. Nascimento - Discography 25 Releases (2011-2021) Midia8
 magnet:?xt=urn:btih:6D1267D691B7C58D07B6D72395816762A27D7ACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Paleowolf - Cenozoic (2021) Prometheus Studio [FLAC 2.0|44.1/24|tracks|WEB-DL] <
 ```bash
 magnet:?xt=urn:btih:D118F05BCCC219730154303CE5C79193BEF9FCC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ Aeon Cub - Vacant King (2021) Kaer'Uiks [FLAC|Lossless|WEB-DL|tracks] <IDM, Glit
 magnet:?xt=urn:btih:2255D408F08BC7F4828D0326C67FF6BFCA79C70F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ VA - Lotus Love: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balear
 ```bash
 magnet:?xt=urn:btih:2A905B4800A84C0B281FC2921D9ABB72E698396B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ Dopefist - Nice Dreams (2019) Gated [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM,
 magnet:?xt=urn:btih:8BF4C70841539EF491C13F9A40ABF304A3844BE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ Dmitriy Redko (AstroPilot, Manifestor, Yoga Mantra) - Discography 85 Releases (2
 ```bash
 magnet:?xt=urn:btih:28AF9FD68FFB68BE402859C83B8CB05175107B1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ Bobina - 15 Years: The Best Of, Vol. 1 (2019) Compilation [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:0CF42FD5007905D33C45DFB892274E5233932EB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ VA - Ushuaia Ibiza The Album: 5th Anniversary (2015) 2CD [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:BAB078CCA3BD234D5A00B4A00E3F9C83A0ED18E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +425,8 @@ V.A. - Bossanova Lounge (2021) [FLAC|Lossless|WEB-DL|tracks] <Bossa Nova, Lounge
 magnet:?xt=urn:btih:59D098D70F78F304F5FE09431132CA82E6C4D744
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ Joel Tammik (Rajaleidja) - Collection 15 Releases (2004-2019) [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:9F5727AA4F1A155E26BF6060227293A1FBB8C7FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ CD1:
 magnet:?xt=urn:btih:E1C093434B1C295BCC84AECB62E88B7A86133993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +508,8 @@ Lane 8 - Brightest Lights (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Prog
 ```bash
 magnet:?xt=urn:btih:51685F631BB225CDB5E9A6A8C554F9D21327A902
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +538,8 @@ Andromeda - The Remixes (2005) Yellow Sunshine Explosion [FLAC|Lossless|tracks+.
 magnet:?xt=urn:btih:2A598300DE87C2B96DCCDDDB6653225769A43EE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +566,8 @@ Anders Ilar - Discography 29 Releases (2002-2021) [FLAC|Lossless|tracks+.cue, tr
 ```bash
 magnet:?xt=urn:btih:F9BEE76FCB02612C8697FF2D21859A79A2184288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +596,8 @@ Manual | Jonas Munk - Discography 29 Releases (2000-2021) Morr Music, Darla Reco
 magnet:?xt=urn:btih:D2135D5660D4B31FA8E263335568350CA991116D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +624,8 @@ Blank & Jones - #WhatWeDoAtNight 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Progres
 ```bash
 magnet:?xt=urn:btih:75203886C3CF88434AFBD04F45852C87639AFCA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +654,8 @@ VA - Chillout And Ambient Pieces, Vol. 5 (2019) [FLAC|Lossless|WEB-DL|tracks] <D
 magnet:?xt=urn:btih:85FD4EC2AF462A511DD922C42E9FB4B77B03B4CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +683,8 @@ TeHÔM (TeHOM) - Discography 6 Releases (1996-2021) Twilight Command, Cyclic Law
 magnet:?xt=urn:btih:C1C1B5CCA4B928FF2E88916202FF3D84B9178DD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +710,8 @@ TheFatRat - Discography (2011-2021) [FLAC|Lossless|WEB-DL|tracks] <Electro, Glit
 ```bash
 magnet:?xt=urn:btih:8F0449CC8FE41596C1FD6F7510861FD82EE45468
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -689,6 +739,8 @@ Faithless - All Blessed (2021) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pro
 ```bash
 magnet:?xt=urn:btih:063A91A4AA33D29F381916FC9BAF7B969ABF04CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

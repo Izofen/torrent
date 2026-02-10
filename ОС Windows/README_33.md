@@ -1,3 +1,30 @@
+###  Публикация: 1489849   (914884) от 22.08.2021
+
+Microsoft Windows 10.0.19043.1165, Version 21H1 (Updated August 2021) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_914884.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 21H1 Build 19043.1165.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D1CC4AD452423531FEB3EC82149CABCF2F53AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490184   (916566) от 21.08.2021
 
 Windows 8.1 6.3 (9600.20094) Enterprise + Pro (2in1) x64 by Brux [Ru/En]
@@ -19,6 +46,8 @@ Windows 8.1 6.3 (9600.20094) Enterprise + Pro (2in1) x64 by Brux [Ru/En]
 ```bash
 magnet:?xt=urn:btih:770205BF500DB359A7E061B649913AF73CC68851
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ Windows 10 Enterprise 2016 LTSB, Version 1607 with Update [14393.3564] (x64) by 
 magnet:?xt=urn:btih:4AD2DA95110D4B3D14989E062E62630BFE267A6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ Windows 7 SP1 with Update [7601.24550] AIO 11in2 (x86-x64) by adguard (v20.03.11
 ```bash
 magnet:?xt=urn:btih:F951A59D865C935A27A1EB395E4E00722CB3E70A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +128,8 @@ Recovery USB-Flash for Dell Inspiron 3542 / Windows 10 Home (х64) [Ru]
 magnet:?xt=urn:btih:C6376800D605E97ADEE2BF4409EDE2DB3C530350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +153,8 @@ Windows Server 2019 LTSC, Version 1809 Build 17763.2114 (Updated August 2021) О
 ```bash
 magnet:?xt=urn:btih:19BBB0F4CEE60245623E29342315A57305FAD632
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +181,8 @@ Microsoft Windows 10.0.19042.1165, Version 20H2 (Updated August 2021) - Ориг
 magnet:?xt=urn:btih:40FD1DDBD7D0FF26A01BD04D5B440D85CDFA6FA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +206,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 ```bash
 magnet:?xt=urn:btih:2E38BBF09740FE6094D3CB8650C147A0575E3D1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +234,8 @@ Microsoft Windows 10.0.17763.2114, Version 1809 (Updated August 2021) - Ориг
 magnet:?xt=urn:btih:24AD3400E0C3E8196F1DDC8C4F77B9CD8EF478D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +261,8 @@ Microsoft Windows 10.0.19042.1165, Version 20H2 (Updated August 2021) - Ориг
 magnet:?xt=urn:btih:D5309288AC065D0AEE823461A7C63163748E006E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +286,8 @@ Windows 10 — операционная система для персональ
 ```bash
 magnet:?xt=urn:btih:45589B38FAAC71A6C21B2661A9BA102B673F57D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +313,8 @@ Windows 10 — операционная система для персональ
 magnet:?xt=urn:btih:981F8E3C91F55A955B9D4B83242C2CCD5EFBBD6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +339,8 @@ magnet:?xt=urn:btih:981F8E3C91F55A955B9D4B83242C2CCD5EFBBD6A
 magnet:?xt=urn:btih:75D11C9EBDF58DCCD32A9457E542101610EA160B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +364,8 @@ Windows 8.1 ProfessionalWMC with UpdateЯзык интерфейса: English, �
 ```bash
 magnet:?xt=urn:btih:6202BD7A4311D37580475800A1E6F4AA38E207A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +392,8 @@ Windows 8.1 Single Language with Update 3 [November 2014] [Ru/En]
 magnet:?xt=urn:btih:8F83695AEB57C84AA1D2220B39F6509726571FAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +418,8 @@ Windows 8.1 ProfessionalWMC with UpdateЯзык интерфейса: Украї
 magnet:?xt=urn:btih:1FF1545C7A87F9D81D73E1F8BE23C66CA85EDE73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +443,8 @@ Windows Server 2019 LTSC 1809 Build 17763.1039 (Updated February 2020) Ориг�
 ```bash
 magnet:?xt=urn:btih:8F55569B15B0023BD262068C803636855DFCADD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +471,8 @@ Microsoft Windows 10.0.18363.657 Version 1909 (February 2020 Update) - Ориг�
 magnet:?xt=urn:btih:69C4112C306CE7963FB9A2F95EF68CAACFAA10E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +496,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 ```bash
 magnet:?xt=urn:btih:50F43539997D91116868023B5C9A870C61A4E5B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +524,8 @@ Microsoft Windows 10.0.18362.657 Version 1903 (February 2020 Update) - Ориг�
 magnet:?xt=urn:btih:E9BF5DBBBCD3C4E39B1A10B9CD2509F4CBCC4EB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +550,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 magnet:?xt=urn:btih:D5689933CC6728A98A99B95A1148511B2B916E77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +575,8 @@ Windows Server - это проверенная масштабируемая пл
 ```bash
 magnet:?xt=urn:btih:8CBACA81809CA9575F41A01D88E7E5AB2A46782F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +603,8 @@ Microsoft Windows 10.0.17763.1039 Version 1809 (February 2020 Update) - Ориг
 magnet:?xt=urn:btih:FD362A4B516DD1A32B8999616BE9E1CCEF574BFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +629,8 @@ Microsoft Windows 10.0.18363.657 Version 1909 (February 2020 Update) - Ориг�
 ```bash
 magnet:?xt=urn:btih:CD94F969B700F101163C5B86431A4FE127F50DB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +657,8 @@ Microsoft Windows 10.0.18362.657 Version 1903 (February 2020 Update) - Ориг�
 magnet:?xt=urn:btih:E5518A705274C6131EC96648FCF9AEC54772F927
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,29 +684,7 @@ Microsoft Windows 10.0.17763.1039 Version 1809 (February 2020 Update) - Ориг
 magnet:?xt=urn:btih:D1361F064F7A9DC0D426E7F6E64EDC7521AE30D2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 857041   (954286) от 07.01.2015
-
-Windows Embedded 8.1 with Update [November 2014] - Оригинальные образы от Microsoft MSDN [Ukr]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_954286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 8.1 — это еще большие возможности персонализации и новые, великолепные приложения и службы. Windows Embedded 8.1 Industry является новым продуктом в линейке так называемых «вертикальных» продуктов, к которым относится, также, Windows Embedded POSReady. Основное отличие от POSReady – ядро Windows 8.1Язык интерфейса: Український
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768A21E9E24ECD87F333191D95E2FAD5A83FC851
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

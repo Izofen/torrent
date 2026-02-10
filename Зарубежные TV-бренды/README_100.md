@@ -19,6 +19,8 @@ NGW: Потерянные миры Индии / India's Lost Worlds (2015) HDTVR
 magnet:?xt=urn:btih:F56EB952FF2D2D87F9CA661E71D97DAB02EC5FAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:F56EB952FF2D2D87F9CA661E71D97DAB02EC5FAA
 ```bash
 magnet:?xt=urn:btih:F844FE169A56A44F6F090F38D8C8C6C040C88437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ History Channel: В изоляции. Один шанс на двоих / Alone 
 magnet:?xt=urn:btih:04FADA259D2DA0FF542A40C7BC8A086D10FC2485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ BBC: Краш-диета: Большой эксперимент / The Big Crash 
 ```bash
 magnet:?xt=urn:btih:1D7C6E8A7577D436E22BACE18DCCBAD23F510260
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:1D7C6E8A7577D436E22BACE18DCCBAD23F510260
 magnet:?xt=urn:btih:9593E002D1198C767A5028CFEA7A066606B41D94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ History Channel: В изоляции. Монголия / Alone. Mongolia (2018) 
 ```bash
 magnet:?xt=urn:btih:0F3B1453729776E47189D50131777BC9544FF31D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ NGW: Дикая Шотландия / Wild Scotland (2013-2016) HDTVRip [H.264/72
 magnet:?xt=urn:btih:0525AFB69C8D73D6D6C4F54B27FC2EAD597CA399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ NGW: Королева скорости / Queen of the chase (2016) HDTVRip [H.26
 ```bash
 magnet:?xt=urn:btih:4439E44C33E73AACBC289570B19AECE7A9E2F5A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Discovery. Астронавты SpaceX: первый полёт / Space Launch: 
 magnet:?xt=urn:btih:A797B3679ADF373466B7ECAF71DC45F54FB73A68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Discovery. Астронавты SpaceX: первый полёт / Space Launch: 
 ```bash
 magnet:?xt=urn:btih:4F5197916ECECEA5F1A38FCB783228146423DBC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Discovery. Законы акульего мира / The laws of Jaws (2018) HDTV
 magnet:?xt=urn:btih:F772E47C2A98E67885570E609214E5C220E6A385
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Discovery. Астронавты SpaceX: первый полёт / Space Launch: 
 ```bash
 magnet:?xt=urn:btih:ECE110D64837B5A160FF3EE5DABBFE513B0B26A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:ECE110D64837B5A160FF3EE5DABBFE513B0B26A3
 magnet:?xt=urn:btih:DC5B43CDDEC3234AF938BE28237655846EBC68BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:DC5B43CDDEC3234AF938BE28237655846EBC68BA
 ```bash
 magnet:?xt=urn:btih:064A310B18413BDC0EA295A29F1D348127E654C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ NG: Тайна гималайских мумий / Mystery of the Himalayan Mumm
 magnet:?xt=urn:btih:CF7FF4CAEBEE985D434475F8F08E145A72A763D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Discovery: Забытая инженерия / Abandoned Engineering (2016) HDTV
 ```bash
 magnet:?xt=urn:btih:CEED41D45F13EBCD00EB555F12817B8BCDD15F8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ PBS: Истории из королевского гардероба Люси У
 magnet:?xt=urn:btih:4F621DEC8355E6A61A392F7D60FA96B48AD04117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:4F621DEC8355E6A61A392F7D60FA96B48AD04117
 ```bash
 magnet:?xt=urn:btih:329BC20ED33F292CA14E3E886411053565B31628
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:329BC20ED33F292CA14E3E886411053565B31628
 magnet:?xt=urn:btih:40CADAD2EC3B8CBF61369C11BA73E1BBFAD59DDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ NG: От колыбели до могилы / Cradle to Grave (2016) SATRip
 ```bash
 magnet:?xt=urn:btih:6A7ED8C4DC888788431D5487C0F7CD8EEB104F15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ Viasat History. Рим: Первая сверхдержава / Rome: The World'
 magnet:?xt=urn:btih:FFD538A09851033586AD3CA8BA51693580C0B70E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Nat Geo Wild: Уцелевшая природа Европы / Europe's Last Wil
 ```bash
 magnet:?xt=urn:btih:837F1F4FA14220346328AF95E0ABDFDBAC308CC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 magnet:?xt=urn:btih:65F95B271AE3374A0585F74EC66FEE42D95F3C0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ NG: Неизвестная планета Земля / One Strange Rock (2018) W
 ```bash
 magnet:?xt=urn:btih:52BCDB215C1333670B151734D48BFBAE361ECAC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Discovery. Мастера оружия / Mad Dog Made (2018) HDTVRip (серии
 magnet:?xt=urn:btih:75F469C86BAAA7F7FB99095351A9A51E62172A07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Animal Planet: Дом для рептилий. Невероятные бород
 ```bash
 magnet:?xt=urn:btih:D797DCAEC25AFF17BC884E694AB1262F76C06A29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

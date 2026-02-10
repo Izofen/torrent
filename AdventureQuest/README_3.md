@@ -19,6 +19,8 @@ Luma Island (2024) [Ru/Multi] (1.1.4.25451) Repack Let'sРlay
 magnet:?xt=urn:btih:2D4F659E34A3662F04E4D199182CD9BE12665ED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Static Dread: The Lighthouse (2025) [Ru/Multi] (2025.08.06.18.12/dlc) Repack Fit
 ```bash
 magnet:?xt=urn:btih:2A237CF51BB72F1BCCED8B0DDACF2E1C6F8932F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Other s
 magnet:?xt=urn:btih:929DF32EEA4FE461A1A0E89C8820E7A1F4010BD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Runa Illustra (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FDBCF2EBFC477C8CFBB92E7770E1FD151711E8E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Forgotten 23 (2025) [Multi] (1.0.5) License GOG
 magnet:?xt=urn:btih:0169046E2B8FFF3C88844ACC17CA36E71B7C94D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ LEILA (2025) [Ru/Multi] (20250803 Build 19462323) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:865F1E4E8744244CFD26344891D316197E3EA15B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Luto - это психологический хоррор от первого л
 magnet:?xt=urn:btih:415509969717423EB684F6BEC55524FC9C833B67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Invincible (2023) [Ru/Multi] (Build:45.002 CL_57352) Repack Let'sРlay [Delu
 ```bash
 magnet:?xt=urn:btih:EB2BEC3D81B6AAEC65DF0F7E38CA9AD84ABB7A0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Necrophosis - это хоррор-приключение от первого л�
 magnet:?xt=urn:btih:C1539A23A3C5D5422056DE7993F3495674F0C65C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Tall Trails дает под контроль Альпа, маленького г
 ```bash
 magnet:?xt=urn:btih:80CDBE9966346625B5C2AF22E8AAADE8D334958C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Lucy Dreaming (2022) [Multi] (2.0) License GOG
 magnet:?xt=urn:btih:5FED4406030F10567B1B875071233397821AB7F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Lost Records Bloom & Rage (2025) [Ru/Multi] (2.04.132116) Repack Let'sРlay [Sou
 ```bash
 magnet:?xt=urn:btih:1C60512D5A4C3654601D7ACD103B991799E8D43A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Echo Paradox - это психологическая игра ужасов, 
 magnet:?xt=urn:btih:C61463E0C032975991531D84CB6D5DD97F784926
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ PPEAK - это совместная игра о восхождении, где �
 ```bash
 magnet:?xt=urn:btih:716A16238FE8571E176B25998F2953594DA7E4AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Copycat - это инди-игра, основанная на повествов
 magnet:?xt=urn:btih:00CDE286B32312B543CE9C9AB466F445717A4241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Forest 6174 представляет историю Дэнни, человека
 ```bash
 magnet:?xt=urn:btih:051AD4AC4FE7FEA16B0994473FC23BD3A97A7372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Chants of Sennaar (2023) [Ru/Multi] (1.0.0.9-r3) License GOG
 magnet:?xt=urn:btih:A279299A2B4EF72C7484FDF9721123048CF467EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ South of Midnight (2025) [Ru/Multi] (1.3.0 186489) Repack Other s
 ```bash
 magnet:?xt=urn:btih:78BB50294C7BE7BAF1EA88577866A638FB551ABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19401283
 magnet:?xt=urn:btih:F31BA18C12082D08A659EF39A9696A8F7A7E94DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Asylum (2025) [Ru/Multi] (1.3.3071) License GOG
 ```bash
 magnet:?xt=urn:btih:77F2D47C86267001A451237FDFC72D13DF8F09AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ South of Midnight - новое приключение от Compulsion Games. П�
 magnet:?xt=urn:btih:7626BCD80209CDD9A6EDBDB4CDE722D4951CF980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19413365
 ```bash
 magnet:?xt=urn:btih:42C44E1450DE147E39151F4F9342D6BBBA0CEFA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ One-Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19413365
 magnet:?xt=urn:btih:3346DE88E8595B098D5EE0FA2CA06E68C4197CE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Myst III: Exile (2001) [Multi] (2.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:9337F34EE5AA75F59B0D9E95C87E98F9C1B7DAD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Riven: The Sequel to Myst (1997) [Ru/Multi] (2.0.5) License GOG
 magnet:?xt=urn:btih:13ED6691503253054BCA8D661CF3C98CB9C0CE3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Eriksholm: The Stolen Dream (2025) [Ru/Multi] (1.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:11D1F892F7ADC7369992E4EB2FFB4D481B9D7785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

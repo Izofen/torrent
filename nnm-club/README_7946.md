@@ -22,6 +22,8 @@ Excelsis - Bluetmond (2020) [MP3|320 Kbps] <Folk Metal>
 magnet:?xt=urn:btih:C445EDEECC3BAE8B51C7039BCF01333A2A8E4609
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:C445EDEECC3BAE8B51C7039BCF01333A2A8E4609
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ CD1:
 magnet:?xt=urn:btih:4DD169B9B91272E5FF3A7503EB3107391E303594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ```bash
 magnet:?xt=urn:btih:5854D9AD8A92C2D01224E7197C08C519B19F292B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Elvenking - Reader of the Runes - Rapture (2023) [FLAC|Lossless|image + .cue] <M
 magnet:?xt=urn:btih:EB509AEDC65D6895376CCC28FF29FE988283DB91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:EB509AEDC65D6895376CCC28FF29FE988283DB91
 ```bash
 magnet:?xt=urn:btih:E34839AA3D019EE785CB21CED1FF9C957909BB72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ Son of Sam - And The Monster Awoke... (2021) [MP3|320 Kbps] <Heavy Metal, Melodi
 magnet:?xt=urn:btih:55F5903E800C4E2D7A6F843277990F3233FD10D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:C3E185FDC01A56F825A4D1B0977800B38E82025D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:C3E185FDC01A56F825A4D1B0977800B38E82025D
 magnet:?xt=urn:btih:3BFBC5A6ED37EA82878EACCB54826BD2511F8FDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Photo Size Changer Premium 1.1.1 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:58A06D720391B7E37372D2D60C8E350D5FEA0195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ Caffeinated 2.0.2 [Multi]
 magnet:?xt=urn:btih:436F5AD304F0467FFE3112DC1ADE036537D0A716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:436F5AD304F0467FFE3112DC1ADE036537D0A716
 ```bash
 magnet:?xt=urn:btih:AA2263E7CF3615CF8586C5E17A907BAD20064B43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Sketch - это инструмент для векторного дизайна 
 magnet:?xt=urn:btih:52FE31BD9F0AD328EE4C6A44EDA14C0D8465B71E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:52FE31BD9F0AD328EE4C6A44EDA14C0D8465B71E
 magnet:?xt=urn:btih:D250A9794CA9EDCDCAA11D1FF60C2BB6F761D242
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 ```bash
 magnet:?xt=urn:btih:EDC1958ED58967CF8E72414606FE550D1E305D94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ Oscar Peterson - Oscar Peterson (1951) 1995, Just A Memory Records [FLAC|Lossles
 magnet:?xt=urn:btih:83C06B6B45A3421A927E8D32A40B3BFF9633EFEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ VLC для Android - мобильная версия популярного де
 magnet:?xt=urn:btih:16217319CFF10256C47C428D5B2725ACFA7DC8B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:16217319CFF10256C47C428D5B2725ACFA7DC8B6
 ```bash
 magnet:?xt=urn:btih:81333012380DD05698D9CED40A74EB0EF4D4FEE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ Rival Sons - DARKFIGHTER (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:83E4C21DA86EBCBDC556B27BC511470BF76A6577
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:83E4C21DA86EBCBDC556B27BC511470BF76A6577
 ```bash
 magnet:?xt=urn:btih:8764267D00BA3E48309C7531D89387E8C78B865F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ BusyContacts приносит в управление контактами те 
 magnet:?xt=urn:btih:0D526705D8ACD012BE51699A4B2A8BEF17324D23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ Whale Browser -  южнокорейский быстрый интернет-бр
 magnet:?xt=urn:btih:AE4EFA130CFD76EA5BBD66E122DC45CD17A5D918
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:AE4EFA130CFD76EA5BBD66E122DC45CD17A5D918
 ```bash
 magnet:?xt=urn:btih:44C1D2160AEC49FDBA6075E51D9D9C5FA1B1425F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ The Blacktop Kings - Royalty (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:58158D3B783A10FCE9109D216FF76F1946B2BCC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:4E9EFD0B4FC8AA6CAFA028D820F3741393DE96F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:4E9EFD0B4FC8AA6CAFA028D820F3741393DE96F5
 ```bash
 magnet:?xt=urn:btih:1E397D1200B4D7DD8594B86E6CB0987E2CFBADF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

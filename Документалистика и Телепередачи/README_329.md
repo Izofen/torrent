@@ -1,3 +1,29 @@
+###  Публикация: 1164632   (439510) от 10.09.2017
+
+Территория заблуждений с Игорем Прокопенко (2017.09.09) SATRip
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день приносит научные сенсации, которые противоречат нашим привычным знаниям. Невероятные находки археологов опровергают учебники истории. Новейшие открытия астрономов начисто ломают знания о жизни Вселенной. А последние исследования медиков - рушат, казалось бы, незыблемые истины даже о жизни и смерти. В результате даже ученые все чаще приходят к неутешительному (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 01:31:41Реклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBA6794E3D938A1B3F2386362C8AD3B78BF45E7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062782   (439605) от 14.10.2016
 
 Проводник (2016.10.14) SATRip (выпуск 11: Москва)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:35E87E89180F4A3020045A976E920D6F49884065
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:35E87E89180F4A3020045A976E920D6F49884065
 magnet:?xt=urn:btih:1618054901DA24C5691F98839E6C4D3ECBDF961A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:1618054901DA24C5691F98839E6C4D3ECBDF961A
 ```bash
 magnet:?xt=urn:btih:277CDAB639DBC843C43996DA0DDD96DD5E9C32E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:277CDAB639DBC843C43996DA0DDD96DD5E9C32E7
 magnet:?xt=urn:btih:465E98E86D752FC80212A3E77BBA7C6A5E5D2518
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:465E98E86D752FC80212A3E77BBA7C6A5E5D2518
 ```bash
 magnet:?xt=urn:btih:DDF95D4F01964BC94C9B8EDD24454000B9155C52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ Discovery. Махинаторы (Автодилеры) / Wheeler Dealers (2015) 
 magnet:?xt=urn:btih:A5B82633BE2848A823E6F56DE69DFE41F7B52480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:A5B82633BE2848A823E6F56DE69DFE41F7B52480
 ```bash
 magnet:?xt=urn:btih:37AE1CB07818CE4EAEAED7E78065D8E1AD62CEC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:37AE1CB07818CE4EAEAED7E78065D8E1AD62CEC3
 magnet:?xt=urn:btih:C1B00E593C62E0D7572DE5D44995A95D4287558C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:C1B00E593C62E0D7572DE5D44995A95D4287558C
 ```bash
 magnet:?xt=urn:btih:52A75DE952B01E05CFA93E80FFA9F0A84EACF5F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:52A75DE952B01E05CFA93E80FFA9F0A84EACF5F4
 magnet:?xt=urn:btih:9CF714FEF7D3318604CFD7AC8D8324575A077326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:9CF714FEF7D3318604CFD7AC8D8324575A077326
 magnet:?xt=urn:btih:064D726272CFEC78330E985963F24B7DCF4BEB82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:064D726272CFEC78330E985963F24B7DCF4BEB82
 ```bash
 magnet:?xt=urn:btih:AEAB8CDFCCD037AFB338A0A90485AD0AEDD0A595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:AEAB8CDFCCD037AFB338A0A90485AD0AEDD0A595
 magnet:?xt=urn:btih:797D203DA554E8E48F580DAC1BA154FA5E30ECDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:797D203DA554E8E48F580DAC1BA154FA5E30ECDA
 ```bash
 magnet:?xt=urn:btih:874BFF42A513523C77373B46E862789FEE92A875
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:874BFF42A513523C77373B46E862789FEE92A875
 magnet:?xt=urn:btih:25488A98663C74E721D061EAF89948C81395CCA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:25488A98663C74E721D061EAF89948C81395CCA2
 ```bash
 magnet:?xt=urn:btih:8547A008C5B7623FFDA563A3F356EFEF4CE1C36D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:8547A008C5B7623FFDA563A3F356EFEF4CE1C36D
 magnet:?xt=urn:btih:1CEDA57D97DFA818BF413FB64974E806A0F74086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:1CEDA57D97DFA818BF413FB64974E806A0F74086
 ```bash
 magnet:?xt=urn:btih:9876FC805DB6BAF3A8F2118F78F45327F17526B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:9876FC805DB6BAF3A8F2118F78F45327F17526B7
 magnet:?xt=urn:btih:A47DBC3E515E6B565D93BFC7FC209AAFAEAE169E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +540,8 @@ Freedom — последняя и финальная работа Джорджа
 ```bash
 magnet:?xt=urn:btih:A3BDC135396F27512843DE95696CC5B0563EBF59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:A3BDC135396F27512843DE95696CC5B0563EBF59
 magnet:?xt=urn:btih:328E1478D09DD6DF3C46A3B9A1ACF64EAB6D72B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:328E1478D09DD6DF3C46A3B9A1ACF64EAB6D72B7
 ```bash
 magnet:?xt=urn:btih:4714B6C43F34E0C9E2ACE41DAB8C948183262A90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:4714B6C43F34E0C9E2ACE41DAB8C948183262A90
 magnet:?xt=urn:btih:C725CFAE597B31AC303792A9E6B0C40645ED4E61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:C725CFAE597B31AC303792A9E6B0C40645ED4E61
 ```bash
 magnet:?xt=urn:btih:7C2FD1DF56B1E172C04004EAB348ECB454DB3281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,29 +671,7 @@ magnet:?xt=urn:btih:7C2FD1DF56B1E172C04004EAB348ECB454DB3281
 magnet:?xt=urn:btih:E81466DDDEAA382511BABA6438B5A77D5E866310
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944655   (440514) от 07.10.2015
-
-Открытая студия. Ложь и лицемерие Запада  (07.10.2015) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_440514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Государственный департамент США в очередной раз объявил о своей озабоченности тем, что Россия «наносит удары по представителям умеренной сирийской оппозиции». Но чем же отличаются эти группировки от террористов ИГИЛ и «Фронта ан-Нусра»? Разве что не столь глобальными замыслами: они не говорят о построении всемирного халифата, а хотят лишь свергнуть законную власть (   Читать дальше...   )Телекомпания: 5 канал, РоссияЖанр: общественно-политическое ток-шоуПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BCB095ADEBA93CDE876FF2AC5DACC8A333EDB9B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

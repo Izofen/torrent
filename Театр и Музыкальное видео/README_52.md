@@ -23,6 +23,8 @@
 magnet:?xt=urn:btih:F5B45BCB298389BCD9243359C28F02DF8CCC845A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:F5B45BCB298389BCD9243359C28F02DF8CCC845A
 ```bash
 magnet:?xt=urn:btih:614F0DE7E7884A15D546023B1B1C616D5162BF52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Mylene Farmer. Les clips - L'integrale (1999-2020) (2021) Blu-ray [H.264/1080p]
 magnet:?xt=urn:btih:12CDC377455F76BD9B2825BB519F3AD2E944595A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Zventa Sventana — музыкальный проект российской п�
 magnet:?xt=urn:btih:D008B3812B43E9CB7D38A8713338EAA42FFF26CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:D008B3812B43E9CB7D38A8713338EAA42FFF26CD
 ```bash
 magnet:?xt=urn:btih:C1A958328CEF1C61F68505E7B20ED27E3CA65283
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ Volbeat: Let's Boogie Live From Telia Parken (2018)  Blu-ray [H.264/1080i] [EN]
 magnet:?xt=urn:btih:093392801416DD4A88EDEEB617136F21CA628287
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:093392801416DD4A88EDEEB617136F21CA628287
 magnet:?xt=urn:btih:F1176F995CC773022C46FE2BF20460A2502B0D63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:F1176F995CC773022C46FE2BF20460A2502B0D63
 ```bash
 magnet:?xt=urn:btih:697AE8E5A25702E0B1DED9F616EC9E4C478BADA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ Robbie Williams - One Night At The Palladium (2013) Blu-ray [1080i]
 magnet:?xt=urn:btih:B0E8C41CB989942EBF31D8F500392F714C5717F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ Saturnus - Live at Loppen, Copenhagen (2012) WEB-DLRip [H.264]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +313,8 @@ Accept - Symphonic Terror: Live at Wacken 2017 (2018) BDRemux [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:6B87AA94EDB18539E1103C3654BC616D55F83ACF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +344,8 @@ VA - The Best Sound N 1 (2013) HDRemux [H.264,1080p]
 magnet:?xt=urn:btih:2D116899C93430C7DE27C5B53A573EC6EB24341B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +372,8 @@ Extreme: Pornograffitti Live 25 / Metal Meltdown (2016) Blu-ray [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:92FF1A1E6338C64D5AAF3B47C65703F86103333E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +403,8 @@ Motley Crue - американская глэм-метал группа, осн�
 magnet:?xt=urn:btih:6A3229E417378A4FA7124A2541D40E1A05DD7E9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +429,8 @@ magnet:?xt=urn:btih:6A3229E417378A4FA7124A2541D40E1A05DD7E9D
 magnet:?xt=urn:btih:738B77DE87D7EF1ABD24DE285D74DA0CAB86E034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +454,8 @@ magnet:?xt=urn:btih:738B77DE87D7EF1ABD24DE285D74DA0CAB86E034
 ```bash
 magnet:?xt=urn:btih:3C61C0DD7CB41304E95DAF717B638D8D509EE91C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +490,8 @@ Metallica: Quebec Magnetic 2009 (2012) [1080p] BDRip
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +515,8 @@ Metallica: Quebec Magnetic 2009 (2012) [1080p] BDRip
 ```bash
 magnet:?xt=urn:btih:57C19FAF3648B9EE4392A75831F447FFB6B831C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +551,8 @@ magnet:?xt=urn:btih:57C19FAF3648B9EE4392A75831F447FFB6B831C6
 magnet:?xt=urn:btih:77B2EF2C987D83BACDA9681FD468532E0151928A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +582,8 @@ Live-выступление, снятое с помощью отличной п�
 magnet:?xt=urn:btih:493BDE5E15AB198FC2FF2B660C8A07E392ED0C7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +611,8 @@ magnet:?xt=urn:btih:493BDE5E15AB198FC2FF2B660C8A07E392ED0C7B
 magnet:?xt=urn:btih:DF149FA5014D3DA6055BCC989C9AAAC96F09BDE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +637,8 @@ magnet:?xt=urn:btih:DF149FA5014D3DA6055BCC989C9AAAC96F09BDE4
 ```bash
 magnet:?xt=urn:btih:3E489E6AFF3A25F5449FF628377C8DD70604BDCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +667,8 @@ magnet:?xt=urn:btih:3E489E6AFF3A25F5449FF628377C8DD70604BDCA
 magnet:?xt=urn:btih:6CE6CBC2BA18C38913CF3CB5B396BDD8F1090D2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +695,8 @@ L. A. Guns - Made In Milan (2018) BDRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:9B8708CC57FB4A871370A6732BEAE64D274507E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -677,6 +725,8 @@ L. A. Guns - Made In Milan (2018) BDRip [H.264/720p]
 magnet:?xt=urn:btih:2EB9F40218425195AACF715F910D32E190448F1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -703,6 +753,8 @@ Katy Perry - The Prismatic World Tour (2015) BDRip[H.264]
 ```bash
 magnet:?xt=urn:btih:7C4D52481340835BC3A53AF79F9F543333D1AF9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

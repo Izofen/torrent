@@ -19,6 +19,8 @@ MediaHuman YouTube Downloader 3.9.9.85 (1309) RePack (& Portable) by elchupacabr
 magnet:?xt=urn:btih:3A820DD328E6D03D8856E3976EE1728FC065D360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:8B1863038B55B09363404D010EE8BA3C167D3E87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:8B1863038B55B09363404D010EE8BA3C167D3E87
 ```bash
 magnet:?xt=urn:btih:CDD0B7C9A62891761542AB9FF68C87C18FB13DDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ WinScan2PDF - позволяет сканировать документы и с
 magnet:?xt=urn:btih:6C6784BE2E7303A68342404FC320450A1C0EA99A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:6C6784BE2E7303A68342404FC320450A1C0EA99A
 ```bash
 magnet:?xt=urn:btih:94C2266BD1AB74F9D38D0E073281B729ABFA09FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Fireworks: Sound Effects - это коллекция взрывных эффек
 magnet:?xt=urn:btih:3237F01C29E0E4A43003F6736C32C7AC1E7FB936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ MediaInfo — позволит узнать техническую информ�
 ```bash
 magnet:?xt=urn:btih:EA6E081ED811DBFBD6041518D149B745FC313363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:EA6E081ED811DBFBD6041518D149B745FC313363
 magnet:?xt=urn:btih:8707161D6CE0B9311F1F09BF483ADD632F6D8AF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:8707161D6CE0B9311F1F09BF483ADD632F6D8AF4
 ```bash
 magnet:?xt=urn:btih:EE63201F8726FC47BC036353AAFF550C04B3559A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:EE63201F8726FC47BC036353AAFF550C04B3559A
 magnet:?xt=urn:btih:3CE8396F10D92AB4B05E2ACC34A67782DFCD9826
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Transparent clock & weather / Прозрачные часы и погода 6.36
 ```bash
 magnet:?xt=urn:btih:397943DCCA3DE346BF04DFB4CAEE654E26983705
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:397943DCCA3DE346BF04DFB4CAEE654E26983705
 magnet:?xt=urn:btih:46630E8F8388ACC627B72F2A967B9E16666DCAB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ TheAeroClock - портативная программа, благодаря к�
 ```bash
 magnet:?xt=urn:btih:8B5AAFA1090637A0B992992F890B0039EBC92964
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Dynamic Island - dynamicSpot - приложение, что предоставл
 magnet:?xt=urn:btih:9C9BD626F76A28F8699DADF2E4E2DA11A5473EE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:9C9BD626F76A28F8699DADF2E4E2DA11A5473EE0
 ```bash
 magnet:?xt=urn:btih:6C508D883D2E0037FF6773884E759AC51810B3CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ BLEASS Megalit сочетает в себе потрясающую глубин�
 ```bash
 magnet:?xt=urn:btih:E63B2F4EA4C73020F008F88019F82FF2EF1B7113
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ VA - The good awakening blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:E0C0D134F62A995FFD3B9B595AE63EF315A2034D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:E0C0D134F62A995FFD3B9B595AE63EF315A2034D
 magnet:?xt=urn:btih:AD09D130401BDF553BAF8522D267C673699FC1D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:AD09D130401BDF553BAF8522D267C673699FC1D0
 ```bash
 magnet:?xt=urn:btih:3E786305850900E936FDD22ACFBF10ECAE4FA495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:3E786305850900E936FDD22ACFBF10ECAE4FA495
 magnet:?xt=urn:btih:F5F765FF109AC3CF53ED3379B6C4F3773732D8F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:F5F765FF109AC3CF53ED3379B6C4F3773732D8F9
 magnet:?xt=urn:btih:C23526CC63366B2A468739E7CAB6C72C4F68F56C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:C23526CC63366B2A468739E7CAB6C72C4F68F56C
 ```bash
 magnet:?xt=urn:btih:236FC517C7AB8E35A7E62949F71D75DC062D7BEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Dred Buffalo - 2 Albums (2020-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Bl
 magnet:?xt=urn:btih:29CD69937B0F48ED53C158C527540194C5266011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ AlkaБэнд - 7 Albums (2019-2022) [MP3|320 Kbps] <Punk Rock, Sky Runk>
 ```bash
 magnet:?xt=urn:btih:81647C8DA55EE273F284EDFE7AE24F75E14EDC00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ Aynsley Lister - Along for the Ride (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues,
 magnet:?xt=urn:btih:64830B9314518B0EE2C3AFABE043E38D16BD32E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Bucketverb представляет собой альтернативную ис
 ```bash
 magnet:?xt=urn:btih:FD031F89D5F0366E334F3A4D605C2D715A4161D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

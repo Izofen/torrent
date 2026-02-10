@@ -1,3 +1,29 @@
+###  Публикация: 1320072   (474956) от 16.08.2019
+
+Глен Кук | Зловещие латунные тени (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неизвестный человек едва не убивает подругу Гаррета Тинни Тейт прямо у него на глазах. Почему? За что? Вскоре выясняется, что это ошибка, но вздохнуть с облегчением детективу не дают — сразу несколько сторон охотятся за некоей Книгой Видений и вовлекают Гаррета в свою охоту.Жанр: ФантастикаПродолжительность: 10:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F88BD92E3F76596C7D5F7FA119BC3481FDA6D1CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320071   (474960) от 16.08.2019
 
 Ким Стэнли Робинсон | Нью-Йорк 2140 (2019) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:DAD3676138288BAE41F6D402E449E5A08E7F22A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:DAD3676138288BAE41F6D402E449E5A08E7F22A5
 magnet:?xt=urn:btih:0ACCA7D92BA6D2B5E07CB70BE41A063BA64132BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:0ACCA7D92BA6D2B5E07CB70BE41A063BA64132BF
 ```bash
 magnet:?xt=urn:btih:79ADAEC19086A73FA40665EB1F946D73A40F7FD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:79ADAEC19086A73FA40665EB1F946D73A40F7FD3
 magnet:?xt=urn:btih:4D449812AF307A089E00692BAD667D00DA464539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:4D449812AF307A089E00692BAD667D00DA464539
 ```bash
 magnet:?xt=urn:btih:49B8D435877CA44A2A4926635F057115AFAFC690
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:49B8D435877CA44A2A4926635F057115AFAFC690
 magnet:?xt=urn:btih:97A2D42ECE29B61035C074DED9514BEE2DE18513
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:97A2D42ECE29B61035C074DED9514BEE2DE18513
 ```bash
 magnet:?xt=urn:btih:6E7EB449A5FCAF680DEC6A165F91F175E7776148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:6E7EB449A5FCAF680DEC6A165F91F175E7776148
 magnet:?xt=urn:btih:883B1A9AB1F9768B1178FB0A68130B254D231E96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:883B1A9AB1F9768B1178FB0A68130B254D231E96
 ```bash
 magnet:?xt=urn:btih:8308CAFDE44E02CFF4999AD7F9BC4F36260210A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:8308CAFDE44E02CFF4999AD7F9BC4F36260210A9
 magnet:?xt=urn:btih:AEBFE581B0AF9DDA73E81D4C5CCFF1D3ABFB81DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:AEBFE581B0AF9DDA73E81D4C5CCFF1D3ABFB81DC
 ```bash
 magnet:?xt=urn:btih:F9EE6383EDEA3C6FB66F93D400B8246593A46E9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:F9EE6383EDEA3C6FB66F93D400B8246593A46E9A
 magnet:?xt=urn:btih:A70D5A94D4BA494C91D4F25544A724395844F036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:A70D5A94D4BA494C91D4F25544A724395844F036
 ```bash
 magnet:?xt=urn:btih:619BA39BE29E7F39DAD68F7350B66D8C1A32A31B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:619BA39BE29E7F39DAD68F7350B66D8C1A32A31B
 magnet:?xt=urn:btih:21813F9BD986DBA4359240A6A0086D1209633988
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:21813F9BD986DBA4359240A6A0086D1209633988
 magnet:?xt=urn:btih:EC74CB9F26273A4AC1E8A38D9308C0CDB682EEBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:EC74CB9F26273A4AC1E8A38D9308C0CDB682EEBC
 ```bash
 magnet:?xt=urn:btih:5A0C19CB761600C96B3A3FE0420DE9759DB7FE8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:5A0C19CB761600C96B3A3FE0420DE9759DB7FE8C
 magnet:?xt=urn:btih:7D390DC5E81266A61027ECE70705782AEA954111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:7D390DC5E81266A61027ECE70705782AEA954111
 magnet:?xt=urn:btih:FA229C62187B515C1BA53456986C732D4A59B661
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:FA229C62187B515C1BA53456986C732D4A59B661
 ```bash
 magnet:?xt=urn:btih:BBE630270C73FD0F08610650481359AE8DE5E896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:BBE630270C73FD0F08610650481359AE8DE5E896
 magnet:?xt=urn:btih:7CF8521E9BA80B88883D10AC5E89EA5F4D00D6E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:7CF8521E9BA80B88883D10AC5E89EA5F4D00D6E0
 ```bash
 magnet:?xt=urn:btih:9CDA59D368323C33816EF1E393023E0E2A095565
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:9CDA59D368323C33816EF1E393023E0E2A095565
 magnet:?xt=urn:btih:A8900A4F3EAB4E20270FC4F7BCABA7F94CF8C63E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:A8900A4F3EAB4E20270FC4F7BCABA7F94CF8C63E
 ```bash
 magnet:?xt=urn:btih:E35186C64461596CCB2396FE879EDBF4BCAEDCC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:E35186C64461596CCB2396FE879EDBF4BCAEDCC8
 magnet:?xt=urn:btih:E6DECCEC081BD7144A3E7B07C54F3B514DE8F41C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:E6DECCEC081BD7144A3E7B07C54F3B514DE8F41C
 magnet:?xt=urn:btih:5CE951B8074ABEC6B998C4487042D0DE68FA50FE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 236897   (478633) от 22.09.2010
-
-Александр Зорич | Сомнамбула. Звезда по имени Солнце (Проект "Этногенез") [2010] [MP3]
-
->>След.
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_478633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Объединенное Человечество 2468 года… Прекрасный новый мир, созданный стараниями тысяч пассионариев, среди которых — потомки Маруси Гумилевой. Лейтенант Матвей Гумилев только что закончил престижную лунную академию Космофлота. Перед ним открыты все дороги, но он выбирает самую трудную: службу в особой бригаде «Беллона», которая каждый день и каждый час противостоит (   Читать дальше...   )Жанр: Фантастика
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 979611   (958573) от 27.01.2016
+
+Осторожно, мошенники! Испорченный отдых (2016.01.26) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_958573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наверное, каждый хоть раз становился жертвой мошенников: будь то игра в "моментальные" лотереи, приобретение ненужных, а иногда и вредных пищевых добавок или общение с вымогателями денег по телефону, для пополнения мобильного счёта бедного чада, оставшегося без связи. В помощь нежелающим наступать на старые грабли зрителям на канале "ТВ Центр" (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: ДокументальныйПродолжительность: ~ 00:24:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DF4E5C517DBFE345BF804FAA59A8BDB8DF95DD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979612   (958579) от 27.01.2016
 
 Вести в 20-00. Большие Вести. Россия HD (26.01.2016) HDTVRip [720p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:871071E6E75E65BA53AD4BBE274EE6AF5EEF5A71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:871071E6E75E65BA53AD4BBE274EE6AF5EEF5A71
 magnet:?xt=urn:btih:8F2DF90BD70015B7A69D2801302B1E78BA797229
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:8F2DF90BD70015B7A69D2801302B1E78BA797229
 ```bash
 magnet:?xt=urn:btih:F2908DA2369BB5AB1E9C88EACE1F92DDA58F4F6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:F2908DA2369BB5AB1E9C88EACE1F92DDA58F4F6B
 magnet:?xt=urn:btih:8634DB6C77101B5E49421A164E19B71595303AA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:8634DB6C77101B5E49421A164E19B71595303AA4
 ```bash
 magnet:?xt=urn:btih:998D4D45E983250B05D866EBDBBDAF41E94DFD9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:998D4D45E983250B05D866EBDBBDAF41E94DFD9F
 magnet:?xt=urn:btih:0D48956E549D2367BBD7F87ED7DD1B338474FEF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ ZZ TOP: Старая добрая группа из Техаса / ZZ TOP: that 
 ```bash
 magnet:?xt=urn:btih:EE9AFB583DB46889523B5DDDF98EE93C1D457D43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:EE9AFB583DB46889523B5DDDF98EE93C1D457D43
 magnet:?xt=urn:btih:D07E846F4A7D4CBD9B83E2CFAF9995117D0031DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:D07E846F4A7D4CBD9B83E2CFAF9995117D0031DD
 magnet:?xt=urn:btih:E6090416842B7A9B96A1FC71E5F2DBFCF7CA8E30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:E6090416842B7A9B96A1FC71E5F2DBFCF7CA8E30
 ```bash
 magnet:?xt=urn:btih:18B4ECE4398E9FAF0AA9CB2CD368C771307D5E17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:18B4ECE4398E9FAF0AA9CB2CD368C771307D5E17
 magnet:?xt=urn:btih:7F6B78B9AD5B7C5614CC05B0EFAD5338C1BEC380
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:7F6B78B9AD5B7C5614CC05B0EFAD5338C1BEC380
 ```bash
 magnet:?xt=urn:btih:FED985568F1CBC5A26DC45DB69B1669590CC5704
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:FED985568F1CBC5A26DC45DB69B1669590CC5704
 magnet:?xt=urn:btih:A7601E6282BB24BD3FA68564EC88177761236076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:A7601E6282BB24BD3FA68564EC88177761236076
 ```bash
 magnet:?xt=urn:btih:8BAC039E67D24177DF4918FF8C2063D1624F3C74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:8BAC039E67D24177DF4918FF8C2063D1624F3C74
 magnet:?xt=urn:btih:B8FA5488668E2C7913184981DA27449FB8B8FA69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:B8FA5488668E2C7913184981DA27449FB8B8FA69
 ```bash
 magnet:?xt=urn:btih:DAED063C6EEA49115BFC5E0071484EC0DC2AE2FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:DAED063C6EEA49115BFC5E0071484EC0DC2AE2FA
 magnet:?xt=urn:btih:0C7E5FFF61BD05A9398D32143C1E8E3ABA60A056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:0C7E5FFF61BD05A9398D32143C1E8E3ABA60A056
 ```bash
 magnet:?xt=urn:btih:BA0A954F1412E21FE7827C50034CB2CC90A3615E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:BA0A954F1412E21FE7827C50034CB2CC90A3615E
 magnet:?xt=urn:btih:94A255F0CEE84D14E2ACDDF5E5BF7E19075CD895
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:94A255F0CEE84D14E2ACDDF5E5BF7E19075CD895
 ```bash
 magnet:?xt=urn:btih:F7F2AA7123C842823C048185FB753C5238316DEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:F7F2AA7123C842823C048185FB753C5238316DEE
 magnet:?xt=urn:btih:7A9D351DC815B4730C6EFED08788140FDF26A996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:7A9D351DC815B4730C6EFED08788140FDF26A996
 ```bash
 magnet:?xt=urn:btih:6E95FFA8EEEF1524E1562A2F6BA6DF65F300B82A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:6E95FFA8EEEF1524E1562A2F6BA6DF65F300B82A
 magnet:?xt=urn:btih:65819B086DE4C44AE9BF66DA48140C87300284B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:65819B086DE4C44AE9BF66DA48140C87300284B1
 ```bash
 magnet:?xt=urn:btih:5B339EA1EF826E2AFC2BA332688BF8ACF9C61CFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:5B339EA1EF826E2AFC2BA332688BF8ACF9C61CFC
 magnet:?xt=urn:btih:3292B8B45ECF5F551C77CE0BF19B4722B17B2387
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979298   (959974) от 26.01.2016
-
-Время. Первый канал 21-00 (25.01.2016) HDTVRip [720p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_959974.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информационно-аналитическая программа Первого канала Время - выходит в эфир в 21:00 по Московскому времени. Производится Дирекцией информационных программ ОАО «Первый канал». Практически в первые годы вещания программы сформировалась концепция очерёдности подачи новостей, которая сохранилась до наших дней: первые лица государства, вести с периферии, экономика, культура, (   Читать дальше...   )Телекомпания: Первый каналЖанр: Информационно-аналитическая программаПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F35B9D14E393AD8A03A77A9E6216FB9F1B4F501
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

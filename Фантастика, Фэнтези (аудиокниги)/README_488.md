@@ -1,3 +1,30 @@
+###  Публикация: 1105656   (874937) от 18.02.2017
+
+Григорий Рожков | Американец (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_874937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Его никто не спрашивал, хочет ли он оказаться в излюбленном историческом периоде — во Второй мировой. Но он оказался там. Никто не дал ему выбора — с кем быть. И русский стал американцем. Никто не делал его солдатом той войны. Он сам им стал…
+Артур Арсентьев, вчерашний студент-юрист, сержант запаса и ярый поклонник военно-исторической реконструкции, оказывается 22 (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыПродолжительность: 09:55:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37638F0BC25E1BB65DA56939567B9B8B6FAE1B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105221   (874992) от 18.02.2017
 
 Анна Одувалова | Ядовитая (2017) [MP3]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:AE583A267BBD385CD7813B69574DA9BB77A17EA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:AE583A267BBD385CD7813B69574DA9BB77A17EA1
 magnet:?xt=urn:btih:C3010914EE8D7CA91C7C51B209412AE6C665AB2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:C3010914EE8D7CA91C7C51B209412AE6C665AB2F
 ```bash
 magnet:?xt=urn:btih:67298F62E46E2B730427506913125D369D3F567D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:67298F62E46E2B730427506913125D369D3F567D
 magnet:?xt=urn:btih:19E32B4606D4F63BD78AADF8DE5EC5CD4308D4AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ magnet:?xt=urn:btih:19E32B4606D4F63BD78AADF8DE5EC5CD4308D4AE
 ```bash
 magnet:?xt=urn:btih:E4251A23889EE7ACD5C1AFCD65820AD04476D0C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +176,8 @@ magnet:?xt=urn:btih:E4251A23889EE7ACD5C1AFCD65820AD04476D0C6
 magnet:?xt=urn:btih:AD9AC0B8EF75741C74F64B4EEB0F941B867649EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +201,8 @@ magnet:?xt=urn:btih:AD9AC0B8EF75741C74F64B4EEB0F941B867649EE
 ```bash
 magnet:?xt=urn:btih:10C0AE5A1E283705244692DF75D26D947E6C8806
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +229,8 @@ magnet:?xt=urn:btih:10C0AE5A1E283705244692DF75D26D947E6C8806
 magnet:?xt=urn:btih:6ADCC53EB32B755FD4F4AED891012A9617FDB222
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +255,8 @@ magnet:?xt=urn:btih:6ADCC53EB32B755FD4F4AED891012A9617FDB222
 ```bash
 magnet:?xt=urn:btih:EC30209F61C7E30E776EDFB34A2150923566F0A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +284,8 @@ magnet:?xt=urn:btih:EC30209F61C7E30E776EDFB34A2150923566F0A7
 magnet:?xt=urn:btih:FD2648336240033537CAA2CB1D906D21C47D742A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +309,8 @@ magnet:?xt=urn:btih:FD2648336240033537CAA2CB1D906D21C47D742A
 ```bash
 magnet:?xt=urn:btih:3FC16D6447610AAAE1789DC982DF361379A81D7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +337,8 @@ magnet:?xt=urn:btih:3FC16D6447610AAAE1789DC982DF361379A81D7F
 magnet:?xt=urn:btih:6672F4A752FC185D4207C90A5BAFBE5BE46E2E53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +364,8 @@ magnet:?xt=urn:btih:6672F4A752FC185D4207C90A5BAFBE5BE46E2E53
 magnet:?xt=urn:btih:1C52DB857FF15CD4B8715C5A94B4F47B3003B692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +390,8 @@ magnet:?xt=urn:btih:1C52DB857FF15CD4B8715C5A94B4F47B3003B692
 ```bash
 magnet:?xt=urn:btih:9B44BB1E3CF6FBACC12A297AAFEBC0E486BADF63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +419,8 @@ magnet:?xt=urn:btih:9B44BB1E3CF6FBACC12A297AAFEBC0E486BADF63
 magnet:?xt=urn:btih:9E6156C17A66B2564E8883909C40E284B9E77C9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +446,8 @@ magnet:?xt=urn:btih:9E6156C17A66B2564E8883909C40E284B9E77C9F
 magnet:?xt=urn:btih:3E2C49BFD9F78A6CEA5F94E77504599DEB126BD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +471,8 @@ magnet:?xt=urn:btih:3E2C49BFD9F78A6CEA5F94E77504599DEB126BD1
 ```bash
 magnet:?xt=urn:btih:59A6D6DC40E0DFF57FDB532126F69702FBC488C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +498,8 @@ magnet:?xt=urn:btih:59A6D6DC40E0DFF57FDB532126F69702FBC488C7
 magnet:?xt=urn:btih:8D6504C035D3C1F8615DBB9DE5F934AE2112F4E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +524,8 @@ magnet:?xt=urn:btih:8D6504C035D3C1F8615DBB9DE5F934AE2112F4E7
 magnet:?xt=urn:btih:DFC5068DEB5AD13C5E8777C27AAEC920CDD5643A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +549,8 @@ magnet:?xt=urn:btih:DFC5068DEB5AD13C5E8777C27AAEC920CDD5643A
 ```bash
 magnet:?xt=urn:btih:9508EB69DF2C5D6642A3EDF37AA6A533A6674AEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +577,8 @@ magnet:?xt=urn:btih:9508EB69DF2C5D6642A3EDF37AA6A533A6674AEB
 magnet:?xt=urn:btih:3AB7C71877E16851C1E7DADD98A0446D43391BF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +604,8 @@ magnet:?xt=urn:btih:3AB7C71877E16851C1E7DADD98A0446D43391BF3
 magnet:?xt=urn:btih:BD2AE504A22E8D2BD50B553988406853FC90F914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +629,8 @@ magnet:?xt=urn:btih:BD2AE504A22E8D2BD50B553988406853FC90F914
 ```bash
 magnet:?xt=urn:btih:FB58CE6661EE6C1DD214813DDEE2917CA4AFA91B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +656,8 @@ magnet:?xt=urn:btih:FB58CE6661EE6C1DD214813DDEE2917CA4AFA91B
 magnet:?xt=urn:btih:DEFDDA7BD2C17777A8CCA07E6D7DCAEAC54C3911
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,30 +682,7 @@ magnet:?xt=urn:btih:DEFDDA7BD2C17777A8CCA07E6D7DCAEAC54C3911
 magnet:?xt=urn:btih:592B28D1AF3487D45CDF4400BC6CD6D8C79F6D5E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997000   (876970) от 15.03.2016
-
-Милена Завойчинская | Иржина. Предначертанного не избежать (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_876970.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Иржина. Предначертанного не избежать" – фантастический роман в стиле любовное фэнтези русской писательницы Милены Завойчинской, книга 3, входит в цикл «Иржина».
-Неуемная тяга ко всему интересному и неизведанному опять кинула Иржину сначала в приключение, а потом и в объятия императора. Причем в буквальном смысле – она свалилась к нему на колени прямо из (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 11:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:579C13A58BCA30BFED9BAD986D2DAE82F1F26314
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

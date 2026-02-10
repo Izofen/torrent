@@ -21,6 +21,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:18340B331BD8495308FEB2B947FAD7397231136C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Mp3tag - портативная утилита, для быстрого реда
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Mp3tag - портативная утилита, для быстрого реда
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ The Prodigy - Take Me To The Hospital (2009) [FLAC|Lossless]<Drum'n'Bass, Dubste
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +168,8 @@ Paul van Dyk - Evolution (2012) [FLAC|Lossless]<Trance>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ Paul van Dyk - Evolution (2012) [FLAC|Lossless]<Trance>
 ```bash
 magnet:?xt=urn:btih:24D6A06E94CDFC9C2B30B170E94D974067D7AE5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +230,8 @@ FAQ по библиотеке: http://traumlibrary.net/faq.html
 magnet:?xt=urn:btih:18FB696710232D00458447FE621B3D3544CDA6F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +255,8 @@ Confrontation / Confrontation: Последняя битва [Ru/En] (RePack) 20
 ```bash
 magnet:?xt=urn:btih:9C9E00A0F9B050F1378FFEA56F028BBD8F1FD7E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +283,8 @@ magnet:?xt=urn:btih:9C9E00A0F9B050F1378FFEA56F028BBD8F1FD7E5
 magnet:?xt=urn:btih:92B86A735E7E2064C602DD65126B9D4BADE8B073
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ magnet:?xt=urn:btih:92B86A735E7E2064C602DD65126B9D4BADE8B073
 magnet:?xt=urn:btih:809BA71A137D63E62751E34F09354E358258A535
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ magnet:?xt=urn:btih:809BA71A137D63E62751E34F09354E358258A535
 ```bash
 magnet:?xt=urn:btih:46E1666E8145BC5E881FB31F54E66A0561F3CD16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +363,8 @@ Risen 2: Dark Waters / Risen 2: Темные воды {v1.0.1210 + 3DLC } [Multi
 ```bash
 magnet:?xt=urn:btih:A1D441C002E20DE690BEFEB747464196902C47F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +395,8 @@ jBridge - приложение использует межпроцессные �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +423,8 @@ Windows RusLive - Одна из самых быстрых Live CD. Програ�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +448,8 @@ Windows RusLive - Одна из самых быстрых Live CD. Програ�
 ```bash
 magnet:?xt=urn:btih:C4F7CF19594110584D622F8E814E873F10699C53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +475,8 @@ magnet:?xt=urn:btih:C4F7CF19594110584D622F8E814E873F10699C53
 magnet:?xt=urn:btih:6E8E4C8484F86A7E6C9F0921DFC7B01661510331
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +500,8 @@ magnet:?xt=urn:btih:6E8E4C8484F86A7E6C9F0921DFC7B01661510331
 ```bash
 magnet:?xt=urn:btih:1564FD8B5BD8F7B215D1103847095C54B6C39D25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +529,8 @@ Jagged Alliance: Back in Action / Jagged Alliance: Снова в деле + 5 DL
 magnet:?xt=urn:btih:1B974FBD982BE026B2CC0F3A536D892FCB173B40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +557,8 @@ magnet:?xt=urn:btih:1B974FBD982BE026B2CC0F3A536D892FCB173B40
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +582,8 @@ magnet:?xt=urn:btih:1B974FBD982BE026B2CC0F3A536D892FCB173B40
 ```bash
 magnet:?xt=urn:btih:DDDB16F420EAB4CAA11747B3022AF2A45183A677
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +609,8 @@ Cюжет освещает приключения новой группы «вы
 ```bash
 magnet:?xt=urn:btih:23F85AB425ECC0E52B8A25CE853539C6F65B72DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +640,8 @@ Nexuiz -игра в жанре арена-ориентированных FPS.
 magnet:?xt=urn:btih:BAD334EC5774C565BB492DD6270256AADA2297F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +665,8 @@ magnet:?xt=urn:btih:BAD334EC5774C565BB492DD6270256AADA2297F9
 ```bash
 magnet:?xt=urn:btih:BB90D35941C0767B846BB9D05A34ADF297F75F79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +694,8 @@ magnet:?xt=urn:btih:BB90D35941C0767B846BB9D05A34ADF297F75F79
 magnet:?xt=urn:btih:778B15BFA59917BA1B56F9291062ED94353332ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +719,8 @@ Confrontation / Confrontation: Последняя битва [Ru/En] (RePack) 20
 ```bash
 magnet:?xt=urn:btih:38D606EDE7B676653B1F44D6A4D6AFA231021673
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

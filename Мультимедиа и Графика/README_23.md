@@ -19,6 +19,8 @@ Slate Digital Plugins 07.2024 VST, VST 3, AAX (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:53E5B9A5B3904DD389032C13DC3B40E0474F1A41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Steinberg - WaveLab 12 Pro 12.0.30 (x64) [Multi]
 ```bash
 magnet:?xt=urn:btih:40DB63E54B3A55CF29E1CC215F9C327328F93495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ EZ CD Audio Converter - утилита для преобразования ау�
 magnet:?xt=urn:btih:BF485E0218E33779E73ED3C8E7C7903943A9AE24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ GForce - Oberheim OB-1 1.0.0 Standalone, VSTi, VSTi 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:4E730D9DAD4C7A7F0675AD26A0A3CAD30C7434CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ PanoramaStudio, это графическая программа для созд
 magnet:?xt=urn:btih:6A98F5C60C1C6F72394B57BD9E67C021A730214D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Adobe Animate, пришедший на смену Flash Professional - это м
 ```bash
 magnet:?xt=urn:btih:9289994F0576CB5E39E4E2B160111D3CC0AF1CB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Steinberg - SpectraLayers Pro 11 11.0.10 [Multi]
 magnet:?xt=urn:btih:0E4C46BCCE13DF19700D03B12D5AAA87438F96FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Corona Renderer — мощный, но простой в использован�
 ```bash
 magnet:?xt=urn:btih:E0A21256E53A98D05283C1A25136FA361A45B9D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Arnold Render for Cinema 4D (C4DtoA) 4.7.3 [En]
 magnet:?xt=urn:btih:A5418888F9CCE0D23DB4526DCC0348DA89D05F9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ HTOA (Houdini to Arnold) соединяет SideFX Houdini и рендер Arnol
 ```bash
 magnet:?xt=urn:btih:CAA3020574144E36ABA8840C81F62C69D9CC9907
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ NonVisual Desktop Access (NVDA) — свободная с открытым ис�
 magnet:?xt=urn:btih:B5A005213274AF8FB65D15D03ED15A59F4870AE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ CUETools - это программа, которая служит для пре�
 ```bash
 magnet:?xt=urn:btih:F150E4B7320E37C09E5AC6DF05DF727AF32EE4B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Waves Complete V15 2024.06.24 VST 3, AAX, STANDALONE (x64) [En] (Online Installa
 magnet:?xt=urn:btih:AEB5FC741D20505DCD1CC0A7BEA0AA18D50C1E07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Waves Ultimate 2024.06.24 VST, VST 3, AAX, STANDALONE (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:B29CFF0FB1A96893F3FB7AA3DE12A62BB6D2FC66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:E7EBB6FBE89FE4A81ECD27A1EF3752EE0797AC16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Media Player Classic Home Cinema – удобный во всех планах �
 magnet:?xt=urn:btih:878739AB743B58CE26278ECB1A7DF845EF9F2E0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 magnet:?xt=urn:btih:DF78050DCD970EF611D3847E33AD2E2400BC3F69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Lindell Audio с момента своего основания в 2010 году
 ```bash
 magnet:?xt=urn:btih:BFDCD6146AF8ACC9573AB0C40F6CCE64090AD7AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Nuro Audio - Xpitch 1.0.2 VST 3, AAX (x64) RePack by TCD [En]
 magnet:?xt=urn:btih:65DCBA22F0B3507CE6E650EFDE5722CF46E0AC74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ OB-E - это больше, чем просто эмуляция, он пред�
 ```bash
 magnet:?xt=urn:btih:CD69BFD62B57492BC397E1D6A1E1ED51D901C990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Honeyview - быстрый и удобный просмотрщик графич
 magnet:?xt=urn:btih:306F12DEFC317000D459AA872C8C5B69764F5E7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Instant Audio - BassRift 1.2.0 VST, VST 3, AAX (x86/x64) [En]
 ```bash
 magnet:?xt=urn:btih:1B5D7E55CEF25D9E80E72F82644BBBD64AEF749A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ KORG Gadget 3 - это идеальное универсальное прогр�
 magnet:?xt=urn:btih:08FF29B867E3A07F917AC52BE8518E9C5BF5D589
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ DDMF - PluginDoctor 2.3.2 Standalone, VST, VST 3, AAX (x64) RePack by MOCHA [En]
 ```bash
 magnet:?xt=urn:btih:43A5B964BE213CA3E468CF6A9BC03E190B818DCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Moog Music - Complete Moogerfooger Effects Bundle 1.3.0 (x64) RePack by TCD [En]
 magnet:?xt=urn:btih:2FE2CD4053EF9FEB09487C11EBD26733F30EC676
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Rob Papen - UniMagic 1.0.0 VST, VST 3, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:CA1A38EEA3030DC95C45ACF05A72854544CB00C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

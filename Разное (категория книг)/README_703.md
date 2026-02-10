@@ -1,3 +1,29 @@
+###  Публикация: 977706   (965359) от 21.01.2016
+
+Ричард Ньюджент | Лайфхаки уверенных людей. 50 способов повысить самооценку (2015) [FB2, RTF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_965359.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Лайфхаки уверенных людей" - это 50 советов, которые помогут вам повысить самооценку, развить уверенность в себе, научиться самообладанию и умению контролировать ситуацию. Некоторые советы удивят вас больше, чем другие, но каждый обязательно вдохновит на изменения. Сложите все 50 лайфхаков вместе, и вы получите прямой доступ к несокрушимой уверенности и (   Читать дальше...   )Жанр: Достижение успеха в жизниФормат: FB2, RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33A994870D60AD4A22C01EACD87C37939B71AF25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 620470   (965458) от 18.02.2013
 
 Игумен Никон (Воробьев) | Будь милостив к себе. Письма к пьющему брату и его жене [2012] [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:CAFCDDB14D8D9E326F6B1317813C6D1DCDCF80CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:CAFCDDB14D8D9E326F6B1317813C6D1DCDCF80CF
 magnet:?xt=urn:btih:25F81DB2211C9BCE369A2C82F94BE4D357A62716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:25F81DB2211C9BCE369A2C82F94BE4D357A62716
 magnet:?xt=urn:btih:7B53D527B100EC775E124B0BFC0366855142444A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:7B53D527B100EC775E124B0BFC0366855142444A
 ```bash
 magnet:?xt=urn:btih:321CB2E6536A2D2F7D6DA05A993A0D73CE6CC06E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:321CB2E6536A2D2F7D6DA05A993A0D73CE6CC06E
 magnet:?xt=urn:btih:3C7B93DDFEEEC9F1B13A699A0EA665E2E7F92615
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:3C7B93DDFEEEC9F1B13A699A0EA665E2E7F92615
 magnet:?xt=urn:btih:70D6D77AF45C1EA2D5645C771DDD90FA76244992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:70D6D77AF45C1EA2D5645C771DDD90FA76244992
 ```bash
 magnet:?xt=urn:btih:C94372F7784FDC300E84AB433B9C6697E33785C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:C94372F7784FDC300E84AB433B9C6697E33785C5
 magnet:?xt=urn:btih:C68644D16A8CF1E4BF0C0C52364DFCBB9C5F894B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:C68644D16A8CF1E4BF0C0C52364DFCBB9C5F894B
 ```bash
 magnet:?xt=urn:btih:EC2B304753A88D6268191CFA186B29D08AD2DC00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:EC2B304753A88D6268191CFA186B29D08AD2DC00
 magnet:?xt=urn:btih:490294FC8CC94D88B43CFB77F012B0698D68812A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:490294FC8CC94D88B43CFB77F012B0698D68812A
 magnet:?xt=urn:btih:C0E2107AC50972CAA2872FA94EE5FF186662F044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:C0E2107AC50972CAA2872FA94EE5FF186662F044
 ```bash
 magnet:?xt=urn:btih:7CB250D1C6DA63CF7E58681A43DB35C49C55F1A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:7CB250D1C6DA63CF7E58681A43DB35C49C55F1A0
 magnet:?xt=urn:btih:B801C11E6BFB7D443A1531430B76B201A8A49517
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:B801C11E6BFB7D443A1531430B76B201A8A49517
 ```bash
 magnet:?xt=urn:btih:5B90A3265F7CFFF3BB2063FBE580F7B302577A4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:5B90A3265F7CFFF3BB2063FBE580F7B302577A4C
 magnet:?xt=urn:btih:1E6022CBF324BADCD20870F44315DE954BB9C036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:1E6022CBF324BADCD20870F44315DE954BB9C036
 ```bash
 magnet:?xt=urn:btih:64EB3235A45DB707052F5A415BC4EEB50DC1C1A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:64EB3235A45DB707052F5A415BC4EEB50DC1C1A8
 magnet:?xt=urn:btih:26F453709E00060F6A9F82433CA4BFC13B39F60C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:26F453709E00060F6A9F82433CA4BFC13B39F60C
 magnet:?xt=urn:btih:FFD7B579973CE9EAB379E5AF22BC79016693F6F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:FFD7B579973CE9EAB379E5AF22BC79016693F6F9
 ```bash
 magnet:?xt=urn:btih:4ECACE841C05D4501F341BE6EB0346E545DAB6FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:4ECACE841C05D4501F341BE6EB0346E545DAB6FF
 magnet:?xt=urn:btih:8AB34DF005B3D2274E2AB5BADD1F2605625F80B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:8AB34DF005B3D2274E2AB5BADD1F2605625F80B0
 ```bash
 magnet:?xt=urn:btih:CD738602D5A02BC506335BCEFE383669155D5BBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:CD738602D5A02BC506335BCEFE383669155D5BBD
 magnet:?xt=urn:btih:96BE9F5A6E7C9C9C12669D4A2D8EE98B2968646A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:96BE9F5A6E7C9C9C12669D4A2D8EE98B2968646A
 ```bash
 magnet:?xt=urn:btih:71FE98225F53CD305C2C21E2BD88BC7BDD9D0B6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:71FE98225F53CD305C2C21E2BD88BC7BDD9D0B6D
 magnet:?xt=urn:btih:00D3137E1AE27E6C2E4A9D8634588A0CB191CDCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,30 +681,7 @@ magnet:?xt=urn:btih:00D3137E1AE27E6C2E4A9D8634588A0CB191CDCD
 magnet:?xt=urn:btih:5F2083E13FADAA4605C10AA0FBD8FB759408DAF0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1359191   (966141) от 10.02.2020
-
-Анатолий Беляков, Олег Матвейчев | Гиперборея. Приключения идеи (2019) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_966141.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эпоху всеобщего среднего образования, давшего человеку иллюзию того, что он умеет не только читать, но и писать – причем сразу книги – феномен Гипербореи стал необычно популярен в масс-литературе. Тайны истории всегда привлекали читающую публику, отвлекая ее от насущных проблем и уводя в глубины мистицизма.
-В отличие от псевдонаучных опусов книга Анатолия Белякова (   Читать дальше...   )Жанр: Популярно об истории, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74E3958C0A18996CFE3FF6F5178309F650B93214
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

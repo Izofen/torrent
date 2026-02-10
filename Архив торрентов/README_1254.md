@@ -19,6 +19,8 @@ ASoft .NET Version Detector - это простой инструмент, кот
 magnet:?xt=urn:btih:89565A63822EA7463BAC5A326D3CF1BC03F88938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ iRingg позволит вам создавать персонализирова
 ```bash
 magnet:?xt=urn:btih:881F7E61C0027BDC9438A24AA2969E431AC4351E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NIUBI Partition Editor – программа для простого и над�
 ```bash
 magnet:?xt=urn:btih:60FFC7A29CBDED5CDA688C3ED458653AECEDEF3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Belonoga - Through The Eyes Of The Sun (2013) [FLAC|Lossless|image + .cue] <Folk
 magnet:?xt=urn:btih:F79238C47CAB9BCA631BA8ED427C4203D9EF5952
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Grids переносит лучшее из Instagram на ваш Mac.
 magnet:?xt=urn:btih:A5655E40CECED76E9EE662EFDF0455075DAC4814
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ SIV (System Information Viewer) - мощнейшая утилита, показ�
 ```bash
 magnet:?xt=urn:btih:EC123BDC1F7D525053E0F95E921216214A7265E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Skynet 2019.1.6 [En]
 magnet:?xt=urn:btih:B66B7A4BD7A95D4CCE1487FB3A2B948DE32EBB60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ WhatsApp Messenger - это кросс-платформенное приложе
 ```bash
 magnet:?xt=urn:btih:1976418E28025E5946BE83B924050C94E546D56A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Movavi PDF Editor 3.0.0 [Multi/Ru]
 magnet:?xt=urn:btih:2EED4CAB8A2963055F4A28D691A4A35295238D29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ SnippetsLab - полнофункциональный менеджер фрагм
 ```bash
 magnet:?xt=urn:btih:6415D63008DA3AD55E9A67D62A6DE2BE3AD5C551
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Amadeus Pro - многотрековый музыкальный редактор
 magnet:?xt=urn:btih:60552B5F5BEE0EF328DBCCD7FD202677BB4C4A59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ iDatabase - это самый простой способ организоват
 ```bash
 magnet:?xt=urn:btih:23D2A30F00B1122ADC2BAE3B568AD9C2ADB9AD7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Kerio Control — это комплексное решение в области
 magnet:?xt=urn:btih:26B73C4F2BF6D65042C55B2C0F62FF904535A0CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ PDF Checkpoint автоматизирует рабочие процессы PDF 
 ```bash
 magnet:?xt=urn:btih:1793C8C3E2F101F86E43BEB8954B4FA9581065C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Mitti имеет понятный, интуитивно понятный пол�
 magnet:?xt=urn:btih:198E2F9515622C8F5D938C95E51EEF2FDE661011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ Storyist для Mac OS - является мощной средой для ра�
 ```bash
 magnet:?xt=urn:btih:038D7B105294AD66B1299E1F2640423EEC6AC56B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Cascadea 1.4.5 [En]
 magnet:?xt=urn:btih:4CF2FE8B20A48C3EC9398A10AEDD45157A8023EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Volume2 — альтернативный регулятор громкости, 
 ```bash
 magnet:?xt=urn:btih:D6808305A350A9AB528CDF30B96EE7A874AEFE98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ TweakPower представляет собой единый графически
 magnet:?xt=urn:btih:660A4B2FF2DE7D9150734605FC6B1A81FE5FF916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:AF197E761ED42558538A08A8D4D84CA041712C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:AF197E761ED42558538A08A8D4D84CA041712C60
 ```bash
 magnet:?xt=urn:btih:10C27FAA30246CC9B5C256B7FF374C82D16A7908
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ GrandTotal прекрасно работает в сочетании с TimeLog.
 magnet:?xt=urn:btih:D7ED2A5199C89C9216C8CE3B07FAFB5C7A3386E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ Chronicle Pro 9.5.2 [En]
 magnet:?xt=urn:btih:1C18B0D44D3102ADE281BE343F7A6B81C0F90B85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ Mirillis Action! 4.24.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:AD0282D66F62FF0CD232E7FF760FF41A0EAB2475
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ Viber для Windows позволяет бесплатно отправлять 
 ```bash
 magnet:?xt=urn:btih:EBF00A86E7B2C47C5C5A8F024C4A533ED4940879
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +686,8 @@ Tap Forms Organizer простое в использовании, абсолют
 ```bash
 magnet:?xt=urn:btih:2F37364E049EBCE96BADB99EE945A6226FBAE4B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Manegarm - Edsvuren (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Viking-Black-F
 magnet:?xt=urn:btih:0F3F7C81D2EC1B7ED28C3231C1A4828529F9D493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:0F3F7C81D2EC1B7ED28C3231C1A4828529F9D493
 ```bash
 magnet:?xt=urn:btih:D95433A7EF6D814E34EFC7392B96D029BDF00143
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:D95433A7EF6D814E34EFC7392B96D029BDF00143
 magnet:?xt=urn:btih:961ED192A23A923F4119F29916304F375DA49065
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:961ED192A23A923F4119F29916304F375DA49065
 ```bash
 magnet:?xt=urn:btih:5D7A8870436E2142A2C01F2035B12DA27929A386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Peter Tha Zouk & Bruno Marciano - Kashmira (2001) [FLAC|Lossless|tracks] <Progre
 magnet:?xt=urn:btih:F89DB2363B4BCE1AB55FBCD529C9E813C9FAEF91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:F89DB2363B4BCE1AB55FBCD529C9E813C9FAEF91
 ```bash
 magnet:?xt=urn:btih:823CFC6C04217006A01B4FF355023C1094D0454D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Suotana - Ounas II (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death, 
 magnet:?xt=urn:btih:9ADCDB54C183A8F82A47A3C5ADA07FB7874E89C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:9ADCDB54C183A8F82A47A3C5ADA07FB7874E89C7
 ```bash
 magnet:?xt=urn:btih:00998F881ABC9B07C2C2C1447C1190B092224CCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Asymmetric Universe - A Memory And What Came After (2025) [FLAC 24/48|Lossless|W
 magnet:?xt=urn:btih:B267948E80B263654D6111F995C64E3CD330F07B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:B267948E80B263654D6111F995C64E3CD330F07B
 magnet:?xt=urn:btih:C8F70401F22C4F32D118C9676609240343EF94F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:C8F70401F22C4F32D118C9676609240343EF94F6
 ```bash
 magnet:?xt=urn:btih:D0B37D83489C11DB26A27C189576E891E9E801B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:D0B37D83489C11DB26A27C189576E891E9E801B1
 magnet:?xt=urn:btih:36FC782F18F095A97BE39C7B66B3F462AC6ED96C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ XV век. На Пиренейском полуострове медленно �
 ```bash
 magnet:?xt=urn:btih:6251D712D02F1CFEE067663CC6962DC5A82CBEDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:6251D712D02F1CFEE067663CC6962DC5A82CBEDD
 magnet:?xt=urn:btih:B54BE7DC95BDAF855641C5702C979ED64B9BFC9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:B54BE7DC95BDAF855641C5702C979ED64B9BFC9C
 ```bash
 magnet:?xt=urn:btih:9DAFD47CCE7AE1AE44531BC57128EBFC18522A90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:9DAFD47CCE7AE1AE44531BC57128EBFC18522A90
 magnet:?xt=urn:btih:E1B90285680B6E0D95EB4AA2105EF3B44197B500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:E1B90285680B6E0D95EB4AA2105EF3B44197B500
 ```bash
 magnet:?xt=urn:btih:595FC66C7C69F393F7973767D3FB0A6CEAB55C4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:595FC66C7C69F393F7973767D3FB0A6CEAB55C4D
 magnet:?xt=urn:btih:F052ECCAF062A1349873FC7830E30EDAF81F8E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:F052ECCAF062A1349873FC7830E30EDAF81F8E46
 ```bash
 magnet:?xt=urn:btih:6C21195C01A6935385102463D42F83097C635507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ VA - 25 Years Of Anjuna Mixed by SØNIN (2025) [MP3|320 Kbps] <Trance, Progressi
 magnet:?xt=urn:btih:BAADE22B8DF0594B8AC3D904ACBAEC1DE8183906
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:BAADE22B8DF0594B8AC3D904ACBAEC1DE8183906
 ```bash
 magnet:?xt=urn:btih:1B3E9201882408A29C175A6D1FA701830AB1B09D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:1B3E9201882408A29C175A6D1FA701830AB1B09D
 magnet:?xt=urn:btih:3817C732E7040F4960FAD8DACA9D9FE43DD6EA40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:3817C732E7040F4960FAD8DACA9D9FE43DD6EA40
 ```bash
 magnet:?xt=urn:btih:63FEC01B0B94564F86F8302BE8FBBC30587FEE91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ A4 Люби Меня • Innamorati(   Читать дальше...   )Жанр:
 magnet:?xt=urn:btih:CD18AB015953071D46F25E3695D4443CE68F306E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ North Mississippi Allstars - Still Shakin' (2025) [FLAC|Lossless|tracks + .cue] 
 magnet:?xt=urn:btih:4AEBE6ABB3B3D9E1495069AA8064F3015D93451E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:4AEBE6ABB3B3D9E1495069AA8064F3015D93451E
 ```bash
 magnet:?xt=urn:btih:36D770AD07BF18C1B970FE681E0B9F1507A9213C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

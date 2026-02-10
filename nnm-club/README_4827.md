@@ -20,6 +20,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Masabumi Kikuchi - In Concert (1970) Remaster, 2015, Universal[FLAC|tracks+.cue]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Volbeat - Let's Boogie Live From Telia Parken (2018) BDRip [H.264/720p]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ CD 01:
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ CD 01:
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ CD 01:
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ VA - Christmas Box (2018) [MP3|320 Kbps] <Psy-Trance, Progressive Psytrance>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ VA - All Stars Disco Christmas 2001 (2000) [FLAC|Lossless|image + .cue] <Pop, Ch
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ VA - All Stars Disco Christmas 2001 (2000) [FLAC|Lossless|image + .cue] <Pop, Ch
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ Microsoft® Windows® 11 Professional VL x64 23H2 RU by OVGorskiy 11.2023
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Microsoft Office 2021 — новый офисный пакет от корпор
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ She & Him - Christmas Party (2016) [AAC|256 Kbps]<Christmas, Indie Pop, Folk Pop
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ Skydive Adventure by Juanpa Zurita - Скорее надевай парашют,
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ Fallout 4 - это продолжение знаменитой постапок�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +405,8 @@ Fallout 4 - это продолжение знаменитой постапок�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ Fallout 4 - это продолжение знаменитой постапок�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ Fallout 4 - это продолжение знаменитой постапок�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Microsoft Office 2016-2021 хорошо демонстрирует, как се�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ Microsoft Office 2016-2021 хорошо демонстрирует, как се�
 magnet:?xt=urn:btih:095EC0ADC4F255B48F7C90B5EC7C39DAD02F9044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ Navitel Navigator / Навител v9.6.1964 Full и другие [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:931A76B84A4AE020BE0B9D6C716B3F6B9586F5FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:931A76B84A4AE020BE0B9D6C716B3F6B9586F5FB
 ```bash
 magnet:?xt=urn:btih:A180B3FDF8F17E1724D357D62EA0895AD04C9B56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ magnet:?xt=urn:btih:A180B3FDF8F17E1724D357D62EA0895AD04C9B56
 magnet:?xt=urn:btih:F2DCF2E469B13804154689DAAA4920800B65DABD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ Animal ДжаZ - Раритеты (2021) [MP3|320 Kbps] <Alternative>
 magnet:?xt=urn:btih:F15BEAF60A3799D1F4A9E5E8C633D1AD7ECBCB9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ magnet:?xt=urn:btih:F15BEAF60A3799D1F4A9E5E8C633D1AD7ECBCB9A
 magnet:?xt=urn:btih:CFDDF8E5185ED85792B9972B8E0CDAC575E19FF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:CFDDF8E5185ED85792B9972B8E0CDAC575E19FF9
 ```bash
 magnet:?xt=urn:btih:852E3F37BC94E61A3E7C0C051F6AE41C28DA0F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +702,8 @@ TouchRetouch — это приложение, которое поможет в �
 ```bash
 magnet:?xt=urn:btih:E1DDD1DDFDED1C03B311F693CD3D4204A44102F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

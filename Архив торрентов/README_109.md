@@ -19,6 +19,8 @@ IPTV Pro v9.0.4 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:9740EECE9F6FC2DF76AE8AEC213B516500C0F4C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ WSCC (Windows System Control Center) - портативная программа
 magnet:?xt=urn:btih:CFA79AA69D66D9192EDF8A6B07F0484DE3502798
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:CFA79AA69D66D9192EDF8A6B07F0484DE3502798
 ```bash
 magnet:?xt=urn:btih:75B90EB5E0B485F3B354275A751BC48B4DD759EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ R-Drive Image — является эффективной утилитой дл�
 magnet:?xt=urn:btih:29258B9C40EC9B52D5FB59FFB828A1A9D92D7D63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:32150E76387E9F86E63ADB6CE933371A26CA3B1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ EarthView — это динамические обои для рабочего �
 ```bash
 magnet:?xt=urn:btih:197B4DAB426490F046678B35E5BFC5DF2FFE2732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:2D4F690F1CDD5F9B23351865E9D3B21539AEC73E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:A4517810E5B6228DE862AAB1017EF526797731B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ CherryTree - функциональная программа, которая п�
 magnet:?xt=urn:btih:B9A95785F798E78C7A14972664EF667DC794900A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ RedNotebook - это простое GTK+ / Gnome приложение напис
 ```bash
 magnet:?xt=urn:btih:6166FC90437688B27AD5DAC5613CE4A2DC3C6DD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 magnet:?xt=urn:btih:E300907003B0B31C288EA8CDC422974763368EEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ HiPER Calc Pro v11.0.8 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:105F3D48C9A4B38110B2D5BAC2DC2BE13FA9B708
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Draw.io 26.0.16 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:901B2809D59EFEEDD8F5B4AA017BA51540CD9233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 ```bash
 magnet:?xt=urn:btih:4F94A26F9CFD371BD0A8B503E383503F0AB1DE17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ KiCad – уникальный в своем роде программный п�
 magnet:?xt=urn:btih:5B885BAACB12EB3F1E8DB01C2F7036AC1CDD2722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Master PDF Editor — простая, но эффективная програм
 ```bash
 magnet:?xt=urn:btih:AFB50275EF5A551F5B6D67506AC42E0F8C24B146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Ultimaker Cura - популярный слайсер для 3d-печати. О�
 magnet:?xt=urn:btih:250289BAC09F0E5D4E67ED82ED73A1BC22147539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Opera One 117.0.5408.39 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C3C3540CB3BDB996E80911D52DE891A55AC9F24F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ AntiPlagiarism.NET - инструмент, позволяющий исследо
 magnet:?xt=urn:btih:4C91EB3F7069C8C87876C309987CAEF403F2A9C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:59C6FDC309358D1BE61FEF3346207DB2FF6A071E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ RustDesk Remote Desktop – программное обеспечение для
 magnet:?xt=urn:btih:18283AB371E8351F72E0D03D969A6918FACF3F06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:89C8EF405409A24B7D2766568BC378EFB8B147EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Wondershare UniConverter - простой в использовании виде
 magnet:?xt=urn:btih:976ABB74A22FED5CA664168B79036C522646BC90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Bulk Crap Uninstaller (BCUninstaller) - деинсталлятор програ�
 ```bash
 magnet:?xt=urn:btih:5722CD44EEDC84CB42699D824470BB268D57A1FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:C2113C58434F9652D8F63166342B351A1D9356A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Rosetta Stone: Learn, Practice 8.31.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7DFCA12FBC232CEDBE7A4F812C69DF4EFE2D8FC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

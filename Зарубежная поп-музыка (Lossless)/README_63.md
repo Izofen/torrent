@@ -22,6 +22,8 @@ Sophie Ellis Bextor - The Song Diaries (2019) Cooking Vinyl Ltd. [FLAC|Lossless|
 magnet:?xt=urn:btih:550667AB7B066CC6CF1B1D2F726A6D3E71EEBE77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Bonnie Tyler - Between The Earth And The Stars (2019) [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:9CE10FA71B2FD3C64681B025547881515BD2531F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ CD1:
 magnet:?xt=urn:btih:009509C70D6A003193454380CDE7DAA76907FC0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Marc Anthony - Pa'lla Voy (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Latin, Sals
 ```bash
 magnet:?xt=urn:btih:C88C12B3F66F148F6ED95B141717110D3DCAB7E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ Kylie Minogue - The Best Of Kylie Minogue (2012) [FLAC|Lossless]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +173,8 @@ VA - Ultra Dance 20 (2019) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
 magnet:?xt=urn:btih:307AE57F0E589A4CC4F8AB07E7659659410EC394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +199,8 @@ VA - Minos 2019 - 18 Super Hits (2018) [FLAC|Lossless|tracks + .cue] <Pop, Folk,
 ```bash
 magnet:?xt=urn:btih:A7139C89AFCCCCF0036A3A02D481FF3700CE98AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +229,8 @@ CD1:
 magnet:?xt=urn:btih:EAC9FA0E24C4D799A311875E3581C28259743E66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +257,8 @@ Bryan Adams - Pretty Woman - The Musical (2022) [FLAC|Lossless|WEB-DL|tracks] <P
 ```bash
 magnet:?xt=urn:btih:2020A7D9599DEB5F793B6B8B1F8CB8E5A1B6FA6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +287,8 @@ Avril Lavigne - Love Sux (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:4EC87882711A754EF21EBAAACBA6A3448DBB2DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +315,8 @@ VA - La Dolce Vita! Italian Cool…From Rome To The Amalfi Coast (2015) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:8E214A384F893AE8D58C3E416BBE07BA41757E8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +345,8 @@ White Sea - Tropical Odds (2017) [FLAC|Lossless|tracks] <Indie Pop, Dream Pop, S
 magnet:?xt=urn:btih:F68F4419AFBAC93E7A2B103A52D649A12123112D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +373,8 @@ Dido - Greatest Hits (2013) Deluxe Edition, 2CD [FLAC|Lossless|tracks + .cue] <E
 ```bash
 magnet:?xt=urn:btih:E3254D6BD914B0308402554CB0C422ABBA368F38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +403,8 @@ VA - Energy Booster Music Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:BA4F00209456D525AAA56E978DB6F6E420DA5BEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +431,8 @@ magnet:?xt=urn:btih:BA4F00209456D525AAA56E978DB6F6E420DA5BEF
 ```bash
 magnet:?xt=urn:btih:CC3224EB68BB5FBF18CD728194E6D91D324BCB36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +461,8 @@ CD1
 magnet:?xt=urn:btih:26D99FA8C4470AF8EC06F5811C1E8E8156B84829
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +489,8 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:AD521C8F94B644D7D73EC5984668A48D610BF5AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +519,8 @@ Vesta - Lohtulauseita (2018) [FLAC|Lossless|tracks + .cue] <Pop>
 magnet:?xt=urn:btih:93681D7859DAA4E756964A82E7EB9B62B04407EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +548,8 @@ VA - Ultimate 70s (2015) Box Set, 4CD [FLAC|Lossless|tracks + .cue] <Pop, Dance>
 magnet:?xt=urn:btih:F2451C441D1F707A532ACE6D54F0DB1D4A33529A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +574,8 @@ Whitney Houston - The Star Spangled Banner (1991) Single [FLAC|Lossless]<Pop>
 ```bash
 magnet:?xt=urn:btih:28769EAA1FB2DCA2418743EC47D25ADD943233CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +604,8 @@ Pupo - Su di noi - The Best of Pupo (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:1893DFC2DFDDA20B50A4637B7913836F625F057E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +632,8 @@ Selena Gomez - Revival (Box Set USA) (2015) [FLAC|Lossless|image + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:AB4D5704DF957B32FF5E9718E16324BC248183B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +662,8 @@ YouTube: Q6SUwv4RmmM
 magnet:?xt=urn:btih:B770936FE8026180B70BED09EC1316C436DBBB7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +690,8 @@ The Korvids - The Korvids (2017) [FLAC|Lossless|tracks + .cue] <Pop Rock>
 ```bash
 magnet:?xt=urn:btih:4D45206540977D2F5786F6AC755E6EB2DEE5E3B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +720,8 @@ Dido - Still On My Mind (2019) BMG [FLAC|Lossless|tracks + .cue] <Electronic, Po
 magnet:?xt=urn:btih:DDC496B1CBBBB5FB9E51406DD889A224526EB3AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,6 +748,8 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:CBD6A7F12DDEA3D930E4338BB9B89E697CD10A29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

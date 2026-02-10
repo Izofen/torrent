@@ -30,6 +30,8 @@ Filmed on the 16th March 2010, ROCKIN' AT THE RYMAN finds 80s pop sensation Fore
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -53,6 +55,8 @@ Lady Gaga Presents: The Monster Ball Tour at Madison Square Garden (2011) [1080i
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -80,6 +84,8 @@ The Rolling Stones: Let's Spend the Night Together (1981/2011) [1080p] Blu-ray
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -114,6 +120,8 @@ Jennifer Lopez - On The Floor ft. Pitbull(   Читать дальше...   )Ж�
 magnet:?xt=urn:btih:B0FB0A490FE94F80FE32E0B0BDD2C111F030E64D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +155,8 @@ Rainbow(Ritchie Blackmores Rainbow) Video Collection (1977-1995)(2011) DVDRip,Ha
 magnet:?xt=urn:btih:2F23051897EC2DDD9B4CB6CA0118D5C8504C03AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +180,8 @@ Hallux feat. Marcus - Ai Se Eu Te Pego (2012) WEBRip 1080p
 ```bash
 magnet:?xt=urn:btih:25CF96494FB61D043346EC92C02EC3AFF3FA758D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +211,8 @@ Van Canto - Live at Wacken (2008) DVDRip
 magnet:?xt=urn:btih:6D4A2193FE1115C7F92BE06C97C4D5D2FA9E8BE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +239,8 @@ Primo Victoria feat. Joakim Broden (Sabaton) Napalm Records(   Читать да
 ```bash
 magnet:?xt=urn:btih:4D5FA095EB1E6BB65AC868C607A608046F1EC381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +275,8 @@ Super Mix Зарубежных Видео Клипов (2012) (720p)
 magnet:?xt=urn:btih:B94AB3066D8C2E35DC48417D8DC6AEA43F90D788
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +310,8 @@ Nirvana: Live at the Paramount (1991/2011) [1080p] BDRemux
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +339,8 @@ Nirvana: Live at the Paramount (1991/2011) [1080p] BDRemux
 magnet:?xt=urn:btih:4828158253396996019061962F6FA793B3D0ABFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +364,8 @@ magnet:?xt=urn:btih:4828158253396996019061962F6FA793B3D0ABFB
 ```bash
 magnet:?xt=urn:btih:1B63FD3514C34FBF8F06B1367738AE366B518E3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +400,8 @@ Ray Charles: Live At Montreux (1997/2008) [1080i] Blu-ray
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +425,8 @@ Ray Charles: Live At Montreux (1997/2008) [1080i] Blu-ray
 ```bash
 magnet:?xt=urn:btih:DBFDD82D622AE3EA9B8AE817F39EC3572A5CADB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +461,8 @@ B.B. King: Live At Montreux (1993/2009) [1080i] Blu-ray
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +486,8 @@ The Cure / The Cure-TRILOGY(2003) BDRip [1080p]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +513,8 @@ The Cure / The Cure-TRILOGY(2003) BDRip [1080p]
 magnet:?xt=urn:btih:B6019749AE4C87FD2DE2BCB02E4F24B4B37B05CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +538,8 @@ magnet:?xt=urn:btih:B6019749AE4C87FD2DE2BCB02E4F24B4B37B05CD
 ```bash
 magnet:?xt=urn:btih:F00EA91C0B7FF5A6BD599899FC6A75D14387E91C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +568,8 @@ Filmed on November 9th, 2010 at the historic Orpheum Theater in Memphis, TN, thi
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +595,8 @@ Eros Ramazzotti /Eros Live World Tour 2009/2010 (2010) DVD9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +631,8 @@ Bad Company - Live At Wembley (2011) BDRip
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +657,8 @@ Bad Company - Live At Wembley (2011) BDRip
 magnet:?xt=urn:btih:9484C4A172FC78277765040DBEA6038CC5457A0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +682,8 @@ magnet:?xt=urn:btih:9484C4A172FC78277765040DBEA6038CC5457A0D
 ```bash
 magnet:?xt=urn:btih:95B3A56F4B0867144141C054B9A23026A421639D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,6 +717,8 @@ DVJ Bazuka - Богиня Электро (2010) HDTVRip 1080p
 magnet:?xt=urn:btih:D607437C1CAD81C03FFB7C2E996FDF66D105A7CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +743,8 @@ Robert Plant & The Strange Sensation - Sound Stage (2006) HDTVRip
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -718,6 +768,8 @@ DVJ Bazuka - Smack My Bitch Up (Uncensored) (2011) DVDRip
 ```bash
 magnet:?xt=urn:btih:9233416D1C300A36ECBB399BECAFE98AA245FA57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

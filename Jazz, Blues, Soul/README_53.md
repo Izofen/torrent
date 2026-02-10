@@ -28,6 +28,8 @@ Superfloor - Live It Up! (2012) [MP3|236 kbps]<Blues Rock>
 magnet:?xt=urn:btih:811DC87790A4A19B8D58881E0B1CBE6688F0B254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ Greg Koch & Malford Milligan - Nation Sack (2009) [MP3|320 kbps]<Hard Blues Rock
 ```bash
 magnet:?xt=urn:btih:FA00620736CECA7484FF119894FB91A7E6083042
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ Kirsti Huke - Deloo (2007) [FLAC|Lossless]<Vocal Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +126,8 @@ Red Garland Trio - Can't See For Lookin' (1996) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +162,8 @@ VA - Jazz Macchiato (2009) [FLAC|Lossless]<Vocal Jazz, Bop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +196,8 @@ Hope Waits - Hope Waits (2007) [FLAC|Lossless]<Vocal Jazz, Blues>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +232,8 @@ Too Slim And The Taildraggers - Shiver (2011) [FLAC|Lossless]<Blues-Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +266,8 @@ VA - Piano Jazz (2009) [FLAC|Lossless]<Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +302,8 @@ Blues Attitude - Show Time Groove  (2002) [MP3|320 kbps]<Blues / Blues-Rock>
 magnet:?xt=urn:btih:73167B7FA52F61EFD20DA93692BECE9822CE3BAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +336,8 @@ Joe Sample - Old Places Old Faces (1996) [FLAC|Lossless]<Jazz, Piano Jazz, Smoot
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +372,8 @@ Sonny Boy Williamson - Clownin' With The World (w. Willie Love) (1951-54) /1989,
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +406,8 @@ Gray Sargent - Shades of Gray (1993) [FLAC|Lossless]<Guitar Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +442,8 @@ Lena Horne - Love Songs (1999) [FLAC|Lossless]<Vocal Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +476,8 @@ Udi Levy - Ahava (2011) [FLAC|Lossless]<Smooth Jazz, Blues>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +512,8 @@ Craig Erickson Project - Shine (2001) [MP3|320 kbps]<Hard Blues>
 magnet:?xt=urn:btih:A054E15CE24A35B579255B36ACDDFEB10F481991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +544,8 @@ Back To Blue - The 13th Day (2007) [MP3|320 kbps]<Blues-Rock>
 ```bash
 magnet:?xt=urn:btih:1143DF13DE99D9543B88A45D4A0C833AC6122537
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +579,8 @@ Ahmad Jamal - Blue Moon: The New York Session (2012) [FLAC|Lossless]<Post-Bop, P
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +611,8 @@ The 335 Experience - Croydon Bluegie (2011) [MP3|320 kbps]<Blues Rock>
 ```bash
 magnet:?xt=urn:btih:9BEB1A5FDA68125DB7593765C0E1BEDBE1F8FA6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +647,8 @@ The Chicago Kingsnakes - Blue Mosaic (2011) [MP3|320 kbps]<Blues / Electric blue
 magnet:?xt=urn:btih:4AAE24A1348C2E562F7D50694048ED7CBE71358A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +682,8 @@ Little G Weevil - The Teaser (2011) [MP3|320 kbps]<Blues>
 magnet:?xt=urn:btih:3F1121A71E490833139AEBE184E8E13CEB3741D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +713,8 @@ Steve Gadd - The Gadd Gang (1987) [FLAC|Lossless]<Soul-Jazz, Jazz-Funk>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -707,6 +749,8 @@ VA - Jumpin' With The Big Swing Band (2003) [FLAC|Lossless]<Jazz, Swing, Big Ban
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -738,6 +782,8 @@ Andre Williams - Hoods and Shades (2012) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:2D7335EF603F1C86B53EE2DE8EF41CF1406AC454
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -772,6 +818,8 @@ Carolyn Fe Blues Collective - Original Sin (2011) [MP3|320 kbps]<Blues Rock>
 magnet:?xt=urn:btih:5094D5AE98A9CEF6796ABC0E67CCF28B9292F501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -805,6 +853,8 @@ VA - Jazz for Lovers vol.6 (2002) [FLAC|Lossless]<Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -837,6 +887,8 @@ Charlie & The Fez Kings - Play Me Some Blues (2011) [MP3|320 kbps]<Electric Blue
 ```bash
 magnet:?xt=urn:btih:12773E941DA5E2D6D956285037EB85651BF00549
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

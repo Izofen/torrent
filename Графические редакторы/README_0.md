@@ -22,6 +22,8 @@ AliveColors — графический редактор, созданный ро
 magnet:?xt=urn:btih:EBE4BF39C4435227AB7688D8E8997E44D4B2DA14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ FireAlpaca — это достаточно простой, но удобный �
 ```bash
 magnet:?xt=urn:btih:5566D07CE3F2BDF3C3D09E1BF6EFF959A3572250
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:CAE7EB1F125C2236644F680DA2D3F61F81098065
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Capture One - один из лучших профессиональных кон
 ```bash
 magnet:?xt=urn:btih:5CC0DD848456022F81594A9F12CBF463DBA8D816
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 magnet:?xt=urn:btih:7EEAA0FB32D5A0F776BC42B26267D9765CD1FF4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:7EEAA0FB32D5A0F776BC42B26267D9765CD1FF4C
 ```bash
 magnet:?xt=urn:btih:354B6C7752228411E5BBE44AF18D8FAB2F7F04F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ PhotoFiltre Studio (Repack & Portable) - программа для лёгког�
 magnet:?xt=urn:btih:DCB5DA23AFFBB25D19F8434A42D79E17E71B2FAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Franzis FOTO projects 3D #1 Pro 1.12.04285 Portable by Spirit Summer [Multi]
 ```bash
 magnet:?xt=urn:btih:265354C6F136129EFD22DAE95EB24CB776A20460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ AMS ФотоМОНТАЖ 4.5 Portable by 7997 [Ru/En]
 magnet:?xt=urn:btih:10C3D47605AF5F2A5F9C0E354F0CC2D13CA0C7DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ AMS ФотоМОНТАЖ 4.5 [Ru]
 ```bash
 magnet:?xt=urn:btih:EC87B71411AA02693D147F851020AE3CDB18103B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ FOTO projects 3D professional 1.12.04285 [Multi]
 magnet:?xt=urn:btih:DBC9D3868CD75880E31AD6609AB56923EF618F92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ FOTO projects 3D professional 1.12.04285 Portable by FC Portables [Multi]
 ```bash
 magnet:?xt=urn:btih:B62678BB0109AC5FF32F9104EA8699DAFA447C90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:B62678BB0109AC5FF32F9104EA8699DAFA447C90
 magnet:?xt=urn:btih:ED5C3AA2461B37D482D255A4A63CB94249E540CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ PhotoDiva - программа для ретуши портретных фото
 ```bash
 magnet:?xt=urn:btih:BD4BC0BF5FA1200D9EDAF79E65ECC6B74D31B377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Hallmark Card Studio - пакет для создания открыток. Он
 magnet:?xt=urn:btih:38EE26BA21523DAE9523171D0719DD11C15422C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Radiant Photo - это программа для редактирования ф
 ```bash
 magnet:?xt=urn:btih:857D81993A3F4171F21543B592BF2BF247FFE858
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ PhotoFiltre Studio - программа для лёгкого и быстрог�
 magnet:?xt=urn:btih:4FEA5A4DB8BCE465CBE0B78320792ADA29E9970E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ AMS ФотоМАСТЕР 21.0 Portable by 7997 [Ru]
 ```bash
 magnet:?xt=urn:btih:BD3F86979BCB4DA493CC2B3DA4D863C719A4640B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Wise ImageX 1.5.1.17 [Multi/Ru]
 magnet:?xt=urn:btih:D23CE116D08735F42111218256380C4A8951C5BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ CorelDRAW® Technical Suite — это универсальные инструм
 ```bash
 magnet:?xt=urn:btih:4CA85B9DBCF900BBAD6F4FC70670E54F9C2D3356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ AMS ФотоМАСТЕР 21.0 [Ru]
 magnet:?xt=urn:btih:71D3A28B4AC0EE28147BA0E9D355218DCFE0DA33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ CorelDRAW Graphics Suite 2025 26.2.0.170 RePack by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:20C8B34BFF4E79AFAA97701E5C7141BDCBCED745
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:7F8A30E4C56F238F0526D40906C0EF772905F82A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Perfectly Clear — приложение, которое позволяет вс
 magnet:?xt=urn:btih:D1CAC7E8E8BBE2CF5043D146FD1CC8F52D69B962
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ digiKam — фото-менеджер для Windows — программа дл
 magnet:?xt=urn:btih:3B639525B7C95479F1DE6E34E869776D2CC18DE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:DEF6AC79B444A91C41D34445CA3A0821AFB2019A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

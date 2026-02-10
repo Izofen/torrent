@@ -1,3 +1,29 @@
+###  Публикация: 1306161   (555422) от 06.06.2019
+
+Александр Санфиров | Лыжник (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_555422.jpg" />
+</div>
+
+
+###  Подробнее
+
+Александр Петров не в курсе, как сделать автомат Калашникова, не силен в экономике и не знает, что советовать Брежневу. Он даже не помнит особо дат и событий прошлого, хотя прожил длинную жизнь. Волей провидения его сознание в момент смерти перенеслось в его же тело, но на пятьдесят лет назад. Перед ним появляется море возможностей прожить совсем другую жизнь; зная (   Читать дальше...   )Жанр: Историческая фантастика, ПопаданцыПродолжительность: 09:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:382D4D3C51608BB836EDAC4D07C6132B8258CF5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306009   (555428) от 06.06.2019
 
 Роман Глушков | Ржавый Клык (2019) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:9CED8D160595CDA373657C8ED25C1DA38699366D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:9CED8D160595CDA373657C8ED25C1DA38699366D
 magnet:?xt=urn:btih:90CC8DD33AFD1B8EF6F558CB6398EFF9518E37A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:90CC8DD33AFD1B8EF6F558CB6398EFF9518E37A7
 ```bash
 magnet:?xt=urn:btih:97BEB29F1284FF702251075543547D4E1845D0E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:97BEB29F1284FF702251075543547D4E1845D0E7
 magnet:?xt=urn:btih:9E347DDFDEAB4DB7B23451EBA4724072A255B0CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:9E347DDFDEAB4DB7B23451EBA4724072A255B0CD
 ```bash
 magnet:?xt=urn:btih:F49611585C7F7206C5550174D660635A02506DB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:F49611585C7F7206C5550174D660635A02506DB3
 magnet:?xt=urn:btih:64A39523C37A6D7751A50A64A589A154D816ADA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:64A39523C37A6D7751A50A64A589A154D816ADA6
 ```bash
 magnet:?xt=urn:btih:51759E99ED35F8DE9311F186C1EA9B8C74342A4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:51759E99ED35F8DE9311F186C1EA9B8C74342A4B
 magnet:?xt=urn:btih:CA4EB13DCE3B2A67CB72929166CF5DD489CAED57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +253,8 @@ magnet:?xt=urn:btih:CA4EB13DCE3B2A67CB72929166CF5DD489CAED57
 magnet:?xt=urn:btih:B41D970CFF97C10D9F988C53326F5B4C14F376E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +278,8 @@ magnet:?xt=urn:btih:B41D970CFF97C10D9F988C53326F5B4C14F376E2
 ```bash
 magnet:?xt=urn:btih:6E86FB5C7863217685BA6BE0BE9F3EE11B7E506A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:6E86FB5C7863217685BA6BE0BE9F3EE11B7E506A
 magnet:?xt=urn:btih:FD77C882C75F6F1E5028808B2D215883AB8DC77F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:FD77C882C75F6F1E5028808B2D215883AB8DC77F
 ```bash
 magnet:?xt=urn:btih:509F32DD5014BCD5234A561968466F1D5DAF5B6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:509F32DD5014BCD5234A561968466F1D5DAF5B6F
 magnet:?xt=urn:btih:6877985820A8180BFB337B54FE79A4E507DEE7AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:6877985820A8180BFB337B54FE79A4E507DEE7AF
 ```bash
 magnet:?xt=urn:btih:B29CCFBF6B8DE825FBEC2B6D0A9AFA073F5252D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:B29CCFBF6B8DE825FBEC2B6D0A9AFA073F5252D3
 magnet:?xt=urn:btih:6D12E98F8E9F014862FCD83284ACFB484EFF69F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:6D12E98F8E9F014862FCD83284ACFB484EFF69F0
 ```bash
 magnet:?xt=urn:btih:E11374D22407383A4828A77389120F1B284470CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:E11374D22407383A4828A77389120F1B284470CD
 magnet:?xt=urn:btih:500C5B6A5A2026AAAC8CA152B1578FB343D40F49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:500C5B6A5A2026AAAC8CA152B1578FB343D40F49
 ```bash
 magnet:?xt=urn:btih:C483493DB6615F3E4C6EF6029D061EBE8E766DAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:C483493DB6615F3E4C6EF6029D061EBE8E766DAD
 magnet:?xt=urn:btih:167103E0A2FF2CB3C1324E7E81A5B5117B352984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:167103E0A2FF2CB3C1324E7E81A5B5117B352984
 ```bash
 magnet:?xt=urn:btih:3B02C0483436AEBAD55BE709853B4FE4F8F16728
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:3B02C0483436AEBAD55BE709853B4FE4F8F16728
 magnet:?xt=urn:btih:D553BA09A9D12222500CFEEC010ED80B70419C88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:D553BA09A9D12222500CFEEC010ED80B70419C88
 ```bash
 magnet:?xt=urn:btih:BEDCB8741E22ABA3F52A2EAB286640732710CF53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:BEDCB8741E22ABA3F52A2EAB286640732710CF53
 magnet:?xt=urn:btih:EB654C00D14ACE2CB5893C1B0C9AFD08A87B44F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:EB654C00D14ACE2CB5893C1B0C9AFD08A87B44F4
 ```bash
 magnet:?xt=urn:btih:31709CD8E64D701616186A4CBF72869EE6287E17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,30 +673,7 @@ magnet:?xt=urn:btih:31709CD8E64D701616186A4CBF72869EE6287E17
 magnet:?xt=urn:btih:519DEB3757033FE7BD30465F97225ECF5FFE07DF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045487   (556709) от 25.08.2016
-
-Александр Громов | Человек отовсюду (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_556709.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Человек отовсюду" фантастический роман Александра Громова, российского писателя-фантаста, вторая книга цикла «Мир Тверди».
-Планета Твердь получила свободу – но что теперь делать с нею? Планета Марция – лидер сопротивления землянам – уничтожена космической катастрофой. Кто виноват в гибели миллионов людей? При чем тут земляне? Что означают загадочные черные (   Читать дальше...   )Жанр: Космическая фантастика, Научная фантастикаПродолжительность: 11:21:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC7F03662891662464B746C7E1DBE3BF3DC57C14
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

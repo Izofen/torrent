@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:99E15EB3AF657FC3233441A79453834491A88D23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Side A:
 magnet:?xt=urn:btih:23DF406D0C1FC71E7A6689D5B781563CC3557D22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:A1859045E36E911B3D04A49A6FBF5E8A7897F92F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Museum Collage Creator — это наша огромная коллекция �
 magnet:?xt=urn:btih:152228B65FE1F26075C88FE3D75D0FA4914E4E79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Textra SMS v4.80 Pro Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4A5ACC10F35FCA70CB396A77F6C1B2D6E0609C30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ TikTok - социальное приложение для тех кто пред
 ```bash
 magnet:?xt=urn:btih:829384B4617A3370CCE08F5B39D3075452D71526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ VA - Compilation Part 148 Electronic (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:961B55E197BF33A5FE6A0A9B21401B3E866760CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Electrical Calculations Pro / Электрические расчеты v10.3.0 
 ```bash
 magnet:?xt=urn:btih:D82D3089B1790ACB5C5F28CE1F01F57153577DE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:D82D3089B1790ACB5C5F28CE1F01F57153577DE9
 magnet:?xt=urn:btih:6AFDFC2DD5ACBED356B24E254452CD45C695280B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:6AFDFC2DD5ACBED356B24E254452CD45C695280B
 ```bash
 magnet:?xt=urn:btih:F20416A8FD9434C897E7CD174ECA039EC9F45D37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Udemy, Eric Giessmannl | Quill to Unreal Engine pipeline – VR animation for 3D
 magnet:?xt=urn:btih:35D38B22F5D568ED2A4373344B4AA636854E98C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:35D38B22F5D568ED2A4373344B4AA636854E98C3
 ```bash
 magnet:?xt=urn:btih:04D28477434B22DF0FE56C076A1ED23F7FD8A214
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:04D28477434B22DF0FE56C076A1ED23F7FD8A214
 magnet:?xt=urn:btih:C0624F253E18204A75D5246F809916C252F7F674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:C0624F253E18204A75D5246F809916C252F7F674
 ```bash
 magnet:?xt=urn:btih:CD5B6AAE44ACFC0591C4C0AEF7066B560457750B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:CD5B6AAE44ACFC0591C4C0AEF7066B560457750B
 magnet:?xt=urn:btih:C52AE0ADFED9693D5FBD7F74F3D1A1D233703CFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Instant Translate On Screen — это мощное приложение для 
 ```bash
 magnet:?xt=urn:btih:4C6E233EE58E7654406FAB259BC98C7634D0C3CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ EmEditor Professional - профессиональная версия мощно
 magnet:?xt=urn:btih:68240C0F671702FEC5CFF4F70210E4233E417F08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:68240C0F671702FEC5CFF4F70210E4233E417F08
 ```bash
 magnet:?xt=urn:btih:49012352D4A9039601052BA0F378EDF7643C7C83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:49012352D4A9039601052BA0F378EDF7643C7C83
 ```bash
 magnet:?xt=urn:btih:905350E8FD79FDCD91A64205F187F735AB8DDE7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:905350E8FD79FDCD91A64205F187F735AB8DDE7C
 magnet:?xt=urn:btih:8498CF8F7CB823EB692697EFBA2120B1162062BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:8498CF8F7CB823EB692697EFBA2120B1162062BB
 magnet:?xt=urn:btih:764928355BF2D30C647CFEDE20B917F21635F1D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ Udemy, Billy McDaniel | Procedural City Generation in Unity C#: Grid-Based & Mod
 ```bash
 magnet:?xt=urn:btih:62933FC3FC081A58270459292DB702EB90C1CB3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ Pupo - Compilation (2025) [MP3|320 Kbps] <Pop, ItaloDisco>
 magnet:?xt=urn:btih:ED03C007F26F2744A56FE22BF303E0EEC9A40F87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ Septic Flesh — метал-группа из Греции. Коллектив �
 magnet:?xt=urn:btih:9D2F2FB70D24FFE987691F13935D0B58511A7D46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ digiKam — фото-менеджер для Windows — программа дл
 ```bash
 magnet:?xt=urn:btih:946551EC0ED8882F8435E4035AF694EF85AA6B9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +693,8 @@ VA - Soft Rock Greatest Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ```bash
 magnet:?xt=urn:btih:149001BE3EF1F3207EEC4214A136B0697E54A2AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

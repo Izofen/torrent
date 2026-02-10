@@ -20,6 +20,8 @@ Puzzle Quest: Immortal Edition (2025) [Ru/Multi] (1.0.0.3388) Repack Let'sРlay
 magnet:?xt=urn:btih:3A1D3C6B2EDB694318DEEC4ECE11F45F4091D293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Deep Rock Galactic: Survivor - это одиночный сурвайвор-ла
 ```bash
 magnet:?xt=urn:btih:01E37148891F970C7DE1595153566DD0F04183C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Deep Rock Galactic: Survivor - это одиночный сурвайвор-ла
 magnet:?xt=urn:btih:0EE262BE08872C6F48AEF0AB1692C6EBD249BE97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Puzzle Quest: Immortal Edition (2025) [Ru/Multi] (1.0.0.3388) License GOG
 ```bash
 magnet:?xt=urn:btih:3A868B2EFC8CDBDA41D4AEC29269CD404C96CF10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Moros Protocol (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:1DBDB2DFE65B7B6E119247511CF32763896F0400
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ The Lightkeeper - психологический хоррор, действие 
 ```bash
 magnet:?xt=urn:btih:447D747E9118AEBEBCDB026FC138E34D5D435A2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Moros Protocol (2025) [Ru/Multi] (1.0.7.1) Repack Let'sРlay
 magnet:?xt=urn:btih:6BEEDADE65D494A82B922B8740F61957A6D664A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Slime Rancher 2 - это продолжение удостоенной нагр�
 ```bash
 magnet:?xt=urn:btih:9AAAC2CB01E336BB516571EC694210614826B576
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Deep Rock Galactic: Survivor - это одиночный сурвайвор-ла
 magnet:?xt=urn:btih:CC067278322655298A6D9D1B083443BAB81B1F11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ The House of Tesla (2025) [Ru/Multi] (Build 20154873) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:08036FC194136246BBCC8882C51E71C01F908986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Slime Rancher 2 - это продолжение удостоенной нагр�
 magnet:?xt=urn:btih:496CDC086FABFB81A8EFC6D96752EC8186901910
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Mage & Monsters 2 - это захватывающий активный авто-
 ```bash
 magnet:?xt=urn:btih:3B033FB938A95C03E32F8856F2C46DC09511AD4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28714) License GOG
 magnet:?xt=urn:btih:5AD2CB76441F307298CE356373D3DD5A7200689C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Arctic Awakening - приключенческая игра от первого �
 ```bash
 magnet:?xt=urn:btih:E5DE0FDCCD9B4DF6F6186E45EBC97B300A815473
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Dying Light: The Beast (2025) [Ru/En] (1.2.2/dlc) Repack Other s [Deluxe Edition
 magnet:?xt=urn:btih:EFF80CB43A2033336566103CBF8D1E795986D48B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Warhammer 40,000: Dawn of War (2025) [Ru/Multi] (2.2.1.1) License GOG [Definitiv
 ```bash
 magnet:?xt=urn:btih:5277E19767B6F9774EA37A860C681EB575569DC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Deluxe Editio
 magnet:?xt=urn:btih:424D8C126DAA3E2C02E74432A4DE17952BAD4456
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:4188C95DAA0B0BFBEF92612C609DA33B8BE34883
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 magnet:?xt=urn:btih:5B232C45F5B20079F051C7CB25574D21FD765435
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Platypus Reclayed (2025) [Ru/Multi] (1.1.7) Repack Let'sPlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:F96FDCC82E745FA622214CD7252A750B5A4AB3D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Circus of Pain (2025) [Ru/Multi] (1.02) Repack FitGirl
 magnet:?xt=urn:btih:48A0F81D511507A1433CB16E6D8AF4E2ACD949A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Hades II (2024) [Ru/Multi] (1.131346) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:35D863CA2364F103478223D4A13F3853AA448BE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Greedland - это игра, предоставляющая поклонника
 magnet:?xt=urn:btih:ABDA790DDDC5B4E879CD8CAC1CD59915D5710573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Katanaut - это экшн-рогалик, в котором главный ге
 ```bash
 magnet:?xt=urn:btih:E6279083454B028AE446FAEF90C68A12DF7574FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Arctic Awakening - приключенческая игра от первого �
 magnet:?xt=urn:btih:3CCFACF11C2EF774B10C1146DE05AC2BD538C6A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Arctic Awakening - приключенческая игра от первого �
 ```bash
 magnet:?xt=urn:btih:9BE508FCC83DF0DFE7A20211563E47DD303E8E73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

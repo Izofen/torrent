@@ -1,3 +1,31 @@
+###  Публикация: 1063074   (434022) от 16.10.2016
+
+Артем Каменистый | S-T-I-K-S. Человек с котом (2016) [MP3]
+
+>>След.
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_434022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир непрекращающегося кошмара. Мир, где если даже тебе повезет на старте, финиш, скорее всего, обнаружится за первым поворотом. Мир непрерывно уродующий и переваривающий всех, кто в него попадают.
+
+И, тем не менее, даже в таком месте можно найти спокойный уголок. Но спокойствие здесь – слишком дорогой товар, и те, кто им торгуют, из кожи вон лезут, чтобы заставить (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 12:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:404BA41E1A23C4CC30B0AB1968F39A456FD26EC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063377   (434204) от 16.10.2016
 
 Джо Аберкромби | Прежде чем их повесят (2016) [MP3]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:50F12395C782508F86EF2B58967F1606C1CFAA3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +75,8 @@ magnet:?xt=urn:btih:50F12395C782508F86EF2B58967F1606C1CFAA3B
 magnet:?xt=urn:btih:D66637076CE9B150C0CEB2D3E0449C385263FEDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +100,8 @@ magnet:?xt=urn:btih:D66637076CE9B150C0CEB2D3E0449C385263FEDF
 ```bash
 magnet:?xt=urn:btih:248B7BF38E001CB054ECD55381A2129D69785498
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +128,8 @@ magnet:?xt=urn:btih:248B7BF38E001CB054ECD55381A2129D69785498
 magnet:?xt=urn:btih:AC3328AEE74A59549EF07A03EF06CDBD5FFA6E09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +153,8 @@ magnet:?xt=urn:btih:AC3328AEE74A59549EF07A03EF06CDBD5FFA6E09
 ```bash
 magnet:?xt=urn:btih:741A855950B92583440179A625DF9D3A62932DA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +181,8 @@ magnet:?xt=urn:btih:741A855950B92583440179A625DF9D3A62932DA5
 magnet:?xt=urn:btih:A74A2D42125E237CDB84B3AF19D200CC8F00BFF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +207,8 @@ magnet:?xt=urn:btih:A74A2D42125E237CDB84B3AF19D200CC8F00BFF1
 magnet:?xt=urn:btih:B7AA55E6D4DF0BA48ADD99B69E38E5E0990ED664
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +232,8 @@ magnet:?xt=urn:btih:B7AA55E6D4DF0BA48ADD99B69E38E5E0990ED664
 ```bash
 magnet:?xt=urn:btih:FE738659C3E3F1D9C38EA8C61406C071AEACF959
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +261,8 @@ magnet:?xt=urn:btih:FE738659C3E3F1D9C38EA8C61406C071AEACF959
 magnet:?xt=urn:btih:10D644C84602C0EBCFD3A7223CD5E12562CD2CE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +286,8 @@ magnet:?xt=urn:btih:10D644C84602C0EBCFD3A7223CD5E12562CD2CE3
 ```bash
 magnet:?xt=urn:btih:ACC3EC1CD3F0D16EFA54D791407CD3D4D395DF80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +314,8 @@ magnet:?xt=urn:btih:ACC3EC1CD3F0D16EFA54D791407CD3D4D395DF80
 magnet:?xt=urn:btih:D3F3061D24D8BB3E9D84B99A64A62A91B5F8F066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +340,8 @@ magnet:?xt=urn:btih:D3F3061D24D8BB3E9D84B99A64A62A91B5F8F066
 magnet:?xt=urn:btih:DEEB528D9E2A5FD9CAAAC705807DE169867606BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +365,8 @@ magnet:?xt=urn:btih:DEEB528D9E2A5FD9CAAAC705807DE169867606BE
 ```bash
 magnet:?xt=urn:btih:9ED80481318BF7EB6626A5316F100648016F30D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +394,8 @@ magnet:?xt=urn:btih:9ED80481318BF7EB6626A5316F100648016F30D6
 magnet:?xt=urn:btih:DD6AC7321D06A04B01ED3F55FFC23119454B3D83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +422,8 @@ magnet:?xt=urn:btih:DD6AC7321D06A04B01ED3F55FFC23119454B3D83
 magnet:?xt=urn:btih:DF57DE9A57DEF132A62078629EBCEC6D00B51E59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +449,8 @@ magnet:?xt=urn:btih:DF57DE9A57DEF132A62078629EBCEC6D00B51E59
 magnet:?xt=urn:btih:310B3D4591A7D9DBFB24649EA4DA67057E992862
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +474,8 @@ magnet:?xt=urn:btih:310B3D4591A7D9DBFB24649EA4DA67057E992862
 ```bash
 magnet:?xt=urn:btih:842AEC54298B2ED0C06B294D7706B4CD6B50FF57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +502,8 @@ magnet:?xt=urn:btih:842AEC54298B2ED0C06B294D7706B4CD6B50FF57
 magnet:?xt=urn:btih:D7B9AC3F3B3F3FD4F945843EC6680FA705700366
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +529,8 @@ magnet:?xt=urn:btih:D7B9AC3F3B3F3FD4F945843EC6680FA705700366
 magnet:?xt=urn:btih:EFF568C8F2C2EAE10EA6CFAF6D66D7ACD93E7582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +554,8 @@ magnet:?xt=urn:btih:EFF568C8F2C2EAE10EA6CFAF6D66D7ACD93E7582
 ```bash
 magnet:?xt=urn:btih:B6D83D27AFFD69DED89F7BCA0892D54D69D07FB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +581,8 @@ magnet:?xt=urn:btih:B6D83D27AFFD69DED89F7BCA0892D54D69D07FB8
 magnet:?xt=urn:btih:E153F04489469193FF42E355D3D8692122051929
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +606,8 @@ magnet:?xt=urn:btih:E153F04489469193FF42E355D3D8692122051929
 ```bash
 magnet:?xt=urn:btih:723C96DA9DD909B3932324C0AD8A43436A391BD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +633,8 @@ magnet:?xt=urn:btih:723C96DA9DD909B3932324C0AD8A43436A391BD2
 magnet:?xt=urn:btih:45C977CF5F60BA11B1B08588D71896EEDD55BD7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +658,8 @@ magnet:?xt=urn:btih:45C977CF5F60BA11B1B08588D71896EEDD55BD7F
 ```bash
 magnet:?xt=urn:btih:E481CF90DC1F2226F18E24F816D44C37145A989E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,29 +685,7 @@ magnet:?xt=urn:btih:E481CF90DC1F2226F18E24F816D44C37145A989E
 magnet:?xt=urn:btih:40408268761202ACBA3E4B23AAF5B455902A21AF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323336   (437512) от 03.09.2019
-
-Сергей Плотников | Аколит (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_437512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раньше он был обычным менеджером средних лет без каких-либо амбиций. То, что он оказался в другом мире и в чужом теле, можно считать настоящим подарком судьбы. Ведь это шанс начать все заново! Здесь все по-другому. Магия, монстры, вероломные волшебники и неведомые существа. Стать охотником на монстров – довольно неплохая участь для того, кто раньше был офисным планктоном (   Читать дальше...   )Жанр: Боевое фэнтези, ПопаданцыПродолжительность: 12:29:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C02853DD22EF156061414098A0B90AA52F33C2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

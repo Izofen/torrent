@@ -21,6 +21,8 @@ Luminar Neo – это отдельный редактор, который вк�
 magnet:?xt=urn:btih:CF10F5874E56626E19528ED6C5552C216022BA1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Wise Disk Cleaner 11.0.5.819 RePack (& portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A05377D32FFB892825EB2E97F4ACAF6C0D8DC888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Serial Box & SerialSeeker 11-2023 [En]
 magnet:?xt=urn:btih:BEEF5CC276C673FFB04D5BA5310615ADC2A34D94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:DA2C41F7701C4F543F87F063464D1045B46B595D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ NCH Debut Professional 6.62 [En]
 magnet:?xt=urn:btih:4974659C572DAD754296274FF8CFF6F037A46BB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ MemTest86 - бесплатная программа, позволяющая пр
 magnet:?xt=urn:btih:18A382D11EAB651C2964E36E7CECBFD82C4CAEBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Atrise Lutcurve 4.0.5 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:4153C925EA8A47EC3553EE8F157FF9714CD68A92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Dropshare - приложение строки меню для Drag & Drop заг
 magnet:?xt=urn:btih:EBCD0876763BD655DF9DBAED8C0E5A210516EB97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Pro Microphone: Audio Recorder 1.4.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:B1CBB6DD47F3CFACE6A3AB2D601C1BE0FA95A7E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Postico - рациональный (   Читать дальше...   )Тип �
 magnet:?xt=urn:btih:18342A6C61EA22E8E3F6CCEAB152709973BBF864
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ SignFlow - это быстрый редактор PDF для электронн�
 ```bash
 magnet:?xt=urn:btih:C2699DF50C8F503A84BC69EBF9E5E350323FF1ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Typinator – это простое приложение которое сэко
 magnet:?xt=urn:btih:E05E3ADB42C98DB4229E3B500991E12E3DF4B377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ MacPilot 12 v12.0.5 [En]
 magnet:?xt=urn:btih:6AD5D06C86EC4647504FFCB59B88D7170CCB96A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ Hyperkey 0.11 [En]
 ```bash
 magnet:?xt=urn:btih:C02259C664D70E56BDD26D6D9C7851DC576021DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ HighTop - самый удобный способ работы с любимым�
 magnet:?xt=urn:btih:220DDBDDDD6E6CAB471238B8E420CD8E0F88D141
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Radiant Photo - это программа для редактирования ф
 ```bash
 magnet:?xt=urn:btih:BC430F1CB3917218B100474F915833B7710831F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Application Wizard позволит запускать, завершать и а
 magnet:?xt=urn:btih:2BC02925B5A73E6B4291FB593879CCCDDC57C8D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ Advanced Renamer хоть и бесплатная (   Читать дальше
 ```bash
 magnet:?xt=urn:btih:4A80E4874AFE8F0A994F8CAC9BA8546CA9208970
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ Secret Folder - Прячет данные с вашего компьютера �
 magnet:?xt=urn:btih:53A89A9875973692D5F46D5A47D95B61C63AAD19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:4CD07B271679AC84004AB9A44AFA7CCD0D88D34B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ TunesKit AceMovi Video Editor может отличаться от множес�
 ```bash
 magnet:?xt=urn:btih:4C4A37EF42152A9ED38B494A1243F2E3DFCCCE9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ Duplicate Finder и Cleaner помогут вам избавиться (   Чи
 magnet:?xt=urn:btih:FEF88B79557081CD34A484108B6A510321B164DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ Scroll 2.3 [En]
 ```bash
 magnet:?xt=urn:btih:0366D07DC34F62CE5352E0F8D49363FFCD6D229C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 magnet:?xt=urn:btih:6465249CE8BA35C7F7B8EBF1C3737A35D957A58A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 magnet:?xt=urn:btih:31383BCB92D405EB57079A51A8F98BA96615FC78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Caato Time Tracker использует трехуровневую иерарх�
 ```bash
 magnet:?xt=urn:btih:9B37273D2B2E9AE5CF029C8D4BF93699B457860E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

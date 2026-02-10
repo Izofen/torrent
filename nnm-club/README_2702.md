@@ -22,6 +22,8 @@ Buddy Rich - Big Band Machine (1975) 2005, LRC [FLAC|Lossless|tracks + .cue] <Ja
 magnet:?xt=urn:btih:D1E37FAE149714E861135F2B287FB03ACDFE7E5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Red Mitchell - Chocolate Cadillac (1976) 1992, SteepleChase [FLAC|Lossless|track
 ```bash
 magnet:?xt=urn:btih:4C70F77B10C8EFC1ACE4486D059595BBFFD37E0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Clifford Jordan, Richard Davis, James Williams, Ronnie Burrage - Four Play (1990
 magnet:?xt=urn:btih:7920612BFBDBD29C53B6B7C120CC740CAD64400D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Art Farmer & Hal Mckusick Quintet - Complete Studio Recordings (1956 - 1958) 200
 magnet:?xt=urn:btih:9A44D7A3F26BADC20265B88D72559AD9DBF39737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:9A44D7A3F26BADC20265B88D72559AD9DBF39737
 ```bash
 magnet:?xt=urn:btih:DF17E72826C483220A89FAE6A3419F9B7825F071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:DF17E72826C483220A89FAE6A3419F9B7825F071
 magnet:?xt=urn:btih:9BBFC535BC4D8DE71883981DAF0EB0186A31311E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:9BBFC535BC4D8DE71883981DAF0EB0186A31311E
 ```bash
 magnet:?xt=urn:btih:01DEEC4CADA58A08FD6BA8999A4167CD86667671
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:01DEEC4CADA58A08FD6BA8999A4167CD86667671
 magnet:?xt=urn:btih:49BEF079C1FEE6798E59866D515D9DAEFFCF8CF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:49BEF079C1FEE6798E59866D515D9DAEFFCF8CF1
 ```bash
 magnet:?xt=urn:btih:BF1A718835FD75563C40DD5DFCA2DEC8A835E81C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ VA - Spacesynth Forever 4 (2025) [MP3|320 Kbps] <Spacesynth, Synth-Dance>
 magnet:?xt=urn:btih:FD43E26D606E9F67DF51F755B21B6BEEB7099B49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ Smart AudioBook Player Pro v11.2.0 Mod by Kirlif' [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E2C89780C6CF49677BDBA1D1FFFACF20A6C5F254
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ File & Image Uploader - удобная и просто незаменимая п
 magnet:?xt=urn:btih:9D9C17B06246566A97340DF6B5698E257077C025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ Schaberstein — это семейство шрифтов без засечек,
 magnet:?xt=urn:btih:CA5595A4F0FE2BDF85B0C9611BBBE722D5F5069D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ GeoGebra — мультиплатформенная программное об�
 ```bash
 magnet:?xt=urn:btih:95EE8105525A80A906E932A685DB34F3B17B3537
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ Gonia — это семейство шрифтов с засечками, раз
 magnet:?xt=urn:btih:64CD2803221121F60144CF1ACA98ADFF50642A0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:64CD2803221121F60144CF1ACA98ADFF50642A0A
 ```bash
 magnet:?xt=urn:btih:52A62F5AEE6F608833EEC3A08C1E732D4FBF25CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ Daff Moon Phase (Фазы Луны) v3.43 Mod by shv7net [Ru/En]
 magnet:?xt=urn:btih:625055B2954944819E34883ABB7CC70A10B3A351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:625055B2954944819E34883ABB7CC70A10B3A351
 ```bash
 magnet:?xt=urn:btih:50BADA46BBDC5E15D8F17F0237AC7658C9CD17D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ magnet:?xt=urn:btih:50BADA46BBDC5E15D8F17F0237AC7658C9CD17D9
 magnet:?xt=urn:btih:960123E4D58DC40FFAB6F4FA66B1088102E06415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:960123E4D58DC40FFAB6F4FA66B1088102E06415
 ```bash
 magnet:?xt=urn:btih:0A594839EB7C7C3260B3EF7967A90346DC009B83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ MusicBrainz Picard - простая в использовании програм
 magnet:?xt=urn:btih:A85BC170F61D2197A58010EA9ED4E89E30F6A1CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:A85BC170F61D2197A58010EA9ED4E89E30F6A1CA
 ```bash
 magnet:?xt=urn:btih:952987D57B247E7A3CC107DDE7BF9763566FAD83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ VA - Kontor Top Of the Clubs: Jan 2025 (DJ Mix) (2025) [MP3|320 Kbps] <Dance, Cl
 magnet:?xt=urn:btih:B9818FD3E6A5D556900B9C5FCECEAD05D0326BEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:B9818FD3E6A5D556900B9C5FCECEAD05D0326BEA
 ```bash
 magnet:?xt=urn:btih:804C0C6717AD52370AA8424AFF4F2AAC375CC047
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:804C0C6717AD52370AA8424AFF4F2AAC375CC047
 magnet:?xt=urn:btih:740BBDEA72616307294BA05C3918C9A1A9D8CB84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:740BBDEA72616307294BA05C3918C9A1A9D8CB84
 ```bash
 magnet:?xt=urn:btih:70D5936CC5DBF27E341A5DDE38D5BD28DFC25FCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

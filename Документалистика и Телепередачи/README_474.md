@@ -1,3 +1,29 @@
+###  Публикация: 1136374   (648258) от 11.06.2017
+
+Прекрасный полК (2017) SATRip (2 сезон: 4-7 серия) (Обновляемая)
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Война подтвердила, что женщины не только могут сражаться наравне с мужчинами, но порой превосходят их в мужестве. Документальный сериал рассказывает о женщинах, участвовавших в сражениях Великой Отечественной войны.Производство: Россия, ООО «ТВ Студия Август»Жанр: Документальный, война, историяРежиссер: Александр КапковПродолжительность: 4 х ~ 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CC104CDFE01A211B8C91CAB0AF83DCC4CB5B233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539368   (648408) от 01.04.2022
 
 Большая игра (2007 - 2022) DVB (серии 1-8 из 8)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:110A31708A5B44769AFDB81219B1C6C219A24C80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:110A31708A5B44769AFDB81219B1C6C219A24C80
 magnet:?xt=urn:btih:20228F57F95F1C503C73562CA0A6FBC12279C2FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:20228F57F95F1C503C73562CA0A6FBC12279C2FF
 ```bash
 magnet:?xt=urn:btih:09252992012E5DC32AD0F1675B0201A5F0988EED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:09252992012E5DC32AD0F1675B0201A5F0988EED
 magnet:?xt=urn:btih:7F0E48A1338042FDBC28EFCA55EF551BD37E0474
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:7F0E48A1338042FDBC28EFCA55EF551BD37E0474
 ```bash
 magnet:?xt=urn:btih:4C647994C6E572303E448855193EC647D95CD0AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:4C647994C6E572303E448855193EC647D95CD0AC
 magnet:?xt=urn:btih:6806ABCE8ACC688757622A0268683D8751518BC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:6806ABCE8ACC688757622A0268683D8751518BC9
 ```bash
 magnet:?xt=urn:btih:8D00D27F1F7573CBC49B107B114D7B7807186792
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:8D00D27F1F7573CBC49B107B114D7B7807186792
 magnet:?xt=urn:btih:3AFF69F78D716FBAA0F57C7E7D873C311739FB94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:3AFF69F78D716FBAA0F57C7E7D873C311739FB94
 magnet:?xt=urn:btih:EEA038C5527280716F7DD29E3734DCCAF6969EFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:EEA038C5527280716F7DD29E3734DCCAF6969EFC
 ```bash
 magnet:?xt=urn:btih:154B1A56CA69CC19A679538190478201DB0FEA4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:154B1A56CA69CC19A679538190478201DB0FEA4F
 magnet:?xt=urn:btih:1BF246A131EFB96E8480EA96C47AD7A2CD2E2507
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:1BF246A131EFB96E8480EA96C47AD7A2CD2E2507
 ```bash
 magnet:?xt=urn:btih:F547C0C300FC303CA5CA2863B3CB10887161A72F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:F547C0C300FC303CA5CA2863B3CB10887161A72F
 magnet:?xt=urn:btih:E2D1439F28B92DCCF3FE90859F8A9BA490CBE818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:E2D1439F28B92DCCF3FE90859F8A9BA490CBE818
 ```bash
 magnet:?xt=urn:btih:A577E56E839B691ECCBACADDCA329D65AEF306D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:A577E56E839B691ECCBACADDCA329D65AEF306D0
 magnet:?xt=urn:btih:B3A86A78864F742FFC98575BEE805DC5B3AE5176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:B3A86A78864F742FFC98575BEE805DC5B3AE5176
 ```bash
 magnet:?xt=urn:btih:89BBFA1D0EFE4CA95B36852F1D19ED66910F8B80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:89BBFA1D0EFE4CA95B36852F1D19ED66910F8B80
 magnet:?xt=urn:btih:C65D65B32BF9AEDBCB85A920D304BD6325E82E57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:C65D65B32BF9AEDBCB85A920D304BD6325E82E57
 ```bash
 magnet:?xt=urn:btih:1196DE5318D213008EC19D38D55010C96E973E00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:1196DE5318D213008EC19D38D55010C96E973E00
 magnet:?xt=urn:btih:F5F7067C63E66500202E8E9DCEAEC26CF3DB99A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:F5F7067C63E66500202E8E9DCEAEC26CF3DB99A8
 ```bash
 magnet:?xt=urn:btih:1E48C909965D78C8DF39A284B335F3C108218A02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:1E48C909965D78C8DF39A284B335F3C108218A02
 magnet:?xt=urn:btih:2E4929AC792BD05F7C059E7D070C97F095DD2EBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:2E4929AC792BD05F7C059E7D070C97F095DD2EBE
 ```bash
 magnet:?xt=urn:btih:564F203BF2556114DCA67BD4BE2347FD2FF69414
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:564F203BF2556114DCA67BD4BE2347FD2FF69414
 magnet:?xt=urn:btih:F71166DDA6BBD347AB83C747001545D85E943ED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:F71166DDA6BBD347AB83C747001545D85E943ED2
 ```bash
 magnet:?xt=urn:btih:E3CFA3E46A825190448F52533754D74446C33E28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:E3CFA3E46A825190448F52533754D74446C33E28
 magnet:?xt=urn:btih:E908B01176356FA8BDA415BFCE84E37AADA53BB8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 216158   (649388) от 05.07.2010
-
-Страсти по насекомым 2. Скорпионы / Insectia 2. Scorpions (2000) HDTVRip (серия 4 из 13)
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_649388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снятый по строгим научным стандартам, сериал "Страсти по насекомым" один из самых лучших образовательных фильмов по энтомологии - науке, изучающей насекомых. Несомненно, заслуга в этом выдающегося популяризатора и прекрасного рассказчика Джорджа Броссара. После пятнадцатилетней карьеры нотариуса в возрасте 38 лет Броссар оставляет это скучное занятие и (   Читать дальше...   )Производство: Франция, Pixcom, Cineteve, La CinquiemeЖанр: Документальный, природа, энтомологияРежиссер: Герман ГутерресПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:22:59
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

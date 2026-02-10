@@ -22,6 +22,8 @@ Acoustic Mania - Talking Hands (1997) [FLAC|Lossless]<Instrumental, Easy listeni
 magnet:?xt=urn:btih:9285F4C935DBD1683525FF42EE56814436E0493D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Antonio Forcione - Dedicato (1996) [FLAC|Lossless]<Acoustic Guitar>
 ```bash
 magnet:?xt=urn:btih:81FCFA20AED12A89730EF66E7BC6780E0D0E9C92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Dominic Miller & Neil Stacey - New Dawn (2002) [FLAC|Lossless]<Jazz, Instrumenta
 magnet:?xt=urn:btih:275B85369821759A0C719628C7F2C28390812ABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Mike Oldfield - Tubular Beats (2013) /WEB/ [FLAC (tracks)|Lossless]<New Age, Ele
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Raise the Roof: Country Bands (2020) [MP3|320 Kbps] <Country>
 magnet:?xt=urn:btih:EE2AE6A5CFEE191AAEA012ACEFA6B5DCCC4522C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Crispin Merrell - Машина смерти / Death Machine (1994) 2015 [MP3|320
 ```bash
 magnet:?xt=urn:btih:8071A60B30F11B6E29AE8E977117DF159C51CF57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Of Monsters And Men - Beneath The Skin (2015) Deluxe [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:D5EE324FCBC5B26F5B8E1A616ACDB63C3B466C01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Stephen Rhodes - New Images (2016) [MP3|320 кб/с] <New Age>
 ```bash
 magnet:?xt=urn:btih:877EC0D6604DD1F1C68B556C64F718CC5A9B84C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Gary Girouard - The Naked Piano: Transitions (2016) [MP3|320 кб/с] <New Age, 
 magnet:?xt=urn:btih:23270490FB963037BF46B430AA99AE411E953354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Instrumental Moods (2002) [FLAC|Lossless|tracks + .cue] <Instrumental, Lati
 ```bash
 magnet:?xt=urn:btih:CB96286756BBF00DFBEAD158D64D93EFD3EB50CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Jim Brickman - Believe (2014) [MP3|320 кб/с] <New Age, Solo Piano>
 magnet:?xt=urn:btih:3540745F64BD706D78D64BE4359632F535D8B008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:3540745F64BD706D78D64BE4359632F535D8B008
 ```bash
 magnet:?xt=urn:btih:CAB78E5DF6025CE9068DF8650E16D7228B365E36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Henry Jackman - The 5th Wave / 5-я Волна  (Original Motion Picture Soundtr
 magnet:?xt=urn:btih:4E1B2DD5BC0045A0CF3EA849B6516CF96FF663E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Mix 1 - 4:59
 ```bash
 magnet:?xt=urn:btih:8607AF4701B92BECEA5104DC238F00A16DFD376A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Death Stranding (Songs from the Video Game) (2020) [FLAC 2.0|48/24|tracks|W
 magnet:?xt=urn:btih:224D1D552E878545B66483111EF879C3CE0FC07A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - 100 Greatest Country The Best Hits from Nashville And Beyond (2020) [MP3|32
 ```bash
 magnet:?xt=urn:btih:2D63264EAA50E44AD7360D81C4E6E888856BAEF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ V.A. - We Are The World - USA For Africa (1985) [FLAC (tracks+cue)|Lossless]<Pop
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Jim Brickman - Romance (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:7FF5ABC8852F1027E7DED07E2B39F6BFBA14CA06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Randy Newman - Marriage Story / Брачная история (Original Music fr
 magnet:?xt=urn:btih:275D7205F9C8CCEFC3128F2ED08B40B7474957C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +573,8 @@ Randy Newman - Marriage Story / Брачная история (Original Music fr
 magnet:?xt=urn:btih:364C92F40D8B6A89BBBBEEA8FD213160383DB1B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +601,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:C787D02E315DF00FB4BABF85B28198EA89B060DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +637,8 @@ VA - Bombshell: The New Marilyn Musical From SMASH (Deluxe Edition) (2013) [MP3|
 magnet:?xt=urn:btih:A32A332D042DC660E78ADC2F2D4AA5E6A5A1EE24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +665,8 @@ VA - Death Stranding (Songs from the Video Game) (2020) [MP3|320 кб/с]<Soundt
 ```bash
 magnet:?xt=urn:btih:BD99B804748B20E87BCBE24AE7DFA675A01A99CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +695,8 @@ VA - Sacred Spa Music Series. Wrapped In Stillness (2002) [APE|Lossless|tracks +
 magnet:?xt=urn:btih:2A60BC6489244BD4E59FBF9EF0BF2440F489B7FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +724,8 @@ Alexandre Desplat - Little Women / Маленькие женщины (Original M
 magnet:?xt=urn:btih:960B3E3DCFD36DA995E3DC1819541F69AC03CF81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +752,8 @@ Alexandre Desplat - Little Women / Маленькие женщины (Original M
 ```bash
 magnet:?xt=urn:btih:9B8F4CEDE382055379CAA015EF8331E1A7769301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

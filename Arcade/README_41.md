@@ -19,6 +19,8 @@ Mark of the Ninja: Remastered (2018) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:C392D0C3A5956E8522CBF54405D9B1DC98EF6703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Feudal Alloy (2019) [Ru/Multi] (1.02) License GOG
 ```bash
 magnet:?xt=urn:btih:767B7A8CF965AE847E4D13E7FD3778E9BF2DB3A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Ghostbusters™ (2016) [Multi] (1.0) Repack Dok2
 magnet:?xt=urn:btih:09E4F9A77BA31CD75DB740AB67147278DA6AC718
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Enter the Gungeon - это подземное приключение со стр
 ```bash
 magnet:?xt=urn:btih:1E2891D6270BFA252EF7A6B400EF36605843A919
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Song of the Deep – экшен приключение в metroidvania-стил�
 magnet:?xt=urn:btih:210898595F6C3E7DCD23CE780FDFEA4821B65D6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Reservoir Dogs: Bloody Days - это аркадный top-down шутер по �
 ```bash
 magnet:?xt=urn:btih:B05381692B9F7C802080E007943FD2D639C5FC60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Rolling Sun (2015) [En] (1.0) License SKIDROW
 magnet:?xt=urn:btih:10CF8F4D9A25E4D979557794BD28FE687A85B2B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ MechRunner предлагает игрокам выступить в роли п
 ```bash
 magnet:?xt=urn:btih:3B5DB0626AB0FDC76C5AF3B9B7CE87846E4734BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Hoard [Multi5\-] (RePack/1.0) 2011 | R.G. ReCoding
 magnet:?xt=urn:btih:795CDD00978B6748E9BF59506992CA26F44E57A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Rocket League - это аркадный проект, который сочет�
 ```bash
 magnet:?xt=urn:btih:6971D42EFD839D8D3C831D96514828A9A2B51668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Guns, Gore & Cannoli (2015) [Ru/Multi] (1.2.21) License GOG
 magnet:?xt=urn:btih:3B56F1E56698F6FE8BE2937341B5D2646E6FF7C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Windward (2015) [Multi] (2017-06-17.0) License GOG
 ```bash
 magnet:?xt=urn:btih:7CD2BEE02562FC32D859E4090132C7BA8DC162CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Ghostbusters (2016) [En/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:A5260B26E0FF80956FE6C02C43A2D4E69ED43674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Under Night In-Birth Exe: Late представляет собой нечто с
 ```bash
 magnet:?xt=urn:btih:6332EFC1CA3EA68C6FA8A6C83E4DD961C87CDDBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Salt and Sanctuary - это двухмерный аркадный экшен в 
 magnet:?xt=urn:btih:3345B97C3CB72DB92C519BAD641B26CB906F88D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Brigador (2017) [Ru/Multi] (1.3.2a) License GOG [Up-Armored Deluxe]
 ```bash
 magnet:?xt=urn:btih:64291FA19DF48F1EFA6E633799933F26F035ABB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Shank 2 (Repack/1.0dc120305) [Ru] 2012 | Fenixx
 magnet:?xt=urn:btih:4A5314548D4FAFCB265792BF8948B8E9C4F1E9CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Shank - Дилогия (Lossless RePack) [Ru/En] 2010-2012 l R.G. Origami
 ```bash
 magnet:?xt=urn:btih:AE030A17A9F7188425BEFAE4FF7FE2DCB09D4688
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Aquaria (2007) [En] (1.1.1) License GOG
 magnet:?xt=urn:btih:30CFB69193DAF061B58EBFDEBBCE4AB26BED78C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Ghostbusters (2016) [En/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:6201CF61DAC9C6042D4085D4556B568BA3FEAFFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Krai Mira/Край Мира (2016) [Ru/En] (1.1) License SKIDROW
 magnet:?xt=urn:btih:741BB994DCE675AE252885A25888A803CE459F02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Attack on Pearl Harbor / Атака на Перл-Харбор (RePack) [Ru/En] 
 ```bash
 magnet:?xt=urn:btih:2AFD68132CB100A6D48F3C04E14AA1AD98827B22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Reassembly (2015) [Ru/Multi] (2019.03.28/dlc) License GOG
 magnet:?xt=urn:btih:D335A4BFD6F18521BDC345AB67F27ABD9A8BFB5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Unworthy (2018) [En] (1.0.1) Repack Other s
 magnet:?xt=urn:btih:023B0151869B5F703A195A0BBE7234EBEF9C66DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ Fossil Echo, сюжетный платформер, бросающий вызо�
 ```bash
 magnet:?xt=urn:btih:24FA65BEF94CBD7D78E865225CB56E0CAC0A5091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ Vessel [Multi5\+] (RePack/1.13) 2012 l R.G. ReCoding
 ```bash
 magnet:?xt=urn:btih:C1853390788C4BE651B0AEAAF80E6B720DE0D6DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

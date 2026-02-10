@@ -1,3 +1,29 @@
+###  Публикация: 1004387   (835745) от 07.04.2016
+
+Microsoft Windows 8.1 Pro for Education with Update [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_835745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 8.1 (ранее известная как «Windows Blue») является комплексным обновлением для Windows 8. В новой версии Microsoft не отступается от интерфейса Modern UI (правильное название интерфейса, ранее называемого Metro). Windows 8.1 добавляет в пользовательский интерфейс множество настроек, наряду с некоторыми новыми и обновлёнными приложениям – и всё для того, чтобы (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5356D672026189DCAEEDB18B1ECB1DF2EF4738DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 868660   (837507) от 06.04.2016
 
 Windows 8.1 with Bing OEM (x86 x64) 6.3.9600 [En]
@@ -19,6 +45,8 @@ Windows 8.1 with Bing OEM (x86 x64) 6.3.9600 [En]
 ```bash
 magnet:?xt=urn:btih:83FBEDA79D6143E099463D1CE774BB326A8FA401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ Windows 11 IoT Enterprise - это полная версия Windows 11, кот�
 ```bash
 magnet:?xt=urn:btih:432A5D312F3C960FA6016CB275A3C7433FD9EBD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ Microsoft Windows 11 [10.0.22000.194] - Оригинальные образы о
 magnet:?xt=urn:btih:4486AACD85D222740875F7A1031017BE7C0EE5BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ Windows 8.1 (ранее известная как "Windows Blue") являетс
 ```bash
 magnet:?xt=urn:btih:16FA48DB6A1A4FFA0B48CCC66ABBFA50AC4D0F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ Microsoft Windows 10.0.18363.778 Version 1909 (April 2020 Update) - Оригин
 magnet:?xt=urn:btih:36153DAA4C752B786792224B74AC3CF031D8B3F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 ```bash
 magnet:?xt=urn:btih:53AEB7EEAD9880B06A37A4E3D71B6C8BBC6F267E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ Microsoft Windows 10.0.18363.778 Version 1909 (April 2020 Update) - Оригин
 magnet:?xt=urn:btih:1469051530ABE0F187237460D3E271A8A24A50FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ Windows Server 2019 LTSC Version 1809 Build 17763.1158 (Updated April 2020) Ор
 ```bash
 magnet:?xt=urn:btih:4ACB934D33892180FFDAE46622ECF80CFEE94FC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ Microsoft Windows 10.0.18362.778 Version 1903 (April 2020 Update) - Оригин
 magnet:?xt=urn:btih:1BBEB4BF76E37A742D194B5E44B9AA673DF54750
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ Microsoft Windows 10.0.17763.1158 Version 1809 (April 2020 Update) - Ориги�
 ```bash
 magnet:?xt=urn:btih:84CF360F15F2ADE4B4C3BEE056E7FA3C7C6D8357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +312,8 @@ Microsoft Windows 10.0.17763.1158 Version 1809 (April 2020 Update) - Ориги�
 magnet:?xt=urn:btih:446E4CF7CBCE819D4A9716DB471D72EE88A16781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ Microsoft Windows 10.0.19043.1237, Version 21H1 (Updated September 2021) - Ор�
 magnet:?xt=urn:btih:1D0468724FFBEE764520D44DE4A787B929105102
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +364,8 @@ Windows 7 с интегрированным пакетом обновления 
 ```bash
 magnet:?xt=urn:btih:870DF4BF35A4210F259306BA18690685E4441EDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +392,8 @@ Windows 10 Enterprise LTSC 1809 (Build 17763.1158) x86/x64 by Sergei Strelec [Ru
 magnet:?xt=urn:btih:B6494FA712A6882226359688F8CD1D0643659DB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ Windows Server vNext впервые обеспечивает расширенн�
 ```bash
 magnet:?xt=urn:btih:480F6C59686346779F8984C6428462795490CA5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +445,8 @@ Microsoft Windows 10 Insider Preview, Version 21H2 [10.0.19044.1237] - Ориг�
 magnet:?xt=urn:btih:541B91A0E1894D71BA3E5AF0461D49C8B64C19DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ Microsoft Windows 11 Insider Preview, Version 21H2 [10.0.22000.194] - Ориги
 ```bash
 magnet:?xt=urn:btih:B6CE369F0204D54F1656239B7D8A3BCF257D718A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +499,8 @@ Microsoft Windows 10 Insider Preview, Version 21H2 [10.0.19044.1237] - Ориг�
 magnet:?xt=urn:btih:EBF788E2D143F20861C70C9621F048E2563FB11A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +525,8 @@ Windows Server SAC - канал Semi-Annual Channel идеально подхо�
 magnet:?xt=urn:btih:30581DAD4B6F06DEB103FDE847E5FD40E9504FB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ Windows Server 2022 впервые обеспечивает расширенну
 ```bash
 magnet:?xt=urn:btih:9F8CEB52634B533B2282D31C1D64F2BB860B8338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +578,8 @@ Microsoft Windows 10.0.19043.1237, Version 21H1 (Updated September 2021) - Ор�
 magnet:?xt=urn:btih:9C874B86F73F4A0078C916F04D5EFC6A7C9EFBB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ Microsoft Windows 10.0.19042.1237, Version 20H2 (Updated September 2021) - Ор�
 ```bash
 magnet:?xt=urn:btih:60F097AE47259349E254986534E4BF7148002FC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +632,8 @@ Microsoft Windows 10.0.19041.1237, Version 2004 (Updated September 2021) - Ор�
 magnet:?xt=urn:btih:E0BFE3A177780F99F90EFF5E0F08B04E4632B6E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +658,8 @@ Microsoft Windows 10.0.19042.1237, Version 20H2 (Updated September 2021) - Ор�
 ```bash
 magnet:?xt=urn:btih:642F559CAB2613F780FFAA661686DD9B3F2704B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,29 +686,7 @@ Microsoft Windows 10.0.19041.1237, Version 2004 (Updated September 2021) - Ор�
 magnet:?xt=urn:btih:2730915A193A4A66889679DB0912B585A01C733E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997945   (867611) от 20.03.2016
-
-Скрытый раздел SAMSUNG NP700Z5C-S01RU Microsoft Windows 7 Домашняя расширенная Build 6.1.7601 [Ru/En]
-
->>ОС Windows
->>Windows OEM Recovery СD/DVD
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_867611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Образ системного раздела SAMSUNG NP700Z5C-S01RU, скопированный через Acronis true image 2014 и загрузочный раздел на 100 мб.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D52584D29E3027F6B1021F83FBC7A1E8F4A3A215
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

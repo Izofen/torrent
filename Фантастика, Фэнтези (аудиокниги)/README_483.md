@@ -1,3 +1,29 @@
+###  Публикация: 1108478   (860573) от 26.02.2017
+
+Роджер Желязны | Ночь в одиноком октябре (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из последних прижизненных романов выдающегося американского писателя-фантаста Роджера  Железны (1937-1995), в котором читатель встретится с доктором Франкенштейном и его чудовищем, с Джеком Потрошителем и Шерлоком Шолмсом, а также со многими другими известными персонажами мировой литературы, но главное – с великолепным чувством юмора, никогда не изменявшим писателю. (   Читать дальше...   )Жанр: фантастика, фэнтезиПродолжительность: 07:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAE7568D50B59D73370AA6B7FD291E11EF717A3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000097   (860804) от 24.03.2016
 
 Рэй Брэдбери | Желание (2016) [MP3]
@@ -21,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:6054A3339544753733BD04FC7A9AE168DA284533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:6054A3339544753733BD04FC7A9AE168DA284533
 magnet:?xt=urn:btih:C47A3750B38FF115EB35EAAC2EF3E067D5305784
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:C47A3750B38FF115EB35EAAC2EF3E067D5305784
 ```bash
 magnet:?xt=urn:btih:ECBFDF0042D52CEBC2FEC3003E5392DA91D2F86E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:ECBFDF0042D52CEBC2FEC3003E5392DA91D2F86E
 magnet:?xt=urn:btih:4C87B28C637AB2E0A97B7B2F1C47ADC47274DCD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:4C87B28C637AB2E0A97B7B2F1C47ADC47274DCD9
 ```bash
 magnet:?xt=urn:btih:E6300DCC8B479FA78CFAAE5EE9C0B4830F815296
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:E6300DCC8B479FA78CFAAE5EE9C0B4830F815296
 magnet:?xt=urn:btih:2A1F78AD9CBE404A067F9B0197AD9F13187ABF93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:2A1F78AD9CBE404A067F9B0197AD9F13187ABF93
 ```bash
 magnet:?xt=urn:btih:8D5135CCE52F9D64FD262282FAC55DB34D1872E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:8D5135CCE52F9D64FD262282FAC55DB34D1872E4
 magnet:?xt=urn:btih:52C39FA2BF4D944DE3035654FAEFCB6217EBEF3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:52C39FA2BF4D944DE3035654FAEFCB6217EBEF3D
 ```bash
 magnet:?xt=urn:btih:FBE5DAFA64DD35DB2CAD321D390575E62C16DAC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:FBE5DAFA64DD35DB2CAD321D390575E62C16DAC5
 magnet:?xt=urn:btih:78771598912843E030B3C085B6056A8284220F2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:78771598912843E030B3C085B6056A8284220F2D
 ```bash
 magnet:?xt=urn:btih:92AC9F524D2AF6378340A313EEC29C0409FBAE32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:92AC9F524D2AF6378340A313EEC29C0409FBAE32
 magnet:?xt=urn:btih:C9E84F90E718EBC8BA8928A78E855DBC6A81E795
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:C9E84F90E718EBC8BA8928A78E855DBC6A81E795
 ```bash
 magnet:?xt=urn:btih:F08F332C59EFD42C4066F8B7A357FB3D538717AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:F08F332C59EFD42C4066F8B7A357FB3D538717AD
 magnet:?xt=urn:btih:F027A3835C2C14FAF5D5B888D5C004F71CB667D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:F027A3835C2C14FAF5D5B888D5C004F71CB667D5
 ```bash
 magnet:?xt=urn:btih:1FA14B9E7D93A1D2355791984A24BAD41AA7F25A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:1FA14B9E7D93A1D2355791984A24BAD41AA7F25A
 magnet:?xt=urn:btih:0C7F406455FD086B1E4511487006DB912CE5C0B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:0C7F406455FD086B1E4511487006DB912CE5C0B9
 magnet:?xt=urn:btih:B9D3C4EC96F0811CEC8B310B4DB3ACB61003158A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:B9D3C4EC96F0811CEC8B310B4DB3ACB61003158A
 ```bash
 magnet:?xt=urn:btih:186F8DC9021CEFA7FDF134D0392D1EBFE07CB8AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:186F8DC9021CEFA7FDF134D0392D1EBFE07CB8AD
 magnet:?xt=urn:btih:86E65CA5053E66B67D75743294FC20B387B9F886
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:86E65CA5053E66B67D75743294FC20B387B9F886
 magnet:?xt=urn:btih:B2068536B8944BF965E87B8316A7166554B72ED6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:B2068536B8944BF965E87B8316A7166554B72ED6
 ```bash
 magnet:?xt=urn:btih:762369797B540B32AF3133B20A3BEF2E25C5A8CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:762369797B540B32AF3133B20A3BEF2E25C5A8CF
 magnet:?xt=urn:btih:114A5EE6211C016EDAB2AD2A9E808F17F56CBCE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:114A5EE6211C016EDAB2AD2A9E808F17F56CBCE6
 ```bash
 magnet:?xt=urn:btih:257F4FBE29430A628C73D4006BE17A8D3AD9F46A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:257F4FBE29430A628C73D4006BE17A8D3AD9F46A
 magnet:?xt=urn:btih:FDA2B8631E948842460F22ABA3DCEE7E5C9EFE1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:FDA2B8631E948842460F22ABA3DCEE7E5C9EFE1B
 magnet:?xt=urn:btih:4C07CE9E6CC89D4F1A7B4FCB8724E8881AE56FBA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497470   (864568) от 22.09.2021
-
-Хайдарали Усманов | Охотник (Книга 6). Идет охота на волков! (2021) [MP3, Борис Клейнберг]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864568.jpg" />
-</div>
-
-
-###  Подробнее
-
-Глаза в глаза… Ножи в ножи! Встреча с теми, кто считает всех разумных лишь кормом на пути к величию… Что принесет она Артему, который просто хочет защитить своих близких? Продолжения приключений Артема в мирах Содружества.Жанр: Боевая фантастика, космическая фантастика, попаданцыПродолжительность: 12:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27D2A423518CC730AB0532DF8A21CA1BDA45FF61
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

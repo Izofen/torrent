@@ -19,6 +19,8 @@ Project Office Pro 9.0 [Multi/Ru]
 magnet:?xt=urn:btih:1050C0514EBE9D34528FE961EA5B205D2D3FB1E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Above & Beyond - Group Therapy 356 (24.11.2019) Radio DJ Mix [FLAC|Lossless|WEB-
 magnet:?xt=urn:btih:9D739425B84BC7F5CE6FA9EB857A05F7379DB8A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:BA66D8608B791E8D6BD1021BED94914AF49DA2EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ QLPro Studio инструмент управления базами данных
 magnet:?xt=urn:btih:3C8F0EA406F9C7686B6484DD4B6D5D887A0120FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ foobar2000 - это аудиоплеер, подкупающий своим ве
 magnet:?xt=urn:btih:2CC12E9FC04523A2BBD15DB38E1E5F8707868C10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Dropbox 3.12.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:244EC2635405CD7D680B49646853CA55706BE4A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ PerfectPhotoSuite 8 приобрел массу новых возможност�
 magnet:?xt=urn:btih:6FD31E9D8C557C2A1EC3872065B40C660E2DCF06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ PhotosRevive автоматически раскрашивает ваши ста
 ```bash
 magnet:?xt=urn:btih:FB366F00AC2A76DC1A74065C768A87B14F0BC86E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Avira Scout - это бывший Avira Browser, который объединя
 magnet:?xt=urn:btih:7EDF89825D64D85054C8F7D0980D605847376C71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ AText ускоряет вашу запись, заменяя сокращени�
 ```bash
 magnet:?xt=urn:btih:3473FB587B994CBEA8CBF211C609C246CF835AC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Timemator 2 v2.8.5 [En]
 magnet:?xt=urn:btih:DBEEEFF81CDFD1CDA77D9A433F9FEEDC12613C7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Uninstall Tool — быстрая, мощная и надежная альтер
 ```bash
 magnet:?xt=urn:btih:A7B814EEE6AB3BB7D85C0AF8B8F9C16B7FC2050D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:A7B814EEE6AB3BB7D85C0AF8B8F9C16B7FC2050D
 magnet:?xt=urn:btih:120F91D32CF6BAF0925D24A005CB7A2BF881C489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ ShowKeyPro 1.0.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:B8648E93B809B0BDDE52002EBE394FA5DCE2F871
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ MediaInfo - программа для получения подробной те
 magnet:?xt=urn:btih:304AD22D57804A492CE195B335EB830EF1AB3E6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Iridient Developer - мощное приложение для обработки
 ```bash
 magnet:?xt=urn:btih:829C009FE3BAD98407242B4EA0E91CECF33D8D76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ WiFiSpoof - небольшая утилита, которая поможет в
 magnet:?xt=urn:btih:FBD795B7EF865A79E17CF4D6F6979DBF94CBA92E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Airtool 2 v2.0 [En]
 ```bash
 magnet:?xt=urn:btih:F8C964387EF695CBD3148A8BAA164218C726A550
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ DoubleTake - приложение предназначено тем пользо
 magnet:?xt=urn:btih:70D9E6581B462B1D7B9B14C96A9BAD6FF0C0A668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ YouTube Downloader - простая и легкая в использовани�
 ```bash
 magnet:?xt=urn:btih:7495841E2A8DF65A8973C9B841838B34D85AE09D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Dr. Folder 2.8.6.8 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:AAC1483AC2A1AD7AC694583F297278A1A209D89F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Sankarea / Санка Рэа [2012, TV, 12 + 2 OVA] BDrip 1080p raw + rus
 magnet:?xt=urn:btih:9C15F433DB384D310EF81B20D609F4A56053C88A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ GarageSale 8 v8.4 [Multi]
 ```bash
 magnet:?xt=urn:btih:3CF6411346C06B6F724F5417E9DE804163880D94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ RAW Power 3.4.14 [En]
 magnet:?xt=urn:btih:F794D51BC136D5034A03DF744BEFE2E176F3BA3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ uTorrent Pro 3.5.5 Build 46542 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:9049C1509D1BC66E1978FA8DDD03C8E6E5B428AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +681,8 @@ HomeBank можно настраивать полностью под себя, �
 ```bash
 magnet:?xt=urn:btih:CF88528A254F428DFD4AAF04AA08A226C9DBC9E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

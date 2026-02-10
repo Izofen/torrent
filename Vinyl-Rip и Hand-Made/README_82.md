@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:BB50483059032583F15526D0D569B0FA73B15DC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ A4	All Right	4:01(   Читать дальше...   )Жанр: Synth-pop, Disco�
 ```bash
 magnet:?xt=urn:btih:4E6B9B50A0982929C243746FBAD88DA3B5FA5C83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ A4	Gres Imperatriz Leopoldinense - Abc Do Carnaval À Maneira Da Literatura De C
 magnet:?xt=urn:btih:59AE3967469FF42A285440EB9241E02902912507
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ A4	Мой Путь · My Way(   Читать дальше...   )Жанр: Instru
 ```bash
 magnet:?xt=urn:btih:283E20E2AD4C0C598BE7D96DAC5AF35F018B2241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ A4	Если Это Любовь • If It's Love(   Читать дальше...
 magnet:?xt=urn:btih:144B902D35787771A20BED814A6FD8C06452B448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ Ricky Martin & Christina Aguilera - Nobody Wants To Be Lonely (2001) [FLAC 2.0|4
 ```bash
 magnet:?xt=urn:btih:B7CC2854478CFE1F4CA45DFFB2832C3DBA08BF60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -185,6 +197,8 @@ Louis Armstrong - Louis Armstrong In Prague (live at the Lucerna Hall 1965) 1983
 magnet:?xt=urn:btih:B25F4519AE89CB7FB61F29A1E98178D96B090DAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ A4	Пульс Улицы · Street Pulse(   Читать дальше...   )Жа
 ```bash
 magnet:?xt=urn:btih:E295BB7B92C3A78D4E87E192A11EAE1C9E1FB22D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +255,8 @@ A4	Хочу Танцевать С Тобой • Don't Bring Lulu(   Читат�
 magnet:?xt=urn:btih:173C2045E881510204BD5DC50DB237D0C76BB8B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ magnet:?xt=urn:btih:173C2045E881510204BD5DC50DB237D0C76BB8B5
 ```bash
 magnet:?xt=urn:btih:9DE2AAAC1C27647C413F393F8EFF4E12C01966D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +313,8 @@ C4. The Who - Four Faces (3:22)(   Читать дальше...   )Жанр: Cla
 magnet:?xt=urn:btih:216118641C6255AA039B60457075F694C7E236FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ Kenny Rogers/Кенни Роджерс - Поёт Кенни Роджерс (198
 ```bash
 magnet:?xt=urn:btih:835C9AA4685820D3B914CC84B12EAA58E1E9DD1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +371,8 @@ A4 Я Встретил Хорошенькую Девушку(   Читать д�
 magnet:?xt=urn:btih:F7B9E59F118EF7B632CE1AF1F64A4F467A8367D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ A4	Я Здесь(   Читать дальше...   )Жанр: Jazz, SwingПро�
 ```bash
 magnet:?xt=urn:btih:286D1278B5E58FA18EAE110F4DA4CD4C1B74DEE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +429,8 @@ VA - Jazz Mix Evening Conversation 1950-2008 (2016) [WavPack|96/32|image+.cue|Vi
 magnet:?xt=urn:btih:8B83E215337AA6AC61C7C872E52742747E8FD84B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:04A9651751BD0F69B2327200917F8A558178502F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +487,8 @@ Enigma - MCMXC a.D. (1990) Virgin, Universal Music | Remastered 2016 [FLAC 2.0|2
 magnet:?xt=urn:btih:B9635BD46AD88B3ED4F7584445B60D63AF609020
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +516,8 @@ A4 И. Саруханов - Barbe(   Читать дальше...   )Жанр: P
 magnet:?xt=urn:btih:E02200B0E797239E4C67177E3DBA9B2A5D48BA3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ magnet:?xt=urn:btih:E02200B0E797239E4C67177E3DBA9B2A5D48BA3E
 ```bash
 magnet:?xt=urn:btih:864A40CB67B61C44A369D71699BE3CE1AFA27DF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +572,8 @@ Abdul Hafis - Flute Music (1998) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Arabian, 
 magnet:?xt=urn:btih:CB7427027A7CF52C9C988FD34456C283D0878ECE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ Therion - Vovin (1998) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Symphonic Metal
 ```bash
 magnet:?xt=urn:btih:A88B23D3DDD9EE3C97D1BEA7B1B5CD40C5C5185D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +630,8 @@ A4. Coming Home (5:00)(   Читать дальше...   )Производств
 magnet:?xt=urn:btih:E3B46D2EB83A020829F628B0FEE437476965C456
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ VA - Golden Hits Of Turkish / Золотые Хиты Турецкой Эстр�
 ```bash
 magnet:?xt=urn:btih:FCDF75C9E94F3F159AD388A4B25EC609962A71D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ A4	История Любви(   Читать дальше...   )Жанр: Pop, C
 magnet:?xt=urn:btih:E1E65B9B856742027C7E9D86F3727932BD599739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ A4 Flesh And Blood(   Читать дальше...   )Жанр: Pop RockПрод
 magnet:?xt=urn:btih:7B83BAB6E66B9436BADA4446EFB99F23D9659D80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ magnet:?xt=urn:btih:7B83BAB6E66B9436BADA4446EFB99F23D9659D80
 ```bash
 magnet:?xt=urn:btih:2F9E024105677E772DF14B445D007991E7D08F09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

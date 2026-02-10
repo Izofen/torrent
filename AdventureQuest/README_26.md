@@ -19,6 +19,8 @@ CRUELTY – что может быть лучше ужаса от японски
 magnet:?xt=urn:btih:3563A188765744BC41414B50F6D46B45FD9340FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Scary Shadow Spot: Last Farewell (2024) [Multi] (1.2.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:C13FFDDE0DA7201F98F6F59171EF2AA76088527D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Repella Fella (2023) [En] (1.0.2c) License GOG
 magnet:?xt=urn:btih:6289FBFCD22ABDAD230BDF4F9EBE1CFB41624425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Night is Grey наполнена мрачной атмосферой тем�
 ```bash
 magnet:?xt=urn:btih:CEA6BD2B66F7440CBDE240CDF553D6D5178F1B1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Dreamless (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:6DE5A35A3A7FDC786C04C757EBC7ABEC9D4F1CB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Subnautica: Below Zero (2019) [Ru/Multi] (Build 49371) Repack Other s
 ```bash
 magnet:?xt=urn:btih:755719E3DDE81E59D145ECF1B3D8B12E95A7CC98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Granny Remake (2023) [Ru/Multi] (3.5) Repack seleZen
 magnet:?xt=urn:btih:552E643F6C30286D9A38156A882D254CD131011D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Deponia (2012) [Ru/Multi] (3.3.1357) License GOG
 ```bash
 magnet:?xt=urn:btih:0795988FFCB5BB9EF16AAC4B3123FDFAAC3AA67D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ DREDGE (2023) [Ru/Multi] (1.5.3/dlc) Repack FitGirl [Complete Edition]
 magnet:?xt=urn:btih:821E877DC29FD5B46D3CDD4B7640BB2CCFB1B0E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Chaos on Deponia (2012) [Ru/Multi] (3.3.2351/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:16CAD74230189BB66038DCA77DEA304C8D43FA33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Goodbye Deponia (2013) [Ru/Multi] (3.3.3335/dlc) License GOG
 magnet:?xt=urn:btih:CEC0E7ABCCFEE9F7E1AF79FA6285742C2476804F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Tintin Reporter Cigars of the Pharaoh / Репортер Тинтин: Сига�
 ```bash
 magnet:?xt=urn:btih:4279196E0F19C499B617ED1E5676043A57742369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Don't Be Afraid 2 - хоррор с видом от первого лица и �
 magnet:?xt=urn:btih:C770446D6B8AFE53365B5C94CC39B48D50E9F76A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Subnautica (2018) [Ru/Multi] (Build 71288) Repack Other s
 ```bash
 magnet:?xt=urn:btih:732543A42A37E8DAC793FEDA0EBA7507341A5DA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:732543A42A37E8DAC793FEDA0EBA7507341A5DA2
 magnet:?xt=urn:btih:C2B2E5C0B3EBAED5D9D95666ADA64D3D816CC10A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Don't Be Afraid 2 - хоррор с видом от первого лица и �
 ```bash
 magnet:?xt=urn:btih:56EB4B0F835CCCEDA1F2B6982C2C2FAAF0D6088B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Connection: The Nightmare Within (2024) [Ru/Multi] (Build 16187772) Repack FitGi
 magnet:?xt=urn:btih:DA4B0AF386A1742E9BDD6F6DDF42418AF587E135
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Cypress Ridge - 28 сентября 1999 г. Вернитесь к началу 
 ```bash
 magnet:?xt=urn:btih:F029A8399192FD5CC08829C4196AD653884D5026
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Creatures of Ava - это не типичная адвенчура по ловл
 magnet:?xt=urn:btih:96B424FEFB86A4C8B37155021D4014A496627247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Bendy and the Ink Machine – это игра-головоломка от пер
 ```bash
 magnet:?xt=urn:btih:2653B98C6CB406524E441916B604D34D701326A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Coma 2B: Catacomb - корейская приключенческая игр
 magnet:?xt=urn:btih:36775F509416F63A548650AA2729E1B38352E004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Neva (2024) [Ru/Multi] (1.02) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:09C1A284079C42A49CBB336E82325B7495277797
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Beyond Shadowgate, захватывающее продолжение класс�
 magnet:?xt=urn:btih:720E080ABD6327B3E9031D87F819E61B69EA33FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ INDIKA - игра от третьего лица с историей о стра
 ```bash
 magnet:?xt=urn:btih:BF94492FB334957718CFE1983D9E52438440339F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Alan Wake 2 (II) (2023) [Ru/Multi] (1.2.2/dlc) Repack FitGirl [Deluxe Edition]
 magnet:?xt=urn:btih:F8C65A805CD8098A28190586AD4ACF0329144788
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Harold Halibut - созданная вручную нарративная игр
 ```bash
 magnet:?xt=urn:btih:246DF8E731272775017E8BCD3A96126BE55FB091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

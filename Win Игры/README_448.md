@@ -1,27 +1,3 @@
-###  Публикация: 1286391   (712751) от 02.03.2019
-
-The Secret Order 7: Shadow Breach / Тайный Орден 7: Сумрачное зияние (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_712751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сара Пеннингтон, член Ордена Грифонов, возвращается. Нужна ее помощь в исследовании странного фолианта, который хранит древнюю Силу. Но кто-то еще тоже интересуется могущественными артефактами... Сара становится участницей древней битвы, которая завершится тогда, когда фолиант будет открыт. Сможет ли Сара со своими союзниками предотвратить это событие или конец света (   Читать дальше...   )Тип издания: UnofficialРазработчик: Sunward GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F95D658F64DB4FB2E1948932C16C7B77FD8BEF42
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219486   (712931) от 14.04.2018
 
 Lobotomy Corporation | Monster Management Simulation (2018) [Ru/Multi] (1.0.1.0а) Repack Other s
@@ -42,6 +18,8 @@ Lobotomy Corporation | Monster Management Simulation (2018) [Ru/Multi] (1.0.1.0�
 ```bash
 magnet:?xt=urn:btih:C59E74FEF9867EEB6721715F89FF1EF075EC8401
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Star Rage VR - приключенческий экшн о ближайшем б�
 magnet:?xt=urn:btih:EE04D0DE7329C7071BC30901C76D88D4AB4E968A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ The Park, триллер о парке развлечений прямиком �
 ```bash
 magnet:?xt=urn:btih:6F7686DF7D46809FD82EFE17D348E792A0BEC585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Harrowed Halls 2: Hells Thistle (2017) [En] (1.0) Unofficial [Collector's Editio
 magnet:?xt=urn:btih:778D0613369F34416A293E3F5D0DEBB315863B82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Z: The Game (2014) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:2DDEAEBDF9901E86594CD1A76DEBD861BEA5ADE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Christmas Stories 6: A Little Prince (2017) [En] (1.0) Unofficial [Collector's E
 magnet:?xt=urn:btih:A72E40917DC12D3B909249819038F9BAA380F21F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Danse Macabre 9: A Lovers Pledge (2017) [En] (1.0) Unofficial [Collector's Editi
 ```bash
 magnet:?xt=urn:btih:12CA6E58E7776D5B0A6E75BD50DCF2678F58FF7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Tick Tock Bang Bang (2016) [En] (1.0) License PLAZA
 magnet:?xt=urn:btih:4B21CDBAAB285EC5D028104B2B18F66ACD498165
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ HeartZ: Co-Hope Puzzles - увлекательный экшен-платформ
 ```bash
 magnet:?xt=urn:btih:4C1715CEEE2003A4A2F6468AE15398E0B69AF7D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +257,8 @@ King's Bounty. Легенда о рыцаре - это приключенчес�
 magnet:?xt=urn:btih:CA7AC74EB716E24DA16CF6C3D09DB1AEA6F02DED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +282,8 @@ Olav: the story of one boy (2017) [Ru/En] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A68941D247F5F5787283C89728B5B13DD18BD4FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +309,8 @@ Clockwise (2017) [Ru/Multi] (1.0) License HI2U
 magnet:?xt=urn:btih:FF65F8194F2BED5C66FAD0F42BE6DDD5ECE7C410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +334,8 @@ Boulder Dash Deluxe (2022) [Ru/Multi] (1.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:2743267F169D771829DC47CAD9702670C1A300CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +361,8 @@ Tropico 4 (2011) [Multi] (1.6.345/dlc) License GOG [Complete Collection]
 magnet:?xt=urn:btih:5C2431D9EADCB383C2B92498AB3350E8198DC1B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +386,8 @@ CASE 2: Animatronics Survival (2019) [Ru/Multi] (1.0) Repack Other s [Episode 1-
 ```bash
 magnet:?xt=urn:btih:5709E7F5BDF2D825758B1F85B5E2C127B8451A52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +413,8 @@ Mystical Riddles: Snowy Peak Hotel / Мистические загадки: От
 magnet:?xt=urn:btih:2452BD697E992EC519F7E5FC53EC53C5940CC81D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +438,8 @@ Guns, Gore and Cannoli Dilogy (2015-2018) [Ru/Multi] (1.2.21/1.0.8) Repack R.G. 
 ```bash
 magnet:?xt=urn:btih:022512AFA6874A3E29EB4B38C8B4323AD49E5EAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +465,8 @@ Strange Brigade (2018) [Ru/En] (1.47.22.14/dlc) Repack R.G. Механики
 magnet:?xt=urn:btih:D2B855B49DB572A849719D989CFFDAF6C955032F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +490,8 @@ Spintires (2014) [Ru/Multi] (1.6.1/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:FAD2B9806CD761AA04B37FEF4D1448057ABD0237
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +517,8 @@ PC Building Simulator - Esports Expansion (2020) [Ru/Multi] (1.8.5) License PLAZ
 magnet:?xt=urn:btih:1951ACFFB2D5A36F2DB102FE62CF327E1EB49CC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +542,8 @@ CASE 2: Animatronics Survival (2019) [Ru/Multi] (1.0) License PLAZA [Episode 1-3
 ```bash
 magnet:?xt=urn:btih:B351BF2EA7C8DCDB44B18CEA75A273537D3651A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +569,8 @@ Mystery of the Ancients 8: No Escape / Тайны древних 8: Тупики
 magnet:?xt=urn:btih:3E84ABC37EC5B5F6F12EEB05E21A095A52CA0B5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +594,8 @@ SINISTRY SILINIUM - это психологический хоррор с эле
 ```bash
 magnet:?xt=urn:btih:049C16BF66D0DB2CFAA6925AD6F026E8638BC063
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +621,8 @@ Riverhill Trials (2018) [Ru/Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:B1831C442A9F8C8A427E67ACB0C9BB8A46FB78EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +646,34 @@ Amberskull (2018) [Ru/Multi] (1.1.2) License PLAZA
 ```bash
 magnet:?xt=urn:btih:059B2F819E4DCC33D0BCD8D23E37DF17DD7A31B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219245   (715054) от 13.04.2018
+
+Attack of the Earthlings (2018) [Ru/Multi] (1.0.4) Repack Other s
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Однопользовательская компания игры "Вторжение Землян" в жанре чёрной комедии сочетает в себе такие элементы, как пошаговые сражения и стелс. Вы, игрок, управляете местной расой инопланетян, защищающих свой дом от вторгшихся людишек. Галактойл, смехотворно неэффективная энергетическая корпорация, одержима добычей энергии по всей изведанной вселенной и готова (   Читать дальше...   )Тип издания: RepackРазработчик: Team JunkfishЖанр: Strategy (TBS, Top-Down), 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3A9D5A13C07A7ACD9889C401766AA91E26D1F60
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

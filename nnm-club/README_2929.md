@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:44835D0A09B9E305B2ACCD9D2778DF2D814AE637
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:44835D0A09B9E305B2ACCD9D2778DF2D814AE637
 magnet:?xt=urn:btih:F1F62129F0420B6180DF7784F003203E813381C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:F1F62129F0420B6180DF7784F003203E813381C8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Robin Hood: The Legend of Sherwood / Робин Гуд: Легенда Шерв�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ Robin Hood: The Legend of Sherwood / Робин Гуд: Легенда Шерв�
 ```bash
 magnet:?xt=urn:btih:2C4C887304651822705712C9CB8D0297D4DA69A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +170,8 @@ VA - Супер Дискотека 90-х Лучшие из Лучших 50/50 (2
 magnet:?xt=urn:btih:F168D1103E36B35BEB6FBB61C6286C2F0029D146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -185,6 +197,8 @@ magnet:?xt=urn:btih:F168D1103E36B35BEB6FBB61C6286C2F0029D146
 ```bash
 magnet:?xt=urn:btih:3D7C4941A3AE32359B0F0600EC8FE7C550F16A0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +228,8 @@ magnet:?xt=urn:btih:3D7C4941A3AE32359B0F0600EC8FE7C550F16A0A
 magnet:?xt=urn:btih:7C8B374D304D75B625CEAEC8A67AE6AB0E1F60D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +253,8 @@ magnet:?xt=urn:btih:7C8B374D304D75B625CEAEC8A67AE6AB0E1F60D1
 ```bash
 magnet:?xt=urn:btih:3C758C44316C4B215E7661FFD114CB9DA881F4CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ magnet:?xt=urn:btih:3C758C44316C4B215E7661FFD114CB9DA881F4CE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +306,8 @@ magnet:?xt=urn:btih:3C758C44316C4B215E7661FFD114CB9DA881F4CE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ magnet:?xt=urn:btih:3C758C44316C4B215E7661FFD114CB9DA881F4CE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +359,8 @@ Counter-Strike – игра всех времен и народов. Она ст
 magnet:?xt=urn:btih:E4A282D5F5994E561DE05418400FA481C75E8D5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +384,8 @@ F1 Challenge 99-02  F1 SMT 2012[Ru] (P/Mod) 2003/2012
 ```bash
 magnet:?xt=urn:btih:AE5D837B2258057133C1A537CF9062EC63EAA004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +411,8 @@ Warp [Ru/En] (RePack) 2012 | R.G. Catalyst
 magnet:?xt=urn:btih:B814937AC71AD22CC14D8B876EF95A3E1BCBB62E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:B814937AC71AD22CC14D8B876EF95A3E1BCBB62E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ Angry Birds Space - главная особенность новой игры - 
 magnet:?xt=urn:btih:B581E7832EFFDCAA312A0442539FD78C8F579AC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ magnet:?xt=urn:btih:B581E7832EFFDCAA312A0442539FD78C8F579AC2
 ```bash
 magnet:?xt=urn:btih:60FA44928AF13209E28E4766B9DF642E4739F311
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:60FA44928AF13209E28E4766B9DF642E4739F311
 magnet:?xt=urn:btih:C9207DC69CCC0CB0BF659F5CF62B9C704B9F564B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:C9207DC69CCC0CB0BF659F5CF62B9C704B9F564B
 ```bash
 magnet:?xt=urn:btih:7C6A674412BEE28FB76790DF9E33618AD1B7EB96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:7C6A674412BEE28FB76790DF9E33618AD1B7EB96
 magnet:?xt=urn:btih:2F9D585B2A7AA745A272A88E2038568C2DEAF514
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:2F9D585B2A7AA745A272A88E2038568C2DEAF514
 ```bash
 magnet:?xt=urn:btih:A13D14C1195E6CF02506F68A07E9615C33EEE6EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ Windows 7x64 Ultimate UralSOFT v.4.2.12 [только русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ Windows 7x64 Ultimate UralSOFT v.4.2.12 [только русский]
 magnet:?xt=urn:btih:E4D6C738464BAF4CC57273D12AC446AD7C215C78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:E4D6C738464BAF4CC57273D12AC446AD7C215C78
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +710,8 @@ Confrontation [En] (L/Steam-Rip) 2012 | МалышШок [Без таблетк�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

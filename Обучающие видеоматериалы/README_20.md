@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:54C4A6FFA6A64200E5BA4EFC8A0E9BACE7EB4DB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:54C4A6FFA6A64200E5BA4EFC8A0E9BACE7EB4DB1
 magnet:?xt=urn:btih:9352AFDF1B47ADAD2EE7E912E9F0451D925F23F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:9352AFDF1B47ADAD2EE7E912E9F0451D925F23F7
 magnet:?xt=urn:btih:629C81297B426A77C5B1B954A0DE7C4B6C197CA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ George Vondriska | Изготовление ящиков: «ласточкин �
 ```bash
 magnet:?xt=urn:btih:1E5971816F612AFDC90E12DA082EEBF85B4E5C7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:1E5971816F612AFDC90E12DA082EEBF85B4E5C7F
 magnet:?xt=urn:btih:582CF01749F738879F1750A4E9B2A120BDB63A57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:582CF01749F738879F1750A4E9B2A120BDB63A57
 ```bash
 magnet:?xt=urn:btih:4E76FAF8F794DA60B742CD09268FF43CDDA76EF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ pro-z.ru | Проектирование стального каркаса скл
 magnet:?xt=urn:btih:CE6D7D4EE1600EED854B58106DF48F5E181C390A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ pro-z.ru | Обследование конструкций зданий (2024) W
 magnet:?xt=urn:btih:75F33BD959CF0ABAECC9E8386FA657EFE31D9F83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ pro-z.ru | Проектирование одноэтажного жилого д
 ```bash
 magnet:?xt=urn:btih:CE19FCEB5F80955CE845DEB16C1A42EBD4F278FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ Profileschool, Никита Чесноков | Blender - базовый уров
 magnet:?xt=urn:btih:BECEF35A8CC6AB5F985E2E81D05ABD6BDF071EA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:BECEF35A8CC6AB5F985E2E81D05ABD6BDF071EA5
 magnet:?xt=urn:btih:7688E355F8E81B15D89BC65E680E07CEA1224EE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:7688E355F8E81B15D89BC65E680E07CEA1224EE0
 ```bash
 magnet:?xt=urn:btih:71D998D0B92D47F20389045E9296FAC287FC9BA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ CG INCUBATOR, Артём Куприяненко | Архитектурный в�
 magnet:?xt=urn:btih:9D777F53AC9D1C291C6C27B470A41CEA2AD34F28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ Profileschool, Никита Чесноков | Blender - продвинутый 
 ```bash
 magnet:?xt=urn:btih:74CC63FF26B0F9987D257A93ED7C8BEAA1F336AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +408,8 @@ Christopher Schwarz | Создайте походное кресло (2018) WEBR
 magnet:?xt=urn:btih:4CABC83557E9F3AED190EF28B472FA3D902CBB61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:4CABC83557E9F3AED190EF28B472FA3D902CBB61
 ```bash
 magnet:?xt=urn:btih:027C865B982D635E04D26CD626D90020E1DE9A0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ Cynthia Bleskachek | Начало работы с обивкой мебели (2
 magnet:?xt=urn:btih:134BB93F604DF16ACDCEB2A89CDE93CE400B60B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:134BB93F604DF16ACDCEB2A89CDE93CE400B60B0
 ```bash
 magnet:?xt=urn:btih:CB3B45A80E50FA24B59EA9A7AB0F86EEA2DD81A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:CB3B45A80E50FA24B59EA9A7AB0F86EEA2DD81A0
 magnet:?xt=urn:btih:575A53A79AE5B524A392738F3F21AB8B704A2A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:575A53A79AE5B524A392738F3F21AB8B704A2A03
 ```bash
 magnet:?xt=urn:btih:6AF484B6DF57FBAD50237DBD99A19410F46CDD32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ Jim Heavey | Ящики для шкафов и изысканной мебели
 magnet:?xt=urn:btih:7A46D99605C11F2AB250C8A4F72A24EC59E7B09F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ Robert Spiece | Двери для шкафов и изысканной мебе�
 ```bash
 magnet:?xt=urn:btih:4378578AF8B52631F4542D8B7905D66644AFEE4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ Udemy, Elchin Jamalov | Windows Server 2016 (70-740) полный видеоку
 magnet:?xt=urn:btih:88CEEC11E0215F85A2582643C88EC7D5AA7972CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ Christopher Schwarz | Верстак (2008) DVDRip [EN, RU]
 magnet:?xt=urn:btih:22CE1C7F47EC9A5538E6FA677758C7C488CF14C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:22CE1C7F47EC9A5538E6FA677758C7C488CF14C5
 ```bash
 magnet:?xt=urn:btih:806311B5CF3445457DA94AAE6A82052349EE6EE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +698,8 @@ Vesperfin, Арина Веспер и др. | Личные финансы (2021)
 ```bash
 magnet:?xt=urn:btih:EDE30F4503FDB29FC21495134369024C5DD11B24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

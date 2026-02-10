@@ -20,6 +20,8 @@ MacPilot 12.0.3 [En]
 magnet:?xt=urn:btih:C7AF1DD845889D10C3C5C3FA7F124C41A506E315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ MAGIX SOUND FORGE Audio Cleaning Lab 4 26.0.0.23 (x64) [Multi]
 ```bash
 magnet:?xt=urn:btih:399D8319225A91957AAE9C8F31B5378A03C06EA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:399D8319225A91957AAE9C8F31B5378A03C06EA7
 magnet:?xt=urn:btih:7CA5ABA689C0529EAF783E2E7E42A4AEFD0CF805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:7CA5ABA689C0529EAF783E2E7E42A4AEFD0CF805
 ```bash
 magnet:?xt=urn:btih:025E4F5242BB9F5927223CEB05FE7104361B21DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:025E4F5242BB9F5927223CEB05FE7104361B21DF
 magnet:?xt=urn:btih:3B0736EFA2C232DCC27135493B4320815B565FC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ CaptureGRID - это приложение для работы с цифровы�
 ```bash
 magnet:?xt=urn:btih:A62F876A0EBE35158D4061731E30B4186887252D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Roxette - The RoxBox! (A Collection Of Roxette's Greatest Songs) (2015) 4CD Box 
 magnet:?xt=urn:btih:58C08D3070B00E40D797B0CAD9A680A08095C58B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ JUG Ru Group | C++ Russia 2021. Конференция для C++ разрабо
 ```bash
 magnet:?xt=urn:btih:7807586B89DEFA928D358D1850AD16D529D32D9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Stand Up (2023.10.27) SATRip (сезон 11, выпуск 6)
 magnet:?xt=urn:btih:93158D10AE679E90899A352DD82401522E46402E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:93158D10AE679E90899A352DD82401522E46402E
 ```bash
 magnet:?xt=urn:btih:02BD533CDBEC6A5053466046673904CEBE498F91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Acrobat DC — это полностью обновленная настольн
 magnet:?xt=urn:btih:3AE66F5126BDB80C72696CAE61C4182CD9F27651
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Rainmeter - утилита для мониторинга ресурсов ком
 ```bash
 magnet:?xt=urn:btih:1EEF9FDAFABFEDCCDB8374CB13FE12118D9DF8B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ In Nightmare (2022) [Ru/Multi] (9999022) License FLT
 magnet:?xt=urn:btih:56D4F4028695B815049417656D828B2E52477F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Screens 4 v4.8.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:60BAD6F9DA4E36010DAFFB7A0EBE51D95B36BD6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:60BAD6F9DA4E36010DAFFB7A0EBE51D95B36BD6F
 magnet:?xt=urn:btih:2F49BE0C5FFD1F8E306EC9992B1EB1AB40FBA2FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Librarian Pro 6 v6.0.1 [En]
 ```bash
 magnet:?xt=urn:btih:12F3428B95787089AA1AAFEFD7054DDC9D3F35E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:12F3428B95787089AA1AAFEFD7054DDC9D3F35E0
 magnet:?xt=urn:btih:BE7AF6B8491EE814ADB99A33E6E99F8864459E37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Crash Time 4: The Syndicate (2010) [PS3] [EUR] 3.73 [Cobra ODE / E3 ODE PRO ISO]
 magnet:?xt=urn:btih:7A2B6239CC008E9D343B3A50894B0F18D9FD717A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ CopyQ контролирует системный буфер обмена и с�
 ```bash
 magnet:?xt=urn:btih:8CAB7A889F3ECA7F32E08336AF0DB950D5907871
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ VA - Songs 4 Sex Sexy Chill Out Night Vibes (2023) [MP3|320 Kbps] <Electronic, L
 magnet:?xt=urn:btih:8E9BC4CC8FD7D83297310B956D4CDC9041B3B225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:8E9BC4CC8FD7D83297310B956D4CDC9041B3B225
 ```bash
 magnet:?xt=urn:btih:D896394A9A898BD87E548B446EDC2D9636F9F046
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Data Guardian 6 v.6.0.1 [En]
 magnet:?xt=urn:btih:CD1984BC2D02B4314886471B35AD0B9ADB647C7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:CD1984BC2D02B4314886471B35AD0B9ADB647C7E
 magnet:?xt=urn:btih:87ADE7D571FFD38DCDE5B953AED9C6D777F09860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:87ADE7D571FFD38DCDE5B953AED9C6D777F09860
 ```bash
 magnet:?xt=urn:btih:BA92A76928BDB6026A2BB10360072A007F5ACFEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ F20 (2022) WEBRip [H.264/1080p]
 magnet:?xt=urn:btih:0D39520E25C5037D246736486EAB0C3DE2002FC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:0D39520E25C5037D246736486EAB0C3DE2002FC7
 ```bash
 magnet:?xt=urn:btih:35E21C9AB670AFAB931808ACA9244AD7E9DFCDF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

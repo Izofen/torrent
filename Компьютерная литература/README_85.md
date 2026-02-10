@@ -22,6 +22,8 @@ Mark Moeykens | Combine Mastery in SwiftUI (2021) [PDF] [EN]
 magnet:?xt=urn:btih:3BF4B18166460D5AA26F4317A3843AE75706079D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:3BF4B18166460D5AA26F4317A3843AE75706079D
 ```bash
 magnet:?xt=urn:btih:D99626C2B5B0C4AD8C30793E527E1E32A2E39236
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:D99626C2B5B0C4AD8C30793E527E1E32A2E39236
 magnet:?xt=urn:btih:BDD78614DCC569B3F560ADDEFDDDEE11F92E47C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:BDD78614DCC569B3F560ADDEFDDDEE11F92E47C4
 ```bash
 magnet:?xt=urn:btih:1D6B2B8031197AC08A0397A0D32A2078D2EDE527
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:1D6B2B8031197AC08A0397A0D32A2078D2EDE527
 ```bash
 magnet:?xt=urn:btih:CF12FD9D4FB0229A96720FD73CE48FFC37B1DD40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ excelok | 151 трюк Microsoft Word (2017) [PDF]
 magnet:?xt=urn:btih:AF66E40FADF28911912BA8285AAC8EEF37F2958E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:AF66E40FADF28911912BA8285AAC8EEF37F2958E
 magnet:?xt=urn:btih:5288F900CEF9AAD64B0AB049F9B1FFA82097FF2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:5288F900CEF9AAD64B0AB049F9B1FFA82097FF2C
 ```bash
 magnet:?xt=urn:btih:F026B72882F25CF0B10FF11056CE07CE5C3C9D76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:F026B72882F25CF0B10FF11056CE07CE5C3C9D76
 magnet:?xt=urn:btih:42C8B9159F5AA52AA347698EAB711F33C205915C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Arduino (   Читать дальше...   )Жанр: Компьютерная 
 magnet:?xt=urn:btih:4087AF7275D39C371E39CF6726C9482450E8F6E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:4087AF7275D39C371E39CF6726C9482450E8F6E0
 ```bash
 magnet:?xt=urn:btih:1779D2FA888887B04DB0F2FA39DF66E243691C32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:1779D2FA888887B04DB0F2FA39DF66E243691C32
 magnet:?xt=urn:btih:E21AFD18F7037DEEED209A430229505CA0CCB99E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:E21AFD18F7037DEEED209A430229505CA0CCB99E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:E21AFD18F7037DEEED209A430229505CA0CCB99E
 magnet:?xt=urn:btih:4DC1CC46404095EAEB7050B6195EEB656E28E5C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:4DC1CC46404095EAEB7050B6195EEB656E28E5C4
 ```bash
 magnet:?xt=urn:btih:0B7BF38FD9C1102AAB30977190CE1B2CBA9424DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:0B7BF38FD9C1102AAB30977190CE1B2CBA9424DC
 magnet:?xt=urn:btih:35B097E6A3DA6E0A5AAE8608B4876AFBBDA8012D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:35B097E6A3DA6E0A5AAE8608B4876AFBBDA8012D
 ```bash
 magnet:?xt=urn:btih:7D9FCAB62453992337431A342F378CD060444FEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:7D9FCAB62453992337431A342F378CD060444FEB
 magnet:?xt=urn:btih:444E5E8C385C08B9CCCDBC8C8698E5CE397720A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:444E5E8C385C08B9CCCDBC8C8698E5CE397720A7
 magnet:?xt=urn:btih:33B9C3E3D7716446E7759AF3D922D85F11A8512B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:33B9C3E3D7716446E7759AF3D922D85F11A8512B
 ```bash
 magnet:?xt=urn:btih:83FDB9407B6D3199539BBCEEEF2C3CB79A962D7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:83FDB9407B6D3199539BBCEEEF2C3CB79A962D7F
 magnet:?xt=urn:btih:B2949B6F8CF56E5207DD8B6C7637F410225B62C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:B2949B6F8CF56E5207DD8B6C7637F410225B62C4
 ```bash
 magnet:?xt=urn:btih:F69B526D857905107A6ADF96FB24FA7C6F735E2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ excelok | 201 трюк Microsoft Excel (2017) [PDF]
 magnet:?xt=urn:btih:1277CBA6962EEAD26B75BDC243C77CF3BBFEC397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ magnet:?xt=urn:btih:1277CBA6962EEAD26B75BDC243C77CF3BBFEC397
 magnet:?xt=urn:btih:E66FADEC90E18CD37F8FCE0870EBC14A16739F56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ magnet:?xt=urn:btih:E66FADEC90E18CD37F8FCE0870EBC14A16739F56
 magnet:?xt=urn:btih:DDF5FBDF7D2B1F77BF900A43E8C4C1AE5267DF1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:DDF5FBDF7D2B1F77BF900A43E8C4C1AE5267DF1C
 ```bash
 magnet:?xt=urn:btih:97D937FC156E2A9CB9CEEBD97FF7022E5C98D04C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

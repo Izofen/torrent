@@ -1,3 +1,30 @@
+###  Публикация: 997000   (876970) от 15.03.2016
+
+Милена Завойчинская | Иржина. Предначертанного не избежать (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_876970.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Иржина. Предначертанного не избежать" – фантастический роман в стиле любовное фэнтези русской писательницы Милены Завойчинской, книга 3, входит в цикл «Иржина».
+Неуемная тяга ко всему интересному и неизведанному опять кинула Иржину сначала в приключение, а потом и в объятия императора. Причем в буквальном смысле – она свалилась к нему на колени прямо из (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 11:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:579C13A58BCA30BFED9BAD986D2DAE82F1F26314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996975   (877194) от 15.03.2016
 
 Генри Лайон Олди | Ангелы Ойкумены (2016) [MP3]
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:9FC0FA1B2126CF4F24C3C45C1AF8C67702022AEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:9FC0FA1B2126CF4F24C3C45C1AF8C67702022AEB
 magnet:?xt=urn:btih:60606D16B576FACE14C266A06ED2A222D923457D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:60606D16B576FACE14C266A06ED2A222D923457D
 magnet:?xt=urn:btih:8BE1CB30FD6D0FB6B93617A535BEC5352CCFE8AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:8BE1CB30FD6D0FB6B93617A535BEC5352CCFE8AF
 ```bash
 magnet:?xt=urn:btih:CD6EF062A71070979A71B92AE0C8A7E8DF75DFAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +154,8 @@ magnet:?xt=urn:btih:CD6EF062A71070979A71B92AE0C8A7E8DF75DFAC
 magnet:?xt=urn:btih:25CE4C5348EB6C266A23534983B841061D713BE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:25CE4C5348EB6C266A23534983B841061D713BE5
 ```bash
 magnet:?xt=urn:btih:20588D1D39E17370FE98520DF5A37F69C0E92140
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +206,8 @@ magnet:?xt=urn:btih:20588D1D39E17370FE98520DF5A37F69C0E92140
 magnet:?xt=urn:btih:82D85042ADBBFB6F4DE00116F82925FA364C1E2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:82D85042ADBBFB6F4DE00116F82925FA364C1E2A
 magnet:?xt=urn:btih:CF0D4CD52BFE0A6CA9A7CD884438971800C2A020
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:CF0D4CD52BFE0A6CA9A7CD884438971800C2A020
 ```bash
 magnet:?xt=urn:btih:0B27957629B656EA4FAD9484405DF782894ACEAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +285,8 @@ magnet:?xt=urn:btih:0B27957629B656EA4FAD9484405DF782894ACEAD
 magnet:?xt=urn:btih:28AC8B0CF81DC6CD1E20FD07F3DC7030E366A210
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +312,8 @@ magnet:?xt=urn:btih:28AC8B0CF81DC6CD1E20FD07F3DC7030E366A210
 magnet:?xt=urn:btih:3EAF7B722CC8FC01AC4FCBF97EB997F1994300A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +338,8 @@ magnet:?xt=urn:btih:3EAF7B722CC8FC01AC4FCBF97EB997F1994300A3
 magnet:?xt=urn:btih:05FC9ACF328A68024C552CB60992C419BFFF9D83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:05FC9ACF328A68024C552CB60992C419BFFF9D83
 ```bash
 magnet:?xt=urn:btih:5EF21A4A1441FBA0137C9680FEB8EB5F4528C933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +391,8 @@ magnet:?xt=urn:btih:5EF21A4A1441FBA0137C9680FEB8EB5F4528C933
 magnet:?xt=urn:btih:882190C037C91A49FCE6B1358D2A6950CFC65969
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +416,8 @@ magnet:?xt=urn:btih:882190C037C91A49FCE6B1358D2A6950CFC65969
 ```bash
 magnet:?xt=urn:btih:8E8FE3517F07DC3A8BE3B7846C4332E9F8CDB6D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +443,8 @@ magnet:?xt=urn:btih:8E8FE3517F07DC3A8BE3B7846C4332E9F8CDB6D0
 magnet:?xt=urn:btih:912F9C73885F457953384ADF9E939A7E4F318AEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +468,8 @@ magnet:?xt=urn:btih:912F9C73885F457953384ADF9E939A7E4F318AEE
 ```bash
 magnet:?xt=urn:btih:AF97BFE916724642B15C519DE4F8E65AF93AB8A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +495,8 @@ magnet:?xt=urn:btih:AF97BFE916724642B15C519DE4F8E65AF93AB8A7
 magnet:?xt=urn:btih:E579899920392527DE1644AF54FB81241A885E5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +520,8 @@ magnet:?xt=urn:btih:E579899920392527DE1644AF54FB81241A885E5E
 ```bash
 magnet:?xt=urn:btih:20A077601C0D10F9A35062AE6F92492416F46674
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +547,8 @@ magnet:?xt=urn:btih:20A077601C0D10F9A35062AE6F92492416F46674
 magnet:?xt=urn:btih:00695A201CD5FFD288B93AC46A2CD3025AC18345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +573,8 @@ magnet:?xt=urn:btih:00695A201CD5FFD288B93AC46A2CD3025AC18345
 magnet:?xt=urn:btih:1AF65DD0BB60DC3B12D8688874DE903EC81C3B8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +598,8 @@ magnet:?xt=urn:btih:1AF65DD0BB60DC3B12D8688874DE903EC81C3B8B
 ```bash
 magnet:?xt=urn:btih:9F7127FA4528EC068967326C93C0908CF61CE307
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +627,8 @@ magnet:?xt=urn:btih:9F7127FA4528EC068967326C93C0908CF61CE307
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +655,8 @@ magnet:?xt=urn:btih:9F7127FA4528EC068967326C93C0908CF61CE307
 magnet:?xt=urn:btih:7991DBA4A0B9475B85280F4D4B21EB57015DF303
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,29 +682,7 @@ magnet:?xt=urn:btih:7991DBA4A0B9475B85280F4D4B21EB57015DF303
 magnet:?xt=urn:btih:F369D2ED0C0E98B2D76AF158881F5EAFC868B53F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495337   (882294) от 11.09.2021
-
-Дмитрий Ра | Идущий вопреки (2021) [MP3, Михаил Обухов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_882294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разломанный мир без времени. Мир, где властвуют золото, жестокость и мысль… Полуальв Хеллор работает чернорабочим в таверне «Старый дубок», что на окраине Пояса Полувременья, по указу Академии Хронистов. Расплата за пребывание здесь – не только твое Время, но и рассудок…Жанр: Боевое фэнтези, героическое фэнтезиПродолжительность: 08:25:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1867926172B3F2CE63FAEBC338B50B75066F286F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

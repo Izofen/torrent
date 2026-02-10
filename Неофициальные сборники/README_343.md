@@ -1,3 +1,38 @@
+###  Публикация: 527457   (576923) от 26.07.2012
+
+VA - Хиты пляжного сезона (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_576923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Юлия Беретта - Лето
+02. Martin Solveig - The Night Out
+03. Потап и Настя - Прилелето
+04. Ирина Дубцова - Ешь, молись, люби
+05. Shakira - Addicted To Yo
+06. Сергей Жуков & Opium Project - Я буду с тобою
+07. Алина Гросу - Взрослая
+08. Elvira T - Все решено (Fresh Tunes remix)
+09. Rihanna - Where Have You Been
+10. Глюк'oza - Хочу мужчину (DFM mix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD60A2AE47FB589839B6D0D21F880C4A0BE3CC2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 361558   (576967) от 10.07.2011
 
 VA - Club TOP Music for Auto compiled bu DJ Najim-4 (2011) [MP3|192-320 kbps]<Electro-House, House, Trance, Dance, Club, Drum n Bass>
@@ -28,6 +63,8 @@ VA - Club TOP Music for Auto compiled bu DJ Najim-4 (2011) [MP3|192-320 kbps]<El
 magnet:?xt=urn:btih:8FD5F9F4346EA8949625A334C2071447B94B3B08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +92,8 @@ VA - Попсовая Сотка MTV. Русский выпуск (2015) [MP3|32
 magnet:?xt=urn:btih:75909324D6345A0D08E8337600E8030E9EDD2670
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +120,8 @@ VA - Музыкальный кайф лета (2015) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:304841DA3A5824977F2A8404CF4E0AC105F408BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -112,6 +153,8 @@ VA - Жаркое лето новинок (2011) [MP3|256 kbps]<Pop, Club>
 magnet:?xt=urn:btih:0834FB05BEF6AF9074364E169835AD2A77978371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +182,8 @@ VA - Славянский Меч - Пятый Удар! Часть 1 - 3 (2015) 
 magnet:?xt=urn:btih:1A394491F0AFB61A0DECFED7CA1431D633DF55C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +207,8 @@ VA - 100ня взрывных хитов Русский (2011) [MP3|256 kbps]<Po
 ```bash
 magnet:?xt=urn:btih:268B64DEF391925B294A5217222BCE5C3B759627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +237,8 @@ VA - Шансон на лето Часть 6 (2015) [MP3|256 кб/с]<Шансо
 magnet:?xt=urn:btih:4DE8836E7B963660D622456BB962CF0E95645A34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +263,8 @@ VA - Музыкальные Новости Русского Радио (2011) [M
 magnet:?xt=urn:btih:02506F71FDE87579AB1A766A7B3AD3882FF83045
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +288,8 @@ VA - Летний попсовый рай (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:3BBF7554CC82D7E7494734FB870A60BE4310465F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +318,8 @@ VA - Top Hits Progressive (2015) [MP3|320 кб/с]<Bigroom, Progressive, Trance,
 magnet:?xt=urn:btih:3EB1C9441C243CBE416BD4E56429F1FB1E5904F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +346,8 @@ Tempest 2000 (1995) [MP3|320 кб/с]<Score>
 ```bash
 magnet:?xt=urn:btih:BF2399F00B7AB8FF7E1F42E4A7D109989489B974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +376,8 @@ VA - Ibiza Romantic Chillout & Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillo
 magnet:?xt=urn:btih:8E88EB867155CC8483B4F76EA50AE4AB7D891EA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +404,8 @@ VA - Acoustic Chill Playlist 4 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lou
 ```bash
 magnet:?xt=urn:btih:A896139F92E62839858987F5B937B3272BB50ACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +434,8 @@ Claudia Mori - Compilation (2022) [MP3|320 Kbps] <Pop, Italo Pop>
 magnet:?xt=urn:btih:FEF199904D6EE6ED5FBEE25FCAA1B5CEE8F32F0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +462,8 @@ VA - Ultimate Workout Music - Eurodance Hits (2016) [MP3|320 Kbps] <Hands Up, Da
 ```bash
 magnet:?xt=urn:btih:310EC523625D501EED8568B2B49F730352EB493F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +492,8 @@ VA - Лучшее и Редкое от Ovvod7 - 2 (2018) [MP3|320 Kbps] <Pop, Ro
 magnet:?xt=urn:btih:8800490C0A4792C86B277BCECBF3876D60D8524E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +520,8 @@ VA - Radio Turkey PRO Top 100 (Best Of Summer) (2017) [MP3|320 Kbps] <Pop, House
 ```bash
 magnet:?xt=urn:btih:2A583F5AB8F4E73D229DBDD7644024868CBFA7A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +550,8 @@ VA - Summer Romantic Songs Vol.2 (2017) [MP3|320 Kbps] <Pop, RnB, Rock>
 magnet:?xt=urn:btih:0E60C64E18627729BDB0CF2871A3B8269BA6CAE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +579,8 @@ VA - Лучшее и Редкое от Ovvod7 - 1 (2018) [MP3|320 Kbps] <Pop, Ro
 magnet:?xt=urn:btih:5453751BDA1E579751CBD394078621C11A8061FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +604,8 @@ VA - Summer Session 2017 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Voca
 ```bash
 magnet:?xt=urn:btih:E15BCD93318AD014A2DB8ED50BEB659688999B8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +634,8 @@ VA - Empire Records - Retro Trance (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:99E86DA60434378382AEEB774095F1E3DBAED95D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +662,8 @@ VA - Day Of Radiance: Space Ambient (2017) [MP3|320 Kbps] <Electronic, Synthspac
 ```bash
 magnet:?xt=urn:btih:68BF4963AB7D8B10B2C51AE6A3B63ECC96A9B098
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +692,8 @@ VA - Kiss FM: Top 40 Июнь (2018) [MP3|320 Kbps] <Pop, Dance, House>
 magnet:?xt=urn:btih:71DCFE9286A86142CC74EB96ACCA1B7B2F682DBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +720,8 @@ VA - Зайцев.Нет - Лучшие Новинки Августа (2016) [MP
 ```bash
 magnet:?xt=urn:btih:A2C84F82A33E830956D5B33716D9D0E997A15A22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,32 +750,7 @@ VA - Empire Records – Tropical Trance (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:C62548528A6AA6001655438A498CB52A183E908A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233686   (578154) от 01.07.2018
-
-VA - Record Super Chart 543 (2018) [MP3|320 Kbps] <House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_578154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Prodigy feat. Vicetone - Omen 3:43
-02. Newclaess feat. Lola Rhodes - Home 3:29
-03. Lucas & Steve - Source 4:22
-04. Rudeejay & Da Brozz - Children 3:05(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 02:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD4964F68AF6CEF872D9A375753E2F88F86829B1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

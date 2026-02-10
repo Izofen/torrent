@@ -1,3 +1,29 @@
+###  Публикация: 1221485   (689431) от 27.04.2018
+
+Там, где небо лежит на земле (1989) VHSRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_689431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дед Самсон прожил интересную жизнь — и с турками воевал, и с фашистами. А сейчас, когда воевать не с кем и дети выросли, дела себе найти не смог и потребовал преждевременный памятник себе на могиле. Так извел внука, что тот прыгнул с крыши деревенской церкви.Производство: СССР / АрменфильмЖанр: ДрамаРежиссер: Борис АйрапетянАктеры: Азат Шеренц, Армен Хостикян, Ашот Едигарян, Светлана Киракосян, Александр Оганесян, Генрих Алавердян, Элеонора ПетросянСубтитры: ОтсутствуютПродолжительность: 01:14:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B85EC0E6B2A968381EAF1038785997BEE539FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534938   (690516) от 04.03.2022
 
 Третьего не дано (1980) WEBRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:626344E70275EC0C02AF2779D4D1A7FB9D4EC329
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:626344E70275EC0C02AF2779D4D1A7FB9D4EC329
 ```bash
 magnet:?xt=urn:btih:8695FD1DFF12EA5E8356CEEE90A8EF696B43BDF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:8695FD1DFF12EA5E8356CEEE90A8EF696B43BDF0
 magnet:?xt=urn:btih:49A20702014129F96A0894B79119E48AAA639953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:49A20702014129F96A0894B79119E48AAA639953
 magnet:?xt=urn:btih:B5CDD92038CD7C0F5FFE25FDC8476314BAF1DA91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:B5CDD92038CD7C0F5FFE25FDC8476314BAF1DA91
 ```bash
 magnet:?xt=urn:btih:B4739F6EEF572E98E7758D195F46B5A6DDFCF17F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:B4739F6EEF572E98E7758D195F46B5A6DDFCF17F
 magnet:?xt=urn:btih:60BAED896D173A8847FD821D605445680EB06D3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:60BAED896D173A8847FD821D605445680EB06D3F
 ```bash
 magnet:?xt=urn:btih:756A909DDDFC16749A4E7832E5D42395075FCCAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:756A909DDDFC16749A4E7832E5D42395075FCCAF
 magnet:?xt=urn:btih:5D830E792485242A1200CA99DEC9295B762F6984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:5D830E792485242A1200CA99DEC9295B762F6984
 ```bash
 magnet:?xt=urn:btih:BB3AD80415169F4ECB23612E63D98964407AA089
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:BB3AD80415169F4ECB23612E63D98964407AA089
 magnet:?xt=urn:btih:ED9C229B4F30E073F759404A19E9053600ADCDB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:ED9C229B4F30E073F759404A19E9053600ADCDB5
 ```bash
 magnet:?xt=urn:btih:E280E7AF6105F36C67226F38E0E1F5873A6A02B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:E280E7AF6105F36C67226F38E0E1F5873A6A02B3
 magnet:?xt=urn:btih:90E34ED01F3475B0987A73094EBF4D96AEC1E743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:90E34ED01F3475B0987A73094EBF4D96AEC1E743
 ```bash
 magnet:?xt=urn:btih:D45494CF5A25D9BBC725C55DEC549798F964B238
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:D45494CF5A25D9BBC725C55DEC549798F964B238
 magnet:?xt=urn:btih:087EBBD83D56C291D661949A1A7FF650302197E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:087EBBD83D56C291D661949A1A7FF650302197E5
 ```bash
 magnet:?xt=urn:btih:5EBDC6662CE37390D14B16A4F0220567A540641F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:5EBDC6662CE37390D14B16A4F0220567A540641F
 magnet:?xt=urn:btih:A5D5751E22A5D3675D0A20FFB509B454757392EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:A5D5751E22A5D3675D0A20FFB509B454757392EE
 magnet:?xt=urn:btih:956BACD6FD390CA47B35C0F9F178ACFB9DA4829E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:956BACD6FD390CA47B35C0F9F178ACFB9DA4829E
 ```bash
 magnet:?xt=urn:btih:87365D9F87276E672AD1F3A313B90C1E226E5293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:87365D9F87276E672AD1F3A313B90C1E226E5293
 magnet:?xt=urn:btih:15E1CA62EC1723A25082D8ED887083FC5F206E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:15E1CA62EC1723A25082D8ED887083FC5F206E54
 magnet:?xt=urn:btih:963B5173FB0E402581253AD33C1C0C34BD65AC62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:963B5173FB0E402581253AD33C1C0C34BD65AC62
 ```bash
 magnet:?xt=urn:btih:3887A54FC9647A24A7BD1D18D4465F6041A29E33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:3887A54FC9647A24A7BD1D18D4465F6041A29E33
 magnet:?xt=urn:btih:A657C7889146106F77DD7C5360400CCF8CD1970B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:A657C7889146106F77DD7C5360400CCF8CD1970B
 ```bash
 magnet:?xt=urn:btih:7D1FCB869208A036F143B418F07883930F784EF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:7D1FCB869208A036F143B418F07883930F784EF5
 magnet:?xt=urn:btih:F64CC898B70B021DE8EB3E59A8B968DB390CC455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:F64CC898B70B021DE8EB3E59A8B968DB390CC455
 magnet:?xt=urn:btih:BFF3261F970FB437909F9A6DE187CC5576E7B800
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 697706   (700620) от 09.05.2017
-
-Только ты (1972) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот искрящийся оптимизмом и жизнелюбием фильм снят по мотивам оперетты Исаака Дунаевского «Белая акация». Героиня этой истории — простая одесская девчонка Тоня Чумакова мечтает о море. И вот ее берут радистом на один из кораблей Черноморской китобойной флотилии…Жанр: Музыкальная комедияРежиссер: Евгений ШерстобитовАктеры: Ирина Борисова, Николай Соловьев, Спартак Мишулин, Сергей Сибель, Юрий Рудченко, Галина Нехаевская, Галина СтеценкоПродолжительность: 01:23:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A12C4EDF931C36F8B396C2528581E963A334D16
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

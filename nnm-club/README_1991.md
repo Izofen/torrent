@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:FA36BE1F83B5446C73883E28F5D038EB8C25048C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:FA36BE1F83B5446C73883E28F5D038EB8C25048C
 ```bash
 magnet:?xt=urn:btih:CB9BD6F7C808923C72E753B037034F111E7BA57A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:CB9BD6F7C808923C72E753B037034F111E7BA57A
 magnet:?xt=urn:btih:73E49D3CBB21DA0048CEB5299CAB5C390642B63D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:73E49D3CBB21DA0048CEB5299CAB5C390642B63D
 ```bash
 magnet:?xt=urn:btih:0FD1FE6E7FBE88FA5B390545B5E2430092E189C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Tsuki ga Michibiku Isekai Douchuu Dai Ni Maku | Tsukimichi: Moonlit Fantasy 2 | 
 magnet:?xt=urn:btih:CC397459F80C39595BA1D46F81FB8A903CC154AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:CC397459F80C39595BA1D46F81FB8A903CC154AE
 ```bash
 magnet:?xt=urn:btih:877EEAE1ACFF2430E7B6EFAD3A1326A1F8AE2235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:877EEAE1ACFF2430E7B6EFAD3A1326A1F8AE2235
 magnet:?xt=urn:btih:FC3E173FAD2B7E435661EC58E84CB559BC548963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Elden Ring – фэнтезийное экшен-РПГ приключение, 
 ```bash
 magnet:?xt=urn:btih:EF6AB86AFA86DCE8BE48FB37D5CED98E152E552E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:EF6AB86AFA86DCE8BE48FB37D5CED98E152E552E
 magnet:?xt=urn:btih:A45D4B7BB8C2D3B1DC1F235C84346C15BC4FE55F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:A45D4B7BB8C2D3B1DC1F235C84346C15BC4FE55F
 ```bash
 magnet:?xt=urn:btih:A51641790AC9D5E1C562E8F9A895690B71662DC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:A51641790AC9D5E1C562E8F9A895690B71662DC7
 magnet:?xt=urn:btih:01BFECFF9DEF8FBEA03121AAF0E314865005D758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Unnamed Memory / Безымянное воспоминание [2024, TV, 12] WE
 magnet:?xt=urn:btih:1F56FD4CD3C0C9B21CA7FF16A812DFF6853336DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:1F56FD4CD3C0C9B21CA7FF16A812DFF6853336DA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:1F56FD4CD3C0C9B21CA7FF16A812DFF6853336DA
 magnet:?xt=urn:btih:C14967A710A2822D484CD2A819708A5900A80AC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:C14967A710A2822D484CD2A819708A5900A80AC0
 ```bash
 magnet:?xt=urn:btih:F583DB054317C73BB14FF3A886668F831A82D1C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:F583DB054317C73BB14FF3A886668F831A82D1C4
 magnet:?xt=urn:btih:D3AF5C17D401D03EF6B5264999BA0479697C7E11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:D3AF5C17D401D03EF6B5264999BA0479697C7E11
 ```bash
 magnet:?xt=urn:btih:CE40910160B15F19B888FA410C78CBEE1CA361C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:CE40910160B15F19B888FA410C78CBEE1CA361C7
 magnet:?xt=urn:btih:0328BAF75D5B0F5A12F66AE0C4E9E164DD9DE95B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ REPUNK - одна из таких игр, которая предлагает з
 ```bash
 magnet:?xt=urn:btih:65E4B6DFB60F92593A0CE2EB7BCDDC038FC068EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:65E4B6DFB60F92593A0CE2EB7BCDDC038FC068EC
 magnet:?xt=urn:btih:B63027ADE56D69FB7C99A9ACFCD1CC4DF37F6510
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:B63027ADE56D69FB7C99A9ACFCD1CC4DF37F6510
 magnet:?xt=urn:btih:3E4BE29DA010DC2392F0A8CCF46AE7175C6A9B01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:3E4BE29DA010DC2392F0A8CCF46AE7175C6A9B01
 ```bash
 magnet:?xt=urn:btih:FD7570BEAD144A99DDD5AD9EB1EF58067E522ECC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:FD7570BEAD144A99DDD5AD9EB1EF58067E522ECC
 magnet:?xt=urn:btih:0619DDA1B87C2ADC00C014841EB5B0C83A998BE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:0619DDA1B87C2ADC00C014841EB5B0C83A998BE0
 ```bash
 magnet:?xt=urn:btih:4D104321FD83768081431B96D4A2776816587D03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:4D104321FD83768081431B96D4A2776816587D03
 magnet:?xt=urn:btih:D7AD81F15E8C910FE20685B985E53AFF5C8D93BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:D7AD81F15E8C910FE20685B985E53AFF5C8D93BA
 ```bash
 magnet:?xt=urn:btih:9AF37B1F67D8B5C6425691B08657A05ADA76835F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

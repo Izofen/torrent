@@ -19,6 +19,8 @@ Beastiarium (2016) [Ru/Multi] (1.0.0) License PLAZA
 magnet:?xt=urn:btih:139F7E91855FF81E53C8A4B81101F345FD3B1A0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Little Inferno (2012) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:627270C80A2D47E6CAB962B04C1FAFF1424CA665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Son of Nor (2015) [Ru/Multi] (1.0.101/dlc) License PROPHET [Gold Edition]
 magnet:?xt=urn:btih:5A3EA71DA31CE8D5E6F16BD288A3788657698A2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:5A3EA71DA31CE8D5E6F16BD288A3788657698A2F
 magnet:?xt=urn:btih:D6ABB58F537CC6D0BC0F352708E675EC9AC77EFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ TARTARUS (2017) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:089ABB9AC75F3992447E36629CAA130253671AC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Tales from the Borderlands – эпизодическое приключение
 magnet:?xt=urn:btih:B4D3686255E79707F60803027BE0A3265E073D88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ SpellForce 3 — увлекательный гибрид стратегии в �
 ```bash
 magnet:?xt=urn:btih:7372AE777B52A1114EA6973B51E843320B63D51F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Underworld Ascendant (2018) [Ru/Multi] (0.3.30263/dlc) Repack xatab
 magnet:?xt=urn:btih:FCC45D066A106F148631C9C1F69F2264359BEB55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Lost Artifacts 5: Frozen Queen / Кладоискатели 5: Снежная к
 ```bash
 magnet:?xt=urn:btih:EC928D4FE614F20989A1EEE1864E80E2F5A64D8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ TARTARUS (2017) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:E9D23DCB716328A6D5AFAD9BCA8C43209472FCF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Pillars of Eternity (2015) [Ru/En] (3.7.0.1280/dlc) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:A52910E6C3D6B3B4967520B78BA553689E268D82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Forgotton Anne (2018) [Ru/Multi] (1.0/u2) Repack R.G. Catalyst
 magnet:?xt=urn:btih:C3143637E375D15CCCF70B40961032104C431255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ CRAZY CHICKEN Strikes Back (2016) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:430C6C84147E048BEF4B51CCD9BCE390D370ED2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ King Lucas (2016) [En/Es] (1.0) Repack Other s
 magnet:?xt=urn:btih:FF1F0FE006868A2F2D875A42326D681A019ACA54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Killing Floor это Co-op Survival Horror FPS, действие которог�
 ```bash
 magnet:?xt=urn:btih:CB668F322DB4E65E599537AA1A99F840113517A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Junk Jack – приключенческая 2D песочница в духе T
 magnet:?xt=urn:btih:6D4DC3FAAC6F25649759E78A74C00C23A8E5C9FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Between Me and The Night — из тех игр, что донельзя дуа�
 ```bash
 magnet:?xt=urn:btih:B8465A2F14E0F3161B2F3500F2CCA9D802934F63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Slender: The Arrival - профессиональный ремейк жутко�
 magnet:?xt=urn:btih:9368C0B56FBEE8917FBC5C59F85286E3CC6A9C30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Pathologic 2 (2019) [Ru/En] (1.5.29823/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:F4416DDD3EB836C3B936894D18E7059EF78C2B9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Blackguards 2 - сиквел пошаговой ролевой стратеги�
 magnet:?xt=urn:btih:6DA7B17E7EA7E47A957F72D048713293B0E2F9CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Spirit Legends 2: Solar Eclipse / Легенды о духах 2. Солнечн
 ```bash
 magnet:?xt=urn:btih:AACE1A7D067E0D34F93E3C0DFC5505D47E816215
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Enchanted Kingdom 4: Fiend of Darkness / Зачарованное королев
 magnet:?xt=urn:btih:3E185A80E91F80FB7306D064CED6CA2F9667CEF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Lara Croft GO – пошаговая головоломка, главной ге
 ```bash
 magnet:?xt=urn:btih:E995C19CFDAA626A2FF9224FD21C0CCCEE452958
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Dreampath 3. Guardian of the Fores / Тропа мечтаний 3: Хранит
 magnet:?xt=urn:btih:50990BB5177AA1189C7C69C8981B0A5782E255E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Lara Croft GO – пошаговая головоломка, главной ге
 magnet:?xt=urn:btih:002AA3D34319F22D19D376AC9B5B7886079471CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Tales of Monkey Island: Collector's Edition / Tales of Monkey Island: Колле
 ```bash
 magnet:?xt=urn:btih:60C312FD0DE8D459A83A0D8C1D1721B5744C6685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

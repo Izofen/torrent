@@ -1,3 +1,29 @@
+###  Публикация: 1010665   (797647) от 26.04.2016
+
+И. Вороницын | Светский календарь и гражданская религия Великой французской революции (1929) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797647.jpg" />
+</div>
+
+
+###  Подробнее
+
+При работе над „Историей атеизма“ (вышла 2-м изд.) автор настоящей брошюры натолкнулся на тот факт, что на русском языке не существует сколько-нибудь обстоятельного рассказа об имевшей место во время Французской революции планомерной попытке перевоспитания целого народа в духе полного освобождения его от религиозной традиции. Главными средствами этого перевоспитания (   Читать дальше...   )Жанр: История, религиоведение, политологияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBDA038185E0122B6BCB85B7D66313E56CE4AD36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384362   (797727) от 24.05.2020
 
 Книжная серия | Главные секреты медицины Востока [5 книг] (2016-2020) [EPUB]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:04FFAE5E52D0C92DE7C324C7E974F3A274F5FA80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:04FFAE5E52D0C92DE7C324C7E974F3A274F5FA80
 magnet:?xt=urn:btih:4BC7654B2256ADC0703A9C713B75DF4E95495CFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:4BC7654B2256ADC0703A9C713B75DF4E95495CFE
 ```bash
 magnet:?xt=urn:btih:A1905474ABA4F2537AEF8D1814B201D50C2AF39C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:A1905474ABA4F2537AEF8D1814B201D50C2AF39C
 magnet:?xt=urn:btih:BF37FFA67276F64E4EEB2A3A4EE2FFCA5300B432
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:BF37FFA67276F64E4EEB2A3A4EE2FFCA5300B432
 magnet:?xt=urn:btih:58C40851FFB8F56539F356C17C95C8814BCE9F5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:58C40851FFB8F56539F356C17C95C8814BCE9F5B
 ```bash
 magnet:?xt=urn:btih:A5DA98A1A60465375D03AB19BA126A04676BCADE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:A5DA98A1A60465375D03AB19BA126A04676BCADE
 magnet:?xt=urn:btih:94FB347712174D73E7E4D702C8FA5881A081A18C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:94FB347712174D73E7E4D702C8FA5881A081A18C
 ```bash
 magnet:?xt=urn:btih:8A49F8C319E7541FA154295DCC3286EB631CFB6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:8A49F8C319E7541FA154295DCC3286EB631CFB6C
 magnet:?xt=urn:btih:646BD47287D1209FF243B5703B1674987CB8F205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:646BD47287D1209FF243B5703B1674987CB8F205
 ```bash
 magnet:?xt=urn:btih:0B87A4BA881E51B68279A138B73A2B0615983AA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:0B87A4BA881E51B68279A138B73A2B0615983AA5
 magnet:?xt=urn:btih:0680D99E6F5445048796EB5D726A65ABDD0F5BDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:0680D99E6F5445048796EB5D726A65ABDD0F5BDF
 magnet:?xt=urn:btih:A72D7E01B382E2B371E1671FF1C1A021F538ACB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:A72D7E01B382E2B371E1671FF1C1A021F538ACB1
 magnet:?xt=urn:btih:37F3E1ABCF37E98862C38FCA7F66C6005E4D6B1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:37F3E1ABCF37E98862C38FCA7F66C6005E4D6B1F
 ```bash
 magnet:?xt=urn:btih:82186C1244D03CACE8B98B1AA76EBF38735DDE4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:82186C1244D03CACE8B98B1AA76EBF38735DDE4A
 magnet:?xt=urn:btih:79E20CACE52FCD4ED892794884292B6F97E4B8E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +446,8 @@ magnet:?xt=urn:btih:79E20CACE52FCD4ED892794884292B6F97E4B8E7
 ```bash
 magnet:?xt=urn:btih:8BBBF2BF005B1FD8B46FCD6D8F308F72C4170F4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +475,8 @@ magnet:?xt=urn:btih:8BBBF2BF005B1FD8B46FCD6D8F308F72C4170F4F
 magnet:?xt=urn:btih:286C1F7DAB6870F836F045911A5774C8F0328854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +500,8 @@ magnet:?xt=urn:btih:286C1F7DAB6870F836F045911A5774C8F0328854
 ```bash
 magnet:?xt=urn:btih:A8716093D852B8644F329834B7792F2618CA1A4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +527,8 @@ magnet:?xt=urn:btih:A8716093D852B8644F329834B7792F2618CA1A4C
 magnet:?xt=urn:btih:40CD07C6E125AAF61B69E78B179ACB4133A80B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:40CD07C6E125AAF61B69E78B179ACB4133A80B13
 ```bash
 magnet:?xt=urn:btih:40C3B89FA0D7DACB65D3716C310198CABDA3A187
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +581,8 @@ magnet:?xt=urn:btih:40C3B89FA0D7DACB65D3716C310198CABDA3A187
 magnet:?xt=urn:btih:F2C1BF4D5A95D73FF36EE525228C5B7E8E65E156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:F2C1BF4D5A95D73FF36EE525228C5B7E8E65E156
 ```bash
 magnet:?xt=urn:btih:8D0A70D3D57C3BD70920C9FD6B50AE3D1F358F5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +635,8 @@ magnet:?xt=urn:btih:8D0A70D3D57C3BD70920C9FD6B50AE3D1F358F5B
 magnet:?xt=urn:btih:C82AFCF9F7D86464D621672F95B19A4A80328FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +663,8 @@ magnet:?xt=urn:btih:C82AFCF9F7D86464D621672F95B19A4A80328FA6
 magnet:?xt=urn:btih:A5564F9C6F582B009A11CB45346C32F708B1C9E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,29 +689,7 @@ magnet:?xt=urn:btih:A5564F9C6F582B009A11CB45346C32F708B1C9E2
 magnet:?xt=urn:btih:7D946AD7F8C979459EB3BE87F291E3614AAB80A8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122094   (798830) от 05.04.2017
-
-Свято-Троицкий монастырь (изд.) | Преподобные старцы Оптиной Пустыни (1992) [PDF, DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_798830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ПравославиеФормат: PDF, DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE915251290A0FED71EE494D6064FB611AA28EF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

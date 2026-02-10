@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:98CEEC99444EB76D3FD92108823C73F71D0ECE71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ DiskDigger - приложение восстановления удалённы�
 ```bash
 magnet:?xt=urn:btih:6C30A89FF1529C94D5EB18C2012EB46150EF5323
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Icecream Screen Recorder - программа, позволяющая вести
 magnet:?xt=urn:btih:5C3ACB9029E6464FDC37D6B82EEE216210CBF0D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ ZW3D Professional представляет собой очень мощный и
 ```bash
 magnet:?xt=urn:btih:0143D8A1BC71193BD94394D31D8E822EE7205E11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ CPUID HWMonitor - утилита предназначена для монито�
 magnet:?xt=urn:btih:B74B44CF1CEF16E0D8C8D14A696808129C532203
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:B74B44CF1CEF16E0D8C8D14A696808129C532203
 ```bash
 magnet:?xt=urn:btih:EC4649D10CBB3E0DA1390C3401CADFE16F8A602B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Office 2013-2021 C2R Install 7.4.9 b01 ++ x64 Portable by Ratiborus [Multi/Ru]
 magnet:?xt=urn:btih:4E6D43354634715856B717319A3D68C6FAFA134B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Office 2013-2021 C2R Install 7.4.9 b02 ++ x64 Portable by Ratiborus [Multi/Ru]
 magnet:?xt=urn:btih:8CF503C82266899D603F4E61945B8D113D384371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ FBackup — это свободно распространяемое прогр�
 ```bash
 magnet:?xt=urn:btih:ADB75D1A4FAFF71D27AE00C2D85F36A12E7B8CBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ PowerISO - программа позволяет создавать, конве�
 magnet:?xt=urn:btih:83A8A9A336AF351FA282A88AD1F1AE089D91891A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Windows Privacy Dashboard (WPD) 1.4.1722 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:775DD2CB0ACD3FBD4600C39EC802CA8A70CF1E5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Bigasoft Audio Converter является простым в использова
 magnet:?xt=urn:btih:13B587CA24C68B738012F240D0341775FFA8F044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ W10 Digital License Activation - инструмент от Ratiborus для ак
 ```bash
 magnet:?xt=urn:btih:C3CEE02BA888168A3A2C068DFEABF15AA35321CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Auslogics File Recovery - легкая и эффективная в исполь
 magnet:?xt=urn:btih:43B86D4DBA80003684C519C845C69441B54436BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 ```bash
 magnet:?xt=urn:btih:67CC874011C687D0CB0E0E5C06FB24331FA3AB63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Futuremark 3DMark 2.16.7094 Developer Edition RePack by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:CCB1D8DDBBB7BA783FAC6641FD5DF8DDB6A921EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ FastFlix - это простой и дружественный графичес�
 ```bash
 magnet:?xt=urn:btih:A329F33921B440A3B4221C8CD0DB2855222B36D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Auslogics Disk Defrag Pro - это профессиональная версия
 magnet:?xt=urn:btih:75BF00DAA46A136702EAF8EB38066FFBCFCD9662
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:75BF00DAA46A136702EAF8EB38066FFBCFCD9662
 ```bash
 magnet:?xt=urn:btih:B992882E3E5CA869BC9512B6CFB8693E4C92FB08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 magnet:?xt=urn:btih:E4AEC9EAEA41A111CEA5D355ACCB3E94A7533CCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Comodo Dragon - быстрый универсальный браузер на б
 ```bash
 magnet:?xt=urn:btih:26E22273E63B1A67594B210BDA340EE8CDD96856
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ TweakPower – представляет собой единый графичес
 magnet:?xt=urn:btih:B8CB7E7B487A13C4FE61C715DBB12F2959B9A6DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ SketchUP Pro - является профессиональной версией 
 ```bash
 magnet:?xt=urn:btih:0EABF6C48CD01CF677763EC20EC12504EBCE6263
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Xilinx Vitis Unified Software Platform 2020.2 [En] (unpacked)
 magnet:?xt=urn:btih:239762691C628E85914A10E27B3CA64AE660F517
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Auslogics Duplicate File Finder поможет Вам избавиться от 
 magnet:?xt=urn:btih:B32038408181D3A6D73B09CBA9F36CA5EF7F8A2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ AAF DCH Optimus Sound Realtek Mod, аудио драйвер "всё в одно
 ```bash
 magnet:?xt=urn:btih:889DAD2FE0AADE615B914BD1A2F82C6BC69E83AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

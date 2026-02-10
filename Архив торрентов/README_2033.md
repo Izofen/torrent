@@ -19,6 +19,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:CBAD2177D71BA4C09DFCF1257A7EF7F2EEE01BC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Dead Cells v.1.5 (2018) [Multi/Ru] [macOS Native game]
 magnet:?xt=urn:btih:5858F230FF3E62192B6DC70C72FA137896BFE28B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Zentimo xStorage Manager - мощный менеджер для внешнего
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Zentimo xStorage Manager - мощный менеджер для внешнего
 ```bash
 magnet:?xt=urn:btih:F36A565EF84C86E21F669C0CEE0558723E0673E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ VA - Buddha-Bar XVIII (2016) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Lounge,
 magnet:?xt=urn:btih:7984B2CC84EFE355D6B76F75AF90353C188C4E6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:7984B2CC84EFE355D6B76F75AF90353C188C4E6F
 ```bash
 magnet:?xt=urn:btih:E6A0A0C7607D3E2F56976ED6F14318E51ABF4F79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Cyberfox 50.1.0 for AMD + Portable [Ru/En]
 magnet:?xt=urn:btih:9D0E21D554CA862D1213E231856D4EC6369115AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:9D0E21D554CA862D1213E231856D4EC6369115AE
 magnet:?xt=urn:btih:313B85F970B5CBC4256C92E7B4EBD71E724ABE27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ qBittorrent - бесплатный, мощный и удобный в работ
 ```bash
 magnet:?xt=urn:btih:EC95AB9F47FCC7A9BCB462424984BC7F9F96AF71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ iMazing: отличная альтернатива iTunes
 magnet:?xt=urn:btih:EF68E3F9A5F783A50AA15AFA28B76BF74BE3DD23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:EF68E3F9A5F783A50AA15AFA28B76BF74BE3DD23
 ```bash
 magnet:?xt=urn:btih:C853AF868443188D00F46A15738490CC5E637670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Pop Art Studio – простая в использовании графичес
 magnet:?xt=urn:btih:4C834CA41FEBE110033D68E5E1BA75D7CBDA352B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ ZD Soft Screen Recorder записывает все происходящее н�
 ```bash
 magnet:?xt=urn:btih:4D2BB9F5D430E13E9FF99DF4821415FF17121EB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:4D2BB9F5D430E13E9FF99DF4821415FF17121EB3
 magnet:?xt=urn:btih:72C2F5245BD419037540993553604161C0D32171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Vidiot 0.3.20 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4ED10FB2DDD886318D616D828C53D23A83A48B96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ O&O DiskImage Professional - программа позволяющая созд�
 magnet:?xt=urn:btih:6A871DDD87A2198E9575941F0984AFAB6EB6D917
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Comedy Woman (2017.12.01) SATRip
 ```bash
 magnet:?xt=urn:btih:E6B528D03A4F6A80D3A081E576A5FD37EB093507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Pixelmator Pro предлагает широкий спектр професси
 magnet:?xt=urn:btih:5A6D39C716759E916EA7E7C86683F002F6134F5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Waterfox — это браузер, основанный на исходном �
 ```bash
 magnet:?xt=urn:btih:3ECE6375E398BD57AE0D16CB1EF1CC2294D82A7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ LibreOffice — мощный офисный пакет, полностью со�
 magnet:?xt=urn:btih:BB31C7B92D5F5DA83C35CE3F6BDF0CE1346B09B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Ashampoo WinOptimizer - новая 7ая линейка пакета прогр�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Defraggler – программа для дефрагментации жестк
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ GetDataBack представлена в двух версиях. GetDataBack for
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Ashampoo Snap 11.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:A953C536806108EE7C1CCC10CE5E492C92C0F9FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:A953C536806108EE7C1CCC10CE5E492C92C0F9FE
 ```bash
 magnet:?xt=urn:btih:655DC8B6C6E5FB2AAEAB0775C1BE2648FF2AE494
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:655DC8B6C6E5FB2AAEAB0775C1BE2648FF2AE494
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

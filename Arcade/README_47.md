@@ -19,6 +19,8 @@ The Sexy Brutale принадлежит перу студии Cavalier Game Stud
 magnet:?xt=urn:btih:B1D92903BB45D0D11D971CE87A051A246A71AD7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Braid — это выполненный в живописном стиле пл�
 ```bash
 magnet:?xt=urn:btih:A6372D023C8DFF4AD712C2CCA81503D5A9103D87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sundered – ужасающая борьба за выживание и здра
 magnet:?xt=urn:btih:4A8B7EF4EB0D7C9124A648A2FD20ED9658E59D9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Hong Kong Massacre (2019) [En] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:3A7F7E808C152A4D0733D5CE2F3E664309A0989D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ SOULCALIBUR VI / SOULCALIBUR 6 (2018) [Ru/Multi] (01.10.01/dlc) Repack Other s [
 magnet:?xt=urn:btih:7FAB89FD918BA06E85431621B8CE6765192F4C4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ I and Me (2016) [En/Zh] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:66C89DBA47F57975D437A34AE89885CE18F867A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ SkyKeepers – 2D экшен-платформер, рассказывающий 
 magnet:?xt=urn:btih:973EF61693A129FF05441E6C3CE8E8C85F850B65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ CHUCHEL (2018) [Ru/Multi] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:43E90AA9A0C036D10E5073A105473E82A9E55F08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Fear Effect Sedna (2018) [En/Fra/Ge] (1.0) License GOG
 magnet:?xt=urn:btih:E35DBAA6B9F4BA33E73C2CFA2EB83D64E82140E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Beggar's Ride - увлекательный и неповторимый пл�
 ```bash
 magnet:?xt=urn:btih:0CFEB014B0538F852E7D640A1FFF5CF4263F5E92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ UTOPIA 9 - A Volatile Vacation (2016) [En] (1.0 u23) License PLAZA
 magnet:?xt=urn:btih:B69A082E431AA94A538A416DBE6A2F40E1C5030C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Hyposphere – аркадный платформер-головоломка с �
 ```bash
 magnet:?xt=urn:btih:28B7D91B45817CEBFBF1F96F67467E7FD3DEE975
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Otem's Defiance – аркадный инди-платформер, в кото�
 magnet:?xt=urn:btih:FCE1C50FF57E02F316AC0474686B2631B413CD9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Chicku это суровый и бескомпромиссный платфор�
 ```bash
 magnet:?xt=urn:btih:7CECC251F1A9297193786EEDA30DAA60DE2DEFCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Beggar's Ride – увлекательный и неповторимый п�
 magnet:?xt=urn:btih:6DDBD592A562A74958FF24E910722CAE553DB3C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Shadow Complex Remastered - это переиздание игры Shadow Comple
 ```bash
 magnet:?xt=urn:btih:199D0FC846A1CC8977A9A0C5F6DDA84C11342589
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Super Lucky’s Tale — весёлая и увлекательная платф
 magnet:?xt=urn:btih:8C2AD4C4828F14A9628C435C32DF48E602B913E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Bell Ringer – аренный платформер, в котором четы�
 ```bash
 magnet:?xt=urn:btih:22E9E988E1F434C5CCF69C14265226A84918052C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Rad Rodgers (2018) [Ru/Multi] (1.5.6511) Repack R.G. Catalyst
 magnet:?xt=urn:btih:807198DD8BA1BC214EF931A9054EED244FE0827B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Rad Rodgers (2018) [Ru/Multi] (1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:DD06EE73F41E583312272A011F17FD5A752894C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Guns, Gore and Cannoli 2 (2018) [Ru/Multi] (1.0.1) License RELOADED
 magnet:?xt=urn:btih:97D1B1743E0A3165A393EAAB8E90D7B86D3F32AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Injustice: Gods Among Us - новое слово в мире файтингов.
 ```bash
 magnet:?xt=urn:btih:9D0F6EF4D4C056A897155BFDE06E1BDA75E5E00C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ RUINER — это брутальный экшн-шутер, действие к�
 magnet:?xt=urn:btih:FCC8F837D9548394B0E2B42973A2A47D8A5120BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Dungreed (2018) [En/Co] (2.19) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C75BF07F37E618AD25169CB9D6DDE9FF9AD2F969
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Iconoclasts (2018) [Multi] (1.14) License GOG
 magnet:?xt=urn:btih:9477D194597909E1DB8449075600CAC037BD0FFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Rocket Knight [En/Multi5] (RePack) 2010 | -Ultra-
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

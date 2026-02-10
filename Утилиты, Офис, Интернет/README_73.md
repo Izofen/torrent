@@ -19,6 +19,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:D5F50C88740F1CBD2E43C414060355E3E43BF916
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 ```bash
 magnet:?xt=urn:btih:0604F5B49C093B16BE2CAE3B9CCF89160D3D5C83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NetLimiter - программа, решающая проблему контро�
 magnet:?xt=urn:btih:E5156E21E7C04DBEECA6F29234F5DFA25C6552F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:530F2A1AEDE2649734B6791CC80BAC9A7006E234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ MediaHuman YouTube Downloader 3.9.18 (2411) [Multi/Ru]
 magnet:?xt=urn:btih:9D77F43BA54C194552FDCAFEDFE441D987CA6440
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Far manager — бесплатный файловый менеджер с под
 ```bash
 magnet:?xt=urn:btih:DC0B3CB3E63CCFF46DDA6C6C71EEE143850E5872
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ R-Studio Network 9.5 Build 191645 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:60AECACE98E4235274893EB63090DBF39667C3AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ v2rayN — это универсальный инструмент VPN и про�
 ```bash
 magnet:?xt=urn:btih:B2D369EB24930A776E91359072EA6961CB7B19FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:E706A856A601A0C3B4AB9590F176820D84DF8946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:4782D2C39CF9785D4F8B6E2823F9D7CEF808CB4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ MediaHuman YouTube Downloader 3.9.18 (2411) RePack (& Portable) by elchupacabra 
 magnet:?xt=urn:btih:C9FD85DA30539FA4F768439FF5918A8537539318
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ OCCT 15.0.8 Portable [En]
 ```bash
 magnet:?xt=urn:btih:62E67148FDF44DA7BFB324FC5077544ACF112698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Clean Master for PC 6.0 Pro [En]
 magnet:?xt=urn:btih:5262AABA4226CA9EB6CF7BECBC197B7A8A0524DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Gihosoft iPhone Data Recovery – это простое в использова�
 ```bash
 magnet:?xt=urn:btih:25E02E72819EB42D2780234C8DABCA994B4F9A80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Advanced Port Scanner 2.5.3869 [Multi/Ru]
 magnet:?xt=urn:btih:029BB1E3E1E2B33809BB97F0129EDED027A1A5FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Scanitto Pro - это легкое, быстрое и не перегружен�
 ```bash
 magnet:?xt=urn:btih:4206DA10CA13136B117BDAE983E66BC3251CD2F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Abelssoft SSD Fresh - если вы счастливый обладатель SS
 magnet:?xt=urn:btih:167E13B2A69F1B8EDED647FC1BB3970C262CC9B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ CDBurnerXP - программа для записи CD и DVD, включая Bl
 ```bash
 magnet:?xt=urn:btih:B3DA3B30976676C6D1071BF2E98CA3A0D258FB37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Veritas System Recovery 2018 комплексное решение для рез
 magnet:?xt=urn:btih:F11371698DB67BEA5DC6B4D4768A437FA7862392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ ABC Backup - это простой в использовании инструм�
 ```bash
 magnet:?xt=urn:btih:C68C39C1FF35A23B78AD745625C181539E2BD4D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Makesoft DuplicateFinder - приложение, которое будет ос�
 magnet:?xt=urn:btih:DE1C6877EFF8145A9DCC310F8C512508DC2B89D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Total Mail Converter надежная программа для конверти
 ```bash
 magnet:?xt=urn:btih:96D6F92BBCC790880073527532BF705684038DE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Icecream PDF Editor 1.39 [Multi/Ru]
 magnet:?xt=urn:btih:9DC9493D54099D59B27BD546F656192C91A6D57D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Driver Talent Pro - программа для поиска и установки
 ```bash
 magnet:?xt=urn:btih:7FBBDD91F71ED5C0D5E9FB79399A0B134C1AE815
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ BurnAware Professional — компактная и простая в испол�
 magnet:?xt=urn:btih:FD90A25A8C782A16658D8C375CFFBA5141ABF376
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Document Express 8 Enterprise 8.0.36300.0 [En]
 ```bash
 magnet:?xt=urn:btih:262D19FD9F7F682A58D501A79E206E42667DB134
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

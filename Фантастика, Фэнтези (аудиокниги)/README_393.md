@@ -1,3 +1,30 @@
+###  Публикация: 526305   (598963) от 23.07.2012
+
+Михаил Гвор | «Ребёнки» пленных не берут [2012] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Постъядерный мир. Новосибирская разведгруппа, выдвинутая в поисках более пригодных для проживания земель, прибывает в Таджикистан, в ущелье Пасруд. И невольно эти два человека провоцируют большой передел земель, который давно назревал в расколотом на владения многочисленных баши Таджикистане. Начинается "Большая Таджикская война"...
+Где-то в этих неприступных вершинах Фан, скрываются родители, брат и сестра Бориса Юринова - некогда гроссмейстера а теперь старшего сержанта новосибирской десантной бригады. Он чувствует, что они живы и что они здесь..... Он прошел ради них тысячи километров. Удастся ли ему встретиться с ними ? Не придётся ли заплатить за это слишком большую цену?Жанр: Фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0388EBBAEDB29232EF2087D7A831A64B3F1C2809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038588   (599065) от 30.07.2016
 
 Константин Образцов | Красные цепи (2016) [MP3]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:11259D37EED9D08747E5F388184118277B9FEFF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:11259D37EED9D08747E5F388184118277B9FEFF2
 magnet:?xt=urn:btih:D7E193CAC2E48F42A0D44F0178AB06677CDFE6A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:D7E193CAC2E48F42A0D44F0178AB06677CDFE6A2
 ```bash
 magnet:?xt=urn:btih:F56802AD2B2BBFDEB7B5FEBB101B73C19B558D23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +127,8 @@ magnet:?xt=urn:btih:F56802AD2B2BBFDEB7B5FEBB101B73C19B558D23
 magnet:?xt=urn:btih:2C34229E5EE0642C2A499A142BEB13254B0BECD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +152,8 @@ magnet:?xt=urn:btih:2C34229E5EE0642C2A499A142BEB13254B0BECD6
 ```bash
 magnet:?xt=urn:btih:24B5C4A19EB0D26AD99278070FA98A086B56E459
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +181,8 @@ magnet:?xt=urn:btih:24B5C4A19EB0D26AD99278070FA98A086B56E459
 magnet:?xt=urn:btih:33CDB5484A747BA8D998D1C5BE37FEEE326A879C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +207,8 @@ magnet:?xt=urn:btih:33CDB5484A747BA8D998D1C5BE37FEEE326A879C
 magnet:?xt=urn:btih:3AA9CC76B71BFAD580C7A87D7BCDE45D371259A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +232,8 @@ magnet:?xt=urn:btih:3AA9CC76B71BFAD580C7A87D7BCDE45D371259A5
 ```bash
 magnet:?xt=urn:btih:F37650B200D1E27D947695AA5FAB16566A72D64B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +261,8 @@ magnet:?xt=urn:btih:F37650B200D1E27D947695AA5FAB16566A72D64B
 magnet:?xt=urn:btih:821577587AB0AB52F96EF412FD102806980D867E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +288,8 @@ magnet:?xt=urn:btih:821577587AB0AB52F96EF412FD102806980D867E
 magnet:?xt=urn:btih:685649EC4BFC22D3A8BA40BE31599B7E1DCDC193
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +313,8 @@ magnet:?xt=urn:btih:685649EC4BFC22D3A8BA40BE31599B7E1DCDC193
 ```bash
 magnet:?xt=urn:btih:1039E8CA6ACD780E5DFEB48A12D2A5CB4B8F9FC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +342,8 @@ magnet:?xt=urn:btih:1039E8CA6ACD780E5DFEB48A12D2A5CB4B8F9FC9
 magnet:?xt=urn:btih:40273083916F60404C748B7E57BA06CE16262875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +367,8 @@ magnet:?xt=urn:btih:40273083916F60404C748B7E57BA06CE16262875
 ```bash
 magnet:?xt=urn:btih:B42F02C3BAB74A0395F8359CA729CB46BABE3D9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +394,8 @@ magnet:?xt=urn:btih:B42F02C3BAB74A0395F8359CA729CB46BABE3D9B
 magnet:?xt=urn:btih:481F727E859A3EBA7322550C63A1E2B87B46BB85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +419,8 @@ magnet:?xt=urn:btih:481F727E859A3EBA7322550C63A1E2B87B46BB85
 ```bash
 magnet:?xt=urn:btih:542C6C48BA3EF9E92E0B1651FDE9931CA0A115A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +446,8 @@ magnet:?xt=urn:btih:542C6C48BA3EF9E92E0B1651FDE9931CA0A115A5
 magnet:?xt=urn:btih:19DB7176E7F194529D15D7C6774919F89D44DA57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +471,8 @@ magnet:?xt=urn:btih:19DB7176E7F194529D15D7C6774919F89D44DA57
 ```bash
 magnet:?xt=urn:btih:7B0A4AFA2835120B158559DB628E921525B406E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +498,8 @@ magnet:?xt=urn:btih:7B0A4AFA2835120B158559DB628E921525B406E9
 magnet:?xt=urn:btih:522C00A9E576C40B70422F5EF7484CA478CF8F45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +523,8 @@ magnet:?xt=urn:btih:522C00A9E576C40B70422F5EF7484CA478CF8F45
 ```bash
 magnet:?xt=urn:btih:D633ABDA3DA252BDBD295C87C70FA0274B81EF10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +550,8 @@ magnet:?xt=urn:btih:D633ABDA3DA252BDBD295C87C70FA0274B81EF10
 magnet:?xt=urn:btih:062C291365A6F636F7B1A3D2E2CD0AA7CE6D091B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +576,8 @@ magnet:?xt=urn:btih:062C291365A6F636F7B1A3D2E2CD0AA7CE6D091B
 magnet:?xt=urn:btih:00512A78B247A7957912C0ADF43CF600511FA32A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +601,8 @@ magnet:?xt=urn:btih:00512A78B247A7957912C0ADF43CF600511FA32A
 ```bash
 magnet:?xt=urn:btih:80849CB24C6D0BB0AC73AFE0EC6AF741A1246195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +629,8 @@ magnet:?xt=urn:btih:80849CB24C6D0BB0AC73AFE0EC6AF741A1246195
 magnet:?xt=urn:btih:FAC652D36FAF1CF09FD83D66320750A42D8699BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +654,8 @@ magnet:?xt=urn:btih:FAC652D36FAF1CF09FD83D66320750A42D8699BF
 ```bash
 magnet:?xt=urn:btih:923E3E3BCF9C963F926C161EC318855463CC3689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +681,7 @@ magnet:?xt=urn:btih:923E3E3BCF9C963F926C161EC318855463CC3689
 magnet:?xt=urn:btih:6DBB5EF99AAAA5696914AACFD392CC55084A1E2B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298254   (601868) от 27.04.2019
-
-Василий Орехов, Сергей Осипов  | Клеймо Зоны. [S.T.A.L.K.E.R.] (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ксанта Леженда и её друг, бывший морпех Денис Кузнец, прибыли в Чернобыльскую Зону отчуждения, чтобы разыскать брата Ксанты, сталкера Мута, бесследно исчезнувшего в районе Четвертого энергоблока атомной электростанции. Опытные проводники Москит и Пифа берутся сопровождать их за Периметр. Однако долго держать в тайне секретную спасательную операцию не удается: Мут (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 10:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55452AD0BB13B2BACFB9D4DDF344920330A112BC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:DB0DDB5C49E08E2CC1EC72F4E52777D67BCA5B34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kong: Survivor Instinct - это 2.5D экшен-платформер, дейс�
 ```bash
 magnet:?xt=urn:btih:515C70F6D69D02A623F492316BE6950A8BA97297
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:515C70F6D69D02A623F492316BE6950A8BA97297
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:515C70F6D69D02A623F492316BE6950A8BA97297
 ```bash
 magnet:?xt=urn:btih:AB4AE72442EE60F801A902E192A3A2D1DBB05C1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:AB4AE72442EE60F801A902E192A3A2D1DBB05C1C
 magnet:?xt=urn:btih:D22E26024282FB9695C5DB2BB032161F17E76517
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:D22E26024282FB9695C5DB2BB032161F17E76517
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:D22E26024282FB9695C5DB2BB032161F17E76517
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:D22E26024282FB9695C5DB2BB032161F17E76517
 ```bash
 magnet:?xt=urn:btih:E8803C19FBE11892F2859E4FC42E71EE635C123E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:E8803C19FBE11892F2859E4FC42E71EE635C123E
 magnet:?xt=urn:btih:585440809B708E23D2FE35E2CA757A9C80F39216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Auslogics SSD Optimizer - специальный инструмент, разр�
 ```bash
 magnet:?xt=urn:btih:D82FB3B5ECC6A5EE3B58C7DF921CBC3DCB5C65DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:D82FB3B5ECC6A5EE3B58C7DF921CBC3DCB5C65DA
 magnet:?xt=urn:btih:D40AF1BAFAFDF835C01A1E96221613F67E15E427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Clarky - Forever In Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Trance, Pop Tranc
 ```bash
 magnet:?xt=urn:btih:1AFCBD7D6140CD4FC9FA31122C8128B55E8194F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Babbba - Midnight walk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:A9B02CB3F00C5D03C8AAE8C6C24732BBC2B98210
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Babbba - Skat Academy III (part 2 by Babbba) (2024) [FLAC 24/48|Lossless|WEB-DL|
 ```bash
 magnet:?xt=urn:btih:1E9C9F8DF0A2A0BD00E242AC764E9C9D4247B441
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ The Jimmy Bruno Group - Midnight Blue (2001) Concord Jazz [FLAC|Lossless|tracks 
 magnet:?xt=urn:btih:8E187FF37FA3B3ED910DCD5764861F28B6B392EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ VA - Elliptical Sun Recordings 2024 (2024) [MP3|320 Kbps] <Trance, Progressive>
 ```bash
 magnet:?xt=urn:btih:68413736F93024ED5C72522DBD50EEB03488684E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ Babbba - Skat Academy III (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Inte
 magnet:?xt=urn:btih:0ECA8DB178AAAF5488710A0E0444D461790DE700
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:0ECA8DB178AAAF5488710A0E0444D461790DE700
 magnet:?xt=urn:btih:54B1573CF6A2F48A5902C24E2980F52AD9A90560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:54B1573CF6A2F48A5902C24E2980F52AD9A90560
 ```bash
 magnet:?xt=urn:btih:F0E846B039D547CEE46D1A7ABE8DB941D963C4A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ Tal Farlow - This Is Tal Farlow (1958) 1997, Verve Records [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:C93148FB287F06C535D988539FA90D4547F33D0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:C93148FB287F06C535D988539FA90D4547F33D0C
 ```bash
 magnet:?xt=urn:btih:D8F4BE463D2EE50CCF5F86E7561B8B67A074EA0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ Detectives United 7: Mission Possible / Лига детективов 7: Мис�
 magnet:?xt=urn:btih:D56686547595B1DD3FC61A9C66672556390BB817
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:D56686547595B1DD3FC61A9C66672556390BB817
 ```bash
 magnet:?xt=urn:btih:D4E9ED8A44C3F2E431E34586301A4D407F205DCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ InfoCity - Азербайджанский ежемесячный журнал о
 magnet:?xt=urn:btih:3526D7A8F1B0E05A4E381146E9EBBC23327F8FBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:3526D7A8F1B0E05A4E381146E9EBBC23327F8FBD
 magnet:?xt=urn:btih:A37FD31BB103A1C90E0FCD147536E644AB4FA4C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ Maze of Realities 5: Synergy of Worlds / Лабиринт Реальностей
 ```bash
 magnet:?xt=urn:btih:41C007218A204F2B251ABCFD044BD95CF2481558
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

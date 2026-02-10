@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:FA1EFC1EF09C41978DB21106B54573E6231007D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Windows 10 v22H2 19045.3086, включающая в себя 2 русских �
 ```bash
 magnet:?xt=urn:btih:690E6914BA662D7EEE96A23E40BA60F5AC5DEA2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ UNCHARTED: Legacy of Thieves Collection (2022) [Ru/Multi] (1.4.21058) Repack dix
 magnet:?xt=urn:btih:DBB61B3E826EE669AECEAA63334661CC332911F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Star Control: Origins (2018) [Ru/En] (1.62.9/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:FB36126A9B338A687505DCD5ADEFC68B34748F80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Windows 11 Pro 22H2 22621.1848 x64 by SanLex [Lightweight] [Ru/En] (2023.07.05)
 magnet:?xt=urn:btih:89641686C4472991595D620A2AACA333BCBB547F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:89641686C4472991595D620A2AACA333BCBB547F
 ```bash
 magnet:?xt=urn:btih:4B1C18A04DFDB2D17BA3B75B331E72D32519E32B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:4B1C18A04DFDB2D17BA3B75B331E72D32519E32B
 magnet:?xt=urn:btih:1F2E103097B6159EC3AA090FAD1F7812ADC45FAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:1F2E103097B6159EC3AA090FAD1F7812ADC45FAB
 ```bash
 magnet:?xt=urn:btih:7D73C514D893F2CD8F0507552FC3AA0393CB9E68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:7D73C514D893F2CD8F0507552FC3AA0393CB9E68
 magnet:?xt=urn:btih:D54B0466349C8C195366A98DBE51B0CA5DF5A825
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:D54B0466349C8C195366A98DBE51B0CA5DF5A825
 ```bash
 magnet:?xt=urn:btih:8B244782D05FD3635BE912D2461CC59BC55E6E0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Windows 10 2022 Update (под кодовым названием "22H2") это 
 magnet:?xt=urn:btih:3C565D111C5CBFB86A928911770C62A747017CE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Cерия "Библиотека инженера" от издательства 
 ```bash
 magnet:?xt=urn:btih:97028637A72BAB67B9451896F23D58C6216BC01A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:97028637A72BAB67B9451896F23D58C6216BC01A
 magnet:?xt=urn:btih:BFD2E4C4731771294D0D5042E70E21284F3E96B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (20230706_1126/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:0518D355AF919FDCB44B1BB6EB10448B89C49198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Microsoft® Windows® 11 x64 Ru 22H2 4in1 Upd 06.2023 by OVGorskiy
 magnet:?xt=urn:btih:C9B01772FFDD009782A75CDF18C5DC3886821264
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:C9B01772FFDD009782A75CDF18C5DC3886821264
 ```bash
 magnet:?xt=urn:btih:AE861A78AE012E817460EEB48FFF0E814B6F71F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:AE861A78AE012E817460EEB48FFF0E814B6F71F7
 magnet:?xt=urn:btih:18C56F3E380ACB0DCEF4EEE8C28E38A95A3A5054
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Windows 10 Pro 22H2 19045.3086 x64 by SanLex [Lightweight] [Ru/En] (2023.06.29)
 magnet:?xt=urn:btih:C717C50E2D8BF36DEC20B2E73E4E1A99E700C1C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:C717C50E2D8BF36DEC20B2E73E4E1A99E700C1C4
 ```bash
 magnet:?xt=urn:btih:7848D13C1070238DEB73C039D14D281A3A532845
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:7848D13C1070238DEB73C039D14D281A3A532845
 ```bash
 magnet:?xt=urn:btih:34314174B85B83E21F72C9E004437C5FAB4C0231
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ GoodbyeDPI 0.2.2. Launcher 6.0.0 [Ru]
 magnet:?xt=urn:btih:890DA5BF38CBAD707EE2D5437F128099770198EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:890DA5BF38CBAD707EE2D5437F128099770198EF
 ```bash
 magnet:?xt=urn:btih:0490CA95FEF276868E7C553ED8304CA057FBE2FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:0490CA95FEF276868E7C553ED8304CA057FBE2FF
 magnet:?xt=urn:btih:76177342F4184FF47713B2FBEBDFD737B66622CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Isekai de Cheat Skill o Te ni Shita Ore wa, Genjitsu Sekai o mo Musou Suru / Я 
 ```bash
 magnet:?xt=urn:btih:27E36DF77C267B1229C327D07F653952CEFDB1D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ Windows 11 v22H2 22621.1848, включающая в себя 4 русских �
 magnet:?xt=urn:btih:0FB9EFDFE1D120AC118A341518836126242E8DD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:0FB9EFDFE1D120AC118A341518836126242E8DD5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

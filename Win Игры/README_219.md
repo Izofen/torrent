@@ -19,6 +19,8 @@ Star Wars: Dark Forces Remaster был воплощен в жизнь коман
 magnet:?xt=urn:btih:6781E23EF04C56905C7297280D3E991B803FEBC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Inkulinati (2023) [Ru/Multi] (1.47.20/dlc) Repack FitGirl [Supporter Bundle]
 ```bash
 magnet:?xt=urn:btih:2AA20F1E412742E06AF865111B45B9FAC0BF3A47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Fossilfuel 2 забрасывает игроков в затопленный и�
 magnet:?xt=urn:btih:FE097DAFCD65F3D3B3DE7C42F2F390F34AF659F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Lost Legends of Redwall: The Scout Anthology (2024) [Multi] (1.0) Repack Fit
 ```bash
 magnet:?xt=urn:btih:6C7E59FEF515ED8D100FEAE2F493E0CA120F36EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Expanse: A Telltale Series (2023) [Multi] (1.09) License GOG [Deluxe Edition
 magnet:?xt=urn:btih:DF01E218AA3F16E86BFF873C82C50C111E5E707E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Myth of Empires (2024) [Ru/Multi] (1.7.6/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FBC477084BAEFCE44F6649B08447A18FD4A50D4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ DREDGE (2023) [Ru/Multi] (1.4.2/dlc) Scene Tenoke
 magnet:?xt=urn:btih:861A378197F454538B639B025CF8A6E044F99D28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Book Travelers 2: A Royal Story / Книжные странники 2: Коро�
 ```bash
 magnet:?xt=urn:btih:E29CE84C6A10FACC750935C040884854A457F92E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ My Lovely Daughter - симулятор алхимика, исследующий
 magnet:?xt=urn:btih:7E4691FB6A3AC7367E83D704043A9DC3BF38AE6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Dying Light 2: Stay Human (2022) [Ru] (1.15.1/dlc) Repack Other s [Reloaded Edit
 ```bash
 magnet:?xt=urn:btih:0DD356019D3D6F3E4804509467DDFC0DFACB39EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Seed of the Dead: Sweet Home переносит геймеров в сеттин
 magnet:?xt=urn:btih:2905BDA3BBF0E5983E149444F954C4CF660D3CB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Maze of Realities 4: Symphony of Invension / Лабиринт реальност
 ```bash
 magnet:?xt=urn:btih:6B24DE04ED0AC2D291524B5F9C268CC0D35C9FDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Ruff Ghanor предлагает игрокам стать на место од�
 magnet:?xt=urn:btih:439CE2B7EAC7FF9DD31969E58B38A36BF7D6A0CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Exanima (2015) [En] (0.9.0.5) License GOG
 ```bash
 magnet:?xt=urn:btih:42D308B4E48BAF872BC67006110C9F168879E8A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Besiege - это основанная на физике игра, в котор�
 magnet:?xt=urn:btih:AD857C408F1CE143DEE409F27341E35ACC2BCEF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Heretic's Fork представляет собой не вполне станд�
 ```bash
 magnet:?xt=urn:btih:49267F0FE52E7BE39B8BE24A6395B193C772488E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Lazaret - это напряженный психологический хорр�
 magnet:?xt=urn:btih:9CD9F2D71AC9043B89B04E524D3685C058727FA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Inkulinati (2023) [Ru/Multi] (1.47.20/dlc) Scene Tenoke [Supporter Bundle]
 ```bash
 magnet:?xt=urn:btih:62B2C79DCA13AF9BEB4DC5BF305E169CFB3ECECC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Firefrost - это пошаговая боевая игра о расчистк�
 magnet:?xt=urn:btih:AD56F204319E3BD7EA116A4FBF18A1E323D30366
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Solium Infernum - увлекательная пошаговая стратеги
 ```bash
 magnet:?xt=urn:btih:69C56B19CA0E8D87971647CCC2B507E1461B6E4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Singularity (2010) [Ru/En] (1.1) Repack dixen18
 magnet:?xt=urn:btih:4364E83102DFA836EC2BDC9603A6612B056C803F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Sons of The Forest - многопользовательский хоррор о�
 ```bash
 magnet:?xt=urn:btih:FD1AB88DE4386A6CFED1B940D8DE1FE9A41BB4C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Unseen Fears 6: Fortune's Consequence (2024) [En] (1.0) Unofficial [Collecto
 magnet:?xt=urn:btih:22C48D9B8FC63A34734982CCCCF0841A98566904
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Bandle Tale: A League of Legends Story погружает игроков в не
 ```bash
 magnet:?xt=urn:btih:0BA16FC4908FA827F6BA1777F34222EA1523A316
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ kumi Wars рассказывает об эпических приключени�
 magnet:?xt=urn:btih:1EE04E7E2593BCF4BF06EDB51447159916DCA760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Bandle Tale: A League of Legends Story погружает игроков в не
 ```bash
 magnet:?xt=urn:btih:1CF28CAE1AF562E5360EB51FF4742082B6FB6AFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

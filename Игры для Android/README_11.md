@@ -21,6 +21,8 @@ Mario Yoshis Island 1.0 [En]
 magnet:?xt=urn:btih:0F5C23DD3D8610C640B4B22AE893DA034FBC6195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Defense zone 2 HD 1.5.1 [Ru/Multi] + mod
 magnet:?xt=urn:btih:A5855128E513FE8914BF5FCFC5C3936F55438FE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Five Nights at Freddy’s: HW v1.0 [Ru]
 magnet:?xt=urn:btih:A6870859F21D770E04085E6AEE5A0E897FA8C1E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Deep Town: Шахтерская фабрика - кликер для Android-у�
 ```bash
 magnet:?xt=urn:btih:34827E5AA058DC4FD44027C4E413FAD73B24D7DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Path of Giants v2.2.0 [Ru]
 magnet:?xt=urn:btih:AC28AAD2573D9BD12F34BD90206112E88605BECA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Cover Fire 1.17.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:AB0D4F5BB1535DFA0D6CA4757DA711FEA2A66916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Earthworm Jim Eternity 1.3 [En]
 magnet:?xt=urn:btih:E8FEC04AD90EB366AD2A236D430434EBA6BC6886
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:E8FEC04AD90EB366AD2A236D430434EBA6BC6886
 ```bash
 magnet:?xt=urn:btih:C14CC467B6A39E5365E6F3A5375C484958F50949
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Sonic Back In Time 1.0 [En]
 magnet:?xt=urn:btih:5A1DF762992C224092CB5604DD30AAAB0BE20833
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ SimpleRockets 2 - полностью трехмерный космический
 ```bash
 magnet:?xt=urn:btih:4C73C7E87C240720B1B1666C3B2569FA6D48EBE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ FAR: Lone Sails  v1.27 [Ru/Multi]
 magnet:?xt=urn:btih:CC17FF0F4B7718AFF41DF0F1A03FBDDACCB16964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Aerofly 2 Flight Simulator v2.5.41 [En]
 magnet:?xt=urn:btih:7053AB466FB641ABD2EF787E523435D1E7F29001
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:7053AB466FB641ABD2EF787E523435D1E7F29001
 magnet:?xt=urn:btih:B32EF4CF8F76610B2346EA4DA19841BDADE87170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ NBA JAM by EA SPORTS™ 04.00.80 [En]
 ```bash
 magnet:?xt=urn:btih:F92790F0EDB8675F941A399313851225D6E26474
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Action Strike – это трехмерный онлайн шутер от пе�
 magnet:?xt=urn:btih:807C100CF08A0CC755A851458802B18E2F1BB87B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ Dig Out!: Короли подземелий 2.17.0 [Ru]
 magnet:?xt=urn:btih:61CD5BB303B60350477B2F365E4479A8EBA09486
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Sonic Lost Worlds 1.4 [En]
 ```bash
 magnet:?xt=urn:btih:3EABD1F659F628A9E801AAF84993A8DA52208911
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Sonic Mobius Evolution 1.4 [En]
 magnet:?xt=urn:btih:C8B6C900C6730EA8B0A3EEC0CEC35275CC79F369
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Assassin's Creed Pirates – игра на андроид, которая пос
 ```bash
 magnet:?xt=urn:btih:C286B5F8DEC8D38A68484ACE22453720E6E9CA40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ XCOM: Enemy Unknown - Легендарная Стратегия серии XCOM 
 magnet:?xt=urn:btih:19C039FA2571DC9D638EABE64A2EA4929832235F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ Doom: 1 и 2 части [En]
 ```bash
 magnet:?xt=urn:btih:ABBB3C805440CE430FD1A70D80BA02D32C7C31B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ FIFA 16 Ultimate Team - игровая студия «ELECTRONIC ARTS» внов
 magnet:?xt=urn:btih:58CE7B76030F199E238C75C765FD07EC9CA7C6F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Car Eats Car 3 v2.4 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:0C143ABC1E2573C101F7941D6AA60A48BEFB988A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Osmos HD 2.3.1 [RU/Multi]
 magnet:?xt=urn:btih:AE1FB84FD9625F30DAAFCDDD82555ADFCAFFEA25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:AE1FB84FD9625F30DAAFCDDD82555ADFCAFFEA25
 ```bash
 magnet:?xt=urn:btih:D9FB2BA68AB3E69B161ADC6DC51BBB3E29D2C160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +684,8 @@ Hungry Shark Evolution v8.0.6 [Ru]
 ```bash
 magnet:?xt=urn:btih:08A713AB6EE4DBBB247AB7BD3F2D1B15E4E12DF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

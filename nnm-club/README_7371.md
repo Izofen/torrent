@@ -22,6 +22,8 @@ Ugly Kid Joe - Rad Wings Of Destiny (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 magnet:?xt=urn:btih:14CAA5997027043EF4B010EA69E0F5872026C6F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Text Editor Pro 18.2.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:76869AF8BF0253B0F03D15BE6E55061E8A932496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:76869AF8BF0253B0F03D15BE6E55061E8A932496
 magnet:?xt=urn:btih:0C976A692C8FEE2EF190E20D3522C37CB40AD117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:0C976A692C8FEE2EF190E20D3522C37CB40AD117
 ```bash
 magnet:?xt=urn:btih:CA9F83E5C4D60D9620488DD54BF48A5CEEFAD889
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ AOMEI Backupper – программа для создания резервно�
 magnet:?xt=urn:btih:C97AD006F03C6A5DD7CCE87CCC0D57AEAC3BFD0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:C97AD006F03C6A5DD7CCE87CCC0D57AEAC3BFD0E
 ```bash
 magnet:?xt=urn:btih:C74F7208D62BCE31D509A36AF21E9F50032FD6E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:C74F7208D62BCE31D509A36AF21E9F50032FD6E5
 magnet:?xt=urn:btih:A7254F992084CF59527D6E706F5F8FB22B4ABE19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:A7254F992084CF59527D6E706F5F8FB22B4ABE19
 ```bash
 magnet:?xt=urn:btih:FA2126C08F16DC547A66E85470FE0A8F8255CA40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ SizeUp - управляем окнами приложений
 magnet:?xt=urn:btih:0F740E6B9374AA16293FFD57D91CA25B6BAB9520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:0F740E6B9374AA16293FFD57D91CA25B6BAB9520
 ```bash
 magnet:?xt=urn:btih:4387A452C48ACFD6F873412949058D72E9EBF51F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:4387A452C48ACFD6F873412949058D72E9EBF51F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:4387A452C48ACFD6F873412949058D72E9EBF51F
 ```bash
 magnet:?xt=urn:btih:02B7D34384928673D9F11DF81EFA4FA61256C68C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ VA - 100 Greatest Running Tracks (2020) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:66B0CEB34EAA45A69C58453ED9629E47F9C90546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Iron Allies - Blood In Blood Out (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Met
 ```bash
 magnet:?xt=urn:btih:6A4CB101EAF977A0DB41B6C47361C15AAC93A410
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:6A4CB101EAF977A0DB41B6C47361C15AAC93A410
 magnet:?xt=urn:btih:0370D5DC07F29E58CAD1B22FB6727A7C01D4D1B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:0370D5DC07F29E58CAD1B22FB6727A7C01D4D1B0
 magnet:?xt=urn:btih:7EBBDB33FA1FC0C70410971D549F141934666E18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Mirillis Action! v 3.8.0 [Multi/Ru]
 magnet:?xt=urn:btih:DCA49B25C0744EF658A5E321A08750A88D0F1016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:DCA49B25C0744EF658A5E321A08750A88D0F1016
 ```bash
 magnet:?xt=urn:btih:60DD4A3B5AA1A68692E95647271D0E055A0779E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:60DD4A3B5AA1A68692E95647271D0E055A0779E6
 magnet:?xt=urn:btih:3F561215B4265926F929EA607C1026458BC522D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:3F561215B4265926F929EA607C1026458BC522D9
 ```bash
 magnet:?xt=urn:btih:787B52FD964F045B5010FE6336E27D0D2319C144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ Savage - Love And Rain (2020) [FLAC|Lossless|tracks + .cue] <Electronic, Italo-D
 magnet:?xt=urn:btih:E2678FC0BAB4135F7E2AEB4D3CC0FB2C02F47C5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ Book of Unwritten Tales: Critter Chronicles является приквелом 
 ```bash
 magnet:?xt=urn:btih:155307BEDEF088D518DA3E5A9291A95B457B240B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +613,8 @@ Carthus - Images of Tyranny (2023) [MP3|320 Kbps] <Death Metal>
 magnet:?xt=urn:btih:FC802ABDFCA9C753B2A4ACDC1BC3DCAB29805BC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:FC802ABDFCA9C753B2A4ACDC1BC3DCAB29805BC1
 ```bash
 magnet:?xt=urn:btih:C0823FC090F010FC9CAB15AEA7E3895E96334D12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ Avantasia - A Paranormal Evening With The Moonflower Society (2022) [MP3|320 Kbp
 magnet:?xt=urn:btih:E70D8DB0137F9D63374F888C170DBEB1E1D4FE0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ GARRISON (Игорь Савосин) - Signal (2018) [MP3|320 Kbps] <Ambient, Ch
 ```bash
 magnet:?xt=urn:btih:194DBD927250C34D0A5A6E02A4766E3C21E9ECBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Marco Bakker - Opus (1987) A Tom Parker Project [FLAC|Lossless|image + .cue] <С
 magnet:?xt=urn:btih:DC1C205894289A71FA815784245F1619EC91CD78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Carlo Domeniconi: Trilogy
 ```bash
 magnet:?xt=urn:btih:4BB6F2CB04BE76B40AB3F83BC8E6784EDF23810D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Mozart - Sonata In C Major, K521
 magnet:?xt=urn:btih:5001A316639255A4724556A8750538A285DDD836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Buxtehude - Works for Organ (Masaaki Suzuki) (2010) [DST64 2.0, DST64 5.0|64(2,8
 magnet:?xt=urn:btih:799FD3D49AA455132BAACC91306E805A6506F977
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ J.S.Bach - Cantatas, Vol.48 (Bach Collegium Japan, Masaaki Suzuki) (2011) [DST64
 ```bash
 magnet:?xt=urn:btih:FB1CE3DC5B8F272D284688E8E9EC0B396E06F2AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +170,8 @@ Serenade G-dur KV 525, "Eine kleine Nachtmusik"
 magnet:?xt=urn:btih:254293180E8FA89547BBF8143F2BFB248762AF79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +198,8 @@ Annabel Parker - The New Classics (1994) A Tom Parker Project [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:C4F635CE73DD48FE3B07F1C888DAED37D85412C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +228,8 @@ Dirk Maassen - An Evening at Wilhelmsburg (2020) EP [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:2E7120B81508AD4E6C9658C848A4468155946B3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +256,8 @@ The New London Chorale - The New Amadeus Mozart (1997) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:301F9C0949DF704BE5486C60FE5886A04A54D7FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +286,8 @@ V.A. - Anita Meyer, Rob de Nijs, Amy Vanmeenen, Edward Reekers - The Commandment
 magnet:?xt=urn:btih:6F3049D6925782AA378B6F5294EAA39148B2EDDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +314,8 @@ The New London Chorale - Live In Concert (2012) A Tom Parker Project [FLAC|Lossl
 ```bash
 magnet:?xt=urn:btih:8B896DE38450B3CBFD3B05D8589E311C1480AC07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +344,8 @@ Lindsey Stirling - Artemis (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, C
 magnet:?xt=urn:btih:2495A82F7A8A90F12DC11209678FB9CC397A4991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +369,8 @@ Nicolo Paganini (1782-1840) The 6 Violin Concertos (3CD) [MP3|320 kb/s]<Classica
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +399,8 @@ David Garrett - Rock Revolution (2017) Deluxe Edition [MP3|320 Kbps] <Classical 
 magnet:?xt=urn:btih:4ED2D51761324C319CB4A6E5EFFB02736ACCF391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ Septet in E flat major, op.20
 magnet:?xt=urn:btih:067331F274A926CFFCF1CF74A0A86A9E98343345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ VA - Избранное (2007) [MP3|320]<Классика>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ Symphony No. 1 in D major ("Classical"), Op. 2
 magnet:?xt=urn:btih:EDADE3223EBBE4A7A62DB0993E795166B89A6685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ Rossini - Guillaume Tell (Lamberto Gardelli & Royal Philharmonic Orchestra) (201
 ```bash
 magnet:?xt=urn:btih:9C3BA58B860C59E36D1754389A4DC3831C567F1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ Ensemble for Piano and Violin No. 15 in E-Flat Minor, Op. 18: III. Adagio con mo
 magnet:?xt=urn:btih:D21EAF6EF2F1674C44FC8B369E856E49D3620C23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ BrunuhVille - Northwind (2015) [MP3|320 кб/с]<Neo-Classical, Instrumental, Ce
 ```bash
 magnet:?xt=urn:btih:981FC6E78FE7F9A13BFD4129F3F8EA5219261B16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ The New London Chorale - The Young Handel (1995) [FLAC|Lossless|image + .cue] <�
 magnet:?xt=urn:btih:9EE519883B21853ECD4E36189CB33C28B983033C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ VA - The Best 50 of Classical Piano (2022) [FLAC|Lossless|WEB-DL|tracks] <Classi
 ```bash
 magnet:?xt=urn:btih:5FEA18B3E2AAD2DE822C55F9A2A6CE7B9B39F037
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +657,8 @@ The New London Chorale - The Young Beethoven (1990) [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:79A54AE70485E329F9DE4868BF8924DB6AD56F1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +686,8 @@ Roman Ilyin - Pieces. Part 1 (2019) [MP3|320 Kbps] <Modern classical, ensemble, 
 magnet:?xt=urn:btih:68ADB8484E92DCFA641F38A84097C806001EB168
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +713,8 @@ magnet:?xt=urn:btih:68ADB8484E92DCFA641F38A84097C806001EB168
 ```bash
 magnet:?xt=urn:btih:7E1B18FAEAEF6507B5A9F8D702DD4F49F9A7425D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -693,6 +743,8 @@ Symphony No. 1 in D, D 82
 ```bash
 magnet:?xt=urn:btih:BB181E14C600AF3C1147653BF40D2CE68B0ADCE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Ziggurat - это неповторимое сочетание шутера от 
 magnet:?xt=urn:btih:9E052195330047DEAB7A52503A66658C141C318A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ SteamWorld Heist (2016) [PSVita] [USA] 3.60 [NoNpDrm] [License / DLC] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D2D39D47979AE3E221979F2DCCB1582619D1F2DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Command & Conquer 3: Kane's Wrath [rus] [PAL] (2008) [xbox 360]
 magnet:?xt=urn:btih:FD835246ABD4C343A47307B102079E40D8C6189B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Resident Evil Archives: Resident Evil Zero (2009) [Wii] [NTSC] 4.2 [Repack] [Ru]
 ```bash
 magnet:?xt=urn:btih:071D08691DCD727EBB6BF3B4D95C8E1F8C27F885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Resident Evil Archives: Resident Evil (2009) [Wii] [NTSC] 4.2 [Repack] [Ru]
 magnet:?xt=urn:btih:6F68C48D9797A3C27C47726F97AB2F2AA7E367BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ HELLDIVERS (2015) [PS3] [EUR] 3.30 [HEN] [Cobra ODE / E3 ODE PRO ISO / PKG] [Rep
 ```bash
 magnet:?xt=urn:btih:FB843869210AF32B96D4D4E70B952BBCE85F62BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Cursed Mountain (2009) [Wii] [PAL] 4.2 [Repack] [Ru]
 magnet:?xt=urn:btih:F5A97036E371B2AF05327EB2E72377731690E741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Fragile Dreams: Farewell Ruins of the Moon (2010) [Wii] [PAL] 4.2 [Repack] [Ru]
 ```bash
 magnet:?xt=urn:btih:9F676A45035B62FD50147D29B1B4865F913CB109
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Mario Kart Wii (2008) [Wii] [PAL] 4.2 [Repack] [Ru]
 magnet:?xt=urn:btih:838DADBDAB1050EECEA67BA8AE8F741F28DDEDB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Ghost Master: The Gravenville Chronicles (2004) [Xbox] [RegionFree] Freeboot [Li
 ```bash
 magnet:?xt=urn:btih:F387AB34453013E344C116D9F7965F2D212B7155
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Spec Ops: The Line - необычный кинематографичный шу�
 magnet:?xt=urn:btih:1401081F86296CC49280D6765BA20469F5C96218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Star Wars: The Force Unleashed - Ultimate Sith Edition (2009) [PS3] [USA] 2.76 [
 ```bash
 magnet:?xt=urn:btih:4519D24796BB5CC113E013CDB381BC800BE4B1DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ DOOM 3 BFG Edition (2012) [PS3] [EUR] 4.21 [Cobra ODE / E3 ODE PRO ISO] [Unoffic
 magnet:?xt=urn:btih:EB9CC40B05FE5D2A38C6C2684559BFC7D1567D55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ FIFA 21 - это очередная часть бесконечного футб
 magnet:?xt=urn:btih:26A40CF52F8D866192D0EB8971B3FCE6726DD8E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ Sorcery / Чародей (2012) [PS3] [EUR] 4.11 [Cobra ODE / E3 ODE PRO ISO] [L
 ```bash
 magnet:?xt=urn:btih:EE9768318CDA0A43076D10206844D33CB87203AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Star Wars: The Force Unleashed II (2010) [PS3] [EUR] 3.42 [Cobra ODE / E3 ODE PR
 magnet:?xt=urn:btih:765447517AB2D0C3AA5BDACEE9C74F8FE8F81212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Front Mission Evolved (2010) [PS3] [EUR] 3.40 [Cobra ODE / E3 ODE PRO ISO] [Unof
 ```bash
 magnet:?xt=urn:btih:B754777E43FFD737C4B8BB7619FA440B9F514AED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Motionsports Adrenaline (2011) [PS3] [EUR] 3.72 [Cobra ODE / E3 ODE PRO ISO] [Li
 ```bash
 magnet:?xt=urn:btih:87C8A7FDF8C2CDEB45A7FE681664B502FA09684B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Star Wars: The Force Unleashed II (2010) [PS3] [EUR] 3.42 [Unofficial] [En/Ru] R
 magnet:?xt=urn:btih:29C36C0361BE194279E38223AC0ECE14E2895EB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Batman: Arkham Asylum GOTY [PS3] [EUR] [En] [3.15] [Cobra ODE / E3 ODE PRO ISO] 
 ```bash
 magnet:?xt=urn:btih:B1E54290B496B61B3D2874BD0D4D30C7AF5F48BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Fairytale Fights представляет собой закрученную пр
 magnet:?xt=urn:btih:8165F3961F53349280032185A71B185A3AB7626E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Outland — это динамичный платформер, в котором 
 magnet:?xt=urn:btih:28C8ADAFEB988DCFD60EB258A9AF1A1791C3503F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Lost Dimension — это новая тактическая РПГ-игра ко
 ```bash
 magnet:?xt=urn:btih:F9A1A22280F4556E1AB4A08F7998AB289F752EA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:F9A1A22280F4556E1AB4A08F7998AB289F752EA6
 magnet:?xt=urn:btih:A8D7A3AA0D00A06CA6E4CE5C864A43E3A3B05D12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Alpha Protocol (2010) [PS3] [EUR] 3.15 [Cobra ODE / E3 ODE PRO ISO] [Unofficial]
 magnet:?xt=urn:btih:2967A102A85E01CB649421DBDE4F42245A0D0648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ ACE COMBAT ASSAULT HORIZON (2012) [PS3] [USA] 4.20 [HEN] [Repack] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:928048E3279154EAE2932BEE4B214B0A592FA1B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

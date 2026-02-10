@@ -19,6 +19,8 @@ Irix HDR Pro — это инновационный редактор на баз�
 magnet:?xt=urn:btih:BB942738CDC03C874FF2677A59C828F26B29C6FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ CorelDRAW® Graphics Suite — это полнофункциональный п�
 ```bash
 magnet:?xt=urn:btih:FFBB6FCCD9DB97AAB4B98668D1727E94EBD9770B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ DP Animation Maker 3.5.41 RePack (& Portable) by elchupacabra [Ru/En]
 magnet:?xt=urn:btih:00695E956FDFC904801AC557E3C0328373BE396E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Nik Collection by DxO 8.1.2 Portable by 7997 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:43BA7434B22E8C4D95D15E7D13B2CB484634A1D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Artweaver - это полнофункциональный инструмент �
 magnet:?xt=urn:btih:7F743CD6337294348646958B24CA643C76639860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Insofta Cover Commander позволяет создавать профессио
 ```bash
 magnet:?xt=urn:btih:3EEA0BBBDB205A2E93BDB223B88CB1B0637AB66F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 magnet:?xt=urn:btih:5CF18DF55C2357848B75CA8E08F46D637EE358B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ GIMP — это редактор, позволяющий работать со �
 ```bash
 magnet:?xt=urn:btih:8E948D57305B0002E983D55EC9ABF514046BB90C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:F7E75B640F90D4A47F6B4D5B07FC069B99539793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Franzis ZOOM #3 Pro 3.31.04132 Portable by Spirit Summer [Multi]
 ```bash
 magnet:?xt=urn:btih:4D5E49AAD4DC9BEABEC06611446D45502C90ACAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ CorelDRAW Graphics Suite 2025 26.1.0.143 (x64) RePack by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:C5E47D3AFA715F6BDEB85A902F8E44992E318581
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Adobe Photoshop Lightroom Classic 2025 14.4.0.8 (x64) Portable by 7997 [Multi/Ru
 magnet:?xt=urn:btih:C344BF17AC256815FBA04B36E4F1D7CDEDECD7D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ Skylum Aperty 1.4.0.1260 RePack (& Portable) by elchupacabra [Multi]
 ```bash
 magnet:?xt=urn:btih:F795015EBD0CB5F89CFE7540E2DDA3D3579E6A51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:F795015EBD0CB5F89CFE7540E2DDA3D3579E6A51
 magnet:?xt=urn:btih:F864CA08BFAC651E1642E4CBF9F34966DE19A005
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ GIMP — это редактор, позволяющий работать со �
 ```bash
 magnet:?xt=urn:btih:1E7786FA91D68474D9F54134703355853965FF9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ ON1 Photo RAW MAX 2025 — лучший редактор фотографий в
 magnet:?xt=urn:btih:C9F823220A297FAAE8949F316D4D91D38FA91D97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Paint.NET - Простой, но мощный и удобный редактор
 ```bash
 magnet:?xt=urn:btih:0812328B2182FB54B35C7D6D56BDC3466A527C9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Topaz Photo AI использует передовые алгоритмы иск
 magnet:?xt=urn:btih:8AA23953288CF1AABACB4E9C3E35F107955DFC24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Toon Boom Storyboard Pro - это профессиональное програ�
 ```bash
 magnet:?xt=urn:btih:AA97697624059FF839E72C57DF9BF496E8E546A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Inkscape – редактор векторной графики. Програм�
 magnet:?xt=urn:btih:CC161F64382B1F6F86D0FB7A0C5878F1A598BA46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Toon Boom Harmony — профессиональная программа для
 ```bash
 magnet:?xt=urn:btih:97C578396EEF2533706BBFAAF73476462D68A0E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Ashampoo Photo Optimizer 11.0.0.10 RePack (& Portable) by elchupacabra [Multi/Ru
 magnet:?xt=urn:btih:60252420249A0230884795B45E50D4FEFC7095CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:4F6E7FE357E5F7384B26FFF99C6E9C3E508740F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Adobe InDesign — профессиональный продукт для про
 magnet:?xt=urn:btih:61129116AEEBD267457F756658684E77CB37B7A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Adobe Photoshop 2024 - новая версия программы для обр�
 magnet:?xt=urn:btih:08943352B5C88790B942BC536B23732E90A0F5A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Adobe Photoshop 2024 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:1D006015BFE516A482F0D09380F9E397AE776E8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

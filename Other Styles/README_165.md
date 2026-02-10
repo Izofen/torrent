@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:8C086B3FF08AABA85A96486C95E66D4DA72F1FA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Jean Michel Jarre - Greatest Hits (2008) 2CD [APE|Lossless|image + .cue] <Electr
 ```bash
 magnet:?xt=urn:btih:413119B3D01A6CAF2AD025EE27A77C132E54DE5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Greg Maroney - 2 альбома (2003, 2005) [FLAC|Lossless|image + .cue] <New A
 magnet:?xt=urn:btih:EE69EA68568404CDFB9E3A10CAC7F5B9E248A004
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ American Indian Coalition - Native Spirit (2008) [MP3|320 Kbps] <Native American
 ```bash
 magnet:?xt=urn:btih:78B0E1359BECDC51CD357EEC001610117DF1DE0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Sacred Earth - Inyan (2005) [FLAC|Lossless|image + .cue] <Meditative, New Age, M
 magnet:?xt=urn:btih:B347BB57A7869DDDB9C688B7403AEA55D9F14C80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Tom Barabas - The Very Best Of (2004) Compilation [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:CDCED9E62D45D319BFD4A40A1FC247C39A5A3E5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Fionnuala Sherry - Songs From Before (2011) [FLAC|Lossless|tracks + .cue] <New A
 magnet:?xt=urn:btih:C30D78B9BF6135B6F0C6096668C5E976C38BC6E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Asha - Thunderheart (2016) [MP3|320 Kbps] <New Age, Contemporary Christian>
 ```bash
 magnet:?xt=urn:btih:F5A7E71DBF46E90FBE9A8689CD4829CADF2852E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Holly Davis - Animal Healing Workshop (2006) [FLAC|Lossless|tracks] <New Age>
 magnet:?xt=urn:btih:42EBF3A647C2AA48DABA4506140D5EFE35E6669F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:42EBF3A647C2AA48DABA4506140D5EFE35E6669F
 ```bash
 magnet:?xt=urn:btih:42498AC32BB5B0ABD0C270A9E0B544E2DD6A5300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:42498AC32BB5B0ABD0C270A9E0B544E2DD6A5300
 magnet:?xt=urn:btih:A9595C13C65D03205E6BAE235B266986D8A26630
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:A9595C13C65D03205E6BAE235B266986D8A26630
 ```bash
 magnet:?xt=urn:btih:18BC1E3DFCB01036BE79E84D07027C841E9419B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:18BC1E3DFCB01036BE79E84D07027C841E9419B6
 magnet:?xt=urn:btih:3D0F44E57FEB4A2EE1A2A8C68910889870A2369C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Gordon Giltrap - Pofacetilly (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:0689E485DBB663440A13621132DC035AE56B6784
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Paul Sills - Devas 2 - Ocean Spirits (2016) [MP3|320 кб/с] <New Age, Instrume
 magnet:?xt=urn:btih:3E11AA97565918A6F86927FED93DA2B133D25EA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:3E11AA97565918A6F86927FED93DA2B133D25EA2
 ```bash
 magnet:?xt=urn:btih:C896DA66C42CA7505DD3701D0823AD41B0822C59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Medwyn Goodall - The Portal (2016) [MP3|320 кб/с] <New Age>
 magnet:?xt=urn:btih:B1622B13A3207E4DC1298311357E5284ADE86509
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Guy Sweens - Pathways (2016) [MP3|320 кб/с] <New Age, Ethnic>
 ```bash
 magnet:?xt=urn:btih:C6203A7B3BC044442D6B7002EE2F6E84D83763BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ Jamie Dupuis - Tonalism (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumen
 magnet:?xt=urn:btih:A70690505EF0A1A79E682F6DD28E7A219D1415A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Amaste - Spirit of Tibet (2015) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:A89E0B165CD10BB5AB11804573AB418F5B5FE7B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Enya - Best Hits 1988-1994 (1996) Compilation, Unofficial Release [FLAC|Lossless
 magnet:?xt=urn:btih:149B07EAF96351542E643E349A2D0D41BFD816B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +631,8 @@ Era - The Essential (2010) [FLAC|Lossless|tracks + .cue] <Enigmatic, New Age>
 magnet:?xt=urn:btih:A65CA04F7357247B88F06FCE1C6DEFF8772EFCCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ Klaus Schulze & Lisa Gerrard - Farscape (2008) 2CD Digipack Edition [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:B182EFABAB79661B44ABA9AEA1BD6D735F25D4DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ Kathryn Kaye - There Was a Time (2016) [MP3|320 кб/с] <New Age>
 magnet:?xt=urn:btih:F00E89D4DE23783A30C35D8A99FC9B75E6C27517
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ VA - The Man from U.N.C.L.E. (Deluxe Version) (2015) [MP3|320 Kbps] <Soundtrack,
 magnet:?xt=urn:btih:23143FB811E23018290E3FD2740026C54F2598B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ Alexander Ryabtsev (Александр Рябцев) - Europe: Fantasy Vol. 13 (
 ```bash
 magnet:?xt=urn:btih:0356C33D89873FE4A28FB82A62AC2715082F058F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

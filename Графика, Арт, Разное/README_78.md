@@ -1,51 +1,3 @@
-###  Публикация: 1241608   (519210) от 18.08.2018
-
-Обои - Ultra HD 3840x2160 Wallpaper Pack 328 [JPG, PNG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519210.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка обоев на различную тематикуФормат: JPG, PNGРазрешение файлов: 3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A2E8ECE8E510A16F1EF71A549FC0220D3F9025F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241604   (519283) от 18.08.2018
-
-Обои - Wallpapers Full HD / Кошачьи #19 [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_519283.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник обоев на тему КошкиФормат: JPGРазрешение файлов: 1920x1080-3840x2160
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7859EED4C11C2CC4798EBFD59E02721B2AF0A5FD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927265   (519495) от 19.08.2015
 
 Картинки - Природа 2 [JPG]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:7859EED4C11C2CC4798EBFD59E02721B2AF0A5FD
 ```bash
 magnet:?xt=urn:btih:8478AD5423471F7ADDE0D8EADD4FB31C95B56716
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +45,8 @@ magnet:?xt=urn:btih:8478AD5423471F7ADDE0D8EADD4FB31C95B56716
 magnet:?xt=urn:btih:E3118920E4CC2BED6A5A8BC512839C68ADB57100
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +70,8 @@ magnet:?xt=urn:btih:E3118920E4CC2BED6A5A8BC512839C68ADB57100
 ```bash
 magnet:?xt=urn:btih:B63E46E02534486D453469E1F4F9D29F073A97FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +97,8 @@ Sci Fi Art. Ships and Mechs
 magnet:?xt=urn:btih:2CF5ED766EBD1102380EE8235B80BB1A6629DE69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +122,8 @@ Pin-up photographer Dan Russell
 ```bash
 magnet:?xt=urn:btih:DE697F3F671578408131805D7B9BF1CD602949F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +149,8 @@ magnet:?xt=urn:btih:DE697F3F671578408131805D7B9BF1CD602949F1
 magnet:?xt=urn:btih:BD916FEF08747774A2EC38A7125678A3809C0607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +174,8 @@ magnet:?xt=urn:btih:BD916FEF08747774A2EC38A7125678A3809C0607
 ```bash
 magnet:?xt=urn:btih:0C40BBE0791E9837D016412CBD72021841A8882B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +201,8 @@ magnet:?xt=urn:btih:0C40BBE0791E9837D016412CBD72021841A8882B
 magnet:?xt=urn:btih:9E030B2CD2A62F32608FF5C410188BBD5ADF71BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +226,8 @@ magnet:?xt=urn:btih:9E030B2CD2A62F32608FF5C410188BBD5ADF71BC
 ```bash
 magnet:?xt=urn:btih:3237E20913D8B1B99042659DEC4C7E10E658DDFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +253,8 @@ magnet:?xt=urn:btih:3237E20913D8B1B99042659DEC4C7E10E658DDFA
 magnet:?xt=urn:btih:B6B85BB0AA737D254EA064E91C104ED337310690
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +278,8 @@ magnet:?xt=urn:btih:B6B85BB0AA737D254EA064E91C104ED337310690
 ```bash
 magnet:?xt=urn:btih:9859D516468AA39EA40A717673AD4E731B9DD64C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +305,8 @@ magnet:?xt=urn:btih:9859D516468AA39EA40A717673AD4E731B9DD64C
 magnet:?xt=urn:btih:6FB0D2877542479BEDC45C9231B81FC032D1E832
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +330,8 @@ magnet:?xt=urn:btih:6FB0D2877542479BEDC45C9231B81FC032D1E832
 ```bash
 magnet:?xt=urn:btih:AF2D5DA2E8990E3E5EACF378DB144F2957052450
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +357,8 @@ magnet:?xt=urn:btih:AF2D5DA2E8990E3E5EACF378DB144F2957052450
 magnet:?xt=urn:btih:93F2A729F0E074362AA046C4B73EF75FECD5A374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +382,8 @@ Artworks by Digital Artists (04.08.2012)
 ```bash
 magnet:?xt=urn:btih:F4341503D67A530B4FDA5FA0B7E8D0C07CB2C6F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +409,8 @@ ArtWork: Sci-fi. Spaceship
 magnet:?xt=urn:btih:DC0FC89787B89CE1A456BE034C1CAF8FA915037C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +434,8 @@ magnet:?xt=urn:btih:DC0FC89787B89CE1A456BE034C1CAF8FA915037C
 ```bash
 magnet:?xt=urn:btih:0EE054C28A9EB9A5348230E83F33AA759560868F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +461,8 @@ magnet:?xt=urn:btih:0EE054C28A9EB9A5348230E83F33AA759560868F
 magnet:?xt=urn:btih:9AA523371CFE046384485560753B5BA59CDFCE67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +486,8 @@ magnet:?xt=urn:btih:9AA523371CFE046384485560753B5BA59CDFCE67
 ```bash
 magnet:?xt=urn:btih:48DBF0866478CA1511AE758E5063F948433295D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +513,8 @@ magnet:?xt=urn:btih:48DBF0866478CA1511AE758E5063F948433295D2
 magnet:?xt=urn:btih:DD2D1BBBD5CA588B35FBF194A0FBE2F4274D95D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +538,8 @@ magnet:?xt=urn:btih:DD2D1BBBD5CA588B35FBF194A0FBE2F4274D95D2
 ```bash
 magnet:?xt=urn:btih:BD09F8DBE91DCECBE372B818359DA4D71D478C1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +565,8 @@ magnet:?xt=urn:btih:BD09F8DBE91DCECBE372B818359DA4D71D478C1F
 magnet:?xt=urn:btih:8C7AF0DAA26718FFC8AA8D8AE0E13B1D69F56229
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +591,8 @@ magnet:?xt=urn:btih:8C7AF0DAA26718FFC8AA8D8AE0E13B1D69F56229
 magnet:?xt=urn:btih:4F4049656AE179C2B1170890059BB09A0B21E1F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +616,60 @@ magnet:?xt=urn:btih:4F4049656AE179C2B1170890059BB09A0B21E1F5
 ```bash
 magnet:?xt=urn:btih:06CACFBCB3B0478BEDCF67DB6F0F94A664872F81
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928167   (523237) от 15.08.2015
+
+Картинки - Landscapes / Пейзажи [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цветочные поля, луга, горные долины, водопады и др. природные ландшафты.Формат: JPGРазрешение файлов: 1920х1080 — 7360х4912
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE63CA2B8B395E19630B3D7FEBA6DB141728C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927254   (523245) от 15.08.2015
+
+Картинки - Пейзажи [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_523245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Картинки с пейзажамиФормат: JPGРазрешение файлов: 1680x1120 - 17100x5000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:774C554B9261BD28ECE23C43965B354D6A78E633
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

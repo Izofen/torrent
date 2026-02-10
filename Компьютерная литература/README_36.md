@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3113AB507098C73936980FF3CB8B3BCDB4971715
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Entity Framework радикально упрощает доступ к данн�
 magnet:?xt=urn:btih:5EFD36933CE8E6F3FEB134FFEFF30E5400C30042
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Dr. Nilesh Bhaskarrao Bahadure | Python for Everyone: Learn and polish your codi
 ```bash
 magnet:?xt=urn:btih:2CD78FAD090862F95405B447485A7D8B7BB9025E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ This handbook provides a hands-on experience based on the underlying topics, and
 magnet:?xt=urn:btih:7B700030FADCAC6291808DBC0D4C1CDBE9C2A103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Ethereum — окно в мир всемирных децентрализова�
 ```bash
 magnet:?xt=urn:btih:42C7B970DAA0F3DBC427DFE35DC8433C0A172C5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:42C7B970DAA0F3DBC427DFE35DC8433C0A172C5D
 magnet:?xt=urn:btih:AF5DBEBEB9CC2A2B39F1F9E54BA42F6FCFCB8736
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Thomas Theis | Getting Started with Python (2024) [EPUB, PDF] [EN]
 magnet:?xt=urn:btih:827814A96E2FE855FCCF9B49F1F07064516EA123
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ In the rapidly evolving landscape of technology, the convergence of Artificial I
 ```bash
 magnet:?xt=urn:btih:3B4795FFDDB9EDE4090EAC25DF9DF7E83D9074D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Raspberry Pi Pico 2 joins Raspberry Pi 5 in this, The Official Raspberry Pi Hand
 magnet:?xt=urn:btih:CC16D63EA9DA16EFFF156825A508B1598F714ED4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ The Official Raspberry Pi Handbook 2026 is packed with all the information begin
 ```bash
 magnet:?xt=urn:btih:E2B7AF51D15F25D9EACAE1FCB0613C1A5F5CB4FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ The most popular programming language for controlling electronics on a Raspberry
 magnet:?xt=urn:btih:31AE9DF9361D833AFDA2734D4C4AF7751813C821
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ What (   Читать дальше...   )Жанр: Компьютерная л�
 magnet:?xt=urn:btih:0403F2FC8D7902A90B27ABE9523E69946CE32D19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:0403F2FC8D7902A90B27ABE9523E69946CE32D19
 ```bash
 magnet:?xt=urn:btih:B70B3C585A08D26289B86DCAE6596CBAA2AF6E8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ AdrianK | The UI Professional's Design Manual (600+ pages and free bonuses) (202
 magnet:?xt=urn:btih:F24EF275DA183BB501ED0CCEC101758954620D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:F24EF275DA183BB501ED0CCEC101758954620D37
 ```bash
 magnet:?xt=urn:btih:3C9733D20EC33BAD8EC9148822B0C515BCB28EB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:3C9733D20EC33BAD8EC9148822B0C515BCB28EB5
 magnet:?xt=urn:btih:DADB7CA2BDDCF3DFC0EC1A4F12DA67FAA4953BF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:DADB7CA2BDDCF3DFC0EC1A4F12DA67FAA4953BF2
 ```bash
 magnet:?xt=urn:btih:7D8F134E3E352C06F095E4F3B8FA2822BCD9D310
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:7D8F134E3E352C06F095E4F3B8FA2822BCD9D310
 magnet:?xt=urn:btih:F8BD1695440C6ED105C8BA2BACEB53CC68AF7B4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:F8BD1695440C6ED105C8BA2BACEB53CC68AF7B4F
 ```bash
 magnet:?xt=urn:btih:F5A33D2EF9C373F48672FD6260FFF5E991019EE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:F5A33D2EF9C373F48672FD6260FFF5E991019EE8
 magnet:?xt=urn:btih:A8C4B6A8AB917EED1C66ED3A9B59F9B8CA90429A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:A8C4B6A8AB917EED1C66ED3A9B59F9B8CA90429A
 ```bash
 magnet:?xt=urn:btih:CFE03601B3EDFE01105A626DD9A9F37AB1E9FD56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:CFE03601B3EDFE01105A626DD9A9F37AB1E9FD56
 magnet:?xt=urn:btih:B1FE697FF1468A52C0F83D20933F6AE2164BBC37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Jan Newmarch, Ronald Petty | Network Programming with Go Language: Essential Ski
 ```bash
 magnet:?xt=urn:btih:C6DEE4EE386FAF324EBBCB59D9BAF0435DCA307C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:C6DEE4EE386FAF324EBBCB59D9BAF0435DCA307C
 magnet:?xt=urn:btih:D8F99B260B67A67141E0A05F126E22AA6345CA17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:D8F99B260B67A67141E0A05F126E22AA6345CA17
 magnet:?xt=urn:btih:66657A97730BF6AE56FB06B7790F1BCDCDB2EC7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:66657A97730BF6AE56FB06B7790F1BCDCDB2EC7D
 ```bash
 magnet:?xt=urn:btih:5BB02F460E4804C383A62BEC4DDD046F63853B7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

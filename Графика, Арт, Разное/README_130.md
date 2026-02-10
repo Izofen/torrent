@@ -1,51 +1,3 @@
-###  Публикация: 1102335   (890735) от 09.02.2017
-
-Классическое искусство - The Art of Harley Brown [JPG]
-
->>Графика, Арт, Разное
->>Классическое искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Харли Браун (Harley Brown) - американский художник, родился в Канаде в 1939 году. В раздаче собраны работы, изображающие американских индейцев пожилого возраста - в основном вождей, а также детей - девочек-индианок.Формат: JPGРазрешение файлов: от 600х824 до 2356х3319
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D34D8927C03D04895459EAA71C83A8DC6605AC8F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494219   (890873) от 06.09.2021
-
-Картинки - Цап-царап #3 [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_890873.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка картинок кошки.Формат: JPGРазрешение файлов: 1920x1079-1920x1920
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EAE9C536B02CE48DC9B8BC09D00FA2255F9DF88
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494216   (890897) от 06.09.2021
 
 Картинки - Цап-царап #2 [JPG]
@@ -66,6 +18,8 @@ magnet:?xt=urn:btih:4EAE9C536B02CE48DC9B8BC09D00FA2255F9DF88
 ```bash
 magnet:?xt=urn:btih:AE40084A9F527A4D047C3C1CBD7C6AC4BFEDF609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +45,8 @@ magnet:?xt=urn:btih:AE40084A9F527A4D047C3C1CBD7C6AC4BFEDF609
 magnet:?xt=urn:btih:3DDF567443E873E0015BBE6DDA5F5E5DDEA21E3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +70,8 @@ magnet:?xt=urn:btih:3DDF567443E873E0015BBE6DDA5F5E5DDEA21E3E
 ```bash
 magnet:?xt=urn:btih:BFE6DC5EB4BB446AA870FA7A037EF6A02A32C106
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +97,8 @@ magnet:?xt=urn:btih:BFE6DC5EB4BB446AA870FA7A037EF6A02A32C106
 magnet:?xt=urn:btih:8E06C84CFF5EF9471C85F3F167D0707206EA8DDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +122,8 @@ magnet:?xt=urn:btih:8E06C84CFF5EF9471C85F3F167D0707206EA8DDA
 ```bash
 magnet:?xt=urn:btih:8D956BE41F734E74E22E789FE3188A0FF15E0348
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +149,8 @@ magnet:?xt=urn:btih:8D956BE41F734E74E22E789FE3188A0FF15E0348
 magnet:?xt=urn:btih:436266844959C31F4BEEBFEDE2E44F4CF98DDFD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +174,8 @@ magnet:?xt=urn:btih:436266844959C31F4BEEBFEDE2E44F4CF98DDFD4
 ```bash
 magnet:?xt=urn:btih:90107D0B820E4B11A554EB2DBCAB7CAD49265484
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +201,8 @@ magnet:?xt=urn:btih:90107D0B820E4B11A554EB2DBCAB7CAD49265484
 magnet:?xt=urn:btih:957230286466E0A0934659DDD0948CFBF7E9D7B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +226,8 @@ magnet:?xt=urn:btih:957230286466E0A0934659DDD0948CFBF7E9D7B1
 ```bash
 magnet:?xt=urn:btih:E8E150ADFD4E3C8D592626626EFE086844EE30C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +253,8 @@ magnet:?xt=urn:btih:E8E150ADFD4E3C8D592626626EFE086844EE30C7
 magnet:?xt=urn:btih:52FDCBC600C426A1040969D7524313EC53F2CB98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +278,8 @@ Wallpapers - Мария Шарапова [JPG]
 ```bash
 magnet:?xt=urn:btih:DD6AA4691CA015008D1799F7B4FB9D0F89FD2FEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +306,8 @@ magnet:?xt=urn:btih:DD6AA4691CA015008D1799F7B4FB9D0F89FD2FEB
 magnet:?xt=urn:btih:015908939F16E08A927CD6A26071248FAB74464F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +332,8 @@ magnet:?xt=urn:btih:015908939F16E08A927CD6A26071248FAB74464F
 magnet:?xt=urn:btih:1C02F740CE87B476B5E676099374F2559C4B016A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +357,8 @@ magnet:?xt=urn:btih:1C02F740CE87B476B5E676099374F2559C4B016A
 ```bash
 magnet:?xt=urn:btih:1987FCCC0045106EE4B5E9A60C8ADB69DE84E010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +385,8 @@ William Acheff является известным американским ху
 magnet:?xt=urn:btih:FEDA630EC22D4A16924002402E27F8A7CC70C5A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +411,8 @@ magnet:?xt=urn:btih:FEDA630EC22D4A16924002402E27F8A7CC70C5A6
 magnet:?xt=urn:btih:2F768FCDC683956D1EC05EEE7820EFA9872171B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +436,8 @@ magnet:?xt=urn:btih:2F768FCDC683956D1EC05EEE7820EFA9872171B3
 ```bash
 magnet:?xt=urn:btih:7464B08AE40023CF618B4702DFE3901D10FC5D2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +466,8 @@ magnet:?xt=urn:btih:7464B08AE40023CF618B4702DFE3901D10FC5D2C
 magnet:?xt=urn:btih:8243B73C3F2007D449563CE55CFADD25A77996CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +492,8 @@ magnet:?xt=urn:btih:8243B73C3F2007D449563CE55CFADD25A77996CD
 ```bash
 magnet:?xt=urn:btih:6E0274209813B2E0E080137DFC0E8B3F74BD69DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +520,8 @@ magnet:?xt=urn:btih:6E0274209813B2E0E080137DFC0E8B3F74BD69DC
 magnet:?xt=urn:btih:7CA878F4BEB7169E5C03D8519CE7BB7DC98C2DE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +546,8 @@ magnet:?xt=urn:btih:7CA878F4BEB7169E5C03D8519CE7BB7DC98C2DE6
 magnet:?xt=urn:btih:1CB93C405930899BFFDBD12BAB45DC92A1D32EAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +571,8 @@ magnet:?xt=urn:btih:1CB93C405930899BFFDBD12BAB45DC92A1D32EAB
 ```bash
 magnet:?xt=urn:btih:C852AABF50AEB1DF73D74AE57F2FA940914CE392
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +601,8 @@ Wallpapers - Подборка Обоев Весна [JPEG]
 magnet:?xt=urn:btih:E4567EC1EEDD28CED304D26DDDABEA239609A598
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +626,62 @@ magnet:?xt=urn:btih:E4567EC1EEDD28CED304D26DDDABEA239609A598
 ```bash
 magnet:?xt=urn:btih:6F16DA146601DF03E244CE5264A40BF4BE7F35F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992350   (902420) от 01.03.2016
+
+Обои - LIFEstyle News MiXture Images. Wallpapers Part 920-923 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902420.jpg" />
+</div>
+
+
+###  Подробнее
+
+Известная серия в сети качественных обоев на различную тематику для Вашего рабочего стола.
+В данный пак вошли выпуски из серии 920-923.Формат: JPGРазрешение файлов: 1680x1050 - 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48F2C89CE3BF0EBA2FA435796B8D358A1F61AC58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992339   (902498) от 01.03.2016
+
+Обои - Computer Desktop Wallpapers Collection 1447-1451 [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_902498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Довольно известная серия в сети качественных обоев на различную тематику для Вашего рабочего стола.
+В данный пак вошли выпуски 1447-1451.Формат: JPGРазрешение файлов: 1680x1050 - 3840x2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89CA088C59AF5CBF56B64F03E98BB09245656958
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

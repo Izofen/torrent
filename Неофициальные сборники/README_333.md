@@ -1,3 +1,38 @@
+###  Публикация: 529992   (562678) от 02.08.2012
+
+VA - Моя женщина. Песни для души (2012) [MP3|256 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_562678.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Тимур Темиров - Моя женщина (4:27)
+ 2. Виктор Петлюра - Фотоснимок (4:12)
+ 3. Михаил Михайлов И Татьяна Михайлова - Мы Верили В Любовь (3:47)
+ 4. Гарик Кричевский - Не Виновата (5:22)
+ 5. Демидыч - Золотая Рыбка (4:08)
+ 6. Анатолий Корж - Алена (3:22)
+ 7. Елена Ваенга - Фиолетовая Тень (3:25)
+ 8. Ирина Круг - Не жалею (5:22)
+ 9. Елена Ваенга - Курю (5:36)
+ 10. Денис Майданов - 1000 Лет (4:00)(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:20:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69CE96CE750623652A152198D20A02806EB56CD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923729   (562703) от 01.08.2015
 
 VA - TOP July (2015) [MP3|320 кб/с]<Electronic, Lounge, Pop, Deep>
@@ -21,6 +56,8 @@ VA - TOP July (2015) [MP3|320 кб/с]<Electronic, Lounge, Pop, Deep>
 ```bash
 magnet:?xt=urn:btih:C87F6EB18450D8218531A7391225F690B646FD6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +86,8 @@ VA - Beautiful Jewels of Lounge Music (2015) [MP3|320 кб/с]<Chillout, Lounge,
 magnet:?xt=urn:btih:E5E10323F1CCF69C3BB2F9010C706622BF3B2F88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +115,8 @@ VA - Ibiza Poolside (2015) [MP3|320 кб/с]<House>
 magnet:?xt=urn:btih:B722208CF45FC5E57BB3A7DE12CF066C3A05FFD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +143,8 @@ VA - Unknown 80's (part VIII) (2017) [MP3|320 Kbps] <Electronic Pop Rock, Synthp
 ```bash
 magnet:?xt=urn:btih:058E70651E2F53BA572C478658EFD421415D0D44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +179,8 @@ CD1:
 magnet:?xt=urn:btih:CF2FC9E010779792CF43A4A75DD7846CDEFB6088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +207,8 @@ VA - Night Party (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:07AB0F4F1E3763FAAC9D54BE67B1C52A97E55A23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +237,8 @@ VA - Need For Speed Vol.8 (2017) [MP3|320 Kbps] <Hands Up, Dance>
 magnet:?xt=urn:btih:FC3A1715F3C6053DC4FC7F79AD0E28EDEA7E66B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +265,8 @@ VA - Самый Реальный Бит в Твоё Авто (2017) [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:465737C0AECB64C2F4A7AF85966E1DA2BB22DC9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +295,8 @@ Lana Del Rey - The Essential Collection (2019) [MP3|320 Kbps] <Dream-pop, Indie,
 magnet:?xt=urn:btih:A19C362916807404C94815784BF1DC9667810D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +324,8 @@ VA - Emerald Island: Chillout Area (2017) [MP3|320 Kbps] <Downtempo, Chillout, L
 magnet:?xt=urn:btih:38760003220AC2462667D4CA23A932509E0FD0A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +352,8 @@ VA - German Top 100 Single Charts 24.07.2017 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:49F2B8B6F2B01FC5ED84D84F2D39C317A670420C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +388,8 @@ VOLUME 1
 magnet:?xt=urn:btih:86F1301624AB84A1F28AB32C4A6C1162B9DDE0FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +416,8 @@ VA - Club Dance Ambience Vol.155 (2018) [MP3|320 Kbps] <House, Progressive House
 ```bash
 magnet:?xt=urn:btih:15491D562A8DD61FF5054CB48AEFF3CEDD9DF64D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +446,8 @@ VA - MuviItalo Vol.6 (Extended Version) 3CD (2016) [MP3|128-320 Kbps] <Italo-Dis
 magnet:?xt=urn:btih:3E1A25114B3405F34F70C1BEB685A8CEEB3C9B44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +474,8 @@ VA - Дальнобойные и убойные на Шансоне. Верси�
 ```bash
 magnet:?xt=urn:btih:174616FB5F89A52B38B9626A69049016349BC14D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +504,8 @@ VA - Summer Hit Party (2016) [MP3|256 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:E7D33A63AAF4D0A11E55D8EC318211EF32280849
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +532,8 @@ VA - Radio DFM Top D-Chart Май 2019 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:1A84590B1512BAE43B9C98853B02FE3875EC2266
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +562,8 @@ VA - Disco Cruiser Invasion (2016) [MP3|308~320 Kbps] <Pop, Disco, Eurodance>
 magnet:?xt=urn:btih:578052AF8F0C91EFF5BAB03C5EE8A517826EF373
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +590,8 @@ VA - German Top 50 Official Dance Charts 29.08. (2016) [MP3|320 Kbps] <Dance>
 ```bash
 magnet:?xt=urn:btih:A5FA8D32DD61AE11ED8F030212DEDAF11C4FC80D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +620,8 @@ VA - Minimal Lighters (2016) [MP3|320 Kbps] <House, Tech House, Deep House, Elec
 magnet:?xt=urn:btih:6FE0CABD273765A5902641541174AC7986AEE9BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +648,8 @@ VA - Guitar Track - Instrumental Collection by Pop-Music Vol.1 (2018) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:C2A13A0506328264B0CEBBC63DAD905B107A5ED7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +678,8 @@ VA - Guitar Track - Instrumental Collection by Pop-Music Vol.2 (2018) [MP3|320 K
 magnet:?xt=urn:btih:79A8A93E1CF7FF52BCC7FC4BB1C79C359B399669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +706,8 @@ VA - Record Super Chart 588 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 ```bash
 magnet:?xt=urn:btih:D1748BE3BD58ED16001F90736BC3D376C0E866CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +736,8 @@ VA - Летний популярный музыкайф. Зарубежный с
 magnet:?xt=urn:btih:DAC13F85436EAD53FC9DD2B3C4523983C8125C8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,38 +765,7 @@ VA - Chill Out Essentials - Formentera (2015) [MP3|320 кб/с]<Disco, Deep, Sou
 magnet:?xt=urn:btih:4A70780E1547378D681EE5FDB81A643D4FDC4B68
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529590   (564716) от 01.08.2012
-
-VA - Шедевры инструментальной музыки #32 (2012) [MP3|256 кб/с]<Instrumental>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_564716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fausto Papetti - Life Is Life
- 02. Edward Simoni - Abendstille
- 03. Alex Bollard & LSO - Radar Love
- 04. Bill Douglas - Flow Gently, Sweet Afton
- 05. Tom Barabas - Reach for Your Dreams
- 06. Gandalf - A Place in the Sun
- 07. 3rd Force - You Gotta Be Real
- 08. Wonderful - Tonight
- 09. Paul Mauriat - Mrs Robinson
- 10. Lazerdance - Moon Dusk(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 06:09:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A55689D069751C01CDAAB95C023B0D25D2AE6A85
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,32 @@
+###  Публикация: 1043427   (572991) от 16.08.2016
+
+VA - Ibiza House Hits Island Stars (2016) [MP3|320 Kbps] <House, Progressive, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_572991.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dimitri Vegas & Like Mike  -  A While (Ummet Ozcan Remix)  4:32
+002. Tiesto  -  Lethal Industry (MegaMen Remix)  6:11
+003. Bob Sinclar  -  Someone Who Needs Me (Kryder Remix)  5:08
+004. Fritz  -  Payday  5:20(   Читать дальше...   )Жанр: House, Progressive, ClubПродолжительность: 09:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:321C952509D44854304DD3C68FBBDE6E674B20DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043335   (572995) от 16.08.2016
 
 VA - Show Me Love Vol. 1 (The Ultimate Love Compilation) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -21,6 +50,8 @@ VA - Show Me Love Vol. 1 (The Ultimate Love Compilation) (2016) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:D4D4FD2F03808E11B8C1224E32E2490519949626
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +79,8 @@ VA - La Terraza The Magic Of Lounge & Chill House Vol. 1 (2016) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:2F4C36D209574FEE41735EE2E070959961D46877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +115,8 @@ VA - Сборник медленных хитов Vol.9 (2012) [MP3|320 кб/с]
 magnet:?xt=urn:btih:2F41640BCCF67D81EC8A6B41863D73EA2D0067F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -105,6 +140,8 @@ VA - Прости Меня, Мама (2011) [MP3|256 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:46E479C24C419CE08B9A3AB286559A6EA53FDDAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +176,8 @@ VA - Esthetics Lounge Vol. 6 (2012) [MP3|320 кб/с]<Lounge, Easy Listening>
 magnet:?xt=urn:btih:89A90D934AD3F553F4C36DCC43D4EA165967E5AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +204,8 @@ VA - My Favourite Hits of 1977 (16CD) (2015) [MP3|320 кб/с]<Easy Listening, C
 ```bash
 magnet:?xt=urn:btih:A7F720E3D5AA6DC8F87C79AEF0D0AC0C8ED5EA68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +234,8 @@ VA - Рок впрок (2015) [MP3|320 кб/с]<Rock>
 magnet:?xt=urn:btih:7AB6A40313FEF1FC5193855CF21F93C27163CA50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +259,8 @@ VA - VIP Абсолютно Танцевальный (2011) [MP3|256 kbps]<Pop, 
 ```bash
 magnet:?xt=urn:btih:22407C47F9447448CE4A276E198BCE90A9BB9938
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +289,8 @@ Madonna - Hits Box Collection (2015) [MP3|226-294 кб/с]<Pop, R&B, Jazz, Dance
 magnet:?xt=urn:btih:4324BD6E04C559E0B3F7610C14C4B67F30F9EE44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +317,8 @@ VA - Chill Out Instrumental Hits (2015) [MP3|320 кб/с]<Downtempo, Chillout, L
 ```bash
 magnet:?xt=urn:btih:49F4412FFABB7ED50138D46F952A4C010E468B69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +347,8 @@ VA - Oceanic Chill Out 30 Great Chill Out Selection (2015) [MP3|320 кб/с]<Dow
 magnet:?xt=urn:btih:71C25C8908E5DA3385266B31B4451974F4919E03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +375,8 @@ magnet:?xt=urn:btih:71C25C8908E5DA3385266B31B4451974F4919E03
 ```bash
 magnet:?xt=urn:btih:366526F1F53612D9F3D170EC6B48C4791FBFA0C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +405,8 @@ magnet:?xt=urn:btih:366526F1F53612D9F3D170EC6B48C4791FBFA0C6
 magnet:?xt=urn:btih:BAC6A426536CD1B044910EF26C3B026A247F12AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +433,8 @@ Paul Sills - Awake and Dreaming (2015) [MP3|320 кб/с]<New Age>
 ```bash
 magnet:?xt=urn:btih:8F4EA5BCF853257FA6440818A0DF058A7042F5CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +463,8 @@ magnet:?xt=urn:btih:8F4EA5BCF853257FA6440818A0DF058A7042F5CF
 magnet:?xt=urn:btih:A39B9967315E19003B383F7EF5474675060AED3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +491,8 @@ VA - Best Of 90s (Revisited) (2016) [MP3|320 Kbps] <EuroDance, Synth-pop, Electr
 ```bash
 magnet:?xt=urn:btih:37C79E4EA416D76F954466A0992E3DFA1AC2F2C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +521,8 @@ VA - Club Dance Ambience Vol.82 (2016) [MP3|320 Kbps] <House, Progressive, Dance
 magnet:?xt=urn:btih:E0CC09E98F63AEE744DEAB850949EA3C0104D527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +546,8 @@ Lokee feat Pearl Andersson - Losing My Religion (2018) Remix [MP3|320 Kbps] <Dee
 ```bash
 magnet:?xt=urn:btih:5F4DCCDF9939CC04C424EB63B8D1C5D5E10F238F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +576,8 @@ VA - 100 Best Rock Hits (2012) [MP3|320 кб/с]<Rock, Hard Rock>
 magnet:?xt=urn:btih:8F365AACE6F6E6357232B695263A844A9CB07C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +604,8 @@ VA - 100 Hits Dance 2015 (2015) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:19BF4B3897BA218AE77CB6B39C3F7A87FFB14380
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +634,8 @@ VA - Весенний Коктейль (2014) [MP3|320 кб/с]<Classic Rock, Ha
 magnet:?xt=urn:btih:9A0958138A8A57DDAEACDCF13C1E675CBFEF6E48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +662,8 @@ VA - Chillout - 100 Original Hits (2015) [MP3|320 кб/с]<Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:692A95422CD84573A700548F8820AB6CEA5B139B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +692,8 @@ VA - Mystic Adventures: Balearic Downtempo (2016) [MP3|320 кб/с] <Downtempo, 
 magnet:?xt=urn:btih:0977E41BDD0AC872200CFF776419CF7E0654D403
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +720,8 @@ VA - Vocal Trance Collection Vol.3 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:010EFBCB0A5042E9BB048BA064D099F739BB9FCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,32 +750,7 @@ VA - Italo Disco Hits Vol.13 (2017) [MP3|320 Kbps] <Italo Disco>
 magnet:?xt=urn:btih:DCAC360D559CAA8B5688CF73222944C36F72F92C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042888   (574240) от 15.08.2016
-
-VA - We talk only blues! vol.2 (2016) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_574240.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Latvian Blues Band - How I Want To Be
-002. Janis Joplin - Work Me, Lord
-003. Gary Moore - Oh Pretty Woman
-004. Tom Waits - Whistlin' Past The Graveyard(   Читать дальше...   )Жанр: BluesПродолжительность: 07:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67DFF8D6E67D0D05D97795C784DD2B277437CAF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

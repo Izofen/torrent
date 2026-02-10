@@ -19,6 +19,8 @@ Druidstone: The Secret of the Menhir Forest (2019) [Ru/En] (1.2.12) License GOG
 magnet:?xt=urn:btih:2C818AF17F4BEE92786DFB4DC2BB1840A2D85DDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Age of Wonders III (3) (2014) [Ru/Multi] (1.802fix/dlc) License GOG [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:672327902A329B12E96F93716BCA443B076C70CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Company of Heroes (2006) [Ru] (1.0) License
 magnet:?xt=urn:btih:9046736EE59AA7F218454902333AAE2C307B4EBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Majesty 2 Collection (2011) [Multi] (1.5.356/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:316283A7E2E430B264599F687984E80C952637F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Patrician III - это экономическая стратегия. Вы - о�
 magnet:?xt=urn:btih:56159AFD8ACB47563776A69F8B2360110AA0A222
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Darkest Hour - самостоятельное дополнение для игр
 ```bash
 magnet:?xt=urn:btih:F4003095AC7369DCD82A6BFAAF68BECCF6D11B0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Legion Arena: Cult of Mithras / Легионы Рима: Культ Митры (
 magnet:?xt=urn:btih:78152529C43D3A3F2F9BCED16C391330A318034F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Castle Strike (2004) [Ru] (1.2) Repack Necros
 ```bash
 magnet:?xt=urn:btih:17675A70AFD6069E2009300EB91D7A0B2D84CF56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ A Total War Saga Thrones of Britannia – самостоятельная нез�
 magnet:?xt=urn:btih:5D0B2A850C3B219D8C0FB377B2F66E3427BAC4BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Galactic Civilizations III – самая глобальная игра-песо
 ```bash
 magnet:?xt=urn:btih:87B513A2517B01F69F84359446373E97480FF748
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Total Control (RePack) [Ru] 1995 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Rival Realms (P) [Ru] 1998
 ```bash
 magnet:?xt=urn:btih:85BCA4CE2ACFA04AF79A5EF8EE7F9506D127CD98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Defender of the Crown (1986) [En] (1.0) License GOG
 magnet:?xt=urn:btih:C285383C620FA0AC446D0C7FDAE169FC2272C38C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Warcraft III (2002) [Ru] (1.29.2/dlc) Repack Necros
 ```bash
 magnet:?xt=urn:btih:26DB5CEA5236B946E46DCBE69E74B10FB4BD27A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Age of Wonders: Planetfall (2019) [Ru/Multi] (1.4.0.4c/dlc) License GOG [Premium
 magnet:?xt=urn:btih:A45AC9E8824F65CFF343453E86F0EEF1E032AD17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Prime World: Defenders (2013) [Ru/Multi] (1.3.3041.0/dlc) Repack R.G. Механ
 ```bash
 magnet:?xt=urn:btih:340FCD6CDB914F210302AF8B7AFD69CCFC17ED7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.330/dlc) Repack Necros [De
 magnet:?xt=urn:btih:291684C10EBB03DAE568D09DC895771848193C56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Total War: Three Kingdoms - эта игра из популярнейшей ст
 ```bash
 magnet:?xt=urn:btih:2D6222CC7AAE3126B7C300681E9F1259495F562E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ ZEPHON - постапокалиптическая 4X-стратегия от а�
 magnet:?xt=urn:btih:F24570854118F167160BD2AD9E391A15237C124F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Diplomacy is Not an Option (2024) [Ru/Multi] (1.0.98) Repack Necros
 ```bash
 magnet:?xt=urn:btih:908DDEE3D86BC8CD3B8D565FB73C532A7367A39E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Crusader Kings 2 [Ru/En] (RePack/1.05e) 2012 | R.G. Catalyst
 magnet:?xt=urn:btih:D4004645071869987F625F503A2E11103EC42425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Iron Harvest - это стратегия в реальном времени (RTS
 ```bash
 magnet:?xt=urn:btih:305708CE3DC964AC9019E24AF18AD6A354046E87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Hearts of Iron IV (2016) [Ru/Multi] (1.17.0.1/dlc) Repack Necros
 magnet:?xt=urn:btih:64D71A78718F07E80B5048A22F6CE8C5C652482D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ Defenders of Ardania – игра в стиле «tower defense», действ�
 ```bash
 magnet:?xt=urn:btih:AD2210F03F94C12E60EE303B168CC25401225E1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Earth 2160 / Земля 2160 (2005) [Ru/En] (1.3.8) License GOG
 magnet:?xt=urn:btih:CF510175DE3C65F8A54B0505AC734FD5CEFF493F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Earth 2150: Moon Project / Земля 2150: Дети Селены (2000) [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:C0779862D112A93B833FA704D3E968E719049E57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

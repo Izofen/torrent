@@ -22,6 +22,8 @@ Brad Fiedel - The Terminator / Терминатор (Original MGM Motion Picture
 magnet:?xt=urn:btih:50F8C30A5FAEE09CDAB6B54ACD973506B981C43D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Beatmakers - 4 альбома (2008 - 2014) [MP3|224 - 320 кб/с]<Guitar, Beat
 ```bash
 magnet:?xt=urn:btih:FF414FCD78CF4246A59D487924AB18710EE8BEFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Relaxing Music (Humphrey Robertson) - Relaxing Music Vol. 1-2 (1992) [MP3|256 Kb
 magnet:?xt=urn:btih:64F9FF2629F3FFFE68A67BC5FEAA8A22DD26F42F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Majestica - In the Midst of Stars (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:87EA06B98590BE3DE3F900B0F22C0554AEB65205
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Mark Dwane - Ufology (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, New Age>
 magnet:?xt=urn:btih:F78AD9FE89CF8687A3B40E64C37AC0535D03141A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ Jupiter Panic - Distant Tomorrow (2016) [FLAC|Lossless|WEB-DL|tracks] <Electroni
 ```bash
 magnet:?xt=urn:btih:8A654E08D41DCAF8927B984947A82DE84B059997
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Mark Dwane - Ufology (2016) [MP3|320 кб/с] <New Age>
 magnet:?xt=urn:btih:FFDD4AE10542E298046EF8900CE1255928D779ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ Tom Eaton - Abendromen (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
 ```bash
 magnet:?xt=urn:btih:125678EB9A59A4F941E1BCB3551B3050C3A588AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +257,8 @@ Anugama - 19 albums (1986 - 2000) [MP3|320 kbps]<New age>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +285,8 @@ Kavin Hoo - Chi: Music for Balance & Relaxation (2011) [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:F749E95BBABA092B4FE33AB77465A4DE373C353E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +315,8 @@ Micki Free - The Native American Flute As Therapy (2016) [MP3|320 Kbps] <New Age
 magnet:?xt=urn:btih:A387A52E2DF2066CA7080EA27E6D4E3057AFD15F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +343,8 @@ Thomas Wander & Harald Kloser - Independence Day: Resurgence / День неза
 ```bash
 magnet:?xt=urn:btih:141DD01A18545DCDEEADBBFBB95DC3DD665B83DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +373,8 @@ VA - The Nice Guys / Славные парни (Original Motion Picture Soundtra
 magnet:?xt=urn:btih:7D61DD6A0689687CF3CA7132470A89EA9FE3FA35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +401,8 @@ Thomas Wander & Harald Kloser - Independence Day: Resurgence / День неза
 ```bash
 magnet:?xt=urn:btih:8DDF1AB3B561099579F9175035136A542893C1F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +431,8 @@ Robert Miles - Child of Dream (2001) Bootleg [FLAC|Lossless|image + .cue] <Tranc
 magnet:?xt=urn:btih:C9BAB1CA6859BF6CEFE3CFCB56701A1769471E42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +459,8 @@ Damien Dubois - L'instant sacré (2018) [MP3|320 Kbps] <New age, Relax>
 ```bash
 magnet:?xt=urn:btih:B62521898AED1196A9ADA6D06C56C949C3D0B4CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +489,8 @@ Sverre Knut Johansen - Secret Space Program (2017) [FLAC|Lossless|WEB-DL|tracks 
 magnet:?xt=urn:btih:E4CF244B3E908C2DFD3E1966ABDDB08CCF2DDD57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +517,8 @@ Medwyn Goodall - The Sorcerer's Daughter 2 (2017) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:7268A50A3EAB972982755A15935EB6DAE1C35E9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +547,8 @@ Parijat - Blessings (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
 magnet:?xt=urn:btih:3A3B98262CF4D2E8651C9D81210569BFE474F962
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +575,8 @@ Peru - Constellations (1989) [FLAC|Lossless|tracks + .cue] <New Age, Synth-pop>
 ```bash
 magnet:?xt=urn:btih:AF285F95A3C80E5E43C03D919501AB9CD51A0AF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +605,8 @@ CD1
 magnet:?xt=urn:btih:4E87C6BE7954A4749352712D37FE98C41E888F59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +633,8 @@ Cris Velasco - Clive Barker's Jericho (2007) Soundtrack [MP3|~245 Kbps (V0)] <Sc
 ```bash
 magnet:?xt=urn:btih:F75E737FFDDFD727EB7564C784B0F89F819C364D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +663,8 @@ Pam Tillis - Homeward Looking Angel (1992) [FLAC|Lossless|tracks + .cue] <Folk, 
 magnet:?xt=urn:btih:8920FEFA2BD2335C89DB4242852CAE6E62DDEACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +691,8 @@ Hans Zimmer & Junkie XL - Batman v Superman: Dawn Of Justice / Бэтмен пр
 ```bash
 magnet:?xt=urn:btih:A9DE33AA3018E7306E791535A573B88BBE885392
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +721,8 @@ Thomas Newman - Finding Dory / В поисках Дори (Original Motion Pictu
 magnet:?xt=urn:btih:0C728B895B0797A921083FB96EE41D8716E8B43C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ John Ottman & David Buckley - The Nice Guys / Славные парни (Origina
 ```bash
 magnet:?xt=urn:btih:B7C3E580776AB4719E290A3672AA33D9CA439196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

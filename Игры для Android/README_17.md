@@ -19,6 +19,8 @@ Turbo Grannies: Вялотекущая и скучная жизнь в доме 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Cogs — это игра-головоломка, в которой вы стро
 ```bash
 magnet:?xt=urn:btih:AF7DD0037F0329417948B50054F8092EFD219BF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Mind Games Pro / Игры ума v2.5.4 [Ru/Multi]
 magnet:?xt=urn:btih:B89F44748B440012BE37868228FA580DA12807A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Contra - Hard Corps 1.0.0 [En]
 ```bash
 magnet:?xt=urn:btih:55C65609B1AA0EB21B53F8414689A7B642DF5AD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Sonic The Hedgehog 3 это третья часть известной игры 
 ```bash
 magnet:?xt=urn:btih:08442FC6A070322DE6E95BA50E097C5F386A0668
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:08442FC6A070322DE6E95BA50E097C5F386A0668
 magnet:?xt=urn:btih:707D339D22383352970183F3CC613F3B37813AD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Ultimate Mortal Kombat™ 3 — это игра жанра файтинг из �
 magnet:?xt=urn:btih:BCFD3DC8D04DDDB183C8253EF12880706A0F6BF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Om Nom Run / Ам Ням Погоня v1.07 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:FF0521F7B5E27B6FE0CE7D258C11C506960C2A38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Dino Puzzle v2.7.3 [Ru/En]
 magnet:?xt=urn:btih:EC9674512B81D5E67399018A5CDCBCE9581F4346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ American & British Academy. ABA English [Ru/En]
 magnet:?xt=urn:btih:48D0BE6092E60410B89AE796C94396723FB920E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Door Kickers: Action Squad - это сумасшедший скролл-шуте
 ```bash
 magnet:?xt=urn:btih:131DA65A634FE210CA8205DBDCA1FB7C2762AE20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Chess King - Шахматные курсы v 0.9.6 - 0.9.7 [Ru/En]
 magnet:?xt=urn:btih:BB94620EE65001C0D262B0651BB5194D9707A4BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:BB94620EE65001C0D262B0651BB5194D9707A4BC
 ```bash
 magnet:?xt=urn:btih:941779BCE2AF50935ADFD61BA856918C62D18A54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:941779BCE2AF50935ADFD61BA856918C62D18A54
 magnet:?xt=urn:btih:71E322A1752A5AA2693CDAB8392E8BD0DB048752
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Fallout Shelter — мобильная видеоигра, разработан�
 magnet:?xt=urn:btih:BE64118D098E189E29CD7C2A94431C6A85268206
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Very Little Nightmares - приключенческая игра с элемен
 ```bash
 magnet:?xt=urn:btih:F237C4D9D6C1DB787C85710D039E2C91B052A251
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ LIMBO - мультиплатформенная компьютерная игра
 magnet:?xt=urn:btih:5CBEB37C53C63CA3BC9FE7B871BD48C107FF9502
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Hungry Shark VR - В этой игре вы сможете побывать на
 ```bash
 magnet:?xt=urn:btih:E680132C14917BE592E9F347AEC3D4B5F85DD2BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Star Wars: KOTOR – вот уже четыре тысячи лет идет в�
 magnet:?xt=urn:btih:23BBCA35362EA5A25578E61EF441196B1A14EEA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ PC Creator - PC Building Simulator – отличный симулятор на 
 ```bash
 magnet:?xt=urn:btih:75DD35135C50FFBB81C7FB4CA870FD81B5D12F93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Star Wars: Rivals - шутер, разработанный специально 
 magnet:?xt=urn:btih:90A1F299B550BE008921506E66EFF0BEB4DFD9D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ LEGO Star Wars Microfighters – гонки на андроид, где вы б�
 ```bash
 magnet:?xt=urn:btih:779B8FB96EE49A384C0FF09092D9C04986A99E36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Progressbar95 — это оригинальная ностальгическая
 magnet:?xt=urn:btih:41F94E4B05116375B70B0FE0A54BFF88C816A61F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ HERETIC GODS - Ragnarök - классическая изометрическая
 ```bash
 magnet:?xt=urn:btih:005E35AA9DA119B69FFDAD5EF4395D1BB9793811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ SEN: Seven Eight Nine -  интересная многоуровневая иг�
 magnet:?xt=urn:btih:B8C8BB11EEB6803F287D40D553D89BED450BE689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Hungry Shark Evolution на Андроид - новая страница в иг
 ```bash
 magnet:?xt=urn:btih:516138937FC7D8E39CDC58FB97A67B53A772D881
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

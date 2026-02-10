@@ -19,6 +19,8 @@ Hellish Quart – реалистичный файтинг с использов�
 magnet:?xt=urn:btih:0BBD1E6D4155DE46F573C50E294425072AA6652F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:0BBD1E6D4155DE46F573C50E294425072AA6652F
 ```bash
 magnet:?xt=urn:btih:FF6A34FB522E1FB2EF8BC08E6E848BF87E2A31CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Death Roads: Tournament погружает юзеров в гоночные со
 magnet:?xt=urn:btih:AA8259DAD234F91426E4845069244F412BDAB338
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:AA8259DAD234F91426E4845069244F412BDAB338
 magnet:?xt=urn:btih:38B53649FE23D65A9F454F8B852C5BAA99E9AD14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:38B53649FE23D65A9F454F8B852C5BAA99E9AD14
 ```bash
 magnet:?xt=urn:btih:4EA62AC3CD9F2366BAF730E5DDC611C909836F82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Triumph - 16 Albums (1976 - 2015) 25 CD [FLAC|Lossless|tracks + .cue|image + .cu
 magnet:?xt=urn:btih:D849015917A3645302566982D74A2A905B9B3AA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Lies Of P была вдохновлена знаменитой историей 
 ```bash
 magnet:?xt=urn:btih:33554350970772CE8DE6849C87FC3D14BFF25EA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:33554350970772CE8DE6849C87FC3D14BFF25EA2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:33554350970772CE8DE6849C87FC3D14BFF25EA2
 ```bash
 magnet:?xt=urn:btih:283A1ACA054BF9448E15DEAA2D0234E46776F167
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:283A1ACA054BF9448E15DEAA2D0234E46776F167
 magnet:?xt=urn:btih:29FDA4356FB142DE4A8CFE0757D0F4CCF0BF6747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:29FDA4356FB142DE4A8CFE0757D0F4CCF0BF6747
 ```bash
 magnet:?xt=urn:btih:F879D0071F58E42C70D83E5878EE7A064C51AFE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Captain Blood / Приключения Капитана Блада (2025) [Ru/Mu
 magnet:?xt=urn:btih:218891BBC7FFA6C0D70324B325987CA520C32B10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ LiveClasses, Антон Мартынов | Обзор возможностей D
 ```bash
 magnet:?xt=urn:btih:3DC4F909E607607B0785F2B867B6ACE94742B42E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ We Are Not Alone (2024) [En] (1.9.5.1) License GOG
 magnet:?xt=urn:btih:49239A213C40B3D2CDB8407027A7EAC4B6216F21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:49239A213C40B3D2CDB8407027A7EAC4B6216F21
 ```bash
 magnet:?xt=urn:btih:76C1021DD0BE36A4D4E73B48653011ECAAD8B9AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Albert Collins (1 октября 1932 - 24 ноября 1993) - американ
 magnet:?xt=urn:btih:A01815568A9E913B8FDE984D085B0DD4D220A254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:33D7E7EBA2C75133E45F4CB9CE80326BFA1E37CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:33D7E7EBA2C75133E45F4CB9CE80326BFA1E37CD
 magnet:?xt=urn:btih:04A4F48539CADDFDE9FF21329AE3BCE57A404BA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:39DD106EFAB57B3EBDD4AEADDDE392074B853E2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:39DD106EFAB57B3EBDD4AEADDDE392074B853E2C
 magnet:?xt=urn:btih:43E2FF67FAED070C9E71F2C5ACD73795170C60F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:43E2FF67FAED070C9E71F2C5ACD73795170C60F8
 ```bash
 magnet:?xt=urn:btih:3AF7BD1315AC78D2D7A3AE2E943B27AD015BC69B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:3AF7BD1315AC78D2D7A3AE2E943B27AD015BC69B
 magnet:?xt=urn:btih:7D51855207E7361CE5C069B5294ED27FE704791B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Lies Of P была вдохновлена знаменитой историей 
 ```bash
 magnet:?xt=urn:btih:4FD9F1175B9C959ACD9B6D9FE1F023AE409F37C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Epica: Live at The Symphonic Synergy представляет собой мас�
 ```bash
 magnet:?xt=urn:btih:419120D1847BD180703FF7C2DF23F0D290274D28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Food.ru — это пошаговые рецепты и мобильное пр�
 magnet:?xt=urn:btih:296301B55E5F01DC58D480B6AE46C8AA8DB24B57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ VA - Organic Chill House (2025) [MP3|320 Kbps] <Deep, Chill, House>
 ```bash
 magnet:?xt=urn:btih:08C108FA40D334DB944E3F7728A10153E1ECA2D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

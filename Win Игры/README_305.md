@@ -19,6 +19,8 @@ I Know This Place..? (chapter I) приглашает игроков в мист
 magnet:?xt=urn:btih:F7476B4699D140DFC697A11B6EE1B6B076E113C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Organs Please – стратегическая видеоигра с элеме�
 ```bash
 magnet:?xt=urn:btih:33FE5E27CE695519889E08577BD0FDB2F7C2CF28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Marvel’s Avengers (2020) [Ru/Multi] (2.8.1/dlc) Repack DjDI [Definitive Editio
 magnet:?xt=urn:btih:9868E773ECD7F4070AA3AB57A01454B75B069C86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Cynthia: Hidden in the Moonshadow - это приключенческий экш
 ```bash
 magnet:?xt=urn:btih:17692E23791EDAEC0EF5534376CDE98315B1DEF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Vampire's Fall: Origins - пошаговая изометрическая РПГ
 magnet:?xt=urn:btih:B8E8313233D962176FCC6A4C1E90DCC4E9D8D77A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Wytchwood – приключенческая игра, основанная на
 ```bash
 magnet:?xt=urn:btih:E7D014A092C982B5259D736B5A55B1C5F92A7799
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Assetto Corsa Competizione — новая видеоигра, выпущенна
 magnet:?xt=urn:btih:100E21B5E5B9FDB1A3EC9874E16BB95478BD4A6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Shieldwall (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:0B9B42006DCAB7E1977FF7FF8D80A1453F0B33A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Archvale (2021) [Ru/Multi] (1.3) License GOG
 magnet:?xt=urn:btih:FF05C7D51BC3C41FDE5485A30BA2B24901C0440B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Mokoko X (2023) [Ru/Multi] (1.03/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:AACBAE8D8C7C4EAA562AB3CB089DB9C26384D970
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Square Enix и Tri-Ace представляют последнюю часть с
 magnet:?xt=urn:btih:EDC7C6E4172B79E04A25BF657E75365AC9367F40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Karagon (2023) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B7047E350F7263AB7C9F1F0B88EF8679D1270E1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Unbeatable Path - это леденящий душу хоррор от пе�
 magnet:?xt=urn:btih:57B398A898880F964BBC4FFC0098B7E5DA1983DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Minecraft Legends (2023) [Ru/Multi] (11023230) Repack DjDI [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:6F17A09CF118A03B10B57334ACEFCCACB1F8BBEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Resident Evil Village продолжает приключения Итана и�
 magnet:?xt=urn:btih:EEE940491AE35F31F086BF14DEF6F21344A1423A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ New Tales from the Borderlands (2022) [Multi] (10415597/dlc) Repack DjDI [Deluxe
 ```bash
 magnet:?xt=urn:btih:1A18C38E6FE5300924EA4439B15E31B570E82F65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Souldiers (2022) [Ru/Multi] (1.2.1) License GOG [Digital Deluxe Edition]
 magnet:?xt=urn:btih:72411F6CB166E1B34C53A3B8E7BB5C8873C92371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Gripper - приключенческий экшен, в котором пред�
 ```bash
 magnet:?xt=urn:btih:7250D15CB20D568DA152755E462490653B0B4666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Deliver Us The Moon - это научно-фантастический трил�
 magnet:?xt=urn:btih:0B3810525D0FA0EB5F3C02755B5A25C9C38826DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Sherlock Holmes The Awakened дает возможность игроку выс
 ```bash
 magnet:?xt=urn:btih:DB5EF4429FC85A2F09DA279EC371A91EBA758EA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Natus Vincere, без сомнения, являются самой популя
 magnet:?xt=urn:btih:E9E033507AD193A98226E30C939F820D38BD0B14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Counter Strike Source выпущена в 2004 году. Это продолже
 ```bash
 magnet:?xt=urn:btih:50B8A345811AF83FC8BE41B103E4ADCE3A6A2B6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Sherlock Holmes The Awakened (2023) [Multi] (10918242) Scene FairLight
 magnet:?xt=urn:btih:007147F572BA05EB9CCFEEFA2A01CE0F1D90F94C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Beyond Contact – это симулятор выживания в открыт�
 ```bash
 magnet:?xt=urn:btih:51A8DD934416FD9ED6423000BE251B9D22146124
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Everspace 2 (2021) [Ru/Multi] (1.0.33479) Repack DjDI
 magnet:?xt=urn:btih:5D997AD84F0FC92EBB482C319D69D1B576A2FE87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ PARANOIA PLACE — это совместная онлайн-игра (с оди�
 ```bash
 magnet:?xt=urn:btih:8E8C74777224EA3617A370CF1F14EF5C0D4FB114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

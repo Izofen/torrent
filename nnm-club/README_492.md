@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:E10F3B310AFD0CE9523DC70647563E9A0EE0BB72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:E10F3B310AFD0CE9523DC70647563E9A0EE0BB72
 ```bash
 magnet:?xt=urn:btih:E0AD9939EAC03C41602624B5D04AACA54E7AB8CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:E0AD9939EAC03C41602624B5D04AACA54E7AB8CA
 magnet:?xt=urn:btih:E0FFA19A32FB90E64125123D4924183DE217D488
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:E0FFA19A32FB90E64125123D4924183DE217D488
 magnet:?xt=urn:btih:65EA7FB98CB5EFD6B1817D9F8E0434CF74F48F94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:65EA7FB98CB5EFD6B1817D9F8E0434CF74F48F94
 ```bash
 magnet:?xt=urn:btih:858328C6E4F377B058D15B5974EEA094062E3A76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:858328C6E4F377B058D15B5974EEA094062E3A76
 magnet:?xt=urn:btih:B2D394438B568CBD0C01D65C5A45560E03642649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Architect Life: A House Design Simulator (2025) [Ru/Multi] (1.0/dlc) Repack FitG
 ```bash
 magnet:?xt=urn:btih:C41F6A8CECA675992151DC65C4D475057F0097F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:C41F6A8CECA675992151DC65C4D475057F0097F3
 magnet:?xt=urn:btih:DE5B61695BE705CF0DD5669B1CD6D3E38244397D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:DE5B61695BE705CF0DD5669B1CD6D3E38244397D
 ```bash
 magnet:?xt=urn:btih:FDA22D631757473BF42369B485FBFFCFF864F6D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Dungeons 4 - это фэнтезийная стратегия в реально�
 magnet:?xt=urn:btih:B3999851C444F1DF04F18C1E22ACEEC9BF3EC8BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Ninja to Koroshiya no Futarigurashi | NinKoro | Ниндзя и ассасин �
 ```bash
 magnet:?xt=urn:btih:F92DB91FC156D30B261AB40D2827BD6A8B17858D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Luminar Neo – это отдельный редактор, который вк�
 magnet:?xt=urn:btih:A2917E5FE28ECF24B80BC28C0655686794B12AF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Kuroshitsuji: Midori no Majo Hen | Black Butler: Emerald Witch Arc | Тёмны�
 magnet:?xt=urn:btih:F22375411F3F6A0E266FBEFEEE9EBD06B1F07EE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Dragons Reef (2025) [Ru/Multi] (1.2) Repack FitGirl
 magnet:?xt=urn:btih:746F05A20A465170FF91545386325803EA03D006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:06D23A6F4E1AEACBCF0F4221D193334279C63E2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:06D23A6F4E1AEACBCF0F4221D193334279C63E2F
 magnet:?xt=urn:btih:86A6613D13A0083B35BA752195B2CFC094F3E9DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:86A6613D13A0083B35BA752195B2CFC094F3E9DF
 ```bash
 magnet:?xt=urn:btih:A89577059A5887C41A7B3AFD0714CFD50A2627B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Adobe Illustrator — это принятое в качестве отрасле
 magnet:?xt=urn:btih:77A4F947FFA06BADEBDC19EB050AD7B3838B613C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:77A4F947FFA06BADEBDC19EB050AD7B3838B613C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:77A4F947FFA06BADEBDC19EB050AD7B3838B613C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:77A4F947FFA06BADEBDC19EB050AD7B3838B613C
 ```bash
 magnet:?xt=urn:btih:D39FFB8DAF85F4E774A25590291E4CE74164870F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Google, TikTok и ряд других компаний разместили кэ
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Google, TikTok и ряд других компаний разместили кэ
 ```bash
 magnet:?xt=urn:btih:E41484C44694FC64997F51B8BBCF7A6A865D71A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:E41484C44694FC64997F51B8BBCF7A6A865D71A3
 magnet:?xt=urn:btih:9FFD856282B04E1E75E683D732D56EE30C8224D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:9FFD856282B04E1E75E683D732D56EE30C8224D3
 magnet:?xt=urn:btih:E7E89F7D85CB0B381712D22C3FD4A33F164F0EEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Deathless. Tales of Old Rus / Бессмертный. Сказки Старой 
 ```bash
 magnet:?xt=urn:btih:F545846F18D9430A038D4EF0BB42D8C1FC87119F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

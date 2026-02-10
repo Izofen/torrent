@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:A61A9CAA871235B2983448C0122398CB2E663E5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:A61A9CAA871235B2983448C0122398CB2E663E5D
 ```bash
 magnet:?xt=urn:btih:696EDAFF958A694EB16FAFE2A59F48DAEB67C3FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:696EDAFF958A694EB16FAFE2A59F48DAEB67C3FD
 magnet:?xt=urn:btih:E3E7B0B3200A6BCA54F4F1EA56674B297BCEB9CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:E3E7B0B3200A6BCA54F4F1EA56674B297BCEB9CE
 ```bash
 magnet:?xt=urn:btih:80DE9E09C4A76F63EB641B5EA247C24B1E622EB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:80DE9E09C4A76F63EB641B5EA247C24B1E622EB7
 magnet:?xt=urn:btih:CCE63052AF19905B71BB473F48B8BC7E21C30FE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:CCE63052AF19905B71BB473F48B8BC7E21C30FE6
 ```bash
 magnet:?xt=urn:btih:40CEAD26EB3BC3BE2FA67567860D35A27C4A6117
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Berlitz | Португальский язык. Базовый курс [APE+JPEG
 magnet:?xt=urn:btih:7845D4BB6E607B3EC1F3F8932099A2F91BE1F6FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Goethe Verlag | Book2. Аудиокурс чешского языка [2011] [PD
 ```bash
 magnet:?xt=urn:btih:0C4C46EA769790EB537DF368B4D8F43F53B5B8B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:0C4C46EA769790EB537DF368B4D8F43F53B5B8B5
 magnet:?xt=urn:btih:820540E99B4E1E8DC4E680EBA6AC691B86401FFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:820540E99B4E1E8DC4E680EBA6AC691B86401FFF
 ```bash
 magnet:?xt=urn:btih:28E8E49CE3C8AEA13F01FFB1BB66D651370B0541
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Berlitz | Греческий язык. Базовый курс [PDF + MP3] [2005
 magnet:?xt=urn:btih:1BCDB54359216D5F6BE497B1078DE8773329F5A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Goethe Verlag | Book2. Аудиокурс испанского языка [2011]
 magnet:?xt=urn:btih:788850B61B65AB870633722306CB08512F5B697B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Berlitz | Хорватский язык. Базовый курс [MP3+DJVU] [200
 ```bash
 magnet:?xt=urn:btih:4603D2F20DC3105EAC2632432773F8C721BBB3B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:4603D2F20DC3105EAC2632432773F8C721BBB3B8
 magnet:?xt=urn:btih:BF02E924B97939D6D7C7AF9593ADF6D7A2E7ECB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ Berlitz | Чешский язык. Базовый курс (3CD) [MP3+PDF] [2005
 magnet:?xt=urn:btih:31CA46686F41EF8392C3212558CD5DEC5BAFAC3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:31CA46686F41EF8392C3212558CD5DEC5BAFAC3E
 ```bash
 magnet:?xt=urn:btih:BE27EBA79828501EF1FED4E0C0FB02C95519FC24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:BE27EBA79828501EF1FED4E0C0FB02C95519FC24
 magnet:?xt=urn:btih:F64BA04DC54059B711F74A73D1DD44DAD991EF83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:F64BA04DC54059B711F74A73D1DD44DAD991EF83
 magnet:?xt=urn:btih:53740B0C0570714E3B66AE223F7ABB89B3263C20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:53740B0C0570714E3B66AE223F7ABB89B3263C20
 ```bash
 magnet:?xt=urn:btih:10D8D4D3A9DDB59A4F693A649EE255117273D0E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:10D8D4D3A9DDB59A4F693A649EE255117273D0E0
 magnet:?xt=urn:btih:996C0315024BF59ABCCDABA0BC5D205C4B9E9C20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:996C0315024BF59ABCCDABA0BC5D205C4B9E9C20
 magnet:?xt=urn:btih:DCEF2DC6C69B55D98A1726A86CD5646483385B06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:DCEF2DC6C69B55D98A1726A86CD5646483385B06
 ```bash
 magnet:?xt=urn:btih:FFE4A9DE42D773545B1CE47DF848546003D3D667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:FFE4A9DE42D773545B1CE47DF848546003D3D667
 magnet:?xt=urn:btih:0C8D1F605CF770C750E9CF3733E2687108ED748F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:0C8D1F605CF770C750E9CF3733E2687108ED748F
 magnet:?xt=urn:btih:FA9272D3197616B3C707172EDD550B66D5EE4BBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ magnet:?xt=urn:btih:FA9272D3197616B3C707172EDD550B66D5EE4BBC
 magnet:?xt=urn:btih:CCC511DE1239ED0C893FC52ECE8D514528D3B53E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:CCC511DE1239ED0C893FC52ECE8D514528D3B53E
 ```bash
 magnet:?xt=urn:btih:C4BCFA13467A24876C3D83FE751D9860D4C1E5FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

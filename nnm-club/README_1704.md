@@ -19,6 +19,8 @@ AOMEI Partition Assistant – мощная программа для работ�
 magnet:?xt=urn:btih:21E354256B0BEEAC4612CCE06AC6698F697CEBCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:21E354256B0BEEAC4612CCE06AC6698F697CEBCF
 ```bash
 magnet:?xt=urn:btih:F6809126CE9E570E7EC437BC5F41B93E0E5AFB5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F6809126CE9E570E7EC437BC5F41B93E0E5AFB5F
 ```bash
 magnet:?xt=urn:btih:B694712BAC2A100A86FD7E0992D1CD4F38052B5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Rick Astley - Free (1991) Remaster, 2024,  BMG [FLAC|Lossless|WEB-DL|tracks] <Sy
 magnet:?xt=urn:btih:041C79714A0C09087CA93B19759015626FA5EAC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Stratovarius - Demand (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metal>
 ```bash
 magnet:?xt=urn:btih:ECAF65361C680625367ED11DBDB3B9267BE6BAD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ VA - Привет, менты! (Ништяк, браток!) (1998) [MP3|320 Kbp
 magnet:?xt=urn:btih:C9E731E414FA2C51B8CEFB2379F88BEEB7E07117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ Freakangel - Serenity To The Stars, Beauty To The Broken (2024) [FLAC|Lossless|W
 magnet:?xt=urn:btih:933D50E6E3477A70B1584D95EEC6F3861262C9AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:933D50E6E3477A70B1584D95EEC6F3861262C9AB
 magnet:?xt=urn:btih:B450CEA4DC520CB0C3834B346FEA8079AEB064E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:B450CEA4DC520CB0C3834B346FEA8079AEB064E8
 ```bash
 magnet:?xt=urn:btih:3562662079FD8F215232FF4D80F1F8ADAF14CD8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ CD1 - Zvuki Mu:
 magnet:?xt=urn:btih:E6B775E86C0F82F0D59A5F481F1FE173320DBD2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ XMedia Recode - отличная утилита, цель которой - по�
 ```bash
 magnet:?xt=urn:btih:80B3E03885D03E9101DF5B8EBDBC691AAB1A546F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ VA - Vocal Trance Collection Vol. 2 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
 magnet:?xt=urn:btih:65EC1148551AD990EB43BF13D324DC7A98371A66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ Two Friends - Big Bootie Mix Vol. 25 (2024-08-29) [MP3|320 Kbps] <Dance, Electro
 magnet:?xt=urn:btih:4DA0FD9755C128240922E86C122507537255F97D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:4DA0FD9755C128240922E86C122507537255F97D
 magnet:?xt=urn:btih:82E3A34C79A226756C746F704A1D29056581BC28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:82E3A34C79A226756C746F704A1D29056581BC28
 ```bash
 magnet:?xt=urn:btih:577026E245E5A720E20D6DB5425CFB15E6BC9359
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ Anna Ermakova - Behind Blue Eyes (2024) [FLAC|Lossless|image + .cue] <Pop>
 magnet:?xt=urn:btih:8346A085145E364F7208B918F3A87C09DCC124D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ Helloween - Pink Bubbles Go Ape (1991) Remaster, 2024, Noise Records [FLAC 24/44
 magnet:?xt=urn:btih:B96EA26382A8E37C7E483CCB27D161D583B1B486
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ magnet:?xt=urn:btih:B96EA26382A8E37C7E483CCB27D161D583B1B486
 ```bash
 magnet:?xt=urn:btih:09BF3E948087FA208AEFF0500238A491C5459C5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:09BF3E948087FA208AEFF0500238A491C5459C5B
 magnet:?xt=urn:btih:7C7C7A888A866FE8C5EE36DD5A4FC44713247D34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:7C7C7A888A866FE8C5EE36DD5A4FC44713247D34
 ```bash
 magnet:?xt=urn:btih:2EBADCC1D3878756E7E1E473AE1D4360B811AA32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:2EBADCC1D3878756E7E1E473AE1D4360B811AA32
 ```bash
 magnet:?xt=urn:btih:B3AA58DC73E013C42D47344DD6D9F76F33E552AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +595,8 @@ The Delta Blues Collective - Peace, Love, and Groove (2024) [FLAC 24/48|Lossless
 magnet:?xt=urn:btih:DF42B6E2B2EABF5E8ADFF97103AD18B9C8B56249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ Helloween - Chameleon (1993) Remaster, 2024, Sanctuary Records [FLAC 24/44.1|Los
 magnet:?xt=urn:btih:7216878CF46671A68A9E5482F7336C9B7F6EAB61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ magnet:?xt=urn:btih:7216878CF46671A68A9E5482F7336C9B7F6EAB61
 ```bash
 magnet:?xt=urn:btih:F421F52D3DC38C332525B19A423306BDA15D9ECE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ VA - Redux Selection Vol. 9 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 magnet:?xt=urn:btih:2E15BE7185D3FC047F3391979FB9AD1A88CEF074
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ Lyran Lions - Star Rider (2024) [MP3|320 Kbps] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:D732DE679F4B3AACB93AE8108339C060A913D151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

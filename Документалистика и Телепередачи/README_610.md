@@ -1,3 +1,30 @@
+###  Публикация: 1008020   (819754) от 16.04.2016
+
+Руссо туристо (2016.04.16) WEB-DLRip (выпуск 15. Батуми)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_819754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правда ли, что нашего человека без труда можно вычислить за границей?
+Новое тревел-шоу СТС «Руссо туристо» объявляет войну туристическим стереотипам, развенчивает мифы об отдыхе за границей и предлагает только оригинальные маршруты путешествий. Ведущие проводят выходные в другой стране, чтобы проверить, так ли хороши те местные красоты, о которых «кричат» все сайты (   Читать дальше...   )Телекомпания: СТСЖанр: ТВ-ШоуРежиссер: Артем ОськинПродолжительность: 00:24:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0E728A795B386E6CF2C0DD6BFCC08BA6317B185
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008018   (819756) от 16.04.2016
 
 Подмосковные вечера (2016.04.16) SATRip (выпуск 6)
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:7FE13C6DBA5129D3557276199EEB4F65831C66C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +71,8 @@ magnet:?xt=urn:btih:7FE13C6DBA5129D3557276199EEB4F65831C66C1
 ```bash
 magnet:?xt=urn:btih:EF14841066FA8ECFFCC057FC9B32183900AF9C72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:EF14841066FA8ECFFCC057FC9B32183900AF9C72
 magnet:?xt=urn:btih:73D18DF15EB6E0966AC31CB4419B6F0FF3A16AB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:73D18DF15EB6E0966AC31CB4419B6F0FF3A16AB7
 magnet:?xt=urn:btih:387C29AE1B7E253D9885061C510C10E209554590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:387C29AE1B7E253D9885061C510C10E209554590
 ```bash
 magnet:?xt=urn:btih:3703CA594DF6C1D5F6213157F1286FAF398E9CF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:3703CA594DF6C1D5F6213157F1286FAF398E9CF5
 magnet:?xt=urn:btih:B5F8FBD2DCB8EED84E8E248E8C399507772D553B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +203,8 @@ BBC: Терри Пратчетт: Выбирая смерть / Terry Pratchett:
 ```bash
 magnet:?xt=urn:btih:E9535318601BCB513101816ED9C726B73B7ABE60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ magnet:?xt=urn:btih:E9535318601BCB513101816ED9C726B73B7ABE60
 magnet:?xt=urn:btih:0FDAC61753FE1A8816818E801ED49E240240661D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +258,8 @@ magnet:?xt=urn:btih:0FDAC61753FE1A8816818E801ED49E240240661D
 magnet:?xt=urn:btih:6A44960CBE79CFC5BC5934B705140BC89F061C9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +283,8 @@ magnet:?xt=urn:btih:6A44960CBE79CFC5BC5934B705140BC89F061C9A
 ```bash
 magnet:?xt=urn:btih:609B12D94AF3EEC5A2865DEE16661339422F93CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +310,8 @@ magnet:?xt=urn:btih:609B12D94AF3EEC5A2865DEE16661339422F93CA
 magnet:?xt=urn:btih:41118767387B60004B46ED5A0457B52E472FE8B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +335,8 @@ magnet:?xt=urn:btih:41118767387B60004B46ED5A0457B52E472FE8B9
 ```bash
 magnet:?xt=urn:btih:6EA9924F41BCE83DB636BA541BD090B6A192275F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +362,8 @@ magnet:?xt=urn:btih:6EA9924F41BCE83DB636BA541BD090B6A192275F
 magnet:?xt=urn:btih:A7C4226B9B5D55B021F53ADE11A37E757061D94D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +387,8 @@ magnet:?xt=urn:btih:A7C4226B9B5D55B021F53ADE11A37E757061D94D
 ```bash
 magnet:?xt=urn:btih:D33F540EA0AE4CD3C3BD1AB2D9044A7DB49D0C45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +414,8 @@ magnet:?xt=urn:btih:D33F540EA0AE4CD3C3BD1AB2D9044A7DB49D0C45
 magnet:?xt=urn:btih:713917D0268A306BCEBDAF08391445DFA017C893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +439,8 @@ magnet:?xt=urn:btih:713917D0268A306BCEBDAF08391445DFA017C893
 ```bash
 magnet:?xt=urn:btih:DC9A690310E70B8C8FBB715F97D5B5F1107C17F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +466,8 @@ magnet:?xt=urn:btih:DC9A690310E70B8C8FBB715F97D5B5F1107C17F5
 magnet:?xt=urn:btih:55C7704ED1977D81EF131F6587AA46C5E23C74D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +491,8 @@ magnet:?xt=urn:btih:55C7704ED1977D81EF131F6587AA46C5E23C74D3
 ```bash
 magnet:?xt=urn:btih:D597755ECD9B79202C058EB6C4ACADB815E1ECB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +518,8 @@ magnet:?xt=urn:btih:D597755ECD9B79202C058EB6C4ACADB815E1ECB1
 magnet:?xt=urn:btih:0E3098E8E7687F157A1422880569A170A649BB13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +544,8 @@ magnet:?xt=urn:btih:0E3098E8E7687F157A1422880569A170A649BB13
 magnet:?xt=urn:btih:DE2C681B07233F45488AE91CD7AD39D4C7F1EF90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +569,8 @@ magnet:?xt=urn:btih:DE2C681B07233F45488AE91CD7AD39D4C7F1EF90
 ```bash
 magnet:?xt=urn:btih:A6CAF4F7D43634EA7C43C8095886AEC8288272C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +599,8 @@ magnet:?xt=urn:btih:A6CAF4F7D43634EA7C43C8095886AEC8288272C6
 magnet:?xt=urn:btih:8B62BEEC2E79EDEDBDA69EF485C0E17B1157EECE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +624,8 @@ magnet:?xt=urn:btih:8B62BEEC2E79EDEDBDA69EF485C0E17B1157EECE
 ```bash
 magnet:?xt=urn:btih:4DFD4DFE360E6A63ECF3549D26AE6D512ADD579C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +651,8 @@ magnet:?xt=urn:btih:4DFD4DFE360E6A63ECF3549D26AE6D512ADD579C
 magnet:?xt=urn:btih:CE62B48873D40844F1D057BB7AB456848924D7A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +677,7 @@ magnet:?xt=urn:btih:CE62B48873D40844F1D057BB7AB456848924D7A9
 magnet:?xt=urn:btih:AF673A554466FDAF594BE662DEB2301C2D0C190F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116781   (822074) от 20.03.2017
-
-Без обмана. Каша из топора (2017.03.20) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_822074.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это масштабное потребительское расследование, задача которого дать зрителям подробные советы, как не попасть в неприятности за собственные деньги. В центре программы оказываются самые разные товары и услуги потребительского рынка, их "судят" авторитетные эксперты и рядовые люди. Корреспонденты программы часто выступают в роли тайных агентов, внедряющихся (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: Документальный, расследованиеСубтитры: ОтсутствуютПродолжительность: ~ 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D2A2E62B6E85297B7935773D3D377DBC6557709
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

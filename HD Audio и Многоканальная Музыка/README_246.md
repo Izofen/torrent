@@ -1,3 +1,32 @@
+###  Публикация: 1399102   (734306) от 29.07.2020
+
+Modern Soul Band - Meeting (1979) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_734306.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Motorrennerrock
+A2 Der Kater
+A3 Heut' Spielt Hier 'Ne Soul-Band
+A4 Gemeinsamkeit(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95553D0626A4F5B61519836C45250F8DF0861824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528269   (734960) от 01.02.2022
 
 The Police - Ghost In The Machine (1981) Reissue 1982 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
@@ -21,6 +50,8 @@ A4 Hungry For You (J'Aurais Toujours Faim De Toi)(   Читать дальше..
 ```bash
 magnet:?xt=urn:btih:F7A5903F929D891E628816CC7600C2B8BA038A22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ A4 Canary In A Coalmine(   Читать дальше...   )Жанр: New Wave, P
 magnet:?xt=urn:btih:C9DB0F5B870D7837767EBF598662E29FA2A7E7B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ Terror Universal - Make Them Bleed (2018) hand made [restored, declipped] [FLAC 
 ```bash
 magnet:?xt=urn:btih:6A4FE99F1112FFEE0A43EEEAA77D20869BC78967
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ A4 She Loves You(   Читать дальше...   )Жанр: Pop RockПродо
 magnet:?xt=urn:btih:ECBAE82AC36EC834EB4F0F5333B2EA61274C2342
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +164,8 @@ Mindfeed — британская альтернативная метал-гру
 ```bash
 magnet:?xt=urn:btih:41A231979F755B099A6C2B336267244181176891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +194,8 @@ VA - The Absolute Sound (2015) Japanese Edition [DSD64 2.0|1bit/2822,4kHz|SACD-R
 magnet:?xt=urn:btih:496B270DF427F35C4076D7A78DB3CCDA17BFAAC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +222,8 @@ A4 You Can Do Magic(   Читать дальше...   )Жанр: Pop, Sound-alik
 ```bash
 magnet:?xt=urn:btih:A69961196FD21E552FF986E80E9303672D6A3F03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +252,8 @@ A1. Armin van Buuren - Imagine
 magnet:?xt=urn:btih:B9931F04827987327DCDE77C50042EC63C316FBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +280,8 @@ Stone - финская трэш-метал-группа, образованна�
 ```bash
 magnet:?xt=urn:btih:FE6EECB4FD1BFAAE3121B78F44340EB12F02333B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +311,8 @@ Kiss - Destroyer (45th Anniversary Super Deluxe) (1976) remix 2021 [DTS-ES Discr
 magnet:?xt=urn:btih:331280F3E3E6C692114FA5562272C3F804E5E5BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +339,8 @@ The Police — британская рок-группа, сформирован�
 ```bash
 magnet:?xt=urn:btih:4B693B7D9C33DD0FC7BAB201C09B0CF8FCDF97E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +369,8 @@ A2 Грибной Дождь
 magnet:?xt=urn:btih:0CDED09D127024EC26AA4B769EBD6CDDEA3583CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +397,8 @@ A4 Delicious Demon(   Читать дальше...   )Жанр: Indie RockПро
 ```bash
 magnet:?xt=urn:btih:927F0DB50C4417601C4F1B32DAE43A095DCF26B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +427,8 @@ Side One:
 magnet:?xt=urn:btih:98A3EE8B4691FE5D4D1A056F82A0D78D7C47151B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +455,8 @@ B2 Piku(   Читать дальше...   )Жанр: Big BeatПродолжит�
 ```bash
 magnet:?xt=urn:btih:798232F5F6E616E33A9AB2792F6BEC003A32D96C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +485,8 @@ A3 Granada(   Читать дальше...   )Жанр: Easy ListeningПродо
 magnet:?xt=urn:btih:51E31FDA0E4EBBEC3AD7FBBECE8CA26784DA9FC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +513,8 @@ Raffaella Carra - Collections (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Europop
 ```bash
 magnet:?xt=urn:btih:5BC388BFC1759A326CB1C356478C811ED36EA035
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +543,8 @@ A4 Every Day I Have The Blues(   Читать дальше...   )Жанр: Blues
 magnet:?xt=urn:btih:E6C83FEE1D77283C4544C18EAB51B708F7153E2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +568,8 @@ magnet:?xt=urn:btih:E6C83FEE1D77283C4544C18EAB51B708F7153E2F
 ```bash
 magnet:?xt=urn:btih:5F3DE9AF6A14160BE9E85CA2524BA4935871E3F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +598,8 @@ A4 Gymnopodie No. 1(   Читать дальше...   )Жанр: Prog Rock, Inst
 magnet:?xt=urn:btih:566A2DD5A1B85B65F78EE5739A9AA3A81A0E131C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +626,8 @@ A4 Vegvari Adam, Csepregi Eva - Elso Szerelem(   Читать дальше...   
 ```bash
 magnet:?xt=urn:btih:F8EFA58768DB0371AAB8611CE71AAF0E67C9359E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +656,8 @@ Slayer — американская метал-группа. Коллектив 
 magnet:?xt=urn:btih:1DD796BA825238F446AACC471E3AC304C20DB4E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +684,8 @@ magnet:?xt=urn:btih:1DD796BA825238F446AACC471E3AC304C20DB4E7
 ```bash
 magnet:?xt=urn:btih:1F9152FEA6FA7194A80CEAA962B55981D0CC2995
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +714,8 @@ Imagine Dragons - Evolve (2017) [DSD 2.0|5.6448/1|tracks|Vinyl-Rip] <Rock, Pop>
 magnet:?xt=urn:btih:0EC6EF873D8750BC59803B59868FF5D4E2CC0C2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,32 +743,7 @@ magnet:?xt=urn:btih:0EC6EF873D8750BC59803B59868FF5D4E2CC0C2A
 magnet:?xt=urn:btih:6C85E45CB0746064ABBBAC8DF74572FBA2AD9E98
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524455   (743627) от 16.01.2022
-
-Paul Mauriat And His Orchestra – Gone Is Love (1970) [DSD128 2.0|tracks|Vinyl-Rip] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gone is Love (2:33)
- 02. Home Again (3:04)
- 03. My House And The River (2:56)
- 04. Could This Be Me (3:36)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B6E43B331867D0BA3FC1D0AEDE3B06D1F0B71CC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

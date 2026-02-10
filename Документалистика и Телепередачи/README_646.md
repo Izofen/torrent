@@ -1,3 +1,33 @@
+###  Публикация: 873846   (866812) от 01.03.2015
+
+Чудо техники (2015.03.01) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_866812.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых изобретениях. Теперь обо всем, что происходит на передовой научно-технического прогресса, узнают и зрители НТВ. Новинки и открытия со всего (   Читать дальше...   )В выпуске: Из грязи в князи: какие средства спасут нашу обувь от капризов погоды?
+Ускорение — мать учения: можно ли выучить иностранный язык за месяц?
+Каждому овощу — свой контейнер: тестируем новейшие кухонные изобретения.
+А также — собачьи радости и собачьи гаджеты.
+Все самое интересное — в программе «Чудо техники».Телекомпания: НТВЖанр: ТелепередачаПродолжительность: ~ 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8786F1AD29F4F268721A0C962E50D52257ADB4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375228   (866855) от 13.04.2020
 
 Фантастические Грибы / Fantastic Fungi (2019) WEBRip [H.264/1080p] [VO]
@@ -18,6 +48,8 @@
 ```bash
 magnet:?xt=urn:btih:07FAA7FB203C2A3CDF464211B824335E878E91C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +75,8 @@ magnet:?xt=urn:btih:07FAA7FB203C2A3CDF464211B824335E878E91C5
 magnet:?xt=urn:btih:BDA06D6276735273862D19AB37F8BB4B45661EB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +100,8 @@ magnet:?xt=urn:btih:BDA06D6276735273862D19AB37F8BB4B45661EB6
 ```bash
 magnet:?xt=urn:btih:4A59CBB54716229782859B522E37957CBCDC5AC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +127,8 @@ magnet:?xt=urn:btih:4A59CBB54716229782859B522E37957CBCDC5AC7
 magnet:?xt=urn:btih:053BB12271D7428833F440F25FA14525E4D4A09C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +152,8 @@ magnet:?xt=urn:btih:053BB12271D7428833F440F25FA14525E4D4A09C
 ```bash
 magnet:?xt=urn:btih:0395F7BA7FED5D00DE697C5E1B127A2333BB6B3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +179,8 @@ magnet:?xt=urn:btih:0395F7BA7FED5D00DE697C5E1B127A2333BB6B3F
 magnet:?xt=urn:btih:DB0741A72FBB0DB4610487BC2047C8EBEDE47748
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +204,8 @@ magnet:?xt=urn:btih:DB0741A72FBB0DB4610487BC2047C8EBEDE47748
 ```bash
 magnet:?xt=urn:btih:75B907BC1018108449CE5BB85CB1E83A0C57989C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +231,8 @@ magnet:?xt=urn:btih:75B907BC1018108449CE5BB85CB1E83A0C57989C
 magnet:?xt=urn:btih:EFC6E494047ADE6FE70DADC2E29F116EB604E2ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +256,8 @@ magnet:?xt=urn:btih:EFC6E494047ADE6FE70DADC2E29F116EB604E2ED
 ```bash
 magnet:?xt=urn:btih:0D747349C5E9839A1C3EF0E36F63BCF5A3143A31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +283,8 @@ magnet:?xt=urn:btih:0D747349C5E9839A1C3EF0E36F63BCF5A3143A31
 magnet:?xt=urn:btih:C7B3CED312C45FC611750CDA7D5D05B4169DF4BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +308,8 @@ magnet:?xt=urn:btih:C7B3CED312C45FC611750CDA7D5D05B4169DF4BB
 ```bash
 magnet:?xt=urn:btih:02D4CD1E3BDDA8D0E79395FD50ED8AD1344813E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +336,8 @@ magnet:?xt=urn:btih:02D4CD1E3BDDA8D0E79395FD50ED8AD1344813E0
 magnet:?xt=urn:btih:B8AE718E123D89B5D835AD9A9BB8D47C7FE53B52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +361,8 @@ magnet:?xt=urn:btih:B8AE718E123D89B5D835AD9A9BB8D47C7FE53B52
 ```bash
 magnet:?xt=urn:btih:61B50D6ACD8215C3AAD5720903A39BD2A0C146E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +388,8 @@ magnet:?xt=urn:btih:61B50D6ACD8215C3AAD5720903A39BD2A0C146E4
 magnet:?xt=urn:btih:5CBFA25FF6B68C78FC1F88B60B64FB1C1A4D6E68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +413,8 @@ magnet:?xt=urn:btih:5CBFA25FF6B68C78FC1F88B60B64FB1C1A4D6E68
 ```bash
 magnet:?xt=urn:btih:F862F9BFF6E6AAE58DA69FE42A98CE43AD6E7609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +440,8 @@ magnet:?xt=urn:btih:F862F9BFF6E6AAE58DA69FE42A98CE43AD6E7609
 magnet:?xt=urn:btih:242633B8FBB568ED4AD0F542859D9F94127AC2D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +465,8 @@ magnet:?xt=urn:btih:242633B8FBB568ED4AD0F542859D9F94127AC2D3
 ```bash
 magnet:?xt=urn:btih:D9DF75F78612230D926818312F0706EE18D7A132
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +492,8 @@ magnet:?xt=urn:btih:D9DF75F78612230D926818312F0706EE18D7A132
 magnet:?xt=urn:btih:8E5037DB50B2C50076A08A8A192F73C724FB9C6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +517,8 @@ magnet:?xt=urn:btih:8E5037DB50B2C50076A08A8A192F73C724FB9C6D
 ```bash
 magnet:?xt=urn:btih:34883AC031AD9B446C061003DBD30EC4233159E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +547,8 @@ magnet:?xt=urn:btih:34883AC031AD9B446C061003DBD30EC4233159E2
 magnet:?xt=urn:btih:BE13360DD91B308E26E74C2F21E907A923DEA5D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +572,8 @@ magnet:?xt=urn:btih:BE13360DD91B308E26E74C2F21E907A923DEA5D6
 ```bash
 magnet:?xt=urn:btih:3AD67AB18435BD0B866A20B09500ABD6A9A80FD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +599,8 @@ magnet:?xt=urn:btih:3AD67AB18435BD0B866A20B09500ABD6A9A80FD9
 magnet:?xt=urn:btih:5B0194122B0633988E1E220392C00B17B977E932
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +624,8 @@ magnet:?xt=urn:btih:5B0194122B0633988E1E220392C00B17B977E932
 ```bash
 magnet:?xt=urn:btih:5C459EEC0F6D3F2ECA900C09CF36ED0B6F58262B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +651,8 @@ magnet:?xt=urn:btih:5C459EEC0F6D3F2ECA900C09CF36ED0B6F58262B
 magnet:?xt=urn:btih:AAE9383FD6C697C03A4446DA10ADA5565D870542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,29 +677,7 @@ magnet:?xt=urn:btih:AAE9383FD6C697C03A4446DA10ADA5565D870542
 magnet:?xt=urn:btih:BD2CF2B3682FBDD72FD18CC9DAB410621BE1711A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998800   (868326) от 20.03.2016
-
-Где логика? (2016.03.20) SATRip (выпуск 9)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_868326.jpg" />
-</div>
-
-
-###  Подробнее
-
-Звездные семейные пары, партнеры по съемочной площадке, просто хорошие друзья и знакомые будут вместе пытаться выстраивать логические связи между самыми, казалось бы, нелогичными событиями, предметами или фактами. Почему мы оставляем официантам на чай, но не оставляем врачам на бинты? Для чего нам мизинцы на ногах? Зачем мыть машину в ноябре? Почему существует сухое (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB6CCB7F9E92BDD81D52DA279921991DE10899FE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

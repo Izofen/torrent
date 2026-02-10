@@ -22,6 +22,8 @@ Caden Morrowick - Total Spin (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues
 magnet:?xt=urn:btih:B2D0640E9EC64499572E9EED2FBC25339E09D99A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Grit Slide - Hexed Ground (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:C6DD644AC1E1C99FF40B6B6D4F130A0C9B6C2DDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:C6DD644AC1E1C99FF40B6B6D4F130A0C9B6C2DDD
 ```bash
 magnet:?xt=urn:btih:CDC8496B24E36A22B1790CDF92E584F1187F5203
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ HR-брендинг позволяет компании создать пози�
 magnet:?xt=urn:btih:FB64F317A705A5535880A4F1BDF73A4450CF3DA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:FB64F317A705A5535880A4F1BDF73A4450CF3DA3
 ```bash
 magnet:?xt=urn:btih:1F5249A401FF3A6822DF63EF3E60BF6792E36A78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Fade Poet - Spirit of a Rebel (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blue
 magnet:?xt=urn:btih:967852C9DB3CEF5014DE7FA8812B762AC00F382A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ Forgotten Roadz - Everything in Between, Vol. 2 (2025) [FLAC 24/44.1|Lossless|WE
 magnet:?xt=urn:btih:3001DD027885E0ACEF2D367209B2AD7886643E5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ DJ T. - Rising (2005) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, Acid>
 ```bash
 magnet:?xt=urn:btih:34E4F426D5DF8F4C247BAD2F26164989648EB564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +243,8 @@ Crooked Myth - Wrong Deal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:CDF1B3C41172B3136B7C808F6CFEC68A9F633176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:CDF1B3C41172B3136B7C808F6CFEC68A9F633176
 ```bash
 magnet:?xt=urn:btih:AA1EBC685F4B100BC204D4A2A3CF6EC631107082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:AA1EBC685F4B100BC204D4A2A3CF6EC631107082
 magnet:?xt=urn:btih:822C2CB537B2641089A09D415993100FD338DB9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:822C2CB537B2641089A09D415993100FD338DB9B
 magnet:?xt=urn:btih:DE9E7F6F4C5F0A9D25A33747643E5DEF4E2B30BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:DE9E7F6F4C5F0A9D25A33747643E5DEF4E2B30BE
 ```bash
 magnet:?xt=urn:btih:8ACEF3FEC227C8DB587AC078CF48DE08E3F67837
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ Haunt - Ignite (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:7CC2C669B33F8E7B92EBEA36FAE92D310A888F56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:7CC2C669B33F8E7B92EBEA36FAE92D310A888F56
 ```bash
 magnet:?xt=urn:btih:993D0EE640AF48628488FFB3DC024DDC34BE889E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:993D0EE640AF48628488FFB3DC024DDC34BE889E
 magnet:?xt=urn:btih:CEC503118ACFD700117CEFC16C691C2176E30C81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:CEC503118ACFD700117CEFC16C691C2176E30C81
 ```bash
 magnet:?xt=urn:btih:DD8E183B3A458001B2EED08E2F4034FA16ED17F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:DD8E183B3A458001B2EED08E2F4034FA16ED17F4
 magnet:?xt=urn:btih:4E74918DF6261ECD0DF6923234D9902600B7DB10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:4E74918DF6261ECD0DF6923234D9902600B7DB10
 ```bash
 magnet:?xt=urn:btih:AA0E596E2E39A03F009AF2B814E4352AECE1221E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ Fractured Insanity из Бельгии возвращаются с новым а
 magnet:?xt=urn:btih:DA44B6CC4C24012EA52AF22EC01B05E08C481705
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:DA44B6CC4C24012EA52AF22EC01B05E08C481705
 magnet:?xt=urn:btih:C8332AC5FA83F901A3849C36418137A66A966A9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:C8332AC5FA83F901A3849C36418137A66A966A9A
 ```bash
 magnet:?xt=urn:btih:26B8941700A56896E21D1D7311A0ABC23F7873BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ Hendy FN - Karma (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:AF944D14007DD38B028A1D1715FC8CDF01693B6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:AF944D14007DD38B028A1D1715FC8CDF01693B6E
 ```bash
 magnet:?xt=urn:btih:765486B242D3D5CD88A380B1A799BF50EE8CD8E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:765486B242D3D5CD88A380B1A799BF50EE8CD8E4
 magnet:?xt=urn:btih:6D02D1F608E3F1E7C849B6D5FCFF9A1D3F622A62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:6D02D1F608E3F1E7C849B6D5FCFF9A1D3F622A62
 ```bash
 magnet:?xt=urn:btih:D8EDCDBE51852C3D10E865CDFAC562C8C9888ACC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

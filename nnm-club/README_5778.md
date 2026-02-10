@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:654C5284029BF91B328F9F6D7CD11B853D758F47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:654C5284029BF91B328F9F6D7CD11B853D758F47
 magnet:?xt=urn:btih:8BE5DF2324F1DB45CCB500C8E21757082803CFE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:8BE5DF2324F1DB45CCB500C8E21757082803CFE6
 ```bash
 magnet:?xt=urn:btih:D68E8A9068631AA7D7CA819FC7BB1763D9E305CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:D68E8A9068631AA7D7CA819FC7BB1763D9E305CA
 magnet:?xt=urn:btih:E7A27518616E8E3210B5A7FCCA2FC47B36A499A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:E7A27518616E8E3210B5A7FCCA2FC47B36A499A2
 ```bash
 magnet:?xt=urn:btih:81A79FBDB489A221FBB59E66B6FC4FAFDE316836
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Burning by Desire - Insight (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Me
 magnet:?xt=urn:btih:05B506894509992A9415440A464CFD75D711A312
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ LiveWire - Under Attack! (2022) [FLAC|Lossless|WEB-DL|tracks] <Speed Metal, Heav
 magnet:?xt=urn:btih:F0118F23450ACAAEBC8C57A96269CA063F7C3A05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ COCOON (2023) [Ru/Multi] (1.0) Scene FairLight
 magnet:?xt=urn:btih:6BFC1CA042A907C381C642FEADEC145830C4F8B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ NG: Чужие миры / Alien Worlds (2009) HDTVRip [720p]
 ```bash
 magnet:?xt=urn:btih:D9A785C95DFE5F7EBFBD67900E33FC398721ECD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ Metaltouch - Zero Radicalism (2022) [MP3|320 Kbps] <Metal>
 magnet:?xt=urn:btih:15AE3A82AC7E829E498B11A3939E204C0D2D049C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:15AE3A82AC7E829E498B11A3939E204C0D2D049C
 magnet:?xt=urn:btih:F477D37AB1AEF93C19CC9443491913DCF6336E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Bandicam позволяет записать определенную облас
 ```bash
 magnet:?xt=urn:btih:284078B4B4A8D24CEBD0826873D5C203653C4AA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ Seducer's Embrace - Sinnocence (2002) [WavPack|Lossless|image + .cue] <Melodic D
 magnet:?xt=urn:btih:8F0538D4EC26BEA0FC6FA1282D0C80BEBF92A720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ Tony Hawk's Pro Skater 1 + 2 (2023) [Multi] (1.0/dlc) Scene Rune [Digital Deluxe
 ```bash
 magnet:?xt=urn:btih:1484E5ADED3841F94213F0653E69650D97FDC421
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:1484E5ADED3841F94213F0653E69650D97FDC421
 magnet:?xt=urn:btih:9C107F6E953F00A636E4FE79A3BAF714A14DA071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:9C107F6E953F00A636E4FE79A3BAF714A14DA071
 magnet:?xt=urn:btih:2DB1EB7136DEEC1C82080B20BB49708454B8EA36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:2DB1EB7136DEEC1C82080B20BB49708454B8EA36
 ```bash
 magnet:?xt=urn:btih:61AA7A23FA869F0DD0BFC1DF896B651FCC6E52CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ In Search of Solace - The Endless Ache (2022) [FLAC|Lossless|WEB-DL|tracks] <Met
 magnet:?xt=urn:btih:9F6535DCCECBFF3C216AB3C58F7AF078A4FAD78B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ Heron - Empires of Ash (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner,
 magnet:?xt=urn:btih:D7077E7C4220895BB51E9D4525EF8DE19BEFD6B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:D7077E7C4220895BB51E9D4525EF8DE19BEFD6B4
 ```bash
 magnet:?xt=urn:btih:2CD5550B59DA49D10C7E82911D543EA2450C0422
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:2CD5550B59DA49D10C7E82911D543EA2450C0422
 magnet:?xt=urn:btih:895E63BD36B82855775BE55B70FB3943C66E9A29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:895E63BD36B82855775BE55B70FB3943C66E9A29
 ```bash
 magnet:?xt=urn:btih:6D91100773C4417C220D6DB7078AEF0D645E2407
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ Gavran - Indistinct Beacon (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Doom Me
 magnet:?xt=urn:btih:0760CF30C56ADD117B6EE1BAF0AD3AF03F299E80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:0760CF30C56ADD117B6EE1BAF0AD3AF03F299E80
 ```bash
 magnet:?xt=urn:btih:10ED9397A96C92B35A6838B3DCC088613487D29B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:10ED9397A96C92B35A6838B3DCC088613487D29B
 magnet:?xt=urn:btih:C4B0438C0A0FBABC67D70059722F07FFDF88781C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:C4B0438C0A0FBABC67D70059722F07FFDF88781C
 ```bash
 magnet:?xt=urn:btih:591EB8879D8D0E79B02AC8A9999007EF60793BB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

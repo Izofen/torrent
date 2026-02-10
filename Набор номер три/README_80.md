@@ -21,6 +21,8 @@ Driver Genius Professional - программа для управления др
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Armin van Buuren - A State of Trance 000 - 550 Radioshows+.CUE (2001-2012) [MP3|
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ Armin van Buuren - A State of Trance 000 - 550 Radioshows+.CUE (2001-2012) [MP3|
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Vampire: The Masquerade: Redemption [Ru] (RePack) 2000 | Pilotus
 magnet:?xt=urn:btih:4E2922915B1E1F250BFA754DDE0F01D697E7A1DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Realtek High Definition Audio Driver – звуковые драйверы но�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -155,6 +165,8 @@ Chip Windows XP 2012.03 CD
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ Vampire: The Masquerade - Bloodlines - компьютерная ролевая �
 magnet:?xt=urn:btih:29568C3A40FF3205A1AEC2478602A15B7126208C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ Total War: Shogun 2 - Fall of the Samurai  / Total War: Shogun 2 - Закат С
 ```bash
 magnet:?xt=urn:btih:8B9BB4FDBC7F380D900B60E7EDD5EB8815E8CB9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:8B9BB4FDBC7F380D900B60E7EDD5EB8815E8CB9B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ Resident Evil 5 [Ru] (Lossless RePack) 2009 | Naitro
 ```bash
 magnet:?xt=urn:btih:351996372CBA6E8EC0454A3BCDA506459058D7B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ Firefox перестанет работать на старых версиях W
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ Firefox перестанет работать на старых версиях W
 magnet:?xt=urn:btih:3F9E1C08FBE624E293C4B039BAAECE7ADC587401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ magnet:?xt=urn:btih:3F9E1C08FBE624E293C4B039BAAECE7ADC587401
 magnet:?xt=urn:btih:A9E148379FB43355EADBECB02863FA370735753B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:A9E148379FB43355EADBECB02863FA370735753B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:A9E148379FB43355EADBECB02863FA370735753B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:A9E148379FB43355EADBECB02863FA370735753B
 ```bash
 magnet:?xt=urn:btih:DA41E55139FACCB08992902871970D44DC53723C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ Fallout: New Vegas Ultimate Edition [Multi5/-] (L) 2012 l PROPHET
 magnet:?xt=urn:btih:B0DE29B3D6BB4EB47BB656EFDA654E80320E0EF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ Another / Иная [2012, TV, 12 из 12 серий] HDTV 720p raw + rus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ Another / Иная [2012, TV, 12 из 12 серий] HDTV 720p raw + rus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ Sysadmins Flash Prof Edition 1.1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ Sysadmins Flash Prof Edition 1.1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ Windows 7 (x64/x86) Ultimate UralSOFT 3.8.12 [Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ Windows 7 (x64/x86) Ultimate UralSOFT 3.8.12 [Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ Windows 7 (x64/x86) Ultimate UralSOFT 3.8.12 [Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ Ridge Racer Unbounded [Multi6/+] (L) 2012
 magnet:?xt=urn:btih:4B8340E1647FD51580D0BCFC3CD71080A86339DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:4B8340E1647FD51580D0BCFC3CD71080A86339DC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1044634   (565047) от 20.08.2016
+
+Hamatora The Animation | Хаматора [2014, TV, 12] BDrip 1080p HEVC Hi10p raw+eng
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_565047.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эсперы, называемые в этом мире Минимумами, по-разному относятся к своему дару. Кто-то чувствует ответственность, а кто-то считает себя полубогом, для которого остальные – пыль под ногами. Справиться с такими непросто, но там, где пасует «королевская рать», на стражу закона становятся детективы-эсперы. Они не любят полицейской муштры и часто работают свободными художниками. (   Читать дальше...   )Жанр: приключения, детектив, мистикаРежиссер: Киси Сэйдзи / Kishi Seiji / 岸誠二Продолжительность: 12 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E64A60FF075E6DDE37ED327CEA7FFBF1E4C5FA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130470   (565390) от 23.07.2017
 
 Soushin Shoujo Matoi | Matoi the Sacred Slayer | Матой: Изгоняющая духов [2016, TV, 12 эп. + OVA] BDrip 1080p raw
@@ -18,6 +44,8 @@ Soushin Shoujo Matoi | Matoi the Sacred Slayer | Матой: Изгоняюща�
 ```bash
 magnet:?xt=urn:btih:6ADC2612A3786317E5E7BF4A077DE2DEE81A1E82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ Release the Spyce | Освобождение шпионов [2018, TV, 12 эп.]
 ```bash
 magnet:?xt=urn:btih:3A515AA3761CFA97E887EF3E89DED46840899D7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ Next A-Class [2012, ONA] WEBRip 1080p raw
 magnet:?xt=urn:btih:98316079812B1F6795CD5F198046D960082A1442
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ Basquash! | Баскваш! [2009,TV, 26] BDrip 1080p Hi10P raw
 ```bash
 magnet:?xt=urn:btih:616AECDFB63B9D745F2E85C18FEC91D72B6D67CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ Hisone to Masotan | Dragon Pilot: Hisone and Masotan | Хисонэ и Масо�
 magnet:?xt=urn:btih:88A936F75C105F8BA90D64854DB784714DD02146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ Piano no Mori (2018) | Рояль в лесу [ТВ] [2018, TV, 12] HDTVRip 720p
 ```bash
 magnet:?xt=urn:btih:996AF88F86371D8D937E54CC1D86BF4A850CFF89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ Last Period: Owarinaki Rasen no Monogatari | Last Period: The Journey to the End
 magnet:?xt=urn:btih:4B77AF167A2120CA9E44D39A9E74C56C3BD09784
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ Rokuhoudou Yotsuiro Biyori | Чайная «Рокуходо» [2018, TV, 12] WE
 ```bash
 magnet:?xt=urn:btih:8B969182136A5F2506AAF76214FF26402B1E7D1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ Guilty Crown / Корона греха [2011, TV, 22] BDrip 720p Hi10bit raw
 magnet:?xt=urn:btih:D10584A603A5A12100C306BF51CCBFDEAE7B9FDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka Gaiden: Sword Oratoria |
 magnet:?xt=urn:btih:AB30ECED966CD824BA37745CC81EB3108C8BF523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ Dungeon ni Deai o Motomeru no wa Machigatte Iru Darouka Gaiden: Sword Oratoria |
 ```bash
 magnet:?xt=urn:btih:55ED318B77C21196188CA363FCCC144CA48BB802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ Ginga Tetsudou no Yoru / Night on the Galactic Railroad / Ночь на Гала
 magnet:?xt=urn:btih:427C48BE5175D04B63562F73FBFF52E1045EF93D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ Kujira no Kora wa Sajou ni Utau | Children of the Whales | В песках по�
 ```bash
 magnet:?xt=urn:btih:E53A44DAB67CAE06F92FCBDC537B5C0488FE9A91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ Kokkoku | Миг за мигом [2018, TV, 12 эп.] BDrip 1080p raw
 magnet:?xt=urn:btih:FA80B4DB76537CD846FFBBF03EE030467DC11085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ Bubble | Пузырь [2022, ONA] WebRip 1080p raw+eng
 ```bash
 magnet:?xt=urn:btih:ACA7620A26372BB79607F7F25B652720924CBEC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ Dorei-ku The Animation | Doreiku the Animation | Я и 23 раба [2018, TV, 12
 magnet:?xt=urn:btih:526E69FAAE83259528FD93A8F2CD728EF5C0DF28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ Kuroko no Basuke / Kuroko's Basketball / Баскетбол Куроко [ТВ-1
 ```bash
 magnet:?xt=urn:btih:7154DEC5731309B79178CA74641EAAA7EF536F4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ Fumikiri Jikan | Crossing Time | Ожидание на железнодорож�
 magnet:?xt=urn:btih:BD10317A123B903D43D78B728FD7EF1BEFA6CF4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ Shirokuma Cafe | Polar Bear Cafe | Кафе «У Белого Медведя» [
 ```bash
 magnet:?xt=urn:btih:EB7B461FE56F6E6BD56E8B80DB03FE5D0DC08912
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +542,8 @@ Butlers: Chitose Momotose Monogatari | Butlers x Battlers | Дворецкие: 
 magnet:?xt=urn:btih:1CD09AE7768D4C3E70B2174D885C845494C99DB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +567,8 @@ Shin Ikkitousen | Новые школьные войны: Истинная си�
 ```bash
 magnet:?xt=urn:btih:5268CEFF326A24B92D170017FBA7A7B0F3E7A5CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +596,8 @@ R-18 !Производство: Hoods EntertainmentЖанр: комедия, э�
 magnet:?xt=urn:btih:7368929F26C5298A42198B49E2C275D51E604EEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +621,8 @@ New Game! OVA | Новая игра! OVA [2017, OVA, 1] DVDRip 576p raw
 ```bash
 magnet:?xt=urn:btih:40049079947DACEC1BFE557B8004C21ABAE6EC3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +648,8 @@ Gin no Saji (2014) / Silver Spoon (2014) / Серебряная ложка [ТВ
 magnet:?xt=urn:btih:ABF48EC2A6C704129946EE046B8D128AC61BF0E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,29 +674,7 @@ Rinne no Lagrange: Flower declaration of your heart S2 / Сердца твоег
 magnet:?xt=urn:btih:DB23D30CE00D1C50AC38993EEA5F48A15470FA54
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 688500   (576794) от 11.08.2013
-
-Gekijouban Ao no Exorcist / Ao no Exorcist The Movie / Синий Экзорцист (фильм) [2012, MV] BDrip 1080p Hi10p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_576794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сюжет фильма делится на две части: в первой из них Юкио, Рин и Шиеми отправляются на задание по уничтожению поезда-призрака, который терроризирует окрестности Тру Крос Тауна, похищая души людей, по ошибке севших в него. Вторая, параллельно развивающаяся сюжетная линия: проходящий в это время фестиваль "11-ти лет". Сюра и Ченг прибывают на место (где, по (   Читать дальше...   )Жанр: приключенияРежиссер: Такахаси Ацуси / Takahashi Atsushi / 高橋敦史Продолжительность: 01:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:425EE3803C0803916C10933B1B295E776B6EBE18
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ True Fear: Forsaken Souls Part 1 – первая часть трилогии «
 magnet:?xt=urn:btih:E89903DA1E34655098F0191C198BB605A58DFD16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ True Fear: Forsaken Souls Part 2 – продолжение атмосферно
 ```bash
 magnet:?xt=urn:btih:B79638AA7534A9986B98AA8E0CF8C2C9EBA8A4B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Siberian Village (2024) [Ru/Multi] (0.97) Repack FitGirl
 magnet:?xt=urn:btih:23A5B6EC1995F9AAE6C7877B617467CD6E0D564F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Lysfanga: The Time Shift Warrior бросает вас в битву, котор
 ```bash
 magnet:?xt=urn:btih:5E4BC40E6EC1E65B5EFB93C0A3AC000FF60F3708
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ DRAGON QUEST BUILDERS (2024) [Multi] (1.0/dlc) Repack FitGirl
 magnet:?xt=urn:btih:B66903FCEA751379E13D656802D7B026B2E0564D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Hearts of Iron III позволит вам сыграть в стратегию 
 ```bash
 magnet:?xt=urn:btih:DF0973350B6802221C2EB19114E70AF3C72C8C08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Try to Survive Today / Попробуй выжить сегодня (2023) [Ru] 
 magnet:?xt=urn:btih:29AF84021325FEBADE22F70D328B1C6067ADECB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Green Hell (2019) [Ru/Multi] (2.7.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:C3287C531DC2F441C190DB9EC1A5C098E4E974C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Terminator: Resistance – шутер от первого лица, являющ
 magnet:?xt=urn:btih:09FA55BE7774647DD8BECD23DA98AC49118AC122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Magic City Detective 4: Wrath of the Ocean / Волшебный город 4: Г
 ```bash
 magnet:?xt=urn:btih:BB1AC04CB919E49751CBF90299FB61F956ED53EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Lysfanga: The Time Shift Warrior бросает вас в битву, котор
 magnet:?xt=urn:btih:7F6C8DF721637CF41C7AF004CC4748365F7F8F06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Lies Of P была вдохновлена знаменитой историей 
 ```bash
 magnet:?xt=urn:btih:14B755407B0A23FFEAB00AF33392CF6DE393820A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Haydee 2 - экшен от третьего лица с элементами г�
 magnet:?xt=urn:btih:CC16BFB06AB186E4C865DA16795F750EC33460ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Little Nightmares III - это новая часть серии, предста�
 ```bash
 magnet:?xt=urn:btih:D9DF81E2384DFCF4E8727422E4700CD6F22A7AF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Spectra: Beneath the Stain (2025) [En] (1.0) Unofficial
 magnet:?xt=urn:btih:DE68F120385875E629F7F680052BDD0EA15C1B6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Dreams of Another - это экшен-игра с исследованием о�
 ```bash
 magnet:?xt=urn:btih:4CD1473C5919ABDBD57EE17329F168FE6342ECDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Little Nightmares III - это новая часть серии, предста�
 magnet:?xt=urn:btih:1F44D5F66C34AA390A0F34A46E35E984C8B84055
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Edge of Reality 10: Island of Shadows (2025) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:CD77C82415CC9EFCEC6F38956D46375B6D00FB36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Yooka-Replaylee - это усовершенствованная версия и�
 magnet:?xt=urn:btih:A48406EB46B9A2B7B99DE9BE123291B5012F6140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Chambers of Devious Design (2022) [Ru/Multi] (1.3.0b) License GOG
 ```bash
 magnet:?xt=urn:btih:949A49D7E1BED6980EAA46251C2DB9831557E29A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Europa Universalis IV – продолжение знаменитой серии
 magnet:?xt=urn:btih:82371F00E93C908591A0E1A750C04F3DCE0F6D4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ magnet:?xt=urn:btih:82371F00E93C908591A0E1A750C04F3DCE0F6D4B
 ```bash
 magnet:?xt=urn:btih:C11476D844FD45A7664F77E316FB505CE4D0703D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Slot Shots Pinball (2024) [En] (1.0) Repack FitGirl [Ultimate Edition]
 magnet:?xt=urn:btih:CB776AC44772B828A6511AC60D7B79E24AFB1A35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Paquerette Down the Bunburrows (2023) [Multi] (1.0.10) License GOG
 ```bash
 magnet:?xt=urn:btih:0AB6EFDFA368D8B85ADE5BABED7697973F707D62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Terror Mansion – это невероятное путешествие по у�
 magnet:?xt=urn:btih:E68862BBA6BED175BD7DCA1972FF5D395257FA91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Backrooms Deluxe - отправьтесь навстречу запутан�
 ```bash
 magnet:?xt=urn:btih:0A2684C9E496D6ED289D590905BFDCA089504926
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

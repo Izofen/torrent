@@ -1,3 +1,30 @@
+###  Публикация: 1376361   (860248) от 17.04.2020
+
+Есть такой парень (1956) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_860248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по мотивам романа Александра Андреева «Широкое течение».
+Молодой рабочий автомобилестроительного завода Антон Карнилин из-за любовных неурядиц с дочерью начальника завода Люсей не выполняет производственный план, ссорится с друзьями, начинает выпивать. Ему на помощь приходят бригадир и его приёмная дочь Татьяна Оленина, инженер-конструктор завода. Карнилин (   Читать дальше...   )Производство: СССР, Киевская киностудия художественных фильмовЖанр: мелодрамаРежиссер: Виктор ИвченкоАктеры: Николай Гринько, Олег Голубицкий, Алексей Бахарь, Нина Крачковская, Наталья Фатеева, Николай Бармин, Александр Смирнов, Пётр Масоха, Екатерина Литвиненко, Елизавета КузюринаСубтитры: ОтсутствуютПродолжительность: 01:22:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9930E88F1B0087ECFEEF392A91C1509A8328B5C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376291   (860369) от 17.04.2020
 
 Дилетант (1987) VHSRip
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:F329FBDC931FB4C66B4D5A4B60B41FAF19B3A16C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:F329FBDC931FB4C66B4D5A4B60B41FAF19B3A16C
 magnet:?xt=urn:btih:1A624F4D9D87C4A07EB5F79E5C5AC2FB5A5A9A00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:1A624F4D9D87C4A07EB5F79E5C5AC2FB5A5A9A00
 ```bash
 magnet:?xt=urn:btih:53DD92D44965903236422AFBF409804248704749
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:53DD92D44965903236422AFBF409804248704749
 magnet:?xt=urn:btih:390492879FDEF18643F42F33B35CD4D2409E4CE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ magnet:?xt=urn:btih:390492879FDEF18643F42F33B35CD4D2409E4CE1
 ```bash
 magnet:?xt=urn:btih:1BE779128899C6C4F3544E3C173090C7D4030231
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +176,8 @@ magnet:?xt=urn:btih:1BE779128899C6C4F3544E3C173090C7D4030231
 magnet:?xt=urn:btih:FD32C045596F7DE1EADFEE977EDA702D872FC7D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +201,8 @@ magnet:?xt=urn:btih:FD32C045596F7DE1EADFEE977EDA702D872FC7D9
 ```bash
 magnet:?xt=urn:btih:54DB4F3DBDCDF2ED43F266951D779AB50BDDB347
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +228,8 @@ magnet:?xt=urn:btih:54DB4F3DBDCDF2ED43F266951D779AB50BDDB347
 magnet:?xt=urn:btih:287D7AADA2EDD1AC6D175BAD642C45D18C33B0F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +253,8 @@ magnet:?xt=urn:btih:287D7AADA2EDD1AC6D175BAD642C45D18C33B0F0
 ```bash
 magnet:?xt=urn:btih:D0C3F7A744580EE9097D1E47A45F0D4A61A75077
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +280,8 @@ magnet:?xt=urn:btih:D0C3F7A744580EE9097D1E47A45F0D4A61A75077
 magnet:?xt=urn:btih:ABD6B7354FC2427AA2E826BAB1EB60355EF15C96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +305,8 @@ magnet:?xt=urn:btih:ABD6B7354FC2427AA2E826BAB1EB60355EF15C96
 ```bash
 magnet:?xt=urn:btih:72CAE769276A05427FCD0B86F2C5AB4092C0A67B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +332,8 @@ magnet:?xt=urn:btih:72CAE769276A05427FCD0B86F2C5AB4092C0A67B
 magnet:?xt=urn:btih:8C1800CBD3253EA8BBE02FD4FC26217751C21BD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +358,8 @@ magnet:?xt=urn:btih:8C1800CBD3253EA8BBE02FD4FC26217751C21BD8
 magnet:?xt=urn:btih:7B349E25572EF32D0E0694777004CED3BCD4AE0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +383,8 @@ magnet:?xt=urn:btih:7B349E25572EF32D0E0694777004CED3BCD4AE0C
 ```bash
 magnet:?xt=urn:btih:1F7F8C770C5B96A9711F59347B8BE0C3AA7BAF5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +411,8 @@ magnet:?xt=urn:btih:1F7F8C770C5B96A9711F59347B8BE0C3AA7BAF5C
 magnet:?xt=urn:btih:DEC0A2D5B9F6E47C6C232A4695C9FF59E336845B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +436,8 @@ magnet:?xt=urn:btih:DEC0A2D5B9F6E47C6C232A4695C9FF59E336845B
 ```bash
 magnet:?xt=urn:btih:E130F91F906C08AB30F7E18C22532D4C6A9ADCCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +463,8 @@ magnet:?xt=urn:btih:E130F91F906C08AB30F7E18C22532D4C6A9ADCCB
 magnet:?xt=urn:btih:688619848D07A02F7BEE2032A7CC2B5CF9460AC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +488,8 @@ magnet:?xt=urn:btih:688619848D07A02F7BEE2032A7CC2B5CF9460AC0
 ```bash
 magnet:?xt=urn:btih:C96CC4151F6CFE67E79FE42FB62D6941E74A7218
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +515,8 @@ magnet:?xt=urn:btih:C96CC4151F6CFE67E79FE42FB62D6941E74A7218
 magnet:?xt=urn:btih:731D396EDCD14FCE6050AA2360FC3D6D77D56210
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +540,8 @@ magnet:?xt=urn:btih:731D396EDCD14FCE6050AA2360FC3D6D77D56210
 ```bash
 magnet:?xt=urn:btih:BC24052E70C27B5B99177B77661C363D8F0EAADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +567,8 @@ magnet:?xt=urn:btih:BC24052E70C27B5B99177B77661C363D8F0EAADA
 magnet:?xt=urn:btih:8CB8BE47976F32803B470E68B67DD1577E48D5EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +592,8 @@ magnet:?xt=urn:btih:8CB8BE47976F32803B470E68B67DD1577E48D5EB
 ```bash
 magnet:?xt=urn:btih:AF5863D1211B3D9382BE6971E01967DDBF5D444C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +619,8 @@ magnet:?xt=urn:btih:AF5863D1211B3D9382BE6971E01967DDBF5D444C
 magnet:?xt=urn:btih:4F00565F0E115AA150D9BC27077387008C2643CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +644,8 @@ magnet:?xt=urn:btih:4F00565F0E115AA150D9BC27077387008C2643CC
 ```bash
 magnet:?xt=urn:btih:283F5C7E83C116DDEB0272A0FC4A5BFD05A65207
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,29 +672,7 @@ magnet:?xt=urn:btih:283F5C7E83C116DDEB0272A0FC4A5BFD05A65207
 magnet:?xt=urn:btih:B3A64362E2DF91760FCE8B0B1F7D34E72C2B978F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374695   (870669) от 11.04.2020
-
-Безбилетная пассажирка (1978) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Случайная встреча круто изменила жизнь Нины. Вместе со своим новым знакомым, Антоном, она отправляется на великую стройку — БАМ. Разумеется, за трудовыми подвигами. Вот только билет на поезд купить забыла!..Производство: СССР / Киностудия им. М. ГорькогоЖанр: мелодрама, комедия, приключенияРежиссер: Юрий ПобедоносцевАктеры: Татьяна Догилева, Константин Кравинский, Амурбек Гобашиев, Тигран Давыдов, Ольга Торбан, Наталья Хорохорина, Марина Шигарева, Михаил Бычков, Юрий Чигров, Вячеслав ГостинскийСубтитры: отсутствуютПродолжительность: 01:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4384AFBAA6745BAA083A797E8FABDFBE29292D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

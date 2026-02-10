@@ -23,6 +23,8 @@ In this course, we're going to do a deep dive into Node.js itself without clutte
 magnet:?xt=urn:btih:6F3138BDD91A73EB02920B7F341CF7A90190FA99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ Grafana была создана 7 лет назад для визуализац�
 magnet:?xt=urn:btih:37E33B706632DE70D5F371D19CAC889D5818EC6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ igoroutine.courses, Игорь Панасюк | The Nature of Concurrency - ку
 ```bash
 magnet:?xt=urn:btih:FD4F7B268D1B08A03AD20B1B644262FF5B87CB33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:FD4F7B268D1B08A03AD20B1B644262FF5B87CB33
 magnet:?xt=urn:btih:4826C108E0D6A406A730D3D579DA43CECAF9B309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:4826C108E0D6A406A730D3D579DA43CECAF9B309
 magnet:?xt=urn:btih:ED1223414275A033B5A728047D23F2F3AB49413C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Stepik, Даниил Беликов | Первая работа в IT. Стра�
 ```bash
 magnet:?xt=urn:btih:0F81C270DBDC898EB4FC2D8E8EA6625E9CF7BFFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:0F81C270DBDC898EB4FC2D8E8EA6625E9CF7BFFD
 magnet:?xt=urn:btih:5C65B45F524CFAA350BB73A3D45DD5BDDC9E9A0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:5C65B45F524CFAA350BB73A3D45DD5BDDC9E9A0D
 ```bash
 magnet:?xt=urn:btih:BC2D8CD9BEB6809164ADE6CF55752148D548F6D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Udemy, YouAccel Training | Learn to Host Multiple Domains on one Virtual Server 
 ```bash
 magnet:?xt=urn:btih:79FA7D19E1195BCE276CB069CC7E954D6CFDBF9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:79FA7D19E1195BCE276CB069CC7E954D6CFDBF9F
 magnet:?xt=urn:btih:BB69A385AAEE66095D792A9E866A8A63E1A0423E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Charles Proxy — это инструмент для перехвата сете
 ```bash
 magnet:?xt=urn:btih:00DA34CED0916887F82D6B46A6DA8BEB308CFB8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Infostart, Владимир Лушников | Новое в 1С: Докумен
 magnet:?xt=urn:btih:827ACBBCFCBC25A5039E1369E38DDBD44824D7B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ Purpleschool, Антон Ларичев | Vue.js 3, Vue Router и Pinia (2025) W
 magnet:?xt=urn:btih:A17CBA877F648C42CDC4C4D245D86BDFA4F7B09B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:A17CBA877F648C42CDC4C4D245D86BDFA4F7B09B
 ```bash
 magnet:?xt=urn:btih:F278E9EB6BB38B9C2DB8C88B85446920305324B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ Purpleschool, Антон Ларичев | Nuxt - fullstack Vue фреймвор�
 magnet:?xt=urn:btih:F767AE4597BD0BA6A2E2660B6264FC3604273828
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Purpleschool, Антон Ларичев | Feature-Sliced Design (2025) WEB-DL [R
 magnet:?xt=urn:btih:EA707A0F40314F64122DF57DAFF9A6D566A67C45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:EA707A0F40314F64122DF57DAFF9A6D566A67C45
 ```bash
 magnet:?xt=urn:btih:A68C02D311D3B6748986883D27F182F24B5279D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:A68C02D311D3B6748986883D27F182F24B5279D6
 magnet:?xt=urn:btih:892B2B48386C1EFC251E0730AE39F882028CC1FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ Rush Academy, Евгений Милованцев, Игорь Бурдуков |
 ```bash
 magnet:?xt=urn:btih:463F79608C85C9829A5DA7AEA32ADDD2F7C619CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ Udemy, Artsiom Rusau | Тестировщик с нуля 2024. Web/Mobile, Post
 magnet:?xt=urn:btih:DF95FA2E6D79270F2D3D2E5EF6C84C441D652F3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ StasPiter | Программирование на Delphi в Rad Studio (2015) WE
 ```bash
 magnet:?xt=urn:btih:FCE79AFD5715904710652B14D43E1F3A60452B8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ HR-специалистов и руководителей HR-отделов, к�
 magnet:?xt=urn:btih:3750016E7C801C75769638F7F491F8E9C1DC64A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:3750016E7C801C75769638F7F491F8E9C1DC64A3
 magnet:?xt=urn:btih:8886556A93F35CDFBFF2AA2FDC441663118B6691
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ Computer Science Center | Программирование на Rust (2019) WEB-
 magnet:?xt=urn:btih:55028F53E02D26723AFE83F3EF26220AB5A5F0BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ Alexander Semenko | Вся необходимая база по Assembler (2022)
 ```bash
 magnet:?xt=urn:btih:A1604A34D6CE860744B950531F05AF72DC0EDF1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +705,8 @@ magnet:?xt=urn:btih:A1604A34D6CE860744B950531F05AF72DC0EDF1C
 ```bash
 magnet:?xt=urn:btih:7485F4A80A939B3137EA5E145592B2F312772B00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

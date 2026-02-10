@@ -1,3 +1,29 @@
+###  Публикация: 1509515   (794831) от 12.11.2021
+
+Покидая Неверленд / Leaving Neverland (2019) WEB-DL [H.264/1080p] (серии 1-2 из 2)
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_794831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самый скандальный документальный фильм года, разделенный каналом HBO на две части. «Покидая Неверленд» рассказывает о Уэйде Робсоне и Джеймсе Сэйфчаке, которые, по их словам, в детстве подвергались сексуальным домогательствам со стороны Майкла Джексона. Посредством душераздирающих интервью лента раскрывает историю продолжительного абьюза и исследует сложные противоречия, (   Читать дальше...   )Производство: Великобритания, США, Amos Pictures, Channel 4, Home Box Office (HBO)Жанр: Документальный, история, биографияРежиссер: Дэн РидПеревод: Двуголосый профессиональныйСубтитры: Русские, английские (SDH)Продолжительность: 2:01:00 + 02:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AF7A83FA4A45ABFBE40F6614B7834CBE92EF8EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274026   (794865) от 05.01.2019
 
 ТерраМатер: Дикая Канада / Terra Mater: Wild Canada (2014) UHD BDRemux [H.265/2160p] [4K, SDR] (серии 1-4 из 4)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:142426B408D02983A27FE760DD38EC0677142A2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:142426B408D02983A27FE760DD38EC0677142A2C
 magnet:?xt=urn:btih:AADA1C5CA4BAD8482F526EAACB05793BFFF596BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:AADA1C5CA4BAD8482F526EAACB05793BFFF596BA
 ```bash
 magnet:?xt=urn:btih:5DE34CD7CF20199399FB768DBB7326EA210799B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:5DE34CD7CF20199399FB768DBB7326EA210799B5
 magnet:?xt=urn:btih:9CF0B13EFF61DEA2401AFF54438808735FCC9CC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:9CF0B13EFF61DEA2401AFF54438808735FCC9CC5
 ```bash
 magnet:?xt=urn:btih:D88BEC144A2537C1D48064D0A772928A8DB330E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:D88BEC144A2537C1D48064D0A772928A8DB330E3
 magnet:?xt=urn:btih:FB5E2F564CC9FF2CADC3E58600BAD3AF7BFDE996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:FB5E2F564CC9FF2CADC3E58600BAD3AF7BFDE996
 ```bash
 magnet:?xt=urn:btih:DE1EB2FE66166C519DF5E666EE52DA2B0EBE5AC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:DE1EB2FE66166C519DF5E666EE52DA2B0EBE5AC0
 magnet:?xt=urn:btih:E3D4E7B778756FA22D750CF06956E0DFB25A2F90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:E3D4E7B778756FA22D750CF06956E0DFB25A2F90
 ```bash
 magnet:?xt=urn:btih:40765B38B8DDB6CDEC0EE8ACEE0BF4684E290E14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:40765B38B8DDB6CDEC0EE8ACEE0BF4684E290E14
 magnet:?xt=urn:btih:33E9ACDE8DCB109303A316958F80367C6E315086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:33E9ACDE8DCB109303A316958F80367C6E315086
 ```bash
 magnet:?xt=urn:btih:E3D9D36259EC3404EACD9E07DAEDE1D1266372E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:E3D9D36259EC3404EACD9E07DAEDE1D1266372E2
 magnet:?xt=urn:btih:2B6470793E9C6C62C939D5FCC7421F8F43CE38B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:2B6470793E9C6C62C939D5FCC7421F8F43CE38B9
 ```bash
 magnet:?xt=urn:btih:6F0FE99C7D0B4145B298E369A4FA556C056E3DE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:6F0FE99C7D0B4145B298E369A4FA556C056E3DE3
 magnet:?xt=urn:btih:9D1206562EACD28ACBA85CBCCE1F45A1DAB91C7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:9D1206562EACD28ACBA85CBCCE1F45A1DAB91C7C
 ```bash
 magnet:?xt=urn:btih:8145220015CC31C3DA37E087135B3F2661D1C88E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:8145220015CC31C3DA37E087135B3F2661D1C88E
 magnet:?xt=urn:btih:A4A8210678E570DDA85CDF181A43A8DC15BA54DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:A4A8210678E570DDA85CDF181A43A8DC15BA54DE
 magnet:?xt=urn:btih:77918752F8BB245382BF790EDD661CB344DE21AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:77918752F8BB245382BF790EDD661CB344DE21AB
 ```bash
 magnet:?xt=urn:btih:2E41E5E9650D550E2D788F0FC9362971EBE3E8E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:2E41E5E9650D550E2D788F0FC9362971EBE3E8E9
 magnet:?xt=urn:btih:FAC4313588BBECC5B9585C70056333D1F4486F1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:FAC4313588BBECC5B9585C70056333D1F4486F1B
 ```bash
 magnet:?xt=urn:btih:6BEF1049D405A8CE60842CE53786BE09D568BEAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:6BEF1049D405A8CE60842CE53786BE09D568BEAB
 magnet:?xt=urn:btih:68286F1B751941AF8350B57032AA4AE0F535AF13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:68286F1B751941AF8350B57032AA4AE0F535AF13
 magnet:?xt=urn:btih:40A9DC6BCA466B2FC7DC362952CC14B315CE519B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:40A9DC6BCA466B2FC7DC362952CC14B315CE519B
 ```bash
 magnet:?xt=urn:btih:30F23C682164F4095ED9C83244CF64747B9958A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:30F23C682164F4095ED9C83244CF64747B9958A4
 magnet:?xt=urn:btih:2C7D8D20E197D6EC67B6AC6AD4D74B709AAB8AE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:2C7D8D20E197D6EC67B6AC6AD4D74B709AAB8AE9
 magnet:?xt=urn:btih:D070C6CE131BBC09630EEE92933E44824E9857EA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508858   (796152) от 10.11.2021
-
-Мечта Робина (Воля Робина) / Robin's Wish (2020) WEB-DL [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Посвящение искусству
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_796152.jpg" />
-</div>
-
-
-###  Подробнее
-
-В августе 2014 года мир был потрясен, узнав, что Робин Уильямс, любимый актер, принесший человечеству столько радости и юмора, покончил с собой. СМИ называли разные причины, одна нелепее другой, оставив большинство поклонников его таланта в неведении. Это история о том, что на самом деле произошло с артистом, с чем боролся его разум, чего желало его сердце.Производство: США, Quotable PicturesЖанр: Документальный, биографияРежиссер: Тайлор НорвудПеревод: Одноголосый профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:103E5B1FA049219836B1EA943649CB87EEB963EA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

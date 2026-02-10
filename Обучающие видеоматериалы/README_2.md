@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7DF3E2A7493767970375CFEC320AB87F2275E3CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:7DF3E2A7493767970375CFEC320AB87F2275E3CB
 ```bash
 magnet:?xt=urn:btih:217894C4783B249CF5580F1C1AEBAA4ABB37A955
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:217894C4783B249CF5580F1C1AEBAA4ABB37A955
 magnet:?xt=urn:btih:153CFA237F02C80614AF612476D06E51ECD4EFD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:153CFA237F02C80614AF612476D06E51ECD4EFD0
 magnet:?xt=urn:btih:D0B17ED1BB5F01B348A7DECC44CBB626BD919799
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ StasPiter | Программирование на Delphi в Rad Studio (2015) WE
 ```bash
 magnet:?xt=urn:btih:FCE79AFD5715904710652B14D43E1F3A60452B8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ HR-специалистов и руководителей HR-отделов, к�
 magnet:?xt=urn:btih:3750016E7C801C75769638F7F491F8E9C1DC64A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:3750016E7C801C75769638F7F491F8E9C1DC64A3
 ```bash
 magnet:?xt=urn:btih:D7B4E7EC33F2D8D520960711588D395337E34E86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ magnet:?xt=urn:btih:D7B4E7EC33F2D8D520960711588D395337E34E86
 magnet:?xt=urn:btih:8886556A93F35CDFBFF2AA2FDC441663118B6691
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:8886556A93F35CDFBFF2AA2FDC441663118B6691
 ```bash
 magnet:?xt=urn:btih:2675A704E06F05056272E4F5D2F79DF0EF6842E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +274,8 @@ f5game, Ольга Грищенко | Wow-контент за 1 минуту (20
 magnet:?xt=urn:btih:B5E0CE74E8B5164C7D1D73021FDBF7EB9AAA03D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +303,8 @@ magnet:?xt=urn:btih:B5E0CE74E8B5164C7D1D73021FDBF7EB9AAA03D4
 magnet:?xt=urn:btih:CDCEF3C27824EE2DF1F93E03051B2509E8674323
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ klerk, Елена Ярушкина | Персональные данные в 20
 ```bash
 magnet:?xt=urn:btih:004A2C85A352FBBA454AE31F857A536E9EEA9EA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +357,8 @@ Computer Science Center | Программирование на Rust (2019) WEB-
 magnet:?xt=urn:btih:55028F53E02D26723AFE83F3EF26220AB5A5F0BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ magnet:?xt=urn:btih:55028F53E02D26723AFE83F3EF26220AB5A5F0BE
 ```bash
 magnet:?xt=urn:btih:476F3DE7CE762908CA664D4156ED57B0EE7793FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +409,8 @@ magnet:?xt=urn:btih:476F3DE7CE762908CA664D4156ED57B0EE7793FD
 magnet:?xt=urn:btih:C72B0A78A1E8540B9CDEFC140E17E16F3C4DBBC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ Alexander Semenko | Вся необходимая база по Assembler (2022)
 ```bash
 magnet:?xt=urn:btih:A1604A34D6CE860744B950531F05AF72DC0EDF1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:A1604A34D6CE860744B950531F05AF72DC0EDF1C
 magnet:?xt=urn:btih:7485F4A80A939B3137EA5E145592B2F312772B00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:7485F4A80A939B3137EA5E145592B2F312772B00
 ```bash
 magnet:?xt=urn:btih:9CF6B9581FB289E39F4E0282E375F98ECBE3743F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:9CF6B9581FB289E39F4E0282E375F98ECBE3743F
 magnet:?xt=urn:btih:F02094E1DDB7A6699F47C7B05076A0FC045EC143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ Apache Kafka представляет собой ведущий брокер с�
 ```bash
 magnet:?xt=urn:btih:01FB0E864088007D66FD57B66452EF74B5E79564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +575,8 @@ Yesdress nostress, Анастасия Кульбацкая | Самый крут
 magnet:?xt=urn:btih:6A63B73BFC92269C0FB04D394BBCBF889162A07A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ Balun.Courses, Сергей Венецкий | Глубокий Git (2025) WEB-D
 ```bash
 magnet:?xt=urn:btih:DC69F7F04EFA7943D06140811220D44B4F0CE9B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +633,8 @@ Balun.Courses, Владимир Балун | Глубокий Go — нюанс�
 magnet:?xt=urn:btih:BF708DA9B63C0B317C92AAC5A220AF7C63A0FDB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +662,8 @@ Balun.Courses, Игорь Панасюк | Профилирование в Golan
 magnet:?xt=urn:btih:D5C01DDB5710EE2FB09C168F64A3E6E6EC4337B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +689,8 @@ Kobezzza, Андрей Кобец | Практический курс по TypeS
 ```bash
 magnet:?xt=urn:btih:BB2E7E4C6EF9A67FA65985342DB4D4AC3973F00C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,6 +718,8 @@ Kobezzza, Дмитрий Холстинин | Продвинутый Debug во 
 ```bash
 magnet:?xt=urn:btih:4356250E58FBF92A5163002D9AE9CEF10A8126A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

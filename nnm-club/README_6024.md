@@ -22,6 +22,8 @@ The Silence - Angelus Custos (2022) [MP3|320 Kbps] <Post Metal, Post Rock>
 magnet:?xt=urn:btih:5117E373D10F8134F109AB7593AFF3E459E3744C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ PhotoSweeper — отличный способ поиска дубликатов
 ```bash
 magnet:?xt=urn:btih:42ABE27294413609EF8D3F8C4B580566216D9F68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Vigilance - Behind The Mask (1996) [FLAC|Lossless|image + .cue] <Progressive Met
 magnet:?xt=urn:btih:275EAA5EF27118D77B6942D5587CBB15B273A201
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ Ahmad Jamal - With the Assai Quartet (1997) Roesch Records [FLAC|Lossless|tracks
 magnet:?xt=urn:btih:04F37F4A9368903581B8136D6B3562F5C3CC838C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:04F37F4A9368903581B8136D6B3562F5C3CC838C
 ```bash
 magnet:?xt=urn:btih:AA8D45CB707991A0038D6F22E782BA104C86A9F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Art Files идеально подходит для иллюстраторов и
 magnet:?xt=urn:btih:A87987A40BE421B1E0FD6483AEA4BE1B7C28FD43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:A87987A40BE421B1E0FD6483AEA4BE1B7C28FD43
 ```bash
 magnet:?xt=urn:btih:01C439A76788EBB32022D26BE5894C91709BDF75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ Desert Wave - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, 
 magnet:?xt=urn:btih:3C17A4BE7A87BAEBDE511ABD4C0DEBBB9412533B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ Freternia - The Gathering (2019) [FLAC|Lossless|image + .cue] <Power Metal>
 magnet:?xt=urn:btih:CB6338F2CF273987A8983F55090E15F557E17D8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:CB6338F2CF273987A8983F55090E15F557E17D8E
 ```bash
 magnet:?xt=urn:btih:BF590123F94ECE011A76B030F29D796B9BB06943
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ Strigoi - Abandon All Faith (2019) [FLAC|Lossless|image + .cue] <Death Metal>
 magnet:?xt=urn:btih:0D090EA5CD87D0B49613443820FF99BAA2D6EB28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +329,8 @@ Orbiter - A Goddamn Classic (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, St
 magnet:?xt=urn:btih:1E611648BA69A1746DB03E5F34B7B2775B71598C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ magnet:?xt=urn:btih:1E611648BA69A1746DB03E5F34B7B2775B71598C
 ```bash
 magnet:?xt=urn:btih:ABB20FADE1523A835655701799A34A3AAC7F8CD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ ImageRanger - программа позволит найти все нужные
 magnet:?xt=urn:btih:86647E9B61CA22070C21D7A793744AF43AE61717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:86647E9B61CA22070C21D7A793744AF43AE61717
 ```bash
 magnet:?xt=urn:btih:FBA63308C7987AF03E27F8DA9D0E99F85B393557
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ Ahmad Jamal - Crystal (1987) Atlantic [FLAC|Lossless|tracks + .cue] <Post- Bop, 
 magnet:?xt=urn:btih:C982134DB6FA81F6E8F7518395CAE5C8C7E6DFB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ Vigilance - Edge Of Time (1999) [FLAC|Lossless|image + .cue] <Progressive Metal>
 magnet:?xt=urn:btih:56216442FBDBF35A0FCB7C35B9B0BEDB6126D02F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:56216442FBDBF35A0FCB7C35B9B0BEDB6126D02F
 magnet:?xt=urn:btih:545475433F9C46FCE8D5798AD46D51E5E52E451C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:545475433F9C46FCE8D5798AD46D51E5E52E451C
 ```bash
 magnet:?xt=urn:btih:93F8FE6D8AE641BFE7699F7D30F8123CE60C0582
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ magnet:?xt=urn:btih:93F8FE6D8AE641BFE7699F7D30F8123CE60C0582
 magnet:?xt=urn:btih:08A15D14944B657E2AC385B5D19F6845932AE183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ Cascadea 2.0.2 [En]
 ```bash
 magnet:?xt=urn:btih:F0BC426577AE17B6562E735013B184BB46BAF60A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:F0BC426577AE17B6562E735013B184BB46BAF60A
 ```bash
 magnet:?xt=urn:btih:9071358F4F890C05C26CF84E68099A771F723047
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +626,8 @@ Nir Nakav - The Nir-Death Experiment (2020) [MP3|320 Kbps] <Progressive Metal, D
 magnet:?xt=urn:btih:0A3E52226A29AABB67EE483DC5E68AC60142888D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ Ayakashi Triangle / Треугольник Аякаси [2023, TV, 12] WEBRip 72
 ```bash
 magnet:?xt=urn:btih:F39DB1EE8B52865395C552AEB30A796FAD55E468
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ Insignium - In die Abgründe (2005) [FLAC|Lossless|image + .cue] <Black Metal, D
 magnet:?xt=urn:btih:77B855F7824BEF54E614C0C844DBC8C3A9DDB3F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:77B855F7824BEF54E614C0C844DBC8C3A9DDB3F2
 ```bash
 magnet:?xt=urn:btih:A70FFDE204EAB818B39614DF779368147D7DF04D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

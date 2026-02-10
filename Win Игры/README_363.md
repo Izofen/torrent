@@ -1,27 +1,3 @@
-###  Публикация: 1399070   (444484) от 17.09.2020
-
-Othercide (2020) [Ru/En] (6.23/upd8) Repack xatab
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_444484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы — последняя надежда человечества. Дочери, отголоски души величайшего воина всех времен — последний рубеж, отделяющий мир от Страдания и смерти. Возглавьте армию Дочерей, примените все свои тактические таланты в сражениях. От исхода каждой битвы и вашей отваги зависит их судьба, их личности и способности.Тип издания: RepackРазработчик: Lightbulb CrewЖанр: Strategy (Turn-Based), HorrorЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F13DFBCA69F9332D4BC1CDE20A87AAA41EAE61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409380   (444489) от 17.09.2020
 
 Vaporum: Lockdown (2020) [Ru/Multi] (FullRelease Build #35) Repack xatab
@@ -42,6 +18,8 @@ Vaporum: Lockdown — это приквел знаменитой игры с п�
 ```bash
 magnet:?xt=urn:btih:533AEE7211B40AE187556638C1031728E236D685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ Vaporum: Lockdown — это приквел знаменитой игры с п�
 ```bash
 magnet:?xt=urn:btih:3EBBE17BCD7B8AA83C77CDA19E4ED90810FA2FFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +72,8 @@ Deponia [Ru/En] (Repack/1.3) 2012 | R.G. Механики
 magnet:?xt=urn:btih:B44B951CAC69DCB0F368863F769552C7E5078F9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +97,8 @@ Small Tanks - 3D игра на популярную тему танчиков. �
 ```bash
 magnet:?xt=urn:btih:6A20E82165E2690CD7CB5DD0CA7793083BD8D5F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +124,8 @@ The Great Unknown: Houdini's Castle. Collector's Edition / Тайны замка
 magnet:?xt=urn:btih:7307505B863D77539BFC67AA56253B9E5FA7D665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +149,8 @@ Tropico Anthology (2001-2014) [Ru/Multi] Repack/Rip R.G. Механики
 ```bash
 magnet:?xt=urn:btih:71297483BECCDD8828732C2A1FC5030B9ECCAA4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +176,8 @@ Dark Realm 3: Lord of the Winds / Темный мир 3: Властелин Ве
 magnet:?xt=urn:btih:AE25DA7E36580BCCD372FD597AD79A8FEF84ACCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +201,8 @@ The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (1.0.0/dlc) License GOG [De
 ```bash
 magnet:?xt=urn:btih:E7902CCBB277D13AD0AD066EA96317BD1A4F64F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +228,8 @@ The Euro Truck Simulator 2 дарит вам опыт управления са�
 magnet:?xt=urn:btih:9E2190B445DBCBE503ED670B769A02FF621A6E5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +253,8 @@ Enchanted Kingdom 5: Descent of the Elders / Зачарованное корол
 ```bash
 magnet:?xt=urn:btih:A43B95304FC5BB107F8617F1314149EB00983F39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +280,8 @@ Grim Tales 17: Guest From The Future (2019) [En] (1.0) Unofficial [Collector's E
 magnet:?xt=urn:btih:BF74C3AE673428C4E04330737DD5AA97082A2E50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +305,8 @@ Leo’s Fortune - это платформенная приключенческа
 ```bash
 magnet:?xt=urn:btih:25D623C12F56296174339B753F379C62843E77FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +332,8 @@ Cross of the Dutchman - экшен рпг от "третьего" лица. В �
 magnet:?xt=urn:btih:ECCBFB1FFE573F62A6130007360888F365300D62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +357,8 @@ Color Guardians (2015) [Ru/Multi] (1.0/upd3) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:7766CD88573E184E5DA5D669D1A76F22AC495A41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +384,8 @@ Labyrinths of the World 12: Hearts of the Planet / Лабиринты мира 1
 magnet:?xt=urn:btih:D1693EBC84B75BA239D255B7FAB0C9CB2581973C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +410,8 @@ Might and Magic: Heroes VI Gold Edition / Меч и Магия: Герои 6 З�
 ```bash
 magnet:?xt=urn:btih:DB66E517C96ECFF86FEA55E91FA631DB0D15AE2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +439,8 @@ Men of War: Condemned Heroes / Штрафбат [Ru] (Rip/1.00.2) 2012 | Audiosl
 magnet:?xt=urn:btih:3E8DAB2290BAD63096BA24CC8DE3272A6599F901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +466,8 @@ The Chronicles of Riddick Gold [Ru/En] (RePack/1.0.0.1) 2009 | Audioslave
 ```bash
 magnet:?xt=urn:btih:91C4DEB7B748DF1442D70A3B1403A23741F07D28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +497,8 @@ Borderlands: Game of the Year Edition [Ru/En] (RePack/1.4.1/4 DLC) 2010 | R.G. S
 magnet:?xt=urn:btih:E8644F4F15ED90B6EC34E265C8D68E94DBBB476D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +522,8 @@ Five Nights at Freddy’s: Sister Location — это новая часть из
 ```bash
 magnet:?xt=urn:btih:7F5E57E59A45355D1DBF8BCB2A5FEBF18AE605BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +549,8 @@ Don't Knock Twice (Не стучи дважды) — игра-хоррор от 
 magnet:?xt=urn:btih:7BDC2FEFF10DE1F708CCDB9B88DA576EF173DF0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +574,8 @@ magnet:?xt=urn:btih:7BDC2FEFF10DE1F708CCDB9B88DA576EF173DF0E
 ```bash
 magnet:?xt=urn:btih:59D629F9FB67A107B9C0EDC06147EEA5AEE1EE19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +601,8 @@ Dead Island Dilogy (2016) [Ru/Multi] (1.1.2.0/1.1.2.0) SteamRip Let'sPlay [Defin
 magnet:?xt=urn:btih:950F4B28FE3324B0D2A7F2B9A311DBBAA4DBBE26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +627,8 @@ Thrills & Chills - Roller Coasters — увлекательная игра, в �
 magnet:?xt=urn:btih:97F144594168CC69C473F8FEFCEEF8127A87A3F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +652,34 @@ Mystery Solitaire: The Black Raven / Мистический солитер: Че
 ```bash
 magnet:?xt=urn:btih:0057103045A5C2EF1D4C4608A13767936C7ED130
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318693   (447886) от 29.08.2019
+
+Cliff Empire (2019) [Ru/Multi] (1.10b) License PLAZA
+
+>>Win Игры
+>>Strategy (RTS/TBS/Grand)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_447886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cliff Empire - небольшая экономическая стратегия. Сообщение для выживших на орбите Земли! После небольшого ядерного конфликта жить на поверхности стало невозможно. Осадок радиоактивного тумана толщиной 300 метров покрыл Землю. Наши ученые еще в прошлом десятилетии предусмотрели такой ход событий и задействовав весь доступный потенциал - среди гор были возведены резервные (   Читать дальше...   )Тип издания: LicenseРазработчик: Lion's ShadeЖанр: Strategy (Real-time), Simulator, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Украинский, Английский, Немецкий и другиеЯзык интерфейса: Русский, Украинский, Английский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD5A06F6F4F4ADE6FD19ECBFEAACA9488D8A5AA5
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

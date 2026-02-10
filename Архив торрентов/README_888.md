@@ -19,6 +19,8 @@ Opera One 107.0.5045.36 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:22BFA1DE7A6E1C3B91B34B845BA8746D3742382D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ UsbTreeView - маленькая портативная утилита, реал
 ```bash
 magnet:?xt=urn:btih:2008FB03F98297B3C6356640D560033DDF2CDA52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Light Image Resizer - программа для изменения размер�
 magnet:?xt=urn:btih:4D1A9C56AB1551BE714FFC2AAC4BF5F85F34B48D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ XnView MP - мощное многофункциональное приложен
 ```bash
 magnet:?xt=urn:btih:EA027795064B2C1732D381317D0073B673E1F983
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Wise Force Deleter 1.5.5.56 [Multi/Ru]
 magnet:?xt=urn:btih:FB7E9EC06D8839BFDFBACB49604E48A3A3ED5697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Floorp Browser – это модифицированная версия Firefox,
 ```bash
 magnet:?xt=urn:btih:E788E726AE3BF9CB64C0190FD911A985A8C52B98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Light Image Resizer - программа для изменения размер�
 magnet:?xt=urn:btih:2333C29CAC283CCAA08B9F2FB30EC26FD43A5B29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ VueScan - программа предназначена для замены ст
 magnet:?xt=urn:btih:BE2543B87E4C94E7ADDE2924FACB9561BB4B0A83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:56AD79841362F2A4A997BB686C2812ECA1FA0EA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ CrossOver 24.0 [Multi/Ru]
 magnet:?xt=urn:btih:6899CFA5A5DC10E79F0CE1B5DF8B1CDD017E6471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:5F61CA6A2F85DBF4B03D79CC6D8524EFA00A3954
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Adobe Photoshop 2024 - новая версия программы для обр�
 magnet:?xt=urn:btih:5237DA00B5874C8603C97D691C522FD25AA85256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Total Commander – самый популярный файловый менед�
 ```bash
 magnet:?xt=urn:btih:75CED1EC8C50D6CF9918BC3B5AA3FAB2D53E7E54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Total Commander Extended - это x86 и x64 версии Total Commander в о�
 magnet:?xt=urn:btih:0894581E0351A6E3B1F27EA965FBC2804E63699F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ LEX LIVE 10 имеет достаточное количество устано�
 magnet:?xt=urn:btih:B250AC747C3FAE024C55AE5E56593F18AACAF01B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Lightroom объединяет фотографии в «коллекции» �
 ```bash
 magnet:?xt=urn:btih:2F2AD814DB44489A406413AE27A80A866E153DE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Adobe Photoshop 2024 - новая версия программы для обр�
 magnet:?xt=urn:btih:96640C650F680C99EC7CE7ADF1CC54740AEC517C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Adobe Photoshop 2024 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:178B79CEC50D1C1A2E6701E44FAE4E9C9A5E2010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ doPDF — программа для преобразования докумен�
 magnet:?xt=urn:btih:9A9A81CA1D826F40B41E6133395456AFC6BE0CD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Lucky Patcher (Лаки патчер) – отличное решение есл
 ```bash
 magnet:?xt=urn:btih:AFFA1D4E2A22ADB7C1C815904617DCC28DA4FC32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:5CC1CF06AA8E1735B4FCBC2CA71689B93B1419A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Remote Desktop Manager – это приложение для контроля �
 ```bash
 magnet:?xt=urn:btih:AD467290D6EFA8673FED2A5081BDF37303468D96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:15B6B1070C1D0DA5E2DD3CE9C76684EA3DAFEBE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:AFA16B0131242E2A2E611A27AAC2DCA907B79A22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 magnet:?xt=urn:btih:D2D0534D73BA9AE4CA4602449ABDC18F5F0D1F43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:EEF7D2FB781EC5811BD41C9BA5604388859FD98A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

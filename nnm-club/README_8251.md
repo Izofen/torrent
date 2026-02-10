@@ -19,6 +19,8 @@ Black Books — небольшой книжный магазин в Лондон
 magnet:?xt=urn:btih:AF709CCEF564F2A8D4DCBBCEC3A1B51F359746BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Black Books — небольшой книжный магазин в Лондон
 ```bash
 magnet:?xt=urn:btih:D8E396CB0F6E0102E2FED75B57315147FA72FA85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:D8E396CB0F6E0102E2FED75B57315147FA72FA85
 magnet:?xt=urn:btih:53106AD9D2BE2ED6442BC22EBABDEB14936B559C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Uru: Ages Beyond Myst (2003) [Ru] (1.0) UInofficial
 ```bash
 magnet:?xt=urn:btih:24D92F7A47C51AA704EB5713FF3AB9207E954B60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Yuusha ga Shinda! | The Legendary Hero Is Dead! | Гeрoй сдoх! [2023, TV, 1
 magnet:?xt=urn:btih:F377F2664FCE8CB1D076A785B5B9E4A06F001E78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Adobe InDesign 2023 18.3 U2B [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6A7069E73BFF503DA3A8ACEB30F6AA344275A6A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ AVG AntiVirus FREE - не замедляющая работу системы б�
 magnet:?xt=urn:btih:9715809D07A8C3C726A9A2B118C17720400A1CCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Welcome to the ultimate Python learning experience! The Python Mega Course is de
 magnet:?xt=urn:btih:A154A9444D1213539F8CB8F9286A394CD4E930A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ magnet:?xt=urn:btih:A154A9444D1213539F8CB8F9286A394CD4E930A8
 ```bash
 magnet:?xt=urn:btih:C7CFA5FAA5F6132A329500CF962EB8F9407B6879
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:C7CFA5FAA5F6132A329500CF962EB8F9407B6879
 magnet:?xt=urn:btih:A054B712976435A9F977F3035091F872388DCED5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:A054B712976435A9F977F3035091F872388DCED5
 ```bash
 magnet:?xt=urn:btih:6551E74A365152BCFD15D9AC8B0C2F4C2DEB0B46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:6551E74A365152BCFD15D9AC8B0C2F4C2DEB0B46
 magnet:?xt=urn:btih:2C8DB7D737DD651B1D4D9889ADA68433F031F960
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Isekai One Turn Kill Nee-san: Ane Douhan no Isekai Seikatsu Hajimemashita / Др
 ```bash
 magnet:?xt=urn:btih:D0F2350B48E894862C884E9A5BEC6807EAC78657
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ ZoneAlarm Extreme Security - это мощнейшая программа, об�
 magnet:?xt=urn:btih:2A774CEB169FA525D1A4F2129115CDB77845F5EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Yuusha ga Shinda! | The Legendary Hero Is Dead! | Герой сдох! [2023, TV
 ```bash
 magnet:?xt=urn:btih:9E88C900D6F947A241F4D978A6759B01742A9C7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Cyberpunk 2077 — приключенческая ролевая игра, де�
 magnet:?xt=urn:btih:3394032382B57E63198743E6CDB76C2F7A766B72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:3394032382B57E63198743E6CDB76C2F7A766B72
 ```bash
 magnet:?xt=urn:btih:3EC1F7442D806392F585E07C26E3B9A11FB9B556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:3EC1F7442D806392F585E07C26E3B9A11FB9B556
 magnet:?xt=urn:btih:2B8B3CE328A78AE56B450AEE9286A0B807DD2407
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Adobe Photoshop 2023 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:282FEE6BA001517D89B24F921C9DE9B11239E366
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Windows 10 v22H2 19045.3086 и Windows 10 Корпоративная LTSC v21H2 
 magnet:?xt=urn:btih:5E80D4F7C1876A5A9DF12490BFA564E6155E38A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:5E80D4F7C1876A5A9DF12490BFA564E6155E38A5
 magnet:?xt=urn:btih:FBD722B1BDB48166EED05A398C08E161F0A559FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ MAXON CINEMA 4D – простая в использовании професс�
 ```bash
 magnet:?xt=urn:btih:09FE19DCC4CC95D231B7EF07DF215C5B828C5DAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Windows 10 Professional 20H2 x64 Game OS 1.4 by CUTA [Ru]
 magnet:?xt=urn:btih:44663B2B59401421B950BB2EFA8058D64D10D7A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:44663B2B59401421B950BB2EFA8058D64D10D7A6
 ```bash
 magnet:?xt=urn:btih:AC2D996BD46A013A4D0E765CA981BB6064CDB269
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:6EDBB55D44E588D3F5E64A4BEB71E9678446D90B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Adobe Premiere Pro 2023 - профессиональная программа д
 ```bash
 magnet:?xt=urn:btih:5AFD91BB91A190EF2086B771095492D540C41779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

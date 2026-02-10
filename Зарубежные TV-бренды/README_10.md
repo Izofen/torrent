@@ -19,6 +19,8 @@ NG: Очевидцы: День «Д» / Eyewitness: D-Day (2019) WEB-DL [H.264/1
 magnet:?xt=urn:btih:11EC919F1236AA030672730FEC26F0053BF35D40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:11EC919F1236AA030672730FEC26F0053BF35D40
 ```bash
 magnet:?xt=urn:btih:FDD828669A346EC6DEF512FF61878793E0C13B24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG. Магия сокровищ Диснея / Magic of the Disney Treasure (202
 magnet:?xt=urn:btih:92DB704ECA349379626A3CE547905688A0521A09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG. Последняя тайна Клеопатры / Cleopatra's Final Secret 
 ```bash
 magnet:?xt=urn:btih:5B96C25F8DB9D628A9E0F0510170597F6E83DCDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:5B96C25F8DB9D628A9E0F0510170597F6E83DCDE
 magnet:?xt=urn:btih:E4655B65C2A120AB6E63F96B00D2C4DA4B8E7EC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:E4655B65C2A120AB6E63F96B00D2C4DA4B8E7EC0
 ```bash
 magnet:?xt=urn:btih:33273A02C32BB476A46E0C1F30073FDACD2BCBDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:33273A02C32BB476A46E0C1F30073FDACD2BCBDB
 magnet:?xt=urn:btih:D46667C7BB3A6D351EEBDD5E306239D82970E2B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:D46667C7BB3A6D351EEBDD5E306239D82970E2B8
 ```bash
 magnet:?xt=urn:btih:D7AE87A7853D12B2C39AA9B3D69B86AAE6746F88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ BBC. Прирождённые бунтари / Natural Born Rebels (2018) WEB-DL
 magnet:?xt=urn:btih:F5D42DDB2611E297EA6C18AA575277F4AC550980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ BBC. Супер Белки / Super Squirrels (2018) WEB-DL [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:62069EC2707535EFBF316E335808041FBDE05B9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ BBC. Силы Природы с Брайаном Коксом / Forces of Nature
 magnet:?xt=urn:btih:B3959E03E2D5D58EB883CEF05FA08099DA08A9A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ BBC. Вымирание: Факты / Extinction: The Facts (2020) WEB-DL [H.264
 ```bash
 magnet:?xt=urn:btih:59ACFEB194915D66DD08933AF215DDA853F2FF17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ BBC. Аттенборо и Кладбище Мамонтов / Attenborough and 
 magnet:?xt=urn:btih:CCE7FC8A5C1E5526119BBFE3E49AD6022EA560CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:CCE7FC8A5C1E5526119BBFE3E49AD6022EA560CB
 ```bash
 magnet:?xt=urn:btih:256A5C64BA4103D954D9D65DAB54FEA1CA1179B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ BBC. Вселенная / Universe (2021) BDRemux [H.264/1080i] (серии 1-5 
 magnet:?xt=urn:btih:A8C87AB38C1640C890ECBCCAE8460C435D665D71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ BBC. Эдем: Неукротимая Планета / Eden: Untamed Planet (202
 ```bash
 magnet:?xt=urn:btih:729D6912C45272767068E71123DA0F40B679A8EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:729D6912C45272767068E71123DA0F40B679A8EE
 magnet:?xt=urn:btih:B0E56AEBC655FD77FAADBF9D8888017364416B50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ NG. Непокорный остров / Port Protection (Lawless Island) (2023) 
 magnet:?xt=urn:btih:1B63DD8C13F4EB5CAF1712F946A412C7B58DB856
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ BBC. Horizon: Вся правда об упражнениях / The Truth About 
 ```bash
 magnet:?xt=urn:btih:A9F4B0635D860995D9CFEE15418D3906DC40D376
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ BBC. Подделка или удача / Fake or Fortune? (2016) HDTVRip (се�
 magnet:?xt=urn:btih:F483FD38DFD3768423F18967B037F600C6B2CBD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ BBC. Подделка или удача / Fake or Fortune? (2015) HDTVRip (се�
 ```bash
 magnet:?xt=urn:btih:3023ED094743DCC10E544FB25346B11305A16649
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ BBC. Подделка или удача / Fake or Fortune? (2014) HDTVRip (се�
 magnet:?xt=urn:btih:EFBDC5DE035456FF0484E5DE48CF3F334B6A74E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ BBC. Подделка или удача / Fake or Fortune? (2012) HDTVRip (се�
 ```bash
 magnet:?xt=urn:btih:242C44C91DA3FEE77968391F7649B334A3B8E4CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ BBC: Горькое озеро / Bitter Lake (2015) WEB-DLRip [H.265/1080p-LQ] [
 magnet:?xt=urn:btih:02E66BCC2F8CEE95EA954BA14D826CA7220FFAF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:02E66BCC2F8CEE95EA954BA14D826CA7220FFAF4
 magnet:?xt=urn:btih:B2C9AF8C229C2E3A6F3B2489B134EAEF03BC04A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:B2C9AF8C229C2E3A6F3B2489B134EAEF03BC04A8
 ```bash
 magnet:?xt=urn:btih:965B67D20466724A301B0FE940C7624A0623EAC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

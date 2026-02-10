@@ -19,6 +19,8 @@ Umagic AI / ИИ Рисует v1.7.7 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:C8EE5C2F6BB9974DE129DCDE468F2D8E2F983686
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Battery Guru предоставляет продвинутые инструме�
 ```bash
 magnet:?xt=urn:btih:E480808E202684428387A37FF5E4A7703CD7D520
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Fake GPS v5.6.2 Mod by Balatan [En]
 magnet:?xt=urn:btih:398205F5C2A69779BFD36028AAA1E2B89C3823CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ AIDA64 v2.10 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E5EFDBFAB3DE0F6C2942BF3DDDF8694BB651F728
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ VN - это видеоредактор предназначенный специ
 magnet:?xt=urn:btih:4599599B9420ED55FEE2AE6735BED3B3E0B405E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ AdGuard — уникальный блокировщик рекламы без п
 ```bash
 magnet:?xt=urn:btih:E39B5524788AAC0F978D7FBC513661A77E35C031
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Karing - Утилита прокси с простым и мощным инте�
 magnet:?xt=urn:btih:C51A8E2FB19B43DFD869F38787C68767E9F96616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Earth 3D v9.4.1 Mod by ApplicazioniCR [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1DBC5B43E7D9F38C9402B9EEAEDE7116C7E2C41E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ ByeByeDPI v1.5.7 [Ru/Multi]
 magnet:?xt=urn:btih:D1CD8869032FE55D8DD945E52620D43ED405713A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Happy Color — самая популярная и излюбленная бес
 ```bash
 magnet:?xt=urn:btih:F7605D49243A974EB5A304818C3CD81535A127EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ SD Card Test Pro v2.5 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:D4C6D9F173A5A7921A5DEC3E08281A353E3DD0A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ InShot - Мощный видеоредактор и фоторедактор н�
 ```bash
 magnet:?xt=urn:btih:9FD2EAFB192251F1D264461D444B29AF1CED2E3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Sleep as Android: отличный сон v20250620 Mod by Alex.Strannik [Ru/Mul
 magnet:?xt=urn:btih:FF9E4AC1311C67880F1DCBBD0E7A25036A6FC61C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ One Read / Все Документы Читатель - Офис v1.2.4.48 Mod b
 ```bash
 magnet:?xt=urn:btih:49DBAAB2010FA8E23EFE65EF419A83B499CD3372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ FixPlus — Редактор лица и тела v1.47.118 Mod by PieMods [Ru/M
 magnet:?xt=urn:btih:43CC1B64EB3FE4510B160C0B6B7C8C68B91B1E7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:43CC1B64EB3FE4510B160C0B6B7C8C68B91B1E7C
 magnet:?xt=urn:btih:702EDF77B9441B463D7BB7F04698353F6D972B0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:702EDF77B9441B463D7BB7F04698353F6D972B0F
 ```bash
 magnet:?xt=urn:btih:0E12A20E7148FC3C140DC3B2B3194D041CF95A91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ HDRezka TV — это неофициальный клиент для просм�
 magnet:?xt=urn:btih:9756DCB742079C4FD8CD75BBF926EC50A609BB43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:330E4AA62E964B280D4C9011782471626BBE9AA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:330E4AA62E964B280D4C9011782471626BBE9AA4
 magnet:?xt=urn:btih:0757454D5940B4FE23B52BE0D4DBB8FC1D1DD938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:0757454D5940B4FE23B52BE0D4DBB8FC1D1DD938
 ```bash
 magnet:?xt=urn:btih:8A99F871704FE50E40E57CF248144090967DE1AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Tone Generator PRO v3.84 Mod by NURIK [Ru]
 magnet:?xt=urn:btih:CA6BAF92196C6E8A6E725042C1977EC88A7358FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ EOBD Facile - автосканер обд2 последнего поколени
 ```bash
 magnet:?xt=urn:btih:DBF23D5E88F3EDD70934876ABDE726047D7607CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Offline Translator - это автономный переводчик
 magnet:?xt=urn:btih:C390466945D06EC505A9EA4AD1CEACF51C281F3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:C390466945D06EC505A9EA4AD1CEACF51C281F3C
 magnet:?xt=urn:btih:4D7F637611BE3E0FFB00A816E27B719E2230B142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ CCleaner - один из самых известных и популярных �
 ```bash
 magnet:?xt=urn:btih:404B44879E526446602DBD2C68D2665018B215AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1285097   (724608) от 24.02.2019
+
+Король, обманувший Гитлера / The King Who Tricked Hitler (2016) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Вторая Мировая война
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_724608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это одна из самых невероятных историй Второй мировой войны, рассказанная последним королем Румынии Михаилом I. Это история о решении короля, который в критический момент Второй мировой войны отказался от поддержки Германии, направив Румынию к союзникам. Считается, что это сократило войну на несколько месяцев, однако свобода Румынии была недолгой... Это история дворцовых (   Читать дальше...   )Производство: РумынияЖанр: Документальный, биография, война, историяРежиссер: Тревор ПоотсПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Субтитры: Английские на румынскую речь (вшитые)Продолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71020ABBC017AE43FCC6A1D249B25E6BA181652E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023603   (724643) от 05.06.2016
 
 Воскресное время - Первый канал (05.06.2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:47AC7AE8AF6B74487E6A1F8C2778B2F3131E7D79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:47AC7AE8AF6B74487E6A1F8C2778B2F3131E7D79
 magnet:?xt=urn:btih:C57393B5C09F3282B5C5A3CD2D6DB915D881BDD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:C57393B5C09F3282B5C5A3CD2D6DB915D881BDD2
 ```bash
 magnet:?xt=urn:btih:4F5752D697879F31C9052D5E1040C8A247DC1D4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:4F5752D697879F31C9052D5E1040C8A247DC1D4B
 magnet:?xt=urn:btih:C67673D01EE25AB4CDB336E6AECFBF41CD8D47B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:C67673D01EE25AB4CDB336E6AECFBF41CD8D47B9
 magnet:?xt=urn:btih:ECF60FD3DC1603B616CC89BC5685E6610F9D1B97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:ECF60FD3DC1603B616CC89BC5685E6610F9D1B97
 ```bash
 magnet:?xt=urn:btih:15AB1009E26E34163BC080593AFC265EC01ED75C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:15AB1009E26E34163BC080593AFC265EC01ED75C
 magnet:?xt=urn:btih:CF0D67BA20E464EB7E2BCEEBBA887BC9F2775A49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:CF0D67BA20E464EB7E2BCEEBBA887BC9F2775A49
 ```bash
 magnet:?xt=urn:btih:77422BB23EE7597A83C7E2E16F53C62A4C46387F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:77422BB23EE7597A83C7E2E16F53C62A4C46387F
 magnet:?xt=urn:btih:7922AD1343ABDCC985459FDF7DF2A2BE9B188167
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:7922AD1343ABDCC985459FDF7DF2A2BE9B188167
 ```bash
 magnet:?xt=urn:btih:47A74CB3E78304F29C362D429252A28D33D3264B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:47A74CB3E78304F29C362D429252A28D33D3264B
 magnet:?xt=urn:btih:66C4F16DA171DB64FADFD18B6D15C35894AC4DD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:66C4F16DA171DB64FADFD18B6D15C35894AC4DD9
 ```bash
 magnet:?xt=urn:btih:ECD12143BA81DE052853EE0A42B1E32F976C21C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:ECD12143BA81DE052853EE0A42B1E32F976C21C0
 magnet:?xt=urn:btih:F493341D5E3D019C625C1C8C08C565B8BBB952AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:F493341D5E3D019C625C1C8C08C565B8BBB952AB
 ```bash
 magnet:?xt=urn:btih:E5CE2A8649CBEC75C4B062F0328D2E4E43CED55C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:E5CE2A8649CBEC75C4B062F0328D2E4E43CED55C
 ```bash
 magnet:?xt=urn:btih:BF4695FA48E08B7E96C58D9EA939E95977EDF76F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:BF4695FA48E08B7E96C58D9EA939E95977EDF76F
 magnet:?xt=urn:btih:994130A144119743203E3C7AA8AB720BC421AF3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:994130A144119743203E3C7AA8AB720BC421AF3C
 ```bash
 magnet:?xt=urn:btih:79C485142B9AFE2D62C013C4F2AA7A2A8D0D17AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:79C485142B9AFE2D62C013C4F2AA7A2A8D0D17AE
 magnet:?xt=urn:btih:6649735B1626D0FF5ECD41722ACDA07AB70D6302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:6649735B1626D0FF5ECD41722ACDA07AB70D6302
 ```bash
 magnet:?xt=urn:btih:EAAABE16FA3A6381AAEC59C3DAE2F559757D8158
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:EAAABE16FA3A6381AAEC59C3DAE2F559757D8158
 magnet:?xt=urn:btih:96DA6F67E4342F47CB1CED05D5B9845A284C59B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:96DA6F67E4342F47CB1CED05D5B9845A284C59B9
 ```bash
 magnet:?xt=urn:btih:72703A84C5483891BED7752DF3D02AE5F4199A26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:72703A84C5483891BED7752DF3D02AE5F4199A26
 magnet:?xt=urn:btih:36D23519DB814F849CDC1153B638A15CFD100EBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:36D23519DB814F849CDC1153B638A15CFD100EBD
 ```bash
 magnet:?xt=urn:btih:5609E08F2F7883ECA294FF57273251261843B17E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:5609E08F2F7883ECA294FF57273251261843B17E
 magnet:?xt=urn:btih:89017969580D7637496C28C7CABEE6CF35D66FA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:89017969580D7637496C28C7CABEE6CF35D66FA3
 magnet:?xt=urn:btih:6658C4EF3358C5788E7B799BCDA0490FC0445226
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128541   (726278) от 26.04.2017
-
-Арии. Следы белых богов (2017) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ариями – являются нация уникальных людей, у которых есть поистине нечеловеческие способности. Про этих людей сложено множество легенд, а их следы были обнаружены в самых различных уголках земного шара. Но их загадочная пропажа до наших дней остается тайной за семью печатями. Могла ли послужить причиной жестокая бойня между расами ариев и атлантов? Если это предположение (   Читать дальше...   )Телекомпания: Россия, РЕН ТВЖанр: ДокументальныйПродолжительность: 01:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B8C833116AE5FF2CF2F1D1CBB75DA7E646F201
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

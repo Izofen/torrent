@@ -1,3 +1,29 @@
+###  Публикация: 1406992   (470589) от 05.09.2020
+
+Эрик Клэптон: Жизнь в 12 тактах / Eric Clapton: Life in 12 Bars (2017) DVB [H.264/1080p-LQ]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_470589.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Клэптон — бог». Весь Лондон исписан такими граффити, а Эрик давно стал настоящим героем гитарной музыки. Это один из величайших музыкантов — единственный, кто трижды был включен в Зал славы рок-н-ролла, обладатель 18 премий "Грэмми" и известный всем как один из величайших исполнителей всех времен. Фильм дает возможность проследить за жизнью и карьерой (   Читать дальше...   )Телекомпания: Великобритания / Passion PicturesЖанр: Документальный, Биография, МузыкаРежиссер: Лили Фини ЗанукПеревод: Двухголосый профессиональныйСубтитры: Русские (Teletext)Продолжительность: 02:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2D8F77B21D25C0A083DF7437EC54AD66A44C8AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406866   (470702) от 05.09.2020
 
 Главная дорога (05.09.2020) SATRip
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:38D0F6B080C4E45C1A2D8EFF6642522A357391A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:38D0F6B080C4E45C1A2D8EFF6642522A357391A5
 ```bash
 magnet:?xt=urn:btih:E13C816509A07C01E40632EF5A2E7E637EEA8BEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:E13C816509A07C01E40632EF5A2E7E637EEA8BEE
 magnet:?xt=urn:btih:66E6DDD95E10A22F18B6984E4B6DDA14EAA878BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:66E6DDD95E10A22F18B6984E4B6DDA14EAA878BD
 ```bash
 magnet:?xt=urn:btih:D7170515D46FD6B058E496687E8CEEFA7BEB824D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:D7170515D46FD6B058E496687E8CEEFA7BEB824D
 magnet:?xt=urn:btih:E566CAF9BDBD88EEDE7E4A8713C49AEA5A81D398
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:E566CAF9BDBD88EEDE7E4A8713C49AEA5A81D398
 ```bash
 magnet:?xt=urn:btih:086D882567C765AABC9673190A8CA9254CF60816
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:086D882567C765AABC9673190A8CA9254CF60816
 magnet:?xt=urn:btih:1FB428AE929C426C05A7342D52E362B051B1302E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:1FB428AE929C426C05A7342D52E362B051B1302E
 ```bash
 magnet:?xt=urn:btih:3B33774744D726C188176D8A54AC95DA77734563
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:3B33774744D726C188176D8A54AC95DA77734563
 magnet:?xt=urn:btih:128E6AB774CECD3FB23564D7C02500CFFA2DEA4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:128E6AB774CECD3FB23564D7C02500CFFA2DEA4D
 ```bash
 magnet:?xt=urn:btih:69A15E4E874E786B34D53B326BB6C83A48C396BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:69A15E4E874E786B34D53B326BB6C83A48C396BB
 magnet:?xt=urn:btih:D310250721CB15D4E4AA8F4AFD85930D31E496BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:D310250721CB15D4E4AA8F4AFD85930D31E496BE
 magnet:?xt=urn:btih:0978996D29F9DF73666FBA5BB4071BFAA060AEC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:0978996D29F9DF73666FBA5BB4071BFAA060AEC7
 ```bash
 magnet:?xt=urn:btih:A6134CE93177A4C23423CE5935F57D88C57C1803
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:A6134CE93177A4C23423CE5935F57D88C57C1803
 magnet:?xt=urn:btih:C3AE9CFE795D6993613BA9D968C602CF0A78CE07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:C3AE9CFE795D6993613BA9D968C602CF0A78CE07
 ```bash
 magnet:?xt=urn:btih:C0A5BDE95FAF26F6D9C417E3BD99D83A8B9AEDE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:C0A5BDE95FAF26F6D9C417E3BD99D83A8B9AEDE3
 magnet:?xt=urn:btih:72AD5E2D225449CC6CB0FD4684F168CB70BFEF2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:72AD5E2D225449CC6CB0FD4684F168CB70BFEF2E
 ```bash
 magnet:?xt=urn:btih:B759A739D8B9478B3BB385E915F7D1D1130C1C76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:B759A739D8B9478B3BB385E915F7D1D1130C1C76
 magnet:?xt=urn:btih:D3F45701D00DB7A891BC9A28C8652FF0AAB0B01F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:D3F45701D00DB7A891BC9A28C8652FF0AAB0B01F
 ```bash
 magnet:?xt=urn:btih:E8345DCEE4D8F354885C2D268D0AEFAAC9D63A81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:E8345DCEE4D8F354885C2D268D0AEFAAC9D63A81
 magnet:?xt=urn:btih:CEE8020DE73A93BBD2A48B8CDDB118C348BB4DF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:CEE8020DE73A93BBD2A48B8CDDB118C348BB4DF0
 ```bash
 magnet:?xt=urn:btih:F1EE2051516168F528C64645847ADB26B93DDDF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:F1EE2051516168F528C64645847ADB26B93DDDF3
 magnet:?xt=urn:btih:32184798C76F2D0E733E17C55EFBD13AA79644BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:32184798C76F2D0E733E17C55EFBD13AA79644BA
 ```bash
 magnet:?xt=urn:btih:01B796D30E37A7AD5742F114C212C34F18656129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:01B796D30E37A7AD5742F114C212C34F18656129
 magnet:?xt=urn:btih:417C09686D66083649D45BAF3BFD08F1478FC1D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:417C09686D66083649D45BAF3BFD08F1478FC1D5
 magnet:?xt=urn:btih:7A72AE9DB1A96F6904AAD87215449B3E9A558F17
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058184   (471434) от 30.09.2016
-
-В центре событий с Анной Прохоровой (30.09.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_471434.jpg" />
-</div>
-
-
-###  Подробнее
-
-"В центре событий" о том, что действительно важно: 1. Сдают нервы. Что стоит за внешнеполитической истерикой Саманты Пауэр? 2. Демагог и бизнесмен. Первая дуэль Клинтон и Трампа. 3. Пляски на гробах. Софийский собор готовится встретить Евровидение.Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 00:52:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:847C9123D3EA43C33EE79B6D70B53207C761CC1B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

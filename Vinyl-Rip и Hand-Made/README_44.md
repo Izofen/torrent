@@ -22,6 +22,8 @@ A4 Where You Are(   Читать дальше...   )Жанр: Hard RockПрод�
 magnet:?xt=urn:btih:D21262AB5F1F6425EE985BA8DEFF9D540381C3BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Sorcerer — шведская эпическая дум-группа из Сто
 ```bash
 magnet:?xt=urn:btih:BDC3ED87E069E8D7549EFC266D31E2662FEEC012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ B2. Elysian Woes (04:48)(   Читать дальше...   )Жанр: Progressiv
 magnet:?xt=urn:btih:5F06BE16125C39D0796051A37FD0283724566321
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Fuel - Studio Albums (6 releases) (1998-2021) hand made [restored, declipped] [F
 ```bash
 magnet:?xt=urn:btih:6AC20FB2D7A206ED1F7F303F5EE0549799AE4DB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ A4 Story Of A Girl I Knew (Lasko Ma, Nerikej Dik)(   Читать дальше..
 magnet:?xt=urn:btih:F05263E71FB7BC6D610F935F3E66650053AA3C22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ B2. Atonement (06:30)(   Читать дальше...   )Жанр: Progressive D
 ```bash
 magnet:?xt=urn:btih:E89F8A35A60B642F0F62640D7A456FE28BE0A101
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ B1. Slither (04:03)(   Читать дальше...   )Жанр: Progressive Dea
 magnet:?xt=urn:btih:E49269CE9A95AB7D03D11EEDCA85332FAB051E75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Sabaton — шведская хэви-пауэр-метал группа, осн
 ```bash
 magnet:?xt=urn:btih:F03A16672CE4EC97B33F11FC26C041D01801B51A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Arcturus — норвежская группа, играющая авангар�
 magnet:?xt=urn:btih:F40F45A128E4EB1B8FC3F1992EE06F089970B4B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ Alien Weaponry — новозеландская метал-группа из В�
 ```bash
 magnet:?xt=urn:btih:ADEB6617791BB0EDDE730568EE155EF4BFEEA738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ A4	The Need To Be Free(   Читать дальше...   )Жанр: Synth-Pop, D
 magnet:?xt=urn:btih:E5FC48365F8397BBF2513419B15EC380E6218D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +339,8 @@ A4. I Want It All (4:41)(   Читать дальше...   )Производст
 ```bash
 magnet:?xt=urn:btih:F68374BE5617866AF4E17D78AC06517CB54C4A5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +369,8 @@ A4  I'm Alive(   Читать дальше...   )Жанр: Classic Rock, Prog Ro
 magnet:?xt=urn:btih:8F1BA2F737F46C0D386C8682EC6C51D1C277974D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +397,8 @@ Michel Legrand - Legrand Jazz (1958) [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Jazz
 ```bash
 magnet:?xt=urn:btih:F9664897486EBDB6E8D5CA8CF1AADEF4ABB3A8D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +427,8 @@ A4. Give Me Something (1:35)(   Читать дальше...   )Производ
 magnet:?xt=urn:btih:3EB95406EDB5EC49270208A11177AFDD1E23A082
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +455,8 @@ A4 Goodnight Irene(   Читать дальше...   )Жанр: Celtic, Folk, Ea
 ```bash
 magnet:?xt=urn:btih:52A7AA0F1D98679ACFBF1ACB9AD27491F0398F8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +485,8 @@ A4 Master Of The Deep(   Читать дальше...   )Жанр: Heavy MetalП
 magnet:?xt=urn:btih:1486F1F1ADA50A18A99DE57232FB9633CF3BA5F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +513,8 @@ Ultimate Christmas, Vol. 1
 ```bash
 magnet:?xt=urn:btih:7FE42AAD15DE06B40A307BB5F86301B14A7F2561
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +543,8 @@ VA - Новогодняя дискотека (1989) [FLAC 2.0|96/24|tracks|Vinyl
 magnet:?xt=urn:btih:EE3DE25AFA03C429A843CCE9D2E9A08D81E04FA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ A3 The Song Is You(   Читать дальше...   )Жанр: Pop, Instrumenta
 magnet:?xt=urn:btih:09B3AA6E7A62379B1211A40C3788E8C030AB90C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +599,8 @@ magnet:?xt=urn:btih:09B3AA6E7A62379B1211A40C3788E8C030AB90C3
 ```bash
 magnet:?xt=urn:btih:5B270A962F96D1E5B86AD73E708F79046F07FECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +629,8 @@ Led Zeppelin - The Song Remains The Same 1976 (2007) [FLAC 2.0|192/24|tracks|Vin
 magnet:?xt=urn:btih:1FD99A40670FB185F5F35388448C365CC9DCA6CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:A8DE0B547A24B3D13FFC667C536121492C55DC96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +687,8 @@ B2. The Drapery Falls (10:52)(   Читать дальше...   )Жанр: Progr
 magnet:?xt=urn:btih:1AA060F65666CDE58970FC83A6EFDDCEE0CF1BEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ Leonard Cohen - Thanks for the Dance (2019) [FLAC 2.0 24/192|image (Vinyl-Rip)]<
 ```bash
 magnet:?xt=urn:btih:E4B856C6887D03482BB918D17F88CCB19526C9A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,6 +750,8 @@ Yello - You Gotta Say Yes To Another Excess (1983) [FLAC 2.0 24/96|traks(Vinil-R
 ```bash
 magnet:?xt=urn:btih:D891DA1AE4586B582B8C619B9581245841CD0075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

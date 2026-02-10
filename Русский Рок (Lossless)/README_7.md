@@ -28,6 +28,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -88,6 +92,8 @@ Seven Seals - ... of Contradictions (2012) Авторская раздача [FL
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +127,8 @@ Seven Seals - ... of Contradictions (2012) Авторская раздача [FL
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +155,8 @@ Seven Seals - ... of Contradictions (2012) Авторская раздача [FL
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +191,8 @@ The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Met
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +225,8 @@ The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Met
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +261,8 @@ The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Met
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +295,8 @@ The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Met
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +331,8 @@ The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Met
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +366,8 @@ The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Met
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +394,8 @@ The Korea - Колесницы Богов (2012) [FLAC|Lossless]<Progressive Met
 ```bash
 magnet:?xt=urn:btih:4E41EF5E792D414FB2808E333A26196A25ED50BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +425,8 @@ magnet:?xt=urn:btih:4E41EF5E792D414FB2808E333A26196A25ED50BC
 magnet:?xt=urn:btih:227EE8F9BB3575EC26AC2642AD3070355D1A51C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +453,8 @@ magnet:?xt=urn:btih:227EE8F9BB3575EC26AC2642AD3070355D1A51C5
 ```bash
 magnet:?xt=urn:btih:7B5B60F00B4790B59EB0E419642261E0C932F227
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +483,8 @@ magnet:?xt=urn:btih:7B5B60F00B4790B59EB0E419642261E0C932F227
 magnet:?xt=urn:btih:BAFEF867909D5D4A565D0A0849C082034124F217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +511,8 @@ magnet:?xt=urn:btih:BAFEF867909D5D4A565D0A0849C082034124F217
 ```bash
 magnet:?xt=urn:btih:C021000E34D91730D7BFCFB1DB9FBE23731E84DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +547,8 @@ VA - Masterland.com - 10 Лет В Сети (2012) [FLAC|Lossless]<Heavy / Power
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +582,8 @@ VA - Masterland.com - 10 Лет В Сети (2012) [FLAC|Lossless]<Heavy / Power
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +612,8 @@ Nightside Glance — белорусская sympho/modern/black metal групп
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +648,8 @@ Nightside Glance — белорусская sympho/modern/black metal групп
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +676,8 @@ Nightside Glance — белорусская sympho/modern/black metal групп
 ```bash
 magnet:?xt=urn:btih:D1E081DBC004BFE62A4DC15458CBF9FF15AD0C12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +706,8 @@ magnet:?xt=urn:btih:D1E081DBC004BFE62A4DC15458CBF9FF15AD0C12
 magnet:?xt=urn:btih:CF023D1078857AAE7876B4820D600E5995858A35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +734,8 @@ magnet:?xt=urn:btih:CF023D1078857AAE7876B4820D600E5995858A35
 ```bash
 magnet:?xt=urn:btih:C5F1153A17C88785B083112B087F8071903789F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -718,6 +764,8 @@ magnet:?xt=urn:btih:C5F1153A17C88785B083112B087F8071903789F6
 magnet:?xt=urn:btih:D8620F816DC10110CCDC037953EA84CD6C4B6EB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -745,6 +793,8 @@ magnet:?xt=urn:btih:D8620F816DC10110CCDC037953EA84CD6C4B6EB4
 magnet:?xt=urn:btih:CBD01FFC9B4D77621065CC9FF434DBB6E8C6FC58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -771,6 +821,8 @@ magnet:?xt=urn:btih:CBD01FFC9B4D77621065CC9FF434DBB6E8C6FC58
 ```bash
 magnet:?xt=urn:btih:CA543906E6EFE401E580068FB37D306992061E2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

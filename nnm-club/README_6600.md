@@ -19,6 +19,8 @@ Not For Broadcast (2022) [Ru/Multi] (2023.03.24a/dlc) Repack Chovka [Deluxe Edit
 magnet:?xt=urn:btih:529AAADA66745C9D23F4D77E422455ED821C04E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VA - Chill Out Electronic Music (2023) [MP3|320 Kbps] <Electronic, Synthwave, Re
 ```bash
 magnet:?xt=urn:btih:46A42B9F5CEF22F248FF7E1DCA80711C9ABFFF5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - 90er Best Of (2023) [MP3|320 Kbps] <Pop, Rock, RnB>
 magnet:?xt=urn:btih:7D8CCC4198D801873B4064855C98F471822B35B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:7D8CCC4198D801873B4064855C98F471822B35B8
 ```bash
 magnet:?xt=urn:btih:37ACF34509341CB1D2D1A5C0B6B3EE9F4990044A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:37ACF34509341CB1D2D1A5C0B6B3EE9F4990044A
 magnet:?xt=urn:btih:BE42B22BD3462D86ED5E75927952BE24063E1A96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ MAGIX Vegas PRO — профессиональная программа для �
 ```bash
 magnet:?xt=urn:btih:F24C7AAF2AB50B8174945871A1545C7CD86EE16A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ VA - Movement In The Void (2022) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:45DCF68C0EC53031EAC90A72FD20FD9C997D3F8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ ReNamer - программа, позволяющая пакетно переим
 ```bash
 magnet:?xt=urn:btih:4180A9797CDB0F8C7BEA47B121B8E96AB1871301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:4180A9797CDB0F8C7BEA47B121B8E96AB1871301
 magnet:?xt=urn:btih:27985FD5C8A52E04D4D60DB3D415682CB55AF967
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:27985FD5C8A52E04D4D60DB3D415682CB55AF967
 ```bash
 magnet:?xt=urn:btih:58F84D9379FE5298B103872B0EBA1C678EB174B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ VA - Warm Time Trance Session (2023) [MP3|320 Kbps] <Trance, Electro>
 magnet:?xt=urn:btih:870601196F0F7D6736DCC7AE372D3BFD00290539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ Isekai Nonbiri Nouka | Farming Life in Another World | Фермерская жи
 ```bash
 magnet:?xt=urn:btih:4F456542EB58DF04FF1163D03F2F59C66810CFD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:4F456542EB58DF04FF1163D03F2F59C66810CFD9
 magnet:?xt=urn:btih:AC8DBBEAB1A45E20159EFA162283706CECBBC4AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:AC8DBBEAB1A45E20159EFA162283706CECBBC4AF
 ```bash
 magnet:?xt=urn:btih:FFBEFD7750DA7CE2CBF3D64C53285B9BB2451088
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Class101, Studio Pants | Retro Video Game Like Illustrations: Pixel Art for Begi
 magnet:?xt=urn:btih:2D0DCBCABB69C7AC45901D86C30EC0D6F7C5FB12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:2D0DCBCABB69C7AC45901D86C30EC0D6F7C5FB12
 ```bash
 magnet:?xt=urn:btih:AA7F7D18080B5D38F74B3A72195AEB45785BA799
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:AA7F7D18080B5D38F74B3A72195AEB45785BA799
 magnet:?xt=urn:btih:F2B6D7400599737EBB24AE688D9ED0DC4395A149
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ AnyDesk 7.1.9 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2611C82BEA15923007F798743798A234AF9F78C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:2611C82BEA15923007F798743798A234AF9F78C9
 magnet:?xt=urn:btih:E6097856F250635C2739EE6FADF5375B2CC4FF72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ Counter-Strike 2 реальна, бесплатна и включает все �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ LectureNotes — это приложение для Android, которое по
 magnet:?xt=urn:btih:0875B776C31B60206E75C135DD0B0220F34099BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:0875B776C31B60206E75C135DD0B0220F34099BF
 ```bash
 magnet:?xt=urn:btih:811448FE7B1EDC35F5E966102A01B94C915959A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ Proprofiling, Алексей Филатов | Социальная инжене�
 magnet:?xt=urn:btih:5A3CA27FA614A8597D2FCF9398345A79843CAC1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ The Legend of Heroes: Sen no Kiseki - Northern War | Легенды Героев
 magnet:?xt=urn:btih:B5E0979F0648D640DC21AAAE200B115D3173585A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ magnet:?xt=urn:btih:B5E0979F0648D640DC21AAAE200B115D3173585A
 magnet:?xt=urn:btih:38192C672D97CC9B7F524E08039BC51F82A20924
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:38192C672D97CC9B7F524E08039BC51F82A20924
 ```bash
 magnet:?xt=urn:btih:6E02DAC0593EDD623C2D4B5B8F32D6E98D0B27BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

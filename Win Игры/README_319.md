@@ -19,6 +19,8 @@ Need for Speed SHIFT является абсолютно новым симуля
 magnet:?xt=urn:btih:110C689654E60144B3465DAB022AC78C19D41304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Magic: the Gathering Arena – Оригинальная коллекционна
 ```bash
 magnet:?xt=urn:btih:B43AA0B9F5294F9F0DA74E2E1FA1AFF4B97B5DE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ JUMANJI: The Video Game (2019) [Ru/Multi] (11892) Repack Other s
 magnet:?xt=urn:btih:AC5440DB65280C7F3A131E18E70391BC9836CE1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Unholy Heights (2013) [En/Jp] (20171109) License GOG
 ```bash
 magnet:?xt=urn:btih:77161E33414F7BEDB47B6ADB3FAD82D82BB8E7D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ JUMANJI: The Video Game (2019) [Ru/Multi] (11892) Repack Butter_
 magnet:?xt=urn:btih:E67D0E7C775C32E675D540F9D82EAD8EB263A10F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Moons of Madness (2019) [Ru/Multi] (1.01) License CODEX
 ```bash
 magnet:?xt=urn:btih:FB54DBD695FE8BDB99EB11C2A354ACF77D33A3FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Pro Evolution Soccer 2019 продолжает серию симуляторов
 magnet:?xt=urn:btih:6086A6FCF8DC8B00F1985F242C2593BEF4E4AA62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Chasm (2018) [En] (1.043) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3CB2DC075E81ADD9F36E6AE9C82DD763F9F0BEB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Secrets of Great Queens 2: Regicide / Тайны великих королев 2
 magnet:?xt=urn:btih:06BD857B9BDEAA5079EEA51A5AEC3BBD8B1D70F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Warhammer 40,000: Dawn of War II - Retribution - второе отдельное
 ```bash
 magnet:?xt=urn:btih:8F66A64272B0971D8928E46644758A9C1BC4DE3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Maize – приключение с видом от первого лица, р�
 magnet:?xt=urn:btih:16A1A2FD5B14A4AEC30F9CEF70ED45E9F3412DB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Sniper Elite III (2014) [Ru] (1.15a/dlc) Rip Other s
 ```bash
 magnet:?xt=urn:btih:E6BD406A4B464BCA56E307C222B60E2D376B1BD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Killing Room – шутер от первого лица с элементами
 magnet:?xt=urn:btih:DCDDE1D402751727C39A5964A0119E11F4A28868
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ TIS-100 – бесконечная игра о программировании 
 ```bash
 magnet:?xt=urn:btih:91F3C3E8AEC611651195FD502264A9582240C199
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Off-Road Paradise: Trial 4x4 - автотриал по живописным уг
 magnet:?xt=urn:btih:FED46F92CF78CCA973385F98A2A4A4010EF08972
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:FED46F92CF78CCA973385F98A2A4A4010EF08972
 ```bash
 magnet:?xt=urn:btih:16C39F4AD4BC8733B356FD82884110DF3DEE71D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Grim Tales 10: The Heir / Мрачные истории 10. Наследник (
 magnet:?xt=urn:btih:7B40EA33F0A7A7AC8314399AB4FFEB0BECE98196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Gnomes Garden 4: New Home / Сад Гномов 4: Новый Дом (2016) [Ru]
 ```bash
 magnet:?xt=urn:btih:86B79A0E57E0CEBBEBB778C75C742A5BBD3B8112
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Nioh: Complete Edition — полное издание приключенчес�
 magnet:?xt=urn:btih:9C9C258861ABDCFCCFC7D707A2F58B79C6A17489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Dark Tales: Edgar Allan Poes Metzengerstein / Темные истории. Эд�
 ```bash
 magnet:?xt=urn:btih:8849218DCDA3B534BE4ED7E4DF4F5E13ED842E05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Surface: Return to Another World / За гранью. Возвращение в 
 magnet:?xt=urn:btih:A96D1ACBF76CAFCC54948631FD3BD81FDBE2EFDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Rite Of Passage 6: Deck Of Fates / Обряд посвящения 6: Карты
 ```bash
 magnet:?xt=urn:btih:C4A1A7A85815D412359063CA11C4D1732720FE64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Krater (2012) [Ru/Multi] (1.10.1/dlc) Repack R.G. Revenants
 magnet:?xt=urn:btih:BCBF12CAC0DAAD2307CA155F3179D3DCF3BE09BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Sinner: Sacrifice for Redemption (Грешник: Жертва во имя Ис�
 ```bash
 magnet:?xt=urn:btih:8B4D139CF72578940B05414E11C7D4F981A30004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Filthy Lucre — это изометрический стелс-экшен, со
 magnet:?xt=urn:btih:B61784200344999A86B12537765BC42B210A216E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Black Mirror (2017) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:699FD374FCC4C7A4356FF1181F657E3E90E51842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

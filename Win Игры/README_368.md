@@ -1,27 +1,3 @@
-###  Публикация: 918934   (463759) от 26.09.2015
-
-Star Hammer: The Vanguard Prophecy (2015) [En] (1.0.9) Repack leve1ord
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_463759.jpg" />
-</div>
-
-
-###  Подробнее
-
-В XXII столетии человечество покинуло погибающую Землю с целью основать новый дом Новус. Но вскоре стало понятно, что основание колонии вдалеке от родной планеты – не самое лучшее решение, ведь там люди столкнулись с наутилидами.Тип издания: RepackРазработчик: Black Lab GamesЖанр: Стратегия, ТактикаЯзык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42F5FE1C4BFD21BF2748F132ED9FFA1BFD02F662
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940967   (463791) от 26.09.2015
 
 Assault Android Cactus (2015) [En] (1.0) Repack R.G. Механики
@@ -42,6 +18,8 @@ Assault Android Cactus - это футуристический аркадный 
 ```bash
 magnet:?xt=urn:btih:7C91AA89031A46F2EB36FD955E7BDFE4134A6006
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Bridge to Another World 9: Christmas Flight / Мост в Другой Мир 9:
 magnet:?xt=urn:btih:4A12A63A754D6760ADB61B176F85CC4D6E428A68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Anomaly Defenders - это очередная часть серии Anomaly, в 
 ```bash
 magnet:?xt=urn:btih:6E20090EA1EAE9A8BA02B764D655EF330A6D7300
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +98,8 @@ Two Worlds: Game Of The Year Edition [Ru] (RePack) 2008 | Spieler
 magnet:?xt=urn:btih:0CA9C87B3611BC55E175AE868B9352948CE703EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ Dead Rising 4 (2017) [Ru/Multi] (1.0/upd4/dlc) R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:E1520C9306AEF975B431C72552C510F0237FCD86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ Mary le Chef: Cooking Passion (2017) [Ru/Mult] (1.0) Unofficial [Коллекц�
 magnet:?xt=urn:btih:A6C3B0CA707DAD9B98CB4F9DAF1E3AD0A8D80FE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ Mystery Case Files 17: Rewind / За семью печатями 17: Вспят�
 ```bash
 magnet:?xt=urn:btih:5A69B21ACF8A544CAD93D8C8F26A0D160AE7C54B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ Vanaris Tactics рассказывает историю группы людей,
 magnet:?xt=urn:btih:4BFE84B791708903C4F5CA1D874C4AC409777C91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.4.2/dlc) License EMPRESS [Ultimat
 ```bash
 magnet:?xt=urn:btih:FBED019FB489C50CDB08A006895D07A46339B3AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ Paradise Killer (2020) [En] (1.0.8.0) License GOG
 magnet:?xt=urn:btih:D532897829D113E18A1B5B429960D9235851106B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ DRAG представляет новый вид физики транспорт�
 ```bash
 magnet:?xt=urn:btih:75ADE58EC48516AF1F750176DB6BC2CACEC39CFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ Hegemony Rome: The Rise of Caesar - стратегия в реальном вр�
 magnet:?xt=urn:btih:80AA4DEBF8FF86F74B73C40CE5A9F3B373929EB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +331,8 @@ Cry of War — игра, посвященная танковым баталия�
 ```bash
 magnet:?xt=urn:btih:421D845CFC06A93B572AADD46C8A8A6C3A5434DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:421D845CFC06A93B572AADD46C8A8A6C3A5434DD
 magnet:?xt=urn:btih:85F6CB48AD00AF179703BD22B73E14064354752F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +383,8 @@ Elea (2018) [Ru/Multi] (1.0) License HOODLUM
 ```bash
 magnet:?xt=urn:btih:43D7F79B6E2DC66F800D8EBE4BE76BD08F9A34AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +410,8 @@ The Solus Project, захватывающая история выживания 
 magnet:?xt=urn:btih:C528536D3D14BF28E19424FE9CA92B45D3681560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +435,8 @@ The Evil Within (2014) [Ru/Multi] (1.05/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:91B98E24E7106B87DF547D6DA3CD7B100EF4D7C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +462,8 @@ Haunted Legends 11: The Cursed Gift / Легенды о призраках 11: �
 magnet:?xt=urn:btih:6D287CC76A6D5B7AC0FEDA29ACE68D149374EDEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +487,8 @@ Midnight Calling 4: The Wise Dragon / Полуночный Зов 4: Мудры�
 ```bash
 magnet:?xt=urn:btih:E9B86B813B2D0E57F3214F9CA6CEA37AA3106A5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +514,8 @@ Midnight Protocol (2021) [Ru/Multi] (1.3.1) License GOG
 magnet:?xt=urn:btih:E7ADB5FFE3F52273786409E91C6F14BEB1335B0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +539,8 @@ Hard West 2  — это пошаговое тактическое путешес
 ```bash
 magnet:?xt=urn:btih:3629A7EDBEE62DC9EF37040249C86105027E3196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +566,8 @@ Firewatch — игра о взрослых людях, ведущих взрос
 magnet:?xt=urn:btih:BD6C6772E71BE5E63A395EDC39857400615AAFCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +592,8 @@ Unaided 1939 - хардкорный шутер с видом сверху и э�
 magnet:?xt=urn:btih:131E339D0A231EBB897DC73D60EACC055BD9A3D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +617,8 @@ Masquerada: Songs and Shadows - это тактическая ролевая и�
 ```bash
 magnet:?xt=urn:btih:6CF500AA292B2A8C65C771CDAE412C29FC22C4F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +645,34 @@ DEEMO -Reborn- (2020) [Ru/Multi] (1.0/dlc) SteamRip CHRONOS [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:BB18A5766E8D8C7A8A008436C1B0B902E0A14AC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407075   (468049) от 06.09.2020
+
+Tony Stewart's All-American Racing (2020) [En] (1.0) Steam-Rip CHRONOS
+
+>>Win Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_468049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Созданный в сотрудничестве с трехкратным чемпионом серии NASCAR Cup и участником Зала славы NASCAR 2020 года Тони Стюартом, All-American Racing включает в себя совершенно новый физический движок с автомобилями US Legend Cars, Street Stocks и Big-Block Modified, а также 26 совершенно новыми грунтовыми трассами.Тип издания: Steam-RipРазработчик: Rayark International LimitedЖанр: Racing, Simulation, SportsЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13469AD5A334B1EAFF7FC9F54972B33EE8A24B37
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

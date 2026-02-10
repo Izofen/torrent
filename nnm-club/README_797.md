@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:8E43F068323BEFA4E6EA45281897BB9CAB980336
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Warhammer 40,000: Space Marine 2 (2024) [Ru/Multi] (7.0.0.1/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:3BD69771841AF13F5C81B38E9E12655ADD45C3B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:3BD69771841AF13F5C81B38E9E12655ADD45C3B0
 magnet:?xt=urn:btih:AAD71CCE36BC50285E9090F995F2E0ED43EEEFCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:AAD71CCE36BC50285E9090F995F2E0ED43EEEFCE
 ```bash
 magnet:?xt=urn:btih:5D5816463B03F87EE7057BEFABF3DC8ABEF9F717
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Jean Michael Jarre - Oxygene (1976) [DTS 2.0 CD-DA|1510 Kbps|tracks] <Electronic
 magnet:?xt=urn:btih:34AB9668276AD4B9F69B9FF522EA55D08B048157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ NAVITEL® выпустил глобальное обновление всех к
 magnet:?xt=urn:btih:3521563ADA1B1BC83D0DEF7A02A55931DC510E8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:3521563ADA1B1BC83D0DEF7A02A55931DC510E8F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:3521563ADA1B1BC83D0DEF7A02A55931DC510E8F
 magnet:?xt=urn:btih:99002D2014BCFF28125E0A20FBA44BE646808D01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Magenta Horizon от соло-разработчика Маддисона Бек
 magnet:?xt=urn:btih:39013E5F59916D2AB6224378B5F5E81307E21811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:39013E5F59916D2AB6224378B5F5E81307E21811
 ```bash
 magnet:?xt=urn:btih:F92ED74279BD8A32B237B6EAB80DB2D5BE5CD7D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:F92ED74279BD8A32B237B6EAB80DB2D5BE5CD7D1
 magnet:?xt=urn:btih:2A0885EB28C211E4E348C6C2E51B41F367BE79D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.7.0) Repack Decepticon
 ```bash
 magnet:?xt=urn:btih:445F6ABD6170CDC106A860414C66F39F8A204054
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:445F6ABD6170CDC106A860414C66F39F8A204054
 magnet:?xt=urn:btih:A097A8D378F17555C8D762890F6A00750351705F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ SketchUP Pro - является профессиональной версией 
 ```bash
 magnet:?xt=urn:btih:298AA59E5CB4575D13E369A307F77DF7E634D27C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ BBC. Вселенная / Universe / Das Universum - Faszination Weltall (2022) 
 magnet:?xt=urn:btih:2B0AF73E5C89BC5D1C08ABBE7BF971A9EAAF86C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:2B0AF73E5C89BC5D1C08ABBE7BF971A9EAAF86C9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:2B0AF73E5C89BC5D1C08ABBE7BF971A9EAAF86C9
 magnet:?xt=urn:btih:D366C67163157531BDEA44133E9487231855B0DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Alan Wake II (2) (2023) [Ru/Multi] (1.2.8/dlc) Repack seleZen [Deluxe Edition]
 magnet:?xt=urn:btih:2B0E1F48E80093A335885EE1DC9A80294E19F839
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Tenki no Ko | Weathering with You | Дитя Погоды [2019, Movie] BDRemux 
 ```bash
 magnet:?xt=urn:btih:846952ED3EB8BCFF6F349D7A5EEF12505638C2B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ AM 1984 - Collection (2024) [MP3|320 Kbps] <Synthwave, Retrowave>
 magnet:?xt=urn:btih:AE92D9AAA863638A05DCCE47DAB3129367BEA917
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:AE92D9AAA863638A05DCCE47DAB3129367BEA917
 ```bash
 magnet:?xt=urn:btih:0449A52FE33012CB12AC599B423FECA083523F00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:0449A52FE33012CB12AC599B423FECA083523F00
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:0449A52FE33012CB12AC599B423FECA083523F00
 ```bash
 magnet:?xt=urn:btih:BD2EF029DB9FC01FD1C6CF6F68AAB53DAA5EF62D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Girls und Panzer: Saishuushou | Girls und Panzer das Finale | Девушки и 
 magnet:?xt=urn:btih:A7EAEA8FDC37913DEA33EBD6AF334CD2CF5A15E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ Mystery of Myths: Mystery of the Fjords (2025) [Multi] (1.0) Unofficial [Collect
 magnet:?xt=urn:btih:810A95BFC31C804B34D5E7C80C4CD579EAF259EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:810A95BFC31C804B34D5E7C80C4CD579EAF259EC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:D6BD50DAC3C5AD43D3AB7EF20A1C8616DFB40BDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Behold! The Monolith - 3 Albums (2012-2022) [FLAC|Lossless|WEB-DL|tracks] <Stone
 magnet:?xt=urn:btih:80812E002D9697A592A7A159D7E73A90364A638D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ Bookends позволяет сканировать существующие фа
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ Lufthaus & Robbie Williams - Visions, Vol. 1 (2023) [FLAC 24/44.1|Lossless|WEB-D
 magnet:?xt=urn:btih:A8F7DBEBDE17DA4091C7039A737B058C72228863
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:A8F7DBEBDE17DA4091C7039A737B058C72228863
 ```bash
 magnet:?xt=urn:btih:57D1DCEF9FD36A8CC25F12B107BA42DE6767E4C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ DrawOutX - приложение для создания многостранич
 ```bash
 magnet:?xt=urn:btih:F33BE69D4F0A39DC38F293354BC1E7217A45C8B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ Virgin Steele - Life Among the Ruins (1993) Remastered 2CD, 2012, Steamhammer [F
 magnet:?xt=urn:btih:88759ED8D256655A4E7D8EA58FABDC419123C979
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ HistoryInFilm 1.5 [Multi/Ru]
 magnet:?xt=urn:btih:F5ADF828D3D16FFA894A5BDCE34E525C39A96998
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:F5ADF828D3D16FFA894A5BDCE34E525C39A96998
 ```bash
 magnet:?xt=urn:btih:6AC20DDDFBA41CA6C2E0AC789B7723CE336DB81D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:6AC20DDDFBA41CA6C2E0AC789B7723CE336DB81D
 ```bash
 magnet:?xt=urn:btih:12287841CFC346ABF23E7E458AADBD51ADEBEF0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ Xantotol - Liber Diabolus: 1991-1996 (2004) [WavPack|Lossless|image + .cue] <Bla
 magnet:?xt=urn:btih:28BBDFA2DB66B3AB931217C6B99B67DB59A2D906
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ Eddie James - Renaissance (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock>
 magnet:?xt=urn:btih:E48E5570B6E18ED23EB5B88B69481244A632AB8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ Withering Night - Lies and Corruption (2010) (Reissue-2012) [WavPack|Lossless|im
 ```bash
 magnet:?xt=urn:btih:B5980F1C65542835804B710CE3AFB4F799E260B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +383,8 @@ Arduinna’s Dawn - Reflections (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic 
 magnet:?xt=urn:btih:FA2F0ECF7FF0D1FF0711F9D6FDA0B869C46AF031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +412,8 @@ magnet:?xt=urn:btih:FA2F0ECF7FF0D1FF0711F9D6FDA0B869C46AF031
 magnet:?xt=urn:btih:F6107BDBD7D82D358CFDFC82D5A330F2E732AC10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +437,8 @@ Skype предназначен для личного и делового общ�
 ```bash
 magnet:?xt=urn:btih:04C0FC2F8253449A27951F517AFA7A205735566C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +467,8 @@ magnet:?xt=urn:btih:04C0FC2F8253449A27951F517AFA7A205735566C
 magnet:?xt=urn:btih:17BEBFD5BD7C7CE55C723EFFB1EB1B200D5607A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +496,8 @@ Wynter Kills - The Hand of the Wicked One (2023) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:B05FCDE7396C1B7063FCEE2A7DC6BD1A274AB000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ magnet:?xt=urn:btih:B05FCDE7396C1B7063FCEE2A7DC6BD1A274AB000
 ```bash
 magnet:?xt=urn:btih:D1C143C7488719E07FAF8D4BA6C3120391704EA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +548,8 @@ magnet:?xt=urn:btih:D1C143C7488719E07FAF8D4BA6C3120391704EA1
 magnet:?xt=urn:btih:FD5EA57550A57301BA4454CA7E8FF0448DC9C7BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +573,8 @@ magnet:?xt=urn:btih:FD5EA57550A57301BA4454CA7E8FF0448DC9C7BB
 ```bash
 magnet:?xt=urn:btih:689C58C9224D013C8E1736585A607E5FA5BDFD61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +600,8 @@ magnet:?xt=urn:btih:689C58C9224D013C8E1736585A607E5FA5BDFD61
 magnet:?xt=urn:btih:7CDA333F57B6BA080D7B516DB098396A6B0DF801
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:7CDA333F57B6BA080D7B516DB098396A6B0DF801
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +652,8 @@ magnet:?xt=urn:btih:7CDA333F57B6BA080D7B516DB098396A6B0DF801
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:7CDA333F57B6BA080D7B516DB098396A6B0DF801
 magnet:?xt=urn:btih:5D3F172F006EED081DFEA5909F1FA22E9B3ADD7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ VA - Tour De Traum Vol.1-20 (2004-2020) [FLAC|Lossless]<Tech House, Deep House, 
 ```bash
 magnet:?xt=urn:btih:FB1CA2FD667B9DD5F45F0EA830F3A09FA906B91F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

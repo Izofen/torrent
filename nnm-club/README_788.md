@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6764FD7210FD30A9AD900E442ED49BA4D0341111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:6764FD7210FD30A9AD900E442ED49BA4D0341111
 ```bash
 magnet:?xt=urn:btih:9F2E934DF2B8CAB30292F456117913889BEAA472
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:9F2E934DF2B8CAB30292F456117913889BEAA472
 magnet:?xt=urn:btih:6009C7F8AF38903AB4B2445D4C7042FFBCDC4BAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Bionic Bay (2025) [Multi] (1.3.0.4/dlc) Repack Other s [Complete Bundle]
 ```bash
 magnet:?xt=urn:btih:88EC0ED6E73829892D5678299C698F97BBAD54A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:88EC0ED6E73829892D5678299C698F97BBAD54A2
 magnet:?xt=urn:btih:E9A1D08CEEF2425303E8CE785AC18DBE5FC72A88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:29FA8530619C103B071FBF7762118432F5398FC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:29FA8530619C103B071FBF7762118432F5398FC5
 magnet:?xt=urn:btih:921E62C2E544C38CB201451830A0DD588604FD75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3217340507C975FDE48CF010C9A19A0EB8F4881A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Tomb Raider IV-VI Remastered Darkness Trilogy предлагает погруз�
 magnet:?xt=urn:btih:214D97BD3504B773FC82CE1DDADC60ED0800BA69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:214D97BD3504B773FC82CE1DDADC60ED0800BA69
 magnet:?xt=urn:btih:8155210F06BC56F5771E67EAA61D543457A0C5E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ magnet:?xt=urn:btih:8155210F06BC56F5771E67EAA61D543457A0C5E8
 ```bash
 magnet:?xt=urn:btih:FA9F543732B8EFB19468FC08E3E52F46B07C2610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:FA9F543732B8EFB19468FC08E3E52F46B07C2610
 magnet:?xt=urn:btih:21DE25D56B2656217F6121C8133EDB3A9C83CF68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:21DE25D56B2656217F6121C8133EDB3A9C83CF68
 magnet:?xt=urn:btih:4184588074A6A276D7B71EB8844BB5FB26934EBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:4184588074A6A276D7B71EB8844BB5FB26934EBD
 ```bash
 magnet:?xt=urn:btih:6F6BE8B809C82FF3818C7AFD934AE672F566D4DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:6F6BE8B809C82FF3818C7AFD934AE672F566D4DF
 magnet:?xt=urn:btih:FDCE4DC4FBCD628C4188BD6977889107E7CA4A96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6758295/dlc) Repack FitGirl [Digi
 ```bash
 magnet:?xt=urn:btih:2B6969FF5A3703E5BADC64B443D981610946DFEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:2B6969FF5A3703E5BADC64B443D981610946DFEC
 magnet:?xt=urn:btih:F7BC04AF07739BABDF01B8B23DB37F68D2BCF185
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:F7BC04AF07739BABDF01B8B23DB37F68D2BCF185
 magnet:?xt=urn:btih:9823FB0FE8056E09B58AB0105A0E3416E54B6261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Biped - это динамичная приключенческая 3D-игра �
 ```bash
 magnet:?xt=urn:btih:05F9727EAD126FB694E8519F4677899A7F5C7ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Concerto No.2 in G minor, Op.8, RV 315, Summer (L'estate)(   Читать дал
 magnet:?xt=urn:btih:1D41AADB646857A67545094FA45541C0FB1E903E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:1D41AADB646857A67545094FA45541C0FB1E903E
 magnet:?xt=urn:btih:0B65BC231F1ED110A001C6DF4FA0FEFC36290EA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Lost Skies (2025) [Ru/Multi] (0.1.83/dlc) Repack Pioneer [Early Access]
 ```bash
 magnet:?xt=urn:btih:DAD5A7E3C0471BCC4CF3FA0666B68D02751BD577
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ X3 Terran War Pack (2008-2012) [Ru] (3.4/3.3/1.3) Repack alexalsp
 magnet:?xt=urn:btih:C080048DC8159F56DCD1D9AE0606243C07BE98A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ S.T.A.L.K.E.R. 2: Heart of Chornobyl (2024) [Ru/Multi] (1.0.3, 1.3.2) License GO
 ```bash
 magnet:?xt=urn:btih:A5FBC6DF9222E491FD5E936D29DBA2C3329D09B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:A5FBC6DF9222E491FD5E936D29DBA2C3329D09B8
 magnet:?xt=urn:btih:5BA4979A190BADAD913D99A4F007980969012D29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:5BA4979A190BADAD913D99A4F007980969012D29
 ```bash
 magnet:?xt=urn:btih:54E82C2EBEA5883A72C3D92E22C1394F96F4385F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

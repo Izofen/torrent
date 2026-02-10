@@ -19,6 +19,8 @@ Mac OS X Lion - операционная система от компании Ap
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Max Payne 3 [XBOX360] [Ru] [Region Free] [XGD3] [LT+3.0] (2012)
 ```bash
 magnet:?xt=urn:btih:167B092A085882D9A880D1D29A3E5B501195A993
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:167B092A085882D9A880D1D29A3E5B501195A993
 magnet:?xt=urn:btih:AE3604DDB0C165DAC2E9A44ACE3929519F51F359
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Windows7 Firewall Control - это программа,которая защищ�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Windows7 Firewall Control - это программа,которая защищ�
 ```bash
 magnet:?xt=urn:btih:E45D7251ED00A3334150B31E9A3BACE8649957B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:E45D7251ED00A3334150B31E9A3BACE8649957B8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +201,8 @@ magnet:?xt=urn:btih:E45D7251ED00A3334150B31E9A3BACE8649957B8
 magnet:?xt=urn:btih:87E31ED3ECBABF6FE78C16E9504A2380422FE03A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +228,8 @@ magnet:?xt=urn:btih:87E31ED3ECBABF6FE78C16E9504A2380422FE03A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +259,8 @@ Ubuntu 12.04 LTS богата на очень интересные обновл�
 magnet:?xt=urn:btih:3DECAF680BC746031485C32535CEEF79EC6E4FE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +286,8 @@ King Arthur 2: The Role-Playing Wargame / Король Артур 2 + DLC [Ru] (
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +311,8 @@ King Arthur 2: The Role-Playing Wargame / Король Артур 2 + DLC [Ru] (
 ```bash
 magnet:?xt=urn:btih:391E7189808A69B0176776054F1E0D61121805B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +347,8 @@ VA - Молодежный Хит №2 from AGR (2012) [MP3|320 кб/с]<Pop, Clu
 magnet:?xt=urn:btih:365B1087123B7EBC9DF6277C52218099FA0E2391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +382,8 @@ Nordheim - Lost In The North (2010) [MP3|320 кб/с]<Viking/Folk Metal>
 magnet:?xt=urn:btih:B2286BEC03C5DF654A02505D9F043EE14A2F1B98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +407,8 @@ Daniel Djokic - Like It Like This (2012) [H.264/1080р] WEBRip
 ```bash
 magnet:?xt=urn:btih:0A6981E820B84E1A5C96E75DFB362F013E95AB4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ magnet:?xt=urn:btih:0A6981E820B84E1A5C96E75DFB362F013E95AB4F
 magnet:?xt=urn:btih:0B9398C1B002B0F4297BBB9DB4ACD0C56473F8EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +460,8 @@ magnet:?xt=urn:btih:0B9398C1B002B0F4297BBB9DB4ACD0C56473F8EB
 magnet:?xt=urn:btih:79F752BE770DBC40D89EBD357DC75B71375E0067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +485,8 @@ magnet:?xt=urn:btih:79F752BE770DBC40D89EBD357DC75B71375E0067
 ```bash
 magnet:?xt=urn:btih:F892687A64CB3C2BAF0386A6D3041C7324B2BEF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ magnet:?xt=urn:btih:F892687A64CB3C2BAF0386A6D3041C7324B2BEF8
 ```bash
 magnet:?xt=urn:btih:7E126DEFED3D924F670C9DC0F8B30E6B413BDE97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +549,8 @@ Kammer Sieben – Unfinished Movies (2007) [FLAC|Lossless] <Apocalyptic Folk, Ne
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +576,8 @@ Realms of Chaos [En] (RePack) 1995 | Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +601,8 @@ Realms of Chaos [En] (RePack) 1995 | Pilotus
 ```bash
 magnet:?xt=urn:btih:1F740D812FEB36B1B219D603263E70B73C4DE183
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ magnet:?xt=urn:btih:1F740D812FEB36B1B219D603263E70B73C4DE183
 magnet:?xt=urn:btih:49813C43AF92719F22574095F697EB4C29C581B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +653,8 @@ magnet:?xt=urn:btih:49813C43AF92719F22574095F697EB4C29C581B7
 ```bash
 magnet:?xt=urn:btih:91CD65E22D4EE5E8D97CFDDEBBF64E0F1A77E422
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ VA - MAXI. Хитовые новинки MTV (2012) [MP3|256-320 кб/с]<Pop,Da
 ```bash
 magnet:?xt=urn:btih:16EBEBFFE875A27B4B5DE26E6A52D20ED863EE8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -684,6 +732,8 @@ Pawel Dobrowolski - drumsПеревод: ОтсутствуетЯзык субт
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -707,6 +757,8 @@ Planet's Edge: The Point of No Return [En] (RePack) 1991 | Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ QownNotes – менеджер заметок, позволяющий четко
 magnet:?xt=urn:btih:B230E397D853D1BA523782A2B12265CFB2FEE1D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 ```bash
 magnet:?xt=urn:btih:894DD98CC51DF9973C69DA6A157DE02A5D0445F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ FileMenu Tools настраивает пункты контекстного ме
 magnet:?xt=urn:btih:C97E68695AD5D0C8BB31B4CC2269DB8C14768116
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 magnet:?xt=urn:btih:9B8EF6FDEE5BB679BC147943BD4F7EF4CE71BD06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:7F3389478D7F4E709A7F4B6DBC3E666CF1B34D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:2D58AB3DE9C7EC58B2C2E72FF68DE141F933C520
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 magnet:?xt=urn:btih:971E41C5645E64114CB6D534EEFB6EB190A2F35E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Shotcut - мощное кроссплатформенное приложение
 magnet:?xt=urn:btih:3318DAC4573502E6B962B65ACEFE3A8A9F51797A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ FastCopy - инструмент для быстрого копирования/�
 ```bash
 magnet:?xt=urn:btih:EE940E217D5A8F92CF5AD9E771B08256285B8274
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:EE940E217D5A8F92CF5AD9E771B08256285B8274
 magnet:?xt=urn:btih:7A016A193A741D223A34932ACCC9BB6BF5EEFC22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ PhotoDirector - функциональный, но весьма простой �
 ```bash
 magnet:?xt=urn:btih:F98DDB02B4A24777BDA4998966485AB8F175AD78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ KineMaster - Video Editor & Maker v7.4.10.32410.GP Mod by Shadow_Patcher [Ru/Mul
 magnet:?xt=urn:btih:3DFDFF82BE9C6E69F1D54E6AC378D0F2DA74C760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ FireAlpaca - это достаточно простой, но удобный г�
 ```bash
 magnet:?xt=urn:btih:8DA00CECBA54418840DCA00791076361B9AAEB3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ FastCopy - инструмент для быстрого копирования/�
 magnet:?xt=urn:btih:3C07040D55E24C08D8B78C0857C64C85F1991D4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ PhotoRoom - приложение, что будет одинаково поле�
 ```bash
 magnet:?xt=urn:btih:3D70AD6DC086FCFA4DBB5261AE5FD767A5191E0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ PowerDirector – Video Editor v13.4.2 b2405031 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:269D2E69960EF9D4DB3CD3477986DBFED8245A2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Lucky Patcher (Лаки патчер) – отличное решение есл
 ```bash
 magnet:?xt=urn:btih:EF3300DB63CB3721D0948DD400E114721C0BDE17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:560C4EA9D15B5104899E300D61A5BBF494C54749
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 ```bash
 magnet:?xt=urn:btih:7E972E6A785C7ACE5F0D2AF138B6CA201BDF86B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:7E972E6A785C7ACE5F0D2AF138B6CA201BDF86B5
 magnet:?xt=urn:btih:96C2D8A30BDE7AD9F114FF6701B21DAB4657BDDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:99010FFE6A23D16F1F393AEE38D124EA1EDC41B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ TweakNow WinSecret Plus! - позволяет пользователям исс�
 magnet:?xt=urn:btih:26119B515B2289E1E892572E0E69939CD5B4CF39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ ApowerREC - это программа которая может записыва
 ```bash
 magnet:?xt=urn:btih:71D57BEF6F16B818F547F0CEF1E7161856B3DCB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:71D57BEF6F16B818F547F0CEF1E7161856B3DCB7
 magnet:?xt=urn:btih:F3E94F0CE0147AEC3DCADC1E6BC7AC8B83B00F1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ ApowerREC - это программа которая может записыва
 magnet:?xt=urn:btih:4CFF7AA8F7169FCF8C41B471CBB5DD2D44A3FFF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ FileMenu Tools настраивает пункты контекстного ме
 ```bash
 magnet:?xt=urn:btih:6B882102667D9BE14A44874A089788FC4705BE04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

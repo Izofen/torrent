@@ -1,3 +1,31 @@
+###  Публикация: 1300137   (593878) от 05.05.2019
+
+VA - The Official UK Top 40 Singles Chart 03.05.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593878.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Stormzy - Vossi Bop (3:16)
+2.Lil Nas X - Old Town Road (1:53)
+3.Taylor Swift feat. Brendon UrieЖанр: Pop, Dance, OtherПродолжительность: 02:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B44421C6320ED95FB973096BFD3653A4DE389BFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233067   (593944) от 28.06.2018
 
 VA - Hot Parade Trance Summer (2018) [MP3|320 Kbps] <Trance, Club Electro>
@@ -21,6 +49,8 @@ VA - Hot Parade Trance Summer (2018) [MP3|320 Kbps] <Trance, Club Electro>
 ```bash
 magnet:?xt=urn:btih:EBCD4AB7907F15C079C3A4B97B3498F80F5D7986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +79,8 @@ VA - Top 100 Зайцев Нет Июнь 2016  [MP3|160-320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:E60CD428733AD5C5B3121E0F7401B331C0241219
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +107,8 @@ VA - Massive 90s Songs (2016) [MP3|320 Kbps] <Disco, Eurodance, Dance>
 ```bash
 magnet:?xt=urn:btih:6E3CBE57226B330C9DEB16AC8830302273A01A0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +137,8 @@ VA - Top 100 Зайцев.Нет Апрель (2019) [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:5AC7369239D8B3D7B1F73C077157A70B6AA1A7C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +165,8 @@ VA - 100 Красивых песен для двоих (2015) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:1BFF3B83A3DCEC1914791ABE6BE1CD7D6360B692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +195,8 @@ VA - Хит топ Самые новые и лучшие (2015) [MP3|128-320 к�
 magnet:?xt=urn:btih:DDAFC5A54F0D491906F9D2F70485E3A4A611BF35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +223,8 @@ VA - Горячие хиты топ чартов №3 (2016) [MP3|256 Kbps] <Pop
 ```bash
 magnet:?xt=urn:btih:90C1A5C66745EBC35FA89DDFBAA88A55A8DCAA6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +253,8 @@ VA - Ах, эти карие глаза! (2016) [MP3|256 Kbps] <Шансон>
 magnet:?xt=urn:btih:0168E93E5FD59D2C0333DAAD434267D95B6A1537
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ VA - Дорожный шансон с любимой музыкой. Часть 
 ```bash
 magnet:?xt=urn:btih:0BB1E4D797E614D1CB4D1E5809968C3A9150F6D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ VA - Русский хит отрыв №3 (2016) [MP3|256 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:73BA093182316F658E8D8DA904AB4E9DCFFB62BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ VA - Top Party Hits Eternal (2016) [MP3|320 Kbps] <House, Electro House, Progres
 ```bash
 magnet:?xt=urn:btih:3AC1A72ED997B303EFD2C892A27844F93FA51A95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +369,8 @@ VA - ЕвроХит Топ 40 Europa Plus 03.05.2019 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:E1CE954F01CF863E458DB86BD2F30C546E6D4DFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +397,8 @@ VA - Золото шансона (2015) [MP3|320 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:BEF013025E698E7EA8C0EEC21B9D3B58206F2974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +427,8 @@ VA - Летние новинки интернета 50+50 (2015) [MP3|320 кб/�
 magnet:?xt=urn:btih:4770FAE446C78D1160F1BBFC11AC7CCB24E1530A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +455,8 @@ VA - Space Night: Lounge Chill Out Journey Through The Universe (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:50765C6B2D5A5820D1E09CFE1BCC969BBD731F76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +485,8 @@ VA - Sunshine Disco (Summer Moods & Grooves) (2016) [MP3|320 Kbps] <Chillout, Di
 magnet:?xt=urn:btih:8364B73DF346C8BC551D8533D32AE00EC18503FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +513,8 @@ VA - Pleasant Evening CD 01-22 (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:6066F1CABEFA13EF24BDC0321350AD7ACFD42FD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +543,8 @@ VA - Шансон года (2015) [MP3|320 кб/с]<Шансон>
 magnet:?xt=urn:btih:3BFCC7A438383152E16F4174C44E723E4272028B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +571,8 @@ VA - Trance Energy (2016) [MP3|320 Kbps] <Trance, Energy, Progressive>
 ```bash
 magnet:?xt=urn:btih:0865F7C4ADC21662F15637043F1BEE08CEC2F809
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +601,8 @@ VA - 50 Ultimate Dance Hits Function (2016) [MP3|320 Kbps] <House, Electro House
 magnet:?xt=urn:btih:0AD533F006D671E5ED30C262834F08518C1B141E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +629,8 @@ VA - Beatport Trance Pack 01.08. (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
 ```bash
 magnet:?xt=urn:btih:3F6F35D4306E05761A2A921EB1340C66C5A22EAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +659,8 @@ VA - Trance Illusion Story (2016) [MP3|320 Kbps] <Trance, Progressive, Energy>
 magnet:?xt=urn:btih:B9215BB46375B9B9E76F094D5B6B7CD617C14D24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +687,8 @@ VA - A Trance Journey (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
 ```bash
 magnet:?xt=urn:btih:3BFEEA4AF55DC146F77AE21880CBEADDEB62717A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +717,8 @@ VA - Beatport Trance Pack 30.07. (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
 magnet:?xt=urn:btih:D24D7EA8C81E02D902FB5D2D63960D54D134BC93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +746,7 @@ VA - Beatport Trance Pack 31.07. (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
 magnet:?xt=urn:btih:879B82541865736FD0871B08336FD79476840826
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548742   (594858) от 05.05.2022
-
-VA - NDH 2 (2022) [MP3|271-320 Kbps] <NDH, Industrial Metal, Gothic Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594858.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gothminister - Ich will alles (3:50)
-2. In Extremo - Чёрный ворон (3:44)
-3. Death Therapy - The Vice of Voices (2:46)
-4. Die Krupps - Vision 2020 Vision (4:23)(   Читать дальше...   )Жанр: NDH, Industrial Metal, Gothic MetalПродолжительность: 03:12:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86987F3477A06B2C32E645E919AC06EABE66EF15
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

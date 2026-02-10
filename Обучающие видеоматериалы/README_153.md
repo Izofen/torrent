@@ -20,6 +20,8 @@ Mark Lauren | Mobility RX (2012) WEBRip [H.264/720p-LQ] [EN]
 magnet:?xt=urn:btih:396BBE0E82BF37ECBC68E097459605CCB3944194
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Paul Ekman Group | Facial Action Coding System (FACS) (2002) [.CCD] [EN]
 ```bash
 magnet:?xt=urn:btih:4AA48375455A95D857EF8C9D30E549CE5D644D63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Electron:
 magnet:?xt=urn:btih:40BDFEAFB852C1447625923E922A41B387181B96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Skillshare | Create a Pixelated Glitch Effect using Adobe After Effects (2020) W
 ```bash
 magnet:?xt=urn:btih:A90F93040C4D8CB7E394DDB7FF383E87B45AF23A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Mark Lauren | EFX: Postural Bodyweight Training (2014) DVDRip [EN]
 magnet:?xt=urn:btih:688E3D2D751C73DEB2ED6A812C928562FB02AB6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:688E3D2D751C73DEB2ED6A812C928562FB02AB6D
 ```bash
 magnet:?xt=urn:btih:58BCCA27F097D63F358E7F540AA665AA74E35330
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Udemy | WebSockets: Полное Руководство / A Complete Guide to We
 magnet:?xt=urn:btih:9AAD8E48A040BCFC0796B750958F12A3D0F02C39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:9AAD8E48A040BCFC0796B750958F12A3D0F02C39
 ```bash
 magnet:?xt=urn:btih:07558FED7367B04FA257ECB86F10036C99D2DBFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:07558FED7367B04FA257ECB86F10036C99D2DBFF
 magnet:?xt=urn:btih:27AB6417CFD4CC1E847A57D9991A5F7B780B9F27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Skillshare | Explaining How We Use Face-Tracking In Our Videos (Tiktok Filter) (
 ```bash
 magnet:?xt=urn:btih:DAE333096BBB07E95681F200B8393F7FB11DCFE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:DAE333096BBB07E95681F200B8393F7FB11DCFE8
 magnet:?xt=urn:btih:192EA7FBBC33334828902022994B64304B05C5E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:192EA7FBBC33334828902022994B64304B05C5E9
 magnet:?xt=urn:btih:95754D4F4017FE23B0B6DDB2EE5CC0AE9BDCBF83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Udemy, Антон Ларичев | Microservices - паттерны и прак�
 ```bash
 magnet:?xt=urn:btih:CB363907669B3C4E6DFA7B09F719B7780F2D29D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ GitHub - бесплатное (   Читать дальше...   )Произв�
 magnet:?xt=urn:btih:415F9A562386091D224AA5F59164BA6DCD9705B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ Simulative | Симулятор «SQL для анализа данных» (2022
 magnet:?xt=urn:btih:160D3357A05E339E6C94AEB4169E5EFAEA1C723E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:160D3357A05E339E6C94AEB4169E5EFAEA1C723E
 magnet:?xt=urn:btih:52D66E418B37486E1B7C72723D8FC29F9AF2D5FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:52D66E418B37486E1B7C72723D8FC29F9AF2D5FC
 ```bash
 magnet:?xt=urn:btih:D286698C791BB3EF9E0893ACFA17B3155B57D053
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ Thinknetica Pro, Антон Давыдов | Dry-rb: что, зачем и ка�
 magnet:?xt=urn:btih:84C4FCC6F503E6C8A5163E9CD5438D3FD3058E38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ After Effects глазами монтажера
 magnet:?xt=urn:btih:FF7C91AE253CFA0740DAFB5C17C7AC9CA6C86909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:FF7C91AE253CFA0740DAFB5C17C7AC9CA6C86909
 magnet:?xt=urn:btih:50B8DDEE0FC521B2C33E18E86A3F1CAD1AF5C9F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:50B8DDEE0FC521B2C33E18E86A3F1CAD1AF5C9F0
 ```bash
 magnet:?xt=urn:btih:B40C7248E6D1BFDDFB667CF888025545B7642BCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ magnet:?xt=urn:btih:B40C7248E6D1BFDDFB667CF888025545B7642BCD
 magnet:?xt=urn:btih:415BE344734344BED436FD49CCBC8C33A8ADEE13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ JAMStack - это современный веб-стек, который реш�
 ```bash
 magnet:?xt=urn:btih:23EE09D4EC740A4B393C45F5F3002B9B31B47DBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ BurstFIT домашняя программа для фитнеса. Во гла�
 ```bash
 magnet:?xt=urn:btih:3685D55AB4762D4F46F9A483517DBAD9EFFCF946
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ Asterisk в комплексе с необходимым оборудовани�
 magnet:?xt=urn:btih:73E913061AE0A722BFF840AFC302C60970077A75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ IT Security Academy Hacking School | IT Безопасность Для Начи
 ```bash
 magnet:?xt=urn:btih:3D692FDAF0BC396B7892C25044AC6288331A8162
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

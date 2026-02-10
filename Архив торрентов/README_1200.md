@@ -19,6 +19,8 @@ Tipard Blu-Ray Player отличный видеоплеер для воспро�
 magnet:?xt=urn:btih:69E4E00FA9FE8D05E3F32E64FA25ADDCBDDAF2CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Professional Recorder & Editor 6.3.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E26AA8198B005FF716C7438CBDDD1C33747A8FAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ KMSAuto Lite + Установщик офиса + Некоторые нужные
 magnet:?xt=urn:btih:FC21D5AE933876C299CDDB2D316078D109C97DD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:E18FFFB76D4F5D30120A060919D9797565ED8EB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ GrandTotal прекрасно работает в сочетании с TimeLog.
 magnet:?xt=urn:btih:E33276DD4504EAE5564793DD1B928A94B191F26B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ GIFfun — это приложение для создания GIF-файлов,
 ```bash
 magnet:?xt=urn:btih:B9AC8FF2485F14AE2200D0F81C65E3841CBCCFCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ iCollections 8.0.2 [Multi]
 magnet:?xt=urn:btih:C40304A4870142ED8B1699E70E0628DF89E25893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:53E5A21C61845D260266778235B493FD76D9F440
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Total Commander является самым мощным и стабильным
 magnet:?xt=urn:btih:6B285F39C2483F4869D73BD36AE92E3245749BEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Farrago предоставляет лучший способ быстрого в
 ```bash
 magnet:?xt=urn:btih:DDF6E80BAF406AA989EB938F028C87221A6A3BF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Stardock Start11 – новая версия приложения для нас�
 magnet:?xt=urn:btih:F65CAB70A19992562B6DF41A9D61AC95068CF838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ GroupsPro позволяет создавать и упорядочивать г
 ```bash
 magnet:?xt=urn:btih:95079C00A3C333E350EAA1EDA4789B61492BAD22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Office 2013-2024 C2R Install + Lite 7.7.6 ++ Portable by Ratiborus [Multi/Ru]
 magnet:?xt=urn:btih:932BAEE3E0FB10546289813C9DD4348BE652AB1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ PreviewMarkdown 1.4.5 [En]
 magnet:?xt=urn:btih:D345C89CC0444460F4885070DCBBDA84F50B413D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Adobe Acrobat Reader — приложение Reader для самых важн�
 ```bash
 magnet:?xt=urn:btih:DA70F2B3294B171844411FB60049D79C4166BFA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 magnet:?xt=urn:btih:6A0626E4398796A071C0753DBB7A20F4C6D1E10D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ MCS Drivers Disk 23.9.20.2100 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:632CDD7AE12DB784933E9F4935685C2D16F3F5AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ Process Lasso позволяет вручную или автоматическ�
 magnet:?xt=urn:btih:B542CE23BFE7E236E779B780620E648563121759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:05FC7647316EC0C0ACED06A4F195746E63EFD192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ Total Commander Extended - это x86 и x64 версии Total Commander в о�
 magnet:?xt=urn:btih:B6A66D29F2BC1FF60F4475A71C0ECB749DF422DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ OpenVPN – мощная программа для работы с частны�
 magnet:?xt=urn:btih:6D1CE0D72A9D0DAC446BFB8EB30813E59764D622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:330337838C5CD14989C4F2CA847C3ACEAE66172F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ Blue Iris совместима практически со всеми модел
 magnet:?xt=urn:btih:CCCD08413FD5630C6691D55B03D2C3A7AD6AE4F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ Windows 11 Manager - это универсальная утилита специ
 magnet:?xt=urn:btih:A4C426E9EECFFC1A521C2837E31778003C89C226
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ MemTest86 - бесплатная программа, позволяющая пр
 ```bash
 magnet:?xt=urn:btih:F17858522A008D5671E936A20D3AC8909BFAA75F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +686,8 @@ Ventoy - это инструмент с открытым исходным код
 ```bash
 magnet:?xt=urn:btih:A40795F412847786A79B899F834FB441D3310CC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

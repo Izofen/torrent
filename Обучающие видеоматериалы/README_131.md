@@ -19,6 +19,8 @@ CGcircuit, Steven Knipping | Applied Houdini Rigids II version 2.0 (2020) PCRec 
 magnet:?xt=urn:btih:9DABAC106CA1B6A0D9CBC2A28384F629F1FD4653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ ArtStation, Tyler Smith | UE4 VFX Ocean Material Tutorial (2019) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:A7B3504638528F0CA9B36FA832C1D24CEBEFF450
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Schoolism, Wouter Tulp | Digital Painting Workout with Wouter Tulp Part 3 (2020)
 ```bash
 magnet:?xt=urn:btih:1AEFDE0F46B13888150BC8966B96C29C8529619C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:1AEFDE0F46B13888150BC8966B96C29C8529619C
 magnet:?xt=urn:btih:F5BAEECE914D9BE72F0127A968196F649948C0C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Proprofiling, Алексей Филатов | Нейромаркетинг и п
 magnet:?xt=urn:btih:166919FD4BA720BB21A2AFB00FAC3C87055E1AD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Understanding Vowels — курс, на котором мы прорабатыв
 ```bash
 magnet:?xt=urn:btih:6D8B6C1BDE6B6B3FAA18540265E2C4248275BE7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ mj_home.kz | Курс по гипсу "От и до" (2022) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:37CF5BDAC689AB0E441C771C6BD554DEC369D809
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Udemy, Jose Moreno | Substance Designer 2020: Stylized Material Creation PCRec [
 magnet:?xt=urn:btih:B73F7BA20412755114E0E54842B9FFAA1C230775
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ The Gnomon Workshop, Patrick Przybyla | Creating a Combat Finishing Takedown Wit
 magnet:?xt=urn:btih:308B408C0195635D877B15B35CFBA624B0CD07F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:308B408C0195635D877B15B35CFBA624B0CD07F4
 ```bash
 magnet:?xt=urn:btih:E34839AA3D019EE785CB21CED1FF9C957909BB72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ SideFX, Arise.Works | Houdini Clouds with VOPs (2020) PCRec [EN, RU]
 magnet:?xt=urn:btih:A21E20B70AD576D62F5F86FD3B74C9E6B7FBD5A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:A21E20B70AD576D62F5F86FD3B74C9E6B7FBD5A0
 ```bash
 magnet:?xt=urn:btih:07A1290E8FD337752B1F8ACA7138EC1F19094DC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:07A1290E8FD337752B1F8ACA7138EC1F19094DC1
 ```bash
 magnet:?xt=urn:btih:1A94B08BA5064907453CE086B7E830AFAC74B74B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ Houdini стал популярным инструментом в индустр
 magnet:?xt=urn:btih:4E602CD26BAF40DF15B4CB3F4B1CAD4AC70BB3B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ Proprofiling, Алексей Филатов | Профайлинг для нач
 ```bash
 magnet:?xt=urn:btih:6EB192C863E49282ED1EA2EE9ECA6493017E1D87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:6EB192C863E49282ED1EA2EE9ECA6493017E1D87
 magnet:?xt=urn:btih:6C8BFE68AC532A1AEC3AA78B80AFB3B14E602177
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Schoolism, Scott Robertson | Rendering Reflective Surfaces (2015) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:A5AC87048410C1D41C60D1E789B8C85F772BF610
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ Artstation Learning, Javier Perez | Substance Designer: 10 Most Useful Nodes (20
 magnet:?xt=urn:btih:B67A519D22C6A5C871B732781BE24F4578504DBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ Yiihuu, Yang Fan | Super Dynamic Designer (2021) PCRec [CN]
 magnet:?xt=urn:btih:C86331C92E6ACF2F79113567B9024CCCA366EAEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ Wingfox, Job Menting | Creating a Cyberpunk City with C4D and PS (2021) PCRec [E
 ```bash
 magnet:?xt=urn:btih:0A7C2F77AE580C9C9C218A9A365984A8F600A3DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ Yiihuu, Mrousix | Product Animation. Design 3D Product (2021) PCRec [CN]
 magnet:?xt=urn:btih:52C96881B6263EA72A31DD50E90E38BB75BEB266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ Substance Academy, Nikola Damjanov | Tree Bark with Nikola Damjanov (2021) PCRec
 ```bash
 magnet:?xt=urn:btih:CFE78DEA13C4A83477F0141206CFCD931522E024
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ Zenja Gammer, Zenzcourses | Photoshop Digital Art Bundle By Zenja Gammer (2021) 
 magnet:?xt=urn:btih:CA772B5E60EB478F61DC8F45894E4D66CC199F7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ SideFX, Jeff Wagner | Top Ten Under-the-Radar Features in Houdini 18.5 (2020) PC
 ```bash
 magnet:?xt=urn:btih:9312F4AC0ADD82C9A2B5C4D3A0EEB087A026E905
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ SideFX, Adrien Lambert | Ultimate Terrain Workflow (2020) PCRec [EN, RU]
 magnet:?xt=urn:btih:8927782C7EC8B8202B903807EE69ED3A3F0214DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ Udemy, Art Studio | Complete Blender Course: Creating Game Assets for Beginners 
 ```bash
 magnet:?xt=urn:btih:2A8C23AB190BB81E89C30BD0AB1AC3320EA92718
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

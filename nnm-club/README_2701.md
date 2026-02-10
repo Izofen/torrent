@@ -19,6 +19,8 @@ EF Commander  — замечательный двухпанельный файл
 magnet:?xt=urn:btih:06D3B484A31C7A881315BFF30FE0A0889ECD67D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:06D3B484A31C7A881315BFF30FE0A0889ECD67D4
 ```bash
 magnet:?xt=urn:btih:DDD2B9BD2682CD3884F7C6DFB85DCEF5A7B3736D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:DDD2B9BD2682CD3884F7C6DFB85DCEF5A7B3736D
 magnet:?xt=urn:btih:C6765BB3DFE929D94A9DCBDFEC1C5BBF6D410453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Crypt of the NecroDancer — хардкорная ритмическая rogueli
 ```bash
 magnet:?xt=urn:btih:2C42074EF9B0D8F29664CE781BA37617FF8DA662
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:2C42074EF9B0D8F29664CE781BA37617FF8DA662
 magnet:?xt=urn:btih:2135874F5AC87F8E295B62E76898CB36629DE02D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:2135874F5AC87F8E295B62E76898CB36629DE02D
 ```bash
 magnet:?xt=urn:btih:A0481EB3524DFF254783F1ED589217475F1A1CD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:A0481EB3524DFF254783F1ED589217475F1A1CD0
 magnet:?xt=urn:btih:5AFF1124278CEBA9AE5DCC8B7ECE55BC17028FB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:5AFF1124278CEBA9AE5DCC8B7ECE55BC17028FB2
 ```bash
 magnet:?xt=urn:btih:58ECB29E18849A1DD44E5CF32C681639DC8C3284
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:58ECB29E18849A1DD44E5CF32C681639DC8C3284
 magnet:?xt=urn:btih:2D1C30EBEDEDC0D2301B0611099ECBF390BC8A1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:2D1C30EBEDEDC0D2301B0611099ECBF390BC8A1B
 ```bash
 magnet:?xt=urn:btih:25416C29CAF8581631C72B9DC561AD21057BC7D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:25416C29CAF8581631C72B9DC561AD21057BC7D5
 magnet:?xt=urn:btih:E4658F6982F58DC99D1D418B232AB8B7771012B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Prox — гуманистический шрифт без засечек, пре
 ```bash
 magnet:?xt=urn:btih:4C5427EEABD98B8F7F538794950EC3DF72CE2049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:4C5427EEABD98B8F7F538794950EC3DF72CE2049
 magnet:?xt=urn:btih:1E23B0985E238672C126EC7453CFC03E7483ED56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:1E23B0985E238672C126EC7453CFC03E7483ED56
 ```bash
 magnet:?xt=urn:btih:3F18CB071D94127C755DEBB84FF2986434F77ADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:3F18CB071D94127C755DEBB84FF2986434F77ADA
 magnet:?xt=urn:btih:F41FD714512BAF715BAF2D238BBE9956BCCD6FA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:F41FD714512BAF715BAF2D238BBE9956BCCD6FA6
 magnet:?xt=urn:btih:CA61163F3065DE58A844A01B8C053D8C94F77A33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:CA61163F3065DE58A844A01B8C053D8C94F77A33
 ```bash
 magnet:?xt=urn:btih:231E53002CE3582549FEC262688266B6D1CABFDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Leaf Hound - Once Bitten (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:1D1E87C5756F0E8DD5ED62E4B3C59489424973B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:1D1E87C5756F0E8DD5ED62E4B3C59489424973B5
 ```bash
 magnet:?xt=urn:btih:BB239871209A23FDB1A4AFE1F60BF2B0CCBC56C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:BB239871209A23FDB1A4AFE1F60BF2B0CCBC56C5
 magnet:?xt=urn:btih:52D05A4B44E4BC863C0F99470E3FD88697D064F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:52D05A4B44E4BC863C0F99470E3FD88697D064F2
 ```bash
 magnet:?xt=urn:btih:758EF3351F56D2CFF15D6A570FCEDFEE2D85FC5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Kolossos - Game Law Metal (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power Met
 magnet:?xt=urn:btih:F5A4C5C62098E64E5681DB2BD1AC008F6328552A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:F5A4C5C62098E64E5681DB2BD1AC008F6328552A
 magnet:?xt=urn:btih:0143693631FCE3382D9EF95040EDC4A5C8CE1B63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Enshine - международное сотрудничество музыкан
 ```bash
 magnet:?xt=urn:btih:7FC10EB2ED900E5178C8D3F38993A0BCDA728281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ The Wrath Project - The Cure Is the Disease (2025) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:5FACB282C12422D158FA8919E6B79EE7E644AA22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ Whipstriker - Seven Inches Of Hell (Part II) (2018) Compilation, Limited Edition
 ```bash
 magnet:?xt=urn:btih:9A4B63ADE427FD3BD4D1890566E8051AE3A64EE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

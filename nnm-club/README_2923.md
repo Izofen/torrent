@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:0CD0A177C0239363076BCC8CFE1B642FFCCF85FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:0CD0A177C0239363076BCC8CFE1B642FFCCF85FE
 ```bash
 magnet:?xt=urn:btih:1706F6AF934197C58658E63A286DDE10DB5F8F72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:1706F6AF934197C58658E63A286DDE10DB5F8F72
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:1706F6AF934197C58658E63A286DDE10DB5F8F72
 ```bash
 magnet:?xt=urn:btih:B2676FF704CA535A6C3E96F2413FC24397AC281E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:B2676FF704CA535A6C3E96F2413FC24397AC281E
 magnet:?xt=urn:btih:DA5C9E6B56AB1D13D3F7CF12F1B42B14314B58C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ EASY Deutsch Worterbuch Словарь немецко-русский [2004] [PDF
 magnet:?xt=urn:btih:B626666734214A7328837E77ECA67E41CD128506
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:B626666734214A7328837E77ECA67E41CD128506
 ```bash
 magnet:?xt=urn:btih:24A4BA2D1B00FE4C4AE4FEC0A0B8A79AA1BAD12F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ Goshuushou-sama Ninomiya-kun / My Heartfelt Sympathy, Ninomiya-kun / Прими�
 magnet:?xt=urn:btih:1E90F4BD194D7E9BA15CF9F6B556CFA0C9A23286
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:1E90F4BD194D7E9BA15CF9F6B556CFA0C9A23286
 magnet:?xt=urn:btih:9ECBB736AC9A2AC658CD32260DC460C9C3E3CDC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Darkened Skye [Ru] (RePack) 2002 | Pilotus
 ```bash
 magnet:?xt=urn:btih:2039B7AE69F5BE193B3EBD73E256C6A3EF4F295E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:2039B7AE69F5BE193B3EBD73E256C6A3EF4F295E
 magnet:?xt=urn:btih:5EFC3262C4E3198A232A0617408E360A72BAB5F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:5EFC3262C4E3198A232A0617408E360A72BAB5F7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:5EFC3262C4E3198A232A0617408E360A72BAB5F7
 ```bash
 magnet:?xt=urn:btih:90B6B1F41F0FD89C6BB6CD0468B27A10DE2FC206
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:90B6B1F41F0FD89C6BB6CD0468B27A10DE2FC206
 magnet:?xt=urn:btih:590BBDC9E71E7D3DFFBCCB92F040E11248B87011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:590BBDC9E71E7D3DFFBCCB92F040E11248B87011
 ```bash
 magnet:?xt=urn:btih:69D511FACA52601F4A545BECF1F1117333A5EEA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:69D511FACA52601F4A545BECF1F1117333A5EEA0
 magnet:?xt=urn:btih:0C56856E43F30B97828B7CC9CE205825C6CC2A6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ EASY Deutsch Словарь русско-немецкий [2004] [PDF]
 ```bash
 magnet:?xt=urn:btih:D157F327A1ACCB915B2BA2A4ABEF853DB391A15F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:D157F327A1ACCB915B2BA2A4ABEF853DB391A15F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:D157F327A1ACCB915B2BA2A4ABEF853DB391A15F
 ```bash
 magnet:?xt=urn:btih:D4D0A8991AC83D9A273120266DC88F4DA215338E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:D4D0A8991AC83D9A273120266DC88F4DA215338E
 ```bash
 magnet:?xt=urn:btih:8D1B0577856B5A4E5D70E243345F806D62B2DF67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:8D1B0577856B5A4E5D70E243345F806D62B2DF67
 magnet:?xt=urn:btih:DABAC4993A3D08DCB29B2EEB663656FC13B3511F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:DABAC4993A3D08DCB29B2EEB663656FC13B3511F
 ```bash
 magnet:?xt=urn:btih:0D482AE081E8FECDBB1DD4442233A3E7652CB0C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:0D482AE081E8FECDBB1DD4442233A3E7652CB0C6
 magnet:?xt=urn:btih:F5DFA49D973329D56D030594BEBF93DD09DA6EAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ Free for commercial use WPI by q1q1 1.0 (февраль 2012) [Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ PCSX2 SVN является открытым исходным кодом Sony Pla
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +687,8 @@ VA - Французская музыка в подарок (2012) [MP3|256 kbps]
 ```bash
 magnet:?xt=urn:btih:B405D027C4596C6C8D4A3761170AB6CEF7AA79F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ EasyUEFI - удобная утилита для редактирования з�
 magnet:?xt=urn:btih:B1F12974ED62F1A6DED6706C44E7B874AAB958F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Myary 2.1.0 [Multi]
 ```bash
 magnet:?xt=urn:btih:B59ABE5E509275F9EEF9241BA963EB6235CFA369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cascadea 2.0.5 [En]
 magnet:?xt=urn:btih:E5D6F1FA040FA9E922D1124BF9CB22BE3815C0D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:0EC7163C4CF6068DE2343D6974B821EA5C8C6143
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ ExpanDrive 7 v7.7.0 [En]
 magnet:?xt=urn:btih:2D2852DF0033F13309F69C0F212520B891EDC7E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ AirFoil – специальная программа, позволяющая т
 ```bash
 magnet:?xt=urn:btih:5E5654FD4A70329A3A7076DAAC44A8BA8537BDB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:20AC945B1B4B3C18E792357F68E758B7F4A2D4F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Aiseesoft Screen Recorder 2.7.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EED460C5B85944A48981FCA7C93F5F5B062A2655
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ iSpy - программа, которая с помощью микрофона �
 magnet:?xt=urn:btih:5F801A86432BB762107FFF074D21A61C02218D6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ AnyGo 6.2.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4670B92F356D64CFB624640327E4C89B44F524B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ VueScan - программа для работы со сканерами HP, Min
 magnet:?xt=urn:btih:BEEEA35D3D30969930545C43EB963BF2FE0A1BFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ BusyCal - программа на Mac OS X, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:24697A0C3EAC47813FEE9E3A6FF7261B0ABFA4B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ App Cleaner - лучшее приложение для удаления файл
 magnet:?xt=urn:btih:BF8CA3344597CB09D5DA979CE20EA361A7B5C01C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ BusyContacts приносит в управление контактами те 
 magnet:?xt=urn:btih:DFCFCF381503B775738A19CBDB7678E0263BDD12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ xStand 6.8.1 [En]
 ```bash
 magnet:?xt=urn:btih:8A9E5AAA928EA94FD4C4F9C755944C6F0BADD67F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ AmanVPN бесплатный, быстрый, безопасный и безли
 magnet:?xt=urn:btih:ED4303FD3DB27E76C082EE5889AA94FEA5070769
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Things — приятный и простой ежедневник. Это ид�
 magnet:?xt=urn:btih:8E918952C64EC8CA6EE3B8B558E5D6B7DF70E360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Sabaton - Defence Of Moscow (2021) WebRip 1080pЖанр: Power MetalПродол
 ```bash
 magnet:?xt=urn:btih:EC538DFDA44BCC17F04AF96A2211E981D2EC4B56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ IObit Uninstaller представляет собой удобный инстр�
 magnet:?xt=urn:btih:3AD9C6378F63F21480A1312BF4B2D6B78ABAF225
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:371EBD238460641C46DD639D8A2812791B071839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Duplicate File Finder - утилита, которая находит дубли
 magnet:?xt=urn:btih:51E79BDC4E2C1196DBA11502FFDAD8196BC8C275
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ DaisyDisk - утилита которая весьма необычным обр
 magnet:?xt=urn:btih:F14BCCE5345023C76FB1B78E57E6ABEE7D5A6273
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:1408C9FF888F99435306CB203CF5195F18BB1ADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ TreeSize Professional - мощное и гибкое средство визуа
 magnet:?xt=urn:btih:3F2E46166F448C0AACCF7979F585854A77D9C58B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Draw.io 21.2.1 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:91ED9A02CC38B6917384B00C53F0C8507ACDCEE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Eon Timer 2.9.8 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:853BEE5508B16E38010E915E9FA2848EA9CDAE1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

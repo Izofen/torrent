@@ -1,3 +1,29 @@
+###  Публикация: 788045   (723695) от 26.05.2014
+
+Стивен Кинг | Под куполом (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_723695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обычным, пригожим осенним днем, город Честерс Миллз, штат Мэн, был внезапно отрезан от остального мира невидимым силовым барьером. Самолеты врезаются в купол и падают, пылая, с небес; жене фермера отрезает силовым полем руку; люди, выехавшие в соседний город по делам, не могут вернуться к своим близким; автомобили взрываются от столкновения с куполом. Никто не понимает, (   Читать дальше...   )Жанр: фантастика, роман-катастрофаПеревод: с англ. ВебераПродолжительность: 36:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E14A1A8AB793A089DC5566200DF96053F888CD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128968   (723825) от 27.04.2017
 
 Кирилл Шарапов | Мёртвый мир. Форт Крут (2017) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:9B7D06A99C3BA4B5D75092129ADF8B7DE90EAD38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:9B7D06A99C3BA4B5D75092129ADF8B7DE90EAD38
 magnet:?xt=urn:btih:C8AF27FECE7B7CE4FDEC4358F594B926BD351484
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:C8AF27FECE7B7CE4FDEC4358F594B926BD351484
 ```bash
 magnet:?xt=urn:btih:54E2D3B0157042A195FF3B2C8FE72FE953C23CDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:54E2D3B0157042A195FF3B2C8FE72FE953C23CDE
 magnet:?xt=urn:btih:01A4FC4C8908536D2B9E5E1B2B246BF3049B82B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:01A4FC4C8908536D2B9E5E1B2B246BF3049B82B4
 ```bash
 magnet:?xt=urn:btih:790A967237C171BF90214CAC2598BD125E69A663
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:790A967237C171BF90214CAC2598BD125E69A663
 magnet:?xt=urn:btih:C7D4342DC02AC08654C58DB92BFF86EA8A08B92D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:C7D4342DC02AC08654C58DB92BFF86EA8A08B92D
 magnet:?xt=urn:btih:55B62B16BB2A203C566B68AD2D548982106652F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:55B62B16BB2A203C566B68AD2D548982106652F1
 magnet:?xt=urn:btih:A861B14117D3C71ED661BF72E5521669422D0CF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:A861B14117D3C71ED661BF72E5521669422D0CF2
 ```bash
 magnet:?xt=urn:btih:F19114B6390284E70F81463DB0BC8FC44F264188
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:F19114B6390284E70F81463DB0BC8FC44F264188
 magnet:?xt=urn:btih:6C713D1B32DE5B953BF07BB3DE8BA6BFCBD2A88A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:6C713D1B32DE5B953BF07BB3DE8BA6BFCBD2A88A
 ```bash
 magnet:?xt=urn:btih:13BB1EC85D0F9D445CF116D05CC87BFC9A339CA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:13BB1EC85D0F9D445CF116D05CC87BFC9A339CA5
 magnet:?xt=urn:btih:D0A8BF7B78AFD0879C17A023751558F2BD20328B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:D0A8BF7B78AFD0879C17A023751558F2BD20328B
 ```bash
 magnet:?xt=urn:btih:2EDD944A14E4CB293B23F6A9BFE7D9CC24CC71EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:2EDD944A14E4CB293B23F6A9BFE7D9CC24CC71EC
 magnet:?xt=urn:btih:DC4F3D4EE13C84D0BDC8D1611BD33D41FC7524F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:DC4F3D4EE13C84D0BDC8D1611BD33D41FC7524F3
 ```bash
 magnet:?xt=urn:btih:B4ECF6F3DFA779CF6286A51E637A92AA973BD7D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:B4ECF6F3DFA779CF6286A51E637A92AA973BD7D8
 magnet:?xt=urn:btih:3EDCE637B78B9162A5A15F614345BA81E7120706
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:3EDCE637B78B9162A5A15F614345BA81E7120706
 ```bash
 magnet:?xt=urn:btih:44711ACE109236D17A6F73EC022FAE2A1EC76A7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +500,8 @@ magnet:?xt=urn:btih:44711ACE109236D17A6F73EC022FAE2A1EC76A7A
 magnet:?xt=urn:btih:17B51B2CAC9BDECB161C3B0E6CBF6AF897AD4087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:17B51B2CAC9BDECB161C3B0E6CBF6AF897AD4087
 ```bash
 magnet:?xt=urn:btih:9D9DDCCD0D9C8EB0BEA59EB705302775D6AA2A64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:9D9DDCCD0D9C8EB0BEA59EB705302775D6AA2A64
 magnet:?xt=urn:btih:B2ECABA2A875C5D97D85AE5D6AA3E03FF41AC761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:B2ECABA2A875C5D97D85AE5D6AA3E03FF41AC761
 ```bash
 magnet:?xt=urn:btih:6D0E167F5F43383B8B0D94D3A685EDBD24192C7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:6D0E167F5F43383B8B0D94D3A685EDBD24192C7B
 magnet:?xt=urn:btih:CB17B1887E2FEA6ABEF58B506523C1D63A5A06F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:CB17B1887E2FEA6ABEF58B506523C1D63A5A06F2
 ```bash
 magnet:?xt=urn:btih:99352FAEF7DB24ABFA6492E0CBCA517A9D234E4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:99352FAEF7DB24ABFA6492E0CBCA517A9D234E4B
 magnet:?xt=urn:btih:9437056F952A55A646C8507612C0A2B16B24D086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:9437056F952A55A646C8507612C0A2B16B24D086
 magnet:?xt=urn:btih:DEDCEC3CC18F39171DA1376B32BFFD2566C8F5EE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022975   (726370) от 04.06.2016
-
-Никита Аверин, Игорь Вардунас | Революция (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_726370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что делать, если мир стоит на краю гибели и Конца света не избежать? Если ты можешь полагаться только на себя и собственные силы, ведь никому нельзя доверять? Война между корпорациями «Хронос» достигает своего апогея, и каждому из участников битвы предстоит сделать свой выбор, свой ход на грандиозной шахматной доске, в которую превратилась планета. У кого хватит (   Читать дальше...   )Жанр: Боевая фантастикаПродолжительность: 08:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33C05FD76D7A0DE8CB7BE8272AA6B6EB5740EB15
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

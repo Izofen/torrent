@@ -22,6 +22,8 @@ P J Harvey - On Tour Please Leave Quietly (2006) DVD9
 magnet:?xt=urn:btih:2BB65288DAC3FF20ED3EDD918EB44A64AFD44CF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ E-Light - Controversy (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House
 magnet:?xt=urn:btih:6872FFDE84813CB28CF3A7F3719175536522F331
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:6872FFDE84813CB28CF3A7F3719175536522F331
 magnet:?xt=urn:btih:3FAAA53668559F3A832E310091EEC5FF54D13961
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:3FAAA53668559F3A832E310091EEC5FF54D13961
 ```bash
 magnet:?xt=urn:btih:75718D97C7219CCF7C5DC178E439AAFE9AB8ED98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ VA - Ambient Silver Sounds (2018) [MP3|320 Kbps] <Ambient, Downtempo, Chillout>
 magnet:?xt=urn:btih:05E90BDC6BBFE702D127416656F3BD1137E3C7D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:05E90BDC6BBFE702D127416656F3BD1137E3C7D4
 ```bash
 magnet:?xt=urn:btih:33BE79EA2C92555ADF32ED23BFD0F75CE48B9C57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:33BE79EA2C92555ADF32ED23BFD0F75CE48B9C57
 magnet:?xt=urn:btih:B14F11AEBE6C7C4CEB01AE001CB7484A210339D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ VA - Ethereal Dreams, Vol. 1 (2015) [MP3|320 кб/с]<New Age, Electronic, Ambie
 ```bash
 magnet:?xt=urn:btih:CF590ED2A910EC6E5185EBAD021D5F6C3A33D75F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ VA - Trance 2019 (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:97A2FE11F99EB51BD28168F78C651807B7C1536F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:97A2FE11F99EB51BD28168F78C651807B7C1536F
 ```bash
 magnet:?xt=urn:btih:27FE4D72E67B91CB7F0F8AEC848ADCBC47472AF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ VA - Markus Schulz - Global DJ Broadcast: Top 20 November (2018) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:C07499CE6C3EAE8DD6182836319B06A15442B5AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:C07499CE6C3EAE8DD6182836319B06A15442B5AD
 ```bash
 magnet:?xt=urn:btih:44BB839066EAAA3F9A6181D3E8E5000017793744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ magnet:?xt=urn:btih:44BB839066EAAA3F9A6181D3E8E5000017793744
 magnet:?xt=urn:btih:6ACD464A0FA12B84CED2110699A38822DC7069AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ iFinance 4 позволяет вам отслеживать доходы и ра
 ```bash
 magnet:?xt=urn:btih:34858F52117BCB3B122ADF4A125702AA6C3D5BD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:34858F52117BCB3B122ADF4A125702AA6C3D5BD5
 magnet:?xt=urn:btih:BEF5B9BE00ED59ADCC1F772BD179C390163894A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:BEF5B9BE00ED59ADCC1F772BD179C390163894A3
 ```bash
 magnet:?xt=urn:btih:599B4559DFBA8F053D1F7F85C3AFB43C023A4EF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +466,8 @@ VA - Whore House Loves Tech House (2018) [MP3|320 Kbps] <House, Tech-House, Funk
 magnet:?xt=urn:btih:6C61687D39C125073F42C0C46E9EBC60D11E40A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +494,8 @@ Petra Janu - 12 Famous And Awarded Movie songs (1985) [MP3|192 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:E326ECCEEBD8702F41ABBD36C7DBEA76E6A8E1CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +524,8 @@ Wolverine - Machina Viva (2016) [FLAC|Lossless|image + .cue] <Progressive Metal,
 magnet:?xt=urn:btih:4BE0D3B2D4B0897E7475EECCD471400B2B9D3AC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +551,8 @@ magnet:?xt=urn:btih:4BE0D3B2D4B0897E7475EECCD471400B2B9D3AC5
 magnet:?xt=urn:btih:9D4D48CB7AF4DAC04CDBA79491D5E1A22A400FE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +576,8 @@ magnet:?xt=urn:btih:9D4D48CB7AF4DAC04CDBA79491D5E1A22A400FE8
 ```bash
 magnet:?xt=urn:btih:667AF79D3BA98DB6229468BB0E7DD5DBB762260F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +606,8 @@ Connie Lush Band - Renaissance (2015) [MP3|320 кб/с]<Electric Blues>
 magnet:?xt=urn:btih:74F7587A80B59130D6A1CA6DF18D7B1C00EAECD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +635,8 @@ Chaise Lounge - Gin Fizz Fandango (2015) [FLAC|Image+cue]<Retro Swing, Vocal Jaz
 magnet:?xt=urn:btih:9795A7E0EDF800D39B2D88525B09A03518B472A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +661,8 @@ magnet:?xt=urn:btih:9795A7E0EDF800D39B2D88525B09A03518B472A1
 magnet:?xt=urn:btih:795525994463EA45F55A67A03D57A8EC5D601ED4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +686,8 @@ magnet:?xt=urn:btih:795525994463EA45F55A67A03D57A8EC5D601ED4
 ```bash
 magnet:?xt=urn:btih:9CB2523C0382BF5F818319E7D11FE9E19BD1DE28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -665,6 +715,8 @@ Paquito D'Rivera - Brazilian Dreams (2002) MCG Jazz[APE|tracks+.cue]<Afro-Cuban 
 ```bash
 magnet:?xt=urn:btih:862E50CDC174DB1DC15E928F69C670FF35C1C426
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

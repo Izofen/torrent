@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:1C05A4C5F9F1306E37EB3975F13B406316BF78F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:20A35D9CA40C6895B71B421587131FA2702F9C2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ VA - 80s Summer Chillout (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop/Rock>
 magnet:?xt=urn:btih:7D19C3F76B9F61D951C466F9CFC0B34C58C93D7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:7D19C3F76B9F61D951C466F9CFC0B34C58C93D7F
 ```bash
 magnet:?xt=urn:btih:6B4E8E11E6EAA8350249A46A2F842CCFFCB1FD88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Marillion - 4 Albums (1991-2024) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock, Pop R
 magnet:?xt=urn:btih:4ED36378B72CD50E7AFAFF7C4237458E0970BB06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:4ED36378B72CD50E7AFAFF7C4237458E0970BB06
 magnet:?xt=urn:btih:3EFE7BB712E411CBAE946C2460FEE9FBC4B0D8FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:3EFE7BB712E411CBAE946C2460FEE9FBC4B0D8FD
 ```bash
 magnet:?xt=urn:btih:0835FE89BF7AFB52FAE00B1B3F435A2F87EFED4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ VA - Music News For Forum vol.041 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:FE1187B542BB7EDA29655074A60420DD5347DCDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ VA - Neural Dancing (2024) [MP3|320 Kbps] <Synthpop, Pop, Dance, Electronic>
 ```bash
 magnet:?xt=urn:btih:BDC8DA0B3152A1119BC630BAA4561F96AB6D2383
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:BDC8DA0B3152A1119BC630BAA4561F96AB6D2383
 magnet:?xt=urn:btih:316204AD238CD76754157F31656CE5606EF4DA49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:8397D8613255F01D7C271BC6FE9816F29E215151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:8397D8613255F01D7C271BC6FE9816F29E215151
 magnet:?xt=urn:btih:AD21E302784585985516317772B643E0F13CBE77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:AD21E302784585985516317772B643E0F13CBE77
 ```bash
 magnet:?xt=urn:btih:16BD28EC245A84E3B9BC57E6F09EA19E5AA9F375
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:16BD28EC245A84E3B9BC57E6F09EA19E5AA9F375
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:16BD28EC245A84E3B9BC57E6F09EA19E5AA9F375
 ```bash
 magnet:?xt=urn:btih:02A5F29CCDF0451855F9F194EBB18AF4725698C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:02A5F29CCDF0451855F9F194EBB18AF4725698C6
 magnet:?xt=urn:btih:23195E4B5B84E2B1BB24C8BA18D0E01AF94CCB57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:23195E4B5B84E2B1BB24C8BA18D0E01AF94CCB57
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ VA - Sick Disco Moves (2024) [MP3|320 Kbps] <Disco, Nu Disco, Funky House>
 magnet:?xt=urn:btih:E80B400213513AEBBE91C2A3225F4957E85A39E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ Double Commander - это свободный, с открытым исходны
 ```bash
 magnet:?xt=urn:btih:102D16DA4D8A0C02F3A897C343909FAEE76FD3BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:102D16DA4D8A0C02F3A897C343909FAEE76FD3BC
 magnet:?xt=urn:btih:F2B494912EF880B53734D6E9057F8487DA026C0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:F2B494912EF880B53734D6E9057F8487DA026C0B
 ```bash
 magnet:?xt=urn:btih:BBBD6117CC89E9B581D7724834888DBB0F4CBE07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ Smart Driver – удобный радар камер и ДПС, а так же 
 magnet:?xt=urn:btih:76DDFCFA9F1D2A708538415DA1C50B5E5F0B415B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:76DDFCFA9F1D2A708538415DA1C50B5E5F0B415B
 ```bash
 magnet:?xt=urn:btih:5415DBE228A49BAC4E08D7A64BA17CFF0A50E538
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:5415DBE228A49BAC4E08D7A64BA17CFF0A50E538
 magnet:?xt=urn:btih:11CCE06CFEA30309C3331CEBDF4E022473066BA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:11CCE06CFEA30309C3331CEBDF4E022473066BA0
 magnet:?xt=urn:btih:D8209C4FE98A4F785FD6735926D5F36374C8C367
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:D8209C4FE98A4F785FD6735926D5F36374C8C367
 ```bash
 magnet:?xt=urn:btih:F81CE60B009F72A5B67581DA075A276D714D2777
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

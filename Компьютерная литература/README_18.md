@@ -21,6 +21,8 @@ Selenium WebDriver is a popular browser automation framework, testers or develop
 magnet:?xt=urn:btih:22CE3DC6C24311DA3691BA41875840C3475DDE90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Selenium WebDriver is a popular browser automation framework, testers or develop
 ```bash
 magnet:?xt=urn:btih:A10FA285DBE3968DFB60A04B3CA53CDCD3F2B53E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Selenium WebDriver is a popular browser automation framework, testers or develop
 magnet:?xt=urn:btih:4AF1578B9E9FAD1924ED1FFE0AC81DAD8AA6F194
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:4AF1578B9E9FAD1924ED1FFE0AC81DAD8AA6F194
 ```bash
 magnet:?xt=urn:btih:5183890C1C907375F2F4552EEF66040C9313D877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:5183890C1C907375F2F4552EEF66040C9313D877
 magnet:?xt=urn:btih:662BEC28F50AF53922955C51180C8F654557CD24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Python - отличный язык программирования; однак�
 ```bash
 magnet:?xt=urn:btih:554E8E05F02F401B5E1F8C5B7995321525A954BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:554E8E05F02F401B5E1F8C5B7995321525A954BE
 magnet:?xt=urn:btih:D9523A2B2D3230E01A64A8CBE9766CE13F80DBDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:D9523A2B2D3230E01A64A8CBE9766CE13F80DBDF
 magnet:?xt=urn:btih:877693ABD88E3281298A5220527EDCF1AB013C39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Brian Lipp | Modern Data Architectures with Python (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:F546496F36B4EAE1AC288DE5AFC4A1178A406636
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:F546496F36B4EAE1AC288DE5AFC4A1178A406636
 magnet:?xt=urn:btih:67D85B0A295D712E2AA1638A01F7E5B2DCAAA3B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Andreas Deja | Уроки от "Девятки диснеевских стари
 ```bash
 magnet:?xt=urn:btih:5502CFC1B8F824B2B996E0B187BA4360F0280F3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:5502CFC1B8F824B2B996E0B187BA4360F0280F3B
 magnet:?xt=urn:btih:54472E60B07C306BD444812D1F0C2C3A66C15E64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:54472E60B07C306BD444812D1F0C2C3A66C15E64
 ```bash
 magnet:?xt=urn:btih:1E1C059E30AD35502F3D5BCF0786E9F3452D9666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ Dr. Gabriel N. Schenker | The Ultimate Docker Container Book, 3rd Edition (2023)
 magnet:?xt=urn:btih:CA823C77CF68D2BE444DF37E0C4A01D8CBA2089B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Raghav Kandarpa, Shivangi Saxena | Data Wrangling with SQL (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:3F598B222537DC0679586677E942AD65347150A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:3F598B222537DC0679586677E942AD65347150A2
 magnet:?xt=urn:btih:CA80D6C8DC93C7F00388A8A4FB8BD68254BF02C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:CA80D6C8DC93C7F00388A8A4FB8BD68254BF02C9
 ```bash
 magnet:?xt=urn:btih:8526E11D12A09AF385C09157C548D45E7DD93186
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:8526E11D12A09AF385C09157C548D45E7DD93186
 magnet:?xt=urn:btih:F65C601DF5ED92F7A1A1CDE9F1D3699339CB9DC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Oracle появилась четверть века назад и по сей д
 magnet:?xt=urn:btih:C2A74F827C17640EA841DCB0FE3D44D306322526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:C2A74F827C17640EA841DCB0FE3D44D306322526
 ```bash
 magnet:?xt=urn:btih:F89B3630D5F5A649226C100AE6B0D78C75A9130A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:F89B3630D5F5A649226C100AE6B0D78C75A9130A
 magnet:?xt=urn:btih:92A74D85F3D5EB4CC3D92A59FABCED76ADB1D26B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:92A74D85F3D5EB4CC3D92A59FABCED76ADB1D26B
 ```bash
 magnet:?xt=urn:btih:F87B69A3F1E1E07C5CC647E4ECC404055E980036
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:F87B69A3F1E1E07C5CC647E4ECC404055E980036
 magnet:?xt=urn:btih:4ACFC86C13217EE0427BBB48D70D25B06B46577F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:4ACFC86C13217EE0427BBB48D70D25B06B46577F
 ```bash
 magnet:?xt=urn:btih:965167A1FD33BABD5BC4543A337A6A14A8FFF079
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:965167A1FD33BABD5BC4543A337A6A14A8FFF079
 magnet:?xt=urn:btih:3BB4D6402E8DFBEC41CB0E2283FFB62707A9C1C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Viorel Rudareanu, Daniil Baturin | Linux for System Administrators (2023) [PDF][
 ```bash
 magnet:?xt=urn:btih:4BB0A7D6D26F604328533ECD2CFBA07D17387FBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

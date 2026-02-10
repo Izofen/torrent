@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:0DC215CE21664F31AA529E426A527D5E31ABEC53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ NGW: Гонка жизни / Race of Life (2015) HDTVRip [H.264/1080p-LQ] (Се�
 ```bash
 magnet:?xt=urn:btih:FC9858B1899E4A85118D4BB124F8F98DA499EE8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Animal Planet. Чернобыль - Жизнь в смертельной зон�
 magnet:?xt=urn:btih:A702470DE9E83E020809CC88B6206B9094AB36BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ NGW: Птица-динозавр / Dino-Bird (2017) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:CA44CD296BA3D0CB980A0F5E0A0C68EF7863E356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Discovery: Разрушители легенд. Стрелки-профи / Myth
 magnet:?xt=urn:btih:08450DB97EC349EE78909436326780A0F86E85E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ NG: Внутри колец Сатурна / Mission Saturn (2017) TVRip [H.264]
 ```bash
 magnet:?xt=urn:btih:1E0BE4B4E87118A11B0DB605EB213B1AED85543A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:1E0BE4B4E87118A11B0DB605EB213B1AED85543A
 magnet:?xt=urn:btih:A74F2A3D4A44063D47E245942FC37B8B0AA38EF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ Discovery. Прирожденные короли / Brothers in Blood: The Lions 
 ```bash
 magnet:?xt=urn:btih:70DD5D216B61FBB9A8E2BA807F62476E14DD2B0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Discovery. Прирожденные короли / Brothers in Blood: The Lions 
 magnet:?xt=urn:btih:FA78604A01E0E3BD15A848C095FF29FB3FED3A3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Discovery: Наука сексуальной привлекательности 
 magnet:?xt=urn:btih:20CB0081BE5FD3F33D38384DE44645C9FB903EEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Discovery. Дороги России: Трасса Байкал (2016) HDTVRip [
 ```bash
 magnet:?xt=urn:btih:21CA4018E26B7D689D22D6E2BEDF1A2AC2118BB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Discovery: Оружие, которое изменило мир. РПГ / Weapon
 magnet:?xt=urn:btih:C3CBFD57513ED4E488C4C2BA521D2E3F26E459D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ BBC: Дикая природа Новой Зеландии / Wild New Zealand (N
 ```bash
 magnet:?xt=urn:btih:E556C1F4DB060EABEEB36196FE0F7DA55EA5C9D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:E556C1F4DB060EABEEB36196FE0F7DA55EA5C9D5
 magnet:?xt=urn:btih:B4BD74050BDED21666095A2178AF4AEDED291B0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ NGW. Дикие животные 24 часа / Wild 24 (2016) HDTVRip [H.264/108
 ```bash
 magnet:?xt=urn:btih:818715552C5E0DC69CA506E63E874EE4953EA72B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ NG. Львиное королевство / Lion Kingdom (2017) WEB-DL [H.264/10
 magnet:?xt=urn:btih:AE275B6F773A202B566C2F1129DF382BBED76B32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ NGW. Самая большая в мире белая акула / World's Bigge
 ```bash
 magnet:?xt=urn:btih:5CCCF1B7797029F10DC0365CE20C3F2F563C4758
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ NGW. Дикая природа Коста-Рики / Wild Costa Rica (2000) HDTV
 magnet:?xt=urn:btih:2259978479AC132332DC915CC947A7C4254D0A72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ NG. Первая мировая война: тоннели смерти / WWI: T
 ```bash
 magnet:?xt=urn:btih:E3FF84FA625033CAE80DD55383C6FB647DD5D355
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ BBC: Подземная одиссея / Ancient Invisible Cities (2018) DVB (с
 magnet:?xt=urn:btih:543F4948A7551DEE317ACE848B8642E33533A417
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Discovery Channel и Морган Фримен снова ведут зрите�
 ```bash
 magnet:?xt=urn:btih:7CC10204794BC215D498CCE4D541E9A6B42BBF61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ NG: От колыбели до могилы / Cradle to Grave (2016) HDTV [H.264
 magnet:?xt=urn:btih:2DBDF70A28AE33B4D3D18B5AAFCE8D857CC8792E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:2DBDF70A28AE33B4D3D18B5AAFCE8D857CC8792E
 ```bash
 magnet:?xt=urn:btih:98C9A3206402ECA30F3F077B4BCBD10650845FCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Discovery: Путешествие в неизвестность с Эдом Ст
 magnet:?xt=urn:btih:16F788D2DE79A111A9375A5E2B0C2975917574FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ Discovery. Путешествие в неизвестность с Эдом Ст
 ```bash
 magnet:?xt=urn:btih:B222928D03F2FA559DCC99C69FDAB2B95E3B6678
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +673,8 @@ NG: Топ 10 Мегамонстры / Top 10 Biggest Beasts Ever (2015) HDTVRip
 ```bash
 magnet:?xt=urn:btih:91172C0AE57EE892990878F1E3A64ED46D1412DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Harry Allen & Mike Renzi - Rhode Island Is Famous For You (2019) GAC Records [FL
 magnet:?xt=urn:btih:220447764E7DA552297801446BF1E0C6E6832340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Steve Hunter - Before The Lights Go Out (2017) [FLAC|Lossless|image + .cue] <Ins
 magnet:?xt=urn:btih:5D2D4341F0423D9E363325A52FE44CC4599F8E6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Nik Bartsch's Ronin - Live (2012) 2CD [FLAC|Lossless]<Jazz, ECM>
 ```bash
 magnet:?xt=urn:btih:5A8BBA3C80B08A6A3A0044BFFF94BECCF59BC0B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ Johnny Coppola - Hollywood Indigo (2004) [APE|Lossless]<Vocal Jazz>
 magnet:?xt=urn:btih:5CC061824D2BCABE066514A319930929215F6640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ VA - Jazz Funk Instrumentals Vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 ```bash
 magnet:?xt=urn:btih:92375D5B780648BF04EC88D1DB45E72D766F3B47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ VA - Fusion Jazz Funk (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
 magnet:?xt=urn:btih:72A1138EEDD9E4D69FEED2BBA5EEB50A534CB45F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +201,8 @@ VA - Instrumental Vibes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:02D6BB6C58D8A0B725CF5283F12C8B5BB11638C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +237,8 @@ Laurence Jones - Thunder In The Sky (2012) [FLAC|Lossless]<Blues/Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +265,8 @@ Michael Feinstein & Maynard Ferguson - Big City Rhythms (1999) Concord Records [
 ```bash
 magnet:?xt=urn:btih:B363C2F0908D58B389F33092A1FB0AC979528C1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +295,8 @@ Barbara Cook & Michael Feinstein - Cheek To Cheek (2011) DuckHole Records [FLAC|
 magnet:?xt=urn:btih:E826DC00CAB3E59573AA8E420EDDC342C5894B85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +323,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:C10BFC406E2594000E92FE776374F76B9532A8BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +353,8 @@ Gov't Mule - Time Of The Signs (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues
 magnet:?xt=urn:btih:65F1A88EB7EB04F8CE91035E2844BE7219F52638
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +381,8 @@ VA - Jazz Brunch Easy Chilly Atmosphere Instrumentals (2023) [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:6DD90C7A03402CCE82116728E7B0CF62B2D5845F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +417,8 @@ Billy Price & Fred Chapellier - Night Work (2009) [WavPack|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +445,8 @@ Phil Woods, Tommy Flanagan, Red Mitchell - Three For All (1981) 1989, Enja Recor
 ```bash
 magnet:?xt=urn:btih:1176AD92CAFB77028F9D1E131291E0599DEB9E18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +475,8 @@ Disc 1
 magnet:?xt=urn:btih:25C2C66652A58808C87890BF514565A8BD7CAA76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +503,8 @@ Jimi Hendrix - Blues (1994) Remaster 2010 [MP3|320 Kbps] <Blues, Blues Rock>
 ```bash
 magnet:?xt=urn:btih:05CD307FA3B9A11DB2089803A26C64A597548F49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +533,8 @@ The George Shearing Quintet - As Requested (1972) 2005, Koch [FLAC|Lossless|trac
 magnet:?xt=urn:btih:5E434BE39F9B4503D7E1490209C2EA3791B9CF12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +562,8 @@ George Shearing - Walkin' (1995) Telarc Jazz [FLAC|Lossless|tracks + .cue] <Main
 magnet:?xt=urn:btih:DD1B356E8E2408D85EA225AF9FFA18E621B3BE27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +590,8 @@ J.R. Monterose - The Message (1959) 1997, Venus Records [FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:2F4C5563EEA206B56D08A8EA3E766FA9F0C5F6FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +626,8 @@ Ronnie Earl & The Broadcasters - Test Of Time - A Retrospective (1992) [MP3|320 
 magnet:?xt=urn:btih:CCDAFDB5A0673A79D11BB1D18D1DD5982C77528B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +659,8 @@ VA - Live At Ronnie Scott's (1993) [FLAC|Lossless]<Jazz, Hard Bop, Cool>
 ```bash
 magnet:?xt=urn:btih:40A31397A494F58A70A95C02FADF163A83818CB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +695,8 @@ Jack Teagarden - Mis'ry And The Blues (2003) [FLAC|Lossless]<New Orleans Jazz>
 magnet:?xt=urn:btih:5879B6923DE1B284D957592AC462B338EA4E0AEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -683,6 +729,8 @@ Miss Sophie Lee & New Orleans Jazz Vipers - Miss Sophie Lee & New Orleans Jazz V
 magnet:?xt=urn:btih:7EE2132580548D35F31235DA0354AA53985B51A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -710,6 +758,8 @@ Gilberto Gil - Refavela (1977) 1994, Warner Music[FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:50336EA32D94FE814CF7BF7AA4DEE04D5EF28F55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -736,6 +786,8 @@ Sam Most - From The Attic Of My Mind (1978) 2015, Xanadu[FLAC|Lossless|tracks + 
 ```bash
 magnet:?xt=urn:btih:E89DDC26F2DBB1B50C14254037509FF7B6E4EB1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3BD6FDCA59ABECC67BE639C7AD6B7A6F1E55A93A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ INDIGO | Фортуна дама переменчивая (Книга 3). На �
 magnet:?xt=urn:btih:F83BEAE17AB6206B81F1E272A7AB7B4D6A719945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ INDIGO | Фортуна дама переменчивая (Книга 2). На �
 ```bash
 magnet:?xt=urn:btih:494BD3D40BFFE89AB2CA5A08695AD5236CDC3E84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Temtris - Queen Of Crows (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:366FCCAB553706386550406AE124C60A1215358A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:366FCCAB553706386550406AE124C60A1215358A
 magnet:?xt=urn:btih:5EBAB2DCF1F4E1EF8DC906C0B00FCD78D2E77530
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:5EBAB2DCF1F4E1EF8DC906C0B00FCD78D2E77530
 ```bash
 magnet:?xt=urn:btih:E33134336913F0236EFF7C1CB93EABFC125B0642
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:E33134336913F0236EFF7C1CB93EABFC125B0642
 magnet:?xt=urn:btih:F583B5DBA5369FBCFD8153EEDD2D47AD69B44AA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Immortal Hunters (2025) [Ru/Multi] (0.1.1681.9f4ce919) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:3D1730940511A7FD96473F90BD73CCB6C84BEF75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:3D1730940511A7FD96473F90BD73CCB6C84BEF75
 magnet:?xt=urn:btih:6DBDB004A3016AF4152943B740F69A6A64335731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:6DBDB004A3016AF4152943B740F69A6A64335731
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:6DBDB004A3016AF4152943B740F69A6A64335731
 magnet:?xt=urn:btih:4F88966FF4B3C60DF20FE25CC266A24D121AA1F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:4F88966FF4B3C60DF20FE25CC266A24D121AA1F7
 magnet:?xt=urn:btih:F70AA86C3F376A51E4ADD07BA7CE33E6DCD598E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:F70AA86C3F376A51E4ADD07BA7CE33E6DCD598E5
 ```bash
 magnet:?xt=urn:btih:55E29CBF9F75684925840969AC1EF944D859CD20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:55E29CBF9F75684925840969AC1EF944D859CD20
 magnet:?xt=urn:btih:3EE6CE6FCDA24F19E3DDE498DF3D817E61C89D19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:3EE6CE6FCDA24F19E3DDE498DF3D817E61C89D19
 ```bash
 magnet:?xt=urn:btih:4A418D431B3271CFD7B74BD9E334A4A6F67C1B76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:4A418D431B3271CFD7B74BD9E334A4A6F67C1B76
 magnet:?xt=urn:btih:83B00F5A3573DC011CF87EFBB3744792E41C8987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:83B00F5A3573DC011CF87EFBB3744792E41C8987
 ```bash
 magnet:?xt=urn:btih:1DAD9ECCE12EEB91222A49C9146C3B2AC8D6CE2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:1DAD9ECCE12EEB91222A49C9146C3B2AC8D6CE2F
 magnet:?xt=urn:btih:78877DA9317112077C7A6E0C4B566E31B5D2AD20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:78877DA9317112077C7A6E0C4B566E31B5D2AD20
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:78877DA9317112077C7A6E0C4B566E31B5D2AD20
 magnet:?xt=urn:btih:5986975B0E90CBE9C46C4D2E1F0EF8C881907FA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:5986975B0E90CBE9C46C4D2E1F0EF8C881907FA1
 ```bash
 magnet:?xt=urn:btih:7BB1062526584EA87AB2F0590944E45BED111CC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ DaVinci Resolve — единственное в мире решение для �
 magnet:?xt=urn:btih:6A982B6F68DB56BE3123BAA3384FA796796B7B8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:6A982B6F68DB56BE3123BAA3384FA796796B7B8F
 ```bash
 magnet:?xt=urn:btih:EFCA13785795950A411A338BA1D7462BA2F55367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:EFCA13785795950A411A338BA1D7462BA2F55367
 magnet:?xt=urn:btih:A9A73C5B35BE5D5D8B28658340BB17F792BB89FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.9.0.1/dlc) Repack Pioneer
 magnet:?xt=urn:btih:8A0D6837D9C0DA7074A782C42C2A1A2FD3E135AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Avidemux - небольшой, простой редактор для работ
 ```bash
 magnet:?xt=urn:btih:6B519B4BD08AC94B974E4AFA65D63D4A2C1FDC2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

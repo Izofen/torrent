@@ -19,6 +19,8 @@ Adobe Premiere Pro быстро становятся номер один в си
 magnet:?xt=urn:btih:08B730EEA90178DDF584A77E8408BF594443FBFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ video2brain |Adobe Illustrator CS6: Learn by Video [Jun 27, 2012] PCRec [Eng]
 ```bash
 magnet:?xt=urn:btih:AE606FB0DD92CAA2C68D623689C144D9AA48A00E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Volfix.net (Сон/Лемах) | LEVEL 2 Курс стратегического
 magnet:?xt=urn:btih:DB37D48610B6665CB450D59E95E3E35AC68C0500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:DB37D48610B6665CB450D59E95E3E35AC68C0500
 ```bash
 magnet:?xt=urn:btih:006FF736098CB10A66F0EEF40CB55B5D80AA1BA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:006FF736098CB10A66F0EEF40CB55B5D80AA1BA4
 magnet:?xt=urn:btih:2A7452E0D78C8334B83FC3C4C48B02A8D3BD73FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:2A7452E0D78C8334B83FC3C4C48B02A8D3BD73FC
 ```bash
 magnet:?xt=urn:btih:134BDE00CF91A66462A284187863FD2B3D6A86EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:134BDE00CF91A66462A284187863FD2B3D6A86EE
 ```bash
 magnet:?xt=urn:btih:DF3F07C90896AA2B7FF1F6F6459C6D50450B610B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Tony Hillerson | Developing Android Applications with Java. Part 1. [2010] PCRec
 magnet:?xt=urn:btih:9F8F1AC8D1B59CDF4603890D29AD3918617A6F24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ ITVDN | Разработка пользовательского граф. инт
 ```bash
 magnet:?xt=urn:btih:71767C98D2777ACB80056B237C39784C1932BDE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ ITVDN | Unity3D Создание Clicker (2016) PCRec
 magnet:?xt=urn:btih:00D829CE4AF811AD3BD30C6F47295973E3828F19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:00D829CE4AF811AD3BD30C6F47295973E3828F19
 ```bash
 magnet:?xt=urn:btih:972234F68275AA2FC61EE3F57F3D33FB27E695E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:972234F68275AA2FC61EE3F57F3D33FB27E695E0
 magnet:?xt=urn:btih:08E6920C227183073489EDEDFB4D1D752996A05C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ FastTrack Tutorials, Emiel Sleegers | Large Game Environment Creation - In-Depth
 magnet:?xt=urn:btih:6391E2113F4643A7BF22B1F75029BAD9D4C12B7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ CyberMarketing | Онлайн-конференция по SEO и веб-анал
 ```bash
 magnet:?xt=urn:btih:49ED823FAE48394802809C3355D67C0A71CB02EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:49ED823FAE48394802809C3355D67C0A71CB02EB
 magnet:?xt=urn:btih:AB0FFF1B568E384C90D6978C75BA5C3455DDA8E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:AB0FFF1B568E384C90D6978C75BA5C3455DDA8E5
 magnet:?xt=urn:btih:C95A36BBBD486996A80ACFD05EC41BE523B15B58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ The Gnomon workshop, Derrick Sesson | Introduction to creating facial blendshape
 magnet:?xt=urn:btih:7E7C125EE1B9F0A8119EAA6421000422E345F46C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ MZED, Vincent Laforet's | Directing Motion Daytime Movement and Direction Worksh
 ```bash
 magnet:?xt=urn:btih:6D24DB0178AD4A6778249128898280D38178B192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ CGcircuit, Matthew Skonicki | Photogrammetry Pipeline V2 (2018) PCRec [RU]
 magnet:?xt=urn:btih:4A3C6B66704A0B5F99854A456783DA9493DAA781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:4A3C6B66704A0B5F99854A456783DA9493DAA781
 ```bash
 magnet:?xt=urn:btih:0FA9E6990FD7ED968ADEAF08B2BE850F68DD2D45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ HighLoad | Профессиональная конференция разраб�
 magnet:?xt=urn:btih:51FFD7FC75CD79715C1F37CDBDFCF997DB21C7A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ SDG TRADE (Брагинский/Срибный) | Прибыльный дейт�
 ```bash
 magnet:?xt=urn:btih:9FF99CBFE48117D86AA81507BC885EE20AB8B3F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:9FF99CBFE48117D86AA81507BC885EE20AB8B3F0
 magnet:?xt=urn:btih:56C62C4251EF9F965A7022F52C4FE097F8A0F4D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ Udemy.com | Цифровой композитинг визуальных эфф�
 ```bash
 magnet:?xt=urn:btih:BF274501738BC2B30C40A0D8FC35647B1542A3AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:BF274501738BC2B30C40A0D8FC35647B1542A3AF
 magnet:?xt=urn:btih:670F094C322F9D92DC9A4DDFBF937476D35353ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ CGcircuit, Matthew Skonicki | Photogrammetry Pipeline (2018) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:9531352CDD6ABF00624F9606A43485F283B03DED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

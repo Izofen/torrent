@@ -1,3 +1,32 @@
+###  Публикация: 1122444   (798833) от 05.04.2017
+
+VA - Sound Color: Popular Dance Music (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_798833.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Maan - Perfect World
+002. Medina - We Survive
+003. Pierce Fulton - Make Me Blue
+004. Tomx - In The End(   Читать дальше...   )Жанр: PopПродолжительность: 06:22:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4FED42445C1080010EE53F50F336ACDDF929E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506577   (799090) от 02.11.2021
 
 VA - Halloween Pop (2021) [MP3|320 Kbps] <Pop>
@@ -21,6 +50,8 @@ VA - Halloween Pop (2021) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:663C94A04ECBF1192C62FEBB73301617A80E7ACF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ magnet:?xt=urn:btih:663C94A04ECBF1192C62FEBB73301617A80E7ACF
 magnet:?xt=urn:btih:A2A2AAE49A1ABC73C7B18407F7F31C6569728D4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - German Top 100 Single Charts 07.01.2019 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:BB41AF1DD2B1ADCC58C74F0D2F626415A05FB994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - German Top 100 Single Charts 29.10.2021 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:7962FD7A84AE2AFF90AF7D138251A701551A6963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Весенняя танцевальная вечеринка. Выпуск 
 ```bash
 magnet:?xt=urn:btih:E7DE68EFC6DA7C7C4D0DA9C77C2690A8BE7D4E91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Новогодний Торт (2017) [MP3|256-320 Kbps] <Pop>
 magnet:?xt=urn:btih:2A2C73C6ECE5CFB0664B2C30B9B9612BB2C35EB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - German Top 100 Single Charts 22.05.2020 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:EBB1A2C5AE5322FEADF94DF0CD9B77B053CC2E39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Только хиты. Русский сборник от Хит fm вып�
 magnet:?xt=urn:btih:810896E555844A939DEF7BAEEBEEB6856ABCA3D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Весенняя 100-ка популярных треков выпуск �
 ```bash
 magnet:?xt=urn:btih:0CE64C18053167B556A5BD924E8CADC0993BAE61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - German Top 100 Single Charts 03.04.2017 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:34E3F069607124EF6445328D864B97B8CBE76561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Музыкальный подарок от Европы Плюс. Сбор�
 ```bash
 magnet:?xt=urn:btih:82BFFFDAED399C0AECEFB3902FC50B1A3733000C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Лучшая дискотека на Europa Plus. Выпуск № 5 (2017)
 magnet:?xt=urn:btih:61DCB313235FADCA32EA74F871DFE7F8887E9DDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Любимые хиты весны. Версия № 7 (2017) [MP3|256 Kbps
 ```bash
 magnet:?xt=urn:btih:57FA96A6A2F11006F977680DD9EDCEE57DBD8D96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Танцевальная вечеринка Хит FM. Выпуск № 6 (
 magnet:?xt=urn:btih:3079CFA6F1991F16BD98C0AEAA6DBC5A62D032F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Музыкальный презент на Europa Plus выпуск № 7 (
 ```bash
 magnet:?xt=urn:btih:226345FF6A4A6560ED8969257BF191A7F8534319
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - Лучший весенний хит выпуск № 8 (2017) [MP3|256 Kbp
 magnet:?xt=urn:btih:BFE4F04CFB0778C8802B431B49588E6891632DCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +514,8 @@ VA - Звездная тусовочка. Часть № 4 (2017) [MP3|256 Kbps]
 ```bash
 magnet:?xt=urn:btih:170DDEE14ED39AA28ABBA0C935E83E6A7FB0B2CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +544,8 @@ VA - Положительный заряд Hit FM. Версия № 5 (2017) [MP
 magnet:?xt=urn:btih:83CF91A1FDD86E33A75A6A0A15F525D29EB857C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +572,8 @@ VA - De Top 100 Aller Tijden 1976 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 ```bash
 magnet:?xt=urn:btih:0556D6CE5FD9E5A0A9281C2B403DE94BB555C20E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +602,8 @@ VA - Дискотека 80-90 годов по - новому от Виталия
 magnet:?xt=urn:btih:F5D1725D9B319F1EFF9D068A5CB4B2F2C9185AEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +630,8 @@ VA - Русский хит. Самые сливки дискотек 80-90х (20
 ```bash
 magnet:?xt=urn:btih:9A94A924A0EF6A35AA08C77D05395BACB36D122A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +660,8 @@ VA - Dинамик. Весна (2017) [MP3|256-320 Kbps] <Pop>
 magnet:?xt=urn:btih:B9E9074D223B20EC7FDFAB29BE8E6BCA365198CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +688,8 @@ VA - Музыка солнца (2014) [MP3|192-320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:8F66CDC384CF229E0CA10BD00A507524F16D0964
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +718,8 @@ VA - Бомба Hits. Весенний (2017) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:A45C02B60F5D1AA94D2185A735B590DAA07B7F1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,32 +747,7 @@ VA - Hit Music (лето 2020) от Мяу (2020) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:E408C80A5BB999EBE6576195FC35A8F64AC8C74A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198694   (806054) от 12.01.2018
-
-Joe Dassin - Joe Dassin & Toto Cutugno (2018) Compilations [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_806054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Il Etait Une Fois Nous Deux (3:58)
-02. L'ete Indien (4:33)
-03. Et Si Tu N'existais Pas (3:30)
-04. Cote Banjo Cote Violon (3:07)(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E079C487CE5AAC37DC23295416EAC5412EC30EFC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

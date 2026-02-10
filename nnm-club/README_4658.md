@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B37CBD196E5FABCE1E51A78EA45C3617B883BFAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VA - Black Mirror / Чёрное зеркало (Collection Original Soundtrack)
 ```bash
 magnet:?xt=urn:btih:AB8E8BF1995D228D08C06B22B477A90998605941
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Ohrwert - Fidelis / Blavus (2017) Greyscale [FLAC|Lossless|WEB-DL|tracks] <Dub T
 magnet:?xt=urn:btih:A76935643F8FA819781CEEBA9A47E2EA6CD5B984
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ VA - 100 Greatest Ballads (2019) [FLAC|Lossless|tracks] <Pop, Rock, Dance>
 magnet:?xt=urn:btih:547B467D6B8FE17790F8BBE5436E5B4256006F37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:547B467D6B8FE17790F8BBE5436E5B4256006F37
 ```bash
 magnet:?xt=urn:btih:E7922B605A6261601030DF6C7E57D2C3FAFA0D62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:E7922B605A6261601030DF6C7E57D2C3FAFA0D62
 magnet:?xt=urn:btih:145C51C66AF28D17D6C911AD2695022EB5F44EEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Haunted Hotel 17: Beyond the Page (2018) [En] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:11D82C0C2282797F69786A2BD0C8CD041099BCA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:11D82C0C2282797F69786A2BD0C8CD041099BCA7
 magnet:?xt=urn:btih:9AF1C4D504778E5A25B5C1DE6BC85D0DA9F8FF38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:9AF1C4D504778E5A25B5C1DE6BC85D0DA9F8FF38
 ```bash
 magnet:?xt=urn:btih:8C23D7E6E37B32A7B67732D9393D18A38055804D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ VA - Guitar Collection 10 (2016) [MP3|320 Kbps] <Blues, Acoustic, Metal >
 magnet:?xt=urn:btih:537F7014002CAA3674D824BDFE37DCF44C7E77C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:537F7014002CAA3674D824BDFE37DCF44C7E77C3
 ```bash
 magnet:?xt=urn:btih:6A0C1BBB9EB48583A8EB90A31F65ED575B00AC5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ TG Gray - TG Gray EP (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:4FC1BF65141362746867A07950A95AAD31AA926A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ My_Initials - Twelve (2017) ScanDark Recordings [FLAC|Lossless|WEB-DL|tracks] <T
 magnet:?xt=urn:btih:17377505D1ED89875334A5870604CBEA43AF5E62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:17377505D1ED89875334A5870604CBEA43AF5E62
 ```bash
 magnet:?xt=urn:btih:49469BC1D64F83B832ED4FEA3CAF2BEA890F75C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:49469BC1D64F83B832ED4FEA3CAF2BEA890F75C1
 magnet:?xt=urn:btih:FF331B6BE28B4C4A32EDFD0C13194D604D47DD91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ Trine 5: A Clockwork Conspiracy (2023) [Ru/Multi] (1.2a) License GOG
 ```bash
 magnet:?xt=urn:btih:CAC81A33C572860C07897D59BBC02423829E9EBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:CAC81A33C572860C07897D59BBC02423829E9EBE
 ```bash
 magnet:?xt=urn:btih:30E21337871CF4EA243EC437A82CD685F85DBD49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ Harry Allen - The Bloody Happy Song (2020) [FLAC|Lossless|image + .cue] <Mainstr
 magnet:?xt=urn:btih:8CFCE830E74A0DD4B5DF06DF8887840BA57A6C54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:8CFCE830E74A0DD4B5DF06DF8887840BA57A6C54
 ```bash
 magnet:?xt=urn:btih:3C749C2CC87C70CF097696AEE420653FB5C7518E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:3C749C2CC87C70CF097696AEE420653FB5C7518E
 magnet:?xt=urn:btih:F3FD3DAB8BE9371B9DA1A9E4DFAED1C296D92818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ Phase One Capture One PRO 9 — один из лучших профессион�
 ```bash
 magnet:?xt=urn:btih:CB3E10D315B3E2915C37B0DA796A0CA9B820969D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ Demon Hunter 5: Ascendance (2018) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:0DFB0A342804AFDFF35EF9029F8A2ECFA5F34335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ Kaspersky Tweak Assistant - небольшая программа, котора�
 magnet:?xt=urn:btih:EC736D481496ACD3376139C7E15A3E06B101310A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:EC736D481496ACD3376139C7E15A3E06B101310A
 ```bash
 magnet:?xt=urn:btih:F0BC74A6A30811FA42CCE56246768806A0BE6CC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ Stavros Papadopoulos - Rare Tracks (Freerock Sessions) (2020) [MP3|320 Kbps] <Bl
 magnet:?xt=urn:btih:ECC3798F3C74575702608DD70B938A72B648BAAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:ECC3798F3C74575702608DD70B938A72B648BAAB
 ```bash
 magnet:?xt=urn:btih:C037CBDB31C4457F08511D7D8CE35423DB9494D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

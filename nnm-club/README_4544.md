@@ -19,6 +19,8 @@ The KiCad Team | Мануал для ПО "KiCad" [10 книг] (12.2020) [PDF, 
 magnet:?xt=urn:btih:CE058ECAB265BA9C5323F76C3CB7D4F4200E8E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:CE058ECAB265BA9C5323F76C3CB7D4F4200E8E46
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Helicopters Wallpapers (17.12.12) [Wallpapers]
 magnet:?xt=urn:btih:9916B17DB3608BBF840BFB197A44C5C6B86E6B3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:9916B17DB3608BBF840BFB197A44C5C6B86E6B3D
 ```bash
 magnet:?xt=urn:btih:AB4E92AC69378761AA55F580FE4FB4AD8C179BA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:AB4E92AC69378761AA55F580FE4FB4AD8C179BA3
 magnet:?xt=urn:btih:8A331E5706C4665A067260C8953A8D22C0A6CA68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:8A331E5706C4665A067260C8953A8D22C0A6CA68
 ```bash
 magnet:?xt=urn:btih:6CF9CF419FE4425A134B8C7514CEFB72CA53C67F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:6CF9CF419FE4425A134B8C7514CEFB72CA53C67F
 magnet:?xt=urn:btih:DEF8049459B3C045BBDB69B59E0888FADF1D193A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ App Swap Drawer Premium v1.0.2.512 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7E9269F480609924A0B6AED8E6467F25BF3CE73E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:7E9269F480609924A0B6AED8E6467F25BF3CE73E
 magnet:?xt=urn:btih:127CA665694170F4112D5198F42C32F7CF0C45B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:127CA665694170F4112D5198F42C32F7CF0C45B4
 ```bash
 magnet:?xt=urn:btih:255CFAB5422A196FB596CB18EC25CE4303148B03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:255CFAB5422A196FB596CB18EC25CE4303148B03
 magnet:?xt=urn:btih:9C92C7150531C9802549737910D129C517A07F66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:9C92C7150531C9802549737910D129C517A07F66
 magnet:?xt=urn:btih:1DED084D233A25AD21F3403EE84CE19F3C0F1130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ magnet:?xt=urn:btih:1DED084D233A25AD21F3403EE84CE19F3C0F1130
 ```bash
 magnet:?xt=urn:btih:6CF3842505E277E86292C2AD39EBDB12F952B5B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ VA - Better Than Sex (2CD) (2016) [MP3|320 Kbps] <Synthpop>
 magnet:?xt=urn:btih:F62FFE850B19AE21F91F1D1702B403FEA7747D61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Panda Free Antivirus (бывший Panda Cloud Antivirus) бесплатный �
 ```bash
 magnet:?xt=urn:btih:15197C2EE6370F00D74B6C931C5BC583E668BA53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Foxit PDF Reader - профессиональное приложение для 
 magnet:?xt=urn:btih:CF31DF3A7449A5B2D8E868D47F6D8D4C40F8858C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Gilrs Wallpaper (17.12.12) [Wallpapers 16+]
 ```bash
 magnet:?xt=urn:btih:CE1244A3F96439CDBC4F879B3D5987F82924E695
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Farming Simulator 19 v.1.4.1 (2018) [Multi/Ru] [macOS Native game]
 magnet:?xt=urn:btih:8F067F5386BD5ED5B8A4324309D9EDB01E157218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:8F067F5386BD5ED5B8A4324309D9EDB01E157218
 magnet:?xt=urn:btih:4B71EA1F37ECB4B5FC85C2CE3A720BF7FDD250E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:4B71EA1F37ECB4B5FC85C2CE3A720BF7FDD250E3
 ```bash
 magnet:?xt=urn:btih:E48F4F187752FCF09664D4AF2DF536E6713F8246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ VA - Space Holidays Vol. 6 (2014) 2CD [MP3|320 Kbps] <Synthpop, Spacesynth>
 magnet:?xt=urn:btih:3961CC606A6017E73C4558856CF0EEC1879FFCA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:3961CC606A6017E73C4558856CF0EEC1879FFCA3
 magnet:?xt=urn:btih:76072B0983098A94F8812675050491012B8F85E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:76072B0983098A94F8812675050491012B8F85E0
 ```bash
 magnet:?xt=urn:btih:80F019986341BCFA28C1D9C00EC7C9B2BDE2C0A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:80F019986341BCFA28C1D9C00EC7C9B2BDE2C0A0
 magnet:?xt=urn:btih:D0D718DC3882FCBA90D9BFC7665CE82B6ADD5CB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:D0D718DC3882FCBA90D9BFC7665CE82B6ADD5CB4
 magnet:?xt=urn:btih:B7006775379B745703FE7CC871E20EE45255B8E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:B7006775379B745703FE7CC871E20EE45255B8E7
 ```bash
 magnet:?xt=urn:btih:764F37600518FCC70AA4971A156C5DAC2C88EB29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

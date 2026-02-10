@@ -22,6 +22,8 @@ Vince Clarke - Songs of Silence (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ambi
 magnet:?xt=urn:btih:3071FF1AC03B0EA5A0500F467CDC5C1A9F8B7CEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:3071FF1AC03B0EA5A0500F467CDC5C1A9F8B7CEB
 ```bash
 magnet:?xt=urn:btih:3C67896C3E06CFEC00F1177212B63FC15602EF07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:3C67896C3E06CFEC00F1177212B63FC15602EF07
 magnet:?xt=urn:btih:AF5A3FC51AE5AF71B825C1CAA9658D5DF32AC77B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Kinza Browser - японский браузер на базе Chromium с доп
 magnet:?xt=urn:btih:7DC2E03BF9A684FBA716259DA1C0EDB249A50FF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Hetman Office Recovery поможет восстановить важные до
 ```bash
 magnet:?xt=urn:btih:4626DDD23357CEB552D0B4E7EAB5AD827F7836BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:4626DDD23357CEB552D0B4E7EAB5AD827F7836BF
 magnet:?xt=urn:btih:D7A3B1C01868CF5A2E8FAC5B39FFDB6D2C1C0CA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:D7A3B1C01868CF5A2E8FAC5B39FFDB6D2C1C0CA9
 ```bash
 magnet:?xt=urn:btih:B49313A3E13157D417A7ADBE5418BDB87609594F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ VA - Finest NY House 2021, Pt. 1 (2021) [AAC|~333 Kbps] <House>
 magnet:?xt=urn:btih:3188307B5169359DEB7DDFFB6F64A3517E0747B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:3188307B5169359DEB7DDFFB6F64A3517E0747B4
 magnet:?xt=urn:btih:F44F7BFC342FCC03F0BEF4B3FCB4F9A1FBA52A81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:F44F7BFC342FCC03F0BEF4B3FCB4F9A1FBA52A81
 ```bash
 magnet:?xt=urn:btih:4966779E9E5AF80F1CA2403F028937F0E1A8C46A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ George Michael - 14 альбомов (1987-2006) [FLAC|Lossless] <R&B, Pop, Funk
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ VA - Hit Music от Мяу (декабрь 2015) (2015) [MP3|112 - 320 кб/с] 
 magnet:?xt=urn:btih:929FA1E9364D8A51BAB47E6F76AD0658D8AE02A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:929FA1E9364D8A51BAB47E6F76AD0658D8AE02A8
 ```bash
 magnet:?xt=urn:btih:3CB3E283C93A6974575D8CA505CE85FBCA3DAD2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:3CB3E283C93A6974575D8CA505CE85FBCA3DAD2E
 magnet:?xt=urn:btih:9D15A91DBDE0D2E1004863F2004493896F26D4F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ Dr.Web CureIt! 8.0 (14.12.2012) [MULTi / Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ Kotlin - один из самых быстроразвивающихся язы�
 ```bash
 magnet:?xt=urn:btih:2521118D939AEDC64BF59DF4C6BF57AA40C95413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ VA - Loulou Players presents Best Of Loulou Records 2021 (2021) [AAC|~319 Kbps] 
 magnet:?xt=urn:btih:8493EC6E7E1B65289DFCCE3B638F6F06B5F2BD9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:8493EC6E7E1B65289DFCCE3B638F6F06B5F2BD9C
 magnet:?xt=urn:btih:6B6D4BF7368017779CB7489E2A9ED7DA03EBAE6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:6B6D4BF7368017779CB7489E2A9ED7DA03EBAE6C
 ```bash
 magnet:?xt=urn:btih:62EB039569C576D02932300FA8320F7763F306D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ Barbra Lica - Christmas Present (2015) [MP3|320 Kbps] <Vocal-Jazz>
 magnet:?xt=urn:btih:B44FD395F036C1FD7E3872276B302715E93B5B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ Avant Browser Ultimate 2016 build 01 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:03C8B599DF9317F51E3228A9E38C252D1052C2C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +597,8 @@ magnet:?xt=urn:btih:03C8B599DF9317F51E3228A9E38C252D1052C2C7
 magnet:?xt=urn:btih:66FF1867D5671464513866AEA30D9FF2E0463708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ VA - Cookin' Jazz vol. 3 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:7B5F9C87E32E58E020892B224F8260C4063046C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ VA - B2B Best of 2021 (2021) [AAC|~332 Kbps] <Tech House>
 magnet:?xt=urn:btih:3851CFA9591C660D334D46129EF69942808110F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ Any Burn - небольшая бесплатная утилита для раб�
 magnet:?xt=urn:btih:535744E8EF769287CDCF481DD2A6B6DD2C2F3AE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ Red Faction Anthology (2001-2011) [Ru/En] Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:2929FBB2123ABBCEA7B54A3E0D7F571F584987CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

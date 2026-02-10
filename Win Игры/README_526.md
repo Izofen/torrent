@@ -1,27 +1,3 @@
-###  Публикация: 175913   (934523) от 18.02.2010
-
-Звездные волки 2: Гражданская война (L) [Ru] 2009
-
->>Win Игры
->>Patch/Tweak/Trainer/Other для Игр
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_934523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Strategy (Real-time / Tactical) / 3D
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093284   (934543) от 14.01.2017
 
 Rise & Shine (2017) [Ru/Multi] (1.0) License PLAZA
@@ -42,6 +18,8 @@ Rise & Shine совмещает в себе аркадный шутер с ис�
 ```bash
 magnet:?xt=urn:btih:CB04B159209B82CE9CABBE31388A475DB1495D1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Worlds of Magic (2015) [Ru/Multi] (1.2.6/dlc) SteamRip Let'sPlay
 magnet:?xt=urn:btih:FA118BA2D3A955FFBCEAFF0E0E831C0F56ECE746
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Magic: The Gathering - Duels of the Planeswalkers 2014 – новая часть
 ```bash
 magnet:?xt=urn:btih:FD1788835E6836CF48C6EF80A26B1287BFA80E1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Transistor — научно-фантастическая игра в жанре 
 magnet:?xt=urn:btih:5720BCE7BD7BF1873EFB562DB83DA0003F80ADE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ Season Match / Времена года (2007) [Ru] (1.0) Unofficial
 magnet:?xt=urn:btih:C993CC0D94194AF8B4D1AE0D8618D5EF6F1AF2AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +148,8 @@ The Cursed Forest (2019) [Ru/En] (1.0.6) Repack Other s
 ```bash
 magnet:?xt=urn:btih:45CDD3F868210296B8CBBDB8E138040231F4FF7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +180,8 @@ magnet:?xt=urn:btih:45CDD3F868210296B8CBBDB8E138040231F4FF7B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +205,8 @@ Impire – стратегия, в которой вы выступаете пр�
 ```bash
 magnet:?xt=urn:btih:164B065E3743ED6762B44D81E139FE54BBD1F710
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +234,8 @@ Heroes Over Europe [Ru/En] (RePack/1.02) 2010 l Adil
 magnet:?xt=urn:btih:BD7F35D346BAA283F0EF6AB4214F3D8FFE73E0BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +259,8 @@ Stronghold Crusader 2 - это долгожданный сиквел ориги�
 ```bash
 magnet:?xt=urn:btih:A78FEC4DEF21DAC4A285C64F22994D81AAD15939
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +286,8 @@ Meridian: New World - это стратегия в реальном времен
 magnet:?xt=urn:btih:E3E90D66FD63CE255329A2D34CCE7F003BA3761F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +311,8 @@ Planar Conquest — это глобальная пошаговая страте�
 ```bash
 magnet:?xt=urn:btih:52D5DB6503CD00C48F17D6A6C35771C30194022A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +338,8 @@ Poly Bridge (2015) [Ru/Multi] (1.0) Repack R.G. Механики
 magnet:?xt=urn:btih:29110A034DCF91D6D3450D370BAE7504CA5B7020
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +363,8 @@ Don't Chat With Strangers (2017) [En] (1.0) Repack MaggotFreddy
 ```bash
 magnet:?xt=urn:btih:8DEBD5B880183695B78FE5B006FFD7B2B127232C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +391,8 @@ Dr. Langeskov, The Tiger, and The Terribly Cursed Emerald: A Whirlwind Heist (20
 magnet:?xt=urn:btih:7E22AB1C6F02EB2CD0EFBB3EF4627A1F1D3739A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +416,8 @@ RoboMatch (2017) [Ru/Multi] (GreenLight Demo) License
 ```bash
 magnet:?xt=urn:btih:B35743E5589A183F8B242A7107BF1FC8609F9467
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +443,8 @@ Void Destroyer — гибрид космического симулятора и
 magnet:?xt=urn:btih:5AAA077D426F47C6CCB02B92DE839D545621E026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +469,8 @@ Your Toy (2020) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:5BB295119F1631984CCF9268A07446325DCD2C50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +494,8 @@ Black Mirror 2 / Черное зеркало 2 (2010) [Ru] (1.01) RePack -Ultra-
 ```bash
 magnet:?xt=urn:btih:B8D1EFB9C466E15A21B29FC6F3DB9B10D3BCF9C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +524,8 @@ Cities XL Platinum позволяет проектировать, строить
 magnet:?xt=urn:btih:52FCD5546B9C8AB4F77CCE6F4919A3327344C9EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +549,8 @@ Darkest Dungeon — сложная пошаговая ролевая roguelike-�
 ```bash
 magnet:?xt=urn:btih:865BC18F8DF179A441A63389501B8D3517C7CC76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +576,8 @@ Lucius II: The Prophecy - трехмерная хоррор-адвенчура, 
 magnet:?xt=urn:btih:142CDCBB00563511F0B5307A25EC07D6C8FDCA33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +601,8 @@ Incredible Dracula III: Family Secret / Невероятный Дракула II
 ```bash
 magnet:?xt=urn:btih:ADA04ED17259C106196498E062BC9051B4BB951C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +630,8 @@ Redemption Cemetery 8: At Death's Door / Кладбище искупления 8
 magnet:?xt=urn:btih:988BD155966587001C563BA915C69514C1E50D30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +655,34 @@ Westward Kingdoms (P) [En] 2010
 ```bash
 magnet:?xt=urn:btih:5297513360C46DD07BCF62F21228E295B64A7A92
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364097   (939081) от 01.03.2020
+
+Heaven Dust (2020) [Ru/Multi] (1.0) Repack Other s
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_939081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы очнулись в особняке, который являлся секретным исследовательским центром, но теперь превратился в лабиринт, полный смертельных ловушек и зомби. Вам нужно найти выход, преодолев свои страхи, попутно собирая предметы, решая головоломки и узнавая правду... Эта игра - выражение нашей любви к классическим играм-хоррорам 90-х, таким как серия игр Resident Evil и всем (   Читать дальше...   )Тип издания: RepackРазработчик: One Gruel StudioЖанр: Adventure (Survival Horror), Puzzle, 3DЯзык субтитров: Русский, Английский, Немецкий, КитайскийЯзык интерфейса: Русский, Английский, Немецкий, Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:382487742E347FFCB77902E6A4174A379A2D734F
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

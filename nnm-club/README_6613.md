@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:EE7DAD632AF652511B29D11DDBA7167125608646
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Kolawole Mangabo | Full Stack Django and React (2023) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:C2D3D9C7F28749854A75C56D1D2679FCA933B625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:C2D3D9C7F28749854A75C56D1D2679FCA933B625
 magnet:?xt=urn:btih:433A2A3F24382335E9F5D7343F916F2F9C709E4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:433A2A3F24382335E9F5D7343F916F2F9C709E4C
 ```bash
 magnet:?xt=urn:btih:6044387E25F0D33C8CDAFC5F6EF4CB7C0150B70A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:6044387E25F0D33C8CDAFC5F6EF4CB7C0150B70A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:6044387E25F0D33C8CDAFC5F6EF4CB7C0150B70A
 ```bash
 magnet:?xt=urn:btih:BF89B52810D2839C2ACB47C7D31CBBC04B1083B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Dream&Draw, Анастасия Козлова | Марафон по акваре
 magnet:?xt=urn:btih:6844D23EC26D9D5782BD7C70D90D477FBA509D7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:6844D23EC26D9D5782BD7C70D90D477FBA509D7E
 ```bash
 magnet:?xt=urn:btih:268CA0A8515D38B3681AEC98738C7C16C24A51CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:268CA0A8515D38B3681AEC98738C7C16C24A51CA
 magnet:?xt=urn:btih:2589204465EB93C89FBABADDFCF9BAB3BB4D87DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:2589204465EB93C89FBABADDFCF9BAB3BB4D87DE
 ```bash
 magnet:?xt=urn:btih:9ED7CAC30F20ED95670F135D162F156FDE0A1058
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Windows 11 Manager - это универсальная утилита специ
 magnet:?xt=urn:btih:A8CEDA12DABFDA88FA494C4B12557D03F44545FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:A8CEDA12DABFDA88FA494C4B12557D03F44545FA
 ```bash
 magnet:?xt=urn:btih:A612BF8690DB154690BD74EFFA0BC2D5648B83D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:A612BF8690DB154690BD74EFFA0BC2D5648B83D3
 magnet:?xt=urn:btih:78297150ECADDB40E711DB3BC3949B54E73F9235
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:78297150ECADDB40E711DB3BC3949B54E73F9235
 ```bash
 magnet:?xt=urn:btih:914B6C71EAA789BD4F1A84893EFB06E77187B492
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:914B6C71EAA789BD4F1A84893EFB06E77187B492
 magnet:?xt=urn:btih:92C2AA8F40EC21562115EC6732CC3D6AB371DC06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Microsoft .Net Framework 14.03.23 RePack by xetrin [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D5E8A2C9023887E7560E1078169BED0DD712656B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:D5E8A2C9023887E7560E1078169BED0DD712656B
 magnet:?xt=urn:btih:418F7C644DAD442CF802385DE976E996D656B238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:418F7C644DAD442CF802385DE976E996D656B238
 ```bash
 magnet:?xt=urn:btih:071A59263E4C078ED2277DF2C303174A4B7FCE2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:071A59263E4C078ED2277DF2C303174A4B7FCE2C
 magnet:?xt=urn:btih:81FA83C74F991CE268ED6B63D57B96DBE7D10B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:81FA83C74F991CE268ED6B63D57B96DBE7D10B13
 ```bash
 magnet:?xt=urn:btih:519424BBA5FF5D4EA6A0C8FD09CEDB72F786E7BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:519424BBA5FF5D4EA6A0C8FD09CEDB72F786E7BA
 magnet:?xt=urn:btih:0B948A704EBAC9EBB3F3735205E21D32A6CD113E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:0B948A704EBAC9EBB3F3735205E21D32A6CD113E
 magnet:?xt=urn:btih:95613617D8496295B66E0B4DD744D3F3F63E0196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:95613617D8496295B66E0B4DD744D3F3F63E0196
 ```bash
 magnet:?xt=urn:btih:214CBCFAD13E6A2CF68E1DFF1B0E0BA5BA213476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ FXPHD, Andrew Lowell | HOU220 – Houdini FX, Particle Fundamentals and Fuzzy Lo
 magnet:?xt=urn:btih:D8B603ABCF0DE56863D6445B7CE2128E95AFC908
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:D8B603ABCF0DE56863D6445B7CE2128E95AFC908
 magnet:?xt=urn:btih:732A434276DCF358CEAA1F32DEA8762BE3466EE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:732A434276DCF358CEAA1F32DEA8762BE3466EE3
 ```bash
 magnet:?xt=urn:btih:000932008C795E1BA62B2DCE64F40B9A4BD8B0ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

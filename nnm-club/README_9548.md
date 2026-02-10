@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6D98B2B7E00F849A250B839116583A9ACDE68E07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Pirates of the Caribbean / Корсары 2: Пираты Карибского �
 ```bash
 magnet:?xt=urn:btih:FC3B9BCA147C5BE530E51D38BDEA151C59F591C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:FC3B9BCA147C5BE530E51D38BDEA151C59F591C6
 magnet:?xt=urn:btih:DBE80FB49A29F6E1EAAF9CE65372D6F07CD19A2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:DBE80FB49A29F6E1EAAF9CE65372D6F07CD19A2C
 ```bash
 magnet:?xt=urn:btih:7E96ABAA0CCA35EB8428F6237F448ADAF8D93FC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:7E96ABAA0CCA35EB8428F6237F448ADAF8D93FC2
 magnet:?xt=urn:btih:88C979C9B3525080CF0128C8AE51DCFF1D8CA9FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:88C979C9B3525080CF0128C8AE51DCFF1D8CA9FF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:88C979C9B3525080CF0128C8AE51DCFF1D8CA9FF
 magnet:?xt=urn:btih:6162001817E88F82C26121321A78715774A9B4F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Unforgiving - A Northern Hymn (2017) [Ru/Multi] (1.1.0) Repack Other s
 magnet:?xt=urn:btih:B38E4AA21EDB55A5D8897FD8E212BE0616CB8E23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Close Combat: The Bloody First - это новая игра в популярн�
 ```bash
 magnet:?xt=urn:btih:7D9AA5A288240A7E9F1BCCDBA593512B8DEDAC39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:7D9AA5A288240A7E9F1BCCDBA593512B8DEDAC39
 magnet:?xt=urn:btih:93BF91217189E585BED945137277D46F2C159CF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:93BF91217189E585BED945137277D46F2C159CF8
 ```bash
 magnet:?xt=urn:btih:CC067DC682F7471EB9DA6FB895A257A0B9DB07F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ VA - Club Night Rider (2019) [MP3|320 Kbps] <Dance, Pop, Electro, Disco>
 magnet:?xt=urn:btih:A9D45B40B691055668A64B02AE54C0A28542D936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:A9D45B40B691055668A64B02AE54C0A28542D936
 ```bash
 magnet:?xt=urn:btih:8753D3EE205DF112AE4BAE16BD2983D8720D5377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:8753D3EE205DF112AE4BAE16BD2983D8720D5377
 magnet:?xt=urn:btih:070777C558EFA1ADEF81D660381BB92BD2C00AEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:070777C558EFA1ADEF81D660381BB92BD2C00AEE
 ```bash
 magnet:?xt=urn:btih:D323DFE8F1E36B1887CBF574EBF729A15B6AAFB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:D323DFE8F1E36B1887CBF574EBF729A15B6AAFB6
 magnet:?xt=urn:btih:9B954C249154713CDD66EA4BC9979AD90102DD70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:9B954C249154713CDD66EA4BC9979AD90102DD70
 magnet:?xt=urn:btih:3FD8EF53A77E442C349A68730E233E70AB86B14F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:3FD8EF53A77E442C349A68730E233E70AB86B14F
 ```bash
 magnet:?xt=urn:btih:99CBAB05CB575764BCE5BCB4C779B8EB5D41FE36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:99CBAB05CB575764BCE5BCB4C779B8EB5D41FE36
 ```bash
 magnet:?xt=urn:btih:242757C6AED83C7C67D921C89BA18E08264A627A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ VA - Halloween Dance Party 2019 [MP3|320 Kbps] <House, Dance>
 magnet:?xt=urn:btih:87977DA5A1508FA6E0E2D40086CAAB266299C1B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:87977DA5A1508FA6E0E2D40086CAAB266299C1B8
 magnet:?xt=urn:btih:FE8C4AFAA61748993A967F6E8283FB32342AB550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:FE8C4AFAA61748993A967F6E8283FB32342AB550
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ VA - Happy Moments Lounge: Chillout Your Mind (2020) [AAC|~316 Kbps] <Downtempo,
 magnet:?xt=urn:btih:9AB6E3EC7993ABB39F8C8B105473F81684E6B1FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ VA - Sweet & Tender Lounge: Chillout Your Mind (2020) [AAC|~309 Kbps] <Downtempo
 ```bash
 magnet:?xt=urn:btih:9663D51DF5177306B7866C90211EBB2B92F38DD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ VA - Trip to Paris Lounge: Chillout Your Mind (2020) [AAC|~320 Kbps] <Downtempo,
 magnet:?xt=urn:btih:8BBF6B108048DAF9C6A45F0CCBEA83945B4293C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ VA - On the Beach Lounge: Chillout Your Mind (2020) [AAC|~332 Kbps] <Downtempo, 
 ```bash
 magnet:?xt=urn:btih:2A7D8E2995560338AD0B5DC9A6F7D66EA999BE80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

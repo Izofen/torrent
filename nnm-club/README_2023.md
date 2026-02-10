@@ -19,6 +19,8 @@ BitTorrent – программа-клиент пиринговой сети. П
 magnet:?xt=urn:btih:C0F6444A1AF2AD3A338CD503742A506560A90947
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:1FCBB710F7F17E27BB518EF5E146D613537FDBCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:E29FFF7FF954AFED5A02858E156003C337FEBDB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ EditPlus – это компактный текстовый редактор д�
 ```bash
 magnet:?xt=urn:btih:C4A8C22126F317C943C452133AA8FA23C7F8E6DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Moog Music - Complete Moogerfooger Effects Bundle 1.3.0 (x64) RePack by TCD [En]
 magnet:?xt=urn:btih:2FE2CD4053EF9FEB09487C11EBD26733F30EC676
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ ActivePresenter Pro Edition 9.1.5 (x64) RePack (& Portable) by elchupacabra [Mul
 ```bash
 magnet:?xt=urn:btih:894E7A8247F9DD088836B9E36AC744524EE868F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:894E7A8247F9DD088836B9E36AC744524EE868F8
 magnet:?xt=urn:btih:7CED5F6BD7CD3FBD2105D2A58F1BC5820AC6325B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Overlays - Floating Launcher - очень полезное приложение 
 magnet:?xt=urn:btih:8B449395290F5B09D8F96635515C14C9D6C27722
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Helium Music Manager - многофункциональный музыкальн
 ```bash
 magnet:?xt=urn:btih:3A97C3FE29CCF5D3D83599E8B8D08567B1602B5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:3A97C3FE29CCF5D3D83599E8B8D08567B1602B5C
 magnet:?xt=urn:btih:6AF511A2CBDB6195E1020E670D07F29EA850B3C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:6AF511A2CBDB6195E1020E670D07F29EA850B3C4
 ```bash
 magnet:?xt=urn:btih:DB51FB3A3530909847727621FD1E99A0A2676DCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:DB51FB3A3530909847727621FD1E99A0A2676DCB
 magnet:?xt=urn:btih:5A57AC78088EB2861BEFC4B4512F574F615FB512
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Soft Organizer Pro 9.50 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:82EA94E0D1B07DC4ABBB47D50429BFB625F0D838
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:82EA94E0D1B07DC4ABBB47D50429BFB625F0D838
 magnet:?xt=urn:btih:0B6F9DE8D01338A90E641244D4EF7243126148F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:0B6F9DE8D01338A90E641244D4EF7243126148F4
 magnet:?xt=urn:btih:052C8990A33A81139AB3946413058DA2CF07C734
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:052C8990A33A81139AB3946413058DA2CF07C734
 ```bash
 magnet:?xt=urn:btih:6FF13B40C72809C6F24783A454D0588E25FCC1F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:6FF13B40C72809C6F24783A454D0588E25FCC1F8
 magnet:?xt=urn:btih:4867C6CE6DCCFF6B2002A9BDA275A4401F5354F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ The Smurfs - Village Party (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CC8570C1CF17FFB8B7E52A3478D74587D865224D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:CC8570C1CF17FFB8B7E52A3478D74587D865224D
 magnet:?xt=urn:btih:5926C806F527FBA9B4C38444C8126E35C6EE9A66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Pro PDF Reader - это удобное и мощное приложение дл
 magnet:?xt=urn:btih:3B87554F7B0BBE10D912A9BF24F129269267848D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:3B87554F7B0BBE10D912A9BF24F129269267848D
 ```bash
 magnet:?xt=urn:btih:17D6A53E0BEA9B264EBA86D67B36ECDCA7D5FE37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ Michael Jackson - Thriller (1982) SACD, Reissue, Remastered, 2022, Mobile Fideli
 magnet:?xt=urn:btih:36F644A78B3401F6374995F61C380B21BA578003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ BYTES: The Reverse Tower Defense – это вариация традицион�
 ```bash
 magnet:?xt=urn:btih:6AF11F9DB4BC93DED0D1745601FB2782C5F40A08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:6AF11F9DB4BC93DED0D1745601FB2782C5F40A08
 magnet:?xt=urn:btih:04D30E579355385A85D7D02D21E7E3AD16D82DA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:04D30E579355385A85D7D02D21E7E3AD16D82DA1
 magnet:?xt=urn:btih:9E434C0E4369B864420EA75E2E8E66B7E3F689DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Super 13 Launcher - это лаунчер для Android, имитирующий
 ```bash
 magnet:?xt=urn:btih:B974E43B83DBF660573D7ABE0B22D75C60D523F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

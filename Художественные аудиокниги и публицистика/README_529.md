@@ -1,3 +1,29 @@
+###  Публикация: 1578837   (343219) от 24.09.2022
+
+Михаил Усачев | Автократия гоблинов (Книга 3) (2022) [MP3, Михаил Алексеев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_343219.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много гоблинов и часто с пушками. Иногда тупых, иногда даже очень. Иногда с матом, иногда за дело. Если горит костёр – значит сожгли хату. На нём готовится енот – за ним три дня как посылали танки. Атаман зовёт – караул в ружьё! Люди пришли – сами виноваты! Их скоро перебьют – простая ситуация. Это Гоблин ОПГ – запрещённая на территории всех королевств организация.Жанр: Боевое фэнтези, Попаданцы, Юмористическое фэнтезиПродолжительность: 07:57:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA622322B27561BB62848021672AF1E8FE9639B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578691   (343231) от 24.09.2022
 
 Андрей Ткачев, Findroid | Я покорю Лабиринт с помощью техник массажа (Книга 3) (2022) [MP3, Максим Полтавский]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:D54AE74F1F35359C5A554A65A861426F41A06C2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:D54AE74F1F35359C5A554A65A861426F41A06C2E
 magnet:?xt=urn:btih:EB2FC5460BDD498599A25ED0B7C2500FA6440C76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:EB2FC5460BDD498599A25ED0B7C2500FA6440C76
 ```bash
 magnet:?xt=urn:btih:C3F67E9AF074A75D40A8EA99B5F742CE2F766F44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:C3F67E9AF074A75D40A8EA99B5F742CE2F766F44
 magnet:?xt=urn:btih:F11A878B097D08DE1E1DC70A878D31C69BEE730A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:F11A878B097D08DE1E1DC70A878D31C69BEE730A
 magnet:?xt=urn:btih:A865666D58693476DD89308FDF2F72FD90CCE83D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:A865666D58693476DD89308FDF2F72FD90CCE83D
 ```bash
 magnet:?xt=urn:btih:2A01763222E806BEA42F9498A78CF6166062CA16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:2A01763222E806BEA42F9498A78CF6166062CA16
 magnet:?xt=urn:btih:32323417BA6632D21D2535A40829270EE4E6BAF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:32323417BA6632D21D2535A40829270EE4E6BAF2
 ```bash
 magnet:?xt=urn:btih:F690D9D79211999745B84649CD03A48F4ED745B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:F690D9D79211999745B84649CD03A48F4ED745B7
 ```bash
 magnet:?xt=urn:btih:DD8FBA8DF24E03B020F5F841B4941DA0B9DC5542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +290,8 @@ magnet:?xt=urn:btih:DD8FBA8DF24E03B020F5F841B4941DA0B9DC5542
 magnet:?xt=urn:btih:3D428FF9F583DC1971114D5F24FBA87382E28CA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +315,8 @@ magnet:?xt=urn:btih:3D428FF9F583DC1971114D5F24FBA87382E28CA8
 ```bash
 magnet:?xt=urn:btih:8F83B67A6497A581C37A4CC8FCBDA31110ECE4ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +343,8 @@ magnet:?xt=urn:btih:8F83B67A6497A581C37A4CC8FCBDA31110ECE4ED
 magnet:?xt=urn:btih:064EA887BA1A592BF9CD25459E5D4FF0C656C82D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +368,8 @@ magnet:?xt=urn:btih:064EA887BA1A592BF9CD25459E5D4FF0C656C82D
 ```bash
 magnet:?xt=urn:btih:E17EB5B39B19F1480E4544DDB311E97B7E86C81D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:E17EB5B39B19F1480E4544DDB311E97B7E86C81D
 magnet:?xt=urn:btih:9780DB6C924F512E2C1FAA81253A679436FADCED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:9780DB6C924F512E2C1FAA81253A679436FADCED
 ```bash
 magnet:?xt=urn:btih:88953963AC689114709E2AE5CD18D5B6C68A81ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:88953963AC689114709E2AE5CD18D5B6C68A81ED
 magnet:?xt=urn:btih:33289C9294A7BA1379FE4C91D1687877E1ED2A94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +473,8 @@ magnet:?xt=urn:btih:33289C9294A7BA1379FE4C91D1687877E1ED2A94
 ```bash
 magnet:?xt=urn:btih:42C9EC8824FBAF3A37666532EF6E3967CB36BF0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +503,8 @@ magnet:?xt=urn:btih:42C9EC8824FBAF3A37666532EF6E3967CB36BF0C
 magnet:?xt=urn:btih:BB691B9774EFFFC2A309F6ABA622CD2907384D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +529,8 @@ magnet:?xt=urn:btih:BB691B9774EFFFC2A309F6ABA622CD2907384D20
 magnet:?xt=urn:btih:BB89C27CF20B9012401D5F47F04801C8E3071625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:BB89C27CF20B9012401D5F47F04801C8E3071625
 ```bash
 magnet:?xt=urn:btih:0103120FAE6FBB7524FD456DB30EECF2B71EB701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +582,8 @@ magnet:?xt=urn:btih:0103120FAE6FBB7524FD456DB30EECF2B71EB701
 magnet:?xt=urn:btih:05E1B6F5E058ADAD25957576C2BCB13D344367C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +609,8 @@ magnet:?xt=urn:btih:05E1B6F5E058ADAD25957576C2BCB13D344367C6
 magnet:?xt=urn:btih:0EFE854A403BFAB435A249FD64B1E82690C8E367
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +634,8 @@ magnet:?xt=urn:btih:0EFE854A403BFAB435A249FD64B1E82690C8E367
 ```bash
 magnet:?xt=urn:btih:D996FDC943E01D44ADA18A07D51CE5CF0D4437D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +661,8 @@ magnet:?xt=urn:btih:D996FDC943E01D44ADA18A07D51CE5CF0D4437D7
 magnet:?xt=urn:btih:405B55FDD2CE7AB18FAB0C856B371E4A25C5864F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,29 +687,7 @@ magnet:?xt=urn:btih:405B55FDD2CE7AB18FAB0C856B371E4A25C5864F
 magnet:?xt=urn:btih:2739CAA4EDCAFF941000B047A76797BCDAC8AB24
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418887   (344700) от 26.10.2020
-
-Дарья Калинина | Муж из натурального меха (2020) [MP3, Олег Шубин]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_344700.jpg" />
-</div>
-
-
-###  Подробнее
-
-На что только не пойдет настоящая женщина ради новой шубы! В горящую избу войдет, начальника грудью прикроет, от шопинга откажется. Да что там, ради шубы такая, как Лиля, даже замуж готова. Причем не за кого-нибудь, а только за директора шубного магазина или за владельца фабрики, где шьют эти легчайшие жакетки, манто, шубки и курточки. Но новую шубу к празднику хочется (   Читать дальше...   )Жанр: Иронический детективПродолжительность: 07:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F94C947EE01C87919AB0E502B0F8E5DF6422985A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

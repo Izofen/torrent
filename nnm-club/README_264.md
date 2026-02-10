@@ -22,6 +22,8 @@ VA - Summer Like (2025) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:AC9916697BD49E5320C81452B994A2320B6FE46D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:AC9916697BD49E5320C81452B994A2320B6FE46D
 ```bash
 magnet:?xt=urn:btih:AF7DC499D82F734D13211AFA4649186D199F422F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:A4872ECA33F0F46142EF829ED80DC563125D8BB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:A4872ECA33F0F46142EF829ED80DC563125D8BB4
 ```bash
 magnet:?xt=urn:btih:586E056B9BDDC46BD268B2E2A8212A664AFEC124
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:586E056B9BDDC46BD268B2E2A8212A664AFEC124
 magnet:?xt=urn:btih:A2F930E4F0B4A8B419361F7B956C612BA3C2A25E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Drug Dealer Simulator 2 (2024) [Ru/Multi] (20250814/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:2D96BDD7ECF81D56066D4D3376ADA9D412E02D76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ VA - Rolling Stone Magazine's 500 Greatest Songs Of All Time vol. 2024 (2024) [F
 magnet:?xt=urn:btih:0F858DAC461E62547AA5D72613ACE76A37D7B180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Ikarus Parkour (2025) [Ru/Multi] (2.83) License GOG
 ```bash
 magnet:?xt=urn:btih:33321804ADC0E8AE7AC65AA4B0CE840122F3591F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:33321804ADC0E8AE7AC65AA4B0CE840122F3591F
 magnet:?xt=urn:btih:7F53753411D1D8C28F681F138DF8BAD95B43AF30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Estranged: Act I / Estranged: The Departure (2014, 2020) [Ru/Multi] (Build 16907
 ```bash
 magnet:?xt=urn:btih:0E568C9670C5154C2367A0567B4096FAE89F9646
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Blood Bar Tycoon (2025) [Ru/Multi] (1.1.10776-250723/dlc) Repack FitGirl
 magnet:?xt=urn:btih:BEB2EBF667BBA4FC3C4D43E05D2CB3F7AA925BA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ OCCT 14.2.6 Portable [En]
 ```bash
 magnet:?xt=urn:btih:ED7114F7EC829347226FB76C805857CBF05B7B60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Windows Server 2022 впервые обеспечивает расширенну
 magnet:?xt=urn:btih:4E63C944DAF39E0AB04A8F31FD0364BDD38E7C36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 ```bash
 magnet:?xt=urn:btih:9851C94839789A89D6909E25FCE28714C91EC974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ VA - Russian Covers (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:44DEC929126A1BFA4DDC0C579787975FC79890FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:44DEC929126A1BFA4DDC0C579787975FC79890FC
 magnet:?xt=urn:btih:1DF2D62C8DD1543F0A93CBFFFCCAE68AD4F82561
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:A3DF897E724DFF52EE338DCAC50AE09B5E185099
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Windows 10 2022 Update (под кодовым названием "22H2") это 
 magnet:?xt=urn:btih:F722BB5C5C8E437CE873864451C3480EDBD304C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:F722BB5C5C8E437CE873864451C3480EDBD304C0
 ```bash
 magnet:?xt=urn:btih:D4FDCF693D65DCBD35066060C5D715EAA158916D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ Dread Flats (2025) [Ru/Multi] (2.10.1) Repack FitGirl
 magnet:?xt=urn:btih:2A40EE9B5122B7AA05C06FB43FB38F50CBD15642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ Ashampoo Burning Studio 26.0.3.4 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CFFF2DAB99655932B7E02241C1343B15FFA025FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:CFFF2DAB99655932B7E02241C1343B15FFA025FE
 magnet:?xt=urn:btih:7FF2986E1233DA94864CEECF8466D145E8D73121
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:7FF2986E1233DA94864CEECF8466D145E8D73121
 magnet:?xt=urn:btih:9F0162C99E947CE0016C298E9F669FC2B0173E17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:9F0162C99E947CE0016C298E9F669FC2B0173E17
 ```bash
 magnet:?xt=urn:btih:5FC0A537B17907ACC0DFD7FD2138B4DACAC96506
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ Popa Chubby - 30 альбомов (1992 -2025) 37 CD [FLAC|Lossless|tracks + .cu
 magnet:?xt=urn:btih:051FAFF731E782BB2A3582C680C1008B703C257F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:051FAFF731E782BB2A3582C680C1008B703C257F
 ```bash
 magnet:?xt=urn:btih:3238D7E1CDBD3DF5F7FBF018182C977D9CE406AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

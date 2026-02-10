@@ -21,6 +21,8 @@ https://t.me/izofen
 magnet:?xt=urn:btih:096AC658CCBA5B4F2ED078E6D5EF79636C838BA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:096AC658CCBA5B4F2ED078E6D5EF79636C838BA5
 magnet:?xt=urn:btih:C9D478FF48A3874191599536BA86A2283DA08457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:C9D478FF48A3874191599536BA86A2283DA08457
 ```bash
 magnet:?xt=urn:btih:086E0C6F2E5F1D524AC026C2F99D24FEB106C447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ HTML Academy | Доступность веб-интерфейсов (2025) [unpa
 magnet:?xt=urn:btih:112781BC94FF47172A8A162615B4D15897E4902F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:112781BC94FF47172A8A162615B4D15897E4902F
 ```bash
 magnet:?xt=urn:btih:AE1845209A0EA7146B89C334794B1256075BC905
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:AE1845209A0EA7146B89C334794B1256075BC905
 magnet:?xt=urn:btih:52ABE06AAC2A928C528F036BC1E78B51B87E9335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:52ABE06AAC2A928C528F036BC1E78B51B87E9335
 magnet:?xt=urn:btih:93F43E5E50FFE3E0E79D7D9B5E3EF50A26BA54D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:93F43E5E50FFE3E0E79D7D9B5E3EF50A26BA54D4
 ```bash
 magnet:?xt=urn:btih:6067CF63AA340C349ED900D4FFF7ED6FD103B004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Judaica Multimedia (Israel) Ltd | Encyclopaedia Judaica CD-ROM Edition v1.0 / Е
 magnet:?xt=urn:btih:46234CA0D5D6E9E774AD299B27237E99ECB14F56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:46234CA0D5D6E9E774AD299B27237E99ECB14F56
 ```bash
 magnet:?xt=urn:btih:B4D4776F0938940E23C9488CC0B315B21307EEFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:B4D4776F0938940E23C9488CC0B315B21307EEFB
 magnet:?xt=urn:btih:BAF6B1751A6F22858B2E460745E8F22F85AB0ACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:BAF6B1751A6F22858B2E460745E8F22F85AB0ACA
 ```bash
 magnet:?xt=urn:btih:7DF87BF23EBF25339B22157E75B01024B605022F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Nezabudka  cake | Трайфлы  (2020) [PDF]
 magnet:?xt=urn:btih:0035451B30690176BCB2B5B5B8C120EF629A1D29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:0035451B30690176BCB2B5B5B8C120EF629A1D29
 ```bash
 magnet:?xt=urn:btih:C07903DD8D70F117F2AC216C536577E72AAD82BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:C07903DD8D70F117F2AC216C536577E72AAD82BD
 magnet:?xt=urn:btih:DF7590D9766EB7B3496EF966DEEAC598612EAE1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:DF7590D9766EB7B3496EF966DEEAC598612EAE1C
 ```bash
 magnet:?xt=urn:btih:745E10D6F8BE736D1B936AADA1307B4583ABAE70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:745E10D6F8BE736D1B936AADA1307B4583ABAE70
 magnet:?xt=urn:btih:E2F2169C884FD8FAC31E2691102977A7638E1372
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:E2F2169C884FD8FAC31E2691102977A7638E1372
 ```bash
 magnet:?xt=urn:btih:1350384CA6C434074F526105838E7E25C179C9AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:1350384CA6C434074F526105838E7E25C179C9AC
 magnet:?xt=urn:btih:8908739AB4E1028F30758A5EEB23B549DA902F89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Oxford Educational | Журнал по изучению английского �
 ```bash
 magnet:?xt=urn:btih:7B71A16FD8CD248F85FC2DF9AB3628319B6E6B4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ HTML Academy | Профессия «Javascript-разработчик». Тар�
 magnet:?xt=urn:btih:1CB1D93F0D7B9F291158708F3F8EAEFF6677DBBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:1CB1D93F0D7B9F291158708F3F8EAEFF6677DBBE
 magnet:?xt=urn:btih:F918DFBAD7032E0EFC4511448CF8E4F751BC6B07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ magnet:?xt=urn:btih:F918DFBAD7032E0EFC4511448CF8E4F751BC6B07
 ```bash
 magnet:?xt=urn:btih:9EFA980C13C9628266C89BC225E2BE081DD86819
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ HTML Academy | Курс «введение в react» [Demo] (2024) [unpacked]
 magnet:?xt=urn:btih:E9F6DD92C9D3D86A8D5624E4DBE63545CC29A109
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ HTML Academy | HTML и CSS. Профессиональная вёрстка са
 magnet:?xt=urn:btih:6DD364E49C45D6AC4081B78C95FF773EDD685E5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:6DD364E49C45D6AC4081B78C95FF773EDD685E5A
 ```bash
 magnet:?xt=urn:btih:3F498D09109F5D616420096CFCE9D388DFE48030
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

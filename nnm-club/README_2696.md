@@ -22,6 +22,8 @@ VA - The Best Of Italo Disco Vol. 10 (1988) [AAC|320 Kbps] <Electronic, Pop, Ita
 magnet:?xt=urn:btih:86D4081794AD0EA4B384B7D2E92C5912B7187408
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ MusicBrainz Picard - простая в использовании програм
 ```bash
 magnet:?xt=urn:btih:A74C47B7BF6449305666C2809F33827E4A5D49A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Tape Five - Fizzy Far Niente (2025) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz, Elec
 magnet:?xt=urn:btih:1F267AE64045CFD2ECB2D88355438D5C62F3748D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:1F267AE64045CFD2ECB2D88355438D5C62F3748D
 ```bash
 magnet:?xt=urn:btih:656178CAC05365127C804AC6EB60ED78D67DB78B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ Louis Armstrong - Wonderful World: The Best Of Louis Armstrong (2024) Verve Reco
 magnet:?xt=urn:btih:E392E6B5ED79219EEB85239EA2DB23C9B7107785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:E392E6B5ED79219EEB85239EA2DB23C9B7107785
 ```bash
 magnet:?xt=urn:btih:1F98D7CDFB86DA811C9B426B16B29340A4BAF181
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:1F98D7CDFB86DA811C9B426B16B29340A4BAF181
 magnet:?xt=urn:btih:01B9AC9A7F4DF9C663BA53E2BC5E32866253E5EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:4E02DB810CD756DAAC82FB873D5C60DD37880275
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:4E02DB810CD756DAAC82FB873D5C60DD37880275
 magnet:?xt=urn:btih:3D7008ACEF21135970453186850D936F6F1395CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:3D7008ACEF21135970453186850D936F6F1395CF
 magnet:?xt=urn:btih:DB6F2FCE9872E3D077056BEE4B0E535E4941D210
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:DB6F2FCE9872E3D077056BEE4B0E535E4941D210
 ```bash
 magnet:?xt=urn:btih:DECF9201FE9F6F8033C50932BA09861132B38EAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ VA - The Sound of 2025, Chapter 1: Milan (Night Mix) (2025) [MP3|320 Kbps] <Tran
 magnet:?xt=urn:btih:B2AE1AACA889AE36790A428B1EB84D4ADB5A113F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ PowerDirector – Video Editor v14.8.2 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:0A1F3B485600314F9EFF74B3E2146239C6911440
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:0A1F3B485600314F9EFF74B3E2146239C6911440
 ```bash
 magnet:?xt=urn:btih:2F4297DF298144A245E5E697923FA231FEC1C563
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:2F4297DF298144A245E5E697923FA231FEC1C563
 ```bash
 magnet:?xt=urn:btih:1C0BC2EC74DC3B104D02BBD0402393F71ABB14D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ Julee Cruise – Floating Into The Night (1989) [FLAC|Lossless|tracks + .cue] <S
 magnet:?xt=urn:btih:9A1CD4FC39BB814154B20669210E605366B70731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:9A1CD4FC39BB814154B20669210E605366B70731
 magnet:?xt=urn:btih:98362BD51B720205D7BA8F49066093E163A7F338
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:EE608E2F494878E8145A82532E7797EEFE9205AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ Soft Organizer - утилита для полного удаления нену�
 magnet:?xt=urn:btih:10703D6563619ABB23611674D377BFAE0B3ECFD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ XnView MP - мощное многофункциональное приложен
 ```bash
 magnet:?xt=urn:btih:8FDDDC195C9AEF5FC6627CE9B2F70941C4882C7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:8FDDDC195C9AEF5FC6627CE9B2F70941C4882C7F
 magnet:?xt=urn:btih:15C6CEA43C52FEFFAFA0E403B59ECDE4048A99ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:5706D612B5CC6429C21DE67EDC571B8F7196785A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:5706D612B5CC6429C21DE67EDC571B8F7196785A
 ```bash
 magnet:?xt=urn:btih:3870D586F061D7E86D49CEC533F3AC365ED20C5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:3870D586F061D7E86D49CEC533F3AC365ED20C5E
 magnet:?xt=urn:btih:6844DD7E3D9949518275426236439A9F6B48F841
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ magnet:?xt=urn:btih:6844DD7E3D9949518275426236439A9F6B48F841
 magnet:?xt=urn:btih:0E2872E381ABF708CF71B189A4B820DF89116F9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:90CA6DBC26206D7D59BFFA76FEF20AE444A2EF2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,31 @@
+###  Публикация: 1139950   (658036) от 04.06.2017
+
+Холостяк (2017.06.03) HDTV [H.264/1080i] (сезон 5, выпуск 13 - финал)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_658036.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 МАРТА В 21:30 НА ТНТ НАЧНЕТСЯ НОВЫЙ СЕЗОН ШОУ «ХОЛОСТЯК»
+Грядет новый сезон самого романтичного шоу на ТНТ. Продюсеры невероятно долго и тщательно подбирали главного героя — они хотели пригласить достойного мужчину, сильную личность, человека с огоньком в глазах. И такой мужчина нашелся. Вот только не с огоньком в глазах, а с ревущим пламенем в сердце!
+С главным (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:03:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0E7B81B4E548F2DF9C5519FD10443E131640578
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 514752   (658051) от 24.06.2012
 
 BBC: Горная горилла / BBC: Mountain Gorilla (2010) BDRip [H.264/1080p-LQ]
@@ -18,6 +46,8 @@ BBC: Горная горилла / BBC: Mountain Gorilla (2010) BDRip [H.264/108
 ```bash
 magnet:?xt=urn:btih:A82AEFC121AFD48AEBBD26B8CB8C931C0035D5C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +72,8 @@ magnet:?xt=urn:btih:A82AEFC121AFD48AEBBD26B8CB8C931C0035D5C4
 ```bash
 magnet:?xt=urn:btih:6EFC52C6A55AF6F12A2490B0850361F3AC8526AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +100,8 @@ magnet:?xt=urn:btih:6EFC52C6A55AF6F12A2490B0850361F3AC8526AC
 magnet:?xt=urn:btih:0FC534B494EBE7B054A643B9A2CEF97A73C464A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +125,8 @@ magnet:?xt=urn:btih:0FC534B494EBE7B054A643B9A2CEF97A73C464A4
 ```bash
 magnet:?xt=urn:btih:F38CCC61CE6BC534CCC6CDEFC003851D90E4283E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +152,8 @@ magnet:?xt=urn:btih:F38CCC61CE6BC534CCC6CDEFC003851D90E4283E
 magnet:?xt=urn:btih:C66DD84BDE7409D6B64CDD011219D6597BB16034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +177,8 @@ magnet:?xt=urn:btih:C66DD84BDE7409D6B64CDD011219D6597BB16034
 ```bash
 magnet:?xt=urn:btih:A47C6FD496396D9C79575B2AAF392AEFDA45BCDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +205,8 @@ magnet:?xt=urn:btih:A47C6FD496396D9C79575B2AAF392AEFDA45BCDC
 magnet:?xt=urn:btih:7EA12DFCC9E723BF851823F7A3DED9023ECA76F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +231,8 @@ magnet:?xt=urn:btih:7EA12DFCC9E723BF851823F7A3DED9023ECA76F9
 ```bash
 magnet:?xt=urn:btih:B36D1F73CB8ABB369D7EFD33143E07E96F2BFC31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +260,8 @@ magnet:?xt=urn:btih:B36D1F73CB8ABB369D7EFD33143E07E96F2BFC31
 magnet:?xt=urn:btih:97B703106ACF695BC5950CE8808D390892611601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +287,8 @@ magnet:?xt=urn:btih:97B703106ACF695BC5950CE8808D390892611601
 magnet:?xt=urn:btih:4B9A4A56D9D9B47E688F9B9C75AF7D8E1E9C58EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +312,8 @@ magnet:?xt=urn:btih:4B9A4A56D9D9B47E688F9B9C75AF7D8E1E9C58EF
 ```bash
 magnet:?xt=urn:btih:5495A9C850CA384067E303E3A60C6FE7D6EB03D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +339,8 @@ magnet:?xt=urn:btih:5495A9C850CA384067E303E3A60C6FE7D6EB03D1
 magnet:?xt=urn:btih:D7B353482197085F1658A24601131F5110E5DAFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +364,8 @@ magnet:?xt=urn:btih:D7B353482197085F1658A24601131F5110E5DAFF
 ```bash
 magnet:?xt=urn:btih:E97C7EE661D1192C3829FDC96E16CE051CDB5CAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +391,8 @@ magnet:?xt=urn:btih:E97C7EE661D1192C3829FDC96E16CE051CDB5CAD
 magnet:?xt=urn:btih:57F62D779FC1016250FC33EAFB6C11F36BF66C25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +416,8 @@ magnet:?xt=urn:btih:57F62D779FC1016250FC33EAFB6C11F36BF66C25
 ```bash
 magnet:?xt=urn:btih:B57FFD4F5B57F4C69D0B1AF62A60552665596DFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +443,8 @@ Discovery. Махинаторы (Автодилеры) / Wheeler Dealers (2014) 
 magnet:?xt=urn:btih:C6E4E9BB2B27C06A924AD0BB75C678F323A654EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +468,8 @@ magnet:?xt=urn:btih:C6E4E9BB2B27C06A924AD0BB75C678F323A654EA
 ```bash
 magnet:?xt=urn:btih:71CBD85207F987326763D3364C185B58EC857951
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +495,8 @@ magnet:?xt=urn:btih:71CBD85207F987326763D3364C185B58EC857951
 magnet:?xt=urn:btih:365EA745485A71E4708C13093113B836FA6DE786
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +520,8 @@ magnet:?xt=urn:btih:365EA745485A71E4708C13093113B836FA6DE786
 ```bash
 magnet:?xt=urn:btih:8FE0A797DF4E2B25DEB84C2CBC74F60BB0108A64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +550,8 @@ magnet:?xt=urn:btih:8FE0A797DF4E2B25DEB84C2CBC74F60BB0108A64
 magnet:?xt=urn:btih:3E079F9A7811C1292ECAC191A3A57A6CD3AE5EA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +575,8 @@ magnet:?xt=urn:btih:3E079F9A7811C1292ECAC191A3A57A6CD3AE5EA9
 ```bash
 magnet:?xt=urn:btih:321CF7EF014385EFD1DDF21EC970839393752B73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +602,8 @@ magnet:?xt=urn:btih:321CF7EF014385EFD1DDF21EC970839393752B73
 magnet:?xt=urn:btih:562754742314F6D12E8A40FC567C26806406C2AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +628,8 @@ magnet:?xt=urn:btih:562754742314F6D12E8A40FC567C26806406C2AC
 ```bash
 magnet:?xt=urn:btih:9067EB13821C9A2C90BA009B8D15411EF4DF1591
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +660,8 @@ magnet:?xt=urn:btih:9067EB13821C9A2C90BA009B8D15411EF4DF1591
 magnet:?xt=urn:btih:EFC89D6887D44365BFBAA8BC12049E7B36959C34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,29 +687,7 @@ magnet:?xt=urn:btih:EFC89D6887D44365BFBAA8BC12049E7B36959C34
 magnet:?xt=urn:btih:1E03E34D67AD2D34FFB8DD6002019B9C40ECEFCF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903337   (659049) от 30.05.2015
-
-Танцуй. Выпуск №9 (2015.05.30) SATRip
-
->>Документалистика и Телепередачи
->>Музыкальные шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659049.jpg" />
-</div>
-
-
-###  Подробнее
-
-На Первом канале стартует беспрецедентный по размаху всероссийский танцевальный конкурс. Самые яркие участники из разных уголков страны – от Калининграда до Владивостока – окажутся на большой сцене, чтобы на глазах миллионов телезрителей сразиться за звание лучшего. Их имена пока не известны широкой публике, у них нет званий и наград, но каждый из них любит и умеет (   Читать дальше...   )Производство: РоссияТелекомпания: Первый каналЖанр: ТВ-ШоуРежиссер: Илья АвербухПродолжительность: 02:17:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56D818D0C1D443C98F266AF79B91128838011062
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ My Lovely Empress - симулятор имперского управления
 magnet:?xt=urn:btih:356CB315436CABEFF55B228DCF54B6A41D154F1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Twin Mind 5: The Deathly Trick (2024) [Multi] (1.0) Unofficial [Collector's Edit
 ```bash
 magnet:?xt=urn:btih:CD305D481C7F207DA1A48330E3C55F9C96935A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Warriors of the Nile - пошаговая стратегия, где вы буд
 magnet:?xt=urn:btih:2AC9FE1E08AB7468CDFE021A138B801A62E89950
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Escape From Warehouse / Побег со склада (2024) [En] (1.0) Scene Ten
 ```bash
 magnet:?xt=urn:btih:79ED443C2FEA212CF45DA4EEA0F8972363BF7A9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Trinity Trigger предлагает геймерам потрясающее п�
 magnet:?xt=urn:btih:F2D860B7D4D60F8DCCC918F139B318F1EEE186DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Who is Abby (2023) [En] (1.0.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:FFE3912B6EC9D2CA335944C44AD4F014F9CE51D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Yog-Sothoth's Yard - это ролевой симулятор строитель
 magnet:?xt=urn:btih:881EB5AB424F358F9CE5ABD2B580425309316AF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Train Valley World (2024) [Ru/Multi] (Build #370) Scene TiNYiSO
 ```bash
 magnet:?xt=urn:btih:A786671FE11758BB1EB48360BB20BBA16E9F2EA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ For The King II (2023) [Ru/Multi] (1.2.15/dlc) Scene Rune
 magnet:?xt=urn:btih:8063B752341A5CA2F37FFAD0620DC4C991440680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Unrooted (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3D20947300047BF98F8ECD2868F89796B611738C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Nightmare Side: The Game – как вы смотрите на то, чтобы 
 magnet:?xt=urn:btih:19C7B96E7F6989635A7105CCBD2A90F30DAD7EC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Delearnia: Fractions of Hope - это сюжетная приключенчес�
 ```bash
 magnet:?xt=urn:btih:33C683F1B725BAE7922DD8884FDF5FB170714E9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Sam and Max: The Devil's Playhouse - ремастированное приклю
 magnet:?xt=urn:btih:1992F8F24C9F7DD47AED84302A0BCA3A2040DF4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Old School RPG – встречайте нашу увлекательную фэ
 ```bash
 magnet:?xt=urn:btih:82B0779EFC4F7C7F9405E12F9EDD507FF96F1937
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Capes (2024) [Ru/Multi] (1.2.0.0/dlc) License GOG
 magnet:?xt=urn:btih:4E4BB68278BAF553D2631E01CFC2566722BE4A24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ In Woods - это игра-выживание в стиле Roguelike, дейс�
 ```bash
 magnet:?xt=urn:btih:524357095DA00EB416B5F1D7D01E3528EB534859
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ PARANOID (2023) [Ru/Multi] (10138) License GOG
 magnet:?xt=urn:btih:16E246F347BD2838C5355FF1A99457355BAA5FB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ UFO Taxi ставит игроков в необычное положение. �
 ```bash
 magnet:?xt=urn:btih:8182A83743D12C386CBFBC69889EEE91BA5DDAC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Voidness - Lidar Horror Survival Game - это леденящий душу �
 magnet:?xt=urn:btih:4F3D5E2012DCB38912E987AD9AD3887B4892D3CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Bathhouse Restored Edition – перед вами невероятный я
 ```bash
 magnet:?xt=urn:btih:CD8B1412771FBFF03BB12E0B21B74600E447E6B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Tokyo Coffee: Grinding in the Pandemic (2024) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:E43D8F4F93855CCD7647F4E4E4CDE367CACAFCDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Crush House бросает вас в жестокий мир реалити-
 ```bash
 magnet:?xt=urn:btih:A436B67C454E2C7FFBDCE69E2AB771C0D6617729
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Hero's Adventure - это ролевая адвенчура с открытым 
 magnet:?xt=urn:btih:A41E649912B237D5E6A2002A6D0242D57F504D1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Among the Sleep - удостоенная множеству наград игр�
 ```bash
 magnet:?xt=urn:btih:091AB4FC075DB3E45491FA3F749E1DF2407F2623
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Lifeless Planet - новое трёхмерное приключение для 
 magnet:?xt=urn:btih:062329B424770BBBDDEB5D3B8252E93830C87F32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Ghostrunner - эта жестокая игра-слэшер от первого 
 ```bash
 magnet:?xt=urn:btih:8187B9B874371660451D9AAF8994447A4C5002C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

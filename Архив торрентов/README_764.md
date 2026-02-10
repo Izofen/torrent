@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7830E2EF543B8211CCD304D47D76A9481B57D7F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:7830E2EF543B8211CCD304D47D76A9481B57D7F2
 ```bash
 magnet:?xt=urn:btih:F33BE94331238AC2FFE5BDFB7B4951822A55FAD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F33BE94331238AC2FFE5BDFB7B4951822A55FAD0
 ```bash
 magnet:?xt=urn:btih:B5F92CD7BFB32669C40F7BD568DFC6431459BA10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ Auxiliary Control - Memories Of You (2012) [MP3|320 кб/с]<Futurepop>
 magnet:?xt=urn:btih:BE8BED5CB466CAE983FFDC90E3F4A562C2864410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ Illuminatus - Glasnost (2011) [MP3|320 кб/с]<Alternative Metal | Progressive 
 magnet:?xt=urn:btih:F2E940982F19E153F1DB0AC17C5389012E4C2A85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:F2E940982F19E153F1DB0AC17C5389012E4C2A85
 ```bash
 magnet:?xt=urn:btih:BBCAE6C4F589118D7023F024E376C8B496451595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ Media Player Classic HomeCinema - удобный во всех планах му
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Media Player Classic HomeCinema - удобный во всех планах му
 ```bash
 magnet:?xt=urn:btih:F824992EF382153E8B05B38EF79E02F0056F98F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:F824992EF382153E8B05B38EF79E02F0056F98F8
 magnet:?xt=urn:btih:21BC258F9B33D31FA9C056321B1FA801F0D94E93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:21BC258F9B33D31FA9C056321B1FA801F0D94E93
 ```bash
 magnet:?xt=urn:btih:EAA409F92BB64958BF4C5B35D19CC7B722D34821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +305,8 @@ VA - Dos Decadas Dance 2 - Todos Los Numeros 1 De La Musica Dance 1979-2000 (5CD
 magnet:?xt=urn:btih:7EC54F161E8FDA77C97A830434EB96E34AC98294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Весенняя танцевальная вечеринка (2012) [MP3|16
 magnet:?xt=urn:btih:4F6E3F346F64A5DBA6DF89EE3BAE5276AFEEAFFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +365,8 @@ Ricki Lee - Do It Like That (2012) [H.264/1080р] WEBRip
 ```bash
 magnet:?xt=urn:btih:3E82F4F1BA2C5D18D1BCF7429D17F8B29CDD83DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +401,8 @@ VA - Logic Energy (1997-2012) [MP3|320 кб/с]<Progressive house, Electro, Tech
 magnet:?xt=urn:btih:378AD882309B3DE5C8BF21E390989F44C591707E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +433,8 @@ Forces Of Nature - Live From Mars Volume 1 (1996)
 ```bash
 magnet:?xt=urn:btih:EE828D0C2968BFDE7C4FE17E86C94D458B07A926
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +469,8 @@ VA - CLUBная эйфория (2012) [MP3|128-192 kbps]<Pop | Club | Dance>
 magnet:?xt=urn:btih:58FBDC55499382A132F89DC16D2C5E2E6A85F023
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +494,8 @@ magnet:?xt=urn:btih:58FBDC55499382A132F89DC16D2C5E2E6A85F023
 ```bash
 magnet:?xt=urn:btih:854AD789E2035878F2D2C41AF4129E8C81A345C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +528,8 @@ VA - Storm From The East 2 (1997)
 magnet:?xt=urn:btih:0B809004265505A98EDA9BC13CB9510E8E39CBDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +554,8 @@ TDSS Killer - небольшая бесплатная утилита от ком
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +579,8 @@ April - Ujeta Na Netu (2012) [H.264/1080р] WEBRip
 ```bash
 magnet:?xt=urn:btih:E76869853D5C30A47EF8645E3F56DB432F66E8B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +615,8 @@ Distorted - Voices from Within (2008) [WavPack|Lossless]<Gothic Metal,Melodic De
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +650,8 @@ VA - Klubnye novinki Vol.61 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
 magnet:?xt=urn:btih:321DD25D117258DA552BAFB6024932E2BE8CB588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +675,8 @@ magnet:?xt=urn:btih:321DD25D117258DA552BAFB6024932E2BE8CB588
 ```bash
 magnet:?xt=urn:btih:B5BF9372718F44F6AC3A85F01ED2A694158EA780
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +706,8 @@ magnet:?xt=urn:btih:B5BF9372718F44F6AC3A85F01ED2A694158EA780
 magnet:?xt=urn:btih:DE4CF0A4716F41F60499AE4945CB4BC685E0502E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,6 +736,8 @@ magnet:?xt=urn:btih:DE4CF0A4716F41F60499AE4945CB4BC685E0502E
 magnet:?xt=urn:btih:399513C2F821A815CF4986B85512B2A01528AE61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -711,6 +761,8 @@ magnet:?xt=urn:btih:399513C2F821A815CF4986B85512B2A01528AE61
 ```bash
 magnet:?xt=urn:btih:50E792AC083E490904621AD6C5F3A1EA7F3C7DB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

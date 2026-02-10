@@ -19,6 +19,8 @@ Yiihuu, Hooman Raad | The Dwarf Warrior: 3D Character Creation For Game (2019) P
 magnet:?xt=urn:btih:4F5D46A9A799DBB175560C2B2FA24112869D02F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Erick Wendel | Mastering Node.js Streams with Erick Wendel (2022) WEB-DL [EN]
 magnet:?xt=urn:btih:7A61BBFC795BCCF4C3BD24986C7B01AF2D659A37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:7A61BBFC795BCCF4C3BD24986C7B01AF2D659A37
 ```bash
 magnet:?xt=urn:btih:C964D7A817FF3EEA5589FD334AC29C550B1620B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:C964D7A817FF3EEA5589FD334AC29C550B1620B2
 magnet:?xt=urn:btih:538450B50AF2AA58A8BEF98094E2DAC785D9A549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:538450B50AF2AA58A8BEF98094E2DAC785D9A549
 ```bash
 magnet:?xt=urn:btih:EA68090B29D57D6CAB0334B1EEC662FA8B3F39F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:EA68090B29D57D6CAB0334B1EEC662FA8B3F39F1
 magnet:?xt=urn:btih:C6DBE470884DB046C11367D800ADE560F9A1C6F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ DupeZap (бывший DupeZap Plus) - Утилита, позволяющая и�
 magnet:?xt=urn:btih:C2287577C321B3FEE5A04E88FA95BD77A5E13075
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:C2287577C321B3FEE5A04E88FA95BD77A5E13075
 ```bash
 magnet:?xt=urn:btih:8417881A3EB26525F72164A916EB754C99A0C8C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:8417881A3EB26525F72164A916EB754C99A0C8C3
 magnet:?xt=urn:btih:75BD61645D7FE79AC5DF8139EC737F28A785509C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:75BD61645D7FE79AC5DF8139EC737F28A785509C
 ```bash
 magnet:?xt=urn:btih:00A7262F958FAFA7EAF98CF37F18F89729CE32E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ CD1:
 magnet:?xt=urn:btih:21232CA3201CA58ADC9370141A32E426983571CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:21232CA3201CA58ADC9370141A32E426983571CA
 magnet:?xt=urn:btih:443155F93424E4E023F4D7E34424B3070D89A27D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:443155F93424E4E023F4D7E34424B3070D89A27D
 magnet:?xt=urn:btih:74AD2EC51D0862B71B0A5021C83407574B37364B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:74AD2EC51D0862B71B0A5021C83407574B37364B
 ```bash
 magnet:?xt=urn:btih:32668EF69D5D6EAF69975B5E8A306BC7D8E27A70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ Maciej Malenczuk - Pan Malenczuk (1988) [FLAC|Lossless|tracks + .cue] <Pop/Rock,
 magnet:?xt=urn:btih:1491AC7D1FE9A5CE08D4FFF87944B2E45F5AE18E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:1491AC7D1FE9A5CE08D4FFF87944B2E45F5AE18E
 ```bash
 magnet:?xt=urn:btih:3C4F8B7764BE5B5379676AE1943CA58523CB2DA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Patrick Joseph Cowley (19.10.1950 – 12.11.1982) был американски�
 magnet:?xt=urn:btih:A3D94A080847EA0292C6490587BFD680A5E246A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:A3D94A080847EA0292C6490587BFD680A5E246A1
 ```bash
 magnet:?xt=urn:btih:BC37EF21AE8616840D7EF4952B9BD0A9C8B50DE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ Qbserve дает мгновенные ответы на вопросы о том
 magnet:?xt=urn:btih:2C2D91B9FF5231CD83BEF1AB29B5AB903252A2CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:2C2D91B9FF5231CD83BEF1AB29B5AB903252A2CA
 ```bash
 magnet:?xt=urn:btih:0B2F59F7E8489EBCF207BD1841921C57481B3EB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:0B2F59F7E8489EBCF207BD1841921C57481B3EB0
 magnet:?xt=urn:btih:108649A4F4EC0D07F778956C585E04700A175748
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:108649A4F4EC0D07F778956C585E04700A175748
 ```bash
 magnet:?xt=urn:btih:B98938478C9FA160485587216CC4192C8AC29C4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ Rorcal - Muladona (2019) [FLAC|Lossless|Web-DL|tracks] <Post Black Metal, Doom M
 magnet:?xt=urn:btih:0F42A97E05E3355B80E50E6D5A3D8FED3FE9F254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:0F42A97E05E3355B80E50E6D5A3D8FED3FE9F254
 magnet:?xt=urn:btih:66FCB385F9A99182F5D3C5F2230312A403F7092E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 magnet:?xt=urn:btih:EC0E46E35EE64CC25A068ADDBFDD52A06F859B10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ magnet:?xt=urn:btih:EC0E46E35EE64CC25A068ADDBFDD52A06F859B10
 ```bash
 magnet:?xt=urn:btih:5C2E948DE3104F7B8DC0E34EFFDE115D94E1A0E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

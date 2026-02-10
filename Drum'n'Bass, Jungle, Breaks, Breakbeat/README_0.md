@@ -22,6 +22,8 @@ Bassnectar (Lorin Ashton) - 5 Albums (2020-2025) [MP3|320 Kbps] <Electronic, Bre
 magnet:?xt=urn:btih:CF4574A70EA32D20AEAD2ECD28ACE71EA3E29A4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Monstercat - Best of 2016 (2016) [MP3|320 Kbps] <Electro, House, Glitch Hop, Dru
 magnet:?xt=urn:btih:6A2C2FD7BEF9B53E47121803DF1C661BEF38D58C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Colombo - Abandoned Factory II (2015) [MP3|320 кб/с] <Breaks>
 ```bash
 magnet:?xt=urn:btih:81D95A56FFED1767203744E5373C98C1D35F367A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ Various Artists - Ram Drum & Bass Annual 2012 (2012) [MP3|320 кб/с]<Drum & Ba
 magnet:?xt=urn:btih:42093A667C75382B041056A17C9FD208D31BD831
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ VA - UKF Drum & Bass 2017 (2017) [MP3|320 Kbps] <Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:05A135BC9C2E9FEFF43B8BF293FA1FF2E73A6F0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ VA - Liquicity Drum & Bass 2017 (2017) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:E08CC3ADBA69910311EE857ADB79F6F6ACEA09B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +201,8 @@ Feint - Fall Away EP (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:26C7E20C467FCBAAC41A9C46BEE47AFA3F2A264A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ Enei - Rituals LP (2015) (Beatport Edition)  [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:8FEF5AD5B4554DF7ED9B209AFE777ECEC7530E0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +260,8 @@ Sigma - Life  (2015) (Deluxe Edition) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:444897E9D733796C1B79EB78B3A4A7160689E210
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +286,8 @@ magnet:?xt=urn:btih:444897E9D733796C1B79EB78B3A4A7160689E210
 ```bash
 magnet:?xt=urn:btih:23120BE483D7FE7AD716BDB92334F3E49A0C8B5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +316,8 @@ Eschaton - Universe 2 (2016) [MP3|320 Kbps] <Electronic, Drum & Bass, Deep Techn
 magnet:?xt=urn:btih:A103247971629A81980E5EE77815D9A1C7CA5DDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +344,8 @@ magnet:?xt=urn:btih:A103247971629A81980E5EE77815D9A1C7CA5DDF
 ```bash
 magnet:?xt=urn:btih:D04AE45F286B08194B08787A9E4363578BDD0103
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +374,8 @@ Karetus - PINATA (2015) [MP3|320 кб/с]< Drum & Bass, Dubstep, Electro, Moomba
 magnet:?xt=urn:btih:F2FD3EF33EE2B2868BAA4693959C8D3020EC40F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +402,8 @@ ScAnDroid Experiment's - A Trap For The Traveller (2017) Single, Авторск�
 ```bash
 magnet:?xt=urn:btih:0C0A3ED77287E4CFA8539E27DFCCA1821329E49B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +432,8 @@ VA - New Blood 013 (2013) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:0C6B8840721747D812E8244BBFB660CB5E9DF1EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +460,8 @@ A-Mase - Breaking Memories (Best Remixes In Breaks) (2019) [MP3|320 Kbps] <Atmos
 ```bash
 magnet:?xt=urn:btih:A54A6B31379C5146BDBF014452E78DC70DA1855D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +490,8 @@ Artificial Intelligence - Timeline (2015) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:0A89CDB791D4AB915FFEE470DE91E03ECB057176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +518,8 @@ Drumcorps - Falling Forward (2015) [MP3|320 кб/с]<Breakcore, Metal, Electroni
 ```bash
 magnet:?xt=urn:btih:04CDE0486F9E31F4386D20D680A3398132F22E3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,32 +548,7 @@ The Prodigy - The Day Is My Enemy (2015) Expanded Edition [MP3|320 кб/с]<Brea
 magnet:?xt=urn:btih:252F9D658AEDE3BC79A2C56A77F72BD38714B67E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258814   (332726) от 01.11.2018
-
-The Prodigy - No Tourists (2018) [MP3|320 Kbps] <Electronic, Breakbeat>
-
->>След.
->>Drum'n'Bass, Jungle, Breaks, Breakbeat
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_332726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Need Some1
-02. Light Up The Sky
-03. We Live Forever
-04. No Tourists(   Читать дальше...   )Жанр: Electronic, BreakbeatПродолжительность: 00:37:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBC29371A4FE39CDB90B8EDC8B5F2C5A30A4DA2D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +577,8 @@ Brookes Brothers - Orange Lane (2017) LP [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:85595881FA8FC3D734A5440CC02F994A6C15C72A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +605,8 @@ The Bloody Beetroots - The Great Electronic Swindle (2017) [MP3|320 Kbps] <Drums
 ```bash
 magnet:?xt=urn:btih:F1056FBC04426DBE9F4DCD20E83C72BC66F56BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +635,8 @@ VA - Neuroporn (2015) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:B3E70B07C672135ABFA2171E1C65C8D4C0E812E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +663,8 @@ Makoto - Tomodachi Sessions (2019) [MP3|320 Kbps] <Drum'n'bass, Liquid Funk>
 ```bash
 magnet:?xt=urn:btih:37181269FD44115447A5FBA3CB8567801AB6C586
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -674,6 +693,8 @@ Naibu - Case Study (2015) [MP3|320 Kbps] <Drum & Bass, Downtempo>
 magnet:?xt=urn:btih:B5F84DFDC2DFE59802026C131FC85951F7F32429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,6 +721,37 @@ Royalston - People On the Ground LP (2015) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:2B60EA1CCEB829A5D5CF62AD0CDD70324CB570B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952138   (358097) от 31.10.2015
+
+Muffler - Stone Cold (2015) [MP3|320 Kbps] <Drum & Bass>
+
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_358097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Breathe (feat. Sansa) (04:38)
+ 02. Ranua  (feat. Keeno) (05:19)
+ 03. Northern Lights (04:21)
+ 04. Mountain Streams (05:20)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:135766B07A4457CBCF88961BEA9034652963B522
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

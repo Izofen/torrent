@@ -19,6 +19,8 @@ Flashing Lights - Police, Firefighting, Emergency Services Simulator (2023) [Ru/
 magnet:?xt=urn:btih:DB0C61D8BFC5DB8CF2AAC0C1CD9F42EB294B2CFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:DB0C61D8BFC5DB8CF2AAC0C1CD9F42EB294B2CFC
 ```bash
 magnet:?xt=urn:btih:E9B3D6A7145AC995001FBB6D7E8012E1A3E10812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:E9B3D6A7145AC995001FBB6D7E8012E1A3E10812
 magnet:?xt=urn:btih:F6747745FDC274B5C493A68203E6A5A81DFA9CBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ VA - 70s Memories (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB, Dance>
 magnet:?xt=urn:btih:CD9A0C1DC4A7E36DB60D6BB3396477E0A97591A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Ocean Match / Рыбки: Три в ряд v3.0.3 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:AF0F128A303791E6B7464A8A2D436B2DEEA87521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:AF0F128A303791E6B7464A8A2D436B2DEEA87521
 ```bash
 magnet:?xt=urn:btih:0A068756B1B524A13E807CEF6F392F5B5C52E975
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ VA - Arcane League of Legends: Season 2 (Soundtrack from the Animated Series) (2
 magnet:?xt=urn:btih:B427A59769F8192C4E672B5AFDA08CEE9059CAD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:B427A59769F8192C4E672B5AFDA08CEE9059CAD6
 magnet:?xt=urn:btih:E52DB1E025DD21CF25F880B05D4616B2C1F1189F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ UniMote - Универсальный Пульт для ТВ v1.7.0 Mod by Balata
 ```bash
 magnet:?xt=urn:btih:0CAB79FDE3F1EBAB70A5335E957F632D4057B0E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:0CAB79FDE3F1EBAB70A5335E957F632D4057B0E7
 magnet:?xt=urn:btih:4F7B748AC828199A0D7E0D3233D88FF2B15AD9FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ Locked In Mind (2023) [En] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:B7E3E45DACA3C208A2B8076050708D223DD0DF27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ NirLauncher Package - универсальный пакет из более че
 magnet:?xt=urn:btih:BB9388243A8AFF54284368576B8F001A92B8203C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:BB9388243A8AFF54284368576B8F001A92B8203C
 magnet:?xt=urn:btih:AC9DC7DC0B603D57DE18C5C360C0D3780AB1E194
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ CCleaner - один из самых известных и популярных �
 ```bash
 magnet:?xt=urn:btih:6E954A7709C14E4C5B42F1A56C66C8CDB847C7BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Icewind Dale Enhanced Edition v2.6.6.12 [Ru]
 magnet:?xt=urn:btih:E357CE3A11F8A488903981A7F0A1F0E179C97CD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ Joyville 2 - это хоррор-головоломка от первого ли
 ```bash
 magnet:?xt=urn:btih:F59ADABDF04C480DCC2A1CAFE40BACE8955CD8BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:F59ADABDF04C480DCC2A1CAFE40BACE8955CD8BF
 magnet:?xt=urn:btih:408193C547A507D13C2EC3D7F2E03094105F4AE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ BBC: Секреты Рейха. Тайны нацизма / Secrets of World War
 ```bash
 magnet:?xt=urn:btih:EC01875A15FB02A9EB89C265750E6E6BB8FBBC0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ Limoria (2025) [Ru/Multi] (build 16883517) Repack FitGirl
 magnet:?xt=urn:btih:570F3DFB0150F2F0E83D5E63998ED3E588D3736C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ AIDA64 2.05 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:E810C71A6CDB21C688F69ED8216F2B3724646AAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:E810C71A6CDB21C688F69ED8216F2B3724646AAA
 ```bash
 magnet:?xt=urn:btih:BBA96088204B578C908462166BDC0A01A480376D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:BBA96088204B578C908462166BDC0A01A480376D
 magnet:?xt=urn:btih:F84EAD6812A072F2EB0C9756E8EC6B1045134CC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ Umagic AI / ИИ Рисует v1.7.2 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CEE7B8402C83DE84DCFDF2B58B5930C4ACF1462D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ Aes Dana - Pollen (Dec-07-2012) [MP3|320 кб/с]<Downtempo, Ambient, IDM, Progr
 magnet:?xt=urn:btih:51591E894C9ED683486D9372036F103E705EEA70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ Maou 2099 | Demon Lord 2099 | Повелитель демонов 2099 [2024, TV
 ```bash
 magnet:?xt=urn:btih:D46BA4E9260FE0AEBD9665E5533CA385336C04C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +690,8 @@ Schiller - Sonne (Chill Out Edition) (22 Mar 2013) [MP3|320 кб/с]<Electronic,
 ```bash
 magnet:?xt=urn:btih:1E19FCA6BC975D88481CA9B106057AAD3C1C27D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

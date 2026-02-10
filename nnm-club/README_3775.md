@@ -20,6 +20,8 @@ Cookie - (   Читать дальше...   )Тип издания: macOS Softw
 magnet:?xt=urn:btih:874BD405EBC1568851C34CE4E81EF5CC314C069B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Ossian - Angyalok es Emberek (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, 
 ```bash
 magnet:?xt=urn:btih:657FD003CB0592A59F6BEC9E3EA70BCF72007E1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Riot - Fire Down Under (1981) Reissue, 2023, Rhino[FLAC 24/192|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:9AB703F9E8D2E7449EA1DF6EFB1BFF0B5714250E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ The Funeral Procession - In Still Silence (2024) [MP3|320 Kbps] <Progressive Dea
 ```bash
 magnet:?xt=urn:btih:D95D871F6B42434618947749FB934BA871930149
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ John Coltrane - And The Jazz Giants (1956 - 1958) 1986, Prestige [FLAC|Lossless|
 magnet:?xt=urn:btih:7F8C810703B47D1FCD1E6EF847C6C9C5F285094F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ Strider - Dominion Of Steel (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:9B28DF43F451FFBB80797BBE591A00D65F591DCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ Coming soon 3 v.3.20 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9DDD8B9F975E5572279B202951E5200E2F547220
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +220,8 @@ Galleons - Violent Delights (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-H
 magnet:?xt=urn:btih:053EA315A62A9B4720FED7A84B44C2578004705B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +249,8 @@ Joey Alexander - Continuance (2023) Mack Avenue [FLAC|Lossless|tracks + .cue] <P
 magnet:?xt=urn:btih:52EE81E9DDE2608629823FF4334B251E4C95F4F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ Sandboxie - yтилита для контроля за работой разли
 ```bash
 magnet:?xt=urn:btih:EA90CB416C36149EDE19FDA3E0937421E52BD8A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +302,8 @@ BoltAI — это мощный помощник ИИ, предназначенн
 magnet:?xt=urn:btih:E21F003BB2C55607DBA163903C033BD5FE91029F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ magnet:?xt=urn:btih:E21F003BB2C55607DBA163903C033BD5FE91029F
 magnet:?xt=urn:btih:398921D93059D82FA68B9E267A9DFFD2AB0EB44B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ AlDente Pro fo Mac 1.25 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FAF42DBDE9F16DA900C1B2FDDA8E1C1166D64111
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ Moom 3.2.26 [En]
 magnet:?xt=urn:btih:F8DC895B536769D65D1421993306D6C4A3861F71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ ExamDiff - мощная и легкая в использовании прогр
 ```bash
 magnet:?xt=urn:btih:7B21F85D8D8DD1C6EB426C24C2342BCBDEF82159
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ BlueHarvest - утилита, помогающая автоматизирова�
 magnet:?xt=urn:btih:3DC392E88796D48926A483EB93C92BF3C76D6A46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:3DC392E88796D48926A483EB93C92BF3C76D6A46
 ```bash
 magnet:?xt=urn:btih:CF72091955B39A3D019C98D8FDFFDF6C75933A98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ magnet:?xt=urn:btih:CF72091955B39A3D019C98D8FDFFDF6C75933A98
 magnet:?xt=urn:btih:9D459900FF34C250DA536AFED6C7865BE59AE124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ Video Cut&Crop&Join for Mac 3.8 [En]
 ```bash
 magnet:?xt=urn:btih:55EE18E2E10EA2F3477FB6AE5AD5916F2FF574C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +543,8 @@ Terminal Carnage - Feast upon the River Styx (2023) [MP3|320 Kbps] <Death Metal>
 magnet:?xt=urn:btih:43277445355A226EE607A7DBE6B742697A692389
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ magnet:?xt=urn:btih:43277445355A226EE607A7DBE6B742697A692389
 ```bash
 magnet:?xt=urn:btih:4F79DFE056971D3BB7B70C18C9D3DC97A4AC6550
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:4F79DFE056971D3BB7B70C18C9D3DC97A4AC6550
 magnet:?xt=urn:btih:71459AF8BC04CAC826CFB539B458ECF475CF0284
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:71459AF8BC04CAC826CFB539B458ECF475CF0284
 ```bash
 magnet:?xt=urn:btih:890E71C01E34CC468DE3FCBC8C3C9FDFB2DF2360
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ The Pineapple Thief - It Leads To This (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:BC5AEEB2F6B0B14AD43EB6F0B2CB71D58F32B9D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ magnet:?xt=urn:btih:BC5AEEB2F6B0B14AD43EB6F0B2CB71D58F32B9D5
 ```bash
 magnet:?xt=urn:btih:A9619CD0DB43F586A9186F01A6B9F62537FC365E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +708,8 @@ Terminal Carnage - Feast upon the River Styx (2023) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:D70BDE2A19852E4904101A2868C1EF33CE0506F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

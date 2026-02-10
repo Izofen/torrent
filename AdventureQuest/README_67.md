@@ -19,6 +19,8 @@ Blair Witch (2019) [Ru/Multi] (1.0/upd6) Repack Other s
 magnet:?xt=urn:btih:A1A945BA58DEB90201DD7B288421B5A419480AD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Pathologic 2 (2019) [Ru/En] (1.5.29823/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:0F8E04FFE0AA604E179F64C8CC44AFCA964D8C6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Subnautica - это ролевая игра от создателей Natural Se
 magnet:?xt=urn:btih:51157D5A7D2C7E9C95C758C54BEB256F168FBE81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Centralia: Homecoming (2019) [Ru/Multi] (1.8/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:0877E9BF505B0F0B9B5616CA2485311BB1C313D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Room Three (2018) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:3DA3D9E4CDF3B048A0EA948BABB541D6975FF17C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Perception – это сюжетный приключенческий хорро
 ```bash
 magnet:?xt=urn:btih:810B0D8291F495F2EF1A2B4E9E6401CA19F75050
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Among the Sleep (2014) [Ru/Multi] (3.0.1) License GOG [Enhanced Edition]
 magnet:?xt=urn:btih:2FB932955C8DAEA08C48724D34B140EE4F75E14A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Cloudpunk (2020) [Ru/Multi] (1.0) License SKiDROW
 ```bash
 magnet:?xt=urn:btih:E6C80523857D7F83A1CAE40B650B9C31AD7E524C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ TSIOQUE (Чок) - это приключенческая игра Point & Click 
 magnet:?xt=urn:btih:C0B41C11924FDF8EC49295FD53CD663ADD5B9B01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Norman's Night In (2019) [En] (1.0) License TiNYiSO
 ```bash
 magnet:?xt=urn:btih:88F9F3E0E5A69B6768459F80B6D743EC49A51466
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0.0.1/2017.6.29.321) Rep
 magnet:?xt=urn:btih:1EEADDB501A490AB122130E9F489857D9131C5CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Observer: System Redux (2020) [Ru/Multi] (1.1.2) License CODEX
 ```bash
 magnet:?xt=urn:btih:017CBC4E95667854CCD087F032BAA44775D3C326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Marvel's Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0.0.1
 magnet:?xt=urn:btih:FC5DE631B2C1C8F770E85119EBE581D9B197790C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ ObsCure II является продолжением ObsCure, в котором 
 ```bash
 magnet:?xt=urn:btih:C03CFB60162959F1FF613CE64010A4859778FADF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Layers of Fear - жуткий психологический триллер, с�
 magnet:?xt=urn:btih:42F0CB14AC64D6B014E0667FEC14EDB1E62E01C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Quern - Undying Thoughts — это приключенческая игра, д�
 magnet:?xt=urn:btih:7F85F287E52DA305E280FCA5B5AF897C5B38DF7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +434,8 @@ Quern: Undying Thoughts (2016) [Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:200D2F0270871830AFCB81A6A3A996CC7F278BD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ The Moment Of Silence / Момент истины [Ru] (L) 2005
 magnet:?xt=urn:btih:53B11B8E57E6E7FDC8B94D6B13CBB122E79EA0E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ The Park — это психологический ужастик от перв�
 magnet:?xt=urn:btih:BE2FB5A6CF8EE935FD8D79B084B6F08FD924CA63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Still Life 1, 2 (2005-2009) [Ru] (1.00) Repack R.G. ReCoding [Dilogy / Дило�
 ```bash
 magnet:?xt=urn:btih:04F769A18485D1112490DA92C6CF7C3F38BAC4F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Nancy Drew: Shadow at the Water's Edge / Нэнси Дрю: Тень у воды
 magnet:?xt=urn:btih:8AF8BBD316472D666F9773ED4DA8680C186F1553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Dread of Laughter (2018) [En] (1.0/upd4) License PLAZA
 ```bash
 magnet:?xt=urn:btih:69D2203681C2FD9D988715D9241742127960AC06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Layers of Fear – психоделический хоррор с запутан
 magnet:?xt=urn:btih:60A382CC17B7CFA4747C1F1F387306907CAA82A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:60A382CC17B7CFA4747C1F1F387306907CAA82A2
 ```bash
 magnet:?xt=urn:btih:5EB0D4350B7C69A23533BF3FB6CC868A122DFABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ The Whispered World / Ускользающий мир (2010) [Ru/Multi] (3.2.041
 magnet:?xt=urn:btih:DD9EFF28E4F1AFE19C14CE70573BF07CA7095C79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ magnet:?xt=urn:btih:DD9EFF28E4F1AFE19C14CE70573BF07CA7095C79
 ```bash
 magnet:?xt=urn:btih:A6ABE139975C42CA10122E6D67C94A02C4A9D214
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

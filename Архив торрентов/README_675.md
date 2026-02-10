@@ -21,6 +21,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ NG: Леопарды дельты Окаванго / Leopards of Dead Tree Islan
 ```bash
 magnet:?xt=urn:btih:C0671958C3C9BF3F4A2022A0A765A27355654AA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Wondershare Data Recovery - мощная и простая в использов
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ NG: С точки зрения науки: Супералмазы / Naked Scienc
 magnet:?xt=urn:btih:0E48B336F9B39FD0E141A472A49124062D0D90D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:0E48B336F9B39FD0E141A472A49124062D0D90D4
 ```bash
 magnet:?xt=urn:btih:C33D708134C79C866E2A15ECC6F8E457F7DFE461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:C33D708134C79C866E2A15ECC6F8E457F7DFE461
 magnet:?xt=urn:btih:24C4FED4A464A951A4619ACBAFC38B6B6F97A087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ M.I.K.E. - Club Elite Sessions 241 (23.02.2012) [MP3|256 кб/с]<Trance, Progre
 magnet:?xt=urn:btih:7CAD8904DEC91E2A759951CC18F6F4CBD77696AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:7CAD8904DEC91E2A759951CC18F6F4CBD77696AE
 ```bash
 magnet:?xt=urn:btih:5878A5130AF509B6F7D452B670EF631E9DE26A5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ VA - Interior Horizons (1999) [MP3|320 kbps]<Psy Chill, Psy Dub, Ambient, Downte
 magnet:?xt=urn:btih:9592309F5F4AB68538C906770888B4CBC124FD22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +276,8 @@ magnet:?xt=urn:btih:9592309F5F4AB68538C906770888B4CBC124FD22
 ```bash
 magnet:?xt=urn:btih:5C38AEEBD6AE87C8A645CC6050D0943734EDCC6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - K-Boom Hits 228 (05.02.2012) [MP3|192 kbps]<Dance,Pop>
 magnet:?xt=urn:btih:CA186C56D7C47D266D14F1FD3B2EAE2C78C0E2A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ FAR Manager – мощнейший известный всем консольн�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +373,8 @@ CD 1
 magnet:?xt=urn:btih:8115F43F5F2C3B3DE3597438D90696AE9EE2482C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +405,8 @@ George Arvanitas & David Murray - Tea for Two (1991) [FLAC|Lossless]<Modern Jazz
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +441,8 @@ Ben Kweller - Go Fly a Kite (2012) [FLAC|Lossless]<Alternative, Indie Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +467,8 @@ Ben Kweller - Go Fly a Kite (2012) [FLAC|Lossless]<Alternative, Indie Rock>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +503,8 @@ Terrorizer - Hordes Of Zombies (2012) [FLAC|Lossless]<Grindcore / Death Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +537,8 @@ VA - Подарок От Клуба НЕО (2012) [MP3|192 kbps]<Club | Dance>
 ```bash
 magnet:?xt=urn:btih:4478EAE95D321E7BC081F9D866AC3A90C3026F59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +573,8 @@ Islands - A Sleep & A Forgetting (2012) [FLAC|Lossless]<Alternative Rock, Indie 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +608,8 @@ Dissona - Dissona (2012) [MP3|320 кб/с]<Progressive Metal / Theatric Extreme 
 magnet:?xt=urn:btih:B95CA8707F393046F712F29F0180DB9E4D1B7E07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +633,8 @@ magnet:?xt=urn:btih:B95CA8707F393046F712F29F0180DB9E4D1B7E07
 ```bash
 magnet:?xt=urn:btih:35747BA086187CEF0431AB9AFD054A52174D4571
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +660,8 @@ Hypersnap - инструмент для захвата изображения, �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +685,8 @@ Hypersnap - инструмент для захвата изображения, �
 ```bash
 magnet:?xt=urn:btih:35073D61867E460A66269CEEE1DA1BA32270F4A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -675,6 +721,8 @@ VA - Весенний Взрывной Хит (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:73ED9694ECC50AA4A202422C7432C1F8FBDB3059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +747,8 @@ magnet:?xt=urn:btih:73ED9694ECC50AA4A202422C7432C1F8FBDB3059
 magnet:?xt=urn:btih:70A777EB54304FBAA81F485BDBD6E0D0B6D9FCC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -722,6 +772,8 @@ magnet:?xt=urn:btih:70A777EB54304FBAA81F485BDBD6E0D0B6D9FCC8
 ```bash
 magnet:?xt=urn:btih:952CEE692D635B6D4C519271D79A35070D814F32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

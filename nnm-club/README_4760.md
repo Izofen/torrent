@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:25166EC85B08CCB3A1BFB6757EF7CB78420D668F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ CD1:
 magnet:?xt=urn:btih:321CFACBB3FE5B496E6A419DD5FEEA1DFD58B572
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:321CFACBB3FE5B496E6A419DD5FEEA1DFD58B572
 ```bash
 magnet:?xt=urn:btih:D60A4B797421BA30F10B5FD8555427B0A15F865C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Sakugan | Сакуган [2021, TV, 12 эп.] WebRip 720p raw
 magnet:?xt=urn:btih:1F026AE587951F3F08D0C505D006E71D8EE7D105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:1F026AE587951F3F08D0C505D006E71D8EE7D105
 ```bash
 magnet:?xt=urn:btih:F269077398CC42DC04D22887229F26E419FDD805
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:F269077398CC42DC04D22887229F26E419FDD805
 magnet:?xt=urn:btih:A22C46D700608ED1FF0265E90AEC5399194F103C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:A22C46D700608ED1FF0265E90AEC5399194F103C
 magnet:?xt=urn:btih:B3DF352621CFAB54D85485F03E77F3C1E98910F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:B3DF352621CFAB54D85485F03E77F3C1E98910F5
 ```bash
 magnet:?xt=urn:btih:73BCA2B97CCF8443C0F443D36C38C68A93D147D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Animals as Leaders - The Madness of Many (2016) [FLAC|Lossless|image + .cue] <In
 magnet:?xt=urn:btih:2EBDE23E5DEB92F02B84AEA4EDD2096F2F1B789C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:2EBDE23E5DEB92F02B84AEA4EDD2096F2F1B789C
 ```bash
 magnet:?xt=urn:btih:5135E275D6F413DC33FAED00DB7EDEFE07328414
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ Chip — первый компьютерный журнал в Европе, с�
 magnet:?xt=urn:btih:E787F2B1DDF1A73324EF8C33504FE354548D294C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Wolf Website Designer нативное приложение для Mac, что �
 magnet:?xt=urn:btih:642B5E83ABB3E90DE0FFF62529CB4E2797A9F949
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ MotoGP. Этап 19. Гран-при Катара. Гонка (19.11.2023) WEBRi
 ```bash
 magnet:?xt=urn:btih:643F37FC4E55A30AFA033EB79412D0851F83F6D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ Spotless 1.1.1 [En]
 magnet:?xt=urn:btih:7F390C7337DC1840065F3E8F1CD3C0AEE0F05C7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:7F390C7337DC1840065F3E8F1CD3C0AEE0F05C7C
 ```bash
 magnet:?xt=urn:btih:7AD8FE6AEA9A9AA8DFA9178456936CAB17078B48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:7AD8FE6AEA9A9AA8DFA9178456936CAB17078B48
 magnet:?xt=urn:btih:B950AFF4C58CE4DF3B8CC053794E1EB7D1D25634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:B950AFF4C58CE4DF3B8CC053794E1EB7D1D25634
 ```bash
 magnet:?xt=urn:btih:7AE32EA3F5ED9B3729F8C949D948F1D8518E5342
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ Aiseesoft Screen Recorder 2.9.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:6D6D33E8681F9E69E53F43F9754DE6C409907F68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:6D6D33E8681F9E69E53F43F9754DE6C409907F68
 ```bash
 magnet:?xt=urn:btih:EAC4E12FDBB47CC39203E8089FDA0A0E1C0F064A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:EAC4E12FDBB47CC39203E8089FDA0A0E1C0F064A
 magnet:?xt=urn:btih:0F45536F3614A6A9AECEC660EBFC6EE0E656F789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:0F45536F3614A6A9AECEC660EBFC6EE0E656F789
 ```bash
 magnet:?xt=urn:btih:4561B43E6D71522E5782EDF082B381F9A3DC88E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ Jo Jo Gunne - Jumpin' The Gunne (1973) Reissue, 2010, Dogtoire [MP3|320 Kbps] <R
 magnet:?xt=urn:btih:0C2896FBDAD1D9F498831477579C82F32685A6BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ Palehorse (Palehørse) - Hunting Grounds (2023) [FLAC 24/44.1|Lossless|WEB-DL|tr
 magnet:?xt=urn:btih:5A74641334F820AE493BF65679B6F7DCF9ACC32D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ magnet:?xt=urn:btih:5A74641334F820AE493BF65679B6F7DCF9ACC32D
 ```bash
 magnet:?xt=urn:btih:22C5DC3120988D2B7D2BCF4E855752F86938422E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ CD1:
 magnet:?xt=urn:btih:C9D0CA91E2BE52B92AE94ECB58F22316462E50B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:C9D0CA91E2BE52B92AE94ECB58F22316462E50B1
 ```bash
 magnet:?xt=urn:btih:F229BDD42814412DFFBCE2C5D519E6A4CD50BCE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

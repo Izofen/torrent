@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6D5835152D48B8675BF16FAFD96925855203E315
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ GarageSale 9.4.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:36E58C53E4AC6C0586F721126B9427F0AEFBF89C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:0A6179B9359349C119E003E1E8A762CFFE0BE2CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BuhoCleaner — это незаменимое приложение для очи
 ```bash
 magnet:?xt=urn:btih:D86D88F95CD1BD802ACCD6DF798F6F5E623D5FEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NetLimiter - программа, решающая проблему контро�
 magnet:?xt=urn:btih:E3DEB5B5F26481CD5DE8C09F100BDA3F99B0181E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:49AFC6B8D74DC76F5F1099801B59BE2B2AC7A3C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ SQLPro for SQLit‪e - профессиональный менеджер баз 
 magnet:?xt=urn:btih:CFEEE42A81118CFD9322DDE71C3682996FF967F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ QLPro Studio инструмент управления базами данных
 ```bash
 magnet:?xt=urn:btih:DBB52DEFA54F03F77196C8CCD43EA049981BCFFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ RizomUV VS - это полнофункциональное приложение 
 magnet:?xt=urn:btih:5E302CBA61EC3236720E063C35FC649D9DB776CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:B3147A23F54B23235A1D81D5449F097983B9D8F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Notepad3 - удобный текстовый редактор на базе Scin
 magnet:?xt=urn:btih:7613C5762768400A8D9BB2E03F21C24287FF6990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Total Commander 10.52 (06.02.2023) Portable by MiG [Ru/En]
 ```bash
 magnet:?xt=urn:btih:811872F79436BF0DD1F04BB7533ADCF1D89D1B44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Vivaldi 6.2.3105.45 include standalone [Multi/Ru]
 magnet:?xt=urn:btih:EBF8A6A005C56A43EE0A9660CBEC209758A32A94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ DirPrintOK 6.89 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:17FACA36EAB795E328FD8BC4C036CD6C2436D44C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Duplicate File Finder - утилита, которая находит дубли
 magnet:?xt=urn:btih:0B47559F1B74BA3E90787709BA6E84B0409DDEB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ DxO ViewPoint — программное решение, посвященное 
 magnet:?xt=urn:btih:5F58778980BE17A318D664701370CD7A11809AE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ LibreOffice — мощный офисный пакет, полностью со�
 ```bash
 magnet:?xt=urn:btih:0882F1F8B7597B88BEE78A9801345AE9310DE33B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 magnet:?xt=urn:btih:6A24AE8B4FBEE659A7C8F597C007C7DD12534B69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Advanced Renamer хоть и бесплатная (   Читать дальше
 magnet:?xt=urn:btih:72B0848FF46BA2D26EEBFCA0D914B9951BFD7D04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ RadioMaximus 2.31.8 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0285DC712F55CFE45600058F93003350A187614C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ NetLimiter - программа, решающая проблему контро�
 magnet:?xt=urn:btih:48363A003F25F2970E1E588A2D3C6AA0DAC0748D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 ```bash
 magnet:?xt=urn:btih:FA7F887111FED2BD530A0A107B86BFB31ED6BFAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:FA7F887111FED2BD530A0A107B86BFB31ED6BFAD
 magnet:?xt=urn:btih:8C7261970326E6FFB86882C30EFDF3ED6D1DF53A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:1E0555A28274797B39A26034DF15A93AC06CDFDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ FastStone Capture представляет собой довольно мощн�
 magnet:?xt=urn:btih:F3D329BC0C7E831EB22308A946C4AAC26D94C50D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Memtest86+ 6.10 [En]
 ```bash
 magnet:?xt=urn:btih:C699CE302D6F49411E16DA46C6E7AF294C35CF33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

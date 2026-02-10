@@ -1,3 +1,29 @@
+###  Публикация: 979933   (957228) от 28.01.2016
+
+Антология Киберпанка | Зеркальные Очки.  (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_957228.jpg" />
+</div>
+
+
+###  Подробнее
+
+В настоящей антологии впервые были собраны рассказы ведущих авторов киберпанка — Уильяма Гибсона, Брюса Стерлинга, Грега Бира, Марка Лэйдлоу и других. Относящиеся ко времени становления киберпанка как такового, эти произведения могут по праву считаться классикой жанра, своеобразной точкой отсчета. И хотя созданы они были более двадцати лет назад, тем не менее парадоксальным (   Читать дальше...   )Жанр: фантастика, киберпанкПродолжительность: 12:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA2A4E8997A340DAD71F8DAB6B5043440C59E10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980077   (957235) от 28.01.2016
 
 Евгений Лукин | Ё (2015) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7DF6EBA68DA5312C5EECD93BE9F8D2C41069CB66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:7DF6EBA68DA5312C5EECD93BE9F8D2C41069CB66
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:7DF6EBA68DA5312C5EECD93BE9F8D2C41069CB66
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:7DF6EBA68DA5312C5EECD93BE9F8D2C41069CB66
 ```bash
 magnet:?xt=urn:btih:FEE4D134C9EFC940EF6B5A937DB6A4A1024D98C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:FEE4D134C9EFC940EF6B5A937DB6A4A1024D98C7
 magnet:?xt=urn:btih:26232FA21AD1FA4565A48750A0087E8656CC50CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:26232FA21AD1FA4565A48750A0087E8656CC50CC
 ```bash
 magnet:?xt=urn:btih:B7EC0ED11B2A4329A5D8D6583DE49E4F02A75256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:B7EC0ED11B2A4329A5D8D6583DE49E4F02A75256
 magnet:?xt=urn:btih:A1EE4F6AE87675AA01F1147B80D694543D525ECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:A1EE4F6AE87675AA01F1147B80D694543D525ECD
 magnet:?xt=urn:btih:EE219840062F27F1F9BB2038C0DE9AFB4F66E0EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:EE219840062F27F1F9BB2038C0DE9AFB4F66E0EE
 ```bash
 magnet:?xt=urn:btih:0A4F07B217445E62FAD90683C45CFF81732593A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:0A4F07B217445E62FAD90683C45CFF81732593A9
 magnet:?xt=urn:btih:DC1B993F40D0168F275D231CC56CB39EE832F3C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:DC1B993F40D0168F275D231CC56CB39EE832F3C0
 magnet:?xt=urn:btih:0883FB19E151BA1B3A43E5AB11F89C1CD2CFD3E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:0883FB19E151BA1B3A43E5AB11F89C1CD2CFD3E5
 magnet:?xt=urn:btih:292475E6A8559FE4EA37DC0E97C31FD8AF5D6A02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:292475E6A8559FE4EA37DC0E97C31FD8AF5D6A02
 ```bash
 magnet:?xt=urn:btih:33EC6C37FD034C2F483BE62B0FA7A2D6458819D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:33EC6C37FD034C2F483BE62B0FA7A2D6458819D2
 magnet:?xt=urn:btih:B9345A006D1ECE6481D305CEEB208FBADCB10E41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:B9345A006D1ECE6481D305CEEB208FBADCB10E41
 ```bash
 magnet:?xt=urn:btih:AEAF29EEBBFB281F8DF1E4C7F705EC67B6FFADD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:AEAF29EEBBFB281F8DF1E4C7F705EC67B6FFADD6
 magnet:?xt=urn:btih:7EE60DD1474B0CBCC04F55F9062076030F5EEE40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:7EE60DD1474B0CBCC04F55F9062076030F5EEE40
 magnet:?xt=urn:btih:810B83065B05A8F84B7B63EFC95176CFD780861E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:810B83065B05A8F84B7B63EFC95176CFD780861E
 ```bash
 magnet:?xt=urn:btih:CD9AA3C023A2DEBEE1FCF4EBB78DC49EB85EC2E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:CD9AA3C023A2DEBEE1FCF4EBB78DC49EB85EC2E3
 magnet:?xt=urn:btih:BBAB4EB29630E493A12C929DB8583DEFF8DD3CC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:BBAB4EB29630E493A12C929DB8583DEFF8DD3CC7
 magnet:?xt=urn:btih:D4BC2565F24CD527D964725D91E939CC6F716B07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:D4BC2565F24CD527D964725D91E939CC6F716B07
 ```bash
 magnet:?xt=urn:btih:F51FCFC47CDAFB411E5C6344EB0F500059465E00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:F51FCFC47CDAFB411E5C6344EB0F500059465E00
 magnet:?xt=urn:btih:C25D675A3045FB1C2354D9B609DFC2729212F4EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:C25D675A3045FB1C2354D9B609DFC2729212F4EF
 ```bash
 magnet:?xt=urn:btih:5A03AD4FDFA1D5BB9304128D3D15558AAD877B83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:5A03AD4FDFA1D5BB9304128D3D15558AAD877B83
 magnet:?xt=urn:btih:7948FA9B69A9AE98AC5675EAA4716A58877BDDA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,30 +684,7 @@ magnet:?xt=urn:btih:7948FA9B69A9AE98AC5675EAA4716A58877BDDA3
 magnet:?xt=urn:btih:21141C862F38B89559EC2B8F6F9D17B68180C78E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978320   (963228) от 23.01.2016
-
-Петр Заспа | Торпедой - пли! (2016) [MP3]
-
->>След.
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_963228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Наше время. Гордость Северного флота, российская атомная подводная лодка «Дмитрий Новгородский» уходит в поход – на дежурство в среднюю Атлантику. Поход как поход, если бы не присутствие на борту военспеца с хитрой аппаратурой. Высшее командование распорядилось провести в море некий секретный эксперимент. И провели…
-Холодное лето 1942 года, в разгаре Вторая мировая. (   Читать дальше...   )Жанр: Боевая фантастика, попаданецПродолжительность: 12:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE9027812992186CEA39D222FDD1478A8CEC12F6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:EA61D3A497457F023FE25AE272685D9B6C7BA83F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ VA - Осенний динамит. 50Х50 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:E667B60BDF47B875B74CD75178855D1C90996EA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Отрывайся с лучшими хитами выпуск 5 (2016) [MP
 magnet:?xt=urn:btih:F452A288B8E4B00A2EA917F0420F35DBD1BF2BFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ VA - Новогодняя вечеринка Mуз TV (2010) [MP3|256 kbps]<Pop/
 ```bash
 magnet:?xt=urn:btih:5C79FFE1044C32FE70A80FF021FD585F08D45549
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ VA - Global Chillounge Revolution, Vol. 2 (2016) [MP3|320 Kbps] <Downtempo, Chil
 magnet:?xt=urn:btih:E4916FE71302CE15CC6F7E2C69D7E5AFA045E80F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ VA - Thirty Ways To Chill Vol.1 (Relaxed Chill Out & Lounge Grooves) (2016) [MP3
 ```bash
 magnet:?xt=urn:btih:ECA96F8DFACF8977F49489808E78DC364B9E4FE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ VA - Best Vocal Trance (2016) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:FD612AFDA876846FF0D92507BC8BDA82E374D25C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ The Zawinul Syndicate - Lost Tribes (1992) Sony[FLAC|Lossless|tracks + .cue] <Ja
 magnet:?xt=urn:btih:1884D0F17CF29E51306F45393531644308A94616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ VA - JOOF Anthology - Volume 3 (2010) [MP3|320 kbps] <Psytrance, Progressive>
 magnet:?xt=urn:btih:C4315512FC0BDA3666A93F5047EBB22B64E2C0C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ VA - Новогодний Музыкальный Коктейль (2010) [MP3|25
 ```bash
 magnet:?xt=urn:btih:1A124C6AF7DB099FA1854DCFDDF35C294B58A619
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ VA - Trance Asylum 2 (2016) [MP3|320 Kbps] <Uplifting Trance>
 magnet:?xt=urn:btih:F30AB51DFF6CFA2E0AA585FC6835C908925FF9C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ VA - Mountain Ski-Lounge Beats (2016) [MP3|320 Kbps] <Downtempo, Chillout, Loung
 ```bash
 magnet:?xt=urn:btih:1811EBC4F580C8F37698344553DBE55FDDFFAEA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +358,8 @@ VA - Trance Elegance On This Year 002 (2016) [MP3|320 Kbps] <Trance, Tech Trance
 magnet:?xt=urn:btih:0B29B97EDE20C6D9C2A9C2D2D8725CE1982C0A3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ VA - Зимний Best Hits (2010) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:46833141315FBB48E83F7AE54E8ED7BE33233221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +413,8 @@ Carl Allen - The Pursuer (1994) Atlantic Recording Corporation[FLAC|Lossless|ima
 magnet:?xt=urn:btih:E27703121EDC9C171278C85F215E0D860CD827CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +441,8 @@ Stan Kenton - Kenton's West Side Story (1961) 1994, Capitol Records [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:4B40425CF1A68EC674E1BBEAC76EF4EB31D70B5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +471,8 @@ Paul Desmond Quartet - First Place Again (2005) [FLAC|Lossless|tracks + .cue] <J
 magnet:?xt=urn:btih:2ADF25E7DBF976CF5262819D599D1B24D24BBF1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +499,8 @@ VA - Trance Favorites EPisode #010 (2017) [MP3|320 Kbps] <Trance, Uplifting Tran
 ```bash
 magnet:?xt=urn:btih:FEEF18B8FBDB08FFF3A96CD11295D3D8E58402D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +529,8 @@ A4. Brave At Life (04:42)(   Читать дальше...   )Тип издани
 magnet:?xt=urn:btih:9521512F106A01570DB55DCDB98CB9007723C7AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +557,8 @@ Mirzadeh - Desired Mythic Pride (2014) [FLAC|Lossless|image + .cue] <Black Metal
 ```bash
 magnet:?xt=urn:btih:2D3FD39A445ADF3871D30F8864FB979FA0093B92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +587,8 @@ VA - Rielism - Best Of (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 magnet:?xt=urn:btih:4BE05AD35671792A3C6409AB5C9F6D5EE0733878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +616,8 @@ VA - Creativeness #1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech Hous
 magnet:?xt=urn:btih:15A730F216F8245F6AA35E8EB27BFE41360CF23E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +642,8 @@ magnet:?xt=urn:btih:15A730F216F8245F6AA35E8EB27BFE41360CF23E
 magnet:?xt=urn:btih:030116CE110E97C8FF85CAE4147580A565A37B8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +667,8 @@ Elimisoft App Uninstaller разумно находит ВСЕ оставшие�
 ```bash
 magnet:?xt=urn:btih:3910DCA08DCA5B675424187354456CD162F4B771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +697,8 @@ magnet:?xt=urn:btih:3910DCA08DCA5B675424187354456CD162F4B771
 magnet:?xt=urn:btih:2331519223D49F1DBE897F73D952AF6DD971840F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,6 +725,8 @@ Schlaflieder Für Kinder - 20 Songs to Instantly Calm Your Soul (2019) [FLAC|Los
 ```bash
 magnet:?xt=urn:btih:7307F1F9456EE3A2076745741C9D289402712DBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

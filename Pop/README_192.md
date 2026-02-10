@@ -1,3 +1,145 @@
+###  Публикация: 1558015   (535549) от 18.06.2022
+
+Дмитрий Маликов - Мы ещё встретимся (Синглы 2016-2022) (2022) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535549.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мы ещё встретимся
+2. Здравствуй это я
+3. Научу тебя смеяться
+4. Не отпускай (feat. Юлия Началова)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A15F37D10BA3FB003C2698E13C1517455AFC275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926373   (535593) от 09.08.2015
+
+Iamdynamite - Wasa Tusa (2015) [MP3|320 кб/с]<Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Be There (04:10)
+02. Stranger (04:11)
+03. In The Summer (04:10)
+04. My Love (04:21)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75D410272EB96E189409C02FF9A000700535979E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 227180   (535606) от 16.08.2010
+
+Toto Cutugno - Дискография [61 CD] (1976-2010) [MP3|320 Kbps] <Pop, Pop-Rock, Vocal, Chanson>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535606.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Pop-Rock, Vocal, ChansonПродолжительность: 49:27:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1558052   (535705) от 18.06.2022
+
+The Freedom Machine - 2 Albums (1978) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disco Samba (2:33)
+02. Disco Coutry (3:38)
+03. Free Love (4:40)
+04. Disco Samba (Instrumental) (2:34)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7A075171B11F9F2E7B190CEAB1DC2BE74A2A5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312049   (535984) от 02.07.2019
+
+Zivert - Сияй (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_535984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ещё хочу (3:25)
+ 02. Зелёные волны (3:43)
+ 03. Сияй (3:25)
+ 04. Океан (3:24)Жанр: PopПродолжительность: 00:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8151A99E56149FCF083BFDA12F54C0CB897BC5B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1312050   (536093) от 02.07.2019
 
 Мот, Zivert - Паруса (2019) Single [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -18,6 +160,8 @@
 ```bash
 magnet:?xt=urn:btih:CCB6B89CDDA2C0370C1D481B0E14C6D9C683FB20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +190,8 @@ Lian Ross - And The Beat Goes On (2016) 2CD [FLAC|Lossless|image + .cue] <Euro-D
 magnet:?xt=urn:btih:ECB6FD62CEB660B8DF4BD8F118037AC7EE294136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +218,8 @@ Imany - The Wrong Kind Of War (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, F
 ```bash
 magnet:?xt=urn:btih:B4EF3A54BEEF1143CCC7B53D0D417C3A30DCFE98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +248,8 @@ magnet:?xt=urn:btih:B4EF3A54BEEF1143CCC7B53D0D417C3A30DCFE98
 magnet:?xt=urn:btih:540ECA4E931F5E7B586509EA740A2D5D29FBC357
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +276,8 @@ A 60-as 70-es évek legnagyobb slágerei
 ```bash
 magnet:?xt=urn:btih:49435B77F307D11C829EF74CC5301A9D2FB54D0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +306,8 @@ Mark Ronson - Late Night Feelings (2019) [FLAC|Lossless|tracks + .cue] <Electron
 magnet:?xt=urn:btih:79F76508D32DF10786411FDCB5FE349EFDE1233E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +334,8 @@ Tarkan - Tarkan (1999) [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, & Countr
 ```bash
 magnet:?xt=urn:btih:D0576064A13A00D4E2672E71FE5756091E5F16A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +364,8 @@ A 60-as 70-es évek legnagyobb slágerei
 magnet:?xt=urn:btih:E78419EEEBF834CB23E5568072F1287406A09405
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +393,8 @@ Dave And Sugar - Greatest Hits (1981) LP [MP3|320 Kbps] <Pop, World, Country>
 magnet:?xt=urn:btih:8157A158DF5FDD3AD66ED29DACE92269B7A21BC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +421,8 @@ Heather Nova - Pearl (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:94EEA96A9E5E552F4FAF53DBB64834F9077950FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +457,8 @@ VA - The Late '50s - The Top 10 Collection (1998) 4CD [FLAC|Lossless]<Pop, Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +482,8 @@ Lady Gaga - Perfect Illusion (2016) Single [MP3|320 Kbps] <Pop, Electropop, Danc
 ```bash
 magnet:?xt=urn:btih:1D2781F2F84CEB3B5405EF443AFDA4E61D340108
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +512,8 @@ Charlie Mike Sierra - On The Moon (1977) LP [MP3|320 Kbps] <Electronic, Disco, A
 magnet:?xt=urn:btih:9AA23569D46FAAD9C2CD9AA1EB8D24AC5A787E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +540,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:EEAD289E1F60181AEBF5FDA69B8C72AC22412F61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +570,8 @@ Blue System - Seeds Of Heaven/21st Century (2000) [FLAC|image+.cue]<EuroDisco>
 magnet:?xt=urn:btih:A159144CB4DDCEE2AF99C4908C7DFBAF7ADA2A6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +598,8 @@ Hanne Sorvaag - Cover Me (2010) [FLAC|image + .cue]<Pop / Soft Rock / Country>
 ```bash
 magnet:?xt=urn:btih:EE5EBCADDBA0F81C673D3C42E6FD1FF26B8C6C19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +634,8 @@ magnet:?xt=urn:btih:EE5EBCADDBA0F81C673D3C42E6FD1FF26B8C6C19
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +659,8 @@ magnet:?xt=urn:btih:EE5EBCADDBA0F81C673D3C42E6FD1FF26B8C6C19
 ```bash
 magnet:?xt=urn:btih:215819A2956DD736CEE5CB4125E63ECF9A96ED4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +689,8 @@ magnet:?xt=urn:btih:215819A2956DD736CEE5CB4125E63ECF9A96ED4C
 magnet:?xt=urn:btih:D744E132E49FE94A553C584C752367DD1C052278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +717,8 @@ Carrie Underwood - Greatest Hits - Decade #1 (2014) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:4C23192B5D0F4735169E42B7E5916E113E27813F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,140 +747,7 @@ KAZKA - КАРМА (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:B0BAB4D900FC2D208AE709C2CE666985B63D08B2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239414   (538873) от 05.08.2018
-
-VA - New Italo Disco Top 25 Compilation Vol.9 (2018) [MP3|320 Kbps] <Italo-Disco, NuDisco, HiNRG, Dance>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Limelight - Forever Lovers (Re-Tubed Radio) 4:29
-02. Angelico - Forever Love (Short New Generation Dance Mix) 4:04
-03. Ken Martina - Another Melody (Short NRG Mix) 4:39
-04. Tommy Sun - Dancers (Mega Short Dance Mix) 5:16(   Читать дальше...   )Жанр: Italo-Disco, NuDisco, HiNRG, DanceПродолжительность: 01:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A1F6519EE13AC6C8EB0BC393AB37516C5D4660
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154570   (538949) от 31.07.2017
-
-ЕVгеника - Оптимистка (2017) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Оптимистка 3:44
-02. Бабы 3:47
-03. Мигалки 3:20
-04. Остров 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06C8BDED8E5DE126B398ED2D10319FBCE234214C
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239431   (538979) от 05.08.2018
-
-Екатерина Шаврина - Утопи меня в любви (2002) [FLAC|Lossless|image + .cue]<Pop Folk>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Утопи меня в любви
-02. Эх, была – не была
-03. Шрам на душе
-04. Накуролесила(   Читать дальше...   )Жанр: Pop FolkПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E0284609A4607D8D13BC1998CDB4148088494E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239501   (538982) от 05.08.2018
-
-Limelight - Special Love - Re-Tubed (2018) 2CD, Special Edition [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Special Love (06:24)
-02. Hold Me Tigh (07:03)
-03. Call Me (07:02)
-04. I Want Your Love (07:19)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 02:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA50E04D2205DEEC4CD133E65B659F8F5DC3D364
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239430   (538983) от 05.08.2018
-
-Tracey Thorn - SOLO : Songs And Collaborations 1982 - 2015 (2015) 2CD [FLAC|Lossless|tracks + .cue] <Pop, Trip Hop, House, Acoustic, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_538983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Protection (7" Edit) (4:55)
-02. Easy (3:58)
-03. Better Things (4:17)
-04. Night Time (3:44)(   Читать дальше...   )Жанр: Pop, Trip Hop, House, Acoustic, Ballad |Продолжительность: 01:17:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1198D2A7D6E02DFA378256EFE0DD0663352CD9E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

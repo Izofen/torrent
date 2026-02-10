@@ -1,3 +1,29 @@
+###  Публикация: 913446   (604864) от 29.06.2015
+
+Джон Брукс | Бизнес-приключения. 12 классических историй Уолл-cтрит (2015) [FB2]
+
+>>Разное (категория книг)
+>>Бизнес, Менеджмент, Деловая литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_604864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Билл Гейтс попросил Уоррена Баффета порекомендовать ему хорошую книгу о бизнесе, тот, ни минуты не задумываясь, дал ему свой экземпляр «Бизнес-приключений» Джона Брукса. Написанная более 40 лет назад, эта книга рассказывает о корпоративной и финансовой жизни Америки полувековой давности. Истории из жизни Уолл-стрит драматичны, увлекательны и поразительно актуальны. (   Читать дальше...   )Жанр: О бизнесе популярноФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC379B4D16774933531532A87DF6DD378A46D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913502   (604872) от 29.06.2015
 
 Георгий Милляр | Я — второй Раневская, или Й — третья буква (2015) [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:A4603FD3497BD9A9DEAD5896437BE0B82B02AA00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:A4603FD3497BD9A9DEAD5896437BE0B82B02AA00
 magnet:?xt=urn:btih:F6E672660B4CE638F5CA9C064A341D77F08E3054
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:F6E672660B4CE638F5CA9C064A341D77F08E3054
 ```bash
 magnet:?xt=urn:btih:96FFBA2F73257D464DEA96118C601BBF2D46359E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:96FFBA2F73257D464DEA96118C601BBF2D46359E
 magnet:?xt=urn:btih:8B2DC1FA42AF7FA4479D9530940C5A324EBEC1BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:8B2DC1FA42AF7FA4479D9530940C5A324EBEC1BC
 ```bash
 magnet:?xt=urn:btih:7ED7A333CD73E9FD58FE4B7D94F5AE441AD39F50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:7ED7A333CD73E9FD58FE4B7D94F5AE441AD39F50
 magnet:?xt=urn:btih:D7CCF0964EA1C6561DA5875BB52278DEFF59359C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:D7CCF0964EA1C6561DA5875BB52278DEFF59359C
 ```bash
 magnet:?xt=urn:btih:3945F98104F117A5CCD007E305E99EAE4378C106
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:3945F98104F117A5CCD007E305E99EAE4378C106
 magnet:?xt=urn:btih:B6CBAC109CDDD55D9794EAEB79FDD17DD00E7BD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:B6CBAC109CDDD55D9794EAEB79FDD17DD00E7BD6
 ```bash
 magnet:?xt=urn:btih:E31E49923DCBFAD1F09155D66A2F748F62B11F2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:E31E49923DCBFAD1F09155D66A2F748F62B11F2A
 magnet:?xt=urn:btih:B3ED31B8AE4CABB92C6BE06655AB8913EA21D1D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:B3ED31B8AE4CABB92C6BE06655AB8913EA21D1D3
 ```bash
 magnet:?xt=urn:btih:D0B7826D902B48DF6B6103EB5176ED36261F5488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:D0B7826D902B48DF6B6103EB5176ED36261F5488
 magnet:?xt=urn:btih:205259CC14A760124D5D33675C5C46DD5A3B5AFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:205259CC14A760124D5D33675C5C46DD5A3B5AFC
 ```bash
 magnet:?xt=urn:btih:5CA2FA7CB98DA5C17CB27AD32534F849311554EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:5CA2FA7CB98DA5C17CB27AD32534F849311554EF
 magnet:?xt=urn:btih:6A89180BC4DE9D639C16B9A7ADBD4808BBEF93B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:6A89180BC4DE9D639C16B9A7ADBD4808BBEF93B1
 ```bash
 magnet:?xt=urn:btih:F3762321029C06B53461D53D1B0BC9A0A6BEE057
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:F3762321029C06B53461D53D1B0BC9A0A6BEE057
 ```bash
 magnet:?xt=urn:btih:F574A44F3F7BC9EA7F2838CD5A620E65D2652124
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:F574A44F3F7BC9EA7F2838CD5A620E65D2652124
 magnet:?xt=urn:btih:C6174FC685650A3EB6166E7E85007B3A6BEFD00D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:C6174FC685650A3EB6166E7E85007B3A6BEFD00D
 magnet:?xt=urn:btih:BC426755998E31BFE76383DD25CC10A4300FDFDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:BC426755998E31BFE76383DD25CC10A4300FDFDD
 ```bash
 magnet:?xt=urn:btih:2830AD5CF96BB993CA32A13DE325369246A06801
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:2830AD5CF96BB993CA32A13DE325369246A06801
 magnet:?xt=urn:btih:489D287FF1FE10207B2FB3605E902FA95632134E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:489D287FF1FE10207B2FB3605E902FA95632134E
 ```bash
 magnet:?xt=urn:btih:4B21970D3073CD790872B11B3C68C77A67175D3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:4B21970D3073CD790872B11B3C68C77A67175D3F
 magnet:?xt=urn:btih:EED01E6200AC53835A928094A5961334025C8275
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:EED01E6200AC53835A928094A5961334025C8275
 ```bash
 magnet:?xt=urn:btih:D9DE1CE1A5FF3D03810873F919CC4FC6D710E473
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:D9DE1CE1A5FF3D03810873F919CC4FC6D710E473
 magnet:?xt=urn:btih:65C206FB19CF479F8FF1ED7D00216E28D46EF1CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:65C206FB19CF479F8FF1ED7D00216E28D46EF1CE
 magnet:?xt=urn:btih:FCF8C29C9475FC1E88DDBA388F6B0756528E630C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296830   (606324) от 20.04.2019
-
-Йерун ван Хейл | Подай идею. Как влюбить других в то, что ты придумал (2019) [PDF]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_606324.jpg" />
-</div>
-
-
-###  Подробнее
-
-У вас возникла очередная гениальная идея! Но сможете ли вы заручиться поддержкой нужных людей, чтобы ее реализовать? Как заразить своей идеей окружающих? В корпоративном мире это одна из самых малоизученных тем. Вместе с тем искусство убеждать – ключевой навык творческого человека. Эта книга научит правильно подавать свои идеи всех, кто испытывает сложности с презентацией, (   Читать дальше...   )Жанр: Маркетинг, Эффективная презентацияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9B9FF4BAFAEE4CD8A9A91380EA54CDCCD8EC665
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

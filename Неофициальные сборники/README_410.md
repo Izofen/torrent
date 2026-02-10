@@ -1,3 +1,32 @@
+###  Публикация: 1224400   (666063) от 10.05.2018
+
+VA - Elite Session Uplifting Trance (2018) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_666063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earth Inc - Strong (Original Mix)
+02. Etasonic - When You're Gone (Intro Mix)
+03. Frainbreeze feat. Vika - Better Day
+04. Anton Greco - Endless Love (Kiyoi & Eky Remix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 09:31:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C824AEA7FFE927C3613441E2A4B8B02527A82727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1537680   (666482) от 17.03.2022
 
 VA - Pop & Dance Remix NNM (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -21,6 +50,8 @@ VA - Pop & Dance Remix NNM (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:33656C61CB113F5DDB705CB807325F31F4A8C97B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Рада Рай, Ирина Круг, Лариса Кучина, Инна �
 magnet:?xt=urn:btih:9D7FF5ED5171E35CCB721A056E0E772C8F76FE40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Music News vol.173 (2022) [MP3|320 Kbps] <Pop, Soul, Dance>
 ```bash
 magnet:?xt=urn:btih:24455E3E194021582994AC377F6963E7EED09B25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Psybreaks [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Psybreaks>
 magnet:?xt=urn:btih:C94B9D2FA486D8AA0A9058425E7CDD2ACC59FED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Жаркие музыкальные хиты (2018) [MP3|256 Kbps] <Поп>
 ```bash
 magnet:?xt=urn:btih:717206AACE5E3C843E0C24174C0B2AF2901717B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - I'm Blessed: Gold Pack Rap Compilation (2018) [MP3|320 Kbps] <Rap, Hip Hop>
 magnet:?xt=urn:btih:59341BB6637E093E7D510F4967919365FABEEF2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - СупердискотЭка Радио Рекорд 80х-90х 50/50 (2012)
 ```bash
 magnet:?xt=urn:btih:388E7B914550E7135C9015B6B690875E2B20D1EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Psychedelic Chill Bass (2018) [MP3|256 Kbps] <DnB, Dubstep, Experimental>
 magnet:?xt=urn:btih:81598CB05FAE139E3F88F4A84801808CAF1D1377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Finest Electro House Music (2018) [MP3|320 Kbps] <Club, Dance, Electro Hous
 ```bash
 magnet:?xt=urn:btih:6C915D15A40ED16D2DF3C4D5F2EE8AE9B56498B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Eye In The Sky: Music For Dreams (2018) [MP3|320 Kbps] <Downtempo, Chillout
 magnet:?xt=urn:btih:3701CA0CDB3E419F0A62D6D1EE7EA5FC1A05AB11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Molecular Bond: Tech House Music (2018) [MP3|320 Kbps] <Tech House>
 ```bash
 magnet:?xt=urn:btih:512F96CC1CED3DC5B5C5BDDB1E172D934C875CE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Discoteka 2017 Dance Club. Hello Summer! (2017) [MP3|320 Kbps] <Dance , Clu
 magnet:?xt=urn:btih:A6CE05B9F250A49072A2D5FCEC48508D7D0A7DC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +395,8 @@ VA - 100% Блатной Хит (2011) [MP3|256 kbps]<Шансон>
 ```bash
 magnet:?xt=urn:btih:D3EB8C6A39E838046919CF898EFA2CF4E79818BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +422,8 @@ VA - Танцевальный Музон от Europa Plus (2011)  [MP3|256 kbps]
 magnet:?xt=urn:btih:ECDB25E3752D37A20E4BCBAB5C7C04AF8FE2A59D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +447,8 @@ VA - Модная Дискотека Versace 50/50 (2011)  [MP3|256 kbps]<Pop | 
 ```bash
 magnet:?xt=urn:btih:52977B6D1337CFF67E97E982D2DB4954055E8644
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +477,8 @@ magnet:?xt=urn:btih:52977B6D1337CFF67E97E982D2DB4954055E8644
 magnet:?xt=urn:btih:73F11C8348265285D9989C8FA09EBF7BE27EE05F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +505,8 @@ VA - Made in U.S.S.R. (2017) [MP3|320 Kbps] <Поп, Рок, Ретро>
 ```bash
 magnet:?xt=urn:btih:4A532CE4560B84C3AA87AAE634563515F026D9F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +535,8 @@ VA - Песни для души. Часть № 8 (2017) [MP3|256 Kbps] <Шан�
 magnet:?xt=urn:btih:5E73A7E53D6C9259D1B344B4C8D6C06073D54F54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +563,8 @@ VA - Synth Space Disco (2017) [MP3|192-320 Kbps] <Synthcpace, Synthpop, Disco El
 ```bash
 magnet:?xt=urn:btih:A6DEC4558336871B2ADAD7554211ACEFF828DFDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +593,8 @@ VA - Шальной шансон в дорогу выпуск № 12 (2017) [MP3
 magnet:?xt=urn:btih:FFC09F95C64A165785CFD31CEA6B64AF3772D0E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +621,8 @@ VA - Русский шансон. На любимой волне. Сборник
 ```bash
 magnet:?xt=urn:btih:8EBCFEF6AB6293AF1EE2D7DB5F591B63E9A49CB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +651,8 @@ VA - Need For Speed Vol.6 (2017) [MP3|320 Kbps] <Dance , Club>
 magnet:?xt=urn:btih:FE2B89EF97363A00D32266BCCF99F9FFF7A7527A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +679,8 @@ VA - Smooth Jazz: Variations On A Melancholy Theme (2CD) (2022) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:CE9D870E8EEA9F206A398850A2335737A49B07CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +709,8 @@ VA - Русская дискотека (2017) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:6C82718B8194560F906CB1C1F915D1EDA49D22D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,32 +738,7 @@ VA - 100-ка блатных душевных песен. Часть № 5 (2017
 magnet:?xt=urn:btih:D7D75E621AAED2008243D4BF24A89A3B7E6E1155
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137365   (667756) от 26.05.2017
-
-VA - Хитовая весна на Europa Plus. Сборник № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667756.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Роника - Агония 3:36
-002. Arsenium Feat. Mianna - А Он Другой Мама 3:19
-003. Funpills - Целовать Cильно 3:10
-004. Кристина Орса - Кино 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:630F4DAC2CFFD61E780F287A64EA072177E0152C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

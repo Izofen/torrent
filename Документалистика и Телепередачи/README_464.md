@@ -1,3 +1,29 @@
+###  Публикация: 633020   (633942) от 13.07.2016
+
+Земля из космоса / Earth from space (2013) HDTVRip [720p]
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_633942.jpg" />
+</div>
+
+
+###  Подробнее
+
+Земля из космоса приглашает вас на эпические поиски обнаружения невидимых сил и процессов, которые поддерживают жизнь на нашей планете и впервые вы увидите их в действии в их естественной среде в ярких деталях. Эти поистине уникальные изображения будут изучать глубочайшие тайны существования, вызвав глубокие вопросы и сложные старые предположения о том, как работает (   Читать дальше...   )Телекомпания: Fly Over, NASAЖанр: Документальный, научный-популярный, исследования, космосПеревод: Одноголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:52:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CD80474310AE667BF518DB312FDB51D6EED14A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908324   (633974) от 14.06.2015
 
 Теория заговора. Морепродукты (2015.06.14) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:1BB065093C64520AAF007E8D2170723099CB5656
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ Rip by -=DeMoH=-Телекомпания: РоссияЖанр: Документ
 magnet:?xt=urn:btih:848E7A320F12700210D26E67D0C1458074558C3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:848E7A320F12700210D26E67D0C1458074558C3D
 ```bash
 magnet:?xt=urn:btih:19CCC8E864D8AFBF6ADC40737FF23F6057949013
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:19CCC8E864D8AFBF6ADC40737FF23F6057949013
 magnet:?xt=urn:btih:39A6A2D4CE2D485D0A2768BAA3877FBF11A3036A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:39A6A2D4CE2D485D0A2768BAA3877FBF11A3036A
 magnet:?xt=urn:btih:F62D6329D5824FDFE3943848F274DC8E3F0FB3FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:F62D6329D5824FDFE3943848F274DC8E3F0FB3FD
 ```bash
 magnet:?xt=urn:btih:645B120E258F4F8A2F1ACB0D740E9C17B912401B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:645B120E258F4F8A2F1ACB0D740E9C17B912401B
 magnet:?xt=urn:btih:25A2F6163720D6C1A38B8C2310BE60CCA9B67FB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:25A2F6163720D6C1A38B8C2310BE60CCA9B67FB1
 ```bash
 magnet:?xt=urn:btih:9A32F769B7440158750F94400E94ADAE14319396
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:9A32F769B7440158750F94400E94ADAE14319396
 magnet:?xt=urn:btih:5153D5C26A9FD26CED680A3BF8DF7F688D4A2D16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:5153D5C26A9FD26CED680A3BF8DF7F688D4A2D16
 ```bash
 magnet:?xt=urn:btih:4B8E6BB0C1A84F0D6B0B43C6AF7B87D786B865E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:4B8E6BB0C1A84F0D6B0B43C6AF7B87D786B865E0
 magnet:?xt=urn:btih:2AA9A0A40C41B7F23B3A924EE0E3DDE281894498
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:2AA9A0A40C41B7F23B3A924EE0E3DDE281894498
 ```bash
 magnet:?xt=urn:btih:B0C45FE3055415C0D2FDB9F741446A203CDE3B63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:B0C45FE3055415C0D2FDB9F741446A203CDE3B63
 magnet:?xt=urn:btih:AB521A4A1FD62C143A9F33BFD87A718F4BF1CA1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:AB521A4A1FD62C143A9F33BFD87A718F4BF1CA1F
 magnet:?xt=urn:btih:597CE0A59694C71990F23E15091AEF9CEFC3E558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:597CE0A59694C71990F23E15091AEF9CEFC3E558
 ```bash
 magnet:?xt=urn:btih:18077A34AE9700E0AEF045427A2005B07BD32D31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +447,8 @@ magnet:?xt=urn:btih:18077A34AE9700E0AEF045427A2005B07BD32D31
 magnet:?xt=urn:btih:E5629BC03C7169AD92F12371FB241EECFC09CF06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:E5629BC03C7169AD92F12371FB241EECFC09CF06
 ```bash
 magnet:?xt=urn:btih:F39D62D7976333FBF6287B45E16E92EF11BD9474
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +499,8 @@ magnet:?xt=urn:btih:F39D62D7976333FBF6287B45E16E92EF11BD9474
 magnet:?xt=urn:btih:9C34370068E55726B0A49AF7614997B415192600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:9C34370068E55726B0A49AF7614997B415192600
 ```bash
 magnet:?xt=urn:btih:8CF1347A845AD1C2F8325BE7AC0EF9933CC736E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +552,8 @@ magnet:?xt=urn:btih:8CF1347A845AD1C2F8325BE7AC0EF9933CC736E5
 magnet:?xt=urn:btih:F6DE9347E044C1E4AC89D688AA450FBD68EC39AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:F6DE9347E044C1E4AC89D688AA450FBD68EC39AF
 ```bash
 magnet:?xt=urn:btih:1A25839F4563E7FA89B2B5D7E03C1ED6FCA5C1C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:1A25839F4563E7FA89B2B5D7E03C1ED6FCA5C1C2
 magnet:?xt=urn:btih:D8C15F33C64014D92EE452F4245AADA48AEBFFEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:D8C15F33C64014D92EE452F4245AADA48AEBFFEB
 magnet:?xt=urn:btih:FBCE35050D21B2B8F2670D6355BE538B7ACEB3A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:FBCE35050D21B2B8F2670D6355BE538B7ACEB3A6
 ```bash
 magnet:?xt=urn:btih:3BC9F8E0616E41E85A24A6A55C44F2B6A3B4827A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:3BC9F8E0616E41E85A24A6A55C44F2B6A3B4827A
 magnet:?xt=urn:btih:41631838BF12896B08D1940B81BF50C3BDE744C8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143617   (635111) от 18.06.2017
-
-Орел и решка. Перезагрузка (2017.06.18) WEB-DL [H.264/1080p-LQ] (сезон 14: Чикаго)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_635111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шесть лет назад команда проекта "Орел и решка" впервые отправилась в большое путешествие по самым интересным городам нашей планеты. За прошедшее время в них столько всего изменилось, что создатели шоу решили приехать сюда снова. "Орел и решка" объявляет перезагрузку! Телезрителей ждет встреча с невиданными чудесами, новыми незабываемыми впечатлениями (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85D8850E542B6A779782A292C3E9DC2B15C58ED5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

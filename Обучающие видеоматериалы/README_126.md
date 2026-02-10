@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:DC1F5C63CA9222DFF316A26EFFBFBAEDAC12B20A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Udemy, Dzianis Matveyenka | Gradle (2022) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:611B5B5D2DF0F7A15FE62EC81CD5200DCDA0BDB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Selenium - это веб-инструмент для тестирования а
 ```bash
 magnet:?xt=urn:btih:57F848ECFAB0909F288E262D3A9983A8CD4A7A92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Udemy, Denis Astahov | Terraform с Нуля до Профессионала (20
 magnet:?xt=urn:btih:88A0C0E6EC18759F97779AC0B0F473DBD1B70FE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Techworld with Nana, Nana Janashia | GitLab CI/CD - From Zero To Hero (2022) WEB
 ```bash
 magnet:?xt=urn:btih:C8266842EEEEE5C0DCD509A000DF54FC3F2B4B8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ Udemy, Mammoth Interactive, Erich Andreas | Complete Guitar Lessons System - Beg
 magnet:?xt=urn:btih:7871B1616BD6CC40DDB7E93361FA1F20B47014E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Rohan Dalvi | Procedural Modeling in Houdini (2019) PCRec [RU]
 magnet:?xt=urn:btih:077FAF2196A3D233ABE0D753A380C661DA80931A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ The Gnomon Workshop, Gary Meyer | Fundamentals of Perspective Vol. 1-3 (2012) PC
 ```bash
 magnet:?xt=urn:btih:1848ED2E592487EDD7B7881C5B7D55AE7CB4705C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Udemy, Michael Gerard | Unreal Engine 4 - Learn How to Create a Lost Road scene 
 magnet:?xt=urn:btih:9B99C215B030441CBEAD62DECD4DAB8FBA76E0BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Lynda, Brian Morse | PFTrack Essential Training (2020) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:25537E4879FEA4872B7DC1D6B64881194B03A3A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ milenanoda.school, Milena Noda | Марафон «Создание стилиз�
 magnet:?xt=urn:btih:ECB801E888C6ED5AFCC9349E1405F4BC35F5FBAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ Art box school | Эффектный пейзаж. Масло (2023) WEB-DL [AD] 
 ```bash
 magnet:?xt=urn:btih:D08656665EF57E2C7133772449CC48E0E84E26A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ Art box school | Листья. Акрил (2023) WEB-DL [RU]
 magnet:?xt=urn:btih:C412DD9529B5AAE931C2638EA0A5EFA63597AC28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ Art box school | Mини цветы. Акрил (2023) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:0C09C6A2531082A91A65170E2592C0ED57C1C3F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ Udemy, Dr. Angela Yu | The Complete 2021 Web Development Bootcamp (2021) WEB-DL 
 magnet:?xt=urn:btih:4D32FEE4B90582AC92CC56C36F6AB024D51D9F3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ World Of Level Design | UE4 Fundamentals Vol.1: The Essential Beginner's Guide t
 ```bash
 magnet:?xt=urn:btih:ECCC5EAFAC32A7A8AAD86F7980B5F929B8572D72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ Lectoroom, Мария Павлова | Букет клубники маслом 
 magnet:?xt=urn:btih:203A7A7499AED8F98ED08B0C1218D6538A028450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ Udemy, Michael Gerard | Unreal Engine 4: Learn How to Create a Natural Scene Par
 magnet:?xt=urn:btih:CB8D216ED654905988D188D73E027BEAB96EADFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ Artstation, Aaron Villarreal | Creating a Stylized Diorama | Aaron Villarreal (2
 ```bash
 magnet:?xt=urn:btih:92BB00CEDEC200F62D92148D5A17E7269B5C227E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ Gumroad, Jan Urschel | Procedural Landscapes in Blender (2019) PCRec [EN, RU]
 magnet:?xt=urn:btih:BE50C632CBF5902084CED9DBC65FB80A8B2EEDBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ FlippedNormals, Emiel Sleegers | Creating Custom Decals for Games - In-Depth Tut
 ```bash
 magnet:?xt=urn:btih:6A94034C343E13938E795E18056BD8B431048F5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ Blender Cloud, Pablo Vazquez | Cartoon Character Creation - Venom's Lab! 2 (2014
 magnet:?xt=urn:btih:58FCA19B8ADBE96899781734D01368903F9B6BB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:58FCA19B8ADBE96899781734D01368903F9B6BB8
 ```bash
 magnet:?xt=urn:btih:E7C2E79C4A00400165B920E12742C4AD6EDA10A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ Thinknetica Pro, Артем Кривоножко | Объектно-ориент
 magnet:?xt=urn:btih:0E2DC1F33CD068CE6D31629F6C2C9C11EB692466
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ Udemy, Roman Dushkin | Перцептроны (2022) WEB-DL [AD] [RU]
 ```bash
 magnet:?xt=urn:btih:FFAE97FD25876E6B7E2165F698EB77A52680A6C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ Engheadstart, Анастасия Черниговская, Яна Бутырск
 ```bash
 magnet:?xt=urn:btih:EC199F773E86EE1645EC4719BE211D177A27AD2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

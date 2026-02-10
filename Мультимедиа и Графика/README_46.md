@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7EF6530A16E65C40540B22C22B637EEE021CC83F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ LosslessCut — простой видеоредактор для нарезки 
 ```bash
 magnet:?xt=urn:btih:076BB34EE5C08F109B986C91DFC9D398CA90896B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ FireAlpaca — это достаточно простой, но удобный �
 magnet:?xt=urn:btih:2F82CB4D3B98ED60C214F753F0E1853D50E3FE5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Topaz DeNoise AI 3.7.2 (x64) RePack (& Portable) by elchupacabra [En]
 magnet:?xt=urn:btih:C4D2F01399D585977815A4901BC38D34AAB62168
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ MAGIX Photostory Deluxe 2023 22.0.3.149 (x64) [Multi]
 ```bash
 magnet:?xt=urn:btih:6C1001DFD302CC9DB57AE536F7010E8FA5D13FD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ PaintTool SAI - это высококачественное и легкое пр
 magnet:?xt=urn:btih:46490A1FB9BC83885152CA72B097B48EC983B7C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ Perfectly Clear — приложение, которое позволяет вс
 magnet:?xt=urn:btih:8020F75032679BEE9768B6C2E2F6A5618E87D512
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:8020F75032679BEE9768B6C2E2F6A5618E87D512
 ```bash
 magnet:?xt=urn:btih:15869713CF6EC8504D085AA68BAF0C8F7A021A12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Arturia Pigments 6 включает шесть типов синтеза, отм
 magnet:?xt=urn:btih:103353C256E11FA7E4F7660EA1E27623BE9538A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ SOUND FORGE вот уже более 20 лет задает стандарты �
 ```bash
 magnet:?xt=urn:btih:76ECF701DBAA736816DD7E0DCE0A53EA43ABAAC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Modartt - Pianoteq 8.4.3 Pro STANDALONE, VSTi, VSTi 3, AAX RePack (& Portable) b
 magnet:?xt=urn:btih:5F1BF8624B1CC5983EB2A34D47E8F7EFEFA92176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Hybrid - это синтез следующего поколения. Этот �
 ```bash
 magnet:?xt=urn:btih:18BE3B162614C53D06A02558162C485066F13387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Smooth Operator Pro - Спектральный балансировщик сиг
 magnet:?xt=urn:btih:5B8556A66E37604D0F888A348E697A6CB2A9360D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ U-he - Uhbik 2.0.0 VST 3, CLAP, AAX (x64) [En]
 ```bash
 magnet:?xt=urn:btih:57A1144E9B1B43D34854B7EC5B3DCAFF4C34C48A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Synapse Audio - DUNE 3 3.6.5 VSTi, VSTi 3, AAX (x64) [En]
 magnet:?xt=urn:btih:2CDFAFE8E2F56D2EE7763807139A753D38721DA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Topaz DeNoise AI 3.7.2 RePack by KpoJIuK [En]
 ```bash
 magnet:?xt=urn:btih:D2D4BC44A8DD3866388DDE86124FD0FBA172E947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ NewBlue FX plugins 2.0.0.34 [En]
 magnet:?xt=urn:btih:4A664ADF98AFBCD8E16E22C6BC8FD293F0216F1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Serum – таблично-волновой синтезатор мечты, с�
 ```bash
 magnet:?xt=urn:btih:3375C3481AC2969EEA28BEFF2877ADC08E7C1966
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ PowerDirector 21 обеспечивает профессиональное ре�
 magnet:?xt=urn:btih:C807139A3B1C576774A2524B7656C1B98D410D62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ HitPaw Photo Enhancer - это наиболее полный инструмен�
 magnet:?xt=urn:btih:1041CAFFF67E5CC5A5A25B92DC91DED327405C3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Nik Collection by DxO – это наиболее полная коллекци�
 ```bash
 magnet:?xt=urn:btih:448F42885019628C3B39D9CAB064031E8117BF50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:448F42885019628C3B39D9CAB064031E8117BF50
 magnet:?xt=urn:btih:FF591FD2D54169353BD04FB394FAF0E211406BE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:FF591FD2D54169353BD04FB394FAF0E211406BE3
 magnet:?xt=urn:btih:134B73520977739734CA95870D62208B7C2CE038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ ArtRage настоящая художественная студия для по
 ```bash
 magnet:?xt=urn:btih:D564A04A6C618C6C675C0C47C75CF61962FB3A9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Avid Sibelius — последнее поколение бестселлера �
 magnet:?xt=urn:btih:7A24425C4CA26433784C0F065C154C05DC62A702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Avid Sibelius — последнее поколение бестселлера �
 ```bash
 magnet:?xt=urn:btih:D958B866D82999788F06082DCF3A2BAC9AAEE705
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

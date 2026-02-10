@@ -1,27 +1,3 @@
-###  Публикация: 1366685   (921716) от 12.03.2020
-
-Призраки / Wind Chill (2007) WEB-DL [H.264/1080p-LQ] [Open Matte]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_921716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пара студентов, поехав домой на каникулы, решает воспользоваться дорогой, явно не пользующейся большой популярностью. Увы, слишком поздно герои вспоминают, что не следует доверять коротким, но заброшенным путям.Производство: США, Великобритания / Blueprint Pictures, TriStar PicturesЖанр: ужасы, триллер, драмаРежиссер: Грегори ДжейкобсАктеры: Эмили Блант, Эштон Холмс, Мартин Донован, Нед Беллами, Йен А. Уоллес, Донни Джеймс Лукас, Челан Симмонс, Даррен Мур, Линден Бэнкс, Каз Один ДаркоПеревод: Многоголосый профессиональный, авторскийСубтитры: русские, английскиеПродолжительность: 01:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BFA830B91233A0EA28C2F30ABE8BCA694BAC62E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988243   (921726) от 19.02.2016
 
 Последний охотник на ведьм / The Last Witch Hunter (2015) BDRip [H.264]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:4BFA830B91233A0EA28C2F30ABE8BCA694BAC62E
 ```bash
 magnet:?xt=urn:btih:2A1878F7B2BC970382C8EFC81BE8ADFAEC167495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:2A1878F7B2BC970382C8EFC81BE8ADFAEC167495
 magnet:?xt=urn:btih:FBF774E02375C2F81FDC619B2195449FB0823054
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:FBF774E02375C2F81FDC619B2195449FB0823054
 ```bash
 magnet:?xt=urn:btih:AEA381E5520AB7CB59A3ACFCC92E23029703286B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:AEA381E5520AB7CB59A3ACFCC92E23029703286B
 magnet:?xt=urn:btih:C0341987925357443DEACF1E07F2BC0F4A686154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:C0341987925357443DEACF1E07F2BC0F4A686154
 ```bash
 magnet:?xt=urn:btih:F3CEFA95DBB56CBF48678DE45E1F0E0089C69625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:F3CEFA95DBB56CBF48678DE45E1F0E0089C69625
 magnet:?xt=urn:btih:62D4B9A0BB91388A343B8A0637B0A62E18794770
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ magnet:?xt=urn:btih:62D4B9A0BB91388A343B8A0637B0A62E18794770
 ```bash
 magnet:?xt=urn:btih:F153523D36DC27BB17FB3EDF4BD2CDAC210B9E3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ magnet:?xt=urn:btih:F153523D36DC27BB17FB3EDF4BD2CDAC210B9E3F
 magnet:?xt=urn:btih:4015690E066BB1BA5D6C6F99C058D262775D355C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ magnet:?xt=urn:btih:4015690E066BB1BA5D6C6F99C058D262775D355C
 ```bash
 magnet:?xt=urn:btih:2C76EB0EEE9B312633F5965030A96848C2BAA712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:2C76EB0EEE9B312633F5965030A96848C2BAA712
 magnet:?xt=urn:btih:C48B7719B250330C39E53F0C8F352215939B44A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ magnet:?xt=urn:btih:C48B7719B250330C39E53F0C8F352215939B44A7
 ```bash
 magnet:?xt=urn:btih:F7401067DE7659A2FD0A8D6403859E9A2F35189E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:F7401067DE7659A2FD0A8D6403859E9A2F35189E
 magnet:?xt=urn:btih:D7B73802F74B85B142637565363656A5F7F52DEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ magnet:?xt=urn:btih:D7B73802F74B85B142637565363656A5F7F52DEA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ S.W.A.T.: Спецназ города ангелов / S.W.A.T. (2003) WEB-DL [H
 magnet:?xt=urn:btih:5BDF28EDD80E2298A64709624D6391F9BED10270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +383,8 @@ magnet:?xt=urn:btih:5BDF28EDD80E2298A64709624D6391F9BED10270
 magnet:?xt=urn:btih:CB30F43FF002233BDB6A9720C9EE726B2CF717BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +408,8 @@ magnet:?xt=urn:btih:CB30F43FF002233BDB6A9720C9EE726B2CF717BD
 ```bash
 magnet:?xt=urn:btih:A5D888FA8D8B068A0D8B3F639D01DED4F0C04C8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +436,8 @@ magnet:?xt=urn:btih:A5D888FA8D8B068A0D8B3F639D01DED4F0C04C8F
 magnet:?xt=urn:btih:0388B60F7E963B71EB8EC510C87780234F07CE61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +461,8 @@ magnet:?xt=urn:btih:0388B60F7E963B71EB8EC510C87780234F07CE61
 ```bash
 magnet:?xt=urn:btih:4F64BEBE31F38AA4AE793CA37DC5E1F37AAA0B6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +488,8 @@ magnet:?xt=urn:btih:4F64BEBE31F38AA4AE793CA37DC5E1F37AAA0B6C
 magnet:?xt=urn:btih:BA7AA6F7543A54CC945474B8A66D29A3F22C4F21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +513,8 @@ magnet:?xt=urn:btih:BA7AA6F7543A54CC945474B8A66D29A3F22C4F21
 ```bash
 magnet:?xt=urn:btih:DF047234B83F6C28BC19377F9B75C20B373483A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +540,8 @@ magnet:?xt=urn:btih:DF047234B83F6C28BC19377F9B75C20B373483A0
 magnet:?xt=urn:btih:3B8BF81717EEFFCF892663631EA637B169CEE414
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +565,8 @@ magnet:?xt=urn:btih:3B8BF81717EEFFCF892663631EA637B169CEE414
 ```bash
 magnet:?xt=urn:btih:C40AE5D8E6AE52C4D7FFE866357C45711378BBB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +593,8 @@ magnet:?xt=urn:btih:C40AE5D8E6AE52C4D7FFE866357C45711378BBB4
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +619,8 @@ magnet:?xt=urn:btih:C40AE5D8E6AE52C4D7FFE866357C45711378BBB4
 magnet:?xt=urn:btih:A33B13496EE058D2D52487FFF42CD2AF722D0293
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +644,34 @@ magnet:?xt=urn:btih:A33B13496EE058D2D52487FFF42CD2AF722D0293
 ```bash
 magnet:?xt=urn:btih:C1C542A7537974A7F07BE84165EB44D35BF17BDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096056   (921935) от 22.01.2017
+
+День независимости: Возрождение / Independence Day: Resurgence (2016) BDRip [AVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_921935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Используя инопланетные технологии, жители Земли создали специальную программу по защите планеты. Но ничего не может нас спасти от нового, еще более разрушительного и масштабного инопланетного вторжения — только смелость нескольких героев, которые единственные могут спасти наш мир от уничтожения.Производство: СШАЖанр: Фантастика, Боевик, ПриключенияРежиссер: Роланд ЭммерихАктеры: Лиам Хемсворт, Джефф Голдблюм, Джесси Ашер, Билл Пуллман, Майка Монро, Села Уорд, Уильям Фихтнер, Джадд Хёрш, Брент Спайнер, Патрик Ст. Эсприт.Перевод: Авторский (одноголосый закадровый) Андрей ГавриловПродолжительность: 01:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E021E11923ECACD8E111E18E266426C2F8CF92DC
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

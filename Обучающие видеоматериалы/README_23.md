@@ -20,6 +20,8 @@ Mensh | Роутер FreeBSD 8 с билингом Nodeny [2010] VM Ware Rec
 magnet:?xt=urn:btih:156EAF3EEAE1105FA1D800756FBCEF00F3AE279A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ elena-udalova.ru, Елена Удалова | Курс немецкого язы
 magnet:?xt=urn:btih:6931CF017C9CF06D4FF8CA5477417EF6240D6966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Luke Goodhue | Обработка пиломатериалов от чернов
 ```bash
 magnet:?xt=urn:btih:68D8BBB8FF91EF82EB6DE2C2730DCDA2B553EE66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ The Gnomon Workshop, Thomas Butters | Creating a Hero Weapon for Games (2024) PC
 magnet:?xt=urn:btih:1895E9428382247D04CB6388F7F0542F6FC498E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Gary Rogowski | Столярные работы с ручным фрезером
 ```bash
 magnet:?xt=urn:btih:3DE71B3BDEC4D8E334C78782ED68E6A77259FDBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 magnet:?xt=urn:btih:5BB39E0DD1E601774CFEE54E6C585A5CBF854E96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 ```bash
 magnet:?xt=urn:btih:2C52EBE33D287CA66210157832681BF5D486F2D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ LiveClasses, Константин Тимофеев | Основы моделир
 magnet:?xt=urn:btih:48EDF26CF9A9E91D67C55EA69F077FD7011801D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 ```bash
 magnet:?xt=urn:btih:C82A4620DAC545DE690762A714840211814BD3B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 ```bash
 magnet:?xt=urn:btih:30328B5DCCF9B099EBF98482333BC6015B1CADDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ Houdini-course.com, Christian Bohm | Houdini FX Course (2024) PCRec [EN]
 magnet:?xt=urn:btih:C0D805BF7109E32AE871D49F133C6C81B2513388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ LiveClasses, Виталий Бужан | Цветокоррекция в DaVinci
 magnet:?xt=urn:btih:7A460D23BEEF4198DA04EA99B8431E435ED7C41B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Udemy, FastTrack Tutorials, Emiel Sleegers | Creating Advanced Trim Sheet Textur
 ```bash
 magnet:?xt=urn:btih:A82EA343670848D38828E1AF5406CE2FB4345CCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ Udemy, 3D Tudor | Blender Geometry Node Fire Animation (2024) PCRec [EN]
 magnet:?xt=urn:btih:ACCF8962E4F9BD6C8FE1BFA15DCD356A6439AD83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:ACCF8962E4F9BD6C8FE1BFA15DCD356A6439AD83
 ```bash
 magnet:?xt=urn:btih:5414FA41704713C01279CAADA8DDAEA3DE6ADFB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ Klaus | Авторский курс "Зеркало Интернета 3. Моб
 magnet:?xt=urn:btih:5B58DD035FD41689F119B07D98665EA7FF85D0F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:5B58DD035FD41689F119B07D98665EA7FF85D0F3
 magnet:?xt=urn:btih:90E1906B699B7AF4098A02120900DA5E63E9DCE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:90E1906B699B7AF4098A02120900DA5E63E9DCE0
 ```bash
 magnet:?xt=urn:btih:32DC038DFBE6FA0CFED6BAADA44DF48825391B25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:32DC038DFBE6FA0CFED6BAADA44DF48825391B25
 magnet:?xt=urn:btih:E7B88224D9392A72CEC8157F91C5C5B0B4CE60BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ Pluralsight | Разработка печатных плат с Eagle (2015) PCR
 ```bash
 magnet:?xt=urn:btih:A9D4B687B86B80E1799A024F068F3DBC3CC33A17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ Austin School of Furniture & Design, Alex Lohn | Конический журна
 ```bash
 magnet:?xt=urn:btih:869AA82C4FB0F7BEC93283DD5C26A610A881004A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ Microarch, Кирилл Ветчинкин | Domain Driven Design и Clean Archi
 magnet:?xt=urn:btih:9E0B8B42D369197B74F7295B2CB6D0D0D14CB7CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ Udemy, Vassilyi Gudomarov | HTML5 и CSS: Полный курс верстки �
 magnet:?xt=urn:btih:0B7AEE66B6C5F7563F030D5B4A9DE79387CA0ACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ Udemy, Vassilyi Gudomarov | Современный JavaScript: От новичк
 ```bash
 magnet:?xt=urn:btih:64EF16BC2BCD981F6874DFF79334755E37093897
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ Krav-maga, Антон Фарб  | Sucker Punch: Искусство подлог�
 magnet:?xt=urn:btih:58359D3137AA3B9F6D35AD4EB841FDC617B8B34D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:58359D3137AA3B9F6D35AD4EB841FDC617B8B34D
 ```bash
 magnet:?xt=urn:btih:3B9A5AA7FCA8C2D9DFA3DF3DC22FEB4302076031
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

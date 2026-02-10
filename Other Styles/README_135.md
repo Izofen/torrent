@@ -22,6 +22,8 @@ Erwann Kermorvant, Axelle Renoir - 36 Quai des Orfevres (Original Soundtrack) (2
 magnet:?xt=urn:btih:F86E7403D5DCC5C60F0B1964D02D88F603536CA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Sunrise Energy Morning Meditation (Deep Meditation Music) (2017) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:FB96F21987582C67091329B7C37C2ACFB560102D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Loretta Lynn - Don't Come Home-A-Drinkin' (1967) [FLAC|Lossless|tracks] <Folk, W
 magnet:?xt=urn:btih:8EF4DD2748C626219C6D85F128D395391F02DB97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ John Prine - John Prine (1971) [FLAC|Lossless|tracks + .cue] <Rock, Folk Rock, C
 magnet:?xt=urn:btih:DA7A47D72C78551CEF0A380F8290CEE6F30E365B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ Deep Forest первыми, среди тяготеющих к этносу гр
 ```bash
 magnet:?xt=urn:btih:5B5997EF8360BB6928554DD8969C3ECC7CA17878
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ Gary Ryan - Midnight Guitar (2007) [MP3|320 Kbps] <Instrumental, Guitar, Classic
 magnet:?xt=urn:btih:832C108DCF06ACD25771BA2AF8D5F2385AB709AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ Shinnobu - The Enigma VII (Star Seeds) (2019) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:43BE3F23EAB563F0E3F3ED151989FC738A26795C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +224,8 @@ Ray Conniff - Музыка хорошего настроения (2005) [FLAC|Lo
 magnet:?xt=urn:btih:997C36A8B8094EA3441BC69822879D65A9DC704B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +252,8 @@ VA - Yoga Chill Out 2019 [MP3|320 Kbps] <New Age, Ambient, Downtempo>
 ```bash
 magnet:?xt=urn:btih:B5EF0BA8E934DB69AFD18A8263A2D394BFF6DA9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ Variations & Gary Ryan - Romantic Guitar (2006) [FLAC|Lossless|tracks + .cue] <I
 magnet:?xt=urn:btih:08A6A83BEDC0FED3E192BC0CD18269900F0547EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ Cousin Harley - Blue Smoke - the Music of Merle Travis (2017) [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:D976318DDDFA61E510B8C29CEB16D7753CD21534
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +340,8 @@ Llewellyn - Return to the Temple (Re-Recorded) (2018) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:44FB78FF01243C28EA0196197DF902108144F3E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ Marika Takeuchi - Colors In The Diary (2016) [FLAC|Lossless|WEB-DL|tracks] <New 
 ```bash
 magnet:?xt=urn:btih:A082171CE9AE98ADBFF706D8133513D34B6F9E6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +398,8 @@ Pentangle - Reflection (1971) [FLAC|Lossless|tracks + .cue] <Folk Rock, Jazz>
 magnet:?xt=urn:btih:FF328A7DDB84508BD8D770001D0B7212350A5351
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ magnet:?xt=urn:btih:FF328A7DDB84508BD8D770001D0B7212350A5351
 ```bash
 magnet:?xt=urn:btih:CC432D9FC5DF1079CF890E09C1675043A0689EEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ Thomas Cappeau - Commando Ninja / Коммандос-ниндзя (Original Moti
 magnet:?xt=urn:btih:016656C863E3ED94228EF3E3919295CF44361EFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ Ernesto Cortazar - Blue Waters (2009) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pi
 ```bash
 magnet:?xt=urn:btih:CC2488799085856D7C227D375782658FA6682E86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +514,8 @@ Kvitka Cisyk - Two Colors (1989) Kacey Cisyk, Квитка Цисык [FLAC|Loss
 magnet:?xt=urn:btih:CD5E9E6D993F5C44F9F637648A90703A97686269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ magnet:?xt=urn:btih:CD5E9E6D993F5C44F9F637648A90703A97686269
 ```bash
 magnet:?xt=urn:btih:68973B58DFADDDBE9E86B1DE8978D62F4879C0FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +572,8 @@ magnet:?xt=urn:btih:68973B58DFADDDBE9E86B1DE8978D62F4879C0FA
 magnet:?xt=urn:btih:A7CA930560B04C6ACFF4A6110C497A96D9E57E8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ Greg Maroney - Remembrances (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:0CA63AFC5CB7AC6F1CE560FB547CAB389D5D4943
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +630,8 @@ Farinelli: Il Castrato - Original motion picture soundtrack (1994) [FLAC|Lossles
 magnet:?xt=urn:btih:7EEB4AF81218C2179B6C3E52C85A1E6B59FC2671
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ magnet:?xt=urn:btih:7EEB4AF81218C2179B6C3E52C85A1E6B59FC2671
 ```bash
 magnet:?xt=urn:btih:3BDFB62409133F21D5C584F676256E4EE0CCF898
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ Celtic Woman - Homecoming: Live from Ireland (2018) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:D4FE4237F08D3EA8450484665FBB7A6D2199F9B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ Wellküren - Das Mensch: Traditionals (2003) [APE|Lossless|image + .cue] <Volksm
 magnet:?xt=urn:btih:C4DC4611B92DED6350E17B3A623910E153B53586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ Spectradome - Dreamscape Wizard (2019) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:8154AA91BDCF72D5937F9967FE23AF083BF7613C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

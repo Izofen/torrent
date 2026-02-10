@@ -20,6 +20,8 @@ KanColle 2 | Kantai Collection 2 - Itsuka Ano Umi de | Коллекционна�
 magnet:?xt=urn:btih:673C7B95DCA23A44B018B26183BB6D4EBA793F75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ True Launch Bar 8.0 + portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:45FB4C55808CD801E0F6349A690415724766F6E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ VA - Лучшие рок баллады 20-го века Vol.1 (2023) [MP3|320 K
 magnet:?xt=urn:btih:8C914AAB8BA6DCA789D2D78045D8676642559069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Katie Kern - Twilight (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rockabilly>
 ```bash
 magnet:?xt=urn:btih:16F81CAC39108CC0B026878D86210B4363AEC4B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ Brutus — бельгийская рок-группа из провинции Ф
 magnet:?xt=urn:btih:B68979C160500C384C777A225E50F5DEED984C74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ CD - 1 - When All The Heroes Are Dead:
 magnet:?xt=urn:btih:2CE4BB902EF255E8FA0DADFA9E963E32175EBE85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:2CE4BB902EF255E8FA0DADFA9E963E32175EBE85
 ```bash
 magnet:?xt=urn:btih:CE8CEA9AC8C4184043EC2A31AF643AC04A74CED5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +220,8 @@ VA - Mega Hits 2015 (2023) [OGG Vorbis|480 Kbps] <Pop>
 magnet:?xt=urn:btih:710D2E62EDECEB13BA818FC24F67897F97B20529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ A4. Highway For Fools (3:14)(   Читать дальше...   )Жанр: RockП
 ```bash
 magnet:?xt=urn:btih:54D11ACF87861C2638EE19720840D93F40467BF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +278,8 @@ VA - timeless love tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:5A16A5731D226B0D175341C3F04044924BFA258C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +307,8 @@ Side 1
 magnet:?xt=urn:btih:AA4674BBA0A4F84D34D90A498E5DA0BD4B4B02F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ magnet:?xt=urn:btih:AA4674BBA0A4F84D34D90A498E5DA0BD4B4B02F7
 magnet:?xt=urn:btih:8BD68B2B0AE062D856F191E2F2082CAA5378A73D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +360,8 @@ magnet:?xt=urn:btih:8BD68B2B0AE062D856F191E2F2082CAA5378A73D
 magnet:?xt=urn:btih:64B3D5EA9A164EA012D2913916DE5439015B4768
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +385,8 @@ magnet:?xt=urn:btih:64B3D5EA9A164EA012D2913916DE5439015B4768
 ```bash
 magnet:?xt=urn:btih:DF767C35AEBF0032955B326343E39F34C1953A8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +415,8 @@ A4 One Way Love(   Читать дальше...   )Жанр: PopПродолжи
 magnet:?xt=urn:btih:E9FB27FB7B766CE67C7225563D6F90135AB16C77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +442,8 @@ magnet:?xt=urn:btih:E9FB27FB7B766CE67C7225563D6F90135AB16C77
 ```bash
 magnet:?xt=urn:btih:B8D269AD13776AABD7F82CE1FC84AA26E4923215
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +472,8 @@ Deuce 'n a Quarter - Keep Moving On (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 magnet:?xt=urn:btih:5AA813645262127A6D298A77B926465B0C2D2CAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +499,8 @@ magnet:?xt=urn:btih:5AA813645262127A6D298A77B926465B0C2D2CAF
 magnet:?xt=urn:btih:238EFEC0B72B71216DFE5540016A7D31C50EC8F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +524,8 @@ magnet:?xt=urn:btih:238EFEC0B72B71216DFE5540016A7D31C50EC8F2
 ```bash
 magnet:?xt=urn:btih:348E2EBBDA7FF96E418FF8F67E6E93F982560CD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +551,8 @@ magnet:?xt=urn:btih:348E2EBBDA7FF96E418FF8F67E6E93F982560CD4
 magnet:?xt=urn:btih:461635910EFBBA04B848EC16DFC8B049014D24DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +576,8 @@ Counter Strike 1.6 (2015) [Ru] (1.1.2.6/pv48/b4554) Repack twileck
 ```bash
 magnet:?xt=urn:btih:CBCC24D2A051904F77E98659E26A189280B3BC78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +603,8 @@ magnet:?xt=urn:btih:CBCC24D2A051904F77E98659E26A189280B3BC78
 magnet:?xt=urn:btih:C699D53538EBDC6002784D2F73F7A704D0400813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +628,8 @@ magnet:?xt=urn:btih:C699D53538EBDC6002784D2F73F7A704D0400813
 ```bash
 magnet:?xt=urn:btih:B33A3CA3ED033CE3695843E4642B2A2E22A5E475
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:B33A3CA3ED033CE3695843E4642B2A2E22A5E475
 magnet:?xt=urn:btih:37B599C67BF8EF1FFDF227698BDFC3B4E820A8D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:37B599C67BF8EF1FFDF227698BDFC3B4E820A8D0
 magnet:?xt=urn:btih:8FADDDBE906C05A69367C2FBD58701ED9FC78F44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:8FADDDBE906C05A69367C2FBD58701ED9FC78F44
 ```bash
 magnet:?xt=urn:btih:23A91742D8DF335300FDC0617425E92953E8386D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

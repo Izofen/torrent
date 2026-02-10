@@ -19,6 +19,8 @@ Flud - простой и элегантный BitTorrent клиент для о�
 magnet:?xt=urn:btih:D1B359CE6A18A703AD7DC0C9ACA9569075F84D91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ RarmaRadio - программа для прослушивания и запис�
 ```bash
 magnet:?xt=urn:btih:E885AC86908AB3ED28B45C3F6E3166D06CB0CC8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ WinX VideoProc Converter - усовершенствованная версия, 
 magnet:?xt=urn:btih:22D932B1EC80C48D3D289C572D738EBAFC63E33D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 ```bash
 magnet:?xt=urn:btih:55F113383E921F4DC92659F004AFCCE7F56FA0FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Text Editor Pro 32.0.0 + Portable + Bonus [Multi/Ru]
 magnet:?xt=urn:btih:D3C3DB401C176793C7446824F5A373E232C139A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:94E2C13935E718B0B46C97287566ADC01E797EFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Sipnetic – это бесплатный программный IP-телефо�
 magnet:?xt=urn:btih:4808EE66422C0D02AB611E529F31374EF201B269
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:FAE562DB67AE6DDE7CFBF07C7169F4EF2BFF4EA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ OCCT 14.0.5 Portable [En]
 ```bash
 magnet:?xt=urn:btih:1B89F20EC0D5587C243512731FAC0FC4BC41DE25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ DLNow Video Downloader - быстрое, полезное, практичное 
 magnet:?xt=urn:btih:B22747B338D3E83E67A884C3850A2514C2BD4983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 ```bash
 magnet:?xt=urn:btih:0D6596ECCA227E2751D79537BCC4896BAEB9E4B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ FacePic — приложение AI Face, приложение для легко
 magnet:?xt=urn:btih:9771C646B4FF81B4CEC4D52765A3BBCC480EB15F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Reg Organizer® - это многофункциональная программ
 ```bash
 magnet:?xt=urn:btih:6BB207AD0A2758AA28CF900C241480DB96B81B79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Autorun Organizer - простое в использовании приложе�
 magnet:?xt=urn:btih:86D6C417DC923A74C138D15E53A35B78A27AFA78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Double Commander - это свободный, с открытым исходны
 ```bash
 magnet:?xt=urn:btih:91C1E723E1A167797208821BC08BB817CF2A89EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ JetBrains IntelliJ IDEA Ultimate - это профессиональный ин�
 magnet:?xt=urn:btih:678EB18BC3E737322AB424312B94810D104287A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ JetBrains WebStorm — это мощная интегрированная сре
 ```bash
 magnet:?xt=urn:btih:C1F214EEC29D4F90E99E4E2CB861326FCEA24989
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ JetBrains DataGrip - это инновационное программное о
 ```bash
 magnet:?xt=urn:btih:22BB2343BB977FD117CE9D4983FA5842D61FB36E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ updated_april_2025_x64_dvd_a39ebe02.iso
 magnet:?xt=urn:btih:C393F5ADC7A12108463D42F89C4B70FA0DAD8007
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:49B719788F0F3C69B9BE5368B361A3A5C8E68BEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:CD8D23F7627C9017FF14C23B308B33406829B5ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Desktop Calendar – бесплатный календарь рабочего с
 ```bash
 magnet:?xt=urn:btih:1BE1BA2D2B7C5876AB8FC62B2F7BC47603A85A38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Balabolka 2.15.0.893 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:40226DA1DD2EB45B2E90CC5855AA3D3742F0AD74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:AD1CC677DD15E9B3C99258AFD2A959D410CF4ADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Fort Firewall - простой и бесплатный брандмауэр дл
 ```bash
 magnet:?xt=urn:btih:9E9C619980AF4859178F84D46531666ACF691887
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:9E9C619980AF4859178F84D46531666ACF691887
 ```bash
 magnet:?xt=urn:btih:3F760A261AF91314A01EC21819D8FE63A9C6DBE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

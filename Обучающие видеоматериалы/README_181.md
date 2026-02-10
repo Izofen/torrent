@@ -22,6 +22,8 @@ smm-специалистам(   Читать дальше...   )Производ
 magnet:?xt=urn:btih:1887934B6612CB42BA904CC0F51E8328E7E4E893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Wingfox, Sarah Petruzzi | Photorealistic Character Creation (2021) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:85AFE81C60B22A24924A9266083611ADA2AC5E9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ COPs, или Compositing Nodes, в Houdini - невероятно полезны
 magnet:?xt=urn:btih:78D5B9574679D3A40DFE4E29CD98C45CA61D1129
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:78D5B9574679D3A40DFE4E29CD98C45CA61D1129
 magnet:?xt=urn:btih:DB7DBA395AF9CE212300BF9AF006EDB2BFB38685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ WebCademy | JavaScript разработчик: Уровень Developer (2020) P
 magnet:?xt=urn:btih:7F999161DF22127E081EB6643814E8B262D95D7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ ItGid, Александр Лущенко | PHP Stage 2 (2019) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:05E97A6893A5362BF39EAF2AA6C5C04E50906B75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ HTML и CSS. Профессиональная вёрстка сайтов [21 я
 magnet:?xt=urn:btih:F661ED37E747D75338FECC5D9D6E61E092088ED2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:F661ED37E747D75338FECC5D9D6E61E092088ED2
 ```bash
 magnet:?xt=urn:btih:4DA427FB3BA09813571E75579F423C19BEA8FF7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Geekbrains | 1С-Битрикс. Управление сайтом (2015) PCRec 
 ```bash
 magnet:?xt=urn:btih:2952184584728B71AE13211E45C092B6EDE8A569
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Spring MVC для начинающих. Как создавать веб про�
 magnet:?xt=urn:btih:BCB044E33B79EE68F11E67A67F54CD82E92D35C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:BCB044E33B79EE68F11E67A67F54CD82E92D35C3
 magnet:?xt=urn:btih:52550FE5F8792A47D4A0172BEA34BA181B09D9EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ LearnVisualStudio.net | Visual C Sharp 2010 Express Edition for Absolute Beginne
 ```bash
 magnet:?xt=urn:btih:902364898EBDF1DC771D84531AC24EE92C82AC0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Slurm (Слёрм), Владимир Гурьянов | Prometheus (2022) WEB-DL
 magnet:?xt=urn:btih:06B9614BCFDEBDF9282171FA334AEF3857644D47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ Tuts+ | PSD to HTML: Flat Design Build  (2014) PCRec [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:D773287AC3E451D0E627DA0DFB727E7D5416FBD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ HOP&SCOTCH | Английский: Высокий Уровень (2022) WEB-DL [
 ```bash
 magnet:?xt=urn:btih:9BA47BE49EEBD6981A92F2B5522326DD0ED85FA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ HOP&SCOTCH | Английский: Средний Уровень (2022) WEB-DL [
 magnet:?xt=urn:btih:A0D25B0BAEE367FF64C91966F4385746DE2D7374
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ teachshop | Kompas 3D V11 [Обучающий видео курс] (2009) PCRec
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ teachshop | Kompas 3D V11 [Обучающий видео курс] (2009) PCRec
 magnet:?xt=urn:btih:88521A530B55C457083F5CD14ED7B7A53B5EB892
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ Rebelway, Saber Jlassi, Urban Bradesko | Introduction To Houdini For 3D Artists 
 ```bash
 magnet:?xt=urn:btih:A4AC667489D740F6DB59C954A7CB08936C720DA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ HOP&SCOTCH | Английский: Базовый уровень (2022) WEB-DL [
 magnet:?xt=urn:btih:1D2C2BF42C62EAAD36E6ECCE7FD7E9C2F810193F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ Sycra, Sycra Yasin | Composition for Artists (2013) WEB-DL [EN, RU]
 ```bash
 magnet:?xt=urn:btih:48A91F02DA00BFE506306F76826C43995DB30F34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ Archicad-Master | Проектирование и визуализация в Sk
 magnet:?xt=urn:btih:B5A05254A5195DF9428CB544CC76D189B63E0DE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ CGMA, Kevin Griffith | Stylized 3D Asset Creation for Games (2020) PCRec [RU]
 ```bash
 magnet:?xt=urn:btih:9C7FDAC2A4F7DBB7E50E13B70568DAF4BDF8696C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:9C7FDAC2A4F7DBB7E50E13B70568DAF4BDF8696C
 ```bash
 magnet:?xt=urn:btih:0B15F6D2466F0481FF33E0DAFD5A7F521CFD911A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +676,8 @@ magnet:?xt=urn:btih:0B15F6D2466F0481FF33E0DAFD5A7F521CFD911A
 magnet:?xt=urn:btih:D23B8C2E7B468BE0327BDE5EEB05DC9C8A2B955D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:D23B8C2E7B468BE0327BDE5EEB05DC9C8A2B955D
 ```bash
 magnet:?xt=urn:btih:E229B00EC4C327AC6DF9C3F71AD419409D7B306E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

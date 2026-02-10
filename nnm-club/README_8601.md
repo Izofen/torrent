@@ -19,6 +19,8 @@ VA - Хит-Парад Наше Радио (2012) [MP3|256 кб/с]<Rock>
 magnet:?xt=urn:btih:0EFDE3C69CB6081F040ADB613BCD4FDB16F82BF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Pro Zombie Soccer - в этой игре вам предстоит отбива�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Pro Zombie Soccer - в этой игре вам предстоит отбива�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Pro Zombie Soccer - в этой игре вам предстоит отбива�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Pro Zombie Soccer - в этой игре вам предстоит отбива�
 ```bash
 magnet:?xt=urn:btih:BE2B84AE5E3D069463AE859D01F17A2E822C9B74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:BE2B84AE5E3D069463AE859D01F17A2E822C9B74
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:BE2B84AE5E3D069463AE859D01F17A2E822C9B74
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:BE2B84AE5E3D069463AE859D01F17A2E822C9B74
 ```bash
 magnet:?xt=urn:btih:948EAD7363254A9E4DE6A6DEEF55184D16BBDBC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Max Payne 3 (Update1) 2012 | REVOLT/SKiDROW
 magnet:?xt=urn:btih:A448461B133DF04798F5351F39716CBDCA5B142D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Batman Arkham City: Game of The Year Edition [XBOX360] (RegionFree) (LT+3.0) (XG
 ```bash
 magnet:?xt=urn:btih:949B35FD00C2F110727703DC217BE113312E8653
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:949B35FD00C2F110727703DC217BE113312E8653
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:949B35FD00C2F110727703DC217BE113312E8653
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:949B35FD00C2F110727703DC217BE113312E8653
 magnet:?xt=urn:btih:335FD39CC1DE9F006C8530DF9D76D486DB7C17CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:335FD39CC1DE9F006C8530DF9D76D486DB7C17CC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:335FD39CC1DE9F006C8530DF9D76D486DB7C17CC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +423,8 @@ VA - Ассорти Зарубежных Новинок (2012) [MP3|256 кб/с]
 magnet:?xt=urn:btih:5538C6B4F84B1F0277E477EFE9230E234B5D7C46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:5538C6B4F84B1F0277E477EFE9230E234B5D7C46
 ```bash
 magnet:?xt=urn:btih:C41A73986E12ACC23113D8D9EAD2F12A5E909AA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ Forest Stream - 2 albums (2003-2009) [APE/FLAC|Lossless] <Death / Doom Metal>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +517,8 @@ Cheshires - 2 альбома: (2006-2010)  [MP3|128-319 kbps] <Rock>
 magnet:?xt=urn:btih:61C059F77915850D6A234700770382DE39086BF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +551,8 @@ VA - When Melancholy Speaks (2012) [MP3|320 кб/с]<Downtempo, Ambient>
 magnet:?xt=urn:btih:C3F6D5F242E300C0A90E6A9CD280F92121CD763A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +581,8 @@ The Fall Of Every Season - From Below (2007) [FLAC|Lossless] <Death Metal, Doom 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +606,8 @@ The Fall Of Every Season - From Below (2007) [FLAC|Lossless] <Death Metal, Doom 
 ```bash
 magnet:?xt=urn:btih:D43B4C65B364766F311A4B8B9B0C4DEA7DBD89F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +642,8 @@ VA - MAXI. Молодёжный Super Хит (2012) [MP3|320 кб/с]<Pop, Dance
 magnet:?xt=urn:btih:D74AC2676D74D360BA15562E3C3423DD3D9D4CA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +669,8 @@ magnet:?xt=urn:btih:D74AC2676D74D360BA15562E3C3423DD3D9D4CA4
 magnet:?xt=urn:btih:AF925ECF81E50D152F09624C2ABAB75E3E5B0805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +694,8 @@ magnet:?xt=urn:btih:AF925ECF81E50D152F09624C2ABAB75E3E5B0805
 ```bash
 magnet:?xt=urn:btih:DAC8423D221C0771DEC6570A1E3FAF37AA625DD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +722,8 @@ LibreOffice бесплатен и имеет открытый исходный �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

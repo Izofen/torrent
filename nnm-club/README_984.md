@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:7CD4B21C375101A86EA4FE144D41193693A62B4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Cat Museum v1.2.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:97F9C951B1D802D8D88488BB7821C4ED143DA154
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Fran Bow v1.0.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:B4D01DDD5CD81C024697CCD24308F97EFFE923DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Dad's Monster House - это нарисованная от руки игра-г�
 magnet:?xt=urn:btih:14B5EF95BECC6B3442E41E25F11374BDE892BFB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Audio Repeater Pro - это многоканальное решение для �
 ```bash
 magnet:?xt=urn:btih:44162BC012ACDA437A9992DCE5003E3822379FBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ TV+: Бесплатное Онлайн Телевидение
 magnet:?xt=urn:btih:DB7B97A4F6685F73E5ECC7D36EC5723B75231AF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Oddmar v0.111 [Ru]
 ```bash
 magnet:?xt=urn:btih:4BEC6D9669F29D3FC5FD28AF10DD9466E64721A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:4BEC6D9669F29D3FC5FD28AF10DD9466E64721A3
 magnet:?xt=urn:btih:6671E7134A56C76C59848BC1CE939A89D43B2371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:6671E7134A56C76C59848BC1CE939A89D43B2371
 ```bash
 magnet:?xt=urn:btih:1C9B6B76DE80E61E5AF7793D26C87F3707ECAE63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:1C9B6B76DE80E61E5AF7793D26C87F3707ECAE63
 magnet:?xt=urn:btih:CD71A9B17C4E8F41ACC698EAFCD3AFDED0A607AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Apowersoft Video Download Capture 6.5.6.1 RePack (& Portable) by elchupacabra [M
 ```bash
 magnet:?xt=urn:btih:1D173DA3FD7D98FFEC21952BE6385C50B49A73DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ CareUEyes служит для изменения цветовой темпера
 magnet:?xt=urn:btih:02577ECA3055C83F01E99621183AD48272BEC346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:02577ECA3055C83F01E99621183AD48272BEC346
 magnet:?xt=urn:btih:6565C799F1C57AA25C8E35186B46602685FBB981
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ GPS Compass Navigator v2.20.28 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:36C821E4271B8E8411ADA6419A5DC9E62FBA977D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Imperiums: Greek Wars (2020) [Ru/Multi] (1.422/dlc) Repack Let'sРlay [Complete]
 ```bash
 magnet:?xt=urn:btih:CC8DA59AC264853EF91CC614FBCF183FC89290F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:CC8DA59AC264853EF91CC614FBCF183FC89290F7
 magnet:?xt=urn:btih:00575752650D67E285787689911FFD3E063D60A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Astral Throne (2025) [En] (1.0.0) Repack FitGirl [Supporter Bundle]
 ```bash
 magnet:?xt=urn:btih:5329D6DA057286BDBE64277520DB3037AC032A10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ NewPipe v0.27.6 Free + Mod by Alex.Strannik  [Ru/Multi]
 magnet:?xt=urn:btih:431C58F13D9640EF532F57FFE7C8EEC35A0BFFA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:431C58F13D9640EF532F57FFE7C8EEC35A0BFFA8
 ```bash
 magnet:?xt=urn:btih:60B439EFF8F02F6CC07576DE97E8A209C0F000D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:60B439EFF8F02F6CC07576DE97E8A209C0F000D5
 magnet:?xt=urn:btih:BD28647B752401E00AA94CBE8B9BF201794C8C36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ magnet:?xt=urn:btih:BD28647B752401E00AA94CBE8B9BF201794C8C36
 ```bash
 magnet:?xt=urn:btih:549AC7561599D49FF41579879A9D7ABFD77A3250
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ R-Drive Image — является эффективной утилитой дл�
 magnet:?xt=urn:btih:A4E5173C3469E24EFF6F45A359CB8AB580B1787B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:A4E5173C3469E24EFF6F45A359CB8AB580B1787B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:A4E5173C3469E24EFF6F45A359CB8AB580B1787B
 magnet:?xt=urn:btih:D4707FF4342691408EA13E43D30D927DAF5F7B0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:D4707FF4342691408EA13E43D30D927DAF5F7B0C
 magnet:?xt=urn:btih:A385C65711807217471A9D1070FE58489F5EE7B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:A385C65711807217471A9D1070FE58489F5EE7B8
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

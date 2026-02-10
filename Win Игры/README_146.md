@@ -19,6 +19,8 @@ Gimmick! 2 - это платформер, рассказывающий о при
 magnet:?xt=urn:btih:47E01A68D9C3FA632CDF85A93E8751F99CD2DF8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:47E01A68D9C3FA632CDF85A93E8751F99CD2DF8C
 ```bash
 magnet:?xt=urn:btih:D35A99E94C938665EB189291097B9945D04E715D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Planetbase – стратегия, в которой вы руководите �
 magnet:?xt=urn:btih:A13FB9DBB85321F1EC71D3A6136DF69290DB9FE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Starcom: Nexus (2018) [Ru/Multi] (1.0.13c) License GOG
 ```bash
 magnet:?xt=urn:btih:567456CB084B69551FCD9593013B04CA3E084651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Gym Nights (2024) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:F849F863D7002FFB78EEA6CF25A0D9042AE980D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Garlant: My Story - это игра, в которой вы отправляет
 ```bash
 magnet:?xt=urn:btih:9F15DB9F4BA3748D6DB9D0DD80E4F853C9639817
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Castle of Lord Velimir отправляет игроков в опасное п�
 magnet:?xt=urn:btih:501261B467FE409FB05E258542882ABE30BE1D5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Warhammer 40,000: Space Marine (2011) [Ru/En] (1.0.165/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0952B5123882A836A6FC6F32140A06A6AFFCFBB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Elon and the Divine Proof - это однопользовательская пр
 magnet:?xt=urn:btih:71313433B97B1D73753A7D5F5D869AB5FD95C678
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Portal Reloaded - модификация оригинальной Portal 2. Ра
 ```bash
 magnet:?xt=urn:btih:E4E1AB008B885D645898ED963A0EC92105C02558
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Life is Strange 2 (2018) [Ru/Multi] (build 4874667/dlc) Repack dixen18 [Complete
 magnet:?xt=urn:btih:55E0BB7AAEF76B3F8E0B5E47834D4113523D9991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Anger Foot - это молниеносная хардбасс-игра, где �
 ```bash
 magnet:?xt=urn:btih:C865D7247F107B09FDC6632172361B6818C5086B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Assassin's Creed II (2010) [Ru/Multi] (1.01/dlc) Repack dixen18
 magnet:?xt=urn:btih:36787944EE23A5A08DAC0782F8D552C730BA68B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Garden Witch Life приглашает геймеров променять су�
 ```bash
 magnet:?xt=urn:btih:1390AEE7EB942B6E71C4B976D376453B2982386A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ BAKERU (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:3E296ACF39B47D6739089D8643D6E06EE55131EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ AMEDAMA - это приключенческая адвенчура в жанре
 ```bash
 magnet:?xt=urn:btih:6C13BC04FBB4C019BA8CCCC849327FEC5917C6B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Myths of Orion: Light From The North - игра в жанре поиска пр�
 magnet:?xt=urn:btih:C535B1CEDD93E77535D307C414C5F22A51EF671C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Roots of Yggdrasil (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:808E5123DA55BDD504B3C7B013A0EF011C3D6B39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Crash Bandicoot 1: Где-то на территории Австралии уч
 magnet:?xt=urn:btih:168069F2FDC1354EE88AE8916E637E3CC0FEADF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Guns And Draguns – насладитесь в полной мере коман�
 ```bash
 magnet:?xt=urn:btih:304D7DEC73875A8084690ED9857E91E9519032DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Pirates Journey (2024) [Ru/Multi] (0.1.0.6) Scene Tenoke
 magnet:?xt=urn:btih:03B40A8D81BA3F26AC3025FC7FDDD58B39D498E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Smells Like a Mushroom - научно-фантастический шутер о
 ```bash
 magnet:?xt=urn:btih:2FD72D181863E240456365AE526C8A4B8034BEBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Gunk - приключенческая игра про космических
 magnet:?xt=urn:btih:86A54CDA405E1A275D27445B93159EB5924A9330
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Scourge of War - Remastered бросает вас с головой в хаос 
 ```bash
 magnet:?xt=urn:btih:AE416B7C396410D315F4CCEF6B7A75AE05F9B4A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ StarCraft 2: Legacy of the Void - это третья, и заключитель
 magnet:?xt=urn:btih:A9A70439700E420ECB46B49939306DD2FEFF0817
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Toy Tactics - основанная на законах физики страте
 ```bash
 magnet:?xt=urn:btih:5D7780085C060376B79932611B8B1E9081464045
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

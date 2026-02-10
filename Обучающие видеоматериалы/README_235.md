@@ -19,6 +19,8 @@ OTUS | iOS-разработчик. Базовый курс (2020) PCRec [H.264/1
 magnet:?xt=urn:btih:A56DBCD41263616FB120988C4771F51FF57A3A2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ TargetHunter | Академия TargetHunter 3.0 Полный курс по пр
 ```bash
 magnet:?xt=urn:btih:D87E99BB56F6406F29F0843DBDCC8AE0280C3128
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:D87E99BB56F6406F29F0843DBDCC8AE0280C3128
 magnet:?xt=urn:btih:74805611BB7CA95AE65B6C1311B966A68AF0B06B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Themforest - крупнейший сток по продаже темплейт�
 magnet:?xt=urn:btih:E7A376AF95054B5842432E71CD262F21FF338804
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:E7A376AF95054B5842432E71CD262F21FF338804
 ```bash
 magnet:?xt=urn:btih:DEAB861BC8727F045BB5C28FE0FB685E05D968D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ ProfIT | "Вуду" регулярных выражений (2015) PCRec [H.264]
 magnet:?xt=urn:btih:2C05CE7EBCA3376FD092DAC546175E8B1E788D9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:2C05CE7EBCA3376FD092DAC546175E8B1E788D9B
 magnet:?xt=urn:btih:119FA64B66BF5D3C8EFD2B5D2A51B0E356F2E787
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ Udemy | Практический курс для новичков по SQL и Po
 ```bash
 magnet:?xt=urn:btih:6964F9BF12F4D75F95A0E1215ADF1AEE2BBD83AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ Udemy | Angular 9. Практический курс по созданию Ин�
 ```bash
 magnet:?xt=urn:btih:AB83EEEDCC9DE255FE262D95F92A20190C89D51E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:AB83EEEDCC9DE255FE262D95F92A20190C89D51E
 magnet:?xt=urn:btih:972D5718F85487E5E2CEBEB786389FDA7BFD6B4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ Zillionarts | Реалистичная цифровая живопись (2018) 
 ```bash
 magnet:?xt=urn:btih:44F032D2B04F730743AF5E9171637074A8919831
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:44F032D2B04F730743AF5E9171637074A8919831
 magnet:?xt=urn:btih:50B427AD7C08AC6887EEB4A5B076C036CE161167
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:50B427AD7C08AC6887EEB4A5B076C036CE161167
 magnet:?xt=urn:btih:DD617F2B3C2D6BAB6C3789612FCFF17BF1A6F1C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:DD617F2B3C2D6BAB6C3789612FCFF17BF1A6F1C3
 ```bash
 magnet:?xt=urn:btih:123FD14796BDC03F4B7010C03F08B08912732508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:123FD14796BDC03F4B7010C03F08B08912732508
 magnet:?xt=urn:btih:01E99842117440C47F51A2CB1DF6D4DF31FDA8A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ Udemy, Josh Gambrell | Недеструктивное твёрдотельное
 ```bash
 magnet:?xt=urn:btih:FA4DC001F7E67C532C186DE3ACC91D8D2E179B16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:FA4DC001F7E67C532C186DE3ACC91D8D2E179B16
 magnet:?xt=urn:btih:7880075002243CCD77B4601CCD09631C8F0F3F58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:7880075002243CCD77B4601CCD09631C8F0F3F58
 magnet:?xt=urn:btih:11F50D31DEDA40AA17922D6F474E2A22F765155D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +507,8 @@ Udemy | Создание видеоэффектов с помощью продв
 ```bash
 magnet:?xt=urn:btih:BCB6BC5B4BF44D3AA690CD9F453A48CBD82AEBD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:BCB6BC5B4BF44D3AA690CD9F453A48CBD82AEBD7
 magnet:?xt=urn:btih:9F7805511F49A6FF2A2C19C1A23402A807D903EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ Udemy | Симуляция жидкости с помощью Mantaflow в Blend
 ```bash
 magnet:?xt=urn:btih:897811872561E7F6908D3EA04B0DF6CDB9895428
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ CG Cookie | Введение в видеоэффекты в Blender 2.63 / Intro
 magnet:?xt=urn:btih:5C266502CE7986A02303F4CF5098E3E98C6DEA72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ Max Twain, Stan Air | QUEENY (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:0006D3F045F41897DFDD09BCD03A4EE1CB370AF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ Max Twain, Many Wayne | IDOL (2020) PCRec
 magnet:?xt=urn:btih:36239196E4DB09B3B707CDE6AFA0186C16461494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ Max Twain, Katy Joker | KIARA (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:563156AED012F5201CC8FF479270F46437AAD2C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:563156AED012F5201CC8FF479270F46437AAD2C7
 ```bash
 magnet:?xt=urn:btih:B798F3E625425FBE1E39335CE307E174992E3857
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

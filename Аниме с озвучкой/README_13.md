@@ -19,6 +19,8 @@ Murenase! Seton Gakuen | Seton Academy: Join the Pack! | Добро пожало
 magnet:?xt=urn:btih:8C4FE4080650F3A1579607A32EC3BA4F950E6B77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Rakudai Kishi no Cavalry | Chivalry of a Failed Knight | Доблесть рыц
 magnet:?xt=urn:btih:100D48A9353E776931E38856418A9626F8720B67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Akiba Meido Sensou | Akiba Maid War | Война горничных Акибы [
 ```bash
 magnet:?xt=urn:btih:DB5CEACE0CF047666C7FA11FA489610849ADFC1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:DB5CEACE0CF047666C7FA11FA489610849ADFC1C
 magnet:?xt=urn:btih:A7B6268EBDE3D165DDC2D0AC858F1DFF4AD4007B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:A7B6268EBDE3D165DDC2D0AC858F1DFF4AD4007B
 magnet:?xt=urn:btih:2039D8AF742EC79841AB2557F40974E0FC6C59E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:2039D8AF742EC79841AB2557F40974E0FC6C59E7
 ```bash
 magnet:?xt=urn:btih:F9852C44B2C37D795CC535AA03F36CE1E43EE230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Kakutou Bijin Wulong Rebirth | Fighting Beauty Wulong Rebirth | Боевая к�
 magnet:?xt=urn:btih:2A97E3F683DC0067755AB0AA890183BF7D166D80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Kakutou Bijin Wulong | Fighting Beauty Wulong | Боевая красавица 
 ```bash
 magnet:?xt=urn:btih:B70933E974577C33C584FC2089B9C53D6544D2BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:B70933E974577C33C584FC2089B9C53D6544D2BF
 magnet:?xt=urn:btih:E9B9F656E784D782A251EFA3FFE235A2CEC205F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Liar Liar | Лжец Лжец [2023, TV, 12 из 12] BDRip 1080p 10-bit raw+rus
 ```bash
 magnet:?xt=urn:btih:463DD26D67E01BA5D52C7E755DCAA6D1DDDFC2D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Street Fighter II: The Animated Movie | Уличный боец II [1994, Movie]
 magnet:?xt=urn:btih:673DE81F5FB560A4B5A4DB79A658DD2B524AC241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ Metal Skin Panic Madox-01 | Мадокс-01 [1987, OVA, 1 из 1] BDRip 1080p HE
 ```bash
 magnet:?xt=urn:btih:5E416065C9FE394582F4C574C869DDB8D70D1049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ Hyoujin: Blades of the Guardians | Biao Ren: Blades of the Guardians | Клин�
 magnet:?xt=urn:btih:E5E6917AB9401C193A1FE1CCAA71E08DC2F2290C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Idol Densetsu Eriko | Легендарный айдол Эрико [1989-1990, T
 ```bash
 magnet:?xt=urn:btih:81070605896E69B1A91D0E90F7953944658CEC6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Shuumatsu no Walkure II | Shuumatsu no Walkure II | Повесть о конце
 magnet:?xt=urn:btih:A2EC37B486CF47FF8750E833B5254D2DD11DFDE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ Go-Toubun no Hanayome~ | The Quintessential Quintuplets | Пять невест:
 ```bash
 magnet:?xt=urn:btih:D76DB60F1BA5F3EC613751CB8E73D0417AA1FB2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Suzume no Tojimari | Судзумэ закрывает двери [2022, Movie] 
 magnet:?xt=urn:btih:42B351FD469EA84D8E08578A4402A66D2735770B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Buta no Liver wa Kanetsu Shiro | Свинину надо было жарить |
 ```bash
 magnet:?xt=urn:btih:8D7E3D5D655E53AEDD8B0AC26CD9228EF34507C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Bokutachi wa Benkyou ga Dekinai | We Never Learn | Мы не можем учит
 magnet:?xt=urn:btih:291BE99BBBB041CA1DCD0479D4A4019E8C286E0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Boukensha ni Naritai to Miyako ni Deteitta Musume ga S Rank ni Natteta | Моя 
 ```bash
 magnet:?xt=urn:btih:F9E1FDAC78A12067D3A0CEC50A364B2489150BFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Maou Gakuin no Futekigousha | The Misfit of Demon King Academy | Непризн�
 magnet:?xt=urn:btih:2D1559CC743ABA6FA40265D874DE2FF86F074296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Ars no Kyojuu | Ars no Kyojuu | Гигантский зверь Арса [2023, 
 magnet:?xt=urn:btih:0EA67BA7B3458A6A00D9A1CFE6D17704EF09DFDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Mushoku Tensei II: Isekai Ittara Honki Dasu | Реинкарнация безр�
 ```bash
 magnet:?xt=urn:btih:91B9195DA63483C190A31267E357AFA9DC846DDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Mary to Majo no Hana | Mary and the Witch's Flower | Мэри и ведьмин 
 magnet:?xt=urn:btih:58E13BE2DEE4978B07A29DDBCF3EA45EB4C16C9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Jigokuraku | Hell's Paradise: Jigokuraku | Адский рай [ТВ-1] [2023, T
 magnet:?xt=urn:btih:929AAA8277D89AFA8D873AFFB2E535381146535E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:929AAA8277D89AFA8D873AFFB2E535381146535E
 ```bash
 magnet:?xt=urn:btih:A1B59B5DDA51A2ADEC476301F25326EDBF753EB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

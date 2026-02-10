@@ -20,6 +20,8 @@ MeldaProduction MCompleteBundle - это абсолютная коллекция
 magnet:?xt=urn:btih:EF7B914C84EDC8A8875EB55912F8AA8710F2C670
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:EF7B914C84EDC8A8875EB55912F8AA8710F2C670
 magnet:?xt=urn:btih:499D4E623DD6C29947690B86030BBFFC61AA98FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Visual Studio — это мощное средство разработчика,
 ```bash
 magnet:?xt=urn:btih:F9D9A75478D74462D5944FDA723290202E83E6C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:F9D9A75478D74462D5944FDA723290202E83E6C7
 magnet:?xt=urn:btih:3BB0606094C5E0BDCB481A90C58053A7A109C13A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:3BB0606094C5E0BDCB481A90C58053A7A109C13A
 ```bash
 magnet:?xt=urn:btih:154D3AAA252DC0BDF8126D415994757411786F48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ VA - Summer Jam 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance, Club, House, E
 magnet:?xt=urn:btih:128CC744A00657C062BA2AB7793C28F335C4C9DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Right Said Fred - Up (1992) 1st US Press [APE|Lossless|image + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:A4EBEDBB799D35E6967541C8E2677EE6FE819420
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:A4EBEDBB799D35E6967541C8E2677EE6FE819420
 magnet:?xt=urn:btih:5C4083AF1950F9FC126DFBDDA91C33B5278A9174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ VA - Deep Reflections: Summer Edition 2025 (2025) [MP3|320 Kbps] <Deep House, Or
 ```bash
 magnet:?xt=urn:btih:7CC02BDA1880B8F8289C59CFE44517876442B13E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ CD1 - Remaster 2024:
 magnet:?xt=urn:btih:863F6C815AB131E35F5BD727D2B8DB14994AFD34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:863F6C815AB131E35F5BD727D2B8DB14994AFD34
 magnet:?xt=urn:btih:54A58E315E9C361F54C77006D469CBC4DA3ABD62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:54A58E315E9C361F54C77006D469CBC4DA3ABD62
 ```bash
 magnet:?xt=urn:btih:634D7C59431F80A29CE7250B7DF319442DB9F2A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ Nick Kamen - Whatever, Wherever (1992) 1st German Press [APE|Lossless|image + .c
 magnet:?xt=urn:btih:EAF3B7C0B95A1932951DBEE02DB4A5858F5D25AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +380,8 @@ VA - Chill Mood (I want a quiet summer !) (2025) [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:6F884E80C6EDE24AB8C971EE8FBDB480CC676AF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:6F884E80C6EDE24AB8C971EE8FBDB480CC676AF3
 magnet:?xt=urn:btih:AB35665B94052FDF30E8DCEE4511A5967A0D5962
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ Nick Kamen - Move Until We Fly (1990) 1st German Press [APE|Lossless|image + .cu
 magnet:?xt=urn:btih:F4B5FE9634BA8FF2E3B4D740A983979EE481AA99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ Lanpirot | Позывной Хоттабыч (Книга 7). Аватар Х. Ч
 ```bash
 magnet:?xt=urn:btih:C3589058FA6D3ACA9259EEC2F2A148B1C7E81776
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +491,8 @@ Lanpirot | Позывной Хоттабыч (Книга 8). Исчадие Кр
 magnet:?xt=urn:btih:08AEEF4B063411BC560AB84FBC0AB3FAA7CC0F8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ Lanpirot | Позывной Хоттабыч (Книга 6). Аватар Х (20
 magnet:?xt=urn:btih:5C1B6C335B2A522595A3F2F6BF2260665E7BCF65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ Lanpirot | Позывной Хоттабыч (Книга 5). Кто к нам с
 ```bash
 magnet:?xt=urn:btih:5E536F7A09C79E4E2BC9F841C12D3767224D28EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +572,8 @@ Torben Enevoldsen - Seven (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Instrume
 magnet:?xt=urn:btih:DD7A10184D2E222F8461D4FC286F71AAAC75F508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +601,8 @@ Kadaverficker - Exploitation Nekronation (2012) [FLAC|Lossless|image + .cue] <De
 magnet:?xt=urn:btih:B93929B009CD01728F7FCED05AF7C3D5DE86B481
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +626,8 @@ Lanpirot | Позывной Хоттабыч (Книга 4). Спасти лей
 ```bash
 magnet:?xt=urn:btih:0B06B8C0CF084E5CEB2D80238437C9F19FF982B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:0B06B8C0CF084E5CEB2D80238437C9F19FF982B6
 magnet:?xt=urn:btih:8F58D53767E4AAE9F8CCA251167C12EBCB243688
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ Badnick — одно из наших крупнейших семейств шр�
 ```bash
 magnet:?xt=urn:btih:F539C0AA26E243EB118598C3EC87827DD54B332E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +707,8 @@ VA - Natale Jazz 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:E645EF6BCC3D68B6F11D1B1AA2C76DD15E171850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

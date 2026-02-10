@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C931F589B8FD3F883041C1A9C168460BBE6BC3BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Bad Boys Blue - Love Is No Crime (1987) Reissue, 2015, Мирумир [OGG Vorbi
 magnet:?xt=urn:btih:B526AABD673EF6BBF7A50DB3B9636D23D3B7C5FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:B526AABD673EF6BBF7A50DB3B9636D23D3B7C5FD
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ EditPlus – это компактный текстовый редактор д�
 ```bash
 magnet:?xt=urn:btih:5797631A0855F6C962167DF2949312B1E3A06FDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:5797631A0855F6C962167DF2949312B1E3A06FDE
 magnet:?xt=urn:btih:DF5A69E5935C1D882DC09A68711C262CE2A1BDEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:DF5A69E5935C1D882DC09A68711C262CE2A1BDEE
 ```bash
 magnet:?xt=urn:btih:53D1F59AD21A19918E92AD645DD5CD9BFE9AA432
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:53D1F59AD21A19918E92AD645DD5CD9BFE9AA432
 magnet:?xt=urn:btih:3E0F7481C2130ECBB7CF8C0E4C318CF5B924DC6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Jitsu wa Ore, Saikyou Deshita? / Am I Actually the Strongest? / На самом 
 ```bash
 magnet:?xt=urn:btih:BB900972B84BD391A7A701347DD249F05684DC6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:BB900972B84BD391A7A701347DD249F05684DC6B
 magnet:?xt=urn:btih:47192FAEA904A39B071E2722D8050BD9394F20DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:47192FAEA904A39B071E2722D8050BD9394F20DF
 ```bash
 magnet:?xt=urn:btih:5BC980B67765C9FB380A2446046A47F1284C84C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ Skillbox, Алексей Половинкин и др. | Python-фреймвор
 magnet:?xt=urn:btih:AF63DED4F99AF3610C27EF90BC310C670C73E3F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:AF63DED4F99AF3610C27EF90BC310C670C73E3F5
 ```bash
 magnet:?xt=urn:btih:02A5B461F9DA458ED54672B0ABA097256FCE64B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:02A5B461F9DA458ED54672B0ABA097256FCE64B3
 magnet:?xt=urn:btih:478FA6D25EE63099868322406A24520586B9E82F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ Uru: Complete Chronicles (2004) [Multi] (1.0hf3) License GOG
 ```bash
 magnet:?xt=urn:btih:426EBCB1B2D4A45D6A64D69654E05CE0A764F6C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:426EBCB1B2D4A45D6A64D69654E05CE0A764F6C3
 magnet:?xt=urn:btih:37A8D0F35CA5904F6B121DBB1E35A7C851FA55E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ Black Cat | Чёрный кот [2005, TV, 23 эп. + 1 SP] DVDRip 480p raw+eng
 ```bash
 magnet:?xt=urn:btih:A3059E785624B46D6D4909D1D51ED06BB47705D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:A3059E785624B46D6D4909D1D51ED06BB47705D5
 magnet:?xt=urn:btih:CEED7B99C3C840D3848EE847320A27D8021D8DA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:CEED7B99C3C840D3848EE847320A27D8021D8DA3
 ```bash
 magnet:?xt=urn:btih:E90588E7414E7A03A29CB09854F1E4150C573F28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ Bjarla - Bifröst (Bifrost) (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient folk, 
 magnet:?xt=urn:btih:F893F08FAD8373DFFB327C800C2620F1FFBCD671
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:F893F08FAD8373DFFB327C800C2620F1FFBCD671
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ Bleach Sennen Kessen Hen - Ketsubetsu Tan | Bleach: Thousand-Year Blood War - Th
 magnet:?xt=urn:btih:EA099EA14580A179FB296D714510D22D3DD8C8B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ Code Editor Pro - это оптимизированный текстовый р�
 ```bash
 magnet:?xt=urn:btih:396B2A1C1B64DF2956D7BEF13C966F6FEB59291A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:396B2A1C1B64DF2956D7BEF13C966F6FEB59291A
 magnet:?xt=urn:btih:69335A0277B3AA7B46BDCC986F0BBAB2BA16A473
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ Polyverse Supermodal — мощный фильтр с современным з�
 ```bash
 magnet:?xt=urn:btih:235EBAC187E7B7C617F7AC1966907F00191AE726
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ Mesmer (2020) [Multi] (1.0.4) License GOG
 magnet:?xt=urn:btih:24A5C553CFF9D424AB1CAA51E612DC0C05F2F394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ Torn Away — интерактивная история, собранная из
 ```bash
 magnet:?xt=urn:btih:B5B0352DA63C7C55B42FCD5B69F0D0616CC85349
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

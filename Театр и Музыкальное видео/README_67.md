@@ -22,6 +22,8 @@ Joe Bonamassa - Live at the Greek Theatre '2015 (2016) DVD5
 magnet:?xt=urn:btih:E9D8A2C7A5EF785344F8D944276D2D8571900E74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:E9D8A2C7A5EF785344F8D944276D2D8571900E74
 ```bash
 magnet:?xt=urn:btih:36C91744668BF1405FC07754A07B8B68E0BFC771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Cesaria Evora - Live D'amor En Concert Au Grand Rex Avril 5, 20041. Nutridinha
 magnet:?xt=urn:btih:9A90FCF5021EAF8792A3F36F452FCF24337210D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:9A90FCF5021EAF8792A3F36F452FCF24337210D4
 ```bash
 magnet:?xt=urn:btih:67816DFCC63F7886DEB6B947B4C5D209EEBE8940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) BDRip [1080p]
 magnet:?xt=urn:btih:B75FB2C41D84A85B928D96E49B6D0324B2EA0DF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:B75FB2C41D84A85B928D96E49B6D0324B2EA0DF4
 ```bash
 magnet:?xt=urn:btih:6E2461338BC6D49236BB1CDEE80D9B3607F0A029
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Scorpions - Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000/
 magnet:?xt=urn:btih:62DE6566A41C531D7757661F647B4ADF7A395C5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ Rоb Orlemans & Half Past Midnight - голландское трио, играю
 magnet:?xt=urn:btih:BC95B93CC1E066A2AC83AB66E5971F89C94F45FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ Slim - Шлягер (2012) WEBRip
 ```bash
 magnet:?xt=urn:btih:27A239D5E543C2BDCBBD3132AC7925FB2DB31945
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +279,8 @@ magnet:?xt=urn:btih:27A239D5E543C2BDCBBD3132AC7925FB2DB31945
 magnet:?xt=urn:btih:972ABAEC8653252E07AA24BE724E96AEC266AA87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +307,8 @@ Metallica - Live Shit: Binge & Purge (San Diego 1992 & Seattle 1989) (2002) DVDR
 ```bash
 magnet:?xt=urn:btih:D7A071C351609BAC97CA8CCD4A4AE9203998CF6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +337,8 @@ Steven Wilson - Home Invasion: In Concert at the Royal Albert Hall (2018) 2xDVD5
 magnet:?xt=urn:btih:E33B89FD8EF4A8C1DB1D7DF83C1F665B7E1F2037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +365,8 @@ magnet:?xt=urn:btih:E33B89FD8EF4A8C1DB1D7DF83C1F665B7E1F2037
 magnet:?xt=urn:btih:DC1137144AC3A75D6C2E3BF834E60884B7B4EBF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +390,8 @@ The Best of...(vol.3) (2011) DVDRip
 ```bash
 magnet:?xt=urn:btih:61E79372E7E699C7E8ED28B4B6DA3FFE1DE07209
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +417,8 @@ Lindsey Stirling - Song of the Caged Bird (2012) [H.264/1080p] WEBRip
 magnet:?xt=urn:btih:A677D89200DBA9F11D92F28160DB1AC21A5D46A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +443,8 @@ magnet:?xt=urn:btih:A677D89200DBA9F11D92F28160DB1AC21A5D46A9
 magnet:?xt=urn:btih:E72ECE1FA14CE90CB958E67FB060F13875D31584
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +468,8 @@ Adriano Celentano - Greatest Video. Vol.1 (2010) DVD5
 ```bash
 magnet:?xt=urn:btih:75A55789F90AEA708D09E5F71540A983A37055D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +498,8 @@ Muse - Live in Rome (The Unsustainable Tour) (2013) [1080p] BDRip
 magnet:?xt=urn:btih:FB672CF6F6C498B82831252648C1E106A19E63B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +527,8 @@ magnet:?xt=urn:btih:FB672CF6F6C498B82831252648C1E106A19E63B2
 magnet:?xt=urn:btih:F2A4422663D2802217FC9ED0FEABB560B6BDBBA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +552,8 @@ Alice Cooper: Theatre of Death - Live At Hammersmith (2009) [1080i] Blu-Ray
 ```bash
 magnet:?xt=urn:btih:4652155C06F3ABFDDC60D9807763E26FC415C514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +583,8 @@ magnet:?xt=urn:btih:4652155C06F3ABFDDC60D9807763E26FC415C514
 magnet:?xt=urn:btih:7D2A88FEFA87B3FD94EE77A6CC825B286F09B63B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +608,8 @@ magnet:?xt=urn:btih:7D2A88FEFA87B3FD94EE77A6CC825B286F09B63B
 ```bash
 magnet:?xt=urn:btih:C2A7CE48FD3017422C7B1554A3E0E61402AFB7E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +638,8 @@ Lacrimosa - Live in Moscow 19.11.2015 (2015) WEB-DL [H.264/1080p]
 magnet:?xt=urn:btih:A13E03157290A53E1327F659FCD8FC8C1C078246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +663,8 @@ Iced Earth - Festivals Of The Wicked (2011) 2хDVD9
 ```bash
 magnet:?xt=urn:btih:BB74A864AFD630AD9F447DCF7D3343C49F2BC16F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +691,8 @@ Easy listenining, Melodic rock, Pop, Classic rock, Rock 'n' rollПродолжи
 magnet:?xt=urn:btih:B8E6DADAF4A588419E2A1640F1648F668F99A3D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +718,8 @@ magnet:?xt=urn:btih:B8E6DADAF4A588419E2A1640F1648F668F99A3D9
 ```bash
 magnet:?xt=urn:btih:4765071BD4A87AA33759DFCDA924254153FBF357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,28 +1,3 @@
-###  Публикация: 1384720   (801527) от 21.05.2020
-
-Лани / Les Biches (1968) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_801527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Скучающая дама Фредерика на парижской улице знакомится с юной художницей Вай и увозит ее на свою роскошную виллу в Сен-Тропез. Там любовницы живут тихо и мирно, пока однажды случайно не знакомятся с архитектором Полем.
-У Вай начинается с ним роман и тут же заканчивается, потому что Поль вступает в связь с Фредерикой, но безумно влюбленная и брошенная девушка мириться (   Читать дальше...   )Производство: Франция, Италия / Alexandra Produzioni Cinematografiche S.r.l., Les Films de la BoétieЖанр: ДрамаРежиссер: Клод ШаброльАктеры: Жан-Луи Трентиньян, Жаклин Сассар, Стефан Одран, Нан Жермон, Серж Бенто, Генри Фрэнсис, Анри Атталь, Доминик Зарди, Лор Валме, Клод ШаброльПеревод: Многоголосый профессиональныйСубтитры: РусскиеПродолжительность: 01:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E98AFCE470C663A31A69420B907380F55C3E34A4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384759   (801543) от 21.05.2020
 
 Один человек лишний / 1 homme de trop / Shock Troops (1967) HDRip [H.264] [PR]
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:E98AFCE470C663A31A69420B907380F55C3E34A4
 ```bash
 magnet:?xt=urn:btih:A04CDE9619268CE18DA69F953554F671B7941C9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +45,8 @@ magnet:?xt=urn:btih:A04CDE9619268CE18DA69F953554F671B7941C9C
 magnet:?xt=urn:btih:3433EAF5DB4347EB061826DA11D7A3459B502D93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +70,8 @@ magnet:?xt=urn:btih:3433EAF5DB4347EB061826DA11D7A3459B502D93
 ```bash
 magnet:?xt=urn:btih:327508BA61E6045B5A4BBA752035A0490C8D78F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +97,8 @@ magnet:?xt=urn:btih:327508BA61E6045B5A4BBA752035A0490C8D78F8
 magnet:?xt=urn:btih:3593799728EBD8A2FC5AF93A59487AE6019E67DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +122,8 @@ magnet:?xt=urn:btih:3593799728EBD8A2FC5AF93A59487AE6019E67DB
 ```bash
 magnet:?xt=urn:btih:2C92E32571EE2489228E8FA5853A1D2B25280BF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +150,8 @@ magnet:?xt=urn:btih:2C92E32571EE2489228E8FA5853A1D2B25280BF1
 ```bash
 magnet:?xt=urn:btih:6DBBC1B6042FF4DCCF5A0BA1F0DB88471D86F98B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +180,8 @@ magnet:?xt=urn:btih:6DBBC1B6042FF4DCCF5A0BA1F0DB88471D86F98B
 magnet:?xt=urn:btih:CA21BB902DC5C7C0CC71C9839CC9E00CA43D116C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +205,8 @@ magnet:?xt=urn:btih:CA21BB902DC5C7C0CC71C9839CC9E00CA43D116C
 ```bash
 magnet:?xt=urn:btih:877760C4536536863F01C62A1F898C2B58CEC874
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +232,8 @@ magnet:?xt=urn:btih:877760C4536536863F01C62A1F898C2B58CEC874
 magnet:?xt=urn:btih:4E211525B23B9130B8C5B1EB48E517CE46089C06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +258,8 @@ magnet:?xt=urn:btih:4E211525B23B9130B8C5B1EB48E517CE46089C06
 magnet:?xt=urn:btih:A0F9FED1235E5DBEDF8BC59AC424F6B5643B3BFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +283,8 @@ magnet:?xt=urn:btih:A0F9FED1235E5DBEDF8BC59AC424F6B5643B3BFB
 ```bash
 magnet:?xt=urn:btih:ACB84249217CCC9882FFFA5C34241EC73F4C3047
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +311,8 @@ magnet:?xt=urn:btih:ACB84249217CCC9882FFFA5C34241EC73F4C3047
 magnet:?xt=urn:btih:7C8F0D1A2AE45F683384B2D4505143BD3FEBDC61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +336,8 @@ magnet:?xt=urn:btih:7C8F0D1A2AE45F683384B2D4505143BD3FEBDC61
 ```bash
 magnet:?xt=urn:btih:8AA77E5D191157740496324D7EA1D2E1AB14B386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +364,8 @@ magnet:?xt=urn:btih:8AA77E5D191157740496324D7EA1D2E1AB14B386
 magnet:?xt=urn:btih:00F97FEC2FB94A94961833FE36594E4721B2F5DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +390,8 @@ magnet:?xt=urn:btih:00F97FEC2FB94A94961833FE36594E4721B2F5DD
 magnet:?xt=urn:btih:443E2692CFAD3CFA0C1607015B5CE624C15C8B5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +415,8 @@ magnet:?xt=urn:btih:443E2692CFAD3CFA0C1607015B5CE624C15C8B5B
 ```bash
 magnet:?xt=urn:btih:4E51B3B53C76283C8BA14312F3333E18AFA8ACAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +443,8 @@ magnet:?xt=urn:btih:4E51B3B53C76283C8BA14312F3333E18AFA8ACAF
 magnet:?xt=urn:btih:8D4C0699E385D622919A952817F86ED335B7E3A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +469,8 @@ magnet:?xt=urn:btih:8D4C0699E385D622919A952817F86ED335B7E3A3
 magnet:?xt=urn:btih:289541181870E44B1946D0C2093F3077904A166C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +494,8 @@ magnet:?xt=urn:btih:289541181870E44B1946D0C2093F3077904A166C
 ```bash
 magnet:?xt=urn:btih:D5C5ACDA4853914199EA3BC773C74FC667ECF779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +524,8 @@ magnet:?xt=urn:btih:D5C5ACDA4853914199EA3BC773C74FC667ECF779
 magnet:?xt=urn:btih:39D3CC88D39FD65A48CCA1D60B85D22D7876439C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +549,8 @@ magnet:?xt=urn:btih:39D3CC88D39FD65A48CCA1D60B85D22D7876439C
 ```bash
 magnet:?xt=urn:btih:805750567FC28103CCE1F1A98D484EAB72F7E35A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +576,8 @@ magnet:?xt=urn:btih:805750567FC28103CCE1F1A98D484EAB72F7E35A
 magnet:?xt=urn:btih:378C91D8B5E569B11EFA27B381340C3F1A234EAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +601,8 @@ magnet:?xt=urn:btih:378C91D8B5E569B11EFA27B381340C3F1A234EAB
 ```bash
 magnet:?xt=urn:btih:3EC606B7A4FDE669D0AB18C135B07AFCC25FA348
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +628,8 @@ magnet:?xt=urn:btih:3EC606B7A4FDE669D0AB18C135B07AFCC25FA348
 magnet:?xt=urn:btih:0731C37D1A379FF7934BE5D51D981138F51BEC22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +653,35 @@ magnet:?xt=urn:btih:0731C37D1A379FF7934BE5D51D981138F51BEC22
 ```bash
 magnet:?xt=urn:btih:20907029C52976CFF1E76736E2C59AADF64F92DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117392   (808807) от 27.03.2017
+
+Человек, который спит / Un homme qui dort / Man who sleeps (1974) DVDRemux
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_808807.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм снят по одноименной книге знаменитого французского писателя Жоржа Перека (1936 - 1982).
+Хроника отторжения внешнего мира и медленного погружения в полное отрешение, скрупулезное описание постепенного ухода от людей и вещей в зону «риторических мест безразличия»…Производство: Франция, ТунисЖанр: ДрамаРежиссер: Бернар КейзаннАктеры: Жак Списсер, Людмила МикаэльПеревод: Одноголосый закадровыйСубтитры: Русские, английские, французские, русские median subtitlesПродолжительность: 01:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:537D0D5DD2A4DBC924FC881242DB62F569E9CDFB
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

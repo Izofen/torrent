@@ -1,3 +1,29 @@
+###  Публикация: 648051   (854457) от 24.04.2013
+
+Кнут для Адольфа Гитлера / Жизнь за Гитлера / Das leben von Adolf Hitler / Life of Adolf Hitler (1961) VHSRip
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_854457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот документальный фильм британского режиссера и историка Пола Рота выходит за рамки стандартных архивных кадров кинохроники и ищет ответ на многие вопросы, почему немцы никогда не подвергали сомнению действия своего фанатичного лидера. Гитлер показан встрече с Муссолини и Франко. Участие Франко в гражданской войне в Испании было профинансировано Гитлером, который (   Читать дальше...   )Производство: Германия (ФРГ), Real-Film GmbHЖанр: ДокументальныйРежиссер: Пол Рота / Paul RothaПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 01:28:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E03F061B44A39E5015087B80884C0A2FB9606054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498835   (854524) от 28.09.2021
 
 Тур по Альпам / Tour des Alpes (2021) WEBRip [VP9/2160p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7C0016E6852666F42A0A8CC5C604A2665A86569A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:7C0016E6852666F42A0A8CC5C604A2665A86569A
 magnet:?xt=urn:btih:8CA5A9A4FCA5EE2904112256E5E4D377BC21D5C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:8CA5A9A4FCA5EE2904112256E5E4D377BC21D5C0
 ```bash
 magnet:?xt=urn:btih:C1A0E09722F95CE3D12050812687BC797A04F32B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:C1A0E09722F95CE3D12050812687BC797A04F32B
 magnet:?xt=urn:btih:9988DD1DF7A57B88810DF264403A3051DE335144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:9988DD1DF7A57B88810DF264403A3051DE335144
 ```bash
 magnet:?xt=urn:btih:FCA7DC5CA735016F3C00FB52FDCC2D74317AF34B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:FCA7DC5CA735016F3C00FB52FDCC2D74317AF34B
 magnet:?xt=urn:btih:397467089898AF5EA6E91411ACE65D1CFC21CDCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:397467089898AF5EA6E91411ACE65D1CFC21CDCD
 ```bash
 magnet:?xt=urn:btih:368B3C8AA84564E07AAE232D067161F3AF25B7C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:368B3C8AA84564E07AAE232D067161F3AF25B7C2
 ```bash
 magnet:?xt=urn:btih:9238EBE09A492B2F519040E9592215893D09FF1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:9238EBE09A492B2F519040E9592215893D09FF1C
 magnet:?xt=urn:btih:01041F69CD773538533BB801D8167668A78A22AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:01041F69CD773538533BB801D8167668A78A22AE
 ```bash
 magnet:?xt=urn:btih:F3CEF9B5D3FB52E753A3792AD0FD5E3A2C498EBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:F3CEF9B5D3FB52E753A3792AD0FD5E3A2C498EBA
 magnet:?xt=urn:btih:D5762FA53D4B25162928CDBAB694CAC1776D8840
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:D5762FA53D4B25162928CDBAB694CAC1776D8840
 magnet:?xt=urn:btih:4159296D8B5D8694F75624546796DE5906DEF7D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:4159296D8B5D8694F75624546796DE5906DEF7D7
 ```bash
 magnet:?xt=urn:btih:696C0612F9A52CEF879DC2F8E40E4BC0CE0A3C85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:696C0612F9A52CEF879DC2F8E40E4BC0CE0A3C85
 magnet:?xt=urn:btih:44D15CB0F0097AD635CB64FED4B7C19258120CC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:44D15CB0F0097AD635CB64FED4B7C19258120CC1
 ```bash
 magnet:?xt=urn:btih:93243F979CB7C50EF08A064B49ECA159FB6919F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:93243F979CB7C50EF08A064B49ECA159FB6919F6
 magnet:?xt=urn:btih:E820AA96D513E577E1E8165ABD496093B0D50020
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:E820AA96D513E577E1E8165ABD496093B0D50020
 ```bash
 magnet:?xt=urn:btih:A191F1CBBAC92409318A88E1D050B32FDF974CEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:A191F1CBBAC92409318A88E1D050B32FDF974CEF
 magnet:?xt=urn:btih:1A115D3ABC78E54B2CEBD3342395C9D7DEFA376A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:1A115D3ABC78E54B2CEBD3342395C9D7DEFA376A
 ```bash
 magnet:?xt=urn:btih:B1BC9AC55441E76FDEB55BFACFB324CF40B8E7C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:B1BC9AC55441E76FDEB55BFACFB324CF40B8E7C6
 magnet:?xt=urn:btih:AB20B59346D63E9B0F5574377846F4B05158A711
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:AB20B59346D63E9B0F5574377846F4B05158A711
 ```bash
 magnet:?xt=urn:btih:106FED41F73242444DD1F9A13465878EBD4D5F7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:106FED41F73242444DD1F9A13465878EBD4D5F7B
 magnet:?xt=urn:btih:4959CB23B0FA320E1BFDD1476009B76BAADD7AF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:4959CB23B0FA320E1BFDD1476009B76BAADD7AF7
 ```bash
 magnet:?xt=urn:btih:9F50B305C50D72C9791F6998CFDDCF120B553A09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:9F50B305C50D72C9791F6998CFDDCF120B553A09
 magnet:?xt=urn:btih:7B6D495A0BBBFFC83B7B0AC18BDB01AB6C1CA2B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:7B6D495A0BBBFFC83B7B0AC18BDB01AB6C1CA2B0
 magnet:?xt=urn:btih:031B3F793B8861323895BB667B9DE8B0965602F9
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001192   (855818) от 27.03.2016
-
-С миру по нитке. Новосибирск-рекордсмен (2016) HDTVRip [720p-LQ]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_855818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новосибирск-рекордсмен. Как выглядит «сибирский Колизей», где обитают лигры и зачем советские ученые поселились в глухой тайге? Наши путешественницы Вика и Люда приехали в третий по величине город России. Новосибирск внесен в Книгу рекордов Гиннесса как самый быстрорастущий «миллионник» в мире. Чем же удивит туристов это место?Транссибирская магистраль - самая длинная железная дорога в мире и обязательная достопримечательность в любом путеводителе по России. Проехать по Трассибу с остановками в городах и деревнях большой страны - об этом мечтают любители приключений по всему миру. В России Транссиб мало кто воспринимает, как туристический аттракцион. Ведущие «С миру по нитке» исправят (   Читать дальше...   )Телекомпания: МИР ТВЖанр: ТелепередачаПродолжительность: 00:24:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA51BC3675C4B0FF5217CDAE0C73007AA4113F18
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

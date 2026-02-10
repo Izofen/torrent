@@ -1,3 +1,148 @@
+###  Публикация: 1534878   (690518) от 04.03.2022
+
+VA - GANGSTER MUSIC, Vol. 5 (2022) [MP3|320 Kbps] <Eurodance, Technopop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690518.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ONEIL/KANVISE - Requiem
+2. TRITICUM - The Spell
+3. Dj Quba/Sandra K - Flame Me
+4. Kitness - Time Will Come(   Читать дальше...   )Жанр: Eurodance, TechnopopПродолжительность: 01:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:665E0E0A46799A50BCB47C685C8E5971F7045FDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535011   (690525) от 04.03.2022
+
+Bryan Adams - Pretty Woman - The Musical (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To Hollywood (3:38)
+02. Anywhere But Here (2:58)
+03. Something About Her (2:33)
+04. Luckiest Girl In The World (2:57)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2020A7D9599DEB5F793B6B8B1F8CB8E5A1B6FA6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028394   (690661) от 22.06.2016
+
+IL - 2 Albums (2014, 2015) [MP3|320 кб/с] <nu-disco, disco house, french disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наши отжигают Французское Диско!01. M'arreter (6:14)
+02. Fils Du Ciel, Filles De La Lune (6:10)
+03. Musique Extraterrestre (4:40)
+04. Adieux, La Planete (5:28)(   Читать дальше...   )Жанр: nu-disco, disco house, french discoПродолжительность: 01:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56265CB294504452EF84328AED323EC34242535D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028202   (690767) от 22.06.2016
+
+Евгений Осин - Птицы (1999) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_690767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Птицы-миражи
+02. Мечта
+03. Простите
+04. Живое море(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:127A31DDB70A4BE3BE0777BD0208E286C3FC41BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221879   (691253) от 26.04.2018
+
+Елена Темникова - TEMNIKOVA III: Не модные (2018) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_691253.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Не модные
+3. Не сдерживай меня
+4. Очень сильно(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6CDBA7D7ECE43A78EB630F56EFE87861880AC22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134055   (691289) от 14.05.2017
 
 VA - Русское счастье (Romantic Melodies) (2006) [TAK|Lossless|image + .cue] <Pop>
@@ -21,6 +166,8 @@ VA - Русское счастье (Romantic Melodies) (2006) [TAK|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:08763E3389DBA1BCBC74186129AAC5813A43B698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ VA - Top Of The Spot 2017  [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:08B82E221147725844F8FC333A7DF33812F59943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ magnet:?xt=urn:btih:08B82E221147725844F8FC333A7DF33812F59943
 ```bash
 magnet:?xt=urn:btih:E9F25FD970B7265ADA5F33E4F3CA3C37B8892615
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ French Kiss - Panic! (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 magnet:?xt=urn:btih:71BE08B5028BB170048367F22C16DB5EB3DDC323
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +282,8 @@ Olsson - Millions (2017) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:3322A41A03DE35E64583A220857AF53528915CCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +312,8 @@ magnet:?xt=urn:btih:3322A41A03DE35E64583A220857AF53528915CCD
 magnet:?xt=urn:btih:F5EA59EDA882B65114186D28D5F002E3A6DBDF23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +340,8 @@ VA - Venti Compilation 5 (2018) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <
 ```bash
 magnet:?xt=urn:btih:122A9D06FAD82069581046229E754D029FCB3F7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +370,8 @@ magnet:?xt=urn:btih:122A9D06FAD82069581046229E754D029FCB3F7B
 magnet:?xt=urn:btih:333B15EFCDE06A1D3C3A79D344907319ABC24545
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +398,8 @@ Angel-Ho - Death Becomes Her (2019) [MP3|320 Kbps] <Pop, Electronic, Dance>
 ```bash
 magnet:?xt=urn:btih:5D607FF3FA6C2AAC530D184BFBF5F377B4DFF1EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +428,8 @@ Avril Lavigne - Love Sux (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:4EC87882711A754EF21EBAAACBA6A3448DBB2DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +457,8 @@ Giorgio Moroder - 3 Albums Original Soundtrack (1978-1982) [MP3|320 кб/с] <El
 magnet:?xt=urn:btih:B5898C087EB6AB74097AFC86656F55B5A084D0A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +484,8 @@ magnet:?xt=urn:btih:B5898C087EB6AB74097AFC86656F55B5A084D0A8
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +514,8 @@ VA - La Dolce Vita! Italian Cool…From Rome To The Amalfi Coast (2015) [FLAC|Lo
 magnet:?xt=urn:btih:8E214A384F893AE8D58C3E416BBE07BA41757E8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +542,8 @@ Charisma - Out Of Time (1978) LP [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:8CB6282488F5448C025F2F9340D55CD0CC9B4250
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +572,8 @@ White Sea - Tropical Odds (2017) [FLAC|Lossless|tracks] <Indie Pop, Dream Pop, S
 magnet:?xt=urn:btih:F68F4419AFBAC93E7A2B103A52D649A12123112D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +598,8 @@ Sade - The Ultimate Collection (2CD) (2011) [MP3|320 kbps]<Pop>
 magnet:?xt=urn:btih:EEFA6B6F342C6C8966DAC57A423E7AAA164EAB43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +623,8 @@ VA - Дискотека у патефона. Музыка 30-40 годов (Vol.
 ```bash
 magnet:?xt=urn:btih:2BC2DB4504CAE1369A083C4F2FD49ADEB4E4AE10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -474,6 +653,8 @@ VA - Best Radio Tracks, Vol. 16 (2019) [MP3|320 Kbps] <Dance, Pop, Electronic>
 magnet:?xt=urn:btih:47C92F156FB1D98DE8520B9253A9610E99903E1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +681,8 @@ Boney M. - Диско 80-х (2008) [FLAC|Lossless|image + .cue] <Disco>
 ```bash
 magnet:?xt=urn:btih:90F055032C25C3D46EA0E03497C45DEDE3A59088
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +711,8 @@ Dido - Greatest Hits (2013) Deluxe Edition, 2CD [FLAC|Lossless|tracks + .cue] <E
 magnet:?xt=urn:btih:E3254D6BD914B0308402554CB0C422ABBA368F38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,139 +740,7 @@ VA - Latino - 30 Summer Hits (2019) [MP3|320 Kbps] <Salsa, Pop, Latin Dance, Reg
 magnet:?xt=urn:btih:5C16129B40012C8D09521D9EBF462F9210F09673
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288750   (694077) от 12.03.2019
-
-VA - All The Hits In Discotheque (1977) 2LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Blood - Soul Dracula (3:01)
-02. Banzaii - Chinese Kung Fu (3:16)
-03. Hot Blood - Baby Frankie Stein (4:53)
-04. Jimmy James - Disco Fever (4:13)(   Читать дальше...   )Жанр: Electronic, Disco, Funk SoulПродолжительность: 01:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7F736155F2BD6466E199377C6EA3F9FDA55DF7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288781   (694079) от 12.03.2019
-
-Camouflage - A Disco Symphony (1977) LP [MP3|320 Kbps] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Disco Symphony (14:49)
-02. Take A Ride (9:15)
-03. Bee Sting (7:42)Жанр: DiscoПродолжительность: 00:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F47F9AA7BF6F8B1B46D1879F781E95513CAF6E24
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403157   (694143) от 18.08.2020
-
-V.A. - Another Side Of Fancy Megamix (2020) [FLAC|Lossless|image + .cue] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grant Miller - Colder Than Ice
-02. Elvin - You Set My Heart On Fire
-03. Psychic Interface - Dancin' In The Night
-04. Grant Miller - California Train(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 00:30:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EEAFF6D638B8ED185F27FF887F0C122392C15ED
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403162   (694148) от 18.08.2020
-
-Чёртово колесо инженера Ферриса - Funeral Sex (2020) [MP3|320 Kbps] <Power Pop, Dance Punk>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694148.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Где же дьявол, когда он тебе так нужен?
-2. Добрым, смелым и честным
-3. Разбудите меня!
-4. Пожиратели Русской смерти(   Читать дальше...   )Жанр: Power Pop, Dance PunkПродолжительность: 00:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:253F2D8364D36D83BEF3BCB26D026EDAB6848008
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403156   (694149) от 18.08.2020
-
-VA - Summer Acoustic (2020) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_694149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Johnson - Better Together (3:28)
-02. Vanessa Carlton - A Thousand Miles (3:57)
-03. Corinne Bailey Rae - Put Your Records On (3:35)
-04. Maroon 5 - Sunday Morning (4:07)(   Читать дальше...   )Жанр: PopПродолжительность: 02:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5680869726E2932A27881340B8BFF172C231254E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

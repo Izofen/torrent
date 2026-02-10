@@ -19,6 +19,8 @@ VidCoder - небольшая утилита, с помощью которой �
 magnet:?xt=urn:btih:AE1F2F68AA44DA161F8EDFCFE89BC96568771BCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ VA - Music News vol.346 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:D7DB13825869D43B88D38DD0E3AED3CA04B668EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Media Player Classic Home Cinema - удобный во всех планах м�
 ```bash
 magnet:?xt=urn:btih:98ABC9905FCD828FFBECCC9B866C581615EC86FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Tixati — это полноценный и бесплатный клиент с
 magnet:?xt=urn:btih:2C8837E84AB90F76CF2A3DB71F5DCDD46D7F6139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Windows хороша, но всегда есть, что улучшить. Во�
 ```bash
 magnet:?xt=urn:btih:2AD5ECF758BF484C183BE84A3D13F3EB46BD0D7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:2AD5ECF758BF484C183BE84A3D13F3EB46BD0D7D
 magnet:?xt=urn:btih:218FABC26737E760DFCBD172C7030C239093F616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:218FABC26737E760DFCBD172C7030C239093F616
 ```bash
 magnet:?xt=urn:btih:712FB7B92B822EB50E46C9720A38EEB8E83D637D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Bruce Dickinson - The Mandrake Project (2024) [FLAC|Lossless|WEB-DL|tracks] <Hea
 magnet:?xt=urn:btih:4404D1CBDD939B99BF1B62B263FF719C1C8F9CC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:4404D1CBDD939B99BF1B62B263FF719C1C8F9CC0
 magnet:?xt=urn:btih:9562C432ADB5E321A586A272F5BB2E0CDC1715DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:F62B912ADAF2D6A8BE68F23FB3C388F21FAE5219
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:F62B912ADAF2D6A8BE68F23FB3C388F21FAE5219
 magnet:?xt=urn:btih:F598DCA5F10B0C9F64D1F08A05BB166034DED015
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:F598DCA5F10B0C9F64D1F08A05BB166034DED015
 ```bash
 magnet:?xt=urn:btih:3A05DE17838DCD1B077DD57B9E6D67AD2622E5D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Suldusk - Anthesis (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Dark, Folk 
 magnet:?xt=urn:btih:D0785053C5CB26AA4149D81B9ECED39F0C20E959
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:D0785053C5CB26AA4149D81B9ECED39F0C20E959
 ```bash
 magnet:?xt=urn:btih:14C0FB81208CAA81D8469071D1C437F7B4FB2669
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ XnConvert - бесплатная кроссплатформенная утили
 magnet:?xt=urn:btih:BFF1EDCB2F95AD21DEE3807FC966DCFAB8EAE608
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ Adobe Bridge предоставит вам централизованный до
 ```bash
 magnet:?xt=urn:btih:D3E22801050FF10A49E08614A9163124A9FEAF13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ Revo Uninstaller Pro 5.2.6 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:617398F17888B421C1480507AC37E1C59C1C3B40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:617398F17888B421C1480507AC37E1C59C1C3B40
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:617398F17888B421C1480507AC37E1C59C1C3B40
 ```bash
 magnet:?xt=urn:btih:38963EB54D857A919892ACC9FE90739160030BAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ VA - Улетай, туча (1980) [FLAC 24/192|Lossless|tracks] <Pop>
 magnet:?xt=urn:btih:5FE8F59E82977F9DAFDAD4667A396FE78773272E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ Affinity Photo — обеспечивает более высокую скоро
 ```bash
 magnet:?xt=urn:btih:5977A3D52DF313C6A782137866263E645DB9DA43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 magnet:?xt=urn:btih:8F06645B29C225392E79CFEDF67B2EAAAE7109DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:8F06645B29C225392E79CFEDF67B2EAAAE7109DF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ Tails (The Amnesic Incognito Live System - Забывчивая Анонимна
 magnet:?xt=urn:btih:4A55DBAC3E1443FC24496A42C1C3DD2895890AF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:4A55DBAC3E1443FC24496A42C1C3DD2895890AF9
 magnet:?xt=urn:btih:86E2A3F7C99FBF9CC10EAFFC460840F370B93748
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ Smart Driver Manager - это быстрый, простой и безопасн
 ```bash
 magnet:?xt=urn:btih:A35B74BDD473246755E6AD24E2F9016883C908B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

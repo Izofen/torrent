@@ -19,6 +19,8 @@ Remini / Улучшение Фото v3.7.1156.202517454 Mod by Mixroot [Ru/Mult
 magnet:?xt=urn:btih:6CDF509C0DEB89392F51EF0B974E9B34B3A2CD04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BikeComputer Pro - возможно, одно из лучших приложен
 ```bash
 magnet:?xt=urn:btih:C846EF1F02B096CB7583EFA764A915C308FF640A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ AirBrush: ИИ Фоторедактор v7.19.0 Mod by PieMods [Ru/Multi]
 magnet:?xt=urn:btih:F70B5BB60042E792ACD9520287027CCF7FEC9124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Gallery - Photo Gallery, Album (XGallery) v2.0.2 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A575B9E213EDE927F3A2EB82A0081EDDAFFF3EE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Seven / 7 Минут Упражнение v9.24.2 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:CAD198085A242A33871AAEB5E13E3D808DA54ECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ OTT Онлайн прямое телевидение, в котором вы н�
 magnet:?xt=urn:btih:820BE63608756C01DAB62B69A1D5365EC4211897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:820BE63608756C01DAB62B69A1D5365EC4211897
 ```bash
 magnet:?xt=urn:btih:F269AE1E36F98A90C59449414A271C4539508F54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ VPN с 15 странами, 14 игровых страны, 12 стриминг�
 magnet:?xt=urn:btih:E8D95859CE1449854239A4358D9A88B959E8923F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Pure Tuber: Block Ads on Video (Ранее. Vanced Tuber) - приложение
 ```bash
 magnet:?xt=urn:btih:2F661BEF91DADB4820F6D89032DFB6F7A2DEF71D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Opera Touch - новый быстрый браузер с функцией Flow,
 magnet:?xt=urn:btih:D5E5DF6D02C0444D8916E9E55E333E15AA47CB4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ PhotoLayers v4.0.0 [En/Ru] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:F720A8449020112105783D7F5642826FE44836DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Screen Stream Mirroring - многофункциональное приложе�
 magnet:?xt=urn:btih:9346074683C77B498D73C12D4D6FDA89AAF3E6E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Meditopia – это приложение для медитации, котор�
 ```bash
 magnet:?xt=urn:btih:50F86AE10B97612D8E0DF4D6727F1E5E972C91F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Audify Music Player - это одно из самых крутых прилож�
 magnet:?xt=urn:btih:9A472F4CF12F6DD8D86E9D9CAD8F586D2404AE8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ GO Weather EX — великолепный динамический фон с к
 ```bash
 magnet:?xt=urn:btih:D2AB46F717C80441B0454B7FA27B8FDC42868B45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:D2AB46F717C80441B0454B7FA27B8FDC42868B45
 magnet:?xt=urn:btih:F530561A5FB3DBFD93048272160B77D24CF8450C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ All File Reader and Viewer v54 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:146B168FC822DF9727DA76E5ED837108B865D563
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Exo Player - Видеоплеер и IPTV v2.0.6 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:DCB31691F1B0443EDA731778F6629E2A7855E073
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Picsart AI Photo Editor, Video v28.7.3 Gold Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AD830D969F1DDEE444253702F95881C325A07421
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Jigsawscapes® - Пазлы v4.2.7 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:55C502E999467F42F852BB07793F4249ACF271A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ OsmAnd+ - это приложение с картами всего мира на
 magnet:?xt=urn:btih:69B946E21EB593BB247F60A9CF0CB32F4CBC93C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ HiPER Calc Pro v11.2.8 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:44918A2E95B0525C0932774186A77699ADDFEF30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ NokoPrint v5.24.4 Mod by derrin [Ru/Multi]
 magnet:?xt=urn:btih:EE31D5FB16B0CAFD467656111D3943E4685A121F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:16DD6C276D08361012873F66C475C754D6319AE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Photo Editor - уникальная программа для обработки
 magnet:?xt=urn:btih:765922337502B5BBE64B38D6BFD9B42E35487B11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:E80FA54F1F017B60B628A79ABF5EE9BB91D06A82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

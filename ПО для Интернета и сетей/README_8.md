@@ -19,6 +19,8 @@ File & Image Uploader - удобная и просто незаменимая п
 magnet:?xt=urn:btih:292A180A877CEA8F3817CA0810257EFB6D5FCD1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ RadioMaximus 2.33.0 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:253D189F47B93DC81B9842437645DEFE4965A519
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ SoftPerfect Cache Relocator - портативная программа, с по
 magnet:?xt=urn:btih:54F12CE22189561BA09DB01193CDC9F07377D4FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Lacey -  простой инструмент для поиска и скачив
 ```bash
 magnet:?xt=urn:btih:B57E1901D16F94A585B4D3F9017CF03BA308E5A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Vivaldi — это многофункциональный интернет-бр�
 magnet:?xt=urn:btih:A7376D53A08D6A85FFD08C9923A0B2B48E36D070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Wireless Network Watcher - неплохая утилита, которая по�
 ```bash
 magnet:?xt=urn:btih:71272650B2550BBADA22335F6127127BD7AF079B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Google Earth Pro 7.3.6.9796 (x64) Portable by FC Portables [Multi/Ru]
 magnet:?xt=urn:btih:FDB91051C2544B90898746C778AA551994A3FA86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ NetTraffic - небольшая полезная утилита для мони�
 ```bash
 magnet:?xt=urn:btih:AEFED2E6EEB277B3357D215DC0FAEAA67C0FABDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Speedtest by Ookla 1.13.194.1 (x64) Portable by FC Portables [Multi/Ru]
 magnet:?xt=urn:btih:ACFF7B71C7C1C961C70D48728475C2164FC25BC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Speedtest by Ookla 1.13.194.1 (x64) Portable by Topersoft [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:994A2223E488B426B24CA4C2F39020BCC20E9AB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Speedtest by Ookla 1.13.194.1 [Multi/Ru]
 magnet:?xt=urn:btih:6C9C439E899BE0E4350DDA22D4B810A62CBC0DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:90A9B6B9A28DD7ECCE06514CFB73159E01DAAA2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ VCap Downloader (VCapDL) – это универсальное программ�
 magnet:?xt=urn:btih:8772847442CAEE08ADE3D17A845735B4D86E5BA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Air Explorer Pro — один из лучших файловых менедже�
 ```bash
 magnet:?xt=urn:btih:103961CDAB9EB6FD6EED81EBAF884C603BA53959
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ ToDesk — это программное обеспечение для удал�
 magnet:?xt=urn:btih:96B12DC2A6129D9FA23FE1EF2A91FCC7840DE069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:198543A75A0E04D8E90D1CCD660748C7426931B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:7283489011938FEA5BDB688B94A0EE5A359229C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:A936EB5857441AB8BDFA57CDCBADC8F95F3CFE4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ MediaHuman YouTube Downloader 3.9.17 (1010) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:C29FE3FEFB4A23B7A134FAF8B4584560351F7AC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +527,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 magnet:?xt=urn:btih:6E880F7416B360387C6B34EF47D72DCFCD6E99BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ MediaHuman YouTube Downloader 3.9.17 (1010) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2C24ED2CC6D108201A414AC033261753E1FEF509
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ Karing - Утилита прокси с простым и мощным инте�
 magnet:?xt=urn:btih:3AC8BEBDFC67B417471F722AB4091DBEC53A02F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ SeaMonkey 2.53.18.1 [Ru]
 ```bash
 magnet:?xt=urn:btih:7DF28CC692E8B83342288C08F3B2F4E48B425B73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ Whale Browser -  южнокорейский быстрый интернет-бр
 magnet:?xt=urn:btih:1CE3D19369409F965F2EE17F545D47AAE394F96D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ DU Meter - программа для подсчета реального вхо�
 magnet:?xt=urn:btih:E07E74F7ABF21D8F34521735C675CBFCF33B70C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ DU Meter - программа для подсчета реального вхо�
 ```bash
 magnet:?xt=urn:btih:80BB3ACE4540C09B9320BC457C64B9D788631088
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

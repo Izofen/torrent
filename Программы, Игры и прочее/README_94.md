@@ -19,6 +19,8 @@ GO Weather EX — великолепный динамический фон с к
 magnet:?xt=urn:btih:D2AB46F717C80441B0454B7FA27B8FDC42868B45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D2AB46F717C80441B0454B7FA27B8FDC42868B45
 ```bash
 magnet:?xt=urn:btih:F530561A5FB3DBFD93048272160B77D24CF8450C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ All File Reader and Viewer v54 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:146B168FC822DF9727DA76E5ED837108B865D563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Exo Player - Видеоплеер и IPTV v2.0.6 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DCB31691F1B0443EDA731778F6629E2A7855E073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Picsart AI Photo Editor, Video v28.7.3 Gold Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:AD830D969F1DDEE444253702F95881C325A07421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Jigsawscapes® - Пазлы v4.2.7 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:55C502E999467F42F852BB07793F4249ACF271A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ OsmAnd+ - это приложение с картами всего мира на
 ```bash
 magnet:?xt=urn:btih:69B946E21EB593BB247F60A9CF0CB32F4CBC93C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v1.9.5 Mod by v
 magnet:?xt=urn:btih:DFE397BBC6581DC12DD6FF02F7721E5DFE8D9851
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Sky Words – это игра в слова, которая приглашает
 magnet:?xt=urn:btih:0B407A5BAD5D7F9CD13D6C06E0CA551E3015965F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ HiPER Calc Pro v11.2.8 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:44918A2E95B0525C0932774186A77699ADDFEF30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ NokoPrint v5.24.4 Mod by derrin [Ru/Multi]
 magnet:?xt=urn:btih:EE31D5FB16B0CAFD467656111D3943E4685A121F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:16DD6C276D08361012873F66C475C754D6319AE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Photo Editor - уникальная программа для обработки
 magnet:?xt=urn:btih:765922337502B5BBE64B38D6BFD9B42E35487B11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Photo Editor - уникальная программа для обработки
 ```bash
 magnet:?xt=urn:btih:E80FA54F1F017B60B628A79ABF5EE9BB91D06A82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Jewel Legend: игра три в ряд v3.18.00 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:4CB44AEFE665815DB622505393EE741ADDB4A58A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Material Pods: батарея AirPods v6.70 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:44756AD518FA087B9FFAA1BC11686A815FA52C90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Parrot Timer / Кухонный таймер v2.11.0 Mod by Alex.Strannik [Multi
 magnet:?xt=urn:btih:21585C514290053E506FA3CAED22853E7A1C0EDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ MP3 Cutter - лучший инструмент для удобного и про
 ```bash
 magnet:?xt=urn:btih:4834681349590C3868A3126C61F8A347A201589F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Portrait Painter - является профессиональным инстр�
 magnet:?xt=urn:btih:AF72BD12A97313E10F41FB404E7880F3363E1F5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:AF72BD12A97313E10F41FB404E7880F3363E1F5A
 ```bash
 magnet:?xt=urn:btih:A86AC14A85B588097D9789E7AE0EA9FB88532FB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:ADA64112AA8F02401A199E7036E5DD1057A37624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ OTT Онлайн прямое телевидение, в котором вы н�
 ```bash
 magnet:?xt=urn:btih:82C790DA8DA379CF7EA2793CE82400F18BE952DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:82C790DA8DA379CF7EA2793CE82400F18BE952DD
 magnet:?xt=urn:btih:CB4EF97E8FAB1ABD967891A3383E51BFCFE6543F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:CB4EF97E8FAB1ABD967891A3383E51BFCFE6543F
 ```bash
 magnet:?xt=urn:btih:82FE84E8D63FF3ED1808A9E027ACFD7D0315852F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:82FE84E8D63FF3ED1808A9E027ACFD7D0315852F
 magnet:?xt=urn:btih:A605DDF7E2D0A878DD34E52572CD6DACAFFAD4C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:A605DDF7E2D0A878DD34E52572CD6DACAFFAD4C3
 ```bash
 magnet:?xt=urn:btih:CCEF4BFCF1D56A8D6A854B5239BA18CD31F83915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

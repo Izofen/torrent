@@ -19,6 +19,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:60E440E51CD8C9AD7408FEA539D187A81618DF05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:A35E9310188B84F7702FEF36ECC140B3C6D53523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ CudaText — абсолютно бесплатный мультиплатфор�
 magnet:?xt=urn:btih:C8F50F20AE6CD27557F3661DD53523F87C1B1DB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ AIDA64 2.00 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2D926531A2F77EB1B247C68C9CFC6B39BB236B17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Photo Studio PRO - ещё одно приложение которое понр�
 magnet:?xt=urn:btih:5B0452394348270AAF0628CB772591E128A9E863
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ digiKam — фото-менеджер для Windows — программа дл
 ```bash
 magnet:?xt=urn:btih:0B693B95ECB3DFB3149B6AF6907E27551C85FC04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 magnet:?xt=urn:btih:C2A8F09914CA34769104321526CFF88585E6C291
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ EmEditor Professional - профессиональная версия мощно
 ```bash
 magnet:?xt=urn:btih:9030B11BFC022BC2464324C35D7DF894E2659E22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ TuneIn объединяет спортивные события, музыку, �
 magnet:?xt=urn:btih:6B58834C4C3B2011F63DA950106B7FFBCC240813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ PowerDirector – Video Editor v13.3.1 b1227130 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2AB1A6CF172BAEC05D9AB447D4C1404E6D5AC618
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Multitrack Editor: Beat Mixer 1.0.6 [Multi]
 magnet:?xt=urn:btih:231FE1B5E602789C115E3F42E8DE8F3ADFEAC3C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ PowerPhotos - позволяет разбить ваши изображения 
 ```bash
 magnet:?xt=urn:btih:C9F1C37D702927EC511028CEA6E346CB508BD68D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Sandboxie - yтилита для контроля за работой разли
 magnet:?xt=urn:btih:07EE74AABDFFEE357FCD9D359824C9EDFA4501A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:70DFB962DC5887E58394290E600EF9EF2A7C50D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ AI Transcription 2.4 [Multi]
 ```bash
 magnet:?xt=urn:btih:311E358FA7FB5059FF0782852188D9C24BED3C96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ EmEditor Professional - профессиональная версия мощно
 magnet:?xt=urn:btih:BE7B6A2EF899A2BB13B37F27A98B268A90CFC82D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Text Workflow 1.9.4 [En]
 ```bash
 magnet:?xt=urn:btih:22536E0CF22B221FE525225E18C2024847A793E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Monkey's Audio — данная утилита предназначена для
 magnet:?xt=urn:btih:86D447382A1B5FC0CC777ACACFD476B4F44B9868
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Airmail – это почтовый клиент для операционной
 ```bash
 magnet:?xt=urn:btih:01C08454EBC4CEFB9FD2BA23B0309920F0025596
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ RAW Power 3.4.18 [En]
 magnet:?xt=urn:btih:3E38DC59673429EEEB7AD3275B6D77BE734FA19E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:170277AF266AF52E014A0A12F48B368EAE1CB4DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:B3E140CBFDD51B7C4A0AF47D24DD6CE396C55BCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Dato поддерживает все языковые стандарты и яз
 magnet:?xt=urn:btih:7FFA7FE34D028A6FF7CFF782390AB00F371AD605
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +630,8 @@ Topaz Gigapixel AI. — это первое и единственное прил
 magnet:?xt=urn:btih:9C8A92CC0378DBB4F8A69CC3E29815020F796E93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:FE893594C4DD55B82CA225F8D0A815E90E9C9CFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +683,8 @@ PortableApps.com Platform - это функциональная платформ
 ```bash
 magnet:?xt=urn:btih:7E18390F5F8D9A8FAEFE220B3DDA62373EF27EDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

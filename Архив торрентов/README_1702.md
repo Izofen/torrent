@@ -20,6 +20,8 @@ Movist является простым в использовании и мощн
 magnet:?xt=urn:btih:C5954302163D414865AE1C44C6BF5AE0E2D5B389
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Opera 99.0.4788.13 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:9C95823AE5BD670EBB6D6571BDBE3B311EA11D5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Invisor основан на хорошо известной библиотеке
 magnet:?xt=urn:btih:E02D96804172B8898FA6ECE3E30704F75111D761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ System Dashboard показывает использование процесс�
 ```bash
 magnet:?xt=urn:btih:E632016B69A2C4D2AEE29344244E821CB35327F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Mirillis Action! 4.34.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:157B420A1488B952D674BC6FED035FC32E366118
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:784094709BD0863B918EF5CBACA7A14D3E4BC4F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ File List Export (бывший File list to Excel) - простое в испо�
 magnet:?xt=urn:btih:7F9A7F6F67D0695AB2DE43BBA72E135308B68622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ FoneDog Android Data Recovery специализируется на восста
 ```bash
 magnet:?xt=urn:btih:CA4447B637893C7A6F7FDBE6D67926D746A64AC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Bartender - утилита для простой организации икон
 magnet:?xt=urn:btih:9BD18C81C020687F0FA16E8B7B227FF4A6523CD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Opera 99.0.4788.13 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:3EACA9BA07D9C40F4C72BAE11613442BE1A6F416
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ uTorrent (AdFree) 3.5.5 Build 46514 Stable Portable by A1eksandr1 [Ru/En]
 magnet:?xt=urn:btih:71175C49585DD24ABF52FDE0D79DB51A1A076DE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ SamDrivers 23.5 LAN [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:648DCC4A5EDB1AF22853F315E0ECBA449A09448B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ QLab - Мощный инструмент для создания и провед
 magnet:?xt=urn:btih:9914859E0CF4E2F8347B3A73CDCB8FBD228ACD95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ OnlySwitch предоставляет серию тумблеров/перекл
 ```bash
 magnet:?xt=urn:btih:9188F781676A4BE164ABD9F6427CFB2FE9DA89A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ TunesKit Screen Recorder 2.4.0 [En]
 magnet:?xt=urn:btih:85BDAE657D721A07262EC6409D577C8DD4990830
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ VN - это видеоредактор предназначенный специ
 ```bash
 magnet:?xt=urn:btih:65EC7E0DAD78A726995E43B7A1DF2F0EE3FEAF3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ EdgeView 3 - это новейший просмотрщик изображени
 magnet:?xt=urn:btih:4574204689381B1E9B4FDA02FC2E6BDACC112ACD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:4574204689381B1E9B4FDA02FC2E6BDACC112ACD
 ```bash
 magnet:?xt=urn:btih:23C1517518B06A0C76B4DF68FEB4CEE20FBB6FFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Vivaldi для Android — это новый приватный веб-брау�
 magnet:?xt=urn:btih:1B1C187D753936A40C536A8E48D5AB464E654496
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ iTubeGo YouTube Downloader Pro for Mac 7.0.1 [Multi]
 magnet:?xt=urn:btih:9C9333EBA7F2DF9EFC5299DE3F3C47835F77869F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ GraphicConverter 11 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:633D5E4607FAD4576B46DA83F5A6FD08B8F23247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Things — приятный и простой ежедневник. Это ид�
 magnet:?xt=urn:btih:1DB031FDDBF876F10A542D564DE33DB2A468B10B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Vivaldi 6.0.2979.22 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B322B418FB38125FCB7A86A7CAEDBDBDAB3D579F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ A Better Finder Rename является лучшим решением для а�
 magnet:?xt=urn:btih:E94681B6A5FA928B08D257D4BA9BAD132D784542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:3B5C448E040BDA66A6F882AA099CC5D22E43470F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +680,8 @@ PDF24 Creator - бесплатная программа, которая позв
 ```bash
 magnet:?xt=urn:btih:288D8305551A9C1B9358615888A4CFD25344F25B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

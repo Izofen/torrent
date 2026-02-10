@@ -19,6 +19,8 @@ NG. Осушить океан: глубокое погружение. Подво
 magnet:?xt=urn:btih:75C1F9CBEEBAECFC0AE7EFEAA1CF35B6D392B23F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:75C1F9CBEEBAECFC0AE7EFEAA1CF35B6D392B23F
 ```bash
 magnet:?xt=urn:btih:4B0EAFD260BE35D8ADFC9CBAF9F3736CB176A197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Nat Geo Wild: Жизнь на Большом Барьерном рифе / Life 
 magnet:?xt=urn:btih:E37CE60C20B9FA95E79E21D227F99BC5616BD8C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ NG: Смертельный бой динозавров / Dino Death Match (2015)
 ```bash
 magnet:?xt=urn:btih:693A1C80644EC2385DFA7E0F0DEA769B897E69BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ NGW: Атака нильского крокодила / Africa's Croc Attack (20
 magnet:?xt=urn:btih:8093B8E2CAB038E0A1F5F46BECCBA5CADBD227C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ NG: Огромный морской змей / Giant sea serpent (2015) HDTVRip 
 ```bash
 magnet:?xt=urn:btih:2E28F39BD51D5B03D2F8B2737C01550BBCEA22B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ NG: Больше, чем тираннозавр / Bigger Than T.Rex (2014) SATRi
 magnet:?xt=urn:btih:FE14551022B6CCE6EFFD0099B27183B79A105154
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ NG. Жизнь до рождения: Собаки / In The Womb. Dogs (2009) HD
 magnet:?xt=urn:btih:DD3FC40F1AB05AA07858272ACD9B0591BE19AD33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ NG. По его собственным словам / In His Own Words (2019) HD
 ```bash
 magnet:?xt=urn:btih:629CD1FA33308AA59B756FE091FA8F9DD694A499
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ NG. С точки зрения науки: Секс / Naked Science: What's Sexy
 magnet:?xt=urn:btih:81A5F45A62FED2CF492A19DB4D83ABA21CED610F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ NG. С точки зрения науки: Пули / Naked Science: Bullets (20
 ```bash
 magnet:?xt=urn:btih:8C24E7B3BA07A1A3BD8BA16D2D9B957F643D7A8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ NG. Осушить океан: Тайны начала операции / Drain 
 magnet:?xt=urn:btih:79D8133F8898B91DE141159877CB248BD97DAE5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ NG. Осушить океан: Тайны начала операции / Drain 
 magnet:?xt=urn:btih:A82015CDF92D7620292DB6F40B2C7C22D62427EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ NG: Как это связано? От мечей до беспилотнико�
 ```bash
 magnet:?xt=urn:btih:7AB241E2C20EDFFEE5521E5A69C3E26EB0A646FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ NG. Хранители Природы / Guardian of Nature (2005) HDTVRip [H.264
 magnet:?xt=urn:btih:49D819CDD1F33DCE922E9413CFE06A95083F59FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ NG. Настольная книга диктатора / Dictators Rulebook (201
 ```bash
 magnet:?xt=urn:btih:BC31741E58EE841F3C1DC3BC03E4B9E8AE3ECA62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ NG. Настольная книга диктатора / Dictators Rulebook (201
 magnet:?xt=urn:btih:BD5F464D1E769B6848917F4D25B0E02E837D9612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ NGW: Человек против монстра / Man vs Monster (2011-2012) HDT
 ```bash
 magnet:?xt=urn:btih:99A3E61CDDC6130BE4E2CEB1E8C7652BD5490F12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ NG. Вампиры в Венеции / Vampires in Venice (2010) HDTV [H.264/108
 magnet:?xt=urn:btih:BC10DD31A0524548653AEEE974460BBC26BF92CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ NG:Королева тигров / Tiger Queen (2010) HDTVRip[H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:1BFD58648161BCCCB8508B9A1551A0B80EC19833
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ NG:Армия львов: Битва за выживание / Lion Army. Battle
 magnet:?xt=urn:btih:3A91EA1BB83C2155AD0CF9588DDE34DE7C35E8FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ NGW: Секретное королевство Борнео: странные и
 ```bash
 magnet:?xt=urn:btih:989FBF9E9CCA29AFB9315540FFC8900AB27CA198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:989FBF9E9CCA29AFB9315540FFC8900AB27CA198
 magnet:?xt=urn:btih:EC7302AD96ADBFC7396C1818C4F17EDE2FE87046
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:EC7302AD96ADBFC7396C1818C4F17EDE2FE87046
 ```bash
 magnet:?xt=urn:btih:1F1C237984CCEC3A78CF7D4DD06C7EA4BD221284
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ NGW: Убийцы с большого озера / The lakeshore Killers (2015) 
 magnet:?xt=urn:btih:D21EECFCE841EB2517F2C83B5D05F6825D682140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ NGW. Тигр в бегах / Tiger on the Run (2015) HDTV [H.264/1080i]
 ```bash
 magnet:?xt=urn:btih:99458BDAF2CCE926940D903C5D581D4A37D4F660
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

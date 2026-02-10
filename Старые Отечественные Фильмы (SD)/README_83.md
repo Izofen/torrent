@@ -1,3 +1,30 @@
+###  Публикация: 1372036   (1009264) от 26.06.2021
+
+Поколение победителей (1936) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1009264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм охватывает события 1896-1905 годов — от первых революционных сходок до вооруженного московского восстания рабочих на Красной Пресне, названного впоследствии Кровавым воскресеньем.
+Петербургские студенты Александр Михайлов и Евгений Светлов, крестьянская девушка Варвара Постникова, приехав в Москву, проходят сложный путь революционеров-подпольщиков.Производство: СССР / МосфильмЖанр: Драма, ИсторияРежиссер: Вера СтроеваАктеры: Николай Хмелев, Осип Абдулов, Георгий Черноволенко, А. Горлунов, Владимир Канделаки, Вера Марецкая, Николай Плотников, Борис Щукин, Н. Смельникова, Владимир СоловьевСубтитры: отсутствуютПродолжительность: 01:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F27D1E44850C51A6E335DEC6A1F3BD6C949DEB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1479753   (1009386) от 25.06.2021
 
 Впервые замужем (1979) DVDRip [H.264]
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:0738F34AB7FA7DCDF4D249D9676E39C6B0B9BF24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +73,8 @@ magnet:?xt=urn:btih:0738F34AB7FA7DCDF4D249D9676E39C6B0B9BF24
 magnet:?xt=urn:btih:C74289F84F107AFF39CA9F0F8F7F766172AD5048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +98,8 @@ magnet:?xt=urn:btih:C74289F84F107AFF39CA9F0F8F7F766172AD5048
 ```bash
 magnet:?xt=urn:btih:5B3BE1A9A3A06364C4C9A121D72C125055BEAFAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:5B3BE1A9A3A06364C4C9A121D72C125055BEAFAE
 magnet:?xt=urn:btih:D3FB70BCB0F269B621B26027B6F3623EAAF44756
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ magnet:?xt=urn:btih:D3FB70BCB0F269B621B26027B6F3623EAAF44756
 ```bash
 magnet:?xt=urn:btih:3B6FCAD7F590FBE4195AC68053F13822F082777E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:3B6FCAD7F590FBE4195AC68053F13822F082777E
 magnet:?xt=urn:btih:057D350A122ACAA2E977D158BA9356A0092CFA98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:057D350A122ACAA2E977D158BA9356A0092CFA98
 ```bash
 magnet:?xt=urn:btih:80BBC5ED836CF2F24AE97AE7E949C7640D7A7651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +230,8 @@ magnet:?xt=urn:btih:80BBC5ED836CF2F24AE97AE7E949C7640D7A7651
 magnet:?xt=urn:btih:005A33F2DDF50B9C4A68D16E2CC3A13CB108B4B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +255,8 @@ magnet:?xt=urn:btih:005A33F2DDF50B9C4A68D16E2CC3A13CB108B4B3
 ```bash
 magnet:?xt=urn:btih:F1320CE725BDA5D730E226315C6C9D0802FE3A27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +283,8 @@ magnet:?xt=urn:btih:F1320CE725BDA5D730E226315C6C9D0802FE3A27
 magnet:?xt=urn:btih:A057E2A148C2128D96E6190FFF87FCEB183D5AB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +309,8 @@ magnet:?xt=urn:btih:A057E2A148C2128D96E6190FFF87FCEB183D5AB0
 magnet:?xt=urn:btih:CD5688CF594B7274022F64C3B61969C765C9AF89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +334,8 @@ magnet:?xt=urn:btih:CD5688CF594B7274022F64C3B61969C765C9AF89
 ```bash
 magnet:?xt=urn:btih:7DF3F41E136133BC1242B391FF162DBDABA5D84D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +362,8 @@ magnet:?xt=urn:btih:7DF3F41E136133BC1242B391FF162DBDABA5D84D
 magnet:?xt=urn:btih:0005149870A48D29F96F80DD91BCE43522505345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +387,8 @@ magnet:?xt=urn:btih:0005149870A48D29F96F80DD91BCE43522505345
 ```bash
 magnet:?xt=urn:btih:1BB021599FE333E6C36BC6E2EC97C7EECB224DF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +414,8 @@ magnet:?xt=urn:btih:1BB021599FE333E6C36BC6E2EC97C7EECB224DF5
 ```bash
 magnet:?xt=urn:btih:BA16374E83046DD310829A3D2AA39A7719791B84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +443,8 @@ magnet:?xt=urn:btih:BA16374E83046DD310829A3D2AA39A7719791B84
 magnet:?xt=urn:btih:1F9A96F5EBF877AF57FAA3C054812008DA2B8EE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +468,8 @@ magnet:?xt=urn:btih:1F9A96F5EBF877AF57FAA3C054812008DA2B8EE6
 ```bash
 magnet:?xt=urn:btih:66DD6009E65B8A9808E188984CF4F0BA2697B94B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +495,8 @@ magnet:?xt=urn:btih:66DD6009E65B8A9808E188984CF4F0BA2697B94B
 magnet:?xt=urn:btih:884AB69E6E2576A7AAF75EC80D078C362210C097
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +520,8 @@ magnet:?xt=urn:btih:884AB69E6E2576A7AAF75EC80D078C362210C097
 ```bash
 magnet:?xt=urn:btih:FE7D4CE0ADCE58608E8F22C20E39C167E01CDE39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +548,8 @@ magnet:?xt=urn:btih:FE7D4CE0ADCE58608E8F22C20E39C167E01CDE39
 magnet:?xt=urn:btih:76480EF7E803867168F3AAB8740B8426D044B1FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +573,8 @@ magnet:?xt=urn:btih:76480EF7E803867168F3AAB8740B8426D044B1FD
 ```bash
 magnet:?xt=urn:btih:5DEB807FD78710E3FF90377768E0BD4E3E0A5AC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +601,8 @@ magnet:?xt=urn:btih:5DEB807FD78710E3FF90377768E0BD4E3E0A5AC7
 magnet:?xt=urn:btih:6B44AFAADA6A61B93561F8B7C42B3A1E014A745E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +627,8 @@ magnet:?xt=urn:btih:6B44AFAADA6A61B93561F8B7C42B3A1E014A745E
 magnet:?xt=urn:btih:EA288CFDB46383D0A98CAB610C9476899190E011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +652,8 @@ magnet:?xt=urn:btih:EA288CFDB46383D0A98CAB610C9476899190E011
 ```bash
 magnet:?xt=urn:btih:DF6215CFC65AF424D255841B04614935035D8B42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +680,7 @@ magnet:?xt=urn:btih:DF6215CFC65AF424D255841B04614935035D8B42
 magnet:?xt=urn:btih:F46E7BC9420D4A56237CC9AC747F94CA121B9421
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462197   (1021274) от 13.04.2021
-
-Цену смерти спроси у мертвых / Surma hinda kusi surnutelt (1977) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1021274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повесть о трагических судьбах эстонских коммунистов, возглавивших восстание против буржуазного правительства в декабре 1924 года.Производство: СССР / ТаллинфильмЖанр: ДрамаРежиссер: Кальё КийскАктеры: Юозас Киселюс, Гедиминас Гирдвайнис, Мария Клёнская, Элле Кулль, Энн Краам, Пол Лаасик, Калью Комиссаров, Микк Микивер, Мари Лилль, Рудольф АллабертСубтитры: Русские, английские (отдельно)Продолжительность: 01:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:855B51BD10B40CA8E7DBD36EE0C4F1D6CD3B5AC9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

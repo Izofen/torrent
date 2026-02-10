@@ -1,3 +1,29 @@
+###  Публикация: 1327473   (374230) от 25.09.2019
+
+Евгений Щепетнов | Военачальник (2019) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_374230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Страшная беда накатила на некогда мирную Истрию. Внутреннее междоусобное противостояние переросло в жестокую борьбу с внешним врагом, высадившимся на материке. Плетутся заговоры, толпы кровожадных воинственных соседей Истрии, обладающих магическими способностями, убивают ее защитников. Последняя надежда империи – Влад, ранее земной человек, а теперь воин и маг. Сумеет (   Читать дальше...   )Жанр: Героическое фэнтези, Книги про волшебников, ПопаданцыПродолжительность: 10:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEE5FE3BD3199BF9C250673E8B51018ED73E783C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327097   (374232) от 25.09.2019
 
 Юрий Москаленко, Алекс Нагорный | Берсерк забытого клана. Скрижаль (2019) [MP3]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:4A8BF46BCABFA6FF860DCCDF991A045D59544CBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:4A8BF46BCABFA6FF860DCCDF991A045D59544CBC
 magnet:?xt=urn:btih:7B2B865F57DEF795904A6DCB5130CDC0003DFE0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +102,8 @@ magnet:?xt=urn:btih:7B2B865F57DEF795904A6DCB5130CDC0003DFE0E
 magnet:?xt=urn:btih:F7A42CCC873E80158546DD5DEE0322ED939D0FC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:F7A42CCC873E80158546DD5DEE0322ED939D0FC6
 ```bash
 magnet:?xt=urn:btih:684C418CE585C0C5DEBDCE783C5D35CD4660A0F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:684C418CE585C0C5DEBDCE783C5D35CD4660A0F0
 magnet:?xt=urn:btih:196895A7FDB68EF9A0D7CCA9CD24DBA644BFD9C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:196895A7FDB68EF9A0D7CCA9CD24DBA644BFD9C1
 ```bash
 magnet:?xt=urn:btih:AC87A3A8D255A06BC7F6BDDEB595798B4464ECF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:AC87A3A8D255A06BC7F6BDDEB595798B4464ECF9
 magnet:?xt=urn:btih:23A2564AA4BA50997026A5E703233ED06B47DAA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:23A2564AA4BA50997026A5E703233ED06B47DAA4
 magnet:?xt=urn:btih:9E1F5A162188D5E94A5A4381B7F517EA3A890A9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:9E1F5A162188D5E94A5A4381B7F517EA3A890A9A
 ```bash
 magnet:?xt=urn:btih:1E9A870C300321E18BB824D68BEE15F83FE01239
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +288,8 @@ magnet:?xt=urn:btih:1E9A870C300321E18BB824D68BEE15F83FE01239
 magnet:?xt=urn:btih:1B33F08122069F419E6998B70319AD3389D58069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:1B33F08122069F419E6998B70319AD3389D58069
 ```bash
 magnet:?xt=urn:btih:97041E929DB7F5F0DEC4F8DADF08148401D7B5A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:97041E929DB7F5F0DEC4F8DADF08148401D7B5A9
 magnet:?xt=urn:btih:51CBFB41111E28122F03DD37CFB29691B684626E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:51CBFB41111E28122F03DD37CFB29691B684626E
 ```bash
 magnet:?xt=urn:btih:0FCE697A1F19E7F6ADDC24AE6046BF8DD22F5D05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +393,8 @@ magnet:?xt=urn:btih:0FCE697A1F19E7F6ADDC24AE6046BF8DD22F5D05
 magnet:?xt=urn:btih:B7A359233260BD3B258781F5E5B2733D504100A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:B7A359233260BD3B258781F5E5B2733D504100A1
 ```bash
 magnet:?xt=urn:btih:C3485CA2A97B79095251871EFDB21D840F6A26F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:C3485CA2A97B79095251871EFDB21D840F6A26F0
 magnet:?xt=urn:btih:A339D784CF7CC60D99FD75E75AAFFE090CE4672E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:A339D784CF7CC60D99FD75E75AAFFE090CE4672E
 ```bash
 magnet:?xt=urn:btih:80CDE7BC5921A989A57F2BA28DD7D3E116B83CDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:80CDE7BC5921A989A57F2BA28DD7D3E116B83CDC
 magnet:?xt=urn:btih:1D70201DA6580ABE46B2C98F856B13233DD73E05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:1D70201DA6580ABE46B2C98F856B13233DD73E05
 magnet:?xt=urn:btih:52E203D29E7A1D709CDED5860A474BC2FF93FAAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:52E203D29E7A1D709CDED5860A474BC2FF93FAAF
 ```bash
 magnet:?xt=urn:btih:E189BA688CA198015B1FE0A04894A3B77CDCBCA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:E189BA688CA198015B1FE0A04894A3B77CDCBCA7
 magnet:?xt=urn:btih:40AD6591FCAC3765178C9AEBFC2AEDDAE0F5ED77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:40AD6591FCAC3765178C9AEBFC2AEDDAE0F5ED77
 ```bash
 magnet:?xt=urn:btih:092F08D729D0CE71D6513C76719D3B5B7FFC7CFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:092F08D729D0CE71D6513C76719D3B5B7FFC7CFC
 magnet:?xt=urn:btih:8642D96557360C14C614861B38897AAF002BBFE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:8642D96557360C14C614861B38897AAF002BBFE2
 ```bash
 magnet:?xt=urn:btih:40DA89447B6C8B063EF3B9EB1895C0636C9BE967
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:40DA89447B6C8B063EF3B9EB1895C0636C9BE967
 magnet:?xt=urn:btih:90BECDF65A102866637B1435C79F09ECED7446B5
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575313   (376894) от 09.09.2022
-
-Игорь Негатин | Лишнее золото (Книга 2). Без права на выбор (2022). [MP3, TED]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_376894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта история началась тогда, когда карты Нового мира пестрели белыми пятнами и лишь самые отчаянные рисковали отправиться в путь. Они открывали земли и города там, где «кончается география». Они искали золото и отбивались от нападения бандитов. Списки переселенцев содержали сухие строчки потерь, а драгоценный металл превращался в ничто. Лишние люди. Лишнее золото. (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыПродолжительность: 09:25:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA819DCDB2BB7912B3AD8B191CB142C7A18BD0E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

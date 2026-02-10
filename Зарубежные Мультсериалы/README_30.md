@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6C4A6F56693DFD37E7C7BF24836708EDC003A9FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Lego Эльфы / Lego Elves (2015) WEBRip (серии 1-4)
 ```bash
 magnet:?xt=urn:btih:E914A23855382E1EE332BB0DF2C14DA255084AB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:E914A23855382E1EE332BB0DF2C14DA255084AB2
 magnet:?xt=urn:btih:D44F364BBDE844164C0DD2ADE4A9E934958A598B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:D44F364BBDE844164C0DD2ADE4A9E934958A598B
 ```bash
 magnet:?xt=urn:btih:5FD63ECCF327D97F0679269E3056CC4D3E8DCAE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:5FD63ECCF327D97F0679269E3056CC4D3E8DCAE4
 magnet:?xt=urn:btih:276433C4D5968CDC8838D9B2CA37047F2691423B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:276433C4D5968CDC8838D9B2CA37047F2691423B
 ```bash
 magnet:?xt=urn:btih:E35E568385EF49765C9441E88C2409890CB57EC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:E35E568385EF49765C9441E88C2409890CB57EC7
 magnet:?xt=urn:btih:D828A5BA767E5D1A564B9185D87C973D63BE80A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:D828A5BA767E5D1A564B9185D87C973D63BE80A3
 ```bash
 magnet:?xt=urn:btih:B52AA1DD4678CD4B971DA10B9C1855941EFB45D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:B52AA1DD4678CD4B971DA10B9C1855941EFB45D6
 magnet:?xt=urn:btih:DA8F377034E1AB571C1B99CCEB202E6FD353C4D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:DA8F377034E1AB571C1B99CCEB202E6FD353C4D3
 ```bash
 magnet:?xt=urn:btih:407E743BA8177F77B3098056C506DC68B8E9B151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:407E743BA8177F77B3098056C506DC68B8E9B151
 magnet:?xt=urn:btih:BADA9BBA6E2DDA903678F4F968B3C4BD58308920
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:BADA9BBA6E2DDA903678F4F968B3C4BD58308920
 ```bash
 magnet:?xt=urn:btih:A3882E280EBF413A46ECF8CDE5771D472CD6E274
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:A3882E280EBF413A46ECF8CDE5771D472CD6E274
 magnet:?xt=urn:btih:7CC80CA18FAF45E3668AE412E2751DBDF2C3382F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:7CC80CA18FAF45E3668AE412E2751DBDF2C3382F
 magnet:?xt=urn:btih:BFFD58F408B522B33E70DA63BB48A47B6DF56348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ magnet:?xt=urn:btih:BFFD58F408B522B33E70DA63BB48A47B6DF56348
 ```bash
 magnet:?xt=urn:btih:EEA16E63CCF56AAEDB1703F16AD3720A47768E85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ magnet:?xt=urn:btih:EEA16E63CCF56AAEDB1703F16AD3720A47768E85
 magnet:?xt=urn:btih:FA37FE9C875EDBAC6E5CED71C1B7F7CE150EABC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:FA37FE9C875EDBAC6E5CED71C1B7F7CE150EABC7
 ```bash
 magnet:?xt=urn:btih:9F2F4BF99CBDD2FD7816AA701ABDD00578598D99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ magnet:?xt=urn:btih:9F2F4BF99CBDD2FD7816AA701ABDD00578598D99
 magnet:?xt=urn:btih:EB3B5E187EDCAAC98C5A8CDCA9167A226689FF18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:EB3B5E187EDCAAC98C5A8CDCA9167A226689FF18
 ```bash
 magnet:?xt=urn:btih:B98B2F11031127463DBFA89562B3172E76C778FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:B98B2F11031127463DBFA89562B3172E76C778FB
 magnet:?xt=urn:btih:01CEEB297A7F9C00A2F3C9F44D083D13A73784FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:01CEEB297A7F9C00A2F3C9F44D083D13A73784FA
 magnet:?xt=urn:btih:7A4924A643146FE0EEC6109FAA9858BC4676E8EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ magnet:?xt=urn:btih:7A4924A643146FE0EEC6109FAA9858BC4676E8EB
 ```bash
 magnet:?xt=urn:btih:F133D0A2B09F1200F9F151336A0030B0D865BC94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ magnet:?xt=urn:btih:F133D0A2B09F1200F9F151336A0030B0D865BC94
 magnet:?xt=urn:btih:461B1BD8576F1AC5CD769301FAB5FEA08FFB8093
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ magnet:?xt=urn:btih:461B1BD8576F1AC5CD769301FAB5FEA08FFB8093
 ```bash
 magnet:?xt=urn:btih:E8667BA15F853A4303D49267DD356AC4F46621A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ LEGO Ниндзяго: Мастера кружитцу / LEGO Ninjago: Masters o
 magnet:?xt=urn:btih:D740F32598F2FC71F71EB14FF45DAB65C8DA5861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ magnet:?xt=urn:btih:D740F32598F2FC71F71EB14FF45DAB65C8DA5861
 ```bash
 magnet:?xt=urn:btih:90360EEB218B176270BCA93227D96F3A40713E76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ VA - Cosmic Cubes - A Cosmic Trance Compilation Vol. 1-6 (1994-1997) 6x2CD, Comp
 magnet:?xt=urn:btih:F8927DAAD59DF37DA94ECDB3C69C0A431E8FF9EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:F8927DAAD59DF37DA94ECDB3C69C0A431E8FF9EE
 ```bash
 magnet:?xt=urn:btih:4F44658EC6D23B32C2215599062A88FEB817AF33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ ACDSee Вышла новая версия одной из самых востр�
 magnet:?xt=urn:btih:71CF846940746776BFF88793D2DCB83E173DB198
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:71CF846940746776BFF88793D2DCB83E173DB198
 ```bash
 magnet:?xt=urn:btih:72DFC750A0B96DAC85720F2A5BAC9A44A3AEEFBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Metal Church - Damned If You Do (2018) [MP3|320 Kbps] <Heavy Metal>
 magnet:?xt=urn:btih:384A7903680B26E28083F40E97341AA3A0066642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:384A7903680B26E28083F40E97341AA3A0066642
 magnet:?xt=urn:btih:39B5856A216860901E5C7DFD326FC9E8216F1290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Geek Uninstaller - удобный, маленький и надежный, не 
 ```bash
 magnet:?xt=urn:btih:31F19037B23B5615E2C25AC83E268A475F4CA65C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:31F19037B23B5615E2C25AC83E268A475F4CA65C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ SIP клиент для Android. Не теряет связь с серверо�
 ```bash
 magnet:?xt=urn:btih:FA74510FEC81DD607375A9CE74B8E78641932550
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Dynamic Opener // Short Promo - динамичный проект для вст�
 magnet:?xt=urn:btih:0DBEF5EC050FCB3FB993AFD17EEFECDB7F9A97D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:0DBEF5EC050FCB3FB993AFD17EEFECDB7F9A97D1
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +315,8 @@ Coldplay - Live In Buenos Aires (2018) [MP3|320 Kbps] <Alternative Rock, Indie R
 magnet:?xt=urn:btih:E66C451DB3F4C81A4D9A6734D73923137D1F68B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Dynamic Christmas Slideshow - это прекрасный способ похв�
 ```bash
 magnet:?xt=urn:btih:234FAF13AF708181831C382D50E891E5F017C5EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:234FAF13AF708181831C382D50E891E5F017C5EE
 magnet:?xt=urn:btih:9D32851ECD24AB052992161AE63CEAB533714FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ Particle Backgrounds - это ошеломительное вступление 
 magnet:?xt=urn:btih:FDB3720B865B67734CB9621F9930E691AE7E1BE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:FDB3720B865B67734CB9621F9930E691AE7E1BE8
 ```bash
 magnet:?xt=urn:btih:CB8E8D15DB7486B69E8CA4D5F8EF80DA0E761415
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:CB8E8D15DB7486B69E8CA4D5F8EF80DA0E761415
 magnet:?xt=urn:btih:984D299040AE0252B217875337998744C9D64EF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:984D299040AE0252B217875337998744C9D64EF4
 ```bash
 magnet:?xt=urn:btih:D2F74B41310D4A5F5C02EAE6B8CAE758516099E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:D2F74B41310D4A5F5C02EAE6B8CAE758516099E7
 magnet:?xt=urn:btih:CE3C431D652962E83F2CB0E1DE25FC220086C61B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:CE3C431D652962E83F2CB0E1DE25FC220086C61B
 ```bash
 magnet:?xt=urn:btih:FCF942C7F6CC4A2E875788AD00C25AB03DDB7A07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ Frosty Nights — красивая рождественская игра-стр�
 magnet:?xt=urn:btih:CDC61A92A34B2C9514415ECB3F7E8E8EDD0E662C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:CDC61A92A34B2C9514415ECB3F7E8E8EDD0E662C
 magnet:?xt=urn:btih:09D2FECE8A92DA97E37EE52F511AD28426A28384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Frosty Nights — красивая рождественская игра-стр�
 ```bash
 magnet:?xt=urn:btih:70D9CE760B9DE756D45EF7A292343A4828E85005
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ Nicki Parrott - Moon River (2008) [FLAC|Lossless]<Mainstream Jazz, Vocal Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ Nicki Parrott - Moon River (2008) [FLAC|Lossless]<Mainstream Jazz, Vocal Jazz>
 magnet:?xt=urn:btih:71EC15720BA098EB35618C6FC519CF25C5289E6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Densetsu no Yuusha no Densetsu / The Legend of the Legendary Heroes / Леген
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Skillshare, Joshua Davis | Processing - Programming Graphics II: Generative Art 
 magnet:?xt=urn:btih:58FFF0C4509BBD8612CCCEB046897B3D5FE2AB77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:58FFF0C4509BBD8612CCCEB046897B3D5FE2AB77
 ```bash
 magnet:?xt=urn:btih:0839D42B168A19F6EB230E65A9A079FEDF34B02A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ SLR Lounge | Lighting 101 (2016) PCRec [H.264/1080p-LQ] [EN]
 magnet:?xt=urn:btih:8DE9C652C1FFF354B8341065B4D65F104BFFC4BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:8DE9C652C1FFF354B8341065B4D65F104BFFC4BE
 magnet:?xt=urn:btih:091EA7576CCA6F300C6B730043D4F40ED271064A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Unreal Engine 5 – это продукт компании Epic Games, кото�
 ```bash
 magnet:?xt=urn:btih:E76C1B430CD5A92DD33E64619A4C306C1703C57F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ The Gnomon Workshop, Scott Robertson | Basic Perspective Form Drawing (2015) PCR
 magnet:?xt=urn:btih:4EA935AB947EE38FCC81F5E3A55F26E571D09766
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Yiihuu, Han Yang | Creating A Sci-fi Short Film - The Lander (2018) PCRec [EN, R
 magnet:?xt=urn:btih:B3DA0966C8F160D89FCBC180FADE72E05C63412A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ The Gnomon Workshop, Scott Robertson | How to Render Matte Surfaces Vol. 1-3 (20
 ```bash
 magnet:?xt=urn:btih:2009D34675E5CF053F9E9E409606AF4D64F895B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ The Art of Aaron Blaise, Lyndon Ruddy | The Art of the Storyboard with Lyndon Ru
 magnet:?xt=urn:btih:7ED09461C358FDE672C5B39AAF1352BB94CEC220
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Masterclass, Margaret Atwood | Margaret Atwood Teaches Creative Writing (2018) P
 ```bash
 magnet:?xt=urn:btih:15BB2E9ADFCEF40FFB043F1D406EEA4A934C5F43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Rohan Dalvi | Patterns and textures in Houdini (2020) PCRec [RU]
 magnet:?xt=urn:btih:A95E0B6C8513FB455A279879597FE9D53A6EFA4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ CGcircuit, Florian Bard | Disintegration Effect I - The Head (2020) PCRec [RU]
 ```bash
 magnet:?xt=urn:btih:6C09DE3807C19C6DEFA173CFC61FF2CC0F8EFB75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ CGcircuit, Arihant Gupta | Introduction to Vellum Grains in Houdini (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:CF9345ACFA6A7B9021F49F700890B695D62223D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ riune Films и сценарист/режиссёр Сет Ворли с удов
 magnet:?xt=urn:btih:BF3D3A2A06692B39F649C00928CEAA62B4BD2B85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Udemy | Java. Клиент-серверное приложение. Многоп
 ```bash
 magnet:?xt=urn:btih:6C5D40A97CB7DBE65C3CDDCC4438B21413866A65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:6C5D40A97CB7DBE65C3CDDCC4438B21413866A65
 magnet:?xt=urn:btih:7B2DE870F2DF7437532083D19CA349F6D16EEF19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ Lynda.com | Использование регулярных выражений (
 ```bash
 magnet:?xt=urn:btih:C034D0E9F95F0B5102B6EBF400B8F961B5B77B13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:C034D0E9F95F0B5102B6EBF400B8F961B5B77B13
 magnet:?xt=urn:btih:7B5292002C3E92A32BC0F62BEF7ED56F28AA5C0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:7B5292002C3E92A32BC0F62BEF7ED56F28AA5C0F
 ```bash
 magnet:?xt=urn:btih:623765F964E2573A942C80C7D42DB7CD1766A9AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:623765F964E2573A942C80C7D42DB7CD1766A9AB
 magnet:?xt=urn:btih:4CCBBE15924F68DABD497298458EF7DAF0D6A3AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:4CCBBE15924F68DABD497298458EF7DAF0D6A3AF
 magnet:?xt=urn:btih:61BC9BF7D86067BB130A16CCDF8811BCFAE00983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ Udemy | Игры со спрайтами на C# (2018) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:E36CA4F12F46C7215CBC3AD024F2D64C942678CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ magnet:?xt=urn:btih:E36CA4F12F46C7215CBC3AD024F2D64C942678CE
 magnet:?xt=urn:btih:B8FD175A6B6774336C1BFCF553E5E83FA1CC28F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ Convert Monster | Эффективный Яндекс.Директ 2.0 (2015) PC
 magnet:?xt=urn:btih:22E4C8C1C8D239A44B361ADAB3AD023C6DD94978
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ Ellery Connell | Модо 701 Базовый тренинг/ Modo 701 Essential 
 ```bash
 magnet:?xt=urn:btih:A34EA16F54FB2E6D73E2A54EE41C87F1A769715B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:A34EA16F54FB2E6D73E2A54EE41C87F1A769715B
 ```bash
 magnet:?xt=urn:btih:ADCECECB1F9A0ED675E73C76FD21157C83986727
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

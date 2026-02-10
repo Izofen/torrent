@@ -22,6 +22,8 @@ PicPick Tools - весьма полезное приложение, объеди
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ Meek Mill - Dreamchasers 2 (2012) [MP3|192 кб/с]<Southern Rap, Hip-Hop>
 magnet:?xt=urn:btih:AD68C74EF84A22A08E4BF30773B546AA5833724A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -83,6 +87,8 @@ magnet:?xt=urn:btih:AD68C74EF84A22A08E4BF30773B546AA5833724A
 magnet:?xt=urn:btih:2BD76935A3927E28348D5882763D16C8506CB4B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -107,6 +113,8 @@ magnet:?xt=urn:btih:2BD76935A3927E28348D5882763D16C8506CB4B3
 ```bash
 magnet:?xt=urn:btih:0D8EE18145EA783DC96CEF97716BF2E2534961B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +147,8 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #85 (17.05.2012)
 magnet:?xt=urn:btih:2D4564580B8E9CC0C28EBCBD23E3A62FDDDB7E47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +177,8 @@ magnet:?xt=urn:btih:2D4564580B8E9CC0C28EBCBD23E3A62FDDDB7E47
 magnet:?xt=urn:btih:C171628097EDCA9824C006DD86EC61004760AE0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +202,8 @@ magnet:?xt=urn:btih:C171628097EDCA9824C006DD86EC61004760AE0F
 ```bash
 magnet:?xt=urn:btih:03DFB25E46C77FAC5B4E3CA03D338A1CC06ABDB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +238,8 @@ VA - Водила, трогай! (2012) [MP3|256 кб/с]<Шансон>
 magnet:?xt=urn:btih:2ACFBF318FA72DB39D63117918DD57BE989CD571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +264,8 @@ magnet:?xt=urn:btih:2ACFBF318FA72DB39D63117918DD57BE989CD571
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +289,8 @@ magnet:?xt=urn:btih:2ACFBF318FA72DB39D63117918DD57BE989CD571
 ```bash
 magnet:?xt=urn:btih:3AB7C79E136802805D064AC40E1896DD9AAFC9E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +325,8 @@ Don Redman - Don Redman and His Orchestra (1936-1939) (1991) [FLAC|Lossless]<Swi
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +355,8 @@ Don Redman - Don Redman and His Orchestra (1936-1939) (1991) [FLAC|Lossless]<Swi
 magnet:?xt=urn:btih:40C42CD0DD8083184B7BC1FC0813E9551BEE863E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +380,8 @@ magnet:?xt=urn:btih:40C42CD0DD8083184B7BC1FC0813E9551BEE863E
 ```bash
 magnet:?xt=urn:btih:55744804F9228AFAFF0443FE67FC3BC1AD4C2066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +407,8 @@ magnet:?xt=urn:btih:55744804F9228AFAFF0443FE67FC3BC1AD4C2066
 magnet:?xt=urn:btih:D21B5556C4DFE4CA942D72AFCD332086A96418F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +432,8 @@ magnet:?xt=urn:btih:D21B5556C4DFE4CA942D72AFCD332086A96418F7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +464,8 @@ magnet:?xt=urn:btih:D21B5556C4DFE4CA942D72AFCD332086A96418F7
 magnet:?xt=urn:btih:C062888DB58FF8623192DDE5320493887B8D3D1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +491,8 @@ magnet:?xt=urn:btih:C062888DB58FF8623192DDE5320493887B8D3D1E
 ```bash
 magnet:?xt=urn:btih:82D7CF4537962E8FF228770DE8EFBCF12467D7FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +521,8 @@ High Contrast - The First Note Is Silent (2011) EP [FLAC|Lossless|WEB-DL|tracks]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +547,8 @@ High Contrast - The First Note Is Silent (2011) EP [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:6CC1808C9EA3398C7833CBF4EAD465C0751771D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ magnet:?xt=urn:btih:6CC1808C9EA3398C7833CBF4EAD465C0751771D0
 ```bash
 magnet:?xt=urn:btih:BFE7B45298CB8C0CDC64F5D8ED55651B3A260A05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +608,8 @@ VA - Последние новинки в мире музыки от Vanovlad 50
 magnet:?xt=urn:btih:9B646F137C13C0192F73D49BEE2627BCA6563DF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +633,8 @@ magnet:?xt=urn:btih:9B646F137C13C0192F73D49BEE2627BCA6563DF8
 ```bash
 magnet:?xt=urn:btih:1453854C555C57D9697ABC879B2259F2CD735D03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +669,8 @@ Disc 1
 magnet:?xt=urn:btih:B4A872124A3E92F1E1763358700C5EC2FE1BB90F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +694,8 @@ magnet:?xt=urn:btih:B4A872124A3E92F1E1763358700C5EC2FE1BB90F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +721,8 @@ magnet:?xt=urn:btih:B4A872124A3E92F1E1763358700C5EC2FE1BB90F
 magnet:?xt=urn:btih:F5372A7878694DCC8B2A1721010D0818A5577AAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ magnet:?xt=urn:btih:F5372A7878694DCC8B2A1721010D0818A5577AAF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

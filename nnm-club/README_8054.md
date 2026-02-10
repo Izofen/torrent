@@ -19,6 +19,8 @@ CPU-Z способен показать различную информацию 
 magnet:?xt=urn:btih:B210A08E2A853689288561949997F3AE8F73AF39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:B210A08E2A853689288561949997F3AE8F73AF39
 ```bash
 magnet:?xt=urn:btih:90D032BD11FE6FCCCCA76583F4E0EBE106767D62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:90D032BD11FE6FCCCCA76583F4E0EBE106767D62
 magnet:?xt=urn:btih:661510BEE5247D35C3B11738DC1492F9DB736991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ ExamDiff - мощная и легкая в использовании прогр
 ```bash
 magnet:?xt=urn:btih:75F3455842EA6A9C676C32F43277F7133B0287F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:75F3455842EA6A9C676C32F43277F7133B0287F8
 magnet:?xt=urn:btih:A51DDFE600DE14C8A752E1CBB630BED3F54F0FD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ MAX 8 - это визуальный язык программирования д
 ```bash
 magnet:?xt=urn:btih:6DBFDDD08E69996BDD9C2356169E33EDFE361FFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:6DBFDDD08E69996BDD9C2356169E33EDFE361FFB
 magnet:?xt=urn:btih:4B318F2A71923E7A0E1E5B4D0FC5AE749178C866
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:4B318F2A71923E7A0E1E5B4D0FC5AE749178C866
 ```bash
 magnet:?xt=urn:btih:91497B0749741FC60E0FF0ED2DCC21BEC162F8A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Dead Animal Assembly Plant - Bring Out The Dead (2021) [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:61554EF801906F6398460E3E46B82322AADA103A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:61554EF801906F6398460E3E46B82322AADA103A
 ```bash
 magnet:?xt=urn:btih:64F65A8F16E622F62D97384776527F3CA4C7F3C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ Irrlicht - Feuerkind (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Darkwave>
 magnet:?xt=urn:btih:4AC735EC51BD198404D62DEB8A1A7AEC7F5BB88B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Vivaldi 2.11.1811.52 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:4D7B5A4EF6864F31F76C20FAEBC166FC7F61D645
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:4D7B5A4EF6864F31F76C20FAEBC166FC7F61D645
 magnet:?xt=urn:btih:45BEA3D073FBF41058AFFD5F9C38E1105B436294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:45BEA3D073FBF41058AFFD5F9C38E1105B436294
 ```bash
 magnet:?xt=urn:btih:F190336132C3E34395644C3DE7E58AE511A3FAFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ Arctic Rain - Unity (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodi
 magnet:?xt=urn:btih:7FF00920A6BAD6ED6D863312439D0D352751AF4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ AIMP 5.11 Build 2428 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1525C8043266C2BE4589B829382AE594E28F363A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ Marty Stuart And His Fabulous Superlatives - Altitude (2023) [FLAC 24/48|Lossles
 magnet:?xt=urn:btih:92320F8EABA778252C89B05695EBBEE75311CD57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ VA - Female Pop Hits (2020) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:78E25960509CC2223B7904AC7BF6D69199D7ED4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ Elle, женский журнал о моде и моде в мире. Его с
 ```bash
 magnet:?xt=urn:btih:4984CA6CB596DD15F6CCD26603D15E08B26D9BD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:4984CA6CB596DD15F6CCD26603D15E08B26D9BD7
 magnet:?xt=urn:btih:B6946C17E6AA14DBA2A5E33F8EDB71F4CCE741BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:B6946C17E6AA14DBA2A5E33F8EDB71F4CCE741BB
 ```bash
 magnet:?xt=urn:btih:351C8B41929C0CC3014ED929597F34114340FF8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ Siena Root - Revelation (2022) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock, Psychod
 magnet:?xt=urn:btih:775232CAE39CCCD6143EACB95F75E9ECC8CC3795
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ VA - Sunday Afternoon, Vol. 3 (20 Lovely Lounge Cookies) (2017) [AAC|~332 Kbps] 
 ```bash
 magnet:?xt=urn:btih:617C52031504BCB3845B1169CAFC733854179573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ Ernie And The Automatics - Low Expectations (2009) [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:153238ACBD2155BFEAB519A9DD9174749C844E04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ Helestios - Road to Ecstasy (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, 
 magnet:?xt=urn:btih:AE7B11D555903E3C99B9190ECC8B76F50A4A7ADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ magnet:?xt=urn:btih:AE7B11D555903E3C99B9190ECC8B76F50A4A7ADE
 ```bash
 magnet:?xt=urn:btih:38B864B0C18F050487EC446FD8CB6959E9062F3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

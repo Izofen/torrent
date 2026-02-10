@@ -1,3 +1,138 @@
+###  Публикация: 604211   (996373) от 17.01.2013
+
+Текстуры - Коричневая кожа [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Текстуры кожи в коричневых тонах для Вашего творчества.
+Автор: DiZaРазрешение файлов: от 1024х767 до 3744х5616
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4C9270387C507AF3DB137413B79D8C0A20829AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604369   (996379) от 17.01.2013
+
+Шаблоны - Исходники Валентинки [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_996379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многослойные PSD исходники высокого разрешения.Разрешение файлов: от 5000х3750 до 6000х7600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:458CA0B210844B15406675E82AD561EE0ECE3E70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604294   (996390) от 17.01.2013
+
+Текстуры - Классические и старинные ковры [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Коллекция текстур классических и старинных ковров для Вашего творчества.
+1507 JPG
+Автор: TramplinРазрешение файлов: от 550х858 до 1600х1783
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B387DA02569BC04C661FB273A3C88E776513B58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604352   (996410) от 17.01.2013
+
+Фоны - Винтажные фоны [JPEG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Винтажные фоны для Вашего творчества.
+Автор: ZirkonwebРазрешение файлов: от 1500х1195 до 4700х3295
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E588FB690EDBCE6A8187D09227048075DF1B3B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604227   (996411) от 17.01.2013
+
+Растровый клипарт - Зимние птички - снегири, синички [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Всевозможные очаровательные зимние птички в коллекции клипарта "Зимние птички - снегири, синички"
+Дизайн подборка: NatalivesnaРазрешение файлов: от 800х740 до 2115х2126
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24902ADD23B779354230E344A3355CA676730A04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604528   (996412) от 17.01.2013
 
 Рамки - Рамки-календари на 2013 год для влюблённых [PSD]
@@ -18,6 +153,8 @@
 ```bash
 magnet:?xt=urn:btih:05415BC286D29CE7F9C834630D9509BC5E06BE86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +181,8 @@ magnet:?xt=urn:btih:05415BC286D29CE7F9C834630D9509BC5E06BE86
 magnet:?xt=urn:btih:D1E64C47BC0F704AF86EE9A3BAAD7064DF0ADD96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +207,8 @@ magnet:?xt=urn:btih:D1E64C47BC0F704AF86EE9A3BAAD7064DF0ADD96
 ```bash
 magnet:?xt=urn:btih:86E34514EE897E1F68F656269A5A6EEAB1F7A03B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +235,8 @@ magnet:?xt=urn:btih:86E34514EE897E1F68F656269A5A6EEAB1F7A03B
 magnet:?xt=urn:btih:D24508210673F0EC60F86B8D3B3ABA2B43B562DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +260,8 @@ magnet:?xt=urn:btih:D24508210673F0EC60F86B8D3B3ABA2B43B562DF
 ```bash
 magnet:?xt=urn:btih:4903305A01AC50B6917A73E411BA1B39DD6E2D5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +288,8 @@ magnet:?xt=urn:btih:4903305A01AC50B6917A73E411BA1B39DD6E2D5A
 magnet:?xt=urn:btih:68DB0E79CDA86D1ACE5A7E19D5B5AA867F4FCB1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +314,8 @@ magnet:?xt=urn:btih:68DB0E79CDA86D1ACE5A7E19D5B5AA867F4FCB1B
 ```bash
 magnet:?xt=urn:btih:A2048C97E6B1E4B6B0FB4D6957A6142A5FE9A175
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +342,8 @@ magnet:?xt=urn:btih:A2048C97E6B1E4B6B0FB4D6957A6142A5FE9A175
 magnet:?xt=urn:btih:1320F94A642B609723C96B710DAC76100907B2A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +368,8 @@ magnet:?xt=urn:btih:1320F94A642B609723C96B710DAC76100907B2A4
 ```bash
 magnet:?xt=urn:btih:0AF313A862D400FBBE866FC2899F690C9ACF794F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +396,8 @@ magnet:?xt=urn:btih:0AF313A862D400FBBE866FC2899F690C9ACF794F
 magnet:?xt=urn:btih:BF6FF12059C20B40D0BCB40620B716D3F40B1A40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +421,8 @@ magnet:?xt=urn:btih:BF6FF12059C20B40D0BCB40620B716D3F40B1A40
 ```bash
 magnet:?xt=urn:btih:800B839D98C97E6375C3D4D2E37C1D62E23A03CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +449,8 @@ magnet:?xt=urn:btih:800B839D98C97E6375C3D4D2E37C1D62E23A03CF
 magnet:?xt=urn:btih:3C485B604CBDA8FF65EB03E83488F74F6ED471E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +474,8 @@ magnet:?xt=urn:btih:3C485B604CBDA8FF65EB03E83488F74F6ED471E9
 ```bash
 magnet:?xt=urn:btih:6C6DD25ADEA60B82D9BCD6393C73EF80CC1C3073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +501,8 @@ magnet:?xt=urn:btih:6C6DD25ADEA60B82D9BCD6393C73EF80CC1C3073
 magnet:?xt=urn:btih:5387677CB072D648399A5042653CD2CE74BC5153
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +526,8 @@ magnet:?xt=urn:btih:5387677CB072D648399A5042653CD2CE74BC5153
 ```bash
 magnet:?xt=urn:btih:E4DE4E835F3C86DFB42766B12755BAE1B04C148E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +554,8 @@ magnet:?xt=urn:btih:E4DE4E835F3C86DFB42766B12755BAE1B04C148E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +579,8 @@ magnet:?xt=urn:btih:E4DE4E835F3C86DFB42766B12755BAE1B04C148E
 ```bash
 magnet:?xt=urn:btih:D2FEFC48086486E45CBC514ECD63270DA9452477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +607,8 @@ PSD исходники В День Святого Валентина,
 magnet:?xt=urn:btih:4C504E8078CB3E2549BE5C46E5C8ACFB3FF88E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +632,8 @@ magnet:?xt=urn:btih:4C504E8078CB3E2549BE5C46E5C8ACFB3FF88E29
 ```bash
 magnet:?xt=urn:btih:BA5C533C2B931E08F1093403DE83043FBA5FE4B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +664,8 @@ Fully Editable Eps and Ai files CMYK 3,5X2,0 Print Ready Files Horizontal CardР
 ```bash
 magnet:?xt=urn:btih:E9E568E4E606458B0360129C92E7CEFEA3EDD580
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,139 +700,7 @@ For those who make a difference in highlighting the seriousness and professional
 magnet:?xt=urn:btih:D2BAAD2064274235421A8704895BC8C9F62E893E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601640   (997996) от 11.01.2013
-
-Растровый клипарт - Озорные белки [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_997996.jpg" />
-</div>
-
-
-###  Подробнее
-
-PSD многослойный каждная белочка на отдельном слое,
-слои включены.Разрешение файлов: 2500х2500Формат: PSD
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFD53B885DA5A30C9D5A03109A27AD1A85AC8E57
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599398   (998443) от 09.01.2013
-
-Футажи - Film Disk Footage [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998443.jpg" />
-</div>
-
-
-###  Подробнее
-
-FILM DISK FOOTAGE - Aerials 1 (NTSC) : 3.99 Gb
-  FILM DISK FOOTAGE - AMBIENT - SERENITY 1 : 3.15 Gb
-  FILM DISK FOOTAGE - ANIMATION BACKGROUNDS VOL 1 : 2.35 Gb
-  FILM DISK FOOTAGE - Backgrounds 1 (NTSC) : 2.35 Gb
-  FILM DISK FOOTAGE - Born to be Wild 1 (NTSC) : 1.75 Gb
-  FILM DISK FOOTAGE - Business - Business Day1 : 2.84 Gb
-  FILM DISK FOOTAGE - Business - Corporate Espionage 1 : 1.82 Gb
-  FILM DISK FOOTAGE - Business - Home Office 1 : 1.96 Gb
-  FILM DISK FOOTAGE - Business - Meeting of the Minds 1 : 2.50 Gb
-  FILM DISK FOOTAGE - Business Day 1 (NTSC) : 2.63 Gb(   Читать дальше...   )Разрешение файлов: 720x576 / 25 fps
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:269D64214EB0FAA08258BA5FB887A9F580702CD3
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600301   (998448) от 09.01.2013
-
-3d модели - 3DDD Сборник декора [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd.ru, загруженные пользователями оного!
-
-Данный же сборник содержит 67 моделей на тему "Декор", прекрасно подходящих для вставки на пустующие поверхности, такие как журнальный столик, тумбы, полки/стелажи и прочее!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365EE4361BFC9FF390D7C7C8D5C4AF79475A7D5E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600341   (998461) от 09.01.2013
-
-3d модели - 3DDD Посуда [V-Ray|*.max]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник моделей с сайта 3ddd.ru, загруженные пользователями оного!
-
-Данный же сборник содержит 64 модели настольной посуды (ложки/вилки/тарелки/стаканы/вазочки и т.д.)!
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C330EFCF0A1253EBC99C2A68A3A42A15C1668774
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600677   (998555) от 09.01.2013
-
-Текстуры - Золото [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_998555.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор золотых текстурРазрешение файлов: От 1000х1000 до 5200х5200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D267B84B9D05F3864A7986F03910F4996CA31C9
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

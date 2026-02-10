@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:97C5B48DF1EA763D0661E55B3937A9B8A9B68C57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:97C5B48DF1EA763D0661E55B3937A9B8A9B68C57
 ```bash
 magnet:?xt=urn:btih:BEF5C24BA66BE6989CD4C864553395E52DC27239
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:BEF5C24BA66BE6989CD4C864553395E52DC27239
 magnet:?xt=urn:btih:93CF8386EE0DF97345EBAB6C7BF503059BBEA67C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Мурка - 4 18 жиганских хитов русского шансо
 ```bash
 magnet:?xt=urn:btih:FA321220AC3FFE362B61E5DD2AD4A973AE58B151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:FA321220AC3FFE362B61E5DD2AD4A973AE58B151
 magnet:?xt=urn:btih:71B274D6FD70063FF69DB7BEC6E335DF6596A31E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:71B274D6FD70063FF69DB7BEC6E335DF6596A31E
 ```bash
 magnet:?xt=urn:btih:77B5ADFE2A10BB625487FB05F78787397E502ACA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Серия «Блатная  Дискотека» (6) (2008) [FLAC|Lossless
 magnet:?xt=urn:btih:2B703B011AEE396CEE10E07F0AA3EB824689337C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:2B703B011AEE396CEE10E07F0AA3EB824689337C
 ```bash
 magnet:?xt=urn:btih:970B81DDF4AA7FC6046E04E6D0FA88F263979C8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Песни военных лет (2008) [MP3|320 Kbps] <Ретро,Воен
 magnet:?xt=urn:btih:8E2DB7A3B76DC80F9FEA259CC9D1E27AF4F32E91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:8E2DB7A3B76DC80F9FEA259CC9D1E27AF4F32E91
 ```bash
 magnet:?xt=urn:btih:CCDBD20B8CCA01D8385D9D1C5CA80F0DA5BA3DE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:CCDBD20B8CCA01D8385D9D1C5CA80F0DA5BA3DE8
 magnet:?xt=urn:btih:3426717F3CF915149E1B2E5CF20EE88FEBE05F34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - День победы (2010) [FLAC|Lossless] <Военные песни>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - День победы (2010) [FLAC|Lossless] <Военные песни>
 magnet:?xt=urn:btih:94239A724F83863943D9C55BDAE24805D8BD1813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +399,8 @@ magnet:?xt=urn:btih:94239A724F83863943D9C55BDAE24805D8BD1813
 magnet:?xt=urn:btih:76343696F19CD29A138933E1614FA77C54159DEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ VA - Песни военного времени (2011) 3CD [MP3|320 Kbps] <Ре�
 ```bash
 magnet:?xt=urn:btih:103A61E20FEB0144FB8B0CDABA2FE111516A8E6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ magnet:?xt=urn:btih:103A61E20FEB0144FB8B0CDABA2FE111516A8E6F
 magnet:?xt=urn:btih:6E0B6979C16D06C7F7EF81D778FFA062B734490C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +479,8 @@ VA - Наши песни - Песни Победы (2001) [MP3|320 kbps]<Вое�
 ```bash
 magnet:?xt=urn:btih:585426BC79AB65F4731AE708BE222FBB3EFC1B40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +509,8 @@ magnet:?xt=urn:btih:585426BC79AB65F4731AE708BE222FBB3EFC1B40
 magnet:?xt=urn:btih:23B07CF2CF6136E0610DF6AAEB4DFF7DE347B53F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +537,8 @@ magnet:?xt=urn:btih:23B07CF2CF6136E0610DF6AAEB4DFF7DE347B53F
 ```bash
 magnet:?xt=urn:btih:96FA18A8E0F996CDEFFD4C87054663D03F4D9B43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +567,8 @@ VA - Этот День победы (2010) [MP3|320 kbps]<Песни военн�
 magnet:?xt=urn:btih:3BA8EF5144A57B47777985E2A94486A5AEEFDC64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +595,8 @@ magnet:?xt=urn:btih:3BA8EF5144A57B47777985E2A94486A5AEEFDC64
 ```bash
 magnet:?xt=urn:btih:B6CB8FB8F77D48D756E0852AD4453E3F11D6AF64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +625,8 @@ magnet:?xt=urn:btih:B6CB8FB8F77D48D756E0852AD4453E3F11D6AF64
 magnet:?xt=urn:btih:C2DEEECB6681D1C12EED31116753838B9616A77C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +653,8 @@ magnet:?xt=urn:btih:C2DEEECB6681D1C12EED31116753838B9616A77C
 ```bash
 magnet:?xt=urn:btih:EEB1DDFC378527387816F9EF000FBDB838BC1233
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +683,8 @@ magnet:?xt=urn:btih:EEB1DDFC378527387816F9EF000FBDB838BC1233
 magnet:?xt=urn:btih:9B5FC323936F40D509ACBFF210D206AB905DB488
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +712,8 @@ magnet:?xt=urn:btih:9B5FC323936F40D509ACBFF210D206AB905DB488
 magnet:?xt=urn:btih:545A68EA1A8B6F938880E50CAD6A261F5237CE5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +737,8 @@ magnet:?xt=urn:btih:545A68EA1A8B6F938880E50CAD6A261F5237CE5D
 ```bash
 magnet:?xt=urn:btih:10902AE8F2474CB8E5796CD3A7B9DAA49922CDA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

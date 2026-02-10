@@ -19,6 +19,8 @@ Discovery. Дороги России: Трасса Лена (2016) HDTVRip [720p
 magnet:?xt=urn:btih:BB2C6CF9F1C0BBD856B1AB6307C8FCEFD2744399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC: Уникальные способности животных / Super Senses
 ```bash
 magnet:?xt=urn:btih:EC81E685453C9C6FD0F5D2169DC34B1E667E5285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Discovery: Инородные тела / Body Invaders (2014) HDTVRip (Сери�
 magnet:?xt=urn:btih:694D26E6FB62DCCDF66689A41D00DD503E68F4EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Da Vinci Learning: Эко-2. Дизайн / E2.Design (2006) SATRip (сезон�
 ```bash
 magnet:?xt=urn:btih:760C51DFB734DEA2EED6F1AF32BA762331349E08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC. В поисках Бронте / In Search of the Brontes (2003) VHSRip (с
 magnet:?xt=urn:btih:705788D2E25103A5211B620DD000276712EDEB7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 ```bash
 magnet:?xt=urn:btih:402281BF799F7FB4F8B165901F7DE2A6871DDDB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 magnet:?xt=urn:btih:F40083D1D5E5F153B7D8DDD9762AFD7B28A4E100
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 ```bash
 magnet:?xt=urn:btih:373F36F03D65401B34E79ACB2751E915AAA44CC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Discovery Scienceу: Двойники Земли / Alien Planet Earths (2014) HD
 magnet:?xt=urn:btih:A0BEAB08B4BEF72BA8EF0BED848D93AF5FF9EBD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Discovery: Разрушители легенд. Незаконченное де�
 ```bash
 magnet:?xt=urn:btih:D1BB0C77129E4EB0EDD04A96B062EC6C663FF750
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ BBC. История Жизни / BBC. Life Story (2014) (1-6 серии из 6) 
 magnet:?xt=urn:btih:783FE17520E8EF255A20CDC9EC300D92BBF49D87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:783FE17520E8EF255A20CDC9EC300D92BBF49D87
 ```bash
 magnet:?xt=urn:btih:133701F4D909F34D4F5AF5C6D93E6E6D6C513B6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Discovery. Махинаторы (Автодилеры) / Lincoln Continental (20
 magnet:?xt=urn:btih:249DB0C013A5F23AC0D97033C2B37F514EAEB507
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Discovery. Махинаторы (Автодилеры) / Darracq (2014) HDTVRip 
 ```bash
 magnet:?xt=urn:btih:16CD8DC61CF5023B93C4B11F0D5C46CF18462FBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Discovery: Остров с Беаром Гриллсом / The Island with Bear 
 magnet:?xt=urn:btih:B5211FFD2BD1F4C177F11E9D442BB16397506D15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:B5211FFD2BD1F4C177F11E9D442BB16397506D15
 ```bash
 magnet:?xt=urn:btih:CE4D5740B4DACCFC14CDD22040FF2AD9E08CB3E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:CE4D5740B4DACCFC14CDD22040FF2AD9E08CB3E7
 magnet:?xt=urn:btih:31DC05E66A3E68AF6768DDE5FA6F48CC4E913E63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ NG: Мегасооружения: музей Лувр Абу Даби / Megastru
 ```bash
 magnet:?xt=urn:btih:BE8D79C04C76838CCB195855BA46FC483E9B7E43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ NGW: Остров муссонов. Паутина жизни / Island of the Mo
 magnet:?xt=urn:btih:A0537D3790F650016662A0D718B286F945AE9384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ NG: Архитекторы древности / Architects of the Ancient World 
 magnet:?xt=urn:btih:F1AB19D578779A506F922095FCD5548D773DCA16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Discovery. Умельцы против апокалипсиса / Masters of Dis
 ```bash
 magnet:?xt=urn:btih:BFCED5BA0F16310369127F3EC60633962B3C5D1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 magnet:?xt=urn:btih:027EF455BAFB2CB9F95B7FA0AFF5D7A0CDA42951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ BBC: Поразительные чудеса мира / Weird Wonders of the Wor
 magnet:?xt=urn:btih:1AD700CF057DFD2B45FB804E4C58EEDBAABF9E96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Discovery: Как устроена Вселенная / How the Universe Works (
 ```bash
 magnet:?xt=urn:btih:0ADC5B95E447846A357964EEBAF9489CF1AA2FD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Discovery: Речные монстры / River monsters (2017) HDTVRip [H.264/72
 magnet:?xt=urn:btih:6DC267B5B23455078B3AE05FBE90E8850DB4E31E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Discovery: Как это сделано ? / How it's made? (2012) SATRip [Сез
 ```bash
 magnet:?xt=urn:btih:7DF28C9D1C08B2A9FC1BD561202BDEEEBA92948E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

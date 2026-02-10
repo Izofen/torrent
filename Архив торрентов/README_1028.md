@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2C7488175F426BC8C026C31D5DDA4DA13A1B5931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ VA - Новинки сезона от русского шансона Vol.7 (201
 magnet:?xt=urn:btih:D1CFB350D080F7D7A2D441777923B3A8CE9F88A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -83,6 +87,8 @@ Memory Drawings - Music For Another Loss (2012) [FLAC|Lossless]<Electronic, Rock
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +123,8 @@ Fiction - Lifescapes: Guitar For Stress Relief (2011) [MP3|320 кб/с]<Instrume
 magnet:?xt=urn:btih:34ECFE9A262A1359157F970DEE25C6B8B9CE0D86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +149,8 @@ magnet:?xt=urn:btih:34ECFE9A262A1359157F970DEE25C6B8B9CE0D86
 magnet:?xt=urn:btih:52F48E320099A63A0DB908BDAEA832C5B3AF43AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +174,8 @@ magnet:?xt=urn:btih:52F48E320099A63A0DB908BDAEA832C5B3AF43AE
 ```bash
 magnet:?xt=urn:btih:1E47AA6227BDCD62A7A3713FBBC409C0AD4A95C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +204,8 @@ magnet:?xt=urn:btih:1E47AA6227BDCD62A7A3713FBBC409C0AD4A95C4
 ```bash
 magnet:?xt=urn:btih:0DB79CE3519A05DC26E8381C9FA0DF16A857E61E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +237,8 @@ magnet:?xt=urn:btih:0DB79CE3519A05DC26E8381C9FA0DF16A857E61E
 magnet:?xt=urn:btih:D8BCDD3F060A348C153EC25A5716ECA5598C3536
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +268,8 @@ Slovetskii, IzzaBeatzz - Mozaika [EP] (2012) [MP3|320 кб/с]<Rap>
 magnet:?xt=urn:btih:F99793610AD1FA98B98468576090D6E8D1259BD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +294,8 @@ magnet:?xt=urn:btih:F99793610AD1FA98B98468576090D6E8D1259BD9
 magnet:?xt=urn:btih:80520FDAFF59F098CB713940F21D267A4777B08D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +319,8 @@ magnet:?xt=urn:btih:80520FDAFF59F098CB713940F21D267A4777B08D
 ```bash
 magnet:?xt=urn:btih:2E41059FBD71CAE1A9FA6428ACB2806C31B973B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +355,8 @@ VA - The Best Of Chillout Mode (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chill
 magnet:?xt=urn:btih:B43A9656E5154440B42E62F5DCA597132D4DA208
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +390,8 @@ VA - Mutual Respekt Vol.2 (2012) [MP3|320 кб/с]<Techno>
 magnet:?xt=urn:btih:9138047C0ED46873784311AA38182D5C47CD273B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +415,8 @@ magnet:?xt=urn:btih:9138047C0ED46873784311AA38182D5C47CD273B
 ```bash
 magnet:?xt=urn:btih:8820D72573F17A495B57F9BEF157AE3F89D5F059
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +444,8 @@ Juan Demal - Arrival (2012) [MP3|320 кб/с]<Deep House, Minimal>
 ```bash
 magnet:?xt=urn:btih:3CE9694F2D41B16E9B29F4146489B6BDF9A899D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +480,8 @@ DJ Nike Twist - TranceWave 050 Classic @ GTI Radio (20.12.2012) [MP3|320 кб/с
 magnet:?xt=urn:btih:0832A8508F33789AC3E15172A6895ECB8A859E42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +509,8 @@ Marck Schwarze Trane & Stiv Hey - Squermus (11.12.2012) [MP3|320 кб/с]<Techno
 magnet:?xt=urn:btih:C7E0E6E99908F4A3059CC9D795A599CEEA0B075F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +535,8 @@ magnet:?xt=urn:btih:C7E0E6E99908F4A3059CC9D795A599CEEA0B075F
 magnet:?xt=urn:btih:87354EB9430CBC0F35FA166E74482C769CAAEBC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +560,8 @@ magnet:?xt=urn:btih:87354EB9430CBC0F35FA166E74482C769CAAEBC6
 ```bash
 magnet:?xt=urn:btih:0F86A9B31534774FC1D60F89DF99AA32ECA82185
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +594,8 @@ Pierre Santino - Jazzy Sunshine (2010) [MP3|320 кб/с]<Jazzy House, Deep House
 ```bash
 magnet:?xt=urn:btih:2443664E91467DA855ED4955A94AA01A1E4F8A4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +630,8 @@ VA - All Is Plastique (2011) [MP3|320 кб/с]<Deep Techno, Minimal, Tech House,
 magnet:?xt=urn:btih:D1CD9510DAD642573069CD7ED73F987D38D93F3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +664,8 @@ Indesinence – дэт-дум группа из Лондона. Они собр�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -656,6 +700,8 @@ Masterpiece:
 magnet:?xt=urn:btih:3C4461EDD92B8EE0B0754AFE73592E1288155C03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -681,6 +727,8 @@ Rodrigo Atler - Doble Cara (2010) [MP3|320 кб/с]<Deep Techno, Minimal>
 ```bash
 magnet:?xt=urn:btih:D54F41ADCBC3942F838790ADCD94342FE77AFE40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -709,6 +757,8 @@ Krzho - Sandbox EP (2010) [MP3|320 кб/с]<Minimal Techno>
 magnet:?xt=urn:btih:5757E50A367107A4ACD0882B1AD557334EE887B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -735,6 +785,8 @@ Senuelo - Four Episodes (2009) [MP3|320 кб/с]<Dub Techno, Deep House, Minimal
 ```bash
 magnet:?xt=urn:btih:FF4E178DF3CE1AAD9E830BEFB1D9B1F8FE07C760
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

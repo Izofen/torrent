@@ -1,3 +1,32 @@
+###  Публикация: 1156189   (528493) от 06.08.2017
+
+VA - Золотые семидесятые vol. 7-9 (2017) [MP3|192-320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_528493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alvin Stardust - You, You, You
+02. Andrea True Connection - More, More, More
+03. Baccara - The Devil Send You To Lorado
+04. Georges Garvarentz - Woman Is Free (Blonde On Blonde)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 05:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA0ECCE13392376BF27F2B1F48BEED65ECBAB65D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1156143   (528500) от 06.08.2017
 
 VA - Летний Хаус Калейдоскоп Топ 50 (Соmріled bу ZеBуte) (2017) [MP3|320 Kbps] <House, Deep House, Nu Disco>
@@ -21,6 +50,8 @@ VA - Летний Хаус Калейдоскоп Топ 50 (Соmріled bу Z�
 ```bash
 magnet:?xt=urn:btih:55CE7F040FF2EE8046E17A4A65B058E7C5CEE9DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - XXXL блатнячок на радио Шансон (2015) [MP3|256 кб/�
 magnet:?xt=urn:btih:C2B94BB9F50ED722FC725EB38073C53144AC5DCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ The Exotic Guitars - Compilation (2022) [MP3|320 Kbps] <Instrumental>
 ```bash
 magnet:?xt=urn:btih:DD053D060A6FF44493FA3D5F13860DD373C51FD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Funny and Sexy Chill Out (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loun
 magnet:?xt=urn:btih:64EA4D454C70A91CCEE5835AC33F6416D796B49B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Dance Around The World (2015) [MP3|320 кб/с]<Club, Indie Dance, Nu Disco
 ```bash
 magnet:?xt=urn:btih:67F28C44FDC338587DC40B507F190E35D157EBC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Sexy & Deep Feelings (2015) [MP3|320 кб/с]<Deep House, Chillout>
 magnet:?xt=urn:btih:7AEB2FAD967CDEB8A2CA6DF5BB002797C7D93554
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ magnet:?xt=urn:btih:7AEB2FAD967CDEB8A2CA6DF5BB002797C7D93554
 ```bash
 magnet:?xt=urn:btih:632CA9C4F6FBFFD6884F3D3A92B90798D21E7EEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Только хиты Хит FM 6 (2016) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:F322EC4393C0BBB2286C60D4E0E4926314F82E1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +280,8 @@ VA - Promo September Technology (2016) [MP3|256-320 Kbps] <UK Garage, Speed Gara
 ```bash
 magnet:?xt=urn:btih:AAE1D42247CD200959D19FE3E194712C78C099A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +310,8 @@ VA - LUXEmusic - Dance Super Chart Vol.85 (2016) [MP3|192~320 Kbps] <House, Elec
 magnet:?xt=urn:btih:0EF810C8F00C6950F27647FCED4C43AC13EB17B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +338,8 @@ VA - Dancing Machines: Techno House Set (2016) [MP3|320 Kbps] <Minimal, Tech Hou
 ```bash
 magnet:?xt=urn:btih:AC5CDDE7D7BBB8839FE3C9571762D200138ACD15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +368,8 @@ Fair Warning - Beautiful Rock Ballads (Compiled by Виктор31Rus) (2017) [MP
 magnet:?xt=urn:btih:CD9DBE2EF6EAE35BF86E8EA1FA3534B0B11A3B71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +396,8 @@ VA - My Favourite Hits of 1969 (9CD) от DON Music (2017) [MP3|320 Kbps] <Blues
 ```bash
 magnet:?xt=urn:btih:18C6F3B39B5DCEB64C450C3170507222237F1A33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +426,8 @@ VA - Мега Хиты Discoteka 80 (2018) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:0F2CDCE96E835D4E188D4949548249706384B11B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +454,8 @@ VA - EuroDance Party Vol.4 (2017) [MP3|320 Kbps] <Eurodance>
 ```bash
 magnet:?xt=urn:btih:7908E5AC61F1032392CA0A78B83CA5AF748FCDAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +484,8 @@ VA - Record Super Chart #497 (2017) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:98F34E4944C24BD00E0E696B87FDE74D094C3880
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +512,8 @@ VA - Золотые семидесятые vol. 4-6 (2017) [MP3|192-320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:C31F784E517C2E6DD786D2DA971E91F31B2514D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +542,8 @@ VA - Gym Is Better Motivation (2015) [MP3|320 кб/с]<Progressive House, Trance
 magnet:?xt=urn:btih:811C61D8DE235D31BFE3D8F79CA385E4125CA531
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +570,8 @@ VA - Best Of Eurodance (2015) [MP3|224 - 320 кб/с]<Eurodance, Dance>
 ```bash
 magnet:?xt=urn:btih:3B619F4C08C68645FE9BF025E1AE5F790195BB7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +600,8 @@ VA - Sexy Ambient Music (2015) [MP3|320 кб/с]<Ambient, Lounge, ChillOut>
 magnet:?xt=urn:btih:392956A083802785186BBC8D9EE4F3154CEC7830
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +628,8 @@ VA - Summer Breeze (2015) [MP3|320 кб/с]<Vocal, Euro, Club>
 ```bash
 magnet:?xt=urn:btih:D03571B5A491793B2FA5AB4C9EBDD3402C4EA660
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +658,8 @@ VA - Club Nights Summer Edition (2015) [MP3|320 кб/с]<Electro, Future House, 
 magnet:?xt=urn:btih:7CDF5053549C4CE85E0B7C37AFCA9738BFF36642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +686,8 @@ VA - Best Of Trance (2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:BB351E4C1C966D660829813C38DBECD7CC84F0A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +716,8 @@ Bombay Lounge - Sexy Lounge Music Sensuality Chill Songs Summer Collection (2015
 magnet:?xt=urn:btih:B3FA62118110A28A1B8D9D1304E8EA5F9EF27751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,38 +745,7 @@ VA - Download Now (2022) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:3540E0246A761BB83F57F16EDFD91E7FEF17AB0A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532760   (530383) от 11.08.2012
-
-VA-Sky.Fm - Dreamscapes (2010) [MP3|256 кб/с]<Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_530383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond - Good For Me (05:39)
-02. Above & Beyond Pres. Oceanlab - Miracle (06:37)
-03. Above & Beyond Pres. Oceanlab - On The Beach (04:38)
-04. Accadia - Into the Dawn (Accadia Ambient mix) (09:15)
-05. Acoustic Alchemy - Only In My Dreams (05:48)
-06. Activa - This World (07:18)
-07. Adam Novy - Soothing Sunrise (Chill) (02:48)
-08. Adyjay - The only chance (05:37)
-09. Adyjay - Time (05:59)
-10. Aerosoul - Isla Blanca (Aftersun Chill Version) (04:48)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 36:04:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A3BF4EBBD04A3CABA77655E50807DCB30FFDC29
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

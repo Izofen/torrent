@@ -19,6 +19,8 @@ PhotoRoom v4.9.6 b1403 Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:6350B33FFA116DD248312624238837CF296B613C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ EarthView — это динамические обои для рабочего �
 ```bash
 magnet:?xt=urn:btih:C2772272D1203B7B0B88BD32E1A86ED848462247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ PDFCreator –  бесплатная программа для конверти�
 magnet:?xt=urn:btih:B941E8A0C961D4A3983FCD48ACCA8FCD70200C2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Slimjet 43.0.2.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7FBD79496856B278EEE42E2F43E06DA369D4BA3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 magnet:?xt=urn:btih:98EC79FBDD0A580D845F8010CF5301D2A958E052
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ MediaHuman YouTube Downloader 3.9.9.92 (0518) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:2C28F32A1B4875D9CE2C5D4DC598B39214BDD6F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 magnet:?xt=urn:btih:A897AF375FD99B8C014DF56ADB150AB013152E98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ MetaProducts Offline Explorer Enterprise — мощнейшая программ
 ```bash
 magnet:?xt=urn:btih:B27EC1E588ABEE4C2379DA83565166B0C91F28AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Turbo Studio - это программа, которая служит для в�
 magnet:?xt=urn:btih:25EEBA672E326A7F2EFC8B9F291B9D5898CE5194
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 ```bash
 magnet:?xt=urn:btih:F73D5BFC2BA9B555C7A283D4647679D6F12D8082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Foxit PDF Reader - профессиональное приложение для 
 magnet:?xt=urn:btih:AE5C49BD6B04A08C59EDD6DCEA36A1A6261ACDC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:AE5C49BD6B04A08C59EDD6DCEA36A1A6261ACDC9
 ```bash
 magnet:?xt=urn:btih:782DC867EE1182D255FCC1EF70C126FBD6C1D22A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Autorun Organizer - простое в использовании приложе�
 magnet:?xt=urn:btih:A8A8FA83CFD4A859366BB25A4B0BB387D3D55A56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ ES File Explorer (File Manager) — это полнофункциональны�
 ```bash
 magnet:?xt=urn:btih:491A92E5DD73DBB874A3C734AABE60B81C3D9D93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ UpNote - проект, что является платформой для не�
 magnet:?xt=urn:btih:EA010851B7F8EB4DEFD831EB90B7A472548E5BC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ The Euro Truck Simulator 2 дарит вам опыт управления са�
 ```bash
 magnet:?xt=urn:btih:CB512466BFB869A63A2D11D5E48AE68C5C3FB38F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ CPU Temp 1.6.2.0 [En]
 magnet:?xt=urn:btih:46397076487C5A20078E0A0FEBD1CB30222976F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Office Tool Plus - функциональная программа для раб
 ```bash
 magnet:?xt=urn:btih:B98B9B75866F107BEC98D6BDB8CD3354C6DB4285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Windows Manager - это универсальная утилита для Micros
 magnet:?xt=urn:btih:8ABABD3E6670685E7C8A4BAD1267448AB0CAE29B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Microsoft .Net Packages AIO 14.05.24 RePack by xetrin [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8EBE4E56E231AC28854DFE57AACC36D5F8D8CA53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Atlantis Word Processor 4.3.9.5 Repack (& Portable) by elchupacabra [Ru/En]
 magnet:?xt=urn:btih:563A2C9772DE94C25E02A099D0041AB912425338
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Spotify - клиент для прослушивания музыки на од�
 magnet:?xt=urn:btih:32012D4ED265CC815A98DF520FC4CE3DB4A13FF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:84A391E4F01BDBD06C37FB08D9EC7752ED62E6C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 magnet:?xt=urn:btih:A24D6BD549EF502C5557DC290EAF60ABFFC367B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ RAR - это консольное приложение, позволяющее �
 magnet:?xt=urn:btih:E0467BFDBA30A3B4F27B2459380F27A35C8321EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ LibreOffice — мощный офисный пакет, полностью со�
 ```bash
 magnet:?xt=urn:btih:D47C1A656C1FF68DF3274EA238D40BF98DE5BFA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

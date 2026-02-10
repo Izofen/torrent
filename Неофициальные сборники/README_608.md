@@ -1,3 +1,32 @@
+###  Публикация: 1096242   (920981) от 23.01.2017
+
+VA - Empire Records - Club Hit 6 (2017) [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_920981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SRTW feat. Charity Children - Whispering Still (Little Rose Remix)
+02. Groove Insane - Broken Heart (Artful Fox Bootleg Remix)
+03. Mr & Mrs Cactus - Synchronized (Steve Diamond Remix)
+04. Klingande feat. M-22 - Somewhere New (George Kwali Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BEAA8929D93268324D66D171E2C91CFD1B563D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096232   (920985) от 23.01.2017
 
 VA - Empire Records - Chill Out 10 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -21,6 +50,8 @@ VA - Empire Records - Chill Out 10 (2017) [MP3|320 Kbps] <Chillout, Lounge, Down
 ```bash
 magnet:?xt=urn:btih:56A2850364A4F637654630F167EA6C4EDC572E09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Empire Records - Dancenudisco 4 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Dis
 magnet:?xt=urn:btih:481A97EF06190487A21FAD3ED2BD9E93AF10B961
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Stay With Producer Construction (2017) [MP3|320 Kbps] <House,  Progressive,
 ```bash
 magnet:?xt=urn:btih:2BA5068AE05D377C57BBFF6B17B9B027897B4444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +144,8 @@ VA - Попсовый Драйв Весны (2013) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:9FC06404A86967EB30D3F551CFA6AFD5D7F3CB4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -136,6 +173,8 @@ VA - Новички в попсе Vol 2 (2020) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:C6742FB1C1B8DF47E70089C0185394F26CAB7674
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +198,8 @@ VA - Бомба года  хитов (2011) [MP3|128 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:3256B2B3BDF3317542001E5F13469F89F4A34C5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +228,8 @@ VA - Музыка В Машину. Лучшие Хиты (2016) [MP3|256 kbps] <
 magnet:?xt=urn:btih:92C4921624DAA309180F0543CC48CC8F1103A571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +256,8 @@ VA - Beatport Tech House: Electro Sound Pack #24 (2020) [MP3|320 Kbps] <Tech, De
 ```bash
 magnet:?xt=urn:btih:116EB57E4D5CC382DDABC223A6632D4DF13191DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +286,8 @@ VA - 100 Greatest 80s Love Songs (2021) [MP3|320 Kbps] <Pop, Rock, Other>
 magnet:?xt=urn:btih:0F8765CD3F5C412B8A5B48FA6C186318F64A2EE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +314,8 @@ VA - Beatport Techno: Electro Sound Pack #23 (2020) [MP3|320 Kbps] <Techno, Mini
 ```bash
 magnet:?xt=urn:btih:E784FE20C35E59173F076E1884075FC953C33AE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +344,8 @@ VA - 100 Greatest '90s Love Songs (2021) [MP3|320 Kbps] <Pop, Rock, Other>
 magnet:?xt=urn:btih:C44762D261E3EC94D97F147197F9EE17741B3AD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +372,8 @@ VA - Громкие новинки Августа (2021) [MP3|320 Kbps] <Pop, Da
 ```bash
 magnet:?xt=urn:btih:1E671BA831BB5144041126582DEBE3FFE4891FB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +402,8 @@ George Harrison - The Platinum Collection (2021) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:60EBAA8631163F4CB5B08CA1F879C0E7DB803E00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +428,8 @@ Ringo Starr - The Platinum Collection (2021) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:33A8C2CCB5C01D4916A2D81C12E19FCFA0506787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +458,8 @@ VA - Sweet Caramel: Pop Dance Eurobeat (2020) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:E91C89890ABE7EA7540CFB2E5B81F9F62C15BC64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +483,8 @@ VA - Танцевальная тусовка (2011) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:388C598513294DBF493DE21CF9302E36E3F14FD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +513,8 @@ VA - Beats Mix Jungle (2020) [MP3|320 Kbps] <D&B, Jungle>
 magnet:?xt=urn:btih:1C58F44C26F5A13B171994D2D0864F50A2FDD7BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +541,8 @@ VA - Музыка Хорошего Настроения (2016) [MP3|256 kbps] <P
 ```bash
 magnet:?xt=urn:btih:216264893EEAFA0192E14C4BF5F798759FF791EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +571,8 @@ VA - Goodness & Grace: New Age Music (2017) [MP3|320 Kbps] <New Age, Relax, Medi
 magnet:?xt=urn:btih:F4DFE10670FDD8BDA2ABA2532297605BC58D353D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +599,8 @@ VA - Twisted Fantasy Pushup Sound (2017) [MP3|320 Kbps] <Latin, Twerk, Moombahto
 ```bash
 magnet:?xt=urn:btih:A5FCA6B9F50430B5F0AEB314D660D2A30ECC65AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +629,8 @@ VA - Ошеломительная женщина. Душевная музыка 
 magnet:?xt=urn:btih:18CECB35B8C9A73F1BE77EB3C387675A44DD3663
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +657,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:C5227922951567EEE5C5292D48D30E1A2B2A757D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +687,8 @@ VA - Top DJ Artist Sounds (2016) [MP3|227-320 кб/с] <Dance, Club, House, Nu D
 magnet:?xt=urn:btih:FC8EB9C1EF086FBB8A468FCB0F644BF023281C9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +715,8 @@ VA - Empire Records - Dancenudisco 5 (2017) [MP3|320 Kbps] <Disco, Dance, Nu-Dis
 ```bash
 magnet:?xt=urn:btih:3BA5921F79EFB2BBE222542B9F7EA7C846C722F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -668,32 +745,7 @@ VA - Дискотека зимних дорог. Индустрия поп му�
 magnet:?xt=urn:btih:BFC6469181F0CECB77569ACC257F173FC4613E48
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987974   (922793) от 19.02.2016
-
-VA - Under The Same Sun: Privacy Music (2016) [MP3|320 kbps] <Pop Lyric>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_922793.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bolland & Bolland - Blue Velvet
-002. Thomas David - Searching For
-003. Milky Chance - Stolen Dance
-004. Negative - Still Alive(   Читать дальше...   )Жанр: Pop LyricПродолжительность: 06:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:510152505F76E8A17B03587E805EFAB72D74B277
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

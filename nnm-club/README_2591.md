@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6899664AC8679D43725F50A5F5F68B3C8A3FB47D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:6899664AC8679D43725F50A5F5F68B3C8A3FB47D
 ```bash
 magnet:?xt=urn:btih:5FF365E4D8B5F89583B07751C8858C798F7675B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:5FF365E4D8B5F89583B07751C8858C798F7675B6
 magnet:?xt=urn:btih:8D145F5FDAAC6CA7CF171EAE7B4AA0D5807E7FA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:8D145F5FDAAC6CA7CF171EAE7B4AA0D5807E7FA1
 ```bash
 magnet:?xt=urn:btih:028FDABBFBBF145A238150CF34D7B3FF7FE26C21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ VA - Новые хитовые песни 2025, Часть 4 (2025) [FLAC|Lossle
 magnet:?xt=urn:btih:5D1CDCEEE54FCD586F98AE4551B09138264F4622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ CHÉRIE представляет ВЕЛИКОЛЕПНУЮ редакционну
 magnet:?xt=urn:btih:0471D956140B20C87E02B75671B6C0D38943D25B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:0471D956140B20C87E02B75671B6C0D38943D25B
 ```bash
 magnet:?xt=urn:btih:FBE17CB3987B63B9A952B0AF545A4E932E8FACDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:FBE17CB3987B63B9A952B0AF545A4E932E8FACDE
 ```bash
 magnet:?xt=urn:btih:A26DCCF81768D4DBF280F75D0CFF91E954600CE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ VA - Vocal Trance Legends - Esmee Bor Stotijn (2025) [MP3|320 Kbps] <Trance, Voc
 magnet:?xt=urn:btih:884053E7AEB4E45D99F3BACFABDFBD29CC982AD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Spatial Vox - Collection (2025) [MP3|320 Kbps] <Euro-Disco>
 magnet:?xt=urn:btih:E835B11EC4245D2582C10E792953A1FEC85EDCDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ magnet:?xt=urn:btih:E835B11EC4245D2582C10E792953A1FEC85EDCDE
 ```bash
 magnet:?xt=urn:btih:0D849078E686B910E0C05027A84BC5C589D0F254
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:0D849078E686B910E0C05027A84BC5C589D0F254
 magnet:?xt=urn:btih:D624677395BC6D3E948A3F583EBBC14CED3FA0E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ Nomo no kuni | The Land of NOMO | Земля НОМО [2025, Web] WEB-DL 1080p r
 ```bash
 magnet:?xt=urn:btih:F337BEA8A77BBA92D1F13F595DC62AAB4B88CED7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:F337BEA8A77BBA92D1F13F595DC62AAB4B88CED7
 ```bash
 magnet:?xt=urn:btih:AFD6B81832C83A1C8AE0A936D6B45F133600B9A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ VA - Плакала весна (Красивые весенние песни) (2
 magnet:?xt=urn:btih:069D425906C11C1B191FFCCE9EE43B1C9BCFCF00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ TOKYO STILLS включает в себя 6 невероятных предус�
 ```bash
 magnet:?xt=urn:btih:197BD6DCE70DDB28AC98D8C6DD86C3989111C443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ Solomon — стильный минималистский закругленны
 magnet:?xt=urn:btih:6E137817FCA028D3B7E0927F851163B70C20FAF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:6E137817FCA028D3B7E0927F851163B70C20FAF5
 ```bash
 magnet:?xt=urn:btih:6B16476FC97687CD2EFD5196E9ED86B8A95137CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ VA - Urban Grooves Vol. 5 (Urban Funk Breaks Dub Hip Hop Beats) (2025) [FLAC|Los
 magnet:?xt=urn:btih:2F8DF9FFD33AF9E05D0CA8CCC17F9012813C8551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:2F8DF9FFD33AF9E05D0CA8CCC17F9012813C8551
 magnet:?xt=urn:btih:6A4F4DB80D22CE1F2BA84CF7D48A05154E482238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ Manowar - Defender (1983) (Single) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy M
 ```bash
 magnet:?xt=urn:btih:34D361D6122CCDA8366F8180434C9BFDCC89D6F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +597,8 @@ Grace VanderWaal - Childstar (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:67AB5419F5EB0B25ABE35ED4833F5EC6F14ADB5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ Bright Light Bright Light - Enjoy Youth (2024) Enjoy More: Deluxe Version, 2025,
 ```bash
 magnet:?xt=urn:btih:80AE7687EC0424F2A6AA14C50FC081B8EFB225AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ Savage Master - Dark & Dangerous (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hea
 magnet:?xt=urn:btih:CB84D985D5E46BBB0F68B3FFCEAB095F57359D0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ Seven - Interdimensional Act III Shadows in the Sky (2025) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:4BE23CE9685417C7F7F3212FFDAB71E562ACEA3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ Benediction - Ravage Of Empires (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <De
 ```bash
 magnet:?xt=urn:btih:523B9676BF4EDE7E7B02AB9B9B9FBFCEC4E75F09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

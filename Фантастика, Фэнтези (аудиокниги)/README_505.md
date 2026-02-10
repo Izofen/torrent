@@ -1,3 +1,29 @@
+###  Публикация: 1364048   (937723) от 02.03.2020
+
+Айзек Азимов и др. | Литературный аудиопроект «Глубина» (выпуск 25) (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_937723.jpg" />
+</div>
+
+
+###  Подробнее
+
+ГЛУБИНА - это литературный аудиопроект творческого объединения независимых чтецов, любящих и умеющих делать своё дело – рассказывать увлекательные истории. Если вы готовы погрузиться ниже ватер-линии обыденной реальности в чарующий океан захватывающей прозы, то нам с вами по пути!Жанр: ФантастикаПродолжительность: 05:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43EAD9D7ED0ECDC270B56F21D45687CC87AA87A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364362   (937853) от 02.03.2020
 
 Роман Куликов, Ежи Тумановский | Штык [S.T.A.L.K.E.R.] (2020) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:3AA6EACEE39AB5049A8CF95C79E4E5FED83961EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:3AA6EACEE39AB5049A8CF95C79E4E5FED83961EE
 magnet:?xt=urn:btih:134727A7A42FA9B741A85A74C08FF4A45D73CB0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:134727A7A42FA9B741A85A74C08FF4A45D73CB0E
 ```bash
 magnet:?xt=urn:btih:19743E00FF290377648D5FE998EF294B87B684AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:19743E00FF290377648D5FE998EF294B87B684AA
 magnet:?xt=urn:btih:C6323F76AF347D41F0EA92B1C70786EB8F6BCED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:C6323F76AF347D41F0EA92B1C70786EB8F6BCED0
 ```bash
 magnet:?xt=urn:btih:29BF220BF64E61F48BD76EF5409C06612DAF7569
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:29BF220BF64E61F48BD76EF5409C06612DAF7569
 magnet:?xt=urn:btih:536FBC13256FC4AC4134FE7B0601B6A7920A52A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:536FBC13256FC4AC4134FE7B0601B6A7920A52A1
 ```bash
 magnet:?xt=urn:btih:DF8110888A5C23FE6037A87D2B990902652C5DDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:DF8110888A5C23FE6037A87D2B990902652C5DDC
 magnet:?xt=urn:btih:56A3B54C8DE4F2DF8E767C77C68D23A305F24023
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:56A3B54C8DE4F2DF8E767C77C68D23A305F24023
 magnet:?xt=urn:btih:B9A39D81086439A555D9897CDA010F0500A1A89A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:B9A39D81086439A555D9897CDA010F0500A1A89A
 ```bash
 magnet:?xt=urn:btih:C56BEB6A101407DCBF69DACD3144661764B81C47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:C56BEB6A101407DCBF69DACD3144661764B81C47
 magnet:?xt=urn:btih:33045D96EBDCFCB11D7269AC334B8C253B9803F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:33045D96EBDCFCB11D7269AC334B8C253B9803F0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:33045D96EBDCFCB11D7269AC334B8C253B9803F0
 ```bash
 magnet:?xt=urn:btih:F7BCF7AC063C38C39CCD82ED95D486C97A4E899C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:F7BCF7AC063C38C39CCD82ED95D486C97A4E899C
 magnet:?xt=urn:btih:6B4BE36FD5A1CA47152C61FB44A40D2A3401B462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:6B4BE36FD5A1CA47152C61FB44A40D2A3401B462
 magnet:?xt=urn:btih:2242BE91F50988C8E9027053BDA4027422381827
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:2242BE91F50988C8E9027053BDA4027422381827
 ```bash
 magnet:?xt=urn:btih:13DB85729F08EC5A9DF5A1D377CA41483322A452
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:13DB85729F08EC5A9DF5A1D377CA41483322A452
 magnet:?xt=urn:btih:2751B3DCDE95A2839CED9244C8CBD9CE9F6879A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:2751B3DCDE95A2839CED9244C8CBD9CE9F6879A9
 magnet:?xt=urn:btih:8C9A993D5F479EC476FCEC508B87B61C4B682844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:8C9A993D5F479EC476FCEC508B87B61C4B682844
 ```bash
 magnet:?xt=urn:btih:97401B3A07C448D3A1B5FCA849E937200C591F7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:97401B3A07C448D3A1B5FCA849E937200C591F7B
 magnet:?xt=urn:btih:1F01417D73F2DB89DA9CCC4E80D4A3D19A990B12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:1F01417D73F2DB89DA9CCC4E80D4A3D19A990B12
 ```bash
 magnet:?xt=urn:btih:F1CF717F6397E9A6A184D8C39E6650E774F49AFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:F1CF717F6397E9A6A184D8C39E6650E774F49AFE
 magnet:?xt=urn:btih:85CD3FDF025273E0DA0F7EF83CC833EEA2452C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:85CD3FDF025273E0DA0F7EF83CC833EEA2452C5F
 ```bash
 magnet:?xt=urn:btih:4BA0F63530E3BF3336632D61741D64A458B77380
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:4BA0F63530E3BF3336632D61741D64A458B77380
 magnet:?xt=urn:btih:AA0C3494EE516B0CD9DDF95036EFBFEEFDB4AB10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,31 +683,7 @@ magnet:?xt=urn:btih:AA0C3494EE516B0CD9DDF95036EFBFEEFDB4AB10
 magnet:?xt=urn:btih:BBB34D116F0138F2B269D25D9984AE6C6A81662E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090812   (941197) от 10.01.2017
-
-Марина и Сергей Дяченко | Долина совести (2005) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_941197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой этой книги обаятелен и, без сомнения, талантлив. Друзья не мыслят себя без него. Мама души в нем не чает. Женщины стоят у него под окнами. У всеобщей любви есть лишь одна темная сторона: всякий, кто встретится на его пути, рискует жизнью.
-
-Кто сумеет без потерь пересечь Долину Совести?Жанр: Роман, ФантастикаПродолжительность: 11:31:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26F64D29270B6097E6257B8382466775A083A6D4
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

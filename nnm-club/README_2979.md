@@ -28,6 +28,8 @@
 magnet:?xt=urn:btih:90228237D94869C430320C24DB86700B0770C443
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -53,6 +55,8 @@ AbelCam 4.2.6 [Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ Plugin Alliance Noveltech Character - плагин, который самост�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -107,6 +113,8 @@ Plugin Alliance Noveltech Character - плагин, который самост�
 magnet:?xt=urn:btih:02B11254CC59152F70221FA7E16F51412A9FD537
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:02B11254CC59152F70221FA7E16F51412A9FD537
 ```bash
 magnet:?xt=urn:btih:7506CCA36429DE0BB4D43F4D2BD50E8EBF1FB6BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +168,8 @@ Total War: Shogun 2 - Fall of the Samurai / Закат Самураев (Repack)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +196,8 @@ SOFTPIR WPI Professional v.04.12 (x32/x64/ML/RUS/XP/Vista/7)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +226,8 @@ Tribes: Ascend [En] {1.0.905.0} (L) 2012
 magnet:?xt=urn:btih:A37CCE50EC9B770B99F52FDD7B87CB10D540460B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ Naval War: Arctic Circle [Multi5/-] (L) 2012 | TiNYiSO
 ```bash
 magnet:?xt=urn:btih:BC0BCEC177BAC6511FB78574B294273364B28E61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ Crusader Kings 2 + 2 DLC [Ru] (RePack/1.04с) 2012 | SxSxL
 magnet:?xt=urn:btih:6E2505B969D358AF410765BEB26471C08D84C9E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +305,8 @@ Terminator 3: War of The Machines / Терминатор 3: Война маши�
 ```bash
 magnet:?xt=urn:btih:A976BDB23DA2181599DEB0F4FE29F03CBE5402C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +332,8 @@ SoundForge 10 - новая версия мощного аудио-редакто
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +357,8 @@ Death Track: Resurrection / Death Track: Возрождение [Ru] (RePack/1.2
 ```bash
 magnet:?xt=urn:btih:EBD76EDD2B634BBF3B9AB49824DAD1A5E2E40EDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +384,8 @@ magnet:?xt=urn:btih:EBD76EDD2B634BBF3B9AB49824DAD1A5E2E40EDC
 ```bash
 magnet:?xt=urn:btih:A42B45ACD3C315A53A5698D6F21C6C1AF08FF316
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +420,8 @@ VA - Танцевальный Рай Русский (2012) [MP3|256 кб/с]<Pop
 magnet:?xt=urn:btih:05E38454908F5365F2609E87C4F5E0809FFE4765
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +446,8 @@ DK Preschool | Лисёнок : Смотри, как они растут! [2008]
 magnet:?xt=urn:btih:5F7C6A0B384C63738DE3856336981623A4A968C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +471,8 @@ magnet:?xt=urn:btih:5F7C6A0B384C63738DE3856336981623A4A968C4
 ```bash
 magnet:?xt=urn:btih:CD4193AE0588F63D42476F32DE24B88F5A08D67D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +503,8 @@ magnet:?xt=urn:btih:CD4193AE0588F63D42476F32DE24B88F5A08D67D
 magnet:?xt=urn:btih:DE5481809664EB3095978AEB23A0734040461BEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +528,8 @@ magnet:?xt=urn:btih:DE5481809664EB3095978AEB23A0734040461BEF
 ```bash
 magnet:?xt=urn:btih:3C0769E6C3A68F8913D08701E160CD7BC81D8AD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +555,8 @@ magnet:?xt=urn:btih:3C0769E6C3A68F8913D08701E160CD7BC81D8AD1
 magnet:?xt=urn:btih:4EBDBAB73009A3AF23945B88BFD53BFBBD7F894F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +581,8 @@ magnet:?xt=urn:btih:4EBDBAB73009A3AF23945B88BFD53BFBBD7F894F
 magnet:?xt=urn:btih:B558C844CA8AF0B39B34E1E3A4BCDA8F1F9D90ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +606,8 @@ magnet:?xt=urn:btih:B558C844CA8AF0B39B34E1E3A4BCDA8F1F9D90ED
 ```bash
 magnet:?xt=urn:btih:AA1F72FE529D22CB1161CEF4474FA05398A7BC82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +637,8 @@ magnet:?xt=urn:btih:AA1F72FE529D22CB1161CEF4474FA05398A7BC82
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +662,8 @@ Michael Jackson: Smooth Criminal (2010) DVDRip
 ```bash
 magnet:?xt=urn:btih:5B6CDBF3BC59A043881254BF1C02A48D3791627D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +689,8 @@ magnet:?xt=urn:btih:5B6CDBF3BC59A043881254BF1C02A48D3791627D
 magnet:?xt=urn:btih:3E325C15BB4DEC6C9C16A2E2CBECEB2FEE6BD136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +714,8 @@ magnet:?xt=urn:btih:3E325C15BB4DEC6C9C16A2E2CBECEB2FEE6BD136
 ```bash
 magnet:?xt=urn:btih:0896AC439342964F90DA4F71C2EC34F64DFC016F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

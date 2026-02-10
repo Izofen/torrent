@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:504522D4BE5D8AA59B65E3B6FF73CE0AF2160753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:504522D4BE5D8AA59B65E3B6FF73CE0AF2160753
 ```bash
 magnet:?xt=urn:btih:DFC1308855E2933E868ED9785857A43EC290D6C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:DFC1308855E2933E868ED9785857A43EC290D6C6
 magnet:?xt=urn:btih:3465C373BF0EC0A35B64683EDACB4459C06C04AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Java – один из самых популярных и востребован
 ```bash
 magnet:?xt=urn:btih:6A91728A6759331A8FC822C6444E718E6A3D01AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Kai Nacke «D Web Development»(   Читать дальше...   )Жанр: П�
 magnet:?xt=urn:btih:BF16FE4329C16864B02215646B7D38B4B9759311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:BF16FE4329C16864B02215646B7D38B4B9759311
 ```bash
 magnet:?xt=urn:btih:9C00C12FD9D17D686AD2C84AAAEE47B140C43C80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:9C00C12FD9D17D686AD2C84AAAEE47B140C43C80
 magnet:?xt=urn:btih:42DF2752BAAA2B1DBB4C1B32EDB706B32DC2CF6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ John Carnell, Illary Huaylupo Sánchez | Spring Microservices in Action, Second 
 ```bash
 magnet:?xt=urn:btih:F8727F3563CE616C40769204AD251725057A53A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Leonard Apeltsin | Data Science Bookcamp (2021) [PDF] [Книга + Видеок
 magnet:?xt=urn:btih:89F00911282DC5D5B4804682BF1443CE1E98C8B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Alexey Grigorev | Machine Learning Bookcamp (2021) [PDF] [Книга + Виде�
 ```bash
 magnet:?xt=urn:btih:63AB46B6E621E43EA1B690108B1B949229FD4C42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Craig Walls | Spring in Action, Sixth Edition (2022) [PDF] [Книга + Вид�
 magnet:?xt=urn:btih:50AD70AB2169B32A90DB00350A86B28D499C4DE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ Samer Buna | GraphQL in Action (2021) [PDF] [Книга + Видеокрус] [E
 ```bash
 magnet:?xt=urn:btih:62021200F6C10A668765F49A90D32041C38EEE4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ Andrew Ferlitsch | Deep Learning Patterns and Practices (2021) [PDF] [Книга
 magnet:?xt=urn:btih:B7B417C5796137B05FB8D984DC3ACA5689E69D4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:B7B417C5796137B05FB8D984DC3ACA5689E69D4D
 magnet:?xt=urn:btih:BCDB0FAF48D5B1A7E93700FF75807FB233C4FC06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:BCDB0FAF48D5B1A7E93700FF75807FB233C4FC06
 ```bash
 magnet:?xt=urn:btih:878F07AAF65F114677C3FF06641CF836DCAC6783
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ magnet:?xt=urn:btih:878F07AAF65F114677C3FF06641CF836DCAC6783
 magnet:?xt=urn:btih:59E85B637C65CDBE672D4ADF3C0EE809D347657F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ Swizec Teller | Senior Engineer Mindset (2022) [PDF, EPUB, MOBI] [EN]
 magnet:?xt=urn:btih:AB4D6B3A6CE44045C0606C406695B0898B1C8B53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:AB4D6B3A6CE44045C0606C406695B0898B1C8B53
 ```bash
 magnet:?xt=urn:btih:A7B18972BA93465080C950B13B3BD62C3439FDD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:A7B18972BA93465080C950B13B3BD62C3439FDD8
 magnet:?xt=urn:btih:30A0EBBDAD83FD9226864841029FF7B4F5E8B38F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:30A0EBBDAD83FD9226864841029FF7B4F5E8B38F
 ```bash
 magnet:?xt=urn:btih:E89B08DDCB2C7EE7C410AE283BAA8C1D7296D7AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:E89B08DDCB2C7EE7C410AE283BAA8C1D7296D7AC
 magnet:?xt=urn:btih:B27EBB9A839390994D8A74173CB344E478440F7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:B27EBB9A839390994D8A74173CB344E478440F7E
 ```bash
 magnet:?xt=urn:btih:F6D4790CB8097BC2BE8B0658482C648DDBDFC3AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:F6D4790CB8097BC2BE8B0658482C648DDBDFC3AF
 magnet:?xt=urn:btih:148D2D4EE07FC9028B8DBDEF754FBF75B5887D8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:148D2D4EE07FC9028B8DBDEF754FBF75B5887D8D
 ```bash
 magnet:?xt=urn:btih:5BA9D4097B4A9B5272C16C1E90D978EB881C03D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:5BA9D4097B4A9B5272C16C1E90D978EB881C03D9
 magnet:?xt=urn:btih:B9AB899AD6641A7E913118D805DE21A533293996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:B9AB899AD6641A7E913118D805DE21A533293996
 ```bash
 magnet:?xt=urn:btih:208246A0832D7F87E64C1284921BDD1D5BCB3006
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

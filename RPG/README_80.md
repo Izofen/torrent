@@ -19,6 +19,8 @@ Fareo Shadowlands (2021) [Multi] (1.0) License DARKSiDERS
 magnet:?xt=urn:btih:5D87C23DBF2CD4F75732D82237A175313577D168
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Arx Fatalis (2002) [Ru/Multi] (1.22) License GOG
 ```bash
 magnet:?xt=urn:btih:A77C28BD0C6E15159413A3B13A38F525C41D771E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Breath of Fire IV (2003) [Ru/En] (1.0) Repack Other s
 magnet:?xt=urn:btih:9E78594089D6C3341E421976410FDE986F2DA21D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Breath of Fire IV (4) (2003) [Ru/En] (1.0) Repack R.G. Revenants
 ```bash
 magnet:?xt=urn:btih:0F0016A517C648A40AB7D25EFD61CBCB90307A54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Breath of Fire IV (4) (2003) [En] (1.0) License DEViANCE
 magnet:?xt=urn:btih:01F1FE16B33C50328255E457F3306CCABB3118A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Icewind Dale: Enhanced Edition — это улучшенная версия ку
 ```bash
 magnet:?xt=urn:btih:A8BF3550D29C17B54BB4294A9341BAB203A1D578
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Demons Age (2017) [Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:331DC1DE3EB4A29B63C04032ADBF4EF5F8B49C4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Edge of Eternity – японская ролевая игра, события к
 ```bash
 magnet:?xt=urn:btih:19D79C0EE2534E554913A29DA9900EC4A016AC5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Mount & Blade: Warband / Mount & Blade. Эпоха турниров (2010) [Ru/M
 magnet:?xt=urn:btih:209AF87FF322991191FB2AFC1637516BB7BC155C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Yakuza: Like a Dragon — приключенческий экшен с видо�
 ```bash
 magnet:?xt=urn:btih:5C67CDB49E18AAEF0C529ABE04694823831C058A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Mistover (2019) [Multi] (1.0.9a/dlc) License GOG
 magnet:?xt=urn:btih:F4A4F0A7FC6C470EB1C5AE468C936BCD9CFD97E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Chrono Trigger - бессмертная классика ролевых игр �
 ```bash
 magnet:?xt=urn:btih:C1B9225533656DCFC65992B1775658D10098CAAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Ark of Artemis (2021) [Multi] (1.0) License DARKSiDERS
 magnet:?xt=urn:btih:EAF71292FF55B87C01C8EECB0BAE666319D6D051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Nox Archaist - восьмибитное приключение, создано �
 ```bash
 magnet:?xt=urn:btih:EA436C3CBB0E0D36BC92A7927DA9B3B2AADDB8C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Incredible Adventures of Van Helsing: Final Cut (2015) [Ru/Multi] (1.1.0b) L
 magnet:?xt=urn:btih:7C82CBB9DB93E3AE4606AC93A75BDDEC5F9662AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Elder Scrolls IV: Oblivion Game of the Year Edition является одн�
 ```bash
 magnet:?xt=urn:btih:9D845F363C3B1FCAA2E103EC6192C19B6EBC8673
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Demon Skin — это брутальный Hack&Slash в суровом мире
 magnet:?xt=urn:btih:E8F99706C5FB5C51B7AEFE413273BA83B8B3A4AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Warhammer: Chaosbane (2019) [Ru/Multi] (1.16-20.12.11/dlc) License GOG [Slayer E
 ```bash
 magnet:?xt=urn:btih:7C1546D8E01FCC29C157C2CB32B059CF16E37476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Loop Hero (2021) [Ru/Multi] (1.0.12) Repack Other s
 magnet:?xt=urn:btih:69E6B0F9C7FA5F5F7F95CAFD10A4EE725CC092CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Cyberpunk 2077 – приключенческая ролевая игра, де�
 magnet:?xt=urn:btih:C3C18363E02E39AE229450E00F15C7722DE6FA73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +538,8 @@ Kingdom Hearts III продолжает серию игр Kingdom Hearts, соз
 ```bash
 magnet:?xt=urn:btih:721E42BED9809D94D262B822FCD0233E3593C64A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Loop Hero (2021) [Ru/Multi] (1.012) Repack SpaceX
 magnet:?xt=urn:btih:1DF215900834D43E659021F5430CE9891F240FFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Dungeon Defenders: Awakened — это кооперативная игра Tower
 ```bash
 magnet:?xt=urn:btih:D1F538A421961451ED480F8949A5D1889385FB63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Nioh 2 (2021) [Ru/Multi] (1.26.00/dlc) Repack xatab [The Complete Edition]
 magnet:?xt=urn:btih:B8ED1E3A6B46495A127C22C4F2F95C546E788776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Atelier Ryza: Ever Darkness & the Secret Hideout (2019) [Multi] (1.08/dlc) Repac
 magnet:?xt=urn:btih:A9A901B80EDE49F0FDAB56E08779775B264D4A0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Vampire: The Masquerade - Coteries of New York – это визуальная �
 ```bash
 magnet:?xt=urn:btih:34BA323B2B999D73D83FDC1DCD3807C3410593E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,150 @@
+###  Публикация: 1034468   (634224) от 13.07.2016
+
+Pino D'Angio - 7 Albums (1981-1991) [MP3|320 Kbps] <Electronic, Disco, Funk-Soul>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящее имя артиста - Giuseppe Chierchia, он родился в небольшом городке Pompei на юге Италии 14 августа 1952 года.
+Первый успех пришел к нему в 1980 году после записи сингла "Ma Quale Idea", годом позже вышел первый альбом исполнителя, продажи которого превысили миллион экземпляров.
+Последующие альбомы Pino D'angio имели гораздо меньший успех. Возможно, (   Читать дальше...   )Список альбомов:
+1981 - ...Balla!
+1982 - Ti regalo della musica
+1983 - Una notte maledetta(   Читать дальше...   )Жанр: Electronic, Disco, Funk-SoulПродолжительность: 04:38:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A963B3A585FAD9B518B00FEBAF99A17AF04E3AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143655   (634661) от 18.06.2017
+
+Modern Talking - Back For Gold (The New Version) (2017) [MP3|320 Kbps] <Eurodance, Euro-Disco, Europop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Brother Louie (New Version 2017)  3:21
+02.  You're My Heart You're My Soul (New Version 2017)  3:33
+03.  Cheri Cheri Lady (New Version 2017)  3:41
+04.  You Can Win If You Want (New Version 2017)  3:26(   Читать дальше...   )Жанр: Eurodance, Euro-Disco, EuropopПродолжительность: 01:13:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58CDAE6D1B73D5B97E45663A5CEBF0BF466612E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143492   (634843) от 18.06.2017
+
+VA - Die Hit Giganten Best Of 90's Dance (2017) 3CD [MP3|320 Kbps] <Eurodance, Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dr. Alban - It's My Life  4:01
+02.  Snap! - Rhythm Is A Dancer  3:42
+03.  Culture Beat - Mr. Vain  4:18
+04.  Eiffel 65 - Blue (Da Ba Dee)  3:40(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 03:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C73F8E975A2450A22168B0436C0FB49DCAC8E7EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143566   (634846) от 18.06.2017
+
+Николай Караченцов - Лучшее и Неизданное (2014) 2CD [MP3|320 Kbps] <Советская эстрада>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кленовый лист (М.Дунаевский - Л.Дербенев), из т/ф «Маленькое одолжение» 1984
+02. Что тебе подарить? (Р.Майоров - С.Алиханов, А.Жигарев), дуэт с Ириной Уваровой 1984
+03. Серенада Рикардо (Г.Гладков - М.Донской), из т/ф «Собака на сене» 1977
+04. Ты меня на рассвете разбудишь... (А.Рыбников - А.Вознесенский), из рок-оперы «Юнона и Авось» 2002(   Читать дальше...   )Жанр: Советская эстрадаПродолжительность: 02:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:000459014007EF9334AA02D1070A379A6BD619DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143549   (634971) от 18.06.2017
+
+Алла Йошпе и Стахан Рахимов - Лучшие песни (2009) [MP3|320 Kbps] <Ретро,Советская эстрада>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_634971.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Поговорим, родные, по душам (4:05)
+2. Алеша (3:45)
+3. Опять война (3:41)
+4. Осенние колокола (4:50)(   Читать дальше...   )Жанр: Ретро,Советская эстрадаПродолжительность: 01:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1BC500D8F935EF778AB7A1838295478019B2772
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 517552   (635060) от 07.07.2012
 
 Flo Rida - Wild Ones (2012) [FLAC|Lossless]<Pop, Dance, R&B>
@@ -27,6 +174,8 @@ Flo Rida - Wild Ones (2012) [FLAC|Lossless]<Pop, Dance, R&B>
 magnet:?xt=urn:btih:67CBA0061B8FB95ECDF51893E54D41A7F6A33143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -53,6 +202,8 @@ Limelight - Special Love (2015) [MP3|320 Kbps] <Italo-Disco>
 ```bash
 magnet:?xt=urn:btih:B9A21DEB12B1A107F895475C256E657A3C8D15E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +233,8 @@ Disco Digitale - Discography (2006-2014) [MP3|320 Kbps] <Italo-Disco, Synth-pop>
 magnet:?xt=urn:btih:2B3A7C1770AD4A288CC3349283E56041CD3E9BA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +261,8 @@ Disco Digitale - Electronic Passion (2014) [FLAC|Lossless|image + .cue] <Italo-D
 ```bash
 magnet:?xt=urn:btih:9782C958D58C41911880EA131936DCB786C3338B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +291,8 @@ Michael Jackson - The Best 39 (2015) [MP3|320 кб/с]<Pop, R&B, Rock, Funk, Pos
 magnet:?xt=urn:btih:095AB17C6B7E249191B158CAF43EA1B3DCAC23AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +319,8 @@ VA - Golden DJ Hits Vol. 1 (2004) [MP3|320 Kbps] <Eurodance, Euro-House>
 ```bash
 magnet:?xt=urn:btih:DBA9898310CE3602C3177093672EBEB7FC539365
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +349,8 @@ VA - Golden DJ Hits Vol. 2 (2006) [MP3|320 Kbps] <Eurodance, Euro-House>
 magnet:?xt=urn:btih:9B39F64A1E888F41B7EAD110AEBC39EC63CF2EC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +377,8 @@ L.A.X. - L.A.X. (1979) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
 ```bash
 magnet:?xt=urn:btih:C7B49731983EF175248C075D1FEA5A6F831A9EA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +407,8 @@ Disco Digitale - Computer Dreams (2006) [FLAC|Lossless|image + .cue] <Italo-Disc
 magnet:?xt=urn:btih:D708678DE1AAFE7962F2B7AD0B2514F2796EC1D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +435,8 @@ Disco Digitale - In The 25th Century (2007) EP [FLAC|Lossless|image + .cue] < It
 ```bash
 magnet:?xt=urn:btih:67473EEA5403D1DA6F69AA0F99FC73D57308C90F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +465,8 @@ MOLLY - Косатка в небе (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:10C365FB447CBE0CA8F1323CB07B743F4E382BB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +493,8 @@ Arabesque - Greatest Hits Volume 2 (1993) Unofficial Release [FLAC|Lossless|imag
 ```bash
 magnet:?xt=urn:btih:27A32EEA493E525D1857C645E5B385B6786F4C7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +523,8 @@ VA - Italo Disco: Instrumental Versions (2016) 2CD, Limited Edition [FLAC|Lossle
 magnet:?xt=urn:btih:4B7C27D9D16E7C5A9B41B9EF7CCD2AD33227CB91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +551,8 @@ VA - Italo Disco: Instrumental Versions (2016) 2CD, Limited Edition [MP3|320 Kbp
 ```bash
 magnet:?xt=urn:btih:06CD6B63C6EDBDCA956D9D5E432D046D967B87DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +581,8 @@ Tori Kelly - Hiding Place (2018) [FLAC|Lossless|tracks + .cue] <Pop, Gospel>
 magnet:?xt=urn:btih:73A5702013685D42AB8F548CC618AC93D4A2D9D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +610,8 @@ C.C. Catch - The Album - Remastered (2017) Limited Edition [MP3|320 Kbps] <Euro-
 magnet:?xt=urn:btih:6359EFD449C00952F6C971D5EDF5C20F3432D87D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +637,8 @@ magnet:?xt=urn:btih:6359EFD449C00952F6C971D5EDF5C20F3432D87D
 ```bash
 magnet:?xt=urn:btih:4D0CCC9584B0629862E9673B40E50237F91F20D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +667,8 @@ VA - DJ Hits Vol. 61 (1996) Unofficial Release [APE|Lossless|image + .cue] <Hous
 magnet:?xt=urn:btih:76635A46E49E0170A38D9FDE0BD0762CD1FF5ED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +695,8 @@ Giorgio Moroder – Deja Vu (2015) [FLAC|Lossless|WEB-DL]<Pop>
 ```bash
 magnet:?xt=urn:btih:745BFFBF7C362FCBE16BE69E2739F9615FCEFFF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +725,8 @@ magnet:?xt=urn:btih:745BFFBF7C362FCBE16BE69E2739F9615FCEFFF1
 magnet:?xt=urn:btih:AF5C9C6FD7A0F4F173DD4D194623C79E32581509
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,140 +754,7 @@ Dirty Vegas - Photograph (2015) [MP3|320 Kbps] <Dance, Synth Pop, House>
 magnet:?xt=urn:btih:9A234974E67481756C8E0A40313D8DCD066C687D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907897   (636052) от 13.06.2015
-
-Jenni Vartiainen - 3 альбома (2007-2014) [MP3|320 кб/с]<Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2007 - Ihmisten Edessa
-2010 - Seili
-2013 - Terra (Platinum Edition)Жанр: PopПродолжительность: 02:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3170E703BA0C2A039240478855862657C266EFE8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033796   (636129) от 12.07.2016
-
-VA - Woman In Love (1983) Unofficial Release [APE|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Brown - Stop
-02. Elaine Page & Barbara Dickson - I Know Him So Well
-03. Terence Trent D'Arby - Suddenly You Crossed My Heart
-04. Timmy T. - One More Try(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303D992444B9037C155D971212A103EB284CDD04
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033822   (636131) от 12.07.2016
-
-На-На - Не женись (1991) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636131.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пустынный Пляж (4:13)
-2. Не Женись (3:21)
-3. Свет В Окне (4:28)
-4. Юлия (3:59)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81F9F09ED4F428A61B520967AA19837F366A8831
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033940   (636145) от 12.07.2016
-
-Александр Шевченко - Больше ничего (2009) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Больше ничего
-02. Я тебя не буду искать
-03. Никто не знает
-04. Сентябрь(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:277B8627CCCC7C3B70370C49B4E511D4157260EA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 907827   (636163) от 13.06.2015
-
-James Taylor - Before This World (2015) [MP3|320 кб/с]<Folk-Rock, Country, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_636163.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Today Today Today (3:09)
-2. You And I Again (3:52)
-3. Angels Of Fenway (3:18)
-4. Stretch Of The Highway (5:32)(   Читать дальше...   )Жанр: Folk-Rock, Country, PopПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8EE0E1D1E50EF2B8C9195F01C4E8C0F447C386C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

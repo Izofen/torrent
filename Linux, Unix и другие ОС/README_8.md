@@ -20,6 +20,8 @@ Ubuntu*Pack 20.04 Budgie (ноябрь 2021) [amd64] DVD
 magnet:?xt=urn:btih:B332389DF6594B55A60A186785EB5BAE1D80745B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Ubuntu*Pack 20.04 GNOME (ноябрь 2021) [amd64] DVD
 magnet:?xt=urn:btih:A50131200867256C8AA90AE5F1C0CD2B30C7DAE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Tor Browser for Linux - удобная и простая модификация 
 ```bash
 magnet:?xt=urn:btih:9AEE4337C7EB0A46017E81E645B375F835F5A935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Kubuntu 14.04 Alpha I [i386, amd64] 2xDVD
 magnet:?xt=urn:btih:667E8F1C1CBD5174F0063875A8C5D2483356C1EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ openSUSE 13.1.1 Education Li-f-e [i686] 1xDVD
 ```bash
 magnet:?xt=urn:btih:017AF542CB49FE6B41693AE32461D2C64E850EB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Ubuntu — это разрабатываемая Canonical, основанная
 magnet:?xt=urn:btih:7BD75BA65E81009B7D59054B8B97A98EA3C5B6A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Lubuntu — это свободная операционная система н
 magnet:?xt=urn:btih:3950FF7DEA404E2C55F92291BE8D128947BA4E26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Kubuntu 15.04 Vivid Vervet Alpha I [i386, amd64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:59657C58F5D0736259D98CA737574FACBE475F62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ SUSE Linux Enterprise Desktop Server Workstation 15.2
 magnet:?xt=urn:btih:4DBF19A69D9F75D0CBF2DE1AE0783A7E4B7E9B3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ SUSE Linux Enterprise Desktop Server Workstation 15.1
 ```bash
 magnet:?xt=urn:btih:5874EB378E306F63875F3569564D1CA3764F0266
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Tor Browser for Linux - удобная и простая модификация 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ SUSE Linux Enterprise Desktop Server 15
 ```bash
 magnet:?xt=urn:btih:AE1957AA503D2119EDA29D05321F5D9D35D78DD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ pfSense - компактный дистрибутив для создания м
 magnet:?xt=urn:btih:5023F244885E55715815E1192F923A13760841B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ Debian GNU/Linux 11.5.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
 magnet:?xt=urn:btih:F8B5AFD5E5D75404649F461CF51B1D185B8FF494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ Xubuntu Custom 22.04 LTS с доп. пакетами [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:96B9BC2D879A2BC3214A35774286B997B8B4C225
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ Xubuntu 22.04 под кодовым названием Jammy Jellyfish — эт�
 magnet:?xt=urn:btih:23D897CD86C6230F27E3D790DC727D7A0ABF51D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ Ubuntu*Pack 22.04 DDE (март 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:FC70D122184CE6B6B2A36D77997581737B769BFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ Ubuntu*Pack 22.04 KDE / Kubuntu (март 2023) [amd64] 1xDVD
 magnet:?xt=urn:btih:EB674431DADF96F73AEF3573DA85E60D74693F6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ Ubuntu*Pack 22.04 GNOME (март 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:379F648E336676D9C0CF5200F29E84F0CB21CA49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ Ubuntu*Pack 22.04 LikeWin (март 2023) [amd64] 1xDVD
 magnet:?xt=urn:btih:717D30226237ACB2382273AA3FC536104B2C9AC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ Ubuntu*Pack 22.04 LXqt / Lubuntu (март 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:0B1D71AD068D2B8EF5AFF442CBEEDC014A95B20C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +586,8 @@ Ubuntu*Pack 22.04 Unity (март 2023) [amd64] 1xDVD
 magnet:?xt=urn:btih:87AC0EBFBC77F2BE1915FE505189F1100C1D0CC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ Ubuntu*Pack 22.04 Xfce / Xubuntu (март 2023) [amd64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:BC3D09D9E53FFEEED42555FCC7CFB70FA45FAFAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +640,8 @@ Fedora — дистрибутив Linux, спонсируемый фирмой R
 magnet:?xt=urn:btih:44F7595E87EF0D1C5EAE4A82D3F571BCCD4958F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ Kali Linux 2022.1 (ex. BackTrack) [amd64, i386, arm] 8xDVD, 3xCD Аудит бе
 ```bash
 magnet:?xt=urn:btih:39061023E6A63AB8F8AAABF991778463E54333B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +693,8 @@ Debian GNU/Linux 11.4.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
 ```bash
 magnet:?xt=urn:btih:AAD67E881832CEE7FDF1D2E9D3D4EC75DE413CA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@
 magnet:?xt=urn:btih:5783FD08BF404E3F38025BBC222EA977509FCBBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:5783FD08BF404E3F38025BBC222EA977509FCBBC
 ```bash
 magnet:?xt=urn:btih:AA04D2B820E2F11BB8C83B84D96A02CF9A9E10C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +109,8 @@ Boddhi Satva - Invocation (2012)Год: 2012  |  Лейбл: BBE  |  Стран�
 magnet:?xt=urn:btih:0923356F6F6C66DD8924C994D6B0A7703C26C91B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:0923356F6F6C66DD8924C994D6B0A7703C26C91B
 magnet:?xt=urn:btih:2D449DD8CCCAFB974C3BD1BCCD6499F16F78065B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:2D449DD8CCCAFB974C3BD1BCCD6499F16F78065B
 ```bash
 magnet:?xt=urn:btih:9C6EFCF885F2313C16CFA34921A4DA3F9661E99D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ Ghosts from the Past - Чёрный флаг (2011) [MP3|320 кб/с]<Heavy Meta
 ```bash
 magnet:?xt=urn:btih:A4456CBDFD051C0178005835A2A4E8C74AE55745
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +229,8 @@ VA - Recoverworld Club Collection Spring 2012 (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:DECE265C20710128DFF21556772C73AD0FDDF151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:DECE265C20710128DFF21556772C73AD0FDDF151
 ```bash
 magnet:?xt=urn:btih:FBBDC7E085ECAC00368500004C4DE17ACEFF8E46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +290,8 @@ Lokurah - The Time To Do Better (2012) [MP3|320 кб/с]<Hardcore Death Thrash>
 magnet:?xt=urn:btih:FEDE0A82495AA847F62E3F1103F2A9BA669F1016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +316,8 @@ magnet:?xt=urn:btih:FEDE0A82495AA847F62E3F1103F2A9BA669F1016
 magnet:?xt=urn:btih:3E6C0327F65FD004E65578F108D60BF6F71C2EA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ magnet:?xt=urn:btih:3E6C0327F65FD004E65578F108D60BF6F71C2EA2
 ```bash
 magnet:?xt=urn:btih:697826165245D7BDC3679B886A49AA1696491287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +375,8 @@ Toxic Universe - Frequenz of the Universe (2012) [MP3|320 кб/с]<Psychedelic /
 magnet:?xt=urn:btih:523A0D0544B57ED5C5834602C64DB0CC4AECC1E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +408,8 @@ VA - Global DJ Broadcast Top 20 May 2012 (25.05.2012)
 magnet:?xt=urn:btih:2BD75500AA88B6C4A33CCFFAD61A3D82B63F7F62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +438,8 @@ magnet:?xt=urn:btih:2BD75500AA88B6C4A33CCFFAD61A3D82B63F7F62
 magnet:?xt=urn:btih:45621ECEF58790A339691B23DF0B37B090B88AA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +464,8 @@ magnet:?xt=urn:btih:45621ECEF58790A339691B23DF0B37B090B88AA6
 magnet:?xt=urn:btih:5E3098EC3BCF2FAE16BCF2808645A0965A96635D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +489,8 @@ magnet:?xt=urn:btih:5E3098EC3BCF2FAE16BCF2808645A0965A96635D
 ```bash
 magnet:?xt=urn:btih:286B1CB189606160C40AE9FC78760E75341B3581
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +525,8 @@ VA - Perception Vol. 5 (2012) [MP3|~245 кб/с (V0)]<Psychedelic / Full On>
 magnet:?xt=urn:btih:6F6AA9ACAFAFB23C9BE84B01DBA76BAF5125E6C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +550,8 @@ magnet:?xt=urn:btih:6F6AA9ACAFAFB23C9BE84B01DBA76BAF5125E6C6
 ```bash
 magnet:?xt=urn:btih:07AE20D4596EEA02FB9D26870830A42FFB8023B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +577,8 @@ magnet:?xt=urn:btih:07AE20D4596EEA02FB9D26870830A42FFB8023B2
 magnet:?xt=urn:btih:DEADE7AEF49E880F7E23DAC37FEA553097079714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +602,8 @@ magnet:?xt=urn:btih:DEADE7AEF49E880F7E23DAC37FEA553097079714
 ```bash
 magnet:?xt=urn:btih:DF2BB263824074FE3990D61D122A8D05A954E030
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +630,8 @@ magnet:?xt=urn:btih:DF2BB263824074FE3990D61D122A8D05A954E030
 ```bash
 magnet:?xt=urn:btih:ACFE3EB803CB20E7E359BA301EA960315B37C398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +661,8 @@ magnet:?xt=urn:btih:ACFE3EB803CB20E7E359BA301EA960315B37C398
 magnet:?xt=urn:btih:8D9BCE6C84714F32208756F352478F75F4539CC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +690,8 @@ magnet:?xt=urn:btih:8D9BCE6C84714F32208756F352478F75F4539CC4
 magnet:?xt=urn:btih:B819C6758D3F4244B1EE490A79F3EC18D0D832A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +715,8 @@ magnet:?xt=urn:btih:B819C6758D3F4244B1EE490A79F3EC18D0D832A1
 ```bash
 magnet:?xt=urn:btih:4C583BB12E523BC5A05A4B0EF2CFC9505099A133
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -700,6 +750,8 @@ Paul Oakenfold - Planet Perfecto 082 (25.05.2012) [MP3|320 кб/с]<Trance, Prog
 ```bash
 magnet:?xt=urn:btih:92C930F0A38D36AE7B87C56A293EBD877ECB869A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

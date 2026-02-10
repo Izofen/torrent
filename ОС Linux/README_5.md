@@ -19,6 +19,8 @@ Oracle Linux — инициатива Oracle Corporation по созданию �
 magnet:?xt=urn:btih:02141C56C60EEA84559882CC8020E5CEF9EDE0A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Arco Linux - это дистрибутив, сочетающий в себе м�
 ```bash
 magnet:?xt=urn:btih:D23B590375CE92F3350D40CBAD8C4E26FC620170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Linux Mint — дистрибутив операционной системы Li
 magnet:?xt=urn:btih:5D97D033C30514F173740B662DE1731F04FA86E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Sabayon 14.12 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 4xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:AFED349D8C3B76C4FD335F47DE3062C1B4DF64A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ PCLinuxOS 2013.12 KDE FullMonty [x32, x64] 2xDVD
 magnet:?xt=urn:btih:81A2E5C7E4ECCC379BB0826DFD461822CF441D34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Mageia 5.1 Cauldron [x86-64] 3xDVD
 magnet:?xt=urn:btih:1F6BF2D82F887BE95C5A9149C82E4D3E8BFD3553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Mageia 5.1 Cauldron [i586] 3xDVD
 ```bash
 magnet:?xt=urn:btih:A03707FDD6FB5D2927941EF1391FE2B320F1F371
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ CentOS 7.9 (209) [x86-64, i386] 5xDVD, 2xCD
 magnet:?xt=urn:btih:E2625158E7938F4F313323368AF7E95AD1E8B989
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Debian GNU/Linux 9.6.0 + nonfree Stretch [i386] 4xDVD
 ```bash
 magnet:?xt=urn:btih:14232E14C93ACDCBD9050809003C0C1015D4E637
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Q4OS - дистрибутив операционной системы Linux, с�
 magnet:?xt=urn:btih:8EF53DC6EF4F02D2B0A0D6444DE0D61A9B9AA4FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Debian GNU/Linux 9.6.0 + nonfree Stretch [amd64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:B059CCE29BCDA2C5510517DB3D658F85B864FFC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Manjaro Linux 0.8.8 (Arch + зоопарк рабочих столов) [x86-64]
 magnet:?xt=urn:btih:36A55C042684BAFFD01BC12AF5ED676C4FD7D84D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ Fedora 27 Live spins [x86-64] 7xDVD
 ```bash
 magnet:?xt=urn:btih:E6D1B2CA3BB8B0B15DD9D733523E383B1D5A2B47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Manjaro Linux 0.8.8 (Arch + зоопарк рабочих столов) [i686] 9
 magnet:?xt=urn:btih:A65662CED866A712E1232AF53CD6E27E7768321A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ Red Hat Enterprise Linux 8.3
 ```bash
 magnet:?xt=urn:btih:9F4C3119F398E6617F57588B5357E7BB4CD026B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ Red Hat Enterprise Linux 7.9
 magnet:?xt=urn:btih:4518A735EEEA3B187639CB04A56D30ED581A5D43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ Red Hat Enterprise Linux (Server, Workstation, Client) 6.10 1xDVD
 ```bash
 magnet:?xt=urn:btih:025CEF17BC712B0758EE4B92681E038BE978522D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ Fedora 25 [i386] 11xDVD
 magnet:?xt=urn:btih:38CD168AEECEB1FEF1E2A717D1F70734DB383FCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ CentOS 7.7 (1908) [x86-64] 5xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:84A10CAABCC60283880BF2CC795FC55DC286A22D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ CentOS 7.7 (1908) [i386] 2xDVD, 1xCD
 magnet:?xt=urn:btih:D82D3406080BDBE2A11399D6E423D09D402A7ED0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ KaOS Linux 2015.11 (Arch + Plasma KDE 5) [x86-64] 1xDVD
 magnet:?xt=urn:btih:939C1FCECA69196E270BB9008FF4ED3152DC9E25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ KNOPPIX 7.6 [x32, x64] 1xDVD
 ```bash
 magnet:?xt=urn:btih:CF8C34360A7FEC226E279411B07B9DF9093CCB6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +621,8 @@ Jondo Live-DVD предлагает безопасные, предварител
 magnet:?xt=urn:btih:2F6CF7EE3BD8E10C0BDB7207553572E6C74BF391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ Red Hat Enterprise Linux (Server) 7.2 [x86-64] 1xDVD + 1xCD
 magnet:?xt=urn:btih:D597607F28F3E9BD3D16F657EE572CA5EDA84025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ Red Hat Enterprise Linux (Server, Workstation, Client) 7.6 [x86-64] 9xDVD
 ```bash
 magnet:?xt=urn:btih:81A7018D2B16C32A5CE664CEFAB0812FAC415BC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +700,8 @@ Arch — «легковесный», простой и гибкий дистри
 ```bash
 magnet:?xt=urn:btih:2CA62704BC6F0D23581CA3ED6ECA611431B7A4C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

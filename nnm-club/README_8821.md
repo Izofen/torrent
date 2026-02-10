@@ -22,6 +22,8 @@ VA - Fairytale Chillout (Smooth Vocal Lounge Selection) (2019) [MP3|320 Kbps] <B
 magnet:?xt=urn:btih:C8A33FE5FB2F2E03498A8DCB12EB6958854F1488
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Guido's Lounge Cafe Vol.3 (2019) [MP3|320 Kbps] <Deep House, Electronica>
 ```bash
 magnet:?xt=urn:btih:78355AB0D7E2B8DB180DD90ED4CCE0F91D5D8586
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Bob Katsionis - 4 альбома Collection (2002-2012) [FLAC|Lossless|tracks + 
 magnet:?xt=urn:btih:FC3E98BAA1A2C1EAC7501652403DDDEB8CB00631
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ VA - Pop Dance Power Hits (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
 magnet:?xt=urn:btih:FD0CCE0F89C84266848466CDB2A5A5CB90FA70E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +135,8 @@ magnet:?xt=urn:btih:FD0CCE0F89C84266848466CDB2A5A5CB90FA70E9
 magnet:?xt=urn:btih:AC81714429444F155749A5EE7BD576660A49422D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ Movavi Slideshow Maker – это простая и удобная програ�
 ```bash
 magnet:?xt=urn:btih:E022C8633A1288797A152FC2C126B92358CA0953
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ VA - не Громкие новинки недели 43 (2019) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:9FEC7658A062136D23113E866356FF2806443E5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ VA - German Top 100 Single Charts 15.11.2019 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:FD486EABF6013AD90078DF35746DFEA42E182D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:FD486EABF6013AD90078DF35746DFEA42E182D5D
 ```bash
 magnet:?xt=urn:btih:38951C4EB05388DC22DA7F2C127C0C6E664314AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:38951C4EB05388DC22DA7F2C127C0C6E664314AD
 magnet:?xt=urn:btih:46E99C9E9BD33F67DF3658B6E4CD5000B6B0E4B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:46E99C9E9BD33F67DF3658B6E4CD5000B6B0E4B2
 ```bash
 magnet:?xt=urn:btih:089BD2B88B7481C2FA820AE1E9766DE011C39447
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ VA - Record Super Chart 613 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 magnet:?xt=urn:btih:2D7153884A120016EADA557148C383B7AC84CE43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:2D7153884A120016EADA557148C383B7AC84CE43
 ```bash
 magnet:?xt=urn:btih:EF23295F1E6EA1C9ACEEE437A325BD153B9CAD1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:EF23295F1E6EA1C9ACEEE437A325BD153B9CAD1B
 magnet:?xt=urn:btih:0EED632F24FBCF0C66647CB7E6AF677EB86FD9D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ iFlicks — это метаданные к сериалам и фильмам. �
 ```bash
 magnet:?xt=urn:btih:AC557386F16D3C09032376B660F75F2B572E799C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ Axxis - 30th Anniversary - Best Of EMI-Years (2019) [MP3|320 Kbps] <Melodic Heav
 magnet:?xt=urn:btih:A628229856B1E26911F2D3AC9E510E20A07B9AB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:A628229856B1E26911F2D3AC9E510E20A07B9AB3
 ```bash
 magnet:?xt=urn:btih:1116E97C1E56782D457FB69F512380204BB8B292
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:1116E97C1E56782D457FB69F512380204BB8B292
 magnet:?xt=urn:btih:87376D966A8FA7DB10F47557916B01B9E4A6AB66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:87376D966A8FA7DB10F47557916B01B9E4A6AB66
 magnet:?xt=urn:btih:E6BDCD199F36415EB97E43C7F7479F51DA5759CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ GPG Suite 2019.2 (build 1587) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:FFF67A69B2870008D6E01DC30EB37AFD45EA00E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ magnet:?xt=urn:btih:FFF67A69B2870008D6E01DC30EB37AFD45EA00E0
 ```bash
 magnet:?xt=urn:btih:37D1949FFCAA3D8F4C0362825873A17508F743E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ Newsflow v 1.4.11 [En]
 magnet:?xt=urn:btih:29A8C7F77932C665E22EFD193CDE0C1ED91715C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ DxO PhotoLab 3 ELITE Edition 3.0.2 (build 224) [Multi]
 ```bash
 magnet:?xt=urn:btih:C4BFAC3F1D3C66043F2C69C05E02555EA309CA8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ VA - The Official UK Top 40 Singles Chart 15.11.2019 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:2862CC3D3395D03E11036AEF692F264D1F0EFB4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ The Church - The Best Of The Church (1999) Compilation [FLAC|Lossless|tracks + .
 magnet:?xt=urn:btih:9BAA07A2B018767FECB582CFA955D62193FCD13D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ magnet:?xt=urn:btih:9BAA07A2B018767FECB582CFA955D62193FCD13D
 ```bash
 magnet:?xt=urn:btih:5A38AB830659F8ABB7A6ED8AA3454D11B615C46C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Pillars of Eternity (2015) [Ru/Multi] (3.8.0.87535/dlc) License GOG [Definitive 
 magnet:?xt=urn:btih:5A08359E7BC84C66BF07FD93A2F9018AA6F7396F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:5A08359E7BC84C66BF07FD93A2F9018AA6F7396F
 ```bash
 magnet:?xt=urn:btih:E86065DBC293401BEFC5EE344D255E6BDCAAF373
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Age of Mythology: Retold - игра от создателей культовой
 magnet:?xt=urn:btih:D0C625F1EACE5BC5ED3C2CB9A04FE738AC5E3701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:D0C625F1EACE5BC5ED3C2CB9A04FE738AC5E3701
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:D0C625F1EACE5BC5ED3C2CB9A04FE738AC5E3701
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:D0C625F1EACE5BC5ED3C2CB9A04FE738AC5E3701
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:D0C625F1EACE5BC5ED3C2CB9A04FE738AC5E3701
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ AutoCAD – это больше, чем проектирование. Прида
 magnet:?xt=urn:btih:A5914A46868167CE861DAAD3F7CA06083898A782
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ magnet:?xt=urn:btih:A5914A46868167CE861DAAD3F7CA06083898A782
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Launcher for zapret 2.5 [Ru/En]
 magnet:?xt=urn:btih:9F58E7A56F047DB3E630FCBC730920FA21066FD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:9F58E7A56F047DB3E630FCBC730920FA21066FD8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:9F58E7A56F047DB3E630FCBC730920FA21066FD8
 ```bash
 magnet:?xt=urn:btih:6B77FC9AC4917228A48E735B7717EDDC1FB2380C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Neverwinter Nights: Enhanced Edition (2018) [Multi] (89.8193.37-15b/dlc) License
 magnet:?xt=urn:btih:727848A1F0C5808B880DEF11D98D6E900B89A367
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:727848A1F0C5808B880DEF11D98D6E900B89A367
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:727848A1F0C5808B880DEF11D98D6E900B89A367
 magnet:?xt=urn:btih:6C5D97C267643B79700307BB870D8050206CC117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ WinRAR просит купить сумку, раз вы не хотите по�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Hazure Skill "Kinomi Master": Skill no Mi (Tabetara Shinu) o Mugen ni Taberareru
 magnet:?xt=urn:btih:A4626EA797C9DAA48200A1B35981B673A71D0640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:A4626EA797C9DAA48200A1B35981B673A71D0640
 ```bash
 magnet:?xt=urn:btih:3F282A4A4B9E1CC233D4CF586215153ACF954C5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:3F282A4A4B9E1CC233D4CF586215153ACF954C5C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:3F282A4A4B9E1CC233D4CF586215153ACF954C5C
 ```bash
 magnet:?xt=urn:btih:C4EE9A16E793088208D0C4E119949A2BC4D33F3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:C4EE9A16E793088208D0C4E119949A2BC4D33F3A
 magnet:?xt=urn:btih:FD648E4AD080235689ABC2C35263B9DAB3D4DA34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:FD648E4AD080235689ABC2C35263B9DAB3D4DA34
 ```bash
 magnet:?xt=urn:btih:7237B6BA153A6C18025472671B25F8A0DF843D57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:7237B6BA153A6C18025472671B25F8A0DF843D57
 magnet:?xt=urn:btih:CDBABEE0BE3F529BBBEF4430CAC759DAA50DEC53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:CDBABEE0BE3F529BBBEF4430CAC759DAA50DEC53
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Meta* обязана ответить на обвинения в удалени�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +676,8 @@ Launcher for zapret 2.4 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:64C4652569A1A3CDBA30BA96A8007E38BE74C2DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

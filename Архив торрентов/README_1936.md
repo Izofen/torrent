@@ -28,6 +28,8 @@
 magnet:?xt=urn:btih:C07661CF5FD064309A5F29275B7D25C6C5E81728
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ magnet:?xt=urn:btih:C07661CF5FD064309A5F29275B7D25C6C5E81728
 ```bash
 magnet:?xt=urn:btih:0779583901DAF366568F2C2CAD57E3F1B4AE1144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -80,6 +84,8 @@ Indie Rock Drops - еще одна фантастическая коллекци
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -112,6 +118,8 @@ Antonio Cobo - 3 albums (1998-1999) [MP3|320 кб/с]<Instrumental, New flamenco
 magnet:?xt=urn:btih:7A83168F9ED59859BBBC659162971AB14FA554FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ NG: Путешествие к ядру Земли / Down to the Earth's core (20
 ```bash
 magnet:?xt=urn:btih:6D04166E83410E57234E1C17F417E3725919E835
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +170,8 @@ magnet:?xt=urn:btih:6D04166E83410E57234E1C17F417E3725919E835
 magnet:?xt=urn:btih:1DBA5036B043DBD0703A7C48A3FC2B2578E3B0F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ magnet:?xt=urn:btih:1DBA5036B043DBD0703A7C48A3FC2B2578E3B0F1
 ```bash
 magnet:?xt=urn:btih:47C06AD55F643E2F50BBD118F6361C6AA95C8CAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ magnet:?xt=urn:btih:47C06AD55F643E2F50BBD118F6361C6AA95C8CAA
 magnet:?xt=urn:btih:B87475DAB5394F8F7EEECD23B006534B0C54A2A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ RAW (среди фанатов известная как Monday Night Raw или
 ```bash
 magnet:?xt=urn:btih:DFEBDB1F74AB70D028FC7739F9546D8104EC4C2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ Zero Assumption Recovery — программа для восстановлен�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ Inpaint - позволяет умно удалять нежелательные 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ Scanitto Pro - это легкое, быстрое и не перегружен�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ Scanitto Pro - это легкое, быстрое и не перегружен�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +384,8 @@ Fedora 17-Live [i686 + x86-64] (4xCD)
 magnet:?xt=urn:btih:C5C49EC3957D7712FFC9ADF4AC7B8568E91385D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +412,8 @@ magnet:?xt=urn:btih:C5C49EC3957D7712FFC9ADF4AC7B8568E91385D6
 magnet:?xt=urn:btih:DA19CE8D22540E6301FFAC9E9592AAFDCFC95EDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ magnet:?xt=urn:btih:DA19CE8D22540E6301FFAC9E9592AAFDCFC95EDE
 ```bash
 magnet:?xt=urn:btih:15AE5A172D28C63B4D1D6ADB12950F08B542760B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +474,8 @@ magnet:?xt=urn:btih:15AE5A172D28C63B4D1D6ADB12950F08B542760B
 magnet:?xt=urn:btih:7456726C43AFD38B81BBE6F4D48D771460EFC5AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +500,8 @@ magnet:?xt=urn:btih:7456726C43AFD38B81BBE6F4D48D771460EFC5AB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +525,8 @@ magnet:?xt=urn:btih:7456726C43AFD38B81BBE6F4D48D771460EFC5AB
 ```bash
 magnet:?xt=urn:btih:80A0D1F0F7FDA121ED2ACA2ECD18A54E7C537780
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +557,8 @@ magnet:?xt=urn:btih:80A0D1F0F7FDA121ED2ACA2ECD18A54E7C537780
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +582,8 @@ magnet:?xt=urn:btih:80A0D1F0F7FDA121ED2ACA2ECD18A54E7C537780
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +611,8 @@ magnet:?xt=urn:btih:80A0D1F0F7FDA121ED2ACA2ECD18A54E7C537780
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +638,8 @@ Alan Wake's American Nightmare - экшен с элементами хоррор
 ```bash
 magnet:?xt=urn:btih:9990FC9852FCFEB30A2B58B16CB0DA279895A8A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +674,8 @@ VA - Max Payne 3 (by Health) (2012) [MP3|320 кб/с]<Score>
 magnet:?xt=urn:btih:4AC7B8C44F75745EF6F31E7E70C553BF4E8443F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +701,8 @@ magnet:?xt=urn:btih:4AC7B8C44F75745EF6F31E7E70C553BF4E8443F2
 magnet:?xt=urn:btih:5F796297ECFB3BED94DAAB6D3788FE25252E3A3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +726,8 @@ magnet:?xt=urn:btih:5F796297ECFB3BED94DAAB6D3788FE25252E3A3A
 ```bash
 magnet:?xt=urn:btih:446A6B30479E08137D404B040E6322EE094C0753
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

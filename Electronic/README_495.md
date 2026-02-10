@@ -22,6 +22,8 @@ The Twins-  Love Is Blind (1993) [FLAC|Lossless|image + .cue] <Synth-pop>
 magnet:?xt=urn:btih:158F72B9A6F14FD040E76959C9CBAA0C6B517873
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ John N. Sellekaers (Xingu Hill, Urawa) - Discography 15 Releases (1995-2006) Nov
 ```bash
 magnet:?xt=urn:btih:02425749AC1873AE122CDBF9B4BE0082E5650C9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Action Nano - Select and Start (2008) (M-Tronic) [FLAC|Lossless|tracks + .cue] <
 magnet:?xt=urn:btih:71BF00E2889DA30FD37DEBFEECC2B2AD2E4E969E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Intro: Rob Dougan – Clubbed to Death
 ```bash
 magnet:?xt=urn:btih:BA98F49946374176AA615CF94B46EE5CD332EE93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Poker Flat Recordings: Best of 2019 (2019) Compilation [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:FA65931DCA62AEE2F1DB468B4B31004FE6F06DCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Rydex - Trancemission Marathon 2019 (2019-12-31) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:FCEF5271D678FECA127816284D12739DFC133C63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Gabriel Le Mar - Into Sonic States (2021) LSD - Liquid Sound Design [FLAC|Lossle
 magnet:?xt=urn:btih:E5F780E65E9F52D1E1A92C315DB0DC3717EFE2E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +223,8 @@ Steve Pickton | Stasis - Discography 19 Releases (1993-2021) [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:F1C629831C02D21490F6E7BED060574D47049B0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ Saive - Closer (2021) Click Records [FLAC|Lossless|WEB-DL|tracks] <Tech House, P
 magnet:?xt=urn:btih:885152DC953E0C021160FAAFE0AD50AB21CA9F72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ LTN - The Path Of Life (2019) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive Ho
 magnet:?xt=urn:btih:DDC3530CA6128656FDD1AFAEF1490E7D054920BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +307,8 @@ Autumn Of Communion - Discography 28 Releases + Box Set 20 Releases (2012-2021) 
 ```bash
 magnet:?xt=urn:btih:BA8B2C9C33EB77D3AD27DCB0D2FCE97332D91FE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +337,8 @@ Pleiadians - Pyramid (2019) [FLAC|Lossless|WEB-DL|tracks] <Psytrance, Goa Trance
 magnet:?xt=urn:btih:E808F6DC56F3D567D97B83AC44DBA631FADD2B79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +365,8 @@ Iris - Siх (2019) [FLAC|Lossless|image + .cue] <SynthPop, SynthWave>
 ```bash
 magnet:?xt=urn:btih:4877E13A9945CECA8C7CE26110D634E9056CFF79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +395,8 @@ Sole Massif & Jacob Newman - Santraukos (2019) [FLAC|Lossless|WEB-DL|tracks] <Am
 magnet:?xt=urn:btih:592DC8D2B904D750CF8A835D918FFAC4E5D64A58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +423,8 @@ Above & Beyond - Live @ The New York Expo Center, United States 2019-12-31 [MP3|
 ```bash
 magnet:?xt=urn:btih:95B1B2869CEB4245585B00EC6B90B56CA7F56D06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +453,8 @@ Dinka - A Date With Dinka (2014) 2CD, DJ Mix, Compilation [FLAC|Lossless|tracks 
 magnet:?xt=urn:btih:75E14DED0F1005FB2C3225D2A58711DE2874B764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +481,8 @@ Igor Pumphonia - Elixir Of The Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambien
 ```bash
 magnet:?xt=urn:btih:69DD10CC696F5F43168C27951FE90F1744624C86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +511,8 @@ DJ Eric Foster - Night Light (2004) [FLAC|Lossless|image + .cue] <House, Trance>
 magnet:?xt=urn:btih:A78995F6CCE3FC95689CCA20197967B7DBCE9779
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ Overmono - fabric presents Overmono | Unmixed + DJ Mix (2021) Fabric Worldwide [
 magnet:?xt=urn:btih:4437692807FBDF6217A012493AF6E467D7E861A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +565,8 @@ Fidem Community - Discography 20 Singles (2020-2021) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:0DCC8AF15E025B26226CCADE3833172CE9228C2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +595,8 @@ Holon - Discography 11 Releases (2013-2021) Subatomic Audio [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:465C69681FB4B5DF8BE135B937FB0130DB2EA346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +623,8 @@ Doyeq - Discography 43 Releases (2009-2021) [FLAC|Lossless|WEB-DL|tracks] <Dub T
 ```bash
 magnet:?xt=urn:btih:C2261EB0DEB2C65ECA9D9986A2D7861D992753B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +653,8 @@ Tangent - Discography 8 Releases (2012-2021) Mindtrick Records, Tympanik Audio, 
 magnet:?xt=urn:btih:A4F7F4D2B6FF649763DA50546E02C27491AFD373
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +681,8 @@ Dronarivm - Label-Pack 85 Releases (2012-2021) [FLAC|Lossless|tracks+.cue, track
 ```bash
 magnet:?xt=urn:btih:1AAC207F07AFBBBAF1E00A0736527D72FB4F9ECE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -663,6 +711,8 @@ Nuron | Fugue - Discography 8 Releases (1993-2021) Likemind, De:tuned [FLAC|Loss
 magnet:?xt=urn:btih:61E065774E1A952828C8ED9051160CBE77D0C38D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +737,8 @@ Si Matthews (Confluent Phase, Cryostasis) - Discography (2015-2019) Carpe Sonum,
 ```bash
 magnet:?xt=urn:btih:8F56EF314A0B29BAA83A96DE2F7812F4F56DDFEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

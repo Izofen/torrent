@@ -22,6 +22,8 @@ Rudy Brass - Frog's Jump (1979) LP [MP3|320 Kbps] <Electronic, Disco, Funk Soul>
 magnet:?xt=urn:btih:484172564F053DB908F5A8313BC5DE15EB4FDAFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Tim Wynn - Freaks / Иные (Original Motion Picture Soundtrack) (2019) [MP3|32
 ```bash
 magnet:?xt=urn:btih:9E0DEAE5A4E6F8E1BC723DB5F1C54BA93788BAEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Folder scanner - визуально анализирует диск / папку
 magnet:?xt=urn:btih:9C02F45E232C720D4A971E5082C66F5E0FEFDD93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:9C02F45E232C720D4A971E5082C66F5E0FEFDD93
 magnet:?xt=urn:btih:FFE2A7C05A0B8AC3297C278EB6A6101091843F76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ The English Garden - журнал для всех, кто любит краси�
 ```bash
 magnet:?xt=urn:btih:5785C4545C7D010E0F51F8EC94B0D65A4C554C94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ Cold Blue - Live @ Anomaly, Tunnel Club Birmingham, United Kingdom 2019-10-12 [M
 magnet:?xt=urn:btih:AF6AFDBE1C43CBD407EFCCECECC4646F069531EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -176,6 +188,8 @@ Adguard — это лучший способ избавиться от разд�
 ```bash
 magnet:?xt=urn:btih:477112317C4BEFAC7A3C3F71B4FED816A0EA01D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -204,6 +218,8 @@ Ganz Feld - Urania (2018) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Hardvapour, Ex
 magnet:?xt=urn:btih:2F27957E0ACADD7666276C1B987BB046F237690F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ magnet:?xt=urn:btih:2F27957E0ACADD7666276C1B987BB046F237690F
 ```bash
 magnet:?xt=urn:btih:5D121C50F4921228140B65DC76DB87CF5BF61F60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +277,8 @@ Agonizer - Birth The End (2007) [MP3|192-320 kbps]<Heavy / Power Metal>
 magnet:?xt=urn:btih:429535D39A9BA9FA2D0542433ECAFAA7EA0E8C1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +302,8 @@ Ace Ventura - Rebirth (Loud Remixes) (2010) [MP3|320 kbps] <Progressive>
 ```bash
 magnet:?xt=urn:btih:D56F29E9AF510069FA70915A5218B53F07520B95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +329,8 @@ DC Rodriguez - Depature (2010) [MP3|320 kbps] <Psytrance, Progressive>
 magnet:?xt=urn:btih:74966D5660EF4F428C708FBD231500C838EB0A63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ magnet:?xt=urn:btih:74966D5660EF4F428C708FBD231500C838EB0A63
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ New Age Hippies - Dive (EP) (2010) [MP3|320 kbps] <Progressive>
 magnet:?xt=urn:btih:50CD5CAE59173E2BD315570A66C3C88BB7DB8B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ Sensient - Offworld (EP) (2009) [MP3|320 kbps] <Psytrance, Progressive>
 magnet:?xt=urn:btih:84E91EFCDE6E60DDDBA00D458D992EE06033EF85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ Maxim является абсолютно уникальным журналом 
 ```bash
 magnet:?xt=urn:btih:7695CE050F762EFC64E6F5043F30951913F542F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:7695CE050F762EFC64E6F5043F30951913F542F0
 magnet:?xt=urn:btih:1BD7B2115A38718F2ABC95630083684C7BA4FBF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:1BD7B2115A38718F2ABC95630083684C7BA4FBF9
 ```bash
 magnet:?xt=urn:btih:200D933232484B9810D02F659F454D70284CA854
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ DxO PhotoLab Elite 2.0.1 build 23411 RePack by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:45029819637F6E41C5505F2834AB2E759E562286
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:45029819637F6E41C5505F2834AB2E759E562286
 ```bash
 magnet:?xt=urn:btih:4793F678C08CC94A8492ACEA974A86015B784117
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ Gipsy Kings - 16 альбомов (1982-2006) [MP3|320 кб/с]<Rumba - Flamenco
 magnet:?xt=urn:btih:7E8E111045CA3ABB411E79F581A52CBDC5AF82A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:7E8E111045CA3ABB411E79F581A52CBDC5AF82A1
 ```bash
 magnet:?xt=urn:btih:6BC5242968E2DBB63956B746A35784FE5A035E76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:6BC5242968E2DBB63956B746A35784FE5A035E76
 ```bash
 magnet:?xt=urn:btih:C88BD0A4F0692CD6A5BC4EEC7D3A4C2CFAAFFD08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ CD1 - The Princess:
 magnet:?xt=urn:btih:BE1A7FE056C922C70FC09FDAEE34E10AD45EACB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:BE1A7FE056C922C70FC09FDAEE34E10AD45EACB8
 magnet:?xt=urn:btih:8AA67F5C1D4C9DFECCA71FB9FAA76CE3BF47DB50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:8AA67F5C1D4C9DFECCA71FB9FAA76CE3BF47DB50
 ```bash
 magnet:?xt=urn:btih:09C668E2290E3A1A9045CC1CF5B400FEE93115EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

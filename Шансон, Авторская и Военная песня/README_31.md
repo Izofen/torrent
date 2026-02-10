@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:F667B7F4042D531F3C426D3D3501D2CB404AB2A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:F667B7F4042D531F3C426D3D3501D2CB404AB2A1
 ```bash
 magnet:?xt=urn:btih:7847BC3DDFBCE5FF853F972E6320BF2B5D5967F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:7847BC3DDFBCE5FF853F972E6320BF2B5D5967F9
 magnet:?xt=urn:btih:B5DEEDA8A436609191AC2DD26F300CC00DF8CEB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:B5DEEDA8A436609191AC2DD26F300CC00DF8CEB9
 ```bash
 magnet:?xt=urn:btih:577997BDF4BE41234732CE249E836EDD87172FCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:577997BDF4BE41234732CE249E836EDD87172FCC
 magnet:?xt=urn:btih:B28CABA775DC18817756C4949914171343BCEE90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:B28CABA775DC18817756C4949914171343BCEE90
 ```bash
 magnet:?xt=urn:btih:DC716788744BA9B44C25FA589E70040AFAD341E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:DC716788744BA9B44C25FA589E70040AFAD341E0
 magnet:?xt=urn:btih:8BA4E38BC4DBC62FD3CDAC94E18545D751183314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:8BA4E38BC4DBC62FD3CDAC94E18545D751183314
 ```bash
 magnet:?xt=urn:btih:74857D5BDA5931E71F3E0EC89E8EB4B65505FBD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Визбор 85 (К 85-летию Юрия Визбора) (2019) [MP3|320 
 magnet:?xt=urn:btih:271E2A7A4742375422AE601EA304C6728F2CB06D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:271E2A7A4742375422AE601EA304C6728F2CB06D
 ```bash
 magnet:?xt=urn:btih:DF5E845194F3C999515F7404AB57A51E5E693488
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ magnet:?xt=urn:btih:DF5E845194F3C999515F7404AB57A51E5E693488
 magnet:?xt=urn:btih:A1B1582A62200BD6279BA1B9AC1ED8007705FC64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:A1B1582A62200BD6279BA1B9AC1ED8007705FC64
 ```bash
 magnet:?xt=urn:btih:AB7FA4EB69A47B45EC0F6912601A5B3E2818CD65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:AB7FA4EB69A47B45EC0F6912601A5B3E2818CD65
 magnet:?xt=urn:btih:A3DC73FF21451F38B4194EB9E07D797AB48CC176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:A3DC73FF21451F38B4194EB9E07D797AB48CC176
 ```bash
 magnet:?xt=urn:btih:1C500FDE63EFE284206F52595C1B3F62580B4A5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ magnet:?xt=urn:btih:1C500FDE63EFE284206F52595C1B3F62580B4A5A
 magnet:?xt=urn:btih:C0BE25ED91D1E8C9E73AC45F0B498B76A41EDFB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ magnet:?xt=urn:btih:C0BE25ED91D1E8C9E73AC45F0B498B76A41EDFB6
 magnet:?xt=urn:btih:0240FFA02840D91E66B0596DD2DC289656290404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +485,8 @@ magnet:?xt=urn:btih:0240FFA02840D91E66B0596DD2DC289656290404
 ```bash
 magnet:?xt=urn:btih:02D1A3149F11241E8CAC9A76C5140429392E5F5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +519,8 @@ magnet:?xt=urn:btih:02D1A3149F11241E8CAC9A76C5140429392E5F5D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +547,8 @@ magnet:?xt=urn:btih:02D1A3149F11241E8CAC9A76C5140429392E5F5D
 ```bash
 magnet:?xt=urn:btih:47474A934E69D141B065826879DAD2592FA77693
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +577,8 @@ magnet:?xt=urn:btih:47474A934E69D141B065826879DAD2592FA77693
 magnet:?xt=urn:btih:BAFA967B921029CEB1267F2B5C0F355D64DC58D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +605,8 @@ magnet:?xt=urn:btih:BAFA967B921029CEB1267F2B5C0F355D64DC58D2
 ```bash
 magnet:?xt=urn:btih:085EF81295F657DBC24FC958126A55217882B5FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +641,8 @@ magnet:?xt=urn:btih:085EF81295F657DBC24FC958126A55217882B5FD
 magnet:?xt=urn:btih:A2EF7448A0D4E58E91AC70B4F2AEB794968FA712
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +670,8 @@ magnet:?xt=urn:btih:A2EF7448A0D4E58E91AC70B4F2AEB794968FA712
 magnet:?xt=urn:btih:B714DA92BBD483137CFE943BB168E980B0BC65C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +695,8 @@ VA - The Great French Singers Collection (12CD)(2011) [MP3|320 кб/с]<French C
 ```bash
 magnet:?xt=urn:btih:921039AF776F0ACC597EFA2A0EBF678D63EAE8BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -677,6 +725,8 @@ magnet:?xt=urn:btih:921039AF776F0ACC597EFA2A0EBF678D63EAE8BD
 magnet:?xt=urn:btih:5E97A218623317E21EACB28781D2E76A3E52C5CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -703,6 +753,8 @@ VA - Чёрный тюльпан 5 (2004) [FLAC|Lossless|tracks + .cue]<Шанс
 ```bash
 magnet:?xt=urn:btih:50A3CFC2259D597B3857FB115ED7EAD19D0E9384
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

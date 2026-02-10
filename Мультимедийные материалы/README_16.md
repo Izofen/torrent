@@ -22,6 +22,8 @@ Merion Academy | Полный курс по сетевым технология�
 magnet:?xt=urn:btih:492672DD9200A37F255A8154B5523BF16DA348C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:492672DD9200A37F255A8154B5523BF16DA348C2
 magnet:?xt=urn:btih:B29B1362074CEAAA40920752D55A0377ECF3F36A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:B29B1362074CEAAA40920752D55A0377ECF3F36A
 ```bash
 magnet:?xt=urn:btih:05624ED15DDB11392EEE72300DF193CBDB5B36F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ WebForMySelf, Виктор Гавриленко | Laravel & Angular. Созда�
 magnet:?xt=urn:btih:50C4DC9B31EE82EBAD054499E0EF6DF8FD7C21A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ MultiTrade | Секреты и Методы работы Разведслужб 
 magnet:?xt=urn:btih:FB6866672BC88A73F7A9DA6710C322D4686DC076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ DaddaRuleKonge | The PlayStation Encyclopedia (2014) [unpacked] [En]
 ```bash
 magnet:?xt=urn:btih:5307AD0AA3D3CC052CEC41219C00CBC144316B55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:5307AD0AA3D3CC052CEC41219C00CBC144316B55
 magnet:?xt=urn:btih:C68CF3D4DB1B8DD611E4BC53A4577E620D932453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +219,8 @@ PDF-файлы включают в себя все названия PS2, вкл�
 ```bash
 magnet:?xt=urn:btih:DFD8C0506C94C382F2EC04AE94032897FD3860FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ WEB-сервисы (протокол SOAP)
 magnet:?xt=urn:btih:1ACD2128BD375D7F4910CE193B172DCD0EC0D46B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +275,8 @@ Psi-Technology | Огненный флюид (2020) [EXE]
 magnet:?xt=urn:btih:DCFDB1567901BABD4BF5930CB48C2EBD991F861D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ magnet:?xt=urn:btih:DCFDB1567901BABD4BF5930CB48C2EBD991F861D
 ```bash
 magnet:?xt=urn:btih:35712618CF6DA5FE996EB53EA3CDE56F06581585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +332,8 @@ magnet:?xt=urn:btih:35712618CF6DA5FE996EB53EA3CDE56F06581585
 magnet:?xt=urn:btih:16DD38E3F04B571274E761F36B55569A36709268
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ Stepik, Василий Еремин | 1С: Система компоновки �
 ```bash
 magnet:?xt=urn:btih:B0C248D4A5E309B38181F03D8CA81FE32F80DA91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

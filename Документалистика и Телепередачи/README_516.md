@@ -1,3 +1,29 @@
+###  Публикация: 1532710   (712699) от 20.02.2022
+
+Следствие вели... (20.02.2022) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_712699.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Девушка с памятника». Ленинград, 1966 год. В заводском общежитии убита девушка. Почему в ее смерти обвинили нечистую силу? Что обеспечило алиби подозреваемому? И как убийцу выдала синтетическая ткань? Дело о безграничной любви и нечистой силе – в фильме из цикла «Следствие вели…»Производство: Россия | Телекомпания «НТВ»Жанр: Документальный, криминал, расследованиеЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04A6841D4232D7852D9C73F6CFD223289E527833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401159   (712750) от 08.08.2020
 
 Заметки путешественника / Beautiful Planet (2008) BDRemux [MPEG-2/1080i] (Серия 1, эпизоды 1-18 из 19)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:34822AC97553CBCD91D877826F9F53673615AD43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:34822AC97553CBCD91D877826F9F53673615AD43
 magnet:?xt=urn:btih:700347174C22EF62B29912655B3BF66493F17D8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:700347174C22EF62B29912655B3BF66493F17D8F
 ```bash
 magnet:?xt=urn:btih:E8F4D2402C3AE739EF47B00E9B3D2FA90DE91702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:E8F4D2402C3AE739EF47B00E9B3D2FA90DE91702
 magnet:?xt=urn:btih:F85E2195F3CB7FDB9A534393132E61084843B643
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:F85E2195F3CB7FDB9A534393132E61084843B643
 ```bash
 magnet:?xt=urn:btih:9CF8BE711EC39925B33E2F1B5F5A9DAB15F5D88F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:9CF8BE711EC39925B33E2F1B5F5A9DAB15F5D88F
 magnet:?xt=urn:btih:3F3E18E58F93CE5F705890C1941777F8A7F81461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:3F3E18E58F93CE5F705890C1941777F8A7F81461
 ```bash
 magnet:?xt=urn:btih:AE84A60DA192AD1784C7E934B8AA36E806D9344F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:AE84A60DA192AD1784C7E934B8AA36E806D9344F
 magnet:?xt=urn:btih:1B799D66250986EDAC4171FCEA8BD1B49F052D46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:1B799D66250986EDAC4171FCEA8BD1B49F052D46
 ```bash
 magnet:?xt=urn:btih:42E77494271A0A2000467E084D7DF719AD8C7B73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:42E77494271A0A2000467E084D7DF719AD8C7B73
 magnet:?xt=urn:btih:59E2F0B96542F007765BAF9B9EB4E2ADF8FE60C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:59E2F0B96542F007765BAF9B9EB4E2ADF8FE60C2
 ```bash
 magnet:?xt=urn:btih:A40D25DE31100351259DC95F359B190C1EBB28F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:A40D25DE31100351259DC95F359B190C1EBB28F7
 magnet:?xt=urn:btih:EDEB4835B945BAFC5DC5465B65826162D8163DE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:EDEB4835B945BAFC5DC5465B65826162D8163DE9
 ```bash
 magnet:?xt=urn:btih:FB4C6CCAB92DDBBDA7C3989775D75AA65224A95F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:FB4C6CCAB92DDBBDA7C3989775D75AA65224A95F
 magnet:?xt=urn:btih:DF1B0A28968FF3384C82A98AB1BBD96F9B082613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:DF1B0A28968FF3384C82A98AB1BBD96F9B082613
 ```bash
 magnet:?xt=urn:btih:B27B9359FB31B5542833F606F6969C4BD7B36A9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:B27B9359FB31B5542833F606F6969C4BD7B36A9A
 magnet:?xt=urn:btih:796776D40B67F9DE9EEEDF50F764A8BAB6BC0DC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:796776D40B67F9DE9EEEDF50F764A8BAB6BC0DC4
 magnet:?xt=urn:btih:2B02FB6E48E39E5315DE86249A414C8933C2C0BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:2B02FB6E48E39E5315DE86249A414C8933C2C0BB
 ```bash
 magnet:?xt=urn:btih:26F3AAA4F2515056567F654FD30DC5160F7E9C74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:26F3AAA4F2515056567F654FD30DC5160F7E9C74
 magnet:?xt=urn:btih:1BE23452EDB98515F5D2C9DF8496AC3D99CA857F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:1BE23452EDB98515F5D2C9DF8496AC3D99CA857F
 magnet:?xt=urn:btih:7C6492975C40DBB87A38C78B9723E7AEDD36AAD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:7C6492975C40DBB87A38C78B9723E7AEDD36AAD2
 ```bash
 magnet:?xt=urn:btih:1070383D21ADF2F87249D6FDA962301CDE19987A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:1070383D21ADF2F87249D6FDA962301CDE19987A
 magnet:?xt=urn:btih:3CE486FE8303AE2440C2BAE27A19FBDEFFEE380F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:3CE486FE8303AE2440C2BAE27A19FBDEFFEE380F
 ```bash
 magnet:?xt=urn:btih:0452D4DD5D8132498DD6C6293B2CFE56E2E0B7F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:0452D4DD5D8132498DD6C6293B2CFE56E2E0B7F6
 magnet:?xt=urn:btih:DA3C5A336891ED12685F6ABF4D6047C672D05689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:DA3C5A336891ED12685F6ABF4D6047C672D05689
 magnet:?xt=urn:btih:3E8D654C76A339D31D2D23EFDBA0C904BB318331
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024837   (713982) от 10.06.2016
-
-Оружие Первой мировой войны (2014) SATRip (Серии: 1-4 из 4)
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_713982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая Мировая, или как ее еще называют, Великая война, стала одной из самых кровопролитных в истории человечества. Это был итог военного противостояния двух европейских военно-политических блоков - Тройственного союза и Антанты. В общей сложности, в Первую Мировую, было вовлечено свыше 30 государств с общей численностью населения более 1 миллиарда. 10 миллионов (   Читать дальше...   )Телекомпания: Россия, ОАО «ТРК ВС РФ «ЗВЕЗДА»Жанр: Документальный, война, оружие, историяПродолжительность: 4 х ~ 00:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A4B6004CD2C86D2A8047C1DBFB183A99A133417
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:17B3C4BD7BAD9CF92D162CD1E60FC4EEFF2F09E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:17B3C4BD7BAD9CF92D162CD1E60FC4EEFF2F09E8
 ```bash
 magnet:?xt=urn:btih:2FA3D39EB2575A35413DCD1647BEAD9663694186
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:2FA3D39EB2575A35413DCD1647BEAD9663694186
 magnet:?xt=urn:btih:D9923C7AA7EF7EE60DF39D974626A16E4D0BF262
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:D9923C7AA7EF7EE60DF39D974626A16E4D0BF262
 ```bash
 magnet:?xt=urn:btih:8295038D4BB96E4F916BCF2DF7CBF06CB473C507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:8295038D4BB96E4F916BCF2DF7CBF06CB473C507
 magnet:?xt=urn:btih:CAA308C9C049711B43D2356A9E5FD54275B9D948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:CAA308C9C049711B43D2356A9E5FD54275B9D948
 ```bash
 magnet:?xt=urn:btih:188B5A648ABD471A309491171B89FD524AA770E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:188B5A648ABD471A309491171B89FD524AA770E3
 magnet:?xt=urn:btih:94B69DCA0FA961447794C3FFC83A70B31C7C562C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:94B69DCA0FA961447794C3FFC83A70B31C7C562C
 ```bash
 magnet:?xt=urn:btih:BC3F3CE2DBEBD56EB3C5C5FA631562324CD3D51B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:BC3F3CE2DBEBD56EB3C5C5FA631562324CD3D51B
 magnet:?xt=urn:btih:9E320FEEAF0A291930C00F412F2FCF6322208510
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:9E320FEEAF0A291930C00F412F2FCF6322208510
 ```bash
 magnet:?xt=urn:btih:151F6381ED3B1264DDE07063E76C14DDEB3AE016
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:151F6381ED3B1264DDE07063E76C14DDEB3AE016
 magnet:?xt=urn:btih:A644CEF874D4E09F8426986A717C7B309A9399EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:A644CEF874D4E09F8426986A717C7B309A9399EE
 ```bash
 magnet:?xt=urn:btih:D1C50294D90267A69C4303372C30ABA2CA58A369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:D1C50294D90267A69C4303372C30ABA2CA58A369
 magnet:?xt=urn:btih:A1F6D5B98B55BFC4398E4E92AB59F08B0411A59E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:A1F6D5B98B55BFC4398E4E92AB59F08B0411A59E
 ```bash
 magnet:?xt=urn:btih:ADE05DA4270A7E54466717FD3E6F5BDE8EB1AE1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:ADE05DA4270A7E54466717FD3E6F5BDE8EB1AE1B
 magnet:?xt=urn:btih:429594EE0FB4F67F8B3C9DEE9E4D38ED902D8A18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ magnet:?xt=urn:btih:429594EE0FB4F67F8B3C9DEE9E4D38ED902D8A18
 ```bash
 magnet:?xt=urn:btih:EC10B809ABEAE2FCF85F3CF1009F50EE99442CE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:EC10B809ABEAE2FCF85F3CF1009F50EE99442CE3
 magnet:?xt=urn:btih:C83BB5B7D24F8CC4CA5A9789E51FA813DCCA4858
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,60 @@ magnet:?xt=urn:btih:C83BB5B7D24F8CC4CA5A9789E51FA813DCCA4858
 ```bash
 magnet:?xt=urn:btih:82B9419AACE5CFCCFF3E60F3EE66C02F4F1108DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852817   (1056050) от 
+
+Отель "Кактус" / Cactus Hotel (2023) WEB-DL [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056050.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пустыне Сонора в Аризоне старый кактус служит драгоценным оазисом для многих диких животных. От корней в «подвале» до цветущего «бара на крыше» этот кактус похож на роскошный «отель» для целой группы летающих, ползающих и прыгающих соседей. Ежедневно «заселяясь» и «выселяясь», дикие гости демонстрируют удивительные навыки выживания, переживают охотничьи приключения (   Читать дальше...   )Производство: Германия, Altayfilm GmbHЖанр: документальный, природа, фауна, флораРежиссер: Ян СохачевскиПеревод: ДублированныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21CCD9C0A3C31C6D9CFD25C42920C960F2C4848E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852807   (1056051) от 
+
+Отель "Кактус" / Cactus Hotel (2023) WEB-DL [H.264/2160p] [4K, SDR, 8-bit]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1056051.jpg" />
+</div>
+
+
+###  Подробнее
+
+В пустыне Сонора в Аризоне старый кактус служит драгоценным оазисом для многих диких животных. От корней в «подвале» до цветущего «бара на крыше» этот кактус похож на роскошный «отель» для целой группы летающих, ползающих и прыгающих соседей. Ежедневно «заселяясь» и «выселяясь», дикие гости демонстрируют удивительные навыки выживания, переживают охотничьи приключения (   Читать дальше...   )Производство: Германия, Altayfilm GmbHЖанр: документальный, фауна, флора, природаРежиссер: Ян СохачевскиПеревод: ДублированныйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:785D0F8DBEB9616C363EB5E767E3DE205819B176
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

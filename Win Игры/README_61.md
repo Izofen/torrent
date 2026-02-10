@@ -19,6 +19,8 @@ The Sinking City - игра-расследование в мире по моти
 magnet:?xt=urn:btih:35A392AFABC6167D2EA7E6DA150A78E6FEA2C2D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Citadelum (2024) [Ru/Multi] (2.0.0.17/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:34D25FC79582ADE34F02FEDED8C4A31C144695A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Duck Detective: The Secret Salami (2024) [En] (1.2.5) License GOG
 magnet:?xt=urn:btih:C3874140E5D30283705A1FBFF2E49C2E296AA151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Drug Dealer Simulator (2020) [Ru/Multi] (1.2.19.1) License GOG
 ```bash
 magnet:?xt=urn:btih:924D4236FC764C6444EC2A9E523672F0C8160622
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Wildermyth - ролевая игра с процедурно генерируе�
 magnet:?xt=urn:btih:1F0CA0F31CBFFA91DE1D5CDD9A3E5BF9DDE97753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Shredders (2022) [Ru/Multi] (13234/dlc) Repack Let'sРlay [540INDY Edition]
 ```bash
 magnet:?xt=urn:btih:00F7E1F4C37082B2635A0974DCF9C50970D103F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Dakar Desert Rally — это самые масштабные и безумны�
 magnet:?xt=urn:btih:0F61042A84D85CF6A2048D6152046831EC96B58F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (56442/dlc) Repack Decepticon [Del
 ```bash
 magnet:?xt=urn:btih:973692383D17DC1E117F551F4197D0716991693F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Karma: The Dark World - это кинематографичный психоло
 magnet:?xt=urn:btih:32966A7614AB5F57216C72D6D8428C8D5E92494C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Empyreal - сложная и динамичная ролевая игра. Од�
 ```bash
 magnet:?xt=urn:btih:B8FBE00D9BCE60D048223CA3CC59D3F54764B9D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Rising Star 2 - ролевая игра в сочетании с симулят�
 magnet:?xt=urn:btih:D2A351E5FA5A79BC506151217945FDA3D161BCBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:D008C6BC13D651ABD5F8226E3322514A4B052BC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Tales of Kenzera: ZAU (2024) [Ru/Multi] (1.5.0.45551) Repack Let'sРlay
 magnet:?xt=urn:btih:371052D02EABB45C8536CA86A21BE57D01ADB692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Silent Hill 2 Remake (2024) [Ru/Multi] (1.1.258 834) Repack seleZen [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:57467EC5126B96566E6D3E233EF92C73478598E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Tank Squad - это тактический боевой экшен, в кото�
 magnet:?xt=urn:btih:56A6A15D93D241F920AF5C9D514F37741196C94A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Codename: Ocean Keeper / Ocean Keeper: Dome Survival (2024) [Ru/Multi] (1.0) Rep
 ```bash
 magnet:?xt=urn:btih:84C18099AC8F87301E319DA96170E0FC2A678A86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0w/dlc) Scene Rune [En
 magnet:?xt=urn:btih:0F31B085F2035A148F1D724165D2A96AB7881473
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Builders of Greece (2024) [Ru/Multi] (1.0.0 build 18361871) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:F17A840765C17883D8DCFC829DDB44499ECD4C9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ MechWarrior 5: Clans (2024) [Ru/Multi] (1.0.102/dlc) Repack FitGirl [Digital Col
 magnet:?xt=urn:btih:964A671434532A2E0B377405C218951CE2BE93A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Liquor Store Simulator - это игра в жанре симулятор про
 ```bash
 magnet:?xt=urn:btih:0E3D468A9760A160EA89BFDE3A0F7877C24EC744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Hunter’s Journey: Tears of the Lake (2025) [En] (1.0) Unofficial [Collector's 
 magnet:?xt=urn:btih:3EE3E4B49A1D904B555BA762A83A3FBE3681A61B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Laundry & Supermarket Simulator / Laundry Simulator: PowerWash It! (2025) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:0B69D766A44B5E7FD0E8EB258B63564F721F84DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Cash Cleaner Simulator (2025) [Ru/Multi] (1.0.1/dlc) Repack FitGirl
 magnet:?xt=urn:btih:6AFA8BCE0DC81612422B9BA14662F326D0E6BA54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Oil Refinery - The Simulation (2025) [Ru/Multi] (1.1.5) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:35ED2DF2F9BDDB3799A5FEB511CA49B0BE03BB42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ SlitterHead (2024) [Ru/Multi] (1.02.2-r00065826) Repack Let'sРlay
 magnet:?xt=urn:btih:19A7D6B59C6335FE22DF5ADFDF9FCBC3CDDAB1B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Ultimate Fishing Simulator 2 (2022) [Ru/Multi] (1.25.05.09.3975) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C271550D6AC189B74B42D94AFF1BD930C3A7C89D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1544282   (621525) от 15.04.2022
+
+Призраки. Солдаты забытой войны (2021) HDTV [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_621525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм Макса Фадеева и Сергея Белоуса, показанный на канале Россия24. Документалисты прожили три года на передовой с бойцами батальона. Недавно фильм “Призраки. Солдаты забытой войны” получил “Специальный приз жюри” на церемонии закрытия 32-го Открытого фестиваля документального кино “РОССИЯ”. Также фильм понравился зрителям — ему дали третье место (   Читать дальше...   )Телекомпания: Россия / Россия 24Жанр: Документальный, ИсторияСубтитры: отсутствуютПродолжительность: 01:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D827D71D98D61E78F21308A0EAC34B6582859C48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 714957   (621566) от 20.06.2015
 
 Взгляд сверху. Сердце Италии. Путешествие из Флоренции в Рим / Sky View. The Heart Of Italy. A Journey from The Florence to Rome (2007) HDTV [H.264/1080i]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:1FD22FB935F47CCFDB10E4E9175D4E39065DD367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:1FD22FB935F47CCFDB10E4E9175D4E39065DD367
 magnet:?xt=urn:btih:5AAFF7FF9A5A474E4870746A15ADBC9A61F5760F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:5AAFF7FF9A5A474E4870746A15ADBC9A61F5760F
 ```bash
 magnet:?xt=urn:btih:EBA7B94DEC969A08E9CA40F96F7E6446821EAA05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:EBA7B94DEC969A08E9CA40F96F7E6446821EAA05
 ```bash
 magnet:?xt=urn:btih:A950D2686A04560226ED3ED9ED2C319CDD0759D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:A950D2686A04560226ED3ED9ED2C319CDD0759D4
 magnet:?xt=urn:btih:021C77C34A450E8955E343EE6A19BC55E258B7E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:021C77C34A450E8955E343EE6A19BC55E258B7E2
 ```bash
 magnet:?xt=urn:btih:EED000E13FA463CBDE7F853C232F9658EF09F4F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:EED000E13FA463CBDE7F853C232F9658EF09F4F0
 magnet:?xt=urn:btih:253C485B0BCAEA7A3F361AE810C293027C35D0E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:253C485B0BCAEA7A3F361AE810C293027C35D0E8
 ```bash
 magnet:?xt=urn:btih:75850F5EE1B08D4DA98C2BCDA04C10CC3D03B874
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:75850F5EE1B08D4DA98C2BCDA04C10CC3D03B874
 magnet:?xt=urn:btih:A74F1FB08D20384BCAC428C285F619EAC8923D9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:A74F1FB08D20384BCAC428C285F619EAC8923D9F
 ```bash
 magnet:?xt=urn:btih:DE37DFC7080F7B16A81B45C41FCE664F4926A7B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:DE37DFC7080F7B16A81B45C41FCE664F4926A7B0
 magnet:?xt=urn:btih:0B7B2510E99AEC8F3428EB0DF20BCD3F475BFEDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:0B7B2510E99AEC8F3428EB0DF20BCD3F475BFEDE
 ```bash
 magnet:?xt=urn:btih:E50D39A6CBBB827CFC062B61180E616B370C5E91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:E50D39A6CBBB827CFC062B61180E616B370C5E91
 magnet:?xt=urn:btih:E19935D2B041CFB9FD667FBA9AFED2B4A21597F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:E19935D2B041CFB9FD667FBA9AFED2B4A21597F2
 ```bash
 magnet:?xt=urn:btih:FC3B4EE35421386F7CCE76CA420A62DC33742AB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:FC3B4EE35421386F7CCE76CA420A62DC33742AB8
 magnet:?xt=urn:btih:FBD2E5C9BAFB8334F435D370733B513A107C78A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:FBD2E5C9BAFB8334F435D370733B513A107C78A9
 magnet:?xt=urn:btih:494E488D1B9C9FA8B5C4A002B5226FAC41F0CA53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:494E488D1B9C9FA8B5C4A002B5226FAC41F0CA53
 ```bash
 magnet:?xt=urn:btih:B9A818AAAB70DE6BC6A7701DC45AE42F5F0B09EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ Mind Field - американский веб-сериал, созданный и
 magnet:?xt=urn:btih:AB8C20730B00483B26306912061A12379CF5F61D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:AB8C20730B00483B26306912061A12379CF5F61D
 magnet:?xt=urn:btih:29E202D11668665504A986F76154DCD991F370D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:29E202D11668665504A986F76154DCD991F370D5
 ```bash
 magnet:?xt=urn:btih:CCE9301786D10C4952B6BE3BDA25E6690A04733E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:CCE9301786D10C4952B6BE3BDA25E6690A04733E
 magnet:?xt=urn:btih:2EA2034CDE4E80A045A88A177C239528FE5B3C24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:2EA2034CDE4E80A045A88A177C239528FE5B3C24
 magnet:?xt=urn:btih:4536D83831D15D00E83D6939A4F621753E8D9ADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:4536D83831D15D00E83D6939A4F621753E8D9ADE
 ```bash
 magnet:?xt=urn:btih:757218CA08F350C202014711FC13BAED9B014B2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +655,8 @@ magnet:?xt=urn:btih:757218CA08F350C202014711FC13BAED9B014B2E
 magnet:?xt=urn:btih:5A38C1934687B634E4A61B451CCD933D9D0BF1E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:5A38C1934687B634E4A61B451CCD933D9D0BF1E1
 magnet:?xt=urn:btih:A31E23EC75F51B6A327FC3F52CFD33940B503619
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036221   (622667) от 19.07.2016
-
-Наш человек в Ватикане (2016) DVB
-
->>Документалистика и Телепередачи
->>Военное дело
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_622667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о судьбе удивительного человека, проживавшего в 13 странах мира и носившего более 20 чужих имен, фамилий и псевдонимов. Факты и легенды из жизни советского разведчика Иосифа Григулевича.Телекомпания: Россия, ФГУП ТТЦ "Останкино"Жанр: Документальный, РазведкаПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BC2B5E45C2438E4045FE6A78CD3B8F254C0E4F5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

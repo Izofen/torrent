@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:60B6AC8E01730AFBF2D1C1B0635D232EEF54676C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Dance Hits Collection (2001) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Disco, Eur
 ```bash
 magnet:?xt=urn:btih:8B3C16641CB9BFC79448C46B8450579E0C82AC33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ B2 Crying Days [04:36](   Читать дальше...   )1976Жанр: Hard Roc
 magnet:?xt=urn:btih:851D9C62DE90E60B757D8F2364EFF7595E12927E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ A4 Photo Finish(   Читать дальше...   )Жанр: Disco, Electronic, 
 ```bash
 magnet:?xt=urn:btih:C0C3BDCABD7492FDE3F209F0B61AB2A16D06B6CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ A4. The Longest Wave (3:32)(   Читать дальше...   )Жанр: Alterna
 magnet:?xt=urn:btih:CAE8D9C2A58EEFBB07C9210F6D6F5930FD78F698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +169,8 @@ Slade - Slade In Flame (1974) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Glam Rock/Rock
 ```bash
 magnet:?xt=urn:btih:1B910A87E95E5C39AEED52011781DDAE2022C47E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +199,8 @@ A4 Keep Under Cover(   Читать дальше...   )Жанр: Soft Rock, Pop 
 magnet:?xt=urn:btih:F58EC3C3A96884ACFF9C82E25F0F8B9AFD2A1FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +228,8 @@ A4. Фраер(   Читать дальше...   )Жанр: ШансонПрод
 magnet:?xt=urn:btih:8C354E53981B27B79F50C89DC76B467A7461E3FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +256,8 @@ A4. Mission(A World Record) (4:26)(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:BA838D758940C33A349AA194B3023C52A9E5973E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +292,8 @@ Stevie Wonder - Солнце моей жизни (1988) [FLAC 2.0 24/192|traks(V
 magnet:?xt=urn:btih:8E2E6334FBB479D2081A94AE7C7ACCE071F762F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +320,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:057AA7BA1444A9D075D2CE7CA0B8301ED5C5D489
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +350,8 @@ A4 Stardust(   Читать дальше...   )Жанр: Jazz, Big Band, FunkП�
 magnet:?xt=urn:btih:D35B1332D75F523105AD336B92C50E85600B9C76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +379,8 @@ Side 1:
 magnet:?xt=urn:btih:8457D54F402AB5069967B61CB5491C65CA0B88C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +407,8 @@ magnet:?xt=urn:btih:8457D54F402AB5069967B61CB5491C65CA0B88C3
 ```bash
 magnet:?xt=urn:btih:0C64BA2BB3405C3FD350CCD8902454093EBFB8A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +443,8 @@ Eruption - Leave A Light (1979) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Disco>
 magnet:?xt=urn:btih:1B35E73D61900F5B929186546421C39096AB1F1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +471,8 @@ magnet:?xt=urn:btih:1B35E73D61900F5B929186546421C39096AB1F1F
 ```bash
 magnet:?xt=urn:btih:756E627B77A5DCF1A1F3910EFECFA100F9E39747
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +501,8 @@ Garbage - Strange Little Birds (2016) [FLAC 2.0 24/192|image +.cue|Vinyl-Rip]<Al
 magnet:?xt=urn:btih:A550B11BE8C12202432B37A17DC07328B509C519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +529,8 @@ magnet:?xt=urn:btih:A550B11BE8C12202432B37A17DC07328B509C519
 ```bash
 magnet:?xt=urn:btih:25360C576CFB438B7EE1AA56F4BBD5C5FEC2F66C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +559,8 @@ A4. Nightrider (4:24)(   Читать дальше...   )Жанр: Progressive R
 magnet:?xt=urn:btih:BBC27298539BD13BA590413321F9BF24795A404D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +588,8 @@ A1c Part 3(   Читать дальше...   )Жанр: Art Rock, Prog RockПр�
 magnet:?xt=urn:btih:C26097F61DDA28D9D630E168DF71A30EF284270B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +616,8 @@ A3 Capri Saarel · на Острове Капри(   Читать дальше..
 ```bash
 magnet:?xt=urn:btih:02F5D0F7B7117B04632B4ED205341E3E6F0EB6D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +648,8 @@ magnet:?xt=urn:btih:02F5D0F7B7117B04632B4ED205341E3E6F0EB6D2
 magnet:?xt=urn:btih:642DF0C7A6B26DF6C1CC35C162EE7822F6A515E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +676,8 @@ A1. Gas In The Tank
 ```bash
 magnet:?xt=urn:btih:822F139309BF725B1322410F9AECF02A80566D20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +706,8 @@ A4 Ob-La-Di, Ob-La-Da(   Читать дальше...   )Жанр: Pop Rock, Psy
 magnet:?xt=urn:btih:2A2AAA4FD7082BA267DE6AA85CF1AFA0C6F3B14B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +735,8 @@ magnet:?xt=urn:btih:2A2AAA4FD7082BA267DE6AA85CF1AFA0C6F3B14B
 magnet:?xt=urn:btih:E910DCF892C1980FB42D6F25C243D9797420D8CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -713,6 +763,8 @@ A4 All Those Years Ago(   Читать дальше...   )Жанр: Pop Rock, Cl
 ```bash
 magnet:?xt=urn:btih:05B1F8F64BFB391086913FC53E92A74495250133
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

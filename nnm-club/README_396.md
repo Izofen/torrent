@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:2B32173E23BCE80A3CD626BB0F079046A5A2DEB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:2B32173E23BCE80A3CD626BB0F079046A5A2DEB9
 ```bash
 magnet:?xt=urn:btih:4B7909FF05382039830B0EC550E9017FBBA303C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Italo Electro Disco (2025) [MP3|320 Kbps] <Italo-Disco, Electro>
 magnet:?xt=urn:btih:CFED4D18B4EE1721A4C859E781CC3008CC4D4E1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:CFED4D18B4EE1721A4C859E781CC3008CC4D4E1E
 ```bash
 magnet:?xt=urn:btih:B5B73B7700BDCF4F0F7FC9C13F9505DB5E21C345
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:B5B73B7700BDCF4F0F7FC9C13F9505DB5E21C345
 magnet:?xt=urn:btih:8B07E79DA6558CECD25ED7A9C5EE64E8CD58E206
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:8B07E79DA6558CECD25ED7A9C5EE64E8CD58E206
 ```bash
 magnet:?xt=urn:btih:B47A3E6241D425EFBB67E50272F125FCCDAC02AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Purvpn 8.3 [En/Farsi]
 magnet:?xt=urn:btih:D0C30A7358909603DAB4E4D4C59A82A5BF613C95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Smart AudioBook Player Pro v11.5.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E52CA10C7FDD492435426F1539A7D92422A01443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:E52CA10C7FDD492435426F1539A7D92422A01443
 magnet:?xt=urn:btih:3EFABFAAE53EE7F36E06CCBD9EE93D5432329917
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:A25064404DE695C3BA00FA0BC99AB4519D3C6D5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:A25064404DE695C3BA00FA0BC99AB4519D3C6D5C
 ```bash
 magnet:?xt=urn:btih:8E34E8A4D84FECB06E9C49C87E30948011E1FA97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Black Sabbath - The Eternal Idol (2025 Remaster) (1987) [FLAC 24/44.1|Lossless|W
 magnet:?xt=urn:btih:657E4C180150496A400AD06349702FE2DE50EAA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ TVGuide v4.5.30 Premium Mod by Alex.Strannik [Ru]
 magnet:?xt=urn:btih:E265464E938FC95AFC0B64A8BB7DC0A5172CBB69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Kdenlive - бесплатный нелинейный видеоредактор,
 magnet:?xt=urn:btih:31CB7ACDE734A39C1C0C027A9CE9809331731F9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Photo Sherlock v1.129 Mod by Mixroot  [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C4EC922898C958676F467D9EC4E8C1D5B524A546
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:C4EC922898C958676F467D9EC4E8C1D5B524A546
 magnet:?xt=urn:btih:AA30BDB5ED5FEE3F411902576849711F0E2BD9D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ PictureThis - Plant Identification v5.8.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BA1867574FAD20B9BB48BBAC958B79AD42793161
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:BA1867574FAD20B9BB48BBAC958B79AD42793161
 magnet:?xt=urn:btih:987234430AAD750F954D9D3BA195FCFCB59464F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:987234430AAD750F954D9D3BA195FCFCB59464F1
 ```bash
 magnet:?xt=urn:btih:93F9B52F9FF65130D98AD133170C66DA4F39B88B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ Process Lasso позволяет вручную или автоматическ�
 magnet:?xt=urn:btih:6804F3948BF309D39ED27A2197AB649109E8A464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:6804F3948BF309D39ED27A2197AB649109E8A464
 ```bash
 magnet:?xt=urn:btih:17DCDDC7459FBA229625CD15C10D9D61EBB0B414
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:17DCDDC7459FBA229625CD15C10D9D61EBB0B414
 magnet:?xt=urn:btih:56C231BD9AE4723A49459031CE8EA67A701B5FFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ X-Com TFTU (1994-2025) [Ru/En] (1.0) Repack/Mod AndyFox
 magnet:?xt=urn:btih:4910F5EBDA69CF9C2A23D6A324E314ADEDF78344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Irix HDR Pro — это инновационный редактор на баз�
 ```bash
 magnet:?xt=urn:btih:BB942738CDC03C874FF2677A59C828F26B29C6FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:BB942738CDC03C874FF2677A59C828F26B29C6FC
 magnet:?xt=urn:btih:211B07D2A799BAD7F1ED86B0D9863191E2548F0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Who's at the door? (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7CB6150D6637EE6CC26F939B344E5E72A337DFBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

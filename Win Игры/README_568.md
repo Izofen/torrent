@@ -1,27 +1,3 @@
-###  Публикация: 1843557   (1049315) от 20.12.2025
-
-Just Cause 3 (2015) [Ru/Multi] (Build 20206564/dlc) Repack dixen18 [XXL Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1049315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Средиземноморская республика Медичи стонет под гнетом генерала Ди Равелло. Помочь может только Рико Родригес. Вас ждет более 1000 квадратных километров свободы. Множество оружия, приспособлений, видов транспорта - все, чтобы устраивать беспорядки самыми изобретательными способами.Тип издания: RepackРазработчик: Avalanche StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23075EE294A893D35DF737B1F008DAA8B42876FB
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843522   (1049336) от 20.12.2025
 
 Just Cause 3 (2015) [Ru/Multi] (1.05 Denuvoless/dlc) Repack FitGirl [XXL Edition]
@@ -42,6 +18,8 @@ Just Cause 3 (2015) [Ru/Multi] (1.05 Denuvoless/dlc) Repack FitGirl [XXL Edition
 ```bash
 magnet:?xt=urn:btih:A834488C14D8CF1D1D32B5F6CEFAB016215B5453
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Dead Reset (2025) [Ru/Multi] (build 19945272) Repack seleZen
 magnet:?xt=urn:btih:F01BCCC9F514AD7DF77885534305A93D909B2796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Altheia: The Wrath of Aferi (2025) [Ru/Multi] (1.005) License GOG
 ```bash
 magnet:?xt=urn:btih:BC636FE42F8D72F8E2C2E882D61298B7EF1D003C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Gravewood High - игра в жанре стелс-хоррора с разру�
 magnet:?xt=urn:btih:3532A272171F3B289CA11334F1CF90A358AFF018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Dead In Bermuda (2015) [Ru/Multi] (1.1c v2) License GOG
 ```bash
 magnet:?xt=urn:btih:A790AD6672000877E889C3AB954B1F50B838318A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ The Artifact Protocol (2025) [Ru/Multi] (1.0.1) Repack FitGirl
 magnet:?xt=urn:btih:FBAFF32C9C54CF346B594C0F2039AFF5F3758FFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Ammo and Oxygen (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B8F925F87F37925D9C8473FDBB60A5C00C6CF310
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Altheia: The Wrath of Aferi (2025) [Ru/Multi] (1.005) Repack FitGirl
 magnet:?xt=urn:btih:567A4A4A0D921B77F525C8EA1BB3DBE3FFF2E172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Hunted Within: The Walls (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:AD1629A7DE962A4C3D1C57A510292CFE05E5CC04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Garfield Kart 2: All You Can Drift (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:ED9D5AB00973CB632B7C027FF045E584E7746250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Star Birds – это яркая и красочная экономическа�
 ```bash
 magnet:?xt=urn:btih:A62339729B2A6D9132B4EE06F2D89B83D913B56A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ The Wandering Village (2022) [Ru/Multi] (1.0.4) Repack seleZen
 magnet:?xt=urn:btih:388AEACB403DA4D38910964095F3D9C0F9129364
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Misty Judgment начинается с пробуждения главного �
 ```bash
 magnet:?xt=urn:btih:109915004255A2E3A8EBA14000D4DBEB8EA98B4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Mourningwood Lodge / 欢迎来到林葬屋 (2025) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:E1D07178653C47D291066E31EFDEFD1752669ADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Fragile Reflection (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:01C04874CA3750D13711A3A001B31B12E887E90A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Supercar Collection Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:6DBDF4E838679438AE814E3A74DAC90315BF696B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Uncanny Tales - эпизодический хоррор, где самое ст�
 ```bash
 magnet:?xt=urn:btih:75720674CF1C084075AEF137022C4FAFE66EB082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Candy Shop Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:39702DC70D1CB2BF967030559022B784F4F5A50D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ LEGO Voyagers (2025) [Ru/Multi] (1.0.6) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4E7C09F98D7F76B91E9F180D67E0CA0BE1260A6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Dynasty Warriors 8 Empires (2015) [Multi] (1.0) Scene CODEX
 magnet:?xt=urn:btih:CB7A6FF4D413EC39EF2276D4277371F12DDD4BB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ LEGO Voyagers (2025) [Ru/Multi] (1.0.6) Scene Rune
 ```bash
 magnet:?xt=urn:btih:054EFD5B907806D310BFE01AEAC451C0635021E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ LEGO Voyagers (2025) [Ru/Multi] (build 19911812) Repack seleZen
 magnet:?xt=urn:btih:511AD289D49326D5471531B19CF088B58E784627
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ TIEBREAK - это самый реалистичный симулятор тен�
 ```bash
 magnet:?xt=urn:btih:BC3EC7E527D73005F7545E003344134676804860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ Storage Hunter Simulator (2024) [Ru/Multi] (17755) Repack FitGirl
 magnet:?xt=urn:btih:A090B1CC8817FCCE1C54862A51FFC57A3D9F45B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ Minecraft: Bedrock Edition (2025) [Ru/Multi] (1.21.130) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:2B4BB99FF82B5B3EA51827E90A27B3309DD6328C
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843399   (1049436) от 20.12.2025
+
+PlateUp! (2022) [Ru/Multi] (1.4.1) Repack Pioneer
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1049436.jpg" />
+</div>
+
+
+###  Подробнее
+
+PlateUp! - это необычный игровой «винегрет» в духе roguelite, в котором кухонная суматоха и обязанности ресторатора удачно гармонируют со стратегическим планированием и развитием. Вы строите ресторан и управляете им с нуля, выбираете блюда, покупаете и размещаете кухонные приборы, которые, возможно, вам удастся подключить друг к другу для создания масштабных автоматических (   Читать дальше...   )Тип издания: RepackРазработчик: It's happeningЖанр: Экшены, Казуальные игры, Инди, СтратегииЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B07FE6116A184A1691BD88C4ED82AF0315636E
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

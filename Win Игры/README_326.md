@@ -19,6 +19,8 @@ GUTS (Gory Ultimate Tournament Show)(«Кровопролитное непрев
 magnet:?xt=urn:btih:034105EB9A7BCAF74DB4E0F4F111C6D9ACFE99BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Genesis Alpha One (2020) [Ru/Multi] (147.8763/dlc) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:F4867FEED2B4EF94E897231A783655C56657005B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Observer: System Redux (2020) [Ru/Multi] (1.1.2) License CODEX
 magnet:?xt=urn:btih:017CBC4E95667854CCD087F032BAA44775D3C326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Breach & Clear: Deadline Rebirth (2015) [Ru/Multi] (1.23) License GOG
 ```bash
 magnet:?xt=urn:btih:4B83A53C80B73AC04D5A3529170F222484428CC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Plague Inc: Evolved - сверхпопулярная игрушка, хорош�
 magnet:?xt=urn:btih:962C17E67389ABE94DD861AB0721277485010A9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Blade & Bones (2016) [Ru/Multi] (1.0) License RELOADED
 ```bash
 magnet:?xt=urn:btih:1BD00AF8A7DE5798787DBF4374E1E1B0D534AA22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Homefront – сюжетно-ориентированный кинематогр
 magnet:?xt=urn:btih:A889442516289C812C6E181E0D14380E834056CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Darksiders Dilogy / Дилогия Darksiders [Ru] (RePack/1.1/1.5) 2010-2012 | 
 magnet:?xt=urn:btih:96B09518D401535D81C1FE6E80A63A055882D7FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Darksiders: Wrath of War [Ru/En/Multi9) (Steam-Rip/1.1) 2010 | R.G. Origins
 ```bash
 magnet:?xt=urn:btih:485814A367BC7F83A9019613621CCA02B8AD4200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Dark Souls III / Dark Souls 3 (2016) [Ru/Multi] (1.15/reg1.35/dlc) Repack Seraph
 magnet:?xt=urn:btih:4A73B212287FAC91B6E7FED32B8DD56C39F930E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Crashlands – ARPG с захватывающим сюжетом и возмож
 ```bash
 magnet:?xt=urn:btih:925EEC391E91ED4B6A11399B13735F4E062F4D70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Unforgiving - A Northern Hymn (2017) [Ru/Multi] (1.1.0) Repack Other s
 magnet:?xt=urn:btih:B38E4AA21EDB55A5D8897FD8E212BE0616CB8E23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Close Combat: The Bloody First - это новая игра в популярн�
 ```bash
 magnet:?xt=urn:btih:7D9AA5A288240A7E9F1BCCDBA593512B8DEDAC39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Ben 10 (2017) [Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:811576A910E7FA82A81C4C4D738099C95829679B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ Outcast: Second Contact (2017) [Multi] (1.0) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:22AF53C6FD64521A4131B84DE5193B97095E289F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Marvel's Guardians of the Galaxy: The Telltale Series (2017) [Ru/Multi] (1.0.0.1
 magnet:?xt=urn:btih:FC5DE631B2C1C8F770E85119EBE581D9B197790C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Ultimate Fishing Simulator — это симулятор, охватывающи
 ```bash
 magnet:?xt=urn:btih:FB95134F9F9E6A7227028C6CBCF091F81B9BEB1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Iggy's Egg Adventure - приключенческий платформер о 4-
 magnet:?xt=urn:btih:66863E7D701C984DE5569A65206378B87D4962CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Malzbie's Pinball Collection от Malzbie Games представляет пин�
 ```bash
 magnet:?xt=urn:btih:583DDC5CE6A0A115921C08270A35303985EC5ECE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ Halloween Chronicles 2: Evil Behind a Mask (2019) [En] (1.0) Unofficial [Collect
 magnet:?xt=urn:btih:C0DD5D0C87B56A290ABE220D6140E9BD957362AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ One Day For Ched (2012) [En] (1.0.5/dlc) Repack Let'sPlay
 magnet:?xt=urn:btih:DBA32390DE3967FE3F7AA625EA5EB5B1C2FAB8D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Sneaky Sneaky  (2014) [En] (1.0.293) Repack  Let'sPlay
 ```bash
 magnet:?xt=urn:btih:3C3986ECEC404F9E86C633005AD4201DCB06C9C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Crazy Machines 3 (2016) [Ru/Multi] (1.1.0) Repack Other s
 magnet:?xt=urn:btih:390B761298E8A1D3398E693E927234BE4A4DC3B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Quern - Undying Thoughts — это приключенческая игра, д�
 ```bash
 magnet:?xt=urn:btih:7F85F287E52DA305E280FCA5B5AF897C5B38DF7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Quern: Undying Thoughts (2016) [Multi] (1.0) License RELOADED
 magnet:?xt=urn:btih:200D2F0270871830AFCB81A6A3A996CC7F278BD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Bullshot (2016) [Ru/Multi] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:CE240F83B8AAA0D5023A175DD9BB3E9A0FB133BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

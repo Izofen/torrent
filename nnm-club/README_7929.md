@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:701E8042E3B19ED2C0E8086CF416408832B9B400
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:701E8042E3B19ED2C0E8086CF416408832B9B400
 magnet:?xt=urn:btih:E3AA281D49F594AAAB574551F438DB41B0D461C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:E3AA281D49F594AAAB574551F438DB41B0D461C4
 ```bash
 magnet:?xt=urn:btih:C0880DC05654AA63F8A45EFEFF40249FE291FD87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Lost Sacrament - Praesidio in Animo (2021) [FLAC|Lossless|WEB-DL|tracks + .cue] 
 magnet:?xt=urn:btih:515AC0A40D1FE7616A95431CA0C852DAFFC21A02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:515AC0A40D1FE7616A95431CA0C852DAFFC21A02
 ```bash
 magnet:?xt=urn:btih:E1E24234C4E543C30FE5EC58A5E50D6B33E98517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Jake Shears - Last Man Dancing (2023) [FLAC|Lossless|image + .cue] <Dance-pop, S
 magnet:?xt=urn:btih:AC642524BD8222CEC45914135EFFCE20AC0159C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:AC642524BD8222CEC45914135EFFCE20AC0159C4
 ```bash
 magnet:?xt=urn:btih:B0B983167BD78C96F7355DF444A1F49B55E3CF0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Autorun Organizer - простое в использовании приложе�
 magnet:?xt=urn:btih:22DEDA2F5A39CFF14182B6A56B20C34B3ABE0DC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:22DEDA2F5A39CFF14182B6A56B20C34B3ABE0DC9
 ```bash
 magnet:?xt=urn:btih:1D63FFB26B9D8CCBC87907E275F0E013E2006E9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Soratobu Yuureisen | The Flying Ghost Ship | Летающий корабль-п�
 magnet:?xt=urn:btih:FBEFF000EF210A80720EC4A23099AAC6288307C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:FBEFF000EF210A80720EC4A23099AAC6288307C8
 ```bash
 magnet:?xt=urn:btih:8B2F98D2C4ADAAB2C15E46B06B01D3BEA0B8430F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Rafael Osmo - Allure (2021) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:F6134FB612C67BAE52780DB4ABA25DD8AD230E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ ZD Soft Screen Recorder - программа для записи видео с �
 ```bash
 magnet:?xt=urn:btih:E8CBC0F183A171342C9E291BBC1E9A8E8D9799DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Bury Tomorrow - The Seventh Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Me
 magnet:?xt=urn:btih:DDBCA71AFDD9214EBDD117BAFDDBBDBECF1210E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ Goatsmoker - E​.​O​.​T​.​A. (2022) [FLAC|Lossless|WEB-DL|tracks] <St
 ```bash
 magnet:?xt=urn:btih:304785F282D025813C776F9184AE9F5D1CCA83F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ VA - Certified Love Songs (2023) [MP3|320 Kbps] <Pop, Rock, RnB, Dance>
 magnet:?xt=urn:btih:947C64A7DFD08653E1521D6BB7B1F22EF0BC622A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ Loaris Trojan Remover - средство удаления вредоносног
 ```bash
 magnet:?xt=urn:btih:7FC25A83409C56F035A5DF4EFE926858DBD9B7A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ Nova поддерживает отдельные задачи сборки, за
 magnet:?xt=urn:btih:7E7BA19D47C623A348B369EE2969838C027B7C30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ A Better Finder Attributes позволить изменить дату созд
 ```bash
 magnet:?xt=urn:btih:56E28959458E611C433B6E632E2BAE1054AED60A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:56E28959458E611C433B6E632E2BAE1054AED60A
 magnet:?xt=urn:btih:8584E52385389B18DB3C004C2B46ACAEF23FAA49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ Battery Charging Alert 3.26 [En]
 ```bash
 magnet:?xt=urn:btih:C86C2E3BD8550EB03146B2FF7B325A45B6BD9386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ Myosotis - The Sky Between Us (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 magnet:?xt=urn:btih:604D5A13D38E8802D6E0B34B14220C8162873790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:604D5A13D38E8802D6E0B34B14220C8162873790
 magnet:?xt=urn:btih:617AB576248A9A4F56C55C806DEA01D1CFCAF88D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ magnet:?xt=urn:btih:617AB576248A9A4F56C55C806DEA01D1CFCAF88D
 magnet:?xt=urn:btih:372FF1EA9A2CFE45CACC24CCF38D38DEC9947E33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:372FF1EA9A2CFE45CACC24CCF38D38DEC9947E33
 magnet:?xt=urn:btih:62528E6943409D2DA6C02D094CAF7AC6A9AA9808
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ magnet:?xt=urn:btih:62528E6943409D2DA6C02D094CAF7AC6A9AA9808
 ```bash
 magnet:?xt=urn:btih:51AA1A3588C44EBD1E308E69E1D61A573F684E38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9A560AADF72CE99504D91FCC67F9BCEF2E4981B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:9A560AADF72CE99504D91FCC67F9BCEF2E4981B5
 ```bash
 magnet:?xt=urn:btih:45859DDF095C7F73A3E953976129D175C47ACC9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Gboard – Google Клавиатура 6.2.34.154174348 [Ru/Multi]
 magnet:?xt=urn:btih:829246C34441587668B7FAFC8AD3EF27C267E898
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Infinite Design v3.4.21 [En/Ru]
 ```bash
 magnet:?xt=urn:btih:C8521ADB380633B1D68FBBACB6E8B199CF1C2669
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:C8521ADB380633B1D68FBBACB6E8B199CF1C2669
 magnet:?xt=urn:btih:2BA9864BBA46FD093B4C2218DD9A8D1690E7C1D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:2BA9864BBA46FD093B4C2218DD9A8D1690E7C1D6
 ```bash
 magnet:?xt=urn:btih:92C0F9198FB00002D706884F9AAA898B19ECFEE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ MScopes или MScopesPro позволяет пользователям прос
 magnet:?xt=urn:btih:AA6DF97A9F395B4E4AE661517D38CF06955B3D64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ AutoBoy v3.5.1 AdFree [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F14E504E03168C7E1F4DE896E059BF93F0ACC234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ AdAway 4.3.6 и 5.0.6 Beta [Ru] - Блокировщик рекламы
 magnet:?xt=urn:btih:54AB0B15657CAAE05993578920B510C05FEB899C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Android приложение - помощник для фитнес тренир
 ```bash
 magnet:?xt=urn:btih:180840A38843A3FFEEA474857580984ABDED4AFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ ClockSync 1.2.5 [Ru] - Синхронизация времени телефон�
 magnet:?xt=urn:btih:25731C8E591618C26B2838258B669F3221107BE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Balance BY — удобное приложение для проверки ба�
 ```bash
 magnet:?xt=urn:btih:9462A17322D151589EC81D88A16722575ACB59E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ GlassWire для Android - приложение, которое позволяе
 magnet:?xt=urn:btih:64D65AD780FF3302FCD868201F72DB7B4EF568FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ DigiSender TV Launcher 2.6.3 RU [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:F774F3ACC3520BA04EEF1F5857CC16DCD84F87B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:F774F3ACC3520BA04EEF1F5857CC16DCD84F87B9
 magnet:?xt=urn:btih:E2AC97FDEC3C74789CF330F6267FDD490A54E3FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Chest Workout v2.4.31 [Ru/Multi] - Тренировка грудных мышц
 ```bash
 magnet:?xt=urn:btih:7DE217C8D8F21C36A5A5752981C354D608A62FE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Butt Workout v1.3.31 [Ru/Multi] - Тренировка Ягодиц
 magnet:?xt=urn:btih:EC5D4C1000F5992D98D6D29B158C12DA12F730BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Legs Workout and Exercises v1.3.31 [Ru/Multi] - Комплекс упражне�
 ```bash
 magnet:?xt=urn:btih:91FE33A51D5D7E4FD2458124067670F3212D0935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:91FE33A51D5D7E4FD2458124067670F3212D0935
 magnet:?xt=urn:btih:711CE46D82ED90BCB0855E39FEC05902C5629D25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Month - это коллекция красивых и полезных видж�
 magnet:?xt=urn:btih:24DBE11B6423051888292890C48CE06F26396434
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ TeraBox - это БЕСПЛАТНОЕ облачное хранилище для
 ```bash
 magnet:?xt=urn:btih:00949075B94E6BE549E033306C2FB6F568443011
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ Runtastic PRO GPS Бег и фитнес v6.8.1 [Ru/Multi] - GPS трекер, �
 magnet:?xt=urn:btih:754D9926F7CA15ECAC15D40F2E4FFF3B3E02CA8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ Onkyo HF Player v2.9.1 [Ru] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:1D821204715F5269AC0F84D5FB54FAF8B4191C76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ iHeart: #1 for Radio, Podcasts v10.12.0 [En] (обновляемая)
 ```bash
 magnet:?xt=urn:btih:E3133F589AD791B04EF9DB435ED47B58F0C65293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ RawBT служба печати v5.52.0 [Ru]
 magnet:?xt=urn:btih:94608E0BD2F44B2454B34E7CBE883798B809AD9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:94608E0BD2F44B2454B34E7CBE883798B809AD9A
 ```bash
 magnet:?xt=urn:btih:9387FD9B82A1734B7E0E055B11D3FBB97384023F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

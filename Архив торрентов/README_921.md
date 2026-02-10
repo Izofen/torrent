@@ -19,6 +19,8 @@ RegCool 1.360 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:B12AE69C54DE21DD86D95E57E3400AAC2FF52D56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:B0DA3C5DE1830BEE9B219F37E039EE9423219045
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:6A9B6D047D85386495C7738275ECEEE88B58D421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:6A9B6D047D85386495C7738275ECEEE88B58D421
 ```bash
 magnet:?xt=urn:btih:F01D9AC43D0B274D6DE58DE77F39683957977616
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Imagine - это бесплатный просмотрщик изображен�
 magnet:?xt=urn:btih:545669EE6FD00776C22C358195D5C81BA541D026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ TweakPower – представляет собой единый графичес
 ```bash
 magnet:?xt=urn:btih:DF9088A519EF678C211C2C4E2F51720CC25C651E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Windows Firewall Control - утилита, с помощью которой, в�
 magnet:?xt=urn:btih:BF12E6EDF79849415816D72401F2138D8EF85E3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Process Monitor 3.96 RePack by KLASS [Ru]
 ```bash
 magnet:?xt=urn:btih:A9D79A97C88D9F08756103CCC05D65CDD2B2509E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ uTorrent Pro 3.6.0 Build 47006 Stable Portable by FC Portables [Multi/Ru]
 magnet:?xt=urn:btih:02AEC37EA4BD7CED41145C410563CD72CF257479
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Process Explorer это расширенная утилита управлени
 ```bash
 magnet:?xt=urn:btih:7370393F21BF24DB8049256EA653B2D9AC34288B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ SIV (System Information Viewer) - мощнейшая утилита, показ�
 magnet:?xt=urn:btih:00822BAE32E9C1239427079C1A600DE4A39A2239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:1D55035FB64C75D16248039991F65D3DED8A1FB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Download Master эффективно решает 3 главных пробле�
 magnet:?xt=urn:btih:645561924CE219A24B800EF38A02424AA8380967
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Shazam (шазам) распознает любую песню за секунд
 ```bash
 magnet:?xt=urn:btih:FA8383A51C9D6ABAF2CC718966CDF79C7261B9E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ CCleaner - один из самых известных и популярных �
 magnet:?xt=urn:btih:C57AEA32E7A1AC0850AFF49C5DC634787C331BA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ BlueStacks App Player — бесплатное программное решен
 ```bash
 magnet:?xt=urn:btih:8A27962BAA2E5D44489C47CC32EBF37D5F4425E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ VueScan - программа предназначена для замены ст
 magnet:?xt=urn:btih:0D0DB1C0502C07D0E021D74307B3B9E5D7C49E95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ OCCT 12.1.15 Final Portable [En]
 ```bash
 magnet:?xt=urn:btih:A8C35A45042D6E6366BBBB411D6417D71C988A81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 magnet:?xt=urn:btih:59631F0DFD653E5E2A12C40310357FE717DC8341
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:740D5F476145BE799371644E18A8353FF7449CFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:7175A52F2CEB941FD69BB2B497E3BC8A78B6BC97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ DVD-Cloner - это небольшая утилита, при помощи ко�
 ```bash
 magnet:?xt=urn:btih:EE79BAC22BDCA156B193DF19056C77A71656DDC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ OmniReader - полифункциональное приложение для ч
 magnet:?xt=urn:btih:5689FA6EB7F3FBAFF4DC29CDFCB0EEB236D65F17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Wing Pro - это интегрированная среда разработки
 ```bash
 magnet:?xt=urn:btih:9C586AE7EDDB7547C594C3D76D614D5DEA5699D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ AVS Image Converter - лёгкая в использовании програм�
 magnet:?xt=urn:btih:B721AF0798EB7EF616037C93843272A2536F3494
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 ```bash
 magnet:?xt=urn:btih:AF0E4437B1562100EAA9E48B54C313A501224605
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

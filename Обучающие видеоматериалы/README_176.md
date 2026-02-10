@@ -19,6 +19,8 @@ javaops.ru | Junior Java-разработчик веб-приложений - Ba
 magnet:?xt=urn:btih:FA5D3040E9851E9DC1EAE4700113C910995C9BF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:FA5D3040E9851E9DC1EAE4700113C910995C9BF9
 magnet:?xt=urn:btih:3943034299E30AE8F5CA5A38ACA5C0B7B797DC8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:3943034299E30AE8F5CA5A38ACA5C0B7B797DC8D
 ```bash
 magnet:?xt=urn:btih:8A04120ED2CB3C091F7D7128D16AFDC763B089E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:8A04120ED2CB3C091F7D7128D16AFDC763B089E7
 magnet:?xt=urn:btih:1498C9141A1A25A36AAF339552285C4FE774C9A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ javaops.ru | Многомодульный Maven проект (MasterJava) (2019)
 ```bash
 magnet:?xt=urn:btih:74E27F44DB3D87820FFFF51CEAB1488EEFE37742
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:74E27F44DB3D87820FFFF51CEAB1488EEFE37742
 magnet:?xt=urn:btih:75B290A07493403F655F9CF792D388BD3E7D3DB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Bob Harper | Totally Ripped Core (2010) DVDRip [EN]
 ```bash
 magnet:?xt=urn:btih:010FFB3DE6C30705F48B1A4DE913CC38256E0ED1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:010FFB3DE6C30705F48B1A4DE913CC38256E0ED1
 magnet:?xt=urn:btih:C4534DD6D92C1BFD8014DD0CEBC6A5581A2518EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:C4534DD6D92C1BFD8014DD0CEBC6A5581A2518EA
 ```bash
 magnet:?xt=urn:btih:C55AADAAFE8D027DF9863520D688EA1D598B6775
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Pluralsight.com | Blender Fundamentals (2018) PCRec [H.264/720p-LQ] [RU/EN]
 magnet:?xt=urn:btih:09AEC86FF445E107ED2908DBD05C2423D079A1F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:09AEC86FF445E107ED2908DBD05C2423D079A1F5
 ```bash
 magnet:?xt=urn:btih:49627A36A25BF373D71BFF00E45BFF6C5001E579
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Rip с подборки DVD5 от JohnVEV, оригинал: Подборка в
 magnet:?xt=urn:btih:15F7957D66250759D964A8221859F630769E6ADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:15F7957D66250759D964A8221859F630769E6ADD
 ```bash
 magnet:?xt=urn:btih:422B2A9DA320B024F7EF0AC0C4E5F18494BA19FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ magnet:?xt=urn:btih:422B2A9DA320B024F7EF0AC0C4E5F18494BA19FB
 magnet:?xt=urn:btih:C65AA24686CCFC13B5CB3ACAE929B59C89205EB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ magnet:?xt=urn:btih:C65AA24686CCFC13B5CB3ACAE929B59C89205EB8
 ```bash
 magnet:?xt=urn:btih:DF4FC07BCE2D7A5D35C72722532D7AB35E12A887
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:DF4FC07BCE2D7A5D35C72722532D7AB35E12A887
 magnet:?xt=urn:btih:396E64D7FBDE116729D16042A328E8B94F3FFB4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:396E64D7FBDE116729D16042A328E8B94F3FFB4D
 magnet:?xt=urn:btih:3FD098B2DACF8CCE964728C226C36FCBA78C059A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ Udemy, CG Masters | Энциклопедия Blender 2.8 / The Blender 2.8 Encyc
 ```bash
 magnet:?xt=urn:btih:0CDE6BD5BEB5ACDEA917B0B3609B0447F163D448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +519,8 @@ Excel спутник грамотного управления финансам�
 magnet:?xt=urn:btih:E19CED079035CFB6B817065BAC2811ACC85BF121
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:E19CED079035CFB6B817065BAC2811ACC85BF121
 magnet:?xt=urn:btih:AD2AEC1E1857E935759D5A444016B7279C7C614A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ magnet:?xt=urn:btih:AD2AEC1E1857E935759D5A444016B7279C7C614A
 ```bash
 magnet:?xt=urn:btih:0095CAF30C6DF7AB7C521530159A0AC62693410F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:0095CAF30C6DF7AB7C521530159A0AC62693410F
 magnet:?xt=urn:btih:E7CDAFA5AF9F2635B17274E1B317179ED74F9981
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ E-mail-маркетинг один из самых стабильных и ст�
 ```bash
 magnet:?xt=urn:btih:E28E1183C537991540C3C585236F05AFE856991C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +653,8 @@ magnet:?xt=urn:btih:E28E1183C537991540C3C585236F05AFE856991C
 magnet:?xt=urn:btih:16A4B45AF6F73D77E9726E61B53EBC6498108CDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:16A4B45AF6F73D77E9726E61B53EBC6498108CDE
 ```bash
 magnet:?xt=urn:btih:50A07D69A9D9A336D39440B9175B931466DF3513
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +707,8 @@ magnet:?xt=urn:btih:50A07D69A9D9A336D39440B9175B931466DF3513
 ```bash
 magnet:?xt=urn:btih:5018A4E12D7439D74191BEA0E60E931F21E55611
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,30 @@
+###  Публикация: 326193   (726901) от 20.04.2011
+
+Олег Андреев | Техника быстрого чтения [2009] [DJVU]
+
+>>Разное (категория книг)
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_726901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прочитав эту книгу и выполнив рекомендуемые упражнения, вы сможете читать в 4-5 раз быстрее, эффективно и глубоко осваивать прочитанную информацию, разовьете мышление, внимание и память.
+Наконец, вы приобретете, способность работать настолько эффективно, что каждый раз при чтении ваш мозг будет извлекать из всего потока воспринимаемой информации только самое значимое (   Читать дальше...   )Жанр: Саморазвитие, ЧтениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F994472FC858EEDEADB26459966132A2A61967AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022927   (726947) от 03.06.2016
 
 Пьер Франк | Как стать уверенным в себе. Всего 6 минут в день. Книга-тренинг (2016) [FB2]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:0464A2BADA91E2231F8EC26C817D91DDC7C0D4A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:0464A2BADA91E2231F8EC26C817D91DDC7C0D4A0
 magnet:?xt=urn:btih:3712AA1214532671B07A9ECE40642A35145ECACE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ T.E. Каплюшина | Энциклопедия собаковода [1993] [
 ```bash
 magnet:?xt=urn:btih:AAF7E1F6124866F3364373881799D8762E5622EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:AAF7E1F6124866F3364373881799D8762E5622EF
 magnet:?xt=urn:btih:66FC998A741C1F9370DB9E8C2AF4E3657260E53F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +150,8 @@ magnet:?xt=urn:btih:66FC998A741C1F9370DB9E8C2AF4E3657260E53F
 magnet:?xt=urn:btih:0DBD59CA499A621FC57AAD06AA5012F934BE6D4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +175,8 @@ magnet:?xt=urn:btih:0DBD59CA499A621FC57AAD06AA5012F934BE6D4B
 ```bash
 magnet:?xt=urn:btih:64608C88C3D9D7E1B56942D7AB295B619931BAEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:64608C88C3D9D7E1B56942D7AB295B619931BAEB
 magnet:?xt=urn:btih:0C3D9FF75286B61AEA81DE2F4C18F1DDF01854EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +228,8 @@ magnet:?xt=urn:btih:0C3D9FF75286B61AEA81DE2F4C18F1DDF01854EA
 ```bash
 magnet:?xt=urn:btih:BBB42281D59050B8EABD4E66647A845A08D49B18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +257,8 @@ magnet:?xt=urn:btih:BBB42281D59050B8EABD4E66647A845A08D49B18
 magnet:?xt=urn:btih:E3DDBEECE778304D44B941E18B9B23B9D3C0F946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ magnet:?xt=urn:btih:E3DDBEECE778304D44B941E18B9B23B9D3C0F946
 ```bash
 magnet:?xt=urn:btih:C67AE5BACFE16BD59703C7A2ABB8556D1566D7B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +310,8 @@ magnet:?xt=urn:btih:C67AE5BACFE16BD59703C7A2ABB8556D1566D7B8
 magnet:?xt=urn:btih:86699FF5E7E75C7C91C50C210EBD7A66CCC38C0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +335,8 @@ magnet:?xt=urn:btih:86699FF5E7E75C7C91C50C210EBD7A66CCC38C0C
 ```bash
 magnet:?xt=urn:btih:3C96B491D51999977EEBCAAF32EB64B70E06F62B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +362,8 @@ magnet:?xt=urn:btih:3C96B491D51999977EEBCAAF32EB64B70E06F62B
 magnet:?xt=urn:btih:21382F6D36A87B9252BB180BA3E7A1D9206B3F65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +387,8 @@ magnet:?xt=urn:btih:21382F6D36A87B9252BB180BA3E7A1D9206B3F65
 ```bash
 magnet:?xt=urn:btih:703238EEA7BE40041FA42FE485A6B20C2C65F0FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +414,8 @@ magnet:?xt=urn:btih:703238EEA7BE40041FA42FE485A6B20C2C65F0FE
 magnet:?xt=urn:btih:6F2E62D02E452C1CD61072DCA7E6CE6BCE7CC36F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +440,8 @@ magnet:?xt=urn:btih:6F2E62D02E452C1CD61072DCA7E6CE6BCE7CC36F
 ```bash
 magnet:?xt=urn:btih:3C2EBE792E04F52236E55765F78393F89C49278D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +470,8 @@ magnet:?xt=urn:btih:3C2EBE792E04F52236E55765F78393F89C49278D
 magnet:?xt=urn:btih:A1B9D036EBF05FFA6DE2880EE1A2E2C6B56AD890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +495,8 @@ magnet:?xt=urn:btih:A1B9D036EBF05FFA6DE2880EE1A2E2C6B56AD890
 ```bash
 magnet:?xt=urn:btih:F12D268A06CBDBA31B14B2396A15501F4C76F029
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +522,8 @@ magnet:?xt=urn:btih:F12D268A06CBDBA31B14B2396A15501F4C76F029
 magnet:?xt=urn:btih:C8A6036A7D5499ABF53C067A86936C458D97DB5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +548,8 @@ magnet:?xt=urn:btih:C8A6036A7D5499ABF53C067A86936C458D97DB5A
 magnet:?xt=urn:btih:2D2B8C24CD0F551E43347577B9A24A4E134968F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +573,8 @@ magnet:?xt=urn:btih:2D2B8C24CD0F551E43347577B9A24A4E134968F4
 ```bash
 magnet:?xt=urn:btih:7D1E227FA188AC6F22AA5389F578CADCE3CFA60B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +601,8 @@ magnet:?xt=urn:btih:7D1E227FA188AC6F22AA5389F578CADCE3CFA60B
 magnet:?xt=urn:btih:D411F986C2162BADE3374291272EF6F90FC8CA48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +626,8 @@ magnet:?xt=urn:btih:D411F986C2162BADE3374291272EF6F90FC8CA48
 ```bash
 magnet:?xt=urn:btih:3FAAB1D5820410AA92032C9CBAE1A84D4F7A5F21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +653,8 @@ magnet:?xt=urn:btih:3FAAB1D5820410AA92032C9CBAE1A84D4F7A5F21
 ```bash
 magnet:?xt=urn:btih:89241818D4CBB19EB57806183226031D806A3D35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,29 +683,7 @@ magnet:?xt=urn:btih:89241818D4CBB19EB57806183226031D806A3D35
 magnet:?xt=urn:btih:C0339F96ACF6340C1B2D54B7C32340435A4AABFC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022155   (729306) от 01.06.2016
-
-Джеймс Гарни | Цвет и свет (2013) [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_729306.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга адресована не только продвинутым художникам, но и начинающим. Данное подробное пособие также будет интересно всем, кто интересуется законами зрительного восприятия. Это настоящий настольный справочник для всех любителей рисования!  Великолепные иллюстрации из известной книги Джеймса Гарни «Динотопия» в данном пособии играют роль поясняющего материала. Подробные (   Читать дальше...   )Жанр: Живопись. Теория и техникаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8671A969827055F18D8E16298983D4D2B9B9F5F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

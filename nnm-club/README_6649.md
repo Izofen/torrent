@@ -19,6 +19,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:3FADFEC3CE243B4DA3FD0869BD561577D41684EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:3FADFEC3CE243B4DA3FD0869BD561577D41684EE
 ```bash
 magnet:?xt=urn:btih:2E7F648221A99128801CCA9BA772C0FEF13508DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:2E7F648221A99128801CCA9BA772C0FEF13508DA
 magnet:?xt=urn:btih:BDD9E393F269B9E46F3F90C879F6E266571700D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Animal Shelter (2022) [Ru/Multi] (1.2.11-33.192/dlc) Repack Other s
 magnet:?xt=urn:btih:27026C198EE3DE25C063D4219CDBD6DBC37B62D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:27026C198EE3DE25C063D4219CDBD6DBC37B62D2
 ```bash
 magnet:?xt=urn:btih:48082382E9BAED04759EA781B3BBA0684726556E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Human Fortress - Stronghold (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Epic P
 magnet:?xt=urn:btih:0BCEC27C801A837999FD910A01CDEFF1A0D94236
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:0BCEC27C801A837999FD910A01CDEFF1A0D94236
 ```bash
 magnet:?xt=urn:btih:E5EE00E7A49AA93A4A5C1CEFF64DAFACA867F6D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:E5EE00E7A49AA93A4A5C1CEFF64DAFACA867F6D6
 magnet:?xt=urn:btih:319D9532F9CCBE138F6F803239A2F303E636E6C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Ektomorf - Heretic (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Groove Metal, T
 ```bash
 magnet:?xt=urn:btih:DF9DBC221E6E7453D17A0B3F8B3220212AF79C7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:DF9DBC221E6E7453D17A0B3F8B3220212AF79C7D
 magnet:?xt=urn:btih:CF993D4F2E54F92B3D5C8FB37E4C230298B82EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:CF993D4F2E54F92B3D5C8FB37E4C230298B82EF0
 ```bash
 magnet:?xt=urn:btih:40F97096E4CFEE2E0FA1687348EA85752FBC23EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:40F97096E4CFEE2E0FA1687348EA85752FBC23EC
 magnet:?xt=urn:btih:206FC2CFB506505FE729714CBB55C7EE66BDF9F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ RC Cars от Creat Studio - это гонки на радиоуправляем�
 magnet:?xt=urn:btih:AE54E91E272CF2C4F4B102423D012089F8B18B22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:A089FB348808FAFFA191FE856B39D3CE26234666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:A089FB348808FAFFA191FE856B39D3CE26234666
 magnet:?xt=urn:btih:D2F34930A380A544629079F418EA0A26626BBEFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Punch Club – это менеджер уличного бойца в жанре
 ```bash
 magnet:?xt=urn:btih:0D6457675D65A0008879B77E40A78439DC2B14D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:0D6457675D65A0008879B77E40A78439DC2B14D2
 magnet:?xt=urn:btih:903ADC1BC40575714B8AA088F2BAB2A4C83702CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:903ADC1BC40575714B8AA088F2BAB2A4C83702CF
 ```bash
 magnet:?xt=urn:btih:13378E3AECD983669BF359E5A8FBBD73E7ECD930
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:13378E3AECD983669BF359E5A8FBBD73E7ECD930
 magnet:?xt=urn:btih:7CBABF4D07171F1FDB57E69D8C53C4005B02DD37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:7CBABF4D07171F1FDB57E69D8C53C4005B02DD37
 ```bash
 magnet:?xt=urn:btih:620D34D75E06D8596DB7E72E09E9D3CED8225141
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Resistor - калькулятор цветовой маркировки рези
 magnet:?xt=urn:btih:CF7DA71A88E00EAA8E028BE4813CD092A52ED666
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:CF7DA71A88E00EAA8E028BE4813CD092A52ED666
 ```bash
 magnet:?xt=urn:btih:7BD8762B510A0702514D29ECF85231CD67E756FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 magnet:?xt=urn:btih:DF8C29B0A1AFE51702ACF089904071138CAE49E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ magnet:?xt=urn:btih:DF8C29B0A1AFE51702ACF089904071138CAE49E2
 ```bash
 magnet:?xt=urn:btih:A455F4FC86E31A83C5B6556C6C73C7AE3836E748
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 magnet:?xt=urn:btih:3FF7177FB3A16DE8EF1918223D7BC3E9F294E62E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ The Last of Us: Part I (2023) [Ru/En] (1.1.2.0 Build 11806516/dlc) Repack Other 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

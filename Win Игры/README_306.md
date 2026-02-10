@@ -19,6 +19,8 @@ Road 96: Mile  (приквел к Road 96) — это сюжетная игра 
 magnet:?xt=urn:btih:ED80CA3831A59F5063847AA2552400501A4C9375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Salt 2 - пиратская игра с открытым миром про ис�
 ```bash
 magnet:?xt=urn:btih:B8ABA2857FBEC995C13C111633DEF0AB6EF427B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sacred 2 Remaster (2025) [Multi] (1.0c) License GOG
 magnet:?xt=urn:btih:B0E109853A4A4192E78A10CD24C3CD7E4FD9EC00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Last Caretaker (2025) [Ru/Multi] (0.5.0.581804) Repack Other s [Early Access
 ```bash
 magnet:?xt=urn:btih:B5BD24DFC83EE728D7D0575222E2258C52CDA831
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Fallout 4 (2015) [Ru/Multi] (1.11.137.0.0/dlc) Repack Wanterlude [Anniversary Ed
 magnet:?xt=urn:btih:0AD9D6E2796840F184C0A0294338D97E01BDC5D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Rue Valley (2025) [Ru/Multi] (1.0.0v2/dlc) Repack Let'sРlay [Digital Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:F39028EAA16C65E87730DAAF2DDBB5BD3F5EB47D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Port Royale 3: Pirates & Merchants (Patch/1.1.2) 2012 | SKiDROW
 magnet:?xt=urn:btih:CDCE8F2D6D8A5DB311BBFED6E81D9F78DBEAD290
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Troublemaker 2: Beyond Dream (2025) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:52642E8F577A9FEC6C0E568B7BFF253781C7B0A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Venba рассказывает историю молодой мамы, кото�
 magnet:?xt=urn:btih:A26C143ED6C798A7E0421A4AED89A6AEA8EBCDF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Angry Video Game Nerd 8 bit - сатирическое приключение, �
 ```bash
 magnet:?xt=urn:btih:A5C9FEC78DA1E9AB4E30F16FC0FFD928D191EBCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Rise Eterna (2021) [Multi] (1.0.0 r8) License GOG
 magnet:?xt=urn:btih:F89EECF218FFD1E37DAC123460409CAB0659B4AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Zaccaria Pinball отмечает богатое наследие Zaccaria - и�
 ```bash
 magnet:?xt=urn:btih:049D91D7BDF6194693805A82BF1FEC9EEE1C13CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Toy Defense / Солдатики (L) [Ru] 2012
 magnet:?xt=urn:btih:F641501D2DF0BD5E0EC45D750421308E80769D72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Top Secret Finders (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:726BB8B502D5F12A83A3D6E2F815F5F30B6AE445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Haunting Mysteries: Island of Lost Souls Collector's Edition (P) [En] 2012
 magnet:?xt=urn:btih:D2CC1C86B43F791241889ECC83B600D8E037E04C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Caribbean Pirate Quest (P) [En] 2008
 magnet:?xt=urn:btih:D5C4EBF953D3F388825E3F95F9579A54711591E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Mystery Case Files: Dire Grove / За семью печатями. Дайр Гр
 ```bash
 magnet:?xt=urn:btih:899CE80CF7C04EE9FDC3B01B23E56BC8CABC9A6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Silent Hill (яп. ‰сайрэнто хиру) — игровая серия �
 magnet:?xt=urn:btih:02B26DA51921FEAEA93B6A7FF59C50E5B1BE3C0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Surviving Mars Relaunched (2025) [Ru/Multi] (1.0.0.382125/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:BBA3F5F560F932769646C4D4DD682302B7218F6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Ambrosia Sky - это захватывающий симулятор от пер�
 magnet:?xt=urn:btih:8D1F61109C04137F93B9D0BA2F1ADE150AD085AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ Verho Curse of Faces - мрачный мир, скованный смертел�
 ```bash
 magnet:?xt=urn:btih:D290B1CFF2BCC9BA3598DC553462B745D2B83A92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Angry Video Game Nerd 8 bit - сатирическое приключение, �
 magnet:?xt=urn:btih:DCCCE6D82A8412D8F27E9A70B309B489461B1672
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ Warhammer 40,000: Battlesector (2021) [Ru/Multi] (1.5.330/dlc) Repack Necros [De
 ```bash
 magnet:?xt=urn:btih:291684C10EBB03DAE568D09DC895771848193C56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Wartorn - это однопользовательская рогалита с о
 magnet:?xt=urn:btih:ECEE28AAEAEAFA4AE96ADD27411B193AB7DC7E7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ Session: Skate Sim (2022) [Ru/Multi] (1.0.6.37/dlc) Repack FitGirl [Year One & T
 magnet:?xt=urn:btih:03017EFBE6913F06924D0E2C406D9C4556732E84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Tales of Xillia Remastered (2025) [Ru/Multi] (1.0.2/dlc) Repack FitGirl [Deluxe 
 ```bash
 magnet:?xt=urn:btih:4283415E5B0E7B01B66198D47C9ABDC03B1F6A66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

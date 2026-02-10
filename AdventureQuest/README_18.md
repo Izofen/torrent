@@ -19,6 +19,8 @@ From The Past (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:DCC192ACE82E78F5C5782071CB4F2F2B6D32E538
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Poppy Playtime (2021) [Ru/Multi] (Build 17162178/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:F00D3A654662909C965DE6F4A1BDDCE8F7884FA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Code Alkonost: Awakening of Evil (2025) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:8DEA07D9D1674FCCAADFAD23664BF92845F2FD14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Deliver Us Mars - продолжение получившей множество
 ```bash
 magnet:?xt=urn:btih:1D56A7FA97B864628256D8DDB9790585C8E8F455
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Poppy Playtime (2021) [Ru/Multi] (build 17177248/dlc) Repack seleZen
 magnet:?xt=urn:btih:62A44C21FF9B07308DDE8F0BEA224E4B7D1F7BC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NEEDY STREAMER OVERLOAD - это "многосерийный ADV", в котор
 ```bash
 magnet:?xt=urn:btih:21EAA2AD0D5448B183A119FD2F53964342752624
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Deliver Us Mars - продолжение получившей множество
 magnet:?xt=urn:btih:6CF2F2DB412E2741F2B41B85F06F0D2BE3463644
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Somnus (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D9356CF113E737D20A32AC6C1FE44560BD5EAF71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Scene Tenoke
 magnet:?xt=urn:btih:7733CFB9CADAE71E3B3E290C34131EFEEC982DF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Ad Infinitum (2023) [Ru/Multi] (1.0.8.271534) Repack Let'sРlay [Supporter Editi
 ```bash
 magnet:?xt=urn:btih:A016D791C47E0FB7C253F70BE4DBCCA8198BAA2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The End of the Sun - это мистическая приключенческа�
 magnet:?xt=urn:btih:16EC48F5410601AD05BCD9820ED27D25BD0226EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The End of the Sun - это мистическая приключенческа�
 ```bash
 magnet:?xt=urn:btih:9657FEB13927F3A345368810F757B60D569D83B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Gift Collector - это новогодняя хоррор игра от перв
 magnet:?xt=urn:btih:B2C16112A8FBBCB2D0FFE8895B1964183A378540
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Lies We Tell Ourselves (Ложь, которую мы рассказывае
 ```bash
 magnet:?xt=urn:btih:CCBA29D709BA2F90379771614B54E0A29FD29733
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Brothers: A Tale of Two Sons Remake (2024) [Ru/Multi] (Build 15058792) Repack Le
 magnet:?xt=urn:btih:7379B63D726EB467BDA1ED642BF1A771071CF451
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ DEEP IN THE DREAD (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:34A57863239847485BFD40056213DCB55F42CBAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Matsuro Palette / Палитра Смерти (2020) [Ru/Multi] (1.0.0) License 
 magnet:?xt=urn:btih:9116DDFBD83AE07FF8FEC7480012797127BE7D49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Pine: A Story of Loss (2024) [Ru/Multi] (1.4.12853) Repack FitGirl [Collector's 
 ```bash
 magnet:?xt=urn:btih:FA4D5BD47F1D82813AB76209715E6159535A8EE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Mark of the Deep (2025) [Ru/Multi] (1.0.0.0.0) Repack seleZen
 magnet:?xt=urn:btih:B10F0DB819512E287B83788EB0B8B759D87842C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Sable (2021) [Ru/Multi] (4.3) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:7344213C3E20103CA7C6340ABB163FE31C8C1138
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Night of the Rabbit (2013) [Ru/Multi] (2.2.325) Repack Let'sРlay [Premium E
 magnet:?xt=urn:btih:BD0CA8457A2285713BBABDD6BCBDEB2DFDBE11ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7F35EDE141EFC7B8D291AB8A1820FC87DAEE28F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Star Named EOS - не совсем обычная приключенческ
 magnet:?xt=urn:btih:31E3BAD08411AA6ECB2773CECABFF0FB75395B58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Other Me (2025) [Ru/Multi] (build 16992762) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:16E23AEE73EA6D92F37B06376572DEAE43D0DEE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Willie's Nightfall (2025) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:ACFB47624BA9BBCA11D537F81C6C9B396CCDA65F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Little Big Adventure – Twinsen’s Quest (2024) [Ru/Multi] (1.1.2/dlc) License
 ```bash
 magnet:?xt=urn:btih:D7804549CA4D0DE84E8861FE93B20E9839E57094
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

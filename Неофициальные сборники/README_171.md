@@ -21,6 +21,8 @@ VA - In the Club 2016.1 (2015) [MP3|256 кб/с]<Dance, Club, House>
 magnet:?xt=urn:btih:E942FBDD50BE00AA22F9F7EDF5F4E4839704538B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ VA - Hot Hits New Cities (2016) [MP3|320 Kbps] <Future House, Tech House, Drum &
 ```bash
 magnet:?xt=urn:btih:6EE5B91396A847626D85D7DBE7172455AAA4DAC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ VA - Ultimate Perfection Winter Sessions (2016) [MP3|225~320 Kbps] <House, Elect
 magnet:?xt=urn:btih:6C8BCE4CDC605832C9382D72329871375CC1A9CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ VA - Shazam Хит-парад Russia Top 100 Октябрь (2019) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:6883BD6D48953F330399014A99BC289CD0198B5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ VA - 50 Shades of Jazz (2015) [MP3|320 кб/с]<Jazz, Jazz Fusion, Smooth Jazz, 
 magnet:?xt=urn:btih:812C5978D391B82543C8F9EDD001BE57A0DCF005
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ VA - DFM тусовка №1 Сводный чарт лучших треков (
 ```bash
 magnet:?xt=urn:btih:D5FE59B1E240A378BDEC8D1593E954AC3BFF92A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +195,8 @@ VA - Навстречу Судьбе (4CD) (2013) [MP3|320 кб/с]<Поп-ро�
 magnet:?xt=urn:btih:0C53AB59051C069CA9031C16F74420D3325BEB82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +223,8 @@ VA - Top 100 Deep House (November) (2015) [MP3|320 кб/с]<Deep House,Club Hous
 ```bash
 magnet:?xt=urn:btih:21E1493AC8B10784E6320EFA3BBFD6A75943411E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ VA - Top 100 Club Tracks (November) (2015) [MP3|320 кб/с]<Club House, Vocal H
 magnet:?xt=urn:btih:F7966CCC69461906C1EF2183906F258C25BC788C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ VA - Extra Trance: Bonus [03] (2015) [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:393ABE73908FB48D4C0739BAAF3E056032FCEC3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ VA - Modern Blues (2019) [MP3|320 Kbps] <Blues,Modern,Rock>
 magnet:?xt=urn:btih:9327E7CAFB84D046407E927431281D317493D526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +339,8 @@ VA - Deep and Sexy 20 Deep House and Funky House Music Tunes Vol 4 (2015) [MP3|3
 ```bash
 magnet:?xt=urn:btih:00E3F87DE00802360695837EEBB2143C7175135E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +369,8 @@ VA - Top 100 DJs Drive Sounds Massive (2016) [MP3|320 Kbps] <Stadium Trance, Hou
 magnet:?xt=urn:btih:329369AD8E75B776B2C004F196ECF290869A39E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +397,8 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 028 (2017) [M
 ```bash
 magnet:?xt=urn:btih:70F0C3C643D0866ED912D742595D25F13B83403F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +427,8 @@ VA - Winterpearls A Lovely Cold Breeze Lounge & Chillout Vol.2 (2014) [MP3|320 �
 magnet:?xt=urn:btih:5170AF4B54CD1076A03174A5D405F0CEB04CCDC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +455,8 @@ VA - Partybreaks From The Collection (2017) [MP3|320 Kbps] <Rar, Hip-Hop, RnB>
 ```bash
 magnet:?xt=urn:btih:55D4EDEE43E0CDEF9E3D092B89E53CB41C15C191
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +485,8 @@ VA - Vocal Deep House Vol.32: Russian Version (Compiled by ZeByte) (2017) [MP3|3
 magnet:?xt=urn:btih:255921338A1DD21010783359AD09CF14DDBEB437
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +513,8 @@ VA - Winterpearls 03 A Lovely Cold Breeze Lounge and Chillout (2015) [MP3|320 к
 ```bash
 magnet:?xt=urn:btih:A158BE91BE84C4649F231BE7307355DB7EF3F70C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +543,8 @@ VA - Wigbert & Carlo Ruetz - Dockyard 2015 (2015) [MP3|320 кб/с]<Techno>
 magnet:?xt=urn:btih:4AC4364FEC7441531139DBCDDE4A53EBECEB31E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +571,8 @@ VA - The Official UK Top 40 Singles Chart 16.11.2018 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:AA5E86D9D494D73928CB8425EED5919B6DB219BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +601,8 @@ VA - German Top 100 Single Charts 16.11.2018 (2018) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:E8B268257FCFF44D5B948208B63BBEF2F9A94C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +629,8 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 026 (2017) [M
 ```bash
 magnet:?xt=urn:btih:42EAD4B681D52C3F969A3BF82DD6209331C39238
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +659,8 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 025 (2017) [M
 magnet:?xt=urn:btih:F5BE16EBC03F8CA2E69CA5D64ED8160E41514764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +687,8 @@ VA - Urban Legends: Techno Party (2017) [MP3|320 Kbps] <Hardstyle Techno, Tech H
 ```bash
 magnet:?xt=urn:btih:E830C32E963C1711D0F574AF48B59C7E22B588A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,6 +717,8 @@ VA - Juicy Groove: Minimal Techno Mix (2017) [MP3|192-320 Kbps] <Minimal, Techno
 magnet:?xt=urn:btih:1EC8662223527220F80AD4D300B9C5AC98D81DF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ VA - Я помню это время (2016) [MP3|320 Kbps] <Эстрада>
 ```bash
 magnet:?xt=urn:btih:AD0D6CFD6DD76E281EBC95D666415588E03D75D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Transitions - это огромный пакет, который начинал�
 magnet:?xt=urn:btih:9F688BEF62539CC6494EF538008B05721FD85F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:9F688BEF62539CC6494EF538008B05721FD85F80
 magnet:?xt=urn:btih:2CE2DAE7A9CBCC124DC48854ACACC02D82289775
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:2CE2DAE7A9CBCC124DC48854ACACC02D82289775
 ```bash
 magnet:?xt=urn:btih:47CC3FB4B279B4700242EBF2BD732ECE7C989306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:47CC3FB4B279B4700242EBF2BD732ECE7C989306
 magnet:?xt=urn:btih:47256DCC4C6B12AD5F2984C26C2D4648889816E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Ultimate Transitions Pack 4K - красочное видео/введение. �
 magnet:?xt=urn:btih:2A2F80BB839C379A7CA74170DC47953553878E0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Motion Typography - набор текстовой анимации. Проект
 ```bash
 magnet:?xt=urn:btih:B1308C11DB4341A1E8BB273B3DCE0B888239432F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:B1308C11DB4341A1E8BB273B3DCE0B888239432F
 magnet:?xt=urn:btih:1924DA57C3BB7631B504692B2B076047EB433175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Cube Slideshow - это шаблон, который использует ори
 ```bash
 magnet:?xt=urn:btih:099144F970E9F2B4AD4FEC49E663C61E71435165
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ The History II - драматический и привлекательный ш
 magnet:?xt=urn:btih:F82826F5090CECE6A8863A9F92A1008FECF9416E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Christmas Greetings - проект для создания красивой яр
 ```bash
 magnet:?xt=urn:btih:7B67407C73F12174F4C7F23C42E4A1A8F18934DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Magic Christmas Slideshow - это стильное и элегантное ро
 magnet:?xt=urn:btih:99B77AC3A737232DB9AB2C993DD1DB66BF841112
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Music Reaction - Шаблон представляет собой энергич
 ```bash
 magnet:?xt=urn:btih:000FB962E3C15A1E75FDB54D0F4F0CDBFF3D1C3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:000FB962E3C15A1E75FDB54D0F4F0CDBFF3D1C3E
 magnet:?xt=urn:btih:46987A1211D4839C2504E98C117C23E79AE89442
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ Colorful Event Promo - проект для создания красочных �
 ```bash
 magnet:?xt=urn:btih:BF323334D1E6503A092D15FBBAA136457AA1E9F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:BF323334D1E6503A092D15FBBAA136457AA1E9F6
 magnet:?xt=urn:btih:771115E488929737E0391E00CA9F578D4AC5A952
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Call Out Titles Pack - это потрясающий шаблон After Effect, 
 magnet:?xt=urn:btih:05E10286313D871B464E2B4E80D6A1C2D143809A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ VideoHive - Photo Slideshow - 24361049 [AEP]
 ```bash
 magnet:?xt=urn:btih:20816E92659025D190754FBC57446D9A34C454EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ VideoHive - T-Shirt Mockup - 23522948 [AEP]
 magnet:?xt=urn:btih:762651869011168435E89B24809FFA1555F9C744
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Golden Titles - это кинематографический проект с д
 ```bash
 magnet:?xt=urn:btih:63ED20CA471502687488C0360B0026AE73B297F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:63ED20CA471502687488C0360B0026AE73B297F9
 magnet:?xt=urn:btih:B8201CBD308AB2E11C855144EAA3C67276DC9625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Opener - Очень универсальный и гибкий шаблон, к�
 ```bash
 magnet:?xt=urn:btih:54296E3946A9089C58C48C0D4A03183061D95648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Snowflake Logo Reveal - появление логотипа через едва 
 magnet:?xt=urn:btih:BD8CF5CB3E1E23D5E0DFDAF3358F5AD5D612B6CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ Christmas Slideshow - это красиво оформленный и аними
 magnet:?xt=urn:btih:2E932B623BA53E138E80AB997D004CB07F19212A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Christmas Slideshow - это высококачественный шаблон, 
 ```bash
 magnet:?xt=urn:btih:1B9E5E018E232A645DC55F5AA2CDC7C104786F9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ VideoHive - Money - 20212608 [AEP]
 magnet:?xt=urn:btih:EA219E6B62DF6A4B2B8D22675225328E00A61D1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Xmas Lines Greeting Card - Приготовьте новые сообщения 
 ```bash
 magnet:?xt=urn:btih:7BCE7CEDA51A25F01895EA89A06A81E36B380A63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

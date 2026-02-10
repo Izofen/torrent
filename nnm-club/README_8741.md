@@ -19,6 +19,8 @@ Age of Empires II: Definitive Edition (2019) [Ru/En] (101.101.32708.0.911/dlc) R
 magnet:?xt=urn:btih:B1D4F10C4F65A0C0370E1E7F219976FEBA546E20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:B1D4F10C4F65A0C0370E1E7F219976FEBA546E20
 ```bash
 magnet:?xt=urn:btih:16692FFC08031967165041CBBA1BD6F373CC2AFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:16692FFC08031967165041CBBA1BD6F373CC2AFC
 magnet:?xt=urn:btih:1A6F8BFECE1CF3CAFBCB5F3E2D75AF4BC95BD678
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Indivisible — игра в жанре экшн-RPG / платформер с в
 ```bash
 magnet:?xt=urn:btih:1DA9A6EF6B32E8E55B958D5AD309A4BA2369EFF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:1DA9A6EF6B32E8E55B958D5AD309A4BA2369EFF5
 magnet:?xt=urn:btih:EA11198DA8B552E0876824040F86CCD636DBB253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:EA11198DA8B552E0876824040F86CCD636DBB253
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Narcos: Rise of the Cartels — жестокий боевик с элемент�
 ```bash
 magnet:?xt=urn:btih:41800F197BE04263060AD8FCA3625FEA6CAF6CD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ VideoHive - Infinity Tool - The Biggest Pack for Video Creators (v3.0) - 2373643
 magnet:?xt=urn:btih:67A46D6DD9B45814EFA07E3ABBC68F8837BA3E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ EBONY (2019) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:53506A64AB48F617896F96D6A71C59633B23F241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ VA - Trance 2020 (2019) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:B9B46F5ACEE10CEE02D768FB9A86EE3FC0E45AED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ VA - Best of Deep House 2017 (Deluxe Version) (2017) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:D49FE6D9F2AB9128FBA6B0032230C30FE8527E79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:D49FE6D9F2AB9128FBA6B0032230C30FE8527E79
 ```bash
 magnet:?xt=urn:btih:2E32F470D7E86FFB0823695E63A0C9D0C0755F47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ AC/DC - Greatest Hell's Hits (2009) [FLAC|Lossless]<Hard Rock>
 magnet:?xt=urn:btih:6B05706CDD885813E195ADB7BECE3C9962D7024E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:6B05706CDD885813E195ADB7BECE3C9962D7024E
 ```bash
 magnet:?xt=urn:btih:605F9441318F74CD36D9B615089BDAFE9EC46A90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:605F9441318F74CD36D9B615089BDAFE9EC46A90
 magnet:?xt=urn:btih:10F538025ACB6E63FD89CF7D14A0E6878616F5E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:10F538025ACB6E63FD89CF7D14A0E6878616F5E9
 ```bash
 magnet:?xt=urn:btih:31B4F549005E2C54F463796CE7AB4D9EE8D693EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:31B4F549005E2C54F463796CE7AB4D9EE8D693EB
 magnet:?xt=urn:btih:C15724BFA353B6761E49063713123B5A325152E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:C15724BFA353B6761E49063713123B5A325152E2
 magnet:?xt=urn:btih:A843C94A1AAF2FD3AEDF00639FED2246FE67ADA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:A843C94A1AAF2FD3AEDF00639FED2246FE67ADA8
 ```bash
 magnet:?xt=urn:btih:BC0EEC1D04B68A012086102446D215A40C17883A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ VA - Innovations Vol.1: Mixed by Synfonic (2017) [MP3|320 Kbps] <Trance, Psyched
 magnet:?xt=urn:btih:EF063F38946BF72B3E794DA004291344352CD862
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:EF063F38946BF72B3E794DA004291344352CD862
 magnet:?xt=urn:btih:CA7B668EC0AA7FA844E24866DE480CE881C6295B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:CA7B668EC0AA7FA844E24866DE480CE881C6295B
 ```bash
 magnet:?xt=urn:btih:3261BA5B5730909CA5219B8C9E4B0393BF74B01A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ Jane Clifton - The Marriage of Style (2003) [MP3|320 Kbps] <Jazz, Pop>
 magnet:?xt=urn:btih:D5BB7F97CFA86BD464F4ACC9448F6730CAA7F9A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:D5BB7F97CFA86BD464F4ACC9448F6730CAA7F9A5
 ```bash
 magnet:?xt=urn:btih:C9996310D83470C355E16B8F723206D987ED2B1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ My Vitriol - The Secret Sessions (2016) [FLAC|Lossless|tracks] <Alternative Rock
 magnet:?xt=urn:btih:73674B6E9ACD16F944BC22EDA1E9E52284BD4BEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ VA - Grotesque 300 (Mixed by RAM, Marco V & Darren Porter) (2017) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:11A47FDCBA8500399A567257A78A6BE4E2297A77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

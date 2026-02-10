@@ -19,6 +19,8 @@ Catacomb Kids - ЖЕСТОКИЙ рогалик о юном пареньке, н
 magnet:?xt=urn:btih:889D6001D911DC23912AA7DB102F6C3D8315116F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Dungeon Souls (2015) [En] (2.0 HotFix.1) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B288A2ACACBCBB09E0754DC2F58B5AD7F37AA383
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Void Destroyer — гибрид космического симулятора и
 magnet:?xt=urn:btih:699A93CE729B5259201675A31F285957B1FBFCBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ ATOM RPG: Trudograd (2020) [Ru/En] (0.6.7.1) Repack xatab [Early Access] (обн
 ```bash
 magnet:?xt=urn:btih:E79016898B119CC5DAE70BB4B859842AB055E548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Mighty No. 9 - духовный наследник легендарной сер
 magnet:?xt=urn:btih:55D4E5B40EF54DD2ACB02ACA4811C8E9D7CDC2F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Turmoil - экономическая стратегия с генерируем�
 ```bash
 magnet:?xt=urn:btih:477FE985C5ED0CF947C84C7A71AB8BA87E07312A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Outbreak — выживание на красивой открытой карт�
 magnet:?xt=urn:btih:06457FE8C9C7B01DB418D193B2438488F5B510CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Stranded Deep - новый инди-проект от независимой а�
 ```bash
 magnet:?xt=urn:btih:CB3241ABB406DF61F11609C35C5BAD101340E9BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Plane Mechanic Simulator ставит вас в роли техника назе
 magnet:?xt=urn:btih:C811A3EDF60D3BEFB0249D94896D5F45CCFC5C15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Last Will - это приключенческая игра в рандомно-�
 magnet:?xt=urn:btih:AFA05DAE2E1B97F47733836BF26CF5AB30804DBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ Feed and Grow: Fish (2016) [En] (0.5.0/Early Access) Repack Other s
 ```bash
 magnet:?xt=urn:btih:942F397C257BDB80CFA55C5BFB1D63428CB0C87B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Pro Evolution Soccer 2013 – продолжение знаменитой сер
 magnet:?xt=urn:btih:16FE46BAEE751A3EC2312010D214D7E6F0FD045E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:16FE46BAEE751A3EC2312010D214D7E6F0FD045E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ Diesel Guns — это олдскульная кар комбат игра, в �
 magnet:?xt=urn:btih:467E57272A91B59AC3EB2DEA9E2F3CB74EFEC3EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Boid - классово-ориентированная стратегия в р�
 ```bash
 magnet:?xt=urn:btih:ADDBEF749056D6EE6994F54B9137090E5FFFC17F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Depth (2014) [Ru/Multi] (25657) Repack Other s
 magnet:?xt=urn:btih:836B2E77AF9694D3688A3C6C09B8EC4928F524C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Steel Division: Normandy 44 — это тактическая стратегия
 magnet:?xt=urn:btih:53A9B800C79CC40C6AB9B3F6C29B2BAB3AF00F88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Black The Fall (2017) [En] (0.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A2DFB8E91480377B8C0DB4A8CBC241509CCB5EAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Crea - продолжатель дела Minecraft и Terraria. Данная и�
 magnet:?xt=urn:btih:3EC7EE7F00E27F193282C734E919680A0B34BA39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Darkwood - это игра о выживании, исследовании и с
 magnet:?xt=urn:btih:78E7D0E3952A0806333F1F3D97EE37E8A5925E1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Envoy 2 (2016) [Ru/En] (Experimental version) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A7EE01F50C707EE0066CD91C161E45AEA9BF9660
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Dropship Down — это аркадный кооперативный шутер 
 magnet:?xt=urn:btih:E071987A0988395D6CA247A0A1B6FB4805ED2C34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ CDF Starfighter VR - это космический приключенчески�
 ```bash
 magnet:?xt=urn:btih:2C3A1209E8A515B781601202500DF068059C6560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Deck of Ashes — это приключенческая игра с тактич
 magnet:?xt=urn:btih:A4AB2A073B4BA79647C4F0A7989DC4420B1ACF7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Raw Data — это аркадный шутер для VR-шлемов и очк
 magnet:?xt=urn:btih:BDAB56CAE73D31EC2B842D47075531D7B96D62FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Cliff Empire - небольшая экономическая стратегия.
 ```bash
 magnet:?xt=urn:btih:30FD51775085885AC2C0DF120EEF5137DE9967F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

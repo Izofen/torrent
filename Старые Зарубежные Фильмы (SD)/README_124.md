@@ -1,27 +1,3 @@
-###  Публикация: 568567   (469824) от 21.09.2013
-
-Полоса невезения/ Il paramedico (1982) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_469824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Марио Мильо, санитар в больнице, делит свои будни между постылой работой и скучной семейной жизнью. Но однажды он выигрывает в лотерею шикарный автомобиль. И жизнь Марио круто меняется…Производство: ИталияЖанр: КомедияРежиссер: Серджо НаскаАктеры: Энрико Монтезано (Enrico Montesano), Эдвиж Фенек (Edwige Fenech), Марко Мессери (Marco Messeri), Лео Гульотта (Leo Gullotta), Мауро Ди Франческо (Mauro Di Francesco), Энцо Робутти (Enzo Robutti), Энзо Либерти (Enzo Liberti), Уго Фангареджи (Ugo Fangareggi)Перевод: Профессиональный (многоголосый)Субтитры: ОтсутствуютПродолжительность: 01:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39EBD1742EA85E1D883815180DE9A787BA228C00
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567789   (470072) от 04.08.2022
 
 Убрать Картера / Get Carter (1971) BDRip [H.264]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:39EBD1742EA85E1D883815180DE9A787BA228C00
 ```bash
 magnet:?xt=urn:btih:FEA660393161A9DD6D7C9033C9C94A141290E148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:FEA660393161A9DD6D7C9033C9C94A141290E148
 magnet:?xt=urn:btih:EE3749A0F998FBC42E710E97B27692B2347A54C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:EE3749A0F998FBC42E710E97B27692B2347A54C1
 magnet:?xt=urn:btih:6F49D2C9E14138CBCC8094D07FB96470C5BEE9FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +96,8 @@ magnet:?xt=urn:btih:6F49D2C9E14138CBCC8094D07FB96470C5BEE9FB
 ```bash
 magnet:?xt=urn:btih:7BDAEF03D83746C25D1FD271F2CF1AFD79206A9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:7BDAEF03D83746C25D1FD271F2CF1AFD79206A9D
 magnet:?xt=urn:btih:818FCAB02F046ED32193EB48F9C8F9E3E1421A5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:818FCAB02F046ED32193EB48F9C8F9E3E1421A5A
 magnet:?xt=urn:btih:10E09EB3387096400B4CAE4A04D1C7024DD35820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:10E09EB3387096400B4CAE4A04D1C7024DD35820
 ```bash
 magnet:?xt=urn:btih:A555CE453D5E0B12C9A6BD11AAA2FD3BCDAA9743
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +204,8 @@ magnet:?xt=urn:btih:A555CE453D5E0B12C9A6BD11AAA2FD3BCDAA9743
 magnet:?xt=urn:btih:CAFD6DBBD5047F29F5C4BB4C4D919ED3C9D57A2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +231,8 @@ magnet:?xt=urn:btih:CAFD6DBBD5047F29F5C4BB4C4D919ED3C9D57A2F
 magnet:?xt=urn:btih:20B081E33195FDA88AAE9ED974374AA0B69776A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +256,8 @@ magnet:?xt=urn:btih:20B081E33195FDA88AAE9ED974374AA0B69776A8
 ```bash
 magnet:?xt=urn:btih:2C9F8F4924531CF7F7CB8CAE73D281057CB0A054
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +283,8 @@ magnet:?xt=urn:btih:2C9F8F4924531CF7F7CB8CAE73D281057CB0A054
 magnet:?xt=urn:btih:9B040E19B1854649BFDBB44049657F621321A1E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +308,8 @@ magnet:?xt=urn:btih:9B040E19B1854649BFDBB44049657F621321A1E3
 ```bash
 magnet:?xt=urn:btih:65C6F1ED57E718820785B3FC4471859884A76DFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +335,8 @@ magnet:?xt=urn:btih:65C6F1ED57E718820785B3FC4471859884A76DFC
 magnet:?xt=urn:btih:A8A388D1369A13EF4330AE0FD0205983E1F300FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +360,8 @@ magnet:?xt=urn:btih:A8A388D1369A13EF4330AE0FD0205983E1F300FB
 ```bash
 magnet:?xt=urn:btih:B78B8FBB0BA8A27CEBE821A9C114F222B0B84BF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +387,8 @@ magnet:?xt=urn:btih:B78B8FBB0BA8A27CEBE821A9C114F222B0B84BF6
 magnet:?xt=urn:btih:AB8906FD64BB9C533E9DB6C5E2DA47D3C6B11444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +412,8 @@ magnet:?xt=urn:btih:AB8906FD64BB9C533E9DB6C5E2DA47D3C6B11444
 ```bash
 magnet:?xt=urn:btih:A85FE4506E75EB69A58B5B712ED72B761ACDD4C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +439,8 @@ magnet:?xt=urn:btih:A85FE4506E75EB69A58B5B712ED72B761ACDD4C1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +464,8 @@ magnet:?xt=urn:btih:A85FE4506E75EB69A58B5B712ED72B761ACDD4C1
 ```bash
 magnet:?xt=urn:btih:FB1F76B9A5B0B072C041EF8B447E29A91241F4EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +492,8 @@ magnet:?xt=urn:btih:FB1F76B9A5B0B072C041EF8B447E29A91241F4EB
 magnet:?xt=urn:btih:AB1C5D3CDC4465930DA902B1FF32A286A688DC82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +517,8 @@ magnet:?xt=urn:btih:AB1C5D3CDC4465930DA902B1FF32A286A688DC82
 ```bash
 magnet:?xt=urn:btih:FB388EE335CD742481B9E83B3131A90ED95508ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +544,8 @@ magnet:?xt=urn:btih:FB388EE335CD742481B9E83B3131A90ED95508ED
 magnet:?xt=urn:btih:143717169AF08E276480ADBCD6D73E2B308BA727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +569,8 @@ magnet:?xt=urn:btih:143717169AF08E276480ADBCD6D73E2B308BA727
 ```bash
 magnet:?xt=urn:btih:27455BAF0C67B17D0EEED5082B1C5DFD8EC8801A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +596,8 @@ magnet:?xt=urn:btih:27455BAF0C67B17D0EEED5082B1C5DFD8EC8801A
 magnet:?xt=urn:btih:76007D41C367AD9C20C5E8E476385C8D9FBE36FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +622,8 @@ magnet:?xt=urn:btih:76007D41C367AD9C20C5E8E476385C8D9FBE36FA
 magnet:?xt=urn:btih:73B95D6B64AA973E703ED11379B8A8B292C84F9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +647,34 @@ magnet:?xt=urn:btih:73B95D6B64AA973E703ED11379B8A8B292C84F9C
 ```bash
 magnet:?xt=urn:btih:592C3F255EDD73A73AD0E9DD8D88C6D12B3E9918
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939428   (474746) от 21.09.2015
+
+Страсть к вуду / Зов белокурой богини / Voodoo Passion / Der Ruf der blonden Gottin (1977) BDRip [H.264] [AVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_474746.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сюзанна, жена британского консула на Таити, переезжает жить нему на остров. Здесь она сталкивается со странными персонажами — сестрой мужа Ольгой, похотливой блондинкой с лесбийскими наклонностями, занимающейся инцестом с братом, и со служанкой, которая, зомбируя Сюзанну, проводит с ней ритуалы Вуду — они танцуют обнаженные под звуки барабанов и входят в транс…Производство: Швейцария / Elite Film, Nestor Film ProduktionЖанр: Драма, Криминал, ЭротикаРежиссер: Хесус ФранкоАктеры: Мюриэль Монтоссэ, Ада Толер, Джек Тейлор, Карин Гамбье, Витор Мендез, Ли Фрэй, Рита Морено, Сандра Дэнликер, Айда Гувейя, Норберт ЛангерПеревод: Авторский (А. Алексеев)Субтитры: ОтсутствуютПродолжительность: 01:26:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41B81F900D016001071BFCAF140D8A063A82F9DA
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

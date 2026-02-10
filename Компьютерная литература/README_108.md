@@ -20,6 +20,8 @@ Dave Harfield (ред.) | Андроид: Советы, трюки, прилож
 magnet:?xt=urn:btih:2B880B062AAC38BB049233097E09CE327EDA4296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Russell Barnes (ред.) | Android: Tips, Tricks & Apps (vol.1) / Андроид
 ```bash
 magnet:?xt=urn:btih:9B1E9ACFB509B895F032B5EB5C0CDC8F8C50735C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ SЕО Монстр 2013 [2012] [PDF]
 magnet:?xt=urn:btih:CB71FE15EC41531F4514411FE760AB6B3C206009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:CB71FE15EC41531F4514411FE760AB6B3C206009
 magnet:?xt=urn:btih:225DC8D38A3CE2C12FFBE73BB5AEEE74A7F012E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:225DC8D38A3CE2C12FFBE73BB5AEEE74A7F012E9
 magnet:?xt=urn:btih:494116C4FD96C68469334811713E11B11B533F6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Orin Thomas | Windows Server 2008 R2 Secrets / Секреты Windows Server 200
 ```bash
 magnet:?xt=urn:btih:FE6AE036AACA7B251A846DCDD4B33E35DD972989
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:FE6AE036AACA7B251A846DCDD4B33E35DD972989
 magnet:?xt=urn:btih:69996174C32E4C37E3782A715096A71818BEE3CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Jeremy Keith | The Mobile Book by Smashing Magazine [2012] [PDF] [En]
 ```bash
 magnet:?xt=urn:btih:02E33F3816C44B1AF3FA173BA08C6712F15A77B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:02E33F3816C44B1AF3FA173BA08C6712F15A77B5
 magnet:?xt=urn:btih:EBF872137E9755C4CF5EEFBC8317E24B409DF69A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:EBF872137E9755C4CF5EEFBC8317E24B409DF69A
 ```bash
 magnet:?xt=urn:btih:0CF11ABD419EEA0F2F4884CB26F65769FE05F5D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:0CF11ABD419EEA0F2F4884CB26F65769FE05F5D7
 ```bash
 magnet:?xt=urn:btih:001295C47D79BDC2349739EE522650F2C770B958
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:001295C47D79BDC2349739EE522650F2C770B958
 magnet:?xt=urn:btih:8B87F2FB561DF2BB7285385445AB2E1E735FD326
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:8B87F2FB561DF2BB7285385445AB2E1E735FD326
 ```bash
 magnet:?xt=urn:btih:ECDB9B662EC92E2F2D80E54E4A1E8A6AF407C34D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:ECDB9B662EC92E2F2D80E54E4A1E8A6AF407C34D
 magnet:?xt=urn:btih:E10A40DDD1CC2CCD5F3FDE88C7BE6B533327A63E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:E10A40DDD1CC2CCD5F3FDE88C7BE6B533327A63E
 ```bash
 magnet:?xt=urn:btih:D2619459ABA0C0F11AB99A6DFB93A3ED788FC391
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ magnet:?xt=urn:btih:D2619459ABA0C0F11AB99A6DFB93A3ED788FC391
 magnet:?xt=urn:btih:5671CB60312A35B0AEBE3CF0242EA936E56BBF64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +465,8 @@ Maya 2013 - один из лучших на сегодняшний день па
 magnet:?xt=urn:btih:A36285EF1BA96C9D35CB74B2AEB854DC5F6B04E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +490,8 @@ magnet:?xt=urn:btih:A36285EF1BA96C9D35CB74B2AEB854DC5F6B04E8
 ```bash
 magnet:?xt=urn:btih:7610D82D863B762274ABCB6397C1F5ADF31C4BA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +518,8 @@ magnet:?xt=urn:btih:7610D82D863B762274ABCB6397C1F5ADF31C4BA6
 magnet:?xt=urn:btih:1635DC63E3BD8BCCFC23A29E23781F1DBB41F349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +545,8 @@ Apress | Книги по Blender [4 книги] (2009-2020) [PDF, EPUB] [En]
 magnet:?xt=urn:btih:D8BB82C6C1B46784C4F0287A74220F9767AEEA1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ magnet:?xt=urn:btih:D8BB82C6C1B46784C4F0287A74220F9767AEEA1A
 ```bash
 magnet:?xt=urn:btih:AA0C242716185E43017E7C2F493CAADBA84D0473
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +597,8 @@ magnet:?xt=urn:btih:AA0C242716185E43017E7C2F493CAADBA84D0473
 magnet:?xt=urn:btih:9C055D14BEAFEA5C934EB79193E1F467AE4EEF44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:9C055D14BEAFEA5C934EB79193E1F467AE4EEF44
 ```bash
 magnet:?xt=urn:btih:A6346B3E301C0134EBAC541A2895CFF2510EEDD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:A6346B3E301C0134EBAC541A2895CFF2510EEDD4
 magnet:?xt=urn:btih:C0961E4995D6891F4ABD0F74DAE770AF503A2B7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:C0961E4995D6891F4ABD0F74DAE770AF503A2B7F
 ```bash
 magnet:?xt=urn:btih:A6D82D2213BF7AE9C5963A4F12E9FFC239C9A940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +701,8 @@ Packt Publishing | Книги по Blender [31 книга] (2008-2018) [PDF, EPU
 ```bash
 magnet:?xt=urn:btih:83059898176BEF4D78654397B14C8241A7AE0CD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

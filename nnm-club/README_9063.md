@@ -20,6 +20,8 @@ Movavi Screen Recorder (ex. Capture) Studio - программа для захв
 magnet:?xt=urn:btih:53CF46D96679ACCCF7749B29B6CE630CB1506965
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Super Neptunia RPG (2019) [Switch] [USA] 8.1.0 [NSZ] [Unofficial / DLC / 1.03] [
 magnet:?xt=urn:btih:2D45DEAAE5A31BDDB33EEFBF519FB73B6ED97C52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:2D45DEAAE5A31BDDB33EEFBF519FB73B6ED97C52
 ```bash
 magnet:?xt=urn:btih:6CABEAC8EB5909FE3D8F1DABC00D0ADF05993FAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:6CABEAC8EB5909FE3D8F1DABC00D0ADF05993FAA
 magnet:?xt=urn:btih:9C55930E950372C2F4EEEC54FA272AC56B0C3F39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:9C55930E950372C2F4EEEC54FA272AC56B0C3F39
 ```bash
 magnet:?xt=urn:btih:EC021D2E6B8734E364B69AF4670272CCCB9DF80C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:EC021D2E6B8734E364B69AF4670272CCCB9DF80C
 magnet:?xt=urn:btih:0EE49344060B0ACB8D8514A717EE34F61FEE4478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Movavi Video Editor 5.1.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:16415800F5F0BE17AA8BC80B525C9FDEF4392B35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:16415800F5F0BE17AA8BC80B525C9FDEF4392B35
 magnet:?xt=urn:btih:2801ABAC3144ECAD7B9C4D8A6CAFB32B8A2E1096
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Movavi Screen Recorder 5.1 [Multi/Ru]
 magnet:?xt=urn:btih:31C9D145AD5C44E851212A56BF49513CC9430ED7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:31C9D145AD5C44E851212A56BF49513CC9430ED7
 ```bash
 magnet:?xt=urn:btih:88F2E76E66D7E553DD8E004600C7F660A2827729
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:88F2E76E66D7E553DD8E004600C7F660A2827729
 magnet:?xt=urn:btih:78A37B8726DC523AC425F8C26BEE0B1E9EA61C41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ YTD Video Downloader позволяет загрузить нужный вам �
 ```bash
 magnet:?xt=urn:btih:1F28163F760A7FD8D235176B0280921AC1179F76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ O&O DiskImage Professional - программа позволяющая созд�
 magnet:?xt=urn:btih:B186E96F14D45CC47CA195A8D19897F642FE22B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:EF70F94968AD998FF77A20C73AEF80E55C72B539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:EF70F94968AD998FF77A20C73AEF80E55C72B539
 magnet:?xt=urn:btih:6624DF6821EAF078D1D4687FE5DBE1755AD8B591
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:6624DF6821EAF078D1D4687FE5DBE1755AD8B591
 ```bash
 magnet:?xt=urn:btih:AD0C74F512818C3C5F5C8B7330D3EB6483FEF621
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:AD0C74F512818C3C5F5C8B7330D3EB6483FEF621
 magnet:?xt=urn:btih:168205A81F0B5E3CFA7147D58F24FB7A25F817A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ Sean Evenett - My Peaceful Heart (2017) [MP3|320 Kbps] <New Age>
 magnet:?xt=urn:btih:BB36A06A99834EAA452C100A9796F1D9D9CE1335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ Debookee - Программа, анализирующая соединение �
 ```bash
 magnet:?xt=urn:btih:7EB7638CBD3F1BB8CB68F04FEDECA36CA500A74E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:7EB7638CBD3F1BB8CB68F04FEDECA36CA500A74E
 magnet:?xt=urn:btih:2D7C47EB7AFAF86A0EF883B7280CB82D7DF0E1AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ Ghalia & Mama's Boys - Let The Demons Out (2017) [FLAC|Lossless|tracks] <Harmoni
 magnet:?xt=urn:btih:23E7067E2C580C4095B521B2656CF8856B0DC260
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:23E7067E2C580C4095B521B2656CF8856B0DC260
 magnet:?xt=urn:btih:D049A4F980474236A46BCE57D997F71814703168
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ Claymore / Клеймор (2001-2012) [21 том (155 глав)] [Манга][р
 ```bash
 magnet:?xt=urn:btih:BE6CEE2C6C5CFA8942C8222D402B55B06370D41E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:BE6CEE2C6C5CFA8942C8222D402B55B06370D41E
 magnet:?xt=urn:btih:2DD9A087A46FBD3C5E4492EDD3C8A8A6CAFF0526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:2DD9A087A46FBD3C5E4492EDD3C8A8A6CAFF0526
 ```bash
 magnet:?xt=urn:btih:D007EEF0BDBDB34A23354DAC1536FC29BEE92208
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:D007EEF0BDBDB34A23354DAC1536FC29BEE92208
 ```bash
 magnet:?xt=urn:btih:753750CE2F0CC1F8C135A9D19720986BA8D2D8E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

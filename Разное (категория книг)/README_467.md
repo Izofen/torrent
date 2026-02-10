@@ -1,3 +1,29 @@
+###  Публикация: 1221379   (692882) от 25.04.2018
+
+Максим Малявин | Психиатрия для самоваров и чайников (2018) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_692882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Максим Малявин в психиатрии около двух десятков лет. В последние годы известен в Рунете; вместе с женой Оксаной, тоже психиатром, ведет в Живом журнале «Блог добрых психиатров». Если верить довольно расхожей сентенции, то в психиатрии кто первый надел халат и занял место по нужную сторону рабочего стола – тот и доктор. По слухам, желательно еще иметь кое-какое представление (   Читать дальше...   )Жанр: ПсихиатрияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28E33AEECFCCDB838651CDCCE1E3A8FAB771D252
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221607   (692884) от 25.04.2018
 
 Брэд Сталберг, Стив Магнесс | На пике. Как поддерживать максимальную эффективность (2018) [FB2]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:8FC98E556AD29A19DD78C702C95B3580B987B67E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +76,8 @@ magnet:?xt=urn:btih:8FC98E556AD29A19DD78C702C95B3580B987B67E
 magnet:?xt=urn:btih:9EA57AE487DB3759B90CF2DDC9B52BB1A89B29A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +103,8 @@ magnet:?xt=urn:btih:9EA57AE487DB3759B90CF2DDC9B52BB1A89B29A9
 magnet:?xt=urn:btih:9D7AEB1C8B5759A8595A97C4C7721AF50AFB4B15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:9D7AEB1C8B5759A8595A97C4C7721AF50AFB4B15
 ```bash
 magnet:?xt=urn:btih:13F1FA3BE6F444E23594C631ECD519848990014B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +156,8 @@ magnet:?xt=urn:btih:13F1FA3BE6F444E23594C631ECD519848990014B
 magnet:?xt=urn:btih:760F676D9EF48BCB0D29A3D471A47D0E5430DD53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +181,8 @@ magnet:?xt=urn:btih:760F676D9EF48BCB0D29A3D471A47D0E5430DD53
 ```bash
 magnet:?xt=urn:btih:41DDC99A3606B2CD550AC02DE79D357D6DC1B559
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +210,8 @@ magnet:?xt=urn:btih:41DDC99A3606B2CD550AC02DE79D357D6DC1B559
 magnet:?xt=urn:btih:433E9939CAD2CFB4AC145342EDDFD66D753D2375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:433E9939CAD2CFB4AC145342EDDFD66D753D2375
 ```bash
 magnet:?xt=urn:btih:FA628D4D9E92D8D0C14F1A36623282F3BCEA5C1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +262,8 @@ magnet:?xt=urn:btih:FA628D4D9E92D8D0C14F1A36623282F3BCEA5C1B
 magnet:?xt=urn:btih:F37642E163E134B26EFF87E9AE954BF1697E1716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:F37642E163E134B26EFF87E9AE954BF1697E1716
 ```bash
 magnet:?xt=urn:btih:FFE4A2CF48D87DA0C09C2BB2EF6082E9CBE68C9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:FFE4A2CF48D87DA0C09C2BB2EF6082E9CBE68C9B
 magnet:?xt=urn:btih:21886950E39574BFE45589F1EC7FC77E5068109B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:21886950E39574BFE45589F1EC7FC77E5068109B
 ```bash
 magnet:?xt=urn:btih:EA91ED2B1C2ADEFE96C6E84B6139E63BB06022E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:EA91ED2B1C2ADEFE96C6E84B6139E63BB06022E5
 magnet:?xt=urn:btih:6F9E779778CAE181B7005F53CCB7B1C8D74FDA96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:6F9E779778CAE181B7005F53CCB7B1C8D74FDA96
 ```bash
 magnet:?xt=urn:btih:D0EF1E6B34377435C0AB5A8E5ABF7220C95BA4A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:D0EF1E6B34377435C0AB5A8E5ABF7220C95BA4A0
 magnet:?xt=urn:btih:B7F1B3AF7546822D6BA09E329A6CEABA6B14107D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:B7F1B3AF7546822D6BA09E329A6CEABA6B14107D
 ```bash
 magnet:?xt=urn:btih:5034015DA59009D285CCF6D026688D529D741F14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:5034015DA59009D285CCF6D026688D529D741F14
 magnet:?xt=urn:btih:3105B8FBC1BF814CB5D88B6398483C40F7563811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:3105B8FBC1BF814CB5D88B6398483C40F7563811
 magnet:?xt=urn:btih:5B5208A72DBC3CBC90FD5690E112CC3109D622A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:5B5208A72DBC3CBC90FD5690E112CC3109D622A3
 ```bash
 magnet:?xt=urn:btih:0CB348ADDDE949E9C7A1D5C775B2B38532739533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:0CB348ADDDE949E9C7A1D5C775B2B38532739533
 magnet:?xt=urn:btih:DFAC0D6D391D6345C660C9B9AB89823761EEE8C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +578,8 @@ magnet:?xt=urn:btih:DFAC0D6D391D6345C660C9B9AB89823761EEE8C3
 magnet:?xt=urn:btih:EC0116A4A5C35BAED9D131011F552840426176C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:EC0116A4A5C35BAED9D131011F552840426176C5
 ```bash
 magnet:?xt=urn:btih:A8B2125CB9256759E95CBA1E1BFD9466733E5538
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +632,8 @@ magnet:?xt=urn:btih:A8B2125CB9256759E95CBA1E1BFD9466733E5538
 magnet:?xt=urn:btih:AD03B59AAC9FF72E9BC2608A65A47877EBA7E741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +659,8 @@ magnet:?xt=urn:btih:AD03B59AAC9FF72E9BC2608A65A47877EBA7E741
 magnet:?xt=urn:btih:EDFB6BE8BA7C1AAAF59687F47C938E5241AB3961
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,29 +685,7 @@ magnet:?xt=urn:btih:EDFB6BE8BA7C1AAAF59687F47C938E5241AB3961
 magnet:?xt=urn:btih:1A5D4497FB40AF1779514BA3DC9D24419EC9EDAF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 831876   (695024) от 24.04.2018
-
-Василий Акимович Никифоров-Волгин | Заутреня святителей (2003) [PDF, FB2, EPUB]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_695024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы Василия Никифорова-Волгина — любимое чтение православной семьи. Его книга — поистине народная книга! В настоящем сборнике все тексты выверены по первоизданиям, включены ранее неизвестные произведения. Рассказы расположены согласно литургическому году, в порядке следования праздников. Впервые представлены литературные оценки душеполезных рассказов писателя, (   Читать дальше...   )Жанр: Православная прозаФормат: PDF, FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4992F7359871D1186004F9AB36643AB135FB7E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

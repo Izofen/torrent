@@ -22,6 +22,8 @@ A.C.T - Silence (2006) [FLAC|Lossless|image + .cue] <Progressive Rock>
 magnet:?xt=urn:btih:989E3378B3886C6E08C4DF6BDCAD3265F7160571
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:989E3378B3886C6E08C4DF6BDCAD3265F7160571
 ```bash
 magnet:?xt=urn:btih:B6165999C361C78F449C448D087AF2F32E9C42F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:B6165999C361C78F449C448D087AF2F32E9C42F8
 magnet:?xt=urn:btih:9DA2151517EEA614D6E9ED21E387C5BEE2ACA5BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ VA - не Громкие новинки недели 47 (2019) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:2B27E70A47A987BB94DB73CBBD482FA41BD75CD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Timer RH PRO - утилита для управления собственным
 magnet:?xt=urn:btih:7161A73ABC731A862125097282EFAF6A1F68B69C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Skype — программа от Microsoft, с помощью которой в
 ```bash
 magnet:?xt=urn:btih:67A572F8B6521137FCD8E8262F2B46CB9D88A4E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Asinhell - Impii Hora (2023) [MP3|320 Kbps] <Death Metal>
 magnet:?xt=urn:btih:522A56BA8B951238A14255F1C8A7AB17382A2E6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ WinToHDD - программа 3-в-1, которая позволяет выпо
 magnet:?xt=urn:btih:28C5C68A5CEFF82721B56E0B697B6539809CA939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:BDBBA5C89F158E230CCF4BB05EF6BEB45D30832D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ A.C.T - Last Epic (2003) Special Edition [FLAC|Lossless|image + .cue] <Progressi
 magnet:?xt=urn:btih:C8593C1EB468583FB85B4EF2F6A115917945DA40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:C8593C1EB468583FB85B4EF2F6A115917945DA40
 ```bash
 magnet:?xt=urn:btih:810956028F75CE43DF3E3A453DA44305A0582214
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:810956028F75CE43DF3E3A453DA44305A0582214
 magnet:?xt=urn:btih:7F3F363BC116E06A989F3EE4EE1515CE2468B1FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:7F3F363BC116E06A989F3EE4EE1515CE2468B1FB
 ```bash
 magnet:?xt=urn:btih:74A48BA0B6E9F10955DADDC83F47318087648882
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:74A48BA0B6E9F10955DADDC83F47318087648882
 magnet:?xt=urn:btih:86F5B0F0CD52E9697A1CA36B78F542A8D85C2EE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:86F5B0F0CD52E9697A1CA36B78F542A8D85C2EE0
 ```bash
 magnet:?xt=urn:btih:633E87C8F07EA0266D1BEEA62406EB5621FE8219
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:633E87C8F07EA0266D1BEEA62406EB5621FE8219
 ```bash
 magnet:?xt=urn:btih:B4E4848253D6E358EA7A1216D72DEC3E1367C624
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:B4E4848253D6E358EA7A1216D72DEC3E1367C624
 magnet:?xt=urn:btih:09932714F377E06DE1B25F525CCAD9BE7BE5C33A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:09932714F377E06DE1B25F525CCAD9BE7BE5C33A
 ```bash
 magnet:?xt=urn:btih:50029476D3EBBE3410D33D7F98F5E4B25123D49F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:50029476D3EBBE3410D33D7F98F5E4B25123D49F
 magnet:?xt=urn:btih:94E42F353B4947B6E207C049287B62BD6B7394B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:94E42F353B4947B6E207C049287B62BD6B7394B8
 ```bash
 magnet:?xt=urn:btih:F51DD096C8182FB88C40039D98046F5C611F1319
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ Playboy - легендарный журнал для мужчин, основа�
 magnet:?xt=urn:btih:781130153C30AA550B7B7BCBECF81C9BEDE7210D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:781130153C30AA550B7B7BCBECF81C9BEDE7210D
 ```bash
 magnet:?xt=urn:btih:8CAB58D8579F9BC24184F09B0FDBEDD3211C9CC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:8CAB58D8579F9BC24184F09B0FDBEDD3211C9CC2
 magnet:?xt=urn:btih:072FFCC5126E562F262ACABD28C928729CD5F24C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ magnet:?xt=urn:btih:072FFCC5126E562F262ACABD28C928729CD5F24C
 ```bash
 magnet:?xt=urn:btih:6E22265DAB2CE7E487B3C10B339EE0BF1E2305A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:6E22265DAB2CE7E487B3C10B339EE0BF1E2305A8
 magnet:?xt=urn:btih:C4E8A35ADB829E104A19CDA8661B1596D125A412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:C4E8A35ADB829E104A19CDA8661B1596D125A412
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

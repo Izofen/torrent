@@ -19,6 +19,8 @@ Heretic + Heretic 2 (1994, 1998) [Ru/En] (1.0) Repack/Rip Pilotus
 magnet:?xt=urn:btih:11ED2680544B58BD2BC3C9BB72516B27B475984B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:11ED2680544B58BD2BC3C9BB72516B27B475984B
 ```bash
 magnet:?xt=urn:btih:FC4EC214B6CE01FB4139D935EE6861D24F93ED94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:FC4EC214B6CE01FB4139D935EE6861D24F93ED94
 magnet:?xt=urn:btih:03DAE8F61F2B6C85FEF1644AB287206F68A64846
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ GSClient Counter-Strike 1.6 - старая-добрая CS1.6 с авто-обн
 ```bash
 magnet:?xt=urn:btih:04E1C7B41E8CD45EB7CCC5BB374C0B5D43438225
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:04E1C7B41E8CD45EB7CCC5BB374C0B5D43438225
 magnet:?xt=urn:btih:51C0CA4CF740651571FA5B67CEC92CA5D74B13CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Rise to Ruins - это игра, в которой сочетаются меха
 ```bash
 magnet:?xt=urn:btih:C00A7478577C4869CFE9EB1E460EFEBEF60CA1F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:C00A7478577C4869CFE9EB1E460EFEBEF60CA1F5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:C00A7478577C4869CFE9EB1E460EFEBEF60CA1F5
 ```bash
 magnet:?xt=urn:btih:9629C300B87621C0FB13274CAEDF43FA1167AD30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ GoodbyeDPI 0.2.2 Launcher 6.6 [Ru]
 magnet:?xt=urn:btih:F3AB796F12C848575F04E2C96D6BD28F79EF25CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ CyberLink PowerDVD - один из самых мощных на данный м�
 magnet:?xt=urn:btih:85783DF1BE9531EECB05B9A7BDD26EAC77ABEEC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:85783DF1BE9531EECB05B9A7BDD26EAC77ABEEC2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:85783DF1BE9531EECB05B9A7BDD26EAC77ABEEC2
 magnet:?xt=urn:btih:22E998642095B5B0B6F33CD9764451C57211A0ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:22E998642095B5B0B6F33CD9764451C57211A0ED
 ```bash
 magnet:?xt=urn:btih:65C78D4DD3BF6892452EEFEB55156945DAAE97C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:65C78D4DD3BF6892452EEFEB55156945DAAE97C5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:65C78D4DD3BF6892452EEFEB55156945DAAE97C5
 magnet:?xt=urn:btih:D35F84CBF249EFBFB21BED3EEF4DF5614B6E4E91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:D35F84CBF249EFBFB21BED3EEF4DF5614B6E4E91
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Sound Storm - Immortalia (2012) Japanese Edition [FLAC|Lossless|image + .cue] <S
 magnet:?xt=urn:btih:280B6E171EAFD781E5605C161A2ED37385CE6296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Lord Dying - Clandestine Transcendence (2024) [FLAC|Lossless|WEB-DL|tracks] <Slu
 ```bash
 magnet:?xt=urn:btih:9F23D4FFB69CA574E6486286743672DF08C2771E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ Rotting Yellow - Fountains Beneath Hell (2024) [FLAC|Lossless|WEB-DL|tracks] <Dr
 magnet:?xt=urn:btih:8589E857F46D74C39640906951C4E58596C5FE3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ A4 Blood, Tears, Dust(   Читать дальше...   )Жанр: Gothic Metal,
 ```bash
 magnet:?xt=urn:btih:BF7F1808F5780DA0A7AB7392D1EEB6B5E331B164
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ The Mountain King - Apostasyn (2024) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal>
 magnet:?xt=urn:btih:A2661CA386018286B7307E9D8DCB8C76C8FE770A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ Stanley Cowell - Live at Maybeck Recital Hall, Vol. 5 (1990) Concord Jazz [FLAC|
 ```bash
 magnet:?xt=urn:btih:13D1F5DA7FF7B041B37717C7E192CFB835DA6C3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ Natalie Cole - Natalie Cole Love Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Jaz
 magnet:?xt=urn:btih:3EBA9DF508208B1958AECE3B11E29D7E265E761D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:3EBA9DF508208B1958AECE3B11E29D7E265E761D
 ```bash
 magnet:?xt=urn:btih:EE7812DDC310F43F50BBB987FFFBC2CC52B8AB22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ Temptress - The Time Traveler's Continuum (2024) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:0C5354AA652A6DBA8E9CAD27E0E724A34D8ABF54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -650,6 +700,8 @@ VA - Keep It Trance Vol. 19 (2024) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:589F578CC33875ECB4DED543EFC8C4D78A2BAFCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

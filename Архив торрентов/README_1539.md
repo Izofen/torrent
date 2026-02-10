@@ -19,6 +19,8 @@ Futuremark 3DMark 2.25.8042 Professional Edition RePack by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:AD8659817C598DDB20DEDB68C7B0F46D602DDB9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ App Cleaner - лучшее приложение для удаления файл
 magnet:?xt=urn:btih:85DC2570437A761BF5C006A97B8505C7EA6CE9A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Autorun Organizer - простое в использовании приложе�
 ```bash
 magnet:?xt=urn:btih:0DFC628A5F6AC090C7BF065DDC1DAD8A1AF6241A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ DxO PureRAW 3.3.0 [En]
 magnet:?xt=urn:btih:16BD00493E6EA242CE64306011C7B1FC84B3CBE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Total Commander 10.50 (16.07.2022) Portable by MiG [Ru/En]
 magnet:?xt=urn:btih:75C6543D9F6A6A01255CDF2098396C58985A94F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:F99C9397A5508BC3744143102D6E9D5E0E10899D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ TweakNow WinSecret Plus! - позволяет пользователям исс�
 magnet:?xt=urn:btih:718423EE6E6014F2F5C10838E76C0549BA7563CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:C350175022177F41F7379B77AA1147790252E287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 magnet:?xt=urn:btih:096BAD5FADF9D28269B4CC0851D7E1212A71DC09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 magnet:?xt=urn:btih:65EEA759D2AF47D3F8062C4560D85282E594EFDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Revo Uninstaller Pro 5.0.7 RePack (& Portable) by TryRooM [Multi/Ru]
 magnet:?xt=urn:btih:0C06D400753D232BE953CDA4B48C972A91974140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 magnet:?xt=urn:btih:D6D8A66E4765CFBE677E5E46138F04EE23E8E162
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ FBackup — это свободно распространяемое прогр�
 ```bash
 magnet:?xt=urn:btih:CD7A9C670EB20964C004C188C6DC18F854860595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ One Commander V3 — это современный файловый менедж
 magnet:?xt=urn:btih:C3C612B2725B6C1E7608439EC81C2A2C460E9E58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ DxO FilmPack — это подключаемый модуль для Adobe Photo
 ```bash
 magnet:?xt=urn:btih:A8714B759361B86020D7FA77024F42F10255F680
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Skype - бесплатная программа для текстового, г�
 magnet:?xt=urn:btih:9BFCAC6B140B2A01DD6D059114F0DB33C707DB22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ DxO PhotoLab 6 ELITE Edition 6.7.0 [En]
 ```bash
 magnet:?xt=urn:btih:57D1412B7C6C9D6DA7EB02B31603C72B7FEFCAAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавля�
 magnet:?xt=urn:btih:DC3B968B97D6F85F7C8C980E51BDB65A99D2E412
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ magnet:?xt=urn:btih:DC3B968B97D6F85F7C8C980E51BDB65A99D2E412
 magnet:?xt=urn:btih:1D45AAD60343F1D86D161A0C3AF62397DB732FB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Revo Uninstaller Pro 5.0.7 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D75B94287DBBD2DDC2F5345DEB72AD0AB974A7BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:6BC80CC7E72BF36152E536F85D3724C03D94F16D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:50D9A67EF7655225BABED523FDCBDBE55EF23F8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:A3196A946E67FD79370842E03419207C9B862303
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Emsisoft Emergency Kit 2023.6.0.11952 Portable [Multi/Ru]
 magnet:?xt=urn:btih:FBA7BB8A5EFBE7E4A7856B4D01516A4739CB2146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Vidmore Player - универсальный медиаплеер, который
 ```bash
 magnet:?xt=urn:btih:F4594EC6188D496321C6FD693332327AD7F9C934
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +680,8 @@ Live синхронизирует все и работает в режиме р�
 ```bash
 magnet:?xt=urn:btih:C3CE662526FE18E8BBDF50BDD4AF4EB5DDB9DB0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,54 +1,3 @@
-###  Публикация: 1421156   (322009) от 03.11.2020
-
-Даниил Калинин | На последнем рубеже (2020) [MP3, Михаил Обухов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Декабрь сорок первого года, южный фас Московской битвы. Немцы прорываются к древнему Ельцу, чтобы перерезать снабжение столицы с Кубани и Кавказа. Фронт держат дивизии по 300 активных штыков и танковые бригады по 12 исправных танков. Но именно здесь проходит один из тех рубежей обороны, который принято называть последним, который нельзя сдавать.
-Пехотинец, сражающийся (   Читать дальше...   )Жанр: Боевик, Историческая литература, Книги о войнеПродолжительность: 07:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4122C53A3CB571B017378E0477863AE284293C68
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1421203   (322010) от 03.11.2020
-
-Векторный клипарт - Advertising orange juice and tasty ice cream realistic design [EPS]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_322010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Реклама сока и мороженого
-9 EPS + previewФормат: EPS
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:618865BE7B850B054BA06E86B15F153C959AD23D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421034   (322011) от 03.11.2020
 
 Растровый клипарт - Elements Collage 153 [PNG, PSD, JPG]
@@ -69,6 +18,8 @@ magnet:?xt=urn:btih:618865BE7B850B054BA06E86B15F153C959AD23D
 ```bash
 magnet:?xt=urn:btih:10B84F8B012315CDC8163060740490D95EFEA107
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +48,8 @@ VA - Sonic Music Background (2020) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
 magnet:?xt=urn:btih:E7CF1307D7B7AEFA6DBEE12A5653474706F0E80D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +76,8 @@ magnet:?xt=urn:btih:E7CF1307D7B7AEFA6DBEE12A5653474706F0E80D
 ```bash
 magnet:?xt=urn:btih:857F5AEADBA83807B78D364C416585E1ABEFF66C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +106,8 @@ VA - Music News vol.45 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:A5B7B3A5D17777318A1A1ED0ECCAEF6BDAF406A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +132,8 @@ magnet:?xt=urn:btih:A5B7B3A5D17777318A1A1ED0ECCAEF6BDAF406A1
 magnet:?xt=urn:btih:3B6FA574B8F570224D11FB95D783C41385630AEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +157,8 @@ magnet:?xt=urn:btih:3B6FA574B8F570224D11FB95D783C41385630AEB
 ```bash
 magnet:?xt=urn:btih:50DCD12EB8528536277EDFD04CCDB0D9A199DFFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +187,8 @@ VA - Chillout Ibiza (2017) 2CD [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:53E31994A739F6EA6B19BD21EDA2362AB12912D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +212,8 @@ magnet:?xt=urn:btih:53E31994A739F6EA6B19BD21EDA2362AB12912D7
 ```bash
 magnet:?xt=urn:btih:9B500B4F0C63310B995690AB067706F4F00A8B55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +239,8 @@ magnet:?xt=urn:btih:9B500B4F0C63310B995690AB067706F4F00A8B55
 magnet:?xt=urn:btih:FA3C0B2269B898FA5D6C81EA0B80F496C33E9FF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +264,8 @@ Virgin Australia Supercars Championship. Сезон 2017. ITM Auckland SuperSpri
 ```bash
 magnet:?xt=urn:btih:0FF7831DC253C512ECA77025B843FEB1B7822A2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +294,8 @@ VA - EPIC Ibiza - Trance Anthems Vol.3 (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:75DCE5992D79D5E23FC479FA26F0431F23FC15CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +322,8 @@ magnet:?xt=urn:btih:75DCE5992D79D5E23FC479FA26F0431F23FC15CC
 ```bash
 magnet:?xt=urn:btih:259A45D207C9165BCBA6CD64209CD1E3C5428B41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +352,8 @@ VA - Synthactica: Chillout And Relaxation (2017) [MP3|320 Kbps] <Downtempo, Chil
 magnet:?xt=urn:btih:CC6F15E5E8CE6F31ABA6E2D884AFDBEA332306CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +381,8 @@ VA - Luxury Disco - Ultimate House Grooves 2017 [MP3|320 Kbps] <Funky, Club Hous
 magnet:?xt=urn:btih:AA1A0772B1168B0AA1F65A8878CD342526E71A5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +406,8 @@ magnet:?xt=urn:btih:AA1A0772B1168B0AA1F65A8878CD342526E71A5E
 ```bash
 magnet:?xt=urn:btih:5B6B3CF93E27ED472EB2A37FB9C873F841680CC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +433,8 @@ magnet:?xt=urn:btih:5B6B3CF93E27ED472EB2A37FB9C873F841680CC1
 magnet:?xt=urn:btih:2C4ADB7325CA6ED8D9563568A4543719CA5C73F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +459,8 @@ magnet:?xt=urn:btih:2C4ADB7325CA6ED8D9563568A4543719CA5C73F1
 magnet:?xt=urn:btih:7851BFADE619F46D09E765456EDE0461561A3198
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +484,8 @@ magnet:?xt=urn:btih:7851BFADE619F46D09E765456EDE0461561A3198
 ```bash
 magnet:?xt=urn:btih:20676A2C8FABBBB40D5E2C7D27706BB49BCD47C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +513,8 @@ magnet:?xt=urn:btih:20676A2C8FABBBB40D5E2C7D27706BB49BCD47C7
 magnet:?xt=urn:btih:4192B85C8251A5F0858C6259DAF2D72E7F3CD7DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +538,8 @@ magnet:?xt=urn:btih:4192B85C8251A5F0858C6259DAF2D72E7F3CD7DA
 ```bash
 magnet:?xt=urn:btih:188CCE348A508E4CF832C77949D5557F321E401B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +566,8 @@ Flume - новое приложение для просмотра контент
 magnet:?xt=urn:btih:A083ACC45CF929CDA09E6326B0B8E30498C3238C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +591,8 @@ magnet:?xt=urn:btih:A083ACC45CF929CDA09E6326B0B8E30498C3238C
 ```bash
 magnet:?xt=urn:btih:4D5036C80FBAF589057E9A03C752E7F2FD7A8041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -628,6 +621,8 @@ Eddie Heywood - 1950 - 1951 (2004) Classics [FLAC|Lossless|tracks + .cue] <Swing
 magnet:?xt=urn:btih:26FC941B8078C2CEE702C1E3E0019F93D05E56D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +646,60 @@ magnet:?xt=urn:btih:26FC941B8078C2CEE702C1E3E0019F93D05E56D4
 ```bash
 magnet:?xt=urn:btih:D20A4D677B3C5CC5874EDD4B9C616F99ECC70457
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181940   (322035) от 08.11.2017
+
+Всемирный Совет Церквей (изд.) | Крещение. Евхаристия. Священство (1982) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот текст, составленный в Лиме, отображает существенное совпадение в богословских вопросах. Он был сформулирован Комиссией Вера и Устройство. Те, кто знает, как велико было расхождение Церквей в учении и практике Крещения, Евхаристии и Священства, могут оценить важность размера соглашения, о котором говорится здесь. Практически все традиционные исповедания включены (   Читать дальше...   )Жанр: Экуменизм, богословиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF434FFDEA253266BBE921294D25A8880E624E2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 727484   (322038) от 27.11.2013
+
+"Стрекоза-Пресс" | Серия "Читай по-русски, учи английский" [2 книги] (2006) [PDF] [Ru/En]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_322038.jpg" />
+</div>
+
+
+###  Подробнее
+
+В подборке представлены 3 русские народные сказки: "Репка", "Курочка Ряба" и "Козлятушки". Особенность изданий в том, что оба текста (русский и английский) расположены параллельно. Это позволит ребенку даже без словаря выучить новые слова и запомнить языковые конструкции.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67DBE57B560329D17E39E08E844D4EB80296EBAB
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

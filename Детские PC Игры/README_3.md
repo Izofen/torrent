@@ -20,6 +20,8 @@ Chemicus2/Химикус II [5+] (L) [Русский] (2004)
 magnet:?xt=urn:btih:DF1898A1F9B504763FEDAA759160B159A23745B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:DF1898A1F9B504763FEDAA759160B159A23745B3
 magnet:?xt=urn:btih:E8FA63C8291B407D1358513B9A326EBD8A2E7130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Littlest Pet Shop (2008) [3+] [Ru] (1.0) Repack Fixed EXE
 ```bash
 magnet:?xt=urn:btih:893CBC039AB9B76519303532547F469B25DBF330
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:893CBC039AB9B76519303532547F469B25DBF330
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:893CBC039AB9B76519303532547F469B25DBF330
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:893CBC039AB9B76519303532547F469B25DBF330
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:893CBC039AB9B76519303532547F469B25DBF330
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:893CBC039AB9B76519303532547F469B25DBF330
 magnet:?xt=urn:btih:14E83F37D7DBF0A407EFA11180460ED8E50A4762
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:14E83F37D7DBF0A407EFA11180460ED8E50A4762
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:14E83F37D7DBF0A407EFA11180460ED8E50A4762
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Kung Fu Panda / Кунг-фу Панда [RePack] (10+ лет) [Ru] (2008) | Spi
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Kung Fu Panda / Кунг-фу Панда [RePack] (10+ лет) [Ru] (2008) | Spi
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ Kung Fu Panda / Кунг-фу Панда [RePack] (10+ лет) [Ru] (2008) | Spi
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ Kung Fu Panda / Кунг-фу Панда [RePack] (10+ лет) [Ru] (2008) | Spi
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ Kung Fu Panda / Кунг-фу Панда [RePack] (10+ лет) [Ru] (2008) | Spi
 magnet:?xt=urn:btih:7F3F3BA8ADF1C7DC17CF60838BE07C8BCC1073EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:7F3F3BA8ADF1C7DC17CF60838BE07C8BCC1073EE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:7F3F3BA8ADF1C7DC17CF60838BE07C8BCC1073EE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ magnet:?xt=urn:btih:7F3F3BA8ADF1C7DC17CF60838BE07C8BCC1073EE
 ```bash
 magnet:?xt=urn:btih:76D94A1DA659A506FC0F53B5B92FADA127207844
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ Barbie as The Princess & The Pauper / Барби: Принцесса и нище
 magnet:?xt=urn:btih:8EC1ED46006734AAA8F885CCECB9996B59622713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:8EC1ED46006734AAA8F885CCECB9996B59622713
 ```bash
 magnet:?xt=urn:btih:861FE0D674F8C0DA776D3959DE0DF7D76D6C6091
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:861FE0D674F8C0DA776D3959DE0DF7D76D6C6091
 magnet:?xt=urn:btih:3BBF4570D8667A1F6EE0487DB9A9056A7C5E4D2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:3BBF4570D8667A1F6EE0487DB9A9056A7C5E4D2D
 ```bash
 magnet:?xt=urn:btih:C8B838DE231BCBE01CB5DF1189C4528F1A4A51B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:C8B838DE231BCBE01CB5DF1189C4528F1A4A51B9
 magnet:?xt=urn:btih:ED8894A177C87214A25126BFCF3C548A4198EBFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ magnet:?xt=urn:btih:ED8894A177C87214A25126BFCF3C548A4198EBFC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:ED8894A177C87214A25126BFCF3C548A4198EBFC
 magnet:?xt=urn:btih:3D40E15D77AA48FC4271BB9AAA521ADE2B74A6B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ magnet:?xt=urn:btih:3D40E15D77AA48FC4271BB9AAA521ADE2B74A6B5
 ```bash
 magnet:?xt=urn:btih:BB885A07118721365BFD76EB415A6AFCADDAE452
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

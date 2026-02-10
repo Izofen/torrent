@@ -28,6 +28,8 @@ Henry Mancini - Revenge Of The Pink Panther / Месть розовой пант
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ Ansia Orchestra - The Order, Vol. 1 (2020) [MP3|320 Kbps] <dubchestral, soundtra
 magnet:?xt=urn:btih:1BB59813B1A062D255FDA24589BF501E29603933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +85,8 @@ VA - T2 Trainspotting (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:D7F3C82D45BF7A5B60C6CA8EDFA7EE2983FD61A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -112,6 +118,8 @@ Helen Rhodes & Joseph Wade - A Day At The Spa (2004) [MP3|320 кб/с]<New age, 
 magnet:?xt=urn:btih:5F699463E0B7359D001CC5A4BF864F705BA3C735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +146,8 @@ Satyaa - Satyaa Sings Kundalini Yoga Mantras (2011) [MP3|320 Kbps] <New Age, Yog
 ```bash
 magnet:?xt=urn:btih:420224672BE80767F554C9E4B00C7CA8F86EB62A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +176,8 @@ Amy Shreve - Pray (2006) [FLAC|Lossless|tracks] <New Age, Instrumental>
 magnet:?xt=urn:btih:5659F494638BD5C5D650BE06B160AB66EFF94AED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +205,8 @@ VA - Spa of Roses Relaxation (Dream and Relax Lounge Tantra Massage Music) (2015
 ```bash
 magnet:?xt=urn:btih:0287051A87801421891A965E910D10042FABDE43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -227,6 +241,8 @@ Nino Rota - Grand Collection (2003) [MP3|256 кб/с]<Soundtracks, Instrumental>
 magnet:?xt=urn:btih:E5892ED77D42C3C8A9A8392F934C1027201F5578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +269,8 @@ Theodor Bastard - Волчья Ягода (2020) [MP3|320 Kbps] <Trip Hop, Folk 
 ```bash
 magnet:?xt=urn:btih:E4F35002D024C76493D311C3D8EA49409E3F8B8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +301,8 @@ Shinichi Kinoshita & Roby Lakatos - SO GU Kinoshita Meets Lakatos (2002) [APE|Lo
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +337,8 @@ VA - Anos 60: Sucessos Inesqueciveis De Uma Decada (5CD) (1998) [MP3|320 кб/с
 magnet:?xt=urn:btih:51F8E1515C0801556C9D82ABC06446DB5460CD98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +372,8 @@ VA - New Age Essence (2012) [MP3|320 кб/с]<New Age, Relax, Meditation>
 magnet:?xt=urn:btih:ED5E1DB293AA01E139673A752CEFBC4E3116925F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +401,8 @@ Transparence (1985)
 magnet:?xt=urn:btih:4213CF43C787330E77FF580739B31AD624098C6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +426,8 @@ Ray Hamilton Orchestra - Коллекция (1980-2006) [MP3|192-320 kbps]<Instr
 ```bash
 magnet:?xt=urn:btih:0189A95CFE60DE03BD7DB22FF5EB4285B1ECC798
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +459,8 @@ David Lynch - The Big Dream (2013) /Deluxe Edition/ [FLAC|Lossless]<Avant-Garde,
 magnet:?xt=urn:btih:2F8F00B36EC74257004E716FD1619F69820CD8A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +484,8 @@ V.A. - Romeo + Juliet OST (1996) [MP3|320 kbps]<Soundtrack>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +520,8 @@ V.A. - Romeo + Juliet OST (1996) [MP3|320 kbps]<Soundtrack>
 magnet:?xt=urn:btih:784668203B5C90096CBC7FBFA12D1A8F9CFDD871
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -520,6 +554,8 @@ Junkie XL - 300: Rise Of An Empire / 300 спартанцев: Расцвет и
 ```bash
 magnet:?xt=urn:btih:31813A55281286E2C1D07A3D62EA28D697EA0B7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +590,8 @@ Claude Ciari - Classic Guitar Best - 2 (2012) [MP3|320 кб/с]<Instrumental>
 magnet:?xt=urn:btih:1BABF7FC56FBA76F6AED4DFFA72D4146D11B46F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +624,8 @@ Ah Nee Mah (Diane & David Arkenstone) - Spirit of the Canyon (2001) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:64B080562B11B696C07A18817C004FA562E6ECD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +660,8 @@ CD1
 magnet:?xt=urn:btih:DB6EBBFECB50F0F345B3D3A464C95F35AC9575C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +695,8 @@ Johnny Cash - Out Among the Stars (2014) [MP3|192 кб/с]<Country>
 magnet:?xt=urn:btih:E2928DAF8F21B19AB81B014BE87B834B05A20E09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -685,6 +729,8 @@ Barzin - To Live Alone In That Long Summer (2014) [FLAC|Lossless]<Pop, Folk, Wor
 magnet:?xt=urn:btih:BD03521AD11D45F5538080F1EA4CF15638DC45A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -711,6 +757,8 @@ Floex (Tomas Dvorak) - Samorost 3 (2016) [FLAC|Lossless|WEB-DL] <Soundtrack, Dow
 ```bash
 magnet:?xt=urn:btih:8AE444844DFEBB9618F245EA089E2FA3545A4F73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -739,6 +787,8 @@ E.S. Posthumus - Unearthed (2001) [FLAC|Lossless|tracks] <New Age>
 magnet:?xt=urn:btih:F479CB6BCEFDF9387459139DDBC843AE63645C86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -765,6 +815,8 @@ VA - Romantic Collection - Nordic (2002) [FLAC|Lossless|image + .cue] <Instrumen
 ```bash
 magnet:?xt=urn:btih:8E7244863EBC84EB25F3BD28771BD9430DC24235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

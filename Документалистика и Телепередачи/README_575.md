@@ -1,3 +1,29 @@
+###  Публикация: 1204834   (784304) от 07.02.2018
+
+Вечер с Владимиром Соловьевым (06.02.2018) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_784304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тотальная русофобия приводит к паническим атакам и даже видениям. В США обнаружили, что в сговор с Россией вступал не Трамп, а Хиллари Клинтон. Тиллерсон увидел "щупальца" Москвы в Латинской Америке, Латвия испугалась "Искандеров" в Калининграде. МОК отказался выполнять решение спортивного арбитражного суда в Лозанне и предложил реформировать (   Читать дальше...   )Телекомпания: РоссияЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 02:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D5ADBCAD80F1FE62F4A017083D62476BF9B68B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204860   (784340) от 07.02.2018
 
 60-я церемония вручения премии «Грэмми» / The 60th Grammy Awards (2018) HDTV [H.264/1080i-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:0A0786CCED7E25853F439383DE89842DA8559B7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:0A0786CCED7E25853F439383DE89842DA8559B7C
 magnet:?xt=urn:btih:0E2FB23F1DFD220A2DC474765E58D5E747AF62B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:0E2FB23F1DFD220A2DC474765E58D5E747AF62B1
 ```bash
 magnet:?xt=urn:btih:D168A1D3731B260F03C71B1B1EF3F6FEDD640C28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +127,8 @@ magnet:?xt=urn:btih:D168A1D3731B260F03C71B1B1EF3F6FEDD640C28
 magnet:?xt=urn:btih:9B4318D2431FF235AC4243D3369CFDC6F51FE640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:9B4318D2431FF235AC4243D3369CFDC6F51FE640
 ```bash
 magnet:?xt=urn:btih:0283FA783D72DCC098725ACB2923D22AEDC716B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:0283FA783D72DCC098725ACB2923D22AEDC716B9
 magnet:?xt=urn:btih:2EF6C8797DAE97125AE4A330FF5CCC535E9E7BCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:2EF6C8797DAE97125AE4A330FF5CCC535E9E7BCB
 ```bash
 magnet:?xt=urn:btih:30C6B78B141D45364C18B1896FF855EA3F81A526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:30C6B78B141D45364C18B1896FF855EA3F81A526
 magnet:?xt=urn:btih:E4CEBC22D2449D6AF8B3E088EF1466E78C747ED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:E4CEBC22D2449D6AF8B3E088EF1466E78C747ED1
 magnet:?xt=urn:btih:DCAF9F584BABA28D05463C6ABFEB62B61A302E8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:DCAF9F584BABA28D05463C6ABFEB62B61A302E8F
 ```bash
 magnet:?xt=urn:btih:D077235C895FA890A0AE043A21F6FA8DD3FC9624
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:D077235C895FA890A0AE043A21F6FA8DD3FC9624
 magnet:?xt=urn:btih:74E55AE0E7AE5CAE2EA722366C7505FBB329780E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:74E55AE0E7AE5CAE2EA722366C7505FBB329780E
 ```bash
 magnet:?xt=urn:btih:905F016686FE6AD5FB4B1E3A74F5DFE2F2FAA3D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:905F016686FE6AD5FB4B1E3A74F5DFE2F2FAA3D1
 magnet:?xt=urn:btih:D656291DAFAD43F42DF8E11E4CD117F123DFC538
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:D656291DAFAD43F42DF8E11E4CD117F123DFC538
 ```bash
 magnet:?xt=urn:btih:D8A73C342C46A14ACC1F5F06528E00851B495B7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:D8A73C342C46A14ACC1F5F06528E00851B495B7B
 magnet:?xt=urn:btih:A7BB0DAE077AD6F369DD8D105E291E045E84E309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:A7BB0DAE077AD6F369DD8D105E291E045E84E309
 ```bash
 magnet:?xt=urn:btih:D9B80EBD69BBB19C9F90DA7F7B74F22DCD3A5318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:D9B80EBD69BBB19C9F90DA7F7B74F22DCD3A5318
 magnet:?xt=urn:btih:0B954C9D9BE18C0F9D683A935A13F1D0BEF2BCC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:0B954C9D9BE18C0F9D683A935A13F1D0BEF2BCC9
 ```bash
 magnet:?xt=urn:btih:5EF0B65C6088511ED4C970BED3B809B3A725E6B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:5EF0B65C6088511ED4C970BED3B809B3A725E6B7
 magnet:?xt=urn:btih:E5B88488B494F4F763C2EF7E731D7604F5C6D9AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:E5B88488B494F4F763C2EF7E731D7604F5C6D9AA
 ```bash
 magnet:?xt=urn:btih:65AEE8FBBAA7FC04861BA826CC96B7C011F357E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:65AEE8FBBAA7FC04861BA826CC96B7C011F357E2
 magnet:?xt=urn:btih:CE3008095A3EA6864A5EFEF2D02ECC42EDA1B959
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:CE3008095A3EA6864A5EFEF2D02ECC42EDA1B959
 ```bash
 magnet:?xt=urn:btih:0A03850D0DF1812B41651FF137624A423A806043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:0A03850D0DF1812B41651FF137624A423A806043
 magnet:?xt=urn:btih:8EE40AF7F1D4E699FC809D1A849853D22FB3EC05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:8EE40AF7F1D4E699FC809D1A849853D22FB3EC05
 ```bash
 magnet:?xt=urn:btih:6305A2C97CE721FAD84C43A2A2969DD15EAFB771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,29 +675,7 @@ magnet:?xt=urn:btih:6305A2C97CE721FAD84C43A2A2969DD15EAFB771
 magnet:?xt=urn:btih:F080D7F64BA16F54B3D7E6F116E2FFF5913DE66C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277356   (785416) от 20.01.2019
-
-Цзиндэчжэньский фарфор / Jingdezhen Porcelain (2017) HDTVRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_785416.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цзиндэчжэнь в провинции Цзянси на севере Китая можно без преувеличения назвать керамической столицей страны. История местного производства фарфора, насчитывает не одну тысячу лет. Гуляя по улицам Цзиндэчжэня, нельзя не заметить дома с отделкой из фаянса, выложенные кусочками керамической плитки переулки и удивительно красивые керамические уличные фонари. Изготавливать (   Читать дальше...   )Производство: Китай, CGTNЖанр: Документальный, история, путешествияРежиссер: Ван БиньПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3A718BDECA1171F324B48C38D93537C550DF135
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

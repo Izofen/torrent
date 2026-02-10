@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:527E81286604C0E56A9E4C847B5A1E76728B7A4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ KiCad – уникальный в своем роде программный п�
 ```bash
 magnet:?xt=urn:btih:8C0CEEF0D2423EED96BFF275C534F699968E543E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:8C0CEEF0D2423EED96BFF275C534F699968E543E
 magnet:?xt=urn:btih:888DEA28F5212C603DE89B8103C0B02F5F81A31D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:888DEA28F5212C603DE89B8103C0B02F5F81A31D
 ```bash
 magnet:?xt=urn:btih:08EAA24D99867611F4C447839BC1D15B6CE14ABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Dark Deity (2021) [Multi] (1.58/dlc) License GOG [Complete Edition]
 magnet:?xt=urn:btih:1CA51EBA90A6561DDD8F5E3DC7071EA9AF285AC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:1CA51EBA90A6561DDD8F5E3DC7071EA9AF285AC9
 ```bash
 magnet:?xt=urn:btih:518456E0E80171324EFE5443452CB8D51FD83049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Microsoft .NET 6.0.33 Runtime [Ru/En]
 magnet:?xt=urn:btih:21C798D5F5561C19390CA20F2A221F29CC99F98F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:21C798D5F5561C19390CA20F2A221F29CC99F98F
 ```bash
 magnet:?xt=urn:btih:89287F61A875384C8444D2E79555CBB1F9D47D55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:89287F61A875384C8444D2E79555CBB1F9D47D55
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:89287F61A875384C8444D2E79555CBB1F9D47D55
 ```bash
 magnet:?xt=urn:btih:754881910E3895DB3A642F2B980A9C55BE0F75E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:754881910E3895DB3A642F2B980A9C55BE0F75E7
 magnet:?xt=urn:btih:4CDF01D81DF13F88B72DB5B5A8DA2595BFDAE778
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Xenonauts: Arms Race / Ксенонавты: гонка вооружений (20
 ```bash
 magnet:?xt=urn:btih:3658423201E19C1247865E56B521A8B87D426E2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:3658423201E19C1247865E56B521A8B87D426E2A
 magnet:?xt=urn:btih:255CA6D35675F53030DCC47DF7918D578D9C48F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:255CA6D35675F53030DCC47DF7918D578D9C48F7
 ```bash
 magnet:?xt=urn:btih:59976ACAAC864201DA400AA9F75264A6B38A2BE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:59976ACAAC864201DA400AA9F75264A6B38A2BE1
 magnet:?xt=urn:btih:A25074706D915E039D512640F5A68CBE60C77CF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:A25074706D915E039D512640F5A68CBE60C77CF8
 ```bash
 magnet:?xt=urn:btih:17E2E12F8451B47D361B63ED64D290D3913DD922
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Volgarr the Viking 2 - помните брутальный двухмерный 
 magnet:?xt=urn:btih:A513B5F7281FFDC05C305BC867F1C21408481D8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Eassos DiskGenius - программа для управления раздел�
 ```bash
 magnet:?xt=urn:btih:808DA2575DBA01C7F92F176982BAE02BB6AF4501
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:808DA2575DBA01C7F92F176982BAE02BB6AF4501
 magnet:?xt=urn:btih:AC9641C5876C9896998D009D605631DB267D38A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:AC9641C5876C9896998D009D605631DB267D38A7
 ```bash
 magnet:?xt=urn:btih:CA1CA0D889A9B913943CCC8BC3B2A4AB95B190DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Unstoppable: Breakout (2024) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:A1A0FE9015C7D60BC3FCCEF8FBCEA118DB4C8DD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ MediaHuman YouTube to MP3 Converter 3.9.9.96 (0609) RePack (& Portable) by elchu
 magnet:?xt=urn:btih:8C92B6CD85901761012ED7EB76225B9916C41EC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Wipe Pro - программное обеспечение удаляет врем
 ```bash
 magnet:?xt=urn:btih:46BE518DC1659FFB169C192B2CFECE7F9AF91EA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Microsoft .NET 8.0.8 Runtime [Ru/En]
 magnet:?xt=urn:btih:38D6189D75137FF593FF40B37912B007EE67FDD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Why don't they laugh? (2024) [Ru/Multi] (1.08) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:AB6A9CA776A822BF9401CC2266461D23DE4C34A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:AB6A9CA776A822BF9401CC2266461D23DE4C34A7
 ```bash
 magnet:?xt=urn:btih:6FD576E043E742286C776A82A160CDBBC0CF409B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

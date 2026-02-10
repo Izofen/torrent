@@ -1,3 +1,32 @@
+###  Публикация: 933156   (507166) от 31.08.2015
+
+VA - New Italo Disco (2015) [MP3|320 кб/с]<Synth-pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_507166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Brando - Love Is A Fantasy (Radio Remix)
+02. Boris Zhivago - Love In Russia (Radio Remix)
+03. Birizdo I Am - Maybe Baby (Radio Edit)
+04. Casanova - Angel Eyes (Short Version)(   Читать дальше...   )Жанр: Synth-pop, DiscoПродолжительность: 04:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C72B41D258492CDE415580840B399EE16A194A33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 539137   (507578) от 25.08.2012
 
 VA - Горячие Новинки Love Radio: Праздничный Карнавал 50+50 (2012) [MP3|256 kbps]<Pop>
@@ -27,6 +56,8 @@ VA - Горячие Новинки Love Radio: Праздничный Карна
 ```bash
 magnet:?xt=urn:btih:71E65B84313418EB5C9198615CCEB4E90A1525B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -61,6 +92,8 @@ VA - Абсолютный Хит. Зарубежный (2012) [MP3|256 кб/с]<
 magnet:?xt=urn:btih:8D1085F1CAF353110D7615D08F908E6171095356
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +126,8 @@ VA - Latest And Greatest Great British Artists (2012) 3CD BoxSet[MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:AA616CB96A2D155877ED4C534019DDFA8356E62B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +162,8 @@ VA - Just Great Songs (2012) 3CD BoxSet[MP3|320 кб/с]<Pop, Rock>
 magnet:?xt=urn:btih:4F205B5EA9AB438438FB416A15F1F6B6024A6091
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +190,8 @@ Disc 1
 ```bash
 magnet:?xt=urn:btih:711CA571D7764F48CECEA6E175F3CC1B0EF9D823
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +220,8 @@ VA - Автоледи: Популярный автосборник (2015) [MP3|2
 magnet:?xt=urn:btih:BD437149D62272B22E35DEBACDA5905A21DB574C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +248,8 @@ VA - German Top 100 Single Charts 08.07.2022 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:78440F1C454C7118C76EDFDAE6AA7F5543FD4B1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +278,8 @@ VA - German Top 100 Single Charts 26.07.2019 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:7ACC659BEF60012FCF6F657C2480E6CE6577E46B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +306,8 @@ VA - Горячий музон. Тусим все вместе (2015) [MP3|256-3
 ```bash
 magnet:?xt=urn:btih:DBA4D8758F17E627B8FAC595DEF2DD02F1C2D248
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +336,8 @@ VA - Попсовая соточка MTV. Выпуск 2 (2015) [MP3|256-320 к�
 magnet:?xt=urn:btih:816628E56F234CEE4F494B4D0799C630DCBB1DB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +365,8 @@ VA - Summer Ahead: Party Pop Music 90s (2019) [MP3|213-273 Kbps] <Pop>
 magnet:?xt=urn:btih:2CDAC35A8F377F45EE6E9E8164B0B2EDDA09DC1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +393,8 @@ VA - Synthpop Multimix (2019) [MP3|320 Kbps] <Pop, Synthpop>
 ```bash
 magnet:?xt=urn:btih:7C8B41A03E2A3BC9102925800863282C6F60917C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +425,8 @@ VA - The Official UK Top 40 Singles Chart (12-08-2012) [MP3|320 кб/с]<Pop, Ro
 magnet:?xt=urn:btih:F25EDC5B4B316DCFA519226617274CAB279D8272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +453,8 @@ VA - Ты только мой. Супер сборник популярной м
 ```bash
 magnet:?xt=urn:btih:C78BFCA77C9316D646652CA92220A3FDE76841CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +483,8 @@ VA - Зачетный хит Русский (2015) [MP3|160-320 кб/с]<Pop>
 magnet:?xt=urn:btih:358DC28AF2257C4F773990A1FDD9F16BFE61B17B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +511,8 @@ VA - Летние super новинки. Часть 6. 50/50 (2015) [MP3|256 кб
 ```bash
 magnet:?xt=urn:btih:826180F2CAD4E16950BF450A6352B37FEB76A62B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +541,8 @@ VA - Летние super новинки. Часть 4. 50/50 (2015) [MP3|256 кб
 magnet:?xt=urn:btih:E9010544002D4BA9C198B797E776D08FC8F1ABA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +569,8 @@ VA - Летние super новинки. Часть 5. 50/50 (2015) [MP3|256 кб
 ```bash
 magnet:?xt=urn:btih:6AD18617DAE6BF47D8FA331D25D6E54E06A2C04E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +599,8 @@ Tanita Tikaram - Compilation (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:2EA78F17E3DA49D6F0A17D6FCCD46E004AEA13DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +627,8 @@ VA - Самые горячие летние хиты (2015) [MP3|256 кб/с]<Po
 ```bash
 magnet:?xt=urn:btih:1AF5BD231D8FFCC0E191F313E4FC3F7D5765D781
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +657,8 @@ VA - Самые сочные русские хиты (2015) [MP3|256-320 кб/с
 magnet:?xt=urn:btih:F14ED08FF0B09349965C45BE35368183E18AD6A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +685,8 @@ VA - German Top 100 Single Charts 19.07.2019 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:30D1785181F5D5727307D48EFCA3CA27C4856AC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +715,8 @@ Italo Boot Mix vol.1 - 1983 - 00:18:49:
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +743,8 @@ VA - Попсовая соточка MTV 50/50 (2015) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:5E2DD2511F004CFF7126CADBAA2501442BF97C0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -696,32 +773,7 @@ VA - Top 100 Зайцев.Нет Июль 2018 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:7B5BB090E9857846BC5DF8B71F97CCF95F67DD34
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314126   (521105) от 12.07.2019
-
-VA - Ukrainian Hits - 33 Tracks (Volume 14) (RU) (2019) [MP3|320 Kbps] <Pop, Pop Rock ...>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_521105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mozgi - Chooyka (3:04)
-02. Таюне - Зову Тебя (3:10)
-03. Лёля - Ай-яй-яй (3:37)
-04. The Коля - Идивжнапмж (2:44)(   Читать дальше...   )Жанр: Pop, Pop Rock ...Продолжительность: 01:49:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1BC8839A25D09854B3F1ED23149444DBD0F9A79
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

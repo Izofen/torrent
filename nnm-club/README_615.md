@@ -19,6 +19,8 @@ Megaquarium (2018) [Ru/Multi] (4.2.5g/dlc) License GOG
 magnet:?xt=urn:btih:3496A9ECEE838CA4956641F45A103D74C953EAB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:3496A9ECEE838CA4956641F45A103D74C953EAB0
 magnet:?xt=urn:btih:B663D91B51B1D9BBEB60A17897D470D56E3DEB99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:B663D91B51B1D9BBEB60A17897D470D56E3DEB99
 ```bash
 magnet:?xt=urn:btih:3DC22ECBB13C5246F02CD25388290D1E0F70D3C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Garbage (в переводе с англ. - «мусор») — британск
 magnet:?xt=urn:btih:B85942F5B0A8A29AF0AA2605138253A624B2064D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:B85942F5B0A8A29AF0AA2605138253A624B2064D
 ```bash
 magnet:?xt=urn:btih:D5E7DDB9E66D7AFEA9E80B8D18EDCBD83BB575DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Gunsmith Simulator, как понятно из названия, являетс�
 magnet:?xt=urn:btih:DA88929708977E48913B9502E788AA543739E87A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:DA88929708977E48913B9502E788AA543739E87A
 ```bash
 magnet:?xt=urn:btih:608F5663B2A1C685BF5D5A72055EE9596898A9F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:608F5663B2A1C685BF5D5A72055EE9596898A9F9
 magnet:?xt=urn:btih:E18E4CA54B39253A4F75FAC2FC5E1D3D00152A80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:E18E4CA54B39253A4F75FAC2FC5E1D3D00152A80
 ```bash
 magnet:?xt=urn:btih:8144A42EF53E1A431E8EB47E0D0F51EC561A3151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:8144A42EF53E1A431E8EB47E0D0F51EC561A3151
 magnet:?xt=urn:btih:053E62667E9F0D607BD8AE153657EFA55303C5D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:053E62667E9F0D607BD8AE153657EFA55303C5D5
 ```bash
 magnet:?xt=urn:btih:1626C84A81F548B42114496F2CF6855389A17757
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ World of Goo 2 (2024) [Ru/Multi] (13205W) Repack Let'sРlay
 magnet:?xt=urn:btih:91C70A133CDCAB676E04985991647B22A76B0E7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Defender Remover Portable 12.8.3 [En]
 ```bash
 magnet:?xt=urn:btih:DD11C2ED2D94BE57CE23A92F766EF82F8EA10D5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Artifact Seeker - это 3D-игра в жанре Roguelike Survivor. Игра 
 magnet:?xt=urn:btih:E11FD1B2E8C82187CE38CC82D21E2DA04798CE2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:E11FD1B2E8C82187CE38CC82D21E2DA04798CE2D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:E11FD1B2E8C82187CE38CC82D21E2DA04798CE2D
 magnet:?xt=urn:btih:85522BD1E5580CDD2EB06402DAE7B2860DF42C2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:85522BD1E5580CDD2EB06402DAE7B2860DF42C2A
 ```bash
 magnet:?xt=urn:btih:580A84923415E73E758AE0B824F635A00B38239B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:580A84923415E73E758AE0B824F635A00B38239B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:580A84923415E73E758AE0B824F635A00B38239B
 ```bash
 magnet:?xt=urn:btih:5421AE2B3C5C5DF71E7C93E51C4CFFC8C81A470A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:5421AE2B3C5C5DF71E7C93E51C4CFFC8C81A470A
 magnet:?xt=urn:btih:EFBE92A1196AA9C90334C757DEF3567CA6897BC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:EFBE92A1196AA9C90334C757DEF3567CA6897BC2
 magnet:?xt=urn:btih:091F15C09A7BD98C29DF2EFC5184F59A2E0D2E8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:091F15C09A7BD98C29DF2EFC5184F59A2E0D2E8C
 ```bash
 magnet:?xt=urn:btih:E2B4195159462717F530B968F9CCEB33B70866A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ f5game, Ольга Грищенко | Гений вопросов (2025) WEB-DL 
 magnet:?xt=urn:btih:DAD4FAC1B238E6BBA21637D05DFB5B90437D9084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:DAD4FAC1B238E6BBA21637D05DFB5B90437D9084
 ```bash
 magnet:?xt=urn:btih:56671356A5D94806CF6E954D5372D1415D9D6A23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:56671356A5D94806CF6E954D5372D1415D9D6A23
 magnet:?xt=urn:btih:B612C645DA1B4EF6719CA562F177258BB1C42507
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v15.14.400 Mo
 ```bash
 magnet:?xt=urn:btih:ACE8794F9D4AB032601E3F7F25D8D76B578C189F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

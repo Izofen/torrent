@@ -19,6 +19,8 @@ Baldr Sky - визуальная новелла в аниме-стилистик
 magnet:?xt=urn:btih:70CDF079E4A27242CA3E8BFF5BF8DC4EA0DDFD82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:70CDF079E4A27242CA3E8BFF5BF8DC4EA0DDFD82
 ```bash
 magnet:?xt=urn:btih:37C037D8B8A72D072784EF5C2605DC00F17AAC58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:37C037D8B8A72D072784EF5C2605DC00F17AAC58
 magnet:?xt=urn:btih:74154CC5F6499244624AC339BF09FF37E2E500E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Blackmagic Design Fusion Studio 18.6.4 [En]
 ```bash
 magnet:?xt=urn:btih:35CC5D1818F45DD83B5BEB953FAF4E49203FC378
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ S.T.A.L.K.E.R.: Сердце ангела (2021) WEBRip [H.264]
 magnet:?xt=urn:btih:07DF2FA800F8D7EAD68D01B39D5E37F5C485B0DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ S.T.A.L.K.E.R.: Сердце ангела (2021) WEBRip [H.264/1080p] [PR]
 ```bash
 magnet:?xt=urn:btih:9573757CB502EAD2F1BFFFC7C918EFD129B4F256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:9573757CB502EAD2F1BFFFC7C918EFD129B4F256
 magnet:?xt=urn:btih:07B11C5C1DD40AF4FB447BA2FE8C4FAB4920E246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:07B11C5C1DD40AF4FB447BA2FE8C4FAB4920E246
 magnet:?xt=urn:btih:FA3AD7A1EB02F666CD70291AF9D6B3986AE144BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:FA3AD7A1EB02F666CD70291AF9D6B3986AE144BF
 ```bash
 magnet:?xt=urn:btih:255374D918E8173C0E5BBC70B07DBC7381DBA91F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:255374D918E8173C0E5BBC70B07DBC7381DBA91F
 magnet:?xt=urn:btih:312708CB3FEFA8C7B84A81F1261895BD457ADE1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Total Bundle - это набор всех плагинов FabFilter. С эти�
 ```bash
 magnet:?xt=urn:btih:2D20574145B56528522EEE8DA417AB81E80EF147
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Udemy, Jeremy Hazel, Lindsay Marsh | Learn the Entire Affinity Suite: Photo, Des
 magnet:?xt=urn:btih:B912E3E58CD1E464A336E2B122EFB5C7A54C89B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:B912E3E58CD1E464A336E2B122EFB5C7A54C89B9
 ```bash
 magnet:?xt=urn:btih:9AA8DA3AD54FF858084BF6F294B2013D4CE79BF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:9AA8DA3AD54FF858084BF6F294B2013D4CE79BF7
 magnet:?xt=urn:btih:41B4387F820A7DF7CB7748CC7DBA2A224612C382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Coloring / Раскраска v2.0.94 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:43B5179FB8B4C93003F79B4E93A1074CB8943F93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:43B5179FB8B4C93003F79B4E93A1074CB8943F93
 magnet:?xt=urn:btih:6EE9C49DB298F16932A99EA54BABBE8CEEB2328B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:6EE9C49DB298F16932A99EA54BABBE8CEEB2328B
 ```bash
 magnet:?xt=urn:btih:74562B3F4AC0434CB9366893B2EF55827EFAC61B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:74562B3F4AC0434CB9366893B2EF55827EFAC61B
 magnet:?xt=urn:btih:039A1B865E3BD3EFD8C7225E5A7BA16FAB7457A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Media Player Classic Home Cinema – удобный во всех планах �
 ```bash
 magnet:?xt=urn:btih:05D56BEC01439BCA4D6657AED10D2E7016A1A336
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ IconTo Pro 7.3 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:6749B6063659752548E86B572301A71F45D8EACB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:6749B6063659752548E86B572301A71F45D8EACB
 ```bash
 magnet:?xt=urn:btih:C1557E25092145E7C95BE8316FE69A3CEBC79844
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:C1557E25092145E7C95BE8316FE69A3CEBC79844
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ Process Lasso позволяет вручную или автоматическ�
 ```bash
 magnet:?xt=urn:btih:A55DFF98F88415E4C1060F4944AB5319DE5E1589
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:A55DFF98F88415E4C1060F4944AB5319DE5E1589
 magnet:?xt=urn:btih:BC473C18670243418E5ADF27FF946B80EDA7A04E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ VPstudio поддерживает полное автоматическое пр
 magnet:?xt=urn:btih:49BD6EDA0E2D02F22A86F628AFFBFE1B5F0E992B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:49BD6EDA0E2D02F22A86F628AFFBFE1B5F0E992B
 ```bash
 magnet:?xt=urn:btih:2684C3DF18BD70A603C7687A3B610CE3AB8EDC34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

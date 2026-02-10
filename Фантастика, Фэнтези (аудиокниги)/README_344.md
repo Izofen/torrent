@@ -1,3 +1,29 @@
+###  Публикация: 1060224   (452948) от 08.10.2016
+
+Артур Кларк и др. | Сборник рассказов "ПослеSLовие" 2016-2 (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_452948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы, как истинные фанаты фантастики, организовали группу, цель которой создание аудиокниг с характерными атмосферным музыкальным сопровождением. В 2009 году проект начался как эксперимент, и, неожиданно для его создателей, обрел успех среди слушателей. Сосредоточившись на продвижении молодых и талантливых авторов в Российскую литературную и аудио среду, мы помогли (   Читать дальше...   )Жанр: Постапокалипсис, фантастика, зомби, инопланетянеПродолжительность: 05:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D640B5FBD270441EC7F88BB498B28000D97ACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408640   (453010) от 13.09.2020
 
 Роман Прокофьев | Заклинатель (2020) [MP3]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:B098F6749117D50F5CE51D97F9DB6647F368C351
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:B098F6749117D50F5CE51D97F9DB6647F368C351
 magnet:?xt=urn:btih:25D13C1421B08A692AD341083B5551DC55F4D5F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:25D13C1421B08A692AD341083B5551DC55F4D5F1
 ```bash
 magnet:?xt=urn:btih:77A0542A371DA54EFDA9ECE6DA409CCFFA72E2E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:77A0542A371DA54EFDA9ECE6DA409CCFFA72E2E9
 magnet:?xt=urn:btih:6AAA1A815CFC73164B54CB9519FF32B6062F95C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:6AAA1A815CFC73164B54CB9519FF32B6062F95C9
 ```bash
 magnet:?xt=urn:btih:83A198CC324C2BAC18B9F9D5647A4D225E0E3FF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:83A198CC324C2BAC18B9F9D5647A4D225E0E3FF9
 magnet:?xt=urn:btih:9035B81D6CD845FDFF4C619BEDDE8F19F65E87B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:9035B81D6CD845FDFF4C619BEDDE8F19F65E87B1
 ```bash
 magnet:?xt=urn:btih:F83ECBAF8B6FD57FF1ABBE3E8FCE55BB5459B344
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:F83ECBAF8B6FD57FF1ABBE3E8FCE55BB5459B344
 magnet:?xt=urn:btih:99E6D0B52F25CB1649BE679C78F73AF23C787FC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:99E6D0B52F25CB1649BE679C78F73AF23C787FC5
 ```bash
 magnet:?xt=urn:btih:EE7B7F50F6EF276F543CBA53DF523633C0B10479
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:EE7B7F50F6EF276F543CBA53DF523633C0B10479
 magnet:?xt=urn:btih:38B1C1B0A7238C61B39CB89F92D8283D5466C683
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:38B1C1B0A7238C61B39CB89F92D8283D5466C683
 ```bash
 magnet:?xt=urn:btih:B0A31BA4F62119119092D849F43BE7E7D6693379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:B0A31BA4F62119119092D849F43BE7E7D6693379
 magnet:?xt=urn:btih:BA44470644A35FB44F8C739C13989740FB6A05CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:BA44470644A35FB44F8C739C13989740FB6A05CE
 magnet:?xt=urn:btih:7E4B9087C0E44BD43463F90C47CB7DEA8F5CB377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:7E4B9087C0E44BD43463F90C47CB7DEA8F5CB377
 ```bash
 magnet:?xt=urn:btih:48E51FB9FA6EE47E4DD923D7ED779A77213787C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:48E51FB9FA6EE47E4DD923D7ED779A77213787C4
 magnet:?xt=urn:btih:C60A67E357C13BB44A9D06334A0E3359F3A5B1B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:C60A67E357C13BB44A9D06334A0E3359F3A5B1B1
 ```bash
 magnet:?xt=urn:btih:F1437F6141211B45CDB1AF0417ADED858CB96047
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:F1437F6141211B45CDB1AF0417ADED858CB96047
 magnet:?xt=urn:btih:DFDC4DC895325B16C9F213431E3CB1C9F7FEEA2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:DFDC4DC895325B16C9F213431E3CB1C9F7FEEA2C
 ```bash
 magnet:?xt=urn:btih:A3F3705FF1B117EEA5474884F94B9537767A3DBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:A3F3705FF1B117EEA5474884F94B9537767A3DBC
 magnet:?xt=urn:btih:098581FABC7D72BBD209E6AD464CEE13CFCA5087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:098581FABC7D72BBD209E6AD464CEE13CFCA5087
 ```bash
 magnet:?xt=urn:btih:4AA8470482225BFDD073AA6AC0ECEBAC9CFB5E05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:4AA8470482225BFDD073AA6AC0ECEBAC9CFB5E05
 magnet:?xt=urn:btih:5E8452C7BEB947AC027B79AFBB44DFDF94905A7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:5E8452C7BEB947AC027B79AFBB44DFDF94905A7C
 ```bash
 magnet:?xt=urn:btih:CCDD6D8ACE7844568147BF4920EAD959F2127629
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:CCDD6D8ACE7844568147BF4920EAD959F2127629
 magnet:?xt=urn:btih:B162128C8DA54B74FDFC98FE48E12E2C7672105D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:B162128C8DA54B74FDFC98FE48E12E2C7672105D
 ```bash
 magnet:?xt=urn:btih:E225F74704D9E233B733F7B9DC739F667BA1D504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:E225F74704D9E233B733F7B9DC739F667BA1D504
 magnet:?xt=urn:btih:E6773BBB68EBA108BD293F0B085108DB7B1C1191
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 241403   (455277) от 12.09.2020
-
-Александр Беляев | Остров погибших кораблей [2006] [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_455277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если ваш корабль терпит бедствие в Саргассовом море, не отчаивайтесь! Возможно, вас подхватит неизвестное течение, и вы окажетесь на самом удивительном острове, куда только ступала нога путешественника - на Острове Погибших Кораблей. Однако не рассчитывайте на участь робинзона: ведь против ожиданий, остров населен людьми и превращен в подобие настоящего государства. (   Читать дальше...   )Жанр: Фантастика
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D6D00C60FE3B8FFA741458C460F7D02A7DA63E5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

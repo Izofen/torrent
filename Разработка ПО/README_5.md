@@ -19,6 +19,8 @@ Tangible Software Source Code Converters portable by _Sef 14.02.2017 [En]
 magnet:?xt=urn:btih:DBE0B35C3D1BBC70E90C1AE55D7FC26F07052E15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ IAR Embedded Workbench for MSP430 6.40.1 [En]
 ```bash
 magnet:?xt=urn:btih:57257B12AB955B2CF5DE8C6B850C03F3430606CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ CodeLobster PHP Edition - очень мощный и многофункцион�
 magnet:?xt=urn:btih:5558A090BA1D26415A3A29AD080AB82FD5EAAF16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ VMProtect - защита программного обеспечения нов�
 magnet:?xt=urn:btih:155B366059C0065769AEA90FE8D355DADEFFD877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Simply Fortran 3.2.2976 [En]
 ```bash
 magnet:?xt=urn:btih:E8C22555920E820252B71BA03B30BFDBD9610619
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Absoft Pro Fortran на 64-битных платформах поддержив�
 magnet:?xt=urn:btih:B4AF49AF4F87D75A63AA383D600EE359E32233CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ RegexMagic делает процесс создания регулярных в�
 ```bash
 magnet:?xt=urn:btih:71530166AB5D64B7BB1C7F471E593C181E7DF1D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ DelphiPI - установщик dpk файлов.Язык интерфейса: 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ ReSharper – это расширение для Microsoft Visual Studio, пом
 magnet:?xt=urn:btih:B06872F8920754E72DEF6FB0A8F9CE133777C8F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ Construct 2 Business Edition r239 Stable [En]
 ```bash
 magnet:?xt=urn:btih:799742DCE4BFAB39107C4D6E5EA848199D787FBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ RegexBuddy - прекрасный помощник в работе с регул
 magnet:?xt=urn:btih:137104D05721687887D1C8B0AFAA39FD580ABED8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Java SE Development Kit - программное обеспечение необ
 ```bash
 magnet:?xt=urn:btih:9D3755F105525A37BD7F28516953BC5E1A4A460F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Unity — межплатформенная среда разработки ко�
 magnet:?xt=urn:btih:7B223A3B73D4F483F9B6D289C0C36E502D6B2760
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ Unity — межплатформенная среда разработки ко�
 ```bash
 magnet:?xt=urn:btih:DD41F2A88F77BCB01DC70724BE5AC188226D168E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ Unity — межплатформенная среда разработки ко�
 magnet:?xt=urn:btih:651C4256660E40A38C92EE1A8D8A18432EEA713E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ PGI Visual Fortran - компилятор Fortran и инструменталь�
 ```bash
 magnet:?xt=urn:btih:AF60574F76B185B9FC7C5E076EEAFEFDCDB14400
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ Microsoft Windows Desktop Runtime 5.0.3 [En]
 magnet:?xt=urn:btih:7575388062E56AB00C31C15F2A61B1B3EF8F4951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ Visual Studio Enterprise 2019 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:53499241617CC4CD90601B869CDD032907815A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ Java SE Development Kit - программное обеспечение необ
 magnet:?xt=urn:btih:EDF353C6611B8F66A98697F1808B1530F0F3F52F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ Visual Studio 2026 - это один из самых амбициозных ша
 ```bash
 magnet:?xt=urn:btih:CED64C7BC246964B9A9B2DD1330436EE39564C37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ Visual Studio — это мощное средство разработчика,
 magnet:?xt=urn:btih:D62A37D22ACC0EE3051E5C0CEDA66918945AAA94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ Visual Studio 2026 - это один из самых амбициозных ша
 ```bash
 magnet:?xt=urn:btih:11FD4EA933CC6ACEE7D45DC82AFBFEEE889B7CC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ Visual Studio 2026 - это один из самых амбициозных ша
 magnet:?xt=urn:btih:16F059C1FB7E15C68709251B3D2A282D8A5B3367
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ Visual Studio — это мощное средство разработчика,
 ```bash
 magnet:?xt=urn:btih:8F7B399D488E18B9F45F3A7856A8D7A99DBE324B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ Visual Studio 2026 - это один из самых амбициозных ша
 magnet:?xt=urn:btih:F37EFF0B68DF9A314944CE54D11B3175F13E5C6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ JetBrains DataGrip - это инновационное программное о
 ```bash
 magnet:?xt=urn:btih:DCF4C170F370C266601BCDD02B8184DFA7157BAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -28,6 +28,8 @@ VA - Ministry of Sound: DJ Mag Top 100 Djs (2012) [MP3|256 кб/с]<House, Elect
 magnet:?xt=urn:btih:1C0CAB40602DB34DBD5E46835C5A18B82CBCF077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Tricky (Adrian Thaws) - 11 Albums (2008-2022) [FLAC|Lossless|WEB-DL|tracks] <Tri
 ```bash
 magnet:?xt=urn:btih:246235D3F182BC6ED085798B4AD048AF32CE24CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ VA - Markus Schulz - We Are the Light (2018)(2CD) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:E445A3396293EB411FAF98A68B97AAFA3DECCBB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ Neurotech - 2 Albums (2021-2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Elect
 ```bash
 magnet:?xt=urn:btih:2130AA9601004C7210B01E0C0765C2E65A04C773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ VA - Deep & Uplifting: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:E71DA9FB0CF5313426A1AEFB79300CDAEB47ADAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +173,8 @@ DEADLIFE - The Order of Chaos (2018) NRW Records [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:5B884BBF243CF9FFC0830990B26E253038FF2849
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +199,8 @@ Abbsynth - Space Wanderer (2010) [OGG Vorbis|484 Kbps] <Electronic, Synth-pop>
 ```bash
 magnet:?xt=urn:btih:738CAC314F1C1E971A2C53618D25B2467BA4FFBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +229,8 @@ Psyclon Nine - Less To Heaven (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial M
 magnet:?xt=urn:btih:C30F312804D9F989773573811F04F0B652E8622D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +257,8 @@ VA - Heart of Goa v.4 (Compiled & Mixed by Ovnimoon) (2016) [FLAC|Lossless|WEB-D
 ```bash
 magnet:?xt=urn:btih:7971E305175A2DA2CE0D0AC31892724C77B050BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +287,8 @@ VA - Toolroom Amsterdam 2018 (2018) [MP3|320 Kbps] <House, Tech House, Deep Hous
 magnet:?xt=urn:btih:A75271E67B8386B1E018C1C572714B963CE7E8B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +315,8 @@ VA - Progressive House Autumn Essentials (2018) [MP3|320 Kbps] <Progressive Hous
 ```bash
 magnet:?xt=urn:btih:4F0AF7FF4D952C87B75C25F4905211F0EB9339DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +345,8 @@ VA - Dubstepin' (2016) [MP3|320 Kbps] <Dirty Dubstep, Trap, Grime>
 magnet:?xt=urn:btih:C7FAEAF73EE0C886E7BEC9DA555C62297CD84C0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +373,8 @@ Armin van Buuren - Club Embrace (2016) [FLAC|Lossless|WEB-DL|tracks|image] <Prog
 ```bash
 magnet:?xt=urn:btih:9E5E558A7B65D1C3494270B3DB995BFE3D8B3446
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +403,8 @@ VA - Uplifting Only - Orchestral Trance - Year Mix 2015 (Mixed by Ori Uplift) (2
 magnet:?xt=urn:btih:4429AFDB3D0A31221341E34BCF949B753A44F9C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +431,8 @@ VA - Sensual Beach Lounge Vol. 2 (2016) [MP3|320 Kbps] <Chillwave, Downtempo, Lo
 ```bash
 magnet:?xt=urn:btih:F7ADAE8FB16EB9B9947BC4E6D827B6D0F700E574
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +461,8 @@ VA - Deep House Republic (2016) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:7AAC23C7BD3F1A6A55C33DA2E4B5C6BA6E9719BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +489,8 @@ VA - Deephouse After Dusk (2016) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:D2DF165FA0745CF7A911F488CD37553FE46AB443
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +519,8 @@ VA - Amsterdam Dance Essentials 2016: Deep House (2016) [MP3|320 Kbps] <Deep Hou
 magnet:?xt=urn:btih:F72B4101B4846D35E0735CF2BEB2E4E6A5997DC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +547,8 @@ VA - Sense Of Deephouse (2016) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:C6ED13B19DC4BCD755695D9153D122EF5F1BE568
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +577,8 @@ VA - Additional Deephouse (2016) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:25D3DAF2E48E121FC596477D62433EA7CC629E9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +605,8 @@ VA - Analog Deep 2016 (2016) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:856C5B7660B155AEE0EA6030412635C9B07DFA9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +635,8 @@ VA - Good Morning IBIZA Vol.2 (2016) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:24BB926BD897ADC72150EC00A2CBD8598F215387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +663,8 @@ VA - Nothing But... Deep House Vol.14 (2016) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:DD0AB547D481BC6D198E692855922C208A83589D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +693,8 @@ VA - Top Deep House Anthems (2016) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:4973565522D65FFACB11DA39146DCCB5CEFA8DD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -674,6 +722,8 @@ Terminator-Rex - Mantidae (2020) [FLAC 2.0|44/24|tracks|WEB-DL] <Synthwave, New 
 magnet:?xt=urn:btih:56EB6786543F9F4D1448A5DB3F393662D0988560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,6 +750,8 @@ VA - Trance Pioneers  001 - 009 (2010 - 2015) [MP3|320 кб/с]<Trance , Uplifti
 ```bash
 magnet:?xt=urn:btih:54A639F5FF98C8DFD2857DDCE88510395812ECE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

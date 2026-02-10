@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1A1A0DE578DE86B2D9597A5F5669D45F12BD2F8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ RedNotebook - это простое GTK+ / Gnome приложение напис
 ```bash
 magnet:?xt=urn:btih:0B0185CBC4FF38C237CD7EA88B54FA6174C8AE60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Plus Messenger - неофициальное приложение для обме
 magnet:?xt=urn:btih:C0875742714BEB608280A1F1ECBB6DA43C3BE74F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Kid3 — бесплатный инструмент, позволяющий ре�
 ```bash
 magnet:?xt=urn:btih:79C2F380F0291FD56BA8AE0D96459AA27A4334B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:79C2F380F0291FD56BA8AE0D96459AA27A4334B4
 magnet:?xt=urn:btih:A2666FDE36D628AB6160686CC3529467AEF57CDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Princess Principal: Crown Handler | Принцесса-шпионка: Укро�
 ```bash
 magnet:?xt=urn:btih:ED93ECF9A810E20ADFB33C177458CC2DFE37B2A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:ED93ECF9A810E20ADFB33C177458CC2DFE37B2A9
 magnet:?xt=urn:btih:61994101A13B10300B065B6A3C86FCD1B9DFDAF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:61994101A13B10300B065B6A3C86FCD1B9DFDAF6
 ```bash
 magnet:?xt=urn:btih:409B21FDD41B2AEC6C597873D5955838C5898701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:409B21FDD41B2AEC6C597873D5955838C5898701
 magnet:?xt=urn:btih:B19888CE9220E8AF557A839E21D97D4E17643A18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:B19888CE9220E8AF557A839E21D97D4E17643A18
 ```bash
 magnet:?xt=urn:btih:0C810B2F0A4EEC134F8E6424C6B5D674617778DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Lazaret - это напряженный психологический хорр�
 magnet:?xt=urn:btih:9CD9F2D71AC9043B89B04E524D3685C058727FA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:9CD9F2D71AC9043B89B04E524D3685C058727FA2
 ```bash
 magnet:?xt=urn:btih:F9DAFFB439A898528FAD9D9C930901C9F95A2D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:F9DAFFB439A898528FAD9D9C930901C9F95A2D59
 magnet:?xt=urn:btih:07EFC595F42D4F89BA50ADD0A0B5FAEA0FD509EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Inkulinati (2023) [Ru/Multi] (1.47.20/dlc) Scene Tenoke [Supporter Bundle]
 ```bash
 magnet:?xt=urn:btih:62B2C79DCA13AF9BEB4DC5BF305E169CFB3ECECC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Jean Michel Jarre - Versailles 400 Live (2024) [FLAC|Lossless|WEB-DL|tracks] <El
 magnet:?xt=urn:btih:7743E0B236C60C951529A2593F10212B60299B2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:7743E0B236C60C951529A2593F10212B60299B2E
 ```bash
 magnet:?xt=urn:btih:F1001F4C0C5CE62073C55BCA46B188F6728F5F94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини ка�
 magnet:?xt=urn:btih:A3131B026EB35031FF2AD595287C08D55B500DE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Kono Subarashii Sekai ni Bakuen o! | Konosuba: An Explosion on this Wonderful Wo
 ```bash
 magnet:?xt=urn:btih:52640635C5BA485072B4F1DCBC95E0FC66DD3460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Isekai de Cheat Skill o Te ni Shita Ore wa, Genjitsu Sekai o mo Musou Suru: Leve
 magnet:?xt=urn:btih:1B95055F12AA67C9F1928CDC5C7FE85D8A009FD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 magnet:?xt=urn:btih:A11C8F5B9D0FDAF77D94F7BEA6D0D9722C58E13F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:A11C8F5B9D0FDAF77D94F7BEA6D0D9722C58E13F
 ```bash
 magnet:?xt=urn:btih:7B1620E6A91C9A71615CD33D0FA7E06441D0FCDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ DJ Artur - Compilation (2024) [MP3|320 Kbps] <Instrumental, Piano, Accordion, El
 magnet:?xt=urn:btih:A0127D13A5FA8F47DEA3FD75FC0C5FD8DF56F735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:A0127D13A5FA8F47DEA3FD75FC0C5FD8DF56F735
 magnet:?xt=urn:btih:69DEE4ADED1B641B93BADB3E53C9F51A0033C2E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:69DEE4ADED1B641B93BADB3E53C9F51A0033C2E0
 ```bash
 magnet:?xt=urn:btih:B8957FF4954629C20F11F5B87C32F74F773F3292
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:B8957FF4954629C20F11F5B87C32F74F773F3292
 magnet:?xt=urn:btih:886BF215B1BE0A6E51BC47CAE459E2EFE0FA6713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:886BF215B1BE0A6E51BC47CAE459E2EFE0FA6713
 ```bash
 magnet:?xt=urn:btih:B669A92E71A85DC65CC4080C28BFDB50A4F08435
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

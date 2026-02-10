@@ -22,6 +22,8 @@ Recite The Cynic - Recite The Cynic (2023) [FLAC|Lossless|WEB-DL|tracks] <Indust
 magnet:?xt=urn:btih:65CCEB293ACEF6FFC7DC2B59791BBF5E3B05C1FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ MusicBrainz Picard - простая в использовании програм
 ```bash
 magnet:?xt=urn:btih:19AFAF58170A5FAFF8F08C828DAB3A7CAAA962A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Various Artists - 80s Finest Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:C0482CACE455961182521D3F3CF494359702D3C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:C0482CACE455961182521D3F3CF494359702D3C7
 ```bash
 magnet:?xt=urn:btih:AF16756A79393F1576A32BA1D4714175DBD67675
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Color Wheel 7.9 [Multi]
 magnet:?xt=urn:btih:492AA0728B5312B076B2EB1A3E130D878A41193C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:492AA0728B5312B076B2EB1A3E130D878A41193C
 ```bash
 magnet:?xt=urn:btih:BDB1950CF931DE0DA3F3E0937652008CFB677816
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ Disc 3: instrumentalЖанр: Gothic, Black, Death MetalПродолжитель
 magnet:?xt=urn:btih:4E359156C3AE58046CAC1C68B1FE0C991AB9169C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:4E359156C3AE58046CAC1C68B1FE0C991AB9169C
 ```bash
 magnet:?xt=urn:btih:6320E9A772279A60DFF3A46AAD40A392B98AA1F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:6320E9A772279A60DFF3A46AAD40A392B98AA1F6
 magnet:?xt=urn:btih:DB043FC31E3F48AB86D9FB0903E9A41BB75B5A3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:DB043FC31E3F48AB86D9FB0903E9A41BB75B5A3D
 ```bash
 magnet:?xt=urn:btih:EDD4C07204830837BFA977E4DF41FEA2D0CAAD3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ Damnatory - The Complete Disgoregraphy 1991-2003 (2018) Compilation [FLAC|Lossle
 magnet:?xt=urn:btih:BED6873AB2AB702D592C978EDFC780AA0CBE7131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ Martha Reeves - Gotta Keep Moving (1980) LP [MP3|320 Kbps] <Funk/Soul, Disco>
 magnet:?xt=urn:btih:48DED53A4F86B7D08F76F9E19B78E0CB15AF2913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ Love Story — это кинематографический анимирова�
 ```bash
 magnet:?xt=urn:btih:D1DC8CA924D528F0ABE1930AAE3F8803A86CB0B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ Keep It 2.2.9 [Multi]
 magnet:?xt=urn:btih:97FD589CA18C2154EC511FFEA34F081C0C6DBB08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:97FD589CA18C2154EC511FFEA34F081C0C6DBB08
 ```bash
 magnet:?xt=urn:btih:949A9ED58A27DB1AAE427EDC5D460417EC54173B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:949A9ED58A27DB1AAE427EDC5D460417EC54173B
 magnet:?xt=urn:btih:0F28FE07EE2B06B000A401C5248FF3110DA2E5C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ Cardhop 2.2.9 [Multi]
 ```bash
 magnet:?xt=urn:btih:6E03E13EE2AEDCACB7CB130CCEECC7E5EFBBE076
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:1E2E5BA7953D795CF49368B6354D98F353567EC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:1E2E5BA7953D795CF49368B6354D98F353567EC9
 magnet:?xt=urn:btih:BFC124B1652F94470DFF07E6B04FD90A3D33D480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ Pokemon the Series: Sun and Moon - Ultra Legends | Покемон: Солнце 
 ```bash
 magnet:?xt=urn:btih:299BCD5C25E1EE78464EAD9A840A9C216EF3EF9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:299BCD5C25E1EE78464EAD9A840A9C216EF3EF9B
 magnet:?xt=urn:btih:DB69D8F29B81E0E6627D79341FE70FF544B85C47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ VueScan - программа для работы со сканерами HP, Min
 ```bash
 magnet:?xt=urn:btih:37EF7809E8C3E4F0E996579D6C9FE0A3D25F517A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ Nessa Barrett - hell is a teenage girl (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop
 magnet:?xt=urn:btih:DB181D2C125B18AF04569F2732EE290739C26D45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ AI Transcription 1.5 [Multi]
 ```bash
 magnet:?xt=urn:btih:3C74E672A9E180B492A9782E8C6DECE8AFC648F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ One Commander V3 — это современный файловый менедж
 magnet:?xt=urn:btih:B8DA334963D789F6D3329D6E030DF9EAF6648599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ WinUtilities - набор утилит WinUtilities Professional для наст
 ```bash
 magnet:?xt=urn:btih:83DCCAFB2E873F8AC7E657DCD53C768BBE5FA4BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

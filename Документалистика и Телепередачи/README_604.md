@@ -1,3 +1,29 @@
+###  Публикация: 1118790   (811359) от 26.03.2017
+
+Концерт Элтона Джона / Elton John: In Concert (2013) DVB
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_811359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт легендарного британского рок-музыканта, композитора и пианиста cэра Элтона Джона состоялся в 2013 году в студии ВВС RADIO 2. Программа концерта выдержана в камерном классическом жанре с участием классического камерного оркестра. Среди композиций, исполненных Элтоном Джоном, популярные хиты, написанные в содружестве с постоянным автором Берни Топином: "Bennie (   Читать дальше...   )Телекомпания: Великобритания / British Broadcasting Corporation (BBC)Жанр: Телепередача, МузыкальныйПеревод: Не требуется (нет диалогов и комментариев)Продолжительность: 00:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C08F644A0C1BE81DE4FC0E3F104F5E279B2A3A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 651090   (811361) от 26.03.2017
 
 СССР. Обратный отсчет. Красота по-советски (2011) SATRip [H.264]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:574DD0AED03DF7BC5D7E455C578940770F6DD83F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:574DD0AED03DF7BC5D7E455C578940770F6DD83F
 ```bash
 magnet:?xt=urn:btih:1CCDFC69DD840437E95DEA113686DBE0E6C3580E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:1CCDFC69DD840437E95DEA113686DBE0E6C3580E
 magnet:?xt=urn:btih:39AE9620DBB7F3B6E6B74758714A32B8082EC51A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:39AE9620DBB7F3B6E6B74758714A32B8082EC51A
 magnet:?xt=urn:btih:AD805CBB03B4DF42E18FC7576E33D08736E4881D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:AD805CBB03B4DF42E18FC7576E33D08736E4881D
 ```bash
 magnet:?xt=urn:btih:DB3B23E803DA159BDE379A19BE01FF248B67A1E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:DB3B23E803DA159BDE379A19BE01FF248B67A1E7
 magnet:?xt=urn:btih:022ED9049878B9ED6730AA08A23D20512FC9C444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:022ED9049878B9ED6730AA08A23D20512FC9C444
 magnet:?xt=urn:btih:D0F6AE2801306091DE9436180AB194311C5C44AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:D0F6AE2801306091DE9436180AB194311C5C44AF
 magnet:?xt=urn:btih:C79A7C2D6C80731E40201F406E4D5460F5AC6AA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:C79A7C2D6C80731E40201F406E4D5460F5AC6AA7
 ```bash
 magnet:?xt=urn:btih:21F40943E68C3DEEFA988EC6ACB3B163B43B5798
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:21F40943E68C3DEEFA988EC6ACB3B163B43B5798
 magnet:?xt=urn:btih:F0490DDD584C4A08090546EB1F466C56A9EEED7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:F0490DDD584C4A08090546EB1F466C56A9EEED7D
 ```bash
 magnet:?xt=urn:btih:244E93FB64316B2AF3E19B682BF9C306237C84D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:244E93FB64316B2AF3E19B682BF9C306237C84D0
 magnet:?xt=urn:btih:D251651340B3DE800047E3F5516F9DAA546D2305
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:D251651340B3DE800047E3F5516F9DAA546D2305
 ```bash
 magnet:?xt=urn:btih:0D49BD845B8CE8EF33A3AB02530834C03B329DE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:0D49BD845B8CE8EF33A3AB02530834C03B329DE2
 magnet:?xt=urn:btih:45D528EB3E95D7C2BB963802AA380B07EF2EFF96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:45D528EB3E95D7C2BB963802AA380B07EF2EFF96
 ```bash
 magnet:?xt=urn:btih:E890FA218DE8333BCD8C861E11B5094A23AB51B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:E890FA218DE8333BCD8C861E11B5094A23AB51B0
 magnet:?xt=urn:btih:89628C866CFCBF3BE4F23C3BE532D7111C147899
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:89628C866CFCBF3BE4F23C3BE532D7111C147899
 ```bash
 magnet:?xt=urn:btih:2747AEE8F88A9F7A829417FCA5C4A0A6D366C68C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:2747AEE8F88A9F7A829417FCA5C4A0A6D366C68C
 magnet:?xt=urn:btih:74EFA02DAF9F7CDD428EB9CA95E2B721BE939E68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:74EFA02DAF9F7CDD428EB9CA95E2B721BE939E68
 ```bash
 magnet:?xt=urn:btih:1F94A9DF9E00093CA3734EC36B5C36A5068EACCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:1F94A9DF9E00093CA3734EC36B5C36A5068EACCE
 magnet:?xt=urn:btih:452AFEC566AECADA9596F85ECC7E3D73A46F79BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:452AFEC566AECADA9596F85ECC7E3D73A46F79BA
 ```bash
 magnet:?xt=urn:btih:12FFAA6F34B212224C417DDD4A2B822874357A55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:12FFAA6F34B212224C417DDD4A2B822874357A55
 magnet:?xt=urn:btih:CC640CDF8F733DFEA991DAD06C0AD396FEE276DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:CC640CDF8F733DFEA991DAD06C0AD396FEE276DA
 ```bash
 magnet:?xt=urn:btih:5EFD9B42C9939AB92EF3B1D8C3B74B7AABBD2999
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:5EFD9B42C9939AB92EF3B1D8C3B74B7AABBD2999
 magnet:?xt=urn:btih:C99928E88D1B8E30C65DD87F69273569201BC008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:C99928E88D1B8E30C65DD87F69273569201BC008
 magnet:?xt=urn:btih:6909B949D8CAF9DFA9D3A33ECDFB98C48CDFF311
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504411   (812226) от 23.10.2021
-
-Главная дорога (23.10.2021) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_812226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зима близко, а значит, пора переобуваться! Снова начинается вечный спор – шипы или липучка? Противники шипованных покрышек считают их слишком шумными и бесполезными в городе, а вот для сторонников шипов безопасность важнее комфорта. В новом выпуске «Главной дороги» Андрей Федорцов и Денис Юченков проверили уровень шума от разных покрышек и выяснили, как количество (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:27:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A485CB4A8F64002A8457609407CC8A05D37F78A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

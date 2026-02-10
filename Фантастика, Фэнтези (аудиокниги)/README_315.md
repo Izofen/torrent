@@ -1,3 +1,30 @@
+###  Публикация: 1327990   (354429) от 04.10.2019
+
+Роджер Желязны | Владения Хаоса (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_354429.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Владения Хаоса» – пятая книга грандиозного фантастического цикла «Хроники Амбера», созданного неисчерпаемой фантазией одного из известнейших мастеров жанра – Роджера Желязны...
+Противостояние Хаоса и Амбера достигло своей высшей точки.Оберон вернулся, и Камень Правосудия отошел к своему законному владельцу. Лабиринт должен быть восстановлен,но если Оберон не справится (   Читать дальше...   )Жанр: Классика фэнтезиПродолжительность: 06:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2723F93C2515B6EFE9DE61B47726F50DBD516D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328933   (354436) от 04.10.2019
 
 Майкл Стэкпол | Кровавое наследство (2018) [MP3]
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:29449639E0C1445BF9BAA4429F8D4FB5D2274410
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:29449639E0C1445BF9BAA4429F8D4FB5D2274410
 ```bash
 magnet:?xt=urn:btih:D094C9F11A961A1DB4FA2C7AB8C3B09C8A79E90C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +101,8 @@ magnet:?xt=urn:btih:D094C9F11A961A1DB4FA2C7AB8C3B09C8A79E90C
 magnet:?xt=urn:btih:33D5829272B0A441DFE1A30CB888EEBAB17E23FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:33D5829272B0A441DFE1A30CB888EEBAB17E23FF
 ```bash
 magnet:?xt=urn:btih:F49EB621A4599A6B65A1A2FEADCE632BE1EB01A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +156,8 @@ magnet:?xt=urn:btih:F49EB621A4599A6B65A1A2FEADCE632BE1EB01A8
 magnet:?xt=urn:btih:94D13E1684DC32B6A6A6A52C9FFE3C02BC5C6484
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +182,8 @@ magnet:?xt=urn:btih:94D13E1684DC32B6A6A6A52C9FFE3C02BC5C6484
 ```bash
 magnet:?xt=urn:btih:A8A852AAC723AEB464F91EB66CB19CF39E773565
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +210,8 @@ magnet:?xt=urn:btih:A8A852AAC723AEB464F91EB66CB19CF39E773565
 magnet:?xt=urn:btih:891A593CA6BFEEADF9B89F4F6DBA62C4A8975BC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +235,8 @@ magnet:?xt=urn:btih:891A593CA6BFEEADF9B89F4F6DBA62C4A8975BC6
 ```bash
 magnet:?xt=urn:btih:1A38D789626BE821723AEBD94AE21A95FA0DB63A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +263,8 @@ magnet:?xt=urn:btih:1A38D789626BE821723AEBD94AE21A95FA0DB63A
 magnet:?xt=urn:btih:A4383F3475192C1F6425E11DD0BDAD06B7857B56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +289,8 @@ magnet:?xt=urn:btih:A4383F3475192C1F6425E11DD0BDAD06B7857B56
 magnet:?xt=urn:btih:D93056546A45BFD602A10E061515DDC30CE0E2B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +314,8 @@ magnet:?xt=urn:btih:D93056546A45BFD602A10E061515DDC30CE0E2B2
 ```bash
 magnet:?xt=urn:btih:C5BA864FF4280ADEB5D3E6616AA6CAC60EF40BC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +344,8 @@ magnet:?xt=urn:btih:C5BA864FF4280ADEB5D3E6616AA6CAC60EF40BC0
 magnet:?xt=urn:btih:4BE446D4BE590F289DEDABF34EA32762D60E2D22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +369,8 @@ magnet:?xt=urn:btih:4BE446D4BE590F289DEDABF34EA32762D60E2D22
 ```bash
 magnet:?xt=urn:btih:C8A72D19AC28821A8EACD07B535986E057782624
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +398,8 @@ magnet:?xt=urn:btih:C8A72D19AC28821A8EACD07B535986E057782624
 magnet:?xt=urn:btih:CF0C358CF3CA1E6BC09BD9B5C1FADD8431B7B64E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +426,8 @@ magnet:?xt=urn:btih:CF0C358CF3CA1E6BC09BD9B5C1FADD8431B7B64E
 magnet:?xt=urn:btih:62FCFC99A22575D283EF86A262B188C88AF99CEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +453,8 @@ magnet:?xt=urn:btih:62FCFC99A22575D283EF86A262B188C88AF99CEF
 magnet:?xt=urn:btih:6A521CED4A54C18F719DF241806D2EE795F93AAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +478,8 @@ magnet:?xt=urn:btih:6A521CED4A54C18F719DF241806D2EE795F93AAB
 ```bash
 magnet:?xt=urn:btih:5E60266FFC48A9804252A0CEAC6216830077A846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +506,8 @@ magnet:?xt=urn:btih:5E60266FFC48A9804252A0CEAC6216830077A846
 magnet:?xt=urn:btih:3F4BA1A6C3697FF855EE356E0291E40FEBC64C82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +531,8 @@ magnet:?xt=urn:btih:3F4BA1A6C3697FF855EE356E0291E40FEBC64C82
 ```bash
 magnet:?xt=urn:btih:120A3512D87C1A32C646BCA2BFDA078822564E2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +558,8 @@ magnet:?xt=urn:btih:120A3512D87C1A32C646BCA2BFDA078822564E2C
 magnet:?xt=urn:btih:C70118FDC7D8FEA83B8011923C735991452F7943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +583,8 @@ magnet:?xt=urn:btih:C70118FDC7D8FEA83B8011923C735991452F7943
 ```bash
 magnet:?xt=urn:btih:4C3283E54CDACA4BDFBC18E112775FBB8426E516
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +610,8 @@ magnet:?xt=urn:btih:4C3283E54CDACA4BDFBC18E112775FBB8426E516
 magnet:?xt=urn:btih:34EECD536769C35A9A2C8B1087BB666F0765F16F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +635,8 @@ magnet:?xt=urn:btih:34EECD536769C35A9A2C8B1087BB666F0765F16F
 ```bash
 magnet:?xt=urn:btih:CF77074F89CE4164B5321676D2FB00376DB76DF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +663,8 @@ magnet:?xt=urn:btih:CF77074F89CE4164B5321676D2FB00376DB76DF5
 magnet:?xt=urn:btih:FBD2462EBB8FE9A9632E0EE4E502A37478B97601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,29 +690,7 @@ magnet:?xt=urn:btih:FBD2462EBB8FE9A9632E0EE4E502A37478B97601
 magnet:?xt=urn:btih:177774663B47178F589D61E9F77E3DA6F1A46D6A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071330   (357213) от 11.11.2016
-
-Ольга Алешина | "В зеркале" и другие рассказы [Сборник] (2011) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_357213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Девять разных рассказов Ольги Алешиной: мистических, детективных, фантастических, юмористических и сказочных объединены в эту  аудиокнигу. Рассказы читают Дарья Чегаева, Олег Шубин, Светлана Столичная, Мария Куликова, Наталья Григоренко и Элис. Захватывающий сюжет рассказов никого не оставит равнодушным, а герои - не только наши современники, но и предки, и потомки (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 05:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D740936C19FC41D619FB4C17C02E35FBBDD305EE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

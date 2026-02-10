@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5EE2B4082B21B5717AAE0E52292FFD9538D3E373
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Deworker Pro, Дмитрий Елисеев | Способы ускорения 
 magnet:?xt=urn:btih:900C6B76584B28DBC7EFD82D6EAD606986D246F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:900C6B76584B28DBC7EFD82D6EAD606986D246F9
 ```bash
 magnet:?xt=urn:btih:B0D0DE90D3AE19FF707B403EF8C0A4E2EC71801D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Deworker Pro, Дмитрий Елисеев | Большой стрим про S
 magnet:?xt=urn:btih:A9E0624B2BDA9D114FD1CD664BD0CA38C1565709
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Frontendblok, Анна Блок | «Продвинутый курс по вёр�
 ```bash
 magnet:?xt=urn:btih:B07F8FAAEC3F0EFFF370296C351934D6E88CCEC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Dartware | Многопоточность в C++ (2018) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:2C1826A17DA9B108D6D305AAAB448BE04EBF61A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ D-Link | Видеоматериалы про основы сетевых тех�
 ```bash
 magnet:?xt=urn:btih:57970E8A97D933EC1F2DF0AB6C474E3C7956AECA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Convert Monster | Яндекс.Метрика (2014) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:880871A084AC44B12F25BA29021DCB353F33A602
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:880871A084AC44B12F25BA29021DCB353F33A602
 magnet:?xt=urn:btih:9BF5258E2EE37BF4D70ABDEEA7977863916B85CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:9BF5258E2EE37BF4D70ABDEEA7977863916B85CD
 ```bash
 magnet:?xt=urn:btih:293CB1598DF9C174A68762507AC1AAEBF08ADD3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:293CB1598DF9C174A68762507AC1AAEBF08ADD3F
 magnet:?xt=urn:btih:395AA95BBA40187141B91432EA2B7B57FEBA1232
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:395AA95BBA40187141B91432EA2B7B57FEBA1232
 ```bash
 magnet:?xt=urn:btih:5B67988855409DA2CBB63864DD28329D4C7A8148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Microarch, Кирилл Ветчинкин | Микросервисная арх
 magnet:?xt=urn:btih:3034471C9693E3245525D78D444ABDEA4E5A648B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Skillbox, Наталья Бондаренко, Юрий Новожилов | Л�
 ```bash
 magnet:?xt=urn:btih:5A7D4E51113D8C18816FD5DEC9E68BAE2D8FF839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:5A7D4E51113D8C18816FD5DEC9E68BAE2D8FF839
 magnet:?xt=urn:btih:8017CB8D503B4FA6070BAE29472DC9B2B5870195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ Udemy, Евгений Курилов | Premiere pro для фрилансера 
 ```bash
 magnet:?xt=urn:btih:FF9FD0BF86515BA2B0DEF06C22B78AF06DE61B66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Product University, Дмитрий Жечков, Артем Новиков | Сu
 magnet:?xt=urn:btih:2107CC415A33F60F613D1B24D6EE3DE4603813DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:2107CC415A33F60F613D1B24D6EE3DE4603813DF
 magnet:?xt=urn:btih:131D488AE6D9BCD4929A3CB59AF48B7E1E33EB58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ Annie Leibovitz | Annie Leibovitz Teaches Photography (2017) WEB-DL [RU]
 magnet:?xt=urn:btih:E11FFC3549BF4DB8C4390D0DB16483E06F455332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ Andrew Perkins | Build a CMS in Symfony 2 (2014) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:102D3FE35A5289F600AA9678ACFF11646F4413D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:102D3FE35A5289F600AA9678ACFF11646F4413D6
 magnet:?xt=urn:btih:7042E5108E20E7FDCFDE0E0113DFCDF7196992C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ PurpleSchool, Антон Ларичев, Дмитрий Мозулёв | Сов�
 ```bash
 magnet:?xt=urn:btih:E2C994808F07A329612141F5E573B188856E3A2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ OK English School, Елена Вогнистая | Начинающим. МЕГ�
 magnet:?xt=urn:btih:285967EEFFA5DEAE4D0A47B8BF7786404F4076B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +640,8 @@ magnet:?xt=urn:btih:285967EEFFA5DEAE4D0A47B8BF7786404F4076B3
 ```bash
 magnet:?xt=urn:btih:4636659094A9E7E95F8743D51AEC4D9EB2D8C99D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +670,8 @@ Network for Everyone (NFE, N4E) | Внедрение Cisco SD-WAN (Viptela). Б�
 magnet:?xt=urn:btih:DE3003B117E7F483147DD547F0A60A6802827352
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ Network for Everyone (NFE, N4E) | Внедрение Cisco ACI. Базовый �
 ```bash
 magnet:?xt=urn:btih:B62B5ACF60980CEC0B619E9FD4DF2FA510C9CE12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

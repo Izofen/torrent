@@ -1,3 +1,29 @@
+###  Публикация: 1849852   (1054097) от 
+
+Freezing Spell | Яд василиска (2025) [MP3, Никита Зуров]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1054097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Министерство Магии расследует причины участившихся случаев нападения неизвестных монстров на людей. Но… так ли всё просто, как кажется на первый взгляд? Расследование с каждым днём становится всё опаснее, а несчастные случаи оборачиваются чьим-то дьявольским замыслом…Жанр: Детектив, ФэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 01:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E44E0348FFBC5F1D2D15187897DEC5708C51BE3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849846   (1054098) от 
 
 Сергей Юрьев | Дорога на расстрел (2025) [MP3, Евгений Лебедев]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:36656BC520B31ACE6F3A0D11104690A899B319CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:36656BC520B31ACE6F3A0D11104690A899B319CC
 magnet:?xt=urn:btih:0435F69B763967BC31C0B90B0315B2262A728044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:0435F69B763967BC31C0B90B0315B2262A728044
 magnet:?xt=urn:btih:A527C6F8B256A60DB3B80AD2A6C3661586655CB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:A527C6F8B256A60DB3B80AD2A6C3661586655CB9
 ```bash
 magnet:?xt=urn:btih:02A4446A6F662404621905A961A69909E4B48DBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:02A4446A6F662404621905A961A69909E4B48DBA
 ```bash
 magnet:?xt=urn:btih:38587D3EAC336C57B5AC48644B64F0C0752B65B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +182,8 @@ magnet:?xt=urn:btih:38587D3EAC336C57B5AC48644B64F0C0752B65B5
 magnet:?xt=urn:btih:8B2D5012CBA44569BCB646E8E269312636460F41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +210,8 @@ magnet:?xt=urn:btih:8B2D5012CBA44569BCB646E8E269312636460F41
 ```bash
 magnet:?xt=urn:btih:C925A9C910C461639E09D50AA59446CEE776FDC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +240,8 @@ magnet:?xt=urn:btih:C925A9C910C461639E09D50AA59446CEE776FDC2
 magnet:?xt=urn:btih:18060ECD72A5753D4BFAF90415D7A8D8DBB38713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +265,8 @@ magnet:?xt=urn:btih:18060ECD72A5753D4BFAF90415D7A8D8DBB38713
 ```bash
 magnet:?xt=urn:btih:F53EDE8EF8082B33A82EBE6E887E2EC7F03F8EDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +294,8 @@ magnet:?xt=urn:btih:F53EDE8EF8082B33A82EBE6E887E2EC7F03F8EDC
 magnet:?xt=urn:btih:9D3254E8F042A6CEAF3D68F29B21D32612CF6185
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +322,8 @@ magnet:?xt=urn:btih:9D3254E8F042A6CEAF3D68F29B21D32612CF6185
 magnet:?xt=urn:btih:E4CC7BCC8FA6122C113B0D6293D3E914756F5FA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +349,8 @@ magnet:?xt=urn:btih:E4CC7BCC8FA6122C113B0D6293D3E914756F5FA0
 magnet:?xt=urn:btih:364CA02BF4C90CEA453498382410848495F04878
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +374,8 @@ magnet:?xt=urn:btih:364CA02BF4C90CEA453498382410848495F04878
 ```bash
 magnet:?xt=urn:btih:6040811E230D18ADB0D324D29485531FD7C498E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +402,8 @@ magnet:?xt=urn:btih:6040811E230D18ADB0D324D29485531FD7C498E5
 magnet:?xt=urn:btih:EBDD69762881392BD600B6DC981E2D29B9244160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +427,8 @@ magnet:?xt=urn:btih:EBDD69762881392BD600B6DC981E2D29B9244160
 ```bash
 magnet:?xt=urn:btih:139161502DD2FFAAA8373BE18D14D3954C53853E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +454,8 @@ magnet:?xt=urn:btih:139161502DD2FFAAA8373BE18D14D3954C53853E
 magnet:?xt=urn:btih:D35C5CD52B04042AF05243C6AF3BB555AB2DBB72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +479,8 @@ magnet:?xt=urn:btih:D35C5CD52B04042AF05243C6AF3BB555AB2DBB72
 ```bash
 magnet:?xt=urn:btih:540B32BFAE76D96E2EA0809E562F5D0EE264CF68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +506,8 @@ magnet:?xt=urn:btih:540B32BFAE76D96E2EA0809E562F5D0EE264CF68
 magnet:?xt=urn:btih:D51A057900F514EB02C88067C0757FA4CC12DF28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +531,8 @@ magnet:?xt=urn:btih:D51A057900F514EB02C88067C0757FA4CC12DF28
 ```bash
 magnet:?xt=urn:btih:65C58599324F102927F684741D4CCD5B85567621
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +558,8 @@ magnet:?xt=urn:btih:65C58599324F102927F684741D4CCD5B85567621
 magnet:?xt=urn:btih:3D88C4D3E444C41A64E6E0B3544BBB3F4A266BFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +583,8 @@ magnet:?xt=urn:btih:3D88C4D3E444C41A64E6E0B3544BBB3F4A266BFB
 ```bash
 magnet:?xt=urn:btih:3F6F9BA14CBF10B287AA57CC33330F635EDB72BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +612,8 @@ magnet:?xt=urn:btih:3F6F9BA14CBF10B287AA57CC33330F635EDB72BF
 magnet:?xt=urn:btih:16425A690635494A1740DB6B8263ACAD8E8A9EFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +637,8 @@ magnet:?xt=urn:btih:16425A690635494A1740DB6B8263ACAD8E8A9EFD
 ```bash
 magnet:?xt=urn:btih:4BC25491E918E927D44454BB3ACE3C8FDB03AB44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +665,8 @@ magnet:?xt=urn:btih:4BC25491E918E927D44454BB3ACE3C8FDB03AB44
 magnet:?xt=urn:btih:6BF50E0B5414661F34289D1F719418A485126827
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,30 +691,7 @@ magnet:?xt=urn:btih:6BF50E0B5414661F34289D1F719418A485126827
 magnet:?xt=urn:btih:A5145D7F2B33EFDD91D54904D90ED90F00A44897
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850586   (1054438) от 
-
-Никита Сахно | Дети Умбракса (2025) [MP3, Кирилл Головин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тысячелетиями Стражи хранили в Доминионе мир и покой железной рукой. Но кто теперь защит от них самих?
-Прошлое отказывается оставаться мертвым, будущее начинает обращаться в прах. Древняя магия, заговоры и запретная сила сталкивают хранителей смерти, защитников порядка и воскрешенных из небытия. Судьба множества миров оказывается в руках заклятых врагов: терзаемого (   Читать дальше...   )Жанр: ФэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 15:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0926785D028E88BE440E28ACAC76B2DE72B7F663
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

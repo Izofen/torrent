@@ -22,6 +22,8 @@ VA - Music News vol.263 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:D617C5C0EAA3EBB7A029E87D23ADE2333FFA2601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:D617C5C0EAA3EBB7A029E87D23ADE2333FFA2601
 magnet:?xt=urn:btih:32AE033FE3867C61E5F79A3871038F6588DEA068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:32AE033FE3867C61E5F79A3871038F6588DEA068
 magnet:?xt=urn:btih:0276F7F9BC15B68ED9CA115037480B89BF2BA73C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:0276F7F9BC15B68ED9CA115037480B89BF2BA73C
 ```bash
 magnet:?xt=urn:btih:63A50A72FA37F9B49679BA7FC6A10618446E4835
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Seven Spires - Live at Progpower USA XXI (2023) [FLAC|Lossless|WEB-DL|tracks] <S
 magnet:?xt=urn:btih:988422012156EC554E6E85944342E392610A6EB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Tagr - редактор метатегов. Tagr поможет вам орга�
 magnet:?xt=urn:btih:556B9E318AB4081542E4139A43782154467560E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:556B9E318AB4081542E4139A43782154467560E5
 magnet:?xt=urn:btih:453EC87486E22F30A89128EC6513EFE57571F021
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:E550AED7C7B42A554FF3298CDB5A9C8B8AD73603
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ zGallery - это действительно быстрая загрузка и 
 magnet:?xt=urn:btih:840E34AC87A0AFE4CA65621B84057911B4E4DFC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:840E34AC87A0AFE4CA65621B84057911B4E4DFC4
 magnet:?xt=urn:btih:88E423588DB9460E900D8F9B8D707CCEFC14E277
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:88E423588DB9460E900D8F9B8D707CCEFC14E277
 ```bash
 magnet:?xt=urn:btih:9984ECD12662A88EF604B33704AE51E2E083A0F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ Omnibox позволяет (   Читать дальше...   )Тип изда�
 magnet:?xt=urn:btih:AD6F7190AD847DE503E3B701269CA7F0B1D2F945
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:AD6F7190AD847DE503E3B701269CA7F0B1D2F945
 ```bash
 magnet:?xt=urn:btih:4C41E1F622B5DCF8FB0810D0EAEDA2DD0E954712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:4C41E1F622B5DCF8FB0810D0EAEDA2DD0E954712
 magnet:?xt=urn:btih:5E21A144D27BF2B9B0C247A0D55835CFF552B249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ MediaHuman YouTube Downloader 3.9.9.81 (1205) RePack (& Portable) by Dodakaedr [
 ```bash
 magnet:?xt=urn:btih:C492850786CCD4474BEEF7B33F506C8B3BD2B91C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ The Lords Of Altamont - To Hell With Tomorrow The Lords Are Now (2023) [FLAC|Los
 magnet:?xt=urn:btih:9083F623DC860D95F6FEB93CDE9802862E374D33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Transfer - это надежное и полностью RFC-совместим�
 ```bash
 magnet:?xt=urn:btih:0E5F8B8FC44151585F121FC2813EE8F6FA6A05E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ Ancient Mastery - The Chosen One (2021) EP [FLAC|Lossless|image + .cue] <Epic Bl
 magnet:?xt=urn:btih:52546AFCA4DB9E63DBE03F36B7C32E9742F4D65F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ magnet:?xt=urn:btih:52546AFCA4DB9E63DBE03F36B7C32E9742F4D65F
 ```bash
 magnet:?xt=urn:btih:10B595391593AF186A07DD20E43DA0799E05D26F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ Wise Disk Cleaner 11.0.1.815 RePack (& portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:B9B7317EB9C7F03B0CECBE9AC784C61670358BFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ SIV (System Information Viewer) - мощнейшая утилита, показ�
 ```bash
 magnet:?xt=urn:btih:4D9FA82B70B68C9C3DEAB542BB9729D24E1C75B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ magnet:?xt=urn:btih:4D9FA82B70B68C9C3DEAB542BB9729D24E1C75B7
 magnet:?xt=urn:btih:A05DFFFC9A33CC0CDE057C26DE2D540E5817FE45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:A05DFFFC9A33CC0CDE057C26DE2D540E5817FE45
 magnet:?xt=urn:btih:B3F0806A6787A23CAAF6368B835C343405F7E0C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:B3F0806A6787A23CAAF6368B835C343405F7E0C9
 ```bash
 magnet:?xt=urn:btih:5F44B144CEB402092754D7231CC3B74B2A399F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ Orrin Evans And The Captain Black Big Band - The Intangible Between (2020) Smoke
 magnet:?xt=urn:btih:6864D8FC61CD8ABDA2D14AC1EB6B38A1BBC24855
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +694,8 @@ Wolves at the Gate - Eulogies (2022) [FLAC 2.0|44.1/24|tracks|WEB-DL] <PostHardC
 ```bash
 magnet:?xt=urn:btih:3075615A269D335FD957BB21164D780DFD5DC2B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

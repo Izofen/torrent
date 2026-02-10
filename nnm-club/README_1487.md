@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:90A4ADC63F96127ED873905F74AC2C124394D987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:90A4ADC63F96127ED873905F74AC2C124394D987
 ```bash
 magnet:?xt=urn:btih:661FDAC907CFCCA344A9079B959CCE8706C3E88C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:661FDAC907CFCCA344A9079B959CCE8706C3E88C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:661FDAC907CFCCA344A9079B959CCE8706C3E88C
 magnet:?xt=urn:btih:5CF0218D466A9CA6BCC25EFDF792A5E5B8DA8C01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ Neva (2024) [Ru/Multi] (1.02) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:09C1A284079C42A49CBB336E82325B7495277797
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Green Day - American Idiot (2004) 20th Anniversary Deluxe Edition, Remaster, 202
 magnet:?xt=urn:btih:75B50B46EB46488C163B87FA5B8317B19A45D05C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ A Tiny Sticker Tale (2023) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:C64DD588D6E960CFDB6C12D3ECEE7BFDE35098F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:C64DD588D6E960CFDB6C12D3ECEE7BFDE35098F3
 magnet:?xt=urn:btih:869C6DDF1B10CD2120A123ABE423D6CAA8481E63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:869C6DDF1B10CD2120A123ABE423D6CAA8481E63
 ```bash
 magnet:?xt=urn:btih:27C1B8868A9917DB59B4018C6FF6B2088A4DECE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Ultimate Thumbnail Maker v1.7.5 Mod by Alex.Strannik [En]
 magnet:?xt=urn:btih:306E50A58E539FAF931F7E1706F3232F7CA9B78A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:306E50A58E539FAF931F7E1706F3232F7CA9B78A
 ```bash
 magnet:?xt=urn:btih:EED4A86E74F2D481C3BA9F4DFD0B3A45FDB931B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ VA - compilation  part 126 Electronic (2024) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:82728FCF9F7999F9F65A02E01A0D7C2213F19830
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ VA - Compilation part 127 Electronic (2024) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:6DE3A6D0401B612D915702AA2AF5BFE2F3C18D14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:6DE3A6D0401B612D915702AA2AF5BFE2F3C18D14
 magnet:?xt=urn:btih:0BF5B4CF31464F2DDECC00CF3E66C5F146525A2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Main card турнира "UFC 308", прошедшего в Etihad Arena in Abu 
 ```bash
 magnet:?xt=urn:btih:A4C422CEC3AA9845CE7639CA80C0FF5CB0EBD87E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ King Crimson - Red (1974) Elemental Mixes, 2024, Discipline Global Mobile [FLAC 
 magnet:?xt=urn:btih:32255D59C983B9770501C30340AB7084C6E14217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:32255D59C983B9770501C30340AB7084C6E14217
 magnet:?xt=urn:btih:DA9EA62C77ED555DA9BF63F9C21673932088F471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ magnet:?xt=urn:btih:DA9EA62C77ED555DA9BF63F9C21673932088F471
 ```bash
 magnet:?xt=urn:btih:49C494B6AB1D19CAF265DB1C28A558E4EEC0F813
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ Peter James - Baby Dreams (Сладких снов) (2008) [WavPack|Lossless|ima
 magnet:?xt=urn:btih:2B7F5119D9B50D59F393B147091930F230955498
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:2B7F5119D9B50D59F393B147091930F230955498
 ```bash
 magnet:?xt=urn:btih:7EF407EEA58E8E7BF0039C5FF1C90EFE2FB9F23F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +562,8 @@ VA - 100% EDM Hits (Best of EDM, Future Rave, House, Electro, Techno, Trance & D
 magnet:?xt=urn:btih:EDB1B430D63A03AB2C80C93FD07070F04764F072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ Frank Sinatra With Quincy Jones And Orchestra - L.A. Is My Lady (1984) Deluxe Ed
 magnet:?xt=urn:btih:8046F8EA9ACE50B3ABCC5224DF0929581CFC2086
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:8046F8EA9ACE50B3ABCC5224DF0929581CFC2086
 ```bash
 magnet:?xt=urn:btih:852173AFBAC5309546A2C173935BF84868D5BAE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ VA - Ibiza Winter Island 2025 (The Deep-House Edition) (2024) [MP3|320 Kbps] <Ho
 magnet:?xt=urn:btih:01AA78B2F087267469226121EF3D3FE88DB6E2DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ VA - The Orient Collective: Mandala (2024) [FLAC|Lossless|WEB-DL|tracks] <World,
 magnet:?xt=urn:btih:C9704A2B57EE3804AA651E37FF216D5FFD5F1CB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:C9704A2B57EE3804AA651E37FF216D5FFD5F1CB6
 ```bash
 magnet:?xt=urn:btih:6705307F588A0651BA21B67792F0977CE30000F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

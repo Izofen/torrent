@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:BF7A0E8845C15FB2D0CDBADCA6E2F34D877B1A2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:BF7A0E8845C15FB2D0CDBADCA6E2F34D877B1A2C
 magnet:?xt=urn:btih:E5B613EB71856E6E774453D95918762C2733AEDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:E5B613EB71856E6E774453D95918762C2733AEDF
 ```bash
 magnet:?xt=urn:btih:CFB1F86744CA3C7D08793C820C31DC6DAD51EBAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ CD-1:
 magnet:?xt=urn:btih:A111675991641D21D89548EC06CF373D85B9FA68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:A111675991641D21D89548EC06CF373D85B9FA68
 ```bash
 magnet:?xt=urn:btih:9294822F6EB49E8AE08F0BCBAC7C19630CB158C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:9294822F6EB49E8AE08F0BCBAC7C19630CB158C9
 ```bash
 magnet:?xt=urn:btih:7D7082B59F6D965F80D4D4F1599696610D7F0FEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ CheMax - очень большая база данных с кодами для 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ CheMax - очень большая база данных с кодами для 
 ```bash
 magnet:?xt=urn:btih:F3DA6BDFB6B77BEB00FE232ACAE14367018D1122
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ Toolwiz Care - бесплатный набор инструментов, пре�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ Toolwiz Care - бесплатный набор инструментов, пре�
 ```bash
 magnet:?xt=urn:btih:F3E3C9600EEFEAE9DD97C6AC02628CF36A556E38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +305,8 @@ magnet:?xt=urn:btih:F3E3C9600EEFEAE9DD97C6AC02628CF36A556E38
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:F3E3C9600EEFEAE9DD97C6AC02628CF36A556E38
 magnet:?xt=urn:btih:F6486A7BEDFEDFA94BB203BAE6BEF931E3FFCF49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +365,8 @@ Spa Mania (P) [En] 2008
 ```bash
 magnet:?xt=urn:btih:BBF7EF9B30668B38F7D9537E262DE9691474278E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +401,8 @@ magnet:?xt=urn:btih:BBF7EF9B30668B38F7D9537E262DE9691474278E
 magnet:?xt=urn:btih:FD2ED156C556783CA326CE33D809C813C3E1265D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +435,8 @@ UltraFunk - UltraFunk (1975) [FLAC 2.0 16/44 | tracks (Vinyl-Rip)]<Funk>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +463,8 @@ UltraFunk - UltraFunk (1975) [FLAC 2.0 16/44 | tracks (Vinyl-Rip)]<Funk>
 magnet:?xt=urn:btih:9310F829EA5102CFA996EC1C797399905C373F5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +488,8 @@ magnet:?xt=urn:btih:9310F829EA5102CFA996EC1C797399905C373F5C
 ```bash
 magnet:?xt=urn:btih:B8A0939B3FA168835DEB877B352B458795AB9245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +524,8 @@ magnet:?xt=urn:btih:B8A0939B3FA168835DEB877B352B458795AB9245
 magnet:?xt=urn:btih:6B55D0638E44FF6B3DC47FAE68BE83D5345B59BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +549,8 @@ Kubuntu 12.04 LTS "Precise Pangolin" Beta 1 [i386 + x86_64] (2xCD)
 ```bash
 magnet:?xt=urn:btih:488C4B448A74B055BF0E118CC1263D1BCF8F4E06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +576,8 @@ magnet:?xt=urn:btih:488C4B448A74B055BF0E118CC1263D1BCF8F4E06
 magnet:?xt=urn:btih:A4DA72D227A2A0BA5EBE000CAD9A6922C7566600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +601,8 @@ magnet:?xt=urn:btih:A4DA72D227A2A0BA5EBE000CAD9A6922C7566600
 ```bash
 magnet:?xt=urn:btih:4D30018C6FA2C6F6C62E3DE8DF440BAE9A186635
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +637,8 @@ magnet:?xt=urn:btih:4D30018C6FA2C6F6C62E3DE8DF440BAE9A186635
 magnet:?xt=urn:btih:6AA19D0179280BE28C5E1A7039D4134FFBE90025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +663,8 @@ Rainmeter - программа для мониторинга ресурсов к
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Rainmeter - программа для мониторинга ресурсов к
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,6 +719,8 @@ The Best Crime Fiction - небольшая серия детективов:
 magnet:?xt=urn:btih:4D0A7BB1AED865A13B7606823896E9B70CA4CD8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ magnet:?xt=urn:btih:4D0A7BB1AED865A13B7606823896E9B70CA4CD8C
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

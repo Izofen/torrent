@@ -20,6 +20,8 @@ Sipnetic – это бесплатный программный IP-телефо�
 magnet:?xt=urn:btih:A4B04528654C994447DD9206EDD69FA33F7E96EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Human Anatomy Atlas v2026.00.019 [En]
 ```bash
 magnet:?xt=urn:btih:AA2ED7CE790C4CAF12CAE8186BF390214A0D840C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Relive: Бег, Заезд, Поход v5.65.0 Mod by victorovich31 [Ru/Multi]
 magnet:?xt=urn:btih:DC7F6CD682A272B617EF512857ED8C35097582AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Ebook Converter / Конвертер электронных книг v1.16.4 Mod
 magnet:?xt=urn:btih:6F88237713CB88504CC5F44FE46DCFB7D684EDC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ MX Player Pro v1.93.3 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:FA4B32E74F9EC807F59CB278360B03BA6B83461A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Solid Explorer - это приложение для управления фай�
 magnet:?xt=urn:btih:88CE175946253C5633AF1E6B7686FA184BC28C15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ VaporCam (90s) / 90-е - Глюк VHS Видеоэффекты v1.7.7 Mod by Ale
 ```bash
 magnet:?xt=urn:btih:58C54BCD8DDB661FC44EF82EC4FC8AF3FA0F2238
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Muviz Edge — первое в своем роде приложение, кот�
 magnet:?xt=urn:btih:12F201CEB1575EA2B3E6512880EED22CE7E3500E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:12F201CEB1575EA2B3E6512880EED22CE7E3500E
 ```bash
 magnet:?xt=urn:btih:9ABDB8A5E354E95B7CF0DD08F8997A8B433F6C0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Photomath v8.44.0 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:91141A8AAF04D78E03C9052A9D07369B46A35547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ AmneziaWG 1.1.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:F9C070C7D7C24FDF320E6CA6C6554D3ADF830D55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Food.ru — это пошаговые рецепты и мобильное пр�
 magnet:?xt=urn:btih:296301B55E5F01DC58D480B6AE46C8AA8DB24B57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ WireGuard – современный и не требовательный к р�
 magnet:?xt=urn:btih:76F3B137F0B8FB77949F8D4C9DC4EB35B6E67599
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ Proton VPN — это единственное в мире бесплатное 
 ```bash
 magnet:?xt=urn:btih:73EB4566F9E0FE5A0AEFB28C36931B5DBD7C973E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:73EB4566F9E0FE5A0AEFB28C36931B5DBD7C973E
 magnet:?xt=urn:btih:D92CE298914C0B3DBABD43E64FBD40F28B3F1B24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ ARuler - лучшее и бесплатное приложение на Android 
 ```bash
 magnet:?xt=urn:btih:CBE8345D00C1FA25792D30ABC20A8C53833CA8DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Smart AudioBook Player Pro v11.4.7 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:CA41EEE587E0C8DE459DBEFBF73FB4CF853B54D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:CA41EEE587E0C8DE459DBEFBF73FB4CF853B54D1
 ```bash
 magnet:?xt=urn:btih:FD4DDECFE6370AD6959F6DBFBF978FD9348E2DCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Offline Translator - это автономный переводчик
 magnet:?xt=urn:btih:9A30FE0C8995822E19A9662CE44EC2EDBC453214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ ToonApp карикатура фоторедактор лучшее прилож�
 ```bash
 magnet:?xt=urn:btih:841CB59E0B50037996D43ABF9BC9DD5943362700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ ProShot v8.31.5 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:75CC6C0A28B9E9D8C5034E9AA4A3FA616B515D3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ CalcKit это простая и мощная коллекция калькул�
 ```bash
 magnet:?xt=urn:btih:80F275D06BB90E27C011CD8ACB9BDDC7D4C6C7D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Daff Moon Phase (Фазы Луны) v3.48 Mod by shv7net [Ru/En]
 magnet:?xt=urn:btih:6A6938198C8FD052B8A24B6B5DC5234634688AF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ MP3 Cutter and Ringtone Maker / Обрезка музыки, редактор м
 ```bash
 magnet:?xt=urn:btih:5E9E32FEC2398D7EFDA6C58EA0ABDEDD3B5380EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Pencil Photo Sketch - профессиональное приложение дл
 magnet:?xt=urn:btih:3E999785A42FC587EC60A379AA82015BDCA7BC1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ English Galaxy - уникальное приложение для тех, кто
 ```bash
 magnet:?xt=urn:btih:395FE8BE625B5A69AB2EAA6A964667E3955CBB6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

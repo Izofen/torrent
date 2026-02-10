@@ -19,6 +19,8 @@ Udemy | Основы программирования - Крестики-нол�
 magnet:?xt=urn:btih:107B5603FDFE5835028F673E5CFB7455DEC7A5D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Udemy | Макет интернет магазина - IShop: HTML, CSS, JS, Boo
 ```bash
 magnet:?xt=urn:btih:546DABD39D9AF3087DA80E281E2E3D65BDEF9DB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Udemy | Web приложение - IShop: Servlets, JSP, JSTL, Custom tags (2016
 magnet:?xt=urn:btih:8810E401103AECE3E91E7155DC0D53DAA41F3BC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ ITVDN | Unity 3D Advanced (2016) PCRec [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:C55C8C748DC3953F9294FEBFC9789C3E1BD39BBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ ITVDN | Unity 3D User Interface (2016) PCRec [H.264/720p]
 magnet:?xt=urn:btih:D2F44ACF6267E36E9B99EF88BD1BA7F04D0207C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ ITVDN | Видео курс Выполнение домашнего задани
 ```bash
 magnet:?xt=urn:btih:6BB0AD8A6A98BABD4F958535D59DDFE446F865CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ Windows PowerShell – средство автоматизации, позвол
 magnet:?xt=urn:btih:1D9EEA3887EA54D76269AA4A4805E5C8B990C056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Udemy | Unreal Engine Blueprints The Ultimate Developer Course (2020) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:3807A0F56E9780C7A03EA4A2634F037C3378A5D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Metasploit был создан в июле 2003 года. Версия 1.0 бы�
 ```bash
 magnet:?xt=urn:btih:750C71A34C07DF9B4A67FD006B9FE8711707FA8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ WebForMySelf | Joomla-Профессионал: создание расшире�
 magnet:?xt=urn:btih:0785D3AEC616E546D7C80CA0ACA8C115C6AEB1BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Laracasts | Extra Series (2013-2018) PCRec [H.264] [EN]
 ```bash
 magnet:?xt=urn:btih:DC648A3AEB5B689F062B8C6CD01CDEE35A6AE22F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ Laracasts | Skills (2014-2017) PCRec [H.264] [EN]
 magnet:?xt=urn:btih:AE9931ABD1BA7862D146E3620F6626013EF43E4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ ProfIT | PHP-3: Повышение квалификации (2016) PCRec
 ```bash
 magnet:?xt=urn:btih:237425EC249CB1F47A33A1F96151E890F0EFDD42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ Geekbrains | Node.js Серверное программирование на Ja
 magnet:?xt=urn:btih:CF14BFAA937DD43AA244961A7AEA2574BC9E954C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ Unity3DSchool | Основы языка C# в unity3D для написания 
 ```bash
 magnet:?xt=urn:btih:50370A538FAE2F0B0BFFC60DAEA3706A8E642E75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ ProfIT | PHP Готовимся к собеседованию (2016) PCRec
 magnet:?xt=urn:btih:8E51FE5C5D2D00FE3754C9B2F5C42CA57BC44FB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ videosharp | Игра Сокобан на C# (2015) PCRec [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:6DBAFA2C364E4F2482528C0E9065385BA209D0FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ ITVDN | Создание адаптивного сайта с Bootstrap 3 (2015)
 magnet:?xt=urn:btih:115F12371C7A4C02488641557E775545F034CCB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ C# Essential Express – курс второго уровня формата п�
 ```bash
 magnet:?xt=urn:btih:E1180257C7335068B9F5897DF81FE73D93B075AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +531,8 @@ Ethical Hacking and Penetration Testing
 magnet:?xt=urn:btih:D408F228427F0707F91EE737B538E6BF59F460F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +556,8 @@ HTML5 Web Components - это видео курс, который будет п�
 ```bash
 magnet:?xt=urn:btih:A1FCC4A4A6131C12C41796EC81A78CC03DE6791C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ ITVDN | HTML & CSS (renewed) (2015) PCRec [H.264/720p]
 magnet:?xt=urn:btih:4CF9F4D22C6DCE74D13061DBC8B2FD8135E3A031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ SEO-Коучинг – профессиональный курс по обуче
 ```bash
 magnet:?xt=urn:btih:5B0C7BC53B49176CB3A42E387779890E59180BF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ ITVDN | Выполнение домашнего задания по курсу S
 magnet:?xt=urn:btih:9186EE8F4AA075E23CCF134DC85D18B567DE210F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ magnet:?xt=urn:btih:9186EE8F4AA075E23CCF134DC85D18B567DE210F
 ```bash
 magnet:?xt=urn:btih:98E592186B4B88A2A679301998A4C259E6466B01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:98E592186B4B88A2A679301998A4C259E6466B01
 ```bash
 magnet:?xt=urn:btih:C21CD142F6E02604D0CEB3A699F71B20E0FFBC1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

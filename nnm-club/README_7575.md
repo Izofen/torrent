@@ -19,6 +19,8 @@ Fork 2.31 [En]
 magnet:?xt=urn:btih:708661D4AD6EEEF300A8137437A3D8ADE4E609D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:708661D4AD6EEEF300A8137437A3D8ADE4E609D5
 magnet:?xt=urn:btih:A84289C0DB8F2F685C03DD601697E3CD9EBFFD0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:A84289C0DB8F2F685C03DD601697E3CD9EBFFD0F
 magnet:?xt=urn:btih:2CCDEAE263FCBC7EFD6217444305E2908984D2FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:2CCDEAE263FCBC7EFD6217444305E2908984D2FB
 magnet:?xt=urn:btih:1C0708256008E0D022F547FBD71306EA64963000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:1C0708256008E0D022F547FBD71306EA64963000
 ```bash
 magnet:?xt=urn:btih:08FF35CE3C54FB8FC05E787569A67932F3CFC9A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:08FF35CE3C54FB8FC05E787569A67932F3CFC9A2
 magnet:?xt=urn:btih:8FE8AEA6010AE9684B03ABDACC1A85450D89B41C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ Cliff (Clifford) Jordan & John Gilmore - Blowing In From Chicago (1957) 2010, An
 ```bash
 magnet:?xt=urn:btih:3ABFDA2E3B28A6EECA2EB395B63E66CF634D5078
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ Bob Marley - Concert tribute to Bob Marley(+бонус) (1999) DVDRip
 magnet:?xt=urn:btih:A90C3BEDA923CCE74CB60AD17D1C8736A1BBAA84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ DiGelsomina - Sic Itur Ad Astra (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal
 ```bash
 magnet:?xt=urn:btih:6402697FB5BAD837693C8F6D0EE558BF798F675E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -255,6 +273,8 @@ Lauver - Celestial Bodies (2019) Past Inside the Present [FLAC 2.0|96/24|tracks|
 magnet:?xt=urn:btih:B091D6020E7321399C90905A0D3F54CD4F8E9039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ MindManager - позволяет преобразовать ваши идеи, �
 ```bash
 magnet:?xt=urn:btih:684BF3B939EEDFBD13EFD67297EA15755A356A84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +325,8 @@ CULTIC – ретро-шутер от первого лица, где вы сы�
 magnet:?xt=urn:btih:EF3D6A71F93E576218BB89349466F678DF2D613F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:EF3D6A71F93E576218BB89349466F678DF2D613F
 ```bash
 magnet:?xt=urn:btih:86E4760ED530AC6E6A0182A896E9C9C760CF0272
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ Tantrum - Another Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:856D4C173DBBAE189F7080FF2F8497AE749300D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ PGD/MV - Morvan (2019) Past Inside the Present [FLAC 2.0|44.1/24|tracks|WEB-DL] 
 magnet:?xt=urn:btih:57B5B2B1F1455705B88CA3D4F7E64982390B2C90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:57B5B2B1F1455705B88CA3D4F7E64982390B2C90
 magnet:?xt=urn:btih:33BD98D51CE4D8AD18C964859E46D2F065C326D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ magnet:?xt=urn:btih:33BD98D51CE4D8AD18C964859E46D2F065C326D6
 ```bash
 magnet:?xt=urn:btih:68C7FF448234485B1539E8A12DFB6421A3D8C691
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +490,8 @@ Banktivity (прежнее название iBank) - это серьезное �
 magnet:?xt=urn:btih:D56504809789A16A1A36709A63B20E3B0FA313C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:D56504809789A16A1A36709A63B20E3B0FA313C5
 ```bash
 magnet:?xt=urn:btih:632DB98057E860E997EF88650F363E516C86D444
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ Sevendust - Superficial Drug (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal
 magnet:?xt=urn:btih:417BEFF7D0DF36C6FB6A4689EED84913EC850F66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +570,8 @@ magnet:?xt=urn:btih:417BEFF7D0DF36C6FB6A4689EED84913EC850F66
 ```bash
 magnet:?xt=urn:btih:3FE2AFA545F008601A95EDAF56E03AD0754B568D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +600,8 @@ Alien Force - We Meet Again (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:D381D5DAA982B502D7C55D8C49D0B0128B5771B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +628,8 @@ Green Labyrinth - Sequences (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 ```bash
 magnet:?xt=urn:btih:0C0268C90CC8037035C75521BAC790C60CD036A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +658,8 @@ magnet:?xt=urn:btih:0C0268C90CC8037035C75521BAC790C60CD036A8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +687,8 @@ Alex Malheiros - Tempos Futuros (2021) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Ja
 magnet:?xt=urn:btih:4435DA09600035B70C38CAA4C99890F9E2EA6164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ magnet:?xt=urn:btih:4435DA09600035B70C38CAA4C99890F9E2EA6164
 ```bash
 magnet:?xt=urn:btih:39E2C61F3E61022B93A7B17C2C64355CA10CF044
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

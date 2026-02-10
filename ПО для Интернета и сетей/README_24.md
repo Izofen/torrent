@@ -21,6 +21,8 @@ SmartWhois - это удобное средство получения всей 
 magnet:?xt=urn:btih:F48EFA3BB0E7B9C2746E5C91AA547408BF10C50A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ WebCamMax - продвинутая утилита для работы с веб-
 ```bash
 magnet:?xt=urn:btih:6E59E53AE5EDF85E760850AEF67000909C2F2E16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ VK Messenger 4.3.0 (606) [Multi/Ru]
 magnet:?xt=urn:btih:72ABE034F7A50A17F5DC8C5C57D271C2FE410F40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ HTTP Analyzer - это сниффер перехватывающий в реал
 ```bash
 magnet:?xt=urn:btih:7F17D65E5A084A6E0A0F448D4A029E0D6187BA05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Cyberlink YouCam – простая программа для создания �
 magnet:?xt=urn:btih:5CF59A4FE7FB94EFD12ADE0A015FBC1B9CF7DF03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ BatWithParameters - бесплатное приложение для управ�
 ```bash
 magnet:?xt=urn:btih:024224CE8850FDA0EF1870C4C83F683E8CA57C08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ WireGuard – современный и не требовательный к р�
 magnet:?xt=urn:btih:CF7A5CB8D522FD0DE4E96DBAEC3B73611D82F617
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Aleo Flash Intro and Banner Maker - программа для любителей
 ```bash
 magnet:?xt=urn:btih:276E0C60FAD6FEC5A22ED483BD52362885241CF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Pocket Radio Player – программа для воспроизведения
 magnet:?xt=urn:btih:4FD71C277D9523434151B41A4A900EC1CF3937EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:4FD71C277D9523434151B41A4A900EC1CF3937EA
 ```bash
 magnet:?xt=urn:btih:07D606CA7F1D58D76E53F34B64A96E1C08791003
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ WiFi Password Revealer – полностью бесплатная утилит�
 magnet:?xt=urn:btih:61C4CA8C1E45AAA9F80BC04CF537DB62DFFDD9EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ OneDrive (ранее SkyDrive) - облачное хранилище, предн
 ```bash
 magnet:?xt=urn:btih:E9DB38A776A3A95C0FB8A366188779F328D51206
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ SerialDetector 4.3.1.0 [Ru] (Авторская раздача)
 magnet:?xt=urn:btih:C4B414165CD0115956E9C3CF8723E55A5C6334CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ UltraSurf 16.03 Final Portable [En]
 ```bash
 magnet:?xt=urn:btih:91EA934F222F68F4E9B06E82EAC5C24DFD10E1D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:91EA934F222F68F4E9B06E82EAC5C24DFD10E1D5
 magnet:?xt=urn:btih:92A799F639F4EBAA2A92DE940F5399A57C468AC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Smart WiFi Solution 2.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C380C8CB916353BECC2CAE202E30E81AC3C5B811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ WebcamMax - продвинутая утилита для работы с веб-
 magnet:?xt=urn:btih:312B274F1079BCCFF45489F57028D96CD310A0FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ VSO Downloader — это программа, которая автоматич�
 ```bash
 magnet:?xt=urn:btih:2843F5CB21338D06E7B66766FB5FB3A4A1DB296D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ WebCamMax - продвинутая утилита для работы с веб-
 magnet:?xt=urn:btih:DBD11930FAC2C761B15FA8290F70743C75FAFF3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ MailStyler – программа, которая позволяет вам со
 ```bash
 magnet:?xt=urn:btih:8F995DDAE5769928ADB9E861D9D94E12B6A59C38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Microsoft Silverlight - технология, разрабатываемая Mic
 magnet:?xt=urn:btih:E13CFC2C48ECF99D82B6AED1D6DEB2FB66B42015
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Mail.RU Agent - бесплатная программа для быстрого 
 ```bash
 magnet:?xt=urn:btih:9E188114197F2493273019AC80068D24CEF16BAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ TCP Optimizer является свободной, портативной про
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Trillian - кросс-платформенный, мульти-протокол�
 ```bash
 magnet:?xt=urn:btih:F9B5FB75E27C77C1E549EC12D7B380D1AA110834
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Cisco Systems VPN Client программное обеспечение для п
 magnet:?xt=urn:btih:5CCA85329F25979F4C0347D28CA2C880EC0DA3FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Ping Tester – это приложение, которое пингует IP и
 ```bash
 magnet:?xt=urn:btih:8C9449C3384C3B64499537B7FD962AF730656D07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

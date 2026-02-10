@@ -19,6 +19,8 @@ Totally Accurate Battle Simulator - сумасшедшая тактическа�
 magnet:?xt=urn:btih:02CA1EFF42AE2C301E0EA65DAB100865D119307A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kingdom's Deck (2025) [Ru/Multi] (1.1.3) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:622EF34317D7BA646ED9A5DCC3D53E0E64AE522F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Talisman: Digital 5th Edition (2024) [Ru/Multi] (Build 84407/dlc) Repack FitGirl
 magnet:?xt=urn:btih:DA0F22CCB29845E1C303A469DB38B3DA755EAA51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Stranded: Alien Dawn (2022) [Ru/Multi] (1.23.250612/dlc) Repack FitGirl [Premium
 ```bash
 magnet:?xt=urn:btih:3779843DF6607EFB7A2034FBE5A44F065F398C4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Synergy – это градостроительный симулятор в су
 magnet:?xt=urn:btih:6892C635FA1B500AD53027FD5E82DC1E0F498657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Workers & Resources: Soviet Republic / Workers and Resources: Soviet Republic (2
 ```bash
 magnet:?xt=urn:btih:9E1AE5917953F43E84EDAABF7F1BA0D3B6096A43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Stranded: Alien Dawn (2022) [Ru/Multi] (build 18840735) Repack seleZen
 magnet:?xt=urn:btih:6391BEBD807484B5D95CC3249E838C8A0DBE7437
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Yield! Fall of Rome (2025) [Ru/Multi] (1.0.1.3/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:1AF65510F65B0343BFB4AF08ED1E06A7DAFF5FB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Stranded: Alien Dawn (2022) [Ru/Multi] (1.23.250612) Scene Rune
 magnet:?xt=urn:btih:A315176BD7E5F0E36D6776541D5DEA0BA3B0D9E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Nordhold (2025) [Ru/Multi] (1.1.05/dlc) Repack Let'sРlay [Supporter Bundle]
 ```bash
 magnet:?xt=urn:btih:27CE9131BE6BC6899BACE478DD772DB0F25128B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Yield! Fall of Rome (2025) [Ru/Multi] (1.0.2.0) Repack Let'sРlay [Supporter Bun
 magnet:?xt=urn:btih:2F8213373EC9595836255774B4FF0EE207405B37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Yield! Fall of Rome (2025) [Ru/Multi] (1.0) Scene Rune
 ```bash
 magnet:?xt=urn:btih:1A159C1E5F6F662D16FD6278C0EE019357F4E8CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Coral Island – классический симулятор фермы, пер�
 magnet:?xt=urn:btih:755974C6A3AB9A50683C590B5C7033DF7D94F185
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Foundation: Новая эра в средневековых строительн
 ```bash
 magnet:?xt=urn:btih:BD3579DB73EAAD663B1C82542EBBD499B5652EB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Dust Fleet (2023) [Multi] (6.4.5) License GOG
 magnet:?xt=urn:btih:CBC6686A577A1796659DD06F377607E8956ABAD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Yes, Your Grace 2: Snowfall - кинематографичная игра про
 ```bash
 magnet:?xt=urn:btih:978C1AB36B57B9F05008A4CAA328869CB059455B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Roller Coaster Tycoon 2 / Мир Аттракционов [Ru] (RePack) 2002 | P
 magnet:?xt=urn:btih:2D66AD1E9A390DF53097F9AA35C708A145B1E161
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Inkshade (2025) [En] (1.0.004) Repack AIexandro
 ```bash
 magnet:?xt=urn:btih:C142AF1A5AF0644C867D798F0D23EBF6643E0A8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Black Forest (2016) [Multi] (2.4) License GOG
 magnet:?xt=urn:btih:0A6338448B1100F621C47712AB98507FC0ABD278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Into the Emberlands (2024) [Ru/Multi] (1.1.0f3/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:07539FBC34427C392ABEC9D303E35BA002A688DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Odd Realm – это игра, объединяющая как стратеги�
 magnet:?xt=urn:btih:6BC7454B4E5FD7F346DDBC9B5338881820F41DD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Tiny Witch (2023) [Ru/Multi] (1.1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:159C47982950E702BD207BBBB28F02E24A476A66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Terra Nil – градостроительный симулятор-песочн
 magnet:?xt=urn:btih:BF57787063347E63FA41C9BA34E69A0FB73AC5DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Emergency-игра, представляющая собой RTS, где вы б�
 ```bash
 magnet:?xt=urn:btih:572D4A68458F254768D5EA0C91D65CDC34EB5704
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Endzone 2 - постапокалиптический градостроител�
 magnet:?xt=urn:btih:84D8AE4C2731B179F449DDE2FAB599EA523F79BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Endzone 2 бросает вас в самую гущу постапокалип�
 ```bash
 magnet:?xt=urn:btih:B4C30D6C86F77DD472C0EAFB26B8D596726CD0C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:FC473FF9CC561AB64AA285DD67A86C1B03DE4FAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Francesco Marras - Out Of The Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Ro
 ```bash
 magnet:?xt=urn:btih:F8861DE5DD04595555EEC16ECD73D6087CA1D41E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Abdullah Ibrahim - Dollar Brand Plays Sphere Jazz (1960) 2015, Phono [FLAC|Lossl
 magnet:?xt=urn:btih:FD32A25B5F3578BF21761A55DF0165999D62C572
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:FD32A25B5F3578BF21761A55DF0165999D62C572
 ```bash
 magnet:?xt=urn:btih:19C171E8630529261294850F4534E9E3D70EA1C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:19C171E8630529261294850F4534E9E3D70EA1C8
 ```bash
 magnet:?xt=urn:btih:FAF86065EEBDADE5E4689DD765B0A0F753A1179D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ Ernestronix (Ernesto) - Synths Earth Orbit (Mission Alpha) (2025) [MP3|320 Kbps]
 magnet:?xt=urn:btih:C170F0759334187FDB344FCA3EBC64177483D5AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ Dionigi - Space Disco (2021) [MP3|320 Kbps] <Deep-House, Nu-Disco>
 ```bash
 magnet:?xt=urn:btih:13BE0CE97AE9FDE70FBBB7520E011EE87587B67E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -207,6 +221,8 @@ VA - Spacesynth.de Contest TraxX (2007) [MP3|320 Kbps] <Spacesynth>
 magnet:?xt=urn:btih:B95FFD44CAD62D54A3702FCDC48573C7BA5DB8A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ TRANSFORMATION Special
 magnet:?xt=urn:btih:B234B555107197AC8855A0E1CFC18DD6E3030F84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -257,6 +275,8 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:B92E5615CB97FB2CC4A3CC5145D3A7ABB28A4C68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +305,8 @@ magnet:?xt=urn:btih:B92E5615CB97FB2CC4A3CC5145D3A7ABB28A4C68
 magnet:?xt=urn:btih:029ACE21F74A90424547A1554A0F3B223DE033BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +333,8 @@ Dionigi - Hot Oxygen (2021) [MP3|320 Kbps] <Deep-House, Nu-Disco>
 ```bash
 magnet:?xt=urn:btih:133A39351A92FC95882A0C9183FDFC6209BAE55A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +363,8 @@ magnet:?xt=urn:btih:133A39351A92FC95882A0C9183FDFC6209BAE55A
 magnet:?xt=urn:btih:8B795AFB1E752DE931E4C7A63BEEB19C60BC9784
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +388,8 @@ magnet:?xt=urn:btih:8B795AFB1E752DE931E4C7A63BEEB19C60BC9784
 ```bash
 magnet:?xt=urn:btih:0E162E682ECB738BBB97550ADA3F0C361A5EC21B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +418,8 @@ magnet:?xt=urn:btih:0E162E682ECB738BBB97550ADA3F0C361A5EC21B
 magnet:?xt=urn:btih:61A15045C678DB7B44DDD83F20729B3A92850742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +446,8 @@ Abdullah Ibrahim - Water From An Ancient Well (1985) 1992, Enja [FLAC|Lossless|t
 ```bash
 magnet:?xt=urn:btih:F61A6EC26961508066350B688FC8AB13E4E553F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +476,8 @@ Ulcerate - Cutting The Throat Of God (2024) [FLAC|Lossless|image + .cue] <Death 
 magnet:?xt=urn:btih:B0B40709FBB7B4652BCBAD616A06B71A39D86981
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +502,8 @@ magnet:?xt=urn:btih:B0B40709FBB7B4652BCBAD616A06B71A39D86981
 ```bash
 magnet:?xt=urn:btih:F1C021568EB06340BBF8DF1B186CE01A2130446B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +532,8 @@ Joanie Sommers & Laurindo Almeida - Softly, The Brazilian Sound (1964) 2013, War
 magnet:?xt=urn:btih:B5EC9F680441C492DA0AAEF57666ED0BC1217ECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +561,8 @@ Michael Weiss Quartet - Power Station (1997) DIW Records [FLAC|Lossless|tracks +
 magnet:?xt=urn:btih:7B0CA7CE673C4A5ACE6FDD42A125BD56D14503D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +587,8 @@ magnet:?xt=urn:btih:7B0CA7CE673C4A5ACE6FDD42A125BD56D14503D3
 ```bash
 magnet:?xt=urn:btih:234CFD41B6948EBB46B0DDFC4D4AF14063894A10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +617,8 @@ VA - Modern 80's - The Best Of Discopop Vol.2 (1999) 2 CD [OGG Vorbis|480 Kbps] 
 magnet:?xt=urn:btih:75D0EE7BEDCFFDF143D43F23CBDBB15AE0235379
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +642,8 @@ Photo Studio — не просто приложение для редактир�
 ```bash
 magnet:?xt=urn:btih:865D3B7896BB83AA304A500FF9E3BB0A4C6A2F21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +669,8 @@ magnet:?xt=urn:btih:865D3B7896BB83AA304A500FF9E3BB0A4C6A2F21
 magnet:?xt=urn:btih:9737ACC0B681ADD45566665941B87BBC02E742C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +694,8 @@ GeoGebra — мультиплатформенная программное об�
 ```bash
 magnet:?xt=urn:btih:7A09371FA5A7B427FC7274FB22F885B5B9964A35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +722,8 @@ magnet:?xt=urn:btih:7A09371FA5A7B427FC7274FB22F885B5B9964A35
 ```bash
 magnet:?xt=urn:btih:8E19528B1ACB40697A3DB6DDF246D2D8A638D736
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

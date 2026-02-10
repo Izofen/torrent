@@ -19,6 +19,8 @@ LEX LIVE 10 2022 - портативная операционная систем�
 magnet:?xt=urn:btih:3CA7D3EE4A3D9A5C68734047517EDE7305E3E886
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ LEGO Batman 3: Beyond Gotham (2015) [Ru/Multi] (1.6/dlc) License GOG [Premium Ed
 magnet:?xt=urn:btih:B6F01B875408ECC1B91D1C7DE1B9A4D3BC75D376
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:B6F01B875408ECC1B91D1C7DE1B9A4D3BC75D376
 ```bash
 magnet:?xt=urn:btih:E77E3DF8592D0FD5720C02E2E372B9310390D025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Johnny Hates Jazz - Wide Awake (2020) [FLAC|Lossless|tracks + .cue] <Electronic,
 magnet:?xt=urn:btih:5A176F5F8EC0EF50C96405AB4C7CA91094E648E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Tor Browser Bundle 11.5.8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:54D00E73338921A90FED415A2FA56F9E3B2ED8E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:54D00E73338921A90FED415A2FA56F9E3B2ED8E6
 magnet:?xt=urn:btih:DEC2E5F5497B975DF7E8F021060911F7C2CFFFAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ magnet:?xt=urn:btih:DEC2E5F5497B975DF7E8F021060911F7C2CFFFAC
 ```bash
 magnet:?xt=urn:btih:F69A81E80431CA3680955919A2D01499C0E663AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ MiniTool Partition Wizard Free — бесплатный менеджер раз�
 magnet:?xt=urn:btih:C78FE13DB9EE04F89E6FA6BABD66A0984EDA2632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:CB73483657651DEE008CCA8BDB4C19CD997F3C08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ BIT.TRIP Presents... Runner2: Future Legend of Rhythm Alien (2013) [En] (2.0.0.3
 magnet:?xt=urn:btih:1DAA57C51EC032D83744BD998B362ADD34708562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:1DAA57C51EC032D83744BD998B362ADD34708562
 ```bash
 magnet:?xt=urn:btih:A315795F4495B2CFE1DA49462EB12D2FEA1A3EAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Martin Simson’s Destroyer of Death - Eternal Reign (2023) [FLAC 24/48|Lossless
 magnet:?xt=urn:btih:C4A00286A0FB36A6B151A9FC4E3EF766B93525E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:C4A00286A0FB36A6B151A9FC4E3EF766B93525E9
 magnet:?xt=urn:btih:C1FB7211E79BB45FA7AC6AB00E52AD40306BAE94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:C1FB7211E79BB45FA7AC6AB00E52AD40306BAE94
 ```bash
 magnet:?xt=urn:btih:B457BACF0294562551E48E8FB8AEFDC874D6296A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:B457BACF0294562551E48E8FB8AEFDC874D6296A
 magnet:?xt=urn:btih:7DBC8B91CC9CB1655C46D55A7B3FF10CCB331BA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:7DBC8B91CC9CB1655C46D55A7B3FF10CCB331BA6
 ```bash
 magnet:?xt=urn:btih:59658FE7351328A4527CCE0D3247A93A7BE06F27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ Grease Can - The State We're In (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:34C82F96360F049BE6CD9410F11E4D49BC3A5B35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:34C82F96360F049BE6CD9410F11E4D49BC3A5B35
 magnet:?xt=urn:btih:F92D04A5080A5FB1F0F1F441AEF65961629938BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:F92D04A5080A5FB1F0F1F441AEF65961629938BD
 ```bash
 magnet:?xt=urn:btih:B038C0F6172D32EB2A94CD6C1B128E62C28D0847
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:B038C0F6172D32EB2A94CD6C1B128E62C28D0847
 magnet:?xt=urn:btih:F384F9ADBEE0A25522D05908513AA5C24607E221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:F384F9ADBEE0A25522D05908513AA5C24607E221
 ```bash
 magnet:?xt=urn:btih:3D4F21907A0B1F31555E80C233F2B3A01A86F5E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:3D4F21907A0B1F31555E80C233F2B3A01A86F5E9
 magnet:?xt=urn:btih:AEBDC5701657FBEAF6B527B0C625DEA8848DD705
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:AEBDC5701657FBEAF6B527B0C625DEA8848DD705
 magnet:?xt=urn:btih:C187987C8A62E3161CFE28D8510166199EBA7DE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ R-Studio Technician 9.1 Build 191061 RePack (& portable) by Dodakaedr [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0AECDE00ABE48B82B733013615CD11115BAAC0AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:0AECDE00ABE48B82B733013615CD11115BAAC0AA
 ```bash
 magnet:?xt=urn:btih:557975492F15F361521E5B75DAD6438DDDCC9802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +690,8 @@ KeyKey v.2.9.5 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:F27BF24F7A8B1016DD083314B90A07DE49E68732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

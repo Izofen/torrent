@@ -20,6 +20,8 @@ Pennygiles - Want The Girl / Wanderlust (2015) EP [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:11178AA9617AB71D61B50D1754D059CABBD3A423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:11178AA9617AB71D61B50D1754D059CABBD3A423
 ```bash
 magnet:?xt=urn:btih:406CFE9C8BE793EA143E04A67B526F65419EA323
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:406CFE9C8BE793EA143E04A67B526F65419EA323
 ```bash
 magnet:?xt=urn:btih:1A8F8E6CBA4C83EE09AC55E0094CC91CCEDAD1BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Bert Kaempfert & sein Orchester - Seine größten Erfolge (1993) [FLAC|Lossless|
 magnet:?xt=urn:btih:836BC4E9626B1EDB1820EE10DF122E5BD42B8C7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:836BC4E9626B1EDB1820EE10DF122E5BD42B8C7F
 ```bash
 magnet:?xt=urn:btih:FA337E303111F358203EEFA2C4D63224EB10D18C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ VA - Music For Everyone - Glitch Hop Vol.1 (2016) [MP3|320 Kbps] <Glitch Hop>
 magnet:?xt=urn:btih:A5C5CBED21EDA0DA9AD341BA876C014A3650B1DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ The Jive Aces - Spread A Little Happines (2015) [FLAC|Lossless|image + .cue] <Ne
 ```bash
 magnet:?xt=urn:btih:7935D3A468003911701CEB4F8D25F0415DBB720A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ Votum - Metafiction (2009)  [FLAC|Lossless|image + .cue]<Progressive Metal>
 magnet:?xt=urn:btih:FC3529451514C6D615536E0F9D469E6F81E71BF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:FC3529451514C6D615536E0F9D469E6F81E71BF9
 ```bash
 magnet:?xt=urn:btih:5AE563D19EF4F0CB7A3F9F418440F23681B5E2E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ VA - Hotel Rouge Vol 14 - Lounge And Chill Out Finest (A Special Rendevouz With 
 magnet:?xt=urn:btih:EA5B6C8717959CFEB9F479E33E4932F47D5E0D5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ VA - EDM Collection [Compiled by Zebyte] (2016) [MP3|320 Kbps] <EDM>
 ```bash
 magnet:?xt=urn:btih:2B41F1ED9724066D8D7CBECDDBBFA344E5153285
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ VA - Best Driving EDM 2017 (2016) [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:288CA263F670B399B5D541AF7ACFC953522C9E19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ VA - Timeless 15th Anniversary Sampler (1991) Timeless Records[FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:E8CAC110F54C7BE7E26B417FD339B2A6985374FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +386,8 @@ VA - Deep Chill Vol.1 (Deep Relaxing Down Beats) (2016) [MP3|320 Kbps] <Chillout
 magnet:?xt=urn:btih:AD0C8EA73AA630BD0A538D0D70362A18F7FB58D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ magnet:?xt=urn:btih:AD0C8EA73AA630BD0A538D0D70362A18F7FB58D0
 ```bash
 magnet:?xt=urn:btih:01670B11D839B72B0B32014C0D355E27F5522FFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +444,8 @@ magnet:?xt=urn:btih:01670B11D839B72B0B32014C0D355E27F5522FFF
 magnet:?xt=urn:btih:C82F4D6F4BDD80EC0277548768634BBCDBF2E1ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +472,8 @@ VA - Who's Gonna Drive You Home Tonight (25 Deep-House Weekenders) Vol.5 (2016) 
 ```bash
 magnet:?xt=urn:btih:07F5F8AF4CC590E155BA67907E256202E46F6B2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +502,8 @@ VA - Electro Fever 2016-2017 (by FG) (2016) [MP3|320 Kbps] <Electro>
 magnet:?xt=urn:btih:3F80B6420E5819C1FB3123D27862D6C9F144B2EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +531,8 @@ magnet:?xt=urn:btih:3F80B6420E5819C1FB3123D27862D6C9F144B2EA
 magnet:?xt=urn:btih:1A18B19780A26AE59700EE832EAEA97595B04EBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +559,8 @@ magnet:?xt=urn:btih:1A18B19780A26AE59700EE832EAEA97595B04EBE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +584,8 @@ The Doors - Live In New York [6CD BOX SET] (2009) [MP3|320 kbps]<Psychedelic Roc
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +620,8 @@ Lusine - A certain distance (2009) [MP3|~227 kbps]<IDM/Leftfield>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +648,8 @@ Lusine - A certain distance (2009) [MP3|~227 kbps]<IDM/Leftfield>
 ```bash
 magnet:?xt=urn:btih:D6FA54BE286AF626D15EA26FC5E81DA2760BB88C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +678,8 @@ Benny Goodman - Swing, Swing, Swing (1935-1938) 1992, RCA Camden[FLAC|Lossless|i
 magnet:?xt=urn:btih:882AC47AC89B64FED496B4F8C7D95FFF80698CC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +707,8 @@ magnet:?xt=urn:btih:882AC47AC89B64FED496B4F8C7D95FFF80698CC3
 magnet:?xt=urn:btih:16F87DD9F070C83BFB1B55CCA31A1439968C673F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -685,6 +735,8 @@ magnet:?xt=urn:btih:16F87DD9F070C83BFB1B55CCA31A1439968C673F
 ```bash
 magnet:?xt=urn:btih:704DDA6FC31BA35B891FFAC7BDD683658B359B38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1058184   (471434) от 30.09.2016
+
+В центре событий с Анной Прохоровой (30.09.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_471434.jpg" />
+</div>
+
+
+###  Подробнее
+
+"В центре событий" о том, что действительно важно: 1. Сдают нервы. Что стоит за внешнеполитической истерикой Саманты Пауэр? 2. Демагог и бизнесмен. Первая дуэль Клинтон и Трампа. 3. Пляски на гробах. Софийский собор готовится встретить Евровидение.Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 00:52:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:847C9123D3EA43C33EE79B6D70B53207C761CC1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 940055   (471461) от 23.09.2015
 
 Самые шокирующие гипотезы. Рыбы тоже люди  (23.09.2015) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:D57586BA2355D443B11AFFF48938E2530A90D7B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:D57586BA2355D443B11AFFF48938E2530A90D7B3
 magnet:?xt=urn:btih:328EE72140E5411DB54C7E4D85F2FBFD4E8F7AE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:328EE72140E5411DB54C7E4D85F2FBFD4E8F7AE1
 magnet:?xt=urn:btih:3B1D951176262255A004D6CE52EEF4547C0FBD59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:3B1D951176262255A004D6CE52EEF4547C0FBD59
 ```bash
 magnet:?xt=urn:btih:2A041B1DFE9D4D8667B40A4557F58C5658F05DA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:2A041B1DFE9D4D8667B40A4557F58C5658F05DA2
 magnet:?xt=urn:btih:9D67629D869550B8511DB11F21DA6596AF01C0D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:9D67629D869550B8511DB11F21DA6596AF01C0D6
 magnet:?xt=urn:btih:7B32AB04748E9E3F697C1BC333D2607B972101F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:7B32AB04748E9E3F697C1BC333D2607B972101F2
 ```bash
 magnet:?xt=urn:btih:984B73070DFAD43634D48BA49F7957033F8934D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:984B73070DFAD43634D48BA49F7957033F8934D2
 magnet:?xt=urn:btih:AE582AC3EEA42194526B4C15526DBE0072946600
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +259,8 @@ magnet:?xt=urn:btih:AE582AC3EEA42194526B4C15526DBE0072946600
 magnet:?xt=urn:btih:C5EA22C8E79468F4A8BDCB832C8CC1855121C7A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:C5EA22C8E79468F4A8BDCB832C8CC1855121C7A3
 ```bash
 magnet:?xt=urn:btih:56600584936BDA5A747B2D18D891B2171A68E3DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:56600584936BDA5A747B2D18D891B2171A68E3DA
 magnet:?xt=urn:btih:13549F239D1CF2C16119AE33E70B25036068B844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:13549F239D1CF2C16119AE33E70B25036068B844
 ```bash
 magnet:?xt=urn:btih:CCBB89760FC6B220E4F69882255F3D1FDFBC01E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:CCBB89760FC6B220E4F69882255F3D1FDFBC01E1
 magnet:?xt=urn:btih:4F158FBC5337B9020439117762517A5398A6598D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:4F158FBC5337B9020439117762517A5398A6598D
 ```bash
 magnet:?xt=urn:btih:898CF2A37AFEB002F600493A68965B57E61FC8B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:898CF2A37AFEB002F600493A68965B57E61FC8B7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:898CF2A37AFEB002F600493A68965B57E61FC8B7
 ```bash
 magnet:?xt=urn:btih:510FE96ADFF67B7FF3D52691277EC7BA5C9CE60B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:510FE96ADFF67B7FF3D52691277EC7BA5C9CE60B
 magnet:?xt=urn:btih:8DE209626DC33D598B86F15843F4EAA19F3D443D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:8DE209626DC33D598B86F15843F4EAA19F3D443D
 magnet:?xt=urn:btih:98965A57B58B05F818DA5353FAB0AE6365C98A25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:98965A57B58B05F818DA5353FAB0AE6365C98A25
 ```bash
 magnet:?xt=urn:btih:32E527880FB310A8D86EA67F2FD0353BCF688039
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:32E527880FB310A8D86EA67F2FD0353BCF688039
 magnet:?xt=urn:btih:E0582491C88B9F3630C41F624E6CE62DF054D209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:E0582491C88B9F3630C41F624E6CE62DF054D209
 ```bash
 magnet:?xt=urn:btih:49A298E253A45D9B1FFAE3A6C27607F7CBADB39F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:49A298E253A45D9B1FFAE3A6C27607F7CBADB39F
 magnet:?xt=urn:btih:69F534FB4C4EAD08CF0D944DE291621636F866F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:69F534FB4C4EAD08CF0D944DE291621636F866F0
 ```bash
 magnet:?xt=urn:btih:27C3B21D64590153FD936B22A2E7EF50E8529D5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:27C3B21D64590153FD936B22A2E7EF50E8529D5E
 magnet:?xt=urn:btih:8BF85A4C86E2D8BABA00B4F18502A2A897E6B6AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:8BF85A4C86E2D8BABA00B4F18502A2A897E6B6AD
 magnet:?xt=urn:btih:B9136B53B0996C8F3A27036502541115B4352438
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057827   (473289) от 29.09.2016
-
-Время покажет (29.09.2016) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473289.jpg" />
-</div>
-
-
-###  Подробнее
-
-В студии программы «Время покажет» обсуждают то, что волнует каждого из нас, жителей России. В дискуссии принимают участие как эксперты – политики, политологи, журналисты, предприниматели, так и просто неравнодушные россияне.Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCDF376820E2EF2A7835253C7C0097765454C616
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:F38B7679133DD20E06CC2853EECF2B9F21C612A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:F38B7679133DD20E06CC2853EECF2B9F21C612A5
 ```bash
 magnet:?xt=urn:btih:401DCAFBE3DA156527B66582DFF2FEBA0E0AABE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:401DCAFBE3DA156527B66582DFF2FEBA0E0AABE4
 magnet:?xt=urn:btih:2DE958491C15EEB35B00B717598865927C74D528
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:2DE958491C15EEB35B00B717598865927C74D528
 ```bash
 magnet:?xt=urn:btih:97E8A5305C2F81A4B06751A621031F2B921016DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ The Papriks - Хиты на лопате (2020) [MP3|320 Kbps] <Ska, Rock>
 magnet:?xt=urn:btih:5C28CC6BF23253E343D84FCF0851C671C0A38AA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:5C28CC6BF23253E343D84FCF0851C671C0A38AA1
 magnet:?xt=urn:btih:111F87DF2212C93DA4F820C8E754256D7AC91B14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:111F87DF2212C93DA4F820C8E754256D7AC91B14
 ```bash
 magnet:?xt=urn:btih:6133BDFA43A023E2B4BD13333640123ED338743F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ St.Vagina Dentata - Скотобаза (2019) [FLAC|Lossless|WEB-DL|tracks] <Alt
 magnet:?xt=urn:btih:3F44CB53784CABB060BFC141B567FF50313B9DE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ Paul Butterfield - North South (1980) Reissue, 2006, Wounded Bird Records [FLAC|
 ```bash
 magnet:?xt=urn:btih:E362A0CCB0415141656614F694CD252ADB48BD4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -252,6 +270,8 @@ Symakya - Project 11: The Landing (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:3D29EBB5E4FAF3243DCBBC586861CD33CB75FF03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:3D29EBB5E4FAF3243DCBBC586861CD33CB75FF03
 ```bash
 magnet:?xt=urn:btih:13FB7F8FB95F68C58A5CBDC629D6EFDD9A84558A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ Eunuchs - Harbour Century (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Art Rock>
 magnet:?xt=urn:btih:1758C22ED882FCD71236E6AB90ED2F51BE0DE855
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ Dave Brubeck - All The Things We Are (1973, 1974) 2007, Atlantic [FLAC|Lossless|
 ```bash
 magnet:?xt=urn:btih:F713995C64D28D4394969D48A0B83F63138D97A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +386,8 @@ VA - Lush Piano (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:3940EB7C6670C311C731316EFBA54C964103A009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +414,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:D3A0AEADB92A859AF8D86277449E7C5F2CEE4AE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +439,8 @@ magnet:?xt=urn:btih:D3A0AEADB92A859AF8D86277449E7C5F2CEE4AE8
 ```bash
 magnet:?xt=urn:btih:1116CA9FA8FED4E6D3CA942ABC8B686B82D75A6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +467,8 @@ magnet:?xt=urn:btih:1116CA9FA8FED4E6D3CA942ABC8B686B82D75A6E
 magnet:?xt=urn:btih:BD0A05AD003B32AB001EA0500977C09944D4292C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ magnet:?xt=urn:btih:BD0A05AD003B32AB001EA0500977C09944D4292C
 ```bash
 magnet:?xt=urn:btih:F759ED338DC9247EF003082DA5838396AB0F31A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +521,8 @@ magnet:?xt=urn:btih:F759ED338DC9247EF003082DA5838396AB0F31A8
 magnet:?xt=urn:btih:9845A6EE494EED5490A5C17F17F973A6F865805E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +548,8 @@ magnet:?xt=urn:btih:9845A6EE494EED5490A5C17F17F973A6F865805E
 ```bash
 magnet:?xt=urn:btih:9A6F50F2F87023ADD02C67F288627A8EC00045B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +578,8 @@ Gentle Giant - Three Friends (1972) Reissue, 1989, Columbia [FLAC|Lossless|image
 magnet:?xt=urn:btih:61B25DDDFC443B6F95AC4C01FDD4BB2BFA0FB394
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ magnet:?xt=urn:btih:61B25DDDFC443B6F95AC4C01FDD4BB2BFA0FB394
 ```bash
 magnet:?xt=urn:btih:5282F1CDDB3D95EC9C6CF411C10D5D0AC3B89FB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +630,8 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 magnet:?xt=urn:btih:82D4956EEC32DCBD339977672C60EB905293E8C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:82D4956EEC32DCBD339977672C60EB905293E8C0
 magnet:?xt=urn:btih:4564F09DB0A9E32FCEF28D15402C502E7775EC87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:4564F09DB0A9E32FCEF28D15402C502E7775EC87
 ```bash
 magnet:?xt=urn:btih:05E15FF51D389634837CF577C45110123BED4E3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +709,8 @@ magnet:?xt=urn:btih:05E15FF51D389634837CF577C45110123BED4E3C
 ```bash
 magnet:?xt=urn:btih:96605F32607D96C8D07E1D9060B8EDC70BEB81C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

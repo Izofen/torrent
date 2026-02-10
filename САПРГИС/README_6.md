@@ -19,6 +19,8 @@ Sprint-Layout 6.0- простая программа для создания д�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ AutoCAD Electrical – это AutoCAD для проектировщиков эл
 ```bash
 magnet:?xt=urn:btih:89FCAE723C0F6FD2A856B84F6FECD4B9589523E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ AutoCAD Plant 3D применяется для проектирования те
 magnet:?xt=urn:btih:AF787FA4FC673EC728EADF5D6FFA5B29F72FCD66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ AutoCAD MEP – это AutoCAD для проектирования отопит�
 ```bash
 magnet:?xt=urn:btih:94C4F3C7037A325FAA3BB0FA33F28A7A2B405426
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Autodesk AutoCAD Map 3D 2021 [Ru]
 magnet:?xt=urn:btih:FCAFD6C6C2026FCC2D4C7D11AD3DE1E1B7F5744D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:FCAFD6C6C2026FCC2D4C7D11AD3DE1E1B7F5744D
 ```bash
 magnet:?xt=urn:btih:84315B96C5559201032296DD8939D2E7ABA60416
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Abacom Electronics Software 31.01.2017 RePack (& Portable) by Robby [Ru/En]
 magnet:?xt=urn:btih:5C72B8F9046EC949087CAE8E9A35CB8EDAA72016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ PowerSIM это мощное программное обеспечение дл�
 ```bash
 magnet:?xt=urn:btih:0E9EC6A9AB0A1FFF1FF117B6A8F59A75316F2DCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ ProgeCAD Professional - универсальная САПР для 2D черче
 magnet:?xt=urn:btih:AC02B5DB968079FD901866969CB52DCC00046CC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Altera Quartus II 7.2 Build 175 [En]
 ```bash
 magnet:?xt=urn:btih:DE051A3A8A498ED2864F31DC1B014AF74B998C70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Global Mapper — программа для просмотра, редактир
 magnet:?xt=urn:btih:E0BC248A051D09F8B5EF05F2A2BABB96A49F5455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ AutoCAD – это больше, чем проектирование. Прида
 ```bash
 magnet:?xt=urn:btih:87EC00E0CD86DF40E9BD8D2ABA296330F6F124A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ LiraLand LIRA-SAPR + SAPFIR (ЛИРА-САПР + САПФИР) 2015 R4 [Multi/Ru
 magnet:?xt=urn:btih:550E43AA209F50FE6E8177576957300662D4BB07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ CorelCAD 2021 – САПР-решение профессионального у�
 ```bash
 magnet:?xt=urn:btih:3F549521E3CDBE92A151278E9B0BEDC95E2423E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Apowersoft CAD Viewer - это удобная в работе САПР прог�
 magnet:?xt=urn:btih:0510EBD8B5F09BA9D44F8F2484A3D8E1D3649345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ ArcGIS Pro, мощное приложение ГИС для одного раб�
 ```bash
 magnet:?xt=urn:btih:2B3F2597907B8710AD75AADF4C39ACA3DDFC905E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ MapInfo Professional - географическая информационная
 magnet:?xt=urn:btih:267560CD41685D43FD3F7F599CC3690A47EB247E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ ArcGIS Pro, мощное приложение ГИС для одного раб�
 magnet:?xt=urn:btih:27263B6991AAB31552EAC9BFCBFD636BAF5921E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Nemetschek Vectorworks - система для автоматизации раб
 ```bash
 magnet:?xt=urn:btih:5A25DFF26B8AADC354ABAADA8AACE7408294BE62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Golden Software Surfer отличает богатое разнообразие�
 magnet:?xt=urn:btih:96C31B917A70D20CF4CB53A4F51E5E2462229594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Synplify - одно из лучших в отрасли средств RTL си�
 ```bash
 magnet:?xt=urn:btih:3FAB807F89798A0DC0E107DE871CED775A8B7FCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ OpenSCAD – немногочисленная категория програм�
 magnet:?xt=urn:btih:06AC579B45E4162FA3C8452C187E82CF133FB0E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Apowersoft CAD Viewer. Простое в использовании, но пол
 ```bash
 magnet:?xt=urn:btih:1595F97F96B4E36E9B2833BF977D3E99260680E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Proteus Professional — пакет программ для автоматизи
 magnet:?xt=urn:btih:80A531AA6A190D9F4EC353499337F8D3CB7176D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Zuken CADSTAR 16.0 [En]
 ```bash
 magnet:?xt=urn:btih:8570317F81064EDA191699D81661A34C7602A635
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +675,8 @@ AutoCAD является мировым лидером среди решений
 ```bash
 magnet:?xt=urn:btih:10095D322D405CC27576428F456DD06A4BBBD67C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

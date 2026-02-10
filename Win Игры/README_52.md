@@ -19,6 +19,8 @@ Roboquest - динамичный Шутер от Первого Лица с эл
 magnet:?xt=urn:btih:1A8D656557FDF53133CE93EE5DB5D653EE4736DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Archons - это Roguelite, Survivor-игра, в которой вы управ
 ```bash
 magnet:?xt=urn:btih:D0BAA443D6BB82A5156A3A33633D165BEC32A0B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Moroi предлагает геймплей, включающий сражени
 magnet:?xt=urn:btih:45449E45445431911E4E488303DD7D0945CBD110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Roboquest - это динамичный рогалик от первого ли�
 ```bash
 magnet:?xt=urn:btih:D677B53BE779F84AB63BB10D06CA2D2FEE8049C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ DuckTales: Remastered - это красочный, нарисованный вр
 magnet:?xt=urn:btih:39B77F153E275E4FA4857E505B209FA9675CAFC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NOBUNAGA'S AMBITION: Awakening (2022) [Multi] (1.1.6/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:1946453A6C6695ECFDDC9D92FF2CA9DDEF6C379A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ KIBORG (2025) [Ru/Multi] (20 2.50. 5_31: 0:01) Repack Other s
 magnet:?xt=urn:btih:D0E62D02DDFB059115B696404B91242D1F99893C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Kaodi - это короткая история о шрамах, которые �
 ```bash
 magnet:?xt=urn:btih:1B140767A757DADAAA742E6CBA8DECC670DAF71E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Song of The Prairie - это трехмерная фермерская игра.
 magnet:?xt=urn:btih:47705C82FADD90C7F2206773C799154BEACBAF89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Of Blades & Tails (2022) [Ru/Multi] (1.1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:B4E08E35403674119B54A2F68C0B0F6CC19CCCEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Last Vanguard - шутер-платформер в жанре метроидва
 magnet:?xt=urn:btih:EC6FEA2F19F29E25D856BC9099B43BA3A0EAA2C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Last Train Home (2023) [Ru/Multi] (1.0.0.32413/dlc) Repack Let'sРlay [Digital D
 ```bash
 magnet:?xt=urn:btih:128E1615247F19E867A08023B1BB3A24326843F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ ContractVille (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:E35F2792964096DE56C6B00B4EFCA9362EC81649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Farming Simulator 25 (2024) [Ru/Multi] (1.9.0.1/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:F6E3E57956756A8A68CFCDFA5E5B862252A7BD36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Risk of Rain 2 (2020) [Ru/Multi] (1.3.9/dlc) Repack Pioneer
 magnet:?xt=urn:btih:2D386B19A7C710BDD5F6766C019C27C4900F6E22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ SpellForce: Conquest of Eo (2023) [Ru/Multi] (01.10.31971/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:7455CF4A0F00A6563783437E38872F946583C244
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Captain Blood / Приключения Капитана Блада (2025) [Ru/Mu
 magnet:?xt=urn:btih:66D5BEDF78684A0E9D00274166FEF59976A97FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ CYGNI: All Guns Blazing (2024) [Ru/Multi] (1.000.004) License GOG
 ```bash
 magnet:?xt=urn:btih:D35CB3C2FF61142E7D79BFFC80525117E0CE28F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ inZOI - игра в жанре симулятора жизни, в которо�
 magnet:?xt=urn:btih:A023C264D66EF87C63DB1F07BA35FE040B34B7BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Contraption Maker - головоломка, опирающаяся на зако
 ```bash
 magnet:?xt=urn:btih:338AFAD47A97EE4EC3B5D704535273CF4D153E1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Space Haven (2020) [Ru/Multi] (0.20.0.29) License GOG [Early Access]
 magnet:?xt=urn:btih:2B6F65F0C1AAE7407FD65C43E4579BFFB9AF6E25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Terra Invicta (2022) [Multi] (0.4.90) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:D1B04B8039621926F1BBF39003ADA24B555C8D5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Caves of Qud – игра в жанре рогалик с необычной с�
 magnet:?xt=urn:btih:7BA94485A3BA67DFA7A2E93DEE780056A950C2A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Sims 4 (2014) [Ru/Multi] (1.115.216.1030/dlc) Repack Other s [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:68D7D3F81FC85659BF11F2C998CE9D6CB9311FD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Revival: Recolonization – 4X стратегия, события которой
 magnet:?xt=urn:btih:5A9F25B6A42E25A609DF38CDF8F4CDF465B899B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Tank Squad - это тактический боевой экшен, в кото�
 ```bash
 magnet:?xt=urn:btih:6E4B46EB6641009A12CC5F4A079BECE870D36E65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

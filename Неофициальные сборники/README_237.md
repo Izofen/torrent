@@ -1,3 +1,38 @@
+###  Публикация: 566754   (398246) от 28.10.2012
+
+VA - Дискотека Осенний Хит (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_398246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Double Vision - Knockin' 2012 (Julian The Angel remix)
+02. ЯрмаК и Маша Собко - Детская Обида
+03. Bimbo Jones feat. Ida Corr - See you later (Da Brozz remix)
+04. Lylloo feat. Lorinda - Badam (Sebastien Lewis BR club remix)
+05. Alexey Romeo & Eugene Noiz vs. Yves Larock - Zookey take me away (DJ Cosmo Voc Mash Up)
+06. VITA - Вставай!
+07. Улицы & Lemon - Розы
+08. Елена Терлеева - Adieu Mon Garcon
+09. Timati & Timbaland feat. Grooya & La La Land - Not all about the money
+10. Руки Вверх - Я Тебя Люблю(   Читать дальше...   )Жанр: PopПродолжительность: 05:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95A178995AE279C9361A454DF5E09F736D3BBC47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 566962   (398302) от 28.10.2012
 
 VA - XXXL Party Non-Stop (2012) [MP3|256 кб/с]<Pop>
@@ -27,6 +62,8 @@ VA - XXXL Party Non-Stop (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:566372A34311B7B79E6EF5528EE13DB22CEAEC97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -61,6 +98,8 @@ VA - Global DJ Broadcast Top 20 October (2012) [MP3|~269 кб/с ]<Trance>
 magnet:?xt=urn:btih:9F07C9C4E45251E0FCE7BB7854768D14873826EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -87,6 +126,8 @@ VA - Hypomania: Original Techno Mix (2017) [MP3|320 Kbps] <Techno, Minimal, Elec
 ```bash
 magnet:?xt=urn:btih:415F64B6D7D6ADAA132581681994DFB0BF8D35BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +156,8 @@ VA - New Age Music For Meditation (2017) [MP3|256-320 Kbps] <New Age, Relax, Dow
 magnet:?xt=urn:btih:F8EED9F5EDAC267241D9358E3EB9604BDAD140FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +185,8 @@ VA - Record Super Chart #505 (2017) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:CB9C4733D25E139BCA0F6F6051760785CE72745A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +213,8 @@ VA - German Top 100 Single Charts 29.09.2017 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:16EA22B7F60C6B5CF15D9EA9319B363D1DA6D7D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +249,8 @@ VA - Итальянская дискотека 70-90х 9000 (2012) [MP3|128 кб
 magnet:?xt=urn:btih:6DE3044C64C23081052535F640448D4E8DD32F99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +283,8 @@ VA - Лучшая клубная музыка AndrS vol.29 (2012) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:E50C401C2BFA2859C2418A30B835468918EA6F0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +319,8 @@ VA - Europa Plus: Only Best Hits Осенний 50/50 (2012)  [MP3|128 кб/с]<
 magnet:?xt=urn:btih:DCD9F0038185A8E6D04FE89AC32D25E4A2114790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +353,8 @@ VA - Bravo Hits Vol. 79 (2012) [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:F344491EB81AE3929559F7D00C6F03F0D14BAF17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +389,8 @@ VA - Global Dance NRJ (2012) [MP3|128 кб/с]<Dance>
 magnet:?xt=urn:btih:79E6A74E9235AB24761231077263ACCC5CA94BD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +423,8 @@ VA - Ночная дискотека: Хитовый адреналин 100 хи
 ```bash
 magnet:?xt=urn:btih:701276C9E8FB4A1A0A5633F75C4546D1FC76B67B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +459,8 @@ VA - Осенний Mega хит-парад Русский 200 хитов (2012) 
 magnet:?xt=urn:btih:D5B148645A50BC6AE016B57161696E85D65079A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +493,8 @@ VA - Top tracks on Hit FM (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:6F644198DC581CDA570752C3B136BB11FB6A7806
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +529,8 @@ VA - Only Best hits: Новинки русского радио (2012) [MP3|128 
 magnet:?xt=urn:btih:F7646FDC25F5DA04C352C95488099BEF373C5D33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +563,8 @@ VA - Топ Хит осенний от Русского Радио. Зарубе
 ```bash
 magnet:?xt=urn:btih:BE5E3377167E2008588DD5E71E1C8E462959827E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +599,8 @@ VA - Осенний муз-отрыв Спецвыпуск 50/50 (2012) [MP3|256
 magnet:?xt=urn:btih:3EC32A9051D17B98A84B7CB9CA2C9A4AAC466F03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +627,8 @@ Londonbeat - 25 Best Songs (2012) [MP3|216 - 260 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:00D432D23912B5C0C663E5C217207CD0E1C86EED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +663,8 @@ VA - Лучшие из Лучших 200 Русских Хитов (2012) [MP3|12
 magnet:?xt=urn:btih:8C2030B7C13E8591E99A110C9FFC23C5EE52DB6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +698,8 @@ VA - Наливай, Браток! Сборник хитов шансона (201
 magnet:?xt=urn:btih:2900CB0AEAFECB752DF6C1DD568A22907B6F904F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +727,8 @@ VA - 90's Eurodance #4 (2017) [MP3|320 Kbps] <Eurodance, Euro-House, Techno, Dan
 magnet:?xt=urn:btih:A93350DC6234DE9CFEDB9E84334EEBA0D718C5A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +755,8 @@ VA - Back In Disco (2017) vol.3 [MP3|320 Kbps] <Electronic, Disco, Poprock>
 ```bash
 magnet:?xt=urn:btih:6E25160F66E9B6493988F18F731201B0485E6C6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -712,6 +791,8 @@ VA - Лучшая 200ка блатного радио 7 (2011) [MP3|128 kbps]<Ш
 magnet:?xt=urn:btih:8AC81B995559064CEA98B2D8B074753F06791C58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -738,6 +819,8 @@ VA - Under The Carpet (2017) [MP3|320 Kbps] <Ambient, New Age, Downtempo>
 ```bash
 magnet:?xt=urn:btih:F9EF9BEF40DC1458DB56236E2B066C48BCEFC889
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -766,32 +849,7 @@ Laid Back - 25 Best Songs (2012) [MP3|204 - 257 кб/с]<Synthpop>
 magnet:?xt=urn:btih:D552F2A26494AA0E51045942B0C50074FF61F11C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 713446   (401567) от 21.10.2013
-
-Camouflage - 25 Best Songs (2012) [MP3|220 - 259 кб/с]<Synthpop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_401567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me and You 2003
-02. Love Is A Shield (Single Version) 1989
-03. Neighbours (Single Version) 1988
-04. Passing By 2006(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:745A9515AFF64500F697CB3A0D55AE80E556CAAF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

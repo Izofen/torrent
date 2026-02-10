@@ -19,6 +19,8 @@ TuneIn объединяет спортивные события, музыку, �
 magnet:?xt=urn:btih:C54918EC2A17810926C91389A3D335B28155EB45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ FolderSizes 9.7.517 Enterprise [En]
 ```bash
 magnet:?xt=urn:btih:436CE26F23086FD85CF81EFC3A603681F9C320D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Alfa eBooks Manager - одна из самых популярных програ
 magnet:?xt=urn:btih:6C1987E992DC7A20DB5FD7CFE057AC0717099216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Pencil Photo Sketch - профессиональное приложение дл
 ```bash
 magnet:?xt=urn:btih:701A13FDA284B077F082A7315198BA015BA4EFB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ GeoGebra — мультиплатформенная программное об�
 magnet:?xt=urn:btih:63400024FAD2C984DC694C079E78FC4D309B3E47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Notification Widget v1.5.170 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:82F5ECFDF3E7CF3BF8D2A2386087E438B97B62E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:82F5ECFDF3E7CF3BF8D2A2386087E438B97B62E6
 magnet:?xt=urn:btih:0B844CAE20238DD6A135C15486A60A534A97A7C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ MediaHuman YouTube Downloader 3.9.9.99 (0504) RePack (& Portable) by Dodakaedr [
 magnet:?xt=urn:btih:E7D4CF9D59BE994422EF4DAD453A7EF33C2EB67A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:36CF2D87B8077A2413864187E83B3D0452FBF990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:9ED42A3DA790AA7FEB961C59D57F90996D6581D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Electrical Calculations Pro / Электрические расчеты v10.4.0 
 ```bash
 magnet:?xt=urn:btih:5D39F6944227455D589D15958C72AD7138C50190
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ StaxRip - инструмент для кодирования видео "все-
 magnet:?xt=urn:btih:28186A12B3769913BA520328F8DC1B59307A57C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 ```bash
 magnet:?xt=urn:btih:ED6937D3F68F679ED0C58B09A0A60F0F114BA1CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Sandboxie - yтилита для контроля за работой разли
 magnet:?xt=urn:btih:E8C18D607F067758A305E5AA0D057BF867D56F06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 ```bash
 magnet:?xt=urn:btih:B3D193FB7366BFCF06A2DE18DE27A4181B900F13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ FolderSizes 9.7.512 Enterprise [En]
 magnet:?xt=urn:btih:48332EEC25C347879BBE1164638DE0679F25D35E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ Vivaldi 7.3.3635.7 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:7779E6201F33F926199BC880A88A2B3C1ABCBCBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ Lighting calculations / Расчеты освещения v6.1.2 Mod by Balatan 
 magnet:?xt=urn:btih:53C0A4EB13A900B9EEA4B397AB74601C1D7F7A20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ TuneIn объединяет спортивные события, музыку, �
 ```bash
 magnet:?xt=urn:btih:078C65160DBAB162B49C61FDDC4CD4473EBAA4DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:827243AC28494020DE9D8349D9045A5A9F832014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ VideoShow предлагает отличные функции редактир�
 ```bash
 magnet:?xt=urn:btih:0BF8CBB24F9E3737B2B9E29991AC25CCD9B794C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ Duplicate File Detective - программа от Key Metric Software, кото
 magnet:?xt=urn:btih:3BD984BB44C534B215FCB5EEE91374CDC895599F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:D64EFE7F01D786C783EFD7704827ED0AF28BE42C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +619,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:F9DCC3C357D1CE82E3019DC4CD617C643A1D2C0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ HiPER Calc Pro v11.1.1 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:A829A66496DB0ACFDA65B468B4FBF3B654B6A995
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:2D4EA1A4A22EE4A94A373300AA1BDF990E70313B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

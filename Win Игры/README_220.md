@@ -19,6 +19,8 @@ Bandle Tale: A League of Legends Story погружает игроков в не
 magnet:?xt=urn:btih:316BB60C28397C67C5ADD132CF32000DB9BCC18D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Plane Mechanic Simulator (2019) [Ru/Multi] (15.02.2024) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:65A02207FC739694161E5966D03FEBA9084F60F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Forgiveness – отправьтесь навстречу типичному п�
 magnet:?xt=urn:btih:A11E9AEEF908A432BEE071C3C882D180A6071238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Killer Instinct возвращается, и готова привлечь ка�
 ```bash
 magnet:?xt=urn:btih:C0DFCF504C2C00387CA9F55E4840DE9E40435343
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ RC Revolution (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:D7B5AFE109B8F6FA907273242259B889CFDF5312
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (1.6.0.0.20230706_1126/dlc) Repack Dece
 ```bash
 magnet:?xt=urn:btih:AF662D9092A69656AB71DE0EE2888B0FB5E73627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Don’t Starve - это бескомпромиссная игра на выжи�
 magnet:?xt=urn:btih:5F81858805CA4C396F616EC98899F8348F1B01E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Combat Mission: Final Blitzkrieg погружает вас в заключите
 ```bash
 magnet:?xt=urn:btih:2456674495F3BDDE56DCD73F002C5A36DAAB4175
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Ultros представляет собой 2D платформер, которы
 magnet:?xt=urn:btih:AB20A6EE96E66738D9FD39AAE4C04AF2F84FC200
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ PARANOID (2023) [Ru/Multi] (1.1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:156058EC3092264A66219EB4C43AD0EF82AF40F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ ELEX II – продолжение ELEX, винтажной ролевой иг�
 magnet:?xt=urn:btih:5E132C45968AD34400421D344DD13ACB8561C234
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Banishers: Ghosts of New Eden - это увлекательная Action-RPG, к
 ```bash
 magnet:?xt=urn:btih:A15163AD1096912CF4420197429722925B253895
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Trinity Fusion – это выполненный в 2.5D научно-фанта
 magnet:?xt=urn:btih:06FEC62C66B766BA4D099CF5D3AA58E5768BD3E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Carrier and Crows (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FAD77AA516D778E6D461D473B32E217334E529E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Turok 3 Shadow of Oblivion Remastered - это точная реставраци
 magnet:?xt=urn:btih:DF0B2546C975148823306EE10C41E33A6C736B93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Cossacks 3 - стратегия в реальном времени с уклон
 ```bash
 magnet:?xt=urn:btih:BD491996C616C12E6860A06FB0C740C0DD9C7C5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Neon Tail (2024) [Multi] (1.0.0.100) Repack FitGirl
 magnet:?xt=urn:btih:479C7971C1C53415E6BCC7983240463039CA9FFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ RC Revolution (2024) [Ru/Multi] (1.0) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:C28288CB9E45E7F84D6B7523501F9EDEF759FEC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ CLeM (2024) [Ru/Multi] (1.0.1) License GOG
 magnet:?xt=urn:btih:D571B9F0254E31DE1A966673E249204283066DB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Spirit Hunter: Death Mark 2 погружает игроков в священн�
 ```bash
 magnet:?xt=urn:btih:33D42F886C1BA97C43F815E985D0AF0055530877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Skibidi Toilets: Invasion бросает вас в вихрь хаоса киб�
 magnet:?xt=urn:btih:3A84FD510B05A808828FA25FF29475042077DEFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Clash II (2022) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D464E0F7EDE73785FD9FFFE2DAD25040F0C3FAAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Risen 3: Titan Lords (2015) [Ru] (3.0.30.0/dlc) Repack xatab [Enhanced Edition]
 magnet:?xt=urn:btih:6FA6336281524153D41075E79351C8D51908BC58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Serious Sam: Siberian Mayhem – это возможность погрузит�
 ```bash
 magnet:?xt=urn:btih:83FFBEB1B3240C177373AF1F9FD24726A36C8A69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Lysfanga: The Time Shift Warrior бросает вас в битву, котор
 magnet:?xt=urn:btih:3D63E190E53754C09BCA6200475228DA4EFFF811
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Touhou Danmaku Kagura Phantasia Lost - это ритм-игра, построе�
 ```bash
 magnet:?xt=urn:btih:EBE3BA793507DB32648E26C5F144A381887D12D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Suton - Sacrilegious (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Death Met
 magnet:?xt=urn:btih:94C42D1608621AE008933A8F33D03E989AA98E9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Auto Bild Sportscars представляет спортивные автомо�
 ```bash
 magnet:?xt=urn:btih:90C96ABFA5D96B6455F651E18CD6C930AC4ACC52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Le Canzoni D'Oggi (1987) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
 magnet:?xt=urn:btih:972872B0AA114045CC6429CD3E72B909A66CB422
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Peter Hammill – Out Of Water (1990) [FLAC|Lossless|tracks + .cue]<Art Rock>
 ```bash
 magnet:?xt=urn:btih:173AB3198C2686AAE75D566EC981D24DB41E4120
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Big City - Sunwind Sails (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:5D0FD818798A2AF420A4327D590374CD6F62A045
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:5D0FD818798A2AF420A4327D590374CD6F62A045
 ```bash
 magnet:?xt=urn:btih:9DEE1715CABCC5970D23B6DDD498A0D0B4290E2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -180,6 +192,8 @@ ScreaMachine - ScreaMachine (2021) Japanese Edition [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:4345DEF7BCB579825074ADF518AC4AA80E127307
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ YouTube Downloader - удобная программа-загрузчик для
 magnet:?xt=urn:btih:8FA163A152BF276372C8304F112B6AC6A84A5353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -230,6 +246,8 @@ magnet:?xt=urn:btih:8FA163A152BF276372C8304F112B6AC6A84A5353
 ```bash
 magnet:?xt=urn:btih:036FB882ED21B5A906EB0A04D2455826511E9D36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -255,6 +273,8 @@ magnet:?xt=urn:btih:036FB882ED21B5A906EB0A04D2455826511E9D36
 magnet:?xt=urn:btih:DF1F9F76CCA59029D5F2349A7C8ABE8B7154445A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:DF1F9F76CCA59029D5F2349A7C8ABE8B7154445A
 ```bash
 magnet:?xt=urn:btih:B2D3830AFE184234EE5AF50ADA3667620763A7E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +328,8 @@ Karin Krog & Laila Dalseth, Per Borthen Swing Department Ltd. - Swingin' (1999) 
 magnet:?xt=urn:btih:2A8411F434855245E3ED0F4D8E1179F2383ED88D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +355,8 @@ Gino Vannelli - In the Name of Money (1987) US 12" Single [MP3|320 Kbps] <Pop Ro
 ```bash
 magnet:?xt=urn:btih:17882DE66A3A34EC191E732D4A16B12B3E32BBC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +385,8 @@ Larry Lampkin - Funky Blues Man (2020) [FLAC|Lossless|image + .cue] <Electric Bl
 magnet:?xt=urn:btih:AE8467A39883E490DD9C68AF38C26CBAD3D5A83A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:AE8467A39883E490DD9C68AF38C26CBAD3D5A83A
 magnet:?xt=urn:btih:870F468632D779DE70327E74DA80F836817CB49D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:870F468632D779DE70327E74DA80F836817CB49D
 ```bash
 magnet:?xt=urn:btih:D0E59BF67159863FFFCB1E89C350F85F725F4DCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +466,8 @@ Lords of Black - Alchemy of Souls, Pt. II (2021) [AAC|~315 Kbps] <Metal>
 magnet:?xt=urn:btih:67AE6CAA0E354F25B2875C2BEF47B628806AC545
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:67AE6CAA0E354F25B2875C2BEF47B628806AC545
 ```bash
 magnet:?xt=urn:btih:773DD2E98ECCB97E8988EEA312972D9DE5EEDDE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +521,8 @@ Mid Sun - Depreciate (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:6789DC07E567F13CE12F176C45082CFDF4713024
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +548,8 @@ Lindsey Buckingham - Go Insane (1984) Germany 12" Single [MP3|320 Kbps] <Pop Roc
 magnet:?xt=urn:btih:783BE80365CE9A58ABD1CF0A4987803DB8D5238F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +573,8 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:072DEB19DE150C709EF3A5FC44671690E90090D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +603,8 @@ Poborsk - Plus Minus (2021) Kaer'Uiks [FLAC|Lossless|WEB-DL|tracks] <IDM, Experi
 magnet:?xt=urn:btih:02BCE7DBAB01F00AA2D42543ED23594B065330FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +628,8 @@ magnet:?xt=urn:btih:02BCE7DBAB01F00AA2D42543ED23594B065330FD
 ```bash
 magnet:?xt=urn:btih:B26B04FD01396D15DE9B2F651FAB38AA96345BD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ magnet:?xt=urn:btih:B26B04FD01396D15DE9B2F651FAB38AA96345BD7
 magnet:?xt=urn:btih:B03B2C2DD8B35FCE65AF120776E79BBC3357BA89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:B03B2C2DD8B35FCE65AF120776E79BBC3357BA89
 magnet:?xt=urn:btih:158351B6345016F35688EF60CF14D0487E3C1D1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:158351B6345016F35688EF60CF14D0487E3C1D1E
 ```bash
 magnet:?xt=urn:btih:D766C76A06C1779DEE3425E984A2E17E0960F1CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

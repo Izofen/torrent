@@ -22,6 +22,8 @@ The Dead Daisies - 6 studio albums (2013-2022) [FLAC|Lossless|image + .cue | tra
 magnet:?xt=urn:btih:74634210C01DFF642E95F9F6ABDB062CB6319404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:74634210C01DFF642E95F9F6ABDB062CB6319404
 ```bash
 magnet:?xt=urn:btih:DCFB3A3F08B63A742486D83670FB983570AFB0E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:DCFB3A3F08B63A742486D83670FB983570AFB0E4
 magnet:?xt=urn:btih:171CA555A13E862B5F5D76174E86F54E5EBB0DB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Skillshare, Jake Fleming | Vector To Pixel Art (2020) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:BEA8667941687256044B171D30358349002AC8CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Depeche Mode - Memento Mori (2023) [FLAC|Lossless|tracks + .cue] <SynthPop>
 magnet:?xt=urn:btih:3ACE5F8937C2AC391920A9FABC59270446C248B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ updated_march_2023_x64_dvd_e9856a7a.iso.
 magnet:?xt=urn:btih:3006C0E50D03F9B66B1CE53AD248429C907E6C69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:3006C0E50D03F9B66B1CE53AD248429C907E6C69
 ```bash
 magnet:?xt=urn:btih:E41937859C184956C83D6BE81AF703C3E13D1D64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:E41937859C184956C83D6BE81AF703C3E13D1D64
 magnet:?xt=urn:btih:FD2D9ED32953C59633E0ABBFD522EC69BC214D6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:FD2D9ED32953C59633E0ABBFD522EC69BC214D6D
 ```bash
 magnet:?xt=urn:btih:1EF1866EA2F4C1FCA4F439075D8C291166C78B01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Gibbon: Beyond the Trees — это нарисованная от руки пр�
 magnet:?xt=urn:btih:077AAD23E43CDE8AB904CD165CBA0368C3E882D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ Sugar Apple Fairy Tale | Сказка о сахарном яблоке [2023, TV
 ```bash
 magnet:?xt=urn:btih:41FBC5A2F71F3F9003E20E51A5E3932D204934FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ SketchUP Pro - является профессиональной версией 
 magnet:?xt=urn:btih:CFA4013F321F91B1050EA8D9B8C3CF498EBD0E91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Victor G Brusca | Advanced Unity Game Development (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:CDE5B3FD00DD0E8B3613112497CA0691A5DCEADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:CDE5B3FD00DD0E8B3613112497CA0691A5DCEADB
 magnet:?xt=urn:btih:ACE7B034571933CCDE5CAC570638F7C4BCDB3C24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Onii-chan wa Oshimai! | Onimai: I'm Now Your Sister! | Я стал сестро�
 ```bash
 magnet:?xt=urn:btih:5F9F56A854A421E396EB10C570B848DDB3F5714C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:5F9F56A854A421E396EB10C570B848DDB3F5714C
 magnet:?xt=urn:btih:CDE32D8C419991FBE416269D58DD96E0FF25EB57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ Far manager — бесплатный файловый менеджер с под
 magnet:?xt=urn:btih:61048AF53820A134D8647BE26F4DA551CE5842B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:61048AF53820A134D8647BE26F4DA551CE5842B2
 ```bash
 magnet:?xt=urn:btih:97567907E0C492152625D228A6E133472614EE64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:97567907E0C492152625D228A6E133472614EE64
 magnet:?xt=urn:btih:9F18F5793F72C1A77A7E487AABF2760B199DBC7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:9F18F5793F72C1A77A7E487AABF2760B199DBC7E
 ```bash
 magnet:?xt=urn:btih:5E20832EE1FE61A0468553EB63E7A8620A2D21F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ magnet:?xt=urn:btih:5E20832EE1FE61A0468553EB63E7A8620A2D21F3
 magnet:?xt=urn:btih:1F45CE866C36D1776259C78F31479DB582ECF768
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ WPS Office (Kingsoft Office) Совместим с форматами MS office,
 magnet:?xt=urn:btih:066DE3D0A4A385AEFC0AC4F722F8738F58EBAB41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:066DE3D0A4A385AEFC0AC4F722F8738F58EBAB41
 ```bash
 magnet:?xt=urn:btih:C8B350922F1D055BC54AA9AA01C0A5C3F920B3E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:C8B350922F1D055BC54AA9AA01C0A5C3F920B3E6
 magnet:?xt=urn:btih:DD90DAC64C208C7A722B51E67F9918C77CDE1E08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:DD90DAC64C208C7A722B51E67F9918C77CDE1E08
 magnet:?xt=urn:btih:20B1E86BC93334C18242156AE9AB71AEBF507ABC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:20B1E86BC93334C18242156AE9AB71AEBF507ABC
 ```bash
 magnet:?xt=urn:btih:7E3118F74B25FAB102DFC42981C8B0DE8394E5C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

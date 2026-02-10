@@ -1,3 +1,32 @@
+###  Публикация: 1546208   (607997) от 23.04.2022
+
+Легион - Отблески будущего & Prima centuria (2022) 2CD, OldWise Records [FLAC|Lossless|image + .cue] <Melodic Power, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_607997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears Of The Dragon (2019)
+02. Битва с темнотой (2020)
+03. Tears Of The Dragon (instrumental)
+04. Битва с темнотой (instrumental)Жанр: Melodic Power, Heavy MetalПродолжительность: 2 CD, 01:11:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F624C3B4A0CD60E96E61571FFD0AC3C2CE168AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296928   (608636) от 19.04.2019
 
 Akado - A U R A (2018) Single [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
@@ -19,6 +48,8 @@ Akado - A U R A (2018) Single [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, I
 ```bash
 magnet:?xt=urn:btih:76CF5526DB278BD7D1DFAF10434F2DFEE7B31F65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +78,8 @@ Antreib - Назад дороги нет (2019) [FLAC|Lossless|WEB-DL|tracks] <H
 magnet:?xt=urn:btih:281D62A497D5091D599A246F4BEC55EB47F253F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +106,8 @@ magnet:?xt=urn:btih:281D62A497D5091D599A246F4BEC55EB47F253F5
 ```bash
 magnet:?xt=urn:btih:07DD8D01D59310B67FB6EE884F57C21B9D0E5012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +136,8 @@ Akado - Oxymoron № 2 (2008) [FLAC|Lossless|WEB-DL|tracks] <Industrial>
 magnet:?xt=urn:btih:C09BCB06AE091F644F9F6B915C10A9C8F4B4F375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +165,8 @@ magnet:?xt=urn:btih:C09BCB06AE091F644F9F6B915C10A9C8F4B4F375
 magnet:?xt=urn:btih:9041EAC8AC0FAD750E4E80129EC0383C94A4D921
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +190,8 @@ magnet:?xt=urn:btih:9041EAC8AC0FAD750E4E80129EC0383C94A4D921
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +220,8 @@ magnet:?xt=urn:btih:9041EAC8AC0FAD750E4E80129EC0383C94A4D921
 magnet:?xt=urn:btih:F384D9AE49E4145A8180DDE50ED6C064DD13EDA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +248,8 @@ magnet:?xt=urn:btih:F384D9AE49E4145A8180DDE50ED6C064DD13EDA6
 ```bash
 magnet:?xt=urn:btih:2204169F364427B8E615BDDAF50E91E767412E55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +278,8 @@ magnet:?xt=urn:btih:2204169F364427B8E615BDDAF50E91E767412E55
 magnet:?xt=urn:btih:76B0B8931AA7539560CBBFD5753013C18C872EE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +306,8 @@ magnet:?xt=urn:btih:76B0B8931AA7539560CBBFD5753013C18C872EE0
 ```bash
 magnet:?xt=urn:btih:03DB59CFD3079784FF9641A85366847D74364130
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +336,8 @@ magnet:?xt=urn:btih:03DB59CFD3079784FF9641A85366847D74364130
 magnet:?xt=urn:btih:E204846B9D93EBE483F3A59ACEE41B62FF259654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +364,8 @@ magnet:?xt=urn:btih:E204846B9D93EBE483F3A59ACEE41B62FF259654
 ```bash
 magnet:?xt=urn:btih:0AA0FC1B9B156BC163EE6143C9BFD7A9C38FFCB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +394,8 @@ Znaki - Пазлы (2017) [FLAC|Lossless|tracks + .cue] <Rock>
 magnet:?xt=urn:btih:BBB11A002A3C0F73DDE0D2A654EA9FC0564DA855
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +422,8 @@ magnet:?xt=urn:btih:BBB11A002A3C0F73DDE0D2A654EA9FC0564DA855
 ```bash
 magnet:?xt=urn:btih:47AFCAA03856503FB659AB48227E7AC19DE6EE19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +452,8 @@ magnet:?xt=urn:btih:47AFCAA03856503FB659AB48227E7AC19DE6EE19
 magnet:?xt=urn:btih:81D23E3D62B101FCC36DD4142EF0FDEFEA389ABE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +480,8 @@ magnet:?xt=urn:btih:81D23E3D62B101FCC36DD4142EF0FDEFEA389ABE
 ```bash
 magnet:?xt=urn:btih:AD950AB384BA5664C8ECCFE81BE9164086E058FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +510,8 @@ Project NT - Имена и Тени (2015) [FLAC|image + .cue]<Experimental, Psy
 magnet:?xt=urn:btih:D0204B91C85A00B2298F86E5612E226FCA991449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +538,8 @@ magnet:?xt=urn:btih:D0204B91C85A00B2298F86E5612E226FCA991449
 ```bash
 magnet:?xt=urn:btih:01D951086D1D1483B51FDFC5811FB2D59C60833D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +568,8 @@ Sounduk - Том третий (Наше время) (2013) [FLAC|image + .cue]<R
 magnet:?xt=urn:btih:3728EF9232619B9854DAE88EEE610736693BA552
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +596,8 @@ Unreal - 3 альбома 3 сингла (2006 - 2013) [FLAC - APE |Lossless]<Go
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +626,8 @@ Unreal - 3 альбома 3 сингла (2006 - 2013) [FLAC - APE |Lossless]<Go
 magnet:?xt=urn:btih:710FA1AF7838AD10474C8100F22EF96DDD351341
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +654,8 @@ Lumen - Всегда 17, всегда война (2015) 2CD Live [FLAC|image+.cu
 ```bash
 magnet:?xt=urn:btih:A22F4DD0164278F9BD408903BA90A7AE5DB45219
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +690,8 @@ magnet:?xt=urn:btih:A22F4DD0164278F9BD408903BA90A7AE5DB45219
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +718,8 @@ magnet:?xt=urn:btih:A22F4DD0164278F9BD408903BA90A7AE5DB45219
 ```bash
 magnet:?xt=urn:btih:B9AEF2210995C332B2715CBEEADED2319E07ED9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -671,32 +748,7 @@ magnet:?xt=urn:btih:B9AEF2210995C332B2715CBEEADED2319E07ED9D
 magnet:?xt=urn:btih:73362B0825409F380AF2B0AAED719B676AB3E646
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544008   (623812) от 14.04.2022
-
-Атлас (Земляне, XX Век) - Атлас & Концерт на Старой Земле (2011) Compilation [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_623812.jpg" />
-</div>
-
-
-###  Подробнее
-
-Атлас (2011)
-01 - Космос
-02 - Колесо
-03 - Охотник(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D1B6DB7A880B91B09D967535466D655BE213ABD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

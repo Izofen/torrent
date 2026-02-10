@@ -1,30 +1,3 @@
-###  Публикация: 1260202   (314697) от 06.11.2018
-
-Primus - Animals Should Not Try to Act Like People (2003) EP [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_314697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Carpenter And The Dainty Bride (6:36)
- 02. Pilcher's Squad (1:54)
- 03. Mary The Ice Cube (4:37)
- 04. The Last Superpower Aka Rapscallion (7:16)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E0AD35B8234DA8CDDE622B1BF4D734A2B4DDC1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260051   (314699) от 06.11.2018
 
 Фигурное катание. Гран-при 2018-2019. 3-й Этап. Гран-при Хельсинки 2018. Спортивные пары. Короткая программа (02.11.2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
@@ -49,6 +22,8 @@ magnet:?xt=urn:btih:26E0AD35B8234DA8CDDE622B1BF4D734A2B4DDC1
 magnet:?xt=urn:btih:A7F79182E6B2CD94271D7C60149791CEE391C001
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +47,8 @@ magnet:?xt=urn:btih:A7F79182E6B2CD94271D7C60149791CEE391C001
 ```bash
 magnet:?xt=urn:btih:6D6A40BE51041C65A6CE8AAC86C8A50E6986501B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +77,8 @@ Primus - Miscellaneous Debris (1992) EP [FLAC|Lossless|tracks + .cue] <Alternati
 magnet:?xt=urn:btih:5EAC8F23821BD735FA2C5F63A889E61B012902BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -127,6 +106,8 @@ Primus - Rhinoplasty (1998) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 magnet:?xt=urn:btih:EC37A46A804120CEC72799F9BAD5EF7700A59E6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +133,8 @@ Meta поможет Вам управлять постоянно растуще�
 magnet:?xt=urn:btih:5B5AE768AA3FBE8F6AC1D5D3D63EACCE57022B55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +158,8 @@ magnet:?xt=urn:btih:5B5AE768AA3FBE8F6AC1D5D3D63EACCE57022B55
 ```bash
 magnet:?xt=urn:btih:887F011BEED15B043300BCBB9FC2991B34AAEAF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +185,8 @@ magnet:?xt=urn:btih:887F011BEED15B043300BCBB9FC2991B34AAEAF2
 magnet:?xt=urn:btih:40D4A47C094BB25C8A8C92F9775B113D463F1CE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +210,8 @@ magnet:?xt=urn:btih:40D4A47C094BB25C8A8C92F9775B113D463F1CE2
 ```bash
 magnet:?xt=urn:btih:EB90D990C25272DF6F02579836B974A2D50FFBCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +237,8 @@ Universal Share Downloader - это программа для скачивани
 magnet:?xt=urn:btih:459E16F15E9406235F473769D63BFA27577BC191
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +262,8 @@ Wise Disk Cleaner 9.5.8.682 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6D515C244D25FCEC8764714D21C4CEB5B661EE8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +290,8 @@ magnet:?xt=urn:btih:6D515C244D25FCEC8764714D21C4CEB5B661EE8F
 magnet:?xt=urn:btih:48ACBE0D245A67AB82ED9900F76415A81AF001B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +316,8 @@ magnet:?xt=urn:btih:48ACBE0D245A67AB82ED9900F76415A81AF001B4
 magnet:?xt=urn:btih:4CBDAED8E5F30A9C0AC8E77DDBDE7C438B007B38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +341,8 @@ CoolUtils Total HTML Converter — это функциональная прог�
 ```bash
 magnet:?xt=urn:btih:D7345327DCF10510312364CA305EC5AD23AB192B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +371,8 @@ VA - Lol (Lots of Lounge), Vol. 1 (2015) [FLAC|tracks]<Lounge, Chill Out>
 magnet:?xt=urn:btih:2DF0271B6D952D08C678099E7129E29098405D4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +400,8 @@ Bop - The Amazing Adventures Of One Curious Pixel (2011) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:FB7A0DBDD133EFB588BAA4B8C9CB75596EB7A226
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +426,8 @@ magnet:?xt=urn:btih:FB7A0DBDD133EFB588BAA4B8C9CB75596EB7A226
 magnet:?xt=urn:btih:FE127B621F3E3817B0F47742B8D7705335371172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +451,8 @@ uTorrent 3.5.5 Build 45828 Stable RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E83F50476667967314125E84F884279230EAA4BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +480,8 @@ UninstallPKG может использоваться для очистки св�
 magnet:?xt=urn:btih:9B58551FA35A6D8F6407B7C1FD5413DA2633F35A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +505,8 @@ Download Master - эффективно решает 3 главных пробл�
 ```bash
 magnet:?xt=urn:btih:2F506E09E5106BE75B8EB5D714956651FF12E5FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +532,8 @@ magnet:?xt=urn:btih:2F506E09E5106BE75B8EB5D714956651FF12E5FD
 magnet:?xt=urn:btih:38F01A5D89E273D3D6A427DF41A286323FF6AD38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +557,8 @@ magnet:?xt=urn:btih:38F01A5D89E273D3D6A427DF41A286323FF6AD38
 ```bash
 magnet:?xt=urn:btih:4AE6EF79BB48FB05DA4116FC659B622D803F292B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -569,6 +584,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 magnet:?xt=urn:btih:561B75B6F6B6F721DBCDEC56610FB32E006F04F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +609,8 @@ magnet:?xt=urn:btih:561B75B6F6B6F721DBCDEC56610FB32E006F04F9
 ```bash
 magnet:?xt=urn:btih:17B46E70247375D883EBD4FF5FD78AC4A168EEA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +636,8 @@ magnet:?xt=urn:btih:17B46E70247375D883EBD4FF5FD78AC4A168EEA2
 magnet:?xt=urn:btih:F08834F77C7C72A888061EDC52983AF2ADADFC3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +661,37 @@ Firefox - очень интересный продукт, который при�
 ```bash
 magnet:?xt=urn:btih:90B76788680ABBE135193D60AD394F02413EB713
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959769   (314967) от 25.11.2015
+
+ASC - Fervent Dream (2015) [FLAC|Lossless|WEB-DL]<Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_314967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Eternity Barrier (06:32)
+ 02. Deluge Of Thought (08:06)
+ 03. The Sounding Furrows (07:38)
+ 04. Epsilon Dream (08:08)(   Читать дальше...   )Тип издания: WEB , AlbumЖанр: AmbientПродолжительность: 01:11:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5FF711FECB9EE13F1B7B88C919DB226BEB13A03
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

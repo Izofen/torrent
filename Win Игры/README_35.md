@@ -19,6 +19,8 @@ Grocery Store Tycoon позволяет строить и управлять р�
 magnet:?xt=urn:btih:DB76DD45942F0F338BA19B984942F97542F3B959
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Fruitbus (2024) [Ru/Multi] (1.0.12) Repack FitGirl [Fine Dining Edition]
 ```bash
 magnet:?xt=urn:btih:E13E1EFA9730FEE2BC37EB49FCA9D6C3B0147207
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Tech Market Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:CCD2CF67F6A012B9A4EBF616B8B023092808E62F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Squirreled Away (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:3DB848B2D9FA66E8856D5AA2CC5AEC73C239D50E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (1.9.2) Repack Pioneer
 magnet:?xt=urn:btih:BBCEE1AA8124ABC5DC14D7C4D7EB36325DA4AA48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ TRAPPED (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:466928EE49A0F2F44B2881CA629185BDA5843F4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Vilde (2025) [Ru/Multi] (1.0.0.2) Repack FitGirl
 magnet:?xt=urn:btih:57CC8BBD0367018BC34CBFB0EFA22AA547687C31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Crime Simulator позволит вам бросить работу с девя�
 ```bash
 magnet:?xt=urn:btih:162F7F45B12ABCFB42EE63BFC61B0479E2770F15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ SGS Spain at War (2025) [Ru/Multi] (25.06.11) Repack FitGirl
 magnet:?xt=urn:btih:3298262E4066316DEA29C7CF83666444ED80979C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Star Wars Battlefront II (2) (2017) [Ru/Multi] (1.1.8.16162/dlc) Repack seleZen 
 ```bash
 magnet:?xt=urn:btih:D75EF887CEF048867271FF53768259CB43192F31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Ship Graveyard Simulator 2 (2023) [Ru/Multi] (13486/dlc) Repack FitGirl
 magnet:?xt=urn:btih:C1E18334BC36AB8DBB9798ABF770BBD588D066D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Killing Floor 3 (2025) [Ru/Multi] (build 19273238/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B752FF9BB0041FA91CD909772DCABAD22CF966E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Days Gone (2021) [Ru/Multi] (1.13/dlc) Repack Other s [Remastered]
 magnet:?xt=urn:btih:598146B6686A9C858381FC9DBC8B5C6CE09D02DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ SWORD ART ONLINE Fractured Daydream - это захватывающее ново
 ```bash
 magnet:?xt=urn:btih:1B9FB4CC4E62418C2D63177B44BD22F0B7CA4978
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Into the Dead: Our Darkest Days представляет собой сайд-с�
 magnet:?xt=urn:btih:4C0662443BAF9747E784FDD911ED6B5740F675AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Detectives United 8: Vengeance from the Past (2025) [En] (1.0) Unofficial [Colle
 ```bash
 magnet:?xt=urn:btih:7EC40F58EF2E08979BC4F824DB7C2B6C7B280372
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Mini Cozy Room: Lo-Fi (2025) [Ru/Multi] (1.02.04/dlc) Repack FitGirl [All in One
 magnet:?xt=urn:btih:8570D57ED9D562C6F3A04814F2B32681213C7BD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Paranormal Files 13: Chaos Weekend / Паранормальные явления
 ```bash
 magnet:?xt=urn:btih:D680A5A0AEDACD9504C1BE7B3F4602E2F1FEB724
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Meat Fest - динамичный шутер с аренами и коридор�
 magnet:?xt=urn:btih:4662C7ED519204B14467B535807AE1A0E363E532
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Sears: The Sky Frontier - это красивая и эпичная страте
 ```bash
 magnet:?xt=urn:btih:6BAE6198873A9489EF9F42C03896CB05607D860E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Death Must Die - это RPG-рогалик, в которой вы играет�
 magnet:?xt=urn:btih:1799F52C6141F60B588A5DA1494C46C4EAC75613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Dread: The Cold Case - это психологический хоррор от �
 ```bash
 magnet:?xt=urn:btih:AF6F549074EAE7D0A5EE9629BBD1395A06769651
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178067/dlc) Repack FitGirl [Deluxe E
 magnet:?xt=urn:btih:750052CA41368826EF079C8F995F72DCBB42638C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Killing Floor 3 (2025) [Ru/Multi] (build 19273238/dlc) Repack seleZen [Elite Nig
 ```bash
 magnet:?xt=urn:btih:8F70DE93EB90E5AB029C4A053B47B3BA5A0BE2B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (178067) Scene Tenoke
 magnet:?xt=urn:btih:16B9DCBC5FD39CC1E67D4161469B65CF8203F0C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ to a T - это сюжетная приключенческая игра о не
 ```bash
 magnet:?xt=urn:btih:DFAAA6F13F791F40C72EAFF993A8E20728FDCBBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

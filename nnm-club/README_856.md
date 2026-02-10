@@ -19,6 +19,8 @@ Haste: Broken Worlds - игра от третьего лица, в которо�
 magnet:?xt=urn:btih:002FFE2E442A6C93379E03E4B469BEB6708B7BE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:002FFE2E442A6C93379E03E4B469BEB6708B7BE2
 ```bash
 magnet:?xt=urn:btih:0B07D7A076E806A23613AADC16C638F4E4D18D50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:0B07D7A076E806A23613AADC16C638F4E4D18D50
 magnet:?xt=urn:btih:1ADE64504809780864E39B35737CD23E544D8AA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Eric's Movie DataBase (EMDB) 5.36 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2515B61B3ECB62CE2560DEFB6A4AE9D959DFCCA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:2515B61B3ECB62CE2560DEFB6A4AE9D959DFCCA1
 magnet:?xt=urn:btih:BA32EEEAED54D53D287F53BA0773DA9AC68C504B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Rufus - небольшая утилита помогает отформатир�
 ```bash
 magnet:?xt=urn:btih:BE879DF1819ED294F94E2E00C3C7E3EDD2A032AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:BE879DF1819ED294F94E2E00C3C7E3EDD2A032AA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:BE879DF1819ED294F94E2E00C3C7E3EDD2A032AA
 ```bash
 magnet:?xt=urn:btih:916365D36CB07923754765C070F1DF354F8BD6A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:916365D36CB07923754765C070F1DF354F8BD6A9
 magnet:?xt=urn:btih:616E900F35515E65F89D4B116E0550C19A2EB8CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:616E900F35515E65F89D4B116E0550C19A2EB8CB
 ```bash
 magnet:?xt=urn:btih:4B65BA9C71E24D2E515C25DE2532CED6BB68CF02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ REYNATIS - это ролевая адвенчура в жанре городск
 magnet:?xt=urn:btih:F4789D167147186353D41456F47984C0038D332D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ KARMA: The Dark World (2025) [Ru/Multi] (Build 17844576) Repack Other s
 ```bash
 magnet:?xt=urn:btih:9C06DC8C0EC5B56B7D5EFD29D7C3B32DC492436F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:9C06DC8C0EC5B56B7D5EFD29D7C3B32DC492436F
 magnet:?xt=urn:btih:86CFA66AF39BCFF6C8D0F11D2ED83E136AFAB016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:86CFA66AF39BCFF6C8D0F11D2ED83E136AFAB016
 magnet:?xt=urn:btih:2E777C0CE70B1EA2E81A8081F9363BC59A9E982E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Minecraft в кино / A Minecraft Movie (2025) TS [H.264] [звук с TS] [AD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Minecraft в кино / A Minecraft Movie (2025) TS [H.264] [звук с TS] [AD
 magnet:?xt=urn:btih:4A9FED088704FD0568DE8A720A1C36F4753EC17A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:4A9FED088704FD0568DE8A720A1C36F4753EC17A
 ```bash
 magnet:?xt=urn:btih:A52DC82DC8B7E0A6962E51678BCAD1F996FB5D33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:A52DC82DC8B7E0A6962E51678BCAD1F996FB5D33
 magnet:?xt=urn:btih:723A48A1DF29A99551ECB73203F43334508A4B42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Galacticare - это ваш шанс спасти галактику, заним
 ```bash
 magnet:?xt=urn:btih:9A5C5528C572EA4FB270B3077ACF6E3C7303BA58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:9A5C5528C572EA4FB270B3077ACF6E3C7303BA58
 magnet:?xt=urn:btih:0EAD0C52CA23C7F4A6D48217CC913FE5BAA772F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ AnyDesk 9.5.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:767CFA901A4D6515A4924E51B6A2609FD2E072E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:767CFA901A4D6515A4924E51B6A2609FD2E072E5
 magnet:?xt=urn:btih:2A6821F76BB2F8DD79754C0F7BF7BA8D8C6AC2FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ ShareX - программа для снятия снимков и видеоза
 ```bash
 magnet:?xt=urn:btih:C70F02BBDC18B6E8CE5086B5A67A56C62D3639D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:C70F02BBDC18B6E8CE5086B5A67A56C62D3639D5
 magnet:?xt=urn:btih:BCA40E165D12B266428F43E51133EFA0DD21222A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 magnet:?xt=urn:btih:88D73EC1D88DDEEBCE08F76D522E3314C4704D00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:88D73EC1D88DDEEBCE08F76D522E3314C4704D00
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

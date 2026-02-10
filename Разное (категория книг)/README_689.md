@@ -1,3 +1,29 @@
+###  Публикация: 626979   (942305) от 06.03.2013
+
+Подборка книг | Как восстановить здоровье [2013] [FB2]
+
+>>Разное (категория книг)
+>>Нетрадиционная медицина
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию представлена тематическая книжная подборка: Как восстановить здоровье в 104 томах на все случаи жизни и в удобном формате.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91879467A112A0053FF853BB91BF443413A15366
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363671   (942324) от 28.02.2020
 
 Павел Раков | Сила женского притяжения (2018) [EPUB]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:E27ED650503A6FB6F18BA2F5F8E132131A9C4684
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:E27ED650503A6FB6F18BA2F5F8E132131A9C4684
 ```bash
 magnet:?xt=urn:btih:8F625CF1E4B6EAB030BBB88EF8A535EFDAB3859D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:8F625CF1E4B6EAB030BBB88EF8A535EFDAB3859D
 magnet:?xt=urn:btih:AE7C1B99C89C89D3EBF7450428CF53E1AECCA52B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:AE7C1B99C89C89D3EBF7450428CF53E1AECCA52B
 ```bash
 magnet:?xt=urn:btih:B40D2C69641475AE338278DD7DE54F593A05A0FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:B40D2C69641475AE338278DD7DE54F593A05A0FE
 magnet:?xt=urn:btih:FA2095699E6730EFB39A8D6E1412081F31597FE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:FA2095699E6730EFB39A8D6E1412081F31597FE2
 magnet:?xt=urn:btih:6DC798BDF72B78D7FFF957A0A0D7004C62729CA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:6DC798BDF72B78D7FFF957A0A0D7004C62729CA1
 ```bash
 magnet:?xt=urn:btih:0D9E26220D8ACAA3E534273A56972F44D22CB5E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:0D9E26220D8ACAA3E534273A56972F44D22CB5E8
 magnet:?xt=urn:btih:B1E115D5778177DE1E40802C239C61524893250C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:B1E115D5778177DE1E40802C239C61524893250C
 ```bash
 magnet:?xt=urn:btih:BD07C2D0C88E94AE21DCDEB0C84313CDA0AA97FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:BD07C2D0C88E94AE21DCDEB0C84313CDA0AA97FD
 magnet:?xt=urn:btih:25622F28DAAB9D6695E76A557E9A0F49E7B66490
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:25622F28DAAB9D6695E76A557E9A0F49E7B66490
 ```bash
 magnet:?xt=urn:btih:1922C1CC39CF492449CE912777D76522155AA697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:1922C1CC39CF492449CE912777D76522155AA697
 magnet:?xt=urn:btih:DCACDD8BB80A68328F472CE3436A32FAD1DC2BA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:DCACDD8BB80A68328F472CE3436A32FAD1DC2BA7
 ```bash
 magnet:?xt=urn:btih:310CD1B5360CA68CD2A9E41527DF85319DC55724
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:310CD1B5360CA68CD2A9E41527DF85319DC55724
 magnet:?xt=urn:btih:3638B2F5C5343D9BFB525C10C8F6DBEEF7C8AC4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:3638B2F5C5343D9BFB525C10C8F6DBEEF7C8AC4E
 ```bash
 magnet:?xt=urn:btih:5348A35DB74E5142684FEC1A694CDA8A79000F5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:5348A35DB74E5142684FEC1A694CDA8A79000F5A
 magnet:?xt=urn:btih:09EC23D434F679D80FC5BCA27FBA4EEAA0FD16B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:09EC23D434F679D80FC5BCA27FBA4EEAA0FD16B2
 ```bash
 magnet:?xt=urn:btih:316EFA48134BC7776E385C8040816FC8DA803E6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:316EFA48134BC7776E385C8040816FC8DA803E6E
 magnet:?xt=urn:btih:6BDE6AA9B4D2BD4ABB7EE8FC240D2EFB7767C83A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:6BDE6AA9B4D2BD4ABB7EE8FC240D2EFB7767C83A
 ```bash
 magnet:?xt=urn:btih:34AABDC905DB3032CD1C4A3306BBD8B49AAC2027
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:34AABDC905DB3032CD1C4A3306BBD8B49AAC2027
 magnet:?xt=urn:btih:8A191F8813CB26EF1CBE0A5AA821F0281FF0E47F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:8A191F8813CB26EF1CBE0A5AA821F0281FF0E47F
 ```bash
 magnet:?xt=urn:btih:5557A5F5D4CE55DDDE17F3BCD9E9E5FC93268AAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:5557A5F5D4CE55DDDE17F3BCD9E9E5FC93268AAD
 magnet:?xt=urn:btih:2A6FF6D621FBD58190B87DF11B9F64B7E2C67601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:2A6FF6D621FBD58190B87DF11B9F64B7E2C67601
 ```bash
 magnet:?xt=urn:btih:2B0242EAA1FB6E288D3CB35F51D89DF5267C197B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:2B0242EAA1FB6E288D3CB35F51D89DF5267C197B
 magnet:?xt=urn:btih:1223FEC2EA3CF1F5F06A0AC1812B1097DCB79989
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,31 +684,7 @@ magnet:?xt=urn:btih:1223FEC2EA3CF1F5F06A0AC1812B1097DCB79989
 magnet:?xt=urn:btih:D11B7F62DD5060465B11B39E9872B70F48E89474
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 752273   (943163) от 01.02.2014
-
-С. И. Ковалев, М. М. Кубланов | Находки в Иудейской пустыне [Открытия в районе Мертвого моря и вопросы происхождения христианства] (1964) [DJVU]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-На географической карте юго-восточного уголка Средиземноморья встречается множество древних названий, которые пестрят в библейских книгах: Иерусалим, Иордан, Иудейская пустыня, Мертвое море. Одно из них недавно привлекло внимание всего мира благодаря удивительным открытиям. Речь идет о находках древних рукописей, лежавших в затерянных пещерах Иудейской пустыни около 2000 лет. Эти открытия повлекли за собой ряд других. Было раскопано древнее поселение Хирбет Кумран, началось изучение примыкавшего к нему обширного некрополя, развернулись поиски в прилегающих районах.
-
-Всеобщий интерес к этому был вызван не только ореолом таинственности и романтики, не только значением находок для филологии, истории, палеографии и других сопредельных наук, в первую очередь тем, что новые открытия дают важный материал о происхождении христианства. Когда первые страсти, вызванные находками в Иудейской пустыне, улеглись и изучение новых материалов вступило в более зрелую фазу, стало очевидно, что кумранские открытия развенчивают богословские (   Читать дальше...   )Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC57FEACFA302CB8D5698F47C44AFCA957CB4E2A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

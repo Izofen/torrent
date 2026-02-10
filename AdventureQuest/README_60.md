@@ -19,6 +19,8 @@ The Dark Pictures Anthology — это серия напряжённых кин�
 magnet:?xt=urn:btih:6FABB5FBF8DE73573E793E4B3C69177628532E10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Batman: The Telltale Series - видеоигра об одном из самых
 ```bash
 magnet:?xt=urn:btih:E922D243F37130084443A14CD07D6FBB62EABBCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:E922D243F37130084443A14CD07D6FBB62EABBCE
 magnet:?xt=urn:btih:30C79B54A118FF82DCAD522D021A187B6779DB68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Today Is My Birthday (2020) [Ru/En] (1.6) Repack Other s
 ```bash
 magnet:?xt=urn:btih:A0E397A33DD12F0BAFBA203E4B5E8CE5EA4E07F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ House on the Hill — это сюжетный хоррор от первого �
 magnet:?xt=urn:btih:9A6F1C626FB189772729AAABFF840885043931BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Wolfstride – это ролевая игра, повествующая о по�
 ```bash
 magnet:?xt=urn:btih:41F379E548D4A7AC4A421000E1C5DAC56055AAF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ DarkHouse – игра на выживание в ночной психиатр�
 magnet:?xt=urn:btih:5D91EEAC3C102709758F48A02C6415579165B2E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Observer: System Redux (2021) [Ru/Multi] (7368691/dlc) License CODEX [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:44C9130221C0F68F367D3DE2A2FB602749615846
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Republique Remastered – игра в жанре стелс от студии Ca
 magnet:?xt=urn:btih:608A886954662375ED442BBAA785CA4E66433F2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Lure of the Temptress (1992) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:6F4708C0E6B160BE8A552A8F54C613FF221D614D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Arise: A Simple Story (2019) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:0E87CF17838ABEF27D1F599233B0DB94BD2EF5CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Pale Beyond – это визуальная новелла с элемент
 ```bash
 magnet:?xt=urn:btih:F1F1935C5FD6D4BCCBDED0B4F615C915DE40C7D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Lucius III (2018) [Ru/Multi] (0.181213182603.a) Repack Other s
 magnet:?xt=urn:btih:84641A7229C6FB634D8A2CAA4B04A3D854591C45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Batman - The Telltale Series (2016) [Ru/Multi] (1.0) License GOG [Episode 1-5]
 ```bash
 magnet:?xt=urn:btih:FC3CCC3A7C5C672D3D67EF66571ABD1905465D5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Sonority (2022) [Ru/Multi] (1.6.2) License GOG
 magnet:?xt=urn:btih:9EE9E17EA34DBC6CBBA6903167AB6CCDFA683A10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Guest – мрачное приключение, полное страшны
 ```bash
 magnet:?xt=urn:btih:5B44F4696FFD6B43296F961336643AC2FFF6976C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Lake Ridden (Озеро Риден) - игра-головоломка, осно�
 magnet:?xt=urn:btih:36B02D2A760920AF54B105EE6D3BF775EFE5E733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Shannara / Шанара (1995) [Ru/En] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:6C5374389394CDAE3BB7AADB61D98279CD649D49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Sin Collector: Repentless (2021) [Multi] (1.0.1441) License GOG
 magnet:?xt=urn:btih:1380214FF40EC97639DB0D2D69024A914FDDA25B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Waxworks (1992) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:FF2B4DE245A2D6C057BB2AE73E8502069904997E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Loco Parentis — сюрреалистичный survival-horror, где вам 
 magnet:?xt=urn:btih:7435522E5E8D43D729CB2DADB105E7A9FCC35914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Husk — это продуманная игра в стиле Survival Horror, �
 ```bash
 magnet:?xt=urn:btih:0712906092D5319ECB3722F78C55B39CBCF7C6DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Amnesia: The Dark Descent / Амнезия: Призрак прошлого (201
 magnet:?xt=urn:btih:CEB5E3781B168ECD84650E62CEED6D31519A73F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Heavy Rain (2019) [Ru/Multi] (Build 362) Repack R.G. Механики
 ```bash
 magnet:?xt=urn:btih:5719F6CAA48F26C0A137B09FF0A91E839C85F82E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Observer: System Redux (2020) [Ru/Multi] (1.1.35) Repack Other s
 magnet:?xt=urn:btih:3E9FB4B28C9185FC45B6D2E83F90FF22385802BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ SCORN — атмосферный приключенческий хоррор о�
 ```bash
 magnet:?xt=urn:btih:78E81752BDEC1054A7C04DF358E260D83CC13056
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

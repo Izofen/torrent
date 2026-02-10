@@ -22,6 +22,8 @@ Squid - O Monolith (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative, Indi
 magnet:?xt=urn:btih:686596E0ACE17C53ED078DCC7767F32C9AFCB0CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:686596E0ACE17C53ED078DCC7767F32C9AFCB0CB
 ```bash
 magnet:?xt=urn:btih:D5BC52C8FD4D2CEF31BD8CA730267ACAD93E6AC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Floodfall - Unbroken (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:D12E89DC5C2A16A68A6055776951083232B4D83A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:D12E89DC5C2A16A68A6055776951083232B4D83A
 ```bash
 magnet:?xt=urn:btih:F88061D0244DA718FD7248570E7EC341ED06A159
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ VA - Ultimate Collection of Relaxing Chilly Jazz III (2023) [FLAC|Lossless|WEB-D
 magnet:?xt=urn:btih:6C5B6C1872955DB8D6B204A5332080585B473278
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:6C5B6C1872955DB8D6B204A5332080585B473278
 ```bash
 magnet:?xt=urn:btih:4443BC25D58C6B3416BB57A0BBCA2A307A5944AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:4443BC25D58C6B3416BB57A0BBCA2A307A5944AE
 magnet:?xt=urn:btih:0D480D435E5C3561B6677B6BF14FF4163B1C9C53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:0D480D435E5C3561B6677B6BF14FF4163B1C9C53
 ```bash
 magnet:?xt=urn:btih:5BE5FD6D0DB9AFDD73E132A61E8059C2168AEA8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Chromium – веб-браузер с открытым исходным кодо
 magnet:?xt=urn:btih:936C51758005FEFEDA3B6051B684D0B50F8A41F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:936C51758005FEFEDA3B6051B684D0B50F8A41F7
 ```bash
 magnet:?xt=urn:btih:53EEF9EE3C78214A9C50B8EAB40AFF911466C824
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:53EEF9EE3C78214A9C50B8EAB40AFF911466C824
 magnet:?xt=urn:btih:CE79EA01E7D415BE604FCB6FD36C60AD6AAACAD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:CE79EA01E7D415BE604FCB6FD36C60AD6AAACAD6
 ```bash
 magnet:?xt=urn:btih:1402022BC5BB06C4D3F4B6F0399370B283A6E6DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +345,8 @@ magnet:?xt=urn:btih:1402022BC5BB06C4D3F4B6F0399370B283A6E6DC
 magnet:?xt=urn:btih:612ED549F1017BCF4D7D6C2DF5A7AE75EAC11BFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:612ED549F1017BCF4D7D6C2DF5A7AE75EAC11BFD
 ```bash
 magnet:?xt=urn:btih:B87362404831F4268153FAA9B9B0578F186D6A12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +397,8 @@ VirtualBox — является мощным продуктом виртуали
 magnet:?xt=urn:btih:EE364308CF021413E8FA0056471B374D18684ED9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:B44F6A2B621BC36AE30F69F678675C0F899A381C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:B44F6A2B621BC36AE30F69F678675C0F899A381C
 magnet:?xt=urn:btih:B576A1A1E3F36B5C93E8C07E48ADBEBB613D1547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:B576A1A1E3F36B5C93E8C07E48ADBEBB613D1547
 ```bash
 magnet:?xt=urn:btih:FAA59AD1FBE660FFA6F08C7C02EA854AF2109149
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:FAA59AD1FBE660FFA6F08C7C02EA854AF2109149
 magnet:?xt=urn:btih:001FCB46FB5ADAB5240E10163D7FF3B9CEEFB275
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:001FCB46FB5ADAB5240E10163D7FF3B9CEEFB275
 ```bash
 magnet:?xt=urn:btih:0C36C5261A4865DC6F9125D6CD4E4BFB37E57980
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ Slipknot - Adderall (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
 magnet:?xt=urn:btih:EF4F59C94DE377775B265CCEBC174B3BC8BFFF6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:EF4F59C94DE377775B265CCEBC174B3BC8BFFF6C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ magnet:?xt=urn:btih:EF4F59C94DE377775B265CCEBC174B3BC8BFFF6C
 magnet:?xt=urn:btih:436FBA479CC0348FEC9BD0A8097FE626CACA5AAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:436FBA479CC0348FEC9BD0A8097FE626CACA5AAC
 ```bash
 magnet:?xt=urn:btih:248276E63FBF5E0D01866432641F1C395B140B3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:248276E63FBF5E0D01866432641F1C395B140B3F
 magnet:?xt=urn:btih:27899A61B938FF5A42EE4979D6B9E1ED3D43F8A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:27899A61B938FF5A42EE4979D6B9E1ED3D43F8A5
 ```bash
 magnet:?xt=urn:btih:E7752C4C0C0C0E5807B02B016D4ABF9ECC2305A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

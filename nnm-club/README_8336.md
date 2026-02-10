@@ -19,6 +19,8 @@ MyLanViewer — программа для сканирования и монит
 magnet:?xt=urn:btih:B9609CCC9ADB9EC2F2D7116993217C717185E031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ VidCoder - небольшая утилита, с помощью которой �
 ```bash
 magnet:?xt=urn:btih:66B0C734477D16A3FF73821CD6DAEFECD0D5C5F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:66B0C734477D16A3FF73821CD6DAEFECD0D5C5F8
 magnet:?xt=urn:btih:73596C0A1F459EB8D6A42E36A2CACACC7E97892A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:73596C0A1F459EB8D6A42E36A2CACACC7E97892A
 ```bash
 magnet:?xt=urn:btih:1BDEA7ABA6675A9FA6E25FC44F67DAFEB3E6097E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:1BDEA7ABA6675A9FA6E25FC44F67DAFEB3E6097E
 magnet:?xt=urn:btih:C6FB20A3DBE6E5BC2EC7C46FA9AAAAC68F069C41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:C6FB20A3DBE6E5BC2EC7C46FA9AAAAC68F069C41
 ```bash
 magnet:?xt=urn:btih:C3D4EB87D98E41DDB80DB572C198AAA24218ABBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:C3D4EB87D98E41DDB80DB572C198AAA24218ABBF
 magnet:?xt=urn:btih:ACECF7BABC15BCDFE73C9830B513E2DBD4007EBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:ACECF7BABC15BCDFE73C9830B513E2DBD4007EBF
 ```bash
 magnet:?xt=urn:btih:AEE0F3D2E891A7DB7F2BA1F56350B891885F9699
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:AEE0F3D2E891A7DB7F2BA1F56350B891885F9699
 magnet:?xt=urn:btih:A7CECBBEBC1B1447C444D495E66093729BE11D4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:A7CECBBEBC1B1447C444D495E66093729BE11D4D
 ```bash
 magnet:?xt=urn:btih:49C0B382003E5DC9A698B8297703BF7E01505158
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Earthling - Radar (1995) 30th Anniversary Edition, 2025, Chrysalis Records Limit
 magnet:?xt=urn:btih:12C05F16BB7306B64E946CD9818CA74B101516D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:12C05F16BB7306B64E946CD9818CA74B101516D9
 magnet:?xt=urn:btih:3E4255B717DD3E5120879C6F281C31B753A40851
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Vintage Mintage - жирный, округлый шрифт. Шрифт с ре�
 ```bash
 magnet:?xt=urn:btih:04946702F16B3BC3299BE6AA2294329F55A63C38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Serpent Bite - Nightblade Of The Law (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 magnet:?xt=urn:btih:C6BE60ADD014EE0DC7F9FA3C1BD29C26A3A9BF9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:C6BE60ADD014EE0DC7F9FA3C1BD29C26A3A9BF9E
 magnet:?xt=urn:btih:AD018B7C88992FB7FD61DAC3B118EC599832A78B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ Tecnica Slab Stencil состоит из 8 начертаний. 4 стиля «
 ```bash
 magnet:?xt=urn:btih:D27BC79BE2D2B940D92CC7BD6B7AAE3BEE20D5EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Libre Caslon Condensed - это шрифт с открытым исходным 
 magnet:?xt=urn:btih:45C05DD5A6706AA6C52C4723DF5935D844E659F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:45C05DD5A6706AA6C52C4723DF5935D844E659F0
 ```bash
 magnet:?xt=urn:btih:A9168AC419AF7547DE8A24E0508EB14C5478EB53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:A9168AC419AF7547DE8A24E0508EB14C5478EB53
 magnet:?xt=urn:btih:E40E0072421522FC36E2179E7E266D090CF8FCBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:9AF61F186300928D443E597B95E6CAF9D76D10B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:9AF61F186300928D443E597B95E6CAF9D76D10B4
 magnet:?xt=urn:btih:F530561A5FB3DBFD93048272160B77D24CF8450C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ All File Reader and Viewer v54 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:146B168FC822DF9727DA76E5ED837108B865D563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Exo Player - Видеоплеер и IPTV v2.0.6 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DCB31691F1B0443EDA731778F6629E2A7855E073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ magnet:?xt=urn:btih:DCB31691F1B0443EDA731778F6629E2A7855E073
 magnet:?xt=urn:btih:A88CAAF534E3AE09A9E75EB83DC34148B56825CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:A88CAAF534E3AE09A9E75EB83DC34148B56825CF
 magnet:?xt=urn:btih:AB621E6AAA45140BD7AD6B7917D9B171168ECC0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Picsart AI Photo Editor, Video v28.7.3 Gold Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:AD830D969F1DDEE444253702F95881C325A07421
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

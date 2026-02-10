@@ -1,3 +1,29 @@
+###  Публикация: 907120   (639725) от 11.06.2015
+
+Браво, Артист! - Савелий Крамаров (2008) TVRip
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_639725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Герой этой программы "Браво, артист!" Савелий Крамаров любил повторять: "Я обычно играю дураков, поэтому меня везде принимают как своего". Этому актеру с его необычным талантом и своеобразной внешностью удалось родиться вовремя. Прижизненная слава "джентельмена удачи" была огромной: вся страна повторяла репризы из "Неуловимых мстителей","Джентльменов (   Читать дальше...   )Телекомпания: Россия, ТВ-ЦентрЖанр: ДокументальныйРежиссер: Александр Коняшов, Максим СимаковАктеры: Савелий Крамаров, Александр Ширвиндт, Михаил ШирвиндтПродолжительность: 01:29:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAE95DD7B55C658A612A11964458DE06F81989E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907221   (639741) от 11.06.2015
 
 Хроники московского быта. Пропал с экрана (2015.06.10) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:53CBF0402938BFB49F91E6AEC90DCE04A24E743F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:53CBF0402938BFB49F91E6AEC90DCE04A24E743F
 magnet:?xt=urn:btih:1AF559F2198F91A12BE1785C612E0DE0C0079741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:1AF559F2198F91A12BE1785C612E0DE0C0079741
 magnet:?xt=urn:btih:223A251EFEB6DC2D0476C4F9AC506385BF6969F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:223A251EFEB6DC2D0476C4F9AC506385BF6969F3
 ```bash
 magnet:?xt=urn:btih:BDD8BF4BF6202ACCEA97D227E5525072D1996A11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:BDD8BF4BF6202ACCEA97D227E5525072D1996A11
 magnet:?xt=urn:btih:F79735EA882464761C1973436005AE22A73D1185
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:F79735EA882464761C1973436005AE22A73D1185
 magnet:?xt=urn:btih:EE61FCE21CD98AED7FBFB1588F8C7C22F90654B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:EE61FCE21CD98AED7FBFB1588F8C7C22F90654B4
 ```bash
 magnet:?xt=urn:btih:75EA5C27A959B4A7D6DBE21042B0F3D13FA2829E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:75EA5C27A959B4A7D6DBE21042B0F3D13FA2829E
 magnet:?xt=urn:btih:0034760699DB0A3EAE13D11D620ED6A5191CABB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:0034760699DB0A3EAE13D11D620ED6A5191CABB3
 magnet:?xt=urn:btih:71E34790DE25F7EE2179654C42A5DFCE1BD0F025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:71E34790DE25F7EE2179654C42A5DFCE1BD0F025
 ```bash
 magnet:?xt=urn:btih:54FD2EBE3FDF1AC3991104EBAC54750054D43FCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:54FD2EBE3FDF1AC3991104EBAC54750054D43FCD
 magnet:?xt=urn:btih:6304EF2B187B764C07294ADDDDCBD4F21D983B10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:6304EF2B187B764C07294ADDDDCBD4F21D983B10
 ```bash
 magnet:?xt=urn:btih:BFACBA42ED6BB594650E3AE447B623B5B3CDACEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:BFACBA42ED6BB594650E3AE447B623B5B3CDACEB
 magnet:?xt=urn:btih:4006813560EF9D2707E54E009F7A33D04CD5A4E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:4006813560EF9D2707E54E009F7A33D04CD5A4E6
 magnet:?xt=urn:btih:CBF8AA0DDF9AE53CEFACF278C142242EC1AC56DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:CBF8AA0DDF9AE53CEFACF278C142242EC1AC56DA
 ```bash
 magnet:?xt=urn:btih:E5BD44A2CB24E8959FA17F490A81B6BBB7170C7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:E5BD44A2CB24E8959FA17F490A81B6BBB7170C7C
 magnet:?xt=urn:btih:925403F00E6D41CB41753ED62ED74913CEAED70C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:925403F00E6D41CB41753ED62ED74913CEAED70C
 magnet:?xt=urn:btih:1EC19C0125707DC9E9D18E6FC39067DD2CDD6EE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:1EC19C0125707DC9E9D18E6FC39067DD2CDD6EE2
 ```bash
 magnet:?xt=urn:btih:6391EC1232B3B664CDF39C68568D2CD5A868CAE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +524,8 @@ NG: Рассвет нацизма. Становление Гитлера / Dawn 
 magnet:?xt=urn:btih:6CF982A493015EB90E690CAB77633D7BD35CD7EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:6CF982A493015EB90E690CAB77633D7BD35CD7EB
 ```bash
 magnet:?xt=urn:btih:76AEF99553B0B5CC9D85853050E91F20ACCC2900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:76AEF99553B0B5CC9D85853050E91F20ACCC2900
 magnet:?xt=urn:btih:46C9826E89DC28F7AC125A0DBF65F274D659F280
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +601,8 @@ magnet:?xt=urn:btih:46C9826E89DC28F7AC125A0DBF65F274D659F280
 ```bash
 magnet:?xt=urn:btih:80453670C4F0DFF8649F54CBD275516566BF9625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +629,8 @@ Discovery: Махинаторы / Wheeler Dealers (2013) HDTVRip [H.264/1080i-LQ
 magnet:?xt=urn:btih:8AD75E372D5DB43BDCA6D1849DF09719E5B8736F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:8AD75E372D5DB43BDCA6D1849DF09719E5B8736F
 ```bash
 magnet:?xt=urn:btih:702FDE3682A018D000CAA31D999621E111F629F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,30 +681,7 @@ magnet:?xt=urn:btih:702FDE3682A018D000CAA31D999621E111F629F9
 magnet:?xt=urn:btih:6244D1FA6722043979B133764F5AE3526EDD4CDC
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289762   (640892) от 01.04.2019
-
-Как Великий Шелковый путь создал мир / How The Silk Road Made the World (2018) HDTVRip [H.264/720p-LQ] (1-3 серия из 3)
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_640892.jpg" />
-</div>
-
-
-###  Подробнее
-
-На протяжении тысячелетий на просторах Евразии торговый путь, соединяющий Восток и Запад, оказал глубокое влияние на историю. Торговля Шелкового пути помогла построить и разрушить империи, вызвать революции и глубоко затронуть цивилизации.
-Человечество, каким мы его знаем, и все, что мы создали, во многом обязаны легендарному Шелковому пути. Путешествуйте во времени, (   Читать дальше...   )Производство: Германия, Китай, Франция, NHNZ, CCTV10, France Télévisions, ZDF EnterprisesЖанр: Документальный, познавательный, историяПеревод: Документальный дубляж (голос рассказчика - дубляж, интервью - одноголосый закадровый перевод)Продолжительность: 3 х ~ 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D3ACA953B7E679D473BC2C2758C81F121461746
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

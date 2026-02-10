@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D0A0AD72E0A0060DD20C1DC1E643695C134F3AC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D0A0AD72E0A0060DD20C1DC1E643695C134F3AC9
 ```bash
 magnet:?xt=urn:btih:21A2FAE5FFDB9037A0DAAAC273B3AC9C52BAE994
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Immortal Life (2024) [Multi] (1.0.43) Scene Tenoke
 magnet:?xt=urn:btih:CCFF63B4332F964071CD47FB2FB39FF9110DB551
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:CCFF63B4332F964071CD47FB2FB39FF9110DB551
 magnet:?xt=urn:btih:5387324BD30D639FDCC90904D6B71DD54C0A3D4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:5387324BD30D639FDCC90904D6B71DD54C0A3D4B
 ```bash
 magnet:?xt=urn:btih:E14C0EC572C1FEC7E26D1462B77CCE8A9183CE69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:E14C0EC572C1FEC7E26D1462B77CCE8A9183CE69
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:E14C0EC572C1FEC7E26D1462B77CCE8A9183CE69
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:E14C0EC572C1FEC7E26D1462B77CCE8A9183CE69
 ```bash
 magnet:?xt=urn:btih:495D548B6A11EFCC37306FBDCAC7A148187095F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Canned Heat - 52 Albums (1967 - 2024) (68 CD) [FLAC|Lossless|image + .cue|tracks
 magnet:?xt=urn:btih:5CC80DDD4B957CC08D43FBC7BCC1AA6FB462BAAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:5CC80DDD4B957CC08D43FBC7BCC1AA6FB462BAAB
 magnet:?xt=urn:btih:DFFAF1AA0B47589698EC049B09F3177952DDDF94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:DFFAF1AA0B47589698EC049B09F3177952DDDF94
 ```bash
 magnet:?xt=urn:btih:E15F2AF5D6C0D28B77E0A1C4DE95D91558220872
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:E15F2AF5D6C0D28B77E0A1C4DE95D91558220872
 magnet:?xt=urn:btih:C16D3F4665A2A52C1CDE476D09D39516B869D640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:C16D3F4665A2A52C1CDE476D09D39516B869D640
 magnet:?xt=urn:btih:B798BF669B7D590639CC4C776E21B0112DDAF5A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:B798BF669B7D590639CC4C776E21B0112DDAF5A4
 ```bash
 magnet:?xt=urn:btih:F488501606B6205363EC4D95FDFFCCA61EA06B62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:F488501606B6205363EC4D95FDFFCCA61EA06B62
 magnet:?xt=urn:btih:A7EBA1966436F73E46F076D9A4B6905C9797062E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:A7EBA1966436F73E46F076D9A4B6905C9797062E
 magnet:?xt=urn:btih:95E0F3DA46264E6007643F0989ED124C448ADF49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Sonible smart:EQ 4 - это интеллектуальный эквалайзе�
 ```bash
 magnet:?xt=urn:btih:F336C79746E313F7D42B5968EB0479844403D42C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:F336C79746E313F7D42B5968EB0479844403D42C
 magnet:?xt=urn:btih:020711B640181C6C635309A7C255D7247833D512
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ Rivers of Nihil — американская дэт-метал-группа из
 magnet:?xt=urn:btih:E5B4C9724DA3096A891A411BFBF15D99581A6AD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ Golf With Your Friends (2020) [Ru/Multi] (19.981700/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:586EAB9C84732B7EBE4AB96809DDFD3C0AC32FF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ VA - Music News For Forum vol.095 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:8CD9E2C37408D481187F54341ADD5C8E0D965E13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ Yaplakal.com — популярное информационно-развлек�
 ```bash
 magnet:?xt=urn:btih:809B2669604F787AF9430AFB9528224252F00A5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ CHEat code — это переосмысленный процессор муль
 magnet:?xt=urn:btih:095A1A9EE4B405DDA62C72AD543B9FF8D527860B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ Mind Echoes 2: Remnants of the Past (2025) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:4990B48A98E3249F0703D41253C8A8027CC0EEE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:4990B48A98E3249F0703D41253C8A8027CC0EEE3
 magnet:?xt=urn:btih:B757BEFA829825CA1DFE968205C1E8378898A566
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:B757BEFA829825CA1DFE968205C1E8378898A566
 ```bash
 magnet:?xt=urn:btih:B04E90933A2CE3D7984A33836DFED94508B8A670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

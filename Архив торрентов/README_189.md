@@ -19,6 +19,8 @@ UsbTreeView - маленькая портативная утилита, реал
 magnet:?xt=urn:btih:B07BF72285E22CA4EC555C54E98AD339773C67CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:698B1CD16DEA9D5B913FD7D7D27ABACFEE80E3B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ OCCT 13.1.6 Portable [En]
 magnet:?xt=urn:btih:3EBE6DAC026667F3B088D7CF4EFFD4F9A5AF8ADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:3EA20D91A369FC2F832351FAD7E7DC19B6F1FA4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ XnView - утилита, предназначенная для просмотр�
 magnet:?xt=urn:btih:060417B0F0A5252980D6783B0361BCD7B19424EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 ```bash
 magnet:?xt=urn:btih:B65ACA6DD6A537B7824691102A3442D4095EE4A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ KMS Tools — сборник программ от Ratiborus в одной об�
 magnet:?xt=urn:btih:3CB54EAB7D3F6E5D28A9BF715D5FDFA20887787E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ SketchUP Pro - является профессиональной версией 
 magnet:?xt=urn:btih:8171ED8E07F62AFBC6910CBEA76F5DF419481B26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:DDA716AE07870C0F0B34B054E30FAB09B26929B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Rhinoceros 3D - профессиональная среда для модели�
 magnet:?xt=urn:btih:EA6CA271964F2833C048B1C2B3E915BDEDF2B5EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Pulsar Modular Complete Effects Bundle 2024.9.8 VST 3, AAX (x64) RePack by TCD [
 ```bash
 magnet:?xt=urn:btih:639EDAF1A4AD0FAEEC4A8ECC68387D19D4800D29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:9C02FB5535269DE20C15C2B95ECCA6159E1104C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:377AC0D1CB5018DFDF77A62ECBFA35039B94965F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +361,8 @@ MODO BASS 2 — это расширенное издание первого во
 magnet:?xt=urn:btih:297004AE87AE29B6CD1B70F676D70017533EF85F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ OCCT 13.1.5 Portable [En]
 ```bash
 magnet:?xt=urn:btih:606958D19197B80AC6D63CD23BF042CC765D71A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +413,8 @@ Duolingo: изучай языки 5.165.6 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:46FE5DC50E9B839124F0AA777F83017227866EA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +438,8 @@ R-Studio Network 9.4 Build 191354 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C4C98A90A8684EB4A65234D9AA0601DB767F4697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 magnet:?xt=urn:btih:E6DB65E3D723A7009293AFCD5EA920E988489704
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ FanControl – свободно распространяемый продукт,
 ```bash
 magnet:?xt=urn:btih:B4BCE86F401F6B74DFDDD5DE21E46D1BF6427EAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ Sandboxie plus - это продолжение Sandboxie с открытым и�
 magnet:?xt=urn:btih:95B6CF42AE3BC4F93282A2548B864292134FB5EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ TweakPower – представляет собой единый графичес
 magnet:?xt=urn:btih:AD140D2A45B2955A2ECF2AA7A9AB44E2A812C156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:60C26F9E4259F4FCD1E3112FBCBA145DA7CE1D3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Reveal Sound основана музыкантами и программиста
 magnet:?xt=urn:btih:040280BD34B5916BC36EF139B3A38407CD82F6A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ RegCool 2.012 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:74CC403FCA0DA10EB2DF212B98F6A734E9DD75D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ Audacity - свободный, простой в использовании зв
 ```bash
 magnet:?xt=urn:btih:0D8D84C361547B955560F78B4465F0A8A55DBC0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +675,8 @@ Opera GX - это специальная версия браузера Opera, с
 ```bash
 magnet:?xt=urn:btih:60A1C648EB4A06AB0810424C78A3D4C896BE17FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

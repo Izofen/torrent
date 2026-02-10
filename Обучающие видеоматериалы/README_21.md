@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B428A279AF5314B283BBAD76E1096FCCBA2C7B14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:B428A279AF5314B283BBAD76E1096FCCBA2C7B14
 magnet:?xt=urn:btih:6BE2FA41D0F0640C94AFEC0410B5D7BCD01979DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:6BE2FA41D0F0640C94AFEC0410B5D7BCD01979DF
 ```bash
 magnet:?xt=urn:btih:3FADE81225C95FB93714D20123F194F86C794D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:3FADE81225C95FB93714D20123F194F86C794D3E
 magnet:?xt=urn:btih:2BD1AC3EC9EE2549A767224C24BE007C2AA17620
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Bill Thomas | Изгиб и формирование (2023) WEBRip [EN, RU / EN 
 ```bash
 magnet:?xt=urn:btih:409BBD14107CABC97FA97612F2DE958E4A4F0050
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Proprofiling, Алексей Филатов | Онлайн курс по про�
 magnet:?xt=urn:btih:1387FFD13121793EC5439F06F75ECB5F1DFDEAE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Mike Siemsen | Скамейки и ящики (2020) WEBRip [EN, RU / EN Sub]
 magnet:?xt=urn:btih:E06AED1AE445048614C37A8C3AB49BA4817843F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Proprofiling, Алексей Филатов | Иллюзии мозга. Как 
 ```bash
 magnet:?xt=urn:btih:60C6AFCE37FA2A9CFE1002CA9F4B5D71B44DC87A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Codeby | Тестирование Веб-Приложений на проник�
 magnet:?xt=urn:btih:F08B85EF117389709A69BE175A4C4145C304D6B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Udemy, GameDev.tv Team, Stephen Woods | Blender 4.2 Simulation Nodes - Master An
 ```bash
 magnet:?xt=urn:btih:41408924ED2C061A77481D1E384F6CCE56CC2B45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ IY BEATS 13 Поток по Созданию Музыки
 magnet:?xt=urn:btih:7C9E39BB43AEAEEB12F57E3CB2D7BDF9973AC777
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:7C9E39BB43AEAEEB12F57E3CB2D7BDF9973AC777
 ```bash
 magnet:?xt=urn:btih:92E1C1133D021F78997F3C4552E939FD846B02F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:92E1C1133D021F78997F3C4552E939FD846B02F6
 magnet:?xt=urn:btih:F36C6EE35FD293942A3C059650AF7CB08C27550D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:F36C6EE35FD293942A3C059650AF7CB08C27550D
 magnet:?xt=urn:btih:DAF4760D05BB77A4755F0DBC2137C6654B3AFC7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +400,8 @@ Solid Factory, Антон Ильин | Основы инженерного ан�
 ```bash
 magnet:?xt=urn:btih:F3990155DA2B0BECDEF0D644D9EC7A357FB60087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:F3990155DA2B0BECDEF0D644D9EC7A357FB60087
 magnet:?xt=urn:btih:FD22C13CA69F6E343E87C27677024CB5C415419D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ Kyle Kwiatkowski | Три основных соединения «ласточк
 ```bash
 magnet:?xt=urn:btih:676F99B367077115470F4DD5B64FD7BD2E10609D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ Mark | 5 Творческих проектов по деревообработк
 ```bash
 magnet:?xt=urn:btih:4A8E610030C6E948813329A07BA7CD6D06C1C79F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ Design Wonderland, Алиса Яковлева | Профессия дизайн
 magnet:?xt=urn:btih:883B5C5DDEAC506BE40CBB136F9CD7E873E394BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:883B5C5DDEAC506BE40CBB136F9CD7E873E394BF
 ```bash
 magnet:?xt=urn:btih:2749A968CE80F9B7D362D143DE5F17A21B1B93C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ GRE туннелирование
 magnet:?xt=urn:btih:D6E6C7078C67C133A95F0136920D580FAA2D8EE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ Christopher Schwarz | Изготовление стульев без страх�
 ```bash
 magnet:?xt=urn:btih:196E9058AB3BDA4787B50D83D4EB684D10964264
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +629,8 @@ magnet:?xt=urn:btih:196E9058AB3BDA4787B50D83D4EB684D10964264
 magnet:?xt=urn:btih:EE05E15AE1F4FC74DB89107D0FB9A576D368485F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +658,8 @@ magnet:?xt=urn:btih:EE05E15AE1F4FC74DB89107D0FB9A576D368485F
 magnet:?xt=urn:btih:BE409DF7FF2C6A4C75DCBCAB39C99DC10B305104
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:BE409DF7FF2C6A4C75DCBCAB39C99DC10B305104
 ```bash
 magnet:?xt=urn:btih:A6DF9A6FA170E07A9415DB6912C7840E163E7304
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +712,8 @@ magnet:?xt=urn:btih:A6DF9A6FA170E07A9415DB6912C7840E163E7304
 ```bash
 magnet:?xt=urn:btih:2851FEF9135D0C1D2C166986434CE1F3AA98C4AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 1171494   (396402) от 04.10.2017
-
-Road Redemption (2017) [Ru/Multi] (1.0) License CODEX
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_396402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Road Redemption - игра в пост-апокалиптическом мире, где ваш верный друг - мотоцикл. Игра является духовным наследником известной многим Road Rush. Вам снова придется ехать по кровавым следам, оставшимся от ваших оппонентов.Тип издания: LicenseРазработчик: Pixel Dash Studios, EQЖанр: Racing, Action, Simularor, 3DЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B4EE8DAD1513D48099C9B4ACB050C31A3D5D1AD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170970   (396406) от 04.10.2017
 
 Hob (2017) [Ru/Multi] (1.12.2.0) Repack Covfefe
@@ -42,6 +18,8 @@ Hob (2017) [Ru/Multi] (1.12.2.0) Repack Covfefe
 ```bash
 magnet:?xt=urn:btih:3963555D57D2BFE3F53A8327582FB4FF454B3F94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +46,8 @@ Beholder (2016) [Ru/Multi] (20171002/dlc) Repack Other s
 magnet:?xt=urn:btih:F3729AF8265A99D9ED5768BF8543E57855613C5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +72,8 @@ Hitman: Sniper Challenge (2012) [Ru/Multi] (1.0.364.0) Repack Other s
 magnet:?xt=urn:btih:293247EB956892FA4510059DD5610746F641ADAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +97,8 @@ Hob (2017) [Ru/Multi] (1.12.2.0/dlc) License CODEX
 ```bash
 magnet:?xt=urn:btih:94DF528567BD14E304659F9CC9FAF7B8E0957EB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +128,8 @@ Hell Yeah! Wrath of the Dead Rabbit [En] (Repack/1.0.0.0.u.1/2 DLC) 2012 | R.G. 
 magnet:?xt=urn:btih:83173E96362DA0CCBAB2D20C628FD0F9CF53E7A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +153,8 @@ RiME (2017) [Ru/Multi] (1.04) License GOG
 ```bash
 magnet:?xt=urn:btih:E302CDAFE6F98D47061ABAE6C380731754C97B88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +180,8 @@ Home Sweet Home (2017) [Ru/Multi] (1.0.1) Repack Other s
 magnet:?xt=urn:btih:32BC039D58F2E1320E4D4AFE42C17223282FB9B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +205,8 @@ PuppetShow 8: The Face of Humanity / Шоу марионеток 8: Быть ч�
 ```bash
 magnet:?xt=urn:btih:63D1EE016DDC9AAA5C802C9753A8077FD478D888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +236,8 @@ Farming Simulator 2013 сочетает доступный и интересны
 magnet:?xt=urn:btih:9DF240F0211A20BFCEF0854CEB3B72A1C5DC8822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +261,8 @@ Awakening 7: The Golden Age / Пробуждение 7: Золотой век (2
 ```bash
 magnet:?xt=urn:btih:B2FEDF623B958E08097FE4C9A1D88711868C053A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +288,8 @@ Total War Battles: SHOGUN – новая стратегическая игра �
 ```bash
 magnet:?xt=urn:btih:8D2E554EE0E12AF3D266F64259E00A5D952571D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +317,8 @@ Risen 2: Dark Waters [Ru/En] (RePack/1.1.0.0/3 DLC) 2012 | R.G. Revenants
 magnet:?xt=urn:btih:9B347F49CA5C3C1E18319BD6892CE1521D1660DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +342,8 @@ Alicia Quatermain: Secret of the Lost Treasures / Алисия Квотерме�
 ```bash
 magnet:?xt=urn:btih:42268880762C49EA6CAB839CF377414AA01FCDD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +371,8 @@ Risen 2. Dark Waters / Risen 2. Тёмные воды [Ru/En/Gr] (RePack/1.0.121
 magnet:?xt=urn:btih:9C5DB89B40CCC9D9BF35754251BE7BC823044A1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +398,8 @@ Black Mirror: Anthology / Чёрное зеркало: Антология [Ru/En
 ```bash
 magnet:?xt=urn:btih:9F02E2AC229FDEC1EA1DEF8C2BCB131D4CF5D18E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +427,8 @@ Of Orcs and Men [Ru/En] (RePack/1.0.0.2) 2012 | Audioslave
 magnet:?xt=urn:btih:173A76C3A9EAF718F183BD842213A365AC1CDD48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +452,8 @@ RAID: World War 2 - это захватывающий кооперативный
 ```bash
 magnet:?xt=urn:btih:46A2A0693599144D2CE29FEDA07E85BEAB0E2E7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +479,8 @@ Home Sweet Home (2017) [Ru/Multi] (1.0) License HI2U
 magnet:?xt=urn:btih:DF38E7815A22CE1388C4C3193C17AC6555518FA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +504,8 @@ Through the Woods – приключенческая игра от третье�
 ```bash
 magnet:?xt=urn:btih:87FB252E7AF9CF4B9271C77801E3033A90CCC7BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +531,8 @@ Medal of Honor: Warfighter - Digital Deluxe Edition [En/Ru] (CrackFix/1.0.0.2) 2
 ```bash
 magnet:?xt=urn:btih:67F7BE15845F2DC85EE9C55A42145EEC44D477EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +560,8 @@ Of Orcs And Men [Ru/En] (Repack/1.0.0.2) 2012 | Fenixx
 magnet:?xt=urn:btih:761B347EFB54DF255E5240BDBE1FD0C34E9611D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +585,8 @@ Danganronpa V3: Killing Harmony — предстоящая визуальная 
 ```bash
 magnet:?xt=urn:btih:C7F18C611EE5A98309B54D7A0D10D7BA2765920A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +612,8 @@ Lichdom: Battlemage – это игра от первого лица, основ
 magnet:?xt=urn:btih:BF922D780FF5362D5887E14B70F9A1CD1898AB99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +638,8 @@ Home Sweet Home (2017) [Ru/Multi] (1.0) Repack xatab
 magnet:?xt=urn:btih:B90217655A719D99559C93F600E4DC11AA20D0B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +663,34 @@ RAID: World War II — это захватывающий кооперативн�
 ```bash
 magnet:?xt=urn:btih:48464215ABFCB752E27F54A30537E0E642391DE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169383   (403067) от 27.09.2017
+
+Secret of Great Queens: Old Tower / Тайны Великих Королев: Старая Башня (2016) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_403067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Много лет прошло с тех пор, как мать королевы Елизаветы обвинили в ведьмовстве. Теперь неизвестный враг саму королеву назвал ведьмой. Кто-то хочет занять ее трон - и пойдет на все ради власти. Сможете ли вы расстроить злодейские планы и спасти королевство?Тип издания: UnofficialРазработчик: Vendel GameЖанр: Квест, Поиск предметов, Логическая, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73C31892A3D3FAE6D5331ECFBFF05AF7CCA63071
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

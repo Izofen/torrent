@@ -19,6 +19,8 @@ Toricky (2017) [Ru/Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:349075E39C9355618B7D474C8F68B4EABDAC34FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Worms Revolution + 4 DLC [Ru/En/Multi8] (Repack/0124) 2012 | R.G. Origami
 ```bash
 magnet:?xt=urn:btih:1E73ABC4A85DB144FEDB199DAF7A9041D0AA8348
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Heroes Over Europe [Ru/En] (RePack/1.02) 2010 l Adil
 magnet:?xt=urn:btih:BD7F35D346BAA283F0EF6AB4214F3D8FFE73E0BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ The Binding of Isaac: Rebirth – переиздание оригинально�
 ```bash
 magnet:?xt=urn:btih:3DFE509EF9BAA782E764700F5DC0835919525D1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Win3xO - The Win 3.x Collection v1.0 (2015) [En] (1.0) Repack Firstrun70
 magnet:?xt=urn:btih:E6222718AA6CA4177354C9014AEC9761F15E328E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Heaven Dust (2020) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:382487742E347FFCB77902E6A4174A379A2D734F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Worms Revolution / Worms: Революция + 4 DLC [Ru/En/Multi7] (Steam-Rip/0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Dollar Dash [En/Multi5] (L) 2013 | FANiSO
 ```bash
 magnet:?xt=urn:btih:3E16DA7D8045C8C3711E7FA4DE54C017AC39C84B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Ignition - гонки с видом сверху, уже доступны для
 magnet:?xt=urn:btih:B1727087AA5A811ED06DDD374B2405A35687ECEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Iris and the Giant — это коллекционная карточная иг
 ```bash
 magnet:?xt=urn:btih:BDF6C87E7FE39304C74BDF3358653623BD10329F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Cat and Ghostly Road - это атмосферный point-and-click квест,
 magnet:?xt=urn:btih:5F85216E3EB82CAC2731C0490FC2E10C3075F594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Infinitesimal Point  (2016) [Ru/En] (1.0) Repack R.G. Жук в Муравейн
 ```bash
 magnet:?xt=urn:btih:76CF61AC3EC010B86057F74BE889C947D28FA9E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ The Binding of Isaac: Rebirth (2017) [En/Jp] (1.0/upd3/dlc) Repack Other s [Comp
 magnet:?xt=urn:btih:F40E5363D6663C73B0F8E3295BC819D8A65B954F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Doctor Who: The Eternity Clock – очередная игра в серии «D
 ```bash
 magnet:?xt=urn:btih:ADD8AB252FA1E7AE9EA5B0BEB115E48EDD5E15E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ The Binding of Isaac: Rebirth (2014) [En] (1.0/dlc) SteamRip Let'sPlay
 magnet:?xt=urn:btih:5D96A4D21826E4BF5D231594088BDA4CDB73BF57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Sayaka (2017) [En] (1.0) License HI2U
 ```bash
 magnet:?xt=urn:btih:7D515B1E838F24FC1F220DEE2075DB56C3878E5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ The Binding of Isaac: Afterbirth — это аддон культового ин
 magnet:?xt=urn:btih:6B0F99DB43C79C4FB25B41F5B289AF479EB0114E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Dragon Ball: Xenoverse (2015) [Ru/Multi] (1.08.00/dlc) SteamRip Let'sPlay
 ```bash
 magnet:?xt=urn:btih:EE1FAD7D9B07E8921F8F3040D58FE92419694C3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ Hypersensitive Bob — это аркадный платформер, главн�
 magnet:?xt=urn:btih:0463415FFCF76AAA1CAEA0FABBB2B3CFFBD71C8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Deathtrap является смесью жанров tower defence и экшен
 ```bash
 magnet:?xt=urn:btih:83945F7B4A940AEF60108F4D071E7CE8BB68A3CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Space Robinson: Hardcore Roguelike Action (2019) [Ru/Multi] (2.1) License GOG
 magnet:?xt=urn:btih:F6A64311341A16653EB5C8EDC359D3F61031D3A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Highly Likely (2020) [Ru/En] (1.0/upd1) Repack Other s
 ```bash
 magnet:?xt=urn:btih:15565911580103E708AF0382AACAEDD1C523067A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ Deadlight [En/Ru] (RePack/1.0.9249.0) 2012 | R.G. Механики
 magnet:?xt=urn:btih:99C2C02D508F63E49421E1106970D9A4EDD9E088
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Crystal Caves – яркая игра с игровым процессом, го
 ```bash
 magnet:?xt=urn:btih:21C7E931D7CBE9C07B4C0B5B5535290028BD9A4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Zombie Driver HD [En/Multi6] (Steam-Rip/1.4.23-20983/DLC) 2012 | R.G. Игром
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Florence – это трогательная история примерно н�
 ```bash
 magnet:?xt=urn:btih:A520C312EE62A09A612441E8D480F2DCCF86D694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

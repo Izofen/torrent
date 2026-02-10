@@ -20,6 +20,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:0B748E4F3BE031D1D0F52F89A1171409EFAC8EC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ VA - Sunday Chill - Berlin, Vol. 1 (2021) [AAC|~325 Kbps] <Deep House, Chill Hou
 magnet:?xt=urn:btih:D9133284619B892BD2622307FCCAFEC70BC5C3B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ MediaHuman YouTube Downloader 3.9.9.82 (1905) RePack (& Portable) by Dodakaedr [
 ```bash
 magnet:?xt=urn:btih:2CC7D20EB1F97019257DDB98367F5C0E2B1FF6C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:2CC7D20EB1F97019257DDB98367F5C0E2B1FF6C1
 magnet:?xt=urn:btih:672EEA61298791A92917D03C8FD2C6BFAC549AA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ MotoGP. Этап 08. Гран-при Нидерландов. Спринт (24.06
 ```bash
 magnet:?xt=urn:btih:32D82F49AD0F508AF2056917E612A02845E2BD81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Host project came out from Host album and it was an old dream of Greg Mackintosh
 magnet:?xt=urn:btih:3A780D368E3B80E44625ED2EB6D1988FEA9E08A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:3A780D368E3B80E44625ED2EB6D1988FEA9E08A6
 ```bash
 magnet:?xt=urn:btih:6C7316DC918E0AAE367E3EE438A1438D44792378
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ ten56. - Downer (2023) [FLAC|Lossless|WEB-DL|tracks] <nu-metalcore>
 magnet:?xt=urn:btih:1502759AF101729A12BED41B9772B9BF460434D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ Birthright: The Gorgon's Alliance / Право на Жизнь: Союз Гор�
 magnet:?xt=urn:btih:D96A151A24C218B9162C80F9F7C083DAF6FC1EA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:D96A151A24C218B9162C80F9F7C083DAF6FC1EA9
 ```bash
 magnet:?xt=urn:btih:CD52247EA43E7181FF20036382CEC313AF4ADD2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:CD52247EA43E7181FF20036382CEC313AF4ADD2C
 magnet:?xt=urn:btih:1C3E8F01FA45392260F98AB548FEC94E9FE67E95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ VA - Future Vocal Trance Vol. 2 (2023) [MP3|320 Kbps] <Trance, Vocal Trance>
 magnet:?xt=urn:btih:3201E4AFB6991BFF5A5F939F9F6B5C92729E8352
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:3201E4AFB6991BFF5A5F939F9F6B5C92729E8352
 magnet:?xt=urn:btih:2BA1EAFCD0A2C67D296F13C8B2364601B9F06062
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:2BA1EAFCD0A2C67D296F13C8B2364601B9F06062
 ```bash
 magnet:?xt=urn:btih:36817DEA927F8D9D7621672ACB44F0911E1E8763
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ magnet:?xt=urn:btih:36817DEA927F8D9D7621672ACB44F0911E1E8763
 magnet:?xt=urn:btih:578EF8F33AFDA7AF06818518BD25FDD013A50802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:578EF8F33AFDA7AF06818518BD25FDD013A50802
 ```bash
 magnet:?xt=urn:btih:2DF72790336AD74B395C594701AB8281E89E0C96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ The Black Apples - Highball Roller (2023) [MP3|320 Kbps] <Heavy Psych, Stoner, D
 magnet:?xt=urn:btih:D5926523F7F650F6A9DEBB5537AA7D2023612717
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ Service Station Pro 2020.9 [En]
 ```bash
 magnet:?xt=urn:btih:533F40BF700652E4423E2DF95FC757010C87D47B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ The Samurai Of Prog - The Man In The Iron Mask (2023) [MP3|320 Kbps] <Progressiv
 magnet:?xt=urn:btih:9AD0293DB0FCC3BE158ACCD758823B6CB01D2E03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ RTG. Прогулка по Ленинградскому зоопарку (2013) 
 ```bash
 magnet:?xt=urn:btih:AD9493ECD786566327ADDA07544B94509A67C114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ Sakrum - Escombros de Muerte (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Power 
 magnet:?xt=urn:btih:EE01391E7A2CE02E72C262AB11A098F1300BDC07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ magnet:?xt=urn:btih:EE01391E7A2CE02E72C262AB11A098F1300BDC07
 ```bash
 magnet:?xt=urn:btih:4C5162A78AF7F71C7B7994F7F631E7358AB49177
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +625,8 @@ Udemy, Maximilian Schwarzmüller | JavaScript Unit Testing - The Practical Guide
 magnet:?xt=urn:btih:17E103ADD63B72D84F8B954A17DC8C6A62206018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ Things — приятный и простой ежедневник. Это ид�
 ```bash
 magnet:?xt=urn:btih:FD6415A836A0A80E31748BFF9ED4737DC3B281E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ Davodka - Accusé De Réflexion (2017) [MP3|320 Kbps] <Rap, Hip-Hop, French Rap>
 magnet:?xt=urn:btih:6709400328968E5EE39E6B38BD80CACB42216A14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ magnet:?xt=urn:btih:6709400328968E5EE39E6B38BD80CACB42216A14
 ```bash
 magnet:?xt=urn:btih:09AF9C47AA9BAA8C29DC12065EDE51CB9E94379C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

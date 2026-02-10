@@ -22,6 +22,8 @@ Office 2013-2021 C2R Install + Lite 7.4.1 b29.05.22 Portable by Ratiborus [Multi
 magnet:?xt=urn:btih:5930264DF48042F8F91707304C1DC0CE5CC8C5EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ WinToUSB - позволяет устанавливать и запускать �
 ```bash
 magnet:?xt=urn:btih:F47FF8B6BB0AB6535CF17AA7A5C963C3B788E8B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ GPU Shark - небольшая бесплатная и очень простая
 magnet:?xt=urn:btih:8E978608217DF5E5FE7A52BE4896DF98C7D9252A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ GraphicConverter 11 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:3B037FCF917B7993673905453686F206FF4CCE79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Mp3tag предоставляет пользователям мощный и п�
 magnet:?xt=urn:btih:5D0AE35848E36C951CEF0C65AA947A0498C7CB31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:B1C636121AD9C05781463343D2442176058CF755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Auslogics Duplicate File Finder поможет Вам избавиться от 
 magnet:?xt=urn:btih:D07D3BFB21FCC356C5DB138D494CCE78DAA6DF1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Smart Driver Manager - это быстрый, простой и безопасн
 ```bash
 magnet:?xt=urn:btih:12512C9CC9C72C14BA0A93C38662503EAE87074D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Reg Organizer® - это многофункциональная программ
 magnet:?xt=urn:btih:AA8A9008F57B3813B56BC21AF28B1F3D417789E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:42612DDB35B230E33D7E47DEDE306F82BCED7271
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ RogueKiller Anti-Malware можно использовать бесплатно 
 magnet:?xt=urn:btih:FA100A07EEE9A3E93E6812EF31D755285D448007
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ RightFont - менеджер шрифтов с красивым интерфей
 ```bash
 magnet:?xt=urn:btih:2FE9BDE0E0C6ECC3EE95481EB12934DB10152BB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Downie поддерживает более 1,000 популярных сайто
 magnet:?xt=urn:btih:33A43770C1BB8ED2954F428DD969E38A343E0CEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ GOM Player Plus - мультимедийный плеер со множеств�
 magnet:?xt=urn:btih:B421C113593492111FE850FC5D46DC26D47F89CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:7E6ACB5FD554AB38C931D38DB2FDA95E07322847
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Hetman Uneraser Unlimited Edition 6.8 RePack (& Portable) by elchupacabra [Multi
 magnet:?xt=urn:btih:867B044E44CBF2E60DF0045334B25627BB8F4BCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:23A7285B357BDB6C10F1652631AB030C8756405D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Timer RH PRO - утилита для управления собственным
 ```bash
 magnet:?xt=urn:btih:CE5EA33425F8FE1DD7094A0AE5FFB1D24545C68D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Omni Recover для macOS позволяет восстанавливать уд
 magnet:?xt=urn:btih:2115D0540592C206E8A541361626CE5934F2AF0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Opera 99.0.4788.31 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5C6FBB624FF940849643E69C05D02B3F2FABEEF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ CheckBook Pro - это не просто базовый инструмент р�
 magnet:?xt=urn:btih:10039148E8412CD2CCC26605B2D8DC1060AF75EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ SyncBird Pro - это файловый менеджер iPhone, который �
 ```bash
 magnet:?xt=urn:btih:07DA3577AEEE21A5C7A10F48B73CEF88FB10AF66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ R-Wipe & Clean - программа для невосстановимого уд
 magnet:?xt=urn:btih:7393AE503A61F0006F3DF34A7879908B4832360E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Omni Toolbox - это обширный набор инструментов дл�
 ```bash
 magnet:?xt=urn:btih:2A6954B08897EB74A57D2583CBB314CB37BA5E2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +651,8 @@ uTorrent Pro 3.5.5 Build 46276 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 magnet:?xt=urn:btih:1AA03E0E665CEBDD6C4F7DC693A36A66AB2AE2E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ MediaHuman YouTube Downloader 3.9.9.84 (1407) RePack (& Portable) by elchupacabr
 ```bash
 magnet:?xt=urn:btih:762F0E37FA99A10F58FD8FA5311EA4532D923EB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

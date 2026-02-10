@@ -19,6 +19,8 @@ Forgotten Realms: Demon Stone (2025) [Ru/Multi] (BuildID 19330718) Repack FitGir
 magnet:?xt=urn:btih:7C6888D1AF24DC2F80E777B40B231F45A4CE7F09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Space Adventure Cobra - The Awakening (2025) [Multi] (0.01.35/dlc) Repack Let's�
 ```bash
 magnet:?xt=urn:btih:FE127468FE390B2416EAAFF3ED2B9073FD7DEDDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Aurelia (2024) [Ru/Multi] (1.0.1) Repack Let'sРlay [18+]
 magnet:?xt=urn:btih:AC92A84224079114DF118A7DD9E24B99EE72E253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Enemy Front - это шутер от первого лица, действие �
 ```bash
 magnet:?xt=urn:btih:38DDD4563F211074CEDEC2EE59898F281E0CCE7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BROK The InvestiGator (2022) [Ru/Multi] (1.5.3.7/dlc) License GOG [Deluxe Editio
 magnet:?xt=urn:btih:86A1657B53A0FB31E7FF41F72E55338D0278ABC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:86A1657B53A0FB31E7FF41F72E55338D0278ABC4
 ```bash
 magnet:?xt=urn:btih:11C862FE57F148B4C478FB74ABB30170E55615D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Nordhold (2025) [Ru/Multi] (1.1.05/dlc) Repack Let'sРlay [Supporter Bundle]
 magnet:?xt=urn:btih:27CE9131BE6BC6899BACE478DD772DB0F25128B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Drifter (2025) [Ru/Multi] (1.0.7) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:088B7099A9F13B4BF4721A48838B33B48FDAAB48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Grim Chronicles: Superior Sorcery / Мрачные летописи: Высше�
 magnet:?xt=urn:btih:1F0597532A19D23245EDBDFC219283DCD54656F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.3_410056/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:EE6C6A8AF390A8900E051524C6BA4989A9874E8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Black Geyser: Couriers of Darkness (2021) [Ru/Multi] (1.2.64) Repack FitGirl
 magnet:?xt=urn:btih:125C84678784D9E843CFDAA61A9824ACF4D4CFFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Ninja Gaiden: Ragebound - совершенно новая игра с боков
 ```bash
 magnet:?xt=urn:btih:12E67FDF89F4D86ADF4A4BA9005F0EC6C90BFBCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ House Flipper 2 (2023) [Ru/Multi] (1.9.3.0/dlc) Repack Pioneer
 magnet:?xt=urn:btih:B268012280AF655BACA9CC940035C194567961C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Vlad Circus: Curse of Asmodeus (2025) [Ru/Multi] (1.6.1) License GOG
 ```bash
 magnet:?xt=urn:btih:5B099136617A556E1A305A29E8DF106534E0ED95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Firehawk FPV: Drone Warfare Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:178A61B20F9FA02D9CD4C5A6E7F0B970780A66F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Becastled – инди-стратегия в реальном времени, ч
 ```bash
 magnet:?xt=urn:btih:FAECF7F69348ACB84B45C9B71DD3D57E8D3CC326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Yield! Fall of Rome (2025) [Ru/Multi] (1.0.2.0) Repack Let'sРlay [Supporter Bun
 magnet:?xt=urn:btih:2F8213373EC9595836255774B4FF0EE207405B37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3689997) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:144ABB2F6437B2F2BA22D1CC449C9074E87366D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ FOUNDRY - строительный симулятор с видом от пер�
 magnet:?xt=urn:btih:C69EEC5FF58DA167778857C8D175FF7137899ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 ```bash
 magnet:?xt=urn:btih:DFA7A25DC178A1DF50A1A8C455E097B067F6FB00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Dark Envoy объединяет классическую механику RPG с
 magnet:?xt=urn:btih:7EC7EB4C71AD6FF90A0B35480FAC0C39BB8EF68C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Intravenous 2 - это уникальное сочетание тактичес�
 ```bash
 magnet:?xt=urn:btih:DB1B953595975C465067CD894016807C21157EEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Spirit of the North 2 (2025) [Ru/Multi] (12765-13132) Repack Let'sРlay
 magnet:?xt=urn:btih:C3CBC428F06E009717C0295EC2F24591996EFE65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Metal Gear Solid Delta: Snake Eater (2025) [Ru/Multi] (1.1.1/dlc) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:319E1B84A9029D57856C4367A7993E8C8C13FD00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land / Ателье Ю
 magnet:?xt=urn:btih:13C6C7AFE8509B12A302A6EECEEA9D96D6844974
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Shadow Labyrinth - это смесь классического платформ
 ```bash
 magnet:?xt=urn:btih:C7191CDFD50DA54A2C9C1EF99C8F670189E4E015
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

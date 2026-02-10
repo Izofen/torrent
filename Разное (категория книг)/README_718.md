@@ -1,3 +1,30 @@
+###  Публикация: 743241   (975695) от 08.01.2014
+
+Преподобный Серафим Саровский | Стяжание Духа Святого (2014) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+В книге публикуются труды, наставления и поучения великого русского святого – преподобного Серафима Саровского (1753–1833), чьи идеи и мысли стали одной из духовных вершин русской цивилизации.
+ В беседе с учениками старец Серафим учил, что цель христианской жизни состоит в стяжании (обретении) Духа Святого, объяснял условия этого стяжания (трезвление души и духа, чистота плоти) и его средства (пост, молитва, добрые дела). Он говорил о том, что Бог близок каждому и лишь по всеобщей хладности к вере люди утеряли способность видеть Бога и распознавать истинные явления Святого Духа. Он показал одному из своих учеников Н. Мотовилову, что значит пребывать в полноте Духа. Кульминационный пункт беседы наступил тогда, когда по молитве старца Мотовилов телесными глазами узрел происходящее с ним самим и Серафимом чудо преображения – оба они оказались в сиянии Фаворского света.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5AC590D9DCA3A7A708B047385FFF008670EE6A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 743224   (975701) от 08.01.2014
 
 Антонина Соколова | Заговоры, притягивающие женскую силу (2013) [PDF]
@@ -20,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:38849A4A718E43BE8E2B5C808871CFD6EC08477A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:38849A4A718E43BE8E2B5C808871CFD6EC08477A
 magnet:?xt=urn:btih:D2CF3530337427565C30A9D9D1B4771397BFCE61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:D2CF3530337427565C30A9D9D1B4771397BFCE61
 ```bash
 magnet:?xt=urn:btih:FE71357471FA0275C8E25F63478EA4CB5CE9FBEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:FE71357471FA0275C8E25F63478EA4CB5CE9FBEF
 magnet:?xt=urn:btih:6AC451FFB3DF71D18888EF360A4A1ED5E72213CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:6AC451FFB3DF71D18888EF360A4A1ED5E72213CE
 ```bash
 magnet:?xt=urn:btih:0B93017BCEAA0C23FAA126AFE4DB1B429D2FCE05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +178,8 @@ magnet:?xt=urn:btih:0B93017BCEAA0C23FAA126AFE4DB1B429D2FCE05
 magnet:?xt=urn:btih:30586C1B1217FD0385887F68D32DEEF95C5FECF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +203,8 @@ magnet:?xt=urn:btih:30586C1B1217FD0385887F68D32DEEF95C5FECF7
 ```bash
 magnet:?xt=urn:btih:E51175FC4DB0B5D844E08301DAD9D7165F4EF437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +230,8 @@ magnet:?xt=urn:btih:E51175FC4DB0B5D844E08301DAD9D7165F4EF437
 magnet:?xt=urn:btih:D6A323F08CDB6315864AA12AAAD19CD21B9098F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +255,8 @@ magnet:?xt=urn:btih:D6A323F08CDB6315864AA12AAAD19CD21B9098F2
 ```bash
 magnet:?xt=urn:btih:8E413612AEEB91CC5FB972CE0A9F2EF4A0A868A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +283,8 @@ magnet:?xt=urn:btih:8E413612AEEB91CC5FB972CE0A9F2EF4A0A868A5
 magnet:?xt=urn:btih:D066D464873CBCECFCCF742C2CA273A8E27623CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +308,8 @@ magnet:?xt=urn:btih:D066D464873CBCECFCCF742C2CA273A8E27623CA
 ```bash
 magnet:?xt=urn:btih:69D4E0F3433625B9BDF7D1F578B88A9EF15AEC61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +335,8 @@ magnet:?xt=urn:btih:69D4E0F3433625B9BDF7D1F578B88A9EF15AEC61
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +360,8 @@ magnet:?xt=urn:btih:69D4E0F3433625B9BDF7D1F578B88A9EF15AEC61
 ```bash
 magnet:?xt=urn:btih:1119160C9DBD33A61C5E58C75091556418882975
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +389,8 @@ magnet:?xt=urn:btih:1119160C9DBD33A61C5E58C75091556418882975
 magnet:?xt=urn:btih:59EAAF7F419B79F056A2821CACD19F85D96FD2E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +414,8 @@ magnet:?xt=urn:btih:59EAAF7F419B79F056A2821CACD19F85D96FD2E5
 ```bash
 magnet:?xt=urn:btih:D6AC19F51E6C324C13B6F931C27514215398F37F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +441,8 @@ magnet:?xt=urn:btih:D6AC19F51E6C324C13B6F931C27514215398F37F
 ```bash
 magnet:?xt=urn:btih:8D6CBD3661EEAD5DE16256D20E0E6B7D2668CD3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +473,8 @@ magnet:?xt=urn:btih:8D6CBD3661EEAD5DE16256D20E0E6B7D2668CD3C
 magnet:?xt=urn:btih:095C593274AA2A25C76BCFE4E443BF18B5A25C22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +499,8 @@ magnet:?xt=urn:btih:095C593274AA2A25C76BCFE4E443BF18B5A25C22
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +524,8 @@ magnet:?xt=urn:btih:095C593274AA2A25C76BCFE4E443BF18B5A25C22
 ```bash
 magnet:?xt=urn:btih:B9B51B2F789A720E06F2D5FA4C7E3FD3F0ED9466
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +553,8 @@ magnet:?xt=urn:btih:B9B51B2F789A720E06F2D5FA4C7E3FD3F0ED9466
 magnet:?xt=urn:btih:65BD9C811F8E64E030C14E34D27AE3C081AD6057
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +578,8 @@ magnet:?xt=urn:btih:65BD9C811F8E64E030C14E34D27AE3C081AD6057
 ```bash
 magnet:?xt=urn:btih:85064A0EDDA730CA5780FC3596CAF8357CAB26C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +606,8 @@ magnet:?xt=urn:btih:85064A0EDDA730CA5780FC3596CAF8357CAB26C7
 magnet:?xt=urn:btih:9427BA78CD0A0F6203F699184C807A7EFFB26FD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +631,8 @@ Debra Kauffman Yaun и др. | The Art of Drawing People / Искусство р
 ```bash
 magnet:?xt=urn:btih:ADE85483E2D31A12C731CF7D2077C52150D5421A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +659,8 @@ magnet:?xt=urn:btih:ADE85483E2D31A12C731CF7D2077C52150D5421A
 magnet:?xt=urn:btih:10C0E692238FE21108068276875C120C9826EBF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +685,7 @@ magnet:?xt=urn:btih:10C0E692238FE21108068276875C120C9826EBF0
 magnet:?xt=urn:btih:589C7C757474AFB9761B9DD1A831E74E9FFEB0FD
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 615926   (976313) от 09.02.2013
-
-Л.Н. Кудинова (составитель) | Кавардак. Кулинария из домашнего архива [1990] [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976313.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга содержит множество рецептов - от салатов до десерта и напитков, есть рубрика полезные советы.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39D50D28A884DAC737F73454EFDE93DD36CF5758
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Envy - All the Footprints You've Ever Left and the Fear Expecting Ahead (2001) [
 magnet:?xt=urn:btih:8BCBBFF3E96150AB4A09C88E90BA29D8789F2115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Envy - Insomniac doze (2006) [FLAC|Lossless|tracks + .cue] <Hardcore>
 magnet:?xt=urn:btih:EEE493C268B312350A779F01BF94044E58D35769
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Envy - A Dead Sinking Story (2003) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
 ```bash
 magnet:?xt=urn:btih:C47541FF72F4E68E82370478F6936A6193062AC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ Tides of Man - Young and Courageous (2014) [FLAC|Lossless]<Post-Rock, Progressiv
 magnet:?xt=urn:btih:EE3ED68765EE95C46B2C242C151765847008923E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +143,8 @@ North by North - Get Weird (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alt
 ```bash
 magnet:?xt=urn:btih:3FB5748115C64D51C911B41972185A2F29EB1935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ Tacocat - This Mess Is a Place (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock,
 magnet:?xt=urn:btih:06C2878171C05774C4FB9EE72E9F7FAFED100B31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +201,8 @@ Envy - Atheist's Cornea (2015) [FLAC|Lossless|WEB-DL|tracks] <Hardcore>
 ```bash
 magnet:?xt=urn:btih:AAD9E16501593589ADB11FE8D96B3E22791D0DFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +231,8 @@ Muse - Live At Rome Olympic Stadium (2013) [FLAC|Lossless]<Alternative Rock>
 magnet:?xt=urn:btih:C8BF2117929C3BDD13C397BC979B0F4DC6A33F88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +259,8 @@ Marilyn Manson - The Pale Emperor (2015) Deluxe Edition [FLAC|Lossless]<Alternat
 ```bash
 magnet:?xt=urn:btih:CA24421BA05E8FF1923C550B5A8F26B27E16E8FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +289,8 @@ Sex Pistols - Flogging a Dead Horse (1979) Reissue, 1986, Virgin [FLAC|Lossless|
 magnet:?xt=urn:btih:B2519A7A18BFC520C4F3941CE8F36D6711095933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +317,8 @@ Days Of The New - Days Of The New (1997)/Outpost Recordings/ [FLAC|Image+cue]<Po
 ```bash
 magnet:?xt=urn:btih:0BB63D1961035120AB647BE0EF72B887A8E38659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +353,8 @@ Fall Out Boy - American Beauty / American Psycho (2015) [FLAC|Web-Dl|Lossless]<A
 magnet:?xt=urn:btih:10F0EE4477F832A8B07A51EF7F82D02B289E892F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +381,8 @@ CD1
 ```bash
 magnet:?xt=urn:btih:A241EB8A3024F023EAA0ED7A6DBE81EF0B4D5EB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +411,8 @@ Dropkick Murphys - 11 Short Stories Of Pain & Glory (2017) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:E856F61F4E81F49F622D19135F8500C74F667141
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +439,8 @@ The Veer Union - Decade (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, 
 ```bash
 magnet:?xt=urn:btih:D5CD6EF134F360BB44F48076EF655C7C00959AF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +469,8 @@ Refused - Songs to Fan the Flames of Discontent (1996) [APE|Lossless|image + .cu
 magnet:?xt=urn:btih:CBEA4722A3CFB97EA12C636EEF2BB231EA923164
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +497,8 @@ Frances Quinlan - Likewise (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alt
 ```bash
 magnet:?xt=urn:btih:97EB9E8611989428E6D971B2241D440953A1E0A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +533,8 @@ Age of Days - 2 Альбома (2007-2013) [FLAC|Lossless]<Alt. Rock | Modern Ro
 magnet:?xt=urn:btih:D8110091248181B4960D0ADA9F3F4BA4C0AFD735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +562,8 @@ Suede - Night Thoughts (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, A
 magnet:?xt=urn:btih:68D1BCCFBF08B7E5F6199D8AA147B2FEB892F200
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +590,8 @@ Textures - Phenotype (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Math Meta
 ```bash
 magnet:?xt=urn:btih:7345CE8A35281E4F737EA16EED0A02F1CE2A9787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +630,8 @@ Autumn's Grey Solace - Discography (5 albums) (2002-2008) [Lossless|FLAC/APE]<Et
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +658,8 @@ The Stranglers - Feline (1982) [FLAC|Lossless|image + .cue] <Post Punk, New Wave
 ```bash
 magnet:?xt=urn:btih:995B8866D5CD65216596904E526F7B66F836AFCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +688,8 @@ Siouxsie - Mantaray (2007) [FLAC|Lossless|image + .cue] <Alternative Rock, PostP
 magnet:?xt=urn:btih:66D34883B3F45ACBA67C771817A27D827498B449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,6 +716,8 @@ Real Estate - The Main Thing (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
 ```bash
 magnet:?xt=urn:btih:30BC83685B288B6C062931CB99B551E236FB2698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -698,6 +746,8 @@ Greg Dulli - Random Desire (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alt
 magnet:?xt=urn:btih:B3DB5BBD0FE02D9DA87746AE32923851547874EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -724,6 +774,8 @@ Greg Dulli - Amber Headlights (2005) [FLAC|Lossless|tracks + .cue] <Indie Rock, 
 ```bash
 magnet:?xt=urn:btih:7C8C63E1D320A507283CDD8DC1612343329622E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

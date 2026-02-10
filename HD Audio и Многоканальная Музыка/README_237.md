@@ -1,3 +1,32 @@
+###  Публикация: 1039521   (594514) от 02.08.2016
+
+Арсенал - Своими Руками (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_594514.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Тайна (Mystery)
+А2 Посвящение Махавшину (Dedication To Mahavishnu)
+В1 Свет На Пути (Light On The Way)
+В2 Сюита В Фа Миноре (Suite In F Minor)Жанр: Jazz, FusionПродолжительность: 00:34:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9258C86254D062CB9A287D909694D832CD4FDD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039556   (594516) от 02.08.2016
 
 Московский Диксиленд "Капелла Дикси" (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Dixieland>
@@ -21,6 +50,8 @@
 ```bash
 magnet:?xt=urn:btih:D0C29062D77F0B1F8A3577109D6BD00F8AF65079
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ A4 Tony Bennett - I've Grown Accustomed To Her Face(   Читать дальше
 magnet:?xt=urn:btih:6C9C3382778439949BC6EDAB0034DD6BE31F43BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ A4 Carmen McRae - Exactly Like You(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:BC26ADCA15833D7CA36C185E8FAB32048C1FE669
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ Bing Crosby (Бинг Кросби) - Play A Simple Melody (1985) [FLAC 1.0|96/2
 magnet:?xt=urn:btih:A7F86F31BAD4CA4FF98182D16A2AAECF9E6E33FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +167,8 @@ A4 Art Tatum - Хумореска (Humoresque)(   Читать дальше...  
 magnet:?xt=urn:btih:DABD8BC7D5A01F33BC91F52D3EAD1DEA6C0C8E2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +194,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:CA9BC1DE0C466BC3F64B5398EDB5229BC15D7852
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -183,6 +224,8 @@ Uriah Heep - Innocent Victim (1977) Reissue, 1978, Bronze [FLAC 2.0|192/24|image
 magnet:?xt=urn:btih:DBDFFC492D13357BC3A0CEF1CB27C731BA894362
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +252,8 @@ Side 1:
 ```bash
 magnet:?xt=urn:btih:7CAF7AAD55B9C0712280BAD210322E49762FAB7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +282,8 @@ A4 Cheryl Lynn - At Last You`re Mine(   Читать дальше...   )Жанр
 magnet:?xt=urn:btih:CCB6F2B7D781BB17B0604F73581BFFBFE9C0B110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +310,8 @@ A4 A4(   Читать дальше...   )Жанр: Synth-pop, DiscoПродол�
 ```bash
 magnet:?xt=urn:btih:BC5137EDBBB84445E7956DAAAABB28F35A3E8041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +340,8 @@ VA - XXXL Европейский 3 (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <
 magnet:?xt=urn:btih:86B0C49B3A92AD36814265E7525C38ED20D46478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +368,8 @@ Jeff Lynne - Armchair Theatre (1990) [FLAC 2.0|192/24|image|Vinyl-Rip]<Album Roc
 ```bash
 magnet:?xt=urn:btih:D9B40376CB55FF08130DE88DC89A60AF3D1DFBA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +398,8 @@ Pat Boone · Пэт Бун - April Love · Любовь В Апреле (1986) [
 magnet:?xt=urn:btih:422090CFC33B88B77F7BAE68016AA78C0083C5F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +427,8 @@ magnet:?xt=urn:btih:422090CFC33B88B77F7BAE68016AA78C0083C5F0
 magnet:?xt=urn:btih:58444272C6F14D7C056D84BCD585DA3887E4694F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +454,8 @@ Triosphere — норвежская Power/Progressive Metal группа из Т
 ```bash
 magnet:?xt=urn:btih:E6D71D32F46155D77744B0DB554E85F5A157A2AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +484,8 @@ John Lennon - Imagine (1971) 2014, Universal Music [DTS-HD MA, LPCM, Dolby TrueH
 magnet:?xt=urn:btih:1952E6CAC5D42AF9CD09596DD8BE1F5D7E14F32B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +512,8 @@ Genesis - Selling England by the Pound (1973) 2014, Remastered, Virgin [DTS-HD M
 ```bash
 magnet:?xt=urn:btih:56A3F26F5997A738E59030E7F347D379740F867B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +542,8 @@ A4 Недоразумение · Malinteso(   Читать дальше...   )Ж
 magnet:?xt=urn:btih:75CB0D755309422EF95806E839EEE2273AAECDB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +570,8 @@ VA - Марк Минков - Парад Планет (1983) [FLAC 2.0|96/24|imag
 ```bash
 magnet:?xt=urn:btih:AEF68BEEF591E17BF984C46C9DC63AE19769CAB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +600,8 @@ A4 Hajtóvadászat (Chase)(   Читать дальше...   )Жанр: Electron
 magnet:?xt=urn:btih:80BC4B0B34970F0A4D3008032A6FE1F4BCA0A196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +628,8 @@ magnet:?xt=urn:btih:80BC4B0B34970F0A4D3008032A6FE1F4BCA0A196
 ```bash
 magnet:?xt=urn:btih:6C72EBB761AEF6F73201CE9988F99C5CCB97E8FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +658,8 @@ A4 Der Boxer(   Читать дальше...   )Жанр: Pop RockПродолж
 magnet:?xt=urn:btih:6C498842D7398C7EAA03C7A1CCE58F37006DACF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +686,8 @@ A4 That's My Desire(   Читать дальше...   )Жанр: PopПродол
 ```bash
 magnet:?xt=urn:btih:2FF9E1DB1D9DCE6078A9FD746E47BC0C13154C04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +716,8 @@ magnet:?xt=urn:btih:2FF9E1DB1D9DCE6078A9FD746E47BC0C13154C04
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,32 +745,7 @@ Melody Gardot - 3 Альбома (2008-2012)[FLAC 2.0 24/96|image (Vinyl-Rip)]<J
 magnet:?xt=urn:btih:842F7247551AACCB6C88176ABB74324705A3A885
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298844   (601561) от 29.04.2019
-
-Bad Boys Blue - Super 20. Greatest Hits (1995) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Electronic, Synth-pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601561.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. You're A Woman
-02. I Wonna Hear Your Heartbeat (Sunday Girl)
-03. A World Without You (Michelle)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 01:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB03C6BC398D09687432ECC0BED1F22DC13E89E6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

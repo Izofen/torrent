@@ -19,6 +19,8 @@ PSIM - программа для проектирования и моделир�
 magnet:?xt=urn:btih:C8F8E77C77B2332113CB6335495B4FFBDE2C5C6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Cent Browser является усовершенствованной верси�
 ```bash
 magnet:?xt=urn:btih:7A1FED890B9F7CDDF31D103B814C27C0BCC1F553
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Music Collection - неплохая программа для создания �
 magnet:?xt=urn:btih:533B13827C3B42B0676EDE3A3D2D5BEED94FFEFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:B05D648A5D011FE1AEEA9B026C680399498D9001
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Maxthon Browser — многофункциональный браузер со �
 magnet:?xt=urn:btih:7F6BFB4B02F932C09E07BBB793F4CDABC37FF541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:0CE5C8A3E5AE876D38FEA4E2D1C856D21C14006E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 magnet:?xt=urn:btih:ED93A39E32A1C51796A9BC0EC34A2803B37C1BF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Cent Browser является усовершенствованной верси�
 ```bash
 magnet:?xt=urn:btih:A0E4A33426E207DA3FB5B0431F5A4900C29AF6FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Balabolka 2.15.0.871 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:108064E22D4E35B86F9AA8B761969A0F9E6B4217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ SRWare Iron 125.0.6350.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9E654AFA8EC750DCA7B55C25E82B6F46D21BF84A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ UsbTreeView - маленькая портативная утилита, реал
 magnet:?xt=urn:btih:E27C78724D397761DF53F573C9D91535504A49BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ IPTV Pro v8.0.1 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:41B0B5D4D4AEBB80B8364BFAD1BD93FF707094C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:9DF127730B34E63311D1EB82A6217A4755CE4EA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ PhpStorm – это интегрированная среда разработк
 magnet:?xt=urn:btih:017AFE66892FA74D5A01791A376BA9965FDD3D13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ Antivirus Removal Tool - портативный набор официальны�
 magnet:?xt=urn:btih:83411EE53E32A1F630FFA79EFAAC0BF33E51CD30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ JetBrains IntelliJ IDEA Ultimate - это профессиональный ин�
 ```bash
 magnet:?xt=urn:btih:8C331B1766C641C66156AE737DC16B8F760BCB21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ JetBrains PyCharm Professional – это мощная и многофункци
 magnet:?xt=urn:btih:C44AC1E5BA5335C1656051F5ABCBAF84F944FF04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ JetBrains WebStorm — это мощная интегрированная сре
 ```bash
 magnet:?xt=urn:btih:0727CA63DE8DCAB7E5DD42FB5774BEED025499D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ updated_may_2024_x64_dvd_49ddadb6.iso
 magnet:?xt=urn:btih:E8C8CA9FD2C8941FEEC749BB9B823B2F34BA80BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ updated_may_2024_x64_dvd_49ddadb6.iso
 magnet:?xt=urn:btih:F80DE832F02DBD8C2F0547299BCA52AD6BB2BEA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ MInstAll v.31.05.2024 By Andreyonohov (Unpacked) [Ru]
 ```bash
 magnet:?xt=urn:btih:F23E55A422890837500034A32D0E720A55FAD702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +574,8 @@ iTop VPN — это универсальная VPN для Windows/ПК, отве
 magnet:?xt=urn:btih:C438DD88C53A23698EE6833D28DEEC7540B97747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ MInstAll v.31.05.2024 By Andreyonohov (ISO) [Ru]
 ```bash
 magnet:?xt=urn:btih:72A1B286A2A11AB86D1266F4170169123D7BD61B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +626,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:FE27A7E7C27B1D154870FAB14E193DD25FEB70C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Duolingo: изучай языки 5.152.2 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:F3D23CB757D09FB0601B36A8841A1A2F2D93AE78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 ```bash
 magnet:?xt=urn:btih:A9017F4ABBD955815806E99E2720CDFAE635271C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,51 +1,3 @@
-###  Публикация: 1580806   (329771) от 02.10.2022
-
-GoldWave 6.66 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329771.jpg" />
-</div>
-
-
-###  Подробнее
-
-GoldWave - звуковой редактор, предназначенный для проигрывания, редактирования, смешивания и анализа звуковых файлов. Умеет быстро работать с большими файлами. Имеет много разных эффектов. Поддерживает MP3, WAV, AU, IFF, VOC, SND, MAT, AIFF, raw, data, а также множество прочих форматов. Умеет конвертировать из одного формата в другой. С помощью GoldWave можно применять (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5701722C8BD710700A65F897ECE45C800CF98736
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580453   (329772) от 02.10.2022
-
-Андрей Шишигин | Джеронимо (2022) [MP3, Skorostnik]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_329772.jpg" />
-</div>
-
-
-###  Подробнее
-
-История о жизни двух братьев, выросших в детдоме. Их приключения начинаются с момента совершеннолетия. Смогут ли братья стать хоть кем-то в этом жестоком мире. Или возможно им повезёт и детские игры в спецагентов, не останутся просто играми.Жанр: ФантастикаПродолжительность: 12:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76EC7C1D0F376AD5CA76350E4367E904A744614A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580720   (329773) от 02.10.2022
 
 IK Multimedia - TONEX MAX 1.0.1 STANDALONE, VST, VST3, AAX (x64) [En]
@@ -68,6 +20,8 @@ IK Multimedia называет ToneX «полноценной программн
 ```bash
 magnet:?xt=urn:btih:058F50FF1E7F4082876E48BB8EF001D88A6CF63E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +46,8 @@ Brave - защищенный браузер на базе Chromium, постро
 ```bash
 magnet:?xt=urn:btih:3BB38AB01EBC3C0526CB91813229251E8D124437
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +76,8 @@ Manfred Mann’s Earth Band - Watch (1978) Japanese Edition, Reissue, 2022, Bell
 magnet:?xt=urn:btih:BFF8E7C43519952C2CDC31C716D6EB60A4E28D6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +101,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:DD0FBEDFB96D2F409BBE177331BA29A2C9FF78D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +128,8 @@ magnet:?xt=urn:btih:DD0FBEDFB96D2F409BBE177331BA29A2C9FF78D9
 magnet:?xt=urn:btih:82FA6E09ED894E15E55A5CAEB7EA115E33C69BB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +153,8 @@ magnet:?xt=urn:btih:82FA6E09ED894E15E55A5CAEB7EA115E33C69BB3
 ```bash
 magnet:?xt=urn:btih:AA21DC1AE3C079E3E8E711BD33D6E29AA439C357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +180,8 @@ magnet:?xt=urn:btih:AA21DC1AE3C079E3E8E711BD33D6E29AA439C357
 magnet:?xt=urn:btih:FE388C13D06FE05286D179E84A819E87D1D2F87C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +206,8 @@ magnet:?xt=urn:btih:FE388C13D06FE05286D179E84A819E87D1D2F87C
 magnet:?xt=urn:btih:7D62C8131F4F2938B67EEE564DD23149A5904274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +231,8 @@ magnet:?xt=urn:btih:7D62C8131F4F2938B67EEE564DD23149A5904274
 ```bash
 magnet:?xt=urn:btih:24295A3263EB267AD4FD99FFF92DE41BD8B4A91A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +261,8 @@ Pink Floyd - The Endless River (Deluxe) (2014) [FLAC|24/96|WEB|Tracks]<Psychedel
 magnet:?xt=urn:btih:3E4F9579EC200FD46A23024540A20456FD3D4C4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +286,8 @@ magnet:?xt=urn:btih:3E4F9579EC200FD46A23024540A20456FD3D4C4C
 ```bash
 magnet:?xt=urn:btih:F7F631D78C5AC76163877DF606F2D712F1BDA196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +314,8 @@ magnet:?xt=urn:btih:F7F631D78C5AC76163877DF606F2D712F1BDA196
 ```bash
 magnet:?xt=urn:btih:4AB1CA9D1423AA1093153362031A449C7F22A92B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +344,8 @@ magnet:?xt=urn:btih:4AB1CA9D1423AA1093153362031A449C7F22A92B
 magnet:?xt=urn:btih:D8A079FAD9511124B103C4343E63D3D48F6146B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +369,8 @@ magnet:?xt=urn:btih:D8A079FAD9511124B103C4343E63D3D48F6146B0
 ```bash
 magnet:?xt=urn:btih:6FB4CE98C516F1AA841E57925BE39276ECCB19E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +399,8 @@ Didier Marouani & Paris • France • Transit - Concerts En URSS (1983) Reissue
 magnet:?xt=urn:btih:6BF0744E67F4BD0ED408178BEBD5AD530399F028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +428,8 @@ Abyssphere - 4 Albums (2010-2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, 
 magnet:?xt=urn:btih:BD5ECB012F246BBF18CE7DEB65EBCACB5159ED0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +453,8 @@ magnet:?xt=urn:btih:BD5ECB012F246BBF18CE7DEB65EBCACB5159ED0E
 ```bash
 magnet:?xt=urn:btih:0F2F41AADE4FA3702CECE1EC45FF67EBE26EB5EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +480,8 @@ magnet:?xt=urn:btih:0F2F41AADE4FA3702CECE1EC45FF67EBE26EB5EB
 magnet:?xt=urn:btih:2CB7A3F8C7DCEF1D825961EF1B0348CFA41FF17E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +505,8 @@ magnet:?xt=urn:btih:2CB7A3F8C7DCEF1D825961EF1B0348CFA41FF17E
 ```bash
 magnet:?xt=urn:btih:04669A545BD2640F323FC7DD9D286D2A27670CEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +535,8 @@ Buddy Guy - The Blues Don't Lie (2022) [FLAC|Lossless|image + .cue] <Blues>
 magnet:?xt=urn:btih:B00643D88E9C3C42BEEC42A1F87C499AC6B14FBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +560,8 @@ magnet:?xt=urn:btih:B00643D88E9C3C42BEEC42A1F87C499AC6B14FBE
 ```bash
 magnet:?xt=urn:btih:9E4D57CBC6CFB036985C47C9DE88BB45094FB47B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +587,8 @@ magnet:?xt=urn:btih:9E4D57CBC6CFB036985C47C9DE88BB45094FB47B
 magnet:?xt=urn:btih:36972B9AC14F8FC62D543D17E405B91B9625B014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +613,8 @@ MotoGP. Этап 17. Гран-при Таиланда. Гонка (02.10.2022) W
 magnet:?xt=urn:btih:44E640F1F0E5B51B7FADC5188AFCF7AFED3CDA36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +638,60 @@ magnet:?xt=urn:btih:44E640F1F0E5B51B7FADC5188AFCF7AFED3CDA36
 ```bash
 magnet:?xt=urn:btih:A804E94678D0CF5EADC083F2C968D45CC9E57169
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580799   (329832) от 02.10.2022
+
+Мартин Клунс: Острова Австралии / Martin Clunes: Islands of Australia (2016) WEB-DL [H.264/1080p] (серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Австралия - крупнейший в мире остров площадью более 7,5 миллионов квадратных километров. Она окружена не только водой, но и собственным кольцом островов. 8220 островов составляют ожерелье Австралии. Вереница островов простирается от Индийского океана до Кораллового моря, от Тихого океана до Бассова пролива. Некоторые называют это раем дикой природы. На других можно (   Читать дальше...   )Производство: Великобритания, Австралия, Buffalo Pictures, Prospero ProductionsЖанр: документальный, путешествияРежиссер: Ян ЛизПеревод: двуголосый профессиональный (Видео Продакшн)Субтитры: английскиеПродолжительность: 3x ~00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1BA2B0822E9AD4B671BC1F6A0AE2052BD96AFBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580695   (329834) от 02.10.2022
+
+Битва экстрасенсов (2022) WEBRip [H.264/720p] (сезон 23, выпуск 4)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_329834.jpg" />
+</div>
+
+
+###  Подробнее
+
+В проекте «Битва экстрасенсов» участвуют люди, обладающими необычными способностями. Ведьмы и колдуны, эзотерики, маги, целители, гадатели и многие другие соревнуются за победу и звание лучшего экстрасенса сезона. «Битва экстрасенсов» – культовый проект и знаковое шоу в истории ТНТ. Каждый год люди, которые называют себя экстрасенсами, доказывают свои способности (   Читать дальше...   )Телекомпания: ТНТЖанр: Телепередача, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3497E2EC643474CC6762FC61C699ACE790E0FE7
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

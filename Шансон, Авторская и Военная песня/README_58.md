@@ -22,6 +22,8 @@ VA - Мужские истории 2 (2004) [FLAC|Lossless|image + .cue]<Шан�
 magnet:?xt=urn:btih:9CF8E8D61EC5864A4CC54BE07550181254909C42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:9CF8E8D61EC5864A4CC54BE07550181254909C42
 ```bash
 magnet:?xt=urn:btih:339AC3D9D81C591AC7A82F267830B9367003A35F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Москва златоглавая II - VIII (1995 - 1998) [FLAC|Lossless|
 magnet:?xt=urn:btih:E8C5C62A7A252D535750588E2994ABAE0E63DE00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:E8C5C62A7A252D535750588E2994ABAE0E63DE00
 ```bash
 magnet:?xt=urn:btih:B47B4FE9BCFD28B3EDEAD2F71B2ED557B828F0BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:B47B4FE9BCFD28B3EDEAD2F71B2ED557B828F0BB
 magnet:?xt=urn:btih:DBEFBDD78353155A83AB3FFE228A4B0943A2BBE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ magnet:?xt=urn:btih:DBEFBDD78353155A83AB3FFE228A4B0943A2BBE7
 ```bash
 magnet:?xt=urn:btih:87F091AE2AFC84CD32E03891DCF7BC0D0CE41850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:87F091AE2AFC84CD32E03891DCF7BC0D0CE41850
 magnet:?xt=urn:btih:FBEDBF092348FA96F58F854AE237268B13277AC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:FBEDBF092348FA96F58F854AE237268B13277AC5
 ```bash
 magnet:?xt=urn:btih:ECF3080C32480664D1F898EC8F6B16EECB7D5392
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Иван да Марья (2003) [FLAC|Lossless|image + .cue]<Шансон>
 magnet:?xt=urn:btih:EB06B86616CD8AFE164ECFA7787FAA95CBDC59FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Концерт памяти Сергея Наговицына (2002) [FLAC|
 ```bash
 magnet:?xt=urn:btih:766E2E1C85551EAA8F52A67695B5B139374803DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Народный шансон (2001) [FLAC|Lossless|image + .cue]<Шанс�
 magnet:?xt=urn:btih:452CDFEA4F0F37D512242AB620B2598186D9DBD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Песни под рюмочку... под пиво и водочку (2002
 ```bash
 magnet:?xt=urn:btih:4CB0CAFAC1597890365A41903B6BDCDDEB678B65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:4CB0CAFAC1597890365A41903B6BDCDDEB678B65
 magnet:?xt=urn:btih:F1665C7ADCC1B47CC8C4EAAF52CB3648F292E068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ magnet:?xt=urn:btih:F1665C7ADCC1B47CC8C4EAAF52CB3648F292E068
 ```bash
 magnet:?xt=urn:btih:43A8DE856DD07CB4E18874AAA1D2396A432ED952
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Michel Polnareff - Love Me, Please Love Me (1966) 2010, Universal [FLAC|Lossless
 magnet:?xt=urn:btih:0E2F7A4CFC2EBC0ECEA78BBEDE8D67CACF57460B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:0E2F7A4CFC2EBC0ECEA78BBEDE8D67CACF57460B
 ```bash
 magnet:?xt=urn:btih:95E4CE33BC7935D63AE3C1C13ECD120ED269B29E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ magnet:?xt=urn:btih:95E4CE33BC7935D63AE3C1C13ECD120ED269B29E
 magnet:?xt=urn:btih:795BA15CB52204BF73721A1DC3431BCD46A5648D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +515,8 @@ magnet:?xt=urn:btih:795BA15CB52204BF73721A1DC3431BCD46A5648D
 magnet:?xt=urn:btih:A059D2B8B1421D6C9D1DDB660112F98672883825
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ magnet:?xt=urn:btih:A059D2B8B1421D6C9D1DDB660112F98672883825
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ Jane Birkin - Jane Birkin (1987) 2001,Universal [FLAC|Lossless|image + .cue] <Ch
 magnet:?xt=urn:btih:8F8E20AA6600C2ABB9EED1A9427FC04EF1ADBB6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ Edith Piaf - Edith Piaf 1962 (Remastered 2017) [FLAC|Lossless|WEB-DL|tracks] <Po
 ```bash
 magnet:?xt=urn:btih:F5375A843C90E5D17F09465F48757A28CC8DE0BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ magnet:?xt=urn:btih:F5375A843C90E5D17F09465F48757A28CC8DE0BC
 magnet:?xt=urn:btih:F7AD47B5906C689C4F43023D50A312EA6AF0013B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ magnet:?xt=urn:btih:F7AD47B5906C689C4F43023D50A312EA6AF0013B
 magnet:?xt=urn:btih:611B35E64A373DAE7705680FA6181F3B4CE32008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +685,8 @@ magnet:?xt=urn:btih:611B35E64A373DAE7705680FA6181F3B4CE32008
 ```bash
 magnet:?xt=urn:btih:8C0F176303985DB9B8DAE785221CBF28F61DB245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +721,8 @@ magnet:?xt=urn:btih:8C0F176303985DB9B8DAE785221CBF28F61DB245
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ magnet:?xt=urn:btih:8C0F176303985DB9B8DAE785221CBF28F61DB245
 ```bash
 magnet:?xt=urn:btih:590194E3F639D96AF50AA0A1740A7DDC818E7FB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

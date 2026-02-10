@@ -1,27 +1,3 @@
-###  Публикация: 1245896   (743168) от 13.02.2019
-
-NASCAR Heat 3 (2018) [En] (1.0/upd4/dlc) License CODEX
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_743168.jpg" />
-</div>
-
-
-###  Подробнее
-
-NASCAR Heat 3 – гоночный симулятор, являющийся продолжением NASCAR Heat 2. В новой части вас ожидает расширенный режим карьеры, позволяющий создать собственную команду и принять участие в захватывающих соревнованиях, в том числе и в экстремальных гонках Xtreme Dirt Tour.Тип издания: LicenseРазработчик: Monster GamesЖанр: Racing (Cars), 3DЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB788D0A8C04AE47566A38E23A79A1DBB840E21
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282613   (743621) от 13.02.2019
 
 Surface 11: Strings of Fate (2017) [En] (1.0) Unofficial [Collector's Edition]
@@ -42,6 +18,8 @@ Surface 11: Strings of Fate (2017) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:137F50F8B144C9658D51C0D40E7695DD4D2E49CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Spirits of Mystery 8: Illusions (2017) [En] (1.0) Unofficial [Collector's Editio
 magnet:?xt=urn:btih:EF551F843314DEDC97EF698A31E9B9ECE9660A6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Maze 5: Sinister Play / Лабиринт 5: Зловещая игра (2020) [Ru
 ```bash
 magnet:?xt=urn:btih:F0C1B74608EDB0FFCAF48EF7E87C069B73E6ADA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Family Mysteries 3: Criminal Mindset / Семейные тайны 3: Прест
 magnet:?xt=urn:btih:D9B190195B34ADD1AD423760E52D31EE742FDADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Worlds Align 2: Deadly Dream (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:5ABFF71B7BF47E074F1609CEF7DFA347BDEE4816
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Assassin’s Creed (2008) [Ru/En] (1.02) Repack xatab
 magnet:?xt=urn:btih:56DACE26DDFCC1A3F4B6C3505DB09D3A719E0EE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Getting Over It with Bennett Foddy - это карательная игра в �
 ```bash
 magnet:?xt=urn:btih:D8DC669A7F642D77302BF1042AB9B561A14207AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Teenage Mutant Ninja Turtles: Mutants in Manhattan (2016) [En/Multi] (1.0/upd1) 
 magnet:?xt=urn:btih:FC309B7046B9EEE22E661E1D2BFC4F88D8CB077E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Crowntakers – Undead Undertakings уводит вас в мир живых м�
 ```bash
 magnet:?xt=urn:btih:81EFCCABB5F9BA2C4F5EA6D775946DB307B43FB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Bear With Me – это эпизодическая приключенческа�
 magnet:?xt=urn:btih:A0695009BF92C644CEBD5D33848F0BA17898253E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Medium Detective: Fright from the Past / Детектив Медиум: Ужас
 ```bash
 magnet:?xt=urn:btih:E17F96A2BF1AB04B9EB2C89CFC4D733678C0D7E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Shadows on the Vatican Act II: Wrath (2015) [Ru/Multi] (1.0 u2) License PROPHET
 magnet:?xt=urn:btih:FBC9918578DBA7ADC3F631930A597DC55F132C30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Ghrian (2016) [En] (1.0) License PLAZA
 ```bash
 magnet:?xt=urn:btih:FC103B35DEDE02FC7E2F8E04CDE8E424F28F8D0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Excubitor (2016) [En/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:355D1CC9D26A12E168B50CB920A74AA88D9C7D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Raptors: Be A Dinosaur (2014) [En] (Beta) Repack John2s
 ```bash
 magnet:?xt=urn:btih:DED881DF8C4AF338BE0F64D32DE28589C826F731
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Shadows on the Vatican Act I: Greed (2014) [Ru/Multi] (1.0) License PROPHET
 magnet:?xt=urn:btih:16B7139FFF81B2BAC0A5DA9195CCB5BAA6B1A73F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Battletech - это пошаговый ролевой экшен с робота
 ```bash
 magnet:?xt=urn:btih:2382EAE2C0BF4ECF7EEA64C2A01E13916D63F07E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Crashday (2017) [Ru/Multi] (1.5.30.911) Repack ivandubskoj [Redline Edition]
 magnet:?xt=urn:btih:07A496505178E9E2EC049399417356871389A20C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Jump Force (2019) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:9538FD94A25A9FACE8B11CF44DB7B46A26CF8393
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Alekhine's Gun (2016) [Ru/Multi] (1.02) License GOG
 magnet:?xt=urn:btih:B109C011C25FAEC132710CC626F66C9D98524433
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Beautiful Desolation - это 2-мерная изометрическая при
 ```bash
 magnet:?xt=urn:btih:EAA63C2B31A9318EE9A88E3E1D92BC6C385F7F08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Panzer Corps 2 - лучшая стратегическая игра о Втор�
 magnet:?xt=urn:btih:CE9B817039D07E08F5089F32740563BCE881725F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Bridge To Another World 4: Escape From Oz (2017) [En] (1.0) Unofficial [Collecto
 ```bash
 magnet:?xt=urn:btih:01F2B09F4637E5D743A93B406CA9D3BC219B113D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ League of Light 5: Edge of Justice (2017) [En] (1.0) Unofficial [Collector's Edi
 magnet:?xt=urn:btih:B0F45A31923215D9F216A854B76A6812B4971C51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ Haunted Hotel 14: Personal Nightmare (2017) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:25D759A29C78B4233C316D277D803EFECB3F6792
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282364   (745327) от 12.02.2019
+
+The Forgotten Fairytales: The Spectra World (2017) [En] (1.0) Unofficial [Collector's Edition]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_745327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как преподаватель фольклора, Вы слышали множество мифов и легенд, но Вы не были готовы, когда неизвестный появился на вашем пороге и проклял всю Вашу семью, превратив их в камень! Теперь Вам предстоит отправиться в таинственный мир сказок и легенд из рассказов своей бабушки и остановить злую царицу, стоящую за всем этим хаосом. Но все же тут что-то не так. Что заставило (   Читать дальше...   )Тип издания: UnofficialРазработчик: EleFun GamesЖанр: Квест, Поиск предметовЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C57392B617C3A065AADE6229AFFC89EC051AC98A
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

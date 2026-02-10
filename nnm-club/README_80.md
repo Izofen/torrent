@@ -19,6 +19,8 @@ WARNO (2024) [Ru/Multi] (166262/dlc) License GOG
 magnet:?xt=urn:btih:55F38BEF20E5D2B3600A03E225B4A713FCCC6049
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Lost Soul Aside™ (2025) [Ru/Multi] (1.008/dlc) Repack Let'sРlay [Deluxe Editi
 magnet:?xt=urn:btih:778671C531D28CE311BDC39082CA997767F41240
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Darkest Dungeon 2 - сиквел готической ролевой игры, �
 ```bash
 magnet:?xt=urn:btih:E0AB5A37E8B3E9A31C1F8F8FAB8A5EE923ED1BDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:E0AB5A37E8B3E9A31C1F8F8FAB8A5EE923ED1BDC
 magnet:?xt=urn:btih:79DFFA2B535AC67B841E6DD530FC20788CFE78B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:79DFFA2B535AC67B841E6DD530FC20788CFE78B3
 magnet:?xt=urn:btih:FFD052FF4761D7BB7FBB6D904D30752302A580AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Operation: Polygon Storm - стремительная военная игра, �
 ```bash
 magnet:?xt=urn:btih:5FC0032E098AAC079B44B2A2EBBC443366C337A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:5FC0032E098AAC079B44B2A2EBBC443366C337A1
 magnet:?xt=urn:btih:DF5D50B66821C4AB62C5C5E9E483E784ED993B8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Dying Light: The Beast (2025) [Ru/Multi] (1.2.0/dlc) Repack FitGirl [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:470AC366684BFE14CDC51D0F0DFBDAAB5A85730A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:470AC366684BFE14CDC51D0F0DFBDAAB5A85730A
 magnet:?xt=urn:btih:09E1C0B4C80061FC4AF5356CA5E37112C20F49A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:09E1C0B4C80061FC4AF5356CA5E37112C20F49A7
 ```bash
 magnet:?xt=urn:btih:89D654369F5D202C5446589834DE0691EE30454E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:89D654369F5D202C5446589834DE0691EE30454E
 magnet:?xt=urn:btih:44C05977F9339CD73A75A152F32A6C4D86B02F38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:44C05977F9339CD73A75A152F32A6C4D86B02F38
 magnet:?xt=urn:btih:B9A2960BC328DB50CB188E15D6C39CBD7269576D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:B9A2960BC328DB50CB188E15D6C39CBD7269576D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Native American Music Consort - The Calling of the Wolf (2025) [MP3|320 Kbps] <N
 magnet:?xt=urn:btih:2BB9C2A25080D8D4981EB9421CAE7BE68E5D217D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:2BB9C2A25080D8D4981EB9421CAE7BE68E5D217D
 magnet:?xt=urn:btih:29CAB368C6C5EF9261B930AF5FC5FD3B2FBD781C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Evangelion Shin Gekijouban: Jo | Evangelion: 1.0 You Are (Not) Alone | Evangelio
 ```bash
 magnet:?xt=urn:btih:D79F0DE3D77277CA2C732458B62E3C0453D5A53B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ Booze & Glory - Whiskey Tango Foxtrot (2025) [FLAC 24/48|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:EDAA408B4FF64039B88A2A2D74F45665A6FB27FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:EDAA408B4FF64039B88A2A2D74F45665A6FB27FB
 ```bash
 magnet:?xt=urn:btih:65AC878CEF857A5718A7C2775E7BB7B03CD1AD38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ Rinrin - The Nut House (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative
 magnet:?xt=urn:btih:2C1D840DAF0A3F98BCEFA1E783CBE25709A6724E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +528,8 @@ Bill Evans - Quiet Now: Never Let Me Go (1999) Verve [FLAC|Lossless|tracks + .cu
 ```bash
 magnet:?xt=urn:btih:A430662CDEB9A506D85C182222B9102BC60F5E71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ Moss Upon The Skull - Quest For The Secret Fire (2024) [MP3|320 Kbps] <Death Met
 magnet:?xt=urn:btih:05E89F9230CEC9B9BFAF1F799D146D09A9A83CA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ Sfinx - Feral (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <progressive metalcore,
 ```bash
 magnet:?xt=urn:btih:CEEF943399D120ABADDD731FEE33B9697F0536DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ Infektum - Schicksal (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial Me
 magnet:?xt=urn:btih:5233DC17C37FB9666D69A074F7D9FD6F8565F9AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ A4 Proc Nezustane Slunce Stat(   Читать дальше...   )Жанр: Folk,
 magnet:?xt=urn:btih:01DBB8EB0789391BF6C6C8D91224077E3791C127
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ Evangelion Shin Gekijouban: Jo | Evangelion: 1.0 You Are (Not) Alone | Evangelio
 ```bash
 magnet:?xt=urn:btih:8759036FBA56A3CD8246028E3DF4C8751A32DBAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ Moss Upon The Skull - Quest For The Secret Fire (2024) [FLAC|Lossless|WEB-DL|tra
 ```bash
 magnet:?xt=urn:btih:E1121C5DA2F3476E59EE1A0896AFC6FDD8F19D37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,27 +1,3 @@
-###  Публикация: 1095542   (923688) от 21.01.2017
-
-Road Fist (2017) [En] (1.0) License PLAZA
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Road Fist — игра, стиль которой определен классическими фильмами-боевиками 80-90-х годов. Игроку предстоит выйти на темные городские улицы, чтобы сразиться с бандитами и очистить город от их влияния.Тип издания: LicenseРазработчик: Gabriel RodriguesЖанр: Action (Fighting), Arcade, 3DЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78B92211CE2A6232C23AC52C1916C1C63BAF99B1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095362   (923736) от 21.01.2017
 
 UFO: Alien Invasion (2007) [Ru/Multi] (2.5) License
@@ -42,6 +18,8 @@ UFO: Alien Invasion (с англ. «НЛО: Вторжение Иноплане
 ```bash
 magnet:?xt=urn:btih:440D3F50B6747282EE10FC0255CBA0F01A0CD2F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Street Fighter V (2016) [Ru/Multi] License RELOADED
 magnet:?xt=urn:btih:F511043FFD64A3C3C42E68E8C36C4E050D0885AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Guild of Dungeoneering - минималистический и довольно 
 ```bash
 magnet:?xt=urn:btih:DA1275560779A46C7E8A6A1066544B609BDB7EEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Endless Legend - 4X-стратегия от создателей Endless Space. 
 magnet:?xt=urn:btih:1328868736D5CF058838BB87CD197157F2B196E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Shantae: Half-Genie Hero – четвёртая часть серии Shantae. �
 ```bash
 magnet:?xt=urn:btih:B1DB84487AA9F8454599C92944736E244BBDE4CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Eador: Masters of the Broken World / Эадор: Владыки миров (2013
 magnet:?xt=urn:btih:F895B3DEAC5C0CCF26E6D7D3403ABE69FFF43085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Gardens Inc. 3: A Bridal Pursuit Collector's Edition / Все в сад 3. Св�
 ```bash
 magnet:?xt=urn:btih:0B359C99C13D4F091C731BFDD638A1CF14EFC788
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Yesterday Origins (2016) [Ru/Multi] (1.0/u7) SteamRip Let'sPlay
 magnet:?xt=urn:btih:84815534D313BD34CB2DB8D5CDF5859F14985F37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Giana Sisters: Twisted Dreams - Rise of the Owlverlord - это захватыв
 ```bash
 magnet:?xt=urn:btih:5BA164B88F9ED44BA9F6F5EA27719FCF7AFD7799
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Fragile (2020) [Ru/Multi] (Build 5896114) Repack Other s
 magnet:?xt=urn:btih:4A828323E6752871810A57F8DBE8648BFDD614B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Fragile (2020) [Ru/Multi] (5896114) License DARKSiDERS
 ```bash
 magnet:?xt=urn:btih:6A3D7E61A891D10D62931F1BE0CF84C077FBF129
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Crown of the Empire 2: Around the World / Корона империи 2: Вок�
 magnet:?xt=urn:btih:9946A8246797E3A9CFF1ADA3F1FE66D55C856D95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Tales of Lagoona 3: Frauds, Forgeries, and Fishsticks / Сказки лагун�
 ```bash
 magnet:?xt=urn:btih:02476EE321D3525150F5A040CEEA8AFB5E9E2F91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Guns, Gore & Cannoli (2015) [Ru/Multi] (1.2.5) Repack R.G. Механики
 magnet:?xt=urn:btih:23A042A77BD31E4904FCD3E40F28B3D18D39E5C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ A Boy and His Blob - ремейк оригинальной игры, котор�
 ```bash
 magnet:?xt=urn:btih:6B53BBAA7AD0D88B7A2B70D1465248F7F2608D2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +410,8 @@ Go Home Dinosaurs! [En] (Repack) 2013 | FANiSO
 magnet:?xt=urn:btih:E3D5BCADB5874CFECC91090F3C74B0DC320016BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +435,8 @@ Seed of Life – это приключенческая игра-головоло
 ```bash
 magnet:?xt=urn:btih:F4CF8361388E18F3CFA5266DEB009FC42B9598B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +462,8 @@ Else Heart.Break() / elseHeartBreak (2015) [Multi] (1.0.9) License GOG
 magnet:?xt=urn:btih:954ACBBE7389699362174198F127179B2A7DA35E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +487,8 @@ Murder by Numbers (2020) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:D54DE0F1F8906B57604C0296971195D598B7203A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +514,8 @@ Paranormal Files 7: Ghost Chapter / Паранормальные явления 
 magnet:?xt=urn:btih:D1E0ECCD0FBA9EBDEE8D3D50E2EC8665AE4DC6B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +539,8 @@ Guns, Gore and Cannoli (2015) [Ru/Multi] (1.2.5) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:76BE49F0A58D1DB5AB044B4296F3B2ECC8110A1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +566,8 @@ Pesadelo Regressao (2016) [En] (1.4.2) Repack bosenok
 magnet:?xt=urn:btih:B74B6B35D7A795C317F9ACC73D1E03742ECB963D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +591,8 @@ LEGO MARVEL's Avengers (2016) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:A210057ABD175C3281B14D2628DF048C7EA603EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +618,8 @@ New York Mysteries: Secrets of the Mafia / Загадки Нью-Йорка: С�
 magnet:?xt=urn:btih:6ADA52BB7A69DCBA0E81379990633AA9530D1B86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +643,34 @@ Siegecraft Commander (2017) [En] (1.2.3962) License PLAZA
 ```bash
 magnet:?xt=urn:btih:E868EDF2D606D8F2629723586C3F397118CC7FF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094530   (928408) от 18.01.2017
+
+Torn Tales (2017) [En] (1.0) License CODEX
+
+>>Win Игры
+>>RPG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_928408.jpg" />
+</div>
+
+
+###  Подробнее
+
+Torn Tales – ролевая игра, в которой вам предстоит восстановить страницы утраченного фольклора, похищенного силами зла. Взяв под свой контроль отважных героев, вы отправитесь в опасное путешествие по темным землям, контролируемым злобным Букбиндером. Он стянул врагов со всех сказочных земель, чтобы остановить вас, так что будьте готовы к любым неожиданностям.Тип издания: LicenseРазработчик: TwistplayЖанр: Приключенческие игры, Инди, Ролевые игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3B57D53899A9DF6535625C3D71D34386E367CE
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

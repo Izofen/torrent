@@ -1,3 +1,58 @@
+###  Публикация: 835781   (365943) от 30.10.2014
+
+Лунный свет. Коллекция / Lichtmond. Collection (2010, 20121, 2014) BDRip [H.264/720p] (фильмы 1-3)
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_365943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Потрясающее путешествие в фэнтези, в лучах лунного света через волшебные звуки. Погрузитесь в неординарную музыку и пусть ваши FullHD экраны превратятся на один час в двери сказочных миров, которые до селе Вам не приходилось видеть, но наверняка вы мечтали о них. Это удивительное Blu-ray издание, с уникальным звуковым рядом, как по качеству так и по наполнению невиданной (   Читать дальше...   )00:00:00.000 :Nightflight to Chronos Part 1
+00:01:38.932 :Nightflight to Chronos Part 2
+00:03:49.646 :Feel the Spirit (vocal Meera Fe)
+00:10:25.041 :Wheel of Time (vocal Martin Koppehele)(   Читать дальше...   )Телекомпания: Blu Phase Media GmbH, IMAGO-D StudiosЖанр: Документальный, видовой, музыка, релаксРежиссер: Джорджио Коппехели, Мартин КоппехелиПеревод: Не требуется (нет диалогов и комменариев)Продолжительность: 3 x ~00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:849ED6CE9AE1EEB28C87D8381514F13035C4005B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576407   (366168) от 14.09.2022
+
+Полёт/риск / Flight/Risk (2022) WEB-DL [H.264/1080p] [DVO]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_366168.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце 2018-го года индонезийская авиакомпания выполняла пассажирский рейс на инновационном пассажирском лайнере Boeing 737 Max, который в конечном итоге потерпел крушение у берегов Индонезии. Спустя несколько месяцев рейс эфиопской авиакомпании, для выполнения которого поставили Boeing 737 Max, также закончился масштабной катастрофой. Документальный фильм рассказывает (   Читать дальше...   )Телекомпания: The Othrs, Amazon Prime VideoЖанр: документальныйРежиссер: Карим Амер, Омар МаликПеревод: Двуголосый любительскийЯзык озвучки: Pazl VoiceСубтитры: Русские, английские, испанские, французские, украинские, немецкие, португальские и др.Продолжительность: 01:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65DB172E550E17E22A58D8E6CA4EB704E72D9FF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951070   (366182) от 28.10.2015
 
 Право голоса. Роль Ирана (28.10.2015) SATRip
@@ -18,6 +73,8 @@
 ```bash
 magnet:?xt=urn:btih:A4AA94BB7C4306E4C99AD5B052FAD3EC91F98C4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +99,8 @@ magnet:?xt=urn:btih:A4AA94BB7C4306E4C99AD5B052FAD3EC91F98C4F
 ```bash
 magnet:?xt=urn:btih:29C1FF6EC204989AD9F86458A848F8E946AF6314
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +127,8 @@ magnet:?xt=urn:btih:29C1FF6EC204989AD9F86458A848F8E946AF6314
 magnet:?xt=urn:btih:61FBC2E58E4E3CD32A420A93C3584472E9CF9130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +152,8 @@ magnet:?xt=urn:btih:61FBC2E58E4E3CD32A420A93C3584472E9CF9130
 ```bash
 magnet:?xt=urn:btih:D96A6D5D069AF3EE45AAD6980A56ABEC991082AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +179,8 @@ magnet:?xt=urn:btih:D96A6D5D069AF3EE45AAD6980A56ABEC991082AC
 magnet:?xt=urn:btih:770C8F0A7CDB732F32922927CA059D5DBD2E672B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +204,8 @@ magnet:?xt=urn:btih:770C8F0A7CDB732F32922927CA059D5DBD2E672B
 ```bash
 magnet:?xt=urn:btih:8D500EEF8A59DF15F801BE9856784E3BE0F33FE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +231,8 @@ magnet:?xt=urn:btih:8D500EEF8A59DF15F801BE9856784E3BE0F33FE0
 magnet:?xt=urn:btih:64F581252B126F7C6B402D18EC6DF3E29CE9EE45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +256,8 @@ magnet:?xt=urn:btih:64F581252B126F7C6B402D18EC6DF3E29CE9EE45
 ```bash
 magnet:?xt=urn:btih:5C7C60A649C88C95566378B56FBCFB7D19438223
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +283,8 @@ magnet:?xt=urn:btih:5C7C60A649C88C95566378B56FBCFB7D19438223
 magnet:?xt=urn:btih:753650BB6583AB64861439193EF14FF333AFCE76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +308,8 @@ magnet:?xt=urn:btih:753650BB6583AB64861439193EF14FF333AFCE76
 ```bash
 magnet:?xt=urn:btih:B263F6EC7A6E2DA5E780DF93AF669CE0FC3E5EE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +335,8 @@ magnet:?xt=urn:btih:B263F6EC7A6E2DA5E780DF93AF669CE0FC3E5EE9
 magnet:?xt=urn:btih:7E2A2E46323E611B684FBBF7CBDBC20C7223F969
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +360,8 @@ magnet:?xt=urn:btih:7E2A2E46323E611B684FBBF7CBDBC20C7223F969
 ```bash
 magnet:?xt=urn:btih:18AC284BF7049FF033DB034959623A240ED9F3B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +387,8 @@ magnet:?xt=urn:btih:18AC284BF7049FF033DB034959623A240ED9F3B5
 magnet:?xt=urn:btih:6EDDC84BAACB68A9E0D665085699D93C0D2EB0BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +412,8 @@ magnet:?xt=urn:btih:6EDDC84BAACB68A9E0D665085699D93C0D2EB0BC
 ```bash
 magnet:?xt=urn:btih:479D790CD131EAAE252D956BD5A85786EE19FA95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +439,8 @@ magnet:?xt=urn:btih:479D790CD131EAAE252D956BD5A85786EE19FA95
 magnet:?xt=urn:btih:5A7B4C0931AA3F80157101BC40881535DFC83180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +464,8 @@ Blackpink: Зажги небо / Blackpink: Light Up the Sky (2020) WEBRip [H.26
 ```bash
 magnet:?xt=urn:btih:45BA872279209361B329B5890DACC1837AA70B81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +491,8 @@ magnet:?xt=urn:btih:45BA872279209361B329B5890DACC1837AA70B81
 magnet:?xt=urn:btih:127F993CC97BE177B6D196B38EABF37AA4A013CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +516,8 @@ Discovery. Махинаторы (Автодилеры) / Wheeler Dealers (2015) 
 ```bash
 magnet:?xt=urn:btih:4564F357F814BECA57BBB40CBD59CF8579A78FA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +543,8 @@ magnet:?xt=urn:btih:4564F357F814BECA57BBB40CBD59CF8579A78FA1
 magnet:?xt=urn:btih:7F857337FF38E54CF41452CAE11D58701145B109
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +568,8 @@ magnet:?xt=urn:btih:7F857337FF38E54CF41452CAE11D58701145B109
 ```bash
 magnet:?xt=urn:btih:2B8527FAFFB9B1CC1BF8F023D259CF662095D558
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +595,8 @@ magnet:?xt=urn:btih:2B8527FAFFB9B1CC1BF8F023D259CF662095D558
 magnet:?xt=urn:btih:E4C2CB917716BA883906500B7437117BD20C7B03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +620,8 @@ magnet:?xt=urn:btih:E4C2CB917716BA883906500B7437117BD20C7B03
 ```bash
 magnet:?xt=urn:btih:D93A7F9CC032A800E88B2F028F44BAAE645872E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +647,8 @@ magnet:?xt=urn:btih:D93A7F9CC032A800E88B2F028F44BAAE645872E3
 magnet:?xt=urn:btih:6AD55DA40C07C0FE86D1F7F034C103F60FAD04CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,53 +673,7 @@ magnet:?xt=urn:btih:6AD55DA40C07C0FE86D1F7F034C103F60FAD04CD
 magnet:?xt=urn:btih:C02718ED749EBD2FA02351C09C905A6BC1A8B21E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416623   (367498) от 16.10.2020
-
-Легендарные колёсные пароходы. Дизбар / Legendary Paddle Steamers. Along the River Elbe on the Diesbar (2017) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Путешествие по реке Эльба на колёсном пароходе по самой живописной части региона ''Саксонская Швейцария''Производство: EU, MDR & ArteЖанр: Документальный, путешествияРежиссер: Матиас ХофритерПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C758720B58DCDC8FFBEDC6F16F0EF2E58ECC725
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416455   (367499) от 16.10.2020
-
-Шотландия в движении / Scotland in motion (2019) WEBRip [H.264/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_367499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершите красивое замедленное путешествие по удивительным пейзажам Шотландии.Производство: ШотландияЖанр: Документальный, видовойРежиссер: Каспер РолстедПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F9C08A6004DA368DA69CAE4956B6BB6A565718D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

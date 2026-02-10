@@ -22,6 +22,8 @@ GoodbyeDPI 0.2.3rc1 Launcher 8.0 [Ru]
 magnet:?xt=urn:btih:8138EE51B26F59478DEE84731D8B21789712A547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:8138EE51B26F59478DEE84731D8B21789712A547
 ```bash
 magnet:?xt=urn:btih:390078859027AF0EDC7AFF611CA59CAA11A7998F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:390078859027AF0EDC7AFF611CA59CAA11A7998F
 magnet:?xt=urn:btih:F692AF6472EA4B59CDF678B7E8D6724A7ADEF0EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:F692AF6472EA4B59CDF678B7E8D6724A7ADEF0EA
 ```bash
 magnet:?xt=urn:btih:E46C96A604B704271DEACAF67B3BA8C2C8BFEEDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ Cертифицированная ОС со встроенными средст�
 magnet:?xt=urn:btih:A1CD007DAC1409C15F0FFA4267CDCD12D60F6799
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:A1CD007DAC1409C15F0FFA4267CDCD12D60F6799
 ```bash
 magnet:?xt=urn:btih:CC60D24EC3E7DA01CC5D4B5A301B1722BD74E340
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:CC60D24EC3E7DA01CC5D4B5A301B1722BD74E340
 magnet:?xt=urn:btih:3DAC214CDC8E6DC2D168DFF2430B72FFB40C755B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:3DAC214CDC8E6DC2D168DFF2430B72FFB40C755B
 ```bash
 magnet:?xt=urn:btih:7F7647734CE217E4431B94A2DF596385B9C99691
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Google отрицает причастность к проблемам рабо�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Google отрицает причастность к проблемам рабо�
 ```bash
 magnet:?xt=urn:btih:7A485073A9960DABC0AFF08B2B025B33A5175000
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:7A485073A9960DABC0AFF08B2B025B33A5175000
 magnet:?xt=urn:btih:201D72A0F89B50A91921BAAAC4BD13AE07023367
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:201D72A0F89B50A91921BAAAC4BD13AE07023367
 ```bash
 magnet:?xt=urn:btih:2A7E7EFF395CA87C4022A4B26803DA3B875C49FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:2A7E7EFF395CA87C4022A4B26803DA3B875C49FA
 magnet:?xt=urn:btih:5ADAACBD11946EFDF8D04661EE1D07608E035F90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:5ADAACBD11946EFDF8D04661EE1D07608E035F90
 ```bash
 magnet:?xt=urn:btih:B3A99451B509E1746E38A44117923EE96E879A80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:B3A99451B509E1746E38A44117923EE96E879A80
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:B3A99451B509E1746E38A44117923EE96E879A80
 ```bash
 magnet:?xt=urn:btih:999FA29F489E1E13914CA77034AE0002B02A18FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:999FA29F489E1E13914CA77034AE0002B02A18FA
 magnet:?xt=urn:btih:4AFBA70700901F4EB4B7FB1D83B9AB1D73ACE14F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Batman: Arkham Knight торжественно завершает знамени
 magnet:?xt=urn:btih:81FBAB8B98BD9E3829B27DE48A02D5F61D0E72BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:81FBAB8B98BD9E3829B27DE48A02D5F61D0E72BC
 ```bash
 magnet:?xt=urn:btih:97F9D2C12891336D451D4FBBB7907C5FBE853692
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:97F9D2C12891336D451D4FBBB7907C5FBE853692
 magnet:?xt=urn:btih:301BBA69C5DE2584D77B16F4C57E5D498C991C37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:301BBA69C5DE2584D77B16F4C57E5D498C991C37
 ```bash
 magnet:?xt=urn:btih:DAF2EE59F48C919045C6B62688CEEBBF5FFE9F73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:DAF2EE59F48C919045C6B62688CEEBBF5FFE9F73
 magnet:?xt=urn:btih:A0264DEC006871CAD362D7694BFF651780563761
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ magnet:?xt=urn:btih:A0264DEC006871CAD362D7694BFF651780563761
 ```bash
 magnet:?xt=urn:btih:5EE76FBF95C0DB7E58FB5DE4C0CE88E3EC95ED6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:5EE76FBF95C0DB7E58FB5DE4C0CE88E3EC95ED6A
 magnet:?xt=urn:btih:FC647125FEC8650995E1B6414598A3674B7E76C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ KKN. Дух деревни танцев / KKN Badarawuhi di Desa Penari / Dancin
 magnet:?xt=urn:btih:92B0F2D820358A53A7430F0D3123DB28EFA8B519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:92B0F2D820358A53A7430F0D3123DB28EFA8B519
 ```bash
 magnet:?xt=urn:btih:4A4FC13FDE2AF3AEAAB3EEA73F1834D8D941BAD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

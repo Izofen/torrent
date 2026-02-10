@@ -1,3 +1,30 @@
+###  Публикация: 531921   (538254) от 07.08.2012
+
+Дело передается в суд (1976) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_538254.jpg" />
+</div>
+
+
+###  Подробнее
+
+Киноповесть о молодой помощнице прокурора Лиане Девдариани, которой доверили завершить работу по делу о рухнувшем мосте. Проведя собственное расследование, она понимает, что привлеченный к уголовной ответственности инженер Сартания на самом деле не виновен. Лиана не только оправдывает невинно осужденного, но и изобличает подлинных виновников трагедии, повлекшей за собой человеческие жертвы.Жанр: Детектив, ДрамаРежиссер: Валериан КвачадзеАктеры: Марина Джанашия, Додо Абашидзе, Акакий Васадзе, Валериан Квачадзе, Эдишер Магалашвили, Георгий Гегечкори, Гурам Пирцхалава
+Полный список актеровПродолжительность: 01.22.00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C53C5A3645F05C361B80045B3F4F3CBC7285A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923935   (538876) от 07.08.2015
 
 Шел четвертый год войны... (1983) DVDRip [H.264]
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:ED292F2CD4039E84652AE8782DE131780A3B38B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:ED292F2CD4039E84652AE8782DE131780A3B38B8
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:ED292F2CD4039E84652AE8782DE131780A3B38B8
 magnet:?xt=urn:btih:C345C9A30C1325C2EAEC030EE6D425E04A523C2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:C345C9A30C1325C2EAEC030EE6D425E04A523C2C
 ```bash
 magnet:?xt=urn:btih:C649BE7DE87326E17E2CED8CA163A1D463863D6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:C649BE7DE87326E17E2CED8CA163A1D463863D6F
 magnet:?xt=urn:btih:BA8EB94642570F50429C5AFDBFE639F4B7517D82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +180,8 @@ magnet:?xt=urn:btih:BA8EB94642570F50429C5AFDBFE639F4B7517D82
 magnet:?xt=urn:btih:736D451E7A9A508DC87DF712BBD1565F0CB06E72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +205,8 @@ magnet:?xt=urn:btih:736D451E7A9A508DC87DF712BBD1565F0CB06E72
 ```bash
 magnet:?xt=urn:btih:BBB38C0C4F9BC18959CC09FFE47AB59A2C01B1BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +233,8 @@ magnet:?xt=urn:btih:BBB38C0C4F9BC18959CC09FFE47AB59A2C01B1BC
 magnet:?xt=urn:btih:73CFB4D1BE6CEF630C3A2A98AA5DB03D59E3D1DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +258,8 @@ magnet:?xt=urn:btih:73CFB4D1BE6CEF630C3A2A98AA5DB03D59E3D1DB
 ```bash
 magnet:?xt=urn:btih:8F15B3BE0409B2AFCDA22174A4CFD75F873A131E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +285,8 @@ magnet:?xt=urn:btih:8F15B3BE0409B2AFCDA22174A4CFD75F873A131E
 magnet:?xt=urn:btih:D47B207EF5C24B963C85FF7C1E4D0B764BB996C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +310,8 @@ magnet:?xt=urn:btih:D47B207EF5C24B963C85FF7C1E4D0B764BB996C7
 ```bash
 magnet:?xt=urn:btih:09DA6F6EBAC3E00158B5E6937C49F447CA007F2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +337,8 @@ magnet:?xt=urn:btih:09DA6F6EBAC3E00158B5E6937C49F447CA007F2F
 magnet:?xt=urn:btih:D4B2ECB7443FAEE1B21D519B04FB8C958875669A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +362,8 @@ magnet:?xt=urn:btih:D4B2ECB7443FAEE1B21D519B04FB8C958875669A
 ```bash
 magnet:?xt=urn:btih:EA7BC575D90D0175EC73D812503917EF86D6638E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +390,8 @@ magnet:?xt=urn:btih:EA7BC575D90D0175EC73D812503917EF86D6638E
 magnet:?xt=urn:btih:A338372294FD1BD9A0ABC2704839A1FDBDF92958
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +416,8 @@ magnet:?xt=urn:btih:A338372294FD1BD9A0ABC2704839A1FDBDF92958
 magnet:?xt=urn:btih:91A58B610F7BED76DCEF2CB04978C300D3D1B21D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +441,8 @@ magnet:?xt=urn:btih:91A58B610F7BED76DCEF2CB04978C300D3D1B21D
 ```bash
 magnet:?xt=urn:btih:776BBFA3ADB6D7736EAD93DCF98C9D5150F84830
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +469,8 @@ magnet:?xt=urn:btih:776BBFA3ADB6D7736EAD93DCF98C9D5150F84830
 magnet:?xt=urn:btih:922B293C54E24617571164CDB65BA27DCC375F36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +495,8 @@ magnet:?xt=urn:btih:922B293C54E24617571164CDB65BA27DCC375F36
 ```bash
 magnet:?xt=urn:btih:1A58EC9804E680685E9D64DD506DB0EF7A5B7435
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +523,8 @@ magnet:?xt=urn:btih:1A58EC9804E680685E9D64DD506DB0EF7A5B7435
 magnet:?xt=urn:btih:F3215EB876215E1AE0EFC6AA4C3BDC0866A97265
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +548,8 @@ magnet:?xt=urn:btih:F3215EB876215E1AE0EFC6AA4C3BDC0866A97265
 ```bash
 magnet:?xt=urn:btih:824F96960D286790FA1AA582607802DDD511E6F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +577,8 @@ magnet:?xt=urn:btih:824F96960D286790FA1AA582607802DDD511E6F8
 magnet:?xt=urn:btih:17D27417372F137C7409D0CA92816BFBF7404363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +602,8 @@ magnet:?xt=urn:btih:17D27417372F137C7409D0CA92816BFBF7404363
 ```bash
 magnet:?xt=urn:btih:13F12EBB33D9C88549CFBE50C55665EDBD0F394A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +630,8 @@ magnet:?xt=urn:btih:13F12EBB33D9C88549CFBE50C55665EDBD0F394A
 magnet:?xt=urn:btih:0C5E8433E88D385DE95A7D02615AB05F284B70DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +657,8 @@ magnet:?xt=urn:btih:0C5E8433E88D385DE95A7D02615AB05F284B70DD
 magnet:?xt=urn:btih:93EC0ABA4E89C5EC976A57669CBE578C3992E3FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,29 +683,7 @@ magnet:?xt=urn:btih:93EC0ABA4E89C5EC976A57669CBE578C3992E3FC
 нет
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531191   (558726) от 04.08.2012
-
-Большие и маленькие (1963) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_558726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Несколько новелл этого фильма расскажут об истории сложных взаимоотношений трудных детей и их родителей, и, может быть, помогут вам избежать уже совершенных кем-то ошибок.Жанр: ДрамаРежиссер: Мария ФедороваАктеры: Геннадий Некрасов , Клавдия Лепанова, Любовь Виролайнен, Лидия Королева, Василий Ливанов, Нина Меньшикова, Лев Свердлин, Николай Романов, Николай БарминПродолжительность: 01:27:36
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

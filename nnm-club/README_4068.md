@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:92C6A7348F74C8C0170A5EC3CF8A346EF8946CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:92C6A7348F74C8C0170A5EC3CF8A346EF8946CAA
 ```bash
 magnet:?xt=urn:btih:58AB253F465D07650C8E695D6FEB0257D29FD713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ X3: Reunion / X3: Воссоединение (2005) [Ru/En] (2.5b) License GOG
 magnet:?xt=urn:btih:42BE4B99876C60E71AF3A9BF608BC173F4E10FCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:42BE4B99876C60E71AF3A9BF608BC173F4E10FCC
 ```bash
 magnet:?xt=urn:btih:0ABD99173B3DB3E19CB23CFB0D6764CF40F9012D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:0ABD99173B3DB3E19CB23CFB0D6764CF40F9012D
 magnet:?xt=urn:btih:FE0463E4D36126F3498ABC2EC4E2E485892A5956
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:FE0463E4D36126F3498ABC2EC4E2E485892A5956
 ```bash
 magnet:?xt=urn:btih:729F1D631BAFB51903ACD9437114F99C8332A723
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Showgunners (2023) [Ru/Multi] (1.1.2_58602/dlc) Repack Other s
 magnet:?xt=urn:btih:03E1ECB0FC4C78783C4AF796268EBBF2FE5B6A61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:03E1ECB0FC4C78783C4AF796268EBBF2FE5B6A61
 ```bash
 magnet:?xt=urn:btih:29B1FBBE73FC30B81FA5B12724DF3A897E393E56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Albert King - 42 Albums (1962 - 2017) 59 CD [FLAC|Lossless|image + .cue|tracks +
 magnet:?xt=urn:btih:8AB9575BBEE53E4177816DF72497BA5B5FD44652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Vangardion - Vangardion (2023) [FLAC|Lossless|WEB-DL|tracks] <Avant-garde Sympho
 magnet:?xt=urn:btih:5D71010A025DE3F9035DF233F528F3FB65D26706
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:5D71010A025DE3F9035DF233F528F3FB65D26706
 ```bash
 magnet:?xt=urn:btih:007DE646F1833170C58ECA7B2C2667A486B93773
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:007DE646F1833170C58ECA7B2C2667A486B93773
 magnet:?xt=urn:btih:71B92EC21101FDE281D3EEC455E71D8733BCC734
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:71B92EC21101FDE281D3EEC455E71D8733BCC734
 magnet:?xt=urn:btih:19E782B09E5C9CFAE6E5DE74163D2126AD80B9AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:19E782B09E5C9CFAE6E5DE74163D2126AD80B9AA
 ```bash
 magnet:?xt=urn:btih:E05E6A198C0A16304716DC5BC57B90312A974326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ CD1:
 magnet:?xt=urn:btih:326BA1CC9C7707685BB3E280EC462085ADF09DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ Borgne - II (2007) [FLAC|Lossless|image + .cue] <Industrial Black Metal>
 magnet:?xt=urn:btih:4CD766CFEAE8B531C63854D8EF3AD20CFE472CA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:4CD766CFEAE8B531C63854D8EF3AD20CFE472CA1
 ```bash
 magnet:?xt=urn:btih:7A867034163B173C94A52A19E67F7DADD8BB0D02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:7A867034163B173C94A52A19E67F7DADD8BB0D02
 magnet:?xt=urn:btih:1FCDFB43D02F04322FBFE809A2490EDF174E7071
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:1FCDFB43D02F04322FBFE809A2490EDF174E7071
 ```bash
 magnet:?xt=urn:btih:7CAF4D0279B94070E3B7AD778A306F4F6F2F73C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:7CAF4D0279B94070E3B7AD778A306F4F6F2F73C7
 magnet:?xt=urn:btih:6A36D678417CCB6053DD660718A440C45A1E9533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:6A36D678417CCB6053DD660718A440C45A1E9533
 ```bash
 magnet:?xt=urn:btih:9C8A783A7F4EF1C7A4B78973B048630A72901DAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +583,8 @@ Dan Ogus - Scattering The Christmas Roots 20-12-23 (2023) [AAC|192 Kbps] <Blues,
 magnet:?xt=urn:btih:7684DE5A11B3AC6268629CA689B68A95F64A0D26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ magnet:?xt=urn:btih:7684DE5A11B3AC6268629CA689B68A95F64A0D26
 ```bash
 magnet:?xt=urn:btih:26E1F2FE1C81625D62A3FFAE0F8181F17D966B14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +638,8 @@ VA - Sunset Emotions, Vol. 8 (Compiled by Marco Celloni) (2023) [FLAC|Lossless|W
 magnet:?xt=urn:btih:C29D69DBCFA8D833C71C40C28A78D8FADC7E54B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ Zincboy - Bizarre Book (2023) [MP3|320 Kbps] <Neo-Psychedelia, Breakbeat, Trip-H
 magnet:?xt=urn:btih:448BE64B4781B9EC65EE200DF84C2940FFE3C77F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +692,8 @@ magnet:?xt=urn:btih:448BE64B4781B9EC65EE200DF84C2940FFE3C77F
 ```bash
 magnet:?xt=urn:btih:855846D587E1FE1FCE783CBCB0DE4447B5411F8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

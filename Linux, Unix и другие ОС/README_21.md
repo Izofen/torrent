@@ -19,6 +19,8 @@ Remix OS - дистрибутив Linux, который позволяет ус�
 magnet:?xt=urn:btih:4122A0E5AAFB2445960CB30E58FCF34FF0E0B31B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Debian GNU/Linux 9.0 Stretch (Testing, 18.05.2015) [i386] 3xDVD
 ```bash
 magnet:?xt=urn:btih:8872C829EA0F8C43CE654AEBFC75442572D8CD0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Debian GNU/Linux 9.0 Stretch (Testing, 18.05.2015) [amd64] 3xDVD
 magnet:?xt=urn:btih:205A9F3E345BB78C6160BA6FB857FEBE8E949EF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Calculate Linux 14.16.2 [x86-64] 1xCD, 5xDVD
 ```bash
 magnet:?xt=urn:btih:ED5A803BC7B0D39821C1D387746FAB45CF69A189
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ Slackware Linux — один из старейших дистрибутивов 
 magnet:?xt=urn:btih:D5E489D2FAE3E84C8E76F53E18F12A7FAF7CEA9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Calculate Linux 14.16.2 [i686] 2xCD, 4xDVD
 magnet:?xt=urn:btih:2EEA41508C4FBD655ADECE9752865B0A2B601874
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Parted Magic — готовое решение для работы с разде
 ```bash
 magnet:?xt=urn:btih:E5084B1F05238135139E55DDDC7759AF06967C26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Substance Designer является мощным нодовым инструме
 magnet:?xt=urn:btih:90454774D25DBF9630F412A020D8E3980506B43A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Sabayon 15.06 (KDE, XFCE, GNOME, SpinBase, Minimal) [amd64] 5xDVD
 magnet:?xt=urn:btih:451C175DC71ABF89C40C08A6C35E45D22FA52980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ FreeNAS 11.1-U4 [x64] 1xCD
 ```bash
 magnet:?xt=urn:btih:EF9EF065DE4E4CF3565AC225B1A50851F8CB68F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ Linux-дистрибутив Rockstor 3.9, предназначенный для
 magnet:?xt=urn:btih:52701005C8AB5EBB4BCB7B269805B77824AAE87B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ GNOME - стильное и оригинальное окружение рабо
 ```bash
 magnet:?xt=urn:btih:495F1F83FD3B7C1E247C3360DA9005FA36521578
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Jondo Live-DVD предлагает безопасные, предварител
 magnet:?xt=urn:btih:0A16B365E1EA39277189D3E0BE79A58752CF1627
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ CentOS 7.5 (1804) [x86-64] 5xDVD, 1xCD
 magnet:?xt=urn:btih:82F3ADDFAD50F02A71EE1B51807DD86882386594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ Fedora 22 Workstation Live [i686, x86-64] 2xDVD
 ```bash
 magnet:?xt=urn:btih:6338FA3909CE051AE4380F0F480E238B1E51DAFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +426,8 @@ Fedora 22 Server + Server netinstall [i386, x86-64] 2xDVD, 2xCD
 magnet:?xt=urn:btih:240E717F8C87349EE01F762182EA75B5D010733D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ Fedora 22 Live (KDE, XFCE, MATE Compiz, LXDE, SoaS) [i686] 5xDVD
 ```bash
 magnet:?xt=urn:btih:DBC0BCA9AA347F62DC5A681E391D12D1A14C45D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ Rescatux новый rescue GNU/Linux CD/USB основанный на Debian, с
 magnet:?xt=urn:btih:27A241083E73130BCC3FF250D2C824BFF6CFD8F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ Openfiler — это операционная система, которая п�
 ```bash
 magnet:?xt=urn:btih:A9331A63FE74A3170ED9C0E5485DEC0E275CC6BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ Red Hat Enterprise Linux Server 7.0 [x86-64] 1xDVD
 magnet:?xt=urn:btih:E1DFA34DAFE3461D38566DB82C818B4869203397
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ Phoenix OS - проект по портированию ОС Android на пер
 ```bash
 magnet:?xt=urn:btih:7AD96F307A7DA564BCE905EB1A11DB05A72C5F08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ Debian Edu, также известный как Skolelinux, является д
 magnet:?xt=urn:btih:5D5DE865E499DF4C165AD7D287B975BC5FFB635C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ Netrunner 16.0 Ozymandias (Plasma 5.3)  [64bit] DVD
 magnet:?xt=urn:btih:7D86B94FF813C2905CD57C8605EF48B4475A1C66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ Sabayon 16.07 (KDE, XFCE, GNOME, SpinBase, Minimal, MATE, LXQt и server) [amd64
 ```bash
 magnet:?xt=urn:btih:15F902C4D3B80277FDF68BB691281BD02E2F079F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ Jondo Live-DVD предлагает безопасные, предварител
 magnet:?xt=urn:btih:821D4FE0B766FC40B145E34FE85B6D19210E09C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ Fedora 19 Schrödinger's Cat Live [x86-64]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Udemy, Jonathan Elliott | Blue Team Boot Camp: Defending Against Hackers (2020) 
 magnet:?xt=urn:btih:C16190D6B662A302F4D0299F7DE2BF4BF51DAF1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Cutcode, Данил Щуцкий | Интернет-магазин на Laravel 
 magnet:?xt=urn:btih:D8E76A76CCE1535A2D25DF35210AA3CB3E6FD789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ AmigosCode, Nelson Djalo | Mastering Kubernetes (2023) WEB-DL [AD] [EN]
 ```bash
 magnet:?xt=urn:btih:9E04BC283D9F7F2F7297513D0EF58BB65F661AC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:9E04BC283D9F7F2F7297513D0EF58BB65F661AC1
 magnet:?xt=urn:btih:0EC36FE6E92005229FB970F5E6D89B166E7364AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ OTUS, Евгений Аристов, Виталий Попов, Владимир
 magnet:?xt=urn:btih:96724668521D852E59981CDC43B7ABCA67126BF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ ChatGPT — это диалоговый агент на базе искусст�
 ```bash
 magnet:?xt=urn:btih:EA75FF8AF93BFDB38BED31B7E3EED6774C9416A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Java — это язык программирования, который спр
 ```bash
 magnet:?xt=urn:btih:D596B1B53E8B7FCD2B1BEE1B275988D3A197BAC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:D596B1B53E8B7FCD2B1BEE1B275988D3A197BAC2
 magnet:?xt=urn:btih:30CD1737AEDB2CCC71AD6A4CD3F174C45E3F2852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:30CD1737AEDB2CCC71AD6A4CD3F174C45E3F2852
 magnet:?xt=urn:btih:AF6FD7ED2CB3BD2FEFDF619B58B341BFEB9BF101
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Skillbox, Арсений Батыров и др. | Профессия Инжен
 ```bash
 magnet:?xt=urn:btih:0274BA2596131DD1557406CFB48A60657B8AF9F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:0274BA2596131DD1557406CFB48A60657B8AF9F3
 magnet:?xt=urn:btih:21FD575F024504BBCA7325BA0E4D5800F56E9538
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ magnet:?xt=urn:btih:21FD575F024504BBCA7325BA0E4D5800F56E9538
 magnet:?xt=urn:btih:CCC099EAB713041C7AF60FB7C716B70168575FD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:CCC099EAB713041C7AF60FB7C716B70168575FD0
 ```bash
 magnet:?xt=urn:btih:1C90C68AE93AC6E9EF85DBE56D96C95D9BCF4CCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Udemy, The Table Of Bosses, Cornell Literacy | ChatGPT Python Alchemy: Elevate Y
 magnet:?xt=urn:btih:D79A88725B0632122504C6812D90D418F815EFE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:D79A88725B0632122504C6812D90D418F815EFE0
 ```bash
 magnet:?xt=urn:btih:22D3CEED1F77A25B6F52928E222747C096F257AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ Skillbox, Валентин Пановский и др. | Профессия Data
 magnet:?xt=urn:btih:96D62A5B30323C5E1B0DA9642743568542061058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ Udemy, Irek Mirgaleev | Test-Driven Development Masterclass with Angular (2019) 
 magnet:?xt=urn:btih:E09FD9C9679CDA21DBEE28A0391D42A248304D2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ Udemy, Daniel Gakwaya | The C++20 Masterclass : From Fundamentals to Advanced (2
 ```bash
 magnet:?xt=urn:btih:B61577E537D1AE384A4BC90B8FFB98C03AD4CBE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ Itproger | Изучение Java (2018) PCRec [H.264/1080p-LQ]
 magnet:?xt=urn:btih:21D44429D951E60076CA08F71D478E89516730EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ Itproger | Создание Андроид игры на Unity 5 (2018) PCRec [H
 ```bash
 magnet:?xt=urn:btih:B27F285FEBDACFE70CC7EE99A5897A5F19D58567
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ Microsoft Office Word на протяжении многих лет являет
 ```bash
 magnet:?xt=urn:btih:4C27A67DE4EDC33E59B66D9CF2DD52F10368605D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ Podlodka | Podlodka Techlead Crew #1-5 (2021-2023) WEB-DL [RU] [Обновляе
 magnet:?xt=urn:btih:6F0AF3AFFB071DB137C8A3E6709DAFFD895D6B6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ Udemy, Bhrugen Patel | Full Stack React Bootcamp with .NET API [2023] [10 Projec
 magnet:?xt=urn:btih:430F60A77517927F72E1512272B6D1FE4AC874AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ Zero To Mastery Academy (ZTM), Jesse Zhou | Three.js Bootcamp: Zero to Mastery (
 ```bash
 magnet:?xt=urn:btih:7D42DE48BA87FFE52075F4A2708BD749BD78FE3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ Udemy, Krishna Lodha | Web GIS development course (2022) WEB-DL [EN / EN Sub]
 magnet:?xt=urn:btih:DE6181E9E083FE05E96E3F2A2272D51726144471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ HTML Academy | Профессиональный онлайн-курс JavaScript
 ```bash
 magnet:?xt=urn:btih:C1B164914F1B2AB471C99CBC800EA111A0CADFA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

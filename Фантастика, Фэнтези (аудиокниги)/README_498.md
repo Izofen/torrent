@@ -1,3 +1,30 @@
+###  Публикация: 1491596   (910467) от 25.08.2021
+
+Урсула Ле Гуин | Земноморье (Книга 1). Волшебник Земноморья (2021) [MP3, Павел Конышев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_910467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня Гед – величайший маг Земноморья, а в молодости он безрассудно рвался к могуществу и знаниям. Ступив на путь, казавшийся самым коротким и легким, юноша прикоснулся к древней тайне, и по его вине в мир проникло великое зло.
+Чтобы исправить содеянное, надо пройти иной путь – длиною в жизнь. Рискуя на каждом шагу, преодолеть немыслимые препятствия, измениться (   Читать дальше...   )Жанр: Героическое фэнтези, Зарубежное фэнтези, Классика фэнтезиИздательство: Азбука-АттикусПродолжительность: 09:12:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2334B0F073ABA95A873C17D38FCC13CFEA6A4525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491600   (910579) от 25.08.2021
 
 Урсула Ле Гуин | Земноморье (Книга 2). Гробницы Атуана (2021) [MP3, Павел Конышев]
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:67D9FFC40C27AB725729DA9BD1D6669C9BB8E7F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:67D9FFC40C27AB725729DA9BD1D6669C9BB8E7F3
 magnet:?xt=urn:btih:B77CFF09875FFD97A937805D5280A36DE035F26B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:B77CFF09875FFD97A937805D5280A36DE035F26B
 ```bash
 magnet:?xt=urn:btih:3FF5EB2352B0E2CC22E6D9574C1EA02814360E26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:3FF5EB2352B0E2CC22E6D9574C1EA02814360E26
 magnet:?xt=urn:btih:931C73CA0CC9FCBADBE26CCEC4ED1D0C568ED99C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:931C73CA0CC9FCBADBE26CCEC4ED1D0C568ED99C
 ```bash
 magnet:?xt=urn:btih:C5E1B21B6B1BA7EC371F439DD79A52DA62E72161
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:C5E1B21B6B1BA7EC371F439DD79A52DA62E72161
 magnet:?xt=urn:btih:AB64324DF3157A71BE6C671C55F2C38B203506E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +204,8 @@ magnet:?xt=urn:btih:AB64324DF3157A71BE6C671C55F2C38B203506E8
 ```bash
 magnet:?xt=urn:btih:DF27A5FB35C04E058E7D70A9AD5B4CC5F1187AE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ magnet:?xt=urn:btih:DF27A5FB35C04E058E7D70A9AD5B4CC5F1187AE5
 ```bash
 magnet:?xt=urn:btih:F89CC83C6A2F250A455474A94C4ED322BC884500
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +260,8 @@ magnet:?xt=urn:btih:F89CC83C6A2F250A455474A94C4ED322BC884500
 magnet:?xt=urn:btih:7B204EF5048F13280FCF563B7277F8C0A9D9FBDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +285,8 @@ magnet:?xt=urn:btih:7B204EF5048F13280FCF563B7277F8C0A9D9FBDC
 ```bash
 magnet:?xt=urn:btih:6D022BDEC53A02F0E1A7E657DC383A883DE17133
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ magnet:?xt=urn:btih:6D022BDEC53A02F0E1A7E657DC383A883DE17133
 magnet:?xt=urn:btih:F63F5837D3F2B7F30BDE8B9D2D1361D1B23D2F7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +338,8 @@ magnet:?xt=urn:btih:F63F5837D3F2B7F30BDE8B9D2D1361D1B23D2F7C
 magnet:?xt=urn:btih:0C0202482E4E856D046A11D73C33F7794A6449A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +363,8 @@ magnet:?xt=urn:btih:0C0202482E4E856D046A11D73C33F7794A6449A1
 ```bash
 magnet:?xt=urn:btih:B352F7D1972FB4DDE2B0DFA7A875D39C4FAD80C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +391,8 @@ magnet:?xt=urn:btih:B352F7D1972FB4DDE2B0DFA7A875D39C4FAD80C4
 magnet:?xt=urn:btih:C1FFBB595F38256B06BCC46189AB7FA5E96E0AC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +416,8 @@ magnet:?xt=urn:btih:C1FFBB595F38256B06BCC46189AB7FA5E96E0AC3
 ```bash
 magnet:?xt=urn:btih:5CB3DFD04F3BC195803C7E84F1C6EFA213F06492
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +443,8 @@ magnet:?xt=urn:btih:5CB3DFD04F3BC195803C7E84F1C6EFA213F06492
 magnet:?xt=urn:btih:94A166095A189A29C44B38E49889EEFCCAB1EEC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +468,8 @@ magnet:?xt=urn:btih:94A166095A189A29C44B38E49889EEFCCAB1EEC3
 ```bash
 magnet:?xt=urn:btih:B538A8F20C53FF70A92B14F0843325276EA258A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +496,8 @@ magnet:?xt=urn:btih:B538A8F20C53FF70A92B14F0843325276EA258A4
 magnet:?xt=urn:btih:7EDEB8AAC2B2210C5E595BFB356B3DE726575142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +521,8 @@ magnet:?xt=urn:btih:7EDEB8AAC2B2210C5E595BFB356B3DE726575142
 ```bash
 magnet:?xt=urn:btih:06FAF29BE7784CB5A53F3C2B0653A8742B0E2A77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +548,8 @@ magnet:?xt=urn:btih:06FAF29BE7784CB5A53F3C2B0653A8742B0E2A77
 magnet:?xt=urn:btih:47E8F8D7BBC31723011EC6C51430E73F634B5CF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +573,8 @@ magnet:?xt=urn:btih:47E8F8D7BBC31723011EC6C51430E73F634B5CF4
 ```bash
 magnet:?xt=urn:btih:506AF1A6A71B29DBBA30D952CE1E675E4003C732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +600,8 @@ magnet:?xt=urn:btih:506AF1A6A71B29DBBA30D952CE1E675E4003C732
 magnet:?xt=urn:btih:56A0093F0E3775CD247B06BDA96C4BDC8C2F4D5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +625,8 @@ magnet:?xt=urn:btih:56A0093F0E3775CD247B06BDA96C4BDC8C2F4D5D
 ```bash
 magnet:?xt=urn:btih:2FB7AA77713A8D91C17BD4F5036918D555FEBB7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +654,8 @@ magnet:?xt=urn:btih:2FB7AA77713A8D91C17BD4F5036918D555FEBB7F
 magnet:?xt=urn:btih:09D26930E73746A6C7086F7CAA7CE593C079EAD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,29 +680,7 @@ magnet:?xt=urn:btih:09D26930E73746A6C7086F7CAA7CE593C079EAD5
 magnet:?xt=urn:btih:E620672B9AAA5FC812559210E68FB0E791803CEE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367992   (913696) от 17.03.2020
-
-Матвей Курилкин | Сын лекаря (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_913696.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иногда, для того чтобы человек изменился, ему недостаточно даже попасть в другой мир. Да и зачем, если жизнь по большому счету осталась прежней? Если дома ты был студентом медицинского вуза, а, попав в другой мир, оказался учеником лучшего в городе лекаря, если в обоих мирах тебе не нужно зарабатывать на кусок хлеба, о каких изменениях идет речь? Всех изменений, (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, ПопаданцыПродолжительность: 11:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0768E4A8F0BFD08D4124DAD8124C210F8DAFBF8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:E646EC8364441CA8FFA7C2326FEA608AD4C52F97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:E646EC8364441CA8FFA7C2326FEA608AD4C52F97
 magnet:?xt=urn:btih:FD0B97C7963AD8C7E7BADD64C404CA04C77122C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:FD0B97C7963AD8C7E7BADD64C404CA04C77122C4
 ```bash
 magnet:?xt=urn:btih:8BD5575E69ACD746C3541027AAFEBA3B21CA5800
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ Picture - Warhorse (2012) [MP3|320 кб/с]<Heavy Metal>
 magnet:?xt=urn:btih:4B954C3C94E2BA9A51D7FBFBA7FAF172922850C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ magnet:?xt=urn:btih:4B954C3C94E2BA9A51D7FBFBA7FAF172922850C2
 magnet:?xt=urn:btih:1299F8E5FEFE3C4D73310A70A5CDF0300450F661
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:1299F8E5FEFE3C4D73310A70A5CDF0300450F661
 ```bash
 magnet:?xt=urn:btih:6F4C85CE4F3DB96618F0F5F8174193872B5089F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:6F4C85CE4F3DB96618F0F5F8174193872B5089F3
 magnet:?xt=urn:btih:F51399E0DCDD97FD46C706F2E38F5F52CCD32DA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:F51399E0DCDD97FD46C706F2E38F5F52CCD32DA8
 ```bash
 magnet:?xt=urn:btih:4AD591A33F3540F626A768AFD99D722FD688F06D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -233,6 +249,8 @@ VA - Progstorm 3 (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
 magnet:?xt=urn:btih:3DA1C7C37A85A4EC9016AA93C27B12F5C94B2BAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ magnet:?xt=urn:btih:3DA1C7C37A85A4EC9016AA93C27B12F5C94B2BAF
 ```bash
 magnet:?xt=urn:btih:82B3B8BA6B82F6CA72F8B9EB85EF34DBAF807442
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +310,8 @@ VA - Super Хит Танцевальный (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:76A207DCB99F87F5AA14E786D758865885347DF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +339,8 @@ Changelog:
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +364,8 @@ Changelog:
 ```bash
 magnet:?xt=urn:btih:F42315C74CAC1E0E838916BE6044BF9E4DF6DA10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +391,8 @@ magnet:?xt=urn:btih:F42315C74CAC1E0E838916BE6044BF9E4DF6DA10
 magnet:?xt=urn:btih:2A8548EEDE7E9420A742885C8B2748618B1EECEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +416,8 @@ magnet:?xt=urn:btih:2A8548EEDE7E9420A742885C8B2748618B1EECEC
 ```bash
 magnet:?xt=urn:btih:6DCCB6077BC8407AF3B53EAA2A263B863E117B39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +444,8 @@ magnet:?xt=urn:btih:6DCCB6077BC8407AF3B53EAA2A263B863E117B39
 ```bash
 magnet:?xt=urn:btih:8A72DEC6CEF3D6CDEFCC45B4CFF5A0473B10FBB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +480,8 @@ Kutless - Believer (2012) [MP3|-V0 ~245 кб/с]<Alt. Rock, Christian>
 magnet:?xt=urn:btih:4630F2D38444F8CE5FE980E5A179D27C06839B9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +505,8 @@ magnet:?xt=urn:btih:4630F2D38444F8CE5FE980E5A179D27C06839B9B
 ```bash
 magnet:?xt=urn:btih:2202689DFAC8DF3A589323BE87335D704D2C5ED0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ George Gakis - Too Much Ain't Ever Enough (2012) [MP3|320 кб/с]<Hard Rock>
 magnet:?xt=urn:btih:5044F19F431B210EBC5D27F5D4AF74FA74F7240D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +566,8 @@ magnet:?xt=urn:btih:5044F19F431B210EBC5D27F5D4AF74FA74F7240D
 ```bash
 magnet:?xt=urn:btih:24FFE3C7EC16EABC74681CCE14093A1BE83528F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +593,8 @@ Andain - Much Too Much (Official Music Video)Жанр: МузыкаРежисс�
 magnet:?xt=urn:btih:3F07D3132C410B961D86B52D16D0DEE0DB303028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +618,8 @@ magnet:?xt=urn:btih:3F07D3132C410B961D86B52D16D0DEE0DB303028
 ```bash
 magnet:?xt=urn:btih:BE69A5ADCE25A7D1DAAC2DF047E13358CC08F461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +654,8 @@ Rage - 21 (2012) [MP3|256 кб/с]<Heavy/Power/Thrash Metal>
 magnet:?xt=urn:btih:C9F17F7DDF878C94372B0CB59481E6F0730D3D39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +681,8 @@ magnet:?xt=urn:btih:C9F17F7DDF878C94372B0CB59481E6F0730D3D39
 ```bash
 magnet:?xt=urn:btih:5049CD3166A8F35D384923212719A226A7BB1B42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,6 +717,8 @@ VA - A.R.M.O.R (2012) [MP3|320 кб/с]<Drum & Bass>
 magnet:?xt=urn:btih:520EAC0BE0A2A35495B7CBEF480E43AAFD5C3D7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,6 +742,8 @@ magnet:?xt=urn:btih:520EAC0BE0A2A35495B7CBEF480E43AAFD5C3D7F
 ```bash
 magnet:?xt=urn:btih:AD2798E4FAF96DC73A486318E17F340137D26BA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

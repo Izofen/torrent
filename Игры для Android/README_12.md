@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D0EB0CD32C9433467D3E15E069CA6298447F8998
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Terra Genesis Mod v5.13 [Ru]
 magnet:?xt=urn:btih:5DA4381430B78053D0FEBF5AFB2C990B1B510EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Checkers Elite 2.0.4.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:0FEA1448249CA6F4D90A63FC17D032A0B42E1096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:0FEA1448249CA6F4D90A63FC17D032A0B42E1096
 magnet:?xt=urn:btih:5938DFFF313CAF295FC181CD6E8E5722E93D1ADB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:5938DFFF313CAF295FC181CD6E8E5722E93D1ADB
 ```bash
 magnet:?xt=urn:btih:4006F1F4134059D49C1EF7B921B93EB8D553EFAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ The Room Two - Продолжение замечательной андроид 
 magnet:?xt=urn:btih:292F4D225CFDD6F8EA92516CBE3A613C5F5710ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:292F4D225CFDD6F8EA92516CBE3A613C5F5710ED
 ```bash
 magnet:?xt=urn:btih:1B341F5A58F37C51B787A00E29451AB8A6B16DE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Dracula 4: The Shadow of the Dragon - квестовая приключенче�
 magnet:?xt=urn:btih:4B73A3255887D41421A6C5A5DEFF3F06BBE72737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Dracula 2: The Last Sanctuary - Приключенческая головоло�
 ```bash
 magnet:?xt=urn:btih:14D79BA9ABC7A2F27E6090EA466DE864E59F9714
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:14D79BA9ABC7A2F27E6090EA466DE864E59F9714
 magnet:?xt=urn:btih:E91FDE364D528A9E675903F41F9BD721FFE72B2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Syberia 2 – знаменитый квест на андроид, в котор
 ```bash
 magnet:?xt=urn:btih:DA1E92361BB3127D06861815C67D2505A284A61F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ Syberia - Эпический квест, который стал когда-то
 magnet:?xt=urn:btih:5EFFBA451D50FFD9921BAF0211432DC0EBC4B17D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Asphalt 8: Airborne - Новая часть одной из лучшей сер�
 ```bash
 magnet:?xt=urn:btih:AECAB2756198D87CF81170CE5BB58CCB6C16A715
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ Grand Theft Auto: San Andreas Много денег v1.08 [Ru]
 magnet:?xt=urn:btih:23CFCCA4200F2D68F4FC5FE3BFC0585838CFD434
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Grand Theft Auto: Vice City 1.07 [Ru]
 ```bash
 magnet:?xt=urn:btih:DFA4A10D7CBC8E9A1708AC2B74F1513F03383B8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Beyond Ynth HD  1.5 [En]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +443,8 @@ Beyond Ynth HD  1.5 [En]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Jagged Alliance 2 - культовая компьютерная тактичес
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +495,8 @@ Don't Starve: Shipwrecked — вторая часть инди-игры Don't St
 magnet:?xt=urn:btih:2BDE68300C921BBB894E9202EF22DF4AC69057B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ Tail Gun Charlie v1.3.36 Mod [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8AA6B5C76F28BD39D8B82DDBEF115884BDF2DD95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +547,8 @@ Terraria - это знаменитая игра из жанра "песочни�
 magnet:?xt=urn:btih:A70226F0A9478E1BDFE5110EC4B8A04252AAF677
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:A70226F0A9478E1BDFE5110EC4B8A04252AAF677
 ```bash
 magnet:?xt=urn:btih:98029237A99069CF9339E2D6ABDE0CCED7E81B24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Drift Max Pro v2.1.01 [Ru/Multi]
 magnet:?xt=urn:btih:DF6A24BC06A1EFDA60754AEE86F9898E21747A12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Magic Book: Match 3 Story v1.1.13 Mod [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:6571ACF4FA72F03B0AE14D60B19C36221610D625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:6571ACF4FA72F03B0AE14D60B19C36221610D625
 magnet:?xt=urn:btih:40F5BDA6EA00213106A2F9E5BC1D7365874344EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Word Life v6.2.1 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:48E4BAF77F59CDA544244F27A11A14C282199A36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

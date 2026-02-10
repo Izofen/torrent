@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:F364F01E1D2573246512A5541A7C518543E7A963
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ VA - Самые Яркие Звёзды 80-х (2СD) (2012) [MP3|320 кб/с]<Po
 magnet:?xt=urn:btih:92AB99B4DFA21513EAAAD63F2766F11E0F2A0B7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -82,6 +86,8 @@ magnet:?xt=urn:btih:92AB99B4DFA21513EAAAD63F2766F11E0F2A0B7E
 magnet:?xt=urn:btih:000459014007EF9334AA02D1070A379A6BD619DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ magnet:?xt=urn:btih:000459014007EF9334AA02D1070A379A6BD619DE
 ```bash
 magnet:?xt=urn:btih:F1BC500D8F935EF778AB7A1838295478019B2772
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +150,8 @@ magnet:?xt=urn:btih:F1BC500D8F935EF778AB7A1838295478019B2772
 magnet:?xt=urn:btih:2811725E86C64BC67FA77498A98A8FD40395D937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +175,8 @@ VA - Disco 80. Расширенные версии популярных хито
 ```bash
 magnet:?xt=urn:btih:A144A41F8F967C8FB540EC954630133B7772195A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +211,8 @@ VA - Наши 80-е! Выпуск 1 (2012) [MP3|192-256 кб/с]<Pop, Disco>
 magnet:?xt=urn:btih:CD68F27E8D2AFCE32A263AA16294EC95251E6AA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +236,8 @@ VA - Старая танцплощадка (2008) 2 выпуска 4 CD[MP3|320 
 ```bash
 magnet:?xt=urn:btih:F428B3838253D5FD61BF79CB24B2232635E940C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +266,8 @@ magnet:?xt=urn:btih:F428B3838253D5FD61BF79CB24B2232635E940C7
 magnet:?xt=urn:btih:6A6CF8ECC28BC8456EF607D7824F77885DAE293F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +294,8 @@ CD 1
 ```bash
 magnet:?xt=urn:btih:428FFEC773EDD2BE5B446BFC5D5721F023666462
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +324,8 @@ magnet:?xt=urn:btih:428FFEC773EDD2BE5B446BFC5D5721F023666462
 magnet:?xt=urn:btih:35AE5B68DE0EDA524A4EC9BC208A8B0C0CC298E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +349,8 @@ VA - Зарубежные хиты и русские перепевки (5 ча�
 ```bash
 magnet:?xt=urn:btih:6E79E411FAB78CD4371F02741568193FF542EFD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +379,8 @@ VA - В русском ресторане.Оригинальные записи 
 magnet:?xt=urn:btih:C98741FD13BA8E33B4CAB8C2F8FF5FCB2859F342
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +407,8 @@ VA - В русском ресторане. Романсы. (Выпуск 2) (200
 ```bash
 magnet:?xt=urn:btih:4CA06D5B6CB220EC2BAF8CFDFD02837F2C3C184C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +437,8 @@ magnet:?xt=urn:btih:4CA06D5B6CB220EC2BAF8CFDFD02837F2C3C184C
 magnet:?xt=urn:btih:5D066D18A1C12E100BF0A74D555248F8AA79C99D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +465,8 @@ VA - Лучшие хиты из культовых сериалов и кино�
 ```bash
 magnet:?xt=urn:btih:51AD5F9E72C50C8917772A8E4EDE2D23740DA509
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +495,8 @@ magnet:?xt=urn:btih:51AD5F9E72C50C8917772A8E4EDE2D23740DA509
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +524,8 @@ VA - Созвездие хитов. Застольные песни 1 (2004) [MP
 magnet:?xt=urn:btih:E6834181C218CBA378F0889F0E3F90F68FB2EBD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +552,8 @@ VA - Созвездие хитов-киношлягеры vol.1 (2004) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:3B20BEEE28E6705F658FF1C753B6F38E66F4B918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +588,8 @@ magnet:?xt=urn:btih:3B20BEEE28E6705F658FF1C753B6F38E66F4B918
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +616,8 @@ VA - Юрий Саульский - Татьянин день (2008) [MP3|320 к�
 ```bash
 magnet:?xt=urn:btih:B374AA5AACD82A219D62B9817DEA942EB4713496
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +647,8 @@ magnet:?xt=urn:btih:B374AA5AACD82A219D62B9817DEA942EB4713496
 magnet:?xt=urn:btih:CCAD5ABA2416DB8E2BD04AB798F462898224ED81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +675,8 @@ magnet:?xt=urn:btih:CCAD5ABA2416DB8E2BD04AB798F462898224ED81
 ```bash
 magnet:?xt=urn:btih:B8867F93F1A5C711D964C036E4049B6D395AEBA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +705,8 @@ magnet:?xt=urn:btih:B8867F93F1A5C711D964C036E4049B6D395AEBA6
 magnet:?xt=urn:btih:C4D95A6C59473067FB89820A99B479CDD73A5DAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -686,6 +734,8 @@ magnet:?xt=urn:btih:C4D95A6C59473067FB89820A99B479CDD73A5DAC
 magnet:?xt=urn:btih:75274C435FB349068FCF7873DE612E7810E37B0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -712,6 +762,8 @@ magnet:?xt=urn:btih:75274C435FB349068FCF7873DE612E7810E37B0B
 ```bash
 magnet:?xt=urn:btih:A0AF8EF44791AF88EB243EFAB910F0D9BD1F923B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3CF5C22F37B03385FA903C336A341F257D5224EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:3CF5C22F37B03385FA903C336A341F257D5224EE
 ```bash
 magnet:?xt=urn:btih:7B0D5936A6DC691644FF503C17D9F922A4829C23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:7B0D5936A6DC691644FF503C17D9F922A4829C23
 magnet:?xt=urn:btih:67BCAFF2FB37FE3B4DD92F6AF7CA0311A4133404
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:67BCAFF2FB37FE3B4DD92F6AF7CA0311A4133404
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Go Home Annie (2024) [Ru/Multi] (1.0.36) License GOG
 magnet:?xt=urn:btih:2241AC0D820084119D0B6813589B9E5CEEB52421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:2241AC0D820084119D0B6813589B9E5CEEB52421
 ```bash
 magnet:?xt=urn:btih:0DEE0D0527B4E486FA9861E6C70752CFC05F54AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Aomei Partition Assistant – мощная программа для работ�
 magnet:?xt=urn:btih:697CF3C295A1601DAD97F0C1C030E389F8A7BA84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:697CF3C295A1601DAD97F0C1C030E389F8A7BA84
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:697CF3C295A1601DAD97F0C1C030E389F8A7BA84
 magnet:?xt=urn:btih:06BC6795E445AF253DADD67F2DB4E7A2D33AFB2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:06BC6795E445AF253DADD67F2DB4E7A2D33AFB2E
 ```bash
 magnet:?xt=urn:btih:53A65B3A5A387004721EFFDD3545859D067CE48A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ RoadCraft (2025) [Ru/Multi] (1.5.D1PATCH.450651/dlc) Repack Other s [Rebuild Edi
 magnet:?xt=urn:btih:7B6CF097C616CF1F2741DD2B52D43AAEC07D3E01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Internet Download Manager (IDM) – удобный инструмент, поз�
 ```bash
 magnet:?xt=urn:btih:CFBB0291E0ED469154FF44F758F8F48C47A0C072
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:CFBB0291E0ED469154FF44F758F8F48C47A0C072
 magnet:?xt=urn:btih:FEE4647604AC6DA72AEE902563E98510E23E5F22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:FEE4647604AC6DA72AEE902563E98510E23E5F22
 ```bash
 magnet:?xt=urn:btih:1C336FB2709B49381D49E529D5ED0A2BA180BE6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ U-429: Подводная тюрьма / In Enemy Hands (2004) WEB-DLRip [AV1/21
 magnet:?xt=urn:btih:6AC52C457AB878BCF192FE9FFB47C2E1FF2C0642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Disney Illusion Island - это двухмерное приключение дл
 ```bash
 magnet:?xt=urn:btih:4885744B78D58015FB03EDAD494D645D7D966CFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:4885744B78D58015FB03EDAD494D645D7D966CFB
 magnet:?xt=urn:btih:DD7AC2E0847D765B0AA9B17B78584B38925BA193
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ magnet:?xt=urn:btih:DD7AC2E0847D765B0AA9B17B78584B38925BA193
 ```bash
 magnet:?xt=urn:btih:F2034AAA36841993A12172C31114F04E9A542602
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:F2034AAA36841993A12172C31114F04E9A542602
 magnet:?xt=urn:btih:3B78C4658A28F185E50375FC7EC1B92F52F69FF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ magnet:?xt=urn:btih:3B78C4658A28F185E50375FC7EC1B92F52F69FF7
 magnet:?xt=urn:btih:EB52ADDC3117B25279B6E30E976AFBBA40F72CBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +538,8 @@ Zombie Cure Lab (2022) [Ru/Multi] (1.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D257D91C4456B54FFC00B6C277901B13B413D9B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ VA - The Orient Collective : Ayahuasca (2025) [FLAC|Lossless|WEB-DL|tracks] <Wor
 magnet:?xt=urn:btih:7C56DD8C8EEF6AEA60F179E01D2859BF8401602B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:7C56DD8C8EEF6AEA60F179E01D2859BF8401602B
 magnet:?xt=urn:btih:C1F08D5B453579671F0DEB3FEEDD6FCB129F218F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ magnet:?xt=urn:btih:C1F08D5B453579671F0DEB3FEEDD6FCB129F218F
 ```bash
 magnet:?xt=urn:btih:A3931EC51F31B0712C8CA7A1772E649295A3D5EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Daff Moon Phase (Фазы Луны) v3.48 Mod by shv7net [Ru/En]
 magnet:?xt=urn:btih:6A6938198C8FD052B8A24B6B5DC5234634688AF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:6A6938198C8FD052B8A24B6B5DC5234634688AF3
 ```bash
 magnet:?xt=urn:btih:D8D3E8F45D0C26123628BEBCF3214A8476D533CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

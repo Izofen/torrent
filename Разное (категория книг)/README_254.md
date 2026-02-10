@@ -1,3 +1,29 @@
+###  Публикация: 1417599   (355622) от 21.10.2020
+
+Л. Геллер, Б. Фогараши (ред.) | Положение рабочего класса в капиталистических странах за 20 лет [1917-1937] (1938) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_355622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая книга, написанная группой рабочего движения Института мирового хозяйства и мировой политики Академии наук СССР, сравнивает положение рабочего класса в капиталистических странах и Стране Советов. Она наглядно показывает обнищание рабочего класса в капиталистических странах, — подъем у нас.Жанр: История, экономика, политология, социология, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A02C8698D41761AED6221A2B2E3FE6EC60BC2DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417604   (355623) от 21.10.2020
 
 В. Н. Масальский | Против фальсификации последствий технического прогресса при капитализме (1965) [DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:2089CE2E7B7BEA945D04C0028695CCFADC7DB306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:2089CE2E7B7BEA945D04C0028695CCFADC7DB306
 magnet:?xt=urn:btih:66D730F53939A59533B9411FE36FCA306E554F1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ Guinnes | Guinnes World Records 2013 [2012] [PDF] [EN]
 magnet:?xt=urn:btih:DDEF5F03DC035CEBA5EE0D8A0B5B51ECAC3417AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:DDEF5F03DC035CEBA5EE0D8A0B5B51ECAC3417AA
 ```bash
 magnet:?xt=urn:btih:A3105A123CC4C09B0247397C98FAFADB92B23A51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:A3105A123CC4C09B0247397C98FAFADB92B23A51
 magnet:?xt=urn:btih:3C147AFDFA23BF7C64D5808F9DDBD87D70E35CA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:3C147AFDFA23BF7C64D5808F9DDBD87D70E35CA9
 ```bash
 magnet:?xt=urn:btih:BF299DE6E686F5EA664351DCE420E5381DDFD1F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:BF299DE6E686F5EA664351DCE420E5381DDFD1F4
 magnet:?xt=urn:btih:8E8D98DE347BA5F17309083623671B0D6BD9295D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:8E8D98DE347BA5F17309083623671B0D6BD9295D
 ```bash
 magnet:?xt=urn:btih:84F09A7F11C1D4910512DE4A0E307669AA7F930F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:84F09A7F11C1D4910512DE4A0E307669AA7F930F
 magnet:?xt=urn:btih:EB07E8E2D0BA4FE712C48D1B85875E3475112628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:EB07E8E2D0BA4FE712C48D1B85875E3475112628
 ```bash
 magnet:?xt=urn:btih:24444C6429F1A65CC3B9E10EEAB05363E9A56C9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:24444C6429F1A65CC3B9E10EEAB05363E9A56C9D
 magnet:?xt=urn:btih:EB35345136AA1A3A2A3FA5E6E95DB5B11FE2CF71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:EB35345136AA1A3A2A3FA5E6E95DB5B11FE2CF71
 ```bash
 magnet:?xt=urn:btih:32A8FBEF6D46EBB86127D5B31C435930636EBC4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:32A8FBEF6D46EBB86127D5B31C435930636EBC4E
 magnet:?xt=urn:btih:07E08BF04E6E00DA1CD3D5C78DFD03DF59F0E300
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:07E08BF04E6E00DA1CD3D5C78DFD03DF59F0E300
 ```bash
 magnet:?xt=urn:btih:E3FE0359D1D84722B5A4ED28C5484ACC0D3A2B69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:E3FE0359D1D84722B5A4ED28C5484ACC0D3A2B69
 magnet:?xt=urn:btih:95BEB4355C45D2957073F7E941AD27168B46B987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +439,8 @@ magnet:?xt=urn:btih:95BEB4355C45D2957073F7E941AD27168B46B987
 ```bash
 magnet:?xt=urn:btih:27222F69684EEB82E080E11DB70D26782E34BD76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +466,8 @@ magnet:?xt=urn:btih:27222F69684EEB82E080E11DB70D26782E34BD76
 magnet:?xt=urn:btih:2331FB8BA188E066B5F22753478EA8CC7387C09F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:2331FB8BA188E066B5F22753478EA8CC7387C09F
 ```bash
 magnet:?xt=urn:btih:6E62DF60FF83F6BAADF34C2FB04DA10D1FE47648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:6E62DF60FF83F6BAADF34C2FB04DA10D1FE47648
 magnet:?xt=urn:btih:99540F8670BEED630D71542C1FE9D562F4F2AEE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:99540F8670BEED630D71542C1FE9D562F4F2AEE8
 magnet:?xt=urn:btih:A2399B859C9D6F159481356E9D7830B4681A6E5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:A2399B859C9D6F159481356E9D7830B4681A6E5A
 ```bash
 magnet:?xt=urn:btih:20DE7E0DFFCCC7D2F22A6E931513B95C2B15CA19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:20DE7E0DFFCCC7D2F22A6E931513B95C2B15CA19
 magnet:?xt=urn:btih:AFE069223E9F54218A3A33927D5A8A7FB75C17E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:AFE069223E9F54218A3A33927D5A8A7FB75C17E1
 ```bash
 magnet:?xt=urn:btih:A27F69809298172A5DBE2C8A637595CF5E2977E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:A27F69809298172A5DBE2C8A637595CF5E2977E5
 magnet:?xt=urn:btih:3ADFFF9DA4A2B5CBA6AD5AA3A94090EA0648EEFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,30 +680,7 @@ magnet:?xt=urn:btih:3ADFFF9DA4A2B5CBA6AD5AA3A94090EA0648EEFB
 magnet:?xt=urn:btih:1D83E42BAE7C3FE468D9C394D2E0469F3A97BE60
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575232   (356996) от 19.11.2012
-
-Дэвид Эйри | Логотип и фирменный стиль (2011) [PDF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_356996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпущена масса книг с коллекциями логотипов. Однако перед вами издание совсем другого плана — это полноценное руководство для дизайнеров (и их клиентов) которые хотят освоить эту увлекательную, творческую и вместе с тем сложнейшую задачу — разработку корпоративного стиля.
-Автор не просто рассказывает о технологии разработки логотипа и фирменного стиля, но и использует (   Читать дальше...   )Жанр: ДизайнФормат: pdf
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

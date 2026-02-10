@@ -19,6 +19,8 @@ Profileschool | Коммерческая фотография. Рецепт ус
 magnet:?xt=urn:btih:4A25BD32B4892541A5F67C53E9BC59D3CB2998F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ YII2 представляет собой высокопроизводитель�
 ```bash
 magnet:?xt=urn:btih:DD79DA7AFE5512858CC617DF074B11BFF020E13B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:DD79DA7AFE5512858CC617DF074B11BFF020E13B
 ```bash
 magnet:?xt=urn:btih:A50A1451C045ED1FAFBD3B65A4403D36DDB57E51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Digital Tutors, Alex Jerjomin | Sculpting a Stylized Game Environment in ZBrush 
 magnet:?xt=urn:btih:F8B48D60AF1C369AC2EC707351D5069D08843743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Digital Tutors, Justin Marshall | Cloth Workflows in ZBrush (2014) PCRec
 ```bash
 magnet:?xt=urn:btih:0EE78D67C029E9FD5C720C71AC20A57F8F325842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ Digital Tutors, Alex Jerjomin | Texturing a Stylized Game Environment in Photosh
 magnet:?xt=urn:btih:827E2BB9DC15A89C5A5B76BDDDB3E121917F86BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Digital Tutors, Alex Jerjomin | Importing and Rendering a Stylized Environment i
 magnet:?xt=urn:btih:4AC5C7305A859DFABCC5276082C1D85294CCDBA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Udemy, Steve Lord | Sculpting Animals (2014) PCRec
 ```bash
 magnet:?xt=urn:btih:635A0B4223D6E941D8B88593E4082C2832C7B5AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +240,8 @@ magnet:?xt=urn:btih:635A0B4223D6E941D8B88593E4082C2832C7B5AF
 magnet:?xt=urn:btih:8431DD10A7CA4CADFCF6A60D10825DC311DCEA49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Viscorbel, Austris | Classic Furniture VOL2 ORNAMENT (2013) PCRec
 ```bash
 magnet:?xt=urn:btih:E03BAFEF33A92D08952E92104DF748D218EB5A44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:E03BAFEF33A92D08952E92104DF748D218EB5A44
 magnet:?xt=urn:btih:530296B244801B23D70EF9AEB58E97C6AEEFDA40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ ItGid, Александр Лущенко | HTML для JavaScript разрабо
 ```bash
 magnet:?xt=urn:btih:4CDA270D5058670CD2990DD747770ECC14BB7CBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ j-design.pro, Сергей Привалов | 3D моделирование в Z
 magnet:?xt=urn:btih:4484DF85FB7333EE570980F6D87B5AA8FC056DC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ Chris Orwig | [Lynda.com]Photoshop Blend Modes for Photography [H.264/720p] [EN]
 magnet:?xt=urn:btih:DDD93264A20BCBABA8881820FEAA58698D7CAE58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:DDD93264A20BCBABA8881820FEAA58698D7CAE58
 ```bash
 magnet:?xt=urn:btih:4A29C63B643459A120CD645D67779B5496E7E045
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ Javabegin | Angular для начинающих (2020) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:E46BAC44356F214683ED1571C454FEFB781265B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ Udemy / Cronis Academy | Оценка сложности алгоритмов. �
 ```bash
 magnet:?xt=urn:btih:B5E7BA294C94D669B8FFB918917CB3C0E4F09896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ Udemy / Cronis Academy | Двоичные числа. Все о дополнит
 magnet:?xt=urn:btih:ECCBEBB325A7F82BB7BF107F9672294835AEF976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ Udemy / Cronis Academy | Бинарное дерево поиска (2019) PCRec
 ```bash
 magnet:?xt=urn:btih:BB008A1958FBC7903916EC2B4ECC6A9D0B9D834B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:BB008A1958FBC7903916EC2B4ECC6A9D0B9D834B
 magnet:?xt=urn:btih:FAA01227DF4E48261766EAB569C3761584307A92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ FXPHD, Jeronimo Maggi | Advanced VEX & Python for Houdini TDs (2019) PCRec
 magnet:?xt=urn:btih:C3EB7C63B09AD901A625B20CAACB0D463D751AD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ Pluralsight.com | Начало работы с MariaDB / Getting Started with Ma
 ```bash
 magnet:?xt=urn:btih:AF12462685933157D1CFF5E38495C83523F0E84A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ Lingua Franconia, Катерина Томилина | Школа техник и
 magnet:?xt=urn:btih:15BFB8EDD7962C973C7B77C80CAEAD192CA9C1AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:15BFB8EDD7962C973C7B77C80CAEAD192CA9C1AD
 ```bash
 magnet:?xt=urn:btih:912B4EE2C9BBB68949701315EBD33D568517DD49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:912B4EE2C9BBB68949701315EBD33D568517DD49
 magnet:?xt=urn:btih:FEF5C88C785776450D9A318189DF4671E9D999ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:FEF5C88C785776450D9A318189DF4671E9D999ED
 ```bash
 magnet:?xt=urn:btih:0B7518D79E7431371623C11F7C2FB6BE87B6C03F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

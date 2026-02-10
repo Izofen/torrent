@@ -19,6 +19,8 @@ Topaz Gigapixel – это ведущий в отрасли, ИИ-усилите
 magnet:?xt=urn:btih:06FEBD296D78A40DEA7E05F4BA8F92C40A532F36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kakkou no Iinazuke Season 2 | A Couple of Cuckoos Season 2 | Обручённы�
 ```bash
 magnet:?xt=urn:btih:EC0F96DD39369180C7D99B60F1AE522B68138CDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:EC0F96DD39369180C7D99B60F1AE522B68138CDF
 magnet:?xt=urn:btih:04E76592C91A98412E4B3C419B2FDC3FD7D98156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack FitGirl [Digital Deluxe 
 ```bash
 magnet:?xt=urn:btih:0B8E11587C8FAB87FCBA1E9DB5A57261A04E30F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:0B8E11587C8FAB87FCBA1E9DB5A57261A04E30F3
 magnet:?xt=urn:btih:308F62C49E86F5C86386504A48AE7256113EF4B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack seleZen [Digital Deluxe 
 ```bash
 magnet:?xt=urn:btih:16D26A85AA61D2ADD34F3B1E93BE78D9C01D4AF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Scene Rune [Digital Deluxe Edit
 magnet:?xt=urn:btih:BB8CADC93A14D76B3B5EB36357D35ED79E7BC786
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Craft the World объединяет в себе наиболее интерес
 ```bash
 magnet:?xt=urn:btih:E1FD295911293C7295010D33DD92A575A28AC241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Yet Another Zombie Survivors (2023) [Ru/Multi] (B.0.9.0a) Repack Let'sРlay [Ear
 magnet:?xt=urn:btih:33BB7237FBD3E2BB5420F7DCBA578AB667C8B51A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Project Warlock II (2) (2022) [Ru/Multi] (1.0.1.26) License GOG
 ```bash
 magnet:?xt=urn:btih:4384C11F5EAE9EE0EF7EC281A95D2700057C4A41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Reality Break (2025) [Multi] (1.1.1) License GOG
 magnet:?xt=urn:btih:1D265ED7707760381B6AF09330F409653C2AAC2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:1D265ED7707760381B6AF09330F409653C2AAC2C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:1D265ED7707760381B6AF09330F409653C2AAC2C
 ```bash
 magnet:?xt=urn:btih:CF43BBC59990344C88B5E05B6C4EA772C2154F81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Nukitashi the Animation | Нукитаси [2025, TV, 10 из 11 эп.] WEBRip 1
 magnet:?xt=urn:btih:8C72124B5ACDC760877A5D5B3F4D3EEB86AFFEA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Kizetsu Yuusha to Ansatsu Hime | Обморочный герой и принце
 ```bash
 magnet:?xt=urn:btih:0326F26948AD32CF1BF0723A20023271EF44A89A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Frostpunk 2 открывает новые грани жанра выживани
 magnet:?xt=urn:btih:51C5A4A5001DEED05C15BF56A04F564E874EB35D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Swordhaven: Iron Conspiracy с головой окунает вас в полн�
 magnet:?xt=urn:btih:F223758DC46079B2F03C3637AC6B43DD495B7D85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Star Valor - космическая игра в жанре экшен-РПГ, г
 ```bash
 magnet:?xt=urn:btih:15CD3C7B898FA0DDD6546BAB71F695908943F176
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Grand Blue Season 2 / Grand Blue Dreaming 2 / Необъятный океан [�
 magnet:?xt=urn:btih:7A9B7FADCB5A8ECF5FEDF95E7940D79156945109
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:7A9B7FADCB5A8ECF5FEDF95E7940D79156945109
 magnet:?xt=urn:btih:F90D424D9E268B64158599BBC796CB383599CED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ DRAGON BALL: Sparking! ZERO - продолжение легендарной се
 ```bash
 magnet:?xt=urn:btih:AFE2CEDBBB6DC734295776C1CE030833D966BE08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Hell Clock (2025) [Ru/Multi] (1.0.3 HF4/dlc) Repack Let'sРlay [Supporter Editio
 magnet:?xt=urn:btih:F2B757E904F21326EA119A02381ACEE88D6A75E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ Static Dread: The Lighthouse - это игра в жанре хоррор, гд�
 ```bash
 magnet:?xt=urn:btih:2B389637A0612D8A57D53C83B4E257BF2CD83988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ Summer Pockets / Летние карманы [2025, TV, 25 из 26] WEBRip 720p 
 magnet:?xt=urn:btih:E31E623A859C7B7541D4D6A00B1E6028958246EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:E31E623A859C7B7541D4D6A00B1E6028958246EE
 ```bash
 magnet:?xt=urn:btih:8BA85A7A69B75150DF3318F9A4A5F8FB21C05535
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ magnet:?xt=urn:btih:8BA85A7A69B75150DF3318F9A4A5F8FB21C05535
 ```bash
 magnet:?xt=urn:btih:F4CA93A400BA1E185902A75F60B5C642FC4E43AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

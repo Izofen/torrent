@@ -1,3 +1,29 @@
+###  Публикация: 1093420   (935235) от 14.01.2017
+
+Марсианская тетрадь Сергея Королева (2017) HDTVRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_935235.jpg" />
+</div>
+
+
+###  Подробнее
+
+За 20 лет прошлого века человечество сделало такой прорыв в освоении космоса, который мы не покрыли даже за полвека. И все это — благодаря Сергею Королеву. Авторы фильма побывали в доме Сергея Королева, который он получил в награду от Советского правительства. Он работал не для того, чтобы жить, а жил для того, чтобы работать. Ради работы он пожертвовал здоровьем (   Читать дальше...   )Телекомпания: 1 канал HDЖанр: ДокументальныйПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54FD9A459D3702D7AD0187C14595F3B3826CF417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985139   (935324) от 11.02.2016
 
 Рассекреченная история. Несущие смерть (2016) IPTVRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:D7AD350CD70B7C1F42357F1F73499BA98FB38B5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:D7AD350CD70B7C1F42357F1F73499BA98FB38B5A
 ```bash
 magnet:?xt=urn:btih:15700AE0E9CA3F4FA52C7FD0990872AE2D027E16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:15700AE0E9CA3F4FA52C7FD0990872AE2D027E16
 magnet:?xt=urn:btih:EADA85BB06BC0B5B4AD41031FA01312B50F99E87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:EADA85BB06BC0B5B4AD41031FA01312B50F99E87
 ```bash
 magnet:?xt=urn:btih:93220C3F28507D57E132C549C195D7A54DC75012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:93220C3F28507D57E132C549C195D7A54DC75012
 magnet:?xt=urn:btih:13AC3BF3D21A36B8EB721D60C8863F73B2F5F202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:13AC3BF3D21A36B8EB721D60C8863F73B2F5F202
 ```bash
 magnet:?xt=urn:btih:6C9F22D8FB6A04C255F7AF8478317913CDD9847B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:6C9F22D8FB6A04C255F7AF8478317913CDD9847B
 magnet:?xt=urn:btih:056711033E56D295CBE9A87C9B2593909D267F9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:056711033E56D295CBE9A87C9B2593909D267F9D
 ```bash
 magnet:?xt=urn:btih:74336E487C421E16B5A88CDA58AD9DEDA7DD103C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:74336E487C421E16B5A88CDA58AD9DEDA7DD103C
 magnet:?xt=urn:btih:E7F51FFE91951C42E932BC359B439FA755A7794A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:E7F51FFE91951C42E932BC359B439FA755A7794A
 ```bash
 magnet:?xt=urn:btih:7050B2555184D4234A6FA801B30BE28BE194E5D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:7050B2555184D4234A6FA801B30BE28BE194E5D7
 magnet:?xt=urn:btih:E05BF5D64E967C9C11FD121C7FAA1AEB6F9D33F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:E05BF5D64E967C9C11FD121C7FAA1AEB6F9D33F4
 ```bash
 magnet:?xt=urn:btih:C6437A1CE818310547B093F08EEB250359D28BC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:C6437A1CE818310547B093F08EEB250359D28BC6
 magnet:?xt=urn:btih:ECBD5BC902161169DAAC65828A26FAD51CEBBDDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:ECBD5BC902161169DAAC65828A26FAD51CEBBDDD
 ```bash
 magnet:?xt=urn:btih:58FBACD3496F3655746272D2DDC65A1D600CDF78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:58FBACD3496F3655746272D2DDC65A1D600CDF78
 magnet:?xt=urn:btih:79D96976C734FB9E29C77611A32872CB97D68B10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:79D96976C734FB9E29C77611A32872CB97D68B10
 ```bash
 magnet:?xt=urn:btih:9114B34C8EF0030CC32FFE0BAC69303C2D431384
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:9114B34C8EF0030CC32FFE0BAC69303C2D431384
 magnet:?xt=urn:btih:2AC8F419272EE815CC37DFF4F7832052C3573224
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:2AC8F419272EE815CC37DFF4F7832052C3573224
 ```bash
 magnet:?xt=urn:btih:81A90BBF878BEE2290D939AAD19F4EA7C0E5DB04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:81A90BBF878BEE2290D939AAD19F4EA7C0E5DB04
 magnet:?xt=urn:btih:A340FA5EB86BD03F03C9992EBEECA737AA4DA386
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:A340FA5EB86BD03F03C9992EBEECA737AA4DA386
 ```bash
 magnet:?xt=urn:btih:603CB22B2F7C7C472541C704AADB5FDB6570B528
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:603CB22B2F7C7C472541C704AADB5FDB6570B528
 magnet:?xt=urn:btih:6D2FD76E16EB1373E24916891E97FB4A440B8C54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:6D2FD76E16EB1373E24916891E97FB4A440B8C54
 ```bash
 magnet:?xt=urn:btih:5CECC00F555456FE323523B364222D524BB19D7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:5CECC00F555456FE323523B364222D524BB19D7D
 magnet:?xt=urn:btih:7532A1F64CA4C59B5EF17725C3ADF1BEC744B90E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +643,8 @@ magnet:?xt=urn:btih:7532A1F64CA4C59B5EF17725C3ADF1BEC744B90E
 ```bash
 magnet:?xt=urn:btih:EF49FAB182FDCD2888ADCFCEA01424418D88E2BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,29 +670,7 @@ C-80. Лодка-призрак (2011) SATRip
 magnet:?xt=urn:btih:D09E0B73E12700ACE168AB3C1B9634E48FBA4C72
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985126   (936912) от 10.02.2016
-
-Специальный корреспондент. Терроризм под прицелом (10.02.2016) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936912.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Специальный корреспондент" - это популярная публицистическая программа, которая выходит на телеканале "Россия" с сентября 2002 года. Каждую неделю один из ведущих рассказывает в своем фильме-репортаже о какой-либо актуальной проблеме, существующей в современном обществе, посвящает зрительскую аудиторию в подробности наиболее значимых для страны (   Читать дальше...   )Телекомпания: РоссияЖанр: ДокументальныйПродолжительность: ~ 02:31:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC1ACCD7CC7F76793DB90DE19E842286033CC2E2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

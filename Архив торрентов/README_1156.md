@@ -20,6 +20,8 @@ World Clock Deluxe - это надежное и простое в использ
 magnet:?xt=urn:btih:582D00737588BE3E7C5D6D284D6478872276D65B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Daemon Tools - маленький по размеру, но мощный по в
 ```bash
 magnet:?xt=urn:btih:3558B922C0C0036510F5F08FE1A7FA2746791FFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ AppKiller 3.0 [En]
 magnet:?xt=urn:btih:377E6FEB628E97BAC42705D1681C128395D4E64D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Adobe Substance 3D Painter 9.1.0 build 2983 (x64) Portable by 7997 [Multi]
 ```bash
 magnet:?xt=urn:btih:3AD66D4602CF1B8DF5E529019A8E355D7D495514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Exif Editor - ваше предпочтительное приложение д�
 magnet:?xt=urn:btih:A609145C9E53B48E609651108195157E384FD838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:179ADD3265275FFCC9B83C3144BD57485C2BA165
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Chaos Control 1.11 [En/Ru]
 magnet:?xt=urn:btih:916C5D26DD4F58E0D452758A2028B39F0F1D0363
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ HandBrake - бесплатный видео конвертер с открыты
 ```bash
 magnet:?xt=urn:btih:284C98ADAD82B89C453DFF92293E2CE105A9D1B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Adobe Photoshop 2024 - новая версия программы для обр�
 magnet:?xt=urn:btih:15CBC03044C244FDB46D8BC16C0E24906688AF79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ SpeakMe 1.4 [En]
 ```bash
 magnet:?xt=urn:btih:0D2FFF85D22F5212E5A51BBF6F2A1FAD3FDF8FD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ DropDMG 3.6.1 [Multi]
 magnet:?xt=urn:btih:76BDFA0C0301CBCDFD442FE29964D86B2616B633
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Nisus Writer Pro Мощный мультиязычный текстовый ре
 magnet:?xt=urn:btih:BF2FAA552D2CDDA884FD1079E676251087921337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Microsoft выпустила новую сборку Windows 10 для учас�
 ```bash
 magnet:?xt=urn:btih:B70AE90847D8E98D260F4F54273027D3130475CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Currency Assistant - очень гибкий калькулятор конвер
 magnet:?xt=urn:btih:4C9CF71A5BF53FF821CCC0F8872EA6968C3B015F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Office Enterprise 2007 — самый полный набор программ �
 magnet:?xt=urn:btih:4A3C39E262FA2ACB351E15608E8C37AC3B8BF80E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ Total Commander 11.02 Final - Titan v31 Portable by pcDenPro [Ru]
 ```bash
 magnet:?xt=urn:btih:7A35E1451A670888BF9F028CFF048B3A813B67D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ InfoClick точно знает, какие слова вы использова
 magnet:?xt=urn:btih:5796B9AC20C87CC984D897AF21A611492F6E197B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ MAGIX VEGAS Pro 19 предоставляет вам все необходимы
 ```bash
 magnet:?xt=urn:btih:90210DB9527156A4D7A8B12E17DED4DE3F1D1D5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ MetaImage - это идеальный инструмент для чтения, 
 magnet:?xt=urn:btih:AC649DCD23AF8A3860446952F4CCB3B64AAFCAFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Luminar Neo 1.6.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:7BA70D856F937C75EA7C3699D22EAEA01EF91E7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Webcam Surveyor 3.8.7 Build 1183 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:C61F016016C2A290AA294572679574B6A4986CE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:6943A250EF72D61AC1510938BCFEF1742D163771
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Smart Launcher - программа для преобразования поль
 magnet:?xt=urn:btih:63683E7F2EDA0873558B438FAA8B8BEADC165310
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Microsoft Office 2013 – лучший пакет прикладных прог�
 ```bash
 magnet:?xt=urn:btih:F82E0B4091AF5679B14DA9DDB32F92A121C634C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавля�
 magnet:?xt=urn:btih:536F275B099DE4D8DCD6E6594F251ED75084D3F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Premiere Pro — это мощное, гибкое и удобное средс�
 ```bash
 magnet:?xt=urn:btih:90C3A11282D1A9BC6AE9F74B0004DDA2454A2A73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

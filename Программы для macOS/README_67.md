@@ -19,6 +19,8 @@ HistoryHound 2.3.2 [Multi]
 magnet:?xt=urn:btih:66F76869F347A4C72D82F643E30166330619C214
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BookMacster - приложение синхронизирует закладки
 ```bash
 magnet:?xt=urn:btih:D01CD2231CA31716B61CFCBDA0252A57FDFDCC97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Markster 3.0.12 [En]
 magnet:?xt=urn:btih:5619EE302B35B9CDA42B40796353942C82C842C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Lasso — оконный менеджер для macOS. Перемещайте �
 magnet:?xt=urn:btih:87DC6F014CED800B9C7864E168E1158871DDF4A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ BookMacster - приложение синхронизирует закладки
 ```bash
 magnet:?xt=urn:btih:1D99A32B5150F1633B75444C22F91573D59407E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ Photomatix может автоматически создавать HDR изоб
 magnet:?xt=urn:btih:15983003FE855D78AF2A78BFF19212FA2D2772A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ iRightMouse — самый мощный инструмент контекстн�
 ```bash
 magnet:?xt=urn:btih:829FAF13FA71536CA0D86439D79F39D77C959D64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ Viper FTP (ранее ViaFTP) - простой и очень удобный FTP-
 magnet:?xt=urn:btih:C34DFA2D29E9629E4EB02B8F3A64E90E95479A0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ BetterMouse — это утилита для macOS, улучшающая про�
 ```bash
 magnet:?xt=urn:btih:9347C392CBCFF3D800D541017CDA5FBE1C67D9C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Bigasoft WTV Converter for Mac конвертирует файлы WTV, файл
 magnet:?xt=urn:btih:EDCCE9F0F4F6708428D3BD40D52A101803158D0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ NCH MixPad Masters 10.61 [En]
 ```bash
 magnet:?xt=urn:btih:7F38CDDF3B404328D17C123896A2A6421D474BFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Debit & Credit Premium - Personal Finance Manager 6.1.5 [Multi/Ru]
 magnet:?xt=urn:btih:0FB37973DE566E70723BEC067188F2B231EC1BAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ WebToLayers преобразует веб-сайты в документы Photo
 ```bash
 magnet:?xt=urn:btih:F080D46A8373AC4C38B4BB207F04FED86E3CD038
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Script Debugger предлагает пользователям всё, что �
 magnet:?xt=urn:btih:A3B6CD31B9458FE590D8F5CCFD947294280EC549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Inboard - Image Organizer 1.1.6 [En]
 magnet:?xt=urn:btih:D395C58A5C48CE7B4316BE2D2C48A6716C3EEAD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ App Tamer 2 v.2.7.6 [En]
 magnet:?xt=urn:btih:EB4902E77EFF33C88606F6D8F09697B7F4A55016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ USBclean 3.6.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:4A1F9449BDBF9B0DAC2F6716969563E9128B35DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Magic Battery Mini поддерживает все периферийные ус
 magnet:?xt=urn:btih:850FDB709D1DE659C365901D713FB6C1B2F7693B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Gestimer 1.2.8 [En]
 magnet:?xt=urn:btih:B447AEE073B1F3E416D5B4DDB3B73F60B2B47753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +520,8 @@ SSH Config Editor Pro 2.6.2 [En]
 ```bash
 magnet:?xt=urn:btih:87F182FDD4646CCFD66B94761C2082515B127AC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ WiFi Explorer Pro берет базу кода Wi-Fi Explorer и добавля�
 magnet:?xt=urn:btih:17B982F6FA573867CC5A7D94C8338C6268658ED6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ start - это уникальный лаунчер для macOS, позволя�
 ```bash
 magnet:?xt=urn:btih:F249D59EC025EB7F91DAE8C5F16156F994B96BD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ TunesKit Video Cutter 2.3.0 [Multi]
 magnet:?xt=urn:btih:ADFF09219AD3AC8D6E112E19459C765564A7362E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ TunesKit Video Converter 2.1.0 [En]
 ```bash
 magnet:?xt=urn:btih:0C311E8B45967DB36418F650EC55CC820D206ED3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ Perfect Face - Pimple Remover 1.2 [En]
 magnet:?xt=urn:btih:B46E96242EDDF888C15DEF594109418CFCE1E699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Plist Converter - самый быстрый и простой способ ко�
 ```bash
 magnet:?xt=urn:btih:50EB24E2651B612DC7FCE0AA31EE2A27AC705315
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

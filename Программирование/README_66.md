@@ -20,6 +20,8 @@ As with his other books, Martin's Clean Architecture doesn't merely present mult
 magnet:?xt=urn:btih:84E701E8498E2F123B0BB6D93C225AE832C036BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:84E701E8498E2F123B0BB6D93C225AE832C036BB
 ```bash
 magnet:?xt=urn:btih:F7D54CE8E84ECA5CB7776F466A59211D78249763
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:F7D54CE8E84ECA5CB7776F466A59211D78249763
 magnet:?xt=urn:btih:DADB32F52439101CE641A4DBF4AE02198D1FDA07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Generative AI has the potential to innovate and evolve business processes, but w
 magnet:?xt=urn:btih:CD9D20864D3E05062088489C327A1CC836C32FA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Elevate your AI system performance capabilities with this definitive guide to ma
 ```bash
 magnet:?xt=urn:btih:D55DB6E4890C9A3D3886EB400CF6BDC22861A7BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:D55DB6E4890C9A3D3886EB400CF6BDC22861A7BB
 magnet:?xt=urn:btih:C160815309EBF984CE16EFE24DB33D8700E3B569
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ This book covers the core concepts of Python Programming to enable students unde
 ```bash
 magnet:?xt=urn:btih:53B2F915A796FCDFBCE288533451740060B10B07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:53B2F915A796FCDFBCE288533451740060B10B07
 magnet:?xt=urn:btih:F2886F7A2D455564D14CF9434555802D708E8DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Designing new algorithms in swarm intelligence is a complex undertaking. Two cri
 magnet:?xt=urn:btih:8017C893D235CF89668E23360C473D69EC53EA18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ Generative AI and Agentic AI together are revolutionizing the technology landsca
 ```bash
 magnet:?xt=urn:btih:C19F94F7752E5841B63EE9CFA53D7EDDA41DC08E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ The book is organized into eleven chapters. The first chapter introduces (   Ч
 magnet:?xt=urn:btih:AE1460BA1825A4E5AE9D638F52BBAFFE079FE076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:AE1460BA1825A4E5AE9D638F52BBAFFE079FE076
 ```bash
 magnet:?xt=urn:btih:31F89AFF64106BCFC1F824C9A9F6C87A1A9C40F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:31F89AFF64106BCFC1F824C9A9F6C87A1A9C40F9
 magnet:?xt=urn:btih:765071B4D8816D533319A2CEFCB62E2F259E8C2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Advanced Forecasting with Python, Second Edition, is a comprehensive and practic
 ```bash
 magnet:?xt=urn:btih:AD96263C0513578142DB7B6EEB58E66A64F4EF8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Build interactive, data-driven websites with the potent combination of open sour
 magnet:?xt=urn:btih:ED285EE72CAB1A7B32194BD359F50EAAF4145B03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:ED285EE72CAB1A7B32194BD359F50EAAF4145B03
 ```bash
 magnet:?xt=urn:btih:B1C6E91BA941B7FC574726F1147CB527DF155E95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

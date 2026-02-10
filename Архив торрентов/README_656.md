@@ -23,6 +23,8 @@
 magnet:?xt=urn:btih:B6FE0CE3EFD05D5F18C315C711D08A774A454406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:B6FE0CE3EFD05D5F18C315C711D08A774A454406
 magnet:?xt=urn:btih:34A2B0DF396C031F79DEE7467A189867CEE74C58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:34A2B0DF396C031F79DEE7467A189867CEE74C58
 ```bash
 magnet:?xt=urn:btih:6A5AFC13D61E2EBCCB77ACE7BE9FAF9E094B237C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:6A5AFC13D61E2EBCCB77ACE7BE9FAF9E094B237C
 magnet:?xt=urn:btih:3CF3542A7485B7CD456B1191F6699B69901A5AE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:3CF3542A7485B7CD456B1191F6699B69901A5AE2
 magnet:?xt=urn:btih:3FD4CC3352C8A1DBBB4F767D17814E82AD38E526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:3FD4CC3352C8A1DBBB4F767D17814E82AD38E526
 ```bash
 magnet:?xt=urn:btih:CA8E39F5001AEC162B756A0C90BEB460DB333CD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ VA - Four Seasons: Winter mixed by Paul Oakenfold (2012) [MP3|320 kbps]<Trance, 
 magnet:?xt=urn:btih:4C4E271988E3CAE84491EA5A7A22F6FB84B6494C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -206,6 +220,8 @@ magnet:?xt=urn:btih:4C4E271988E3CAE84491EA5A7A22F6FB84B6494C
 magnet:?xt=urn:btih:2FF36CD6A274575752C335762E85BBE35557886D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ Mike De Ville - Amada Mia Amore Mio (2012) HDRip [1080p]
 ```bash
 magnet:?xt=urn:btih:C773E47D84F10DA5476F34DDCA5A2F543B3D80D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ magnet:?xt=urn:btih:C773E47D84F10DA5476F34DDCA5A2F543B3D80D0
 ```bash
 magnet:?xt=urn:btih:622035755EC531BECA16B758F59BEDDD159CAE58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +316,8 @@ Dark Nebula - Too Loud For The Cloud (2012) [MP3|320 kbps]<Psychedelic / Psytran
 magnet:?xt=urn:btih:454CBB8FACEEBF432B7E3E593FBD7F3E42FEA020
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +351,8 @@ VA - Minimal Art v.4 (12.02.2012) [MP3|320 kbps]<Minimal>
 magnet:?xt=urn:btih:83C7836E0C2716C4052BD382EEFD8E7CFAD4BB06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +376,8 @@ magnet:?xt=urn:btih:83C7836E0C2716C4052BD382EEFD8E7CFAD4BB06
 ```bash
 magnet:?xt=urn:btih:61C38F57C088C7455EFA2FF0EE79A6CFC52B088C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +403,8 @@ magnet:?xt=urn:btih:61C38F57C088C7455EFA2FF0EE79A6CFC52B088C
 magnet:?xt=urn:btih:73ECC7885F18B29A5039B227A72E19398947FCE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ magnet:?xt=urn:btih:73ECC7885F18B29A5039B227A72E19398947FCE1
 ```bash
 magnet:?xt=urn:btih:A3C2A47A8DD849F76F485101069D8749EB0A9AFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +464,8 @@ VA - Зарубежный Автозвук (2012) [MP3|256 кб/с]<Pop, Dance>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +489,8 @@ VA - Зарубежный Автозвук (2012) [MP3|256 кб/с]<Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:F98914C753A3B13C92785CEAFEAE94014E574A69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +525,8 @@ Blacksmith - Strike While The Iron's Hot (2011) [MP3|320 кб/с]<Heavy Metal, P
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +551,8 @@ Blacksmith - Strike While The Iron's Hot (2011) [MP3|320 кб/с]<Heavy Metal, P
 ```bash
 magnet:?xt=urn:btih:FAB36B20E55290A10BD0AAE839CF959FE2C90566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +587,8 @@ VA - Drum Nation Volume 3 (2006) [MP3|192-320 кб/с]<Math-Core/Metal-Core>
 magnet:?xt=urn:btih:7AB358C3DE6A1B0A213041DF7271C65C705A8C52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +612,8 @@ magnet:?xt=urn:btih:7AB358C3DE6A1B0A213041DF7271C65C705A8C52
 ```bash
 magnet:?xt=urn:btih:B25C9327B0CDE0C54A84471FF382807B50B4D533
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +639,8 @@ magnet:?xt=urn:btih:B25C9327B0CDE0C54A84471FF382807B50B4D533
 magnet:?xt=urn:btih:FAED0458AC7FE9DC36F0DEBA3A81D4FB82271F01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +664,8 @@ Ian - I Wanna Feel (2011) [H.264/1080р] WEBRip
 ```bash
 magnet:?xt=urn:btih:E0A7C53A505D86CFBF077C74C3C3864AC8D8BDE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -654,6 +700,8 @@ VA - Minimal Art v.3 (11.02.2012) [MP3|320 kbps]<Minimal>
 magnet:?xt=urn:btih:9E581143ED7E60AEE91BFF68673F08AC316E8B2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -679,6 +727,8 @@ magnet:?xt=urn:btih:9E581143ED7E60AEE91BFF68673F08AC316E8B2B
 magnet:?xt=urn:btih:A3DEE2D7EE405E9F799D1373B2BEA21DBADAB17C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +752,8 @@ magnet:?xt=urn:btih:A3DEE2D7EE405E9F799D1373B2BEA21DBADAB17C
 ```bash
 magnet:?xt=urn:btih:7DA4A7004E615724CA810C939FF5A636DF1AEFCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

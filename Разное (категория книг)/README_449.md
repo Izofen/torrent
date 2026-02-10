@@ -1,3 +1,29 @@
+###  Публикация: 1225476   (657957) от 18.05.2018
+
+Священник Виктор Кузнецов | Мученики нашего времени. Иеромонах Нил (Савленков), Игорь Тальков, митрополит Николай (Ярушевич) и другие (2009) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Священники и миряне, претерпевшие смерть ради Веры и Отечества - наши маяки во тьме падшего мира. Замучившие, убившие их изверги, являются исполнителями, слугами сатанинских сил. Мученическая смерть праведников, к сожалению, не становится в наше апостасийное время не только широко оповещаемой сенсацией, но даже мало-мальски известным событием. Жёсткий заговор молчания (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08854661AC66E8A342194F371C7B3DAFDCA4E407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225695   (658037) от 18.05.2018
 
 Н.Е. Пестов | Как переносить скорби и страдания (2011) [PDF, DJVU]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:F23920E7708CE27383BB4DBC4C5F704305E7B78C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +75,8 @@ magnet:?xt=urn:btih:F23920E7708CE27383BB4DBC4C5F704305E7B78C
 magnet:?xt=urn:btih:2386418F9269E76AA48577CF07CE12A60C4E35B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:2386418F9269E76AA48577CF07CE12A60C4E35B2
 magnet:?xt=urn:btih:8B68EC68FCE5225204D6BEF910C35CA2550FCBCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:8B68EC68FCE5225204D6BEF910C35CA2550FCBCD
 ```bash
 magnet:?xt=urn:btih:209EAA3D60AC0F2BBCBD32A6C2D163564289E6F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:209EAA3D60AC0F2BBCBD32A6C2D163564289E6F5
 magnet:?xt=urn:btih:41A494DE6682153901A53F44F6FF35783397BFBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:41A494DE6682153901A53F44F6FF35783397BFBA
 ```bash
 magnet:?xt=urn:btih:82F41C8516EF80EC1C4D690A0949DD2421A14C6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +209,8 @@ magnet:?xt=urn:btih:82F41C8516EF80EC1C4D690A0949DD2421A14C6F
 magnet:?xt=urn:btih:E818B6713BA9162B255B67051DCE3BEE1D2320DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:E818B6713BA9162B255B67051DCE3BEE1D2320DF
 magnet:?xt=urn:btih:51A22B295E248A76B5C8C8FC362A03602FF72491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:51A22B295E248A76B5C8C8FC362A03602FF72491
 ```bash
 magnet:?xt=urn:btih:4C752367305FEE0DCD6C223464F54FD2A06FD7CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:4C752367305FEE0DCD6C223464F54FD2A06FD7CB
 magnet:?xt=urn:btih:BA8FD22E77DAE9960DFFF1F4CA73F81C7D71E679
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +317,8 @@ magnet:?xt=urn:btih:BA8FD22E77DAE9960DFFF1F4CA73F81C7D71E679
 magnet:?xt=urn:btih:51B759E4D98CFFE70CE55C3350C281E4835A2419
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +342,8 @@ magnet:?xt=urn:btih:51B759E4D98CFFE70CE55C3350C281E4835A2419
 ```bash
 magnet:?xt=urn:btih:ACA30E1D76F95E49174DC6EC2AE67D459067195A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +369,8 @@ magnet:?xt=urn:btih:ACA30E1D76F95E49174DC6EC2AE67D459067195A
 magnet:?xt=urn:btih:7F863C89B3AAEB37A43CD9769AB7826FB775A1E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +394,8 @@ magnet:?xt=urn:btih:7F863C89B3AAEB37A43CD9769AB7826FB775A1E9
 ```bash
 magnet:?xt=urn:btih:21985C7F05251580DA401317926E7AEC9B854C20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +424,8 @@ magnet:?xt=urn:btih:21985C7F05251580DA401317926E7AEC9B854C20
 magnet:?xt=urn:btih:0DD13794BC29FB25C9C9E7C1F78C3C9F7C07C714
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +449,8 @@ magnet:?xt=urn:btih:0DD13794BC29FB25C9C9E7C1F78C3C9F7C07C714
 ```bash
 magnet:?xt=urn:btih:088BA38CD0500C59C2DE723177A83CF561302FCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +476,8 @@ magnet:?xt=urn:btih:088BA38CD0500C59C2DE723177A83CF561302FCA
 magnet:?xt=urn:btih:4E5D5AC620DCE7978C48056F2D816599012A2C6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:4E5D5AC620DCE7978C48056F2D816599012A2C6B
 ```bash
 magnet:?xt=urn:btih:5348327182F98D46E96EC8C34D1084899D7C8121
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:5348327182F98D46E96EC8C34D1084899D7C8121
 magnet:?xt=urn:btih:D95B6E13827151C6233446796B556D4D032857C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +553,8 @@ magnet:?xt=urn:btih:D95B6E13827151C6233446796B556D4D032857C7
 ```bash
 magnet:?xt=urn:btih:F263890C1D78D34D8BB9AFB00797917F81C58869
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +582,8 @@ magnet:?xt=urn:btih:F263890C1D78D34D8BB9AFB00797917F81C58869
 magnet:?xt=urn:btih:1BEFEA18CCD3EA6307EA784033EF491A9C7997E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +607,8 @@ magnet:?xt=urn:btih:1BEFEA18CCD3EA6307EA784033EF491A9C7997E1
 ```bash
 magnet:?xt=urn:btih:226B75174B66B681630AE319C4D006DE9C99FA58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +635,8 @@ magnet:?xt=urn:btih:226B75174B66B681630AE319C4D006DE9C99FA58
 magnet:?xt=urn:btih:EE4F879BC013E7E29C99AC67B3CF06231DF611C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +660,8 @@ magnet:?xt=urn:btih:EE4F879BC013E7E29C99AC67B3CF06231DF611C7
 ```bash
 magnet:?xt=urn:btih:B537F4E5C3C832254A8A7B03D3AF9197673F5900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,32 +687,7 @@ magnet:?xt=urn:btih:B537F4E5C3C832254A8A7B03D3AF9197673F5900
 magnet:?xt=urn:btih:CCA126195DEA7269F80C6DFCA942040C635A0594
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903291   (659051) от 30.05.2015
-
-Роберт Мосс | Тайная история сновидений. Значение снов в различных культурах и жизни известных личностей (2010) [FB2, EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_659051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга представляет собой увлекательнейшее историко-культурное исследование, главная тема которого – сновидения.
-
-Автор, ученый-историк и писатель, в детстве трижды пережил околосмертное состояние, и с тех пор мир сновидений стал одним из главных увлечений его жизни.
-(   Читать дальше...   )Жанр: Общая психология, Зарубежная психология, СонникиПеревод: Е. А. ФедотоваФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:239CE59F61AB77FD535658AEB2065E02926E0DF3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

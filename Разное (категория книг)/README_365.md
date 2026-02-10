@@ -1,3 +1,31 @@
+###  Публикация: 1310854   (544529) от 27.06.2019
+
+М. А. Москалев и др. (сост.) | И. В. Сталин в сибирской ссылке (1942) [PDF]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_544529.jpg" />
+</div>
+
+
+###  Подробнее
+
+В историю большевистской партии вписано много ярких страниц о руководстве революционным рабочим движением великого соратника и продолжателя дела Ленина — Иосифа Виссарионовича Сталина.
+
+В данной небольшой монографии „И. В. Сталин в сибирской ссылке“ невозможно осветить всю сумму вопросов, связанных с огромной творческой теоретической работой, многогранной революционной (   Читать дальше...   )Жанр: История, политология, публицистика, документалистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:604AF238BF82964E8F3263CFB558C58C35611221
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310804   (544587) от 27.06.2019
 
 П. Лисовский | Абиссинская авантюра итальянского фашизма (1936) [DJVU]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:BD27071A0B4D10926BCA2203D8EA83F209B40014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:BD27071A0B4D10926BCA2203D8EA83F209B40014
 magnet:?xt=urn:btih:F6AD2E7AE24FC0C345DC0647B09366817BBB8EF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:F6AD2E7AE24FC0C345DC0647B09366817BBB8EF5
 ```bash
 magnet:?xt=urn:btih:D312FBB4A63718FECEB290F65B5E13AEFAFF4B47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +126,8 @@ magnet:?xt=urn:btih:D312FBB4A63718FECEB290F65B5E13AEFAFF4B47
 magnet:?xt=urn:btih:0AF4320AC27D21CAB78C94B4AE6653DDD0BE4A9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +151,8 @@ magnet:?xt=urn:btih:0AF4320AC27D21CAB78C94B4AE6653DDD0BE4A9D
 ```bash
 magnet:?xt=urn:btih:327B166FB157ADFEEE792D66939CE3C30ABD6DC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +178,8 @@ magnet:?xt=urn:btih:327B166FB157ADFEEE792D66939CE3C30ABD6DC6
 magnet:?xt=urn:btih:7AC3572D498FF5159D0AA14562D1C067F4152A7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +203,8 @@ magnet:?xt=urn:btih:7AC3572D498FF5159D0AA14562D1C067F4152A7F
 ```bash
 magnet:?xt=urn:btih:F0A34CE01734874951F72BC223AF251E61ECA4B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +232,8 @@ magnet:?xt=urn:btih:F0A34CE01734874951F72BC223AF251E61ECA4B0
 magnet:?xt=urn:btih:812362B8D0F608AB7BB31FAC983B61CCB590D71E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +257,8 @@ magnet:?xt=urn:btih:812362B8D0F608AB7BB31FAC983B61CCB590D71E
 ```bash
 magnet:?xt=urn:btih:507F5C4A5D2B9DD9F9A32E9416EEA6F609484379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +284,8 @@ magnet:?xt=urn:btih:507F5C4A5D2B9DD9F9A32E9416EEA6F609484379
 magnet:?xt=urn:btih:DAA270068A0A28E3ABCE1951B762D515152B98C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +309,8 @@ magnet:?xt=urn:btih:DAA270068A0A28E3ABCE1951B762D515152B98C2
 ```bash
 magnet:?xt=urn:btih:143EA79D9CD21CE9D80E1215288AAD85039168B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +336,8 @@ magnet:?xt=urn:btih:143EA79D9CD21CE9D80E1215288AAD85039168B5
 magnet:?xt=urn:btih:112A88AC89A334B820B1513195426FFC1D933262
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +361,8 @@ magnet:?xt=urn:btih:112A88AC89A334B820B1513195426FFC1D933262
 ```bash
 magnet:?xt=urn:btih:EAF097AB7ACEB6BFEB866F90854E3BF118EB503D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +388,8 @@ magnet:?xt=urn:btih:EAF097AB7ACEB6BFEB866F90854E3BF118EB503D
 magnet:?xt=urn:btih:5F107ADFDA8CE5E6E4D873CBAE6329C995E2A536
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +413,8 @@ magnet:?xt=urn:btih:5F107ADFDA8CE5E6E4D873CBAE6329C995E2A536
 ```bash
 magnet:?xt=urn:btih:DBA2475BE166E686587B42F84182D6FE1ED2DCB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +442,8 @@ magnet:?xt=urn:btih:DBA2475BE166E686587B42F84182D6FE1ED2DCB7
 magnet:?xt=urn:btih:F0C9A3FA030EEB187B838210C5EB9DE4C650081E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +467,8 @@ magnet:?xt=urn:btih:F0C9A3FA030EEB187B838210C5EB9DE4C650081E
 ```bash
 magnet:?xt=urn:btih:F5C5A3F64418A7DA17F18CAD07C63E1802105438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +494,8 @@ magnet:?xt=urn:btih:F5C5A3F64418A7DA17F18CAD07C63E1802105438
 magnet:?xt=urn:btih:1F4A243AC933476BAD06FA205F52DAB3A87896FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +519,8 @@ magnet:?xt=urn:btih:1F4A243AC933476BAD06FA205F52DAB3A87896FE
 ```bash
 magnet:?xt=urn:btih:70337B08A974786A16B45272F08DC27A4B91CF16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +548,8 @@ magnet:?xt=urn:btih:70337B08A974786A16B45272F08DC27A4B91CF16
 magnet:?xt=urn:btih:8EA906C2412E3DA9A8C8A3B4C574A5B0BC6D006B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +575,8 @@ magnet:?xt=urn:btih:8EA906C2412E3DA9A8C8A3B4C574A5B0BC6D006B
 ```bash
 magnet:?xt=urn:btih:BDA1AC952C451D52B7CEE2E194EEBBD38F5991DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +604,8 @@ magnet:?xt=urn:btih:BDA1AC952C451D52B7CEE2E194EEBBD38F5991DC
 magnet:?xt=urn:btih:6D861D55704561D00C4488499A3A5356D735300F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +631,8 @@ magnet:?xt=urn:btih:6D861D55704561D00C4488499A3A5356D735300F
 ```bash
 magnet:?xt=urn:btih:43450AD1B4CF02F1FE955EB3918B5D5B3CC73802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +660,8 @@ magnet:?xt=urn:btih:43450AD1B4CF02F1FE955EB3918B5D5B3CC73802
 magnet:?xt=urn:btih:65D2534DF4D6A7FE880438D1231DA5B093463D18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +686,7 @@ magnet:?xt=urn:btih:65D2534DF4D6A7FE880438D1231DA5B093463D18
 magnet:?xt=urn:btih:539A8C9E14D7B4F3A1240B4FAB9438D0359DBB57
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310487   (546832) от 24.06.2019
-
-Павел Федоренко, Илья Качай | ВСДейка. Азбука невротика (2019) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546832.jpg" />
-</div>
-
-
-###  Подробнее
-
-В настоящей книге подробно и доступно раскрываются глубинные причины так называемой вегетососудистой дистонии и прочих тревожных состояний. Работа освещает влияние убеждений, в которые мы верим, на качество нашей жизни. В книге также можно обнаружить самый настоящий словарь, описывающий самые частые и актуальные проблемы, с которыми сталкивается тревожный невротик. (   Читать дальше...   )Жанр: Общая психологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:002C7D582A5DA1F24D6BF5CACA88032BF937E66B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

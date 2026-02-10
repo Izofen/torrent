@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:AA1B52758F4E5B3BF8979824D88CF381752B15D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:AA1B52758F4E5B3BF8979824D88CF381752B15D5
 ```bash
 magnet:?xt=urn:btih:7DF7656793D0CB0FD3CA6D1EC38E8BFB566C16C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ SounceSource позволяет настроить прямо из строки 
 ```bash
 magnet:?xt=urn:btih:7FE7D7B6F53DBA7F9457A7B315C4D7C7C6B3FE99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Raider - Runaway (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 magnet:?xt=urn:btih:064F862E999C89ED3503D24C14CDEF0ADFD99EC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ DVD бонус к третьему фильму One Piece
 magnet:?xt=urn:btih:E2279D8088D7B57213B438C6ED16471830EA5565
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:E2279D8088D7B57213B438C6ED16471830EA5565
 ```bash
 magnet:?xt=urn:btih:61F351ED7CB191B1DDA64BB6DA6C9AF5A1FFECB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Windows 7/10/11 Pro х86-x64 by systemp 21.11.10 [Ru]
 ```bash
 magnet:?xt=urn:btih:401620CE1570958B9841FF9A6F13536CCD3EEEF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ Tsugumi - 3 альбома (2012-2013) [FLAC|Lossless] <Touhou, Vocal, Doujin On
 magnet:?xt=urn:btih:40AE14A257B87D88A6C432F70C1C42E4B6C034F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:40AE14A257B87D88A6C432F70C1C42E4B6C034F6
 ```bash
 magnet:?xt=urn:btih:5D91D99BBE7E9F4E3EBDB97A18D132B65B992579
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ Avi Rosenfeld - Be The Moon (2020) [MP3|320 Kbps] <Classic Rock, Blues Rock>
 magnet:?xt=urn:btih:EFAC6F845DD9DAA522D6A40DBD8E14323E837BCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:EFAC6F845DD9DAA522D6A40DBD8E14323E837BCA
 ```bash
 magnet:?xt=urn:btih:9B8A19FB4D8219437BC302C5E0498BE20627FE7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:9B8A19FB4D8219437BC302C5E0498BE20627FE7D
 magnet:?xt=urn:btih:22E6ED2B749BE701DE4BAF2D146859C3CE32E53A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:22E6ED2B749BE701DE4BAF2D146859C3CE32E53A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ One Piece Jidaigeki Special: Luffy Oyabun Torimonocho / One Piece: The Detective
 magnet:?xt=urn:btih:7A2ABF08D1F58BB17B545B669109099DDF992621
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ Rob Papen - RAW-Kick 1.0.1 VSTi, AAX (x86/x64) Repack by VR [En]
 ```bash
 magnet:?xt=urn:btih:4011D617B3438E116C4D09EA94AE104812E431E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:4011D617B3438E116C4D09EA94AE104812E431E4
 magnet:?xt=urn:btih:16404189777BE5A50BA25EA59B02E05E74FE5058
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ magnet:?xt=urn:btih:16404189777BE5A50BA25EA59B02E05E74FE5058
 magnet:?xt=urn:btih:1D84894BE781D0C304F166DF7CF068A0986FC941
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:1D84894BE781D0C304F166DF7CF068A0986FC941
 magnet:?xt=urn:btih:82A0729D848233EA70B034C49FFD6A06E8DF18BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:82A0729D848233EA70B034C49FFD6A06E8DF18BF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ The Ryszard Kramarski Project - Sounds From The Past (2018) [MP3|320 Kbps] <Prog
 magnet:?xt=urn:btih:542A7DC731DEC682AA1C9050080E6BF5A7811420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +571,8 @@ The Southern Pilots - Southern Shuffle (2022) [FLAC|Lossless|WEB-DL|tracks] <Sou
 magnet:?xt=urn:btih:2D8533565A4E924C58A168E271D5946328A7FA6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ Persecond - это простой и увлекательный способ с�
 ```bash
 magnet:?xt=urn:btih:CF8ED511BA6F99FFA017CC3D84DBE238DA851B91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ One Piece TV Special: Umi no Heso Daiboken hen / One Piece Special: Adventure in
 magnet:?xt=urn:btih:AFAAC04BCC6B2F673157C6AFF2D1F6FEB0018DA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ magnet:?xt=urn:btih:AFAAC04BCC6B2F673157C6AFF2D1F6FEB0018DA3
 ```bash
 magnet:?xt=urn:btih:03D6A86DE83176E9C17DDC0328B221386D676320
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ The Most Rated Death Kills - 4 Releases (2017-2022) [MP3|320 Kbps] <Black, Death
 magnet:?xt=urn:btih:3407E2E5B1D463F1065A6322AEA0B74C5DB4D824
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ magnet:?xt=urn:btih:3407E2E5B1D463F1065A6322AEA0B74C5DB4D824
 ```bash
 magnet:?xt=urn:btih:2FF39BE4B13F112125C7468CA7DBD8B5A0861108
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

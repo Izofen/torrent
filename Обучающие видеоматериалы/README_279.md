@@ -22,6 +22,8 @@ Udemy, Adrian Więch | Practical Java Unit Testing with JUnit 5 (2021) PCRec [En
 magnet:?xt=urn:btih:AD5525769C5FBB268B0B53B2F45BD19D6E4801AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Udemy, Emilio Aguero | Windows Server 2019 Admin: Active Directory, DNS, GPO, DH
 ```bash
 magnet:?xt=urn:btih:8085C060E4F33E0FDD7861FBB5D1769B1563B542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ Laravel API Resources(   Читать дальше...   )Производств�
 magnet:?xt=urn:btih:7408BA4830CD19382B3451F58F7BD553D7E6B87C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Jai Mayhew | Luxe Portraiture & Retouching (2021) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:F77278C926A78B34F76CD94A469071C83F751868
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Ubuntu Linux неизменно входит в пятерку лучших ди
 magnet:?xt=urn:btih:83A81DAE61399E0ED4D9BDADFC843257ADBF288C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ Udemy, Spring Batch | The Ultimate Spring Batch Developer Course (2020) PCRec [E
 magnet:?xt=urn:btih:DC3685345C15806FDE42C3C23431855210887220
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Udemy, Orsi Yoga Pilates | Home and Travel Fitness Workout  (2021) PCRec [En / E
 ```bash
 magnet:?xt=urn:btih:84D600A7634EEBD4268DE2BF7EAF5116DFC1C1F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Udemy, Yaroslav Shmarov | Ruby on Rails 6: Learn 25+ gems and build a Startup MV
 magnet:?xt=urn:btih:75F08C4DBFFCF27B9D3084084385E587D3692F02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ Udemy, NewTechWays - Anurag Yadav | Developer To Architect: Mastering Software A
 magnet:?xt=urn:btih:268F1AD8F83ACB926AE00712A2D5FDCFDAD6C55C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +267,8 @@ Udemy, Brad Traversy | React Front To Back (2021) PCRec [En / En Sub]
 magnet:?xt=urn:btih:7E34CA64BFE96CBFCC2365A9952AD9B7A6BD779F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +292,8 @@ Udemy, Manisha Satone | PIC Microcontroller: Architecture and Embedded C Program
 ```bash
 magnet:?xt=urn:btih:A02AD9736C91EF4EE387F1F6668E607148BC391B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ Qt - это кроссплатформенная среда разработки
 ```bash
 magnet:?xt=urn:btih:6D7BE5361E9285EF6E7BA74F93C1810FDA3B8FF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ Udemy, Manisha Satone | 8051 Architecture, Assembly and 'C' Programming  (2021) 
 magnet:?xt=urn:btih:22BCADB884EC937E8D3EC99B2306742683039EC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ Udemy, Abhilash Nelson | Computer Vision: Face Recognition Quick Starter in Pyth
 ```bash
 magnet:?xt=urn:btih:2177D5B18FF285C341D7A2F4F561310BDCD91F7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ Udemy, Laurence Svekis | JavaScript DOM Projects InterActive Dynamic WebPages  (
 magnet:?xt=urn:btih:13944077C50C5F2790074D223DCDD6B4BC913187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ Udemy, Filip Jerga | React, Angular, Node In-Depth Guide: Beginner to Pro (2020)
 ```bash
 magnet:?xt=urn:btih:3512C22DD01AD35143B6FE0AB113D21BC3545106
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ Udemy, Yaroslav Shmarov | Ruby on Rails Crash Course: Authentication and Authori
 magnet:?xt=urn:btih:F18F334606ED04151FB094425220754814EB1C75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ Lets Build That App | Maps UIKit SwiftUI (2021) PCRec [En / En Sub]
 magnet:?xt=urn:btih:F6F94963241A7AE7EF39DBAF1BEC1694B869D3D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ Udemy, Coding Gears | Train Your Brain | IP Addresses and Subnetting  (2021) PCR
 ```bash
 magnet:?xt=urn:btih:3194306DA2D7B6246D0CEE9861AF573FBFFDE6CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ Udemy, Emile Ackbarali | An Introduction to the DNP3 SCADA Communications Protoc
 magnet:?xt=urn:btih:62E71572E478319E4236D84CF66CB8C7911CC47C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ Vulkan - это кросс-платформенная библиотека тр�
 magnet:?xt=urn:btih:C890A5E4D72BB22976CE2391327B229B4DA5D546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ jQuery остается самой популярной библиотекой �
 ```bash
 magnet:?xt=urn:btih:BE5EFF338C3660A14B0533347BDB9604E89B0EEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ Ethernet / IP (промышленный протокол Ethernet) - это ст
 magnet:?xt=urn:btih:A85DD80A8161BC4B82287F91A6AD26E135020C99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ Profibus DP - один из наиболее часто используемых
 ```bash
 magnet:?xt=urn:btih:06EFFF1E34A378F61A1091B9991F81104D66D649
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ magnet:?xt=urn:btih:06EFFF1E34A378F61A1091B9991F81104D66D649
 magnet:?xt=urn:btih:BF9C9850E82CB4609FD05215913EEDE0499D20A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ Skillbox, Д. Пронин, А. Панов, П. Старостина и др. | 
 ```bash
 magnet:?xt=urn:btih:1BC86181B76D149D8476CC90F070411855E35BBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

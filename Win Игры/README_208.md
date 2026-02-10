@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5BF174E9CB01894627055C3FD0BA6DE6DEBA3E80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Space Sieged (L) [En] 2012
 ```bash
 magnet:?xt=urn:btih:4272ED02300D39082BFC342E2D366B0B32FE193B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Pure [Ru] (RePack) 2008 | Naitro
 magnet:?xt=urn:btih:C0562EA218081B3B46E17A0D0AE752F77720D4CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:C0562EA218081B3B46E17A0D0AE752F77720D4CF
 ```bash
 magnet:?xt=urn:btih:AC67FB38F59FBB75C1A68E5C5C1672628934F244
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Uprising представляет собой глобальное дополне
 magnet:?xt=urn:btih:52DE40CA58845DBBA8CB0229EA686375DBBA0983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Silent Nights: The Pianist Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:55C14D67B1100B2BE7131F9FCB26D002FEC8C810
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Mystery Chronicles: Murder Among Friends / Загадочное происшес
 magnet:?xt=urn:btih:CD9C2C3FAC7E24793CBEFE3271B89B8031677641
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Tunes Jungle Adventure / Нотки: Приключения в джунглях 
 ```bash
 magnet:?xt=urn:btih:06F6ECE76222D44BC97277D497CB6CE3CFB440FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Mobiloid - это уникальная головоломка с оригина�
 magnet:?xt=urn:btih:44A7E842BE1638199EEBCAA68433856CA8AC81CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Columnof the Maya / Тайна сокровищ майя (P) [Ru] 2012
 ```bash
 magnet:?xt=urn:btih:3CE01DD1115AC9F422DC1557EA37D73F8964A742
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Agency of Anomalies 2: Cinderstone Orphanage. Collector's Edition / Аген
 magnet:?xt=urn:btih:84947326E00999E9A5BF3AD761B79841C231B52C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Awakening: The Dreamless Castle / Пробуждение. Заколдованн
 ```bash
 magnet:?xt=urn:btih:D5E9ED8C0A5ACB7B857A853B52A3B52813E2BCA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Memento Mori / Memento Mori: Помни о смерти (RePack) [Ru] 2008 | a-l
 magnet:?xt=urn:btih:375C45176D1A705D79A91BFD47F112414A9F39BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Marine Tower Defence / Ух-ты, бухты! (P) [Ru] 2011
 ```bash
 magnet:?xt=urn:btih:85B00E79796EF58D806218DE55E7A11B3C017A91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Yesterday / Yesterday: Печать Люцифера [Ru] (L/Steam-Rip) 2012
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Time Chronicles: The Missing Mona Lisa (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:C433A30D3B5E4ACF634D21C241CAE3316A721959
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Turbo Gems - красиво оформленная игра, в современ
 magnet:?xt=urn:btih:B93F342329CC155C0C025B1EAB228AC3DCABBCEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Cubis Gold 2 (P) [En] 2008
 magnet:?xt=urn:btih:B39FDC3089A60D0FDE5E0E94A96AF981F36E4D79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Dream Mysteries: Case of the Red Fox / Тайны грёз: История ры�
 ```bash
 magnet:?xt=urn:btih:C594B75AEB0C68D3796ECE1A6777CB4B9E6464DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ And Then There Were None / И не осталось никого... (L) [Ru/En] 
 magnet:?xt=urn:btih:7C9C0CE83B39D6CE0C683A213FDC9C303767422A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:7C9C0CE83B39D6CE0C683A213FDC9C303767422A
 ```bash
 magnet:?xt=urn:btih:044A333BC987EDF377B6D179286B0492FC4EEF61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Easter Eggztravaganza (P) [En] 2012
 magnet:?xt=urn:btih:39DFA079126FCBFB5EF4A09D5283854EA054B650
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Amulet of Time: Shadow of La Rochelle / Путешествие во времен
 magnet:?xt=urn:btih:C66D19EDE81CBF18AED06710BB26A4E954925C08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ Yetisports. Кругосветный пингвин. +бонус (L) [Ru/En] 200
 ```bash
 magnet:?xt=urn:btih:81F57A7ADB6D89BE419FB4FEB501C8FDA4472290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Dustforce - стильный акробатический платформер �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Allods Online Astral Demons / Аллоды Онлайн Astral Demons [Ru] (P) 2
 ```bash
 magnet:?xt=urn:btih:11901EA3DCE89B6DD8731862F45164536E10BA08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

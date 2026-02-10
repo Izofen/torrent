@@ -19,6 +19,8 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.1f) Repack seleZen
 magnet:?xt=urn:btih:641EF82DDCEE00D21E81B8CB6F58658791CE239F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Lost Lands X / Затерянные земли Х (2025) [Ru] (1.0) Unofficial [
 ```bash
 magnet:?xt=urn:btih:852A33141259EBA76062BEAA04241B4C65ABF4F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cities: Skylines II - это живая экономическая систем�
 magnet:?xt=urn:btih:3670E337587751EB7440B9FE8B92DCFF6974C27C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Mansion of The Macabre (2024) [Multi] (1.1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:54C28C08B9C91A5065EC5E37B2605B7BAE490698
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Kaiserpunk (2025) [Ru/Multi] (build 17798436) RePack seleZen
 magnet:?xt=urn:btih:933633A58C4897062A7D4C526CCE60B03B04B990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (1.03/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:5E9C71676D95389F3D288AA693EFE688EE181E04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0w/dlc) Repack Wanterl
 magnet:?xt=urn:btih:34E620FDBD8FE5F911EA645D4BC4BA61D14DCEBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land (2025) [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:828523D309DE2BD938397AAE94D0751423F41387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Girl Genius: Adventures In Castle Heterodyne, созданная по мотив
 magnet:?xt=urn:btih:D0D6649FC66D02E3A041C028660A2073840AAC68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Operator - это не типичная стрелялка или прикл
 ```bash
 magnet:?xt=urn:btih:C6BF81902B69850B72098E6545E6A167BD420BAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Curse of the Sea Rats - двумерная метроидвания, расск�
 magnet:?xt=urn:btih:8DB01B57E3A4BEB8BC3E67946F286AFCF9CC9E31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Aquatic Store Simulator (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:AD5A1D4632ACCD35A1F5405A3C76163A6EF58993
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Storykeepers: Hidden Mystery (2025) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:30BA93A92606549E1CE5935CBC7CCDD7997E2D29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Cataclismo вводит игроков в роль лидера, ответст�
 ```bash
 magnet:?xt=urn:btih:CBA671FE753B5BCD7224C939CEDB8715242ED66F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Avium (2023) [Ru/Multi] (build 17784960 Patch 29) Repack seleZen
 magnet:?xt=urn:btih:826EACD73BF2C6117A0BA008A8E643A28DFA8901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Dread Tomb - многопользовательская кооперативна
 ```bash
 magnet:?xt=urn:btih:EE00F204E56E9DA5D8E370ADE70B1BE3ADA783DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ BLEACH Rebirth of Souls (2025) [Ru/Multi] (build 17746622/dlc) Repack seleZen
 magnet:?xt=urn:btih:1D44C56A23042687B7F76AF912A7263743611A5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Phantom (2025) [En] (1.013) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:6BC7D1B0423B43B01024EA9A48AE06039173C079
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Long Dark – это хардкорный симулятор выживан�
 magnet:?xt=urn:btih:82804797C32E0F91E6F23EB47B172BD4677B0DBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Grand Theft Auto V Enhanced (2025) [Ru/Multi] (1.0.812.8) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:CA539A4BDCC800BCCAD6BF0DAE7690A8FBA20FA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Invincible представляет собой приключенческу�
 magnet:?xt=urn:btih:9E2A43006F421E90608CD31133CC8B9D7C89EBDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Reignbreaker - динамичный roguelike, действие которого
 ```bash
 magnet:?xt=urn:btih:41CD40C31056752F6CFE9C39CBDA47BE9B8FB79C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ The Invincible представляет собой приключенческу�
 magnet:?xt=urn:btih:DF49F47F9849BE6E69D6BA91EB477245405403ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Mortal Darkness (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:053D281BB4C10CC71147834FE8FC7A33F4942641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Grand Fantasy Heroes (2025) [En] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:417DEFF4A3E8CA9D315654BE761907F2F6A9B915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Death Stream (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:D6A32ABB3BBFEFEA7F01B8092938AE3A7CB71B6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

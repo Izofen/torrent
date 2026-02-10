@@ -22,6 +22,8 @@ Blondie - Against The Odds 1974-1982 (2022) 8CD Box Set, Deluxe Edition [FLAC|Lo
 magnet:?xt=urn:btih:F0B14EBE4695111CA60C9C10C1EAD23291104E1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Tritonal - Coalesce (2022) [FLAC|Lossless|WEB-DL|tracks] <EDM, Progressive House
 ```bash
 magnet:?xt=urn:btih:9E236AEF504E90D8C7890901010E871AA10025A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ The Midnight - Kids (2018) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Synthwave,
 magnet:?xt=urn:btih:6DA3358CC7E9AFF40ABD94C1681BFF2E9FEF738F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Hypnotix - Star Tracks (1997) [OGG Vorbis|485 Kbps] <Synthpop, Experimental>
 magnet:?xt=urn:btih:1ECFF5CE7971DA5EFFA05A0C7442E1CC79179488
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ VA - Vocal Anthems Amsterdam (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:D5B8AE4733439EA7EC6F5FA6EB1CC6973036E69E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -162,6 +172,8 @@ Jean Michel Jarre - Complete Oxygene (1997) [FLAC|Lossless]<Ambient,  New Age,  
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +200,8 @@ M83 - DSVII (2019) [FLAC|Lossless|tracks + .cue] <Ambient, Electro>
 ```bash
 magnet:?xt=urn:btih:0DD97DA58F8946BA88482A482CF356BD0FA582A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +230,8 @@ VA - Chillout Eargasm, Vol. 2 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge
 magnet:?xt=urn:btih:171A14E0E084BE20A2BD21794BAC99A24E00DEA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +258,8 @@ VA - Chillout Eargasm Vol.1 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:5C5DA3AB7CA51F89C8C0706EBD7CAE84B30E2230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +288,8 @@ VA - Summer Feelings Vol. 2: Tracks Of A Endless Summer (2016) [MP3|320 Kbps] <H
 magnet:?xt=urn:btih:53D3C8DB31CB0F471C48B546AC344F12EB2B0A39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +316,8 @@ VA - Space Ibiza On Tour (2016) [MP3|320 Kbps] <Funky, Club House>
 ```bash
 magnet:?xt=urn:btih:933C246215E2868602E11D09CC7D4B04D6B1B326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +346,8 @@ VA - The Best Electronic Album In The World... Ever! (2019) 3CD Box Set [FLAC|Lo
 magnet:?xt=urn:btih:46DCEBE668E1918ECD672DF274ABFC195704E136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +371,8 @@ Peace Orchestra (Peter Kruder) - Discography 4 Releases (1999-2008) !K7 Records,
 ```bash
 magnet:?xt=urn:btih:F3A622D821BB73CD8E6241714E8AA45A6A73430E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +401,8 @@ VA - Markus Schulz Global DJ Broadcast: Top 20 October (2017) [MP3|320 Kbps] <Tr
 magnet:?xt=urn:btih:6A6B94C66A8216FA7830E389069BD1FD2189C1F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +429,8 @@ VA - Rainy Lofi Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:EE7A2D7945D444610BD69A04FDEFD869D8F65F46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +459,8 @@ VA - Fitness & Workout Mix 2020 [MP3|320 Kbps] <House, Dance, Big Room>
 magnet:?xt=urn:btih:A1DB5A1535B71B563BA3ABBCF8C1419C53E95EE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +487,8 @@ VA - Strongman Training 2017 [MP3|320 Kbps] <Electro House>
 ```bash
 magnet:?xt=urn:btih:CD04A321504CDA106ED1B0690593D31628D3E168
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +517,8 @@ VA - Crossover Lounge 2017 (Blended Uptempo, Downtempo Collection) [MP3|320 Kbps
 magnet:?xt=urn:btih:C8BCD4A19EC3F0D46EAD73C219D046F046B7DDC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +545,8 @@ VA - Suanda Classics, Vol. 2 (2017) [MP3|320 Kbps] <Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:D9514A9E79564F7C836632C5F5BBD6727D72DEE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +575,8 @@ VA - All Twerk Music, Vol. 3 (2018) [MP3|320 Kbps] <Dirty Dubstep, Trap, Grime>
 magnet:?xt=urn:btih:EFBBBA536A167AFA9E57AC74E381B3E1FFD274A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +603,8 @@ Koan - Don Quixote's Passion (Side A.B) (2022) [FLAC|Lossless|WEB-DL|tracks] <El
 ```bash
 magnet:?xt=urn:btih:7CC2B81305D5BF9B02EC4D63180A2B57560F60AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +633,8 @@ Christian Kleine | Herrmann & Kleine - Discography 17 Releases (1999-2020) City 
 magnet:?xt=urn:btih:17FA0E847B59EA08782B91699C405C22170FA665
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +661,8 @@ N-So - Out of the Valley (2020) Moderna Records [FLAC|Lossless|WEB-DL|tracks] <M
 ```bash
 magnet:?xt=urn:btih:91523AA235C182636912836D983BAD5DD386E975
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -645,6 +691,8 @@ Josh Alexander - Bright Morning Jetlag Blues (2020) Moderna Records [FLAC|Lossle
 magnet:?xt=urn:btih:C386F6930008786E580C974A5D0D87AD49753C70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +720,8 @@ Emika - Falling In Love With Sadness (2018) [MP3|320 Kbps] <Dubstep, Trip-Hop, E
 magnet:?xt=urn:btih:F89C7F2A85ED103C6E8215B4C8A10C695D3733FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -698,6 +748,8 @@ George Fitzgerald - Stellar Drifting (2022) [FLAC|Lossless|WEB-DL|tracks] <Downt
 ```bash
 magnet:?xt=urn:btih:DD59E837C9B8969A8935CA2F224DEEF52122C590
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

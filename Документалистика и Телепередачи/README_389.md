@@ -1,3 +1,29 @@
+###  Публикация: 1053521   (525915) от 17.09.2016
+
+Битва экстрасенсов (2016.09.17) DVB (сезон 17, выпуск 3)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_525915.jpg" />
+</div>
+
+
+###  Подробнее
+
+С 3 сентября на ТНТ стартует долгожданный 17-й сезон «Битвы экстрасенсов» — самого мистического, непредсказуемого и загадочного проекта российского ТВ. Масштабный кастинг, новые яркие участники и высокие технологии в мире экстрасенсорики. Новый сезон обещает стать самым необычным и удивительным в истории шоу. «Мне бы очень хотелось, чтобы в новом сезоне экстрасенсы (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:338AFA056BA81848B6017A21EC57B7B2562F6924
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053587   (525919) от 17.09.2016
 
 Танцы (2016.09.17) DVB (сезон 3, выпуск 5)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B18137E0A47D8BD965E03E20BC96C69580983C88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:B18137E0A47D8BD965E03E20BC96C69580983C88
 magnet:?xt=urn:btih:A08F9720596491225F6C7AE4E0DF4A164E798591
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:A08F9720596491225F6C7AE4E0DF4A164E798591
 ```bash
 magnet:?xt=urn:btih:55FFEF021EAC74AA41CC17E163A1F449BCE5328F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:55FFEF021EAC74AA41CC17E163A1F449BCE5328F
 magnet:?xt=urn:btih:635890BD241AA35321440F6C04159DB690EF4F73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:635890BD241AA35321440F6C04159DB690EF4F73
 ```bash
 magnet:?xt=urn:btih:EF1820148BBFA1C6C6E0C5D57DB8B0FB5586C67C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:EF1820148BBFA1C6C6E0C5D57DB8B0FB5586C67C
 magnet:?xt=urn:btih:7DD57B382D1A64E59CEF16C23E06A855DD1566C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:7DD57B382D1A64E59CEF16C23E06A855DD1566C5
 magnet:?xt=urn:btih:446E8D2AF32E73F8DA8530EF3906F13F05D172CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +226,8 @@ magnet:?xt=urn:btih:446E8D2AF32E73F8DA8530EF3906F13F05D172CF
 ```bash
 magnet:?xt=urn:btih:9A4A581C25530E0D09601C17D8FA6F1D7D3D0F50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:9A4A581C25530E0D09601C17D8FA6F1D7D3D0F50
 magnet:?xt=urn:btih:4D76A9C4AB8672D98417C6E4E26D126A80374AC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:4D76A9C4AB8672D98417C6E4E26D126A80374AC9
 ```bash
 magnet:?xt=urn:btih:34B5CA67B59455579C71DDB8EB308464CEB805F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:34B5CA67B59455579C71DDB8EB308464CEB805F3
 magnet:?xt=urn:btih:EF0A676BF31BC03EE3BD857BD2565413DC7872E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:EF0A676BF31BC03EE3BD857BD2565413DC7872E4
 ```bash
 magnet:?xt=urn:btih:BA59362DB7E55C602BCDE6CC598E41F10E927CD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:BA59362DB7E55C602BCDE6CC598E41F10E927CD0
 magnet:?xt=urn:btih:1552C26E75327C1D5F71F14C700029F71967EAAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:1552C26E75327C1D5F71F14C700029F71967EAAE
 ```bash
 magnet:?xt=urn:btih:2D6A80C4A2450B05AA73D922C6FA9556681A59FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:2D6A80C4A2450B05AA73D922C6FA9556681A59FD
 magnet:?xt=urn:btih:6970EDC2F3B9F4D426D6EFD8903648FCC9C33528
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:6970EDC2F3B9F4D426D6EFD8903648FCC9C33528
 ```bash
 magnet:?xt=urn:btih:BB20A2B5EA2A9A09C3BA982B219B7FCB99BD45D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:BB20A2B5EA2A9A09C3BA982B219B7FCB99BD45D3
 magnet:?xt=urn:btih:9073CC272679A08BBEEB013F056043AC6502A281
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:9073CC272679A08BBEEB013F056043AC6502A281
 magnet:?xt=urn:btih:BBC4FD50F0799E2155F64D4208177D87DB49FA5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ magnet:?xt=urn:btih:BBC4FD50F0799E2155F64D4208177D87DB49FA5C
 ```bash
 magnet:?xt=urn:btih:26D8969A6F30BFFE3F49A5C799672A8E43D90075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:26D8969A6F30BFFE3F49A5C799672A8E43D90075
 magnet:?xt=urn:btih:EA650F723C9B95AB93869EBC2F331A35C5109D58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:EA650F723C9B95AB93869EBC2F331A35C5109D58
 magnet:?xt=urn:btih:B833E97A7C25708728CED02FED3B2311C4F7F3A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:B833E97A7C25708728CED02FED3B2311C4F7F3A9
 ```bash
 magnet:?xt=urn:btih:8B4E07BF6FC5D0A5C6BD3D955F0F0B70E77257EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:8B4E07BF6FC5D0A5C6BD3D955F0F0B70E77257EB
 magnet:?xt=urn:btih:6DE74906E2BF692BFE3B6ABDFFC629EB595C7E08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:6DE74906E2BF692BFE3B6ABDFFC629EB595C7E08
 ```bash
 magnet:?xt=urn:btih:51F3D6EF19F4BE8C06EC8C940723FB91FB556DCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:51F3D6EF19F4BE8C06EC8C940723FB91FB556DCE
 magnet:?xt=urn:btih:CBDCE36E552CE28889EBC41C7E2BEA20EB81AAE8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052856   (527371) от 15.09.2016
-
-Право голоса. Обама: утиная охота (15.09.2016) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_527371.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Право голоса» - это место для дискуссий и арена для политических баталий. Здесь поднимаются самые острые общественно-политические проблемы страны. В этой студии нет безразличных ораторов и безучастных зрителей. У нас каждый имеет право высказаться и быть услышанным. Мы задаем политикам и чиновникам неудобные вопросы, потому что хотим получить честные ответы. Здесь (   Читать дальше...   )В этом выпуске: До президентских выборов в США осталось меньше 2 месяцев. В этот период американские СМИ называют президента "хромой уткой", подводят итоги и критикуют "беззубую" внешнюю политику Обамы. Что будет после его ухода?Телекомпания: ТВ-ЦентрЖанр: Ток-шоу, дискуссия, политикаПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FC3616FAB5F5370E454954B48FD5C8489094B4F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@ Window Focus 1.0.8 [En]
 magnet:?xt=urn:btih:A75ED8838D6D7C3C4B110081BF3CD1B623C58594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Picture Collage Maker — простой в использовании гене�
 ```bash
 magnet:?xt=urn:btih:3CA23734600CDB6DA6AEAA1D490DC8BA671BA901
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Disk Doctor Pro 1.0.22 [En]
 magnet:?xt=urn:btih:3202FA6FFA419CDAB162145173166F97B7B155D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Download Shuttle Pro for Mac 1.9 [En]
 ```bash
 magnet:?xt=urn:btih:2A971EB3D68602CE8842BD714FD1DB62B6E62C33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ SnapNDrag поддерживает PNG, JPEG и TIFF форматы, если н
 magnet:?xt=urn:btih:C1A389F6562E642A1D9D072256BB946B92D34A6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Murasaki - это приложение для чтения книг в форм�
 ```bash
 magnet:?xt=urn:btih:97858D40E32434AE2F7E6E2569714F37EBB4701F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ InPixio Photo Suite - набор программ от известного ра
 magnet:?xt=urn:btih:D6AF4ABE8FA5206C349F022AE60A7860D8593830
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Hasher - это простая в использовании утилита дл
 ```bash
 magnet:?xt=urn:btih:3A3420A1CD44005D9411B27D6F05586EA00C9E5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ iMac Cleaner позволяет вам безопасно сканировать
 magnet:?xt=urn:btih:AB638190C221FE9EC99E36C25E06EB5DF7DF0A01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ SyncBird Pro 2.9.1 - это файловый менеджер iPhone, котор
 ```bash
 magnet:?xt=urn:btih:C83435418869FD07A4AEDA939392A81468A177AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Twitterrific - Простой в использовании, Истинная п
 magnet:?xt=urn:btih:82DF7996DD0775A6B5E26C508B513F919C9CB78C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Optical Flares - инструмент создания и анимировани
 magnet:?xt=urn:btih:615300A784F642E722FFDBADF49780EFBBE22968
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ OmniPlayer Pro для Mac - это универсальный медиаплее
 ```bash
 magnet:?xt=urn:btih:535AEF7D3BF7DDC9CF67F48FEC7D1D7E4530A6EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Native Instruments Reaktor 6 v.6.5.0 Rev2 [En]
 magnet:?xt=urn:btih:627B6CD3FF4B96E66120DF37F1B09C0D1DA26EC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ Pastebot - менеджер истории буфера обмена.
 magnet:?xt=urn:btih:A54650A76F1B0DA82234A7589BE4408A27FCD233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ FM8 — превосходный FM-синтезатор, способный н�
 ```bash
 magnet:?xt=urn:btih:373B1FC164989D31175D8185AB5823014158A7CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Balsamiq Mockups будет полезна для project managers, designers, d
 magnet:?xt=urn:btih:6F68A6C9D44CF8CB1128640A0E0F438FC796E14B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ WinX HD Video Converter – многофункциональный програ�
 ```bash
 magnet:?xt=urn:btih:ED020F0C93CF456CFA6D376E6C011284D4BC9F31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Screenium 3 v.3.3.4 [Multi/Ru]
 magnet:?xt=urn:btih:CEF2E8B6557B7BD3A0DBC1E29A5C9D04AC3B2E02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Lasso — оконный менеджер для macOS. Перемещайте �
 ```bash
 magnet:?xt=urn:btih:B1F5E7EBF483BBA9D19EF48E638842130238B7BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ Retrobatch Pro 1.5 [En]
 magnet:?xt=urn:btih:0822198AA0F54254B11302ECA2FD37DE10C8DE60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Unarchiver — небольшая и простая в использовани�
 ```bash
 magnet:?xt=urn:btih:3FDBE51AB5743635B5888BB553677E0EB3D6AB61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ ConceptDraw Office – пакет приложений для бизнес-пр�
 magnet:?xt=urn:btih:F0A70D832B579BFAEB577F3E61AC9CC0CBC1E139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ GM EPUB Reader — это полнофункциональное приложе�
 ```bash
 magnet:?xt=urn:btih:C1D1CB8EF88249C635B1523359323FA47505203C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ ConceptDraw MINDMAP 15 v.15.0.0.296 [En]
 magnet:?xt=urn:btih:2E7CF94E10523572CF8CFEE1AA0E0BAC08C0FF0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Colibri поддерживает воспроизведение всех поп�
 ```bash
 magnet:?xt=urn:btih:281CD1E5A2522A882A168D8E148C6641579D4222
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

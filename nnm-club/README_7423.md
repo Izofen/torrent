@@ -22,6 +22,8 @@ APE - Human Greed (1992) [APE|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:4819883B61008AE3758382496600DB5730AEDF47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:4819883B61008AE3758382496600DB5730AEDF47
 ```bash
 magnet:?xt=urn:btih:B066B9861D2486C030A958A330B1D04B518FEA51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Music for Mindfulness, vol. 2 (2018) [AAC|~302 Kbps] <Downtempo, Chill Out>
 magnet:?xt=urn:btih:C7A5FD3A7BAABE7FBF81331F278B0E81C5A51B99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Dark Tranquillity - Moment (2020) [MP3|320 Kbps] <Melodic Death Metal>
 ```bash
 magnet:?xt=urn:btih:80F1EB5132115C9E8764F954B6BA89F0905FB38E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ SE - TEPHRA (2019) [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Downtempo>
 magnet:?xt=urn:btih:F803A27E19EA91535B5FAAC522B1CC4B38E77A0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ SiteSucker умеет загружать (   Читать дальше...   )Т
 ```bash
 magnet:?xt=urn:btih:859B4B069E3897B83C6803484E8EF7A481BFC44C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ SiSoftware Sandra Lite - бесплатная версия многофункц�
 magnet:?xt=urn:btih:756E37A18D785AA93D57ADE85DA6BF34BD0A4982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:756E37A18D785AA93D57ADE85DA6BF34BD0A4982
 ```bash
 magnet:?xt=urn:btih:3F0E5989357C33B6CB94B14425216830D41F8904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ High On Fire - The Art of Self Defense (2000) Reissue, 2023, MNRK Music [FLAC|Lo
 magnet:?xt=urn:btih:6D14ADBC7BCEADB2094C0D9E78E9F97886E282B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:6D14ADBC7BCEADB2094C0D9E78E9F97886E282B4
 ```bash
 magnet:?xt=urn:btih:B8B6B3491DF40DE8315B81CFE23F9C44838AF100
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:B8B6B3491DF40DE8315B81CFE23F9C44838AF100
 magnet:?xt=urn:btih:FDA964A7EE27B92F546D5605A9D44600D0CFF2D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Revo Uninstaller Pro 5.0.7 RePack (& Portable) by Dodakaedr [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:AEBDB2657A5BDA07467D98B1A5527F5EFC165F8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:AEBDB2657A5BDA07467D98B1A5527F5EFC165F8B
 ```bash
 magnet:?xt=urn:btih:284AE25B66EF7E4AD695D0DAC1AAC72AD8944CA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ VA - Melodic Lines Electro House (2019) [MP3|320 Kbps] <Electro House, Dance, Cl
 magnet:?xt=urn:btih:B4A56FE2914BE5D2CF82D2B59F2D03FB97BCC994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ Find Any File не содержит никаких подменю с настр�
 ```bash
 magnet:?xt=urn:btih:7E4EFE043F9673666B3C9BA551C7DF64B2A3E55A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ Lyle Workman - Built To Last (2023) [FLAC|Lossless|WEB-DL|tracks] <Prog Rock>
 magnet:?xt=urn:btih:57FE9852F28EAE007C1F8801FAA3967AF2DE60F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ magnet:?xt=urn:btih:57FE9852F28EAE007C1F8801FAA3967AF2DE60F8
 ```bash
 magnet:?xt=urn:btih:B8C9C04C54B2146DFCED30379170CED2809B40DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +491,8 @@ VA - Eatbrain Pres. Mirror Universe 2 (2015) [MP3|320 кб/с] <Drum & Bass>
 magnet:?xt=urn:btih:2B1BD35F8587975821F7E32F51B365833E1369A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:2B1BD35F8587975821F7E32F51B365833E1369A9
 ```bash
 magnet:?xt=urn:btih:3C42514DDB13836AB4B906F5A6EDCAB64564B675
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ Arctic Monkeys - The Car (2022) [MP3|320 Kbps] <Indie Rock>
 magnet:?xt=urn:btih:3C7FA1C4F3A2200931397009EE5D8EA4E131F432
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +575,8 @@ VA - This Is Soulful House 2 (2019) [AAC|~331 Kbps] <Soulful House, Deep House, 
 magnet:?xt=urn:btih:7B93F5DDD21DE4C5B23A35A3183A6F2018619854
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ magnet:?xt=urn:btih:7B93F5DDD21DE4C5B23A35A3183A6F2018619854
 ```bash
 magnet:?xt=urn:btih:4FD51A1925F28C864A141BB663E2FEA5C334127E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +628,8 @@ Marked 2 — универсальный превью-инструмент для
 magnet:?xt=urn:btih:0281CB9B53F909097920575020948737CFFEEF57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +653,8 @@ Windows Server 2012 R2 - это проверенная масштабируем�
 ```bash
 magnet:?xt=urn:btih:B5C95E758DBF6835BECAE500CA967C82D2A04B90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:B5C95E758DBF6835BECAE500CA967C82D2A04B90
 magnet:?xt=urn:btih:A034F2CE621E40441BF9502B0F7023A1334AC8BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ Windows 8.1 with Update - Оригинальный образ от Microsoft MSD
 ```bash
 magnet:?xt=urn:btih:0F7936893A9285FBFADBF7EC4E23FDE7615B160E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

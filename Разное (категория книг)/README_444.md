@@ -1,3 +1,31 @@
+###  Публикация: 1031566   (651240) от 04.07.2016
+
+Книжная серия | Вкусно. Быстро. Доступно [37 книг] (2006-2014) [PDF, DJVU] [Обновляемая]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_651240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приготовить завтрак, обед, ужин вкусно и быстро? Легко! Серия «Вкусно. Быстро. Доступно» поможет вам приготовить вкусные и разнообразные блюда без особых усилий! Следуя подробным инструкциям с пошаговыми фотографиями, вы сможете воспроизвести даже самое сложное блюдо быстро и легко!
+
+Закуска и выпечка, блюда из мяса и рыбы, десерты и напитки, традиционные или оригинальные (   Читать дальше...   )Жанр: КулинарияФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1529ED11B5E6BDF37C9A992F9F6E4A7761D55668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905240   (651353) от 05.06.2015
 
 А. И. Копытин, Б. Корт | Техники ландшафтной арт-терапии (2013) [FB2, EPUB]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:E521B3289151D53FD75F0AD87EB3ACA5954C9010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +75,8 @@ magnet:?xt=urn:btih:E521B3289151D53FD75F0AD87EB3ACA5954C9010
 magnet:?xt=urn:btih:99A9096F8021C857B4AD0170D29ED174839FBD41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +100,8 @@ magnet:?xt=urn:btih:99A9096F8021C857B4AD0170D29ED174839FBD41
 ```bash
 magnet:?xt=urn:btih:F57943CC2777475221C222A2472714E87A783D9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +127,8 @@ magnet:?xt=urn:btih:F57943CC2777475221C222A2472714E87A783D9C
 ```bash
 magnet:?xt=urn:btih:2DE48316E1AAA582F50CA55FF6C3CB91A3FA5C60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +156,8 @@ magnet:?xt=urn:btih:2DE48316E1AAA582F50CA55FF6C3CB91A3FA5C60
 magnet:?xt=urn:btih:3823798A9453826E1EF8D9C666E04BCB68FC1642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +183,8 @@ magnet:?xt=urn:btih:3823798A9453826E1EF8D9C666E04BCB68FC1642
 ```bash
 magnet:?xt=urn:btih:3B0D292CA0DCB77437C2F22FFD32108D2A9D4503
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +212,8 @@ magnet:?xt=urn:btih:3B0D292CA0DCB77437C2F22FFD32108D2A9D4503
 magnet:?xt=urn:btih:BB38E02DBBDE1DAAD1A26471A44D0856016E918F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +238,8 @@ magnet:?xt=urn:btih:BB38E02DBBDE1DAAD1A26471A44D0856016E918F
 ```bash
 magnet:?xt=urn:btih:5D3311E4EEEEDBD7E091616E51335BE2C766558B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -224,6 +268,8 @@ magnet:?xt=urn:btih:5D3311E4EEEEDBD7E091616E51335BE2C766558B
 magnet:?xt=urn:btih:D64548D5E409B67492A4136D0357FD82255C817D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +293,8 @@ magnet:?xt=urn:btih:D64548D5E409B67492A4136D0357FD82255C817D
 ```bash
 magnet:?xt=urn:btih:E40FBDB7783FD22464EB757838B9D81E629FFB9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +322,8 @@ magnet:?xt=urn:btih:E40FBDB7783FD22464EB757838B9D81E629FFB9F
 magnet:?xt=urn:btih:28679CFEDDBF37822F7B87DB98E942B3957C8CF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +347,8 @@ magnet:?xt=urn:btih:28679CFEDDBF37822F7B87DB98E942B3957C8CF8
 ```bash
 magnet:?xt=urn:btih:954771148C6035F0C173BE97A65DB25C4ABCB448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +377,8 @@ magnet:?xt=urn:btih:954771148C6035F0C173BE97A65DB25C4ABCB448
 magnet:?xt=urn:btih:7BD40FCBBF2F178A793A115766756DF05648B853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +405,8 @@ magnet:?xt=urn:btih:7BD40FCBBF2F178A793A115766756DF05648B853
 magnet:?xt=urn:btih:112A4F19409631D30B18C76744EC3EEE8970E8E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +430,8 @@ magnet:?xt=urn:btih:112A4F19409631D30B18C76744EC3EEE8970E8E9
 ```bash
 magnet:?xt=urn:btih:5C504763E239F747C2438BEBD007C61D015C4C12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +457,8 @@ magnet:?xt=urn:btih:5C504763E239F747C2438BEBD007C61D015C4C12
 magnet:?xt=urn:btih:EBE6DB3139237146C29BD15D7E8A702E4B7C7E02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +483,8 @@ magnet:?xt=urn:btih:EBE6DB3139237146C29BD15D7E8A702E4B7C7E02
 magnet:?xt=urn:btih:5E0D271BDCA0BC48C50097639FC042915C80979A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +508,8 @@ magnet:?xt=urn:btih:5E0D271BDCA0BC48C50097639FC042915C80979A
 ```bash
 magnet:?xt=urn:btih:EAA4250B7A5644E54E87A4C110A53007EC9C9DCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +537,8 @@ magnet:?xt=urn:btih:EAA4250B7A5644E54E87A4C110A53007EC9C9DCC
 magnet:?xt=urn:btih:0ADB62A0D07DAF517EF41690FF34BB463C4A9EA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +562,8 @@ magnet:?xt=urn:btih:0ADB62A0D07DAF517EF41690FF34BB463C4A9EA7
 ```bash
 magnet:?xt=urn:btih:F8171770C68519F5894308EE664F38539E0D6040
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:F8171770C68519F5894308EE664F38539E0D6040
 magnet:?xt=urn:btih:FF3F8F56C56DD7F25D87C34B5E24EC1C634D0F24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:FF3F8F56C56DD7F25D87C34B5E24EC1C634D0F24
 ```bash
 magnet:?xt=urn:btih:FD47414EDC329B054CDC6C9FFC08345B4697509F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:FD47414EDC329B054CDC6C9FFC08345B4697509F
 magnet:?xt=urn:btih:1BE8EFDCAAE186862762991598AD1F77C478D52F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +672,8 @@ magnet:?xt=urn:btih:1BE8EFDCAAE186862762991598AD1F77C478D52F
 ```bash
 magnet:?xt=urn:btih:A08E40D41B0EC545A427812FE397EA5518C34BCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,30 +702,7 @@ magnet:?xt=urn:btih:A08E40D41B0EC545A427812FE397EA5518C34BCF
 magnet:?xt=urn:btih:86BE70A4DDA0BA9C74522E57A2824D9AC790C96D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904964   (652875) от 04.06.2015
-
-Сьюзан Вайншенк | Законы влияния. Как побудить людей делать то, что вам нужно (2014) [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_652875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пытаетесь ли вы заключить выгодную сделку или приучить членов семьи к порядку, вы неизбежно сталкиваетесь с проблемой мотивации других людей.
-Сьюзан Вайншенк предлагает не надеяться на удачу, а применять научный подход к прогнозированию поведения. Из книги вы узнаете о ключевых драйверах мотивации и о практических стратегиях для каждого из них. Вы научитесь использовать (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA147D80910AF1E0B8A588BAF4165DC80E7A829D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

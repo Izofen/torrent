@@ -19,6 +19,8 @@ Tarkan - Лучшие песни (2008) [FLAC|Lossless|image + .cue]<Pop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ George Michael - 5 Студийных альбомов (1987 - 2004) /Japan/ [FL
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -85,6 +89,8 @@ Stevie Wonder - World Ballads Collection (1999) [MP3|320 кб/с]<Pop, Soul, Jaz
 magnet:?xt=urn:btih:C1795F1C457E6C6908D6BD807F342B96C400FD3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +123,8 @@ Mylene Farmer - 8 альбомов (1986-2010) [MP3|320 кб/с]<Pop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +159,8 @@ CD1:
 magnet:?xt=urn:btih:2F813B87C3AFCB67DA4AC7665DEB96DF5DD748A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +193,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:0689E137817D4648BBCB1F122EF11CD6BFAD868F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +229,8 @@ Fancy - The Original Hit Collection (2007) [MP3|320 кб/с]<Disco, Pop>
 magnet:?xt=urn:btih:686800487AE1B343E3EDA7D1B14F9EFABFC46FE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +263,8 @@ Alphaville - 18 Legendary Hits (2003) [MP3|320 кб/с]<Pop, Disco>
 ```bash
 magnet:?xt=urn:btih:AC3E4B25582975BFEAE1004EC74D695B4E997765
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +299,8 @@ Sabrina - Golden. Disco. Hits (2003) [MP3|320 кб/с]<Disco, Pop>
 magnet:?xt=urn:btih:2A24FB0A60704D29CC1CBA0FE483A74DAB4EB837
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +333,8 @@ Ice MC - Disco Collection (2001) [MP3|320 кб/с]<Eurodance>
 ```bash
 magnet:?xt=urn:btih:C66687A10653F15C2EEEB30C4398E8C1ED4F03B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +369,8 @@ VA - Italo Euro Disco Vol.1 (2010) [FLAC|Lossless]<Italo Disco>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +404,8 @@ Mr.President - Golden Super Hits (2000) [MP3|320 кб/с]<Eurodance>
 magnet:?xt=urn:btih:BDFB63D70AB19C44049014708D23FC59F5FD1167
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +429,8 @@ Billy Ocean - Suddenly (1984) [FLAC|Lossless]<Pop>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +465,8 @@ Billy Ocean - Suddenly (1984) [FLAC|Lossless]<Pop>
 magnet:?xt=urn:btih:23BBB992B28B4117C1C853E3C8A3EA59BC3FC09E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +498,8 @@ Thomas Anders & DJ Eurodisco - The Fine Soldier - PART 1-2 (2012) [MP3|320 кб/
 ```bash
 magnet:?xt=urn:btih:59925C492978EA2F8C1A45424D3BA7FADE789F33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +534,8 @@ CD2
 magnet:?xt=urn:btih:ED241F15313D061A55C65614DE6B1D8438C63FE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +561,8 @@ Dr. Alban - Greatest Hits (2008) [MP3|320 кб/с]<Eurodance>
 ```bash
 magnet:?xt=urn:btih:DB87D3E421356009F486E96B65EC4FF8EF7A89BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +597,8 @@ Pink - Can't Take Me Home (2000) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:7D5683742A3C2BD657085CDC86879DF60441420E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +631,8 @@ VA - Московские окна: Песни на все времена (1995)
 ```bash
 magnet:?xt=urn:btih:FE60BD9AE16EAE5EFEF75B85598B06F6CF7A8E92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +667,8 @@ Adam Lambert - Glam Nation Live (2011) [MP3|320 kbps]<Pop-Rock>
 magnet:?xt=urn:btih:E420CD46C53959C325C4CE299CB3A779412E18EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +701,8 @@ Bad Boys Blue - All The Best (2012) [MP3|320 кб/с]<Pop, Dance>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -695,6 +737,8 @@ CD-1
 magnet:?xt=urn:btih:3C1DEE5B22DB310F3136F5964D51BF55773E34D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -728,6 +772,8 @@ magnet:?xt=urn:btih:3C1DEE5B22DB310F3136F5964D51BF55773E34D7
 magnet:?xt=urn:btih:8AFBAB9DC328506298B2FD28A2214B82831EDCB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -753,6 +799,8 @@ Lionel Richie - 2 альбома (2003, 2012) [FLAC|Lossless]<Pop, Soul, R&B>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -787,6 +835,8 @@ CD 1Жанр: Pop, DanceПродолжительность: 04:17:38
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -819,6 +869,8 @@ Revolver - Let Go (2012) [MP3|320 кб/с]<Indie Pop>
 ```bash
 magnet:?xt=urn:btih:A7722A880658689E686CBF9B0DB36DC054167230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

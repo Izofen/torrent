@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6C2E35D2824912E037BE0116953D1BFF03CB0F44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Captain Planet - Come On, Cat (2023) [FLAC|Lossless|WEB-DL|tracks] <Verschiedene
 ```bash
 magnet:?xt=urn:btih:5AB57C0549A315A812061F9B80C7D8A50B0F5E62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Danicide - Broken (2023) [FLAC|Lossless|WEB-DL|tracks] <Gothic, Melodic Death>
 magnet:?xt=urn:btih:1B55D031FA626111FBDF3E7E99FA78743B43CBA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Morokh - Insomnia (2023) [FLAC|Lossless|WEB-DL|tracks] <Black Metal, Hardcore>
 magnet:?xt=urn:btih:8EE73D1389C8A41B25E718B8847B33DF5FC506C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ CHM Viewer Star — это специализированное приложен
 ```bash
 magnet:?xt=urn:btih:6DA2B6B77ABA27DCA00D10F240C5A0F944E2A6F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Karpathian Relict - Never Be After (2023) [FLAC|Lossless|WEB-DL|tracks] <Technic
 magnet:?xt=urn:btih:EFF0AA3C2848D68106BDE94729848F2FDD8C3FE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:EFF0AA3C2848D68106BDE94729848F2FDD8C3FE7
 ```bash
 magnet:?xt=urn:btih:A1CE576FBA64244215B64B38D3550565EF9A08C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ Boxy SVG 4.12.2 [En]
 magnet:?xt=urn:btih:3F93B99068C59F32B7FA2003F364D23B6DBB5AAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:3F93B99068C59F32B7FA2003F364D23B6DBB5AAE
 ```bash
 magnet:?xt=urn:btih:51193602B1ECFA8BF842F397471B88A1E10B8E13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ Antipod - Eveil (2023) [FLAC|Lossless|tracks] <Power Metal>
 magnet:?xt=urn:btih:3DE8FB1CCF525209A19EE3372A65CEC0386A7EE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:3DE8FB1CCF525209A19EE3372A65CEC0386A7EE4
 magnet:?xt=urn:btih:CECA98EF3D7F525ACA3367613B066F595E08CB74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:CECA98EF3D7F525ACA3367613B066F595E08CB74
 magnet:?xt=urn:btih:0D97FFD128B0B6A14F1739625EBE9C4B042D8AC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ Iain McCaig, Nick Sagan | Артбук художника Iain McCaig / Shadowli
 ```bash
 magnet:?xt=urn:btih:455F0E99721C40C1760388702530C32FDA43DA32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ Spirit Adrift - Divided By Darkness (2019) 2020 [FLAC|Lossless|image + .cue] <Do
 magnet:?xt=urn:btih:FD714D7332054CECBF369043F05AFCBBF647B7DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ Bootstrap Studio - мощная программа для создания кр�
 ```bash
 magnet:?xt=urn:btih:45BC8E50149CBF829CFDBDE8C5E1A1E10EEAFD51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ Fixation - More Subtle Than Death (2023) [FLAC 24/48|WEB-DL|tracks] <Metalcore, 
 magnet:?xt=urn:btih:251BC59DAA43756111174EDF28FE8AC785338322
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:482CF43A26114228E749B97121612C59CCC2BDF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +483,8 @@ magnet:?xt=urn:btih:482CF43A26114228E749B97121612C59CCC2BDF4
 magnet:?xt=urn:btih:7B77589B754F4554E3D8E8DDE2FC54866ED3B110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ iStat Menus 6 — лучшее приложение для контроля ра
 ```bash
 magnet:?xt=urn:btih:2A777131568470E6A86C41D78E898161BCFFC901
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ Daiistar - Good Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternativ und Indie>
 magnet:?xt=urn:btih:49E07DFD61CCCB8D85E640463A26E54B88DD7354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ Microsoft PowerToys – это набор утилит, позволяющих �
 magnet:?xt=urn:btih:340CDFD3BF96B1C7C27A2BBD7ADC5D5A8F7B92DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ App Tamer 2.8.1 [En]
 ```bash
 magnet:?xt=urn:btih:533E0D97D58AC1A765D89D2F0A50FA9EE118928B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:533E0D97D58AC1A765D89D2F0A50FA9EE118928B
 magnet:?xt=urn:btih:3F037DD39EE5852033B1E5ACCE31756120090376
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ Dropzone - удобная утилита для автоматизация ру�
 ```bash
 magnet:?xt=urn:btih:19AACF27A9A91B3525CBC71B2F3CAF1929C6AC5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:19AACF27A9A91B3525CBC71B2F3CAF1929C6AC5B
 magnet:?xt=urn:btih:FD3161D47D1DF1485BCE6473001FFB7C6CC2E09E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ Majesty of Revival - Timeless (2019) [FLAC|Lossless|image + .cue] <Progressive, 
 ```bash
 magnet:?xt=urn:btih:D9C8ECAE6676F7D0F06044E1C0734517DBBC748C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

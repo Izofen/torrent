@@ -1,3 +1,29 @@
+###  Публикация: 607601   (994492) от 23.01.2013
+
+Дарья Нестерова | Запекаем в глиняных горшочках, в духовке и микроволновке [2011] [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Вы любите готовить и стараетесь побаловать себя и близких вкусными и полезными блюдами? В этой книге вы найдете множество рецептов приготовления кушаний в горшочках, духовке и микроволновке. Запеченное мясо, птица, вкусные каши и запеканки, блюда из рыбы и морепродуктов займут достойное место в вашей личной коллекции рецептов.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3CB6B7AFF03B13FC73823B284FECD0EAB22A1F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 607618   (994493) от 23.01.2013
 
 В.И. Фатьянов | Дыня, тыква, кабачки, патиссоны [2005] [PDF]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:9A61FCC781D0F434683780BA6C928E10CC5DE33D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:9A61FCC781D0F434683780BA6C928E10CC5DE33D
 ```bash
 magnet:?xt=urn:btih:98DF1D91B2A782712C522C5E6C484CEED5406D28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:98DF1D91B2A782712C522C5E6C484CEED5406D28
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:98DF1D91B2A782712C522C5E6C484CEED5406D28
 ```bash
 magnet:?xt=urn:btih:649D83C630E9CA7062B296ABCB3C011213BC65E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:649D83C630E9CA7062B296ABCB3C011213BC65E3
 magnet:?xt=urn:btih:DFC255231779543C89DE8CEFED41F0D8CBF431C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:DFC255231779543C89DE8CEFED41F0D8CBF431C4
 ```bash
 magnet:?xt=urn:btih:7D77F52FAEF9345297D8772B1C88CEFAFECA69D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +210,8 @@ magnet:?xt=urn:btih:7D77F52FAEF9345297D8772B1C88CEFAFECA69D3
 magnet:?xt=urn:btih:B02122D32DA0472983FA3743FBCC6DD8522A04D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:B02122D32DA0472983FA3743FBCC6DD8522A04D7
 ```bash
 magnet:?xt=urn:btih:DE55578A7AFAA2DE39AF4C5EB617F9F39750F22A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +263,8 @@ magnet:?xt=urn:btih:DE55578A7AFAA2DE39AF4C5EB617F9F39750F22A
 ```bash
 magnet:?xt=urn:btih:22B2CD0682AAD92921C1D1C2A1861E5E88E7A817
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +298,8 @@ magnet:?xt=urn:btih:22B2CD0682AAD92921C1D1C2A1861E5E88E7A817
 magnet:?xt=urn:btih:BD7D01FEE8F5433CFE2BC17D704CCE86E0B18E64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +323,8 @@ magnet:?xt=urn:btih:BD7D01FEE8F5433CFE2BC17D704CCE86E0B18E64
 ```bash
 magnet:?xt=urn:btih:5E0885D3F5085C4EE3DF409E0EDBE110E3EE9569
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +350,8 @@ magnet:?xt=urn:btih:5E0885D3F5085C4EE3DF409E0EDBE110E3EE9569
 magnet:?xt=urn:btih:D70EBC32C45288A4750B9D2827DBACCD3986224D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +376,8 @@ magnet:?xt=urn:btih:D70EBC32C45288A4750B9D2827DBACCD3986224D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +409,8 @@ magnet:?xt=urn:btih:D70EBC32C45288A4750B9D2827DBACCD3986224D
 magnet:?xt=urn:btih:9305A280FF2A0CCB348C000A6D0EBDE672BF7685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +436,8 @@ magnet:?xt=urn:btih:9305A280FF2A0CCB348C000A6D0EBDE672BF7685
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +461,8 @@ magnet:?xt=urn:btih:9305A280FF2A0CCB348C000A6D0EBDE672BF7685
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +489,8 @@ Adams Morioka, Terry Stone | Color Design Workbook / Использование 
 magnet:?xt=urn:btih:AA42777B8A39E97C504C4716D4D124D0271AF88B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +515,8 @@ magnet:?xt=urn:btih:AA42777B8A39E97C504C4716D4D124D0271AF88B
 magnet:?xt=urn:btih:0AFFAF24779F326F8BF115C9FD5FE7DD4A372FE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +540,8 @@ magnet:?xt=urn:btih:0AFFAF24779F326F8BF115C9FD5FE7DD4A372FE6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +568,8 @@ magnet:?xt=urn:btih:0AFFAF24779F326F8BF115C9FD5FE7DD4A372FE6
 magnet:?xt=urn:btih:6D02C037F9B6DCD553431AA46A7023C2699D551E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +593,8 @@ magnet:?xt=urn:btih:6D02C037F9B6DCD553431AA46A7023C2699D551E
 ```bash
 magnet:?xt=urn:btih:289A68AA7C23FE9053CDD98E3910D9C5D5088F53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +620,8 @@ magnet:?xt=urn:btih:289A68AA7C23FE9053CDD98E3910D9C5D5088F53
 magnet:?xt=urn:btih:E9C60B5AF3A1A429BC36869521E8F9CC1422ACC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +646,8 @@ magnet:?xt=urn:btih:E9C60B5AF3A1A429BC36869521E8F9CC1422ACC2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +676,8 @@ magnet:?xt=urn:btih:E9C60B5AF3A1A429BC36869521E8F9CC1422ACC2
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,29 +704,7 @@ magnet:?xt=urn:btih:E9C60B5AF3A1A429BC36869521E8F9CC1422ACC2
 нет
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607212   (994819) от 22.01.2013
-
-Ю. Кремлев | Фридерик Шопен. Очерк жизни и творчества [1971] [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-На вступительных страницах своего труда известный советский шопенист Юлий Кремлев пишет: "Цель книги - побудить желающих к дальнейшему самостоятельному, активному изучению музыки Шопена в ее живом звучании". Глубокая любовь к творчеству композитора, пронизывающая монографию, вдумчиво-чуткий анализ его произведений, воодушевленное изложение действительно способны дать импульс читателю последовать желанию автора. Серия "Классики мировой музыкальной культуры"Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9256B03AB0EAF1EA194B4256F7208E3C6072ADE2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

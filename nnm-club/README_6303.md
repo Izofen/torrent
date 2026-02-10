@@ -22,6 +22,8 @@ Lost Souls - Closeyoureyesanditwonthurt (1996) [FLAC|Lossless|image + .cue] <Thr
 magnet:?xt=urn:btih:C225D66F28FD4A9CB1747EA9739C3411D7DEF53D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Blood Of Christ - Iesvs·nazarenvs·rex·ivdaeorvm (2012) Compilation, Dismal Re
 magnet:?xt=urn:btih:90D5B3BB71B0EC3A8E999504E7E21F5D87EC2E2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:90D5B3BB71B0EC3A8E999504E7E21F5D87EC2E2C
 ```bash
 magnet:?xt=urn:btih:158ABFA67152ED1A723A2DB326B4D78855F4BF7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:158ABFA67152ED1A723A2DB326B4D78855F4BF7A
 magnet:?xt=urn:btih:A693EA16B7BD5A23BAA01C504483F0E8EB144AE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:A693EA16B7BD5A23BAA01C504483F0E8EB144AE6
 ```bash
 magnet:?xt=urn:btih:304EF2F8BE271CAA1379F3311A18EB7B88DD32DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:304EF2F8BE271CAA1379F3311A18EB7B88DD32DA
 magnet:?xt=urn:btih:E65F2647EEFA4E6302D8D3A530FD13606181CB83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ CamScanner - Мощное приложение для сканирования. 
 magnet:?xt=urn:btih:1E2A2D93CFF8B88AA27A1A4FC4A4BE49F89D27F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Linux Magazine - журнал, целиком посвященный опера�
 ```bash
 magnet:?xt=urn:btih:ED10CFBA11579890D40B486770A6F4DCCAB2424A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ Benediction - The Grotesque - Ashen Epitaph (1994) [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:59039CBFE0904B6DE2C529BEE452B8089F9325EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Dr. Acula - Dr. Acula (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Metalcore
 magnet:?xt=urn:btih:12891E0077C0B6F965C223537A32E0538B9C2DA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:12891E0077C0B6F965C223537A32E0538B9C2DA9
 ```bash
 magnet:?xt=urn:btih:97DB582181D75AE31C840B739AFC93D863CA0831
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ Vulture - The Guillotine (2017) Japanese Edition [FLAC|Lossless|image + .cue] <S
 magnet:?xt=urn:btih:202597707643A2223CDB64D111F37E176288EF1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ Various Artists - COMIN' HOME (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:19FECA95E1F559B5FEAF8CDBC393E025A2736212
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ Blood Of Christ - ...A Dream To Remember (1997) [FLAC|Lossless|image + .cue] <De
 magnet:?xt=urn:btih:A8F7C68ACAA584BACD85686EEE1FCE93990AF19A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:A8F7C68ACAA584BACD85686EEE1FCE93990AF19A
 ```bash
 magnet:?xt=urn:btih:D07D0F40C550504CD31FB105A2D549503C09B732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ Decomposed - Hope Finally Died... (1993) [FLAC|Lossless|image + .cue] <Death Met
 magnet:?xt=urn:btih:D3EDE7ECA06C15DF6962573F0F27254B76B9795B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ Supermax - Types Of Skin (1980) Remastered, 2005, CD-Maximum [FLAC|Lossless|trac
 magnet:?xt=urn:btih:68D183ED1F81CDC6ADD651BABA86296046C89A29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:68D183ED1F81CDC6ADD651BABA86296046C89A29
 ```bash
 magnet:?xt=urn:btih:9C0FC58955670598812B2EF556A259401257F4CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:9C0FC58955670598812B2EF556A259401257F4CC
 magnet:?xt=urn:btih:A0484ACA958E5CB1A4C65972C47EC35095E38938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:A0484ACA958E5CB1A4C65972C47EC35095E38938
 ```bash
 magnet:?xt=urn:btih:FE0EFE49A7B769EA374732A4926423C6FC55BD49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:FE0EFE49A7B769EA374732A4926423C6FC55BD49
 magnet:?xt=urn:btih:5540F536DE503B1F34924467D6DD1FF490374D37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:5540F536DE503B1F34924467D6DD1FF490374D37
 magnet:?xt=urn:btih:88F601D30352DAF4C96859E1D231CFC8338E00A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ Gotham Knights (2022) [Multi] (9794860/dlc) Repack DjDI [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:74AD6FC8836B87EC93846A0714A4ACC185CB29DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:74AD6FC8836B87EC93846A0714A4ACC185CB29DD
 magnet:?xt=urn:btih:CA3CF523CDDF84BFF4981154AFF90BC53155451E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ magnet:?xt=urn:btih:CA3CF523CDDF84BFF4981154AFF90BC53155451E
 magnet:?xt=urn:btih:71166E41911F451FD4964EAD3A14CB8003462839
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ Dynamic Island - dynamicSpot - приложение, что предоставл
 ```bash
 magnet:?xt=urn:btih:86AF5A19619C74286F327D1F499761FC80B12483
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

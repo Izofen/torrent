@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C92E3403088E3E4EE57F2B2612F3B2692703B97E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Last Flame (2024) [Ru/Multi] (1.0.3) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:7ED13E7E211BA9902B24B2114F9BE296C913819E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:7ED13E7E211BA9902B24B2114F9BE296C913819E
 magnet:?xt=urn:btih:56FA75E2D2C697289F0A30034AD902A907819E89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Tale of Immortal, песочница с открытым миром, глубо�
 magnet:?xt=urn:btih:30A9EA5F6BD3501727954666B324AD442DD3AB8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:30A9EA5F6BD3501727954666B324AD442DD3AB8B
 ```bash
 magnet:?xt=urn:btih:C85DCDA879247C8D1CF49EB6C5E9205C0ACEFFAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:C85DCDA879247C8D1CF49EB6C5E9205C0ACEFFAD
 magnet:?xt=urn:btih:3022687D40910A174D42919F6FE565E6134937E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:3022687D40910A174D42919F6FE565E6134937E5
 magnet:?xt=urn:btih:D8546C3FA68A961B421E376A43BA147A4C8B5542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ Session: Skate Sim (2022) [Ru/Multi] (1.0.6.31/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:467497FF0FEA01F7931A8B97B884DD1D4A091E99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:467497FF0FEA01F7931A8B97B884DD1D4A091E99
 magnet:?xt=urn:btih:B218A0167401FDB19B5C7CDC400D9726256B99F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ RimWorld (2018) [Ru/Multi] (1.6.4543/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:5A76683C8637EBFC59B279F7F4301AC49A2E8E31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:5A76683C8637EBFC59B279F7F4301AC49A2E8E31
 magnet:?xt=urn:btih:AB515CEB3CD6F543DE11932E05304459835FDBEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:AB515CEB3CD6F543DE11932E05304459835FDBEB
 ```bash
 magnet:?xt=urn:btih:B4DF82A28700A28FC5879346759BADC0CF0183FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:B4DF82A28700A28FC5879346759BADC0CF0183FA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:B4DF82A28700A28FC5879346759BADC0CF0183FA
 ```bash
 magnet:?xt=urn:btih:F162B2B2D9EA08611F6C3FAEE6C4E2D0F9908CA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:F162B2B2D9EA08611F6C3FAEE6C4E2D0F9908CA6
 magnet:?xt=urn:btih:7904BA103FCACBA18EFD048702B85C500BCDED52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:7904BA103FCACBA18EFD048702B85C500BCDED52
 ```bash
 magnet:?xt=urn:btih:583BE590969A4E2739BFD0F231A8A1D4B51E2C41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:583BE590969A4E2739BFD0F231A8A1D4B51E2C41
 magnet:?xt=urn:btih:6E290843F499C09C488419B36CE1BF0D5475F2F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:6E290843F499C09C488419B36CE1BF0D5475F2F7
 ```bash
 magnet:?xt=urn:btih:271D5C2EC0852CA0E2A0BB0AC8E432C9E4300611
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ The Blackwell Legacy – приключенческий квест о молод
 magnet:?xt=urn:btih:DE2B1B1FCBBBA0DEB4BACECF619B3115745A07F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Firehawk - это тактический симулятор FPV-дронов. П
 ```bash
 magnet:?xt=urn:btih:990A7E8EAA3625592D3AEC55FE53906051ABC8C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Folder Player Pro - это ориентированный на каталоги 
 magnet:?xt=urn:btih:C7BFD46AC3D984111290BE8EFEB5A3EB3A4C0A3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Grand Emprise 2: Portals Apart (2025) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:2143F6C6E9F2C0BEA06A44081BBE2C64A345CF84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ magnet:?xt=urn:btih:2143F6C6E9F2C0BEA06A44081BBE2C64A345CF84
 magnet:?xt=urn:btih:CA090E9567D0B60B8827413333AD9A7345D1603B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ The Rogue Prince of Persia (2024) [Ru/Multi] (1.0.2) Repack Other s
 ```bash
 magnet:?xt=urn:btih:EC851C5535FD79B44D37F58E84C7ECA498A80A7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ The Blackwell Deception (2011) [En] (3.5) License GOG
 magnet:?xt=urn:btih:9879DF79EE44E130A257B2BE5010A64BDE2FAB7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Amnezia VPN - устойчивый к блокировкам VPN с высоки
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

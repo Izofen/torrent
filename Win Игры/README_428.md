@@ -1,27 +1,3 @@
-###  Публикация: 1141598   (650087) от 10.06.2017
-
-Haunted Hotel 14: Personal Nightmare / Проклятый отель 14: Личный кошмар (2017) [Ru] (1.0) Unofficial  [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_650087.jpg" />
-</div>
-
-
-###  Подробнее
-
-Через двадцать лет после бесследного исчезновения матери и сестры вы получате письмо, из которого узнаете, что все ответы можно найти в отеле "Свобода". Когда вы приезжаете туда, то понимаете, что все не так просто, как казалось. Ведь здесь оживают ваши страхи! Сможете ли вы преодолеть свой страх и спасти родных людей, пока не стало слишком поздно?Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Hidden ObjectЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C891D9196F910920476B4CE817F06BC990BEE61
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291848   (650122) от 27.03.2019
 
 Xenon Racer (2019) [Ru/Multi] (1.0) License PLAZA
@@ -42,6 +18,8 @@ Xenon Racer – футуристическая гоночная аркада, с
 ```bash
 magnet:?xt=urn:btih:3C27362258E0CB27BB37E6FFE0BDF1FB8749F20A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -66,6 +44,8 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack Other s [E
 ```bash
 magnet:?xt=urn:btih:72CE5C31E369B3E3AAD96530DEBE79FBD86C9D6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +72,8 @@ Danse Macabre 7. Florentine Elegy / Танец смерти. Флорентий�
 magnet:?xt=urn:btih:CBDC6F26DF78443E308C43AD730CA001525ABA1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +97,8 @@ Randal's Monday (2014) [Ru/Multi] (1.0.3) License CPY
 ```bash
 magnet:?xt=urn:btih:C610F6857A504544C293C0FF6F5D4C1591851D27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +124,8 @@ Lemma (2015) [Multi] (1.0.7.0) Repack R.G. Механики
 magnet:?xt=urn:btih:C57F0237B894975FFED68C3C6CE04543EEDA9614
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +150,8 @@ Chicken Shoot 2 Edition 2012 (Р) [Multi9\+] 2012
 ```bash
 magnet:?xt=urn:btih:F2BF5884253EB778B68A502628F35257F442C90F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +179,8 @@ LEGO Batman 2. DC Super Heroes (RePack/1.0.0.18994) [Ru/En] 2012 l Fenixx
 magnet:?xt=urn:btih:798D9189CE065F865330962C022CF5BC0B693648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +204,8 @@ Spider: Rite of Shrouded Moon - играем за паука, плетём се�
 ```bash
 magnet:?xt=urn:btih:3DAEF5BB65ABA4E9B023985172DA4FB098941F20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +231,8 @@ Adam's Venture Chronicles (2012) [En/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:0AF215A884E53CE392104E3F203D34212825E8D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +256,8 @@ Astebreed — это аркадный экшен-шутер про гигант�
 ```bash
 magnet:?xt=urn:btih:6CFE2C5D8D8DC3713164270C4EA4013A0B5E0A63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +283,8 @@ Fierce Tales: The Dog's Heart Collector's Edition [En] (P) 2012
 magnet:?xt=urn:btih:1BC671622D925A6BFF72C161E50188EF05AF97CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +308,8 @@ Adam's Venture Chronicles (2012) [En/Multi] (1.0) License PROPHET
 ```bash
 magnet:?xt=urn:btih:AC739FDFBAA6323C90570DBEBEA9CE00EA415FA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +335,8 @@ Sins of a Solar Empire: Rebellion – первое самостоятельно�
 magnet:?xt=urn:btih:08EF35B1B2E7E7937291F38663222B0D254E4E58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +360,8 @@ Night In The Opera (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:43D095427F5B1FBC2293F88CCBB0A758565D8C62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +387,8 @@ The Walking Dead: The Final Season (2018) [Ru/Multi] (1.0.0.1) Repack xatab [Epi
 magnet:?xt=urn:btih:1DFCE356066A6BEDE19CC0C8CB2B513DE3657CBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +412,8 @@ Orbital Bullet - динамичный 360-градусный экшен-плат
 ```bash
 magnet:?xt=urn:btih:FF373F7C9A91366C76B1FDB962CA7E95E06CF16D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +440,8 @@ Pretty Snails / Спаси улиток! (2017) [Ru] (1.0) Unofficial
 magnet:?xt=urn:btih:BDF47199C0E07EDCB66B194120CEFC7E4F897ADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +466,8 @@ Bridge To Another World 4: Escape From Oz / Мост в Другой мир 4: �
 magnet:?xt=urn:btih:CB097F266F6BC4083D02E69A4C90B258B9E1A4F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +491,8 @@ Scarlett Mysteries. Cursed Child / Алые Тайны. Проклятое ди�
 ```bash
 magnet:?xt=urn:btih:04E3D1AD2B5E5020F33D4F6AC1D2E741C1742489
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +520,8 @@ Punished Talents 2: Stolen Awards / Наказанные талантом 2: У�
 magnet:?xt=urn:btih:E7E752C29914B44081A5A0D356B58C872816246C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +545,8 @@ Whispered Secrets 13: Tying the Knot / Нашептанные секреты 13:
 ```bash
 magnet:?xt=urn:btih:9F2E01434D6C33FF36BFCAF48273E52A6B94ADAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +572,8 @@ Twin Mind 3: Ghost Hunter (2022) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:AD10F714A507F732C926C38124A63CCED8356577
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +597,8 @@ Immortal Love 4: Black Lotus (2017) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:A205F70D5193C8DAEB4859C1D06E320642CA11D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +624,8 @@ Haunted Legends 12: Monstrous Alchemy (2017) [En] (1.0) Unofficial [Collector's 
 magnet:?xt=urn:btih:DE47AF0FCDCF1A198409D8BE25891E2D52CA06FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +649,34 @@ I Know a Tale / Я знаю интересную историю (2015) [Ru] Unof
 ```bash
 magnet:?xt=urn:btih:6A0977E9A4033E97F270BEE99EAA3E3D59D1F7FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031159   (652965) от 03.07.2016
+
+RC Racing Off Road 2.0 (2016) [En/De] (1.0) License SKIDROW
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_652965.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это гонки на машинах, но другие. Попробуй самые реалистичные гонки в классе RC машин. Разные маршруты, как внутри помещений, так и на открытых пространствах! Проверь свои навыки вождения, и если ты крут, то скоро купишь новые модели и трассы. А уж там-то ты всем докажешь, что лучше тебя быть невозможно.Тип издания: LicenseРазработчик: magnussoftЖанр: RacingЯзык озвучки: Немецкий, АнглийскийЯзык субтитров: Немецкий, АнглийскийЯзык интерфейса: Немецкий, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2903ED09F087685C2503BF7AA7DE30C5A6AD8E1A
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

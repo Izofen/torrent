@@ -1,27 +1,3 @@
-###  Публикация: 1396268   (748037) от 14.07.2020
-
-On The Road - Truck Simulator (2019) [Ru/Multi] (1.1.3.49) Repack Other s
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_748037.jpg" />
-</div>
-
-
-###  Подробнее
-
-On the Road - реалистичный симулятор грузовиков для ПК от разработчика Toxtronyx. В вашем распоряжении около 6500 км автомагистрали и более 600 км проселочных дорог, включая подробные развязки автомагистралей. Игрок может побывать в разных городах Германии, таких как Гамбург, Бремен, Берлин, Кельн, Дортмунд, Мюнхен с уникальными дорожными дизайнами и достопримечательностями. (   Читать дальше...   )Тип издания: RepackРазработчик: toxtronyx interactive GmbHЖанр: Simulator, 3DЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C2A62E2AA8E873FF1B3D46DBA49AC3D85D44168
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281874   (748042) от 10.02.2019
 
 Saga of the Nine Worlds: The Gathering (2017) [En] (1.0) Unofficial [Collector's Edition]
@@ -42,6 +18,8 @@ Saga of the Nine Worlds: The Gathering (2017) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:28219513FC3289445CBBE05B68A0B0AAA7703279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Haunted Legends 12: Monstrous Alchemy / Легенды о призраках 12:
 magnet:?xt=urn:btih:B27A89852C8D1CE150DCA1068B6AB77339AD8401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Monstrum - жуткий хоррор-экшен, где вам предстои�
 ```bash
 magnet:?xt=urn:btih:95ED84DD6C40FE5EC93831F435F4AC2C6FEADE2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ POSTAL Redux – римейк классической игры, где поль
 magnet:?xt=urn:btih:F728974650FEA21B197D3282E6D556CFD5ACF509
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Spirit of Revenge: Cursed Castle / Месть духа. Проклятый за�
 ```bash
 magnet:?xt=urn:btih:9DFE1CB99F5B4D3B55126AF42DAC02D6C3720235
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Dragon Ball: Xenoverse (2015) [Ru/Multi] (1.08.00/dlc) Repack Other s
 magnet:?xt=urn:btih:1ACBFD676F30DAE88DC41DEF1FEE599FC0336261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ PuppetShow 15: Porcelain Smile / Шоу марионеток 15: Фарфоро�
 ```bash
 magnet:?xt=urn:btih:BBCD78637ABD1C06DD41CF981E3D1CAD620EAF23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Embrace of Ocean: Story of Hope (2017) [En] (1.0) Unofficial
 magnet:?xt=urn:btih:58DA277883E07197B3E6002671721016204C4A6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Demon Archive: The Adventure of Derek (2015) [En] Unofficial
 ```bash
 magnet:?xt=urn:btih:CB97A89AEF25951F1A80D1A34309543A0CB45FD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Ominous Objects 2: Phantom Reflection (2015) [En] Unofficial [Collector's Editio
 magnet:?xt=urn:btih:303ACB07A719EF4F004E5BAEDAFF5071D8865036
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Royal Legends: Marshes Curse / Королевские легенды: Прокл
 ```bash
 magnet:?xt=urn:btih:792F36CE0F06559C34A5DB22B10376EC091FB9B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ IS Defense - это аркадный шутер в фэнтезийном сет
 magnet:?xt=urn:btih:C5108CBEA5CB1DE6B2471AA956902BCBDB67BD0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ GOD EATER 3 (2019) [Ru/Multi] (1.1) License CODEX
 ```bash
 magnet:?xt=urn:btih:7385F3F93D5D1541E623D1ACB9487D0EB9DFD4F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Monster Energy Supercross 2 (2019) [Multi] (1.0/dlc) License CODEX [The Official
 magnet:?xt=urn:btih:FB4F517A148A409CE783A11CEEC6355D06EFE020
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Journey to the Savage Planet (2020) [Ru/Multi] (54082/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:ADED8F362C264694CC344DD2FB6359AE52ED7898
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ My Memory of Us – это воспоминание о дружбе между �
 magnet:?xt=urn:btih:BD8808AED545A7EE134752CF67C450E0468A0A16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ The Andersen Accounts 2: The Price of a Life (2019) [En] (1.0) Unofficial [Colle
 ```bash
 magnet:?xt=urn:btih:1D82500A7DB05B8867D5A70198BF33C8FF028609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Adam's Venture: Origins (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 magnet:?xt=urn:btih:28EE896B7BF5001D9BA2D65284CE362CB0CF0DD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Myths of the World 6: The Heart of Desolation (2015) [En] Unofficial [Collector'
 ```bash
 magnet:?xt=urn:btih:BA2F3EB2D05D1712FD3877286E29BCDDDCC1DAC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Dark Tales 17: Edgar Allan Poe's. The Bells / Тёмные истории 17: Э
 magnet:?xt=urn:btih:56C1FC9BFCE6CE71EBDC90B807540600CAE4C2C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Darkness and Flame 2: Missing Memories (2017) [En] (1.0) Unofficial [Collector's
 ```bash
 magnet:?xt=urn:btih:004A806E28232F0E781D182D7E122A16F759903C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Legendary Tales: Stolen Life (2020) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:7455C6ADE7C57898CAE00075AA67A5816EB2C385
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Chimeras 11: Cherished Serpent / Химеры 11: Заветный Змей (202
 ```bash
 magnet:?xt=urn:btih:B83978FBE2310D475B66909F539B43C90C27B018
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ Reflections of Life 5: Hearts Taken (2017) [En] (1.0) Unofficial [Collector's Ed
 magnet:?xt=urn:btih:B6AA4399C77D2A44C0CDD05EDE44E0678D09C947
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ TT Isle of Man (2018) [Ru/Multi] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:3C159208C61E163C2324457075503A905F8F63AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216137   (752724) от 29.03.2018
+
+Dying Light: The Following (2016) [Ru/Multi] (1.16.0/dlc) License SKIDROW [Enhanced Edition]
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_752724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Улучшенное издание. Выживание в стиле паркур и зомби-апокалипсис — на качественно новом уровне. Оцените новейшую систему «Легенда», улучшенную графику и оптимизированный игровой процесс. Dying Light – это игра, цель которой – выжить в открытом мире. Тебе предстоит бродить по городу, добывать припасы и изготавливать оружие, чтобы отбивать атаки толп изголодавшихся (   Читать дальше...   )Тип издания: LicenseРазработчик: TechlandЖанр: Action (Survival horror), 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C952D1D1411A1E65F406B89C319F1D8D74B42C
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

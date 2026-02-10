@@ -1,3 +1,29 @@
+###  Публикация: 1406577   (472629) от 04.09.2020
+
+Бронислав Виногродский | Я - даос. Ты тоже? (2016) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_472629.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем вашему вниманию третью книгу Бронислава Виногродского из серии "Боевая семиотика". "Перед вами необычная книга, представляющая собой попытку говорить о тех вещах, которые практически не поддаются обсуждению и описанию, во всяком случае на привычном для нас языке и в рамках доступной нам системы понятий. Язык описания и система понятий, (   Читать дальше...   )Жанр: Религия и теологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52787B43B0A6F9B50F55DE6FAE271EC4E655F02B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406680   (472643) от 04.09.2020
 
 Мария Жукова | Мультиварка. Блюда без мяса (2014) [PDF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:8D09E87B4A2445825F5B589B6A6A096C29666BF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:8D09E87B4A2445825F5B589B6A6A096C29666BF4
 magnet:?xt=urn:btih:F51BA981CC866B25831E136481CF487B8291A65D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:F51BA981CC866B25831E136481CF487B8291A65D
 ```bash
 magnet:?xt=urn:btih:056A6E547F44562639D54A8EAC11A206CD442482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:056A6E547F44562639D54A8EAC11A206CD442482
 magnet:?xt=urn:btih:B1AE5091AD2BEFFCAC2BE477211E7EB5A3735AE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:B1AE5091AD2BEFFCAC2BE477211E7EB5A3735AE0
 ```bash
 magnet:?xt=urn:btih:B9DDA5F16DDEFBA84F799C441D155B02D9B7C775
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:B9DDA5F16DDEFBA84F799C441D155B02D9B7C775
 magnet:?xt=urn:btih:69D7967891F7F8911B08ACA600FD7AF760BBF139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:69D7967891F7F8911B08ACA600FD7AF760BBF139
 ```bash
 magnet:?xt=urn:btih:F50B305C09EC643D9ADB630BC6CC4F60B5E311B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:F50B305C09EC643D9ADB630BC6CC4F60B5E311B1
 magnet:?xt=urn:btih:AE4453120EDE4443CFE0D3A53BCFBC355CFEE5B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:AE4453120EDE4443CFE0D3A53BCFBC355CFEE5B7
 ```bash
 magnet:?xt=urn:btih:6E707A5F199989DA829ED84C342CACC6D18216DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:6E707A5F199989DA829ED84C342CACC6D18216DC
 magnet:?xt=urn:btih:A18D2A44DD3CDDF3E10957DDF919BC687E168DC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:A18D2A44DD3CDDF3E10957DDF919BC687E168DC0
 ```bash
 magnet:?xt=urn:btih:C066955A6A6E25772E8952295A80183E7E6ABDEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:C066955A6A6E25772E8952295A80183E7E6ABDEB
 magnet:?xt=urn:btih:1C5632DB74BA0697A225195FB9500BD2D5074D4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:1C5632DB74BA0697A225195FB9500BD2D5074D4E
 ```bash
 magnet:?xt=urn:btih:76FD7CF67271C7F7998687B2EF3CDA4E1D4593EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:76FD7CF67271C7F7998687B2EF3CDA4E1D4593EA
 magnet:?xt=urn:btih:0463E625A964DD5A3F85792652925ABED83045FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:0463E625A964DD5A3F85792652925ABED83045FF
 ```bash
 magnet:?xt=urn:btih:058E82318D8DE5B8282906084D9F680F41544FE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:058E82318D8DE5B8282906084D9F680F41544FE9
 magnet:?xt=urn:btih:D31818DDF66EE8B7A503E9B786B3F40A99360A07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:D31818DDF66EE8B7A503E9B786B3F40A99360A07
 magnet:?xt=urn:btih:2F36AF043705C13A96329EC1D19191BDCBFAF04F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:2F36AF043705C13A96329EC1D19191BDCBFAF04F
 ```bash
 magnet:?xt=urn:btih:D5FE09B973642C292AA8053CB6D407E3E3EB5C72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:D5FE09B973642C292AA8053CB6D407E3E3EB5C72
 ```bash
 magnet:?xt=urn:btih:3FC7BF15952988F5E3C00F1BD31349EFE3E10854
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:3FC7BF15952988F5E3C00F1BD31349EFE3E10854
 magnet:?xt=urn:btih:114086E18F40C05F3276E415FF979812F08A0AB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:114086E18F40C05F3276E415FF979812F08A0AB6
 magnet:?xt=urn:btih:05048C800DE7E27E191EB8A1DC1BEF6DA4705CBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:05048C800DE7E27E191EB8A1DC1BEF6DA4705CBC
 ```bash
 magnet:?xt=urn:btih:8EE561A872820A6A691914BC666F365D16FC6C8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:8EE561A872820A6A691914BC666F365D16FC6C8D
 magnet:?xt=urn:btih:BD2F7A5A5DE374B456B1B03688AF8AA7913F439D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:BD2F7A5A5DE374B456B1B03688AF8AA7913F439D
 ```bash
 magnet:?xt=urn:btih:AC3C4A72E8EC2EC850044FD88A72F9BF4520B08E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,30 +677,7 @@ magnet:?xt=urn:btih:AC3C4A72E8EC2EC850044FD88A72F9BF4520B08E
 magnet:?xt=urn:btih:3C3493FF673219482635D95388B6A19D0F158604
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160456   (473768) от 25.08.2017
-
-В.И. Андрейчук | Самозащита (1991) [FB2, EPUB]
-
->>Разное (категория книг)
->>Спорт, Фитнес, Боевые искусства
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_473768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Автор брошюры - В. И. Андрейчук, старший преподаватель кафедры рукопашного боя и спортивных единоборств Военного института физической культуры (ВИФК), мастер спорта СССР по борьбе самбо и дзю-до, один из авторов учебника "Рукопашный бой" и книги "Первый шаг к кунгфу", автор книги "Как себя  защитить".
-В потоке большого количества ныне (   Читать дальше...   )Жанр: Спорт, СамооборонаФормат: FB2, EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF3D9D2071D274BC32E417A882B83952E61DBAC3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

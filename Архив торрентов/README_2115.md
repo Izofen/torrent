@@ -19,6 +19,8 @@ Homefront (2011) [Ru] (1.5/dlc) Rip Other s [Collection Edition]
 magnet:?xt=urn:btih:D1F90637CBBB74AC7F8695C850EF7BD5BF82BC28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) BDRip [H.264/1080p-LQ
 magnet:?xt=urn:btih:EE14FD0F35A4428F797A89F4148AC50A5436678C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) HDRip [UKR] [Line]
 ```bash
 magnet:?xt=urn:btih:E80B1239B28C8A759B3F82305A0C68DC9F81F49F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ VA - Armada Captivating Best Of (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
 magnet:?xt=urn:btih:0AEA10126F22F493B12062D2E8D29A8B9F9A128D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ VA - Who's Afraid Of 138?! Top 15 - 2016-12 (2016) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:AC1B714C3DAAF7ABB4C1B918F2FE0074A01D1684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:AC1B714C3DAAF7ABB4C1B918F2FE0074A01D1684
 magnet:?xt=urn:btih:42263630BCFA6B94ED02B483A55D3B198424F257
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:42263630BCFA6B94ED02B483A55D3B198424F257
 ```bash
 magnet:?xt=urn:btih:0C9D802F09B9DA352ACEDD3C7857D47D2F923C3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:0C9D802F09B9DA352ACEDD3C7857D47D2F923C3D
 magnet:?xt=urn:btih:0ED2D1788D1FAD010448760AFFEB71F7804427A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ VintageScene - приложение для обработки ваших  фот
 magnet:?xt=urn:btih:99938C5DEB021A9861D100E4140620C5104D6051
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ Adobe Zii - это небольшая и замечательная утилит
 magnet:?xt=urn:btih:EDFE315DAA4478618330B3FCB567D501BA090529
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:EDFE315DAA4478618330B3FCB567D501BA090529
 ```bash
 magnet:?xt=urn:btih:2A9BBE39D7C8C851C0C5CC78786FA55761100B1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ VA - Uplifting Trance Generation Vol.1 (2016) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:B947C926CE14C39C5F4634E79E073A508A696401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Sketch от Bohemian Coding — один из лучших векторных р
 ```bash
 magnet:?xt=urn:btih:94EA2217354126443FE1AF6EE50C8FCC48B8ED73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ Folx- бесплатный менеджер загрузок с удобным �
 magnet:?xt=urn:btih:7444F390D8A096F1C4E9DAA2BBBE9030244A0D35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:7444F390D8A096F1C4E9DAA2BBBE9030244A0D35
 magnet:?xt=urn:btih:F11C13F15717D6503809280BAF308B5D3B17EFEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ Artlantis Studio – профессиональный набор инструм�
 ```bash
 magnet:?xt=urn:btih:FF7786F9B87BA9679FAF447F5A24F68C8EF99822
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +451,8 @@ Autopano Giga — программа, позволяющая объединят�
 magnet:?xt=urn:btih:E0A1AC7C9A682EA106234661A1687127C2868843
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ Movist является простым в использовании и мощн
 ```bash
 magnet:?xt=urn:btih:E3C4339D198FB38DA1487D46215BF3530BE4B9C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ Acronis True Image 2016 for Mac
 magnet:?xt=urn:btih:07E11126526D7B835138C2E5533B811D44BCB84E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ Bandicam позволяет записать определенную облас
 ```bash
 magnet:?xt=urn:btih:C0AE24E9D3D01066FEAECF215B60F3767C665A7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 magnet:?xt=urn:btih:9FE1C189E31C185237BCBCC018C8DC71C9F75F3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +585,8 @@ SoftMaker Office Professional 2018 rev 972.1023 RePack (& portable) by elchupaca
 ```bash
 magnet:?xt=urn:btih:688AD47923CD9D1A11CC3C02E7289A3F23CBEE65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +612,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 magnet:?xt=urn:btih:43E4D1C62BC7197A5CF9219A4FE699B61AD3FD91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +637,8 @@ Advanced Driver Updater - программа для автоматической
 ```bash
 magnet:?xt=urn:btih:D364A66830E2D9A356F9CD4DF2D3B681E662F6A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ Moom 3.2.16 [En]
 magnet:?xt=urn:btih:E3D13259F751890C534ACCB1467806528261403C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ AnyDesk 5.3.4 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:0FCB91DFC058B0674E290723006CC4C9732C0408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

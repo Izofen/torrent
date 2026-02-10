@@ -19,6 +19,8 @@ Asylum (2025) [Ru/Multi] (Build 17711849) Repack Other s
 magnet:?xt=urn:btih:8C50C6692D89C3BAA552485BE0F7E638A1846204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Haydee 3 (2025) [Ru/Multi] (1.0.20.1523) Repack DjDI
 ```bash
 magnet:?xt=urn:btih:5FF85535FE66183CE601028E2AB185729B72EE81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Vigil: The Longest Night (2020) [Ru/Multi] (0311/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:3E9719CDD9AFAE7FCB7A6B0869747A6303C7B817
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack DjDI [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:A68D985BAB90A66C4BCA9687756EA3BCC222F2B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Blade Abyss (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:5D7903147FABB6F6495FEBC0A4D553CD55C91786
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Liar's Bar (2024) [Ru/Multi] (0.93) Repack Pioneer [Early Access Online Only]
 ```bash
 magnet:?xt=urn:btih:98A8FAABFE1D4B50DD42BB01E2E4DC5AC7CD1E16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Wartales - ролевое приключение в открытом мире, �
 magnet:?xt=urn:btih:4E4BB2E354BD1428FB3915DB09CAD0EC3B2079AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Colt Canyon (2020) [Ru/Multi] (1.3.1.3-8) License GOG
 ```bash
 magnet:?xt=urn:btih:DE105CB2C2C1979A8E109F6567AC3DFCBC34DD46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Worldless - это загадочный и сюрреалистичный дву
 magnet:?xt=urn:btih:255991C54752E4084B5ACD0E61B10417FBF177F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Shadowgate 2 (II) (2025) [Multi] (1.0.7) License GOG
 ```bash
 magnet:?xt=urn:btih:4D09EF799F3537E2C779433C2D0C3BE28F0A12E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Eiyuden Chronicle: Hundred Heroes (2024) [Ru/Multi] (1.0.5-p.27.1/dlc) Repack Le
 magnet:?xt=urn:btih:BD94B95916FFFD6878683FABF97FDFCBD7341DF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ METRO QUESTER: OSAKA (2024) [Multi] (1.0.0) License GOG
 ```bash
 magnet:?xt=urn:btih:474F71B903B55344687B5F04B0F15F24D754F641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Gone Rogue можно назвать иммерсивным симуляторо
 magnet:?xt=urn:btih:2CE311D0EC179E0DAD771CED9874E3B251252C3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Combat Mission: Fortress Italy предлагает детальный и зах
 ```bash
 magnet:?xt=urn:btih:659C84A5DFF650BB34D9F5303F421CE67357FE5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Combat Mission Cold War - пошаговая стратегия, действи�
 magnet:?xt=urn:btih:8FA3CA63AACB4ECC9BB0469818989A528418A54D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Asylum (2025) [Ru/Multi] (build 17707886) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:51C4A680A790C9E0213C67C2043ABA8C3026D4CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Taxi Life: A City Driving Simulator - симулятор такси, в кото
 magnet:?xt=urn:btih:04689335A9734A7E3D0174FEEEAD665A787839B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Combat Mission: Final Blitzkrieg погружает вас в заключите
 ```bash
 magnet:?xt=urn:btih:A3648A7BF0BEBDEF02FD4D661E842C621C638574
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Robin Hood: Sherwood Defenders (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:B2315865A5BA4C69E8F04BD2747ABF8270DBEB39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Assassin’s Creed Единство - приключенческий экшн, �
 ```bash
 magnet:?xt=urn:btih:8913F61284736A9804A52A1387DE4C4B1CFAA5FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ ORDER 13 (2025) [Ru/Multi] (1.02) Repack FitGirl
 magnet:?xt=urn:btih:B36C8B517C57C8DB1FA3356F58740166E8AF82FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Martha Is Dead - это мрачный психологический трилл
 ```bash
 magnet:?xt=urn:btih:3D34914DB9FC639B2A75D735A7A4099DF8D77169
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Enotria: The Last Song (2024) [Ru/Multi] (1.008.28601) Repack Let'sРlay
 magnet:?xt=urn:btih:7321B0300D024AF26153FE0D0A66A2B1556A1455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Night of the Rabbit (2013) [Ru/Multi] (2.2.334) License GOG
 ```bash
 magnet:?xt=urn:btih:B6E5D1A7FA2EB068273B61C8E5CE41B01153B23B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Control (2020) [Ru/Multi] (Build 17677094/dlc) Repack dixen18 [Ultimate Edition]
 magnet:?xt=urn:btih:579495B1EF24DDCDBC3BFB57CCACECAFE71EC34A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Panzer Corps 2 - Field Marshal Edition - ультимативное люксов
 ```bash
 magnet:?xt=urn:btih:ECB123E257A49E29F7D736412D2E0837B43A46B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

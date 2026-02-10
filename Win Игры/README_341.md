@@ -19,6 +19,8 @@ TITANIC Shipwreck Exploration - симулятор исследования об
 magnet:?xt=urn:btih:209C3119B49DED99CBCB2BBC358FCFF68BDB8B58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ TITANIC Shipwreck Exploration - симулятор исследования об
 ```bash
 magnet:?xt=urn:btih:9E7CEFD12A9A0EC284EA7E318F6910571C9595B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Labyrinths of the World 8: When Worlds Collide / Лабиринты Мира 8: 
 magnet:?xt=urn:btih:FA1A2985A0AF09B7311AC21FF9128B556C6630AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Dark Romance 11: The Ethereal Gardens / Мрачная история 11: Воз
 ```bash
 magnet:?xt=urn:btih:52DDAB6526BD28E1FDB6D2DE2BB9EA848AA74BEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Dreamwalker: Never Fall Asleep / На Просторах Снов: Кошмар�
 magnet:?xt=urn:btih:0F2426E4343AABE315D81FA3204F5929123E7642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Blind Fate: Edo no Yami (2022) [Ru/Multi] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:1C42958EE6086EEA3CD1C03968C203D613242CAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Total War Saga: TROY – стратегия в реальном времени, 
 magnet:?xt=urn:btih:92A3DF53562B911A7B643C3F7D79C53FE9F25F59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ TEKKEN 7 (2017) [Ru/Multi] (3.30/dlc) License EMPRESS [Ultimate Edition]
 ```bash
 magnet:?xt=urn:btih:31F66D2B9F7C3F88AF520F54AB5FB52514F05F49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Numantia (2017) [Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:4726088108F34FDA556F51C2D190AF4CFDB702AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Alan Wake's American Nightmare (2012) [Ru/En] (1.03.17.1893) Repack xatab
 ```bash
 magnet:?xt=urn:btih:CB890AA14BF63057400678EDBA45AB991F0F2133
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Yomawari: Midnight Shadows (2017) [En/Jp] (1.0) License CODEX
 magnet:?xt=urn:btih:0014347F4D68FF23980B631594421A6CF85CE6CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Void Bastards (2019) [Ru/Multi] (2.0.20/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:CE77143A2B89BBE8C04BDA8CBFD0E929DF04FBAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Deus Ex: Human Revolution - третья часть популярного РП�
 magnet:?xt=urn:btih:C2DFCD09F75A1E7A0CA76907BFE36CCAB7F474B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Rite of Passage 7: Sword and the Fury / Обряд посвящения 7: Ме�
 ```bash
 magnet:?xt=urn:btih:44DF0E8B52D9C6988F226F935F35387B93DF1802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Reflections of Life 8: Dream Box / Отражения жизни 8: Ларец �
 magnet:?xt=urn:btih:FA46FFD8343DE84294AEDF2145F49FAAF2A228FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The 9th Gate (2018) [En/Ch] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:7B999FE87CF02AF28D06769C0B168520008623FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Midnight Calling 5: Arabella / Полуночный зов 5: Арабелла (
 magnet:?xt=urn:btih:3DF79456C6056CFC87EC65FF31357646A8B57579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Wanderlust 3: Shadow of the Monolith (2019) [En] (1.0) Unofficial [Collector's E
 ```bash
 magnet:?xt=urn:btih:FF1E119515B982762E320E9455C6039F5F25A2EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Batman: Летопись Аркхема: Блэкгейт - Эксклюзивн
 magnet:?xt=urn:btih:6A870CB225D96589965240587F5A85E5948721D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Jack Keane / Джек Кейн (2008) [En] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:CD6859E93C25722C10B0F53095C21015042B03F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Inmates (2017) [Ru/Multi] (1.0.2) License HI2U
 magnet:?xt=urn:btih:65C607A514D81EFF47E62680E93D5018713C1EFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Welcome to Hanwell - хоррор с открытым миром. В нем це
 ```bash
 magnet:?xt=urn:btih:F010F3DDF7A04ADAEA6684ADB1E1F609754DD00E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Spelunker Party! (2017) [Ru/Multi] (1.0) License SKIDROW
 magnet:?xt=urn:btih:03CE2D47994D767032049FE7A043DC0D08151E19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Resident Evil 5 (2009) [Ru/Multi] (1.0.0.129/dlc) Repack xatab [Gold Edition]
 ```bash
 magnet:?xt=urn:btih:23BCDD4D859019E028AE5EB669040232235FAF86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Debris - это атмосферная сингл игра, в тематике 
 magnet:?xt=urn:btih:10F34CD01E76CBAE6C491EA1EE1E95D43C502A11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Final Fantasy IV (2014) - ремейк культовой игры 1991 года
 ```bash
 magnet:?xt=urn:btih:0A7ED3BA94D229EFA88A9D69FF0D32AF0059C3C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

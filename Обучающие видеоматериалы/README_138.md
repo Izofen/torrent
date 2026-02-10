@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:DD722A59946FF4AD7BC1F1B908B7076078232E8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Sculpt Art, Александр Спиридонов, Сергей Носолюк
 magnet:?xt=urn:btih:98C17543D3D9310DA95EE01DC5363638CB614037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:98C17543D3D9310DA95EE01DC5363638CB614037
 ```bash
 magnet:?xt=urn:btih:2D645CEFAACFA0347B6916B3B6E8BCFC2F7608AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:2D645CEFAACFA0347B6916B3B6E8BCFC2F7608AA
 magnet:?xt=urn:btih:6524EE343EA7BBD60F41E127FB0A717E078E4F85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ ProFinansy, Наталья Котовская, Юлия Ромашевская |
 ```bash
 magnet:?xt=urn:btih:739902FEFC00E4C5F28285328C0E1FA9CE035537
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ plc-edu, Дмитрий Громов | Прикладной курс по АСУ
 magnet:?xt=urn:btih:2FA0A88EDB903B8E27DC4210259611A3F035C9C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ ProFinansy, Наталья Котовская | Облигации: как бе�
 ```bash
 magnet:?xt=urn:btih:CBC65825C83EAFB9F790D6793FC90E2C11081ABD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:CBC65825C83EAFB9F790D6793FC90E2C11081ABD
 magnet:?xt=urn:btih:F80E273CA37CE7AF0F9AAD2F05986D1B24B010CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:F80E273CA37CE7AF0F9AAD2F05986D1B24B010CA
 ```bash
 magnet:?xt=urn:btih:7B74F0258C029A8274F63AF8CF7EDA4EFA17FAD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ ProFinansy, Юлия Ченцова | Ошибки инвестора. Как и
 magnet:?xt=urn:btih:35128E121632E1EB21B05FF0DBB0CBF4DC6C527A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ ProFinansy, Наталья Котовская | Как инвестору сле
 ```bash
 magnet:?xt=urn:btih:07B2C648675C95F5F3A8A7EF2C7239029CDDBF28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ ProFinansy, Наталья Котовская, Ольга Гогаладзе | �
 magnet:?xt=urn:btih:8D13FCC6DB2D5D2882F99203818B3DDE20EB4B7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ ProFinansy, Наталья Котовская | Как инвестироват�
 magnet:?xt=urn:btih:1195A3BB0322644C9B24BC24EDE92C17959EDCE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ ProFinansy, Юлия Ченцова | Как инвестировать в Бе�
 ```bash
 magnet:?xt=urn:btih:D7545AC6EBED806EA3C9DF08397EE83A4482FA00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:D7545AC6EBED806EA3C9DF08397EE83A4482FA00
 magnet:?xt=urn:btih:26D673E2C9354EFBB526AEC513913FC2F282DDCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:26D673E2C9354EFBB526AEC513913FC2F282DDCC
 ```bash
 magnet:?xt=urn:btih:9CBAD098CAB8E32F66CCD0AC57531B38DF6001AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Udemy, Rob Tuytel | Creating 3D Environments in Blender 3.2 (2022) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:649CBA90E5FDA24C2E037463A7B246D831532E8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Udemy, Otto Lai | Intro to Geometry Nodes using Blender 3.3 (2022) PCRec [RU]
 magnet:?xt=urn:btih:E8E182B341D9E53D77F012CD17C2686F5F66197D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ n4e.ru | Docker (2023) WEB-DL [AD] [RU]
 ```bash
 magnet:?xt=urn:btih:F56D5BF56339C8749F12968769E82CDC212972AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ Network for Everyone (NFE, N4E), Алексей Гусев | Подписка у
 magnet:?xt=urn:btih:D4C98CC94AF96CA52F07BC0D7D8B1C91EC6AFE30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:D4C98CC94AF96CA52F07BC0D7D8B1C91EC6AFE30
 magnet:?xt=urn:btih:8AD79ACE5CC3E325E80C2AD2F045976C07C0C8CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:8AD79ACE5CC3E325E80C2AD2F045976C07C0C8CB
 magnet:?xt=urn:btih:30DAA9437A0284D48043C274E423A7B0DEF190B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +611,8 @@ Thinknetica, Роман Спиридонов | Асинхронный Python: к
 ```bash
 magnet:?xt=urn:btih:CA152BC1EE8137E0B46E50FEC7BCBCF5706AFAC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +641,8 @@ Network for Everyone (NFE, N4E), Алексей Гусев | Подписка у
 magnet:?xt=urn:btih:DA724E1AC068A7699A0E3BF11C983A2496C6986C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +666,8 @@ kontentica, Сергей Беляк | Нейросети. Старт (2023) WEB-
 ```bash
 magnet:?xt=urn:btih:F04BF3EB9C2138200AB153E4D3D461E9E289FD7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +694,8 @@ Udemy, Mefodiy Kelevra | OSINT и профессиональное исполь�
 ```bash
 magnet:?xt=urn:btih:06CAC2342C53E5EBA2E84BE5D875B102F50E8A32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

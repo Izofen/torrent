@@ -21,6 +21,8 @@ Rizz_Fisher, Orru, Indominus Rex, Airis (DreamCast)Субтитры: Русск�
 magnet:?xt=urn:btih:FC1A989A074D27A2DF1D9C12410EA51F6D797C8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:FC1A989A074D27A2DF1D9C12410EA51F6D797C8B
 ```bash
 magnet:?xt=urn:btih:93A4B2B83FD85D5895AC48C3EE8999963A26461B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Derenn, Hekomi, JazzJack, OkanaTsoy, Sharon (AniLibria.TV)Субтитры: Ру
 magnet:?xt=urn:btih:4C459CBF6009B010C3DFF82ABFD4D6E032E96AC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ RPG недвижимость | RPG Fudousan | RPG Real Estate [TV-1] [2022, TV, 
 ```bash
 magnet:?xt=urn:btih:843466A3F27B29B8B7F2F0DC241E883E6FCF7094
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:843466A3F27B29B8B7F2F0DC241E883E6FCF7094
 magnet:?xt=urn:btih:4AF57D457EF87F3B2418A64C7BC381D39D03293A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Darling in the Franxx / Возлюбленный во «ФранКс» [2018, TV
 ```bash
 magnet:?xt=urn:btih:E83DD6EFC1A760345BEDD05C62E56359E609C707
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Kill la Kill / Крошить-кромсать [2013, TV, 24 ep] BDRip Hi10p 720
 magnet:?xt=urn:btih:6E5B127174EB6341A5AC3D97D765D36E09DD4210
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ One Punch Man 2nd Season / Ванпанчмен [ТВ-2] [2019, TV, 12 из 12] 
 ```bash
 magnet:?xt=urn:btih:05273713DAF8A6A0962E46814F11F16965E153B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:05273713DAF8A6A0962E46814F11F16965E153B7
 magnet:?xt=urn:btih:AC1E6F40B4901CCC3B5A0E40085271DEA076054A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Shingeki no Kyojin Season 3 / Attack on Titan / Атака титанов [ТВ-
 ```bash
 magnet:?xt=urn:btih:26728CFE3FBAE3D8156F440FB3081863F8DAF2D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ Omoide Poroporo / Only Yesterday / Ещё вчера [1991, MV] BDRip Hi10P 1080
 magnet:?xt=urn:btih:FD4ED2370A74EA008C137DE88C1CB98971813F8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ Mikakunin de Shinkoukei / Engaged to the Unidentified / Помолвлена с 
 ```bash
 magnet:?xt=urn:btih:7CAC488221D3367D9ECFBF267B8DF42309CE7252
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Isekai no Seikishi Monogatari / Saint Knight Story in an Alternate World / Ин�
 magnet:?xt=urn:btih:7D43B831073E121CB459474E7C81FC0DA118F938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ Sanzoku no Musume Ronja / Ronja the Robber's Daughter / Ронья, дочь р�
 ```bash
 magnet:?xt=urn:btih:4768590811A0D7FCEB7495F630BA0C4C30BB9E5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ Fairy Tail / Сказка о Хвосте феи [2009, TV, 175 из 175] DTV 72
 magnet:?xt=urn:btih:4048C7F20416B855A7F17416215B4456BFD85030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Maken-ki! Two / Макен-Ки! 2 [2014, TV, 10 ep] BDRip 720p Raw+Rus
 magnet:?xt=urn:btih:1264EF2B5CF1443F6D5A961228BB7668455DCDFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Noragami / Бездомный бог [2014, TV, 12 ep] BDRip Hi10p 720p Raw+Rus
 ```bash
 magnet:?xt=urn:btih:CDC87EFC3E3323B225094A2B64FEA7C6C1C3D4CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Ginga Eiyuu Densetsu: Aratanaru Tatakai no Overture | Legend of Galactic Heroes 
 magnet:?xt=urn:btih:ED080C4024EA34124A87685A895A3E13B491BAAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Ginga Eiyuu Densetsu | Legend of the Galactic Heroes | Легенда о гер�
 ```bash
 magnet:?xt=urn:btih:75C292A956B98ADEC16118DDAF3CD4A2906A8D1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ Ginga Eiyuu Densetsu Gaiden: Ougon no Tsubasa | Legend of Galactic Heroes (Movie
 magnet:?xt=urn:btih:586A4768B5FC4835460F0118EF7633E59694A0EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ Ginga Eiyuu Densetsu: Waga Yuku wa Hoshi no Taikai | Legend of Galactic Heroes (
 ```bash
 magnet:?xt=urn:btih:1096B58FCCF42CC116316141DB7F76F8F6C1FEBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ TV-1 (AniDub), (Anilibria), (Kansai) - внешними файламиЯзык �
 magnet:?xt=urn:btih:8E4D29743DED2919EF0E21487E7D0FE897A1FAAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Harmagedon | Genma Taisen | Ghenma Wars | Great War with Genma | Хармаге�
 ```bash
 magnet:?xt=urn:btih:9DA39531932F2AF598087CFFE21AEADF76812C0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ Madan no Ou to Vanadis / Lord Marksman and Vanadis / Повелитель вол
 magnet:?xt=urn:btih:455D8C5CDB863ED1D0D15277F7E00D8D9BCE56A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Lost Universe / Затерянная Вселенная [1998, TV, 26 из 26] D
 magnet:?xt=urn:btih:1CCFCBEC2DDBC6095942B7D97823A0DA7A970338
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Tetsuwan Birdy Decode | Birdy the Mighty Decode | Могучая Берди [Т�
 ```bash
 magnet:?xt=urn:btih:65CED84BA1DD8704672EA13437189FCE395DF87C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

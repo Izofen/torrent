@@ -22,6 +22,8 @@ VA - Amsterdam Trance Sessions Vol.13 (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:A0647FF64178819477377B3096DC065164274ABA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Mix - Mom, mommy, mother (2015) [MP3|320 кб/с]<Pop, rock, metal, jazz, rap>
 ```bash
 magnet:?xt=urn:btih:C59D2C7B3050C18A35B1F5BDAAD11190B30A13D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Ori Uplift & Dj T.h. - Uplifting Only 249 (2017) [MP3|320 Kbps] <Trance, Up
 magnet:?xt=urn:btih:727C882C8BDEC81A4D6E4F4ABD80446BE47B4121
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:727C882C8BDEC81A4D6E4F4ABD80446BE47B4121
 ```bash
 magnet:?xt=urn:btih:21D50563ABBF77DCA57D77B4EE637D1F47231D2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -128,6 +136,8 @@ Doo превращает ваши напоминания в карты, кото
 magnet:?xt=urn:btih:138A6F9896DE2864E86F7EE9009C73B7A057CBBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:138A6F9896DE2864E86F7EE9009C73B7A057CBBC
 ```bash
 magnet:?xt=urn:btih:7CAA96C02ABCD7D0C4DA3ED61DCEB796D4DBBAEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -179,6 +191,8 @@ VA - Electro Party (2017) [MP3|320 Kbps] <Electronic, House, Dance, Dubstep>
 magnet:?xt=urn:btih:063DA35186F33D310C73EA54D01E3DAEA2CC4333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:063DA35186F33D310C73EA54D01E3DAEA2CC4333
 ```bash
 magnet:?xt=urn:btih:CE3E7059A0950D7B12E1550F12BA1F9297A172D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ magnet:?xt=urn:btih:CE3E7059A0950D7B12E1550F12BA1F9297A172D2
 magnet:?xt=urn:btih:ABAC277BAF05FB1F116E414C83C6C75B90451416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:ABAC277BAF05FB1F116E414C83C6C75B90451416
 ```bash
 magnet:?xt=urn:btih:0475BF82F71086BA5E0F87BB6DA6EE43DCD1939D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -280,6 +300,8 @@ VA - Chilling Process Vol.05 (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 magnet:?xt=urn:btih:87B5BF1F191F099A957EC8849696576ECE602050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ Fancy - Voices From Heaven (2004) [FLAC|tracks+.cue]<Synth-pop>
 ```bash
 magnet:?xt=urn:btih:F24E20B04289E0B80565152A850F1AB38ECC9968
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +358,8 @@ VA - Recoverworld Radio 016 (Mixed by Para X) (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:D283DD8F7964AF61BD7291911FA1693A0B5D4DA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ magnet:?xt=urn:btih:D283DD8F7964AF61BD7291911FA1693A0B5D4DA8
 ```bash
 magnet:?xt=urn:btih:06EC6F29065DEC832503534FB65AD002B3B02C42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +413,8 @@ CD1:
 magnet:?xt=urn:btih:39B6FC7BCBC62E327F16BDCFCCA1E51521CE7D87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ magnet:?xt=urn:btih:39B6FC7BCBC62E327F16BDCFCCA1E51521CE7D87
 ```bash
 magnet:?xt=urn:btih:3687418BC3F951CA97C8107394BA194C008FCEE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +468,8 @@ Total Coelo - I Eat Cannibals & Other Tasty Trax (1996) CD [MP3|320 Kbps] <Elect
 magnet:?xt=urn:btih:3F7050D52DF723124EB11DD80C8269F88EF51E3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +496,8 @@ Simona Molinari - Casa Mia (2015) [MP3|320 кб/с]<Smooth Jazz>
 ```bash
 magnet:?xt=urn:btih:BAEDAAEC13A8FCB5A69008EAFDFB8737FE8B61EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +526,8 @@ Wild & Free - Shapes On Shapes (2017) [FLAC|Lossless|WEB-DL|tracks] <Nu Disco, H
 magnet:?xt=urn:btih:CD50E6BACAFCBDCFBBC47F2CCBF67F1EFC730FF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +554,8 @@ NBA 2K12 Soundtrack  (2011) [MP3|317-320 кб/с]<OST/Soundtrack>
 ```bash
 magnet:?xt=urn:btih:5B54012045375061DE1B001193F732460D3614F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +584,8 @@ VA - Trancemission Vol.2 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
 magnet:?xt=urn:btih:BE9758C647BC46DE1B50B30CEFC480151A99E669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +609,8 @@ magnet:?xt=urn:btih:BE9758C647BC46DE1B50B30CEFC480151A99E669
 ```bash
 magnet:?xt=urn:btih:34D5449CD7511ED197414B0DEE36FD69D3CA3943
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +639,8 @@ VA - Clinique Mixed XIV (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 magnet:?xt=urn:btih:02D6F1A2958B5AF0EEB3F9EFBD563D02223B188A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +664,8 @@ magnet:?xt=urn:btih:02D6F1A2958B5AF0EEB3F9EFBD563D02223B188A
 ```bash
 magnet:?xt=urn:btih:D54312885328B868A20AF76AE1AE39F648BC03C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +694,8 @@ VA - Progressions (2017) [MP3|320 Kbps] <House, Progressive House>
 magnet:?xt=urn:btih:840B4D34C5A975415CFD7CD0514737A965D8D866
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +719,8 @@ oCam Screen Recorder - бесплатная программа, позволяю
 ```bash
 magnet:?xt=urn:btih:E0071C9432AA9746B54592997E0CA67F79EDD482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

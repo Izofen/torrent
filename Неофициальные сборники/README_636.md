@@ -1,3 +1,32 @@
+###  Публикация: 1357294   (973887) от 03.02.2020
+
+VA - Дискотека 2020 Dance Club Vol. 197 от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_973887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka):
+01. A. Rassevich, Susie Johnson - The Dice (5:13)
+02. NRD1 - All Good Things (Come To An End) (3:27)
+03. TRFN x Dan Port feat. Siadou - Crashing Down (2:39)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 29:18:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD96CA2D4AAB82EF8407996E8DF8C834EF49F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 975114   (974084) от 13.01.2016
 
 VA - Старое по новому 2 (2016) [MP3|320 кб/с] <Pop, Dance>
@@ -21,6 +50,8 @@ VA - Старое по новому 2 (2016) [MP3|320 кб/с] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:718C2C12B54698BC64FFDD34C73795E71AC88BDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Жажда скорости танцевальный ритм (2016) [MP3|2
 magnet:?xt=urn:btih:5265360A324746B431744284DD075FAFED11C20D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - German Top 100 Single Charts (18.01.2016) [MP3|256-320 кб/с] <Pop, Dance
 ```bash
 magnet:?xt=urn:btih:BAC3B603A77FD812156A7A7048802780F80339AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Жаркая драйвовая туса (2016) [MP3|256 кб/с] <Pop>
 magnet:?xt=urn:btih:B2BCAAD51AFFDE67F77D5FD8EB3EF92FC592C49E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Love Classics Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Instrum
 ```bash
 magnet:?xt=urn:btih:165D1A8EEEA9E253111D0FB3677EA19231257F31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Prometheus: Trance Party (2016) [MP3|320 кб/с] <Progressive Trance, Elec
 magnet:?xt=urn:btih:153CDDB4E18C7CB807CD66C2D665810400EDED72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +225,8 @@ VA - Melancholy Longe (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:384ECDDF7ACDC8001C2747502699983FA208D005
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +253,8 @@ Dance:
 ```bash
 magnet:?xt=urn:btih:912298C9B3B988EBD864B35E5662E3BDFB43DB90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +286,8 @@ magnet:?xt=urn:btih:912298C9B3B988EBD864B35E5662E3BDFB43DB90
 magnet:?xt=urn:btih:5C74DB093A8B863A3347E48B59A1CBDFC1B19713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +314,8 @@ Schiller - Hit Collection (Presents Elgujakviso) (2019) [MP3|320 Kbps] <Electron
 ```bash
 magnet:?xt=urn:btih:1C06AE75101665921E443AC2648E9406172EA3CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +344,8 @@ VA - 100 Greatest Modern Pop Songs (2020) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:D59B48754AB73CFC6E3D43955EFF0EFF5117509C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +372,8 @@ VA - Record Super Chart 623 (2020) [MP3|320 Kbps] <Pop, House, Dance>
 ```bash
 magnet:?xt=urn:btih:A41BBF16BB12735BC37141B34D6F96D36F5C9248
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +402,8 @@ VA - Акварели (Super DISCOTEKA 70s|80s) (2016) [MP3|320 кб/с] <Disco,
 magnet:?xt=urn:btih:2E131BEE5E130D59927A883343615D63A7DCA90B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +430,8 @@ VA - German Top 100 Single Charts 31.01.2020 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:2BA949361155F6C12B61E341A959CDAA862632BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +460,8 @@ VA - Белая вьюга (2015) [MP3|256 кб/с] <Шансон>
 magnet:?xt=urn:btih:5D83A01FF671A5A6CFD823B826A5A12BF4CC129F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +488,8 @@ VA - Alive Strong Best Of Hits (2016) [MP3|262-320 кб/с] <Electro, Club, Bigr
 ```bash
 magnet:?xt=urn:btih:AA0A06BF10E41F279A8A5C4F16C1AD5B83AB4975
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +518,8 @@ VA - EdShar Music (10.01.16) [MP3|128-320 kbps]<DubStep>
 magnet:?xt=urn:btih:57142A50E04C73342F4F18A67B6AD557340207ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +547,8 @@ VA - Tech House Masters Fresh (2016) [MP3|259-320 кб/с] <Deep House, Minimal,
 magnet:?xt=urn:btih:788651B60DB6BD1DCFED4C1B544205ADA6E90903
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +575,8 @@ Reverend and The Makers - Collection (2007-2012) [OGG|459-548 кб/с] <Dance Ro
 ```bash
 magnet:?xt=urn:btih:465D5373969A3A7BD5C986BC48EFB5CB495F3A79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +611,8 @@ VA - Romantic Blues Collection Vol.2 (2013) [MP3|320 кб/с]<Pop,Blues>
 magnet:?xt=urn:btih:5F924AC56FFD6E24E6AACD96D8309088F41869D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +646,8 @@ Blonker - Шедевры Инструментальной музыки (2001) [M
 magnet:?xt=urn:btih:9906E919FFCE8844EFA6CFE13804A6FE12E700B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +675,8 @@ VA - Back To The 90s: Greatest Hits (2020) [MP3|320 Kbps] <Pop, Rock, RnB>
 magnet:?xt=urn:btih:BB7441871649FBCE3A791711CEC5E8AA2813D19C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +703,8 @@ VA - Top50: Tracks Deep House Ver.17 (2020) [MP3|320 Kbps] <House, Deep House, C
 ```bash
 magnet:?xt=urn:btih:51BFA3FAD07632AEB35539031ABC02C13DD54445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +736,8 @@ Hits of My Soul - сборник электронной и инструмент�
 magnet:?xt=urn:btih:D71B461D6F1DEEF17D3CBF3C0AB7D9E5D5327002
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -688,38 +765,7 @@ VA - Итоговый ЕвроХит Топ 40 2013  [MP3|~245 кб/с (V0)]<Pop
 magnet:?xt=urn:btih:E0E5A99429F129D3F3BDAD19CCA3F993258C6810
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614867   (976394) от 09.02.2013
-
-VA - Record Super Chart № 276 (2013) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_976394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Deorro - For President  (4:54)
-02. Movetown & Ray Horton - Here Comes The Sun  (3:32)
-03. Sunstroke Project - Walking In The Rain  (4:37)
-04. Will.I.Am & Britney Spears - Scream & Shout  (4:45)
-05. Tonic & Knife Party - Bitch Please Internet Friends (BL3ND Mashup)  (4:35)
-06. Alex Clare - Too Close (Slider & Magnit Remix)  (5:34)
-07. Dani B. & Jonathan Carey & Ari - Fire To The Floor  (4:28)
-08. Krewella - Come & Get It  (3:26)
-09. Fly Project - Back In My Life  (5:15)
-10. Fady & Mina - Kepler 22 (Andrew Rayel Aether Remix Edit)  (3:09)Жанр: TranceПродолжительность: 01:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80FA7E422CBC8B74E2A647FB39A14C6BC8BE2D95
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

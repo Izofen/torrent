@@ -24,6 +24,8 @@
 magnet:?xt=urn:btih:3C6A0BE00CB01FA7BCB7A219FD961CC9BCA87610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:3C6A0BE00CB01FA7BCB7A219FD961CC9BCA87610
 ```bash
 magnet:?xt=urn:btih:1FFC569AF80CB0228B6FE48037422C3A39E951D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -81,6 +85,8 @@ Janiva Magness - 2 Альбома (2010-2012) [APE|Lossless]<Blues>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -109,6 +115,8 @@ Janiva Magness - 2 Альбома (2010-2012) [APE|Lossless]<Blues>
 magnet:?xt=urn:btih:048C10426639A1297985C08CF2F916815BD8A8EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -132,6 +140,8 @@ magnet:?xt=urn:btih:048C10426639A1297985C08CF2F916815BD8A8EB
 ```bash
 magnet:?xt=urn:btih:9C44995C6EF467F8F1F8319BE1F9220292DD0741
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +170,8 @@ magnet:?xt=urn:btih:9C44995C6EF467F8F1F8319BE1F9220292DD0741
 magnet:?xt=urn:btih:382EECF1A64497A07C9F45C07C146CA8ED959306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +195,8 @@ magnet:?xt=urn:btih:382EECF1A64497A07C9F45C07C146CA8ED959306
 ```bash
 magnet:?xt=urn:btih:C981C30AA3E151DEFAE6901727A076772004EB49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ magnet:?xt=urn:btih:C981C30AA3E151DEFAE6901727A076772004EB49
 magnet:?xt=urn:btih:FF1DF0D82FF7FADC609DD04E312AE38F602706B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ magnet:?xt=urn:btih:FF1DF0D82FF7FADC609DD04E312AE38F602706B6
 ```bash
 magnet:?xt=urn:btih:C2131AB10D0BE9F22615A68480520EB8AD021246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +284,8 @@ Tacere - разноплановая symphonic metal группа из Финля
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +311,8 @@ Tacere - разноплановая symphonic metal группа из Финля
 magnet:?xt=urn:btih:9E304A3A760A2FD04EA2A9BA07DA4F05487174EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +336,8 @@ magnet:?xt=urn:btih:9E304A3A760A2FD04EA2A9BA07DA4F05487174EA
 ```bash
 magnet:?xt=urn:btih:B9F80618DFF79AA5A3AAD304A7278D2F0AA73934
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +366,8 @@ magnet:?xt=urn:btih:B9F80618DFF79AA5A3AAD304A7278D2F0AA73934
 ```bash
 magnet:?xt=urn:btih:C827485B6C827E6321F8D8AF5CD10F8D9E78094F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +402,8 @@ Monty Alexander - Harlem-Kingston Express Live! (2011) [FLAC|Lossless]<Jazz, Bop
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ Monty Alexander - Harlem-Kingston Express Live! (2011) [FLAC|Lossless]<Jazz, Bop
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ Hidden Mysteries: Royal Family Secrets (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:F3870514D1F6001E6B220D21945303EEDBDA9AA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +484,8 @@ magnet:?xt=urn:btih:F3870514D1F6001E6B220D21945303EEDBDA9AA1
 magnet:?xt=urn:btih:9185DDBE1FB2374039F27C21B5181B9BDB144EB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +509,8 @@ magnet:?xt=urn:btih:9185DDBE1FB2374039F27C21B5181B9BDB144EB0
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +536,8 @@ magnet:?xt=urn:btih:9185DDBE1FB2374039F27C21B5181B9BDB144EB0
 magnet:?xt=urn:btih:A6DAA10BB635C0C8CE2FBDFE7DF87CED8CA45F2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +561,8 @@ magnet:?xt=urn:btih:A6DAA10BB635C0C8CE2FBDFE7DF87CED8CA45F2F
 ```bash
 magnet:?xt=urn:btih:58594F6237AF079E21B57E2D7126F318B7F738D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +589,8 @@ magnet:?xt=urn:btih:58594F6237AF079E21B57E2D7126F318B7F738D1
 magnet:?xt=urn:btih:3033841494D44AE6B2CA05A2CA65D7379273ED30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +614,8 @@ magnet:?xt=urn:btih:3033841494D44AE6B2CA05A2CA65D7379273ED30
 ```bash
 magnet:?xt=urn:btih:B450C844E7A684404BB2346EE3AE2E55C152E9A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +643,8 @@ BurnAware поддерживает все типы оптических носи
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +679,8 @@ VA - 200 Модных Хитов DFM №18 50/50 (2012) [MP3|128 kbps]<Pop>
 magnet:?xt=urn:btih:0A55A4CBA365D1F8EBEE3D0920CF17334F7F7E72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +709,8 @@ magnet:?xt=urn:btih:0A55A4CBA365D1F8EBEE3D0920CF17334F7F7E72
 ```bash
 magnet:?xt=urn:btih:170164104C32BD452C2CB4AE504199E99464F7C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -694,6 +744,8 @@ Divertimento D-Dur KV 205 (167a)
 ```bash
 magnet:?xt=urn:btih:04F83A69D8B51EA5F472A2E08F3A3E8EE0369AC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

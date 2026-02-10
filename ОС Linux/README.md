@@ -22,6 +22,8 @@ Astra Linux Special Edition 1.8.3 UU1 [amd64] 3xDVD
 magnet:?xt=urn:btih:10D4A2A2C36E0F04BF1FC0EE6FFB20F2D41B8CFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Linux Mint 22: поддержка до 2029 года, обновленное я�
 ```bash
 magnet:?xt=urn:btih:DC9C592EC0485315EA0BBC06F3AD310528E3C785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Astra Linux Special Edition 1.8.3 [amd64] 3xDVD
 magnet:?xt=urn:btih:E32F4A3E5307EC4979E24326C534E55782E5B45B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ Zorin OS разработана так, чтобы быть простой, по
 magnet:?xt=urn:btih:98D78D8F7A02EFE844E2C7523025EBB8FBCDAB86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ meego os это дистрибутив linux основанный на red hat
 ```bash
 magnet:?xt=urn:btih:53EB002EB1EF5EA6B859BE583AA309F9CE425C27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ meego это система для нетбуков основанная на re
 magnet:?xt=urn:btih:94AFE14978DAD2C93CF43E62BDDC5CB9C8E6A555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ magnet:?xt=urn:btih:94AFE14978DAD2C93CF43E62BDDC5CB9C8E6A555
 ```bash
 magnet:?xt=urn:btih:3CC3CECE25EC85E4A3ABAB2BCC891EBDEF470D9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ Astra Linux Special Edition 1.8.2.UU1 [amd64] 3xDVD
 magnet:?xt=urn:btih:FD9C8484219B756B07BDF287A97704D6CC3DC01F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Red Hat Enterprise Linux (RHEL) - популярная коммерческая 
 ```bash
 magnet:?xt=urn:btih:004D75894A25FDEC95772A7465525083F8E72556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ Astra Linux Special Edition 1.7.7 UU2 [amd64] 3xDVD
 magnet:?xt=urn:btih:79A3206423433CF8D2507F008A9B897EF9E006CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ Astra Linux Special Edition 1.8.2 [amd64] 3xDVD
 ```bash
 magnet:?xt=urn:btih:417020E8DB3B3D55DF3B81F80086B1FC4C9763AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ Astra Linux Special Edition 1.7.7 [amd64] 5xDVD
 magnet:?xt=urn:btih:EAA72E2FA7C0360786850F270C4EA5F8C2E52557
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ Astra Linux Special Edition 1.7.7 UU1 [amd64] 3xDVD
 magnet:?xt=urn:btih:303C759DB0AA27A5484C9F29BBC134C0A6A390D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +378,8 @@ CentOS Stream - новая версия бесплатной операцион�
 ```bash
 magnet:?xt=urn:btih:9C2959549CA9A85F51013598F5CF23FAE0F6FCC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ Astra Linux Special Edition 1.8.1.UU2 [amd64] 5xDVD
 magnet:?xt=urn:btih:04071F47D34A3329C7C194B197F195DA01BDE790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ Astra Linux Special Edition 1.6.15 [amd64] 5xDVD
 magnet:?xt=urn:btih:F0FCEABC2A97EB6DBAB634CEB48F1001FE827013
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ ALT Linux 8 СП C10F2 [amd64] 3xDVD
 ```bash
 magnet:?xt=urn:btih:15C6A4A59D78761D854BC5D7E4E887F188F0BC17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ Green Linux - это защищённая от санкций операцион
 magnet:?xt=urn:btih:7FD03D1A0D22B3C90B32B767074F5E021515ECF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ Wubuntu, также известная как “Windows Ubuntu”, - это о�
 ```bash
 magnet:?xt=urn:btih:704573ED52046EB5735820093CC6FFE2946F751F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ Linux Mint 22.1 Xia (Cinnamon Edition, MATE Edition, Xfce Edition) [64-bit] 3xDV
 magnet:?xt=urn:btih:175F698E3C465CC252E8AC637457BAEED52A76FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ Linux Mint Debian Edition 6 (LMDE 6) получил название "Faye", о�
 magnet:?xt=urn:btih:3E2C40D3A7F754B59184F317CE4ACB6C6568CE4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ AlmaLinux 9.5 (Gnome, Xfce, KDE, Mate) [x86_64] 8xDVD
 ```bash
 magnet:?xt=urn:btih:D051FE33EE5CC573C823D4A9FC186A01CABEE35A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ Red Hat Enterprise Linux (RHEL) - популярная коммерческая 
 magnet:?xt=urn:btih:519D55C29EAD0E47B6A8884E37D90E91C4F7491D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ Elementary OS — это операционная система, основан
 ```bash
 magnet:?xt=urn:btih:707926186513360C28CCF62D19D3FE572B0E5369
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ Deepin 23 — новый релиз популярного дистрибути�
 magnet:?xt=urn:btih:B5C2C75808FD76134DD624006D01DA96640935C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ Ubuntu Desktop — это популярная операционная сист
 ```bash
 magnet:?xt=urn:btih:35C9F3F74C16539822F222410F20F7577BCA8545
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

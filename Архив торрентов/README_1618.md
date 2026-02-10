@@ -20,6 +20,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 magnet:?xt=urn:btih:14FEF242197FC88DF6965A97478FCA2AD0131142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ NG: Чудеса инженерии: Грузовой самолёт / Big Bigge
 magnet:?xt=urn:btih:DE0529ED923A1B7B4C945FD1AA4808D6A12FF78C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:DE0529ED923A1B7B4C945FD1AA4808D6A12FF78C
 magnet:?xt=urn:btih:44E369BA016C0905D1707EAE6C7171F5931B99E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:44E369BA016C0905D1707EAE6C7171F5931B99E9
 ```bash
 magnet:?xt=urn:btih:EC2ED12057D9D4A0727BB46A17DEB8FBAEA3FCDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ PDF Conversa Pro - легкий и быстрый в использовании 
 magnet:?xt=urn:btih:2239CCE443FBFE75CD8165ADBE975B237E3EBC97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ Dato поддерживает все языковые стандарты и яз
 magnet:?xt=urn:btih:38BD5BA853C69ECAB5FBF22695CF2A4E4CA299D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ Icecream Screen Recorder - программа, позволяющая вести
 ```bash
 magnet:?xt=urn:btih:DB9277E57A841473E32608023C8F5F6873E23DBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:DB9277E57A841473E32608023C8F5F6873E23DBC
 magnet:?xt=urn:btih:B3F02CA3778A53364165D756899D9FF4CB7440AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ GraphicConverter 11 — полнофункциональный графичес�
 ```bash
 magnet:?xt=urn:btih:C5993D114323FE718F47BBD52CBC19A387FE3552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ The Bat! – общепризнанная система обработки эл
 magnet:?xt=urn:btih:E85A34BB73BA8C6FDCEF87BF582A2B74BD02725A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ WinUtilities - системный набор для настройки ваше�
 magnet:?xt=urn:btih:60C0D6661B5454E659C6DFCF441D062838636BA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Data Guardian 7 v.7.5.1 [En]
 ```bash
 magnet:?xt=urn:btih:DE2A3C43FBE54E7AE26F39817ED593F9ABE0BAB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ ABBYY Lingvo Dictionary для Mac 1.10.2 [Multi/Ru]
 magnet:?xt=urn:btih:F5B9F46B05459DB7994641BA9E8168B00DF3C5E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:F5B9F46B05459DB7994641BA9E8168B00DF3C5E6
 ```bash
 magnet:?xt=urn:btih:182E95B36DE1F85A8CA6167FCD84410EA4D26151
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ HD Video Converter Factory Pro - удобный конвертер всех на
 magnet:?xt=urn:btih:E155F8359AE5B32A9954784BAD07350DC1D0FDFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:E155F8359AE5B32A9954784BAD07350DC1D0FDFA
 ```bash
 magnet:?xt=urn:btih:C6433827CD95D991944B8C739BAB99A3BED3CD0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ SUMo (Software Update Monitor - монитор обновлений програ
 magnet:?xt=urn:btih:8B62FC1D06CB5538C43E984C347AFD2FB454D120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 magnet:?xt=urn:btih:D960E97F08DCCA9DB8DD39876F92168F113F85B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +492,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:00E12CBB5A35235EE9EBFF2E5246A999E3920895
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:00E12CBB5A35235EE9EBFF2E5246A999E3920895
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Rainmeter - программа для мониторинга ресурсов к
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ EximiousSoft Logo Designer - простая и интуитивно понятн
 magnet:?xt=urn:btih:223C6C10F9AB9C32B689000CB740366FB56B6301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:223C6C10F9AB9C32B689000CB740366FB56B6301
 ```bash
 magnet:?xt=urn:btih:7C2C73022F51DF3A5877DF72E89F6C276434EBE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Focusplan - это мощное, полнофункциональное и ги�
 magnet:?xt=urn:btih:6106451184BFE9BA317C1A0939633136E28AF2CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ Soft Organizer Pro 7.51 RePacK by KpoJIuK [Ru/En]
 magnet:?xt=urn:btih:2E0B44D3C607A0D4362D42A69DD8ED28C8DD63D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ UPgrade – еженедельный журнал о компьютерах и �
 ```bash
 magnet:?xt=urn:btih:CE05D45AE46725AA19C0C51E1877BA9C9A554603
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ A4 Dream For Sale(   Читать дальше...   )Жанр: Pop Rock, Rock & 
 magnet:?xt=urn:btih:0A8C53AD18B67ED9DF88C10D936186AA13DB730C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ A4 Vaghissima Sembianza(   Читать дальше...   )Жанр: Classical, 
 ```bash
 magnet:?xt=urn:btih:0086FC9B535DD7B2ADD5FCB8C19F5145030CD0F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ A4 The Yellow Rose Of Texas(   Читать дальше...   )Жанр: PopПр
 magnet:?xt=urn:btih:EF191AEEF168D6CD3F25ACFEACEC26034A7DAB10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ B2 Sheep(   Читать дальше...   )Жанр: Psychedelic Rock, Prog Roc
 magnet:?xt=urn:btih:304FB3254AA568F969537BC00D26F18CEA4B254B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -128,6 +136,8 @@ Deadlock - немецкая метал-группа из Шварценфель�
 ```bash
 magnet:?xt=urn:btih:C12AACE037EC6CE33DBA11740FE921C0BD82FF30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -156,6 +166,8 @@ Marianas Rest - метал-группа из города Котка, Финля
 magnet:?xt=urn:btih:D8FF6E73649C84AF8530CBDD1BF6A328FEA3694C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +194,8 @@ Orpheus Omega - австралийская метал-группа из Мель
 ```bash
 magnet:?xt=urn:btih:7816492845F92D3F8C883996EACF737A75AAFD0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +224,8 @@ Serenity In Murder - японская метал-группа, образова�
 magnet:?xt=urn:btih:F42CA6C09E62BAC12AAE2907D3C5C4D6FE69B9B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +252,8 @@ A4 Abacachi(   Читать дальше...   )Жанр: Soundtrack, Theme, Easy
 ```bash
 magnet:?xt=urn:btih:79E2EB7C07B3A7AE5F3CDB5ABC19AE915918628C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ B1 Fishing Junks At Sunset(   Читать дальше...   )Жанр: Electron
 magnet:?xt=urn:btih:9BB63BC1A83628DBC73999CE6922756D257B0660
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ A4 Percy Faith - The Girl From Ipanema(   Читать дальше...   )Жан
 ```bash
 magnet:?xt=urn:btih:58F98397BC520059E590539FD14AC2F7FEA0A4A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +340,8 @@ A4 The Shadow Of Your Smile(   Читать дальше...   )Жанр: Pop, Ea
 magnet:?xt=urn:btih:4B26BC68B8BA429C86224CDAF6A2859C09433044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ B1 Banana Republic(   Читать дальше...   )Жанр: Rock, New Wave, 
 ```bash
 magnet:?xt=urn:btih:A1A298C245597DDF30D165D36C4C78016994747D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +398,8 @@ B1 The Vienna State Opera Orchestra - Three Hungarian Dances (Nos. 6, 7 And 1) B
 magnet:?xt=urn:btih:12B91270303C405F91D635574F13175399F914C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ B She's So Beautiful
 ```bash
 magnet:?xt=urn:btih:CA037D554CEFF014C5E7EF99CAD68EBC8E1FD30F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ Avatar — шведская метал-группа, образованная в
 magnet:?xt=urn:btih:FC7FF94010E2853698E089E12690D9F97DEF78E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ Jarkko Kalevi Ahola.2012 - Stoneface
 ```bash
 magnet:?xt=urn:btih:4839E79D411FD3D0277C1136D3A0D83783809464
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ Avatarium — шведская рок-группа из Стокгольма, о
 magnet:?xt=urn:btih:E1CA7CB64211C5FE3D234649BB84FAEA65674A16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ B3 High Class Baby(   Читать дальше...   )Жанр: Pop RockПрод
 ```bash
 magnet:?xt=urn:btih:5586CFE591AE092C5124B271D1D8043899C3B871
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +571,8 @@ Queens of the Stone Age - рок-группа, образованная в 1997 
 magnet:?xt=urn:btih:7F9808055C37CCF3A1964065AC27EBEA7B489D71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +599,8 @@ A4 Carrie(   Читать дальше...   )Жанр: Soft Rock, Pop Rock, Ball
 ```bash
 magnet:?xt=urn:btih:A77A8D9A5B131DF7F5CA97E7FD12F303D9F055BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +629,8 @@ A4 Forever(   Читать дальше...   )Жанр: Pop RockПродолжи
 magnet:?xt=urn:btih:9A58C67463F6F1E01AB056714C2D4AF97188FC4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ Protector — метал-группа из Вольфсбурга, Нижняя 
 ```bash
 magnet:?xt=urn:btih:08E2FCB44B10665A07D81233729FC2A48FE89BFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +687,8 @@ Ronnie Romero - Studio Albums (4 releases) (2022-2025) hand made [restored, decl
 magnet:?xt=urn:btih:0E3C80538E4763A3B9730E440CE1CE5F0750493D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +716,8 @@ Side A
 magnet:?xt=urn:btih:F725BF81796F2AE6CA4552E86CF520064ED805FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +744,8 @@ A4 Front Page(   Читать дальше...   )Жанр: Synth-pop, Pop RockП
 ```bash
 magnet:?xt=urn:btih:FB83BB4932B80DD0E3F23B07E3054304193FBBDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

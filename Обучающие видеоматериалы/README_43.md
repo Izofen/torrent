@@ -19,6 +19,8 @@ Motion Science, Cameron Pierron | Rock & Roll Parallax (2020) WEB-DL [EN, RU]
 magnet:?xt=urn:btih:7487A7228B42D6042B3B9AC19EC3122A8E99F0C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Udemy, Christ Raharja | The Future of Copywriting: Creating Ad Copy & Video with
 ```bash
 magnet:?xt=urn:btih:C64B4F3276FD3861DD277018A417AEBA93513D41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ After Effects CC и Photoshop CC. Лучше всего использовать
 magnet:?xt=urn:btih:0FF1B2D055926FD404A8506373E3D68BADBF00D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:0FF1B2D055926FD404A8506373E3D68BADBF00D9
 ```bash
 magnet:?xt=urn:btih:AC58AC55990FAB6B7E71F9DB3C17E606218E95DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:AC58AC55990FAB6B7E71F9DB3C17E606218E95DD
 magnet:?xt=urn:btih:B29059C85BAF188FDC8474FE57238E463EE9ABC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Udemy, Auripher Aetas Aurea | Journey to After Effects Mastery: Unleash Your Cre
 magnet:?xt=urn:btih:4F2DF4C472D9A3F7D5D2A069F3F048739D07907C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Andreas начнет с объяснения своего подхода к ди
 ```bash
 magnet:?xt=urn:btih:7657C7D7D4380EAD22FBB2AF4576F407ED98713E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:7657C7D7D4380EAD22FBB2AF4576F407ED98713E
 magnet:?xt=urn:btih:03FD2F3247DDC696D6B68C9FC800EB60EEDF0C2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ Motion Science, Cameron Pierron | Master Main Titles (2020) WEB-DL [EN, RU]
 ```bash
 magnet:?xt=urn:btih:A48BC1D1FA896D0AA0C6B8C2E4BEA26DEE93E70D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:A48BC1D1FA896D0AA0C6B8C2E4BEA26DEE93E70D
 magnet:?xt=urn:btih:B47D8285000FF99F1A0599343ED1C5AA6079ED15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Udemy, Meta Brains | Blender Mastery for Beginners: 3D Design & Rendering (2023)
 ```bash
 magnet:?xt=urn:btih:B038397C4E644808C01DCDE50182E68BF885401D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +322,8 @@ Motion Science, Cameron Pierron | Typography 101 (2020) WEB-DL [EN, RU]
 magnet:?xt=urn:btih:E5EFEE16B3C4B64EB86E7502546FFBAC6D3E8D08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ Medforyou - школа медицины, Михаил Рыбалов | Курс 
 ```bash
 magnet:?xt=urn:btih:1781CA2D0C7CBF7BF4900AFF54F823F3D8BBAE7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ Hudozhnik Online, Роман Круглов | Графические зарис�
 magnet:?xt=urn:btih:D5B04A8C4E9AB5B28EE1137D779539F44B93E870
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:D5B04A8C4E9AB5B28EE1137D779539F44B93E870
 ```bash
 magnet:?xt=urn:btih:9482776CDA8004B7332951608D589090E3DD055E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ AWS Certified Developer Associate — одна из самых ценных и �
 magnet:?xt=urn:btih:82D30AD4E9646A5C576476E5864BD63E4D1DBFE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ Udemy, Nikita I. | Java Stream API полный курс с нуля для но
 ```bash
 magnet:?xt=urn:btih:9A2A3E4DC42389D79BF3FDA2D6CB688B80009A03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ Udemy, AI Sciences | AWS Essentials: Master Cloud Computing from Scratch - AWS (
 magnet:?xt=urn:btih:951E6E6280C23463AEE34308B471ADD1CA090ED6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ Hudozhnik Online, Дарья Куцаева | Акварельный портр�
 magnet:?xt=urn:btih:FAE2435BF224DF6AFD4217E5C4AC8679D58A50D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ Udemy, Ohans Emmanuel | AstroJS 101: Build Blazing Fast Frontends! (2023) WEB-DL
 ```bash
 magnet:?xt=urn:btih:E556765B2D001C94A4AD3C65D8AFE69BEFF5EA81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ magnet:?xt=urn:btih:E556765B2D001C94A4AD3C65D8AFE69BEFF5EA81
 magnet:?xt=urn:btih:657A4828EA7244C57B42B1CC618445A047EC478B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ Kalacheva School, Вероника Калачева | Композиция си�
 magnet:?xt=urn:btih:A171CA8CE106E694F256E17012851707FC3A61A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ react.gg, ui.dev (ex. Tyler McGinnis) | The interactive way to master modern Rea
 ```bash
 magnet:?xt=urn:btih:D8076B3CE2CC64A039C50E8CD62081A949EC815E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ Figma — самый популярный сегодня инструмент UX
 magnet:?xt=urn:btih:3AE8B5371D583D1220BFF2CE28703268925EA38A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +683,8 @@ Fit-Standard, Владимир Лапин | Техника выполнения 
 magnet:?xt=urn:btih:70A473D806DB4CEBE6B11AEF632E17871B476329
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ magnet:?xt=urn:btih:70A473D806DB4CEBE6B11AEF632E17871B476329
 ```bash
 magnet:?xt=urn:btih:755E62C3CD4703287108AB6200222FD732019541
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

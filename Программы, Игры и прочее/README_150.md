@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:FAC2ECBF05C7F35B70E1C2D4DC1728B99D2111F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:FAC2ECBF05C7F35B70E1C2D4DC1728B99D2111F6
 ```bash
 magnet:?xt=urn:btih:2A5D923EC9F2ED08003BBDA07BF0C0102FB48A3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Wim Hof Method v6.2.0 [En] - Making you strong, healthy & happy
 ```bash
 magnet:?xt=urn:btih:73A4DE22F3B71173EF25B51341CF0FA6199FB6CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Kinoplay позволяет смотреть любимое кино на люб
 magnet:?xt=urn:btih:4865F5803750CAF75054FCCDC59C19F2B0F104D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Handy Photo – это приложение, разработанное с мы�
 ```bash
 magnet:?xt=urn:btih:083F47C987E66027D4EFD9043204896DA3D4B255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ IELTS Listening - бесплатное приложение для всех, к�
 magnet:?xt=urn:btih:8CD7B0992EEA259132A159A32043932949D523D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:8CD7B0992EEA259132A159A32043932949D523D6
 ```bash
 magnet:?xt=urn:btih:6A5E850E6C7AC558288A2473CEE8B038BED1A9FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -206,6 +220,8 @@ KMPlayer Plus v31.04.120 [Ru]
 magnet:?xt=urn:btih:D67E976A15299B7AB2891D9B8766DFA71081C1A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -233,6 +249,8 @@ DiagScan позволяет вам считать коды ошибок чере
 magnet:?xt=urn:btih:1DE344A7DCE924DC0C7D3B1B7811D2C14F3B0ACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ Stoxy помогает эффективно отлеживать рынки ак
 ```bash
 magnet:?xt=urn:btih:E46C074F19D84844F925AFBFFAB62707144AF270
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +301,8 @@ FIMO фиксирует красоту и волшебство старинны�
 ```bash
 magnet:?xt=urn:btih:74DC8F253AC44CAE884DB05A0E3654774ED7F42C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +330,8 @@ magnet:?xt=urn:btih:74DC8F253AC44CAE884DB05A0E3654774ED7F42C
 magnet:?xt=urn:btih:FFF99F4F6F21B55A9C56A0C095F10F5B1641B3BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +357,8 @@ QS Английский язык v1.10 [Ru]
 ```bash
 magnet:?xt=urn:btih:24C710C48804859D250F73BD3F153F9BB7BFF243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +387,8 @@ magnet:?xt=urn:btih:24C710C48804859D250F73BD3F153F9BB7BFF243
 magnet:?xt=urn:btih:D3458F8B201AF82560A0A45DBD84D5B8E1CB525F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +412,8 @@ Scan & Translate+ Text Grabber v4.3.8 [Ru]
 ```bash
 magnet:?xt=urn:btih:F8B298CEB921B428179EF6B5474B29AE328744A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +439,8 @@ Lapse It • Time Lapse • Pro v4.70 [Ru]
 magnet:?xt=urn:btih:0EC83B96E9E4613F9042CA6354D0258E3E1E3EF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:0EC83B96E9E4613F9042CA6354D0258E3E1E3EF5
 ```bash
 magnet:?xt=urn:btih:F41CC4479883CD59F42763459946D2159ED6A755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +492,8 @@ Perfectly Clear позволяет создать идеальную фотог�
 magnet:?xt=urn:btih:AEECEA41C8D5FCF721F4B6AB6341FB4436772940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ REVER - Motorcycle GPS, Route Planner & Discover v5.0.5 [En]
 ```bash
 magnet:?xt=urn:btih:DAC2E31E066B1206D947AF40E925F65070F42334
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +545,8 @@ Investing.com — универсальный источник информаци
 ```bash
 magnet:?xt=urn:btih:150942860FC6548C6AE2874549A51D62E072C239
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +575,8 @@ Talkao Translate - Перевести голос и словарь by Talkao - T
 magnet:?xt=urn:btih:7E5B007CA8AF55E27F28847B3ABFE460A144CEA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ magnet:?xt=urn:btih:7E5B007CA8AF55E27F28847B3ABFE460A144CEA3
 magnet:?xt=urn:btih:41D0C415BF9DF9B48944BBB405DB21C1337BB9CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ Cat Scanner v10.2.10-G [Ru] – Идентификация породы коше
 magnet:?xt=urn:btih:43E6CDE484527CE1DB1BF1512E5CE1FD0A798CC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +654,8 @@ Dog Scanner v10.2.10-G [Ru] – Идентификация породы соба
 ```bash
 magnet:?xt=urn:btih:52A4CD0E2C9E68218732DD06311630A03304E7D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +684,8 @@ Raymond Murphy’s English Grammar in Use.
 magnet:?xt=urn:btih:ED923A907BBF227652A14CF361116BA493F3366C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ Moises v1.3.1 Premium [Ru] - Муз. платформа с ИИ + удалите
 ```bash
 magnet:?xt=urn:btih:7452FB1F87695047F265C4FF281406A7F1847F6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D8EE5084FBC9AAD09B38745A2AADD7143012ED19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 ```bash
 magnet:?xt=urn:btih:C29F8220DBAA40EDC75FA79DF86FE32988B9DC07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:C29F8220DBAA40EDC75FA79DF86FE32988B9DC07
 magnet:?xt=urn:btih:521113C22730B619931A5FAF246F4457012CFA48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:521113C22730B619931A5FAF246F4457012CFA48
 ```bash
 magnet:?xt=urn:btih:36EB89A95DEBD7BD0963184FE5E7753458F949AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:36EB89A95DEBD7BD0963184FE5E7753458F949AC
 magnet:?xt=urn:btih:2F292BBF9C5CEAF204CC3F1662C1FDF47AE6BC58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ IceCream Ebook Reader Pro 6.31 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:18526207B3ED88AA70914838F1552737CCC34E04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:18526207B3ED88AA70914838F1552737CCC34E04
 magnet:?xt=urn:btih:2669D2DAEAB973A905CD1115A79CFC7501A6DCCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:2669D2DAEAB973A905CD1115A79CFC7501A6DCCF
 ```bash
 magnet:?xt=urn:btih:7A3FE86C1331F439D881286ED90D26DD1E5952F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ OneLoupe 5.66 Portable [Multi/Ru]
 magnet:?xt=urn:btih:BF715BBA2CEB235ACBB427EF495F862F5BDBD169
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:BF715BBA2CEB235ACBB427EF495F862F5BDBD169
 ```bash
 magnet:?xt=urn:btih:4BA55BC0423E797A35608614FF77F76FFF9750D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:4BA55BC0423E797A35608614FF77F76FFF9750D2
 magnet:?xt=urn:btih:94753C2255C92A6BD53F801464F751F9399AEB3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:94753C2255C92A6BD53F801464F751F9399AEB3D
 ```bash
 magnet:?xt=urn:btih:7AD927598B8F28C61CE31BB37A52292094697E6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ RubyMine — умная и удобная интегрированная сре�
 magnet:?xt=urn:btih:2C56A89FC5963EFB334821CC1B20844E2F29F344
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:2C56A89FC5963EFB334821CC1B20844E2F29F344
 ```bash
 magnet:?xt=urn:btih:CBD8E700F28F299910E93AAE83D490D13696BFEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +394,8 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 magnet:?xt=urn:btih:8F984E9D972993152062147990A7144DDD623FCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:8F984E9D972993152062147990A7144DDD623FCE
 ```bash
 magnet:?xt=urn:btih:87C2F8A08206DAD2D22AC1234ED2F9835F3DFCDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:87C2F8A08206DAD2D22AC1234ED2F9835F3DFCDC
 magnet:?xt=urn:btih:48FB230B5D219BC00406B785E8BCB53097AC04D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:48FB230B5D219BC00406B785E8BCB53097AC04D7
 ```bash
 magnet:?xt=urn:btih:B08AB8A672A9341C9688B7D818A47D69873A2087
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ PopChar 8.7.0.3001 RePack (& Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:53EAC1D4D202D2CF7D6820B9BB9E9972559F90B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:53EAC1D4D202D2CF7D6820B9BB9E9972559F90B9
 magnet:?xt=urn:btih:8ED14B61D9CE6A11367489C8A3B5A54BABCAFD50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:8ED14B61D9CE6A11367489C8A3B5A54BABCAFD50
 magnet:?xt=urn:btih:F248881E93291FF746FD3B2CDDCFDAF3FF7E5418
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:F248881E93291FF746FD3B2CDDCFDAF3FF7E5418
 ```bash
 magnet:?xt=urn:btih:3FFC95597004FD74F1C0A43CBCE7A69BDE1441E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +608,8 @@ Maximilian Schwarzmuller | React Key Concepts: Consolidate your knowledge of Rea
 magnet:?xt=urn:btih:BDD740ABE6BB1F932B2DDE90AA28D071315F70F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 ```bash
 magnet:?xt=urn:btih:972C36A1E8C8C66511AC2CFAB61397EA8C3D65D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ Stephen Chin и др. | DevOps Tools for Java Developers (2022) [PDF][EN]
 magnet:?xt=urn:btih:D576D958A0E4D52F725A0B03306FE13F6D99FB55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:D576D958A0E4D52F725A0B03306FE13F6D99FB55
 ```bash
 magnet:?xt=urn:btih:3FE36E1C04A48FBB85D7E6915192CF6F9CED1AE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Girls Bravo | Браво, девушки! [2004, TV, 11 из 11] DVDRip 480p raw
 magnet:?xt=urn:btih:D6FC579F6179C0B9897D6CF4AEE51D9FE4264913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Zom 100: Zombie ni Naru made ni Shitai 100 no Koto | Zom 100: Bucket List of the
 ```bash
 magnet:?xt=urn:btih:1AB86A5998A97947CE8FD950C5FFB57BAA25939E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Uchuusen Sagittarius | Spaceship Sagittarius | Искатели приключе
 magnet:?xt=urn:btih:207BF54615C57D4F1A999FC4C1532D08E043C8FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:207BF54615C57D4F1A999FC4C1532D08E043C8FF
 ```bash
 magnet:?xt=urn:btih:1E00102A50AB03AD3DC98097228B8D41C27F2A43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:1E00102A50AB03AD3DC98097228B8D41C27F2A43
 magnet:?xt=urn:btih:80E227F41B1C5E079CD90E9652F1E29EC2EF0B61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:80E227F41B1C5E079CD90E9652F1E29EC2EF0B61
 ```bash
 magnet:?xt=urn:btih:323FAE8CF5D270506A3FBD2DF89AB7A18DB597A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:323FAE8CF5D270506A3FBD2DF89AB7A18DB597A0
 magnet:?xt=urn:btih:359EED14D57198B7F346696445A3E46C905A99BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Lookism | Лукизм [2022, ONA, 8 из 8] WEBRip 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:2FB1E1DB342FA389526C0AD5AA56CA934C11A863
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Urusei Yatsura (2022) | Lum, the Invader Girl | Несносные пришел�
 ```bash
 magnet:?xt=urn:btih:1440E1DD9798D8BAFF50D3F00625021D5093F01F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Oshi no Ko | Звёздное дитя [ТВ-1] [2023, TV, 11 из 11] BDRip 108
 magnet:?xt=urn:btih:02866B142B0428A838F5045557AC8165A2943CF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Kimi wa Houkago Insomnia | Insomniacs After School | Бессонница пос
 magnet:?xt=urn:btih:D26667E9E4F3D9614BE944386792951523AA21F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Choujigen Game Neptune The Animation | Hyperdimension Neptunia - The Animation |
 ```bash
 magnet:?xt=urn:btih:9C9615B56BB27A6AC0943DD811CB644C8466C70F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:9C9615B56BB27A6AC0943DD811CB644C8466C70F
 magnet:?xt=urn:btih:0AB6C2890EB4EEE87F002F9C0309F082DFF6E10E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:0AB6C2890EB4EEE87F002F9C0309F082DFF6E10E
 ```bash
 magnet:?xt=urn:btih:C88C5D4E9B0FBCCDF783ED2F7EEF12A64604140E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ Boku no Tonari ni Ankoku Hakaishin ga Imasu | A Destructive God Sits Next to Me 
 magnet:?xt=urn:btih:908AE68D2E29F31FB6F9434426FF1E1ECC0FB791
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Super Lovers OVA | Больше, чем возлюбленные OVA [2017, OVA,
 ```bash
 magnet:?xt=urn:btih:29381DB31E2CDBE7042C137FA3628018805BFDB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Super Lovers II | Больше, чем возлюбленные 2 [2017, TV, 10 
 magnet:?xt=urn:btih:BDA90F853C3E837FE9565A01D44FE8D2E0E29471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Loop 7-kaime no Akuyaku Reijou wa, Moto Tekikoku de Jiyuukimama na Hanayome Seik
 ```bash
 magnet:?xt=urn:btih:3597CDAEC372BAF30AB49E4AEE6DCE4727776EA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Re-Main | Ре-Мейн [2021, TV, 12 из 12 эп.] BDRip 1080p HEVC 10-bit raw
 ```bash
 magnet:?xt=urn:btih:B16F3E9177F43681E8BD62B56629B8AB664EEACD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Kanokon - The Girl Who Cried Fox / Kanokon / Канокон [2008, TV, 12+12+2] 
 magnet:?xt=urn:btih:CA9769FDD7A8F207B5C65BF83198E235AAC740EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Exaella / Эксэлла [2011, OVA, 4] DVDRip 480p raw + eng + rus
 ```bash
 magnet:?xt=urn:btih:F432DB591B184431041E136FF27EC4EC7531B8FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Gokusen / Гокусэн [2004, TV, 13 из 13] DVDrip 544p raw + rus
 magnet:?xt=urn:btih:7E4CDC97B2E30379E745C87CE364309E9B87C273
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Chuu Bra!! / Chu-Bra!! / Чу-Бра!! [2010, TV, 12] BDRip 720p raw + rus
 ```bash
 magnet:?xt=urn:btih:58532ABBCA17903CD984BAD6EC575355E491AD50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:58532ABBCA17903CD984BAD6EC575355E491AD50
 magnet:?xt=urn:btih:B34329D2870DEE85BDD52ABF1A3B05D9921F59F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Nageki no Bourei wa Intai Shitai TV-2 | Let This Grieving Soul Retire! 2 | Пл�
 ```bash
 magnet:?xt=urn:btih:C90706EDC07C26E0BF894AB7F6C744AB6AE9AD13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +679,8 @@ Ji Jia Shou Shen: Baolie Feiche 4 | Screechers Wild 4! | Дикие Скриче
 ```bash
 magnet:?xt=urn:btih:505C7C9B227B072F85A02930EBBE7750C8687B02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

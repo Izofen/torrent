@@ -1,3 +1,31 @@
+###  Публикация: 1108387   (862017) от 25.02.2017
+
+Илсе Санд | Страх близости. Как перестать защищаться и начать любить (2017) [EPUB, FB2, MOBI]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_862017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человеческая психика устроена милосердно: мы забываем слишком неприятные и болезненные ситуации и эмоции, чтобы жить нормально. Однако нормально – не значит счастливо. За высоким забором сложно увидеть красоту мира и трудно завязать знакомство с новыми людьми.
+
+Датский психотерапевт Илсе Санд на примерах из жизни объясняет, как разные варианты психологической защиты (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, практическая психологияФормат: EPUB, FB2, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66884EC89DDD31D0235D406D6D420742B1D4E36E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1108450   (862030) от 25.02.2017
 
 Павел Сивожелезов | Сложные переговоры с подчиненными. Практическое пособие для руководителей (2016) [PDF, RTF]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:F151114BC8D8D3EF8A6621323BCDD1D139725741
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +72,8 @@ magnet:?xt=urn:btih:F151114BC8D8D3EF8A6621323BCDD1D139725741
 ```bash
 magnet:?xt=urn:btih:84513F1250B3E462CCA6E167E2C969A09F7A376D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +100,8 @@ magnet:?xt=urn:btih:84513F1250B3E462CCA6E167E2C969A09F7A376D
 magnet:?xt=urn:btih:E4E8C7140BBC1F0EB847B8094A0EB81A72A1740E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +125,8 @@ magnet:?xt=urn:btih:E4E8C7140BBC1F0EB847B8094A0EB81A72A1740E
 ```bash
 magnet:?xt=urn:btih:B4922CC64188D47C785D14E45E92CA0B936C7514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +152,8 @@ magnet:?xt=urn:btih:B4922CC64188D47C785D14E45E92CA0B936C7514
 magnet:?xt=urn:btih:D2D7C01C0BAC40482C527E695B3E20F68D63F592
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +177,8 @@ magnet:?xt=urn:btih:D2D7C01C0BAC40482C527E695B3E20F68D63F592
 ```bash
 magnet:?xt=urn:btih:E2941114C42A9D374911AA825C7EADC5C9D6DC35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +205,8 @@ magnet:?xt=urn:btih:E2941114C42A9D374911AA825C7EADC5C9D6DC35
 magnet:?xt=urn:btih:86D56F020CF55506C51B7C0FF3548E7884B8A1D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +230,8 @@ magnet:?xt=urn:btih:86D56F020CF55506C51B7C0FF3548E7884B8A1D8
 ```bash
 magnet:?xt=urn:btih:B461E75CF1931CB3BED5C5A6B83F4255AC9C176D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +257,8 @@ magnet:?xt=urn:btih:B461E75CF1931CB3BED5C5A6B83F4255AC9C176D
 magnet:?xt=urn:btih:7032F92B7929A039D270347CDBBCA47964976D96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +282,8 @@ magnet:?xt=urn:btih:7032F92B7929A039D270347CDBBCA47964976D96
 ```bash
 magnet:?xt=urn:btih:AF4EF1B2DD6816B0260A5B054769F7F4CA4A93D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +309,8 @@ magnet:?xt=urn:btih:AF4EF1B2DD6816B0260A5B054769F7F4CA4A93D3
 magnet:?xt=urn:btih:49BF339EA78506EEC8EDFBE6CDE7739408F9275B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +334,8 @@ magnet:?xt=urn:btih:49BF339EA78506EEC8EDFBE6CDE7739408F9275B
 ```bash
 magnet:?xt=urn:btih:7BD5FEA522FDAD99EF3AAC61CA528A0CCD5B2141
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +361,8 @@ magnet:?xt=urn:btih:7BD5FEA522FDAD99EF3AAC61CA528A0CCD5B2141
 magnet:?xt=urn:btih:1D81C4241A64F4AEC49B21FD3F51F1052725AF71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +387,8 @@ magnet:?xt=urn:btih:1D81C4241A64F4AEC49B21FD3F51F1052725AF71
 ```bash
 magnet:?xt=urn:btih:473E40B20CDB338680E6F40E5041187FBBB8B947
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +416,8 @@ magnet:?xt=urn:btih:473E40B20CDB338680E6F40E5041187FBBB8B947
 magnet:?xt=urn:btih:9E620C98BFAEED48124831C0304D112F2932AC5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +441,8 @@ magnet:?xt=urn:btih:9E620C98BFAEED48124831C0304D112F2932AC5B
 ```bash
 magnet:?xt=urn:btih:E646605532A02A6D51834C00A8FD0CBE4642AE39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +468,8 @@ magnet:?xt=urn:btih:E646605532A02A6D51834C00A8FD0CBE4642AE39
 magnet:?xt=urn:btih:50B673E332ED3B9163CB2C165E59872AF9A8F948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +493,8 @@ magnet:?xt=urn:btih:50B673E332ED3B9163CB2C165E59872AF9A8F948
 ```bash
 magnet:?xt=urn:btih:9A2F595015DD157675BBFC459CC976E1A62C92AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +520,8 @@ magnet:?xt=urn:btih:9A2F595015DD157675BBFC459CC976E1A62C92AE
 magnet:?xt=urn:btih:C5176E390FA4C01B23114CA33EC40843E61DB68F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +545,8 @@ magnet:?xt=urn:btih:C5176E390FA4C01B23114CA33EC40843E61DB68F
 ```bash
 magnet:?xt=urn:btih:67D762AA7DADDA013B007E0BEE850369351E3E86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +572,8 @@ magnet:?xt=urn:btih:67D762AA7DADDA013B007E0BEE850369351E3E86
 magnet:?xt=urn:btih:C0AEF8E2118E1EDE945A166568AE8219BAFF1A5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +597,8 @@ magnet:?xt=urn:btih:C0AEF8E2118E1EDE945A166568AE8219BAFF1A5D
 ```bash
 magnet:?xt=urn:btih:9913C0B83810D37A0BFF1732F858360B87D2DF5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +626,8 @@ magnet:?xt=urn:btih:9913C0B83810D37A0BFF1732F858360B87D2DF5D
 magnet:?xt=urn:btih:39AAF13C6C9D4563A28EA8C708C8B8B6A9389005
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +651,8 @@ magnet:?xt=urn:btih:39AAF13C6C9D4563A28EA8C708C8B8B6A9389005
 ```bash
 magnet:?xt=urn:btih:B831DE7AA167629A2FB2A8B2B8E525484EF5C36D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,30 +678,7 @@ magnet:?xt=urn:btih:B831DE7AA167629A2FB2A8B2B8E525484EF5C36D
 magnet:?xt=urn:btih:929DC77CC647F1608EBF28B3D05F2872D5DDFB35
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 768176   (862330) от 19.03.2014
-
-Анна Ахматова | Мой муж Гумилев, отец Гумилева (2014) [PDF]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Перед вами дневники Анны Ахматовой – самой исстрадавшейся русской поэтессы. Чем была наполнена ее жизнь: раздутым драматизмом или искренними переживаниями? Книга раскроет все тайны ее отношений с сыном и мужем. И секреты ее многочисленных романов.
-Откровенные воспоминания Лидии Чуковской, Николая и Льва Гумилевых прольют свет на неоднозначную личность. И расскажут, какой ценой любимая всем миром поэтесса создавала себе биографию.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB3D01470DC31CB90252D9F5DBC1A7EFB2A76395
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

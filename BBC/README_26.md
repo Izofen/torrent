@@ -19,6 +19,8 @@ BBC: Борьба за выживание / The Trials of Life (1990) 4*Blu-ray 
 magnet:?xt=urn:btih:D3ACEFA7E0091EAD90696392A5CEB6658B3BA8BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC. Время / Time (2006) DVDRip [H.264] (серии 1-4 из 4)
 ```bash
 magnet:?xt=urn:btih:322AF982AEDE5B8B05CA274C28381B81A4DE0CAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ BBC. Земля: Один потрясающий день / Earth: One Amazing D
 magnet:?xt=urn:btih:70098F3CDBDED7672EC67D65A4B90FD2F1A41E08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ BBC. Голубая планета 2 / Blue Planet II (2017) UHD BDRemux [H.265/
 ```bash
 magnet:?xt=urn:btih:BD6F3A1076D09298CDA1398B01B22AFFB9433D92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ BBC: Сексуальная эксплуатация малолетних в Я�
 magnet:?xt=urn:btih:80D261A3A2A0FDC08CF69A17A72B08BAA0D64C0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BBC: Планеты / The Planets (2019) HDTVRip [H.264/720p-LQ] (сезон 1, 
 ```bash
 magnet:?xt=urn:btih:6BC320F436DF8B27847FBAFE0E7160F60A515DF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ BBC: Серенгети / Serengeti (2019) BDRip [H.264/720p] (сезон 1, с�
 magnet:?xt=urn:btih:C03209B49BB742EBD8FF4C033B875921C356086D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ BBC: Бог любит Уганду / God Loves Uganda (2013) WEBRip [H.264/1080
 ```bash
 magnet:?xt=urn:btih:E6FEBFE3C35247D87CD6D62B034E7667DA4D28C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Art of Russia - 3-х серийный фильм о русском иску�
 magnet:?xt=urn:btih:2FD71BDD1A38237141FB4E9898AA2CECFE43CB9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ BBC. Искусство Испании / The Art of Spain (2008) SATRip (сер�
 ```bash
 magnet:?xt=urn:btih:7D00ECDADDABFBB63E254218E00F5E242253190E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ BBC. Искусство Германии / Art of Germany (2010) HDTVRip (сер
 magnet:?xt=urn:btih:925BF9A960C42D08E95DC817CA85CF3699DCA453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ BBC. Искусство стран Бенилюкса / The High Art of the Low 
 ```bash
 magnet:?xt=urn:btih:1B278A3C183689316C8B07276C77FE76F8AD39D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ BBC. Взломщики кодов. Забытые герои Блетчли-П�
 magnet:?xt=urn:btih:B196D005648B7838CC4E4E8706D89164FBA906E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ BBC: Удивительный мир данных / The Joy of Data (2016) HDTVR
 ```bash
 magnet:?xt=urn:btih:B502D14C197B02A0619080A12BFBEC9F516509CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ magnet:?xt=urn:btih:B502D14C197B02A0619080A12BFBEC9F516509CD
 magnet:?xt=urn:btih:8AF4542DFB2C8A8F718CE45C6461A7661C637E6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ BBC. Тайны вселенной: Великие ученые своими с�
 ```bash
 magnet:?xt=urn:btih:107963D4BE49DCA6B108F27DAA26CFD9EA6FFC78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ magnet:?xt=urn:btih:107963D4BE49DCA6B108F27DAA26CFD9EA6FFC78
 magnet:?xt=urn:btih:DF6819CBF4A8952E55C62E5738B537EFC1B48F57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ BBC: Секреты космических войн / Space War Secrets (2020) W
 ```bash
 magnet:?xt=urn:btih:ECBD6C0189DE7D49E0EB255DDA19C43C6D30813D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ magnet:?xt=urn:btih:ECBD6C0189DE7D49E0EB255DDA19C43C6D30813D
 magnet:?xt=urn:btih:AB282F94165619FF821EC90AB45B048D61C7C53D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ magnet:?xt=urn:btih:AB282F94165619FF821EC90AB45B048D61C7C53D
 ```bash
 magnet:?xt=urn:btih:61834014E25578D900E040F3CB8FF5CC37939024
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ BBC Horizon: Хаббл. Открытие тайн космоса / Hubble: The 
 magnet:?xt=urn:btih:3B2721F7D2865EE22DD0E8FF94BA47DB92AEDF36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ BBC. Великий рифт: Дикое сердце Африки / Great Rift:
 ```bash
 magnet:?xt=urn:btih:CB844F22DC1D6524A63D684176AD87A41371DB98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:CB844F22DC1D6524A63D684176AD87A41371DB98
 magnet:?xt=urn:btih:EA6FB210BD2AA5D38BC06C4A9C36D3ECC4532802
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ BBC. Самые милые животные / Super Cute Animals (2014) HDTVRip 
 ```bash
 magnet:?xt=urn:btih:F6F02AEB23ED07A2DAD862CD275170D62E48DA95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ BBC. Панорама. Харви Вайнштейн: вся подноготн�
 magnet:?xt=urn:btih:0D08303E8F011A18AF67045DF3BD64A22C8214E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ BBC: Голубая планета 2 / Blue Planet II (2017) BDRip [H.264/1080p]
 ```bash
 magnet:?xt=urn:btih:2C58776BB531864075BD791268D97F07F301C2AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

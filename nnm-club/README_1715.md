@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:A486669C90416A5B6F2E9DC3B7F75E3B290490EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Warhammer 40,000: Sanctus Reach - стратегическая пошагова�
 ```bash
 magnet:?xt=urn:btih:2B6B3E2C8116240243F96B5056814DCFA18CD842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:2B6B3E2C8116240243F96B5056814DCFA18CD842
 magnet:?xt=urn:btih:3C769A7A864DA6E3D5EBB0A16FCDB1E501AFD7CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:3C769A7A864DA6E3D5EBB0A16FCDB1E501AFD7CE
 ```bash
 magnet:?xt=urn:btih:73591BEB266EC5440B528D0FFF2E6D5AC97F076E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:73591BEB266EC5440B528D0FFF2E6D5AC97F076E
 magnet:?xt=urn:btih:C42A383B27285DBC07CB3DC0BB1C01A81619D6C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:C42A383B27285DBC07CB3DC0BB1C01A81619D6C5
 ```bash
 magnet:?xt=urn:btih:B26E00E0C142F2ECA45592FA1C2F7CA1A8D3F0DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:B26E00E0C142F2ECA45592FA1C2F7CA1A8D3F0DB
 magnet:?xt=urn:btih:85CD5BA2202A82C0C2470D0078ED31E9B12BB0E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:85CD5BA2202A82C0C2470D0078ED31E9B12BB0E2
 ```bash
 magnet:?xt=urn:btih:AA42C51BA9893AEAF034824D16461F05CA0253A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:AA42C51BA9893AEAF034824D16461F05CA0253A8
 magnet:?xt=urn:btih:51FCEC0C31F2DF58F6BE1140ADC97EFF3FFC94DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:51FCEC0C31F2DF58F6BE1140ADC97EFF3FFC94DF
 ```bash
 magnet:?xt=urn:btih:3B4C340DFD473AA683A9CCDA26CA21155108780B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:3B4C340DFD473AA683A9CCDA26CA21155108780B
 magnet:?xt=urn:btih:C92CDF61483B0EB764A3212AE6EF1E1AFB6389B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:C92CDF61483B0EB764A3212AE6EF1E1AFB6389B3
 ```bash
 magnet:?xt=urn:btih:A9CE76831470F4A6EB6E396DE88CD7135E181BFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ Master of Magic (2022) [Multi] (1.09.17/dlc) License GOG
 magnet:?xt=urn:btih:6378631BD4074F47A1079C6DF0DC7EE79A3D6DB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:6378631BD4074F47A1079C6DF0DC7EE79A3D6DB3
 ```bash
 magnet:?xt=urn:btih:3EF58D374848FE83EA95C923BFAF1A8403406ACB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:3EF58D374848FE83EA95C923BFAF1A8403406ACB
 magnet:?xt=urn:btih:B3931514F8FBEF0A1AF3E2B9F280A92C027DA46A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:B3931514F8FBEF0A1AF3E2B9F280A92C027DA46A
 ```bash
 magnet:?xt=urn:btih:DEDC7BFA552F048D588C9B49ADB9ED97F46F01BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:DEDC7BFA552F048D588C9B49ADB9ED97F46F01BE
 magnet:?xt=urn:btih:9D8B5F2E28251C0681C91B0245B644F84970F196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:9D8B5F2E28251C0681C91B0245B644F84970F196
 ```bash
 magnet:?xt=urn:btih:1770C0A8BA5ADB50C682DC2F969D847ADCCDED7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:1770C0A8BA5ADB50C682DC2F969D847ADCCDED7A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Regiments – стратегия в реальном времени, где Хо
 ```bash
 magnet:?xt=urn:btih:4CBFD9ED527907AEC1661309F2E8389419CD1CDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:4CBFD9ED527907AEC1661309F2E8389419CD1CDC
 magnet:?xt=urn:btih:8E14317FDF147576BC1F0EE06891D6A63D98BEAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ JetBrains PyCharm Professional – это мощная и многофункци
 ```bash
 magnet:?xt=urn:btih:CD40A58E7CDEB1DE7380AB5813C0E1D1C27689C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:CD40A58E7CDEB1DE7380AB5813C0E1D1C27689C4
 magnet:?xt=urn:btih:9E04684AD0A8663726BFEEA77AE2A9F7BD381BB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:9E04684AD0A8663726BFEEA77AE2A9F7BD381BB4
 magnet:?xt=urn:btih:4268D220D01D475D86E17E944609BD3BC5DF0323
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Far Cry: Far Cry Irina Go 2 (2022) [Ru/En] (1.0) Repack/Mod Bert-Masters-Studio
 ```bash
 magnet:?xt=urn:btih:8D96998DA8E71BBE9BDB700AFBEC47F5432DB5BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ Terminator Zero | Терминатор Зеро [2024, Web, 08 из 08] WEBRip 1
 ```bash
 magnet:?xt=urn:btih:00FCBC1BD21E15F2350F262ECEC4A7D7F9D84C11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

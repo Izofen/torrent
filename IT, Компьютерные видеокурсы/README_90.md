@@ -21,6 +21,8 @@ Google Best Practices | Вместе лучше: Google AdWords + Google Analyti
 magnet:?xt=urn:btih:7C36B3E40C84A196B98B64E22CFF7C9C9E4AB4CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:7C36B3E40C84A196B98B64E22CFF7C9C9E4AB4CC
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ videosharp | Новые технологии на С# (2014) PCRec [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:9C17C5208641141C19336B8C7895F0C2B4569CAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Ansible один из самых популярных и используемы�
 magnet:?xt=urn:btih:25FD9F097BC09A1F7F8CCDC72318D5B1271E89AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:25FD9F097BC09A1F7F8CCDC72318D5B1271E89AE
 magnet:?xt=urn:btih:13487F7E12D78A61A74DEC1535AFC699C60779B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:13487F7E12D78A61A74DEC1535AFC699C60779B1
 magnet:?xt=urn:btih:84C08172BD33D51191D5FFB140453185DB9D0A0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ JavaScript является языком общения в Интернете, �
 ```bash
 magnet:?xt=urn:btih:35FDBB8307F89FBB31DC49AD254A0260B19B2A80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Bootstrap to WordPress - великолепный курс, в котором в
 magnet:?xt=urn:btih:D33DE0358686BB42B45ECDB23993573C6174B7E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Visio — приложение для создания графических с
 ```bash
 magnet:?xt=urn:btih:7FA021AD0C998D6A8E783EFA10BBB877E199805E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:7FA021AD0C998D6A8E783EFA10BBB877E199805E
 magnet:?xt=urn:btih:884D59B67774537DA953F4B1B830B032A8F54F3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Udemy | Котлин - быстрый старт (2019) PCRec [H.264/720p-LQ] [�
 ```bash
 magnet:?xt=urn:btih:6C22580B6B38FD8A92A25EBDB288955E881C2C64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ remontka.pro video | Как отключить обновления Windows 10 (
 magnet:?xt=urn:btih:0341392804819B86732767D49BC7E3E7A1BCE739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ Udemy | Zabbix - развертывание полноценного монит�
 magnet:?xt=urn:btih:483C6F7B5D3BD748931FE5DE3E2D54E63F7078F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ Udemy | Изучаем Python и взлом систем с нуля (2019) PCRe
 ```bash
 magnet:?xt=urn:btih:AB915D30B48854AF616E972E0DD985EB777858F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ magnet:?xt=urn:btih:AB915D30B48854AF616E972E0DD985EB777858F8
 magnet:?xt=urn:btih:98DE3A3C8CA60886ED75C30EA09DFA1329429E5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ Lynda.com | JavaScript: Асинхронный код / JavaScript: Async (2019)
 ```bash
 magnet:?xt=urn:btih:992F87496CD9BBBA526E420A2D0E55142770D60E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:992F87496CD9BBBA526E420A2D0E55142770D60E
 magnet:?xt=urn:btih:660D47957885F5BA2866FD6461BCCF07111AF672
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:660D47957885F5BA2866FD6461BCCF07111AF672
 ```bash
 magnet:?xt=urn:btih:F4C0716318CC388AAC79A5D31FAA0C76120F1106
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ Ecommerce Analytics: Аналитика в электронной торговл
 magnet:?xt=urn:btih:36574E99BCBF68A09B328167D5597AEE8E4F7659
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Google Analytics Academy | Основы цифровой аналитики / Go
 ```bash
 magnet:?xt=urn:btih:0BABDE7508B4EBB7AC77D08E709836A2FDAC239D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ Mobile App Analytics Fundamentals
 ```bash
 magnet:?xt=urn:btih:CA71ABF9BDC9A38FF5EF8AE7A1098CFD1CE6D94B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:CA71ABF9BDC9A38FF5EF8AE7A1098CFD1CE6D94B
 magnet:?xt=urn:btih:C2FE9EC26B8405519CFC1ECD1591F9FE7D9E9EDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:C2FE9EC26B8405519CFC1ECD1591F9FE7D9E9EDA
 ```bash
 magnet:?xt=urn:btih:992D9438575D56565570C8567497506C8F569FB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ Lynda.com | JavaScript: Шаблоны / JavaScript: Patterns (2018) PCRec [H.26
 magnet:?xt=urn:btih:37C9493D6E27F7E15E7B2F37A643086C7596EED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ Lynda.com | JavaScript: Замыкания / JavaScript: Closures (2018) PCRec [
 ```bash
 magnet:?xt=urn:btih:97522C08EEE8B9B07D88DC4BA42ACAC54B8F3B54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +698,8 @@ magnet:?xt=urn:btih:97522C08EEE8B9B07D88DC4BA42ACAC54B8F3B54
 ```bash
 magnet:?xt=urn:btih:F0468C5322776D17079173511C9891B135A91E6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

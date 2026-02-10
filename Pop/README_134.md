@@ -22,6 +22,8 @@ Rare80 Volume 1 CD1
 magnet:?xt=urn:btih:BF887A78FFEC06EBC5BD274598FF37BD4A2D83A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:BF887A78FFEC06EBC5BD274598FF37BD4A2D83A3
 ```bash
 magnet:?xt=urn:btih:928CF96BE61F7C6ECFC9E6D5799EF93307138A18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:928CF96BE61F7C6ECFC9E6D5799EF93307138A18
 magnet:?xt=urn:btih:82C3E66A77D1FD6648D66515CEA2C4B25B3225A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:82C3E66A77D1FD6648D66515CEA2C4B25B3225A5
 ```bash
 magnet:?xt=urn:btih:B65E64B93E56CB1CB1D997147D319FBF50821BE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:B65E64B93E56CB1CB1D997147D319FBF50821BE5
 magnet:?xt=urn:btih:91712E73804A327387566B6B9B36516A32620940
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - BRAVO Hits 107 (2019) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Rock
 ```bash
 magnet:?xt=urn:btih:640BDEC8392042E2A2F98FF744D46C9CBB808DBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Jony - Список твоих мыслей (2019) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:A5E10C6E77F6A6C6B3EEAC2FCA1F48EB39CF75E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Julio Iglesias - The Essential Julio Iglesias (2014) 2CD, Compilation [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:1D313F543A009EEA1CF7C63FC9905ED1DA96D9F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:1D313F543A009EEA1CF7C63FC9905ED1DA96D9F7
 magnet:?xt=urn:btih:EFDC10F5D435D4E2C08665E7DA5F916107701E2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - 100 Greatest Xmas Top Christmas Classics (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:E9131703636CB094B6FFB789578DE708B44461ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ CD1
 magnet:?xt=urn:btih:534C1432BD4E373059375EB75E322EB976C65EE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Syncophonic Orchestra - Columbia - A Space Symphony (1981) LP [MP3|320 Kbps] <El
 ```bash
 magnet:?xt=urn:btih:134A74E74F0CD7C1DA593B503EA581BBCC193CEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - Musicland - The Sound Of Munich (1978) LP [MP3|320 Kbps] <Electronic, Funk 
 magnet:?xt=urn:btih:DA775FC39504D27AC624F777D1E5D942F5279310
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Lara Fabian - Greatest Hits (2010) 2CD [OGG Vorbis|480 Kbps] <Pop, Ballad, Chans
 ```bash
 magnet:?xt=urn:btih:EE37DA59DC19068402BAFFDB7C77BE98513D6D4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ CD01:
 magnet:?xt=urn:btih:1897D35BE95A1182477CB374109C87CC7AB07CC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Barbra Streisand - Walls (2018) [OGG Vorbis|480 Kbps] <Pop, Vocal>
 ```bash
 magnet:?xt=urn:btih:E2DABEFF969DB4134060D67714400FB144A308CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Mariah Carey - Music Box (1993) [OGG Vorbis|480 Kbps] <Electronic, Funk / Soul>
 magnet:?xt=urn:btih:6ECEB34BA7C5BC7C29236DCCBB9A4B76ED31154E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - The Greatest Mod and Northern Soul Album (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:C92BE6D03EB01AFBEF73D4CF0477155D0F080B3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:C92BE6D03EB01AFBEF73D4CF0477155D0F080B3E
 ```bash
 magnet:?xt=urn:btih:9C2116137E5DE7235E8F8047BC223CB705E4DB04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +580,8 @@ VA - Русская дискотека 70-х (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:85EA59B9A79D155851FC568FB67A54A71522A8BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +615,8 @@ One Direction - Take Me Home (2012) [MP3|128 кб/с]<Pop>
 magnet:?xt=urn:btih:359CAA6C301F70109599E3E11C4733F512C4AA7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +643,8 @@ MBAND - Без фильтров (2016) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:5DFEDC4936C151E24B63670DB9375838DAEE7877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +673,8 @@ Giants - 2 Albums (1979, 1981) LP [MP3|320 Kbps] <Electronic, Pop-Rock, Disco>
 magnet:?xt=urn:btih:8C7363BBE9235ECDB7C95D9F8591919A79CFB848
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +701,8 @@ VA - Disco 80's Rare & Special Versions Vol. 2 (2016) Compilation [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:37F93D564CD5960BE0094305123F19EC7E13FE6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -683,6 +731,8 @@ Clodagh Rodgers - Come Back And Shake Me: The Kenny Young Years 1969-71 (2012) [
 magnet:?xt=urn:btih:09924483F0E794DD6EEC7D1426E5E4979529B152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -709,6 +759,8 @@ Italove - Extended And Remixed (2018) Compilation [FLAC|Lossless|tracks + .cue] 
 ```bash
 magnet:?xt=urn:btih:9096F40ABB3AB8F5ABFF3C6CA3573F530CCE0D15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

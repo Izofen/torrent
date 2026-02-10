@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:55A2050A5328943D21B73E57B540A1904715586C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Riki-Ou 2: Horobi no Ko | Riki-Oh 2: Child Of Destruction | Рики-О 2: Ди�
 ```bash
 magnet:?xt=urn:btih:D88C54011FBB4C5C9BE53C07B85DA19192148EE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:D88C54011FBB4C5C9BE53C07B85DA19192148EE5
 magnet:?xt=urn:btih:ADB5A2B6F0852EB8BE402FD287B2EC4D4D897588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Fate/Apocrypha | Судьба: Апокриф [2017, TV, 25 из 25] BDRip 1080p
 ```bash
 magnet:?xt=urn:btih:4F4902E2DF38C6D830CC2C5888E99B8A3DDD14F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:4F4902E2DF38C6D830CC2C5888E99B8A3DDD14F3
 magnet:?xt=urn:btih:7C454BDD46CEB1588D8E3F88107F8F1D993E43DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Huo Feng Liao Yuan | The Ravages of Time | Огненный феникс опа�
 ```bash
 magnet:?xt=urn:btih:3F54BCC7A42D089E25668D00D8506ED15948CCEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:3F54BCC7A42D089E25668D00D8506ED15948CCEA
 magnet:?xt=urn:btih:CDBD3982126F5636FD6EB9F96A3E3592A8DEF693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Shingeki no Kyojin: The Final Season | Attack on Titan The Final Season | Ата
 ```bash
 magnet:?xt=urn:btih:9972B070EABE7F8E5700651312F38949F222C464
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Maou Gakuin no Futekigousha II | The Misfit of Demon King Academy II | Непр�
 magnet:?xt=urn:btih:4E64528DB35B5B1686BD7B6ACCADFE9E357F418C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Seishun Buta Yarou wa Odekake Sister no Yume o Mi | Эта глупая свин
 ```bash
 magnet:?xt=urn:btih:09D14A52110275DBC945638C3446E86755B33A77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Death March kara Hajimaru Isekai Kyousoukyoku | Death March to the Parallel Worl
 magnet:?xt=urn:btih:83717BDC0C8676BAD864D3D8404C81EE75E7CCFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Tate no Yuusha no Nariagari Season 2 | The Rising of the Shield Hero Season 2 | 
 magnet:?xt=urn:btih:60874EC3BCA734C55D8F053070B362ECF74BB9CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Scott Pilgrim Takes Off | Скотт Пилигрим жмёт на газ [2023
 ```bash
 magnet:?xt=urn:btih:631FC97FD472DAD0046C7EC943E2C03071D2CFC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:631FC97FD472DAD0046C7EC943E2C03071D2CFC8
 magnet:?xt=urn:btih:A664C3D3579D42035CBFC654A6580F5AF8673DCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:A664C3D3579D42035CBFC654A6580F5AF8673DCB
 ```bash
 magnet:?xt=urn:btih:BB7F5C991F6284E7DCAD3C566427BCD29F7691EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ TenPuru | Temple: No One Can Live on Loneliness | Храм: Никто не мо
 magnet:?xt=urn:btih:5EF37032BF0E5E14DA7DC9E35AEC1290145D51E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Yuusha Party o Tsuihou Sareta Beast Tamer, Saikyoushu no Nekomimi Shoujo to Deau
 ```bash
 magnet:?xt=urn:btih:014E78C24DEDF7ABDE6B78F4E2AE47610104CD03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Megami no Cafe Terrace | The Cafe Terrace and Its Goddesses | Богини ка�
 magnet:?xt=urn:btih:C3D5415D5749575F40BFC287EBF613A7C0AAC445
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:C3D5415D5749575F40BFC287EBF613A7C0AAC445
 ```bash
 magnet:?xt=urn:btih:4D0CEF00B69D5F82B994216CDE397BB3E52504B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:4D0CEF00B69D5F82B994216CDE397BB3E52504B8
 magnet:?xt=urn:btih:97C14AF97098A2B534FD5009AF857B88BAEF4EC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:97C14AF97098A2B534FD5009AF857B88BAEF4EC5
 ```bash
 magnet:?xt=urn:btih:2767EE88CA562B0185C86808FA1497273702C5EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:2767EE88CA562B0185C86808FA1497273702C5EC
 magnet:?xt=urn:btih:7BC27DBC101ED3442A3916D69E17506BA33ABF37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:7BC27DBC101ED3442A3916D69E17506BA33ABF37
 ```bash
 magnet:?xt=urn:btih:5CB0E7E44D6357629758F50CC6BE4DF1F9D605F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:5CB0E7E44D6357629758F50CC6BE4DF1F9D605F1
 magnet:?xt=urn:btih:D9232AAC99A4604DC3E096223ABB6004F7270853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Seijo no Maryoku wa Bannou Desu | The Saint's Magic Power is Omnipotent | Сил
 ```bash
 magnet:?xt=urn:btih:5AD5ABA322D46C57CA8DE8594541BC22B45C325A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:5AD5ABA322D46C57CA8DE8594541BC22B45C325A
 ```bash
 magnet:?xt=urn:btih:E71A4CF7B83E988FC8E58FE2E8B27300BE1E7B9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

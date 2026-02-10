@@ -22,6 +22,8 @@ VA - Rock'n'Roll Christmas (Unknown) [FLAC|Lossless|image + .cue] <Pop, Oldies>
 magnet:?xt=urn:btih:EF4B28184A18F868CB65627BAA7F841FBE91F15D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Sunstain - Modern Nature (2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Psych>
 magnet:?xt=urn:btih:FB6E004D2581405A7C6CE2F85E01EB29F468E539
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:FB6E004D2581405A7C6CE2F85E01EB29F468E539
 ```bash
 magnet:?xt=urn:btih:04DED88316F5D806B3F7A8F9773AD4EF7A9C86F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ VideoProc Converter 4K 4.5 [Multi]
 magnet:?xt=urn:btih:BBC1B738275A14FFADDC48661F1965AF66DD88E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:BBC1B738275A14FFADDC48661F1965AF66DD88E6
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:BBC1B738275A14FFADDC48661F1965AF66DD88E6
 ```bash
 magnet:?xt=urn:btih:8E4EAD5E02FFD59C0ADE40CB056F6DC17DB9897C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:8E4EAD5E02FFD59C0ADE40CB056F6DC17DB9897C
 magnet:?xt=urn:btih:556EDDC332C50655AC70F21D1F409EB16CB15C84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:556EDDC332C50655AC70F21D1F409EB16CB15C84
 ```bash
 magnet:?xt=urn:btih:A2647F9CCC5C9313EB643DCE80E56B483005E97A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:A2647F9CCC5C9313EB643DCE80E56B483005E97A
 magnet:?xt=urn:btih:D898C3F05E0195DE74E0CDE0CCC4FDFCA22D49F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:D898C3F05E0195DE74E0CDE0CCC4FDFCA22D49F6
 magnet:?xt=urn:btih:A8EF66BDD2479EC1D94D73CCFDA31C64B74F1038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:A8EF66BDD2479EC1D94D73CCFDA31C64B74F1038
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ Andrew Rayel - A Place To Find Your Harmony #3, Chisinau, Moldova (2021-11-14) [
 magnet:?xt=urn:btih:2E0B0BB0B7A9483C2E14D5F035FFA2FE10E48255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:2E0B0BB0B7A9483C2E14D5F035FFA2FE10E48255
 magnet:?xt=urn:btih:0B2F257B16B6FF0253980A832355D7A7CBCCB6DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:0EBD3E1171878BCEE3140E306EA0A8070A5AA5AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ Tag My Heart - Tag My Heart (2023) [MP3|320 Kbps] <Nu Metal, Metalcore, Female V
 magnet:?xt=urn:btih:9025C4D90A85B6FD9BB58E329CF6E52F6A84F43E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ magnet:?xt=urn:btih:9025C4D90A85B6FD9BB58E329CF6E52F6A84F43E
 magnet:?xt=urn:btih:1A404150E8E98763C4F574901D0E0735046FE658
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ MiniCAD - это небольшое приложение для просмотр
 ```bash
 magnet:?xt=urn:btih:10997303DF89B5D54B2401BA01A45DFCC4F9950F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:10997303DF89B5D54B2401BA01A45DFCC4F9950F
 magnet:?xt=urn:btih:02F9207482DA55FD4AD3B41CFE1A6436B5865386
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:02F9207482DA55FD4AD3B41CFE1A6436B5865386
 ```bash
 magnet:?xt=urn:btih:069D8FD104ED9CAD0F8CF75E431DE500CFA33A37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ magnet:?xt=urn:btih:069D8FD104ED9CAD0F8CF75E431DE500CFA33A37
 magnet:?xt=urn:btih:DC7E845C2256D97AABD06F9D7C10AFD624BA0657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:DC7E845C2256D97AABD06F9D7C10AFD624BA0657
 magnet:?xt=urn:btih:F336A27D38270C1D173411753A70819E6F50A1D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:F336A27D38270C1D173411753A70819E6F50A1D8
 ```bash
 magnet:?xt=urn:btih:32C119E3309EBF5D90036F3A20CB358336083875
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:32C119E3309EBF5D90036F3A20CB358336083875
 magnet:?xt=urn:btih:F4BAE12F2C298477AF65C9FAE72118AA0EA4C56D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:F4BAE12F2C298477AF65C9FAE72118AA0EA4C56D
 magnet:?xt=urn:btih:5A24F2DBB18C1C153502E8CF115E7F7F80C48A71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:5A24F2DBB18C1C153502E8CF115E7F7F80C48A71
 ```bash
 magnet:?xt=urn:btih:7E77EC7A070EB16B07AF460203A8562429101C5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +694,8 @@ magnet:?xt=urn:btih:7E77EC7A070EB16B07AF460203A8562429101C5E
 ```bash
 magnet:?xt=urn:btih:86F5BB8CB03D4B4A73D718E95EDA902EEABF7AB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

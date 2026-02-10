@@ -22,6 +22,8 @@ VA - Подставляйте ладони-я насыплю Вам солнца
 magnet:?xt=urn:btih:7CA98F31CE54113672F957094F2D5DCEBF397A92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ MX5 развивает заложенную предшественником к�
 ```bash
 magnet:?xt=urn:btih:5B820EAD3ABA7C209B4377028947761C00D5781D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ VA - Winter Relaxation, Vol. 1 (2019) [AAC|~329 Kbps] <Lounge, Chill Out, Downte
 magnet:?xt=urn:btih:3C6EE5AE934F5FD1FA2C9F45CE5223CB7EF2164F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:3C6EE5AE934F5FD1FA2C9F45CE5223CB7EF2164F
 ```bash
 magnet:?xt=urn:btih:F60D649D60C848528A93E4DD06AD6C17FEFEA7E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ VA - Musik (Vanity Records) (1981/2019) Kyou Records | Reissue, Remastered [FLAC
 magnet:?xt=urn:btih:5A90A2C6DE9C4E51C7A4867DBACE9D2A7959CD09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:5A90A2C6DE9C4E51C7A4867DBACE9D2A7959CD09
 magnet:?xt=urn:btih:EA9951D4435A5ABC1DB9F07B22A600846E77BD49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:EA9951D4435A5ABC1DB9F07B22A600846E77BD49
 ```bash
 magnet:?xt=urn:btih:FB70BEB7D15BFB004D0BC2EBF79949654268B643
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ Degreed - 4 альбома Discography (2010-2017) [FLAC|Lossless|image + .cue] 
 magnet:?xt=urn:btih:C19BD7FD917CD56773A1FAA9C6EA8A026F59313D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:C19BD7FD917CD56773A1FAA9C6EA8A026F59313D
 ```bash
 magnet:?xt=urn:btih:FD3B23D6109D04827894369DB4FFD7B50E78BBF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ The Bat! – общепризнанная система обработки эл
 magnet:?xt=urn:btih:30E2A673D8F57B7C48B072C3CD337E06D8E157DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:30E2A673D8F57B7C48B072C3CD337E06D8E157DB
 ```bash
 magnet:?xt=urn:btih:2081590F300150619091299A79E8E169F202D7FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:2081590F300150619091299A79E8E169F202D7FA
 magnet:?xt=urn:btih:E82DAEBC1B883B0F385B3679F410B518E4C7E0CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ Permute - очень простой видео конвертер с миним�
 magnet:?xt=urn:btih:EEA9148CEFB6A97AF207898F2295C2F5484A03EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ TunesKit AceMovi Video Editor может отличаться от множес�
 ```bash
 magnet:?xt=urn:btih:6DD0233E283045B59894CEF9657448BD519E05F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ Mayhem - Wolf's Lair Abyss (1997) Reissue, 2019, Soulseller Records [FLAC|Lossle
 magnet:?xt=urn:btih:C18BB8FCD91BFB381BE0164AAA0D45AF061FE651
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ SolarFlow - Collection of the Best Tracks From: Solarflow (2020) [AAC|~326 Kbps]
 ```bash
 magnet:?xt=urn:btih:EB21BBFDDC1334BE8A32855F831061D2B86FE37F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ Olga Scheps - 100% Scooter – Piano Only (2017) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:D78FD75D93787A2B4112D36D7EF83F05917E7793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Comedy Баттл. Новый сезон / Комеди Клаб / Comedy Club  
 ```bash
 magnet:?xt=urn:btih:F813A8D76E6BA5BBCBF5AAFD367083436EE709F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ ColorSnapper - инструмент «селектор» цвета для ра�
 magnet:?xt=urn:btih:7EF1B56B9D9306B2BE233E59EE84B579114EDDAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ FreeCommander XE - это довольно-таки удобный в работ
 magnet:?xt=urn:btih:09ECD1BFFF65028D4D2D120E61EAD96DDF77C973
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:09ECD1BFFF65028D4D2D120E61EAD96DDF77C973
 ```bash
 magnet:?xt=urn:btih:241600A2AE9877D612EC312AF965FBD348A0BC04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +595,8 @@ Jeff Goldblum & The Mildred Snitzer Orchestra - The Capitol Studios Sessions (20
 magnet:?xt=urn:btih:39B73DD61A57DC3490F44BCE7FC4FE90AEE5F9B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ Filmage Editor 1.0 [En]
 ```bash
 magnet:?xt=urn:btih:71C59503C82575364DB8E8A7685F9C5B0311622D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:71C59503C82575364DB8E8A7685F9C5B0311622D
 magnet:?xt=urn:btih:86CD6F25DD93FD3F6F6458EE87BD70916EED594B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:86CD6F25DD93FD3F6F6458EE87BD70916EED594B
 ```bash
 magnet:?xt=urn:btih:F245CB1FB971DFEE2F6C2953FB4EEBAB46B47E16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +701,8 @@ Autumn's Grief - Dead by the Dawn (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphoni
 ```bash
 magnet:?xt=urn:btih:C2ED7494842A2C47B69AFEAB640B09E653548764
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

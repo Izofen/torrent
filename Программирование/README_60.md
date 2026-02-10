@@ -19,6 +19,8 @@ Mark L. Murphy / Марк Л. Мерфи | Elements of Android Room / Элеме
 magnet:?xt=urn:btih:74267BB6809B8980FD88B266EEC183322FDF1EE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:74267BB6809B8980FD88B266EEC183322FDF1EE9
 ```bash
 magnet:?xt=urn:btih:EF7A67A2623024147172F86CFC7D4314C4F60B04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:EF7A67A2623024147172F86CFC7D4314C4F60B04
 magnet:?xt=urn:btih:085EDA11D0D793C4F4816C437EED681FFDCD53DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:085EDA11D0D793C4F4816C437EED681FFDCD53DB
 ```bash
 magnet:?xt=urn:btih:225DC8D38A3CE2C12FFBE73BB5AEEE74A7F012E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:225DC8D38A3CE2C12FFBE73BB5AEEE74A7F012E9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:225DC8D38A3CE2C12FFBE73BB5AEEE74A7F012E9
 magnet:?xt=urn:btih:E10A40DDD1CC2CCD5F3FDE88C7BE6B533327A63E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:E10A40DDD1CC2CCD5F3FDE88C7BE6B533327A63E
 ```bash
 magnet:?xt=urn:btih:7610D82D863B762274ABCB6397C1F5ADF31C4BA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:7610D82D863B762274ABCB6397C1F5ADF31C4BA6
 magnet:?xt=urn:btih:1635DC63E3BD8BCCFC23A29E23781F1DBB41F349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:1635DC63E3BD8BCCFC23A29E23781F1DBB41F349
 ```bash
 magnet:?xt=urn:btih:9C055D14BEAFEA5C934EB79193E1F467AE4EEF44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:9C055D14BEAFEA5C934EB79193E1F467AE4EEF44
 magnet:?xt=urn:btih:A6346B3E301C0134EBAC541A2895CFF2510EEDD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:A6346B3E301C0134EBAC541A2895CFF2510EEDD4
 ```bash
 magnet:?xt=urn:btih:C0961E4995D6891F4ABD0F74DAE770AF503A2B7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:C0961E4995D6891F4ABD0F74DAE770AF503A2B7F
 magnet:?xt=urn:btih:04965D2B8853125043FC3F80B2BA92FE60DC9DD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Ralf Hacker | Active Directory глазами хакера (2021) [PDF]
 magnet:?xt=urn:btih:7140DDF98974C7D3C6C9699A6023AC0BA1354B59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ magnet:?xt=urn:btih:7140DDF98974C7D3C6C9699A6023AC0BA1354B59
 ```bash
 magnet:?xt=urn:btih:3809A3D656DD961E7E13BE20497B5790D1497298
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:3809A3D656DD961E7E13BE20497B5790D1497298
 magnet:?xt=urn:btih:F55D1E7C16BE62C4ACF98607D3C8A6A140325EA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:F55D1E7C16BE62C4ACF98607D3C8A6A140325EA0
 ```bash
 magnet:?xt=urn:btih:85E56AE1A46621C0D51C3DCDFCFF3E33BEF71737
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:85E56AE1A46621C0D51C3DCDFCFF3E33BEF71737
 magnet:?xt=urn:btih:7E352E3621F7205895085D3AB90FAB7286EF38D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:7E352E3621F7205895085D3AB90FAB7286EF38D1
 ```bash
 magnet:?xt=urn:btih:BA7DC95F7169BE58B4E4C836A384C40428FD7025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:BA7DC95F7169BE58B4E4C836A384C40428FD7025
 magnet:?xt=urn:btih:0874375EB39E0351D1202D94670485CD8A85C567
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:0874375EB39E0351D1202D94670485CD8A85C567
 ```bash
 magnet:?xt=urn:btih:F9A2688571D8186F42C6E6BB35E8EB43495F363A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:F9A2688571D8186F42C6E6BB35E8EB43495F363A
 magnet:?xt=urn:btih:56ED4E34D0CFED057525368AE2E91ACC73CD4112
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:56ED4E34D0CFED057525368AE2E91ACC73CD4112
 magnet:?xt=urn:btih:00FFCE298E2493BAA4D54F15B391EAEC14F0FBAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:00FFCE298E2493BAA4D54F15B391EAEC14F0FBAD
 ```bash
 magnet:?xt=urn:btih:E4CA04891F1E5740BB88674B86FC501A73743A1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:E4CA04891F1E5740BB88674B86FC501A73743A1D
 magnet:?xt=urn:btih:39962E48E67BC2FF0EA4BEEE7BDE667E5371AE2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ C# — универсальный язык, который может практ
 magnet:?xt=urn:btih:490652A7AE61CFE3AFDEB32A044915389D814F93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:490652A7AE61CFE3AFDEB32A044915389D814F93
 ```bash
 magnet:?xt=urn:btih:7C0638A10B5DC6F1B6FBB222A171D021B6644D20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

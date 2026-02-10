@@ -19,6 +19,8 @@ FileLocator Pro — интеллектуально развитое и мощн�
 magnet:?xt=urn:btih:A32EC769B7A68F933A8957E78569DA4822AB81F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Debut Video Capture Pro 3.07 Portable by punsh [Ru]
 ```bash
 magnet:?xt=urn:btih:4272B2852CBC6B5442512A7A3E983B66EBD995AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ iReboot 2.0.1.42 [En]
 magnet:?xt=urn:btih:3F537657FD8D974D6E2381B8B5394BEF2177A1C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ MyTetra — это несложная кроссплатформенная пр�
 ```bash
 magnet:?xt=urn:btih:8367D550CFCD321E19BBB9C871350CC0E602BEF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ VideoCacheView 2.97 [Ru/En]
 magnet:?xt=urn:btih:D69B9082176AD08444D3716A95C8CB8189EF5C2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Draftable Compare - программа для визуального сравн�
 ```bash
 magnet:?xt=urn:btih:55444DBAC4B3FF74C43932B03826CC45D0CF8B80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Macrorit Partition Extender Pro - утилита, доступная также 
 magnet:?xt=urn:btih:7CD104C652756DF6E9B08D86D1B835AA6B43081B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ Linux Live USB Creator 2.9.4 [Multi/Ru]
 magnet:?xt=urn:btih:458EB3F2795C8927B4664EC3797A4C663F0EF610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Serial KeyGen 1.1 + Portable [Ru/En]
 ```bash
 magnet:?xt=urn:btih:2E25AA1471977BBA42AE541485D4841A0DC549FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ OldNewExplorer 1.1.7 Portable by dum spiro spero [Ru]
 magnet:?xt=urn:btih:928C6DB3758F08708C653C2C70BCC6DA38B20459
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ DjVuLibre DjView 4.10.4 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:247835C0D4ABC23631CE1AD8D49BB636C8029A18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Duplicate & Same Files Searcher (Duplicate Searcher) - это приложени
 magnet:?xt=urn:btih:98DE88E7BDB276F44C94694DA89DC2B85259F6BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Microsoft® Project 2010 — это функциональный инструм�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ TotalD Pro — универсальный менеджер загрузок, к�
 ```bash
 magnet:?xt=urn:btih:B396124251B49F53E8312D1F8064415526D05CCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Becky! Internet Mail - это почтовая программа японско
 magnet:?xt=urn:btih:4659EE8C215514F225477311CAE1D9831EF50CDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ MyDraw включает в себя мощные функции, которые 
 magnet:?xt=urn:btih:16772E64328295D6DD34EE6641E8A8633FC27138
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ AnyToISO Pro - это простой в эксплуатации и функци
 ```bash
 magnet:?xt=urn:btih:9188AD7F98583477D30CA0D743C989FEBD866879
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ TogetherShare Data Recovery служит для восстановления у�
 magnet:?xt=urn:btih:3F273DCF0A7E4E48F637BC18B09B17591B206653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Google Earth Pro 7.3.2.5495 Portable by PortableAppZ (x86/x64) [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:28BC5EFC77BF2E78E6FCE9038DDB4171432EC50A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Incomedia WebSite X5 — программа для создания веб-са�
 magnet:?xt=urn:btih:DB4E76CAB60309B8DCF1BC563D9E26C0ED33A66F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ HyperCam 4 — новая версия популярной программы H
 ```bash
 magnet:?xt=urn:btih:1DFBFE2EC8379FF79612F18A7DEBE3EF37D552D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Recover My Photos - это программное обеспечение для 
 magnet:?xt=urn:btih:A08FE5BBA927E8C6FFADD631DCDE001A64FF7299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ GreenBrowser 6.9.1223 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:03302030E4E98A076747BC49C04654D65781D835
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ TestDisk это мощная бесплатная программа для во
 magnet:?xt=urn:btih:DE90F8A622AF95974E96835F9B5F15EE096E542B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Windows Excel – это программа для работы со всеми 
 magnet:?xt=urn:btih:5B227BB450EBAE6DF51DD1A3480D98EC5A442630
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Windows Word - бесплатный и удобный в эксплуатаци�
 ```bash
 magnet:?xt=urn:btih:6BD38040959D6857AFA098FD6106252B8F315143
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

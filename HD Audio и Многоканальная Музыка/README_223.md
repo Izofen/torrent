@@ -22,6 +22,8 @@ A4. Good Night(   Читать дальше...   )Жанр: РокПродолж
 magnet:?xt=urn:btih:29184FB8A2EF14AB26579DF28D4EC828E0C3B32F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Steve Hackett – Wolflight (2015) [DTS 5.1 CD-Audio|44.1/16|image+.cue|BD-Audio
 ```bash
 magnet:?xt=urn:btih:78DE2C5C5045732249C0CB2D16B0AEA4095A551A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ C4. Электрический пес (3:12)(   Читать дальше...   )
 magnet:?xt=urn:btih:1BCC212C7B6C9CD38316EABF13A0C0A990F34F49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Pet Shop Boys - Super (2016) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electroni
 ```bash
 magnet:?xt=urn:btih:86194D95EB0462787CFD9987A8CBF0DD61A46D98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ A4 Flight Of Fantasy (Remix '89) 5:15(   Читать дальше...   )Жан�
 magnet:?xt=urn:btih:7CCBF0B60EE38D1729C38ED26BDB004BA0CCC081
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:E3C8B317DCEF3FB23C92E2F815AE7D860439D942
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ The Beatles - Let It Be (1970) [WavPack|192/32|tracks|Vinyl-Rip] <Pop Rock>
 magnet:?xt=urn:btih:3FF96293ACB9ED3145F0912AE7D6CC171C5BE3E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ A4. 'Belle' Of The Earth (2:47)(   Читать дальше...   )Произв�
 ```bash
 magnet:?xt=urn:btih:A7D4913D488836DAB72FCC3B0969BE67811AAEA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - Сергей Рахманинов - Золотая коллекция (1999
 magnet:?xt=urn:btih:5DECAD830D1DCFB61844782748EB1F18428C8684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +279,8 @@ The Beatles - 16 Альбомов (1969-2003) [DTS 5.1 | Tracks (Upmix)]<Rock, b
 ```bash
 magnet:?xt=urn:btih:46547012B614DA2DDBC426A829C53AD30798FF06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +309,8 @@ magnet:?xt=urn:btih:46547012B614DA2DDBC426A829C53AD30798FF06
 magnet:?xt=urn:btih:667EED501812EE8E43984624F8A6CEB3206B44E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +337,8 @@ B1. Mutually Assured Destruction (Live) (5:12)(   Читать дальше...  
 ```bash
 magnet:?xt=urn:btih:E1796E721D60DCA059F5A81EB25D43527FD3474F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +367,8 @@ Concerto Grosso in C. RV 558
 magnet:?xt=urn:btih:8872EBA9B73A060C86B6D649719B590EA03041D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +395,8 @@ A4. Bad Man (3:49)(   Читать дальше...   )Производство: 
 ```bash
 magnet:?xt=urn:btih:FA475E5CE2F3EEFAF18C64652D1AB21CF0516EB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +431,8 @@ Claire Martin - Too Darn Hot! (2002) [DST 2.0, 5.1 1bit/2822,4kHz |SACD-R]<Vocal
 magnet:?xt=urn:btih:3A3074BDB59008AD4C4DFB6298FC65EE30BCF1E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +459,8 @@ A4 Fuck Me Pumps 3:20(   Читать дальше...   )Жанр: Rhythm & Blue
 ```bash
 magnet:?xt=urn:btih:D546F61EC79A4342BEB2B4D0408C8E616B677079
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +489,8 @@ A4. Scum (3:16)(   Читать дальше...   )Жанр: SynthpopПродо�
 magnet:?xt=urn:btih:6800C77B2BEB33CD758A625001D679E935D41D26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +517,8 @@ A4. You Are The One (Remix) (3:46)(   Читать дальше...   )Произ
 ```bash
 magnet:?xt=urn:btih:1E8A8F44560EBACDA0A64357F300B3771D2EFA6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +547,8 @@ ABBA - The Visitors (1981) [FLAC |192/24|image + .cue|Vinyl-Rip |Lossless] <Euro
 magnet:?xt=urn:btih:2DCC71031D99D59963D0DC92C96B3C895D0D8313
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +575,8 @@ A4 Korean Girls 3:33(   Читать дальше...   )Жанр: Europop, Synth
 ```bash
 magnet:?xt=urn:btih:DE1F8ABE11E698A8EC725E9E8D7186EA9F99343C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +605,8 @@ A3. You Kill Me With Silence
 magnet:?xt=urn:btih:18082DCA154E3E56020A22A9E8D08151F6A982C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +633,8 @@ John Lennon – Imagine: The Ultimate Collection (2018) 1971 [DTS 5.1 CD-Audio|4
 ```bash
 magnet:?xt=urn:btih:7661D6B2F0B3B4FCAE3889334BBDCB92BCD59550
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +663,8 @@ A4 Бесполезная Песня(   Читать дальше...   )Жанр
 magnet:?xt=urn:btih:70D7356B458599CEBEBBE634329742F0ED95B9E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +692,8 @@ A4. Never Before (4:00)(   Читать дальше...   )Производст�
 magnet:?xt=urn:btih:B5E0401134233488E96CEDC46D52C0AF098364D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -672,6 +720,8 @@ VA - Наши баллады (2002) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop, P
 ```bash
 magnet:?xt=urn:btih:B5434AD69CFD4823BAC88102C80729EFEC6783F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -705,6 +755,8 @@ ABBA - ABBA (Sweden) (1975) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Pop Rock, Disco>
 ```bash
 magnet:?xt=urn:btih:2E915AA641C3E25584EB443773267DB89DC80CDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

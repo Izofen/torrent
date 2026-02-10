@@ -19,6 +19,8 @@ Ghosts 'n Goblins Resurrection (2021) [Switch] [USA] 10.2.0 [NSP] [License / 1.0
 magnet:?xt=urn:btih:04EE8C5CE7CA92F901106C5ECBED3ACAA630B2EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Crash Bandicoot 4: It's About Time / Crash Bandicoot 4: Это Вопрос Вр
 ```bash
 magnet:?xt=urn:btih:C6E7F1D863C3BF6BEF960DF1D9101EF17E8F86A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Resident Evil HD Remaster / Biohazard HD Remaster (2015) [PS3] [JPN] 3.30 [HEN] 
 magnet:?xt=urn:btih:0917BB79C178772FD62E9D04E228BE40E803DEB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Resident Evil: Revelations (2013) [PS3] [EUR] 3.30 [HEN] [Cobra ODE / E3 ODE PRO
 ```bash
 magnet:?xt=urn:btih:36F071BB341CBB01B8BC8081B639FE4CABE76417
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Resident Evil: Revelations 2 (2015) [PS3] [EUR] 4.60 [OFW / HEN / CFW] [Repack /
 magnet:?xt=urn:btih:398175DFAF812619CEE279C2BE086143AF052A4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Rayman Origins (2011) [PS3] [EUR] 3.72 [Cobra ODE / E3 ODE PRO] [License] [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:97A1D8EC0C1BEA5FC66C995A584CD19F1777D082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Resident Evil: Revelations 2 (2015) [PS3] [EUR] 3.30 [Cobra ODE / E3 ODE PRO ISO
 magnet:?xt=urn:btih:7090B3E2A6AD3DDAD5CE986B94B1461339213F78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Resident Evil: Revelations 2 (2015) [PS3] [USA] 3.30 [Cobra ODE / E3 ODE PRO ISO
 ```bash
 magnet:?xt=urn:btih:666A7FEFFBE565D10A71D69FEB201BB7C2694A20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Need for Speed: Hot Pursuit Remastered (2020) [Switch] [USA] 10.2.0 [NSZ] [Licen
 magnet:?xt=urn:btih:D9DA69D82409DE13CB36B070524326E1C7F3FD23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Civilization — это серия пошаговых стратегий, осн
 ```bash
 magnet:?xt=urn:btih:006784D3240BC18B79CAA3319FE6B610F5C80E86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Super Mario 3D World + Bowser's Fury (2021) [Switch] [USA] 10.2.0 [NSZ] [License
 magnet:?xt=urn:btih:75453F4D1E405761FBDA4861F49BD714FD9B61A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Prototype 2 - сиквел экшена Prototype, разработанный с
 ```bash
 magnet:?xt=urn:btih:E1FF070885FDFBBECC9E8C6F68AD234655AC1007
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Resident Evil 3 проливает больше света на события, 
 magnet:?xt=urn:btih:6DC15D97D8D12AC6A0B7C9449BF34401B32D73E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Metro Exodus / Метро: Исход (2019) [PS4] [EUR] 5.05 [HEN] [License / 1
 ```bash
 magnet:?xt=urn:btih:92A3D83C40AB9183FE3CF9118339BC0964D83789
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Immortals Fenyx Rising (2020) [Switch] [USA] 10.2.0 [NSZ] [License / 1.1.0 / DLC
 magnet:?xt=urn:btih:CBC4F9E78B0E37819CD5F28D71619EE355FB1E85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ EmulationStation это графическая оболочка, с поддер
 ```bash
 magnet:?xt=urn:btih:18BE2382D45F8B031D8D8654950F9B93CFCD3291
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Star Wars Jedi: Fallen Order Deluxe Edition / Звёздные войны Дже
 magnet:?xt=urn:btih:A8FE0C47E6452382EC172D64DEE4D8DB7B852A0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Hitman: Absolution [PS4] [EUR] 5.05 [HEN] [License / 1.02] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5531C3E79E0BA1559139774473C92F6D24AF0F99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Grand Theft Auto: San Andreas (2004) [PS4] [EUR] 5.05 / 6.72 / HEN [License] [Ru
 magnet:?xt=urn:btih:F82C6545851FD00B882C0AFD0FD330B58000F031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Deliver Us The Moon — это научно-фантастический три�
 ```bash
 magnet:?xt=urn:btih:347E1684FF1239009BBB960386D990257A7CE72B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ FINAL FANTASY XV ROYAL EDITION (2018) [PS4] [EUR] 6.72 [HEN] [License / 1.29 / D
 magnet:?xt=urn:btih:A78C1810D4D3A90D3740FCDF564DEA8BCE98EC56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ Street Fighter V: Champion Edition (2020) [PS4] [EUR] 6.72 [HEN] [License / DLC]
 ```bash
 magnet:?xt=urn:btih:038E09026005242173AFA24493ACA6C8FC90A15C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ The Elder Scrolls V: Skyrim - Legendary Edition (2013) [PS3] [USA] 3.30 [Cobra O
 magnet:?xt=urn:btih:F28DD4A41AEE94D323DF9D80124F733AB85FE1D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ The Legend of Zelda Collection (1986-2015) [Unofficial] [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4F49A337AF16A17B355AF19CF61AA150CAB53BA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +646,8 @@ Ancestors: The Humankind Odyssey (2019) [PS4] [EUR] 5.05 [HEN] [License / 1.01] 
 magnet:?xt=urn:btih:14E68341320C7D06141A07846996CF3364891A33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Road Redemption — это полная событий гонка, в котор
 ```bash
 magnet:?xt=urn:btih:3C5E1B0860DBA5C08478EE7112E385BE0AA59239
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:5B3BF445B403DEBDBDAAF5D6EF0534F620A0D76E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Total Chaos (2025) [Ru/Multi] (1.0.03) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:01BF2ECE3B03FDFE0B188A875BBFF6FBA41C2757
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Midnite City - Bite The Bullet (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Har
 magnet:?xt=urn:btih:F4E81DE38536DA1942D2B82B836B6A25A0BA257A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:F4E81DE38536DA1942D2B82B836B6A25A0BA257A
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:F4E81DE38536DA1942D2B82B836B6A25A0BA257A
 ```bash
 magnet:?xt=urn:btih:60D7ADC999A59EE96AF2E0FAE1AB0C46DC2DD6DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:60D7ADC999A59EE96AF2E0FAE1AB0C46DC2DD6DE
 magnet:?xt=urn:btih:7E7006CC100AB8EAE14D8B85566EA27DD6431063
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:7E7006CC100AB8EAE14D8B85566EA27DD6431063
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:7E7006CC100AB8EAE14D8B85566EA27DD6431063
 ```bash
 magnet:?xt=urn:btih:E1FDD58F1FAAB3C9D98526BD471DCC32CFE3E0C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:E1FDD58F1FAAB3C9D98526BD471DCC32CFE3E0C1
 magnet:?xt=urn:btih:F57665034F3D6E3F8EB2ACFEE589534D719D31F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ Max Payne 3 (Rip/1.0.0.17) [Ru] 2012 l Audioslave
 magnet:?xt=urn:btih:F28800FF81A0068EF95D5CB0FD365A82B8E7565D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ Fallout 2 [Ru] (P/1.02) 1998
 magnet:?xt=urn:btih:AE46EBCAB7D48BC2B76EA0AB47CF2398CCF7F223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:AE46EBCAB7D48BC2B76EA0AB47CF2398CCF7F223
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:AE46EBCAB7D48BC2B76EA0AB47CF2398CCF7F223
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ Resident Evil: Operation Raccoon City — классический шутер о
 magnet:?xt=urn:btih:F45AAE8918DFE7E874CACF5565FAC7AEA4DEB188
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:F45AAE8918DFE7E874CACF5565FAC7AEA4DEB188
 magnet:?xt=urn:btih:2A60E2B27A342B797D800DD23E96B03D9BDD8187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:2A60E2B27A342B797D800DD23E96B03D9BDD8187
 ```bash
 magnet:?xt=urn:btih:4CAD4B83CD8C237551E9DB9A5A71DB90152CEAAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:4CAD4B83CD8C237551E9DB9A5A71DB90152CEAAF
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:4CAD4B83CD8C237551E9DB9A5A71DB90152CEAAF
 ```bash
 magnet:?xt=urn:btih:7043A9A1DDA6AFCA2567C687FA0F398E2292494F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:7043A9A1DDA6AFCA2567C687FA0F398E2292494F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:7043A9A1DDA6AFCA2567C687FA0F398E2292494F
 ```bash
 magnet:?xt=urn:btih:827B9A9C02E76E32D2DF2357317CE7F3323C3223
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +561,8 @@ magnet:?xt=urn:btih:827B9A9C02E76E32D2DF2357317CE7F3323C3223
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +586,8 @@ magnet:?xt=urn:btih:827B9A9C02E76E32D2DF2357317CE7F3323C3223
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ VA - 40 House Anthems, Vol. 2 (2012) [MP3|320 кб/с]<Funky, Club House>
 magnet:?xt=urn:btih:D4ED21D34604E01AA562CFD9DB32FE51496A71D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:D4ED21D34604E01AA562CFD9DB32FE51496A71D9
 ```bash
 magnet:?xt=urn:btih:D8F509CAD652E33CFBF266ED33DB32C41DF48F78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ Arminstel - Trance Evolution vol.73 (04.06.2012) (04.06.2012) [MP3|320 кб/с]<
 magnet:?xt=urn:btih:B74AC6FCB8CE46A2F99E14D58E5F04A4B5FB2D75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -658,6 +708,8 @@ magnet:?xt=urn:btih:B74AC6FCB8CE46A2F99E14D58E5F04A4B5FB2D75
 ```bash
 magnet:?xt=urn:btih:490A55E4347C8C7D0A982D36EF3C1B4F1F121560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

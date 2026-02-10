@@ -1,3 +1,29 @@
+###  Публикация: 1282143   (746554) от 11.02.2019
+
+Казуары / Cassowaries (2008) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_746554.jpg" />
+</div>
+
+
+###  Подробнее
+
+В тропических джунглях Австралии живет одно из последних доисторических существ. Казуар! Нелетающая птица ростом с человека, с мощными лапами и когтями-кинжалами. Как и многие другие виды, казуар под угрозой исчезновения. Виной этому изменение климата и, увы, человек.Производство: Австралия, Великобритания, BKFilms, BBC, National GeographicЖанр: Документальный, природа, флора, фаунаРежиссер: Дэвид Райт, Бьянка КилиПеревод: Одноголосый закадровый, профессиональный (Первый ТВЧ)Субтитры: отсутствуютПродолжительность: 00:51:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FD6ED33BC11351A125398C77BBF849DB8055616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020265   (746597) от 25.05.2016
 
 Космический лис. Владимир Челомей (2014) DVB
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:FD00F3B31C066F6EC7A3EE9333C07EA080311AA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:FD00F3B31C066F6EC7A3EE9333C07EA080311AA8
 magnet:?xt=urn:btih:93CD907865F77A9FE5B67D46636AC3278FF54AA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:93CD907865F77A9FE5B67D46636AC3278FF54AA2
 ```bash
 magnet:?xt=urn:btih:7FBF9143BB55FCEC871176C5A2408357E0D235F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ Peugeot - один из основных французских производ
 magnet:?xt=urn:btih:4F4CBC23AC96C2CB4DBDF2D6DFB334BDB9FB8946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:4F4CBC23AC96C2CB4DBDF2D6DFB334BDB9FB8946
 ```bash
 magnet:?xt=urn:btih:127F8240C74F87E37EAFB9BE78DED5DA687EE749
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:127F8240C74F87E37EAFB9BE78DED5DA687EE749
 magnet:?xt=urn:btih:575F9620C7859F0EF5BF6BCD83311EE7061309A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:575F9620C7859F0EF5BF6BCD83311EE7061309A4
 ```bash
 magnet:?xt=urn:btih:11558A89FBEBC2911221D3810BA07338DAFD7ECE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:11558A89FBEBC2911221D3810BA07338DAFD7ECE
 magnet:?xt=urn:btih:8611BE8CECECBD51449A75A56A7BC21079CA9F88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:8611BE8CECECBD51449A75A56A7BC21079CA9F88
 ```bash
 magnet:?xt=urn:btih:70CEB37A03A11C700BBF3FAF246545ABDB8E4D98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:70CEB37A03A11C700BBF3FAF246545ABDB8E4D98
 magnet:?xt=urn:btih:D8EA4E1A633611AE1E754E515C60BEBB7FEA2FA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:D8EA4E1A633611AE1E754E515C60BEBB7FEA2FA8
 ```bash
 magnet:?xt=urn:btih:08CA5CA506B0DB70185767536E55E7603B2CD89B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:08CA5CA506B0DB70185767536E55E7603B2CD89B
 magnet:?xt=urn:btih:E9DCB269C1F74F6444D235CAFAED057D0FD14151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:E9DCB269C1F74F6444D235CAFAED057D0FD14151
 magnet:?xt=urn:btih:94D86147A52F571BD3BD2B0A16169CD4625BC1C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +382,8 @@ magnet:?xt=urn:btih:94D86147A52F571BD3BD2B0A16169CD4625BC1C6
 ```bash
 magnet:?xt=urn:btih:9C84E298D63237C2AF775D7818B3011B7C5E2536
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:9C84E298D63237C2AF775D7818B3011B7C5E2536
 magnet:?xt=urn:btih:4EE66873325493ED61DB50D64D22A214172B0632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:4EE66873325493ED61DB50D64D22A214172B0632
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:4EE66873325493ED61DB50D64D22A214172B0632
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:4EE66873325493ED61DB50D64D22A214172B0632
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:4EE66873325493ED61DB50D64D22A214172B0632
 magnet:?xt=urn:btih:722D7B2D6DE9B5A6182788BAD962FCA5AAA16D88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:722D7B2D6DE9B5A6182788BAD962FCA5AAA16D88
 ```bash
 magnet:?xt=urn:btih:4610C0358AC1F2F72AF9467C14869F04A1344C79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +573,8 @@ magnet:?xt=urn:btih:4610C0358AC1F2F72AF9467C14869F04A1344C79
 magnet:?xt=urn:btih:16C4E7C6D5790DCB2C00A8B2AAFE75267D5573E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +598,8 @@ magnet:?xt=urn:btih:16C4E7C6D5790DCB2C00A8B2AAFE75267D5573E8
 ```bash
 magnet:?xt=urn:btih:797BB7FEC62BCEA2BE0B420457A361644D470FB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:797BB7FEC62BCEA2BE0B420457A361644D470FB8
 magnet:?xt=urn:btih:630F536259FAE3A586A81C6980E57985AD63A5D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:630F536259FAE3A586A81C6980E57985AD63A5D2
 ```bash
 magnet:?xt=urn:btih:D2426AE70953328576E6D8C80F6317A0790569BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,29 +680,7 @@ magnet:?xt=urn:btih:D2426AE70953328576E6D8C80F6317A0790569BA
 magnet:?xt=urn:btih:8759550122616C055A127A934D3605A038418479
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019942   (747973) от 24.05.2016
-
-Скотозаговор / Cowspiracy: The Sustainability Secret (2014) WEB-DL [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_747973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Со времен развития промышленности человечество упорно уничтожает планету вредными отходами, которые пагубно влияют не только на окружающую среду, но и на здоровье людей. Ежегодно происходит вымирание различных видов живых существ. Но мало кто догадывается, что именно приводит к таким результатам. Автор фильма всерьез обеспокоен экологической катастрофой. Ведь влиятельные (   Читать дальше...   )Телекомпания: A.U.M. Films, First Spark MediaЖанр: ДокументальныйПеревод: Двуголосый закадровый, любительский (Ю.Андреев и З.Балецкая)Язык субтитров: Русский, АнглийскийПродолжительность: 01:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD672EEC2FECF7231FC6E24CF0B018E2CBFB4CB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

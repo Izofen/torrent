@@ -19,6 +19,8 @@ nakst - Apricot Hybrid Synth 1.1.9 (FL Studio Native) [En]
 magnet:?xt=urn:btih:D09B9ED33089870A643AF4E3E17E39F85F185C40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ FastScripts - Утилита для быстрого запуска AppleScript-
 magnet:?xt=urn:btih:980070D45112934E68E9BD3B2A2651A52E726C50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ SiteSucker Pro - это расширенная версия SiteSucker, кото
 magnet:?xt=urn:btih:7B50A84BB2BADE23692250AC510694E0C4417B83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:D4A8CE0FE508009C1039C2CAD5CEFDCE175251E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ EditReady 23.1 [En]
 magnet:?xt=urn:btih:D436741E50D4450BEDEB9E44B87BCC57649ABB2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Vivaldi 6.0.2979.18 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9D6422133C84047C0541B9656317620AB27063B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ PLECS® является инструментом для высокоскоро�
 magnet:?xt=urn:btih:956CF7A1F5D31E89E6FA3B72F75C79B15F8B4B48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ iReal Pro 2020.7.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:73B915F8F4A98EB8C8BB74D42FE62C42EF2A1F64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ Surge XT 1.2.3 Standalone, CLAP, VSTi 3 [En]
 magnet:?xt=urn:btih:7A3BEF82E89775DB2FB797C502CE39D2BD2A90A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Udemy, YouRa Allakhverdov | Современный React с Нуля (2022) WEB-
 magnet:?xt=urn:btih:141401E590F01E57EC2D3583DE4B6C8D49F91340
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ PullTube 1.8.5.10 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:78ABE6DD52BB815901574A7E91B3B595A490BEC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ BetterZip 5 v5.1.1 b2 [Multi]
 magnet:?xt=urn:btih:BE3FDC98AFE057BEACA33414DECACE8EE0C5C633
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Allavsoft Video Downloader Converter поддерживает загрузку �
 ```bash
 magnet:?xt=urn:btih:37A692EF8F780005EF9E56E771E83421606C7125
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:37A692EF8F780005EF9E56E771E83421606C7125
 magnet:?xt=urn:btih:5CBC7110631CECA3C6FDCE3391BA71D9562ED634
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:781F8AB395CD1DD3FA8FA6A2F585EF4B501BD67A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ FinePrint - это многофункциональный драйвер для 
 magnet:?xt=urn:btih:B85156B26CF2DD39F384800C6AFD6526589D8223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Smart Defrag - дефрагментатор, позволяющий довест
 magnet:?xt=urn:btih:E803664729FCF30B5A442D0280D043E10617F61C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +468,8 @@ Acoustica Premium — многофункциональный аудиореда�
 ```bash
 magnet:?xt=urn:btih:870DF7D320C282794C1C0723D3EA9AB4A4615B3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ RapidWeaver отлично подойдет тем, кто ищет ПО для 
 magnet:?xt=urn:btih:1416C1F3BD4CA09DE83AFBE9FB3B2D9ACE830A99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:BC977B2730E11B6978D711E9987CFF23201F4FF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ SysAdmin Software Portable v.0.5.8.0 by rezorustavi (07.05.2022) [Ru]
 magnet:?xt=urn:btih:95B1C341B8909E1805648C870999F527FCD6AEBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ SSH Config Editor Pro 2.2 [En]
 ```bash
 magnet:?xt=urn:btih:74667B91E99C159DD657F0250D61457D1745100F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Acorn (   Читать дальше...   )Тип издания: macOS Software
 magnet:?xt=urn:btih:ACD668D8D7FD9C5D6C4F16782B30298EFC90C781
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ Battery Charging Alert 3.15 [En]
 magnet:?xt=urn:btih:0ECE660F2934492A4F43E38DF0086118C792582C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ Fusion 18 — это самое современное в мире програ�
 magnet:?xt=urn:btih:CFF974EE23E8BF18E4E6C101CB7DCD9EDD5487BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Exposure X6 v6.0.5.196 ARM  [En]
 ```bash
 magnet:?xt=urn:btih:6E67AA1E7F6AEC8633863AC348BB7AF30880FF5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

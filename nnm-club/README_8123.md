@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:CCFD242DE7462FB16DB72E7FE45C79A457995EF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BetterDisplay — поистине замечательный инструмен
 ```bash
 magnet:?xt=urn:btih:9B56FB9515446E9B3C0547394791E0802A8AAD33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Integrity - приложение в помощь Web-мастерам и пре�
 magnet:?xt=urn:btih:6F3B2269A4101D96AD0DCABBFE82E727DDC21255
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Prima Doll / Прима-кукла [2022, TV, 12] BDrip 720p raw
 ```bash
 magnet:?xt=urn:btih:581F85F813F7CCE0345FF8C89F94E37458653EDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Chico Hamilton - The Complete Remastered Recordings On Black Saint & Soul Note (
 magnet:?xt=urn:btih:EF5D5485F6708BCFC85714E037B7AAFE717C5AA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ Eric Reed - Black, Brown, and Blue (2023) Smoke Sessions Records [FLAC|Lossless|
 magnet:?xt=urn:btih:E5D300412CB471876C7CC83A8690CD13E5F02F01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:395A98AA5697AA9A54688422F69AF393D6100D79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Charles Davis - For The Love Of Lori (2014) Reade Street Records [FLAC|Lossless|
 magnet:?xt=urn:btih:FD2CB7E51A1DB94751914BC612A9C889676A1377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -224,6 +240,8 @@ Larry Bartley - Along This Way (2003) [FLAC|Lossless|image + .cue] <Avant-Garde 
 magnet:?xt=urn:btih:3BAE0A71A1AE488286B2AFF3E009E459009D1F8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:6F58BF06D4216BA19AE8F22E3B7CCC6D7FF9A4CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Boris FX Mocha Pro – эффективный профессиональный �
 ```bash
 magnet:?xt=urn:btih:F21D5FD0ADA43EB11DF9F7036C109C85058DB173
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ Abdullah Ibrahim - Cape Town Songs: The Very Best Of Abdullah Ibrahim (1979- 199
 magnet:?xt=urn:btih:33DD4222C54C62FFEC5FE161DA3DFCD40C505771
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ Z-Deep - Compilation (2023) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:7847F951CBD923D6F99EC15D7DB69409EABB718E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:7847F951CBD923D6F99EC15D7DB69409EABB718E
 ```bash
 magnet:?xt=urn:btih:83D3C6B2099CB4A9A3E30CFB2D9A25994E18AA85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ Bartender - утилита для простой организации икон
 ```bash
 magnet:?xt=urn:btih:D47E335CF96AAC278017FE0344AA0E226924D61A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ VA - Hangover Lounge Grooves, Vol. 2 (2012) [AAC|~314 Kbps] <Lounge, Chill Out, 
 magnet:?xt=urn:btih:0883F215A5582882FD806E58A81C4B4BA1338953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ Treponem Pal - Screamers (2023) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 magnet:?xt=urn:btih:C53946451E02FA3E913226D0E1ABDC9034EFBE06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ magnet:?xt=urn:btih:C53946451E02FA3E913226D0E1ABDC9034EFBE06
 ```bash
 magnet:?xt=urn:btih:D790172E7C6AF95193F62227FEF40788A9109695
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ Clouds Of Clarity - Superficial Society (2022) [FLAC|Lossless|image + .cue] <Mel
 magnet:?xt=urn:btih:B4E21E7174F4AAB735F5E6A78BDEE9E2A3F48D2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ MediaInfo — позволит узнать техническую информ�
 ```bash
 magnet:?xt=urn:btih:1CCF1E774B7277FF921CB4D19C3726C41C8434FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ VA - Весна на Love Radio (2022) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:9AA096D5FAF65FB36AB45BA9BAD4C6A72FDB2069
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ VA - Summer Light Deep (2022) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:80AF9B68B872086D934FF274209A91E0F3F0ED78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +629,8 @@ magnet:?xt=urn:btih:80AF9B68B872086D934FF274209A91E0F3F0ED78
 magnet:?xt=urn:btih:AE38B6918A9973615316D2975226B25B440D0682
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +655,8 @@ Things — приятный и простой ежедневник. Это ид�
 ```bash
 magnet:?xt=urn:btih:4C7F0ACD92C1F469C48CE555C458A6EA423CEA19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +686,8 @@ deezer
 magnet:?xt=urn:btih:571376AF510D6A84EFE0C1AB9BF34E957565498B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ Duplicate Files Search & Link (Duplicate Searcher) - это приложение
 ```bash
 magnet:?xt=urn:btih:8128AD85FA87C8B4800316D033AC29BEA96DCB7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

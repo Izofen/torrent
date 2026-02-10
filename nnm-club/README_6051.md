@@ -22,6 +22,8 @@ Sirenia — норвежский готик-метал-проект, основ�
 magnet:?xt=urn:btih:3CFFCE365B756EE82FACC92DDF929812D27B4FE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:3CFFCE365B756EE82FACC92DDF929812D27B4FE0
 magnet:?xt=urn:btih:490392356E7D9AB748C7DF306BF87B709A61D353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:490392356E7D9AB748C7DF306BF87B709A61D353
 ```bash
 magnet:?xt=urn:btih:A20FF6FC0AECDE05065438BE4E072A8E46AAA374
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ A4 I Know That My Redeemer Liveth (From 'The Messiah')(   Читать даль�
 magnet:?xt=urn:btih:D6908EE3E570286E9AF5439E59B75EFDA1B4603D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ CamelPhat - Spiritual Milk (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Dee
 ```bash
 magnet:?xt=urn:btih:513AB9E0D51E82767BF6182BF0891BFF428B4D43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:513AB9E0D51E82767BF6182BF0891BFF428B4D43
 magnet:?xt=urn:btih:C40027643110FE8FB7C3BBB7F1D75864198DB291
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:C40027643110FE8FB7C3BBB7F1D75864198DB291
 ```bash
 magnet:?xt=urn:btih:C7AFA448BF261DB240823A909F31DE39D24E5422
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ CD1 Compiled By DJ Gert (01:19:56.)
 magnet:?xt=urn:btih:88FA500FCBE4CD509446E025F50657AF9DB2A274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:88FA500FCBE4CD509446E025F50657AF9DB2A274
 ```bash
 magnet:?xt=urn:btih:7FEA653DEC89C0FD3B34FD4822C1F2E5972B8C39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Anastacia - Our Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:8A53B1CA06606FC69F15AFCF28CA4FA83B469F7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Ibiza Lounge - Hot Summer Vibes 2024 (2023) [FLAC|Lossless|WEB-DL|tracks] <Chill
 ```bash
 magnet:?xt=urn:btih:A19ED7608F911317C10A59C36848826855481B70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Klubbheads - Pump Up The Heads! (2021) [FLAC|Lossless|tracks + .cue] <House>
 magnet:?xt=urn:btih:E3E042799253BC9D2AC42DF377851432A5668B46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ yeule - softscars (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Synthpop, cyber go
 ```bash
 magnet:?xt=urn:btih:D19F02A12B32E41A2DE1375622D3BFB55FCA2FEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:D19F02A12B32E41A2DE1375622D3BFB55FCA2FEF
 magnet:?xt=urn:btih:AEE1746F1158F10AE39A00AFC877CAA58D1C221A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:AEE1746F1158F10AE39A00AFC877CAA58D1C221A
 ```bash
 magnet:?xt=urn:btih:D553E6E08388DE6984D1ACE1D5087AFD2CD41009
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ Mortemia — готик-метал сайд-проект Мортена Вела
 ```bash
 magnet:?xt=urn:btih:3D0CD45A1431C2E03A5ADEBD2348E1D64C41CE36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +463,8 @@ The Who - Quadrophenia (1973) Super Deluxe, 2014, Geffen [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:14CA56A95DBD8FDD116EB91B0510BCD614CC7F49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:14CA56A95DBD8FDD116EB91B0510BCD614CC7F49
 magnet:?xt=urn:btih:66FA3A61108DBBCD8946C2BD8A79C34370C3F7D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:66FA3A61108DBBCD8946C2BD8A79C34370C3F7D7
 ```bash
 magnet:?xt=urn:btih:CE729D9CB359C653D987811C36B88CBD8250C8C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +544,8 @@ Grave Digger - The Forgotten Years (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, 
 magnet:?xt=urn:btih:12D4ACF18C048796346CBC8582498293F4137A5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:12D4ACF18C048796346CBC8582498293F4137A5D
 ```bash
 magnet:?xt=urn:btih:D3D74D845D1DD6539786E6ECA5CA97FD2CA7A2E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:D3D74D845D1DD6539786E6ECA5CA97FD2CA7A2E0
 magnet:?xt=urn:btih:44058CB37047D9C282362C3A13711ECD46FB1F47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:44058CB37047D9C282362C3A13711ECD46FB1F47
 magnet:?xt=urn:btih:3A3998F8E6E7ECDEA92E76D14E35E6F363151A36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:3A3998F8E6E7ECDEA92E76D14E35E6F363151A36
 ```bash
 magnet:?xt=urn:btih:E0486DA4F64535CDB5395C6E232D249FD3688AF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:E0486DA4F64535CDB5395C6E232D249FD3688AF0
 magnet:?xt=urn:btih:CC72474383B0567822181EFD8B48AC641459EE36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ VA - Nothing But... Trancetopia, Vol. 08 (2023) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:0C38A1438CC93EE4AE84753BF5560DE28B4F750C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

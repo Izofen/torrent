@@ -19,6 +19,8 @@ Heroes of Might and Magic V: Повелители Орды - завершающ�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tyranny (2016) [Ru/Multi] (1.2.0.0124/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:39673BBC393D912331B20C7508AD0601B18E4D45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ OCTOPATH TRAVELER (2019) [Multi] (1.0) License CPY
 magnet:?xt=urn:btih:49B397521FC06BFC4C145335BBDEC5022BF5F5FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Being a DIK Season 1 (2020) [En] (0.4.8.14/dlc) License GOG [18+]
 ```bash
 magnet:?xt=urn:btih:E1584A0883C3A1B4006914E275188D56801D8A5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Albion (1995) [Ru/En] (1.0) License GOG
 magnet:?xt=urn:btih:E717A72C93AA988B0CE6D7DD42F1C467D319DD75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Wasteland 2 является прямым продолжением игры 1988
 ```bash
 magnet:?xt=urn:btih:8EBE012369C6916C130BA2DB2A2F4528C38C9E2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Ashen – экшен-РПГ с открытым миром, что расска�
 magnet:?xt=urn:btih:FB38E4258B2F0759F0B795F22269C59A3749DA7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Desktop Dungeons - минималистичный, но очень интере�
 ```bash
 magnet:?xt=urn:btih:E6B7EDA2274550B55D31D0B39ABC572E0C7FF777
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Icewind Dale / Долина Ледяного Ветра (2001) [Ru/En] (1.42/dlc
 magnet:?xt=urn:btih:920BDF608B5273A8CC08A136335DB630B5861282
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Realms of Arkania: Blade of Destiny (2013) [En/Ge] (1.36/dlc) License PROPHET [C
 ```bash
 magnet:?xt=urn:btih:D2A76C518CFFE5F1CBFC12E01DAF1ADA9C06FFA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ King's Bounty: Warriors of the North / King's Bounty: Воин Севера (201
 magnet:?xt=urn:btih:401CCCB73EBEAA66D8843D0277753B1D08EE5F95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Hades (2020) [Ru/En] (1.36032) Repack Other s
 ```bash
 magnet:?xt=urn:btih:B947368CF9F0CBD79962639D5471C90A1CDA9E51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ Arcania: Gothic 4 / Готика 4: Аркания [Multi5-] (L) 2010 | RELOADED
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ The Dungeon Of Naheulbeuk: The Amulet Of Chaos (2020) [Multi] (1.0 373 34341) Re
 ```bash
 magnet:?xt=urn:btih:9062B2663A90B2024B97EBC5CFF9A98130275116
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ The Bard's Tale IV: Barrows Deep (2018) [Ru/Multi] (4.18.3-100601) License CODEX
 magnet:?xt=urn:btih:8D4BFB17201C31476BBF11E2A703E473762DC067
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Avernum: Escape From the Pit от Spiderweb Software – это своеобра
 ```bash
 magnet:?xt=urn:btih:F6FD656B3C6BD1C7412F07DB6546B1DF784D3768
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Vaporum: Lockdown — это приквел знаменитой игры с п�
 magnet:?xt=urn:btih:533AEE7211B40AE187556638C1031728E236D685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Vaporum: Lockdown — это приквел знаменитой игры с п�
 magnet:?xt=urn:btih:3EBBE17BCD7B8AA83C77CDA19E4ED90810FA2FFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ The Bard's Tale IV: Director's Cut (2019) [Ru/Multi] (1.0.0/dlc) License GOG [De
 ```bash
 magnet:?xt=urn:btih:E7902CCBB277D13AD0AD066EA96317BD1A4F64F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Might and Magic: Heroes VI Gold Edition / Меч и Магия: Герои 6 З�
 magnet:?xt=urn:btih:DB66E517C96ECFF86FEA55E91FA631DB0D15AE2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Lords of Xulima увлекательная фэнтези ролевая игр�
 ```bash
 magnet:?xt=urn:btih:5B4AD6D7120115FC48A6FA9FF20B6AD936F32398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ Warhammer: Chaosbane (2019) [Ru/Multi] (1.06/dlc) Repack R.G. Catalyst
 magnet:?xt=urn:btih:04262E4C73D1217514E1A6705117EDC55E1FAE6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Regalia: Of Men And Monarchs  - ролевая игра, полная увлек
 ```bash
 magnet:?xt=urn:btih:C7A4581F2F6D38C1D4FB009E8D9D650EB143E852
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Torchlight (2009) [Ru/En] (1.15(a)) License GOG
 magnet:?xt=urn:btih:6911179B6AEA97E049DB289406DC4B5EF61C4D1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Faery Tale Adventure II: Halls of the Dead (1997) [En] (1.0) License
 magnet:?xt=urn:btih:69CBBDD1AA5FCB9F47860D37CAA02BD0DA8AE4BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Wizards and Warriors (2000) [En] (1.0) License
 ```bash
 magnet:?xt=urn:btih:825D4D3FAA4A3BDE5F86FC6BDF06C7FDFCB14255
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

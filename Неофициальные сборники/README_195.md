@@ -22,6 +22,8 @@ VA - Осень на Love Radio (2019) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:4295F8A7753AD1468EC7A87DC3529C5FA2115A7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Eliza Neals - Compilation (2022) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:9A5A9C782838859816C3D94084C0260ACA98CA7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ VA - XXXL Русский  №11 (2010) [MP3|256 kbps]<Pop>
 ```bash
 magnet:?xt=urn:btih:0C9723060D9FC1A47DC46CCBBD1BF95EA61BB8BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ VA - За Рулем - Лучшие Хиты В Тачку (2015) [MP3|224-320 �
 magnet:?xt=urn:btih:F0701375FBEB31B14D35A35A39983DC88C05A83C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ VA - Зайцев нет. Лучшие новинки ноября 2015 [MP3|320
 ```bash
 magnet:?xt=urn:btih:A1351045E2D669FCE8315861765C093C1E2E6816
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ VA - Всё это Рок-&-Ролл (2009) [MP3|192 кб/с]<Rock>
 magnet:?xt=urn:btih:5A5BC73614D21CC5FF242D140C3DF38B0B8032E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ VA - Winter Rock (2015) [MP3|192-320 кб/с]<Rock, Hard Rock, Glam Rock>
 ```bash
 magnet:?xt=urn:btih:787148E0449E3E55D14ADB5F773C8B84F5474A55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ VA - Новая Жажда Скорости Без Тормозов vol.2 (2015)
 magnet:?xt=urn:btih:7883AB4D1516C466EE1B6D9BDA84EFEF25EA418D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ VA - Deep and Sexy 20 Deep House and Funky House Music Tunes Vol 2 (2015) [MP3|3
 ```bash
 magnet:?xt=urn:btih:380C8622E2B805A15B685B7278882EE8DFC09838
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ VA - Deep and Sexy 20 Deep House and Funky House Music Tunes Vol 3 (2015) [MP3|3
 magnet:?xt=urn:btih:314030B549BF80B03801D380CAC3448722E2BF0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ VA - The Official UK Top 40 Singles Chart 30.10.2020 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:DD712C43B9AF7B6706AB4E8D923683AD0880D6BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ Kehlani - Gangsta (2018) Remix [MP3|320 Kbps] <Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:BCC1CB83F4FB85174C3554099648B59E962DCED6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +363,8 @@ VA - HGM Electro House: Party Vibes (2018) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:0A697BA0647B7200F5CE0C065CAAE5C4EF4E9993
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +399,8 @@ VA - Muza80 Prezentuje Italo Disco Vol.1-62 + MiX & ReMiX vol.1-3 [MP3|320 kbps]
 magnet:?xt=urn:btih:F595922BD93A50D891358CD3F0C5467E6BA6E243
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ VA - Moments Of Clarity: Essentials Electro House (2018) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:FFB52948F7406A36B269FD3568EB8F98CA386406
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +453,8 @@ VA - Трофим (Сергей Трофимов) в Кругу Друзей (20
 ```bash
 magnet:?xt=urn:btih:947C602F164FF0168B072B305A7B84171F2DFDF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +483,8 @@ Part 1 (Discoteka):
 magnet:?xt=urn:btih:F0EEF3CF9C22114ADB875662C163571B9901922F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ VA - Stay With The Feeling: Emotional Trance (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:2F806FB4B68479DA3FC75AC128D7B551BCCAC308
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +541,8 @@ VA - Лучшие Trance треки Ver.4 (2018) [MP3|320 Kbps] <Trance, Uplifti
 magnet:?xt=urn:btih:4CABE0AE1E6524A379FB8BA5CA3B5C4EE05F993C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ VA - Billboard Hot 100 Singles Chart 03.11.2018 (2018) [MP3|320 Kbps] <Pop, Danc
 ```bash
 magnet:?xt=urn:btih:D87C08FFB7BE4298D05E0887704CDA8E61E7E1E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +599,8 @@ VA - Spirit Guide (2018) [MP3|320 Kbps] <Psychedelic, Goa Trance>
 magnet:?xt=urn:btih:3A14F8C3BE3F296CDBFCD6F9F719A5D994893103
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +627,8 @@ VA - German Top 50 Party Schlager Charts 29.10.2018 (2018) [MP3|320 Kbps] <Pop, 
 ```bash
 magnet:?xt=urn:btih:4B8F30E91FE586D34FAF4B73E32015ABF021A68E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +657,8 @@ VA - Ремиксы 2К20 6 (2020) [MP3|320 Kbps] <Pop, Club, Dance>
 magnet:?xt=urn:btih:563E11A856DF5729229D7ECC896C129537675553
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +685,8 @@ VA - не Громкие новинки недели 38 (2019) [MP3|320 Kbps] <P
 ```bash
 magnet:?xt=urn:btih:6608736B8E3F77C598C107C7C2C18C9AD0AE1F86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +715,8 @@ VA - Mark Knopfler & Dire Straits (2017) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:255BD477ACCCDDEDD4D79B6428994F137B2C3693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,6 +743,8 @@ VA - Shazam Хит-парад Russia Top 100 Октябрь (2020) [MP3|320 Kbps
 ```bash
 magnet:?xt=urn:btih:6BEA6DCFAF4899689D7E3EDF05FBD9C2A9E2EFC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

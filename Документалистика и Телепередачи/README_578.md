@@ -1,3 +1,29 @@
+###  Публикация: 1123506   (786375) от 08.04.2017
+
+Голос. Дети (2017.04.07) HDTVRip (сезон 4, выпуск 8)
+
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786375.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Первый канал" представляет премьеру четвёртого сезона музыкального проекта "Голос. Дети". Детский конкурсный проект строится по тем же принципам, что и взрослый. Из тысяч заявок на участие, присланных в адрес "Первого канала", музыкальная редакция отобрала несколько сотен самых достойных. В ходе предварительных кастингов к участию в (   Читать дальше...   )Телекомпания: Первый каналЖанр: ТВ-Шоу, развлекательныйСубтитры: ОтсутствуютПродолжительность: ~ 01:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0BE8D196D0C831AEB1F9E45DDA4709326BD4989
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123692   (786378) от 08.04.2017
 
 Территория заблуждений с Игорем Прокопенко (2017.04.08) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:1982F32910BC2BCD0A484335F8940B1C8C7D8069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:1982F32910BC2BCD0A484335F8940B1C8C7D8069
 ```bash
 magnet:?xt=urn:btih:96367FA0596BF5AA74D1F22C6B742638EC7A0970
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:96367FA0596BF5AA74D1F22C6B742638EC7A0970
 magnet:?xt=urn:btih:7D871AFE864A4AFA8851EEA14328E1E5430D03E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:7D871AFE864A4AFA8851EEA14328E1E5430D03E1
 ```bash
 magnet:?xt=urn:btih:844172DB951148BA1C89519046AFD7AF5B96F9F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:844172DB951148BA1C89519046AFD7AF5B96F9F3
 magnet:?xt=urn:btih:279E7A112FC173F83DE45D30F3407F44641A55FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:279E7A112FC173F83DE45D30F3407F44641A55FD
 ```bash
 magnet:?xt=urn:btih:AD649A7D440E704F9F354E7D195BA69F6ECECDF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:AD649A7D440E704F9F354E7D195BA69F6ECECDF6
 magnet:?xt=urn:btih:BE4F4ABD21F8DD532612A9C7A93E80C832AD77FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:BE4F4ABD21F8DD532612A9C7A93E80C832AD77FD
 ```bash
 magnet:?xt=urn:btih:BAF7A0C0F2CDCE5A37723D90114C3FAE62A42881
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:BAF7A0C0F2CDCE5A37723D90114C3FAE62A42881
 magnet:?xt=urn:btih:815FC14E9F48837A590B0A5C4901F371876696D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ BBC. Полёт за пределы Солнечной системы. / BBC. Vo
 ```bash
 magnet:?xt=urn:btih:D8CF7333833AF8F9C56F1DA56E0A7E04072C7AFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:D8CF7333833AF8F9C56F1DA56E0A7E04072C7AFC
 magnet:?xt=urn:btih:4B2E2DFE294568F6AA75185976F1DC8B599C37D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:4B2E2DFE294568F6AA75185976F1DC8B599C37D4
 ```bash
 magnet:?xt=urn:btih:2FE043BA749583ADE68520E2CB7A9322D944C3A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:2FE043BA749583ADE68520E2CB7A9322D944C3A8
 magnet:?xt=urn:btih:D8A5E809940BACF989017320D8B6BE6134D23329
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:D8A5E809940BACF989017320D8B6BE6134D23329
 ```bash
 magnet:?xt=urn:btih:2D6757D45806FD88DC65C181D29D6E87E1C1B851
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:2D6757D45806FD88DC65C181D29D6E87E1C1B851
 magnet:?xt=urn:btih:760DD0A4F5EFF4C101C9D7CD4E7A7EA5CDCA4829
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:760DD0A4F5EFF4C101C9D7CD4E7A7EA5CDCA4829
 ```bash
 magnet:?xt=urn:btih:A4206839ED829F485D1DDCD17138E7DD3BD41569
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:A4206839ED829F485D1DDCD17138E7DD3BD41569
 magnet:?xt=urn:btih:AD051BC2254FF32FB22DB979D89CEA5927FF573D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:AD051BC2254FF32FB22DB979D89CEA5927FF573D
 ```bash
 magnet:?xt=urn:btih:9D22F873F7895BC856FB6F09389BF0ABA643D2FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:9D22F873F7895BC856FB6F09389BF0ABA643D2FF
 magnet:?xt=urn:btih:AC28885D84D2F656B093C2547DFA7E57C8473476
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:AC28885D84D2F656B093C2547DFA7E57C8473476
 ```bash
 magnet:?xt=urn:btih:E59301BEEA4F2364981A2F748EBC0B1E2DB3FAB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:E59301BEEA4F2364981A2F748EBC0B1E2DB3FAB5
 magnet:?xt=urn:btih:69E04ACBF4B55A5E55951F9BD79563D89883857E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:69E04ACBF4B55A5E55951F9BD79563D89883857E
 ```bash
 magnet:?xt=urn:btih:52FCB47535E84C7BB8C06499AFB5F547F0FD708E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:52FCB47535E84C7BB8C06499AFB5F547F0FD708E
 magnet:?xt=urn:btih:48ED5CC34FE1DBB71E8857C17592989E3A86651A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:48ED5CC34FE1DBB71E8857C17592989E3A86651A
 ```bash
 magnet:?xt=urn:btih:AAD697AB4A33DD8146164DF5342A29265E90AA95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:AAD697AB4A33DD8146164DF5342A29265E90AA95
 magnet:?xt=urn:btih:66F31AA2DCD0F3E7CF83224699535C32FED6316F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512485   (787092) от 25.11.2021
-
-Последние из первых / Last of The First (2021) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хадза, или хадзабе, - коренная этническая группа Танзании, в основном проживающая в юго-западном районе Карату региона Аруша. Они живут вокруг озера Эяси в центральной рифтовой долине и на соседнем плато Серенгети. По состоянию на 2015 год в Танзании проживало от 1200 до 1300 человек хадза, однако лишь около 400 человек хадза выживают исключительно за счёт традиционных (   Читать дальше...   )Производство: ТанзанияЖанр: документальный, видовойРежиссер: Доминик Роберт БаласкоПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B791A42DD20CB6C78F4EB377F5953FC29224FB7F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

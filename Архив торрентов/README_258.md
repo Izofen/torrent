@@ -19,6 +19,8 @@ Defender Remover Portable 12.8.0 [En]
 magnet:?xt=urn:btih:9DB5CA0FDEA6ACD5A4FB952757880B1E0276919D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ DrumComputer - это новый специалист по синтетичес�
 ```bash
 magnet:?xt=urn:btih:01348CB8F7C74E7A88A8887085EFA1D941116911
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ SRWare Iron 123.0.6250.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:BB158F3EDD9F80091315A99806A9A8943A7FAD69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Text Editor Pro 29.1.1 + Portable + Bonus [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DA55126B05D2D144A0DEC485D8443F32E0346E2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:DA55126B05D2D144A0DEC485D8443F32E0346E2B
 magnet:?xt=urn:btih:56FB9BD21B2DECA95D1C60EF0EC94A0B8B20DC72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ MuseScore — великолепное приложение для создан�
 ```bash
 magnet:?xt=urn:btih:4B658035917FB8909B0D53F1A774937D90196ED4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:77F75C9E217728015685E6A774397740AF2A232A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Freeplane – создание ментальных карт в настояще
 ```bash
 magnet:?xt=urn:btih:F872297592A8A4E70FDC067F49F5D1F3B4BBD6E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Ungoogled Chromium - версия веб-браузера Chromium без инт
 magnet:?xt=urn:btih:CE3BC1DC674374BA775808B68088B3B2808074C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Vit Registry Fix Pro - мощная программа для очистки р�
 ```bash
 magnet:?xt=urn:btih:FDAFB0CCBEF98F99B34C25BE8CCDB756632402FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Icecream Slideshow Maker (Repack & Portable) - простая и эффекти�
 magnet:?xt=urn:btih:46AF5D88BC5A1D5D6A9EDA0591882DA3DB7C0451
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Icecream Screen Recorder - программа, позволяющая вести
 ```bash
 magnet:?xt=urn:btih:DAA92976B6955212272646846DA3EEC41C6F5FE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Icecream PDF Editor PRO - программа для поистине прост�
 magnet:?xt=urn:btih:4E65C7CD3CAD4044353D7902AF982B04AEEB6C47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ GOM Player Plus - мультимедийный плеер со множеств�
 ```bash
 magnet:?xt=urn:btih:141DCCDE8C253FCF3D730B479F0CB899B4916E5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Icecream Video Editor - простой редактор видео для Window
 magnet:?xt=urn:btih:00B3382A75CB34B34BDB4F51197D639587051A76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:0BB6540B5EF48DF30891343A9B7B6E81ABCA494F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Icecream Video Converter - Мощный, но простой в использо
 magnet:?xt=urn:btih:B1E24E86123C1867D98BCB14ED8BD2283C9AE42A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:A01BD202C7C77A9890491A55C5FE17B8E0703E99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ GIMP — это редактор, позволяющий работать со �
 magnet:?xt=urn:btih:09CABB8E28648C70D37874B442FB611016A677E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ GOYO - плагин три в одном, который поможет вам �
 ```bash
 magnet:?xt=urn:btih:56FE7B169B16F32FF39FD9890C6D1D95B57A5E11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:63ADCE7916BDF573C469EC8683FC2A8F6A6BDF2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 magnet:?xt=urn:btih:472D0A17E800AE20DDDE1F19F1E00F2185E54E1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +590,8 @@ eM Client - отличный почтовый клиент с возможнос
 ```bash
 magnet:?xt=urn:btih:E116DADE0B34653FC2A526E09522AEED2FB3888F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ magnet:?xt=urn:btih:E116DADE0B34653FC2A526E09522AEED2FB3888F
 magnet:?xt=urn:btih:DA5C737B1AE3E95BF716EDF9B78E9F06EA10E7FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Notepad++ - бесплатный редактор текстовых файло�
 magnet:?xt=urn:btih:4F2F69D99B97917B2526E7CBC086F4BBF5B10DF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ GoodSync - программа из серии высоконадежного, у
 ```bash
 magnet:?xt=urn:btih:125CBD1EC45872F2DFEC76AD626355B90FCB63F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

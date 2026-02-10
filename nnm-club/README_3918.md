@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D6A9BAFD614FC12E150CBFD41B671E503589A7C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:D6A9BAFD614FC12E150CBFD41B671E503589A7C7
 ```bash
 magnet:?xt=urn:btih:2B6CE99DB63CB7D65000A6806B75CCC5731E75A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Yooka-Replaylee - это усовершенствованная версия и�
 magnet:?xt=urn:btih:CC7682F6152F9D6E5D18F7E95516378CA8F93275
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:CC7682F6152F9D6E5D18F7E95516378CA8F93275
 ```bash
 magnet:?xt=urn:btih:4CD6476247141C3D5912067772DFDE537E232592
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Lost Eidolons: Veil of the Witch (2024) [Ru/Multi] (1.0.6) Repack seleZen
 magnet:?xt=urn:btih:1AE926192FA395AE686490212E6A232B639CED70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:1AE926192FA395AE686490212E6A232B639CED70
 ```bash
 magnet:?xt=urn:btih:2212DA6DB0CDE498BFF3BEB9D5144CDF26688153
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:2212DA6DB0CDE498BFF3BEB9D5144CDF26688153
 magnet:?xt=urn:btih:40A5A089E06D5C2746491297F254ECC9AC2AEE8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:40A5A089E06D5C2746491297F254ECC9AC2AEE8F
 ```bash
 magnet:?xt=urn:btih:8C10EBDCCD2CAA3DCB01A318C07BE1DDA22E611D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Stepik, Дмитрий Фокеев | Веб дизайн в Figma с нуля �
 magnet:?xt=urn:btih:4F3A6342484D2206C1C317B44E20C626980BB2C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:4F3A6342484D2206C1C317B44E20C626980BB2C8
 ```bash
 magnet:?xt=urn:btih:E1E60EB2A0408FABB45E7532480E3D8DDAD24E7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:E1E60EB2A0408FABB45E7532480E3D8DDAD24E7E
 magnet:?xt=urn:btih:39AEF5BCE58886D4C67CD588023BAA7F08E09C62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:39AEF5BCE58886D4C67CD588023BAA7F08E09C62
 ```bash
 magnet:?xt=urn:btih:DBDD1A41EF197DDD0CCF0C709EF2AB7F33874185
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:DBDD1A41EF197DDD0CCF0C709EF2AB7F33874185
 magnet:?xt=urn:btih:6689805667031ADB530399C8BA20CAACD522954A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:6689805667031ADB530399C8BA20CAACD522954A
 ```bash
 magnet:?xt=urn:btih:C264E26AA5B990756A54417EB78288131B990B19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:C264E26AA5B990756A54417EB78288131B990B19
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Horrorgraphy - A Knight's Tale (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic M
 magnet:?xt=urn:btih:F319E615E5A6067DBFAA43E8F8A11FD910AAA526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:F319E615E5A6067DBFAA43E8F8A11FD910AAA526
 ```bash
 magnet:?xt=urn:btih:97A61EC37E0F2586B04ABD19E8C74014EC85E286
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Kari Antila - Dahill Road (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contempo
 magnet:?xt=urn:btih:750EB53EC2B4A473BD20809A80E59C84F1A2B9D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Mosh-Pit Justice - Fighting the Poison (2019) [FLAC|Lossless|image + .cue] <Powe
 ```bash
 magnet:?xt=urn:btih:78B3AC9FE9C525800AA6A55E97903F4E3FD5D811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ Susannah McCorkle - How Do You Keep The Music Playing? (1985) 2000, The Jazz All
 magnet:?xt=urn:btih:E855883C69A7925DCD0273AC72881092700FDD7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ Abysmal Grief - Misfortune (2009) [FLAC|Lossless|image + .cue] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:2CABEDDBDBD9B5B734EFA4930E6FCAD7DC8D1504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +588,8 @@ Hellwell - Beyond The Boundaries Of Sin (2012) [FLAC|Lossless|image + .cue] <Epi
 magnet:?xt=urn:btih:8A4345BD1F90D0FCCAE76123C5119C51635F86E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ Bloodlost - Discover the Hell (2006) Demo [FLAC|Lossless|image + .cue] <Thrash M
 ```bash
 magnet:?xt=urn:btih:246D4F788D7A40EE02FCA2D3D60C85838674ED6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ Bloodlost - Diary of Death (2018) [FLAC|Lossless|image + .cue] <Thrash Metal>
 magnet:?xt=urn:btih:F42DCCAA619F5DFA57B7EDDFC3E7E1781A6E530F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ Ahumado Granujo - Splatter-Tekk (2003) [FLAC|Lossless|image + .cue] <Grindcore>
 magnet:?xt=urn:btih:5409A487CF8E3C6E6C9B59150755FF23B2C07211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ Abysmal Grief - Abysmal Grief (2007) [FLAC|Lossless|image + .cue] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:25B618E002179C1F6B018447DD2B25785804AA0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

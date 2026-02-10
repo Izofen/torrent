@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:CF59E8BE79DA9BE0DFABC1F684773E517EEB2ABC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:CF59E8BE79DA9BE0DFABC1F684773E517EEB2ABC
 ```bash
 magnet:?xt=urn:btih:7F30DF6C2F0AF8E1D68C09F6D27C0CDEB73BE0EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:7F30DF6C2F0AF8E1D68C09F6D27C0CDEB73BE0EC
 magnet:?xt=urn:btih:07C5C5E56550389E93B3479D26585FFDFE7CD95B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:07C5C5E56550389E93B3479D26585FFDFE7CD95B
 magnet:?xt=urn:btih:D5D750BD02162D704E77CA8D94935DE3C8025ADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Blue Cat's All Plug-Ins Pack (v.2018.11.2) VST, VST3, RTAS, AAX RePack by VR [En
 ```bash
 magnet:?xt=urn:btih:41F5723A2756E14E5596A6956B2E1FF007987153
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:41F5723A2756E14E5596A6956B2E1FF007987153
 magnet:?xt=urn:btih:4FE9E34488C0E723A5C907C12DD637C266725E6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:4FE9E34488C0E723A5C907C12DD637C266725E6A
 magnet:?xt=urn:btih:D1E170F340B0A38AF32694134AAB5481D06306D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ Display Maestro - простая утилита, которая дает вам 
 ```bash
 magnet:?xt=urn:btih:0C7F791373280B303B1AF83D516AB339ECF2E1E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -231,6 +247,8 @@ VA - Trance Euphoria Vol.2 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance, Prog
 magnet:?xt=urn:btih:AE39C1056A3A65A6947FCD03D34E796B5C3B5381
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +276,8 @@ Disc 1
 magnet:?xt=urn:btih:C26CE72C02447DE91458041584D2A2AADB328A6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ magnet:?xt=urn:btih:C26CE72C02447DE91458041584D2A2AADB328A6F
 ```bash
 magnet:?xt=urn:btih:AD4A72BA9CB31992AF7AFB2F9BF2571D8731B0EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +331,8 @@ VA - Deep Progressive 2017 [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:060EA706E6970009FAE64A4A71AF43FA3B012B13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ magnet:?xt=urn:btih:060EA706E6970009FAE64A4A71AF43FA3B012B13
 magnet:?xt=urn:btih:DB866E3AD3CF667B69AD8AD09F052798360A6205
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ Ashampoo Burning Studio 19.0.0.25 RePack (& Portable) by elchupacabra [Ru/En]
 ```bash
 magnet:?xt=urn:btih:EC19F7E803E255DE0CEE2679E8396B6E0CE4DB53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +410,8 @@ Titan Quest - Anniversary Edition, мифический набор, из кот�
 magnet:?xt=urn:btih:46910AFE7F169A25894ED09205469B4E248E1913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:46910AFE7F169A25894ED09205469B4E248E1913
 ```bash
 magnet:?xt=urn:btih:D13BA8C901FF1783CFAC9A733F3EA582C2A68467
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +462,8 @@ Yellowpile - программа для создания разноцветных
 magnet:?xt=urn:btih:774496D59AFE397327276BEF4F2CE8066F556AAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:774496D59AFE397327276BEF4F2CE8066F556AAD
 ```bash
 magnet:?xt=urn:btih:E7BC60EBFD4891F7F3239AB3719DB835D835FF3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:E7BC60EBFD4891F7F3239AB3719DB835D835FF3C
 magnet:?xt=urn:btih:3B23E10A0BFC02BE386BF6A92161C66BD2E424CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:3B23E10A0BFC02BE386BF6A92161C66BD2E424CD
 ```bash
 magnet:?xt=urn:btih:729D24D7FD6C8D05B2FFB7957A38802AF277CF66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ magnet:?xt=urn:btih:729D24D7FD6C8D05B2FFB7957A38802AF277CF66
 ```bash
 magnet:?xt=urn:btih:F7E510806F867EBEE528DE49C37EAE803065F46C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +598,8 @@ Emmanuele Landini - Zodiac: The Collection (2017) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:4CCE051CE6BDD57F633531A7997A2CCAADF34059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +627,8 @@ VA - Взаимные Лайки: Русский Сборник Популярн
 magnet:?xt=urn:btih:EF6A131235D9D92452FC2AA573EB45E524E27124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +652,8 @@ Wise Auto Shutdown 1.6.5.87 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:529A75B40E26ECE0918A7AF4AB06A870AAFC07CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +682,8 @@ VA - FG Top 10: November (2017) [FLAC|Lossless|tracks] <Trance>
 magnet:?xt=urn:btih:B871F41045F599C22787442324064249ADA39D7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +707,8 @@ magnet:?xt=urn:btih:B871F41045F599C22787442324064249ADA39D7E
 ```bash
 magnet:?xt=urn:btih:548BB56F7938147FF7E19B6A7947BEBA3CE4F68B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

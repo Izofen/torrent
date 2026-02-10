@@ -1,3 +1,29 @@
+###  Публикация: 1846726   (1051692) от 23.01.2026
+
+Eris no Seihai / The Holy Grail of Eris / Святой Грааль Эрис [2026, TV, 1 из ?] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1051692.jpg" />
+</div>
+
+
+###  Подробнее
+
+Общеизвестно, что аристократы готовы на все ради власти; ложь, манипуляции и вымогательство — их обычные тактики. Однако одна семья является исключением из этого правила: дом Грейл, главными принципами которого являются правда и честность. Младшая дочь, Констанс Грейл, так же нравственна, как и остальные члены ее семьи, она верит в то, что всегда нужно поступать (   Читать дальше...   )Жанр: приключения, фэнтези.Режиссер: Морита ДзюмпэйЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ? серий по 25 минут.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C0EA2B34F85D83299BC20B460295E3DE18EA0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1847008   (1051749) от 22.01.2026
 
 Jujutsu Kaisen: Shimetsu Kaiyuu - Zenpen | Jujutsu Kaisen: The Culling Game Part 1 | Магическая битва [ТВ-3] [2026, TV, 2 из 12] WEBRip 720р raw
@@ -18,6 +44,8 @@ Jujutsu Kaisen: Shimetsu Kaiyuu - Zenpen | Jujutsu Kaisen: The Culling Game Part
 ```bash
 magnet:?xt=urn:btih:EB1AD31C88F459DCD2EF27F2B0B9A30EA9E2DB69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ Douse, Koishite Shimaunda. 2 | Anyway, I`m Falling in Love with You. (2026) | В
 magnet:?xt=urn:btih:44E9AE41175D86515A727BA024635E9C3934D860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ Enen no Shouboutai San no Shou (2026) | Fire Force (2026) | Пламенная �
 ```bash
 magnet:?xt=urn:btih:C368B9D4956288549783A3486709FA462DB34C6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ Champignon no Majo | Champignon Witch | Шампиньонная ведьма [2
 magnet:?xt=urn:btih:6F450B6627B9CC7A04ED7DFB3BCD270E73A94D07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ Kaya-chan wa Kowakunai | Kaya-chan isn't Scary | Кая не боится [2026,
 magnet:?xt=urn:btih:E22ED121C56687BE825B79197368920564F76905
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ Dead Account | Мёртвый аккаунт [2026, TV, 1 из 12 эп.] WEBRip 
 ```bash
 magnet:?xt=urn:btih:49F3ABD6CC3D4666896417C604579EF3F356EC2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ Kuro no Tsuki: Tsuki no Saidan | Dark Moon: The Blood Altar Animation | Тёмн
 magnet:?xt=urn:btih:454F9D98F9C8AFE173E7C2CF0E224BDF0716221F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +231,8 @@ Yuusha no Kuzu / Scum of the Brave / Герой-мерзавец [2026, TV, 1 и
 magnet:?xt=urn:btih:D447009564ECCEF18DE5280AF6AB63460A1A6E27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ Jingai Kyoushitsu no Ningengirai Kyoushi / A Misanthrope Teaches a Class for Dem
 ```bash
 magnet:?xt=urn:btih:B307198E93E4D79B29363B01971A30E7E480BA80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ Jigokuraku Dai Ni Ki | Hell's Paradise Season 2 | Адский рай [ТВ-2] [
 magnet:?xt=urn:btih:EB908A36A7AB2C8E1572FBA32FDC5A0C192F97C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ You and I Are Polar Opposites | Seihantai na Kimi to Boku | Ты и я полн�
 ```bash
 magnet:?xt=urn:btih:195884C65C19F5AB4FCFF4B478A519762CD8EF21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +341,8 @@ Hikuidori: Ushuu Boro Tobi-gumi | Oedo Fire Slayer: The Legend of Phoenix | Ог
 magnet:?xt=urn:btih:9684463E603A4865C1EB8FEACEAFA3467C809DF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +368,8 @@ Trigun Stargaze | Триган: Наблюдая за звёздами [2026, TV
 magnet:?xt=urn:btih:93FDE8104B687F62B7C03AFB8590BAB78B6EC2C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +393,8 @@ Uruwashi no Yoi no Tsuki | In the Clear Moonlit Dusk | Прекрасная ве
 ```bash
 magnet:?xt=urn:btih:4A313C1B8E67F224BD7241BFC085435840785627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +421,8 @@ Akuyaku Reijou wa Ringoku no Outaishi ni Dekiai Sareru | The Villainess Is Adore
 magnet:?xt=urn:btih:0236A803FEEEC3365D0BB802C6A9B8DE9CE32420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +446,8 @@ Fate/Strange Fake | Судьба: Странная подделка [2026, TV, 2
 ```bash
 magnet:?xt=urn:btih:477ED752CF8F3AA13855BCB344ADB5FB827A32F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +476,8 @@ Hime-sama Goumon no Jikan Desu (2026) | Tis Time for Torture, Princess (2026) | 
 magnet:?xt=urn:btih:8EF2A167CB532915FFB0FDABDF7DCBF1E7117F7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +501,8 @@ Odayaka Kizoku no Kyuuka no Susume. | A Gentle Noble's Vacation Recommendation |
 ```bash
 magnet:?xt=urn:btih:83B292F2CC3777E16D59C8F8395A7345188F3B54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +528,8 @@ Oshi no Ko 3 | Звёздное дитя [ТВ-3] [2026, TV, 1 из 12] WEBRip 7
 magnet:?xt=urn:btih:DD095411C4C909011CBF82EBC8E95C9C6AC55657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +553,8 @@ Undead Unluck: Winter Hen | Undead Unluck: Winter Arc | Нежить и Неуд
 ```bash
 magnet:?xt=urn:btih:6AC4FC30D287AACB940581DB83C13F5471934328
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +580,8 @@ Prism Rondo | Love Through a Prism | Любовь сквозь призму [202
 ```bash
 magnet:?xt=urn:btih:77FCA734A61E4039FA3CA2CA4020362B45E82341
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +609,8 @@ Sousou no Frieren (2026) | Frieren: Beyond Journey's End (2026) | Фрирен [
 magnet:?xt=urn:btih:A02BE6168D54E8EDE0A89E227329AD7584873D3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +637,8 @@ Hell Mode: Yarikomi Suki no Gamer wa Hai Settei no Isekai de Musou Suru | Hell M
 magnet:?xt=urn:btih:4E5F41C70A76E7D9EF9340F97D7F499C67B90D71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +662,8 @@ Eiga Kobayashi-san Chi no Maidragon: Samishigariya no Ryuu | Miss Kobayashi's Dr
 ```bash
 magnet:?xt=urn:btih:433B26EAFA4E9C4CF572363C35536F8BA6064149
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,29 +692,7 @@ Kumo to Tulip | Spider and Tulip | Паук и тюльпан [1943, Movie] BDRi
 magnet:?xt=urn:btih:EBDA13DC8B3B92AC052745B8678D8CD4591621D2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850060   (1054011) от 
-
-Medalist (2026) | Медалистка ТВ-2 [2026, TV, 1 из 9] WEB-DL 1080p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1054011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цукаса Акэурадзи мечтал бороться за медали в фигурном катании, но профессиональный спорт не терпит тех, кто приходит к таким мечтам слишком поздно. Будущие чемпионы Японии встают на лёд уже в пять лет, поэтому Цукасе, который только в средней школе осознал своё желание, была дорога лишь в танцы на льду, которые и рядом не стояли с его мечтаниями о сольном катании. (   Читать дальше...   )Производство: ENGIЖанр: спортРежиссер: Ямамото ЯсутакаПеревод: Архив Субтитров (Donate)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: ТВ (9 эп.), 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D63E8FFC87A858430293235B49E5A18B0B4F2F
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

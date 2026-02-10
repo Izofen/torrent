@@ -19,6 +19,8 @@ XnView MP - мощное многофункциональное приложен
 magnet:?xt=urn:btih:547CA54A478EBF3E6C1C0C3F2022582BF8C1617B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:547CA54A478EBF3E6C1C0C3F2022582BF8C1617B
 ```bash
 magnet:?xt=urn:btih:A1A8164E61EBC24D78825D1FC363F96577049AE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Altair HyperWorks Suite — это программная платформа д�
 magnet:?xt=urn:btih:846EF6862A0245933F5BA5955748C054961D6A1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:724DFAADD8BB7AE44CCF364999B43E18AD95F5BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Flow Simulator - это инструмент трехмерного проект
 ```bash
 magnet:?xt=urn:btih:0FC284ED63C66F824D467356A7588639F979AD20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ VA - Best Of 92 (1992) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
 magnet:?xt=urn:btih:F0D9BE998BA575876AA5A4F2FC637DBB403ADFF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:F0D9BE998BA575876AA5A4F2FC637DBB403ADFF0
 ```bash
 magnet:?xt=urn:btih:088FE8975D571A557FB5D720D0674F141837D686
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:088FE8975D571A557FB5D720D0674F141837D686
 magnet:?xt=urn:btih:2AE9FB423D7E3CD254DC536F23AAB8FE7FEB4011
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ SteamWorld Heist II (2) (2024) [Ru/Multi] (96730) License GOG
 ```bash
 magnet:?xt=urn:btih:D4AD7B755960CEA481ECA626EEAF5EEF540BAF0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ SpaceX впервые приземлила разгонную ступень Sup
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ FL Studio Producer Edition - это одна из лучших программ 
 ```bash
 magnet:?xt=urn:btih:A215756F459F13B727B0ECF838BB4EF97FB39762
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:A215756F459F13B727B0ECF838BB4EF97FB39762
 magnet:?xt=urn:btih:D7E42582C1983474EB45F8798A88E76ABB141840
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:D7E42582C1983474EB45F8798A88E76ABB141840
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ Soulbind: Tales Of The Underworld - экшн-платформер, которы�
 magnet:?xt=urn:btih:E4C1EC5590AF9742238E846042EDD1DD49073320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:E4C1EC5590AF9742238E846042EDD1DD49073320
 ```bash
 magnet:?xt=urn:btih:392743404C6B6A3FBA6E2D769698C07B37C4A63C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:392743404C6B6A3FBA6E2D769698C07B37C4A63C
 magnet:?xt=urn:btih:BE04673C7950E897B7954541B467DA79FEDE4508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ NASA показала снимок «лица» на Марсе, сделанн�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ NASA показала снимок «лица» на Марсе, сделанн�
 ```bash
 magnet:?xt=urn:btih:DAA0ACC449D207E368C5FDAB100A64932FA4B0FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:DAA0ACC449D207E368C5FDAB100A64932FA4B0FE
 magnet:?xt=urn:btih:61FDD2647CE4516EB093BA285B0B5A9E4C897D98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:61FDD2647CE4516EB093BA285B0B5A9E4C897D98
 ```bash
 magnet:?xt=urn:btih:236B5FED69A7C84084D752F3E7A03A8F1D322F04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:236B5FED69A7C84084D752F3E7A03A8F1D322F04
 magnet:?xt=urn:btih:C015E8556034C3A50473EB4A19A789DC01D8B06B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:C015E8556034C3A50473EB4A19A789DC01D8B06B
 ```bash
 magnet:?xt=urn:btih:E5A9A021A5A8A03272CC076BA018A0D102BEDF58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +607,8 @@ Inkscape – редактор векторной графики. Програм�
 magnet:?xt=urn:btih:D2B5569865587D5F7939C1616004DDAD52F83AB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:D2B5569865587D5F7939C1616004DDAD52F83AB9
 ```bash
 magnet:?xt=urn:btih:6446E36D305360A3192C22462EE63338BF5BA21A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +659,8 @@ Portal - игра от Valve для одного игрока, действие 
 magnet:?xt=urn:btih:AF023E1CB907EE3E54C8B7CE78749E37D53AA80B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:AF023E1CB907EE3E54C8B7CE78749E37D53AA80B
 ```bash
 magnet:?xt=urn:btih:4DA336D84106970E60D0C81C3CA8200A3E6572B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

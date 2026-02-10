@@ -19,6 +19,8 @@ Mr. Prepper - строительный симулятор, где вам пре�
 magnet:?xt=urn:btih:B605E36BE2281C39CC9D250460FE37D258833ECD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Lords and Villeins (2021) [Ru/Multi] (1.6.14/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:B8D8990FB1BCF9F41D32FCD64824D4684FE22520
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ How We Die (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:ECE77E44E781DF5C645AE152ECC8EBACC3CF9490
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Planetbase – стратегия, в которой вы руководите �
 ```bash
 magnet:?xt=urn:btih:A13FB9DBB85321F1EC71D3A6136DF69290DB9FE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Roots of Yggdrasil (2024) [Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:808E5123DA55BDD504B3C7B013A0EF011C3D6B39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Frostpunk 2 открывает новые грани жанра выживани
 ```bash
 magnet:?xt=urn:btih:5DD0BB4C8534FAB8E30C02E1977E421C6897971B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Frostpunk 2 открывает новые грани жанра выживани
 magnet:?xt=urn:btih:124F29C10EF2B611A725C1951686E7E3E69B6F65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Demon's Mirror - это roguelike-конструктор колод, сочет�
 ```bash
 magnet:?xt=urn:btih:42E0C87C65DB546A426F2E9B578887D4CE33BE3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Terrorformer TD (2024) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:F261A228CCF21700369B7D73500E285F77B7B29C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Sweet Transit – это градостроение, где все во мног
 ```bash
 magnet:?xt=urn:btih:52505B1CD670B6B8C42520A51538F4736F78247A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Republic of Pirates - это не типичная градостроитель�
 magnet:?xt=urn:btih:894805DC111498BBFD81CF729484DA8C0D2DC649
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Highrise City совмещает в себе элементы как строи�
 ```bash
 magnet:?xt=urn:btih:79A4A69E3E01CC74F39FE6D852B99963DB186FBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ World Turtles - это увлекательная средневековая г�
 magnet:?xt=urn:btih:69DFE06EFF85277133689C88FE465AF6F9BF36D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Patron сочетает в себе классические элементы г
 ```bash
 magnet:?xt=urn:btih:EBDF7524388D84DAE0D1FFADA304C2563C61A935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Townsmen A Kingdom Rebuilt (2019) [Ru/Multi] (2.2.8.0/dlc) License GOG
 magnet:?xt=urn:btih:5106FCEB5A49A22C2AF97D42A55565ED99F60BBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Paris in 2000 Years - это градостроительная игра, пос
 ```bash
 magnet:?xt=urn:btih:FE6656091236B9F4794368BED369797B4594C105
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ My Lovely Empress - симулятор имперского управления
 magnet:?xt=urn:btih:36254CD100ABD3C16B8CFA035D33467404CBAAF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Harvest Island - приключенческий экшен с элементам
 ```bash
 magnet:?xt=urn:btih:251D765E8209BBD98D6BEDB2EDF5BA27EA95B597
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Crypt of the NecroDancer – популярная и хардкорная рит
 magnet:?xt=urn:btih:1BA9103FF536C2EAB73E38E6384ED2451A11922F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Train Valley World (2024) [Ru/Multi] (Build #370) Scene TiNYiSO
 ```bash
 magnet:?xt=urn:btih:A786671FE11758BB1EB48360BB20BBA16E9F2EA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Train Valley World (2024) [Ru/Multi] (Build #370) Repack FitGirl
 magnet:?xt=urn:btih:B383D703E267A4EF178DC19EF2EB0A144DE5D4CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Mr. Prepper - строительный симулятор, где вам пре�
 ```bash
 magnet:?xt=urn:btih:11B363EC112C491FB1F0B00850EB968D6ACF5234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Highrise City совмещает в себе элементы как строи�
 magnet:?xt=urn:btih:9458CB3CF6DEB5A43596C1B49718A5905D538547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Sumerians (2020) [Multi] (1.0.7/dlc) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:889ABDC35F0E4AA3BBBCBB8540944F01766C3AF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Fabledom - это волшебный градостроительный симу
 magnet:?xt=urn:btih:F9C0FF8F133A91B08DB64C1F3255D3DA1DDD5F10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Fabledom - это волшебный градостроительный симу
 ```bash
 magnet:?xt=urn:btih:36CD0882E9BD1627D44F3D32061FC5BEF92E7A5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

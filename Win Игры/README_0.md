@@ -19,6 +19,8 @@ Placid Plastic Duck Simulator (2022) [Ru/Multi] (2.2.0/dlc) Repack FitGirl [More
 magnet:?xt=urn:btih:A9FC4EE6BF7EC01BE78B3F17AA9BCE659E564C51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Mage & Monsters 2 - это захватывающий активный авто-
 ```bash
 magnet:?xt=urn:btih:3B033FB938A95C03E32F8856F2C46DC09511AD4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28714) License GOG
 magnet:?xt=urn:btih:5AD2CB76441F307298CE356373D3DD5A7200689C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ PixARK - это огромный мир дикой природы, злобны�
 ```bash
 magnet:?xt=urn:btih:25AB2E08A8205059057520C45BC96BEB92A67B6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Wandering Sword - это уникальная РПГ с элементами к�
 magnet:?xt=urn:btih:8E1F6932897615EEC669D1B1372670FC5E44E9D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Rift of the NecroDancer (2025) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Ultimat
 ```bash
 magnet:?xt=urn:btih:0865150A6BDC50C52D67A637456659CF50649BE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Arctic Awakening - приключенческая игра от первого �
 magnet:?xt=urn:btih:E5DE0FDCCD9B4DF6F6186E45EBC97B300A815473
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Alaloth: Champions of The Four Kingdoms (2022) [Ru/Multi] (2025.07.14.17f5b0a/dl
 ```bash
 magnet:?xt=urn:btih:AF60B24A4B3DDA1D1ED78D78B3CB42FC22BDD9DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Alters (2025) [Ru/Multi] (550832/dlc) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:3EE5BF83E8E39C2D00E423546EE0E6856624FB89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ New Arc Line (2024) [Ru/Multi] (0.250725) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:C4E82D8AA0B7EA883FCC6C8BA77A976485591ADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Icebound Secrets 2: Soul Hunter (2025) [En] (1.0) Unofficial
 magnet:?xt=urn:btih:0A6E14C7CD469435CFCD5F6744385350DC22F9A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0/dlc) Repack FitGirl [Deluxe Editio
 ```bash
 magnet:?xt=urn:btih:424D8C126DAA3E2C02E74432A4DE17952BAD4456
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ PAC-MAN WORLD 2 Re-PAC (2025) [Ru/Multi] (1.0) Repack seleZen
 magnet:?xt=urn:btih:4188C95DAA0B0BFBEF92612C609DA33B8BE34883
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Cronos: The New Dawn - это новое слово в жанре survival horro
 ```bash
 magnet:?xt=urn:btih:5B232C45F5B20079F051C7CB25574D21FD765435
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ SOMA - научно-фантастический хоррор от Frictional Ga
 magnet:?xt=urn:btih:785FFBE1D772E6931C8092855053138E4888335F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Platypus Reclayed (2025) [Ru/Multi] (1.1.7) Repack Let'sPlay [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:F96FDCC82E745FA622214CD7252A750B5A4AB3D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Circus of Pain (2025) [Ru/Multi] (1.02) Repack FitGirl
 magnet:?xt=urn:btih:48A0F81D511507A1433CB16E6D8AF4E2ACD949A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Fights in Tight Spaces (2021) [Ru/Multi] (1.2.11564 HF2)/dlc) Repack Let'sРlay 
 ```bash
 magnet:?xt=urn:btih:0E870A851AB1CD52B3AC6144ED5635DA511C2648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Hades II (2024) [Ru/Multi] (1.131346) Repack Let'sРlay
 magnet:?xt=urn:btih:35D863CA2364F103478223D4A13F3853AA448BE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Greedland - это игра, предоставляющая поклонника
 ```bash
 magnet:?xt=urn:btih:ABDA790DDDC5B4E879CD8CAC1CD59915D5710573
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Achilles: Legends Untold (2023) [Ru/Multi] (1.8.0/dlc) Repack Let'sРlay [Soundt
 magnet:?xt=urn:btih:40E5FBD0ACFE1799A7FFC292F700F08E8BEF7ABF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ One Eyed Likho / Лихо одноглазое (2025) [Ru/Multi] (Build 19955863
 ```bash
 magnet:?xt=urn:btih:3228CF829D66A60B99DAD2A862515147CB799411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Monolith (2023) [Ru/Multi] (1.1.7.001) Repack Other s
 magnet:?xt=urn:btih:1F9A6ADB647489D973B1587CDC802E1BEECE3423
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Kingdom Rush 5: Alliance TD бросает вас в мир, где враги �
 ```bash
 magnet:?xt=urn:btih:D70BBBD490A65BB14B69175D4DB71CF6961E1EA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Atelier Yumia: The Alchemist of Memories & The Envisioned Land (2025) [Ru/Multi]
 magnet:?xt=urn:btih:C135356846F01A13CCEA24D9BCE21DADC5B45183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Katanaut - это экшн-рогалик, в котором главный ге
 ```bash
 magnet:?xt=urn:btih:E6279083454B028AE446FAEF90C68A12DF7574FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

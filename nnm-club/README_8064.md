@@ -22,6 +22,8 @@ Brujeria - Pocho Aztlan (2016) [FLAC|Lossless|image + .cue] <Death Metal, Grindc
 magnet:?xt=urn:btih:A68E1ACA4ABEE8E1804F8173178EE8455D579199
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Newsflow 1.4.7 [En]
 ```bash
 magnet:?xt=urn:btih:AFD998C70CB8C11DE3E5F0AC87F8B5A185CDFEE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ The Slight Delay - Shades of Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues R
 magnet:?xt=urn:btih:474B122A3563090F7895BDBA3C57EA8ECD21C5B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ RTG. Зимний отдых в Домбае (2013) HDTV [H.264/1080i]
 magnet:?xt=urn:btih:5417A202637490F2DA1C7B25C3AC7E55AEA1A7A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ BitComet - это функциональный, быстрый и простой
 ```bash
 magnet:?xt=urn:btih:6B7F0CE7678994A271F4A9C0F81B9352492FBDE8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:6B7F0CE7678994A271F4A9C0F81B9352492FBDE8
 ```bash
 magnet:?xt=urn:btih:5863C9ED62E2E52BBE3F01687FF03DCFD794A504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:5863C9ED62E2E52BBE3F01687FF03DCFD794A504
 magnet:?xt=urn:btih:F0BC2CCE54C328332B2D3628B51DB7562CCC86C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:50DCCA46B1BDCAC554D0D3D59787A980479F026E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ Les Lankhorst - Love and Lullabies (2017) [MP3|320 Kbps] <Jazz>
 magnet:?xt=urn:btih:243269B579738B8CD566DB6B6461909C31A75951
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -255,6 +273,8 @@ VA - Hypnotic Sunset In Jungle (2023) [MP3|320 Kbps] <Techno, Minimal, Electro>
 magnet:?xt=urn:btih:00E2133438FCC56516D689DE9784DF652146AD99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -281,6 +301,8 @@ magnet:?xt=urn:btih:00E2133438FCC56516D689DE9784DF652146AD99
 magnet:?xt=urn:btih:C784412F8013B78A1991E6410B69748E1CEDBB22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ RTG. Зеленчукская астрофизическая обсервато�
 ```bash
 magnet:?xt=urn:btih:70758952C29A584BF4DB3B9FCE7E9C8914B0BD5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +356,8 @@ Athlantis - Last But Not Least (2021) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:35D918F6CAB3C5E769B40453F581F06A8E99BB6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +384,8 @@ Viber, вне зависимости от того каким устройств
 ```bash
 magnet:?xt=urn:btih:3D238586F2350C8044EF6424B14CA208312200ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +414,8 @@ James Brown - James Brown's Singles Anthology, Vol. 2 (2021) All Tracks Remaster
 magnet:?xt=urn:btih:EE200D259349E9C3132BA1D26323AF7D0D81949C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +441,8 @@ Opera Crypto Browser 97.0.4719.63 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:7FC9CAE9103E6295F0DAF7BEBAE90F76E94D1FAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +466,8 @@ VA - Paul Oakenfold - DJ Box February (2017) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:50E10C0DC6C65B875E8F28CCFF90AE1465BE136B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +496,8 @@ VA - Nothing But... Trancetopia, Vol. 03 (2023) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:052955EB0306A67E37E6A9A2C9CD04D65D26EDA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +524,8 @@ VA - Blues Tunes Vol 4 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ```bash
 magnet:?xt=urn:btih:6DBC793D479D79D36700FA2D3E30903CD4BEB4B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +554,8 @@ magnet:?xt=urn:btih:6DBC793D479D79D36700FA2D3E30903CD4BEB4B1
 magnet:?xt=urn:btih:1B5514DA23F5DCFB242A0C80D02CCDBFCBCFEF8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +579,8 @@ magnet:?xt=urn:btih:1B5514DA23F5DCFB242A0C80D02CCDBFCBCFEF8F
 ```bash
 magnet:?xt=urn:btih:24A6EA5B002FF0DB7EBA5CAD3AF23516467E82C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +606,8 @@ magnet:?xt=urn:btih:24A6EA5B002FF0DB7EBA5CAD3AF23516467E82C3
 magnet:?xt=urn:btih:7E4FEC53E5780DBC5C451FFFFC8F25EC55B9514E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 ```bash
 magnet:?xt=urn:btih:2B5DFDDBB6A71B9ABA2B1A92560C4C4BDBFC0E6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +661,8 @@ Country Western Band - Best Acoustic Country Music (2018) [MP3|320 Kbps] <Countr
 magnet:?xt=urn:btih:A755E11C4DE7D56C531FB1EC0B20E4F7D2A574D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +690,8 @@ Ray Charles - Live At The Montreux Jazz Festival (2002) Geneon [FLAC|Lossless|tr
 magnet:?xt=urn:btih:65BEB012A420843FEDABD65B6F73313EB586500D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -668,6 +718,8 @@ Brandy Clark - Brandy Clark (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
 ```bash
 magnet:?xt=urn:btih:6BB5E318827470D5E4B319E2E8656B47D195F739
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

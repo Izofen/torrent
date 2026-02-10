@@ -19,6 +19,8 @@ Redfield Fractalius 1.83 [Eng|Rus] RePack by  Stalevar
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ RealGuitar - основанный на сэмплах, специализиро�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Red Giant VFX Suite представляет собой уникальное п�
 ```bash
 magnet:?xt=urn:btih:767153C0CE1A7851D91AA6C1F449ABF3F591FF33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Revision FX Effections Plus - это набор плагинов для Adobe Af
 magnet:?xt=urn:btih:37F2657EAB7400C4BA3E50010A3201D8238657C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Steinberg WaveLab LE 7.2.1 (build 600) [Англ.]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Steinberg WaveLab LE 7.2.1 (build 600) [Англ.]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Audio Transcoder 2.8.14.1310 [Multi/Rus] Portable by Invictus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ MusicLab представила новый программный продукт
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Gif Recorder состоит из двух приложений, Screen Recorder 
 ```bash
 magnet:?xt=urn:btih:1032CD7BAC36F4C7F63F04BB4091E52517C1B747
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Pitch Shifter точно транспонирует голос (   Читать
 magnet:?xt=urn:btih:5B6C8DABC00FFC24D14F00909C33D8F005B96E05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Adobe Type Manager Deluxe 4.1 build 243 [En] Installed
 magnet:?xt=urn:btih:183C7582F92B1E56320FDB172815F819B502C490
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ Simply Good Pictures — один из лучших автоматических
 ```bash
 magnet:?xt=urn:btih:94C01A56057C76F4DD38DE2E3450681BB4AB6F1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ Alveole v1.0.3 for Cinema 4D [En]
 magnet:?xt=urn:btih:C2640C1CF435FC65A02FCB1F26FDC1814CB37E77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Depliage V1.3.2 for Cinema 4D [En]
 ```bash
 magnet:?xt=urn:btih:40B0881AF765066E8FA9E29FD617F1CCDCB702CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Influence Point v1.5.2 for Cinema 4D [En]
 magnet:?xt=urn:btih:C912F2BA49D6137FB35F52C3CF6B7C7DE61A2DF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ Pitchwheel - эффект, изменяющий тональность в реа
 ```bash
 magnet:?xt=urn:btih:137E779B529A0D5E8F8A7AAA3D265C70C6E1EE01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ CCCP первоначально был создан, чтобы заменить
 magnet:?xt=urn:btih:DF3D08354D4DB2A005987FCFB5B52FA473A44B1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Mosaic Creator Pro 3.1.Build 348 [Multi/Eng]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Red Giant Universe - это библиотека профессиональны�
 ```bash
 magnet:?xt=urn:btih:CAEFD2364FE591324BE7AF62AC997A3ADF561146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ Album Art Downloader - это легкое приложение для Windows, 
 magnet:?xt=urn:btih:0438B1A019912B18420F288FA7B255DF01641872
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Movavi Picverse - представляет собой один из самых �
 ```bash
 magnet:?xt=urn:btih:AC8662F33696E00F30A4831EB4C485A31BBE39B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Video Enhancer - редактор видео в линейке программ�
 magnet:?xt=urn:btih:C43BD2679FAF918C40F32DD964D52CE8E2AD1D3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Cool Record Edit — звуковой редактор, который помо�
 ```bash
 magnet:?xt=urn:btih:4151AA13D1EBA1568DEE6692DD6BFED3A7B5DB5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Ashampoo Video Filters and Exposure 1.0.1 RePack (& Portable) by TryRooM [Multi/
 magnet:?xt=urn:btih:EE8CCA4B9082795965FB19CA2954CBAE22B6C948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ Pancz - универсальный инструмент для управлен�
 magnet:?xt=urn:btih:715A3630B847E0EAFEAAB218FF4596FF4CD35B63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ Adobe Photoshop 2020 - новая версия программы для обр�
 ```bash
 magnet:?xt=urn:btih:582B9EDA364F9C42F1038ED488C9649B11C4B782
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

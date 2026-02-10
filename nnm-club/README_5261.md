@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:6467A2411A5482069D64F1702698186E9EDF3BB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:6467A2411A5482069D64F1702698186E9EDF3BB5
 ```bash
 magnet:?xt=urn:btih:0D99B36297AF443542CEEDC25480D4953330743F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:0D99B36297AF443542CEEDC25480D4953330743F
 magnet:?xt=urn:btih:2BAE1DFFEE8E4E0068357E99D1255E8C60B80E63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Cardaclysm: Shards of the Four (2020) [Ru/Multi] (1.1.2.6_fix) License GOG
 ```bash
 magnet:?xt=urn:btih:0AFBDF5B73684841B58D8F813BB77566C1CE8648
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ English LinDuo HD v5.29.3 [Ru/Multi]
 magnet:?xt=urn:btih:CE4FD3E62EF695B4CB6922BC678EFA9EC631B713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ CameraBag Pro позволяет мгновенно применить одну 
 ```bash
 magnet:?xt=urn:btih:97767D3D5638C12BF0B71D6A6CEAA77F9C13BDA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Skillbox, Андрей Котельников, Никита Акулич | По�
 magnet:?xt=urn:btih:7C011B5F98213C2F4726CFF2829086DDD6C944C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ A Short Hike (2019) [Multi] (1.9_v3) License GOG
 ```bash
 magnet:?xt=urn:btih:7B86798A1B51EA259F1A50E300EAB468975B5386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ VA - Mellow Easy Chilled Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:5C52EAF881EA48D16393ADBBA7EB333241907CD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ SUPERHOT - это шутер от первого лица, где время д�
 ```bash
 magnet:?xt=urn:btih:E53FFC89378A982FCEA5996586C49AB5F54C7E86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:E53FFC89378A982FCEA5996586C49AB5F54C7E86
 magnet:?xt=urn:btih:1A691AC4C6990BF9CD4B5AE240347B066A17855F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:1A691AC4C6990BF9CD4B5AE240347B066A17855F
 ```bash
 magnet:?xt=urn:btih:070A81E3A47A81BB2AD0CB993E52C9A7D68D2DCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:070A81E3A47A81BB2AD0CB993E52C9A7D68D2DCF
 magnet:?xt=urn:btih:CB9538537D4BAB126113B200B6CC89A07C5F3CEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ Tropico 6 v.19_907_a7f0e5a (2019) [Ru/En] [macOS Native game]
 magnet:?xt=urn:btih:65817B93CBAE47ECD6D5E937DDD2CBF4D84AFE59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ The Coma 2: Vicious Sisters (2020) [Ru/Multi] (1.0.6 fix/dlc) License GOG [Delux
 ```bash
 magnet:?xt=urn:btih:10A6DA9D384906EC4A167297F8F88D3C3A6B5D0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ Frank Sinatra with the Red Norvo Quintet - Live In Australia (1959) 1997, Blue N
 magnet:?xt=urn:btih:438B9FFE1C3AB0A0026C64FB05F6F8F17ED6BC4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ Steinberg Nuendo 12.0.70.464 (x64) Portable by 7997 [Ru]
 ```bash
 magnet:?xt=urn:btih:04E7CBEA6BFB5147F93FA886C991A2E771E6A411
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:04E7CBEA6BFB5147F93FA886C991A2E771E6A411
 magnet:?xt=urn:btih:00BFDA7AA61357736B2481F800D74CD63E550286
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ Vambrace: Cold Soul (2019) [Ru/Multi] (1.11-fix) License GOG
 magnet:?xt=urn:btih:C500A90790B59BD363C04C87678F1E687B10A526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ magnet:?xt=urn:btih:C500A90790B59BD363C04C87678F1E687B10A526
 ```bash
 magnet:?xt=urn:btih:FB59BDC9D7F350A0804BCC39F65142315B2CC961
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:FB59BDC9D7F350A0804BCC39F65142315B2CC961
 magnet:?xt=urn:btih:98CA22AC9144956FD24D9A81DC83997FE8D4CDD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:98CA22AC9144956FD24D9A81DC83997FE8D4CDD0
 ```bash
 magnet:?xt=urn:btih:89678839F8733BAB7BC84DCF80B33B8F3F21D9C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +609,8 @@ Unpacking - медитативная игра, где нужно достава�
 magnet:?xt=urn:btih:2C7F672309628B5698FF4B8A45187F43CA20B2D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +634,8 @@ magnet:?xt=urn:btih:2C7F672309628B5698FF4B8A45187F43CA20B2D9
 ```bash
 magnet:?xt=urn:btih:17BBCC06956200D85F321E755ADED17DFC3FFADC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:17BBCC06956200D85F321E755ADED17DFC3FFADC
 magnet:?xt=urn:btih:F856DD1F07A79754A0A6507C08F7B675B28AC055
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ Cities: Skylines (2015) [Ru/Multi] (1.14.0-f4/dlc) License CODEX [Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:27D0DEECDEB5B67A436E6F88C72E8ED3B30333C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

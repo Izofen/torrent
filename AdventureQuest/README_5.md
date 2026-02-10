@@ -19,6 +19,8 @@ Vesnith Tapes (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:3C2C0923B78DDAA0933DE224D5EB0B9281B90CC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Liminality (2024) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:0710DEC8DCBD40C7DE1BDAF56EB798AEFC5ED695
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:0710DEC8DCBD40C7DE1BDAF56EB798AEFC5ED695
 magnet:?xt=urn:btih:EB704DA609CD2133A5995F2D1E9D8FE53816A9FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Everdeep Aurora (2025) [Ru/Multi] (1.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:143935606AC8FAF6D8CD85A62EDDADBFECDA0F28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Sofia in Exchange for Lies (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:D602A22548C4050F26AE6F67E35DD0A8FB36D5CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Plucky Squire рассказывает о волшебных приключ�
 ```bash
 magnet:?xt=urn:btih:7240577BF30595343280B862EBA45CFA589830C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Eternal Strands — это дебютный фэнтезийный приклю�
 magnet:?xt=urn:btih:A10410C08CAB3BA2D29315BD7D4E67FFC8C6B12E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Still Wakes the Deep - возвращение к жанру ужаса от пе
 ```bash
 magnet:?xt=urn:btih:31E7BF327DBFD1C5577933835DF6F8DC26CDDF06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Tales Beyond The Tomb - White Silence (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:3353F3FAACB41736F745EE1BA130A2104EF760C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Disney Dreamlight Valley - это гибрид между игрой-симул�
 ```bash
 magnet:?xt=urn:btih:02863912FB5A6CD9B77E9F725A0ACAFD1273BF7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Echo Paradox - это психологическая игра ужасов, 
 magnet:?xt=urn:btih:10F18B917D9DBCF0BA12E7F176A4E2CE88A3EC12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Grand Theft Auto V (5) Enhanced (2025) [Ru/Multi] (1.0.889.15) Scene Rune
 ```bash
 magnet:?xt=urn:btih:FA5A5A0A2E0E791DD3CE052D9651FFAAFABE12F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Clink (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:D79730577DE44C036FB30823517EB6C7B100A094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ I Know This Place..? / Я знаю это место..? (2023-2025) [Ru/En] (Bui
 ```bash
 magnet:?xt=urn:btih:6C29ED287DE383A30CDD734C6DA6CC5266696249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Paranormal Torment - это психологический хоррор, кот�
 magnet:?xt=urn:btih:E25172C352E5A09001C36B821EAA448EB23DDC48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ PRIM (2024) [Ru/Multi] (1.3.27) License GOG
 ```bash
 magnet:?xt=urn:btih:86C9D6D1DFC44A438FC622BF7BF001E08256F76E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Until Then – после судьбоносной встречи жизнь М�
 magnet:?xt=urn:btih:32E060C558C1FEC535695765EC32D04C847FCDCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Boxville 2 от Triomatica Games - это следующая часть прик
 ```bash
 magnet:?xt=urn:btih:81DF80114D7F94F5026AE4D17745983D2F43BB4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ THEMIS (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:18CC08E43E7EC392EBD3A1FE81DF498360F12D33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Tex Murphy: Overseer (1998) [En] (2.0.0.21) License GOG
 ```bash
 magnet:?xt=urn:btih:2F1EA50BA19C89AC801975CA58613289C68FC3FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Boxville 2 от Triomatica Games - это следующая часть прик
 magnet:?xt=urn:btih:EC422683A9FEEADBE75566C0B0829BA86513CA69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Boxville (2022) [Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:ED78109628AA034AB6B02893C21CED62F85A8CB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Liminal Shift - это уникальная атмосферная игра в �
 magnet:?xt=urn:btih:79B6C74D328EC96AFE934379CF17623D9806ABB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Gex Trilogy: Gex, Enter the Gecko, Deep Cover Gecko (2025) [Multi] (1.1) License
 ```bash
 magnet:?xt=urn:btih:ABEDD68B556B779A4AEA5E2DC2B60071F20D5B9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Silent Hill 4: The Room (2004) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:71775D3CB8A43E753627BF14AA33EC51354E182F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Escape from the 70's (2022) [Ru/En] (Build 8771485) Repack Other s
 ```bash
 magnet:?xt=urn:btih:ABA10AE07CEB6108D7BF65994EC195F80200AE57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

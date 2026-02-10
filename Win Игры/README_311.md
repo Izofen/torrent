@@ -19,6 +19,8 @@ Goblin Dungeon (2025) [Ru/Multi] (Build 20909598/dlc) Repack Let'sРlay [Eternal
 magnet:?xt=urn:btih:586C043651C6630D6F3D6FE5FC7C13C247C18B1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Pro Evolution Soccer 2012 (Patch/Mod/3.4) 2012 | PESEdit
 magnet:?xt=urn:btih:86162AA9CF6444C4F4D61A5C7CFEC4E170A97CDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ Syberia - Remastered (2025) [Ru/Multi] (20251104) License GOG
 ```bash
 magnet:?xt=urn:btih:1904A1DD23563F0F3BF2A0F9BCE09ED14398A2B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ Port Royale 3: Pirates & Merchants [Ru/En] (RePack/1.1.2.24556) 2011 l R.G. Cata
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Battlefield 6 (2025) [Multi] (1.1.2.0 Build 20800939/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:9DB2324DE87D6F2D445FFFB071758B37556D99BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Battlefield 6 (2025) [En] (1.0.387.51411.SP) Scene Rune
 magnet:?xt=urn:btih:57A39E5334E14EAF446B4A02AFC8F7F18ECE5943
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Killbug (2023) [En] (1.5) License GOG
 ```bash
 magnet:?xt=urn:btih:8B577F470F55B21695F7E23D3B7B37990CFF6377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Critter Cove (2024) [Ru/Multi] (0.6 build 269) License GOG [Early Access]
 magnet:?xt=urn:btih:00E4E5D6DF4FFAD047C84CE00F38E6FCF21B35E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Kingdoms Reborn – увлекательный градостроительны�
 ```bash
 magnet:?xt=urn:btih:2804851A833E14155A41F50C6FFE18A7AE076F58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Demeo x Dungeons and Dragons Battlemarked предлагает погрузит�
 magnet:?xt=urn:btih:F219BBC17AEB42E5452E7D28F5C6FFF69DE7635F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Dec
 ```bash
 magnet:?xt=urn:btih:55600A84A461BE02C16A1EBC19C06DD5138FBD54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Oth
 magnet:?xt=urn:btih:51FB124684ECF1FACCE1080377E4BF4A0D12406C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Fit
 ```bash
 magnet:?xt=urn:btih:EC5A8BCCFEB61D80AC7027CE9E19A86B7C457230
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ OlliOlli World – это новый лихой экшен-платформер 
 magnet:?xt=urn:btih:D22A75A7E6D466286131B7B6793ABF356C2F61CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Need for Speed Hot Pursuit Remastered (2020) [Ru/Multi] (1.0.0.23891) Repack Nec
 magnet:?xt=urn:btih:D6E36B442DF7DBA2BE11715D223607C037D79212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Syberia - Remastered (2025) [Ru/Multi] (Build 20876369) Repack Necros
 ```bash
 magnet:?xt=urn:btih:18F109A0A020C4A8004FB6783CD719ABEACC1DAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Sniper Elite Дилогия [Ru/En]  (RePack) 2005-2012 | R.G. Catalyst
 magnet:?xt=urn:btih:61177F423BE7FA95D678519D1F81EC1EC8616670
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ Port Royale 3: Pirates & Merchants + DLC (RePack/1.1.2.24556) [Ru/En] 2012 l Fen
 magnet:?xt=urn:btih:F5E5E11F92DC96A12BC8B9436FB7F0861755658C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +502,8 @@ Tesla's Tower - The Wardenclyffe Mystery / Башня Теслы. Тайна В�
 ```bash
 magnet:?xt=urn:btih:57BF8E476057216A6E0B56C7F4C04215E7CC7BC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ Chivalry Quest: Sword and Flame (2025) [En] (1.0) Unofficial [Collector's Editio
 magnet:?xt=urn:btih:3F6CE11EDC1C204090B7E89ACE407256B35CB21F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ Disharmony Blocks (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:F2188285DF7D6F165064DDC30C1FA49B212E4D3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ Total Chaos (2025) [Ru/Multi] (1.0.03) Repack Let'sРlay
 magnet:?xt=urn:btih:01BF2ECE3B03FDFE0B188A875BBFF6FBA41C2757
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ Project Motor Racing - это не просто симулятор гоночн�
 ```bash
 magnet:?xt=urn:btih:443CE1F5A148AE2CED5E13C33E624C81D2CD3B1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ Rebel Inc: Escalation (2021) [Ru/Multi] (1.4.0.12/dlc) Repack Necros [Mega Editi
 magnet:?xt=urn:btih:0D21EBF17C0D6A11BBB13DA27BC5775971B889B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ Hell Clock (2025) [Ru/Multi] (1.2.0_17965/dlc) Repack Necros
 magnet:?xt=urn:btih:90A22939091F10121CDF1FBFFC56A2C548A15DCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ Nostradamus: The Last Prophecy – квест от первого лица, со
 ```bash
 magnet:?xt=urn:btih:E19E19E9250D6AE20C337890F7ABB88D608F4D47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

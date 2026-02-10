@@ -1,3 +1,29 @@
+###  Публикация: 903422   (657578) от 31.05.2015
+
+Холостяк. Сезон №3. Выпуск 13. Финал (2015.05.30) WEB-DL [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_657578.jpg" />
+</div>
+
+
+###  Подробнее
+
+7 МАРТА В 21.30 ТНТ НАЧНЕТ ЖЕНИТЬ ПОСЛЕДНЕГО ХОЛОСТЯКА COMEDY CLUB – ТИМУРА БАТРУТДИНОВА. В новом сезоне шоу «Холостяк» девушкам предстоит превзойти самих себя, чтобы добиться внимания звездного героя. На что они готовы пойти ради любви самого завидного жениха страны? Создатели шоу приготовили для претенденток огонь, воду и медные трубы. Девушкам придется плавать (   Читать дальше...   )Производство: РоссияТелекомпания: ТНТЖанр: Реалити ШоуПродолжительность: ~ 01:13:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB7CBAD7E05C5A4D7E0D90EDB472E324B6CEB175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140144   (657603) от 04.06.2017
 
 Романовы (2013) WEB-DL [H.264/720p-LQ] (серии 1-8 из 8)
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:336EF61EFAA6A9E6EE5E45D601B34195AF9D54E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:336EF61EFAA6A9E6EE5E45D601B34195AF9D54E0
 magnet:?xt=urn:btih:71DC56E5D0539F77400B575D4CD49063C0A366C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:71DC56E5D0539F77400B575D4CD49063C0A366C9
 ```bash
 magnet:?xt=urn:btih:52CAE1EFB4459DB6B3CF1C0C9F2769D0A86585C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:52CAE1EFB4459DB6B3CF1C0C9F2769D0A86585C1
 magnet:?xt=urn:btih:75764F40E25E49E6DB65EB66FFED7B934C84AE50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:75764F40E25E49E6DB65EB66FFED7B934C84AE50
 magnet:?xt=urn:btih:87F12DE2019B089AF36CA28CFB8C058FF9C5800C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:87F12DE2019B089AF36CA28CFB8C058FF9C5800C
 ```bash
 magnet:?xt=urn:btih:CE244CFA6BEFC292B35C4B93C3C43C425DFB37FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:CE244CFA6BEFC292B35C4B93C3C43C425DFB37FA
 magnet:?xt=urn:btih:2DA9B28ACF874B78B13FB9BE80BD27318E02AB0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:2DA9B28ACF874B78B13FB9BE80BD27318E02AB0A
 ```bash
 magnet:?xt=urn:btih:CFC71140EA12A6FA2735329ECF60972A6CC89C11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:CFC71140EA12A6FA2735329ECF60972A6CC89C11
 magnet:?xt=urn:btih:06030A20D07F82038AE484A468A388D04E72AA1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:06030A20D07F82038AE484A468A388D04E72AA1C
 magnet:?xt=urn:btih:47B17A5310A425C32124E1149F8711AA9837B273
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:47B17A5310A425C32124E1149F8711AA9837B273
 ```bash
 magnet:?xt=urn:btih:6A26BB2A25706B9F6835BBC39EB0E0A53A9A93B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:6A26BB2A25706B9F6835BBC39EB0E0A53A9A93B3
 magnet:?xt=urn:btih:5CB700129CB1E529BAE9F86C49FA27F462186B53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +360,8 @@ BBC. Секретные войны (Тайные войны) / The Secret War (1
 ```bash
 magnet:?xt=urn:btih:2E9606D51469D6514CF6635AF2794E01C7F782D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:2E9606D51469D6514CF6635AF2794E01C7F782D1
 magnet:?xt=urn:btih:49A4764D61470FAF0E7CFDE1857510DD0DDE97E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +412,8 @@ NGW: Дикие Гавайи. Тайны морских глубин / Wildes Ha
 ```bash
 magnet:?xt=urn:btih:C8775F27224731F231A7A2046B27FE8E2D554C02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:C8775F27224731F231A7A2046B27FE8E2D554C02
 magnet:?xt=urn:btih:E435AE86F29983EF6A57F0C034C348C6EC361C1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:E435AE86F29983EF6A57F0C034C348C6EC361C1B
 magnet:?xt=urn:btih:9CBFD78CB0CAF77C5961C5983528384AACAC53ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:9CBFD78CB0CAF77C5961C5983528384AACAC53ED
 ```bash
 magnet:?xt=urn:btih:FC8BC5BCEA880DFCAED83EB8FF2D3BC9439300CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ BBC: Горная горилла / BBC: Mountain Gorilla (2010) BDRip [H.264/720
 magnet:?xt=urn:btih:DEAEB1061DE5D5DC6F495EB01FA65EB4ECA01A85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ Urus увидит мир. Lamborghini наладит выпуск премиал
 ```bash
 magnet:?xt=urn:btih:3E70692AFC689AA2D60C713ED613724AB2A31A5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:3E70692AFC689AA2D60C713ED613724AB2A31A5E
 magnet:?xt=urn:btih:B64BB7F0D1925390DA333E529D26680E87565110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:B64BB7F0D1925390DA333E529D26680E87565110
 magnet:?xt=urn:btih:A08AE3FC726F45C32CB11CBE6B9F56405C2D7D6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:A08AE3FC726F45C32CB11CBE6B9F56405C2D7D6B
 ```bash
 magnet:?xt=urn:btih:96D416514BB440ACAE9588B10451C61604C4D4E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:96D416514BB440ACAE9588B10451C61604C4D4E8
 magnet:?xt=urn:btih:F6F5761EF3C9B933AA3249D03AED46F3A3F1EAC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,31 +676,7 @@ magnet:?xt=urn:btih:F6F5761EF3C9B933AA3249D03AED46F3A3F1EAC1
 magnet:?xt=urn:btih:7F8F3423745866BDE6EF15C9323995169F0D22EA
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139950   (658036) от 04.06.2017
-
-Холостяк (2017.06.03) HDTV [H.264/1080i] (сезон 5, выпуск 13 - финал)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_658036.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 МАРТА В 21:30 НА ТНТ НАЧНЕТСЯ НОВЫЙ СЕЗОН ШОУ «ХОЛОСТЯК»
-Грядет новый сезон самого романтичного шоу на ТНТ. Продюсеры невероятно долго и тщательно подбирали главного героя — они хотели пригласить достойного мужчину, сильную личность, человека с огоньком в глазах. И такой мужчина нашелся. Вот только не с огоньком в глазах, а с ревущим пламенем в сердце!
-С главным (   Читать дальше...   )Телекомпания: ТНТ HDЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0E7B81B4E548F2DF9C5519FD10443E131640578
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

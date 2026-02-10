@@ -21,6 +21,8 @@ Oxford Dictionary of English v11.7.717 Premium [En]
 magnet:?xt=urn:btih:6AF036677CDA0B506BA86175146A4E634E5AC8FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Zомбилэнд: Контрольный выстрел / Zombieland: Double Ta
 ```bash
 magnet:?xt=urn:btih:63967A22A76D5CC572E75E8CBCD054B837A6DD3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Slimjet 33.0.0.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:147C92E416FA0F2E9D2EA640B4EE0906C6DC9229
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ O&O DiskImage Professional - программа позволяющая созд�
 ```bash
 magnet:?xt=urn:btih:AF610998A8B2B497666D92BD771EE1B5DEFF411E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:AF610998A8B2B497666D92BD771EE1B5DEFF411E
 magnet:?xt=urn:btih:8FFE62D33581E882589FE8A27A512622DD4C682D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:8FFE62D33581E882589FE8A27A512622DD4C682D
 ```bash
 magnet:?xt=urn:btih:B16ECB0FCAEEE3B623F8AE6A5084A8809F1C6A43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Christmas Carol / Рождественская песнь (2018) [Ru/Multi] (1.0
 magnet:?xt=urn:btih:E0377C8E1F08F89F501D3DF02627D3D250CA9F39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:E0377C8E1F08F89F501D3DF02627D3D250CA9F39
 ```bash
 magnet:?xt=urn:btih:D169DD2505B4AA477F29D0A3EA4D3C8FA187AD75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:D169DD2505B4AA477F29D0A3EA4D3C8FA187AD75
 magnet:?xt=urn:btih:5A2505E8D0D36AFC0F15BE8F66C30C852407E838
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Vasilisa and Baba Yaga / Василиса и Баба Яга (2024) [Ru/Multi] (
 ```bash
 magnet:?xt=urn:btih:A55C3552722CF433BC78C13BAECA564B1DF1F145
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Homeworld: Deserts of Kharak (2016) [Ru/Multi] (1.3.0/dlc) Repack xatab
 magnet:?xt=urn:btih:33117C2ADCEBC42FB487D3846D902024D4FD9742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ Transparent clock & weather / Прозрачные часы и погода 6.46
 ```bash
 magnet:?xt=urn:btih:63AF473B2CEA25B3DD16CB6476850F0B3F8FFD6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:63AF473B2CEA25B3DD16CB6476850F0B3F8FFD6F
 magnet:?xt=urn:btih:107719F120945211432D90359D48EB09EC262CB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Opera 82.0.4227.43 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:168A8883A47A72C4F49755A33D535438F1804FEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:168A8883A47A72C4F49755A33D535438F1804FEF
 magnet:?xt=urn:btih:B7B920E99AD68361B01CCB1B90288C4ACB39A8DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:B7B920E99AD68361B01CCB1B90288C4ACB39A8DE
 ```bash
 magnet:?xt=urn:btih:BE88160BD21B0FD0E921D4A02577240E62A770C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ HighLights | Веб-дизайн. Продвинутый уровень (2016) P
 magnet:?xt=urn:btih:F2E53F551C752731590598E3C563E71BD7B071F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:F2E53F551C752731590598E3C563E71BD7B071F2
 ```bash
 magnet:?xt=urn:btih:72BC80F321C4FEADF4DF5133CB512998BE123C34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Icecream PDF Editor - программа для редактирования PDF
 magnet:?xt=urn:btih:A956972A230D7D0BF2610432B9B50F1A1A82F0E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ GIMP — это редактор, позволяющий работать со �
 ```bash
 magnet:?xt=urn:btih:308214767DA656A2121ECA085490B72FB84A2BC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:308214767DA656A2121ECA085490B72FB84A2BC8
 magnet:?xt=urn:btih:551AAB9838A37FCD88CD0B9077FA3B029F1F0C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:551AAB9838A37FCD88CD0B9077FA3B029F1F0C60
 ```bash
 magnet:?xt=urn:btih:069DC2D7D0934D75E98117D191FFC4EEEC1E2D00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ CD 4 - Neu! '86(   Читать дальше...   )Жанр: Krautrock, Psychede
 magnet:?xt=urn:btih:DC2271C19FFB29A89B6CCB95338B1CC7C6E33785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ magnet:?xt=urn:btih:DC2271C19FFB29A89B6CCB95338B1CC7C6E33785
 ```bash
 magnet:?xt=urn:btih:D8DB462B16CDC81900B95ACBC2707BE41FE46856
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:D8DB462B16CDC81900B95ACBC2707BE41FE46856
 magnet:?xt=urn:btih:1CA2C7DBD7CC6863896F1A63F3208A54E9CD56BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:1CA2C7DBD7CC6863896F1A63F3208A54E9CD56BB
 ```bash
 magnet:?xt=urn:btih:2C6D1219381E5A3ABA12DA76204DCCAC1CE3A983
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

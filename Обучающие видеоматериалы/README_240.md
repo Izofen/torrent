@@ -19,6 +19,8 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 9-10 (2020) PCRec
 magnet:?xt=urn:btih:FAFD5B7889ADC1F583A73F733E7B849F4F146B5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Inflexio, Кирилл Попадюк | Бухгалтерский учёт по
 magnet:?xt=urn:btih:98CAF918209254213435195A9F368F789103C37D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ kalachevaschool, Татьяна Быковская | История искусс
 magnet:?xt=urn:btih:AB39ED23F345AC5E393D106CF3EEE4097E08D5EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Liveclasses, Антон Мартынов | Выбор объектива 2021 (2
 ```bash
 magnet:?xt=urn:btih:6B5235F2231C1DFA6D5F7C61F9E5A265703111E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:6B5235F2231C1DFA6D5F7C61F9E5A265703111E2
 magnet:?xt=urn:btih:3472B356BDB9A7FBCD26ACB90DCDD849D88D93B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:3472B356BDB9A7FBCD26ACB90DCDD849D88D93B7
 magnet:?xt=urn:btih:B334C097865B3315549912AF4DC93FC5CA2A68B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ Lynda.com | Photoshop CC Один-на-Один. Мастер (2013) PCRec [EN]
 magnet:?xt=urn:btih:149220B4958B4AD665CBA2329EC26B158E067B0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 3-4 (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:5521A7D33014A5DA3F6096C8048824E8CAFB01E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 5-6 (2020) PCRec
 magnet:?xt=urn:btih:6A2010939A4C506483418BF302A4950A619B5E96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ CGMA, Dmitrij Leppee | Character Facial Sculpting Week 7-8 (2020) PCRec
 ```bash
 magnet:?xt=urn:btih:0B33AB84894B8E01A7AB6D9B01EE866A74CBFC60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:0B33AB84894B8E01A7AB6D9B01EE866A74CBFC60
 magnet:?xt=urn:btih:917B4F856C0E19C025DCC06919B8C160641EEE32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:917B4F856C0E19C025DCC06919B8C160641EEE32
 ```bash
 magnet:?xt=urn:btih:52B9949F443FE31C74C0B53D2479B6E4CAE33D60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ COVID-19
 magnet:?xt=urn:btih:4D875D744B9C784F30FB53F60F9D692CD6B79751
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ Udemy, Denis Buchel, Vyara Georgieva | Композиция в фотограф�
 ```bash
 magnet:?xt=urn:btih:B7128501488DAD09761CA4B5B2724C7AE241FD96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:B7128501488DAD09761CA4B5B2724C7AE241FD96
 magnet:?xt=urn:btih:9944E335A2E2BE9167997C83EAE08F6EC3586120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:9944E335A2E2BE9167997C83EAE08F6EC3586120
 ```bash
 magnet:?xt=urn:btih:A1F04606E7F2BF13D6270661DF470CF8DD4FE314
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:A1F04606E7F2BF13D6270661DF470CF8DD4FE314
 magnet:?xt=urn:btih:FF3C369C92F33F8FE9511E5197C3ACFEA8756FA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +489,8 @@ magnet:?xt=urn:btih:FF3C369C92F33F8FE9511E5197C3ACFEA8756FA2
 ```bash
 magnet:?xt=urn:btih:674245C661FF4E90CC5898504ECDC2D8DBF183B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:674245C661FF4E90CC5898504ECDC2D8DBF183B3
 magnet:?xt=urn:btih:1A6DD341A32F9FEEDAE1E04C056D0F73568716D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +542,8 @@ magnet:?xt=urn:btih:1A6DD341A32F9FEEDAE1E04C056D0F73568716D9
 magnet:?xt=urn:btih:087D188221B6A6C0611EECA6C0859B5651B78E1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:087D188221B6A6C0611EECA6C0859B5651B78E1A
 ```bash
 magnet:?xt=urn:btih:FF028E466A03A4170B3F4F682390AB289C32C3A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +595,8 @@ magnet:?xt=urn:btih:FF028E466A03A4170B3F4F682390AB289C32C3A4
 magnet:?xt=urn:btih:0D3F8D1DC3F88AEA81FFB659A4B2CA411724FA77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:0D3F8D1DC3F88AEA81FFB659A4B2CA411724FA77
 magnet:?xt=urn:btih:76D4766DBC21567DCD6D6FF9C6C919F404925BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +648,8 @@ Udemy, Manuel End | LPIC-1 - Linux System Administrator Masterclass (2021) WEB-D
 ```bash
 magnet:?xt=urn:btih:7D9317598A118E7D6864C6C0D5524BA71C58EEFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +678,8 @@ magnet:?xt=urn:btih:7D9317598A118E7D6864C6C0D5524BA71C58EEFA
 magnet:?xt=urn:btih:C3AA95526153173957A3B1DF08570071F7CE1144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ Cornacchia | Cornacchia\ Декорирование ткани (2015) PCRec [H.2
 ```bash
 magnet:?xt=urn:btih:359DA027DEF0AFBF39BA370D9F301561D936199F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

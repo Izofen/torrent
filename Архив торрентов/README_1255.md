@@ -20,6 +20,8 @@ Free Download Manager обладает практически всеми нео�
 magnet:?xt=urn:btih:56FC7020821CBDF90C3F61E56AD0331D12706577
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Textify — это крошечная утилита, позволяющая с�
 ```bash
 magnet:?xt=urn:btih:79F2C699A2CDE320442F05A2A62E06AC72350C1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:62A736F6311D73085CA7DF09C2018DAD6E07E809
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ JRiver Media Center - мультимедийный центр. Воспроиз�
 ```bash
 magnet:?xt=urn:btih:6F9CA1F5BCA2E46EA824EC63107B145DD8EB051A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ MusicBee — это одновременно простой, но серьёзн
 magnet:?xt=urn:btih:7D7C27758F872B910A432B4F0BD5223628C6D913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:7D7C27758F872B910A432B4F0BD5223628C6D913
 ```bash
 magnet:?xt=urn:btih:97F82231D6733829886FD390ED1F8E0D1F4AA1AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Snagit предлагает неограниченные возможности 
 magnet:?xt=urn:btih:A915E1D6CE67B1FB9CF4EA66357A29CD6A755DF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:D1401E1997D04AA3A57402D8AA1D48F627E14248
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Wondershare UniConverter - это полный набор инструменто
 magnet:?xt=urn:btih:BFFB7BDBA3C5BEEA3F9350875782FADFB4E1E48E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Hosts File Editor - небольшая бесплатная утилита, ко
 ```bash
 magnet:?xt=urn:btih:D1D786B3A0C6D87F49CBCD01072908C5F0B0018A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Balabolka 2.15.0.764 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:5F7D9C163E073F12718E11E2B69E27F9211AFEF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Cartoon Animator 4 (ранее известный как CrazyTalk Animator) - �
 ```bash
 magnet:?xt=urn:btih:8598CA2D629783DCD8DF5FF527C1B7B260312C65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ DLNA медиа-сервер, позволяющий передавать мул
 magnet:?xt=urn:btih:26FDCC6C4F4413AB10AFEA22E4E5072708718031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:1DA1D63E6B09E45DBDB6B5F907BF7AABEF3CB927
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:963B6D81AAD7F8C435A16527F1F233813ED3ABE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:43048629491F1FDB9116D07E7EBC95B72E17702D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:4C70E41EEAEE745176B6A586450F593A1D9EF8A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Floorp Browser – это модифицированная версия Firefox,
 ```bash
 magnet:?xt=urn:btih:034DC1D11183050BA5279FF559C776183C4AE06D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ Room Arranger - программа специально предназначен
 magnet:?xt=urn:btih:CB1918FF9CA774A03455A1672C60E3BA77A53B00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Camtasia Studio - утилита для записи изображения с �
 ```bash
 magnet:?xt=urn:btih:CE8C88A52D0E87AD33963255C8A334AFF532E75C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ Media Player Classic Home Cinema – удобный во всех планах �
 magnet:?xt=urn:btih:0EEC23C6C08BC7FE53A2711610287FD0126421C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ FX Player Pro - универсальный медиаплеер который �
 magnet:?xt=urn:btih:0AFFBCDDA7BC593D4DD91BEFA78103AD7EF5AADD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ MAMP PRO 6 v.6.8.1 [En]
 ```bash
 magnet:?xt=urn:btih:E432B064A63C151D0FF61406103EA0E78CBCDD97
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ Optimizer рекомендуется использовать после све�
 ```bash
 magnet:?xt=urn:btih:2AC4384ABD947867C859723DBF6E3C8CB287E17C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, Open to Clo
 magnet:?xt=urn:btih:F50952E7AF2B212750837F6BE3AE5DFCE8EC9CCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Art Text - красивое текстовое приложение под Mac O
 ```bash
 magnet:?xt=urn:btih:44A5C338C05AA27E99C168D7E6F60E721324370C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

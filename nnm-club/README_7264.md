@@ -22,6 +22,8 @@ Fiona Boyes - Box & Dice (2015) [MP3|320 кб/с] <Electric Blues>
 magnet:?xt=urn:btih:E255FE5FFDE77A3123919FF52788C2F5E6F3D55A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - Pastel Lounge Christmas Time (2015) [MP3|320 кб/с] <Downtempo, Chillout,
 magnet:?xt=urn:btih:B215482B5B562E3E24011C1A7EAC88C68371B75B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:B215482B5B562E3E24011C1A7EAC88C68371B75B
 ```bash
 magnet:?xt=urn:btih:EA772B82D22E775FCC28D163D8C8249E2693DDF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ Kataklysm - Goliath (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 magnet:?xt=urn:btih:982E92E27E9814B9BDE9B23E7F68DC9E6BEA1A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:982E92E27E9814B9BDE9B23E7F68DC9E6BEA1A5F
 ```bash
 magnet:?xt=urn:btih:D96DC306BD8F801AE27C9D98F576E25D2322C03B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ magnet:?xt=urn:btih:D96DC306BD8F801AE27C9D98F576E25D2322C03B
 magnet:?xt=urn:btih:5531E904B932C0F199C43F713744880C0E19ACDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:5531E904B932C0F199C43F713744880C0E19ACDB
 magnet:?xt=urn:btih:A10F9948DBB8FFEB69C3C4EBA036A67F0E82F633
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:A10F9948DBB8FFEB69C3C4EBA036A67F0E82F633
 ```bash
 magnet:?xt=urn:btih:A66485097AA30FCFC724D719D65FC09F4DF3730E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Dither - Souma (2020) [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient, Glitch, Abstr
 magnet:?xt=urn:btih:A76AE8E81AF9291A1237D66639BC148DCE425DB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ Cube Effect Photo Display - проект для создания слайд шо
 ```bash
 magnet:?xt=urn:btih:490CCE6B7F98ED7168644BA1577B6639D4F8AE48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:490CCE6B7F98ED7168644BA1577B6639D4F8AE48
 magnet:?xt=urn:btih:F6395E8A624CA00F6187D80061818E0099B20DB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ CherryTree - функциональная программа, которая п�
 ```bash
 magnet:?xt=urn:btih:DAB45029BAD69B7C9148981E6CBB82362E469032
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Microsoft Office 2013 – лучший пакет прикладных прог�
 magnet:?xt=urn:btih:B794613B3DA7837DC2491EB96FCB54DAA77711FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ Swift Publisher - это пакет графических утилит для m
 ```bash
 magnet:?xt=urn:btih:A3F3AEBFD5A66E5B07D574D6908A23DA2AEF2EC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ VA - Зимняя свежая 30-тка Vol. 1 (2019) [MP3|320 Kbps] <Pop, Danc
 magnet:?xt=urn:btih:88B9628498C0A66A1796C3DE9A0A0EA7941DE52E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ Ubuntu*Pack 20.04 LXqt / Lubuntu (ноябрь 2021) [amd64] DVD
 magnet:?xt=urn:btih:C8E51CC07AD756978B35C96076A8C908521D6E21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +451,8 @@ magnet:?xt=urn:btih:C8E51CC07AD756978B35C96076A8C908521D6E21
 magnet:?xt=urn:btih:04FBFC2E814B4047D14596C24F57C75D20F4D926
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ magnet:?xt=urn:btih:04FBFC2E814B4047D14596C24F57C75D20F4D926
 ```bash
 magnet:?xt=urn:btih:841204A5B90CB1877C7DC52809950FDEE4563D53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +506,8 @@ VA - 100 Exotic Sound: Sweet Fever (2015) [MP3|320 кб/с] <Downtempo, Chillout
 magnet:?xt=urn:btih:59C37A11057AA4797C7B7E09A5FB79A4450786D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:59C37A11057AA4797C7B7E09A5FB79A4450786D4
 ```bash
 magnet:?xt=urn:btih:0CA12FE4D3457B3E9FF1F285665637A6D3F4D0C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:0CA12FE4D3457B3E9FF1F285665637A6D3F4D0C8
 magnet:?xt=urn:btih:47413B76AF943C1D84261461DC12AD10180EA98C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:47413B76AF943C1D84261461DC12AD10180EA98C
 magnet:?xt=urn:btih:B55CAFEFECA3A71E0D63A4244A408108F74514C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:B55CAFEFECA3A71E0D63A4244A408108F74514C5
 ```bash
 magnet:?xt=urn:btih:60660577210801D8264777528CD9D729340C52DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ magnet:?xt=urn:btih:60660577210801D8264777528CD9D729340C52DB
 magnet:?xt=urn:btih:047A6694A93DEAD8FDF71DD5AC73F678922980D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ magnet:?xt=urn:btih:047A6694A93DEAD8FDF71DD5AC73F678922980D7
 ```bash
 magnet:?xt=urn:btih:B5F83DD6DA599C46C3D8BC410485B7562D9E5382
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +698,8 @@ Egon Wellenbrink - Wellness for You (2003) [MP3|320 кб/с]<New age>
 ```bash
 magnet:?xt=urn:btih:9C200E33F9298CA48082731508A96A60DAF6C74E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

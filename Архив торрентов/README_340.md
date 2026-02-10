@@ -20,6 +20,8 @@ Talking Tom & Ben News 1.2.1 Full
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Deus Ex: Human Revolution - третья часть популярного РП�
 ```bash
 magnet:?xt=urn:btih:C5D18FF77EDAE6EBD44F160B354F7408ED2BC6D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:C5D18FF77EDAE6EBD44F160B354F7408ED2BC6D9
 ```bash
 magnet:?xt=urn:btih:9AC194550F0895DAA73E36FEB70B59348FDA6D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -105,6 +111,8 @@ VA - No Alternative (1993) [MP3|320 kbps]<Alternative Rock>
 magnet:?xt=urn:btih:2106923861E054938A3C482168A7D2EF485A8764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ magnet:?xt=urn:btih:2106923861E054938A3C482168A7D2EF485A8764
 ```bash
 magnet:?xt=urn:btih:A45DA237F4B30FF901CED2526E61AC3FB89F38BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +168,8 @@ magnet:?xt=urn:btih:A45DA237F4B30FF901CED2526E61AC3FB89F38BD
 magnet:?xt=urn:btih:A3DD9711FE8726B6214372D716B75D4CE12C8309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ WinPatrol - программа, контролирующая установку 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +229,8 @@ Toro Y Moi - Underneath The Pine (2011) [FLAC|Lossless]<Chillwave, Psychedelic>
 magnet:?xt=urn:btih:76CECC27AF1AD755EC37CE59D7C87B23403CF6A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +254,8 @@ VueScan - программа для работы со сканерами. Мож
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +285,8 @@ VueScan - программа для работы со сканерами. Мож
 magnet:?xt=urn:btih:7EA97CA28528212F0ACBF4CCD1BC857B33E781B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ Microsoft Malicious Software Removal Tool - утилита для обнаруж
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +341,8 @@ Microsoft Malicious Software Removal Tool - утилита для обнаруж
 magnet:?xt=urn:btih:442F00CF6611716214A49BB3D99B18BBFD3B4D51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +371,8 @@ magnet:?xt=urn:btih:442F00CF6611716214A49BB3D99B18BBFD3B4D51
 magnet:?xt=urn:btih:AB4336145389C99786E56CA0F64B7A2B17A5D493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ magnet:?xt=urn:btih:AB4336145389C99786E56CA0F64B7A2B17A5D493
 ```bash
 magnet:?xt=urn:btih:200E0C9FD58DBC16E87987BEA8612442E729B049
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +427,8 @@ magnet:?xt=urn:btih:200E0C9FD58DBC16E87987BEA8612442E729B049
 magnet:?xt=urn:btih:E4E21D55238FD3B6474DF99E4957A832D05617C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +457,8 @@ Fantasy Full HD Wallpapers Pack 2 (1920-1200)
 magnet:?xt=urn:btih:76481C1E20300956C426322EA1C055152870985F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ magnet:?xt=urn:btih:76481C1E20300956C426322EA1C055152870985F
 ```bash
 magnet:?xt=urn:btih:D134A518F4D3F0322D4A515B013284F7D78F4FBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +513,8 @@ magnet:?xt=urn:btih:D134A518F4D3F0322D4A515B013284F7D78F4FBE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +538,8 @@ Dato - Straight Through My Heart (2010) HD
 ```bash
 magnet:?xt=urn:btih:B0DD5508D56902783D313B0D78A260EE97D3A694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +574,8 @@ magnet:?xt=urn:btih:B0DD5508D56902783D313B0D78A260EE97D3A694
 magnet:?xt=urn:btih:9EC2632CF8DF25CE7FA961DDC00143B05F1F8E6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +609,8 @@ VA - DubStep from evolinte vol.11 (2011) [MP3|320 kbps]<Dub Step>
 magnet:?xt=urn:btih:5978D75FD1F99F1A5FB04D904BFC7C85B1180EBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +636,8 @@ Chrome спроектирован сотрудниками Google с нуля, �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +667,8 @@ Chrome спроектирован сотрудниками Google с нуля, �
 magnet:?xt=urn:btih:D830176631E0B803BB0547788B4D3AE1140AE86A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +695,8 @@ magnet:?xt=urn:btih:D830176631E0B803BB0547788B4D3AE1140AE86A
 magnet:?xt=urn:btih:509659E68DB27639592F7087D93BCBF736C3635D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +721,8 @@ Ubiquitous Player - универсальный файловый менеджер
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Ubiquitous Player - универсальный файловый менеджер
 ```bash
 magnet:?xt=urn:btih:A22651449633CB2C74BEE7AEA95985AEDA69A13E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

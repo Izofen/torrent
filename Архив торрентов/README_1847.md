@@ -28,6 +28,8 @@ Big Hassla - Первый Здесь (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
 magnet:?xt=urn:btih:2F33CB8F8A4116221ECCA24C904762B6333349A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -56,6 +58,8 @@ magnet:?xt=urn:btih:2F33CB8F8A4116221ECCA24C904762B6333349A4
 magnet:?xt=urn:btih:EA048B0ADC5B30374E581C7179A1B49B5885F493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -80,6 +84,8 @@ magnet:?xt=urn:btih:EA048B0ADC5B30374E581C7179A1B49B5885F493
 magnet:?xt=urn:btih:0BD76F5731B35AE9AADE74685A1B04BE428A41F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ magnet:?xt=urn:btih:0BD76F5731B35AE9AADE74685A1B04BE428A41F1
 ```bash
 magnet:?xt=urn:btih:E42811CD96772E4DF36A577A5CAC97B0060DC333
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -132,6 +140,8 @@ magnet:?xt=urn:btih:E42811CD96772E4DF36A577A5CAC97B0060DC333
 magnet:?xt=urn:btih:47CB6E16A5744DA2CFBE21A31746560A57F47385
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -160,6 +170,8 @@ magnet:?xt=urn:btih:47CB6E16A5744DA2CFBE21A31746560A57F47385
 magnet:?xt=urn:btih:C665D481A478FB2838FC9EB9968FB45F8D584740
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +199,8 @@ magnet:?xt=urn:btih:C665D481A478FB2838FC9EB9968FB45F8D584740
 ```bash
 magnet:?xt=urn:btih:9614E91B0340D31CAB9BC0F796390A966B3107A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +235,8 @@ Arcana Imperia - Новые миры (2012) [MP3|224 кб/с]<Melodic Death Meta
 magnet:?xt=urn:btih:0740BB12137EA04035120516C1A4327A4BBA7294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +263,8 @@ Fragile - Lovely Melodies 12" (1996) [MP3|256 кб/с]<Dream>
 magnet:?xt=urn:btih:D021D30A863B380A9282E0F5D19DBDBC487A5BA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +289,8 @@ magnet:?xt=urn:btih:D021D30A863B380A9282E0F5D19DBDBC487A5BA9
 magnet:?xt=urn:btih:1761DA2293DE12739170A79251CA9FCACFDB4FE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +314,8 @@ magnet:?xt=urn:btih:1761DA2293DE12739170A79251CA9FCACFDB4FE9
 ```bash
 magnet:?xt=urn:btih:AE1ED1279392E114B946BD79B58C9C302453CF4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +345,8 @@ magnet:?xt=urn:btih:AE1ED1279392E114B946BD79B58C9C302453CF4E
 magnet:?xt=urn:btih:35FB865C093E9C599B227751029F558984E27D26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:35FB865C093E9C599B227751029F558984E27D26
 ```bash
 magnet:?xt=urn:btih:8794751C58A44DF92E3EAB3AF62D27F94EFEB627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +397,8 @@ magnet:?xt=urn:btih:8794751C58A44DF92E3EAB3AF62D27F94EFEB627
 magnet:?xt=urn:btih:9E060BE9A4F4F3189DA4D6C25D13164CF49BBA78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +422,8 @@ magnet:?xt=urn:btih:9E060BE9A4F4F3189DA4D6C25D13164CF49BBA78
 ```bash
 magnet:?xt=urn:btih:A934EE29D7649DDEB80FB733F1E4E8AC8B26419B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +449,8 @@ magnet:?xt=urn:btih:A934EE29D7649DDEB80FB733F1E4E8AC8B26419B
 magnet:?xt=urn:btih:094E31ED894CD49E206189D5FBD4A0007DF24337
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +474,8 @@ magnet:?xt=urn:btih:094E31ED894CD49E206189D5FBD4A0007DF24337
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +501,8 @@ magnet:?xt=urn:btih:094E31ED894CD49E206189D5FBD4A0007DF24337
 magnet:?xt=urn:btih:E04A05B143F68DB1C9B06213D27209A5FFDCB5E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +526,8 @@ magnet:?xt=urn:btih:E04A05B143F68DB1C9B06213D27209A5FFDCB5E3
 ```bash
 magnet:?xt=urn:btih:58F105F2AACD9EDF6EA6798C5F156C0E475C91A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +562,8 @@ Gang Green - The Essence (2012) [MP3|320 кб/с]<Hip-Hop>
 magnet:?xt=urn:btih:BFC013E455CD61439B201203BF1C438DF23BFDBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +591,8 @@ magnet:?xt=urn:btih:BFC013E455CD61439B201203BF1C438DF23BFDBC
 ```bash
 magnet:?xt=urn:btih:F2C159A8FAEE6B4FB8E68AC15B160690375163D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +627,8 @@ Silent Descent - Duplicity (2008) [MP3|320 кб/с]<Modern Melodic Death Metal>
 magnet:?xt=urn:btih:40CF28E04E55EB8A49620B7338CA46170CD67AE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +652,8 @@ Kaya Jones - Release The Energy (2012) [H.264/1080р] WEBRip
 ```bash
 magnet:?xt=urn:btih:10C582C4FAA7BCF807CF40F704A7E7CAF008B1AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +679,8 @@ Chromium Portable - портативная версия браузера от Go
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +705,8 @@ What Hi-Fi? Звук и Видео – русскоязычная лицензи
 magnet:?xt=urn:btih:6C1F66E50493593B64E945F445A4F19A00089B18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -680,6 +730,8 @@ magnet:?xt=urn:btih:6C1F66E50493593B64E945F445A4F19A00089B18
 ```bash
 magnet:?xt=urn:btih:1A68FC3EF7B0630D0B7B248523A515863FABCD6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

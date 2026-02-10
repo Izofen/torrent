@@ -1,3 +1,29 @@
+###  Публикация: 1172593   (392748) от 08.10.2017
+
+Михаил Бородянский | Психология ваших отверстий. Система психологических векторов: о чем не сказал Зигмунд Фрейд (2015) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_392748.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале прошлого века Зигмунд Фрейд предположил, что характер человека связан с чувствительными отверстиями на теле (рот, нос, ухо, глаз, анус, уретра, кожа, пупок). Он еще не знал или, возможно, не был готов открыто заявить, что чувствительность этих отверстий обусловливает все сферы жизни человека: от состояния здоровья до сексуальных пристрастий, от выбора профессии (   Читать дальше...   )Жанр: Психоанализ, Развитие психики, Саморазвитие, личностный ростФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8A7CFF5FEBA9BA40E831300D0EE108591222051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 569064   (392774) от 02.11.2012
 
 Галина Осипова | Огород. Работа на участке в вопросах и ответах [2011] [FB2]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:449D460AA65E5110B4F4EE8E1E74D88595C3088B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:449D460AA65E5110B4F4EE8E1E74D88595C3088B
 magnet:?xt=urn:btih:76DC1D858E63E7D864C118D329A6644C4D3DE852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:76DC1D858E63E7D864C118D329A6644C4D3DE852
 magnet:?xt=urn:btih:6A53268C8175471473E6CBC8EAE628398A7D43BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:6A53268C8175471473E6CBC8EAE628398A7D43BA
 ```bash
 magnet:?xt=urn:btih:C15BB7DD5075888E19261B15A3638A10D4745DD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:C15BB7DD5075888E19261B15A3638A10D4745DD7
 magnet:?xt=urn:btih:55229947BF72B3FEDC108903F9F937CFB0CC0D7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:55229947BF72B3FEDC108903F9F937CFB0CC0D7D
 ```bash
 magnet:?xt=urn:btih:7FFB1EB5426499DE9AD9421A326D888E1403D146
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:7FFB1EB5426499DE9AD9421A326D888E1403D146
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:7FFB1EB5426499DE9AD9421A326D888E1403D146
 ```bash
 magnet:?xt=urn:btih:A4F41ACE02B6DD7A3DE3DA2B123CF574F28C0A35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:A4F41ACE02B6DD7A3DE3DA2B123CF574F28C0A35
 magnet:?xt=urn:btih:EAAB922C1AB9F76BF817FD07E696FA49679CC342
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:EAAB922C1AB9F76BF817FD07E696FA49679CC342
 ```bash
 magnet:?xt=urn:btih:87DD9981948767DCD0D449F02CB502431F30586E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:87DD9981948767DCD0D449F02CB502431F30586E
 ```bash
 magnet:?xt=urn:btih:30100231E8E431EBEA67EC3331968AF54AAE56CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:30100231E8E431EBEA67EC3331968AF54AAE56CC
 magnet:?xt=urn:btih:0DCDEA33312578AE2232AE085E0176A0A2257541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:0DCDEA33312578AE2232AE085E0176A0A2257541
 ```bash
 magnet:?xt=urn:btih:83D5B465EE26869D92ED6FABC256EEA007C6DBCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:83D5B465EE26869D92ED6FABC256EEA007C6DBCA
 magnet:?xt=urn:btih:80D95AEC0F6DCD37AC389A3EAB24150D2479985C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:80D95AEC0F6DCD37AC389A3EAB24150D2479985C
 magnet:?xt=urn:btih:1F360EE6A01B22F5FAC97342DA09837CCB0FC3E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:1F360EE6A01B22F5FAC97342DA09837CCB0FC3E0
 ```bash
 magnet:?xt=urn:btih:0692983F456E21A3E860D334AAB24B38EBDFDEAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:0692983F456E21A3E860D334AAB24B38EBDFDEAE
 magnet:?xt=urn:btih:C88D16B284CFF1ED191810C297F26837BD4742F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:C88D16B284CFF1ED191810C297F26837BD4742F4
 ```bash
 magnet:?xt=urn:btih:F34171FEA1FD81D8D94D79EF3BBAB07628AA76F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:F34171FEA1FD81D8D94D79EF3BBAB07628AA76F1
 ```bash
 magnet:?xt=urn:btih:1F1AAA73D51956B19ED35AD38DFB599F120DD5EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:1F1AAA73D51956B19ED35AD38DFB599F120DD5EC
 magnet:?xt=urn:btih:DF0C99929E3C84DCD28C332F2C5B78A720902A92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:DF0C99929E3C84DCD28C332F2C5B78A720902A92
 ```bash
 magnet:?xt=urn:btih:1DF08ABBE1FC8907E1A3C5723417F8C5EE806F8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +608,8 @@ magnet:?xt=urn:btih:1DF08ABBE1FC8907E1A3C5723417F8C5EE806F8A
 magnet:?xt=urn:btih:1F390A8B69556440DEE3DFBC0A5507F5AF689B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:1F390A8B69556440DEE3DFBC0A5507F5AF689B81
 ```bash
 magnet:?xt=urn:btih:BDABC5F544A7A3F96E8F611845A132759167BF0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +661,8 @@ magnet:?xt=urn:btih:BDABC5F544A7A3F96E8F611845A132759167BF0B
 magnet:?xt=urn:btih:68BA4D118AADCE6C6FD3D9BCBBE26E516286D0EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,29 +688,7 @@ magnet:?xt=urn:btih:68BA4D118AADCE6C6FD3D9BCBBE26E516286D0EA
 magnet:?xt=urn:btih:5E8519AC81A5A5A35DB7168E526BEBA7534E76F0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 568444   (394961) от 31.10.2012
-
-Юрий Болдырев | О бочках меда и ложках дегтя [2003] [FB2]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_394961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга вышла в 2003 году в серии "Русское чудо - секреты экономической отсталости" и имеет подзаголовок "Как, успешно преодолевая препятствия, идти в никуда". Три месяца подряд она входила в десятку бестселлеров.  Так почему же происходит то, что происходит?  Почему российская экономика похожа на современную рыночную лишь если смотреть на неё издали и не вникать в детали? Откуда берутся законы, которые прямо препятствуют нашему экономическому развитию?Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F04304F1113CCDF7B2E9C55E9CB2182FDD39021
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

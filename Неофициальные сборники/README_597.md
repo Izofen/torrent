@@ -1,3 +1,32 @@
+###  Публикация: 1099486   (904936) от 01.02.2017
+
+VA - Музыкальные новинки. Only Best Hits. Версия № 8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_904936.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Olisha - Не Трави 3:53
+002. Bruno Mars - Versace On The Floor 4:21
+003. Dельфина - Привет От Одиноких 3:44
+004. Dnce - Naked 3:56(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:778722837AC3226E4CB831CB80D712EF6777A711
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099600   (905027) от 01.02.2017
 
 VA - Smokin Latin Jazz (2017) [MP3|320 Kbps] <Jazz>
@@ -21,6 +50,8 @@ VA - Smokin Latin Jazz (2017) [MP3|320 Kbps] <Jazz>
 ```bash
 magnet:?xt=urn:btih:66ED688A1DDF4B99172722F1FA644F225783832B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Radio NRJ: Top Hot [21.03] (2020) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:05ACA5FE95FB910D9D641917AB7B451FCA89D249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Dub House (2020) [MP3|320 Kbps] <Dub House>
 ```bash
 magnet:?xt=urn:btih:BC9C85FFC5C82E9985E4F0303C0BC03AC9F7B8C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Ресторан Кураж от радио Шансон. Версия № 
 magnet:?xt=urn:btih:2EACE588399BD32342B6156930447D54855F124F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Отдыхаем душой на стильном радио Шансон (
 ```bash
 magnet:?xt=urn:btih:57AD80D0032857F8D02454DFEE50B6BBB4CC96FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Я слушаю шансон. Зимний выпуск. Версия №4 
 magnet:?xt=urn:btih:A9D79C770C3F7ED38BD2A742F7CB55FA9E17E6DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Молодежный бум хитовый (2017) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:13BC96A1EB4D372C48F48520D3A9AD0B66A6A13A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - 1EDM: Funky Club House (2017) [MP3|320 Kbps] <Funky, Club, Electro, House>
 magnet:?xt=urn:btih:C3C4C13F72DBB574C9563A860A37A6F9F4EC4046
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Русский зимний музобоз выпуск № 5 (2017) [MP3|2
 ```bash
 magnet:?xt=urn:btih:6DAA87F4ED03977F718A61D71742CA66CA7CBC17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Полный отрыв. Часть № 6 (2017) [MP3|256 Kbps] <Pop>
 magnet:?xt=urn:btih:EA34C75592B45C28AE89D356E6460157D505B757
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Finding Around Blessing (Energy Tech Trance) 001 (2017) [MP3|320 Kbps] <Tra
 ```bash
 magnet:?xt=urn:btih:265C5E092DB4A884E106099793E470318BA4FC96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Танцевальная зима. Снежная сотка. Версия 
 magnet:?xt=urn:btih:D54A33826F6FEE82B4D98A827385C16F0D7DE986
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +398,8 @@ VA - Progressive Electro: EDM Party (2020) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:E73D92C67E107AAFDC2D26285D850D45A2F844B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +428,8 @@ VA - Beatport Tech House: Electro Sound Pack #35 (2020) [MP3|320 Kbps] <Techno, 
 magnet:?xt=urn:btih:7D2D397455E54035994B8050B608592C0D88C197
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +456,8 @@ VA - Record Super Chart 630 (2020) [MP3|320 Kbps] <Pop, House, Dance>
 ```bash
 magnet:?xt=urn:btih:7D27132AB59FCA54D307BF2262671018C9CA7564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +486,8 @@ VA - The Official UK Top 40 Singles Chart 20.03.2020 [MP3|320 Kbps] <Pop, Dance,
 magnet:?xt=urn:btih:71DEB5B063F2CE825F09004F55B8565973DEE773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +515,8 @@ VA - German Top 100 Single Charts 20.03.2020 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:49473A52F1FDF0B48FC8A8771965EE5896E85053
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +543,8 @@ VA - Rhythmic Funk (2020) [MP3|320 Kbps] <Funk, Easy Listening, Funky Disco>
 ```bash
 magnet:?xt=urn:btih:7A5F946CE7B98E55C213C868F808556629D24606
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +579,8 @@ VA - Лучшие хиты весны на Радио Шансон (2013) [MP3|2
 magnet:?xt=urn:btih:A318C05CA56B5ABBFDD7628A924AEC44CDD04453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +607,8 @@ VA - 100 Hits Remix DFM (2016) [MP3|320 кб/с] <Remix, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:113379910515CDB309DC99AF852CF406BCB3E5B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +637,8 @@ VA - Русская жажда скорости (2016) [MP3|256-320 кб/с] <Po
 magnet:?xt=urn:btih:E817C2D362EC5B887420AF3E94DF69EC3986257F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +665,8 @@ VA - Record Super Chart № 425 (2016) [MP3|128-320 кб/с] <Club House, Electr
 ```bash
 magnet:?xt=urn:btih:2BE3DEFD41AAB24352402BE260526F1DA39C5200
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +695,8 @@ Michael Learns To Rock - Super Hits Collection (2016) [MP3|320 кб/с] <Pop , P
 magnet:?xt=urn:btih:A26A3D97ECEDE3093DC82AA4AF86BC97370AEF9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +723,8 @@ VA - Reggae Hits (Presents: Elgujakviso) (2017) [MP3|210-320 Kbps] <Reggae>
 ```bash
 magnet:?xt=urn:btih:C502273248E7236B20651F91E0BE4FAC46EF378A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,32 +753,7 @@ VA - Новинки шансона. Выпуск 40 (2016) [MP3|256-320 кб/c] 
 magnet:?xt=urn:btih:F7C70718F25D90950F56671B5E028DB8D6FE3454
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991368   (906189) от 28.02.2016
-
-VA - Клубная дискотека. Тусим все вместе (2016) [MP3|320 кб/с] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_906189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ralph Good & Polina Griffith Vs. Borgeous & Mike Hawkins - Sos (Dima Zago Mash)
-02. Dissident Feat. Arthur Ham - Here I Am (Original Mix)
-03. Wiz Khalifa - See You Again (Feat. Charlie Puth)
-04. James Silk - Talk Dirty (Michael Mandal Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:51:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:623533E6B3079740008EB1964A1E78039AACC7FD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Dojo - это высоконадежный инструментарий JavaScri
 magnet:?xt=urn:btih:0CDDCCF08EE4777FDC19DF36C3BC8A88D65BD0CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:0CDDCCF08EE4777FDC19DF36C3BC8A88D65BD0CB
 ```bash
 magnet:?xt=urn:btih:C1F407B5326127B077075B6492D5BD25E9A725D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:C1F407B5326127B077075B6492D5BD25E9A725D5
 magnet:?xt=urn:btih:7EF57F2AE78D5C01B282206D8E1F96E22B7FF12F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:7EF57F2AE78D5C01B282206D8E1F96E22B7FF12F
 ```bash
 magnet:?xt=urn:btih:348FCEA6D16A1A829BA18A3CD7C4D625CC4FBD01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:348FCEA6D16A1A829BA18A3CD7C4D625CC4FBD01
 magnet:?xt=urn:btih:20EA24D9DEF7AF5A0F6D9620B2F82F22786E96B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Tim Peters | Practical Python Backend Programming [Build Flask and FastAPI appli
 magnet:?xt=urn:btih:544CE98240B3297C938A130EE3AE9ADA48053A17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:544CE98240B3297C938A130EE3AE9ADA48053A17
 ```bash
 magnet:?xt=urn:btih:B31C0D28168E4A89DC6F66C3FF4A34B25A91637A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:B31C0D28168E4A89DC6F66C3FF4A34B25A91637A
 magnet:?xt=urn:btih:4E7AAB1E35EFE9D01BB613FF5DF1D197AA9441DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:4E7AAB1E35EFE9D01BB613FF5DF1D197AA9441DB
 ```bash
 magnet:?xt=urn:btih:8CFD248375310190BF7A6F34007D16644B5BCEB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Jenn Mishra | 100+ Best Prompts for Midjourney (2023) [PDF] [EN]
 magnet:?xt=urn:btih:AB6D4B0CF7C187DD8EBBDE3228A81C4405CD5D7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:AB6D4B0CF7C187DD8EBBDE3228A81C4405CD5D7C
 ```bash
 magnet:?xt=urn:btih:4B05FFEF91D531328B1271F4CDAE50042F45A0F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:4B05FFEF91D531328B1271F4CDAE50042F45A0F2
 magnet:?xt=urn:btih:EA2AB92C6A027C4FB3E53F938440923418A21CF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Jenn Mishra | 100+ Art Styles for Midjourney (2023) [PDF] [EN]
 magnet:?xt=urn:btih:3294C9FCD05DD4EC651457296D47379E6C2EB42B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:3294C9FCD05DD4EC651457296D47379E6C2EB42B
 ```bash
 magnet:?xt=urn:btih:8CF79F9820EA64F9A9584AEDBD92C384D955BEC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Jenn Mishra | Art Styles: Create Unique AI Image Prompts with ChatGPT or Claude 
 magnet:?xt=urn:btih:C0A364BAB94ED34B8CBDC50688859912CD94770D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:C0A364BAB94ED34B8CBDC50688859912CD94770D
 ```bash
 magnet:?xt=urn:btih:D25F80DF7B9EA0F311ACB92E4D8CBA874A2A03EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ magnet:?xt=urn:btih:D25F80DF7B9EA0F311ACB92E4D8CBA874A2A03EF
 ```bash
 magnet:?xt=urn:btih:EBDF6022EEAFC744FC8517A55728B03A6C1536B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ Marinko Spasojevic, Vladimir Pecanac | Ultimate ASP.NET Core Web API First & Sec
 magnet:?xt=urn:btih:DB8DCCB6FD6584CF642FCD12E1F4F9296D626C04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ magnet:?xt=urn:btih:DB8DCCB6FD6584CF642FCD12E1F4F9296D626C04
 ```bash
 magnet:?xt=urn:btih:8ABE78ADB9F23127928988876853ADF060101C31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:8ABE78ADB9F23127928988876853ADF060101C31
 magnet:?xt=urn:btih:F827B1F7D11A9F929CCEC1C53AE7E6B12D843D0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:F827B1F7D11A9F929CCEC1C53AE7E6B12D843D0A
 ```bash
 magnet:?xt=urn:btih:214AB0B42021440E8761BC964667D7C5534756ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:214AB0B42021440E8761BC964667D7C5534756ED
 magnet:?xt=urn:btih:2D1214ABF64BD2A15CFA31BDA1D831A16CD74F7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:2D1214ABF64BD2A15CFA31BDA1D831A16CD74F7C
 ```bash
 magnet:?xt=urn:btih:E8E950A60383FA2388E07B422D6263556357A5B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:E8E950A60383FA2388E07B422D6263556357A5B9
 magnet:?xt=urn:btih:6EB386DB656D70D353FA32F077292FDC5CF27885
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +661,8 @@ magnet:?xt=urn:btih:6EB386DB656D70D353FA32F077292FDC5CF27885
 magnet:?xt=urn:btih:8C04990231E30ACE77617EF6712E06CBDF9659C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +686,8 @@ magnet:?xt=urn:btih:8C04990231E30ACE77617EF6712E06CBDF9659C7
 ```bash
 magnet:?xt=urn:btih:4FD6121370A3A730BC7FF48C1EABE616A45A8B0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

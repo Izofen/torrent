@@ -20,6 +20,8 @@ Mod: Вырезана реклама.Тип издания: Mod (AdFree)Рели
 magnet:?xt=urn:btih:80B5A7B4F86E8F761292D6EAB66739C88C37A336
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Fozzy — американская хэви-метал группа.
 magnet:?xt=urn:btih:46559443E0979F542F4D933AF84E9D407EA52E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ Bix Beiderbecke & Paul Whiteman - 1927 - 1928 (2001) Classics [FLAC|Lossless|tra
 magnet:?xt=urn:btih:7BD7AFCA4BFDB4F3202A19F5F411FF6027805DEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:7BD7AFCA4BFDB4F3202A19F5F411FF6027805DEC
 ```bash
 magnet:?xt=urn:btih:A39434BF509C8DB06463BF696FFD39D03C07EBF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:A39434BF509C8DB06463BF696FFD39D03C07EBF4
 magnet:?xt=urn:btih:0D626D8BD8306ACE6B7FCE93FAEAA2B912CABD5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:0D626D8BD8306ACE6B7FCE93FAEAA2B912CABD5F
 ```bash
 magnet:?xt=urn:btih:2EEA202BC35B673695C492EB24FB7EE3979550CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ Marge Litch - Fantasien (1991) [WavPack|Lossless|image + .cue] <Power Metal>
 magnet:?xt=urn:btih:1D163A73762CD42B01FD716E7FB04267179E3FDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ Volume2 — альтернативный регулятор громкости, 
 magnet:?xt=urn:btih:D6808305A350A9AB528CDF30B96EE7A874AEFE98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ TweakPower представляет собой единый графически
 ```bash
 magnet:?xt=urn:btih:660A4B2FF2DE7D9150734605FC6B1A81FE5FF916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ Eizo Sakamoto - Speed Metal Show (1999) [WavPack|Lossless|image + .cue] <Heavy M
 magnet:?xt=urn:btih:5B65DF738996C0D4DBAC5AF28B810B28B0E1DB34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ Kent C. Dodds | Epic Web. Ship Modern Full-Stack Web Applications (2023) WEB-DL 
 ```bash
 magnet:?xt=urn:btih:2C46114E6F09AF7D22F4CF37293E31D35D4F173E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:2C46114E6F09AF7D22F4CF37293E31D35D4F173E
 magnet:?xt=urn:btih:8358E7D8B9D96FD01BC1C141E255B04FAB74C767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:8358E7D8B9D96FD01BC1C141E255B04FAB74C767
 magnet:?xt=urn:btih:CF49F3A78D64A5F5CA4FA0BCD4BD3BD2B5CEE8B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:CF49F3A78D64A5F5CA4FA0BCD4BD3BD2B5CEE8B4
 magnet:?xt=urn:btih:EA7CBAACF1CDA836CF03A3E8E409A075827C67F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:EA7CBAACF1CDA836CF03A3E8E409A075827C67F9
 ```bash
 magnet:?xt=urn:btih:93EFA5BB7951D31B8E5B146CD8974E73F39D2B39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ A2 Евгений Головин - Если Снится
 magnet:?xt=urn:btih:CA7D22189496E1CCE8E36D661D60FE6C3C44E893
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ YouTube Downloader - удобная программа-загрузчик для
 magnet:?xt=urn:btih:71C53862649DA0AFC66DA6D16C9D6FA7B8228740
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ magnet:?xt=urn:btih:71C53862649DA0AFC66DA6D16C9D6FA7B8228740
 magnet:?xt=urn:btih:1160DCD97B2211F1E5EDD81D3083D9D869FD742D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:1160DCD97B2211F1E5EDD81D3083D9D869FD742D
 ```bash
 magnet:?xt=urn:btih:7E41AAE66C7C33AA1147F2011F3A4C3DB399796E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:7E41AAE66C7C33AA1147F2011F3A4C3DB399796E
 magnet:?xt=urn:btih:EDF717187F60DC91821F9B8AA4734F6730C3549B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:EDF717187F60DC91821F9B8AA4734F6730C3549B
 magnet:?xt=urn:btih:6F56283C1F8E511EC1114A343B9FA87AC15AE668
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:6F56283C1F8E511EC1114A343B9FA87AC15AE668
 ```bash
 magnet:?xt=urn:btih:43BB9516EECFAFEECA79430846E33A7E8BD10104
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:43BB9516EECFAFEECA79430846E33A7E8BD10104
 magnet:?xt=urn:btih:FD4056DA2C64E44AE5094AB585D613933FA140DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:AF197E761ED42558538A08A8D4D84CA041712C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:AF197E761ED42558538A08A8D4D84CA041712C60
 ```bash
 magnet:?xt=urn:btih:10C27FAA30246CC9B5C256B7FF374C82D16A7908
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +698,8 @@ GrandTotal прекрасно работает в сочетании с TimeLog.
 ```bash
 magnet:?xt=urn:btih:D7ED2A5199C89C9216C8CE3B07FAFB5C7A3386E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

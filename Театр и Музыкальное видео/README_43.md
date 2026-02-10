@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:72B6E640AE19D763BABF0F6AFF7D15B461C9CC22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:72B6E640AE19D763BABF0F6AFF7D15B461C9CC22
 ```bash
 magnet:?xt=urn:btih:6ECCF90D1C15FDE212E5F41F324149BAAD41FA80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:6ECCF90D1C15FDE212E5F41F324149BAAD41FA80
 ```bash
 magnet:?xt=urn:btih:8F8A3FCA54E9FE27FBF8992A870236C4746905CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -105,6 +111,8 @@ magnet:?xt=urn:btih:8F8A3FCA54E9FE27FBF8992A870236C4746905CA
 magnet:?xt=urn:btih:CFE96C63B505B1048F5AE6E2A3CE742D87C216C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ magnet:?xt=urn:btih:CFE96C63B505B1048F5AE6E2A3CE742D87C216C2
 magnet:?xt=urn:btih:45E568D91A00D6B0C7B75019BBFE23C27EB2A772
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:45E568D91A00D6B0C7B75019BBFE23C27EB2A772
 ```bash
 magnet:?xt=urn:btih:269BA38C8109279E715BD0DF28FD7034C01F65DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:269BA38C8109279E715BD0DF28FD7034C01F65DF
 magnet:?xt=urn:btih:154A79AD1F143691063AB1F3FFCE55EA038732FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:154A79AD1F143691063AB1F3FFCE55EA038732FA
 ```bash
 magnet:?xt=urn:btih:9CDA418029DD838C25784A2DF5B4230E3A08082A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +246,8 @@ Pink - The Truth About Love Tour (Live From Melbourne) (2013) BDRip [720p]
 magnet:?xt=urn:btih:A4205CEA4EABD4888BB3289D904BC541D70C2DF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ magnet:?xt=urn:btih:A4205CEA4EABD4888BB3289D904BC541D70C2DF2
 ```bash
 magnet:?xt=urn:btih:2E3B0F99F511CDA8BC2D9F8384843E06E4DA3833
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +306,8 @@ Muse - Live at Austin City Limits (10.11.2013) [720p] WEBRip
 magnet:?xt=urn:btih:F1D9ED4197F4EE3105426BECA0BE2E2E06DA2D63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ Metallica - Live at Maida Vale Studio (Nov.17 2016) WEB-DL [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:364B04D59BFD06A41931B3DD010D4DD7A8A133C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +364,8 @@ magnet:?xt=urn:btih:364B04D59BFD06A41931B3DD010D4DD7A8A133C7
 magnet:?xt=urn:btih:2F7B4AAF817CC12AB6EC532A3E2037F4377B2F57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +389,8 @@ Metallica - 40th Anniversary Shows (2021) WEB-DL [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:7D2DEDCF5160185F79EA15DD728AA748728E9F1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +419,8 @@ magnet:?xt=urn:btih:7D2DEDCF5160185F79EA15DD728AA748728E9F1F
 magnet:?xt=urn:btih:07B9302CCEE92AB5449EE883C6BA43CFE258B371
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +444,8 @@ The World of Hans Zimmer: A Symphonic Celebration - Hollywood in Vienna 2018 (20
 ```bash
 magnet:?xt=urn:btih:6916D6747F4742D11D69A15F6DF5D67A2A791097
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +473,8 @@ magnet:?xt=urn:btih:6916D6747F4742D11D69A15F6DF5D67A2A791097
 ```bash
 magnet:?xt=urn:btih:8A194640B3729F5CB835E5A8211263F1AB9AFF1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -470,6 +504,8 @@ magnet:?xt=urn:btih:8A194640B3729F5CB835E5A8211263F1AB9AFF1D
 magnet:?xt=urn:btih:990E073E644D0722708C1EDBCBFFFE55814F930A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -497,6 +533,8 @@ magnet:?xt=urn:btih:990E073E644D0722708C1EDBCBFFFE55814F930A
 magnet:?xt=urn:btih:4B8CF0EA331DFFB7BEAF536302E4123A36078B1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +559,8 @@ magnet:?xt=urn:btih:4B8CF0EA331DFFB7BEAF536302E4123A36078B1D
 ```bash
 magnet:?xt=urn:btih:B87073B9FB2CE7602A9CE0AC24532F900DF3042F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +595,8 @@ Metallica-Garage Inc. Live  Roseland NYC 1998 (1998) DVD5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ Metallica-Garage Inc. Live  Roseland NYC 1998 (1998) DVD5
 magnet:?xt=urn:btih:D2512C4227A9D89F7E048AEA0635E6934A17E89E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +653,8 @@ Rammstein - Mein Herz brennt. Второй официальный клип.Жа�
 ```bash
 magnet:?xt=urn:btih:B7291FF77D0738F7BE7343FA30577AFFEF1D1656
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +683,8 @@ magnet:?xt=urn:btih:B7291FF77D0738F7BE7343FA30577AFFEF1D1656
 magnet:?xt=urn:btih:DD4D529935C109F27D31959E3BF05CBEB044CF08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +711,8 @@ magnet:?xt=urn:btih:DD4D529935C109F27D31959E3BF05CBEB044CF08
 ```bash
 magnet:?xt=urn:btih:04586E8E76383A6B42E701B5DA8F4B1194E65A20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -696,6 +746,8 @@ Porcupine Tree - Octane Twisted (2012) DVD5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

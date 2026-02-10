@@ -19,6 +19,8 @@ DREADZONE (2025) [Ru/Multi] (1.4.5.2) Repack AIexandro [Early Access]
 magnet:?xt=urn:btih:B757399BEAFD7659400CCFDDF7A2691C0A907E9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:B757399BEAFD7659400CCFDDF7A2691C0A907E9C
 ```bash
 magnet:?xt=urn:btih:5E9ACFE6045174638627BA022AA836FB9E785C72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Going Medieval (2021) [Ru/Multi] (0.26.42-rel) License GOG [Early Access]
 magnet:?xt=urn:btih:9F758DC0610298FBD22C09592FB46E1C3F50410B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Stoneshard – это сложная пошаговая RPG в открытом 
 ```bash
 magnet:?xt=urn:btih:DC4F65512D2EFF71B4C0A2396F64FE8291E0B1B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Quasimorph, захватывающая мрачная пошаговая рол�
 magnet:?xt=urn:btih:F4270B9304CD956003641C9D2CA517778F97A9F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Witchfire - это тёмный фэнтезийный ролевой шутер
 ```bash
 magnet:?xt=urn:btih:490A3B0D01C7892222449B2E368F4406721B8A45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Kebab Chefs! - Restaurant Simulator (2024) [Ru/Multi] (0.5) Repack Pioneer [Earl
 magnet:?xt=urn:btih:CF5630FD01809B22047AA5FD96ED651A7BBEAA1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Scouring - это стратегия в реальном времени, в 
 ```bash
 magnet:?xt=urn:btih:4312A8095A31DAE73C376118BBEF19D3838F56E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Realm of Ink (2024) [Ru/Multi] (0.18.10) Repack AIexandro [Early Access]
 magnet:?xt=urn:btih:D5EE2A5C7C4CAF21FF8043B0AE67C37A1D35FC72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Choo Choo Survivor 2 (2025) [Multi] (Build 20180986) Repack Let'sРlay [Playtest
 ```bash
 magnet:?xt=urn:btih:63D18BDA003201840CA53AB025B11B3717384D07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Cosmoteer Starship Architect & Commander – новая песочница на 
 magnet:?xt=urn:btih:16771DF67AABC98F270CC811D975C79BB4E61707
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ My Garage – игровой проект, разработанный в жан�
 ```bash
 magnet:?xt=urn:btih:F604A1A60C28CBBBC7B4666D559871CCF45D4A8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ No Rest for the Wicked (2024) [Ru/Multi] (23939) Repack Wanterlude [Early Access
 magnet:?xt=urn:btih:6AD2EA99AEA3F21AC89A1F515C8929AFF9E3EF2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Into the Dead: Our Darkest Days представляет собой сайд-с�
 ```bash
 magnet:?xt=urn:btih:4C0662443BAF9747E784FDD911ED6B5740F675AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Death Must Die - это RPG-рогалик, в которой вы играет�
 magnet:?xt=urn:btih:1799F52C6141F60B588A5DA1494C46C4EAC75613
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Die in the Dungeon (2025) [Ru/Multi] (112.0f3) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:B7021BD61C5A304CBBC6DB52D8E1095D7755861C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Below the Stone - это захватывающая инди-игра, кото�
 magnet:?xt=urn:btih:293CDB18102C24B8B9D946671EE2A285A02BEBE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Necesse - это приключенческая игра-песочница с �
 ```bash
 magnet:?xt=urn:btih:2C35885887A860FEA69F7EFA8A2979D747BC526E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Blacksmith Master (2025) [Ru/Multi] (0.8.147) License GOG [Early Access]
 magnet:?xt=urn:btih:E92800A221450F2D27C202E6E966B610F3BD5873
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Palworld предлагает находить и использовать пр�
 ```bash
 magnet:?xt=urn:btih:EB3B695244599054BB70D6D0126BA4C66B7C18AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Hollywood Animal (2025) [Ru/Multi] (0.8.37ea) License GOG [Early Access]
 magnet:?xt=urn:btih:F919C82F97504642EF78496094746CEE67F974BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Motor Town Behind The Wheel – отличное сочетание аркадн
 ```bash
 magnet:?xt=urn:btih:DE69D248B8970BEE245D04A2FF7D1B4A10A2444D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ White Knuckle - это захватывающий рогалик от перво
 magnet:?xt=urn:btih:2B50FCC8213B63F09A50F4042205FF9952A1EC53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Dreadful River (2023) [En] (0.9.1.0) License GOG [Early Access]
 ```bash
 magnet:?xt=urn:btih:6D935107431A9392A87AADC4644710D44E052E5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Heart of the Machine – игра в мире киберпанка, в кото�
 magnet:?xt=urn:btih:8624F4BFD00E5A6211A58713FEC46F2816E40FE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Spell Brigade - это кооперативная онлайн-игра, в 
 ```bash
 magnet:?xt=urn:btih:7F006AABCE3BCBBD526B857C40DFD628E2C89720
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

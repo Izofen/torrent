@@ -1,3 +1,29 @@
+###  Публикация: 1367527   (915686) от 16.03.2020
+
+Mugen no Ryvius | Infinite Ryvius | Бесконечное путешествие корабля Ривиас [1999, TV, 26 из 26] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_915686.jpg" />
+</div>
+
+
+###  Подробнее
+
+К XXII веку человечество освоило космическое пространство, и на всех планетах Солнечной системы были основаны колонии. Но в 2197 году внезапный взрыв солнечной короны привёл к образованию так называемого моря Гедальта — области высоких температур и давлений, широко распространившейся в космосе и создавшей огромную опасность для астронавтики, стирая в порошок любой (   Читать дальше...   )Производство: Sunrise / サンライズЖанр: приключения, фантастика, мехаРежиссер: Танигути ГороПеревод: -=*ZNAK*=- [1-6 эпизоды], Tymon [7-26 эпизоды]Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 26 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A740EE59358608B39C54D49CE5831B8F62F78475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 757965   (915864) от 17.02.2014
 
 Neppuu Kairiku Bushi Road [2013, TV-спешл] HDTV 720p Hi10bit raw
@@ -18,6 +44,8 @@ Neppuu Kairiku Bushi Road [2013, TV-спешл] HDTV 720p Hi10bit raw
 ```bash
 magnet:?xt=urn:btih:0C2DEC85231C546EB9BDE2D745CDAE1CBCF735A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ Kizuoibitou / Wounded Man / Человек со шрамом [1986, OVA, 5 ep.] 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ Nanako Kaitai Shinsho / Amazing Nurse Nanako / Нанако [1999, OVA, 6 ep.] D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ Shirobako [2014, TV, 24 + 2sp] BDrip 1080p Hi10p raw
 ```bash
 magnet:?xt=urn:btih:BB0C346ABFFB0D15BAC65A8461B6E3FCD675CBA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +150,8 @@ Robot Girls Z Plus / Девочки-роботы Зет [2015, ONA, 6] WEB-DLRip
 magnet:?xt=urn:btih:84AB859EC576440ABB3545346B43DAB7C56DF2D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +175,8 @@ Yakitate!! Japan / Baked Fresh!! Ja-Pan / Японская свежая выпе
 ```bash
 magnet:?xt=urn:btih:32EB012670097E859073CBF6ACD242FE623F98AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ Natsume Yuujinchou Go / Тетрадь дружбы Нацумэ [ТВ-5] [2016,
 magnet:?xt=urn:btih:EDD41CE27262CD686030ECCDC16B873D32BD004E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +233,8 @@ Paradise Kiss | Райский поцелуй [2005, TV, 12] DVDRip 480p raw
 magnet:?xt=urn:btih:9DB30363C007C4651B3625424B2090F64EAFE0C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ Yuu Yuu Hakusho / Yu Yu Hakusho: Ghost Files / Отчет о буйстве ду
 ```bash
 magnet:?xt=urn:btih:BA50F24660A6D80830E5F97FBB42573E2D9A8FC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ Rikei ga Koi ni Ochita no de Shoumei Shite Mita. | Science Fell in Love, So I Tr
 magnet:?xt=urn:btih:79F2A4F7C73EFDD809CF176D70832186E52D459C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ Urawa no Usagi-chan / Усаги-чан из Уравы [2015, TV, 13 из 13] B
 ```bash
 magnet:?xt=urn:btih:17EC5DBAC1D08835023AEF6BB3A8F7EC26C4871A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +340,8 @@ Record of Lodoss War: Legend of the Heroic Knight является прямым 
 magnet:?xt=urn:btih:04D4F0B5B20836D383DBD74389DBAA96581EE2ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ Macross Plus: Movie Edition | Macross Plus The Movie | Макросс Плюс: 
 ```bash
 magnet:?xt=urn:btih:BB1EB982DCDFB3FD9778998EB0104002DD102EBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +392,8 @@ Macross Delta | Macross Δ | Макросс Дельта [2016, TV, 26 + 9] BDRi
 magnet:?xt=urn:btih:3196C91259C45A1BFBDEB5BCBEE3BBC65403FC68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +417,8 @@ Shoukoku no Altair | Altair: A Record of Battles | Империя Альтаир
 ```bash
 magnet:?xt=urn:btih:3E5CF14B3951B96D8D85972ECCC612F9D1E95313
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +444,8 @@ Arata Kangatari | Arata: The Legend | Легенда Араты [2013, TV, 12 и
 magnet:?xt=urn:btih:7BA8067F826090A30D5E4A639C98755275A664BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ Macross Plus | Макросс Плюс [1994, OVA, 4 из 4] BDRip 1080p 10-bit 
 ```bash
 magnet:?xt=urn:btih:687B81469EBE2A3479C645898A9B010C9DF7DD24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +496,8 @@ Yahari Ore no Seishun Love Come wa Machigatteiru. Zoku | OreGairu 2 | Как и 
 magnet:?xt=urn:btih:87F8DE3CA5754DA8EA7909D610337425D4875FB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:87F8DE3CA5754DA8EA7909D610337425D4875FB3
 magnet:?xt=urn:btih:A676537BFC7F1268847E48361B9E23713C350297
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:A676537BFC7F1268847E48361B9E23713C350297
 ```bash
 magnet:?xt=urn:btih:DF92D1A3071A11276EA5AFF7BAF06DAD3B1A48DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:DF92D1A3071A11276EA5AFF7BAF06DAD3B1A48DC
 magnet:?xt=urn:btih:E5B8EAA310C2E91DF33FBBEBCAD805D8F02E49A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ Selector Destructed WIXOSS | Селектор: Разрушение WIXOSS [Ко
 magnet:?xt=urn:btih:5ADB8B16F37B678BC7B3E2FB5A3965720162093D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ Juuou Mujin no Fafnir | Unlimited Fafnir | Безграничный Фафнир
 ```bash
 magnet:?xt=urn:btih:1C4CD901F27EBE77410FB9513C0BC17EE2F3FAB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:1C4CD901F27EBE77410FB9513C0BC17EE2F3FAB3
 magnet:?xt=urn:btih:06EEDBAA9CB385BF309FCCCE55D3B57F4282405A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,29 +682,7 @@ Mushishi Zoku Shou | Mushi-Shi: Next Passage | Мастер Муси: Следу
 magnet:?xt=urn:btih:3AC8257B9FA5E8CCDAC80D92A96F9AF5BEE94EFD
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918154   (923804) от 21.01.2017
-
-Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka? | Danmachi | Может, я встречу тебя в подземелье? [2014, TV, 13 эп. + 1 OVA] BDrip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богам стало скучно, и они сошли в мир, оставив себе минимум атрибутов божественности – бессмертие, предвидение и чуточку силы, чтобы поддерживать своих последователей. Город Орарио, где высится огромный донжон, работает на искателей приключений самых разных рас, которые собираются в кланы, возглавляемые многочисленными богами. Отдельной силой в городе является Гильдия (   Читать дальше...   )Производство: студия J.C. StaffЖанр: приключения, фэнтези, романтикаРежиссер: Ямакава ЁсикиПеревод: YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 серий +1 OVA по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47859E5D33FC31B94B5DCB4ED2D1EC506984F3BB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

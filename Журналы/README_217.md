@@ -1,27 +1,3 @@
-###  Публикация: 727345   (335791) от 26.11.2013
-
-Журнал | National Geographic [Россия] №12 (декабрь 2013) [PDF]
-
->>Журналы
->>Научно-популярные журналы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_335791.jpg" />
-</div>
-
-
-###  Подробнее
-
-National Geographic - уникальный научно-популярный географический журнал, официальное издание американского Национального географического общества - публикует беспрецедентные и эксклюзивные материалы об истории, археологии, науке и культуре. Ядро журнала одинаково для всех стран, что делает National Geographic по-настоящему общемировым изданием.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85B0B5D91A3C3B171F9E520206C93260C4FF348
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075051   (335839) от 20.11.2016
 
 Журнал | Инженерные системы №4 (2016) [PDF]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:C85B0B5D91A3C3B171F9E520206C93260C4FF348
 ```bash
 magnet:?xt=urn:btih:E737AA7DA783997C1311D2CDE5C8582C8862BAE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:E737AA7DA783997C1311D2CDE5C8582C8862BAE1
 magnet:?xt=urn:btih:8E6010A39E9A6124794BEC030AB9CDC90D81F089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:8E6010A39E9A6124794BEC030AB9CDC90D81F089
 ```bash
 magnet:?xt=urn:btih:BF7BD43DC19E709BE774BBC889D9B1CA9F44BCED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:BF7BD43DC19E709BE774BBC889D9B1CA9F44BCED
 magnet:?xt=urn:btih:34358DEC04F64783C6D89B320E063429AA41165C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:34358DEC04F64783C6D89B320E063429AA41165C
 ```bash
 magnet:?xt=urn:btih:CACB8E0114330B3DF6A4C7727EE3732B1E3A4493
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:CACB8E0114330B3DF6A4C7727EE3732B1E3A4493
 magnet:?xt=urn:btih:3F93456B11DE1F4615B24C6C1FD5D9309C87EBFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:3F93456B11DE1F4615B24C6C1FD5D9309C87EBFC
 magnet:?xt=urn:btih:9FA5C6C1954413301A322F892C2423A992B7F5FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +200,8 @@ magnet:?xt=urn:btih:9FA5C6C1954413301A322F892C2423A992B7F5FB
 ```bash
 magnet:?xt=urn:btih:E2D04F3B6F2FE13FC734EE2C5EF619B695D85E01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:E2D04F3B6F2FE13FC734EE2C5EF619B695D85E01
 magnet:?xt=urn:btih:A4C0C968CF91A234B5D00BAB16CB4756980B508B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:A4C0C968CF91A234B5D00BAB16CB4756980B508B
 magnet:?xt=urn:btih:789AC146A15113A5359C47EE22CFE1103C6B68A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ Linux Format - первый в России ежемесячный журнал 
 ```bash
 magnet:?xt=urn:btih:160C9077FBD3E7EBE34F9C0D6B45B3CF60C28BBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:160C9077FBD3E7EBE34F9C0D6B45B3CF60C28BBC
 magnet:?xt=urn:btih:1D59DBCA2B82A0DC50961D91D98C9547E86107AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:1D59DBCA2B82A0DC50961D91D98C9547E86107AF
 magnet:?xt=urn:btih:C9ECE8046DA37CB1367E22F9B428DA71BDCE268E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:C9ECE8046DA37CB1367E22F9B428DA71BDCE268E
 ```bash
 magnet:?xt=urn:btih:A2D3F03C6E8A6F3135423FF0FCC2D9BE9E9D8318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:A2D3F03C6E8A6F3135423FF0FCC2D9BE9E9D8318
 magnet:?xt=urn:btih:0CA9E407AE0933059CC5E101E9E195B15CD111B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:0CA9E407AE0933059CC5E101E9E195B15CD111B8
 ```bash
 magnet:?xt=urn:btih:E7154B5AA6C23C6C59F2A2C1197644ACD954E639
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:E7154B5AA6C23C6C59F2A2C1197644ACD954E639
 magnet:?xt=urn:btih:A3AC802BD0298E153DEAD10E41405FA78C0517D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:A3AC802BD0298E153DEAD10E41405FA78C0517D5
 ```bash
 magnet:?xt=urn:btih:E8B359B423B1A72ECFB4FB1A640590884FF0B8AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +490,8 @@ magnet:?xt=urn:btih:E8B359B423B1A72ECFB4FB1A640590884FF0B8AB
 magnet:?xt=urn:btih:B16B31A67730FB4980E1095B7B223BA57C3AFCF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:B16B31A67730FB4980E1095B7B223BA57C3AFCF6
 ```bash
 magnet:?xt=urn:btih:6A3B29E5674D10F06FF2FE25FD2F80DFCF12859C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +542,8 @@ magnet:?xt=urn:btih:6A3B29E5674D10F06FF2FE25FD2F80DFCF12859C
 magnet:?xt=urn:btih:796C77DB4EA244E5D8D7EE7E21B0D6C1CE2288E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:796C77DB4EA244E5D8D7EE7E21B0D6C1CE2288E4
 ```bash
 magnet:?xt=urn:btih:847606BD851387597A32F41FFE43B801767C8C94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +594,8 @@ magnet:?xt=urn:btih:847606BD851387597A32F41FFE43B801767C8C94
 magnet:?xt=urn:btih:AA216BDADDB49D2028A527F0EAED0D2D21FF5EA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:AA216BDADDB49D2028A527F0EAED0D2D21FF5EA8
 magnet:?xt=urn:btih:FF204762CBA55B35E0BAB3CE04A92A16E6B23145
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +645,34 @@ magnet:?xt=urn:btih:FF204762CBA55B35E0BAB3CE04A92A16E6B23145
 ```bash
 magnet:?xt=urn:btih:3C9A5EEC5CC16DCCFE266B93228745F2BA8BC097
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180749   (337764) от 05.11.2017
+
+Журнал | Рыбачьте с нами №8 (август 2017) [PDF]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_337764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Рыбачьте с нами» - это ежемесячное международное издание обо всех видах рыбной ловли, подводном плавании, туризме и активном отдыхе на воде. это журнал об увлечении. Он делается для людей с высокими требованиями к качеству жизни, для которых рыбалка стала синонимом высококлассного отдыха и приятного времяпрепровождения, то есть синонимом слова удовольствие.Жанр: РыболовствоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:911BAB0F43C7D735416A30AAAE110E072529C3EB
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

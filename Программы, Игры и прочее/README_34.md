@@ -19,6 +19,8 @@ Today Weather - это погодное приложение, что предо�
 magnet:?xt=urn:btih:B4AC155094AC8F7E37A3717B989E2F18C2BB6EA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ O Launcher - это альтернативный лаунчер для Android �
 ```bash
 magnet:?xt=urn:btih:FF74C49CD49759A499B38FC04E341CC317AB1C11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Today Weather - это погодное приложение, что предо�
 magnet:?xt=urn:btih:E983F77AF90E0DE71ECFED53CDA74659558D1A8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Microsoft Edge - это современный веб-браузер для Andr
 ```bash
 magnet:?xt=urn:btih:601166426F9B851AD2AB1A0EF38975FBED35175B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ UpNote - проект, что является платформой для не�
 magnet:?xt=urn:btih:C2D2FAA7C08E7C6D801B7ADEB0D7E3567DA57CFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ GreenTuber - это неофициальный клиент YouTube, что ст
 ```bash
 magnet:?xt=urn:btih:4993D89772A86D1546D19C0298BF14D3148E4072
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Songsterr — приложение для просмотра и разучива
 magnet:?xt=urn:btih:5469B47C92028363A6DFFAF0B3FF149183F46401
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Smart Launcher - лаунчер являющийся одним из самых 
 ```bash
 magnet:?xt=urn:btih:1CB73294878363931B2842338D1028665AFF5761
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Zaycev.net v9.4.0 Mod by Timozhai  [Ru/En]
 magnet:?xt=urn:btih:0BCC02D2CE25E680166540F8449E416F53B9C8B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Smart Launcher - лаунчер являющийся одним из самых 
 ```bash
 magnet:?xt=urn:btih:B6FA20DFB34502A134CA59FB1E5ABB2A26BD41E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:B6FA20DFB34502A134CA59FB1E5ABB2A26BD41E5
 magnet:?xt=urn:btih:A5A02DF881196CBD078B4C9EB97B72E4FB9BCE30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ NewPipe – это клиент для YouTube, который не исполь
 ```bash
 magnet:?xt=urn:btih:2666DDED9A499B7292EF418A762E0B7DA9C1975B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ ViewBox - приложение для Android устройств (в том чи
 magnet:?xt=urn:btih:382CC0CB45852C8A1D5AE1D7365A5C3F2B368F5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Overlays - Floating Launcher - очень полезное приложение 
 ```bash
 magnet:?xt=urn:btih:7FDA3BA68DD6B921A6EA7111AFCCFFC4B94C0B91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ BitTorrent – программа-клиент пиринговой сети. П
 magnet:?xt=urn:btih:C0F6444A1AF2AD3A338CD503742A506560A90947
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Overlays - Floating Launcher - очень полезное приложение 
 ```bash
 magnet:?xt=urn:btih:8B449395290F5B09D8F96635515C14C9D6C27722
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Pro PDF Reader - это удобное и мощное приложение дл
 magnet:?xt=urn:btih:3B87554F7B0BBE10D912A9BF24F129269267848D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:3B87554F7B0BBE10D912A9BF24F129269267848D
 ```bash
 magnet:?xt=urn:btih:4C91BC44982EC49EAADDA2BC5BEAC19A5693EFB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ BIG Launcher - хорошо проработанный и очень полез�
 magnet:?xt=urn:btih:FB6D18D423A70270B27F04537AB031255B5F6383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:FB6D18D423A70270B27F04537AB031255B5F6383
 ```bash
 magnet:?xt=urn:btih:CAE846AB3196C94B80E2ADBD59BDDF1E2B62F144
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ BitTorrent – программа-клиент пиринговой сети. П
 magnet:?xt=urn:btih:7751D96DF156C1592D676474D90716D9656D845F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:7751D96DF156C1592D676474D90716D9656D845F
 ```bash
 magnet:?xt=urn:btih:D820B636183B8F8B20E57B3C84335E11727E0A87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ Minecraft: Pocket Edition - культовый проект не нуждающ�
 magnet:?xt=urn:btih:9EFF7711E7BF1560E153254E10201BCAFBC4F8DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +619,8 @@ Nova Launcher - один из лучших лаунчеров для Android, ч
 ```bash
 magnet:?xt=urn:btih:3E48141109AB4A42987AB10C7AD94C4C1F3BC612
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ PicWish — фоторедактор с искусственным (   Чита
 magnet:?xt=urn:btih:B40936702E2C8535032DD0E5A7DC8F1A1C2F06E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Nova Launcher - один из лучших лаунчеров для Android, ч
 ```bash
 magnet:?xt=urn:btih:21D3A2DF258668EC38B6DB9D1FD75361D23F374D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

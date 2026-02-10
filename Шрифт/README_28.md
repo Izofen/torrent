@@ -19,6 +19,8 @@ Ruston — шрифты Display Fonts с 6 стилями + дополнител
 magnet:?xt=urn:btih:35D8EF94473B3EA8DAB63F74AAC54C60BC3F6FC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Historic Mystique — современный шрифт с засечками о
 ```bash
 magnet:?xt=urn:btih:4F99A1E511E3BC1752A4D47CC3A3C57738342D13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:4F99A1E511E3BC1752A4D47CC3A3C57738342D13
 magnet:?xt=urn:btih:CFB7C7D1F9E03E6E0F47488A878034D3B1D92CCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Anorthic – Modern Serif Font – это вневременной шрифт, �
 ```bash
 magnet:?xt=urn:btih:9339BE246D174C8B71789E470C28A40A9189DB2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Aquawax, созданный в 2008 году Франческо Кановаро
 magnet:?xt=urn:btih:21437411B4E61C2D5DBBAD3B1C2A30B88ADE038B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:21437411B4E61C2D5DBBAD3B1C2A30B88ADE038B
 ```bash
 magnet:?xt=urn:btih:2D917BB2098ABA7B1603782DDEF83F88A50D67E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ TT Corals — современный гуманистический гротес
 magnet:?xt=urn:btih:85CF30BF33E57F5ECEB8A6BCEFA7EC7D8616FEC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ TTF Fonts 1727 (20.04.12) by wadimus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ Sarun — это шрифт, гармонично сочетающий в себ
 ```bash
 magnet:?xt=urn:btih:9637FDA7A793BC5D7582FADE285BCB3AE8FA231D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Suncoast — современный шрифт с ретро-душой. Вдо�
 magnet:?xt=urn:btih:127D5986FD443441595AE3ADAC8FD6303F1C1A7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Loica Sans — это новая (да, ещё одна) интерпретац�
 ```bash
 magnet:?xt=urn:btih:BB7859C2A40207DC1A6A0DD89452B42142D5F193
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Koruva — это высококонтрастный шрифт с засечк�
 magnet:?xt=urn:btih:45D69DC5F638B4FEBDB5D4FC781874B3994CAA66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Bloryn — это высококонтрастный шрифт с засечк�
 magnet:?xt=urn:btih:6683A8B03A71CACC9249F34D00AEBFCDC75DD645
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ Esmarya — изысканный шрифт с засечками, создан�
 ```bash
 magnet:?xt=urn:btih:609610D6BA11E53A5832C28A6D1A34D4D9C374A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:609610D6BA11E53A5832C28A6D1A34D4D9C374A4
 magnet:?xt=urn:btih:6B85179ECC638FBA009FC00A1280477B88F4142B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:6B85179ECC638FBA009FC00A1280477B88F4142B
 ```bash
 magnet:?xt=urn:btih:25345135D49537901CFCCC9E0FCB6C194A2D0AD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Esquie — экспериментальный шрифт, состоящий и�
 magnet:?xt=urn:btih:8B836C219187371FEB14FA2215214622C9B53A28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ GG Zaglav - это современный экранный шрифт с ярк�
 ```bash
 magnet:?xt=urn:btih:B0D0A96A1D014C2D5CC241977F9ECA1A53D44C52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:B0D0A96A1D014C2D5CC241977F9ECA1A53D44C52
 magnet:?xt=urn:btih:DC94989B88F1AA6E0F2E47D613C7169C89088877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ magnet:?xt=urn:btih:DC94989B88F1AA6E0F2E47D613C7169C89088877
 ```bash
 magnet:?xt=urn:btih:FA77FDEB19CE948E4432EFBC0B092EB04345B5B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ Humant — геометрический шрифт, вдохновлённый �
 magnet:?xt=urn:btih:F29AF5DD01177A5A2522A850E262BA74D5A5B95F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:F29AF5DD01177A5A2522A850E262BA74D5A5B95F
 ```bash
 magnet:?xt=urn:btih:4F17E959D364E8B709567FD03DE414BCC8A5FE34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +594,8 @@ magnet:?xt=urn:btih:4F17E959D364E8B709567FD03DE414BCC8A5FE34
 magnet:?xt=urn:btih:1677BD523C8F935EEF8C5FD5389CBA386525E6A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Analogy — это современная интерпретация непре�
 magnet:?xt=urn:btih:4969622E2D096192E3F716DD4EC54344DF7CB91A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +645,8 @@ magnet:?xt=urn:btih:4969622E2D096192E3F716DD4EC54344DF7CB91A
 ```bash
 magnet:?xt=urn:btih:5F0B98023449EE2512E36A7BB9C865531C369594
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:5F0B98023449EE2512E36A7BB9C865531C369594
 ```bash
 magnet:?xt=urn:btih:4E2C9DB4ACCF7BA36D3150284B18A210B78478F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

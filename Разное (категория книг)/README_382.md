@@ -1,3 +1,29 @@
+###  Публикация: 689455   (571253) от 14.08.2013
+
+Робин Шарма | Монах, который продал свой «феррари» (2005) [FB2]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_571253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ставшая бестселлером во многих странах мира книга Робина Шармы рассказывает нам необыкновенную историю Джулиана Мэнтла - адвоката-миллионера, которому довелось пережить духовный кризис. Погружение в древнюю культуру изменяет его жизнь; он открывает для себя действенные, мудрые практические знания, которые учат нас: радостно мыслить, жить согласно своему призванию, (   Читать дальше...   )Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A6DEF071622F3FD41F8B916F0BD791B16934326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921918   (571429) от 27.07.2015
 
 Питер Дэли, Майкл Уоткинс | Первые 90 дней на государственной службе (2008) [PDF]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:46371F3A08239ED600584B4E75561518F18DA910
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:46371F3A08239ED600584B4E75561518F18DA910
 magnet:?xt=urn:btih:C84725EC3956F3D429413E7385B29EB2B88D9B01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:C84725EC3956F3D429413E7385B29EB2B88D9B01
 magnet:?xt=urn:btih:E5C9B00139915CA94D29EDD8A242489482BC972C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:E5C9B00139915CA94D29EDD8A242489482BC972C
 ```bash
 magnet:?xt=urn:btih:F905D8F4127E68B287E838841DFADCFE38ABD224
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +154,8 @@ magnet:?xt=urn:btih:F905D8F4127E68B287E838841DFADCFE38ABD224
 magnet:?xt=urn:btih:47F9CB94A60EDEB9F05D76F63B1CF8CD9D6A09A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +181,8 @@ magnet:?xt=urn:btih:47F9CB94A60EDEB9F05D76F63B1CF8CD9D6A09A9
 ```bash
 magnet:?xt=urn:btih:F1F6FECC626DA6744A5065886D38EA796867B6B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +210,8 @@ magnet:?xt=urn:btih:F1F6FECC626DA6744A5065886D38EA796867B6B9
 magnet:?xt=urn:btih:03DE8C034BBC8F763B0D742CFEF294E94B3DF382
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:03DE8C034BBC8F763B0D742CFEF294E94B3DF382
 ```bash
 magnet:?xt=urn:btih:E8C109A356D10A7F0ED67D17798F928969F2D821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +263,8 @@ magnet:?xt=urn:btih:E8C109A356D10A7F0ED67D17798F928969F2D821
 magnet:?xt=urn:btih:E275DDE1EAD74EA658647E68F2189BD2BB7B0D49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +290,8 @@ magnet:?xt=urn:btih:E275DDE1EAD74EA658647E68F2189BD2BB7B0D49
 ```bash
 magnet:?xt=urn:btih:54CDBA21D347BE8E3CF8A1439E54EE607133FF18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +320,8 @@ Tор Мюллер, Лейн Беккер | Удача в бизнесе. Как
 magnet:?xt=urn:btih:0C3BF5AF7C37381DBE1A89583CCC520E035C9E5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +345,8 @@ magnet:?xt=urn:btih:0C3BF5AF7C37381DBE1A89583CCC520E035C9E5D
 ```bash
 magnet:?xt=urn:btih:A5B3CC3D3052E39FF5663D249C1F1B28E23875FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -323,6 +373,8 @@ magnet:?xt=urn:btih:A5B3CC3D3052E39FF5663D249C1F1B28E23875FF
 magnet:?xt=urn:btih:6455A6E329B62552073B57B5EAAD99091EBA6198
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +398,8 @@ magnet:?xt=urn:btih:6455A6E329B62552073B57B5EAAD99091EBA6198
 ```bash
 magnet:?xt=urn:btih:7BD3E183E8BDBDE68BDE2008FF0E750DAB43FFAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +425,8 @@ magnet:?xt=urn:btih:7BD3E183E8BDBDE68BDE2008FF0E750DAB43FFAE
 magnet:?xt=urn:btih:724B02E16F514A1E12607D082CC182AA9EE0A1E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +450,8 @@ magnet:?xt=urn:btih:724B02E16F514A1E12607D082CC182AA9EE0A1E9
 ```bash
 magnet:?xt=urn:btih:AAC7CBF8E9CFEF340B8296393A4DB05D08811AA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +477,8 @@ magnet:?xt=urn:btih:AAC7CBF8E9CFEF340B8296393A4DB05D08811AA9
 magnet:?xt=urn:btih:66C53FC1E81B3BDD05EEC158E9CE675D87C68280
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +503,8 @@ magnet:?xt=urn:btih:66C53FC1E81B3BDD05EEC158E9CE675D87C68280
 magnet:?xt=urn:btih:A2FEF9AB9F3964ED79C9F864C9FB258B1AC6ADF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:A2FEF9AB9F3964ED79C9F864C9FB258B1AC6ADF9
 ```bash
 magnet:?xt=urn:btih:BC8FC5B228406EA5FB361F79ACE3DAC37BC82BF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -493,6 +557,8 @@ magnet:?xt=urn:btih:BC8FC5B228406EA5FB361F79ACE3DAC37BC82BF8
 magnet:?xt=urn:btih:61EF35D2B176A78672851B7DCB5FB5F020BBF266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +583,8 @@ magnet:?xt=urn:btih:61EF35D2B176A78672851B7DCB5FB5F020BBF266
 magnet:?xt=urn:btih:23388107F851ACCE43BF816983A84A9DE6DE7860
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +608,8 @@ magnet:?xt=urn:btih:23388107F851ACCE43BF816983A84A9DE6DE7860
 ```bash
 magnet:?xt=urn:btih:2DB4715A892FEDDAF2516AA101052DFC4B9C8814
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +637,8 @@ magnet:?xt=urn:btih:2DB4715A892FEDDAF2516AA101052DFC4B9C8814
 magnet:?xt=urn:btih:86407CF30854BAEAE9C0C8DBD1A743904783CD63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +662,8 @@ magnet:?xt=urn:btih:86407CF30854BAEAE9C0C8DBD1A743904783CD63
 ```bash
 magnet:?xt=urn:btih:2DDEEE3861DE498A25FD70CE38B8722460B22916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,29 +691,7 @@ magnet:?xt=urn:btih:2DDEEE3861DE498A25FD70CE38B8722460B22916
 magnet:?xt=urn:btih:8E355BE47E1CE70F0C6585E6A4286E20E0D782D8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 362207   (573197) от 12.07.2011
-
-Евгений Тимашев | Пейзаж в кадре [2010] [PDF]
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_573197.jpg" />
-</div>
-
-
-###  Подробнее
-
-…Все, что влияет на итоговый результат - это собственное фотографическое видение каждого человека. "Пейзаж в кадре" - небольшая книга о том, как научиться использовать это видение при съемке пейзажа, как отыскать эмоции, настроение и как передать их при помощи фотокамеры. -- Евгений Тимашёв.Формат: PDF
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

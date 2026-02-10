@@ -19,6 +19,8 @@ SnapEdit — одно из лучших приложений для редакт
 magnet:?xt=urn:btih:82FD460DD761AA652F22EAAE6B4E7A5A4CC245F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:82FD460DD761AA652F22EAAE6B4E7A5A4CC245F4
 ```bash
 magnet:?xt=urn:btih:C1663D5FBC8AE73D2FD53B15F8020DA9C8AA59C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Blur Text App - Преобразуйте свои скриншоты с помо
 magnet:?xt=urn:btih:599D2CD97DC01EDB508641759AA4D6BBD25CD85E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:4EE14D7C629AC54A08F8BAEED03CA9F9FC8D62A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ PPlayer v1.32 [Ru/En]
 magnet:?xt=urn:btih:1B3A43646409E1F14EA8B48054AE136641AF9B75
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:1B3A43646409E1F14EA8B48054AE136641AF9B75
 ```bash
 magnet:?xt=urn:btih:4A2423E2FC2337E1D13803C2FE8B776ED2F06FF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ NewPipe v0.28.0 Free + Mod by Alex.Strannik  [Ru/Multi]
 magnet:?xt=urn:btih:00911223E329E1814D863B4BCE595CA695F53B03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:00911223E329E1814D863B4BCE595CA695F53B03
 ```bash
 magnet:?xt=urn:btih:53E4EF6CD01242CD7BD1507215B2ED9AC5A338E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Proton VPN — это единственное в мире бесплатное 
 magnet:?xt=urn:btih:D74BAEB00336FDB7EFB1FFC9A909AA4DD8C8F3CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Heart Rate Plus: Pulse Monitor v2.9.5 Mod by FeralFox [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A13DC8FE4654EB59B1D11173EA3303BC0A7C7663
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Face Swap - AI Photo Editor v1.4.7 Mod by Balatan [Multi]
 magnet:?xt=urn:btih:ACAF6C3176AD7F6F8DD10459C897BD4E5E8E1420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ AI Photo Editor Pro - Polish v1.662.224 Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:197EB5E599222134604A969F424EE32A81381B73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:197EB5E599222134604A969F424EE32A81381B73
 magnet:?xt=urn:btih:204F9ABC2B5614C8400356AC5874BB1C7F12A4FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +360,8 @@ TeraBox - это инновационное облачное хранилище 
 ```bash
 magnet:?xt=urn:btih:1F376589317433D2EDA42E8A0B3F41E121C86CFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ MultiTimer - это простое и универсальное таймер-п
 magnet:?xt=urn:btih:6D0A4075727FB4B808234AFFF4898E95FB3EACF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Moon+reader относится к категории универсальных 
 ```bash
 magnet:?xt=urn:btih:7F067F395CC9C423EC66664751EE7E2F7188673C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Flud - простой и элегантный BitTorrent клиент для о�
 magnet:?xt=urn:btih:66F280ED75C6A0730AE734F7B0108E9227C0C015
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ Cat Scanner / Сканер породы кошек v19.9.0-G Mod by vadj [Ru/Mul
 ```bash
 magnet:?xt=urn:btih:AED17B37A50291055E81A4FAC217804397399B1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Prana Breath: Дыши и Медитируй (Пранаяма) v9.5.2_2 Mod by 
 magnet:?xt=urn:btih:8EA5F3A485561B114E8FE09F45C5C066997D74A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:8EA5F3A485561B114E8FE09F45C5C066997D74A1
 ```bash
 magnet:?xt=urn:btih:839CD7F0B475973D9D8A389DAE40CA279726435C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ Purvpn 8.4 [En/Farsi]
 ```bash
 magnet:?xt=urn:btih:8FB05B23EC6FDD00EBBD5F3D3DDB7C6BA6F4AE42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:8FB05B23EC6FDD00EBBD5F3D3DDB7C6BA6F4AE42
 magnet:?xt=urn:btih:A236B8C40F05750CD30057972857AB6F3005B65E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v1.8.8 Mod by v
 magnet:?xt=urn:btih:0C161963A7437781F221E36A81FB19A5D2E80A67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:0C161963A7437781F221E36A81FB19A5D2E80A67
 ```bash
 magnet:?xt=urn:btih:37BB85875DE5F94BEA3D80621A9724F56022AD80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:37BB85875DE5F94BEA3D80621A9724F56022AD80
 magnet:?xt=urn:btih:90FDEDC0540894E137306B4468E6F8FDB8EDA27F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:90FDEDC0540894E137306B4468E6F8FDB8EDA27F
 ```bash
 magnet:?xt=urn:btih:A98DBBD71E8754E4AC5001EA963958ECD20E852F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

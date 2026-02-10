@@ -1,3 +1,29 @@
+###  Публикация: 1160241   (478190) от 23.08.2017
+
+Орел и решка. Перезагрузка (2017.08.27) WEB-DL [H.264/720p-LQ] (сезон 14: Астана, Казахстан)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_478190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шесть лет назад команда проекта "Орел и решка" впервые отправилась в большое путешествие по самым интересным городам нашей планеты. За прошедшее время в них столько всего изменилось, что создатели шоу решили приехать сюда снова. "Орел и решка" объявляет перезагрузку! Телезрителей ждет встреча с невиданными чудесами, новыми незабываемыми впечатлениями (   Читать дальше...   )Телекомпания: ИНТЕРЖанр: Реалити-шоу, путешествия, география, познавательныйСубтитры: ОтсутствуютПродолжительность: ~ 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:835360F71A2E9682711B410F4EE0CE673FED0592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567043   (478336) от 31.07.2022
 
 Цари океанов. Путь в Арктику (2022) WEBRip [H.264/720p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:C93A8889F7DB36DD16CFFBEF43A2C8A802CB6451
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:C93A8889F7DB36DD16CFFBEF43A2C8A802CB6451
 magnet:?xt=urn:btih:E2286B3DEF928851E847B4CCB330DE846884D2AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:E2286B3DEF928851E847B4CCB330DE846884D2AD
 ```bash
 magnet:?xt=urn:btih:7C8024F7258E93CC5A54637BF03FCEF7A83AE13C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:7C8024F7258E93CC5A54637BF03FCEF7A83AE13C
 magnet:?xt=urn:btih:5AA67FCAD93DD96354CF51D5E947081DAE8F071C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:5AA67FCAD93DD96354CF51D5E947081DAE8F071C
 ```bash
 magnet:?xt=urn:btih:B43C80FDD1D6DB175602BF94DBDFD4004A41CF1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:B43C80FDD1D6DB175602BF94DBDFD4004A41CF1D
 magnet:?xt=urn:btih:47F61C9C252D6647A19516C59D41B2069220B8AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +201,8 @@ magnet:?xt=urn:btih:47F61C9C252D6647A19516C59D41B2069220B8AE
 ```bash
 magnet:?xt=urn:btih:10E199312CC06A630F0DCA9D66CD28C2B6C978EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:10E199312CC06A630F0DCA9D66CD28C2B6C978EB
 magnet:?xt=urn:btih:F108C93C0A87B3F4927A4690E07DB2734C51C74D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:F108C93C0A87B3F4927A4690E07DB2734C51C74D
 magnet:?xt=urn:btih:1568E1085E1F5EE62DACC8698F3BB04AF80879B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:1568E1085E1F5EE62DACC8698F3BB04AF80879B3
 ```bash
 magnet:?xt=urn:btih:F0F474891F2B444BF7D7682CA9120E8D97011D4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +308,8 @@ magnet:?xt=urn:btih:F0F474891F2B444BF7D7682CA9120E8D97011D4B
 magnet:?xt=urn:btih:BD47AC3AAD73457F9CD731E7200D82D81B991268
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:BD47AC3AAD73457F9CD731E7200D82D81B991268
 ```bash
 magnet:?xt=urn:btih:657B2745770E9894BE0C9B73C0103B25D2489EE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +360,8 @@ magnet:?xt=urn:btih:657B2745770E9894BE0C9B73C0103B25D2489EE1
 magnet:?xt=urn:btih:B7D587398F06F2454D56562D846D5081A0ADB250
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:B7D587398F06F2454D56562D846D5081A0ADB250
 ```bash
 magnet:?xt=urn:btih:6A53338C05DED16B1D4156A41CC5FD4347EF380E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +412,8 @@ magnet:?xt=urn:btih:6A53338C05DED16B1D4156A41CC5FD4347EF380E
 magnet:?xt=urn:btih:1FF2842241415B0E3A7035C9633E5531A187FCF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:1FF2842241415B0E3A7035C9633E5531A187FCF1
 ```bash
 magnet:?xt=urn:btih:6FF8FCF1C807B51A497CA266181844748E99FE3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +464,8 @@ magnet:?xt=urn:btih:6FF8FCF1C807B51A497CA266181844748E99FE3C
 magnet:?xt=urn:btih:6452B39711608B7A85FB5BA84658B099D0B217C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:6452B39711608B7A85FB5BA84658B099D0B217C3
 ```bash
 magnet:?xt=urn:btih:37938E6A5630C6E1475DD94390720BBF175AD75D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:37938E6A5630C6E1475DD94390720BBF175AD75D
 magnet:?xt=urn:btih:3292137F6D269B1B4142631F75F9CEEDDFD8445F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:3292137F6D269B1B4142631F75F9CEEDDFD8445F
 ```bash
 magnet:?xt=urn:btih:22E6DD3C3159FB464BE629BBE3AF2306C4130DBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:22E6DD3C3159FB464BE629BBE3AF2306C4130DBD
 magnet:?xt=urn:btih:1FD034835D246D9DD48D5EB83076BC00CF2A5132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:1FD034835D246D9DD48D5EB83076BC00CF2A5132
 ```bash
 magnet:?xt=urn:btih:4DC55FDDD46006691BDC334AE885FA04DD59880D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:4DC55FDDD46006691BDC334AE885FA04DD59880D
 magnet:?xt=urn:btih:44AC0AAB5CEDB0439B657F756584CF8E4A003B9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +645,8 @@ magnet:?xt=urn:btih:44AC0AAB5CEDB0439B657F756584CF8E4A003B9E
 ```bash
 magnet:?xt=urn:btih:06DAB31E2F760C93059EF1736BF669941E140E9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:06DAB31E2F760C93059EF1736BF669941E140E9A
 magnet:?xt=urn:btih:2DB9C16EC1D8A51E88FCF92E7B84A3F6CA711F2C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938904   (479885) от 19.09.2015
-
-Новые русские сенсации. В постели с Саакашвили (2015.09.19) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_479885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа "Русские сенсации" - это еженедельное документальное приложение к "Программе Максимум". Созданная в лучших традициях расследовательской журналистики, программа развивает и углубляет этот жанр, затрагивая темы, о которых раньше никогда не рассказывало отечественное ТВ. Большинство фильмов - уникальные разработки, слишком громкие и масштабные (   Читать дальше...   )Телекомпания: НТВЖанр: ДокументальныйРежиссер: Глеб Ясиницкий, Андрей Куренков, Дмитрий ЦураПродолжительность: ~ 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751EF8F50E638977E388F6EB60E12909805DED65
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

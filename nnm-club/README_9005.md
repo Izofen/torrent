@@ -22,6 +22,8 @@ DLR - Dreamland (2016) [MP3|320 Kbps] <Drum & Bass>
 magnet:?xt=urn:btih:F6E9D9BEE9C9C2FE72E4DB8BA4135BF470BF5913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:F6E9D9BEE9C9C2FE72E4DB8BA4135BF470BF5913
 ```bash
 magnet:?xt=urn:btih:6FCA59606DCDF987CD3E0221208B02874C4E4274
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - LUXEmusic: Dance Super Chart Vol.98 (2016) [MP3|256~320 Kbps] <House, Mash 
 magnet:?xt=urn:btih:46F77A8E6BA2B51E393CE8539226B02A7C889C6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:46F77A8E6BA2B51E393CE8539226B02A7C889C6C
 ```bash
 magnet:?xt=urn:btih:D252E9C69CD3B533E84FE66ADE44491B6E45ED4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Ludvig Forssell, VA - Death Stranding (Original Score + Timefall) (2019) [FLAC|L
 magnet:?xt=urn:btih:62BE3874C93B8431E0E0A3BB81EBAED69EBF7CC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:62BE3874C93B8431E0E0A3BB81EBAED69EBF7CC6
 magnet:?xt=urn:btih:09AFB81A77760A463C2550B50578A6E0ECC05062
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ A Story About My Uncle - это приключенческий платформ�
 magnet:?xt=urn:btih:FAF5E933AACC06E8D72765883182FC45A5834436
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ The KMPlayer – это мощный мультимедиа проигрыват
 ```bash
 magnet:?xt=urn:btih:3474BE64F366B7A91E5CA8E334C8557590305403
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ VA - По волне моей памяти 2: Том23 (Compiled by Виктор
 magnet:?xt=urn:btih:098F4DE435E9B855B439495FC87D6360D969B559
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ VA - Xmas Chillout Hot Traxx (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:F9098A5443DA3EB99E811C69625D5C482A337E78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ VA - По волне моей памяти 2: Том24 (Compiled by Виктор
 magnet:?xt=urn:btih:D0BCFEAA506FBCDF5D255FEA969DC25E0B6CB737
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ Carlos Santana & Herbie Hancock - Live in Tokyo 1981 (2019) [MP3|320 Kbps] <Jazz
 ```bash
 magnet:?xt=urn:btih:50CD4095DA980B47F9B8C1CB2AE987041EA7EF7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +357,8 @@ Aracner - Nación Tierra (2016) [MP3|320 Kbps] <Progressive, Thrash Metal, Melod
 magnet:?xt=urn:btih:881B32A1339835807AEFD28999DBF9582F30688A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ VA - Beatport Trance Pack (Best Of December) (14.12.) (2016) [MP3|320 Kbps] <Tra
 magnet:?xt=urn:btih:A5AED4666934ED1FECC87CAA0860D3525FF8FA85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:722F8D964FF0CB0A194DF2F50FCC9BC73E3E49D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +439,8 @@ AnyTrans - файловый менеджер, который отвечает з
 magnet:?xt=urn:btih:BEE2CD9049D6D212CE100581E659C67216081167
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +464,8 @@ magnet:?xt=urn:btih:BEE2CD9049D6D212CE100581E659C67216081167
 ```bash
 magnet:?xt=urn:btih:33EBCA47B2EF9C784C81845D28555B2C9B92AF24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +494,8 @@ Andrea Bocelli - Si Forever (2019) The Diamond Edition [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:62EF8AA170066A7063C57084844A1D7EACB75EED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +519,8 @@ magnet:?xt=urn:btih:62EF8AA170066A7063C57084844A1D7EACB75EED
 ```bash
 magnet:?xt=urn:btih:A96166B76A8DAA6AA5390383161426B671CF7477
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ PicturesToExe Deluxe 9.0.14 RePack by вовава [Ru/En]
 magnet:?xt=urn:btih:3482A464F56742202B73E7B6F3A85E695A6623DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ AIDA64 (бывший EVEREST) - утилита является мощным с�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +602,8 @@ VA - Dutch House Bomb! (2016) [MP3|320 Kbps] <Progressive, Tech, Deep House>
 magnet:?xt=urn:btih:5EE9ED595B95BBC2C39A2DF77FEC7AF9CB40472B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ Pendulum - In Silico (2008) Japan [FLAC|Lossless|tracks + .cue] <Drum & Bass, Al
 magnet:?xt=urn:btih:9A4A3D813A79B1B9A461D770D45A1805FA8F035D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:9A4A3D813A79B1B9A461D770D45A1805FA8F035D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -635,6 +683,8 @@ magnet:?xt=urn:btih:9A4A3D813A79B1B9A461D770D45A1805FA8F035D
 ```bash
 magnet:?xt=urn:btih:D26140569D10D5BA44D2EEAC84C109411BE3E462
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -662,6 +712,8 @@ VA - Latin Amigos Con Privilegios (2016) [MP3|320 Kbps] <Dembow, Cumbia, Reggaet
 ```bash
 magnet:?xt=urn:btih:8CB500D2A484B42DC7E6469D0DF1B9C1619204CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

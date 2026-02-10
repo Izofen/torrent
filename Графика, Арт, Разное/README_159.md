@@ -1,52 +1,3 @@
-###  Публикация: 1447589   (1031622) от 14.02.2021
-
-Картинки - Коллекция картинок Море [JPG]
-
->>Графика, Арт, Разное
->>Картинки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031622.jpg" />
-</div>
-
-
-###  Подробнее
-
-В хорошем качестве подборка картинок море.Формат: JPGРазрешение файлов: 6000x4000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A70D2FD95E51A367295143F685E0942691E5FA
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 211772   (1031715) от 13.02.2021
-
-Перов Василий Григорьевич (1833(1834)-1882). Собрание работ [JPG]
-
->>Графика, Арт, Разное
->>Классическое искусство
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1031715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция картин Перова Василия Григорьевича, разнообразного разрешения.
-Васи́лий Григо́рьевич Перо́в (настоящая фамилия Криденер; 21 декабря 1833 (2 января 1834), Тобольск — 29 мая (10 июня) 1882, с. Кузьминки, ныне в черте г. Москвы) — русский живописец, один из членов-учредителей Товарищества передвижных художественных выставок.Формат: JPGРазрешение файлов: 512x441 - 1856x2376
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93B9C5DCA6A5E94B41A7C884457A1846FB62D8FF
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447329   (1031819) от 13.02.2021
 
 Картинки - Коллекция картинок Берега [JPG]
@@ -67,6 +18,8 @@ magnet:?xt=urn:btih:93B9C5DCA6A5E94B41A7C884457A1846FB62D8FF
 ```bash
 magnet:?xt=urn:btih:3E5665D46D8884F0F379BA49AC6FF2A8931EF6A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +46,8 @@ magnet:?xt=urn:btih:3E5665D46D8884F0F379BA49AC6FF2A8931EF6A9
 magnet:?xt=urn:btih:4B30E8DAED3BA941926D41463ABB7B9084761D85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +73,8 @@ magnet:?xt=urn:btih:4B30E8DAED3BA941926D41463ABB7B9084761D85
 magnet:?xt=urn:btih:F34F28693466EFDA4DD74B62966E5C1F9B5A865D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +98,8 @@ magnet:?xt=urn:btih:F34F28693466EFDA4DD74B62966E5C1F9B5A865D
 ```bash
 magnet:?xt=urn:btih:3530CAF4FFF74A5170B3452F5432A25A974D395E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +126,8 @@ magnet:?xt=urn:btih:3530CAF4FFF74A5170B3452F5432A25A974D395E
 magnet:?xt=urn:btih:9B8C7E1E3606AAA05FF2C9C587E328A5CB04CF2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +153,8 @@ magnet:?xt=urn:btih:9B8C7E1E3606AAA05FF2C9C587E328A5CB04CF2C
 magnet:?xt=urn:btih:D6A68719B7D249827AE3B7E569DE10CDA89FA4A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +179,8 @@ magnet:?xt=urn:btih:D6A68719B7D249827AE3B7E569DE10CDA89FA4A8
 ```bash
 magnet:?xt=urn:btih:817A1B59796C4284324C7AD516E9D0C68475ACB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +209,8 @@ magnet:?xt=urn:btih:817A1B59796C4284324C7AD516E9D0C68475ACB9
 magnet:?xt=urn:btih:475D91A2C53ED81231B639C5050C87ED85831675
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +235,8 @@ magnet:?xt=urn:btih:475D91A2C53ED81231B639C5050C87ED85831675
 ```bash
 magnet:?xt=urn:btih:722679D3634B380F6D2551B8BEF9D04B1F1AE9EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +263,8 @@ magnet:?xt=urn:btih:722679D3634B380F6D2551B8BEF9D04B1F1AE9EE
 magnet:?xt=urn:btih:28F3C3ADD9EB80C8AFEB607E0CE9644FEA8EFAAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +288,8 @@ magnet:?xt=urn:btih:28F3C3ADD9EB80C8AFEB607E0CE9644FEA8EFAAA
 ```bash
 magnet:?xt=urn:btih:E9B489472630A4F6AC6A5E1D4290E2C871506D9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +316,8 @@ magnet:?xt=urn:btih:E9B489472630A4F6AC6A5E1D4290E2C871506D9B
 magnet:?xt=urn:btih:26FF1B2DB004FDF3C9D630323B8F858169BF6793
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +342,8 @@ magnet:?xt=urn:btih:26FF1B2DB004FDF3C9D630323B8F858169BF6793
 ```bash
 magnet:?xt=urn:btih:D54350E0089C2F4B689EC622891618100BF1CB75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -393,6 +370,8 @@ magnet:?xt=urn:btih:D54350E0089C2F4B689EC622891618100BF1CB75
 magnet:?xt=urn:btih:C3194DE631108504DD894DA39BAB7C43574E8C3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +395,8 @@ magnet:?xt=urn:btih:C3194DE631108504DD894DA39BAB7C43574E8C3E
 ```bash
 magnet:?xt=urn:btih:E3A93312E7C6AD9910DD85E5E9CF21870D2C392F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +423,8 @@ magnet:?xt=urn:btih:E3A93312E7C6AD9910DD85E5E9CF21870D2C392F
 magnet:?xt=urn:btih:1E59FC4701B6408B987732E06C269F3147198E5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +448,8 @@ magnet:?xt=urn:btih:1E59FC4701B6408B987732E06C269F3147198E5A
 ```bash
 magnet:?xt=urn:btih:4FB953B83B78A676EB476F8F6013BA8B42DE6492
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +475,8 @@ magnet:?xt=urn:btih:4FB953B83B78A676EB476F8F6013BA8B42DE6492
 magnet:?xt=urn:btih:331221B287308BE1DF5FE1521DCF15AB4F5C231F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +500,8 @@ magnet:?xt=urn:btih:331221B287308BE1DF5FE1521DCF15AB4F5C231F
 ```bash
 magnet:?xt=urn:btih:F577A715BE7C26BF510A9086F7CE6DB554258F52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +527,8 @@ magnet:?xt=urn:btih:F577A715BE7C26BF510A9086F7CE6DB554258F52
 magnet:?xt=urn:btih:2FC1BBDAFCDD9CD29250FFAAC15DD07D004F51D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +552,8 @@ magnet:?xt=urn:btih:2FC1BBDAFCDD9CD29250FFAAC15DD07D004F51D4
 ```bash
 magnet:?xt=urn:btih:66D3AA70676EBC06A0F1CB5E909BDB2971D41C2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +581,8 @@ magnet:?xt=urn:btih:66D3AA70676EBC06A0F1CB5E909BDB2971D41C2D
 magnet:?xt=urn:btih:112C18EFEBFDE2E9CB449302EC1B2A9E595C320A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +606,8 @@ magnet:?xt=urn:btih:112C18EFEBFDE2E9CB449302EC1B2A9E595C320A
 ```bash
 magnet:?xt=urn:btih:975D39979058B800FA000420C5964CC158DFCA91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +633,61 @@ magnet:?xt=urn:btih:975D39979058B800FA000420C5964CC158DFCA91
 ```bash
 magnet:?xt=urn:btih:07DA6E1D1529BE63D358192117CA7585EFBE34D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603920   (1045537) от 11.01.2023
+
+Картинки - Календарь - пирамидка на 2023 год V2 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045537.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настольный календарь-пирамидка на 2023 год
+Распечатать. Вырезать по контуру, согнуть по линиям и склеить.Формат: JPGРазрешение файлов: 7087х4961
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE67187000390CFFC1C1D2BA9F1DE3F853B9664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603051   (1045796) от 08.01.2023
+
+Фотография - ArtStation - Grafit Studio - 600+ Same Pose Different Lighting Reference Pictures [JPG]
+
+>>Графика, Арт, Разное
+>>Современная фотография
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1045796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот пакет содержит более 600 эталонных изображений в высоком разрешении с акцентом на различные настройки освещения в одной и той же позе. Мы также включили более 100 бонусных изображений со сложными настройками освещения, на которых изображены портреты крупным планом и различные позы персонажей. Это будет отличный набор для изучения света и цвета, иллюстрации, (   Читать дальше...   )Формат: JPGРазрешение файлов: 1931x4205 - 4311x2978
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA327FCA0C91EC13840154D6A83E2153D2B34AA
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

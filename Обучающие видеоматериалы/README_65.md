@@ -22,6 +22,8 @@ ArtStation, Realtime GraphX | Create Next Gen AAA Characters for Unreal Engine (
 magnet:?xt=urn:btih:8EF85148BF9F5E19D751B2B6C0398EF712578C4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ New masters academy, Glenn Vilppu | Foundations of Composition (2016) PCRec [EN,
 ```bash
 magnet:?xt=urn:btih:0B8D3235C55B7AE4C906BA5FAE18E544748BF1BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Skillshare, Marco Bucci | Digital Painting 3 (2019) PCRec [EN, RU]
 magnet:?xt=urn:btih:6E20A0F1CEE5A454B6A851F66FFE032292C87117
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Skillshare, Marco Bucci | Digital Painting 1 (2015) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:5DECB57C1898581E2031F79A13DC8D5135427A1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:5DECB57C1898581E2031F79A13DC8D5135427A1A
 ```bash
 magnet:?xt=urn:btih:856ACF6D30991C348887CA23543754888ED4E515
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ Skillshare, Dave Bergin | Character Creation in Cinema 4D and Daz Studio (2022) 
 magnet:?xt=urn:btih:6770B41E7FD04329F9A89C1E454791FB9CB4801C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Heisenbug - крупнейшая в России конференция по т�
 ```bash
 magnet:?xt=urn:btih:3F6C04E1760C9CC28964F076082E61DC59AA89F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ Bazanova Art, Ольга Базанова | Практика художника 
 magnet:?xt=urn:btih:190A193A19AFFD820C45737B7689980546309311
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ ZartSchool, Павел Зубов, Татьяна Зубова | Море на �
 ```bash
 magnet:?xt=urn:btih:76130F69A18897C12C6F2A7018D9AED94332D377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ Enterclass, Елена Куракина | Розы акрилом (2023) WEB-DL 
 magnet:?xt=urn:btih:667D2ABDD49BFA63F72542C1B280C95C31A1E2E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:667D2ABDD49BFA63F72542C1B280C95C31A1E2E8
 ```bash
 magnet:?xt=urn:btih:2491363FED9306FFAD98F06D89132B2DC2E866C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ magnet:?xt=urn:btih:2491363FED9306FFAD98F06D89132B2DC2E866C8
 magnet:?xt=urn:btih:119730C6E02239BAB798A21F9797C12FF86BB125
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:119730C6E02239BAB798A21F9797C12FF86BB125
 magnet:?xt=urn:btih:F990F1BE197EAA4755718135D5D3326A919463C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:F990F1BE197EAA4755718135D5D3326A919463C1
 ```bash
 magnet:?xt=urn:btih:81948D63ACBF4752B620EA843E5F25C11A3F998C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:81948D63ACBF4752B620EA843E5F25C11A3F998C
 magnet:?xt=urn:btih:2DE135A052C4338B5996CAC106AF30B291C62672
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:2DE135A052C4338B5996CAC106AF30B291C62672
 ```bash
 magnet:?xt=urn:btih:434D4B62DB45AF3A1299CADC742A7C58C35167E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ Skillbox, BangBang, Tagline, Илья Митрошин и др. | Скетчин
 magnet:?xt=urn:btih:34C0975F3FB9A2FA7DDA727E22A4BBC8F96E2586
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ Skillbox, Eight, Наиля Синицына и др. | Рекламная фо�
 magnet:?xt=urn:btih:88E795CCFEDC7F89E3D820E2544B2E843C2E5B1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:88E795CCFEDC7F89E3D820E2544B2E843C2E5B1E
 ```bash
 magnet:?xt=urn:btih:A36C16326066FDF289D5F65C634FE8F11A6142D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ Community Traders, Сергей Привалов | Программируем т
 magnet:?xt=urn:btih:B3087F0773A4B3F7F4C4503D9A2EA23AC15F5C4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +566,8 @@ magnet:?xt=urn:btih:B3087F0773A4B3F7F4C4503D9A2EA23AC15F5C4C
 ```bash
 magnet:?xt=urn:btih:16E368867AD662F249775A43BC843740CA3D44A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ Yiihuu, Wingfox, Ji Yu | Creating a AAA Character from Scratch: A Nameless Samur
 magnet:?xt=urn:btih:636234E04A31A6F97AC160C86BB0EC1BFF4BE3BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:636234E04A31A6F97AC160C86BB0EC1BFF4BE3BE
 ```bash
 magnet:?xt=urn:btih:1D3382BBAD6D9204233D74A9DBC7039712B39B7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +648,8 @@ Udemy, Banza Academy | SQL для нетехнических специалис�
 magnet:?xt=urn:btih:4E240DA11D9CC05AEEBF3EB10117D99E8EF3D49E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +677,8 @@ PHP - один из самых популярных языков програм�
 magnet:?xt=urn:btih:6C4AEF99C83A56ACF9EE437CDC44D5861B04EE43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ Study Kvo, Саня Кво | Марафон по UX UI дизайну мобил
 ```bash
 magnet:?xt=urn:btih:0B8B6E5C8CFD6D42470E9A19D814295ACE58BA8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

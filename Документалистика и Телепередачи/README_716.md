@@ -1,3 +1,30 @@
+###  Публикация: 974692   (975672) от 12.01.2016
+
+Паисий Святогорец. Последние дни земной жизни. (2012) DVDRip
+
+>>Документалистика и Телепередачи
+>>Религии и культы (Док/TV)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_975672.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильмах собраны воспоминания и свидетельства современников Старца Паисия Святогорца - его духовных чад, соотечественников, родных, духовенства и мирян. Фильмы снимались в местах земной жизни Старца Паисия - на Святой Горе Афон, в греческом монастыре Стомион (г. Коница), г.Салоники, северо-восточной, северо-западной частях Греции, в Афинах.
+1 фильм посвящен жизни (   Читать дальше...   )Телекомпания: ООО ПЦ "Покров"Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйЯзык субтитров: РусскийПродолжительность: 00:27:14 + 00:27:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E053D5A3ACD527C99CEA4593622326837B816FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974629   (975678) от 12.01.2016
 
 Еврейское счастье (2016.01.11) HDTV [H.264/1080i] (выпуск 5)
@@ -19,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:A6505D1C61FC368B528B81FB01F616E630DE7906
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -47,6 +76,8 @@ magnet:?xt=urn:btih:A6505D1C61FC368B528B81FB01F616E630DE7906
 magnet:?xt=urn:btih:877A172897481E50C98463EEEC39ADF087382FCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +101,8 @@ magnet:?xt=urn:btih:877A172897481E50C98463EEEC39ADF087382FCF
 ```bash
 magnet:?xt=urn:btih:62478051BD9BA98DB7CD1C2E2F10D11952CBF791
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +128,8 @@ magnet:?xt=urn:btih:62478051BD9BA98DB7CD1C2E2F10D11952CBF791
 magnet:?xt=urn:btih:A65BF25FBA4B2D2224247ADBD211C01DFB549057
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +153,8 @@ magnet:?xt=urn:btih:A65BF25FBA4B2D2224247ADBD211C01DFB549057
 ```bash
 magnet:?xt=urn:btih:75652EA108EFB5DB04873F95ECEAD387F227CBFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +180,8 @@ magnet:?xt=urn:btih:75652EA108EFB5DB04873F95ECEAD387F227CBFB
 magnet:?xt=urn:btih:A508DF89A5161406137536D66D5E862E01FCEC16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +205,8 @@ magnet:?xt=urn:btih:A508DF89A5161406137536D66D5E862E01FCEC16
 ```bash
 magnet:?xt=urn:btih:FAD8EE51AD645F5E53BDFD0E6769EEB178658BBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +233,8 @@ magnet:?xt=urn:btih:FAD8EE51AD645F5E53BDFD0E6769EEB178658BBF
 magnet:?xt=urn:btih:2CADA5DA39939DB68CD518274D2718960197296D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +260,8 @@ TimeScapes - это дебютный фильм оператора и режис
 magnet:?xt=urn:btih:D101017A3492FBFC6CF0F017C423B1CDFE4A9AFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +286,8 @@ magnet:?xt=urn:btih:D101017A3492FBFC6CF0F017C423B1CDFE4A9AFA
 magnet:?xt=urn:btih:ED6F11526E60B09CEDB46DB81FD76DC72552D804
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +311,8 @@ magnet:?xt=urn:btih:ED6F11526E60B09CEDB46DB81FD76DC72552D804
 ```bash
 magnet:?xt=urn:btih:32B1596CF8F4F547E3079722E0D26F7C42FD3760
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +339,8 @@ magnet:?xt=urn:btih:32B1596CF8F4F547E3079722E0D26F7C42FD3760
 magnet:?xt=urn:btih:9CFB372D39DC1DD7515740E63681D6DDB2171B8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +366,8 @@ magnet:?xt=urn:btih:9CFB372D39DC1DD7515740E63681D6DDB2171B8E
 magnet:?xt=urn:btih:59E5C793759BC9BF269BF78671ABF64449C96056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +392,8 @@ magnet:?xt=urn:btih:59E5C793759BC9BF269BF78671ABF64449C96056
 magnet:?xt=urn:btih:76C0114FB039999D1A07ECDB94FAECBC5DA83687
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +417,8 @@ magnet:?xt=urn:btih:76C0114FB039999D1A07ECDB94FAECBC5DA83687
 ```bash
 magnet:?xt=urn:btih:8FDC4EBC0EFD4127E0416F44231989AC6BFED99A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +445,8 @@ magnet:?xt=urn:btih:8FDC4EBC0EFD4127E0416F44231989AC6BFED99A
 magnet:?xt=urn:btih:C09885ADD5D480947CC559C863164B3F84290C14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +470,8 @@ magnet:?xt=urn:btih:C09885ADD5D480947CC559C863164B3F84290C14
 ```bash
 magnet:?xt=urn:btih:EA24DEE666D1C3BA47344FFCC66750B159EA242B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +497,8 @@ magnet:?xt=urn:btih:EA24DEE666D1C3BA47344FFCC66750B159EA242B
 magnet:?xt=urn:btih:8C1303FB304A9BAA28B375B97AFE7C0AEBDD3ACA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +522,8 @@ magnet:?xt=urn:btih:8C1303FB304A9BAA28B375B97AFE7C0AEBDD3ACA
 ```bash
 magnet:?xt=urn:btih:4699808C4158DA79844B34BA62C3C61FDDD4DC5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +549,8 @@ magnet:?xt=urn:btih:4699808C4158DA79844B34BA62C3C61FDDD4DC5D
 magnet:?xt=urn:btih:6B58F2E15032D4E24B841916E2ECED926CD55F42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +575,8 @@ magnet:?xt=urn:btih:6B58F2E15032D4E24B841916E2ECED926CD55F42
 magnet:?xt=urn:btih:A4C7A9B51B638CC931D330731BF83773451C1627
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +600,8 @@ magnet:?xt=urn:btih:A4C7A9B51B638CC931D330731BF83773451C1627
 ```bash
 magnet:?xt=urn:btih:CD5BF976BCF16596B56AC115F7AB59C4FCE28E48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +628,8 @@ magnet:?xt=urn:btih:CD5BF976BCF16596B56AC115F7AB59C4FCE28E48
 magnet:?xt=urn:btih:6F97CCB0199AF65EAC216497F05B7FCA3724116C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +653,8 @@ magnet:?xt=urn:btih:6F97CCB0199AF65EAC216497F05B7FCA3724116C
 ```bash
 magnet:?xt=urn:btih:DCDB02828A8CC1531A4F5FF793ED50653B0928D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +680,7 @@ magnet:?xt=urn:btih:DCDB02828A8CC1531A4F5FF793ED50653B0928D5
 magnet:?xt=urn:btih:B3D0ECBEB32D2CF60C1FAE2BBAD7BA85B0F934E7
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356645   (977744) от 31.01.2020
-
-Вулкан / The Volcano (2012) WEB-DLRip [H.264/720p-LQ] (серии 1-2 из 2)
-
->>Документалистика и Телепередачи
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_977744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальная южнокорейская передача «Вулкан» расскажет о потенциально активном вулкане Пэктусан на границе КНДР и Китая, высшую точку Маньчжуро-Корейских гор и всей Маньчжурии. Находясь на границе с Северной Кореей и Китаем, священная гора Пэктусан считается местом великой красоты и символом единства двух Корей. Но геологи опасаются, что это спящее чудовище могло (   Читать дальше...   )Производство: Южная Корея / EBSЖанр: Документальный, научно-познавательныйРежиссер: Lee Yon-gyuПеревод: Двуголосый профессиональныйСубтитры: отсутствуютПродолжительность: 2 x ~ 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3A7C1CD76D880924FFD28840327147129D2E1FA
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

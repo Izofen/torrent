@@ -1,3 +1,29 @@
+###  Публикация: 1494108   (890687) от 06.09.2021
+
+Макс Корбин | Лорд Локслин (Книга 2). Первый урок чародея (2021) [MP3, Константин Загацкий]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_890687.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не успел Дункан Кинкейд оправиться после локальной войны с вампирами, чародеями и шибко шустрым колдуном, как вляпался в расследование о пропаже людей, на деле оказавшееся серией ритуальных убийств. Тело последней жертвы нашли, и это – вампирша. Город снова закипает, старые враги строят новые козни, а один даже призраком с того света вернулся.Жанр: Боевое фэнтези, героическое фэнтезиПродолжительность: 10:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33F75D18A7CBE53AD82375353AE8D79E39E02408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102105   (890894) от 09.02.2017
 
 Б. Липов, С. Ящук | Приземленный Ад, или Вам привет от Сатаны (2017) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:6547F313433BAEA3D21871492830F623BAE553EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:6547F313433BAEA3D21871492830F623BAE553EF
 magnet:?xt=urn:btih:3C51FFC47F2A14E9F9DDE12D9592BE48917A171D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:3C51FFC47F2A14E9F9DDE12D9592BE48917A171D
 ```bash
 magnet:?xt=urn:btih:E782AF88F56180C1D515722542EDDBA120F0A968
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:E782AF88F56180C1D515722542EDDBA120F0A968
 magnet:?xt=urn:btih:ABC7D08B4FF23CC72EF4D8F8EB63073636AD23F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:ABC7D08B4FF23CC72EF4D8F8EB63073636AD23F9
 ```bash
 magnet:?xt=urn:btih:7521BDAF22EF93DA6A2E7134BCC24ECA87B17641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:7521BDAF22EF93DA6A2E7134BCC24ECA87B17641
 magnet:?xt=urn:btih:390C71794A469A7E4DEAC955A47F620E16F01C22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:390C71794A469A7E4DEAC955A47F620E16F01C22
 ```bash
 magnet:?xt=urn:btih:9BA40B8A7347D4C0BB11CA7EA54B381ECF378BDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:9BA40B8A7347D4C0BB11CA7EA54B381ECF378BDD
 magnet:?xt=urn:btih:ED4E4BE52E7D35FC6094D114044BEA14045618B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:ED4E4BE52E7D35FC6094D114044BEA14045618B8
 ```bash
 magnet:?xt=urn:btih:FFA50C13022C86D78D74E61D8C58FC81372B8463
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:FFA50C13022C86D78D74E61D8C58FC81372B8463
 magnet:?xt=urn:btih:4A5689DFDE0F3E12ED9C3375A4D9549B754E8B81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:4A5689DFDE0F3E12ED9C3375A4D9549B754E8B81
 magnet:?xt=urn:btih:E57791B1E8E839BAF762A94305800E28F4F5D917
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:E57791B1E8E839BAF762A94305800E28F4F5D917
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:E57791B1E8E839BAF762A94305800E28F4F5D917
 magnet:?xt=urn:btih:FF0696DA2FD44FC0795F5B497B857DB5B0873797
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:FF0696DA2FD44FC0795F5B497B857DB5B0873797
 ```bash
 magnet:?xt=urn:btih:65E793FF068A5E9E8C83EC13F2AE66E5C8476A3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:65E793FF068A5E9E8C83EC13F2AE66E5C8476A3F
 magnet:?xt=urn:btih:2E5211045233AC84DF8287D841046D244EA46D1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:2E5211045233AC84DF8287D841046D244EA46D1B
 ```bash
 magnet:?xt=urn:btih:C091AFD2CEE5F79565C425CE50E4F7A5AB6C6E0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:C091AFD2CEE5F79565C425CE50E4F7A5AB6C6E0C
 magnet:?xt=urn:btih:27A95C4621C5503D5B2D832CF50DA0230854704D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:27A95C4621C5503D5B2D832CF50DA0230854704D
 ```bash
 magnet:?xt=urn:btih:18B4B29958CA0F7A8E9F868C831CBFF148AABDD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:18B4B29958CA0F7A8E9F868C831CBFF148AABDD7
 magnet:?xt=urn:btih:2ABD0A83787A3B8D391CEF10035897116CFB9727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:2ABD0A83787A3B8D391CEF10035897116CFB9727
 ```bash
 magnet:?xt=urn:btih:B282D02203047E84CD351ADED265BE39160A7665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:B282D02203047E84CD351ADED265BE39160A7665
 magnet:?xt=urn:btih:9F4834FA4FD26C3EB4EB59ED8DE38C4AF7021B53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:9F4834FA4FD26C3EB4EB59ED8DE38C4AF7021B53
 ```bash
 magnet:?xt=urn:btih:6D646A68A209B82C0D01AACDB497861C115B7ABA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:6D646A68A209B82C0D01AACDB497861C115B7ABA
 magnet:?xt=urn:btih:DA81ED863CBC16A07D0581E3B9D434615D20E1C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:DA81ED863CBC16A07D0581E3B9D434615D20E1C1
 ```bash
 magnet:?xt=urn:btih:E8B7244683B2C18448603FA8150D67521D8FBD48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,30 +676,7 @@ magnet:?xt=urn:btih:E8B7244683B2C18448603FA8150D67521D8FBD48
 magnet:?xt=urn:btih:EDA6736C5C9D41746A934260A5E240B5CE03B310
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493604   (893563) от 04.09.2021
-
-Владимир Корн | Теоретик (Книга 3). Реквием по мечте (2021) [MP3, Игорь Ломакин]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_893563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игорь Черниговский не знает, за какие провинности оказался в другом мире, но быстро понимает, что погибнуть здесь можно в один момент – либо от рук бандитов, либо от зубов плотоядного монстра. Прибившись к одной из банд, герой получает кличку Теоретик и осваивает главные правила: лишнего не болтать и никому не верить.
-Всё больше Игоря мучают вопросы, зачем он здесь, (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыПродолжительность: 08:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EFE1378EDBB9E691F181CC7AF985284B0D72107
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

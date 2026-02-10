@@ -19,6 +19,8 @@ Network Security Scanner — это приложение, которое кон�
 magnet:?xt=urn:btih:2B40A52F779656F78C8A2D56AC9B06A9B1550244
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Keysmith позволяет легко создавать собственные
 ```bash
 magnet:?xt=urn:btih:A3A7A417F2BC6AF87925DA5064FB899A376B5FED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Disk Space Saver - это анализатор дискового простра
 magnet:?xt=urn:btih:8E4DA12B76EFC8B6D218067C78B0767FE03106AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Kiosc — это приложение для создания пользоват
 ```bash
 magnet:?xt=urn:btih:F51CF7F9EC54517FD67EFA30338BF78D9EEC6197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Photo Mechanic — фотобраузер и фоторедактор опера
 magnet:?xt=urn:btih:186487A8E7DAA8210442E499057DB6E2ECFD20B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ R-Studio для Mac специально разработана для сред�
 ```bash
 magnet:?xt=urn:btih:3540EB9ECD5C3D16955EE6FA8058FCD275EE5EC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Balsamiq Mockups будет полезна для project managers, designers, d
 magnet:?xt=urn:btih:93AC058E31B8A905C05BFB7E151D28BE6F3AC289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Flyingbee PDF to Word for Mac 8.5.7 [En]
 ```bash
 magnet:?xt=urn:btih:3A61A5ED7C2B6FBFD5B74A83D790A1014AB2BA4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Pixea Plus - это приложение для просмотра изобра�
 magnet:?xt=urn:btih:4436ABAF7138B4BB52A80F11CABD8F524BF3B0B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Trimma — это самый простой способ быстро и без 
 ```bash
 magnet:?xt=urn:btih:DAC51AB3476DDAE01669CCCBDA649C050001464A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Capture One 23 Enterprise — решение для редактирования
 magnet:?xt=urn:btih:8B9CEE6F03C1C95351DBED296E5A07770C5ED9C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ JSON Wizard — идеальный инструмент для вас если �
 ```bash
 magnet:?xt=urn:btih:7469360957AA0265BA461705F901A6FCCC9C4259
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Dropzone - удобная утилита для автоматизация ру�
 ```bash
 magnet:?xt=urn:btih:D16182FD25A958D781DD4E7A0E096370044272F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ Aperture Update 3.4.3 [En]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ SILKYPIX Developer Studio Pro11 для Panasonic предназначен для
 ```bash
 magnet:?xt=urn:btih:DCC65CB11C59FE3F562F05F19DC69E8B9FB8AD49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ Re/compress - это мощная утилита сжатия PDF, котора�
 magnet:?xt=urn:btih:49112A8EC437CB47D8EDD4C00336DCD91BC139CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Input Recorder for Mac 1.7 [En]
 ```bash
 magnet:?xt=urn:btih:8782F0723B288671B25115833D8F3DF7A978AC26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ PhotoFoundry for Mac 1.2.5 [En]
 magnet:?xt=urn:btih:E8DA6C11CD67B66390295C49ACDA888AA6CD8134
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ CryptoEdit - это абсолютно простое, мощное и безо�
 ```bash
 magnet:?xt=urn:btih:FBA02E5116C6BDDE47B708771E516099750A9B0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ SILKYPIX Developer Studio Pro11 для FUJIFILM предназначен для 
 magnet:?xt=urn:btih:3641EF84F64D25183EEBF90D4C1C124C2D0373C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ iCompta - простое, но мощное приложение для упра
 ```bash
 magnet:?xt=urn:btih:D959B9615B1F02C48A4252A6527106CE7CC4D06E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Hazel – это ваш личный уборщик, который органи
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ Garden Planner - удобное приложение для проектиров
 ```bash
 magnet:?xt=urn:btih:92061836757C01C322F887B253D2EA5D7A96B3CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ A Better Finder Rename является лучшим решением для а�
 magnet:?xt=urn:btih:FBD3E06DD2F06327DB54DC1CB98C6811EC0E296B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ AnyMP4 Mac iPhone Transfer Pro — лучшее программное обес�
 magnet:?xt=urn:btih:483EB623B39D422E76A6590012C39452C33B4603
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Baking Soda более проста, чем Vinegar 2.3.9Тип издания: 
 ```bash
 magnet:?xt=urn:btih:4934FFE88629513CC2D3BA1AAAE85C8608F225C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

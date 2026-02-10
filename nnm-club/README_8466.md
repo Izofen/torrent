@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:CFB27B767FCEF3AF551C40D94B4C724EFB0A885E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:CFB27B767FCEF3AF551C40D94B4C724EFB0A885E
 ```bash
 magnet:?xt=urn:btih:4741194DB5B9DC763370D728D117116C641C3EF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ Excellentschool, Ольга Базалева | Интерактивные даш
 magnet:?xt=urn:btih:416DB42F6A06D92A683ECC7B14C97F7C8B6F868F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:416DB42F6A06D92A683ECC7B14C97F7C8B6F868F
 ```bash
 magnet:?xt=urn:btih:51FDE62BC030C47537D2B7DE2640433C18AF7548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:51FDE62BC030C47537D2B7DE2640433C18AF7548
 magnet:?xt=urn:btih:106759FF3BD3A4AA6A91124E0F757958DB89C1C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Gripper - приключенческий экшен, в котором пред�
 ```bash
 magnet:?xt=urn:btih:7250D15CB20D568DA152755E462490653B0B4666
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:7250D15CB20D568DA152755E462490653B0B4666
 magnet:?xt=urn:btih:F3BD0A1CBE7D4E5E964CC62EBF4B841B690E10A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:F3BD0A1CBE7D4E5E964CC62EBF4B841B690E10A2
 ```bash
 magnet:?xt=urn:btih:D361B2237349BC0021CA2792DDF0DD7770B476E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:D361B2237349BC0021CA2792DDF0DD7770B476E2
 magnet:?xt=urn:btih:FAC4ED549F3E5CD01A55A95EC69720CD6360EC03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:FAC4ED549F3E5CD01A55A95EC69720CD6360EC03
 ```bash
 magnet:?xt=urn:btih:37E8529CF4967E75C02D227A935B2794367038CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ ru-ru_windows_11_business_editions_version_22h2_updated_march_2023_x64_dvd_9c751
 magnet:?xt=urn:btih:651C5D4CE8BD7D59DFC982CD1F04D19CF3320983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:651C5D4CE8BD7D59DFC982CD1F04D19CF3320983
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:651C5D4CE8BD7D59DFC982CD1F04D19CF3320983
 magnet:?xt=urn:btih:115FEB30AFC33FD599256326B3E1AA7B37BFC5BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:115FEB30AFC33FD599256326B3E1AA7B37BFC5BC
 magnet:?xt=urn:btih:671A63A5F23A5436E6F952474E7CBBCE56B7C26A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Europa Universalis IV v.1.35.0.4 (2013) [Multi] [macOS Native game]
 ```bash
 magnet:?xt=urn:btih:4722320CC8860A56C74F59A24EFE95B83ABDDB26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:4722320CC8860A56C74F59A24EFE95B83ABDDB26
 magnet:?xt=urn:btih:A9A71ED77AABF9E7DBD6CC850EFEDFCF4B8B65F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Maxime Labonne | Hands-On Graph Neural Networks Using Python (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:AF89E92EF792EDBF0FA9F309258DA116C649E9E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:AF89E92EF792EDBF0FA9F309258DA116C649E9E0
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ BurnAware - простая и в тоже время мощная програм
 ```bash
 magnet:?xt=urn:btih:F9DFB155FA8F59E63717F923A1D38F7F2CA1FDDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ magnet:?xt=urn:btih:F9DFB155FA8F59E63717F923A1D38F7F2CA1FDDD
 magnet:?xt=urn:btih:332371E0FC57AE1238531F71F8221D74507842E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:332371E0FC57AE1238531F71F8221D74507842E9
 magnet:?xt=urn:btih:3A7877633C458404C4CED3117F5B0F321965F43F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:F2B8EF0658E8492D208408762FF0F0891EC36AF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ After the War — седьмой студийный альбом ирландс�
 magnet:?xt=urn:btih:10207FD597019C861CD49A3402DD2CD744343FA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:10207FD597019C861CD49A3402DD2CD744343FA4
 magnet:?xt=urn:btih:FE521850B3EDB05532811539704502E03F40196E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ UltraSpace - это гораздо больше, чем просто ревер�
 magnet:?xt=urn:btih:5AE3EA8098E6A8EBC875F616A84C40EFD5D55AA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:5AE3EA8098E6A8EBC875F616A84C40EFD5D55AA6
 ```bash
 magnet:?xt=urn:btih:AABD15614280403D8110CC45DA3D098E5042A566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

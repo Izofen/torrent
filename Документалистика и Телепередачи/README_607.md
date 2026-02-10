@@ -1,3 +1,29 @@
+###  Публикация: 1113847   (814912) от 24.03.2017
+
+Оружие, которое изменило мир / Triggers: Weapons That Changed the World (2013) HDTVRip (2 сезон: 6 серий из 6)
+
+>>Документалистика и Телепередачи
+>>Военное дело
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_814912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мало что до такой степени повлияло на ход истории, как изобретение и применение огнестрельного оружия. Огневая мощь - ни что лучше не определяет военный потенциал. Документальный сериал прослеживает историю огнестрельного оружия и то, как появление каждого нового вида необратимо изменяло мир. Каждая серия рассказывает об отдельном знаменитом виде оружия, о том, что (   Читать дальше...   )Телекомпания: США, Morningstar EnterteimentЖанр: Документальный, вооружение, историяПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 6 х ~ 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DF73C95A14E97A64D225FE208FFD87ACB14550E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 752069   (814974) от 18.04.2016
 
 Имя нам легион: История хактивизма / We Are Legion: The Story of the Hacktivists (2012) DVDRip
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:B1085AB9FAAB4B5E13CB517DBEBCC8339ECCE1C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:B1085AB9FAAB4B5E13CB517DBEBCC8339ECCE1C4
 ```bash
 magnet:?xt=urn:btih:EE10D82BCB2C7913E5E447257E2C949A13E1B923
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:EE10D82BCB2C7913E5E447257E2C949A13E1B923
 magnet:?xt=urn:btih:3516E52D87DD2D8E976A6135145AD5BFAF17246B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:3516E52D87DD2D8E976A6135145AD5BFAF17246B
 ```bash
 magnet:?xt=urn:btih:97088A81BE6BAF020B46AE1E77B9537B67D1ADA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:97088A81BE6BAF020B46AE1E77B9537B67D1ADA8
 magnet:?xt=urn:btih:9BAC65A14233C347C388D446A2B8375D2680316E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:9BAC65A14233C347C388D446A2B8375D2680316E
 ```bash
 magnet:?xt=urn:btih:13534D0ACF3A80B0ECB78FF7DB47B3047F5327D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:13534D0ACF3A80B0ECB78FF7DB47B3047F5327D9
 magnet:?xt=urn:btih:B942235CE00FF9777DBDF8BC76AB27CB65DE77CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:B942235CE00FF9777DBDF8BC76AB27CB65DE77CB
 ```bash
 magnet:?xt=urn:btih:B6E458C4ED640A1BECD2E26801AC2730CC4F65D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:B6E458C4ED640A1BECD2E26801AC2730CC4F65D8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:B6E458C4ED640A1BECD2E26801AC2730CC4F65D8
 ```bash
 magnet:?xt=urn:btih:100B470387272C825C7A4DD3B3145E13AEF66402
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:100B470387272C825C7A4DD3B3145E13AEF66402
 magnet:?xt=urn:btih:BD0BF9F7EAE5E9811E4C84C06230B505DFB0AD65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:BD0BF9F7EAE5E9811E4C84C06230B505DFB0AD65
 ```bash
 magnet:?xt=urn:btih:C08B2C8025C18A42784F2531ADF40EB741D032CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:C08B2C8025C18A42784F2531ADF40EB741D032CF
 magnet:?xt=urn:btih:D4F6ED6167638FF363F4F2A63990637A6FFB4453
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ Gwen Stefani's: Ты создаешь дух Рождества / Gwen Stefani's
 ```bash
 magnet:?xt=urn:btih:EE499E8BB1B60BB227680C79C6077E2DB5F20A75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:EE499E8BB1B60BB227680C79C6077E2DB5F20A75
 magnet:?xt=urn:btih:032ACB81409BF4A65B6DD60AF91740C698B52B2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:032ACB81409BF4A65B6DD60AF91740C698B52B2D
 magnet:?xt=urn:btih:64A90D784CB2540D849FA57028B8B368BBA1AE31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:64A90D784CB2540D849FA57028B8B368BBA1AE31
 ```bash
 magnet:?xt=urn:btih:DF1F1D679CB16BDD93AEB9110626C63A0F3CF7B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:DF1F1D679CB16BDD93AEB9110626C63A0F3CF7B0
 magnet:?xt=urn:btih:7FB483DC4C580B3633CDB841783FF27AFA1D3F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +516,8 @@ magnet:?xt=urn:btih:7FB483DC4C580B3633CDB841783FF27AFA1D3F15
 ```bash
 magnet:?xt=urn:btih:FB637C69D2221CCCE1E122D30D8E8BDE97EF8557
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:FB637C69D2221CCCE1E122D30D8E8BDE97EF8557
 magnet:?xt=urn:btih:5319C25EEBB6E0F0B4555780165562D8E82FA1F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:5319C25EEBB6E0F0B4555780165562D8E82FA1F2
 ```bash
 magnet:?xt=urn:btih:51C01D59A726A0390A870F15B8CB35DBB7A951C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:51C01D59A726A0390A870F15B8CB35DBB7A951C1
 magnet:?xt=urn:btih:45D53C010C54E144F01EFD3269A902D907DB0F3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +620,8 @@ magnet:?xt=urn:btih:45D53C010C54E144F01EFD3269A902D907DB0F3F
 ```bash
 magnet:?xt=urn:btih:0857551C7A1620703A3C9753CAD2FE2462BA1C7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +647,8 @@ magnet:?xt=urn:btih:0857551C7A1620703A3C9753CAD2FE2462BA1C7A
 ```bash
 magnet:?xt=urn:btih:F80A1652CEA7A551F643787C9EDBCA25CE2EF9B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:F80A1652CEA7A551F643787C9EDBCA25CE2EF9B9
 magnet:?xt=urn:btih:6C08461276ACE45758E46185C066B21425F2AD73
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192679   (816990) от 06.01.2018
-
-Космические ЧП / Secret Space Escapes (2015) HDTVRip (1 сезон: 8 серий из 8)
-
->>Документалистика и Телепередачи
->>Космос
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_816990.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал расскажет о самых сложных, непредвиденных и опасных ситуациях, происходивших в космосе с людьми и космическими аппаратами. Вы уведите самые невероятные, опасные и ранее никогда не демонстрировавшиеся аварийные ситуации и опасные происшествия с космонавтами за всю историю космических путешествий. Каждая серия длиной в час с помощью компьютерной графики и документальных (   Читать дальше...   )Телекомпания: СШАЖанр: Документальный, космос, катастрофы, историяПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 8 х ~ 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C10B155EE783B0F4F5E6B005DFA806E5C1B8864
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

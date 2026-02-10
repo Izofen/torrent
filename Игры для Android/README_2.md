@@ -20,6 +20,8 @@ Monolith v1.1.12.065 [En]
 magnet:?xt=urn:btih:78B5C89FC86DCFD1DC0B0C3B5E2D22A75F42081B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Reviver: Premium v1.0.2 [En]
 magnet:?xt=urn:btih:9D66829F65E1369DEE1E12DEFFC8FDBFFA3B50CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Pro Pool 2025 v1.60 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:797202F5CF1F7B825441FDFAF1061E9D17971431
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ GRID™ Autosport v1.10RC10 [Ru]
 ```bash
 magnet:?xt=urn:btih:88750228AF64869CA8ECCB2B31953719348C016D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Icewind Dale Enhanced Edition v2.6.6.12 [Ru]
 magnet:?xt=urn:btih:E357CE3A11F8A488903981A7F0A1F0E179C97CD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ DRAGON QUEST BUILDERS v1.1.1 [En]
 ```bash
 magnet:?xt=urn:btih:446DAEBB2EB07923BA10E63766FDE1603D90C485
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Ugly — мрачный сказочный платформер, в которо
 magnet:?xt=urn:btih:F43787B2D0C8FD37704989AF9D26FC11FD64E773
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ Niffelheim v1.6.15 [Ru]
 magnet:?xt=urn:btih:A5E9B61512B06EF36DE54C5907EC03DD058CB6DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Slaughter: The Lost Outpost v1.42 [Ru]
 ```bash
 magnet:?xt=urn:btih:D5D2D899F018C1DA8C32DB790E23565D007D9511
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +262,8 @@ Alias v1.5.9 Mod by Dymonyxx [Ru/Multi]
 magnet:?xt=urn:btih:5E23A70CC8F3972409EE5B324CE618A40507A70C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ Young Detective: The Mutation v1.2.22 [En]
 ```bash
 magnet:?xt=urn:btih:FD7C5D6636B15A12B02BB32ED9139ADB5C8FEF7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ Unforeseen Incidents - это интерактивная детективная 
 magnet:?xt=urn:btih:B24C9FE356E26E4B8ACC44ECA21964982D7E351A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ DYSMANTLE v1.4.0.03 [Ru]
 ```bash
 magnet:?xt=urn:btih:69260143F0DF5C0D3212CB5E4A0FAC975F1F2689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ Not Another Weekend v1.12 [En]
 magnet:?xt=urn:btih:B81B6C6A31077C8DF5E3455173AA420C5CEA09D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ Universe for Sale — приключение в густых облаках Юп
 magnet:?xt=urn:btih:03DFC1D31EC08D7134DB5F0418478FD05055D8F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ The Grinch 1.0.0 [En]
 ```bash
 magnet:?xt=urn:btih:65153C019EAE22EE4AFE887D51DFFD2B13E8AE53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ Castlevania: SotN v1.0.4 [En]
 magnet:?xt=urn:btih:AC5189506378C29E8A822B4F9438716A9552D23A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +476,8 @@ Homo Machina - это игра-головоломка, вдохновленна�
 magnet:?xt=urn:btih:614C12F63733BE7470DCE660181AA65374675E33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ Last Day on Earth: Survival v1.31.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:0A43D035880EE421763A346AC98CDF43D26816CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ Woolly Boy and the Circus 1.0.0 [En]
 magnet:?xt=urn:btih:CCAE7CFF43257EFDE072C579619BAB36BFC1A130
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ ARK: Ultimate Mobile Edition включает оригинальную карт�
 magnet:?xt=urn:btih:6C45AB375B2262759673CAA95851D11CF48ED0E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +583,8 @@ A Kindling Forest v1.3 [En]
 ```bash
 magnet:?xt=urn:btih:03B7CDBB4289E35036ADBB593E732315C4DEF7FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ Bendy and the Ink Machine™ — игра-головоломка-экшн в ж�
 magnet:?xt=urn:btih:4DC9691C27AB9E44157F890FB019353F9C613F3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ Jigsawscapes® - Пазлы v3.6.7 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7F218303C13023547BE825AC84C456D82A48CF2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ DREDGE v1.5.4 [Ru]
 magnet:?xt=urn:btih:4552412D99A45192468FFA7C1BC167D4B08E03D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ Exploding Kittens® 2 v0.0.19 [En]
 ```bash
 magnet:?xt=urn:btih:4162756F075882E5160A9E9FA5DD91001573CAF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

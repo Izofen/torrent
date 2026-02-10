@@ -19,6 +19,8 @@ NGW: Глубоководные киты / Whales of the deep (2017) HDTV [H.264
 magnet:?xt=urn:btih:BA6F78BD3116A608E72E6088356D176CD5235890
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NGW: Дикая природа Аргентины. Убийственное по
 ```bash
 magnet:?xt=urn:btih:A1527D5BACFDB617AFF7CEB67BDC16693D3EACB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NGW: Морские котики: битва за выживание / Fur Seals
 magnet:?xt=urn:btih:17B781C26C90CA2A45E4F4089EC1B9543061B684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ NGW: Человек и природа / Man and the Wild (2014) HDTV [H.264/1080
 magnet:?xt=urn:btih:17C8CBE4855E15B1C4DFAF409B479837CDBCB33B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ NGW: Прирождённые монстры. Змееголовая рыба / 
 ```bash
 magnet:?xt=urn:btih:630571952E5C6B9CA7801FDF90A252F6495399EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ NG: Подъем Атлантиды (Открытая Атлантида) / Atla
 magnet:?xt=urn:btih:C8D27CBE310CFFB4D6D207B2A7605C4898439EA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ NGW: Бесплодные земли / Badlands hard rock - tough lives (2017) H
 ```bash
 magnet:?xt=urn:btih:BA24ECC0149FE1D9A97507AC2624579A626C502A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ NGW: Год диких животных. Сибирь / Siberia's wild year (201
 magnet:?xt=urn:btih:4C8B2444614BE3777368A6DED975FA9E64398F82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ NGW: Джейн Гудолл. Спасение рая / Jane Goodall: Saving Par
 ```bash
 magnet:?xt=urn:btih:E5EEFA8BC09438B0C56B8FE691154B1C6A35C815
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ NGW: Воины новой волны / New Wave Warriors (2017) HDTV [H.264/108
 magnet:?xt=urn:btih:BE5792F9E40C11D25A69CB00480468C5797434AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ NGW: Море надежды. Подводные сокровища Америк
 ```bash
 magnet:?xt=urn:btih:C29D53D68F7914B8D1375D9E01902F082D32B5BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ NGW: Уцелевшая природа Европы / Europe's last wilderness (
 magnet:?xt=urn:btih:1AD6837309FD52BF48C7444F3AF3AB0E40F6F1E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ NGW: Самые опасные животные Америки / America's deadl
 ```bash
 magnet:?xt=urn:btih:77EF0484A28EF1E2200072AFA4C083E5C96D41B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ NGW: Путешествие короля джунглей / The jungle king (201
 magnet:?xt=urn:btih:EA925852BCD12A6210DF5B0810B267E127BFC3BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ NGW: Животные года / Animals of the year (2017) HDTV [H.264/1080i-LQ
 ```bash
 magnet:?xt=urn:btih:63F449D1B1ADAA6E583E5CBB46D88B6C65C4AF8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ NG: Разгадка тайн Мачу-Пикчу / Machu Picchu Decoded (Ghosts
 magnet:?xt=urn:btih:C8A459BA040C5F7BB761AE567903369575CDF731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ NGW: Хищники Африки / Africa's Deadliest (2011-2016) HDTV [H.264/10
 ```bash
 magnet:?xt=urn:btih:6014E446AE6818F2CEC0FB1796D192D3DADDB244
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ NGW: Животные без правил / Animals Gone Wild (2015) HDTVRip [H.
 magnet:?xt=urn:btih:7B9F24A4138BFEB21DED591670B67BD1A994D33D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ NGW: Орлы / The Eagles (2014) HDTV [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:CE0396D461571D38A3A5E518BBA226190F111189
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ NGW: Амазонская электрическая рыба / Amazon's electri
 magnet:?xt=urn:btih:F28A51DF6AAA7951691881BACDE3FFECF84521C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ NGW: Морские котики-убийцы / Killer seals (2017) HDTV [H.264/
 ```bash
 magnet:?xt=urn:btih:9D714707F425BFBBC482F82C0FBD0588E5C78C83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ NGW: Короли убийства / Kings of the Kill (2017) HDTV [H.264/1080i-
 magnet:?xt=urn:btih:94D8D6C083115AC6596E317BCEFCCFFA6683A9FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ NGW: Животные 24 часа / Animal 24 (2017) HDTV [H.264/1080i-LQ]
 ```bash
 magnet:?xt=urn:btih:C433AA2404169C7C418878C3283AEE2000722AE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ NG: Живая Земля / X-Ray Earth (Faszination Erde) (2011) BDRip [H.264/7
 magnet:?xt=urn:btih:886421B781325D7C1E2005DB1C58E5ABB35D565D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +643,8 @@ NG. Осушить океан: глубокое погружение. Сокро
 ```bash
 magnet:?xt=urn:btih:BF90AD84791B9F3AA58B686D8B332A714000B6C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +670,8 @@ NGW: Дикая природа Филиппин / Untamed Philippines (2018) DVB
 ```bash
 magnet:?xt=urn:btih:63C475ABCC2580D8C3FBC51DB13C46EB0616FD0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

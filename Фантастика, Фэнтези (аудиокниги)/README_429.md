@@ -1,3 +1,29 @@
+###  Публикация: 1219065   (715058) от 13.04.2018
+
+Андрей Белянин | Мой учитель Лис (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_715058.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1812 году над землёй пролетала комета. Кто знает почему, но после этого на планете стали рождаться разумные звери. И вот в Лондоне конца девятнадцатого века мальчик встречает Лиса. Благородный джентльмен с рыжим хвостом, французского происхождения, отлично владеет кулаками и шпагой, являясь внештатным консультантом Скотленд-Ярда. Кто же он, месье Ренар? Сыщик, (   Читать дальше...   )Жанр: Детективное фэнтезиПродолжительность: 09:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:941A1BD92ECD300CE31A7D019A61C483A83EF916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219094   (715069) от 13.04.2018
 
 Анджей Сапковский | Крещение огнем (2018) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:35523359E1DD05DD8717A20E340E9836F5B605CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:35523359E1DD05DD8717A20E340E9836F5B605CD
 ```bash
 magnet:?xt=urn:btih:FD13A7380F4686494F06946819B88C789364F516
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:FD13A7380F4686494F06946819B88C789364F516
 magnet:?xt=urn:btih:2B90FA35D92DBA5B975CF6F7EFA5A92F74751B3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:2B90FA35D92DBA5B975CF6F7EFA5A92F74751B3F
 ```bash
 magnet:?xt=urn:btih:680709500B0BF0086290868E2C6FB8B47397A875
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:680709500B0BF0086290868E2C6FB8B47397A875
 magnet:?xt=urn:btih:44F9209574C85E1D4A685E7D928D805C31B19BA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:44F9209574C85E1D4A685E7D928D805C31B19BA1
 ```bash
 magnet:?xt=urn:btih:AE1170E67E7597E51B5BFB2EEE27FD9DB97B25F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:AE1170E67E7597E51B5BFB2EEE27FD9DB97B25F0
 magnet:?xt=urn:btih:D0DED85D774BD8EABE0AFEA1EEDFFF9C09BC8EAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:D0DED85D774BD8EABE0AFEA1EEDFFF9C09BC8EAD
 ```bash
 magnet:?xt=urn:btih:95798EFC00FC08F0051BECA443732656F34D51A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:95798EFC00FC08F0051BECA443732656F34D51A4
 magnet:?xt=urn:btih:0D35EE95B15943395A5B59FEB1C27DA053226785
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:0D35EE95B15943395A5B59FEB1C27DA053226785
 ```bash
 magnet:?xt=urn:btih:3840D570C9FEC8595B33BB310C40BFA0912B2694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:3840D570C9FEC8595B33BB310C40BFA0912B2694
 magnet:?xt=urn:btih:96D6E4A69C8397A082C79BC02E7ADB0D42506BD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:96D6E4A69C8397A082C79BC02E7ADB0D42506BD4
 ```bash
 magnet:?xt=urn:btih:9B5168E104A92734546F133ADB664C542D916C2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:9B5168E104A92734546F133ADB664C542D916C2A
 ```bash
 magnet:?xt=urn:btih:BC7E4F7B8DA478291DBA8D40B3536E287F5A8716
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:BC7E4F7B8DA478291DBA8D40B3536E287F5A8716
 magnet:?xt=urn:btih:805204B95ED8E1FCF9295D6BD41231E8D4992353
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:805204B95ED8E1FCF9295D6BD41231E8D4992353
 magnet:?xt=urn:btih:7CC355340680EF8B77A8C9BE3FA54A3099FD415D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:7CC355340680EF8B77A8C9BE3FA54A3099FD415D
 ```bash
 magnet:?xt=urn:btih:A4610D67A216E62367691F2EADA29BCF669CB81D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:A4610D67A216E62367691F2EADA29BCF669CB81D
 magnet:?xt=urn:btih:9C7CFBDC766DFBE907804232936EF0F27EC5AF84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:9C7CFBDC766DFBE907804232936EF0F27EC5AF84
 ```bash
 magnet:?xt=urn:btih:87B7E539DDA41C169C3CF862C24A86C03179DF41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:87B7E539DDA41C169C3CF862C24A86C03179DF41
 magnet:?xt=urn:btih:F3D74773E31CA17F5057C5F232BD93B6BF6EA198
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:F3D74773E31CA17F5057C5F232BD93B6BF6EA198
 magnet:?xt=urn:btih:AAC825C449506865213BA850DFE554B2F380CC1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:AAC825C449506865213BA850DFE554B2F380CC1F
 ```bash
 magnet:?xt=urn:btih:9D60CB5203321C9B898AEA4A62AA1B8A1BEC7F2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:9D60CB5203321C9B898AEA4A62AA1B8A1BEC7F2F
 magnet:?xt=urn:btih:46E60D3B66C57A1C921832C2A9266243B807B6A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:46E60D3B66C57A1C921832C2A9266243B807B6A4
 magnet:?xt=urn:btih:E5B52A2FB18C60D89B6D2742A61493CDDBA365B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:E5B52A2FB18C60D89B6D2742A61493CDDBA365B3
 ```bash
 magnet:?xt=urn:btih:631CBD778BA5A85400A70A011079E6C08D58EB23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:631CBD778BA5A85400A70A011079E6C08D58EB23
 magnet:?xt=urn:btih:D3028A0615C57194DBB5360E9F408B26BA1D79B0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024287   (717765) от 08.06.2016
-
-Уоррен Фейхи | Храм демонов (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_717765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hовый роман от автора бестселлера «Фрагмент»! После одного из самых потрясающих открытий в истории человечества – обнаружения уникального разумного вида, обитающего на острове Хендерс, – биологи Нелл и Джеффри Бинсвэнгер получают загадочное и головокружительно щедрое предложение одного российского олигарха посетить и исследовать уникальную искусственную экосистему, (   Читать дальше...   )Жанр: Фантастика. Фэнтези. МистикаПродолжительность: 11:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C563991E0EA4F3FD062E17EEAAC245C90D2D8B5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

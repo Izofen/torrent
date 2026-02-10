@@ -21,6 +21,8 @@ Calculate Linux 15.17 [i686] 1xCD, 6xDVD
 magnet:?xt=urn:btih:BC15E8E28A475D33245A6BBC23359A0ED864E6BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Debian GNU/kFreeBSD 7.0.0 [i386, amd64] (2xDVD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ Debian Edu, также известный как Skolelinux, является д
 ```bash
 magnet:?xt=urn:btih:58D55310A8FBE6D29A20956011A651DAA262DB0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ Proxmox Virtual Environment (Proxmox VE) — система виртуализа
 magnet:?xt=urn:btih:5078C0728CA8FA409E328E9B9D9E0B24FE2D5092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ JonDo 0.9.77 [анонимный доступ в сети] [x86] DVD
 ```bash
 magnet:?xt=urn:btih:52EF6BA7AA6169FFA39DA0CC95A3807C9835B7DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ Antergos (ex. Cinnarch) 2013.05.12 (легкий дистрибутив) [i686 +
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ OPNSense 17.1.4-OpenSSL [i386, amd64] 2xCD, 6xIMG
 magnet:?xt=urn:btih:289FFEDEACCB909DFF32D1776AEB219AA4219D7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ MX-19.2 Linux (XFCE) [x86-64, i386] 2xDVD
 magnet:?xt=urn:btih:EB287244BFDE751BBD64C99A171567E52276B822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ pfSense - компактный дистрибутив для создания м
 ```bash
 magnet:?xt=urn:btih:CD7EBC1FDD9236F09EA2BA94D052C9D0BDF068D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ OpenMediaVault в первую очередь предназначен для и
 magnet:?xt=urn:btih:9D9B4520BBBD44BEA7F7EC0633547FD6E155D239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ OPNSense 20.1-OpenSSL [i386, amd64] 2xCD, 6xIMGxCD
 ```bash
 magnet:?xt=urn:btih:A3A314CEE7A5E73E3723B3D7F4C8C71855E835C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ SystemRescueCd — это спасательной диск в системе Li
 magnet:?xt=urn:btih:BA538C504CDD00DDC35AE23D354D89A9334CB10E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ Debian GNU/Linux 9.7.0 + nonfree Stretch [amd64] 4xDVD
 ```bash
 magnet:?xt=urn:btih:638F9F4855209895697CF6B54BF88215F205C532
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ Debian GNU/Linux 9.7.0 + nonfree Stretch [i386] 4xDVD
 magnet:?xt=urn:btih:E9F37CB1F74CCE4AC8A5CEFDA58B48FB6630A92F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ Parrot Security OS предназначен для пентестинга (те�
 ```bash
 magnet:?xt=urn:btih:34B705ABB32626045F516C9497C999E2E23BC05E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ JonDo 0.9.76.2 [анонимный доступ в сети] [x86] DVD
 magnet:?xt=urn:btih:94FF5200A2734470F5909BB8A3DC8F7AA7E1A8AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ OpenBSD — свободная многоплатформенная операц
 ```bash
 magnet:?xt=urn:btih:83185FA9C2CE313343734427EF8EC966DAA07687
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ BackBox Linux 3.05 [Анализ безопасности, хакинг] [i386, 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ Razor-qt легковесное десктоп-окружение, постро�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ NAS4Free основана на ОС FreeBSD, поддерживает обмен
 magnet:?xt=urn:btih:1B6FDF2CB8206998E3DBBAA77B5A612F1E5601F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ BlackArch - «легковесный», простой и гибкий дист�
 magnet:?xt=urn:btih:279F3FB454B0D10102B6D1497EF1F0DECC577F98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ CentOS 8.2 (2004) [amd64] 2xDVD, 1xCD
 ```bash
 magnet:?xt=urn:btih:343F8F1A7BF2F327E377A016EE478BC72E49DA25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -570,6 +614,8 @@ Parrot Security OS предназначен для пентестинга (те�
 magnet:?xt=urn:btih:49FF4F5B2053C85D0422FD9B2D874D432060DC25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ Phoenix OS - проект по портированию ОС Android на пер
 ```bash
 magnet:?xt=urn:btih:830C5AF293B1315832BDA7C6D876FA4ECBD397F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ BackBox Linux 7 [Аудит безопасности, хакинг] 1xDVD [amd64
 magnet:?xt=urn:btih:240B2F1DE80E3478CA01DEB18DBA7721AE4C5030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ Kali Linux 2021.3 (ex. BackTrack) [amd64, i386, arm] 6xDVD, 3xCD Аудит бе
 ```bash
 magnet:?xt=urn:btih:5D9A9978B62D5E9A1C943F52021C5539EE2FC7B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

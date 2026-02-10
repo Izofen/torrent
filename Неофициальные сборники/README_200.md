@@ -22,6 +22,8 @@ VA - Громкие новинки месяца Vol.15 (2018) [MP3|320 Kbps] <Po
 magnet:?xt=urn:btih:C4680BB130E4589EA56FA88FFB37B3D92EFECA88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ VA - Maxweb Dance (2016) [MP3|320 Kbps] <Dance, Break Dance>
 magnet:?xt=urn:btih:0FFA695557174E9105D77CBB2DAEEA697B89C021
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +79,8 @@ VA - Dance Generation: Soulfull Party (2019) [MP3|320 Kbps] <Eurodance, Club, Po
 ```bash
 magnet:?xt=urn:btih:3977A7EFC62F1D5C4780320915184791BA7246D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +115,8 @@ VA - DubStep Pro V.5 (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:2A99619A95B85C3C5AF4A6DE27CFC9C11EA2D8EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +150,8 @@ VA - DubStep Pro V.6 (2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:069822792E9043CBE99FDF356499768206B60134
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +178,8 @@ VA - Мега хитовая осень на Europa Plus - 9 (2016) [MP3|256 Kbp
 ```bash
 magnet:?xt=urn:btih:CB9B4000CDFE26387B863F404BEB7026BCE339E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +208,8 @@ VA - Горячие Осенние Новинки 50х50 (2016) [MP3|256 Kbps] <
 magnet:?xt=urn:btih:01C57D7035B6DB3648724A220E5F4FE252049F4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +236,8 @@ VA - Горячие осенние новинки. Русская версия (
 ```bash
 magnet:?xt=urn:btih:0512F1E0B5901D35B80732C6B31C13D875835F24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -256,6 +272,8 @@ Dj Parafich [Based on the LAOS project] - Vocal Drum And Base Romantica (2012) [
 magnet:?xt=urn:btih:C285F178829A1C46589623B3CFCA9201FEC39A1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +300,8 @@ The Beatles - Sgt. Pepper's Lonely Hearts Club Band De-Noised From Demos & Takes
 ```bash
 magnet:?xt=urn:btih:DD6F38AB718A430BCB645B8A9ED71E7686E5FD31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +330,8 @@ VA - Empire Records - Jazzy Woman 2 (2018) [MP3|320 Kbps] <Vocal Jazz>
 magnet:?xt=urn:btih:3E0794A064130CB5F3CCE4037276FA2184C5FA49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +359,8 @@ VA - Осенняя позитивная сотка. Выпуск 9 (2016) [MP3|
 magnet:?xt=urn:btih:FE80720ACBB3B2873E1A7D439BA11CC1E3C22764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +387,8 @@ VA - Radio DFM Top 30 D-Chart 26.10.2018 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:A55E765776992FEB14C71E7F0B5D4F665FA0D501
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +423,8 @@ VA - Клубные Новинки Vol.185 (2012) [MP3|320 кб/с]<Club, Dance>
 magnet:?xt=urn:btih:52FDF8C3C12AFA851C6605C91B36FF2C1B2E3FBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +451,8 @@ VA - The Rains Of Memphis (2019) [MP3|320 Kbps] <Blues, Rock Blues>
 ```bash
 magnet:?xt=urn:btih:2C7CF9F8F49DE5AEE0114ADA1F0F7A2FD1809545
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +481,8 @@ VA - Record Super Chart 559 (2018) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:8BCECB356DFED34EBFF6B29666547A200CC33C02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +509,8 @@ VA - Intermission: Chill House Music (2019) [MP3|320 Kbps] <Chill House, Deep Ho
 ```bash
 magnet:?xt=urn:btih:270D0BE58F20DE47DE223E4B7957031E4426D38E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +539,8 @@ VA - Autumn Electro Dance Session (2019) [MP3|320 Kbps] <Dance, Electro, Dance H
 magnet:?xt=urn:btih:7EAF164141F8130DFB9072DC96B87731090CFA1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +568,8 @@ VA - Bass Line Beastmode (2019) [MP3|320 Kbps] <DnB, Dubstep, Jungle>
 magnet:?xt=urn:btih:77309FCC3DD2B06F3916D8535BA94080DB035E54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +596,8 @@ VA - Jungle Sound Party (2019) [MP3|320 Kbps] <Jungle, Bass, DnB>
 ```bash
 magnet:?xt=urn:btih:961ED1F31AE38D99DA7232E2136BB20BCC14966B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +632,8 @@ VA - In Da Club Vol.67 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting 
 magnet:?xt=urn:btih:A3A479EB3B269B08F91AE97DA6F870172DC7CB97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +661,8 @@ VA - Rise In The Sky (2020) [MP3|320 Kbps] <New Age, Ambient, Relax Instrumental
 magnet:?xt=urn:btih:512EE3ABDCF8F9FFCF39781EC5840E3C462FFDE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +686,8 @@ VA - A Blues Christmas (2015) [MP3|320 кб/с]<Blues>
 ```bash
 magnet:?xt=urn:btih:2B993618D3D8FFD6133CEDD265F022C0F8816139
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +716,8 @@ VA - Clubsolute 2016.01 (2015) [MP3|320 кб/с]<House, Dance>
 magnet:?xt=urn:btih:0099ECD8124C6C9D0C6D8E8F261FB3CEE6F011BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +745,8 @@ VA - Music News vol.43 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:15866E5D8215B2256957AD637AB18532F5CA0DFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -723,6 +773,8 @@ VA - Русская Дискотека ХХ Века от Ovvod7 - 001 (2017) [M
 ```bash
 magnet:?xt=urn:btih:6484F3F4B3925F2471D9E531D3874A2B074E3096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

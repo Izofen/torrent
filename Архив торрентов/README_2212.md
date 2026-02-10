@@ -1,29 +1,3 @@
-###  Публикация: 959085   (318869) от 23.11.2015
-
-Mozilla Firefox ESR 38.4.0 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_318869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox - очень интересный продукт, который принадлежит компании Mozilla – свободно распространяемый, мощный во всех отношениях веб-браузер.
-Даная программа имеет большое количество преимуществ перед остальными браузерами, в ее создании участвует огромное сообщество разработчиков.
-Firefox отличается стабильностью и безопасностью в работе в сочетании с высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F627D19398A7BBAD703D51BE75C06A11393842C7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 844512   (318882) от 25.11.2014
 
 Подшивка журналов | Атлас. Целый мир в твоих руках №228-249 (2014) [PDF]
@@ -44,6 +18,8 @@ magnet:?xt=urn:btih:F627D19398A7BBAD703D51BE75C06A11393842C7
 ```bash
 magnet:?xt=urn:btih:00C91430FD0D7751B8DEEC000065BACB11629990
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +44,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:C474BCE374B95E0AAF24D72D5C265BBFD297A4F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +74,8 @@ magnet:?xt=urn:btih:C474BCE374B95E0AAF24D72D5C265BBFD297A4F5
 magnet:?xt=urn:btih:1FF0979579EB1F456BB3333A2346C9A489AADD8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +100,8 @@ TG Pro — контроль температуры и вентиляторов �
 ```bash
 magnet:?xt=urn:btih:71ECED1A596954D429092582C6EB779F2284C5DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +130,8 @@ magnet:?xt=urn:btih:71ECED1A596954D429092582C6EB779F2284C5DB
 magnet:?xt=urn:btih:3455EA9F0CCA38A6B12DA6D98DA67255695CAD80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +157,8 @@ Future Bound - The Ephemeris (1997) Timeless Recordings [FLAC|Lossless|Vinyl|tra
 magnet:?xt=urn:btih:51425A5F8EACDD05F6DAE8A6238CDF4718FFF48A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +183,8 @@ WinTools.net – набор инструментов для оптимизаци
 ```bash
 magnet:?xt=urn:btih:F17C81871E8C06A39C23C509DB52CA7E96568108
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +213,8 @@ magnet:?xt=urn:btih:F17C81871E8C06A39C23C509DB52CA7E96568108
 magnet:?xt=urn:btih:66A34A99D9529455358CA91C0FD5A49DDFF7D8F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +242,8 @@ magnet:?xt=urn:btih:66A34A99D9529455358CA91C0FD5A49DDFF7D8F9
 magnet:?xt=urn:btih:F573BC30583690A4C1303842C2DBCCCA26D7A188
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +267,8 @@ Aurora HDR Pro, идеально подходит для фотографов в
 ```bash
 magnet:?xt=urn:btih:ECC0A66A19D3F2F8FC107FD400DB64762E16635E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -300,6 +294,8 @@ magnet:?xt=urn:btih:ECC0A66A19D3F2F8FC107FD400DB64762E16635E
 magnet:?xt=urn:btih:73C8B2AEFAD95C4EE28DD33C6765288DC672DE7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +319,8 @@ Soft Organizer 5.02 DC 23.11.15 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C9DD16E0DEE692591B2D163466BCBDB305B6CAF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +346,8 @@ magnet:?xt=urn:btih:C9DD16E0DEE692591B2D163466BCBDB305B6CAF0
 magnet:?xt=urn:btih:EFDE437BFBC1B71893840A15757B1D6FEA584F6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +371,8 @@ AdwCleaner - программа, которая ищет и удаляет ре�
 ```bash
 magnet:?xt=urn:btih:D278F26A68504139902D075DA44BD4BF8AE3B187
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -396,6 +398,8 @@ Glary Utilities - функциональный набор системных т�
 magnet:?xt=urn:btih:7CC987337E94F269E307F42B077BEF5F6D8650E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +423,8 @@ magnet:?xt=urn:btih:7CC987337E94F269E307F42B077BEF5F6D8650E4
 ```bash
 magnet:?xt=urn:btih:2E7195B8407D672AC5E532F44ADF9B59CA339864
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +450,8 @@ magnet:?xt=urn:btih:2E7195B8407D672AC5E532F44ADF9B59CA339864
 ```bash
 magnet:?xt=urn:btih:D3AF88204AFC82289D9F1B4D0EAB85CDBA00FFDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +480,8 @@ magnet:?xt=urn:btih:D3AF88204AFC82289D9F1B4D0EAB85CDBA00FFDF
 magnet:?xt=urn:btih:F5049CD8B530E3F2729B7FDCE18C0A2646AA953B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +509,8 @@ Harry Belafonte - Banana Boat and Other Famous Folk Songs (1987) [FLAC|Lossless|
 magnet:?xt=urn:btih:3C97527D65608C51330FCD74444343139BB4B52E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +534,8 @@ magnet:?xt=urn:btih:3C97527D65608C51330FCD74444343139BB4B52E
 ```bash
 magnet:?xt=urn:btih:C493CBCE8F46432A24948C70E12988EA467788F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +564,8 @@ SmartAlbums является революционным программным �
 magnet:?xt=urn:btih:86C4665A3395081884CA8C0F1011ED07BB2CA04F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +589,8 @@ Coolutils Total PDF Converter — данный программный проду
 ```bash
 magnet:?xt=urn:btih:CC0BB1E242F2F20D0CC9CE68276706E504DFD603
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +616,8 @@ magnet:?xt=urn:btih:CC0BB1E242F2F20D0CC9CE68276706E504DFD603
 magnet:?xt=urn:btih:AC00030D4EAA684E693BB45A4C76BE039DE2FDD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +642,8 @@ magnet:?xt=urn:btih:AC00030D4EAA684E693BB45A4C76BE039DE2FDD0
 ```bash
 magnet:?xt=urn:btih:4D31FBCEB74CB3833AC7F4854E4AB9ED2E52A6F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +671,37 @@ magnet:?xt=urn:btih:4D31FBCEB74CB3833AC7F4854E4AB9ED2E52A6F2
 ```bash
 magnet:?xt=urn:btih:F7C9FC2C0AD659DCC0A484E3160065190F4C1F53
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259757   (319164) от 04.11.2018
+
+Hypnoskull - The Manichaean Consciousness (2018) Ant-Zen [FLAC|Lossless|WEB-DL|tracks] <Industrial, Rhythmic Noise>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_319164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Manichaean Consciousness (04:33)
+ 02. Obfuscate Meanings (04:55)
+ 03. Given This Total Distrust (04:35)
+ 04. Die Zukunft (Findet Nicht Mehr Statt) (03:20)(   Читать дальше...   )Жанр: Industrial, Rhythmic NoiseПродолжительность: 01:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063AEE16CCC4577CED9A224D3A5BBFBA0648B3EE
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

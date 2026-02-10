@@ -19,6 +19,8 @@ The Guest – мрачное приключение, полное страшны
 magnet:?xt=urn:btih:5B44F4696FFD6B43296F961336643AC2FFF6976C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Princess Of Tavern / Принцесса таверн (2016) [Ru] (1.0.3) Unoffic
 ```bash
 magnet:?xt=urn:btih:72EE1E769858266C5AF3FFD53A3077156EB0C7CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Lake Ridden (Озеро Риден) - игра-головоломка, осно�
 magnet:?xt=urn:btih:36B02D2A760920AF54B105EE6D3BF775EFE5E733
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Pillars of Eternity II: Deadfire / Pillars of Eternity 2: Deadfire (2018) [Ru/Mu
 ```bash
 magnet:?xt=urn:btih:3C21BAE8971416368DF28D13E5CF8388E81AB9E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Dark Moon – стратегическая игра о выживании, гд�
 magnet:?xt=urn:btih:5D9687BEDEA5AFEDEF1BA4EC7963D3A5874EC9F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Fear the Dark Unknown переносит вас в великую классик
 ```bash
 magnet:?xt=urn:btih:C6E519132F33D5DD961054FB1EBB17650C180E0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Silly Polly Beast (2025) [Ru/Multi] (1.01) License GOG
 magnet:?xt=urn:btih:A4631BC23E3BB1C6D906F146807C6989894C87F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Christmas Stories 7. Alice's Adventures / Рождественские исто�
 ```bash
 magnet:?xt=urn:btih:2947744BA0DD88CF5FBEFE6FAA9CACE918A9AA33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Hard West 2 - это отдающее порохом погружение в з�
 magnet:?xt=urn:btih:9A5EEC11C7432332075636971ADC5966C3E795C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Garden Simulator - аркадный симулятор, в котором нуж
 ```bash
 magnet:?xt=urn:btih:2D4067ABFC418E6732EBE7B7DC170CF5C86387DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ True Fear: Forsaken Souls (2018) [Ru/Multi] (2.0.3) License GOG [Part 2]
 magnet:?xt=urn:btih:ED1D96218F0678833EA6DBCF32EBD6B8E3C843A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Age of Wonders III (3) (2014) [Ru/Multi] (1.802fix/dlc) License GOG [Deluxe Edit
 ```bash
 magnet:?xt=urn:btih:672327902A329B12E96F93716BCA443B076C70CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ European Ship Simulator является симулятором капитана
 magnet:?xt=urn:btih:26C34B4E858F713D158AB503FCC6B1961B64AE0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ The Sin Collector: Repentless (2021) [Multi] (1.0.1441) License GOG
 ```bash
 magnet:?xt=urn:btih:1380214FF40EC97639DB0D2D69024A914FDDA25B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Succubus (2021) [Ru/Multi] (1.0.14553 - 1.4.15357) License GOG [Patches]
 magnet:?xt=urn:btih:6C7620E313B3DCA82C70A7971788D41ED8F81AB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Hidden Expedition 20: Reign of Flames (2020) [En] (1.0) Unofficial [Collector's 
 magnet:?xt=urn:btih:780B22FCB48C618BBE548F94907B58EAA77B793B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +434,8 @@ Star Renegades (2020) [Ru/Multi] (1.4.2) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:F68C2B3A89D5A5C62240AA4B9AD8CB259B9B5FD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Sid Meier's Railroads! (RePack/1.1) [Ru/En] 2006 | R.G. ILITA
 magnet:?xt=urn:btih:71F93B1DA705CC364AE360DD73F210F515ABF685
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Tinytopia (2021) [Multi] (211111) License GOG
 ```bash
 magnet:?xt=urn:btih:EF0267BE4E60A6FB23B8EBE7EB50E3951CB9EFAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ NecrovisioN Lost Company / NecrovisioN Проклятая Рота (2010) [Ru] (
 magnet:?xt=urn:btih:DC5A85945880F815018406A22661D794BD28D82E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ GTA / Grand Theft Auto: Криминальная Россия RP (2019) [Ru] (0.
 ```bash
 magnet:?xt=urn:btih:6DFEFDB6A85DEEA190275525ACCD3643749CF79B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ G-Force / Миссия Дарвина (2009) [Ru] (1.0) Repack =nemos=
 magnet:?xt=urn:btih:D2E6C8A259F2A09C2ACA87E84E7705A20691DE84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Domini Games с гордостью представляют еще одно ве
 ```bash
 magnet:?xt=urn:btih:7FDCB86FCA23F375BD82E5314CA9D3601B2084F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Loco Parentis — сюрреалистичный survival-horror, где вам 
 magnet:?xt=urn:btih:7435522E5E8D43D729CB2DADB105E7A9FCC35914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Darkest Dungeon – хардкорная ролевая игра, действи
 magnet:?xt=urn:btih:E53635BE96AAACE43BB31B59E9433B76C8AB31B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ WWE 2K19 (2018) [Multi] (1.03/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:C4AF4A1958107955EAA8583DAAE3978D571B70E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

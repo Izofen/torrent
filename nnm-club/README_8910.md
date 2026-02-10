@@ -21,6 +21,8 @@ Window Focus 1.0.4 [En]
 magnet:?xt=urn:btih:15DE498AFC7FA62CF5D84F0EE567A5E540295E9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:15DE498AFC7FA62CF5D84F0EE567A5E540295E9F
 ```bash
 magnet:?xt=urn:btih:BFEC189933F1C653804DE0AD337AACA0253C80DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:BFEC189933F1C653804DE0AD337AACA0253C80DE
 magnet:?xt=urn:btih:370EA58DB5F2D690C36ACE3285598B3225A414DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:370EA58DB5F2D690C36ACE3285598B3225A414DC
 ```bash
 magnet:?xt=urn:btih:FBF893A3C2F58CC1693994EE985050EADA6C2043
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Kygo - Kids In Love (2017) [FLAC|Lossless|tracks + .cue] <Electro House, Deep Ho
 magnet:?xt=urn:btih:795BA27B36B3ABCFF974EEC8749A2AE593FE212A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Sojiro - Forest Of The Ocarina (2016) 2 CD [MP3|320 Kbps] <New Age, Ethnic Fusio
 magnet:?xt=urn:btih:57750EFD3BDC7357E3221A57062185020CE069DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:57750EFD3BDC7357E3221A57062185020CE069DF
 magnet:?xt=urn:btih:E27162339C941799F884C8A538FA29A9969838BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Christmas Card - простая, симпатичная рождественск
 magnet:?xt=urn:btih:E4451E1ADC55D9257A290FAC8B7897E4ACCEE914
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:E4451E1ADC55D9257A290FAC8B7897E4ACCEE914
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:E4451E1ADC55D9257A290FAC8B7897E4ACCEE914
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ StableOS это быстроразвертываемый дистрибутив 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ Tomb Raider: Anniversary [Wii] [PAL] [Multi 5] (2007)
 magnet:?xt=urn:btih:DC199415F8609F210A90BCAD94C3EC61A9BDCE46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Wolfenstein® II: The New Colossus™ - долгожданное продолж�
 ```bash
 magnet:?xt=urn:btih:2C28EC9C004514315380565AFD43751782A54012
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:2C28EC9C004514315380565AFD43751782A54012
 magnet:?xt=urn:btih:EB3D7A08B4301EF53439F26DBB4F4F633986BB4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ Need for Speed: ProStreet (2007) [Ru/En] (1.1/dlc) Repack Other s
 ```bash
 magnet:?xt=urn:btih:48CAB42DAE64930E325EBD21A7CBBC7AB6FE1A26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ Motion Array Stock Music Collection - этот обновляемый сборн
 magnet:?xt=urn:btih:05F95383B5C89874EAF426C4502CFA7B694CE7FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ Journey (2019) [Ru/Multi] (1.52) Repack Other s
 magnet:?xt=urn:btih:8B959B898A8BCCDC23000D67FD191DB95C5D79FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:8B959B898A8BCCDC23000D67FD191DB95C5D79FA
 ```bash
 magnet:?xt=urn:btih:4031B1C48CD2B7AF695EE2410A913D10385BC294
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:4031B1C48CD2B7AF695EE2410A913D10385BC294
 magnet:?xt=urn:btih:9B3723E19F1917C62FC8A9E19B86382D078D53C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Pocket Monsters Sun & Moon / Покемон: Солнце и Луна [2017, TV,
 magnet:?xt=urn:btih:DE2EF3F27B811D712E11B6A610E042ABBEAAB07F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +552,8 @@ After Effects CC — это ведущая в отрасли программа 
 ```bash
 magnet:?xt=urn:btih:D0E1F4676BCDE1D7D211DB80984845040CAF0C11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:D0E1F4676BCDE1D7D211DB80984845040CAF0C11
 magnet:?xt=urn:btih:6556BE7C1E4DB12950763ACAC49C13874B4C434F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ Java EE 8 - современная версия популярной платф�
 ```bash
 magnet:?xt=urn:btih:4BC9BF3FEE185A63D1AA8DE398E5AC5FEF8269DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:4BC9BF3FEE185A63D1AA8DE398E5AC5FEF8269DC
 magnet:?xt=urn:btih:8816BB98FC51DBE919CD80B7A359CA0EFD82A931
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:8816BB98FC51DBE919CD80B7A359CA0EFD82A931
 magnet:?xt=urn:btih:D8BBE6F2B42F67FB1C064DF52E1F6F33182FA0B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:D8BBE6F2B42F67FB1C064DF52E1F6F33182FA0B8
 ```bash
 magnet:?xt=urn:btih:FB69F79161601365D919CA5F7F3C56399F8B0198
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

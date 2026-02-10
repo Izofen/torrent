@@ -28,6 +28,8 @@ VA - Midnight Club: Street Racing Soundtrack (2000) [MP3|~245 кб/с (V0)]<Soun
 magnet:?xt=urn:btih:D7CBD50DD190CFF9F06AF25C89159BAA71B46C09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ Prem Rana Autari - Himal (Himalayan Meditative Music) (2000) [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:0F706956393DBF179BC9B6B0EF512D5633BDD321
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ OVA - Нежность (EP) (2010) [MP3|320 kbps]<Instrumental | Piano>
 magnet:?xt=urn:btih:07CEC8D703A3FF2C78224AE69DED1DFD9DDFC3BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -107,6 +113,8 @@ Forndom - 1 album, 1 EP (2015-2016) [MP3|320 Kbps] <Dark Folk, Dark Ambient, Nor
 ```bash
 magnet:?xt=urn:btih:2E4F7C6B160E9C1B5E7E09BE51980699FDB65688
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +149,8 @@ OST - Soundtrack / 2046 (2004) [MP3|192 kbps]< Soundtrack >
 magnet:?xt=urn:btih:762AFFBEFD56A927DF1EF1BA22067E4E92E3B30A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +177,8 @@ Atom Music Audio - Codebreaker (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 ```bash
 magnet:?xt=urn:btih:8E50A534C9841CA382344C3479F489CB9E4244E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +207,8 @@ Atom Music Audio - Continuum (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Ep
 magnet:?xt=urn:btih:73906DAB665BFB6764A3E2ACCD568C6077AB6531
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +235,8 @@ Atom Music Audio - Ethereal (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epi
 ```bash
 magnet:?xt=urn:btih:0E31E22C651BC5EA6309299348C5C605CB8F984A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +265,8 @@ Atom Music Audio - Crime Life (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, E
 magnet:?xt=urn:btih:75B87B9222695615BBDEE6030C569BA22D3A7202
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +293,8 @@ Tina Guo - Dies Irae (2021) [MP3|320 Kbps] <New Age, Instrumental, Classical>
 ```bash
 magnet:?xt=urn:btih:14144A716AD853F027F69E763DE2C03C37B85C65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -303,6 +323,8 @@ Lagoon West - Yoga (2005) [APE|Lossless|image + .cue] <New Age>
 magnet:?xt=urn:btih:43B33A898C68C94F781C4447141FB095F7D53082
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +352,8 @@ Atom Music Audio - Cosmonautica (2020) [MP3|320 Kbps] <Soundtrack, Instrumental,
 magnet:?xt=urn:btih:3C1D1CA575E62DE8C32FDF13B21CD0923841D3C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +380,8 @@ Atom Music Audio - Prophecy (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epi
 ```bash
 magnet:?xt=urn:btih:394ADD7719AF83BE789A88AA935EC68B590BFD58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +416,8 @@ magnet:?xt=urn:btih:394ADD7719AF83BE789A88AA935EC68B590BFD58
 magnet:?xt=urn:btih:2F447634B5F950CA37F8797B73CF164B615FE710
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +450,8 @@ Stockholm Guitar Quartet
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +486,8 @@ Stockholm Guitar Quartet
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +520,8 @@ VA - Acoustic Guitar Duet 2CD (2012) [MP3|320 кб/с]<Instrumental, Easy listen
 ```bash
 magnet:?xt=urn:btih:33D35C4FAFB45D00AA3FC6332FD0C9C7ACF454DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +556,8 @@ Solar Fields and Lisa Miskovsky - Mirror's Edge / Still Alive: The Remixes (2008
 magnet:?xt=urn:btih:3C6EEF5E6F1767B95B8F3CADDA071D1E3E991D2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +584,8 @@ Art of Empathy - End Of I (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Neofolk, Dark
 ```bash
 magnet:?xt=urn:btih:8F1A6BA29762C2832F51205E673222132F634CB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +615,8 @@ magnet:?xt=urn:btih:8F1A6BA29762C2832F51205E673222132F634CB3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +643,8 @@ Guy Sweens - Rise of the Inca (2021) [MP3|320 Kbps] <New age, Ethnic, Native Ame
 ```bash
 magnet:?xt=urn:btih:A910CE733E6CAE39981F88C047E53E63E8559B71
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +673,8 @@ Omnia - Naked Harp (2015) [MP3|320 кб/с] <Folk, World, Celtic>
 magnet:?xt=urn:btih:DA85238EE5D1596FDDAA9E2E46DEC7C3AD229475
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +701,8 @@ Enigma - Greatest Hits (2008) 2CD Digipack Edition [FLAC|Lossless|image + .cue] 
 ```bash
 magnet:?xt=urn:btih:A5B012AB3BBDA7ABBA29D8A46D12F779F76BFD3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -685,6 +731,8 @@ Bliss - 8 Альбомов (1997-2007) [FLAС|Lossless|tracks] <Ambient, New Age
 magnet:?xt=urn:btih:4C0664D4DAF34DBFC370F39275A81AC9FABF7FCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -711,6 +759,8 @@ VA - Музыка гармонии сна (2008) [FLAC|Lossless|image + .cue] <R
 ```bash
 magnet:?xt=urn:btih:EA9956FA93FC0AEAF0AE3B965974A5648A7A9FA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -744,6 +794,8 @@ Balkan Beat Box - Blue Eyed Black Boy (2010) [MP3|320 кб/с]<Electronica / Roc
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

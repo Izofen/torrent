@@ -1,27 +1,3 @@
-###  Публикация: 1449979   (1029310) от 24.02.2021
-
-Доносчик / La balance (1982) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Кого бандиты ненавидят больше легавых? «Стукачей». Узнают - тут же убьют. Но флики всегда используют информаторов, зачастую, помимо их воли. Беспроигрышный вариант: пока жив, «сливает инфу», а прибьют — собаке собачья, и на улицах чище. Вот с такого момента и начинается фильм, представляющий нам фликов за их грязной работой. Они действительно ее любят, и выполняют (   Читать дальше...   )Производство: Франция / Les Films Ariane, Films A2Жанр: триллер, драма, мелодрама, криминалРежиссер: Боб СвэмАктеры: Натали Бай, Филипп Леотар, Ришар Берри, Морис Роне, Бернар Фрей, Кристоф Малавуа, Жан-Поль Комар, Альбер Драй, Флоран ПаньиПеревод: Многоголосый профессиональныйСубтитры: РусскиеПродолжительность: 01:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0476080E9509419A530E4C489EC09B430D655FC2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623388   (1029397) от 01.04.2023
 
 Авантюристы в дебрях Меконга / Les aventuriers du Mekong (1958) DVDRip [H.264] [VO]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:0476080E9509419A530E4C489EC09B430D655FC2
 ```bash
 magnet:?xt=urn:btih:72C9327EB94E99D0E31B7353AD2AB72AEF6109B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:72C9327EB94E99D0E31B7353AD2AB72AEF6109B3
 magnet:?xt=urn:btih:AC1C3E85C8018DA22439ECC0B62607B0B26B23D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:AC1C3E85C8018DA22439ECC0B62607B0B26B23D9
 ```bash
 magnet:?xt=urn:btih:0E23A618A6F29AC1C3DC6644FEF80F756216BCB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:0E23A618A6F29AC1C3DC6644FEF80F756216BCB9
 magnet:?xt=urn:btih:7636A0E3487A97F88396E73224D1EDB324F12E13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:7636A0E3487A97F88396E73224D1EDB324F12E13
 ```bash
 magnet:?xt=urn:btih:28DED4DB4FAD05F01BE840A99A1FD0B016B85DC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:28DED4DB4FAD05F01BE840A99A1FD0B016B85DC4
 magnet:?xt=urn:btih:3A861B7B1903122DF270B3DC37AD198BB751E98D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:3A861B7B1903122DF270B3DC37AD198BB751E98D
 ```bash
 magnet:?xt=urn:btih:A19B8AEF82F5F04CFCE6FDFDF401B6351D4B44F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:A19B8AEF82F5F04CFCE6FDFDF401B6351D4B44F7
 magnet:?xt=urn:btih:A6A7E8B71D6FB9EF6BE98248D22C908A0BD9F2B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:A6A7E8B71D6FB9EF6BE98248D22C908A0BD9F2B2
 ```bash
 magnet:?xt=urn:btih:DE4F7EA46457FD92775F5854432FD9218298A44D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:DE4F7EA46457FD92775F5854432FD9218298A44D
 magnet:?xt=urn:btih:723915067E5CDD3AE6A495104B9FEBABE8FC25DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:723915067E5CDD3AE6A495104B9FEBABE8FC25DB
 ```bash
 magnet:?xt=urn:btih:305FD938F7A5144406DE6BADE591A35FED4D2338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:305FD938F7A5144406DE6BADE591A35FED4D2338
 magnet:?xt=urn:btih:BB1BDB27B8826A89C030589F3145780835645BE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:BB1BDB27B8826A89C030589F3145780835645BE0
 ```bash
 magnet:?xt=urn:btih:45F0FCCEB0391241AAED1158CE066A79AB79B9C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +359,8 @@ magnet:?xt=urn:btih:45F0FCCEB0391241AAED1158CE066A79AB79B9C7
 magnet:?xt=urn:btih:EB43F0AEA6F2A4231EB682A4D8500C03CB11F39B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +384,8 @@ magnet:?xt=urn:btih:EB43F0AEA6F2A4231EB682A4D8500C03CB11F39B
 ```bash
 magnet:?xt=urn:btih:F912371605E57487D0CD9F412E9D7E75BE807BD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +412,8 @@ magnet:?xt=urn:btih:F912371605E57487D0CD9F412E9D7E75BE807BD3
 magnet:?xt=urn:btih:AD86A054DDD5A58B5E226FEBCEC9C2767EABEE70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:AD86A054DDD5A58B5E226FEBCEC9C2767EABEE70
 magnet:?xt=urn:btih:A978AEFDAB15779174E6E2A1434E7D9EE2A42B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:A978AEFDAB15779174E6E2A1434E7D9EE2A42B25
 ```bash
 magnet:?xt=urn:btih:382906A7CE5B9F5CC21C2DF8EECE875026B44092
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +491,8 @@ magnet:?xt=urn:btih:382906A7CE5B9F5CC21C2DF8EECE875026B44092
 magnet:?xt=urn:btih:8D74D5783B27AE381E4E3316843AB9528CF01C94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +516,8 @@ magnet:?xt=urn:btih:8D74D5783B27AE381E4E3316843AB9528CF01C94
 ```bash
 magnet:?xt=urn:btih:CFD936B22F6310006EC67E533824C42CA76C8EA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +543,8 @@ magnet:?xt=urn:btih:CFD936B22F6310006EC67E533824C42CA76C8EA1
 magnet:?xt=urn:btih:BB32ACD7D2A48C68CFF9351E5B4DA6E45AF04462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +568,8 @@ magnet:?xt=urn:btih:BB32ACD7D2A48C68CFF9351E5B4DA6E45AF04462
 ```bash
 magnet:?xt=urn:btih:D24167CE8F7AA08AFB03FF06294CC6C2C4652486
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +595,8 @@ magnet:?xt=urn:btih:D24167CE8F7AA08AFB03FF06294CC6C2C4652486
 magnet:?xt=urn:btih:0074DB95DB2391B6173FDD21FB6073B19FDD8F0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +621,8 @@ magnet:?xt=urn:btih:0074DB95DB2391B6173FDD21FB6073B19FDD8F0A
 magnet:?xt=urn:btih:489610D40217D0FC217D2DAEC53FB5023015B26F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +646,34 @@ magnet:?xt=urn:btih:489610D40217D0FC217D2DAEC53FB5023015B26F
 ```bash
 magnet:?xt=urn:btih:8EA5A67B193801AC87F48161BC08861A6429A98D
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447531   (1031833) от 13.02.2021
+
+Мост через Эльбу / No importa morir (1969) DVDRip [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1031833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Конец второй мировой войны. Франция, 1944 год. Союзники дошли до Рейна. Группе из семи американских добровольцев даётся опасное задание - уничтожить штаб германского вермахта. Однако их миссия вскоре раскрывается, и всё задание заканчивается провалом, за который они платят несколькими жизнями. Однако американцы не сдаются и готовят другой план: командование решает (   Читать дальше...   )Производство: Испания, Италия, Atlántida Films, Leone Film, Leone-Daiano FilmЖанр: Военный, драмаРежиссер: Леон КлимовскийАктеры: Тэб Хантер, Ховард Росс, Эрика Валльнер, Клаудио Трионфи, Росанна Янни, Оскар Пеллисер, Анхель дель Позо, Гаспар «Индио» Гонсалес, Даниэле Варгас, Альфонсо де ла ВегаПеревод: Одноголосый любительский (Алексей Багичев)Субтитры: отсутствуютПродолжительность: 01:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C4F6AF7F776787EA3A3EA9ADA531E165CBFD89F
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Office Installer - программа предназначена для online �
 magnet:?xt=urn:btih:353616B4E38EFF2101B18D59360E61520729E9BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:E1318A5A06FD78C52B9C670664F9C587ADA4BD06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Koodo Reader 1.7.4 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:36E7ED9223DF60493D0763D01B7F8D71D17E107F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:36E7ED9223DF60493D0763D01B7F8D71D17E107F
 ```bash
 magnet:?xt=urn:btih:17F1F038BC4299D3515348A639F14B94C46888A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:17F1F038BC4299D3515348A639F14B94C46888A0
 magnet:?xt=urn:btih:9AD71D4F8F7ED98B0DB2D360CB6740808A8DBA89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:9AD71D4F8F7ED98B0DB2D360CB6740808A8DBA89
 magnet:?xt=urn:btih:D9AE85D56ADEE237356B53AB83BD7FCD0D492AB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:D9AE85D56ADEE237356B53AB83BD7FCD0D492AB4
 ```bash
 magnet:?xt=urn:btih:EB86F7FEAA5861AF5F145CFA83159257ED79343A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:EB86F7FEAA5861AF5F145CFA83159257ED79343A
 magnet:?xt=urn:btih:5BEB16C496EB6AB7DA031CBD3D4060A4029A377D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ magnet:?xt=urn:btih:5BEB16C496EB6AB7DA031CBD3D4060A4029A377D
 ```bash
 magnet:?xt=urn:btih:DFACEF2F116350E6966C0C2759882C44CCF647D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Final Fantasy XVI (2024) [Ru/Multi] (1.03/dlc) Repack Decepticon
 magnet:?xt=urn:btih:6C31974B0DC6EDD6AE8326CA7408E32B4FEB0788
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:6C31974B0DC6EDD6AE8326CA7408E32B4FEB0788
 ```bash
 magnet:?xt=urn:btih:F001D053B32B89733F12F59198BABB267877DE35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:F001D053B32B89733F12F59198BABB267877DE35
 magnet:?xt=urn:btih:9AB4FE93E80BEEB8316A738D65F3774DE88FAA95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:9AB4FE93E80BEEB8316A738D65F3774DE88FAA95
 ```bash
 magnet:?xt=urn:btih:7BEED80BED2B345619674D1DA70C30AADF857870
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:7BEED80BED2B345619674D1DA70C30AADF857870
 magnet:?xt=urn:btih:C50EA52F846E833BE4FB055A4441321548BB1FB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:C50EA52F846E833BE4FB055A4441321548BB1FB6
 ```bash
 magnet:?xt=urn:btih:17EA0152F7FB62C0691FD68954D7DDE65A238F18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Hearts of Iron 4 (IV) – отличный военный симулятор, в
 magnet:?xt=urn:btih:937EA348C460F73E2FD0523F7FA032449E2A4A52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:937EA348C460F73E2FD0523F7FA032449E2A4A52
 ```bash
 magnet:?xt=urn:btih:24C6F3A4F2D31006D2A8B619BE881907111AA0C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ magnet:?xt=urn:btih:24C6F3A4F2D31006D2A8B619BE881907111AA0C6
 magnet:?xt=urn:btih:59D715777250D9B3255DA3B946420F80A0DDCCA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Nekoray/NekoBox - это инновационный и универсальны�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ TVGuide v4.5.20 Premium Mod by Alex.Strannik [Ru]
 ```bash
 magnet:?xt=urn:btih:29655CE596CCA0744A2FB373C91253B51795D462
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:29655CE596CCA0744A2FB373C91253B51795D462
 magnet:?xt=urn:btih:B2F12478DC24CF4C785BDBB6146FCF129D617087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ magnet:?xt=urn:btih:B2F12478DC24CF4C785BDBB6146FCF129D617087
 ```bash
 magnet:?xt=urn:btih:E7EE0E5B85DDA1412EEAC40E4C51C663E270BD58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ RxJS - это библиотека для реактивного програм�
 magnet:?xt=urn:btih:9755D54BB1E967D921CF37AF5CCCC5910271C6B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ Dungeon ni Deai o Motomeru no wa Machigatteiru Darou ka? V / Danmachi V / Мож
 magnet:?xt=urn:btih:A65513667B896A6AF3B7443DC5CC056BDE44EB54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:A65513667B896A6AF3B7443DC5CC056BDE44EB54
 ```bash
 magnet:?xt=urn:btih:AA2C12F3F51929E94FAF6B433AC2225A559371C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +683,8 @@ Oblivion VPN — это специальное VPN-приложение, пре�
 ```bash
 magnet:?xt=urn:btih:A863A1185CDCCFDC271E37428A4A1D442448D3DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

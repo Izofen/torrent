@@ -19,6 +19,8 @@ Smart AudioBook Player Pro v11.2.6 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:053863DC29A36DBDD8E1AE89528A68B05B48430C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:053863DC29A36DBDD8E1AE89528A68B05B48430C
 ```bash
 magnet:?xt=urn:btih:700FF69E4BCF67F208201C679ECE8AC7BFB95C75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ VA - Compilation Part 157 Electronic (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:725541ACE99A47A7BBD616068BA9D0AFF76CAB03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:725541ACE99A47A7BBD616068BA9D0AFF76CAB03
 ```bash
 magnet:?xt=urn:btih:CC75CC20725BECF339DC8181EDFD52D65D618E1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ VA - Music News For Forum vol.075 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:FDDF2109B35DD28E2451F6962A96DDA1280BBAA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -150,6 +160,8 @@ VA - Sonic Space (2024) [MP3|320 Kbps] <Space Music, Ambient>
 magnet:?xt=urn:btih:337C0541BD10260F608C723B95970969EECD85EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ Shazam (шазам) распознает любую песню за секунд
 ```bash
 magnet:?xt=urn:btih:C62556ED19E61B1BFE4D2BF9B9795CBA30EAE0EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:C62556ED19E61B1BFE4D2BF9B9795CBA30EAE0EB
 magnet:?xt=urn:btih:C83A94FF4A84680B95F7E53A9CD2F1B5C3FB3C48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:C83A94FF4A84680B95F7E53A9CD2F1B5C3FB3C48
 ```bash
 magnet:?xt=urn:btih:C6839DC9248E44551D3CC8BD9697D07F28977CA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:C6839DC9248E44551D3CC8BD9697D07F28977CA0
 magnet:?xt=urn:btih:64B86C72E11AA4FE4F774EF0BADB9C7A2055CD67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:64B86C72E11AA4FE4F774EF0BADB9C7A2055CD67
 magnet:?xt=urn:btih:98FEDE5E23B1ED8D22114BB3474E40620D1B45AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ OCCT 14.0.3 Portable [En]
 ```bash
 magnet:?xt=urn:btih:29500B21C72433CE896A4F81D9904AE4D762501D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Photo Studio — не просто приложение для редактир�
 magnet:?xt=urn:btih:90698FA6FB0FECEB5ED15DAE0935AF4F081E1DB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:90698FA6FB0FECEB5ED15DAE0935AF4F081E1DB8
 ```bash
 magnet:?xt=urn:btih:71CDB4465F0E6711367B216F07BD61DB15992B41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ ToonApp карикатура фоторедактор лучшее прилож�
 magnet:?xt=urn:btih:E44AA8FD72E9902560E23B6FE182E1DF8E8B3FAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -393,6 +423,8 @@ magnet:?xt=urn:btih:E44AA8FD72E9902560E23B6FE182E1DF8E8B3FAD
 ```bash
 magnet:?xt=urn:btih:1B08349E8D8BB411642C602A64A47D7F557182EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -421,6 +453,8 @@ magnet:?xt=urn:btih:1B08349E8D8BB411642C602A64A47D7F557182EB
 magnet:?xt=urn:btih:4B9A785D6252A51C5A5BE24CD0A5137D4BABE271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:4B9A785D6252A51C5A5BE24CD0A5137D4BABE271
 ```bash
 magnet:?xt=urn:btih:1809FA3A002703B8E8B35271560F68F5E57DA6A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:1809FA3A002703B8E8B35271560F68F5E57DA6A3
 magnet:?xt=urn:btih:D14876A56B7B0A7555150E9D66DE32CFA705F3A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:5587E1CB13444BD67580F665BDAF80FA8E94E2FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ Synergy – это градостроительный симулятор в су
 magnet:?xt=urn:btih:D98FE8FDA55CACD6584D1DC25AB67BA8E47776F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +582,8 @@ AIMP 5.40 Build 2674 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:9E558FD15C2226156C4FD93736F6ACA0AC9480FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ Genius Art: Image AI Generator v1.3.0 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:674C9FBAA89CDC3B7C27905D3A6AFF701D4F9D4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:674C9FBAA89CDC3B7C27905D3A6AFF701D4F9D4A
 ```bash
 magnet:?xt=urn:btih:C69E302DD058996B36B7E1D05427C305922ACD32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ magnet:?xt=urn:btih:C69E302DD058996B36B7E1D05427C305922ACD32
 magnet:?xt=urn:btih:D89BFC802D4A5C341C3BE29FAC16D3CE586CB547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:D89BFC802D4A5C341C3BE29FAC16D3CE586CB547
 ```bash
 magnet:?xt=urn:btih:5A08E3975B1D17F134CE0E94000C80BC20AFF26E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

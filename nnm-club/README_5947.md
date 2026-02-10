@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C4AAE8B961AE5AFE1791F23381A9D5474ADAB5A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Maneskin - Rush! (2023) [FLAC 24/44.1|WEB-DL|tracks] <Glam-rock>
 ```bash
 magnet:?xt=urn:btih:C1A625EDF3BD5E00DD9BE20B186D8F32140A1D8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ LP (Laura Pergolizzi) - Love Lines (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:FDBEC5DF9FD29A735488F1C4F5EE88DE622477CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Velvet Insane - High Heeled Monster (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard R
 magnet:?xt=urn:btih:D7FE17F94D277BDD472E189E40115600EBAB81FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ magnet:?xt=urn:btih:D7FE17F94D277BDD472E189E40115600EBAB81FA
 ```bash
 magnet:?xt=urn:btih:B9E6F3BF8C531238246B7737133B4BC42026EC52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Omega - Testamentum (2020) [MP3|320 Kbps] <Progressive Rock, Hard Rock, Symphoni
 magnet:?xt=urn:btih:FDE4C0A27D74496D319484E21AF3A0519E6E6C5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ magnet:?xt=urn:btih:FDE4C0A27D74496D319484E21AF3A0519E6E6C5F
 magnet:?xt=urn:btih:84B0AEBFABDD023674027D1C46CE58B54EA9A7ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:84B0AEBFABDD023674027D1C46CE58B54EA9A7ED
 ```bash
 magnet:?xt=urn:btih:3B7E0ED56BE8A90FE1D6CE3CBAEDAB84680D2552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ magnet:?xt=urn:btih:3B7E0ED56BE8A90FE1D6CE3CBAEDAB84680D2552
 magnet:?xt=urn:btih:AF36D689977A900F14B723AC5AF82E0C5465F491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:AF36D689977A900F14B723AC5AF82E0C5465F491
 magnet:?xt=urn:btih:8C8EF1452341212D267E44BDE85EC778B66C6105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:8C8EF1452341212D267E44BDE85EC778B66C6105
 ```bash
 magnet:?xt=urn:btih:0D0FB7B5BD42ABD6AAFAE053CEF3B01222842BD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Blutengel - Black Symphonies (An Orchestral Journey) (2014) 2CD, Limited Edition
 magnet:?xt=urn:btih:ED5FE484E4326B6C20D4D630501850EEC57C6BF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +348,8 @@ Niagara Launcher - это прекрасный кастомный рабочий
 ```bash
 magnet:?xt=urn:btih:15658B027F1DBCE0B5ED992A90A0F264186165CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ Nancy Sinatra - Keep Walkin': Singles, Demos & Rarities 1965-1978 (2023) [FLAC 2
 magnet:?xt=urn:btih:5504FA1391480DBAC149DB67730818BCEDE90335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ VA - Acoustic Rock 2020 [FLAC|Lossless|WEB-DL|tracks] <Rock, Acoustic, Pop>
 magnet:?xt=urn:btih:DCD80EFB95749790FD5DE8ECF46B3B0C7AB6C4AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:DCD80EFB95749790FD5DE8ECF46B3B0C7AB6C4AC
 ```bash
 magnet:?xt=urn:btih:938A2621BFA057E5E49B60325532AF1BEEB65D42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +459,8 @@ Sound Blaster Command - программное обеспечение для н�
 magnet:?xt=urn:btih:35F4221F2D47C450579A42D09C74C38C454A64C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +485,8 @@ magnet:?xt=urn:btih:35F4221F2D47C450579A42D09C74C38C454A64C2
 ```bash
 magnet:?xt=urn:btih:7CE7539D78F007DDB8D670EC0FA44EDB0765718B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:7CE7539D78F007DDB8D670EC0FA44EDB0765718B
 magnet:?xt=urn:btih:08F0796C53AFDEF4C751FAE6F05F9583EFAB8C48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 ```bash
 magnet:?xt=urn:btih:73D929C0F8B74F7F10A080A8C7DEB9A1782CEBE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ Irminsul - Fader (2013) [FLAC|Lossless|image + .cue] <Pagan Metal, Viking Metal,
 magnet:?xt=urn:btih:03E4A5168A0518FF438CD25BBA7EB0620695EAC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +595,8 @@ W10Privacy - программа для изменения настроек си�
 magnet:?xt=urn:btih:8C9EE07DD0CFF855FD5927934FF2DAFF766F4FF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:8C9EE07DD0CFF855FD5927934FF2DAFF766F4FF1
 ```bash
 magnet:?xt=urn:btih:E8350AA8EE69D71D1DC7948C35113B5A08868821
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +650,8 @@ Taï Phong - французская прогрессив-рок-группа, о
 magnet:?xt=urn:btih:1C51AF64C3B5381844BA02CAFAF372CAE333143F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ magnet:?xt=urn:btih:1C51AF64C3B5381844BA02CAFAF372CAE333143F
 magnet:?xt=urn:btih:646B90947DAD51BC8684752960C6995DA8736429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ magnet:?xt=urn:btih:646B90947DAD51BC8684752960C6995DA8736429
 ```bash
 magnet:?xt=urn:btih:3DD86D49C645FBA5E40C9FBC565D0978B9D77661
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

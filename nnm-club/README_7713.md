@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:AD22D096C479B93F01F10A88134B4B7D0F15BEB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Def Leppard with the Royal Philharmonic Orchestra - Drastic Symphonies (2023) [F
 magnet:?xt=urn:btih:1D0F8734CF2E4D79A174D96A789581E2291F7990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ Hermh - Before the Eden - Awaiting the Fire (2004) [APE|Lossless|image + .cue] <
 ```bash
 magnet:?xt=urn:btih:16430127D2B41C7A8981B50BF6667E0839A968D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -102,6 +108,8 @@ Vortex - The Future Remains In Oblivion (2023) [MP3|320 Kbps] <Melodic Death Met
 magnet:?xt=urn:btih:C8C428E67D34C97021E0213AE8DE4F9CB8EEC47D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ VA - Bass House NNM 2 (2023) [MP3|320 Kbps] <Bass House>
 magnet:?xt=urn:btih:D01DC9ED746DCD0FCF3ABD328CEB7BD02689A222
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:D01DC9ED746DCD0FCF3ABD328CEB7BD02689A222
 ```bash
 magnet:?xt=urn:btih:95E90DECAF36DB608E9460CC622EA47C77F7FE1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:95E90DECAF36DB608E9460CC622EA47C77F7FE1F
 magnet:?xt=urn:btih:065085D1454DCD3B71CD82769EC49E6DBDF4CD80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:065085D1454DCD3B71CD82769EC49E6DBDF4CD80
 ```bash
 magnet:?xt=urn:btih:863076AD3AF54742E3B806701FEEDDD39BFE1D11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ Sonny Rollins - Milestone Profiles (1972 - 2000) 2CD, 2006, Milestone [FLAC|Loss
 magnet:?xt=urn:btih:8B50888EEDFB21EFD576C5E0231731744B2D4D9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ magnet:?xt=urn:btih:8B50888EEDFB21EFD576C5E0231731744B2D4D9B
 ```bash
 magnet:?xt=urn:btih:D7A2D1FC19B7CC822E89604042A2385D0DADD5CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ Deville - Heavy Lies the Crown (2022) [MP3|320 Kbps] <Heavy Rock, Stoner Metal>
 magnet:?xt=urn:btih:8D41A873D428DF2A4B27A079AF303172D4FB390F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +328,8 @@ VA - Music News vol.265 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:E34CB0D866B3C3A57DF75357DAF7477C999753C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -329,6 +353,8 @@ magnet:?xt=urn:btih:E34CB0D866B3C3A57DF75357DAF7477C999753C6
 ```bash
 magnet:?xt=urn:btih:725B08E892BB9AD8D57F704D4E5F4106BAF62A55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ magnet:?xt=urn:btih:725B08E892BB9AD8D57F704D4E5F4106BAF62A55
 magnet:?xt=urn:btih:B542DF541ACAC139A57B594A9C5DD79B77ADD71B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:B542DF541ACAC139A57B594A9C5DD79B77ADD71B
 ```bash
 magnet:?xt=urn:btih:EEBA5B97A782C5F8EC5A2723F47FA89176F4B74F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ Raven - All Hell's Breaking Loose (2023) [FLAC|Lossless|WEB-DL|tracks] <NWOBHM, 
 magnet:?xt=urn:btih:4DC9F6B54D337B763F0388EBD04F8F1DEB1CEBAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ magnet:?xt=urn:btih:4DC9F6B54D337B763F0388EBD04F8F1DEB1CEBAB
 ```bash
 magnet:?xt=urn:btih:1AFA08097D61AF3521919512B35707CCB314C3E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +491,8 @@ Def Leppard - Let's Get Rocked (1992) Single [OGG Vorbis|484 Kbps] <Rock, Hard R
 magnet:?xt=urn:btih:0D613F7CB26D72515CA05832121F35235CBB7804
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ magnet:?xt=urn:btih:0D613F7CB26D72515CA05832121F35235CBB7804
 ```bash
 magnet:?xt=urn:btih:073A7395DB4B153512FC7CA61F0EBF6085908396
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ AmanVPN бесплатный, быстрый, безопасный и безли
 magnet:?xt=urn:btih:317E1CF64D93CFEF814AFAFA282962406B0C4629
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +573,8 @@ Debian GNU/Linux 11.5.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+3xCD
 ```bash
 magnet:?xt=urn:btih:F8B5AFD5E5D75404649F461CF51B1D185B8FF494
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +603,8 @@ Brian Culbertson - The Trilogy, Pt. 3: White (2022) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:86F1D0DD52292F99DF645EF680A3ACD6B80EE74E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +629,8 @@ Free Download Manager - кроссплатформенный менеджер з
 ```bash
 magnet:?xt=urn:btih:98DBCAFB9B3677B81FA8FC671D0B81E1EC1D6AC5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ GrandTotal прекрасно работает в сочетании с TimeLog.
 ```bash
 magnet:?xt=urn:btih:75A9EBEB883F984265AB5C0BD8A3279E3A7B2C56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +687,8 @@ magnet:?xt=urn:btih:75A9EBEB883F984265AB5C0BD8A3279E3A7B2C56
 magnet:?xt=urn:btih:0314D1628607CE69F3219FDE3857382A431D65A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -664,6 +714,8 @@ magnet:?xt=urn:btih:0314D1628607CE69F3219FDE3857382A431D65A9
 ```bash
 magnet:?xt=urn:btih:5E1E881951B133F2E8B231C5CB5EB94E865D841A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

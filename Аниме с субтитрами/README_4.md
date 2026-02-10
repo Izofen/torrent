@@ -19,6 +19,8 @@ Sousei no Aquarion: Myth of Emotions | Aquarion: Myth of Emotions | Аквари
 magnet:?xt=urn:btih:957AB8919719CA8C861E82B99647D1A3D4371AC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Taйки Инoмaтa cocтoит в бaдминтoннoм клyбe cпopтивнo
 ```bash
 magnet:?xt=urn:btih:8D3E7CACDC8BB6926D0E32C0F8CB1D9F1486E675
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Honey Lemon Soda | Сладкий лимонад [2025, TV, 12] WEB-DL 1080p raw
 magnet:?xt=urn:btih:673E96E14576734743206CD63EDCDE941FF3ECE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Magic Maker: Isekai Mahou no Tsukurikata / Magic Maker: How to Make Magic in Ano
 magnet:?xt=urn:btih:150A28E8C75677320F342EA64A283E4818EE872E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ Grisaia: Phantom Trigger the Animation / Грисайя: Призрачный с
 ```bash
 magnet:?xt=urn:btih:D2C5F2BC3221B140E20CE29D6379E159771D8F55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Re:Zero kara Hajimeru Isekai Seikatsu 3 | Re: Жизнь в альтернати
 magnet:?xt=urn:btih:1EC023F6A49A87FB9504D7DA074361D9CB36D73F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Amagami-san Chi no Enmusubi / Tying the Knot with an Amagami Sister / Брачн
 ```bash
 magnet:?xt=urn:btih:E8599A018AD99C7D6DE979998C1540D26C3D6318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +205,8 @@ Unnamed Memory Act.2 | Безымянная память [ТВ-2] [2025, TV, 12 
 magnet:?xt=urn:btih:5D7DD629EE37A457CDFC316BC7178D23C9714C2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ Youkai Gakkou no Sensei Hajimemashita! | A Terrified Teacher at Ghoul School! | 
 ```bash
 magnet:?xt=urn:btih:F2B0C8358E2B68A6BAF1F9B019AAE91EED546FED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Ao no Exorcist: Yosuga Hen | Blue Exorcist: The Blue Night Saga | Синий э�
 magnet:?xt=urn:btih:F05774FA18642F37BCB4A93DEA6AD8DB8CB9B727
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Kuroiwa Medaka ni Watashi no Kawaii ga Tsuujinai | Medaka Kuroiwa is Impervious 
 ```bash
 magnet:?xt=urn:btih:4263A9CBB2DD386903D7DC1EA31CBB482688F99C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ Sakamoto Days | Дни Сакамото [2025, TV, 11 из 11 эп.] WEBRip 1080
 magnet:?xt=urn:btih:506DB10684C1EDF8388023E53D873152E8B695F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ Kisaki Kyouiku kara Nigetai Watashi | I Want to Escape from Princess Lessons | �
 ```bash
 magnet:?xt=urn:btih:8C93B021F15A6E74E8313F18BADBA71EC09943D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Zenshuu. | Полное исследование [2025, TV, 12 эп.] WebRip 720
 magnet:?xt=urn:btih:C83F53CEECFEBF843D6DC8C98D10D8CC506FECA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Okinawa de Suki ni Natta Ko ga Hougen Sugite Tsura Sugiru / Девушка, в �
 magnet:?xt=urn:btih:4D043BA1AD02B34BA4853AE142CBA3CF50CC78EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Class no Daikirai na Joshi to Kekkon Suru Koto ni Natta. / I Got Married to the 
 ```bash
 magnet:?xt=urn:btih:A1E259AF388B5D9DAF2D7BCA5D71B247597937F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ Rurouni Kenshin: Meiji Kenkaku Romantan - Kyoto Douran | Бродяга Кэнс
 magnet:?xt=urn:btih:27BB67EB9A4B172E1A058D0F4EBD67828D2B9029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Izure Saikyou no Renkinjutsushi? / Possibly the Greatest Alchemist of All Time /
 ```bash
 magnet:?xt=urn:btih:2B2BDA687A1B2996DE4E2767BDAB86A4FEC590CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ Salaryman ga Isekai ni Ittara Shitennou ni Natta Hanashi / История о с�
 magnet:?xt=urn:btih:3FCD05F18C3DFAA7695BD17B19D4B362938588E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ Botsuraku Yotei no Kizoku Dakedo, Hima Datta kara Mahou o Kiwamete / Перер�
 ```bash
 magnet:?xt=urn:btih:02CD9DD1A271AD65631A9CA00476C487F554C888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Dragon Ball Daima | Драгонболл Дайма [2024, TV, 20 эп.] WebRip 
 magnet:?xt=urn:btih:EBA172414E67AA11D329A493ACB948088CCD87F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Arifureta Shokugyou de Sekai Saikyou Season 3 | Arifureta: From Commonplace to W
 ```bash
 magnet:?xt=urn:btih:10683F6480A5EE72D775E4A4CDE12C4668196929
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Dokyuu Hentai HxEros | Super HxEros | Формирование извращён�
 magnet:?xt=urn:btih:D7183FB57F734FF17AE5613B82E1673428E33720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Rescue Me! | Спаси меня! [2013, OVA] BDRip 1080p 10-bit raw
 ```bash
 magnet:?xt=urn:btih:86CD419FE4426EFCBB4335CE14B1518E1C77CFE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ Nanatsu no Taizai: Mokushiroku no Yonkishi 2 | The Seven Deadly Sins: Four Knigh
 magnet:?xt=urn:btih:E4CCA260E4D62E4CB45FDBB7D951DB6CBB77BDD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Shiguan Daliren: Yingdu Pian | Time Agent: Bridon Arc | Агент времен�
 ```bash
 magnet:?xt=urn:btih:FA0DE515F8FED1DE8A3270645B2984C8FC13C30A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

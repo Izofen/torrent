@@ -19,6 +19,8 @@ Wondershare MobileGo - это популярный инструмент, ста�
 magnet:?xt=urn:btih:1D6BE612DC568C049CE5B2658BA19FD68EABEC25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ PSD Codec позволяет напрямую просматривать фай�
 ```bash
 magnet:?xt=urn:btih:BCBCD0A3D502130EF8393E66BC8389C7FA15F016
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ AFUWIN - утилита Flash Memory Writer, которая обновляет �
 magnet:?xt=urn:btih:03D1A4DD59AE189130294750915737E1170BF2EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ ZD Soft Screen Recorder записывает все происходящее н�
 ```bash
 magnet:?xt=urn:btih:7980B1D2327AC7C8A27DA30D12E28990478E7FB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ TimeZX-B 1.0 Portable 1.0 [Ru]
 magnet:?xt=urn:btih:AE925A3CAB88C6A70895CE60FF767D49CE704B00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ KMSAuto Helper Lite 1.0.6 Portable [Ru]
 ```bash
 magnet:?xt=urn:btih:44D51FB41608A61C0DB526938E5C540C5E887A9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ WindowBlinds 8.12 – программа, предоставляющая пол�
 magnet:?xt=urn:btih:2C8D64CFD43824CB7286AA626AF1982D49C47510
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ AntiDupl.NET - бесплатная программа с открытым ис�
 ```bash
 magnet:?xt=urn:btih:0704849A7DB27C07EE49F2572E3E9D63882AF751
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Govorilka 2.22 [Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Grisha - программа вычисляет антропометрическ�
 magnet:?xt=urn:btih:0C789A7EA279E304FCCE13C3909BF5AA21C5A003
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ Easy Context menu позволяет вам добавить разнообра�
 magnet:?xt=urn:btih:CD137154B4A61E164A0188698434F60C137B0CF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ Linker 2.3.1.17 Portable[Ru]
 ```bash
 magnet:?xt=urn:btih:1CC1C44743289081BD4E70E4A0483D01ED3B7320
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Multrin 0.4.1 + Portable [En]
 magnet:?xt=urn:btih:2AE1B8F3382D86C5D3CBACE35A508151B330F5C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Advanced Woman Calendar 6.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A8A53A1509F1F30AFFA99A2F12CE52572738CCFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +392,8 @@ Vpings — бесплатная программа, которая украси�
 magnet:?xt=urn:btih:8D88CDEDC0D833C7D321282A013D649C2682DFC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ InputMapper 1.5.31 [En]
 ```bash
 magnet:?xt=urn:btih:6D559FECAB60D12B3A99E6846775AE20D87C427F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ Collection Studio — программа, которая помогает кол
 magnet:?xt=urn:btih:354AEA252ACFF5595CF698FA7F1395C9D1285090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ USB Disk Ejector — это отличная альтернатива систе
 ```bash
 magnet:?xt=urn:btih:761F97EDCBB4A038B2B43C2B7D871FAF3C7890AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ ColorBug 3.1.0.0 + Portable [Multi]
 magnet:?xt=urn:btih:4C9BD9F38EE7A242FEA92DD50DB19CED4F4E310C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ Re-Loader Activator - ещё один автоматический актива�
 magnet:?xt=urn:btih:0473B0F606919DD78CF1EDF7F35AB0D0DF2FC68F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ AM-DeadLink 4.7 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:39F85775CF351C3A9582AA6CC57E46A9EA6E133C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Top Task Bar v1.6 - Настраиваемая верхняя панель за�
 magnet:?xt=urn:btih:F2F7EA4CC3E9ED2B60A3CB6EC2062CEC392C9C39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ Karaoke Disk Unpacker 1.11 [En]
 magnet:?xt=urn:btih:5A0D6FE28D88363EDA2BFC14ADBB3EA723B869E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ A-Clock - говорящие часы для рабочего стола с ши
 ```bash
 magnet:?xt=urn:btih:7BA6A591C7E2DA33D33B0F7B478BE512AFB30524
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ XTV Suite - комплекс для вещания в сети интернет 
 magnet:?xt=urn:btih:234F349A31D854E5967993321A8F55FB8C430706
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Malwarebytes FileASSASSIN - утилита, которая позволяет у
 ```bash
 magnet:?xt=urn:btih:FBD6541D6937A9BF8778FF1A175B2F858C6B1553
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

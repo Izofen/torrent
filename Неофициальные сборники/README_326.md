@@ -1,3 +1,32 @@
+###  Публикация: 1236898   (553318) от 22.07.2018
+
+VA - Empire Records - Funky House (2018) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_553318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Caruso - Life Is Better With Sunshine (Radio Version)
+02. Me and My Toothbrush - Hands Off
+03. Lee Cabrera - Shake It (Dj Rabinu & MD Dj Remix)
+04. Quantek - Feeling (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789AF29C7F43828F3A2E81825E443C3A998578F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1308769   (553451) от 16.06.2019
 
 VA - Самые Скачиваемые Треки ВКонтакте Лето 2019 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -22,6 +51,8 @@ VA - Самые Скачиваемые Треки ВКонтакте Лето 20
 magnet:?xt=urn:btih:BB2D5D4532C57D877121AF5C31ED156D1E6B3DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +76,8 @@ VA - German Top 100 Single Charts 21.06.2019 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:C6BE53D6C994A5B4F7723D5FE104D6BF57DEAB3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +106,8 @@ VA - Record Super Chart 591 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 magnet:?xt=urn:btih:F06299AC02D8B0EBC64891D3B9411A69D357EDFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +134,8 @@ VA - The Official UK Top 40 Singles Chart 14.06.2019 [MP3|320 Kbps] <Pop, Dance,
 ```bash
 magnet:?xt=urn:btih:FFC1F32D4B389CF5303F15895E1D3ECC59E0CA93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +164,8 @@ VA - Empire Records - Deep Blue 2 (2018) [MP3|320 Kbps] <House, Deep House, Prog
 magnet:?xt=urn:btih:39DBE0CBAAE9C16109D44422C8D96BFC793FD079
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +192,8 @@ VA - SMT Collection (1988-2007) авторская раздача [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:767B136E4E18181781C4187D4E5228A0AEAF68AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +222,8 @@ VA - Billboard Hot 100 Singles Chart 21.07.2018 (2018) [MP3|320 Kbps] <Hip-Hop, 
 magnet:?xt=urn:btih:D3FC0126ABA8C64C5A4CA74CAF7F535B526BAC11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +250,8 @@ VA - TOP Non-Stop 2010-2015 - Trance. Volume 2. Trance Around The World with Abo
 ```bash
 magnet:?xt=urn:btih:F24968AECEC107847EC68EA82E1484D494B42FB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +280,8 @@ VA - TOP Non-Stop 2010-2015 - Trance. Volume 1. Set Of New Feelings (2016) [MP3|
 magnet:?xt=urn:btih:F2ECAF5BF1599A9C1D88B742949AC63BD1210C0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +308,8 @@ VA - Российские новинки (2018) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:C8DBC9981F27EAF6D77583980D307C15DBCE932E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +338,8 @@ VA - Топ 30 крутяк недели от Муз-ТВ Июль (2018) [MP3|3
 magnet:?xt=urn:btih:DC6ABF040AD6ADD85FD9612260E42BFC8CE56136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +366,8 @@ VA - Latin Summer Compilation (2018) [MP3|320 Kbps] <Pop, Dance, Latin>
 ```bash
 magnet:?xt=urn:btih:187DA43CB5D5A94171ACA460B9702BE22A049C1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +396,8 @@ VA - Good Vibes (2018) [MP3|320 Kbps] <Deep, Techno House, Electro>
 magnet:?xt=urn:btih:4F4574D7A66F7C228D6EBBE465980B241015D4AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +424,8 @@ VA - Cyber World: Electronic Space Party (2019) [MP3|320 Kbps] <Electro, Dance H
 ```bash
 magnet:?xt=urn:btih:04FB8EB296D67B900F48189786FA419C3CD032ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +454,8 @@ VA - Warm Time Electro House (2019) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:841A3961401665151C7EF5604DD2F9F97CDB7240
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +482,8 @@ VA - Liquid Electro House (2019) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:A9957372219798888967A6B50D20EB660C88B8FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +512,8 @@ VA - The Best Road Trip Collection (2019) [MP3|320 Kbps] <Blues-Rock, Rock>
 magnet:?xt=urn:btih:67A14D55F290754851ABC19927436D8ACF99A39E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +540,8 @@ VA - Behold In Now: Alternative Compilation (2018) [MP3|320 Kbps] <Rock Alternat
 ```bash
 magnet:?xt=urn:btih:A8DA7878061BB962B1057FBDE8DA84C31C64E746
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +570,8 @@ VA - не Громкие новинки недели 20 (2019) [MP3|320 Kbps] <P
 magnet:?xt=urn:btih:5F1F86D26879C3C9534CCFEA6ED7AD91BCB5761C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +598,8 @@ VA - Cybertronic: Trance Psychedelic (2018) [MP3|320 Kbps] <Psy Trance, Synth Tr
 ```bash
 magnet:?xt=urn:btih:85D143C513304293FB7510C8EED006BF4AC6F09A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +628,8 @@ VA - German Top 50 Party Schlager Charts 10.06.2019 (2019) [MP3|320 Kbps] <Pop, 
 magnet:?xt=urn:btih:85FCBCB0B79FB1A1899E5D5BCDD20706750C7C2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +656,8 @@ VA - Зайцев.нет: Музыкальные новинки Июль 2018 [M
 ```bash
 magnet:?xt=urn:btih:283991963896F9711CEACAF7D4762E697435ED7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +686,8 @@ VA - Deep House Collection Vol.179 (2018) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:02B56F3C6D445A9782B377D2750AE89B68C331FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +714,8 @@ VA - Club Dance Ambience Vol.156 (2018) [MP3|320 Kbps] <Club Dance>
 ```bash
 magnet:?xt=urn:btih:06437059DEBEDCAAB8E2C42D4FFC49EFA7C4CACC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,32 +744,7 @@ VA - Heartbreack Hotel Vol. 02 (2019) [MP3|320 Kbps] <Jazz, Blues, Soul>
 magnet:?xt=urn:btih:EC5C5C5E2235D218D9A8C7CA46C824519A8C974D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307746   (554637) от 11.06.2019
-
-VA - Top 100 Drum & Bass Vol.1 (2019) [MP3|320 Kbps] <Liquid Funk, Drumfunk, Soulful D&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_554637.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Afrik & Vanger - Waiting For A Wonder (Original Mix)
-002. ALB - Movements (Original Mix)
-003. Alibi feat. Lorna King - You (nCamargo Remix)
-004. Apollon feat. Shiva - Can`t Hide (Original Mix)(   Читать дальше...   )Жанр: Liquid Funk, Drumfunk, Soulful D&BПродолжительность: 07:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8743808C40607A8247BD2313A11240805CC040BB
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

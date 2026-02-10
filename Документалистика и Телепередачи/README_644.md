@@ -1,3 +1,29 @@
+###  Публикация: 1497303   (863057) от 23.09.2021
+
+Эволюция / Evolution (1923) WEBRip
+
+>>Документалистика и Телепередачи
+>>Живая природа
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_863057.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм представляет собой научно-популярный фильм об эволюции жизни на планете Земля. Интересен тем, что снят еще в эпоху немого кино. С тех пор научная концепция о происхождении и эволюции жизни в целом не изменилась. Так что  интерес тут не биологический, а исторический, киноведческий.Телекомпания: США, Бельгия / Inkwell Studios, Out of the Inkwell Films, Red Seal PicturesЖанр: Документальный, ПриродаРежиссер: Ovide Decroly, Макс ФляйшерПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6581F63810C1D0A36EC04BD6532FEEEDA6C29214
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497726   (863058) от 23.09.2021
 
 Крым / Crimea (2020) WEBRip [VP9/2160p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:27387F713EE2394F109D3254AE850B8091114961
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:27387F713EE2394F109D3254AE850B8091114961
 magnet:?xt=urn:btih:26D655B9335F0C96DF2CE4C36E2101FCED4202A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:26D655B9335F0C96DF2CE4C36E2101FCED4202A6
 ```bash
 magnet:?xt=urn:btih:7D18B76A336EEBCD4EEE35432990C57235A20F91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:7D18B76A336EEBCD4EEE35432990C57235A20F91
 magnet:?xt=urn:btih:321BC609D11ECDEDAE8750BCB6E8AD1F52D3766D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:321BC609D11ECDEDAE8750BCB6E8AD1F52D3766D
 ```bash
 magnet:?xt=urn:btih:2458644F0A1A2B603D3367078E6A16052DDF4426
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:2458644F0A1A2B603D3367078E6A16052DDF4426
 magnet:?xt=urn:btih:F6107E1CE5C05F2385A194DAF7C93BDD2E1C6803
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:F6107E1CE5C05F2385A194DAF7C93BDD2E1C6803
 ```bash
 magnet:?xt=urn:btih:C09E7D3699FB0418EE8A5B89668D0ADAA5643267
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:C09E7D3699FB0418EE8A5B89668D0ADAA5643267
 magnet:?xt=urn:btih:06CC8F9DEE37250DA3A0CE95FB5363FCEB025CA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:06CC8F9DEE37250DA3A0CE95FB5363FCEB025CA9
 ```bash
 magnet:?xt=urn:btih:27236B0A5820623B84881F7B942924EB20EA1005
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:27236B0A5820623B84881F7B942924EB20EA1005
 magnet:?xt=urn:btih:2871D01D502BE61DE7B377A4AB4C418EC323F1EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:2871D01D502BE61DE7B377A4AB4C418EC323F1EF
 ```bash
 magnet:?xt=urn:btih:014B37F4D1B4B505280FDAE32B5DA0A36A3EF3C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:014B37F4D1B4B505280FDAE32B5DA0A36A3EF3C4
 magnet:?xt=urn:btih:1D2D529F3212ABFE8AE2561B3C96BC6ADD2BF879
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:1D2D529F3212ABFE8AE2561B3C96BC6ADD2BF879
 ```bash
 magnet:?xt=urn:btih:C3DC1F6EFDB15D795B4BA1C86DEE8DD8A36CD95B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:C3DC1F6EFDB15D795B4BA1C86DEE8DD8A36CD95B
 magnet:?xt=urn:btih:5C4B8EEE00AA9DB2BCEB497519C410FE8C7FDCB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:5C4B8EEE00AA9DB2BCEB497519C410FE8C7FDCB6
 ```bash
 magnet:?xt=urn:btih:E7F709DF13BD6DEBCFE11E37106B9D647DBE0738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:E7F709DF13BD6DEBCFE11E37106B9D647DBE0738
 magnet:?xt=urn:btih:250587E5B1BAE0D9FDD6C56B66C991C7F1D68F6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +460,8 @@ magnet:?xt=urn:btih:250587E5B1BAE0D9FDD6C56B66C991C7F1D68F6E
 ```bash
 magnet:?xt=urn:btih:4EFBD6BB9068FF8835B35BF457533A1900124F7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:4EFBD6BB9068FF8835B35BF457533A1900124F7D
 magnet:?xt=urn:btih:47D413E5EF1F385532352951485A767ADCF63019
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ magnet:?xt=urn:btih:47D413E5EF1F385532352951485A767ADCF63019
 ```bash
 magnet:?xt=urn:btih:0DF481A36CB769E5F74761AF0AF8846A4B87416C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:0DF481A36CB769E5F74761AF0AF8846A4B87416C
 magnet:?xt=urn:btih:3761E28FE0BFEFB220D1C4F7C7EAE6A144596C21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +565,8 @@ magnet:?xt=urn:btih:3761E28FE0BFEFB220D1C4F7C7EAE6A144596C21
 ```bash
 magnet:?xt=urn:btih:B66D7A8473B7BE22D2FE1365C66C5FF61EDE4B0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +592,8 @@ magnet:?xt=urn:btih:B66D7A8473B7BE22D2FE1365C66C5FF61EDE4B0C
 magnet:?xt=urn:btih:5B64BB9E35A52BA5ED493B376167C74CA7A84C37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +617,8 @@ magnet:?xt=urn:btih:5B64BB9E35A52BA5ED493B376167C74CA7A84C37
 ```bash
 magnet:?xt=urn:btih:3F1CE67753C02758234087D10B89EAEF2595DB52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:3F1CE67753C02758234087D10B89EAEF2595DB52
 magnet:?xt=urn:btih:7780CABD264D99362527D22B4F780A3DEF8178BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,29 +670,7 @@ magnet:?xt=urn:btih:7780CABD264D99362527D22B4F780A3DEF8178BB
 magnet:?xt=urn:btih:A2C969EC4DE4FB2BFA8BF3D05679BE6F045A87CF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999584   (864725) от 22.03.2016
-
-Вести.Doc с Ольгой Скабеевой. Терракты в Брюсселе (22.03.2016) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_864725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый информационно-документальный проект - это не просто политическое ток-шоу. "Вести.doc" - это возможность увидеть самые громкие документальные премьеры - в первую очередь качественный продукт. В программе сенсационные расследования и вдумчивый анализ событий.В этом выпуске: Продолжительность: 02:01:30Телекомпания: Россия 1Жанр: Телепередача
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF0508FF2CD9B1079E374A570C6F3EA40F2A220E
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

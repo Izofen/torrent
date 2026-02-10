@@ -1,3 +1,29 @@
+###  Публикация: 627377   (941614) от 07.03.2013
+
+М. М. Юдович | Труд, талант, победа [1969] [DJVU]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Книга "Труд, талант, победа" - первая в многотомной серии "Выдающиеся шахматисты мира" издательства "Физкультура и спорт". Эта книга рассказывает о том, как зародилось, росло и развивалось шахматное движение в нашей стране. В её создании принимают участие чемпион мира Б. Спасский, экс-чемпионы мира В. Смыслов, М. Таль, Т. Петросян и другие сильнейшие шахматисты нашего времени.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EA8A4C1187A67319DC9CAC049CEBE93D2F9173D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 282854   (941625) от 16.01.2011
 
 [Guide] Dragon Age Origins & Dragon Age Awakening Bundle - Полноe Официальное Руководство [PDF, ENG]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B1ED21B2DF2522B577EFEA854871FB9D16DD0627
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:B1ED21B2DF2522B577EFEA854871FB9D16DD0627
 ```bash
 magnet:?xt=urn:btih:DEEBD3AC279A2F76A296B8562C9425EED044FEAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +102,8 @@ magnet:?xt=urn:btih:DEEBD3AC279A2F76A296B8562C9425EED044FEAC
 magnet:?xt=urn:btih:9AB5D93F429ED47A41272932F48282B9BCBCE302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +129,8 @@ magnet:?xt=urn:btih:9AB5D93F429ED47A41272932F48282B9BCBCE302
 ```bash
 magnet:?xt=urn:btih:CF3E907AEA6DE374352C5D346B7252CD78BE15B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +158,8 @@ magnet:?xt=urn:btih:CF3E907AEA6DE374352C5D346B7252CD78BE15B6
 magnet:?xt=urn:btih:D023EF8C5C2CB836CB32A86555D781FBA47702B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +183,8 @@ magnet:?xt=urn:btih:D023EF8C5C2CB836CB32A86555D781FBA47702B3
 ```bash
 magnet:?xt=urn:btih:E4F22AD591888A8AA7379BC14297CCC895402B3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +210,8 @@ magnet:?xt=urn:btih:E4F22AD591888A8AA7379BC14297CCC895402B3D
 magnet:?xt=urn:btih:54E33CB3B16A01F46453948D338251B6A09D85D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:54E33CB3B16A01F46453948D338251B6A09D85D1
 ```bash
 magnet:?xt=urn:btih:EB2306EB0BD31AFEDA0DEB0F06391FE0F69EB0B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +263,8 @@ magnet:?xt=urn:btih:EB2306EB0BD31AFEDA0DEB0F06391FE0F69EB0B8
 magnet:?xt=urn:btih:6424A92335607BD91EA3E7B338C168D21359A941
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:6424A92335607BD91EA3E7B338C168D21359A941
 ```bash
 magnet:?xt=urn:btih:4892B9A9E0E258DB9ECAF5E58BA91FD1F9076AD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +318,8 @@ magnet:?xt=urn:btih:4892B9A9E0E258DB9ECAF5E58BA91FD1F9076AD9
 magnet:?xt=urn:btih:30CCFF5E8105625446B595D6010B1B264F1F39FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +343,8 @@ magnet:?xt=urn:btih:30CCFF5E8105625446B595D6010B1B264F1F39FC
 ```bash
 magnet:?xt=urn:btih:60EBCD45093804DCE8A0BAF95CA49A247E2F75EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +371,8 @@ magnet:?xt=urn:btih:60EBCD45093804DCE8A0BAF95CA49A247E2F75EB
 magnet:?xt=urn:btih:8D77C2EF847B95DF01CD8F0E1686F10090819CEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +396,8 @@ magnet:?xt=urn:btih:8D77C2EF847B95DF01CD8F0E1686F10090819CEF
 ```bash
 magnet:?xt=urn:btih:AF554450B8669F17F6797D12709A09A97208B5C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -369,6 +423,8 @@ magnet:?xt=urn:btih:AF554450B8669F17F6797D12709A09A97208B5C1
 magnet:?xt=urn:btih:89B73896C4BC2555419E1FA50D92F505F7F54AAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:89B73896C4BC2555419E1FA50D92F505F7F54AAD
 ```bash
 magnet:?xt=urn:btih:45BA8D1750D3EEA1C586143E8A367680DC496923
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +475,8 @@ magnet:?xt=urn:btih:45BA8D1750D3EEA1C586143E8A367680DC496923
 magnet:?xt=urn:btih:845AA0228E980DC50262515C5C2D4AE3596FA12D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:845AA0228E980DC50262515C5C2D4AE3596FA12D
 magnet:?xt=urn:btih:60587882DB158E3603A59562BFCE78D1CF39F8DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:60587882DB158E3603A59562BFCE78D1CF39F8DB
 ```bash
 magnet:?xt=urn:btih:8F1DEEFF4942DBBCB295F93C73886CE060160993
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:8F1DEEFF4942DBBCB295F93C73886CE060160993
 magnet:?xt=urn:btih:3BC70C257AA09E8F4DBA149701DEAC3852A73F65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +580,8 @@ magnet:?xt=urn:btih:3BC70C257AA09E8F4DBA149701DEAC3852A73F65
 ```bash
 magnet:?xt=urn:btih:98FCB4E8BD8AB6C6FF89A048D7A6FEDBC33527E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +608,8 @@ magnet:?xt=urn:btih:98FCB4E8BD8AB6C6FF89A048D7A6FEDBC33527E0
 magnet:?xt=urn:btih:F15036A3D9BAFA6F9A4284B7C8EABB84E28A3EB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +635,8 @@ magnet:?xt=urn:btih:F15036A3D9BAFA6F9A4284B7C8EABB84E28A3EB7
 magnet:?xt=urn:btih:69880338192D9CB6DE63E4136090581579E43FC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +661,8 @@ magnet:?xt=urn:btih:69880338192D9CB6DE63E4136090581579E43FC2
 ```bash
 magnet:?xt=urn:btih:0C8C2D6761DBC3F006579B7ED4139E8ABF0E4331
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,29 +690,7 @@ magnet:?xt=urn:btih:0C8C2D6761DBC3F006579B7ED4139E8ABF0E4331
 magnet:?xt=urn:btih:B47AC9796E211F1E6A11FBFBB0559E18FE02C194
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 626979   (942305) от 06.03.2013
-
-Подборка книг | Как восстановить здоровье [2013] [FB2]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию представлена тематическая книжная подборка: Как восстановить здоровье в 104 томах на все случаи жизни и в удобном формате.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91879467A112A0053FF853BB91BF443413A15366
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

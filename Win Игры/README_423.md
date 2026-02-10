@@ -1,27 +1,3 @@
-###  Публикация: 1034649   (633946) от 13.07.2016
-
-Dark Dimensions 7: Blade Master / Темные измерения 7: Мастер клинков (2016) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
-
->>Win Игры
->>Adventure/Quest (Casual)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daily Magic с гордостью представляет новую игру серии Dark Dimensions! То, что начинается как веселое шоу, быстро принимает смертельный поворот. Только вы можете спасти город New Auburn и раскрыть тайну Master Blade, прежде чем станет слишком поздно. В коллекционное издание включены так же дополнительная глава, встроенное прохождение, обои для рабочего стола, концепт-арт, (   Читать дальше...   )Тип издания: UnofficialРазработчик: Daily MagicЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF19D7C95F552416DBB6A4975A285ABF0F53F528
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034784   (634038) от 13.07.2016
 
 MechaGore (2016) [Ru/Multi] (1.6) License HI2U
@@ -42,6 +18,8 @@ MechaGore - это аркадная приключенческая игра пр
 ```bash
 magnet:?xt=urn:btih:3A251DDDCE8F8564F243131908A634096D412A98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Distant Worlds с самого начала подкупает своим нев
 magnet:?xt=urn:btih:EE90350411A84CB4800C609C4329F33E424FB6D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Brigador (2017) [Ru/Multi] (1.3.2a) License GOG [Up-Armored Deluxe]
 ```bash
 magnet:?xt=urn:btih:64291FA19DF48F1EFA6E633799933F26F035ABB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Streets of Moscow / Адреналин 2: Час пик  (L) [Ru] 2007
 magnet:?xt=urn:btih:5E1AA116E3BB87CD10BCBABA830343B0021C2A98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Shank 2 (Repack/1.0dc120305) [Ru] 2012 | Fenixx
 ```bash
 magnet:?xt=urn:btih:4A5314548D4FAFCB265792BF8948B8E9C4F1E9CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Pillars of Eternity (2015) [Ru/Multi] (3.06.1254/dlc) SteamRip R.G. Игрома
 magnet:?xt=urn:btih:3294AFD87C7E6238D686CE9F321B04CA3B6CA5FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Shank - Дилогия (Lossless RePack) [Ru/En] 2010-2012 l R.G. Origami
 ```bash
 magnet:?xt=urn:btih:AE030A17A9F7188425BEFAE4FF7FE2DCB09D4688
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Star Vikings – это ролевая игра-головоломка для л
 magnet:?xt=urn:btih:200F9AE3FF1D699C46FAAEB59223FB63B7E8218E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ Generation Zero (2019) [Ru/Multi] (1.0) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:EEDAE94114669C6D91FC2C4F50FA5E9184F6AA4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Borderlands - The Pre-Sequel (2014) [Ru/Multi] (1.0.8/dlc) Repack xatab
 magnet:?xt=urn:btih:E57040BF4D36AAED24B9EA4FE5551E30FC18868A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ What Makes You Tick: A Stitch in Time / WMYT: Всему свое время (P)
 ```bash
 magnet:?xt=urn:btih:2FC867C82D80C8822C646629ACAB216705B80052
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ MarZ: Tactical Base Defense (2019) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:B1CD6DB1D45E17DEE6B60709B895518C5D696EE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Borderlands - The Pre-Sequel (2014) [Ru/Multi] (1.0.8/dlc) License PLAZA
 ```bash
 magnet:?xt=urn:btih:619CBD8E08D902941CE72F7A164755B93B3E6B79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Pure Farming 2018 (2018) [Ru/Multi] (1.2.0/dlc) Repack xatab [Deluxe Edition]
 magnet:?xt=urn:btih:F7C7A36ECC6B0169C3A4A020AF2BDB5A17E23976
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Mystery Tales 11: Dealer's Choices (2019) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:710CFA47C598D4D95DA7CC923DF4BD09CF77A2CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Secrets of the Dark: The Flower of Shadow / Тайны Тьмы: Цветок Т
 magnet:?xt=urn:btih:40645BA5183615F2B274EF699699D7CA726B0852
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ Haven Moon (2016) [Ru/Multi] (1.0) SteamRIP ALiAS
 ```bash
 magnet:?xt=urn:btih:4D24BF0947925696DAB99B0B9201A0412713C3EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Haven Moon (2016) [Ru/Multi] (1.0) License POSTMORTEM
 magnet:?xt=urn:btih:926A187EE8C2F8C0A2D6760EC13AC72650E88CC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ New York Mysteries 2: High Voltage (2015) [En] Unofficial [Collector's Edition /
 ```bash
 magnet:?xt=urn:btih:126EEB7C45C5CD23D37C265AF288C3E648C44539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Danse Macabre 4: Thin Ice (2015) [En] Unofficial [Collector's Edition / Колл
 magnet:?xt=urn:btih:604B1A44107939B40409D86834CA0772AC90F6EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Political Animals - легкомысленный симулятор выборо
 ```bash
 magnet:?xt=urn:btih:B5CE47E2B57F22D65F7767FB582CF32A31DDDA5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Pathway — это стратегическая RPG в атмосфере 1930-�
 magnet:?xt=urn:btih:39F913D468A68C73E76DA9C6A7E6A0F853CC3933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ Song of Horror (2019) [Multi] (1.25/dlc) License GOG [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:45C204C573B5AE0E51B2A5C9897097E1B10DC480
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ Wonder Boy: The Dragon's Trap - это неожиданное возвращен
 magnet:?xt=urn:btih:10151968D237F2DDD7FBE022AEAF79C59EFA54F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ Grim Facade: Sinister Obsession Collector's Edition / За гранью жест
 ```bash
 magnet:?xt=urn:btih:75F07443D691A71699A005B1FA35563C34EA02C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062394   (636775) от 03.04.2019
+
+GoNNER (2016) [Ru/Multi] (1.0.16111501) License GOG [BluEBERRY EDiTiON]
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_636775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это ад? Это сон? Сухопутные киты действительно существуют? Неважно. Главное, что у вас есть огромная универсальная пушка, прыгучее тело и куча демонов на расстрел. Где-то в этом жутком мире гнетущей темноты, пастельных красок и агрессивных черепов лежит безделушка, которая порадует вашего друга - огромного кита. И чтобы ее достать, надо всего лишь выполнить парочку (   Читать дальше...   )Тип издания: LicenseРазработчик: Art in HeartЖанр: Шутер, Экшн, ПлатформерЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1820EF9ADD6E68E5CFFA3A4FABC6B1B980F81835
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

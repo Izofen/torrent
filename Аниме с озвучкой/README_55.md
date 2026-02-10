@@ -19,6 +19,8 @@ Hitsugi no Chaika / Chaika the Coffin Princess / Чайка и Гроб [2014, T
 magnet:?xt=urn:btih:3F48931BDEF43C1A9B8EB13290C2F50B33B96BBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Gun x Sword | Gun Sword | Огнем и мечом [2005, TV, 26 эп.] DVDRip 4
 magnet:?xt=urn:btih:6151D874B2817F59965FDDF7350D316991A35464
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Ou Dorobou Jing | King of Bandit Jing | Приключения Джинга | Д
 ```bash
 magnet:?xt=urn:btih:C8FA53ABB3B40A905A2C3DB3AC3D11E0F1833EDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ TV2+OVA - Любительский (многоголосый) |Субтитры:
 magnet:?xt=urn:btih:446E5D60AE98F4D0A792E74A329BF8D011C676A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Kono Subarashii Sekai ni Shukufuku wo! | Этот замечательный м�
 ```bash
 magnet:?xt=urn:btih:52B4AB0E01A4F38E5F54DBAD53C11E70B69EC726
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Final Fantasy VII: Advent Children | Последняя фантазия VII: Д
 magnet:?xt=urn:btih:DDA741830180620A4235AA212461F0DBBA02CE57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Jibaku Shounen Hanako-kun | Toilet-Bound Hanako-kun | Туалетный мал�
 magnet:?xt=urn:btih:FCE2EDE2319D45F6F59542F33166B032F4A35BB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:FCE2EDE2319D45F6F59542F33166B032F4A35BB0
 ```bash
 magnet:?xt=urn:btih:4767CFEA52B2DFEA5B1489CC912FA452BFE7AE20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Guilty Crown | Корона Греха [2011, TV, 22 ep + OVA] BDRip 1080p 10-bi
 magnet:?xt=urn:btih:05089C07020BE56DB07E7F8999920C56F46DA075
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Dakara Boku wa, H ga Dekinai | Говорю же, я не Извращенец! 
 magnet:?xt=urn:btih:0D1871684A7A8FEDB007607F3876288719516C74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Maoyuu Maou Yuusha | Герой при Заклятом Враге [2013, TV, 12
 ```bash
 magnet:?xt=urn:btih:993AE6B929F3094A0674EA580B29C794F335FBC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Toaru Kagaku no Accelerator | A Certain Scientific Accelerator | Некий на
 magnet:?xt=urn:btih:4141B342D622A2A42399B65CBBA12060545DF302
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Aldnoah.Zero | Алдноа.Зеро [ТВ-1] [2014, TV, 12 из 12] BDRip 1080p
 ```bash
 magnet:?xt=urn:btih:015D09D5B8EF1CB2CE22BCE1BADB739ADB87B863
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Musaigen no Phantom World | Myriad Colors Phantom World | Бескрайний �
 magnet:?xt=urn:btih:A937F176408587D53EE8B979FB377379B52C3FC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Aldnoah.Zero | Алдноа.Зеро [ТВ-2] [2015, TV, 12 из 12] BDRip 1080p
 ```bash
 magnet:?xt=urn:btih:8CFBD44BD618BFAE6823022E2C13AD95A61E5357
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Shisha no Teikoku / The Empire of Corpses / Империя мертвых [2015,
 magnet:?xt=urn:btih:98E5741BCBD875C1325516FADC652B22837E9753
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Yuusha ni Narenakatta Ore wa Shibushibu Shuushoku o Ketsui Shimashita | Геро
 ```bash
 magnet:?xt=urn:btih:EE351D76C6A075473E81A6B38D265C8991FCFA4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Hells Angels | Hells | Ангелы Ада [2008, Movie] BDRip 1080p 10-bit raw+
 magnet:?xt=urn:btih:7A588E9D94EC210436CBDCEDC075CF947911AE95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Chaos Dragon: Sekiryuu Seneki / Драконий хаос: Война красн
 ```bash
 magnet:?xt=urn:btih:27F86D65B11ABA9CDD8DA6AD46B3C79DF6FC116A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ magnet:?xt=urn:btih:27F86D65B11ABA9CDD8DA6AD46B3C79DF6FC116A
 magnet:?xt=urn:btih:1CB834ADA875268DED39F5DC5C2B1741370CC5C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Soul Eater | Пожиратель Душ [2008, TV, 51 ep] BDRip 1080p raw+rus
 ```bash
 magnet:?xt=urn:btih:E8B8E8F4AF4F52A2A49C8FDC1B79F019EBCE4A2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ Babylon | Вавилон [2019, TV, 12] WEBRip 1080p raw+rus
 magnet:?xt=urn:btih:2264DF79C7745A42EE022A262C114B7E9DFE93BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Isekai Cheat Magician | Маг-обманщик из другого мира [20
 ```bash
 magnet:?xt=urn:btih:D4961C51AAF759F756FCC5B9D9CACF229EB140BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ Steins;Gate 0 | Врата Штейна 0 [2018, TV, 23 ep+1 sp] BDRip 1080p raw
 ```bash
 magnet:?xt=urn:btih:6F01CF067BA96551DD26B5289CFF8C0AC04C53CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Gekijouban Steins;Gate: Fuka Ryouiki no Deja vu | Врата Штейна: Зо�
 magnet:?xt=urn:btih:4B6CF9419BB16AB9CCEF09156954977FEFEB2391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Chaos;Head | Хаос; Вершина [2008, TV, 13 ep] BDRip 1080p 10-bit raw+r
 ```bash
 magnet:?xt=urn:btih:4242177E6E98451E59A83E3B95DD761D88A6449B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

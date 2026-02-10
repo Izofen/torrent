@@ -1,3 +1,32 @@
+###  Публикация: 1176167   (371919) от 21.10.2017
+
+VA - Miss Caramelle: Classic Vocal House (2017) [MP3|320 Kbps] <Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_371919.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Solid Stone & Michael Gin - Xonic
+002. Disco Fries - Moving On (Original Mix)
+003. One Second For Chill - We See the Light
+004. Forerunners - Watercolour(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 08:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73FFC8F1F01746D1409167D280E982D5C34A9C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176433   (371939) от 21.10.2017
 
 VA - Record Super Chart #508 (2017) [MP3|320 Kbps] <House, Club, Dance>
@@ -21,6 +50,8 @@ VA - Record Super Chart #508 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:6085F1522D0E3A368B6810735461CDA36CD46C89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ magnet:?xt=urn:btih:6085F1522D0E3A368B6810735461CDA36CD46C89
 magnet:?xt=urn:btih:457633E68D565352D5AC3C5D4EA4E61A60DACA5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Club Dance Ambience Vol.165 (2018) [MP3|320 Kbps] <Dance, Club, House>
 ```bash
 magnet:?xt=urn:btih:5051220DA59D40697D95466F21B10CF372EBD8B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ VA - Начнем сначала. Русский сборник попмузык
 magnet:?xt=urn:btih:AC3B8B3CFDFDA80513AE85B8200CB23A0EC666A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ VA - Русское радио: Хит-парад 'Золотой Граммоф
 ```bash
 magnet:?xt=urn:btih:E8D358ED718B2B8776B1C7673B88E93E6983E7D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +199,8 @@ Hits of My Soul - сборник электронной и инструмент�
 magnet:?xt=urn:btih:7AA8080C471A3736E450E8E75F6A14CA1ED29BCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +227,8 @@ VA - Дискотека забытых хитов (зарубежная) - 17 (2
 ```bash
 magnet:?xt=urn:btih:5A994037C934057FAFCB8446068EA90F40702FDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +257,8 @@ VA - Auto Hits - 100 Tracks In Avto (2015) [MP3|320 кб/с]<Club , Dance , Hous
 magnet:?xt=urn:btih:8C97918604427EA15F092E26B17D4A80B2ED90AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +285,8 @@ VA - Музыкальное свежье русский выпуск 5 (2015) [M
 ```bash
 magnet:?xt=urn:btih:5E156A235A3C5A7DC501AA31E65E8B0F814BFCF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +315,8 @@ VA - Autumn Dance Hits Vol.1 (2015) [MP3|320 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:86B770A538496C9D77BF318227EFEA2348AC68AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +343,8 @@ VA - Vocal Trance Collection Vol 139 (2015) [MP3|320 кб/с]<Trance, Vocal Tran
 ```bash
 magnet:?xt=urn:btih:3F23EE7BD900BC897151C7D53DC7E6F5A0602C24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +373,8 @@ VA - Extra Lounge (episode 12) (2015) [MP3|320 кб/с]<Lounge, Chill Out>
 magnet:?xt=urn:btih:3E07910E808CD08B92AA5E8B0D957BA0116470CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +401,8 @@ VA - Best Of Vocal Trance Classics Vol 2 (2015) [MP3|320 кб/с]<Trance, Uplift
 ```bash
 magnet:?xt=urn:btih:43C1E3A72FD363D8A7D62D1ED12EA6162EA962B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +431,8 @@ VA - Play Exclusive Cloud October 2018 (2018) [MP3|320 Kbps] <Dance>
 magnet:?xt=urn:btih:767DE11EEDC6924C55A1878FDF4C466C89AF1C68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +459,8 @@ VA - Halloween Party (20 Trick or Treat Dance Hits) (2015) [MP3|320 кб/с]<Dan
 ```bash
 magnet:?xt=urn:btih:2B49AADF5F4E071A978092633B0A8D42B3FEDDE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +489,8 @@ VA - New Generation Italo Disco - The Lost Files Vol. 16 (2022) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:124E817957FD1FBDBD713105A7D70289340CC952
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +517,8 @@ VA - Club Summer 2015 (2015) [MP3|320 кб/с]<Deep House, R&B, Dance>
 ```bash
 magnet:?xt=urn:btih:CAD4B294E05EDB4F49F46CDFADE9EADE4D0F9B46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +547,8 @@ VA - Gold Lounge - The Lounge of Luxury (2015) [MP3|320 кб/с]<Downtempo, Loun
 magnet:?xt=urn:btih:999432AA06B12147F488032BCA8D50DDC5921019
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +576,8 @@ VA - German Top 100 Single Charts 15.10.2018 [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:C774185DD51A49BA7139488910FC25BEB225E563
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +604,8 @@ VA - New Generation Italo Disco - The Lost Files Vol. 15 (2022) [MP3|320 Kbps] <
 ```bash
 magnet:?xt=urn:btih:C2D579252C6851BEDF42C1DB0C285A06C0D1DC01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +637,8 @@ VA - Trance. Vocal Fascination 36 (2012)
 magnet:?xt=urn:btih:DC7D271055F56DE8A8CFE1DB27636992BD2DCCCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +665,8 @@ VA - Partybreaks and Remixes - All In One October (short version) (2016) [MP3|32
 ```bash
 magnet:?xt=urn:btih:9D1EB962416BCA2EC6311576707AA354C1349DC0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +695,8 @@ VA - Erotic Summer Night Vol.1: Sexy Chill Out Tunes (2016) [MP3|320 Kbps] <Down
 magnet:?xt=urn:btih:C832F9DD438A27EB9D531C4C7A798937A4B8DD68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +723,8 @@ VA - Trance 100 Best Of 2016 (2016) [MP3|320 Kbps] <Trance, Progressive>
 ```bash
 magnet:?xt=urn:btih:F2008C5DD4DE1C6866E1DECAD38469FBE108D8D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,32 +753,7 @@ VA - Clubfire Times 100 Power (2016) [MP3|240-320 Kbps] <Indie Dance, Bigroom, E
 magnet:?xt=urn:btih:9CD88B1A2A2FFDEDA8C4B6D82E0CA1889A7D462C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069147   (373980) от 04.11.2016
-
-Datura - The Best Of Datura (Remastered Versions: Original And Remixes) (2016) [MP3|320 Kbps] <EuroHouse, Eurodance, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_373980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yerba Del Diablo  4:42
-02. Nu Style  4:31
-03. Eternity  4:18
-04. Fade To Grey  4:42(   Читать дальше...   )Жанр: EuroHouse, Eurodance, TechnoПродолжительность: 01:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9C972A4B5E90F88BE553DBC8D834EE6AC3A12C5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:82B9EB267422983C03EDDC6D9BED5B1CC1F60527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Metamatics - Vogue Casio 96 (2020) Fantasy Enhancing [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:8FBD42A0A2512AE92D1A34080AAFAB243A2292FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Logtail позволяет настроить фильтр и правила.
 magnet:?xt=urn:btih:C2F230A151B490AF9D82CC6985CB31600DD88431
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ VA - Sunrise Avenue Vol 6 20 Lounge and Chill-Out Pearls (2015) [MP3|320 кб/с
 ```bash
 magnet:?xt=urn:btih:59BBA0A94632A906EBA77A3D19BE7C39BC48DA58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Avatarium - Death, Where Is Your Sting (2022) [MP3|320 Kbps] <Heavy Psychedelic,
 magnet:?xt=urn:btih:81142B52A7A2C827CC47D1D3C2C50D9F30CF9F0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ Gothic - это классическая ролевая игра, сюжет к�
 magnet:?xt=urn:btih:88BA2541F74030B9B4EEDFEB5A27793EF2639B1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:88BA2541F74030B9B4EEDFEB5A27793EF2639B1F
 ```bash
 magnet:?xt=urn:btih:FE034FD76CC81D43DF42E14D7748839D3608201C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ SYC 2 устанавливает совершенно новый уровень 
 magnet:?xt=urn:btih:8A1AC06C65EBDA7613CCFE5094D63E3BB4D2224F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +245,8 @@ Beto Vazquez Infinity - Mental Asylum (2021) [FLAC|Lossless|WEB-DL|tracks] <Symp
 magnet:?xt=urn:btih:0D9E178315A824182D1848C290C76AD6C6718386
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ magnet:?xt=urn:btih:0D9E178315A824182D1848C290C76AD6C6718386
 magnet:?xt=urn:btih:AD373FB4439C8A5B9AFCC7B5B3246507EFBFB624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ magnet:?xt=urn:btih:AD373FB4439C8A5B9AFCC7B5B3246507EFBFB624
 ```bash
 magnet:?xt=urn:btih:2C2F21F17623B40FF763D4A5A9A0BBB343C376E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ VA - Gert Records 10 Years Anniversary - (Mixed by DJ OptimuS) (2022) [MP3|320 K
 magnet:?xt=urn:btih:094C3BD79C1C8A9BB45154C7F5DF9854B0B0016B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ magnet:?xt=urn:btih:094C3BD79C1C8A9BB45154C7F5DF9854B0B0016B
 ```bash
 magnet:?xt=urn:btih:928083424CA3810DFAE08F5C0DF8F6A2D2A98D7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:928083424CA3810DFAE08F5C0DF8F6A2D2A98D7F
 magnet:?xt=urn:btih:ED548FF9C40B131443FD73A0B2F5A7534ABF0CAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ NetWorker - это приложение, которое удобно отобр�
 ```bash
 magnet:?xt=urn:btih:59A7347FEF56D6DF4315669BDB1DBB5BF52A04D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:59A7347FEF56D6DF4315669BDB1DBB5BF52A04D6
 magnet:?xt=urn:btih:FE0B20F1C864BF5CAA216796C3E7D4766D1CA44D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +455,8 @@ magnet:?xt=urn:btih:FE0B20F1C864BF5CAA216796C3E7D4766D1CA44D
 ```bash
 magnet:?xt=urn:btih:BDBC1BC4CF9D5BC7A0013FF26E577FF0BDB3A43D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ Anastacia - Anastacia (2004) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop>
 magnet:?xt=urn:btih:AE909E9CD59B3D4BDA6CE4F0100C7501624F98D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +514,8 @@ The Sims 3: Store (2009-2013) (19.12.2013) Repack mitya01201 [Package]
 magnet:?xt=urn:btih:B829B54F9241C9D832BBFECBD3358AB664236745
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:B829B54F9241C9D832BBFECBD3358AB664236745
 ```bash
 magnet:?xt=urn:btih:4711B1DC95E5E2D72A0BFB93C57989B267E69D29
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +566,8 @@ Windows 11 Pro x64 Version 22H2 Build 22621.1992 by Igors_VL [Ru]
 magnet:?xt=urn:btih:615FB8AE4E39C748D82154579438430BF8A007EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +591,8 @@ Stats - это приложение с открытым исходным код�
 ```bash
 magnet:?xt=urn:btih:EABEDA476038AF103B8D9D22975F82C253A0CFC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:EABEDA476038AF103B8D9D22975F82C253A0CFC3
 magnet:?xt=urn:btih:ABFBD795F27B43B15277E786FB39DB3A0C290BF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:ABFBD795F27B43B15277E786FB39DB3A0C290BF2
 magnet:?xt=urn:btih:EFED7FDA94BEF57FA970261AF2FDF8D5CD827488
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +672,8 @@ magnet:?xt=urn:btih:EFED7FDA94BEF57FA970261AF2FDF8D5CD827488
 ```bash
 magnet:?xt=urn:btih:143582D84A3C3687FEAB0806089BEAFDE2D1972F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +701,8 @@ Comedy of Errors - 5 Albums (2011-2022) [MP3|320 Kbps] <Progressive Rock, Neo-Pr
 ```bash
 magnet:?xt=urn:btih:BE2E5AF0A89A468AF2BF3C6AB3451BCD4B21A9AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

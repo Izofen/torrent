@@ -19,6 +19,8 @@ Deadlock 2: Shrine Wars (1998) [En/Ge] (1.2) License GOG
 magnet:?xt=urn:btih:CDC153970C5C7B0E3839434F4D5B0DEC3CCCCB81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ I have no Mouth, and I must Scream (1995) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:580C3C7C2C369AAD222C3C23937CE4887A7C274C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Darklands (1992) [En/Ge] (483.07) License GOG
 magnet:?xt=urn:btih:EE973FBA73F231E6038309EAD777269755F91C15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Deadlock: Planetary Conquest (1996) [En/Ge] (1.20) License GOG
 ```bash
 magnet:?xt=urn:btih:9AB4EB0C016B3911F81343D14743D301CD3FFD44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Oddworld Abe's Exoddus [Ru] (RePack) 1998 | Kirill games
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Gorasul: The Legacy of the Dragon / Горасул: Наследие Драко�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ Cossacks Anthology / Козаки Антология (2003) [En] (1.15/1.30/1.35
 ```bash
 magnet:?xt=urn:btih:19F62017486BE34209BDC66D2F6F1DCA470F6F03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +202,8 @@ Bermuda Syndrome / Бермудский синдром [Ru] (RePack) 1995 | Kiri
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ Transport Giant - компьютерная игра, экономическая 
 ```bash
 magnet:?xt=urn:btih:869A0434665E34568287E48A9D097074760EFB80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +254,8 @@ Liath: World spiral / Лиат: Спираль мира [Ru] (RePack) 1998 | Kir
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Bedlam [Ru] (RePack) 1996 | RG Games/Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +306,8 @@ State of Emergency [Ru] (RePack) 2002 | RG Games/Pilotus
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +331,8 @@ Airlines 2 [Ru] (RePack) 2002 | RG Games\Pilotus
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ Imperialism 2: The Age of Exploration (1999) [En] (1.03) License GOG
 magnet:?xt=urn:btih:D3E54DED862542DE9E9A3DD40B40043CC5E8B612
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ MX vs. ATV Unleashed (2006) [En] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:8B027BACC1442FB46957791083BB48E12A11AD04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ Star Wars: Jedi Knight - Jedi Academy (2003) [Ru/En] (1.01) Rip R.G. Механ�
 magnet:?xt=urn:btih:35E5C339D448CEEAB4A39B02FE68DC18FA1FD1F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ Star Wars: Jedi Knight 2 - Jedi Outcast (2002) [Ru/En] (1.04) Rip R.G. Меха�
 ```bash
 magnet:?xt=urn:btih:E80A10160B127ECAA55AE54E31F61B57BE0323F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ Army Men 3: Toys in Space (1999) [En/Multi] (1.0.0.0) License GOG
 magnet:?xt=urn:btih:8D4B831D6CB29D9FBFB0E64C70367C9FF57F0044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ Undercroft (2006) [En] (1.2) Repack dark_elf2
 ```bash
 magnet:?xt=urn:btih:AFF923544232C7ACFABE61F9818D306F1C022A30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +514,8 @@ Nascar Racing + Nascar Racing 2 (1994-1996) [En] Repack WinterKiss
 magnet:?xt=urn:btih:14F3205C67D6D9F8010E81B201AC8B7BF1175C92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Star Wars: Shadows of the Empire (1997) [En] (2.2.0.11 GOG) License GOG
 ```bash
 magnet:?xt=urn:btih:67C0395E01EAEB3FCF8AB203EF3282F7CD007F5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +566,8 @@ Speed Busters: American Highways (1998) [En] (1.0.0.1) License GOG
 magnet:?xt=urn:btih:4FFE5995C9D346513434BF030664561DE7677B7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +591,8 @@ Prehistorik - компьютерная игра компании Titus Interacti
 ```bash
 magnet:?xt=urn:btih:12B914EAF0BA74BCF5858034B08CDD1253F6E26E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +618,8 @@ Prehistorik 2 - компьютерная игра компании Titus Interac
 magnet:?xt=urn:btih:80BD401D5E05E12F201EE9BF1484B9D39F05B077
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +644,8 @@ Descent: Freespace (1998) [En] (1.06/dlc) License GOG [Battle Pack]
 magnet:?xt=urn:btih:606191035768FFDCE67E2D0D5D1C71DC92EC0F94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Painkiller: Redemption / Painkiller: Искупление (2011) [Ru/En] (1.05f)
 ```bash
 magnet:?xt=urn:btih:9CE681E75F3F6B46C5D664AA26B8F78269F58E49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

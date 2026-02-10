@@ -23,6 +23,8 @@
 magnet:?xt=urn:btih:D1BBCEFADB016BFC4730E62D8939E9827C580DCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ magnet:?xt=urn:btih:D1BBCEFADB016BFC4730E62D8939E9827C580DCB
 ```bash
 magnet:?xt=urn:btih:220240A7695E039EF2E5C35C3DA3E9CD30ED7C08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -81,6 +85,8 @@ magnet:?xt=urn:btih:220240A7695E039EF2E5C35C3DA3E9CD30ED7C08
 magnet:?xt=urn:btih:02BA226490E9B5D5CF96E86E30D89A49943602E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -105,6 +111,8 @@ MKVToolnix - специальный аудио/видео контейнер, п
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +147,8 @@ Dynazty - Дискография (2009-2012) три альбома [MP3|320 kbps
 magnet:?xt=urn:btih:3D415755DCA21F3B98C17D9776F889B0B51EA39E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ DVJ Bazuka - Robobitc (2012) [H.264] WEBRip
 ```bash
 magnet:?xt=urn:btih:618618F8F1733FB649412E0C226F5EAA3535034F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +207,8 @@ Talamasca - Made In Trance (2004) [APE (image+.cue)|Lossless]<Psychedelic / Full
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +232,8 @@ Playboy — легендарный журнал для мужчин, основ�
 ```bash
 magnet:?xt=urn:btih:256445B7370786D4159AA7401FF42171D38E6F58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +259,8 @@ magnet:?xt=urn:btih:256445B7370786D4159AA7401FF42171D38E6F58
 magnet:?xt=urn:btih:46C1F677740BE8416B4AAEDAA2114800116B3070
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +285,8 @@ The Prophet - One Moment (2012) [H264] WEBRip
 magnet:?xt=urn:btih:A0F0082FBD09D185BFCBB8A9219EFCAAD2BCF55D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ CAR - журнал с мировым именем. Великобритания,
 ```bash
 magnet:?xt=urn:btih:FA35A5EB4A4A124A5AC9BA31CA7AFEF295B58E2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +344,8 @@ Duotekk - Dunamis (2011) [MP3|320 кб/с]<Psy-Progressive>
 ```bash
 magnet:?xt=urn:btih:B6174FBDC9D4F61E875CA8817DF79A474B8B1EFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +380,8 @@ VA - Deep Movement Vol.2 (2011) [MP3|320 кб/с]<Deep House,Tech House>
 magnet:?xt=urn:btih:C8D882C128823B7610123E46CFF7F37559008616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +406,8 @@ magnet:?xt=urn:btih:C8D882C128823B7610123E46CFF7F37559008616
 ```bash
 magnet:?xt=urn:btih:C2AC0CBBD510D6A3D381EFC371CB4A385DA2ABA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +437,8 @@ Rchetype - Recharge EP (2011) [MP3|320 кб/с]<Drum & Bass>
 ```bash
 magnet:?xt=urn:btih:72F0D2D6A4C8CE8A64BBDBC19E9FFDCD2BFC7C47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +473,8 @@ VA - Trancern 33.1: Official Compilation (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:284B49569FABB9B5E33C58BC7F48ECD40C4B348D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +500,8 @@ magnet:?xt=urn:btih:284B49569FABB9B5E33C58BC7F48ECD40C4B348D
 magnet:?xt=urn:btih:2507D962D42CF009AE03E46648C2936875667DB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +526,8 @@ magnet:?xt=urn:btih:2507D962D42CF009AE03E46648C2936875667DB4
 magnet:?xt=urn:btih:E80948BF2C4D26138C51BE5466A2E2F21EC44F3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +551,8 @@ magnet:?xt=urn:btih:E80948BF2C4D26138C51BE5466A2E2F21EC44F3C
 ```bash
 magnet:?xt=urn:btih:A081FFE99F6E5A7CB165B5742AE3F7B7562142ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +587,8 @@ VA - Greenosophy (2012) [MP3|320 кб/с]<Downtempo, PsyChill, Ambient>
 magnet:?xt=urn:btih:05955EAF4701F6B8905AF2310FC7B508029F6256
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +612,8 @@ Media Player Classic HomeCinema – удобный во всех планах м
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +648,8 @@ VA - The Enhanced Collection 2012 Part 1 (2012) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:5A6D876CF5BAEFFB0FC302B3C7BC74522673AFD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +673,8 @@ magnet:?xt=urn:btih:5A6D876CF5BAEFFB0FC302B3C7BC74522673AFD8
 ```bash
 magnet:?xt=urn:btih:CB8D476575EFA23E2C1824F90BDAC9AA08B681CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -657,6 +703,8 @@ magnet:?xt=urn:btih:CB8D476575EFA23E2C1824F90BDAC9AA08B681CC
 ```bash
 magnet:?xt=urn:btih:662939B079F888BCD9B7FF496181616B7E3409B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -687,6 +735,8 @@ magnet:?xt=urn:btih:662939B079F888BCD9B7FF496181616B7E3409B0
 magnet:?xt=urn:btih:ED4A011C6FD5DC9E5D517ACE7C7D8E895EC34FC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -714,6 +764,8 @@ magnet:?xt=urn:btih:ED4A011C6FD5DC9E5D517ACE7C7D8E895EC34FC6
 ```bash
 magnet:?xt=urn:btih:736FCB50EF206A441F5887CD7B4B2B893FB879AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

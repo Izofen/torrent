@@ -19,6 +19,8 @@ Worlds of Magic (2015) [Ru/Multi] (1.2.6/dlc) SteamRip Let'sPlay
 magnet:?xt=urn:btih:FA118BA2D3A955FFBCEAFF0E0E831C0F56ECE746
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Cuban Missile Crisis Dilogy (2005) [Ru/Multi] (1.4/1.2) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:EB073A6E54BE5F0E38E32C23FDF5082CA4751118
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Stronghold Crusader 2 - это долгожданный сиквел ориги�
 magnet:?xt=urn:btih:A78FEC4DEF21DAC4A285C64F22994D81AAD15939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Meridian: New World - это стратегия в реальном времен
 ```bash
 magnet:?xt=urn:btih:E3E90D66FD63CE255329A2D34CCE7F003BA3761F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Planar Conquest — это глобальная пошаговая страте�
 magnet:?xt=urn:btih:52D5DB6503CD00C48F17D6A6C35771C30194022A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Northgard (2018) [Ru/Multi] (2.1.4.16370/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:D7436858DA7F5F733C36D3BA82D431F41697EAF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Broken Lines — это тактическая ролевая игра с раз
 magnet:?xt=urn:btih:3C025FD85E1AEA29CC3174DFCA25585F657969FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Grey Goo (2015) [Ru/Multi] (0.34.593311/dlc) SteamRip Let'sРlay [Definitive Edi
 ```bash
 magnet:?xt=urn:btih:DB1F52BB066160AF2FAE4FD8B0F36B9F40FB33D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Stronghold Crusader 2 - это долгожданный сиквел ориги�
 magnet:?xt=urn:btih:B6112312CAC3944D9E4E7DBDF9C6939B6953DB0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Age of Mythology – стратегия в реальном времени, ко
 magnet:?xt=urn:btih:068EF34AE1FB52C97765E15B137210E976B2F7A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ Etherlords / Демиурги (2001) [Ru] (1.07) Repack Focus
 ```bash
 magnet:?xt=urn:btih:053C8291C91CDD89F1A4956A8C61B3832AE18733
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ Defense Grid: The Awakening – яркий представитель жанра
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ Astra Exodus (2020) [Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:2334CD4572337A778AE34BF2791A92E422797B33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ King Arthur: The Role-playing Wargame / Король Артур [Ru] (L) 2009
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Warsworn: Дракон Японии – это грандиозная страт
 ```bash
 magnet:?xt=urn:btih:BA4B239CACD0846BB0A54FA18F2ED1526B3A38BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +415,8 @@ Command & Conquer 4: Tiberian Twilight / Command & Conquer 4: Эпилог (2010
 magnet:?xt=urn:btih:821FC71513C51A495DBE75E877D73BEA42B745F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ Command & Conquer 3: Dilogy / Command & Conquer 3: Дилогия (2007-2008) [R
 ```bash
 magnet:?xt=urn:btih:98DE1A9784C50D64065842D30AE5F56AF0083616
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +467,8 @@ Overland (2019) [Ru/Multi] (713) Repack Other s
 magnet:?xt=urn:btih:813D4D9439D7AE4079C6FB5774A159378485BE83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Oil Rush - это основанная на управлении группам�
 ```bash
 magnet:?xt=urn:btih:FBACAE6B1ED495970DDFA34EBE816EC4F9D964CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ Enhanced Edition включает в себя «Sword of the Stars II: The Lords
 magnet:?xt=urn:btih:0E65BAF787C9A1EE6D0C71641E3C28E593E166F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ A Game of Thrones: Genesis / Игра престолов: Начало [Ru] (ReP
 magnet:?xt=urn:btih:C45884E0F2A3DC50D5B77486B6690F6B787A8E38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ Dungeons: The Dark Lord — продолжение Dungeons, игры, в кот
 ```bash
 magnet:?xt=urn:btih:9953EEBD9B4A6DFBFEA4F51945A856DE22879851
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ Medieval 2: Total War — квинтэссенция всего лучшего, 
 magnet:?xt=urn:btih:FDCF6C3D9AA224CE9087A1713C573511C4074B54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ Interstellar Space: Genesis использует классические мех
 ```bash
 magnet:?xt=urn:btih:4E4B2BB486A97A71C362BEFA364B5B25ED968F77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ Kingdom Rush Origins (2018) [Ru/Multi] (4.2.15) License GOG
 magnet:?xt=urn:btih:4321C27D762968EA7278FEC9E3EF4F1AF95850EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ I am not a Monster: First Contact (2018) [Ru/Multi] (1.2/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:FAD62120C7600BD9C4EAD221820190A877FCD3A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

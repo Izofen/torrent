@@ -22,6 +22,8 @@ Robert Rodriguez & VA - Once Upon A Time In Mexico (2003) [FLAC|Lossless|tracks 
 magnet:?xt=urn:btih:B73BBFE8A32773A4A937F8EB80D6871FB8C7ADE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ CD#01
 ```bash
 magnet:?xt=urn:btih:7A9849B0855787EFF2D79A2ACF9F063478B734BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Одинокий пастух (2001) 2 альбома, Compilation [FLAC|Lo
 magnet:?xt=urn:btih:80328B946D38F40F7173F589EA1ECE762BEB695D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Atom Music Audio - Heroes (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic 
 ```bash
 magnet:?xt=urn:btih:32EB5F31833D7490478FC89A5ECE28C8CA099E8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Atom Music Audio - Dystopia (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epi
 magnet:?xt=urn:btih:624976A3B62CA56E191E9FF75BA768AD3BA8C110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Somewhere My Love: Romantic Guitar  (1995) [FLAC|Lossless|image + .cue] <In
 ```bash
 magnet:?xt=urn:btih:07C9DA02FA91367EA57CA98109DC5772C1C569BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Atom Music Audio - Leviathan: Monster Themes (2020) [MP3|320 Kbps] <Soundtrack, 
 magnet:?xt=urn:btih:888537672FE146D2C9B9AC29DA00EE1FE5E05B44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Atom Music Audio - Blood Crave (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, 
 ```bash
 magnet:?xt=urn:btih:8A2EE74C6D5F8BC654620BAF9FD66DD8ED272350
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Gelka - Stardust Memories (2015) [MP3|128 кб/с] <Electronica>
 magnet:?xt=urn:btih:203A489A4E12A0A854A4FAAC1B82D70A47801F67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Vangelis - Delectus (1973-1985)  Remaster, 2017, Universal International Music, 
 ```bash
 magnet:?xt=urn:btih:E4D48D0F5A5ACED87D26947B9067D0B78D7726E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Adrian Von Ziegler - Moonsong (2016) [FLAC|Lossless|WEB-DL|tracks] <Celtic Folk>
 magnet:?xt=urn:btih:30B19CE20DC083C0290EF3C9D2D96D2DF3898C54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ Diaspora - Meditation (1998) [MP3|320 Kbps] <Native American, Ethnic>
 magnet:?xt=urn:btih:FC2EF1DCFBC32628F5B6D580B04F2CF853CFF7E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ Estas Tonne - Internal Flight (Guitar Version) 2013 [FLAC|Lossless|tracks] <Folk
 ```bash
 magnet:?xt=urn:btih:90E10FDE8C013F42787F3595953E6CB7C0067D52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ Aesop Rock - Freedom Finger (Music from the Game) (2020) EP [FLAC|Lossless|Web-D
 magnet:?xt=urn:btih:02AF0ABB1CF8684B2A376F8AD114E566FAADBEB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ Armik - Enamor (2017) [FLAC|Lossless|image + .cue] <Flamenco, Acoustic guitar>
 ```bash
 magnet:?xt=urn:btih:40B781535AA047CC603B968E8ABF029BC22B53D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ Marco Beltrami - Logan / Логан (Original Motion Picture Soundtrack) (2017) 
 magnet:?xt=urn:btih:595CFD36D93865E8B4B64F99FBDDBAA18AD048EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +483,8 @@ Marco Beltrami - Logan / Логан (Original Motion Picture Soundtrack) (2017) 
 magnet:?xt=urn:btih:D9AC3A8882CD4C7E38861FAF594F4D93DDF4C962
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +511,8 @@ Nicholas Gunn - Thirty - One Nights (2012) [FLAC|Lossless|tracks] <Brass & Milit
 ```bash
 magnet:?xt=urn:btih:8AF345B827B00440BF4974F4DD912CB00C832D0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +547,8 @@ Nicolas Jeandot - Metamorphose (2013) [MP3|320 кб/с]<New age, Relax>
 magnet:?xt=urn:btih:7222EA73071D842495426DB0060F6C786840FDB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +575,8 @@ VA - The Best World Instrumental Hits (2009) Vol.1,2,3 (6CD) [FLAC|Lossless|trac
 ```bash
 magnet:?xt=urn:btih:0218929DF42FC59E116FA2DA939B764A5BDA3DC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +605,8 @@ Guy Sweens - Karmic Journey (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambie
 magnet:?xt=urn:btih:F648F535FA63C0C08847C06C45235AD23FE9057A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -591,6 +633,8 @@ Anuna - Cynara (2001) [FLAC|Lossless|tracks + .cue] <Celtic, Folk>
 ```bash
 magnet:?xt=urn:btih:020C12B2BFCF05243F621EA3947E76E1F78B9C69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +663,8 @@ magnet:?xt=urn:btih:020C12B2BFCF05243F621EA3947E76E1F78B9C69
 magnet:?xt=urn:btih:A515D6E4C984FC06D34CE19F66BB809BEF28D740
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +691,8 @@ Guy Sweens - Karmic Journey (2017) [MP3|320 Kbps] <New Age, Ambient, World>
 ```bash
 magnet:?xt=urn:btih:4E32CF03B52B4EFEA4713790CEE06A7F8BD339EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +721,8 @@ Light? - Pink & Grey (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Tradi
 magnet:?xt=urn:btih:E0D1E302B6819583F358C4112E7D21C8765479CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ Manu Delago - Metromonk (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Wo
 ```bash
 magnet:?xt=urn:btih:118E70CA854E68EAC6622A71D2B5D164B16CBA11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

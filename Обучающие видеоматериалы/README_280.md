@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:61CECE323F6FFFB2AF37B2EDA0D5F9BC983F09B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Self-Learning, Виталий Трунин | Курс по T-SQL Путь про
 ```bash
 magnet:?xt=urn:btih:D67459801384F037AB3AD2D3B318F546ACF947AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:D67459801384F037AB3AD2D3B318F546ACF947AB
 magnet:?xt=urn:btih:773094C0ED7CEA57D68AEB7CE2F806D9084DA2BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ Udemy | Создание персонажа в Blender 2.83 для игр / Blen
 ```bash
 magnet:?xt=urn:btih:8BDBD6C480083CA9077DD6FD6E650628D8B33EB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:8BDBD6C480083CA9077DD6FD6E650628D8B33EB3
 magnet:?xt=urn:btih:451DF2DBA438304586E4457A277F40F35F94481B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +158,8 @@ CG Cookie, Jonathan Lampel | Основы цифрового освещения 
 ```bash
 magnet:?xt=urn:btih:EB5075060BA3A0099E3BCF908C057141A52A2AB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +187,8 @@ Knower School | Игровая модель топора (2020) PCRec
 magnet:?xt=urn:btih:BD075EF9245A6E3A113D450AFE655524A0EB7253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ Udemy, Ryan Dhungel | React Node MERN Marketplace - Build A Hotel Booking App (2
 ```bash
 magnet:?xt=urn:btih:095748C925767E7C6915D1EF5B04C2B5940F27BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:095748C925767E7C6915D1EF5B04C2B5940F27BD
 magnet:?xt=urn:btih:DDBF7820D3D37B29E79979709984DA82342FDFEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:DDBF7820D3D37B29E79979709984DA82342FDFEE
 ```bash
 magnet:?xt=urn:btih:00B24AF9C51AC3D2FDF983B6ACB2938543270976
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ magnet:?xt=urn:btih:00B24AF9C51AC3D2FDF983B6ACB2938543270976
 magnet:?xt=urn:btih:DFD9971300CE31BF7161AE7ACB7D44EBF33BDE2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ Udemy, Frank Kane | Elasticsearch 7 and the Elastic Stack: In Depth and Hands On
 ```bash
 magnet:?xt=urn:btih:EB6EF2093E70F681FBD8FAE7BE705908B9EDE28A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:EB6EF2093E70F681FBD8FAE7BE705908B9EDE28A
 magnet:?xt=urn:btih:07F2739BB8C51AA219B0EE71DBE932FECBBB9DB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:07F2739BB8C51AA219B0EE71DBE932FECBBB9DB2
 ```bash
 magnet:?xt=urn:btih:A669EFD922527F16745F3325C992045D89B52260
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ Udemy, Andrei Dumitrescu | Linux Security: The Complete Iptables Firewall Guide 
 magnet:?xt=urn:btih:4ED87A5D2E931EA1ABFAB854435CF5FEDF9AC515
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ Udemy, Denis Panjuta | The Windows Presentation Foundation WPF Guide for beginne
 ```bash
 magnet:?xt=urn:btih:70D2EEC37BC15C8CB8289CA4030BB12DD36864A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ Udemy, Ravinder Deol | The Complete 'No Code' Developer Course: Build 23 Project
 magnet:?xt=urn:btih:E2E66F7B333A1BACEA053888B6464FF7814046F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ Log2Base2 | Data Structure (2020) PCRec [En]
 magnet:?xt=urn:btih:748C1630D158315E586988BF5A6A342765911D7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ Manning, Reuven M. Lerner | Manning - Python Workout (video edition) (2020) PCRe
 ```bash
 magnet:?xt=urn:btih:71FFA65587DB3344BA6CF0A76749F29AA8012E13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +537,8 @@ Udemy, Tim Buchalka и др. | The Advanced Xamarin Developer Masterclass  (2021
 magnet:?xt=urn:btih:2A64B5D79817E3A182115E312AD7904A0BFC6FBC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ Log2Base2 | Algorithms (2020) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:C5E74AA7749A1F44EA21AA9A61EA13CE6767C22B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ Udemy, Rahul Shetty | Selenium Design Patterns/Best Practices for Framework Desi
 magnet:?xt=urn:btih:5CD386AD3D98DC893D1CCEECD0B072D267D13BDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ Log2Base2 | Pointers In C (2020) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:721E5B2F0A70C746DD3577499E4469F5D68CC93F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ Planet of Arts | Онлайн-курс "Photoshop и Фотография с 0 �
 magnet:?xt=urn:btih:CE68EEEB565BC52376B5138356A1EE6B22C24938
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:CE68EEEB565BC52376B5138356A1EE6B22C24938
 ```bash
 magnet:?xt=urn:btih:83FD0E40DAE4281B40530A571B07269A7F75AC10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +698,8 @@ iZotope RX 8 позволит вам за несколько кликов улу
 ```bash
 magnet:?xt=urn:btih:DC2C6D1EFE7CFB57FCFAEE03B9F3317620162F85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Pathfinder: Wrath of the Righteous (2021) [Ru/Multi] (2.7.0w/dlc) Repack FitGirl
 magnet:?xt=urn:btih:CA9B2E1A7D0CC2842D0545EB9879B3EEE4194666
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Colony Ship: A Post-Earth Role Playing Game - пошаговая ролевая 
 ```bash
 magnet:?xt=urn:btih:9FF1FCDEAD0568775637CA3745E37998378E1EAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Breath of Fire IV (2000) [Multi] (1.0 HotFix) Repack FitGirl
 magnet:?xt=urn:btih:B4157152D35BA49B0C4A92E54EABDA509C4FDC40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Wartales - ролевое приключение в открытом мире, �
 ```bash
 magnet:?xt=urn:btih:89971A17F701C5910B8A497883BFE7E03D9B3C3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Flint: Treasure of Oblivion (2024) [Ru/Multi] (0.20074/dlc) License GOG
 magnet:?xt=urn:btih:CE6B8B84FA9505ED65A35421B679BE0A45B85AB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ SaGa Frontier 2 Remastered (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BADCDEF3F805046F5B2E2D320A977C28049E196E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ LUNAR Remastered Collection (2025) [Multi] (1.0) Scene TiNYiSO
 magnet:?xt=urn:btih:4D0E5025AC1CE2A58625192925B029329C4DCC23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ he Elder Scrolls IV: Oblivion® Game of the Year Edition является одн
 ```bash
 magnet:?xt=urn:btih:8B94FB189FD927913B5D7E70675E51604FECB890
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Dinkum (2022) [Ru/Multi] (1.0.0) Repack FitGirl [Official Soundtrack Edition]
 magnet:?xt=urn:btih:1475C79CF9E58F11FB5BFE1D3D023C4A77B9AF22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Age of Reforging: The Freelands (2023) [Ru/Multi] (1a) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:57C0BEA866900ED85090CBB24FE275E361883E51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Mirthwood (2024) [Ru/Multi] (1.0.65p2) Repack FitGirl
 magnet:?xt=urn:btih:3502E4E61EAD7A4309555DB32EEE9B1116F4207B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6805605/dlc) Repack Let'sРlay [D
 ```bash
 magnet:?xt=urn:btih:E941FA25ADE69F163AE99345ADC85A2DD1C828F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Smalland: Survive the Wilds (2024) [Ru/Multi] (1.7.1_15_e769f28c) Repack FitGirl
 magnet:?xt=urn:btih:DF5C68374B6593F6AAB7AAD1E5FCDF958F1D3AC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Age of Reforging: The Freelands (2023) [Ru/Multi] (1.0) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:2002C2B22792F7863EFCA32DD5EFAC10AEBC30FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ V Rising (2024) [Ru/Multi] (1.1.0.1-r91217-b18/dlc) Repack FitGirl
 magnet:?xt=urn:btih:EE69B10E11EA7D830A62B115CAB889BF4CFEF331
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/En] (1.12u
 ```bash
 magnet:?xt=urn:btih:3FF8B533C7D6E0D92B3EBCFA6885537AEC85EF6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Mother Hub (2025) [Ru/En] (16) Repack Let'sРlay
 magnet:?xt=urn:btih:0619724B1BB3D89359FEB311DBADAD1D2CFEFD91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Dragon Age: Inquisition / Dragon Age: Инквизиция (2014) [Ru/En] (1.12 
 ```bash
 magnet:?xt=urn:btih:57FEDE632A4D7E338B572F7FD6E9AAA8D29FE72B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Travelers Refrain (2025) [En] (04) License GOG
 magnet:?xt=urn:btih:2C574AAFEDB7A49B45505EA4D23EE6897A045198
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Kingdoms of Amalur: Re-Reckoning (2020) [Ru/Multi] (1.10/dlc) Repack Wanterlude
 ```bash
 magnet:?xt=urn:btih:13CA7577791711B241B35E9588B4F8067DBC3066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Disciples: Освобождение - это история в жанре «тё
 magnet:?xt=urn:btih:1ECA885B3EBBB7444ABF7D016053B01CF44078E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ SWORD ART ONLINE Fractured Daydream - это захватывающее ново
 ```bash
 magnet:?xt=urn:btih:D6927CF329475823970FD378B101D5471628C59B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Hero's Hour – это простая, но захватывающая и мас
 magnet:?xt=urn:btih:4162F161D37089FF5A40433B96D62E2D1715ECAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Deluxe Edition включает в себя дополнение Talisman of
 ```bash
 magnet:?xt=urn:btih:3540B0F604ADB430F4099E829A37735556474041
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ The Elder Scrolls IV: Oblivion Remastered представляет собой п
 magnet:?xt=urn:btih:E26124204E8FECEDFF3FBA83320153065E13ACB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Fabled Lands (2022) [Ru/En] (2.1.3а/dlc) Repack Let'sРlay [Complete Edition]
 ```bash
 magnet:?xt=urn:btih:1102943BAF2D4FBA06C531A97FB6C5F3A5BCAD51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

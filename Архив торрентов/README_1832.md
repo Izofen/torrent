@@ -19,6 +19,8 @@ WinRAR 4.20 beta 1 [Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Windows Repair - инструмент все-в-одном для ремонта
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Windows Repair - инструмент все-в-одном для ремонта
 magnet:?xt=urn:btih:5D28A78DC735D098FFFFB2DD601E41CE82CC5460
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:5D28A78DC735D098FFFFB2DD601E41CE82CC5460
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:5D28A78DC735D098FFFFB2DD601E41CE82CC5460
 magnet:?xt=urn:btih:DD5D8020DC722133184D1EBA679D196DE91D36D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ The Bat! – общепризнанная система обработки эл
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ The Bat! – общепризнанная система обработки эл
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Monster Truck Madness 2 является продолжением одной и�
 ```bash
 magnet:?xt=urn:btih:D8F8A43E957EAA4CFD9C602F8F5D556279670034
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:D8F8A43E957EAA4CFD9C602F8F5D556279670034
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Angry Birds {2.1.0} (L) [En] 2011 | THETA
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ WebBrowserPassView – это утилита, позволяющая просм�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ WebBrowserPassView – это утилита, позволяющая просм�
 magnet:?xt=urn:btih:1111B7AADB02BE335075CDCA5BE9B90DCF0725E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:1111B7AADB02BE335075CDCA5BE9B90DCF0725E2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ Angry Birds Space - главная особенность новой игры - 
 magnet:?xt=urn:btih:1F4F1AD585A131176C3AF0CF1B838E5A524D9993
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:1F4F1AD585A131176C3AF0CF1B838E5A524D9993
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:1F4F1AD585A131176C3AF0CF1B838E5A524D9993
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ magnet:?xt=urn:btih:1F4F1AD585A131176C3AF0CF1B838E5A524D9993
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Auslogics BoostSpeed оптимизирует компьютерную , уск�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +497,8 @@ Auslogics BoostSpeed оптимизирует компьютерную , уск�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ Auslogics BoostSpeed оптимизирует компьютерную , уск�
 magnet:?xt=urn:btih:81258BCD765F8B755875E7EF4FB448F3AB4EBE8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Blades of Time / Клинки Времени {1.0u3} (RePack) [Multi7/+] 2012 | 
 ```bash
 magnet:?xt=urn:btih:F9A9DDBCE581703627F6300D2DAABC7CCCC5A4B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:F9A9DDBCE581703627F6300D2DAABC7CCCC5A4B9
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Apache OpenOffice 3.4 [Multi/Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Apache OpenOffice 3.4 [Multi/Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Apache OpenOffice 3.4 [Multi/Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +684,8 @@ Port Royale 3: Pirates & Merchants [En] (L/1.0) 2012 | SKIDROW
 ```bash
 magnet:?xt=urn:btih:EC0A81F0449222B7EB16C317D62B9C0A941341E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

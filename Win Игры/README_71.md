@@ -19,6 +19,8 @@ The Fool's Apprentice - это симулятор магической школ�
 magnet:?xt=urn:btih:8BF15AA56313D81AEEF45EDF6453E4F72DCC9689
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Block Fortress 2 переносит игрока на поверхность в�
 ```bash
 magnet:?xt=urn:btih:074D55033DA685248D6D5864EC91DBE56C085D85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Citadelum (2024) [Ru/Multi] (2.0.0.10/dlc) Repack Let'sРlay
 magnet:?xt=urn:btih:A815FDB59357477DC9972C77A11BA414B5BAD9F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Derail Valley – это увлекательный VR-симулятор упр
 ```bash
 magnet:?xt=urn:btih:7C415F23C63ED5F98EAE3E292A8FDD0C226A0E50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Space for Sale - межпланетный симулятор управлени�
 magnet:?xt=urn:btih:B0785D523323C3C6444C6020CBD56AE7D02B4EA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Tomb Raider IV-VI Remastered Darkness Trilogy предлагает погруз�
 ```bash
 magnet:?xt=urn:btih:1760507871D6FA1EBEA7257B935AD6D59129DF79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Dive The Depths - это экшен-рогалик, где вы играете �
 magnet:?xt=urn:btih:52FB2D8D976B1CAED2A5EF57470D322291AF63CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Bionic Bay (2025) [Multi] (1.3.0.4/dlc) Repack Other s [Complete Bundle]
 ```bash
 magnet:?xt=urn:btih:88EC0ED6E73829892D5678299C698F97BBAD54A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Soulslinger: Envoy of Death (2023) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:3217340507C975FDE48CF010C9A19A0EB8F4881A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Tomb Raider IV-VI Remastered Darkness Trilogy предлагает погруз�
 ```bash
 magnet:?xt=urn:btih:214D97BD3504B773FC82CE1DDADC60ED0800BA69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Baldur's Gate III (3) (2020) [Ru/Multi] (4.1.1.6758295/dlc) Repack FitGirl [Digi
 magnet:?xt=urn:btih:2B6969FF5A3703E5BADC64B443D981610946DFEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Biped - это динамичная приключенческая 3D-игра �
 ```bash
 magnet:?xt=urn:btih:05F9727EAD126FB694E8519F4677899A7F5C7ECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Lost Skies (2025) [Ru/Multi] (0.1.83/dlc) Repack Pioneer [Early Access]
 magnet:?xt=urn:btih:DAD5A7E3C0471BCC4CF3FA0666B68D02751BD577
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Alan Wake 2 (2023) [Ru/Multi] (1.2.8/dlc) Repack Wanterlude [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:3F3B2AADF6DB2D0AF968EFA719F1610AF9A44287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ CarX Street (2024) [Ru/Multi] (1.6.0/dlc) Repack FitGirl [Deluxe edition]
 magnet:?xt=urn:btih:8F2EB9B0E66C992596F681890AA0CBFB508D0EF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ DOOM (2016) [Ru/Multi] (20240321-110145) License GOG
 ```bash
 magnet:?xt=urn:btih:0F8109F14BD312B41F5087FF61558C7A723CC298
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Crashlands 2 (2025) [Ru/Multi] (1.0.5) Repack FitGirl
 magnet:?xt=urn:btih:048E94C440EA9B0DCC6D9CAEDEDE49A311A670C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Age of Empires IV: набор 4K HDR Video Pack содержит видео из
 ```bash
 magnet:?xt=urn:btih:733B87D22EC5B60E5AE49A9F237CC766FB2C3AE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Tomb Raider IV-VI Remastered Darkness Trilogy предлагает погруз�
 magnet:?xt=urn:btih:A8644AE8DDBC5F7110DEE39A9936F0A9C66FD7E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ magnet:?xt=urn:btih:A8644AE8DDBC5F7110DEE39A9936F0A9C66FD7E5
 ```bash
 magnet:?xt=urn:btih:2D1E661CFC6DC8DF26AEC7551D4B7BB9895480A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Forever Skies – это нетипичное выживание, в мире п
 magnet:?xt=urn:btih:FFF0D8BA6B052D5C0A2B8689726D6CC1EDEB2BB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Vampire Hunters (2023) [Ru/Multi] (1.3.0.CL11455) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B4C28069FA4838F6C32FEEDA984F6450BA3BA7FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Age of Empires IV (4) (2021) [Ru/En] (13.0.4343.0/dlc) Repack FitGirl [Ultimate 
 magnet:?xt=urn:btih:B510157F5992F84E1A362DDAFC4C67C2C11AC934
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ UBOAT – уникальный симулятор управления подв�
 ```bash
 magnet:?xt=urn:btih:49893DEB28612C374AAF6492FD9E69EA1057B1FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Echoes of Yi : Samsara - это мрачная игра в жанре боевы
 magnet:?xt=urn:btih:B0C458F581463460D1C0BB59EEA03913C7925A8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Beyond the Ice Palace 2 (2025) [Ru/Multi] (1.1.2f) License GOG
 ```bash
 magnet:?xt=urn:btih:13AC45DCEDC0DBF3CE061B5C4FBF31841B4861A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

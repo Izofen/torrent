@@ -19,6 +19,8 @@ Gumroad, Rachel | Making a Boxbot in Blender 2.8 (2020) PCRec [EN]
 magnet:?xt=urn:btih:B11899454118CAAADD6AAC74116AC00AF3348545
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:B11899454118CAAADD6AAC74116AC00AF3348545
 ```bash
 magnet:?xt=urn:btih:D303AF30613EB888454A9274049183FE7B1D36B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:D303AF30613EB888454A9274049183FE7B1D36B3
 magnet:?xt=urn:btih:B5B2798CE20F81D56A1E44BD868CB7347951AB3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Our linear course is like having a smart, experienced friend sit down next to yo
 magnet:?xt=urn:btih:2EB97C7C7F9867708A03F1E3F4358F5846F47377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ Artefactoschool, Любовь Титова | Реалистичные котик
 ```bash
 magnet:?xt=urn:btih:8F65A56A2CC15EB08A2737440376C21115472499
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ SUITABLE FOR(   Читать дальше...   )Жанр: CourseЯзык озв�
 magnet:?xt=urn:btih:62BC12B1DB982BAA6C0E486ACCAC45267A86E3D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ We use a linear approach to take you step by step from the fundamental building 
 magnet:?xt=urn:btih:BEFBBC17795215F6AF17ED6426B0B9A9F2E69789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -198,6 +212,8 @@ What do C, Go, Python, Perl, Java, Node.js, Git, SSH, Docker, Kubernetes, MySQL,
 ```bash
 magnet:?xt=urn:btih:E3D5F0F11AA84404C9337F19572A622678099914
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +242,8 @@ Udemy, Anand Guru | (Security Operation Centre) SOC Essentials by SOC Experts (2
 magnet:?xt=urn:btih:80EF309D9F98D18D0603263821CC907017F1683C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ Ppc.world, Никита Кравченко и др. | Специалист по 
 magnet:?xt=urn:btih:DE19C836E48A702E50D8D4A669BCC0355E321CC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:DE19C836E48A702E50D8D4A669BCC0355E321CC0
 ```bash
 magnet:?xt=urn:btih:E641D2ECF692147CADD23E18F3F738726AD843FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ Nizamov.School, Илья Низамов | 1С ZADARMA  (2022) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:8E89AFF5A1FD6FEF851DC9130823833980EE6656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ The VFX School, Tariq Kinani | Metal bending in Houdini (2021) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:F7443B04A6F2F413402B748898E55C7D9031636F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ The VFX School, Tariq Kinani | Alien troop attack, crowds and ragdolls (2021) PC
 magnet:?xt=urn:btih:5B569E792DCD3ED3D06F4DC6B72DF73FCEC199C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -376,6 +404,8 @@ ntCGi Ltd, Antony Ward | Face Rigging in Maya (2019) PCRec [EN, RU]
 ```bash
 magnet:?xt=urn:btih:6B99882C270C721EF48D8F25DDF15D096C6D19AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ Udemy, John Thompson | Mastering Thymeleaf with Spring Boot (2021) WEB-DLRip [EN
 magnet:?xt=urn:btih:9DA90A4F9FA96893ADE5B113261EBF0D63E77427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ Pluralsight не является официальным партнером ил
 ```bash
 magnet:?xt=urn:btih:F8A06B18ECA1E48E8AC7183B69D88AD0D691C88A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ Grid & Flexbox(   Читать дальше...   )Производство: Byte
 magnet:?xt=urn:btih:346D7651EF4E29F07396F5E93FE302B56D5619FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:346D7651EF4E29F07396F5E93FE302B56D5619FF
 magnet:?xt=urn:btih:340A24934D956EB19836DA357A2358A1DE45F67F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ Udemy, Jingtian Li | Introduction to Unreal Engine 4 Ability System Part 1 (2019
 ```bash
 magnet:?xt=urn:btih:A0ECF3889993BBD60065F29631FAD62D99B25993
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ Pluralsight, Rob Brooks | Blueprint and C++ Integration in Unreal Engine 4 (2017
 magnet:?xt=urn:btih:B6D09EA1B23B10C880AE78ED759E8DB28241BCBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ Break Your Crayons, Marc Whitelaw | Houdini - QUIXEL megascans workflow Rendered
 ```bash
 magnet:?xt=urn:btih:C343845FF0F02E8FDC5CB5F8E49741C250C52E2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:C343845FF0F02E8FDC5CB5F8E49741C250C52E2C
 magnet:?xt=urn:btih:B72930167B70517D015784927022B3A8D1DF73EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +651,8 @@ Konsa, Александр Фельдман | Поп-музыка на класс
 ```bash
 magnet:?xt=urn:btih:FC400331E46307F7749DBC09F896B9D9A622615B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -633,6 +681,8 @@ magnet:?xt=urn:btih:FC400331E46307F7749DBC09F896B9D9A622615B
 magnet:?xt=urn:btih:6D9F3E6B8EBF8966FFCDF7AD72DD70E4594879B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -659,6 +709,8 @@ magnet:?xt=urn:btih:6D9F3E6B8EBF8966FFCDF7AD72DD70E4594879B0
 ```bash
 magnet:?xt=urn:btih:C4CE54110BA398F2E412FFCBE281136F61C8D384
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

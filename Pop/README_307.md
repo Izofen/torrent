@@ -1,3 +1,148 @@
+###  Публикация: 1110775   (851965) от 03.03.2017
+
+Giusy Ferreri - Girotondo (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_851965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Fa talmente male
+02 – L'amore tante volte
+03 – Partiti adesso
+04 – L'amore mi perseguita(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A08445A54DAFBB35F9E76002EE3D55194B61EF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110673   (852028) от 03.03.2017
+
+Кристалл - Летим вдвоём (2016) [MP3|320 Kbps] <Disco>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Летим вдвоём
+03. Любишь, не любишь
+04. Сгорает ночь(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F17B660060A9744E5F36D71D8FE516C07E5B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110641   (852032) от 03.03.2017
+
+VA - High Life International (1982) LP [MP3|320 Kbps] <Electronic,  Reggae, Pop Rock, Disco, New Wave, Europop, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ABBA - Head Over Heels (3:48)
+02. Jon & Vangelis - I'll Find My Way Home (4:31)
+03. Roxy Music - More Than This (4:33)
+04. Status Quo - Dear John (3:14)(   Читать дальше...   )Жанр: Electronic,  Reggae, Pop Rock, Disco, New Wave, Europop, Synth-popПродолжительность: 2475 561
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:606731DB7B511647A8C422818F5992D262D96B10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001791   (852099) от 29.03.2016
+
+Niykee Heaton - The Bedroom Tour Playlist (2016) [FLAC|Lossless|tracks] <Pop, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I'm Ready (03:28)
+02.  Bad Intentions (Remix) (04:05)
+03.  Infinity (04:42)
+04.  Say Yeah (03:01)(   Читать дальше...   )Жанр: Pop, RnBПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFF34070171D1101FD427123FFF729E17270CCB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498922   (852441) от 29.09.2021
+
+Neoton Familia - 21 Albums (1978 - 1989) Collection [MP3|320 Kbps] <Electronic, Disco, Pop>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_852441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вероятно, самая популярная венгерская диско-группа Neoton Família (известная как Neoton в Испании, Newton (кратко) в Западной Германии, Neoton Familie в Восточной Германии и Newton Family в остальном мире) имела большой успех в Восточной Европе, Южной Америке и Азии с середины 70-х до конца 80-х годов. В раздаче присутствуют альбомы в исполнении на венгерском (   Читать дальше...   )Список альбомов:
+1978 - Neoton Disco
+1979 - Napraforgo
+1980 - Marathon(   Читать дальше...   )Жанр: Electronic, Disco, PopПродолжительность: 14:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4998665FD631CD6D13F75BA651E85E3D7527683B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 769909   (852983) от 24.03.2014
 
 Belinda Carlisle - A Woman & A Man (1996) [FLAC|Lossless] <Pop>
@@ -21,6 +166,8 @@ Belinda Carlisle - A Woman & A Man (1996) [FLAC|Lossless] <Pop>
 ```bash
 magnet:?xt=urn:btih:C5DD5A536727A4C03C3E7FA6605D9107CF9825CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ Marc Almond - Chaos and a Dancing Star (2020) [FLAC|Lossless|tracks + .cue] <Syn
 magnet:?xt=urn:btih:85C01B81FF64B5E90A87D2B0A742F2B699304ABC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +221,8 @@ magnet:?xt=urn:btih:85C01B81FF64B5E90A87D2B0A742F2B699304ABC
 ```bash
 magnet:?xt=urn:btih:7D7BEE1E04B786353D594BB88C6A13B1155B8553
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +251,8 @@ VA - Disco Fox 80 Vol.7 (The Original Maxi-Singles Collection) (2016) [MP3|320 K
 magnet:?xt=urn:btih:393EBAE5576856B6CBC05E6D830197DBDC6DAE9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +279,8 @@ Tokio Hotel - Dream Machine (2017) [MP3|320 Kbps] <Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:2687E615736FE6183F8BC6F9EDA023C8F56F2DC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +309,8 @@ VA - Давид Тухманов - Вечная весна: Избранные �
 magnet:?xt=urn:btih:A5A5D0F2FFDA49B244BBC859ABD83DECBA079920
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +337,8 @@ Gino Soccio - 4 Albums, 1 Compilations (1979-1984) [MP3|320 кб/с] <Electronic
 ```bash
 magnet:?xt=urn:btih:7DAD71CD24641937B09847B2D363A767FCE3BA9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +367,8 @@ VA - Clubbers Culture Electronic Disco Lovers (2017) [MP3|320 Kbps] <Disco, Nu-D
 magnet:?xt=urn:btih:F71C825E51B692E070FDA70C44BD61A91B6B80F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +395,8 @@ Maryla Rodowicz - Wsiasc Do Pociagu (1978) Reissue, 2013 [MP3|320 кб/с] <Jazz
 ```bash
 magnet:?xt=urn:btih:0819FCE5FDFDD0A60A6A9C31706104B1E7244654
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +425,8 @@ magnet:?xt=urn:btih:0819FCE5FDFDD0A60A6A9C31706104B1E7244654
 magnet:?xt=urn:btih:B152EDE8B19FE5E2E58D54772FB8570F8CA1DBBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +453,8 @@ magnet:?xt=urn:btih:B152EDE8B19FE5E2E58D54772FB8570F8CA1DBBD
 ```bash
 magnet:?xt=urn:btih:42D34FAE90F308718BF6BB512D6D6B22DE0316EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +483,8 @@ VA - High Life - 20 Original Top Hits (1977) LP [MP3|320 Kbps] <Electronic, Pop,
 magnet:?xt=urn:btih:98373E85988692B44A08B0C5816C846D54F4F9CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +511,8 @@ Awa Ly - Five and a Feather (2016) [MP3|256 кб/с] <Pop, R&B, Soul>
 ```bash
 magnet:?xt=urn:btih:2BB40447750D854D2258CF2A62E923C49AF89F05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +541,8 @@ Raphael - Canciones De Amor (2009) [FLAC|Lossless|image + .cue] <Latin Pop, Ball
 magnet:?xt=urn:btih:A44583B5D8473642AA9B7178E1E6BEF149C55DC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +569,8 @@ VA - NRJ Hit Music Only (2015) 2CD [FLAC|Lossless]<Pop, Hip Hop, Eurodance, R&B>
 ```bash
 magnet:?xt=urn:btih:BC08F80F80E0FE03822C9209281DB14F1508B3CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +599,8 @@ VA - NRJ 200% Hits 2015 (2015) [MP3|320 кб/с]<Pop, Hip Hop, Eurodance, R&B>
 magnet:?xt=urn:btih:9A7ED97EC01C48CF9863ABE24A2AE8D91F6B56C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +627,8 @@ VA - NRJ 200% Hits 2015 (2015) [FLAC|Lossless]<Pop, Hip Hop, Eurodance, R&B>
 ```bash
 magnet:?xt=urn:btih:7EFEA8455B83DBCC1681201200F7C7949E8F49F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +658,8 @@ CD2 (00:28:17)Треклист CD1:
 magnet:?xt=urn:btih:3C5BCAAAC6588999643E9856A9B20A116D364B9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +686,8 @@ VA - NRJ Hit Music Only (2015) 2CD[MP3|320 кб/с]<Pop, Hip Hop, Eurodance, R&B
 ```bash
 magnet:?xt=urn:btih:221F9514A7A68C13E37D2E34DABDFA5C84E35264
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +716,8 @@ James Last / Джеймс Ласт - Non Stop Dancing / Танцуем Без П
 magnet:?xt=urn:btih:E20D0A2972B5E933729B24D56DE4C0A55C501206
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,140 +745,7 @@ Papaya -  Pink (1999) [FLAC|Lossless|tracks + .cue] <Bubblegum>
 magnet:?xt=urn:btih:0CE72DC4C6A4FE797986DAA34196DDA07E94EEC3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376916   (856668) от 19.04.2020
-
-VA - 100 Ballads (2020) [MP3|320 Kbps] <Pop, Ballads>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_856668.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rod Stewart - Have I Told You Lately 4:02
-002. Tina Turner - What's Love Got To Do With It 3:47
-003. Seal - Kiss From A Rose 4:48
-004. Whitesnake - Is This Love 4:45(   Читать дальше...   )Жанр: Pop, BalladsПродолжительность: 06:28:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF2B255FFF9CF8D5B7D73D792E009420589AC171
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109728   (857062) от 28.02.2017
-
-Bebe Rexha - All Your Fault: Pt. 1 (2017) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857062.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Atmosphere
-2. I Got You
-3. Small Doses
-4. Fuck Fake Friends (feat. G-Eazy)(   Читать дальше...   )Жанр: PopПродолжительность: 00:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D46BDF486B7207B2F0DC7F361896ECF8C48DED33
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109789   (857233) от 28.02.2017
-
-Waaktaar & Zoe - World Of Trouble (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долгожданный дебютный альбом нового проекта гитариста и основного композитора легендарной норвежской группы a-ha Пола Воктор-Савой (Pål Waaktaar-Savoy).01. Beautiful Burnout (3:55)
-02. Tearful Girl (4:01)
-03. World Of Trouble (3:57)
-04. Laundromat (3:59)(   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68BB0CDF1134AC5642532516449B5ACAA46F864
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000635   (857429) от 26.03.2016
-
-Cher - The Millennium Collection: The Best of Cher (2000) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gypsies, Tramps And Thieves [02:37]
-02. The Way Of Love [02:31]
-03. Take Me Home [06:47]
-04. Dark Lady [03:26](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC8CE360DA6E0621302D14BFD5CD7B616778EED0
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000679   (857444) от 26.03.2016
-
-Cosmic Gal - Keep On Moving (1979) LP [MP3|320 кб/с] <Electronic, Pop, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_857444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep On Moving   03:50
-02. Sindbad   03:42
-03. You're So Good   03:24
-04. Sergeant Pepper   04:33(   Читать дальше...   )Жанр: Electronic, Pop, DiscoПродолжительность: 00:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C12E6AB646E88BACE703F291730299D14782D077
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9B2C71C08831910FC4074BE5475DF28130A23B8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ One Read / Все Документы Читатель - Офис v1.2.6 Mod by v
 ```bash
 magnet:?xt=urn:btih:2598F5B16796D83BCDDE808F0441AB9A2335F0CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:2598F5B16796D83BCDDE808F0441AB9A2335F0CB
 magnet:?xt=urn:btih:D8581E7F07C58DD5AED34B0B7572F964B3C832A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:20AF455423FC2D62E06190EA9AAAD2C6DBD872D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 magnet:?xt=urn:btih:632CF724574DFDC63618101C4FA708D34A480148
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Words – это лучшее приложение для изучения сл�
 ```bash
 magnet:?xt=urn:btih:43027789D1312C02E0720BB9A0FED645FFE00E6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ CamToPlan / Рулетка измерительна v4.2.1 Mod by derrin [Ru/Mul
 magnet:?xt=urn:btih:C1F32680326A703C06F4F79BE0621BC3E8A47393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Xodo PDF Reader & Editor - просто великолепное приложе�
 ```bash
 magnet:?xt=urn:btih:D0F7A70B9012A3FE264BE749B4CE38ECF0B717F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Plus Messenger - неофициальное приложение для обме
 magnet:?xt=urn:btih:4AD8AA488A4ABF4D305FE79CDFFEB0113DDBD018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Xodo PDF Reader & Editor - просто великолепное приложе�
 ```bash
 magnet:?xt=urn:btih:19E3385FBCF0095427E9A0CB8362DC2F850C49E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:19E3385FBCF0095427E9A0CB8362DC2F850C49E7
 magnet:?xt=urn:btih:5B0D9D02CDC8055D75592A91B1AF2B9688E13C1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:5B0D9D02CDC8055D75592A91B1AF2B9688E13C1A
 ```bash
 magnet:?xt=urn:btih:FF4BFB37CB6F23C5B642CEB85E22AED3133B13E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:FF4BFB37CB6F23C5B642CEB85E22AED3133B13E7
 magnet:?xt=urn:btih:1E845DB14315E82032DD80145DC07A1E5C17F541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ RS Проводник - запросто поможет вам в управле
 ```bash
 magnet:?xt=urn:btih:3EA61AF98C5F48EF044F9CA27EB627A8454211A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:3EA61AF98C5F48EF044F9CA27EB627A8454211A3
 magnet:?xt=urn:btih:EE636762054723743B811E7DB6D1670DD4934487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:EE636762054723743B811E7DB6D1670DD4934487
 ```bash
 magnet:?xt=urn:btih:77A95E995362E002ED1A1691E621472A2A434EFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Listen Audiobook Player v5.2.4 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:0DA2D4F6DB282C5CAD093C9D92CDBDC57905E8F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ YouCut - один из самых удобных и оптимальных по 
 ```bash
 magnet:?xt=urn:btih:4959BC2C8FD4F0347EAAE81274E344F2453F6CD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 magnet:?xt=urn:btih:88620C480137447C517BD4CEA6F45E0A892DF0D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Sense Flip Clock & Weather v6.41.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:677EF37B11D1860605DFB0A9A540D8FC03B6D3F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ YouCut - один из самых удобных и оптимальных по 
 magnet:?xt=urn:btih:DA6359D7819D0F74C27BE059A725B0A9841AF513
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ VivaVideo v9.12.6 b6.6912062 Mod by maxi123444 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:5D9C231FA95AC789E8FD0E33564333DFBB924014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Sense V2 Flip Clock & Weather v6.45.5 Mod by youarefinished [Ru/Multi]
 magnet:?xt=urn:btih:26646ABFEEB937A971DEFD9385C8106E2556FDA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ ARuler - лучшее и бесплатное приложение на Android 
 ```bash
 magnet:?xt=urn:btih:C45DB5530621F9C770E18E2936CDDD429F4C7D42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Football Live TV HD v2.0 Mod by Dymonyxx [En]
 magnet:?xt=urn:btih:1FCB8D3852ADC3D1270B91B91109487EFF4C2BDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Smart Book / Параллельный перевод книг v3.3 (b1065) Mod b
 ```bash
 magnet:?xt=urn:btih:2921299B58FA7090FCC42DBB16B7B65B8C6017FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

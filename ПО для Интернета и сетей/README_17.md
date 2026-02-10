@@ -19,6 +19,8 @@ Chromium – веб-браузер с открытым исходным кодо
 magnet:?xt=urn:btih:E3005AD51D4550C984D9503B16F4A5CB7C453345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:49D59FD5DF56A72DF3ADF6C679DD7C3DC3B087D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:AAFB753C28DAD10DE1EECBDC61C4AE336FD43027
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:8BAB450F93E154F65350102068FCC411FBD11F4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:8BAB450F93E154F65350102068FCC411FBD11F4D
 magnet:?xt=urn:btih:F4991E053E2BBE7A52CD3C08F0243BA09A417059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 ```bash
 magnet:?xt=urn:btih:B2FB350CD2EEEEAFB1C4408B53CCD6A698BDF73B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 magnet:?xt=urn:btih:70776BE0D4CA7C4A29FDD14AE0E8CD65003210CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ TeamViewer - удобная в использовании программа д�
 ```bash
 magnet:?xt=urn:btih:70CADE17F618DFAF534D78C84500587E0B360B09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:3129E31E7FC74B967A33C23C335B4B1DECBA4C81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ VCap Downloader (VCapDL) – это универсальное программ�
 ```bash
 magnet:?xt=urn:btih:72982A9A544482FDCD8D7C294899C38E92DBF14A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 magnet:?xt=urn:btih:BF77D9E6AED0C743A997FAF17696C067C4CC3A1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:BF77D9E6AED0C743A997FAF17696C067C4CC3A1A
 ```bash
 magnet:?xt=urn:btih:CE9502A8FD11819E989C5A2C9FB6C63EC63AFCCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:CE9502A8FD11819E989C5A2C9FB6C63EC63AFCCC
 magnet:?xt=urn:btih:BA3A83EE6D9DE201EA77788C1997934387F683C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Lacey -  простой инструмент для поиска и скачив
 ```bash
 magnet:?xt=urn:btih:90F51775FC412531DA7609FB238F22D84FA89935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:28758B149379347F0C8BF0699983807C87511FA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:FFDBB99C0A962D1626594E3A25ABF68786BDD527
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:FFDBB99C0A962D1626594E3A25ABF68786BDD527
 magnet:?xt=urn:btih:9F57A19AF604FD1D8DE8BC61B672B827C06C6BAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:1C5C4C938197D796D189B8ABDD3C824B38F81F3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ MediaHuman YouTube Downloader 3.9.18 (1111) [Multi/Ru]
 magnet:?xt=urn:btih:6FA62605AB2F3416C677CD41C0503B6F7C0DAB4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ MediaHuman YouTube Downloader 3.9.18 (1111) RePack (& Portable) by elchupacabra 
 magnet:?xt=urn:btih:89D47FFC676A194CCDF9BCA988A977A743FC7386
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +539,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:D11A5462D33212F93B644388AFB11ACD1CC011C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +567,8 @@ qBittorrent - абсолютно бесплатная, без рекламы, м
 magnet:?xt=urn:btih:10CF4B416B3B5E1A87BBC95BD404779095EA24F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:F7FA8DFF9055720EF123F228C0B8165E005C4BA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Radmin VPN позволяет пользователям устанавлива�
 magnet:?xt=urn:btih:ED60F836D9FADE1EB160E8AF4547FDB6F9555D4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:ED60F836D9FADE1EB160E8AF4547FDB6F9555D4D
 ```bash
 magnet:?xt=urn:btih:0F5E661570203BCAA797D367171DD5193A7FAD2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +673,8 @@ Advanced IP Scanner - это быстрый, надежный и простой 
 ```bash
 magnet:?xt=urn:btih:6A65A2E626DD9B3BDF9ABBC50C933674E57B607C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

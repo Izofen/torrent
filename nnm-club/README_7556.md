@@ -28,6 +28,8 @@ Johnyboy - Мимо теней (2012) [MP3|192 кб/с]<Hip-Hop>
 magnet:?xt=urn:btih:A1FAE267FE2AAFA88DE7861623266CE937630AD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -55,6 +57,8 @@ Lacuna Coil - Comalies XX (2022) [MP3|320 Kbps] 2CD <Gothic Metal, Alternative M
 magnet:?xt=urn:btih:C6413EFFE84525074FF985C3F3259E7DDEB297E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -79,6 +83,8 @@ magnet:?xt=urn:btih:C6413EFFE84525074FF985C3F3259E7DDEB297E8
 magnet:?xt=urn:btih:D87F4566FB424C67030B45A624B3C62AD7B35CE2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ magnet:?xt=urn:btih:D87F4566FB424C67030B45A624B3C62AD7B35CE2
 ```bash
 magnet:?xt=urn:btih:72C68F422EC1051E21B9D4A499E14A47E2317167
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ magnet:?xt=urn:btih:72C68F422EC1051E21B9D4A499E14A47E2317167
 magnet:?xt=urn:btih:4E334BE93A7283E005A15C0373BCA04F055EF0DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:4E334BE93A7283E005A15C0373BCA04F055EF0DD
 ```bash
 magnet:?xt=urn:btih:EC3D04911946B0034BA7D489EC0228C586D725E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -177,6 +189,8 @@ magnet:?xt=urn:btih:EC3D04911946B0034BA7D489EC0228C586D725E6
 magnet:?xt=urn:btih:20CB3BB6EB708CAC0A1232699BEC468CE6CC75F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -200,6 +214,8 @@ AIMP – проигрыватель, включающий в себя множе
 ```bash
 magnet:?xt=urn:btih:3EACE6CED5347348014FF3F37FFEF1B0B656A476
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 magnet:?xt=urn:btih:D175A0639EA092DD34EA3DE0FD64B6F9C3E0099C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:D175A0639EA092DD34EA3DE0FD64B6F9C3E0099C
 ```bash
 magnet:?xt=urn:btih:6F7458AEE88484D7622F9D9D56DB939202376895
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:6F7458AEE88484D7622F9D9D56DB939202376895
 magnet:?xt=urn:btih:908C6EA4A70340C2553C5DDF08B329E284D3D95B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:908C6EA4A70340C2553C5DDF08B329E284D3D95B
 magnet:?xt=urn:btih:D94E802E2D144DFC7B2DCB7354BEDDCE51B2C676
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:D94E802E2D144DFC7B2DCB7354BEDDCE51B2C676
 ```bash
 magnet:?xt=urn:btih:0E9587BA04750A79980338D41111FAAD76E8EDB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:0E9587BA04750A79980338D41111FAAD76E8EDB1
 magnet:?xt=urn:btih:C4EC5FEE161F367D1B23148A6025149C0CC33D99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:C4EC5FEE161F367D1B23148A6025149C0CC33D99
 ```bash
 magnet:?xt=urn:btih:E787F5EC3BD84C872DD173A80831FC2E30EBE65C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ Axeheart - Through The Seas And Time (2022) [MP3|320 Kbps] <Heavy Viking Metal, 
 magnet:?xt=urn:btih:4116FF1B5073EE35C78D6FE8CF0E6AF566B003D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:4116FF1B5073EE35C78D6FE8CF0E6AF566B003D7
 ```bash
 magnet:?xt=urn:btih:D126953010CAA169A4602DCE30C68B63C82BA80E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -447,6 +481,8 @@ magnet:?xt=urn:btih:D126953010CAA169A4602DCE30C68B63C82BA80E
 magnet:?xt=urn:btih:EE0B9B2B8CB3D548484D3C9F7EEA937DDF269A73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ Photo Mechanic — фотобраузер и фоторедактор опера
 ```bash
 magnet:?xt=urn:btih:E8BC0CEA46A94AA3AD2C9602FFAA6E27392C4BD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ magnet:?xt=urn:btih:E8BC0CEA46A94AA3AD2C9602FFAA6E27392C4BD5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +564,8 @@ Gazuzu - 2 Albums (1984, 1988) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
 magnet:?xt=urn:btih:A9074E6A082B8B1DD2218D7EFE06F6D4E1D83DAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:A9074E6A082B8B1DD2218D7EFE06F6D4E1D83DAA
 ```bash
 magnet:?xt=urn:btih:631F962C8E22B4881A6563A2F97BC8818966649C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:631F962C8E22B4881A6563A2F97BC8818966649C
 magnet:?xt=urn:btih:B55927633C9EF5BF8CF997F9E550D58EFCEBDE77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +641,8 @@ magnet:?xt=urn:btih:B55927633C9EF5BF8CF997F9E550D58EFCEBDE77
 ```bash
 magnet:?xt=urn:btih:82DAC76DD457C66574D1820717CB1CD8D540A3CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +668,8 @@ VoxCommando - программа, которая позволяет управл
 magnet:?xt=urn:btih:071C2521CD21CA17DC25D5E831EC1AA99C8043C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:071C2521CD21CA17DC25D5E831EC1AA99C8043C4
 ```bash
 magnet:?xt=urn:btih:21998748B3120DDE62A0D5074111435C574A4D7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

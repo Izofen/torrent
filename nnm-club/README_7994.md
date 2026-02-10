@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:1A2285B34B0DE7E17AFAABFFA2132DAF1EA0B8D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Phoebus the Knight - The Last Guardian (2022) EP [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:B860EDD252C6B7EB098E44022AB60AEF400E57C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ In Utero Cannibalism - Back To The Basics (2023) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:3D3BCD2A9AA0F11BF7EEF6B5CE9C853A69DCC09B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Viber, вне зависимости от того каким устройств
 ```bash
 magnet:?xt=urn:btih:5EC732C2A17EC662BB777A51B2454AA260A36552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Rage - End Of All Days (1996) [FLAC|Lossless|image + .cue] <Power Metal, Speed M
 magnet:?xt=urn:btih:E76975EE334DB5E6270D7784596F262A1E7A2AE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:E76975EE334DB5E6270D7784596F262A1E7A2AE3
 magnet:?xt=urn:btih:E8F15398017F8D6F63D8527495252E0C79CCF09F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:E8F15398017F8D6F63D8527495252E0C79CCF09F
 ```bash
 magnet:?xt=urn:btih:09C5365BA18C2978A5E1331EED617834F9D6D702
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -202,6 +216,8 @@ magnet:?xt=urn:btih:09C5365BA18C2978A5E1331EED617834F9D6D702
 magnet:?xt=urn:btih:AF27CE46143808A30BAD5E821138F46D4EB4C74E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:AF27CE46143808A30BAD5E821138F46D4EB4C74E
 ```bash
 magnet:?xt=urn:btih:33B9B702B3F4E09AEA4FA149A79D8DFF075296CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Ariah - The Spire (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Djent
 magnet:?xt=urn:btih:ED236042CFA6022DDA27A2DBE42595FB968D5827
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:A9C5182840C2B114E0666EE919D4673CDAF90471
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ magnet:?xt=urn:btih:A9C5182840C2B114E0666EE919D4673CDAF90471
 ```bash
 magnet:?xt=urn:btih:84C7BDFB84EFFEF6CA31B8263FF046C405CC47AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -328,6 +352,8 @@ Horna - Kuoleman kirjo (2020) [FLAC|Lossless|image + .cue] <Black Metal>
 magnet:?xt=urn:btih:73F8C10F50210E72D369EFD51DE9911BAF1AFB5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +381,8 @@ Amber Run - How To Be Human (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie, Britpop
 magnet:?xt=urn:btih:168065CE4851363BECA7983A8FD5016533D24173
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ magnet:?xt=urn:btih:168065CE4851363BECA7983A8FD5016533D24173
 ```bash
 magnet:?xt=urn:btih:6EDC7242DC8C795D9A8ED9369F08F53CF0CF77D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:6EDC7242DC8C795D9A8ED9369F08F53CF0CF77D2
 magnet:?xt=urn:btih:828E65DB867D166909B6455E939C52E95FCC82E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +458,8 @@ magnet:?xt=urn:btih:828E65DB867D166909B6455E939C52E95FCC82E6
 ```bash
 magnet:?xt=urn:btih:020661ED16D5FFF78DA03830BC893934AF631FD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ Sarah Davachi - Cantus, Descant (2020) [AAC|~229 Kbps]<Electronic, Ambient, Mode
 magnet:?xt=urn:btih:F58AC4C09E4C0FC20586F169F3AA4A694D56BEBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:F58AC4C09E4C0FC20586F169F3AA4A694D56BEBD
 ```bash
 magnet:?xt=urn:btih:A3F10DED0D356E980AB4537C2FEDEB4C58301DFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:A3F10DED0D356E980AB4537C2FEDEB4C58301DFA
 magnet:?xt=urn:btih:5753A3DEEBD595BFE5B2C1C4AFEB682D7B20C226
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:5753A3DEEBD595BFE5B2C1C4AFEB682D7B20C226
 ```bash
 magnet:?xt=urn:btih:68F69F90989732C6FC8BCFA502AF69DBB700DCD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:68F69F90989732C6FC8BCFA502AF69DBB700DCD0
 magnet:?xt=urn:btih:86850C0196C2FC2B8BC92947B4E80A6945D822E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:86850C0196C2FC2B8BC92947B4E80A6945D822E9
 ```bash
 magnet:?xt=urn:btih:DC85866320295D7E6CB176AAB52DD65E11F36438
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:DC85866320295D7E6CB176AAB52DD65E11F36438
 ```bash
 magnet:?xt=urn:btih:134E1825450F7E146D8A3B84C09C7C21CF3FAAD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ Sidney Bechet & Martial Solal - When a Soprano Meets a Piano (1957) 2009, Inner 
 magnet:?xt=urn:btih:95BD5F1D9568E0666FCAA107461F41A9334DE90D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ Rage - The Missing Link (1993) [FLAC|Lossless|image + .cue] <Power Metal, Speed 
 ```bash
 magnet:?xt=urn:btih:9814932EFB5FD5430B819DD69C96D84980068E79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

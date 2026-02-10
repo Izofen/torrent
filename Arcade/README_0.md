@@ -19,6 +19,8 @@ Miraculous: Rise of the Sphinx (2022) [Ru/Multi] (Build 10128456) Repack Yarosla
 magnet:?xt=urn:btih:03B5DE4001212A6BBAD13204BD8D442C518296D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Wicked West (2025) [En] (1.0) Scene TiNYiSO
 ```bash
 magnet:?xt=urn:btih:460FA3DCC98B77DE656814F7BDD18BA4EC79AFBA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Hotline Miami 2: Wrong Number — это брутальное завершени
 magnet:?xt=urn:btih:07C92417CD6F5CE58671130BAEA89A0456D7B449
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Get To Work (2024) [Multi] (1.1.1.6) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:61F6D87A750BD1DF171FB8F5B8DA6C1FC1A25F81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Get To Work (2024) [Multi] (1.1.1.6) Scene Tenoke
 magnet:?xt=urn:btih:0971983D78BE3556FABAA8873DD97D378A09370F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Haste: Broken Worlds — игра от третьего лица, в котор�
 ```bash
 magnet:?xt=urn:btih:5D2E024F13FA7C4F09B1AFAF549EC6D81D4B2E51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Miraculous - Paris Under Siege (2024) [Ru/Multi] (1.0) Repack Yaroslav98
 magnet:?xt=urn:btih:37996EA2DB9E62C097E7F4D0C4AA18877B506B86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:37996EA2DB9E62C097E7F4D0C4AA18877B506B86
 ```bash
 magnet:?xt=urn:btih:7F2D06A762C4ED556D3C333A87BEB9E4A53DAF74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Goat Simulator 3 (2022) [Ru/Multi] (1.1.4.3_410056/dlc) Repack FitGirl
 magnet:?xt=urn:btih:EE6C6A8AF390A8900E051524C6BA4989A9874E8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Firehawk FPV: Drone Warfare Simulator (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:178A61B20F9FA02D9CD4C5A6E7F0B970780A66F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Poly Bridge 3 - игра-головоломка, которая заключае
 magnet:?xt=urn:btih:5C689068BAEC697A1E19D09F38A9A6C54FA0EEDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Lost Twins 2 - это невероятно милое головоломное �
 ```bash
 magnet:?xt=urn:btih:2401E1A4AC7EB238FD50F2599131A0CAEE4310AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Touhou Danmaku Kagura Phantasia Lost - это ритм-игра, построе�
 magnet:?xt=urn:btih:3FBD1B240BC683C310E2AD9115579780CEA9B050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Firehawk - это тактический симулятор FPV-дронов. П
 ```bash
 magnet:?xt=urn:btih:990A7E8EAA3625592D3AEC55FE53906051ABC8C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Bioweaver (2024) [Ru/Multi] (2.0.8b) Repack Let'sРlay
 magnet:?xt=urn:btih:935B4881DC07EDC6E4598F8992A83B7FA03D60F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Drill Core (2025) [Ru/Multi] (1.210.20.8.24.cadc052/dlc) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B83E9373CCD144C892B38C699CCFCDAB7E617EB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Streets of Rogue – это облегченный роглайк о выбор�
 magnet:?xt=urn:btih:6A1E849C06E711475C10EC10DE8A3EB9C51A5299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Figment 2: Creed Valley - насыщенное приключение, дейс�
 ```bash
 magnet:?xt=urn:btih:B9F4C981B6FA4D34FC426B167882088A35DB4137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Pinball Spire (2024) [Ru/Multi] (1.02.03) License GOG
 magnet:?xt=urn:btih:C4E2B757548BE4ABA850918C28F7C2DBFA82803F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Kao the Kangaroo (2022) [Ru/Multi] (Build 11272397/dlc) Repack Let'sРlay [Anniv
 ```bash
 magnet:?xt=urn:btih:D45D0729912C06CCE2AFBBE6F9E2147D5E4E744D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Boti: Byteland Overclocked (2023) [Ru/Multi] (1.15/dlc) Repack Let'sРlay [Delux
 magnet:?xt=urn:btih:9E08C0F737C0F813A63350E7937F33BB2E64D08A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ TRON: Catalyst - новый изометрический приключенче�
 ```bash
 magnet:?xt=urn:btih:72D1504B4E27B4209598528B268910C1173652D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Iron Core: Mech Survivor - это однопользовательская ро�
 magnet:?xt=urn:btih:A36DD25399849130D219B2DF65D969ACA22D478B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Yomi 2 - это файтинг в карточной форме. Изучайт�
 ```bash
 magnet:?xt=urn:btih:9E3B68DFC2418F1EE61D20FBEEFB0A1F5D7610D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Iron Core: Mech Survivor - это однопользовательская ро�
 magnet:?xt=urn:btih:89FF6A68033D5954508EA5E9B2CF7C099D708C16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Castle Crashers (2012) [Ru/Multi] (3.0/dlc) Repack Let'sРlay [Complete Bundle]
 ```bash
 magnet:?xt=urn:btih:9043A90D91D4ABB1A4810BFE2D2F347D3E0885B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

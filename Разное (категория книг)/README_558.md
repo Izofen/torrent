@@ -1,3 +1,31 @@
+###  Публикация: 1005244   (834264) от 08.04.2016
+
+Артур Конан Дойл | История спиритизма. Исследование духовного мира (2015) [FB2]
+
+>>Разное (категория книг)
+>>Эзотерика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_834264.jpg" />
+</div>
+
+
+###  Подробнее
+
+«История спиритизма» (The History of Spiritualism) – классическое сочинение знаменитого автора детективов о Шерлоке Холмсе и других известных произведений. Эта книга выдержала десятки изданий на различных языках мира.
+
+В конце своей бурной жизни сэр Артур Конан Дойл не только увлекся изучением свидетельств и практики общения человека с тонким миром, с нематериальными (   Читать дальше...   )Жанр: ЭзотерикаПеревод: Э.Л. СиротаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B183A2A4B140D41EE581FDF7C503C8AB1CC4B122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004936   (834360) от 08.04.2016
 
 Роберт Бирн | Бильярд для всех. Пул и карамболь (1998) [DJVU]
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:1C06BDCCE9F3F9E9C7D92AC1DB2B4B04ED7564C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:1C06BDCCE9F3F9E9C7D92AC1DB2B4B04ED7564C9
 magnet:?xt=urn:btih:86B45F807A2404C982CFF0D5EA09A3DB7D8DA345
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +99,8 @@ magnet:?xt=urn:btih:86B45F807A2404C982CFF0D5EA09A3DB7D8DA345
 magnet:?xt=urn:btih:0F083D706C515CC985BA7D2343657E30E2312585
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +124,8 @@ magnet:?xt=urn:btih:0F083D706C515CC985BA7D2343657E30E2312585
 ```bash
 magnet:?xt=urn:btih:B28832868884CA2EAB9240B8D536A62A9D27796F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +153,8 @@ magnet:?xt=urn:btih:B28832868884CA2EAB9240B8D536A62A9D27796F
 magnet:?xt=urn:btih:5501F8CCC746D4362F12FA2B300BD31BDB1FA96F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +178,8 @@ magnet:?xt=urn:btih:5501F8CCC746D4362F12FA2B300BD31BDB1FA96F
 ```bash
 magnet:?xt=urn:btih:4E8CFF8478380E26C8EA060566998D97C8E0BFC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +205,8 @@ magnet:?xt=urn:btih:4E8CFF8478380E26C8EA060566998D97C8E0BFC3
 magnet:?xt=urn:btih:BBACD7DD1C6AC5865E9BABB62EA8BB96E5A70839
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +230,8 @@ magnet:?xt=urn:btih:BBACD7DD1C6AC5865E9BABB62EA8BB96E5A70839
 ```bash
 magnet:?xt=urn:btih:C9F0662882136E3CCCDF0640C1E1B3329FADB6DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +257,8 @@ magnet:?xt=urn:btih:C9F0662882136E3CCCDF0640C1E1B3329FADB6DE
 magnet:?xt=urn:btih:ACDA9D26979EB065D608B846286C9C87967F63B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +282,8 @@ magnet:?xt=urn:btih:ACDA9D26979EB065D608B846286C9C87967F63B1
 ```bash
 magnet:?xt=urn:btih:40733FA254E6C874EC56E78BEB187AB6D5727EDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +309,8 @@ magnet:?xt=urn:btih:40733FA254E6C874EC56E78BEB187AB6D5727EDE
 magnet:?xt=urn:btih:66D7D13CE91E73D9D2B678446E5257F7E831AF5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +334,8 @@ magnet:?xt=urn:btih:66D7D13CE91E73D9D2B678446E5257F7E831AF5F
 ```bash
 magnet:?xt=urn:btih:C120519585525C0D873C19D8F6C32F03A630F482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +362,8 @@ magnet:?xt=urn:btih:C120519585525C0D873C19D8F6C32F03A630F482
 magnet:?xt=urn:btih:FF1772D3D508F18726E6239E338B9A398B44F944
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +387,8 @@ magnet:?xt=urn:btih:FF1772D3D508F18726E6239E338B9A398B44F944
 ```bash
 magnet:?xt=urn:btih:11B28EFD839069A867538FE71D90F285D8B29B9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +415,8 @@ magnet:?xt=urn:btih:11B28EFD839069A867538FE71D90F285D8B29B9E
 magnet:?xt=urn:btih:8AA36566CFDBC25AA69378A05F622D33E9252F24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +440,8 @@ magnet:?xt=urn:btih:8AA36566CFDBC25AA69378A05F622D33E9252F24
 ```bash
 magnet:?xt=urn:btih:8D70C71C05E8AC29F463ECC7F17C664BCA98D381
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +467,8 @@ magnet:?xt=urn:btih:8D70C71C05E8AC29F463ECC7F17C664BCA98D381
 magnet:?xt=urn:btih:0019BE74F982C9C7CBA8351704A21D844328FA1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +492,8 @@ magnet:?xt=urn:btih:0019BE74F982C9C7CBA8351704A21D844328FA1B
 ```bash
 magnet:?xt=urn:btih:8F99A279D9242A8CEC88A8750B4C18137F7E28A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +520,8 @@ magnet:?xt=urn:btih:8F99A279D9242A8CEC88A8750B4C18137F7E28A4
 magnet:?xt=urn:btih:559721FF26E42116A312923A0063744EC2FBB8BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +545,8 @@ magnet:?xt=urn:btih:559721FF26E42116A312923A0063744EC2FBB8BD
 ```bash
 magnet:?xt=urn:btih:E6BAA877DC5715BB2AEDD6DB4EDEF424D3140B49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +574,8 @@ magnet:?xt=urn:btih:E6BAA877DC5715BB2AEDD6DB4EDEF424D3140B49
 magnet:?xt=urn:btih:4525847AB4986D94FD1D896B255BCC8FF1D7AAD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +599,8 @@ magnet:?xt=urn:btih:4525847AB4986D94FD1D896B255BCC8FF1D7AAD3
 ```bash
 magnet:?xt=urn:btih:3B97AD509FA92580D8FB6F5E45E83C36A44563C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +626,8 @@ magnet:?xt=urn:btih:3B97AD509FA92580D8FB6F5E45E83C36A44563C7
 ```bash
 magnet:?xt=urn:btih:865E7DAAFA2B5342856EDD0897ACCB04197DC736
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +655,8 @@ magnet:?xt=urn:btih:865E7DAAFA2B5342856EDD0897ACCB04197DC736
 magnet:?xt=urn:btih:88C2D9243A9209C8A18A4E219D1405DE7086DC56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,32 +681,7 @@ magnet:?xt=urn:btih:88C2D9243A9209C8A18A4E219D1405DE7086DC56
 magnet:?xt=urn:btih:7C747D8CC620A9A3B61B5E2E825FE563E32727E1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004738   (836044) от 07.04.2016
-
-Рохит Бхаргава | Не очевидно. Как выявлять тренды раньше других (2016) [EPUB]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_836044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга, которая научит вас определять тренды, значимые для вашего бизнеса, и расскажет о самых новых существующих трендах.
-Как может вендинговый автомат вдохновлять на мир во всем мире? Как можно добиться большего успеха, сделав ваш бизнес неидеальным? Может ли зависимость быть хорошей?
-Ответы на такие вопросы могут быть совсем не очевидными.
-На протяжении четырех (   Читать дальше...   )Жанр: Бизнес, ПсихологияФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD3E19816F7EFA28D1A2FCFC396109FCF591ACBE
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

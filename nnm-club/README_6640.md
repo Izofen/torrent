@@ -19,6 +19,8 @@ FireAlpaca — это достаточно простой, но удобный �
 magnet:?xt=urn:btih:2F82CB4D3B98ED60C214F753F0E1853D50E3FE5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Sir A. Conan Doyle / Артур Конан Дойль | Sherlock Holmes. Short S
 magnet:?xt=urn:btih:D0BB5A34813E916FDDC74672E9939012687E0FDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:F329F220106DB31A32F0A7A93A23DCC5E7DE61B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Gunslinger Girl / Школа убийц (ТВ-1) [2003, TV, 13] BDrip 1080p raw
 magnet:?xt=urn:btih:73F032E0679DBC62BD17F86EF18134E1823F1D8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Gunslinger Girl: Il Teatrino / Школа убийц: Театр марионе�
 magnet:?xt=urn:btih:DA4DA716DEFB111062EA18CFEEF0840528ACF8A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:DA4DA716DEFB111062EA18CFEEF0840528ACF8A1
 ```bash
 magnet:?xt=urn:btih:2F9F2EE4906539E33D9943DAAD1E285068CBC29A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:2F9F2EE4906539E33D9943DAAD1E285068CBC29A
 magnet:?xt=urn:btih:D015A5CCB20DF90C798B355E24A7698740B51BF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:D015A5CCB20DF90C798B355E24A7698740B51BF9
 magnet:?xt=urn:btih:A6C6142D46B3902EBF524AD7B44412E9961F3BEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ Microsoft® Windows® 10 Professional VL x86-x64 22H2 RU by OVGorskiy 08.2023
 ```bash
 magnet:?xt=urn:btih:A86A40766F8483F2CA0C024CDB6BFB2AEB48AF36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ Battle: Los Angeles – The Videogame (2011) [Ru] (1.0) Repack Other s
 magnet:?xt=urn:btih:18DF385C9BCD58207AD5F559872437B09D42ED2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:18DF385C9BCD58207AD5F559872437B09D42ED2C
 ```bash
 magnet:?xt=urn:btih:379871292162FF95289F0AFEAE1E390D1EEFB212
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ Hetman Partition Recovery - программа восстанавливает д
 magnet:?xt=urn:btih:D97E9C2D7701E2BA22CB5C321B79EECFB9DA396D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:D97E9C2D7701E2BA22CB5C321B79EECFB9DA396D
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:D97E9C2D7701E2BA22CB5C321B79EECFB9DA396D
 ```bash
 magnet:?xt=urn:btih:24F24C54579A63FCFC450D2D4DE4D761DCDDAD5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ Wishbone Ash - британская рок-группа, образованна�
 magnet:?xt=urn:btih:9144691A77338A443C65F73B0E529102630F7669
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ CD1:
 magnet:?xt=urn:btih:09FA73874B1BDCFCEFC86DBB7C81A1B591DEBB9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:09FA73874B1BDCFCEFC86DBB7C81A1B591DEBB9F
 ```bash
 magnet:?xt=urn:btih:34DD5D9A366A42E4E7223339A4B9A038B7AE54AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Smart AudioBook Player Pro v11.5.8 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:9403857FE7E7ED08A39D1D6DB806AE2B08E4E0E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:9403857FE7E7ED08A39D1D6DB806AE2B08E4E0E0
 ```bash
 magnet:?xt=urn:btih:B0C4A8E9E703288348B9197EDE999FCC943F0F8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:B0C4A8E9E703288348B9197EDE999FCC943F0F8B
 magnet:?xt=urn:btih:951C80C3FAAD0F7D4EE55154C8DA7D2B7F15F1F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ magnet:?xt=urn:btih:951C80C3FAAD0F7D4EE55154C8DA7D2B7F15F1F5
 ```bash
 magnet:?xt=urn:btih:FE1ECA9018E00D5ECE60C3CDAE66CF900554C730
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +581,8 @@ Skillbox, Николь Шахбазян, Динара Фахретдинова |
 magnet:?xt=urn:btih:58538989B29D52831BD7606491CFB87ED8372152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +606,8 @@ WiFi Analyzer v6.7 (b105) Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:C81BC649B98C1C185F9CA3BB2736C09ECC2A657E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +633,8 @@ magnet:?xt=urn:btih:C81BC649B98C1C185F9CA3BB2736C09ECC2A657E
 magnet:?xt=urn:btih:EFF43EB40AA665F7F2625356B99D317DCA909EC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:EFF43EB40AA665F7F2625356B99D317DCA909EC1
 magnet:?xt=urn:btih:12D0E808D334721E0C3B5CFEFB2153005961D71F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +684,8 @@ magnet:?xt=urn:btih:12D0E808D334721E0C3B5CFEFB2153005961D71F
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

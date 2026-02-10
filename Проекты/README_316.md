@@ -19,6 +19,8 @@ The Newspaper - проект для создания в газете слайд 
 magnet:?xt=urn:btih:114A4EDE5ADF93BAB051790DB6A10B511AC0ACC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ In Magazine - проект для создания портфолио  в жур
 ```bash
 magnet:?xt=urn:btih:E51C4BA8063F511DFE60F1F16747D28E34940A33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Cinematic Slideshow - это уникальный шаблон для созда
 magnet:?xt=urn:btih:7374C5E9C830559F16DA140967C62E6BD333EBD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:7374C5E9C830559F16DA140967C62E6BD333EBD7
 magnet:?xt=urn:btih:EDF5F913BAC8D3A35263489A62A3554D7486166C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:EDF5F913BAC8D3A35263489A62A3554D7486166C
 ```bash
 magnet:?xt=urn:btih:9CC4A3476FC296824C2C4D1AA4495FA998E5C307
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:9CC4A3476FC296824C2C4D1AA4495FA998E5C307
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:9CC4A3476FC296824C2C4D1AA4495FA998E5C307
 ```bash
 magnet:?xt=urn:btih:029DA9D0B4B920959150CCA89FE469ED266BB17C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:029DA9D0B4B920959150CCA89FE469ED266BB17C
 magnet:?xt=urn:btih:FB6797013E6C2BF7CD28F04DECE4C53332208FA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:FB6797013E6C2BF7CD28F04DECE4C53332208FA7
 ```bash
 magnet:?xt=urn:btih:3FAC88A9D6EAFDD3B6579F964DC2CF24E184C27A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:3FAC88A9D6EAFDD3B6579F964DC2CF24E184C27A
 ```bash
 magnet:?xt=urn:btih:F33351A2FB3026491BD334636AE3D83ADED2F9B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:F33351A2FB3026491BD334636AE3D83ADED2F9B2
 magnet:?xt=urn:btih:DC3A3F2C3B1D6BE072B6473DA449A2E137452FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +317,8 @@ magnet:?xt=urn:btih:DC3A3F2C3B1D6BE072B6473DA449A2E137452FCB
 magnet:?xt=urn:btih:44C5334D379849EFBB33BE816F30A057115B37D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ Kids Youtube TV Opener - интересный и красочный проект
 ```bash
 magnet:?xt=urn:btih:B37B6DAB2A52629AA4EC76734BC40BFB5225494D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:B37B6DAB2A52629AA4EC76734BC40BFB5225494D
 magnet:?xt=urn:btih:F99C2B4806A66ABADE5C500DBE2B5C3FA464EFA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:F99C2B4806A66ABADE5C500DBE2B5C3FA464EFA1
 ```bash
 magnet:?xt=urn:btih:AC1A4F0C61CB1A56F34FDF45B721EBDDBEE14F00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:AC1A4F0C61CB1A56F34FDF45B721EBDDBEE14F00
 magnet:?xt=urn:btih:641DD642AC2BF5529A4D8833259F6E5060774C4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:641DD642AC2BF5529A4D8833259F6E5060774C4E
 ```bash
 magnet:?xt=urn:btih:7E3B155C5644591077DD3C6D2B1F02662EF52E25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:7E3B155C5644591077DD3C6D2B1F02662EF52E25
 magnet:?xt=urn:btih:0E36094E455F956EFD5B7E50C6F1E64311970CD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ magnet:?xt=urn:btih:0E36094E455F956EFD5B7E50C6F1E64311970CD5
 ```bash
 magnet:?xt=urn:btih:62B0FF7AA75921F8C3681CBC26A6872EA34E7A24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ The Slideshow - это современный, динамичный и легк�
 magnet:?xt=urn:btih:6CF541704C2BC3EC1C7F5F2FE0D740C30305CA89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:6CF541704C2BC3EC1C7F5F2FE0D740C30305CA89
 ```bash
 magnet:?xt=urn:btih:D527FAB0CC29D767FA54A3C467D3D5E4D47296E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:D527FAB0CC29D767FA54A3C467D3D5E4D47296E0
 magnet:?xt=urn:btih:F77C6C559CC25D52F1D2E7BEDB596A48DDC91190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:F77C6C559CC25D52F1D2E7BEDB596A48DDC91190
 ```bash
 magnet:?xt=urn:btih:4E68D2D39F4C2949445A9056251ECA7DA6F2C3BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ magnet:?xt=urn:btih:4E68D2D39F4C2949445A9056251ECA7DA6F2C3BC
 magnet:?xt=urn:btih:84EFB37B978411DBD08B8A7053A87654AC88858E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +659,8 @@ magnet:?xt=urn:btih:84EFB37B978411DBD08B8A7053A87654AC88858E
 magnet:?xt=urn:btih:B85CFDC25C2BF55AD1D90EB2141C90D941CFC357
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ magnet:?xt=urn:btih:B85CFDC25C2BF55AD1D90EB2141C90D941CFC357
 ```bash
 magnet:?xt=urn:btih:F4364E5DBC24F3997BCBFCC87FF53D7122B392FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

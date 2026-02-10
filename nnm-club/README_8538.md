@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BF4ACA9B3020442967B76481752670F9245BF640
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:BF4ACA9B3020442967B76481752670F9245BF640
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:BF4ACA9B3020442967B76481752670F9245BF640
 ```bash
 magnet:?xt=urn:btih:B1EA6FAAB822BA85E9AA7A69C17947DD5EE942EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Kalmuri не имеет встроенного редактора изображ
 magnet:?xt=urn:btih:0F95275D0F6C7272B5791906020D41EEDB676A37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ Kusuriya no Hitorigoto 2nd Season | The Apothecary Diaries Season 2 | Монол
 ```bash
 magnet:?xt=urn:btih:7D86FE1D372D6E3DB4FC6674B80557FEBAF3C293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Axialis IconWorkshop – программа для создания высоко
 magnet:?xt=urn:btih:F2502C740793E8C2AA8A6C46FE84B70A7217A6C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:F2502C740793E8C2AA8A6C46FE84B70A7217A6C5
 ```bash
 magnet:?xt=urn:btih:1A2576E5BF924AE328510ECC620151E90B1B6D27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:1A2576E5BF924AE328510ECC620151E90B1B6D27
 ```bash
 magnet:?xt=urn:btih:11D8F2BEC66A3929F560A389CB9007D76EA34247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Suicide Queen - Crowned In Blood (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <I
 magnet:?xt=urn:btih:BBA4F58E6542A1A71F2009ABDEA7DF0BFE68532F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:BBA4F58E6542A1A71F2009ABDEA7DF0BFE68532F
 ```bash
 magnet:?xt=urn:btih:DFB9BF6172AEED939D537DF36BDC4D332DB2750C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:DFB9BF6172AEED939D537DF36BDC4D332DB2750C
 magnet:?xt=urn:btih:42326AC94F49D7554F072137CF5B3AC41168B008
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:42326AC94F49D7554F072137CF5B3AC41168B008
 ```bash
 magnet:?xt=urn:btih:3DC43EDF994652E205A87BB1B30E44081BF71B4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:3DC43EDF994652E205A87BB1B30E44081BF71B4F
 magnet:?xt=urn:btih:BF8048ADCAD9C876702239C02B48E1E816AA7031
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:BF8048ADCAD9C876702239C02B48E1E816AA7031
 magnet:?xt=urn:btih:A1E62671044697B74B61328410FBD7EA6B6AA9F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:A1E62671044697B74B61328410FBD7EA6B6AA9F8
 ```bash
 magnet:?xt=urn:btih:66B50C2B373B29B5BC15988C8BB06F1C5696DD74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ VA - Nu Jazz Gentle Vibes (Soul, Nu Jazz, Smooth Jazz, Dream Pop) (2025) [FLAC|L
 magnet:?xt=urn:btih:891E8462560AE0203011F7A65CAB1B991A847DD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Aiarty Image Enhancer (с генеративным ИИ) — это соврем
 ```bash
 magnet:?xt=urn:btih:7254F78F963301B90763D152DD3CC3FDFC1D46E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ VA - Jazz For Studying And Working (Instrumental Jazz Vibes) (2025) [FLAC|Lossle
 magnet:?xt=urn:btih:C2357A02A3369F1F5671451AF152757CB8E88DD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ VA - Acid Jazz Instrumentals Vol. 3 (Jazz Funk Breaks Instrumental Tunes) (2025)
 magnet:?xt=urn:btih:1AB8AE3E1D5064448C35A8A1BA23F1C37D3CBA6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:1AB8AE3E1D5064448C35A8A1BA23F1C37D3CBA6F
 magnet:?xt=urn:btih:DFCB414D5F1693B94F1D20946FF1ADEA918E8DC0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:DFCB414D5F1693B94F1D20946FF1ADEA918E8DC0
 ```bash
 magnet:?xt=urn:btih:FA6D758022870D2337EAFF709604C8E6D329767F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +585,8 @@ VA - Acid Jazz Classics, Vol. 6 (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
 magnet:?xt=urn:btih:863F5D4C709F60DD63387BF99E23228704859C72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +614,8 @@ VA - Пульс эпохи (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
 magnet:?xt=urn:btih:CC7E837C00A5F1D8A66902F1DC83669637AC2552
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +639,8 @@ MotoGP. Этап 22 из 22. Гран-при Валенсии. Гонка (16.11
 ```bash
 magnet:?xt=urn:btih:64B6AA6F83234065EF7BADEA11CC36E0A5AC1762
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ WiFi Analyzer v6.8 (b106) Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:A23663D48689E3CF1ACF6DA20559C2E8380FB1B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ FacePic — приложение AI Face, приложение для легко
 ```bash
 magnet:?xt=urn:btih:9F475E1443071D11DA48B8EC5DE6ABBE966EE8C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

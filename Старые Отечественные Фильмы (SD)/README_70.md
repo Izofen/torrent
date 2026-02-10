@@ -1,3 +1,29 @@
+###  Публикация: 1374695   (870669) от 11.04.2020
+
+Безбилетная пассажирка (1978) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_870669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Случайная встреча круто изменила жизнь Нины. Вместе со своим новым знакомым, Антоном, она отправляется на великую стройку — БАМ. Разумеется, за трудовыми подвигами. Вот только билет на поезд купить забыла!..Производство: СССР / Киностудия им. М. ГорькогоЖанр: мелодрама, комедия, приключенияРежиссер: Юрий ПобедоносцевАктеры: Татьяна Догилева, Константин Кравинский, Амурбек Гобашиев, Тигран Давыдов, Ольга Торбан, Наталья Хорохорина, Марина Шигарева, Михаил Бычков, Юрий Чигров, Вячеслав ГостинскийСубтитры: отсутствуютПродолжительность: 01:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4384AFBAA6745BAA083A797E8FABDFBE29292D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374747   (870759) от 11.04.2020
 
 Белые горы (Трудная переправа) (1964) DVDRip [H.264]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:43984D6656D83EA83ABCFA2E1550A152DEC49196
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:43984D6656D83EA83ABCFA2E1550A152DEC49196
 magnet:?xt=urn:btih:2996126B8544DE2EC715E32453CF4ACD8CA43ADC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:2996126B8544DE2EC715E32453CF4ACD8CA43ADC
 ```bash
 magnet:?xt=urn:btih:A46F6EBBC1691B2263B5736F1B3289A15B8F0C38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:A46F6EBBC1691B2263B5736F1B3289A15B8F0C38
 magnet:?xt=urn:btih:6925D4B4CABC6ADE66A079DDB5F29FD86A12A7FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:6925D4B4CABC6ADE66A079DDB5F29FD86A12A7FF
 ```bash
 magnet:?xt=urn:btih:CD6DE3D127BEB68B592A8B9E8157C84DDE26CE23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:CD6DE3D127BEB68B592A8B9E8157C84DDE26CE23
 magnet:?xt=urn:btih:58B0A9BB5F79C5DD67FA9646ABDB895CFD556797
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:58B0A9BB5F79C5DD67FA9646ABDB895CFD556797
 magnet:?xt=urn:btih:7D022A132D65E0423CC2894915192324E8136A82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:7D022A132D65E0423CC2894915192324E8136A82
 magnet:?xt=urn:btih:30D53C71A0D57C64192D6FF6180C8E5A017198A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:30D53C71A0D57C64192D6FF6180C8E5A017198A0
 ```bash
 magnet:?xt=urn:btih:0E70E74F6527EFBBF824E087F9BCB2E76B4D3CF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:0E70E74F6527EFBBF824E087F9BCB2E76B4D3CF8
 magnet:?xt=urn:btih:4C6098D66F0D90E21812CD187192911020277703
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:4C6098D66F0D90E21812CD187192911020277703
 ```bash
 magnet:?xt=urn:btih:6FD5BB7CF7E6333832A561056CF62ECFF84146B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:6FD5BB7CF7E6333832A561056CF62ECFF84146B2
 magnet:?xt=urn:btih:7AEEDD9AEE12F2592A5362394DC424CCF24A752B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:7AEEDD9AEE12F2592A5362394DC424CCF24A752B
 magnet:?xt=urn:btih:25564053A8EA66A9E60A97AD379EE84A605C4986
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:25564053A8EA66A9E60A97AD379EE84A605C4986
 ```bash
 magnet:?xt=urn:btih:C9E2A1F856141BCC4A017FA02A9355879640778C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:C9E2A1F856141BCC4A017FA02A9355879640778C
 magnet:?xt=urn:btih:31B3B1BD8DD0FE9D78E4B203C3E461DE8C343B9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:31B3B1BD8DD0FE9D78E4B203C3E461DE8C343B9D
 ```bash
 magnet:?xt=urn:btih:26906A2F6CCDB724F8FCAAD8FBAB086B29F25689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:26906A2F6CCDB724F8FCAAD8FBAB086B29F25689
 magnet:?xt=urn:btih:C7FE76F2B2B77DD45DA5337D1779DAC51EE2324A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:C7FE76F2B2B77DD45DA5337D1779DAC51EE2324A
 ```bash
 magnet:?xt=urn:btih:57FFF32BFEE14E312E4B5695785D3ADAFE1C9E1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:57FFF32BFEE14E312E4B5695785D3ADAFE1C9E1D
 magnet:?xt=urn:btih:5B1FFA57E7DF30E4F940FBA98E1EEC1D7D844216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:5B1FFA57E7DF30E4F940FBA98E1EEC1D7D844216
 ```bash
 magnet:?xt=urn:btih:EDFAF3942EC40B5785FBAACCC3636FD82A0E389B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:EDFAF3942EC40B5785FBAACCC3636FD82A0E389B
 magnet:?xt=urn:btih:CCB5BAF949B818BCAF75A77AB1F06FEDBB143023
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:CCB5BAF949B818BCAF75A77AB1F06FEDBB143023
 ```bash
 magnet:?xt=urn:btih:E7FDD37A8D3F3D36DD9F86E47DDE1ABC065062D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +627,8 @@ magnet:?xt=urn:btih:E7FDD37A8D3F3D36DD9F86E47DDE1ABC065062D7
 magnet:?xt=urn:btih:35541574E09438ED8FDD34F8EA70239E01807A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:35541574E09438ED8FDD34F8EA70239E01807A03
 ```bash
 magnet:?xt=urn:btih:DA02DEDF8D6A1ED2B44F9D5643495B826670F42D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:DA02DEDF8D6A1ED2B44F9D5643495B826670F42D
 magnet:?xt=urn:btih:21DD0BE616D2CA60097BA14373FBEC0403F1CA25
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371808   (886923) от 02.04.2020
-
-И снова утро (1961) TVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_886923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Профессор Северцев, врач-хирург, спасая жизнь ребенку, остался без ног. Друзья и любимая женщина помогли ему поверить в себя и вернуться к любимому делу.Производство: СССР / ЛенфильмЖанр: ДрамаРежиссер: Геннадий КазанскийАктеры: Владимир Самойлов, Кюнна Игнатова, Борис Рыжухин, Петр Крылов, Вера Медведева, Светлана Мазовецкая, Владимир Волчик, Андрей Филиппов, Николай Харитонов, Сергей ГолубевСубтитры: ОтсутствуютПродолжительность: 01:16:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABEBFDC01824B0E6FD2E641228D7E2814EA77CB1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

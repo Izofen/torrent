@@ -19,6 +19,8 @@ Dr. Folder 2.9.1.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:51084460B9DC60BC33693A459985D3E811E75DF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Calca - текстовый редактор, который любит мат�
 ```bash
 magnet:?xt=urn:btih:9177ACAD64468388CE09801E01D2ECA59498A876
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ CudaText — абсолютно бесплатный мультиплатфор�
 magnet:?xt=urn:btih:26B56481CBE91FE238FEF4619C734DFAD718676E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:58D91F046090D5A9D18A70FB288EFD3D327912D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Pixelmator представляет собой мощный инструмент
 magnet:?xt=urn:btih:73DC542A39813AEF6EF8C9E36A281D7959BF8EA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:980ADBBC8196B4BED72A4D122C48C1468A182E8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ Name Mangler — переименовываем файлы пачками. Ин�
 ```bash
 magnet:?xt=urn:btih:4665F5B5F425F5CCD69FE410825494DAD694469B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ EtreCheck Pro 6.4.4 [En]
 magnet:?xt=urn:btih:FAC10966043718E2FBFEA03AE462AF9F84C6A7C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Book Track - это приложение для каталогизации и о
 ```bash
 magnet:?xt=urn:btih:883AFB5EF361273746E803F9106A18AF3095CC3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Glary Disk Cleaner - бесплатный инструмент от компан
 magnet:?xt=urn:btih:BFA0237B172D197666FAE6BE61E5F64DA1471A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ EazyDraw от Dekorra Optics – графическая программа, со
 ```bash
 magnet:?xt=urn:btih:94BA9E75F49541CFEB0571DCBFDA9FA35D5E9195
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ NIUBI Partition Editor – программа для простого и над�
 magnet:?xt=urn:btih:0868F445EE630532DB9A4D73E8D78831A5F77AE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Batteries 2.1.1 [En]
 ```bash
 magnet:?xt=urn:btih:003992B2E87509ED1E62ED7F50EDA27FBEAD1C84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Opera 99.0.4788.47 Portable by Cento8 [Ru/En]
 magnet:?xt=urn:btih:E1FCFD0FDADD90034904840E29272C0875E482BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -358,6 +386,8 @@ PullTube 1.5.7 [Multi/Ru]
 magnet:?xt=urn:btih:4FCCF5707D2C8B00EC59C0FAC85324BBFC397A2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ AYVY 1.12.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:2D21CF8F7979B3CFF85C7EB14D954428AFE76C13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Wondershare UniConverter - это полный набор инструменто
 magnet:?xt=urn:btih:80CD8C0C526DAD49C58FE5B36E1E9206A565BE68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Opera Crypto Browser 99.0.4788.47 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:CAC29E46E38ECD623B6AAA1A3912DB4ED89F623C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ Text Scanner - это мощный инструмент сканирования
 ```bash
 magnet:?xt=urn:btih:8DD101EACB18103150BA06359C7E015B8D3AA909
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Luminar Neo 1.0.5 [Multi/Ru]
 magnet:?xt=urn:btih:2D5EC7610F9C20E0535340DB7C453E055CE1F861
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ Aiseesoft Mac FoneTrans 9.1.66 [En]
 ```bash
 magnet:?xt=urn:btih:463E1E18CF99F45639E0DE9B162D1FC7BE69B756
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:463E1E18CF99F45639E0DE9B162D1FC7BE69B756
 ```bash
 magnet:?xt=urn:btih:C261879127751C318E1FC17D82E576361421FE90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ Yate был разработан для людей, которые серьез�
 magnet:?xt=urn:btih:05ECAD56BAB95B4FD29DE6C03FC9AB97058B5DB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ After Effects — это ведущая в отрасли программа д�
 magnet:?xt=urn:btih:902432D8B38DC38529D97BE3BB9D4708898E6C9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:258A91B4B278624B6704573A811C419CF59DA744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +679,8 @@ VA - Trance Impact Vol. 7 (2020) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:9F39C1D73FB8BEEE17B3281DAA1059FFF12327F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

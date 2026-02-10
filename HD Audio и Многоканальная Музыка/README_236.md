@@ -1,3 +1,32 @@
+###  Публикация: 1041078   (584150) от 07.08.2016
+
+Amy Winehouse - Back to Black (2013) [DTS-HD MA, LPCM, Dolby TrueHD 2.0|96/24|Blu-ray] <Soul, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_584150.jpg" />
+</div>
+
+
+###  Подробнее
+
+Back to Black — второй и последний студийный альбом британской певицы Эми Уайнхаус, выпущенный 4 октября 2006 года на Island Records. Большинство музыкальных критиков положительно отозвались об альбоме, оценив талант автора в песнях, написанных Уайнхаус под влиянием классического соула и спродюсированных Саламом Реми и Марком Ронсоном. На 50-й церемонии «Грэмми» (   Читать дальше...   )01. Rehab
+02. You Know I'm No Good
+03. Me & Mr. Jones
+04. Just Friends(   Читать дальше...   )Жанр: Soul, JazzПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F70B632E8E3AAACD753BA1AA7915891210D206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041132   (584154) от 07.08.2016
 
 Supertramp - Breakfast in America (1979) Reissue, 2013, A&M [DTS-HD MA, LPCM, Dolby TrueHD 2.0|96/24|Blu-ray] <Art Rock, Pop Rock, Classic Rock>
@@ -21,6 +50,8 @@ Breakfast in America — шестой студийный альбомы груп
 ```bash
 magnet:?xt=urn:btih:93C92B31BF8648921209C5D98214A4F0336E0BA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ A3 'Cause You Are Young(   Читать дальше...   )Жанр: Euro Disco�
 magnet:?xt=urn:btih:74EE639E50570487C1163D810A3F99B680BA2D18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ magnet:?xt=urn:btih:74EE639E50570487C1163D810A3F99B680BA2D18
 ```bash
 magnet:?xt=urn:btih:04180D0FFEEB4A4F830CFF26E91B74A9F63BA69A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ A4 Take These Chains From My Heart(   Читать дальше...   )Жанр: 
 magnet:?xt=urn:btih:72222CA9D886E21DFC7CEDA0568C75FE740FF782
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ A4 A Man I'll Never Be(   Читать дальше...   )Жанр: Prog Rock, P
 ```bash
 magnet:?xt=urn:btih:7A87CEE71C750B5A7E2BE0A764DDE2466524F633
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +202,8 @@ Sandra - Everlasting Love (1988) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Synthpop>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ Eric Clapton - Give Me Strength - The '74/'75 Recordings (1974-1975) 2013, Polyd
 ```bash
 magnet:?xt=urn:btih:B04CBBEFFE4630E73B7B834507203D95A5DE7522
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +260,8 @@ The Velvet Underground & Nico — дебютный альбом американ
 magnet:?xt=urn:btih:9EA43AA5537EABA5038069FCDCC3E9587B687B03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +288,8 @@ Queen - A Night At The Opera (1975) [DSD 2.0|2822,4/1|image|Vinyl-Rip] <Rock>
 ```bash
 magnet:?xt=urn:btih:6D6E1BDAD904966592D6FADF6FD4377FCDEF0653
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +318,8 @@ C4. Mr. Blue Sky (5:05)(   Читать дальше...   )Жанр: Progressive
 magnet:?xt=urn:btih:93C2844022BD79A6C25A115CF23B4C1369958FAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +346,8 @@ Billy Talent — канадская рок-группа. Была сформир
 ```bash
 magnet:?xt=urn:btih:FEEB64DDC9870C87808846C58D77D278B15B4AB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +376,8 @@ VA - Белый Теплоход - Золотые шлягеры 70-х (2000) Co
 magnet:?xt=urn:btih:F522A15013992F2B2A0DA733DB978CFAFA2D4E51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +404,8 @@ Bad Company - Rough Diamonds (1982)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Ro
 ```bash
 magnet:?xt=urn:btih:FC2A661789B5C4A58D10283D083063A97D31409A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +434,8 @@ Brian Flanagan - Where Dreams Are Made (2017) [DTS 5.1 CD-DA| 44.1/16|image+.cue
 magnet:?xt=urn:btih:F3502D664B7CA4D9D7BD5CB35551DEEBCE7D65E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +462,8 @@ VA - Звезды Мехико (1969) (Л. Барашков, Т. Миансар�
 ```bash
 magnet:?xt=urn:btih:7A6AFC1DEBE7D1E0B3CA6F28B0F3994563883DA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +492,8 @@ Sting (настоящее имя — Го́рдон Мэ́ттью То́мас 
 magnet:?xt=urn:btih:52C49FF41CA21DD68F1C1009453571DDA407F144
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +520,8 @@ Mastodon — американская метал-группа из Атлант�
 ```bash
 magnet:?xt=urn:btih:B9FC2D182522D1529345B5F1C021AED4ACFDCCC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +550,8 @@ Opeth — метал-группа из Швеции. Для ранней муз�
 magnet:?xt=urn:btih:77849C14990A67012EB6383067160B9F49AA1ED3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +576,8 @@ Mike Oldfield - Tubular Bells (1973) remaster 2001 [DTS 4.0 CD-DA|44.1/16|image+
 ```bash
 magnet:?xt=urn:btih:F62E23A154A3D63BBF16D052ACFB072868D652C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +607,8 @@ Twisted Sister — американская глэм-метал-группа и�
 magnet:?xt=urn:btih:4FB7C0E85787712182A6D13CF60A8EE7B11EAAA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +635,8 @@ A4 Парафраза(   Читать дальше...   )Жанр: Jazz, Easy Li
 ```bash
 magnet:?xt=urn:btih:EB3EB617B322DEC6AFD9997B13D1BC7727A82D48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +665,8 @@ A4 Ангелочек (Angie Baby)(   Читать дальше...   )Жанр: 
 magnet:?xt=urn:btih:1655F0090854A45F02B4616BF73161E16B5AC5B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +693,8 @@ A4 Let's Put Out The Lights (And Go To Sleep)(   Читать дальше...   
 ```bash
 magnet:?xt=urn:btih:D554410E59E11D75E351C627B965CC74770AC44A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +723,8 @@ A4 Яак Йоала - Подберу Музыку(   Читать дальше.
 magnet:?xt=urn:btih:EC0D1A40407AA866ADF95FB8C0E354A6F8A8D043
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,32 +752,7 @@ A4. Top Jimmy (3:01)(   Читать дальше...   )Жанр: Hard RockПр�
 magnet:?xt=urn:btih:D06854D4B32B2584F86081D4E764026D44453965
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039521   (594514) от 02.08.2016
-
-Арсенал - Своими Руками (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Fusion>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_594514.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Тайна (Mystery)
-А2 Посвящение Махавшину (Dedication To Mahavishnu)
-В1 Свет На Пути (Light On The Way)
-В2 Сюита В Фа Миноре (Suite In F Minor)Жанр: Jazz, FusionПродолжительность: 00:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9258C86254D062CB9A287D909694D832CD4FDD6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

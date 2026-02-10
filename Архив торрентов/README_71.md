@@ -19,6 +19,8 @@ MobiOffice - это полнофункциональный офисный пак
 magnet:?xt=urn:btih:3FCB16B462FA8B97A23EC0FCE0A9CF5FA6F4126D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:72A11D6E970BB55D8770D540C299864CC306DF1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ VRadio - Online Radio App v2.8.1 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:F7AD7C01283813F9FEB5CBA45595294DD0F40DD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Kdenlive - бесплатный нелинейный видеоредактор,
 magnet:?xt=urn:btih:8A356E8A9ED41857DE275F1E048E29C508CE9E34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ AirBrush: ИИ Фоторедактор v7.8.0 Mod by PieMods [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:4A671D469A8D51A99EA30AB7A0CD5251DA9EAFB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Zoo Match / Три в Ряд: Зоопарк и Животные v1.8.2 Mod by v
 magnet:?xt=urn:btih:A8A136A3EF83D8E5004874670EBFD0368ADFCE5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:A8A136A3EF83D8E5004874670EBFD0368ADFCE5C
 ```bash
 magnet:?xt=urn:btih:36800716AFCA5F1E0C45ACDC97522F87B8EDC554
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:36800716AFCA5F1E0C45ACDC97522F87B8EDC554
 magnet:?xt=urn:btih:340D74FF8FACACE3BD27B0E692376601A01CFB21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ OsmAnd+ является приложением с открытым исходн
 magnet:?xt=urn:btih:336057F87F6E7BD6C64CF1520D2E1F0F185FBEC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:336057F87F6E7BD6C64CF1520D2E1F0F185FBEC6
 ```bash
 magnet:?xt=urn:btih:0C6ECED2C433EAB3EDF75AC9CE48E6D214CB0391
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:0C6ECED2C433EAB3EDF75AC9CE48E6D214CB0391
 magnet:?xt=urn:btih:534A8A4841A94FD2D6CD5EF93D0F2D12A79C0F43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:534A8A4841A94FD2D6CD5EF93D0F2D12A79C0F43
 ```bash
 magnet:?xt=urn:btih:E0C483249138A9989E381E7EFFBE169B1BECBA6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:64ABD5C7F302AD9949D04EFDDD03F16BEFF65329
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ Araxis Merge – это обязательное приложение для р�
 magnet:?xt=urn:btih:D880390F040AC7341ABAF168E7A39B262D8E6E85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:29C7518C293EEBA35D1EE8E7B4DC2804E4A95916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +421,8 @@ Tixati — это полноценный и бесплатный клиент с
 magnet:?xt=urn:btih:5CD5B4918DBB5F3983930FEA43CC378285B56996
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ MediaHuman YouTube Downloader 3.9.11 (3004) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:47CA42AD1B3929696F06603621499C8FCEBBEC3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ FastStone Image Viewer - вьювер, редактор и конвертер г
 magnet:?xt=urn:btih:582B6605155AAF6D654449AB8C5AFBD5BF729E9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +498,8 @@ MediaInfo — позволит узнать техническую информ�
 ```bash
 magnet:?xt=urn:btih:46143D7D67E2AF9BBCA94DC3B5F63C1E1357B556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ OCCT 14.0.9 Portable [En]
 magnet:?xt=urn:btih:64F9D4AAF6F8AFEF0384826F581E311E4CB82301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ MediaHuman YouTube Downloader 3.9.11 (2904) RePack (& Portable) by elchupacabra 
 ```bash
 magnet:?xt=urn:btih:CBB8D8F02FDC0BD02783841410B6A19FE903C7FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ Tor Browser Bundle 14.5.1 Portable [Multi/Ru]
 magnet:?xt=urn:btih:0C40F39BD0C0736656B0B62BD67B69A17515BE7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ WinToUSB - позволяет устанавливать и запускать �
 ```bash
 magnet:?xt=urn:btih:AA119AAEE00B1A2E2B4C6BFD9A2C3E3CC4020D0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:C00C2E37EFE211FE36F264AD123AB60FA0652FA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:C00C2E37EFE211FE36F264AD123AB60FA0652FA1
 magnet:?xt=urn:btih:311B542129810B307BB44B5B00AB2FBF19C4AF2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Microsoft Activation Scripts (MAS) 3.1 portable [En]
 ```bash
 magnet:?xt=urn:btih:6FEF5576055BB5AE420644C915BE1F8284A7E472
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

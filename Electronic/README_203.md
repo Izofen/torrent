@@ -22,6 +22,8 @@ VA - My Nature: The Best Of Katty Heath (2019) [MP3|320 Kbps] <Trance, Vocal Tra
 magnet:?xt=urn:btih:49D2B7CBD6730D307108D47CA79DF9B462B34B7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ SYNTHEVER - Around The World Hits Vol. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <S
 ```bash
 magnet:?xt=urn:btih:60C005A7AAA7DF733961B7EBBE6060581954AFE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Dash Berlin @ Mainstage, Ultra Music Festival Japan 2019-09-15:
 magnet:?xt=urn:btih:E76AA7417BBC868A94F157961D278A9B1D2CB708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Seph - Discography 19 Releases (2007-2020) [FLAC|Lossless|tracks+.cue, tracks] <
 ```bash
 magnet:?xt=urn:btih:14CE953FDE4B5875BD671C71A2892777041D57DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Nseven - Discography 7 Releases (2004-2020) SHUM Records [FLAC|Lossless|tracks+.
 magnet:?xt=urn:btih:E650B4BB6F865D2287ED7C6C45120E58FD97F9C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Vocal Trance - Hits Best Of (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 ```bash
 magnet:?xt=urn:btih:3B75757C61CEEA775FFA01B2E315352402BF98DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ R°A - Space Melody (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Italo-Disco, Synthp
 magnet:?xt=urn:btih:0098ACE257E4703621A905BBE1FB1CD8EC62F1BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ Extrawelt - Discography 21 Releases (2005-2017) [FLAC|Lossless|WEB-DL|tracks] <T
 ```bash
 magnet:?xt=urn:btih:5A9F752E0A0C0A2DFEE8A9852030804E5EB66481
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +252,8 @@ VA - White Chill Out Vol 1 (2015) [MP3|320 кб/с]<Lounge, Chill Out>
 magnet:?xt=urn:btih:B5E7AFA7FFEAFF15C119F5DECD3A63813EC412B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ Indecent Noise - Everything Is Connected (2020) Black Hole Recordings [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:79E9C242DF887699CE0AAF5716E67398606142F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +310,8 @@ VA - Exhibition #100 (2020) Audiobulb [FLAC|Lossless|WEB-DL|tracks] <Ambient, Ex
 magnet:?xt=urn:btih:BF1CFD7F83325C982C16A15259F016EDECF0D546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +338,8 @@ VA - Winter Love Sounds: Chillout Songs (2015) [MP3|320 кб/с]<Downtempo, Chil
 ```bash
 magnet:?xt=urn:btih:9B753986611D78CBDE58BB0650E8C46B314575CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +368,8 @@ Hydergine - Light Infusions (2020) Ranges [FLAC|Lossless|WEB-DL|tracks] <Techno,
 magnet:?xt=urn:btih:3BA99C91A4A792B1205EFF75D992890F93C78037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +396,8 @@ Qik - Alba (2020) Aula Magna Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Exp
 ```bash
 magnet:?xt=urn:btih:54925AB27A2D6B52F392EF1A45843EBF013B1FB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +426,8 @@ VA - A Murder In The Company Of The Vespertine (1999) Vespertine [FLAC|Lossless|
 magnet:?xt=urn:btih:06E369B8D7B0438DB9165C9B919FA4A029CC627E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +454,8 @@ VA - Sweet Dreams: Vocal Chillout (2017) [MP3|320 Kbps] <Downtempo, Chillout>
 ```bash
 magnet:?xt=urn:btih:85BB670F7BC6225B003F4724CD85B0928C5D1D64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +484,8 @@ Moby - The Remixes (2016) [MP3|320 Kbps] <Techno>
 magnet:?xt=urn:btih:9BD2F6551874BDF19B591C5F4FE7AEF576090A74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +512,8 @@ VA - Top 10 Sales Chart - 2017 September (2017) [FLAC|Lossless|tracks] <Progress
 ```bash
 magnet:?xt=urn:btih:9643D8BD6F4952F72291A6E4E086BF7B50B27ED8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +542,8 @@ VA - Progressive Winter (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
 magnet:?xt=urn:btih:831DA28B454D60AB65481C26AFFC5708E5AD283A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +570,8 @@ Lustre - Still Innocence (2017) [MP3|320 Kbps] <Ambient, Atmospheric Black Metal
 ```bash
 magnet:?xt=urn:btih:1C030C6DF74793C4C3B8376AAFABA1D37118ED82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +600,8 @@ Tomas Barfod - Paloma (2017) [MP3|320 Kbps] <Downtempo, Electronic, House>
 magnet:?xt=urn:btih:8494963AEF93C3C300ABB53C364880628B44BA47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +628,8 @@ Resident 348 (06-01-2018)
 ```bash
 magnet:?xt=urn:btih:6305A5B4C14D895B7F92C81E4C36284CBD345306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,6 +664,8 @@ Kognitif - My Space World (2012) [MP3|320 кб/с]<trip-hop, abstract, nu-jazz>
 magnet:?xt=urn:btih:C6A36B81B8C03A38A20C98A076F5CACDD4B04319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +692,8 @@ ScAnDroid Experiment's - Mechanical Music Box (2018) Авторская разд
 ```bash
 magnet:?xt=urn:btih:50D9EF316314D58B6190E334E5D203879AC2EB81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -674,6 +722,8 @@ VA - 90s Festival & Club Hits (In The Mixes Of Today) (2016) [MP3|320 Kbps] <Pro
 magnet:?xt=urn:btih:4B4A83AA9937E7107DB6C6656D16796429671810
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,6 +750,8 @@ VA - Ibiza Seasons, Winter Edition 2017 (Best Of Deep Chilled House) (2016) [MP3
 ```bash
 magnet:?xt=urn:btih:29485639E10ADAB26C07FB97ACDE7FE85AB23E59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

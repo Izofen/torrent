@@ -1,3 +1,30 @@
+###  Публикация: 910037   (623418) от 19.06.2015
+
+Станислав Махов | Штурмовой бой ГРОМ. Психологическая подготовка (2014) [FB2, EPUB]
+
+>>Разное (категория книг)
+>>Спорт, Фитнес, Боевые искусства
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_623418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Психологическому оружию в наше время придается огромное значение. Владение этим оружием значительно повышает боеспособность и зачастую является решающим фактором в достижении победы.
+Работа над собой требует определенного творчества. Это обусловлено тем, что необходимо учитывать свои индивидуальные способности. Психологическая подготовка рассмотрена на примере рукопашного (   Читать дальше...   )Жанр: Самосовершенствование, Спорт, фитнесФормат: FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F5A4CB4BEF51E688A82152AC2184F5D91F2781B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 909736   (623426) от 19.06.2015
 
 Светлана Левшова | Бухгалтерский учет: шаг за шагом (2012) [PDF]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:70FC72C111E0A18E64E557FDDB76B2E4C60C88F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +72,8 @@ magnet:?xt=urn:btih:70FC72C111E0A18E64E557FDDB76B2E4C60C88F2
 magnet:?xt=urn:btih:3036166227FFEB4174DDBF1B7B9214C91180DC15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +97,8 @@ magnet:?xt=urn:btih:3036166227FFEB4174DDBF1B7B9214C91180DC15
 ```bash
 magnet:?xt=urn:btih:1762C9640761839CFD6129E09674B32F0C804408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +124,8 @@ magnet:?xt=urn:btih:1762C9640761839CFD6129E09674B32F0C804408
 magnet:?xt=urn:btih:0ADEB40245333FA82B13395B8DD73BF49921D7BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +149,8 @@ magnet:?xt=urn:btih:0ADEB40245333FA82B13395B8DD73BF49921D7BD
 ```bash
 magnet:?xt=urn:btih:39B1BE295DB975C94CFB029B787AAB94CE19BCC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:39B1BE295DB975C94CFB029B787AAB94CE19BCC6
 magnet:?xt=urn:btih:C970A7CDD39CDBFA5EB2B4A736BF205A91BDDBB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +204,8 @@ magnet:?xt=urn:btih:C970A7CDD39CDBFA5EB2B4A736BF205A91BDDBB5
 ```bash
 magnet:?xt=urn:btih:0C65039B0A47BED8C043209A36E4C33AE6474BCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ magnet:?xt=urn:btih:0C65039B0A47BED8C043209A36E4C33AE6474BCA
 magnet:?xt=urn:btih:633B83C6357875A9B977F63540E8A68A563A3D25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +256,8 @@ magnet:?xt=urn:btih:633B83C6357875A9B977F63540E8A68A563A3D25
 ```bash
 magnet:?xt=urn:btih:055AF8F593A5CC42EFD76BF726FDE26C2954303E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +284,8 @@ magnet:?xt=urn:btih:055AF8F593A5CC42EFD76BF726FDE26C2954303E
 magnet:?xt=urn:btih:7C49988C698B372F7F656B61B12D64045E56B499
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +309,8 @@ magnet:?xt=urn:btih:7C49988C698B372F7F656B61B12D64045E56B499
 ```bash
 magnet:?xt=urn:btih:F8E9A9E30106D60EB424B7F2536177174128A659
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +336,8 @@ magnet:?xt=urn:btih:F8E9A9E30106D60EB424B7F2536177174128A659
 magnet:?xt=urn:btih:BCE528505A3D32CF9AEB88CB08CF474E1B8807F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +361,8 @@ magnet:?xt=urn:btih:BCE528505A3D32CF9AEB88CB08CF474E1B8807F7
 ```bash
 magnet:?xt=urn:btih:C16AE3FC672109B65E35DA706F128F37C6C34274
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -335,6 +388,8 @@ magnet:?xt=urn:btih:C16AE3FC672109B65E35DA706F128F37C6C34274
 ```bash
 magnet:?xt=urn:btih:2359BF626FEC9CBD73FEC795834CC80892B73BFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +417,8 @@ magnet:?xt=urn:btih:2359BF626FEC9CBD73FEC795834CC80892B73BFC
 magnet:?xt=urn:btih:88E24CCE00ABF2857EBE76C3B602BB4D6F605790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +443,8 @@ magnet:?xt=urn:btih:88E24CCE00ABF2857EBE76C3B602BB4D6F605790
 ```bash
 magnet:?xt=urn:btih:C89A2B8812B680D8AEBAE425C5928EEB786977CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +473,8 @@ magnet:?xt=urn:btih:C89A2B8812B680D8AEBAE425C5928EEB786977CE
 magnet:?xt=urn:btih:CA752F2C21F469B6257A0F9ED6D48FE442050888
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +498,8 @@ magnet:?xt=urn:btih:CA752F2C21F469B6257A0F9ED6D48FE442050888
 ```bash
 magnet:?xt=urn:btih:1F794AD7838D2EB12A67D6439A50660130AD9F63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +525,8 @@ magnet:?xt=urn:btih:1F794AD7838D2EB12A67D6439A50660130AD9F63
 magnet:?xt=urn:btih:F9FA343497382776B18218F5AE612D277FF1B24F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +551,8 @@ magnet:?xt=urn:btih:F9FA343497382776B18218F5AE612D277FF1B24F
 magnet:?xt=urn:btih:3838237D801A9E703F0ACF74B11ABE0295F08E51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +576,8 @@ magnet:?xt=urn:btih:3838237D801A9E703F0ACF74B11ABE0295F08E51
 ```bash
 magnet:?xt=urn:btih:7877A7FCD80779BCF6A262210662CF6ED9477E38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +605,8 @@ magnet:?xt=urn:btih:7877A7FCD80779BCF6A262210662CF6ED9477E38
 magnet:?xt=urn:btih:31266614B9EBED61A69F42C6ABA801EAFF57D7FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +630,8 @@ magnet:?xt=urn:btih:31266614B9EBED61A69F42C6ABA801EAFF57D7FD
 ```bash
 magnet:?xt=urn:btih:80DF636853B3DA4876B5AC329DF492A4BEA13520
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +658,8 @@ magnet:?xt=urn:btih:80DF636853B3DA4876B5AC329DF492A4BEA13520
 magnet:?xt=urn:btih:9A86EF16D2F458127C68845E7CDAA0F5CE34488F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,29 +684,7 @@ magnet:?xt=urn:btih:9A86EF16D2F458127C68845E7CDAA0F5CE34488F
 magnet:?xt=urn:btih:1AD051EEB3FE64A42A6528B3583079EEA4796C75
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035904   (624488) от 18.07.2016
-
-Дмитрий Верхотуров | Ядерная война. Все сценарии конца света (2016) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_624488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еще недавно казалось, что человечество навсегда избавилось от ужаса ядерной войны и тотального уничтожения. Однако теперь прежние страхи оживают вновь. В последние годы всё чаще говорят о возвращении угрозы атомного Апокалипсиса. Обвиняя Россию в «бряцании ядерным оружием», Запад готовится к нанесению «упреждающего удара». И уроки холодной войны сегодня актуальны (   Читать дальше...   )Жанр: ПублицистикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F69063EB7686D08D15DBCB79942CAC0B6810CAE8
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

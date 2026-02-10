@@ -20,6 +20,8 @@ WordPress – одна из самых популярных CMS для созд�
 magnet:?xt=urn:btih:BEB86A46F0F60B0AD8245432A44C68EB41523836
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Beonmax | Курс Linux / GIT (2019) PCRec [H.264/1080p-LQ]
 magnet:?xt=urn:btih:88D521C004088520528B323446FF78C469C108F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Beonmax | Курс ВЕБ-разработчик 2019 - с нуля до рез�
 ```bash
 magnet:?xt=urn:btih:251FEDFDBA966DD2390D007ED8B2BD35BE78061F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Udemy | Создание сайта с нуля до профессионала 
 magnet:?xt=urn:btih:C3D20798F8726B0AD9E820B7DD3E0C16DAA929D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ Udemy | Angular и NgRx - пишем реальный проект с нуля (
 ```bash
 magnet:?xt=urn:btih:D8954F6A2AB6EF43287DFD9B69D71DED97BC73D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +158,8 @@ Udemy, Catalin Stefan | Android Jetpack masterclass in Kotlin (2021) WEB-DL [En 
 magnet:?xt=urn:btih:F9D4F77FE4579DDF89C3E8A47AE3AD48BF39A7C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ Udemy, Bryson Payne | Real-World Ethical Hacking: Hands-on Cybersecurity (2021) 
 magnet:?xt=urn:btih:0E8A891961428877DA33F5E7F95C7AEA71C5E1E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ SEC660: Advanced Penetration Testing, Exploit Writing, and Ethical Hacking ра�
 ```bash
 magnet:?xt=urn:btih:3ADCC0BCA5299EC7392BA3FDA429A95E05E9C587
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ Udemy | Ultimate Ethical Hacking Course 2021 (2021) WEB-DL [En / En Sub]
 magnet:?xt=urn:btih:142E8C96FFA08FA90B78A213F09B77BC1C733589
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Udemy | Основы ООП на Python (2020) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:C34324B7AC4A2C79CF7413AE826A1D729F25E0BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ CoffeeScript - это язык программирования, который 
 ```bash
 magnet:?xt=urn:btih:6BF94FE64E26C6D778BBFE2DCDD7A552D42E5436
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +320,8 @@ Udemy, Testing World | End to End Automation using Python | Web Application & AP
 magnet:?xt=urn:btih:66D27FC541C0AF0D77D5F1A85A0AE974C9AE231D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ Udemy, Luca Berton | Automate Ubuntu Linux SysAdmin tasks in 30+ Ansible example
 ```bash
 magnet:?xt=urn:btih:8CE0F4CBD17539CD0B9DB584E864D49546A690C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ Udemy, Imran Teli | DevOps Projects | 20 Real Time DevOps Projects (2021) WEB-DL
 magnet:?xt=urn:btih:670957BEEA39775EF4FC1BE47193518F2A1E5EC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ Udemy, Tom See | Linux RHCSA preparation course - RHEL 8.2 - Latest version (202
 magnet:?xt=urn:btih:9AF48B532A10C905C7D5A2BB7FA8178EBE12C844
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +431,8 @@ Udemy | Разжёванный курс по JavaScript для чайников 
 ```bash
 magnet:?xt=urn:btih:348AFF3C41EE0308C15AED5790DBA81E6BFE8896
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ SANS Institute, Joshua Wright | SEC504: Hacker Tools, Techniques, and Incident H
 magnet:?xt=urn:btih:B61B48599AAB9AA3CC7A59E873D9ED28D5574B96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ Udemy | MQL5: Создание торговых роботов и индикат
 ```bash
 magnet:?xt=urn:btih:D600E7A0A25E73DEF20C48B3DE9CBBACDBECA49A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ Excel – мощный инструмент для обработки и ана�
 magnet:?xt=urn:btih:D546BB34F5A6EA6CA12D1DF67919169A5FAA97E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ ITVDN | Angular Advanced (2017) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:C90E925531FD2DB5EDF5DEB795D6C7BB4998EE79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:C90E925531FD2DB5EDF5DEB795D6C7BB4998EE79
 ```bash
 magnet:?xt=urn:btih:BDCCCEF90A9ECEFF92B24FCE005EE5317C492D56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ Lectrum | Продвинутый онлайн-курс по Backend (2020) PCRec
 magnet:?xt=urn:btih:ECA0B06BFEC3EE3E37D7321D580DD91CC47037D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ Udemy | Корпоративное приложение Myphotos: JEE 7, NetBean
 magnet:?xt=urn:btih:B453B9E67BB61CA42CE1368AC7AA96F73BC6D593
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ ProfIT | DBA Введение в профессию (2015) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:3A2CAB0103FDE02E0606898C8DBAA7A608910164
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -625,6 +673,8 @@ Udemy | Web приложение - My Resume на базе фреймворка 
 magnet:?xt=urn:btih:F2149344A55DEDA00F88F2B8FCBF8472A420CA7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ Udemy | Web приложение - My Blog: Servlets, JSP, JSTL, JDBC, Eclipse (
 ```bash
 magnet:?xt=urn:btih:AB562C86CA2C9A988B1F9A9EA0F40B7513111811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

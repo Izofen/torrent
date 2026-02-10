@@ -1,3 +1,29 @@
+###  Публикация: 1843669   (1049564) от 21.12.2025
+
+Бакенбарды (1990) DVDRemux
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1049564.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перестройка в разгаре. В уездном городе Заборске нет житья от распоясавшихся молодежных группировок. И тут в городок из Ленинграда приезжают два человека с бакенбардами, в макинтошах и котелках. Люди с тросточками и в крылатках решают вернуть российской глубинке первозданную духовность. Они цитируют Пушкина, прекрасно умеют постоять за себя при помощи трости и твердо (   Читать дальше...   )Производство: СССР, Голос, ЛенфильмЖанр: КомедияРежиссер: Юрий МаминАктеры: Виктор Сухоруков, Александр Медведев, Артур Ваха, Владлен Бирюков, Александр Лыков, О. Алабышева, О. Самарина, Анатолий Журавлев, Юрий Мамин, Елена РуфановаСубтитры: отсутствуютПродолжительность: 01:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC05D896B6840450E3CA3BD755B5D36D97BF2410
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844820   (1050198) от 28.12.2025
 
 Звезды и солдаты (Красное и белое) / The Red and the White (Csillagosok, katonak) (1967) DVDRemux
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:E0685952122D2475D290EB087C7921BE49192B6D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:E0685952122D2475D290EB087C7921BE49192B6D
 magnet:?xt=urn:btih:B21B0BE67F66EC26EFE0DF2642E9704613725CE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:B21B0BE67F66EC26EFE0DF2642E9704613725CE6
 ```bash
 magnet:?xt=urn:btih:1ADDE0B33FF75822743292CA361C39D1E250CD8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:1ADDE0B33FF75822743292CA361C39D1E250CD8B
 magnet:?xt=urn:btih:CECA7426E1F2E6AC0044996DDF2A0EA87AD418D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:CECA7426E1F2E6AC0044996DDF2A0EA87AD418D9
 ```bash
 magnet:?xt=urn:btih:DE9BF24581BD1193E82FE039E2B7E228A92438BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:DE9BF24581BD1193E82FE039E2B7E228A92438BC
 magnet:?xt=urn:btih:DCEFC2BD06A76B6DFD838602CB38CD5E0C52264F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:DCEFC2BD06A76B6DFD838602CB38CD5E0C52264F
 ```bash
 magnet:?xt=urn:btih:7441C8CD8558EBFD89521281015545C3F9129BFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:7441C8CD8558EBFD89521281015545C3F9129BFC
 magnet:?xt=urn:btih:482E86EC3C0FC6066E1F75DBF370ACEBB41F87B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:482E86EC3C0FC6066E1F75DBF370ACEBB41F87B0
 ```bash
 magnet:?xt=urn:btih:133769B6F3F2BA01E3836C9C15B26E1A0A1A9561
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:133769B6F3F2BA01E3836C9C15B26E1A0A1A9561
 magnet:?xt=urn:btih:01087DC92A81209F3B0340D6E17A32A67EBC14BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:01087DC92A81209F3B0340D6E17A32A67EBC14BE
 magnet:?xt=urn:btih:87949FDF886AF62327627EA70FC0B6F0ACE8AF4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:87949FDF886AF62327627EA70FC0B6F0ACE8AF4F
 ```bash
 magnet:?xt=urn:btih:348B1C634549D446090E3FD219AF8C914AF1BCAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

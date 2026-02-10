@@ -1,3 +1,117 @@
+###  Публикация: 608232   (993983) от 24.01.2013
+
+Lindsey Stirling and the Piano Guys - Mission Impossible (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_993983.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 00:05:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F770213C624E07B409C58831D3E3F9A0389BB68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 606776   (994037) от 24.01.2013
+
+Мастер и Кипелов - Концерт в клубе "Вояж" (1995) VHSRip [H264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Игры не для нас
+02. Тореро
+03. Мечты
+04. Без тебя(   Читать дальше...   )Жанр: Концерт, Hard Rock, Heavy MetalПродолжительность: 00:58:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F4462753AFD1D48BCD69EBE0B6A65DCE9801831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608230   (994136) от 24.01.2013
+
+Armin van Buuren feat. Fiora - Waiting For The Night (2013) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_994136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: TranceПродолжительность: 00:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDDA80117DED8D81924E99BC708AA50428D2FDB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 430361   (994147) от 01.01.2012
+
+Нюша - Выбирай своё чудо. Первый сольный концерт Нюши (2011) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+Восходящая звезда российского музыкального небосклона, выходя на сцену, буквально сметает волной, бушующей позитивной энергией! Все это произойдет и с поклонниками певицы в Ледовом Дворце. Нюша обладает собственной манерой исполнения и уникальным природным тембром голоса, всё это придаёт её творчеству яркую индивидуальность и позволяет моментально отличить её от других исполнителей. По версии авторитетной исследовательской компании Gallup Media, Нюша входит в тройку самых ротируемых и самых популярных молодых (   Читать дальше...   )01. Вою на Луну
+02. Why
+03. Отображение
+04. Другая
+05. Больно
+06. Ты слишком сильный
+07. Ангел
+08. Не перебивай(   Читать дальше...   )Жанр: КонцертПродолжительность: 01:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53B68CCBECD014203B90F98044B40E18EFE09BD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 430285   (994153) от 01.01.2012
 
 Суперстар представляет. Все выпуски (2009-2011) SATRip
@@ -18,6 +132,8 @@
 ```bash
 magnet:?xt=urn:btih:9993B7CFBC1285F2001D1BC4CDE243AF85E56408
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +162,8 @@ magnet:?xt=urn:btih:9993B7CFBC1285F2001D1BC4CDE243AF85E56408
 magnet:?xt=urn:btih:2E07260F8906D828C04FBB6699F65D7598107A90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +191,8 @@ magnet:?xt=urn:btih:2E07260F8906D828C04FBB6699F65D7598107A90
 ```bash
 magnet:?xt=urn:btih:136E3E690488884A0630B4BD36064B77E61E1ED8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -108,6 +228,8 @@ magnet:?xt=urn:btih:136E3E690488884A0630B4BD36064B77E61E1ED8
 magnet:?xt=urn:btih:79D1B15A525A58D62E4B659B68D60653012126E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -131,6 +253,8 @@ T-ara - Lies (Movie Version)(2009) SATRip
 ```bash
 magnet:?xt=urn:btih:A604405D9B413913BA3C5E369AE8A134C61983F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +284,8 @@ Lenka - Everything At Once (Windows 8) (2012) WEBRip [720p]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +309,8 @@ Lenka - Everything At Once (Windows 8) (2012) WEBRip [720p]
 ```bash
 magnet:?xt=urn:btih:DFC1EBCDF77B19F3DD819A8F3B453F22BD901FD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +340,8 @@ Ritchie Blackmore’s Rainbow - Live at Budokan 1984.Tokyo (2006) DVDRip
 magnet:?xt=urn:btih:5F25AF6C96DB88671E67446BF200238C65C1A014
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +368,8 @@ magnet:?xt=urn:btih:5F25AF6C96DB88671E67446BF200238C65C1A014
 ```bash
 magnet:?xt=urn:btih:E85A64ECB7F1C1CCEF837049CBCBB0047FAE871E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +398,8 @@ magnet:?xt=urn:btih:E85A64ECB7F1C1CCEF837049CBCBB0047FAE871E
 magnet:?xt=urn:btih:D6DC77AB62214043740DBE27A22A2796670D7E71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +426,8 @@ magnet:?xt=urn:btih:D6DC77AB62214043740DBE27A22A2796670D7E71
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +465,8 @@ ABBA - ABBA (Deluxe Edition) (2012) DVDRemux
 magnet:?xt=urn:btih:0ED0F67FC7DA94EA64E00A716660168B496A0C17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -352,6 +490,8 @@ magnet:?xt=urn:btih:0ED0F67FC7DA94EA64E00A716660168B496A0C17
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +526,8 @@ magnet:?xt=urn:btih:0ED0F67FC7DA94EA64E00A716660168B496A0C17
 magnet:?xt=urn:btih:931739883A474BEF382EBE3BC13C8395941E4026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +561,8 @@ magnet:?xt=urn:btih:931739883A474BEF382EBE3BC13C8395941E4026
 magnet:?xt=urn:btih:6129A0BE14287365039F9401A75B92C493152A31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +586,8 @@ VA - Amorous melodies (2011) HDTVRip
 ```bash
 magnet:?xt=urn:btih:748F9D56E86402B3BF2F3643AAC9B363A12AC472
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +613,8 @@ Dance Hits 90's - Retro Dance Party (2011) [H.264] DVDRip
 magnet:?xt=urn:btih:F4FF8F00C7E5F8D13A629214B5961560C8F27A41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +638,8 @@ magnet:?xt=urn:btih:F4FF8F00C7E5F8D13A629214B5961560C8F27A41
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +665,8 @@ magnet:?xt=urn:btih:F4FF8F00C7E5F8D13A629214B5961560C8F27A41
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +690,8 @@ magnet:?xt=urn:btih:F4FF8F00C7E5F8D13A629214B5961560C8F27A41
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +720,8 @@ magnet:?xt=urn:btih:F4FF8F00C7E5F8D13A629214B5961560C8F27A41
 magnet:?xt=urn:btih:F657D92D66FAF09AB783F0705A1966CBC4FC7BD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,120 +749,7 @@ magnet:?xt=urn:btih:F657D92D66FAF09AB783F0705A1966CBC4FC7BD2
 magnet:?xt=urn:btih:4CDA46B161AA648515988428CC1A1EC60D5B318D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605356   (995480) от 20.01.2013
-
-Duran Duran - A Diamond In the Mind (2011) [720] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт состоялся в центре Манчестера, одиннадцатиметровая арена .была черной, когда начался концерт. Очень эффектным стал выход группы на сцену в струях белого дыма струйка белого дыма, Duran Duran
-Великолепные визуальные эффекты и и инсталляции на протяжении всего концерта и приглашенные звезды сделали шоу поистине незабываемым.
-Ле Бон написал позднее в Twitter: ""Я просто люблю музыку, здесь мы все на одной стороне!"01. Return to Now
-02. Before the Rain
-03. Planet Earth
-04. View to a Kill
-05. All You Need Is Now
-06. Blame the Machines
-07. Safe (In the Heat of the Moment)
-08. The Reflex
-09. Man Who Stole a Leopard
-10. Girl Panic!(   Читать дальше...   )Жанр: RockПродолжительность: 01:35:20
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605410   (995498) от 20.01.2013
-
-ABBA - ABBA (Deluxe Edition) (2012) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995498.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ABBA In Australia (Television Special)
-a. Mamma Mia
-b. Hasta Mañana
-c. Ring Ring(   Читать дальше...   )Жанр: Pop, DiscoЯзык субтитров: Шведские, английские, французкие, немецкие, испанские, португальскиеПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15AD1BE57D6D8FD79C4B9B056196E26E24213D52
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604523   (995702) от 19.01.2013
-
-Сборник клипов - DJ VJ Magrao - Full Video Collection (2003-2012) 15хDVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995702.jpg" />
-</div>
-
-
-###  Подробнее
-
-DJ VJ Magrao (настоящее имя- Luis Eduardo) - известный Бразильский радио ди джей, ви джей - один из пионеров музыкального, клубного направления - видеомикс - является одним из самых известных ви джеев мира, совладелец Бразильского музыкального лейбла - "Uberaba MG".
-Magrao - один из пионеров видеомикс-направления.
-Отличительной чертой его миксов является (   Читать дальше...   )001 - DJ Magrao - Intro
-002 - Dr.Alban - Look Who's Talking
-003 - Dr.Alban - Away From Home
-004 - Ace Of Base - The Sign(   Читать дальше...   )Жанр: Pop, Club, Dance, HouseПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B890491763E41EEB25FD1E2BB4BE403E75DF50F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605119   (995749) от 19.01.2013
-
-Дискотека 80-х 2012 Rock & Dance.Полная версия-оригинал 1 часть (DVD-5)
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_995749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Музыка, Pop, RockРежиссер: Актеры: Zodiac, Gorky Park, Silent Circle, Bad Boys Blue, Вячеслав Бутусов, C.C.Catch, Chris Norman, Boney MПеревод: ОтсутствуетПродолжительность: 02:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5C0AACF013F9CFD24BC4A381B31FD9C1135F5B
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

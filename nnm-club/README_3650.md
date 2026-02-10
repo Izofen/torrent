@@ -19,6 +19,8 @@ HiPER Calc Pro (Scientific Calculator) - очень полезное прило�
 magnet:?xt=urn:btih:56A98E4247716FE6193E49B165483586E03DB547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:56A98E4247716FE6193E49B165483586E03DB547
 magnet:?xt=urn:btih:734A6DCFA4D792402F4D73F0B3DB152E9943AE2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ FinePrint - многофункциональный драйвер для при�
 ```bash
 magnet:?xt=urn:btih:8B6D025377FF1E46AA603EDF9A046DC0A00AD172
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:8B6D025377FF1E46AA603EDF9A046DC0A00AD172
 magnet:?xt=urn:btih:B7AF8DDD6D4E0BD2C8F370D00C98C8F8F4935260
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:B7AF8DDD6D4E0BD2C8F370D00C98C8F8F4935260
 ```bash
 magnet:?xt=urn:btih:1EE9A71892FE465609BC4FBB8B73AA7AEF8C2B94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:1EE9A71892FE465609BC4FBB8B73AA7AEF8C2B94
 magnet:?xt=urn:btih:4ACFECE56DDD6EAA6ED1F8B396AD21F41C329DFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:4ACFECE56DDD6EAA6ED1F8B396AD21F41C329DFE
 ```bash
 magnet:?xt=urn:btih:4DCB67A897E429401A310B1AFE1006BE72B04FDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ AC/DC - If You Want Blood You've Got It (1978) Live [FLAC|24/192|image + .cue|Vi
 magnet:?xt=urn:btih:A5DBA3E47F0A8CACA268CD1A66D0A30400877F92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ InfoCity - Азербайджанский ежемесячный журнал о
 magnet:?xt=urn:btih:8AAE1D1765C69753D82467FD3910242F142BBF64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:8AAE1D1765C69753D82467FD3910242F142BBF64
 ```bash
 magnet:?xt=urn:btih:A1C6EBC648D6F8A0B927F43108486A062004A27E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:A1C6EBC648D6F8A0B927F43108486A062004A27E
 magnet:?xt=urn:btih:6C9A263166C5AC94561F3D584D2DE5ECA3915C9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:6C9A263166C5AC94561F3D584D2DE5ECA3915C9B
 ```bash
 magnet:?xt=urn:btih:02174CBA884FE9FA9AF74ADDAE8EF2776CE88542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ VA - Mandarin Chill Out, Vol. 4 (2024) [MP3|320 Kbps] <Chillout, Lounge, Downtem
 magnet:?xt=urn:btih:8DA32FC1A52677B4F91E6B8D91C4496950F1109C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:8DA32FC1A52677B4F91E6B8D91C4496950F1109C
 ```bash
 magnet:?xt=urn:btih:79023A18FC7EDD8A3C22B9DECCAD646F852129D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Rakudai Kishi no Cavalry | Chivalry of a Failed Knight | Доблесть рыц
 magnet:?xt=urn:btih:100D48A9353E776931E38856418A9626F8720B67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ Filmora - программа для редактирования видеоза�
 ```bash
 magnet:?xt=urn:btih:DC28DABBC007C59093FB9C3DCF56BBDD7E55AB5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ Scooter - Video collection - Chapter 2 (1998 - 2002) DVDRip [H.264/1080p-LQ] [ha
 magnet:?xt=urn:btih:C2309B4AB907C105C065C499149623CF5BDDB6EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Blue Brain Games | Артбук по игре The House of Da Vinci / The House 
 ```bash
 magnet:?xt=urn:btih:32E859F308FD0BF4BE3CD56A8E9754562B2E9C73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +503,8 @@ VA - Straight to the Heart (Buddha-Bar) (2024) [MP3|320 Kbps] <Chillout, Relax, 
 magnet:?xt=urn:btih:6579F4CFEA141CDDEBD9D224D21F2D59DF4D3EF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:6579F4CFEA141CDDEBD9D224D21F2D59DF4D3EF7
 magnet:?xt=urn:btih:01A4B0C398010133DA846ACE28BE23913A3CAE23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:01A4B0C398010133DA846ACE28BE23913A3CAE23
 ```bash
 magnet:?xt=urn:btih:E061DD6AC2206F4A45653A120CEBE0A8EBB0A5EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +584,8 @@ VA - Electronic compilation part 60 (2024) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:EC4A133DCB520373DD2A98C7713CB6C4D29A0D3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ magnet:?xt=urn:btih:EC4A133DCB520373DD2A98C7713CB6C4D29A0D3D
 magnet:?xt=urn:btih:2199E2BFDE0FCCC8E6B22B04D2CE157208F4BE6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:2199E2BFDE0FCCC8E6B22B04D2CE157208F4BE6B
 ```bash
 magnet:?xt=urn:btih:F4BD45C6BABB9477600632219F3DB975B85C1EA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +665,8 @@ Nirvana — американская рок-группа, созданная в�
 magnet:?xt=urn:btih:B0A87467B8D4A96BE9606020ADC1F5EF02C25CC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Crossroads 4: Fatal Truths (2024) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:FF010DE7111C6DFEFE1A38B430E55CDB1F08EBE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

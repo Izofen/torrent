@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:BF4C979B0F559A641D9029EF14132B4E2341BEFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:BF4C979B0F559A641D9029EF14132B4E2341BEFB
 ```bash
 magnet:?xt=urn:btih:ED920A07478F80C38E9617E170F4D9ADC995D984
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:ED920A07478F80C38E9617E170F4D9ADC995D984
 magnet:?xt=urn:btih:32BDF6960E6282D403C37655203D3C5B5B17006B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Date a Live | Рандеву с жизнью [ТВ-1] [2013, TV, 12 из 12 + OV
 ```bash
 magnet:?xt=urn:btih:97DCEA687E711E2C7C07B509D9F3E94568C67D14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Mix Up Studio — это портативная студия для создан
 magnet:?xt=urn:btih:5B5CD8DB01E971A32A0EE7D9A16AF607CC49F542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:5B5CD8DB01E971A32A0EE7D9A16AF607CC49F542
 ```bash
 magnet:?xt=urn:btih:738E5C23591C989096B198C53203F6838D7749E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Date a Live II | Рандеву с жизнью [ТВ-2] [2014, TV, 10 из 10 +
 magnet:?xt=urn:btih:E8F1AA431FF198331E70ED31C752B9B7312AE981
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ PhotoRoom - приложение, что будет одинаково поле�
 ```bash
 magnet:?xt=urn:btih:94DEB037C5788A056A763739E9FA2C3DF2905AC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Borracho - Blurring the Lines of Reality (2023) [FLAC|Lossless|WEB-DL|tracks] <S
 magnet:?xt=urn:btih:5B49780045016B91031FD1BC3C57F509D5BECC98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ Date a Live III | Рандеву с жизнью [ТВ-3] [2019, TV, 12 из 12]
 magnet:?xt=urn:btih:DD7133429458AC96FF8F7D92EE4064686FA75087
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Gekijouban Date a Live: Mayuri Judgement | Рандеву с жизнью (фи�
 ```bash
 magnet:?xt=urn:btih:762C0AB16253D37105B121D9D958794D2F45CCC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Enrico Pieranunzi & Marc Johnson - The Dream Before Us (1990) 1992, IDA Records 
 magnet:?xt=urn:btih:45162CE49154B55E538A466EAA46E1D87017B410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ CD-02: Bonus DiscЖанр: Alternative Rock, Art Rock, Synth-popПродолжи
 magnet:?xt=urn:btih:2239E389297FDAD189D5C08681D99ABD484B7B78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:2239E389297FDAD189D5C08681D99ABD484B7B78
 ```bash
 magnet:?xt=urn:btih:D13261C65F2AEC65232E95A5D7B35C91AEBE9D11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Sons of Ragnar - Echoes over Valsgarde (2023) [FLAC|Lossless|WEB-DL|tracks] <Mel
 magnet:?xt=urn:btih:D6E7F6E0575122A595A9126237483EFF4D114990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:D6E7F6E0575122A595A9126237483EFF4D114990
 ```bash
 magnet:?xt=urn:btih:F202BDA8F5287E44C68CE5C367337E6E07729E31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ MediaInfo — программа для получения подробной т
 magnet:?xt=urn:btih:7A8023D8AF7F9059F552385B3BA74929CE6F9246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ magnet:?xt=urn:btih:7A8023D8AF7F9059F552385B3BA74929CE6F9246
 ```bash
 magnet:?xt=urn:btih:7001901C2957310313BF407EA431662F2DD5FF3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ JixiPix Artista Impresso Pro 1.8.20 [En]
 magnet:?xt=urn:btih:F7B57BF552190BCB4C3B983F06CE332D78676656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:F7B57BF552190BCB4C3B983F06CE332D78676656
 ```bash
 magnet:?xt=urn:btih:F9ED726F9703BE8AE26A08599DD74621EFB54EBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ Softorino YouTube Converter — почти YouTube Red, только беспл�
 magnet:?xt=urn:btih:8BABFB0EC19CC453E988C1EDEC1E4D41B882692A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:8BABFB0EC19CC453E988C1EDEC1E4D41B882692A
 magnet:?xt=urn:btih:C8B83BA34E77C839F35BC3383830B2002603CE8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:C8B83BA34E77C839F35BC3383830B2002603CE8A
 ```bash
 magnet:?xt=urn:btih:0F51F86A24F4279FA40BF06640D30A1AA58D17B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +635,8 @@ Pro-Infografika, Ариадна Юсупова, Мурад Юсупов | Про
 magnet:?xt=urn:btih:B7E936E1CF52FF65F32FC8EC221653503B1992C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +664,8 @@ Moon Coven - Sun King (2023) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Doom 
 magnet:?xt=urn:btih:B6A34B425DB92C2E1893F155DA02831E9A54A4BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +689,8 @@ magnet:?xt=urn:btih:B6A34B425DB92C2E1893F155DA02831E9A54A4BD
 ```bash
 magnet:?xt=urn:btih:9B3B29366C555F1F380C45EBBAFCAE1877B59900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

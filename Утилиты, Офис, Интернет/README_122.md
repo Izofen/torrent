@@ -19,6 +19,8 @@ Chromium – веб-браузер с открытым исходным кодо
 magnet:?xt=urn:btih:F8FF654D695CD002125B22661DBBB3D016052500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ WinRAR - один из самых известных архиваторов. Т�
 ```bash
 magnet:?xt=urn:btih:5F5D41A5E2DB928D8BABCCF2357458D8B7C8A1CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ WinRAR - один из самых известных архиваторов. Т�
 magnet:?xt=urn:btih:62B61BC2E1CA2DBD02DCF713696384F3A3774FED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:DEA7FE1E73574A7B4737F2483864DADB3F4BF40C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 magnet:?xt=urn:btih:F820AC410761E16611358AD71FFDC13E4F67AFD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Ant Download Manager (AntDM) - это инструмент, позволяющи
 ```bash
 magnet:?xt=urn:btih:2DA6E39C171143B4ABD08C63E64A9F4C90ED011F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:2DA6E39C171143B4ABD08C63E64A9F4C90ED011F
 magnet:?xt=urn:btih:47AD7380C0F8B38278A50EB3C3F7767DA01EFFBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:15AB9791BBFC2856CB2D31902EEE11641E3E71C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:15AB9791BBFC2856CB2D31902EEE11641E3E71C2
 magnet:?xt=urn:btih:AE4A92CFBBDBA6F52F1AD4CC90BB269DB6278AA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ MAX Desktop 25.21.0 [Ru]
 ```bash
 magnet:?xt=urn:btih:B22F13D154E9F23A15E70E421EC2A26B0EAC92B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:AC48CDE1199ABA4B8B796EEDC36E29843C1C0F15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:AC48CDE1199ABA4B8B796EEDC36E29843C1C0F15
 ```bash
 magnet:?xt=urn:btih:5D884C70696624F733AE8576E7477008EEF99E17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 magnet:?xt=urn:btih:E964655486AC565C5C2A106862C839B7E4320507
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ IObit Uninstaller Pro представляет собой удобный инс�
 ```bash
 magnet:?xt=urn:btih:32B5B9B14626CA7C1DF88177F9CB7438985EB51B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Ventoy - это инструмент с открытым исходным код
 magnet:?xt=urn:btih:C99104873A7706CCA3214E1056DC50AF664398B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +410,8 @@ Fast Screen Recorder — это программное обеспечение д
 ```bash
 magnet:?xt=urn:btih:3391BB9D5225359F4E86685EF7E7C01DEE56CE83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Allavsoft Video Downloader Converter - это мощный видео загру
 magnet:?xt=urn:btih:7A42304E64819516F99AECF4F0C12F7E1954A3D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ PDF-XChange Pro — универсальное решение для работ�
 ```bash
 magnet:?xt=urn:btih:992EC8AE4BF98920A7F772AAD65F95B5522A95B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ PDF-XChange Editor — программа для просмотра, редак�
 magnet:?xt=urn:btih:A5FFE98CA8C5ABAC91E82505E5263579F68814AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:F16731ED4A84D9373BF50BC6F2F2C866A6441498
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +540,8 @@ PDF-XChange Pro — универсальное решение для работ�
 ```bash
 magnet:?xt=urn:btih:E023C465B64301C9EA925D3935AD8A2E7F05D08A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ Activation Program 1.16.1 Portable by Ratiborus [En]
 magnet:?xt=urn:btih:400CE309C4051A370C6028F829A27BB3FDF97F4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ MiniTool Partition Wizard Technician - мощный менеджер для ра
 ```bash
 magnet:?xt=urn:btih:DB71E1B28360C1CADBEB627910E81D7FCFDD8258
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ Raid Calculator 2025.12.21.1400 [Ru] (авторский релиз)
 magnet:?xt=urn:btih:06DE31921D072E4E5C31B3DA8295E68D970E940C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ MAX Desktop 25.21.1 [Ru]
 magnet:?xt=urn:btih:71EDBF08B5CEB4C4EB1DDDED08C9AA6F35858D39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Mullvad Browser основан на движке Firefox ESR. Содержит �
 ```bash
 magnet:?xt=urn:btih:0CC8A73906F851A8EDF15483B3FDAB05CE520AB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

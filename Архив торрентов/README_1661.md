@@ -19,6 +19,8 @@ Adobe Prelude - программа для профессиональной оц�
 magnet:?xt=urn:btih:C2CFE0E359FEAA098ED617F340EAF7C1A7C444DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Nitronic Rush - безумные гонки на выживание с неон�
 magnet:?xt=urn:btih:BC46ED8E1760950BCC5FA78C66462678154CA18D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Movavi PDF Editor 3.0.0 RePack (& Portable) by TryRooM [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8300A4C7DD51A85BAFD58D203927CBA55B2C8628
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ Johnyboy - Мимо теней (2012) [MP3|192 кб/с]<Hip-Hop>
 magnet:?xt=urn:btih:A1FAE267FE2AAFA88DE7861623266CE937630AD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:A1FAE267FE2AAFA88DE7861623266CE937630AD0
 ```bash
 magnet:?xt=urn:btih:72C68F422EC1051E21B9D4A499E14A47E2317167
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +159,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:3EACE6CED5347348014FF3F37FFEF1B0B656A476
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Microsoft Edge – кроссплатформенный веб-браузер н
 ```bash
 magnet:?xt=urn:btih:D175A0639EA092DD34EA3DE0FD64B6F9C3E0099C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Photo Mechanic — фотобраузер и фоторедактор опера
 magnet:?xt=urn:btih:E8BC0CEA46A94AA3AD2C9602FFAA6E27392C4BD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Icecream Screen Recorder - программа, позволяющая вести
 ```bash
 magnet:?xt=urn:btih:625C6BC709AE6DD0ED4508F31BC4E95E2631588F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ R-Studio Network 8.17 Build 180955 RePack (& portable) by elchupacabra [Multi/Ru
 magnet:?xt=urn:btih:E6AEE8DE3D14AB6B7E80AFCC1CCEEB99FBBE6A4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:E6AEE8DE3D14AB6B7E80AFCC1CCEEB99FBBE6A4D
 ```bash
 magnet:?xt=urn:btih:9C62BF12F3D85B7ACA259432F0D32D96CBD7AAAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ Garden Planner - программа для проектирования сада
 magnet:?xt=urn:btih:81D66E3251F49368C0B109860721BF1C1EC73263
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ Revo Uninstaller Free 2.2.0 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:42ABA59C3F91D6866D3BBF6F242F23AE7F0F630B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +368,8 @@ Paint.NET - Простой, но мощный и удобный редактор
 ```bash
 magnet:?xt=urn:btih:3C2B18F5BB06DB3680147E3A461309DDBBE3615A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ NIUBI Partition Editor – программа для простого и над�
 magnet:?xt=urn:btih:3C2B32E92705DC0DCCD2785BBF9B07DD664AE29E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:DDFA661B0561A2C37670E3F21633107F8BE563B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Macrorit Disk Scanner Unlimited - инструмент для проверки �
 ```bash
 magnet:?xt=urn:btih:BAADE4C69DC25A3EB1342464D3BEE0F21FBAA7EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -442,6 +476,8 @@ CCleaner - утилита для чистки мусора в операцион
 magnet:?xt=urn:btih:E7111CD32676D160E3F11F3179E311CEB0267618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +501,8 @@ Default Folder X - Расширяет функциональные возмож�
 ```bash
 magnet:?xt=urn:btih:9AB9DC9DDE808BBE3F8E95DF30A70ABCF92B5001
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ magnet:?xt=urn:btih:9AB9DC9DDE808BBE3F8E95DF30A70ABCF92B5001
 magnet:?xt=urn:btih:800714498C3CCBF4293CA9EDE1FB5678543FDC48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ uTorrent 3.3.2 build 30416 Stable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:8C34CF09779F61643A8D0F970EBF771B691353AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ LibreOffice — мощный офисный пакет, полностью со�
 magnet:?xt=urn:btih:2AA9A4B707A018CB77DB7764738A7B718B8FE323
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +608,8 @@ CrystalDiskInfo - отслеживает состояние жестких ди�
 magnet:?xt=urn:btih:EB53C1C998A45F55D6EBA4DE23229F3618FF2BC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ LinkCollector - менеджер закладок, поддерживающий 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +664,8 @@ Movist больше не поддерживает декодер QuickTime. То
 magnet:?xt=urn:btih:BB4F37556F2352356BD219986B6F72E97C0B1FD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ QuarkXPress - это мощная издательская система, об�
 ```bash
 magnet:?xt=urn:btih:AEEF0FACF998697B22E9BD488D44BACF28FEB5BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

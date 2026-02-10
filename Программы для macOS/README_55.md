@@ -20,6 +20,8 @@ DxO PureRAW 3 for Mac v.3.5.0 [Multi]
 magnet:?xt=urn:btih:AD681D13B67BF433946D4687351EAB585248CEB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Luminar Neo 1.13.0 Intel/ARM [Multi]
 ```bash
 magnet:?xt=urn:btih:E4B84FB0FC6474ED28CDAD30DDE7F1AC6D1EB785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ DxO PhotoLab 5 ELITE Edition 5.14.0 [Multi]
 magnet:?xt=urn:btih:47575466ADE2DDD8FA4DCA9C0E9E9342F60706B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ FontLab - профессиональный редактор шрифтов. Пр
 ```bash
 magnet:?xt=urn:btih:E17E95904EA5ED5A44BE71AEE20A81204B98B303
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ RapidWeaver отлично подойдет тем, кто ищет ПО для 
 magnet:?xt=urn:btih:A8E1B1D26A902C551CC9E3B516FC75E6CCE041E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ DRmare Audio Converter — это универсальное решение дл
 magnet:?xt=urn:btih:821F9C3EF71D508F7C1A116E478EC76DC6AE929E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Influx for Mac (Plugin) 1.3.0 [En]
 ```bash
 magnet:?xt=urn:btih:4D62DF8FDC31AEC4F89F5A1C361261C4A8D49BCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Export for iTunes -  экспортируйте свои плейлисты и �
 magnet:?xt=urn:btih:0C294DA03B7AD04CACC9663D5AE803AD79E2F68B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ MacX DVD Ripper Pro 6 был создан специально для польз
 ```bash
 magnet:?xt=urn:btih:E8A5B8B89A37871A4E7799402A8B3D8599A16789
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Adguard — это лучший способ избавиться от разд�
 magnet:?xt=urn:btih:89CF6D1572DD354D86B64B3C1DFFD3C2F07FD3E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Downcast – программа для загрузки и прослушива�
 ```bash
 magnet:?xt=urn:btih:720E63BD91FFFE5FE453743A41A75CBEE7F47939
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ Beamer for Mac: смотрите видео любого формата на App
 magnet:?xt=urn:btih:432B35F2F5E518F7ECDAF02AE72B2BDBCD225E7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Mix Up Studio — это портативная студия для создан
 ```bash
 magnet:?xt=urn:btih:5B5CD8DB01E971A32A0EE7D9A16AF607CC49F542
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ PlainPad - это редактор для простых текстовых фа
 magnet:?xt=urn:btih:A3CB5EFA2C7D20E689070D0F8F75B05311638064
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Topaz Video Enhance AI for Mac 3.0.12 [En]
 ```bash
 magnet:?xt=urn:btih:5AEEFE3BD3EED88C053FBBD2A4314D5028C50ADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ ExactScan – современное решение для сканирован�
 magnet:?xt=urn:btih:CECC2A4050991F812B508EC3A37A1291F5AF9270
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +443,8 @@ Nik Complete 5 Collection by DxO v.5.4.0 U2B [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:A55DC41E19810EDC4E70CAC40477CE28232C2938
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +473,8 @@ Ftp-Serv 8.3.4 [En]
 magnet:?xt=urn:btih:65E11BCCB6AF21359A8BA5C79C223F0C8ABCF6D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ Batch Photo Resizer делает гораздо больше, чем следу�
 magnet:?xt=urn:btih:DA273BDC70BF08EAE658A715A51C1A455A921301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ Lyn - легкий, быстрый и удобный просмотрщик из
 ```bash
 magnet:?xt=urn:btih:E4BECA21C22FC8528DF31B80743B1BEDCCA35ABD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +553,8 @@ Image Resizer – Resize Photos  полезный и эффективный ин
 magnet:?xt=urn:btih:52E337ACE72DA6A62F39B3FCC5FB405B1D71115D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ iFastZip - Extract RAR & ZIP & 7Z for Mac 8.7 [En]
 magnet:?xt=urn:btih:467F984BE42B118D04ECA0EBD3820F6CAFC913DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ iThoughtsX – приложение, позволяющее визуализир
 ```bash
 magnet:?xt=urn:btih:4A4204954D7E2B67DB720254F0B85921D9FA862E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ Movist является простым в использовании и мощн
 magnet:?xt=urn:btih:8DDEB3DDDA21506D6A9C9F77A37743C26EE350BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ Wolfram Mathematica 13.3.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:EA21F81E27D4BFF0BEEE66E8B7FF392D305AA2C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +684,8 @@ Dropshare - приложение строки меню для Drag & Drop заг
 ```bash
 magnet:?xt=urn:btih:E19B96A7B3FD0642B33A6AEAA3B0839B7F95DAE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

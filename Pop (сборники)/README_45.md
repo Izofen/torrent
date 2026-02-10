@@ -1,3 +1,32 @@
+###  Публикация: 1249411   (433317) от 24.09.2018
+
+VA - Die deutschen Disco Charts - Party Mixe (2018) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_433317.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, SchlagerПродолжительность: 01:01:48
+
+01. Nino de Angelo - Hitmix (2017)
+02. Annemarie Eilfeld - Keine Panik (FloorEnce & A-Roma Remix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1021937405D41EE4BF55B8A44EA7DD963B13AF74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249258   (433443) от 24.09.2018
 
 VA - Party Dance. The Days Paradise (2018) [MP3|320 Kbps] <Dance>
@@ -21,6 +50,8 @@ VA - Party Dance. The Days Paradise (2018) [MP3|320 Kbps] <Dance>
 ```bash
 magnet:?xt=urn:btih:1E0AD6E75DE358595449CD60C01270C572D15500
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +86,8 @@ VA - Хиты 2012 Русский Шторм (2012) [MP3|112-320 кб/с]<Pop>
 magnet:?xt=urn:btih:90D23948A59E9BAB0309B8037A85B011854C1CAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -81,6 +114,8 @@ VA - Cocktail new music №8 (2015) [MP3|256-320 кб/с]<Pop, Dance, Eurodance>
 ```bash
 magnet:?xt=urn:btih:B8C5DF3629008DF8D494F9B0358C7658E65A0A0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -109,6 +144,8 @@ Mina&Celentano - Compilation (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:17E4ECBBA04D80B40A2E348EEBD8AE5DAC010047
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -135,6 +172,8 @@ VA - Дискотека 80-90 годов по-новому (Зарубежный
 ```bash
 magnet:?xt=urn:btih:905DFBDAE3882EDCA52423BC9D34D41269616096
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +202,8 @@ VA - Новинки. Осенний выпуск Europa Plus (2016) [MP3|256 Kbp
 magnet:?xt=urn:btih:0AFEEFA701275DA9CBC1917B52A5F63498FD2E74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +230,8 @@ VA - German Top 100 Single Charts 24.10. (2016) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:B73790466B62DC931CE8A351BBD9B788454DA472
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +260,8 @@ Pino D'angio - Compilation (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:8567182B3F39A3838EF52082EB94BC7DE56EF3DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +288,8 @@ magnet:?xt=urn:btih:8567182B3F39A3838EF52082EB94BC7DE56EF3DA
 ```bash
 magnet:?xt=urn:btih:343AA32D8D4FD95218902B4885ACC2AC537B16AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -277,6 +324,8 @@ VA - 100 пудовый хит. Русский выпуск (2012) [MP3|256 кб
 magnet:?xt=urn:btih:3E60C56242BE874798E0673A7156651FE73AA03B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +358,8 @@ VA - Новинки сезона №2 Русский (2012) [MP3|320 кб/с]<Po
 ```bash
 magnet:?xt=urn:btih:AE889EAFF07C1766EFA4250FDA21E282AB51D6C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +394,8 @@ VA - US TOP40 Single Charts (29.09.2012) [MP3|234-320 кб/с]<Pop>
 magnet:?xt=urn:btih:4974598F3CDCF83104934F63480F542E780B88F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +422,8 @@ VA - German Top 100 Single Charts 21.09.2018 (2018) [MP3|320 Kbps] <Pop, Rap>
 ```bash
 magnet:?xt=urn:btih:C517535E09A33BBF0574B831036E15CE82EECD26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +452,8 @@ VA - German Top 50 Official Dance Charts 30.08.2019 (2019) [MP3|320 Kbps] <Pop, 
 magnet:?xt=urn:btih:60F5B6BEFA850BCCBE9AE16F7B72793E13F9A555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +480,8 @@ VA - Italo & Space Disco Vol.1 (2015) [MP3|320 кб/с]<Italo Disco , Syhtnpop>
 ```bash
 magnet:?xt=urn:btih:534F4A53FEBC9FAA66BA9D434BA9675D13F861B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +510,8 @@ VA - Зайцев.Нет - Лучшие Новинки Октября (2016) [MP
 magnet:?xt=urn:btih:5506A9B541592B5D519F3B41E1373CAFC6AB18BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +538,8 @@ VA - Любимая Музыка ВКонтакте Октябрь (2016) [MP3|1
 ```bash
 magnet:?xt=urn:btih:9964D3B33CD018D2DC303BC5E470F773A0323E49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +568,8 @@ VA - Живи стильно! Наслаждайся музыкой с Hit Fm. �
 magnet:?xt=urn:btih:59A74378AC6B0FEC5594DDAC439E3213639E1E1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +596,8 @@ Toto Cutugno - Good Songs (2015) [MP3|128 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:A0C1F682F4ECC1BD2C3443C949AA214A18157D55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +626,8 @@ VA - Recognition Of The Heart (2015) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:1A8AD17E1D81D2AACD617DB96FE011EEA02E5633
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +654,8 @@ VA - German Top 100 Single Charts 18.09.2020 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:D3B1E26B9BA36C325828E64B020691DBFFE11448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +684,8 @@ VA - Dance Summer Party Generation (2019) [MP3|320 Kbps] <Dance>
 magnet:?xt=urn:btih:4DC665C86E5A924D11319D24C937942B40637BF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +712,8 @@ VA - Любимая волна от Европы Плюс. Сборник 4 (201
 ```bash
 magnet:?xt=urn:btih:E4789585EB0790484174CDD243C8B6F7262AE83D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,6 +742,8 @@ VA - Billboard Hot 100 Singles Chart 22.10. (2016) [MP3|128-320 Kbps] <Pop, Danc
 magnet:?xt=urn:btih:CF9CA255BE875A936DE174BEEFFE035E1530C8BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,32 +771,7 @@ Joe Dassin - Good Songs (2015) [MP3|320 кб/с]<Pop, Shanson>
 magnet:?xt=urn:btih:72BD5904E9515AD11B3F8BD6D7596A4F932EE243
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164182   (443931) от 08.09.2017
-
-VA - Лабиринты любви (2017) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443931.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Те100стерон (Тестостерон) - Ты Ангел
-002. Нюша - Не Боюсь
-003. Харламыч - Гололед
-004. Соня Кей - Знаю Я Твоя(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90362DC17E4F218611AB9A979F9B867BB91EC795
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 941933   (449258) от 03.10.2015
+
+Великое прощание. Похороны И.В. Сталина (1953) SATRip  [H.264] [hand made colored]
+
+>>Документалистика и Телепередачи
+>>Отечественная история
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_449258.jpg" />
+</div>
+
+
+###  Подробнее
+
+«...Утро 9 марта 1953 года. Серый, печальный день. Низко плывут над кремлёвскими башнями облака. Москва, столица нашей Родины, город, который так любил и лелеял товарищ Сталин, город, который неузнаваемо вырос, похорошел и возмужал, — эта Москва замерла в торжественной скорби. Страна провожает своего отца и вождя. От самого Колонного зала, вдоль здания Совета Министров, (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Илья Копалин, Елизавета Свилова, Михаил ЧиаурелиПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BC04AE7E923A36887A18B02ACF80DBFCDF2D676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943295   (449269) от 03.10.2015
 
 Мифы без грифа (5 серий из 5) (2003) IPTVRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:00BCA77D4349BDA04350DC1B85B870597D519208
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:00BCA77D4349BDA04350DC1B85B870597D519208
 magnet:?xt=urn:btih:8B25600E6939CEEDDA50C55778EFCE9B8CB02A1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:8B25600E6939CEEDDA50C55778EFCE9B8CB02A1B
 magnet:?xt=urn:btih:1693A08AEC35842284EBD6158FACE11CBFE64875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:1693A08AEC35842284EBD6158FACE11CBFE64875
 ```bash
 magnet:?xt=urn:btih:B149A1A57BB608EC2F598056EEE9DF838CCA47EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:B149A1A57BB608EC2F598056EEE9DF838CCA47EB
 magnet:?xt=urn:btih:276762B44D9D793B14DDD645766EBA575B162AAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:276762B44D9D793B14DDD645766EBA575B162AAE
 ```bash
 magnet:?xt=urn:btih:C621195476B61856ED56FE8590A26B0E89524B81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:C621195476B61856ED56FE8590A26B0E89524B81
 magnet:?xt=urn:btih:A05462E48CB74B70694416C79DD176A12D1432AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:A05462E48CB74B70694416C79DD176A12D1432AA
 ```bash
 magnet:?xt=urn:btih:C44A908BCEE2BE6C1B2D41F826EBE53466C71250
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:C44A908BCEE2BE6C1B2D41F826EBE53466C71250
 magnet:?xt=urn:btih:66BC4FE49F545F77D6129EC0AE41BABC7D91048F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:66BC4FE49F545F77D6129EC0AE41BABC7D91048F
 ```bash
 magnet:?xt=urn:btih:7240AD6D79B24FE57911D31D103A0B6DD677BA18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:7240AD6D79B24FE57911D31D103A0B6DD677BA18
 magnet:?xt=urn:btih:FA2CA61F32DBC98BE9A1A7912CA3C9F3367FCAF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:FA2CA61F32DBC98BE9A1A7912CA3C9F3367FCAF6
 ```bash
 magnet:?xt=urn:btih:E842D5625180D147B9DC5E76F4CCBB9AAE52B3B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:E842D5625180D147B9DC5E76F4CCBB9AAE52B3B9
 magnet:?xt=urn:btih:D15E1C4D33B180B275331284D31D3A06F1550492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:D15E1C4D33B180B275331284D31D3A06F1550492
 ```bash
 magnet:?xt=urn:btih:31409A23D0CA498812781B484705E31AD0B63A12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:31409A23D0CA498812781B484705E31AD0B63A12
 magnet:?xt=urn:btih:923EB79E44EF67D4382E1118B4F807A1C91F0774
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:923EB79E44EF67D4382E1118B4F807A1C91F0774
 ```bash
 magnet:?xt=urn:btih:42462537F183EBD922D22875AE84B9DDFABFE98F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:42462537F183EBD922D22875AE84B9DDFABFE98F
 magnet:?xt=urn:btih:95D3726653AE4736FDB21D40E0AE852BC691047F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:95D3726653AE4736FDB21D40E0AE852BC691047F
 ```bash
 magnet:?xt=urn:btih:1184B47F6001B4C188A380566C4F4D157AA9A791
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:1184B47F6001B4C188A380566C4F4D157AA9A791
 magnet:?xt=urn:btih:AAF45EFF046F70D1607D9A3E6495FBA0BB09074A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +540,8 @@ magnet:?xt=urn:btih:AAF45EFF046F70D1607D9A3E6495FBA0BB09074A
 ```bash
 magnet:?xt=urn:btih:E53B9A00440A639C2D351F9B431BEE205EE67F66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:E53B9A00440A639C2D351F9B431BEE205EE67F66
 magnet:?xt=urn:btih:E9F81ACBBD3E2AF24A4262480C474F78AED911CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:E9F81ACBBD3E2AF24A4262480C474F78AED911CB
 ```bash
 magnet:?xt=urn:btih:B5C895EF7B0A67A6F7F0CE7D4D0CCC21217F49FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:B5C895EF7B0A67A6F7F0CE7D4D0CCC21217F49FA
 magnet:?xt=urn:btih:68D9B828C036857F804E850A2DC64A3C9F0BAD30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:68D9B828C036857F804E850A2DC64A3C9F0BAD30
 ```bash
 magnet:?xt=urn:btih:CED639C7E236F861D3C520F6804ADA4E72897D95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:CED639C7E236F861D3C520F6804ADA4E72897D95
 magnet:?xt=urn:btih:D0D81087E30F97A7B352157FC422FF498F90EE34
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061241   (450486) от 09.10.2016
-
-Битва экстрасенсов (2016.10.08) WEB-DL [H.264/720p-LQ]  (сезон 17, выпуск 6)
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_450486.jpg" />
-</div>
-
-
-###  Подробнее
-
-С 3 сентября на ТНТ стартует долгожданный 17-й сезон «Битвы экстрасенсов» — самого мистического, непредсказуемого и загадочного проекта российского ТВ. Масштабный кастинг, новые яркие участники и высокие технологии в мире экстрасенсорики. Новый сезон обещает стать самым необычным и удивительным в истории шоу. «Мне бы очень хотелось, чтобы в новом сезоне экстрасенсы (   Читать дальше...   )Телекомпания: ТНТЖанр: Реалити ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF57F46A882E62740F0849920239A5BE7CF2D07C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

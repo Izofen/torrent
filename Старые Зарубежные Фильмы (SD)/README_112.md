@@ -1,28 +1,3 @@
-###  Публикация: 1067811   (384903) от 30.10.2016
-
-Всем полицейским экипажам / ...a tutte le auto della polizia... (1975) DVDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_384903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Похищена дочь известного в городе врача Андреа Икарди. В эту же ночь была поднята вся полиция города, но это не дало результата и тогда начинается более тщательное расследование под руководством инспектора Фернандо Солми. Через некоторое время труп девочки с пулей в затылке находят в реке в совсем другой части города. Расследование заходит в тупик.
-А тем временем (   Читать дальше...   )Производство: Италия / Capitol International, Jarama FilmЖанр: Ужасы, Триллер, КриминалРежиссер: Марио КайаноАктеры: Антонио Сабато, Лучана Палуцци, Энрико Мария Салерно, Габриэле Ферцетти, Элио Замуто, Этторе Манни, Марино Мазе, Беди Моратти, Адриана Фиоре, Франко РессельПеревод: Одноголосый закадровый (В.Белов)Субтитры: ОтсутствуютПродолжительность: 01:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:704D9D49F4AB9B48BC3DADC7334EF684D2DBD265
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326476   (384972) от 20.09.2019
 
 Большие неприятности / Big Trouble (1985) WEB-DLRip [H.264]
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:704D9D49F4AB9B48BC3DADC7334EF684D2DBD265
 ```bash
 magnet:?xt=urn:btih:CC53310BEA809727AB4733B710AD591DFA0B3DAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +45,8 @@ magnet:?xt=urn:btih:CC53310BEA809727AB4733B710AD591DFA0B3DAD
 magnet:?xt=urn:btih:919106F35419203A36225018C8F26A002D47D3A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +70,8 @@ magnet:?xt=urn:btih:919106F35419203A36225018C8F26A002D47D3A7
 ```bash
 magnet:?xt=urn:btih:8FEA6F66752A727C060FA6203D46BD4C97CF21DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +97,8 @@ magnet:?xt=urn:btih:8FEA6F66752A727C060FA6203D46BD4C97CF21DD
 magnet:?xt=urn:btih:659AA3FC6737CB9AD5F826A60E3618A3DE2EFE83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +122,8 @@ magnet:?xt=urn:btih:659AA3FC6737CB9AD5F826A60E3618A3DE2EFE83
 ```bash
 magnet:?xt=urn:btih:A2DF65CBAEFDCEBF2EE454F89E8F35DC31FF6A3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +150,8 @@ magnet:?xt=urn:btih:A2DF65CBAEFDCEBF2EE454F89E8F35DC31FF6A3D
 magnet:?xt=urn:btih:C9C138D6E391C4CDF1AFFBCB7D8A445CC3018388
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +175,8 @@ magnet:?xt=urn:btih:C9C138D6E391C4CDF1AFFBCB7D8A445CC3018388
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +203,8 @@ magnet:?xt=urn:btih:C9C138D6E391C4CDF1AFFBCB7D8A445CC3018388
 magnet:?xt=urn:btih:0080E4BB76EE5E0083E8286A57C07E6924FCC4B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +229,8 @@ magnet:?xt=urn:btih:0080E4BB76EE5E0083E8286A57C07E6924FCC4B4
 magnet:?xt=urn:btih:E2D14B64B9BFD8634FEEEC49DFC0C9D91C54C084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +254,8 @@ magnet:?xt=urn:btih:E2D14B64B9BFD8634FEEEC49DFC0C9D91C54C084
 ```bash
 magnet:?xt=urn:btih:C8AD5F586270C0FF27350232E0723EBD725DAB79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +282,8 @@ magnet:?xt=urn:btih:C8AD5F586270C0FF27350232E0723EBD725DAB79
 magnet:?xt=urn:btih:93F5F70BB92B4510077ACD7F5F71C59600766877
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +309,8 @@ magnet:?xt=urn:btih:93F5F70BB92B4510077ACD7F5F71C59600766877
 magnet:?xt=urn:btih:A96E407D0637F1F8E5830B2956739799D218A23F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +334,8 @@ magnet:?xt=urn:btih:A96E407D0637F1F8E5830B2956739799D218A23F
 ```bash
 magnet:?xt=urn:btih:D8F5DCCFA92989C5203BC025ACFA2694926E1765
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +361,8 @@ magnet:?xt=urn:btih:D8F5DCCFA92989C5203BC025ACFA2694926E1765
 magnet:?xt=urn:btih:E9D3C24FD86B856EEC19A9DB8F0940DB5EE4503A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +386,8 @@ magnet:?xt=urn:btih:E9D3C24FD86B856EEC19A9DB8F0940DB5EE4503A
 ```bash
 magnet:?xt=urn:btih:CC60439ED24E27918D555609340E3751289861AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +413,8 @@ magnet:?xt=urn:btih:CC60439ED24E27918D555609340E3751289861AA
 magnet:?xt=urn:btih:48345986BD7FE0A4AF095EBC1BCA8571E125210E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +438,8 @@ magnet:?xt=urn:btih:48345986BD7FE0A4AF095EBC1BCA8571E125210E
 ```bash
 magnet:?xt=urn:btih:C24DB641A33FD043543BA7E1DD68A80A5E3DF2C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +465,8 @@ magnet:?xt=urn:btih:C24DB641A33FD043543BA7E1DD68A80A5E3DF2C8
 magnet:?xt=urn:btih:62D2391FF9E03E19C75CB92339EFF4876EC53B3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +490,8 @@ magnet:?xt=urn:btih:62D2391FF9E03E19C75CB92339EFF4876EC53B3C
 ```bash
 magnet:?xt=urn:btih:13724572C305523DF4DBD349E439E5A6F003ABD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +517,8 @@ magnet:?xt=urn:btih:13724572C305523DF4DBD349E439E5A6F003ABD5
 magnet:?xt=urn:btih:16C42356A91B83D313489468235AF8C03B07122B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +543,8 @@ magnet:?xt=urn:btih:16C42356A91B83D313489468235AF8C03B07122B
 magnet:?xt=urn:btih:3F7C88225D6A6537C07236418DCBC914E2F31ECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +568,8 @@ magnet:?xt=urn:btih:3F7C88225D6A6537C07236418DCBC914E2F31ECC
 ```bash
 magnet:?xt=urn:btih:D25242E0BB0E2244E3F358C93D999673C2917E01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +596,8 @@ magnet:?xt=urn:btih:D25242E0BB0E2244E3F358C93D999673C2917E01
 magnet:?xt=urn:btih:8A30AA0FC1B5CCF685F485DBAD739F92DAE0307A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +622,8 @@ magnet:?xt=urn:btih:8A30AA0FC1B5CCF685F485DBAD739F92DAE0307A
 magnet:?xt=urn:btih:13F5A5CCC73FBAE33C5FA529D5658EF512E07AE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +647,37 @@ magnet:?xt=urn:btih:13F5A5CCC73FBAE33C5FA529D5658EF512E07AE3
 ```bash
 magnet:?xt=urn:btih:A16794F2EE66BBEC08C31D40201EA3D5719F0856
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 717656   (389571) от 03.11.2013
+
+Молодой мистер джаз / Young Mr. Jazz (1919) BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_389571.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девушка, находящаяся под постоянным контролем отца, всё же сбегает от него, чтобы отправиться на танцы с Гарольдом. Но оказались они в самом сомнительном заведении...Производство: СШАЖанр: Короткометражка, комедия, немое киноРежиссер: Хэл РоачАктеры: Гарольд Ллойд, Снуб Поллард, Биби Дэниелс, Сэмми Брукс, Билли Фэй, Милдред Форбс, Роуз Голд, Лью Харви, Уоллес Хоу, Бад ДжеймисонЯзык озвучки: НемойСубтитры: Английские интертитры, русские отдельным файлом
+
+Видео: Xvid, 704x528, ~2297 Kbps
+Аудио: AC3, 2 ch, 192 KbpsПродолжительность: 00:10:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1300D6A4219C2FE364A3EBCC434A0008F3688915
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

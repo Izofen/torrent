@@ -22,6 +22,8 @@ VA - White Sands (Chill-Out And Electronic Collection), Vol. 3 (2022) [AAC|~332 
 magnet:?xt=urn:btih:CA259D9128F7CFBC7B476F5DF3A2EE233236FF59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ Anita Baker - Christmas Fantasy (2005) Par Media Music [FLAC|Lossless|tracks + .
 magnet:?xt=urn:btih:1D3A8D0856E36E8465BC78C418EB665FF7E7DEB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ NetWorker - это приложение, которое удобно отобр�
 ```bash
 magnet:?xt=urn:btih:43BBF39CAA38FC2630FA9E9C1E68D1D0A4CE49B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:43BBF39CAA38FC2630FA9E9C1E68D1D0A4CE49B7
 magnet:?xt=urn:btih:D2258A8C991ADBFF573382F32672E87BA97980F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ WinSnap позволяет делать скриншоты экрана мони
 ```bash
 magnet:?xt=urn:btih:734C8FC454DB4AC6B09CBEDDDBB1FD81F7313640
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Seelenkraft - Zeilen der Zeit (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative 
 magnet:?xt=urn:btih:96B58CD93867C7A565433CB0E5B4522C4D7E8933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ Her own world - Tales From Another Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Sy
 magnet:?xt=urn:btih:60842317C7E07D7A3363531D5113EC7D7DF92EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ The Gnomon Workshop, Sarah Arduini | Character Animation and Video Reference (20
 ```bash
 magnet:?xt=urn:btih:00990D5867415AB74388A390452EB41B7AA97CFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ Astral Amethyst - Where Souls Rest (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphon
 magnet:?xt=urn:btih:992C8C4C65FB4411598C1B1F10CBD8BF4B12FCB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ mcZoomOn 5 v5.0.2 [En]
 ```bash
 magnet:?xt=urn:btih:8C252FFC024A663B942BE322F7F97CD83A266774
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:8C252FFC024A663B942BE322F7F97CD83A266774
 magnet:?xt=urn:btih:3DB88BAADE5014B2ECB5584F314A0AD5586C2E5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +325,8 @@ magnet:?xt=urn:btih:3DB88BAADE5014B2ECB5584F314A0AD5586C2E5C
 magnet:?xt=urn:btih:53AF3AD86191E0FF974CD605705D0FB2CA5F6485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ Smooze одушевляет ваш скролл и добавляет функц
 ```bash
 magnet:?xt=urn:btih:77796E8356CDFC45A803EAF3D5067138C6DEAD69
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ Martin Joo | Test-Driven APIs with Laravel and Pest (2022) [PDF] [EN]
 magnet:?xt=urn:btih:9F150FB67A90F5A08B6E3EFFA5FC805BD3703491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:8525C3FE024F153C0806ED9B9C570108456925BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ Castle Burner - Damned To The Dungeon (2023) [FLAC|Lossless|WEB-DL|tracks] <Thra
 magnet:?xt=urn:btih:1981B1E4E9BF4CDD2C24F775EB5E5CAB62A5976E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:1981B1E4E9BF4CDD2C24F775EB5E5CAB62A5976E
 ```bash
 magnet:?xt=urn:btih:3FD37CA4BF76659FB6353C65C7022D51F7E61025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:3FD37CA4BF76659FB6353C65C7022D51F7E61025
 magnet:?xt=urn:btih:6EBD942371484B58ECC762C04C908D8E632389B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ InShot - впечатляющее своими возможностями и у�
 ```bash
 magnet:?xt=urn:btih:556E126CCE52BEBEBB4AA84ABD9B28F4D0A0FCE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +542,8 @@ Lunar - The Illusionist (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
 magnet:?xt=urn:btih:72F9B973411EDCE3DD26887E7243E3353F54B0C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:72F9B973411EDCE3DD26887E7243E3353F54B0C5
 ```bash
 magnet:?xt=urn:btih:E9A100337C2530F4EF3AAD65044B6156444921F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +595,8 @@ FastScripts - Утилита для быстрого запуска AppleScript-
 magnet:?xt=urn:btih:A324C5095B350860D34FD604BC5E49946ABA6196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:A324C5095B350860D34FD604BC5E49946ABA6196
 ```bash
 magnet:?xt=urn:btih:658DC27EE2999FA6352FDA4AEEF691DB4C4E5A2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +650,8 @@ Aviator - The Only Way Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash M
 magnet:?xt=urn:btih:053F7A08FE9E103D29A901C09F558DF036077CC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:053F7A08FE9E103D29A901C09F558DF036077CC8
 ```bash
 magnet:?xt=urn:btih:88656C93129CF9612785BA57881B8F464CA72C8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +703,8 @@ HolyJS 2022 Spring — большая конференция для JS-разр�
 ```bash
 magnet:?xt=urn:btih:65DBB5B279A9E1192699D0BA22DE64B6DC9DD387
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

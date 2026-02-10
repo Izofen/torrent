@@ -1,3 +1,38 @@
+###  Публикация: 531236   (542035) от 05.08.2012
+
+VA - Сборник песен о Санкт-Петербурге (Ленинграде) (2003-2009) [MP3|192 кб/с]<Песни о городе>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_542035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.группа "Аквариум" - Сталь
+02.Ансамбль "Remake" - Белая ночь
+03.Архипенко - WWW
+04.Городницкий - Атланты
+05.группа "Зоопарк" - Белая ночь
+06.группа "Зоопарк" - Лето
+07.группа "Король и Шут" - Песня из трилогии Максим
+08.группа "Ноль" - Улица Ленина
+09.группа "Секрет" - Ленинградское время
+10.группа "ДДТ" - Белая ночь(   Читать дальше...   )Жанр: Rock, Jazz, Blues-rock, Авторская песняПродолжительность: 01:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA515731B519F455616AA92B709369D00B165B05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049702   (542097) от 06.09.2016
 
 VA - Популярная 100-ка Летних Хитов (2016) [MP3|256-320 Kbps] <Pop>
@@ -21,6 +56,8 @@ VA - Популярная 100-ка Летних Хитов (2016) [MP3|256-320 K
 ```bash
 magnet:?xt=urn:btih:226D358B123D0CC97DA7B06068E1FF47A3A918B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +86,8 @@ VA - Record Super Chart #452 (2016) [MP3|320 Kbps] <House, Electro House, Future
 magnet:?xt=urn:btih:C01F1913806FB6141F5BA317D7102541E3644F5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +114,8 @@ VA - Лето в кайф. Часть 9 (2016) [MP3|256 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:27771A0A96306AA03BE83A21FA8469969AD0CBDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +144,8 @@ Sheryl Crow - Full Moon Cowgirl (Live Radio Broadcast) (2018) [MP3|320 Kbps] <Ro
 magnet:?xt=urn:btih:160649DAADD8B2AB38E527B0361DC7A30CD85985
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +173,8 @@ VA - Player Lover Melodies (2016) [MP3|320 Kbps] <Trance, Energy, Harmonic, Melo
 magnet:?xt=urn:btih:87A31D5A667A7AD980A76BEB06BA8F817C288E7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +201,8 @@ VA - Groove Huge Top Hits (2016) [MP3|268~320 Kbps] <House, Vocal House, Club, D
 ```bash
 magnet:?xt=urn:btih:AE1C62853066806E9BCB8A4566AE29BE7561ABBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +237,8 @@ VA - Главная дискотека августа (2012) [MP3|256 кб/с]<P
 magnet:?xt=urn:btih:6409414CFFF3AFB3B8D94E71CF410EEBA7119828
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +272,8 @@ VA - Relax FM (04.08.2012) [MP3|320 кб/с]<Relax, ballads>
 magnet:?xt=urn:btih:2AF7186B318A4ECFC0504F57D0634E5BE94A7C07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +300,8 @@ VA - Новый Русский Рок Vol.2 (2015) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:C15E65574EFAE7D0E532970CC531B0D9BFD92972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +336,8 @@ VA - Песня года 2012. Летний спецвыпуск (2012) [MP3|256
 magnet:?xt=urn:btih:43926680C488DCD36F69A2A9166DEFF3FFA0EEAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +370,8 @@ VA - Скорая музыкальная помощь 50/50 (2012) [MP3|256 кб
 ```bash
 magnet:?xt=urn:btih:627B5B197CC50021CF7A593B31B751C428BB3CF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +406,8 @@ VA - German TOP 100 Single Charts (05.08.2012) [MP3|~186~276 кб/с]<Dance, Pop
 magnet:?xt=urn:btih:C7F2201ED7B6A7B150BD67E10B879E15D2059853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +434,8 @@ VA - Top 100 Популярный Сборник (2015) [MP3|256 кб/с]<Рор
 ```bash
 magnet:?xt=urn:btih:C52AAB9336DB830F077C3B68D2C604425C0047CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +470,8 @@ VA - Ibiza Chillout (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 magnet:?xt=urn:btih:4C925562CF37F2F539B66E4524FADD43D4672237
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -442,6 +505,8 @@ VA - Русская Новинка Пляжного Сезона (2012) [MP3|256
 magnet:?xt=urn:btih:2039DB449B16D0EE13854ACBAB66855779E7C1E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +533,8 @@ Boney M. - 25 Best Songs (2015) [MP3|~245 кб/с]<Disco>
 ```bash
 magnet:?xt=urn:btih:037044B61896531CAC268DA3B45578E332164D20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +569,8 @@ VA - Sexy Dance 50/50 (2CD) (2012) [MP3|256 кб/с]<Pop, Dance>
 magnet:?xt=urn:btih:1E8E74809ACB15C8647008E618D235021AC08A8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +597,8 @@ VA - Emotional City House (2017) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:F0F2B8E3A3B95DFB16A841D8FF43969FCBEAE75A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +627,8 @@ VA - New Format Of Italo Disco (2015) [MP3|320 кб/с]<Disco, Pop>
 magnet:?xt=urn:btih:464F86B302E7431D53D7600EB647F163E734181F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +655,8 @@ VA - Душевный Шансон. Любимые песни для отдых�
 ```bash
 magnet:?xt=urn:btih:7597B43E7327B279221BFC8EF7E6CD86FE6A3B03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +685,8 @@ VA - Alterportal HITS 15 Vol. 83 - July (2015) [MP3 | 128-320 кб/с]<Alternati
 magnet:?xt=urn:btih:0CDA0BB55A70A66F7571936D95C11ED625F1B151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +713,8 @@ VA - Hits Dance 2015 Surrender (2015) [MP3|320 кб/с]<Pop, Disco, Hands Up, Cl
 ```bash
 magnet:?xt=urn:btih:E84E5997E63481FF645C7F7A40E57D4B3A39549E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -664,6 +743,8 @@ VA - Rainbow Dance Hit (2015) [MP3|320 кб/с]<Pop, Dance, Club>
 magnet:?xt=urn:btih:17805059EBD1C5D7D3B4FEDFA3FE531C097662DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -690,6 +771,8 @@ VA - Драйвовая энергия клубного танцпола (2015) 
 ```bash
 magnet:?xt=urn:btih:9255B49CA65EFA4925D10D80F78E029ADE239FA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -718,32 +801,7 @@ VA - Tampa Sunset: Ambient Lounge Music (2015) [MP3|320 кб/с]<Downtempo, Chil
 magnet:?xt=urn:btih:C9CFDDF4CBB16128591D6E36CDA03B0FCFBC7C5F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925062   (543157) от 05.08.2015
-
-VA - Time To Get Freedom (2015) [MP3|320 кб/с]<Minimal, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_543157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kadebostan - Monkey Swing (Straight to the Zoo Mix)
-02. Napalm - La Tristeza (Michael & Levan and Stiven Rivic Remix)
-03. Mark Stent - We Wont Laugh
-04. Bazurik - Streets (Aivengo Remix)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 08:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:185DACD97AE036FD1E587407440BFC62BC408B88
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

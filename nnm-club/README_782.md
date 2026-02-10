@@ -22,6 +22,8 @@ Erasure - Don't Say You Love Me (2005) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, 
 magnet:?xt=urn:btih:AAC1124DDC48D96D6113C6491DBEEEFD981E3701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ CD1-3 Casi Me Mato(   Читать дальше...   )Жанр: Rock & Roll, Har
 magnet:?xt=urn:btih:EF157B06ADEC0C11F37ABA48BE4E551D071F3D3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:EF157B06ADEC0C11F37ABA48BE4E551D071F3D3E
 ```bash
 magnet:?xt=urn:btih:ED373EFEDEECFFF6FE90B94F5D2584B3B9E5F855
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:ED373EFEDEECFFF6FE90B94F5D2584B3B9E5F855
 magnet:?xt=urn:btih:CC95D10C2285A837B7027AE3F762A876B1A856B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:CC95D10C2285A837B7027AE3F762A876B1A856B6
 ```bash
 magnet:?xt=urn:btih:DA36DB7AEF26D47F5FE3D5C32A0C4EB83C3313FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:DA36DB7AEF26D47F5FE3D5C32A0C4EB83C3313FA
 magnet:?xt=urn:btih:19025DBD53FDE643D87D16B70320B93C392F5EFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:19025DBD53FDE643D87D16B70320B93C392F5EFA
 ```bash
 magnet:?xt=urn:btih:6FF7D0141FA2872A708FDE59C7410B8F9AA882EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -201,6 +215,8 @@ VA - Rated Revisited Vol. 2 (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:983B49B3C8CDB3F74C0097F8F4A9680B6B236F23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:983B49B3C8CDB3F74C0097F8F4A9680B6B236F23
 ```bash
 magnet:?xt=urn:btih:CCF109DE62B517CFE7C1E5000235BA7867CAA974
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ Jeff Libman - Feet Off the Ground (2025) [FLAC|Lossless|WEB-DL|tracks] <Contempo
 magnet:?xt=urn:btih:A9DE1133CB97E0779A1E21233C7A7F1F42F00E29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ Whipstriker - Cry of Extinction (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Meta
 ```bash
 magnet:?xt=urn:btih:C69E7C791E78E551B3B4A4C1DCF5CFD33C525CD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +329,8 @@ magnet:?xt=urn:btih:C69E7C791E78E551B3B4A4C1DCF5CFD33C525CD5
 magnet:?xt=urn:btih:896DCCEC1DE632A275CF855449F4EDEC7123ED70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ Clark Terry And His Orchestra - Featuring Paul Gonsalves (1959) 2001, Storyville
 magnet:?xt=urn:btih:E278A50DC0B34CC29BCAB11B2025A38F2A722822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +385,8 @@ magnet:?xt=urn:btih:E278A50DC0B34CC29BCAB11B2025A38F2A722822
 ```bash
 magnet:?xt=urn:btih:11747E2A57752622AF752FDF76A2065C112D2081
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +415,8 @@ VA - 80s Hits on Saxophone (2023) [MP3|320 Kbps] <Jazz, Instrumental, Saxophone>
 magnet:?xt=urn:btih:4941AC4CB3E95EE0E6E69E8CAD56950F582AC75A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +441,8 @@ Sipnetic – это бесплатный программный IP-телефо�
 ```bash
 magnet:?xt=urn:btih:4808EE66422C0D02AB611E529F31374EF201B269
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +470,8 @@ magnet:?xt=urn:btih:4808EE66422C0D02AB611E529F31374EF201B269
 magnet:?xt=urn:btih:C865161C09FB7A8AEC8BF80741357459C6B18EA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +497,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:FAE562DB67AE6DDE7CFBF07C7169F4EF2BFF4EA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +522,8 @@ magnet:?xt=urn:btih:FAE562DB67AE6DDE7CFBF07C7169F4EF2BFF4EA1
 ```bash
 magnet:?xt=urn:btih:E192B07CE07CF702F20D79E432160026B207B60A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +551,8 @@ magnet:?xt=urn:btih:E192B07CE07CF702F20D79E432160026B207B60A
 magnet:?xt=urn:btih:46A78891AABD877433DFF9A2734AECE2E8459200
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +576,8 @@ magnet:?xt=urn:btih:46A78891AABD877433DFF9A2734AECE2E8459200
 ```bash
 magnet:?xt=urn:btih:9218475D60C3CA1BC332EE834002A9DFE1F3AAE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +605,8 @@ magnet:?xt=urn:btih:9218475D60C3CA1BC332EE834002A9DFE1F3AAE7
 magnet:?xt=urn:btih:308571DFBEAE21547482F35D782995D4CBB97DAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +632,8 @@ magnet:?xt=urn:btih:308571DFBEAE21547482F35D782995D4CBB97DAA
 ```bash
 magnet:?xt=urn:btih:413D1AEC854525C86451ACC3317AA6E33526BD0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +661,8 @@ magnet:?xt=urn:btih:413D1AEC854525C86451ACC3317AA6E33526BD0F
 magnet:?xt=urn:btih:C3A91A949BA82811B8BAF69EDE125E0AFED6E887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +686,8 @@ magnet:?xt=urn:btih:C3A91A949BA82811B8BAF69EDE125E0AFED6E887
 ```bash
 magnet:?xt=urn:btih:A4C8CB00F5F4C79C0CA59C6C5C1FC9B06A5D69EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -665,6 +715,8 @@ VA - Sonic Space, Vol. I (2024) [FLAC|Lossless|WEB-DL|tracks] <Space Music, Ambi
 ```bash
 magnet:?xt=urn:btih:0132A802320602B7D6C0997E77851A38CABCA4AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

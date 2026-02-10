@@ -1,27 +1,3 @@
-###  Публикация: 1571857   (429766) от 23.08.2022
-
-Жил-был дурак / A fool there was (1915) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429766.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале 1915 года голливудская киностудия Уильяма Фокса выпустила в прокат фильм, название которого буквально цитирует начальные слова стихотворения Киплинга — «A fool there was» («Жил-был дурак»). Собственно, непосредственной литературной основой этого кинофильма является не стихотворение само по себе, а пьеса американского сценариста Портера Эмерсона Брауна с (   Читать дальше...   )Производство: США, Fox Film CorporationЖанр: Драма, немое киноРежиссер: Фрэнк ПауэллАктеры: Теда Бара, Руна Ходжес, Эдвард Хосе, Мэй Эллисон, Клиффорд Брюс, Виктор Бенуа, Фрэнк Пауэлл, Минна Гэйл, Крейтон ХейлПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 01:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE9FF8C54563B21A50811CCB803FAC4DA11CCE4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 394065   (430220) от 29.09.2011
 
 Амазония - История Кэтрин Майлз / Schiave bianche: violenza in Amazzonia (1985) DVDRip [AVO]
@@ -43,6 +19,8 @@ magnet:?xt=urn:btih:BEE9FF8C54563B21A50811CCB803FAC4DA11CCE4
 ```bash
 magnet:?xt=urn:btih:09547E26CBF4CA89B060668922D9C25FDBEF1A7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +47,8 @@ magnet:?xt=urn:btih:09547E26CBF4CA89B060668922D9C25FDBEF1A7F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +72,8 @@ magnet:?xt=urn:btih:09547E26CBF4CA89B060668922D9C25FDBEF1A7F
 ```bash
 magnet:?xt=urn:btih:562DF567D30F5AA654C526D6D8E1E4CC4647BDCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +99,8 @@ magnet:?xt=urn:btih:562DF567D30F5AA654C526D6D8E1E4CC4647BDCA
 magnet:?xt=urn:btih:166BD993DA5C2F1B5BA827B1602907C06429BBC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +124,8 @@ magnet:?xt=urn:btih:166BD993DA5C2F1B5BA827B1602907C06429BBC9
 ```bash
 magnet:?xt=urn:btih:89AE9F0B59C8DE52B8921D19B07CD868B883DE0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +151,8 @@ magnet:?xt=urn:btih:89AE9F0B59C8DE52B8921D19B07CD868B883DE0E
 magnet:?xt=urn:btih:0691A807147BCED2549BD2699E41196D8A8D02EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +176,8 @@ magnet:?xt=urn:btih:0691A807147BCED2549BD2699E41196D8A8D02EE
 ```bash
 magnet:?xt=urn:btih:686DC1DAFB3777CDFA18017CC9523FD9D0AA866A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +203,8 @@ magnet:?xt=urn:btih:686DC1DAFB3777CDFA18017CC9523FD9D0AA866A
 magnet:?xt=urn:btih:362D3D4555ADB2D16F53AFF589FBD8C63541EFB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:362D3D4555ADB2D16F53AFF589FBD8C63541EFB5
 ```bash
 magnet:?xt=urn:btih:C667726FB81CB6C67FFB905250581C45280435A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +255,8 @@ magnet:?xt=urn:btih:C667726FB81CB6C67FFB905250581C45280435A8
 magnet:?xt=urn:btih:DAEDA25BE811E1254C5872B7BF6751C8C2C0A424
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:DAEDA25BE811E1254C5872B7BF6751C8C2C0A424
 ```bash
 magnet:?xt=urn:btih:5F982DBCD7887F550EABA4F316D74B31153F8B7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +307,8 @@ magnet:?xt=urn:btih:5F982DBCD7887F550EABA4F316D74B31153F8B7D
 magnet:?xt=urn:btih:EFAA94D9EBA376D486B68AD74E682079D3F46F13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +333,8 @@ magnet:?xt=urn:btih:EFAA94D9EBA376D486B68AD74E682079D3F46F13
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +358,8 @@ magnet:?xt=urn:btih:EFAA94D9EBA376D486B68AD74E682079D3F46F13
 ```bash
 magnet:?xt=urn:btih:879C18A775EA20EE61C8776DA5E244917E84404B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:879C18A775EA20EE61C8776DA5E244917E84404B
 magnet:?xt=urn:btih:629CF03EDD9EE15446EF67A2217F3A4948DE1AEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:629CF03EDD9EE15446EF67A2217F3A4948DE1AEA
 ```bash
 magnet:?xt=urn:btih:8E1B633F9DC4CCA6AC27D874C4B76294785A28F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +440,8 @@ magnet:?xt=urn:btih:8E1B633F9DC4CCA6AC27D874C4B76294785A28F5
 magnet:?xt=urn:btih:449597C5E0D8A865F183CC7DE39C08909CCA904C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +465,8 @@ magnet:?xt=urn:btih:449597C5E0D8A865F183CC7DE39C08909CCA904C
 ```bash
 magnet:?xt=urn:btih:D193A96F809239BFAAB9760462166CEB15FADDB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +492,8 @@ magnet:?xt=urn:btih:D193A96F809239BFAAB9760462166CEB15FADDB1
 magnet:?xt=urn:btih:7895F9493976E18EE0C1CF55D2F6845AB165166C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +517,8 @@ magnet:?xt=urn:btih:7895F9493976E18EE0C1CF55D2F6845AB165166C
 ```bash
 magnet:?xt=urn:btih:553450FF1FD93C0DC3BBCA880D8DEBB90BBB7C68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +545,8 @@ magnet:?xt=urn:btih:553450FF1FD93C0DC3BBCA880D8DEBB90BBB7C68
 magnet:?xt=urn:btih:50C30D569F190045908BA5D970BB55559D2C73F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +570,8 @@ magnet:?xt=urn:btih:50C30D569F190045908BA5D970BB55559D2C73F6
 ```bash
 magnet:?xt=urn:btih:8521158BAAD03F29F0CF2F7C59351EEBE4F0C7A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +597,8 @@ magnet:?xt=urn:btih:8521158BAAD03F29F0CF2F7C59351EEBE4F0C7A2
 magnet:?xt=urn:btih:1AF4FC720E17EBE9B52F8D685CDEE0E44A4FCD5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +623,8 @@ magnet:?xt=urn:btih:1AF4FC720E17EBE9B52F8D685CDEE0E44A4FCD5F
 magnet:?xt=urn:btih:86661EA3F69407A8FEA8C340A58C8E0595EE828C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +648,34 @@ magnet:?xt=urn:btih:86661EA3F69407A8FEA8C340A58C8E0595EE828C
 ```bash
 magnet:?xt=urn:btih:52F85CF530A7DE0A6D8BFA6A39C4F12442D7E254
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 113579   (435296) от 01.10.2012
+
+Боги, наверное, сошли с ума / The Gods Must Be Crazy (1980) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_435296.jpg" />
+</div>
+
+
+###  Подробнее
+
+В дикие, девственные леса Африки с небес падает бутылка «Кока-колы». Здесь же обитает по-детски невинное племя бушменов. Вокруг столкновения двух цивилизаций происходит масса комедийных моментов.Производство: Ботсвана, ЮАР / CAT Films, Mimosa FilmsЖанр: комедия, приключенияРежиссер: Джейми ЮйсАктеры: Н!ксау, Сандра Принслу, Мариус Вейерс, Лоу Вервей, Майкл Тис, Ник Де Ягер, Фаньяна Х. Сидумао, Джо Сикэтси, Брайан О’Шонесси, Кен ГампуПеревод: Многоголосый закадровыйЯзык озвучки: Русский, EnglishПродолжительность: 1:49:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

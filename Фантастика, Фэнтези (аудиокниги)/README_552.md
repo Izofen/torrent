@@ -1,3 +1,29 @@
+###  Публикация: 1437958   (1041494) от 07.01.2021
+
+Галина Чередий | Перерождение (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1041494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто такие оборотни? Этот вопрос не волновал Аврору до тех пор, пока она не вышла как-то вынести мусор на ночь глядя и не подверглась нападению кошмарной твари, выбравшей ее в качестве жертвы для совершенно особенного случая. Но монстр напрасно обманулся маленьким ростом и хрупким сложением девушки. Исполнять роль ягненка для заклания она категорически не согласна. (   Читать дальше...   )Жанр: Городское фентези, любовное фентезиПродолжительность: 17:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93B8720C1212755A0CCD04105804952A80024F08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611028   (1041556) от 10.02.2023
 
 Алекс Делакруз | Царетворец (Книга 5). Волчий пастырь. Книга пятая (2023) [MP3, FAN12]
@@ -20,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:EDF72C6AF1665F10262FD79A308F7CBF6E12AB21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:EDF72C6AF1665F10262FD79A308F7CBF6E12AB21
 magnet:?xt=urn:btih:49A061D646362611C0DDEEA3C180107730FD6DB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:49A061D646362611C0DDEEA3C180107730FD6DB5
 ```bash
 magnet:?xt=urn:btih:E3B725340B03C27B88C5A5D38F3D1404F4064BCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:E3B725340B03C27B88C5A5D38F3D1404F4064BCC
 magnet:?xt=urn:btih:DEB70B4630196533035D14328A1BCD64ED2E4FBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:DEB70B4630196533035D14328A1BCD64ED2E4FBD
 magnet:?xt=urn:btih:38DA8E07DEC21E6C5ABA078887512B9DB510A3E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:38DA8E07DEC21E6C5ABA078887512B9DB510A3E6
 ```bash
 magnet:?xt=urn:btih:DF0E7732FCC00228D22B9A5A8A89245C780CA501
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:DF0E7732FCC00228D22B9A5A8A89245C780CA501
 magnet:?xt=urn:btih:9FF269A978D8BC1EF872664A31A4521FF0208E3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:9FF269A978D8BC1EF872664A31A4521FF0208E3D
 ```bash
 magnet:?xt=urn:btih:3B8801D013D076324A3070A7266AF84484FC022C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:3B8801D013D076324A3070A7266AF84484FC022C
 magnet:?xt=urn:btih:F1E892B7D390614E5FD933A341D163EF56A1291C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:F1E892B7D390614E5FD933A341D163EF56A1291C
 ```bash
 magnet:?xt=urn:btih:4B0D51E699E4D56C3DC1EFB1A91F3675FF4898AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:4B0D51E699E4D56C3DC1EFB1A91F3675FF4898AF
 magnet:?xt=urn:btih:05BEB1CD222E78D30DC85DA71D776C9C4BEC0155
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:05BEB1CD222E78D30DC85DA71D776C9C4BEC0155
 ```bash
 magnet:?xt=urn:btih:9D8C94D8E5E8B3DF05B0A228C22443C86B5CEF34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:9D8C94D8E5E8B3DF05B0A228C22443C86B5CEF34
 magnet:?xt=urn:btih:3C42839FDB388CB60B5BE6D4C4D8FAE2F496AD52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:3C42839FDB388CB60B5BE6D4C4D8FAE2F496AD52
 ```bash
 magnet:?xt=urn:btih:D8ED22822E322F8815992FF95D2C1AA140344B18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:D8ED22822E322F8815992FF95D2C1AA140344B18
 magnet:?xt=urn:btih:4EE1991A0498390AD7A995DABA1A0DADBE4E3CF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:4EE1991A0498390AD7A995DABA1A0DADBE4E3CF8
 ```bash
 magnet:?xt=urn:btih:0DAEE41A1C35EFD9D3567D503B66E25058876DAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:0DAEE41A1C35EFD9D3567D503B66E25058876DAA
 magnet:?xt=urn:btih:0D6F5B5EE4DB82EF4CA5D48D8A899632FFA4B680
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:0D6F5B5EE4DB82EF4CA5D48D8A899632FFA4B680
 ```bash
 magnet:?xt=urn:btih:DB90E1159ED3210A71CD73A6C5EAAA29274B9436
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +521,8 @@ magnet:?xt=urn:btih:DB90E1159ED3210A71CD73A6C5EAAA29274B9436
 magnet:?xt=urn:btih:596EA7A8D2EDE51AE6C47F9219CE53902745FE8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -482,6 +546,8 @@ magnet:?xt=urn:btih:596EA7A8D2EDE51AE6C47F9219CE53902745FE8D
 ```bash
 magnet:?xt=urn:btih:20FB7FAA607C2033D15353C7DD5C58470BD52114
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:20FB7FAA607C2033D15353C7DD5C58470BD52114
 magnet:?xt=urn:btih:85FF3D0E5989C3C3FEB137BC52158D0DCDBCE1C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +600,8 @@ magnet:?xt=urn:btih:85FF3D0E5989C3C3FEB137BC52158D0DCDBCE1C2
 magnet:?xt=urn:btih:FA87EEFA916DC86ACC09190E68DE037E8ADF1B73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +625,8 @@ magnet:?xt=urn:btih:FA87EEFA916DC86ACC09190E68DE037E8ADF1B73
 ```bash
 magnet:?xt=urn:btih:464D941B54EB6CBEC1B3083D118630B17ABCC549
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:464D941B54EB6CBEC1B3083D118630B17ABCC549
 magnet:?xt=urn:btih:0CFD75955FAD1F32565D7D5FE33F76D1BBE8687A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,32 +682,7 @@ magnet:?xt=urn:btih:0CFD75955FAD1F32565D7D5FE33F76D1BBE8687A
 magnet:?xt=urn:btih:1CFCE74443E24B7A2E78F43583104283C602214F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609821   (1042883) от 05.02.2023
-
-Макс Гудвин | Чужая тень. Книга 3 (2022) [MP3, Георгий Арсеньев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1042883.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Чужая тень" - фантастический роман Макса Гудвина, третья книга одноименного цикла, жанр боевое фэнтези, приключенческое фэнтези, РеалРПГ.
-Я был избран тенью, но родился с искрой.
-Я прошёл сквозь орды мёртвых, но еще больше ощутил себя живым.
-Тёмный мир заметил меня — ведь там, где не бывает света, даже крохотная искра может показаться солнцем.(   Читать дальше...   )Жанр: Боевое фэнтези, РеалРПГПродолжительность: 08:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:876F623D710F7B4F42726502E78E78728DEC8F21
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

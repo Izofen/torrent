@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:C3FFA2D66D1908926FB5BACA099BF3A355488E58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Kawaii Dake ja Nai Shikimori-san | Shikimori's Not Just a Cutie | Моя дев�
 ```bash
 magnet:?xt=urn:btih:5B1B028F1BFFD9901AB9F36D1F508BCCEE16988C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ Duran Duran - Danse Macabre (2023) [FLAC|Lossless|image + .cue] <Sort Rock, Pop>
 magnet:?xt=urn:btih:348D00ECCCDAB09271F73B1DB44C22DA70252F34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ ByClick Downloader (бывший YouTube By Click) - отличный и удо�
 magnet:?xt=urn:btih:06B9E402589644317165AFA1B88D59E54F56B990
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ VideoTag - сделайте вашу библиотеку TV / iTunes нагля
 ```bash
 magnet:?xt=urn:btih:B59225142E661496062328CC619617F74F0EF9B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:B59225142E661496062328CC619617F74F0EF9B1
 magnet:?xt=urn:btih:2CA3EEC7749D7E7D0F9EFAC7525FB4C5BA2AD309
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Artlantis  – профессиональный набор инструмент�
 ```bash
 magnet:?xt=urn:btih:337987D0F9BB30E3C4E37EF85CF38C5DA5741869
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:337987D0F9BB30E3C4E37EF85CF38C5DA5741869
 magnet:?xt=urn:btih:72BF967FDD1657792A1A9C228443935C21C3DF1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ MWeb оддерживает расширенный синтаксис Github: TO
 ```bash
 magnet:?xt=urn:btih:95467C26B365A4DCDA284E8D5ECA7CE840F29427
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Duran Duran - Danse Macabre (2023) [MP3|320 Kbps] <Pop, Rock>
 magnet:?xt=urn:btih:0A9C58D8251B876B63FF46F30CC342A8A278D4C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:0A9C58D8251B876B63FF46F30CC342A8A278D4C6
 magnet:?xt=urn:btih:CAE243880C5E885AF893C8243A7F939541F3E2B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ SmallCubed MailSuite 2019.0.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:CE737BD40013BE3E152A06CAF523172A7CFDA460
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:CE737BD40013BE3E152A06CAF523172A7CFDA460
 magnet:?xt=urn:btih:089285702E2506F4C5FADAE3DE144E55D891FC72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:089285702E2506F4C5FADAE3DE144E55D891FC72
 ```bash
 magnet:?xt=urn:btih:C9EE3D4CE240F99B64EE840756C5049C96B09DF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ Charles Web Debugging Proxy – это набирающий популярнос
 ```bash
 magnet:?xt=urn:btih:9ED68C4B9A9B9868ACD84D43522505AA9C0ABEB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ Audioslave — супергруппа, состоявшая из бывших и
 magnet:?xt=urn:btih:81A4F82AD84BF0EB3C66DC0C808D4CC0E2CE0970
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ magnet:?xt=urn:btih:81A4F82AD84BF0EB3C66DC0C808D4CC0E2CE0970
 magnet:?xt=urn:btih:CC7A233066006B3B846E40F3E0D03D8403E90B29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +481,8 @@ Dragon Guardian - Destiny of the Sacred Kingdom (2012) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:379E5A9DD79B420D6128A68DCDCE5DD8BBDDA133
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -475,6 +511,8 @@ magnet:?xt=urn:btih:379E5A9DD79B420D6128A68DCDCE5DD8BBDDA133
 magnet:?xt=urn:btih:4E3CB04D55C668B55A0EAD801373CBA77AF06E88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:4E3CB04D55C668B55A0EAD801373CBA77AF06E88
 ```bash
 magnet:?xt=urn:btih:352413C58604C197A034BA42BA298968F1D03F00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ Display Maestro - простая утилита, которая дает вам 
 magnet:?xt=urn:btih:E5CBE4DD6D770097B205C474BEDCF5F2E6031B2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ MacBooster поможет настроить и ускорить работу ma
 ```bash
 magnet:?xt=urn:btih:76BBEAEF3A9DB0FB35B0C87AEEA05FD191FC2AEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ BK Sarthak Das, Virginia Chu | Security as Code (2023) [PDF][EN]
 magnet:?xt=urn:btih:9F77290F9A44BEA206A68757D48E03CD34EEA930
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ iShowU Studio предоставляет эффективные инструме
 ```bash
 magnet:?xt=urn:btih:D7856D1C2D0A77ED1B973533091105B7C50AF249
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +675,8 @@ magnet:?xt=urn:btih:D7856D1C2D0A77ED1B973533091105B7C50AF249
 magnet:?xt=urn:btih:59D514550F9C62A1FBAA718EDFE2A7CDF65050D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ BT - Everything You’re Searching For Is On The Other Side Of Fear (2019) Black
 ```bash
 magnet:?xt=urn:btih:44CDC85C25CFCBC8B859732149168877C2DF5044
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

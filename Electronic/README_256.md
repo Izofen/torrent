@@ -28,6 +28,8 @@ CD 1
 magnet:?xt=urn:btih:B15DA0E60500FCA75F6AA3C2FE458CDA0330952E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ VA - Republica Cafe Music (ex Cafe Del Mar) - Collection 6 Releases (2010-2012) 
 ```bash
 magnet:?xt=urn:btih:6DE08858FB90934B52DA4EEDE91EAA2ACB7DBF56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ VA - EPIC Ibiza - Trance Anthems Vol.2 (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:1CC2F5689A7872B51239C1916C37C2C66D3864B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ VA - Chillout King Ibiza - Chill Around The World (Best Chillout & Chillhouse Mu
 ```bash
 magnet:?xt=urn:btih:B29B408EABFB43D9AEF76DCB4E66D0E446FAED1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ VA - Finest Selection Of Summer Anthems (2015) [MP3|320 кб/с]<Club, Progressi
 magnet:?xt=urn:btih:E5DB13F965861A5B71F9D61F23E6C857C9EF7C15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ VA - EDM Bass Running (Workout Music) (2018) [MP3|320 Kbps] <House, Tech House, 
 ```bash
 magnet:?xt=urn:btih:54C0465A21992149CE1126129690D0CDB554DE76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ VA - Easy Listening Injection (2015) [MP3|320 кб/с]<Downtempo, Chillout, Loun
 magnet:?xt=urn:btih:21EA18298FAB157797A0231C0EDD8F618D5C524C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ Yamaneko - Afterglow (2018) Local Action [FLAC|Lossless|WEB-DL|tracks] <Ambient,
 ```bash
 magnet:?xt=urn:btih:6077DAF00B760D6E98905F1829A0E7E4FDFBBCCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ Sevdaliza - Shabrang (2020) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Art Pop, Ex
 magnet:?xt=urn:btih:6C9AE95D2FE9F78626DDC2F8C6BC956CD9E32FBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ VA - Pure Trance Frequencies 2 (2020) [FLAC|Lossless|tracks] <Trance>
 ```bash
 magnet:?xt=urn:btih:47ED1C242B0BC48DD0C45EB014277258774E865A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ Innersync - Fairies from the Magic Forest (2017) EP [MP3|320 Kbps] <Trance,Uplif
 magnet:?xt=urn:btih:38E170BE331520C3C91532BE622F666959467B15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +346,8 @@ VA - Cool Cafe Lounge (QAXT New Sounds) (2016) [MP3|320 Kbps] <Lounge, Chill Out
 ```bash
 magnet:?xt=urn:btih:088B22ECB65B5830894E9DDBF137FFB182F11A52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ VA - Forever Piano The Finest Soft Piano Music for Chillout and Laidback Moments
 magnet:?xt=urn:btih:FE5F58507B064C0FFF9B7FC890E30A70FAD83758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +404,8 @@ MDB - Beautiful Voices Mixes (2007-2019) [MP3|256-320 Kbps|image + .cue] <Ambien
 ```bash
 magnet:?xt=urn:btih:E442F68ED83C660AE36A382495F34921CBBAC55D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ KUBA - Animalia (2018) Liquid Sound Design [FLAC|Lossless|tracks+.cue] <Downtemp
 magnet:?xt=urn:btih:77CA3F307B2466D0C7EF324594ABCC9F6884EE17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ Arnaud Rebotini - Flowers For Algernon (2018) EP [FLAC|Lossless|WEB-DL|tracks] <
 ```bash
 magnet:?xt=urn:btih:60B542C5A1B2ECDFA202C13053CC144BD8E0E17F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ VA - Love Hits Vol.2 (2017) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:E0A94205253FA0EAFBB378E15CEF19637A88C4B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +520,8 @@ Suduaya - Unity (2013) [Altar Records] [FLAC|Lossless|WEB-DL]<Psychill, Downtemp
 ```bash
 magnet:?xt=urn:btih:B58A4DE7424258C236DE2103FA6491186342B850
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +550,8 @@ Karloz Manufactura (Broken Fabiola, Industria Secundaria, Stranger Dreams) - 25 
 magnet:?xt=urn:btih:353214F1D7DBC30BD726563B394B87C96D1C9F09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -541,6 +579,8 @@ Yello - Point (2020) [MP3|320 Kbps] <Synthpop, Electronic>
 magnet:?xt=urn:btih:AE4B3131338D83E06E132ED78A213E5E35A24068
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +604,8 @@ VA - Hamburg Elektronisch Vol 1-2: Von House Zu House (2011-2012) [FLAC|Lossless
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +634,8 @@ Podval Capella - Deep (2015) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
 magnet:?xt=urn:btih:991F829FA3CA5447485BAB357DE7CC2BF60772A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +662,8 @@ Podval Capella - Solar Plex (2019) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
 ```bash
 magnet:?xt=urn:btih:6C9D5B52A379B62858F682BD9849847FDBF346C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -646,6 +692,8 @@ Podval Capella - Om (2016) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
 magnet:?xt=urn:btih:D85935159B0020BA70F4E5F1AB9198A970B75B64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -673,6 +721,8 @@ Podval Capella - Wayfarer (2016) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
 magnet:?xt=urn:btih:267DCE9D75CC50CAF91E5BEBE633FF32518D9CB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ Podval Capella - Shaman (2018) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop>
 ```bash
 magnet:?xt=urn:btih:3B2DB365475D292A3B74AE354A600932782DFBC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

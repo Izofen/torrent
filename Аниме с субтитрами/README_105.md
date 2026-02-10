@@ -1,3 +1,29 @@
+###  Публикация: 1352120   (894596) от 28.03.2020
+
+Boku no Tonari ni Ankoku Hakaishin ga Imasu. | A Destructive God Sits Next to Me | Бог разрушения за соседней партой [2020, TV, 12] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_894596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сэри Коюки и не против бы жить жизнью обычного старшеклассника, однако вместе с ним учится Кабуто Ханадори. Парень заявляет, будто он рыцарь тьмы и света. Он ведёт непрестанную борьбу с демонами, в том числе и внутри себя. Ведь если Ханадори снимет повязку с глаза, то на волю вырвется ужасающий Мигель...Производство: Студия EMT Squared / EMTスクエアードЖанр: комедияРежиссер: Нигорикава АцусиПеревод: официальный (Cranchroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:754DC5312511446184BB2C685E7D496272139E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329862   (894599) от 28.03.2020
 
 Fate/Grand Order: Zettai Majuu Sensen Babylonia | Fate/Grand Order Absolute Demonic Front: Babylonia | Судьба: Великий приказ - Вавилония [2019, TV, 21 эп. + OVA] WEBRip 720p raw
@@ -18,6 +44,8 @@ Fate/Grand Order: Zettai Majuu Sensen Babylonia | Fate/Grand Order Absolute Demo
 ```bash
 magnet:?xt=urn:btih:1A22443EE123B0EE52F49964963BFDEC5E7BF17C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ Soukou Kihei Votoms: Pailsen Files / Soukou Kihei Votoms Pailsen Files / Бро�
 magnet:?xt=urn:btih:75D61E5FD1F833FDEC3EDB2D88338E624EF6B042
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ Nekopara (2020) | Кошачий рай [ТВ] [2020, TV, 12 эп.] WebRip 720p 
 ```bash
 magnet:?xt=urn:btih:D5B976D4B7C451B2A72B074F17ADFF7573D05A30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ Tsukimonogatari: Yotsugi Doll / История одержимости: Кукл�
 magnet:?xt=urn:btih:76F20AEF9E5380CC66AB2CF32A74A27F65EE1092
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ Mugen no Juunin: Immortal | Клинок бессмертного (2019) [2019, 
 ```bash
 magnet:?xt=urn:btih:63C1441DBD85DB8C15D5995682D38094E8DB4017
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ Nanatsu no Taizai: Kamigami no Gekirin | The Seven Deadly Sins: Wrath of the God
 magnet:?xt=urn:btih:10862AC89FF05FA443C5B4A04719FDB266EDD9DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ Kono Subarashii Sekai ni Shukufuku o! Kurenai Densetsu | KonoSuba Movie | Это
 ```bash
 magnet:?xt=urn:btih:47D0E256D02B6602722AE03FB7E1CCBED34EE793
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ To Love-Ru: Trouble - Darkness 2nd / Любовные неприятности: 
 magnet:?xt=urn:btih:53FFBF8706BBEDA6E78F11BFB91B5DDE64708542
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ Dominion Tank Police | Доминион: Танковая полиция [1988, 
 ```bash
 magnet:?xt=urn:btih:153760F87C707001A56239999ABF11387F0D0A83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ Tenkuu Senki Shurato / Heaven Wars Shurato / Небесные войны Сюр�
 magnet:?xt=urn:btih:9E93025E1C0B12BCC53B1ED145FD30695B964A11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ Natsunagu! | Нацунагу! [2020, TV, 12] WEBRip 720p raw
 ```bash
 magnet:?xt=urn:btih:922A72F6CE9606975E18DCD2243E57C12E55D572
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ Kuutei Dragons | Drifting Dragons | Небесные драконы [2020, ONA, 
 magnet:?xt=urn:btih:D10EA7371638FEFAE6AE506F3A8BF5D30AFE6602
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ Soukou Kihei Votoms: Kakuyaku taru Itan / Armored Trooper Votoms: Shining Heresy
 ```bash
 magnet:?xt=urn:btih:388A2AB203079D64E0D0E9EF1E632130DB73AF16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ Alps no Shoujo Heidi / Heidi: Girl of the Alps / Хайди - девочка А�
 magnet:?xt=urn:btih:9FFEEFDD84419539ED99692E6B568D183F4719E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ Bikini Warriors / Воительницы в бикини [2015, TV, 13] BDRip 10
 ```bash
 magnet:?xt=urn:btih:60AD7C4A5F2C00941F7D9DE4F52C6F0302A770A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ Kikou Ryouhei Mellowlink / Armor Hunter Mellowlink / Бронебойщик Ме
 magnet:?xt=urn:btih:4CAE367F64BB0167006E8C1C16B4D8224978D52B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ Kyoukai no Kanata | Beyond the Boundary | За гранью [2013, TV, 12 из 1
 ```bash
 magnet:?xt=urn:btih:DB5B2697EA981FB50017534B6AE6190E27FC3326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +488,8 @@ Eizouken ni wa Te o Dasu na! | Keep Your Hands Off Eizouken! | Руки проч
 magnet:?xt=urn:btih:D7D70C59656AB16F4A3B35F6DAB06352D69A49AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +513,8 @@ Hataraku Maou-sama! | The Devil is a Part-Timer! | Повелитель Тьмы
 ```bash
 magnet:?xt=urn:btih:7F845A989D7C6D5173A34D863AFA4449821501A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +540,8 @@ Yatogame-chan Kansatsu Nikki Nisatsume | Заметки Ятогамэ [ТВ-2] 
 ```bash
 magnet:?xt=urn:btih:41C629B79052CA15B892A33C2D279B061002F5FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +569,8 @@ Uchi Tama?! Uchi no Tama Shirimasenka? | Uchitama?! Have You Seen My Tama? | Т�
 magnet:?xt=urn:btih:04B03D673384CB814D45E95E759A171B3DE24C64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ Fumetsu no Anata e | To Your Eternity | Для тебя, Бессмертный 
 magnet:?xt=urn:btih:82B6B4367B48F1A76F7D83BE83D4EE7BE6A6BC21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +620,8 @@ Shisha no Teikoku / The Empire of Corpses / Империя мертвых [2015,
 ```bash
 magnet:?xt=urn:btih:183E270B6CA288CA9C14A086BFA76F059A804436
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +648,8 @@ Macross FB7 является символом 30-летия Вселенной M
 magnet:?xt=urn:btih:0201A8402CBA7AE6A44F1A98289837A8837C0A0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,29 +674,7 @@ Kaijuu no Kodomo | Children of the Sea | Дети моря [2019, Movie] BDRip 1
 magnet:?xt=urn:btih:2CDBCD5C636C0D5531084424FD3E60CA924A6D92
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369284   (903377) от 23.03.2020
-
-Ni no Kuni | Другой мир | Вторая страна [2019, Movie] BDRip 1080p raw
-
->>Аниме с субтитрами
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_903377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два школьника по имени Ю и Хару отправляются в другой мир, чтобы спасти жизнь своей подруги Котоны и в настоящей, и в параллельной Вселенной. Но любовь усложняет их путешествие...Производство: студия OLM / オー・エル・エムЖанр: приключения, фэнтезиРежиссер: Момосэ ЁсиюкиПеревод: Леон ИванихинЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 110 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77BE6CFD8E672B4E86CF6377D9302147854AA2AF
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:1219F94832B988C4F0B3D35B6651C3FEC1FF33E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ OTUS | Этичный хакинг. Практика тестирования н
 ```bash
 magnet:?xt=urn:btih:4DC1EE7C7B68F6A1DE33D618A282D1FB065449FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ OTUS | Machine learning (2020) PCRec [H.264]
 magnet:?xt=urn:btih:0E545CA115E1FB0BB1C162BA6A5C596C3E7630E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Bang Bang Education | Вечера с Arduino. Базовый курс (2020) PC
 ```bash
 magnet:?xt=urn:btih:433A72A6F15B49DA22B6A9E3DD17E7F884924E6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ CyberBionic | Практикум по алгоритмам (2020) PCRec [H.264]
 magnet:?xt=urn:btih:45B21526EDF0977AE7C8D4B57B96C4E88352E243
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Bang Bang Education | 1000 и 1 буква (2019) PCRec [H.264/1080p-LQ]
 ```bash
 magnet:?xt=urn:btih:D7FF0E75F80F1D5B03CAFE3F2578B85A72BF5405
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:D7FF0E75F80F1D5B03CAFE3F2578B85A72BF5405
 magnet:?xt=urn:btih:7A1956BA079EA372AD4B86EA47808C5E79FC0FD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ ITVDN | SPRING (2020) PCRec [H.264/1080p-LQ]
 magnet:?xt=urn:btih:12631AB40F58808186AD91D0531FC876C01FF2DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:12631AB40F58808186AD91D0531FC876C01FF2DE
 ```bash
 magnet:?xt=urn:btih:3CE8E8585AD92EDE1C2916DC9C0688C29AA40E8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Adobe Illustrator — программа для создания «плоско�
 magnet:?xt=urn:btih:07FD5457FB503773B86428F5C45B0DDB2B096478
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Bang Bang Education | Сетки и проектирование сайтов (2
 magnet:?xt=urn:btih:E116C1BFB3668696C13B72D8387C99FB8ECF12AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Udemy, Nicholas Lever | The Beginners Guide to 3D Web Game Development with Thre
 ```bash
 magnet:?xt=urn:btih:46CFC677FDCFDE69B89E036FBC36589D5B54963F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Bang Bang Education | Как устроены буквы (2018) PCRec [H.264/108
 magnet:?xt=urn:btih:3657E1C780E92CD576F4A56388200E7E8898A68B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ FlippedNormals | Ретопология в Blender 2.8 / Retopology in Blender 2
 ```bash
 magnet:?xt=urn:btih:B553EAB1296AEF2B6767BF95AE987FDF2B165BE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +391,8 @@ Python - это действительно популярный язык про�
 magnet:?xt=urn:btih:81A21DA426A0420D7E3726B66112174CE8F2E8C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ CGcircuit, David Adan | Introduction to VEX - Volume 2 (2019) PCRec [En, Ru]
 ```bash
 magnet:?xt=urn:btih:57A0D89A993103434353BC4A707635C6CA7F0CE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ CGcircuit, David Adan | Introduction to VEX - Volume 3 (2019) PCRec [En, Ru]
 magnet:?xt=urn:btih:C1F512BF25E92F686AB445AA06F1C5F90A174B59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ magnet:?xt=urn:btih:C1F512BF25E92F686AB445AA06F1C5F90A174B59
 magnet:?xt=urn:btih:09F24825CCBE385C552203D81212EEF9CF7CBEB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ TheNewBoston | Фотошоп CS6 / Photoshop CS6 (2014) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:E8000E26F512CD74F64A32AFFC7802DD3F80E7C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:E8000E26F512CD74F64A32AFFC7802DD3F80E7C8
 magnet:?xt=urn:btih:1424CCB2DEA1B38C9FF192B5B2F3D8F1DF29C734
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +558,8 @@ magnet:?xt=urn:btih:1424CCB2DEA1B38C9FF192B5B2F3D8F1DF29C734
 magnet:?xt=urn:btih:F53A7FDB67770B6B4A70B4FB81644872B7F8B0B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:F53A7FDB67770B6B4A70B4FB81644872B7F8B0B3
 magnet:?xt=urn:btih:9F5CACAAF114BF20162274881DC84D0738C33334
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -565,6 +609,8 @@ magnet:?xt=urn:btih:9F5CACAAF114BF20162274881DC84D0738C33334
 ```bash
 magnet:?xt=urn:btih:78FA309E72911AF5C5386B28FE190D720BFA22D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +637,8 @@ magnet:?xt=urn:btih:78FA309E72911AF5C5386B28FE190D720BFA22D8
 magnet:?xt=urn:btih:7EC7AAB7FC9A2142A3CA4DA4B5360A6C3EB47721
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:7EC7AAB7FC9A2142A3CA4DA4B5360A6C3EB47721
 ```bash
 magnet:?xt=urn:btih:5B6DE2738247CC0A5A520F71FE9A17E065729BBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -641,6 +691,8 @@ Typescript - это «супернабор» Javascript. (   Читать да�
 ```bash
 magnet:?xt=urn:btih:A7F223712F85E82BE96DB2F8BD4CE1EE5DD36FB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

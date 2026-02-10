@@ -28,6 +28,8 @@ VA - Most Wanted Chill & Lounge (10.02.2012) [MP3|320 кб/с]<Downtempo, Lounge
 magnet:?xt=urn:btih:5BAFAC23FD712B247D25901DED0ADD419D68FBF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ VA - Sexy Trance #28 (06.03.2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vo
 ```bash
 magnet:?xt=urn:btih:25F559E8C3D9C53A66EE0C898856045A854AD04A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ VA - Sense Of Trance #24 (06.03.2012) [MP3|320 кб/с]<Uplifting Trance, Trance
 magnet:?xt=urn:btih:99A0ABFDBBF62956C2495C6FB40D8381FB33EAF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +132,8 @@ VA - Best of Gothic v.2 (2010) [MP3|192-320 кб/с]<Gothic Metal>
 ```bash
 magnet:?xt=urn:btih:28F8348657606840E09C2BA36996E74F040CD29C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +168,8 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #76 (08/03/2012) [MP3|320 кб/с
 magnet:?xt=urn:btih:3CA7A5266967CED03ED80DE36FA422DCEC4FD735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +202,8 @@ VA - Hip-Hop для Любимой (2012) [MP3|320 кб/с]<Hip-Hop, Rap>
 ```bash
 magnet:?xt=urn:btih:0390ECC62746501F523913688A0BC55F57B1816D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +238,8 @@ VA - Горячая Танцевальная Сенсация (2012) [MP3|256 к
 magnet:?xt=urn:btih:8681CE57681B58C6AE5929CA5068DC49441D7F7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +272,8 @@ VA - Шоферской Хит 6 (2012) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:366CB18109D4DA6ACDCB3EA71A20A81AB70D6CEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +308,8 @@ VA - Взрывной хит-парад Весна (2012) [MP3|256-320 кб/с]<
 magnet:?xt=urn:btih:B1675603B457D1A2F443004ADFB5641905705754
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +333,8 @@ VA - Ultimate Dance & Trance Vol.1 (2012) [MP3|320 кб/с]<Dance, Trance>
 ```bash
 magnet:?xt=urn:btih:DE579BBB11D063D33410519B0F0A366885581E96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +366,8 @@ VA - High Rankin presents This Is Suicide Dub Volume 1 (2010) [MP3|320 кб/с]<
 ```bash
 magnet:?xt=urn:btih:4845516FB28C01F76D8FD5E42680DEDF2F3D9487
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +402,8 @@ VA - Весенний хит-парад Record 6 50/50 (2012) [MP3|256 кб/с]<
 magnet:?xt=urn:btih:6CF6F0268A36985B545864967EFEE0CDA300A96D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +436,8 @@ CD11993Жанр: RockПродолжительность: 01:17:43
 ```bash
 magnet:?xt=urn:btih:9DAE3B72FC59D78D9D6BF363AFDB3C4FD94DA7E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +472,8 @@ VA - Абсолютный Свежачок Сезона (2012) [MP3|256 кб/с]
 magnet:?xt=urn:btih:EAA25AC519556AE7CD312906A75A67F107ACCC38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +506,8 @@ VA - The best from the West (2012) [MP3|256 кб/с]<Dance, Pop>
 ```bash
 magnet:?xt=urn:btih:E9106830318C63D678DAE5B92F13115F63B62A3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +542,8 @@ VA - Italo - Eurodisco (2012) [MP3|256 кб/с]<Italo-Disco, Euro-Disco, Pop>
 magnet:?xt=urn:btih:6F985BB60A8EC53BAFE7719E27E7995563BB2308
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +576,8 @@ VA - Ретро Дискотека глазами диджеев (2012) [MP3|256
 ```bash
 magnet:?xt=urn:btih:C7E0B5BC016C1E686745017E64FEBE5AD0A586F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +612,8 @@ VA - Trance Symphony Volume 7 (13.03.2012) [MP3|320 кб/с]<Uplifting Trance, T
 magnet:?xt=urn:btih:A642287437652455C3C37DF5ACAD9DE792DB218B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +646,8 @@ VA - Новинки: Хит-парад 50/50 1 (2012) [MP3|256 кб/с]<Рор>
 ```bash
 magnet:?xt=urn:btih:AD656F6C2FDF38051FE57463A7641CAB4300F98E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +682,8 @@ VA - Dub Step vol.2 from AGR (2012) [MP3|256 kbps]<Dub Step>
 magnet:?xt=urn:btih:5181E6A5B9AEDE6F7BAD3995BDF6567B7656038A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +716,8 @@ VA - Dub Step vol.4 from AGR (2012) [MP3|256 kbps]<Dub Step>
 ```bash
 magnet:?xt=urn:btih:AF77B4070BF03780ACC0F8F65DAD390B3C6E8170
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -710,6 +752,8 @@ CD1
 magnet:?xt=urn:btih:B08CB628F1E6173D1D3C373E5AD69FA65600D5A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -742,6 +786,8 @@ VA - Зарубежные Звезды Радио Станций (2012) [MP3|256
 ```bash
 magnet:?xt=urn:btih:9D71C317A06B82C1928AE33300EFCBEB9AEB5E1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -776,6 +822,8 @@ VA - Seasons of Seduction vol.1 (2012) [MP3|320 кб/с]<Electro-House, House>
 magnet:?xt=urn:btih:70667A5351983F635E4859C01A4A9891BFE80F9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -807,6 +855,8 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #77 (2012) [MP3|320 кб/с]<Tran
 ```bash
 magnet:?xt=urn:btih:F601EC93447DC50D5EEC5EFFDAC31955AE0FDFCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -840,6 +890,8 @@ VA - Звездная Дискотека. Зарубежный (2012) [MP3|256 �
 ```bash
 magnet:?xt=urn:btih:E57A07BAAAF9D0FD92C6A395561218C6B14D3B3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

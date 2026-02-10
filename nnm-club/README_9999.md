@@ -1,54 +1,3 @@
-###  Публикация: 958042   (324962) от 20.11.2015
-
-Laurent Petitgand - The Salt of the Earth (Original Soundtrack) (2014) [OGG|~450 kbps]<Score / Modern Classical, Ambient>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Salt of the Earth (02:41)
-02. Papu's Song (03:36)
-03. Serra Pelada (02:50)
-04. Wrangel Island (03:56)(   Читать дальше...   )Жанр: Score / Modern Classical, AmbientПродолжительность: 00:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EDC668234A9C972CE5ABD6BA5A576B0FB9FD118
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958171   (324963) от 20.11.2015
-
-Simon Templar - Meltwater (Part III) Single (2015) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_324963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meltwater (Part III) (10:32)Жанр: TranceПродолжительность: 00:10:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68261B432E7D46CDFA1FB15E6674F950BF6D9261
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957729   (324964) от 20.11.2015
 
 VA - Trancemission Amsterdam (2015) [MP3|320 кб/с]<Trance,Uplifting Trance>
@@ -72,6 +21,8 @@ VA - Trancemission Amsterdam (2015) [MP3|320 кб/с]<Trance,Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:DDFE3F149CBA121CE66B994ECCD3BB1E214E9415
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +48,8 @@ Will Atkinson & Rowetta - Mesmerise (2015) Single [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:941B414F2939EBDF92E6A450DEF1B534BF2DB36C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +73,8 @@ magnet:?xt=urn:btih:941B414F2939EBDF92E6A450DEF1B534BF2DB36C
 ```bash
 magnet:?xt=urn:btih:FD05C9DE08FC8AEE6E338876C858ACC17D135563
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -148,6 +103,8 @@ Signum Regis - Chapter IV: The Reckoning (2015) [MP3|320 кб/с]<Progressive, P
 magnet:?xt=urn:btih:86C0ADD95E750E818E1A0057B6804185F1AA50F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +130,8 @@ WeAreAliens - A Day (2015) Single [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:3528802753242F8A7109DFF926E9F2B0323B2D50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +156,8 @@ magnet:?xt=urn:btih:3528802753242F8A7109DFF926E9F2B0323B2D50
 magnet:?xt=urn:btih:826DDF4E0B1F06A12F4A6F5EC7736B0129947F2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +181,8 @@ magnet:?xt=urn:btih:826DDF4E0B1F06A12F4A6F5EC7736B0129947F2F
 ```bash
 magnet:?xt=urn:btih:7A1B6C482EB4D7383EE732411EA561C349BC7AD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +209,8 @@ L 33, Chris.Su, Kryptomedic - Mirror Universe (2015) Album Sampler [MP3|320 кб
 magnet:?xt=urn:btih:D03999EC76279B9C043E9FA2CC9A60E69A455B95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +234,8 @@ magnet:?xt=urn:btih:D03999EC76279B9C043E9FA2CC9A60E69A455B95
 ```bash
 magnet:?xt=urn:btih:8AB933A1666E54332A55CE3E1EEBB8333D421F4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +264,8 @@ magnet:?xt=urn:btih:8AB933A1666E54332A55CE3E1EEBB8333D421F4B
 magnet:?xt=urn:btih:54F3D593C65726D1F9A65C1B13BA95A1065C503B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +289,8 @@ magnet:?xt=urn:btih:54F3D593C65726D1F9A65C1B13BA95A1065C503B
 ```bash
 magnet:?xt=urn:btih:2D893D04C57672CAA97517C46A9CF3C5C2386278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +319,8 @@ Frank Blackfire - Back On Fire (2015) [MP3|320 кб/с]<Thrash Metal>
 magnet:?xt=urn:btih:C24DF5C92BAD5D1CB61BE04458205E1C5BAD5917
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +345,8 @@ magnet:?xt=urn:btih:C24DF5C92BAD5D1CB61BE04458205E1C5BAD5917
 magnet:?xt=urn:btih:80ACC942E98049598EC927F40935721CBA88D01B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +370,8 @@ Jordan Suckley & Sam Jones - Hijacker (2015) Single [MP3|320 кб/с]<Trance>
 ```bash
 magnet:?xt=urn:btih:9D656EA6B7FC020ED656E7BC74BEDBA3DB7C03E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +400,8 @@ VA - Enhanced Chill Volume Three (2015) [MP3|320 кб/с]<Chillout>
 magnet:?xt=urn:btih:E6D53A4A85645686D2EDDDB6F5942A733969A7E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +428,8 @@ VA - White Sunset - 20 Smooth Sexy and Relaxing Chillout Tunes - Vol 1 (2015) [M
 ```bash
 magnet:?xt=urn:btih:D45E5E89F4A8D5F503E243467EDE81BACE3F3FC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +458,8 @@ Dominik Von Francois - Last Resort (2015) [MP3|320 кб/с]<Trance>
 magnet:?xt=urn:btih:D11DBB0B09F63B774BE043B29CEE301F750C75F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +486,8 @@ Acromizer - Spreading The Plague (2015) [MP3|320 кб/с]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:247FFA19994FDCD1609DADCA57FB802B665EA2D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +516,8 @@ VA - Who's Afraid Of 138? Volume 2 (Mixed by Coming Soon!!! & Ben Nicky) (2015) 
 magnet:?xt=urn:btih:0403FBF27C43D5494CF50F126DE59D4880389B94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +541,8 @@ magnet:?xt=urn:btih:0403FBF27C43D5494CF50F126DE59D4880389B94
 ```bash
 magnet:?xt=urn:btih:83F7A8029EE900FE0B1A8DC51B72B29669622B60
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +571,8 @@ VA - Chill Out Cafe The Best (2006) 2CD [FLAC|Lossless|image + .cue]<Easy Listen
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +596,8 @@ VA - Chill Out Cafe The Best (2006) 2CD [FLAC|Lossless|image + .cue]<Easy Listen
 ```bash
 magnet:?xt=urn:btih:07152C25820959D71AD649B82C24DE5D13C4903C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +623,8 @@ Fallout 2 – культовая ролевая игра, справедливо
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +648,62 @@ Fallout [Ru] (L) 1997
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 263075   (325051) от 26.11.2010
+
+Worms: Reloaded / Worms 2: Armageddon [Ru] (L) 2010 | R.G. Игроманы
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_325051.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пушки на изготовку… Червяки возвращаются!
+Спустя пятнадцать лет после первого появления на свет и через десять лет после выхода культовой Worms™ Armageddon, которая в свое время буквально взорвала мозг миллионам геймеров, пошаговое мультяшное побоище закипает с новой силой! Смешные и опасные, червяки вновь готовы уйти в отрыв. Вас ждет современная, стильная графика, самое нереальное оружие, миллион возможностей, сетевое безумие и любимая атмосфера всеобщей чумовой анархии!Тип издания: ЛицензияЖанр: StrategyЯзык озвучки: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 262675   (325055) от 26.11.2010
+
+Alone in the Dark / Alone in the Dark: У последней черты  [Ru] (RePack) 2008 | R.G.ReCoding
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_325055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Центральный парк Нью-Йорка - уголок тишины и спокойствия. Мало кто знает, что происходит в нем ночью. Под покровом темноты это место начинает преображаться. Когда тени убегают прочь от твоего взгляда, а спасением от подступающей тьмы становится луч фонарика, начинаешь верить в реальность происходящего. И если кто-нибудь рискнет отправиться в Центральный парк ночью, он быстро поймет, что у темноты есть глаза...
+Эдвард Карнби, исследователь паранормальных явлений, прибывает в Центральный парк под покровом темноты. Ночь, сумрачным саваном опутавшая это место, затягивает его в водоворот событий, которым невозможно дать логическое объяснение. Сражаясь с порождениями тьмы, Эдвард узнает правду о парке и его загадочном прошлом. Истина, словно раскат грома сотрясает ночной город. Нью-Йорк уже никогда не будет прежним...Тип издания: RePackРазработчик: Eden GamesЖанр: Action / 3D / 1st Person / 3rd PersonЯзык озвучки: Язык интерфейса: 
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D36CC63BA0809AF3296131FA07F4934294C40C5B
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

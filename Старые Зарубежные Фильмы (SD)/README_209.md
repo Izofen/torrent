@@ -1,28 +1,3 @@
-###  Публикация: 984906   (936535) от 10.02.2016
-
-Черная змея / Black Snake (1973) DVDRip [H.264] [АVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_936535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодой англичанин отправляется на далекий карибский остров где расположена плантация, которая принадлежала его исчезнувшему брату. Как выяснилось, плантацией теперь заправляют жена брата — кровожадная нимфоманка леди Сьюзан — и двое ее приближенных: жестокий и глупый надзиратель и хорошо образованный чернокожий гомосексуалист.
-Эта троица ни во что не ставит жизни (   Читать дальше...   )Производство: США / Trident Films Ltd.Жанр: ТриллерРежиссер: Расс МайерАктеры: Анушка Хемпель, Дэвид Уорбек, Перси Херберт, Томас Бэптист, Бернард Бостон, Викки Ричардс, Дэвид Праус, Энтони ШарпПеревод: Авторский (А. Алексеев)Субтитры: ОтсутствуютПродолжительность: 01:22:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF4B0CC1CFE37696C36B5E2B7431E207ADDE2942
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985013   (936901) от 10.02.2016
 
 Париж принадлежит нам / Paris nous appartient (1961) DVDRip [AVO]
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:CF4B0CC1CFE37696C36B5E2B7431E207ADDE2942
 ```bash
 magnet:?xt=urn:btih:E275D2FE607DEC5BD8C4261ADD5C3CFDF9C90700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +45,8 @@ magnet:?xt=urn:btih:E275D2FE607DEC5BD8C4261ADD5C3CFDF9C90700
 magnet:?xt=urn:btih:C5E473D05F1E0CAACF0D4EAF0344BDCDF3C268E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +71,8 @@ magnet:?xt=urn:btih:C5E473D05F1E0CAACF0D4EAF0344BDCDF3C268E2
 magnet:?xt=urn:btih:191857AF69131A7F5EC2117F0ED4E1C0C76785D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +96,8 @@ magnet:?xt=urn:btih:191857AF69131A7F5EC2117F0ED4E1C0C76785D7
 ```bash
 magnet:?xt=urn:btih:91CBD271F3184DB1618B4135F7B6AEF9DCA6AB09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +124,8 @@ magnet:?xt=urn:btih:91CBD271F3184DB1618B4135F7B6AEF9DCA6AB09
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +154,8 @@ magnet:?xt=urn:btih:91CBD271F3184DB1618B4135F7B6AEF9DCA6AB09
 magnet:?xt=urn:btih:C5CEB1C87B9B75684B21A34DB41E789B98CA83E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +182,8 @@ magnet:?xt=urn:btih:C5CEB1C87B9B75684B21A34DB41E789B98CA83E8
 magnet:?xt=urn:btih:87D7A4BBF3991501BCA12D2CBF65727CE52377A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +207,8 @@ magnet:?xt=urn:btih:87D7A4BBF3991501BCA12D2CBF65727CE52377A3
 ```bash
 magnet:?xt=urn:btih:D0177D02F19F4C75A6A14756BEF37D3B84548128
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +237,8 @@ magnet:?xt=urn:btih:D0177D02F19F4C75A6A14756BEF37D3B84548128
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +263,8 @@ magnet:?xt=urn:btih:D0177D02F19F4C75A6A14756BEF37D3B84548128
 magnet:?xt=urn:btih:F0A0220E90DA09B22FEB52D322C48DD7BBE5FC8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +288,8 @@ magnet:?xt=urn:btih:F0A0220E90DA09B22FEB52D322C48DD7BBE5FC8F
 ```bash
 magnet:?xt=urn:btih:92D25C28D08662C596882E9C77224DA6D90C4720
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +319,8 @@ magnet:?xt=urn:btih:92D25C28D08662C596882E9C77224DA6D90C4720
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +344,8 @@ magnet:?xt=urn:btih:92D25C28D08662C596882E9C77224DA6D90C4720
 ```bash
 magnet:?xt=urn:btih:FAE5E1001035122B5AFBF7106BDE546E87875703
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +372,8 @@ magnet:?xt=urn:btih:FAE5E1001035122B5AFBF7106BDE546E87875703
 magnet:?xt=urn:btih:EF982108657E7FFBA2432A5602A347DEB4D4E136
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +399,8 @@ magnet:?xt=urn:btih:EF982108657E7FFBA2432A5602A347DEB4D4E136
 magnet:?xt=urn:btih:37A63653C30080C2A5E56DF7CA71546EA305AA29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -419,6 +424,8 @@ magnet:?xt=urn:btih:37A63653C30080C2A5E56DF7CA71546EA305AA29
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +451,8 @@ magnet:?xt=urn:btih:37A63653C30080C2A5E56DF7CA71546EA305AA29
 magnet:?xt=urn:btih:7132FE35FA09BA0BE9CEC094263A70DA3FA7A3D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +476,8 @@ magnet:?xt=urn:btih:7132FE35FA09BA0BE9CEC094263A70DA3FA7A3D8
 ```bash
 magnet:?xt=urn:btih:B3B28700B6787E31932C50910FD2D303077344D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -495,6 +506,8 @@ magnet:?xt=urn:btih:B3B28700B6787E31932C50910FD2D303077344D4
 magnet:?xt=urn:btih:88CEBEB65A8BF0D3CFC275119FF9630806C7C281
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -518,6 +531,8 @@ magnet:?xt=urn:btih:88CEBEB65A8BF0D3CFC275119FF9630806C7C281
 ```bash
 magnet:?xt=urn:btih:21B1203020858CA724EAE1B003C77E3CCCD9DF91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +558,8 @@ magnet:?xt=urn:btih:21B1203020858CA724EAE1B003C77E3CCCD9DF91
 magnet:?xt=urn:btih:E97723B8F62B2D14C2712D522FF5E0E68CB25EE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +583,8 @@ magnet:?xt=urn:btih:E97723B8F62B2D14C2712D522FF5E0E68CB25EE5
 ```bash
 magnet:?xt=urn:btih:28C3E4AABF6346A5EC7BC511A672A9E9201856AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +610,8 @@ magnet:?xt=urn:btih:28C3E4AABF6346A5EC7BC511A672A9E9201856AA
 magnet:?xt=urn:btih:E8E4222B5BD9A02AFCA04A554FFA1FA488567818
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +635,8 @@ magnet:?xt=urn:btih:E8E4222B5BD9A02AFCA04A554FFA1FA488567818
 ```bash
 magnet:?xt=urn:btih:0F73F1218E194D2BF72A3300DAE6B4992260C1A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +662,34 @@ magnet:?xt=urn:btih:0F73F1218E194D2BF72A3300DAE6B4992260C1A5
 ```bash
 magnet:?xt=urn:btih:E223EDC899428AF8C0F188C11B8F3DB4A009D589
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983718   (941697) от 07.02.2016
+
+Спасатель / Lifeguard (1976) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_941697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стареющий спасатель не знает, как жить дальше: молодое поколение уже наступает на пятки и готово занять его место...Производство: США / Paramount PicturesЖанр: ДрамаРежиссер: Дэниел ПитриАктеры: Сэм Эллиотт, Энн Арчер, Стивен Янг, Паркер Стивенсон, Кэтлин Куинлен, Шэрон Кларк, Стив Барнс, Ленка Петерсон, Джордж Уоллес, Пол КентПеревод: Многоголосый закадровыйСубтитры: отсутствуютПродолжительность: 01:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AC6041BB4605704C33D27FE1D0168897694A7D1
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

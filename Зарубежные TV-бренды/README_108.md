@@ -19,6 +19,8 @@ BBC: Содержанки: настоящая цена спонсорских о
 magnet:?xt=urn:btih:CDDDB7CD862F96DA482D76948F1E80CBE851DF3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG. Тайны Креста / Secrets Of The Cross (2009) SATRip [1-4 серия
 ```bash
 magnet:?xt=urn:btih:7F8160DD8DA9487F961685BE62FDC6EFF919C65E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ BBC Horizon: Вкусная еда без вреда для планеты / Fea
 magnet:?xt=urn:btih:0F67FD0D413BB947AA65BA200C41F21D0AB878CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ NGW: Супер-змея Америки / America's Super-Snake (2019) WEBRip [H
 ```bash
 magnet:?xt=urn:btih:22850954F6C9ACD6B1F37214512394B14C0091A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ BBC: 9/11. Я там был / 9/11: I Was There (2021) WEBRip [H.264/1080p]
 magnet:?xt=urn:btih:05703F2D2D99E3B0986D00DC6AB0CEFB1C315254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ BBC: Факты о вымирании видов с Дэвидом Аттенб�
 ```bash
 magnet:?xt=urn:btih:32C0B7CD3686A815354E6FE393E48C6535B713D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ BBC: Парк извращенцев / Pervert Park (2014) WEBRip [H.264/1080p]
 magnet:?xt=urn:btih:9147196FD8B99458E9122537A147042B3852139A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ BBC: Чудеса Солнечной системы / Wonders of the Solar Syste
 magnet:?xt=urn:btih:F3FA3CBCBBE1A2B3AECFA1932048E8B33D2282FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:F3FA3CBCBBE1A2B3AECFA1932048E8B33D2282FA
 ```bash
 magnet:?xt=urn:btih:557F3026BE243187C60D7DA463D80AF8330CEBCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ NG: Расследования Авиакатастроф / Mayday / Air Crash I
 magnet:?xt=urn:btih:338E4C20CA3CE9670643FC53819EF7E5FD20444F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ Discovery. Техногеника. Царь-Бомба (2017) HDTVRip [H.264/720
 ```bash
 magnet:?xt=urn:btih:88440CC5F3A33421136773413D4036EBEB695C48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ NG: Пропавшая колония Колумба / Columbus's cursed colony 
 magnet:?xt=urn:btih:8D9F40C6FDAA928E3D9D2AAD0524B9EA9470783B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:8D9F40C6FDAA928E3D9D2AAD0524B9EA9470783B
 ```bash
 magnet:?xt=urn:btih:C814A3B04ED13FACD0D61EC56073F596710AF5E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ BBC: Горизонт. Плутон. Восставший из мёртвых / 
 magnet:?xt=urn:btih:0B06543435F2F7A4E961EE1D19AD688EE8F1522E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:0B06543435F2F7A4E961EE1D19AD688EE8F1522E
 magnet:?xt=urn:btih:115AB3C262D6C4580D1B9FFF8C7B7CC457B300A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ NG: Панорама 360° Объект всемирного наследия / 
 ```bash
 magnet:?xt=urn:btih:98D09B9B19373827832D5742EF050BAD449B9585
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ BBC: Дикие Карибы / Wild Caribbean (2007) DVDRip (сезон 1, се�
 magnet:?xt=urn:btih:968F006F26B6D6892CBFBE6BD07A7A2582292F05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ Discovery: Скорость жизни / Speed of Life (2010) Blu-Ray [H.264/108
 ```bash
 magnet:?xt=urn:btih:63F3181E27BAD3DE436EF186B926E5CD64A4BE7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ NG. Инстинкт выживания / Primal Survivor (2017) WEB-DL [H.264/1
 magnet:?xt=urn:btih:E7BE77F76F15079E1E4B1CD9633732A789DD0A4E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -487,6 +525,8 @@ NG: Секретное оружие Гитлера / Hitler's Secrets Weapon (19
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ Animal Planet. Логово крокодилов-убийц / Lair of the Killer
 ```bash
 magnet:?xt=urn:btih:F1CA461E9473EB6A75D214BE21F1176CD22F497A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ Nat Geo Wild: Маленькие убийцы / Little Killers (2015) HDTVRip [H
 magnet:?xt=urn:btih:5B082A9E3FBB37EE920858C3D183D96E6E60D681
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ NG: Следующее мегацунами / The Next Mega Tsunami (2014) HDTV 
 ```bash
 magnet:?xt=urn:btih:DFE619376AAA226FBF07691B65EB84F24A822E39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Nat Geo Wild: В опасных водах Австралии. Обед для �
 magnet:?xt=urn:btih:04C8BF7ECCBCF84E0964AF4267E48D45CB8700CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,6 +656,8 @@ History Channel. Древние пришельцы / Ancient Aliens (2010) HDTVR
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ NG. Игры разума / Brain Games (2013) HDTVRip [H.264/720p] [Сезон 
 ```bash
 magnet:?xt=urn:btih:605BE93FD9AF8E94B9F87A2A6F307CF0B45FD662
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

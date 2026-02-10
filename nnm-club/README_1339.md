@@ -19,6 +19,8 @@ Slackers - Carts of Glory - это гоночная адвенчура, кото
 magnet:?xt=urn:btih:C9039E3C629E0504FBDA6AC79D8DDEC0E4E33E2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:C9039E3C629E0504FBDA6AC79D8DDEC0E4E33E2A
 ```bash
 magnet:?xt=urn:btih:76ACF1892614BC92BA73755CB2809DD10098E6A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ VA - Everybody Is In The Mix (The Best Dance Cover Versions), Vol. 2 (2024) [MP3
 magnet:?xt=urn:btih:11EAF5F90D0E5867EE71FC409F35179AC1470319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:11EAF5F90D0E5867EE71FC409F35179AC1470319
 magnet:?xt=urn:btih:8CCB828E9011009C716D7705216443287EA06FC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:8CCB828E9011009C716D7705216443287EA06FC5
 ```bash
 magnet:?xt=urn:btih:0CA4FD606289B95C137099EE9BF9C6A925BC6AE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ David Guetta - Live @ Château de Chambord, France (2024-06-29) [MP3|320 Kbps] <
 magnet:?xt=urn:btih:7835F04EDC5BD2CB0AE46C78D18C7979FB25F450
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -171,6 +183,8 @@ Leather Strip - 4 Albums (2024) [MP3|320 Kbps] <EBM, Techno, Electro-Industrial>
 ```bash
 magnet:?xt=urn:btih:748CAE56D641F4B9668676636F14D86A7A56F908
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -199,6 +213,8 @@ The Cherokee Spirit - Meditation (2011) [MP3|320 Kbps] <Native American, New Age
 magnet:?xt=urn:btih:B67B26F9DC492A23AD203ED7FB6F131F9E4F1266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:B67B26F9DC492A23AD203ED7FB6F131F9E4F1266
 ```bash
 magnet:?xt=urn:btih:F508BC6CD69C825EE16D359F81806DE5E2A7A8B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +268,8 @@ VA - The Best Of Trance 2024 (2024) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:9AABC8C06D9AE2BF206771A983907261C6974EED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ VA - Future Sound of Egypt Best of 2024 (2024) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:0973B313837E1283AB25A18A9779DAA194FBA1B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +326,8 @@ FM - Old Habits Die Hard (2024) Japanese Edition [FLAC|Lossless|image + .cue] <M
 magnet:?xt=urn:btih:4102D9DD19C475E1C4955814258F5AAB9CB29EEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ The Green Pajamas - Just To This (2024) [FLAC|Lossless|WEB-DL|tracks] <Indie Roc
 ```bash
 magnet:?xt=urn:btih:1505429DED3B740FEE70A1D6D5DC71942BE0A779
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +384,8 @@ Teddy Wilson And His Trio - Mr. Wilson and Mr. Gershwin (1959) 1992, Sony [FLAC|
 magnet:?xt=urn:btih:7390182CEB8F1FE77FE52F9A318CD7DB24E06492
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:7390182CEB8F1FE77FE52F9A318CD7DB24E06492
 ```bash
 magnet:?xt=urn:btih:3FD0FF00F13E3554559C867E1B0C2610D6633B11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +440,8 @@ Phineas Newborn, Jr. - Harlem Blues (1969) 1991, Original Jazz Classics [FLAC|Lo
 magnet:?xt=urn:btih:8D9E3F18C40CB12F659424545EF1550B82FBBEB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +466,8 @@ magnet:?xt=urn:btih:8D9E3F18C40CB12F659424545EF1550B82FBBEB4
 ```bash
 magnet:?xt=urn:btih:2F1FB7269376FE0FFC9D49F44398CDDFF4768480
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +496,8 @@ Denigrate - To the Goddess Unknown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:2797D6526BB1A711EF333A751416772149E06713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ Draw.io 25.0.2 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D5D9938B4C33A6227F65E62EC20139B05FB9CBAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +548,8 @@ magnet:?xt=urn:btih:D5D9938B4C33A6227F65E62EC20139B05FB9CBAC
 ```bash
 magnet:?xt=urn:btih:7FBFDCB8D5CEBD9DEB59BBE9B53F61B368ED102C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +578,8 @@ Avril Lavigne - Compilation (2002-2023) [MP3|320 Kbps] <Pop punk, Alternative, P
 magnet:?xt=urn:btih:16901230CDD307645FAB2F7823E0F1AA1A1EA8F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ magnet:?xt=urn:btih:16901230CDD307645FAB2F7823E0F1AA1A1EA8F3
 ```bash
 magnet:?xt=urn:btih:854B99808D33997D9CE90828CFEDD49BF859C4C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -589,6 +633,8 @@ VA - Bach vs Mozart (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:912E62F67D4BA31CC57E19E02BC2A01204EB2646
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +658,8 @@ magnet:?xt=urn:btih:912E62F67D4BA31CC57E19E02BC2A01204EB2646
 ```bash
 magnet:?xt=urn:btih:79F1D34526F69D62B80ED13AB201E5B10AAE464E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -638,6 +686,8 @@ Ocean Match / Рыбки: Три в ряд v2.9.8 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:4EE30DEF2761CDCA0157E26D2C4972D4AA221472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ magnet:?xt=urn:btih:4EE30DEF2761CDCA0157E26D2C4972D4AA221472
 ```bash
 magnet:?xt=urn:btih:3090E95050823CE746D2E1E33EBD08EC272D6C51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

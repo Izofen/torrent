@@ -21,6 +21,8 @@ https://t.me/izofen
 magnet:?xt=urn:btih:DF8DFAD0D4226FB607A4E1D97ECEA3F80285C15B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:DF8DFAD0D4226FB607A4E1D97ECEA3F80285C15B
 ```bash
 magnet:?xt=urn:btih:DAC1FAF73FDB6FE15E710CDBA12A1358F700E61D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:DAC1FAF73FDB6FE15E710CDBA12A1358F700E61D
 magnet:?xt=urn:btih:AF0EDC1EB2F71658FE03C4B2BB72433617083B4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Siege Of Power - метал-группа с участниками из США �
 magnet:?xt=urn:btih:142BFC7C3E74D99E5CE00DC454C30DCB25ABD378
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:142BFC7C3E74D99E5CE00DC454C30DCB25ABD378
 ```bash
 magnet:?xt=urn:btih:56BEF468E109900754770D1B0063E14982E8D08D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:56BEF468E109900754770D1B0063E14982E8D08D
 magnet:?xt=urn:btih:C9C0396D374A637103D34D90758AF4126F59F263
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:C9C0396D374A637103D34D90758AF4126F59F263
 ```bash
 magnet:?xt=urn:btih:D0CCED6E124FAF36D54B4B3483839FEC49546670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ Eric Street Band - Compilation'25 (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:2A608F80CBF77228303A850408FF1716C38DA8E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:2A608F80CBF77228303A850408FF1716C38DA8E3
 ```bash
 magnet:?xt=urn:btih:17BBC6B5EB9AD9DE374ADF0D8776DE1890DBB504
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:17BBC6B5EB9AD9DE374ADF0D8776DE1890DBB504
 magnet:?xt=urn:btih:F618FE9CACB36CAABBCB38480AA2DB9D802D2C67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Teenbird - Beauty of the Wisdom (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:DA77B6F1381371D6ACED4B768C0B3A06530E9A40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ Arabs In Aspic - норвежская группа, играющая прогр�
 magnet:?xt=urn:btih:DBB0F5AC165EDEF8B7EB33C4C4FEFBCE893FF3D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:DBB0F5AC165EDEF8B7EB33C4C4FEFBCE893FF3D3
 ```bash
 magnet:?xt=urn:btih:F81618308B647B74EDF1DDEF7FA01D9BA4BC9FED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +375,8 @@ Seenonim - это шрифт без засечек с обратным конт�
 magnet:?xt=urn:btih:B10DDA5DF474A9293B1ABB2E71A57926CC1B9F46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:B10DDA5DF474A9293B1ABB2E71A57926CC1B9F46
 ```bash
 magnet:?xt=urn:btih:0F4B9802AD0883BC48F7FAAF3DF11FFA63EAE6C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ Crime - Cold Air (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:07709C6FB311B82CAAEB231933AD1F0117C91E4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ VA - Talla 2XLC pres. Trance Forever (2025) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:98DC336E92344124D60DEB702465F8F4826F3521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ Twilight RoadЖанр: Hard Rock, Heavy MetalПродолжительность:
 magnet:?xt=urn:btih:0B054F92E238272EFE6871E59CE5FC71172B1EE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:0B054F92E238272EFE6871E59CE5FC71172B1EE7
 ```bash
 magnet:?xt=urn:btih:40129DE243AE7D795C284E75A504F6622A2F5C87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +547,8 @@ Madra - Sem Parada (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 magnet:?xt=urn:btih:52D0A93265FC496D8A91F1F60813CBD14773FEAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:52D0A93265FC496D8A91F1F60813CBD14773FEAF
 ```bash
 magnet:?xt=urn:btih:7C69884AA58C9943DF2B2F61BF2EA6A32EE7809C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +602,8 @@ Stan Getz & Jimmy Raney - Complete Studio Sessions (1948 - 1953) 2CD, 2003, Defi
 magnet:?xt=urn:btih:90EB3AA2D9DC5CB7ED0E7A5AD5B8C1A0D4CCC777
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +631,8 @@ magnet:?xt=urn:btih:90EB3AA2D9DC5CB7ED0E7A5AD5B8C1A0D4CCC777
 magnet:?xt=urn:btih:72DFCD2CCC3CB941C94CE3E17368F69B6EAD59BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:72DFCD2CCC3CB941C94CE3E17368F69B6EAD59BE
 ```bash
 magnet:?xt=urn:btih:912DEAEB9D21BA898C8B82A035A48B677A2CF053
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +684,8 @@ magnet:?xt=urn:btih:912DEAEB9D21BA898C8B82A035A48B677A2CF053
 magnet:?xt=urn:btih:E13C26527CBBD07E046893FEC80CB32D366CC8F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -660,6 +710,8 @@ Normatica - это нейтральный шрифт, вдохновленный
 ```bash
 magnet:?xt=urn:btih:9C20DE113C591F59DE50F8E3CE81AF761D9A5A21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

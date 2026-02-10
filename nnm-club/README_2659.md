@@ -22,6 +22,8 @@ VA - Magical Mind (2025) [MP3|320 Kbps] <Psy, Goa, Trance>
 magnet:?xt=urn:btih:A7F344FD4DFE55BEA67A279D18BB7E254D1C258B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:A7F344FD4DFE55BEA67A279D18BB7E254D1C258B
 ```bash
 magnet:?xt=urn:btih:3B867AB919BAB0B4085463FA531F7189E3352E36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ VA - Compilation part 145 Electronic (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:90775C1379BACA229B15FCAD33AFEA175B090490
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ Linkin Park - From Zero: A Cappellas + Instrumentals (2025) [FLAC 24/48|Lossless
 magnet:?xt=urn:btih:3C77E98007BAD0E4195343E0C765CE2B3AE13628
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:7BB39613E932BB080E7D1B2CA27DDA58F7131291
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ Royale Couture — это незаменимая коллекция шрифто
 magnet:?xt=urn:btih:328A3ED83BA56960EC9C626BBB93643AAAB4849E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:F6694449B7F7D6D97A3A2CB2FA83EC78F49781E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ The Limited Edition 5-CD Box Set! THE WARNER RECORDINGS 1985-1994 годов, в
 magnet:?xt=urn:btih:6C964F996B3CA7AB5C870888684B13EFC3051896
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ Bon Jovi - Slippery When Wet (1986) Deluxe Edition, 2025, Bon Jovi Profit Split 
 magnet:?xt=urn:btih:D742DAB4A241F2721A16D86444386DB693960E25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Garmin: City Navigator Thailand NT 2024.40 Globetech (Dual) [En/Th]
 ```bash
 magnet:?xt=urn:btih:5E4480A4CF56B755BF2F716ED7B542DEBBA32306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ VA - One Shot '80 Volume 4 (1999) [OGG Vorbis|480 Kbps] <Pop, Dance-pop, Euro-Di
 magnet:?xt=urn:btih:60BB5E0BD52926E99C0CC25C710B12A44B421DF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:60BB5E0BD52926E99C0CC25C710B12A44B421DF0
 ```bash
 magnet:?xt=urn:btih:A9884A62EB72258788A588246774E25B426B4B03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ VA - Trance Top 100, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:7AFBF255B138CAB04525451A061078F4C227FEE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ magnet:?xt=urn:btih:7AFBF255B138CAB04525451A061078F4C227FEE8
 magnet:?xt=urn:btih:71DC41E29C7D072B6B3D8B197D3F1E45C818CAA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:71DC41E29C7D072B6B3D8B197D3F1E45C818CAA5
 ```bash
 magnet:?xt=urn:btih:95764BEC54C997204FC3F59B35EFFC65A5D13EB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ Max Cooper - On Being (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Tec
 magnet:?xt=urn:btih:B779F28C77B86E8FA4C4F61A4EF41620DBC79E4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +466,8 @@ Rick Springfield - Big Hits: Rick Springfield's Greatest Hits, Vol. 2 (2025) [FL
 magnet:?xt=urn:btih:CFC9E8B3260D03127C4C56DA1A51916108980D03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +492,8 @@ magnet:?xt=urn:btih:CFC9E8B3260D03127C4C56DA1A51916108980D03
 magnet:?xt=urn:btih:4917A6E640C4EF4E3AEED2066FC6489DBD2F0C9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +517,8 @@ magnet:?xt=urn:btih:4917A6E640C4EF4E3AEED2066FC6489DBD2F0C9B
 ```bash
 magnet:?xt=urn:btih:6B4410A70A3FCB2B36913B701345F38754946420
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +547,8 @@ Elderbrook - Another Touch (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deep Ho
 magnet:?xt=urn:btih:0E2255D5DB8066F9CAED9D53978DD4E10B53374A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +575,8 @@ magnet:?xt=urn:btih:0E2255D5DB8066F9CAED9D53978DD4E10B53374A
 ```bash
 magnet:?xt=urn:btih:A6931A0EAF8C47D648F50E68F349C36E92F23654
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +605,8 @@ Addicted CH - Time Is Endless (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy 
 magnet:?xt=urn:btih:7B670CBF85E18032C45B5C54F1308ECF04061114
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +633,8 @@ George Cables - I Hear Echoes (2024) HighNote Records [FLAC|Lossless|tracks + .c
 ```bash
 magnet:?xt=urn:btih:7445DA4CA7022FA46E6CFD963538C92B2B619AB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -617,6 +663,8 @@ Untimely Demise - канадская метал-группа из Саскату
 magnet:?xt=urn:btih:2CEF3EEEC755143695A0687DFE87B2F8B96A4D24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -644,6 +692,8 @@ magnet:?xt=urn:btih:2CEF3EEEC755143695A0687DFE87B2F8B96A4D24
 magnet:?xt=urn:btih:E299ED8E983FE0A16EEF7D9E69700673F60239E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -670,6 +720,8 @@ Bud Powell - Strictly Confidential (1964) 1994, Black Lion [FLAC|Lossless|tracks
 ```bash
 magnet:?xt=urn:btih:0BE579C74FA904A4E34FC8CFC94C19BFAA04C9A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

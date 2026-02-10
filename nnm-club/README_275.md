@@ -22,6 +22,8 @@ VA - Summer Collection, Vol. 2 (2025) [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:2A8BD076A19B3C032C36645C4936A4A4FCDFDD4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -49,6 +51,8 @@ magnet:?xt=urn:btih:2A8BD076A19B3C032C36645C4936A4A4FCDFDD4D
 magnet:?xt=urn:btih:1C1A2694DA1C716D7C7866A4F5FC6690F0242474
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +76,8 @@ magnet:?xt=urn:btih:1C1A2694DA1C716D7C7866A4F5FC6690F0242474
 ```bash
 magnet:?xt=urn:btih:6B3C730C4C56912D17260FC4F894B6400CC714CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:6B3C730C4C56912D17260FC4F894B6400CC714CF
 ```bash
 magnet:?xt=urn:btih:10114758FD02B384EA6AD94AD1E540A9EC6A6964
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -125,6 +133,8 @@ magnet:?xt=urn:btih:10114758FD02B384EA6AD94AD1E540A9EC6A6964
 magnet:?xt=urn:btih:17717C530445BEFCB744A20ED6AA452FF33E4B14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:17717C530445BEFCB744A20ED6AA452FF33E4B14
 magnet:?xt=urn:btih:DA6516A836632A8D8C1B77D1A28785F51863BD08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:DA6516A836632A8D8C1B77D1A28785F51863BD08
 ```bash
 magnet:?xt=urn:btih:B8F8469D0F73A68FAD71028DA52B9AD85A0153EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:B8F8469D0F73A68FAD71028DA52B9AD85A0153EF
 magnet:?xt=urn:btih:A167BB5E6209B768D586C2581D2B6D9411D91BEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ magnet:?xt=urn:btih:A167BB5E6209B768D586C2581D2B6D9411D91BEF
 ```bash
 magnet:?xt=urn:btih:F5614659B9366CC6AC3E2CC7AA60011274952060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +269,8 @@ VA - Summer Collection, Vol. 1 (2025) [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:6693B71C92A81C4D251AA958B4CDFC577F9980B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:6693B71C92A81C4D251AA958B4CDFC577F9980B3
 ```bash
 magnet:?xt=urn:btih:B3FD7070D4D8E9CCCF301F536E46BE80B433BE5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ VA - Compilation Part 184 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, V
 magnet:?xt=urn:btih:80A0FD1BAB1A90BE7BA4DCE6ACEC56217EFF60B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:80A0FD1BAB1A90BE7BA4DCE6ACEC56217EFF60B3
 ```bash
 magnet:?xt=urn:btih:6E505764FCD444988FC62276A0196CDFF4C4DB5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +382,8 @@ VA - National Pop Dance Music Vol.117 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
 magnet:?xt=urn:btih:321D1BCABFFB8061E73D55E7AF08CF409471CAF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ Strava: бег, велоезда, хайкинг v424.13 Mod by PieMods [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:23EB0F0A0C77C7A6F76920CBD2D08CEE670A095C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:23EB0F0A0C77C7A6F76920CBD2D08CEE670A095C
 magnet:?xt=urn:btih:5BE6B72326B30842D9429AADBE56A659BE354DA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +460,8 @@ magnet:?xt=urn:btih:5BE6B72326B30842D9429AADBE56A659BE354DA0
 ```bash
 magnet:?xt=urn:btih:A3FFCE4CF0838BDCFB981C743275FEEBB76257F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:A3FFCE4CF0838BDCFB981C743275FEEBB76257F6
 magnet:?xt=urn:btih:BD3C77CB5E5055A9BAF855B1FFE8FD24CD361B52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +512,8 @@ magnet:?xt=urn:btih:BD3C77CB5E5055A9BAF855B1FFE8FD24CD361B52
 ```bash
 magnet:?xt=urn:btih:E93E73E58BD5E1388BD5D12C8F740016EE066E50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:E93E73E58BD5E1388BD5D12C8F740016EE066E50
 magnet:?xt=urn:btih:2EBA2217A5231E66D9A4F0717EB81DB55C7B73A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:2EBA2217A5231E66D9A4F0717EB81DB55C7B73A8
 ```bash
 magnet:?xt=urn:btih:7C0385057B08C801C562E466D2C95D8C9CE9038F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ XYplorer – удобный многовкладочный файловый ме
 magnet:?xt=urn:btih:B5A786D4E3B8F0802816CF0DBFB3BEA8FA24D739
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ magnet:?xt=urn:btih:B5A786D4E3B8F0802816CF0DBFB3BEA8FA24D739
 ```bash
 magnet:?xt=urn:btih:403087B5111AF75D6B65BA01E8F658C8157AF2D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ magnet:?xt=urn:btih:403087B5111AF75D6B65BA01E8F658C8157AF2D1
 ```bash
 magnet:?xt=urn:btih:B338F711AC5EFE36A31AF1F6499C364B29155D15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ Lindsey Stirling - Duality (2025) Deluxe [FLAC 24/96|Lossless|WEB-DL|tracks] <Cl
 magnet:?xt=urn:btih:536D90C69CF16172F580DBDAB3299FE2368A6037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:536D90C69CF16172F580DBDAB3299FE2368A6037
 ```bash
 magnet:?xt=urn:btih:97AAEF77394FA9B4CD9B7A1D91FE3758B09F5AAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

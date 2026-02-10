@@ -1,3 +1,29 @@
+###  Публикация: 1234833   (567741) от 07.07.2018
+
+Всемирное природное наследие. Люблин, Польша - Города мира / Lublin, Poland - Cities of the world (2016-2018) WEBRip [VP9/2160p-LQ] (2 фильма)
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_567741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Люблин — старинный город в Польше, расположен на перекрестке торгово-экономических путей из Восточной Европы в Западную. Люблин всегда был самым большим городом в Восточной Польше, он уникален слиянием польской, еврейской, литовской и белорусской культур, дополняющих друг друга. С XIII в. город ведет успешную законотворческую и образовательную деятельность, здесь (   Читать дальше...   )Производство: США, Doclights, NDR NaturFilm, Nature Relaxation FilmsЖанр: Видовой, путешествие, природа, флора, фаунаПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:47:47+00:20:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41AB0DEBC5A8BF2665996D8B9CD39E2D6EE0856F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234804   (567836) от 07.07.2018
 
 Главная дорога. Дайджест (07.07.2018) WEB-DLRip [H.264]
@@ -21,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:EB17DABCCBB7F9F81781982305DFEF7F6659BC46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -48,6 +76,8 @@ magnet:?xt=urn:btih:EB17DABCCBB7F9F81781982305DFEF7F6659BC46
 magnet:?xt=urn:btih:8CBCBFFEE03671F86788FD98702E3847290EC35A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:8CBCBFFEE03671F86788FD98702E3847290EC35A
 ```bash
 magnet:?xt=urn:btih:AD27432A4979EAC642BCE454E341750AB9DEFD74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +128,8 @@ magnet:?xt=urn:btih:AD27432A4979EAC642BCE454E341750AB9DEFD74
 magnet:?xt=urn:btih:C698ECED680F586170E11A2C598C07DCCBCF7B80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:C698ECED680F586170E11A2C598C07DCCBCF7B80
 ```bash
 magnet:?xt=urn:btih:D9339344BF47DB99A03D2CF5FCB33310CB4EDA9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:D9339344BF47DB99A03D2CF5FCB33310CB4EDA9B
 magnet:?xt=urn:btih:EE1A22B8F717C4DA452DD3663DD4C78A0BD6004B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:EE1A22B8F717C4DA452DD3663DD4C78A0BD6004B
 ```bash
 magnet:?xt=urn:btih:406A2DCE0D8F9E9482B5471547191D1F986B3379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:406A2DCE0D8F9E9482B5471547191D1F986B3379
 magnet:?xt=urn:btih:3B150D90B454C5D5AB2B558FB93431C49A644C5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:3B150D90B454C5D5AB2B558FB93431C49A644C5A
 ```bash
 magnet:?xt=urn:btih:AD8CFA7883503D20806F190F8FDE39013EA0293F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:AD8CFA7883503D20806F190F8FDE39013EA0293F
 magnet:?xt=urn:btih:E7DA106838317DCA3992F4A73C7F2D86AAFFF289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:E7DA106838317DCA3992F4A73C7F2D86AAFFF289
 ```bash
 magnet:?xt=urn:btih:2236D7BC36DB8E98CCA371E7D991D61E3EF1A548
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:2236D7BC36DB8E98CCA371E7D991D61E3EF1A548
 magnet:?xt=urn:btih:311B00905D649EF712C5114AABB929AF62A130A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:311B00905D649EF712C5114AABB929AF62A130A6
 ```bash
 magnet:?xt=urn:btih:D890B9514761FA3B9E606ABDADA7666F7A177220
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:D890B9514761FA3B9E606ABDADA7666F7A177220
 magnet:?xt=urn:btih:0133BAAAAE8C8C0B928BE955B91F40A8741D7658
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:0133BAAAAE8C8C0B928BE955B91F40A8741D7658
 ```bash
 magnet:?xt=urn:btih:CC54D6ACC623D6E28CAE8C8554D03E050A363917
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:CC54D6ACC623D6E28CAE8C8554D03E050A363917
 magnet:?xt=urn:btih:E4F47BFE9C807DD56F4ECCFA80C22DC16A1568D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +466,8 @@ Viasat History: Расцвет и упадок Версаля / Rise and Fall of
 magnet:?xt=urn:btih:A82029B880DD19E0BE94E3E2DE8351D629E06F2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +491,8 @@ magnet:?xt=urn:btih:A82029B880DD19E0BE94E3E2DE8351D629E06F2D
 ```bash
 magnet:?xt=urn:btih:A9A25EB41A31255EE2D59A1E205E5CC930430E8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +519,8 @@ magnet:?xt=urn:btih:A9A25EB41A31255EE2D59A1E205E5CC930430E8F
 magnet:?xt=urn:btih:A58BE16A53082E627595EF749FD8C41089C28F33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:A58BE16A53082E627595EF749FD8C41089C28F33
 ```bash
 magnet:?xt=urn:btih:41C1199247D150BDF4215290F6EE3F68421CE6EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:41C1199247D150BDF4215290F6EE3F68421CE6EE
 magnet:?xt=urn:btih:FDFF7E9ED95292E708584538ED60268552EBD8A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:FDFF7E9ED95292E708584538ED60268552EBD8A0
 ```bash
 magnet:?xt=urn:btih:56EE8EB451A5BF6C0992035351AC0133BB7DC54B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:56EE8EB451A5BF6C0992035351AC0133BB7DC54B
 magnet:?xt=urn:btih:D17C1D1655007828A7DAAA403BBB0BE4AFCFD25E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:D17C1D1655007828A7DAAA403BBB0BE4AFCFD25E
 ```bash
 magnet:?xt=urn:btih:3C7D0515A118E1672BC6C64A8ACC2D245E2B403B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:3C7D0515A118E1672BC6C64A8ACC2D245E2B403B
 magnet:?xt=urn:btih:D84C68ABCEE9AE0EB4DB73E7A3A782A8EAEEC972
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151709   (570355) от 20.07.2017
-
-Казни египетские / The Biblical Plagues (2009) HDTVRip [H.264/720p-LQ] (Серии 1-3 из 3)
-
->>Документалистика и Телепередачи
->>История
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_570355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Египет. Богатая, могучая империя эпохи фараонов. А народ Израиля - в рабстве, под игом фараона. Чтобы отвоевать свободу, Моисей насылает на Египет десять казней. На Египет обрушивается гнев Божий. С казнями приходят несчастья, болезни, смерть - так написано в Библии. Что это? Просто легенды или так оно и было?Производство: Германия, Taglicht Media Production for ZDFЖанр: Документальный, история, исследованияРежиссер: Габриэль ВенглерПеревод: Многоголосый закадровый, профессиональный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 00:49:48+00:48:26+00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B73E8E5257B36ADBCD6BAE6DCBA2DF939C186DC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

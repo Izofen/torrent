@@ -22,6 +22,8 @@ Audiomachine - Decimus (2015) [MP3|320 кб/с] <Classical Crossover, Soundtrack
 magnet:?xt=urn:btih:0F9310EB2524144C2CBE0C234987321628C8EF17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Mito Chamber Orchestra, Seiji Ozawa - Mozart, Strauss - Woodwind Concertos (2002
 ```bash
 magnet:?xt=urn:btih:92BB29F3FF0330578EB35414DA760FC9B79F5EAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:92BB29F3FF0330578EB35414DA760FC9B79F5EAA
 magnet:?xt=urn:btih:3FED2710CB9FBDBC6A627774D99370139615538A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Chad Lawson - Home Sweet Home: The 2018 Lore Variations (2018) [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:D28BEBD75AE7F4CBD00C232DB0257D9AC3907724
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Luciano Pavarotti - Los Mayores Tenor Vivo en el Escenario (Live) (2017) [FLAC|L
 magnet:?xt=urn:btih:40D282533420B34312269191C6461729BBFDEDAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Beautiful Piano (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ```bash
 magnet:?xt=urn:btih:70CF81984E73841686D6C935483FE86926F58640
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Quintet No.4 for Guitar and Strings in D G.448 - "Fandango"
 magnet:?xt=urn:btih:86F1D587A2B1A00CCFD300BEDAA300302A6079D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Bruce Brubaker - Glass Piano (2016) Extended Version [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:726DA86CE3A9FDFAF95854BEE115F31BA5C80DCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Symphony no. 8 in G major, op. 88
 magnet:?xt=urn:btih:4DCCDD97291008A8DCC3D758A0151961817954D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Violin Concerto in A minor, op. 53
 ```bash
 magnet:?xt=urn:btih:8F0B92B02B4628614A278816D18C75FC68581C5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Violin Concerto in A minor, op. 53
 magnet:?xt=urn:btih:23CEA3CD51CC2ADF607F7C49599C35D92DDEAD4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ Harriet Krijgh - Elegy (2015) [FLAC|Lossless|tracks] <Classical>
 ```bash
 magnet:?xt=urn:btih:6AE36F885DFF6164131085627C77D92091F536F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ Symphony no. 8 in G major, op. 88
 magnet:?xt=urn:btih:E3F7103D323DA04A51C4B898BEF9EEE83AB7ECFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Motet a Grand Choeur
 ```bash
 magnet:?xt=urn:btih:01616280CC5248967712BAB954494FBC1B1536AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Rainy Autumn Classical (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 magnet:?xt=urn:btih:D5DCF0D1EFAECA270959C7A35600E289BDFADE5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Simone Kermes - Love (2016) [FLAC|Lossless|tracks] <Classical>
 ```bash
 magnet:?xt=urn:btih:6BB0B88248F2B7784F887B9BED780B70FC3598F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ cello & double bass in D major, Op 88
 magnet:?xt=urn:btih:BC355479A7C94D121AA8090174BFD254D039EA66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ Musica Per Liuto Italiana - Italian lute Music - Italienische Lautenmusik (1999)
 ```bash
 magnet:?xt=urn:btih:F2900FCFD4F9F4DA0B9D1D8C2399809835C7462F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:F2900FCFD4F9F4DA0B9D1D8C2399809835C7462F
 magnet:?xt=urn:btih:ACA0A45816C5143C333594118A692955DE61A5E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ Franz Schubert (Recorded 1960)
 ```bash
 magnet:?xt=urn:btih:CBAB5FB00F01718ABD2C939CD9FF61138343F826
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Contrasts for violin, clarinet and piano, Sz. 111
 magnet:?xt=urn:btih:27C39644F68533DAEF2FD8D5967F158B8C61A2C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ Choeur des Moines de l’Abbaye bénédictine de Saint-Benoît-du-Lac, Le - Medi
 ```bash
 magnet:?xt=urn:btih:931A2D5F53DBB62BEAA862F6DC432634EA1DCDCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ CD1
 magnet:?xt=urn:btih:5E8B36C7367055BC41315D31E7B9D7BCB9747E0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Luciano Sgrizzi, Pietro Domenico Paradisi - Huit Sonates pour clavecin (1997) [F
 ```bash
 magnet:?xt=urn:btih:00472A7AE938D4D8F88A32D98DE6CFD0B38D56FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Antonio Vivaldi - 4 Seasons of Love (Il Tempio Armonico) (2010) [FLAC 2.0|96/24|
 magnet:?xt=urn:btih:C16587DA15C22C5A6C6F342567F7DD26C7149F28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ Symphonie No. 3 in D major, D 200
 ```bash
 magnet:?xt=urn:btih:111F1829F0CE4C3DDE9DF05126F47B23455DD764
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

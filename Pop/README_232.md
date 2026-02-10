@@ -1,3 +1,154 @@
+###  Публикация: 518656   (641144) от 04.07.2012
+
+Весёлые Ребята - Песни Вячеслава Добрынина (1996) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 На земле живёт любовь
+02 Ни минуты покоя
+03 Мелочи жизни
+04 Напиши мне письмо
+05 Золотой ключик
+06 Розита
+07 Чашка чая
+08 Люби меня, как я тебя
+09 Хочу всё знать
+10 Бологое(   Читать дальше...   )Жанр: PopПродолжительность: 00:52:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2811725E86C64BC67FA77498A98A8FD40395D937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293052   (641175) от 01.04.2019
+
+Балаган Лимитед - Дуэты (2019) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ветер, унеси (feat. Алиса Манахова)
+02. Яблонька (feat. DJ NeoMaster)
+03. Мама Чоли (feat. Пари)
+04. Пусть говорят (feat. Белла Огурцова)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AEE24F61FED5E5B5306CC26BF06022750A6D738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292932   (641284) от 01.04.2019
+
+David Lyme - The 12'' Collection (2019) Limited Edition, Remastered [MP3|320 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bye Bye Mi Amor (12'' Version) (6:17)
+02. Playboy (12'' Version) (7:08)
+03. I Show You What's Love (Single Version) (4:34)
+04. Bambina (12'' Version) (5:31)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:719A8590726607ED15477684489E9F96352782CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905048   (641466) от 10.06.2015
+
+VA - Best Of The Best (1995) 2CD[FLAC|image +.cue]<Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr.Zivago - Tell By Your Eyes (6:24)
+02. Lucia - Marinero (remix) (7:10)
+03. Ricchi E Poveri - Acapulco (3:44)
+04. Aventura - Di Mi Quando (4:55)(   Читать дальше...   )Жанр: DiscoПродолжительность: 02:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9454BD99C95A6F2EA7C3C3FD64B5BC2DFB32CC0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906976   (641476) от 10.06.2015
+
+Rick Astley - The Best Of (2014) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_641476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Gonna Give You Up
+02. Whenever You Need Somebody (Radio Edit)
+03. When I Fall In Love
+04. My Arms Keep Missing You(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F17E5BFE9E8F2A58FB70424974BB96AB8956A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905846   (641520) от 10.06.2015
 
 Tom Jones - Delilah (2015) [FLAC|tracks+.cue]<Pop>
@@ -21,6 +172,8 @@ Tom Jones - Delilah (2015) [FLAC|tracks+.cue]<Pop>
 ```bash
 magnet:?xt=urn:btih:29F6BAAF62C249BD93E450365DE54E004D516E44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +202,8 @@ magnet:?xt=urn:btih:29F6BAAF62C249BD93E450365DE54E004D516E44
 magnet:?xt=urn:btih:75F2FB87FE8B018F19F4A4300CA3706A2D3D13BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +230,8 @@ ORIGINAL STEREO LP (1965)
 ```bash
 magnet:?xt=urn:btih:C56DFA77C95BBBED1FCAC309C38D00816C5E7CCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +260,8 @@ magnet:?xt=urn:btih:C56DFA77C95BBBED1FCAC309C38D00816C5E7CCF
 magnet:?xt=urn:btih:94B7196C858F2246EE305EA03CA6A3381677887B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +288,8 @@ QED - Animal Magic (1984) [OGG|475-526 кб/с]<Electronic, Synthpop>
 ```bash
 magnet:?xt=urn:btih:2C3EE94D1B5FC4FE0CF74BEC79E8DA64DC534D8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +318,8 @@ Shura - Nothing's Real (2016) [FLAC|Lossless|WEB-DL|tracks] <80's Synthpop, Indi
 magnet:?xt=urn:btih:2E1AC73824F65761388CF6A79EBA771DF78AFA2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +346,8 @@ magnet:?xt=urn:btih:2E1AC73824F65761388CF6A79EBA771DF78AFA2C
 ```bash
 magnet:?xt=urn:btih:7B0D240ED1CF4B84475948A955795A82BCC4F00A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +376,8 @@ Shura - Nothing's Real (2016) [MP3|320 Kbps] <80's Synthpop, Indietronica, Femal
 magnet:?xt=urn:btih:953E409F6C8E32B9D47F37D390ECC68A55ABE5B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +404,8 @@ Cristina - Contremano (1982) [MP3|320 Kbps] <Electronic, Pop, Italo-pop>
 ```bash
 magnet:?xt=urn:btih:88E6C4139C56D9E8BFBA4AB055823C2E05B32490
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +434,8 @@ D. White - One Wish (2017) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
 magnet:?xt=urn:btih:6453E8212A0CD77172D63DB204400D838DC011F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +462,8 @@ magnet:?xt=urn:btih:6453E8212A0CD77172D63DB204400D838DC011F9
 ```bash
 magnet:?xt=urn:btih:B2BEA27F3965781A1C5044C2B6EC931D4F06BF5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +492,8 @@ magnet:?xt=urn:btih:B2BEA27F3965781A1C5044C2B6EC931D4F06BF5D
 magnet:?xt=urn:btih:5CB995B3A3174AE2BCC69A3CF3623FD46977A8C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +520,8 @@ magnet:?xt=urn:btih:5CB995B3A3174AE2BCC69A3CF3623FD46977A8C5
 ```bash
 magnet:?xt=urn:btih:7F07BD252D1975B9ACC38363F3B5120F1BB3499C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +556,8 @@ magnet:?xt=urn:btih:7F07BD252D1975B9ACC38363F3B5120F1BB3499C
 magnet:?xt=urn:btih:B957DE4FDA3DA12D031B676DC558ACA90EA5CAFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +584,8 @@ Supermax - Spirits Of Love (1996) [APE|Lossless|image + .cue] <Disco, Reggae>
 ```bash
 magnet:?xt=urn:btih:1B27DA998D3C7BBF8E8095E01D9D21EA75248306
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +614,8 @@ VA - Заяц Рор Шоу-2 (1996) [FLAC|Lossless|image + .cue]<Pop, Dance>
 magnet:?xt=urn:btih:81A770757F48F37B822DD8CB81CA94301EB7F865
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +642,8 @@ Martin Circus - Martin "Disco" Circus (1978) LP [MP3|320 Kbps] <Electronic, Disc
 ```bash
 magnet:?xt=urn:btih:40A4DFB07D0D159A58022B32335FBD73BE773164
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +672,8 @@ Billy Ocean - Suddenly (Japanese Pressing) (1984) 1989,  JRCD 8213 [APE|Lossless
 magnet:?xt=urn:btih:D45CDA6CE5B4C3FC395C0D9996A60F4BCDDBA056
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +700,8 @@ VA - 538 Hitzone 88 (2019) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Folk, World
 ```bash
 magnet:?xt=urn:btih:389FC4854CB0969A789B24324A88F820FAEA05B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -541,6 +730,8 @@ Toxic Friends - Cleaning up the Mess (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, 
 magnet:?xt=urn:btih:567F88AF5EDA9B5814E55E7EEBAFD0BFF79C8413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,140 +759,7 @@ VA - Eurodance Evolution 2019.01 (2019) [FLAC|Lossless|WEB-DL|tracks] <Euro-Danc
 magnet:?xt=urn:btih:2629864888F45F9F586679CE8293B69D56A83AF6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292739   (643290) от 31.03.2019
-
-VA - Eurodance Evolution 2019.02 (2019) [MP3|320 Kbps] <Euro-dance, pop-dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  J.O.Y.C.E. - Let The Rhythm Take Control (feat A.K.-S.W.I.F.T. - radio mix)
-02.  Free 2 Night - Phantom Of Love (feat Timi Kullai - remastered radio mix)
-03.  B.G. The Prince Of Rap & Chrizz Morisson - So Special (feat Timi Kullai & Pamela O'Neal - Dolls Euro remix)
-04.  Shilton - Flame (Eurodance radio mix)(   Читать дальше...   )Жанр: Euro-dance, pop-danceПродолжительность: 01:16:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D57A8B23EB6D1ABBCAD29FC0F46707C7D900BE7
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292888   (643372) от 31.03.2019
-
-VA - VA - Girls Club, Vol.1 (2018) Explicit [MP3|320 Kbps] <Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terri B! - I'm Coming Back (Sidelmann Radio Edit)
-02. Crew 7 - No Diggity (Farec Remix)
-03. Alex Guesta - Caliente (Stream Edit)
-04. Moreno Chembele - Se orita (Radio Mix) (feat. X.Orbit)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079B51F1B94D8E9928008FE5AC029D60FF17802B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292787   (643375) от 31.03.2019
-
-VA - Girls Club, Vol.2 (Explicit) (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danzel - Stronger (Radio Edit)
-02. TyDi - Tear Me Up (Radio Edit) (feat. Nash Overstreet)
-03. TobY - The Darkest Night (Radio Edit)
-04. Brothers - Forever Young (Radio Edit) (feat. Ranieri)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3D9E94D4BF0305499FF1A757447B7469EAC5E49
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292778   (643384) от 31.03.2019
-
-Loretta - The Stars My Destination (2019) [MP3|320 Kbps] <Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Imagined Life Differently
-02. The Barefoot Contessa
-03. Thank You Friend
-04. Is Your Bigmouth Girlfriend Really so Charming?(   Читать дальше...   )Жанр: PopПродолжительность: 01:15:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC6C4C71C745376F77C28428A193FD1C5DAB3A32
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032415   (643557) от 08.07.2016
-
-Люди встречаются - Люди встречаются (2016) [MP3|320 Kbps] <Pop, Retro>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лето (04:23)
-02. Белка в колесе (03:37)
-03. Чернобровая дивчина (04:12)
-04. Лагуна (04:09)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 01:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:782C1FB3CF55ADA4AABD688159DC7F76E66BA56D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

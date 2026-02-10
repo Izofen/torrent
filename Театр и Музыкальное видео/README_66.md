@@ -22,6 +22,8 @@ V Фестиваль Ленинградского рок-клуба. Ленин�
 magnet:?xt=urn:btih:387258F4FCDAE1F93EB351B96874EDCE0E152EEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ magnet:?xt=urn:btih:387258F4FCDAE1F93EB351B96874EDCE0E152EEF
 magnet:?xt=urn:btih:D036DA8714045C8F86EAEE45121324161AA15F61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -78,6 +82,8 @@ U.D.O. – Steelhammer: Live from Moscow (2014) Blu-ray [H.264/1080i]
 magnet:?xt=urn:btih:D3AE0D7D2001FA39E8AABDD61E9DD0BA39FF37C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ magnet:?xt=urn:btih:D3AE0D7D2001FA39E8AABDD61E9DD0BA39FF37C7
 magnet:?xt=urn:btih:A5EE500DC57CBB1974E78528C535E1DF5A0C5606
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:A5EE500DC57CBB1974E78528C535E1DF5A0C5606
 ```bash
 magnet:?xt=urn:btih:DDEDA129D673BF47ACC1C8E5C6F4E04614C2E025
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ magnet:?xt=urn:btih:DDEDA129D673BF47ACC1C8E5C6F4E04614C2E025
 magnet:?xt=urn:btih:1C6E26F3CBCE31D6DE21C08A6F50584E604ECFCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ magnet:?xt=urn:btih:1C6E26F3CBCE31D6DE21C08A6F50584E604ECFCB
 ```bash
 magnet:?xt=urn:btih:7C126FB5EDC6C51499ACABA09EA62EF9C6B7EFED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:7C126FB5EDC6C51499ACABA09EA62EF9C6B7EFED
 magnet:?xt=urn:btih:991ED0A54F5957C9AF9109C81F56BC27FEC572B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:991ED0A54F5957C9AF9109C81F56BC27FEC572B9
 ```bash
 magnet:?xt=urn:btih:FE95BCCEBB4577689F5FEEF5E98AE9155960AE8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -253,6 +271,8 @@ VA - Осенний марафон № 208: Хиты с доставкой на 
 magnet:?xt=urn:btih:F586ED41D78789D10ED9FBB23D8242B0C62E480E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ Queen – A Night At The Odeon (2015) (Recorded Live At The Hammersmith 1975) DV
 ```bash
 magnet:?xt=urn:btih:1858716BC59623B488AB7F2F1B29BBA5072BCBF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +329,8 @@ magnet:?xt=urn:btih:1858716BC59623B488AB7F2F1B29BBA5072BCBF9
 magnet:?xt=urn:btih:92773ACC07EFCC820621396A310CDCA802B8206D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +357,8 @@ Tribute To Pink Floyd в исполнении Echoes, совершенно но�
 ```bash
 magnet:?xt=urn:btih:4AE0A6585AFC5D2099B1FD6048672A0DC5215EF3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +387,8 @@ Slipknot - Day Of The Gusano (2017) BDRip [H.264/1080p]
 magnet:?xt=urn:btih:2DFF05ECD0BDF5F164508A4BD2E3A369EE225CE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +416,8 @@ Queen - Live At The Rainbow '74 (2014) BDRip [H.264/720p-LQ]
 magnet:?xt=urn:btih:F572D8E555AC98A4D6B14AD3D25AB1668F6C1AD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +444,8 @@ Rainbow - Memories In Rock (Live In Germany) (2016) DVD9
 ```bash
 magnet:?xt=urn:btih:BE3AE731457A9E88ED299CAB2FC433B39E4E657D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +475,8 @@ DVD2: Редкие и ранее не опубликованные съёмки.
 magnet:?xt=urn:btih:04C77EBF0A19EA969F743901AAE6661DBB1C12AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +504,8 @@ Dio - Evil Or Divine (Live in New York City) (2003) DVD9
 magnet:?xt=urn:btih:E3BA54F00B3178D99CAD3FB939FBAA77AFA5E4DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +529,8 @@ Death Angel - Sonic German Beatdown (Live In Germany) (2009) DVD9
 ```bash
 magnet:?xt=urn:btih:4FD1ECC41A3740A3C945E652B451C2B0750B18F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +560,8 @@ magnet:?xt=urn:btih:4FD1ECC41A3740A3C945E652B451C2B0750B18F1
 magnet:?xt=urn:btih:5C5ACD0939238ECE85BB607310CDEAB2219B9682
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +590,8 @@ magnet:?xt=urn:btih:5C5ACD0939238ECE85BB607310CDEAB2219B9682
 magnet:?xt=urn:btih:02479264A3C37C64F3235233D3801C04E74806EB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +618,8 @@ The Classic Rock Quartet представляет композиции Led Zeppe
 ```bash
 magnet:?xt=urn:btih:9584438C90D7B2FF9C6C63A1BE91B10FBFE30917
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +648,8 @@ Orchestra of the Royal Opera House(   Читать дальше...   )Произ
 magnet:?xt=urn:btih:968220E73E5D2488689DB3DF763304B258177448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +673,8 @@ Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016)  BDRi
 ```bash
 magnet:?xt=urn:btih:342A984C2061BC82B4097B5D41442ABC753C62A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -655,6 +703,8 @@ The Rolling Stones: Havana Moon (2016) Blu-ray [H.264/1080i]
 magnet:?xt=urn:btih:BFD9844E8AA4695A815803048B93D6A6B9A24562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +728,8 @@ Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016)  BDRi
 ```bash
 magnet:?xt=urn:btih:B8E5E0FDF772D65D9BF64586D03A5F721383B5D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

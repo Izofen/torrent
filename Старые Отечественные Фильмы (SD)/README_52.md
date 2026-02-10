@@ -1,3 +1,31 @@
+###  Публикация: 526511   (595644) от 25.07.2012
+
+Валера (1964) TVRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_595644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двенадцатилетний Валера живет с родителями в небольшом поселке. В семье мальчика все подчинено одному — накоплению богатства. Этим же заполнена и жизнь Валеры. Он не играет, не бегает, как все дети, а целые дни работает. Даже рыбной ловлей мальчик занимается не ради удовольствия, а для того, чтобы побольше заработать.
+
+Но однажды на рыбалке Валера встретил незнакомца, который попросил подыскать ему временное жилище. Валера привел Аркадия Сергеевича к себе — и с этих пор у него появился настоящий друг и защитник. И под влиянием этого человека Валера понял, что нельзя жить так, как живет его семья.Жанр: ДрамаРежиссер: Борис РыцаревАктеры: Володя Зеленин, Любовь Соколова, Алексей Миронов, Николай Лебедев, Иван Кузнецов, Петр Любешкин, Лена ГуринаПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546752   (596047) от 04.05.2022
 
 Ты и я (1971) WEBRp
@@ -18,6 +46,8 @@
 ```bash
 magnet:?xt=urn:btih:E4ED29C4DEB8C698AD6B2DFAD067B16D7CA83DC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +73,8 @@ magnet:?xt=urn:btih:E4ED29C4DEB8C698AD6B2DFAD067B16D7CA83DC3
 magnet:?xt=urn:btih:5B48FB2553461DFBF968A059CD6205FD4B15CF57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +98,8 @@ magnet:?xt=urn:btih:5B48FB2553461DFBF968A059CD6205FD4B15CF57
 ```bash
 magnet:?xt=urn:btih:89508A1DA5FE42140C479DD7702E8F3C7D6B24ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +125,8 @@ magnet:?xt=urn:btih:89508A1DA5FE42140C479DD7702E8F3C7D6B24ED
 magnet:?xt=urn:btih:00F11BE3753AD79AF62FE1BF74F662E5FCE62120
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +150,8 @@ magnet:?xt=urn:btih:00F11BE3753AD79AF62FE1BF74F662E5FCE62120
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +177,8 @@ magnet:?xt=urn:btih:00F11BE3753AD79AF62FE1BF74F662E5FCE62120
 magnet:?xt=urn:btih:2ED14437F9BF1DFDBB0488D18DA9E90DD8E118C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +202,8 @@ magnet:?xt=urn:btih:2ED14437F9BF1DFDBB0488D18DA9E90DD8E118C2
 ```bash
 magnet:?xt=urn:btih:F9ACF030C8ABB55CD3FE2BE55F998B52B6678D45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +229,8 @@ magnet:?xt=urn:btih:F9ACF030C8ABB55CD3FE2BE55F998B52B6678D45
 magnet:?xt=urn:btih:DF1E6E5D4D54086C159A997A19D9CDC1F776F1F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +254,8 @@ magnet:?xt=urn:btih:DF1E6E5D4D54086C159A997A19D9CDC1F776F1F6
 ```bash
 magnet:?xt=urn:btih:3BE7AF1C9D8862C9CBE0CFE494D2D0E50D05F62F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +281,8 @@ magnet:?xt=urn:btih:3BE7AF1C9D8862C9CBE0CFE494D2D0E50D05F62F
 magnet:?xt=urn:btih:9E3A1E6CAA4AFD385B9FAEBF2D4963472234EB1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +306,8 @@ magnet:?xt=urn:btih:9E3A1E6CAA4AFD385B9FAEBF2D4963472234EB1D
 ```bash
 magnet:?xt=urn:btih:B756824E4F1365C2A437DBA9145BB133ED189C2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +333,8 @@ magnet:?xt=urn:btih:B756824E4F1365C2A437DBA9145BB133ED189C2E
 magnet:?xt=urn:btih:BBBCD011716DCBC32C4B985983119887AB443562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +359,8 @@ magnet:?xt=urn:btih:BBBCD011716DCBC32C4B985983119887AB443562
 magnet:?xt=urn:btih:AA03BE336B3B395E92804D0A0F2C798E1830723A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +384,8 @@ magnet:?xt=urn:btih:AA03BE336B3B395E92804D0A0F2C798E1830723A
 ```bash
 magnet:?xt=urn:btih:A5E10D7F25B175FEE1C969A073D0EFF1B0DB1918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +412,8 @@ magnet:?xt=urn:btih:A5E10D7F25B175FEE1C969A073D0EFF1B0DB1918
 magnet:?xt=urn:btih:A7948E1CBC7646F34ACAACA8063308946C1D41EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +438,8 @@ magnet:?xt=urn:btih:A7948E1CBC7646F34ACAACA8063308946C1D41EA
 magnet:?xt=urn:btih:30DB391BDF88815A379AC8D3A578D2C292C1B1C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +463,8 @@ magnet:?xt=urn:btih:30DB391BDF88815A379AC8D3A578D2C292C1B1C4
 ```bash
 magnet:?xt=urn:btih:BBA8971F68ADA7C637C538B9C6A959E1657C86EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +491,8 @@ magnet:?xt=urn:btih:BBA8971F68ADA7C637C538B9C6A959E1657C86EB
 magnet:?xt=urn:btih:3C328E12037285222CA402225D980512CA62905E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +518,8 @@ magnet:?xt=urn:btih:3C328E12037285222CA402225D980512CA62905E
 magnet:?xt=urn:btih:CDDE6193F38D87329DDF369CFA1DF85271660B34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +543,8 @@ magnet:?xt=urn:btih:CDDE6193F38D87329DDF369CFA1DF85271660B34
 ```bash
 magnet:?xt=urn:btih:518C9B6688B6E3A60EFC7DAD39EC1542AFAD98FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +570,8 @@ magnet:?xt=urn:btih:518C9B6688B6E3A60EFC7DAD39EC1542AFAD98FE
 magnet:?xt=urn:btih:5C320BD28F9C64DCEB0FB2F2A28223A6BF1119F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +595,8 @@ magnet:?xt=urn:btih:5C320BD28F9C64DCEB0FB2F2A28223A6BF1119F6
 ```bash
 magnet:?xt=urn:btih:373699043BDBA2457A12F6B4A9D8EFD28FF68EF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +622,8 @@ magnet:?xt=urn:btih:373699043BDBA2457A12F6B4A9D8EFD28FF68EF6
 magnet:?xt=urn:btih:70B87B09E03703CA11A406B516CD8AF91A9F85B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +647,8 @@ magnet:?xt=urn:btih:70B87B09E03703CA11A406B516CD8AF91A9F85B9
 ```bash
 magnet:?xt=urn:btih:EA36C097326F6DD41315FC700D35D7E1BECF6BD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,30 +674,7 @@ magnet:?xt=urn:btih:EA36C097326F6DD41315FC700D35D7E1BECF6BD9
 magnet:?xt=urn:btih:F82562D228669C220EDC81472C6BBD552E83679D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230122   (615320) от 12.06.2018
-
-Жил-был Шишлов (1987) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_615320.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам пьесы Афанасия Салынского «Молва».
-Действие фильма происходит в 20-е годы в поселке Птюньки. Здесь пытается обустроить общественную жизнь молодой коммунист Иван Шишлов, полуграмотный человек, увлеченный идеей социалистической коммуны. Жизнь, подчиненная логике этого бездушного человека, превращается в ад для многих. Его чрезмерные старания приводят к трагической (   Читать дальше...   )Производство: Киностудия им. Довженко по заказу Гостелерадио СССРЖанр: ДрамаРежиссер: Владимир МотыльАктеры: Татьяна Догилева,Продолжительность: 01:18:44 + 01:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1707B4576E7287AB2521F9F02DFBFC0AFC84B5D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

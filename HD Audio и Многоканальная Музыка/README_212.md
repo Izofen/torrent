@@ -22,6 +22,8 @@ A3 Тихо Несет Вода(   Читать дальше...   )Жанр: Ele
 magnet:?xt=urn:btih:C79CD65CB638DEB9C2533F3F92EA9270B7BA4A2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ A4 Ж. Рождественская - Запомни(   Читать дальш�
 ```bash
 magnet:?xt=urn:btih:8D4D8798B61275A39832BD010DF7D9D0A66C59E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ A4 Corner Of The Earth(   Читать дальше...   )Жанр: House, Acid 
 magnet:?xt=urn:btih:4C017953E84009F13E93D17A092D979D4F157CE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Aerosmith — музыкальная группа, вероятно, самый 
 ```bash
 magnet:?xt=urn:btih:893FBC5828368B3AAB3FC78EDEC256B17752735D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ A4 Swept For You Baby(   Читать дальше...   )Жанр: Soul, DiscoП
 magnet:?xt=urn:btih:8E8BAD264AC7CAC6C7A680FF47AFCD1B71C20118
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ A4. Someday {05:06}(   Читать дальше...   )Жанр: Arena RockПр�
 ```bash
 magnet:?xt=urn:btih:DF8ED3083FF09ED5E427AB8813ABDAAFC9DFE03C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Boney M - Ночной полет на Венеру (1980) [FLAC 2.0 24/192|trac
 magnet:?xt=urn:btih:B3D1B3F57618B4E802E4A5A97D4A70337216A99F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:B3D1B3F57618B4E802E4A5A97D4A70337216A99F
 ```bash
 magnet:?xt=urn:btih:9B43F8206F0D3AE6FB02265F86A20A2DE1F487E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Eruption - Ансамбль Ирапшн (1980) [FLAC 2.0 24/192|tracks(Vinyl-Ri
 magnet:?xt=urn:btih:45A5FA839A3BA8784EA5DBFD90310AF74010359B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ A4 The Dooley Family – Sneaking Up On Me(   Читать дальше...   )Ж
 ```bash
 magnet:?xt=urn:btih:DE295B1A4D28869EEC14D76C44A8F616674DF333
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ A4 Andy Summers - Human Shout(   Читать дальше...   )Жанр: Sound
 magnet:?xt=urn:btih:657A90F3016C8779A96FD342306A597CA4BD4795
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ A4 R. Kelly And Public Announcement - She's Got That Vibe(   Читать дал
 ```bash
 magnet:?xt=urn:btih:7A45A5EB61B0B363CE7034430751BCE9E7F1167A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ A4 Белая Береза(   Читать дальше...   )Жанр: PopПр�
 magnet:?xt=urn:btih:45D2B710AFB31D39D9A98F0093BFFB703F667F74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Zardonic - Superstars (2023) [FLAC|24/48|tracks|WEB-DL] <Industrial Rock, Drum &
 ```bash
 magnet:?xt=urn:btih:8513D1240E91FFD4E694B25EE4F7B75FF3350CCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ C4. Афанасий Никитин Буги (3:54)(   Читать дальше
 magnet:?xt=urn:btih:0DFE44147D50044ADDE2F8DD4BFFCCB808B93E63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ Jeff Lynne's ELO - Alone In The Universe (2015) [FLAC 2.0 24/96|image (Vinyl-Rip
 ```bash
 magnet:?xt=urn:btih:E180AAD96C0AF6372D39F23596412C68FFF1ED0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ XueFei Yang - Romance de Amor (2006) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Classic
 magnet:?xt=urn:btih:C11842A5756FACC1512995D18DEEFFF86515FA3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +515,8 @@ Andrew Lloyd Webber & Tim Rice, Various – Jesus Christ Superstar (A Rock Opera
 magnet:?xt=urn:btih:BEC0ABFDD80805AA4B4CA376CBCBD5DBCEBE1006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +543,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:3E4042834B66FA71CC492D07143A6B8B3141220A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +574,8 @@ Running Wild (с англ. — «Ведущий беспутный обра�
 magnet:?xt=urn:btih:395195E3218167A7611320B7E0C7EA9E5DBF3C8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +602,8 @@ Creedence Clearwater Revival - Легенды Зарубежного Рока (1
 ```bash
 magnet:?xt=urn:btih:25E2C40DF3BC82A883ED351552B1C2174EDB8557
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +632,8 @@ magnet:?xt=urn:btih:25E2C40DF3BC82A883ED351552B1C2174EDB8557
 magnet:?xt=urn:btih:39C95834D4B1AFBFE0B9F2971CFA55BEAE8C506A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +660,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:D9201EA3647D2C001F4D1D38FBE90564F59ED482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +690,8 @@ A4 Play The Game (The Game)(   Читать дальше...   )Жанр: Classic
 magnet:?xt=urn:btih:0219688D49CED240AA3B3BED93374284BBCE8F08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +719,8 @@ A4 Houses Of The Holy(   Читать дальше...   )Жанр: Hard RockПр
 magnet:?xt=urn:btih:B023AFBE1BDCF28A2386BD86C4C89199AAA0E246
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ A4 Favourite Love Theme From Tchaikovsky's ''Romeo And Juliet''(   Читать 
 ```bash
 magnet:?xt=urn:btih:3D7D9C72EDC680AB97ED20B924505ED891DD990A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

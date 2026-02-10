@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:B6615D00211652F6A29D2732F3087CD1D43A16CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Ashes of the Singularity: Escalation – самостоятельное допо
 ```bash
 magnet:?xt=urn:btih:8E515AE372CB291A532270DFE8ED5F145ABA146E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Kingdom Two Crowns является новым этапом развития э�
 magnet:?xt=urn:btih:9BF2924326BEE1EB94E9C7895093ABD53A446461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:9BF2924326BEE1EB94E9C7895093ABD53A446461
 ```bash
 magnet:?xt=urn:btih:C731FCFDF99C41AAC757FABEE03A2DCC1E8A5A37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:C731FCFDF99C41AAC757FABEE03A2DCC1E8A5A37
 magnet:?xt=urn:btih:E343CB9D54CA202BB54FB1DA1A8B4BF1C5970115
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Chotto dake Ai ga Omoi Dark Elf ga Isekai kara Oikakete Kita | Yandere Dark Elf 
 ```bash
 magnet:?xt=urn:btih:C76B0400F5934D6393EF38E99EE8832D0C68F820
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:C76B0400F5934D6393EF38E99EE8832D0C68F820
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Haite Kudasai, Takamine-san | Please Put Them On, Takamine-san | Пожалуй�
 ```bash
 magnet:?xt=urn:btih:53E35594243BEED0DF19F4DFFBD877A7C89FFE0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:53E35594243BEED0DF19F4DFFBD877A7C89FFE0F
 magnet:?xt=urn:btih:B3651C791F17DD561318D47E3D7826851BE1BF92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ NCIS: Los Angeles — драма о сложной работе — наблюд
 ```bash
 magnet:?xt=urn:btih:23F6870BBF760AC97B059AB0C2C238D1B63518A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ magnet:?xt=urn:btih:23F6870BBF760AC97B059AB0C2C238D1B63518A6
 magnet:?xt=urn:btih:8FBD47CB154DE321DBB660164BCABA9B2FB1B1E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:8FBD47CB154DE321DBB660164BCABA9B2FB1B1E1
 ```bash
 magnet:?xt=urn:btih:F2F03B63C2BF44116D9AE580B16C2E589499566A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ RRR: Рядом ревёт революция / RRR (2022) WEB-DL [H.264/1080p] 
 magnet:?xt=urn:btih:39D8C97F9EC297DAA6C10DEE8CBC1A60C6CD69A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Bulwark: Falconeer Chronicles (2024) [Multi] (1.2.18.0/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:5D79F0D57FE95436D85296E9669CBD5C440A177C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:5D79F0D57FE95436D85296E9669CBD5C440A177C
 magnet:?xt=urn:btih:776C197BD368FD95A66ED9F28C5914BB4F4D38F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:776C197BD368FD95A66ED9F28C5914BB4F4D38F4
 ```bash
 magnet:?xt=urn:btih:B424F2CE38E1794CFE129C5461BE22F78E668B76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:B424F2CE38E1794CFE129C5461BE22F78E668B76
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:B424F2CE38E1794CFE129C5461BE22F78E668B76
 ```bash
 magnet:?xt=urn:btih:4843643F32E17F08A4D8BE3A0BB804C6356B36DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ The Lady & The Dappers - Electro Swing Vol. 2 (2025) [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:8ABD3C328D1752C5D7228E250CB998469D92C8D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ Strymon - Plugins Effects 06.2025 VST 3, AAX (x64) RePack by R2R [En]
 magnet:?xt=urn:btih:7B9E14033ECD65D9BC8ACD80F5F17C6CB5BBA57F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ magnet:?xt=urn:btih:7B9E14033ECD65D9BC8ACD80F5F17C6CB5BBA57F
 magnet:?xt=urn:btih:245D5FD983F67753D7A180EF1AC706D3FD48F933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:245D5FD983F67753D7A180EF1AC706D3FD48F933
 ```bash
 magnet:?xt=urn:btih:47EB3C1FDD3D805B8E3253902B16C6D379DB6C8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +599,8 @@ VA - Musical kaleidoscope part 44 Assorted (2025) [MP3|320 Kbps] <Electronic, In
 magnet:?xt=urn:btih:18582DAEC42EE1140E75FCE533B3B5A4F04A0CFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:18582DAEC42EE1140E75FCE533B3B5A4F04A0CFD
 magnet:?xt=urn:btih:3D5C94A6D34486B11F86C4A8A8828C36235083EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:3D5C94A6D34486B11F86C4A8A8828C36235083EE
 ```bash
 magnet:?xt=urn:btih:3C8BCE55775B7EC83FC2FF3A088C8533D40D0B25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:3C8BCE55775B7EC83FC2FF3A088C8533D40D0B25
 ```bash
 magnet:?xt=urn:btih:CE031879D197ED9EECCA8F167B0F7C285F3633DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

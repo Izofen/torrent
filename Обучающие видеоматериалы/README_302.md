@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:7A51AFFB97435EA618056E668B370B553344EE32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:7A51AFFB97435EA618056E668B370B553344EE32
 magnet:?xt=urn:btih:D33EFC2DFFF568C3E14D1D0B725EF52D3BE47B6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Udemy, Dzianis Matveyenka | HTTP. Servlets  (2022) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:B92A57C5BDA29D13751E386DDD384D685E94759A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:B92A57C5BDA29D13751E386DDD384D685E94759A
 magnet:?xt=urn:btih:F8898F3D441AF0D0A4719AA1ADAF76F75B5CCF30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Udemy, Nikita Putintsev | Создание 3D игр на Unity. Shooter (2022) 
 ```bash
 magnet:?xt=urn:btih:A357141ED55B6BEF8677E62026DC00D1C9F0690C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ magnet:?xt=urn:btih:A357141ED55B6BEF8677E62026DC00D1C9F0690C
 magnet:?xt=urn:btih:8C04284C6036A83D71C253C62217B82438B86B3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:8C04284C6036A83D71C253C62217B82438B86B3A
 magnet:?xt=urn:btih:D859E346D98F454BDE531F08A5CA12E0107F229E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Svelte - это JavaScript фреймворк, который позволяет
 ```bash
 magnet:?xt=urn:btih:77FB602AEFCBD402E73448C6B177C81790CC3F76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Udemy, Lucas Bazilio | The Complete Haskell Course: From Zero to Expert! (2023) 
 magnet:?xt=urn:btih:1ACD2A5831C05561C4B78185D578B4F17E2D6B79
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ Udemy, Apaar Kamal, Prateek Narang | Dynamic Programming Algorithms Master Cours
 ```bash
 magnet:?xt=urn:btih:5CC729AE367AEE30C8622DD5803E03E53C22E0A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +292,8 @@ Learn Python, Михаил Корнеев | Курс программирова�
 magnet:?xt=urn:btih:5BF35A2DA840D51C225138ABEDC1B1BB0D3A1BE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Udemy, Anton Golosnichenko | Python для начинающих на практ�
 magnet:?xt=urn:btih:3D3438C5AFC8E61521F93078B2E46A63053A79F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:3D3438C5AFC8E61521F93078B2E46A63053A79F9
 magnet:?xt=urn:btih:C7E6B3D0D09F2E93A8830B194C5DFE7F6BB283D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +374,8 @@ magnet:?xt=urn:btih:C7E6B3D0D09F2E93A8830B194C5DFE7F6BB283D2
 ```bash
 magnet:?xt=urn:btih:CC9AA558DF257DDE85C3025FB9886E89414F948F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ SketchUp умеет многое, но не всё. Этот онлайн-кур
 magnet:?xt=urn:btih:6E7490F605B9FDDB84027A9FABA1B340A683477C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ Gumroad | Isometric Crypt (2019) PCRec [H.264/1080p-LQ] [RU/EN]
 magnet:?xt=urn:btih:52D43AA17A1FE6727B16CC185B8A4EDC76BA1FDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:52D43AA17A1FE6727B16CC185B8A4EDC76BA1FDE
 ```bash
 magnet:?xt=urn:btih:664819B15B79AA56A4A54A0E56136FF941421AA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ Udemy, Jose Salvatierra | Web Developer Bootcamp with Flask and Python  (2021) P
 magnet:?xt=urn:btih:CC965D6D52C06367607240F9056D219355B13CB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:CC965D6D52C06367607240F9056D219355B13CB9
 ```bash
 magnet:?xt=urn:btih:2CC862203B193F89F3C2E15648C7C9FB62207D23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +534,8 @@ Udemy, Ziyad Yehia | The Python Bible™ | Everything You Need to Program in Pyt
 magnet:?xt=urn:btih:74854D7A489DA357C6BD191930B21CB57BB520AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +559,8 @@ Udemy, Леонид Тишкевич | Java курс c нуля и до перв
 ```bash
 magnet:?xt=urn:btih:1DF6F660936E62C1F4EE4A17FBD43341683A5D22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ CG Cookie, Jonathan Lampel | Основы создания материалов 
 magnet:?xt=urn:btih:A4113CB3B11E526042CAFBB9D77A151F23A3F9A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +613,8 @@ magnet:?xt=urn:btih:A4113CB3B11E526042CAFBB9D77A151F23A3F9A6
 magnet:?xt=urn:btih:879C431F5891E111DC3F8DC2E7342E8E61A137A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +638,8 @@ magnet:?xt=urn:btih:879C431F5891E111DC3F8DC2E7342E8E61A137A4
 ```bash
 magnet:?xt=urn:btih:A00F0211799CD70514AE2C438A3CA6654CCEE396
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +667,8 @@ magnet:?xt=urn:btih:A00F0211799CD70514AE2C438A3CA6654CCEE396
 magnet:?xt=urn:btih:63B4370FF968FA1C374F9E7CF1C1937A4633A8BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +695,8 @@ ConvertMonster | Специалист по трафику, трафик-мене
 ```bash
 magnet:?xt=urn:btih:6164F7236F08FAF58D26F120F93EE0CB5E20A219
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

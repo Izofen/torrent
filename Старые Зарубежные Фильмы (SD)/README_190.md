@@ -1,27 +1,3 @@
-###  Публикация: 1007425   (823010) от 14.04.2016
-
-Нет выхода / No Way Out (1987) HDTVRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_823010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Том Фарелл-бравый моряк, на благотворительном балу знакомиться с очаровательной Сьюзан, проведя с ней ночь, он узнаёт что она-любовница министра обороны Девида Брайса. По иронии судьбы, именно с министром Тому придёться работать, по протекции своего старого приятеля Скотта Причарда. Фарелл даже не предполагал, что вскоре ему предстоит расследование убийства собственной (   Читать дальше...   )Производство: СШАЖанр: Триллер, драма, детектив, экранизацияРежиссер: Роджер ДональдсонАктеры: Кевин Костнер, Джин Хэкмен, Уилл Пэттон, Шон Янг, Ховард Дафф, Джордж Дзундза, Джейсон Бернард, Иман, Фред Долтон Томпсон, Леон Рассом, Деннис Бёркли, Маршалл Белл, Майкл Шилло, Николас УортПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F44E6C8C18D65B74F832ECD7E53038AEB5674B3B
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 654734   (823087) от 11.05.2013
 
 АББА: фильм / ABBA: The Movie (1977) BDRip [H.264]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:F44E6C8C18D65B74F832ECD7E53038AEB5674B3B
 ```bash
 magnet:?xt=urn:btih:F0653F508B194B82A0D0FE87F05B9660109531F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +46,8 @@ magnet:?xt=urn:btih:F0653F508B194B82A0D0FE87F05B9660109531F8
 magnet:?xt=urn:btih:72270F3FD1FED3C070149D010C9DF2DFDC5E8DBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:72270F3FD1FED3C070149D010C9DF2DFDC5E8DBE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +98,8 @@ magnet:?xt=urn:btih:72270F3FD1FED3C070149D010C9DF2DFDC5E8DBE
 magnet:?xt=urn:btih:33974FAD8A9124F87DAE27239BE0F2915C8B761D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +123,8 @@ magnet:?xt=urn:btih:33974FAD8A9124F87DAE27239BE0F2915C8B761D
 ```bash
 magnet:?xt=urn:btih:4446B44E6DF60129A26DCC6BF55959344C2CE271
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +150,8 @@ magnet:?xt=urn:btih:4446B44E6DF60129A26DCC6BF55959344C2CE271
 magnet:?xt=urn:btih:175901322719FF48993BE6557F48A2291B694247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:175901322719FF48993BE6557F48A2291B694247
 ```bash
 magnet:?xt=urn:btih:C518208C19186AF01B1BC563E825520CA62D31B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +202,8 @@ magnet:?xt=urn:btih:C518208C19186AF01B1BC563E825520CA62D31B5
 magnet:?xt=urn:btih:E1AE5C5CC94C7175843C7E66F8E612F41AF8BD1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +227,8 @@ magnet:?xt=urn:btih:E1AE5C5CC94C7175843C7E66F8E612F41AF8BD1E
 ```bash
 magnet:?xt=urn:btih:8ADE76900907717AF55FE9A426E8EE0D190FA728
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +254,8 @@ magnet:?xt=urn:btih:8ADE76900907717AF55FE9A426E8EE0D190FA728
 magnet:?xt=urn:btih:BE3A803DB008F7425FF42FD42602B7C88B2381E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +279,8 @@ magnet:?xt=urn:btih:BE3A803DB008F7425FF42FD42602B7C88B2381E4
 ```bash
 magnet:?xt=urn:btih:CA251E1F1CC0067B7E4C9C700D5A114E172B5D47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +306,8 @@ magnet:?xt=urn:btih:CA251E1F1CC0067B7E4C9C700D5A114E172B5D47
 magnet:?xt=urn:btih:296E85C0FFF23A6B9D5A1097F4C008E7D437DFF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:296E85C0FFF23A6B9D5A1097F4C008E7D437DFF7
 magnet:?xt=urn:btih:82C6F7EC85B530505BE74F8090540C9D6FC848B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:82C6F7EC85B530505BE74F8090540C9D6FC848B5
 ```bash
 magnet:?xt=urn:btih:AB190E9846635C06EE5C1AC6DBC3559D57545193
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +385,8 @@ magnet:?xt=urn:btih:AB190E9846635C06EE5C1AC6DBC3559D57545193
 magnet:?xt=urn:btih:7A5CB8C5320B2A9AC417D4354EEF1DA674FF1995
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +412,8 @@ magnet:?xt=urn:btih:7A5CB8C5320B2A9AC417D4354EEF1DA674FF1995
 magnet:?xt=urn:btih:C9EDD99D2D1B45905897B4BB68DF6D3AD45849CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +437,8 @@ magnet:?xt=urn:btih:C9EDD99D2D1B45905897B4BB68DF6D3AD45849CE
 ```bash
 magnet:?xt=urn:btih:0F36FF68DB623220AAC9DACE3B4223FE702AF20C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +464,8 @@ magnet:?xt=urn:btih:0F36FF68DB623220AAC9DACE3B4223FE702AF20C
 magnet:?xt=urn:btih:1F571A2781C402A806953CEFB678ED73D1821CE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +489,8 @@ magnet:?xt=urn:btih:1F571A2781C402A806953CEFB678ED73D1821CE4
 ```bash
 magnet:?xt=urn:btih:08D7208A2E616A76867CA0CC2764D90F79BC63FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +516,8 @@ magnet:?xt=urn:btih:08D7208A2E616A76867CA0CC2764D90F79BC63FD
 magnet:?xt=urn:btih:E220BEE6B26F4E7F5A7F5987BDD6964F59B2937D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +541,8 @@ magnet:?xt=urn:btih:E220BEE6B26F4E7F5A7F5987BDD6964F59B2937D
 ```bash
 magnet:?xt=urn:btih:5BD3255245C8C9E311FFB502D08B93134C6B36EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +568,8 @@ magnet:?xt=urn:btih:5BD3255245C8C9E311FFB502D08B93134C6B36EF
 magnet:?xt=urn:btih:6CA35996ED7071FC928CD113DD25C3030ECE013E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +593,8 @@ magnet:?xt=urn:btih:6CA35996ED7071FC928CD113DD25C3030ECE013E
 ```bash
 magnet:?xt=urn:btih:F50F1ED4A851D5F63B20BE14712564D9885E8F52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +621,8 @@ magnet:?xt=urn:btih:F50F1ED4A851D5F63B20BE14712564D9885E8F52
 magnet:?xt=urn:btih:DBB01D92184921845FD31C97922D69B629D8D34F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +646,34 @@ magnet:?xt=urn:btih:DBB01D92184921845FD31C97922D69B629D8D34F
 ```bash
 magnet:?xt=urn:btih:4F3BBAB16275080B6E2E4973EFF4F78ABAA20C95
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380813   (831229) от 04.05.2020
+
+Серебряное седло / Sella d'argento (1978) DVDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/006/save_picture_831229.jpg" />
+</div>
+
+
+###  Подробнее
+
+На глазах мальчика убивают его отца. Годы спустя он становится «охотником за головами», внушающим ужас бандитам. Но однажды он узнает тайну своего прошлого…Производство: Италия / Rizzoli Film S.p.a.Жанр: Боевик, ВестернРежиссер: Лучио ФульчиАктеры: Джулиано Джемма, Свен Вальсекки, Этторе Манни, Джанни Де Луиджи, Чинция Монреале, Личиния Лентини, Альдо Самбрель, Филипп Эрсен, Дональд О’Брайэн, Серджо ЛеонардиПеревод: Многоголосый профессиональный, авторскийСубтитры: ОтсутствуютПродолжительность: 01:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7700763264696996DF4E8CD6A1E681FC8643650
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

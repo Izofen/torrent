@@ -21,6 +21,8 @@ Discovery. Византия: Утраченная Империя / Byzantium: Th
 magnet:?xt=urn:btih:B22E82FE0153295635FDAE4B6850C1EDE752D632
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ DV: NOVA. Расширение вселенной / Runaway Universe (2000) SATR
 ```bash
 magnet:?xt=urn:btih:E76D666C23FF178E68591E11CA05595472AE92A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Discovery: Расследование заговоров. Проверка фа�
 magnet:?xt=urn:btih:07B90ECCAC9791FF67E6A5EF3CB6B358AFFFF46E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Discovery. Фальсификация: Дональд Трамп / Donald Trump:
 ```bash
 magnet:?xt=urn:btih:1720D9C9030E7775C9EFE49D70BCDF711503DE72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:1720D9C9030E7775C9EFE49D70BCDF711503DE72
 magnet:?xt=urn:btih:D13703C8EB482C00B57D3EB9119A1C4623580D34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Discovery. Пешком вдоль Нила / Walking the Nile (2015) HDTVRip (�
 ```bash
 magnet:?xt=urn:btih:821A80EBE6BBF73C53FAB7A98DA08DC7CE3F77B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ BBC: Сокровища Древнего Египта / Treasures of Ancient Egy
 magnet:?xt=urn:btih:08B194E077DC53BBA1AEBD98DDFA1919FD7C7FEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:08B194E077DC53BBA1AEBD98DDFA1919FD7C7FEB
 ```bash
 magnet:?xt=urn:btih:DD326E2A994271B9F36070534CF037BC1B2FC7F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ Animal Planet. Амба, русский тигр / Amba the Russian Tiger (2008)
 magnet:?xt=urn:btih:D26016E264670405985A60B7ED8590CAFB90B9BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:D26016E264670405985A60B7ED8590CAFB90B9BA
 ```bash
 magnet:?xt=urn:btih:F84DC97BFD51C7699BFDD6A141B7750A55DA7069
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ BBC: Невидимое простым глазом / Da Vinci Learning: BBC: Be
 magnet:?xt=urn:btih:288D567254F9B2E2514ECDC17C491353E3D80FB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ magnet:?xt=urn:btih:288D567254F9B2E2514ECDC17C491353E3D80FB8
 ```bash
 magnet:?xt=urn:btih:11C64638554C3396AF00FB7FFEFB8E36F977FA46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Discovery: Неизвестная история Египта / The Hidden Histo
 magnet:?xt=urn:btih:89A90B188C8AF65B5DB5017B1BC2BA314DF63078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ NG: Смертельный бой динозавров / Dino Death Match (2015)
 ```bash
 magnet:?xt=urn:btih:693A1C80644EC2385DFA7E0F0DEA769B897E69BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:693A1C80644EC2385DFA7E0F0DEA769B897E69BE
 magnet:?xt=urn:btih:424BAA40FA829C98CD5247EDF41F63E3ECC7ED54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:424BAA40FA829C98CD5247EDF41F63E3ECC7ED54
 ```bash
 magnet:?xt=urn:btih:E97F023D76EF19E3636626E24B7D31DD6A966482
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ BBC. Чудеса животного мира / The Wonder of Animals (2014) SAT
 magnet:?xt=urn:btih:6ABFD6EBAB8BD117C5B5948A93B64153F08694E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ Discovery: Кто подставил Иисуса? / Who Framed Jesus? (2010) SA
 magnet:?xt=urn:btih:B3FBE9E3AC16592CD025FA6C11BC82EA077932B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ BBC. Horizon: Тайны солнечной системы / Secrets of the Sola
 ```bash
 magnet:?xt=urn:btih:1A783EEC44717F1B1CE99EBD39733CBE0C203290
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ BBC: Живой мир. Шри-Ланка: Остров слонов / Sri Lanka
 magnet:?xt=urn:btih:C306622F636DCCDDB1FD852A2BE8CDDE4D43DFD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Discovery. GameStop: вызов Уолл-стрит / GameStop: The Wallstreet H
 ```bash
 magnet:?xt=urn:btih:0F0E9395725368CB63A384D4D6AA593F66CF1A81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +572,8 @@ NGW: Атака нильского крокодила / Africa's Croc Attack (20
 magnet:?xt=urn:btih:8093B8E2CAB038E0A1F5F46BECCBA5CADBD227C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ NG: Строительство тоннеля / Building the Channel Tunnel (201
 ```bash
 magnet:?xt=urn:btih:359D79897BCBBB5281C01F0F80AD928C708A8782
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:359D79897BCBBB5281C01F0F80AD928C708A8782
 magnet:?xt=urn:btih:80B12C17066E52A50BFF5EDB56EC281FF6846C7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ BBC. Horizon: Мой домашний динозавр / My Pet Dinosaur (2007) 
 magnet:?xt=urn:btih:F768E9EBF9598FD170BCFD3919D341A92F21D42D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ magnet:?xt=urn:btih:F768E9EBF9598FD170BCFD3919D341A92F21D42D
 ```bash
 magnet:?xt=urn:btih:D392437A318F8BCD8F69C78710DB9771A66F11C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:AB17C0E5B3D0A800E20B246C0EABFAF02FEE798F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Wise Disk Cleaner 11.0.3.817 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:BE8CA041519FC3245D83C6E5C043B9C5E6868513
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Udemy, Nexttut, Hamidreza Afshari | Substance 3D Painter Advance Course (2022) P
 magnet:?xt=urn:btih:747B6A701AB91B6A84CE0E9F5B1CDF77215526B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:747B6A701AB91B6A84CE0E9F5B1CDF77215526B2
 ```bash
 magnet:?xt=urn:btih:95846BB93F16C3EF745200A66423BE52798A5622
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:95846BB93F16C3EF745200A66423BE52798A5622
 magnet:?xt=urn:btih:975CE34B8188DE9C2B50FAD86DC3F177A227BB8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:975CE34B8188DE9C2B50FAD86DC3F177A227BB8C
 ```bash
 magnet:?xt=urn:btih:8DBEEBB8A707B22FBC1CC2EED3E38E722E156502
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Pale Moon - веб-браузер, созданный на базе популя
 magnet:?xt=urn:btih:56473F476620EA58461518F54CB5A67F0F40B485
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +202,8 @@ magnet:?xt=urn:btih:56473F476620EA58461518F54CB5A67F0F40B485
 ```bash
 magnet:?xt=urn:btih:841163AD766382402569ACC4918663BC1C128A06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Human Anatomy Atlas 2023 v2023.0.09 [En]
 magnet:?xt=urn:btih:DC33895AFF2265F0810238D1CD35AA1937241137
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Viber для Windows позволяет бесплатно отправлять 
 ```bash
 magnet:?xt=urn:btih:1CEE6F82403DE66EF3F95DB7C5F0092F84A07731
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:1CEE6F82403DE66EF3F95DB7C5F0092F84A07731
 magnet:?xt=urn:btih:A526F2B8FEFA3BEC95350351A58E41B2052C5D2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:A526F2B8FEFA3BEC95350351A58E41B2052C5D2C
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:A526F2B8FEFA3BEC95350351A58E41B2052C5D2C
 ```bash
 magnet:?xt=urn:btih:65F88EBBC1824EF9AB741008D3F0FAB1F6024DFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Levelup.Digital, Eric Wiley | Advanced Shape Creation in Substance Designer (201
 magnet:?xt=urn:btih:DB48E5ADF8D8348001488613CC0A85F950E9A6FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Exp-Points, Alex Beddows | Creating Fabric Materials in Substance Designer (2021
 magnet:?xt=urn:btih:4B1F9ADBD40A34691CB74301B02D1F694411D5CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:4B1F9ADBD40A34691CB74301B02D1F694411D5CA
 ```bash
 magnet:?xt=urn:btih:B4FF3379FB23BB20C9496B7DCBA33F616E9C54C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ CD1 - Interludium:
 magnet:?xt=urn:btih:2F42AFF4CEAD7F38EA5B59D686BCBD6B87386CF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:2F42AFF4CEAD7F38EA5B59D686BCBD6B87386CF2
 ```bash
 magnet:?xt=urn:btih:AB836E66404F47A2C34D98671AA0629AD3294265
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:AB836E66404F47A2C34D98671AA0629AD3294265
 magnet:?xt=urn:btih:A269E3CE17AAB78D65AA0B17EA8F758B8F24BABB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ NetTraffic - небольшая полезная утилита для мони�
 ```bash
 magnet:?xt=urn:btih:EDB0008DE9A85AB1230ECA854EAA379B66CD7418
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:EDB0008DE9A85AB1230ECA854EAA379B66CD7418
 magnet:?xt=urn:btih:49FAB8F32E803692B7F2F8CD9C81849D2813CB1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:49FAB8F32E803692B7F2F8CD9C81849D2813CB1A
 ```bash
 magnet:?xt=urn:btih:918027FFE5AF4452538CC68479532FDBF4A7E57A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:918027FFE5AF4452538CC68479532FDBF4A7E57A
 magnet:?xt=urn:btih:860C8A9EC1449F8AD91EE737E6C705EE7AD70580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:860C8A9EC1449F8AD91EE737E6C705EE7AD70580
 ```bash
 magnet:?xt=urn:btih:4C88A9F1BEC239A8B7799D827E23924A549A50FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:4C88A9F1BEC239A8B7799D827E23924A549A50FF
 magnet:?xt=urn:btih:61D373E9F425C49D75AA403B934FFD19EAD1DCEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Wireshark - бесплатный сниффер, предназначенный 
 ```bash
 magnet:?xt=urn:btih:46F16A986860218D9B658F8302A29C63E7020D87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

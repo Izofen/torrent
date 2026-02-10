@@ -19,6 +19,8 @@ Vivaldi 7.3.3635.12 include standalone [Multi/Ru]
 magnet:?xt=urn:btih:83579D11F07B145DD297CFC65E7E71AFDBDC819A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:CC58BD97383F9BC2DD74ECEA20FE1D55F30E7657
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Imagine - это бесплатный просмотрщик изображен�
 magnet:?xt=urn:btih:ABF2C6202966CC9CC25955719F584DFBE823C5B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ USB Safely Remove это надежная и удобная замена 'Без
 ```bash
 magnet:?xt=urn:btih:E1F524C823F5C2BC5BC8A9942AF610A868265CF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:B2468911D2F82B86E38C8E8A3BD6CFFC23297C97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:EE17E4C202AE7A54FEBEE57B12AE34754E49952A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Auslogics SSD Optimizer - специальный инструмент, разр�
 magnet:?xt=urn:btih:1519FD2AEE999EEBA2957F124A735218AEEA1CCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Auslogics BoostSpeed - популярный набор инструментов 
 ```bash
 magnet:?xt=urn:btih:89120E7295BEF5AE1D311E9A8FF01A1E600D34FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Fast Video Cutter Joiner - программа 2-в-1 для быстрой ре�
 magnet:?xt=urn:btih:862479FEE8F7C832ABCD9382F2BA55C8514A3EF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ MultiTimer - это простое и универсальное таймер-п
 ```bash
 magnet:?xt=urn:btih:E5B7522E4B892441D904D585C1E8C7041D3FD650
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ OB-Xd — это классический синтезатор с неподвл
 magnet:?xt=urn:btih:D102A7AAD71C4A18CCA6019EAD9A25B93E6732FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Allavsoft Video Downloader Converter - это мощный видео загру
 ```bash
 magnet:?xt=urn:btih:E60F281D264F095A9733105981AAD8CF6AC338ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ jetAudio это музыкальный проигрыватель с 10/20 по�
 magnet:?xt=urn:btih:500DD9F6A4ADFDB1348BFE35B7E4337F724160CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ Icecream Video Converter Pro 1.46 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:34A77F8311DBF194BC2775A2CCB98F322A508128
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:34A77F8311DBF194BC2775A2CCB98F322A508128
 magnet:?xt=urn:btih:07BEDAD97845E0F5B3E94F74D610D41F7398A69F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Light Image Resizer - программа для изменения размер�
 ```bash
 magnet:?xt=urn:btih:B46175C92CF1A84457FB0138E28B048E9302A97B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ Avidemux - небольшой, простой редактор для работ
 magnet:?xt=urn:btih:AD8DE8BC243D8BE022FCB01FB25E8C7B1F9F64B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ DLNow Video Downloader - быстрое, полезное, практичное 
 ```bash
 magnet:?xt=urn:btih:545C607CD4C389A580FBA96E1211D19F3EEF7858
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ FreeTube использует собственный HTTP-API YouTube с наб�
 magnet:?xt=urn:btih:892DAAB28C513393E5BF86B20FF95A8796E6E331
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ magnet:?xt=urn:btih:892DAAB28C513393E5BF86B20FF95A8796E6E331
 ```bash
 magnet:?xt=urn:btih:9548FD12FA95E92035D95C5BCBE09A9B513A54DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ VueScan - программа предназначена для замены ст
 magnet:?xt=urn:btih:1C06AC18A35B5116475573F7A3C8AE9588C8C698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ ZBrush — программа для 3D моделирования, создан
 ```bash
 magnet:?xt=urn:btih:78F6316AB61C5F12E7F0CE92D2062D70A83A18A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ Shazam (шазам) распознает любую песню за секунд
 magnet:?xt=urn:btih:5B69E4DB09BE612752A57C3E4BC03F167AE86764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:5E9C0C2C6C40A5D087E0179A58BD00FD0EA55C2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ FastFlix - это простой и дружественный графичес�
 magnet:?xt=urn:btih:742BC3E32406F22E5FD9E0090740E0CA6470872C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:E9F8A939FE502A7E605212D236847DF0B12B3CF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

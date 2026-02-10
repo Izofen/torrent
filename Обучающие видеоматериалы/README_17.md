@@ -22,6 +22,8 @@ AreaWeb, Михаил Протасевич, Ярослав Мурашкин | PH
 magnet:?xt=urn:btih:B03B9903E93EAB6EA48F66B90B0B00BDFD650A29
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:B03B9903E93EAB6EA48F66B90B0B00BDFD650A29
 ```bash
 magnet:?xt=urn:btih:0D0E934086FB95C62CF1442280846EE01450F701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ CyberYozh, VektorT13, Qanon, Mik1st, Михаил Васильев | Взлом 
 magnet:?xt=urn:btih:D7F78EEA1D06CAAC0E9474E1155CF516B9B06FD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:D7F78EEA1D06CAAC0E9474E1155CF516B9B06FD2
 magnet:?xt=urn:btih:1BA501C4A704A51E1FE30E6D812CB2160FE1D0B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ Rebelway, Sina Mehralinia | Advanced Shading in Redshift (2024) WEBRip [EN]
 ```bash
 magnet:?xt=urn:btih:3B2525CFB73E226CD012985F018C451582579A36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:3B2525CFB73E226CD012985F018C451582579A36
 magnet:?xt=urn:btih:496427869DC14A47B00AD775728ED829883425BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ CGMA, David Mooy | Intro to Maya (2020) WEBRip [RU, EN]
 ```bash
 magnet:?xt=urn:btih:44B6D6B4F862B2612E385B3E8233AC7538D32C98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ Procreateschool | Postcard Профи (2021) PCRec
 magnet:?xt=urn:btih:65BA605C58013019CCAD69B92C955B9BEC959C73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ magnet:?xt=urn:btih:65BA605C58013019CCAD69B92C955B9BEC959C73
 ```bash
 magnet:?xt=urn:btih:1079D8667A26E31EC702D2FE4C4A6B29DEDAF045
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +277,8 @@ CGBoost, Jim Morren | Master 3D Characters in Blender (2024) PCRec [EN]
 magnet:?xt=urn:btih:BE2BCBD87D9D1CFB82BAEC91D66DB42D3C87F252
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +306,8 @@ magnet:?xt=urn:btih:BE2BCBD87D9D1CFB82BAEC91D66DB42D3C87F252
 magnet:?xt=urn:btih:822AC9DE744F0D04F7E796EEC1FAA758AB7F98DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ Deworker Pro, Елисеев Дмитрий | Практики разделен�
 magnet:?xt=urn:btih:CABE5C0A844D8479F0A4D46561FD355C694BB89F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +361,8 @@ Product University, Виталий Капранов, Егор Котельник
 magnet:?xt=urn:btih:1B8D10E848445D14CE33965AB02D9ABBDC70AB53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ magnet:?xt=urn:btih:1B8D10E848445D14CE33965AB02D9ABBDC70AB53
 ```bash
 magnet:?xt=urn:btih:2DDF91E61E020EE0F1D50BB354B60989AE48D883
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +415,8 @@ Surf | Flutter-разработчик - практический онлайн-к
 magnet:?xt=urn:btih:91DC870717DC9C39F676A5274BCF8D41B617359B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +442,8 @@ Techworld with Nana, Nana Janashia | DevSecOps Bootcamp (2024) WEB-DL [EN]
 ```bash
 magnet:?xt=urn:btih:7DCF46A3FE94C89033818797D1DC60636EF93A8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +471,8 @@ Udemy, Vassilyi Gudomarov | JavaScript с нуля: Уверенный стар�
 magnet:?xt=urn:btih:3E8E20AACD55D1D820A8C34A6781BAEAD26A13F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -465,6 +499,8 @@ PurpleSchool, Антон Ларичев | Продвинутый Golang (2024) W
 magnet:?xt=urn:btih:4D1C82FEE7FB10F92F673AE1EB1F15E0207BDF56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +526,8 @@ PurpleSchool, Антон Ларичев, Игорь Орлов | Основы Go
 magnet:?xt=urn:btih:81C2BCF793DD718562E8B2FD9ED90F07FBD03C5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +551,8 @@ magnet:?xt=urn:btih:81C2BCF793DD718562E8B2FD9ED90F07FBD03C5C
 ```bash
 magnet:?xt=urn:btih:1560BBC274B7A4D19C6148BE02B9AC01C37B9765
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +578,8 @@ Slurm (Слёрм) | Data-инженер (2024) WEB-DL [RU]
 magnet:?xt=urn:btih:DC21F257D02D3408BC33CAFD69FA39AF541D18BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +603,8 @@ magnet:?xt=urn:btih:DC21F257D02D3408BC33CAFD69FA39AF541D18BB
 ```bash
 magnet:?xt=urn:btih:23EE7115E5A71A0E506970BC5D30B7B185E0B9BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +631,8 @@ magnet:?xt=urn:btih:23EE7115E5A71A0E506970BC5D30B7B185E0B9BE
 magnet:?xt=urn:btih:247D92DC62EF7ABD7B1F65C8F744190FFFC1AA23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +657,8 @@ Udemy, Bogdan Stashchuk | MongoDB - Полный Курс по MongoDB (2024) WE
 magnet:?xt=urn:btih:3B82C8AD4939DBB7B79260D78BDA028690B76C0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ magnet:?xt=urn:btih:3B82C8AD4939DBB7B79260D78BDA028690B76C0C
 ```bash
 magnet:?xt=urn:btih:041793FA9512B2028D68856146DA90C8BB57BBA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +711,8 @@ Skillbox | Профессия Аналитик 1С (2024) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:61D3445A7C83F25A4A6B6A97366AD2F38DC3473D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

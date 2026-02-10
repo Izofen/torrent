@@ -21,6 +21,8 @@ Henri Tomasi - Symphonic Poem "Tam-Tam" (for chorus, soloists and orchestra)
 magnet:?xt=urn:btih:94FFD597F52B7F68187E8F7FC724B570CB5B59FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Prima Parte
 ```bash
 magnet:?xt=urn:btih:5D2B3EFEFB5C767D3304670FE3A491CB1DA0A999
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ VA - Piano Classics - Relaxing Classical Music (2021) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:4A68607B80C07E143A70F52740411516E30CFDA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ Ich habe genung in C Major, BWV 82:
 ```bash
 magnet:?xt=urn:btih:38A6BB7A887CA56DAAD7DCCFC9C539EDD7B6CA08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ Royal Philharmonic & Roqueville Orchestras - Soft Rock Hits (2008) Box Set, 3 CD
 magnet:?xt=urn:btih:7427588342BCFD01E569945CF27D4154263466A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ Andrey Denisov - Plays Bach (2019) [FLAC|Lossless|WEB-DL|tracks] <Classical Cros
 ```bash
 magnet:?xt=urn:btih:B9E74E00A4B1142076DF13279809474977F3BD9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Otavio de Assis Brasil (из Сан-Габриэль, Бразилия, г.р. -
 magnet:?xt=urn:btih:59F425893A074C5E63A856DB4A52622999997C95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +226,8 @@ Peter Donohoe - Mozart: Piano Sonatas. Volume 2 (2019) SOMM Recordings [FLAC 2.0
 magnet:?xt=urn:btih:2ED1E5A8F10BCE326AFD0171DD530F56D11D3594
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +254,8 @@ Mao Fujita - Chopin: Impromptus and Scherzos (2020) Naxos [FLAC 2.0|96/24|tracks
 ```bash
 magnet:?xt=urn:btih:691C720D7F2F7E8485713575C6EB361AB90409BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +286,8 @@ NeoBaroque делает эти находки слышимыми и предст
 magnet:?xt=urn:btih:23D4647130A7023034B4987D026378C801B16F6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +314,8 @@ Also Sprach Zarathustra, Op. 30, TrV 176
 ```bash
 magnet:?xt=urn:btih:4E90E3999452C924EC7435322885A2A5AA0767D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +344,8 @@ VA - Winter Mood - Sweet Melancholic Piano Music for a Winter Snowy Day (2021) [
 magnet:?xt=urn:btih:37728AF0107821FBE50609EE8FE5C355C76DAB34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -348,6 +372,8 @@ CD - 1:
 ```bash
 magnet:?xt=urn:btih:B8DB29C0AFBBE688C6408BE84756B6A00B0D6C12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +402,8 @@ Jef Martens - Building A Dream (2021) [FLAC|Lossless|WEB-DL|tracks] <Modern Clas
 magnet:?xt=urn:btih:80419808910DF6A73DC5C7DE8F8D05A9895FD618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +430,8 @@ Lindsey Stirling - Warmer In The Winter (2017) Japanese Edition [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:EEAE6D041A307FA342993715E294A9FAD4345652
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +460,8 @@ VA - Pavarotti: Puccini, Verdi & Donizetti (2023) [FLAC|Lossless|WEB-DL|tracks] 
 magnet:?xt=urn:btih:67AC8D0FBE7BBEB062C02E74F597D15FAEFD2EB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +488,8 @@ Ilya Beshevli (Илья Бешевли) - Touch of Miracle (2019) [FLAC|Lossless
 ```bash
 magnet:?xt=urn:btih:F5A4F8388D3E0C509ACDFA184F443EED1EDEF3E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +518,8 @@ Ilya Beshevli (Илья Бешевли) - Deja Vu (2018) [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:9F886B6243445C42E0B9420A7C1CF707EF0187FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +546,8 @@ Ilya Beshevli (Илья Бешевли) - Wanderer (Deluxe Edition) (2016) [FLAC
 ```bash
 magnet:?xt=urn:btih:0AD95FCC4EE8C72FCEFD7D195BA5F2C2CF26AECD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +576,8 @@ Symphony No. 6 In G Major 'Le Matin'
 magnet:?xt=urn:btih:34A0B5951E9CE230B0241E1CFFBC0F9EA4706925
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +604,8 @@ Schubert - Rosamunde (Elly Ameling, Kurt Masur) (1985) [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:AB4C84A4F58AA33543419F701A713DBC4EC60BED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +634,8 @@ The Neon Philharmonic Orchestra - Switched On Classics (1995) [FLAC|Lossless|ima
 magnet:?xt=urn:btih:CE6109F734F4DBD3DE9CC2D9D4BB7F2681188C20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +663,8 @@ VA - Metal Opera (1991) [FLAC|Lossless|image + .cue] <Classical>
 magnet:?xt=urn:btih:F731FE80BEC5E39396D1FF16FD10A26450E4CFCC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +691,8 @@ Symphony No.3 In A Minor, Op.56 "Scottish"
 ```bash
 magnet:?xt=urn:btih:422B2F7CC2AE81E0C19B436070359C63C3FF5CD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -675,6 +723,8 @@ magnet:?xt=urn:btih:422B2F7CC2AE81E0C19B436070359C63C3FF5CD9
 magnet:?xt=urn:btih:682047CBB32775DDD1B93989EF7A3C0705C68DB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -701,6 +751,8 @@ VA - Relaxing 2021 [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ```bash
 magnet:?xt=urn:btih:43CF3FA0A6501D28C0AFCABF86AE822688AB87DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

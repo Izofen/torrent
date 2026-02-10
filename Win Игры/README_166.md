@@ -19,6 +19,8 @@ Frontier Hunter: Erza's Wheel of Fortune совмещает элементы п�
 magnet:?xt=urn:btih:99765897F51701D3798D277B2617D2BDA8ADD360
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tony Hawk's Pro Skater 1 + 2 (2023) [Multi] (20231109/dlc) Scene Tenoke [Digital
 ```bash
 magnet:?xt=urn:btih:5E7103EA0EC39C598896C417453121F1C35D8984
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Sacred Acorn – откройте двери в уютное Souls-прик�
 magnet:?xt=urn:btih:53062077EF18A7E41631259DD185C6378B985141
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Gym Simulator 24 - виртуальный тренажерный зал, кот�
 ```bash
 magnet:?xt=urn:btih:42B36841C17C3094D4F157244D974229C4117971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Crash Time - Undercover – отправьтесь навстречу безос
 magnet:?xt=urn:btih:D225FDDE4AB36FA17734DD91D0E3BB610C822E06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Esports Godfather (2024) [Multi] (1.3.21) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:98F4A568D8C54CAF769995C9C83D8CDD3C94FAC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Spirits of The Silicium Forest – карточная игра с примесь
 magnet:?xt=urn:btih:5200CC71C4C64F90B1AAC28F7F067D2E1B963295
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Beat Hazard 3 (2024) [Ru/Multi] (1.016) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:16852BDE4339BC3D8E598C045C9E98990B06110A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Dungeons of Hinterberg - это не типичный данж-кролл. Ко�
 magnet:?xt=urn:btih:266FCC9B7787BD31662762B9AB5560118C776085
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Borderlands 3, всеми любимый «шутер с базиллионам�
 ```bash
 magnet:?xt=urn:btih:8064491B3433333CCB78FEA7FF79F1703193C6F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Forza Horizon 5 – продолжение популярной гоночной
 magnet:?xt=urn:btih:69AF920A005371F5471FCFE1F7F82137D04F4E43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Harvest Days: My Dream Farm (2022) [Multi] (1.0.0-dsp/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:8F3912DCAE0B47C7B73EC1A7041C38FB5269A10A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Legend of Heroes: Trails through Daybreak (2023) [Multi] (1.3.5/dlc) License
 magnet:?xt=urn:btih:41D5FA5F561FF49E5B0512B98BC54A90407C4413
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Batman: Arkham Knight торжественно завершает знамени
 ```bash
 magnet:?xt=urn:btih:1FDF8CEA79465DB51B27CF9F181FC3D43792598E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Moons of Ardan (2021) [Multi] (0.11.0.16) License GOG [Early Access]
 magnet:?xt=urn:btih:6D30D7B722BDDFFAFC50109AF69D86E5DFFBB83D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Etera (2024) [En] (1.0.0) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:4128250015C3F9D687A5FC518B9DD265E1F7C1EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Riviera: The Promised Land - это не совсем обычная ролев�
 magnet:?xt=urn:btih:95DB03267416DF6F03731471653B893B54291702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ The Longing можно сразу назвать игрой уникальной
 ```bash
 magnet:?xt=urn:btih:10595FD892B054EF7C3CFEFB4C62B356599ABD1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Nine Sols (2024) [Multi] (b7ca1880) Scene Rune
 magnet:?xt=urn:btih:BCFB4E4471D173E8C276D49B7F162F9799261C94
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Nobody Wants to Die с головой окунает вас в Нью-Йорк �
 ```bash
 magnet:?xt=urn:btih:54EA9AA81242A0CC7C38DA4CA25A8B7A11859073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Sniper: Ghost warrior 2 - продолжение нашумевшего поль
 magnet:?xt=urn:btih:8A4C1A6D4A04D045E98A6A6137616ACC7B5ED233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Succubus позволит игроку стать сексуальным и оп
 ```bash
 magnet:?xt=urn:btih:A4E336690C2D72553BF01829244C559F6D87E05B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Double Dragon Gaiden: Rise Of The Dragons отправляет в захваты
 magnet:?xt=urn:btih:B683D0468B0C23282F6B1A20FD70C16324849A5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Blood Bowl III (3) (2023) [Ru/Multi] (1.5.3.0/dlc) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:3B1F93036E7A687E5F73CF4328B51B128D18B82F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Tekken 8 - продолжение культового файтинга, нап�
 magnet:?xt=urn:btih:19E0381EF70D89C17129A04D1E6291D125C71FD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Raw Metal (2024) [En] (1.1.1) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:1D4721AD1CFAAD0DA35F23710700E036247F225C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

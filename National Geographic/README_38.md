@@ -19,6 +19,8 @@ NG Потерянный рай Африки / Africa`s Lost Eden (2009) HDTVRip 
 magnet:?xt=urn:btih:5AF08BD658A5E913006123A2A092CE611BE52EB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG. Тайны истории. Распутин / Mystery Files. Rasputin (2009)
 ```bash
 magnet:?xt=urn:btih:0A59D89233BB7978E3DC8DCEDE978AA93663ABB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ National Geographic: Рождение Европы (3 серии из 3) / Natio
 magnet:?xt=urn:btih:077DDBB2A8DBE4E9D6C849CCD26EFBCCB0DDF030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ National Geographic. Кошка будущего / Future Cat (2014) HDTVRip [H.
 ```bash
 magnet:?xt=urn:btih:90B4257C77DB98C3FC2C6BA44C1D90EF8D5EB2F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:90B4257C77DB98C3FC2C6BA44C1D90EF8D5EB2F6
 magnet:?xt=urn:btih:D10532C7CE153EA17A6BAC032CD32E27E8F82973
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ NGW. Рождение прайда / Birth of the pride (2018) HDTV [H.264/1080i
 ```bash
 magnet:?xt=urn:btih:FCF8287BFD36BC1BE76D9750CEAEE1AB9E5164FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Nat Geo Wild: Землеройка-убийца / Killer Shrew (2014) HDTVRip [H
 magnet:?xt=urn:btih:E44B19A631B5C6EEEFB9A26B44991803479F35B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NG. Погружение в царство тигровых акул / Dive to T
 ```bash
 magnet:?xt=urn:btih:2C994B3A20603FA67CD359357F7611961A6E216A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NG. С точки зрения науки: Танки - железные вои�
 magnet:?xt=urn:btih:FD5473561DE47750359EF7464B4A92D7B4236E18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ NG.Запреты: Странные синдромы (сезон 9, серия 1
 ```bash
 magnet:?xt=urn:btih:4A473FBEF8A004C8EBC0654B9B23361E6D5E7C82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NG. Смертельно опасная дюжина. Австралия / World
 magnet:?xt=urn:btih:1543594465AAE9D5F952067BBC00324CA040605F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 magnet:?xt=urn:btih:D9BBB4DC6B95B3F614B61865BA44B6759ECEFFEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ NG:В пещере кристаллов / National Geographic. Into The Crystal 
 ```bash
 magnet:?xt=urn:btih:1AFCE737924FE2C9CFF139BB250858B04A669409
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +358,8 @@ NG: Спасение старейшей пирамиды Египта / Saving E
 magnet:?xt=urn:btih:F668AF378FD82E9FDE31D3663000CDF9A0EE0888
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +383,8 @@ NG: Спасти Титаник: сокровища с глубины / Save the
 ```bash
 magnet:?xt=urn:btih:9F0FDAD63A6C4A733A3F3DFBF017DF816B13C2D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +410,8 @@ NG: Океан без воды / Drain the Ocean (2009) SATRip
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +435,8 @@ NG: Continent 7 Antarctica / Седьмой континент Антаркти�
 ```bash
 magnet:?xt=urn:btih:707449572CE8B0F5FED964EC3F43DBD87DAC2B6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +462,8 @@ NG. Загадки королевской кобры / Secrets of the King Cobra
 magnet:?xt=urn:btih:EBBE592B553647A563663300CCE4040589A75CEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -451,6 +487,8 @@ NGW. Болотный отряд (Павианы Окаванго) / Swamp Troop
 ```bash
 magnet:?xt=urn:btih:07259D5AD0699ADF40ABC794683412666E2B394D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +515,8 @@ NG. Самые опасные змеи в мире / World's deadliest snakes (2
 magnet:?xt=urn:btih:374B105733F7963FDE3FC097D0E066753D85148C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ magnet:?xt=urn:btih:374B105733F7963FDE3FC097D0E066753D85148C
 magnet:?xt=urn:btih:D94C6A99D6280D6C80570554647F772EC15F6FFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ NG. Рождение Европы / Birth of Europe (2011) BDRip [H.264/720p] [3
 magnet:?xt=urn:btih:AAC1DBFC187138EEC0D17DC8F97B2DE3ED1F59A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ NG: Миссия полета к Солнцу / Mission to the Sun (2018) IPTVRi
 ```bash
 magnet:?xt=urn:btih:F33F873C0FA06A82339B4C6E1727261C56A6CEDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ Super Tanker Ричард раскрывает инженерные идеи, п
 magnet:?xt=urn:btih:677FC5EA8338766F9D91555AAEB8768381D98EB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ NG: Инженерные идеи с Ричардом Хаммондом (Сез
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ NG: Путешествие на край Вселенной / Journey to the Edg
 ```bash
 magnet:?xt=urn:btih:9D01A6E74A2E44DDFE9E5CABE2A0B469A355FCA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

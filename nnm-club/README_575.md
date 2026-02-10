@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9A293A0005955FA284B65D6D24D0F0751A1A4F78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ WinToUSB - позволяет устанавливать и запускать �
 ```bash
 magnet:?xt=urn:btih:674AF6954EE0368EA56857D70B8748C2B021CED5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:674AF6954EE0368EA56857D70B8748C2B021CED5
 magnet:?xt=urn:btih:89C7F78035D8F45CCFE78B845F095BC48BC5C5F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Dark Souls III продолжит испытывать игроков на пр�
 ```bash
 magnet:?xt=urn:btih:CA17364E31E0C17407711C9493EFEDC3B6C48C1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Rune Factory: Guardians of Azuma представляет восточную н�
 magnet:?xt=urn:btih:CD9D8EF7B2ED58D202F358752CE2630BAF6ECC7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Between Horizons - это крутой 2.5D приключенческий де�
 magnet:?xt=urn:btih:73605D2271F029E93F885040C7CB854E0BB91451
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +174,8 @@ magnet:?xt=urn:btih:73605D2271F029E93F885040C7CB854E0BB91451
 ```bash
 magnet:?xt=urn:btih:63AAA632DB115E54EB61C02B5E5D3F0283590EB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:63AAA632DB115E54EB61C02B5E5D3F0283590EB9
 magnet:?xt=urn:btih:CCC00D6D84376A6A688141408FAC59B25F8B12BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:CCC00D6D84376A6A688141408FAC59B25F8B12BD
 ```bash
 magnet:?xt=urn:btih:70033D656C756D393DF7CCDCF99B82E540550C1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Persona 3 Reload - Digital Premium Edition (2024) [PS4] (1.07 / DLC) License [Ru
 magnet:?xt=urn:btih:1878473AA157E93BCF8889CAB3CF908EAAF82048
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ WireGuard – современный и не требовательный к р�
 ```bash
 magnet:?xt=urn:btih:76F3B137F0B8FB77949F8D4C9DC4EB35B6E67599
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Felvidek – события этой JRPG-игры разворачиваютс�
 magnet:?xt=urn:btih:2EDF8EE1A42DE073CC97AFCB5759CC7924182137
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:2EDF8EE1A42DE073CC97AFCB5759CC7924182137
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:2EDF8EE1A42DE073CC97AFCB5759CC7924182137
 magnet:?xt=urn:btih:E2E899B3677BD44DAA5BBB4D92549E070CE713C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +384,8 @@ Arctico (2022) [En] (2.6w) License GOG
 ```bash
 magnet:?xt=urn:btih:62AB3DAED5DA1080CC157D8CA1409B2D1CF28404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +411,8 @@ Galacticare - это ваш шанс спасти галактику, заним
 magnet:?xt=urn:btih:5BEFA60FFF6864A0C383DF83A87719EFCB7BE6CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:5BEFA60FFF6864A0C383DF83A87719EFCB7BE6CB
 ```bash
 magnet:?xt=urn:btih:3FCF069BAB9A73DBDBD5C225F5A18ACB96891F6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:3FCF069BAB9A73DBDBD5C225F5A18ACB96891F6F
 magnet:?xt=urn:btih:344BEB895FC80EE264B2012BD3F2E227DE678039
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +488,8 @@ Nova Drift – экшеновое ролевое приключение с ви�
 ```bash
 magnet:?xt=urn:btih:2398E562F951826646D68066EBFC4D8C7072D1B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:2398E562F951826646D68066EBFC4D8C7072D1B8
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ Dustborn (2024) [Ru/Multi] (1.14/dlc) Repack LetsPlay
 magnet:?xt=urn:btih:2954B3200C3355E24047E4146DECC619EEDD4448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:2954B3200C3355E24047E4146DECC619EEDD4448
 ```bash
 magnet:?xt=urn:btih:847F868FA3D16075E1611B587A9B899D10DDC93A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ magnet:?xt=urn:btih:847F868FA3D16075E1611B587A9B899D10DDC93A
 magnet:?xt=urn:btih:DA611903BC3D1ABF97952318B02958D497AC13DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:DA611903BC3D1ABF97952318B02958D497AC13DA
 ```bash
 magnet:?xt=urn:btih:3A339C9F9D87C6C44EBF6BEA8A2DA4AA20A22DDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ Tainted Grail: The Fall of Avalon (2023) [Ru/Multi] (1.03/dlc) Repack Other s [S
 magnet:?xt=urn:btih:61958DD977126516A081180A5DF20D6F2EEA7FCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:61958DD977126516A081180A5DF20D6F2EEA7FCF
 ```bash
 magnet:?xt=urn:btih:C6972F04FB25DECB1362FB0ED8BF57F8DF795DC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

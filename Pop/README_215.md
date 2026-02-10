@@ -1,3 +1,148 @@
+###  Публикация: 1548576   (597903) от 03.05.2022
+
+Demis Roussos & We Five - Demis Roussos & We Five (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_597903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demis Roussos - When a Man Loves a Woman [00:02:41]
+02. We Five - Wild Thing [00:03:53]
+03. Demis Roussos - Black Is Black [00:04:01]
+04. Demis Roussos - Paint in Black [00:02:33](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD247BD75D163AF7CD6F69FEA47C4F1619B73AF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548733   (598364) от 03.05.2022
+
+VA - Tani-Disco Rumba & Flamenco Boogie 1976-1979 (2018) CD [MP3|320 Kbps] <Disco, Rumba, Flamenco, Boogie>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sangre Gitana - Yo Me Siento Muy Feliz (2:32)
+02. Rumba Tres - Y No Te Quedan Lagrimas (2:36)
+03. Los Gachos - Estrella (4:20)
+04. Tobago - Oye Chiquilla (3:46)(   Читать дальше...   )Жанр: Disco, Rumba, Flamenco, BoogieПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71700F751BEABDE1050AEC4188E1EE2587142421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149955   (598519) от 12.07.2017
+
+Jo Bisso - 3 Albums (1976-1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598519.jpg" />
+</div>
+
+
+###  Подробнее
+
+Французский студийный диско проект второй половины 70-х с исполнителями родом из Африки:  Joan Bee & Mulamba.Список альбомов:
+1976 - Disco Amour, Tonight
+1977 - Love Somebody
+1978 - Disco Queen(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 01:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2F5E2D65B9DA58B34CF447325DDD1DA5E95C470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149761   (598531) от 12.07.2017
+
+USS (Ubiquitous Synergy Seeker) - New World Alphabet (2017) [MP3|320 Kbps] <Alternative Pop, Electronic Rock, Drum'n'Bass>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Work Shoes
+02. Who's With Me
+03. Domino
+04. California Medication(   Читать дальше...   )Жанр: Alternative Pop, Electronic Rock, Drum'n'Bass, Electropop, Hip-HopПродолжительность: 00:26:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D648B10E10F13822C45271468699BD33CB21E57A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149771   (598626) от 12.07.2017
+
+USS (Ubiquitous Synergy Seeker) - Approved (2011) EP [MP3|256 Kbps] <Alternative Pop, Electronic Rock, Drum'n'Bass>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_598626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yo Hello Hooray (Everyday)
+02. Damini
+03. Heaven On Mars
+04. Prefontaine(   Читать дальше...   )Жанр: Alternative Pop, Electronic Rock, Drum'n'Bass, Electropop, Hip-HopПродолжительность: 00:25:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:095F0DFBCF1EC2218AC2BD58CEB111A63E3D020A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149832   (598634) от 12.07.2017
 
 USS (Ubiquitous Synergy Seeker) - Advanced Basics (2014) EP [MP3|320 Kbps] <Alternative Pop, Electronic Rock, Drum'n'Bass>
@@ -21,6 +166,8 @@ USS (Ubiquitous Synergy Seeker) - Advanced Basics (2014) EP [MP3|320 Kbps] <Alte
 ```bash
 magnet:?xt=urn:btih:AF7C950879A64963FF6D4F4126E0E5A11F69BFFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +202,8 @@ Modern Talking - Milestones (2013) Compilation [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:C8A199147641AB2C0CABF9F41803CB727B3FFF40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -87,6 +236,8 @@ Silent Circle - Best Of Silent Circle (1991) [FLAC|Lossless]<Euro-Disco, Synht-P
 ```bash
 magnet:?xt=urn:btih:7C02E586984DF9EE4F2A4C4D8AB4DCFF92998EAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +272,8 @@ magnet:?xt=urn:btih:7C02E586984DF9EE4F2A4C4D8AB4DCFF92998EAA
 magnet:?xt=urn:btih:DA18F4875BA5E68132569F2258ED01FFE23CF0C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +306,8 @@ Modern Talking - Music & Video Stars (2013) [MP3|320 кб/с]<Pop, Eurodisco>
 ```bash
 magnet:?xt=urn:btih:0D5207E9845BD4AAF4CC7718B9B55CA4FCE104EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +342,8 @@ magnet:?xt=urn:btih:0D5207E9845BD4AAF4CC7718B9B55CA4FCE104EF
 magnet:?xt=urn:btih:492DFC009C9744191A9A313355BCDFDE63590C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +370,8 @@ magnet:?xt=urn:btih:492DFC009C9744191A9A313355BCDFDE63590C49
 ```bash
 magnet:?xt=urn:btih:943DA3C2C86CDFCFBE379BB220B68C81243B5A64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +400,8 @@ magnet:?xt=urn:btih:943DA3C2C86CDFCFBE379BB220B68C81243B5A64
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +428,8 @@ Dzidzio (Дзідзьо) - 3 Albums + 1 Remix + 10 Singles (2012-2022) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:5B424491D9F38EFCBDFCA5F0C4470C40CC2DC50D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +458,8 @@ VLNY - Помни (2015) [MP3|320 Kbps] <Indie Pop, Synth Pop, Dream Pop>
 magnet:?xt=urn:btih:A69A5714269E901CADF5FCE84ED2E48E32819B73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +486,8 @@ Bee Gees - Living Eyes (1981) 1983, RSO [FLAC|Lossless|image + .cue] <Pop, Pop R
 ```bash
 magnet:?xt=urn:btih:6A70D1E26095DD2B572906F5FB0B3AD3F6E972E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -349,6 +516,8 @@ VLNY - Откровения (2014) [MP3|320 Kbps] <Indie Pop, Dream Pop, Acousti
 magnet:?xt=urn:btih:00EEDCC1A3A2253D26B7644A7BFF02462AD68F7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +544,8 @@ Kasso - 2 Albums (1982, 1984) [MP3|320 Kbps] <Electronic, Disco>
 ```bash
 magnet:?xt=urn:btih:E70271813E41CC330826057E349C35F476C89EE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +574,8 @@ David (Dato) Khujadze/Давид (Дато) Худжадзе - Sand Dream (2005)
 magnet:?xt=urn:btih:DCB6F4ED5227F7EDB5D50801BA31D60B8D161FE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +602,8 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:90E1ABCDCA9B29F2CD5774C2CFFAD0FA56F5FCAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +632,8 @@ Eruption - The Best Of Eruption (2017) Reissue, Remastered [FLAC|Lossless|image 
 magnet:?xt=urn:btih:2AB2F1D6A001937B86C119D9BFBC8645093343C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +660,8 @@ Modern Talking - Les Essentiels (2002) [FLAC|Lossless|tracks + .cue] <Euro-Disco
 ```bash
 magnet:?xt=urn:btih:636F0CA4E86D35595C14D94451ECB035AEF60385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +690,8 @@ magnet:?xt=urn:btih:636F0CA4E86D35595C14D94451ECB035AEF60385
 magnet:?xt=urn:btih:9ECD7B1F78A4883262BE3B334489B0BC78DB7ED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +718,8 @@ VA - Ballerina: The Tribute to Shanghai (2017) [MP3|320 Kbps] <Synth-pop, Italo-
 ```bash
 magnet:?xt=urn:btih:3AF58BBF04083B953A438BDECAF06FAB332ED436
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +748,8 @@ magnet:?xt=urn:btih:3AF58BBF04083B953A438BDECAF06FAB332ED436
 magnet:?xt=urn:btih:68C376045D6BC2D4148CBF6D8C00F4D6B08FA543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,140 +777,7 @@ Disc 1
 magnet:?xt=urn:btih:BFB5B5C1B9C6A0FE2104AD57601B3D5844541712
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149659   (600242) от 11.07.2017
-
-Will Tura - The Real... Will Tura (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600242.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Eenzaam zonder jou
-02. Draai dan 797204
-03. Je liegt(   Читать дальше...   )Жанр: PopПродолжительность: 03:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9831A7F131613CE87ADFC5C145EC804115A250A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298760   (600753) от 30.04.2019
-
-Marina - Love + Fear (2019) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Handmade Heaven (03:29)
-02. Superstar (03:53)
-03. Orange Trees (03:07)
-04. Baby (03:25)(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A49B9DE11FC4DC38351E27148EF8C8E662BB2FC
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299076   (600763) от 30.04.2019
-
-группа Гуляй Россия! – Гуляй Россия! часть I (1999) [FLAC|Lossless|image + .cue]<Pop, Folk>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. У самовара
-02. Блины ( Дуня )
-03. Марфуша
-04. Надя(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E84860801590313F7BE026E6E366804901B2B5DE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548103   (600896) от 01.05.2022
-
-VA - Pure Acoustic 2022 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_600896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lauren Spencer-Smith - Fingers Crossed
-02. Becky Hill - Remember (Acoustic)
-03. Vanessa Carlton - A Thousand Miles (Acoustic)
-04. Us The Duo - Better Together(   Читать дальше...   )Жанр: PopПродолжительность: 02:22:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DC4A2DAB0937BEAFB75A5AC23F1641CE53AFB9D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149336   (601163) от 10.07.2017
-
-Atmosfear - En Trance (1981) Reissue CD, Discotheque, 2005 [MP3|320 Kbps] <Electronic, Future Jazz, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_601163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Tonight (7:28)
-02. Duende (5:57)
-03. Creators Dream (8:46)
-04. Interplay (5:34)(   Читать дальше...   )Жанр: Electronic, Future Jazz, DiscoПродолжительность: 01:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71BDEBB9789024BF4A029928E7BDCAFD2964FDD3
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

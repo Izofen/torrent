@@ -19,6 +19,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:2E222375D3F7E8D7EF8F2F8C52DA755F889CE589
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Topaz Gigapixel AI — это приложение, использующее с�
 ```bash
 magnet:?xt=urn:btih:F3DC63A8BB5E087D0D5DEEF1646304FE462AA8BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Topaz A.I. Gigapixel — это приложение, использующее �
 magnet:?xt=urn:btih:DC57BD75C5F745A63FDCABC74058787CEBEF10CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Any Video Downloader Pro - это приложение для Windows, кото�
 ```bash
 magnet:?xt=urn:btih:A52A91A344A75312619C971831BE36779D1D1A45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ CoolUtils Total Image Converter преобразует изображения в
 magnet:?xt=urn:btih:318ED9D59F765CDE07E7E5FCA58B51FE81473EE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ VK Музыка: песни и подкасты v7.8.1 Mod by VK Equals [Ru/En]
 ```bash
 magnet:?xt=urn:btih:41A684A61E81CB7436A79FB43968BB179101F4EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +177,8 @@ Smart AudioBook Player Pro v11.2.0 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:9741913AA773B9CCAAFCBF68F8D12B8019E5C05D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:8B655152824F3BEC51846E7D657BAAAC5440980C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 ```bash
 magnet:?xt=urn:btih:97DCB19786FC3ACFC768BC49D760DD780A1DA649
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ RisohEditor позволяет добавлять, редактировать, �
 magnet:?xt=urn:btih:82AB8DF8DFFF9E07B9C77D70C2280BDE3927DACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ Rainmeter - утилита для мониторинга ресурсов ком
 ```bash
 magnet:?xt=urn:btih:DBB6E5B2A7472D9C4384EDFAE2C98473B80C4B70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -287,6 +309,8 @@ RAM Saver Pro - инструмент для профессионального �
 magnet:?xt=urn:btih:F19B7EDE12C99C2CFDE3311E6FE4704982591B5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:F19B7EDE12C99C2CFDE3311E6FE4704982591B5F
 ```bash
 magnet:?xt=urn:btih:0991DF7A6C90B287AC155EE60D80B4637D06A2AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:0991DF7A6C90B287AC155EE60D80B4637D06A2AF
 magnet:?xt=urn:btih:B525E0738A760D47405AE0FEBD8281AF02070900
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Wise Care 365 – программный пакет, предназначенн�
 ```bash
 magnet:?xt=urn:btih:144D4E18EAD074A53B01FDB13E8A3FA2C03CF90F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Hard Disk Sentinel — отличная программа для монитор
 magnet:?xt=urn:btih:1CB903AA7F3F84C119BCF2BE46C87F19DCBF66CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ magnet:?xt=urn:btih:1CB903AA7F3F84C119BCF2BE46C87F19DCBF66CD
 ```bash
 magnet:?xt=urn:btih:D1B32E290B7F4692B4A57F7D93905C30BD1370C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ MemTest86 - бесплатная программа, позволяющая пр
 magnet:?xt=urn:btih:C3D9D381F223EA3B99327014B86AE6ED1734B547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:C3D9D381F223EA3B99327014B86AE6ED1734B547
 ```bash
 magnet:?xt=urn:btih:5E9D59C11CA179D16309F02D27C461EF5F045F72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:5E9D59C11CA179D16309F02D27C461EF5F045F72
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:5E9D59C11CA179D16309F02D27C461EF5F045F72
 magnet:?xt=urn:btih:840E7C0ED5B7127ADD2BFE07987FF7B2465A86DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ Movavi Video Editor – универсальный инструмент для �
 ```bash
 magnet:?xt=urn:btih:DB9A564BAAD534C52EFCD35BAC10A18649FD5D34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:DB9A564BAAD534C52EFCD35BAC10A18649FD5D34
 magnet:?xt=urn:btih:B4CEE2AF1D36573F991F650CA247C504047598ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ magnet:?xt=urn:btih:B4CEE2AF1D36573F991F650CA247C504047598ED
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:B4CEE2AF1D36573F991F650CA247C504047598ED
 magnet:?xt=urn:btih:13DC91BF28655191872B5914AA284A493CC4612A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ XYplorer – удобный многовкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:CF3C6ABD3BE03AAEF8583875861F528A32C9FC8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

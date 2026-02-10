@@ -20,6 +20,8 @@ MWeb поддерживает расширенный синтаксис Github: 
 magnet:?xt=urn:btih:B5170670DEA963176553FAB5280CBDEE526F0023
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:B5170670DEA963176553FAB5280CBDEE526F0023
 ```bash
 magnet:?xt=urn:btih:966A95CC363828F152CC9F1E91314C6C2BAEB556
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:966A95CC363828F152CC9F1E91314C6C2BAEB556
 magnet:?xt=urn:btih:03F56E769292DD7A6E1A1E736B8344F01ABEF69B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:03F56E769292DD7A6E1A1E736B8344F01ABEF69B
 ```bash
 magnet:?xt=urn:btih:7452C9357C098EDB5A5530071D5B5FB8B8C0EED3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ AMD Radeon Software Adrenalin 2020 Edition представляет собой �
 magnet:?xt=urn:btih:0CDFC3CBA18A88F52CDBF858135617B6492DEAB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ IrfanView - компактная и в то же время мощная про�
 magnet:?xt=urn:btih:F42C251D4EB960D5CADBEFD4920E436E3D96B592
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:F42C251D4EB960D5CADBEFD4920E436E3D96B592
 ```bash
 magnet:?xt=urn:btih:6530FF1A3F1FFB882269BF651EA28FB3BC90ACDF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ updated_oct_2023_x64_dvd_eb811ccc.iso
 magnet:?xt=urn:btih:6A247246F2A80349DE1536FE22B7CF8697EBFD20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ Wolftooth - Blood & Iron (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:6FDFEC713804C48DADBDC0DC18221448883F6F20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:6FDFEC713804C48DADBDC0DC18221448883F6F20
 magnet:?xt=urn:btih:47027563BCE348BCA9D5A73282E2A53DF4CB74B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +288,8 @@ magnet:?xt=urn:btih:47027563BCE348BCA9D5A73282E2A53DF4CB74B6
 magnet:?xt=urn:btih:E754889F312FF32569E32655261D37DD6DE744E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:E754889F312FF32569E32655261D37DD6DE744E1
 ```bash
 magnet:?xt=urn:btih:5A57D0393F3C7AC4A91E882867ABDE022A9EB2E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ Visigoth - Conqueror's Oath (2018) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:48C58BC9A5BDEBD453C2D51EA4C87E1A9B57E9A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ Tool - Opiate (1992) [AAC|~341 Kbps] <Hard Rock, Metal>
 magnet:?xt=urn:btih:71E801613520FA8C9BFFDAD181ECEF36F0BE8EAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +397,8 @@ magnet:?xt=urn:btih:71E801613520FA8C9BFFDAD181ECEF36F0BE8EAC
 ```bash
 magnet:?xt=urn:btih:C8529622700284CB8A049E0C08A40171CE9A07A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:C8529622700284CB8A049E0C08A40171CE9A07A4
 magnet:?xt=urn:btih:9D6E947F7B09FE0BE641DF5A74D864BC3C80B7CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +449,8 @@ magnet:?xt=urn:btih:9D6E947F7B09FE0BE641DF5A74D864BC3C80B7CB
 ```bash
 magnet:?xt=urn:btih:C4B1C60126C8D8006D59012C466B102BE45A21CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ Yate был разработан для людей, которые серьез�
 magnet:?xt=urn:btih:B45AD99BCE05CBAFAB3DBF6843660A58E217659E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:B45AD99BCE05CBAFAB3DBF6843660A58E217659E
 ```bash
 magnet:?xt=urn:btih:762FE8AA8BD64EB7148BC1D0ACB445BAD2E32412
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -497,6 +535,8 @@ VA - Сегодня на радио хиты FM Vol.10 (2020) [MP3|320 Kbps] <Po
 magnet:?xt=urn:btih:F45351492F75B1FA8AC51C832EED3E01A4701655
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ magnet:?xt=urn:btih:F45351492F75B1FA8AC51C832EED3E01A4701655
 magnet:?xt=urn:btih:1711810A2BC7AE876936DE9E5BB74BA9E0BCCB74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +587,8 @@ SoftMaker Office Professional 2021 rev. S1060.1203 (x64) Portable by 7997 [Multi
 ```bash
 magnet:?xt=urn:btih:F6C942FC1B7DA5FAA0AEB3638D0335ECB0F44139
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +617,8 @@ Project Blue Sun - Oriental Touch (2021) [AAC|~333 Kbps] <Lounge, Chill Out, Dow
 magnet:?xt=urn:btih:FB0170F5409BBEDA16C2F90DD233AC56A3CC8AFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ magnet:?xt=urn:btih:FB0170F5409BBEDA16C2F90DD233AC56A3CC8AFF
 magnet:?xt=urn:btih:2A5F341EC0FCB50080AA11F9A999F0795312E147
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ simplewall 3.0.9 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:9102B9623A4B43B3247362CAC5ECE29430A2F091
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ magnet:?xt=urn:btih:9102B9623A4B43B3247362CAC5ECE29430A2F091
 ```bash
 magnet:?xt=urn:btih:0719B6E5C63197470531CD55883E1B1FDF1932EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

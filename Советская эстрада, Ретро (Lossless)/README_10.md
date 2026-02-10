@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:FDBD49F22C5A88F94DC04448569F69D72C0C0702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ magnet:?xt=urn:btih:FDBD49F22C5A88F94DC04448569F69D72C0C0702
 ```bash
 magnet:?xt=urn:btih:59D71BA39F78C33D032FC3F4417B7954C4E55693
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:59D71BA39F78C33D032FC3F4417B7954C4E55693
 magnet:?xt=urn:btih:5BA3A9647D46EF1B7151569007482A0616DEBCEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Щит и меч России-Песни горячего сердца (199
 ```bash
 magnet:?xt=urn:btih:256184C26AD5DDDE026B856BD42C42E1C4902B0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ magnet:?xt=urn:btih:256184C26AD5DDDE026B856BD42C42E1C4902B0B
 magnet:?xt=urn:btih:E12A3E96CE38F498F023F458D0E6F777DAB40F5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Созвездие хитов. Застольные песни 1. (2004) [F
 ```bash
 magnet:?xt=urn:btih:BB28D9702236708668F9BA7242E5123A63A89CEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:BB28D9702236708668F9BA7242E5123A63A89CEF
 magnet:?xt=urn:btih:AB78D0D732BE2D9C67DEED0CC8234A6720E966A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:AB78D0D732BE2D9C67DEED0CC8234A6720E966A2
 ```bash
 magnet:?xt=urn:btih:88DFE1B7D6A4695922D7A161758C3ABD45B3051E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:88DFE1B7D6A4695922D7A161758C3ABD45B3051E
 magnet:?xt=urn:btih:153D779FD814F9359164EE17F159ABB7EDF50207
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ magnet:?xt=urn:btih:153D779FD814F9359164EE17F159ABB7EDF50207
 magnet:?xt=urn:btih:EE41574536ADB747382FEF3AC91288C1EB2ADCC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +311,8 @@ magnet:?xt=urn:btih:EE41574536ADB747382FEF3AC91288C1EB2ADCC2
 ```bash
 magnet:?xt=urn:btih:7A936388BCCF485FB28C9C9CBC5C157A3E4E59FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

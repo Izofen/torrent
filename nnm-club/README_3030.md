@@ -28,6 +28,8 @@ Theodor Bastard - Oikuomene (2012) [MP3|320 кб/с]<Rock, Folk, Darkwave>
 magnet:?xt=urn:btih:9A66B199848D1339B4B472134E2F224F0B41A098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ magnet:?xt=urn:btih:9A66B199848D1339B4B472134E2F224F0B41A098
 ```bash
 magnet:?xt=urn:btih:3D134E794D8620BEF52B999A017C07F1EE8F6AC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ EOBD Facile - автосканер обд2 последнего поколени
 magnet:?xt=urn:btih:E5014E9C0A622FF93F99CE932B7927B4031904E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Strava: бег, велоезда, хайкинг v431.9 Mod by PieMods [Ru/Multi
 ```bash
 magnet:?xt=urn:btih:9EB5BB09B1B8F2C48031F9D09383FB4F5724325B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:9EB5BB09B1B8F2C48031F9D09383FB4F5724325B
 magnet:?xt=urn:btih:85E5517ED5FF50904F969CCF2377EB6319887D31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:85E5517ED5FF50904F969CCF2377EB6319887D31
 ```bash
 magnet:?xt=urn:btih:EBFF64055C09C1E07E534F261F1CD3FE56E57237
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -176,6 +188,8 @@ magnet:?xt=urn:btih:EBFF64055C09C1E07E534F261F1CD3FE56E57237
 magnet:?xt=urn:btih:DE8F7FBA6DC4447ED04B5A2BFF786FCE441B9C58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:DE8F7FBA6DC4447ED04B5A2BFF786FCE441B9C58
 magnet:?xt=urn:btih:E836D9E0EF68E5C5015C9118478B0A3F7D04011B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:E836D9E0EF68E5C5015C9118478B0A3F7D04011B
 magnet:?xt=urn:btih:F65DA3D2BF3564E3395AD73678322EBD6C05096E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:F65DA3D2BF3564E3395AD73678322EBD6C05096E
 ```bash
 magnet:?xt=urn:btih:A611707BAB41AC9A99421899929B77CCC4CA9089
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ Hypocrisy — шведская дэт-метал-группа, образова�
 magnet:?xt=urn:btih:45EDD972967DE30B65919EC0674281E68F29E04C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -300,6 +322,8 @@ Eclipsium (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:1ADA097D6C3544C54F671E5B1A7E16151C1B05B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +347,8 @@ magnet:?xt=urn:btih:1ADA097D6C3544C54F671E5B1A7E16151C1B05B2
 ```bash
 magnet:?xt=urn:btih:236335603377D782002E34BC7764E34B8D44E4B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +377,8 @@ Lester Young - The Lester Young Story (1936 - 1949) 4CD, 2000, Proper Records [F
 magnet:?xt=urn:btih:79563577E810F034776F312A689128DA3FCC7549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ magnet:?xt=urn:btih:79563577E810F034776F312A689128DA3FCC7549
 magnet:?xt=urn:btih:7CB0EF9C33C02DC0D00419C94FF155E101593C1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:7CB0EF9C33C02DC0D00419C94FF155E101593C1B
 ```bash
 magnet:?xt=urn:btih:8F0BD68CF23C95AA69CC1913145AE29E780C6AD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:8F0BD68CF23C95AA69CC1913145AE29E780C6AD0
 ```bash
 magnet:?xt=urn:btih:C9CD0EB0385DFFA2C2EE216DE20D4170529E85AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:C9CD0EB0385DFFA2C2EE216DE20D4170529E85AA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:C9CD0EB0385DFFA2C2EE216DE20D4170529E85AA
 magnet:?xt=urn:btih:E56001FEB085FC6E945D768124F5D57E8C218EB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:E56001FEB085FC6E945D768124F5D57E8C218EB9
 ```bash
 magnet:?xt=urn:btih:569BA8A4F16F871A84128D127E229009263E7A6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ Gaudium - Session Of Progression (2011) [FLAC|Lossless]<Psychedelic / Progressiv
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ Lange & Audrey Gallagher - Our Way Home (2012) HDRip [1080p]
 magnet:?xt=urn:btih:4F276F009004B571E2D4203BBE8B23B92AC6150F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:4F276F009004B571E2D4203BBE8B23B92AC6150F
 ```bash
 magnet:?xt=urn:btih:641A79A749B77375A946B655F15EA01A48E64F9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +660,8 @@ Massive - 1 More Time (2012) [MP3|320 кб/с]<Psychedelic/ Full On>
 magnet:?xt=urn:btih:D208C35AA954FFC47DFDCCBC1C7EDAD3535DEFC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +686,8 @@ RealRTCW - глобальная модификация для оригиналь
 magnet:?xt=urn:btih:7EB2843BD1EC484CE0003C2D843B3BB719FBBB65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +711,8 @@ magnet:?xt=urn:btih:7EB2843BD1EC484CE0003C2D843B3BB719FBBB65
 ```bash
 magnet:?xt=urn:btih:81C6E26D236450D9305FF4751813860C86B24BAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

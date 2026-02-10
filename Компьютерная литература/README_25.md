@@ -19,6 +19,8 @@ CUDA - вычислительная архитектура, разработан
 magnet:?xt=urn:btih:4739A041949B60DA23C2EFD961261C5636F12A45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:4739A041949B60DA23C2EFD961261C5636F12A45
 ```bash
 magnet:?xt=urn:btih:E3C7A9DF0E25B2FDD928A0668C70D28E4F2CB5E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:E3C7A9DF0E25B2FDD928A0668C70D28E4F2CB5E8
 magnet:?xt=urn:btih:3239B3B61BAB12E0C1107A90908A81E1EFE2C0DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:3239B3B61BAB12E0C1107A90908A81E1EFE2C0DE
 ```bash
 magnet:?xt=urn:btih:07C4F45A292ECB09067CDD47B9FA270E80E59F8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:07C4F45A292ECB09067CDD47B9FA270E80E59F8C
 magnet:?xt=urn:btih:04A7CC14DAFC506A57F2E2B19372D832716FED6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:04A7CC14DAFC506A57F2E2B19372D832716FED6F
 ```bash
 magnet:?xt=urn:btih:8D9B628B8268CEAD96BAB113E327DE0A1D1B8682
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Musa Arda | Hands-On Python / Практический Python (2022) [EPUB] [En]
 magnet:?xt=urn:btih:1F816DAB95E7E85756E1EA72F459E230596E1959
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:1F816DAB95E7E85756E1EA72F459E230596E1959
 ```bash
 magnet:?xt=urn:btih:1BA54A8ED7988649A28D5BE4B1C6DA443AA1DF3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:1BA54A8ED7988649A28D5BE4B1C6DA443AA1DF3B
 magnet:?xt=urn:btih:E318751C242A759CA8A3E6C11113E434A28A458C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:E318751C242A759CA8A3E6C11113E434A28A458C
 magnet:?xt=urn:btih:9E3FDD692625CF4BD3FD667C02C9B678EA8ACDF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ Master the Spring Framework, its fundamentals and core topics, and share the aut
 ```bash
 magnet:?xt=urn:btih:747C24716AADBC7E33814276A9626CF7CB45FE07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:747C24716AADBC7E33814276A9626CF7CB45FE07
 magnet:?xt=urn:btih:1898682A549745DAAD3768C285DBA6A891BE59FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:1898682A549745DAAD3768C285DBA6A891BE59FE
 ```bash
 magnet:?xt=urn:btih:E64C41F25B8AF9D63F9653CF7FD853E420D4BF27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ magnet:?xt=urn:btih:E64C41F25B8AF9D63F9653CF7FD853E420D4BF27
 magnet:?xt=urn:btih:4DE325F0C0C817F19226561F5F9062F02E83847F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ JavaScript, безусловно, является одним из наибол�
 magnet:?xt=urn:btih:6DD7DFEA1FAFF46B2FC08C71AEA2CEB5910C1C4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Shing Lyu, Andrew Rzeznik | Practical Rust Projects, 2nd Edition (2023) [PDF][EN
 magnet:?xt=urn:btih:52976C819F190DBA46E9E89EC7DD62E8CE97DE3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +445,8 @@ Python - бесплатный, с открытым исходным кодом, 
 ```bash
 magnet:?xt=urn:btih:6B9B32583578E4A596E56782F973E86009B20F95
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +474,8 @@ Sufyan bin Uzayr | Mastering SQL: A Beginner’s Guide (2023) [PDF][EN]
 magnet:?xt=urn:btih:14DCC4FC2B7C4BB11C074AA1F469A800B28C699E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +499,8 @@ Pedro Igor Silva | Keycloak – Identity and Access Management for Modern Applic
 ```bash
 magnet:?xt=urn:btih:2ADA4E0EDBFEBE9224832D64AD1F15EAB1D5E946
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +526,8 @@ Joshua M Willman | Beginning PyQt, 2nd Edition (2022) [PDF][EN]
 magnet:?xt=urn:btih:F03820A8DA3862CA398323F3F57109FD2E2E8426
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ Patrick Hall, James Curtis | Machine Learning for High-Risk Applications (2023) 
 ```bash
 magnet:?xt=urn:btih:25F7DF4A6C84C5ED03009C02CE43754D221A9A41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ Peter Royal | Building Modern Business Applications (2022) [PDF][EN]
 magnet:?xt=urn:btih:4E513004599AF3E5A1DB2C35C62A9470F24AE7D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:4E513004599AF3E5A1DB2C35C62A9470F24AE7D6
 magnet:?xt=urn:btih:0E05285852FA5ED839F8A51A5BA56CF02A9F02D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ ABBYY FineReader PDF 15 — это универсальный инструмен
 ```bash
 magnet:?xt=urn:btih:A1230B7464D32DA4FBD6A34CC3C48280ADD4EC96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:A1230B7464D32DA4FBD6A34CC3C48280ADD4EC96
 magnet:?xt=urn:btih:F206E7253B0F80415FF3878BF75004F574663698
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:F206E7253B0F80415FF3878BF75004F574663698
 ```bash
 magnet:?xt=urn:btih:56274FE2C4D4BC28372C7113D3FAD5CE45E8A2A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

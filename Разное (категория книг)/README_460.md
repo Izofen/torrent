@@ -1,3 +1,32 @@
+###  Публикация: 1222683   (679314) от 02.05.2018
+
+Евгений Поселянин | Божья рать (2013) [PDF, DJVU, FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_679314.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Божья рать» и «Пустыня» - книги выдающегося православного беллетриста Евгения Поселянина. Они открывают для нас дела и помыслы христианских праведников.
+
+«Божья рать» включает в себя истории о жизни первых страстотерпцев - священномучеников Климента и Кодрата Никомидийского, святителя Спиридона Тримифунтского, святого целителя Сампсона Странноприимца и других.
+(   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU, FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB45C37EE31A907F7A8902183248427354DAB9B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222775   (679315) от 02.05.2018
 
 Н.В. Скоробогатько | «Призывайте на помощь Александра Свирского!» Преподобный Александр Свирский: житие, подвиги, чудеса, акафист (2015) [PDF, DJVU]
@@ -20,6 +49,8 @@
 ```bash
 magnet:?xt=urn:btih:B755CAC94B79C41E399636C877F50A9457ECFB52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +77,8 @@ magnet:?xt=urn:btih:B755CAC94B79C41E399636C877F50A9457ECFB52
 ```bash
 magnet:?xt=urn:btih:16F0F8C73A8D706771DEA6DA8EB954D1FB1721C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +107,8 @@ magnet:?xt=urn:btih:16F0F8C73A8D706771DEA6DA8EB954D1FB1721C3
 magnet:?xt=urn:btih:512968F10E760C59BC1EC9C3EE74FA8E4F947647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +132,8 @@ magnet:?xt=urn:btih:512968F10E760C59BC1EC9C3EE74FA8E4F947647
 ```bash
 magnet:?xt=urn:btih:2DAB3F644F1ACFD546BE7A3BD0739315B9C02AC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +159,8 @@ magnet:?xt=urn:btih:2DAB3F644F1ACFD546BE7A3BD0739315B9C02AC4
 magnet:?xt=urn:btih:343A944811F9C35F82609428B54EA87B40E0F8C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +184,8 @@ magnet:?xt=urn:btih:343A944811F9C35F82609428B54EA87B40E0F8C7
 ```bash
 magnet:?xt=urn:btih:4A5A20EE909198CB5948DAF33AF608C1B1A75D11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +211,8 @@ magnet:?xt=urn:btih:4A5A20EE909198CB5948DAF33AF608C1B1A75D11
 magnet:?xt=urn:btih:B679273BE94E4F01DAC112B1DDFA39F27C4BF31D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +236,8 @@ magnet:?xt=urn:btih:B679273BE94E4F01DAC112B1DDFA39F27C4BF31D
 ```bash
 magnet:?xt=urn:btih:0F1881C8FD6280849D49065E50A37E02EA45506B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +265,8 @@ magnet:?xt=urn:btih:0F1881C8FD6280849D49065E50A37E02EA45506B
 magnet:?xt=urn:btih:EC1AA73CEC4504AB5C0D2F4B34322856993F147A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +293,8 @@ magnet:?xt=urn:btih:EC1AA73CEC4504AB5C0D2F4B34322856993F147A
 magnet:?xt=urn:btih:3D3364F618A4BEB2DC36ABD398A3C2D383FAA4FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +320,8 @@ magnet:?xt=urn:btih:3D3364F618A4BEB2DC36ABD398A3C2D383FAA4FC
 magnet:?xt=urn:btih:2C27F5F6DFD5F090ABFBFE34984E484BDBE79508
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +346,8 @@ magnet:?xt=urn:btih:2C27F5F6DFD5F090ABFBFE34984E484BDBE79508
 magnet:?xt=urn:btih:E7697E9D302EA000DF90CE156E32B0B71638315C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +371,8 @@ magnet:?xt=urn:btih:E7697E9D302EA000DF90CE156E32B0B71638315C
 ```bash
 magnet:?xt=urn:btih:6901A7DC7C2EE2FCA87F7CDB438273EDE3A4F815
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +400,8 @@ magnet:?xt=urn:btih:6901A7DC7C2EE2FCA87F7CDB438273EDE3A4F815
 magnet:?xt=urn:btih:18EA81137758DDB140A2A736944AF35DF74DF22A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +428,8 @@ magnet:?xt=urn:btih:18EA81137758DDB140A2A736944AF35DF74DF22A
 magnet:?xt=urn:btih:8EC792A434F5245FF7394F6BB003972850C8DA12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +454,8 @@ magnet:?xt=urn:btih:8EC792A434F5245FF7394F6BB003972850C8DA12
 magnet:?xt=urn:btih:1D23E08B960DA0A57159AE1C7830936AA5D262E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +479,8 @@ magnet:?xt=urn:btih:1D23E08B960DA0A57159AE1C7830936AA5D262E2
 ```bash
 magnet:?xt=urn:btih:25529A687EDB3CDF82C7D7860458FB81E477C445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +507,8 @@ magnet:?xt=urn:btih:25529A687EDB3CDF82C7D7860458FB81E477C445
 magnet:?xt=urn:btih:316B6519EF4D46641B25CCEB62F900FF06D30C27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +532,8 @@ magnet:?xt=urn:btih:316B6519EF4D46641B25CCEB62F900FF06D30C27
 ```bash
 magnet:?xt=urn:btih:C37DC19EAD1ED00EA1C8B2EA2A79766DCB98A583
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +559,8 @@ magnet:?xt=urn:btih:C37DC19EAD1ED00EA1C8B2EA2A79766DCB98A583
 ```bash
 magnet:?xt=urn:btih:3381DFB95B5EAE74D97148DB617EA4743E56911D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +588,8 @@ magnet:?xt=urn:btih:3381DFB95B5EAE74D97148DB617EA4743E56911D
 magnet:?xt=urn:btih:AB8EF4DAF4391EE384B0FC8451311C894EAC597A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +615,8 @@ magnet:?xt=urn:btih:AB8EF4DAF4391EE384B0FC8451311C894EAC597A
 magnet:?xt=urn:btih:84CFDFB280157A2D25FD1775835E8EC0EE8F6487
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +640,8 @@ magnet:?xt=urn:btih:84CFDFB280157A2D25FD1775835E8EC0EE8F6487
 ```bash
 magnet:?xt=urn:btih:0E01AB90970D284D822988987DCAB4E85551F36F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -592,6 +667,8 @@ magnet:?xt=urn:btih:0E01AB90970D284D822988987DCAB4E85551F36F
 magnet:?xt=urn:btih:6A06948544A65DA1AFEB7FADAAB45FD2DCC52370
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,29 +693,7 @@ magnet:?xt=urn:btih:6A06948544A65DA1AFEB7FADAAB45FD2DCC52370
 magnet:?xt=urn:btih:51E66394806B95F2A999EDA53D9C6877E074424C
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029483   (681962) от 26.06.2016
-
-Энн Ламотт | Маленькие победы. Как ощущать счастье каждый день (2016) [FB2]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_681962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга – удивительное собрание реальных жизненных историй о надежде и радости, любви и прощении, потерях и обретениях. Особенно она будет полезна тем, кто столкнулся с потерями, болью, одиночеством, непониманием. Каждая глава – это мини-эссе о личном опыте автора и тех уроках, которые ей преподает жизнь. Победы над трудностями и болью кажутся порою незначительными, (   Читать дальше...   )Жанр: Самосовершенствование, личностный рост, практическая психологияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BFAD36F7D9EA091780877456580B92AF4714AF6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

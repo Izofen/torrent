@@ -19,6 +19,8 @@ Jazz Jackrabbit (1994) [En] (2.0_csv2_patch_2/dlc) License GOG [Collection]
 magnet:?xt=urn:btih:0C9ACFB7445A3DD28FF3E9FBFFEBCCB011A4F1FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:0C9ACFB7445A3DD28FF3E9FBFFEBCCB011A4F1FC
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:0C9ACFB7445A3DD28FF3E9FBFFEBCCB011A4F1FC
 magnet:?xt=urn:btih:AB86B14F18F6D3DA16E1DEFF7CE65F674768503F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ SуперКопы: Миссия «Бабушка» / 3 jours max / Only 3 Days L
 ```bash
 magnet:?xt=urn:btih:A8203F65A1931489137813FB63144E0DDC5F0BE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:A8203F65A1931489137813FB63144E0DDC5F0BE7
 magnet:?xt=urn:btih:A0C6E1610F3A5474F5A5B0763DAF6E853E8CC3CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:A0C6E1610F3A5474F5A5B0763DAF6E853E8CC3CC
 ```bash
 magnet:?xt=urn:btih:0BAAAAFCAB0999A37D3A7D2637891E75C5F150A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:0BAAAAFCAB0999A37D3A7D2637891E75C5F150A4
 magnet:?xt=urn:btih:7C9A8E73B119E68D902337E044373E1CF439B7FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:7C9A8E73B119E68D902337E044373E1CF439B7FD
 ```bash
 magnet:?xt=urn:btih:67BDFDD4A615FDC966606BF14E4B3B398D88208E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:67BDFDD4A615FDC966606BF14E4B3B398D88208E
 magnet:?xt=urn:btih:56F050372A9B53D8BD95BAFFD7A89205AA0D6AE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ magnet:?xt=urn:btih:56F050372A9B53D8BD95BAFFD7A89205AA0D6AE0
 ```bash
 magnet:?xt=urn:btih:F6F8C1C6D8CD478B54207FF3CBC0E72853CFE20B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Fedora — дистрибутив Linux, спонсируемый фирмой R
 ```bash
 magnet:?xt=urn:btih:78A7100DD44ACDE0163A95AF91B61117E1FDA750
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:78A7100DD44ACDE0163A95AF91B61117E1FDA750
 magnet:?xt=urn:btih:6C9158FDA62195D5B18CFBAEAC42A0688E81B017
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +335,8 @@ magnet:?xt=urn:btih:6C9158FDA62195D5B18CFBAEAC42A0688E81B017
 ```bash
 magnet:?xt=urn:btih:886A97A67071A5C858E36713EF0FFC62E251CD91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:886A97A67071A5C858E36713EF0FFC62E251CD91
 magnet:?xt=urn:btih:E2B7B9FE487FA6C0EFCEAC9974BE9FD9FDD95CD0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:E2B7B9FE487FA6C0EFCEAC9974BE9FD9FDD95CD0
 ```bash
 magnet:?xt=urn:btih:90078CB9429CD05A4DE5FB3D0B07400994FD2E24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Accept - Humanoid (2024) [MP3|320 Kbps] <Heavy Metal>
 magnet:?xt=urn:btih:8179907E4EA8FD1E2A3236B9E4AED83E3489C36B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:8179907E4EA8FD1E2A3236B9E4AED83E3489C36B
 ```bash
 magnet:?xt=urn:btih:98EFEDE51C9D5B2AC8D8571296AD281FFF0D6D24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:98EFEDE51C9D5B2AC8D8571296AD281FFF0D6D24
 magnet:?xt=urn:btih:51BFAF6FACBFFC9241128933E4364691E86E0659
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Sweet Transit – это градостроение, где все во мног
 ```bash
 magnet:?xt=urn:btih:7015EA57C33DB5E6EAD65164543F2A757FC939B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ magnet:?xt=urn:btih:7015EA57C33DB5E6EAD65164543F2A757FC939B9
 magnet:?xt=urn:btih:2E05F789B71E5FD0BD918A0808AC9755B703508F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:2E05F789B71E5FD0BD918A0808AC9755B703508F
 ```bash
 magnet:?xt=urn:btih:2B4ABDE0A6BA9C7E2EB2EA9B689A72C5C7261356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Life Eater - это симулятор культиста, сочетающий 
 magnet:?xt=urn:btih:4D8468084D3E2D60D31F59C495A3BB876DD774E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ magnet:?xt=urn:btih:4D8468084D3E2D60D31F59C495A3BB876DD774E1
 magnet:?xt=urn:btih:A4EFA7D71759426604807D43DB2990DA317590E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ magnet:?xt=urn:btih:A4EFA7D71759426604807D43DB2990DA317590E3
 ```bash
 magnet:?xt=urn:btih:257F9DCC0B199A3366B3D3DC00309C6292BE77E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ magnet:?xt=urn:btih:257F9DCC0B199A3366B3D3DC00309C6292BE77E8
 magnet:?xt=urn:btih:21F13E28F113D5E0F68800C51762529889D20CEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Heroes of Might and Magic VII / Меч и Магия Герои VII (2015) [Ru/M
 ```bash
 magnet:?xt=urn:btih:29594A5BF75A4D85585E70FC851ECA7A92FA0D24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 621062   (964267) от 19.02.2013
+
+Л.Смирнова (сост.) | Завтраки быстрого приготовления [2006] [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+В книге предлагаются рецепты более ста оригинальных, простых и очень полезных блюд для завтрака. Для удобства читателя приводятся варианты наиболее подходящего меню на каждый день недели с учетом времени года. Учтены интересы вегетарианцев и тех, кто соблюдает пост или решил похудеть. Особое внимание уделяется детскому меню, предлагаются варианты украшения блюд для детей, что сделает их более привлекательными. Адресуется массовому читателю.Формат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978144   (964283) от 22.01.2016
 
 Иван Севостьянов, Сергей Кудрявцев | SEO для клиента. Разработка сайтов. Контекстная реклама. Социальные медиа. Оценка эффективности (2016) [FB2, RTF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:61AD6A706F465C082CB58B142DE06501AD202B3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:61AD6A706F465C082CB58B142DE06501AD202B3C
 magnet:?xt=urn:btih:57CC30B785B4E4D3C7C981313465EC3AF9CCE2BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:57CC30B785B4E4D3C7C981313465EC3AF9CCE2BE
 magnet:?xt=urn:btih:B84AF9E7608784E8B664C11515B44B71EC682AE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:B84AF9E7608784E8B664C11515B44B71EC682AE5
 ```bash
 magnet:?xt=urn:btih:D554ED4A97711D33FFC8AB9003139703C73B67B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:D554ED4A97711D33FFC8AB9003139703C73B67B4
 magnet:?xt=urn:btih:AC43A8D4067979C47E02E1989644D12B0FC10B18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:AC43A8D4067979C47E02E1989644D12B0FC10B18
 ```bash
 magnet:?xt=urn:btih:9DED244BCFC1D061947893431C9A295064384A26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +209,8 @@ magnet:?xt=urn:btih:9DED244BCFC1D061947893431C9A295064384A26
 magnet:?xt=urn:btih:8CEE82C10E5C3E369FFCF2EDDB999B6F777A23C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:8CEE82C10E5C3E369FFCF2EDDB999B6F777A23C7
 ```bash
 magnet:?xt=urn:btih:603D00498282D7910167AC94FE7EC641B179D790
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +263,8 @@ magnet:?xt=urn:btih:603D00498282D7910167AC94FE7EC641B179D790
 magnet:?xt=urn:btih:8FC9A8CD23263A700D22F6367E83F76DDFF3B211
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +289,8 @@ magnet:?xt=urn:btih:8FC9A8CD23263A700D22F6367E83F76DDFF3B211
 ```bash
 magnet:?xt=urn:btih:50322B7ABD3E555CA4003C91B582EAE5EE705597
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -272,6 +318,8 @@ magnet:?xt=urn:btih:50322B7ABD3E555CA4003C91B582EAE5EE705597
 magnet:?xt=urn:btih:975B4C9C2B730CD854185AB092E67B85EF5A932E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +346,8 @@ magnet:?xt=urn:btih:975B4C9C2B730CD854185AB092E67B85EF5A932E
 magnet:?xt=urn:btih:BFEE23729CE51F9A41EE1738A9FF2F272967E73E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +371,8 @@ magnet:?xt=urn:btih:BFEE23729CE51F9A41EE1738A9FF2F272967E73E
 ```bash
 magnet:?xt=urn:btih:3959A1F9038E232F33FCC7D425044FCF109E1EEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +398,8 @@ magnet:?xt=urn:btih:3959A1F9038E232F33FCC7D425044FCF109E1EEE
 magnet:?xt=urn:btih:D892FF317F645468E2239BDCE9EC143FEE627261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +423,8 @@ magnet:?xt=urn:btih:D892FF317F645468E2239BDCE9EC143FEE627261
 ```bash
 magnet:?xt=urn:btih:14E7F34FC1DB2BD3E51FEE26684755854167F386
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +453,8 @@ magnet:?xt=urn:btih:14E7F34FC1DB2BD3E51FEE26684755854167F386
 magnet:?xt=urn:btih:4CB093A0F8AE389E6D6CFFD0994763080A9FC9F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +478,8 @@ magnet:?xt=urn:btih:4CB093A0F8AE389E6D6CFFD0994763080A9FC9F5
 ```bash
 magnet:?xt=urn:btih:1E2C07D099426B7076C4726AC38B780E3F85ADC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +506,8 @@ magnet:?xt=urn:btih:1E2C07D099426B7076C4726AC38B780E3F85ADC8
 magnet:?xt=urn:btih:AA39AE361BE2DECA0435AEF02014489CF5E25059
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -469,6 +531,8 @@ magnet:?xt=urn:btih:AA39AE361BE2DECA0435AEF02014489CF5E25059
 ```bash
 magnet:?xt=urn:btih:497334900186A5958ECF917BA0F3FF82DC40005A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -494,6 +558,8 @@ magnet:?xt=urn:btih:497334900186A5958ECF917BA0F3FF82DC40005A
 ```bash
 magnet:?xt=urn:btih:7C6438A92C97001CADF02C78976B99CA6BA96D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -521,6 +587,8 @@ magnet:?xt=urn:btih:7C6438A92C97001CADF02C78976B99CA6BA96D59
 magnet:?xt=urn:btih:039A5B1D7608961B1F62C4FBBA6595B61A01F06B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +613,8 @@ magnet:?xt=urn:btih:039A5B1D7608961B1F62C4FBBA6595B61A01F06B
 magnet:?xt=urn:btih:90F33D754709544A59038A7DD6A3D9FC809DD562
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +638,8 @@ magnet:?xt=urn:btih:90F33D754709544A59038A7DD6A3D9FC809DD562
 ```bash
 magnet:?xt=urn:btih:14A521615C2FA7AFEB1E7A26556DCF12BB7D6F5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +667,8 @@ magnet:?xt=urn:btih:14A521615C2FA7AFEB1E7A26556DCF12BB7D6F5D
 magnet:?xt=urn:btih:EA1E1BFD2D04DE168D9B747DAF4B98A9C37E45B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,29 +693,7 @@ magnet:?xt=urn:btih:EA1E1BFD2D04DE168D9B747DAF4B98A9C37E45B2
 magnet:?xt=urn:btih:2D29D5000E784C90B6864F29979F0B1CFF713B21
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977706   (965359) от 21.01.2016
-
-Ричард Ньюджент | Лайфхаки уверенных людей. 50 способов повысить самооценку (2015) [FB2, RTF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_965359.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Лайфхаки уверенных людей" - это 50 советов, которые помогут вам повысить самооценку, развить уверенность в себе, научиться самообладанию и умению контролировать ситуацию. Некоторые советы удивят вас больше, чем другие, но каждый обязательно вдохновит на изменения. Сложите все 50 лайфхаков вместе, и вы получите прямой доступ к несокрушимой уверенности и (   Читать дальше...   )Жанр: Достижение успеха в жизниФормат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33A994870D60AD4A22C01EACD87C37939B71AF25
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

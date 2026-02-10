@@ -20,6 +20,8 @@ PCalc (   Читать дальше...   )Тип издания: macOS Software
 magnet:?xt=urn:btih:FFFF6B889CD8DE2637DFA863F1D3B9B90106DDB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ GitKraken Client Enterprise for Mac 9.8.1 Intel/ARM [En]
 ```bash
 magnet:?xt=urn:btih:C1C64B3DE4117AC5FD48C9C0462C13F7E0407458
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Inpaint - приложение, которое позволяет умно уд�
 magnet:?xt=urn:btih:C8A2E0558D58FEF93A661248646DC1DE88AFB6A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ Wipr блокирует всю рекламу, трекеры, майнеры к
 ```bash
 magnet:?xt=urn:btih:20CA306682DD4FDE56684128B635494DAAC740FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Focus Matrix Pro – Task Manager 1.6.2 [En]
 magnet:?xt=urn:btih:F356DFD81F54EEA33BF989FDF2A6A3811E37B7C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ SpeakMe 2.2 [En]
 ```bash
 magnet:?xt=urn:btih:055A046F5A47C4ACDE480DE811AB9E54843C6CA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ eMail Address Extractor - ищем и извлекаем email адреса. eMa
 magnet:?xt=urn:btih:B491FCDE23AEB15E4ED0B0D2B1F22C32BC855C9D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Epiphany WorkFlow II 8.1.5 [En]
 ```bash
 magnet:?xt=urn:btih:477A3692BC52F081FBDAA3D0D6ADB94C1611A663
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Squeezer дружище веб-разработчика. Он может ком�
 magnet:?xt=urn:btih:F00103BB680EEE5A6D71B6FD9040AB19D3C2BFE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ Adobe Premiere Pro - профессиональная программа для 
 ```bash
 magnet:?xt=urn:btih:69A541FF1D1520A1E37722518A53630283DB6546
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ Microsoft Office 2021 for Mac LTSC v.16.77 VL [Multi/Ru]
 magnet:?xt=urn:btih:573E9C02CF6F320E04C5587C3EEB8C3ED68ED97F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:573E9C02CF6F320E04C5587C3EEB8C3ED68ED97F
 magnet:?xt=urn:btih:F155F02FF56505F7AE5268B782F6BE6C87B3AAAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Kontakt - стандарт в мире семплеров. Native Instruments Ko
 ```bash
 magnet:?xt=urn:btih:9BE7724E7EA4EEE389331EE593E42A0047162160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Airmail – это почтовый клиент для операционной
 magnet:?xt=urn:btih:E725C5D4E5D3A49D205637C57777D9B1035F0869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ File Shelf Pro — это инструмент управления файлов
 ```bash
 magnet:?xt=urn:btih:ABA771DD01770220CADB793EC8C23643E921D72F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +418,8 @@ Cookie - (   Читать дальше...   )Тип издания: macOS Softw
 magnet:?xt=urn:btih:76E42F797078FE7D3EE06E209B5FFD1C4018B22D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ Exposure X7 Bundle v.7.1.8.9 [EN]
 magnet:?xt=urn:btih:C20F493E803764A831D0F8B78FD3213B3C815897
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ PDF to Word & Document Converter - это приложение, которое �
 ```bash
 magnet:?xt=urn:btih:9885364B6767B2BE8A6B32F8EA03353EA7CAA327
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ Blow Up работает с Photoshop, Elements, (   Читать дальше.
 magnet:?xt=urn:btih:5511089C9DE346BF4DE952E97911C909C3995458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ AirFoil – специальное программное обеспечение
 ```bash
 magnet:?xt=urn:btih:C829D41EBCEB88DF1AACC9B82107C1CF9181C744
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ NXPowerLite Desktop 10 v.10.0.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:A4401F0277A910619B5ACD2DBC1AB6DF998D37D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +578,8 @@ OmmWriter - это инструмент, который позволяет сн�
 magnet:?xt=urn:btih:77DD48C3FB3D3483CA2DDA78079AE420B6F0511A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +603,8 @@ Network Radar предоставляет Вам информацию о сети
 ```bash
 magnet:?xt=urn:btih:F7CEDC3641CCD3FEDF00F60802D9A5D363D7474B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +630,8 @@ Omni Toolbox - это обширный набор инструментов дл�
 magnet:?xt=urn:btih:891BDC44A1E1F2AB871C4F33E4FFF5CB400098AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ WiFi Scanner 3.1 [En]
 ```bash
 magnet:?xt=urn:btih:DA4B0B3C174DD407FED12DDBB245887F7E8DB344
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -634,6 +684,8 @@ Folder Tidy 2.9.2 [En]
 ```bash
 magnet:?xt=urn:btih:08D973BB8B68A239C2DB05169A5DD9FC6A4E21E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

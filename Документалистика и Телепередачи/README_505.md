@@ -1,3 +1,29 @@
+###  Публикация: 1534031   (699424) от 27.02.2022
+
+Пятеро на одного (26.02.2022) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_699424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звездных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B88D6172C8A868D1E9ACD828D4F901301266FFEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288133   (699520) от 09.03.2019
 
 Владимир Этуш. Мне без пяти сто (2007) IPTVRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:60E2354A9AA5A5A381BB0E5FC94F898DD94C67EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:60E2354A9AA5A5A381BB0E5FC94F898DD94C67EA
 magnet:?xt=urn:btih:82519042BCE0DE63ADA3CE381CC67B286A674A0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:82519042BCE0DE63ADA3CE381CC67B286A674A0A
 magnet:?xt=urn:btih:0BA2953E479A3285AA3E57F74C3012FC7F0C6243
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +122,8 @@ magnet:?xt=urn:btih:0BA2953E479A3285AA3E57F74C3012FC7F0C6243
 ```bash
 magnet:?xt=urn:btih:D52E62F30AC8802B4D06111D4D5184781C92E08B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:D52E62F30AC8802B4D06111D4D5184781C92E08B
 magnet:?xt=urn:btih:7ABCFCABA3C2442035A7083670E83F97A7BC4493
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:7ABCFCABA3C2442035A7083670E83F97A7BC4493
 ```bash
 magnet:?xt=urn:btih:5BF26A31BEA8869CA2CA48BD28678C3A998257AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:5BF26A31BEA8869CA2CA48BD28678C3A998257AC
 magnet:?xt=urn:btih:C2385331DD0DF982BCAE9A7961EB91F7127811D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:C2385331DD0DF982BCAE9A7961EB91F7127811D2
 ```bash
 magnet:?xt=urn:btih:4528C52725F4D564AA9314788D3315E00B43EDD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:4528C52725F4D564AA9314788D3315E00B43EDD5
 magnet:?xt=urn:btih:BD1896C29141E7921D0568CE95E76A5298C3B000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:BD1896C29141E7921D0568CE95E76A5298C3B000
 ```bash
 magnet:?xt=urn:btih:A30F997F61CBB762426A928874B4FE9C4FCBBD1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +311,8 @@ magnet:?xt=urn:btih:A30F997F61CBB762426A928874B4FE9C4FCBBD1C
 magnet:?xt=urn:btih:4F725AE4183CA78868862B288858BA448519D764
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:4F725AE4183CA78868862B288858BA448519D764
 magnet:?xt=urn:btih:208CB127ACA3A48E2863150B4D5DF1C7976A002F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:208CB127ACA3A48E2863150B4D5DF1C7976A002F
 ```bash
 magnet:?xt=urn:btih:A1ACD11BFA7DBE75129811D8CDBA30F3CE53A3B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:A1ACD11BFA7DBE75129811D8CDBA30F3CE53A3B5
 magnet:?xt=urn:btih:78A8E071F59A3FB8C791142C003D540653EF2D85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:78A8E071F59A3FB8C791142C003D540653EF2D85
 ```bash
 magnet:?xt=urn:btih:73A77C8AA2958DE6EAE66B16C2F08355BAD94B68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +445,8 @@ magnet:?xt=urn:btih:73A77C8AA2958DE6EAE66B16C2F08355BAD94B68
 magnet:?xt=urn:btih:AFD614520D277CFA73D8F96ABC046F41371FC510
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +472,8 @@ magnet:?xt=urn:btih:AFD614520D277CFA73D8F96ABC046F41371FC510
 magnet:?xt=urn:btih:DCC8495E9E06326E24B15BC01CF2A16040C428F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +497,8 @@ NG: Прекрасный сад (Бабочки, Птицы и Цветы) / Bea
 ```bash
 magnet:?xt=urn:btih:A8A5F2E9AAD737531B86FD29B9FAAA7AB9B93EE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:A8A5F2E9AAD737531B86FD29B9FAAA7AB9B93EE3
 magnet:?xt=urn:btih:8C8E3C0450716C7D6BC262D0FA00138B26F30262
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:8C8E3C0450716C7D6BC262D0FA00138B26F30262
 magnet:?xt=urn:btih:E3997B19EFFEDF146E3F6FAD4A8A5AD47FDF88CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +575,8 @@ magnet:?xt=urn:btih:E3997B19EFFEDF146E3F6FAD4A8A5AD47FDF88CF
 ```bash
 magnet:?xt=urn:btih:082D0B5B9D3D6F007E345EFE6023C9EB5F771A67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:082D0B5B9D3D6F007E345EFE6023C9EB5F771A67
 magnet:?xt=urn:btih:34EED6EFCAC109A1378936F8321D83FD785C6C41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:34EED6EFCAC109A1378936F8321D83FD785C6C41
 ```bash
 magnet:?xt=urn:btih:BA7A83D32E592EAE3CB484859E45D6E0B2882AFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:BA7A83D32E592EAE3CB484859E45D6E0B2882AFF
 magnet:?xt=urn:btih:6375E7CA969CB62FD14F235D08FEBEB5A0EA776C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -608,29 +682,7 @@ magnet:?xt=urn:btih:6375E7CA969CB62FD14F235D08FEBEB5A0EA776C
 magnet:?xt=urn:btih:3F4125F9DD678FC8845CC1B460581D1AE64118D2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220931   (700519) от 21.04.2018
-
-Право знать! (21.04.2018) SATRip
-
->>Документалистика и Телепередачи
->>Общественно-политические и пропагандистские ток-шоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_700519.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Право знать!" – общественно-политическое ток-шоу без купюр и без протокола, о людях и событиях, которые меняют нашу жизнь.Телекомпания: ТВ-ЦентрЖанр: Общественно-политические ток-шоуПродолжительность: 01:10:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E91645ED295DB667FE5FDB92F3BDC2E64C6B38
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

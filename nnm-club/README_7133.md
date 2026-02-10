@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:781C9811A40DC5032A01F1E826489B31647D573C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:781C9811A40DC5032A01F1E826489B31647D573C
 magnet:?xt=urn:btih:A27BF3C312307A003A3CCAAC0EE5EE3B6FA7079D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:A27BF3C312307A003A3CCAAC0EE5EE3B6FA7079D
 ```bash
 magnet:?xt=urn:btih:3C6F110AE75D57BE1A34F485F2C8D56928236992
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Marc Ford & The Neptune Blues Club - The Vulture (2016) [MP3|320 Kbps] <Blues, B
 magnet:?xt=urn:btih:286F4A6BFF9A78077BF698146872D2D1D15EBC6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:286F4A6BFF9A78077BF698146872D2D1D15EBC6B
 magnet:?xt=urn:btih:289D5E3B18B1FB46803D6D3402E6457605D7D42D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:289D5E3B18B1FB46803D6D3402E6457605D7D42D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Royal Hunt - Dystopia, Pt. 2 (2022) [MP3|320 Kbps] <Melodic Progressive Metal>
 magnet:?xt=urn:btih:BEFA8E56D3057D019397CCB20D22F5533C66BCE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ RegCool 1.342 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2273679135E37518ACFD5B0D0451BB20D8B993DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:2273679135E37518ACFD5B0D0451BB20D8B993DF
 magnet:?xt=urn:btih:D4F9AB5AA84F73521298419BAB518409DF833041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ Total Audio Converter - мощный конвертор всех музыкал�
 ```bash
 magnet:?xt=urn:btih:3182BE89674436224EFB6C47AAC08CFD8FED88CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ VA - Best Of Crystalclouds Recordings Vol. 2 (Mixed by Angelica S & Science Deal
 magnet:?xt=urn:btih:DA2DDA4E6D1AD9CD63F97204D5D9594F0A47C500
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ magnet:?xt=urn:btih:DA2DDA4E6D1AD9CD63F97204D5D9594F0A47C500
 ```bash
 magnet:?xt=urn:btih:C5CB436C21162085B92E6F893F23A2156712F564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ VA - Uplifting Only: Fan Favorites 2016 (Mixed by Ori Uplift) (2016) [MP3|320 Kb
 magnet:?xt=urn:btih:1F54E30A2D35FF47993B3686F6BB7AD7BBB7798A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:1F54E30A2D35FF47993B3686F6BB7AD7BBB7798A
 ```bash
 magnet:?xt=urn:btih:93387D9793C3118CDC68E711835EBF558127D830
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +401,8 @@ John Fogerty - Fogerty's Factory (2020) [FLAC|Lossless|image + .cue] <Country Ro
 magnet:?xt=urn:btih:3BF42A45CC11559B119225FB617D8639893E7A6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:3BF42A45CC11559B119225FB617D8639893E7A6F
 magnet:?xt=urn:btih:241BF9F3C7F9802EE95905F6173CD3A9D479EF25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ Zventa Sventana — музыкальный проект российской п�
 ```bash
 magnet:?xt=urn:btih:D008B3812B43E9CB7D38A8713338EAA42FFF26CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ VA - FIVE (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, B
 magnet:?xt=urn:btih:2A23443AFF6FB618E67218DF66CB56FDB33C2A16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:2A23443AFF6FB618E67218DF66CB56FDB33C2A16
 magnet:?xt=urn:btih:B28523E446F5CBB726B4DBDB066C8BDBA29812C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +533,8 @@ magnet:?xt=urn:btih:B28523E446F5CBB726B4DBDB066C8BDBA29812C2
 ```bash
 magnet:?xt=urn:btih:4E5234F9954842DDA36D5C09C39A834AC84780B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -523,6 +563,8 @@ VA - Jazz Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
 magnet:?xt=urn:btih:8EEA3FCE5283C13EDD15E654F92C1AFD21453950
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:8EEA3FCE5283C13EDD15E654F92C1AFD21453950
 magnet:?xt=urn:btih:1571B070594AAB19EA8E34266F6EA807F9BD13E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ ScrollNavigator - программа, которая поможет вам пр�
 ```bash
 magnet:?xt=urn:btih:221237BA67F6375894846B84D5415FAE811533E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +645,8 @@ Cosmograf - Heroic Materials (2022) [FLAC|Lossless|image + .cue] <Progressive Ro
 magnet:?xt=urn:btih:0D52C1F9A2F10CFDC87EF0577E2B36E8A82BFFFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:0D52C1F9A2F10CFDC87EF0577E2B36E8A82BFFFE
 ```bash
 magnet:?xt=urn:btih:9D9E16C969D923F151AC86CC43EE8378B137A56B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ VA - Jazz Popular Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Vocal>
 ```bash
 magnet:?xt=urn:btih:31DA132DDF9D543CCCB305B842C5F0C24D2A3A41
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

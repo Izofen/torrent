@@ -19,6 +19,8 @@ NG: Последствия: Перенаселенная планета / Afterm
 magnet:?xt=urn:btih:491AD7EBAB19A98A5C39885A998D37441B08F79F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NGW: Дикие животные Японии / Japan's Wild Year (2014) HDTVRip
 ```bash
 magnet:?xt=urn:btih:9590B5EE7304B2C46D5D24C904DDF0744A1A202B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:9590B5EE7304B2C46D5D24C904DDF0744A1A202B
 magnet:?xt=urn:btih:7241ED6E041CE06639F1EAF88A966B7AE38EA617
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:7241ED6E041CE06639F1EAF88A966B7AE38EA617
 ```bash
 magnet:?xt=urn:btih:6AA05AC148A10E55E717A95B20EA1EC1E4EB355F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ NG. Индия с высоты птичьего полёта / India From Above 
 magnet:?xt=urn:btih:191ED00519D522FA6BC837DE8F94E2B623C4850D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:191ED00519D522FA6BC837DE8F94E2B623C4850D
 ```bash
 magnet:?xt=urn:btih:212E6F78E876C5F5DCAE78476869B0003865E497
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ NGW: Смертоносная Африка. Пустыни / Africa's Deadly Kin
 magnet:?xt=urn:btih:3D11D1CFAE4A38A3915499F66CA4DB1C87800162
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NGW: Рождение прайда / Birth of a Pride (2018) HDTV [H.264/1080i-L
 ```bash
 magnet:?xt=urn:btih:23028D124601F91E1E6845891F3621644F3ADCA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ NGW: Львы на деревьях / Tree Climbing Lions (2018) HDTV [H.264/108
 magnet:?xt=urn:btih:93D85C0ABDDFF05118DDE1557903A27EB300E687
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ NG: Увлекательная зоология: лучшее / Ultimate Animals
 ```bash
 magnet:?xt=urn:btih:2E6664F2BAE2403991E02779DBD259A8721817EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NG: Кремниевая долина / Valley of the Boom (2019) SATRip (сер
 magnet:?xt=urn:btih:607E96A51893EB7056B36359E762BED938237ACC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ NG: Потоп / The Flood (2018) WEB-DL [H.264/1080p] (серии 1-2 из 2)
 ```bash
 magnet:?xt=urn:btih:3394055487B7872D33D18174511727F220533C16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ NG: Крокодил против акулы / The Croc That Ate Jaws (2021) WEB
 magnet:?xt=urn:btih:B311AFD3E17ED9EBBC1D2EEBA82E9A722A9EE34E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ NGW: Прайд / Pride (2014) HDTV [H.264/1080i-LQ] (серии 1-2 из 2)
 ```bash
 magnet:?xt=urn:btih:E646D917F187C247463014CDF9601A9DD80C4F16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ NGW: Дикие острова гигантов / Savage Island Giants (2016) HD
 magnet:?xt=urn:btih:839C934071D97B91BC99B5EAC7AAC2C835CA69F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ NGW: Огромная акула-молот / Mega Hammerhead (2016) HDTV [H.264
 ```bash
 magnet:?xt=urn:btih:2F0F0A153A8B0CCCA22B9469D1088BF68D514FDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ NG: Взгляд изнутри. Крупнейший круизный лайн�
 magnet:?xt=urn:btih:D9B43490581C738904FC13B0BECC22107F8DA3E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ NG: Просто магия / General Magic (2018) SATRip
 ```bash
 magnet:?xt=urn:btih:6C041E965333EB125A5A142406717E45EE5C25B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ NG. Грандиозные переезды - Перенос древнего Е
 magnet:?xt=urn:btih:D0A6BB5E8714318A65A4C7FD427F4EF770963796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ NG: Инстинкт выживания: Пустыни / Primal survivor: Deser
 ```bash
 magnet:?xt=urn:btih:DCB15280CF78213FB67FD13A374D1F494A58E7D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ NG: Инстинкт выживания: Китай. Яростная река /
 magnet:?xt=urn:btih:0C493BBE26CCF8DE9D4E4BA42515A971D466EA89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ NG: Разгадка египетских тайн / Egypt unwrapped (2008) HDTV
 ```bash
 magnet:?xt=urn:btih:F90A1254D64A72591385A7E9116699279158883C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ NG. Откуда берутся диктаторы (Корни диктатур�
 magnet:?xt=urn:btih:8B5F1077E6F43D71E8BFB2C5E393317C43B856DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ National Geographic. Возмездие / Avenging Evil (2018) HDTVRip [H.264/72
 ```bash
 magnet:?xt=urn:btih:BEE870B02792646EE8152969CDAD85877E825C35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ National Geographic. Возмездие / Avenging Evil (2018) HDTVRip
 magnet:?xt=urn:btih:D019C92C55A11180AFFA1DF986E175D75C28DFD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ NG: Странная дружба / Unlikely Animal Friends (2016) HDTV [H.264/1
 ```bash
 magnet:?xt=urn:btih:A71FE17436EF6105A4847C3B397C3B7ADBADAB39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

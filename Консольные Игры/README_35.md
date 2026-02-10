@@ -19,6 +19,8 @@ Facebreaker  (2008) [PS3] [EUR] 2.41 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 magnet:?xt=urn:btih:5040173B575DD015F1FFFFFCC995B2FE30145882
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Xenogears (1998) [PS1] [USA] [License] [En]
 ```bash
 magnet:?xt=urn:btih:D25D828342F4DBF331D8E54C06B620CE025DA3F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Ferrari: The Race Experience (2010) [PS3] [EUR] 3.70 [Cobra ODE / E3 ODE PRO ISO
 magnet:?xt=urn:btih:9E382606FCD6FD2D0BD19B883BEB86562C0E9C2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:9E382606FCD6FD2D0BD19B883BEB86562C0E9C2E
 ```bash
 magnet:?xt=urn:btih:9FEEE0E1C4ECFDBFAF26B66964026D3370FE3BA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Mortal Kombat: Komplete Edition / Смертельная Битва: Полно�
 magnet:?xt=urn:btih:16796460519B08C6EEA6A9E9CDB19BF5AC6B80B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Pac-Man and the Ghostly Adventures 2 является продолжением �
 ```bash
 magnet:?xt=urn:btih:066804CE7F1754D5498C3D559743DE4A5A68D33D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ MX vs. ATV Supercross - очередная часть в серии экстре
 magnet:?xt=urn:btih:7EE81EBD0E24AE0BE64A0992424582DBE5FCFDFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Kung Fu Panda / Кунг-фу Панда (2008) [Xbox360] [RegionFree] [FreeBoot
 ```bash
 magnet:?xt=urn:btih:7E1841D0CA8A7DDB5553DAD886A7BB23D979A817
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Up: The Video Game / Вверх (2009) [Xbox360] [RegionFree] [FreeBoot] [Unoffi
 magnet:?xt=urn:btih:268CE2483E3C525E358D55D3E782132305895192
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Escape Dead Island является мостом между событиями D
 magnet:?xt=urn:btih:E82548C83BB06A90FBEC14020DC6576F25B16B83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +279,8 @@ Ni no Kuni II: Revenant Kingdom (2018) [EUR] [PS4] 5.05 [HEN] [License] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:5FFB3E3FC623877F37C076B076D0A758BBE7C755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Sonic The Hedgehog 4 Episode I [WiiWare] [PAL] [MULTI 6] (2010)
 magnet:?xt=urn:btih:C705972407FD176F5F2D201EFD704046C71824B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ DiRT Showdown [PS3] [ENG] [PAL] (2012)
 ```bash
 magnet:?xt=urn:btih:D367C534ACE539D76F96A013E6F8BEF3650EA901
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ Ninja Gaiden 3 — это экшн от третьего лица. Игра ра
 magnet:?xt=urn:btih:213CEF1C6E0F29AAFFEA0FF8DBAD45E67AE30BD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ Serious Sam 3: BFE / Крутой Сэм 3 (2012) [Xbox360] [RegionFree] [FreeBo
 ```bash
 magnet:?xt=urn:btih:DB00B52E7D01D357DD896161953CC846B8ACBC0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Cмурфы - это маленькие синие гномы, придуман�
 magnet:?xt=urn:btih:1F4C6716A7A3517B1DB80D6832928ADA19ED0915
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Stranglehold (2007) [PS3] [EUR] 1.93 [Cobra ODE / E3 ODE PRO ISO] [License] [En]
 ```bash
 magnet:?xt=urn:btih:43DCA899D5917F5026AB30603C042B2BA6139138
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Lost: Via Domus (2008) [PS3] [EUR] 2.10 [Cobra ODE / E3 ODE PRO ISO] [License] [
 magnet:?xt=urn:btih:5042264DCF2169E10F932CA4D6E6A33B877EB1F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Alice: Madness Returns (2011) [PS3] [USA] 3.40 [Repack / DLC] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:EDD9679FE583A0E043480B4A4937986999ADB366
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ SoulCalibur IV: Nude Version (2008) [PS3] [USA] 2.35 [Cobra ODE / E3 ODE PRO ISO
 magnet:?xt=urn:btih:D88E3F971D2FFD6A635FF8E30A997F025E5655EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Tekken Tag Tournament 2 - продолжение спин-оффа знамен�
 ```bash
 magnet:?xt=urn:btih:F0F8231D3D4AAF7ADAC038A945E7E97D5813393B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Lego Harry Potter: Years 1–4 (2010) [PS3] [EUR] 3.30 [Cobra ODE / E3 ODE PRO I
 magnet:?xt=urn:btih:EEEF3F91076C2496967BF33BD7DAE06E1B3EBB84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ LEGO: Jurassic World (2015) [Xbox360] [Region Free] [FreeBoot] [License] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:18C32CAE0125104376CA03EAF2A9F8D463A9456A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ SoulCalibur IV (2008) [PS3] [EUR] 2.35 [Cobra ODE / E3 ODE PRO ISO] [License] [E
 magnet:?xt=urn:btih:983D73D24D44F3205DBB877894A469E5CB72D73F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +650,8 @@ Darksiders: Wrath of War (2010) [Xbox360] [RegionFree] [FreeBoot] [Unofficial] [
 ```bash
 magnet:?xt=urn:btih:A64986874B12616AEA2ECD31C66CE50F0EAF9917
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -627,6 +677,8 @@ Mafia II (2010) [PS3] [EUR] 3.30 [Cobra ODE / E3 ODE PRO ISO] [License] [Ru/Mult
 ```bash
 magnet:?xt=urn:btih:428EF3B6F10B279D7CCE1E668D847C9EBA1720DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

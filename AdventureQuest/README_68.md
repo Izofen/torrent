@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:3729101021D196085BAFF4F2EFBF14AE0F4DEA7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Tales from the Borderlands (2014-2015) [Ru] (1.0.1) Repack =nemos= [Episodes 1-5
 ```bash
 magnet:?xt=urn:btih:7C4463E351E56713238D22895525A4DB3FE09378
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Deliver Us The Moon — это научно-фантастический три�
 magnet:?xt=urn:btih:85B510F51CAB12E45B17836B99521748BEB49238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Ice Age Scrats Nutty Adventure (2019) [Ru/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:863EA38827EEA4C3F0E99E4862C7F7CA15DAB51A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Syberia 3: The Complete Journey (2017) [Ru/Multi] (1.5.07/dlc) License GOG
 magnet:?xt=urn:btih:403526C9170133AB58BDCD3096A493D280023E31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Book of Unwritten Tales 2 - фэнтезийная история-игра, 
 ```bash
 magnet:?xt=urn:btih:73BA8F35E7A43D2FBF25BA4AFECF1E1C24F341BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Rise of the Dragon (1990) [En] (1.0) License GOG
 magnet:?xt=urn:btih:4A49FD5CFC61D44ED76B4CF257AA6F48D120F4C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Westmark Manor (2020) [Ru/Multi] (1.0/upd10) Repack Other s
 ```bash
 magnet:?xt=urn:btih:5645A5ED90CA0B50B4664FB5750A80CF1B0D3D76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Silence - The Whispered World 2 (2016) [Ru/Multi] (1.1.20227) Repack R.G. Мех
 magnet:?xt=urn:btih:BBFBB86AD5ACDCAFF456FF9739A4EA63EFE5890D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Yesterday / Yesterday: Печать Люцифера (2012) [Ru/Multi] (1.0.0.1)
 ```bash
 magnet:?xt=urn:btih:115C4597CA81EE32D93E2D9053F579F9AA4804D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0/dlc) Repack Other s
 magnet:?xt=urn:btih:705EB9B8214F8ADC0CBEEB2E2172F83B18DAF820
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Syberia 3 / Сибирь 3 (2017) [Ru/En] (3.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:06CCD092CDBDC2D27D47B64C02A7D0CAB5B3372E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Stories Untold - это текстовая приключенческая игр
 magnet:?xt=urn:btih:6F602575E21456A25448CBEE022B55CF8A29ECCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Miasmata - игра в жанре приключения/выживания от
 ```bash
 magnet:?xt=urn:btih:C6B19A694DD428BA7BA0A61A0BC7046F823CF927
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Ice Age Scrat's Nutty Adventure (2019) [Ru/Multi] (1.0) Repack xatab
 magnet:?xt=urn:btih:8E2D50833B36E32DA190398FE29CD6343C2EFFB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Syberia 3 / Сибирь 3 (2017) [Ru/Multi] (3.0/dlc) License RELOADED [Deluxe 
 ```bash
 magnet:?xt=urn:btih:E3851B127BF079D2EB65033DFE7A0C94283FA9F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Wild Eight (2019) [Ru/Multi] (1.0.12) Repack Other s
 magnet:?xt=urn:btih:683CADFFEC8747C15172BB5447CB96FFED7BECA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Gabriel Knight: Sins of the Fathers (2014) [Multi] (2.02) License GOG [20th Anni
 ```bash
 magnet:?xt=urn:btih:F5B04985324F77F9D16E04B50EACEB38A520B0E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Obduction (2016) [Ru/Multi] (1.6.5) Repack R.G. Catalyst
 magnet:?xt=urn:btih:3D761EA00A804D7870D32CF7F0BF0B5C0FF247A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Asterix и Obelix с помпой возвращаются в новой вер�
 ```bash
 magnet:?xt=urn:btih:CC23138CDEE9E92BC280E88D069986CA7AD71216
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Crimes and Punishments — это детективный квест, посвя�
 magnet:?xt=urn:btih:DFE6C9512F617CE7CE9DF4B8A4DE45A10F68C140
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Layers of Fear 2 (2019) [Ru/Multi] (1.3) Repack Other s
 ```bash
 magnet:?xt=urn:btih:3DBE73045954DFFF04C73956941BF276D9003989
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Morels The Hunt (2019) [Ru/Multi] (1.0) License HOODLUM
 magnet:?xt=urn:btih:6FD69AFDABE191B126F0AD0B0D18A8D52B3B6941
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Layers of Fear 2 — это психологический хоррор от п�
 ```bash
 magnet:?xt=urn:btih:2A0E95720D92BD36CCDD9203B0A84E59F839B5E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Minecraft: Story Mode - Season Two (2017) [Ru/Multi] (1.0) License RELOADED [Epi
 magnet:?xt=urn:btih:9603016868EFCCF542928CF90224E5179E337BC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Memoria – расскажет нам историю принцессы Сати
 ```bash
 magnet:?xt=urn:btih:97D918C94B33B84434AE9E70036A5F39941C06A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

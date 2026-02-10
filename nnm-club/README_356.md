@@ -19,6 +19,8 @@ PicPick - приложение, объединяющее в себе возмо�
 magnet:?xt=urn:btih:591A8C9DB4AD16E18ABA0D5E46A5222C107E2DAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:591A8C9DB4AD16E18ABA0D5E46A5222C107E2DAB
 ```bash
 magnet:?xt=urn:btih:CAD277ACD9E62941976B3F4AB1A0C98967224016
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:CAD277ACD9E62941976B3F4AB1A0C98967224016
 magnet:?xt=urn:btih:5125F3224C3875B0240FB2067CB00C82A7F713F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:5125F3224C3875B0240FB2067CB00C82A7F713F1
 ```bash
 magnet:?xt=urn:btih:1502CCBB05770A1B1BD952B20A623B0A24C0A54C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:1502CCBB05770A1B1BD952B20A623B0A24C0A54C
 magnet:?xt=urn:btih:F258A7AA7E6A97DEE11E5A75A751FECBDD9974F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ MediaInfo — позволит узнать техническую информ�
 ```bash
 magnet:?xt=urn:btih:6471F7144617A2E53F7EF7E38BE2E6B0C268E461
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:6471F7144617A2E53F7EF7E38BE2E6B0C268E461
 magnet:?xt=urn:btih:31355A2A467E1777E86D9303ACD5D0F45BA73590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ magnet:?xt=urn:btih:31355A2A467E1777E86D9303ACD5D0F45BA73590
 ```bash
 magnet:?xt=urn:btih:062A04838A2302BE9C56B4BE1AB09937D2F28148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:062A04838A2302BE9C56B4BE1AB09937D2F28148
 magnet:?xt=urn:btih:00A7B9BD67D687C43C16C510C24D2180F7495F63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:00A7B9BD67D687C43C16C510C24D2180F7495F63
 ```bash
 magnet:?xt=urn:btih:04DEFA04A755787AE9F9863B6186BFC37F80B2C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Forest 6174 представляет историю Дэнни, человека
 magnet:?xt=urn:btih:051AD4AC4FE7FEA16B0994473FC23BD3A97A7372
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Heart Rate Plus: Pulse Monitor v2.9.5 Mod by FeralFox [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:A13DC8FE4654EB59B1D11173EA3303BC0A7C7663
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:A13DC8FE4654EB59B1D11173EA3303BC0A7C7663
 magnet:?xt=urn:btih:374C14298B3792A1627CD297280C3816A5CE7D02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:374C14298B3792A1627CD297280C3816A5CE7D02
 magnet:?xt=urn:btih:0FE4F07EEC802B82627A469B3A5F012397FFEE8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +382,8 @@ magnet:?xt=urn:btih:0FE4F07EEC802B82627A469B3A5F012397FFEE8B
 ```bash
 magnet:?xt=urn:btih:33294C25C571BBD50CE8D1C9BBB1D71763384F35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Sting - Collection (1985-2006) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Soft ro
 magnet:?xt=urn:btih:82900E2275BEF4CFCCC364933E049698093EE7BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:82900E2275BEF4CFCCC364933E049698093EE7BC
 magnet:?xt=urn:btih:625B6C08959BE44034C6BCAC030D1549CA6F1AAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:625B6C08959BE44034C6BCAC030D1549CA6F1AAB
 ```bash
 magnet:?xt=urn:btih:374F4693FC070EC85A7CFDBC2B07379BD52AF256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -457,6 +493,8 @@ CudaText — абсолютно бесплатный мультиплатфор�
 magnet:?xt=urn:btih:63E27D3791937C6C51FBAD99A1189FDCBC0C5602
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +518,8 @@ magnet:?xt=urn:btih:63E27D3791937C6C51FBAD99A1189FDCBC0C5602
 ```bash
 magnet:?xt=urn:btih:7BB6E16B1AC70B481F4504632CB1F2B3574CF7C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:7BB6E16B1AC70B481F4504632CB1F2B3574CF7C2
 magnet:?xt=urn:btih:5E5683CF1085C1B1EFE50D35541599BB85970B9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:5E5683CF1085C1B1EFE50D35541599BB85970B9B
 magnet:?xt=urn:btih:6CC02D2CA3292766775D16FCC802157E555FF209
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ magnet:?xt=urn:btih:6CC02D2CA3292766775D16FCC802157E555FF209
 ```bash
 magnet:?xt=urn:btih:0789AFA2F1B8E3A5746D0981E5BFFE7C6EC36F30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:0789AFA2F1B8E3A5746D0981E5BFFE7C6EC36F30
 magnet:?xt=urn:btih:CBD36377C52C0840F54C2F198366070262C6FF8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Chants of Sennaar (2023) [Ru/Multi] (1.0.0.9-r3) License GOG
 magnet:?xt=urn:btih:A279299A2B4EF72C7484FDF9721123048CF467EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Kaizen: A Factory Story (2025) [Ru/Multi] (1.0.0.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:ACF0DC9852F7FC8C1C37FCC49DB5DFBBE2EF6C07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,34 @@ VA - Yellow Day: National Pop Music (Vol.04) (2020) [MP3|320 Kbps] <Pop, Dance, 
 magnet:?xt=urn:btih:624A4E917A513AEDA8D3D144E4E1AA750F536E22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 155864   (345009) от 01.12.2009
+
+VA - Новогоднее настроение (2009) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_345009.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +76,8 @@ VA - Old School Hits Collection от ALEXnROCK (2019) [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:88BF0131EE2219B2E1269BEFA958AD92A157B956
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +106,8 @@ VA - Попсовая соточка от Хит fm 5 (2016) [MP3|256 Kbps] <Pop
 magnet:?xt=urn:btih:E23D32AD54AE487871B84B264F7C1EA6E2536D1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +135,8 @@ VA - Premium 100 Love Dance (2018) [MP3|320 Kbps] <Dance>
 magnet:?xt=urn:btih:2326362B95E80AF6258C0FB82030AB078D254749
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +163,8 @@ VA - Дискотека 90х: Новый Стиль (2015) [MP3|320 кб/с]<Pop
 ```bash
 magnet:?xt=urn:btih:75FD4D24CCEB0E1C0F5C1D8E12F89BD23EE5817D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +199,8 @@ VA - Между Нами Девочками (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:63F3AC0D36D784A181F58978D32461F82E6AB88F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +227,8 @@ VA - Супер хиты года от Русского радио (2015) [MP3|2
 ```bash
 magnet:?xt=urn:btih:74A5352EA97ECDE784E35E6E8BE2BDE647B3A5DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +257,8 @@ VA - Цунами любви (Попсовая 100-ка хитов) (2015) [MP3|
 magnet:?xt=urn:btih:892D7FB32D2D88BA806DECA515C2ED93C22AC9E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +285,8 @@ VA - Русское Радио. Лучшее (10.2018) от DON Music (2018) [MP
 ```bash
 magnet:?xt=urn:btih:13308F10717FCCC2E151D142184C12FA91E5DED6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +315,8 @@ VA - А у нас все пучком с Русским радио (2016) [MP3|2
 magnet:?xt=urn:btih:6F3DB4B7B75123EBD233BB420188DDB04DDC158E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +343,8 @@ VA - Музыкальные новинки mp3. Версия 2 (2016) [MP3|256 K
 ```bash
 magnet:?xt=urn:btih:A07EF648759E953AE7112F864CED7EA4EE658D92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +373,8 @@ VA - Осенняя Хит Атака Выпуск 50х50 (2016) [MP3|256 Kbps] 
 magnet:?xt=urn:btih:0889F1F32003726DE38B81B9E4005CA7D7E53C2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +401,8 @@ VA - DJ Ramirez: Remixes (2018 - 2019) bootleg [320 kbps|Mp3|CBR]<Pop, Club, Hou
 ```bash
 magnet:?xt=urn:btih:DC05F000621DC5CD450DB443F2CA46519B34CAAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +431,8 @@ VA - Dj Nejtrino: Remixes (2019) bootleg [320 kbps|Mp3|CBR]<Pop, Club, House>
 magnet:?xt=urn:btih:EEB8807D44494E0741C3BF8E4D5BA90F7C301156
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +456,8 @@ VA - The Official UK Top 150 Best-selling Singles Of The 21st Century (2000-2012
 ```bash
 magnet:?xt=urn:btih:D1C8D3CE6E954A883857EBFF5CF49962D3D04E48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +492,8 @@ VA - Зарубежная дискотека (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:1CD21EB2EC1E220EF06647E0F726D614456A3D5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -462,6 +520,8 @@ VA - Про100 Хиты Выпуск 6 (2015) [MP3|256 кб/с]<Pop, Dance, Euro
 ```bash
 magnet:?xt=urn:btih:940CF1C7723E258A9AE0B1E67B7A851FF6B05B64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +550,8 @@ VA - Popular 90's & Coolhits! (2018) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:7F3031001B2CF4D711F3410DA27A4681FB66913B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +578,8 @@ VA - Дискотека Пионер ФМ По Русски 6 (2016) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:CDFF37C9F6E6D2C39A89D9F6D2D20C98111FE4DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -544,6 +608,8 @@ VA - В Машине С Любимой Музыкой 2 (2016) [MP3|256 Kbps] <P
 magnet:?xt=urn:btih:D3C7A3CFE08CBD98CDE5D414E2B08ADE7AD6393C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +636,8 @@ VA - German Top 100 Single Charts 04.10.2019 [MP3|320 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:CDA7DAFFE90904BACFFEE6E75F341BDD0B9EDDCF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +666,8 @@ VA - Заключительная осенняя дискотека - 7 (2016) [
 magnet:?xt=urn:btih:88A27B0ADD4FCFD362EBE08A72886BD8A0141C3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +695,8 @@ VA - Осенняя Дискотека По-Русски 3 (2016) [MP3|256 Kbps]
 magnet:?xt=urn:btih:ADE9978106C01C4C61EBDCCDAEDAE1C0DFAFDB81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +721,8 @@ Bonnie Tyler - Good Songs (2015) [MP3|256-320 кб/с]<Pop, Rock>
 ```bash
 magnet:?xt=urn:btih:DE18484C1D8E0005E85EA622E8D4F76660B336EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -677,32 +751,7 @@ VA - Музыка в дорогу: Приятного полёта (2019) [MP3|3
 magnet:?xt=urn:btih:EDDA12DE09D4D205A76D42726E441D9A43594098
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072086   (354106) от 12.11.2016
-
-VA - Хорошая Музыка на Все Времена (2016) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eurithmics - Sweet dreams
-02. Madonna - This Used To Be My Playground
-03. Tony Braxton - Unbreak My Heart
-04. Joe Dassin - A Toi(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:855035280DB70501793E52A16DB70F188D79A9BD
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

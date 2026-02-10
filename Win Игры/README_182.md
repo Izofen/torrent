@@ -19,6 +19,8 @@ SAMURAI WARRIORS 4 DX - слэшер, предлагающий не только
 magnet:?xt=urn:btih:0F8E95FE4FA635DFDA09FF0F974C38B3C307E62B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Strongloween: The Escape (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:ECE3D51F9AF57634F304E5AC2389C5AE10EE74F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ The Leviathan's Fantasy - это игра-симулятор, в которой 
 magnet:?xt=urn:btih:8D1AD84E5A0000E10812779949754565E394008D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Crysis: Warhead - продолжение приключенческого шут
 ```bash
 magnet:?xt=urn:btih:D3990DE01AFC8560EE7D67C84D5572939B68B5BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Noctuary - сплав визуальной новеллы и приключен�
 magnet:?xt=urn:btih:08819F9E24D0A9789D9B4B8698C1E7FD3AE99C62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Tribe Must Survive погружает геймеров в мрачные в�
 ```bash
 magnet:?xt=urn:btih:A35C7E1A37DE77B246F5AC6176AF7F5AA021A2B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Field of Glory: Kingdoms - это необычная стратегия, поз�
 magnet:?xt=urn:btih:422AFD139DA244A4F048FAFEDEDD44C84D03B7DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Mercenary Battle Company: The Reapers бросает вас в неистову�
 ```bash
 magnet:?xt=urn:btih:23F63B7830212AE02B7F641B76E15F8E723CBA8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Medieval Kingdom Wars – глобальная стратегия в реаль�
 magnet:?xt=urn:btih:7743B27E0E5A9766F600C3F64910F8E96695F25F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Call of Duty: Black Ops - седьмая часть знаменитой сер�
 ```bash
 magnet:?xt=urn:btih:01BB0705A8534E6CE8F113A52214EA0A23EC5BCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Grand Theft Auto IV (2008) [Ru/Multi] (1.0.8.0/1.1.3.0/dlc) Repack FitGirl [Comp
 magnet:?xt=urn:btih:CC472D398D1434184C7BC08E58ABA88A1E76DE5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Perimeter / Периметр (2024) [Ru/En] (3.1.3) Repack FitGirl [Legate Editi
 ```bash
 magnet:?xt=urn:btih:2B9E2DED279E73B701AFD8CD4318137FD5AAC3A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Alien: Isolation - ужастик от первого лица с элемент
 magnet:?xt=urn:btih:E0FE21B7B5CC813147D75DC64C75655967DCA4BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Succubus (2021) [Ru/Multi] (14521061/dlc) Repack FitGirl [Ultimate Edition] [18+
 ```bash
 magnet:?xt=urn:btih:9249C1BDCF027917E27F258625D0BA01BC40B415
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Duck Detective: The Secret Salami (2024) [En] (1.0.11) Repack FitGirl
 magnet:?xt=urn:btih:D6A551CBE90AABA73EFFC06EBAD8F2DB60C69259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Rainbow Cotton возвращается! Легендарная ведьма К�
 ```bash
 magnet:?xt=urn:btih:A909F4DA3D7639B58318F752425636B01FC3CBC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ INDUSTRIA – шутер от первого лица, который перен
 magnet:?xt=urn:btih:66F7DF9E069A66F2EB398D809622CF3343B46B99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Quake - легендарный научно-фантастический шут�
 ```bash
 magnet:?xt=urn:btih:A51251EA7B8849E01D36FEA70C9C448406F81761
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Die by the Blade является специфическим гибридом э
 magnet:?xt=urn:btih:80DD295C51FDECDF63F9C50E6383F9BE4FFB989C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Violet погружает вас в замок с привидениями, ат
 ```bash
 magnet:?xt=urn:btih:AED4027227063548234CAE5DE3EAF72A781A5F42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Morbid: The Lords of Ire - продолжение игры Morbid: The Seven Aco
 magnet:?xt=urn:btih:4823C8D5AAB49DF5D8C05331664808ACBDC136B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Vendir: Plague of Lies погружает игроков в мир, наполн
 ```bash
 magnet:?xt=urn:btih:8B14207994812E19AE9054CC6F2256A12EB29F38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Wizardry: Proving Grounds of the Mad Overlord - это полный 3D-риме�
 magnet:?xt=urn:btih:E3C8D55B98E84308CC18320190176811427CF61A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Crysis Remastered - Вы суперсолдат Пророк, облаченны
 ```bash
 magnet:?xt=urn:btih:5BFA43CCACA4C1B448CA9DA021144136A41EEE8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Titanfall 2 - соревновательный экшен с видом от п�
 magnet:?xt=urn:btih:821256A5B3CFCBFA92E13BCF25867897F28FA47E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Night of the Dead - выживастик от третьего лица в от�
 ```bash
 magnet:?xt=urn:btih:D0C6EA15841931B4F378C29E0988209F7D9495A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

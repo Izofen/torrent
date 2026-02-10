@@ -22,6 +22,8 @@ VA - Father's Day 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 magnet:?xt=urn:btih:DAD3EC9557C5A6CFA977771921D8A010787CCDAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Kasbo - 2020 - The Making of a Paracosm(   Читать дальше...   )Жа�
 ```bash
 magnet:?xt=urn:btih:979B53487C853ED62E0E8493A4864D875EB52ED6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:979B53487C853ED62E0E8493A4864D875EB52ED6
 magnet:?xt=urn:btih:812906668CCF0FA7B53925E5DBD5251711376B8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Dwson - Jewels (2024) [FLAC|Lossless|WEB-DL|tracks] <House>
 ```bash
 magnet:?xt=urn:btih:6E8DC6F95979B86D2B201717A29D7B3CF3617C00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Lovejoy - Wake Up & It's Over (2023) [FLAC|Lossless|WEB-DL|tracks] <Power Pop>
 magnet:?xt=urn:btih:73F82B700F90B215D2CE64C6B0297A52C4D3CB54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -157,6 +167,8 @@ Lovejoy - ...And It's Love! (2024) [MP3|320 Kbps] <Power Pop>
 magnet:?xt=urn:btih:5B84A6E3991B388B3636154C092E0E3265165784
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -181,6 +193,8 @@ magnet:?xt=urn:btih:5B84A6E3991B388B3636154C092E0E3265165784
 ```bash
 magnet:?xt=urn:btih:E2D01588EC8EDA62BF540E2E43CE8C2C15E9F7A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ VA - Petty Country (A Country Music Celebration Of Tom Petty) (2024) [FLAC 24/48
 magnet:?xt=urn:btih:21926BE7E26FB7C96DE999D54E04736BA6C6810D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ Erik Friedlander - Dirty Boxing (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz
 ```bash
 magnet:?xt=urn:btih:BEBD7B139458504FE980EBB56B7F325BEF4E34C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +281,8 @@ Kadavar - 3 Albums (2011-2017) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Acid Rock,
 magnet:?xt=urn:btih:1E58696794B92CFADCAA485A51665BE312CFDD22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +309,8 @@ Federico Caruso - Sfunk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:DF966D257F7C4CDC28D55F21CD0DE537E648B9B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +339,8 @@ Louis Jordan - 1941 - 1943 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing,
 magnet:?xt=urn:btih:A35187B843C4226331385972204AFCCE87D820A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +367,8 @@ Dreamroot - Push (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:339ACCB456FCFE4FE8C838B2946FE7FA08046552
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +397,8 @@ Bryard Huggins - Confidential (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz
 magnet:?xt=urn:btih:BD2B75E596834415F3F46B3611CEB0434EB6F393
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +425,8 @@ James Blake & Lil Yachty - Bad Cameo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:B1F829BBD9544D8D39EC89C232EE91B5FB7149A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -425,6 +455,8 @@ Lennie Tristano - 1947 - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop
 magnet:?xt=urn:btih:637625CA2E89644102A4AACEA9DAC6EF8D022A9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +480,8 @@ magnet:?xt=urn:btih:637625CA2E89644102A4AACEA9DAC6EF8D022A9E
 ```bash
 magnet:?xt=urn:btih:89F6E641C253CBAB150B071E73474511CA12E0F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +507,8 @@ Image Uploader - бесплатная программа для Windows c отк
 magnet:?xt=urn:btih:06AE695D49E4F7828B1D5D966C9DFBC2A92CB729
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +532,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:AC77A751D8A28F0FDE9B5DB4F3C0AA422E1B9586
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -524,6 +562,8 @@ VA - Acid Jazz & Funky Grooves 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz & Fu
 magnet:?xt=urn:btih:CAF6A5682F8758728B61003B4D1FAEB1FD57E8EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +588,8 @@ magnet:?xt=urn:btih:CAF6A5682F8758728B61003B4D1FAEB1FD57E8EF
 ```bash
 magnet:?xt=urn:btih:F1E8D1E37EEA95BECAE74CF1779359A7A44612E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +618,8 @@ Aurora "Rory" Block - американская блюзовая певица и 
 magnet:?xt=urn:btih:7DFA0C1883D307D7C24496E715191795FA15A3B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,6 +646,8 @@ VA - Serene Blissful Relaxation Luxury Travel Tunes for Relaxation and Enjoyment
 ```bash
 magnet:?xt=urn:btih:CA85229C06D5899B9E38F5E870BCD7120216076C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +676,8 @@ magnet:?xt=urn:btih:CA85229C06D5899B9E38F5E870BCD7120216076C
 magnet:?xt=urn:btih:DFECA69807C259FAB75B58F5C6B215D215843DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +705,8 @@ VA - Ibiza Meets Beauty Chill, Vol. 10 (Balearic Lounge & Chill House Grooves) (
 magnet:?xt=urn:btih:92E60993F3CEB7747FF889B7418C65C06BBB749F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -682,6 +732,8 @@ magnet:?xt=urn:btih:92E60993F3CEB7747FF889B7418C65C06BBB749F
 ```bash
 magnet:?xt=urn:btih:D8771EB4F2A3266EB20C4BB5AB0983C486C76217
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

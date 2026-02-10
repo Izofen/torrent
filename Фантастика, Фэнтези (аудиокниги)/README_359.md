@@ -1,3 +1,29 @@
+###  Публикация: 1316468   (505905) от 26.07.2019
+
+Вячеслав Шалыгин | Странствия безногого [книга 2] Звезда с одним лучом (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_505905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сверхсекретное задание майора разведки Федора Сбондина и финансовый кризис космического «волка» капитана Зигфрида Безногого настолько сближают этих разных людей, что в дальнейшей жизни им уже друг без друга не обойтись. Теперь они вместе будут мешать олигарху Злюхину разорять Родину, вместе готовиться к отражению бастурман-бастманчского нашествия, вместе спасать (   Читать дальше...   )Жанр: Юмористическое фэнтезиПродолжительность: 03:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C78641C71538AAF2797DE658BB3B9EED643D7F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 232917   (506092) от 03.09.2010
 
 Сергей Богомазов | Объект-12 [2010] [MP3]
@@ -18,6 +44,8 @@
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@
 magnet:?xt=urn:btih:F8BEFC29E5B30C50F8A16D75B74F2F34E30E0824
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:F8BEFC29E5B30C50F8A16D75B74F2F34E30E0824
 ```bash
 magnet:?xt=urn:btih:FA27BE5B72495ED31D4E7C5C5DDBCD3AF78243CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:FA27BE5B72495ED31D4E7C5C5DDBCD3AF78243CF
 magnet:?xt=urn:btih:45287CA751A3FCB1CE2C081A638CE0974BC11909
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:45287CA751A3FCB1CE2C081A638CE0974BC11909
 magnet:?xt=urn:btih:A2EF40123F2F1931E5659C957D53D2411E3E105B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ magnet:?xt=urn:btih:A2EF40123F2F1931E5659C957D53D2411E3E105B
 ```bash
 magnet:?xt=urn:btih:AC77D3BABBC3AF625FF872CA3B9B98CF171DFBE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:AC77D3BABBC3AF625FF872CA3B9B98CF171DFBE1
 magnet:?xt=urn:btih:196EE336136E7AF83FDF1EF2E319050C4436E7A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:196EE336136E7AF83FDF1EF2E319050C4436E7A7
 ```bash
 magnet:?xt=urn:btih:D34DCA0FB7D27B06D641F764BB7AE38A080F01B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:D34DCA0FB7D27B06D641F764BB7AE38A080F01B2
 magnet:?xt=urn:btih:0114D832774D326BC192C48A06708A2764A73E0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:0114D832774D326BC192C48A06708A2764A73E0A
 ```bash
 magnet:?xt=urn:btih:2DFEB4F5B18DE0596BA7D6D79B8C11D9014BAEE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:2DFEB4F5B18DE0596BA7D6D79B8C11D9014BAEE2
 magnet:?xt=urn:btih:FE1B078961703E5FA9B15BF1BC447AD3BCDACDF6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:FE1B078961703E5FA9B15BF1BC447AD3BCDACDF6
 ```bash
 magnet:?xt=urn:btih:DDBBAF00DFE61370DF5F4BF45B4F77C726C66B00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:DDBBAF00DFE61370DF5F4BF45B4F77C726C66B00
 magnet:?xt=urn:btih:C7B4C0539C74320891FAABEC32345C972E071400
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:C7B4C0539C74320891FAABEC32345C972E071400
 ```bash
 magnet:?xt=urn:btih:F549404A0405E3009BE6A9CAEF95627D02A63E05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:F549404A0405E3009BE6A9CAEF95627D02A63E05
 magnet:?xt=urn:btih:683D37BC2A07C5C065F3CD2F61B92E2449683A7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:683D37BC2A07C5C065F3CD2F61B92E2449683A7B
 magnet:?xt=urn:btih:9C0BD33CC72977C7063DC7FF7CCB230D5C0FF139
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:9C0BD33CC72977C7063DC7FF7CCB230D5C0FF139
 ```bash
 magnet:?xt=urn:btih:F17FAA521E193381986BF99BD51644D0891C663E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:F17FAA521E193381986BF99BD51644D0891C663E
 magnet:?xt=urn:btih:8A5F1CA706DBE207AC489BD22FE45CB0D66D000F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:8A5F1CA706DBE207AC489BD22FE45CB0D66D000F
 ```bash
 magnet:?xt=urn:btih:791AA9444D0E992DEFF5B20842A83F2FCFC5AF16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:791AA9444D0E992DEFF5B20842A83F2FCFC5AF16
 magnet:?xt=urn:btih:821E2ACBE2FBA7E40D1A664CBBCD403ECF686872
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +570,8 @@ magnet:?xt=urn:btih:821E2ACBE2FBA7E40D1A664CBBCD403ECF686872
 magnet:?xt=urn:btih:F0326282F7774DCDE82C304959817C1BECDFE1AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +595,8 @@ magnet:?xt=urn:btih:F0326282F7774DCDE82C304959817C1BECDFE1AF
 ```bash
 magnet:?xt=urn:btih:426B92748C2FBA396D8230757ABA62FE8625B3FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:426B92748C2FBA396D8230757ABA62FE8625B3FB
 magnet:?xt=urn:btih:8104E499D0807E7DAD943AE229FC29DF054F7590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +653,8 @@ magnet:?xt=urn:btih:8104E499D0807E7DAD943AE229FC29DF054F7590
 ```bash
 magnet:?xt=urn:btih:6E3A3A733CF4BE3EC80B79FB3AD8CE00E1E7BF12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,29 +681,7 @@ magnet:?xt=urn:btih:6E3A3A733CF4BE3EC80B79FB3AD8CE00E1E7BF12
 magnet:?xt=urn:btih:564DE7FCDB9DE452DB223CD65F823FDCC84D478A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562464   (508866) от 09.07.2022
-
-Александр Седых | Артефактор+ (Книга 2). Возвращение блудного императора. Том 1 (2022) [MP3, Проводник]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_508866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь настойчиво вносит поправки в людские планы, сплетая замысловатый узор судьбы. Хочешь – не хочешь, а впереди ждёт поворот и неведомо куда тебя вынесет её очередной каприз. Но как бы не петлял жизненный путь, он всегда ведёт домой. В этот раз простого возвращения в родной мир не получилось. Вернуться–то вернулся, но легче от этого не стало. Напротив. Новые приключения (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 14:13:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:091BDCF4FCDF2B1F575589A144DD0F6BDDB99098
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

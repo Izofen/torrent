@@ -1,3 +1,148 @@
+###  Публикация: 946716   (425052) от 14.10.2015
+
+Tom Jones - Long Lost Suitcase (2015) [FLAC|Lossless]<Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opportunity To Cry
+02. Honey, Honey (ft. Imelda May)
+03. Take My Love (I Want To Give It)
+04. Bring It On Home(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14811B5B2BA147E052984DCFA84654AD8767D89D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1324536   (425362) от 09.09.2019
+
+Liz Mitchell - Share The World (1999) ex. Boney M. [MP3|320 Kbps] <Reggae, Pop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Have A Party (4:53)
+02. Good Timing (3:59)
+03. Share The World (5:52)
+04. My Love's A Ship (3:47)(   Читать дальше...   )Жанр: Reggae, Pop, BalladПродолжительность: 00:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32AA721243690BAE3279C045C2FFD994D34CDD54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572034   (425399) от 25.08.2022
+
+Мираж 2 - Снова Вместе (1994) Remastered, 2020, J.S.P. [OGG Vorbis|485 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Музыка Нас Связала	4:29
+02. Наступает Ночь	4:23
+03. Снова Вместе	5:37
+04. Где Я	4:35(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2F91D1734260D66EF522E9456B0847A15B9F4AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572246   (425405) от 25.08.2022
+
+ABBA - On And On (2003) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waterloo
+02. Rock Me
+03. Love Isn't Easy
+04. Gonna Sing You My Lovesong(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18FC31F4D37F28B454AF62479D9C1E48E617DAEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064654   (425558) от 20.10.2016
+
+VA - BRAVO Hits 95 (2016) [FLAC|Lossless|WEB-DL|tracks] <Top 40, Pop, Dance, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_425558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zara Larsson - Ain't My Fault (3:44)
+02. The Chainsmokers feat. Halsey - Closer (4:04)
+03. Enrique Iglesias feat. Wisin - Duele el corazón (3:20)
+04. Rag'n'Bone Man - Human (3:18)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Dance, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep House, Electro, Synthpop, Pop Rock, Indie RockПродолжительность: 02:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F9659C3F5F11BB66597BB13411824D4D37E8021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064478   (426228) от 20.10.2016
 
 Ben Folds - So There (2015) [FLAC|Lossless|tracks + .cue] <Alternative Pop, Chamber Pop>
@@ -21,6 +166,8 @@ Ben Folds - So There (2015) [FLAC|Lossless|tracks + .cue] <Alternative Pop, Cham
 ```bash
 magnet:?xt=urn:btih:94548429848E65EC7C567EBEB08AF9238EBCF4DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ Alicia Witt - Revisionary History (2015) [FLAC|Lossless|tracks + .cue] <Adult Al
 magnet:?xt=urn:btih:244325E2EEA02FE656367E87E3701C138AF4DAAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ Rebecca Ferguson - Superwoman (2016) [MP3|320 Kbps] <Pop, Funk, Soul>
 ```bash
 magnet:?xt=urn:btih:77F15A9023536F621BCC9DA4AC7DBB6A3503AD92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ Cher - Dancing Queen (2018) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:EEC56C166601723B8677E786B4150AAA8061C5A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +282,8 @@ VA - The Best Of 80's (2015) 2CD [FLAC|tracks + .cue]<Pop, Rock, Disco>
 ```bash
 magnet:?xt=urn:btih:4C70B3524D417DC5880F6F68589B2C0406E6DB9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +312,8 @@ magnet:?xt=urn:btih:4C70B3524D417DC5880F6F68589B2C0406E6DB9E
 magnet:?xt=urn:btih:43ED0AB13ACCEC810DB7472C4B4D888B86DA7D09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +340,8 @@ CD 01:
 ```bash
 magnet:?xt=urn:btih:858E0CCB09B6D4067F0E624D86E3EB21C137C094
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +370,8 @@ Suzanne Vega - Close-Up Extras (2022) [FLAC 2.0|44/24|tracks|WEB-DL] <Acoustic, 
 magnet:?xt=urn:btih:9C9136E66B96A297C5BC843DA319FA56B99AA726
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +398,8 @@ Dido - Still On My Mind (2019) [OGG|485 Kbps] <Pop>
 ```bash
 magnet:?xt=urn:btih:24B4268486642F4116D971F8BE77A12782A837D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +428,8 @@ Celine Dion - All The Way... A Decade Of Song (1999) [OGG Vorbis|485 Kbps] <Pop>
 magnet:?xt=urn:btih:A8F179F787B663311724F3D8171C0BFC33FFE9DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +456,8 @@ VA - Танцевальный рай: Deep Radio (2016) [MP3|320 Kbps] <Dance, C
 ```bash
 magnet:?xt=urn:btih:3B1769C3B7D8B9AA41B8CEC3A86AD203085D6EC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +486,8 @@ JoJo - Mad Love. (2016) Deluxe Edition [FLAC|Lossless|tracks] <Pop, R&B>
 magnet:?xt=urn:btih:0C5F5852640E97CC0B8959A8728E7728F8DBE6FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +514,8 @@ Amy Sky, Olivia Newton-John, Beth Nielsen Chapman - Liv On (2016) [MP3|320 Kbps]
 ```bash
 magnet:?xt=urn:btih:B598BDE791CA28147DC5106944A5D98D0EB9872D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +544,8 @@ Clea Vincent - Retiens Mon Desir (2016) [FLAC|Lossless|tracks] <French Pop, Elec
 magnet:?xt=urn:btih:5C0818C48CCE6A038C5A06A2A32D64AA061A70C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +569,8 @@ magnet:?xt=urn:btih:5C0818C48CCE6A038C5A06A2A32D64AA061A70C2
 ```bash
 magnet:?xt=urn:btih:80681370F8807F1D49A7731CADFA537F6ED097CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +599,8 @@ Cruisin' Gang - 2 Albums (1984, 1986) LP [MP3|320 Kbps] <Electronic, Italo-Disco
 magnet:?xt=urn:btih:DB81EFAD5F7CEAF5A21980A42D94B29AAAD2F652
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +627,8 @@ The Flirts - Made In America (1984) [OGG Vorbis|485 Kbps] <Hi NRG, Synth-pop>
 ```bash
 magnet:?xt=urn:btih:AA6A08C8538B751051F3EF4D340BD71B12128EE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +657,8 @@ Demi Lovato - HOLY FVCK (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
 magnet:?xt=urn:btih:2CA7E46E79D9FFA2B5311325DB1F01A6B3C9EA05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +685,8 @@ The Beach Boys - The Beach Boys with the Royal Philharmonic Orchestra (2018) [FL
 ```bash
 magnet:?xt=urn:btih:9B563FB2F60D05B8307F0C67B074FC8B39C5459C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +715,8 @@ The Max Him - Danger Danger (1986) LP [MP3|320 Kbps] <Electronic, Italo-Disco>
 magnet:?xt=urn:btih:6A92DC70512B86F94F25FEBF2CC3B453B812C47F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,140 +744,7 @@ Sandra - Back To Life (2009) [OGG Vorbis|485 Kbps] <Synth-pop>
 magnet:?xt=urn:btih:458BD2D7DDF131FD71A3455621792659DC723F5F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571619   (429754) от 23.08.2022
-
-Sandra - The Art Of Love (2007) [OGG Vorbis|485 Kbps] <Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What D'Ya Think Of Me	4:34
-02. The Way I Am	3:31
-03. The Art Of Love	4:14
-04. What Is It About Me	3:54(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FEC1D7487AA50727313AD41BD4EA2CC7A026034
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571605   (429755) от 23.08.2022
-
-Sandra - Reflections (2006) [OGG Vorbis|485 Kbps] <Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Around My Heart (2006)	3:23
-02. Stop For A Minute (2006)	3:45
-03. Hi! Hi! Hi! (2006)	4:17
-04. Maria Magdalena (2006)	3:57(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A170F20F3F96EB41D1D3F96F6666681377097A9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571578   (429757) от 23.08.2022
-
-Sandra - The Wheel Of Time (2002) [OGG Vorbis|485 Kbps] <Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_429757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forgive Me	4:26
-02. Footprints	3:44
-03. Motivation	4:03
-04. I Close My Eyes	4:07(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82D0A533ED15A6877F7EB01254099F28FD50CD71
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 99690   (429960) от 15.10.2010
-
-Captain Hollywood Project - Discography (1990 - 2009) [MP3|160 - 320 kbps]<Eurodance>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_429960.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. more and more. belmond parker radio edit (3:54)
-2. more and more. belmond parker mix (5:37)
-3. more and more. endless summer short mix (3:22)
-4. more and more. endless summer mix (5:35)(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:31:50
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945903   (431118) от 11.10.2015
-
-Reflex (Ирина Нельсон) - The Very Best Of (2015) [FLAC|Lossless|WEB-DL]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_431118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я буду небом твоим
-02. Взрослые девочки
-03. Маленький принц
-04. Ты не узнаешь...(   Читать дальше...   )Жанр: PopПродолжительность: 01:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90E24E06FE7B3C802E18A8095B69C2CE3923C3D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

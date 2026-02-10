@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:375D726990333D9074D795545030130788E171BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:375D726990333D9074D795545030130788E171BD
 ```bash
 magnet:?xt=urn:btih:F897471D3B9BE221C05DE5AD085484BE6EF8FB8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ DAEMON Tools Lite - программа для работы с образами �
 magnet:?xt=urn:btih:84BA57B0A507051452633B6643F9DCC48E81AD82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:84BA57B0A507051452633B6643F9DCC48E81AD82
 ```bash
 magnet:?xt=urn:btih:E9E33F7C0D5FFA12581AFF42091A6AE1A151F44A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ LibreOffice - офисный пакет с открытым исходным к�
 magnet:?xt=urn:btih:E07B726CA54762193BC4FB74BABA1FDB0CCC17DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ Foxit PDF Reader - профессиональное приложение для 
 magnet:?xt=urn:btih:13AD8A127E328F78E3910FB42D88EBBF4D1D6D9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:13AD8A127E328F78E3910FB42D88EBBF4D1D6D9E
 ```bash
 magnet:?xt=urn:btih:D37994181F0D0F2F970CC3A3884058E956FA833B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ You can always use the latest versions for spring boot, and other dependencies i
 magnet:?xt=urn:btih:0DBA31E123248FA7C23DCFA722E8D33102E5EADF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:0DBA31E123248FA7C23DCFA722E8D33102E5EADF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ MiniTool Power Data Recovery - это инструмент предназнач�
 magnet:?xt=urn:btih:4F5D6647988ADA0433285EC3D78405974CEFEC95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ magnet:?xt=urn:btih:4F5D6647988ADA0433285EC3D78405974CEFEC95
 ```bash
 magnet:?xt=urn:btih:734825AB39C8F9682B3CD77F424BB5F25FBABFFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:734825AB39C8F9682B3CD77F424BB5F25FBABFFB
 magnet:?xt=urn:btih:F8B9B2957B737EFBC7A9817E7BD7943D8D66B02F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:F8B9B2957B737EFBC7A9817E7BD7943D8D66B02F
 ```bash
 magnet:?xt=urn:btih:1018E98E063A7D35F7FA48BF0A9599B6E0B8FCE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:1018E98E063A7D35F7FA48BF0A9599B6E0B8FCE2
 magnet:?xt=urn:btih:01A8660AD41667EF27DC7298538B9866330C06B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:01A8660AD41667EF27DC7298538B9866330C06B7
 ```bash
 magnet:?xt=urn:btih:11FB00ACF700A72687892BA1B9BBEECA05B0CFEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:11FB00ACF700A72687892BA1B9BBEECA05B0CFEB
 magnet:?xt=urn:btih:390B0B86CA8A4FBF7440B4546794A3A88A60D263
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:390B0B86CA8A4FBF7440B4546794A3A88A60D263
 ```bash
 magnet:?xt=urn:btih:1BB0259150192425697CA77665F3DB0EFAA37A35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:1BB0259150192425697CA77665F3DB0EFAA37A35
 magnet:?xt=urn:btih:B8FA479DD7029C397CA4CC005125FCE47E5F948C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:B8FA479DD7029C397CA4CC005125FCE47E5F948C
 magnet:?xt=urn:btih:6E20FCDC783794EAF7F675281722543CFE4AC094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:CBCCADE351A2DDBE6DF6720F334F972ED5CEB63E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ Malwarebytes Free (ранее Malwarebytes Anti-Malware) – полноценн�
 magnet:?xt=urn:btih:1FD6C03EE8ACFB0C689727E77CC603E82FBAE92A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:1FD6C03EE8ACFB0C689727E77CC603E82FBAE92A
 ```bash
 magnet:?xt=urn:btih:CDF94577AA6B836EF2E1C05DC1244C8E6C6539EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Topaz Photo AI — это универсальный инструмент для
 magnet:?xt=urn:btih:9AD39649BF18EE00C6CD589437BC2CF172DCAB71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Cartoon Animator (ранее известный как CrazyTalk Animator) пр�
 ```bash
 magnet:?xt=urn:btih:C92A97B78442F78DE809C0CE1DB32294F84B5A75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ AOMEI Backupper – программа для создания резервно�
 magnet:?xt=urn:btih:68E99F52319C93CA54EA38D0E9C1111C980981B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ uTorrent Pack 1.2.3.72 Repack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:CC4DC4BB5AD6F9FF5A360F797EC84ECAA3CFB885
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

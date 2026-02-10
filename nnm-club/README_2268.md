@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:D2874F0190334EFAD31C77414FE9A3A63195A4FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Blue Oyster Cult - Ghost Stories (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
 magnet:?xt=urn:btih:08458BB442FDA52FA6BD774B11C12800547BFC8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:73E7661B101787C87DFD81006BDC5C2816CA8CA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ WinSCP, это FTP и SFTP клиент с открытым исходным к�
 magnet:?xt=urn:btih:1CA0E149FC51E091BB5321485FB53AC6A84BD60F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:363D48B16DA7F5FE51550E05E7C6C6399212DD04
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:363D48B16DA7F5FE51550E05E7C6C6399212DD04
 magnet:?xt=urn:btih:6660CBDFDA92B8F66B7C067DE1A0DCAB01707F4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ NetLimiter - программа, решающая проблему контро�
 ```bash
 magnet:?xt=urn:btih:C14F7B33191EC15E6827AD2E8666E805AD0E4646
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:C14F7B33191EC15E6827AD2E8666E805AD0E4646
 magnet:?xt=urn:btih:018AA18A590336D4B5CF510AB51CC28D3D10D462
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:060D79FB37BBF2ED7A5CE90555B327096A50FBB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Broken Videos - Memories of Tomorrow (2024) [MP3|320 Kbps] <Synthwave, Retrowave
 magnet:?xt=urn:btih:483F9A092C14A50484C3A67FCFA2A471C43DADB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:483F9A092C14A50484C3A67FCFA2A471C43DADB7
 ```bash
 magnet:?xt=urn:btih:0E7C54D8EE4215B5E4802BD8035A23EF2DAE6139
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:0E7C54D8EE4215B5E4802BD8035A23EF2DAE6139
 magnet:?xt=urn:btih:0EE0779D4115018B0B8542F5532BA79302FD67F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:0EE0779D4115018B0B8542F5532BA79302FD67F8
 ```bash
 magnet:?xt=urn:btih:F40469BCB2FA7B7F044D297F978D1156644A8A8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:F40469BCB2FA7B7F044D297F978D1156644A8A8E
 magnet:?xt=urn:btih:09CBCBF7986CEAF12CCE635F2A2D8C077D94CD5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:09CBCBF7986CEAF12CCE635F2A2D8C077D94CD5D
 ```bash
 magnet:?xt=urn:btih:052B360398073806C062A6347ADEE5A269F49332
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ Disc 3: Live in ConcertЖанр: Progressive & Art-RockПродолжитель�
 magnet:?xt=urn:btih:CCF0FD6936E3F6C3C99BB1EB053BFA130F2D0A68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ StaxRip - инструмент для кодирования видео "все-
 magnet:?xt=urn:btih:090E01358305F675C827DE93D7ABA39E28B39C46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 ```bash
 magnet:?xt=urn:btih:7A470DDE06CB403598C7D887D5B45307CA863FB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ magnet:?xt=urn:btih:7A470DDE06CB403598C7D887D5B45307CA863FB2
 magnet:?xt=urn:btih:2152287438C842C63B3B3A68BF2CA7A2246A4F8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ NVIDIA GeForce Driver — драйвера для видеокарт произ�
 ```bash
 magnet:?xt=urn:btih:D8E55EB828404880C5F76BFEB8ADA4BDF915BD28
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +552,8 @@ magnet:?xt=urn:btih:D8E55EB828404880C5F76BFEB8ADA4BDF915BD28
 magnet:?xt=urn:btih:7C5EE2D88F527123AEFB0584A614A87BC61C9469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:7C5EE2D88F527123AEFB0584A614A87BC61C9469
 ```bash
 magnet:?xt=urn:btih:F246EF99D159B1D9BDAD9C3A586A0F9BA75C4E34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:92520AF39FC54DCFF9CF236CDFA756B21D0ED604
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ Windows Images Date Selector (WIDS) - утилита для смены даты 
 ```bash
 magnet:?xt=urn:btih:BAFC663BEDC983FA50D122F38F09B7FDBB0C7543
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ magnet:?xt=urn:btih:BAFC663BEDC983FA50D122F38F09B7FDBB0C7543
 magnet:?xt=urn:btih:B6C37AC079CBDC64536C3D863D5DB2E156E6D61E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Driver Booster сканирует и определяет устаревшие �
 ```bash
 magnet:?xt=urn:btih:4B65987D691D11017B066C6AF573434FEA8C3165
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

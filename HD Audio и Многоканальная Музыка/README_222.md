@@ -22,6 +22,8 @@ Russ Ballard - Russ Ballard (1984)  [DSD 2.0|2822,4/1|image|Vinyl-Rip] <Rock>
 magnet:?xt=urn:btih:1C0982AABB50050F3DD8F42D5F65D4800DA33CDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ B1 C'est Pas Moi(   Читать дальше...   )Жанр: Electronic, PopП�
 ```bash
 magnet:?xt=urn:btih:CC3DCBB1AB97828E87A35B508BE264AA4FB5BD46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Italo Maxi-Hits (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]  <Electroni
 magnet:?xt=urn:btih:00B36E88A2E913F1E7AE0DE3617645967B22D7B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:E0F8F90DECF1492457B62EC2EE220B38D3593419
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ A1 Telephone Mama
 magnet:?xt=urn:btih:69DB1CC47D89527F6FC9E55DA8369313AB908B6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:79A97B61574C39C7435504081EB30868D33264BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Rockets -Pi 3,14 (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electro, Synth
 magnet:?xt=urn:btih:72FA5930D05C0F7141A0157059789542E01A67DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:72FA5930D05C0F7141A0157059789542E01A67DD
 ```bash
 magnet:?xt=urn:btih:9E852E0752B4053D4BE077EE822CB8F29FEEF137
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ magnet:?xt=urn:btih:9E852E0752B4053D4BE077EE822CB8F29FEEF137
 magnet:?xt=urn:btih:012B3252DC6D230847E3A399D4F5C7D2B04BC9B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ magnet:?xt=urn:btih:012B3252DC6D230847E3A399D4F5C7D2B04BC9B8
 ```bash
 magnet:?xt=urn:btih:7B77525AC0D631F1C1D257E238F3D6645507B905
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ A4. Allons-Y (part 1) (1:58)(   Читать дальше...   )Жанр: Progre
 magnet:?xt=urn:btih:BAECA0E96443950B19B267510E374357BCCE2E32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +341,8 @@ A4. All Dead, All Dead (3:11)(   Читать дальше...   )Произво�
 magnet:?xt=urn:btih:3FFD59EC19227F7934FB8CA6D88D9D9D475277FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +369,8 @@ A4. Золотые Львы (5:36)(   Читать дальше...   )Жанр: 
 ```bash
 magnet:?xt=urn:btih:29307B0741427A8159A49843F9278FBBEEE28385
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +405,8 @@ Dire Straits - Brothers In Arms (UK-1985) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Cla
 magnet:?xt=urn:btih:28EF6996305902676186E9B67D432697DCEEFB96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +433,8 @@ A4 Homewrecker 3:23(   Читать дальше...   )Жанр: Pop Rock, Indie
 ```bash
 magnet:?xt=urn:btih:163EB7CCF6EE7D9C18E84CAC369FAE782C910245
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +463,8 @@ Slade - Old New Borrowed And Blue (1974) [DSD 128|tracks (Vinyl-Rip)]<Glam-Rock>
 magnet:?xt=urn:btih:E8A3E5D73B3F08A83A612892B61A4EEDC1EE0CC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +492,8 @@ Bomfunk MC's - In Stereo (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Electronic
 magnet:?xt=urn:btih:A8867340EA1BE2AA1DB4A28755044EE3AE3C110B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +517,8 @@ Billy Idol - Billy Idol (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Roc
 ```bash
 magnet:?xt=urn:btih:2373B79495A8DFDB0787C1B738E0AAE38721545B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +547,8 @@ A4. Abyss (4:12)(   Читать дальше...   )Производство: Na
 magnet:?xt=urn:btih:9903D45A5208E33F5B8C22305E89BC991DAC716F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +575,8 @@ magnet:?xt=urn:btih:9903D45A5208E33F5B8C22305E89BC991DAC716F
 ```bash
 magnet:?xt=urn:btih:8A6FC2215ED3BD310EFC655001E96539F80EBE48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +607,8 @@ Rainbow - Rising (1976) /2011 SHM-SACD/ [DSD 2.0 1bit/2822,4kHz |SACD-R]<Heavy m
 magnet:?xt=urn:btih:67E23621319C321BBADCED918EA2765504A31F71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +635,8 @@ Engelbert Humperdinck - Энгельберт Хампердинк (1978) [FLAC 2
 ```bash
 magnet:?xt=urn:btih:7E7C63B12602F28985C7B516EFC7CFF457CC02F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -621,6 +665,8 @@ A4. Digital Man (6:24)(   Читать дальше...   )Жанр: Progressive 
 magnet:?xt=urn:btih:9A9F286B20CEFE6B0289E581BD43044EEA5E9399
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +693,8 @@ A4 Almost There(   Читать дальше...   )Жанр: Funk, SoulПрод�
 ```bash
 magnet:?xt=urn:btih:31930C52B670D035485413F20D66E48D894AEDA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -675,6 +723,8 @@ Pink Floyd - The Endless River (2014) [LPCM 2.0, Dolby Digital 5.1, DTS 5.1 | Au
 magnet:?xt=urn:btih:43109B07FEB7B803519454C1F8AB036FBF335061
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -701,6 +751,8 @@ magnet:?xt=urn:btih:43109B07FEB7B803519454C1F8AB036FBF335061
 ```bash
 magnet:?xt=urn:btih:C7B377FDD261F4989558F46599696B5353BAF621
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

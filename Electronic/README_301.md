@@ -22,6 +22,8 @@ VA - Nothing But... Dance Vol.14 (2019) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:A22B26875F7A56710F5C423E3D25A8AEF49D488B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ ScAnDroid Experiment's - Stories Of Different Times (2022) авторская р
 ```bash
 magnet:?xt=urn:btih:92F77F9DA6826871271F1D1A47555B0B0879DA35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Progressive House 100 - The Ultimate Selection (2022) [MP3|320 Kbps] <Progr
 magnet:?xt=urn:btih:0831EEA4EF8AA3DABB1CC8D7D7D89A1D856472FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Enrico Sangiuliano - Live @ Awakenings Festival Easter Edition (2022-04-15) [MP3
 ```bash
 magnet:?xt=urn:btih:9D9BFD9E240F9087DADF84F3F36D625355B5DADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Meditation Music For Inner Peace Vol.3 Beautiful Ambient And Chillout Music
 magnet:?xt=urn:btih:9B1ABA9FCA35084014F574C448358603CF686228
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Meditation Music for Inner Peace Vol.2 (Beautiful Ambient and Chillout Musi
 ```bash
 magnet:?xt=urn:btih:74D280167B470BF312E1D1CD82EFE8E0F256506C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ magnet:?xt=urn:btih:74D280167B470BF312E1D1CD82EFE8E0F256506C
 magnet:?xt=urn:btih:71C15E3AF87F1076E679DF29322104B36D1FA0C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Автобан 1 (1997) [FLAC|Lossless|image + .cue] <House, Dance>
 ```bash
 magnet:?xt=urn:btih:E7957D771946397EADB85AEA44F58CBE555501D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - FG Top 10 June 2018 [MP3|320 Kbps] <Minimal, Tech House>
 magnet:?xt=urn:btih:CC9235DE3AC25E2A7CCD246910FE19D970967A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - A State Of Trance 2019 (Mixed by Armin van Buuren) (2019) [MP3|320 Kbps] <T
 ```bash
 magnet:?xt=urn:btih:33D459F47D4CA2F456D9522609AB3D5AA9034F63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Pendulum - The Reworks (2018) [MP3|320 Kbps] <Drum'n'Bass / Electronic Rock>
 magnet:?xt=urn:btih:01A5D29BAAF5F5333B35E26280D04D3C5DA11301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Chillout Cup - Moment In Lounge (2018) [MP3|320 Kbps] <Balearic, Downtempo>
 ```bash
 magnet:?xt=urn:btih:52D43373F98700B91BF7FCECC7401DE40DA1E398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ The Chemical Brothers - No Geography (2019) Japan Edition [FLAC|Lossless|tracks 
 magnet:?xt=urn:btih:473426969F6753773808C5DC31E128236D5CF901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Pneumatic Detach - Discography 10 Releases (2002-2012) [FLAC|Lossless|tracks+.cu
 ```bash
 magnet:?xt=urn:btih:D81B85057CF00C62FD92901F289AE8D95348D172
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ VA - Subterranean Disco, Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House
 magnet:?xt=urn:btih:B656117BC721FE69113E27836EB03D20FBC8F839
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ VA - I Love House Music 2016: The Finest And Deep House Music Collection (2016) 
 ```bash
 magnet:?xt=urn:btih:7B4779E13C91BDA84672BC4B1130FEA41B2370BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ One Arc Degree - The Glow Beneath (2018) Synphaera Records [FLAC 2.0|44.1/24|tra
 magnet:?xt=urn:btih:CC1684E50587E1175A8200CD1D9CD040BE8627D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ VA - Ultra Music Festival Miami (2022) [MP3|320 Kbps, (V0)] <House, Trance, Tech
 ```bash
 magnet:?xt=urn:btih:F80FB0344DEE58F8AA9130111CA8D068A31F19DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ VA - Chill Out Vocal Trance 2022 [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:AC13B2685DAA0A4AF0941212A36FBC6119B0D63C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Latin Fitness Workout 2017 (Ideal For Cardio, Gym, Running & Aerobics) [MP3
 ```bash
 magnet:?xt=urn:btih:E41A9A983DF177269A66D7B3DE0717E85E317079
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ VA - Armada Music - '90s / '00s Dance Hits Vol 1 (2022) [MP3|320 Kbps] <Funky, C
 magnet:?xt=urn:btih:9C07424B5BFF156A7331F2209B44E4D8B8B87C9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ VA - Progressive House Destination Vol.2 (2017) [MP3|320 Kbps] <Progressive Hous
 ```bash
 magnet:?xt=urn:btih:BC409C4BB2821ECE17E3F2509745970223D4DCC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ Nicky Romero - Tomorrowland Friendship Mix (2022-05-05) [MP3|320 Kbps] <Progress
 magnet:?xt=urn:btih:CE1C34D872D47D9AB8141302F7E118C08743503F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ Charlotte de Witte - New Form V: Universal Consciousness (2022-04-27) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:6E1CC777B5CB05FD508E0BD97304E05D1D42B365
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ Starlight - Faraway From Earth (2006) [MP3|320 Kbps] <Spacesynth>
 magnet:?xt=urn:btih:644E21BD23D33E101B5A8DCE36A90DCB57463E5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ VA - Avicii Presents Strictly Miami (2017) [MP3|320 Kbps] <House>
 ```bash
 magnet:?xt=urn:btih:DE02EF320D8BB5216893E1BD42CC17141ACE934A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

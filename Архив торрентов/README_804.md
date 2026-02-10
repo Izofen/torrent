@@ -21,6 +21,8 @@ Velocidad Absurda - Reborn For The Extermination (2011) [MP3|320 кб/с]<Brutal
 magnet:?xt=urn:btih:339C61E2D44FAD9BEBC8F9DAB4CBD654149324C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ Ludicra - The Tenant (2010) [MP3|320 кб/с]<Black Metal>
 ```bash
 magnet:?xt=urn:btih:268A1D4308A57A10549D534001733A3103D3DD52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -83,6 +87,8 @@ Steven Campodonico - Schwarze Grapefrucht LP (2012) [MP3|320 кб/с]<Dark Techn
 magnet:?xt=urn:btih:55C1926E83396A9BB63EACB8A02E4E47CB0D004F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -106,6 +112,8 @@ Mixed Wallpapers 0.8
 ```bash
 magnet:?xt=urn:btih:EDD6F19F5FF780DFE2D6EB2E1DB80E9CC8EA46DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -134,6 +142,8 @@ Synergic - Forgotten Rituals EP (2012) [MP3|320 кб/с]<Psychedelic / Progressi
 magnet:?xt=urn:btih:59168510F2AB683B27166F9B9B29B8CF52CB0013
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -161,6 +171,8 @@ magnet:?xt=urn:btih:59168510F2AB683B27166F9B9B29B8CF52CB0013
 magnet:?xt=urn:btih:73130E42A077FFB1D8A706C0F5CB18F826D347F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +196,8 @@ Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -фа
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -209,6 +223,8 @@ Superstars — профессиональная рестлинг шоу от м�
 magnet:?xt=urn:btih:3D0B619A3552F2A0BD5A429FCCC3B722DF331A21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -232,6 +248,8 @@ Chromium – мощный, но простой в использовании б�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +275,8 @@ Chromium – мощный, но простой в использовании б�
 magnet:?xt=urn:btih:4D731611FCCA882AC8713791F93686B41BA4078B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -280,6 +300,8 @@ magnet:?xt=urn:btih:4D731611FCCA882AC8713791F93686B41BA4078B
 ```bash
 magnet:?xt=urn:btih:B29D6C787DB0320228B9AF50F01D0A56DC1CEDC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +331,8 @@ magnet:?xt=urn:btih:B29D6C787DB0320228B9AF50F01D0A56DC1CEDC8
 magnet:?xt=urn:btih:6016503E29F8C4981DAB037E4CFEFAE3E8797625
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +356,8 @@ magnet:?xt=urn:btih:6016503E29F8C4981DAB037E4CFEFAE3E8797625
 ```bash
 magnet:?xt=urn:btih:E90C4FBAD005F29CD63054B4BA68B7EA9059B4B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +392,8 @@ VA - TMP: Trance Harmony 064 (2012) [MP3|320 kbps]<Trance, Uplifting Trance, Dre
 magnet:?xt=urn:btih:18814D2D27C521860E98F901759D1A6567C42B4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +427,8 @@ Waldheim - Fight Against Time (2008) [MP3|152-239 кб/с]<Melodic Death Metal, 
 magnet:?xt=urn:btih:498451100490C1F16DB973AA47B99749C3C825D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +452,8 @@ magnet:?xt=urn:btih:498451100490C1F16DB973AA47B99749C3C825D4
 ```bash
 magnet:?xt=urn:btih:0613C7B7B222EE86E52B321F7EA328D8F2C67EB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +488,8 @@ TJ Kong & Modular K - Dream Cargoes (2012) [MP3|320 кб/с]<Tech / Deep House>
 magnet:?xt=urn:btih:29334F274C63865CCBD45DF0E0F3EEDF3F2429AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +519,8 @@ magnet:?xt=urn:btih:29334F274C63865CCBD45DF0E0F3EEDF3F2429AF
 ```bash
 magnet:?xt=urn:btih:646022ED7426F391933804724E4295D57B4F0935
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +555,8 @@ Pizza Killers - С Зеленью и Грибами. (2012) [MP3|320 kbps]<Punk 
 magnet:?xt=urn:btih:C6C543E2A0C3025B70447289DA7D129E70A959E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +580,8 @@ magnet:?xt=urn:btih:C6C543E2A0C3025B70447289DA7D129E70A959E9
 ```bash
 magnet:?xt=urn:btih:452E2E47C78DCC06DD357AC3A242E747775FD85C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -573,6 +613,8 @@ Circle - Prospekt (2000) Limited Edition /2011, Essence Music/[WavPack|Lossless]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +643,8 @@ Circle - Prospekt (2000) Limited Edition /2011, Essence Music/[WavPack|Lossless]
 magnet:?xt=urn:btih:F7A52E1E916D414F14975113AA68929AAA77D560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +668,8 @@ magnet:?xt=urn:btih:F7A52E1E916D414F14975113AA68929AAA77D560
 ```bash
 magnet:?xt=urn:btih:E832E5A7DE6CF7D684A77CBE8B875027B5B9D3ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -652,6 +698,8 @@ magnet:?xt=urn:btih:E832E5A7DE6CF7D684A77CBE8B875027B5B9D3ED
 ```bash
 magnet:?xt=urn:btih:633178B795FEBEEB5E42DEB4B7ECDD494D9D1859
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -686,6 +734,8 @@ magnet:?xt=urn:btih:633178B795FEBEEB5E42DEB4B7ECDD494D9D1859
 magnet:?xt=urn:btih:BEFA1D8C57E3C418B30D159829B34D984F988408
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -713,6 +763,8 @@ magnet:?xt=urn:btih:BEFA1D8C57E3C418B30D159829B34D984F988408
 ```bash
 magnet:?xt=urn:btih:23971B4C11F7A3F47355AC3C1333167047240859
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

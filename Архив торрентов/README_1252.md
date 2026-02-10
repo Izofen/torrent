@@ -19,6 +19,8 @@ Microsoft .Net Framework 13.12.22 RePack by xetrin [Multi/Ru]
 magnet:?xt=urn:btih:3D4A25D0E5D595EEA6F190F8CC02D3F1B16E2227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:023D70C45B332F07AA1FD36F3E1E2C31A0ED1BB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Timer RH PRO - утилита для управления собственным
 magnet:?xt=urn:btih:7161A73ABC731A862125097282EFAF6A1F68B69C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Skype — программа от Microsoft, с помощью которой в
 ```bash
 magnet:?xt=urn:btih:67A572F8B6521137FCD8E8262F2B46CB9D88A4E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ WinToHDD - программа 3-в-1, которая позволяет выпо
 magnet:?xt=urn:btih:28C5C68A5CEFF82721B56E0B697B6539809CA939
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:BDBBA5C89F158E230CCF4BB05EF6BEB45D30832D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ JSON Wizard — идеальный инструмент для вас если �
 magnet:?xt=urn:btih:BB465C54149ADE9264379A46629649A1084BA193
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:9FD84FC9DE11BEFDD1A0481DF864A6969C3ED8E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Futuremark 3DMark 2.21.7324 Professional Edition RePack by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:4CECC4E259A919159425022400CCDB83BFC78B11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Skylum Luminar AI 1.0.0.7348 RePack (& Portable) by elchupacabra [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:E24A79118144E9C994BEDE2B76F28061D1DE65DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:E24A79118144E9C994BEDE2B76F28061D1DE65DC
 magnet:?xt=urn:btih:9F221F883B766A38328A45D314242C141CCE88CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:D96D8783E579099920630A6F69282E75BB9E3409
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 magnet:?xt=urn:btih:D25A933100C4C3A019CF36DF9140A80633566437
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Swift Publisher - это пакет графических утилит для m
 ```bash
 magnet:?xt=urn:btih:36DB48A0F34F50FF4BC168FB76DF746A0A3E5090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Windows and Office ISO Downloader - небольшое бесплатное пр
 ```bash
 magnet:?xt=urn:btih:AEA9FFD5F2466D34293502DE332643B7EB59E972
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ Psiphon предназначен для предоставления вам от
 magnet:?xt=urn:btih:831C637D41788263523DD4C40C4270C368E28724
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Privatus - это простое приложение для удаления н
 ```bash
 magnet:?xt=urn:btih:B2D51D7229F2F27CB991B876C6E20C1483DB1611
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Viber для Windows позволяет бесплатно отправлять 
 magnet:?xt=urn:btih:6950C643A2F4542A4163BE177F58F91896B6CB90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ AAF DCH Optimus Sound Realtek Mod, аудио драйвер "всё в одно
 ```bash
 magnet:?xt=urn:btih:85772E0E61C8E0949C72C8F3204C29CD3CFE6638
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ GarageSale 9.4.2 [Multi]
 magnet:?xt=urn:btih:113810FFE731BD6EF053AD66B4EDF76E806B8C3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +542,8 @@ File List Export (бывший File list to Excel) - простое в испо�
 magnet:?xt=urn:btih:1441FBEA6362C80E7CDC2C6931A3FCEAB8A6620C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:F0787438E72A5E583F5F3AC4EEE1615B259ADC49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ Xliff Editor- предоставляет простой способ редак�
 magnet:?xt=urn:btih:C36494339D389C3E7FF168CFAAF5A0978A34D572
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ Boxy SVG 4.14.2 [En]
 ```bash
 magnet:?xt=urn:btih:C66084A02D1B4A16A949AB771C261B76952814B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +647,8 @@ EazyDraw от Dekorra Optics – графическая программа, со
 magnet:?xt=urn:btih:E3CF1BF95CC9412DE605E8160DA26959E41442AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ Google Earth Pro 7.3.6.9326 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5C28E26C85394572B450C3BD9B9592F376A9D3E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

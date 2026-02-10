@@ -22,6 +22,8 @@ VA - The Retaliators - The Retaliators Theme (2022) Music from the Motion Pictur
 magnet:?xt=urn:btih:42A5EBD5F50F3692DB41EE1893FBB9F72A32B6CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Musica Antiqua Koln, Reinhard Goebel - Le Roi Danse (Original Motion Picture Sou
 ```bash
 magnet:?xt=urn:btih:4F7B3E7F9F8DDCFCCDE4D9616113B6F61066BFF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ VA - My Love My Guitar. The Best of Acoustic Guitar (2006) [MP3|320 кб/с]<Ins
 magnet:?xt=urn:btih:F803EAF139FB9F41E37F98881A50292B4E3044A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ Bob Lowey - The Journey (An Emotional Soundscape) (2016) [MP3|320 Kbps] <New Age
 ```bash
 magnet:?xt=urn:btih:2B8ECA2ED4DE64764944A361D724459654949BD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ Kyle Dixon & Michael Stein - Stranger Things 2 / Очень странные д�
 magnet:?xt=urn:btih:60EB9CC09C2071991A6AF0ABF16EC259C9F3B2DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ Ennio Morricone - Morricone 60 (2016) [MP3|320 Kbps] <Instrumental, Classical, S
 ```bash
 magnet:?xt=urn:btih:01C69C932FC8BEF3198C547DE38B3FAE7570C439
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ Hans Zimmer, Rupert Gregson-Williams - The Crown / Корона: Season One (Sou
 magnet:?xt=urn:btih:0F0CB3F8BC99C50ACD27AC90A91B1C3D457ADFC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ Marcin Patrzalek - Hush (2016) [MP3|320 Kbps] <Acoustic Guitar, Instrumental>
 ```bash
 magnet:?xt=urn:btih:C1FF0B3AB2A598CC14F9971D755CB94B2EEBCE63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ Hans Zimmer, Rupert Gregson-Williams - The Crown / Корона: Season One (Sou
 magnet:?xt=urn:btih:CC24B81246D73579E0BCCBF1841AA59B55DC3041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ Paul Mauriat - Sayonara Concert (2003) [OGG Vorbis|484 Kbps] <Pop, Classical, St
 ```bash
 magnet:?xt=urn:btih:536BBE896BE4ECB9FF36D4F6FB7E849079077ECA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ TagTräumer (TagTraumer) - Zuviel ist nicht genug (2001) Remaster, 2018, West 7 
 magnet:?xt=urn:btih:F3176370123033E80338BD31D00354C21AEAF65B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -324,6 +346,8 @@ magnet:?xt=urn:btih:F3176370123033E80338BD31D00354C21AEAF65B
 ```bash
 magnet:?xt=urn:btih:18A95D1552413BDFD543AAFC74990B3387E65132
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +376,8 @@ Fernando Velazquez - A Monster Call / Голос монстра (2016) [MP3|320 
 magnet:?xt=urn:btih:E23AA3D45AA5185F7912AD98490C8713A11D85C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +404,8 @@ VA - Cuban Divas (2017) [MP3|320 Kbps] <World, Latin>
 ```bash
 magnet:?xt=urn:btih:8C15F121EF1A4421C7399B4C41B697EB84649DF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +434,8 @@ Thomas Newman - Spectre (Original Motion Picture Soundtrack) (2015) [MP3|320 к�
 magnet:?xt=urn:btih:A0C90F25601EE19674BFBA72017A6FE748CD1BE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +462,8 @@ Jean Michel Jarre - Chronology (1993) Remastered / 2015, Sony Music /[FLAC|track
 ```bash
 magnet:?xt=urn:btih:7CEC68137C5A04F7AE1B0E84F89D4CBB3B089212
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +492,8 @@ Anima - Sacred Alliance (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
 magnet:?xt=urn:btih:EE06C3BEC98DC222AEA6CEA4EC77C8D6879F620F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +520,8 @@ Enigma - The Fall Of A Rebel Angel (2016) [FLAC|Lossless|image + .cue] <New Age,
 ```bash
 magnet:?xt=urn:btih:76C00D7CBDEA32C5780A9C833BA191FD6650BBBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +550,8 @@ Yarek - Noc Na Zamku (2008) [FLAC|image+.cue]<Electronic, Ambient>
 magnet:?xt=urn:btih:20EFE94EC250918BCE4C8A100B28F0493D1CB328
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -540,6 +578,8 @@ L'Orchestra Cinematique, British Academy Players - Stranger Things / Очень 
 ```bash
 magnet:?xt=urn:btih:EC018F28DAEBD26C31112E3B6125A83C6A4AE34B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -568,6 +608,8 @@ Ajeet Kaur - Haseya (2016) [FLAC|Lossless|tracks] <New Age>
 magnet:?xt=urn:btih:F6204304FDE4C6552A17329B25E90ACD1A4B70FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +636,8 @@ VA - Autumn Breeze Vol. 2 - Chill Sounds for Relaxing Moments (2018) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:333D92E47F18F3964605E50147D2FE9B35A1F5EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +666,8 @@ Ryan Judd - An Open Sky (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumen
 magnet:?xt=urn:btih:1F3BFC2214C21E885E84B61577424D853CFBCA8A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +694,8 @@ Steve Orchard - Theory of Communion (2017) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:FA702F9BD36A48AD6015337407C53498CBB2C5BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,6 +724,8 @@ Johann Johannsson - Arrival / Прибытие (Complete Motion Picture Soundtra
 magnet:?xt=urn:btih:9D0409D2382028CBF24D22EB7A319F64D1314AD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -702,6 +752,8 @@ Johann Johannsson - Arrival / Прибытие (Complete Motion Picture Soundtra
 ```bash
 magnet:?xt=urn:btih:4EE9BB24C397390DE7ADA3DF3CE5B08C58FEFD85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

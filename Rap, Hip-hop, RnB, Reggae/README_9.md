@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:96FC5D9F1C099DF6A524A99248BEEF96E98ADEEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Kussani - жизнь наоборот (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:CB8E234166E17A6BC086036C8B3F9FA7BC7D6337
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Sagath - Necrotica 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:E009CC5E228AFF422365D23233ED1D6A3DBBC40C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Lloyd Banks - The Course of the Inevitable 3: Pieces of My Pain (2023) [MP3|192 
 ```bash
 magnet:?xt=urn:btih:78B02CCB8721FCA99685FD3A09A4233E1BD2B10D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ $uicideboy$ - YIN YANG TAPES: Winter Season (1989-1990) (2023) [FLAC 24/44.1|Los
 magnet:?xt=urn:btih:7B736CDC9588CE56E5321395A29C173B3E13AE39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Lil Durk - Almost Healed (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, 
 ```bash
 magnet:?xt=urn:btih:F2F169C22EEBECDE25E47A9E9E2900C31C23975B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ KAYTRAMINE - KAYTRAMINE (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, R
 magnet:?xt=urn:btih:3CD87BC77922D1E6D93226323A5CC84DCB2F78B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ magnet:?xt=urn:btih:3CD87BC77922D1E6D93226323A5CC84DCB2F78B8
 ```bash
 magnet:?xt=urn:btih:C162ED1D69E3CEAF5DDB784764E7F09175DC3295
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ NF - Hope (2023) [MP3|320 Kbps] <Rap, Hip Hop>
 magnet:?xt=urn:btih:AEC076B0014F667FC7BBF32370D97F682748119B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ Jahmal TGK - СНЕГОПАД Underground (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:268C9047D398FE4EE27C87C9A7C542D339BD2BC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ Sagath - Necrotica 2 (Remix Pack) (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:FE1A7F47827FA60EB0A72BB58044B6DCE813208D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:FE1A7F47827FA60EB0A72BB58044B6DCE813208D
 ```bash
 magnet:?xt=urn:btih:D0B6BF13F7C745BE4A526F1E25C4BAE8DA1DC514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ magnet:?xt=urn:btih:D0B6BF13F7C745BE4A526F1E25C4BAE8DA1DC514
 magnet:?xt=urn:btih:1D48BF5091E572FD01E0F07CAF8F6978B9E18A52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ Rittz - MellowLOvation Music (2023) [MP3|320 Kbps] <Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:9BC74D9F74B6884DCA801DC15D1652916F17CD8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ OBLADAET - PLAYERS CLUB (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:F36B123107E49B0074A0C7E99BC0A69C6F0D63DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:F36B123107E49B0074A0C7E99BC0A69C6F0D63DD
 ```bash
 magnet:?xt=urn:btih:38AE1B5E548D41CB15B4C705A1AE2AA04D76CAF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ Loqiemean - Контроль (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:72777EE8F872C1C80A1F939E15BDD15AB7C9E330
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +514,8 @@ magnet:?xt=urn:btih:72777EE8F872C1C80A1F939E15BDD15AB7C9E330
 ```bash
 magnet:?xt=urn:btih:A9C676B83F25D6310A1D652AB60368921DDECFF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +544,8 @@ magnet:?xt=urn:btih:A9C676B83F25D6310A1D652AB60368921DDECFF7
 magnet:?xt=urn:btih:57C8DEBBC12F333DC1F7682DDFBE87ED1DDFF792
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ ZippO - Фитиль 2 (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:0F71399FF688B89C535A711299293771DE1CA50F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +602,8 @@ Kuba - Albomba (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:30198C7AA4525E6F352E4E57082EECEE7296FAAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ magnet:?xt=urn:btih:30198C7AA4525E6F352E4E57082EECEE7296FAAA
 ```bash
 magnet:?xt=urn:btih:6682809F4D1FD5328298EAC41AE2BC7EC5465015
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ magnet:?xt=urn:btih:6682809F4D1FD5328298EAC41AE2BC7EC5465015
 magnet:?xt=urn:btih:EDC90DB2EDA2A199E24505EE1EB82A03658A1169
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -642,6 +688,8 @@ ChipaChip & Sam Wick - I'm Sorry (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:968674101932DEF75CDDB46519817636174A8F8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -670,6 +718,8 @@ CD1:
 magnet:?xt=urn:btih:207BEBF6582961563444289E4DC96D2FED457742
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -696,6 +746,8 @@ magnet:?xt=urn:btih:207BEBF6582961563444289E4DC96D2FED457742
 ```bash
 magnet:?xt=urn:btih:379F37937404FE1BDB6086E00EA0FB4311456E93
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

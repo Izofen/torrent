@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:C6C5D539DF35738490570D43FF6C74A278869A89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:C6C5D539DF35738490570D43FF6C74A278869A89
 ```bash
 magnet:?xt=urn:btih:F3BFD01D1911CA87C276630AB12DD4AC46B06916
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:F3BFD01D1911CA87C276630AB12DD4AC46B06916
 magnet:?xt=urn:btih:FCE4DA6A543564C8E6CE25FCBB41D3757AB5ACF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:FCE4DA6A543564C8E6CE25FCBB41D3757AB5ACF3
 ```bash
 magnet:?xt=urn:btih:6F01E4F19144098858F8952A8EF0CD948525AB0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:6F01E4F19144098858F8952A8EF0CD948525AB0B
 magnet:?xt=urn:btih:A497861AB2337B12BDA630D2D5B2820CEF96D42F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ Spread Signs - Самый большой в мире словарь жестов
 ```bash
 magnet:?xt=urn:btih:1522D7C5944248240130BCD129D39C607904C873
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:1522D7C5944248240130BCD129D39C607904C873
 magnet:?xt=urn:btih:996C4D4751C02D29918593C7A9A306DD090FB012
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -199,6 +213,8 @@ magnet:?xt=urn:btih:996C4D4751C02D29918593C7A9A306DD090FB012
 magnet:?xt=urn:btih:80808C6F7C08CA5EEAE01EAD677BE9996D0F2458
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:80808C6F7C08CA5EEAE01EAD677BE9996D0F2458
 ```bash
 magnet:?xt=urn:btih:21FFCF0835953B360040DB2A4E9E4F4F31FF8A7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:21FFCF0835953B360040DB2A4E9E4F4F31FF8A7F
 magnet:?xt=urn:btih:0FEDA90B25663CF53B5282EE219D224593A42789
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:0FEDA90B25663CF53B5282EE219D224593A42789
 ```bash
 magnet:?xt=urn:btih:EF8B76124AFF47628FF33B9A6F9251E9E6E16398
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:EF8B76124AFF47628FF33B9A6F9251E9E6E16398
 magnet:?xt=urn:btih:2915CE1FD0830A64AE682E2069FE41EE4048C2E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ magnet:?xt=urn:btih:2915CE1FD0830A64AE682E2069FE41EE4048C2E8
 ```bash
 magnet:?xt=urn:btih:AD2E28D2E01E7B84D34BF42E176B3511B83BB237
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +371,8 @@ Weather XL PRO - погодное приложение, что по факту �
 magnet:?xt=urn:btih:D0D7F15BF42E0929DB945DFDD657D51F49746607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ magnet:?xt=urn:btih:D0D7F15BF42E0929DB945DFDD657D51F49746607
 ```bash
 magnet:?xt=urn:btih:9F5EEB7F16FBB826B9ED9094061D4F26C32A7BF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ Tody поможет Вам более эффективно организова�
 magnet:?xt=urn:btih:0B797DF8D82CC019C083056A2E5BFE5637634D17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ ICQ — мессенджер для тех, кто всегда онлайн. З
 ```bash
 magnet:?xt=urn:btih:D1F8448D5F62D50AEA5E03BA7D60920F3A9EFC1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ Old Movies v1.13.09 Premium [En] - Oldies but Goldies
 ```bash
 magnet:?xt=urn:btih:F8759D9336B2939299AF5812181336C587280DC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +507,8 @@ AI Перевести поддерживает более 100 языков.
 magnet:?xt=urn:btih:C58BF34FCCE91C1151ECA08AC19A2226EFC29C90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ Car Launcher AG - Никогда еще управление мультимед�
 ```bash
 magnet:?xt=urn:btih:308462580EE82C573D3EAC025705A7E177FE9A26
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -519,6 +559,8 @@ magnet:?xt=urn:btih:308462580EE82C573D3EAC025705A7E177FE9A26
 magnet:?xt=urn:btih:0F7D3D92CCB158C4B890C1F0E986AD7E0F74E498
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ Bike Computer v1.8.4.2 [Multi]
 ```bash
 magnet:?xt=urn:btih:102E6A6D4192B1F5D8F482B0A1C4576CCFC13F3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ VPN Russia - VPN сервера в России 1.158 [Ru/En]
 magnet:?xt=urn:btih:DFCB79DAE9F731B6323E2EFDEC62E919E4B5D678
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:DFCB79DAE9F731B6323E2EFDEC62E919E4B5D678
 ```bash
 magnet:?xt=urn:btih:8DE4D9B21BB4C59FEFDF4EEA756157FF32C9C5C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +666,8 @@ DAILY NOTE v4.2.2 Premium [Ru/Multi] - Ежедневные заметки, дн
 magnet:?xt=urn:btih:134A0D9A987F7D8AA2C6269B714EFB308D944DF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +691,8 @@ magnet:?xt=urn:btih:134A0D9A987F7D8AA2C6269B714EFB308D944DF3
 ```bash
 magnet:?xt=urn:btih:5EF265324029D994CB7FAE49DA03949F8897CB08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

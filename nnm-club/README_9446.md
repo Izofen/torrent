@@ -19,6 +19,8 @@ I am Setsuna (2016) [Ru/Multi] (1.0) Repack R.G. Механики
 magnet:?xt=urn:btih:0E75CE4BECD82D25103702734551547BBF9C1AB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Adguard – интернет-фильтр для защиты пользоват
 ```bash
 magnet:?xt=urn:btih:B3EA27A7F368CF7D385A7B56FE65462BBAD69807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:B3EA27A7F368CF7D385A7B56FE65462BBAD69807
 magnet:?xt=urn:btih:013946D12974D4B32B38DF33EE130021793C1825
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Topaz Labs Photoshop Plugins Bundle 2016 (01.12.2016) [En]
 ```bash
 magnet:?xt=urn:btih:7AE7B0164588596E57399C0CF9B02D9B5E67D759
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:7AE7B0164588596E57399C0CF9B02D9B5E67D759
 magnet:?xt=urn:btih:A688E3E8368C47875E5DBAB77C5C855CC41BD05F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:A688E3E8368C47875E5DBAB77C5C855CC41BD05F
 ```bash
 magnet:?xt=urn:btih:94493961FE10168E072EF990667E1AB4C54CBDCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ VK Messenger 1.0.0 (203) Beta [Multi/Ru]
 magnet:?xt=urn:btih:09D4E183767AECDD9602187A95D58A9CDD046C17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Valentino Rossi The Game (2016) [Multi] (1.000/dlc) License CODEX [Special Editi
 ```bash
 magnet:?xt=urn:btih:2F362D4546EF8FA2DBCF6B06049C33A61D4389EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:2F362D4546EF8FA2DBCF6B06049C33A61D4389EE
 magnet:?xt=urn:btih:24385B3DA0D2DADF825C50847E50693E3F47C333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:24385B3DA0D2DADF825C50847E50693E3F47C333
 ```bash
 magnet:?xt=urn:btih:6AF9A28FA1BD704C5C4F58976E619D974FFBFCC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:6AF9A28FA1BD704C5C4F58976E619D974FFBFCC6
 magnet:?xt=urn:btih:B9B82F3B730D9EA615D8993FBAE0E42B4CB54B25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ magnet:?xt=urn:btih:B9B82F3B730D9EA615D8993FBAE0E42B4CB54B25
 magnet:?xt=urn:btih:774A4B16200E6D868D2FFD98934C18FA16324347
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +330,8 @@ Debit & Credit - Учет финансов 2.5.3 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D9D8C01DF29A2F92953BFA9FE47F36C4744D52A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:D9D8C01DF29A2F92953BFA9FE47F36C4744D52A0
 magnet:?xt=urn:btih:819375C5C808470D23810BE3C0B9F9073BFCB3E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ VA - Record Super Chart #512 (2017) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:E2B3E81E188E6BB7A8088258C137339E018F24F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:E2B3E81E188E6BB7A8088258C137339E018F24F0
 ```bash
 magnet:?xt=urn:btih:6E34C6CFF4E0135200FD9B8C79DBC7304DDDE570
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ Unheilig - Rares Gold (2017) 2CD [FLAC|Lossless|image + .cue] <Gothic Metal, Ind
 magnet:?xt=urn:btih:796513EFD4053C1D325EB4D7413D62A99AEE7FE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ magnet:?xt=urn:btih:796513EFD4053C1D325EB4D7413D62A99AEE7FE4
 ```bash
 magnet:?xt=urn:btih:E1A1ADC491850710FAE1B1DA289B19C87ABE5FFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ magnet:?xt=urn:btih:E1A1ADC491850710FAE1B1DA289B19C87ABE5FFA
 magnet:?xt=urn:btih:1227F2FAA46A3F35ACA5BE9FC9D9E2BB0E925B55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:1227F2FAA46A3F35ACA5BE9FC9D9E2BB0E925B55
 ```bash
 magnet:?xt=urn:btih:0AE90B659764D0C5196BC074FEE3EC5E63F7B2ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:0AE90B659764D0C5196BC074FEE3EC5E63F7B2ED
 magnet:?xt=urn:btih:745B44187B5D0E0B10FF9129A045FBCA90094930
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:745B44187B5D0E0B10FF9129A045FBCA90094930
 ```bash
 magnet:?xt=urn:btih:785650EE1A444DDC059610FCB24D26797BF7A63F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Fenêtre позволяет визуализировать видео, изоб�
 magnet:?xt=urn:btih:8A3A10EAB5DC59A840743FFB743B99521B05BE47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ Chantale Gagne - Rooftop Jazz (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:F5AE36AAF945D8310B66C1B6A9D0B6002FB8E774
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ VA - Boudoir Lounge Area (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
 magnet:?xt=urn:btih:1C629DEF03112D63186B18FCE73739A98596AE9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -637,6 +687,8 @@ magnet:?xt=urn:btih:1C629DEF03112D63186B18FCE73739A98596AE9F
 ```bash
 magnet:?xt=urn:btih:E3FE3548012EA0DED10222FC5068C024DEAA9FFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

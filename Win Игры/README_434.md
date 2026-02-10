@@ -1,27 +1,3 @@
-###  Публикация: 1224151   (667965) от 08.05.2018
-
-Trailblazers (2018) [Multi] (1.0) Repack Other s
-
->>Win Игры
->>Racing
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_667965.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать на Турнир Trailblaze! Приготовьтесь к скоростным и ярким развлечениям в Trailblazers — первую посекундную аркадную гонку для нескольких игроков. Разукрасьте трассу своими динамичными гоночными линиями, ускорьтесь с цветом команды и перехитрите противника в стремлении к финишной линии. Чем больше красите, тем быстрее несетесь! Trailblazers — инновационная (   Читать дальше...   )Тип издания: RepackРазработчик: SupergonkЖанр: Racing, ArcadeЯзык субтитров: Английский, Французский, Немецкий и другиеЯзык интерфейса: Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F2396256BE497300B49996623CCCBEAE23C6EBE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224103   (668022) от 08.05.2018
 
 Edge of Reality 3: Fatal Luck / Край Реальности 3: Роковая Удача (2018) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
@@ -42,6 +18,8 @@ Edge of Reality 3: Fatal Luck / Край Реальности 3: Роковая 
 ```bash
 magnet:?xt=urn:btih:43F1FCDDEBCCBC62FDAD99A2D1B6D564E90A447E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ Désiré (2016) [Ru/Multi] (1.03) License POSTMORTEM
 magnet:?xt=urn:btih:87C9411B387788429657B04E5E0AC953AF83FFDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ Anno 1404 (2010) [Ru] (1.03.3650/2.01.5010/dlc) Lossless Repack R.G. Catalyst [G
 ```bash
 magnet:?xt=urn:btih:5E0BF41C3410EAA9D124CABEDC58349CCD446F9C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ Saints Row: Gat Out of Hell - это самостоятельное дополн
 magnet:?xt=urn:btih:51375ED827C922E5533692BCEF52C028E508118A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ Lost Sea (2016) [Ru/Multi] (1.0.3L) License GOG
 ```bash
 magnet:?xt=urn:btih:7404B2CA38E1616F1A741409A990639BB085C466
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ Twola был просто еще одним умирающим маленьки�
 magnet:?xt=urn:btih:09904C3268980B614CE62DDC9498EBDE27316CD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +174,8 @@ Dark Parables 14: Return of the Salt Princess (2018) [En] (1.0) Unofficial [Coll
 ```bash
 magnet:?xt=urn:btih:CB6B6655AB2ACF7B3844B0BD5F3A38E151D8E752
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +201,8 @@ Inversion (2012) [Ru/Multi] (5.48) SteamRip Let'sPlay
 magnet:?xt=urn:btih:39E71B446B013876E433D6027C4186282B4CAD0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +226,8 @@ ICED (2017) [Ru/Multi] (23.05.2017) Repack VseTop
 ```bash
 magnet:?xt=urn:btih:98A3B1B70858694ED1162BE2ADA35A2966BE7271
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +253,8 @@ Bonfire Stories: The Faceless Gravedigger / Истории у костра: Бе
 magnet:?xt=urn:btih:4F4C4BC4E1FCF000A3AEB30A39BC079E210CAFBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +278,8 @@ Dark Parables 9: Queen of Sands (2015) [En] Unofficial [Collector's Edition / К
 ```bash
 magnet:?xt=urn:btih:0B829D2F75850849BC81E2F200C2E6F2445E17D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +305,8 @@ Battlezone (2017) [Ru/Multi] (1.08/dlc) Repack Other s [Gold Edition]
 magnet:?xt=urn:btih:5D8B1066D6599923B4DE5B4CA0774E669303C648
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +330,8 @@ Dovetail Games Flight School — это аркадный авиасимулят�
 ```bash
 magnet:?xt=urn:btih:31825829F416633AD20952E268BF16C2C6DEA900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +357,8 @@ Earth Space Colonies – стратегия-симулятор, где вам п
 magnet:?xt=urn:btih:D65A1C2E2429E33BD71B8DFFC1533FD2A22F9037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +382,8 @@ Awakened (2016) [En/Multi] (1.0) Repack Other s
 ```bash
 magnet:?xt=urn:btih:ECD61927484C8655C431882A7E76E7463B0964AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +409,8 @@ Awakened – это инди-хоррор игра, в которой у Вас 
 magnet:?xt=urn:btih:2EA09A6FCDD31A5527FD0D4AEAC0048DBBC81066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +434,8 @@ The Witcher 3 Wild Hunt / Ведьмак 3: Дикая Охота (2015) [Ru] (1
 ```bash
 magnet:?xt=urn:btih:F86AA19D0EA72B4D39E5A52BE1EE237A2C42DC4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +461,8 @@ Total War: Empire (2018) [Ru/Multi] (1.5.0) SteamRip R.G. Origins [Definitive Ed
 magnet:?xt=urn:btih:8C1A9A4F68C4744230BEBD05CABEE6448AC1FF9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +486,8 @@ Total War: Napoleon (2018) [Ru/Multi] (1.3.0) SteamRip R.G. Origins [Definitive 
 ```bash
 magnet:?xt=urn:btih:DA15DCE9556BA1EEDDE8E1219EDC5E470A76F2C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +513,8 @@ Sound of Drop - fall into poison (2015) [Ru/Multi] (1.0) License GOG [18+]
 magnet:?xt=urn:btih:35E002F82278626F121677B503D2888B32770DE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +538,8 @@ Telepath Tactics от независимых разработчиков Fire Emb
 ```bash
 magnet:?xt=urn:btih:176D5912E97A4EC4C9680BC68E8B7598E1B42161
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +565,8 @@ Steel Division: Normandy 44 — это тактическая стратегия
 magnet:?xt=urn:btih:4B5E919CF8CD36ECC697CC43E6E27B0CE4E567C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +590,8 @@ HordeCore - крутой сайд-скроллер с элементами бо�
 ```bash
 magnet:?xt=urn:btih:65E74AE1E9FE895433EEFA1E84908E42AE032C7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +617,8 @@ Oxygen Not Included – это новый проект от нашумевшей
 magnet:?xt=urn:btih:86F73AB82F7E9301C8EB176A9AFE6D366DFED350
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +642,34 @@ Fear for Sale 5: The 13 Keys / Страх на продажу 5: 13 ключей
 ```bash
 magnet:?xt=urn:btih:F2BF81E17AB20C108BD617DDDEDC21879B60ABB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1136837   (670522) от 24.05.2017
+
+Impact Winter (2017) [Ru/Multi] (1.0.2) Repack VseTop
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_670522.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Помощь придет через 30 дней...»... Таинственное радиосообщение гласит: спасатели уже в пути. Вы — Джейкоб Соломон, лидер группы людей, переживших опустошительное падение астероида. Мир изменился, и теперь он погребен под толщей снега.Тип издания: RepackРазработчик: Mojo BonesЖанр: Adventure, Action (Survival), Top-DownЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77CE56F7042B930A53575AB0B55B6A79246F5645
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

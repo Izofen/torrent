@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:D9CED5BCD58125716691141B06D0CA6AFE27C19A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Total Commander 11.02 (11.11.2023) Portable by MiG [Ru/En]
 ```bash
 magnet:?xt=urn:btih:599E66650D9A3036D3C7624BBE594304A2272B91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:599E66650D9A3036D3C7624BBE594304A2272B91
 magnet:?xt=urn:btih:A1B6866112F39D959238E4D31762FDD7FD5015DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ PDF to PowerPoint Converter 6.2 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B7C0BFEAB366823A8CE8CC951F89C037937B40E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:B7C0BFEAB366823A8CE8CC951F89C037937B40E4
 magnet:?xt=urn:btih:A181EA3E2E2D6A7D32E742BC7F66D577853E6151
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ XYplorer – удобный мультивкладочный файловый м
 magnet:?xt=urn:btih:5EDD7FA4506D161AD02A40AF4BC86F7A591C26B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:5EDD7FA4506D161AD02A40AF4BC86F7A591C26B5
 ```bash
 magnet:?xt=urn:btih:7DA9021101596E9DE9E07C4CF784A450F804D951
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ RX уже давно является популярным пакетом для
 magnet:?xt=urn:btih:60BDFE5CB1265AE42AA58B7708B56E19E4486BB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:60BDFE5CB1265AE42AA58B7708B56E19E4486BB7
 ```bash
 magnet:?xt=urn:btih:F567C55E61130BFFC1B9CCC3FD09D60FB3F34759
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Windows Firewall Control - утилита, с помощью которой, в�
 magnet:?xt=urn:btih:8C5D96EDB7E822520CFECBAA629A5176716AE3F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ Path Finder - один из лучших файловых менеджеров, 
 ```bash
 magnet:?xt=urn:btih:C5FF76EB11AE2B2A6DC09AEC8C850C065A718279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ Zubrowska - Zubrowska Are Dead (2010) [MP3|192 кб/с]<Brutal Death / Mathcore>
 magnet:?xt=urn:btih:16C65D91776F58386CF47EAF1C011656897A9216
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ magnet:?xt=urn:btih:16C65D91776F58386CF47EAF1C011656897A9216
 ```bash
 magnet:?xt=urn:btih:E7F2EB279CB8D9FC42984BF6BC6BB23DEFF2ED47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:E7F2EB279CB8D9FC42984BF6BC6BB23DEFF2ED47
 magnet:?xt=urn:btih:1AF94E5AC817D6B13C9ABF501CC8A662D167FF05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:1AF94E5AC817D6B13C9ABF501CC8A662D167FF05
 magnet:?xt=urn:btih:B6F5680A1D5C8D0FB6B126D7580C78D48FCA8B2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +419,8 @@ magnet:?xt=urn:btih:B6F5680A1D5C8D0FB6B126D7580C78D48FCA8B2D
 ```bash
 magnet:?xt=urn:btih:8C7053534EEDB20B36246EA4D7DD0693BBCAFE4F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -416,6 +448,8 @@ magnet:?xt=urn:btih:8C7053534EEDB20B36246EA4D7DD0693BBCAFE4F
 ```bash
 magnet:?xt=urn:btih:3A93EDFB352594AC0431838E631F2D499A57D16B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ VBT - Just The Tip (2012) [MP3|320 кб/с]<Death Grind>
 magnet:?xt=urn:btih:DD15A1CFBD83901E33AEBFAB383F9E920E4F9546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ Macrium Reflect обладает интуитивно понятным поль�
 ```bash
 magnet:?xt=urn:btih:7B55E7891902B75384E4F8F4FC293A28CBC00665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +541,8 @@ VA - Песня года 1995. Финал (часть 3) (1995) [FLAC|Lossless|i
 magnet:?xt=urn:btih:435EACD75F259D5E7E68B3C1EC38E0AC64982469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ Movavi Photo Editor – это простой фоторедактор для к
 magnet:?xt=urn:btih:FFA34135BD8648DB40384750A937FDDFC480DBB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:FFA34135BD8648DB40384750A937FDDFC480DBB0
 ```bash
 magnet:?xt=urn:btih:4FE5495F4404F420BDC66ABEFFDEBB316EBCD172
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:4FE5495F4404F420BDC66ABEFFDEBB316EBCD172
 magnet:?xt=urn:btih:463B1B7107305E8B06C8B040D9EFD8FE25AD0F54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:463B1B7107305E8B06C8B040D9EFD8FE25AD0F54
 magnet:?xt=urn:btih:FDC8389AF1D294031B03695D6727937DBC989481
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:FDC8389AF1D294031B03695D6727937DBC989481
 magnet:?xt=urn:btih:8FCB083BB05016D420E6433F254F64F4074F4578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ magnet:?xt=urn:btih:8FCB083BB05016D420E6433F254F64F4074F4578
 ```bash
 magnet:?xt=urn:btih:ED2E04D460EBC001EEFC6720EFDFF4621B4AC602
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

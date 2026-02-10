@@ -1,3 +1,29 @@
+###  Публикация: 541113   (502019) от 30.08.2012
+
+Артем Кашканов | О фотографии простым языком [2012] [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_502019.jpg" />
+</div>
+
+
+###  Подробнее
+
+О фотографии простым языком - Легко и доступно, замечательный фотограф Артем Кашканов, делится своим опытом, о том как научиться фотографировать и что для этого необходимо. Вы узнаете как правильно выбрать фотоаппарат и объектив, как исправить фотографии в фоторедакторах GIMP и Adobe Photoshop Lightroom и многом другом.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17CB838CAF37865775879830BA8F09CB5A02BDF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934608   (502083) от 05.09.2015
 
 Майя Гогулан | Законы полноценного питания (2009) [PDF, DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:28C8D76F579A754F557EA3FA68E4A841FF6AE7EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:28C8D76F579A754F557EA3FA68E4A841FF6AE7EB
 magnet:?xt=urn:btih:262CD8AF46ED6D21456A0693372008698A7D6377
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:262CD8AF46ED6D21456A0693372008698A7D6377
 ```bash
 magnet:?xt=urn:btih:FF16361F35B79C5C5E467091EEA320C3841C33A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:FF16361F35B79C5C5E467091EEA320C3841C33A9
 magnet:?xt=urn:btih:E4B9674EE7AD4561F1CD932A9E95C9AC7F7E3769
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:E4B9674EE7AD4561F1CD932A9E95C9AC7F7E3769
 ```bash
 magnet:?xt=urn:btih:2C372255BE55B3D63E620D16730FBCFC464FC50E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:2C372255BE55B3D63E620D16730FBCFC464FC50E
 magnet:?xt=urn:btih:625797E2259A8B7202F8CBEAA75E5C45E4CDCC98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:625797E2259A8B7202F8CBEAA75E5C45E4CDCC98
 ```bash
 magnet:?xt=urn:btih:78776D8A40AE2C49A200014D8927CB04F9FEB921
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:78776D8A40AE2C49A200014D8927CB04F9FEB921
 magnet:?xt=urn:btih:7165FC818D5AAAB3A9DCB67CEFBA7BCA9E1218D7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:7165FC818D5AAAB3A9DCB67CEFBA7BCA9E1218D7
 ```bash
 magnet:?xt=urn:btih:F6C56844C15497835B0D1B91C502122A3CD57A6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:F6C56844C15497835B0D1B91C502122A3CD57A6C
 magnet:?xt=urn:btih:82D42579273425BE94650CF7559CE9E98F2B977E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:82D42579273425BE94650CF7559CE9E98F2B977E
 ```bash
 magnet:?xt=urn:btih:5EADE3D6A2D21531E8161ACDEF46D84B34B25C30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:5EADE3D6A2D21531E8161ACDEF46D84B34B25C30
 magnet:?xt=urn:btih:594C34E362443E82B900C9B5BAC50A8F4E1153CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:594C34E362443E82B900C9B5BAC50A8F4E1153CD
 magnet:?xt=urn:btih:5093FC0A8FABFBC721ACBD53AF948FF648ED7D73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:5093FC0A8FABFBC721ACBD53AF948FF648ED7D73
 ```bash
 magnet:?xt=urn:btih:D4FFCF79770A52AE0641525833C7BDCA3C6A3364
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:D4FFCF79770A52AE0641525833C7BDCA3C6A3364
 magnet:?xt=urn:btih:213045B4D036BE50CAF825C8FEE774A5E239291E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:213045B4D036BE50CAF825C8FEE774A5E239291E
 ```bash
 magnet:?xt=urn:btih:01D4D92327FDDBAAD3F03372EDD521359D296445
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:01D4D92327FDDBAAD3F03372EDD521359D296445
 magnet:?xt=urn:btih:4467E548F4658125B2A00B0004C0520DD4DD94EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:4467E548F4658125B2A00B0004C0520DD4DD94EE
 magnet:?xt=urn:btih:968A6F7EE6E964B7633EE9783D2E023CBD0776AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:968A6F7EE6E964B7633EE9783D2E023CBD0776AA
 ```bash
 magnet:?xt=urn:btih:C5E410CF00460CB0DED356E8E6FAD70047B6DC4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:C5E410CF00460CB0DED356E8E6FAD70047B6DC4B
 magnet:?xt=urn:btih:13EBE905C6829D85BF13EDFE6BFAF665C1BEF7C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:13EBE905C6829D85BF13EDFE6BFAF665C1BEF7C0
 magnet:?xt=urn:btih:DA81CDB27CB278D7D8C349DB64293340E2A0E1B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:DA81CDB27CB278D7D8C349DB64293340E2A0E1B4
 ```bash
 magnet:?xt=urn:btih:092758C50ED0C95DE94E931EF9B1902AF6343D86
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:092758C50ED0C95DE94E931EF9B1902AF6343D86
 magnet:?xt=urn:btih:447727CED46BDA7D302CD82123695F7151B6F88C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -584,6 +656,8 @@ magnet:?xt=urn:btih:447727CED46BDA7D302CD82123695F7151B6F88C
 ```bash
 magnet:?xt=urn:btih:192C4901218FE5D981B9117F45B3BBD12AB965F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,29 +683,7 @@ magnet:?xt=urn:btih:192C4901218FE5D981B9117F45B3BBD12AB965F7
 magnet:?xt=urn:btih:BDD3A1699F643091A3E34DC403BEF6527A8195E0
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933791   (504513) от 03.09.2015
-
-Сергей Нечаев | Александр I. Самый загадочный император России (2014) [FB2]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_504513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Об Александре I написаны десятки книг и тысячи статей. Люди разных поколений, занимавшиеся историей, каждый раз открывали в императоре новые грани, подчеркивали и его масштаб как правителя, и противоречивость поступков. Прошло почти два века со дня загадочной смерти императора Александра I. Но тайна его смерти так и остается нераскрытой. Умер ли император Александр, (   Читать дальше...   )Жанр: Биографии и МемуарыФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:737B3EE304EDB8EB55AD55F9EC9EED71A2333D0D
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

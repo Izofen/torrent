@@ -19,6 +19,8 @@ Owlcat Games, 18 000 спонсоров с Kickstarter, дизайнер пов�
 magnet:?xt=urn:btih:172C545A50C55BBA2010CA90B210507E431D636F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Legend of Heroes: Trails from Zero (2022) [Multi] (1.4.13) License GOG [Extr
 ```bash
 magnet:?xt=urn:btih:201027F79185EEF241A3952DEC225D03CBCF173B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Mount & Blade II: Bannerlord представляет собой долгожд�
 magnet:?xt=urn:btih:AB2EEAEF41656BA9F9C98BF8D2802775910F972C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Moon Mystery приглашает игроков в космическую од�
 ```bash
 magnet:?xt=urn:btih:DAE5FA53C6194BF678F90D5981223FC8485FBC55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Christmas Stories 13: Clara and the Guiding Star / Рождественские 
 magnet:?xt=urn:btih:F9718D92763D32393B622F37195030261A2A4CAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Christmas Fables 3: The Wishing Store / Рождественские небыл�
 ```bash
 magnet:?xt=urn:btih:035199AAE9DA17633D351C59C802A37A63224ABF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Mystery of Myths: Heart of Athens (2024) [Multi] (1.0) Unofficial [Collector's E
 magnet:?xt=urn:btih:2B1E1C563F8F4C3CCC61CD36E78C2719D3831B47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Critter Café (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:73E86D4532018A2E044F3999413ACE3028613D9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Exographer (2024) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:7AAF69EEFBBECD21E10A05676E0355DF294A4ED9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Cooking Simulator (2019) [Ru/Multi] (6.0.14/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:3A48375DDF2499FE3E72CB07DB681073561D4E27
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Mouthwashing - хоррор от первого лица об умирающем
 magnet:?xt=urn:btih:088B2311F3461551DDA4D7DB2AA257D31A71E182
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Hellbreach: Vegas - шутер с волнами врагов-демонов. И
 ```bash
 magnet:?xt=urn:btih:BEDCED931526CB87B1A9176649F2EC8D100A0A38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Low Magic Age - стратегия в средневековом сеттинг�
 magnet:?xt=urn:btih:A3D057855DE03569AF337D43A3DC0C4D6C79A306
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Glorious Companions (2019) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E56285594EF266F7671312ACC8AD21E495A5ABB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Hollowbody бросает вас с головой в мрачный мир те
 magnet:?xt=urn:btih:F34963A582E0A7B3A31A52E60B6AC67485B5A00D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Christmas Wonderland 15 / Рождество. Страна Чудес 15 (2024) 
 ```bash
 magnet:?xt=urn:btih:372E1A14F47E403490435F2B897C6D08D3BE1A34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Tokyo Clanpool (2024) [Multi] (0.30) License GOG
 magnet:?xt=urn:btih:BEA46AEA3BE4E7D9C4BFD5EFA4DB54B3D5DCF595
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Conway: Disappearance at Dahlia View (2021) [Multi] (1.2.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:A552DC32D19EBC523FE798E13C7F53D9E0C724A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Legend of Heroes: Trails to Azure продолжает историю Лло
 magnet:?xt=urn:btih:B6EBA58DBB6D7D6247170F902A8509FE418F90C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Bear and Breakfast - это неторопливая приключенческ�
 ```bash
 magnet:?xt=urn:btih:7E9980B1F18122A8938E8DD08DDA2B370A17377A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Moving Out 2 - это уморительное продолжение всеми
 magnet:?xt=urn:btih:4570D7D8362A0226CE6AACB918F802D42E03EB9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Trans Neuronica - это головоломка, в которой традиц�
 ```bash
 magnet:?xt=urn:btih:BA048E0BB6BA2F5C26641E7131E48D155BDDE3E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Destiny Star Girlfriend 3 (2019) [Multi] (1.0.0/dlc) License GOG
 magnet:?xt=urn:btih:E4FEB8E8372A0080191EFEB702DABADDD4857BDF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Opening Encyclopaedia 2024 (2023) [En] (2024) License
 ```bash
 magnet:?xt=urn:btih:8DB00993E1FFE63930C828B61BF6EDF9A6F65FB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Corr Database 2024 (2023) [En] (2024) License
 magnet:?xt=urn:btih:4B50A359E1F1B562DFEF23F80ED00A15D10DBA7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Neva (2024) [Ru/Multi] (1.2.0) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:9417AF70DAB99F860204352C538418EBF5B2727D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

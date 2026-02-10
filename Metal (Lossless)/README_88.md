@@ -28,6 +28,8 @@ Galactic Cowboys - Space In Your Face (1993) [FLAC|Lossless]<Progressive Metal /
 magnet:?xt=urn:btih:EBC4666CCF6B85A47F9887CEDF27E869CAFFF367
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -60,6 +62,8 @@ Morgoth - Odium (1993) [FLAC|Lossless]<Death Metal>
 ```bash
 magnet:?xt=urn:btih:364DFEB0D7A12DD54CE48EB91C7A4FE0B3E8874E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +98,8 @@ Destrage - Urban Being (2009) [FLAC|Lossless]<Thrash Metal, Melodic Death Metal>
 magnet:?xt=urn:btih:9477B13C47AC25E1B31A1A28CFEB8EE0D068F0F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +132,8 @@ Galactic Cowboys - Let It Go (2000) [FLAC|Lossless]<Progressive Metal / Heavy Me
 ```bash
 magnet:?xt=urn:btih:579D77C7F02DEB34FC2BD12D077C2DA172DCDA37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -160,6 +168,8 @@ Zarpa - Las Puertas Del Tiempo (2012) [FLAC|Lossless]<Heavy Metal>
 magnet:?xt=urn:btih:218779A8EBA54CE1BE7521BF9335620B1C5EA00F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +202,8 @@ Zeke - Super Sound Racing (1996) [APE|Lossless]<Hardcore>
 ```bash
 magnet:?xt=urn:btih:80A926C439ACF484F1A99659B0306072997C6D3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -226,6 +238,8 @@ Zeke - Flat Tracker (1996) [APE|Lossless]<Hardcore>
 magnet:?xt=urn:btih:3C08893AF06CBD3126936C1F0C98110B5ECD0538
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +266,8 @@ Megadeth - Endgame (2009) Reissue, Remastered, 2019, BMG Echo [FLAC|Lossless|ima
 ```bash
 magnet:?xt=urn:btih:85018BCC3CD7D171A209B26473D400C26FFB41D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +302,8 @@ Galactic Cowboys - Galactic Cowboys (1991) [FLAC|Lossless]<Progressive Metal / H
 magnet:?xt=urn:btih:5D0059001A173BDD7B0035321EF1DAD9F8B1B37A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +330,8 @@ Megadeth - Th1rt3en (2011) Reissue, Remastered, 2019, BMG Echo [FLAC|Lossless|im
 ```bash
 magnet:?xt=urn:btih:B5754B103FFC28B2A8EF4368237D86160AD838BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +366,8 @@ MasterCastle - Enfer (De La Bibliotheque Nationale) (2014) [FLAC|Lossless]<Power
 magnet:?xt=urn:btih:6C1A14BEE9C264872D2EBD3E62630D22FA05F5B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +400,8 @@ Six Magics - Behind the Sorrow (2010) Japan [FLAC|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:E477D685D310162F945449BD791B2571700CABFA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +436,8 @@ Galactic Cowboys - The Horse That Bud Bought (1997) [FLAC|Lossless]<Progressive 
 magnet:?xt=urn:btih:FCACE56AB71F39A1CA880F335DB07953213E8531
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +461,8 @@ Blodhemn увидел свет ночью 2004 года, образованны�
 ```bash
 magnet:?xt=urn:btih:EF0C39D35B654F38FB97EF3D5AFE5BA9CEC8874C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +497,8 @@ H-George - Slave Of Society (2011) [FLAC|Lossless]<Thrash Metal>
 magnet:?xt=urn:btih:C84557913B215E92EC18D2396D7D17134F7C016F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +531,8 @@ Galactic Cowboys - At The End Of The Day (1998) [FLAC|Lossless]<Progressive Meta
 ```bash
 magnet:?xt=urn:btih:9A7583AC636FD3FDA803443522E7D5526EA8E7C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +567,8 @@ Galactic Cowboys - Machine Fish (1996) [FLAC|Lossless]<Progressive Metal / Heavy
 magnet:?xt=urn:btih:5C1BC2A5E09B6DB34CEA122277848BFA43CC5414
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +595,8 @@ Agonizer - Birth The End (2007) [FLAC|Lossless|image + .cue] <Power Metal>
 ```bash
 magnet:?xt=urn:btih:CB2FC8BFE259BB6CA246864E02819CD0524BB810
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +631,8 @@ H-Bomb - Attaque (1984) [FLAC|Lossless]<Heavy Metal>
 magnet:?xt=urn:btih:4B7C72B0BA9609F5FB44A342213874DF2AEEF7AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +665,8 @@ Zeke - Death Alley (2001) [APE|Lossless]<Hardcore>
 ```bash
 magnet:?xt=urn:btih:3A9EB859CAEC58D8D41D559132D8F903C7A2863E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -661,6 +701,8 @@ Zarpa - Infierno (2004) [APE|Lossless]<Heavy Metal>
 magnet:?xt=urn:btih:EDA3587D39B9C4CC73B2CC45B56BFD28F2394964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -694,6 +736,8 @@ Your Shapeless Beauty - Sycamore Grove (1999) [APE|Lossless]<Melodic Black Metal
 magnet:?xt=urn:btih:B96341426FF64C9CDCD61EF516062F509C2F7DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -720,6 +764,8 @@ KYPCK - Ниже (2011) [FLAC|Lossless|tracks + .cue] <Doom Metal>
 ```bash
 magnet:?xt=urn:btih:91E37B1A13B6069AAED42E7808B19AABDCD2B625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -748,6 +794,8 @@ Nostalgica - Nostalgica (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:38B71D575EC7DFFAFAAFFE1C8DF7844156521E9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -775,6 +823,8 @@ Bullet-Proof - Cell Xix (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thras
 magnet:?xt=urn:btih:BDD3E977E3626838301BA62F9411DCC32A2BEDCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -801,6 +851,8 @@ Dogma (CL) - Superfix (Live) (2000) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal>
 ```bash
 magnet:?xt=urn:btih:082FFF44C784EC3E34A528402C4FB5C63554CB2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

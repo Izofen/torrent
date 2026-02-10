@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MediaHuman YouTube Downloader 3.9.9.81 (1305) RePack (& Portable) by Dodakaedr [
 ```bash
 magnet:?xt=urn:btih:2D84A129BDDF893FABA13AD59C07F2CE91E819A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:2D84A129BDDF893FABA13AD59C07F2CE91E819A5
 magnet:?xt=urn:btih:995DE31B751914DBDA9D03729D31683457A8E8B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:995DE31B751914DBDA9D03729D31683457A8E8B6
 ```bash
 magnet:?xt=urn:btih:474AE15D99133E8B6A02871FA1C9BD5A83FABCE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:474AE15D99133E8B6A02871FA1C9BD5A83FABCE5
 magnet:?xt=urn:btih:08EA26F6B9EBD7748C2D94C6B0CBAE46C7A55720
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:08EA26F6B9EBD7748C2D94C6B0CBAE46C7A55720
 ```bash
 magnet:?xt=urn:btih:FA0CBDB65B9DA344EF0FE71D478F24E61C05E324
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:FA0CBDB65B9DA344EF0FE71D478F24E61C05E324
 ```bash
 magnet:?xt=urn:btih:EA70112E5F07A39CA9ED131FC682E82B1A3EA5BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Varjo-Orkesteri - Prima Volta (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive 
 magnet:?xt=urn:btih:68CC48BB145A57A5C8C085922AF89382F958AF15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ George Kawaguchi & The Super Band - Super Drums 1 + 2 (1985) King Record [FLAC|L
 magnet:?xt=urn:btih:5E75C95FCEF0701510DF12FE84907BAC2576E006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 ```bash
 magnet:?xt=urn:btih:B6457B0A80DFAA6E119C70B7BB0177936AC23241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:B6457B0A80DFAA6E119C70B7BB0177936AC23241
 magnet:?xt=urn:btih:B04184B75538C1B64E7A99A2439B1DEE83F49469
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:B04184B75538C1B64E7A99A2439B1DEE83F49469
 ```bash
 magnet:?xt=urn:btih:234B2C3D5F51138E189275D6B4F0AA5A9434A7E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:234B2C3D5F51138E189275D6B4F0AA5A9434A7E6
 magnet:?xt=urn:btih:1020079C2DB6B3C0552832E37231AAB3D8036BD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:1020079C2DB6B3C0552832E37231AAB3D8036BD4
 ```bash
 magnet:?xt=urn:btih:1064FEF7DD259F1A6E31209AEE592D46C5A91A2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ Disc 1:
 magnet:?xt=urn:btih:9F26928FA8B14EB9C23C29713AC57F6E38F298B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ magnet:?xt=urn:btih:9F26928FA8B14EB9C23C29713AC57F6E38F298B7
 ```bash
 magnet:?xt=urn:btih:A797F1AB3BC52986AF09D98C58B36CB8FE96CA13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +447,8 @@ Aberdeen - Held Together (2023) [FLAC|Lossless|WEB-DL|tracks] <Brass Band, Jazz 
 magnet:?xt=urn:btih:EACDC4FA058CBBB9839B67B1A0E6C8C1B707909C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +472,8 @@ magnet:?xt=urn:btih:EACDC4FA058CBBB9839B67B1A0E6C8C1B707909C
 ```bash
 magnet:?xt=urn:btih:A08253DDE525D7F028715AFB7E7FC65E990F80AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:A08253DDE525D7F028715AFB7E7FC65E990F80AF
 magnet:?xt=urn:btih:F5650E1AB5917FE921495173F4DC809C03E86467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ BetterSnapTool 1.9.9 [En]
 magnet:?xt=urn:btih:1AC02E7A21A6F1AAC771283AE5EB141E07A36420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ magnet:?xt=urn:btih:1AC02E7A21A6F1AAC771283AE5EB141E07A36420
 magnet:?xt=urn:btih:BDDD6278D0C0B4AEA5C6F2AF694C3F6E70FADDCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +578,8 @@ magnet:?xt=urn:btih:BDDD6278D0C0B4AEA5C6F2AF694C3F6E70FADDCE
 ```bash
 magnet:?xt=urn:btih:90142DC42DD6FD02A7F5FECF9709B1A10F312DE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:90142DC42DD6FD02A7F5FECF9709B1A10F312DE7
 magnet:?xt=urn:btih:A0EA6D29349C3D3A1639E8C4B54F3E9B76532402
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ ALLPlayer, наверное, самая популярная программа 
 magnet:?xt=urn:btih:A08C873B883E3EEB34BC5FD189C7D6AC132C1F89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,6 +657,8 @@ magnet:?xt=urn:btih:A08C873B883E3EEB34BC5FD189C7D6AC132C1F89
 ```bash
 magnet:?xt=urn:btih:0A8CC3D06FF3FBE7365EDCDD721BF3C98E3ED701
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +686,8 @@ Barnabas Sky - What Comes To Light (2023) [FLAC|Lossless|image + .cue] <Melodic 
 ```bash
 magnet:?xt=urn:btih:0C8476E7BA7622845E178AC37EFA34BC9B352C12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

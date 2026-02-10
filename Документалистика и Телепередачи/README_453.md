@@ -1,3 +1,29 @@
+###  Публикация: 1036985   (617399) от 22.07.2016
+
+Звонок (22.07.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеканал НТВ запускает новый проект — шоу «Звонок» — с участием скандально известных пранкеров Вована и Лексуса. Сотни раз эти парни становились ньюсмейкерами не только в российских, но и в зарубежных СМИ. Объектами их розыгрышей были президенты, политики и звезды со всего мира. Но если раньше они создавали проблемы, то теперь они будут их решать — за один «Звонок». (   Читать дальше...   )В этом выпуске: Этот звонок был сделан еще в мае. Уже тогда Вован и Лексус выяснили, кто заказал нашу олимпийскую сборную. Но от этих чиновников зависела судьба наших спортсменов, и мы решили не давать программу в эфир. Но сейчас пришла пора сказать всю правду! В чем признались пранкерам глава Всемирного антидопингового агентства WADA и руководитель антидопингового комитета США?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:896946F8B7A8DF6C506C372208D064136F19F097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036934   (617402) от 22.07.2016
 
 Кремлёвские похороны. Сергей Ахромеев (2008) DVBRip [H.264]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:4BC33B7B2ED355B34F3BD1E6F4A20100EE040722
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:4BC33B7B2ED355B34F3BD1E6F4A20100EE040722
 magnet:?xt=urn:btih:D0DEB1AA14AEF421204EA662BFD3311B2EA8E1A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ NG. Анаконда: Тихий убийца / Anaconda: Silent Killer (2014) H
 ```bash
 magnet:?xt=urn:btih:ADBB2C27462A0F50C14AACA91A97FE49DE194D00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:ADBB2C27462A0F50C14AACA91A97FE49DE194D00
 magnet:?xt=urn:btih:7442DFC9BBB07CC9F26439FE886A4725C81FC86F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:7442DFC9BBB07CC9F26439FE886A4725C81FC86F
 ```bash
 magnet:?xt=urn:btih:AA1C1AB9AA162498DB67B92A8F0265B3E90046CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:AA1C1AB9AA162498DB67B92A8F0265B3E90046CC
 magnet:?xt=urn:btih:C5835ACE65EC4AE0CEE57DE56783862C79EF0AC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:C5835ACE65EC4AE0CEE57DE56783862C79EF0AC7
 magnet:?xt=urn:btih:47DE7435B1C88D21CCEC602F6FD83049991AEB6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:47DE7435B1C88D21CCEC602F6FD83049991AEB6F
 ```bash
 magnet:?xt=urn:btih:C72A632ED561A08ACA7C00170D4D274208655C5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:C72A632ED561A08ACA7C00170D4D274208655C5A
 magnet:?xt=urn:btih:61B4D65EAA2D0D02EE19F29DFD88A121CE9067DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:61B4D65EAA2D0D02EE19F29DFD88A121CE9067DA
 ```bash
 magnet:?xt=urn:btih:5B61F1282E74572DD75E22127B1F2E806649F192
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +307,8 @@ magnet:?xt=urn:btih:5B61F1282E74572DD75E22127B1F2E806649F192
 magnet:?xt=urn:btih:DA4F2991FA81D01402D68AD2A4407DADC157478D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +332,8 @@ magnet:?xt=urn:btih:DA4F2991FA81D01402D68AD2A4407DADC157478D
 ```bash
 magnet:?xt=urn:btih:5F2A960C22A4CAC3EEAB67F9CCF3DBFC0EE62148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:5F2A960C22A4CAC3EEAB67F9CCF3DBFC0EE62148
 magnet:?xt=urn:btih:79B055E3E80860C8BD47A7EBE42B36922B0A41BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:79B055E3E80860C8BD47A7EBE42B36922B0A41BD
 ```bash
 magnet:?xt=urn:btih:C33C7D2C9B82C1EB48FACB0DE36099E2E5C698B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:C33C7D2C9B82C1EB48FACB0DE36099E2E5C698B8
 magnet:?xt=urn:btih:9FF0869FBB6342827198D5A963652888CA376292
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:9FF0869FBB6342827198D5A963652888CA376292
 ```bash
 magnet:?xt=urn:btih:D1FF872E0362CEFE5632636C1A22F140D946F835
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:D1FF872E0362CEFE5632636C1A22F140D946F835
 magnet:?xt=urn:btih:715DE1CD26D41055A2948CCAE5B52F50A9F5816E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:715DE1CD26D41055A2948CCAE5B52F50A9F5816E
 magnet:?xt=urn:btih:75B6280AF7DADED7AC16CD79D75C2649B34E7DCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:75B6280AF7DADED7AC16CD79D75C2649B34E7DCD
 ```bash
 magnet:?xt=urn:btih:F0A1A4E92C28C9A4670E7ADCB9C57B6A08772B8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:F0A1A4E92C28C9A4670E7ADCB9C57B6A08772B8D
 magnet:?xt=urn:btih:B987B5FF17DB79B235F353365CF0BDC636A7A196
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +568,8 @@ magnet:?xt=urn:btih:B987B5FF17DB79B235F353365CF0BDC636A7A196
 magnet:?xt=urn:btih:1FEE7F21F62A8C1F45DDC73E07CE917C6D0188FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:1FEE7F21F62A8C1F45DDC73E07CE917C6D0188FD
 ```bash
 magnet:?xt=urn:btih:DDA4F989EE21D5BC0DAD0283A9A52603B7687102
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:DDA4F989EE21D5BC0DAD0283A9A52603B7687102
 magnet:?xt=urn:btih:EDD92979F69AE6988E44DA3B30C6AC58BB81F2AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:EDD92979F69AE6988E44DA3B30C6AC58BB81F2AA
 magnet:?xt=urn:btih:12F1D768A3E9AF03E161D220D723EAF3C986E982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,29 +674,7 @@ magnet:?xt=urn:btih:12F1D768A3E9AF03E161D220D723EAF3C986E982
 magnet:?xt=urn:btih:F782A37BE2254A9FFD7ECBE533174E80FDEAB220
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911488   (618425) от 22.06.2015
-
-Москва и окрестности. Куда повести французов в столице (2015) SATRip
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_618425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы не знаете, как провести выходные или праздничные дни, - отправьтесь в столицу или прокатитесь по её окрестностям. А в качестве основного путеводителя используйте новый цикл канала "Моя Планета" «Москва и окрестности», в котором рассказывается о лучших местах Москвы и Подмосковья.Производство: РоссияТелекомпания: Моя планетаЖанр: Документальный, научно-познавательный, история, география, путешествие, исследованиеРежиссер: Михаил Копылов, Наталья КузнецоваПродолжительность: ~ 00:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D8382D22F1C908670B28FB3740EC0FCE0E939C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

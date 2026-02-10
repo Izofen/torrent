@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:40A43895DC87EC54C25427FD4B6BE0B9F88C9DA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Star Trucker (2024) [Ru/Multi] (1.0.70.1_m/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:B312F8B844CC2C90BD5923EF5AB7328742ECD4FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Crusader Kings 3 - глобальная стратегия, значительн
 magnet:?xt=urn:btih:0648A64174BC8E3D6681AFA5B344BC4A36DF4366
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Ha заре мира, когда Землю населяли фантастич�
 ```bash
 magnet:?xt=urn:btih:F6C297357A3110D99780A727F59ED4060B59CBB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Windows 11 - это серия операционных систем, разра
 magnet:?xt=urn:btih:0B12D5AD605EDED7539BF3317D5825A36B753AD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ ZERO PROTOCOL (2024) [Ru/Multi] (1.2) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:769D14A8ADB29ACA4463BC970309E23827A73206
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Microsoft Activation Scripts (MAS) 3.6 portable [En]
 magnet:?xt=urn:btih:EB349B535CBCE471AB5FE5E56C1E865328615501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:EB349B535CBCE471AB5FE5E56C1E865328615501
 magnet:?xt=urn:btih:5F875019F4EAACCD621F8F84814AD39F238F6F9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +226,8 @@ DaVinci Resolve — единственное в мире решение для �
 ```bash
 magnet:?xt=urn:btih:61CE1D349357CAD9A38DFA30B4A79C2687459845
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ Windows 7 SP1 7601.27929 x64 3in1 by OneSmiLe [10.09.2025] [Ru]
 magnet:?xt=urn:btih:7C8FA94B0054D71F37B8D48BB322CF9F53F45B0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Against the Storm (2022) [Ru/Multi] (1.8.12R/dlc) Repack Let'sРlay [Complete Bu
 ```bash
 magnet:?xt=urn:btih:6AB863F87113643FA6F1C13DCF8BF4BEEA8554A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Sunkenland - это увлекательное приключение, пред�
 magnet:?xt=urn:btih:6D14E2D855B48AA8330909DE9F1947754A298062
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ Look Outside - это ролевая игра в жанре Survival Horror, д�
 ```bash
 magnet:?xt=urn:btih:71DC1B48EE8B3830D092AE73083B9767F10EB46E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ Isles of Sea and Sky (2024) [Ru/Multi] (2.4a) Repack Let'sРlay
 magnet:?xt=urn:btih:465CD4B226737F09140FA7C9AF8A7007665423DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:465CD4B226737F09140FA7C9AF8A7007665423DE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:465CD4B226737F09140FA7C9AF8A7007665423DE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ Acrobat Pro — это полностью обновленная настоль�
 ```bash
 magnet:?xt=urn:btih:E36178F4E32D9B460606555B5BB0D1D14290AC75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ ArchiCAD - это мощное приложение моделирования, 
 magnet:?xt=urn:btih:EC2A03A40F17FBA0847B64906D7CA4439E880573
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ Mortal Sin - хаотичная и кровавая игра в жанре rogue
 ```bash
 magnet:?xt=urn:btih:170653429D97199E84ABC3A3150C3C42EE75F07C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:170653429D97199E84ABC3A3150C3C42EE75F07C
 magnet:?xt=urn:btih:DEBCE3DC68AFC162FA0555FC8462941FFDD00E00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ magnet:?xt=urn:btih:DEBCE3DC68AFC162FA0555FC8462941FFDD00E00
 ```bash
 magnet:?xt=urn:btih:B7782219B2FB4299F9F188E3A72184F7F4D23E23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +568,8 @@ magnet:?xt=urn:btih:B7782219B2FB4299F9F188E3A72184F7F4D23E23
 magnet:?xt=urn:btih:07B1855B4E5453F28575F6472FC8F6804F7F3575
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +593,8 @@ magnet:?xt=urn:btih:07B1855B4E5453F28575F6472FC8F6804F7F3575
 ```bash
 magnet:?xt=urn:btih:C5ED5D6F60D1A756ACC00DBC9FB5624826188B8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ Crusader Kings 3 - глобальная стратегия, значительн
 magnet:?xt=urn:btih:44625DF213E09A54CD68F791CDB1CA4DA1A95346
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ Shattered Pixel Dungeon - это классический пошаговый р�
 magnet:?xt=urn:btih:6F0A4615B1F13C114F5243039F8BB8DD8EEF5E07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ Dying Light 2: Stay Human (2022) [Ru/Multi] (1.24.2/dlc) Repack Wanterlude [Relo
 ```bash
 magnet:?xt=urn:btih:B39D3C79BF0039CBDB8EE218EFDA7C55B50EF641
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

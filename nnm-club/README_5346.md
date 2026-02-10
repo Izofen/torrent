@@ -22,6 +22,8 @@ Empyrios - Zion (2013) [FLAC|Lossless|image + .cue] <Progressive Metal>
 magnet:?xt=urn:btih:A21C2E1EA8E37FFFD314017DC57AFF651A015E05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:A21C2E1EA8E37FFFD314017DC57AFF651A015E05
 ```bash
 magnet:?xt=urn:btih:2E1B0249C42022EA075A9EFB68D905457C04C4C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Chicane - Everything We Had To Leave Behind (Back Pedal Brakes Remixes) (2021) [
 magnet:?xt=urn:btih:0D1D5157406B0C95346B0A16DD84D4CD4A731E4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:0D1D5157406B0C95346B0A16DD84D4CD4A731E4F
 magnet:?xt=urn:btih:F0C64CAA9359436ACA212A1FCBA76C2BF6539A6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ Wondershare Filmora 9 v9.3.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:2ABA43AB3F4B213A2EF9814E299008A97C9C613F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Van Morrison & The Chieftains - Irish Heartbeat (1988) [FLAC|Lossless|tracks + .
 magnet:?xt=urn:btih:E500FC4C62F88C83D14889EA60EA03B1D82989DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ VA - Beatport Electro House: Sound Pack #211 (2020) [MP3|320 Kbps] <Club, Dance,
 magnet:?xt=urn:btih:16FD05F4B9A021C1A268D9794A9080DE590F2BF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ ELEX II – продолжение ELEX, винтажной ролевой иг�
 ```bash
 magnet:?xt=urn:btih:34ECE267D838003F0B8A176ED7F7C0FDF6990D87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ VA - Apres Ski Party Hits 2020 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:EABB725081140C5237F0972BBEADF8BC3790B692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ Riccardo Cocciante - - ... Je Chante (1999) [FLAC|Lossless|image + .cue] <Pop, C
 magnet:?xt=urn:btih:BE099C261E7A3BDFEB7A485AF0F1A468DFBED55B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:BE099C261E7A3BDFEB7A485AF0F1A468DFBED55B
 ```bash
 magnet:?xt=urn:btih:7D27A0035368CF506EDFCCE56A01A2BA2028ED1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -305,6 +327,8 @@ magnet:?xt=urn:btih:7D27A0035368CF506EDFCCE56A01A2BA2028ED1B
 magnet:?xt=urn:btih:FA2C2CB880C85E32CDEE5A732EC56E9D646744CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +352,8 @@ magnet:?xt=urn:btih:FA2C2CB880C85E32CDEE5A732EC56E9D646744CE
 ```bash
 magnet:?xt=urn:btih:FC53032B2E906ADBDBCD0F2BFD0AB005344255B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +379,8 @@ Seal 1.11.0-rc.1 [Ru/Multi]
 magnet:?xt=urn:btih:01FD7B7EB7AB7FDE7BBB7BAFE090F50EEEE79427
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +405,8 @@ Skype предназначен для личного и делового общ�
 magnet:?xt=urn:btih:883BBF601D84723BB1B00CAFB7C56545F0C3C5F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +430,8 @@ magnet:?xt=urn:btih:883BBF601D84723BB1B00CAFB7C56545F0C3C5F3
 ```bash
 magnet:?xt=urn:btih:5E0F34BFEFF7DB9CB5D76F123FA8403D337557DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ Delphi 7 - всеми известная программа от компани�
 magnet:?xt=urn:btih:A5FF447F6AC1DBEAFCAA5D8AF41010AC4AF1591B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +484,8 @@ Araxis Merge – это обязательное приложение для р�
 ```bash
 magnet:?xt=urn:btih:DC8A18464828BFFE89A1E1A61CCFC2355028135D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ Sacred Reich - Awakening (2019) Japanese Edition [FLAC|Lossless|image + .cue] <T
 magnet:?xt=urn:btih:9D12B271FB0F02D007413D705BC430236E727DBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:9D12B271FB0F02D007413D705BC430236E727DBE
 ```bash
 magnet:?xt=urn:btih:E5B5060D4837C98926767BC82DF3011E139E1DFB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ VA - Strong Women of Country (2021) [AAC|~333 Kbps] <Country>
 magnet:?xt=urn:btih:83E441C54C320A549647EC42D29DCF2C9AEB46F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +594,8 @@ magnet:?xt=urn:btih:83E441C54C320A549647EC42D29DCF2C9AEB46F1
 ```bash
 magnet:?xt=urn:btih:4F6524CAB2119CEA07D9572D99E969917782EF89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:4F6524CAB2119CEA07D9572D99E969917782EF89
 magnet:?xt=urn:btih:A9447BD7DEC954E2BFF4B12299093F8C903A62F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:A9447BD7DEC954E2BFF4B12299093F8C903A62F1
 ```bash
 magnet:?xt=urn:btih:D37EB1133E0B63ECA03CE621604E23BEC2468803
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ NCH DreamPlan Plus 5.66 [En]
 magnet:?xt=urn:btih:118D758A26441FD612D28B68100DBA2C7CF5F359
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ PDFelement Pro - профессиональный инструмент, кото
 ```bash
 magnet:?xt=urn:btih:88966B103EA8A916F420AE028F90460F85819053
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

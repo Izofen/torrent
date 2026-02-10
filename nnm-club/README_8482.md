@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:633962644BDBACE5DCA840BACC754044BDFEEDBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ VA - In a Blue Hour (2006) 2CD, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Ja
 magnet:?xt=urn:btih:9BFE5BD837B645E305E8E3C8F20050F7A91F08E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:9BFE5BD837B645E305E8E3C8F20050F7A91F08E1
 ```bash
 magnet:?xt=urn:btih:01E5A332CA9E46053A82BBF37232EC868078AD83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:01E5A332CA9E46053A82BBF37232EC868078AD83
 magnet:?xt=urn:btih:2073C32D2FE067B57F535D3EF7E20F304A80B2CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:2073C32D2FE067B57F535D3EF7E20F304A80B2CE
 magnet:?xt=urn:btih:1E2001D054320804253DD3EA61672DE0A3DA3E3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:1E2001D054320804253DD3EA61672DE0A3DA3E3B
 ```bash
 magnet:?xt=urn:btih:4A6501845B79FC823DAA606CA1B7F98C7C64894C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ magnet:?xt=urn:btih:4A6501845B79FC823DAA606CA1B7F98C7C64894C
 magnet:?xt=urn:btih:1EE5E64C0395A9235C4724806FAD0762CB3C7887
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:1EE5E64C0395A9235C4724806FAD0762CB3C7887
 ```bash
 magnet:?xt=urn:btih:10FFB9DAA4CD48622FAA2B0FBDD8020CF707B915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:10FFB9DAA4CD48622FAA2B0FBDD8020CF707B915
 magnet:?xt=urn:btih:AE2E19D097AE7221B5834BE3C20ED873CA2578C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:AE2E19D097AE7221B5834BE3C20ED873CA2578C8
 ```bash
 magnet:?xt=urn:btih:9A2F74BBEA4C1A83413C7933E5F93AA552A84DC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +285,8 @@ magnet:?xt=urn:btih:9A2F74BBEA4C1A83413C7933E5F93AA552A84DC9
 magnet:?xt=urn:btih:07EF5989520BA3AAE38FE0BC06D799195195E006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:07EF5989520BA3AAE38FE0BC06D799195195E006
 ```bash
 magnet:?xt=urn:btih:9ECC8B6DDE641C5F104773D77DAFA9039CB43016
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:9ECC8B6DDE641C5F104773D77DAFA9039CB43016
 magnet:?xt=urn:btih:C01F75D62240F44923A0BB2BB78EA7171042D484
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +362,8 @@ magnet:?xt=urn:btih:C01F75D62240F44923A0BB2BB78EA7171042D484
 ```bash
 magnet:?xt=urn:btih:D894368B9AD461B61C94E1F7D611E5FB0D47E9C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +389,8 @@ magnet:?xt=urn:btih:D894368B9AD461B61C94E1F7D611E5FB0D47E9C8
 magnet:?xt=urn:btih:9097CAFD4012ABC7CB7B455915CCD1B97FB5E673
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +414,8 @@ magnet:?xt=urn:btih:9097CAFD4012ABC7CB7B455915CCD1B97FB5E673
 ```bash
 magnet:?xt=urn:btih:71BE4BAA2741973BBE980136E2A69A95BD114E8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:71BE4BAA2741973BBE980136E2A69A95BD114E8A
 magnet:?xt=urn:btih:43EDE9D955C112F3707DEE1CD2615FFCAC1D603E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ RealTime Architect - программный пакет для профессио
 magnet:?xt=urn:btih:B66CCF93DAAEF30631AE32420B1F7C83D47C3E81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:B66CCF93DAAEF30631AE32420B1F7C83D47C3E81
 ```bash
 magnet:?xt=urn:btih:0A830AFF39B20C76DEA6A394E87B0F0E0456A825
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:0A830AFF39B20C76DEA6A394E87B0F0E0456A825
 magnet:?xt=urn:btih:11ED0920D6EBC9007B9AAEA53BCEDF4DB85364C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ magnet:?xt=urn:btih:11ED0920D6EBC9007B9AAEA53BCEDF4DB85364C0
 magnet:?xt=urn:btih:C3595D4A110F4CE8BED98AF39339092EA64F4FE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:C3595D4A110F4CE8BED98AF39339092EA64F4FE6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ magnet:?xt=urn:btih:C3595D4A110F4CE8BED98AF39339092EA64F4FE6
 magnet:?xt=urn:btih:571B2DE532E71A5FFC0F986F52917C446CB69CFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +632,8 @@ King Solomon - Heights (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
 ```bash
 magnet:?xt=urn:btih:EBA87131752719EE927AD43837C2F65EA8B92704
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -614,6 +662,8 @@ Turilli / Lione Rhapsody - Zero Gravity (Rebirth And Evolution) (2019) Japanese 
 magnet:?xt=urn:btih:2AAFA43A04EA91402204450E41A0A192AFA37E74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ Children of Bodom - Hexed (2019) Japanese Ed. [FLAC|Lossless|image + .cue] <Melo
 ```bash
 magnet:?xt=urn:btih:13A18FB173B35065D09DFC99FE64BBE744C74DA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

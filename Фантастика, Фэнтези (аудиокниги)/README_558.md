@@ -1,3 +1,30 @@
+###  Публикация: 1840415   (1047226) от 05.12.2025
+
+Гай Юлий Орловский | Ричард Длинные Руки (Книга11). Бургграф (2025) [MP3, Александр Чернов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1047226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наконец-то сэр Ричард Длинные Руки сменил каменные застенки замков на портовый город, где все только и делают, что торгуют и развлекаются. Но Ричарду не до веселья, ведь неприятности поджидают героя на каждом шагу…
+Семейство Бриклайтов, городских авторитетов, совершенно распоясалось. Что уж и говорить о мелких воришках и хулиганах. Ричарду придется найти на них управу, (   Читать дальше...   )Жанр: Фэнтези, приключения, попаданцыИздательство: МедиаКнигаПродолжительность: 12:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ED484B4FBD6F0D778B9A21BA3396F647621324F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840443   (1047229) от 05.12.2025
 
 Василий Седой | Санёк. (Книга 1) (2025) [MP3, Олег Троицкий]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:CA96D6018117065D03C7BF55482DD0517A60DEED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:CA96D6018117065D03C7BF55482DD0517A60DEED
 magnet:?xt=urn:btih:B9D91A1AD911AE2316016F3F9A15A8252B7C76F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +100,8 @@ magnet:?xt=urn:btih:B9D91A1AD911AE2316016F3F9A15A8252B7C76F2
 magnet:?xt=urn:btih:7E87C281BD14479196EEADAB75956CF11A83CB64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +125,8 @@ magnet:?xt=urn:btih:7E87C281BD14479196EEADAB75956CF11A83CB64
 ```bash
 magnet:?xt=urn:btih:2FF6B8A91DD6ADE73D14561C9C18541B627CEAD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +154,8 @@ magnet:?xt=urn:btih:2FF6B8A91DD6ADE73D14561C9C18541B627CEAD9
 magnet:?xt=urn:btih:CF932241DB369ED8AFB1BBA91D63416C7A1971C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +181,8 @@ magnet:?xt=urn:btih:CF932241DB369ED8AFB1BBA91D63416C7A1971C1
 ```bash
 magnet:?xt=urn:btih:E301DE068E0A543FB8BB6752DA5F6A21F33E1A36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +211,8 @@ magnet:?xt=urn:btih:E301DE068E0A543FB8BB6752DA5F6A21F33E1A36
 magnet:?xt=urn:btih:B1855B7258A62A0F8C20EA6F1FE016D6FC6EF42B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +238,8 @@ magnet:?xt=urn:btih:B1855B7258A62A0F8C20EA6F1FE016D6FC6EF42B
 magnet:?xt=urn:btih:5C027D0FCB32375DD49B8FA4CC84560575300BC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +263,8 @@ magnet:?xt=urn:btih:5C027D0FCB32375DD49B8FA4CC84560575300BC7
 ```bash
 magnet:?xt=urn:btih:EFB460FE7DBDC88C88EFB41789A0AB66930A6276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +290,8 @@ magnet:?xt=urn:btih:EFB460FE7DBDC88C88EFB41789A0AB66930A6276
 magnet:?xt=urn:btih:FEABE9F07173C05A25EC30B67AFB3FAF88586454
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -268,6 +315,8 @@ magnet:?xt=urn:btih:FEABE9F07173C05A25EC30B67AFB3FAF88586454
 ```bash
 magnet:?xt=urn:btih:9FC9546579FBD7D761E3C66E3ACDFD867E72C248
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +342,8 @@ magnet:?xt=urn:btih:9FC9546579FBD7D761E3C66E3ACDFD867E72C248
 magnet:?xt=urn:btih:AEFD9537223460ED0B97B32E74F4B271B85B5329
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +367,8 @@ magnet:?xt=urn:btih:AEFD9537223460ED0B97B32E74F4B271B85B5329
 ```bash
 magnet:?xt=urn:btih:DFCD3C79B3B3C64C272BA3BC6DA86F79F0AE020D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +394,8 @@ magnet:?xt=urn:btih:DFCD3C79B3B3C64C272BA3BC6DA86F79F0AE020D
 magnet:?xt=urn:btih:E07EB6F436D0103A9E828730357BB657E73CB0D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +420,8 @@ magnet:?xt=urn:btih:E07EB6F436D0103A9E828730357BB657E73CB0D6
 magnet:?xt=urn:btih:FF429A0408A91409B45F9BDB9E05CD118571E6F2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +445,8 @@ magnet:?xt=urn:btih:FF429A0408A91409B45F9BDB9E05CD118571E6F2
 ```bash
 magnet:?xt=urn:btih:B78B27245C1B10A1BB5E67D1F1E8403584AB0B4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +473,8 @@ magnet:?xt=urn:btih:B78B27245C1B10A1BB5E67D1F1E8403584AB0B4C
 magnet:?xt=urn:btih:4C93B4DC7152D8FB5AB7D399033278373F67925F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +499,8 @@ magnet:?xt=urn:btih:4C93B4DC7152D8FB5AB7D399033278373F67925F
 magnet:?xt=urn:btih:D63739E85AEEAD1C4F66402333D1B1C43187010E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +524,8 @@ magnet:?xt=urn:btih:D63739E85AEEAD1C4F66402333D1B1C43187010E
 ```bash
 magnet:?xt=urn:btih:46F04B7AC0541E1A9A0EF456D462279DE9C35566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +553,8 @@ magnet:?xt=urn:btih:46F04B7AC0541E1A9A0EF456D462279DE9C35566
 magnet:?xt=urn:btih:467F4C9536E0A1141F850183FAF18BF3F1297095
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +578,8 @@ magnet:?xt=urn:btih:467F4C9536E0A1141F850183FAF18BF3F1297095
 ```bash
 magnet:?xt=urn:btih:D6CD8329436AB69F79C252F5F800C1A30AF4907D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +606,8 @@ magnet:?xt=urn:btih:D6CD8329436AB69F79C252F5F800C1A30AF4907D
 magnet:?xt=urn:btih:02B4C440CF7A43914B2B389065C643AE1D414AB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +632,8 @@ magnet:?xt=urn:btih:02B4C440CF7A43914B2B389065C643AE1D414AB9
 ```bash
 magnet:?xt=urn:btih:3563684CCB0494A1727AC303DE939C8BFF487529
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +660,8 @@ magnet:?xt=urn:btih:3563684CCB0494A1727AC303DE939C8BFF487529
 magnet:?xt=urn:btih:7097FFD9DD281E24B11A507169C7CB0AAD864F28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,29 +687,7 @@ magnet:?xt=urn:btih:7097FFD9DD281E24B11A507169C7CB0AAD864F28
 magnet:?xt=urn:btih:576EC0C1F2BB157ACDEA48952A3D8DEBF2E26A21
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840918   (1047611) от 08.12.2025
-
-Артем Сластин | Первый пользователь (Книга 13) (2025) [MP3, Михаил Алексеев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1047611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все карты вскрыты. Главный герой узнал, что такое «Система». Или есть ещё что-то, о чем не догадывается ни он, ни остальные участники происходящих событий?Жанр: фантастика, LitRPG, боевик, РеалРПГИздательство: ИДДКПродолжительность: 07:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:907EC2D6916DD9E507844E2D819450165DDB7B01
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

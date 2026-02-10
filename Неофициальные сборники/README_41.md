@@ -28,6 +28,8 @@ VA - Самые Сливки на Хит FM (2012) [MP3|256 кб/с]<pop>
 magnet:?xt=urn:btih:DA0216496C5B77C886E4DAF56BE932FB31F4A5D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -61,6 +63,8 @@ VA - Record Super Chart № 229 (25.02.2012) [MP3|~142-320 кб/с]<House, Tranc
 magnet:?xt=urn:btih:B6844AFC7658D862EF91B4C1A3F3925E3B59A3CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -84,6 +88,8 @@ magnet:?xt=urn:btih:B6844AFC7658D862EF91B4C1A3F3925E3B59A3CF
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +124,8 @@ VA - DFM - Russian Dance from AGR (2.03.2012) MP3, 320 kbps (2012) [MP3|320 кб
 magnet:?xt=urn:btih:8219654E30E00428DA09E63CFF73A3A329649335
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +149,8 @@ VA - Еврохит Топ -40 (04.03.2012) (2012) [MP3|320 кб/с]<pop, dance>
 ```bash
 magnet:?xt=urn:btih:55641978263D624BBAEBAFC3C72CCDFC59186849
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -175,6 +185,8 @@ Whitney Houston - The Ballads Collection (2009) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:4A6B39C71EF6703CCD387E29FC03B0757400D8FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +219,8 @@ VA - Клубная Музыка Дискотек Марта (2012) [MP3|192 к�
 ```bash
 magnet:?xt=urn:btih:62C7200F61955B772608DFF5BCB6FE272D5F1D51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +255,8 @@ VA - Zumba Dance 2011 (2011) [MP3|~ 256 кб/с]<Dance>
 magnet:?xt=urn:btih:464C3706D9168582342DAF9B859F98133B9C4314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +289,8 @@ VA - Лучшие тяжёлые русскоязычные баллады (1983
 ```bash
 magnet:?xt=urn:btih:E9FBCA4B8477011DB2E40B03C41CF98A0B0DCC1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +325,8 @@ VA - Hot Break Dance 2CD (2012) [MP3|320 кб/с]<Break Dance, Hip-Hop>
 magnet:?xt=urn:btih:0456EA8A89CDD2EB05E8612549B4A4977FCA79A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +359,8 @@ VA - TOP 100 самые скачиваемые клубные треки by Dj N
 ```bash
 magnet:?xt=urn:btih:F8EB69B6CE5C522E7C945758745374800FE7B2EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -373,6 +395,8 @@ VA - Асса! Танцуют Все! (2012) [MP3|192-320 kbps]<Pop>
 magnet:?xt=urn:btih:AFBCDFF35E5D6B3AA4B8FC97EE733C8069B059E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +429,8 @@ VA - Песни, Спетые Сердцем! (2012) [MP3|256 кб/с]<Шанс�
 ```bash
 magnet:?xt=urn:btih:DA248FD68C8224C2E9FF79B013ECEC81F89A902E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -439,6 +465,8 @@ VA - Жажда Скорости XXX (2012) [MP3|160-192 kbps]<Club | Dance>
 magnet:?xt=urn:btih:688BE7F6548D54F3CF95C6AFE5C0976463339FCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -471,6 +499,8 @@ VA - Душевная музыка (2012) [MP3|256 кб/с]<Шансон>
 ```bash
 magnet:?xt=urn:btih:E596C508AA71C679EF0EA2FF8AAC5711342188C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +535,8 @@ VA - Russian Pop music (2012) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:8F12D1AE86C314816EE53DBEB953449609EF8A42
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +569,8 @@ VA - Лучшие из Лучших. Русские Хиты (2012) [MP3|256 к�
 ```bash
 magnet:?xt=urn:btih:156CAF48C45F0AB2206352B70D5B08F3FDE2113C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +605,8 @@ VA -  Erotic Bar and Chill Out Lounge 55.1 (2012) [MP3|320 kbps]<Chillout | Down
 magnet:?xt=urn:btih:081682FAB3BC26600BCD97B6522D9B900B2FDED6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +639,8 @@ VA - Горячий Союз Русский (2012) [MP3|256 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:8EF3BCE30DF3EB9E97CB003FB4B9681BC2584427
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -637,6 +675,8 @@ VA - Танцевальный топ радиостанций Зарубежны
 magnet:?xt=urn:btih:099754D8E3CD00B94F37FF217F087B3C40B65038
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +709,8 @@ Tracklist CD 1 Time: 01:06:27
 ```bash
 magnet:?xt=urn:btih:1A13C69685C9E02ECC9475DD470C0C51FDDEE353
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -703,6 +745,8 @@ VA - Ночной Клуб Radio Record (2012) [MP3|160-192 kbps]<Uplifting Tran
 magnet:?xt=urn:btih:C90AE807BB9AA6896D1A9E9846A77680818E8E78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -735,6 +779,8 @@ VA - Дорожный патруль. Музыка в дорогу (2012) [MP3|2
 ```bash
 magnet:?xt=urn:btih:A1016EB1FAEA9C58287904D9F80DE08D5F84B071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -769,6 +815,8 @@ VA - 100 Взрывных Хитов в Авто (2012) [MP3|192-320 kbps]<Pop |
 magnet:?xt=urn:btih:70544E507B995F1F0CA1E013C5DF4EB1F74C50AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -802,6 +850,8 @@ VA -  Chill & Relax. 133 Tracks Positive Music Vol.5 (2012) [MP3|320 kbps]<Chill
 magnet:?xt=urn:btih:32DBDFD86BFE5865033D0E563FD5750357D7D543
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -834,6 +884,8 @@ VA- Для Юбилея, Дня Рождения Иностранный (2012) [
 ```bash
 magnet:?xt=urn:btih:08026EBED256190B7AFEE8D35D2998E783A654D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Crashlands 2 (2025) [Ru/Multi] (1.3.0-rc.2) Repack Let'sРlay
 magnet:?xt=urn:btih:F501FD6EA91AC7150AD5F2A91D86CDA1D0EFE78E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BeamNG.drive – автосимулятор, моделирующий повед
 ```bash
 magnet:?xt=urn:btih:A3E1708573BDB02A53D70D57EBEE12C0AF7AC64A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Lies of P (2023) [Ru/Multi] (1.12.0.0/dlc) Repack Let'sРlay [Deluxe Edition]
 magnet:?xt=urn:btih:9E6D174FC5F1AFBC48C39AE4E92FE8B5A74DE582
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ The Talos Principle: Reawakened (2025) [Ru/Multi] (738144) Repack Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B2F0B8D68D5CD1106D94229C5B28C82C6636B9A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Sins of a Solar Empire II (2024) [Ru/Multi] (1.45.9/dlc) Repack Let'sРlay [Prem
 magnet:?xt=urn:btih:DA37D4831CD41FE91534054EC37CF3F96A247B40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ METAL GEAR SOLID Δ SNAKE EATER (2025) [Ru/Multi] (1.1.4/dlc) Repack Let'sРlay 
 ```bash
 magnet:?xt=urn:btih:9C2899FA764042432EC953D2430DA2C220051784
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Old World - это историческая стратегия, в которо�
 magnet:?xt=urn:btih:7C9E5BF2383B7376CCF37A1E2C9478D104233BE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Warhammer 40,000: Space Marine (2025) [Ru/Multi] (1.0.1041.4326/dlc) Repack Want
 ```bash
 magnet:?xt=urn:btih:5801C7DC1577FE0CD1721B244AAAFAA27FD19D8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Hell is Us - это приключенческий экшен от третье�
 magnet:?xt=urn:btih:D1E101CA0FC54609DEB3547AF41B2EDC5D000B9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Tourist Bus Simulator (2018) [Ru/Multi] (1.10.81093/dlc) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:121D8CD1799F3DA71072007BA04A7D8BE66D8F1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ ENDLESS Legend 2 – это фэнтезийная стратегия, где в
 magnet:?xt=urn:btih:FC3D23A8679C57AD2E65B6B7CA77EB478EA61CC2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Lightkeeper - психологический хоррор, действие 
 ```bash
 magnet:?xt=urn:btih:3E92FBCCB73F0B5D3921FADFD3622F62BA0DEFD7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Commandos: Origins (2025) [Ru/Multi] (1.4.1.85803/dlc) Repack Let'sРlay [Deluxe
 magnet:?xt=urn:btih:BCB3514F10AD878CCF1E6647A7FA3CBCDFE1D7A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ WUCHANG: Fallen Feathers - это ролевая игра в жанре souls-li
 ```bash
 magnet:?xt=urn:btih:A9FED3A167E7192243CFDD1BB913CA2B2577A9C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Gears of War Reloaded (2025) [Ru/Multi] (1.0.1.3816947) Repack Let'sРlay
 magnet:?xt=urn:btih:B352C35FE1C2EFE167DD33A1BEC65BCFBD5B6001
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ The Legend of Heroes: Trails through Daybreak II (2025) [Multi] (1.2.15/dlc) Lic
 ```bash
 magnet:?xt=urn:btih:C1E4783D9D1A1B7541339459461E4F1F2CA0E45B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Victoria 3 - прямой сиквел одноименной игры, где �
 magnet:?xt=urn:btih:54DAB561192E7BE4D84EEDB338B233770A7E4FA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ WUCHANG: Fallen Feathers (2025) [Ru/Multi] (179243/dlc) Repack Wanterlude [Delux
 ```bash
 magnet:?xt=urn:btih:897916AF527D2FE9A6DA99DD9060FB02738397CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Hollow Knight: Silksong (2025) [Ru/Multi] (1.0.28650) Repack Wanterlude
 magnet:?xt=urn:btih:132B52353CBC217E5F40526E7C7599A258A1DA27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ DRAGON BALL: Sparking! ZERO - продолжение легендарной се
 ```bash
 magnet:?xt=urn:btih:5AFE93E0CDDCF80925BF45B3320CACBA7D8B50BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Dying Light: The Beast (2025) [Ru/En] (1.2.1/dlc) Repack dixen18 [Deluxe Edition
 magnet:?xt=urn:btih:9A6CF1A9422AF1F16C3B91C6B021ACD23E7949DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Daymare Town - это рисованная от руки приключенче�
 ```bash
 magnet:?xt=urn:btih:804C197950C4A5EE4295073289C833F99CAE1B70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ SILENT HILL f (2025) [Ru/Multi] (1.1.378720/dlc) Repack Decepticon [Digital Delu
 magnet:?xt=urn:btih:E92612E475F99FD2196C371C82979E0738290CA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ ENDLESS Legend 2 – это фэнтезийная стратегия, где в
 ```bash
 magnet:?xt=urn:btih:318BD894470F376E80EF57D337917A309BC4D1B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ You Will Die Here Tonight - ролевой экшен с пошаговыми э
 magnet:?xt=urn:btih:E0E12A9E27A5FB17F23DF0AB5D4615C5508F3BE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Dying Light The Beast (2025) [Ru/Multi] (1.2.1/dlc) Repack Wanterlude [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:40BBBE2518BE7122359F23F816C9262623775E54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

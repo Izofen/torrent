@@ -19,6 +19,8 @@ Bendy: Lone Wolf v2.0.0 [Ru]
 magnet:?xt=urn:btih:47C0FFFBC75AA60A4C2F2608AA62A8C4D5AA9431
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Audio Books – новая платформа для прослушивания 
 magnet:?xt=urn:btih:D69F2E5D25198C2EF3DFD23569433CE24025839C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ FBReader Premium v3.8.22 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:449E4613DBD3781A08DC31E1B3B955FBC5B40EDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 magnet:?xt=urn:btih:C49C5C9C107BB3C1D23AC90FC18592D6C93C30A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ SuperImage — это ваш универсальный инструмент д�
 magnet:?xt=urn:btih:603B9AE55B2414805E3B31168E0447A7A2564DA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Listen Audiobook Player v5.4.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:396D016254F7FA55291DA8BFB72C050C4D2ED6EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Photo Mate предлагает библиотеку фотографий, в к
 magnet:?xt=urn:btih:78B15D02E16C1C7B6DCB39CC5B38DCE07491E2CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Relax Rain: sleeping sounds v9.3.1 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:54AA3F320B98926F6D662C29658C3F5A9FE90558
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ KineMaster - Video Editor & Maker v8.0.9.35926.GP Mod by youarefinished [Ru/Mult
 magnet:?xt=urn:btih:A8AAFD31C1E44948E257693A08B025F3B35DC6DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ STEEZY - танцевальная студия №1 на вашем устрой
 ```bash
 magnet:?xt=urn:btih:01593C2E66E905C3744A90524E5E8A1613DFEAAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Seven / 7 Минут Упражнение v9.24.6 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:22FB447142DAD45C9F34B4C4A08DE8ED54D79AE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ Grok — это AI-ассистент, разработанный xAI, пред�
 ```bash
 magnet:?xt=urn:btih:13BD0FB745C9A88CC1FB5CF3EE564A03AA23E417
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Night clock / Ночные часы v2.11.17 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:D39E7FD78999F0FDFB663A76EA99DCAC0DAC9089
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ VK Музыка: песни и подкасты v8.7 Mod by VK Equals [Ru/En]
 ```bash
 magnet:?xt=urn:btih:59E1797D4A9A283B64E4FC6EF3A6348B822AFE2D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Device Info — простое, но мощное приложение для An
 magnet:?xt=urn:btih:F491B041201C164DFC62EB5FE6FF1099AAC1CBF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ Exo Player - Видеоплеер и IPTV v2.1.3 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8A87179DE23632B7AE630DADF914C30DED8491C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ Broken Sword: Reforged v1.1.9.2 [Ru]
 magnet:?xt=urn:btih:C0A68A0ECD0F12FAD9D7DC30E69C01771950B03B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ IPTV Pro v9.1.14 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7DC190777F1A42B02729A90EB15B769E58FE1F5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ Picsart AI Photo Editor, Video v29.1.4 Gold Mod by Mixroot [Ru/Multi]
 magnet:?xt=urn:btih:4FB25DBBE5C78A5448F027E001334D4BC6E26A88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Genius Art: Image AI Generator v1.5.4 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8E6BEB1B12222A9027727FF2207CCDEB75C773B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:8E6BEB1B12222A9027727FF2207CCDEB75C773B8
 magnet:?xt=urn:btih:05444FBFCB5DAFB90D2581D328569777E4ED6AEC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ Real Fishing / Настоящая Рыбалка v0.1.2.0 Mod by vadj [Ru/En]
 magnet:?xt=urn:btih:A53A7C1E356452CF77465BC6C55B1B9FFD5CF07B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ magnet:?xt=urn:btih:A53A7C1E356452CF77465BC6C55B1B9FFD5CF07B
 ```bash
 magnet:?xt=urn:btih:25EE5F0B1E80EE54BF5BEE576E5080D1A71D6497
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ PixelLab - отличный фоторедактор, в котором все �
 magnet:?xt=urn:btih:BB42724DD64B9BAC29BBC052A327C0E68C1FE5C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v16.10.5 Mod 
 magnet:?xt=urn:btih:0415964684C87C72B456EADA60890B18C7CB9A6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Nerd AI - Решатель Математики v4.0.3 Mod by vadj [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:061AF2A8BD63565CD1F70F29338548D01FEA130D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

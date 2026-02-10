@@ -19,6 +19,8 @@ Essential Presets Bundle for Luminar Neo Mac 1.0.2 [En]
 magnet:?xt=urn:btih:1EF6E8E43BF833E16FB6215326923E2920F244A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ NetSpot - простой инструмент для построения, ан�
 magnet:?xt=urn:btih:4C723150DEF55AD5A2AE967EF92834933D1B60DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ IINA 1.3.3 [Multi/Ru]
 magnet:?xt=urn:btih:5817BB03DE33E84A3F7DAD3F6DC79462C6101018
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Compressor – простой и мощный инструмент для сжа
 ```bash
 magnet:?xt=urn:btih:92EB89C9DA6325E10A14453E18B2593950E3A148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Apple Motion — приложение для создания анимирова
 magnet:?xt=urn:btih:94A65B584557792CE328E01F823555C132409935
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Movavi Screen Recorder 22 v.22.5.1 [Multi]
 ```bash
 magnet:?xt=urn:btih:DF796A4592B77E94D75AACF0A1E6E2FBB65D7ADE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ Movavi Picverse – фоторедактор для Mac. Программа вк
 magnet:?xt=urn:btih:2606AD08B9CDB875460E5F5653D6832CD61EB5FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Remote Desktop Manager – это приложение для контроля �
 ```bash
 magnet:?xt=urn:btih:36EB3FE98A19BB853F6CA03E3345783BAB242278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Movavi Video Suite 2022 - все для монтажа видео на macOS: с
 magnet:?xt=urn:btih:10EBFDB82D07E2A4025D7110F401D5446632B392
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Adobe Media Encoder - это программа кодирования, кото
 ```bash
 magnet:?xt=urn:btih:FDDD0965D618BD32CB409F70E621DAD8C10E087B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Adobe Audition 2022 22.6.0 U2B [Multi]
 magnet:?xt=urn:btih:83E4D23C6AA895BDA3896BAC3F9F1C5FA72D33F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ SpectraLayers расширяет возможности аудио, отобра
 ```bash
 magnet:?xt=urn:btih:987FCB912BED232BC1A180873F79A6FE7140A0DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Movavi Video Editor Plus 2022 v.22.4.1 [Multi]
 magnet:?xt=urn:btih:2D9E12E40F6F0DBAC88079C8E9ED91A497C23BDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Steinberg Cubase Pro for Mac 12 v.12.0.70 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:27AF809E89C5D9361A3BBDA202D18B37D683B43D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Adobe Bridge предоставит вам централизованный до
 magnet:?xt=urn:btih:0169B8D5C519B4465D70BC1D979BC7DC52A300B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ KeyShot автономное приложение для рендеринга. �
 magnet:?xt=urn:btih:19FD5A063C1A5F6915AD6540838EBC9ECFEFB510
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ X Lossless Decoder (XLD) - это инструмент для macOS, котор�
 ```bash
 magnet:?xt=urn:btih:E60C64C325C714AC1A530C5AE81831285DB0F210
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +465,8 @@ Maschine – это рабочая станция для создания бит
 magnet:?xt=urn:btih:932C5453EE1FAAF87D071848DDC756D367995F8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +490,8 @@ ON1 Photo RAW включает в себя ключевые обновления
 ```bash
 magnet:?xt=urn:btih:5D76461A99CED7048A2D7A221782D38F04368A40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +517,8 @@ HitPaw Photo Object Remover for Mac 1.0.2 [Multi]
 magnet:?xt=urn:btih:877A89A7A6B9EBA950DE3E848C47D0D02E563348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ HitPaw Photo Enhancer может помочь вам сделать ваши ф�
 magnet:?xt=urn:btih:6C6911D7F86E1F503CBF873D7CCF3DB71A114C9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Traktor Pro 3 — программное обеспечение для проф�
 ```bash
 magnet:?xt=urn:btih:B799C6D7B72AB1F36BC9E5B71E9419FE203747C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Movist является простым в использовании и мощн
 magnet:?xt=urn:btih:9FEC45F320A72582716256FD127C25A252F2A521
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ ON1 Effects 2023.5 v.17.5.1.14028 [Multi/Rus]
 ```bash
 magnet:?xt=urn:btih:9C5260D0C70F388E5FD5C11B246072A199641873
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ ON1 HDR создает безупречные, естественные фото
 magnet:?xt=urn:btih:B09F82D77F126683241DDB6BB6B3BA07D36164C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Luminar AI 1.5.3 U2B [Multi]
 ```bash
 magnet:?xt=urn:btih:5D97FB86795F50E1B708C03B69F5B83B9CECEA8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

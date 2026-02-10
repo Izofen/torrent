@@ -1,3 +1,29 @@
+###  Публикация: 599657   (999085) от 07.01.2013
+
+Эти невинные забавы (1969) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_999085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оля приезжает в Ленинград поступать в театральный институт. Из-за своей угловатости девушка убеждена в том, что роль подростка для нее беспроигрышна, - и переодевается под мальчишку. Случай сводит ее с Костей и его друзьями. Оля называет себя Колей, увлекается проблемами ребят - и становится полноправным членом мужской компании...Жанр: МелодрамаРежиссер: Август БалтрушайтисАктеры: Ольга Калмыкова, Михаил Глузский, Георгий Штиль, Аристарх Ливанов, Нина Ургант, Игорь Горбачев, Лилия Гурова, Герман Колушкин, Инна Сергеева, Валерий Кузьмин, Артем Иноземцев, Татьяна Игнатова, Владимир Дорофеев, Людмила АржаниковаПродолжительность: 01:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC750D18DF0997557A9591364B3AD829B08282F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600125   (999086) от 07.01.2013
 
 Ангел в тюбетейке (1968) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7B686154094008D1C432747D1AE9353A3AB55C6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:7B686154094008D1C432747D1AE9353A3AB55C6B
 ```bash
 magnet:?xt=urn:btih:4D8DB320DB26240D0515275A615EBFE33D298D42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:4D8DB320DB26240D0515275A615EBFE33D298D42
 magnet:?xt=urn:btih:C7C6F2F149158EBA25CDA622011A7ADF95C0C391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:C7C6F2F149158EBA25CDA622011A7ADF95C0C391
 ```bash
 magnet:?xt=urn:btih:5757CC7507D72098C9D74AD7ED0E0F15E7D35656
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:5757CC7507D72098C9D74AD7ED0E0F15E7D35656
 magnet:?xt=urn:btih:FAC0AE431B684E0E40143889288D90E3D1B602DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +179,8 @@ magnet:?xt=urn:btih:FAC0AE431B684E0E40143889288D90E3D1B602DD
 magnet:?xt=urn:btih:A677BB84B869D97A07DD990384BBE8D7D0E9B01A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:A677BB84B869D97A07DD990384BBE8D7D0E9B01A
 ```bash
 magnet:?xt=urn:btih:69156CEB109338AC868F8ED6499D5BBB5A1DB933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:69156CEB109338AC868F8ED6499D5BBB5A1DB933
 magnet:?xt=urn:btih:51ACD4DEE91D6E3133DFA1B8D9B446B5C85F436A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:51ACD4DEE91D6E3133DFA1B8D9B446B5C85F436A
 ```bash
 magnet:?xt=urn:btih:50A33EE28DF5574537637056AB7FD4885484803F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:50A33EE28DF5574537637056AB7FD4885484803F
 magnet:?xt=urn:btih:786667A71F80B7698BCDEA2162AF028B09485472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:786667A71F80B7698BCDEA2162AF028B09485472
 ```bash
 magnet:?xt=urn:btih:1F76C9FD926CEFC611EBFC81BD4B559071367914
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:1F76C9FD926CEFC611EBFC81BD4B559071367914
 magnet:?xt=urn:btih:4CD170502BD03554998EE22FD98C3A8ACB70AAC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:4CD170502BD03554998EE22FD98C3A8ACB70AAC5
 ```bash
 magnet:?xt=urn:btih:973B0C8CC0B6222CB25D0A881161D5373BD8ABE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:973B0C8CC0B6222CB25D0A881161D5373BD8ABE3
 magnet:?xt=urn:btih:4BFFDE15BCBA66B70E46273CF6FB609CA2AEB418
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:4BFFDE15BCBA66B70E46273CF6FB609CA2AEB418
 ```bash
 magnet:?xt=urn:btih:F82AF0AFE3186D8D3E09C77AC1DD74008492F2FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:F82AF0AFE3186D8D3E09C77AC1DD74008492F2FC
 magnet:?xt=urn:btih:A6F44EDDD0533DCAAAEB5978E039A7D4856C1025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:A6F44EDDD0533DCAAAEB5978E039A7D4856C1025
 magnet:?xt=urn:btih:8595D1CC298EC658229CAC57087CC24FCB712DD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +494,8 @@ magnet:?xt=urn:btih:8595D1CC298EC658229CAC57087CC24FCB712DD8
 ```bash
 magnet:?xt=urn:btih:B214BCB81495D8CDF4388DA71A93590C7FB10CAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:B214BCB81495D8CDF4388DA71A93590C7FB10CAC
 magnet:?xt=urn:btih:7812F5FEB3431547264BE87CFE5884DF457AE1BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +548,8 @@ magnet:?xt=urn:btih:7812F5FEB3431547264BE87CFE5884DF457AE1BB
 ```bash
 magnet:?xt=urn:btih:9FB549C7013DF31D8137D79C0F1CF5B4C6295E7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:9FB549C7013DF31D8137D79C0F1CF5B4C6295E7B
 magnet:?xt=urn:btih:DFCC6D16F38199499BC4A7F5CC5E6316B86EFD7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:DFCC6D16F38199499BC4A7F5CC5E6316B86EFD7D
 ```bash
 magnet:?xt=urn:btih:D77E5891DDAD8E4FBF9BE20C0C2D26BF77490893
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:D77E5891DDAD8E4FBF9BE20C0C2D26BF77490893
 magnet:?xt=urn:btih:79BBBFE3D09B2AFF03C30EE022C2CB89B04A5455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:79BBBFE3D09B2AFF03C30EE022C2CB89B04A5455
 ```bash
 magnet:?xt=urn:btih:215368236C36BD5B7E45C9043B89C2E6F546C839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,30 +682,7 @@ magnet:?xt=urn:btih:215368236C36BD5B7E45C9043B89C2E6F546C839
 magnet:?xt=urn:btih:DAD4FF0FB277E3E58149ACF9E1B9CDDDE493366E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372036   (1009264) от 26.06.2021
-
-Поколение победителей (1936) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм охватывает события 1896-1905 годов — от первых революционных сходок до вооруженного московского восстания рабочих на Красной Пресне, названного впоследствии Кровавым воскресеньем.
-Петербургские студенты Александр Михайлов и Евгений Светлов, крестьянская девушка Варвара Постникова, приехав в Москву, проходят сложный путь революционеров-подпольщиков.Производство: СССР / МосфильмЖанр: Драма, ИсторияРежиссер: Вера СтроеваАктеры: Николай Хмелев, Осип Абдулов, Георгий Черноволенко, А. Горлунов, Владимир Канделаки, Вера Марецкая, Николай Плотников, Борис Щукин, Н. Смельникова, Владимир СоловьевСубтитры: отсутствуютПродолжительность: 01:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F27D1E44850C51A6E335DEC6A1F3BD6C949DEB0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

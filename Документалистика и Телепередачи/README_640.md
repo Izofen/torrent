@@ -1,3 +1,29 @@
+###  Публикация: 1498403   (858060) от 26.09.2021
+
+Ричард Бэнгс. Путешествия с обучением. Ассам, Индия. В поисках носорога / Richard Bangs Adventures with Purpose. Assam, India. Quest for the One-Horned Rhino (2010) HDTV [H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_858060.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом эпизоде "Приключений с обучением" Ричард Бэнгс побывает в индийском штате Ассаме, где и по сей день обитают носороги, во многих других областях Южной Азии давно исчезнувшие, и попытается понять, что значит это животное для жителей Ассама и почему этому зверю так уютно здесь.Производство: США, American Public Television совместно с KCTS, SeattleЖанр: Документальный, познавательный, путешествияРежиссер: Ричард БэнгсПеревод: Одноголосый профессиональный (Первый ТВЧ)Субтитры: отсутствуютПродолжительность: 00:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DBE0336D9EF6E745C9D74E280618EFEC9D06722
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498292   (858065) от 26.09.2021
 
 Чудо техники с Сергеем Малозёмовым (26.09.2021) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:1521CEF73D7FB098464EC858371B5E8E8E310530
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:1521CEF73D7FB098464EC858371B5E8E8E310530
 magnet:?xt=urn:btih:7B0CA4796B72F6151F3F8F3948F80CEC7C858314
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:7B0CA4796B72F6151F3F8F3948F80CEC7C858314
 ```bash
 magnet:?xt=urn:btih:97FEA33CF010306D341041CCE7AE67ACC1B64886
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:97FEA33CF010306D341041CCE7AE67ACC1B64886
 magnet:?xt=urn:btih:1408E938ACA304A23C6BCA02F1217F1F29A9F7A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:1408E938ACA304A23C6BCA02F1217F1F29A9F7A6
 ```bash
 magnet:?xt=urn:btih:FC9A9FFC69CF25B28839DC4B632BF377A0593345
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:FC9A9FFC69CF25B28839DC4B632BF377A0593345
 magnet:?xt=urn:btih:34FA47984192805DC4169B3394791AF8AF503602
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:34FA47984192805DC4169B3394791AF8AF503602
 ```bash
 magnet:?xt=urn:btih:CAB23C42AF7581E9FED0228746BB99DC118BA356
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:CAB23C42AF7581E9FED0228746BB99DC118BA356
 magnet:?xt=urn:btih:579FC5673D5C2A6A81FB09CF4604C031DBB844E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:579FC5673D5C2A6A81FB09CF4604C031DBB844E4
 ```bash
 magnet:?xt=urn:btih:B22148538E3F5CB23A7FBBD5C13E6B36B32A03BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:B22148538E3F5CB23A7FBBD5C13E6B36B32A03BA
 magnet:?xt=urn:btih:FF86D971D179EDAE03B4FCDC0E8725EBD499E5BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:FF86D971D179EDAE03B4FCDC0E8725EBD499E5BB
 ```bash
 magnet:?xt=urn:btih:A5C08F833E88251B0AB6D502352D6D13B5AD852E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +334,8 @@ History Channel: Поворот наворот / Counting Cars (2012) HDTV [H.26
 magnet:?xt=urn:btih:DA61F1B841D995AF801D519EF7071837C3574AEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:DA61F1B841D995AF801D519EF7071837C3574AEF
 ```bash
 magnet:?xt=urn:btih:64A1AE4439B27FCC7EE4C19FDB4AAA1064DCBDEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:64A1AE4439B27FCC7EE4C19FDB4AAA1064DCBDEA
 magnet:?xt=urn:btih:6B6659085D9D51DC5975816218CA3C24558963D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:6B6659085D9D51DC5975816218CA3C24558963D9
 ```bash
 magnet:?xt=urn:btih:442567632AB1625F3D95BBCF2D06C77CE9657904
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:442567632AB1625F3D95BBCF2D06C77CE9657904
 magnet:?xt=urn:btih:4C0E8C7679588F5E5C3DDE49A1B1C246F6B9D5AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:4C0E8C7679588F5E5C3DDE49A1B1C246F6B9D5AE
 ```bash
 magnet:?xt=urn:btih:222BFADFC60AC17C1222B76E15637AA8022AC1A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:222BFADFC60AC17C1222B76E15637AA8022AC1A6
 magnet:?xt=urn:btih:B00FD34E5ABF10CD0EC998AB8CABD3DD622B1618
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +515,8 @@ magnet:?xt=urn:btih:B00FD34E5ABF10CD0EC998AB8CABD3DD622B1618
 ```bash
 magnet:?xt=urn:btih:F70199A49D7F1E71995ED39B78200C8A95E8F8CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:F70199A49D7F1E71995ED39B78200C8A95E8F8CA
 magnet:?xt=urn:btih:50D2022DCD23111491455E04B487E4639F17B36B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:50D2022DCD23111491455E04B487E4639F17B36B
 ```bash
 magnet:?xt=urn:btih:844B1962F38E96A6F217DE919F4770284D4476FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:844B1962F38E96A6F217DE919F4770284D4476FB
 magnet:?xt=urn:btih:A204C89F3F9B608B6DDC4AA2640FABBDB212C09B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:A204C89F3F9B608B6DDC4AA2640FABBDB212C09B
 ```bash
 magnet:?xt=urn:btih:285A5FB0CD8D8E167EFA32F59512DAAE7562B3B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:285A5FB0CD8D8E167EFA32F59512DAAE7562B3B3
 magnet:?xt=urn:btih:12BC8A98E29286BB0311C6FED2AA282E531ADDE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:12BC8A98E29286BB0311C6FED2AA282E531ADDE4
 magnet:?xt=urn:btih:E342BD10BA2F972A36ABFD36AA80DEB5BCAA7BB1
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000427   (859338) от 25.03.2016
-
-ЧП. Чрезвычайное происшествие. Расследование. Радио НеСвобода (2016.03.25) SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_859338.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Чрезвычайное происшествие. Расследование» — это эксклюзивная информация из надежных источников. Документальные расследования, проводимые программой, затрагивают самые актуальные темы: организованную преступность и коррупцию, экономические преступления и терроризм. Зрителей ждут мнения участников событий, комментарии экспертов и версии правоохранительных органов.Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B5401A50925EA786A0ABA2BAE1B77124B376B39
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

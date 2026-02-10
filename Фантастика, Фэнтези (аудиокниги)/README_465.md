@@ -1,3 +1,29 @@
+###  Публикация: 1198726   (804330) от 13.01.2018
+
+Петр Блэк | Тайны Эльфигории (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_804330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полагаете, что в мире меча и магии, нет места обычным смертным? Нет? Спешу вас разубедить… Это не так!!! Олег никогда не думал, что однажды открыв портал в незнакомый мир Саннариас, его жизнь окончательно и бесповоротно изменится. Теперь ему придется понять, кто он есть. И принять решение, кем он станет. Зло не дремлет… Проникая во все миры и господствуя там, оно (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 05:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E4FA44ED6E90E3AE6D070FDD759924605B45E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505543   (804353) от 27.10.2021
 
 Александр Беляев | Изобретения профессора Вагнера (2021) [MP3, Puffin Cafe]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:2FAB32FA7F49DFBF43778E9ABA2DEDBF4D68F46D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:2FAB32FA7F49DFBF43778E9ABA2DEDBF4D68F46D
 magnet:?xt=urn:btih:2322F21897940F020CD694291824A227EC6DACD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:2322F21897940F020CD694291824A227EC6DACD7
 ```bash
 magnet:?xt=urn:btih:A4F3BC1FA40B5CA0E5A552BAB07CA49B0AEB60A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:A4F3BC1FA40B5CA0E5A552BAB07CA49B0AEB60A8
 magnet:?xt=urn:btih:B1E6B2F613E852B4D0A272522F55A4A290F28FFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:B1E6B2F613E852B4D0A272522F55A4A290F28FFD
 ```bash
 magnet:?xt=urn:btih:C9BBE2C1BCE0B5D192B5767BE258E6A49A8C1489
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:C9BBE2C1BCE0B5D192B5767BE258E6A49A8C1489
 magnet:?xt=urn:btih:DF57027C6B9C1635F7B4F396D18846D043A16853
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:DF57027C6B9C1635F7B4F396D18846D043A16853
 ```bash
 magnet:?xt=urn:btih:7A55EFB32C4A4B097AC755E745C6D02180B09221
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:7A55EFB32C4A4B097AC755E745C6D02180B09221
 magnet:?xt=urn:btih:75B8E242FD3150328FFAACBBA554C3F6D4CA1B03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +255,8 @@ magnet:?xt=urn:btih:75B8E242FD3150328FFAACBBA554C3F6D4CA1B03
 magnet:?xt=urn:btih:ED1D9D92E0342A9A823E7BEEE1EDB09055DA9D12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +280,8 @@ magnet:?xt=urn:btih:ED1D9D92E0342A9A823E7BEEE1EDB09055DA9D12
 ```bash
 magnet:?xt=urn:btih:D5E9D4CA360D91EE8F2F5BB8E35DC85B15267D42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:D5E9D4CA360D91EE8F2F5BB8E35DC85B15267D42
 magnet:?xt=urn:btih:61B21923D1F234D3B1EF5B9DD18907619096CFD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:61B21923D1F234D3B1EF5B9DD18907619096CFD8
 ```bash
 magnet:?xt=urn:btih:A7322795E9A23526D81BD19B4B018976AFE14F5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:A7322795E9A23526D81BD19B4B018976AFE14F5D
 magnet:?xt=urn:btih:8201A74C62166B8B327EA831051CE8F4BD89C383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:8201A74C62166B8B327EA831051CE8F4BD89C383
 ```bash
 magnet:?xt=urn:btih:32A278410BB1E747E353413257CB05B4F4DE648F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:32A278410BB1E747E353413257CB05B4F4DE648F
 magnet:?xt=urn:btih:E575D07592CDF5065342C0294FC805BA953E8A6C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:E575D07592CDF5065342C0294FC805BA953E8A6C
 ```bash
 magnet:?xt=urn:btih:1D8C48CDAD147397360A9450154EC6AC8935D0F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:1D8C48CDAD147397360A9450154EC6AC8935D0F0
 magnet:?xt=urn:btih:FA37BDD2BBA3010EA45863F98704AC8741527F90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:FA37BDD2BBA3010EA45863F98704AC8741527F90
 ```bash
 magnet:?xt=urn:btih:31CD3486876A857B05D1BFE73FD9193829A56844
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:31CD3486876A857B05D1BFE73FD9193829A56844
 magnet:?xt=urn:btih:90A6E1E96660CA60AB370B8D36C8C685BD989566
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:90A6E1E96660CA60AB370B8D36C8C685BD989566
 ```bash
 magnet:?xt=urn:btih:C8B4A914416149A0EBFF74FDC1DFCDFF65B889F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:C8B4A914416149A0EBFF74FDC1DFCDFF65B889F1
 magnet:?xt=urn:btih:B65BD2BB93ABC96C8CF5878222932261BE7094AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:B65BD2BB93ABC96C8CF5878222932261BE7094AC
 ```bash
 magnet:?xt=urn:btih:F270EC6EE1434E53EB70045E74097EB3672977BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:F270EC6EE1434E53EB70045E74097EB3672977BF
 magnet:?xt=urn:btih:37EE43C5DA0AE15C186604F114663D68E6A6130C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:37EE43C5DA0AE15C186604F114663D68E6A6130C
 ```bash
 magnet:?xt=urn:btih:586ACD77B3A1D4977DC0374B27540C9995E033CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:586ACD77B3A1D4977DC0374B27540C9995E033CA
 magnet:?xt=urn:btih:AB97B9639852BC2C7EC1555F0AE216A6C834F312
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383788   (807848) от 17.05.2020
-
-Василий Звягинцев | Время игры (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_807848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игра людей и могущественных Держателей Мира, ставка в которой – сама возможность существования нашей реальности, продолжается. Поэтому путешествие по южным морям, затеянное Андреем Новиковым и Александром Шульгиным в надежде отдохнуть от забот, неожиданно оборачивается командировкой в будущее для одного и очередным рейдом по тылам вероятного противника для другого. (   Читать дальше...   )Жанр: Историческая фантастика,попаданцыПродолжительность: 17:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C860DC789584BB4B63DDCA4D5C92A7577E2402C5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

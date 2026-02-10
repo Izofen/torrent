@@ -22,6 +22,8 @@ VA - Deep House Collection vol.146 (2017) [MP3|320 Kbps] <House, Indie Dance, Ja
 magnet:?xt=urn:btih:ACDE1B6F098F9FEBAFC690C9329468D4D54A5647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Vivaldi 2.9.1705.38 [Multi/Ru]
 magnet:?xt=urn:btih:B86E945BC6C96D9110EDF7BD18BE67FBAD1DD549
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:B86E945BC6C96D9110EDF7BD18BE67FBAD1DD549
 ```bash
 magnet:?xt=urn:btih:C00F16C0CB102F2901185AE6DA79ACA64BDA94A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ VA - Take Five: Great Jazz Instrumentals (2017) [FLAC|Lossless|tracks + .cue] <B
 magnet:?xt=urn:btih:D8DC653724FF4674B969F1EAF0C0D2A9B4A87E37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:3B7F9B1A321BBAF10BE29BC1A241A78042F1A943
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -151,6 +161,8 @@ Ali McGuirk - Slow Burn (2017) [MP3|320 Kbps] <Blues, R&B, Soul>
 magnet:?xt=urn:btih:95ACB439E7A0F7103BE70AF8719759AA6B96C956
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -178,6 +190,8 @@ Aly & Fila - Live @ SHINE Ibiza Closing Party, Eden Ibiza, Spain 2019-09-19 [MP3
 magnet:?xt=urn:btih:9164C11ADEE0B6A64B704EAC66E53530D96B444A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ magnet:?xt=urn:btih:9164C11ADEE0B6A64B704EAC66E53530D96B444A
 ```bash
 magnet:?xt=urn:btih:4F4674086173E31199ABFE8BA95A4159A7EA8462
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:4F4674086173E31199ABFE8BA95A4159A7EA8462
 magnet:?xt=urn:btih:FA5789671FCE35436DA79039F7F99B476B375474
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -256,6 +274,8 @@ Lucio Lasorte Show - Mascherata (1979) LP [MP3|320 Kbps] <Funk Soul, Disco, Chan
 magnet:?xt=urn:btih:8F968848C4EB0689F3BB302DF672ECD752FE6783
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:8F968848C4EB0689F3BB302DF672ECD752FE6783
 ```bash
 magnet:?xt=urn:btih:9093009B04B0FB0FF71157D737D7A1190B5F1A1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +329,8 @@ Lay Your Ghost - A Darker Love (2016) [MP3|320 Kbps] <Synthpop>
 magnet:?xt=urn:btih:8767897696F7472F9017FB1E7AD8D5A358393A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +358,8 @@ Shapednoise - Aesthesis (2019) Numbers [FLAC|Lossless|WEB-DL|tracks] <Experiment
 magnet:?xt=urn:btih:CC6C31D78BA703B47213974E6A0896CDE72965AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +385,8 @@ magnet:?xt=urn:btih:CC6C31D78BA703B47213974E6A0896CDE72965AD
 magnet:?xt=urn:btih:C8497AD56C74422AD660FF6FB389C582EFFC44A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +410,8 @@ magnet:?xt=urn:btih:C8497AD56C74422AD660FF6FB389C582EFFC44A8
 ```bash
 magnet:?xt=urn:btih:250E1A91E6C1ECAF7DD37108CCDFA55D8CD46312
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +440,8 @@ Rosedale - Long Way To Go (2017) [MP3|320 Kbps] <Blues Rock>
 magnet:?xt=urn:btih:C173A776AA67C394D091FD44DA5F47D36135DBA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +468,8 @@ The Ramsey Lewis Trio - More Sounds of Christmas (1964) 2019, Argo/Verve [FLAC|L
 ```bash
 magnet:?xt=urn:btih:612492FFE3C7E748112E17D5E2B4C97D2992D2D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +498,8 @@ Ultravox - Extended Ultravox (1998) [FLAC|Lossless|tracks + .cue] <Synthpop, New
 magnet:?xt=urn:btih:F28A1ACDDD50CB64175AE304DC579636A72D2028
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +525,8 @@ magnet:?xt=urn:btih:F28A1ACDDD50CB64175AE304DC579636A72D2028
 magnet:?xt=urn:btih:B39D4393EFB52BAD9D0DA612471944527A4B7BA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +550,8 @@ magnet:?xt=urn:btih:B39D4393EFB52BAD9D0DA612471944527A4B7BA5
 ```bash
 magnet:?xt=urn:btih:D8DF1979CD82E47C5220DB56BB5613398F1E4B67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +580,8 @@ VA - Future Trance Vol.82 (2017) 3CD [MP3|320 Kbps] <House, Trance, Dance>
 magnet:?xt=urn:btih:6A1884254B5CCF54CD96A3A0BB80E724A9955C2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +609,8 @@ Circle Of Dust (Klayton) - Machines Of Our Disgrace (2016) [MP3|320 Kbps] <Indus
 magnet:?xt=urn:btih:EEFA0B9F8A9D9BD52B740C6B53769E592500CBF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +634,8 @@ magnet:?xt=urn:btih:EEFA0B9F8A9D9BD52B740C6B53769E592500CBF9
 ```bash
 magnet:?xt=urn:btih:4C8C1B48704CC7F9FCD4176CFD202627AF364D70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +664,8 @@ VA - Relax to House Vol. 5 (2016) [MP3|128-320 Kbps] <House, NuDisco, IndieDance
 magnet:?xt=urn:btih:180E0E4AF59F84BE33ED4076D6DDDF62805F5EE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +693,8 @@ VA - Unforgettable Moments with Jazz (2016) [MP3|320 Kbps] <Jazz, Instrumental>
 magnet:?xt=urn:btih:9DB78B62F7E0E6EC30879C9FA3845F5DD9BBF93B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +721,8 @@ Lorelei - Тени Октября (2017) [MP3|320 Kbps] <Gothic Doom Metal>
 ```bash
 magnet:?xt=urn:btih:16F2ED970E6B5386C97495BE3EE1B1D2835E06A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

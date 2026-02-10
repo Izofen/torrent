@@ -19,6 +19,8 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.13.03/dlc) Repack
 magnet:?xt=urn:btih:5AF2904735BFC03A989AA28DB8DC41DB75E79768
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Terminator: Dark Fate – Defiance позволяет окунуться в су
 ```bash
 magnet:?xt=urn:btih:1E69B136F3984C264DA690E08CCEA2236A765B52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Into the Breach (2018) [Ru/Multi] (1.2.93) License GOG
 magnet:?xt=urn:btih:4565C8A987B6A93D0EAE0944B00ACAD28253BC89
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Space Rangers HD: A War Apart / Космические рейнджеры HD: Р
 ```bash
 magnet:?xt=urn:btih:1FAB99F4A3B3489A5FB3BDC3CA9EBECC5C79092B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Tank Operations: European Campaign ставит вас на место амер�
 magnet:?xt=urn:btih:D58E5A8A6995FE3EEB370C04454A9A52612B1190
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Old World - это историческая стратегия, в которо�
 ```bash
 magnet:?xt=urn:btih:F819F47CFAE810C0A9087DA7DFDE9315080F9020
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Combat Mission: Red Thunder переносит в жестокие сражен�
 magnet:?xt=urn:btih:F32145C16B3FACBB4AE8579CF63C1E1A8FD3B2AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Worms: Reloaded: Game of the Year Edition + 7 DLC [Ru] (RePack/1.0.0.475) 2012 |
 ```bash
 magnet:?xt=urn:btih:73F37E741DCE4516ED9B65C9AFF3172058F2354F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ East India Company Gold Edition / Ост-Индская компания Зол�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Men of War: Condemned Heroes / Штрафбат [Ru] (RePack) 2012 | Fenixx
 ```bash
 magnet:?xt=urn:btih:E8E8F98F5239CB2D1AFFAF887E5D90F30FA5EC66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +284,8 @@ Cannon Fodder 3 – тактический экшен, унаследовавш�
 magnet:?xt=urn:btih:5817D0D686273AA7316FFEAF088FC4560378FF3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ Rise and Fall: Civilizations at War / Rise & Fall: Война цивилизац
 ```bash
 magnet:?xt=urn:btih:B9558B2F457F680233A835D683E75CD66C9EEC73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ Officers / Офицеры Специальное издание [Ru] (RePack/1.1
 magnet:?xt=urn:btih:C035919888B51CB986E38FDFE17A025B9B99DEB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.15.0/dlc) Repack 
 ```bash
 magnet:?xt=urn:btih:941B6EC7E3498C040AF76AB6AFF2BE8ABF48F6F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Classified: France ‘44 - это пошаговая стратегическа�
 magnet:?xt=urn:btih:C795B8E38AA4297CFBB1EA3902D83A5215E24DB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ Ruff Ghanor предлагает игрокам стать на место од�
 ```bash
 magnet:?xt=urn:btih:2903448C8302B79F03D0F9F58E93156244CE009F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ Inkulinati (2023) [Ru/Multi] (1.47.20/dlc) Repack FitGirl [Supporter Bundle]
 magnet:?xt=urn:btih:2AA20F1E412742E06AF865111B45B9FAC0BF3A47
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ Ruff Ghanor предлагает игрокам стать на место од�
 ```bash
 magnet:?xt=urn:btih:439CE2B7EAC7FF9DD31969E58B38A36BF7D6A0CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ Inkulinati (2023) [Ru/Multi] (1.47.20/dlc) Scene Tenoke [Supporter Bundle]
 magnet:?xt=urn:btih:62B2C79DCA13AF9BEB4DC5BF305E169CFB3ECECC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ Solium Infernum - увлекательная пошаговая стратеги
 ```bash
 magnet:?xt=urn:btih:69C56B19CA0E8D87971647CCC2B507E1461B6E4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -504,6 +544,8 @@ Cossacks 3 - стратегия в реальном времени с уклон
 magnet:?xt=urn:btih:BD491996C616C12E6860A06FB0C740C0DD9C7C5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +569,8 @@ Lysfanga: The Time Shift Warrior бросает вас в битву, котор
 ```bash
 magnet:?xt=urn:btih:3D63E190E53754C09BCA6200475228DA4EFFF811
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +596,8 @@ Lysfanga: The Time Shift Warrior бросает вас в битву, котор
 magnet:?xt=urn:btih:5E4BC40E6EC1E65B5EFB93C0A3AC000FF60F3708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ Lysfanga: The Time Shift Warrior бросает вас в битву, котор
 ```bash
 magnet:?xt=urn:btih:7F6C8DF721637CF41C7AF004CC4748365F7F8F06
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Europa Universalis IV – продолжение знаменитой серии
 magnet:?xt=urn:btih:82371F00E93C908591A0E1A750C04F3DCE0F6D4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ Master of Magic (2022) [Multi] (1.09.13/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:45ACD6EAB64FF588E72935823E7FDE9EB809AA21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

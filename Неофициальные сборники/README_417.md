@@ -1,3 +1,32 @@
+###  Публикация: 1223492   (673465) от 05.05.2018
+
+VA - The Official UK Top 40 Singles Chart 04.05.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_673465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris, Dua Lipa - One Kiss
+02. Ariana Grande - No Tears Left to Cry
+03. Drake, Big Freedia, 5thward Weebie - Nice For What
+04. Lil Dicky - Freaky Friday (feat. Chris Brown)(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 02:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF6A46B0BCD95D4EC3955EEF8038672C1D88A911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030327   (673523) от 30.06.2016
 
 VA - Disco Dance 90s (2016) [MP3|320 Kbps] <Dance, Disco, Pop>
@@ -21,6 +50,8 @@ VA - Disco Dance 90s (2016) [MP3|320 Kbps] <Dance, Disco, Pop>
 ```bash
 magnet:?xt=urn:btih:E13BE7A8356480E306F28E80F3C3666F67562901
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ W.A.S.P. - The Best of the Best (2016) (2CD) [MP3|320 Kbps] <Heavy Metal>
 magnet:?xt=urn:btih:6CF5EBFDBEA66F32DFBE97D4E3EFFF12511CA936
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -72,6 +105,8 @@ Heiko And Maiko - Techno Rock (2018) Radio Remix [MP3|320 Kbps] <Club, Dance>
 ```bash
 magnet:?xt=urn:btih:10CD1512635B4B0B67ABADB24A73C7E958297943
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -100,6 +135,8 @@ Enrique Iglesias - The Best Songs (2016) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:084895A67E3CB967FE596B8D9A7F9F0695317784
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +163,8 @@ VA - Hits of My Soul Vol. 03 (2016) [MP3|320 кб/с]<House, Electronic, Dance>
 ```bash
 magnet:?xt=urn:btih:6CCEA83D38F845C73943ACA2971CD89779240BB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +193,8 @@ VA - Русская Дискотека ХХ Века - 1 (2010) [MP3|320 Kbps]<D
 magnet:?xt=urn:btih:B1F193E33A0DBD03C7FE8B44E742E35D90351DEB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +221,8 @@ VA - Лучшие Хиты Шансона (2016) [MP3|256~320 Kbps] <Шансо�
 ```bash
 magnet:?xt=urn:btih:3E0CE2BCA72700380A7D918C1F78C6DF3610482B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +251,8 @@ VA - Little Song For You (2019) [MP3|320 Kbps] <Jazz, Blues>
 magnet:?xt=urn:btih:8CE880454F166949BF64F81CB9F34D2AC2DF944F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +279,8 @@ VA - не Громкие новинки недели 6 (2019) [MP3|320 Kbps] <Po
 ```bash
 magnet:?xt=urn:btih:7C89CD06333BA1A04D4D4DA1BCD3C6C8646646CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +309,8 @@ VA - Hardstyle Music For Sports (2019) [MP3|256 Kbps] <Hardstyle, Dance, Electro
 magnet:?xt=urn:btih:DEA43627136E21A1E4636EAF5F4D55599E5F4495
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +337,8 @@ VA - The Best Rock - 100 Greatest Hits (2014) [MP3|320 кб/с]<Rock>
 ```bash
 magnet:?xt=urn:btih:D8078BB0E081DCC983FC6F03687F6E7C5D864130
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +367,8 @@ VA - Dirty Blues Rock (2016) [MP3|320 Kbps] <Blues, Rock>
 magnet:?xt=urn:btih:692CAD69ADD907F2692D8D50103FE4CDAD0A3F14
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +395,8 @@ VA - Vocal Melody Salvation (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Voc
 ```bash
 magnet:?xt=urn:btih:91B3E0AD7064D6D244074DB775A2A9D19954FA89
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +425,8 @@ VA - Sweet Delusion: Blues Rock Vol. 07 (2016) [MP3|320 Kbps] <Blues Rock>
 magnet:?xt=urn:btih:71E5EB36484EF71FCC7372C7D819321EEBB0CD85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +453,8 @@ VA - Marco Rochowski - The Great Composer Collection (2016) [MP3|192 - 320 Kbps]
 ```bash
 magnet:?xt=urn:btih:C76BBD87FF88260E57E0824F664A7BA884EAF9FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +483,8 @@ VA - Для Тебя Моя Любимая (2016) [MP3|256-320 Kbps] <Шансо
 magnet:?xt=urn:btih:87FB2FA7C4CFA17BD918C61AA9DCD1898C5DA5BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +511,8 @@ VA - Зарубежная Дискотека ХХ Века - 35 (2016) [MP3|320 
 ```bash
 magnet:?xt=urn:btih:207E95F2433FA482E42748AAA4450D4E6701DED7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +541,8 @@ VA - Русская Дискотека ХХ Века - 10 (2010) [MP3|320 Kbps]<
 magnet:?xt=urn:btih:08943D580BD9E7CC3D9531BF90394579DF1A16E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +569,8 @@ VA - Русская Дискотека ХХ Века - 9 (2010) [MP3|320 Kbps]<D
 ```bash
 magnet:?xt=urn:btih:233ACFA4A3B4E36138883B68341B6ED3F9BF3E1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +599,8 @@ VA - Русская Дискотека ХХ Века - 6 (2010) [MP3|320 Kbps]<D
 magnet:?xt=urn:btih:D77D2547769BF86EAB1D9306C2F9CCA2F6F53F8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +627,8 @@ VA - Русская Дискотека ХХ Века - 3 (2010) [MP3|320 Kbps]<D
 ```bash
 magnet:?xt=urn:btih:C36C82D3FF8740653D44BA2983D4A68D1592ED65
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +657,8 @@ VA - Русская Дискотека ХХ Века - 5 (2010) [MP3|320 Kbps]<D
 magnet:?xt=urn:btih:2EF6317FFD7D970865B59B992EC9BE5B2C9CACFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +685,8 @@ VA - Русская Дискотека ХХ Века - 2 (2010) [MP3|320 Kbps]<D
 ```bash
 magnet:?xt=urn:btih:F39B176E08596F93BB2E6A7BC2080CD04793F63E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -640,6 +715,8 @@ VA - Русская Дискотека ХХ Века - 7 (2010) [MP3|320 Kbps]<D
 magnet:?xt=urn:btih:D571B425B4086BF81C2693429C11B75003FEA0B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,31 +744,7 @@ VA - Русская Дискотека ХХ Века - 4 (2010) [MP3|320 Kbps]<D
 magnet:?xt=urn:btih:BF403ED862E954D7E356B090AEBDAC6A39227325
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030533   (674706) от 30.06.2016
-
-VA - Total Aerobic Workout (110-130 BPM) (2016) [MP3|192-320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/006/save_picture_674706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kenan G. - Clothes
-02. DJ Bobo - Fiesta Loca
-03. DJ Gollum feat. DJ Cap vs. NICCO - Together Forever (Easter Rave Hymn 2k16)Жанр: DanceПродолжительность: 03:19:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964DDA7FFF36C7B65848050D2FA1C8567FE4346A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

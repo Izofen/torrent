@@ -1,670 +1,793 @@
-###  Публикация: 1227624   (644887) от 27.05.2018
+###  Публикация: 1032676   (643813) от 08.07.2016
 
-Клара Моисеева | Тайна горы Муг (1958) [FB2]
+SiteSucker 2.8.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643813.jpg" />
+</div>
+
+
+###  Подробнее
+
+SiteSucker. Альтернативный менеджер загрузки сайтов
+SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
+
+SiteSucker умеет загружать сайт (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 июля 2016Разработчик: Richard CraniskyПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A08A4D6C27A37218E78C09BA20A316CDF9FF0DDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032542   (643814) от 08.07.2016
+
+Los Venturas - Miles High (2016) [MP3|320 Kbps] <60's Guitar's Instrumental Surf Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Rey De Los Cielos
+02. O Fata Romana
+03. Pradesh Hypno Beat
+04. Ringispil(   Читать дальше...   )Жанр: 60's Guitar's Instrumental Surf RockПродолжительность: 00:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BE358DF454F5DA1CD2473A346AE8552B40E0F17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906565   (643815) от 09.06.2015
+
+Надежда Мартынович | Виртуальная девчонка (2004) [FB2]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Детская литература
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644887.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643815.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Историческая повесть «Тайна горы Муг» рассказывает о далеком прошлом таджикского народа, о людях Согдианы — одного из древнейших государств Средней Азии. Столицей Согдийского царства был город Самарканд.
-Герои повести жили в начале VIII века нашей эры, в тяжелое время первых десятилетий иноземного нашествия, когда мирные города согдийцев подверглись нападению воинов (   Читать дальше...   )Жанр: Детская проза, Историческая прозаФормат: FB2
+Что за странные события происходят с Лизой Игнатьевой? То самый красивый мальчишка в классе приглашает на свидание, то директриса ни с того ни с сего обвиняет в курении… В новой школе жизнь просто бьет ключом! Неужели все завертелось из-за того, что в первый день она случайно толкнула местную звезду, Олю Ляпину? И та теперь строит обидчице козни? Ничего, у Лизы есть (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3741A4DC5355817AAF15CA4166A9697D6465268B
+magnet:?xt=urn:btih:4272AC736F013297B2B676AAFA56AA937E7F9AAB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227711   (644888) от 27.05.2018
+###  Публикация: 906486   (643816) от 09.06.2015
 
-VA - Inner Light: Music For Meditation Vol.03 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
+Noturnall - Back to F*ck You Up! (2015) [MP3|320 кб/с]<Progressive Power Metal>
 
->>Electronic
->>Easy listening
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644888.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643816.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Masterio - Mountain (Original Mix) 8:04
-02. Andrew Riqueza - Pray (Original Mix) 3:05
-03. M.D. - Day After Tomorrow (Original Mix) 3:18
-04. R.I.B. - Reflection About The Sea (Original Mix) 4:33(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:45:42
+01. Enquanto a Tregua Nao Vem... 00:40
+02. Back to Fuck You Up! 03:28
+03. Zombies (The Holy Trinity) 06:03
+04. Fight the System 04:31(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:54:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:651F9B1C50453D409ED52E4601C5759221919801
+magnet:?xt=urn:btih:6F95762EDD88523465CE454C0992F847C2909796
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227628   (644889) от 27.05.2018
+###  Публикация: 906756   (643817) от 09.06.2015
 
-The Don Ellis Orchestra - Electric Bath (1967) 2016, Sony Music [FLAC|Lossless|image + .cue] <Post-Bop, Progressive Jazz, Experimental Big Band>
+Специальный репортаж. Приговор долгу (2015.06.08) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643817.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 июля в Литве будет оглашён заочный приговор бывшим командирам вильнюсского ОМОНа, которые в начале 1991 года отказались подчиниться новым республиканским властям. Тогда во время политического двоевластия погибли 14 человек.Телекомпания: ТВЦЖанр: ДокументальныйПродолжительность: ~ 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF298FA09592714ACB28D38C7943981299FA99C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906476   (643818) от 09.06.2015
+
+Inner Odyssey - Ascension (2015) [MP3|320 кб/с]<Progressive Metal, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why am I Here? (Ouverture)
+02. Something More
+03. A World of My Own
+04. My Purpose(   Читать дальше...   )Жанр: Progressive Metal, Progressive RockПродолжительность: 01:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3BCD8F48F7450B27124024698BF93459D85C429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906493   (643819) от 09.06.2015
+
+Ancient Sky - Mosaic (2015) [MP3|320 кб/с]<Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sing Swing
+02. Two Lights
+03. Garbage Brain
+04. Know(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7DA2DEFD12CFBABE2951DC93FE5ABFD095F92A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906560   (643820) от 09.06.2015
+
+Валерий Меньшиков | За борами за дремучими (1991) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643820.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своей новой книге курганский литератор предстает как лирик и тонкий знаток природы. Юного читателя книга заставит пристальней вглядеться в окружающий мир, научит находить красоту в повседневности, а взрослому поможет заново пережить собственное детство.Жанр: Детская проза, природа и животныеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:433637145C918B358664103ED2842F87EBC243B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906487   (643821) от 09.06.2015
+
+Ad Metalla - Gemelli Siamesi (2015) [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643821.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Un Mondo Da Scoprire
+2. Corpi Vuoti
+3. Contraddizioni
+4. Fuori Dal Limbo(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:33:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79EB1055788CCBAA7CC76957CEF0CCEC73F4B93A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 799991   (643843) от 27.06.2014
+
+Linux Mint 17 Qiana XFCE (легкий дистрибутив) [32bit, 64bit] 2xDVD
+
+>>След.
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643843.jpg" />
+</div>
+
+
+###  Подробнее
+
+Linux Mint — дистрибутив операционной системы Linux, основанный на Ubuntu 14.04 LTS. Цель дистрибутива заключается в предоставлении конечному пользователю максимально простой системы, которая будет готова к работе сразу после установки и не потребует загружать наиболее популярное программное обеспечение, в том числе и дополнительные кодеки для воспроизведения популярных мультимедийных форматов. В этом релизе используется одна из популярных легких графических сред XFCE.
+
+В Linux Mint 17 улучшили менеджер обновлений, менеджер драйверов, языковые настройки, источники приложений, экран приветствия, а во всём остальном обновления такие же, как и в Ubuntu 14.04.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BFE30219FBFEF820B3E4FEE3371493AC325E389
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 799986   (643844) от 27.06.2014
+
+Linux Mint 17-v2 Qiana Cinnamon [32bit, 64bit] 3xDVD
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643844.jpg" />
+</div>
+
+
+###  Подробнее
+
+Linux Mint — дистрибутив операционной системы Linux, основанный на Ubuntu 14.04 LTS. Цель дистрибутива заключается в предоставлении конечному пользователю максимально простой системы, которая будет готова к работе сразу после установки и не потребует загружать наиболее популярное программное обеспечение, в том числе и дополнительные кодеки для воспроизведения популярных мультимедийных форматов. В сборке используется одна из популярных графических сред Cinnamon.
+
+В Linux Mint 17 улучшили менеджер обновлений, менеджер драйверов, языковые настройки, источники приложений, экран приветствия, а во всём остальном обновления такие же, как и в Ubuntu 14.04.
+
+Не знаю, чем новая версия v2 отличается от версии трехнедельной давности, но разработчики зачем-то ее сделали. Версию увидел на офф. серверах пару часов назад.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A26B7E3D22F3F0976B917599B1C24112675C5DAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 346766   (643859) от 06.06.2011
+
+NHL 10/11, SC: Финал, матч №2: Boston Bruins vs Vancouver Canucks (04.06.2011) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. NHL. Кубок Стэнли, финал, 2-й матч, Boston Bruins против Vancouver Canucks.Жанр: Спорт, хоккейТелекомпания: Формат: MPEG-4Продолжительность: 01:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739666AFD4FBEFA611F51A2F6CC4BE2621C2146D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517553   (643867) от 03.07.2012
+
+The Gil Correia Band - Tattoos & Blues (2011) [MP3|320 кб/с]<Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644889.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Indian Lady [8:09]
-02. Alone [5:32]
-03. Turkish Bath [10:19]
-04. Open Beauty [8:31](   Читать дальше...   )Жанр: Post-Bop, Progressive Jazz, Experimental Big BandПродолжительность: 00:44:55
+01 - The Rattlesnake Hop
+02 - Taken It Back
+03 - Your Love Is A Prison
+04 - Blue Gil Shuffle
+05 - It's A Swang Thang
+06 - Mercury Blues
+07 - Too Many DriversЖанр: BluesПродолжительность: 00:27:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3502CE345A19B108FFC352215A0C02DA4D8B627
+magnet:?xt=urn:btih:E4B4D6E78B873AF114FE2035961265034C61FD12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227659   (644890) от 27.05.2018
+###  Публикация: 518503   (643869) от 03.07.2012
 
-VA - Psycho Kinesis (2018) [MP3|320 Kbps] <Techno, Minimal, Hardstyle>
+Black Messiah - The Final Journey (2012) [MP3|320 кб/с]<Symphonic Black/Power/Folk/Viking Metal>
 
->>
->>
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_644890.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643869.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lasha & Lasha - Below Ground (Original Mix)
-02. Schwefelgelb - Das Ärmellose Hemd
-03. We Outspoken - The Fall Out
-04. Yello - The Race(   Читать дальше...   )Жанр: Techno, Minimal, HardstyleПродолжительность: 05:22:57
+1. Windloni
+2. Der Ring Mit Dem Kreuz
+3. To Become A Man
+4. Into The Unfathomed Tower (A Tribute To Candlemass)
+5. Feld Der Ehre
+6. Lindisfarne
+7. The Naglfar Saga: Prologue - The Final Journey
+8. The Naglfar Saga: Mother Hel
+9. The Naglfar Saga: On Board
+10. The Naglfar Saga: Sailing Into EternityЖанр: Symphonic Black/Power/Folk/Viking MetalПродолжительность: 00:55:26
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E584D7F1DC6740DCC5E53A8410E75AF7C16B5D43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227629   (644891) от 27.05.2018
+###  Публикация: 518279   (643870) от 03.07.2012
 
-Victor Modern Jazz Sextet - Matrix (1969) 2017, JVC Kenwood Victor Entertainment Corp. [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+VA - Dance Club Party Vol.5 (2012) [MP3|256 кб/с]<Dance, Club>
 
->>
->>
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_644891.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Matrix [5:03]
-02. Little Aby [6:58]
-03. On Green Dolphin Street [8:56]
-04. If I Said the Sky Was Falling [6:06](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:40:40
+1. Young Rebels & Francesco Diaz - Timbuktu (Original Mix) (6:15)
+2. Victoria Aitken - Weekend Lover (Sean Finn Radio Edit) (3:58)
+3. Voxxmore feat. Starla Edney - Zero21 (Never Let You Go) (Radio Mix) (4:35)
+4. Darius & Finlay feat. Carlprit & Nicco - Do It All Night 2k12 (CK Stone Mix Edit) (2:59)
+5. Scooter & Lavelle & Sue Cho - Beats Inside My Head (Minero Remix) (5:48)
+6. Pryda - You (Original Mix) (6:58)
+7. Mike - D Feat. Nensi - All I Want (Infected Culture Radio Edit) (3:26)
+8. Andrea Verona Feat. Jama - La Pasion (Ratatouille Radio Edit) (3:22)
+9. Picco & Pleasurekraft - Mi Cafe (Stanislav Shik & Denis Rook Mashup) (5:39)
+10. Medina - Forever (DJ Tonka True House Mix) (4:32)Жанр: Dance, ClubПродолжительность: 08:35:15
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:95AB753E0C46FA7DEA43B12DEC2341280B4E2EB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541431   (644901) от 03.04.2022
+###  Публикация: 518174   (643871) от 03.07.2012
 
-VA - Music News vol.177 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+Oliver/Dawson Saxon - Motorbiker (2012) [MP3|320 кб/с]<Heavy Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chemical Romance
+02. Motorbiker
+03. Whippin' Boy
+04. No Way Out
+05. Just Another Suicide
+06. Sinternet
+07. Ghost
+08. Nevada Beach
+09. Screaming Eagles
+10. World's Gone Crazy(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8007F7AA9EBD62909B6AD08C046911C796AD87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518516   (643873) от 03.07.2012
+
+VA - Dancing People in The World - Top Dance (2012) [MP3|256 кб/с]<Dance>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644901.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643873.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Глюкоза - Да-Ди-Дам (02:50)
- 002. Aitana - En El Coche (02:05)
- 003. ALE - Spune Tu (Festum Music Remix) (03:55)
- 004. A Boogie Wit Da Hoodie feat. Ella Bands - Playa (02:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:36:17
+1. Anton Neumark & Crime-A - Maria (Neumark Edit) (7:55)
+2. Anton Neumark & Re-Zone - Time (DJ Winn, Anton Neumark's Re-Remix) (7:03)
+3. Anton Neumark & Yana Fortep - Не переживай (Alex Curly Dub MIx) (3:19)
+4. Anton Neumark & Yana Fortep - Не переживай (Alex Curly Remix) (3:19)
+5. Anton Neumark & Yana Fortep - Не переживай (dj sly & dj bob athlans) (3:44)
+6. Anton Neumark & Yana Fortep - Не переживай (ezzy Safaris radio mix) (3:29)
+7. Anton Neumark vs Phunk Investigation, Aeronautics - Underground (Electrica Salsa Mash Up) (7:22)
+8. Armand Van Helden - My My My (DJ DENIS RUBLEV MASHUP) (4:16)
+9. Arty vs Adrian Lux - Teenage World (Miami Husslers Bootleg) (4:17)
+10. Avicii vs NERVO vs Justice - We're All ID Friends (Pixel Cheese Cover Bootleg) (4:52)Жанр: DanceПродолжительность: 04:05:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A85F6903053AA7481C12AA5577433D70BC41D7A2
+magnet:?xt=urn:btih:1F32523CCD8CE335F67B0B8A82075BF22BB41EBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541544   (644902) от 03.04.2022
+###  Публикация: 516545   (643876) от 03.07.2012
 
-X-Wild - 3 Albums (1994-1996) [FLAC|Lossless|image + .cue] <Speed Power Metal>
+Josh Turner - Punching Bag. Deluxe Edition (2012) [MP3|320 кб/с]<Country>
 
->>
->>
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_644902.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643876.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Savageland (intro)
-02. Braveheart
-03. Savageland
-04. Born for War(   Читать дальше...   )Жанр: Speed Power MetalПродолжительность: 3CD, 02:42:40
+(0:36) 01. Introduction
+(3:39) 02. Punching Bag
+(3:21) 03. Time Is Love
+(3:17) 04. Deeper Than My Love
+(3:08) 05. Good Problem
+(3:59) 06. Cold Shoulder
+(3:38) 07. Find Me Baby
+(3:24) 08. Whatcha Reckon
+(4:34) 09. Pallbearer
+(4:07) 10. For the Love of God(   Читать дальше...   )Жанр: CountryПродолжительность: 00:57:49
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:36C085D6FF14215D45D7D913BDC5627459EC0775
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541631   (644903) от 03.04.2022
+###  Публикация: 518457   (643877) от 03.07.2012
 
-Нуреев. Белый ворон / The White Crow (2019) BDRip [H.265/1080p] [10-bit]
+Kuffdam - Network (2009) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kuffdam - Network (2009)
+
+Год: 2009
+Жанр: Trance
+Продолжительность: 01:18:56Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Kuffdam & Plant - Summer Dream (Sunset On The Beach Mix) (7:00)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F0682F7B6B0A96FC45C5C7190299A5FF67704A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518278   (643878) от 03.07.2012
+
+Каникулы в Мексике - 2. Ночь на вилле. Выпуск №86 (2012.07.02) (2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643878.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуТелекомпания: MTVПродолжительность: 00:12:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:334506273998A9FF9F18A7306C10D711CEA0634E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518129   (643879) от 03.07.2012
+
+R3hab - I Need R3hab 001 (01.07.2012) [MP3|~205 кб/с]<Electro House, House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	R3hab & Swanky Tunes feat. Max C - Sending My Love	(05:14)
+02.	R3hab vs. Calvin Harris - Chainsaw The Night vs. Flashback (R3hab vs. Panic City & Miles Medina Bootleg)	(04:00)
+03.	Wynter Gordon - Til Death (R3hab Remix)	(04:30)
+04.	R3hab & Calvin Harris vs. Axwell & Dirty South - Bounce vs. Open Your Heart (R3hab Bootleg)	(03:30)
+05.	Calvin Harris feat. Example - We'll Be Coming Back (R3hab EDC Vegas Remix)	(05:22)
+06.	David Guetta feat. Chris Brown & Lil Wayne - I Can Only Imagine (R3hab Remix)	(04:08)
+07.	Afrojack feat. Shermanology - Can't Stop Me (R3hab & Dyro Remix)	(04:52)
+08.	Afrojack & R3hab - Prutataaa (Dada Life Remix)	(03:45)
+09.	Kaskade feat. Mindy Gledhill - Eyes (R3hab Remix)	(02:45)
+10.	David Guetta feat. Usher - Without You (R3hab's XS Remix)	(04:13)(   Читать дальше...   )Жанр: Electro House, HouseПродолжительность: 01:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7ED559D58A2EA8AEC2F2D7AFE22C7FD88682228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517050   (643880) от 03.07.2012
+
+VA - Subculture Selection 2012-04 (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Leanings vs Space Rockerz & Tania Zygar - Whatever Happened To Puzzle Piece (John O'Callaghan mashup) (07:33)
+02. Protoculture - Cobalt (07:25)
+03. Akira Kayosa & Hugh Tolland - Disconnected (08:05)
+04. Sean Tyas - Take My Hand (feat David Berkeley - John O'Callaghan remix) (08:34)
+05. Giuseppe Ottaviani & Betsie Larkin - Toys (club mix) (07:25)
+06. Emma Hewitt - Miss You Paradise (Shogun remix) (07:37)
+07. Andy Moor & Ashley Wallbridge - World To Turn (feat Gabriela - club mix) (06:50)
+08. W&W - Shotgun (06:05)
+09. Matt Skyer - Bad Trip (07:25)
+10. Tritonal - Everafter (feat Cristina Soto - Tritonal club mix) (06:56)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E151E61AF9E3140A8E3CB0D69743F8532568DBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517049   (643881) от 03.07.2012
+
+VA - Subculture Selection 2012-03 (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Ocallaghan - Stresstest (John Askew Remix (08:27)
+02. Gareth Emery - Concrete Angel (feat Christina Novelli - John O'Callaghan remix edit) (04:51)
+03. John Ocallaghan & Heatbeat - Las Lilas (09:04)
+04. Omnia & IRA - The Fusion (06:08)
+05. John Ocallaghan - Smokescreen (Sneijder Remix) (07:39)
+06. Heatbeat - Rocker Monster (06:43)
+07. Ost & Meyer - Safari (07:13)
+08. Dark Matters - The Real You (feat Jess Morgan - Jorn Van Deynhoven remix) (08:25)
+09. Sebastian Brandt - Mana (08:03)
+10. Khomha - Mind Gamer (06:31)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8F813D8BD54D64712362163D0875E33A56E7B66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517048   (643882) от 03.07.2012
+
+VA - Subculture Selection 2012-01 (07.01.2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Full Tilt feat. Deirdre McLaughlin - Surrender (Sneijder vs. John O'Callaghan Remix) (7:36)
+02. John O'Callaghan feat. Cathy Burton - Perfection (Shogun Remix) (9:13)
+03. Luke Bond feat. Emel - Amaze (Original Mix) (7:32)
+04. John O'Callaghan - The Bailout (Original Mix) (7:35)
+05. Fady & Mina - Overdrive (Original Mix) (7:46)
+06. Re.Locate vs. Robert Nickson - Prevening (Original Mix) (8:24)
+07. Susana - Home (Daniel Kandi Retrofit Remix) (7:17)
+08. Orjan Nilsen - Viking (Original Mix) (7:34)
+09. Ashley Wallbridge - Vision (Original Mix) (6:28)
+10. Gareth Emery - Tokyo (Edit) (3:48)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF80202EF9C0FCE1E07153CF41D78B5C2349A5B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 216755   (643884) от 08.07.2010
+
+Киллеры / Killers (2010) DVD9
 
 >>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644903.jpg" />
+  <img src="http://mybot314.ru/public/picture/005/save_picture_643884.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм рассказывает о биографии легендарного танцовщика Рудольфа Нуреева – от его детских лет в Уфе и до момента гастролей Кировского театра во Франции, когда Нуреев решил просить убежища на Западе.Производство: Великобритания, Франция, Сербия / BBC Films, Magnolia Mae Inc., Metalwork Pictures, Montebello Productions, Work in ProgressЖанр: драма, биографияРежиссер: Рэйф ФайнсАктеры: Олег Ивенко, Рэйф Файнс, Чулпан Хаматова, Луис Хофманн, Адель Экзаркопулос, Сергей Полунин, Оливье Рабурден, Рафаэль Персонас, Зак Эйвери, Мар СодупПеревод: Не требуетсяСубтитры: русские (форсированные - на английскую и французскую речь), французские (форсированные, полные)Продолжительность: 02:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F02AAC4833C95395D6A1795A7793F556AD2E18
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541535   (644904) от 03.04.2022
-
-Марина Журавлёва - Grand Collection (2002) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_644904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Если ты со мною рядом
-02. На сердце рана у меня
-03. Разбито сердце пополам
-04. Я тебя не могу не любить(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:59
+Спенсер был безжалостным наемным убийцей, грозой мирового терроризма и перестал им быть, когда встретил Джен в лифте курортного отеля… Спустя три года они — обычная идеальная молодая пара, проживающая в американском пригороде. Но их безоблачному счастью приходит конец, когда за голову Спенсера объявляют награду в $5 млн, и все глубоко законспирированные профессионалы-киллеры (   Читать дальше...   )Жанр: боевик, комедия, мелодрамаПеревод: Профессиональный (полное дублирование)Формат: DVD VideoПродолжительность: 01:36:15
 
 ## Скачать торент
 ```bash
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541718   (644905) от 03.04.2022
+###  Публикация: 216968   (643887) от 08.07.2010
 
-FontViewOK 7.41 + Portable [Multi/Ru]
+Такси, прицеп и коррида / Taxi, Roulotte et Corrida (1958) DVDRip [H.264] [PR]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Классики кино и Старых фильмов до 90-х
 
 <div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644905.jpg" />
+  <img src="http://mybot314.ru/public/picture/008/save_picture_643887.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Перед вами крошечная программа, которая после запуска отобразит пользователю все установленные в его операционной системе шрифты, и конечно вы сможете с ними работать. Особенность программы, позволяющая вводить любой текст в специальное отведенное поле и сразу просматривать результат, то есть сразу будет видно, как набранное слово будет смотреться в том или ином (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Таксист Морис Берже никак не может дождаться окончания работы, что и понятно, ведь уже через час он вместе со своей семьей, а также с семьей свояка Леона, отправится в автопробег Франция-Испания. И вот желанное время старта настало! Прицепив к своему вместительному автомобилю прицеп свояка, забавная компания отправляется в путь. Хитрец и пройдоха Морис обещает всем (   Читать дальше...   )Производство: Франция / Champs-Élysées Productions, Lambor Films, P.A.C.Жанр: КомедияРежиссер: Андре ЮнебелльАктеры: Луи де Фюнес, Раймон Бюссьер, Анетт Пувр, Жак Динам, Полетт Дюбо, Ги Бертиль, Жак Бертран, Луи Бужетт, Вера Вальмон, Жак ДюфилоПеревод: Оригинальный, Профессиональный многоголосыйПродолжительность: 01:22:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DDCF9A1C541109CA26C140F187F5455828FD13EC
+magnet:?xt=urn:btih:56C37B8945D18A2462E0CDD49EA8CF7FD965D792
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541345   (644906) от 03.04.2022
-
-Lords Of The Trident - The Offering (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legend
-02. Acolyte
-03. Charlatan
-04. Feed The Wolves(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D3C7B158BA2BA65DC48CEA9C08B4E47BB3AC7A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541732   (644907) от 03.04.2022
-
-Ocenaudio 3.11.10 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ocenaudio — аудиоредактор, распространяемый авторами абсолютно бесплатно. Приложение имеет различные варианты сборок, поддерживающих работу в различных операционных системах (Windows, Mac OS X, Linux). Это невероятно простой способ вносить изменения в аудио треки. При наличии достаточно мощных функций, программа не вызовет осложнений при работе даже новичками. Однако (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908A2279A0547CCF4681A52807A9D33D535B7B79
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541666   (644908) от 03.04.2022
-
-Гай Юлий Орловский, Марго Генер | «Золотой Талисман» Книга 5. Цитадель (2022) [MP3, Сергей Уделов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644908.jpg" />
-</div>
-
-
-###  Подробнее
-
-В мире, где правят меч и магия, каждый стремится занять лучшее место на празднике жизни. Когда находишь Золотой Талисман, кажется – все. Вершина достигнута, можно праздновать победу. Но есть проблема.
-Осколки могущественного артефакта рассыпались по склонам величайшей из гор и оказались в руках разных рас. Враждующих рас…Жанр: Боевое фэнтези, Героическое фэнтезиПродолжительность: 11:33:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C2A74BAD29B734345D090627BC5F957D65650D9
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541616   (644909) от 03.04.2022
-
-Сергей Пархоменко | Реши-пиши. Увлекательные задания для развития мышления. 5-6 лет (2018) [PDF]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_644909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаем вашему вниманию серию учебных развивающих пособий "Реши-пиши". Тетрадь содержит увлекательные задания на развитие мышления. Задания проектировались особым образом, чтобы дети с удовольствием брались за их решение и подолгу не могли оторваться от процесса.Жанр: Рабочая тетрадь, Развивающая литература для дошкольниковФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541677   (644910) от 03.04.2022
-
-VA - Record Super Chart 02.04.2022 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alis Shuka - Not About Us (2:09)
-02. Minelli - Nothing Hurts (Yves V Remix) (2:09)
-03. OWNBOSS, Sevek - Move Your Body (2:37)
-04. Shouse - Wont Forget You (Edit) (3:50)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA8FD5300C9FC8B65323F8B2C57AA246B1A9C4E4
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541502   (644911) от 03.04.2022
-
-Пол Стретерн | Философия за час. Гегель (2016) [MP3, Денис Гармаш]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_644911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект «Философия за час» познакомит слушателей со знаменитыми мыслителями разных эпох и самыми значимыми их идеями и теориями. Кроме того, вы узнаете о базовых понятиях философской науки. Самое главное, что все философские изыскания в книгах серии изложены простым и понятным языком. Комфортно, быстро, легко – теперь философию изучают так! Георг Вильгельм Фридрих (   Читать дальше...   )Жанр: Зарубежная образовательная литератураПродолжительность: 01:17:54
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541552   (644912) от 03.04.2022
-
-Вилли Токарев - Легенды Русского Шансона Том 9 (2000) [FLAC|Lossless|tracks + .cue] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В шумном балагане
-02. Купите орешки
-03. Рыбацкая (Эх хвост, чешуя)
-04. Чубчик(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:02:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFE35CEF83A9C774A1DB4BF791FFA466A8AED72A
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541553   (644913) от 03.04.2022
-
-iZotope - Ozone 9 Advanced 9.11.1 STANDALONE, VST, VST3, AAX (x64) RePack by R2R [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644913.jpg" />
-</div>
-
-
-###  Подробнее
-
-iZotope Ozone – полноценное и функциональное приложение, которое можно смело назвать полноценной системой для выполнения мастеринга. В одном интегральном плагине собраны все необходимые инструменты, которые необходимы для постобработки различных музыкальных композиций. iZotope Ozone – это идеальный вариант, который предоставляет в распоряжение каждого музыканта абсолютно (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCB076EE7D56EBFB3925343F0B03E73C6FC774D
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541712   (644914) от 03.04.2022
-
-Виктор Лугинин | Падение Атлантиды (2017) [MP3, Олег Шубин]
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_644914.jpg" />
-</div>
-
-
-###  Подробнее
-
-От автора: Рассказ писался для конкурса «Кто мы и откуда? История возникновения человечества». Был разгромлен, обвинён во многих грехах, включая наивность и затянутость. Я сам увлекаюсь темой происхождения человечества и нашей цивилизации, что называется разбираюсь в теме и подбираю материал. Давно хотел написать нечто подобное, и вот тут предоставилась возможность. (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 01:05:11
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541524   (644915) от 03.04.2022
-
-Crazy Lixx - Forever Wild (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wicked (03:47)
-02. Break Out (04:52)
-03. Silent Thunder (05:08)
-04. (She's Wearing) Yesterday's Face (03:49)(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E2663C508C2EE6D9A663B447BA1D92E0D19875F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541362   (644916) от 03.04.2022
-
-АлисА - Страх и контроль (2022) Single [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я был вчера убит
-02. Страх и контрольЖанр: Hard Rock, Alternative MetalПродолжительность: 00:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3035A4A33B3CEE5E004EE26441949729BE066DC8
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541575   (644917) от 03.04.2022
-
-Laibach - Wir Sind Das Volk (Ein Musical Aus Deutschland) (2022) [MP3|320 Kbps] <Industrial, Ambient, Spoken Word>
-
->>
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_644917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Philoktet
-02 Der Vater
-03 Medea Material
-04 Ich Bin Der Engel Der Verzweiflung(   Читать дальше...   )Жанр: Industrial, Ambient, Spoken WordПродолжительность: 01:23:25
-
-## Скачать торент
-```bash
-нет
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541208   (644918) от 03.04.2022
-
-Red Hot Chili Peppers - Unlimited Love (2022) [AAC|~350 Kbps] <Alternative, Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Summer (3:52)
-02. Here Ever After (3:50)
-03. Aquatic Mouth Dance (4:21)
-04. Not the One (4:26)(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 01:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1B3A64122111275F8D7B57DB01A6FC17BF8D2EE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541238   (644919) от 03.04.2022
-
-Кино - Легенда (2018) [AAC|~318 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кукушка (6:40)
-02. Звезда по имени Солнце (3:24)
-03. Группа крови (4:00)
-04. Место для шага вперёд (3:40)(   Читать дальше...   )Жанр: RockПродолжительность: 05:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202D00A89AC8E1BF456585BFB511CF43AD401981
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541626   (644920) от 03.04.2022
-
-iZotope - VocalSynth 2 2.4.1 VST, VST3, AAX RePack by R2R [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644920.jpg" />
-</div>
-
-
-###  Подробнее
-
-VocalSynth 2 - захватывающий вокальный опыт, который адаптируется и развивается вместе с вашим уникальным стилем и открывает мир новых вокальных возможностей.
-Преобразование вокала: преобразите свои вокальные партии с помощью самого уникального плагина. Быстро получайте винтажное вокальное звучание, которое вам нужно или создавайте вокал в духе новой волны. Потеряйтесь (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F92ACDEE15880D771B7CEA07C09958FC901B5FB2
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517895   (644924) от 02.07.2012
-
-Ю.В.Гурин | Лесные страшилки. Веселые чистоговорки и логопедические игры [С] [Ш] [Ч]. Развиваем речь. [2006] [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Логопедия, Психология, Педиатрия
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_644924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книги серии «Развиваем речь: Весёлые чистоговорки и логопедические игры» предназначены для улучшения дикции и развития речи детей в возрасте 4—7 лет.
-Занимательные рисунки, оригинальные чистоговорки, вопросы и задания помогут вам провести занятия в живой игровой форме, увлечь и заинтересовать ребёнка.Жанр: Развивающее пособие, исправление речи.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E828A51EF0E2905B6A69E807BD592A9FAC323C1
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

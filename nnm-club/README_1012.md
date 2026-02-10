@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:8538BD351AEED2BE97F2BA35D052C4B52B42D84A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:8538BD351AEED2BE97F2BA35D052C4B52B42D84A
 ```bash
 magnet:?xt=urn:btih:E49350FE30FB2BF7BEBE1DDB6E1F4891FE083670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:E49350FE30FB2BF7BEBE1DDB6E1F4891FE083670
 magnet:?xt=urn:btih:0207979A5430F70B962B4256AA2C64B39402D7E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Aground (2020) [Ru/Multi] (2.1.3) License GOG
 ```bash
 magnet:?xt=urn:btih:331CC75A3F2858146AEAA5161D39A43FF4EE48E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:331CC75A3F2858146AEAA5161D39A43FF4EE48E7
 ```bash
 magnet:?xt=urn:btih:05BCF401056D8A0C56CF98DC8EBB878CF8275BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:05BCF401056D8A0C56CF98DC8EBB878CF8275BB7
 magnet:?xt=urn:btih:8A7A087C78A95EB59F4E25C8B5E8F1F4AE0FCED7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ VA - Romantic Striпgs (2025) [MP3|320 Kbps] <Pop, Rock, Ballad>
 magnet:?xt=urn:btih:9E8ECC4684CC290798B7E74567480BAAFCDA88D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ Piczle Cross: Rune Factory (2025) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:C6C6C273B8D550405A7E532623E36973FE550F25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:C6C6C273B8D550405A7E532623E36973FE550F25
 magnet:?xt=urn:btih:18BDF4F72177D560B0A13372815DF41412D0830A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:18BDF4F72177D560B0A13372815DF41412D0830A
 ```bash
 magnet:?xt=urn:btih:ED655FC4696E1FFAC9BFA3BC700291903EC682DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +296,8 @@ VA - Piano Calming Hours: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks
 magnet:?xt=urn:btih:A841C8E44ADADAA91D9DC8D60002AD31156AFD68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ Flash Doll / Светящаяся кукла (2025) [Ru/Multi] (1.0) Repack FitG
 ```bash
 magnet:?xt=urn:btih:669D0ABCD6845CE51E12D5B027987E2473CDD363
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ BrokenLore: LOW (2025) [Ru/Multi] (1.0) Scene Tenoke
 magnet:?xt=urn:btih:9D3D89FB875C9B8997CCDF92FDA2B774D3E991D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ Riders Republic (2021) [Ru/Multi] (1.26.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E72F6E0B405755F086E9E2B6627CD89FAF597B52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:E72F6E0B405755F086E9E2B6627CD89FAF597B52
 magnet:?xt=urn:btih:BD0E12C4741449C3F75A25679D8A98F5A19D3296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ Truecaller: AI Call Blocker / Oпределитель номера v14.43.8 Gold
 ```bash
 magnet:?xt=urn:btih:F57480C72379592F77935A0A12BA0C07F7EA5733
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -420,6 +452,8 @@ Tony Hawk's Pro Skater 1 + 2 (2023) [Ru/Multi] (Build 12545762/dlc) Repack Let's
 magnet:?xt=urn:btih:2D35C3FD24D88F4D4E929405B16D5865F957905D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ The Last Farmer (2024) [Ru/Multi] (1.0.11) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:B0B59AFBC087F1730662EC0F55432082A90F1D3A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:B0B59AFBC087F1730662EC0F55432082A90F1D3A
 magnet:?xt=urn:btih:E11A22645DCE1F8495EF6E5C8B9617C66AF78312
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:E11A22645DCE1F8495EF6E5C8B9617C66AF78312
 ```bash
 magnet:?xt=urn:btih:7C1349342989EC4EEB942FE55A7D9F2232C9D748
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:7C1349342989EC4EEB942FE55A7D9F2232C9D748
 magnet:?xt=urn:btih:EFB4267CE4D630A3E6CD823ADC2F9996D2A28228
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -542,6 +584,8 @@ magnet:?xt=urn:btih:EFB4267CE4D630A3E6CD823ADC2F9996D2A28228
 magnet:?xt=urn:btih:C594D1CDB552DA5765B65DDEB5532516F445B953
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +610,8 @@ Amanita Design Collection (2003-2021) [Ru/Multi] (1.12/2.34/Build 4041/1.2.0/1.4
 magnet:?xt=urn:btih:23CE7282B8B928D2921186119DC632F2E80B9457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ magnet:?xt=urn:btih:23CE7282B8B928D2921186119DC632F2E80B9457
 ```bash
 magnet:?xt=urn:btih:D90BE42E0DB6E4A94D774DDD12C76730A1C0E7AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:D90BE42E0DB6E4A94D774DDD12C76730A1C0E7AA
 magnet:?xt=urn:btih:0289316CC0D93977FA142BD997547C97BAA99C37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:56629FBAE3671955A29EC8F628D48F8F01CF9BD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

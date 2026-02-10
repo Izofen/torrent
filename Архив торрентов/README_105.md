@@ -19,6 +19,8 @@ DiskDigger - маленькая утилита, с которой можно в�
 magnet:?xt=urn:btih:13DF7B2EECCD6F31FDADEF942E8022D7B1E863FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 ```bash
 magnet:?xt=urn:btih:B14ADD56D2C03A61C6F4494565C4D8CEDEA3083C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Wise Disk Cleaner 11.2.0.837 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:011BD01FB1614156C76C546E74670719626E0B31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Shazam (шазам) распознает любую песню за секунд
 ```bash
 magnet:?xt=urn:btih:EA17099750B6229BDFD88B1E75A7EB4BF4DC5276
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:EA17099750B6229BDFD88B1E75A7EB4BF4DC5276
 magnet:?xt=urn:btih:A3EE3F99BE09102144E624352135DB4BEC83153A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Wise Registry Cleaner - утилита для безопасной чистки 
 ```bash
 magnet:?xt=urn:btih:A4BFDAB6BB00128323D437FE21FBC37C280B117E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ HDCleaner – многофункциональный программный пр
 magnet:?xt=urn:btih:61A0BBDAD44083E72CCFEEF4427F4E215577100C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Opera One 117.0.5408.53 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:9B671D5DC941A371D1D837B869B3B012D7A6836E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ XnConvert - бесплатная кроссплатформенная утили
 magnet:?xt=urn:btih:577899C0252334BDE24CB3897C88108A7857A8FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ IsMyLcdOK - небольшая бесплатная программа для о
 ```bash
 magnet:?xt=urn:btih:6EED08CEB644FBA5CF8568674172A3F3DBEF9D66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Folder Player Pro - это ориентированный на каталоги 
 magnet:?xt=urn:btih:ABECC605D87844485838D8529F3B414D404FF23F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Psiphon - это новый инструмент обхода интернет-�
 ```bash
 magnet:?xt=urn:btih:8F25F03C630ADAD9FFA38AC50D86D7B03F6941B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ IsMyHdOK 4.21 Portable [Multi/Ru]
 magnet:?xt=urn:btih:2187277DAD3E8BF0096235422832D0C4CC71EF25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ OCCT 13.1.15 Portable [En]
 ```bash
 magnet:?xt=urn:btih:726A64C4D2EBC2AA398E525EE6B3CC470E0E66DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Daylio - Mood Tracker / Дневник - Трекер Настроения v1.60
 magnet:?xt=urn:btih:1E492E9E6E99C92FCBD957F9D93AF42E2B30002D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ magnet:?xt=urn:btih:1E492E9E6E99C92FCBD957F9D93AF42E2B30002D
 ```bash
 magnet:?xt=urn:btih:E2AEC26D45B0C596A0D2351C9D7363968264DCCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ magnet:?xt=urn:btih:E2AEC26D45B0C596A0D2351C9D7363968264DCCE
 magnet:?xt=urn:btih:A55F62A86152277ED24F8FE4BD447C2A6CABC73D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ ArchiCAD - это мощное приложение моделирования, 
 ```bash
 magnet:?xt=urn:btih:361F9E91A3FF80B468257BDC782D5EA446B5E5DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ HandBrake - бесплатный видео конвертер с открыты
 magnet:?xt=urn:btih:69FD1B2C99B43AC292CEFDF962AE1D0674CE2BAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Imagine - это бесплатный просмотрщик изображен�
 magnet:?xt=urn:btih:A1AEA568F3DF32060BC3E3EA9725DB177CA27F17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ PrivaZer - полезная утилита, которая поможет вам
 ```bash
 magnet:?xt=urn:btih:35D5EBAA4EC48002DDBFC3EAD255C6A9E88B4D76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ Solid Explorer - это приложение для управления фай�
 magnet:?xt=urn:btih:32853F481E6C7792BC330F51129D9139B6647CB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +596,8 @@ PicPick - приложение, объединяющее в себе возмо�
 ```bash
 magnet:?xt=urn:btih:890CDF33F2F639D64C6493CF8E9B3FEE9C4CBAD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -577,6 +623,8 @@ VidCoder - небольшая утилита, с помощью которой �
 magnet:?xt=urn:btih:89E216320E5DAB4196BD86EFCDC6B6BB08BD2AA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +649,8 @@ Beyond Compare — мощнейшая программа для сравнени
 magnet:?xt=urn:btih:6C61032E21EED836932B83C725799428E3F56D88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Artweaver - это полнофункциональный инструмент �
 ```bash
 magnet:?xt=urn:btih:00B7523E25A2B8403C744552D06F063638190EBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

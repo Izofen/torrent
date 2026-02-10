@@ -19,6 +19,8 @@ Living Legends 8: The Crystal Tear / Живые легенды 8: Хрустал
 magnet:?xt=urn:btih:4ED30EE5FF9F56D142CBED4C253BCFC914F3C062
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Fitify: Фитнес тренировки дома 1.57.0 Mod by Balatan [Ru/En]
 magnet:?xt=urn:btih:24F07C9AD5C1C7467ED76BD014C79F4531A983F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:24F07C9AD5C1C7467ED76BD014C79F4531A983F6
 ```bash
 magnet:?xt=urn:btih:621CB4A6F26CB8A03E0CEF2880E6E4CECF107BF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ Hashishian - Hashishian (2022) [MP3|320 Kbps] <Psych, Doom, Stoner, Desert>
 magnet:?xt=urn:btih:D14522CEB6C3AB61CAD70A08C1BF6D3CDF2ED831
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:D14522CEB6C3AB61CAD70A08C1BF6D3CDF2ED831
 magnet:?xt=urn:btih:1F81E87FBB0EA1232B571659F83BDAC68A876490
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ magnet:?xt=urn:btih:1F81E87FBB0EA1232B571659F83BDAC68A876490
 ```bash
 magnet:?xt=urn:btih:C0765EB27B859FF6F53EA4C66A6A13CC81E38730
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Sandra Malta - Empty Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 magnet:?xt=urn:btih:EFBA939977E2A469F4BD923E22931F14DE81FC3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Kai Strauss - Night Shift (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
 ```bash
 magnet:?xt=urn:btih:287797077B2FB3533C6475E76B847E96587B54A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Disc 3: For Unlawful Carnal Knowledge(   Читать дальше...   )Жан�
 magnet:?xt=urn:btih:5563382293A439E8328F8A83C971CB98A2FA9BA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ magnet:?xt=urn:btih:5563382293A439E8328F8A83C971CB98A2FA9BA9
 ```bash
 magnet:?xt=urn:btih:6C68A66DB18088E9DAAE0FD19EB30BBC3A01ADB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Kody West - Circles (2022) [MP3|320 Kbps] <Alternative Rock, Post-Grunge>
 magnet:?xt=urn:btih:416021650502ABB07259F3CFBC7729DFC8E868FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ magnet:?xt=urn:btih:416021650502ABB07259F3CFBC7729DFC8E868FB
 magnet:?xt=urn:btih:1EA01894D40DE4FF809239EF351DDF465F3E3DB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -325,6 +349,8 @@ magnet:?xt=urn:btih:1EA01894D40DE4FF809239EF351DDF465F3E3DB7
 ```bash
 magnet:?xt=urn:btih:C821C1C8905F9FEFCB02F5B5ACDA4A1FB21205FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:C821C1C8905F9FEFCB02F5B5ACDA4A1FB21205FF
 ```bash
 magnet:?xt=urn:btih:02F35A965C9C9843616679E01D4D3EC2ADA0F39C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -378,6 +406,8 @@ Mutter Slater Band - The Masquerade (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues,
 magnet:?xt=urn:btih:77757A98F05E3DD965D5E20041BD4CE5C256023E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +432,8 @@ magnet:?xt=urn:btih:77757A98F05E3DD965D5E20041BD4CE5C256023E
 ```bash
 magnet:?xt=urn:btih:DF4B48062F99D77694B85356147EB9F4C407BFCE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +460,8 @@ Soft Organizer - утилита для полного удаления нену�
 magnet:?xt=urn:btih:A0736B6ED0E075FE1F2DF1ED2185DD1D0CF1EE5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:A0736B6ED0E075FE1F2DF1ED2185DD1D0CF1EE5C
 ```bash
 magnet:?xt=urn:btih:93DDBAF870C1824FF5771ABE284293BAB7A2B0F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +517,8 @@ The Wicked Lo-Down - We Hot (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 magnet:?xt=urn:btih:FE1A9A5D4911CFC379814C1DCB0AD94A27F94BA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +543,8 @@ CG Cookie, Kent Trammell | Рендеринг и финишная анимаци
 ```bash
 magnet:?xt=urn:btih:385FA17DF8DB15BAF2323F15D96CEB14BB9277D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +571,8 @@ EssentialPIM - это отмеченное различными наградам
 magnet:?xt=urn:btih:746341031C2FF846B9DB3203655CEAB70CA5BF32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:746341031C2FF846B9DB3203655CEAB70CA5BF32
 ```bash
 magnet:?xt=urn:btih:2E5B6D11F8C73B296CF4D332E821FB5FE31CF175
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ Macrorit Partition Expert Unlimited Edition – предоставляет мо�
 magnet:?xt=urn:btih:6D59E1575D0FB306C6FD8A82E5A02B64BA616325
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +649,8 @@ DesktopDigitalClock - простые и красивые цифровые час
 ```bash
 magnet:?xt=urn:btih:398274222FFA6A3505E91E85D44A83E8C1B2323D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +679,8 @@ Henrik Freischlader Band - Missing Pieces (2020) [MP3|320 Kbps] <Blues>
 magnet:?xt=urn:btih:AFE2950430C9A5D4C24A82CC0E121FE8C9C8C25C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +704,8 @@ Halloween Stories 7: Written in Blood (2023) [En] (1.0) Unofficial [Collector's 
 ```bash
 magnet:?xt=urn:btih:6B5B615FEE8A90EE6D06BDE10CDB9B8444DFA48D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ WinContig - простая в использовании автономная п
 magnet:?xt=urn:btih:5328583A69A7418779F4553C6C3F065DC544AA1C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ MKVToolnix - функциональный набор инструментов д
 ```bash
 magnet:?xt=urn:btih:82F415A51976F150D757DCC793FB16669881AB59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ AIMP 5.40 Build 2653 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:80DD4323C74E057E72725E0F9E461324D13FE42F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:58828874750226C8DA38A810E8A03E5313B407F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Spotify имеет громадный каталог музыки, поддер�
 magnet:?xt=urn:btih:4669CFDC5D7DB3BD854CC76B16F09B607EA0FD2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ MiniTool Partition Wizard Technician - мощный менеджер для ра
 ```bash
 magnet:?xt=urn:btih:7DA05A347FFB3E7CDD9A1A4CDC750C71F07C43AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ AIMP – проигрыватель, включающий в себя множе
 magnet:?xt=urn:btih:5270F5D4B3522D008CF9A51B4538461B9332325D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ VueScan - программа предназначена для замены ст
 ```bash
 magnet:?xt=urn:btih:74D39A32F058058AEE31DBF5DE474F96B224FF8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ magnet:?xt=urn:btih:74D39A32F058058AEE31DBF5DE474F96B224FF8C
 magnet:?xt=urn:btih:E89679EDD991D080CC66F27DEC821D34051B77FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Duplicate Files Search & Link (Duplicate Searcher) - это приложение
 ```bash
 magnet:?xt=urn:btih:1CD8C769221365D493C1F4418D8601561C0903CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ PLECS® является инструментом для высокоскоро�
 magnet:?xt=urn:btih:287615CA26865461B9B0696C3D35963BCB7AB299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ DisplayFusion - программа для управления обоями ра
 ```bash
 magnet:?xt=urn:btih:06AE7147A819FA57B8D60D34D38C5BD6EFC0A749
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Free Download Manager - кроссплатформенный менеджер з
 magnet:?xt=urn:btih:739FD2CF20D1B35637131607B577159E19F8EF59
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ magnet:?xt=urn:btih:739FD2CF20D1B35637131607B577159E19F8EF59
 ```bash
 magnet:?xt=urn:btih:798A6D9034A9381C3E9851E8E94F19FE1D9244AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +387,8 @@ magnet:?xt=urn:btih:798A6D9034A9381C3E9851E8E94F19FE1D9244AC
 magnet:?xt=urn:btih:5322B8A3B26F9EF30E5182C54CC1BA159C5D45CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +412,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:9B084DE56D45EF63E9A816127ECA3E84DEE6A13B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +439,8 @@ PowerDirector – Video Editor v14.7.1 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:60EA5730824BAAC88104F1B1089D5841BF2F2A55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +464,8 @@ CoolUtils Total PDF Converter 6.5.0.336 RePack (& portable) by elchupacabra [Mul
 ```bash
 magnet:?xt=urn:btih:B32675373D43D5CC8105717C11F452489DDA2F1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +491,8 @@ YTDownloader – простая в использовании программа
 magnet:?xt=urn:btih:1C19D02F75AD7D0BE4CD8AA99A844F2CCF5A6F6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +516,8 @@ Magic Eraser - это революционное приложение для р�
 ```bash
 magnet:?xt=urn:btih:FD9C44ED925AA8DA61B4A1B0FE56435D7CB629EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:FD9C44ED925AA8DA61B4A1B0FE56435D7CB629EB
 magnet:?xt=urn:btih:6B5D24C2AF6EE832A9BCB81E9A3C72F50F51CAB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +568,8 @@ Glary Utilities - функциональный набор системных т�
 ```bash
 magnet:?xt=urn:btih:BD4CEE6842301E4E9F49B2F21C56EDBB9C5037D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ AIMP 5.40 Build 2652 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:50232125A9C1CE66A7967E6CA6A7A34EF2AA3DE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +620,8 @@ magnet:?xt=urn:btih:50232125A9C1CE66A7967E6CA6A7A34EF2AA3DE0
 ```bash
 magnet:?xt=urn:btih:A101B588340938E821F77C827BF8AA2E5871E67F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +648,8 @@ Kitchen Timer / Кухонный мульти-таймер v4.9.11 GP Mod by Ale
 magnet:?xt=urn:btih:91392D53FCF80AE81A015711059DC43F371EFC55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ magnet:?xt=urn:btih:91392D53FCF80AE81A015711059DC43F371EFC55
 ```bash
 magnet:?xt=urn:btih:62FDC7015C7AB4C1860B4E8339A51995A5042AFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

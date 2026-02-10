@@ -28,6 +28,8 @@ Chris Rea - Road to hell (1989) [FLAC 2.0 96/24 |tracks(VinylRip)]<Rock>
 magnet:?xt=urn:btih:347B0C39054828C5477118EB37132CD600B5FCD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -54,6 +56,8 @@ A4 Всю Ночь • All Night Long(   Читать дальше...   )Жан�
 ```bash
 magnet:?xt=urn:btih:BA387D8B0DCBC532BCA999543DC9270E9A70FED7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -82,6 +86,8 @@ magnet:?xt=urn:btih:BA387D8B0DCBC532BCA999543DC9270E9A70FED7
 magnet:?xt=urn:btih:D52753032840E59A0DF8D7F55356562BB7F392C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -108,6 +114,8 @@ Side A:
 ```bash
 magnet:?xt=urn:btih:63342A13601F279899EF74185BFEEB361ED1B49D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ magnet:?xt=urn:btih:63342A13601F279899EF74185BFEEB361ED1B49D
 magnet:?xt=urn:btih:9C03E4276109C1644BA065810D1ACE0900D64992
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +172,8 @@ magnet:?xt=urn:btih:9C03E4276109C1644BA065810D1ACE0900D64992
 ```bash
 magnet:?xt=urn:btih:73FA9FF347B4F1AAA4C072672C61DB7060B54E53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ Side A:
 magnet:?xt=urn:btih:D83DFD9D94E49714D3753916CAB247CB1FEE1133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ magnet:?xt=urn:btih:D83DFD9D94E49714D3753916CAB247CB1FEE1133
 ```bash
 magnet:?xt=urn:btih:5AEF313BB98328F32BBC3F42071466A1FC146A78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ magnet:?xt=urn:btih:5AEF313BB98328F32BBC3F42071466A1FC146A78
 magnet:?xt=urn:btih:2C52251CE9B7F099D860699B0E695E54D119DE4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +288,8 @@ A4 Стиви Уондър - Не Карай Кола, Когато Си Пил 
 ```bash
 magnet:?xt=urn:btih:C5FB4255553EA15F3134C1B9681F2C2950479B03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -304,6 +324,8 @@ James Last - With Compliments (1970) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Eas
 magnet:?xt=urn:btih:5DD2D5A6E1311620EAFA9775CF28329A2426C987
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +349,8 @@ magnet:?xt=urn:btih:5DD2D5A6E1311620EAFA9775CF28329A2426C987
 ```bash
 magnet:?xt=urn:btih:398464A479DF5841456C4B9611A73851B843E00F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -353,6 +377,8 @@ B	Синтез-Труппа Игоря Гранова -	ДастарханЖан
 ```bash
 magnet:?xt=urn:btih:FFD2A22AB7EA781B043B1A1DDD71E329E0B89FCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +407,8 @@ A4 Over And Over • Отново И Отново • И Снова, И Снов
 magnet:?xt=urn:btih:01A8DF1CAAECB5E3B0C1FD216FC1FB6ED46AE3A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +435,8 @@ magnet:?xt=urn:btih:01A8DF1CAAECB5E3B0C1FD216FC1FB6ED46AE3A8
 ```bash
 magnet:?xt=urn:btih:6BFA8DADB63DACB79693DF52E62629A3E4E7F62F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +465,8 @@ magnet:?xt=urn:btih:6BFA8DADB63DACB79693DF52E62629A3E4E7F62F
 magnet:?xt=urn:btih:83DD8E0C7BA4566AFB6AB201940DCC45AB7F3523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +493,8 @@ A4 Big Saarinen - We're An American Band(   Читать дальше...   )Жа
 ```bash
 magnet:?xt=urn:btih:CCF17B19978E02F061A45469741DBC0D06EC37C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -489,6 +523,8 @@ B1a	2. Grave(   Читать дальше...   )Жанр: ClassicalПродол�
 magnet:?xt=urn:btih:5469122371C79B871FC2A86F23F1879DF8ED662B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +551,8 @@ VA - Югославская Эстрадная Музыка (1976) [FLAC 2.0|96/
 ```bash
 magnet:?xt=urn:btih:85A02A41D513E96BF4A8D2E4BC34F831F4224D94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -543,6 +581,8 @@ A4 Hobo's Mediation(   Читать дальше...   )Жанр: Folk Rock, Coun
 magnet:?xt=urn:btih:3FBEFD497C47F9C6A5EB5304107AA3DBD4A89E56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +609,8 @@ A4. Gypsy (5:10)(   Читать дальше...   )Жанр: Hard RockПрод�
 ```bash
 magnet:?xt=urn:btih:E4BEA7B15F939916D64438753372157FB9114BC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +639,8 @@ Lana Del Rey - Norman Fucking Rockwell! (2019) [FLAC 2.0|24/192|tracks|Vinyl-Rip
 magnet:?xt=urn:btih:A8159766C9373F2150ACA16540A87A0C748EE511
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +667,8 @@ A4 Gotta Rock(   Читать дальше...   )Жанр: Hard RockПродол
 ```bash
 magnet:?xt=urn:btih:E18421F42ED375F675BE66EDD46BB02C87E3B9F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -651,6 +697,8 @@ VA - Добрые колыбельные для сладких снов (3) в �
 magnet:?xt=urn:btih:91BFB381C53A6131C9A0A4AFD1D2BCBAA6174DC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +726,8 @@ A4. Run To The Stars (4:39)(   Читать дальше...   )Производ�
 magnet:?xt=urn:btih:96B5822D464C356CDA712AF27CD41606469F8578
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -701,6 +751,8 @@ magnet:?xt=urn:btih:96B5822D464C356CDA712AF27CD41606469F8578
 ```bash
 magnet:?xt=urn:btih:308B7FD7C0169F91B5DA4FF5384A9B47ECA989B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

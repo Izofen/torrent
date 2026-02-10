@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:075D9D80907DE9B2BC38C5E91CCD55F6FE8A8266
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -53,6 +55,8 @@ Shocking Blue - Venus-The Best Of (1993) [MP3|320 кб/с]<Classic Rock>
 magnet:?xt=urn:btih:68458BF9286AF00CF7AACB08406C5296BC7F3658
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ VHS Camera Recorder v1.5.3 [En] - Съемка видео и фото в сти�
 ```bash
 magnet:?xt=urn:btih:391B50FC68556FCE71C1340817FCE800039CCE5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:391B50FC68556FCE71C1340817FCE800039CCE5D
 magnet:?xt=urn:btih:54172A17DDE538707F14F510C730A56464E708D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:54172A17DDE538707F14F510C730A56464E708D6
 ```bash
 magnet:?xt=urn:btih:FB93C370BBE27BD4E394B7B7B3862FEB6663358D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ GetWindowText это маленькая и портативная програм
 magnet:?xt=urn:btih:329A486FE998DACE361C8EA2CC1CB8308F139B04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:329A486FE998DACE361C8EA2CC1CB8308F139B04
 ```bash
 magnet:?xt=urn:btih:0E314B8FA33FB71EDEBA5AD9D3F7E5D2A262E673
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:0E314B8FA33FB71EDEBA5AD9D3F7E5D2A262E673
 magnet:?xt=urn:btih:3482A5CF5DDE59C4C36FEFE3D3A90903E735F7D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Kore wa Zombie desuka? / Уж не зомби ли это? [2011, TV, 12] BDRip 
 ```bash
 magnet:?xt=urn:btih:834BD8FB9C2BFDB9F1A41ADEE43AE8807415ABCD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:834BD8FB9C2BFDB9F1A41ADEE43AE8807415ABCD
 ```bash
 magnet:?xt=urn:btih:EB0A3E51DED7DDCD66929DAB46076E86FB13F65A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ magnet:?xt=urn:btih:EB0A3E51DED7DDCD66929DAB46076E86FB13F65A
 magnet:?xt=urn:btih:CD9BAA7804267EB9D8DF188794A8C2C8109AED57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:CD9BAA7804267EB9D8DF188794A8C2C8109AED57
 magnet:?xt=urn:btih:6FAAC7EBEFF35C4E8E1920EBD0238FDBDCD1786E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +346,8 @@ magnet:?xt=urn:btih:6FAAC7EBEFF35C4E8E1920EBD0238FDBDCD1786E
 ```bash
 magnet:?xt=urn:btih:C1798D5B46D50213D2487DE6E2611BBBC7291288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +376,8 @@ Iron Maiden - Somewhere Back In Time - The Best Of: 1980-1989 (2008) [FLAC|track
 magnet:?xt=urn:btih:68080C6A1D5E608D1AA7580EAF49CAF2CF84486E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:68080C6A1D5E608D1AA7580EAF49CAF2CF84486E
 magnet:?xt=urn:btih:0E0CEB85446B40B5AF9C62E42AFB4A219DEB179C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:0E0CEB85446B40B5AF9C62E42AFB4A219DEB179C
 ```bash
 magnet:?xt=urn:btih:5C5E10C586A36CE0F09D953E3FEF269D359EC108
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ Tears to Tiara / Слёзы Тиары / Расколотая Тиара [2009, 
 ```bash
 magnet:?xt=urn:btih:5FB8E26F18AA22CD77B8EC9F8E12BB12ECB6B635
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:5FB8E26F18AA22CD77B8EC9F8E12BB12ECB6B635
 magnet:?xt=urn:btih:C55E26FD3BFD95105BB3CD7CFF240B72875CCDD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ Beast In Black (ex-Battle Beast) - Berserker (2017) [MP3|320 Kbps] <Heavy Metal,
 magnet:?xt=urn:btih:5047AFEC040D49F18B8CE3CCB986CC437A6C660A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +541,8 @@ magnet:?xt=urn:btih:5047AFEC040D49F18B8CE3CCB986CC437A6C660A
 ```bash
 magnet:?xt=urn:btih:90E136A698934A59EE506009D14AA31A88F91BEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +577,8 @@ VA - Best of Tchaikovsky (1996) [FLAC|Lossless]<Classic>
 magnet:?xt=urn:btih:6546A4772623638A3C5483C20F530E7B21ED8713
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +606,8 @@ Nazareth - Greatest Hits (1996) [FLAC|tracks+.cue]<Hard Rock>
 magnet:?xt=urn:btih:375A9DC5190BE2E59A3A3A66C46835A99ECE0534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +632,8 @@ magnet:?xt=urn:btih:375A9DC5190BE2E59A3A3A66C46835A99ECE0534
 magnet:?xt=urn:btih:A5AD39DBABBE8167C3484DB3F5CA8D9B28835170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +657,8 @@ ON1 Photo 10 — набор мощных приложений от извест�
 ```bash
 magnet:?xt=urn:btih:DC27F2E30981B07A5015B1D9A9408A696A2A9D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +687,8 @@ VA - Дискотека 80-90 годов по - новому от Виталия
 magnet:?xt=urn:btih:EC39A778DBC06D50F10A45F526EA7708D7F6ECA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ magnet:?xt=urn:btih:EC39A778DBC06D50F10A45F526EA7708D7F6ECA9
 ```bash
 magnet:?xt=urn:btih:02F69964FC92BCCBA15575616CAE289E696FFEB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

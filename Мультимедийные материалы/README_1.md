@@ -20,6 +20,8 @@ Andy специализируется на преподавании техник
 magnet:?xt=urn:btih:916E551C506194D24C3EF66E70B7C0BCF6ABD029
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Chip (Чип) — ежемесячный журнал о компьютерно�
 magnet:?xt=urn:btih:B21181A00E2BD7FB4C8B74B2BC78D0F9CB1D9FB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ NoName | Защита флешки [2012] [EXE]
 ```bash
 magnet:?xt=urn:btih:139FC7F91C702ABFA6719EBFF1643CBE04212931
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:139FC7F91C702ABFA6719EBFF1643CBE04212931
 magnet:?xt=urn:btih:62291A93D4168A97CE37B494A5EEF15E5216F4DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ SHA-1: 2C632523A98D2C995DB074EBB0E658640FA03F86
 magnet:?xt=urn:btih:AFCA133E1E42F222F0425C784A955AACD7C78EB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -155,6 +165,8 @@ magnet:?xt=urn:btih:AFCA133E1E42F222F0425C784A955AACD7C78EB0
 magnet:?xt=urn:btih:0EFAB8B0316E5E38DBC277F7F2C81D844FEE6084
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ magnet:?xt=urn:btih:0EFAB8B0316E5E38DBC277F7F2C81D844FEE6084
 ```bash
 magnet:?xt=urn:btih:E6F0092EE4EA0867F3C4A230773666DD33A4B964
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ Stepik, Алексей Лобзов | Docs as Code: Пишем тексты ка
 magnet:?xt=urn:btih:9D087702534D6D97082DCAC536E3091AC1C21642
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +251,8 @@ magnet:?xt=urn:btih:9D087702534D6D97082DCAC536E3091AC1C21642
 magnet:?xt=urn:btih:BC621E778CCB4938AA87825DCC95BC69998915C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +278,8 @@ Stepik, Александр Шибаев | Многозадачность в Pyth
 ```bash
 magnet:?xt=urn:btih:4133BD41D7061E5A95B77D463AA97A24545BDB11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +308,8 @@ magnet:?xt=urn:btih:4133BD41D7061E5A95B77D463AA97A24545BDB11
 magnet:?xt=urn:btih:BD9721111216F02D0ABCEE896E698B87372318D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +334,8 @@ Stepik, Аватар пользователя Руслан Клуб дедов-�
 ```bash
 magnet:?xt=urn:btih:EE3BC073BD0C3099BB668B6EF54C6957E09ECAC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +364,8 @@ magnet:?xt=urn:btih:EE3BC073BD0C3099BB668B6EF54C6957E09ECAC6
 magnet:?xt=urn:btih:C7CB8D40A70E455B72659BA2CEFF6E88484F7254
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +393,8 @@ magnet:?xt=urn:btih:C7CB8D40A70E455B72659BA2CEFF6E88484F7254
 magnet:?xt=urn:btih:99F4014D1C8E72270E87D7CA6FCB7303111F29E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +418,8 @@ magnet:?xt=urn:btih:99F4014D1C8E72270E87D7CA6FCB7303111F29E2
 ```bash
 magnet:?xt=urn:btih:BD75D19401136D35378D9F0121A109875ACC95E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +445,8 @@ magnet:?xt=urn:btih:BD75D19401136D35378D9F0121A109875ACC95E2
 magnet:?xt=urn:btih:F0928E873279D623649F6FE60A88A8343F271146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +470,8 @@ magnet:?xt=urn:btih:F0928E873279D623649F6FE60A88A8343F271146
 ```bash
 magnet:?xt=urn:btih:37C037D8B8A72D072784EF5C2605DC00F17AAC58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -464,6 +498,8 @@ magnet:?xt=urn:btih:37C037D8B8A72D072784EF5C2605DC00F17AAC58
 magnet:?xt=urn:btih:FA3AD7A1EB02F666CD70291AF9D6B3986AE144BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +524,8 @@ DVD приложение к журналу "Хакер" №01 (168), 2013 [unpac
 ```bash
 magnet:?xt=urn:btih:174481250E8E488E32B7FFCD47BA721D49E3EE4E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +560,8 @@ magnet:?xt=urn:btih:174481250E8E488E32B7FFCD47BA721D49E3EE4E
 magnet:?xt=urn:btih:BE35A4602E7D69F4207AB9185C3B6E50E3EBD2CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +589,8 @@ English with Lucy | The Phrasal Verbs Challenge (2022) [unpacked] [AD] [EN]
 magnet:?xt=urn:btih:D8E705556FC20440806CC9D8E86295515F19FD16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +614,8 @@ magnet:?xt=urn:btih:D8E705556FC20440806CC9D8E86295515F19FD16
 ```bash
 magnet:?xt=urn:btih:D62EE61BDAE2AB46CDC89720BB93F87EAB892CE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +642,8 @@ Mirror Trader – это новинка, в которой представле�
 ```bash
 magnet:?xt=urn:btih:0ED00ABDC615582AC81A2A64CAC0EC06CDD034F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +672,8 @@ English with Lucy | Аудирование. Восприятие речи на �
 magnet:?xt=urn:btih:FB87E8E08F89F9FB0233EEBECB056C61D1337BA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +700,8 @@ PDF Vault содержит более 60 PDF-файлов и тестов со �
 magnet:?xt=urn:btih:7736CFE085FF566D339176F984D85C0D21A19F48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,6 +725,8 @@ Liveclasses, Дмитрий Щербаков | 3D моделирование в 
 ```bash
 magnet:?xt=urn:btih:10FB3723945E57D164684506672ACD14A60E7171
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

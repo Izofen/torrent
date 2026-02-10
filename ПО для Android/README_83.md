@@ -19,6 +19,8 @@ Material Pods: батарея AirPods v6.70 Mod by Alex.Strannik [Ru/Multi]
 magnet:?xt=urn:btih:44756AD518FA087B9FFAA1BC11686A815FA52C90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Parrot Timer / Кухонный таймер v2.11.0 Mod by Alex.Strannik [Multi
 ```bash
 magnet:?xt=urn:btih:21585C514290053E506FA3CAED22853E7A1C0EDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ MP3 Cutter - лучший инструмент для удобного и про
 magnet:?xt=urn:btih:4834681349590C3868A3126C61F8A347A201589F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Portrait Painter - является профессиональным инстр�
 ```bash
 magnet:?xt=urn:btih:AF72BD12A97313E10F41FB404E7880F3363E1F5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Artista Impresso v1.3.58 [En]
 magnet:?xt=urn:btih:7ABDC19EF6C58B060403E4FE4D695E8B1F8C72D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:7ABDC19EF6C58B060403E4FE4D695E8B1F8C72D3
 ```bash
 magnet:?xt=urn:btih:A86AC14A85B588097D9789E7AE0EA9FB88532FB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Vanced — это модифицированная версия YT, котора
 magnet:?xt=urn:btih:ADA64112AA8F02401A199E7036E5DD1057A37624
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ OTT Онлайн прямое телевидение, в котором вы н�
 ```bash
 magnet:?xt=urn:btih:82C790DA8DA379CF7EA2793CE82400F18BE952DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:82C790DA8DA379CF7EA2793CE82400F18BE952DD
 magnet:?xt=urn:btih:CB4EF97E8FAB1ABD967891A3383E51BFCFE6543F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:CB4EF97E8FAB1ABD967891A3383E51BFCFE6543F
 ```bash
 magnet:?xt=urn:btih:82FE84E8D63FF3ED1808A9E027ACFD7D0315852F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:82FE84E8D63FF3ED1808A9E027ACFD7D0315852F
 magnet:?xt=urn:btih:A605DDF7E2D0A878DD34E52572CD6DACAFFAD4C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:A605DDF7E2D0A878DD34E52572CD6DACAFFAD4C3
 ```bash
 magnet:?xt=urn:btih:CCEF4BFCF1D56A8D6A854B5239BA18CD31F83915
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ magnet:?xt=urn:btih:CCEF4BFCF1D56A8D6A854B5239BA18CD31F83915
 ```bash
 magnet:?xt=urn:btih:E7469DE856C3810E77B8DFFC5369B35019A9DE3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ magnet:?xt=urn:btih:E7469DE856C3810E77B8DFFC5369B35019A9DE3B
 magnet:?xt=urn:btih:F3DDF58905CA2BFB3C9946C5BB7CD39FB9AAA9C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -361,6 +389,8 @@ Plus Messenger - неофициальное приложение для обме
 ```bash
 magnet:?xt=urn:btih:8D750A36AC6C9044A48D3B529EA022724A3432CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ WPS Office - очень полезное, офисное приложение д
 magnet:?xt=urn:btih:6610F916375D73409828EB7F005EB812FBA82044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ magnet:?xt=urn:btih:6610F916375D73409828EB7F005EB812FBA82044
 ```bash
 magnet:?xt=urn:btih:8A40C2EDC42821484AC24DF3AB5A4EA5BC264010
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ Photo Studio — не просто приложение для редактир�
 magnet:?xt=urn:btih:C9329F7EB6EB248DACCA5D96D8D7050C66CB1F98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ Background Video Recorder Pro — это приложение, которое п
 ```bash
 magnet:?xt=urn:btih:FBF21113163878C6A10EDDCBAF6D42C185C96797
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Beat Find / Распознавание музыки v1.6.61 Mod by NURIK [Ru/Mul
 magnet:?xt=urn:btih:D986AABD5C819604FEBFCF277B9821F7304271D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ RAR компании RARLAB способен создавать RAR и ZIP и р
 magnet:?xt=urn:btih:B47A89BB2395ABE32BB42AA1C552C3FB277B9D26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ magnet:?xt=urn:btih:B47A89BB2395ABE32BB42AA1C552C3FB277B9D26
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +600,8 @@ Dr.Web Security Space Life v12.9.1 [Ru]
 magnet:?xt=urn:btih:5C84CFC0802AB82E9244C7D0AD4A50A26B59BFEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +625,8 @@ Lexilize FlashCards v4.8.5 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:CBD99B0CBEB104712F69A15B79670DDFB0C15694
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ vpnify: лучший БЕСПЛАТНЫЙ, БЕЗЛИМИТНЫЙ и высок�
 magnet:?xt=urn:btih:0BC7A413885AEB8687BA5619BF6728BCBE2AFE74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ FBReader Premium – Favorite Book Reader v3.1.5 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0B948831F53BDA7D884E7C50935F5E670C9ACE62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

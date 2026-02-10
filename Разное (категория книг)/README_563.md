@@ -1,3 +1,29 @@
+###  Публикация: 1112698   (841220) от 09.03.2017
+
+Ника Белоцерковская | Сделано в Италии. Гастрономические рецепты. Книга вторая (2013) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841220.jpg" />
+</div>
+
+
+###  Подробнее
+
+От издателя: Во второй книге серии "Белоника и Шефы" разговор снова пойдет о простых и легких рецептах. Только на этот раз речь будет с сильным итальянским акцентом. Нашими виртуальными собеседниками будут замечательные шеф-повара и их мамы, бабушки, и даже дочери - все как в большой итальянской семье. И рецепты будут очень домашние, хотя их в полной мере (   Читать дальше...   )Жанр: Европейская кухняФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92BFAE3A08609E01F8FEEC70223265B646D4C1EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112747   (841230) от 09.03.2017
 
 А.С. Пирузян (гл. ред.) | Армянская кулинария [Два издания] (1960, 1983) [PDF, DJVU]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:2B397B598357C2BB2230016B8D98C64F498DF1CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:2B397B598357C2BB2230016B8D98C64F498DF1CC
 magnet:?xt=urn:btih:FACCDD87832354A61C5E7E64B240A92A643EE702
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:FACCDD87832354A61C5E7E64B240A92A643EE702
 ```bash
 magnet:?xt=urn:btih:5E64E2F6BDFA10753C13244DAC03AC9DFABABA36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:5E64E2F6BDFA10753C13244DAC03AC9DFABABA36
 magnet:?xt=urn:btih:944AAF5FF776611FA178456097DD23809378F486
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:944AAF5FF776611FA178456097DD23809378F486
 ```bash
 magnet:?xt=urn:btih:BB109E979E690702E3D70F996D33A2B8222B41CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +180,8 @@ magnet:?xt=urn:btih:BB109E979E690702E3D70F996D33A2B8222B41CA
 magnet:?xt=urn:btih:CFBE929B80B75EC51CB92C8FAA507AE5A9C29920
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:CFBE929B80B75EC51CB92C8FAA507AE5A9C29920
 ```bash
 magnet:?xt=urn:btih:8039AED5AB4D7DE14C67BEBDC61386EEC7E186E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:8039AED5AB4D7DE14C67BEBDC61386EEC7E186E0
 magnet:?xt=urn:btih:1272EA967C9C301BF58AE92C55D0952E6E02F2EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:1272EA967C9C301BF58AE92C55D0952E6E02F2EA
 ```bash
 magnet:?xt=urn:btih:8986E4011D90B0777E41A3F33927E18FB89D77CA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:8986E4011D90B0777E41A3F33927E18FB89D77CA
 magnet:?xt=urn:btih:E88590CC43A14256B9EE6060065F4FB730584B2D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:E88590CC43A14256B9EE6060065F4FB730584B2D
 magnet:?xt=urn:btih:835B28B005C45DC1267D29292E5210838117E1BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:835B28B005C45DC1267D29292E5210838117E1BD
 ```bash
 magnet:?xt=urn:btih:2515BE27F33FB69EF3517339F7E8B5872D7DD790
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:2515BE27F33FB69EF3517339F7E8B5872D7DD790
 magnet:?xt=urn:btih:6C6217993E9C44D81E6C041F72E0DBE72E3A2E38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:6C6217993E9C44D81E6C041F72E0DBE72E3A2E38
 ```bash
 magnet:?xt=urn:btih:5E60AF505A11A0200FFFE6F5A4EB2C22C68D5061
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +419,8 @@ magnet:?xt=urn:btih:5E60AF505A11A0200FFFE6F5A4EB2C22C68D5061
 magnet:?xt=urn:btih:CE371A2F91864786B1E6B0C5F2B0E491857D0F74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +446,8 @@ magnet:?xt=urn:btih:CE371A2F91864786B1E6B0C5F2B0E491857D0F74
 ```bash
 magnet:?xt=urn:btih:F35D43DC71A3F228DDB7137FF851E4F3273176E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +475,8 @@ magnet:?xt=urn:btih:F35D43DC71A3F228DDB7137FF851E4F3273176E9
 magnet:?xt=urn:btih:6417719BBDC6001AD061355AE5CAC9C5CE34F876
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:6417719BBDC6001AD061355AE5CAC9C5CE34F876
 magnet:?xt=urn:btih:6CEE39F20F15F4EDCAA3C0263367FB90ADACF324
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +526,8 @@ magnet:?xt=urn:btih:6CEE39F20F15F4EDCAA3C0263367FB90ADACF324
 ```bash
 magnet:?xt=urn:btih:B19D450D1CB1CC0336B75867295A13C579FF526C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:B19D450D1CB1CC0336B75867295A13C579FF526C
 magnet:?xt=urn:btih:CD02133D4972B3173AB8A2A024AA55F87FAA3445
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:CD02133D4972B3173AB8A2A024AA55F87FAA3445
 ```bash
 magnet:?xt=urn:btih:1B33592D1F310AC469EEC767456F88B1B8265E7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +606,8 @@ magnet:?xt=urn:btih:1B33592D1F310AC469EEC767456F88B1B8265E7F
 magnet:?xt=urn:btih:E6A1CB74A3A069AF5CB51216C0EDA46322CD2CA1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +631,8 @@ magnet:?xt=urn:btih:E6A1CB74A3A069AF5CB51216C0EDA46322CD2CA1
 ```bash
 magnet:?xt=urn:btih:FD5704841C20C5E8D5D8094969750968B3929395
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:FD5704841C20C5E8D5D8094969750968B3929395
 magnet:?xt=urn:btih:C5E0ADBDD9252D5A9124435878738C3A127FB7D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,29 +684,7 @@ magnet:?xt=urn:btih:C5E0ADBDD9252D5A9124435878738C3A127FB7D5
 magnet:?xt=urn:btih:178B6F9A3D0D6A2000E24B19AA9E921C5BAAAE88
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379175   (842884) от 27.04.2020
-
-Дмитрий Быков | Палоло, или Как я путешествовал [сборник] (2020) [EPUB]
-
->>Разное (категория книг)
->>Публицистика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_842884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Талантливым журналистам нередко приходится много путешествовать по разным уголкам планеты, и известный российский писатель и ведущий Дмитрий Быков – не исключение. Путешествует он действительно много и со вкусом, а затем красочно, забавно и познавательно описывает свои приключения. Результатом этой работы, идущей рука об руку с отдыхом, стал публицистический сборник (   Читать дальше...   )Жанр: ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FE3E1CAF7D9A85F5A7AEB92C55C2DB8B771DB5
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

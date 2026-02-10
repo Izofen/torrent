@@ -19,6 +19,8 @@ Ladder it Up! (2024) [En] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:FBFB28B6674683741DC91B642C31B99348047CAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Astro Looter: Survivor – настало время отправится нав
 ```bash
 magnet:?xt=urn:btih:6DBCD961DD201423C4F67522F6BFF8EED56AD3B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Anger Foot - это молниеносная хардбасс-игра, где �
 magnet:?xt=urn:btih:8DA59948F6FBBE4C520F3D1D1B3F0F4CD7631AA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Apocalypse Party - 3D-рогалик с видом сверху вниз, дей
 ```bash
 magnet:?xt=urn:btih:054F543B7B889FEED22EBB2DD3E7165BE7BD1F39
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ SunnySide показывает приключения молодых ребят,
 magnet:?xt=urn:btih:D427A97B496416A46CDFA16EF5139F5618496CFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Riftbreaker (2021) [Ru/Multi] (11738015/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:415E155D085A6090BBAC2436F322BF3D13202733
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ DRAGON QUEST BUILDERS (2024) [Multi] (1.0.1/dlc) Scene Tenoke
 magnet:?xt=urn:btih:82E363602A7EF8FB85473E283DFDED67D527000D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ SAMURAI WARRIORS 4 DX - слэшер, предлагающий не только
 ```bash
 magnet:?xt=urn:btih:FEA2DD766B8B14636EF310F63F7535BB6CCCB2B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Flashback 2 отправляет геймеров в умопомрачител�
 magnet:?xt=urn:btih:659AC585107B3641E3A3BF6C73EA5FC9686FE206
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Splatter - Zombiecalypse Now – top-down шутер с интересной к�
 ```bash
 magnet:?xt=urn:btih:E09EE49FE2312767A797D36CFEB54CD8E2393021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Godrop - рогалик с увлекательным игровым проце�
 magnet:?xt=urn:btih:3D358DD4AAD8F984A7DA2D6C25B2806975C51F56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Valfaris (2019) [Ru/Multi] (1.1) License GOG [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:556BA42F7FB64A6DECB65FC97C82C56215F6C8F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Flashback 2 отправляет геймеров в умопомрачител�
 magnet:?xt=urn:btih:EF67C46595E247A72E361F0EBE0F1A5BF5A09174
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Flame Keeper (2023) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:A657393AF99A2F95DE1B08DA59D997168F230910
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Flashback 2 отправляет геймеров в умопомрачител�
 magnet:?xt=urn:btih:630159C543696A2713C6B1B62359D70349755579
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ KUNAI - динамичная смесь экшн-платформера и ме�
 ```bash
 magnet:?xt=urn:btih:EC780C2BA7F4555230E100F3062778B53EE1760A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Messy Up погружает в мир восхитительного столп�
 magnet:?xt=urn:btih:A1555CF15CEECD58347E339936AEC8886A3791C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Hunt the Night – приключение в стиле ретро, включа
 ```bash
 magnet:?xt=urn:btih:67DA7C80B86A6AD82C04D1B98B046461A9BA1C5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ CRYMACHINA - это ролевая игра, в которой механиче�
 magnet:?xt=urn:btih:A0A0053083FB3083EC44969C3F368DA1D51068E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Patti Hattu! - Cosmic Revolt (2024) [Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9A88ED5C022901535082737711085196F43FE3F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ Champion Shift – скорее берите разношерстных мифи
 magnet:?xt=urn:btih:1CA35FBF47140C5AB231C3B1788A78A0DDA150B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ JoJo's Bizarre Adventure: All-Star Battle R (2022) [Multi] (2.3.3/dlc) Scene Ten
 ```bash
 magnet:?xt=urn:btih:C6557C386DCA73FD29CCF27B9950504AD02FD7DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ UnEpic (2011) [Ru/Multi] (1.51.1) License GOG
 magnet:?xt=urn:btih:D06673B7F86CB701169DE5F5142F5AEF3906A7B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ DNF Duel является ответвлением корейской франш
 ```bash
 magnet:?xt=urn:btih:F89415011638395B8930B865EFBEFF65CE845DDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ Redout 2 – аркадный гоночный симулятор, событи�
 magnet:?xt=urn:btih:822674B1DEC040787556F77EC2C103AEEB8703B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ The Smurfs - Village Party (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:CC8570C1CF17FFB8B7E52A3478D74587D865224D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

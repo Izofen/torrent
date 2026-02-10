@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C0F4BA805B1FFC2E230094C9624FB32F1E1E813B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:C0F4BA805B1FFC2E230094C9624FB32F1E1E813B
 magnet:?xt=urn:btih:805AAC2065759D64C714EE76A1BF4876CF4C1588
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ VideoShow предлагает отличные функции редактир�
 magnet:?xt=urn:btih:79FC41E9445B154D55888A2537262E5209F74B0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ TrackChecker Mobile v2.28.4 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:7480260F11F104F035701F1E5CCAEE7D55EBB7EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Daily Yoga - это платформа, обеспечивающая мента�
 magnet:?xt=urn:btih:C6CFE977588FC6DE04824D6F2F9C309434143203
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Shazam (шазам) распознает любую песню за секунд
 ```bash
 magnet:?xt=urn:btih:B095174C24F1E0BF7A6EBB270D614814CC19DF0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ magnet:?xt=urn:btih:B095174C24F1E0BF7A6EBB270D614814CC19DF0A
 magnet:?xt=urn:btih:1EA120BAA63E50FDE90E77C7265F2B348F9D5BD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +203,8 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:1481EC5308CB8C4A6CA91752BF0BD855A98E194E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +230,8 @@ Gaia GPS (Topo Maps) v2025.5 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:2B77E6DC39DB606F75355EDD485A15B12EC27348
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ Picsart AI Photo Editor, Video v27.9.8 Final Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:0527AB024325C5F6B694ECA470E923E989FFE5BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +282,8 @@ Screenshot Touch – это удобное и простое приложени�
 magnet:?xt=urn:btih:3BDBBFC6DE67312E352BDB7A903D6DCEF4F524C7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +307,8 @@ magnet:?xt=urn:btih:3BDBBFC6DE67312E352BDB7A903D6DCEF4F524C7
 ```bash
 magnet:?xt=urn:btih:4057643DD9885C7D6B038E4D14E48417E8234951
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +334,8 @@ Photo Studio — не просто приложение для редактир�
 magnet:?xt=urn:btih:D20BF7E9623F9D4978620C96A06582965175D77E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +359,8 @@ Display Tester v5.35.5 Mod by Balatan [En]
 ```bash
 magnet:?xt=urn:btih:100C223F93CE8E7F997EAF9B1332C4F84A6651C8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ Electrical Cost / Стоимость электроэнергии v6.1.3 Mod by 
 magnet:?xt=urn:btih:2B1B496B7EEF19C0420A11F322F973353634A149
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ VivaCut для Android - это профессиональный видеоре�
 ```bash
 magnet:?xt=urn:btih:90769E40D2FD3965E2B1B12D15DEEB1019E4FCFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ VN - это видеоредактор предназначенный специ
 magnet:?xt=urn:btih:6A3AC4DE5F92EB0C0C9ABE6EF2BC315823A0C735
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ Easy Voice Recorder Pro ваш ежедневный компаньон для з
 ```bash
 magnet:?xt=urn:btih:CCC38F660C3B16920D350BEE04DB3E5947395918
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ magnet:?xt=urn:btih:CCC38F660C3B16920D350BEE04DB3E5947395918
 magnet:?xt=urn:btih:2AE5418AF5E987A295A01A7B350DB8F0CCD5C298
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +515,8 @@ Smart AudioBook Player Pro v11.2.8 (A8.0+) Mod by Kirlif' [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:BF123D12E895E826632BE522D74A6F56E5B278B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +542,8 @@ KineMaster - Video Editor & Maker v7.6.16.34690.GP Mod by Shadow_Patcher [Ru/Mul
 magnet:?xt=urn:btih:BE9775DA84966DA1A8115510479ADFA68064C4BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ magnet:?xt=urn:btih:BE9775DA84966DA1A8115510479ADFA68064C4BC
 ```bash
 magnet:?xt=urn:btih:1B08349E8D8BB411642C602A64A47D7F557182EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +595,8 @@ RESIZE ФОТО - Копир.изобр - Обрезка изображения 
 magnet:?xt=urn:btih:14FE38F4582CD99592E9839B1199D86CD6B796EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:14FE38F4582CD99592E9839B1199D86CD6B796EA
 ```bash
 magnet:?xt=urn:btih:A22D15F2DC78CE97CD2D3BC143ECAB1981B6263A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ Unit Converter Pro / Конвертер Единиц Pro v2.6.3 Mod by Balatan [
 magnet:?xt=urn:btih:2700D9D29609913745E1AC5DFAF13D4E1A4DF558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ Castbox является победителем в категории "Лучш�
 ```bash
 magnet:?xt=urn:btih:B2DFA5A8068BD361B2ED1E2F9CD18A158C2EBFB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

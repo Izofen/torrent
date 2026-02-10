@@ -1,3 +1,29 @@
+###  Публикация: 1123375   (792327) от 07.04.2017
+
+Александр Бирюков | Анатомия любви и фальшивок (2014) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_792327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга не о любви. Да-да, твои глаза не врут. Скучно и писать, и читать о любви после миллионов научных трудов и художественных произведений. Книга как раз о её противоположности - фальшивках, подделках под любовь, с помощью которых манипулятор заставляет жертву плясать под свою дудку и откачивает ресурсы, начиная от денег и заканчивая эмоциями. Именно это и есть (   Читать дальше...   )Жанр: ПсихологияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:016C27FCA94D5734614947889943D43C23AF4486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123052   (792366) от 07.04.2017
 
 Ия Имшинецкая | Не сезон. Как поднять продажи в период спада (2017) [RTF]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:640756FCB36C782381D719912E900A2DEFAFE014
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +73,8 @@ magnet:?xt=urn:btih:640756FCB36C782381D719912E900A2DEFAFE014
 magnet:?xt=urn:btih:203B16E05F46A969869AB2D9D890A83480863864
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:203B16E05F46A969869AB2D9D890A83480863864
 ```bash
 magnet:?xt=urn:btih:2597B417617F45895C1955E72DE0F373851D5B44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:2597B417617F45895C1955E72DE0F373851D5B44
 ```bash
 magnet:?xt=urn:btih:06358E4121D8CF073C14749EC542FC5F2F046681
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +155,8 @@ magnet:?xt=urn:btih:06358E4121D8CF073C14749EC542FC5F2F046681
 magnet:?xt=urn:btih:3E7325B0580B78A83D13DFB3D1E9A004A0C4850C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +182,8 @@ magnet:?xt=urn:btih:3E7325B0580B78A83D13DFB3D1E9A004A0C4850C
 magnet:?xt=urn:btih:07760DC2CFCEC45F50B2CC82A7F0D861B72B0ED9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +207,8 @@ magnet:?xt=urn:btih:07760DC2CFCEC45F50B2CC82A7F0D861B72B0ED9
 ```bash
 magnet:?xt=urn:btih:45C0DE5C8F0AE499810B0CF5F5731F98318ACB13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +235,8 @@ magnet:?xt=urn:btih:45C0DE5C8F0AE499810B0CF5F5731F98318ACB13
 magnet:?xt=urn:btih:16F97F6C08FE0866B9268605A68CB78EDA0A6B0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +261,8 @@ magnet:?xt=urn:btih:16F97F6C08FE0866B9268605A68CB78EDA0A6B0D
 ```bash
 magnet:?xt=urn:btih:67C154FA176160367C297D8412F724343E41D6F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +290,8 @@ magnet:?xt=urn:btih:67C154FA176160367C297D8412F724343E41D6F2
 magnet:?xt=urn:btih:873C615B46F950542EF6705C8D9300CE395BC6E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +317,8 @@ magnet:?xt=urn:btih:873C615B46F950542EF6705C8D9300CE395BC6E9
 ```bash
 magnet:?xt=urn:btih:2CA37651918D3A8B457949C09E4A680E5E52C16E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +346,8 @@ magnet:?xt=urn:btih:2CA37651918D3A8B457949C09E4A680E5E52C16E
 magnet:?xt=urn:btih:B489C5C8701B1A8C3C34EB371F26A0A59142DAB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +371,8 @@ magnet:?xt=urn:btih:B489C5C8701B1A8C3C34EB371F26A0A59142DAB7
 ```bash
 magnet:?xt=urn:btih:29999FCAD2A2D1857518DBBE4475160E76603F2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +400,8 @@ magnet:?xt=urn:btih:29999FCAD2A2D1857518DBBE4475160E76603F2B
 magnet:?xt=urn:btih:AA342AC48343E5C3343505076A4AA081EBC64A0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +427,8 @@ magnet:?xt=urn:btih:AA342AC48343E5C3343505076A4AA081EBC64A0A
 magnet:?xt=urn:btih:D61EB015ACC56AB7888A5EB2F7AD28C944A97421
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +452,8 @@ magnet:?xt=urn:btih:D61EB015ACC56AB7888A5EB2F7AD28C944A97421
 ```bash
 magnet:?xt=urn:btih:CA9CFEA0D5500F4DB3AB8C0BB54C2D3410BCF08C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +481,8 @@ magnet:?xt=urn:btih:CA9CFEA0D5500F4DB3AB8C0BB54C2D3410BCF08C
 magnet:?xt=urn:btih:B9934E9795CFFEC2367FC23F55394872C106108A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +506,8 @@ magnet:?xt=urn:btih:B9934E9795CFFEC2367FC23F55394872C106108A
 ```bash
 magnet:?xt=urn:btih:314E3F19F66278CF5CF860DC85A4E713C1FD5E6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +533,8 @@ magnet:?xt=urn:btih:314E3F19F66278CF5CF860DC85A4E713C1FD5E6E
 magnet:?xt=urn:btih:6A5A0E4B7616BE3A65EA6989DC3B72942EFD5260
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +559,8 @@ magnet:?xt=urn:btih:6A5A0E4B7616BE3A65EA6989DC3B72942EFD5260
 ```bash
 magnet:?xt=urn:btih:F7E45A0256D0529510D5730D0575E133FAB995FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -522,6 +588,8 @@ magnet:?xt=urn:btih:F7E45A0256D0529510D5730D0575E133FAB995FF
 magnet:?xt=urn:btih:6BFF3C282BD5881CF793D18A8791EE701A0943B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -545,6 +613,8 @@ magnet:?xt=urn:btih:6BFF3C282BD5881CF793D18A8791EE701A0943B1
 ```bash
 magnet:?xt=urn:btih:B4B5C5E747A5DF1A17F379916786E9F4EB2328FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -572,6 +642,8 @@ magnet:?xt=urn:btih:B4B5C5E747A5DF1A17F379916786E9F4EB2328FB
 magnet:?xt=urn:btih:149150C64E78A51CE71F5F34A11B2A8A1A25CEA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -595,6 +667,8 @@ magnet:?xt=urn:btih:149150C64E78A51CE71F5F34A11B2A8A1A25CEA8
 ```bash
 magnet:?xt=urn:btih:6793C62D4A9819E468E5341D4BD93A28FD24FD08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -620,29 +694,7 @@ magnet:?xt=urn:btih:6793C62D4A9819E468E5341D4BD93A28FD24FD08
 magnet:?xt=urn:btih:DB2DFBB0B9DC98875019622BE0EB5E250D791A16
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 462403   (793170) от 30.05.2020
-
-[Карты] Карты боев 1941 06-12
-
->>Разное (категория книг)
->>
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_793170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подробные военные карты боев проходивших на Северо- Западном, Центральном и Юго западном фронте в период 1941 года. Карты немецкие и русские, от Ирана до Финляндии.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:738FED38E04A596551BFAE2E56F29467871A8B2C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

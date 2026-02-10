@@ -20,6 +20,8 @@ FFmpeg — набор библиотек с открытым исходным к
 magnet:?xt=urn:btih:2923FAD64112A29F586F2620DFEC2E53CFA12FD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:2923FAD64112A29F586F2620DFEC2E53CFA12FD4
 ```bash
 magnet:?xt=urn:btih:3C1934C23C1F1F96F85FE22573B792F834B4EBE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:3C1934C23C1F1F96F85FE22573B792F834B4EBE2
 magnet:?xt=urn:btih:9299FFDA02AD0A24C17A5FDB1B2F320324788544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Casse-o-player 3.2.3 Jubilee Update Mod by TryRoom + Cassette Pack (Unpacked) [R
 ```bash
 magnet:?xt=urn:btih:11FA63D23C59B24BA83010243533284988C1F697
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ iTranslate – один из лучших переводчиков и слова
 magnet:?xt=urn:btih:5361784C48E954E59F5B4495E768E8B446446B5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ DIGI Clock - отличный способ персонализировать в
 ```bash
 magnet:?xt=urn:btih:066A338F78B4455D1023F739D770122B9B1A93C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ Circuit Calculator v5.5 [En/Ru] - Калькулятор электро-схем
 magnet:?xt=urn:btih:77C312F887E1CB8806EEBB8CD77833A8C5AD558E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ WaveEditor для Android™ — это профессиональный инс�
 magnet:?xt=urn:btih:3750D9023D97F9356C5B1B2542FD74DA13240A18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:3750D9023D97F9356C5B1B2542FD74DA13240A18
 ```bash
 magnet:?xt=urn:btih:0B44ED2C116D2AA5A162EEF496D9E48AFF430A8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:0B44ED2C116D2AA5A162EEF496D9E48AFF430A8E
 magnet:?xt=urn:btih:4358E2D66F7777D903F8F6DF58E9DA7FD1533678
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:4358E2D66F7777D903F8F6DF58E9DA7FD1533678
 magnet:?xt=urn:btih:F384DAAA222AFC5D3742893C0A5024FEFBDC3400
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +309,8 @@ MultiTimer - это простое и универсальное таймер-п
 ```bash
 magnet:?xt=urn:btih:C420AAE268912F1A915686C37033F043ED2888FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ InviZible Pro сочетает в себе сильные стороны Tor, DN
 magnet:?xt=urn:btih:D9AEB6752E4B00B5B05E889E098BB9A8C4F96707
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ LazyIPTV Deluxe v2.46 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:E6285495FA6E66FA3D868D04E49D6D578E4D3AC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Smart AudioBook Player Pro v10.0.6 Mod by Balatan, Kirlif', Alex.Strannik [Ru/Mu
 magnet:?xt=urn:btih:A717A605E04F798870C40867ADAC287501D3128A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:A717A605E04F798870C40867ADAC287501D3128A
 ```bash
 magnet:?xt=urn:btih:7CB45765FDEE269225DBD3B0D51FAA306F54A5F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ XY VPN — это абсолютно бесплатный VPN! Быстрое и
 magnet:?xt=urn:btih:80B596B38DBAB261D56725C264964FEED304E0A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ Cleaner for WhatsApp — это мощный инструмент для очи�
 ```bash
 magnet:?xt=urn:btih:D3B379B27D6413AF2184B915EB352879360C611F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ QR & Barcode Scanner Pro - очередное приложение для счи
 magnet:?xt=urn:btih:D801E9EC402693107E1572FE33D2117E2E80C41C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:D801E9EC402693107E1572FE33D2117E2E80C41C
 ```bash
 magnet:?xt=urn:btih:35E3649FE3B370C31962B3EE020D6AE38F584B87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ VPN Russia - VPN сервера в России 1.168 Mod by ANiK555 [En]
 magnet:?xt=urn:btih:EF75684D27A032F08006014750166F88651E1E8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:EF75684D27A032F08006014750166F88651E1E8C
 ```bash
 magnet:?xt=urn:btih:E7B8F62D8BC4BDDDEF8AA0C2E2028C592E631776
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ Offline Maps / Офлайн карты для путешественников v
 magnet:?xt=urn:btih:6FD19DDA9EFAE98EF8E850D03CCA35798F2E8489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ jetAudio HD Music Player Plus - мощный и стильный аудиопл�
 ```bash
 magnet:?xt=urn:btih:96E28A3212B145697B75F22CE58CB4C99AFB8E90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ Truecaller - представляет собой электронную теле
 magnet:?xt=urn:btih:3C40A7A7CEDEAAED58D6CA1D65A73B4A3753F9DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +675,8 @@ Truecaller - представляет собой электронную теле
 ```bash
 magnet:?xt=urn:btih:E79EF863C29D9864C38154ED66608D1437DA437A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

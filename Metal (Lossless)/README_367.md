@@ -1,3 +1,73 @@
+###  Публикация: 863129   (927576) от 25.01.2015
+
+Air Raid - Point Of Impact (2014) Japanese Edition [FLAC|Lossless]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Bound to Destroy 03:51
+02. Madness 04:22
+03. Victim of the Night 05:07
+04. Wildfire 03:26
+05. Flying Fortress 03:02
+06. Vengeance 04:34
+07. The Fire Within 05:01
+08. We Got the Force 05:31
+* 09. Soldiers of the Dark (Insane cover) 03:59
+(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0294D7EDECF08BA78731169B28DA929F8A23AD3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 863102   (927583) от 25.01.2015
+
+Kaledon - Antillius: The King Of The Light (2014) [FLAC|Lossless]<Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. In Aeternum [01:22]
+02. The Calm Before The Storm [03:45]
+03. Friends Will Be Enemies [06:17]
+04. Elisabeth [05:51]
+05. New Glory For The Kingdom (bonus track) [04:24]
+06. The Party [04:24]
+07. The Evil Conquest (bonus track) [05:50]
+08. Light After Darkness [06:38]
+09. The Angry Vengeance [05:14]
+10. My Will [05:31](   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:091F07DAB8E31D30102F360A509627C270B905C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094872   (927763) от 19.01.2017
 
 Grave Digger - Healed By Metal (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
@@ -21,6 +91,8 @@ Grave Digger - Healed By Metal (2017) Japanese Edition [FLAC|Lossless|image + .c
 ```bash
 magnet:?xt=urn:btih:FD99BE11C2754F5044370D5CABE2B96B683461FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -55,6 +127,8 @@ Apocalyptica - Reflections (2003) [FLAC|Lossless]<Symphonic Metal>
 magnet:?xt=urn:btih:E13050EEAFC6E4D07DA4AC1B6863A3F1AEDA0697
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -88,6 +162,8 @@ Ektomorf - Retribution (2014) Digipak Edition [FLAC|Lossless]<Groove / Nu Metal>
 magnet:?xt=urn:btih:7FF57F3CFD30099A39B3AC7D3626F47095DEA794
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +191,8 @@ U.D.O. - Decadent (2015) Limited Edition [FLAC|Lossless]<Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:E9653816899C080115058D5632D1AA4A88AEC256
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -149,6 +227,8 @@ Arwen - Memories Of A Dream (2002) [FLAC|Lossless]<Symphonic Power Metal>
 magnet:?xt=urn:btih:895B71339639BF0EB8448C151D8D2BDB4C7BF128
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +255,8 @@ Allen/Olzon - амбициозный проект, где звучат голо�
 ```bash
 magnet:?xt=urn:btih:6DBEE23DF465BC7787AEF77F7A9B2BFD8A064D0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +285,8 @@ Spell Forest - Lucifer Rex (2005) [APE|Lossless|image + .cue] <Black Metal>
 magnet:?xt=urn:btih:88AF27BC2B4FB5EA53C5820EB3F4D6788ED685FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +313,8 @@ Kataxu - Hunger Of Elements (2005) [APE|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:18E5183EE6583518DB77FBEC9176BAC5DA28F2ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -257,6 +343,8 @@ Do Or Die - Crows (2015) [FLAC|tracks|WEB-DL]<Groove Metal, Hardcore, Thrash Met
 magnet:?xt=urn:btih:768B8ABE4F13469AE70B7B0D3ACC0041878E5EAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +371,8 @@ U.D.O. - Celebrator (Rare Tracks) (2012) 2CD, 2012, AFM Records [FLAC|Lossless|i
 ```bash
 magnet:?xt=urn:btih:55E2563AAEAF8B1D04FB3CC3EFC98FDAFE5B06E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +407,8 @@ Saint Vitus - Live (1990) [WavPack|Lossless]<Heavy Metal/Doom Metal>
 magnet:?xt=urn:btih:FA3C9ED15C478E614F4393ACE276EB094D5A8A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +441,8 @@ Evertale - Of Dragons And Elves (2013) [WavPack|Lossless]<Power Metal>
 ```bash
 magnet:?xt=urn:btih:2CC00A1CAD57747944EBB3259DE927189FE0344A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -383,6 +477,8 @@ Storm Rider(   Читать дальше...   )Жанр: Symphonic Metal/Gothic 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +505,8 @@ Masi - Downtown Dreamers (1988) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:9CC643BC2FD12DEDA7DC2297C7EDF63861BC53FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +535,8 @@ Stalino - Conflict (2010) EP [FLAC|Lossless|tracks + .cue] <Death Metal>
 magnet:?xt=urn:btih:804FD7B84BEDB91DAD1CDB9FB9E910FA7D16A484
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +563,8 @@ Lancer - Mastery (2017) Limited Edition [FLAC|Lossless|image + .cue] <Power, Spe
 ```bash
 magnet:?xt=urn:btih:DD8DE0D8132C3F40EFCA4A47203ED4C88026F374
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +593,8 @@ Iceland - Iceland (1994) [FLAC|Lossless|image + .cue] <Thrash Metal>
 magnet:?xt=urn:btih:C9FFCFDAFCC0F067EEE0271B002CEEEEF1935FDA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +621,8 @@ Panopticon - Panopticon (2008) [FLAC|Lossless|image + .cue] <Black Metal>
 ```bash
 magnet:?xt=urn:btih:E24BFD24603B71AEA299DAA533DA07193C22FFDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +651,8 @@ Tartaros - The Red Jewel (1999) [FLAC|Lossless|image + .cue] <Symphonic Black Me
 magnet:?xt=urn:btih:F43799E2D7B4D64E3289EC08E1D7CBCE88E156D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +680,8 @@ Baldrs Draumar - Aldgillissoan (2015) [FLAC|Lossless|image + .cue] <Folk, Viking
 magnet:?xt=urn:btih:01D49948D2FA61DA5F9B1D1448202032EAF44821
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +708,8 @@ Mitochondrion - Parasignosis (2011) [APE|Lossless|image + .cue] <Black Metal, De
 ```bash
 magnet:?xt=urn:btih:5545D9670EF6519FDC8226A8257834CC5903C1BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -632,6 +744,8 @@ Accept - Classics, Rocks 'n' Ballads (2000) Compilation [FLAC|Lossless]<Heavy Me
 magnet:?xt=urn:btih:02F9D5797C37A761FF3C821FE3F0A0283C61B93D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -665,6 +779,8 @@ Ring Of Fire - Battle Of Leningrad (2014) [FLAC|Lossless]<Progressive, Power Met
 magnet:?xt=urn:btih:19BB9BBCEC844A4F3E4CAFEAACDA13A1C16FD09C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -693,70 +809,7 @@ Eisbrecher - Schock (2015) [FLAC|Lossless]<NDH / Gothic Metal / Industrial Metal
 magnet:?xt=urn:btih:4C1CBE6EF2055FDCB37AD3202561F5B8C90A873A
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 861879   (931771) от 22.01.2015
-
-W.A.S.P. - First Blood... Last Cuts (1993) Japan [FLAC|Lossless]<Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01. Animal (Fuck Like A Beast) [03:07]
-02. L.O.V.E. Machine (Remix) [03:54]
-03. I Wanna Be Somebody (Remix) [03:36]
-04. On Your Knees [03:48]
-05. Blind In Texas (Remix) [04:23]
-06. Wild Child (Remix) [05:10]
-07. I Don't Need No Doctor (Remix) [03:28]
-08. The Real Me [03:21]
-09. The Headless Children [05:48]
-10. Mean Man [04:53](   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 01:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C0AC81FD82FBEAF74BE71A3C13E3C72C05CF694
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 629374   (931874) от 13.03.2013
-
-In Vain - Ænigma (2013) Scene [FLAC|Lossless]<Melodic Black, Progressive Death>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="Повторная ошибка скачивания" />
-</div>
-
-
-###  Подробнее
-
-01 Against The Grain 07:04
-02 Image Of Time 05:37]
-03 Southern Shores 01:59
-04 Hymne Til Havet 05:03
-05 Culmination Of The Enigma 08:23
-06 Times Of Yore 07:17
-07 Rise Against 05:52
-08 To The Core 06:26
-09 Floating On The Murmuring Tide 09:14Жанр: Melodic Black, Progressive DeathПродолжительность: 00:57:01
-
-## Скачать торент
-```bash
-нет
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

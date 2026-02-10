@@ -20,6 +20,8 @@ Shrink Rooms (2025) [Ru/Multi] (1.2.3) Repack Let'sРlay
 magnet:?xt=urn:btih:7B6C8689B890EC91B16E1AF91ED79604931F9090
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Monument Valley 3 (2025) [Ru/Multi] (1.3.19596) Repack FitGirl [Game & Soundtrac
 ```bash
 magnet:?xt=urn:btih:49FA68B1E274E9340F2B6F11BE87CD4AAAAA5338
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Builder's Journey - это лирическая головоломка, кото
 magnet:?xt=urn:btih:B1E8BA6661160891564D369BDCF1714349C79E5C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ Sticky Business (2023) [Multi] (2025.159a/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:60F74BDE77B2A9C14D00808D461C2587056AF259
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ Spacechem (2011) [Ru/Multi] (1016hf) License GOG
 magnet:?xt=urn:btih:0250D0C00F2A5DCF2CCD3BBFD447EFE70EC344C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ Contraption Maker - головоломка, опирающаяся на зако
 ```bash
 magnet:?xt=urn:btih:338AFAD47A97EE4EC3B5D704535273CF4D153E1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Wilmot Works It Out - это игра-головоломка, приглашаю
 magnet:?xt=urn:btih:F7D1239A79E55D70414FAA1F6B8B4C3F9850659C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ Tetris Forever посвящён сорокалетию не имеющей се�
 ```bash
 magnet:?xt=urn:btih:64610FDDBBCC2540DC869AE5610394B467869B55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ Shotgun King: The Final Checkmate представляет собой альте
 magnet:?xt=urn:btih:ECAD9522827804ABD99AB9612543E7FCA560FA7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ Trans Neuronica - это головоломка, в которой традиц�
 ```bash
 magnet:?xt=urn:btih:BA048E0BB6BA2F5C26641E7131E48D155BDDE3E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Chess Assistant - это инструмент управления для орг
 magnet:?xt=urn:btih:D63E91DA9ED9F5798623DDEFA799909465E248D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Chess King - это идеальный инструмент для любого 
 ```bash
 magnet:?xt=urn:btih:F6015DEC68C1B2FA1BE9F4A4EFD85BA89E1D1B05
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Shredder 13 + DeepShredder 13 (2016) [Multi] (13) License
 magnet:?xt=urn:btih:B63DE4C1DBE18743167948F4EAF6120AFE4B2EC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ inbento (2019) [Ru/Multi] (2.51) License GOG
 ```bash
 magnet:?xt=urn:btih:8F8966ADD524F703BE31244C29B279DBB37192E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ Golf Peaks – это не симулятор гольфа, а игра-голо
 magnet:?xt=urn:btih:A9D33F6C20873ECA85C0DE4A1E84A194D109B6B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ Wilmot's Warehouse – довольно сложная игра-головоло
 ```bash
 magnet:?xt=urn:btih:FD4CE7EC35ECC1E18363570FA8087C6D9F6B3D58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ ChessBase - это персональная, автономная програм
 magnet:?xt=urn:btih:276D7252D83102B8D6117C1B52DC9A22C70D019D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ Chess King - это идеальный инструмент для любого 
 ```bash
 magnet:?xt=urn:btih:A8761A5353925480B554657303CCBB988EA62928
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ Fritz – одна из наиболее известных шахматных �
 magnet:?xt=urn:btih:8EC7D4A8309189B28D4C9F39F41A73824A392025
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ Tetris Forever посвящён сорокалетию не имеющей се�
 ```bash
 magnet:?xt=urn:btih:420867558D58BEB2728F1741CDF0BB4276AB365F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ A Tiny Sticker Tale (2023) [Multi] (1.0) License GOG
 magnet:?xt=urn:btih:C64DD588D6E960CFDB6C12D3ECEE7BFDE35098F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ To the Stars (2024) [Multi] (1.2.53) License GOG
 ```bash
 magnet:?xt=urn:btih:1E8A8341A218EC4957E4E4963CECBF7E645E0383
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ Kanji Legends - казуальная обучающая игра, которая
 magnet:?xt=urn:btih:B98D172082D69C9D48941838D99109F9F7BC4332
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ LightRay - это логическая игра-головоломка с вид
 ```bash
 magnet:?xt=urn:btih:055C8A0ABABCCC3985C2051159BE3E62C68CB7A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ LightRay - это логическая игра-головоломка с вид
 magnet:?xt=urn:btih:C5C4321F1A47DEBDB59D34182B5F63E3AADDB693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ Meowsterpiece Museum - игра со скрытыми объектами, где
 ```bash
 magnet:?xt=urn:btih:3BAC712856F0C3A48A1B1AA8FAFB18EA473094E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

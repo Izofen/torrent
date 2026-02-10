@@ -1,57 +1,3 @@
-###  Публикация: 1581047   (328133) от 04.10.2022
-
-Realm Drifter - Realm Drifter (2022) [FLAC|Lossless|WEB-DL|tracks] <Psych, Stoner, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire for Wolves
-02. With No Name
-03. Feeding Shadows
-04. Sound of an Owl(   Читать дальше...   )Жанр: Psych, Stoner, DoomПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55A3D89F511D35D3E12108094B5382BC1648707F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581075   (328134) от 04.10.2022
-
-Absent Sunday - 2 Albums (2018-2022) [MP3|320 Kbps] <Dark Cabaret , Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_328134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another [00:04:16]
-02. Lucifer [00:03:21]
-03. Exorcism [00:03:31]
-04. Swear [00:04:18](   Читать дальше...   )Жанр: Dark Cabaret , Female VocalsПродолжительность: 2 CD, 01:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13AD7CC7124C47E58B9FFCAD760C6049C9A042CE
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1581253   (328135) от 04.10.2022
 
 CWT - XX YEARS OF FAIR PLAY (2022) [MP3|320 Kbps] <Punk Rock>
@@ -75,6 +21,8 @@ CWT - XX YEARS OF FAIR PLAY (2022) [MP3|320 Kbps] <Punk Rock>
 ```bash
 magnet:?xt=urn:btih:19297B44B2AADCA5BD31FB57F92A7A221B0F794E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +51,8 @@ The Tirith - 2 Albums (2015-2019) [FLAC|Lossless|WEB-DL|tracks] <Crossover Prog,
 magnet:?xt=urn:btih:F4D3EC21BC2BB483E1BBB9118E7149EA13166941
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +80,8 @@ SMAZKA - 2 Albums (2021-2022) [MP3|320 Kbps] <Punk Rapcore>
 magnet:?xt=urn:btih:4C5CF984E17CFECB762D04E3BAAD6660D5ED54B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +105,8 @@ Windows Repair - инструмент все-в-одном для ремонта
 ```bash
 magnet:?xt=urn:btih:ACEC415FCF57ECFDAB8532DDCD76070799A1B0C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -178,6 +132,8 @@ magnet:?xt=urn:btih:ACEC415FCF57ECFDAB8532DDCD76070799A1B0C3
 magnet:?xt=urn:btih:3F619D7F6CE66D371FA542FC478DFA5BDAAFEE0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -202,6 +158,8 @@ Resident Evil 6 (2012) [Xbox360] [Region Free] [FreeBoot] [Unofficial] [Ru] | R.
 magnet:?xt=urn:btih:9B2A001AA0D063880CE2053310BB4A7F9F834329
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -225,6 +183,8 @@ magnet:?xt=urn:btih:9B2A001AA0D063880CE2053310BB4A7F9F834329
 ```bash
 magnet:?xt=urn:btih:E4B69FBB87FDD8E798A6B5EA5A59F96B4813B74B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -251,6 +211,8 @@ magnet:?xt=urn:btih:E4B69FBB87FDD8E798A6B5EA5A59F96B4813B74B
 magnet:?xt=urn:btih:2712D44951E23E4FC985F667ACCAB037A108C8DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +236,8 @@ Monstrum (2015) [En] (1.3) SteamRip Let'sРlay
 ```bash
 magnet:?xt=urn:btih:B1334F2A68098BA22F112E4715B227A846D2F3DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +263,8 @@ magnet:?xt=urn:btih:B1334F2A68098BA22F112E4715B227A846D2F3DC
 magnet:?xt=urn:btih:BE8A6B8625155BF226E08D16692625C082353EF1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -322,6 +288,8 @@ magnet:?xt=urn:btih:BE8A6B8625155BF226E08D16692625C082353EF1
 ```bash
 magnet:?xt=urn:btih:6B425F9E88B559D2A292C2D8A6136DA5FA2292D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +318,8 @@ VA - Top 30 - Золото Шансона (2015) [MP3|320 кб/с]<Шансон,
 magnet:?xt=urn:btih:95853FC299C2B53DF60ECA0AC28D65B1B3F83564
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +344,8 @@ Auto Power-on & Shut-down - программа для автоматическо
 magnet:?xt=urn:btih:958DCB7C219D565E9A39B50C253EDDA0E7A8FAAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +369,8 @@ magnet:?xt=urn:btih:958DCB7C219D565E9A39B50C253EDDA0E7A8FAAC
 ```bash
 magnet:?xt=urn:btih:CB433901B69567FA6B0FFBB3028C2839C9A10BF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +398,8 @@ magnet:?xt=urn:btih:CB433901B69567FA6B0FFBB3028C2839C9A10BF1
 magnet:?xt=urn:btih:2198B2C3373FAB9D0B5EA87D862D77D369F84C8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -447,6 +423,8 @@ magnet:?xt=urn:btih:2198B2C3373FAB9D0B5EA87D862D77D369F84C8E
 ```bash
 magnet:?xt=urn:btih:90C60253A88B367B398FD267848378A86B50AB9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +450,8 @@ Opera 33.0.1990.115 Stable [Multi/Ru]
 magnet:?xt=urn:btih:94C2C71D2E5C794661A98F415B07F786636B2DCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -496,6 +476,8 @@ Remote Desktop Manager Enterprise – это приложение для кон�
 magnet:?xt=urn:btih:AEB6C8B88B5D5963D1BCBE73CAA4BB8FA476C2C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -519,6 +501,8 @@ magnet:?xt=urn:btih:AEB6C8B88B5D5963D1BCBE73CAA4BB8FA476C2C4
 ```bash
 magnet:?xt=urn:btih:371FA7E9F09ACFBF31531A2FCA75D88A5D8C30FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +529,8 @@ magnet:?xt=urn:btih:371FA7E9F09ACFBF31531A2FCA75D88A5D8C30FA
 magnet:?xt=urn:btih:235D03510C9D414DADB64727648B7F48150BEB09
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +554,8 @@ magnet:?xt=urn:btih:235D03510C9D414DADB64727648B7F48150BEB09
 ```bash
 magnet:?xt=urn:btih:061A3B5722ADC04601D30941CE8D30DA6F60AE84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +581,8 @@ magnet:?xt=urn:btih:061A3B5722ADC04601D30941CE8D30DA6F60AE84
 magnet:?xt=urn:btih:1105A2EA60379C1A9D4D721054B7399FC09FA047
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +607,8 @@ magnet:?xt=urn:btih:1105A2EA60379C1A9D4D721054B7399FC09FA047
 magnet:?xt=urn:btih:C518D49DFE22BBD55146CEC398E54835992E8741
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +632,63 @@ VA - House Vip (16.11.10) (2010) [MP3|320 kbps]<Electro House>
 ```bash
 magnet:?xt=urn:btih:39165659CCFF7ACB0171ACD85F4DC84C7EC2B070
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 842205   (328179) от 18.11.2014
+
+Гоша Куценко - Музыка (2014) [MP3|320 кб/с]<Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Музыка
+ 02. Танцы
+ 03. Голая
+ 04. Береты(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79ABBBC47F4D08D32107DDBD88A3BDA0489BB810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957103   (328195) от 16.11.2015
+
+PDF Eraser Pro 1.4.0 DC 19.08.15 [Ru/En]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_328195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для удаления текста, изображений, логотипов и других объектов из PDF документов. Поможет удалить ненужные страницы из PDF файла, стереть нежелательный текст и изображения или добавить свое содержимое в документ. Кроме удаления и вставки содержимого поддерживается поворот страниц документов PDF.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36FD03919047BD3B068F3EA979F210513B5C93FE
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

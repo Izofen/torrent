@@ -1,3 +1,31 @@
+###  Публикация: 1508162   (797905) от 07.11.2021
+
+Дем Михайлов | Инфериор (Книга 4). Инфер 4 (2021) [MP3, Владимир Хлопов]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_797905.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый цикл писателя «Инфериор» – прямое продолжение цикла «Низший».
+
+Оди оказался на поверхности планеты. Искусственный мир, созданный для спасения Земли от катастрофы, остался за спиной, хотя ужасы его не изгладились из памяти героя. Но мир, куда он попал теперь, не менее кошмарен. Оди вновь приходится идти напролом, не щадя врагов, и доказывать окружающим, что (   Читать дальше...   )Жанр: Боевая фантастика, героическая фантастика, LitRPGПродолжительность: 10:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2844903C5D0555F75314270C7317773F917C52D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508275   (797927) от 07.11.2021
 
 Вернор Виндж | Сквозь время (книга 01). Война с «Миром» (2021) [MP3, Сергей Оробчук]
@@ -19,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:1CE78FC556D5519456ED9B3EC7F3E9716A165824
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +74,8 @@ magnet:?xt=urn:btih:1CE78FC556D5519456ED9B3EC7F3E9716A165824
 magnet:?xt=urn:btih:4FBEB3CD9271856827DF26C9C50C814CF1B4DA72
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +100,8 @@ magnet:?xt=urn:btih:4FBEB3CD9271856827DF26C9C50C814CF1B4DA72
 magnet:?xt=urn:btih:6A6F2075A01820817B72A38E813E12687250CCBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +125,8 @@ magnet:?xt=urn:btih:6A6F2075A01820817B72A38E813E12687250CCBE
 ```bash
 magnet:?xt=urn:btih:27B3C3031AD57F1E9A9EE4F1160529254FB4152F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +155,8 @@ magnet:?xt=urn:btih:27B3C3031AD57F1E9A9EE4F1160529254FB4152F
 magnet:?xt=urn:btih:EB74956BBC664BF93BF1CBC3324B745D05B0029F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -143,6 +181,8 @@ magnet:?xt=urn:btih:EB74956BBC664BF93BF1CBC3324B745D05B0029F
 magnet:?xt=urn:btih:490A40C90EB4088165C1A90539479CB33AB279B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -166,6 +206,8 @@ magnet:?xt=urn:btih:490A40C90EB4088165C1A90539479CB33AB279B7
 ```bash
 magnet:?xt=urn:btih:E75B97EC3A4A2BDE93DEC68BC77170C52802649F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +234,8 @@ magnet:?xt=urn:btih:E75B97EC3A4A2BDE93DEC68BC77170C52802649F
 magnet:?xt=urn:btih:24D0028E83079FDC42D8F8D65B9E61893075770F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +259,8 @@ magnet:?xt=urn:btih:24D0028E83079FDC42D8F8D65B9E61893075770F
 ```bash
 magnet:?xt=urn:btih:3343EBD0165BFE0E45A7FD1F3553847BB62CF25F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +286,8 @@ magnet:?xt=urn:btih:3343EBD0165BFE0E45A7FD1F3553847BB62CF25F
 magnet:?xt=urn:btih:041A731B5CE9E380DC6D4FC8EE3342DD9B73F5E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +311,8 @@ magnet:?xt=urn:btih:041A731B5CE9E380DC6D4FC8EE3342DD9B73F5E8
 ```bash
 magnet:?xt=urn:btih:382CB5129D25453B5E481407EC8F455E4F22C295
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +338,8 @@ magnet:?xt=urn:btih:382CB5129D25453B5E481407EC8F455E4F22C295
 magnet:?xt=urn:btih:7C737D4A73E5576C0DD67830668A4F7B96FDBB01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +363,8 @@ magnet:?xt=urn:btih:7C737D4A73E5576C0DD67830668A4F7B96FDBB01
 ```bash
 magnet:?xt=urn:btih:4A4A916577337965A7CC75ACEAFA8E14B73E26E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +390,8 @@ magnet:?xt=urn:btih:4A4A916577337965A7CC75ACEAFA8E14B73E26E7
 magnet:?xt=urn:btih:7FED08698257715E26E26A9391264D4FD80E2C80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +415,8 @@ magnet:?xt=urn:btih:7FED08698257715E26E26A9391264D4FD80E2C80
 ```bash
 magnet:?xt=urn:btih:3D79527AB00BDBE88DB5EECB7E4EEA69873E06E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +442,8 @@ magnet:?xt=urn:btih:3D79527AB00BDBE88DB5EECB7E4EEA69873E06E7
 magnet:?xt=urn:btih:C28598642A519869AF86D54C7299A91850EAC3DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +467,8 @@ magnet:?xt=urn:btih:C28598642A519869AF86D54C7299A91850EAC3DA
 ```bash
 magnet:?xt=urn:btih:9F39ACC1706FEE0D8D818CF465DA37DA02DBCD66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +494,8 @@ magnet:?xt=urn:btih:9F39ACC1706FEE0D8D818CF465DA37DA02DBCD66
 magnet:?xt=urn:btih:76E7730C87AE3337E0277543A9F56A65DF140AEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +519,8 @@ magnet:?xt=urn:btih:76E7730C87AE3337E0277543A9F56A65DF140AEF
 ```bash
 magnet:?xt=urn:btih:4C86FEB944E3D014C5B47898D724D472B3C043AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +546,8 @@ magnet:?xt=urn:btih:4C86FEB944E3D014C5B47898D724D472B3C043AE
 magnet:?xt=urn:btih:AF4C5B9F413236A10FF0B75F6C4FA56855FEFCD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +571,8 @@ magnet:?xt=urn:btih:AF4C5B9F413236A10FF0B75F6C4FA56855FEFCD1
 ```bash
 magnet:?xt=urn:btih:A58CA3619A2225376B601E1435E5BE9A5C7D0026
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +598,8 @@ magnet:?xt=urn:btih:A58CA3619A2225376B601E1435E5BE9A5C7D0026
 magnet:?xt=urn:btih:1FA61BB351F2DFA85EE8B3244A094B6A5FE77746
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +623,8 @@ magnet:?xt=urn:btih:1FA61BB351F2DFA85EE8B3244A094B6A5FE77746
 ```bash
 magnet:?xt=urn:btih:CCD64BD11B6EDF396FF29854814FDC6AB0D416C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +650,8 @@ magnet:?xt=urn:btih:CCD64BD11B6EDF396FF29854814FDC6AB0D416C0
 magnet:?xt=urn:btih:57D595F556A702C27625A770F46597F7589D1A03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,32 +676,7 @@ magnet:?xt=urn:btih:57D595F556A702C27625A770F46597F7589D1A03
 magnet:?xt=urn:btih:D9F66CEC19FD8785AA2EF2399D764B6FFEA81DFE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121769   (799618) от 03.04.2017
-
-Дэн Абнетт и др. | Легенды Ереси (сборник) (2013) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_799618.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легенды Ереси — вошедшие в сборник рассказы поведают несколько историй, которые расширят знания читателей о вселенной WH40K.
-
-Первая история расскажет об Адептус Кустодес — личных телохранителях Императора
-Вторая история расскажет о 13й роте Легиона Космических Волков(   Читать дальше...   )Жанр: ФантастикаПродолжительность: 12:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB8A762D45343C9C6DDE78A038C93BAF7EB5A5DC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

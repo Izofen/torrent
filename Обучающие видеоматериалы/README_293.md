@@ -21,6 +21,8 @@ Rohan Dalvi | Floating islands of Houdini 1-3 Parts (2014) PCRec [En, Ru]
 magnet:?xt=urn:btih:C5574195FC3A759BFFEC05947C778B1F4E6387F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Broadcast Design School, Юрий Довганюк | Broadcast Design School + P
 ```bash
 magnet:?xt=urn:btih:BFC1ABD8C9F7CB920918F90B941C3752C527E2C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Udemy, Центр digital-профессий ITtensive | Машинное обу
 ```bash
 magnet:?xt=urn:btih:0EE831C0C3191886F17A9C2290D403960C46C44F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ magnet:?xt=urn:btih:0EE831C0C3191886F17A9C2290D403960C46C44F
 magnet:?xt=urn:btih:4DE1A6FAD5B5C6658FF81C7AD00F7C62EA328FDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:4DE1A6FAD5B5C6658FF81C7AD00F7C62EA328FDE
 magnet:?xt=urn:btih:9B6606CAB8122C9F93F09E35F8B3BB62378B859C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Skillshare, Andrei Dumitrescu | Узнай Docker с нуля / Learn Docker Fro
 ```bash
 magnet:?xt=urn:btih:0738E946748D2A2B819CDF2155EFD89A7857CD68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ Tyler Bay | Houdini For the New Artist I (2018) PCRec
 magnet:?xt=urn:btih:3F5998123A573E206F5FF84418CB6C503D924407
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ Spencer Lueders | Introduction to FX using Houdini (2013) PCRec [En, Ru]
 magnet:?xt=urn:btih:6C5AE05E9D4672CD0C8D918146550DD68E757299
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ cmiVFX только что выпустила блестящее передов�
 ```bash
 magnet:?xt=urn:btih:5643FF4635024984EB539579513692DC3362B0B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ Polina Washington | Видение (2020) PCRec
 magnet:?xt=urn:btih:7129F35DC9B2697AEEAEF95AB0265BFB85333375
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:7129F35DC9B2697AEEAEF95AB0265BFB85333375
 ```bash
 magnet:?xt=urn:btih:26E71817FAB66A44C5C7029B27A13C8D6749F73B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +319,8 @@ Daniel Danielsson | The Process of Motion (2020) PCRec [En]
 magnet:?xt=urn:btih:2B30E550740C3EB66F5D90EFD557D70F7D16FDDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +344,8 @@ Stormy Solis | All Heart Access Online Workshop - Winter [En] (2020) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:44368230D8EC34DDBC2FE06C40C9B684A420C1E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ magnet:?xt=urn:btih:44368230D8EC34DDBC2FE06C40C9B684A420C1E5
 magnet:?xt=urn:btih:3F172B1222045EEFD56CFA032E09FF738DA69FB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:3F172B1222045EEFD56CFA032E09FF738DA69FB2
 magnet:?xt=urn:btih:9B05930A4A0053E34D6913AD16FE05B1D8EE0EA2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ Udemy, Andrei Neagoie и др. | Complete Machine Learning & Data Science Bootca
 ```bash
 magnet:?xt=urn:btih:370DDEA00C67A6CF4D470BF4F5C2CA05F71CA201
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:370DDEA00C67A6CF4D470BF4F5C2CA05F71CA201
 magnet:?xt=urn:btih:27345B29F407AAD17ADDD4AD672986AA18C7034C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:27345B29F407AAD17ADDD4AD672986AA18C7034C
 ```bash
 magnet:?xt=urn:btih:9DBB8AB23FC4F3301FB3DBF94CFC492504536C3F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -472,6 +508,8 @@ magnet:?xt=urn:btih:9DBB8AB23FC4F3301FB3DBF94CFC492504536C3F
 ```bash
 magnet:?xt=urn:btih:F7368E0615927B284C1E4FA1D1629216093E8593
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:F7368E0615927B284C1E4FA1D1629216093E8593
 magnet:?xt=urn:btih:DBC557028DF0D0AE9FFF962AD91F03F1A646CCC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ Lena Mint | Последняя распродажа пакета из 10 веб�
 magnet:?xt=urn:btih:D52828FC065C3FD7C06D6E89A19477120FD8CC56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +593,8 @@ Pablo Munoz Gomez | Booleans In ZBrush 4R8 (2019) PCRec
 ```bash
 magnet:?xt=urn:btih:E25141583FD9642356D26834B5EDD2EA07F08334
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:E25141583FD9642356D26834B5EDD2EA07F08334
 magnet:?xt=urn:btih:859398D95C5645B0467089EE797DCE83CD83EBAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ Daniel Thiger | Creating Roof Tiles in Substance Designer (2019) PCRec [En, Ru]
 magnet:?xt=urn:btih:903D1D8BD5536ECEA9825E7058D2298E171E4869
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +676,8 @@ David Lesperance | Environment Creation Techniques (2018) PCRec [En, Ru]
 magnet:?xt=urn:btih:9C97E682211DFCD819314C697BEBBBA04A2146EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ Vincent Dérozier | Mosaic Creation Techniques with Substance Designer (2019) PC
 ```bash
 magnet:?xt=urn:btih:C996A705968460F3E85887F2EA8F11A08E5D0DB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

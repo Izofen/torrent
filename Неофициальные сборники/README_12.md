@@ -22,6 +22,8 @@ Gary Moore - Compilation (1973-2021) [MP3|320 Kbps] <Blues rock>
 magnet:?xt=urn:btih:77845F42B2183867BC50D95E0B6FF423318577E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ Sophie Zelmani - Best of (1995-2025) Compilation Album [MP3|320 Kbps] <Pop, Rock
 magnet:?xt=urn:btih:C65028FB04D15306E571E3AEC8B3774B1256CC86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ AM 1984 - Collection (2024) [MP3|320 Kbps] <Synthwave, Retrowave>
 ```bash
 magnet:?xt=urn:btih:AE92D9AAA863638A05DCCE47DAB3129367BEA917
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -104,6 +110,8 @@ Dave Stewart - Compilation (2025) [MP3|320 Kbps] <Rock, Pop rock, Soft Rock>
 magnet:?xt=urn:btih:772F7501ED54764F8E3723E26A9D01949376E5AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +138,8 @@ VA - Music News For Forum vol.074 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:3F14FFC438BDB907ADA15641F44FF049699647AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -158,6 +168,8 @@ Backstreet Boys - Compilation (1996-2019) [MP3|320 Kbps] <Pop, Dance, R&B>
 magnet:?xt=urn:btih:E3644ED3AC56A7DD836F4B182AC9BFB7112F4171
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -184,6 +196,8 @@ VA - Compilation Part 156 Electronic (2025) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:38A205B4BC9BC6081B62C1142BB0C301F810543D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +226,8 @@ magnet:?xt=urn:btih:38A205B4BC9BC6081B62C1142BB0C301F810543D
 magnet:?xt=urn:btih:BD911FB2FFD85224C6DA20923306257BEA84AB63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +254,8 @@ VA - Music News For Forum vol.073 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:5A1643F4B88E4C911845F4088C5EC013F37AF4C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +284,8 @@ VA - Compilation Part 154 Electronic (2025) [MP3|320 Kbps] <Electronic>
 magnet:?xt=urn:btih:834159D251AD6DAFC3BC31FD23143916F6C930A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +312,8 @@ VA - Compilation Part 155 Electronic (2025) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:E9B0B3BA9CF0DBBFA7CC87312C10AC9576BAA4BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +342,8 @@ blink-182 - Compilation (1995-2024) [MP3|320 Kbps] <Punk rock, Alternative, Skat
 magnet:?xt=urn:btih:519E19B0610245290A2C6F7C92ACEAF64EB446BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +370,8 @@ VA - The Weekend Is In Full Swing! (2025) [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:7BEFF962DF9D229BD06D1EA5CA0B73A60536A607
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -374,6 +400,8 @@ VA - Весна на Love Radio (2025) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:7C5DB04530E7807FCCF568A7E8772E43BE0FF425
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -400,6 +428,8 @@ magnet:?xt=urn:btih:7C5DB04530E7807FCCF568A7E8772E43BE0FF425
 ```bash
 magnet:?xt=urn:btih:EE16AEB29EB2F7469C4A9B187805ECD8E00A0E20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +458,8 @@ magnet:?xt=urn:btih:EE16AEB29EB2F7469C4A9B187805ECD8E00A0E20
 magnet:?xt=urn:btih:1B280BC04FC460C3677E42748A85AB6F4B16921C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +486,8 @@ VA - ЕвроХит Топ 40 Europa Plus 11.04.2025 [MP3|320 Kbps] <Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:FFCF3993BDB4559C4C0260159F82DC818614D713
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +516,8 @@ Rag'n'Bone Man - Compilation (2012-2024) [MP3|320 Kbps] <Neo blues, Soul>
 magnet:?xt=urn:btih:52C301AF08A0A2AAAEA930B11533DE302DCE8920
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +544,8 @@ Linkin Park - Compilation (1999-2024)[MP3|320 Kbps] <Alternative, Nu metal>
 ```bash
 magnet:?xt=urn:btih:36174A32660F4DEAFF1E30208691C8B8C5492BB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +574,8 @@ Eric Clapton - Compilation (1966-2024) [MP3|320 Kbps] <Rock, Blues>
 magnet:?xt=urn:btih:3AAC3494885BC95B056CAAB5BB650A3AC1EE0D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +602,8 @@ VA - Compilation Part 153 Electronic (2025) [MP3|320 Kbps] <Electronic>
 ```bash
 magnet:?xt=urn:btih:208C1ABF05D92A1E6EA6886839B99EF57003D3F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +632,8 @@ VA - On top of THE BLUES (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 magnet:?xt=urn:btih:6FF981E2804AC674BE8A00FB081DF83DCBACE3C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -616,6 +660,8 @@ VA - KaZantip [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
 ```bash
 magnet:?xt=urn:btih:7898C795A5C07F62FFFA73FB9223116A79E7D72C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +690,8 @@ VA - Musical kaleidoscope part 37 Easy listening (2025) [MP3|320 Kbps] <Electron
 magnet:?xt=urn:btih:E434D41DEF2B2753FB03326FBE4C6A45357A380B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +719,8 @@ Va - Hits that stay forever (2025) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:345131F71FEE1D74AC899A89799D2A1AE4E506EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -697,6 +747,8 @@ Fantastique - Compilation (2025) [MP3|320 Kbps] <Disco, Italo-Disco, Euro-Disco,
 ```bash
 magnet:?xt=urn:btih:371C10278738713F00309171D7E6DCABDDA34AC3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

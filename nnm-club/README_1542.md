@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:6E29764EB281D70321D4D0CA371FB6ECA34596DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ eckbreak - динамичный шутер, где стиль и безумие 
 magnet:?xt=urn:btih:8024D6E580661D941BC4E1EA44C941E737A38C98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ AirBrush: ИИ Фоторедактор v7.4.0 Mod by MustHave [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:20C26DF4ED7EBF16C2351C368EE3CA057D10627F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:20C26DF4ED7EBF16C2351C368EE3CA057D10627F
 magnet:?xt=urn:btih:2647BEFE5DAB95FF2651B4F181943F95F7775383
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:2647BEFE5DAB95FF2651B4F181943F95F7775383
 ```bash
 magnet:?xt=urn:btih:0000BDFC5AE884AC0BAB1FBAED58F8C92B49F8AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ VA - My Life In Blue Vol. 02 (2024) [MP3|320 Kbps] <Blues, Blues Rock, Country B
 magnet:?xt=urn:btih:2B618DA879C946D25D66AB3A75ACE5458A70B4E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ Picsart AI Photo Editor, Video v25.9.6 Final Mod by Mixroot [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:2296F260574AA75BD8FD26AD7E71A0D26CFC593D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Tablacus Explorer - удобный в работе и простой в испо
 magnet:?xt=urn:btih:7A73D7A0718769F933550B3A98AF2252C89B2FCD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -217,6 +233,8 @@ magnet:?xt=urn:btih:7A73D7A0718769F933550B3A98AF2252C89B2FCD
 magnet:?xt=urn:btih:A98C97C314EF067ED984D19AD892A4E53DFDB39B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -240,6 +258,8 @@ magnet:?xt=urn:btih:A98C97C314EF067ED984D19AD892A4E53DFDB39B
 ```bash
 magnet:?xt=urn:btih:520C89014ACAADECBF815326ED882A422E61EA45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +288,8 @@ VA - NRJ Music Awards 2024 (2024) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:65C56494164E1BB33200EA9BAB0EAD80D0BFDBAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -294,6 +316,8 @@ VA - This Is Halloween (2024) 2CD [MP3|320 Kbps] <Rock, Pop>
 ```bash
 magnet:?xt=urn:btih:655634DB373FA72E29BE91D1A72405EA34B4AC74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -322,6 +346,8 @@ Bassnectar (Lorin Ashton) - No Colors (2024) [FLAC 16/44.1|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:A9524FE0B12D358F5555A01D04B46A296CA698FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -345,6 +371,8 @@ magnet:?xt=urn:btih:A9524FE0B12D358F5555A01D04B46A296CA698FB
 ```bash
 magnet:?xt=urn:btih:91FB6E5B19223D3F6BBF371E0D6A546C17395C90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:91FB6E5B19223D3F6BBF371E0D6A546C17395C90
 magnet:?xt=urn:btih:6153F0E252D5D4D6AD95442A5AF60961431FF527
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:6153F0E252D5D4D6AD95442A5AF60961431FF527
 magnet:?xt=urn:btih:7B0FA44FABC6948C4682AB1B5B519B7B286D3143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:7B0FA44FABC6948C4682AB1B5B519B7B286D3143
 ```bash
 magnet:?xt=urn:btih:DC3E8A7E4B995116449D616583627F1D486AC6D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -444,6 +478,8 @@ magnet:?xt=urn:btih:DC3E8A7E4B995116449D616583627F1D486AC6D1
 magnet:?xt=urn:btih:AF118E983435412454203904A30656C478FEFB62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -467,6 +503,8 @@ magnet:?xt=urn:btih:AF118E983435412454203904A30656C478FEFB62
 ```bash
 magnet:?xt=urn:btih:DEE85B30901B2318C471DCFC89F1BFE4DB221A58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:DEE85B30901B2318C471DCFC89F1BFE4DB221A58
 magnet:?xt=urn:btih:1848216932EFE76C8BE19643D1064054956E90E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:1848216932EFE76C8BE19643D1064054956E90E9
 ```bash
 magnet:?xt=urn:btih:D7EBDA50B94221804DE62BC930B3C83CA2DB5CDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +582,8 @@ magnet:?xt=urn:btih:D7EBDA50B94221804DE62BC930B3C83CA2DB5CDC
 magnet:?xt=urn:btih:8C478FF2E7E686C68CE02D0B4D532D8C3B6B4AFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +607,8 @@ Pool Cleaning Simulator предлагает в увлекательной и н
 ```bash
 magnet:?xt=urn:btih:BB94C0C70DF80BD1C2AF27FBBB1F2B517036323F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +634,8 @@ Duck Paradox (2022) [Ru/Multi] (1.0.6) License GOG
 magnet:?xt=urn:btih:D21D621E6521FBE774E1CD7516282C16E722C317
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -612,6 +660,8 @@ magnet:?xt=urn:btih:D21D621E6521FBE774E1CD7516282C16E722C317
 magnet:?xt=urn:btih:7DB3DE9B2F16AD5A9305AB259DB73EA91BE17146
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Garage Flipper (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:4CD979196918FB9044FBCA84DA9F68AA1CE9F1EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

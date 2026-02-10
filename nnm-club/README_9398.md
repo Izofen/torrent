@@ -22,6 +22,8 @@ VA - My Jazz Lounge (2015) [MP3|320 кб/с]<Jazz,Lounge>
 magnet:?xt=urn:btih:B82B3C27A700D200661F513BD7818EEAA677FA9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:B82B3C27A700D200661F513BD7818EEAA677FA9F
 ```bash
 magnet:?xt=urn:btih:5FFF1B4B55D046FF51B49EA207EB6ECAA1E115D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ Gloria Estefan - Greatest Hits Vol. II (2001) [FLAC|tracks+.cue]<Latin, Pop>
 magnet:?xt=urn:btih:A7B8C57B071A5BEEC485BB7C62AA0A2EF4709E46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -96,6 +102,8 @@ VidCoder 2.62 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B6024D74BADD3C284179E1643969FA16741A6060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:B6024D74BADD3C284179E1643969FA16741A6060
 magnet:?xt=urn:btih:D7870119B384485BBE8B3C39583AE31BFE646489
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:D7870119B384485BBE8B3C39583AE31BFE646489
 ```bash
 magnet:?xt=urn:btih:709FC512FBB163158DF99F8D702BAB84A65DC8B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:709FC512FBB163158DF99F8D702BAB84A65DC8B1
 magnet:?xt=urn:btih:B7325A18A181BDFB4658C79F3EFF662E4DF20CFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +210,8 @@ magnet:?xt=urn:btih:B7325A18A181BDFB4658C79F3EFF662E4DF20CFD
 magnet:?xt=urn:btih:8407E8126F7C54A5E613AF9FCECBDFCC4290BE04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ magnet:?xt=urn:btih:8407E8126F7C54A5E613AF9FCECBDFCC4290BE04
 ```bash
 magnet:?xt=urn:btih:63D3E7F758164A1FA178023084580A2F07D3864E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Downie поддерживает более 1,100 популярных сайто
 magnet:?xt=urn:btih:5795FE862E69E4A5EB80DFC1A5DA6D70BB9FFBC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +294,8 @@ magnet:?xt=urn:btih:5795FE862E69E4A5EB80DFC1A5DA6D70BB9FFBC7
 magnet:?xt=urn:btih:7B77525AC0D631F1C1D257E238F3D6645507B905
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:7B77525AC0D631F1C1D257E238F3D6645507B905
 ```bash
 magnet:?xt=urn:btih:9FBCF58F3AC4A166E05F3BF873501BE06C8A14BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ KAEDE - 9 альбомов (2008-2013) /Doujin/ [FLAC|tracks] <J-Pop>
 magnet:?xt=urn:btih:25DCABBAA2D9383F3DC78400CC15B84D1680B6C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ NBA 2K15 Soundtrack (2014) [MP3|320 кб/с]<OST/Soundtrack>
 ```bash
 magnet:?xt=urn:btih:5429035FE3B87DFB646268582B77FDC052F58395
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ Inner Sync (aKa Cymatics) - Old Skool Trance Anthems (2015) [MP3|320 кб/с]<Tr
 magnet:?xt=urn:btih:974866C86A9CE7C9BB09BC3A0081BDAE209231B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +436,8 @@ NBA 2k14 Soundtrack  (2013) [MP3|320 кб/с]<OST/Soundtrack>
 magnet:?xt=urn:btih:B3ED142D136EB85677967C6F6FB1455CB144C2E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +463,8 @@ magnet:?xt=urn:btih:B3ED142D136EB85677967C6F6FB1455CB144C2E9
 magnet:?xt=urn:btih:A10072AB797FDA73F392D67190CA500294450448
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +488,8 @@ magnet:?xt=urn:btih:A10072AB797FDA73F392D67190CA500294450448
 ```bash
 magnet:?xt=urn:btih:8D1F5FA6E81ACCD2FF0C5D36D373B92680B93B82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:8D1F5FA6E81ACCD2FF0C5D36D373B92680B93B82
 magnet:?xt=urn:btih:E786642DEC3F57BE96FA359D7ECB5448F05ED170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ Topaz Labs Photoshop Plugins Bundle 2014 (04.12.2014) [En]
 ```bash
 magnet:?xt=urn:btih:7E14789949A689DC1D66CCA5BBE211BDB911B46E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ magnet:?xt=urn:btih:7E14789949A689DC1D66CCA5BBE211BDB911B46E
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:7E14789949A689DC1D66CCA5BBE211BDB911B46E
 ```bash
 magnet:?xt=urn:btih:3038A406183AC8C5C6BB9CC4F02F2D11E432C484
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ magnet:?xt=urn:btih:3038A406183AC8C5C6BB9CC4F02F2D11E432C484
 magnet:?xt=urn:btih:7558DF5F71471AF6396E7BA59B025E190A446418
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ The Fog / Туман (2013) [Ru] Unofficial
 ```bash
 magnet:?xt=urn:btih:02740601A011DC8D2350E419EBB4A265A3E74505
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ magnet:?xt=urn:btih:02740601A011DC8D2350E419EBB4A265A3E74505
 magnet:?xt=urn:btih:AAA546B4C2A20A6DE23BAA163ADF6F4BDC57C0DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ magnet:?xt=urn:btih:AAA546B4C2A20A6DE23BAA163ADF6F4BDC57C0DD
 ```bash
 magnet:?xt=urn:btih:D92370AF7FB0EE7BF784CF2958C8BA354A17D84A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

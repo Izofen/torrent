@@ -21,6 +21,8 @@ Debian GNU/Linux 10.4.0 + nonfree Buster [i386] 4xDVD
 magnet:?xt=urn:btih:1FCE52BDD819CF25BC5F341A6E79426C53463BF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Debian GNU/Linux 11.1.0 + nonfree (firmware) Bullseye [amd64] 2xDVD+2xCD
 ```bash
 magnet:?xt=urn:btih:A39ABAA531B40989EAFD598A7BF4B58D5AC5A855
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ CrunchBang 11 Waldorf (Легкий дистрибутив) [i486, i686, amd64] 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Parrot Security OS - это операционная система, ориен�
 ```bash
 magnet:?xt=urn:btih:1D3DF7C6E90CF699904B6CE879531A1E5A349745
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ Debian Edu, также известный как Skolelinux, является д
 magnet:?xt=urn:btih:F9370DAE7212037A12914DE6A2ECD644C8FEA075
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ AV Linux 2016 (Мультимедийная рабочая станция на �
 ```bash
 magnet:?xt=urn:btih:E07CF6CE763A8D35DD1F3B16E8F2B9896F5C48F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Manjaro Linux 0.8.5.2 (Arch + openbox, net) [i686, x86-64] (4xCD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ Manjaro Linux 0.8.5.2 (Arch + XFCE) [i686, x86-64] (2xDVD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Debian GNU/Linux 11.1.0 + nonfree (firmware) Bullseye [i386] 2xDVD+2xCD
 ```bash
 magnet:?xt=urn:btih:A9EC4C7CCB0032276932C2466DDDEA2F87A9F690
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +265,8 @@ Debian GNU/Linux 7.0.0 (DVD N4-N10) [i386] (7xDVD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ OSGeo-Live 10.0 (Дистрибутив для географов, картог�
 ```bash
 magnet:?xt=urn:btih:E2870B80F8330DEB4A5E41F1204EA563DC94B0FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -299,6 +321,8 @@ DoudouLinux (Rus, Eng). Linux для детей от 2-х лет. 2013.2 [i386] 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ Debian GNU/Linux 7.0.0 [i386] (3xDVD)
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +381,8 @@ Debian GNU/Linux 7.0.0 [amd64] (3xDVD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +409,8 @@ Debian GNU/Linux 7.0.0 Live [i386] (2xDVD, 4xCD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +434,8 @@ Red Hat Enterprise Linux 8.2
 ```bash
 magnet:?xt=urn:btih:5758AA2F74FE5E759D512505BDCBC7DB3C1E1888
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +461,8 @@ Debian GNU/Linux 8.4.0 Jessie Live (nonfree) [amd64] 7xDVD
 magnet:?xt=urn:btih:85426CAFD0BA7604074ABE62FB66B40D63B9C05C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +486,8 @@ Debian GNU/Linux 8.4.0 Jessie Live (nonfree) [i386] 7xDVD
 ```bash
 magnet:?xt=urn:btih:A5EE053ADD798155AB469EB9B2E7846CFD77C74A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +515,8 @@ Korora  Linux (ex. Kororaa) 18 [x86, x86-64] (4xDVD)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ Debian GNU/Linux 8.4.0 Jessie Live [amd64] 7xDVD
 ```bash
 magnet:?xt=urn:btih:77CA47E4545A49254F777858CC7C4D162915BC4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ Debian GNU/Linux 8.4.0 Jessie Live [i386] 7xDVD
 magnet:?xt=urn:btih:11384725AC4287BB2B67D2B64EC43945BFE79C45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ Debian GNU/Linux 8.4.0 Jessie [i386] 3xDVD, 2x updateDVD, 1x netinstCD
 ```bash
 magnet:?xt=urn:btih:35B8631CB2F9BAA3C73CF94AF1D282F1356E4263
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +620,8 @@ Sabayon Linux - дистрибутив Linux, созданный как форк
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ Jondo Live-CD / DVD предлагает безопасные, предвари�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ Sabayon Linux - дистрибутив Linux, созданный как форк
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ Sabayon Linux - дистрибутив Linux, созданный как форк
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

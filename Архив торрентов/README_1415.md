@@ -22,6 +22,8 @@ ru-ru_windows_11_business_editions_version_22h2_updated_july_2023_x64_dvd_f98476
 magnet:?xt=urn:btih:9514A29B11431DD7D5C8A1240BD99018312134DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ IconTo Pro 7.2 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:EA7063E99B71392C7C3731D6FD6C2AEB2D3CED14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Disk Drill - простая и эффективная программа для 
 magnet:?xt=urn:btih:9658088797B61D74B6991050B622705CC0C3F9BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Punto Switcher — автоматический переключатель ра�
 magnet:?xt=urn:btih:1FA9AC2D86F392313C20A777D6031BB957FF60E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Planet VPN 2.1.18.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:72C9CA143D6E26BD990CA37F70D3C357ECB251BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ Spotify имеет громадный каталог музыки, поддер�
 magnet:?xt=urn:btih:D410861F5F2C4E01A71BDD0FE87081B6F7BC0F35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ TranslucentTB — это небольшая утилита, позволяюща
 ```bash
 magnet:?xt=urn:btih:A777132E29829E1BBF5AB4D06EEBBA31F380EFE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ ClassicDesktopClock - простые и красивые классически�
 magnet:?xt=urn:btih:6EDFBA92C99D155E411A95B273BE0B5A957B6223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Epic Pen – настольная программа для Windows, позво�
 ```bash
 magnet:?xt=urn:btih:9619A62401E6B736CBB19BDF5F15A2C3807D112A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ ColorControl - небольшая программа которая после �
 magnet:?xt=urn:btih:E19AA9E9C4252D7F6CFE47DA03210189545BD7EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Opera One 101.0.4843.43 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:DDE16A1128F56B7008CAE03AEA2671FA127A684A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Microsoft Visual C++ 2015-2022 Redistributable 14.38.32919.0 [Ru]
 magnet:?xt=urn:btih:471FE15E556892F33202B5BC64829ACB277C9132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ magnet:?xt=urn:btih:471FE15E556892F33202B5BC64829ACB277C9132
 ```bash
 magnet:?xt=urn:btih:990F3B92AAE25958771D2B93A7AD9BF16788CE76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Rainlendar Pro — календарик для рабочего стола с п
 magnet:?xt=urn:btih:87112947311B83A7E7CBE8C56906E8ADA9635AAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Adobe Acrobat Reader — приложение Reader для самых важн�
 ```bash
 magnet:?xt=urn:btih:DEDC6F2FF551E6485FA26195618402AE5FBB2BE1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ AOMEI Backupper Pro (Professional) – комплексная, простая и
 magnet:?xt=urn:btih:4A4FF16ACEBF5EE875D52FEDFC4952D7B7EEEF32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ AOMEI Backupper – программа для создания резервно�
 ```bash
 magnet:?xt=urn:btih:B2D2DA561626BD132A066F7A5439F26E2A9E8121
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Stardock Start11 – новая версия приложения для нас�
 magnet:?xt=urn:btih:19119D6E86DDAAB02230AF870E8AA5B730872304
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Phase One Capture One - один из лучших профессиональн�
 ```bash
 magnet:?xt=urn:btih:044FFEF17FB05B17607CD92E001F53FC6808BD67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ FL Studio - это одна из лучших программ для созда
 magnet:?xt=urn:btih:05F415A3C31A45064C13E92B08B816C232E8FFF4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Sipnetic – это бесплатный программный IP-телефо�
 magnet:?xt=urn:btih:D96A5B0312F0323858E780AF45F769F00811DD31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:D96A5B0312F0323858E780AF45F769F00811DD31
 ```bash
 magnet:?xt=urn:btih:1DDD24273071C4404741FB2055A2FB245D17BEC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ SamDrivers 23.8 LAN [Multi/Ru]
 magnet:?xt=urn:btih:07D9444010029290AD0871E67040FE0749DBDEBB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Smart AudioBook Player Pro v10.0.4 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:388B1CFEE94C0DF9BF126E3FB923068B94C1B942
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ PC HelpSoft Driver Updater автоматически сканирует раз�
 magnet:?xt=urn:btih:DCA96E0AE607060064370CF5077A668AA81D44A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ XY VPN — это абсолютно бесплатный VPN! Быстрое и
 ```bash
 magnet:?xt=urn:btih:8B2EDC4FC9F08E91DE1EE73A9D2F5CC8C4BD9459
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

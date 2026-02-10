@@ -19,6 +19,8 @@ VA - Песни войны (2009) [MP3|320 kbps] <Военная песня>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ VA - Песни войны (2009) [MP3|320 kbps] <Военная песня>
 magnet:?xt=urn:btih:599C6266CE7DE5687953D25B9FD331306B56D32F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ magnet:?xt=urn:btih:599C6266CE7DE5687953D25B9FD331306B56D32F
 magnet:?xt=urn:btih:08BC79C38C1300697E7863DEF397E9BB7375F34D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:08BC79C38C1300697E7863DEF397E9BB7375F34D
 ```bash
 magnet:?xt=urn:btih:4D30D32A94B3C5CF56C4123A078A666450E8105C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -133,6 +141,8 @@ VA - Неофициальный трибьют В. С. Высоцкого (2010)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +169,8 @@ VA - Неофициальный трибьют В. С. Высоцкого (2010)
 ```bash
 magnet:?xt=urn:btih:9C3046C7479234357CC1FFC48BA699129A55EC30
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +205,8 @@ magnet:?xt=urn:btih:9C3046C7479234357CC1FFC48BA699129A55EC30
 magnet:?xt=urn:btih:DF679135B9F7116380091B2243839C43C7EAA143
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -226,6 +240,8 @@ VA - StarHit. Армейский (2011) [APE|Lossless]<Военная Песня
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -249,6 +265,8 @@ VA - StarHit. Армейский (2011) [APE|Lossless]<Военная Песня
 ```bash
 magnet:?xt=urn:btih:AF162BE9CEE72157A8374A0067EA1CA6502D5D4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -276,6 +294,8 @@ magnet:?xt=urn:btih:AF162BE9CEE72157A8374A0067EA1CA6502D5D4B
 ```bash
 magnet:?xt=urn:btih:F23DFDACA28D37D6B709B0A3912F71A45AFC63EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +330,8 @@ magnet:?xt=urn:btih:F23DFDACA28D37D6B709B0A3912F71A45AFC63EC
 magnet:?xt=urn:btih:1B5CC4ADC70C540A64162C7EB73F206B8F003FA8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +364,8 @@ magnet:?xt=urn:btih:1B5CC4ADC70C540A64162C7EB73F206B8F003FA8
 ```bash
 magnet:?xt=urn:btih:90778FD8CCA8962DB7D9E32E5D69C171F714F457
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +400,8 @@ VA - Пограничный Марш (2009) [FLAC|Lossless]<Барды>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +435,8 @@ VA - Пограничный Марш (2009) [FLAC|Lossless]<Барды>
 magnet:?xt=urn:btih:73ED51EB283771368266FBB7A319DAF50EC24724
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +460,8 @@ magnet:?xt=urn:btih:73ED51EB283771368266FBB7A319DAF50EC24724
 ```bash
 magnet:?xt=urn:btih:6BD7B5D897D1E1971BBDD67F66E817040FC0BB55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +496,8 @@ magnet:?xt=urn:btih:6BD7B5D897D1E1971BBDD67F66E817040FC0BB55
 magnet:?xt=urn:btih:995358320349B31E34EE6F51A1E01C0A50815831
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -498,6 +530,8 @@ magnet:?xt=urn:btih:995358320349B31E34EE6F51A1E01C0A50815831
 ```bash
 magnet:?xt=urn:btih:79F592B4CC80471BD1A348A4B01D7A229F757736
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +566,8 @@ VA - Армейские Хиты super (2010) [FLAC|Lossless]<Военная П�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +600,8 @@ VA - Армейские Хиты super (2010) [FLAC|Lossless]<Военная П�
 ```bash
 magnet:?xt=urn:btih:52BCAB178EC008BCB100E06B294F028F231FFAEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +636,8 @@ Nino Ferrer - Les plus belles chansons (1998) [MP3|320 кб/с]<French Chanson>
 magnet:?xt=urn:btih:B3924682603FAAF4D29B47079AD94B6227FA53EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +664,8 @@ magnet:?xt=urn:btih:B3924682603FAAF4D29B47079AD94B6227FA53EF
 ```bash
 magnet:?xt=urn:btih:C080AE238D832986E675A008A50EEFC33AF83E76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +700,8 @@ magnet:?xt=urn:btih:C080AE238D832986E675A008A50EEFC33AF83E76
 magnet:?xt=urn:btih:5D11D7BC4C46D91A9CB08CE1687B307FD88B5A26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -691,6 +735,8 @@ magnet:?xt=urn:btih:5D11D7BC4C46D91A9CB08CE1687B307FD88B5A26
 magnet:?xt=urn:btih:84958B9BD1AE950D61E0FE7585A40170492E6B9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -717,6 +763,8 @@ magnet:?xt=urn:btih:84958B9BD1AE950D61E0FE7585A40170492E6B9A
 ```bash
 magnet:?xt=urn:btih:78E7FCC714EF1D43DA8B241A21A807E4D25A13D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -745,6 +793,8 @@ magnet:?xt=urn:btih:78E7FCC714EF1D43DA8B241A21A807E4D25A13D4
 magnet:?xt=urn:btih:A45044707A2E89D89DD44D1BD67B52671448D723
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -771,6 +821,8 @@ magnet:?xt=urn:btih:A45044707A2E89D89DD44D1BD67B52671448D723
 ```bash
 magnet:?xt=urn:btih:5EB45ED89740929018A8967D9ECCF0C1912CEF87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

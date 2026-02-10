@@ -1,3 +1,62 @@
+###  Публикация: 1102553   (889598) от 10.02.2017
+
+Apofenia - Peste (2016) Demo [FLAC|Lossless|image + .cue] <Death, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_889598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Descuartizado 02:43
+02. Peste Nacional 03:21
+03. Putrefacciуn 03:33
+04. Invasores Asesinos 03:27(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:16:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E855D0E737026EED82DCF0950E08AF4D32B2B7FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 869804   (889649) от 16.02.2015
+
+36 Crazyfists - Time And Trauma (2015) [FLAC|Lossless]<Nu Metal / Alt. Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="Повторная ошибка скачивания" />
+</div>
+
+
+###  Подробнее
+
+01. Vanish
+02. 11.24.11
+03. Sorrow Sings
+04. Lightless
+05. Time And Trauma(   Читать дальше...   )Жанр: Nu Metal / Alt. MetalПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DCE92378DCE8CD15CF5E3E1098AD59E57F43B22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 869677   (889747) от 16.02.2015
 
 Manic Depression - Technocracy (2015) [FLAC|Lossless]<Thrash Metal>
@@ -22,6 +81,8 @@ Manic Depression - Technocracy (2015) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:AC6BE532A5B030075B92EC8AF7B44F8638E40D61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -50,6 +111,8 @@ Fight - War Of Words (1993) Japan [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:AECEDAF841490B9ED0B29BC3886F2C17087B7B62
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +139,8 @@ Crematory - Unbroken (2020) [FLAC|Lossless|image + .cue] <Gothic Metal, Industri
 ```bash
 magnet:?xt=urn:btih:558FEDE6F622622DA69B2181662B4F3BEFDCD495
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -108,6 +173,8 @@ CD 1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -134,6 +201,8 @@ Hellion - The Black Book (1990) [FLAC|Lossless|image + .cue] <Heavy Metal, Speed
 ```bash
 magnet:?xt=urn:btih:5EBD6E26D43F41F27E1824B44D515F15BE25C4CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +232,8 @@ Triumph, Genus - Vsehorovnost je porazkou prevysujicich (2013) [FLAC|Lossless]<B
 ```bash
 magnet:?xt=urn:btih:DC5DE3D14255D45E17BD4DCA178A300535A0C1E5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +268,8 @@ Dreamshade - The Gift Of Life (2013) [FLAC|Lossless]<Melodic Death Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -229,6 +302,8 @@ The Roxx - To Heaven With Hell (2013) [FLAC|Lossless]<Heavy Metal>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +338,8 @@ Deadlands - Evilution (2013) [FLAC|Lossless]<Thrash Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +372,8 @@ Heavatar - Opus I: All My Kingdoms (2013) [FLAC|Lossless]<Heavy Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +402,8 @@ Exence - Hystrionic (2009) [FLAC|Lossless]<Progressive Thrash/Death Metal>
 magnet:?xt=urn:btih:F557EBBC0A051408E3B013365BDEF08CA931FC2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +430,8 @@ Dreamlike Horror - Delightful Suicides (2005) [FLAC|Lossless|image + .cue] <Atmo
 ```bash
 magnet:?xt=urn:btih:7558CD4251B54AEAC4A76D0D2C8BAFC8C58469D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -377,6 +460,8 @@ Paths Of Possession - Promises In Blood (2005) Japan [FLAC|Lossless|image + .cue
 magnet:?xt=urn:btih:C5BDE8B5028203E3A86C096E12BFE86777F164E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +488,8 @@ Jarra - Test of Faith (2000) [FLAC|Lossless|image + .cue] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:80A754F755BACB2AA10B61A1992E8719A362BB8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +518,8 @@ Krallice - Krallice (2008) [FLAC|Lossless|image + .cue] <Avant-garde Black Metal
 magnet:?xt=urn:btih:307E2CBEA8EF84DA445BBF1199E58FD5102FB8AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +546,8 @@ Iron Maiden — британская хеви-метал-группа, кото�
 ```bash
 magnet:?xt=urn:btih:9241A5792742B5B1060304A1BC8CB8D23440E229
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +577,8 @@ Metallica - Master Of Puppets (1986) [FLAC|Lossless]<Thrash Metal>
 magnet:?xt=urn:btih:428DC2AF0103A044687C3DDF32B20A0975C9A791
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +605,8 @@ At Vance – немецкая метал-группа, основанная в 1
 ```bash
 magnet:?xt=urn:btih:578920D1836D2890FC03C6E4A40648624DFF7A4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +635,8 @@ Nightwish - Elan (2015) /CDS/ [FLAC|Lossless]<Symphonic Power Metal>
 magnet:?xt=urn:btih:8CBF0FAEAA15354B2508FBDBD6B37E99E8EB5B11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +664,8 @@ FEANOR - Heavy Metal группа из Аргентины, сформирова�
 magnet:?xt=urn:btih:B94E08555AF83C1F0126A7E0C56E3DDC00AE45FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -593,6 +692,8 @@ Dragonbreath - The Awakening (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:AD7A608170D83E438FE9E4A90F3166BE2E8BAF32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -622,6 +723,8 @@ REBELLION - немецкая Heavy/Power Metal группа, активная с
 magnet:?xt=urn:btih:3776BED05B72A5C4729473F70ACFDAA3FF24D3FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +751,8 @@ Aborted - ManiaCult (2021) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 ```bash
 magnet:?xt=urn:btih:9D09AA793DC5472697F6BA303B7E5C40440C94D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -676,59 +781,7 @@ Malison Rogue - Malison Rogue (2011) [WavPack|Lossless|image + .cue] <Melodic He
 magnet:?xt=urn:btih:3ADDD49785D0A2594CD6E507F1962B4ECEA32B61
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493881   (892563) от 05.09.2021
-
-Executor - God Will Kneel Before Me (2020) [FLAC|Lossless|image + .cue] <Thrash Metal, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892563.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sweet Taste Of Death
-2. Born To Kill
-3. Murder Instinct
-4. Leeches(   Читать дальше...   )Жанр: Thrash Metal, Heavy MetalПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59E75A5C4143AE262BE8AC1158A926D340A8CB47
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493837   (892564) от 05.09.2021
-
-Malison - Death's Embrace (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_892564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reborn (4:28)
-02. M.A.D. (Mutually Assured Destruction) (4:39)
-03. Death's Embrace (5:37)
-04. Lifehunt (3:14)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D4A5B55EA80F0B9DCA673C657C559560D4CC358
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Linux Mint 19.1 Tessa (XFCE, Mate, Cinnamon) [32bit,64bit] 6xDVD
 magnet:?xt=urn:btih:7D5BA5A6EFD7B1BC299D0A832AB49EB3431EEC17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ ATOM RPG это пост-апокалиптическая инди-игра вд
 ```bash
 magnet:?xt=urn:btih:AA31048406C01F4C4E9BD745113EA54D3FAD4CE4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Microsoft собирается добавить вкладки в интерфе
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Microsoft собирается добавить вкладки в интерфе
 ```bash
 magnet:?xt=urn:btih:C0E521ECC914FEDAA39DAE46368932D4B3CE6E83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:C0E521ECC914FEDAA39DAE46368932D4B3CE6E83
 magnet:?xt=urn:btih:C3C92FECEAB3A4D723A898ADF414ACC364CA83DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:C3C92FECEAB3A4D723A898ADF414ACC364CA83DE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:C3C92FECEAB3A4D723A898ADF414ACC364CA83DE
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Walking Dead: A New Frontier (2016) [Ru/Multi] (1.0) Repack R.G. Механ�
 ```bash
 magnet:?xt=urn:btih:C2B5B75134BAA8F119AD223D88534DC3B51DD813
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ magnet:?xt=urn:btih:C2B5B75134BAA8F119AD223D88534DC3B51DD813
 magnet:?xt=urn:btih:66DFA55C90102D5FF048A3F5118E54AB886E40C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ magnet:?xt=urn:btih:66DFA55C90102D5FF048A3F5118E54AB886E40C1
 magnet:?xt=urn:btih:73AD4253032DA3BC23E35CB01AEF73586202C6D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ Total Commander является самым мощным и стабильным
 ```bash
 magnet:?xt=urn:btih:BF4C5FA6D6E36974A30907F056E03025B5A9C0DB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ King’s Bounty: Воин Cевера - продолжение культово�
 magnet:?xt=urn:btih:6445C4B15A22030351F577C724FCE2E84963A5FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:6445C4B15A22030351F577C724FCE2E84963A5FB
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +360,8 @@ magnet:?xt=urn:btih:6445C4B15A22030351F577C724FCE2E84963A5FB
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +385,8 @@ magnet:?xt=urn:btih:6445C4B15A22030351F577C724FCE2E84963A5FB
 ```bash
 magnet:?xt=urn:btih:C62F34968D6880B97B62F9CBEF0F517E2857CE76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +412,8 @@ magnet:?xt=urn:btih:C62F34968D6880B97B62F9CBEF0F517E2857CE76
 magnet:?xt=urn:btih:E095B913CC7BD8BA861DCC5576F0129C0625CB9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +437,8 @@ magnet:?xt=urn:btih:E095B913CC7BD8BA861DCC5576F0129C0625CB9A
 ```bash
 magnet:?xt=urn:btih:DF7B187A9A175FF3F3447D40DB84AC427A051877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ Choujin Koukousei-tachi wa Isekai demo Yoyuu de Ikinuku you desu! / Сверхо
 magnet:?xt=urn:btih:512676D54FD5602C0B4CBC93B4996D635BD524BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:512676D54FD5602C0B4CBC93B4996D635BD524BD
 ```bash
 magnet:?xt=urn:btih:F34096C18C42F2C292DD52123706FAE96DB6B8A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +516,8 @@ magnet:?xt=urn:btih:F34096C18C42F2C292DD52123706FAE96DB6B8A9
 magnet:?xt=urn:btih:DAAFF85D837BB32E71ED04037D9A9A04786A289A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +541,8 @@ Sherlock Holmes Chapter One (2021) [Ru/Multi] (7719/dlc) License GOG [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:1AD979D8764AA480A156D11C07C13480D4585838
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +569,8 @@ magnet:?xt=urn:btih:1AD979D8764AA480A156D11C07C13480D4585838
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +594,8 @@ Destiny (англ. Судьба) — научно-фантастический M
 ```bash
 magnet:?xt=urn:btih:79255D913364F942770E9F89C454545273BAAC31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +621,8 @@ magnet:?xt=urn:btih:79255D913364F942770E9F89C454545273BAAC31
 magnet:?xt=urn:btih:EC3E598A5940EEB8A87E135C4BA979DF713FCFB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +647,8 @@ magnet:?xt=urn:btih:EC3E598A5940EEB8A87E135C4BA979DF713FCFB2
 magnet:?xt=urn:btih:E0DCCCF0BAE521B0233A105770E215661A2E5DAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +672,8 @@ magnet:?xt=urn:btih:E0DCCCF0BAE521B0233A105770E215661A2E5DAA
 ```bash
 magnet:?xt=urn:btih:1C0FDEFB3CACE4001430A203FDB159C3ECFE58CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -21,6 +21,8 @@ George Vondriska | Настройка и использование фуганк
 magnet:?xt=urn:btih:1349F1293EFD5EB984C2B0C5128A1DD924C4726A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ KStars - бесплатное, с открытым исходным кодом, 
 ```bash
 magnet:?xt=urn:btih:6296BD863F55A2E504BB510E75C1E4E8C890513F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:6296BD863F55A2E504BB510E75C1E4E8C890513F
 magnet:?xt=urn:btih:97E11C72CDF1EDCED216F2350089BEE3E97B035F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:97E11C72CDF1EDCED216F2350089BEE3E97B035F
 magnet:?xt=urn:btih:98C2BC2AA1063D3863F1AEA4A6531B0D5E82EB49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:98C2BC2AA1063D3863F1AEA4A6531B0D5E82EB49
 ```bash
 magnet:?xt=urn:btih:F4507741E0B06070CF2E032E81D7A86D38D92BE9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:F4507741E0B06070CF2E032E81D7A86D38D92BE9
 magnet:?xt=urn:btih:ED4C957902A00335786F874C73FDBD989412772E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ Sumatra PDF — мощная, небольшая программа с прос�
 magnet:?xt=urn:btih:6D6A1692156DBD26226C132E2ABDC16379CCBA9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:6D6A1692156DBD26226C132E2ABDC16379CCBA9E
 ```bash
 magnet:?xt=urn:btih:0D96A8784367AA00EE6C1D173F5A6455C6A85547
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ Super Life (RPG) – казуальный симулятор прогресса.
 magnet:?xt=urn:btih:3E6A6057F9B1963BE656F1570B56B3630B1EC426
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -239,6 +257,8 @@ magnet:?xt=urn:btih:3E6A6057F9B1963BE656F1570B56B3630B1EC426
 magnet:?xt=urn:btih:3C74032FC0473C0DD463E5FDBD897858E8A9112B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +282,8 @@ magnet:?xt=urn:btih:3C74032FC0473C0DD463E5FDBD897858E8A9112B
 ```bash
 magnet:?xt=urn:btih:41C5914E1B650B73F73599545AA8976999FCFE77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +310,8 @@ magnet:?xt=urn:btih:41C5914E1B650B73F73599545AA8976999FCFE77
 magnet:?xt=urn:btih:784318BA1B6D32556BC3B6FF423A11873611F964
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Rising Star 2 - ролевая игра в сочетании с симулят�
 magnet:?xt=urn:btih:609C67D773650329442650ADF9934B333C7C656D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:609C67D773650329442650ADF9934B333C7C656D
 ```bash
 magnet:?xt=urn:btih:369EDEBDA97CBDF23EA0DA2065A3E8FECD980B98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ True Iron - это плагин, номинированный на премию 
 magnet:?xt=urn:btih:A4ABB5D9A84185D9D7E1C66EA2E374EC270D35A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ CareUEyes служит для изменения цветовой темпера
 magnet:?xt=urn:btih:6FBC87AAE437E24E59A95A0DA5AAAD8B4FBFA9CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:6FBC87AAE437E24E59A95A0DA5AAAD8B4FBFA9CA
 ```bash
 magnet:?xt=urn:btih:4908E0E561B93032555BF1C498E60C7D8983A197
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ magnet:?xt=urn:btih:4908E0E561B93032555BF1C498E60C7D8983A197
 magnet:?xt=urn:btih:DCACB3C1310231BB37DB5E7EB6BB6FC50DA29C8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:DCACB3C1310231BB37DB5E7EB6BB6FC50DA29C8D
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:DCACB3C1310231BB37DB5E7EB6BB6FC50DA29C8D
 magnet:?xt=urn:btih:1E6F24F3DC41D8DE3B2F7806CABBD07B4B2DC405
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:1E6F24F3DC41D8DE3B2F7806CABBD07B4B2DC405
 ```bash
 magnet:?xt=urn:btih:81FA46B9D21E1D8B8EBB3B53AB61F1DB391CE3BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -535,6 +577,8 @@ magnet:?xt=urn:btih:81FA46B9D21E1D8B8EBB3B53AB61F1DB391CE3BC
 magnet:?xt=urn:btih:0AC9F4B9B10B79F525457333FF2CBD812D6256B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +602,8 @@ Ms. Holmes 6: Letter M / Мисс Холмс 6: Буква М (2024) [Ru] (1.0) 
 ```bash
 magnet:?xt=urn:btih:92A2E00F0A63BB312E79AC9C0D5D4C4515716F68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:92A2E00F0A63BB312E79AC9C0D5D4C4515716F68
 magnet:?xt=urn:btih:11906364D0457046CC8BAFBABF3AFCA4A966D34F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:11906364D0457046CC8BAFBABF3AFCA4A966D34F
 magnet:?xt=urn:btih:2CBB5B3F6C949EE225A4C42C19CC4887F0017E69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ magnet:?xt=urn:btih:2CBB5B3F6C949EE225A4C42C19CC4887F0017E69
 ```bash
 magnet:?xt=urn:btih:69EAE6A66B842C18AAF222933A60672AAA4595E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

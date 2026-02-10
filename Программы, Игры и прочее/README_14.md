@@ -19,6 +19,8 @@ AyuGram - это клиент телеграмма, основанный на ex
 magnet:?xt=urn:btih:9723F1C4C38A98F98B33EFCFDE59E08574EDA60D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Thenx v6.0.4 [En] Mod by youarefinished
 magnet:?xt=urn:btih:70025B4ED027BC4D50C0BCC54495843FC052EACF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Bria Mobile: VoIP Softphone v6.19.1 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:48E57A10E0AFF8FA85881699140C470B9C5DE867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ MiHome v10.2.702 Mod by Vevs [Ru]
 magnet:?xt=urn:btih:7DE765E243A3F95A3FE530EC1F5012D44707C415
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -120,6 +128,8 @@ All Recovery / Восстановление удаленных файлов v1.3
 magnet:?xt=urn:btih:EC73890C40458D44F1CA8ED717FC75288D2927D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Medativo - это таймер, специально созданный для �
 magnet:?xt=urn:btih:8B41C80184801BF370B8908BBBC4B4794D544608
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ MobiOffice - это полнофункциональный офисный пак
 ```bash
 magnet:?xt=urn:btih:8B4593921773EF9A573F5A169648B8D38986285B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Legacy - Reawakening v1.0.7.3 [En]
 magnet:?xt=urn:btih:6AD84FE1C5440F8FDFC24DD6C7496739D1F477D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Street Fighter IV CE v1.08.00 [En]
 ```bash
 magnet:?xt=urn:btih:3963E3CA3B21474191189F0896D761BB9DEDB0F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ CamScanner - Мощное приложение для сканирования. 
 magnet:?xt=urn:btih:1329B58CB0216FE1E2ED57E6C9D073C2E050B0C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ Bright Memory: Infinite v1.2 [Ru]
 ```bash
 magnet:?xt=urn:btih:7B7C2B88EFC340301C446DF234A37ADE4F0C2F33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Carmen Sandiego NETFLIX v1.0.1g [En]
 magnet:?xt=urn:btih:349FB2976F042726CFE17FA2CD74B0B680E08C7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Shogun's Curse v1.1 [En]
 ```bash
 magnet:?xt=urn:btih:B87874C5A69E8D02596A0E5D6654DF70BDF80B36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Ninja Turtles: Legends v1.26.5 [En]
 magnet:?xt=urn:btih:25C776B801DD5129E2CA0051760BF1A3ED1F0B90
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ ISOLAND: Pumpkin Town — это игра-головоломка, о котор�
 ```bash
 magnet:?xt=urn:btih:B10366A1503FD466AA19B4CBCD3CF59784F6475E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Cover Fire: Offline Shooting v1.32.17 [En]
 magnet:?xt=urn:btih:F405D03737B3CC8BB756FB19732315895FFEC907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Grimvalor v1.2.9 [Ru]
 ```bash
 magnet:?xt=urn:btih:BD8605A1D86F714737BF276BEA336A7E58883E75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Figment 2: Creed Valley – это приключенческий экшен, д
 magnet:?xt=urn:btih:1A73C7C96A77B07A3FBE21922ED65030AD01F577
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ magnet:?xt=urn:btih:1A73C7C96A77B07A3FBE21922ED65030AD01F577
 ```bash
 magnet:?xt=urn:btih:F13C77084D6F2A58416E9B7B315A2C4495C2FA4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +525,8 @@ Dragon Quest X Offline v1.0.0 [En]
 magnet:?xt=urn:btih:59A5597A5A336A6BF04C83367621AC8CFE9ED338
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +551,8 @@ Dungeons of Dreadrock 2 v1.0.4 [Ru]
 magnet:?xt=urn:btih:890070CF3EE1C01D6B67CC1D7DD373A4B99D452D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ Grand Mountain Adventure 2 v1.010 [En]
 ```bash
 magnet:?xt=urn:btih:A03C613981BDAEB6A7BB9F28C5FF29FC1F03F450
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ Serial Cleaner — это стелс-экшен, действие которог
 magnet:?xt=urn:btih:083C3BC8BBDDECA771E3EDB447073DB837F7177D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ VN - это видеоредактор предназначенный специ
 ```bash
 magnet:?xt=urn:btih:76DE4C758816F75697AFE8E029E0C102F94B8AEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ MAPS.ME: Offline maps GPS Nav v16.3.71801 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:CC21E30F6FA008E06425AC6A12283E6D85E5FF1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ magnet:?xt=urn:btih:CC21E30F6FA008E06425AC6A12283E6D85E5FF1A
 ```bash
 magnet:?xt=urn:btih:4AA0F3D51CF48E0B64185050C7BCFB33BC3B4257
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

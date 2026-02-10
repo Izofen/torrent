@@ -22,6 +22,8 @@ VA - Markus Schulz – Global DJ Broadcast (World Tour, SQL Miami) (2018) [MP3|3
 magnet:?xt=urn:btih:653A2E63B99E3FECE1C33D3A0A107F496CD800D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Total Trance Selections Vol.14 (2018) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:810D313B4921CED565AAAA322E009995424CF4D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Desireless - Voyage, Voyage - Greatest Hits (2003) [OGG Vorbis|480 Kbps] <Electr
 magnet:?xt=urn:btih:B295C1A246C6C965625BEC822A17AF8C9FAEDF64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Созвездие хитов: Synthesizer Hits. Vol. 1 (2006) [FLAC|Lossle
 ```bash
 magnet:?xt=urn:btih:E4E47E44865036DF70CD0F0C86875751CA865D02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Aly & Fila - It's All About The Melody (2019) [FLAC|Lossless|WEB|tracks] <Trance
 magnet:?xt=urn:btih:C5C1ECC936855F894079D12D498F685231D3D7B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ ForstWölfin (ForstWolfin) - Elation Fungination (2019) [FLAC 2.0|44.1/24|tracks
 ```bash
 magnet:?xt=urn:btih:550F76165E2E0942382419012AC0C213483047A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Depeche Mode - Ultra (1997) [FLAC|Lossless|tracks + .cue] <Synth-pop>
 magnet:?xt=urn:btih:A1BBE83A3734AC396E8CA58A666034AB032F0D17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -209,6 +223,8 @@ Exist Strategy - Discography 14 Releases (2012-2019) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:0D4E2DB8BB60C12A4FC484BE65B3079C748119E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +253,8 @@ VA - Trance 2023 Vol. 7 [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:C34CC6024C6F9BEBEB29E7690980631EFAEFF040
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +281,8 @@ VA - Uplifting Only Fan Favorites 2018-2019 (Mixed By Ori Uplift) (2019) [MP3|32
 ```bash
 magnet:?xt=urn:btih:037110CE6064EBDB9AEADD0FB290EC694AAD0241
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +311,8 @@ Cosmic Gate - Cosmic Gate In Concert (The Classics) (2020-10-17) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:29E43732801FA8D7CC4859156A53C7ABA1CFEBB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +339,8 @@ VA - Gert Records 10 Years Anniversary - (Mixed by Dimassive) (2022) [MP3|320 Kb
 ```bash
 magnet:?xt=urn:btih:06063AFC3D1DC391829E0D2762F55AC07D20C544
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -345,6 +369,8 @@ VA - Gert Records 10 Years Anniversary - (Mixed by Danny Grunow) (2022) [MP3|320
 magnet:?xt=urn:btih:21600D43FD0AE725A1327802FF207CB54E664BA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +397,8 @@ VA - Solarstone Presents Pure Trance 8 (Mixed By Solarstone & Activa) (2019) [MP
 ```bash
 magnet:?xt=urn:btih:4AC25FBA52CA9A083F4B1CFD202061E88D9C1EDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +427,8 @@ VA - Ibiza Winter Party 2020 (2019) [MP3|320 Kbps] <Deep House>
 magnet:?xt=urn:btih:1DBDA354A02CE39AB4D4A663EAB6AD9295E35AEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +455,8 @@ VA - Synthwave Dreams, Vol. 5 (2019) [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
 ```bash
 magnet:?xt=urn:btih:A1073FE25D899CDD8353AB4F4A20E12183C7DCEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +485,8 @@ X-Mode - О! Неожиданно! (2008) [FLAC|Lossless|tracks + .cue] <House>
 magnet:?xt=urn:btih:57F72887280603E781ED9DA5AC9A5B9BD1A1C688
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +513,8 @@ Bob Sinclar - III (2006) [MP3|320 Kbps] <House, Disco>
 ```bash
 magnet:?xt=urn:btih:0893CACD42503B726C29E1CFDDB2BC8A79DC9ECE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +543,8 @@ Dissolved - Temporal Breathing (2014) [FLAC|Lossless|WEB-DL|24/41.1]<IDM, Ambien
 magnet:?xt=urn:btih:C17713FAA7FA2714BBDDF73267E599F8C937DB10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +572,8 @@ VA - Retrowave (2014) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
 magnet:?xt=urn:btih:B6B8CDF98CDDE6B4E3E9C7926BF4F35D40AE86C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +597,8 @@ Lontano Series - Label-Pack 23 releases (2018-2020) [FLAC|Lossless|WEB-DL|tracks
 ```bash
 magnet:?xt=urn:btih:B09A7C4391323109746062B51373A67BBA3EA4C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +627,8 @@ VA - Kiez Beats: Retro Futuristic Sounds (Revisited 2k12) (2012) [FLAC|Lossless|
 magnet:?xt=urn:btih:7C5B023355D1C8C24456169A9FC90C895302D497
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,6 +655,8 @@ Deep Blu' - Under The Ocean (2006) [MP3|320 Kbps] <Deep House, Tech House>
 ```bash
 magnet:?xt=urn:btih:DF6EFEBEEA146CC197DAD9CEB4E6D5E8F9B4B958
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -639,6 +685,8 @@ Colombo - Abandoned Factory II (2015) [MP3|320 кб/с] <Breaks>
 magnet:?xt=urn:btih:81D95A56FFED1767203744E5373C98C1D35F367A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +714,8 @@ Eguana & Qeight - Life Cycle (2022) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Psyc
 magnet:?xt=urn:btih:99F8C0F921C1D8A90B988BD87FF9A8AD182815BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -689,6 +739,8 @@ Oaktree - Discography 7 Releases (2014-2018) [PIAS] Recordings [FLAC|Lossless|WE
 ```bash
 magnet:?xt=urn:btih:9AF9AE956687CF9792B12F3EC351D896C8E3FFB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

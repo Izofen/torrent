@@ -22,6 +22,8 @@ Simon Viklund - Steal From The Rich, Give To Myself (2019) [FLAC|Lossless|WEB-DL
 magnet:?xt=urn:btih:F94E59248D50E1A0DE6B93B716DA33265E17140F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ RarmaRadio - программа для прослушивания и запис�
 ```bash
 magnet:?xt=urn:btih:A738509A5C4D214A27AE7FC0509E45D7CFFDD05F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Skye Tales - это головоломка-платформер для всей 
 magnet:?xt=urn:btih:7976E91AA24E8176C7224FA8B5A884004E965A85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ Sketch - это инструмент для векторного дизайна 
 magnet:?xt=urn:btih:ED09C6896743A2117B5E6C0C3D07A156B0088530
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ EF Commander  — замечательный двухпанельный файл
 ```bash
 magnet:?xt=urn:btih:A92BBBAFB769F4A7CEC2F4A32612B8DDD7CFF394
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Take 6 - Live (2000) Reprise Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 magnet:?xt=urn:btih:9491847B99A5C7A0DB6EF2627FFF4482A370F7E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ HP Service Pack for ProLiant Gen 11 2023.04 [En]
 ```bash
 magnet:?xt=urn:btih:7410F0A8CE4B206ADF970DC57FDE0C6811E0C55C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:7410F0A8CE4B206ADF970DC57FDE0C6811E0C55C
 magnet:?xt=urn:btih:359B78030354582A0E37D23DC15F82E9D4B2EB32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:359B78030354582A0E37D23DC15F82E9D4B2EB32
 ```bash
 magnet:?xt=urn:btih:1318949F1C7018FFFD138DFF5C3D44D891879693
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Waterfox — это браузер, основанный на исходном �
 magnet:?xt=urn:btih:383496E74E21C04B75B0DDCAB9CD46698197DE05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ magnet:?xt=urn:btih:383496E74E21C04B75B0DDCAB9CD46698197DE05
 ```bash
 magnet:?xt=urn:btih:C7986B554F6FD4B2C5499FC525DBE1A6A42AA141
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:C7986B554F6FD4B2C5499FC525DBE1A6A42AA141
 magnet:?xt=urn:btih:CCB2E90EB7994D0AFA56BBD8A040C8658287C7E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +339,8 @@ D16 Group - Effects Plugins 11.2022 VST, VST3, AAX (X86/X64) [En]
 magnet:?xt=urn:btih:B0F4E93E94676C150B6DEC860267C47DCA1271DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +364,8 @@ Icecream Screen Recorder - программа, позволяющая вести
 ```bash
 magnet:?xt=urn:btih:4AFE3B95A67223B0709DF69DDE6236F88C01F179
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ LibreWolf как раз решает (   Читать дальше...   )Язы
 magnet:?xt=urn:btih:B563488250865F660F81A56055E11E8D38DB7105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ magnet:?xt=urn:btih:B563488250865F660F81A56055E11E8D38DB7105
 ```bash
 magnet:?xt=urn:btih:13DADEFDAC0E33586C671431CB926A49CB4F0981
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:D9AC2E6574D8603D92D41DDF9F95EAF54022996D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ XY VPN — это абсолютно бесплатный VPN! Быстрое и
 magnet:?xt=urn:btih:A0B08BF6C7548EFB42C4468D05FA09F7741871F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ FileMenu Tools настраивает пункты контекстного ме
 ```bash
 magnet:?xt=urn:btih:693E5E8423738456AB0E9BD19F3D6EC1F9D145F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:693E5E8423738456AB0E9BD19F3D6EC1F9D145F9
 magnet:?xt=urn:btih:C58632A611854A56B4088034A98F2379FCEB5247
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +549,8 @@ Universal USB Installer – портативная программа для с�
 ```bash
 magnet:?xt=urn:btih:BD9ECF8B1B94DCE5576C3EEDCA3CCAC7F763E785
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:BD9ECF8B1B94DCE5576C3EEDCA3CCAC7F763E785
 magnet:?xt=urn:btih:2C317F0F51033094998B0DB1D74860CCBBE576C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +601,8 @@ magnet:?xt=urn:btih:2C317F0F51033094998B0DB1D74860CCBBE576C2
 ```bash
 magnet:?xt=urn:btih:9F04D616AD364B714CA3E5749DFA54ADD281AC19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:9F04D616AD364B714CA3E5749DFA54ADD281AC19
 magnet:?xt=urn:btih:D0D1490D639CCCA1FC85AFC7BA95545EEAE744CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -606,6 +654,8 @@ magnet:?xt=urn:btih:D0D1490D639CCCA1FC85AFC7BA95545EEAE744CC
 magnet:?xt=urn:btih:9CEF8D006958D29A6A69065EA1651E88CAD5DC52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Draw.io 21.7.5 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:431416F8B7B0A82AD50B83F00A4B290764A5146E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

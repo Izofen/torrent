@@ -1,3 +1,29 @@
+###  Публикация: 1440975   (1038287) от 19.01.2021
+
+Агра / Agra (2018) WEBRip [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1038287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агра, Индия, славится множеством удивительных архитектурных шедевров, три из которых внесены в список Всемирного наследия ЮНЕСКО: Тадж-Махал, Форт Агра и Фатехпур Сикри. Это видео охватывает самые известные памятники Агры.Производство: ИндияЖанр: Документальный, видовойРежиссер: Милош КитховичПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47014D47B8AB77969E27BB8D5FC985CA01839383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1614790   (1038313) от 23.02.2023
 
 Игры разума - Эксперимент / Mind Games - The Experiment (2023) WEB-DL [H.264/1080p] [VO]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:70528DF6CEFD462E4BFEF03B0264A840DC29C6E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:70528DF6CEFD462E4BFEF03B0264A840DC29C6E2
 magnet:?xt=urn:btih:940A013A063A6756D4FBCBA9B86B4D803A4DEB40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:940A013A063A6756D4FBCBA9B86B4D803A4DEB40
 ```bash
 magnet:?xt=urn:btih:8645BFEFFE11D61FF4B7566975D0EFFDC168B3B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:8645BFEFFE11D61FF4B7566975D0EFFDC168B3B1
 magnet:?xt=urn:btih:52C2920FAB4CC5DBA1E7E81FF1166B20AD8DFCD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:52C2920FAB4CC5DBA1E7E81FF1166B20AD8DFCD7
 ```bash
 magnet:?xt=urn:btih:F44AFBC3E99A12848F977CF10CCA309D09F28392
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:F44AFBC3E99A12848F977CF10CCA309D09F28392
 magnet:?xt=urn:btih:EB1456C8B4E058C40B9EE2AF954C6738DB37FBA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:EB1456C8B4E058C40B9EE2AF954C6738DB37FBA4
 ```bash
 magnet:?xt=urn:btih:6471A9C0EDC8665CF52631F2D8745257173EB649
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:6471A9C0EDC8665CF52631F2D8745257173EB649
 magnet:?xt=urn:btih:03C2BA8726899E252EEC8A471B420C051F7A14A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:03C2BA8726899E252EEC8A471B420C051F7A14A4
 ```bash
 magnet:?xt=urn:btih:1D30D9181D6008A07666144E292C275B6F8B7842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:1D30D9181D6008A07666144E292C275B6F8B7842
 magnet:?xt=urn:btih:377BE6A5A98D65F1A9BB6574F11F1E3E573A8FA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:377BE6A5A98D65F1A9BB6574F11F1E3E573A8FA3
 ```bash
 magnet:?xt=urn:btih:59E1C7DE7BB26715A6E3EC636C38B08B5E5E462D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:59E1C7DE7BB26715A6E3EC636C38B08B5E5E462D
 magnet:?xt=urn:btih:ABD40BE172F36395B6214476E1019FC69A0A0339
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +357,8 @@ magnet:?xt=urn:btih:ABD40BE172F36395B6214476E1019FC69A0A0339
 magnet:?xt=urn:btih:7E664F6B63667F67A64B4623860FD2B0825EC358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +382,8 @@ magnet:?xt=urn:btih:7E664F6B63667F67A64B4623860FD2B0825EC358
 ```bash
 magnet:?xt=urn:btih:95624C95EF9023270C03C3EAD693C9EAE3F4BA51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:95624C95EF9023270C03C3EAD693C9EAE3F4BA51
 magnet:?xt=urn:btih:B94677E30977CC68698DCE5D24BBA5880648E204
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:B94677E30977CC68698DCE5D24BBA5880648E204
 ```bash
 magnet:?xt=urn:btih:B1C3C144AB285EF9A573E3A49255A11D02B335D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:B1C3C144AB285EF9A573E3A49255A11D02B335D9
 magnet:?xt=urn:btih:2E4D21F90B0D9172CC58654B565ACF3A330BC96D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:2E4D21F90B0D9172CC58654B565ACF3A330BC96D
 ```bash
 magnet:?xt=urn:btih:9B5A71BFB1420400BCCF242186D433516C6078EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:9B5A71BFB1420400BCCF242186D433516C6078EC
 magnet:?xt=urn:btih:F78B01841FD28A8DB7B5980D8B8397F7857F65B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +539,8 @@ magnet:?xt=urn:btih:F78B01841FD28A8DB7B5980D8B8397F7857F65B7
 ```bash
 magnet:?xt=urn:btih:A13056ECE98B9B0D01A70E7BCD0F85A3AE7700CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:A13056ECE98B9B0D01A70E7BCD0F85A3AE7700CB
 magnet:?xt=urn:btih:E0DBA741F9D2B124EC6846041D5FF1C1D4ED7D28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +591,8 @@ magnet:?xt=urn:btih:E0DBA741F9D2B124EC6846041D5FF1C1D4ED7D28
 ```bash
 magnet:?xt=urn:btih:0A5D62DD1B2AC6385ED7A77E70D920C442CFB389
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +618,8 @@ magnet:?xt=urn:btih:0A5D62DD1B2AC6385ED7A77E70D920C442CFB389
 magnet:?xt=urn:btih:DCCB8757F055122960DEA8BFD8BCC662B507490E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +643,8 @@ magnet:?xt=urn:btih:DCCB8757F055122960DEA8BFD8BCC662B507490E
 ```bash
 magnet:?xt=urn:btih:6FED31C0713AF67E722E2CB3E552723881B57453
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,30 +670,7 @@ magnet:?xt=urn:btih:6FED31C0713AF67E722E2CB3E552723881B57453
 magnet:?xt=urn:btih:1A4D5A4BEE2E53968931CB912F6A116FB16B6C5F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613828   (1039090) от 20.02.2023
-
-На ком претыкаются люди? (2017) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Религии и культы (Док/TV)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1039090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что такое преткновение? Почему и на ком претыкаются люди? Насколько опасно иметь высокое положение, но быть «низким» человеком?
- «Сыновья же Илия были люди негодные; они не знали Господа и долга священников в отношении к народу.  …И грех этих молодых людей был весьма велик пред Господом, ибо они отвращали от жертвоприношений Господу» (1Царств 2:12,17)Производство: Церковь "Дом Хлеба"Жанр: религия, проповедьЯзык озвучки: РусскийСубтитры: НетПродолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11B3DAC925BC4C9A5EEEF34FA89E8AB5E21B762C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

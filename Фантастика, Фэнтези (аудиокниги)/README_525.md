@@ -1,3 +1,29 @@
+###  Публикация: 1480445   (1008979) от 28.06.2021
+
+Александр Рудазов, Ксения Рудазова | Паргоронские байки. Том 1 (2021) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1008979.jpg" />
+</div>
+
+
+###  Подробнее
+
+В черном-черном городе, где вечно идет дождь, есть ресторан, принадлежащий старому демону Янгфанхофену. Большой любитель выпить, закусить и поболтать, он целыми днями чешет языком со своими гостями. Кажется, он знает миллион занятных историй – и все они абсолютно правдивы! Историй о Паргороне, о Парифате, о иных мирах, о великих и малых их обитателях, о глубокой (   Читать дальше...   )Жанр: Юмористическое фэнтезиПродолжительность: 23:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FB306CA9E59D33CD717DE7F6FCF4C434CA3AF8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480471   (1008998) от 28.06.2021
 
 Иван Магазинников | Мертвый Инквизитор. Гибель Фанмира. Книга 5 (2021) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:6EB0348DE93AE74615E53B9F4201440A6F058174
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:6EB0348DE93AE74615E53B9F4201440A6F058174
 ```bash
 magnet:?xt=urn:btih:03BF7D4037B97743258D8E3E8C92F62E42B64E32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:03BF7D4037B97743258D8E3E8C92F62E42B64E32
 magnet:?xt=urn:btih:5A9C5FD49D27560B26AA986FF29D9AC2E030C37E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:5A9C5FD49D27560B26AA986FF29D9AC2E030C37E
 ```bash
 magnet:?xt=urn:btih:F895BB70D455F89043133F5A64D3D81B0ECDF91A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:F895BB70D455F89043133F5A64D3D81B0ECDF91A
 magnet:?xt=urn:btih:69BD48EC39952EE4C5DE1B34EAB58A00864F1F00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:69BD48EC39952EE4C5DE1B34EAB58A00864F1F00
 magnet:?xt=urn:btih:87DCC8B765F0E9F39D995962D327D74B8A96C1CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:87DCC8B765F0E9F39D995962D327D74B8A96C1CB
 ```bash
 magnet:?xt=urn:btih:84895A7F55F1483821FAD2EF487C961153ABEEC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -191,6 +231,8 @@ magnet:?xt=urn:btih:84895A7F55F1483821FAD2EF487C961153ABEEC4
 magnet:?xt=urn:btih:301DF164EAA73753EF6D0759AB4331DDEC994030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:301DF164EAA73753EF6D0759AB4331DDEC994030
 ```bash
 magnet:?xt=urn:btih:C551C555E6CE7037AD85A0322A1BF61CE35F69E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +283,8 @@ magnet:?xt=urn:btih:C551C555E6CE7037AD85A0322A1BF61CE35F69E3
 magnet:?xt=urn:btih:130A4B0D60FE3E568EAE72B5E55A17C445D83FE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:130A4B0D60FE3E568EAE72B5E55A17C445D83FE4
 magnet:?xt=urn:btih:C2F76E6800655C94250BB6CE2C850E9A1204D52B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:C2F76E6800655C94250BB6CE2C850E9A1204D52B
 ```bash
 magnet:?xt=urn:btih:2E5CAC72783D481F112348A61563A1F04B70FD12
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:2E5CAC72783D481F112348A61563A1F04B70FD12
 magnet:?xt=urn:btih:AD8CBDA3474D0061D738B006AB30D99965559A24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:AD8CBDA3474D0061D738B006AB30D99965559A24
 magnet:?xt=urn:btih:1179EB835F6BEE9EBDFAB3044526477B108C096E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +414,8 @@ magnet:?xt=urn:btih:1179EB835F6BEE9EBDFAB3044526477B108C096E
 ```bash
 magnet:?xt=urn:btih:27127340B446FC4DA0C68FC4184727491A3DBA0C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +442,8 @@ magnet:?xt=urn:btih:27127340B446FC4DA0C68FC4184727491A3DBA0C
 magnet:?xt=urn:btih:320E8817B311E1D7AF846384EFF548895D4D6EB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +467,8 @@ magnet:?xt=urn:btih:320E8817B311E1D7AF846384EFF548895D4D6EB1
 ```bash
 magnet:?xt=urn:btih:5290A687A2E7E93C92BBC018CC72113F799D1E44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:5290A687A2E7E93C92BBC018CC72113F799D1E44
 magnet:?xt=urn:btih:91728F0A48CC73E06B12672439AC96AD5A2DCA54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +522,8 @@ magnet:?xt=urn:btih:91728F0A48CC73E06B12672439AC96AD5A2DCA54
 magnet:?xt=urn:btih:2F3D15519F766A9D21BA9DBFACCA1C671C541172
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +547,8 @@ magnet:?xt=urn:btih:2F3D15519F766A9D21BA9DBFACCA1C671C541172
 ```bash
 magnet:?xt=urn:btih:2593D00F722A1A735BDC512B5915834961597ADA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +574,8 @@ magnet:?xt=urn:btih:2593D00F722A1A735BDC512B5915834961597ADA
 magnet:?xt=urn:btih:4162B5D29F0DB005FE13A6886EE38DB7BEBF4007
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +599,8 @@ magnet:?xt=urn:btih:4162B5D29F0DB005FE13A6886EE38DB7BEBF4007
 ```bash
 magnet:?xt=urn:btih:FAAB58D20FAAB4EFA1D1AB82A762B7AC0A97CE6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -556,6 +626,8 @@ magnet:?xt=urn:btih:FAAB58D20FAAB4EFA1D1AB82A762B7AC0A97CE6C
 magnet:?xt=urn:btih:8DB5C72276981CA5520A17702D77A3A9DBDBCF6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +651,8 @@ magnet:?xt=urn:btih:8DB5C72276981CA5520A17702D77A3A9DBDBCF6B
 ```bash
 magnet:?xt=urn:btih:21F0195067DB724CB7850D2AD4DB7637CE70AA63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,29 +679,7 @@ magnet:?xt=urn:btih:21F0195067DB724CB7850D2AD4DB7637CE70AA63
 magnet:?xt=urn:btih:1B2F6EE2C27D488E3C377838B23D4569B6E38393
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478842   (1009985) от 21.06.2021
-
-Максим Дрешпак | Новые маги. Друид. Книга 1 (2021) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1009985.jpg" />
-</div>
-
-
-###  Подробнее
-
-К первой трети ХХII века человечество сделало еще один виток в технологическом развитии. Широкое использование нейроинтерфейсов помогает не только жить лучше и собранее, а и веселее. «Новые маги» – игра в дополненной реальности – превращает мир вокруг в нечто невероятное и волшебное. Но что будет, если фэнтезийка разбудит в нашем мире магию? И как поведут себя те, (   Читать дальше...   )Жанр: Боевое фэнтези, городское фэнтезиПродолжительность: 08:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC140F288575003FFA78745CE7597A25B4B2317
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

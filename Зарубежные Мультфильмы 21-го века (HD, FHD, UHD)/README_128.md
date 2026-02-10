@@ -1,28 +1,3 @@
-###  Публикация: 620767   (961194) от 21.02.2013
-
-Уоллес и Громит [Полное коллекционное издание] / Wallace & Gromit [The Complete Collection] (2009) [1080p] Blu-Ray
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_961194.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Великий выходной"
-Вот незадача - у Уоллеса закончился сыр. В поисках своего любимого лакомства неугомонный изобретатель решает отправиться на Луну. Уоллес хочет узнать - не сделана ли Луна из этого чудесного продукта. Для этого Уоллес смастерил ракету. Придется и Громиту лететь. Ведь должен же кто-то присмотреть за этим непоседой Уоллесом.Жанр: Пластилиновая анимацияРежиссер: Ник Парк (Nick Park)Перевод: Многоголосый закадровыйСубтитры: английскиеФормат: BDMVПродолжительность: 01:55:56 (основные мультики)+00:44:48 (допы)+00:25:21(бонусы из короткометражек)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA719C9FBD5EE2AFB88137394C33C50B1EBB2D5
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360035   (961634) от 14.02.2020
 
 Холодное сердце 2 / Frozen II (2019) BDRip [H.264/1080p]
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:0AA719C9FBD5EE2AFB88137394C33C50B1EBB2D5
 ```bash
 magnet:?xt=urn:btih:67678D124CF4D5FB413B11BB5BC9E879DC0C2563
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +45,8 @@ magnet:?xt=urn:btih:67678D124CF4D5FB413B11BB5BC9E879DC0C2563
 magnet:?xt=urn:btih:B9296A9851530FB9F0DEEAF1C02E8D6EDEA205BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +70,8 @@ magnet:?xt=urn:btih:B9296A9851530FB9F0DEEAF1C02E8D6EDEA205BF
 ```bash
 magnet:?xt=urn:btih:93BEF66160F8F233E4CAE8A4B5106EBD8EE743E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +97,8 @@ magnet:?xt=urn:btih:93BEF66160F8F233E4CAE8A4B5106EBD8EE743E9
 magnet:?xt=urn:btih:6CEC16E0727D7CF2BA23AFB2CE1152212D6B0731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +122,8 @@ magnet:?xt=urn:btih:6CEC16E0727D7CF2BA23AFB2CE1152212D6B0731
 ```bash
 magnet:?xt=urn:btih:1987870A01F3AAF9241D908CC289F21F6B93AB84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +149,8 @@ magnet:?xt=urn:btih:1987870A01F3AAF9241D908CC289F21F6B93AB84
 magnet:?xt=urn:btih:A69B50488BCD41AD663C9793CBF96D9462E06808
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +174,8 @@ magnet:?xt=urn:btih:A69B50488BCD41AD663C9793CBF96D9462E06808
 ```bash
 magnet:?xt=urn:btih:033523C6B0CA4B5DB5FDAB998D06AD1B2644D2CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +201,8 @@ magnet:?xt=urn:btih:033523C6B0CA4B5DB5FDAB998D06AD1B2644D2CB
 magnet:?xt=urn:btih:72DD95EF03EADE74AE8BC745BAA93B9561901358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +226,8 @@ magnet:?xt=urn:btih:72DD95EF03EADE74AE8BC745BAA93B9561901358
 ```bash
 magnet:?xt=urn:btih:DDA16B06CE970C75434C7094375FFC3474AA817D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +253,8 @@ magnet:?xt=urn:btih:DDA16B06CE970C75434C7094375FFC3474AA817D
 magnet:?xt=urn:btih:F671B1118C503FD833C595724A2661EBB2F4D671
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +278,8 @@ magnet:?xt=urn:btih:F671B1118C503FD833C595724A2661EBB2F4D671
 ```bash
 magnet:?xt=urn:btih:54B366D626D7DFD1B4656B0F91EE14033DE634CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -310,6 +307,8 @@ magnet:?xt=urn:btih:54B366D626D7DFD1B4656B0F91EE14033DE634CD
 magnet:?xt=urn:btih:CCC21CAFAF154C400DDA4912E90A3218EDA81391
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -333,6 +332,8 @@ magnet:?xt=urn:btih:CCC21CAFAF154C400DDA4912E90A3218EDA81391
 ```bash
 magnet:?xt=urn:btih:CF8722976EBBFAF9DE81B85F1CC1346717149688
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +361,8 @@ magnet:?xt=urn:btih:CF8722976EBBFAF9DE81B85F1CC1346717149688
 magnet:?xt=urn:btih:B2AE61BC1EFA04887F2BCDE0F5740AC30878AAF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +386,8 @@ magnet:?xt=urn:btih:B2AE61BC1EFA04887F2BCDE0F5740AC30878AAF2
 ```bash
 magnet:?xt=urn:btih:E2EF459AFACA54EC40686960E067D7BD1FAF26BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +413,8 @@ magnet:?xt=urn:btih:E2EF459AFACA54EC40686960E067D7BD1FAF26BE
 magnet:?xt=urn:btih:951FC4AC88C45B41758198B77D212450A6C7D271
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +438,8 @@ magnet:?xt=urn:btih:951FC4AC88C45B41758198B77D212450A6C7D271
 ```bash
 magnet:?xt=urn:btih:530DCE0262DCEF1CB00965DA75808D3A6E1CF514
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +465,8 @@ magnet:?xt=urn:btih:530DCE0262DCEF1CB00965DA75808D3A6E1CF514
 magnet:?xt=urn:btih:55F4D8B30E061AA9633A020942E936B0D5CEE132
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +490,8 @@ magnet:?xt=urn:btih:55F4D8B30E061AA9633A020942E936B0D5CEE132
 ```bash
 magnet:?xt=urn:btih:670D494ACCFBA3BDC78BCC84ADFF56963321D3AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +518,8 @@ magnet:?xt=urn:btih:670D494ACCFBA3BDC78BCC84ADFF56963321D3AE
 magnet:?xt=urn:btih:79EE7A957D37A4ECA24B302FE01E4C3F3163A0E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +543,8 @@ magnet:?xt=urn:btih:79EE7A957D37A4ECA24B302FE01E4C3F3163A0E8
 ```bash
 magnet:?xt=urn:btih:E87B5FE5A88D560F1AA04822CD56DBFA31F412B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +570,8 @@ magnet:?xt=urn:btih:E87B5FE5A88D560F1AA04822CD56DBFA31F412B0
 magnet:?xt=urn:btih:192656D4F29793FCB618C3B4517DB38A1ADF8294
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +595,8 @@ magnet:?xt=urn:btih:192656D4F29793FCB618C3B4517DB38A1ADF8294
 ```bash
 magnet:?xt=urn:btih:2118A841ECFC65B0997377B14A6A73D3849BD565
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +622,8 @@ magnet:?xt=urn:btih:2118A841ECFC65B0997377B14A6A73D3849BD565
 magnet:?xt=urn:btih:A5A4ACBF3F0BB02B181180FA9DE94C22525C0D36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +647,34 @@ magnet:?xt=urn:btih:A5A4ACBF3F0BB02B181180FA9DE94C22525C0D36
 ```bash
 magnet:?xt=urn:btih:D3FD5E273824C99510002EE63021E87DFA6E9613
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 619715   (967439) от 16.02.2013
+
+Марко Макако / Marco Macaco (2012) [720p] BDRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_967439.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марко Макако работает пляжным охранником на тропическом острове. Он верой и правдой служит своему боссу, мечтая лишь об одном — раскрыть серьезное преступление. Марко проводит собственные расследования по любому поводу и поднимает шумиху по пустякам. Однако вскоре ему по-настоящему повезет: завоевывая расположение красавицы Лулу, Марко раскроет коварный заговор богача (   Читать дальше...   )Производство: Дания, Nice Ninja ProductionsЖанр: Мультфильм, Комедия, СемейныйРежиссер: Жан РабекПерсонажи: Токе Бьярке, Милле Лефельдт, Руне Толсгаард, Джесс ИнгерслевПеревод: ДублированныйПродолжительность: 01:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6925A1773506522D45AE7EDD86BF781D92BB76F9
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

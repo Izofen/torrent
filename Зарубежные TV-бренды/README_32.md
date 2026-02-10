@@ -19,6 +19,8 @@ NG: Первый великий побег / The First Great Escape (2014) DVB
 magnet:?xt=urn:btih:6FEC4B47C0286D7DECCAECA25131B7703D5FA8FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Discovery Scienceу: НАСА. Необъяснимые материалы / NAS
 ```bash
 magnet:?xt=urn:btih:EC9313E9C3DAAD2676A853543D2DC77059E4314E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ NG. Чудо-юдо динозавры / Bizarre Dinosaurs / Weirdest Dinosaurs 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ NG. Чудо-юдо динозавры / Bizarre Dinosaurs / Weirdest Dinosaurs 
 ```bash
 magnet:?xt=urn:btih:C371E0B2CA367CC988CA92A5968D5CAA863EBEAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:C371E0B2CA367CC988CA92A5968D5CAA863EBEAC
 magnet:?xt=urn:btih:5D485118372298EC3A4A47B2389BBBD14AA1EEE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ BBC: Супердостижения Земли / Supersized Earth (2012) HDTV [H
 ```bash
 magnet:?xt=urn:btih:4D0AB79296D26F5FCFB9734AC272BE957ADCF899
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ History channel: Вселенная / The Universe (2007) BDRemux [H.264/1080p] 
 magnet:?xt=urn:btih:2E0022A08CB6450A59F917CAA56EE45F78604D03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Discovery. Северная Америка / North America (2013) BDRemux [H.264
 ```bash
 magnet:?xt=urn:btih:1C34642E41B7069D7A11755F2C00B97024411A58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ BBC: Новая Европа с Майклом Пэйлином / Michael Palin'
 magnet:?xt=urn:btih:84ABC78D48EE7FCBD0A30AE7793D97688765F758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ NG. Экспедиция на Марс / Expedition Mars (2016) TVRip [H.264]
 ```bash
 magnet:?xt=urn:btih:2CDFAA8DD571A418523FBEA7B141592819CEE934
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NGW: Тайна Морского Дьявола / Manta Mystery (2011) HDTV [H.2
 magnet:?xt=urn:btih:62F771B20384A4195829F7482D56315B9F1663F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ BBC. Наша Первая мировая / Our World War (2014) HDTVRip [H.264/
 ```bash
 magnet:?xt=urn:btih:2824ACB61B28581987C6D5BA15F07A39818EC740
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ NGW:Дикая Ботсвана: Братство львов / Wild Botswana: Li
 magnet:?xt=urn:btih:D47C853A298404518F00E4D0676AD4D75232A4D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ NG. Скрытые тайны городов: Баку / Hidden Cities Revealed:
 ```bash
 magnet:?xt=urn:btih:36E1D506430F4E476F1F1C368D6EAD724545F492
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Discovery. Дороги России: Трасса Колыма (2016) HDTVRip [
 magnet:?xt=urn:btih:91C40449B658969DC689DE3FA90DEE107CF02E74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ History Channel: Скрытые следы / Hidden Traces (2014-2016) HDTVRip [
 ```bash
 magnet:?xt=urn:btih:A103374B8524BC1FD52F93FC85E2D02D83DB1073
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ History Channel. Скрытые следы: Первая мировая войн
 magnet:?xt=urn:btih:94DF2A3CFD19A9F3B26F5F82EE3CC6F95503FCB2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ NGW: Африканская суперзмея / Africa's Super Snake (2017) HDT
 ```bash
 magnet:?xt=urn:btih:15E29EF0BB5CB38700A38BAD5BDFA74B1DB7612C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ BBC. Эти удивительные хищники / Incredible Predators (2016
 magnet:?xt=urn:btih:AED3A89ECBEF7499196CCEB699A3FA63198156E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Discovery. На краю Аляски  / Edge of Alaska (2014) HDTVRip (1-8 се
 ```bash
 magnet:?xt=urn:btih:BDF1D094FE1203126CED265A95F2D3DE23F5ADEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ BBC: Мир природы. Водопад Виктория / Natural World. Vic
 magnet:?xt=urn:btih:8D15B3E2B215E31E9318CE60EC3DC61178D4AD41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ NG. Осушить океан / Drain the Oceans (2018) WEB-DL [H.264/1080p] (1 
 ```bash
 magnet:?xt=urn:btih:DEAA4ECDBCBADE7288D61CC2432020D9E8AFBA52
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ magnet:?xt=urn:btih:DEAA4ECDBCBADE7288D61CC2432020D9E8AFBA52
 magnet:?xt=urn:btih:CF31267F666B173B16A8393DF28EFD166E0EBFCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ NG. Солнечный фараон Египта: тайны и сокровищ
 ```bash
 magnet:?xt=urn:btih:A818229708ABC33B46DE3DEBE75B9E9442744B72
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ NGW: Каждый тигр на счету / Counting Tigers (2019) HDTVRip [H.2
 magnet:?xt=urn:btih:05916DCFC12B86D95E1D32429F7AD57E5BFB3387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Discovery. Инженерия невозможного / Impossible Engineering 
 ```bash
 magnet:?xt=urn:btih:7CC68597D79BCBEC6498CD9F47ABDC51E6BAAF5F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

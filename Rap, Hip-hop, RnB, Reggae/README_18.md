@@ -1,3 +1,32 @@
+###  Публикация: 1301519   (585262) от 11.05.2019
+
+Jelly Roll - Addiction Kills (2017) Bad Apple, Inc. [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip Hop, Hardcore, Blues Rock>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_585262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hate Goes On (2:43)
+ 02. Wheels Fall Off (3:27)
+ 03. Only (3:18)
+ 04. Addiction Kills (4:04)(   Читать дальше...   )Жанр: Rap, Hip Hop, Hardcore, Blues RockПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCC65F08EF883E1C612597318531D2115634F584
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917079   (589814) от 10.07.2015
 
 Gazgolder - Баста + (2015) [MP3|320 кб/с]<Rap, Hip-Hop>
@@ -21,6 +50,8 @@ Gazgolder - Баста + (2015) [MP3|320 кб/с]<Rap, Hip-Hop>
 ```bash
 magnet:?xt=urn:btih:9BD70CC2DBB85DC8A0741555DFC6D64E5E6256D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +77,8 @@ magnet:?xt=urn:btih:9BD70CC2DBB85DC8A0741555DFC6D64E5E6256D7
 ```bash
 magnet:?xt=urn:btih:471260458BE65B3D02D42C915A94E48F14F7D517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +107,8 @@ Guf - О’пять (2022) [FLAC|Lossless|WEB|tracks] <Rap>
 magnet:?xt=urn:btih:E248B9FA88794E6185B564A1FFE66175F0E08E4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +134,8 @@ magnet:?xt=urn:btih:E248B9FA88794E6185B564A1FFE66175F0E08E4F
 ```bash
 magnet:?xt=urn:btih:D4EC79470F9442270B64FE9FDE5B72E12F2836A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +164,8 @@ magnet:?xt=urn:btih:D4EC79470F9442270B64FE9FDE5B72E12F2836A5
 magnet:?xt=urn:btih:CB094BCB35B9EF7407A51F63219DD3DE32414BAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +192,8 @@ Dub Pistols - Return of the Pistoleros (2015) [FLAC|Lossless|tracks] <Reggae, Du
 ```bash
 magnet:?xt=urn:btih:76D75FE7EB8BEAD5D72916811C0B20283BA53A8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +222,8 @@ Desiigner - New English (2016) [MP3|320 Kbps] <Trap>
 magnet:?xt=urn:btih:73E0C75C441820500E7688F4366ACD3A694030D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +250,8 @@ Iration - Iration (2018) [FLAC|Lossless|WEB-DL|tracks] <Reggae, Reggae Rock>
 ```bash
 magnet:?xt=urn:btih:DE4894EC4E74136BE68E4179A3DE042E62330680
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +280,8 @@ Jay-Z - 4:44 (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
 magnet:?xt=urn:btih:114E3BB8FE92133BDE42AAF0DB12F3D4AB51A4EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +308,8 @@ magnet:?xt=urn:btih:114E3BB8FE92133BDE42AAF0DB12F3D4AB51A4EF
 ```bash
 magnet:?xt=urn:btih:110F862B46B1FCDB066D211DCE574B346B56E9AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +338,8 @@ Neroche - Sleeping On The Ceiling (2017) [FLAC|Lossless|Web-DL|tracks] <Chillhop
 magnet:?xt=urn:btih:DB535A5B68159F83E36706A4D908E3086DAC842F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -315,6 +366,8 @@ Thomas Mraz - EMOTIONAL - 8 (2014) [MP3|320 Kbps] <Rap, Hip-hop>
 ```bash
 magnet:?xt=urn:btih:1A9C65FD3103A5E68BFBEDD181288B0F4E0C7491
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +396,8 @@ Alai Oli, Хмыров - Последний из ушедших (2022) [FLAC|Los
 magnet:?xt=urn:btih:676EA7CB264757217C0F539208E7A573322D4D10
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +424,8 @@ Mr. Lif & Brass Menažeri (Mr. Lif & Brass Menazeri) - Resilient (2017) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:30CFE4D6398C6C5971CD48B1D04F01B1EC01454B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -397,6 +454,8 @@ Beyonce & Jay-Z (The Carters) - Everything Is Love (2018) [FLAC|Lossless|WEB-DL|
 magnet:?xt=urn:btih:3B7A13EBBC5B6490C11F8365437237CAE712428C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -423,6 +482,8 @@ TRUEтень, Красное Дерево - Кадык (2022) [MP3|320 Kbps] <Ra
 ```bash
 magnet:?xt=urn:btih:60A25F66B90EB52D772F8AAB7E199D23A38DB3C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +512,8 @@ VA - Sexy Soul R&B For Late Night Lovers (2018) [FLAC|Lossless|WEB-DL|tracks] <S
 magnet:?xt=urn:btih:F2B8914338D66AE5071074C7FE17E9C86E0F8EF5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +540,8 @@ Kool Keith - Controller of Trap (2018) [FLAC|Lossless|Web-DL|tracks] <Rap, Hip-H
 ```bash
 magnet:?xt=urn:btih:65E1FCFD14F305355E8F3D1E5852FD8DBB53406F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +570,8 @@ Miyagi & Эндшпиль - Умшакалака (feat. Amigo) (2017) [MP3|320 K
 magnet:?xt=urn:btih:7E717B6D68D5A9E204D65DCF1E6BEEB331ACBB12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +598,8 @@ VA - Pure... 90s R&B (2014) Box Set, 4CD [FLAC|Lossless|tracks + .cue] <R&B>
 ```bash
 magnet:?xt=urn:btih:D80206187B0DF730B460D6058FD8B876E6241669
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +628,8 @@ Joss Stone - Water For Your Soul (2015) [MP3|320 кб/с]<R&B, Pop>
 magnet:?xt=urn:btih:558BB288365B006B1820E5FB8D2CFC54B9A9ACA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +656,8 @@ magnet:?xt=urn:btih:558BB288365B006B1820E5FB8D2CFC54B9A9ACA4
 ```bash
 magnet:?xt=urn:btih:3C64D0025E2483D6391BC4C6157EBBF75C498721
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -613,6 +686,8 @@ Noize MC - XV (2019) Live [MP3|320 Kbps] <Rap, Hip-Hop, Rock>
 magnet:?xt=urn:btih:073382ABC49D359C8E8A3A63C2AE006E9316190B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -639,6 +714,8 @@ Knowledge the Pirate - Flintlock (2018) Sword & Skull Edition [FLAC|Lossless|tra
 ```bash
 magnet:?xt=urn:btih:674F407240ED57716D9AAF77D2192B3ABDFE963A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -667,32 +744,7 @@ A$AP Rocky (ASAP Rocky) - TESTING (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 magnet:?xt=urn:btih:DD5AC0EDC0055B5EE1C2A98AAA1CDC8756FFA8B6
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294684   (627317) от 08.04.2019
-
-2 Mello - Mindstreaming, Vol. 1 (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumental Hop, Beats, Chillhop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_627317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirty Intro (1:58)
-02. Kaiju Things (3:19)
-03. Cruise In Neon (1:49)
-04. Cover Charge (2:05)(   Читать дальше...   )Жанр: Hip-Hop, Instrumental Hop, Beats, ChillhopПродолжительность: 00:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91E8B2ACDC6345B7DE40933C5BAEFAA62FD684FC
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

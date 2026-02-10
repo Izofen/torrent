@@ -20,6 +20,8 @@ Ubuntu*Pack 20.04 Xfce / Xubuntu (ноябрь 2021) [amd64] DVD
 magnet:?xt=urn:btih:443AC5340F4580BC6C40CAD59AB8742208C7609F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:443AC5340F4580BC6C40CAD59AB8742208C7609F
 ```bash
 magnet:?xt=urn:btih:00B573F71B89884270F1F206EE7BE4210B6C3D90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ magnet:?xt=urn:btih:00B573F71B89884270F1F206EE7BE4210B6C3D90
 magnet:?xt=urn:btih:6AB29F45CFB676C11D7A5F3C37A8C755C3030822
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:6AB29F45CFB676C11D7A5F3C37A8C755C3030822
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:6AB29F45CFB676C11D7A5F3C37A8C755C3030822
 ```bash
 magnet:?xt=urn:btih:C333840B68C2644D96F57F494E57206054A722C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ Demons of Guillotine - 4 Albums (2004-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 magnet:?xt=urn:btih:22E78D81FE43DCF2488E2A8DA391A872EA795A99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -174,6 +186,8 @@ CD1:
 magnet:?xt=urn:btih:8A5C084675EFD925CBF0243E7908FFF92046BB4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:8A5C084675EFD925CBF0243E7908FFF92046BB4D
 ```bash
 magnet:?xt=urn:btih:E39C003BA78F9545EB1765FF474329A344D6F80C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -222,6 +238,8 @@ magnet:?xt=urn:btih:E39C003BA78F9545EB1765FF474329A344D6F80C
 magnet:?xt=urn:btih:E9A1507DA098DD1320D634C43C6D4AD85B1FEC64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:E9A1507DA098DD1320D634C43C6D4AD85B1FEC64
 ```bash
 magnet:?xt=urn:btih:03402FBB0B93C7283A510C95BA5780C2BAFCC518
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ LosslessCut — простой видеоредактор для нарезки 
 magnet:?xt=urn:btih:CD3DFB57D1A526649F97C3060E8EF41C4627A8ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:CD3DFB57D1A526649F97C3060E8EF41C4627A8ED
 ```bash
 magnet:?xt=urn:btih:496E56BD7910AFBFAAAFFE0AE535320F1A759199
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:496E56BD7910AFBFAAAFFE0AE535320F1A759199
 ```bash
 magnet:?xt=urn:btih:516ED3A0CB00793833EB75C8F5C7E93384035665
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +372,8 @@ Akino Kawamitsu / AKINO with bless4 - сross the line (2016) [FLAC|Lossless|imag
 magnet:?xt=urn:btih:3CD81413511CFAB69917688AF174FDA694D12296
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +399,8 @@ FL Studio - это одна из лучших программ для созда
 magnet:?xt=urn:btih:24B8D42343351057886A234E537911055D3D5DE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -394,6 +424,8 @@ magnet:?xt=urn:btih:24B8D42343351057886A234E537911055D3D5DE7
 ```bash
 magnet:?xt=urn:btih:45FC9981C57A1463C94D35FB3FDF7295AF4CFB17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:45FC9981C57A1463C94D35FB3FDF7295AF4CFB17
 magnet:?xt=urn:btih:AA0524C960F1727CB3C8E092600CE1B30FB7C0BB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -445,6 +479,8 @@ magnet:?xt=urn:btih:AA0524C960F1727CB3C8E092600CE1B30FB7C0BB
 ```bash
 magnet:?xt=urn:btih:D0E402B9C2271961BFB04C0024676805AC22E670
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -473,6 +509,8 @@ John 5 and The Creatures - Live Invasion (2020) [FLAC|Lossless|image + .cue] <Ex
 magnet:?xt=urn:btih:190B07BE174AA26BBE8462472ED1C5387131DAAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ Abandoned In Destiny - Rays of Light (2022) [FLAC|Lossless|WEB-DL|tracks] <Alter
 ```bash
 magnet:?xt=urn:btih:570270BE9CFC899DDFEF7D12627937D5B965A31B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +567,8 @@ VA & Christophe Beck - Trolls / Тролли (Original Score + Original Soundtra
 magnet:?xt=urn:btih:743455973098DEC56887CC5EFF9D1C06564F16E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +592,8 @@ magnet:?xt=urn:btih:743455973098DEC56887CC5EFF9D1C06564F16E8
 ```bash
 magnet:?xt=urn:btih:F914F230ACAE7CEF5821999424ECD177B19C9367
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +622,8 @@ CD1:
 magnet:?xt=urn:btih:64221C2748078883118ED390B0AE48368D4BD218
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -601,6 +647,8 @@ magnet:?xt=urn:btih:64221C2748078883118ED390B0AE48368D4BD218
 ```bash
 magnet:?xt=urn:btih:35F3C7F7BA33D5CB09D7B87A8B6072AF2C6C483B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ Trio, for violn, cello & piano in C minor (completed by Maximilian Steinberg)
 magnet:?xt=urn:btih:6CDA99B031C035ABCBA2A74E17156D7DDAD99F61
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -653,6 +703,8 @@ magnet:?xt=urn:btih:6CDA99B031C035ABCBA2A74E17156D7DDAD99F61
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

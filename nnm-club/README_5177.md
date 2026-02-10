@@ -19,6 +19,8 @@ Shotcut - мощное кроссплатформенное приложение
 magnet:?xt=urn:btih:21DD1BC2677D7884B4CFF220948E077E7804D941
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:612741AA5A0313FD5ABDB20339240B00C39FD8D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:612741AA5A0313FD5ABDB20339240B00C39FD8D7
 magnet:?xt=urn:btih:CA7E7BF3F3796449727537F7211AB099A162D01D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:CA7E7BF3F3796449727537F7211AB099A162D01D
 ```bash
 magnet:?xt=urn:btih:DC2D03B885D7EFF40426223C993F46FC46BD0D84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:DC2D03B885D7EFF40426223C993F46FC46BD0D84
 magnet:?xt=urn:btih:A0D00753DB18BC77064512F79E119B1A14FEB547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:A0D00753DB18BC77064512F79E119B1A14FEB547
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ Kingsman / Kingsman (2014-2021) BDRip [H.264/1080p-LQ] [Трилогия]
 magnet:?xt=urn:btih:F0409421C1FF9772AACE63BE169992A8CCE5B0D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ magnet:?xt=urn:btih:F0409421C1FF9772AACE63BE169992A8CCE5B0D0
 ```bash
 magnet:?xt=urn:btih:548EE792FF4D4E88FE2E1AD9E2DA5332C8DB5891
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ Sublime Text не является свободным или открытым п
 magnet:?xt=urn:btih:C6648F5C1300389EFA75B52E4E9C0FFDBB52BC1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +254,8 @@ Brian Lipp | Modern Data Architectures with Python (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:F546496F36B4EAE1AC288DE5AFC4A1178A406636
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +281,8 @@ Hetman Partition Recovery - программа восстанавливает у
 magnet:?xt=urn:btih:5044C85FA67460F525291587D695745B1F7E3E67
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -284,6 +306,8 @@ magnet:?xt=urn:btih:5044C85FA67460F525291587D695745B1F7E3E67
 ```bash
 magnet:?xt=urn:btih:33344A0976AA42DE948C977D7333B4694EDE7C3D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +333,8 @@ Lillusion - это ролевая игра с традиционной 2D-гра
 magnet:?xt=urn:btih:F020448D7FBA1D4C21E46FA388E4D5750AD26BFB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:F020448D7FBA1D4C21E46FA388E4D5750AD26BFB
 ```bash
 magnet:?xt=urn:btih:57FA22845EAB6C3C60C4BE49A6B1744688DC83F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +385,8 @@ Smart Defrag - дефрагментатор, позволяющий довест
 magnet:?xt=urn:btih:D7F7144ECAA170BB82DA346FF508E0DD16F872CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:BC72EDC75A8E0D3202670A2C1BEB83F1EA934BFC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:BC72EDC75A8E0D3202670A2C1BEB83F1EA934BFC
 ```bash
 magnet:?xt=urn:btih:BFBA2B94F1B98001E72AB080E71F9E93D8213A98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +464,8 @@ magnet:?xt=urn:btih:BFBA2B94F1B98001E72AB080E71F9E93D8213A98
 magnet:?xt=urn:btih:7E66456419B249038E4728889565CBC6782E532E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +489,8 @@ magnet:?xt=urn:btih:7E66456419B249038E4728889565CBC6782E532E
 ```bash
 magnet:?xt=urn:btih:8620CD0ECBE1BC42839EA693A4501EA16EB1EECA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ Cлушайте (   Читать дальше...   )Язык интерфейс
 magnet:?xt=urn:btih:AF6B868C70DB4CED1B926E6E242B4203B009B15F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ magnet:?xt=urn:btih:AF6B868C70DB4CED1B926E6E242B4203B009B15F
 magnet:?xt=urn:btih:AA9427EE3346CA3401E722A3B87D43634A53ADBE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ Racine (2023) [Multi] (1.0.1) License GOG
 ```bash
 magnet:?xt=urn:btih:3E99E6613CDF36FC92CEE814DBCFE0D1CB2EB388
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:3E99E6613CDF36FC92CEE814DBCFE0D1CB2EB388
 magnet:?xt=urn:btih:078D23A8D86DF8CD7894CA93D6E96EEC71525AD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +623,8 @@ DriverMax - утилита, предназначенная для загрузк
 ```bash
 magnet:?xt=urn:btih:9A472B34F16A95D73A530A4614C3B5AA0CD51A08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,6 +650,8 @@ magnet:?xt=urn:btih:9A472B34F16A95D73A530A4614C3B5AA0CD51A08
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:9A472B34F16A95D73A530A4614C3B5AA0CD51A08
 ```bash
 magnet:?xt=urn:btih:CCF491FD95C468A4B3F4E8EC52043237F2B5FCB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

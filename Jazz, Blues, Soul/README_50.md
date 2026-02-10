@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kenny G - 16 альбомов (1982-2004) [MP3|192 кб/с]<Jazz, Smooth Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ Kenny G - 16 альбомов (1982-2004) [MP3|192 кб/с]<Jazz, Smooth Jazz>
 magnet:?xt=urn:btih:83C073ACE51EEA27B3737A8761B5ABB7D4ED0F99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Candy Dulfer - 10 альбомов (1989-2003) [MP3|128 кб/с]<Jazz, Smooth Ja
 ```bash
 magnet:?xt=urn:btih:BEAA28A303FA13CA34BEC1E775EBE9F02AA509D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -127,6 +135,8 @@ Quadro Nuevo - In Concert (2012) [MP3|320 кб/с]<Jazz, Instrumental>
 magnet:?xt=urn:btih:E608D14D1078050F4D837FC74C3FE7290639F907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ magnet:?xt=urn:btih:E608D14D1078050F4D837FC74C3FE7290639F907
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -188,6 +200,8 @@ The Crusaders, Down to the Bone - The Very Best of Fusion Jazz (2012) [FLAC|Loss
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +234,8 @@ The Crusaders, Down to the Bone - The Very Best of Fusion Jazz (2012) [FLAC|Loss
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +270,8 @@ Rob Tognoni - Boogie Like You Never Did (2012) [FLAC|Lossless]<Heavy Blues Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +295,8 @@ Yehudi Menuhin &  Stephane Grappelli - Menuhin & Grappelli Play... 2CD (2004) [F
 ```bash
 magnet:?xt=urn:btih:46A47F3B5F38C4A051906BDEB5D7B89D76C74927
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +331,8 @@ magnet:?xt=urn:btih:46A47F3B5F38C4A051906BDEB5D7B89D76C74927
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +366,8 @@ magnet:?xt=urn:btih:46A47F3B5F38C4A051906BDEB5D7B89D76C74927
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -371,6 +395,8 @@ Kimbra - Settle Down (2012) EP [FLAC|Lossless]<Indie, Vocal Jazz, Soul>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +431,8 @@ VA - 100 Blues 'n' Soul Greats (1993) 4CD [MP3|320 кб/с]<Blues & Soul>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +465,8 @@ VA - 100 Blues 'n' Soul Greats (1993) 4CD [MP3|320 кб/с]<Blues & Soul>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -471,6 +501,8 @@ Jessy Martens & Band - Brand New Ride (2012) [WavPack|Lossless]<Blues, Blues-Roc
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +535,8 @@ Dave Grusin - Migration (1989) [FLAC|Lossless]<Jazz, Contemporary, Crossover Jaz
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +571,8 @@ VA - Jazz and '70s, '80s, '90s ( Collection ) (2008) [FLAC|Lossless]<Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,6 +605,8 @@ Renaud Garcia-Fons - Solo: The Marcevol Concer (2012) [FLAC|Lossless]<Contempora
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,6 +641,8 @@ V.A. - The Mood Mosaic (1999) Vol.8 [FLAC|Lossless]<Easy Listening, Jazz-Funk,  
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +675,8 @@ Norah Jones - Little Broken Hearts (2012) [MP3|320 кб/с]<Jazz, Blues, Pop Roc
 ```bash
 magnet:?xt=urn:btih:8C6DABE262B84D21FF7A786BF9918DE1C1D92971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,6 +711,8 @@ Bebo Best & Super Lounge Orchestra - Saronno On The Rocks (2011) [FLAC|Lossless]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -701,6 +745,8 @@ VA - Best Audiophile Voices Vol 7 (2011) [FLAC|Lossless]<Vocal Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -736,6 +782,8 @@ Norah Jones - ...Little Broken Hearts (2012) [FLAC|Lossless]<Jazz, Blues, Pop, F
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -769,6 +817,8 @@ Teddy Wilson - Solo (2001) [FLAC|Lossless]<Stride, Piano Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -801,6 +851,8 @@ Big Joe Turner - All The Classic Hits 1938-1952 (2003) 5 CD BoxSet [MP3|320 кб
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

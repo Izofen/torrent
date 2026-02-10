@@ -19,6 +19,8 @@ Agrar Simulator 2012 Deluxe (L) [Ge/En] 2011
 magnet:?xt=urn:btih:0D001681CD40FD0AA17C3D7F78717FD5DE87988B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Counter Strike Source - Modern Warfare 3 - это пропатченная ве�
 ```bash
 magnet:?xt=urn:btih:C3043147BE28BB78E3B75B5F4B6D49AC4AF9A30E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Blade это журнал о коллекционировании ножей.
 magnet:?xt=urn:btih:1C4862A250295D4B83CAD34DF81BB64FB1AC2228
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:1C4862A250295D4B83CAD34DF81BB64FB1AC2228
 magnet:?xt=urn:btih:78B4AB68DB73EF7F0D55BE1C7424D7BDCF71F310
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:78B4AB68DB73EF7F0D55BE1C7424D7BDCF71F310
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ magnet:?xt=urn:btih:78B4AB68DB73EF7F0D55BE1C7424D7BDCF71F310
 magnet:?xt=urn:btih:E50ABBDA2B8CF35B5210069F0B160F1C6A3DA9C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:E50ABBDA2B8CF35B5210069F0B160F1C6A3DA9C6
 magnet:?xt=urn:btih:E91CEEBC684B80C830F70C27D8E8AC52E2694E6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:E91CEEBC684B80C830F70C27D8E8AC52E2694E6F
 magnet:?xt=urn:btih:440AE1222B297D61E2B6E3E879EE45A010EB06AD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:440AE1222B297D61E2B6E3E879EE45A010EB06AD
 ```bash
 magnet:?xt=urn:btih:9A719463288339787A773AE483DAC9C405BCE959
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:9A719463288339787A773AE483DAC9C405BCE959
 magnet:?xt=urn:btih:65A14DE2466E57FB471D50C7014A766427AD3E0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ To Aru Kagaku no Railgun / A Certain Scientific Railgun / Научный Рей�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -295,6 +317,8 @@ To Aru Kagaku no Railgun / A Certain Scientific Railgun / Научный Рей�
 magnet:?xt=urn:btih:E81707CEC1CF5E38853A53A41395C3DBF23434D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +342,8 @@ magnet:?xt=urn:btih:E81707CEC1CF5E38853A53A41395C3DBF23434D3
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:E81707CEC1CF5E38853A53A41395C3DBF23434D3
 magnet:?xt=urn:btih:F5818E22A6D490F9C87D29CFC3B8C5DE8AA50BEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -366,6 +394,8 @@ magnet:?xt=urn:btih:F5818E22A6D490F9C87D29CFC3B8C5DE8AA50BEF
 ```bash
 magnet:?xt=urn:btih:D4A21BCD7F77A838B32E3E8AF3D690AD7EFC35FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:D4A21BCD7F77A838B32E3E8AF3D690AD7EFC35FE
 magnet:?xt=urn:btih:3F80D906272C68D1B0B3B1B4AADAC981038D3A82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -418,6 +450,8 @@ magnet:?xt=urn:btih:3F80D906272C68D1B0B3B1B4AADAC981038D3A82
 ```bash
 magnet:?xt=urn:btih:118973994E250D35AB0326A2F0A348F6E570D23C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ Halloween - Terrortory (2012) [FLAC|Lossless]<Heavy Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ Party Planner (P) [En] 2009
 ```bash
 magnet:?xt=urn:btih:0601F50D0F7707DF2C11C502453BD127F5B3B6B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +547,8 @@ Powerwolf - Alive In The Night (Live) (2012) [MP3|320 кб/с]<Power Metal>
 magnet:?xt=urn:btih:88B65D915D8BD9B5C7AEE6D8B58F7E799C345E82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ magnet:?xt=urn:btih:88B65D915D8BD9B5C7AEE6D8B58F7E799C345E82
 ```bash
 magnet:?xt=urn:btih:2F923B758676706E687433F5C233CBE15EBB9945
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +599,8 @@ magnet:?xt=urn:btih:2F923B758676706E687433F5C233CBE15EBB9945
 magnet:?xt=urn:btih:E3C26283F37B5C4E6150FC8488EFEDF07B53B0E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:E3C26283F37B5C4E6150FC8488EFEDF07B53B0E7
 magnet:?xt=urn:btih:618D96A02795156020733AB49165A5AC9E9DD232
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:618D96A02795156020733AB49165A5AC9E9DD232
 ```bash
 magnet:?xt=urn:btih:6D0F9942C4AF9A439583FB5D7E304428773EBDC8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -636,6 +684,8 @@ The Brandt Brauer Frick Ensemble - Mr. Machine (2011) [MP3|~245 кб/с (V0)]<Ex
 magnet:?xt=urn:btih:AB104999D53EA20EA3EA5E81B504911EE4DB6558
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +713,8 @@ magnet:?xt=urn:btih:AB104999D53EA20EA3EA5E81B504911EE4DB6558
 ```bash
 magnet:?xt=urn:btih:B940FADB4EED26867DD89A498288EFC0F0651C50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

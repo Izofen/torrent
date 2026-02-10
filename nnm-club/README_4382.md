@@ -22,6 +22,8 @@ VA - Western Mood (2023) 2CD  [MP3|320 Kbps] <Country>
 magnet:?xt=urn:btih:2463E934379525D6E1430039D0AFCBB3ACE2062F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ PhotoRescue - программа для восстановления удалё�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +75,8 @@ CRAX Commander — это двухпанельный файловый менед
 ```bash
 magnet:?xt=urn:btih:B98EE7AE6EB81A3F9809FA8D92DB4749BD662F0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ Guitar Rock Tour 2 HD [Игра] (Symbian^3)
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Guitar Rock Tour 2 HD [Игра] (Symbian^3)
 ```bash
 magnet:?xt=urn:btih:5DED85D0C096F510DFDA516CB7373042D75AC9E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ VA - Hit News Vol. 7 '96 (1996) [OGG Vorbis|480 Kbps] <Electronic, Euro House>
 ```bash
 magnet:?xt=urn:btih:35840338C8844828AD01BF48C4FD6B83C910EFBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ X (2006)(   Читать дальше...   )Жанр: Smooth Jazz, Crossover Jaz
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -204,6 +218,8 @@ X (2006)(   Читать дальше...   )Жанр: Smooth Jazz, Crossover Jaz
 ```bash
 magnet:?xt=urn:btih:48EB4B71696497440E878EF56107ED9934E04DB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ magnet:?xt=urn:btih:48EB4B71696497440E878EF56107ED9934E04DB0
 magnet:?xt=urn:btih:26F5FB82EB81CF6A112663DB52DC0148518B626C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -252,6 +270,8 @@ magnet:?xt=urn:btih:26F5FB82EB81CF6A112663DB52DC0148518B626C
 ```bash
 magnet:?xt=urn:btih:1E349C1A9B09283A412316207999BCA55A32B8D0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ magnet:?xt=urn:btih:1E349C1A9B09283A412316207999BCA55A32B8D0
 magnet:?xt=urn:btih:784ACCF0106C45E4B487F60285BCD9A0CD7ADB8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ magnet:?xt=urn:btih:784ACCF0106C45E4B487F60285BCD9A0CD7ADB8F
 ```bash
 magnet:?xt=urn:btih:BD2453786CBFF969D45F4C850BC5473759698781
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:BD2453786CBFF969D45F4C850BC5473759698781
 magnet:?xt=urn:btih:8C0E272D7AAAF51D1B39D51BE13981520830942D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ magnet:?xt=urn:btih:8C0E272D7AAAF51D1B39D51BE13981520830942D
 ```bash
 magnet:?xt=urn:btih:1EC7246B0F466FDE86825FF3E58B5EB95A7DE03E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +403,8 @@ magnet:?xt=urn:btih:1EC7246B0F466FDE86825FF3E58B5EB95A7DE03E
 magnet:?xt=urn:btih:C48196B3AF0B50D0FA5671DD87A23FD09CFEA2B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ magnet:?xt=urn:btih:C48196B3AF0B50D0FA5671DD87A23FD09CFEA2B9
 ```bash
 magnet:?xt=urn:btih:082C4EA137261A37B6FC1BA7CE99E00F76F3A171
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +458,8 @@ Glenn Hughes & Robin George - Overcome (2023) [FLAC|Lossless|WEB-DL|tracks] <Hea
 magnet:?xt=urn:btih:B136B8A42779544968D1CAE14C4BFD2F558E78D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -449,6 +483,8 @@ Espresso - программа для веб-разработчиков и веб
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +513,8 @@ Necronomicon - Screams (1994) Reissue, 2019, Metal Command Records [FLAC|Lossles
 magnet:?xt=urn:btih:63484CD495C8A0A5EE75C9F80CA1C41EED8161F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:63484CD495C8A0A5EE75C9F80CA1C41EED8161F7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +574,8 @@ Shelly - Snow Rose eXcel (2002) [FLAC|Lossless]<Jazz, Audiophile Female Voices>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +600,8 @@ Shelly - Snow Rose eXcel (2002) [FLAC|Lossless]<Jazz, Audiophile Female Voices>
 magnet:?xt=urn:btih:DE5717D4D4977167AEC67C1B0E61376ACD63D8FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ Corel AfterShot Pro 1.1.0.30 [Multi+Rus]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ Vehemence - Helping The World To See (2004) [APE|Lossless|image + .cue] <Metal, 
 magnet:?xt=urn:btih:CBDEA3D286BE2EFEA8AD865A0590AEB6D93D9C22
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +681,8 @@ Lucky Patcher (Лаки патчер) – отличное решение есл
 magnet:?xt=urn:btih:6CCF471EACF836A5E484B48ABD4BAD66614267A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -656,6 +706,8 @@ magnet:?xt=urn:btih:6CCF471EACF836A5E484B48ABD4BAD66614267A3
 ```bash
 magnet:?xt=urn:btih:5168D72D39E4B6CECB531EBF6AC64A3AAF3E2700
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

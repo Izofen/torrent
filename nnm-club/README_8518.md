@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:AF937ED354A5EC68961539B7A04FD80C382DEBE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:AF937ED354A5EC68961539B7A04FD80C382DEBE9
 ```bash
 magnet:?xt=urn:btih:7854CD5B360A743829E34B9FB0EA9C688013CF36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:7854CD5B360A743829E34B9FB0EA9C688013CF36
 magnet:?xt=urn:btih:563974ABD368C3338EBE4FCFBAA1BB90ABDF9580
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ PictureThis - Plant Identification v5.16.0 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:D5E27B6C1EAB27AC64F321B8784ED99C5DB35F38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ VFU (Visionary Font Ultra) - универсальный шрифт с 9 вари
 magnet:?xt=urn:btih:6AFDD4D9E3B7E7ED94F80E1C584C2A6A7AB5FF5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:6AFDD4D9E3B7E7ED94F80E1C584C2A6A7AB5FF5A
 ```bash
 magnet:?xt=urn:btih:8CE243CAC3F6946A4BE82CE36484CCF1B8900FA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:8CE243CAC3F6946A4BE82CE36484CCF1B8900FA6
 ```bash
 magnet:?xt=urn:btih:FA76265D29266D425696092332ABDF7469819ECB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ magnet:?xt=urn:btih:FA76265D29266D425696092332ABDF7469819ECB
 magnet:?xt=urn:btih:C824976E61F45389D62F12B0657CAE768791624F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:C824976E61F45389D62F12B0657CAE768791624F
 ```bash
 magnet:?xt=urn:btih:7073E96D944424304437AA8DA18458C3C747E09B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +258,8 @@ Photo Studio — не просто приложение для редактир�
 magnet:?xt=urn:btih:CB11FCBA50B25E6402401BBDFD3F18DE19E6932C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:CB11FCBA50B25E6402401BBDFD3F18DE19E6932C
 ```bash
 magnet:?xt=urn:btih:702BA3B034C8E554EEE749BC8C314A3149C27038
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:702BA3B034C8E554EEE749BC8C314A3149C27038
 magnet:?xt=urn:btih:DF4ABACBCF0AFA46CF19560D430BC1F3807996F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ magnet:?xt=urn:btih:DF4ABACBCF0AFA46CF19560D430BC1F3807996F1
 ```bash
 magnet:?xt=urn:btih:5FC58E69508534BA48AA0E871BFC873CADF70B2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -338,6 +364,8 @@ A Building Full of Cats 2 помещает игрока внутрь много�
 magnet:?xt=urn:btih:FDC9498061CFC13B76027E37C6F05ED9DBE07230
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:FDC9498061CFC13B76027E37C6F05ED9DBE07230
 magnet:?xt=urn:btih:C48E1651A38DEBD72A94185A622F83EA90C616EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:C48E1651A38DEBD72A94185A622F83EA90C616EC
 ```bash
 magnet:?xt=urn:btih:2F9DDECD27B885CF90C14C0CE51AE623BA59D8BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ ARTBAT - Live @ Cercle Odyssey Paris, France (2025-05-29) [MP3|320 Kbps] <Techno
 magnet:?xt=urn:btih:F3EE5AB49FDB13E7681FB6430A55F8D2D5E8B0AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ Little Witch in the Woods позволяет окунуться в жизнь д
 ```bash
 magnet:?xt=urn:btih:C39A68D800BA4CB12D3ED9FE3817661CEFA7B5CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ The Legend of Heroes: Trails in the Sky - ролевой экшн, разраб�
 magnet:?xt=urn:btih:22462C6588A2491028740B6501A0896B9A3A5B97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:22462C6588A2491028740B6501A0896B9A3A5B97
 ```bash
 magnet:?xt=urn:btih:2FC9A5E55C6A61A1CECE2B69191B9C95952598A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ Knock on the Window – это атмосферный хоррор с эстет
 magnet:?xt=urn:btih:6D4B54CB703858AE0334D73CADDE06FCE3EC49AA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ magnet:?xt=urn:btih:6D4B54CB703858AE0334D73CADDE06FCE3EC49AA
 ```bash
 magnet:?xt=urn:btih:5811FF5B53B18483E592A384F9A74BAD168166BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Ocean Match / Рыбки: Три в ряд v3.3.0 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:0C2293F0B7C42C96220A0CB85887BB3474298B56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ ServiceIT: You can do IT (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:25510096A7307DA25F5DD2667DFEB3052959381A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +657,8 @@ Feanor - Hellhammer (2025) [FLAC|Lossless|image + .cue] <Heavy Metal>
 magnet:?xt=urn:btih:62865CCA91B33718C03741E2226732078167477E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +682,8 @@ magnet:?xt=urn:btih:62865CCA91B33718C03741E2226732078167477E
 ```bash
 magnet:?xt=urn:btih:D6FCDA3C7CAD736E1CD26334D565E3968A74DE7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

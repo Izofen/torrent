@@ -22,6 +22,8 @@ The Nikhil Korula Power Trio - Crossroads (2023) [FLAC|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:1D027187BCB1223B343485C294A1164C896276E0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:1D027187BCB1223B343485C294A1164C896276E0
 ```bash
 magnet:?xt=urn:btih:64ECC6F04B580A1D3B4642C020AAC93B1FF57A9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:64ECC6F04B580A1D3B4642C020AAC93B1FF57A9A
 magnet:?xt=urn:btih:92E903D92A166E39E4495043530541A44B0AFF35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ Multitouch 1.27.14 [En]
 ```bash
 magnet:?xt=urn:btih:F33058447F87B9702AB87ACD035465B482C3272F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ Ninja Tracks - основанна в 2004 году композиторами Ka
 magnet:?xt=urn:btih:9069445E81718E2436A4E079679315D75A02F866
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:9069445E81718E2436A4E079679315D75A02F866
 magnet:?xt=urn:btih:029543EC786C4649D72B3183063D8A169EC52ECA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ macOS Big Sur — новейшая версия передовой операц�
 ```bash
 magnet:?xt=urn:btih:AE13899E96675733C5DE6C3236604DA123CD58A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ Travel To Eternity - Атлас Времён (2022) [MP3|320 Kbps] <Melodic Deat
 magnet:?xt=urn:btih:9135B67067A11FA7993619B9A0C29CCE87959D69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ Oxxxymiron - Красота и Уродство (2021) Kultizdat [FLAC 2.0|48/24
 magnet:?xt=urn:btih:B70941B355374AA5216DE0EF19F9831E4B1F0F33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ NG: Инстинкт выживания. Экстремальные джунгл
 ```bash
 magnet:?xt=urn:btih:88161E14D4E5A71FD9008A386F41293BC8860A57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +291,8 @@ James Moody - Wail Moody, Wail (1955) 1992, Original Jazz Classics [FLAC|Lossles
 magnet:?xt=urn:btih:D6F73E73EF34B563E07E39E513F60DC1973B0D49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -297,6 +319,8 @@ magnet:?xt=urn:btih:D6F73E73EF34B563E07E39E513F60DC1973B0D49
 ```bash
 magnet:?xt=urn:btih:4991497B17E81D92F06C9F2A37EC0A45C012A845
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:4991497B17E81D92F06C9F2A37EC0A45C012A845
 magnet:?xt=urn:btih:0F10B5800F58A8E8169847620E668F7CA9C5B31F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:0F10B5800F58A8E8169847620E668F7CA9C5B31F
 magnet:?xt=urn:btih:5BB1FC33CF5331BF2554E27AD60DD37F874A8A78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +402,8 @@ magnet:?xt=urn:btih:5BB1FC33CF5331BF2554E27AD60DD37F874A8A78
 ```bash
 magnet:?xt=urn:btih:6C61D13F9ECA027438E9420A382021392480A593
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -399,6 +429,8 @@ magnet:?xt=urn:btih:6C61D13F9ECA027438E9420A382021392480A593
 magnet:?xt=urn:btih:47A9E49CA237A16BE0BE2B75F6F3BD3FBE16D7D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:47A9E49CA237A16BE0BE2B75F6F3BD3FBE16D7D0
 ```bash
 magnet:?xt=urn:btih:CE06EE6B53E3F9327E3CADE4124235C9A64675F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ Hemina - Romancing The Ether (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Progressi
 magnet:?xt=urn:btih:9237DCE008E081C4CF1AE4114E80156779C7E577
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:9237DCE008E081C4CF1AE4114E80156779C7E577
 ```bash
 magnet:?xt=urn:btih:C9821C54BFBCFEDE332D0E2CF21374CA152FC1CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:C9821C54BFBCFEDE332D0E2CF21374CA152FC1CE
 magnet:?xt=urn:btih:BA962670B7FD0CF49E0316AD425F755F41852AC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:BA962670B7FD0CF49E0316AD425F755F41852AC7
 ```bash
 magnet:?xt=urn:btih:94DA0A576C64CAFF82358B27579297AEA5BBADDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +591,8 @@ magnet:?xt=urn:btih:94DA0A576C64CAFF82358B27579297AEA5BBADDE
 magnet:?xt=urn:btih:861E2DB62D36AF578D862CEB8815BF239432E7D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ Udemy, Михаил Чирков | Python: Быстрый старт (2020) PCRe
 magnet:?xt=urn:btih:613457287C8CCE1C8E997B313B52884AA1D399C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:613457287C8CCE1C8E997B313B52884AA1D399C1
 ```bash
 magnet:?xt=urn:btih:DAA743E3E25969577D58BCDC151716ADB541DCD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ Live-выступление, снятое с помощью отличной п�
 magnet:?xt=urn:btih:493BDE5E15AB198FC2FF2B660C8A07E392ED0C7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ Streetlight - Ignition (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
 ```bash
 magnet:?xt=urn:btih:7B7C4E84A1652C8131953BD9B9E756D8997307F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

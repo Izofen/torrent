@@ -20,6 +20,8 @@ FotoJet Photo Editor - позволяет каждому стать экспер
 magnet:?xt=urn:btih:A66B7C2CDF557E62EF4A48394097E180C586F026
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Music Collection - неплохая программа для создания �
 ```bash
 magnet:?xt=urn:btih:0A3493094FBBD838F7F99FDFC53C7562CD47F75B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Sante DICOM Editor — ведущее в отрасли приложение п�
 ```bash
 magnet:?xt=urn:btih:8C93F6FA6639B016DE7B3DEB5DC62A43B6CDE7CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Bizagi Modeler — это бесплатное программное обесп
 magnet:?xt=urn:btih:0041E0A2FFD61F7CDD9F7A827D66E222550C26DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ DesktopOK - небольшая бесплатная и портативная (�
 ```bash
 magnet:?xt=urn:btih:EBD8AA5F2C4B7F622FB957F390A91BC7DD644787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ TweakNow WinSecret Plus! - позволяет пользователям исс�
 magnet:?xt=urn:btih:DA01083714F9871A915B3B0DC4B3700181160170
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ NewFileTime 7.13 Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5C5779A5645FE9D7CE4EDB85EF686A8101761A0E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +207,8 @@ EssentialPIM - это отмеченное различными наградам
 magnet:?xt=urn:btih:D3B0BDD1B5B637CDD4F4EF83C4616015F0E785AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ Brave - защищённый веб-браузер на базе Chromium, по�
 ```bash
 magnet:?xt=urn:btih:8F5B8CD3FBC7D10AEB36980D0E954C2BC98AEFB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ Chromium – веб-браузер с открытым исходным кодо
 magnet:?xt=urn:btih:8FFC8BDDC1F597E64E90606710344DE97DF378A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ WinCatalog - это простая в использовании програм�
 ```bash
 magnet:?xt=urn:btih:E56803DAA454AD1F6DE49483854BB5BF5ED8D0ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -289,6 +311,8 @@ Skype - бесплатная программа для текстового, г�
 magnet:?xt=urn:btih:11BFC6F6C60D9E029CC0FA03B7532C2A4149C7F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +336,8 @@ Icecream Video Converter Pro 1.36 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:C3E87A34112790EFAF2B519797C6BB023212CD73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Icecream Photo Editor - лучший бесплатный фоторедакто
 magnet:?xt=urn:btih:CC9B85582BCCA596C346BFE6E95342D214852AB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +388,8 @@ Wondershare PDFelement - программа для общего редактир
 ```bash
 magnet:?xt=urn:btih:2C95241370F177716F78DEC858277D3D7659BFD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -386,6 +416,8 @@ Affinity Designer — самое быстрое, удобное и точное 
 magnet:?xt=urn:btih:11ABB4F332CEA01DB93E925FEB977D0DC5C9BF4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -409,6 +441,8 @@ Skype предназначен для личного и делового общ�
 ```bash
 magnet:?xt=urn:btih:23A934B6245DC6D0B4FBE060264CD6C18E9B4FFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +468,8 @@ HWiNFO32/64 - мощный информационный инструмент, к
 magnet:?xt=urn:btih:A5028ED9696244A13E39560B0FEF9D84366611F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +493,8 @@ O&O DiskImage Professional позволяет создавать резервн�
 ```bash
 magnet:?xt=urn:btih:0F48F88C3CF35BD401B071F75FC8EE3E70E14F09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +520,8 @@ Zoner Photo Studio - приложение, созданное для качес�
 magnet:?xt=urn:btih:8FAD5E417EE7C036339A8BBD3408E66CEE2D69F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +545,8 @@ Affinity Photo переопределяет границы профессион�
 ```bash
 magnet:?xt=urn:btih:93D9817BF7A197EDC63D5F4C0A1185BAC5564CB0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Affinity Publisher 2 v.2.2.1  [Multi]
 magnet:?xt=urn:btih:B8960CC2A1CC9729EAB31BB87522C1CD996BB122
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -555,6 +599,8 @@ AirFoil – специальное программное обеспечение
 magnet:?xt=urn:btih:76951D0EEE6286C5C07DA4D850933DE5C1D814C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -578,6 +624,8 @@ Camtasia for Mac — эффективное приложение для созд
 ```bash
 magnet:?xt=urn:btih:A8FF42A5D9345526CFB1253D652BA5ED18BA5BF8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +652,8 @@ GoodTask — это элегантная и мощная «напоминалк�
 magnet:?xt=urn:btih:E3616A0ED85510BCA5AF622548E43FFFCEEFDB86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -627,6 +677,8 @@ Dash - очень удобное приложение, включающее в �
 ```bash
 magnet:?xt=urn:btih:1D43BCA87541F231D2B9FE09ECBE2F7AA5713B8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

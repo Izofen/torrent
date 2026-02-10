@@ -19,6 +19,8 @@ Forgotten Mines - тысячу лет назад в шахтах Дорвгра�
 magnet:?xt=urn:btih:00242A6E00F7DD8E8B8D33E5EB35ED7B66C9C747
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Maliki: Poison Of The Past (2025) [Multi] (1.3.2) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:FBE18A68751A95510D547A58DF6B3144832BE15E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Wizard of Legend 2 (2024) [Ru/Multi] (1.0) Repack seleZen
 magnet:?xt=urn:btih:1E79A6A09E6C76A23902F09E77207E0DBD7BF104
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Wizard of Legend 2 (2024) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:E4134586327F5294AEAB77A54282FD3D3F5D9595
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Len's Island (2021) [Ru/Multi] (1.0/dlc) Repack FitGirl
 magnet:?xt=urn:btih:21851684A33D1467F231F5D57A04E2739CF20DD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Fallout 3 - это сочетание шутера от первого лица,
 ```bash
 magnet:?xt=urn:btih:F23881582348D54682E5AAB3DEDAF9EA12E95B88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Svarog's Dream выделяется как увлекательная РПГ, п
 magnet:?xt=urn:btih:649061F0C31A4D244EFD4C3AC767B4D08440521E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Void Sails (2025) [En] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:9DD4BF4292D1210062E545C761161CD1041CF3BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Augmented Empire (2025) [Multi] (22089) Repack FitGirl
 magnet:?xt=urn:btih:81146A5DE5C3371E0305CDD9E052105E4EB4009F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Yao-Guai Hunter - это уникальный рогалик с элемента
 ```bash
 magnet:?xt=urn:btih:4E3C7F99D28B0DFA2D87FD9FC802B58B8BF47BE7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Stone 4 Souls (2025) [Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:FB378DE0A6100DDCCA0C84D5C6F45E3A5EF132D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Vambrace: Dungeon Monarch (2025) [Multi] (Build 28889904) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:6ABF53D402778772DD28726C9F4F95549AA53C81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Stolen Realm смешивает пошаговую тактику с данже�
 magnet:?xt=urn:btih:9F9C82F0F24410762271907D10A8880E634D8D64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Shadows of Doubt (2024) [Ru/Multi] (40.03.1/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:75D1F9FB1807ED0B2433CBAE7F23C3823FA4F6A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Soulstone Survivors - это динамичный экшен-рогалик, г�
 magnet:?xt=urn:btih:7063C0A3EADC8EC6CFD0A2C25339B885C0B7ADA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Empire of Sin - стратегическая игра от Romero Games и Parad
 ```bash
 magnet:?xt=urn:btih:CE82CCDC140552713DCEBEBC0FEAFDEEC8F8648B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Cryptmaster – здесь вы сможете говорить что угод�
 magnet:?xt=urn:btih:FA54719C156117C1B1E26C609F0A41AC442D43B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Heads Will Roll: Reforged позволит игроку примерить на 
 ```bash
 magnet:?xt=urn:btih:62E941ECA17CAD5F1AE9C99BA49E207F861614A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Dustwind: Resistance - это тактическая одиночная игра
 magnet:?xt=urn:btih:A5E9BC7B9DC8EB1D72270D8590A59FF9028BABE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Bard's Tale IV (4): Barrows Deep (2018) [Ru/Multi] (4.18.3-109511/dlc) Licen
 ```bash
 magnet:?xt=urn:btih:3C7803CA446A4B0E0908352E450DB694EAFB4F6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Prison Simulator (2021) [Ru/Multi] (1.4.3.18/dlc) Repack FitGirl
 magnet:?xt=urn:btih:FB8E05DE5AD3414A28D28A7C477AE53C89D4CD2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Caribbean Legend - пиратская РПГ с открытым миром по
 ```bash
 magnet:?xt=urn:btih:953EF09CDF5EA1AC73E46E14B0961FDDD215CB9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Clair Obscur: Expedition 33 (2025) [Ru/Multi] (1.3.1/dlc) Scene Rune [Deluxe Edi
 magnet:?xt=urn:btih:8E7FE3986C37A7BF792AF2A89CE224A84669F368
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Lost in Random: The Eternal Die объединила динамичный экш
 ```bash
 magnet:?xt=urn:btih:948E9B7E64FCD724A9A64614DE2B6F1200770EA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ V Rising (2024) [Ru/Multi] (1.1.9.0-r92199-b5/dlc) Repack Pioneer
 magnet:?xt=urn:btih:C19D0D93400F9457E6D75F04CA1A46A60D0EC3F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ The Book of Aaru (2025) [Ru/Multi] (1.0) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:BDA7E41D43384A4EBF7F3C213BC96E3E65EE03E7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

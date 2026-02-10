@@ -1,3 +1,29 @@
+###  Публикация: 1256584   (353571) от 22.10.2018
+
+Tears for Fears - Shout (2017) Remix [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_353571.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shout ★ DJ SAVIN Remix ★ Radio VersionЖанр: Deep HouseПродолжительность: 00:03:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E093320320B51C6391CA314CEAA2966A131F98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952754   (353663) от 02.11.2015
 
 VA - Autumn Hits Vol.2 (2015) [MP3|320 кб/с]<Club, Dance, House>
@@ -21,6 +47,8 @@ VA - Autumn Hits Vol.2 (2015) [MP3|320 кб/с]<Club, Dance, House>
 ```bash
 magnet:?xt=urn:btih:CA898533C1BBBEF6B7B2AD9F6999F70100995F8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +77,8 @@ VA - Deep Chill Vol 1 Finest In Ambient Chill Out and Lounge for Best Relaxation
 magnet:?xt=urn:btih:EB4647E808D333EEC5A856F7D2689AA71DAC13D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +105,8 @@ VA - Winter Xmas Deluxe Holiday Edition Smooth Lounge and selected Chillout Cafe
 ```bash
 magnet:?xt=urn:btih:F6417C809A7FF89A2165B89B1437CC11FC2910D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +135,8 @@ VA - EDC Funky House (2020) [MP3|320 Kbps] <Disco, Funky House>
 magnet:?xt=urn:btih:FBB9F421724EF809A996DD63EB162AE29D54638C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +163,8 @@ VA - По волне моей памяти: Том 21 (Compiled by Виктор3
 ```bash
 magnet:?xt=urn:btih:01A5313893F89172CEB1CCA1141213C63BB67FA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +193,8 @@ VA - Record Super Chart #509 (2017) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:1D69C2946CC0FF47069796E3C87FB363DE06404A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -182,6 +220,8 @@ magnet:?xt=urn:btih:1D69C2946CC0FF47069796E3C87FB363DE06404A
 ```bash
 magnet:?xt=urn:btih:E0C46EF31E5F4964DDBDCB6154A397DE9173FCD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -210,6 +250,8 @@ VA - Parametric Tech House (2018) [MP3|320 Kbps] <Tech House, Electro>
 magnet:?xt=urn:btih:EC539D5CEF855E939A226D8A62D9E2D1730C67EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +279,8 @@ VA - Музыка в дорогу: Приятного полёта (2019) [MP3|3
 magnet:?xt=urn:btih:EDDA12DE09D4D205A76D42726E441D9A43594098
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +307,8 @@ VA - Jazz About Lounge (2017) [MP3|320 Kbps] <Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:970D8D1E677E4D163CB011151F84A98CB099B89E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +340,8 @@ CD 01:
 magnet:?xt=urn:btih:96B93549E4EA29477F33FB72F9E68846CF8B0358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -320,6 +368,8 @@ Foreigner - A Night to Remember (2018) (Compilation) [MP3|320 Kbps] <Hard Rock, 
 ```bash
 magnet:?xt=urn:btih:24C4B332ECD68AAC918D7E386CFC68152C24EF66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -348,6 +398,8 @@ VA - Хорошая Музыка на Все Времена (2016) [MP3|320 Kbps
 magnet:?xt=urn:btih:855035280DB70501793E52A16DB70F188D79A9BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +427,8 @@ VA - Postulates Of Babylon (2018) [MP3|320 Kbps] <Rock, Hard Rock>
 magnet:?xt=urn:btih:63B48A7E888984E2351AC2292D5F221B0FE7F7A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -401,6 +455,8 @@ VA - Kiss FM Top 40 21.10.2018 [MP3|320 Kbps] <House, Pop, Dance>
 ```bash
 magnet:?xt=urn:btih:395F63AC566F6DF3CAD7C51184A269D009204FBE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +488,8 @@ Hits of My Soul - сборник электронной и инструмент�
 magnet:?xt=urn:btih:8EFAD68C1376893DEB31B81D47D084F0815EA616
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +516,8 @@ VA - Deep House Collection Vol.188 (2018) [MP3|320 Kbps] <Deep House>
 ```bash
 magnet:?xt=urn:btih:0A9ECEBEA2A4FD53ADA4CB98911987913636B55B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -486,6 +546,8 @@ VA - Record Super Chart 558 (2018) [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:C28014BB1A9B132DED5BCB568483CAD05FD8E84D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +574,8 @@ Roger Shah - Live I Love Qiev (2008) [MP3|192 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:07AC1BB2B8A215ABF34A1AC83C08081DC5169377
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +604,8 @@ VA - ЕвроХит Топ 40 Europa Plus 04.10.2019 [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:DC803BC162C9479DC2561DB4BBD6C73E813172BD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -566,6 +632,8 @@ magnet:?xt=urn:btih:DC803BC162C9479DC2561DB4BBD6C73E813172BD
 ```bash
 magnet:?xt=urn:btih:3E1FCE575E6E999CF07609610A6210787EAE9807
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -594,6 +662,8 @@ VA - New Music Releases September 2022 #3 (2022) [MP3|320 Kbps] <Pop, Dance, Roc
 magnet:?xt=urn:btih:F23684D61DE9DA134573A10209FE0E14EED81FEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +690,8 @@ LOVE радио - Тор 20
 ```bash
 magnet:?xt=urn:btih:74D4D612B1CC76D6EC4F08BA781EAEBB2170F5FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +720,8 @@ VA - Regular Spectr Electronic Top 100 (2016) [MP3|320 Kbps] <House, Future Hous
 magnet:?xt=urn:btih:898704F8F07D29B11928383DB8ABD34E1E75BF58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,32 +749,7 @@ VA - Zwei Tage Dubstep: Chart DE (2016) [MP3|320 Kbps] <Dubstep, Drumm And Bass>
 magnet:?xt=urn:btih:AAB9981D62873FD1A204514FFA5226A4DACA701D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072224   (354877) от 12.11.2016
-
-VA - The Best - In Music We Trust  Vol.11 (2016) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_354877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bart Claessen - Fonky Flanger (Original Mix) 4:54
-02. Calvin Harris & Florence Welch ft. Sini - Sweet Jack (Herbee Mashup) 3:28
-03. ATB - Flash X (James Egbert Remix) 4:41
-04. Rimsky - Korolev (Extended Mix) 4:30(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 06:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:962A640A10EE716F45DAFB97BB23B194FF9EF842
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

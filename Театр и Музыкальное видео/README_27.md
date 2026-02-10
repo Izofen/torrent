@@ -19,6 +19,8 @@ Peter Gabriel - New Blood (Live in London) (2011) HDTV
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -52,6 +54,8 @@ Yanni: A Living Legacy (2011) DVD5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -76,6 +80,8 @@ Yanni: A Living Legacy (2011) DVD5
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Yanni: A Living Legacy (2011) DVD5
 ```bash
 magnet:?xt=urn:btih:8FF226857420E82D76065E09D0899C96495C3F47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -133,6 +141,8 @@ The Moody Blues - Lovely to See You. Live at the Greek (2005) DVDRip
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ DVJ Bazuka - Girlz In Love (Uncensored) (2011) [H.264]WEBRip
 ```bash
 magnet:?xt=urn:btih:B629D907ACEF910AF205726D07FC656C85A77175
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +201,8 @@ Greatest Hits — второй концертный альбом группы Ч
 magnet:?xt=urn:btih:571605D6B9AAEAEDDC0CDF197740ED865DDCA354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +226,8 @@ magnet:?xt=urn:btih:571605D6B9AAEAEDDC0CDF197740ED865DDCA354
 ```bash
 magnet:?xt=urn:btih:790B5C8F2F69D5C7555F687A531F0AB440C2519F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +262,8 @@ Amy Winehouse: I Told You I Was Trouble - Live In London (2007/2008) [1080i] Blu
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -279,6 +297,8 @@ U2 - Live at Glastonbury Festival (2011) HDTVRip [H.264]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +323,8 @@ Robert Plant & The Band Of Joy - Live From The Artists Den (2011) HDTV
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +348,8 @@ Live From Classic T Stage - записан в июле 2005 года в Sheppert
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +384,8 @@ Live From Classic T Stage - записан в июле 2005 года в Sheppert
 magnet:?xt=urn:btih:470493FC0C72BFEA09B0D5C4C63E6FE03EB8EA24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +410,8 @@ Paul Rodgers  - Live in Glasgow (2006) BDRip
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +435,8 @@ Paul Rodgers  - Live in Glasgow (2006) BDRip
 ```bash
 magnet:?xt=urn:btih:CB52CFBBC118CECD0F2DC0461E46CC3050C7E7F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +463,8 @@ magnet:?xt=urn:btih:CB52CFBBC118CECD0F2DC0461E46CC3050C7E7F5
 ```bash
 magnet:?xt=urn:btih:09CC10847703050905096E54A9333D91D7FAE9BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +498,8 @@ magnet:?xt=urn:btih:09CC10847703050905096E54A9333D91D7FAE9BD
 ```bash
 magnet:?xt=urn:btih:27D8A8E73B6DE5AA46C1418B1E519FD890A62F34
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +537,8 @@ magnet:?xt=urn:btih:27D8A8E73B6DE5AA46C1418B1E519FD890A62F34
 magnet:?xt=urn:btih:DAC250FF30E636A42A71519EBDCC562621ABDF1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +562,8 @@ Eric Clapton - Live In Hyde Park (2001) DVD9
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +589,8 @@ Eric Clapton - Live In Hyde Park (2001) DVD9
 magnet:?xt=urn:btih:45833E50BAC1DF50723F0D208EFC9670B5C2A2C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +614,8 @@ Queen & Paul Rodgers - Cosmos Rocks: Bonus. Super Live In Japan - Highlights. (2
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +643,8 @@ Kazaky  украинская поп-группа. Создана в 2010 г., в
 magnet:?xt=urn:btih:F38264BF8B22BD0B5D1E1EFE7F4405CD7E6E2F84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +669,8 @@ magnet:?xt=urn:btih:F38264BF8B22BD0B5D1E1EFE7F4405CD7E6E2F84
 magnet:?xt=urn:btih:1DC9E8A3B1ABA6FC98F67ED0C79A629E1AD075B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +694,8 @@ magnet:?xt=urn:btih:1DC9E8A3B1ABA6FC98F67ED0C79A629E1AD075B3
 ```bash
 magnet:?xt=urn:btih:F8A88CB020FC3585C56320FBE0F4DD8FB5A5016A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -674,6 +722,8 @@ DVJ BAZUKA – Богиня Электро, первый профессиона�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -699,6 +749,8 @@ Cамое успешное шоу всех времен празднует 25-л
 ```bash
 magnet:?xt=urn:btih:F08E0812734338A8333AB98DB79C5F8453CA2B08
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

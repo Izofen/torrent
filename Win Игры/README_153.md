@@ -19,6 +19,8 @@ King's Bounty: Crossworlds / King's Bounty: Перекрестки миров (2
 magnet:?xt=urn:btih:DAB0EDC384A8B74BD2CF23A55A98B1E1EED2F41C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Republic of Pirates - это не типичная градостроитель�
 ```bash
 magnet:?xt=urn:btih:894805DC111498BBFD81CF729484DA8C0D2DC649
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Endless Days Z - напряжённая игра в жанре выживани�
 magnet:?xt=urn:btih:EDFE37BDF1A008401CA2DDAAE29A30729644E6B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Tomb Raider: Definitive Edition - это приключенческий боев
 ```bash
 magnet:?xt=urn:btih:570A9311E9AEDE71DA4D56F6BCD05ADD066044B1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Highrise City совмещает в себе элементы как строи�
 magnet:?xt=urn:btih:79A4A69E3E01CC74F39FE6D852B99963DB186FBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Frogun Encore – в этом красочном расширении/продо
 ```bash
 magnet:?xt=urn:btih:8C1876A14C7A30F3B89A5D64D9A53FBF9716B65A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Grim Tales 25: Light in the Darkness (2024) [En] (1.0) Unofficial [Collector's E
 magnet:?xt=urn:btih:A253D9BB19896D68004116AD71DDF196AEE26D8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Retail Company Simulator помещает вас в гущу розничног�
 ```bash
 magnet:?xt=urn:btih:1F5BA6892F43CDAF7B86DF1EE6223FBC0C0DBEAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Frogun (2022) [Multi] (1.9.3) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:70934CCC48381C05F7B03F3538CA72B6812E65F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Eden Genesis - это не типичный платформер. Конечно
 ```bash
 magnet:?xt=urn:btih:4D570BB8259E485E1370BA2860B0BB519516473C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Campaign Series: Vietnam - тактическая пошаговая варге�
 magnet:?xt=urn:btih:C34A22629D4603BC255C4FB8AF9683A82608AB1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Borderlands The Pre-Sequel (2014) [Ru/Multi] (2.0/dlc) Repack xatab
 ```bash
 magnet:?xt=urn:btih:6E3EFF08A388370EBB1076F9813F8435A2C6307A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Land of the Magnates (2024) [Ru/Multi] (1.0) Scene Rune
 magnet:?xt=urn:btih:67E57F1D2E7FD6C4CB1B6C1D36BF2E24303E461C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Warhammer 40,000: Sanctus Reach - стратегическая пошагова�
 ```bash
 magnet:?xt=urn:btih:2B6B3E2C8116240243F96B5056814DCFA18CD842
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Regiments – стратегия в реальном времени, где Хо
 magnet:?xt=urn:btih:4CBFD9ED527907AEC1661309F2E8389419CD1CDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ People Playground – инди-игра, своеобразный симулят
 ```bash
 magnet:?xt=urn:btih:9C3AF24F7C35B6F03AE52DF38CE591EA0A88EA35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Raiders! Forsaken Earth - ролевая игра с элементами стр
 magnet:?xt=urn:btih:EA831D869BD52EE9FE6C449C3F41951B6391EA71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ KONOSUBA - God's Blessing on this Wonderful World! Love For These Clothes Of Des
 ```bash
 magnet:?xt=urn:btih:A4A4500569D1D762914EAB0B0A7A65A7CA99C43E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Just Xiangqi - увлекательное цифровое воплощение 
 magnet:?xt=urn:btih:CEE6C126C6F018543B590CE352C7EA82EEB49ABD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Alter Ego (2010) [En] (1.0) Scene Skidrow
 ```bash
 magnet:?xt=urn:btih:4E6B969146BF74CA81B506DEDF2D1098529F89DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Highwater переносит игроков в недалекое и мрачн�
 magnet:?xt=urn:btih:1B1D60287D7FD583D4219000F9B968A4247B1B2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Fireside – окунитесь с головой в добрый игровой
 ```bash
 magnet:?xt=urn:btih:04E191E4B51A239202086A4E79C7130547CF5379
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Golf Club Wasteland / Golf Club Nostalgia (2021) [Ru/Multi] (1582) License GOG
 magnet:?xt=urn:btih:B4411B02648F167438DA7F3308424351C620E544
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ World Turtles - это увлекательная средневековая г�
 ```bash
 magnet:?xt=urn:btih:69DFE06EFF85277133689C88FE465AF6F9BF36D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Crypt Custodian - очаровательная метроидвания, нап�
 magnet:?xt=urn:btih:B8C8F9AD67C9B9EBBBACEEB2788AD24392D5134E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Monster Jam Showdown - гоночная игра, которая покажет 
 ```bash
 magnet:?xt=urn:btih:2141F7055ECF0E7A4B494A3509BDD6D12B3E517B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ Rocky Pamplin - Rock (1979) LP [MP3|320 Kbps] <Funk/Soul, Disco>
 magnet:?xt=urn:btih:368981ABAED5CB9CA47022AF8DCCEDC0EC7189EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Udemy, Matthew Blackwood | Rigging Vehicles with Rigid Body Physics in Blender 3
 magnet:?xt=urn:btih:E0EE9A376927EABAE4AB9F35692AB8512F5AE821
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:E0EE9A376927EABAE4AB9F35692AB8512F5AE821
 ```bash
 magnet:?xt=urn:btih:1403267F70621E2A6BC5FE0E7CB27F9C31951EA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -97,6 +103,8 @@ Sung - Metal Age (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Dar
 magnet:?xt=urn:btih:712E81413E70C3A766BB85CB2DFF00D9019AA1AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -124,6 +132,8 @@ Lachaise - In a State of Oblivion (2012) [MP3|320 Kbps] <Symphonic Gothic Metal>
 magnet:?xt=urn:btih:F1CA71098D77A2E824E71AAE1E6E0AB9A130EEB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ Pokemon the Series: Sun & Moon—Ultra Adventures | Покемон: Солнце
 ```bash
 magnet:?xt=urn:btih:1BE7312E46DE47511EFFE66A749EDBD081EA2D5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:1BE7312E46DE47511EFFE66A749EDBD081EA2D5E
 magnet:?xt=urn:btih:29B343EA0DC7EEEF1EFCB5591F80EC82765D3F12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:29B343EA0DC7EEEF1EFCB5591F80EC82765D3F12
 ```bash
 magnet:?xt=urn:btih:049C55C7A181CDC7B041A468E3AAC0A003E6FB44
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -223,6 +239,8 @@ Decimator - Carnage City State Mosh Patrol (1989) [FLAC|Lossless|image + .cue] <
 magnet:?xt=urn:btih:AFF282D89AD6E938CF055F89A1477FB36EF1E3BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ Sophie Ellis-Bextor - HANA (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:67B3802A7F42F718D473DB7FA682B10760F542F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -273,6 +293,8 @@ Luminous - это белая material-оболочка для Poweramp v3. Вы 
 ```bash
 magnet:?xt=urn:btih:7E0C5D6EC47A81149BC2C36FD1DAD228B047F62D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -301,6 +323,8 @@ Mystfall - Celestial Vision (2023) [MP3|320 Kbps] <Symphonic Metal, Gothic Metal
 magnet:?xt=urn:btih:E3E566DA0A50DF7A361F5AFD3D69D79F8AF5383D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ Pixelmator Pro — это невероятно мощный, красивый и
 magnet:?xt=urn:btih:FB65DC53F8823DA228D2394A3AF56FE4AB510678
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -350,6 +376,8 @@ magnet:?xt=urn:btih:FB65DC53F8823DA228D2394A3AF56FE4AB510678
 magnet:?xt=urn:btih:F3D9487D43C22A60F7F41BC6FC9AA0611E237D83
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:F3D9487D43C22A60F7F41BC6FC9AA0611E237D83
 ```bash
 magnet:?xt=urn:btih:AEAC5DA56920F0F28CFBDF58540608B52DBDA67E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -401,6 +431,8 @@ Crossing Eternity - The Rising World (2018) [FLAC|Lossless|image + .cue] <Heavy,
 magnet:?xt=urn:btih:682FE96AC40AB91E902E46A9776779DB37DF86FE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -424,6 +456,8 @@ Ghost Buster Pro находит и удаляет файлы из приложе
 ```bash
 magnet:?xt=urn:btih:271022EC286DBBB51F0B464EBD2FFB0B3F3CBB33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ Oxbow - Love's Holiday (2023) [MP3|320 Kbps] <Art-Rock, Post-Rock, Noise Rock>
 magnet:?xt=urn:btih:E8A933E4DABCE2D7787B6601D50A776C7E56DB8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:E8A933E4DABCE2D7787B6601D50A776C7E56DB8C
 magnet:?xt=urn:btih:7253A86863AA8918B12C52DDD3CBAC9A3D2C29C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ Made - Редактор и коллаж - ещё один впечатляющи
 magnet:?xt=urn:btih:8DB42D38341EA0D34BDAA54DD8C5ED4D46FD9D15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:8DB42D38341EA0D34BDAA54DD8C5ED4D46FD9D15
 ```bash
 magnet:?xt=urn:btih:E58D81960AFC646C702B9F62C73388EC41BB9F03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +594,8 @@ Critical Defiance - No Life Forms (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash M
 magnet:?xt=urn:btih:0E7C1BD750913BD91D19FE13BCA346223EFCC2CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ Data Guardian 7 v.7.3 [En]
 ```bash
 magnet:?xt=urn:btih:0C69EBA5CF37236F475FA4C9AF84CD2C7D1AF389
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -600,6 +646,8 @@ Node Video - один из самых мощных видеоредакторо�
 magnet:?xt=urn:btih:38BB2310B4E432F2B858219E95FEB29B8C21EF4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +671,8 @@ Pokemon the Series: Sun & Moon | Покемон: Солнце и Луна (Seaso
 ```bash
 magnet:?xt=urn:btih:1BB2874587331F233283E40476CEDC0674C97ADB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +698,8 @@ magnet:?xt=urn:btih:1BB2874587331F233283E40476CEDC0674C97ADB
 ```bash
 magnet:?xt=urn:btih:56EAD6505135B512BFFE94C204970BB7DBBBD4B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

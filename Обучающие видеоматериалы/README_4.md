@@ -22,6 +22,8 @@ Udemy, Yasar VURDEM | Digital Hair Painting Masterclass: Realistic Techniques (2
 magnet:?xt=urn:btih:A409E2729E14C2BE2D644A38E1037EC1247748E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ magnet:?xt=urn:btih:A409E2729E14C2BE2D644A38E1037EC1247748E7
 ```bash
 magnet:?xt=urn:btih:7ADFEC27D94CB572E5C40FBBD24A656976ABB4E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ It is not an exaggeration to say that Dependency Injection is one of the core pi
 magnet:?xt=urn:btih:0F74BF89CFEC97E0BEF6B843885257CD32AE4E99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ FIN-RA, Дмитрий Толстяков | Инвест-зарплата (Та�
 magnet:?xt=urn:btih:E3443615F7A107FE1D79A28503D35D713B1079EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Skillfactory, Илья Ибрагимов, Валентин Матвейчик, 
 ```bash
 magnet:?xt=urn:btih:68198F44C5718F1414405FCE2221AABB2DD5AB6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ magnet:?xt=urn:btih:68198F44C5718F1414405FCE2221AABB2DD5AB6A
 magnet:?xt=urn:btih:23A5FE967242EEDC46E371117AAB89411BEBF6EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ owlsova | Авитолог 2025 (2025) WEB-DL [AD] [RU]
 magnet:?xt=urn:btih:20DD1B863F03CE4F7013349BA994AFB1C46B39DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ PhotoCASA, Андрей Васильев | Нейросети для фотог�
 ```bash
 magnet:?xt=urn:btih:B9B3FE316C765F4568DF248512E06B69C423029D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -217,6 +233,8 @@ This course is the embodiment of that idea. Candidate Master Can Kabadayi has wo
 ```bash
 magnet:?xt=urn:btih:0277FC548328881E9C7C8B9EF475B45ACD96DAAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -245,6 +263,8 @@ magnet:?xt=urn:btih:0277FC548328881E9C7C8B9EF475B45ACD96DAAC
 magnet:?xt=urn:btih:E78C060F3E1587C71A5E5CBB961ED8B5418BB473
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:E78C060F3E1587C71A5E5CBB961ED8B5418BB473
 magnet:?xt=urn:btih:9B6155A8910A4933F182901D5D30D54F8CBC2FA3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Maxim School, Максим Куксов | Гамбит Хэллоуин (2023) W
 ```bash
 magnet:?xt=urn:btih:6EB6516C0A3FCF0D8044279E64B6A2068ED29184
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ Maxim School, Максим Куксов | Контргамбит Альбина 
 magnet:?xt=urn:btih:60A8CB5E287A0156442EA3CFC0821253177A181B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -343,6 +369,8 @@ magnet:?xt=urn:btih:60A8CB5E287A0156442EA3CFC0821253177A181B
 ```bash
 magnet:?xt=urn:btih:11DFB9AEB1EE45355095C0B5ADBF3EC63A270EFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -371,6 +399,8 @@ magnet:?xt=urn:btih:11DFB9AEB1EE45355095C0B5ADBF3EC63A270EFE
 magnet:?xt=urn:btih:862457FFAD2264CFE52892127B8C69C905554F8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +428,8 @@ Gumroad, Cane Townsend | Hard Surface in Blender [Part 1-2] (2025) PCRec [EN]
 magnet:?xt=urn:btih:71FE89DC0464EC417E2151744644B11554FEC2E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -421,6 +453,8 @@ Stepik, Марина Эрштейн | ИИ-помощники в подгото�
 ```bash
 magnet:?xt=urn:btih:CBE54BB0E0DD76C79F9CE36938409D1EC336FE5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -446,6 +480,8 @@ magnet:?xt=urn:btih:CBE54BB0E0DD76C79F9CE36938409D1EC336FE5E
 magnet:?xt=urn:btih:5513B22776921938C6CF79BC83317B20A3ADC461
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -470,6 +506,8 @@ ArtStation, LaurentiuN | Ultimate 3D Weapon Tutorial for Portfolio (2025) PCRec 
 ```bash
 magnet:?xt=urn:btih:5EE98CF40CBECE8A0D7E12E38A2657EF3FA7C8EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -498,6 +536,8 @@ magnet:?xt=urn:btih:5EE98CF40CBECE8A0D7E12E38A2657EF3FA7C8EA
 magnet:?xt=urn:btih:ED7C7DE194357CF0F1E7518FA5E416E86613CF71
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -521,6 +561,8 @@ Gumroad, Dan Kenton | Magazine Texturing Tutorial (2024) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:6EB2CD37228C9F23411100A18113388DE1E0874B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +589,8 @@ magnet:?xt=urn:btih:6EB2CD37228C9F23411100A18113388DE1E0874B
 ```bash
 magnet:?xt=urn:btih:D11F30FA8B947B51BFE2D74EE49361FF499F0E1F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +619,8 @@ VideoSmile, Артём Слаква | Супер Blender (2024) PCRec [AD] [RU]
 magnet:?xt=urn:btih:376ACA585D3A6696A04114217C429C10400E140C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +644,8 @@ magnet:?xt=urn:btih:376ACA585D3A6696A04114217C429C10400E140C
 ```bash
 magnet:?xt=urn:btih:AFA5AFE107639346323FF099C21A6FFAFAE85466
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -623,6 +671,8 @@ LiveClasses, Дмитрий Ларионов | Подготовка монтаж
 magnet:?xt=urn:btih:255CDE9000FF2C2D71D850F6C3B56E5CD93B4B1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -646,6 +696,8 @@ magnet:?xt=urn:btih:255CDE9000FF2C2D71D850F6C3B56E5CD93B4B1E
 ```bash
 magnet:?xt=urn:btih:3902B3ADF63E26FC69A7D3A3AF977021AD8BBDF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

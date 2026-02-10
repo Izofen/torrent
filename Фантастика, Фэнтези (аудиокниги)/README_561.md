@@ -1,3 +1,29 @@
+###  Публикация: 1841426   (1047979) от 11.12.2025
+
+Елена Звёздная | Хелл (Книга 1). Обучение наемницы (2018) [MP3, Владимир Анин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_1047979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кто такая Хелл? Обычная девчонка с Земли, которая попадает на планету наемников и пытается выжить. Это история о тех, кто верит, что в каждом из нас есть скрытые возможности, у каждого есть неограниченный потенциал, и если есть ради кого жить, человек способен на все. Вместе с Хелл и ее командой вы окунетесь в будни космических наемников, побываете на планетах, где (   Читать дальше...   )Жанр: Фантастика, фэнтезиИздательство: ЭксмоПродолжительность: 14:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:700D587AFDE089488FC6D4B7BFF60D9713552493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841481   (1047987) от 11.12.2025
 
 Роман Злотников, Игорь Гринчевский | Американец (Книги 1-6) (2016-2025) [MP3, Валерий Захарьев, Виталий Сулимов]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:907AA88CB84D5317CA800E008D3F1461A881CDAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:907AA88CB84D5317CA800E008D3F1461A881CDAA
 magnet:?xt=urn:btih:D277C8492CE8B9B63EE167ED76536C614DDE54E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:D277C8492CE8B9B63EE167ED76536C614DDE54E2
 ```bash
 magnet:?xt=urn:btih:AD74A1A453D11863DF84FCF43D309EE07D1BA3A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:AD74A1A453D11863DF84FCF43D309EE07D1BA3A0
 magnet:?xt=urn:btih:AE5DC70CEE517C211B8940F81ED498E3378493C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:AE5DC70CEE517C211B8940F81ED498E3378493C3
 ```bash
 magnet:?xt=urn:btih:3DA13B09F36824D3E74337ACCF4E8AFA0827C5EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:3DA13B09F36824D3E74337ACCF4E8AFA0827C5EF
 magnet:?xt=urn:btih:FDB8BEC9B1E7B8B8279B4BF706BCC792BF50EDB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:FDB8BEC9B1E7B8B8279B4BF706BCC792BF50EDB1
 ```bash
 magnet:?xt=urn:btih:415E065C29BA1F92D1F7659F4FC281901DC78546
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:415E065C29BA1F92D1F7659F4FC281901DC78546
 magnet:?xt=urn:btih:060F998ECF4F23A5E54031F8D627398EB61ACF46
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:060F998ECF4F23A5E54031F8D627398EB61ACF46
 ```bash
 magnet:?xt=urn:btih:A4292A855B9B1EDAD64048B142A3C38B48207404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:A4292A855B9B1EDAD64048B142A3C38B48207404
 magnet:?xt=urn:btih:6DE5F24A448FC5D948DCC6345181BE6A95D0D796
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:6DE5F24A448FC5D948DCC6345181BE6A95D0D796
 magnet:?xt=urn:btih:126584D00B1D1F1FD45300DA00B0AE32A6AF596C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:126584D00B1D1F1FD45300DA00B0AE32A6AF596C
 ```bash
 magnet:?xt=urn:btih:79AED5FC8B217B8F6DD7B6991E28580E1210F38D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +363,8 @@ magnet:?xt=urn:btih:79AED5FC8B217B8F6DD7B6991E28580E1210F38D
 magnet:?xt=urn:btih:7C354F8546340CC45987A351C76E1856778CFF0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ Vector | Констебль Кас. Констебль (Том 1-4) (2025) [MP3,
 ```bash
 magnet:?xt=urn:btih:9DA80666927F7348A8F7FF303B9F1644C7AAD0EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ Vector | Совершенный (Книги 1-7) (2022-2025) [MP3, Павел К
 magnet:?xt=urn:btih:373FE1C9C27658A4D0A19934A61614EF2FC37ADB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:373FE1C9C27658A4D0A19934A61614EF2FC37ADB
 ```bash
 magnet:?xt=urn:btih:DC9626702FDFA1B86D558B2724AA361918F0D600
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:DC9626702FDFA1B86D558B2724AA361918F0D600
 magnet:?xt=urn:btih:320607B0E48697C5EA39370848A162381CA9A72A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:320607B0E48697C5EA39370848A162381CA9A72A
 ```bash
 magnet:?xt=urn:btih:81AF88153C3509C2E97A35BB64ABD4746DD02B49
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +524,8 @@ magnet:?xt=urn:btih:81AF88153C3509C2E97A35BB64ABD4746DD02B49
 magnet:?xt=urn:btih:A39DC32094FA5B94B10247B930C5E7636F58C776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +549,8 @@ magnet:?xt=urn:btih:A39DC32094FA5B94B10247B930C5E7636F58C776
 ```bash
 magnet:?xt=urn:btih:1F9F638D0760E5C4EE32C867DAC04485FB4C5EC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:1F9F638D0760E5C4EE32C867DAC04485FB4C5EC4
 magnet:?xt=urn:btih:E75B2D07CB5261EAFCB86728F51C984ADC7B19F3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +603,8 @@ magnet:?xt=urn:btih:E75B2D07CB5261EAFCB86728F51C984ADC7B19F3
 magnet:?xt=urn:btih:D74E487ECA50BD039B02B2A1E6A7F34C45E65980
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +628,8 @@ magnet:?xt=urn:btih:D74E487ECA50BD039B02B2A1E6A7F34C45E65980
 ```bash
 magnet:?xt=urn:btih:8957CF9138E69509D619EC912763B9CA81C70C8C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:8957CF9138E69509D619EC912763B9CA81C70C8C
 magnet:?xt=urn:btih:B9E93BC114481F5B09B6DA362F1B763CFA67D295
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,29 +687,7 @@ magnet:?xt=urn:btih:B9E93BC114481F5B09B6DA362F1B763CFA67D295
 magnet:?xt=urn:btih:B39410597674EE829FBA28AF3355E58044D980E8
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841960   (1048397) от 13.12.2025
-
-Findroid | Возвращение демонического мастера (Книга 10) (2025) [MP3, Алексей Воскобойников]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_1048397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Планы сорваны, прежде чем добраться до Радрифа и принять участие в турнире, Натаниэлю предстоит пройти новое испытание в храме Рю Джай Тана.Жанр: ФэнтезиИздательство: ИДДКПродолжительность: 08:27:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:886D0AAEC3E7AC8485ABD0030E4BA42208BC053A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

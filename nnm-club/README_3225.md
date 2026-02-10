@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:EF9563DB6D3ABACCBCB3C8335F097395D80E9AEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ magnet:?xt=urn:btih:EF9563DB6D3ABACCBCB3C8335F097395D80E9AEF
 ```bash
 magnet:?xt=urn:btih:07ACF6420C1F8F9D32C83FAF4B9AA6A88759198E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:07ACF6420C1F8F9D32C83FAF4B9AA6A88759198E
 magnet:?xt=urn:btih:7118772007F8ABC8CFF34123EBB36263283F8A3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:7118772007F8ABC8CFF34123EBB36263283F8A3E
 ```bash
 magnet:?xt=urn:btih:F3D7C81264C1367F4ADF46CDD20AF28B0807CF68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -129,6 +137,8 @@ magnet:?xt=urn:btih:F3D7C81264C1367F4ADF46CDD20AF28B0807CF68
 magnet:?xt=urn:btih:27FECDA6A386B779D1B6AB623DD8CB0972B399DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +164,8 @@ magnet:?xt=urn:btih:27FECDA6A386B779D1B6AB623DD8CB0972B399DB
 ```bash
 magnet:?xt=urn:btih:15E84129237218BAAEF0C8CC6D0A9DC00722462C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +194,8 @@ VA - The Orient Collective - Ancient Wisdom (2024) [FLAC|Lossless|WEB-DL|tracks]
 magnet:?xt=urn:btih:BCAB4806674CC55883C66BB95AB8889D80121C15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -207,6 +221,8 @@ magnet:?xt=urn:btih:BCAB4806674CC55883C66BB95AB8889D80121C15
 ```bash
 magnet:?xt=urn:btih:30993E02CE48AFB64DC8F1AF875B50440C9174E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +251,8 @@ Eclipse - Megalomanium II (2024) Japanese Edition [FLAC|Lossless|image + .cue] <
 magnet:?xt=urn:btih:6CCB0C54AAEE21D53CC09F56DE1F11D542D4A8B3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -262,6 +280,8 @@ Crossbone Skully - High On You (feat. Nikki Sixx) (2024) EP [MP3|320 Kbps] <Hard
 magnet:?xt=urn:btih:881712B4603F02BC92C3ABED673AE2EC6846013C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ magnet:?xt=urn:btih:881712B4603F02BC92C3ABED673AE2EC6846013C
 magnet:?xt=urn:btih:F4938C58A750CDB1C29E2BD2316F0EE639F78E2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +333,8 @@ magnet:?xt=urn:btih:F4938C58A750CDB1C29E2BD2316F0EE639F78E2C
 ```bash
 magnet:?xt=urn:btih:C381DF528A10970C2433BC0C02182A0B66CEC560
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +360,8 @@ magnet:?xt=urn:btih:C381DF528A10970C2433BC0C02182A0B66CEC560
 magnet:?xt=urn:btih:DA9B08B1FA264EB5EC84558F0B33122C8123A946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ magnet:?xt=urn:btih:DA9B08B1FA264EB5EC84558F0B33122C8123A946
 magnet:?xt=urn:btih:AF5BE20831B754EE7C7223756C375DC0033EA3D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +411,8 @@ magnet:?xt=urn:btih:AF5BE20831B754EE7C7223756C375DC0033EA3D5
 ```bash
 magnet:?xt=urn:btih:597ECB215861ADE4D87C29C3BDB93F02D1DD4A47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -411,6 +441,8 @@ Nightmare - Waiting For The Power: The Early Years (2024) 3CD [FLAC|Lossless|WEB
 magnet:?xt=urn:btih:4A38C37A3FDD6D13463E0C0DB68E723FE260B3AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -434,6 +466,8 @@ RDS GP: Шинная борьба (2024) WEBRip [H.264/1080p] (сезон 3, с�
 ```bash
 magnet:?xt=urn:btih:F6E3FF2A5E7102DC5D0759139D53F308488488F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +496,8 @@ Keys - The Grand Seduction (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Roc
 magnet:?xt=urn:btih:F3123869205BF68C3C209244DCF86C4CF19F1F04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +521,8 @@ magnet:?xt=urn:btih:F3123869205BF68C3C209244DCF86C4CF19F1F04
 ```bash
 magnet:?xt=urn:btih:6E2305FC44C4A61205F0F1D3AD822F2D5AC258ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -513,6 +551,8 @@ Gabrielle De Val and The Dragonlords - Tiger (2024) [FLAC|Lossless|image + .cue]
 magnet:?xt=urn:btih:C1657A7FA92813398225FC73322A0073B919DAC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -536,6 +576,8 @@ RDS GP: Шинная борьба (2023) HDTV [H.264/1080p] (сезон 2, се�
 ```bash
 magnet:?xt=urn:btih:D373EDC265B4F544D9854B23EB0A73E639D9E14C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +606,8 @@ magnet:?xt=urn:btih:D373EDC265B4F544D9854B23EB0A73E639D9E14C
 magnet:?xt=urn:btih:953B1E245AC7C9AB9A28C8592BC5ECE1969D676E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +634,8 @@ magnet:?xt=urn:btih:953B1E245AC7C9AB9A28C8592BC5ECE1969D676E
 ```bash
 magnet:?xt=urn:btih:A89562A085BB0B0268D05B6182C067DA4CE5E25A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -618,6 +664,8 @@ Enchanted Duo - Werifesteria (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive R
 magnet:?xt=urn:btih:B8C29244D162783397A86C8C95CF976A4B014389
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -645,6 +693,8 @@ Ignitor - Horns and Hammers (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 magnet:?xt=urn:btih:AA4C43F825750686C1A65F006DA8D73294630AD9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -671,6 +721,8 @@ VA - Just Rock (Cool Badass Tunes, Vol. 1) (2024) [FLAC|Lossless|WEB-DL|tracks] 
 ```bash
 magnet:?xt=urn:btih:784EAA8CE460FEEB56D9D721D390CCA892D970E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

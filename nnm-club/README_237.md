@@ -22,6 +22,8 @@ Adegoke Steve Colson & Iqua Colson - Glow: Music for Trio... Add Voice (2025) [F
 magnet:?xt=urn:btih:CFD3AB34C3E1FBA6866AE823F74453DD681C3BBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Heber Ataza - Viajando (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 ```bash
 magnet:?xt=urn:btih:EFF70B9FF703AADB1CEC3BD62013F5FAB264F281
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Greenberg Group - More Swans! (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:A4A567F089EE7BB7DD48FCE5F83224FD7DD2AF8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ MotoGP. Этап 14 из 22. Гран-при Венгрии. Спринт (23.08
 magnet:?xt=urn:btih:905FD24395BD227D832F5D9E74EB34E4563215C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -123,6 +131,8 @@ MotoGP. Этап 14 из 22. Гран-при Венгрии. Квалифика�
 ```bash
 magnet:?xt=urn:btih:1D0FCF306B0DD512B87BC7F28E3F68A1E5C761B5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ magnet:?xt=urn:btih:1D0FCF306B0DD512B87BC7F28E3F68A1E5C761B5
 magnet:?xt=urn:btih:999F03BD208357104255892125DC0A6F2963714A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:999F03BD208357104255892125DC0A6F2963714A
 ```bash
 magnet:?xt=urn:btih:3BB217F5E2E9B7CC1CD680456E85D59F88AB2A5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ magnet:?xt=urn:btih:3BB217F5E2E9B7CC1CD680456E85D59F88AB2A5D
 magnet:?xt=urn:btih:E9FEE7512F822732F0572D188346164BE0E4760E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:E9FEE7512F822732F0572D188346164BE0E4760E
 ```bash
 magnet:?xt=urn:btih:D4E8FA8B5EBF536B593EDF4393E42B95041C5715
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ Burning Witches - Inquisition (2025) [FLAC|Lossless|WEB-DL|tracks] <HeavyMetal, 
 magnet:?xt=urn:btih:908F0ACDC5B5D892DF91FF6A8EBC21079F1D8A2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ Feuerschwanz - Knightclub (2025) Deluxe Version, 2025, Napalm Records Handels Gm
 magnet:?xt=urn:btih:20E102AB3D88578D0F81A7A42FADF7871B7A4050
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ magnet:?xt=urn:btih:20E102AB3D88578D0F81A7A42FADF7871B7A4050
 ```bash
 magnet:?xt=urn:btih:927333A2B6812DEB94C95803A499CBA5C525AD3B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ Runiga — современный и стильный шрифт с засечк
 magnet:?xt=urn:btih:DCD37517B79984982D6D379B9DF7C7676BABC105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:DCD37517B79984982D6D379B9DF7C7676BABC105
 ```bash
 magnet:?xt=urn:btih:BE3056D93E9ACDD27B187DDE6040F7E69B89DEF1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:BE3056D93E9ACDD27B187DDE6040F7E69B89DEF1
 magnet:?xt=urn:btih:47C86EB92B0771578B41BB849B70AD2FACE43812
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:47C86EB92B0771578B41BB849B70AD2FACE43812
 ```bash
 magnet:?xt=urn:btih:9673A0214167AF1486CC9CBC82658C24A8951060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -423,6 +455,8 @@ Helloijan - Senja di Pantai Morib (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Ja
 magnet:?xt=urn:btih:E21B3848D01517D2251888585D35F662D6F7EB44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -448,6 +482,8 @@ magnet:?xt=urn:btih:E21B3848D01517D2251888585D35F662D6F7EB44
 ```bash
 magnet:?xt=urn:btih:F75E5422CF0DD65EC7027FFD25D95237C32988D7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -476,6 +512,8 @@ Fabia Mantwill Orchestra - IN.SIGHT (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:705B34FFD932046548CA91DDFB2AA7C42FB0E7C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +539,8 @@ magnet:?xt=urn:btih:705B34FFD932046548CA91DDFB2AA7C42FB0E7C4
 ```bash
 magnet:?xt=urn:btih:6A200826129EB472D8F6689DD72A35F746B3EFB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +569,8 @@ magnet:?xt=urn:btih:6A200826129EB472D8F6689DD72A35F746B3EFB6
 magnet:?xt=urn:btih:22D332DC18D177F1795255A10A077E62F35AA6FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +598,8 @@ Myrath - Reflections: Best Of (2025) [MP3|320 Kbps] <Oriental Progressive Metal,
 magnet:?xt=urn:btih:74EC6B06A4CBC1B543F29CF430427DAECEDC8F9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ magnet:?xt=urn:btih:74EC6B06A4CBC1B543F29CF430427DAECEDC8F9F
 magnet:?xt=urn:btih:49904DE372811F7785A285D38B112F9969A29358
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +650,8 @@ magnet:?xt=urn:btih:49904DE372811F7785A285D38B112F9969A29358
 ```bash
 magnet:?xt=urn:btih:7F6C9011D970E0A97CE3F791FAC4240ED0B865B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -629,6 +677,8 @@ magnet:?xt=urn:btih:7F6C9011D970E0A97CE3F791FAC4240ED0B865B4
 magnet:?xt=urn:btih:FFC87BDE72F2152906ACD8E387DCDEFE8D52B801
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -652,6 +702,8 @@ magnet:?xt=urn:btih:FFC87BDE72F2152906ACD8E387DCDEFE8D52B801
 ```bash
 magnet:?xt=urn:btih:522A575E2A5E8D851E06DFEAB3C7C1F842369940
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

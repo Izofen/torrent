@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:3774F838E4BE3A2149CC2C0A691C73D429C80BBA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Joe Harrison | Learn CSS By Use Cases v2 with All Code (2022) [PDF] [EN]
 magnet:?xt=urn:btih:72AA0AAE1186B00B4EA5318F40FF34C023687DBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -70,6 +74,8 @@ Nagender Kumar Suryadevara | Beginning Machine Learning in the Browser (2021) [P
 ```bash
 magnet:?xt=urn:btih:C3A767D2E4CF5F51DB55587E438F0734D4F438C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ magnet:?xt=urn:btih:C3A767D2E4CF5F51DB55587E438F0734D4F438C9
 magnet:?xt=urn:btih:9F546E88D27303430DFCC94D742E9C9E825DC693
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ magnet:?xt=urn:btih:9F546E88D27303430DFCC94D742E9C9E825DC693
 ```bash
 magnet:?xt=urn:btih:7D9187B63BEB4C84C7AF467648A5BB6DA721042D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +155,8 @@ Apache - самый широко используемый веб-сервер в
 magnet:?xt=urn:btih:A1139BABD5727848AEC9E6D86820A05FFC9271A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Hari Narayn | Just React!: Learn React the React Way (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:2F5727D7109817542916BDFADA95D4EA6C92ED79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ Martin Joo | Test-Driven APIs with Laravel and Pest (2022) [PDF] [EN]
 magnet:?xt=urn:btih:9F150FB67A90F5A08B6E3EFFA5FC805BD3703491
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Narendar Singh Saini | iOS Developer Solutions Guide: Learn How to Create Stable
 ```bash
 magnet:?xt=urn:btih:02FA0563610484CD75685FA679B5F12A5E2D31B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -248,6 +266,8 @@ Akshay Kulkarni и др. | Applied Recommender Systems with Python (2023) [PDF] 
 magnet:?xt=urn:btih:988A0065E4F11E884E31E37BE5A9ABB5C5F9A364
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -271,6 +291,8 @@ Jamie Rumbelow | Building With Ethereum (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:836D63AB8F0B47DAEEBB286FF55AA683607A7B13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -296,6 +318,8 @@ Daniel Irvine | Build Your Own Test Framework: A Practical Guide to Writing Bett
 magnet:?xt=urn:btih:D46064E32D027230B54213F46B0C36FE3E643C96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -319,6 +343,8 @@ Itzik Ben-Gan | T-SQL Fundamentals, 4th Edition (2023) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:81F08F677C1AFA7F351461AAE7E9C33122021234
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ magnet:?xt=urn:btih:81F08F677C1AFA7F351461AAE7E9C33122021234
 magnet:?xt=urn:btih:F06EFFEAE67B5741569F0E62D115C4B5B107E8A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +395,8 @@ magnet:?xt=urn:btih:F06EFFEAE67B5741569F0E62D115C4B5B107E8A3
 ```bash
 magnet:?xt=urn:btih:F396D1832B28BABBAE067B708A285250CB034BB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:F396D1832B28BABBAE067B708A285250CB034BB7
 magnet:?xt=urn:btih:16509B67949A1903B0F13B3ABC3697979C444FF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -416,6 +448,8 @@ Apps and Services with .NET 7 предназначен для разработч
 magnet:?xt=urn:btih:949228C220EFF5D20DBA312793F5C5A5A20C0F52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -439,6 +473,8 @@ Victor G Brusca | Introduction to Java Through Game Development (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:C593E2EFE2F46B1DB9FD5CFEE5EB1B8AF19D21AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +502,8 @@ magnet:?xt=urn:btih:C593E2EFE2F46B1DB9FD5CFEE5EB1B8AF19D21AC
 magnet:?xt=urn:btih:8DFB056ECE9FA6AE748F58A52BF89F9726AB69B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +527,8 @@ Mahmoud Parsian | Data Algorithms with Spark: Recipes and Design Patterns for Sc
 ```bash
 magnet:?xt=urn:btih:C0CE7A85128779B47C100A57B74336E0072CDEF6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ Venkata Keerti Kotaru | Building Offline Applications with Angular (2022) [PDF][
 magnet:?xt=urn:btih:453F9C8F2B0611E3B6C5472684E4789AE9942CD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:453F9C8F2B0611E3B6C5472684E4789AE9942CD4
 ```bash
 magnet:?xt=urn:btih:0941186CED970CD685676DC10488DEC84C4F7863
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ Nabendu Biswas | Beginning React and Firebase (2021) [PDF] [EN]
 magnet:?xt=urn:btih:313B09DC5D2CB7282307E1B0BC340FE96658B6DE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ M Rashid Raza | Getting Skilled with Java (2022) [PDF][EN]
 ```bash
 magnet:?xt=urn:btih:B4A2F7B9C73B599107AE230944C5AEE956C24D36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ Manfred Moser | Trino: The Definitive Guide. 2nd Edition (2022) [PDF][EN]
 magnet:?xt=urn:btih:A6E968376933A3026C823A8ECE64589D13B19CDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Sufyan bin Uzayr | Mastering Unity: A Beginner’s Guide (2022) [PDF] [EN]
 ```bash
 magnet:?xt=urn:btih:674CF7DFEAD1515B3CA0254C798806D590B16E83
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

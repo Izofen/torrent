@@ -19,6 +19,8 @@ Spiral - это сюжетная игра от третьего лица, в к�
 magnet:?xt=urn:btih:5C5A1143DA11F4EA3254A964AADCA2D9212BC58C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Gym Nights (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:F849F863D7002FFB78EEA6CF25A0D9042AE980D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ DREDGE (2023) [Ru/Multi] (2879/dlc) License GOG [Digital Deluxe Edition]
 magnet:?xt=urn:btih:EC6EEBA9AEA4BAF9B8A62EDE85755734B12FC71D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Portal Reloaded - модификация оригинальной Portal 2. Ра
 ```bash
 magnet:?xt=urn:btih:E4E1AB008B885D645898ED963A0EC92105C02558
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Life is Strange 2 (2018) [Ru/Multi] (build 4874667/dlc) Repack dixen18 [Complete
 magnet:?xt=urn:btih:55E0BB7AAEF76B3F8E0B5E47834D4113523D9991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ AMEDAMA - это приключенческая адвенчура в жанре
 ```bash
 magnet:?xt=urn:btih:6C13BC04FBB4C019BA8CCCC849327FEC5917C6B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Smells Like a Mushroom - научно-фантастический шутер о
 magnet:?xt=urn:btih:2FD72D181863E240456365AE526C8A4B8034BEBF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ The Gunk - приключенческая игра про космических
 ```bash
 magnet:?xt=urn:btih:86A54CDA405E1A275D27445B93159EB5924A9330
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ The Casting of Frank Stone (2024) [Ru/Multi] (Build 15667197/dlc) Repack Other s
 magnet:?xt=urn:btih:218C611D659DEB7530DFC0E4ABB033B47F43C719
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Subnautica – это своеобразная и удивительная ко�
 ```bash
 magnet:?xt=urn:btih:B667279723F520ED36A99128B1D85D758B4F5278
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Plucky Squire - это очаровательная экшен-адвенч�
 magnet:?xt=urn:btih:C83529A12474F7D9DF867014E1D9AEBC7BAB5BAD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ The Plucky Squire - это очаровательная экшен-адвенч�
 ```bash
 magnet:?xt=urn:btih:7EE67F1C338BD3DD073322AE365EF1BAD5EBE6EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Abnormal1999:The Compass and the Sand - это загадочная голово
 magnet:?xt=urn:btih:03EA3732CCE2A4619266FF8E36B2161B3FC8E657
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Fears to Fathom: Woodbury Getaway (2024) [Ru/Multi] (1.3/1.8) Repack FitGirl
 ```bash
 magnet:?xt=urn:btih:7920D7C3884E5E3929DE6D69C1D4EBCAA13C9353
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Granny Remake - это игра-ужастик, в которой вам пре�
 magnet:?xt=urn:btih:1826E251ABE1E0EC4FA1E102A42FB377EC21D384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Fears to Fathom: Woodbury Getaway (2024) [Ru/Multi] (1.3) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:5697DEE6F5B8D88B57C9A52758EBA0B3455665D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Dave the Diver - это казуальная приключенческая RPG 
 magnet:?xt=urn:btih:5D3FA0EA4A1AED7704099BE8770177328DED93A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Justin Wack and the Big Time Hack (2022) [Multi] (3.2.3) License GOG [Deluxe Edi
 ```bash
 magnet:?xt=urn:btih:23CA76F5B620C9A25C068B197C82E26A129808CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Everlasting Flowers - Where there is a will, there is a way - это истор�
 magnet:?xt=urn:btih:681A8B8D9CE57A7DF39A2B53E2EBD963723782AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ LUNARiA -Virtualized Moonchild- адвенчура, основанная на п
 ```bash
 magnet:?xt=urn:btih:3508732EE59B741B9C9757CEA36B948CB570C946
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Caravan Sandwitch переносит на вымышленную пустынн�
 magnet:?xt=urn:btih:EAA9C3954BDE6F9AD3331F604591C237E07A1158
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Caravan Sandwitch переносит на вымышленную пустынн�
 ```bash
 magnet:?xt=urn:btih:357BE2DE9CFCBA2EC68EF5E8A8A43E6860C12E3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Dreamlike Love with Seira – окунитесь с головой в легки
 magnet:?xt=urn:btih:55F82935217F0D7A6ECEE12F7603DDE41C4F8410
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Tobla - Divine Path (2024) [Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:951F276F9C8B6FDBA149353F9FDBC5518942B87C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Love Spell: Written In The Stars - a magical romantic-comedy otome (2020) [En] (
 magnet:?xt=urn:btih:8A90CAE4A8E6651719CE3455DE7893EFF4FF29CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Unstoppable: Breakout (2024) [Ru/Multi] (1.0) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:A1A0FE9015C7D60BC3FCCEF8FBCEA118DB4C8DD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

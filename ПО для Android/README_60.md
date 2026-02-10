@@ -20,6 +20,8 @@ Firewall Security AI - No Root 2.3.5 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:EBEDED80DA4C458DC17C35A6591701127FE1E986
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:EBEDED80DA4C458DC17C35A6591701127FE1E986
 magnet:?xt=urn:btih:147E56D252893A3D32C4C42873245FC7986F9F1F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Vanced — это модифицированная версия YT, котора
 ```bash
 magnet:?xt=urn:btih:27BA36CB7830999BA1182C43AD0C4BB3113CE91C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ Daff Moon Phase (Фазы Луны) v3.49 Mod by shv7net [Ru/Multi]
 magnet:?xt=urn:btih:E777D59595C2067ABCBC55039841DA8F9C827699
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ The Free Dictionary PRO обеспечит мощь самого полного 
 ```bash
 magnet:?xt=urn:btih:3E27EC0DFE5D9ECEC9E50752D96D483526CCD705
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +151,8 @@ Shamdo - серия медитаций и гипнотических индук�
 ```bash
 magnet:?xt=urn:btih:B3D61F77120FE13846AD26F95C0F0C5004D96271
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Open Source приложение.
 magnet:?xt=urn:btih:6355B445B150EE912289D949E359186B6F5D256E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ tvQuickActions позволяет назначить до 5 действий н�
 ```bash
 magnet:?xt=urn:btih:99DE48A649BCE300A6E21C720AE59D5EA0C8B68C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ magnet:?xt=urn:btih:99DE48A649BCE300A6E21C720AE59D5EA0C8B68C
 magnet:?xt=urn:btih:B144E4F97105C118BDF72CD5C27467CA7B7905E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:B144E4F97105C118BDF72CD5C27467CA7B7905E5
 ```bash
 magnet:?xt=urn:btih:D01AF8FE7D711BE654220D9A955AF48D3CA345F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Measure Map - это приложение, поддерживающее каль
 magnet:?xt=urn:btih:E3AFC5EBD1A01A7B3015F765125EC03780FD7BAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +311,8 @@ magnet:?xt=urn:btih:E3AFC5EBD1A01A7B3015F765125EC03780FD7BAE
 ```bash
 magnet:?xt=urn:btih:D2AE04FBBE659E610FF1825E58D382F47B61F64A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ Moon+reader относится к категории универсальных 
 magnet:?xt=urn:btih:F2510A61667AF32075FFF9CF37B16C44A10E3D31
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ magnet:?xt=urn:btih:F2510A61667AF32075FFF9CF37B16C44A10E3D31
 ```bash
 magnet:?xt=urn:btih:DF983FF1F6148D6549B33186C696B1863D5D924D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ Enhance it v4.1.7 Mod by derrin [Ru/Multi]
 magnet:?xt=urn:btih:C1018D3B30B908C4BD0B5C0949A7D5CC2D9D2385
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ magnet:?xt=urn:btih:C1018D3B30B908C4BD0B5C0949A7D5CC2D9D2385
 ```bash
 magnet:?xt=urn:btih:62FC3820DDFC90AD63903E0304BEF12E08F895B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:62FC3820DDFC90AD63903E0304BEF12E08F895B8
 magnet:?xt=urn:btih:7730AD301C0F9A11A33556ADF18F655A9EF34C3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ SnapEdit — одно из лучших приложений для редакт
 ```bash
 magnet:?xt=urn:btih:76EFDB03ACDE769939AB05064F1A56E14BCC503A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +494,8 @@ magnet:?xt=urn:btih:76EFDB03ACDE769939AB05064F1A56E14BCC503A
 magnet:?xt=urn:btih:C6C9B1A117A6425B87A45C4E57F5EC3CBF32FB0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:C6C9B1A117A6425B87A45C4E57F5EC3CBF32FB0D
 ```bash
 magnet:?xt=urn:btih:4D21AF31D202B86E19D7A0C04FCD2F4AEA8AE3DA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +546,8 @@ AndroVid Pro представляет собой простой и удобны�
 magnet:?xt=urn:btih:ACBCBB6E02BBA32786C2E48EB741422197F0A444
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +571,8 @@ PowerDirector – Video Editor v12.6.0 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:1974F940B80FBA09EEE0A6B5D4B7D1BDF65C1318
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Moovit - универсальное приложение для всех ваш�
 magnet:?xt=urn:btih:5D70A30BE923D1C635785753C4E98392CED7759B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ tvQuickActions позволяет назначить до 5 действий н�
 ```bash
 magnet:?xt=urn:btih:761D19E446A79CD4E54675185842E9B4F6AB5878
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Melon VPN - это быстрый, неограниченный, стабиль�
 magnet:?xt=urn:btih:09F9E5CF6EF2781E0AFB4175904554A6262306FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ Double Tap v1.8.2 Mod by Alex.Strannik [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:3F3537C3031812F00E0152ADC828A2465983C5F9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

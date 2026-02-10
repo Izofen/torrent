@@ -19,6 +19,8 @@ It Happened Here 2: Beacon of Truth / Это случилось здесь 2: С
 magnet:?xt=urn:btih:CA7266720CE967C8E2E11256F349CBDF5EE2CDF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Linux Kodachi — дистрибутив Linux, основанный на Xubunt
 ```bash
 magnet:?xt=urn:btih:15F665DCDF6964018F5293EBD6EF698F3FC2F7DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Shadow Flare (2002) [En] (1.0) License
 magnet:?xt=urn:btih:FD1C346A347EEC60B0C11866B567FB307CFED840
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 ```bash
 magnet:?xt=urn:btih:36B888F8914C7E1E178846EDAF039F039AE96D18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:36B888F8914C7E1E178846EDAF039F039AE96D18
 magnet:?xt=urn:btih:55B5B36D3537B34AF700F2EABF0843A0AA244AEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ CPU-Z способен показать различную информацию 
 ```bash
 magnet:?xt=urn:btih:23F21722B39D8B36BD81B173D0F8BEFDEE69A127
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:23F21722B39D8B36BD81B173D0F8BEFDEE69A127
 magnet:?xt=urn:btih:F42C25D7178ACEB37E1AF1F2A1460A60B5055259
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ KeePassXC — программа для управления паролями. �
 ```bash
 magnet:?xt=urn:btih:1D82FEF80712FDEACA4A26E9400ABD7BA2CC7D45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ ExperienceIndexOK - небольшая утилита от разработчи�
 magnet:?xt=urn:btih:1C37E5DE6EF5546B16C95FDFCBE4F40202298958
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ magnet:?xt=urn:btih:1C37E5DE6EF5546B16C95FDFCBE4F40202298958
 ```bash
 magnet:?xt=urn:btih:6A2FBCCCBFAD2FFC294FF991F56D50B388B280CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ magnet:?xt=urn:btih:6A2FBCCCBFAD2FFC294FF991F56D50B388B280CF
 magnet:?xt=urn:btih:DBC83E34677345F21F76221A88D069F9982BC19C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Wondershare Filmora for Mac  12.4.2  [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1A26EC0F9782F46911689A3F896E37159EC7FDC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ magnet:?xt=urn:btih:1A26EC0F9782F46911689A3F896E37159EC7FDC7
 magnet:?xt=urn:btih:9877F8146054F95108CB165960B8B38061E353F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ magnet:?xt=urn:btih:9877F8146054F95108CB165960B8B38061E353F1
 ```bash
 magnet:?xt=urn:btih:39AAEEA7075C60383CDBDAA6BC327380804B57A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +386,8 @@ magnet:?xt=urn:btih:39AAEEA7075C60383CDBDAA6BC327380804B57A2
 magnet:?xt=urn:btih:B92235BEE37C9C878B3F902D5EA0036C1E79FD76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +411,8 @@ magnet:?xt=urn:btih:B92235BEE37C9C878B3F902D5EA0036C1E79FD76
 ```bash
 magnet:?xt=urn:btih:0AF6890D1F62646DA83EFD5CCA675F3375D1748C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +438,8 @@ Royal Romances 4: Endless Winter / Королевские романы 4: Веч
 magnet:?xt=urn:btih:A31E09696AD3EAE9419411E2249F873C09B121A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +463,8 @@ magnet:?xt=urn:btih:A31E09696AD3EAE9419411E2249F873C09B121A4
 ```bash
 magnet:?xt=urn:btih:D80BD1B9427C004C752F861F51566CE6C91E733B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +490,8 @@ Hosts File Editor - небольшая бесплатная утилита, ко
 ```bash
 magnet:?xt=urn:btih:B676C6DE19F81D881B11C255FAE608F1A8F24DCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -481,6 +519,8 @@ magnet:?xt=urn:btih:B676C6DE19F81D881B11C255FAE608F1A8F24DCB
 magnet:?xt=urn:btih:28090DE3D525B1861D83BEEC588E444C321A8274
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +544,8 @@ Microsoft Office 2013 SP1 – лучший пакет прикладных пр�
 ```bash
 magnet:?xt=urn:btih:EE0EB9F494DA0EB231FAE8E0DA649045B8CD8239
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +571,8 @@ magnet:?xt=urn:btih:EE0EB9F494DA0EB231FAE8E0DA649045B8CD8239
 magnet:?xt=urn:btih:58C089E9589BD50B86AAC36743980D5DB46DCCE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +597,8 @@ Airy — YouTube загрузчик. Если вам очень понравил
 ```bash
 magnet:?xt=urn:btih:6D64747DB13EFD1543AC9F19CB48952A4B195607
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +627,8 @@ VA - Б. Рубашкин, И. Ребров•Звезды русской эми
 magnet:?xt=urn:btih:C8E9D8BD1C807040EE97ABE0F780FD93D1CEE85C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +653,8 @@ magnet:?xt=urn:btih:C8E9D8BD1C807040EE97ABE0F780FD93D1CEE85C
 magnet:?xt=urn:btih:097F0661F1BA4C9C0A025A127C044EDC9E6FCC03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ magnet:?xt=urn:btih:097F0661F1BA4C9C0A025A127C044EDC9E6FCC03
 ```bash
 magnet:?xt=urn:btih:66B95A8C712FD0AA914641F5B542A3355A904BD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

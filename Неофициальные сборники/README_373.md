@@ -1,3 +1,32 @@
+###  Публикация: 1036893   (617407) от 22.07.2016
+
+VA - Gathering Sound 100 Tendence (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_617407.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Firebeatz -  Tornado (Extended Mix) 4:02
+002. Clubhunter -  Pump It! (Turbotronic Radio Edit) 2:56
+003. Hardwell & W&W feat. Fatman Scoop -  Don't Stop The Madness (Original Mix) 4:59
+004. Armin Van Buuren, W&W -  If It Ain't Dutch 2:54(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 07:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:942878A718E20FB50B955D10E50B84F776283E4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036863   (617455) от 22.07.2016
 
 VA - Electronic  Music Festival: Electric Love (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
@@ -21,6 +50,8 @@ VA - Electronic  Music Festival: Electric Love (2016) [MP3|320 Kbps] <House, Ele
 ```bash
 magnet:?xt=urn:btih:F9F4D7615FE2E5F0D194EF3E2B068A056FF2672A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +80,8 @@ VA - Greek Lounge Hotel (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:3BBFBDE245AC32C48A397007F08DBD43E2C36C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +108,8 @@ VA - Glory Island Extended Uplifting Trance Mix (2016) [MP3|320 Kbps] <Trance, U
 ```bash
 magnet:?xt=urn:btih:48A5C24C82DE76694B3D197D79DE13EE163CF7E4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +138,8 @@ magnet:?xt=urn:btih:48A5C24C82DE76694B3D197D79DE13EE163CF7E4
 magnet:?xt=urn:btih:57EBB62309E14AA8B347BD43140E799F8FC8B58C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +166,8 @@ magnet:?xt=urn:btih:57EBB62309E14AA8B347BD43140E799F8FC8B58C
 ```bash
 magnet:?xt=urn:btih:FD5E4352664471E030042D4BA0EF815EEC493260
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -157,6 +196,8 @@ VA - Funky Summer Jazz (2015) [MP3|320 кб/с]<Jazz, Smooth Jazz>
 magnet:?xt=urn:btih:6CE5611993AC549B3B12B328B7C6D3CB3F9C5FDE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -183,6 +224,8 @@ VA - Chillout Vol.1 [Compiled by Zebyte] (2014) [MP3|320 кб/с]<Chillout>
 ```bash
 magnet:?xt=urn:btih:7FA0F4FEF812CD4B2DEAEF01AF2571E1C983AD46
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +254,8 @@ VA - Тяжёлые кавер-версии известных песен (2019)
 magnet:?xt=urn:btih:98265D1F0DF1D1D4BACFF0ECA734DE3B06DC55C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +282,8 @@ VA - Classic Acoustic (2022) [MP3|320 Kbps] <Pop, Rock, Acoustic>
 ```bash
 magnet:?xt=urn:btih:9244C964C533C959B3B6A7E8393A3FD69C2DB0C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -265,6 +312,8 @@ VA - Billboard Hot 100 Singles Chart 27th June (2015) [MP3|320 кб/с]<Hip-Hop,
 magnet:?xt=urn:btih:416E5FD45642BE117A4AD1585F12005E68718DA6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +340,8 @@ VA - Best Rock of All Time (2019) [MP3|320 Kbps] <Rock>
 ```bash
 magnet:?xt=urn:btih:5870BEF5267BC3FA7F0FE8E3466F612CE7AD4F5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +370,8 @@ VA - Rock And Roll: 80 Best Songs (2018) [MP3|320 Kbps] <Rock and Roll, Rock>
 magnet:?xt=urn:btih:FC1BB584ABF8764BE382FE9E1E5597A37B33DAE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +399,8 @@ VA - Mega Dance Summer 2018 [MP3|256-320 Kbps] <Dance, Pop, BigRoom, Other>
 magnet:?xt=urn:btih:0358A8957734B0C22276AAAD32502D83BB7AFF06
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +427,8 @@ VA - Союз Летний 50х50 (2018) [MP3|256-320 Kbps] <Pop, Dance, Other>
 ```bash
 magnet:?xt=urn:btih:78FEF254234D4308D7AAECBEBA70B2B92E246815
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -415,6 +472,8 @@ VA - Русский Дальнобой 2CD (2012) [MP3|256 кб/с]<Шансон
 magnet:?xt=urn:btih:7E7B082D5F03AA35206C3982D208995B2D8CB62C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +500,8 @@ VA - Record Super Chart 540 (2018) [MP3|320 Kbps] <House, Club, Dance>
 ```bash
 magnet:?xt=urn:btih:058FDB5B0437C6DA390E3B08BE321232AE106296
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +530,8 @@ VA - Музыка Для Свидания (2016) [MP3|320 Kbps] <Pop, Jazz, Rock
 magnet:?xt=urn:btih:0A5E3EDB37F7A81CEAB3605809950C7276007AD3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -495,6 +558,8 @@ VA - Горячая поп сотня. Версия 50/50 (2016) [MP3|256 Kbps] 
 ```bash
 magnet:?xt=urn:btih:594E5BD016EA793FF396F25C68401B12E1128456
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +594,8 @@ VA - Музыка летнего настроения (2012) [MP3|256-320 кб/�
 magnet:?xt=urn:btih:FDC98A39913B4543B44D3B410890809DB974CEB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +628,8 @@ VA - Trance Top 100 2012.1 (2012) [MP3|320 кб/с]<Vocal Trance, Uplifting Tran
 ```bash
 magnet:?xt=urn:btih:47A25C21CBCB6B344D2BED34A84774FA049C9166
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +664,8 @@ VA - MAXI. EuroHit от MTV (2012) [MP3|320 кб/с]<Pop,Dance>
 magnet:?xt=urn:btih:27AE553FC5970EDA579762F67890AC5D91F5D9DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +699,8 @@ VA - Блатной Коктейль (2012) [MP3|256 кб/с]<Шансон>
 magnet:?xt=urn:btih:5ECDC6897B8CB52FCECCCDFC9BEC6DF35171FA2C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -654,6 +727,8 @@ VA - Дальнобойный Шансон (2016) [MP3|256 Kbps] <Шансон>
 ```bash
 magnet:?xt=urn:btih:C4F914A4E26058979D929D72E018D207278DDF24
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -682,6 +757,8 @@ VA - Al Mira Presents - Classic in Modern (2004) [MP3|320 Kbps] <Neo Classic>
 magnet:?xt=urn:btih:F0D44D34DF5C069094143638DD255057C8CA819B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -709,32 +786,7 @@ VA - Ultimate Kizomba Hits (2016) [MP3|320 Kbps] <Workd, Zouk, Kizomba>
 magnet:?xt=urn:btih:81CAA8D2B3B2976718D2301F322FED6F7408A894
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036767   (619151) от 21.07.2016
-
-VA - Red Box EDM: Euromania Set (2016) [MP3|320 Kbps] <Dance, Club, EDM, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_619151.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. JockeyBoys - Higher (Extended Mix)
-002. Ken Martina - Memories (Extended Version)
-003. Matan Caspi - Be Free
-004. Reel 2 Real feat. Mad Stuntman - Can You Feel It?(   Читать дальше...   )Жанр: Dance, Club, EDM, HouseПродолжительность: 10:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BFF8130226FDF080993AABAC63BCA54B5305607
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

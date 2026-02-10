@@ -1,3 +1,31 @@
+###  Публикация: 1388609   (786726) от 06.06.2020
+
+Мария Шолль | Швейцария в кармане (2020) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_786726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Швейцария – уникальная страна, вокруг которой существует множество мифов.
+Скорее всего, вы слышали о многочисленных банках и знаменитом шоколаде, о швейцарских Альпах и великолепных озерах, о фондю и раклете.
+Но какова эта страна сегодня? Чем на самом деле живут местные жители, что думают об остальном мире и что из бесконечного количества мифов об этой земле правда, (   Читать дальше...   )Жанр: Этнография, Страноведение, ПублицистикаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:671CD7044E2A754EF5D4CC4806D882885FE83E09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1388558   (786728) от 06.06.2020
 
 Ирина Рубачева | Почему открываются / закрываются рестораны (2019) [EPUB]
@@ -19,6 +47,8 @@
 ```bash
 magnet:?xt=urn:btih:D369E9DC6AFCB918D5D16D108BFF0EFE36FCEEF0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +74,8 @@ magnet:?xt=urn:btih:D369E9DC6AFCB918D5D16D108BFF0EFE36FCEEF0
 magnet:?xt=urn:btih:0D35D357EAFD0E6AB7164E45D1A170C3CDB6EA39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +100,8 @@ magnet:?xt=urn:btih:0D35D357EAFD0E6AB7164E45D1A170C3CDB6EA39
 magnet:?xt=urn:btih:445EE559BE18EC345540B83DF5B9531A1F93C8C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +125,8 @@ J-beauty – это целое направление в культуре кра
 ```bash
 magnet:?xt=urn:btih:B833797962C7BD6B2C2B3B4FCFA8B39E85AF350B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +154,8 @@ magnet:?xt=urn:btih:B833797962C7BD6B2C2B3B4FCFA8B39E85AF350B
 magnet:?xt=urn:btih:C69F3B44CA4FC64A9B562C5B22CDC42DCD117024
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +180,8 @@ magnet:?xt=urn:btih:C69F3B44CA4FC64A9B562C5B22CDC42DCD117024
 magnet:?xt=urn:btih:7B003A26AF7E7A62751C27EE67B260E0CF1AD390
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +205,8 @@ magnet:?xt=urn:btih:7B003A26AF7E7A62751C27EE67B260E0CF1AD390
 ```bash
 magnet:?xt=urn:btih:7591E91E8BE5C6EB6D358D7C2B1EA59D4A725BEB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +234,8 @@ magnet:?xt=urn:btih:7591E91E8BE5C6EB6D358D7C2B1EA59D4A725BEB
 magnet:?xt=urn:btih:EB4E27CF6F78C108241C4C912588D2A88406D83B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +259,8 @@ magnet:?xt=urn:btih:EB4E27CF6F78C108241C4C912588D2A88406D83B
 ```bash
 magnet:?xt=urn:btih:F176968631882C60995E5EA177C0FBAB24BA4E82
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +286,8 @@ magnet:?xt=urn:btih:F176968631882C60995E5EA177C0FBAB24BA4E82
 ```bash
 magnet:?xt=urn:btih:56C5C791B8F99A0A8E1793D2E36EC55DD1D7D3C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +315,8 @@ magnet:?xt=urn:btih:56C5C791B8F99A0A8E1793D2E36EC55DD1D7D3C3
 magnet:?xt=urn:btih:9C801B96B85E5B68B1D052E3375CADDDAE0118AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +340,8 @@ magnet:?xt=urn:btih:9C801B96B85E5B68B1D052E3375CADDDAE0118AE
 ```bash
 magnet:?xt=urn:btih:198988150F2622CF8A707779DDA47FF10ECD609E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +367,8 @@ magnet:?xt=urn:btih:198988150F2622CF8A707779DDA47FF10ECD609E
 magnet:?xt=urn:btih:D97F6AD55260B8B9251F572C64999E83658AA6A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +393,8 @@ magnet:?xt=urn:btih:D97F6AD55260B8B9251F572C64999E83658AA6A9
 magnet:?xt=urn:btih:0DA07BE42F6C11924C1662085F165DC756BAA6AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +418,8 @@ magnet:?xt=urn:btih:0DA07BE42F6C11924C1662085F165DC756BAA6AE
 ```bash
 magnet:?xt=urn:btih:DD3E924ACCDA1A4AE2A7A5C867D5F3A5B49826D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -388,6 +446,8 @@ magnet:?xt=urn:btih:DD3E924ACCDA1A4AE2A7A5C867D5F3A5B49826D3
 magnet:?xt=urn:btih:591AAFF92915D1D19D77A6CCD9352BBF1E66FE5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +473,8 @@ magnet:?xt=urn:btih:591AAFF92915D1D19D77A6CCD9352BBF1E66FE5B
 ```bash
 magnet:?xt=urn:btih:483FD05964C5C68B17F08079BB29171BAA8A702D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +503,8 @@ magnet:?xt=urn:btih:483FD05964C5C68B17F08079BB29171BAA8A702D
 magnet:?xt=urn:btih:1803A53E7DD221617DD5D7FE814FEFE86BCB54FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +528,8 @@ magnet:?xt=urn:btih:1803A53E7DD221617DD5D7FE814FEFE86BCB54FB
 ```bash
 magnet:?xt=urn:btih:3BD2C7B115736DEEF404DF0F7EE0410E0FF92090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -491,6 +557,8 @@ magnet:?xt=urn:btih:3BD2C7B115736DEEF404DF0F7EE0410E0FF92090
 magnet:?xt=urn:btih:8886919CE8D968F6871A92F00369A76E4C2AA00A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +582,8 @@ magnet:?xt=urn:btih:8886919CE8D968F6871A92F00369A76E4C2AA00A
 ```bash
 magnet:?xt=urn:btih:F6C0630FA1461F4B1698A0B3BA743991FC17A0FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +609,8 @@ magnet:?xt=urn:btih:F6C0630FA1461F4B1698A0B3BA743991FC17A0FC
 magnet:?xt=urn:btih:C95A000848561A9736D6D5AFB2965D2974959E43
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +634,8 @@ magnet:?xt=urn:btih:C95A000848561A9736D6D5AFB2965D2974959E43
 ```bash
 magnet:?xt=urn:btih:1713C8559F9C0227167BB7980BF79C59EF7DE0EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -587,6 +661,8 @@ magnet:?xt=urn:btih:1713C8559F9C0227167BB7980BF79C59EF7DE0EF
 magnet:?xt=urn:btih:E38C86E190E5EDB3D195221DA17FBFFFF86CC29B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -611,29 +687,7 @@ magnet:?xt=urn:btih:E38C86E190E5EDB3D195221DA17FBFFFF86CC29B
 magnet:?xt=urn:btih:7FB711837238084F2323EB1D7C3257DDD7010332
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276486   (787544) от 17.01.2019
-
-Джон Миллер | 5 принципов проактивного мышления (2015) [FB2, EPUB, MOBI]
-
->>Разное (категория книг)
->>Бизнес, Менеджмент, Деловая литература
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_787544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проактивное мышление помогает справляться с жизненными трудностями, создавать себе новые возможности для роста во всех сферах жизни, принимать правильные решения каждый день, действовать креативно и помогать другим людям – при условии, что вы не забываете о личной ответственности. Научитесь пользоваться пятью принципами проактивного мышления, и вы навсегда избавитесь (   Читать дальше...   )Жанр: зарубежная деловая литература, менеджмент и кадрыФормат: FB2, EPUB, MOBI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C20C6D79BC971A813A791DDC2F8FCDCEAEC363C6
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

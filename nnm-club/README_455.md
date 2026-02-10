@@ -23,6 +23,8 @@ Jazz Ballads 3: Lester Young(   Читать дальше...   )Тип изда�
 magnet:?xt=urn:btih:838DCB9AB5586B99148952FFA3163D3A83159BF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:838DCB9AB5586B99148952FFA3163D3A83159BF2
 ```bash
 magnet:?xt=urn:btih:86A0AB35BD6C83021A7CE544A424A482C014A1A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -74,6 +78,8 @@ VA - The Perfect Jazz Collection: 25 Original Albums (2010) Box Set, 25 CD [FLAC
 magnet:?xt=urn:btih:3AE1815AE93A08BAF0357BC08C5BB3F7DFB00AD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ MInstAll v.03.07.2025 By Andreyonohov (ISO) [Ru]
 ```bash
 magnet:?xt=urn:btih:34BC2D137561A078E9D303F6000AFF9FA8094FB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -123,6 +131,8 @@ HEU KMS Activator — это простая в использовании про
 magnet:?xt=urn:btih:AFFCD1D1F6C9B9A3B2ECAE6318F8235ACDD31112
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ magnet:?xt=urn:btih:AFFCD1D1F6C9B9A3B2ECAE6318F8235ACDD31112
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ magnet:?xt=urn:btih:AFFCD1D1F6C9B9A3B2ECAE6318F8235ACDD31112
 ```bash
 magnet:?xt=urn:btih:08B18BD2AC4C8E95896C3902DDC150851A60062D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ magnet:?xt=urn:btih:08B18BD2AC4C8E95896C3902DDC150851A60062D
 magnet:?xt=urn:btih:8ACDE8EF1DF8A101C7097DA0C95868E0FA8CFCB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ magnet:?xt=urn:btih:8ACDE8EF1DF8A101C7097DA0C95868E0FA8CFCB3
 magnet:?xt=urn:btih:227E43E43FD34D7655835C376D5E944161F4C3A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ magnet:?xt=urn:btih:227E43E43FD34D7655835C376D5E944161F4C3A0
 ```bash
 magnet:?xt=urn:btih:51F1F0C20C1E4649A47E5B9B9E4C38AB3E9EADDE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -270,6 +290,8 @@ magnet:?xt=urn:btih:51F1F0C20C1E4649A47E5B9B9E4C38AB3E9EADDE
 magnet:?xt=urn:btih:FA111633CB3AEA4BA7F0C1F4569F77702D8213DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:0843936CEEF3733BB5D9033976CD0DE967CDB25B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +342,8 @@ The Last of Us Part I – игра для ПК от 3-го лица, предс�
 magnet:?xt=urn:btih:98B1C37B8C3C84EC22570F042502DAA8AEBB8CCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -341,6 +367,8 @@ AIDA64 - является мощным средством для идентиф�
 ```bash
 magnet:?xt=urn:btih:67D6328B2C6E2B7C211A291830B526230A391F92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -368,6 +396,8 @@ Karing - Утилита прокси с простым и мощным инте�
 ```bash
 magnet:?xt=urn:btih:C51A8E2FB19B43DFD869F38787C68767E9F96616
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -402,6 +432,8 @@ Columbia Records объявляет о выходе DVD бокса AC/DC “Plug
 magnet:?xt=urn:btih:19EE71BD822670085E18AE2142551D722AE78BC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -425,6 +457,8 @@ magnet:?xt=urn:btih:19EE71BD822670085E18AE2142551D722AE78BC7
 ```bash
 magnet:?xt=urn:btih:6ED6BD0D7FDA9FE3942A0A0E2EFEA923B848FC5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ AIDA64 - является мощным средством для идентиф�
 magnet:?xt=urn:btih:0D0191DA913C863B18C04A6CE2401D0EFDCD9C86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -473,6 +509,8 @@ magnet:?xt=urn:btih:0D0191DA913C863B18C04A6CE2401D0EFDCD9C86
 ```bash
 magnet:?xt=urn:btih:51AA49EBAAA042B04F5CD96DFEBB87EC6CA9F483
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +539,8 @@ Station Echo - What Should Have Been but Never Will (2025) [FLAC 24/44.1|Lossles
 magnet:?xt=urn:btih:AFD58FB1EF15E7F2E9ED354807D5F0016DD92D23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -527,6 +567,8 @@ CD1 - Dead Again:
 ```bash
 magnet:?xt=urn:btih:F288E3199A686B69D0E83CFB6A1B917ADB484672
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -555,6 +597,8 @@ VA - Jazzy Date Night (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 magnet:?xt=urn:btih:D87F5E048B82AC15AA9BCC38E315C60113D9B855
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 11 (2025) [MP3|320 K
 ```bash
 magnet:?xt=urn:btih:5D7C6769B8A1E6CE8731F661B3412F0EDA41233A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -609,6 +655,8 @@ Paul Brown - So Much To Say (2025) [FLAC|Lossless|image + .cue] <Smooth Jazz>
 magnet:?xt=urn:btih:9652204112AD076622CE06E63992EF0EBD1177DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -636,6 +684,8 @@ Steve Aoki - HiROQUEST 3: Paragon (2025) [MP3|320 Kbps] <Electro House, Progress
 magnet:?xt=urn:btih:8F735A0990950801F83B5F4096FC73ECAE85D5E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -662,6 +712,8 @@ magnet:?xt=urn:btih:8F735A0990950801F83B5F4096FC73ECAE85D5E1
 ```bash
 magnet:?xt=urn:btih:322C62D9B03732C1EC57372C4359005468A56AC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

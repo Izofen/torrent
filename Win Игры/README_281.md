@@ -19,6 +19,8 @@ Mortal Kombat 11 – продолжение культовой серии фай
 magnet:?xt=urn:btih:3714EDFD2580FC0C3B3C9186B6EF5EEA86BB26D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ A Legionary's Life – симулятор жизни римского легио
 ```bash
 magnet:?xt=urn:btih:544A227B78E4110DA41B55EC1CC3B72E2CA9D52E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Heroes of Hammerwatch II (2025) [Ru/Multi] (Build 20392961) Repack Let'sРlay
 magnet:?xt=urn:btih:9D8003D17848A2CF7D2323D690D532EF66606505
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Planetary Annihilation: TITANS  это улучшенная версия стр�
 ```bash
 magnet:?xt=urn:btih:5137BE0C46F2A8C37CF976332724CBBA154AFF56
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Knights and Bikes (2019) [En] (1.12_rc3_v0_u) License GOG
 magnet:?xt=urn:btih:3C3646E5AE792CBA0A7915ECEADB4AEA3EB97253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 ```bash
 magnet:?xt=urn:btih:91B76BAE4F8D036A87758803D8B1D4E13034B93A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Sludge Life (2021) [Ru/Multi] (251013) License GOG
 magnet:?xt=urn:btih:AC34C0422EC3E26EC777D4A9AEC5140E927976EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Strange Antiquities (2025) [Ru/Multi] (1.0.40) License GOG
 ```bash
 magnet:?xt=urn:btih:9AFA1931930BB7A6DB81CA927BA5ACF66765B68A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Nicktoons & The Dice of Destiny - это яркое место, где встр�
 magnet:?xt=urn:btih:D5D9A1647E593369E55C66E7D74155A8726AA142
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Halloween Stories 9: The Death Card / Хеллоуинские истории 9:
 ```bash
 magnet:?xt=urn:btih:EA7F9F339CF7063825404B12F93622D2899F42E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ It Happened Here 2: Beacon of Truth / Это случилось здесь 2: С
 magnet:?xt=urn:btih:CA7266720CE967C8E2E11256F349CBDF5EE2CDF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Royal Romances 4: Endless Winter / Королевские романы 4: Веч
 ```bash
 magnet:?xt=urn:btih:A31E09696AD3EAE9419411E2249F873C09B121A4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ MythBusters: The Game - Crazy Experiments Simulator (2022) [Multi] (1.0.88) Lice
 magnet:?xt=urn:btih:DBF8A20D5E2822A1A8F5E340FEE7A7266757A034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Baby Storm (2023) [Multi] (2.12.4) License GOG
 ```bash
 magnet:?xt=urn:btih:6C0DCE2FB4DB2E1BC05112668795529034899DE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Nitro Racers (2022) [En] (1.0) License GOG
 magnet:?xt=urn:btih:46BFF8A8146F0223EE91DFCB35506CFE6909EF98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Hidden Folks – это игра в жанре "поиск предметов". 
 ```bash
 magnet:?xt=urn:btih:031B0C0963A8A884015536B024A0AA2F8D2479B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Our Battle Has Just Begun! episode 2 (2022) [Multi] (1.0) Scene Darksiders
 magnet:?xt=urn:btih:D7E1907ECA8BECF2A4DD48FE00944C203AE7A21E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Sudocats (2022) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:278B6C7A5FAF70511A9FDC20F21BA32F5EF781CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ The Inheritance of Crimson Manor - это игра-головоломка в ж�
 magnet:?xt=urn:btih:8AEDD24CFF1634D1E8A77ADE9761A027E088250B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ ViruZ (2021) [Ru/En] (1.01) License GOG
 ```bash
 magnet:?xt=urn:btih:7FD84F7E633FBCF62467EF9CA86EA09DE21790BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Swordship переносит игроков в футуристический м
 magnet:?xt=urn:btih:9B24D99F7A04848F613132EE6AE6E1D3D2CBE667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Exorcism Ritual – это хоррор на выживание с элемен�
 ```bash
 magnet:?xt=urn:btih:8CAAC06E7E7C2774395A6AC99FCB967E2F2B56CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ False Myth представляет собой ролевую игру. Вмес
 magnet:?xt=urn:btih:1ED7ED6127E77C23C88AF8C89DCB2609FAD05654
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Connection of Worlds 2: Star Riddle (2023) [En] (1.0) Unofficial [Collector's Ed
 ```bash
 magnet:?xt=urn:btih:8C3DE47700CDEAB3E1A1287699042C02168C1C6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Notch - The Innocent LunA: Eclipsed SinnerS выделяется на фоне �
 magnet:?xt=urn:btih:9A498A0A5F6FA75177B82C4D1D2DECB2B465F830
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Liberte - это коллекционная карточная rogue-lite игр
 ```bash
 magnet:?xt=urn:btih:B5A98C2A8829B56EA443265A5C01262648613C51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

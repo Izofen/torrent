@@ -26,6 +26,8 @@ Gary Smulyan - Smul's Paradise (2012) [FLAC|Lossless]<Post-Bop, Mainstream Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -58,6 +60,8 @@ Gary Smulyan - Smul's Paradise (2012) [FLAC|Lossless]<Post-Bop, Mainstream Jazz>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +96,8 @@ VA - Самый, Самый! Русский (2012) [MP3|256 kbps]<Pop | Dance>
 magnet:?xt=urn:btih:BDF93365B1D159B2CAFC6813960642C857068B2A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +131,8 @@ VA - Club Music Energy 50/50 (2012) [MP3|192-256 kbps]<Club>
 magnet:?xt=urn:btih:CE3B3A32EAB38C60D4E93D619C23B3AC69467555
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -148,6 +156,8 @@ SeaMonkey — проект, основанный на добрых традиц�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -182,6 +192,8 @@ VA - Горячий Автохит (2012) [MP3|256 kbps]<Club | Dance>
 magnet:?xt=urn:btih:CCF1FF0A5AA5D39CD9D4F15B6D9F1C432DD6AA97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -205,6 +217,8 @@ magnet:?xt=urn:btih:CCF1FF0A5AA5D39CD9D4F15B6D9F1C432DD6AA97
 ```bash
 magnet:?xt=urn:btih:AAEAB4C48655FC6A67BFBECDABCB24C4D3D7DFCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -232,6 +246,8 @@ Unisonic - Ignition [MCD] (2012) [FLAC|Lossless]<Power Metal>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +282,8 @@ Jeff Cascaro - The Other Man (2012) [FLAC|Lossless]<Soul, Vocal Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +307,8 @@ Jeff Cascaro - The Other Man (2012) [FLAC|Lossless]<Soul, Vocal Jazz>
 ```bash
 magnet:?xt=urn:btih:51285048883AC79F6AEAEC7EB1110D7DB99204C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +336,8 @@ magnet:?xt=urn:btih:51285048883AC79F6AEAEC7EB1110D7DB99204C6
 ```bash
 magnet:?xt=urn:btih:6B9FE193805C00ACDD0AC35E507D770792FB1F37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -350,6 +372,8 @@ Anthony Gomes - Up 2 Zero (2012) [FLAC|Lossless]<Blues-Rock>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -374,6 +398,8 @@ Anthony Gomes - Up 2 Zero (2012) [FLAC|Lossless]<Blues-Rock>
 magnet:?xt=urn:btih:AD7A67679FA87001D934E28CF887082C98CCA066
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +423,8 @@ magnet:?xt=urn:btih:AD7A67679FA87001D934E28CF887082C98CCA066
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +459,8 @@ VA - Планета танцевальных хитов (2012) [MP3|320 кб/с]
 magnet:?xt=urn:btih:8D96F30B3323C1B04971C59EC9441930C21C553A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +488,8 @@ magnet:?xt=urn:btih:8D96F30B3323C1B04971C59EC9441930C21C553A
 ```bash
 magnet:?xt=urn:btih:C4823FDA1FAFDF95A263606DCEBB68B1FC1AC98C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +524,8 @@ Scream Silence - Scream Silence (2012) [FLAC|Lossless]<Gothic Metal, Gothic Rock
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +558,8 @@ Ghost Town Blues Band - Dark Horse (2012) [FLAC|Lossless]<Blues-Rock>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +594,8 @@ VA - Дискотека Русские Звезды (2012) [MP3|128 kbps]<Pop>
 magnet:?xt=urn:btih:885D505FAC580E02DB542CEA9EDDA405B3F47195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +619,8 @@ Saline OS 1.6 [i386 + x86_64] (2xDVD)
 ```bash
 magnet:?xt=urn:btih:EB66D97D0040A159EC3474813671A3698170B243
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +655,8 @@ Jazz Legends 1:
 magnet:?xt=urn:btih:9F40944F2A7442D7D5CBE05198BAA6343D42EC4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +682,8 @@ magnet:?xt=urn:btih:9F40944F2A7442D7D5CBE05198BAA6343D42EC4B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -672,6 +716,8 @@ Oscar Penas - From Now On (2011) [FLAC|Lossless]<Modern Jazz, Guitar Jazz, Fusio
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -700,6 +746,8 @@ Oscar Penas - From Now On (2011) [FLAC|Lossless]<Modern Jazz, Guitar Jazz, Fusio
 magnet:?xt=urn:btih:F159F0EEFEE7EAF130A91F9B23FAEC0B53226516
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -725,6 +773,8 @@ magnet:?xt=urn:btih:F159F0EEFEE7EAF130A91F9B23FAEC0B53226516
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -753,6 +803,8 @@ magnet:?xt=urn:btih:F159F0EEFEE7EAF130A91F9B23FAEC0B53226516
 ```bash
 magnet:?xt=urn:btih:878E1794023CC17B55AD191E36F28AAD06DBD225
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

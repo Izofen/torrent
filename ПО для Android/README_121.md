@@ -20,6 +20,8 @@ Add Watermark Pro v3.0 (build 3004) - Водяные знаки в изобра�
 magnet:?xt=urn:btih:69C2273AEBC41E5DF7B49FAA7F729D0C68DCA5B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Rotation - Orientation Manager v22.2.2 [Ru/Multi]
 magnet:?xt=urn:btih:05CE95312FA448F745D5CBA8AB454728A6DA9F1D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:05CE95312FA448F745D5CBA8AB454728A6DA9F1D
 ```bash
 magnet:?xt=urn:btih:02A0D539B49220FF1A247B827441544172687C3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ magnet:?xt=urn:btih:02A0D539B49220FF1A247B827441544172687C3C
 ```bash
 magnet:?xt=urn:btih:F944E09056CF76CE6E81CCA87ED1CBB9E1A9310B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ Photo Translator v8.4.5 [Ru]
 magnet:?xt=urn:btih:5DA97613FE6E0BA065E945B311FBDBD94233CFCE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ File Converter v12.1.14 [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:8A9C1D8AF0836D336E58A8C91F129890976031E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +182,8 @@ Picture Fish - Fish Identifier v2.2 [Ru/Multi]
 magnet:?xt=urn:btih:AC662988F83D054BD3502D4D8E91F83117477859
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:AC662988F83D054BD3502D4D8E91F83117477859
 ```bash
 magnet:?xt=urn:btih:1DF1FFF4E4A1FBA098A67BE87EFC09B20F1B6E11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ Blokada для Android - мобильное приложение для блок
 magnet:?xt=urn:btih:F0FF65C329FA14C2FF82C786E1B453A67950E05A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ Measure Map - это приложение, поддерживающее каль
 ```bash
 magnet:?xt=urn:btih:F461AA63F0DCED6A181534CE7806BE28D09D4314
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +286,8 @@ Correct spelling v11.0 [En] - English learning app
 magnet:?xt=urn:btih:631F0D0A418BFC8EC3D2ADE3BD5945C1F1C31667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:631F0D0A418BFC8EC3D2ADE3BD5945C1F1C31667
 magnet:?xt=urn:btih:A255B818FD8273548CE8778D1F073FEFE97F1745
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -313,6 +337,8 @@ Eon Music Player Pro - это мощный и удобный аудиоплее�
 ```bash
 magnet:?xt=urn:btih:33D6D7163B1094AEBADB89EF064DDDDD139E3962
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -341,6 +367,8 @@ MuseScore v2.8.46 [Ru] - view and play sheet music
 magnet:?xt=urn:btih:B64DD436EC07239E4415792989A0244B736CF465
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ Bike Tracker v2.3.05 [Ru/Multi] - Велокомпьютер (обновляем
 ```bash
 magnet:?xt=urn:btih:D5531DE00CB3C181992BF144CF283E50519DCC1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -389,6 +419,8 @@ WeNote - Заметки, задачи, напоминания и календа�
 magnet:?xt=urn:btih:9E4A7E7DFB33FCE432447941C82DAC18821F4273
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +444,8 @@ TickTick: Менеджер задач, Органайзер и Календар�
 ```bash
 magnet:?xt=urn:btih:4A87BA992B5C623CE2BA77C2185A0800F81CA812
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +471,8 @@ Power Shade: Notification Bar Changer Manager - ещё один из функц�
 magnet:?xt=urn:btih:FAF78F9F079BE382A2763F30C42FABC625523272
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +496,8 @@ Kuji Cam - это необычная камера с винтажными эфф
 ```bash
 magnet:?xt=urn:btih:1B22AA4BB2533873F1423A9AE28D51A1BB46FA7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ F-Stop Gallery - Обзор, организация и защита пароле
 magnet:?xt=urn:btih:A94528C5D260BA2DC936B7D81541F70EADD2E01C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +548,8 @@ KISS - минималистичный и невероятно легковесн
 ```bash
 magnet:?xt=urn:btih:C28B7A0D44541331385003C3C768B78E6C5AEBD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +575,8 @@ Document Viewer v3.3 [Ru/Multi] (обновляемая)
 magnet:?xt=urn:btih:AD79326A129670C2D66F8EC4D7EBAB23ADE2803D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +600,8 @@ GPS Camera with latitude and longitude v1.9.6 [En]
 ```bash
 magnet:?xt=urn:btih:DFEB64C523B81B3268E233BB7C4815C3B94EAC0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -582,6 +628,8 @@ Wannalisn также является лучшим приложением для
 magnet:?xt=urn:btih:CF18E1ABD5EC0B32750A31E03CB82665F769E261
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -607,6 +655,8 @@ Body Language: Psychology behind everyday gestures v4.2.8 [En]
 magnet:?xt=urn:btih:FE3FF80FF5646D8435508E3A9CBBA8CC916FACC3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ n7player Music Player - представляет из себя музыкаль�
 ```bash
 magnet:?xt=urn:btih:35297136D3B8087B71F55C43ABA415D3720826C0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

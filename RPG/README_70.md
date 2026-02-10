@@ -19,6 +19,8 @@ The Technomancer - это продолжение Mars: War Logs, в которо
 magnet:?xt=urn:btih:5E9D634F443530CB635F8D139B606C2F772683E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Elder Scrolls V: Skyrim Special Edition - это улучшенное и р�
 ```bash
 magnet:?xt=urn:btih:2D8FF3177C101E7E4DA3C5D74622717C4723056F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Seven: The Days Long Gone (2017) [Ru/Multi] (1.0.8.1/dlc) Repack R.G. Catalyst
 magnet:?xt=urn:btih:247CC91A582C6B85331EA4D951B3BD2E380D244F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Usurper - RPG в стиле метроидвания. Древние ужасы 
 ```bash
 magnet:?xt=urn:btih:27B8B76F9A70BA748C58B1E3FFE5A84A4B5A4288
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Final Fantasy XII: The Zodiac Age - возвращение классики! В�
 magnet:?xt=urn:btih:0D3549F4F64BFFBC0CE09ADC381FA7982B0C7D85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Zombasite - постапокалиптический экшен-рпг с зом
 ```bash
 magnet:?xt=urn:btih:0F9473E07B0EA42C26130D17F467909EE105F1B7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Final Fantasy XII The Zodiac Age – HD-переиздание оригинал�
 magnet:?xt=urn:btih:ED99F16D6A0C7BBBCFAF24EDE62F4831B3196623
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Final Fantasy XII The Zodiac Age – HD-переиздание оригинал�
 ```bash
 magnet:?xt=urn:btih:09F9A3C4F178D96C210C61A6DE6F35BB1DC997FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ DYNASTY WARRIORS 9 (2018) [Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:3DB4443C8BC260AFE63230782FA7ED96E0E57183
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ The Legend of Heroes: Trails of Cold Steel II / The Legend of Heroes: Trails of 
 ```bash
 magnet:?xt=urn:btih:8D62BC988624167B02ED926515766FA5B1A41FF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Of Orcs and Men (2012) [Ru/Multi] (1.0.0.2) Repack R.G. Catalyst
 magnet:?xt=urn:btih:6B419EB5B8A0B04347F01DEC913170031CC5411E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Star Ocean: The Last Hope 4K & Full HD Remaster (2017) [Multi] (1.0.0.0) Repack 
 ```bash
 magnet:?xt=urn:btih:1FCDB365B05F7DD9629239741C383998C2542787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Trials of Mana (2020) [Multi] (1.0/dlc) License CODEX
 magnet:?xt=urn:btih:27A5890C6ECD4196C42AFA77B39E109E4F28929F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ FINAL FANTASY X рассказывает историю героя по имен
 ```bash
 magnet:?xt=urn:btih:EED28F4DC8B38D0006B94D8F603868D052AE1B2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Thronebreaker: The Witcher Tales / Кровная вражда: Ведьмак. 
 magnet:?xt=urn:btih:07199142C15F32D0681CF062E9AC32664A8FE3AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Kim (2016) [En] (1.4.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:856A242BE3E20EFFB6475A04DC6EBBF579C2FF5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Dex - стильная 2D RPG с элементами стелса и экшен
 magnet:?xt=urn:btih:79D8501F4B9BA59A0BA443AEEFA85B0572C9A210
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Baldur's Gate II: Shadows of Amn / Baldur's Gate 2: Тени Амна (2000) [Ru
 ```bash
 magnet:?xt=urn:btih:95DCA453A7F716C8F74CEFB999FBD7FDE845B6B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Tower of Time — удивительная игра со множеством п
 magnet:?xt=urn:btih:4D6FBB3A7C5A932D8CDC8A69218AE52FD7A585C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Dungeons & Dragons: Dark Alliance (2021) [Ru/Multi] (1.20.1370/dlc) License CODE
 ```bash
 magnet:?xt=urn:btih:84D67B1051C975598FE5F3264F87658BA5A26E92
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Darksburg (2020) [Ru/Multi] (1.0.11.17957) License CODEX
 magnet:?xt=urn:btih:195BF87EC40F2AA420182F4D3F03F8C77D063708
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ LEGRAND LEGACY: Tale of the Fatebounds (2018) [En/Ch] (1.1.1) License GOG
 ```bash
 magnet:?xt=urn:btih:24B4DE07159C87FA677750CAE6DB09CEC17095AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Winter Warfare: Survival (2021) [En] (1.0b7604797) License DARKSiDERS
 magnet:?xt=urn:btih:297F30D0810279286D757490C7BDB861E0FC803D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Empire of Sin перенесет вас в сердце преступного �
 ```bash
 magnet:?xt=urn:btih:B611C494F837C4BA665F6D65E9513C5993EBD7BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ King of Seas (2021) [Ru/Multi] (7677098) License CODEX
 magnet:?xt=urn:btih:3110438A9C6EF6BE6EB74C87AA2FF5DB7F679479
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Shiness The Lightning Kingdom (2017) [Ru/En] (1.02) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:2051FFC854F65EFBE11C588C9180FF450F3EE98F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

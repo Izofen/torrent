@@ -19,6 +19,8 @@ Wise Auto Shutdown 1.63.85 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:041F1B1D07E0FC94E0B63DC250B7879FA9BDFA63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:041F1B1D07E0FC94E0B63DC250B7879FA9BDFA63
 magnet:?xt=urn:btih:9A0A859788775855D437E2876EFFE984CA7E3D21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:9A0A859788775855D437E2876EFFE984CA7E3D21
 ```bash
 magnet:?xt=urn:btih:C595BCCC6E1F918A20DB5AE7ED59E6B643697F84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:C595BCCC6E1F918A20DB5AE7ED59E6B643697F84
 magnet:?xt=urn:btih:C1388DBF06A8440187EC69AA88A5F0966276CD7D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:C1388DBF06A8440187EC69AA88A5F0966276CD7D
 ```bash
 magnet:?xt=urn:btih:023763E337B1BF98C1B951FC40DBDB76B34AA682
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:023763E337B1BF98C1B951FC40DBDB76B34AA682
 magnet:?xt=urn:btih:2F310CCF0A486D24295037187FEC0A65478F81D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ Mikagura Gakuen Kumikyoku | Mikagura School Suite | Сюита школы Мик
 magnet:?xt=urn:btih:16849EE6B7AA0866742F70F7BFCFC9301CBBFB8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ FontViewOK 4.18 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:D4C6C1A26FD1C74EFC91FC71FD46D910F2E1429E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +229,8 @@ magnet:?xt=urn:btih:D4C6C1A26FD1C74EFC91FC71FD46D910F2E1429E
 ```bash
 magnet:?xt=urn:btih:80D1170876FB421D9AF1216E780D39A210463D8B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ VA - Music Box на радио Maximum 50x50 (2015) [MP3|256 кб/с]<Pop>
 magnet:?xt=urn:btih:30261874E215DD655B3670501519E224C2B8B152
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:30261874E215DD655B3670501519E224C2B8B152
 magnet:?xt=urn:btih:E291B3A06E8F5093B45471D5F4AE4FFA8CCCC1D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:E291B3A06E8F5093B45471D5F4AE4FFA8CCCC1D0
 ```bash
 magnet:?xt=urn:btih:EE8A2C289C74FDE82EA5491DEB233739424B9689
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +339,8 @@ magnet:?xt=urn:btih:EE8A2C289C74FDE82EA5491DEB233739424B9689
 magnet:?xt=urn:btih:BA3C247411862A155C1072B5D78F69C78336573A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:BA3C247411862A155C1072B5D78F69C78336573A
 magnet:?xt=urn:btih:C84E3ECFF5611A140B58D62BA2D4B8B01BD7B907
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:C84E3ECFF5611A140B58D62BA2D4B8B01BD7B907
 ```bash
 magnet:?xt=urn:btih:809FBF14176DCEE697E7672396B871AF9ADA627C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -390,6 +420,8 @@ Roger Waters - The Wall (2015) [FLAC|tracks + .cue] 2CD Live <Progressive Rock, 
 magnet:?xt=urn:btih:0655D9E0BE47EEB7ACC18F52E4EB8296DA6D6FEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:0655D9E0BE47EEB7ACC18F52E4EB8296DA6D6FEF
 magnet:?xt=urn:btih:E1F60C27E4D2640FA8B934370D22EDB16A9A9744
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:E1F60C27E4D2640FA8B934370D22EDB16A9A9744
 ```bash
 magnet:?xt=urn:btih:86DD19CE6826C926A6B24C1D1B181B33020706EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -465,6 +501,8 @@ David Garrett - Rock Revolution (Deluxe Edition) (2017) [FLAC|Lossless|image + .
 magnet:?xt=urn:btih:699285FDA690A3E33DA22B825236759659A9F467
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:699285FDA690A3E33DA22B825236759659A9F467
 ```bash
 magnet:?xt=urn:btih:BFA677E3EA68F3C06011305FFEA40B9B05C2290C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ Larkin Poe - Venom & Faith (2018) [MP3|320 Kbps] <Alternative, Indie Rock>
 magnet:?xt=urn:btih:C4D4D3D871267659F4F864B64F1ABDBAC42B094B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:C4D4D3D871267659F4F864B64F1ABDBAC42B094B
 ```bash
 magnet:?xt=urn:btih:81CCBC49CCBEB9DAFA423EE1C372F7488CEC77C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +611,8 @@ VA - Сергей Рахманинов - Золотая коллекция (1999
 magnet:?xt=urn:btih:5DECAD830D1DCFB61844782748EB1F18428C8684
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -590,6 +636,8 @@ magnet:?xt=urn:btih:5DECAD830D1DCFB61844782748EB1F18428C8684
 ```bash
 magnet:?xt=urn:btih:10576A5B3DAB413387E8622E49691890E1E33D7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:10576A5B3DAB413387E8622E49691890E1E33D7A
 magnet:?xt=urn:btih:3036C33BFC21FF3EB386851F563F1488555BF700
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ Comedy Woman (2018.11.09) WEB-DLRip [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:80DF19333C2D7CBFC29988224EBA0CA9177D9BD8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

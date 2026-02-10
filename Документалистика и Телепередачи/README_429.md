@@ -1,3 +1,29 @@
+###  Публикация: 1040653   (586539) от 05.08.2016
+
+Вести в 20-00. Большие Вести. Россия 1 (05.08.2016) HDTVRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_586539.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».Телекомпания: Россия 1 HDЖанр: ТелепередачаПродолжительность: 01:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02F72A27DF28AE99C36D04ED1E2E56E74BCF705B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040642   (586548) от 05.08.2016
 
 В теме. Долгая дорога в РИО (05.08.2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:ED5AA2FF0521302E68B6D43582A78E27E4A399F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:ED5AA2FF0521302E68B6D43582A78E27E4A399F6
 magnet:?xt=urn:btih:5544B7F66DFA4EB947AF6CF7E628572CC9F53F1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:5544B7F66DFA4EB947AF6CF7E628572CC9F53F1E
 ```bash
 magnet:?xt=urn:btih:2505EAAF24EB60B73F94C771FE5E042E6CD18436
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:2505EAAF24EB60B73F94C771FE5E042E6CD18436
 magnet:?xt=urn:btih:7B3A11E229724C2213711456C12D43FD52590983
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:7B3A11E229724C2213711456C12D43FD52590983
 ```bash
 magnet:?xt=urn:btih:1AEFF762C02AD1431C41CF067342DBEB7B161FCC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:1AEFF762C02AD1431C41CF067342DBEB7B161FCC
 magnet:?xt=urn:btih:F287AEAD63514D6EFB1BC9D5F5FE43A47A8BAE84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:F287AEAD63514D6EFB1BC9D5F5FE43A47A8BAE84
 ```bash
 magnet:?xt=urn:btih:DB64F1EB8DA13ACA76068787A047BD42B19B53C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:DB64F1EB8DA13ACA76068787A047BD42B19B53C7
 magnet:?xt=urn:btih:CE74A9D41076EE88E43E3FF009FF811969BBA70A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:CE74A9D41076EE88E43E3FF009FF811969BBA70A
 ```bash
 magnet:?xt=urn:btih:6BA15FD2F7ED8ECE6CF3C680C2DF739691A287EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:6BA15FD2F7ED8ECE6CF3C680C2DF739691A287EA
 magnet:?xt=urn:btih:289E219DC60BDC51F3DBCD6167DE9F5C1AE9268D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +305,8 @@ magnet:?xt=urn:btih:289E219DC60BDC51F3DBCD6167DE9F5C1AE9268D
 magnet:?xt=urn:btih:DEB58891316FE222AB5CB53C595D8ECB372072EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +330,8 @@ magnet:?xt=urn:btih:DEB58891316FE222AB5CB53C595D8ECB372072EC
 ```bash
 magnet:?xt=urn:btih:ABC3CAA6EC7B9C3D8A2882A6A5F3459AE5D6EC4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:ABC3CAA6EC7B9C3D8A2882A6A5F3459AE5D6EC4A
 magnet:?xt=urn:btih:DABF10B3D18D3F8FBD8FC7701DDAF76F6D8967C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +384,8 @@ magnet:?xt=urn:btih:DABF10B3D18D3F8FBD8FC7701DDAF76F6D8967C1
 ```bash
 magnet:?xt=urn:btih:5B643058D65971C54BAABF2A68DD3C23F43C94D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -357,6 +411,8 @@ magnet:?xt=urn:btih:5B643058D65971C54BAABF2A68DD3C23F43C94D3
 magnet:?xt=urn:btih:FB01F6E7413A3D746C5A752387C060384BE1E0F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:FB01F6E7413A3D746C5A752387C060384BE1E0F7
 ```bash
 magnet:?xt=urn:btih:956D122FAA74B2D89B7B60CC8BDC8A77B2F24A63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +463,8 @@ magnet:?xt=urn:btih:956D122FAA74B2D89B7B60CC8BDC8A77B2F24A63
 magnet:?xt=urn:btih:3086ED101616A9989EBB1832BD1048C722573B3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:3086ED101616A9989EBB1832BD1048C722573B3B
 magnet:?xt=urn:btih:049453A2907852A75E7119DEAAD8A88FA8023997
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:049453A2907852A75E7119DEAAD8A88FA8023997
 ```bash
 magnet:?xt=urn:btih:A914B1D6DE15FB240D9C42AF9723256461774D75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:A914B1D6DE15FB240D9C42AF9723256461774D75
 magnet:?xt=urn:btih:001A343AE61AA97D6E1AD1A008A9FFBAC66E9E70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:001A343AE61AA97D6E1AD1A008A9FFBAC66E9E70
 ```bash
 magnet:?xt=urn:btih:AF36D152180E381F64C7328741647EF392A69838
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +596,8 @@ magnet:?xt=urn:btih:AF36D152180E381F64C7328741647EF392A69838
 magnet:?xt=urn:btih:DAA97F6A184BDF4BC93618D0BA255B7933678FAF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:DAA97F6A184BDF4BC93618D0BA255B7933678FAF
 ```bash
 magnet:?xt=urn:btih:A6227834A9E72CD79B448E03170A05CA0E2CCE4D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:A6227834A9E72CD79B448E03170A05CA0E2CCE4D
 magnet:?xt=urn:btih:6EE5A6E654F9AD3E439CA82035409E3E639B4148
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,30 +674,7 @@ magnet:?xt=urn:btih:6EE5A6E654F9AD3E439CA82035409E3E639B4148
 magnet:?xt=urn:btih:AB42B66BEA64A8AC0E97854DE620971C85D0FDF4
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040264   (587451) от 04.08.2016
-
-Кремлёвские похороны. Леонид Брежнев (2009) DVBRip [H.264]
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_587451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизни советских вождей были окружены множеством легенд. Но не только жизни… Почти все представители советской аристократии умерли так, что историки до сих пор спорят, пытаясь разобраться в естественных, на первый взгляд, причинах кончины и отделить пропаганду и домыслы от фактов.
-Со смертью очередного кремлёвского властителя на фоне официальных некрологов и демонстративного (   Читать дальше...   )Телекомпания: НТВЖанр: ДокументальныйРежиссер: Алексей СмаглюкПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF15D79254F22DB0EF767DC8E19292A76458B06A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

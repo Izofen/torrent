@@ -19,6 +19,8 @@ Enterclass, Владислав Татаринов | Букет сирени (202
 magnet:?xt=urn:btih:57AD438A3EDBCB009F8E9E92509DD8DBC9414E0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:57AD438A3EDBCB009F8E9E92509DD8DBC9414E0B
 magnet:?xt=urn:btih:2E8D34150008744FCED74C96FC98AC9FB7C72BC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ Udemy, Кирилл Несмелов | Дизайн мобильного при�
 ```bash
 magnet:?xt=urn:btih:57A0BF2AE45F60323B570AEFD3AD7505E13F6537
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ magnet:?xt=urn:btih:57A0BF2AE45F60323B570AEFD3AD7505E13F6537
 magnet:?xt=urn:btih:1862E0CCDACF3891D6107F246BACD8D964560076
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Udemy, Andrei Neagoie и др. | JavaScript веб проекты: 20 проек
 ```bash
 magnet:?xt=urn:btih:CCA3A0B4201D43904C64D9684CE80E2A164417C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -147,6 +157,8 @@ Pixel, Татьяна Климань | Иллюстрации в Adobe Illustrat
 magnet:?xt=urn:btih:8E44743A89698D7ED21A56B23654FBF2F07C5E8F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Udemy, Lucy Iterman | Postman по полочкам + практика (2022) WE
 ```bash
 magnet:?xt=urn:btih:503496AF7B01FDA978197EADB8C3EBFD309F45AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -196,6 +210,8 @@ Udemy, Никита Сергеев | Power Point: от новичка до ув�
 magnet:?xt=urn:btih:D70CDA81431FB987FB2D2C623BFCD8B8DAB622FA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Geekbrains, Александр Гаврилов и др. | Digital-страте�
 magnet:?xt=urn:btih:276B4BCE0899058887FB81DB15003C7455083519
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -244,6 +262,8 @@ Wingfox, David Zavala | Female Bust Course in Marmoset Toolbag (2021) PCRec [EN]
 ```bash
 magnet:?xt=urn:btih:3031F5C99BE2F76324CD95CB04311DE63CC262CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Udemy, Sergey Dragunov | Room Persistance Librar - Приложение Shopping
 magnet:?xt=urn:btih:85B72D5013C3277DF6772599DD0B3C37E28EE3A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Udemy, Nikolay Stanchev | Unreal Engine 5 The Complete Beginner's Cinematic Cour
 ```bash
 magnet:?xt=urn:btih:A267D5EF49408878BEB41C44478678CA0B549B10
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -320,6 +344,8 @@ SMM-менеджеры и контент-мейкеры, которые хотя
 magnet:?xt=urn:btih:A9F436D60B1ACD904CF01BB70BC128C17F443110
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -346,6 +372,8 @@ Udemy, Eric Ebling | Master Houdini FX: Create Stunning Visual Effects rigs (202
 magnet:?xt=urn:btih:5639F3C03A3CBC7647037DF15F407D21F002D63B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -370,6 +398,8 @@ Kalachevaschool, Аксинья La Paloma | Дети в цифровой илл�
 ```bash
 magnet:?xt=urn:btih:DA501E7C3008A8D1EB8B1D14CC20B6642A52C4CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -398,6 +428,8 @@ ZartSchool, Татьяна Зубова | Портрет. Онлайн курс 
 magnet:?xt=urn:btih:32D18BD457414B4FC02FDC6647CC05E450FD601A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:32D18BD457414B4FC02FDC6647CC05E450FD601A
 ```bash
 magnet:?xt=urn:btih:B0DCBC09F5161ACF3A9EC3EB9AF2F3108FBEBF74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -450,6 +484,8 @@ Blender становится одним из самых популярных п�
 magnet:?xt=urn:btih:49E75BC5B5A9878D7C430FB323BB9A1AD46A2DA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ magnet:?xt=urn:btih:49E75BC5B5A9878D7C430FB323BB9A1AD46A2DA4
 magnet:?xt=urn:btih:FE4072367B8F2E1592D6828E485D01D9591C44FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +538,8 @@ Yiihuu, Hooman Raad | The Dwarf Warrior: 3D Character Creation For Game / Вои
 ```bash
 magnet:?xt=urn:btih:D48211A12BA0CA9F01D683A60341B67C39E3FD4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +565,8 @@ Creative Shrimp | 50 адских ошибок в 3D моделировании 
 ```bash
 magnet:?xt=urn:btih:297978D2F1144E14FAE1F23D281DFA5B14B3A0FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +595,8 @@ Udemy, Dharmanandana Reddy Pothula | Advanced Ethical Hacking : Mastery AI & Cha
 magnet:?xt=urn:btih:8CF9C58AD46C15BD000C4424C7523321B90286D6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ magnet:?xt=urn:btih:8CF9C58AD46C15BD000C4424C7523321B90286D6
 ```bash
 magnet:?xt=urn:btih:66121BA976DBCFCE911E5D5A7C99897D62B7CB17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +651,8 @@ magnet:?xt=urn:btih:66121BA976DBCFCE911E5D5A7C99897D62B7CB17
 magnet:?xt=urn:btih:47785FE97FE40AF2315CAD5DE5609D54FE064EE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ Gift Cookies, Ирина Мошкина | 3 в 1. Совершенство в к
 magnet:?xt=urn:btih:917F8A4929EE73DDC01117C5FDA8004C2FD98565
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ Pratik Naik | Beauty and portrait retouching (2023) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:E4E2327C484378D48FDF6544722506B824B7AB53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

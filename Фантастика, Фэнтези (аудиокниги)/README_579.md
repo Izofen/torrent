@@ -1,3 +1,29 @@
+###  Публикация: 1851495   (1055106) от 
+
+Эдгар Грант | Марсианин (2025) [MP3, Нина Медведева]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/005/save_picture_1055106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инновации, изобретения, новые технологии. Почему все достижения человечества превращаются в оружие? Наступит ли момент, когда плоды прогресса будут служить не разрушению, а созиданию. Что надо сделать, чтобы поставить человеческий гений на службу цивилизации. Возможно ли такое вообще? Однозначного ответа пока нет. Авторская версия представлена в романе «Марсианин».Жанр: Фантастика, ТриллерИздательство: ЛитРесПродолжительность: 15:32:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D8E3D001B433C07E3B08724FBFA603D909A9EA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851494   (1055109) от 
 
 Константин Образцов | Красные цепи (Книги 4-7). Единая теория всего (Том 1-4) (2019-2021) [MP3, Александр Аравушкин]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:B0EF835DE6B6790E55D9FD3529E50EB6B82D1625
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -46,6 +74,8 @@ magnet:?xt=urn:btih:B0EF835DE6B6790E55D9FD3529E50EB6B82D1625
 magnet:?xt=urn:btih:4B61BF2FA506203C3614CE43DB9B6765EE2FC787
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +101,8 @@ magnet:?xt=urn:btih:4B61BF2FA506203C3614CE43DB9B6765EE2FC787
 magnet:?xt=urn:btih:6DFB6D18998E0EA48D17DB20984EBB640C82BC0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +126,8 @@ magnet:?xt=urn:btih:6DFB6D18998E0EA48D17DB20984EBB640C82BC0A
 ```bash
 magnet:?xt=urn:btih:0118E64C890697E238FA0D2F9DC2FB135D53228B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +156,8 @@ magnet:?xt=urn:btih:0118E64C890697E238FA0D2F9DC2FB135D53228B
 magnet:?xt=urn:btih:1762D50C9FBA88BFC3304978C2CAA110ED5079B7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +181,8 @@ Archillect | Корханес (Книга 1). Крысобой (2025) [MP3, Ва
 ```bash
 magnet:?xt=urn:btih:52E12ACAE3E89C94ED469219D66545F876580F6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -170,6 +208,8 @@ magnet:?xt=urn:btih:52E12ACAE3E89C94ED469219D66545F876580F6E
 magnet:?xt=urn:btih:AF9D40DE4BD1DAF05288CD71261515CD424DE223
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:AF9D40DE4BD1DAF05288CD71261515CD424DE223
 ```bash
 magnet:?xt=urn:btih:D0E17DB9F525EFE9212B2E85512C5E0755AAD51A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:D0E17DB9F525EFE9212B2E85512C5E0755AAD51A
 magnet:?xt=urn:btih:20D1FF403B0DBFBD297ECE7A1D35BF21364AEDD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:20D1FF403B0DBFBD297ECE7A1D35BF21364AEDD8
 ```bash
 magnet:?xt=urn:btih:7DAD355448638A48F28F38BEA9416C86390D1802
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:7DAD355448638A48F28F38BEA9416C86390D1802
 magnet:?xt=urn:btih:F4BD59C9ED8D238CE00DA11E0CF196FF69901B16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -289,6 +337,8 @@ magnet:?xt=urn:btih:F4BD59C9ED8D238CE00DA11E0CF196FF69901B16
 ```bash
 magnet:?xt=urn:btih:E01FB1D5E67FD4427840BD7ACB60ED9445FAEBBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +364,8 @@ magnet:?xt=urn:btih:E01FB1D5E67FD4427840BD7ACB60ED9445FAEBBF
 magnet:?xt=urn:btih:776A47016B414B0AC49DB7882989D60D72C8A17C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +389,8 @@ magnet:?xt=urn:btih:776A47016B414B0AC49DB7882989D60D72C8A17C
 ```bash
 magnet:?xt=urn:btih:8ABF6A1DEE7CAD8843B211B7953BE91AC1E8B270
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +416,8 @@ magnet:?xt=urn:btih:8ABF6A1DEE7CAD8843B211B7953BE91AC1E8B270
 magnet:?xt=urn:btih:302545F8A559C4C2DC7E317FC22DB70383B291D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:302545F8A559C4C2DC7E317FC22DB70383B291D0
 ```bash
 magnet:?xt=urn:btih:F42208A90A8D3C161D0951FB02BACB2312E41C13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +468,8 @@ magnet:?xt=urn:btih:F42208A90A8D3C161D0951FB02BACB2312E41C13
 magnet:?xt=urn:btih:5DC631C1E84E27CAEFF75F922BE4861E85E709BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +493,8 @@ magnet:?xt=urn:btih:5DC631C1E84E27CAEFF75F922BE4861E85E709BF
 ```bash
 magnet:?xt=urn:btih:C1D6C4904192AA7F3E068B8B8FBAF22A111C4DBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -458,6 +520,8 @@ magnet:?xt=urn:btih:C1D6C4904192AA7F3E068B8B8FBAF22A111C4DBF
 magnet:?xt=urn:btih:276E982DDE3E30E3F5EF3F11759ADB423E52E3C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -481,6 +545,8 @@ magnet:?xt=urn:btih:276E982DDE3E30E3F5EF3F11759ADB423E52E3C2
 ```bash
 magnet:?xt=urn:btih:D205E7B0AC6092DB847D197C0FEE01A0CD6D0315
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -506,6 +572,8 @@ magnet:?xt=urn:btih:D205E7B0AC6092DB847D197C0FEE01A0CD6D0315
 magnet:?xt=urn:btih:B6847C8626FC52C0763365CFC8BA94D231D70AB5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:B6847C8626FC52C0763365CFC8BA94D231D70AB5
 ```bash
 magnet:?xt=urn:btih:ADE201F3FAEE888FE26148B8983D86D7FDA5C5DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -554,6 +624,8 @@ magnet:?xt=urn:btih:ADE201F3FAEE888FE26148B8983D86D7FDA5C5DE
 magnet:?xt=urn:btih:C32CEC168AD897C4255298CEF67905B55ECB3B65
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +649,8 @@ magnet:?xt=urn:btih:C32CEC168AD897C4255298CEF67905B55ECB3B65
 ```bash
 magnet:?xt=urn:btih:73BF20CE3859208620F308756FE122FB7914BF6E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -603,29 +677,7 @@ magnet:?xt=urn:btih:73BF20CE3859208620F308756FE122FB7914BF6E
 magnet:?xt=urn:btih:E146854EE98A883D1A3FBFD9528CA325162E67FF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851465   (1055165) от 
-
-Александр Бушков | Тени в темных углах (Книга 1). Гроза над крышами (2026) [MP3, Маргарита Серебринская]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/005/save_picture_1055165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Королевство Арелат. Удивительный мир, так похожий на средневековую Европу. Мир, в котором временно утихли жестокие войны, еретиков сжигают все реже, а магия, кажется, осталась только в сказках и детских страшилках. Сейчас в Арелате наступили спокойные времена, но под внешней безмятежностью скрываются интриги, пороки и мрачные тайны. Главные герои, компания мальчишек, (   Читать дальше...   )Жанр: Фэнтези, героическое, Young adultИздательство: ЛитРесПродолжительность: Маргарита Серебринская
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6F482A6C34F7E9C1C898D9FD894FD9976B8FF6C
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

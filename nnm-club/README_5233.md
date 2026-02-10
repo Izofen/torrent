@@ -19,6 +19,8 @@ PullTube 1.8.5.18 [Multi/Ru]
 magnet:?xt=urn:btih:EAC2E151140C00441D94E65E9960D9A0889997DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ System Toolkit - приложение «все-в-одном» для монит
 ```bash
 magnet:?xt=urn:btih:EF6A138B05C0388DC99185E0BAE82CADAE0C6D59
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:EF6A138B05C0388DC99185E0BAE82CADAE0C6D59
 magnet:?xt=urn:btih:45D70FCAC3310E171D01460BA9B261291A4920C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ BELOFF 2020.12 Full (Юбилейный сборник)
 magnet:?xt=urn:btih:9B17C63E68B5F2A43E3B0EDEA50842552C3EEA91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +122,8 @@ magnet:?xt=urn:btih:9B17C63E68B5F2A43E3B0EDEA50842552C3EEA91
 ```bash
 magnet:?xt=urn:btih:F45CE0E4B00281ED8A5B2D0A81CB53EF78627A76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ Asmodean - By a Thread (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, 
 magnet:?xt=urn:btih:3AA8D3E254084612900C5FA87C8D4A0C1FD565D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -169,6 +181,8 @@ Black Anvil - Regenesis (2022) [FLAC|Lossless|WEB-DL|tracks] <Black, Thrash Meta
 magnet:?xt=urn:btih:66FEF26B162475C0B3F5AFB57EB34816C0B21CE8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +206,8 @@ Desperados III — это хардкорная тактическая игра �
 ```bash
 magnet:?xt=urn:btih:3ADE5C7387AB8F96EEBC3E0A220883AAAB70C1B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -218,6 +234,8 @@ OpenNumismat является удобным и надежным приложе�
 magnet:?xt=urn:btih:F4F5C6A01D54219025556438289305839827626D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +259,8 @@ AnyMP4 iOS Cleaner может помочь вам освободить боль�
 ```bash
 magnet:?xt=urn:btih:842FFE50B3300BF8B18B3A0B44A2A3C797914CEA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ Wizard - Odin (2003) [FLAC|Lossless|image + .cue] <Power Metal>
 magnet:?xt=urn:btih:6E4186D349F5C4D482D539521F45FBC6E432D5B4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ Microsoft® Windows® 7 Ultimate Ru x86/x64 nBook IE11 by OVGorskiy 12.2020 1DVD
 magnet:?xt=urn:btih:762308BA8383B56A7FAE8EAEDEDFCAD23639BBFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ magnet:?xt=urn:btih:762308BA8383B56A7FAE8EAEDEDFCAD23639BBFE
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +370,8 @@ Arsenic - Seeds of Darkness (2006) Compilation, Metalhit [FLAC|Lossless|WEB-DL|t
 magnet:?xt=urn:btih:73498B1FE1B9073E1243DCA400D03A593174C212
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -368,6 +396,8 @@ PowerPhotos - позволяет разбить ваши изображения 
 magnet:?xt=urn:btih:C377AF1BB5DB9892BFAC89BA19D43CCD71BE18B5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -391,6 +421,8 @@ magnet:?xt=urn:btih:C377AF1BB5DB9892BFAC89BA19D43CCD71BE18B5
 ```bash
 magnet:?xt=urn:btih:B32087BF0440C490047849FB77E267910473DC33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -417,6 +449,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 magnet:?xt=urn:btih:8EE7C8B562C3FED37D6803FC7C4F8869CD133221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -440,6 +474,8 @@ Skillbox, Роман Цыганов и др. | Профессия 3D-джене�
 ```bash
 magnet:?xt=urn:btih:7A1647E038B035903F7E5772F072D769427573C2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -468,6 +504,8 @@ Trivax - Eloah Burns Out (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Bl
 magnet:?xt=urn:btih:5F83F884C376687819D8864D2C47544C81BDBEA7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -493,6 +531,8 @@ magnet:?xt=urn:btih:5F83F884C376687819D8864D2C47544C81BDBEA7
 magnet:?xt=urn:btih:22BB1F835449FE430D89DA322F2A1A7490406E5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:22BB1F835449FE430D89DA322F2A1A7490406E5E
 ```bash
 magnet:?xt=urn:btih:B95FADD9BD352565ED8B38B9691FF49BFBBB03CB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ The Father Of Serpents - Age Of Damnation (2017) [FLAC|Lossless|image + .cue] <G
 magnet:?xt=urn:btih:482F5F1FE4CE548BAA06EA26AC60CA49219A3967
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +616,8 @@ VA - Deep House: NME Hot Electro Set (2021) [MP3|320 Kbps] <Deep House, Electro>
 magnet:?xt=urn:btih:A23759DC7B40CAEA10712B5CAA1FA386FD0F2C7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:A23759DC7B40CAEA10712B5CAA1FA386FD0F2C7B
 ```bash
 magnet:?xt=urn:btih:EFFCC19BAB313FA2742DD81A27A1525D5C275021
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ Wizard - Goochan (2007) [FLAC|Lossless|image + .cue] <Power Metal>
 magnet:?xt=urn:btih:63AF54606AB247ACBC7C0FCE389AACC6637EE333
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -647,6 +697,8 @@ magnet:?xt=urn:btih:63AF54606AB247ACBC7C0FCE389AACC6637EE333
 ```bash
 magnet:?xt=urn:btih:BCEC32D9CFBE007B5DDC9E6AFB64DC2D5D7841BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

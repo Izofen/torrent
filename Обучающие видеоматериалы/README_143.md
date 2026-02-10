@@ -19,6 +19,8 @@ JavaBegin | Веб разработка (2015-2016) PCRec [H.264]
 magnet:?xt=urn:btih:42CC0677DCE5F15A4AB4572A9CF709B97C21271E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Convert Monster | Google Adwords 3.0 (2017) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:B9D6F59E72F30609F5EBC852DC65B549DC6C3FC4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Pluralsight | Linux Encryption Security / Безопасность и Шифро
 magnet:?xt=urn:btih:3CF781717DCDCE1B9B1A2A8392431697960CDB23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:3CF781717DCDCE1B9B1A2A8392431697960CDB23
 ```bash
 magnet:?xt=urn:btih:2DC4435F350CE7A11FD754B1E9A280BF82DFC884
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Udemy | Полный курс по кибербезопасности: Сете�
 magnet:?xt=urn:btih:B99B29EBB16126A23C31E9F68AAED87F4C81867D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ BeFit In 30 Extreme Workouts — это комплекс интенсивных 
 ```bash
 magnet:?xt=urn:btih:13CC444F4EFE60C09874B659E79743F5DA423F7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ jsexpert | Понятный JavaScript [Advanced] (2018) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:E0B1177EF7791A5F86EC903E3C0274039C930157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:E0B1177EF7791A5F86EC903E3C0274039C930157
 magnet:?xt=urn:btih:DC3D9CF86EE322CDE7B47A7838E8AEAA2E67B08A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +232,8 @@ magnet:?xt=urn:btih:DC3D9CF86EE322CDE7B47A7838E8AEAA2E67B08A
 ```bash
 magnet:?xt=urn:btih:203CA7441FF072CE4D620A5E159EEDE4996B7112
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:203CA7441FF072CE4D620A5E159EEDE4996B7112
 magnet:?xt=urn:btih:0F9E209F651003E75F05A2B87ACB1DFD1902DB7A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +284,8 @@ ITVDN | Node.js (2017) PCRec [H.264]
 ```bash
 magnet:?xt=urn:btih:5E1A7B5887560C6CE4136ABB16A2467A47583F75
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:5E1A7B5887560C6CE4136ABB16A2467A47583F75
 magnet:?xt=urn:btih:CE9C1D3EB3B1EA74AB3E15A5060E1E44B2FBE0A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Udemy | Основы Nginx / Nginx Fundamentals (2018) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:535E9A861D7AD9826DC2D590DAD9D678C1F49349
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:535E9A861D7AD9826DC2D590DAD9D678C1F49349
 ```bash
 magnet:?xt=urn:btih:C7E669E4BC45EE115E14E8D14EB5361DEDC22705
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +398,8 @@ Lynda.com | Creating Secure PHP Websites (2014) PCRec [H.264]
 magnet:?xt=urn:btih:7F4FBAD06C6C3FC37F88EE58778578B6E7F73F68
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +426,8 @@ Udemy | Начальный курс SQL (2019) PCRec [H.264/720p-LQ]
 magnet:?xt=urn:btih:BFC5D9D99938692D7EBA127791B8BF202658068D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:BFC5D9D99938692D7EBA127791B8BF202658068D
 magnet:?xt=urn:btih:33AA26C57C49D9FFAEB0D0AD554DB1E4CF124E18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +477,8 @@ Highlights School | МК Обработка кожи и волос (2013) PCRec
 ```bash
 magnet:?xt=urn:btih:FDB808549A0957048D06F59427DAD9626E28ACD2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ magnet:?xt=urn:btih:FDB808549A0957048D06F59427DAD9626E28ACD2
 magnet:?xt=urn:btih:4D187CB1068D9EEA2A755D32D65C4AE82AC19DAA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -492,6 +530,8 @@ magnet:?xt=urn:btih:4D187CB1068D9EEA2A755D32D65C4AE82AC19DAA
 ```bash
 magnet:?xt=urn:btih:0F2668FC1BDD79A722C52AFAE27E2A16042AEA47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -520,6 +560,8 @@ magnet:?xt=urn:btih:0F2668FC1BDD79A722C52AFAE27E2A16042AEA47
 magnet:?xt=urn:btih:20DEAE0AA68E54D08AA9FAB2E635BE242B1AC7BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -546,6 +588,8 @@ magnet:?xt=urn:btih:20DEAE0AA68E54D08AA9FAB2E635BE242B1AC7BA
 ```bash
 magnet:?xt=urn:btih:25A5E780B2A68D8AE933AB30B2DF2D8B8CFF1DFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +618,8 @@ magnet:?xt=urn:btih:25A5E780B2A68D8AE933AB30B2DF2D8B8CFF1DFC
 magnet:?xt=urn:btih:99A7ECBF71063E21AC4E882A16D00F4DE55A1CDB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -597,6 +643,8 @@ magnet:?xt=urn:btih:99A7ECBF71063E21AC4E882A16D00F4DE55A1CDB
 ```bash
 magnet:?xt=urn:btih:6C04AC5C25D581956921B90BAB39DD0759405787
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -624,6 +672,8 @@ jsexpert | Понятный JavaScript [Beginner] (2017) PCRec [H.264/1080p-LQ]
 magnet:?xt=urn:btih:982E9E720121B9D0B4B8CEA164F88F1602CDAA0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -649,6 +699,8 @@ jsexpert | Понятный JavaScript [Middle] (2018) PCRec [H.264/720p-LQ]
 ```bash
 magnet:?xt=urn:btih:25360AB443EF70D31CDB16F440F6E98E17BD491F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

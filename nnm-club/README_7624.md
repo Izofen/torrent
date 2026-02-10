@@ -21,6 +21,8 @@
 magnet:?xt=urn:btih:06641416374DBACA1053141FD09B4425116F26E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Magic Uneraser от East Imperial Soft предлагает восстановл
 ```bash
 magnet:?xt=urn:btih:6814D6E5B570964ECBE0B950050B29475A1DCAA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:6814D6E5B570964ECBE0B950050B29475A1DCAA9
 magnet:?xt=urn:btih:E41AF202820FEE63D725935F23A5B5E053377EB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +99,8 @@ RTG. Природный парк «Вепсский лес» (2013) HDTV [H.264/
 magnet:?xt=urn:btih:139D3FBFE821294D8BFDDE953BAB9731444BC4D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:139D3FBFE821294D8BFDDE953BAB9731444BC4D5
 ```bash
 magnet:?xt=urn:btih:9FC3AD90AA3679DBF40A6A0A6329A00D54DFAF66
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -144,6 +154,8 @@ Billy Boy Arnold - 13 Albums (1978 - 2014) [FLAC|Lossless|image + .cue|tracks + 
 magnet:?xt=urn:btih:D0C81FB9F4EB7A79E429B933E7EFFC943F7CF2A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:D0C81FB9F4EB7A79E429B933E7EFFC943F7CF2A0
 ```bash
 magnet:?xt=urn:btih:D4C2221C379A4AE15C5E0370126A1D6C713FD4B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +208,8 @@ magnet:?xt=urn:btih:D4C2221C379A4AE15C5E0370126A1D6C713FD4B2
 magnet:?xt=urn:btih:230D7B56F7E485B9AB98B6EE99158DA80096F526
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -219,6 +235,8 @@ UninstallPKG может использоваться для очистки св�
 magnet:?xt=urn:btih:3B64ACCC8AF2E8818DFFA85AA7C450ABDFD85F80
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:3B64ACCC8AF2E8818DFFA85AA7C450ABDFD85F80
 magnet:?xt=urn:btih:B28029C21E1C9BFBE48BE31579BAFBC4C233A113
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Renai Flops | Love Flops | Любовные неудачи [2022, TV, 12 эп.] 
 ```bash
 magnet:?xt=urn:btih:6942CFBC71493D3D3C9B415B9B560AD532B33DB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +314,8 @@ magnet:?xt=urn:btih:6942CFBC71493D3D3C9B415B9B560AD532B33DB1
 magnet:?xt=urn:btih:ECBDE02985051D826ED1D14D125F6B7FC3DAB7C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +340,8 @@ Marvel | Артбук художника Marko Djurdjevic / The Marvel Art of Ma
 magnet:?xt=urn:btih:CEB6D3DF16104B3731F5E67D2BF6E20D8322C656
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:CEB6D3DF16104B3731F5E67D2BF6E20D8322C656
 ```bash
 magnet:?xt=urn:btih:7FFE22B2887DA6260794224B0E28CE5D30A84157
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ Mystfall - Celestial Vision (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Meta
 magnet:?xt=urn:btih:CE4259073F62C7DF9350FAF03B5C0F1BB2EEF482
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +422,8 @@ Peter Bergting | Артбук художника Peter Bergting / The Art of Pet
 magnet:?xt=urn:btih:2A2CA283DCD94AD1B989969187F55A6AED0CFD49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ magnet:?xt=urn:btih:2A2CA283DCD94AD1B989969187F55A6AED0CFD49
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -443,6 +477,8 @@ VA - Milk & Sugar Summer Sessions 2023 [MP3|320 Kbps] <Funky, Club House>
 magnet:?xt=urn:btih:8A2FCFE708C86B6DE008B1829F64C1E13F22898B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +504,8 @@ magnet:?xt=urn:btih:8A2FCFE708C86B6DE008B1829F64C1E13F22898B
 magnet:?xt=urn:btih:C0D13B66186FE2920A5A5197B6CA74B3E21A28F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +529,8 @@ magnet:?xt=urn:btih:C0D13B66186FE2920A5A5197B6CA74B3E21A28F4
 ```bash
 magnet:?xt=urn:btih:7793181F021FC0B34D9EDCC43F1A677DC30DD609
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -516,6 +556,8 @@ Sloth — это нативное приложение для Mac, которо�
 magnet:?xt=urn:btih:C44EF145F346A3FD91D70FA63271910F94937213
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:C44EF145F346A3FD91D70FA63271910F94937213
 ```bash
 magnet:?xt=urn:btih:B1123AEB7EE113671057B36DE9E4ABCAB998EDAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -564,6 +608,8 @@ TrackView - HomeSafe v3.8.12  [Ru/Multi]
 magnet:?xt=urn:btih:29140D9E790C43FD41ABCFBB5B1BD63A0553260E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +633,8 @@ magnet:?xt=urn:btih:29140D9E790C43FD41ABCFBB5B1BD63A0553260E
 ```bash
 magnet:?xt=urn:btih:FA8A283A875BB442D3F44794C4B8336EE9970C79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,6 +660,8 @@ X Icon Changer - отличный проект по персонализации
 magnet:?xt=urn:btih:ACD62D1E0E4CB4A8B5777A177FD8777C5D0F0C2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -635,6 +685,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:02EA7E53EA33C377F897FFB2F0209AE0F87FCB87
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

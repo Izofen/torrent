@@ -19,6 +19,8 @@ Alfa eBooks Manager - одна из самых популярных програ
 magnet:?xt=urn:btih:C27DAC9F3C958374ADF777337CDE9D62A593741B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ YTDownloader – простая в использовании программа
 ```bash
 magnet:?xt=urn:btih:897E5DD65A7B9F33A5D84FF2136793541729BCA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Soft Organizer - утилита для полного удаления нену�
 magnet:?xt=urn:btih:E4909B2726C22FCD84E191C82ECB20BAC6ED74FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ MobiPDF: Редактор и сканер PDF  v11.2.266802 Mod by Balatan [Ru/M
 ```bash
 magnet:?xt=urn:btih:DFFE4725B96D2CAE741177B22D84A67A8FD897B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Multi Commander - мощный многооконный менеджер фай�
 magnet:?xt=urn:btih:152F6D80F54838BCA2FC3ECCC9B3F66ADF80256E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 ```bash
 magnet:?xt=urn:btih:A80DEEA0175E31A5AED8EF9AF963823E27D3AAB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ iTubeGo YouTube Downloader 9.4.0 RePack (& Portable) by elchupacabra [Multi/Ru]
 magnet:?xt=urn:btih:0440F1E17C45C1FCEF40E0B214D3B1F70AE50131
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ DISMTools — это интерфейс для DISM, позволяющий уп
 magnet:?xt=urn:btih:402B793444EE818AB99DEB1C8B1B15707A0E945F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Hard Disk Sentinel Pro — отличная программа для монит
 ```bash
 magnet:?xt=urn:btih:8A70A7B0F0536C858EAE36CF046273FB133E0A09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -241,6 +259,8 @@ magnet:?xt=urn:btih:8A70A7B0F0536C858EAE36CF046273FB133E0A09
 magnet:?xt=urn:btih:BB205BFBA546DFCBAF3B0AEB63160C7294EAAB05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +285,8 @@ LazyMedia Deluxe это Android TV приложение, которое можн
 magnet:?xt=urn:btih:303B6672B9B2C192C8D432EAEAFB32447633DC3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +310,8 @@ dBpoweramp Music Converter не пытается завоевать пользо
 ```bash
 magnet:?xt=urn:btih:3148D179DC38B61A2A31AD052B435D1F500A608C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ SoundSwitch — легко переключаемся между звуковы�
 magnet:?xt=urn:btih:2097D85CBCB36F007C2B2F485C25A338BF1FEF6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ TikTok - социальное приложение для тех кто пред
 magnet:?xt=urn:btih:3E99F501485245746B09EFC6EFC2FA525B69F982
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ Wise Disk Cleaner 11.2.0.837 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:5195F5D9B32BD4256B18F3266895958635844B33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:5195F5D9B32BD4256B18F3266895958635844B33
 magnet:?xt=urn:btih:497226C8896DC98932BA66E700DEC2AF183DDC4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:497226C8896DC98932BA66E700DEC2AF183DDC4D
 ```bash
 magnet:?xt=urn:btih:986B6DC14203AAAB96CFA8E7826F99CC5846FA84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ MKVToolnix - функциональный набор инструментов д
 magnet:?xt=urn:btih:4D90944CE65B27DE8329DB64D1017960B04634A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ PowerDirector - самое быстрое и передовое программ
 ```bash
 magnet:?xt=urn:btih:E59334B9C5D9289961C30638E3387755F80B656C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ Media Player Classic Home Cinema - удобный во всех планах м�
 magnet:?xt=urn:btih:6B8DBAE9F67E8C94FE6BE6141653C6D46C75D933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +547,8 @@ Tor Browser Bundle 14.0.6 [Multi/Ru]
 magnet:?xt=urn:btih:EFA7A295397D5583DA7ED56E9769550E0E301A35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -530,6 +572,8 @@ One Read / Все Документы Читатель - Офис v1.2.2.43 Mod b
 ```bash
 magnet:?xt=urn:btih:CEB2AD8BBE560B4C422E45493403A2F66A6E0E07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Topaz Photo AI использует передовые алгоритмы иск
 magnet:?xt=urn:btih:AC62486E0EEE743261D0230E34FD65D522FCA97C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +626,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:807135197955DB9D4DC738BD89134566056421F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -605,6 +653,8 @@ Google Chrome – это веб-браузер, сочетающий в себе
 magnet:?xt=urn:btih:9CBFBEBA580C02051AB3187EFAB5F0096CA85986
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +678,8 @@ Skype - бесплатная программа для текстового, г�
 ```bash
 magnet:?xt=urn:btih:75358F6E154BC789F232E13A6938D23E9256DFF7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1500273   (841081) от 06.10.2021
+
+Древние небеса / Ancient Skies (2019) IPTVRip [H.264] (серии 1-3 из 3)
+
+>>Документалистика и Телепередачи
+>>Космос
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_841081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трудно поверить, что когда-то мы считали Землю плоской и были уверены в том, что Земля находится в центре всего и что Вселенная ограничивается нашей собственной галактикой. На протяжении тысячелетий мы объясняли небесные явления с помощью историй о богах и чудовищах. Но с изобретением телескопа мы начали открывать рациональную Вселенную. Благодаря науке астрономии (   Читать дальше...   )Производство: США / Impossible FactualЖанр: Документальный, космос, астрономияРежиссер: Adam LuriaПеревод: Двуголосый профессиональный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 3 x ~ 00:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6542D7BF5B59E5F0DCDB142DA33CE24D071A9919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 834604   (841286) от 04.04.2016
 
 Лавкрафт: Страх неизведанного / Lovecraft: Fear Of The Unknown (2009) BDRip [H.264/720p]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:BC6689B1CF16A8ED67984BC2A88CDE98C997E58B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:BC6689B1CF16A8ED67984BC2A88CDE98C997E58B
 magnet:?xt=urn:btih:0A78FC31661098CDF52FBFE06DE79D5A7D11F7B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:0A78FC31661098CDF52FBFE06DE79D5A7D11F7B1
 ```bash
 magnet:?xt=urn:btih:8C23AC932B3064D58181812D411CFEB94ECF29AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:8C23AC932B3064D58181812D411CFEB94ECF29AB
 magnet:?xt=urn:btih:A37D06FD8B2D059661F21376D66864C2DBC6B9FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:A37D06FD8B2D059661F21376D66864C2DBC6B9FF
 ```bash
 magnet:?xt=urn:btih:F66CAF2CA81AACAC911F5E482F8D1F40C2003469
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:F66CAF2CA81AACAC911F5E482F8D1F40C2003469
 magnet:?xt=urn:btih:20D322B28234555E942CD986927A9901212C6647
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:20D322B28234555E942CD986927A9901212C6647
 ```bash
 magnet:?xt=urn:btih:88309974869B05C8F4957600F22BEF1A42901619
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:88309974869B05C8F4957600F22BEF1A42901619
 magnet:?xt=urn:btih:5B24BA8FF4C2476F3E18432FBFEC8D2B30ABD672
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:5B24BA8FF4C2476F3E18432FBFEC8D2B30ABD672
 ```bash
 magnet:?xt=urn:btih:E57A7ED33CEB46CE4A12F4305535E39B39CDEB6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:E57A7ED33CEB46CE4A12F4305535E39B39CDEB6A
 magnet:?xt=urn:btih:99713618602F2B1169DB13D302CD64810BC4154E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:99713618602F2B1169DB13D302CD64810BC4154E
 ```bash
 magnet:?xt=urn:btih:F27668E883F75CC8D81FC95FB365F0854F6F5084
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:F27668E883F75CC8D81FC95FB365F0854F6F5084
 magnet:?xt=urn:btih:099739C6BA660BB3FE9E2073BDA1D31F18F0D5E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:099739C6BA660BB3FE9E2073BDA1D31F18F0D5E7
 ```bash
 magnet:?xt=urn:btih:3C27B0891E02D84C8C28991C39919FE6F68F6E2C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:3C27B0891E02D84C8C28991C39919FE6F68F6E2C
 magnet:?xt=urn:btih:3EC1DBF190F99A218136B63E0EB97763D8D3BE64
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:3EC1DBF190F99A218136B63E0EB97763D8D3BE64
 ```bash
 magnet:?xt=urn:btih:8F6091D5510F5F1F05AFF60427503A8218277CC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -380,6 +436,8 @@ magnet:?xt=urn:btih:8F6091D5510F5F1F05AFF60427503A8218277CC9
 magnet:?xt=urn:btih:C9C91E10ECF682DC9E4BF69EF2B1320E6E2E5BCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +461,8 @@ Aнисса Науэй ведёт аналитическую программу 
 ```bash
 magnet:?xt=urn:btih:907E7B9439AC98EBB854916CEE9B8EEB43253966
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -428,6 +488,8 @@ magnet:?xt=urn:btih:907E7B9439AC98EBB854916CEE9B8EEB43253966
 magnet:?xt=urn:btih:6C3746E241F93AAF3C8ADBD0807E5C660CC9E364
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:6C3746E241F93AAF3C8ADBD0807E5C660CC9E364
 ```bash
 magnet:?xt=urn:btih:10EBE2F257B199D13A2C66A04DCA086D4B2A4A5E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +544,8 @@ magnet:?xt=urn:btih:10EBE2F257B199D13A2C66A04DCA086D4B2A4A5E
 magnet:?xt=urn:btih:E25F75F4B9326B47BF8569E89C1B4E182CED96EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:E25F75F4B9326B47BF8569E89C1B4E182CED96EE
 ```bash
 magnet:?xt=urn:btih:C08E3D9A9F41B620856C5E0AE1A0201B46D1C8AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:C08E3D9A9F41B620856C5E0AE1A0201B46D1C8AE
 magnet:?xt=urn:btih:B59CAD47B0CE0010F6F551BB8CFD678BAEFB8221
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -553,6 +623,8 @@ magnet:?xt=urn:btih:B59CAD47B0CE0010F6F551BB8CFD678BAEFB8221
 magnet:?xt=urn:btih:CA9CE8BE23F2061E7B68B73198149EF66552ECCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +648,8 @@ magnet:?xt=urn:btih:CA9CE8BE23F2061E7B68B73198149EF66552ECCF
 ```bash
 magnet:?xt=urn:btih:86DC204E161E11C77D01F6D44EBF40A5855BC202
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -602,30 +676,7 @@ magnet:?xt=urn:btih:86DC204E161E11C77D01F6D44EBF40A5855BC202
 magnet:?xt=urn:btih:3AA5808A0DAFB855F185D190260D23919F6C3A7F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003401   (843015) от 03.04.2016
-
-Открытие Китая (2016.04.03) SATRip (серия 6)
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_843015.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Открытие Китая" - это цикл авторских документальных фильмов о Поднебесной. Автор Евгений Колесов – не профессиональный журналист, а бизнесмен.
-Двадцать лет назад, еще студентом, он поехал в Китай учиться, да так там и остался. Основал заграницей успешную консалтинговую фирму, женился на русской девушке, родил четверых детей. А потом как человек творческий (   Читать дальше...   )Телекомпания: Первый каналЖанр: Документальный, познавательный, путешествиеСубтитры: ОтсутствуютПродолжительность: 00:2:
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3170E9FD57C28F369BF819F6CCB1E9EAA6E28243
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

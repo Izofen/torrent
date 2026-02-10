@@ -28,6 +28,8 @@ Obie Trice - Bottoms Up (2012) [MP3|192 кб/с]<Midwest Hip-Hop>
 magnet:?xt=urn:btih:393ED048EF11B06CDF84387F1B3FAFD59091F5E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -51,6 +53,8 @@ magnet:?xt=urn:btih:393ED048EF11B06CDF84387F1B3FAFD59091F5E1
 ```bash
 magnet:?xt=urn:btih:CF6B2FBB9720D2410C5DCC9B9882A4E436B124EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -80,6 +84,8 @@ magnet:?xt=urn:btih:CF6B2FBB9720D2410C5DCC9B9882A4E436B124EF
 magnet:?xt=urn:btih:993F288B783AAA7D12FE93C3EE879C716A219022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -107,6 +113,8 @@ magnet:?xt=urn:btih:993F288B783AAA7D12FE93C3EE879C716A219022
 ```bash
 magnet:?xt=urn:btih:E3B4E9CB58A6E122C3D64624072B28770DAE896C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -136,6 +144,8 @@ magnet:?xt=urn:btih:E3B4E9CB58A6E122C3D64624072B28770DAE896C
 magnet:?xt=urn:btih:5C8EB622417AD8679B21B3A3CD39C6462F91142D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -159,6 +169,8 @@ magnet:?xt=urn:btih:5C8EB622417AD8679B21B3A3CD39C6462F91142D
 ```bash
 magnet:?xt=urn:btih:D7782CFCE5AD05B625AA37ED5887481300DFED48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +205,8 @@ VA - V2-GD [by Pack Master Ex.Mu.] (22.03.2012) [MP3|320 кб/с]<Dubstep>
 magnet:?xt=urn:btih:200B867ADB20DE10B184ACA27BF01B8AF9949D98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +234,8 @@ magnet:?xt=urn:btih:200B867ADB20DE10B184ACA27BF01B8AF9949D98
 ```bash
 magnet:?xt=urn:btih:A50940C5B3AE83AC4811AB482142BB66DD399BEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +265,8 @@ magnet:?xt=urn:btih:A50940C5B3AE83AC4811AB482142BB66DD399BEC
 magnet:?xt=urn:btih:8654B630C268F760A29923B3A478E9E4474D6E01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -272,6 +290,8 @@ magnet:?xt=urn:btih:8654B630C268F760A29923B3A478E9E4474D6E01
 ```bash
 magnet:?xt=urn:btih:03B6CB9521D4288E709FA4840D103150C23693FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -306,6 +326,8 @@ VA - VA - RU Dj's vol.3 (2012) [MP3|192 kbps]<Club | Dance | House>
 magnet:?xt=urn:btih:FCF29869A5DF0D8A04A53900A4AAD30A4ADDC87F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +356,8 @@ magnet:?xt=urn:btih:FCF29869A5DF0D8A04A53900A4AAD30A4ADDC87F
 magnet:?xt=urn:btih:16034BB7B8AA25C44BA262AAC63E3B13D652664F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +381,8 @@ magnet:?xt=urn:btih:16034BB7B8AA25C44BA262AAC63E3B13D652664F
 ```bash
 magnet:?xt=urn:btih:667A6CE9D9A739E74B6B51239F2ECD284E88B15B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +417,8 @@ Patchbay - Southern Cross (2012) [MP3|320 кб/с]<Psychedelic / Full On>
 magnet:?xt=urn:btih:AB89C8044C9C56D237774E1DE0ABE3CED90D0587
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -414,6 +442,8 @@ SeaMonkey — проект, основанный на добрых традиц�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +475,8 @@ Space Elves - Terrestrial Planet Finder (2012) [MP3|320 кб/с]<Psychedelic, Go
 ```bash
 magnet:?xt=urn:btih:09B576AD26F5AA7B3C34F961A825FCE9AC0FFACE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +511,8 @@ VA - Orchid Lounge (2012) [MP3|320 kbps]<Lounge | Сhillout>
 magnet:?xt=urn:btih:D45645DB30383B4327F03E103DAA037E3F78589D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +540,8 @@ magnet:?xt=urn:btih:D45645DB30383B4327F03E103DAA037E3F78589D
 ```bash
 magnet:?xt=urn:btih:E254ACF6BF7ACB19F35EB768E8B8C57C175ED82A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +576,8 @@ VA - Клубная дискотека Record vol. 2 Русская (2012) [MP3|
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -567,6 +605,8 @@ VA - Клубная дискотека Record vol. 2 Русская (2012) [MP3|
 ```bash
 magnet:?xt=urn:btih:645CC25B1CFC6F2F1ED1D895CB11C5613FBF8EEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +641,8 @@ Grollo-Capitanata - Aura Magic (2006) [MP3|320 кб/с]<New age>
 magnet:?xt=urn:btih:525540B6EC57A5FCFDA9F6EBD60C0E7030EFB8C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +676,8 @@ Redmist Destruction - Nobility In Death (2012) [FLAC|Lossless]<Thrash Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -657,6 +701,8 @@ Redmist Destruction - Nobility In Death (2012) [FLAC|Lossless]<Thrash Metal>
 ```bash
 magnet:?xt=urn:btih:686EAE222951014E78E6215A61E02ECE23533B11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -682,6 +728,8 @@ magnet:?xt=urn:btih:686EAE222951014E78E6215A61E02ECE23533B11
 ```bash
 magnet:?xt=urn:btih:FB70E9AA165F377C00FCC2BE97C30D687D599AAC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -710,6 +758,8 @@ magnet:?xt=urn:btih:FB70E9AA165F377C00FCC2BE97C30D687D599AAC
 ```bash
 magnet:?xt=urn:btih:1074D286D698870FCEE1EC009E22DF84280BBE81
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -743,6 +793,8 @@ VA - Dub Step vol.6 from AGR (2012) [MP3|256 kbps]<Dub Step>
 ```bash
 magnet:?xt=urn:btih:6785C069099DA21E9C529BEE66F557A30C8D6037
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

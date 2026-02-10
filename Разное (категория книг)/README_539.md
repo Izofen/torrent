@@ -1,3 +1,29 @@
+###  Публикация: 1199608   (801079) от 16.01.2018
+
+Р.Т. Богомолова | Осень нашей жизни. Окрепнуть в вере, поддержать здоровье (2016) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_801079.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге старость рассматривается не как доживание и немощь, а как закономерный этап человеческой жизни, как состояние духовного роста. Приводятся поучения Святых Отцов, научные данные о старении организма и народный опыт лечения некоторых болезней в старости. Уповая на Господа, имея твердую веру в милость и любовь Божию, человек может прожить свои последние годы (   Читать дальше...   )Жанр: Духовная литератураФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2E569D6AF12886784CF83963450E50966031C94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1199488   (801085) от 16.01.2018
 
 Схиархимандрит Зосима (Сокур) | Чтобы все обязательно спаслись... Проповеди (2011) [PDF]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:CDE83F6A17EFA5EAEA3DCF9241D2D4BC6CA237B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:CDE83F6A17EFA5EAEA3DCF9241D2D4BC6CA237B8
 ```bash
 magnet:?xt=urn:btih:2902B7E5CDE451AD24A5BBAB4BBB995D30398CE3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:2902B7E5CDE451AD24A5BBAB4BBB995D30398CE3
 magnet:?xt=urn:btih:B0FFD544BB468DDC5CB8A365AC1118AF97216CF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:B0FFD544BB468DDC5CB8A365AC1118AF97216CF2
 ```bash
 magnet:?xt=urn:btih:F56EEE87102E8DA90DA9C7ECF724EEE371566CB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:F56EEE87102E8DA90DA9C7ECF724EEE371566CB3
 magnet:?xt=urn:btih:B20023A908C2A8D16EF1868B2E1BB612DB20284F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +181,8 @@ magnet:?xt=urn:btih:B20023A908C2A8D16EF1868B2E1BB612DB20284F
 magnet:?xt=urn:btih:0BB796EFAB40666061E75D4AF62C1EE22B788C0A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +206,8 @@ magnet:?xt=urn:btih:0BB796EFAB40666061E75D4AF62C1EE22B788C0A
 ```bash
 magnet:?xt=urn:btih:DDF375F2E8225E14D94684AF509DE9EA227D641E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -193,6 +233,8 @@ magnet:?xt=urn:btih:DDF375F2E8225E14D94684AF509DE9EA227D641E
 magnet:?xt=urn:btih:3337DE70743F06E56184AD65FE18DEA6DDF8138D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:3337DE70743F06E56184AD65FE18DEA6DDF8138D
 ```bash
 magnet:?xt=urn:btih:35AE5B105E47626A9D1DAD950EE518BBA7318539
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +287,8 @@ magnet:?xt=urn:btih:35AE5B105E47626A9D1DAD950EE518BBA7318539
 magnet:?xt=urn:btih:48BCA5ECE2BE4974066C52440260E35319163898
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +312,8 @@ magnet:?xt=urn:btih:48BCA5ECE2BE4974066C52440260E35319163898
 ```bash
 magnet:?xt=urn:btih:A7E65F638EFA3DF087438B464750E72016A3C4FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -293,6 +341,8 @@ magnet:?xt=urn:btih:A7E65F638EFA3DF087438B464750E72016A3C4FD
 magnet:?xt=urn:btih:F0CD87B8A4B9F7D8DD22B3A45FBD203C346B537B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:F0CD87B8A4B9F7D8DD22B3A45FBD203C346B537B
 ```bash
 magnet:?xt=urn:btih:92188C84AECB91C0CA1051DD743B6B2BFBAF971F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -343,6 +395,8 @@ magnet:?xt=urn:btih:92188C84AECB91C0CA1051DD743B6B2BFBAF971F
 magnet:?xt=urn:btih:9EEC19CFE1919E2A2BC74697A9A7DD2ABD1C3A70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -369,6 +423,8 @@ magnet:?xt=urn:btih:9EEC19CFE1919E2A2BC74697A9A7DD2ABD1C3A70
 magnet:?xt=urn:btih:B0416041860977702D1FB8B36DC54C665B4CBB50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -392,6 +448,8 @@ magnet:?xt=urn:btih:B0416041860977702D1FB8B36DC54C665B4CBB50
 ```bash
 magnet:?xt=urn:btih:C75B98B60F038DF84A74F26A2F1D52EFDA3AB22A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +476,8 @@ magnet:?xt=urn:btih:C75B98B60F038DF84A74F26A2F1D52EFDA3AB22A
 magnet:?xt=urn:btih:D52D9F77462A2FFF26CCD7889849BF204D576863
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +501,8 @@ magnet:?xt=urn:btih:D52D9F77462A2FFF26CCD7889849BF204D576863
 ```bash
 magnet:?xt=urn:btih:D3A0A780817F5571EFC98B644845C418B228D90F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:D3A0A780817F5571EFC98B644845C418B228D90F
 magnet:?xt=urn:btih:590743B0E3F3024B1F56E1321D927B9C5C261AC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -490,6 +554,8 @@ magnet:?xt=urn:btih:590743B0E3F3024B1F56E1321D927B9C5C261AC4
 magnet:?xt=urn:btih:3BA21BA83DED58CF2060D80C2622AD730DF4D61D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +579,8 @@ magnet:?xt=urn:btih:3BA21BA83DED58CF2060D80C2622AD730DF4D61D
 ```bash
 magnet:?xt=urn:btih:AB58EA60C407B88D52027282DB07531F91D2D97A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +607,8 @@ magnet:?xt=urn:btih:AB58EA60C407B88D52027282DB07531F91D2D97A
 magnet:?xt=urn:btih:5758C70CEC72057A0CFA888E6733CFEDA323EED1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -563,6 +633,8 @@ magnet:?xt=urn:btih:5758C70CEC72057A0CFA888E6733CFEDA323EED1
 magnet:?xt=urn:btih:B0FC848E89CF35B77E289385162A447FF4F637CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:B0FC848E89CF35B77E289385162A447FF4F637CE
 ```bash
 magnet:?xt=urn:btih:FBCA3D3AF37E21CADF080EB51D3A01FB27FB78CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -612,29 +686,7 @@ magnet:?xt=urn:btih:FBCA3D3AF37E21CADF080EB51D3A01FB27FB78CC
 magnet:?xt=urn:btih:2A7AEB1015440273BF53B4029183FAEC4E009D61
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010731   (802140) от 25.04.2016
-
-Сергей Матвеев | Знаки денег (2005) [DJVU]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_802140.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью символов Высшее Сознание указывает человеку путь к свободе, самореализации, процветанию и гармонии. Знаки силы представляют собой образы, пиктограммы, иероглифы, всевозможные графические изображения, являющиеся проекцией энергии счастья, любви и изобилия. Понимать их - значит вести диалог с Господом на Его языке. Для того чтобы воспринять тонкие знаки и (   Читать дальше...   )Жанр: ЭзотерикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87ED0C909BD746124E0654E3EE697EB262D0D105
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

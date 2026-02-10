@@ -19,6 +19,8 @@ Penny Blood: Hellbound - это рогалик, в котором вы берё�
 magnet:?xt=urn:btih:E3739F0CD0E03C02ABAE6D5554AB93249B583E3E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:E3739F0CD0E03C02ABAE6D5554AB93249B583E3E
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ VA - Лучшие песни Европа Плюс за 2024 год (2025) [MP3|
 magnet:?xt=urn:btih:8A58CB416F74D2B1465703D6C973D8F19D666A0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ MediEvil: Resurrection является переосмыслением перв�
 ```bash
 magnet:?xt=urn:btih:5D82D6D28D6FC50DB13865E1261178B4A73DD2FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ magnet:?xt=urn:btih:5D82D6D28D6FC50DB13865E1261178B4A73DD2FC
 magnet:?xt=urn:btih:DD33DF7BAC3ADA4D1D0C161DE9E4B523A5C424CA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:DD33DF7BAC3ADA4D1D0C161DE9E4B523A5C424CA
 ```bash
 magnet:?xt=urn:btih:9CCD4D41FC7ECD577C594E78D2BB421ACEDECF4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:9CCD4D41FC7ECD577C594E78D2BB421ACEDECF4A
 magnet:?xt=urn:btih:A4A904F47955343B676B0BAAD375932DD7806A96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:A4A904F47955343B676B0BAAD375932DD7806A96
 ```bash
 magnet:?xt=urn:btih:03ECADEBD9E5E1744BA830EBC61437198D8D86D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:03ECADEBD9E5E1744BA830EBC61437198D8D86D6
 magnet:?xt=urn:btih:EECE1FDF4CA38EB79EA3723DFC765F03922FF69E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:EECE1FDF4CA38EB79EA3723DFC765F03922FF69E
 ```bash
 magnet:?xt=urn:btih:3361DC70D3E6323C8E6875111030397B968E2233
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:3361DC70D3E6323C8E6875111030397B968E2233
 magnet:?xt=urn:btih:8561D6F7E3AF3F2917187317673F785064AEFEE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:8561D6F7E3AF3F2917187317673F785064AEFEE6
 ```bash
 magnet:?xt=urn:btih:47FC688C762AB5376A3204D0B60D18AF856BED51
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:47FC688C762AB5376A3204D0B60D18AF856BED51
 magnet:?xt=urn:btih:FDE62AB16845F15EB878ABACEDFF886E177FF10F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -337,6 +363,8 @@ My Time at Sandrock (2023) [Ru/Multi] (1.4.2/dlc) Scene Rune
 ```bash
 magnet:?xt=urn:btih:9F40FCA5A9CF4F539992E9177B04C2412D40FD0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:9F40FCA5A9CF4F539992E9177B04C2412D40FD0A
 magnet:?xt=urn:btih:25D3D1BD7B6816B8D3A75E4426E8C0486ECDA68F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +415,8 @@ Assassin's Creed Mirage (2023) [Ru/Multi] (1.0.6/dlc) Repack Wanterlude [Master 
 ```bash
 magnet:?xt=urn:btih:832E59415E7F027BA568516409AC7841C543E0C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +442,8 @@ magnet:?xt=urn:btih:832E59415E7F027BA568516409AC7841C543E0C3
 magnet:?xt=urn:btih:16078F489A523537FE70F6A0AB83A222F4DD3EB0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -433,6 +467,8 @@ magnet:?xt=urn:btih:16078F489A523537FE70F6A0AB83A222F4DD3EB0
 ```bash
 magnet:?xt=urn:btih:19615CEE0D175A6DB8F2257524646C7141FEC167
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ StableDif, Олег Конюков | Курс по ComfyUI. От основ, д�
 magnet:?xt=urn:btih:566A9419C113733AEB6E86C3E11B2B0EC62D3C05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ magnet:?xt=urn:btih:566A9419C113733AEB6E86C3E11B2B0EC62D3C05
 ```bash
 magnet:?xt=urn:btih:C108E572FC35A37669FE160D0F7BC6A7DD3215D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -514,6 +554,8 @@ magnet:?xt=urn:btih:C108E572FC35A37669FE160D0F7BC6A7DD3215D8
 magnet:?xt=urn:btih:EA1F670A096963149266F9DDD517E018BBEEC2A6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -537,6 +579,8 @@ magnet:?xt=urn:btih:EA1F670A096963149266F9DDD517E018BBEEC2A6
 ```bash
 magnet:?xt=urn:btih:59A9947333E032FFE186AD72C9E8C23740BB219B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -562,6 +606,8 @@ magnet:?xt=urn:btih:59A9947333E032FFE186AD72C9E8C23740BB219B
 magnet:?xt=urn:btih:64E762676EBD82142722C010A9B9FC0C642C1286
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -585,6 +631,8 @@ magnet:?xt=urn:btih:64E762676EBD82142722C010A9B9FC0C642C1286
 ```bash
 magnet:?xt=urn:btih:5869E05832C333760FBFA6892FB13CCC6CF37712
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +658,8 @@ magnet:?xt=urn:btih:5869E05832C333760FBFA6892FB13CCC6CF37712
 magnet:?xt=urn:btih:9DAF26A6C7F6F4A6C390AA9AF9C6AF6A01ED9E1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ magnet:?xt=urn:btih:9DAF26A6C7F6F4A6C390AA9AF9C6AF6A01ED9E1A
 ```bash
 magnet:?xt=urn:btih:7AF26DDC7982199D6E5DE34A6AFEA42A79C02CAF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

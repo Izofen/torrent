@@ -19,6 +19,8 @@ Farm Manager 2021 (2021) [Ru/Multi] (1.0) License CODEX
 magnet:?xt=urn:btih:309858E113B14AB1F602338DDD3154A98C793F98
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Jurassic World Evolution (2018) [Ru/En] (1.12.4.52769/dlc) Repack Other s [Premi
 ```bash
 magnet:?xt=urn:btih:4E33990EC17761FC7A655D9B0520F550173B1CE6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ SimCity™ 4 (2003) [Multi] (1.1.641hf/dlc) License GOG [Deluxe Edition]
 magnet:?xt=urn:btih:F306ABCC0026B2DE0C5F3ECFC89E626EE7DB491E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Planetbase – стратегия, в которой вы руководите �
 ```bash
 magnet:?xt=urn:btih:8D9BBB2D3B72D6DE675495B9AF80499A2B6D6669
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Dwarf Fortress - стратегия со сложной симуляцией о�
 magnet:?xt=urn:btih:F843673EB03FBCDEE0B5BB4D16430A9A748D252C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ The Trasamire Campaigns - это напоминающая настольную �
 ```bash
 magnet:?xt=urn:btih:E19C2F44E2C4CBD6526949CBBD28E53144882B5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ The Last Haven перенесет вас в мир после ядерной в�
 magnet:?xt=urn:btih:7C07989DB0FE025500E1515BF7EE8F2BD7BAB72F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Mamma mia! Легендарная кулинарная эпопея Pizza Connec
 ```bash
 magnet:?xt=urn:btih:FEDE9648BEE7B9013E7574AF2FE0DE5033D60507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Anno 1800 – возглавьте промышленную революцию! 
 magnet:?xt=urn:btih:9122ACF73386D06BC44F2D6E495514A7E3697D6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Rise of Industry (2019) [Ru/Multi] (2.3.11301a/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:84395AF01243F0E73AB335D5AEE32AAF4C5C9216
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ ICBM – стратегия в реальном времени про глоба
 magnet:?xt=urn:btih:A4B4C14754C37F9617AD42EB5D9A4F31B5AF91EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Prison Architect (2015) [Ru/Multi] (11011/dlc) License GOG
 ```bash
 magnet:?xt=urn:btih:C11BE4AA9F66556F2E45FF0B22600C791B919820
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Project AURA - научно-фантастическая стратегия с �
 magnet:?xt=urn:btih:64A7B55C66A50328C7B32F8448F033EDEAAC7AA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Flat Eye своим сюжетом затрагивает достаточно �
 ```bash
 magnet:?xt=urn:btih:30F7EA7C334F354CD685F37E6F4EF0D6A3B72279
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Inn Tycoon (2024) [Ru/Multi] (Version 42) Repack FitGirl
 magnet:?xt=urn:btih:C8F5D21BBC66E5CDE4FB2684DEA10724D0306934
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Crypt of the NecroDancer – популярная и хардкорная рит
 ```bash
 magnet:?xt=urn:btih:6AFC9D796AEA94D2A6F6116829EF1E3F2E93AA6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ Looper Tactics - карточная ролевая стратегия, гейм�
 magnet:?xt=urn:btih:AE24D603F4F8B66BEFE0F677C9366B2B4446DF3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Frostpunk 2 открывает новые грани жанра выживани
 ```bash
 magnet:?xt=urn:btih:E4BF445AFC4E4EF99F25C8C68BB900F196245584
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Oddsparks: An Automation Adventure – это стратегия в режиме
 magnet:?xt=urn:btih:2A769FAC18A5EFC34ED157E94847C2E1B4C2DE56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ The Wandering Village (2022) [Ru/Multi] (1.0.4) Repack seleZen
 ```bash
 magnet:?xt=urn:btih:388AEACB403DA4D38910964095F3D9C0F9129364
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Stonehearth (2018) [Ru/En] (1.1.0) Repack Other s
 magnet:?xt=urn:btih:C37FF6B36A88482670E72F8826079A9B089586E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Surviving the Aftermath (2021) [Ru/Multi] (1.25.0.2775/dlc) Repack Let'sРlay [U
 ```bash
 magnet:?xt=urn:btih:03259C3304B9C5F95024AF383324873D6D3DD2D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Rise of Industry 2 (2025) [Ru/Multi] (1.3.1/dlc) Repack Let'sРlay [Deluxe Editi
 magnet:?xt=urn:btih:20AD9D49262CA46B5AF8E3AD3A71BFB4BF57B446
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ Pioneers of Pagonia (2023) [Ru/Multi] (1.0.2-10547+185658) Repack Let'sРlay [Bu
 ```bash
 magnet:?xt=urn:btih:D17587515E51058D0A80DE8CAB4E33A37720EDFF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Knights of the Crusades (2025) [Ru/Multi] (1.11) Repack Let'sРlay
 magnet:?xt=urn:btih:F0861409246D3296AB4C1588A29332884B44E6A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ Anno 1800 – возглавьте промышленную революцию! 
 ```bash
 magnet:?xt=urn:btih:67B376B9540DF84A2E2C6E48D1B8063FE0851900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

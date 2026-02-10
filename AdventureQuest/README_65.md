@@ -19,6 +19,8 @@ EBONY (2019) [Ru/Multi] (1.0) Repack Other s
 magnet:?xt=urn:btih:53506A64AB48F617896F96D6A71C59633B23F241
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ The Council — ни на что не похожая эпизодическая 
 ```bash
 magnet:?xt=urn:btih:D6BB6BE604A3879444D0744DA16BE7AED4A39A88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Sherlock Holmes: The Awakened / Шерлок Холмс и секрет Ктул
 magnet:?xt=urn:btih:886430CACF8906F811C8BCA5E6F6506CC159671C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Treasure Hunter Simulator (2018) [Ru/Multi] (1.0) License CODEX
 ```bash
 magnet:?xt=urn:btih:703CAA7C41927B02654AA347F2E432DFBCDB11CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ The Testament of Sherlock Holmes / Последняя воля Шерлока Х
 magnet:?xt=urn:btih:97491B6FB67C6E211711DAF3A9580701E7552667
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Sherlock Holmes versus Jack the Ripper / Шерлок Холмс против Д
 ```bash
 magnet:?xt=urn:btih:8A74F6E72F8FB2F4D0C9B6F8F1966A4D2F58A7DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Event[0] (2016) [En] (169221) License GOG
 magnet:?xt=urn:btih:2273C69660411FA8E3FD8C24A0FF3A5C949BE7CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ What Remains of Edith Finch – сборник странных рассказо
 ```bash
 magnet:?xt=urn:btih:81504725E02CCAFCF04F5218BCF6CDEF9730C49D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Frosty Nights — красивая рождественская игра-стр�
 magnet:?xt=urn:btih:CDC61A92A34B2C9514415ECB3F7E8E8EDD0E662C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Frosty Nights — красивая рождественская игра-стр�
 ```bash
 magnet:?xt=urn:btih:70D9CE760B9DE756D45EF7A292343A4828E85005
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ The Council — ни на что не похожая эпизодическая 
 magnet:?xt=urn:btih:D43B35232C6003E9F07F80A7583DF116DCC6E64C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Beholder 2 (2018) [Ru/En/Ch] (1.0) Repack xatab
 ```bash
 magnet:?xt=urn:btih:69EBDD3475F27670633B430F7EB0DA301F2160B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Neverhood (1996) [Ru] (1.0/dlc) Unofficial
 magnet:?xt=urn:btih:E6FDA8D0B1E94D1CF4AD8D8A26900FEADCF06910
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Some Distant Memory (2019) [Ru/Multi] (1.0.4) Repack Other s
 ```bash
 magnet:?xt=urn:btih:F194687CE1ABC86B8D06659C2DF79A72C8BD18F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Sally Face (2016) [Ru/Multi] (1.4.13/dlc) License PLAZA [Episode 1-4]
 magnet:?xt=urn:btih:EA1A80097AFC7A9976042C97ADA848A8DB739000
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Black Mirror (2017) [Ru/Multi] (1.0.0.1005) Repack OneTwo
 ```bash
 magnet:?xt=urn:btih:8B64881182A83AB7F1AE74C27D167201A9C3ADC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +437,8 @@ Silent Hill: Shattered Memories [En] (Р) 2009
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -428,6 +462,8 @@ Jekyll and Hyde / Джекил и Хайд [Ru] (RePack) 2010 | Martin
 ```bash
 magnet:?xt=urn:btih:2B28F99DF5340F86BCAFC64423E0E8383CE4DE74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Discolored (2019) [Ru/Multi] (1.0) Repack Butter_
 magnet:?xt=urn:btih:639482EE246858FCDC686B4F9BDED432C51EA805
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Beholder (2016) [Ru/Multi] (1.5.0.10020/dlc) Repack R.G. Catalyst
 ```bash
 magnet:?xt=urn:btih:6030C117F1AC3AA245DF17F9A637B139ABE73944
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ The Little Acre (2016) [Ru/Multi] (1.0) License PLAZA
 magnet:?xt=urn:btih:5E0F90271DD395C9461D8A5E88773B97C2F74E20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +566,8 @@ Black Mirror (2017) [Ru/Multi] (1.0) License GOG
 ```bash
 magnet:?xt=urn:btih:7AD47907BEDBF2A0D51A1B0FAE823B367B334E94
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -549,6 +593,8 @@ Edna & Harvey: Harvey's New Eyes (2012) [Ru/Multi] (3.0.0442) License GOG
 magnet:?xt=urn:btih:CAE4AECCB2E6DE5159E59FEF33BC4111802F3CAE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +618,8 @@ The Wolf Among Us (2013) [Ru/En] (1.0) Repack Seraph1 [Episodes 1-5]
 ```bash
 magnet:?xt=urn:btih:1F4FC14EE69E9799F181A7E12548ED843A8AA23C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -597,6 +645,8 @@ Moons of Madness (2019) [Ru/Multi] (1.01) Repack xatab
 magnet:?xt=urn:btih:93CCC6BEF07A4AE71F29C1F31B078843ACCD8AED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +670,8 @@ Moons of Madness (2019) [Ru/Multi] (1.01) License CODEX
 ```bash
 magnet:?xt=urn:btih:FB54DBD695FE8BDB99EB11C2A354ACF77D33A3FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

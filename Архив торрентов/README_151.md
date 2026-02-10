@@ -20,6 +20,8 @@ Ocean Match / Рыбки: Три в ряд v2.9.8 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:4EE30DEF2761CDCA0157E26D2C4972D4AA221472
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Ocenaudio — аудиоредактор, распространяемый ав�
 magnet:?xt=urn:btih:37D2CE2E1B19960ADCB899F42201EF340A5361F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Vivaldi 7.0.3495.23 include standalone [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:75E9EA95A1947974D25BCF196D369D6728D15C20
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +99,8 @@ O&O Defrag Professional – инструмент дефрагментации д
 magnet:?xt=urn:btih:BC1D6C4FD9518962E6543FD3E048D9B90F73A49C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -118,6 +126,8 @@ Aiarty Image Enhancer (с генеративным ИИ) — это соврем
 magnet:?xt=urn:btih:83C8F9C8EE2D843C13F5E0873C4F6B3D6AE6A73F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ Free Hex Editor Neo - бесплатный Редактор Шестнадцат
 ```bash
 magnet:?xt=urn:btih:103D9BD8E573689924795D4FB739F3C40BDC0938
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:B39EB516796468B688DB87EEC71A3E9A5F312B35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ RustDesk Remote Desktop – программное обеспечение для
 magnet:?xt=urn:btih:FEE5CB3BED12A078B4F4E65D9F63AFC49778570B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Display Driver Uninstaller это утилита удаления драйвер
 ```bash
 magnet:?xt=urn:btih:A909E01E88BDF989D26CB9DC6FB84CBD910C9B22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Jigsawscapes® - Пазлы v3.6.2 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:54C5A6247587C8D46FCE03EB8528F3DA6BA8E157
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ AnyDesk 9.0.0 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:26220954886ED4E8B1A57C26F2FE5B648FCDB53C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ JetBrains CLion — интеллектуальная среда разработ
 magnet:?xt=urn:btih:BC9D9337FA2B40D17DF7D8247ACEEE1430E92675
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ Topaz Video AI – это совершенное новое решение дл�
 ```bash
 magnet:?xt=urn:btih:353D822FBD8FFB76831A855FD0E9724757C4196D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ Visual Studio Enterprise 2022 - Интегрированное комплекс�
 magnet:?xt=urn:btih:E8E301E5971CD8D0383AFFBB138993439FF7E1F5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:E8E301E5971CD8D0383AFFBB138993439FF7E1F5
 ```bash
 magnet:?xt=urn:btih:674CC8D6B9C851BCFD11171A348502C3E0219269
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ Mary’s recipes: рецепты, меню v5.0.2 Mod by Alex.Strannik [Ru/Multi
 magnet:?xt=urn:btih:C474A0D45ACB4DD1D45294EA043091538C28223B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ AOMEI Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:DE6F33AC829CA3550C764277772E03A2501C1FF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -435,6 +469,8 @@ Movavi Video Editor – универсальный инструмент для �
 magnet:?xt=urn:btih:1375338445D4CEE7A2EDB8E024274F237F09C7DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +494,8 @@ Glary Utilities - комплексный набор инструментов д�
 ```bash
 magnet:?xt=urn:btih:7769BB284E619C01FC1C4934B010C0E421A4F269
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ WizTree - небольшая и полезная утилита для опре�
 magnet:?xt=urn:btih:F3902688BC1C4A5574AB165E236BC03118F53E9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Listen Audiobook Player v5.2.10 Mod by Balatan [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:DC8C4599BE308CBD90D79DD63754B6F6187D3E1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ Relax Rain: sleeping sounds v7.2.0 Mod by Balatan [Ru/Multi]
 magnet:?xt=urn:btih:0FF3128F5436346DE52D1BB7E180DCB7F69F91A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ PictureThis - Plant Identification v5.0.15 Mod by youarefinished [Ru/Multi]
 ```bash
 magnet:?xt=urn:btih:30BBBC5167DC5316CF810B7D0B45FAA28AB7D136
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ GeoGebra — мультиплатформенная программное об�
 magnet:?xt=urn:btih:164ABEC89E611CD2894A596F23CCA09ADBC53B0B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ Wondershare UniConverter - простой в использовании виде
 magnet:?xt=urn:btih:D76D6B9FD20BCCC65DDCF44DAEEE65E0B20DA2C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ```bash
 magnet:?xt=urn:btih:43DDF25F5644ED5D1D6915824A171B6FAAF575B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

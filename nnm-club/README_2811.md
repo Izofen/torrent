@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Cделан он на основе русского интерфейса Windows
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ Cделан он на основе русского интерфейса Windows
 ```bash
 magnet:?xt=urn:btih:870BE19CC921857466DA90AD102A9723305B1CC6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ WPI Filth Edition 2012 v2.2 (07.03.2012) [Русский]
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ WPI Filth Edition 2012 v2.2 (07.03.2012) [Русский]
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -143,6 +153,8 @@ WPI Filth Edition 2012 v2.2 (07.03.2012) [Русский]
 magnet:?xt=urn:btih:7153BAA8214F7076FE90C84A64EAC65F909668CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:7153BAA8214F7076FE90C84A64EAC65F909668CB
 magnet:?xt=urn:btih:759317B693893146C19339BFBF9CE2D55A56AA91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ magnet:?xt=urn:btih:759317B693893146C19339BFBF9CE2D55A56AA91
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ Alice Cooper - Halloween Night Of Fear (2011) [MP3|320 кб/с]<Hard Rock>
 magnet:?xt=urn:btih:4473A4D1124946D675BAF740CF84F0656B2A6946
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +266,8 @@ magnet:?xt=urn:btih:4473A4D1124946D675BAF740CF84F0656B2A6946
 ```bash
 magnet:?xt=urn:btih:3853BE3077AEA62EF1072266A927D1037500D761
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ magnet:?xt=urn:btih:3853BE3077AEA62EF1072266A927D1037500D761
 magnet:?xt=urn:btih:DF64CB55639C24E607730F8C624DCC898CDD2605
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -296,6 +318,8 @@ magnet:?xt=urn:btih:DF64CB55639C24E607730F8C624DCC898CDD2605
 ```bash
 magnet:?xt=urn:btih:A1735F52C1E0C9E6CC5FE815DECB4F6A1F17C033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +354,8 @@ Heaven's Gate (Heavens Gate) - 3 альбома (1989-1992) [FLAC|Lossless]<Heav
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ Heaven's Gate (Heavens Gate) - 3 альбома (1989-1992) [FLAC|Lossless]<Heav
 magnet:?xt=urn:btih:91F8294A48C40D4015B98ACA61017BB6B81BC32B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:91F8294A48C40D4015B98ACA61017BB6B81BC32B
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:91F8294A48C40D4015B98ACA61017BB6B81BC32B
 magnet:?xt=urn:btih:4DE7E1F0A0F577A13A554093DF2939CEF5EDD4D8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +459,8 @@ magnet:?xt=urn:btih:4DE7E1F0A0F577A13A554093DF2939CEF5EDD4D8
 ```bash
 magnet:?xt=urn:btih:C35590CD1EC9EBECE2683CA460BE8E91E0552DCA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ magnet:?xt=urn:btih:C35590CD1EC9EBECE2683CA460BE8E91E0552DCA
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ Jewel Quest Mysteries 4: The Oracle of Ur Collector's Edition (P) [En] 2012
 ```bash
 magnet:?xt=urn:btih:6151521BCFA777CA99C56DB7D9D2A47031C34D54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:6151521BCFA777CA99C56DB7D9D2A47031C34D54
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +568,8 @@ magnet:?xt=urn:btih:6151521BCFA777CA99C56DB7D9D2A47031C34D54
 magnet:?xt=urn:btih:EA70E8A01F230DE56F9957502F3F39EE13FA10E7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +596,8 @@ magnet:?xt=urn:btih:EA70E8A01F230DE56F9957502F3F39EE13FA10E7
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -579,6 +623,8 @@ magnet:?xt=urn:btih:EA70E8A01F230DE56F9957502F3F39EE13FA10E7
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -610,6 +656,8 @@ magnet:?xt=urn:btih:EA70E8A01F230DE56F9957502F3F39EE13FA10E7
 magnet:?xt=urn:btih:F1AD7561C4008EF57926C09C401433F9BA6FEB38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +688,8 @@ magnet:?xt=urn:btih:F1AD7561C4008EF57926C09C401433F9BA6FEB38
 ```bash
 magnet:?xt=urn:btih:5394A86B296D08E5854B2C2127BEA4AB57D75FAE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -673,6 +723,8 @@ VA - Italo Euro Disco Vol.1 (2010) [FLAC|Lossless]<Italo Disco>
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

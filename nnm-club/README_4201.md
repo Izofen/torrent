@@ -19,6 +19,8 @@ Sora no Aosa o Shiru Hito yo | Her Blue Sky | Она видела небо [2019
 magnet:?xt=urn:btih:263A5D212F72D3A4CBD87F541B6C906F28131DFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:263A5D212F72D3A4CBD87F541B6C906F28131DFD
 ```bash
 magnet:?xt=urn:btih:4DF9FB5EB6A2FBBE2E7BBD1EE07AE35D1A9E2BFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +73,8 @@ Ctlos Linux — базируется на Arch Linux, iso образ собра�
 magnet:?xt=urn:btih:903D7F0C95BC8FEAA6CE0AEEE252855058F8801A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:903D7F0C95BC8FEAA6CE0AEEE252855058F8801A
 ```bash
 magnet:?xt=urn:btih:9FBED5EB2395447717F2152157179951D0E63615
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ Windows 10 21H2 (19044.1466) x64 Home + Pro + Enterprise (3in1) by Brux [Ru]
 magnet:?xt=urn:btih:D4C13245B16172EEE4791F8E3AF16278E752FA3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Gekijouban Violet Evergarden | Violet Evergarden the Movie | Виолетта Э
 magnet:?xt=urn:btih:A5DACDA5B1236162F19826698C22E4AE4A3BB7E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:A5DACDA5B1236162F19826698C22E4AE4A3BB7E1
 ```bash
 magnet:?xt=urn:btih:38C1E152877375EB3DC5A22033836807AE39D1F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:38C1E152877375EB3DC5A22033836807AE39D1F4
 magnet:?xt=urn:btih:7CA55DD3B788A7372AF1D69057013535FAA02D8B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +230,8 @@ PotPlayer - мультимедийный плеер от авторов KMPlayer
 magnet:?xt=urn:btih:DF318FF23283A8898E476EAB0A0980E88BF261E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +255,8 @@ magnet:?xt=urn:btih:DF318FF23283A8898E476EAB0A0980E88BF261E3
 ```bash
 magnet:?xt=urn:btih:57033C59D8C77E0C7C9E6921AC9FA66A26772D7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ magnet:?xt=urn:btih:57033C59D8C77E0C7C9E6921AC9FA66A26772D7A
 magnet:?xt=urn:btih:F90BBC274497C16C794D1052492CC053A929461A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ uTorrent Pro 3.5.5 Build 46148 Stable RePack (& Portable) by Dodakaedr [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:B9769A9F159A831F29F38F323726FE74284D2664
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -324,6 +348,8 @@ VA - Жаркая Зимняя Ночь на Maximum FM (2012) [MP3|256 кб/с]
 magnet:?xt=urn:btih:DD5B6DE9F0E6A752FF774E6AB0B9714636D3BD25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +373,8 @@ magnet:?xt=urn:btih:DD5B6DE9F0E6A752FF774E6AB0B9714636D3BD25
 ```bash
 magnet:?xt=urn:btih:E45E6941273B5A6B91FEB44177AFE099BF5C0DA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +400,8 @@ magnet:?xt=urn:btih:E45E6941273B5A6B91FEB44177AFE099BF5C0DA5
 magnet:?xt=urn:btih:176848FA7D449710055AB7F9471CC78473AB7511
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -395,6 +425,8 @@ magnet:?xt=urn:btih:176848FA7D449710055AB7F9471CC78473AB7511
 ```bash
 magnet:?xt=urn:btih:5D8A3E205B05CE728E6D2D6F7952C8C48E4FFF23
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -422,6 +454,8 @@ magnet:?xt=urn:btih:5D8A3E205B05CE728E6D2D6F7952C8C48E4FFF23
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +486,8 @@ VA - DFM - Dynamics from AGR (18.04.2012) (2012) [MP3|320 кб/с]<Progressive H
 magnet:?xt=urn:btih:943BA2AFC240F26900FB795142750C1DAB40968B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ Windows 10 Pro 21H2 19044.1469 x64 by SanLex [Gamer Edition] [Ru] (2022.01.20)
 ```bash
 magnet:?xt=urn:btih:2F9FAA1C80BB2710A8C79B0B6F098948F270DBB9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ magnet:?xt=urn:btih:2F9FAA1C80BB2710A8C79B0B6F098948F270DBB9
 magnet:?xt=urn:btih:B260DE150CCEA6472A5BB7E9B7BCD3A4498323BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +563,8 @@ magnet:?xt=urn:btih:B260DE150CCEA6472A5BB7E9B7BCD3A4498323BC
 ```bash
 magnet:?xt=urn:btih:927709DB7CE1183159A124C226B21A3A83516C18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +590,8 @@ magnet:?xt=urn:btih:927709DB7CE1183159A124C226B21A3A83516C18
 magnet:?xt=urn:btih:43E799F98FAC6D1983613D6A43F0282510986A50
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +615,8 @@ magnet:?xt=urn:btih:43E799F98FAC6D1983613D6A43F0282510986A50
 ```bash
 magnet:?xt=urn:btih:4A9E720D804F2F0571EB01C63B708CAFB18D3FD0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +642,8 @@ magnet:?xt=urn:btih:4A9E720D804F2F0571EB01C63B708CAFB18D3FD0
 magnet:?xt=urn:btih:22E315CA7A2FE87970F8BC161C3349A81EDD2238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -620,6 +668,8 @@ magnet:?xt=urn:btih:22E315CA7A2FE87970F8BC161C3349A81EDD2238
 magnet:?xt=urn:btih:5A133945AC208FEC66FF8D85C2188441C7775DC1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -643,6 +693,8 @@ magnet:?xt=urn:btih:5A133945AC208FEC66FF8D85C2188441C7775DC1
 ```bash
 magnet:?xt=urn:btih:9F920AB95F2642EA95F9D6731A6FE27D12591287
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

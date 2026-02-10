@@ -22,6 +22,8 @@ VA - German Top 100 Single Charts 16.11.2018 (2018) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:E8B268257FCFF44D5B948208B63BBEF2F9A94C60
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ In Flames - Down, Wicked & No Good (2017) EP [MP3|320 Kbps] <Modern Metal, Alt.M
 ```bash
 magnet:?xt=urn:btih:BA11B6B9084A13538760A53092D16833C1FD08F3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Cafe Del Mar - Ibiza - Volumen Dos (1995) [FLAC|Lossless|tracks + .cue] <Do
 magnet:?xt=urn:btih:2A1D05FE7DED89EC60599666F1522BB2D197E54E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -100,6 +106,8 @@ magnet:?xt=urn:btih:2A1D05FE7DED89EC60599666F1522BB2D197E54E
 ```bash
 magnet:?xt=urn:btih:0A8AD4BF9F1B7434401CA38CA83DB82F3E31C6CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -126,6 +134,8 @@ magnet:?xt=urn:btih:0A8AD4BF9F1B7434401CA38CA83DB82F3E31C6CF
 ```bash
 magnet:?xt=urn:btih:133DBEB3D7B883A62BCB4EDBC52A61151603854C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ Jennifer - Walking In Space (1977) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Dis
 magnet:?xt=urn:btih:458388CD7D657CE6F3D4DEE295CAC14ED075A6C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ Apk Extractor Premium 4.1.4 [Ru]
 ```bash
 magnet:?xt=urn:btih:1A7A263D9FF332B2A700C67CC8B7F7AB0772602D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -205,6 +219,8 @@ VA - На Луну (2007) [FLAC|Lossless|image + .cue] <Retro, Jazz, Pop>
 magnet:?xt=urn:btih:6B8D67D6BD8EE8FB79AF244A390500A8AC1F7B56
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ VA - Sarah Lynn - Clear As The Sky: The Best Of (Extended Mixes) (2018) [MP3|320
 ```bash
 magnet:?xt=urn:btih:34DFF3B7E691354F31B76F4637AD82B389A40847
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +277,8 @@ Summoning - With Doom We Come (2018) [MP3|320 Kbps] <Atmospheric Black Metal, Ep
 magnet:?xt=urn:btih:449AEDE43F62CA41CC66BAFC9F93643A0C3898B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +306,8 @@ MPlayerX – бесплатный и довольно быстрый видео-
 magnet:?xt=urn:btih:93BA9B33CE1B2912A57DE9AF409C8537691D9C5D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +331,8 @@ Rider позволяет разрабатывать приложения для 
 ```bash
 magnet:?xt=urn:btih:161358AF36820E11D7EAA54ABEA8083856951F57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +361,8 @@ Stoneface & Terminal - Altered Floors (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:A961471146B6EB580C794C895B5AB04BD3EE5195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -360,6 +386,8 @@ DashMaker превращает ваш Android телефон или планше
 ```bash
 magnet:?xt=urn:btih:A08200B78C93F41BD7BA730CCE2EF526B2B64EED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +413,8 @@ Christmas Tale - представляет собой фото-видео-гал�
 magnet:?xt=urn:btih:C045CEE2840FE7875FD6925186328A70094F9510
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +438,8 @@ magnet:?xt=urn:btih:C045CEE2840FE7875FD6925186328A70094F9510
 ```bash
 magnet:?xt=urn:btih:800A2048F62E277C74B46FEF77DB81C97065EC42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +468,8 @@ VA - Club Royale: Vocal House (2018) [MP3|320 Kbps] <Funky, Club House>
 magnet:?xt=urn:btih:E75CAFAE077CAEBC19D3E6A498AF04B0C9B34A9C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2016.12.05 [En]
 ```bash
 magnet:?xt=urn:btih:F698E32F3AF51C07C5AFF6DAE5BC15EB5FA101F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -484,6 +520,8 @@ magnet:?xt=urn:btih:F698E32F3AF51C07C5AFF6DAE5BC15EB5FA101F4
 ```bash
 magnet:?xt=urn:btih:28BAA4D940B4CC1845FE60FC4875D62174E9B65F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -512,6 +550,8 @@ magnet:?xt=urn:btih:28BAA4D940B4CC1845FE60FC4875D62174E9B65F
 magnet:?xt=urn:btih:E56E8E16FBE68983155290988B626F21F7AC8590
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -535,6 +575,8 @@ Nobunaga’s Ambition: Creation - это пятнадцатая часть по�
 ```bash
 magnet:?xt=urn:btih:793168162568C0F902C274BD8AF6FF6F92D29988
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -563,6 +605,8 @@ Bernie Paul - Lucky (1987) LP [MP3|320 Kbps] <Electronic, Pop>
 magnet:?xt=urn:btih:ADA2F3397760A5C127B6D96AFE17D049F007AF40
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -586,6 +630,8 @@ PDF Eraser Pro - программа для редактирования файл
 ```bash
 magnet:?xt=urn:btih:1AA25675BF6672784A5F2029CAE8562E851E82C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -611,6 +657,8 @@ Ink Photos Slideshow - качественное слайд-шоу с приме�
 magnet:?xt=urn:btih:4F828BF4D4030665218A769C7CE13B849D67AAC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +682,8 @@ magnet:?xt=urn:btih:4F828BF4D4030665218A769C7CE13B849D67AAC5
 ```bash
 magnet:?xt=urn:btih:09EC8C101BF89D63D27B68BC53B5AB18D6A43B64
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -659,6 +709,8 @@ WinPDFEditor — программа для редактирования PDF фа
 ```bash
 magnet:?xt=urn:btih:EA022E6C7BD1DA8199E5F6EFF5D1D55EABE462AC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

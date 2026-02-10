@@ -1,3 +1,30 @@
+###  Публикация: 1018908   (754088) от 21.05.2016
+
+Руссо туристо (2016.05.21) SATRip (выпуск 20. Ереван)
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_754088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Правда ли, что нашего человека без труда можно вычислить за границей?
+Новое тревел-шоу СТС «Руссо туристо» объявляет войну туристическим стереотипам, развенчивает мифы об отдыхе за границей и предлагает только оригинальные маршруты путешествий. Ведущие проводят выходные в другой стране, чтобы проверить, так ли хороши те местные красоты, о которых «кричат» все сайты (   Читать дальше...   )Телекомпания: СТСЖанр: ТВ-ШоуРежиссер: Артем ОськинПродолжительность: 00:24:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFDFC81A0613F3C790D24DD97DC61935EB4DD0AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018906   (754089) от 21.05.2016
 
 Новые русские сенсации. Саакашвили без галстука (2016.05.21) SATRip
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:33C1BA3DC2E72B4D8A342E3F0945E2EF23842E6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:33C1BA3DC2E72B4D8A342E3F0945E2EF23842E6F
 magnet:?xt=urn:btih:44BF366DA4910FE65986F669FD07E5759767FBD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -71,6 +102,8 @@ magnet:?xt=urn:btih:44BF366DA4910FE65986F669FD07E5759767FBD1
 magnet:?xt=urn:btih:12AB9262C8C6B7405A3389C43036278C18D8997E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +128,8 @@ magnet:?xt=urn:btih:12AB9262C8C6B7405A3389C43036278C18D8997E
 ```bash
 magnet:?xt=urn:btih:D42CA732515F263D94BF4E2AE6FADBEFDA8C4F9E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +157,8 @@ magnet:?xt=urn:btih:D42CA732515F263D94BF4E2AE6FADBEFDA8C4F9E
 magnet:?xt=urn:btih:287D33A2E9935584CF8EA7DD5B570646B359CF87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +182,8 @@ magnet:?xt=urn:btih:287D33A2E9935584CF8EA7DD5B570646B359CF87
 ```bash
 magnet:?xt=urn:btih:128A48758A715005DC5F4B5EA6BA31D54643085E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +211,8 @@ magnet:?xt=urn:btih:128A48758A715005DC5F4B5EA6BA31D54643085E
 magnet:?xt=urn:btih:77BCF9F02A0D32F846FED82E544057183CEA4E2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +236,8 @@ magnet:?xt=urn:btih:77BCF9F02A0D32F846FED82E544057183CEA4E2B
 ```bash
 magnet:?xt=urn:btih:FF016AA26337A3CCCC1060E1FEFEC937611DF4DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +263,8 @@ magnet:?xt=urn:btih:FF016AA26337A3CCCC1060E1FEFEC937611DF4DC
 magnet:?xt=urn:btih:1E4A044CF69C55B779B1097C1F4FFE25009521DA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +288,8 @@ magnet:?xt=urn:btih:1E4A044CF69C55B779B1097C1F4FFE25009521DA
 ```bash
 magnet:?xt=urn:btih:10F89DFF5A4EE9D7D39EA97646B46A4A8C70294C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -271,6 +318,8 @@ magnet:?xt=urn:btih:10F89DFF5A4EE9D7D39EA97646B46A4A8C70294C
 magnet:?xt=urn:btih:3652303844C2834CD96197AA51736C4486B54F93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -295,6 +344,8 @@ magnet:?xt=urn:btih:3652303844C2834CD96197AA51736C4486B54F93
 magnet:?xt=urn:btih:B8E24B7E558670CE945EC7A2FB8AD1D9F202307A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +369,8 @@ magnet:?xt=urn:btih:B8E24B7E558670CE945EC7A2FB8AD1D9F202307A
 ```bash
 magnet:?xt=urn:btih:6F14FB5D5546247CDAF27BD5BB488D7B8E40AF77
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -344,6 +397,8 @@ magnet:?xt=urn:btih:6F14FB5D5546247CDAF27BD5BB488D7B8E40AF77
 magnet:?xt=urn:btih:0D4758C029A50A9A5C216E5E0AACE2FBA1352C03
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -367,6 +422,8 @@ magnet:?xt=urn:btih:0D4758C029A50A9A5C216E5E0AACE2FBA1352C03
 ```bash
 magnet:?xt=urn:btih:1847B6A6F3E7E8A38C001B61487FF231BC3D3F50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +449,8 @@ NG: Новый Шелковый путь / The Silk Railroad (2018) SATRip (се
 magnet:?xt=urn:btih:0B61D944790E0C849BED980F5AD8E3324D05FAFD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +474,8 @@ magnet:?xt=urn:btih:0B61D944790E0C849BED980F5AD8E3324D05FAFD
 ```bash
 magnet:?xt=urn:btih:E3E4AD807F642264DFDB610F15B60FADE129B55D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +501,8 @@ BBC. Пилоты бомбардировщиков / Bomber Boys (2012) HDTVRip 
 magnet:?xt=urn:btih:DE275D431E724443EAB8EBB7B8F0A8B51E30B8AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +526,8 @@ magnet:?xt=urn:btih:DE275D431E724443EAB8EBB7B8F0A8B51E30B8AC
 ```bash
 magnet:?xt=urn:btih:630B02BC9635F3508F82020FFD5367F7A2B4F6E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +553,8 @@ magnet:?xt=urn:btih:630B02BC9635F3508F82020FFD5367F7A2B4F6E2
 magnet:?xt=urn:btih:B5157CD905B39AC0785FFE9A159E8F844E8BE6EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -511,6 +578,8 @@ magnet:?xt=urn:btih:B5157CD905B39AC0785FFE9A159E8F844E8BE6EC
 ```bash
 magnet:?xt=urn:btih:0073F7F3739EC1AA0276C2962449CF16619934F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +605,8 @@ magnet:?xt=urn:btih:0073F7F3739EC1AA0276C2962449CF16619934F4
 magnet:?xt=urn:btih:FEC9553D906DFA3B216D1E9636430A23B475AA7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +630,8 @@ magnet:?xt=urn:btih:FEC9553D906DFA3B216D1E9636430A23B475AA7B
 ```bash
 magnet:?xt=urn:btih:AD1F1A74A4AF25017A69D70FF4607233A328D0B8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +658,8 @@ HDScape: Серенити. Южные моря / HDScape: Serenity. Southern Sea
 magnet:?xt=urn:btih:7093F3CB7618CB9F9ABE172DC59250D29C41CF05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,29 +684,7 @@ magnet:?xt=urn:btih:7093F3CB7618CB9F9ABE172DC59250D29C41CF05
 magnet:?xt=urn:btih:BDE143D0E6B3E1781F75740C8E65AD5BDC332117
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018494   (755811) от 20.05.2016
-
-Знахари.  Целители под прицелом медицины (20.05.2016) SATRip
-
->>Документалистика и Телепередачи
->>Непознанное и сверхъестественное
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_755811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Может ли нетрадиционное лечение представлять угрозу для фармацевтических корпораций? Некоторые альтернативные методы постоянно балансируют на грани полного запрещения. Однако до прошлого года никто не мог предположить, что нетрадиционное лечение может стать опасным для практикующего врача! Что это – новая теория заговора? Или противостояние официальной медицины и (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ДокументальныйПродолжительность: 01:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EFC0624C7B12600171254535DB542053808E976
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

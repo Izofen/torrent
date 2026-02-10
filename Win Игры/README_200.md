@@ -19,6 +19,8 @@ Stardew Valley (2016) [Ru/Multi] (1.6.3) Repack Other s [AD]
 magnet:?xt=urn:btih:B15A7288313609DEF723F0CDF403DC614E0D9094
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ A Divine Guide To Puzzle Solving - это повествовательное п�
 ```bash
 magnet:?xt=urn:btih:0E9CA05EFD72226B54680BF25939400EA7AA10CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Svarog's Dream выделяется как увлекательная РПГ, п
 magnet:?xt=urn:btih:C794DB68F68B13F043D6609EAB5EB8DA0C2BB17B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Maniac - криминальный экшен в стиле rogue-lite, брос�
 ```bash
 magnet:?xt=urn:btih:9AA8E9647D381E7CCF06F55A8373F587DCAF226D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Outpost: Infinity Siege - это увлекательный научно-фан�
 magnet:?xt=urn:btih:698F49DE06F6980EA1FA148B3207B3429441046D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Montezuma's Revenge - это забавное путешествие в серд
 ```bash
 magnet:?xt=urn:btih:B5B24DB189357643F37393038C373BE222D1ACD5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Pepper Grinder - это ураганная двухмерная адвенчур
 magnet:?xt=urn:btih:A9229C8E427243D5AE340D9DB3B6BB33C6F474B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ There's Something In The Ice - хоррор с гнетущей атмосфер
 ```bash
 magnet:?xt=urn:btih:A517E6B73CA494CEC369B7EACC854190A9F7F517
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Metal Unit повествует трагическую историю о буд�
 magnet:?xt=urn:btih:B53EC6A466A4A57420991BF1AFEFD5E2C6B975F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Clash: Artifacts of Chaos – это уникальная по стилю игр
 ```bash
 magnet:?xt=urn:btih:68F759D206B3A4D2D74C342E8C15D5B45661BC91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ Outcast - A New Beginning – это продолжение знаменитог
 magnet:?xt=urn:btih:D5283CB9A1910A227BE17F05AF47B7AA3D2ADB78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Open Roads (2024) [Ru/Multi] (1.0) Scene SKIDROW
 ```bash
 magnet:?xt=urn:btih:3DE910330D67C883EDF9A3C846E815C8989317A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ The Immortal Mayor относится к симуляторам бога и ст
 magnet:?xt=urn:btih:BD9B095035965D6D259102710E68D275F8CE3227
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Goodbye Volcano High (2023) [Ru/Multi] (1.06) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:97D45D3F5EBD933CDCE581742D5E8CD85E17574F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ Kona II: Brume (2023) [Ru/Multi] (20240222) Scene Rune
 magnet:?xt=urn:btih:477E4BF248C084D4B910AF0E265B6C486A8E7C55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Starship Troopers: Terran Command - это захватывающая страт
 ```bash
 magnet:?xt=urn:btih:D369E6E61F1B9F85504DB1650B45CBC992839A7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Callisto Protocol (2022) [Ru/Multi] (13179062/dlc) Repack FitGirl [Digital D
 magnet:?xt=urn:btih:EA2088A7EDF7FA3E0EB8CE508C692C3E27A043CF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Three Kingdoms Zhao Yun погружает игроков в водоворот 
 ```bash
 magnet:?xt=urn:btih:F25E6900875B7FA1FBED614668A49E5E4AC2B3FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ PJ Masks Power Heroes: Mighty Alliance призывает вас объедин�
 magnet:?xt=urn:btih:D2A3FEC8F75BE678636403446CA0D8376AB4A060
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Out of the Park Baseball 25 празднует четверть века сов�
 ```bash
 magnet:?xt=urn:btih:17665912CCA5CF26E8953E2A658F6ED52935A65C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ The Magical Mixture Mill - это увлекательный симулятор,
 magnet:?xt=urn:btih:A854CFFA11D4B66B87F668B5B7810BD2EB8345EC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ Chef Life: A Restaurant Simulator - это увлекательный и реа�
 ```bash
 magnet:?xt=urn:btih:D5935997537691C2EAF71EDAC96D7405D30F57D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Warhammer 40,000: Gladius - Relics of War (2018) [Ru/Multi] (1.13.03/dlc) Repack
 magnet:?xt=urn:btih:5AF2904735BFC03A989AA28DB8DC41DB75E79768
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ magnet:?xt=urn:btih:5AF2904735BFC03A989AA28DB8DC41DB75E79768
 ```bash
 magnet:?xt=urn:btih:4407ADD60C78095157E0AAD90DDFE79ED81208A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Gridrunner. Revenge of the Mutant Camels. Tempest 2000. Llamatron. В брита
 magnet:?xt=urn:btih:039A3CDF410462B4BE6B5B2C98D165295D99128C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ CD 2: Trap Master - инновационный геймплей, в которо
 ```bash
 magnet:?xt=urn:btih:BC65165111B791199C564E1CC9F8FF17B9333E14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

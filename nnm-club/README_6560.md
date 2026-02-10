@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ Ally Venable - самая юная из блюз-роковых исполнит
 magnet:?xt=urn:btih:86E125BD5099906A42F388EB34DCF6DBEBFE2022
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ magnet:?xt=urn:btih:86E125BD5099906A42F388EB34DCF6DBEBFE2022
 ```bash
 magnet:?xt=urn:btih:C871CDEEB3EFD55CFC11898B838EAB6F6588AD63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -94,6 +100,8 @@ magnet:?xt=urn:btih:C871CDEEB3EFD55CFC11898B838EAB6F6588AD63
 magnet:?xt=urn:btih:82861EE7CA6C7A67E6E3A2979E29B0470479B8B1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ Blasphemous (2019) [Ru/Multi] (4.0.67/dlc) Repack Necros [Digital Deluxe Edition
 ```bash
 magnet:?xt=urn:btih:D89FCE9342FF4713CE6537C865E3CE22023E737B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:D89FCE9342FF4713CE6537C865E3CE22023E737B
 magnet:?xt=urn:btih:824B0309B58FA5A7242CE3583E0D9AB13A104E33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +177,8 @@ The Outer Worlds 2 - долгожданное продолжение титул�
 ```bash
 magnet:?xt=urn:btih:5BC80049E34FE034781D99B586754072D25AC960
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:5BC80049E34FE034781D99B586754072D25AC960
 magnet:?xt=urn:btih:4FB24DBDD6B8ACA99A888078D9E4C71134D10E4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Hard Truck: Road to Victory / Дальнобойщик: Путь к победе
 ```bash
 magnet:?xt=urn:btih:9C40CE1F9C8C54D7005BB1E69C7B91D0FBC2E564
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -239,6 +257,8 @@ Ubuntu*Pack 22.04 Cinnamon (март 2023) [amd64] 1xDVD
 magnet:?xt=urn:btih:5A3A023A938B3A4DA82CB8CD11F9E44481C78E53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +283,8 @@ magnet:?xt=urn:btih:5A3A023A938B3A4DA82CB8CD11F9E44481C78E53
 magnet:?xt=urn:btih:CCE1EC7CE9E2AA5709203C81A713B0B2FE143FB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +308,8 @@ magnet:?xt=urn:btih:CCE1EC7CE9E2AA5709203C81A713B0B2FE143FB1
 ```bash
 magnet:?xt=urn:btih:5D85DEE96FBA62D86513C2DD6CF492CB9805309B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +336,8 @@ ADB AppControl - это новая и удобная программа для �
 magnet:?xt=urn:btih:20AE4A83D6ECFD334612C23A5DCDF2385EF4D3D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +361,8 @@ magnet:?xt=urn:btih:20AE4A83D6ECFD334612C23A5DCDF2385EF4D3D5
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ Noize MC - Кооператив «Лебединое озеро» (2023) Single 
 magnet:?xt=urn:btih:47BEC50BBA610630B16D92AFBB538334FBFF9CC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:47BEC50BBA610630B16D92AFBB538334FBFF9CC8
 ```bash
 magnet:?xt=urn:btih:4A6DC26F3276DEF991AC7A51BB8A5D92F059E654
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:4A6DC26F3276DEF991AC7A51BB8A5D92F059E654
 magnet:?xt=urn:btih:715C3B62B54E55A53D130AC0272EDFD083761653
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +465,8 @@ magnet:?xt=urn:btih:715C3B62B54E55A53D130AC0272EDFD083761653
 ```bash
 magnet:?xt=urn:btih:EF81E5C5EE030B82FA42050B8FCDA0F2542C89F4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -456,6 +492,8 @@ magnet:?xt=urn:btih:EF81E5C5EE030B82FA42050B8FCDA0F2542C89F4
 magnet:?xt=urn:btih:056F1E2A4A0C988F52EA84487E34490269250239
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +517,8 @@ magnet:?xt=urn:btih:056F1E2A4A0C988F52EA84487E34490269250239
 ```bash
 magnet:?xt=urn:btih:F25CAB8117AEC8FF6F2B963C86356B554E88DF99
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +545,8 @@ magnet:?xt=urn:btih:F25CAB8117AEC8FF6F2B963C86356B554E88DF99
 magnet:?xt=urn:btih:3E6918CB23BD424FCA395F7B3DD57AD4A443522A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -528,6 +570,8 @@ magnet:?xt=urn:btih:3E6918CB23BD424FCA395F7B3DD57AD4A443522A
 ```bash
 magnet:?xt=urn:btih:B15596E107F7C43AE663D12FDBB969BE74361DDC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +597,8 @@ OpenVPN – мощная программа для работы с частны�
 magnet:?xt=urn:btih:2EAC0CD88D82207009BAC9B61571998C6B940244
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +622,8 @@ The Gnomon Workshop, Dan Weiss | Designing & Modeling a Creature With Scales By 
 ```bash
 magnet:?xt=urn:btih:B87558363587D8350222715BB83A1C9C8D0796F5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +649,8 @@ magnet:?xt=urn:btih:B87558363587D8350222715BB83A1C9C8D0796F5
 magnet:?xt=urn:btih:33455399AF81164B63CD37396FE0A35E4DFFAB0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -624,6 +674,8 @@ magnet:?xt=urn:btih:33455399AF81164B63CD37396FE0A35E4DFFAB0F
 ```bash
 magnet:?xt=urn:btih:46D2EEE57B0AE2935A51D56193373E09760C66C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

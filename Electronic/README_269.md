@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:EA3FB49682347BFEAD5368BEB3C250B50089DA27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - A State Of Trance: Ibiza 2018 (Mixed By Armin Van Buuren) (2018) [FLAC|Loss
 ```bash
 magnet:?xt=urn:btih:D5FA12605DB568D4D73A2BE1A26C853306F3AC02
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ ScAnDroid Experiment's - From Everything (2018) [MP3|320 Kbps] <Experimental Ele
 magnet:?xt=urn:btih:5440C99A70486320AEDF534FC537F8B25700E437
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ Leon Vynehall - Nothing Is Still (2018) Ninja Tune [FLAC|Lossless|tracks+.cue] <
 magnet:?xt=urn:btih:56B27B4E6B4D47EAE5648C35DD6472117B64C5AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -126,6 +134,8 @@ Miles Whittaker (Miles, Millie, MLZ, Suum Cuique) - Discography 13 Releases (200
 ```bash
 magnet:?xt=urn:btih:C2A78D4BECA9216572BCDF4FEDFF4CF7162CBBBC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -154,6 +164,8 @@ VA - Black Hole Trance Music 08-18 (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:C0B51E7BCC508130988820CB1DDC25671890B0C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -180,6 +192,8 @@ Anne Guthrie - Brass Orchids (2018) Students Of Decay [FLAC|Lossless|WEB-DL|trac
 ```bash
 magnet:?xt=urn:btih:6C3FD69BDDC503EBB94008E30DE7942A92DA02FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ VA - Tour De Traum XVII (2019) [MP3|320 Kbps] <House>
 magnet:?xt=urn:btih:3744535F1CA10928ECD839776E3516BE0C522168
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ VA - Ibiza Deep House Essentials (2018) [MP3|320 Kbps] <House, Deep House, Progr
 ```bash
 magnet:?xt=urn:btih:4F1EB2AFF928817671C029315AB52E970F4C43FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ deadmau5 @ The Indy 500 Snake Pit, United States 2022-05-29:
 magnet:?xt=urn:btih:8F30B5609A7910F778F180AADC5BAB66C85AAB30
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -288,6 +308,8 @@ VA - Feeling Happy: Bossa Lounge and Deep Chill House (2016) [MP3|320 Kbps] <Dow
 ```bash
 magnet:?xt=urn:btih:F8B74ACE6F2611A5A6012B6087F8CE22DF934412
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +338,8 @@ VA - Nothing But... Croatia Tech Trance (2016) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:45001E6C9D8A0D14255A3C0CA4426C7F83F32EEE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -342,6 +366,8 @@ Djs@Work - Best Of (2016) [MP3|320 Kbps] <Trance>
 ```bash
 magnet:?xt=urn:btih:50A9263AB36FA1D09D029273CB07DA6F8143A900
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -370,6 +396,8 @@ VA - Buddha Rules: Mind Meditation (2016) [MP3|320 Kbps] <Balearic, Downtempo>
 magnet:?xt=urn:btih:6663724119503C9AB6F4D92894ACC6AB975C5BB1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -396,6 +424,8 @@ Phillipo Blake - 2017: Chillout Album (2016) [MP3|320 Kbps] <Balearic, Downtempo
 ```bash
 magnet:?xt=urn:btih:60D8B2D025C2DA0891729B27E4A95D3F694BB9EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +454,8 @@ VA - Best Of Del Mar Vol.7: 30 Beautiful Chill Sounds (2018) [MP3|320 Kbps] <Dow
 magnet:?xt=urn:btih:45441D7C77083E906BB38BD5923EC82ACA8930ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +482,8 @@ VA - Iris Eclipse (2019) Dusk Notes [FLAC|Lossless|WEB-DL|tracks] <Techno>
 ```bash
 magnet:?xt=urn:btih:BD47481D5F9BD82AB8AF2E6F41DC492DD9D956C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ Valdi Sabev - Imagined Vol. 2 (2017) [MP3|320 Kbps] <Downtempo, Ambient>
 magnet:?xt=urn:btih:536E694B010A7BA9EF499FB7FC07553EC7008EE3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -504,6 +540,8 @@ Dinka - Closer (2013) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tranc
 ```bash
 magnet:?xt=urn:btih:6AAC20B1B9D03A6ACDE3E798D7015925AC01D15E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -532,6 +570,8 @@ VA - Deep House Holiday 2017 [MP3|320 Kbps] <Funky, Club House>
 magnet:?xt=urn:btih:9E3B36C1D333A6F78219BD86D8A5527B5B3E5D95
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -558,6 +598,8 @@ VA - Uplifting Trance Top Twenty: August (2017) [MP3|320 Kbps] <Vocal Trance, Up
 ```bash
 magnet:?xt=urn:btih:70B76FC632C5CC2B9A38598F4794419E7B7FA2BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +628,8 @@ VA - Fresh Moods Pres. Ambience Vol.5 (2017) [MP3|320 Kbps] <Downtempo, Chillout
 magnet:?xt=urn:btih:0C8247EE953ECD7271E92612810682231AE8BD25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -613,6 +657,8 @@ VA - Progressive House Nation Vol.2 (2017) [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:2A15EAF2F7BE690AE06293D00FAA95AE435C3CA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +684,8 @@ Sequentia Legenda - Ethereal (2017) [MP3|320 Kbps] <Electronic, Ambient, Berlin 
 ```bash
 magnet:?xt=urn:btih:606A3CC99B497A5F372D47578D82692C68EF69DE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -666,6 +714,8 @@ VA - Ibiza House Party 2017 [MP3|320 Kbps] <Funky, Club House>
 magnet:?xt=urn:btih:988700FFA3D11C607139651F30F89F7B01B086B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -692,6 +742,8 @@ VA - Trance Hits Top 20: 2017-08 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
 ```bash
 magnet:?xt=urn:btih:6E71006884438AFCC021BE680E9C9A0EBEFB03C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

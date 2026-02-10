@@ -19,6 +19,8 @@ TunesKit Video Cutter 2.3.1 [Multi]
 magnet:?xt=urn:btih:E8970F77C2AD794CFCCCE01534D52F25A2982546
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Feeder - это полнофункциональное приложение дл
 magnet:?xt=urn:btih:14BD10166D6C280B2BE877E689A5A60ACA797E74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ Library Monkey Pro предоставляет полный набор звуко
 magnet:?xt=urn:btih:974CDBFBBA07F9A0A7BBD1489C59F76AF2D600EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ MacClean360 - удобный и безопасный уборщик вашего
 ```bash
 magnet:?xt=urn:btih:096ECA82F61E1ABF39E1C6AD52502E333141DB7D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +126,8 @@ VA - Peace Garden (2018) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:6BDA4439A5916D4AE7C4C2C04570EED934C35450
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ VA - Русские Новинки Vol.50 from AGR (2012) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:ADF47FE7C0F434E03DE75C56E73BAB599193291E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ SideNotes - это боковая панель, которая заполнит 
 ```bash
 magnet:?xt=urn:btih:96642A5C26956C467144F195BA2C0C71D3964D70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -208,6 +222,8 @@ Decoy - 2 Альбома (2006-2007) [FLAC|Lossless]<Psychedelic / Progressive, 
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +250,8 @@ SnapMotion имеет два режима:
 ```bash
 magnet:?xt=urn:btih:2CC6529F57BE057EFB72B13C5664B5A851A177F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -262,6 +280,8 @@ Michael Simon - Salama (2022) [AAC|~311 Kbps] <Deep House, Organic House>
 magnet:?xt=urn:btih:51E6952907AEEA2214C83CB4013134961A684834
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +307,8 @@ Music Tag Editor - редактор музыкальных тегов помож
 ```bash
 magnet:?xt=urn:btih:3D926D1A97959E92EAE22AA66D74C85837277D3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -321,6 +343,8 @@ Askold Buk - Askold Buk (1999) [FLAC|Lossless]<Fusion, Crossover Jazz>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -347,6 +371,8 @@ VA - Soul Food Chillout (2022) [AAC|~288 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:C7A7A913535EB446D460FBA34480A98231B4195A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -375,6 +401,8 @@ magnet:?xt=urn:btih:C7A7A913535EB446D460FBA34480A98231B4195A
 magnet:?xt=urn:btih:94541A3554A47985F8AD61358F800C2CC4F8ABB8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +427,8 @@ Transfer - это надежное и полностью RFC-совместим�
 magnet:?xt=urn:btih:E7EF90D33CECB7F1EE802FF24DC0C038F8A43D2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -422,6 +452,8 @@ ProFind 1.9.4 [En]
 ```bash
 magnet:?xt=urn:btih:8057C6C068F56876CF88E3E1DE68DD762DEF7F40
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -449,6 +481,8 @@ VA - Pure Deluxe 2 (2014) [AAC|~311 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:B7F43EEBA90950C06BD59FA24528C2D7229E3C19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +512,8 @@ magnet:?xt=urn:btih:B7F43EEBA90950C06BD59FA24528C2D7229E3C19
 magnet:?xt=urn:btih:C78B37F7530EF3773DF88297CF7B273B0309EEAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -505,6 +541,8 @@ VA - Sun & Chill, Vol. 1 (2012) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
 magnet:?xt=urn:btih:2E8BBAFF9740FA6E2DB6377E168914A23F6806A9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ VA - Pure Deluxe 1 (2014) [AAC|~310 Kbps] <Lounge, Chill Out, Downtempo>
 ```bash
 magnet:?xt=urn:btih:F96FFE9240AE24DE30D86FAFC7CED42A1FAB773C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -565,6 +605,8 @@ Excelsis - Kurt Of Koppigen (1998) [MP3|320 кб/с]<Dark Power Metal>
 magnet:?xt=urn:btih:2FEF820F27EB770EE70E0CC9BC2C6B8A51D4E34F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -588,6 +630,8 @@ magnet:?xt=urn:btih:2FEF820F27EB770EE70E0CC9BC2C6B8A51D4E34F
 ```bash
 magnet:?xt=urn:btih:C9786C8273BA9F4E7823E0907734CA28EFE20160
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -616,6 +660,8 @@ VA - Pure Deluxe 4 (2014) [AAC|~308 Kbps] <Lounge, Chill Out, Downtempo>
 magnet:?xt=urn:btih:E98F00CBECAB742218D18C45131A77CE60119DE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +686,8 @@ magnet:?xt=urn:btih:E98F00CBECAB742218D18C45131A77CE60119DE1
 magnet:?xt=urn:btih:B693A7AF720CB65836512B9FE2D130AD9D3689C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -663,6 +711,8 @@ PDF Reader Pro - это приложение для редактирования
 ```bash
 magnet:?xt=urn:btih:6635084D0A53077823CC143DCB6A8F0A2BA3EB6B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -690,6 +740,8 @@ VA - Oriental Lounge Affair (Exotic Arabian and Indian Moods) (2022) [AAC|~335 K
 ```bash
 magnet:?xt=urn:btih:199452276BFC100B31F7270A9B94683003A9078E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

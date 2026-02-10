@@ -19,6 +19,8 @@ XYPlorer - мощный файловый менеджер для Windows, пре
 magnet:?xt=urn:btih:0160CE21948C0A28AAB9C4B27CE8A71C374C9D78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ magnet:?xt=urn:btih:0160CE21948C0A28AAB9C4B27CE8A71C374C9D78
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ magnet:?xt=urn:btih:0160CE21948C0A28AAB9C4B27CE8A71C374C9D78
 magnet:?xt=urn:btih:B35ABA56742CFD11DB96BA33927F0B664DCDDAB4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:B35ABA56742CFD11DB96BA33927F0B664DCDDAB4
 ```bash
 magnet:?xt=urn:btih:4AB1AC7F17AAAAFF79BF326F9102173312B735F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +127,8 @@ VA - A Wave Of Positivity: Pop Dance Project (2021) [MP3|320 Kbps] <Pop, Dance>
 magnet:?xt=urn:btih:C354E1E07B37CC30D6E348D951E546F8309C715A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ magnet:?xt=urn:btih:C354E1E07B37CC30D6E348D951E546F8309C715A
 ```bash
 magnet:?xt=urn:btih:7EC4F8102BBD4EFFCE8A53E2917352F5E7B5C5A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +179,8 @@ magnet:?xt=urn:btih:7EC4F8102BBD4EFFCE8A53E2917352F5E7B5C5A5
 magnet:?xt=urn:btih:8CDB202AC42C8B8119FC30571CC6AA43EAB36D9F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +204,8 @@ KXStudio большая и часто обновляемая коллекция 
 ```bash
 magnet:?xt=urn:btih:B3D4AC820812E1A26153AD830CFE9148EF65B92D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:B3D4AC820812E1A26153AD830CFE9148EF65B92D
 ```bash
 magnet:?xt=urn:btih:E77B6B51E4DE8CD87E2148E4525E8B5F757F01BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Kpoxa Tweaker 1.4 [Ru]
 magnet:?xt=urn:btih:BBEE8CBB087F99A70893F0472AF75386F34B5289
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -270,6 +290,8 @@ VA - Best Music of 2018 (2018) [MP3|320 Kbps] <Pop, Hip Hop, Alternative, Dance>
 magnet:?xt=urn:btih:E63886D0789D2A18CCBBE81EB2BD3493AC8BA034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -293,6 +315,8 @@ magnet:?xt=urn:btih:E63886D0789D2A18CCBBE81EB2BD3493AC8BA034
 ```bash
 magnet:?xt=urn:btih:C4DED8E24D07E36B8C8E60E058209931C8E16507
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -319,6 +343,8 @@ magnet:?xt=urn:btih:C4DED8E24D07E36B8C8E60E058209931C8E16507
 ```bash
 magnet:?xt=urn:btih:47568B86049F9AEDE9E23BB4CC459EDAD5CC6844
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -347,6 +373,8 @@ VA - Best White Party: EDM & Electro House (2021) [MP3|320 Kbps] <Club, Dance, H
 magnet:?xt=urn:btih:F231AFEF2B6B2ACA49F622524763BCAB2A9E7F5A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -373,6 +401,8 @@ magnet:?xt=urn:btih:F231AFEF2B6B2ACA49F622524763BCAB2A9E7F5A
 magnet:?xt=urn:btih:D4600C8D89C28C1E197186CB4534FA84308F3179
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -397,6 +427,8 @@ magnet:?xt=urn:btih:D4600C8D89C28C1E197186CB4534FA84308F3179
 magnet:?xt=urn:btih:7286B4A488A9F09BBFB929D3FE74FD7FE1984FF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -420,6 +452,8 @@ magnet:?xt=urn:btih:7286B4A488A9F09BBFB929D3FE74FD7FE1984FF3
 ```bash
 magnet:?xt=urn:btih:28E0B341974946A658404A0F4980767C12224505
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -448,6 +482,8 @@ VA - Secret Mission: Jackin House Party (2021) [MP3|320 Kbps] <Jackin, Funky, Di
 magnet:?xt=urn:btih:0DBF1DE9B9DBFDAD0D53B201B5CFB654CA850180
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +511,8 @@ Alan Hartwell's Big Band featuring Cozy Cole:
 magnet:?xt=urn:btih:81335A0B5D1E368F52A01076AF77AF24A2B57F9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -499,6 +537,8 @@ magnet:?xt=urn:btih:81335A0B5D1E368F52A01076AF77AF24A2B57F9E
 magnet:?xt=urn:btih:99C7AA127BF7CB7BE4E3CD33F9E28A451B215A69
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +562,8 @@ FXPHD, Victor Perez | NUK312 Photorealism in Compositing with NUKE Fundamentals 
 ```bash
 magnet:?xt=urn:btih:EB2B2EC8F82E8E17D7F7A0CA38C77DC483711022
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ VA - Valse/Tango 1, 2, 3... Musette (1997) Gold, 2CD Box Set [FLAC|Lossless|imag
 magnet:?xt=urn:btih:8F83BC587A9C0A3508085358FA0B05FEFB8F2E0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -575,6 +619,8 @@ magnet:?xt=urn:btih:8F83BC587A9C0A3508085358FA0B05FEFB8F2E0E
 magnet:?xt=urn:btih:A1D542B99F5BF55411167882DC26517B4A278327
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +645,8 @@ magnet:?xt=urn:btih:A1D542B99F5BF55411167882DC26517B4A278327
 magnet:?xt=urn:btih:59A27F94EEC95AC691D43025148A16F78F9D3238
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +670,8 @@ magnet:?xt=urn:btih:59A27F94EEC95AC691D43025148A16F78F9D3238
 ```bash
 magnet:?xt=urn:btih:474B57AD64F2EC7EB106716949F1D0088169248D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -649,6 +699,8 @@ Fire Garden - Far and Near (2016) [FLAC|Lossless|image + .cue] <Progressive Rock
 ```bash
 magnet:?xt=urn:btih:C2108CA742807F2FB625B30BBFD219CD2EFB890F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

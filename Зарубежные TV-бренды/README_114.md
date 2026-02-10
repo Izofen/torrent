@@ -19,6 +19,8 @@ BBC: Эйнштейн и Хокинг. Гении нашей Вселенной 
 magnet:?xt=urn:btih:F352D9C6AB3E2EAF4CF86074B31431B6E1BD2F9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ NG: Миссия полета к Солнцу / Mission to the Sun (2018) IPTVRi
 ```bash
 magnet:?xt=urn:btih:F33F873C0FA06A82339B4C6E1727261C56A6CEDD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:F33F873C0FA06A82339B4C6E1727261C56A6CEDD
 magnet:?xt=urn:btih:E6700505E7A01052E475C1B2946F037DC8130547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:E6700505E7A01052E475C1B2946F037DC8130547
 ```bash
 magnet:?xt=urn:btih:4395B2135862EC4509F6FE9513217BAB406BFBBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:4395B2135862EC4509F6FE9513217BAB406BFBBF
 magnet:?xt=urn:btih:BB6E5A6DF5A903FF9639D0477C8A45C955D399A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ magnet:?xt=urn:btih:BB6E5A6DF5A903FF9639D0477C8A45C955D399A7
 ```bash
 magnet:?xt=urn:btih:EA0F82420DFA0BBA308495197F2C45B1BC417A88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ BBC: Тайная жизнь льда / The Secret Life of Ice (2011) HDTVRip [H
 magnet:?xt=urn:btih:1ABB8B4E980CCB801141FE66AC5448300E46F4C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ NG: Самые страшные мировые морские катастроф
 ```bash
 magnet:?xt=urn:btih:C3B4A61939A0239213773DC5B81F1344D4BEE3F1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ BBC. Horizon. Тайная жизнь кошек / The Secret Life of the Cat (2
 magnet:?xt=urn:btih:3B0E6D8FB2578FC825D016B141E3BBCE315402C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ Nat Geo Wild: Секреты крокодила / Croc Inside Out (2015) HDTVRip
 ```bash
 magnet:?xt=urn:btih:228F6EAF4416239EFFAEAE13F1017BD17BD014C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ NG: Христианство. Восхождение к власти / Иису�
 magnet:?xt=urn:btih:BE10D47CF07993DB455B7DAAE8DD1C9B837C8253
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ magnet:?xt=urn:btih:BE10D47CF07993DB455B7DAAE8DD1C9B837C8253
 ```bash
 magnet:?xt=urn:btih:44567389F0080438B532A9B1C4D9EC92CDDA7297
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ Discovery. Техногеника. Карьер "Удачный" (2016) HDTVRip 
 magnet:?xt=urn:btih:E561951A5433B2FF9ADC685147E96F556AB05DBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ N.G. Нацистские тайны Второй мировой / Nazi weird wa
 ```bash
 magnet:?xt=urn:btih:84185B00812A8E0EB56D87473C9F50893DDB1026
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ BBC: Армада. Неизвестная история (12 дней чтобы
 magnet:?xt=urn:btih:4F7D51486B6FBDA07E538C6E95307A62343EFE82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ N.G. Момент смерти / Moment of death (2008) WEB-DLRip [H.264/720p]
 ```bash
 magnet:?xt=urn:btih:EC0A4D15186CEDD9F5CD619588C59798157A5FA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:EC0A4D15186CEDD9F5CD619588C59798157A5FA9
 magnet:?xt=urn:btih:DA328C4DB0B21CA74071081CB4F4A56E99A02447
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ NG. Звездное выживание с Беаром Гриллсом / Runni
 ```bash
 magnet:?xt=urn:btih:DB078B9D5BF34A9C91BB058F1666E8B585438254
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -452,6 +488,8 @@ magnet:?xt=urn:btih:DB078B9D5BF34A9C91BB058F1666E8B585438254
 magnet:?xt=urn:btih:18FB0D1FD581A2EB99A21FC91E45DAFDA1D09A7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -475,6 +513,8 @@ NG. 9/11: Один день из жизни Америки / 9/11: One Day in Am
 ```bash
 magnet:?xt=urn:btih:3550B8007BC87CE7F2C95939D662AF78B7905685
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +540,8 @@ magnet:?xt=urn:btih:3550B8007BC87CE7F2C95939D662AF78B7905685
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -523,6 +565,8 @@ BBC: Охота на гравитационные волны / The hunt for grav
 ```bash
 magnet:?xt=urn:btih:FA6EC4736AAB361A0595175831572D0641ABD922
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -548,6 +592,8 @@ N.G. Дикие животные 24 часа / Wild 24 (2015) HDTVRip [H.264/720
 magnet:?xt=urn:btih:899E4EEF8E265833F6C3ED83DD43C0223FA9CE55
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +617,8 @@ magnet:?xt=urn:btih:899E4EEF8E265833F6C3ED83DD43C0223FA9CE55
 ```bash
 magnet:?xt=urn:btih:67FCE0FDF60C57B32FD5FD5B190DACF438CA0E17
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +644,8 @@ magnet:?xt=urn:btih:67FCE0FDF60C57B32FD5FD5B190DACF438CA0E17
 magnet:?xt=urn:btih:AD98A9F7B6A1F545FFAAC73EE3FEBA3D53BCF716
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -619,6 +669,8 @@ magnet:?xt=urn:btih:AD98A9F7B6A1F545FFAAC73EE3FEBA3D53BCF716
 ```bash
 magnet:?xt=urn:btih:1B90CBC1B472013BB370B9DF83F44719B3B53029
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

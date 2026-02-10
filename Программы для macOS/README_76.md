@@ -21,6 +21,8 @@ MindNode поможет вам упорядочить мысли и проник
 magnet:?xt=urn:btih:219E76DCA9CA643494DA6213282BD5787CA6663B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Cloud Outliner позволяет с легкостью создавать ау�
 ```bash
 magnet:?xt=urn:btih:FDFBFDA12CA102CE2163371079A22EBDA495A44C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -71,6 +75,8 @@ FotoMagico – популярный пакет для создания слай�
 magnet:?xt=urn:btih:405F72D69D588F85357954658AF7BCCFB530A533
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -94,6 +100,8 @@ WhatSize - небольшое приложение выводит на экра�
 ```bash
 magnet:?xt=urn:btih:7266FE6128EE85399D9FC649DFC95D9F94520823
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -121,6 +129,8 @@ AppLocker может защитить паролем отдельные прил
 magnet:?xt=urn:btih:E5617AE1915DE3CB016AE16613E306ECBD46FF4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ EXIF Cleaner PRO - это приложение для удаления инфо�
 ```bash
 magnet:?xt=urn:btih:BB5E1A01B5020E3C559A9B1F2E7D66362C330989
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Smart Converter позиционируется разработчиками из
 ```bash
 magnet:?xt=urn:btih:32D85C2CD8ECC17744F47479F487FDF3161C5033
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -197,6 +211,8 @@ Suite for iWork представляет собой набор из шаблон
 magnet:?xt=urn:btih:7EF695D9D57476FF7FAA6E5D8B3D3129B27EB7E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -223,6 +239,8 @@ Themes for Keynote 5.1.1 [Multi/Ru]
 magnet:?xt=urn:btih:A23E8F68CD88BC3499BF755C977867EE4103F3C5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -246,6 +264,8 @@ MacBreakZ - Ваш личный ассистент, который позабо�
 ```bash
 magnet:?xt=urn:btih:92DA38D69B36369C1BACF56FD50F9316BE3825C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -273,6 +293,8 @@ VideoDuke 1.4 (250) [En]
 magnet:?xt=urn:btih:368442172766C53957D39BE1DE2E68DFE4E729D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ VideoboxPro позволяет Вам быстро и легко закачив�
 ```bash
 magnet:?xt=urn:btih:A6CDB1D82F3F7C153D1F336BAA29F595A76CDF38
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ MarkdownD предлагает возможность форматировани
 magnet:?xt=urn:btih:23BECB39B0E6BDD23FA7D6E911FBEDFD79C78900
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -349,6 +375,8 @@ Movavi Video Editor 5 Plus 5.1.0 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:B963223F9B9A69B042D8A56B9C2F061496911F25
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -376,6 +404,8 @@ Adobe Photoshop Lightroom 5.7.1 [Multi+Ru]
 magnet:?xt=urn:btih:CD8291ED3979AFA70DBFD6696A325260C932FADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -399,6 +429,8 @@ Infinity Dashboard позволяет вам отслеживать что уг�
 ```bash
 magnet:?xt=urn:btih:0D171CC45B4B570DD764CC4E8D120EB89CF25654
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -424,6 +456,8 @@ PDF Converter для Mac является незаменим приложени�
 ```bash
 magnet:?xt=urn:btih:37CD523C425C939213ECAC5C5806E1FBACCE7DDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +485,8 @@ WiFi Explorer позволяет быстро идентифицировать �
 magnet:?xt=urn:btih:004D67B48E4E29B8616401D1E93E05E9A3AAA815
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +510,8 @@ PDFelement Express 1.0.1 [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:1B616028B1BA116A423E58435A4AB7932CD9F293
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -500,6 +538,8 @@ Infographics for Pages 3.1.2 [Multi/Ru]
 magnet:?xt=urn:btih:94171E3385A784216FC14FF1A48EAEC2BEC44C25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -524,6 +564,8 @@ magnet:?xt=urn:btih:94171E3385A784216FC14FF1A48EAEC2BEC44C25
 ```bash
 magnet:?xt=urn:btih:527E24ED280F0786683B2223EDC40D62CFB62448
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +593,8 @@ Paste хранит всё, что вы когда-либо копировали 
 magnet:?xt=urn:btih:D87D136A9C21B52A3AA9DC15C6FDEC6C02EC25FB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -577,6 +621,8 @@ Lingon позволяет визуально создавать файлы ав�
 magnet:?xt=urn:btih:94D802AEDD16EDF54F6E55F02829FB2DE11B2148
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +646,8 @@ Wondershare Filmora 8.7.6 + Effect Pack [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:62E354726588A06C413B10DDB5793CEC3E8126B9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -626,6 +674,8 @@ mimoLive - программное обеспечение, которое пре�
 magnet:?xt=urn:btih:9E9137AC1E4BA29EC5D9D9BFB7AF7C6C5C43CF18
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -651,6 +701,8 @@ DxO PhotoLab Elite 1.2.3 (82) [Multi]
 ```bash
 magnet:?xt=urn:btih:F0774705B06AABFC826D5E2CF72A335620472F11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@ Autodesk Inventor Professional - 3D-САПР для машиностроител
 magnet:?xt=urn:btih:BDF5386F0B0D588F1EB240214861C8674D66CBA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ CSI Pass Through Direct (SPTD, имя файла «sptd.sys») — драйве�
 ```bash
 magnet:?xt=urn:btih:644B3785341E371A270FB02DBF5CADEC2D2FC1F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Security Eye - бесплатная программа для наблюдени
 magnet:?xt=urn:btih:45673F77EC8EBCDACBC4428C20F5DA2C3F664009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ SQLite Expert Professional – мощный визуальный инструм�
 ```bash
 magnet:?xt=urn:btih:C1CBDE18CE7CEF6198AF450B75C6C82B90BE1244
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ Enterprise Architect —всесторонний набор UML-инструме
 magnet:?xt=urn:btih:2358A954E5A778BFBDEFEFC6C1DBBA4DAC5A28E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Axure RP- быстрое макетирование для приложений 
 ```bash
 magnet:?xt=urn:btih:EEBEF2925977CE855DA2FBD47235A9F9927D0487
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Bootstrap Studio - программа для создания красивых �
 magnet:?xt=urn:btih:72D547900DE77FC589F9A440A6FE925F464C5A85
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ RuntimePack - это набор компонентов, который раз и
 ```bash
 magnet:?xt=urn:btih:AB5837B0D8590DE03B584A659861961BB51D5138
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Windows USB/DVD Download Tool - инструмент от компании Micro
 magnet:?xt=urn:btih:2B41C243F3F3AB9B3C5B49CAB2FE3CCC858B3EEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ IPTV Checker v 2.5 Portable [En]
 magnet:?xt=urn:btih:7969F0E1F1BF00758B93385F63CAA7BD410856BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +278,8 @@ VerseQ - инновационный клавиатурный тренажер, �
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Stitch Art Easy! - вышивка- это просто!
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ AutoCAD Electrical – это AutoCAD для проектировщиков эл
 ```bash
 magnet:?xt=urn:btih:89FCAE723C0F6FD2A856B84F6FECD4B9589523E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +362,8 @@ AutoCAD Plant 3D применяется для проектирования те
 magnet:?xt=urn:btih:AF787FA4FC673EC728EADF5D6FFA5B29F72FCD66
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +387,8 @@ AutoCAD MEP – это AutoCAD для проектирования отопит�
 ```bash
 magnet:?xt=urn:btih:94C4F3C7037A325FAA3BB0FA33F28A7A2B405426
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +414,8 @@ Autodesk AutoCAD Map 3D 2021 [Ru]
 magnet:?xt=urn:btih:FCAFD6C6C2026FCC2D4C7D11AD3DE1E1B7F5744D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +439,8 @@ Tangible Software Source Code Converters portable by _Sef 14.02.2017 [En]
 ```bash
 magnet:?xt=urn:btih:DBE0B35C3D1BBC70E90C1AE55D7FC26F07052E15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +466,8 @@ Acme CAD Converter — новая версия популярной и дост�
 magnet:?xt=urn:btih:1CDB4BE00343B6A59C04ACEAC6FB2B75276C2416
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ IAR Embedded Workbench for MSP430 6.40.1 [En]
 ```bash
 magnet:?xt=urn:btih:57257B12AB955B2CF5DE8C6B850C03F3430606CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +518,8 @@ RuntimePack Lite 20.3.3 by jameszero (x86-x64) [Ru]
 magnet:?xt=urn:btih:AD469C86966A15D556F77833495E624B8A959479
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -503,6 +543,8 @@ magnet:?xt=urn:btih:AD469C86966A15D556F77833495E624B8A959479
 ```bash
 magnet:?xt=urn:btih:84315B96C5559201032296DD8939D2E7ABA60416
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -528,6 +570,8 @@ CodeLobster PHP Edition - очень мощный и многофункцион�
 magnet:?xt=urn:btih:5558A090BA1D26415A3A29AD080AB82FD5EAAF16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +595,8 @@ Stop SMS Uni Boot x64 (UEFI) - Загрузочный образ CD & USB , ос
 ```bash
 magnet:?xt=urn:btih:42E19C172F3415F22DE6AD10FEAE6DA82B545DA8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -576,6 +622,8 @@ Abacom Electronics Software 31.01.2017 RePack (& Portable) by Robby [Ru/En]
 magnet:?xt=urn:btih:5C72B8F9046EC949087CAE8E9A35CB8EDAA72016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -600,6 +648,8 @@ Go1984 - полнофункциональный программный комп�
 magnet:?xt=urn:btih:0D295101EA214ACB183718A1ABE129B3C86FEBF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -623,6 +673,8 @@ VMProtect - защита программного обеспечения нов�
 ```bash
 magnet:?xt=urn:btih:155B366059C0065769AEA90FE8D355DADEFFD877
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

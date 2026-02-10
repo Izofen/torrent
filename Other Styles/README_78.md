@@ -22,6 +22,8 @@ Two Steps From Hell - Power of Darkness Anthology (2017) [MP3|320 Kbps] <Soundtr
 magnet:?xt=urn:btih:0C7D11D39F0F9C2E3EEA0A8DD3B63D571A307C82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Latino Stars 2017 [MP3|320 Kbps] <Reggaeton, Bachata, Kizomba>
 ```bash
 magnet:?xt=urn:btih:AA3843583A124FD0817C978C1F1F3FD78A9D400F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Estas Tonne, ONE Heart Family - Mother of Souls (2016) [FLAC|Lossless|tracks] <N
 magnet:?xt=urn:btih:6A3E80D6C2352BF6C7658CFE5E9F60D0D0B5FC17
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Musica tantrica consort - Massaggio di coppia (2017) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:D700241A7CCC4DF705BC9BE0669B46FCCA556AB7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ Marcelo Zarvos & Paul Hartnoll - Ультраамериканцы / American Ult
 magnet:?xt=urn:btih:B89640AF4DE6BA94869AF10880847526F95522A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Nicholas Gunn - Under the Influence of Music:The Complete Series (2016) [FLAC|Lo
 ```bash
 magnet:?xt=urn:btih:E95281207FBDE2B0C8EAD12EAD12FDE952CE095B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ David Hollandsworth - Edge of Forever (2016) [FLAC|Lossless|tracks] <New Age>
 magnet:?xt=urn:btih:292B27CB2C48119AFBC4EA393D18556DA3381480
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ Ernesto Cortazar - Memories Of The Fall (2010) [MP3|320 кб/с]<Instrumental, N
 ```bash
 magnet:?xt=urn:btih:5B5D20E0EF1BD519F926CB5E82690F2D82AEB4DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ Marcelo Zarvos & Paul Hartnoll - Ультраамериканцы / American Ult
 magnet:?xt=urn:btih:A264F9F7B544FB4CE42F3ECA50C6783AC2877486
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -265,6 +283,8 @@ Neil Harvey - Beautiful Day (2010) [MP3|320 кб/с]<New Age>
 magnet:?xt=urn:btih:C56A55A26789CF15936A12849D23CB4877DEF318
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +311,8 @@ Greg Joy - Light of Day (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ```bash
 magnet:?xt=urn:btih:D26DA5569D51F18591DEA3DEBF4A269114725EA0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +347,8 @@ VA - Usher Audio Demonstation CD (2004-2010) 5CD[FLAC|Lossless]<High-End Audioph
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +375,8 @@ Audiomachine - Life (2017) [FLAC|Lossless] <Soundtrack, Trailer music, Classical
 ```bash
 magnet:?xt=urn:btih:0CB038A47B762FDF952AF05001CE049EB6C49020
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +405,8 @@ Bon Iver - i,i (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock, Indie Folk>
 magnet:?xt=urn:btih:49731ADAEF42674A5B0F6BE589F178EC8E1675DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +433,8 @@ Pilgrimage (Simon Cloquet & Eric Calvi) - 9 Songs of Ecstasy (1997) [APE|Lossles
 ```bash
 magnet:?xt=urn:btih:BA62FB7CABE60A1C66F84DCFD76F1B4C29C40388
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +463,8 @@ Lynn Tredeau - Fellowship of Solitude (2018) [MP3|320 Kbps] <Instrumental, Piano
 magnet:?xt=urn:btih:BD165DE750C251B099B5960985BCDBD854AC2A04
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +491,8 @@ Kevin Kendle - Illumination (2015) [MP3|320 кб/с]<Electronic, Ambient, New Ag
 ```bash
 magnet:?xt=urn:btih:5FC565E6B60A3F88C883AAEB08C836DE0B4AEA36
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +521,8 @@ Bernward Koch - Touched by Love (2016) [MP3|320 Kbps] <New Age, Piano>
 magnet:?xt=urn:btih:A8FD3BF7FC474F24AF7B7576733913107F0535DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +549,8 @@ The Gino Marinello Orchestra - Digital Melodies: 16 Synthesizer Melodies (1988) 
 ```bash
 magnet:?xt=urn:btih:02985FD0F2A0CC18B1C043B61CB97FA8FB7D8905
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +585,8 @@ VA - Best Of Chill Out 2012 (2012) [MP3|320 кб/с]<Chillout, Lounge, Downtempo
 magnet:?xt=urn:btih:BBE515BCE39A2800996CE3F78329533928F72AC4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +613,8 @@ VA - New Age Sensation (2017) [MP3|320 Kbps] <New Age>
 ```bash
 magnet:?xt=urn:btih:219F903BFDA40974EFFC906AE11A699A2512D860
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +646,8 @@ Karin Nobbs & Philip N'bess - Avel & Roc'h (2006) [MP3|320 кб/с]<New age, Rel
 magnet:?xt=urn:btih:0306A8AF78300E8348A2AA2589316C296E64F501
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -634,6 +678,8 @@ CD 01:
 magnet:?xt=urn:btih:B9D90D5A55B7FB94F55590B60CC11D367B6445EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -661,6 +707,8 @@ Myriam Cannas - Imana. Chants Arameens (2015) [MP3|320 кб/с]<New Age, World M
 magnet:?xt=urn:btih:9F95216BDC3CFF190A85EF39B8DDDFBB58EC3387
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +735,8 @@ Anthony Ventura And His Orchestra - 5 альбомов (1979-1993) [MP3|320 kbps
 ```bash
 magnet:?xt=urn:btih:D2CD5416FD3FB3D17EA01094EB4E84BA4EC7B06A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -720,6 +770,8 @@ WESTERN S - Хорошо там, где мы есть! (2007) [MP3|256 кб/с]<
 ```bash
 magnet:?xt=urn:btih:9F8569ADEDC68BFEDF6A751FFA9BCBA47D36B12D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

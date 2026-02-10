@@ -1,3 +1,30 @@
+###  Публикация: 618996   (968322) от 15.02.2013
+
+Андрей Земляной | Воины Сарда [2013] [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_968322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый фантастический боевик от автора бестселлера "Драконы Сарда"! Долгожданное продолжение саги о звездных воинах, бросивших вызов галактической империи.
+ Бежать из тюрьмы, откуда побег невозможен. Одолеть непобедимых киборгов-убийц. Переиграть имперские спецслужбы, не знавшие поражений уже сотни лет. Возглавить восстание, заведомо обреченное на провал. (   Читать дальше...   )Жанр: Фантастика
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:265B57A4158E35BBBA0A3582A3A8481C6BC0E932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358454   (968429) от 08.02.2020
 
 Михаил Атаманов | Игра без правил (2020) [MP3]
@@ -18,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:B55027EAD52C3D833E603BC7CB0D0BE18D4E90BE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -45,6 +74,8 @@ magnet:?xt=urn:btih:B55027EAD52C3D833E603BC7CB0D0BE18D4E90BE
 magnet:?xt=urn:btih:EC95ECB74B2154494C2DBA96B3081EE32343E3EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +99,8 @@ magnet:?xt=urn:btih:EC95ECB74B2154494C2DBA96B3081EE32343E3EF
 ```bash
 magnet:?xt=urn:btih:41F0A12303CEC0560BD432424F3A3E32D70E2F88
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +126,8 @@ magnet:?xt=urn:btih:41F0A12303CEC0560BD432424F3A3E32D70E2F88
 magnet:?xt=urn:btih:D934120D6CB5DED337BE748F489BABA20C1C9A11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +151,8 @@ magnet:?xt=urn:btih:D934120D6CB5DED337BE748F489BABA20C1C9A11
 ```bash
 magnet:?xt=urn:btih:D153D679A9A7D9125816A051DD5BB1DAD4532A4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -142,6 +179,8 @@ magnet:?xt=urn:btih:D153D679A9A7D9125816A051DD5BB1DAD4532A4C
 magnet:?xt=urn:btih:F76C610C562D6808187CCAF7D5450E640B5FD607
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -165,6 +204,8 @@ magnet:?xt=urn:btih:F76C610C562D6808187CCAF7D5450E640B5FD607
 ```bash
 magnet:?xt=urn:btih:DF165F3721F825B3A520757BA6A27DAAD6B282CF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +231,8 @@ magnet:?xt=urn:btih:DF165F3721F825B3A520757BA6A27DAAD6B282CF
 magnet:?xt=urn:btih:E68DAFCD5435EC37B63565C7E86CBD718CB86E32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +256,8 @@ magnet:?xt=urn:btih:E68DAFCD5435EC37B63565C7E86CBD718CB86E32
 ```bash
 magnet:?xt=urn:btih:E0B6ED5A5F70A785A14C2A6C1C7204DF7C9FA0D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +285,8 @@ magnet:?xt=urn:btih:E0B6ED5A5F70A785A14C2A6C1C7204DF7C9FA0D5
 magnet:?xt=urn:btih:56F306BF042E3A89E41A4F30AEE5641C1AB35C49
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +311,8 @@ magnet:?xt=urn:btih:56F306BF042E3A89E41A4F30AEE5641C1AB35C49
 magnet:?xt=urn:btih:31E7D1BEC801E2419E937B607B5E411DA55A593E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +336,8 @@ magnet:?xt=urn:btih:31E7D1BEC801E2419E937B607B5E411DA55A593E
 ```bash
 magnet:?xt=urn:btih:140442917BB403B436426A35787575ED464FD92A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -313,6 +364,8 @@ magnet:?xt=urn:btih:140442917BB403B436426A35787575ED464FD92A
 magnet:?xt=urn:btih:7D34C2D4EF367BEA5491FB829DA3B5649A2412ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +389,8 @@ magnet:?xt=urn:btih:7D34C2D4EF367BEA5491FB829DA3B5649A2412ED
 ```bash
 magnet:?xt=urn:btih:ABE666A1D6405BD575D020D2770BE337A5DD3AA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +416,8 @@ magnet:?xt=urn:btih:ABE666A1D6405BD575D020D2770BE337A5DD3AA7
 magnet:?xt=urn:btih:E6E09E415CA523DF814F5CC1C123BB4AB9230B4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +441,8 @@ magnet:?xt=urn:btih:E6E09E415CA523DF814F5CC1C123BB4AB9230B4A
 ```bash
 magnet:?xt=urn:btih:05D58DE236F780BFD25E67EAC32489648726DD6F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -409,6 +468,8 @@ magnet:?xt=urn:btih:05D58DE236F780BFD25E67EAC32489648726DD6F
 magnet:?xt=urn:btih:6E014693067D55D6DE14394D5458149744CCD9C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +493,8 @@ magnet:?xt=urn:btih:6E014693067D55D6DE14394D5458149744CCD9C3
 ```bash
 magnet:?xt=urn:btih:5B5C8D0E2EA6678C1A13BBC04ABE27F8FAB3E6DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +522,8 @@ magnet:?xt=urn:btih:5B5C8D0E2EA6678C1A13BBC04ABE27F8FAB3E6DD
 magnet:?xt=urn:btih:D4D7CBD07AF8FEC5C60EB8AC4DC48AF5BF0B834A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +550,8 @@ magnet:?xt=urn:btih:D4D7CBD07AF8FEC5C60EB8AC4DC48AF5BF0B834A
 magnet:?xt=urn:btih:6C513D65D8A3DEA251DBDCC9EAD6693FE0CA6419
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -509,6 +576,8 @@ magnet:?xt=urn:btih:6C513D65D8A3DEA251DBDCC9EAD6693FE0CA6419
 magnet:?xt=urn:btih:39E7D06F57FA4B571875F79F6E24C9603B21C354
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +601,8 @@ magnet:?xt=urn:btih:39E7D06F57FA4B571875F79F6E24C9603B21C354
 ```bash
 magnet:?xt=urn:btih:01719974AA8B9BDE358E041C4E1B1B5D4C875B1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +629,8 @@ magnet:?xt=urn:btih:01719974AA8B9BDE358E041C4E1B1B5D4C875B1B
 magnet:?xt=urn:btih:1B01979DE1458B4E06A9B41686E222CF70A19712
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +654,8 @@ magnet:?xt=urn:btih:1B01979DE1458B4E06A9B41686E222CF70A19712
 ```bash
 magnet:?xt=urn:btih:29081CDF7F53CBD12064AA50E8AD02DF9C013BE0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,29 +682,7 @@ magnet:?xt=urn:btih:29081CDF7F53CBD12064AA50E8AD02DF9C013BE0
 magnet:?xt=urn:btih:70F888D1CA1BD91D47FF7A28E34C7DA82837C4CF
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357518   (972937) от 04.02.2020
-
-Василий Кононюк | Si vis pacem parabellum (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_972937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Деятельность нашего современника, в теле молодой девушки, не осталась незамеченной для врагов молодой Советской страны. Они готовы на все, чтобы уничтожить Ольгу. А тем временем война все ближе, и дел еще так много. И в этой опасной ситуации, Ольга не отсиживается в безопасности, если волею судеб, ей предоставлена уникальная возможность помочь Родине и спасти миллионы (   Читать дальше...   )Жанр: Альтернативная историяПродолжительность: 18:05:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE73BFC2EE4093BFB6D15E713765C157B57DE026
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

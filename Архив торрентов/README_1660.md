@@ -20,6 +20,8 @@
 magnet:?xt=urn:btih:D78E7E9F6767861C9D801208CADD02C57CEC1F35
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Calibre - простая и удобная программа для управ�
 ```bash
 magnet:?xt=urn:btih:BFC080EB26913801DD7D787A5311399FBD5838F6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ Puzznic бросает вызов вашей логике, имеет прият
 ```bash
 magnet:?xt=urn:btih:2DC43AFDFD670040FDF2BA90AD15B8C9F68F6E35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -96,6 +102,8 @@ The Walking Dead: Season 2 (Episode 1) [PS3] [PSN] [ENG] [3.41/3.55/4.21/4.30+] 
 magnet:?xt=urn:btih:B05802B4960A0B2FAA9DBF10418D14C736B5ACA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ This War of Mine: Final Cut (2014) [Multi/Ru] [macOS Native game]
 magnet:?xt=urn:btih:21E163950AFFE24A7EB710DCE0659184CA412949
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -146,6 +156,8 @@ CrossOver Linux 12.2.1 [x86-x64] (deb, rpm, bin)
 ```bash
 magnet:?xt=urn:btih:5AEF7B218E614CEE2C90AEF46D82D001A4D7ABFC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -172,6 +184,8 @@ magnet:?xt=urn:btih:5AEF7B218E614CEE2C90AEF46D82D001A4D7ABFC
 magnet:?xt=urn:btih:74FAAE7FDE47DBD1730476C256DAF063F8635F81
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ CCleaner - утилита для чистки мусора в операцион
 ```bash
 magnet:?xt=urn:btih:8D99EE836F1F002B5EA86A1191B14D8507997301
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -220,6 +236,8 @@ magnet:?xt=urn:btih:8D99EE836F1F002B5EA86A1191B14D8507997301
 magnet:?xt=urn:btih:B2044810BCA335CE1768E106010F2E2BB4FF3EE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -243,6 +261,8 @@ Opera 26.0.1656.60 Stable RePack (& Portable) by D!akov [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:27D1BC655DA05F370D04967F6AB9229A9E248619
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -269,6 +289,8 @@ magnet:?xt=urn:btih:27D1BC655DA05F370D04967F6AB9229A9E248619
 magnet:?xt=urn:btih:4D3D4D3C4697C06EA852B342E6266CC5EB5FCB41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -292,6 +314,8 @@ Hetman Partition Recovery - программа восстанавливает у
 ```bash
 magnet:?xt=urn:btih:CA8D8FE4BEA942D74BC16A3677A528179D3B5FD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -317,6 +341,8 @@ Zelenhgorm: The Land of the Blue Moon. Episode 1: The Great Ship (2002) [Ru] Uno
 magnet:?xt=urn:btih:CD2ADCAD5FFCC5601491791DAF05BA1BBCF27EE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -340,6 +366,8 @@ Simple Sticky Notes — простая в понимании программа 
 ```bash
 magnet:?xt=urn:btih:208396499E6A357A8A3368608166FD2BD54D2F37
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:208396499E6A357A8A3368608166FD2BD54D2F37
 magnet:?xt=urn:btih:0577AF0A273230CFC93F0BDF2F6D0B8032BEFF1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ MassTube Plus — очень простая в использовании про
 ```bash
 magnet:?xt=urn:btih:21A9A14279445CC3DEC0F427A4F99C429AA35798
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ magnet:?xt=urn:btih:21A9A14279445CC3DEC0F427A4F99C429AA35798
 magnet:?xt=urn:btih:3DA0A6C9ACD56B6C319296C93D98951688E49179
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ Opera 91.0.4516.77 Portable by Cento8 [Ru/En]
 ```bash
 magnet:?xt=urn:btih:7561665014E60ACC6B50162874013A03B2EAFD6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +499,8 @@ Nik Complete 2 Collection by DxO 2.3.0 [Multi/Ru]
 magnet:?xt=urn:btih:556E7C4FE2E6811D8E22D4167494E2696ABB7813
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +524,8 @@ magnet:?xt=urn:btih:556E7C4FE2E6811D8E22D4167494E2696ABB7813
 ```bash
 magnet:?xt=urn:btih:2EB807D0DB30F87DE87759302D2EF1150EC1683B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +551,8 @@ Firefox Browser - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:943AA50A3F73D180C3EB84B628D9A92051CE67FC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +576,8 @@ magnet:?xt=urn:btih:943AA50A3F73D180C3EB84B628D9A92051CE67FC
 ```bash
 magnet:?xt=urn:btih:4BB8F3676200B59E2BB13225C4921226B852A716
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -560,6 +604,8 @@ LS · Касса от 16.12.2014 [Ru]
 magnet:?xt=urn:btih:343B82882F2F47A2E2EAFF464AC2DDCD8F4E61CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -583,6 +629,8 @@ magnet:?xt=urn:btih:343B82882F2F47A2E2EAFF464AC2DDCD8F4E61CC
 ```bash
 magnet:?xt=urn:btih:422B5E752667F387FA32E2BE0882CD9DDD5C02F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +656,8 @@ Hard Disk Sentinel — отличная программа для монитор
 magnet:?xt=urn:btih:03B3A8CA8F37204F5B0CAB999975563E42111A2B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +681,8 @@ MassTube Plus — очень простая в использовании про
 ```bash
 magnet:?xt=urn:btih:86F4E11B8B6266C4F48D6762FE5D42FEA6EF600E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

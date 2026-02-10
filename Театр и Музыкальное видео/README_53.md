@@ -26,6 +26,8 @@ Woodstock '99 - фестиваль, посвященный 30-той годов�
 magnet:?xt=urn:btih:DC484D16D9339A5A1AD11CEA28B85C92857A31CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -59,6 +61,8 @@ VA - Зимний марафон № 81 / Видеоклипы (Зарубежн
 magnet:?xt=urn:btih:42613784616B78EF6163B9126AE1ED120A4A50C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -86,6 +90,8 @@ Frank Beard - ударныеПродолжительность: 01:25:36
 magnet:?xt=urn:btih:8D21CCDEA5246079790CA7D9A88016CFBB876495
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -109,6 +115,8 @@ magnet:?xt=urn:btih:8D21CCDEA5246079790CA7D9A88016CFBB876495
 ```bash
 magnet:?xt=urn:btih:42BE7096A9E87A23DB5FA6F5D61D7C77E293201B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -137,6 +145,8 @@ magnet:?xt=urn:btih:42BE7096A9E87A23DB5FA6F5D61D7C77E293201B
 magnet:?xt=urn:btih:2B2256ADB42CBB70822D06D80C1571E88573B550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -160,6 +170,8 @@ VA - Зимний марафон № 147 / Видеоклипы (Русский 
 ```bash
 magnet:?xt=urn:btih:810701240159B01FCC9060009FA3C7B70C15042F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ VA - The Best Sound N 9 (2014) HDRemux [H.264,1080p]
 magnet:?xt=urn:btih:8A41E96509E4743CFF48BAA2DD4CB984B6C068B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +227,8 @@ INNA - Diggy Down feat. Marian Hill (2014) HDRemux [H.264,1080p]
 ```bash
 magnet:?xt=urn:btih:470405F663E53546E581AA14EEF0FC825BE8E524
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +258,8 @@ magnet:?xt=urn:btih:470405F663E53546E581AA14EEF0FC825BE8E524
 magnet:?xt=urn:btih:599B2171D6FCF810CCE849E7D8786FAEF641994D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +287,8 @@ VA - The Best Sound N 8 (2014) HDRemux [H.264,1080p]
 ```bash
 magnet:?xt=urn:btih:138D6FFFD991D778ECEB708FE5F0DDB7ED5FACA5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -298,6 +318,8 @@ Queen впервые во время этого тура исполняет зн
 magnet:?xt=urn:btih:60B9410C42B87481DEC03A1C8977EB50C671DDA5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -321,6 +343,8 @@ magnet:?xt=urn:btih:60B9410C42B87481DEC03A1C8977EB50C671DDA5
 ```bash
 magnet:?xt=urn:btih:B856EDA3B1EDFC9253F6C7BFD197A9445A8D0E7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +379,8 @@ Hammerfall - Gates Of Dalhalla (2012) BDRip [H.264]
 magnet:?xt=urn:btih:5ED1523C5BC7D7E15596D51CB8933DA28A9070BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -381,6 +407,8 @@ magnet:?xt=urn:btih:5ED1523C5BC7D7E15596D51CB8933DA28A9070BE
 ```bash
 magnet:?xt=urn:btih:4307E82CB16074E35ADCAF19C1457451A742B81E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +441,8 @@ Slade 1983-1987 (2009) DVDRip
 magnet:?xt=urn:btih:2F331DA4DB142CD11EB5183E2B9CE4EBEAF4A217
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +466,8 @@ magnet:?xt=urn:btih:2F331DA4DB142CD11EB5183E2B9CE4EBEAF4A217
 ```bash
 magnet:?xt=urn:btih:71D396114BF73347A7480A61E508E28F4F5AA663
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +494,8 @@ eRa - The Live Experience 2022 (2023) CamRip [H.264/1080p]
 magnet:?xt=urn:btih:A420FE6F8DC92830CC432F04B62C6874C7EE2FC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +519,8 @@ Britney Spears - Work Bitch (2013) HDTV [1080i]
 ```bash
 magnet:?xt=urn:btih:101E784689F2F7636C125E3C3C1CFAF0FACCDE9F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +553,8 @@ Steve Lukather & Edgar Winter - Live North Sea Jazz 2000 (2010) DVDRip
 magnet:?xt=urn:btih:78D9E02D9135540C49CB1A3BD9F334E047ADBDF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -543,6 +581,8 @@ magnet:?xt=urn:btih:78D9E02D9135540C49CB1A3BD9F334E047ADBDF8
 ```bash
 magnet:?xt=urn:btih:F000BFDA7A1C9A56BEA700830E5F52166A9CEFF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -571,6 +611,8 @@ magnet:?xt=urn:btih:F000BFDA7A1C9A56BEA700830E5F52166A9CEFF9
 magnet:?xt=urn:btih:A9960B186153F2DE8167091297CEFF4322F5F808
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -594,6 +636,8 @@ Rihanna - What Now  (2013) HDTV [1080i]
 ```bash
 magnet:?xt=urn:btih:B821F1668BCFE7D3AA51A27D636EA2A0C975AC7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -619,6 +663,8 @@ magnet:?xt=urn:btih:B821F1668BCFE7D3AA51A27D636EA2A0C975AC7F
 ```bash
 magnet:?xt=urn:btih:64BFB1A0264D1855B23D334AD6FA0894F6A9B211
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +694,8 @@ magnet:?xt=urn:btih:64BFB1A0264D1855B23D334AD6FA0894F6A9B211
 magnet:?xt=urn:btih:F56F6992113B7031547898A46E8565A9DEEE417C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -675,6 +723,8 @@ Anacondaz - 18 клипов+4 видеопрезентации (2012-2015) WEBRi
 magnet:?xt=urn:btih:F7518212777648772B76304668770265593A4A0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -701,6 +751,8 @@ magnet:?xt=urn:btih:F7518212777648772B76304668770265593A4A0E
 ```bash
 magnet:?xt=urn:btih:B3D28E32634DCCB2A4899008A01F8C994B5BCEE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

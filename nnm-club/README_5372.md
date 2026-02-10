@@ -22,6 +22,8 @@ Moderator - The Mosaics (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumen
 magnet:?xt=urn:btih:B4E0D97876D128A6B7B8692592DD3E4112A75BE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Room Arranger - программа специально предназначен
 ```bash
 magnet:?xt=urn:btih:07144151CACD034F5EDC883CC328CC99D6850607
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:07144151CACD034F5EDC883CC328CC99D6850607
 ```bash
 magnet:?xt=urn:btih:687005CB3D61E1E4789E1149286B0045C009903A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -98,6 +104,8 @@ VA - Black Hole Trance Music 12-22 (2022) [MP3|320 Kbps] <Uplifting Trance>
 magnet:?xt=urn:btih:3882880078EBBF670F2F10625D1610BF5B35BD02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ Ice Nine Kills - Welcome To Horrorwood: The Silver Scream 2 (2021) Orchestral Ve
 magnet:?xt=urn:btih:94B3132B01F181B3FA59E88A80044E89DB8D3F74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -149,6 +159,8 @@ magnet:?xt=urn:btih:94B3132B01F181B3FA59E88A80044E89DB8D3F74
 magnet:?xt=urn:btih:736BA9B2D865197D2B8D46B43B7C00C2E043CC93
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -172,6 +184,8 @@ Christmas Wonderland 11 (2020) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:693FD5C0CDDBF6157BCDCE34BF69DDD415842F70
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ VA - Funky Just Away Dance (2022) [MP3|320 Kbps] <Chicago House, Soulful, Indie 
 magnet:?xt=urn:btih:7C19534A6609DA8D1D5B91B741C012CF1A1EBDD2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ VA - Music News vol.311 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 magnet:?xt=urn:btih:3D2696BD817DD46D0643BCA2381408F594AC6626
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -250,6 +268,8 @@ magnet:?xt=urn:btih:3D2696BD817DD46D0643BCA2381408F594AC6626
 ```bash
 magnet:?xt=urn:btih:22C74B7B999585D556D34398E4CC0D2184185755
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -278,6 +298,8 @@ VA - Best Of Dance 2019 - The Radio Collection (2019) [MP3|320 Kbps] <Deep House
 magnet:?xt=urn:btih:E7285D4D06D82C4F3B05C1CF8023EA99E998E626
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -304,6 +326,8 @@ Opera GX - это специальная версия браузера Opera, с
 magnet:?xt=urn:btih:A4DDA243B4BB4E656BE6A141137D725302142E6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -327,6 +351,8 @@ Fontexpert - полнофункциональная программа для п
 ```bash
 magnet:?xt=urn:btih:C0125A0405A8A589E4516C96AEAAB288182F49CE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -352,6 +378,8 @@ magnet:?xt=urn:btih:C0125A0405A8A589E4516C96AEAAB288182F49CE
 magnet:?xt=urn:btih:360FB8621F305AA8BEF110149810B108B4690AF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -375,6 +403,8 @@ Cyberlink PhotoDirector Ultra — многофункциональный ред�
 ```bash
 magnet:?xt=urn:btih:2517938E6B1CF0C4DD791339E63991894846AAA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +433,8 @@ VA - Чёрный тюльпан 6 (2005) [FLAC|Lossless|tracks + .cue]<Шанс
 magnet:?xt=urn:btih:75EDC6AD09DEEFF330E12E70C0E4809A0082DF88
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ Daniel Deluxe - Ghostrunner (2020) Original Soundtrack [FLAC|Lossless|WEB-DL|tra
 magnet:?xt=urn:btih:BD20C6D1E3267B8C4B63123A924975FCA7FCE4CB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +487,8 @@ magnet:?xt=urn:btih:BD20C6D1E3267B8C4B63123A924975FCA7FCE4CB
 ```bash
 magnet:?xt=urn:btih:92D68BBBCD815F6AF5F0EC9D1B9678EC1A8F5A31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +514,8 @@ magnet:?xt=urn:btih:92D68BBBCD815F6AF5F0EC9D1B9678EC1A8F5A31
 magnet:?xt=urn:btih:6C02F30028AD8E8E8B265A2752E04EDBC7F74249
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ magnet:?xt=urn:btih:6C02F30028AD8E8E8B265A2752E04EDBC7F74249
 magnet:?xt=urn:btih:6FBB1167B0F253D18766E29CFE88FBAD23D3052C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ magnet:?xt=urn:btih:6FBB1167B0F253D18766E29CFE88FBAD23D3052C
 ```bash
 magnet:?xt=urn:btih:B0F392081B28D74B4D43C432D5ED48A598AE6B09
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -553,6 +595,8 @@ VA - Abora Recordings: Best Of 2021 (Mixed By Ori Uplift) (incl. Extended Mixes)
 magnet:?xt=urn:btih:17CEF988E09DEC3FAEBDC78EA0AB9EE021D80FDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +620,8 @@ magnet:?xt=urn:btih:17CEF988E09DEC3FAEBDC78EA0AB9EE021D80FDD
 ```bash
 magnet:?xt=urn:btih:748D85B8818C0F44693B822320E63C59F46839AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -601,6 +647,8 @@ Topaz Video AI – это совершенное новое решение дл�
 magnet:?xt=urn:btih:1AB024475B75C00D8E294A1AAD0A048D04CB273C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +673,8 @@ magnet:?xt=urn:btih:1AB024475B75C00D8E294A1AAD0A048D04CB273C
 magnet:?xt=urn:btih:AAE4317674B0B6AE00537C757A253E9D9703E991
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -648,6 +698,8 @@ GoodSync - программа из серии высоконадежного, у
 ```bash
 magnet:?xt=urn:btih:0298C1DE0E142DD862476A4F96948ACEBE30DAAA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

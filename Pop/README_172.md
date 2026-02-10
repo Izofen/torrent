@@ -1,3 +1,148 @@
+###  Публикация: 1568854   (457620) от 10.08.2022
+
+Божья Коровка - Гранитный Камешек (1995) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гранитный камешек
+02. В каком неведомом краю
+03. Я верю (Исповедь)
+04. Четыре буквы(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B875A44A5E027F285EE94B5966A399F203931431
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568751   (457773) от 10.08.2022
+
+Bad Boys Blue - Love Is No Crime (1987) [OGG|485 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Come Back And Stay (7:37)
+02.If You Call On Me (3:33)
+03.Victim Of Your Love (4:31)
+04.Love Is No Crime (3:37)(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01C11889C3348E266AB0C9C7E74CACF995413BAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568775   (457779) от 10.08.2022
+
+Various - The Best Of Italo-Disco Vol. 10 (1988) [OGG|485 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scotch – Man To Man 5:14
+02. Linda Jo Rizzo – Perfect Love 6:08
+03. Chester – Hold The Line 5:45
+04. Chip Chip – So Close To Heaven 7:30(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60FC63988F84E6DA7EE83915F8545BBFBADF2708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568782   (457785) от 10.08.2022
+
+Blue System - Walking On A Rainbow (1987) [OGG|485 Kbps] <Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gangster Love (Maxi Version) 4:24
+02. Sorry Little Sarah (Maxi Version) 5:12
+03. She's A Lady (Maxi Version) 4:59
+04. Voodoo Nights 3:23(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B63108D8B8F2A3225882BA67894F104383ED82FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568799   (457791) от 10.08.2022
+
+VA - The Best Of Italo-Disco Vol. 9 (1987) [OGG|485 Kbps] <Italo-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_457791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spagna – Call Me (6:05)
+02. Interface – Plastic Age (6:44)
+03. Eddy Huntington – Meet My Friend (6:08)
+04. Morgana – Ready For Love (7:30)(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:38:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D072FE13E38C978C38589294D051736864FA8A89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568684   (457800) от 10.08.2022
 
 Bad Boys Blue - The Fifth (1989) [OGG|485 Kbps] <Disco>
@@ -21,6 +166,8 @@ Bad Boys Blue - The Fifth (1989) [OGG|485 Kbps] <Disco>
 ```bash
 magnet:?xt=urn:btih:5D694A21866E0D048ED927B7FF6822E472B30B7E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -49,6 +196,8 @@ Fancy - Contact (1986) [OGG|485 Kbps] <Disco>
 magnet:?xt=urn:btih:6B24AFFB894F97F9D78EC4821CD251836B4125CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -75,6 +224,8 @@ VA - NOW That's What I Call Music! Vol. 83 (2022) [MP3|320 Kbps] <Hip Hop, Rock,
 ```bash
 magnet:?xt=urn:btih:49858AE5CD3B0BB9342363F71E549E5F20447E84
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -103,6 +254,8 @@ Taylor Swift - Lover (2019) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:236B1FB0165DEFA232A069459D0CA6BD3966BE25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -130,6 +283,8 @@ Liz Mitchell (ex. Boney M) - No One Will Force You (1988) Reissue, ESonCD, 2008 
 magnet:?xt=urn:btih:BE78D02F06D05DF75139252F36D52975D8247C53
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -154,6 +309,8 @@ Mylene Farmer (Mylène Farmer) - N'Oublie Pas (2018) Single [APE|Lossless|image 
 ```bash
 magnet:?xt=urn:btih:43330FB1994F601EBDD20B3DFCA5A53552551066
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +338,8 @@ VA - The Best Of TVI Records - Dance The Night Away (1995) CD [MP3|320 Kbps] <Fu
 ```bash
 magnet:?xt=urn:btih:F5817210B266A445266302D1F048F71EC92BC667
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +374,8 @@ magnet:?xt=urn:btih:F5817210B266A445266302D1F048F71EC92BC667
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -248,6 +409,8 @@ Boney M - Boney M - Original Version • Long Version • Rarities [4CD BOX] (20
 magnet:?xt=urn:btih:42D5ADB080E43E1115C809EC1945F52A352CD187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -274,6 +437,8 @@ Joe Dassin - Chante l'amour (1992) [FLAC|Lossless|tracks + .cue] <Pop>
 ```bash
 magnet:?xt=urn:btih:43266923F292FD065A7B34DDB8649760206FD838
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +467,8 @@ Herman's Rocket - Space Woman (1977) Reissue LP (2009) [MP3|320 Kbps] <Electroni
 magnet:?xt=urn:btih:9C07A5403A0C713BA015E388C699907E9353615B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -328,6 +495,8 @@ Pure Orchestra  - Singin' Dog (2002) [FLAC|Lossless|tracks + .cue] <Europop>
 ```bash
 magnet:?xt=urn:btih:C2FA30F69A6E8AF0112EEC428B9551FF2DB7AB01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +525,8 @@ Maroon 5 - Singles (2015) [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:082468ED81F5BEC424C31EA3C863D6160C8EF933
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +553,8 @@ Bad Boys Blue - House Of Silence (1991) [OGG|485 Kbps] <Disco>
 ```bash
 magnet:?xt=urn:btih:6FDD021B5F5AB65E7106DD3A9482F0729A12D2A8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -410,6 +583,8 @@ VA - I Just Called - Pop Sensations (2022) [MP3|320 Kbps] <Pop>
 magnet:?xt=urn:btih:5D2D97319AA32D16A553096E77E1EDB466447ADE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +612,8 @@ VA - Best Radio Tracks, Vol. 20 (2020) [MP3|320 Kbps] <Dance, Pop, Electronic>
 magnet:?xt=urn:btih:3E6764E7EFB758DA5FC1A5912F5252744A84023A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -460,6 +637,8 @@ CD1Жанр: Pop/ElectronicФормат: 2 × CD, Compilation, MixedПродол
 ```bash
 magnet:?xt=urn:btih:0203476E2C6528754DD0466C67477A8D07D34B91
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -488,6 +667,8 @@ Taylor Swift - Lover (2019) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Pop>
 magnet:?xt=urn:btih:5C90382519F2C3651E5D9AEC5B9A16010A19CD92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -514,6 +695,8 @@ Isadora Juice - 2 Albums (1981, 1983) LP [MP3|320 Kbps] <Electronic, Disco, Synt
 ```bash
 magnet:?xt=urn:btih:A77982679424160AED35157DF346EC17E91CEABD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -542,6 +725,8 @@ Bad Boys Blue - Super 20 (1989) [FLAC|Lossless|tracks + .cue] <Synth-pop, Disco>
 magnet:?xt=urn:btih:961B2E0184CB203A679DB70735910718986548D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -569,140 +754,7 @@ CD1:
 magnet:?xt=urn:btih:AE5D7F1656C38147FF98BEA8E64807674394937F
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246562   (461324) от 11.09.2018
-
-VA - ZYX Italo Disco New Generation Vol. 13 (2018) 2CD, Compilation [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stockholm Nightlife feat. Nathalie Hanberg - Stay One Day (Cliff Wedge Special ZYX Remix 2018) (6:08)
-02. Carino Cat - Balabina (7:38)
-03. Italoconnection - Neon Disco (Flemming Dalum Remix) (6:50)
-04. Lian Ross & Mode-One - I Still Love You (Extended Version) (5:38)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 02:23:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F89F5AC5F3490475B3FB01A253FD6CBF1B4034E
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246693   (461484) от 11.09.2018
-
-VA - Хочите танцев? (Got dance?) (2004) [FLAC|Lossless|tracks + .cue] <Euro house, italodance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orlando - Seasons In The Sun (Factory Dance Remix) (4:16)
-02. The Flippers - Hootchie Cootchie (Extended Version) (5:04)
-03. Blockhouse - Disco Hit (Blockhouse Mix) (4:44)
-04. Killer Shadows - Don't You Want Me Baby (Hard Version) (5:25)(   Читать дальше...   )Жанр: Euro house, italodanceПродолжительность: 01:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD0CBDB05DE45F79C7EEA1AAA46323D4263C1036
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246558   (461559) от 11.09.2018
-
-VA - Abbamania (1999) Compilation [MP3|320 Kbps] <Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madness - Money Money Money (3:23)
-02. Steps - Lay All Your Love On Me (4:27)
-03. Westlife - I Have A Dream (4:17)
-04. Stephen Gately - Chiquitita (5:31)(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:49:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751AFFE83654BC4E5B7F10DEA2D0BFE8CBF27EA1
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059464   (461717) от 04.10.2016
-
-VA - Серебряный диск 2 (1995) [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Алёна Апина - Семечек стакан
-02. Любовь Успенская - Хрустальная стена
-03. Игорь Саруханов - Сима
-04. Наталья Ветлицкая - Раба любви(   Читать дальше...   )Жанр: PopПродолжительность: 00:58:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA62E42CD27D59D22C6E6D4079E873AD88637838
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059286   (461720) от 04.10.2016
-
-Supermax - Love Machine (1996) [FLAC|Lossless|image + .cue] <Electronic, Funk/Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_461720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Machine (4:32)
-02. Musicexpress (3:42)
-03. Be What You Are (2:56)
-04. Dance Dance Dance (3:45)(   Читать дальше...   )Жанр: Electronic, Funk/SoulПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD99B57541FF230462835E1D4BF81BF0CF537FF0
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

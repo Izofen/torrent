@@ -22,6 +22,8 @@ Misfits - Compilation (1979-2016) [MP3|320 Kbps] <Punk rock,  Horror punk>
 magnet:?xt=urn:btih:723C2CB16ECB79F71524DE68FEA7C0D665C913E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ Sin City - Compilation (2025) [MP3|320 Kbps] <Hard Rock>
 ```bash
 magnet:?xt=urn:btih:C51D92140272BCA970A1C464E6D86E607D13F81A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Gamma Ray - Compilation (1990-2021) [MP3|320 Kbps] <Power metal, Speed metal>
 magnet:?xt=urn:btih:9AF64DDF977F333648B0553D73782EAA781159AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -103,6 +109,8 @@ VA - Rock Metaphysical Melodies (2025) [MP3|320 Kbps] <Metal, Hard-Rock, Progres
 magnet:?xt=urn:btih:B9BA31E434763E276023E9999D3322D24F79CC19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -129,6 +137,8 @@ blur - Compilation (1991-2023) [MP3|320 Kbps] <Britpop, Indie rock, Art rock>
 ```bash
 magnet:?xt=urn:btih:552EE29458DB64138C08C06DC1BA35A55007D6A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +173,8 @@ magnet:?xt=urn:btih:552EE29458DB64138C08C06DC1BA35A55007D6A0
 magnet:?xt=urn:btih:3B21DF438DE18223277DAB50794112636DD87138
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -196,6 +208,8 @@ VA - Лучшие тяжёлые русскоязычные баллады (1983
 magnet:?xt=urn:btih:E9FBCA4B8477011DB2E40B03C41CF98A0B0DCC1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -222,6 +236,8 @@ Ronnie Romero - Voice Of Rock - Compilation (2012-2025) [MP3|320 Kbps] <Hard roc
 ```bash
 magnet:?xt=urn:btih:7BB18F9748D72228D3C856B875B0EF69AA962404
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -250,6 +266,8 @@ VA - SAW 2 ((2005-2024)) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressiv
 magnet:?xt=urn:btih:E4DD8DE945A6E655774CC58AAF79BEA3F0BE00C1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +295,8 @@ VA - SAW 5 (2005-2024) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive 
 magnet:?xt=urn:btih:AB07E215FFE296D411F56AF62584D86FDAB4A809
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -303,6 +323,8 @@ VA - SAW 3 (2005-2024) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Progressive 
 ```bash
 magnet:?xt=urn:btih:D8C0C72A910EFFED13A04136156FDED669A43A53
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +359,8 @@ magnet:?xt=urn:btih:D8C0C72A910EFFED13A04136156FDED669A43A53
 magnet:?xt=urn:btih:D76AA934B949AF3BEBEF74486604767C97EF5576
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +387,8 @@ Arctic Monkeys - Compilation (2005-2022) [MP3|320 Kbps] <Indie rock, Post punk, 
 ```bash
 magnet:?xt=urn:btih:C0DE5C1AC386D4A2B36EAEB54BE54ABC81A0ECB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -391,6 +417,8 @@ David Eugene Edwards - Best (as Part of 16 Horsepower, Wovenhand) (1995-2012) Co
 magnet:?xt=urn:btih:DE3B6EBCAB312FF85C62C2CF499792E4C90D9A13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -417,6 +445,8 @@ Haylen - Compilation (2024) [MP3|320 Kbps] <Rock, Pop Rock>
 ```bash
 magnet:?xt=urn:btih:AD9B4D96DCD6B3858B1A437BACE00DF51E08F005
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -445,6 +475,8 @@ VA - Hippie vibes Make Love... (2024) [MP3|320 Kbps] <Pop, Rock, Blues>
 magnet:?xt=urn:btih:B3EAAEFBC64B40A564930CFE6D43001471D9FEE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -468,6 +500,8 @@ magnet:?xt=urn:btih:B3EAAEFBC64B40A564930CFE6D43001471D9FEE6
 ```bash
 magnet:?xt=urn:btih:F62A90AA4EF2C07928D558A8581CE0D353FD9D18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -496,6 +530,8 @@ Blues Saraceno - Compilation (2024) [MP3|320 Kbps] <Rock>
 magnet:?xt=urn:btih:02CF29C927D4A48D0C5F7ABE20A0C476000505CC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +558,8 @@ Jeff McMillan - Compilation (2024) [MP3|320 Kbps] <Rock, Blues Rock, Soul>
 ```bash
 magnet:?xt=urn:btih:A2EE62BE508A4DE34598D4348DC301DB48FD5A4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +588,8 @@ VA - Redemption (2024) [MP3|320 Kbps] <Metal, Death, Black>
 magnet:?xt=urn:btih:5AFD61300362208B400EE2F355A261D504FD243F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -576,6 +616,8 @@ Robert Plant - Voice Of Rock - Compilation (1967-2025) [MP3|320 Kbps] <Blues roc
 ```bash
 magnet:?xt=urn:btih:32B333B74802FC57437EFA302A1B53AAFCD519A5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -604,6 +646,8 @@ VA - The Metal Griffin (2024) [MP3|320 Kbps] <Metal, Hard, Rock>
 magnet:?xt=urn:btih:A980B273C7D5E475767EF5B022FAE6A4E3FBF644
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +674,8 @@ VA - Best Rock Ballads 60-90s (2024) [MP3|320 Kbps] <Rock, Hard Rock, Ballad>
 ```bash
 magnet:?xt=urn:btih:F9B180F3E1487D6C33DDE3D9AEA15C39E90090EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +704,8 @@ Extreme - одна из любимых команд. Винил альбома 
 magnet:?xt=urn:btih:1C780DD2CBE691B7430BC1A9A96D5031D4580F9B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -685,6 +733,8 @@ VA - The Metal Pandemic (2024) [MP3|320 Kbps] <Metal, Death, Black>
 magnet:?xt=urn:btih:23DBA5F679A25F76E4B5848312E45F3659FEA319
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -711,6 +761,8 @@ VA - It's Prog Rock (2024) [MP3|320 Kbps] <Progresive Rock>
 ```bash
 magnet:?xt=urn:btih:E1C24AE8CB77545DBD64C7DB692C8D18BEAF6A03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

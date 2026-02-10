@@ -1,3 +1,29 @@
+###  Публикация: 1364679   (934660) от 04.03.2020
+
+Терри Пратчетт | Роковая музыка (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_934660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что делать, если ты юная девушка 16-ти лет и узнаешь, что твой дедушка - сам Смерть? И что он пропал, а тебе как ближайшему родственнику передают его обязанности? А в памяти всплывают воспоминания о том, чего казалось бы не было.... Съюзен Сто Гелетская это прочувствует в полной мере по ходу повествования этой истории. А ещё эта книга о сексе, наркотиках и музыке (   Читать дальше...   )Жанр: Юмористическое фентезиПродолжительность: 13:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86655CCC9E7BE2C10F45DC1412D0871F1742C564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364816   (934882) от 04.03.2020
 
 Маргарет Роджерсон | Магия ворона (2019) [MP3]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:3BC7E109115C408E00C14F73DC904C43ECC7901E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:3BC7E109115C408E00C14F73DC904C43ECC7901E
 magnet:?xt=urn:btih:F9BF7AE60F73DDF18076672A95E4A5B1FEA76F77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ magnet:?xt=urn:btih:F9BF7AE60F73DDF18076672A95E4A5B1FEA76F77
 ```bash
 magnet:?xt=urn:btih:6A5FB92A124761590E5DDD9114FB7EEB67C84B54
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:6A5FB92A124761590E5DDD9114FB7EEB67C84B54
 magnet:?xt=urn:btih:E9C0E1772B98CB5D258CE97201DB1D3E0B9C6776
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:E9C0E1772B98CB5D258CE97201DB1D3E0B9C6776
 ```bash
 magnet:?xt=urn:btih:B83CB61AB8A45A3D61E3F4B0EF676923141A3BB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:B83CB61AB8A45A3D61E3F4B0EF676923141A3BB8
 magnet:?xt=urn:btih:AB4D99BB1050EC7319BDE5C1CA4EBE61BC0E8E32
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:AB4D99BB1050EC7319BDE5C1CA4EBE61BC0E8E32
 ```bash
 magnet:?xt=urn:btih:2ED413BBD174E6EF1F74B58C1E387A4477CBB244
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:2ED413BBD174E6EF1F74B58C1E387A4477CBB244
 magnet:?xt=urn:btih:0BEBCE583093AB0D2A60D533B89AFEA758ACE57D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:0BEBCE583093AB0D2A60D533B89AFEA758ACE57D
 ```bash
 magnet:?xt=urn:btih:A38B6A99DC9C1F74465719019A27BD83D4EEDFA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:A38B6A99DC9C1F74465719019A27BD83D4EEDFA2
 magnet:?xt=urn:btih:594D4D875625493B2DAC7F06C959459AB968E7E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ magnet:?xt=urn:btih:594D4D875625493B2DAC7F06C959459AB968E7E1
 ```bash
 magnet:?xt=urn:btih:BBE3EEE1F40781156AA59527F376CFD2E013A4ED
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:BBE3EEE1F40781156AA59527F376CFD2E013A4ED
 magnet:?xt=urn:btih:100811058A2F65E8E19A296CA455C188DE28FCD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +359,8 @@ magnet:?xt=urn:btih:100811058A2F65E8E19A296CA455C188DE28FCD5
 ```bash
 magnet:?xt=urn:btih:DC7211B5D21A1F7038BCA3A46890AC5404C958F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:DC7211B5D21A1F7038BCA3A46890AC5404C958F7
 magnet:?xt=urn:btih:7DCFD997167736A8E0BFC0C9185F7B934BC433C4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:7DCFD997167736A8E0BFC0C9185F7B934BC433C4
 ```bash
 magnet:?xt=urn:btih:1DDB27694FAFB1F13556E4F2BD650DB24464BD58
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -384,6 +440,8 @@ magnet:?xt=urn:btih:1DDB27694FAFB1F13556E4F2BD650DB24464BD58
 magnet:?xt=urn:btih:F9725DC61EE7BA1371CC045E563C83E78DDEEE02
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:F9725DC61EE7BA1371CC045E563C83E78DDEEE02
 ```bash
 magnet:?xt=urn:btih:EC716D786C3D77C41CAACDF3E439BD60F2A76F7C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -432,6 +492,8 @@ magnet:?xt=urn:btih:EC716D786C3D77C41CAACDF3E439BD60F2A76F7C
 magnet:?xt=urn:btih:17B6756E159FA14033B311AAE24D3F4234D965B0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +518,8 @@ magnet:?xt=urn:btih:17B6756E159FA14033B311AAE24D3F4234D965B0
 magnet:?xt=urn:btih:B7C421A224AE8DC12ADAD35CF0F8A9640A846D0C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +543,8 @@ magnet:?xt=urn:btih:B7C421A224AE8DC12ADAD35CF0F8A9640A846D0C
 ```bash
 magnet:?xt=urn:btih:E011A7713C68070C055C7EBE4B33D4AC0D912042
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -505,6 +571,8 @@ magnet:?xt=urn:btih:E011A7713C68070C055C7EBE4B33D4AC0D912042
 magnet:?xt=urn:btih:3AE7E6F10A57A4BD8B208A9504727DC4BC754609
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -529,6 +597,8 @@ magnet:?xt=urn:btih:3AE7E6F10A57A4BD8B208A9504727DC4BC754609
 magnet:?xt=urn:btih:B4D2E67D8F8DF4FA1549191D5AD92D8927236C76
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:B4D2E67D8F8DF4FA1549191D5AD92D8927236C76
 ```bash
 magnet:?xt=urn:btih:CE888170FC93B780B43A4A22A5769DEF2E921CA1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -578,6 +650,8 @@ magnet:?xt=urn:btih:CE888170FC93B780B43A4A22A5769DEF2E921CA1
 magnet:?xt=urn:btih:13329DEE272FAD347C9899810DEEB1CE2173429F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -602,29 +676,7 @@ magnet:?xt=urn:btih:13329DEE272FAD347C9899810DEEB1CE2173429F
 magnet:?xt=urn:btih:A703E134A306E25AE6BD0FED57B73C0BA0D20B1B
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364048   (937723) от 02.03.2020
-
-Айзек Азимов и др. | Литературный аудиопроект «Глубина» (выпуск 25) (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_937723.jpg" />
-</div>
-
-
-###  Подробнее
-
-ГЛУБИНА - это литературный аудиопроект творческого объединения независимых чтецов, любящих и умеющих делать своё дело – рассказывать увлекательные истории. Если вы готовы погрузиться ниже ватер-линии обыденной реальности в чарующий океан захватывающей прозы, то нам с вами по пути!Жанр: ФантастикаПродолжительность: 05:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B43EAD9D7ED0ECDC270B56F21D45687CC87AA87A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

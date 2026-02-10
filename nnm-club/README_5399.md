@@ -19,6 +19,8 @@ Macrorit Partition Extender - утилита, доступная также в �
 magnet:?xt=urn:btih:301C829091902057EE1269BF76804593B84548E2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:301C829091902057EE1269BF76804593B84548E2
 magnet:?xt=urn:btih:2DDF5A53DC09C9174403887669008AAF15ED8044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ Faraday Protocol (2021) [Ru/Multi] (1.0.2) License GOG
 ```bash
 magnet:?xt=urn:btih:7943967A00D1155E4F6912C4D0F62EB5B55C5AAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:7943967A00D1155E4F6912C4D0F62EB5B55C5AAD
 magnet:?xt=urn:btih:EB845494C35FF8A6DF51591C631035785809D59E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:EB845494C35FF8A6DF51591C631035785809D59E
 magnet:?xt=urn:btih:53F9D9E3AF4CA2EE93027E796869F70BE5338D2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +151,8 @@ Textify — это крошечная утилита, позволяющая с�
 magnet:?xt=urn:btih:5236A3A625F548EE9A2AFD498809607A48019B2E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +176,8 @@ magnet:?xt=urn:btih:5236A3A625F548EE9A2AFD498809607A48019B2E
 ```bash
 magnet:?xt=urn:btih:B46946BD632154F5774373AEBFC5701DB20552EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +206,8 @@ Inhalo - Sever (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
 magnet:?xt=urn:btih:9ED4744F6B4B4883011B703665C797D359EE0DC7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +231,8 @@ magnet:?xt=urn:btih:9ED4744F6B4B4883011B703665C797D359EE0DC7
 ```bash
 magnet:?xt=urn:btih:765DA8DCC88516027E7741B3CE5BB2B079DC115C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Agathodaimon - Serpent's Embrace (2004) + обои, фото, фото гале�
 magnet:?xt=urn:btih:B45C0DD90D91ABEB36C46710B2469072F36ADC73
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:B45C0DD90D91ABEB36C46710B2469072F36ADC73
 ```bash
 magnet:?xt=urn:btih:6DC38B7F37F77951E1441365409C8EB4BB133BBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:6DC38B7F37F77951E1441365409C8EB4BB133BBF
 magnet:?xt=urn:btih:E8FAF7D7DCF227FE6BCA64254EF86A32A12FF9CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:E8FAF7D7DCF227FE6BCA64254EF86A32A12FF9CE
 ```bash
 magnet:?xt=urn:btih:95A5CA954500A81B75F79ADB74266965647A4104
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:95A5CA954500A81B75F79ADB74266965647A4104
 magnet:?xt=urn:btih:2FAA48F49A7A80F43DD0C130D5B3143FE9590672
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ magnet:?xt=urn:btih:2FAA48F49A7A80F43DD0C130D5B3143FE9590672
 ```bash
 magnet:?xt=urn:btih:2966DE9A472FB23321B524281D9B4EEB0221D4A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и и
 magnet:?xt=urn:btih:44D576741D4D2046520CBC9CE7D79AA1BB4BFA21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ Berk & The Virtual Band - Jazz Chill / Jazz Chill Vol.2 (2006, 2007) [APE, FLAC|
 ```bash
 magnet:?xt=urn:btih:891127DCDD6FB72388398BDC90FDD91B2F29BAFD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -438,6 +472,8 @@ Andrea Bocelli - A Family Christmas (2022) [FLAC|96/24|Lossless|WEB-DL|tracks] <
 magnet:?xt=urn:btih:8E305D9952A5204A603BA3D297129F7E75FDF65D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ CleanMyMac сканирует каждый уголок вашей систем�
 magnet:?xt=urn:btih:C2BCDA5B964D15AEDAD86E8E9F06345DB17477D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -488,6 +526,8 @@ magnet:?xt=urn:btih:C2BCDA5B964D15AEDAD86E8E9F06345DB17477D9
 ```bash
 magnet:?xt=urn:btih:F7A806F9DCFE1C68E94EB41890B97FFCB47FBB61
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -515,6 +555,8 @@ magnet:?xt=urn:btih:F7A806F9DCFE1C68E94EB41890B97FFCB47FBB61
 magnet:?xt=urn:btih:F71CA65FE103F6C7FD3CE8E0B6479ED2ED8ED187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +581,8 @@ magnet:?xt=urn:btih:F71CA65FE103F6C7FD3CE8E0B6479ED2ED8ED187
 ```bash
 magnet:?xt=urn:btih:EF67AC1DE735FF47847356D8655BAF5649CD3E19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -566,6 +610,8 @@ OBS Студия - бесплатное программное обеспече�
 magnet:?xt=urn:btih:1FD5F8EE76312F30BA5B6FC885C8E622D6C5BA7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -589,6 +635,8 @@ Opera 94.0.4606.26 + Portable [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:63A682CD4C0FB5A5136B397D25E0FCF5DDDD8330
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +663,8 @@ magnet:?xt=urn:btih:63A682CD4C0FB5A5136B397D25E0FCF5DDDD8330
 magnet:?xt=urn:btih:71FE51EA8A738784F7B5C513FC83DFEB1EAAD3C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -638,6 +688,8 @@ magnet:?xt=urn:btih:71FE51EA8A738784F7B5C513FC83DFEB1EAAD3C8
 ```bash
 magnet:?xt=urn:btih:D755352648EEDA28790C5CF481537C56CED4480D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

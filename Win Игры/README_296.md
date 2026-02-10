@@ -19,6 +19,8 @@ The Valiant (2022) [Ru/Multi] (1.5c) License GOG
 magnet:?xt=urn:btih:E3AC56B805E6485C529650BB7FE61A4C622E77A1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Kujlevka / Кужлевка (2023) [Ru/En] (20230620) Scene Tenoke
 ```bash
 magnet:?xt=urn:btih:EBD12F8E5FC98C1C84ED334ADBE3BA254B895090
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Homeseek перенесет вас в мир, где ценности уже н�
 magnet:?xt=urn:btih:EA12110FAD912360EF732FE6B157A803619C440C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ A Plague Tale: Requiem (2022) [Ru/Multi] (1.6.0.0/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:AB6E12AE29E1122ADB0CBFFEAFEB402B0166FBEC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ God of War – новый взгляд на популярную серию, г�
 magnet:?xt=urn:btih:FDFDBA4498DA3280836B70EAA3B685E0440AFC3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ GYLT (2023) [Ru/Multi] (1.1.1.5) Repack Other s
 ```bash
 magnet:?xt=urn:btih:880222474DE57AD3E208F0E557EBCF4D33D5C6EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +175,8 @@ Warhammer 40,000: Dawn of War II (2010-2011) [Ru/En] (2.6.0.62/3.19.1.49/dlc) Li
 magnet:?xt=urn:btih:2DA60623764CB1C6014D4009CE52950DECE95E6E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -186,6 +200,8 @@ Redout: Space Assault (2021) [Ru/Multi] (1.1.0) License GOG [Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:8E6959A73897F31412CDB2612E0E97DF764E9F57
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -211,6 +227,8 @@ Airborne Kingdom (2022) [Multi] (1.10.3) License GOG
 magnet:?xt=urn:btih:258ECE59FCFB63586D97C56F8E370BE0E3F8BB7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -234,6 +252,8 @@ RiME (2017) [Ru/En] (1.04) Repack xatab
 ```bash
 magnet:?xt=urn:btih:B7EB8D2FC080FA12F5AAC371C2E1F1C9F5CAD12A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +279,8 @@ A Total War Saga Thrones of Britannia – самостоятельная нез�
 magnet:?xt=urn:btih:5D0B2A850C3B219D8C0FB377B2F66E3427BAC4BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +304,8 @@ Necrosmith (2022) [Ru/Multi] (1.3.0.285) License GOG
 ```bash
 magnet:?xt=urn:btih:8308296F56F0B65C0A7B10758739C5BB6C7E3D31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +331,8 @@ Thymesia - это жестокий и динамичный ролевой экш
 magnet:?xt=urn:btih:E5B561C1E599F8DA0E99A624A3A47C7C121EDD13
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +356,8 @@ Moonscars (2022) [Multi] (1.6.009) License GOG
 ```bash
 magnet:?xt=urn:btih:87D0128D596233257103ADFF078A20661ED44361
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -355,6 +383,8 @@ The Bookwalker - увлекательное приключение, где вы 
 magnet:?xt=urn:btih:E3068FFC1868BEF2DCB9F28A99EFC25AAD414441
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +408,8 @@ Dave the Diver - это казуальная приключенческая RPG 
 ```bash
 magnet:?xt=urn:btih:F5DEB4EBDCDB6ED76BE3033F274D654CFEB99487
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -403,6 +435,8 @@ The Simulacrum погружает игроков в увлекательный �
 magnet:?xt=urn:btih:BB0B37D2B79D176173B62CF5C34257750F2F1037
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +460,8 @@ Undead Horde (2019) [Ru/Multi] (1.2.2) License GOG
 ```bash
 magnet:?xt=urn:btih:08C4E2B167D37AB86E4DAD89BE16ACA046872E5C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -451,6 +487,8 @@ Layers of Fear (2023) [Ru/Multi] (1.2.2.rb95581) Repack Other s
 magnet:?xt=urn:btih:7BFD1350B98AC89AF05FDF5355CCDFD83F775A96
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -474,6 +512,8 @@ Daydream: Forgotten Sorrow (2023) [Ru/Multi] (1.2.6) License GOG
 ```bash
 magnet:?xt=urn:btih:BAF13A97A8450EBF5CB9E5C9F63327A79EC31DA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -499,6 +539,8 @@ Trepang2, сумасшедший кровавый шутер от первого
 magnet:?xt=urn:btih:C0C64DE07AB6E53EAA2106FE3423A6629B15B5A2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -522,6 +564,8 @@ A Game of Thrones: The Board Game - Digital Edition – цифровая ада�
 ```bash
 magnet:?xt=urn:btih:2996BFA9A5FC7EA61B13020B5029187420C19C2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -547,6 +591,8 @@ Out There: Oceans of Time (2022) [Ru/Multi] (1.2.1.2) License GOG
 magnet:?xt=urn:btih:4505ECBEDAA4B01BB49FDCE21B79A386C71A11C9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -570,6 +616,8 @@ The Entropy Centre - умопомрачительное приключение �
 ```bash
 magnet:?xt=urn:btih:6686F0F6219BEA7E8B1A29762DF3A33F8A63F3D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -595,6 +643,8 @@ Aliens: Dark Descent (2023) [Ru/Multi] (93991/dlc) Repack DjDI
 magnet:?xt=urn:btih:7265DF008529B4235FDFE54F555F2A00AFC7F4DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -618,6 +668,8 @@ LEGO Star Wars: The Skywalker Saga (2022) [Ru/Multi] (1.0.9/dlc) Repack dixen18
 ```bash
 magnet:?xt=urn:btih:17EFF178B176F3C8FC7BC9F008032B845ECA17B2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

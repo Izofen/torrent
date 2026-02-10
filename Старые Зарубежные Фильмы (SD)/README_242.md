@@ -1,28 +1,3 @@
-###  Публикация: 1438914   (1040612) от 10.01.2021
-
-Крутой маршрут / The Great Locomotive Chase (1956) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_1040612.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 апреля 1862 года, утро. Отряд спецназа из 22 разведчиков времен Гражданской войны в Америке из-под самого носа войск конфедератов, базирующихся около Атланты, угоняет поезд. Кажется невероятным, но они хотят разрушить рельсы и мосты на всей Западной дороге.
-Это должна быть высококлассная операция. Если они справятся - то выиграют войну, если нет - проиграют все... (   Читать дальше...   )Производство: США / Walt Disney ProductionsЖанр: Боевик, Приключения, Семейный, Вестерн, ВоенныйРежиссер: Френсис Д. ЛионАктеры: Фесс Паркер, Джеффри Хантер, Джефф Йорк, Джон Луптон, Эдди Файрстоун, Кеннет Тоби, Дон Мегован, Клод Джармен мл., Гарри Кэри мл., Леонард П. ГирПеревод: Многоголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17CA1C08C32363E06B8E0295781C18871726B1BD
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438853   (1040614) от 10.01.2021
 
 Зелёный лучник / Der grune Bogenschutze (1961) BDRip
@@ -43,6 +18,8 @@ magnet:?xt=urn:btih:17CA1C08C32363E06B8E0295781C18871726B1BD
 ```bash
 magnet:?xt=urn:btih:735489A340BB5DD427A5AC06150F2B8667752E6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +45,8 @@ magnet:?xt=urn:btih:735489A340BB5DD427A5AC06150F2B8667752E6A
 magnet:?xt=urn:btih:F549EACE8C1B222973642F6D1286E59A8FFDC922
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +70,8 @@ magnet:?xt=urn:btih:F549EACE8C1B222973642F6D1286E59A8FFDC922
 ```bash
 magnet:?xt=urn:btih:997DA14130E57612BB87B564B52F02EC4E68258E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +98,8 @@ magnet:?xt=urn:btih:997DA14130E57612BB87B564B52F02EC4E68258E
 magnet:?xt=urn:btih:BB871EE6007F1B26264F006B08DB250BA47FF0EE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +124,8 @@ magnet:?xt=urn:btih:BB871EE6007F1B26264F006B08DB250BA47FF0EE
 magnet:?xt=urn:btih:F30506A2B6D33CFBFA37B62890998655133C4B52
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +149,8 @@ magnet:?xt=urn:btih:F30506A2B6D33CFBFA37B62890998655133C4B52
 ```bash
 magnet:?xt=urn:btih:3D8C530E447FA65D3BA7818958F64FF0F01F1536
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +177,8 @@ magnet:?xt=urn:btih:3D8C530E447FA65D3BA7818958F64FF0F01F1536
 magnet:?xt=urn:btih:0843E2D49CDA78FF4ECC4983C56400A35FD9DE16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +202,8 @@ magnet:?xt=urn:btih:0843E2D49CDA78FF4ECC4983C56400A35FD9DE16
 ```bash
 magnet:?xt=urn:btih:4C315B523C7F82F246AE423B3E756CF8DA61CB3E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +229,8 @@ magnet:?xt=urn:btih:4C315B523C7F82F246AE423B3E756CF8DA61CB3E
 magnet:?xt=urn:btih:BDF3196E026D8F009CB78D1D5324A472181F6DCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +254,8 @@ magnet:?xt=urn:btih:BDF3196E026D8F009CB78D1D5324A472181F6DCB
 ```bash
 magnet:?xt=urn:btih:A2558F2E912D4FF0A6F775D5170BE399937BAD16
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +281,8 @@ magnet:?xt=urn:btih:A2558F2E912D4FF0A6F775D5170BE399937BAD16
 magnet:?xt=urn:btih:97B6380CEEFB92CDCFC5BD36B08400AD1F8E4FD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +306,8 @@ magnet:?xt=urn:btih:97B6380CEEFB92CDCFC5BD36B08400AD1F8E4FD6
 ```bash
 magnet:?xt=urn:btih:F08C9ABACFCF7D23B808A487550969B75A7DA226
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +333,8 @@ magnet:?xt=urn:btih:F08C9ABACFCF7D23B808A487550969B75A7DA226
 magnet:?xt=urn:btih:E1EEC4F2D700E1A8D6BAF0B198F0B7CE2823CC36
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +358,8 @@ magnet:?xt=urn:btih:E1EEC4F2D700E1A8D6BAF0B198F0B7CE2823CC36
 ```bash
 magnet:?xt=urn:btih:AAA6E8CA2718ABBD526CB1927EF4ACE62EC75D5A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +385,8 @@ magnet:?xt=urn:btih:AAA6E8CA2718ABBD526CB1927EF4ACE62EC75D5A
 magnet:?xt=urn:btih:A380A67075BD16237DA21370C1E668A88803A384
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +410,8 @@ magnet:?xt=urn:btih:A380A67075BD16237DA21370C1E668A88803A384
 ```bash
 magnet:?xt=urn:btih:6DDAEA0D24D83E791BDE62E6AF968CC20BE97148
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +437,8 @@ magnet:?xt=urn:btih:6DDAEA0D24D83E791BDE62E6AF968CC20BE97148
 magnet:?xt=urn:btih:C8EB00DF3F42727EB2345E04922BEB196799DAE1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +462,8 @@ magnet:?xt=urn:btih:C8EB00DF3F42727EB2345E04922BEB196799DAE1
 ```bash
 magnet:?xt=urn:btih:D582A2079C22C84A85E0836CDD9B5CEB330D72C6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +489,8 @@ magnet:?xt=urn:btih:D582A2079C22C84A85E0836CDD9B5CEB330D72C6
 magnet:?xt=urn:btih:8DB42C6BA52C841F9A50944C6C2659E635535109
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +514,8 @@ magnet:?xt=urn:btih:8DB42C6BA52C841F9A50944C6C2659E635535109
 ```bash
 magnet:?xt=urn:btih:FC87F5BB9BD701B60066CA7CBB69959FB65D04BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +541,8 @@ magnet:?xt=urn:btih:FC87F5BB9BD701B60066CA7CBB69959FB65D04BF
 magnet:?xt=urn:btih:A4B8A88485254938B50BFC11B4FB4413837F16FD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +566,8 @@ magnet:?xt=urn:btih:A4B8A88485254938B50BFC11B4FB4413837F16FD
 ```bash
 magnet:?xt=urn:btih:86C5DD466526592730A9A38D35687A3103A2D732
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +593,8 @@ XIX век. Причудливо обезображенный гарпунщик
 magnet:?xt=urn:btih:A3D57F99FB59957D0E58B6BE9A2CD049E6D1A33D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +619,8 @@ magnet:?xt=urn:btih:A3D57F99FB59957D0E58B6BE9A2CD049E6D1A33D
 magnet:?xt=urn:btih:D07861A170DAAADF95A2037A427BDE95DB70FDE9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +644,34 @@ magnet:?xt=urn:btih:D07861A170DAAADF95A2037A427BDE95DB70FDE9
 ```bash
 magnet:?xt=urn:btih:4E4AFCF4F87D795A8AB7A83D31293A52D08D17F8
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1610626   (1042118) от 08.02.2023
+
+Шафт / Shaft (1971) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_1042118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адаптация одноимённого романа Эрнеста Тайдимена. Сюжет вращается вокруг частного детектива по имени Джон Шафт, которого нанял гарлемский мафиози, чтобы спасти свою дочь от похитивших ее итальянских мафиози.Производство: США, Metro-Goldwyn-Mayer, Shaft Productions Ltd.Жанр: криминал, боевик, триллерРежиссер: Гордон ПарксАктеры: Ричард Раундтри, Моузес Ганн, Чарльз Чоффи, Кристофер Ст. Джон, Гвенн Митчелл, Лоуренс Прессман, Виктор Арнольд, Шерри Брюэр, Рекс Роббинс, Камилль ЯрброПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: английские  SDHПродолжительность: 01:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2298D50BCF9CCE57F57325B0CB378ABF0CBF4F2F
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

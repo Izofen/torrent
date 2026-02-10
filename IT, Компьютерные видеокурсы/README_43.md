@@ -20,6 +20,8 @@ Udemy, Neville Adams | The Unreal Arsenal: Learn C++ and Unreal Engine (2023) PC
 magnet:?xt=urn:btih:9F1BD84828631BA6DC4952D410774618D3278DD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ magnet:?xt=urn:btih:9F1BD84828631BA6DC4952D410774618D3278DD5
 ```bash
 magnet:?xt=urn:btih:1C2C43071D9A28B57EC2C788FFBE307B896A04AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ System Center Configuration Manager (SCCM), ранее Systems Management Server
 magnet:?xt=urn:btih:80924EF4580A1F5A9598959C9C857745A41B7126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:80924EF4580A1F5A9598959C9C857745A41B7126
 ```bash
 magnet:?xt=urn:btih:0B2683C6BDC3519F0E24D3EDECCCCBC055EF5EE5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ magnet:?xt=urn:btih:0B2683C6BDC3519F0E24D3EDECCCCBC055EF5EE5
 ```bash
 magnet:?xt=urn:btih:B2DBC6834C7279597A3AF890F42E3A8857841B98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -153,6 +163,8 @@ magnet:?xt=urn:btih:B2DBC6834C7279597A3AF890F42E3A8857841B98
 magnet:?xt=urn:btih:8CA41591B1AFE5A73FA89CEDB88648B66D659F4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -179,6 +191,8 @@ Windows Server 2008 R2 — продукт, позволяющий построи
 magnet:?xt=urn:btih:1B330D58A748C4786E26642CF8595385DD6C4C24
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -203,6 +217,8 @@ magnet:?xt=urn:btih:1B330D58A748C4786E26642CF8595385DD6C4C24
 ```bash
 magnet:?xt=urn:btih:53CCCD03311CFE2435570F9D8C25317122A66912
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -230,6 +246,8 @@ Thinknetica Pro, Алексей Наумов | Внутреннее устрой
 magnet:?xt=urn:btih:B8EFABA14DD73687302AAD62E0FA56A97989E56A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -253,6 +271,8 @@ TutorPlace, Наталья Терновская | "1С:Управление на
 ```bash
 magnet:?xt=urn:btih:BCD53ED7AF2DB38C20B7C08C649A7881C0DFF0D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -279,6 +299,8 @@ magnet:?xt=urn:btih:BCD53ED7AF2DB38C20B7C08C649A7881C0DFF0D6
 magnet:?xt=urn:btih:8E92FD78C27EA1882C0D016D0B0C669D20860622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -302,6 +324,8 @@ Max Gor | Работа в системе «1С:Медицина. Больниц�
 ```bash
 magnet:?xt=urn:btih:236D85297322108CAFAF5813E6FA63E256CC3761
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -330,6 +354,8 @@ Windows 7 Вы можете использовать как на домашне�
 ```bash
 magnet:?xt=urn:btih:828617947D43D99961DEAC8D399A04E55EE4567C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +390,8 @@ magnet:?xt=urn:btih:828617947D43D99961DEAC8D399A04E55EE4567C
 magnet:?xt=urn:btih:87E31ED3ECBABF6FE78C16E9504A2380422FE03A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +417,8 @@ Skillbox, Е. Брызгалина, А. Кузнецов, Н. Клюева | Ф�
 magnet:?xt=urn:btih:481E1D866819532E3AD4C93DB875F0AC54501583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -413,6 +443,8 @@ Udemy, Andrey Sobolev | Микросервисы на Python (asyncio, starlette
 ```bash
 magnet:?xt=urn:btih:743C6237D462A246D8D53E790531D3BC3F7A9867
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +473,8 @@ Ulbi TV, Тимур Ульби | Продвинутый Frontend. В Production 
 magnet:?xt=urn:btih:BC75303C93E330FDED975C090FB0FC4F9B80AF5F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +500,8 @@ Javascript.ninja, Илья Климов | Зимняя школа по Typescrip
 magnet:?xt=urn:btih:5125A3734BCBA24066E3FA8B924CE73C1DD6142D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -489,6 +525,8 @@ itProger |  Профессия Python разработчик (2020) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:2D8E87FBDE704DAC6293A55D6D7F910777526D43
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +555,8 @@ Ulbi TV, Тимур Ульби | Продвинутый Frontend. В Production 
 magnet:?xt=urn:btih:1FA1913582E345E3E4853F5840328CBCCE2A2725
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -544,6 +584,8 @@ JPoint — одна из двух крупнейших и старейших Jav
 magnet:?xt=urn:btih:D8FEE1C32DE24260EC54C15FEFA83F834A0A8D25
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +610,8 @@ Amigoscode, Mama Samba Braima Nelson | PROFESSIONAL Full Stack Developer (2023) 
 ```bash
 magnet:?xt=urn:btih:76A658EF63FB43470870F3A1C0E7E380CBD22E74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -596,6 +640,8 @@ Red Group, htmllessons, Максим Шушвал | Все интенсивы (2
 magnet:?xt=urn:btih:09CBD0D4D3918510896444AF1C49E4267EB4E51E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +668,8 @@ QA Studio | Ручное тестирование ПО (2022) WEB-DL [RU]
 ```bash
 magnet:?xt=urn:btih:D8EB8D8FA88AA113A7B0B03C602A0A0D5CA7A508
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -650,6 +698,8 @@ Alexcode, Алексей Леонов | Разработчик 1С с нуля (
 magnet:?xt=urn:btih:4773D321E7E75B380E2F9CA8000E5A2394DA12A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -676,6 +726,8 @@ CyberYozh Academy, Евгений Ивченков | Комплексная на
 ```bash
 magnet:?xt=urn:btih:A1CC102400BCAAABBB65C36A0A2F11E97A8FB3CC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

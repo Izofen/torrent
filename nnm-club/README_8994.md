@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:9EBE74658539E5C3B08E42C5923D98E789BAC86A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ Adobe Animate CC 2017, пришедший на смену Flash Professional - �
 ```bash
 magnet:?xt=urn:btih:2DC126EF79D7D9FEE2FB0B3A8957ACDEDBB224A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ Christmas Card - это уникальный проект After Effects, пол�
 magnet:?xt=urn:btih:6D8E29C500127D46DE170830E8176F3B65AC8619
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ magnet:?xt=urn:btih:6D8E29C500127D46DE170830E8176F3B65AC8619
 ```bash
 magnet:?xt=urn:btih:64D4E72643FEA383A12924356C53B2F5C6C5AA8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ magnet:?xt=urn:btih:64D4E72643FEA383A12924356C53B2F5C6C5AA8D
 magnet:?xt=urn:btih:93E976F1BC7C409D99D401EA4DFDD59A725E603D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:93E976F1BC7C409D99D401EA4DFDD59A725E603D
 magnet:?xt=urn:btih:32B2218B66355D3617A86E25B9CED72B3B2D0C1A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:32B2218B66355D3617A86E25B9CED72B3B2D0C1A
 ```bash
 magnet:?xt=urn:btih:F3F9D7B6BFBF9E06F1CCB6126C263E831F5BD4FD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +204,8 @@ magnet:?xt=urn:btih:F3F9D7B6BFBF9E06F1CCB6126C263E831F5BD4FD
 magnet:?xt=urn:btih:2C313D54335E18ADEE1D1752C5668647749D0016
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -213,6 +229,8 @@ Winter Natural Slideshow - это красиво снятый, празднич�
 ```bash
 magnet:?xt=urn:btih:9E566432A033BF573CBC051C4D6F145B579030AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +256,8 @@ magnet:?xt=urn:btih:9E566432A033BF573CBC051C4D6F145B579030AD
 magnet:?xt=urn:btih:FB8610E5746206A5ED9D4330A2E48E7CC1840A97
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -261,6 +281,8 @@ Christmas - простая, стильная, красочная Новогод�
 ```bash
 magnet:?xt=urn:btih:BC150A402353FD9327DA7B6A3994574F96303E33
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -286,6 +308,8 @@ Christmas Logo and Opener - это красивый анимационный п�
 magnet:?xt=urn:btih:13A50FF04D53B54BF8D9E0CF4B6AD038915635B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:13A50FF04D53B54BF8D9E0CF4B6AD038915635B8
 ```bash
 magnet:?xt=urn:btih:D511C2D053D73FC80B10817BF3B53F70B6925127
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +363,8 @@ Disc 01
 magnet:?xt=urn:btih:972CB235F041F93AB660DF8B5BD0F3F802CDC1B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -364,6 +392,8 @@ magnet:?xt=urn:btih:972CB235F041F93AB660DF8B5BD0F3F802CDC1B2
 magnet:?xt=urn:btih:DC9E8765C8F736A5C478BA85AE6753E0A8567550
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +417,8 @@ magnet:?xt=urn:btih:DC9E8765C8F736A5C478BA85AE6753E0A8567550
 ```bash
 magnet:?xt=urn:btih:6330C9F17C784BEC69112E98777FA63705DBA7FF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +444,8 @@ magnet:?xt=urn:btih:6330C9F17C784BEC69112E98777FA63705DBA7FF
 magnet:?xt=urn:btih:E43C75333ECABCD52BC942DADBBAD26635932B37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +469,8 @@ Angry Birds 2 в кино / The Angry Birds Movie 2 (2019) BDRip [H.265/1080p-LQ
 ```bash
 magnet:?xt=urn:btih:22EE6AB0AD7347FD943865BCC74578011FC7E219
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -460,6 +496,8 @@ magnet:?xt=urn:btih:22EE6AB0AD7347FD943865BCC74578011FC7E219
 magnet:?xt=urn:btih:9F0E679DF0E29DF137945D105426E7D242347D7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -483,6 +521,8 @@ Unholy Heights (2013) [En/Jp] (20171109) License GOG
 ```bash
 magnet:?xt=urn:btih:77161E33414F7BEDB47B6ADB3FAD82D82BB8E7D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +548,8 @@ magnet:?xt=urn:btih:77161E33414F7BEDB47B6ADB3FAD82D82BB8E7D3
 magnet:?xt=urn:btih:F597C0D943D1048BF8E3DDED9AE8B5C3FD4A77DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +573,8 @@ JUMANJI: The Video Game (2019) [Ru/Multi] (11892) Repack Butter_
 ```bash
 magnet:?xt=urn:btih:E67D0E7C775C32E675D540F9D82EAD8EB263A10F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +603,8 @@ magnet:?xt=urn:btih:E67D0E7C775C32E675D540F9D82EAD8EB263A10F
 magnet:?xt=urn:btih:3FE75F6D5C47C9C399D7AE44AEA22C8B0B3661E1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +628,8 @@ magnet:?xt=urn:btih:3FE75F6D5C47C9C399D7AE44AEA22C8B0B3661E1
 ```bash
 magnet:?xt=urn:btih:331CCC9812CABD93A31F81E0EBB2BA3E62E46AAD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -607,6 +655,8 @@ magnet:?xt=urn:btih:331CCC9812CABD93A31F81E0EBB2BA3E62E46AAD
 magnet:?xt=urn:btih:EF68F97B7E756B909227BCF302C49367785B9C7C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -630,6 +680,8 @@ Resident Evil 4 (2019) [Switch] [USA] 8.1.0 [NSZ] [Unofficial / 1.0.1] [Ru/En]
 ```bash
 magnet:?xt=urn:btih:321875E322CA58F23F656478A91DCAA50CA72BA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,29 +1,3 @@
-###  Публикация: 1032005   (643256) от 08.07.2016
-
-Furi (2016) [Ru/Multi] (1.0.46) Repack Other s
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_643256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы – заключенный на суровой планете-тюрьме, которую охраняют жестокие Стражи, и единственный способ вырваться на свободу – перебить их одного за другим.
-
-Вместе с таинственным союзником вам предстоит вступать в битвы со Стражами, любая из которых будет суровым испытанием ваших способностей и боевых навыков. Каждый новый Страж опаснее предыдущего, но, только одолев (   Читать дальше...   )Тип издания: RepackРазработчик: The Game BakersЖанр: Action (Slasher), 3DЯзык озвучки: Английский, Французский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5EDC3CEA18320EDB0CA1826E003887FE532187
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032794   (643350) от 08.07.2016
 
 Hieroglyphika (2016) [Ru/Multi] (1.2.1) Repack Other s
@@ -44,6 +18,8 @@ Hieroglyphika – это отчаянная попытка спастись из
 ```bash
 magnet:?xt=urn:btih:C0B014F6826FEDDB86377576CEAEDB9966B2E247
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +45,8 @@ Fossil Echo (2016) [En] (1.0) Repack Other s
 magnet:?xt=urn:btih:8C0597FA169CB1C27B4C50CEA7747EAB41BB9977
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +70,8 @@ Epistory - Typing Chronicles (2015) [Ru/Multi] (1.3.5) License GOG
 ```bash
 magnet:?xt=urn:btih:A4DD93836A146E9DDA956DF67C912E6C54B4F742
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +97,8 @@ Party Hard (2015) [Ru/Multi] (1.4.030.r/dlc) License GOG
 magnet:?xt=urn:btih:BCCB7C74A75C517EB92F64549824C1BBE95DDB3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +122,8 @@ World of One (2017) [Ru/Multi] (1.1.3 B4) License SKIDROW
 ```bash
 magnet:?xt=urn:btih:3B1B5B578EE5B86F2DA71D76485EE0321862EBC9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +149,8 @@ ABZÛ — это красочное приключение в подводном
 magnet:?xt=urn:btih:A8726139F97B99B2108209424C419B11A37B7759
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +174,8 @@ LEGO DC Super-Villains (2018) [Ru/Multi] (1.0/upd5/dlc) License CODEX [Deluxe Ed
 ```bash
 magnet:?xt=urn:btih:B00E02405ED83C385E9BF1C02F6D6E78512C219A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -213,6 +201,8 @@ Assassin's Creed III Remastered / Assassin's Creed 3 (2019) [Ru/Multi] (1.0) Lic
 magnet:?xt=urn:btih:0868F3F41627DD0F18D0C049CF931AD3BDC33CF0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +226,8 @@ The Office Quest — это интересное приключение с ме�
 ```bash
 magnet:?xt=urn:btih:00132536DF925BD4548713021A980A0DE6DB9AD1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -261,6 +253,8 @@ One Piece: World Seeker (2019) [Ru/Multi] (1.0.2/dlc) Repack xatab
 magnet:?xt=urn:btih:515866E38186D96A1C2FE285F6D72A9343161B4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -285,6 +279,8 @@ League of Light 5: Edge of Justice / Лига Света 5: Пик правос�
 magnet:?xt=urn:btih:A1DEF63A56D0573FD3F614E34329505AB00D3D20
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +304,8 @@ SimplePlanes (2015) [En] (1.7.0.6) License GOG
 ```bash
 magnet:?xt=urn:btih:B60942E8E2E89A2B877FEA01AB481EA61C92663F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -334,6 +332,8 @@ Tom Clancy's Ghost Recon: Future Soldier [Ru] (v.1.0) 2012 | Новый Диск
 magnet:?xt=urn:btih:03D988209CA4889A5413C5BCEFDD2F064CFFC995
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +357,8 @@ Whispered Secrets 9: Cursed Wealth / Нашептанные секреты 9: П
 ```bash
 magnet:?xt=urn:btih:304B5050663AA0EB509381AEF5866B2356FEABEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +384,8 @@ Shrouded Tales 3: The Shadow Menace / Таинственные сказки 3: �
 magnet:?xt=urn:btih:1E9B2536BBBAF26B2A5AE8339A4D13D618795199
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +409,8 @@ Danse Macabre 6: Ominous Obsession / Танец смерти 6: Наважден
 ```bash
 magnet:?xt=urn:btih:7CA40F07BE73BCB51734D6CF4EB9DB26A3700A48
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -431,6 +437,8 @@ Spec Ops: The Line [Ru] (v.1.0) 2012 | 1C-СофтКлаб
 magnet:?xt=urn:btih:4273A306A2D05F9DCD4C98FC7F744D0D719C9B12
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -454,6 +462,8 @@ Bridge to Another World 6: Gulliver Syndrome / Мост в другой мир 6
 ```bash
 magnet:?xt=urn:btih:39CBE2D2F896E48C6182D243B76F8B87CD37CB03
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -479,6 +489,8 @@ The Myth Seekers 2: The Sunken City (2019) [En] (1.0) Unofficial [Collector's Ed
 magnet:?xt=urn:btih:1202DDA7B3D5CFE8F987686E00C203B029169FCB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +514,8 @@ Moonsouls: Echoes of the Past (2017) [En] (1.0) Unofficial [Collector's Edition]
 ```bash
 magnet:?xt=urn:btih:5EEF77246649DF6D5D45C26AAC599F82FB40D4BD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -527,6 +541,8 @@ Endless Fables: Dark Moor (2018) [En] (1.0) Unofficial [Collector's Edition]
 magnet:?xt=urn:btih:40E269E58B9DD122AA85B1F34CD357AABBC334B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -550,6 +566,8 @@ The Andersen Accounts: Chapter One (2018) [En] (1.0) Unofficial [Collector's Edi
 ```bash
 magnet:?xt=urn:btih:D921FB0CB5EA004A19D9650A99DB25902AFEEF4B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -575,6 +593,8 @@ Grim Facade 11: Broken Sacrament (2017) [En] (1.0) Unofficial [Collector's Editi
 magnet:?xt=urn:btih:F7DFD8D711DD166E53A294170B5FF1C88C528FBD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -599,6 +619,8 @@ Celestian Tales: Old North (2015) [En] (1.1.2/dlc) License GOG
 magnet:?xt=urn:btih:B36FCA7579A161766EF759C0866BE4223E7E4F11
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +644,34 @@ The Voice from Heaven / Голос Небес (2017) [Ru] (1.0) Unofficial
 ```bash
 magnet:?xt=urn:btih:AAAFD5DF5CC5D5FAA2388C1901823F6020C9A07B
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291910   (646342) от 29.03.2019
+
+Counter-Strike 1.6 (2000) [Ru/En] (1.1.2.7/pv48/b8189) Repack/Mod stalin-volki
+
+>>Win Игры
+>>Online Action (MMO)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_646342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новейший билд с работающим микрофоном и постоянной синхронизацией со стим обновлениями. Команда dev-cs наконец-то дала старт своей новой античитерской системе. Система реализована по принципу клиент-серверный античит. Вот только вместо привычного механизма запуска клиентской программы, перед запуском CS, клиентской частью античита, взята сама сборка Counter-Strike. (   Читать дальше...   )Язык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ED8C7A32219700B8F5C2BBCC9BA4DC68DF1F90C
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

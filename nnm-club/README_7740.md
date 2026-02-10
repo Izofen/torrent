@@ -19,6 +19,8 @@ Icecream Video Converter 1.28 [Multi/Ru]
 magnet:?xt=urn:btih:15A7B300ED50DCCC37D95FFE16C272A077CA45B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -45,6 +47,8 @@ Mats Karlsson - Mood Elevator (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, C
 ```bash
 magnet:?xt=urn:btih:CC971319218B50EAC6AABC030F1618BD4B1E4738
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -73,6 +77,8 @@ magnet:?xt=urn:btih:CC971319218B50EAC6AABC030F1618BD4B1E4738
 magnet:?xt=urn:btih:3345D507F29AA87F51A188EF26AD1B7EA53DB457
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -98,6 +104,8 @@ magnet:?xt=urn:btih:3345D507F29AA87F51A188EF26AD1B7EA53DB457
 magnet:?xt=urn:btih:86240F8A53CDC6E9099963D4B1ACFF4B078BDB1B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -121,6 +129,8 @@ magnet:?xt=urn:btih:86240F8A53CDC6E9099963D4B1ACFF4B078BDB1B
 ```bash
 magnet:?xt=urn:btih:3FB4DD9FC134EDF4C49F1BD128339B2E84E645EF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -146,6 +156,8 @@ My Metronome - идеальный инструмент для каждого, к
 magnet:?xt=urn:btih:676DB2F1F64FB1F9E32B1C7054CC7F522F71E390
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -170,6 +182,8 @@ Udemy, Colt Steele | Mastering TypeScript - 2022 Edition (2022) WEB-DL [EN / EN 
 magnet:?xt=urn:btih:153F5A916A863D9606BB60365E6FE011E4EFCDDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -193,6 +207,8 @@ magnet:?xt=urn:btih:153F5A916A863D9606BB60365E6FE011E4EFCDDD
 ```bash
 magnet:?xt=urn:btih:8DFBBCA951587B6DE07F7F384C96A52B93ADF559
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -221,6 +237,8 @@ Vangelis - Blade Runner (1994) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Electronic, Ne
 magnet:?xt=urn:btih:EA3824C5253A25DA16BF5F765E988682004A1948
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -247,6 +265,8 @@ Melissa Stylianou - Dream Dancing (2022) Anzic Records [FLAC|Lossless|tracks + .
 ```bash
 magnet:?xt=urn:btih:C0552C871DB2C55EC10883B3A86808CFBD8B4E55
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -275,6 +295,8 @@ Hex A.D. - Astro Tongue in the Electric Garden (2020) [FLAC|Lossless|WEB-DL|trac
 magnet:?xt=urn:btih:4582F3D247A00E031768237AC1DB9A2258AED2AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -301,6 +323,8 @@ Carpenter Brut - Leather Terror (2022) [FLAC|24/44.1|WEB-DL|tracks] <Darksynth, 
 ```bash
 magnet:?xt=urn:btih:82D12588EF6A32FA4A0F5E401D845561450B9AA2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -329,6 +353,8 @@ Changes - Вместе с кровью по венам (2013) [MP3|320 Kbps] <Ha
 magnet:?xt=urn:btih:FDBFF0C154401C3F1FA2DFBBA3359E770C6C7B26
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +382,8 @@ Celine Dion - Love Again (Soundtrack from the Motion Picture) (2023) [FLAC|Lossl
 magnet:?xt=urn:btih:C6C8FD3FBD5CA5E083A46BC01E8E4E2F1791B91C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:C6C8FD3FBD5CA5E083A46BC01E8E4E2F1791B91C
 ```bash
 magnet:?xt=urn:btih:E2A64CF7AE21EA69FD71A836E2EF5D6A7E4D503D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +437,8 @@ Kadavermarch - Into Oblivion (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psyched
 magnet:?xt=urn:btih:297691B08809606961BAD22AA2495491E685021A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +462,8 @@ TransData: Internet Data Speed 2.6 [Multi]
 ```bash
 magnet:?xt=urn:btih:A92CF20C830316C8A4198D5A65A9A16F06C1C526
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +489,8 @@ W10Privacy - программа для изменения настроек си�
 magnet:?xt=urn:btih:5A947CC5F6F7D5D94D2B385D569EF7699EDAD1C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +515,8 @@ magnet:?xt=urn:btih:5A947CC5F6F7D5D94D2B385D569EF7699EDAD1C3
 magnet:?xt=urn:btih:536D7A89DD85C91498A8669B899AD80A150BFEB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -502,6 +540,8 @@ EazyDraw от Dekorra Optics – графическая программа, со
 ```bash
 magnet:?xt=urn:btih:C5FF1B535070E1803FAD7F8267C9BCAF7B7770EC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -530,6 +570,8 @@ Void Chapter - Humanity (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic Rock, I
 magnet:?xt=urn:btih:45B122DF9ED10148055F3CAFC5AEA15DF0EE9701
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -557,6 +599,8 @@ Gorky Park - Moscow Calling (1992) Reissue, Remastered, 2023, Moroz Records [FLA
 magnet:?xt=urn:btih:589C577A676C22BA7CF5538116587E0FA30EAC6D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -580,6 +624,8 @@ magnet:?xt=urn:btih:589C577A676C22BA7CF5538116587E0FA30EAC6D
 ```bash
 magnet:?xt=urn:btih:743E82EFA0841DEB2D44E84EE3DCF38AA62CC3EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ Strange Horizon - Beyond the Strange Horizon (2022) [MP3|320 Kbps] <Doom Metal, 
 magnet:?xt=urn:btih:A0567F8D789FEE14535EEA46C8251847F9AF9BE0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +680,8 @@ magnet:?xt=urn:btih:A0567F8D789FEE14535EEA46C8251847F9AF9BE0
 magnet:?xt=urn:btih:A22FEDF3858C7E241B508E3FBE4F4A8DCEEBA9C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +705,8 @@ magnet:?xt=urn:btih:A22FEDF3858C7E241B508E3FBE4F4A8DCEEBA9C2
 ```bash
 magnet:?xt=urn:btih:611CF2311BCCADDE66D4422423FE2C615738783B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

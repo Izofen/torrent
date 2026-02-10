@@ -1,3 +1,29 @@
+###  Публикация: 1000613   (857430) от 26.03.2016
+
+Научное расследование Сергея Малозёмова. Еда живая и мертвая (2016.03.26) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_857430.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Еда живая и мертвая» – новый научно-популярный цикл Сергея Малозёмова, репортера с медицинским образованием, автора и ведущего программы «Чудо техники» и научных расследований о климате, технологиях, бессмертии и экологии.Производство: НТВЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E518F66CE3B35944ACBBFDF7C27A4485C5E8C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000611   (857494) от 26.03.2016
 
 Главная дорога (26.03.2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:4B24FFE703B440B19CE4956F8DFE2F537E9C7DA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:4B24FFE703B440B19CE4956F8DFE2F537E9C7DA9
 magnet:?xt=urn:btih:FD8F842B01DAFD1AFCBA12F36170FAF78A272BAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:FD8F842B01DAFD1AFCBA12F36170FAF78A272BAC
 ```bash
 magnet:?xt=urn:btih:7F75505E0CA61E9AE943B4A57BB42255A9CEE623
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:7F75505E0CA61E9AE943B4A57BB42255A9CEE623
 magnet:?xt=urn:btih:FC6997A02E532365A7BCCC7BCC54B7A4F8BA0E19
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +148,8 @@ magnet:?xt=urn:btih:FC6997A02E532365A7BCCC7BCC54B7A4F8BA0E19
 ```bash
 magnet:?xt=urn:btih:5295305E63869B72C398F9E36CDB6424DC557412
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -139,6 +175,8 @@ magnet:?xt=urn:btih:5295305E63869B72C398F9E36CDB6424DC557412
 magnet:?xt=urn:btih:8BF159B8EF53BCBAAF57274D2A90332B9526B7B9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -162,6 +200,8 @@ magnet:?xt=urn:btih:8BF159B8EF53BCBAAF57274D2A90332B9526B7B9
 ```bash
 magnet:?xt=urn:btih:53B150FEA862F6630670CCCB98C7ABF72CB57E21
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -187,6 +227,8 @@ magnet:?xt=urn:btih:53B150FEA862F6630670CCCB98C7ABF72CB57E21
 magnet:?xt=urn:btih:481D258F77379EF00813B843932BE1081CB72835
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +252,8 @@ magnet:?xt=urn:btih:481D258F77379EF00813B843932BE1081CB72835
 ```bash
 magnet:?xt=urn:btih:58789C5D9127A8DD2ABC6CB3B91DE2717895FEB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -235,6 +279,8 @@ magnet:?xt=urn:btih:58789C5D9127A8DD2ABC6CB3B91DE2717895FEB4
 magnet:?xt=urn:btih:508B29A3363C027052F48B6144733A3CEE5F1C63
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -258,6 +304,8 @@ magnet:?xt=urn:btih:508B29A3363C027052F48B6144733A3CEE5F1C63
 ```bash
 magnet:?xt=urn:btih:307AF8C9D0D2D0E5437E8DC8C0B3B88557F39DD3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -283,6 +331,8 @@ magnet:?xt=urn:btih:307AF8C9D0D2D0E5437E8DC8C0B3B88557F39DD3
 magnet:?xt=urn:btih:661751848E640B1A8F40191D17D26D961B0BE2A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +356,8 @@ magnet:?xt=urn:btih:661751848E640B1A8F40191D17D26D961B0BE2A4
 ```bash
 magnet:?xt=urn:btih:DAB194A62D739F165A639F73A8FA8919B235AFDB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -331,6 +383,8 @@ magnet:?xt=urn:btih:DAB194A62D739F165A639F73A8FA8919B235AFDB
 magnet:?xt=urn:btih:F4CA6717FF4E8EEC8678F51423E9F02DADFCC4E5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -354,6 +408,8 @@ magnet:?xt=urn:btih:F4CA6717FF4E8EEC8678F51423E9F02DADFCC4E5
 ```bash
 magnet:?xt=urn:btih:DD314D9EDB6A9C560DF5F5531CBCDAC7BF5936E8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +435,8 @@ magnet:?xt=urn:btih:DD314D9EDB6A9C560DF5F5531CBCDAC7BF5936E8
 magnet:?xt=urn:btih:18233192B539FF14DFD3A311AF560FDFC5CD4D6B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -402,6 +460,8 @@ magnet:?xt=urn:btih:18233192B539FF14DFD3A311AF560FDFC5CD4D6B
 ```bash
 magnet:?xt=urn:btih:7F4FEE2CE0577B9151C0C120BA92644AAD76EBF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -427,6 +487,8 @@ magnet:?xt=urn:btih:7F4FEE2CE0577B9151C0C120BA92644AAD76EBF5
 magnet:?xt=urn:btih:7DAEA24CB23994A2B5E6886C730854DFB8E89EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -450,6 +512,8 @@ magnet:?xt=urn:btih:7DAEA24CB23994A2B5E6886C730854DFB8E89EDC
 ```bash
 magnet:?xt=urn:btih:08D1B3AF06D048D1FD703057A488BEFAF20F8B31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:08D1B3AF06D048D1FD703057A488BEFAF20F8B31
 magnet:?xt=urn:btih:1FB9FAB69C3B70EE1ABF7506A6BE1E8BD32475BF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +567,8 @@ magnet:?xt=urn:btih:1FB9FAB69C3B70EE1ABF7506A6BE1E8BD32475BF
 ```bash
 magnet:?xt=urn:btih:4BB83B8FE004141C7C6E65ADCFDC8688D9C6D4DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:4BB83B8FE004141C7C6E65ADCFDC8688D9C6D4DC
 magnet:?xt=urn:btih:9A007E01997201A23732C89AF4B0B9F720FD4A3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:9A007E01997201A23732C89AF4B0B9F720FD4A3D
 ```bash
 magnet:?xt=urn:btih:A4520680D377B98748D7B462C105456FA794312A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:A4520680D377B98748D7B462C105456FA794312A
 magnet:?xt=urn:btih:4A8661FDD3F474F77653F429B52E32BA12A0D42A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,29 +672,7 @@ magnet:?xt=urn:btih:4A8661FDD3F474F77653F429B52E32BA12A0D42A
 magnet:?xt=urn:btih:1EF8CEE4AF59EE44BC42A48E36B577DD6375E13D
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498403   (858060) от 26.09.2021
-
-Ричард Бэнгс. Путешествия с обучением. Ассам, Индия. В поисках носорога / Richard Bangs Adventures with Purpose. Assam, India. Quest for the One-Horned Rhino (2010) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_858060.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом эпизоде "Приключений с обучением" Ричард Бэнгс побывает в индийском штате Ассаме, где и по сей день обитают носороги, во многих других областях Южной Азии давно исчезнувшие, и попытается понять, что значит это животное для жителей Ассама и почему этому зверю так уютно здесь.Производство: США, American Public Television совместно с KCTS, SeattleЖанр: Документальный, познавательный, путешествияРежиссер: Ричард БэнгсПеревод: Одноголосый профессиональный (Первый ТВЧ)Субтитры: отсутствуютПродолжительность: 00:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DBE0336D9EF6E745C9D74E280618EFEC9D06722
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

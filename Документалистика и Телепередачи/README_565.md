@@ -1,3 +1,29 @@
+###  Публикация: 1277694   (775008) от 22.01.2019
+
+Добро пожаловать в Шанхай / Welcome to Shanghai (2017) WEBRip [H.264/720p-LQ]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_775008.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шанхай – крупнейший город Китая. Но вряд ли бы он представлял интерес, если бы только в этом и состояло его достоинство. Шанхай – это олицетворение всего Китая, с его древней историей, динамичной современностью и устремленностью в будущее. Здесь можно бродить как по типичным старым китайским улочкам, так и по проспектам викторианской эпохи. Любоваться как пышной (   Читать дальше...   )Производство: Китай, CGTNЖанр: Документальный, история, путешествияРежиссер: Ван БиньПеревод: Одноголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:56:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7A76D54624A9395CE90FE93779D878C7E701B82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277786   (775016) от 22.01.2019
 
 Разноцветный Пекин / Multicolored Beijing (2016) WEBRip [H.264/720p-LQ]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:671B778277C19A4031255B5CE50CE39548484566
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:671B778277C19A4031255B5CE50CE39548484566
 magnet:?xt=urn:btih:6F173E3FFA5998134682035C1C04ACF4E7422622
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +98,8 @@ magnet:?xt=urn:btih:6F173E3FFA5998134682035C1C04ACF4E7422622
 magnet:?xt=urn:btih:3BC18DFB6FEFF3D480EED267985FC7F1E1D8C195
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:3BC18DFB6FEFF3D480EED267985FC7F1E1D8C195
 ```bash
 magnet:?xt=urn:btih:1A1AB722E4164AB8DF132EA8D4513D6FE776F9BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +151,8 @@ magnet:?xt=urn:btih:1A1AB722E4164AB8DF132EA8D4513D6FE776F9BC
 magnet:?xt=urn:btih:F959ABE33C33AB847F308A69593145783898E973
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +176,8 @@ magnet:?xt=urn:btih:F959ABE33C33AB847F308A69593145783898E973
 ```bash
 magnet:?xt=urn:btih:F8EF3F17660E97EA77C59837204D4221FA65849B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -165,6 +203,8 @@ magnet:?xt=urn:btih:F8EF3F17660E97EA77C59837204D4221FA65849B
 ```bash
 magnet:?xt=urn:btih:4048028220584E1161C70163799E1312783B2A42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:4048028220584E1161C70163799E1312783B2A42
 magnet:?xt=urn:btih:4B0C4E88E867DBFBCA2741B60D0BC0A26343B8E3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +258,8 @@ magnet:?xt=urn:btih:4B0C4E88E867DBFBCA2741B60D0BC0A26343B8E3
 ```bash
 magnet:?xt=urn:btih:A54E7550D07D112969AECB895CC8919B4740FDF2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -242,6 +286,8 @@ magnet:?xt=urn:btih:A54E7550D07D112969AECB895CC8919B4740FDF2
 magnet:?xt=urn:btih:86515C97CB430F32C7B8B39C0C6DD07E1844FA0E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -267,6 +313,8 @@ magnet:?xt=urn:btih:86515C97CB430F32C7B8B39C0C6DD07E1844FA0E
 magnet:?xt=urn:btih:00D7D3FF8C67FC00C9290C5550638993C272668C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +338,8 @@ magnet:?xt=urn:btih:00D7D3FF8C67FC00C9290C5550638993C272668C
 ```bash
 magnet:?xt=urn:btih:B1E83E35C52D56F8409220528DF6BF73EC4D6FB8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -315,6 +365,8 @@ magnet:?xt=urn:btih:B1E83E35C52D56F8409220528DF6BF73EC4D6FB8
 magnet:?xt=urn:btih:ADFEFBBF3A879049BAB45B3327658A6DB92E727C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -338,6 +390,8 @@ magnet:?xt=urn:btih:ADFEFBBF3A879049BAB45B3327658A6DB92E727C
 ```bash
 magnet:?xt=urn:btih:9A29B5F5BB22715FAD79C3E9AC5459EB111AB598
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -364,6 +418,8 @@ magnet:?xt=urn:btih:9A29B5F5BB22715FAD79C3E9AC5459EB111AB598
 magnet:?xt=urn:btih:0302B712A26D9C0BEF2648925ECB3A4F8A385767
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -387,6 +443,8 @@ magnet:?xt=urn:btih:0302B712A26D9C0BEF2648925ECB3A4F8A385767
 ```bash
 magnet:?xt=urn:btih:55ED47EE832E1CF1537E87488476FB114FCF3A6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +470,8 @@ magnet:?xt=urn:btih:55ED47EE832E1CF1537E87488476FB114FCF3A6A
 magnet:?xt=urn:btih:714C56416D59815EB6A92708C6F034D43CE0CD8C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -435,6 +495,8 @@ magnet:?xt=urn:btih:714C56416D59815EB6A92708C6F034D43CE0CD8C
 ```bash
 magnet:?xt=urn:btih:45668386ED00F567D79A42ADFC23EE807BB53F15
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:45668386ED00F567D79A42ADFC23EE807BB53F15
 magnet:?xt=urn:btih:98C51167B6737935B51BF4EF3F0DF9625E73D875
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:98C51167B6737935B51BF4EF3F0DF9625E73D875
 magnet:?xt=urn:btih:A8FB2D057BB7EF3A6F9D6B7DD6BDAA7825AFD6F4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:A8FB2D057BB7EF3A6F9D6B7DD6BDAA7825AFD6F4
 ```bash
 magnet:?xt=urn:btih:AA78B00A9D75AD39940B0737995106B59D59CBA9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -537,6 +605,8 @@ magnet:?xt=urn:btih:AA78B00A9D75AD39940B0737995106B59D59CBA9
 magnet:?xt=urn:btih:1811E26D1E2447FBDAC2D1A66F36AE0DD66275A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +630,8 @@ magnet:?xt=urn:btih:1811E26D1E2447FBDAC2D1A66F36AE0DD66275A4
 ```bash
 magnet:?xt=urn:btih:8C07A178356A792E665D349E81DA1049AB6EB1AB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +658,8 @@ magnet:?xt=urn:btih:8C07A178356A792E665D349E81DA1049AB6EB1AB
 magnet:?xt=urn:btih:EB45B61FE62CE42C0D90E3543427570F14D2D9E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,30 +684,7 @@ magnet:?xt=urn:btih:EB45B61FE62CE42C0D90E3543427570F14D2D9E9
 magnet:?xt=urn:btih:27D8F7FBA42F7415D271109619852217BCF3EFAE
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015010   (775796) от 09.05.2016
-
-Парад Победы, посвященный 71-ой годовщине Победы в ВОВ 1941-1945г., Владивосток (2016.05.09) SATRip
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_775796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Военный парад, посвященный 71-й годовщине Победы в Великой Отечественной войне.
-Каждый год 9 мая во многих странах мира отмечают День Победы над немецко-фашистскими захватчиками. Но нигде этот праздник не празднуют с таким размахом, как в России. В 2016 году отмечается 71 год со Дня Победы.Жанр: Документальный, военный парадСубтитры: ОтсутствуютПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:971EE91461D301F023F8D4B34A7A41140AF56214
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

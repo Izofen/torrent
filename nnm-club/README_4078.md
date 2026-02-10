@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:C6C09B70A4F0118A67F83DBB232286E00A40AA33
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Genius Art: Image AI Generator v1.5.2 Mod by vadj [Ru/Multi]
 magnet:?xt=urn:btih:A9991B0B14C67C5BD0C7D63674734190D2CDB56A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:A9991B0B14C67C5BD0C7D63674734190D2CDB56A
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Sally Face (2016-2019) [Ru/Multi] (1.5.46) License GOG [Episodes 1-5]
 magnet:?xt=urn:btih:F1EFE74ADE663424A7B84BEC5F8E69F7EB46E187
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:F1EFE74ADE663424A7B84BEC5F8E69F7EB46E187
 ```bash
 magnet:?xt=urn:btih:87A4A09773FCA592BB9B020584993F9751002FBF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:87A4A09773FCA592BB9B020584993F9751002FBF
 magnet:?xt=urn:btih:7E43AA543CA2E775F42A95D23D02C7BBFB93183F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -163,6 +175,8 @@ magnet:?xt=urn:btih:7E43AA543CA2E775F42A95D23D02C7BBFB93183F
 ```bash
 magnet:?xt=urn:btih:D14163802BA281F5BE79767C1368E23BF768247E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +203,8 @@ magnet:?xt=urn:btih:D14163802BA281F5BE79767C1368E23BF768247E
 magnet:?xt=urn:btih:4CD60E96DF89720389309BFF7423B44C6154C341
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +228,8 @@ MyLanViewer — программа для сканирования и монит
 ```bash
 magnet:?xt=urn:btih:CC5738784D1E7BB82A70DE4837FEADE91CA976B0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +255,8 @@ Aomei Partition Assistant – мощная программа для работ�
 magnet:?xt=urn:btih:4C359B22ABAE262B0ECE7D5D0100E44A01240072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +280,8 @@ BrushBoxx входит в группу цифровых библиотек, сп
 ```bash
 magnet:?xt=urn:btih:914CC486C75DAA22500C4A3B9554062B0983CBDA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +307,8 @@ Little Nightmares (2025) [Ru/Multi] (Build 19756066) Scene Rune [Enhanced Editio
 magnet:?xt=urn:btih:6C608068F42ACE802060939495441E539226E97E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -309,6 +333,8 @@ magnet:?xt=urn:btih:6C608068F42ACE802060939495441E539226E97E
 magnet:?xt=urn:btih:F37D2EA16A933F28A3D2FCF36273491BDBB9B583
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -332,6 +358,8 @@ magnet:?xt=urn:btih:F37D2EA16A933F28A3D2FCF36273491BDBB9B583
 ```bash
 magnet:?xt=urn:btih:3C1271A023B6694238C4607AC85D0F8D7D5446CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -360,6 +388,8 @@ magnet:?xt=urn:btih:3C1271A023B6694238C4607AC85D0F8D7D5446CD
 magnet:?xt=urn:btih:2C87F577F5F719E18FEECF54A0D0C4C40120A4E4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +413,8 @@ magnet:?xt=urn:btih:2C87F577F5F719E18FEECF54A0D0C4C40120A4E4
 ```bash
 magnet:?xt=urn:btih:AC03F25D64109B4F8D44667A61E2F56927719F90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -408,6 +440,8 @@ magnet:?xt=urn:btih:AC03F25D64109B4F8D44667A61E2F56927719F90
 magnet:?xt=urn:btih:1777487A782193923DA263E756C980DF02765175
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -432,6 +466,8 @@ magnet:?xt=urn:btih:1777487A782193923DA263E756C980DF02765175
 magnet:?xt=urn:btih:AC791D643D9D9305FF861CE36739B95A9DDECB6F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -455,6 +491,8 @@ magnet:?xt=urn:btih:AC791D643D9D9305FF861CE36739B95A9DDECB6F
 ```bash
 magnet:?xt=urn:btih:D05A08C716BB0CA630A580042DBB795745AA1C4A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -483,6 +521,8 @@ VA - Progressive Amsterdam 2025 (2025) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:340CCA8AAA3B95A4005682930F9911275A767A87
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +546,8 @@ Aomei Partition Assistant – мощная программа для работ�
 ```bash
 magnet:?xt=urn:btih:CF6DB0CFAC1A1EB37306E381A66FC5651C9DE034
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -531,6 +573,8 @@ magnet:?xt=urn:btih:CF6DB0CFAC1A1EB37306E381A66FC5651C9DE034
 magnet:?xt=urn:btih:FB0BF3DD9C094E06C8A65365E6D0C919A4579E01
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +598,8 @@ magnet:?xt=urn:btih:FB0BF3DD9C094E06C8A65365E6D0C919A4579E01
 ```bash
 magnet:?xt=urn:btih:20F0F3F851FE56310FEA5F6645C404AEB2DE8C79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -579,6 +625,8 @@ magnet:?xt=urn:btih:20F0F3F851FE56310FEA5F6645C404AEB2DE8C79
 magnet:?xt=urn:btih:F487D566797AAF0B428BE9C2D12268D75FC47429
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -603,6 +651,8 @@ magnet:?xt=urn:btih:F487D566797AAF0B428BE9C2D12268D75FC47429
 magnet:?xt=urn:btih:E051806022456F5731743C9F2682BCA73FDDB695
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -626,6 +676,8 @@ magnet:?xt=urn:btih:E051806022456F5731743C9F2682BCA73FDDB695
 ```bash
 magnet:?xt=urn:btih:5626889D5B8A5A6A209C1020DD8837E1A0767326
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

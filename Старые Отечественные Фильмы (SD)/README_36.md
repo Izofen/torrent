@@ -1,3 +1,29 @@
+###  Публикация: 1574368   (387757) от 04.09.2022
+
+Лев Толстой (1984) WEBRip (2 серии)
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_387757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм-хроника состоит из двух частей - «Бессонница» и «Уход». Зритель встречается с великим русским писателем в последние годы его жизни (1908-1910), однако воспоминания Льва Толстого возвращают нас и к событиям его молодости, и к поре решительного и страстного перелома в его взглядах. Финал - трагический уход из Ясной Поляны и смерть, ставшая началом бессмертия.Производство: СССР, Чехословакия / Киностудия им. М. Горького, SFT Koliba, СовинфильмЖанр: драма, биографияРежиссер: Сергей ГерасимовАктеры: Сергей Герасимов, Тамара Макарова, Борживой Навратил, Алексей Петренко, Екатерина Васильева, Виктор Проскурин, Николай Ерёменко мл., Алексей Шмаринов, Вячеслав Баранов, Марина ГаврилкоСубтитры: русские (отдельно)Продолжительность: 01:17:50 + 01:22:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AB65BEFDFD5FD86EC1DF417AC31C9529628F046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 571422   (387873) от 07.11.2012
 
 Заговор послов (1965) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:C5A13390BD3F0E8DD4A474B15ADAB6EDC70681CD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:C5A13390BD3F0E8DD4A474B15ADAB6EDC70681CD
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:C5A13390BD3F0E8DD4A474B15ADAB6EDC70681CD
 magnet:?xt=urn:btih:337A828C53BA74AA08C31B20B80908D6E052A072
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:337A828C53BA74AA08C31B20B80908D6E052A072
 ```bash
 magnet:?xt=urn:btih:2EC10B7DA54C3207D10647E49FD9B27E9FACBEA3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:2EC10B7DA54C3207D10647E49FD9B27E9FACBEA3
 magnet:?xt=urn:btih:40870BA93D7C3D0BE09EEE12C502625E2643E9F9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:40870BA93D7C3D0BE09EEE12C502625E2643E9F9
 ```bash
 magnet:?xt=urn:btih:49BE6D3E63A28610AA454B37EEB8AB8A5C589991
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +204,8 @@ magnet:?xt=urn:btih:49BE6D3E63A28610AA454B37EEB8AB8A5C589991
 magnet:?xt=urn:btih:CAD8830B1FB2CF3494DCD7908DC526BF7AD20E05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:CAD8830B1FB2CF3494DCD7908DC526BF7AD20E05
 ```bash
 magnet:?xt=urn:btih:3A45C1EA7C3AA8EF9899B2BE8A3E03120912F76A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:3A45C1EA7C3AA8EF9899B2BE8A3E03120912F76A
 magnet:?xt=urn:btih:C7D197EDF32F4AECAEACD338BF7A800E0CBE129E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:C7D197EDF32F4AECAEACD338BF7A800E0CBE129E
 ```bash
 magnet:?xt=urn:btih:FD896214690E86B3C6EB2974E1E2EF1321D2FFA7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +310,8 @@ magnet:?xt=urn:btih:FD896214690E86B3C6EB2974E1E2EF1321D2FFA7
 magnet:?xt=urn:btih:13CA9DD1361AC3230F256C131835FC30D50A2CCA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -287,6 +335,8 @@ magnet:?xt=urn:btih:13CA9DD1361AC3230F256C131835FC30D50A2CCA
 ```bash
 magnet:?xt=urn:btih:5354EEB244552E5C84D7A4EC71C9984485747EA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:5354EEB244552E5C84D7A4EC71C9984485747EA4
 magnet:?xt=urn:btih:10167D3B99B02A6C8C9EE8C13593B0A78DD3B784
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -336,6 +388,8 @@ magnet:?xt=urn:btih:10167D3B99B02A6C8C9EE8C13593B0A78DD3B784
 ```bash
 magnet:?xt=urn:btih:5B903CE24A8929B2764A751EEF729D6642722D85
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -363,6 +417,8 @@ magnet:?xt=urn:btih:5B903CE24A8929B2764A751EEF729D6642722D85
 magnet:?xt=urn:btih:88BC017DD008E8B9332F1D6864D6518653A7A6D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +444,8 @@ magnet:?xt=urn:btih:88BC017DD008E8B9332F1D6864D6518653A7A6D4
 magnet:?xt=urn:btih:16E93E1A0F5E1FEDC27CA819A6EEF3CCE4875434
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -411,6 +469,8 @@ magnet:?xt=urn:btih:16E93E1A0F5E1FEDC27CA819A6EEF3CCE4875434
 ```bash
 magnet:?xt=urn:btih:FD1727A9FB3F74E8944E2C4C7FD8FC2DAE7CB605
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +497,8 @@ magnet:?xt=urn:btih:FD1727A9FB3F74E8944E2C4C7FD8FC2DAE7CB605
 magnet:?xt=urn:btih:3B51E7849DA39E0767544AB8BFDBEF2997390BA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +523,8 @@ magnet:?xt=urn:btih:3B51E7849DA39E0767544AB8BFDBEF2997390BA4
 ```bash
 magnet:?xt=urn:btih:4698A3EE2C1AF140646ACD5D22688F1C48445FCB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -487,6 +551,8 @@ magnet:?xt=urn:btih:4698A3EE2C1AF140646ACD5D22688F1C48445FCB
 magnet:?xt=urn:btih:5885B00BA95A9FF2D5C34BDCAB6E29F20507D2D4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +576,8 @@ magnet:?xt=urn:btih:5885B00BA95A9FF2D5C34BDCAB6E29F20507D2D4
 ```bash
 magnet:?xt=urn:btih:006AF1C13320865BDE6DD4EB811BB67B53228D62
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -536,6 +604,8 @@ magnet:?xt=urn:btih:006AF1C13320865BDE6DD4EB811BB67B53228D62
 magnet:?xt=urn:btih:69D618D64553336B9A1E6A9094F146D02DC29CFF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:69D618D64553336B9A1E6A9094F146D02DC29CFF
 ```bash
 magnet:?xt=urn:btih:D93ED3C604F7B24F532E17C5A8ABF81B76B5260B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -585,6 +657,8 @@ magnet:?xt=urn:btih:D93ED3C604F7B24F532E17C5A8ABF81B76B5260B
 magnet:?xt=urn:btih:FC10783439E88EC44293E9066CC80CA499CB9009
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -609,30 +683,7 @@ magnet:?xt=urn:btih:FC10783439E88EC44293E9066CC80CA499CB9009
 magnet:?xt=urn:btih:4EF1C36D391001DEC7A9B5D5A5A9932721378CD3
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565628   (398116) от 28.10.2012
-
-Как он лгал её мужу (1956) SATRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_398116.jpg" />
-</div>
-
-
-###  Подробнее
-
-По пьесе Бернарда Шоу.
-Аврора Бомпас теряет тетрадь стихов, посвященных ей возлюбленным Генри. Тетрадь находит ее муж Тедди Бомпас. Генри и Аврора, что только не предпринимают, чтобы скрыть от Тедди, кому посвящены эти стихи. Но развязка непредсказуема. Оказывается, что муж, намеревается опубликовать стихи - пусть все знают, что его жена самая очаровательная и обольстительная женщина на свете...Жанр: КомедияРежиссер: Татьяна БерезанцеваАктеры: Елена Кузьмина, Иннокентий Смоктуновский, Аркадий ЦинманПродолжительность: 00:26:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B65AF044A70006B8E4A1BC3D1CB8F4EF0B319ED
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

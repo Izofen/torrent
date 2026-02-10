@@ -19,6 +19,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ RAW Power 2.1.3 [En]
 ```bash
 magnet:?xt=urn:btih:E975F2CB9AD8EFC3341DD0345C319EADA5A1BB8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -72,6 +76,8 @@ The Hot Club of San Francisco - John Paul George & Django (2016) [FLAC|Lossless|
 magnet:?xt=urn:btih:F59058BFF9F0CFB46219CD2AC77B0567CB77CE9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ Charlie Watts Meets The Danish Radio Big Band (2017) Impulse! [FLAC|Lossless|tra
 magnet:?xt=urn:btih:17D86E0C045C2170BC40B3D30E6409A179806390
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ Unite позволяет быстро и легко превратить веб-
 ```bash
 magnet:?xt=urn:btih:A743D471055167A16946B81B2764327FB6FB5A78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ ScreenFlow - создаем свои скринкасты
 magnet:?xt=urn:btih:6480595BC51E69948957D5C4515FF6452C3D3D07
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -177,6 +189,8 @@ Panphage - Jord (2018) [FLAC|Lossless|image + .cue] <Black Metal>
 magnet:?xt=urn:btih:C341813AA96ED3C47688412A286CFC28E11DD06A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -201,6 +215,8 @@ Wondershare AllMyMusic для Mac позволяет записывать про
 ```bash
 magnet:?xt=urn:btih:AEA8B4B37A8EC447B628E727664572E53C0AE586
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -229,6 +245,8 @@ iClip позволяет быстро заносить и хранить неб�
 magnet:?xt=urn:btih:285E406D82443A754F89D6ED7175A661C967DFFE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ Omnibox позволяет (   Читать дальше...   )Тип изда�
 ```bash
 magnet:?xt=urn:btih:C2D38C492F5C8C062695BB4EDBF9728852DB2193
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -282,6 +302,8 @@ Steve Grossman - Katonah (1989) [FLAC|Lossless|tracks + .cue] <Hard Bop>
 magnet:?xt=urn:btih:2320FE2EC576CB8ACDA9E0F4A27D555CC996DC3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -305,6 +327,8 @@ ExactScan – современное решение для сканирован�
 ```bash
 magnet:?xt=urn:btih:40288BFBF02A3453C2CE04C7E3AA6B684B667724
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +357,8 @@ D.E.W. East - Introducing D.E.W. East (1999) [FLAC|Lossless|tracks + .cue] <Hard
 magnet:?xt=urn:btih:C37442FA0C9690774036F355E56A92896D8DE608
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -357,6 +383,8 @@ Far Cry 5 (2018) [Ru/Multi] (1.011/dlc) Repack R.G. Catalyst [Gold Edition]
 magnet:?xt=urn:btih:963D596116F7E4F2FCA1FF865CCACA2E7E202283
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ S.T.A.L.K.E.R.: Зов Припяти - «Смерти вопреки». В це
 ```bash
 magnet:?xt=urn:btih:9F76B432E8CEF24BB469CFC7E9BEC13B2D55FB0D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -406,6 +436,8 @@ magnet:?xt=urn:btih:9F76B432E8CEF24BB469CFC7E9BEC13B2D55FB0D
 magnet:?xt=urn:btih:7D1ECA97794AD65F2B03C3DC0B8D947062FE0B23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -429,6 +461,8 @@ magnet:?xt=urn:btih:7D1ECA97794AD65F2B03C3DC0B8D947062FE0B23
 ```bash
 magnet:?xt=urn:btih:5C616EBA1BD3CF71DF9FD3B232C8353CECCA9DB4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +488,8 @@ magnet:?xt=urn:btih:5C616EBA1BD3CF71DF9FD3B232C8353CECCA9DB4
 magnet:?xt=urn:btih:19E4CD1E0FEEDCCC2A50C1E10F9BCA91A714685D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -477,6 +513,8 @@ Need for Speed: Most Wanted – безумные гонки по огромно�
 ```bash
 magnet:?xt=urn:btih:173283ABC46A9D9BB306B197281DB796DD9DD9C4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -502,6 +540,8 @@ AlReader — удобная программа для чтения электр�
 magnet:?xt=urn:btih:A4A3D041D5E9772A1D550BCB494053E4D92789D9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +565,8 @@ Two Worlds II & Pirates of the Flying Fortress / Два Мира 2 & Пират�
 ```bash
 magnet:?xt=urn:btih:2D0485193BF10F7D2F3607C55437D017556770D5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -550,6 +592,8 @@ Hellblade: Senua's Sacrifice (2017) [Ru/Multi] (1.03) Repack xatab
 magnet:?xt=urn:btih:FCABCA6BA475022043326E490FCBCB36208BC36E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -573,6 +617,8 @@ magnet:?xt=urn:btih:FCABCA6BA475022043326E490FCBCB36208BC36E
 ```bash
 magnet:?xt=urn:btih:83623404595164102AA3308FD97045591CBA0921
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -598,6 +644,8 @@ magnet:?xt=urn:btih:83623404595164102AA3308FD97045591CBA0921
 magnet:?xt=urn:btih:7194EDC80F7EF821967F76472D393E8CA5E9F601
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +669,8 @@ Dragon Age 2 / Эпоха Дракона 2 (2011) [Ru/En] (1.0.4.0/dlc) Repack F
 ```bash
 magnet:?xt=urn:btih:5EA3CCB2939A5502CF297DA2A5F8244ECA055AA6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -648,6 +698,8 @@ Paravis Flash ver:Assay 11.2018 [UEFI | x86/x64 | RU/EN]
 ```bash
 magnet:?xt=urn:btih:0C4EEE3E93E2D6FF4B9A94AC3BF090D02853838C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

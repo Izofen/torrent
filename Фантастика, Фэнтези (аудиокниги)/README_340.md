@@ -1,3 +1,29 @@
+###  Публикация: 1062193   (439802) от 14.10.2016
+
+Брэм Стокер | Проклятие мумии, или Камень семи звезд (2015) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_439802.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Проклятие мумии, или Камень семи звезд", ранее издававшийся под названием "Талисман мумии". Успешный адвокат полюбил прекрасную Маргарет — дочь знаменитого ученого-египтолога. Именно отец девушки нашел мумию египетской царицы Теры, добровольно ушедшей из жизни, чтобы воскреснуть через тысячелетия. И вот дух царицы обрел свободу... Ожившая мумия, (   Читать дальше...   )Жанр: Фэнтези, ужасыПродолжительность: 09:29:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3682A448B7892EE291316B4F53FF848A4ECA0E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248729   (439824) от 21.09.2018
 
 Карлос Руис Сафон | Сентябрьские огни (2018) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:7B3DA6C0974D572B5E0CE7BEB555526B4E312C01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:7B3DA6C0974D572B5E0CE7BEB555526B4E312C01
 magnet:?xt=urn:btih:8089BAF61532FC693864320B41483D4D14B97937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +99,8 @@ magnet:?xt=urn:btih:8089BAF61532FC693864320B41483D4D14B97937
 magnet:?xt=urn:btih:BF735A919ED7F41A5FE94EC965656AECC2B3F4A8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -92,6 +124,8 @@ magnet:?xt=urn:btih:BF735A919ED7F41A5FE94EC965656AECC2B3F4A8
 ```bash
 magnet:?xt=urn:btih:BB497BB762A0F219DBDBDD0D0F4AD87CAD910992
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -119,6 +153,8 @@ magnet:?xt=urn:btih:BB497BB762A0F219DBDBDD0D0F4AD87CAD910992
 magnet:?xt=urn:btih:85299AA598B693488230D5891AB5E12A9DA339F1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +178,8 @@ magnet:?xt=urn:btih:85299AA598B693488230D5891AB5E12A9DA339F1
 ```bash
 magnet:?xt=urn:btih:805C2F3FB77BD8D3288F16C859F047D3894A44BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:805C2F3FB77BD8D3288F16C859F047D3894A44BA
 ```bash
 magnet:?xt=urn:btih:253DB96C2932455A0764F829D5CD9849DEBF1718
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -194,6 +234,8 @@ magnet:?xt=urn:btih:253DB96C2932455A0764F829D5CD9849DEBF1718
 magnet:?xt=urn:btih:3A63C608E5D2BD57220A43D509CE7ADE3889C33E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +260,8 @@ magnet:?xt=urn:btih:3A63C608E5D2BD57220A43D509CE7ADE3889C33E
 magnet:?xt=urn:btih:B5C6073A985D1CDB634EE6193FD39AF4AC2D0B4C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -241,6 +285,8 @@ magnet:?xt=urn:btih:B5C6073A985D1CDB634EE6193FD39AF4AC2D0B4C
 ```bash
 magnet:?xt=urn:btih:1277916FE7E3B815B5F2BBDC2FE50D783481D075
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -268,6 +314,8 @@ magnet:?xt=urn:btih:1277916FE7E3B815B5F2BBDC2FE50D783481D075
 magnet:?xt=urn:btih:AD798BCE9BE827B0160D432F6E0372C1DF968815
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +339,8 @@ magnet:?xt=urn:btih:AD798BCE9BE827B0160D432F6E0372C1DF968815
 ```bash
 magnet:?xt=urn:btih:B1C02D551EFECF87D69A46602822BA05C4224AF4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +366,8 @@ magnet:?xt=urn:btih:B1C02D551EFECF87D69A46602822BA05C4224AF4
 magnet:?xt=urn:btih:80C03FB2691BAE99B683F65A2908B4E1EFDFB911
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +391,8 @@ magnet:?xt=urn:btih:80C03FB2691BAE99B683F65A2908B4E1EFDFB911
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -366,6 +420,8 @@ magnet:?xt=urn:btih:80C03FB2691BAE99B683F65A2908B4E1EFDFB911
 magnet:?xt=urn:btih:3D6A89C9AAB5BB5B87B106C11D7576B6751021DB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +446,8 @@ magnet:?xt=urn:btih:3D6A89C9AAB5BB5B87B106C11D7576B6751021DB
 ```bash
 magnet:?xt=urn:btih:9CC281723D5025DBCF76B7751D3C71077F9CC40C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -419,6 +477,8 @@ magnet:?xt=urn:btih:9CC281723D5025DBCF76B7751D3C71077F9CC40C
 magnet:?xt=urn:btih:06CC5E0EA3798C9A0E108AC7B1B00F86655BA7F0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -443,6 +503,8 @@ magnet:?xt=urn:btih:06CC5E0EA3798C9A0E108AC7B1B00F86655BA7F0
 magnet:?xt=urn:btih:0BE088F9E0A664A557F557AC6F22C61B398A96BE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -466,6 +528,8 @@ magnet:?xt=urn:btih:0BE088F9E0A664A557F557AC6F22C61B398A96BE
 ```bash
 magnet:?xt=urn:btih:42AA2FCA92AE0FDC02D279A53463217652FCD370
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -492,6 +556,8 @@ magnet:?xt=urn:btih:42AA2FCA92AE0FDC02D279A53463217652FCD370
 magnet:?xt=urn:btih:B0AB8BFC5208C46D39A2636D71ADC8F85EDFD6E6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -515,6 +581,8 @@ magnet:?xt=urn:btih:B0AB8BFC5208C46D39A2636D71ADC8F85EDFD6E6
 ```bash
 magnet:?xt=urn:btih:06F84968C4E4B2D08409B99ECECAD28EA2D59C5B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -540,6 +608,8 @@ magnet:?xt=urn:btih:06F84968C4E4B2D08409B99ECECAD28EA2D59C5B
 magnet:?xt=urn:btih:F91F76A719D01FABB5402F6AD0F95010370FF455
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -564,6 +634,8 @@ magnet:?xt=urn:btih:F91F76A719D01FABB5402F6AD0F95010370FF455
 ```bash
 magnet:?xt=urn:btih:7A33F69DE610389F03886EDAF1C92DFC7F5067AD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -591,6 +663,8 @@ magnet:?xt=urn:btih:7A33F69DE610389F03886EDAF1C92DFC7F5067AD
 magnet:?xt=urn:btih:2680BB6D59BA75F29BF857C68A4AC157F10D64CE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,29 +689,7 @@ magnet:?xt=urn:btih:2680BB6D59BA75F29BF857C68A4AC157F10D64CE
 magnet:?xt=urn:btih:079BF528190DF17251B795BBACD267FD04B3BC21
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061800   (443548) от 12.10.2016
-
-Александр Мазин | Кровь Севера (2016) [MP3,  Ironclad]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_443548.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ульф Черноголовый, в прошлом – Николай Переляк, встает под знамя Ворона, знамя легендарного датского конунга Рагнара Лотброка. Великий поход свирепых норманов, разоривших Западную Европу, будут помнить и через тысячу лет. Но каково это – быть одним из героев-викингов, самых лучших и самых страшных воинов того времени? И что будет, когда на истерзанную междоусобными (   Читать дальше...   )Жанр: ФэнтезиИздательство: Аудиокнига своими рукамиПродолжительность: 11:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F03378D2790508458F52495952F5B5738E0B98
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

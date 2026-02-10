@@ -28,6 +28,8 @@ Axxis - 2CD (2006-2007) [WavPack|Lossless]<Power / Heavy Metal>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -53,6 +55,8 @@ Axxis - 2CD (2006-2007) [WavPack|Lossless]<Power / Heavy Metal>
 ```bash
 magnet:?xt=urn:btih:740480A1FC77C0AF2E382E69CD12EF3FCF3AD2C1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -87,6 +91,8 @@ VA - Xmasters 2011 (2011) [MP3|320 кб/с]<Techno, Minimal>
 magnet:?xt=urn:btih:D45C143434E866C2BB0C7B14785D85C8344808E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -111,6 +117,8 @@ magnet:?xt=urn:btih:D45C143434E866C2BB0C7B14785D85C8344808E9
 ```bash
 magnet:?xt=urn:btih:94971ACFB8C80D377F84A2BFC9DEDF85C2E9457A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -145,6 +153,8 @@ VA - Boiled & Beeing (2012) [MP3|320 кб/с]<Techno, Tech House>
 magnet:?xt=urn:btih:3A121EEA5180076B0858B58A709FE3DBB25B4AC9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +178,8 @@ magnet:?xt=urn:btih:3A121EEA5180076B0858B58A709FE3DBB25B4AC9
 ```bash
 magnet:?xt=urn:btih:860141B9BCF8A75B8D1BF3DF18BD66199DB926C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +210,8 @@ Dishonour The Crown - Gone To The Dogs (2012) [MP3|320 кб/с]<Thrash Metal, Cr
 magnet:?xt=urn:btih:B8E84D065B24B8BBE6FEFED96C584C4D22ED4A15
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +235,8 @@ magnet:?xt=urn:btih:B8E84D065B24B8BBE6FEFED96C584C4D22ED4A15
 ```bash
 magnet:?xt=urn:btih:16ECE8F93D6D6A9F0080B99D413F7E9E6239C971
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -247,6 +263,8 @@ magnet:?xt=urn:btih:16ECE8F93D6D6A9F0080B99D413F7E9E6239C971
 ```bash
 magnet:?xt=urn:btih:341630DF30457DA7B33B4812DAFA1550F87D1063
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -281,6 +299,8 @@ Motus Tenebrae - Double Black (2012) [MP3|320 кб/с]<Gothic Dark Metal>
 magnet:?xt=urn:btih:E2F954ECDA7CA7D1FFBED099C45A17AAB799157C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -306,6 +326,8 @@ magnet:?xt=urn:btih:E2F954ECDA7CA7D1FFBED099C45A17AAB799157C
 magnet:?xt=urn:btih:D6859A1F914BBE2B13FC2B457070421AE5D37F1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +352,8 @@ magnet:?xt=urn:btih:D6859A1F914BBE2B13FC2B457070421AE5D37F1E
 magnet:?xt=urn:btih:8A703789FA37F03E93E096493BD277B15403CCC5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -353,6 +377,8 @@ Adobe Photoshop Lightroom Classic 2024 13.0.2.1 (x64) Portable by 7997 [Multi/Ru
 ```bash
 magnet:?xt=urn:btih:549A807C7E2DCCE86111061F80DE926E3D45235F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -385,6 +411,8 @@ Moogwai - 5 Wishes & More (2005) [MP3|320 кб/с]<Trance, Progressive Trance>
 magnet:?xt=urn:btih:703FD206FFCEDE84110CEC54A0B0143144044BB9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -408,6 +436,8 @@ SamDrivers 23.12 LAN [Multi/Ru]
 ```bash
 magnet:?xt=urn:btih:6DD9F9E5F67CB5617E7866FAC33ACA0907256BEE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +463,8 @@ GPU-Z - бесплатная программа от TechPowerUp для отоб
 magnet:?xt=urn:btih:7A7E400CAD608C071CDE37B7E1DB518BFF35822E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -456,6 +488,8 @@ W10Privacy - программа для изменения настроек си�
 ```bash
 magnet:?xt=urn:btih:B26BE4FFF65775A9BBB31D5BC54ECDD97519C079
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -482,6 +516,8 @@ AIMP 5.30 Build 2530 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:5E8DF0E238FEBA11E81AF481E261873D813C9BC6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -507,6 +543,8 @@ LDPlayer 9 — мощный бесплатный эмулятор устройс
 magnet:?xt=urn:btih:A6EAF1AF372FA384CEA3A9341665FC6641CB5C3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -531,6 +569,8 @@ NetPolice Lite предназначен для: Ограничения дост�
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -554,6 +594,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:8228D5C4F086888B33ABC2CDC93F03F2F2DB7486
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +623,8 @@ Telegram Messenger - простой и бесплатный кроссплатф
 magnet:?xt=urn:btih:822D1CBE1B1EE19E0A4C487BA52C99ABF0A78541
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +648,8 @@ Topaz Photo AI — это универсальный инструмент для
 ```bash
 magnet:?xt=urn:btih:E7076F086A6B2A3E47897548B8100022F5A01D32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -631,6 +677,8 @@ The Darkness 2 / II: Limited Edition [Ru/En] (L/1.0/4 DLC) 2012 | 2DVD5
 magnet:?xt=urn:btih:2BE73D3C4043AC360E501C2CC531F1459A786F45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -655,6 +703,8 @@ MediaInfo — позволит узнать техническую информ�
 magnet:?xt=urn:btih:30B41F19A72F6E504C592471F257CF13DF4A868A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -678,6 +728,8 @@ magnet:?xt=urn:btih:30B41F19A72F6E504C592471F257CF13DF4A868A
 ```bash
 magnet:?xt=urn:btih:8F090B5966A02CEA7B438C506392434C320710EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:062196E438DEE5F6FC718DC348805A105D95B1A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ JRiver Media Center - мультимедийный центр. Воспроиз�
 ```bash
 magnet:?xt=urn:btih:5A951E2F3E7F504B03FF7D4B77CEE47B5A97F7E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +71,8 @@ magnet:?xt=urn:btih:5A951E2F3E7F504B03FF7D4B77CEE47B5A97F7E3
 magnet:?xt=urn:btih:C1CD55EAAE7B4F81A86D9F86CD07626B97E08ADA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +96,8 @@ Speedtest - это приложение предназначено для опр
 ```bash
 magnet:?xt=urn:btih:31F6246B83AEEB5DEB6600A22073DB740D6DE43D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +123,8 @@ magnet:?xt=urn:btih:31F6246B83AEEB5DEB6600A22073DB740D6DE43D
 magnet:?xt=urn:btih:9AB7B84EE258C94A9B7A5C89955EF942AC4B9E4D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +148,8 @@ Cursed Fables 2: Twisted Tower (2022) [En] (1.0) Unofficial [Collector's Edition
 ```bash
 magnet:?xt=urn:btih:71A4039E3322CEE2B20B661E609219E3891D9BD6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -166,6 +178,8 @@ VA - EDM Rave 2020 Electronic Dance Trance Dubstep Techno House (2019) [MP3|320 
 magnet:?xt=urn:btih:F7A0E76E005CEC01DE6392B05A1551288B450133
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -191,6 +205,8 @@ DICE | Артбук по игре Battlefield 2042 / The Art of Battlefield 2042
 ```bash
 magnet:?xt=urn:btih:C62D7CABC3151FEF3B3854209E408DEE385CBCE2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ Nicholas Payton - The Couch Sessions (2022) Smoke Sessions Records [FLAC|Lossles
 magnet:?xt=urn:btih:C87D0857DA1B2D1177048355578D73B716BEAED7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:C87D0857DA1B2D1177048355578D73B716BEAED7
 ```bash
 magnet:?xt=urn:btih:32F9C75CF4468D6A95943A00E9A1BF403CF76060
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ Sensei - это приложение, которое охватывает как
 magnet:?xt=urn:btih:B981D71AAD31C674C68D37CD031AF3F5D3CA6CF2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +312,8 @@ magnet:?xt=urn:btih:B981D71AAD31C674C68D37CD031AF3F5D3CA6CF2
 ```bash
 magnet:?xt=urn:btih:8D78357487AA213BA89C879DECE8CA7ECD696772
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -316,6 +340,8 @@ Mirillis Action! 4.14.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 magnet:?xt=urn:btih:67E753A53FEB7C233B7ACD8309EF6B2B4055357F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -339,6 +365,8 @@ Kdenlive - бесплатный нелинейный видеоредактор,
 ```bash
 magnet:?xt=urn:btih:31C16F5946212693C457A9871D00854D5397B4FA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -367,6 +395,8 @@ Skylark - Divine Gates Part I Gate Of Hell (1999) [FLAC|Lossless|image + .cue] <
 magnet:?xt=urn:btih:3BB270DEE2BD48237FF5DE7185C518AD89DCC80D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -390,6 +420,8 @@ Scapple — это простой в использовании инструме
 ```bash
 magnet:?xt=urn:btih:36E07F4A40B69F4D45B0EA56F7B0C91DB88BF27B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -418,6 +450,8 @@ YouTube Downloader - Удобная программа-загрузчик для
 magnet:?xt=urn:btih:B28C3773975F1C87AF103C44F21AFE12630AAA7E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -441,6 +475,8 @@ magnet:?xt=urn:btih:B28C3773975F1C87AF103C44F21AFE12630AAA7E
 ```bash
 magnet:?xt=urn:btih:A1213A1F9114AC83B242AEB120F4D7321774E5DC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -469,6 +505,8 @@ Jeff Lorber Fusion - The Drop (2023) Shanachie [FLAC|Lossless|tracks + .cue] <Sm
 magnet:?xt=urn:btih:CDB9F2F1175FB288DA1B7C59B8D1FDCDDD2B592F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -494,6 +532,8 @@ magnet:?xt=urn:btih:CDB9F2F1175FB288DA1B7C59B8D1FDCDDD2B592F
 magnet:?xt=urn:btih:D3A1EB71EB7576C0A403A31F6B8DA2C6FB6BF74A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -517,6 +557,8 @@ magnet:?xt=urn:btih:D3A1EB71EB7576C0A403A31F6B8DA2C6FB6BF74A
 ```bash
 magnet:?xt=urn:btih:A2405154A6989B38E3E6E7E1D46B59BDD70A3C5D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +587,8 @@ Overland - S.I.X (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
 magnet:?xt=urn:btih:7D58BD8F17FBBD23F8333A9640EE30F2374B5E74
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -568,6 +612,8 @@ magnet:?xt=urn:btih:7D58BD8F17FBBD23F8333A9640EE30F2374B5E74
 ```bash
 magnet:?xt=urn:btih:EDD490DB1E77ED822265E1FE5627993AB2E9901B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -593,6 +639,8 @@ OTUS | AWS для разработчиков (Часть 1-3) (2020) PCRec
 magnet:?xt=urn:btih:CF5791C3EBAA08DF5520D9681A1F084B3C8F1BB7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -617,6 +665,8 @@ Wise Registry Cleaner - утилита для безопасной чистки 
 magnet:?xt=urn:btih:015977B41B26E620213582D4A10CCCA1F2772BF7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -640,6 +690,8 @@ magnet:?xt=urn:btih:015977B41B26E620213582D4A10CCCA1F2772BF7
 ```bash
 magnet:?xt=urn:btih:672F061EFF61111C1A43E708910D85CC872006FC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

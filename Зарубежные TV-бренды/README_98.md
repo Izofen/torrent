@@ -19,6 +19,8 @@ BBC. Порядок и беспорядок / Order and Disorder (2012) BDRip [H
 magnet:?xt=urn:btih:BB0DED5391A737ABEF1D55B9838DE4230A78D937
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -42,6 +44,8 @@ BBC. Наука и ислам / Science and Islam (2009) HDTVRip [H.264/720p] [3
 ```bash
 magnet:?xt=urn:btih:72AB3DC73CD98C72111F1FB3FBA2082ED70F4D79
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -68,6 +72,8 @@ BBC. Планета муравьёв: Взгляд изнутри / Planet Ant: 
 magnet:?xt=urn:btih:58E51AAA1E9D05370CC211F14B327DABCC625041
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ BBC: Да Винчи: Утерянное сокровище / Da Vinci: The Lost
 ```bash
 magnet:?xt=urn:btih:72B6B149F9AA6CB347F9EFBDA1DBD2FE48B2E933
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -116,6 +124,8 @@ NG: Королевство белого волка / Kingdom of The White Wolf (
 magnet:?xt=urn:btih:441A3088BDAC01A3AC0B696290E2B4AF43BC84D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -139,6 +149,8 @@ magnet:?xt=urn:btih:441A3088BDAC01A3AC0B696290E2B4AF43BC84D5
 ```bash
 magnet:?xt=urn:btih:E73A91C54CEBE5D8D7F995E757AA47C08082B046
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +176,8 @@ NG. Комета века / Comet of the century (2013) HDTVRip [H.264/720p-LQ]
 magnet:?xt=urn:btih:C8EC58C73052F332DC69FCE5CD78E54FB606AC3F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +201,8 @@ PBS. Восстание дронов / Rise of the Drones (2013) WEB-DLRip [H.26
 ```bash
 magnet:?xt=urn:btih:456A5537D3FA74DEC5D8D1D3B69F80DB103E1044
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -212,6 +228,8 @@ NG. Чудо-юдо динозавры / Bizarre Dinosaurs / Weirdest Dinosaurs 
 magnet:?xt=urn:btih:283C305E75F8CFA4749F614427DE9A02DB0E3DD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -235,6 +253,8 @@ NG. Убийство Кеннеди / Killing Kennedy (2013) HDTVRip [H.264/720p
 ```bash
 magnet:?xt=urn:btih:F22AC24B11D2C3037BFC4C6D8B381A0FDA6F7E1E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -260,6 +280,8 @@ Discovery. Шахты на Луне / Mining the Moon (2008) HDTVRip [H.264/720p
 magnet:?xt=urn:btih:39DE8BAC71955EE4132B273FDD7A9D911E4DAEED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -283,6 +305,8 @@ Animal Planet: Дом для рептилий. Приключения цепко
 ```bash
 magnet:?xt=urn:btih:2E15C7B76F3FCE6175D3A427ACAB393FBA77687F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -308,6 +332,8 @@ magnet:?xt=urn:btih:2E15C7B76F3FCE6175D3A427ACAB393FBA77687F
 magnet:?xt=urn:btih:AFB7F09CE7426DBEC36E69C5491E6A9B3DCBE9BC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -331,6 +357,8 @@ magnet:?xt=urn:btih:AFB7F09CE7426DBEC36E69C5491E6A9B3DCBE9BC
 ```bash
 magnet:?xt=urn:btih:3D7C6A38B0909D49A7957969B009AAF33FA4F839
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -356,6 +384,8 @@ magnet:?xt=urn:btih:3D7C6A38B0909D49A7957969B009AAF33FA4F839
 magnet:?xt=urn:btih:68AA487C31DF4942337C2726FEE90189562BA920
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -379,6 +409,8 @@ NG: Как устроен интернет. 50 лет онлайн / Inside the 
 ```bash
 magnet:?xt=urn:btih:DB1F2EF0022E0805CC97E758CD5C917FBD8AA082
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +436,8 @@ magnet:?xt=urn:btih:DB1F2EF0022E0805CC97E758CD5C917FBD8AA082
 magnet:?xt=urn:btih:C3AABA2A46DE0232B60117D8674E13B5CCAEC160
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -427,6 +461,8 @@ magnet:?xt=urn:btih:C3AABA2A46DE0232B60117D8674E13B5CCAEC160
 ```bash
 magnet:?xt=urn:btih:169F8068FAD299EA3365C4B5A5C1B58FC982D4EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -453,6 +489,8 @@ Discovery Communikations, LLCЖанр: ДокументальныйПерево�
 magnet:?xt=urn:btih:BA824B490AFA0D70528A8C7B1127C98AB5D1187A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -476,6 +514,8 @@ Animal Planet: Знакомство с пингвинами / Meet the Penguins 
 ```bash
 magnet:?xt=urn:btih:FADDBA379084B6975369453A2F8047745C39CE07
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -501,6 +541,8 @@ NGW: Дикая Корея. За границей / Wild Korea. Voice of nature 
 magnet:?xt=urn:btih:03DFF31C13CB4A83CF7F4F9AC09EC1E339C91E0F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -525,6 +567,8 @@ History Channel: Автомобильная нация / Car Nation (2017) HDTVR
 magnet:?xt=urn:btih:18A1B650F9BDEBA358EAE02859B6A071AD556B82
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -548,6 +592,8 @@ NG: C точки зрения науки: Вымирание человечес�
 ```bash
 magnet:?xt=urn:btih:29C95418717F013F9A9D730A12548CCD734EBDD9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +620,8 @@ NGW: Рожденные в Африке. Опасная игровая площ�
 magnet:?xt=urn:btih:E8DE9424BC37A3492DFFB6CA06782239648D881F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +646,8 @@ magnet:?xt=urn:btih:E8DE9424BC37A3492DFFB6CA06782239648D881F
 magnet:?xt=urn:btih:7F6046F1416EFDC30BC021887DC2F3E04F9B7A3C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +671,8 @@ NG: Как устроен интернет. 50 лет онлайн / Inside the 
 ```bash
 magnet:?xt=urn:btih:2FD7275F81891C1DC71B05F0F0EE7B12A4B7D662
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

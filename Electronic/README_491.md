@@ -22,6 +22,8 @@ VA - Sotto Il Sole A Ritmo Di Chillout (2016) [MP3|320 кб/с] <Downtempo, Chil
 magnet:?xt=urn:btih:97B2FAFA1305620BC08C477C322A9D1044F5FE41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Soleados Chillout Beats (2015) [MP3|320 кб/с] <Downtempo, Chillout, Loun
 ```bash
 magnet:?xt=urn:btih:DBB13E6149E524A5E4F45FFE4D18C58AA1EDDFF5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Jeff & Jane Hudson - Flesh (1983) Reissue CD, 2000, Daft Records [MP3|320 Kbps] 
 magnet:?xt=urn:btih:E15D6110ADC7C569E7E2EF86A45602C4F08BCF3B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Klangkunst Vol.2 (2014) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Am
 ```bash
 magnet:?xt=urn:btih:61828A7356C24D934C3EC549B81E9D6B0A46EE4C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Gym Floor Energy 2020 [MP3|320 Kbps] <Progressive House>
 magnet:?xt=urn:btih:DFC280C3728DEF837C91C9B70DC01A1CA1BC5437
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Klangkunst (2013) [FLAC|Lossless|tracks + .cue] <House, Downtempo, Ambient>
 ```bash
 magnet:?xt=urn:btih:01CA95F3BEF81D825515DDF083D0AFE3D05C536B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +202,8 @@ Disc1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -216,6 +230,8 @@ Dvar - Roah (2003)  [FLAC|Lossless|image + .cue] <Darkwave>
 ```bash
 magnet:?xt=urn:btih:44502443FC9C388AA7E55651986DB4BE2B8E1C67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -244,6 +260,8 @@ VA - Club 86 Recordings Best Of (2015) [MP3|320 кб/с] <House, Club House>
 magnet:?xt=urn:btih:442F9A784A01C4498A6D163A64891AE1C459D660
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +287,8 @@ Dirty Vegas - Days Go By (2002) [FLAC|Lossless|tracks + .cue] <Progressive House
 ```bash
 magnet:?xt=urn:btih:4EE33F70C2AA9848D550C45D1453170AFCA91A13
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -297,6 +317,8 @@ VA - Havana Lounge (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 magnet:?xt=urn:btih:F276BEA89A7092F6B40CD7130C9CA0F8500B1ED9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -323,6 +345,8 @@ VA - Delicate Lounge (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:B41B759885CC583886A71449265741F06AA35D14
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -351,6 +375,8 @@ Pet Shop Boys - Hotspot (2020) 2CD Special Edition [FLAC|Lossless|tracks + .cue]
 magnet:?xt=urn:btih:D216F7121C249B88E1843E2AB1A8A903BC239D9E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -377,6 +403,8 @@ VA - Black Hole Trance Music 01-20 (2020) [MP3|320 Kbps] <Trance, UpliftingTranc
 ```bash
 magnet:?xt=urn:btih:4F12C4CF76234DC89601C34FD1670253E6952113
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -405,6 +433,8 @@ VA - Black Hole House Music 01-20 (2020) [MP3|320 Kbps] <House, Progressive Hous
 magnet:?xt=urn:btih:6292B4E2112BC06075724D6F44FAFD3A90A299FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -431,6 +461,8 @@ Morcheeba - Part Of The Process (The Collection) (2020) 2CD, Compilation [FLAC|L
 ```bash
 magnet:?xt=urn:btih:600EAB030CC545E6A9603AAFBE2A3995A44CD3AE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -459,6 +491,8 @@ Depeche Mode - Happiest Boys (1999) [#BRONS 376, Unofficial Remix Compilation] [
 magnet:?xt=urn:btih:0425DA166925F8FB9B83425CCBCD1A21C4D06692
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +520,8 @@ Cravagoide - Empty Frame (2015) [FLAC|Lossless|WEB-DL] <Ambient, Downtempo, IDM>
 magnet:?xt=urn:btih:3EE48B6A0E064C8AE6F1C486336EF37C6530FC7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -512,6 +548,8 @@ Boris Brejcha - Space Diver (2020) Ultra Records [FLAC|Lossless|tracks] <Tech Ho
 ```bash
 magnet:?xt=urn:btih:4473F591E6F0251592E1E0ECE1CC926A36EF3AEF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -546,6 +584,8 @@ CD 1:Жанр: house, dance, clubПродолжительность: 01:19:36
 magnet:?xt=urn:btih:491D4F1CBF426860B761562B878E7AFCEE3660ED
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +612,8 @@ VA - Drizzly Music presents: 100% Hotel Deluxe Music Series (The Best In Lounge 
 ```bash
 magnet:?xt=urn:btih:C6FCCDA15D4C129DBA3AFD59F11C451635381C67
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +648,8 @@ VA - Back to Bed: Deep Sounds for Lazy Sundays No.1 (2012) [MP3|320 кб/с]<Dee
 magnet:?xt=urn:btih:EA5E02F77B326A7691C89D3352CA74927463C5B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -632,6 +676,8 @@ VA - Chill And Lounge Edition Love Generation Lounge (2020) [MP3|320 Kbps] <Bale
 ```bash
 magnet:?xt=urn:btih:50D43FCF8B0042A406D872262AAA9B29C73C5978
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -660,6 +706,8 @@ VA - Ibiza Spinning House Hits 2020 Session [MP3|320 Kbps] <House, Club, Dance>
 magnet:?xt=urn:btih:A7B56D82702DAECC608CC5918B95E725DCA34ABC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -687,6 +735,8 @@ Pet Shop Boys - Hotspot (2020) [MP3|320 Kbps] <Synthpop>
 magnet:?xt=urn:btih:56AE83566658C783320359DD3B8C6A62FC153901
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -713,6 +763,8 @@ Pet Shop Boys - Hotspot (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop>
 ```bash
 magnet:?xt=urn:btih:11F289E7D50E4A9F2AA00FA0B36ACD1D8763EFB5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

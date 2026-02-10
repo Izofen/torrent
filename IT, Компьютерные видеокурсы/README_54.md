@@ -22,6 +22,8 @@
 magnet:?xt=urn:btih:7ECA111D89AFF0C37B52D027942F11719794D62D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -47,6 +49,8 @@ Angular является одним из самых популярных фре�
 ```bash
 magnet:?xt=urn:btih:018241364D36ED3A84D11AD0EA94FFFD24C16793
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ magnet:?xt=urn:btih:018241364D36ED3A84D11AD0EA94FFFD24C16793
 magnet:?xt=urn:btih:5D8F08657123B7BDAB86760BE5681913AE186D99
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -101,6 +107,8 @@ magnet:?xt=urn:btih:5D8F08657123B7BDAB86760BE5681913AE186D99
 magnet:?xt=urn:btih:7CF1087F36BC569B63081FA6896209E264B13030
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -125,6 +133,8 @@ Java - самый популярный объектно-ориентирован
 ```bash
 magnet:?xt=urn:btih:95D849B2F2D450EBAEC2087E414CE290C840641B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -152,6 +162,8 @@ magnet:?xt=urn:btih:95D849B2F2D450EBAEC2087E414CE290C840641B
 magnet:?xt=urn:btih:5CF4AFE3C3FD890F80259364FFE6ACA96AE37D57
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -175,6 +187,8 @@ magnet:?xt=urn:btih:5CF4AFE3C3FD890F80259364FFE6ACA96AE37D57
 ```bash
 magnet:?xt=urn:btih:5440396D3C1B5C1E4366A5115098C8F150E58B68
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -200,6 +214,8 @@ magnet:?xt=urn:btih:5440396D3C1B5C1E4366A5115098C8F150E58B68
 ```bash
 magnet:?xt=urn:btih:E7653C6462A9A095199157E8865F1698D7786A18
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -228,6 +244,8 @@ conf.python.ru | Конференция Russian Python Week (2020) PCRec
 magnet:?xt=urn:btih:CC2726C0DB06DF92DC7CD9DA68B6A84005C43A51
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -254,6 +272,8 @@ Wesbos | Изучите Gatsbyn / Master Gatsby (Master Package) (2020) PCRec [E
 magnet:?xt=urn:btih:6E874BF72B1A0A8C4FB8059E209A9078FFF0F349
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -277,6 +297,8 @@ magnet:?xt=urn:btih:6E874BF72B1A0A8C4FB8059E209A9078FFF0F349
 ```bash
 magnet:?xt=urn:btih:7F5982EAE0B220BF0120657DA4CDC85CDCF92C9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -302,6 +324,8 @@ OTUS | C# для начинающих программистов (2020) PCRec
 magnet:?xt=urn:btih:4F2F39C2F274C0CFE8FE6003767C41101B390EF3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:4F2F39C2F274C0CFE8FE6003767C41101B390EF3
 ```bash
 magnet:?xt=urn:btih:549D7B086D1D2F9EF84A662AE279CDF4DCE6596B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ ES6(   Читать дальше...   )Производство: HarvardX (Harva
 magnet:?xt=urn:btih:458C9B93C02F16A94E3FF19211C3D1322A432FF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -378,6 +406,8 @@ Rock the JVM | Cats (2020) PCRec [En]
 ```bash
 magnet:?xt=urn:btih:FAC1EBB125925951E55A69607C1EFE20A55C14AF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -404,6 +434,8 @@ magnet:?xt=urn:btih:FAC1EBB125925951E55A69607C1EFE20A55C14AF
 ```bash
 magnet:?xt=urn:btih:E888633672F8755C3AEC4CEAC25EA7D435C310C7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -434,6 +466,8 @@ magnet:?xt=urn:btih:E888633672F8755C3AEC4CEAC25EA7D435C310C7
 magnet:?xt=urn:btih:A0EE873D8B6F61221E4F84F29E2752E4CAD401EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +493,8 @@ Windows Server 2012 R2 - это новая серверная операцион
 ```bash
 magnet:?xt=urn:btih:BE20CAEEA2D57F14DE02666082107D3973C8EA7F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +526,8 @@ magnet:?xt=urn:btih:BE20CAEEA2D57F14DE02666082107D3973C8EA7F
 magnet:?xt=urn:btih:9232C05B0E2C8D3102387DEB0790C62387518547
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +551,8 @@ Lynda.com | Muse Essential Training - Основной курс [2012] [EN] PCRe
 ```bash
 magnet:?xt=urn:btih:70D90FA23D54E5862D3C31304724B9B79A404848
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -539,6 +579,8 @@ Pragmatic Studio | Ruby and Rails [Master Package] (2012-2014) PCRec [H.264] [EN
 magnet:?xt=urn:btih:CD9496C99B9D3E095163BB0E90D0CDCED4267913
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -562,6 +604,8 @@ LibreOffice является одной из самых популярных и 
 ```bash
 magnet:?xt=urn:btih:C53150714ECA6D0A9968886041A41A725C65A12C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -590,6 +634,8 @@ CodeDojo | Основы Node.js (2017) PCRec [H.264/1080p-LQ]
 magnet:?xt=urn:btih:51737434A8B6A9852B396F9E058F141611C8C757
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +661,8 @@ jQuery – самая популярная JS-библиотека. Для то�
 ```bash
 magnet:?xt=urn:btih:6BF4B5480D94A5296B29C0D43EA8A8958F12B527
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -644,6 +692,8 @@ magnet:?xt=urn:btih:6BF4B5480D94A5296B29C0D43EA8A8958F12B527
 magnet:?xt=urn:btih:BADE803A9C368908CF94373C384EDA73CA23269C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -667,6 +717,8 @@ lynda.com | Основной курс Logic Pro 9 Essential Training [2011] [RUS
 ```bash
 magnet:?xt=urn:btih:D380F38BB352C42E7A117EC7595957888FAEC523
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

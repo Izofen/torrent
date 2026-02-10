@@ -19,6 +19,8 @@ Udemy, Majid Kamran Ahmadabad | Моделирование мультиплик�
 magnet:?xt=urn:btih:AAB7748063A2000277B72CC07A2B62A3E66A275F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Learn Squared, Maciej Kuciara | Intro to Environment Painting (2016) WEB-DLRip [
 magnet:?xt=urn:btih:F8E1A2F50C6F886FFDB9C4716072B9B1C7BF38AF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +70,8 @@ magnet:?xt=urn:btih:F8E1A2F50C6F886FFDB9C4716072B9B1C7BF38AF
 ```bash
 magnet:?xt=urn:btih:34078BA025195E695B929E8B620A6404000E6A00
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ magnet:?xt=urn:btih:34078BA025195E695B929E8B620A6404000E6A00
 ```bash
 magnet:?xt=urn:btih:66D4BDD526ABE062A8068536ACCB0CB2BB2FF4B6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ magnet:?xt=urn:btih:66D4BDD526ABE062A8068536ACCB0CB2BB2FF4B6
 magnet:?xt=urn:btih:93E476B09E854E19098621B84F051387AE8493E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ Skillbox, Александр Доброкотов, Александр Жадан
 magnet:?xt=urn:btih:5CC954EC3CDE61B3C9B6AFD5FDF11A684E449ECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -168,6 +180,8 @@ magnet:?xt=urn:btih:5CC954EC3CDE61B3C9B6AFD5FDF11A684E449ECF
 ```bash
 magnet:?xt=urn:btih:90636082743EED9F7D14549FFCE37FE0E8EDF1EA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ magnet:?xt=urn:btih:90636082743EED9F7D14549FFCE37FE0E8EDF1EA
 ```bash
 magnet:?xt=urn:btih:1F75A8F9F1ADCE120F3D3756F3DF07EE447EEA74
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -225,6 +241,8 @@ magnet:?xt=urn:btih:1F75A8F9F1ADCE120F3D3756F3DF07EE447EEA74
 magnet:?xt=urn:btih:B45BBA34E0A9FEAF21734709B823D63BF2D27470
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -251,6 +269,8 @@ Bang Bang Education | Дизайн-библиотека (2020) PCRec
 magnet:?xt=urn:btih:4A87F2072C3E9EFAEC2A3CEFC95480B7E09B36C0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -275,6 +295,8 @@ CGMA, Nate Wragg | Character Design for Animation (2017) PCRec
 magnet:?xt=urn:btih:D8ECFF59BCB71053429C7681A171D32241785D7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -298,6 +320,8 @@ cg-school.org, Андрей Заморский | Сборник видеоуро
 ```bash
 magnet:?xt=urn:btih:D5E11E1081ECB8D46D01985E3AD43776A2500C76
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -326,6 +350,8 @@ magnet:?xt=urn:btih:D5E11E1081ECB8D46D01985E3AD43776A2500C76
 magnet:?xt=urn:btih:33E376BBFD48F80D43F9D42889F897CFEE7C202E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -351,6 +377,8 @@ magnet:?xt=urn:btih:33E376BBFD48F80D43F9D42889F897CFEE7C202E
 ```bash
 magnet:?xt=urn:btih:9F0AEB404425CC872126AC39EFB3636E9E8C300D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -379,6 +407,8 @@ magnet:?xt=urn:btih:9F0AEB404425CC872126AC39EFB3636E9E8C300D
 magnet:?xt=urn:btih:865278E7812BADDFF2B1B284951F07768E5ABB2F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +435,8 @@ magnet:?xt=urn:btih:865278E7812BADDFF2B1B284951F07768E5ABB2F
 ```bash
 magnet:?xt=urn:btih:7E46288A3A637A36B6C65A2505C04B608FEDF302
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +465,8 @@ magnet:?xt=urn:btih:7E46288A3A637A36B6C65A2505C04B608FEDF302
 magnet:?xt=urn:btih:7E24D1573885CEB15886F8362A898754D7D55E7F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -457,6 +491,8 @@ magnet:?xt=urn:btih:7E24D1573885CEB15886F8362A898754D7D55E7F
 magnet:?xt=urn:btih:E6425D164516BA679526DF0D71C44952F5505C77
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -480,6 +516,8 @@ SOA Academy | Postproduction & Matte Painting Online (2021) WEB-DL [AD] [EN]
 ```bash
 magnet:?xt=urn:btih:9730B0EBA4E787D5E186F7E47745F2C41414385A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -508,6 +546,8 @@ magnet:?xt=urn:btih:9730B0EBA4E787D5E186F7E47745F2C41414385A
 magnet:?xt=urn:btih:3B9955858277B8EF0B43B68E0275F2DC540F4C28
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +572,8 @@ Udemy, Alexander Hanneman | VFX Compositing Elements Photorealistically in Nuke 
 ```bash
 magnet:?xt=urn:btih:73C352BDF4D21F93CB7C8937B639FBEA90C75633
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +600,8 @@ Liveclasses, Алексей Шадрин | Секреты современног
 magnet:?xt=urn:btih:F83C652969281872C020571C61F2A8ED1161D176
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +625,8 @@ Level One, Дмитрий Шелег | Первая помощь. Курс, ко
 ```bash
 magnet:?xt=urn:btih:703AA7C0DCAB66D160F8EAD8F0A4F6260DCA5227
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,6 +654,8 @@ magnet:?xt=urn:btih:703AA7C0DCAB66D160F8EAD8F0A4F6260DCA5227
 magnet:?xt=urn:btih:CAB1F73447DAA709D7DC5E2C67E2B43995A6CF34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -631,6 +679,8 @@ HighLights | Веб-дизайн. Продвинутый уровень (2016) P
 ```bash
 magnet:?xt=urn:btih:F2E53F551C752731590598E3C563E71BD7B071F2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -658,6 +708,8 @@ magnet:?xt=urn:btih:F2E53F551C752731590598E3C563E71BD7B071F2
 ```bash
 magnet:?xt=urn:btih:34593261DE1599507CB3E6142AEEB357F97E301F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1040051   (593531) от 03.08.2016
+
+Тим Пауэрс | На странных берегах (2016) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_593531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вест-Индия, таинственная земля отчаянных пиратов... Яркое солнце, изумрудные волны, «Веселый Роджер», реющий над белыми парусами. Где-то далеко остались святыни Старого Света, а здесь — царство черных богов вуду, зомби, вернувшихся с той стороны смерти, и кровавых духов зла. Здесь безраздельно властвует всемогущий и ужасный Барон Суббота, жестокий повелитель кладбищ. (   Читать дальше...   )Жанр: Морские приключенияПродолжительность: 13:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B081EAD21931FDAA2A2BEFBD3055A002339C7B73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039931   (593571) от 03.08.2016
 
 Роберт Шекли | Приз (2016) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:AF286A5EC65E125D765F46ABDC9FE340EFD75B1A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -42,6 +70,8 @@ magnet:?xt=urn:btih:AF286A5EC65E125D765F46ABDC9FE340EFD75B1A
 ```bash
 magnet:?xt=urn:btih:4973B08C12700EAD09004B576C92E31FC080CF6C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +100,8 @@ magnet:?xt=urn:btih:4973B08C12700EAD09004B576C92E31FC080CF6C
 magnet:?xt=urn:btih:6B809FE341A64029F51F47A7B7586EB8ADD381DF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:6B809FE341A64029F51F47A7B7586EB8ADD381DF
 ```bash
 magnet:?xt=urn:btih:FA16145CD0F05399870EF103BBC4FA6C665767DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -118,6 +152,8 @@ magnet:?xt=urn:btih:FA16145CD0F05399870EF103BBC4FA6C665767DF
 magnet:?xt=urn:btih:D85BA5D12BA76B0D0466D7035B175C6667D781EF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:D85BA5D12BA76B0D0466D7035B175C6667D781EF
 ```bash
 magnet:?xt=urn:btih:751B3D5A801F45E124A3AFD80FF62F58F9A53ADE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -167,6 +205,8 @@ magnet:?xt=urn:btih:751B3D5A801F45E124A3AFD80FF62F58F9A53ADE
 magnet:?xt=urn:btih:2CC1624EC1F0140E23D8446B2AB59340E678741E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -192,6 +232,8 @@ magnet:?xt=urn:btih:2CC1624EC1F0140E23D8446B2AB59340E678741E
 magnet:?xt=urn:btih:105C1A21678000DC926770FDDC40C3C29134C610
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:105C1A21678000DC926770FDDC40C3C29134C610
 ```bash
 magnet:?xt=urn:btih:122BE346F621274B6AA048AB5D4785C54C55ACC7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -240,6 +284,8 @@ magnet:?xt=urn:btih:122BE346F621274B6AA048AB5D4785C54C55ACC7
 magnet:?xt=urn:btih:1990E83CFAC65ABF7FA2C4195AEB1748E69F8BA9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:1990E83CFAC65ABF7FA2C4195AEB1748E69F8BA9
 ```bash
 magnet:?xt=urn:btih:22B383176B4B21A4CA7BD7036501C3454FE04741
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +336,8 @@ magnet:?xt=urn:btih:22B383176B4B21A4CA7BD7036501C3454FE04741
 magnet:?xt=urn:btih:299F8BC59780E8E1E274F11393087BB3A80B88C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -312,6 +362,8 @@ magnet:?xt=urn:btih:299F8BC59780E8E1E274F11393087BB3A80B88C6
 magnet:?xt=urn:btih:92D0D37EC82586006C81295167417C1D14582D9A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -335,6 +387,8 @@ magnet:?xt=urn:btih:92D0D37EC82586006C81295167417C1D14582D9A
 ```bash
 magnet:?xt=urn:btih:EDDB269FDBA2910CA2E2CA3F6AD4F2D2758815DF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -361,6 +415,8 @@ magnet:?xt=urn:btih:EDDB269FDBA2910CA2E2CA3F6AD4F2D2758815DF
 magnet:?xt=urn:btih:0D05A9EE0030B887ECC81BEC2E46D96B93471AD1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -385,6 +441,8 @@ magnet:?xt=urn:btih:0D05A9EE0030B887ECC81BEC2E46D96B93471AD1
 ```bash
 magnet:?xt=urn:btih:91E0E503D3E0F91B8EB25F81454CBCC1C3B27D1B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +471,8 @@ magnet:?xt=urn:btih:91E0E503D3E0F91B8EB25F81454CBCC1C3B27D1B
 magnet:?xt=urn:btih:92A208703165522D22D88F76085262B929AE963C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +496,8 @@ magnet:?xt=urn:btih:92A208703165522D22D88F76085262B929AE963C
 ```bash
 magnet:?xt=urn:btih:7706498BE04411FAB4B7E5041442BC71293EB0D8
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -463,6 +525,8 @@ magnet:?xt=urn:btih:7706498BE04411FAB4B7E5041442BC71293EB0D8
 magnet:?xt=urn:btih:6837E2B53E19E874905965AB012F35E3B62FBCF8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -486,6 +550,8 @@ magnet:?xt=urn:btih:6837E2B53E19E874905965AB012F35E3B62FBCF8
 ```bash
 magnet:?xt=urn:btih:44C19BCA321197FFB2369BE0C0845BC8305248FE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -511,6 +577,8 @@ magnet:?xt=urn:btih:44C19BCA321197FFB2369BE0C0845BC8305248FE
 magnet:?xt=urn:btih:78E8080EA99D08421BD270BE05C9E371BD5D3006
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -534,6 +602,8 @@ magnet:?xt=urn:btih:78E8080EA99D08421BD270BE05C9E371BD5D3006
 ```bash
 magnet:?xt=urn:btih:778F365C81C4E99A321014BB5CC69F2A8BCBF2A0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -559,6 +629,8 @@ magnet:?xt=urn:btih:778F365C81C4E99A321014BB5CC69F2A8BCBF2A0
 magnet:?xt=urn:btih:B4358E817DF24D0EB090B16E85FE78A5401C2097
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -582,6 +654,8 @@ magnet:?xt=urn:btih:B4358E817DF24D0EB090B16E85FE78A5401C2097
 ```bash
 magnet:?xt=urn:btih:B02EEBE84490660947EC44A38898A7FF23F8EABB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -608,30 +682,7 @@ magnet:?xt=urn:btih:B02EEBE84490660947EC44A38898A7FF23F8EABB
 magnet:?xt=urn:btih:8AF3A3A61D1C7BD6C4F8A6A0355FEE2377106B18
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914844   (595850) от 03.07.2015
-
-Дмитрий Рус | Три медведя и легион зомби (2015) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_595850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это рассказ о Вселенной Дмитрия Руса "Играть, чтобы Жить".
-От исполнителя: "Рекомендую к прослушиванию после ознакомления с книгами Дмитрия Руса "Война" и "Исход".Жанр: Фантастический боевик, ЛитРПГПродолжительность: 00:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5F39C2E2CDFDF7D9A1488E8DE4DFD1E57C88259
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

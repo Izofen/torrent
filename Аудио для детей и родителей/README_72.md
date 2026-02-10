@@ -22,6 +22,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Евгений Крылатов. Умка и другие (2002) [MP3|320 k
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Birthday Party Singalong (2001) [MP3|128 kbps]<Детские песенк�
 magnet:?xt=urn:btih:0ECA10676E124CD20514EA834ECEFB7DF93DEB91
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ VA - Monster Mash & Other Songs of Horror (2000) [MP3|320 kbps]<Детские �
 ```bash
 magnet:?xt=urn:btih:FF6A187FFED87C847C7E0E6535C71FF3D91E483D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Песни Про Маму (2010) [MP3|256 kbps]<Детские песни>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -153,6 +163,8 @@ VA - Песни Про Маму (2010) [MP3|256 kbps]<Детские песни>
 ```bash
 magnet:?xt=urn:btih:09DBE3CADFB1B99AC5D48FD56520D7B3D7B62B63
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -181,6 +193,8 @@ CD 1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -208,6 +222,8 @@ VA - Давайте Жить Дружно (2003) [MP3|320 kbps]<Детские �
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -231,6 +247,8 @@ VA - Давайте Жить Дружно (2003) [MP3|320 kbps]<Детские �
 ```bash
 magnet:?xt=urn:btih:05FC6009F488625C536D9BA39EC95F4775B35986
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -259,6 +277,8 @@ VA - Songs for children 3 (2007) [MP3|128 kbps]<Детские песенки.>
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -282,6 +302,8 @@ VA - Songs for children 3 (2007) [MP3|128 kbps]<Детские песенки.>
 ```bash
 magnet:?xt=urn:btih:EFC122B0AB884A733632E8FC387409CB5BA82D45
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -307,6 +329,8 @@ magnet:?xt=urn:btih:EFC122B0AB884A733632E8FC387409CB5BA82D45
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -330,6 +354,8 @@ magnet:?xt=urn:btih:EFC122B0AB884A733632E8FC387409CB5BA82D45
 ```bash
 magnet:?xt=urn:btih:DC2140E0E9FF950C47DC91E9AF96F4F17F7B0C78
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -358,6 +384,8 @@ magnet:?xt=urn:btih:DC2140E0E9FF950C47DC91E9AF96F4F17F7B0C78
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -384,6 +412,8 @@ VA - Гарний настрій. Співають діти (2006) [MP3|309-319 
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -412,6 +442,8 @@ CD 1
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -438,6 +470,8 @@ VA - Колисанки (2004) [MP3|320 kbps]<Колыбельные песен�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -467,6 +501,8 @@ Rattan Sharma - Mantras for Children and Young Adults (2004) [MP3|320 kbps]<Ма
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -491,6 +527,8 @@ Rattan Sharma - Mantras for Children and Young Adults (2004) [MP3|320 kbps]<Ма
 ```bash
 magnet:?xt=urn:btih:7628092395A1631788C9991D1B2004B47292C13A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -517,6 +555,8 @@ magnet:?xt=urn:btih:7628092395A1631788C9991D1B2004B47292C13A
 ```bash
 magnet:?xt=urn:btih:8B2820AC6F997DF9CE901CFE0A1FAACCF801EBC1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -545,6 +585,8 @@ magnet:?xt=urn:btih:8B2820AC6F997DF9CE901CFE0A1FAACCF801EBC1
 magnet:?xt=urn:btih:57CC52EF049CEE225E11B554752662841109AF8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -571,6 +613,8 @@ magnet:?xt=urn:btih:57CC52EF049CEE225E11B554752662841109AF8D
 ```bash
 magnet:?xt=urn:btih:94C3A0DBF8B4CABACA06ADF34405DD6C17D76E35
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +643,8 @@ magnet:?xt=urn:btih:94C3A0DBF8B4CABACA06ADF34405DD6C17D76E35
 magnet:?xt=urn:btih:43F3870823CF147EF87C8AF4B13C25DC7900F89E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -625,6 +671,8 @@ magnet:?xt=urn:btih:43F3870823CF147EF87C8AF4B13C25DC7900F89E
 ```bash
 magnet:?xt=urn:btih:483118691935C9A04ACEFF80AB7481ACDB7A8E8F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -653,6 +701,8 @@ magnet:?xt=urn:btih:483118691935C9A04ACEFF80AB7481ACDB7A8E8F
 magnet:?xt=urn:btih:6EBC1E504989EDF1509B064234F210F67155883D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -679,6 +729,8 @@ Francis Bernier - Prince d'Azur (2007) [MP3|128 kbps]<Детские песен�
 ```bash
 magnet:?xt=urn:btih:FBD208397C327B280C04B16DFFE059477F26C65E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

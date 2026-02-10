@@ -20,6 +20,8 @@ WaveEditor для Android™ — это профессиональный инс�
 magnet:?xt=urn:btih:E59628620CF4FCC04359A7847BBDFDF713F3EAAB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -43,6 +45,8 @@ Photo Lab PRO - супер-лаборатория фотоприколов у в
 ```bash
 magnet:?xt=urn:btih:514BC482BFB5F57A453866CC3982472944C0C116
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -70,6 +74,8 @@ magnet:?xt=urn:btih:514BC482BFB5F57A453866CC3982472944C0C116
 magnet:?xt=urn:btih:9566CAA71FB45E9D7BAFADB24D0772D98BBC72F6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -95,6 +101,8 @@ Reverso Translation Dictionary / Переводной словарь Reverso v14
 ```bash
 magnet:?xt=urn:btih:DB6286A1E5CDBF85FDA5FDF624007B94102D0983
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:DB6286A1E5CDBF85FDA5FDF624007B94102D0983
 magnet:?xt=urn:btih:9DD57465979FFC89F03F78BC10058B831F3BF233
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -145,6 +155,8 @@ magnet:?xt=urn:btih:9DD57465979FFC89F03F78BC10058B831F3BF233
 ```bash
 magnet:?xt=urn:btih:412383CFD1F2E575E5B3260E038957FF41CD9C47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -171,6 +183,8 @@ Aiarty Image Enhancer (с генеративным ИИ) — это соврем
 magnet:?xt=urn:btih:66C1EFCE186C2B2DACF4EF6FDA28E05B75BC3828
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -194,6 +208,8 @@ Lighting calculations / Расчеты освещения v6.0.8 Mod by Balatan 
 ```bash
 magnet:?xt=urn:btih:95EDDD1FD6416216A1DFBDABC795E0A6F5E34A9D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -219,6 +235,8 @@ VK Музыка: песни и подкасты v7.7.2 Mod by VK Equals [Ru/En]
 magnet:?xt=urn:btih:CEA3CA182EF016D30856C4755BFB51A7592F940F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -242,6 +260,8 @@ magnet:?xt=urn:btih:CEA3CA182EF016D30856C4755BFB51A7592F940F
 ```bash
 magnet:?xt=urn:btih:ADA9473C6C76BBAA3FF20ABE1AA66293208CE215
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -267,6 +287,8 @@ AAF Optimus DCH Audio Driver Realtek Mod, аудио драйвер — всё �
 magnet:?xt=urn:btih:BD5EEE251F158FBDE8B934C43E1FCB95E796A0A7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -291,6 +313,8 @@ Calibre - простая и удобная программа для управ�
 magnet:?xt=urn:btih:DB1688C62BF5935393DBBDC17BE1DC4EBCE83376
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ RedNotebook - это простое GTK+ / Gnome приложение напис
 ```bash
 magnet:?xt=urn:btih:F0A69843249B9AF65E1685F236BB55E548AC5D80
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -340,6 +366,8 @@ OneCommander V3 — это современный файловый менедж�
 magnet:?xt=urn:btih:CC457174AF392D79D7AB51A74D30DB77FECCA35F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ StaxRip - инструмент для кодирования видео "все-
 magnet:?xt=urn:btih:56A0A1633ABD2CD49B3B69B923B28F51A1B75D1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -388,6 +418,8 @@ QownNotes – менеджер заметок, позволяющий четко
 ```bash
 magnet:?xt=urn:btih:4D323DF3759FEBAC0313643D5DAEAB9F41F4EAB6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -413,6 +445,8 @@ FontCreator - Редактор шрифтов FontCreator может созда�
 magnet:?xt=urn:btih:4BD70C81B30811F401A0E58F2BA05B91FA8C2FD8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -436,6 +470,8 @@ XYplorer – удобный многовкладочный файловый ме
 ```bash
 magnet:?xt=urn:btih:093BA12172106C66EA4A063BDD7FB12B6E772E96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -461,6 +497,8 @@ GeoGebra — мультиплатформенная программное об�
 magnet:?xt=urn:btih:E219DE721998CBBF5272D6D0F59A267158EE905C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +522,8 @@ DisplayFusion - программа для управления обоями ра
 ```bash
 magnet:?xt=urn:btih:AA1A4102EC8833DE178449A5DA06DEAF2531FE50
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -509,6 +549,8 @@ TweakPower – представляет собой единый графичес
 magnet:?xt=urn:btih:587CE51EF05080DF0154B04C1B99CF5A180BCF54
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -532,6 +574,8 @@ Desktop Calendar – бесплатный календарь рабочего с
 ```bash
 magnet:?xt=urn:btih:09B17F637206F228E8A843C3F17FC330097A700F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -557,6 +601,8 @@ Mozilla Firefox - быстрый, полнофункциональный веб-
 magnet:?xt=urn:btih:E9FA3ED648B121830D01A30C58F62C529748C595
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ Wondershare PDFelement - программа для общего редактир
 magnet:?xt=urn:btih:4EE7845F493F29FA3B9EC80909A7A79C0AD8ED8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,6 +652,8 @@ Paint.NET - Простой, но мощный и удобный редактор
 ```bash
 magnet:?xt=urn:btih:C206A5D6BA2FAE1265E154440BE0861DE1AE14B4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -630,6 +680,8 @@ Topaz Photo AI использует передовые алгоритмы иск
 ```bash
 magnet:?xt=urn:btih:0C625FED6970E736CB7A493AB6648A92A47DCC1D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

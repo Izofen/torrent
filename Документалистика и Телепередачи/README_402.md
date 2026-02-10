@@ -1,3 +1,29 @@
+###  Публикация: 1048991   (545747) от 03.09.2016
+
+Право знать! (03.09.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Общественно-политические и пропагандистские ток-шоу
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_545747.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Право знать!" – общественно-политическое ток-шоу без купюр и без протокола, о людях и событиях, которые меняют нашу жизнь.Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 01:08:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D0293CAC3BF0D9DFAD1FBDBD927059BEBEE64A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048853   (545797) от 03.09.2016
 
 Секретные материалы 17. Сакральное имя города  (2016) SATRip
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:CF6996696C3A9C16D887512DBF98D4EE2E007793
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:CF6996696C3A9C16D887512DBF98D4EE2E007793
 magnet:?xt=urn:btih:FC16FDF7E7CEC862286E3DD823D73FA131714E70
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:FC16FDF7E7CEC862286E3DD823D73FA131714E70
 ```bash
 magnet:?xt=urn:btih:EC25BC3719B222A023447BC6830244E2AF872C90
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:EC25BC3719B222A023447BC6830244E2AF872C90
 magnet:?xt=urn:btih:50E3C08C3AE6BB6708C1E773E0F07DEDC83EB017
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:50E3C08C3AE6BB6708C1E773E0F07DEDC83EB017
 ```bash
 magnet:?xt=urn:btih:C7EC8F442FB8676B21B443C0AE48CBF5628F95E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:C7EC8F442FB8676B21B443C0AE48CBF5628F95E1
 magnet:?xt=urn:btih:17193E2E1B1FDDE08EBF8229DA259F67435B94D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:17193E2E1B1FDDE08EBF8229DA259F67435B94D3
 ```bash
 magnet:?xt=urn:btih:FDA09A682A5FCF9FCBB3607F9442CF664FA1112E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -190,6 +230,8 @@ magnet:?xt=urn:btih:FDA09A682A5FCF9FCBB3607F9442CF664FA1112E
 magnet:?xt=urn:btih:899A5EB967B89CD23907BDC23F0467FA1FEB4AE6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -214,6 +256,8 @@ magnet:?xt=urn:btih:899A5EB967B89CD23907BDC23F0467FA1FEB4AE6
 magnet:?xt=urn:btih:113C55D7FECAB070A0BF5AC7FB7AFC587D2AB2D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:113C55D7FECAB070A0BF5AC7FB7AFC587D2AB2D2
 ```bash
 magnet:?xt=urn:btih:2763E08C1C5F3EF9F057F19A59D8C108ED05213E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:2763E08C1C5F3EF9F057F19A59D8C108ED05213E
 magnet:?xt=urn:btih:73E1712F2CE808FC2A5F7C83756697B6A5A8949B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:73E1712F2CE808FC2A5F7C83756697B6A5A8949B
 ```bash
 magnet:?xt=urn:btih:26AF8147D0CEED5E1BF9FE7E5B5094683DA7A66C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:26AF8147D0CEED5E1BF9FE7E5B5094683DA7A66C
 magnet:?xt=urn:btih:02B80E5CD4D45BBC528507BAC732CC56B6383B21
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:02B80E5CD4D45BBC528507BAC732CC56B6383B21
 ```bash
 magnet:?xt=urn:btih:50E843D6D6DCA2BB38EC15C155F9205768A061DD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:50E843D6D6DCA2BB38EC15C155F9205768A061DD
 magnet:?xt=urn:btih:D51EE1A0881699F3C083F6798AA731C1B11B9408
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:D51EE1A0881699F3C083F6798AA731C1B11B9408
 ```bash
 magnet:?xt=urn:btih:9DF6AEA5D020464D11933BF13831F75AF93108F7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:9DF6AEA5D020464D11933BF13831F75AF93108F7
 magnet:?xt=urn:btih:269FAE140F6105E16B1BB8EFCF9D39E39AD7B258
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:269FAE140F6105E16B1BB8EFCF9D39E39AD7B258
 ```bash
 magnet:?xt=urn:btih:D3A50EFE01B3FE0B720E2F127CF3A7147367799A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:D3A50EFE01B3FE0B720E2F127CF3A7147367799A
 magnet:?xt=urn:btih:E77BFACFF78C0BB943F7CE90F98FC5023E7E0902
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:E77BFACFF78C0BB943F7CE90F98FC5023E7E0902
 ```bash
 magnet:?xt=urn:btih:C78306840F0C2082AEAA4AC9CB58E61123E1EC8A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:C78306840F0C2082AEAA4AC9CB58E61123E1EC8A
 magnet:?xt=urn:btih:D781F65E5B5AC11F832571EB90F3B1B83A3FAA86
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:D781F65E5B5AC11F832571EB90F3B1B83A3FAA86
 ```bash
 magnet:?xt=urn:btih:A119003332EE18B401264F73CA42190303F2DD96
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -551,6 +621,8 @@ magnet:?xt=urn:btih:A119003332EE18B401264F73CA42190303F2DD96
 magnet:?xt=urn:btih:A491EC5196754A326210C1BAC58932E3EED76F1E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +646,8 @@ magnet:?xt=urn:btih:A491EC5196754A326210C1BAC58932E3EED76F1E
 ```bash
 magnet:?xt=urn:btih:591E489F6FA5D733CDE9BAFAB312FBDF4C74E9E3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:591E489F6FA5D733CDE9BAFAB312FBDF4C74E9E3
 magnet:?xt=urn:btih:340FDB34FE3CD1C6BDDADBFDBF08E8781E1747F2
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048635   (546584) от 02.09.2016
-
-Большинство (02.09.2016) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_546584.jpg" />
-</div>
-
-
-###  Подробнее
-
-В каждом выпуске – обсуждение актуальной темы недели с участием политиков, чиновников, представителей бизнеса и экспертов, а также тех, кто представляет «большинство» – жителей страны, неравнодушных к тому, что происходит, и готовых задавать неудобные и острые вопросы.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:366D03BE5E0513F097A77D01DD877581257AB2C2
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

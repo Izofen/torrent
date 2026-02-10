@@ -1,3 +1,29 @@
+###  Публикация: 1236547   (554008) от 19.07.2018
+
+Данияр Сугралинов, Максим Лагно | Level Up. Нокаут (2018) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_554008.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Плакса» Майк Хаген, как и Филипп Панфилов, был отобран и получил интерфейс дополненной реальности. Вот только его любимой игрой был файтинг боев без правил – наверное, потому, что в жизни он боялся боли и ни разу не дрался, и интерфейс подстроился под него. Сможет ли Хаген распорядиться им правильно? Поможет ли ему это выбраться из той унылой бездны, которой была (   Читать дальше...   )Жанр: Героическая фантастика, LitRPGПродолжительность: 12:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B35396B7F89DED1505D1B11C3211BFFEE614E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307988   (554095) от 13.06.2019
 
 Алекс Каменев | Цитадели Гордыни 01, Ученик (2019) [MP3]
@@ -18,6 +44,8 @@
 ```bash
 magnet:?xt=urn:btih:F2739B2FF34ECA93F24B113EE74C0274F45E365B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -43,6 +71,8 @@ magnet:?xt=urn:btih:F2739B2FF34ECA93F24B113EE74C0274F45E365B
 magnet:?xt=urn:btih:593C83938A79E37C84084079D31882BB1A25D7D3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -66,6 +96,8 @@ magnet:?xt=urn:btih:593C83938A79E37C84084079D31882BB1A25D7D3
 ```bash
 magnet:?xt=urn:btih:3BE750B331DE41E21F4AF7BBF5859EEA74573071
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -91,6 +123,8 @@ magnet:?xt=urn:btih:3BE750B331DE41E21F4AF7BBF5859EEA74573071
 magnet:?xt=urn:btih:DEA84086503652607C99ED488AAF7434BE8B77B2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -115,6 +149,8 @@ magnet:?xt=urn:btih:DEA84086503652607C99ED488AAF7434BE8B77B2
 magnet:?xt=urn:btih:AA9BE4C9173A438C94465E6EF5EA655FBA776065
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +174,8 @@ magnet:?xt=urn:btih:AA9BE4C9173A438C94465E6EF5EA655FBA776065
 ```bash
 magnet:?xt=urn:btih:D79EB4ED679E348A604AF6314FFB6A5BDB220BD4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:D79EB4ED679E348A604AF6314FFB6A5BDB220BD4
 magnet:?xt=urn:btih:E52F8E54CE802C6DD03B147496A6FA5589837C34
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -188,6 +228,8 @@ magnet:?xt=urn:btih:E52F8E54CE802C6DD03B147496A6FA5589837C34
 ```bash
 magnet:?xt=urn:btih:2233580C8FD8EA067D3E97C7660A4F66583270D1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +257,8 @@ magnet:?xt=urn:btih:2233580C8FD8EA067D3E97C7660A4F66583270D1
 magnet:?xt=urn:btih:888C72BD3E9D81D84FF3DFDE7ACAB2802823D8E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +282,8 @@ magnet:?xt=urn:btih:888C72BD3E9D81D84FF3DFDE7ACAB2802823D8E8
 ```bash
 magnet:?xt=urn:btih:19141E66F4EA9579521537EAB4B68F1BEBEB56D4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +309,8 @@ magnet:?xt=urn:btih:19141E66F4EA9579521537EAB4B68F1BEBEB56D4
 magnet:?xt=urn:btih:43236A6877E12B4FCDAC67F07070567DB71BA10F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +334,8 @@ magnet:?xt=urn:btih:43236A6877E12B4FCDAC67F07070567DB71BA10F
 ```bash
 magnet:?xt=urn:btih:5591C5C356A55B851451BD540C7753228573F22C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +361,8 @@ magnet:?xt=urn:btih:5591C5C356A55B851451BD540C7753228573F22C
 magnet:?xt=urn:btih:8B7349F633F3CD5A70A28FE75B5E0FA498D7BEE7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +386,8 @@ magnet:?xt=urn:btih:8B7349F633F3CD5A70A28FE75B5E0FA498D7BEE7
 ```bash
 magnet:?xt=urn:btih:377C0A6049A4D0A02A957C99656EE5E20616C04C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +413,8 @@ magnet:?xt=urn:btih:377C0A6049A4D0A02A957C99656EE5E20616C04C
 magnet:?xt=urn:btih:3F72A17A1ECE718F89290A1014FAC694EC34A99D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -382,6 +438,8 @@ magnet:?xt=urn:btih:3F72A17A1ECE718F89290A1014FAC694EC34A99D
 ```bash
 magnet:?xt=urn:btih:CB6DA46EB71B14D3C7D03D7E557F05EF12994D31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -407,6 +465,8 @@ magnet:?xt=urn:btih:CB6DA46EB71B14D3C7D03D7E557F05EF12994D31
 magnet:?xt=urn:btih:94F05667D22CD41FD368245B46377F90EB983517
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -430,6 +490,8 @@ magnet:?xt=urn:btih:94F05667D22CD41FD368245B46377F90EB983517
 ```bash
 magnet:?xt=urn:btih:58CE95F0CE993457797EF93618299524576B0246
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -455,6 +517,8 @@ magnet:?xt=urn:btih:58CE95F0CE993457797EF93618299524576B0246
 magnet:?xt=urn:btih:649916F5CC1714EE8CF826EF2EFC371380431126
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -478,6 +542,8 @@ magnet:?xt=urn:btih:649916F5CC1714EE8CF826EF2EFC371380431126
 ```bash
 magnet:?xt=urn:btih:882D9C3D3C5560F26C98E9A3EED17525C74E11A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -503,6 +569,8 @@ magnet:?xt=urn:btih:882D9C3D3C5560F26C98E9A3EED17525C74E11A7
 magnet:?xt=urn:btih:A3E0FA833318AB58BAE3B722BE76CB111B579BE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -526,6 +594,8 @@ magnet:?xt=urn:btih:A3E0FA833318AB58BAE3B722BE76CB111B579BE5
 ```bash
 magnet:?xt=urn:btih:FED897E43183AF4664F73C5050AA5366302D6B32
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -552,6 +622,8 @@ magnet:?xt=urn:btih:FED897E43183AF4664F73C5050AA5366302D6B32
 ```bash
 magnet:?xt=urn:btih:4AFECCC229CBD398EB1F15CF76DECED605A34058
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -580,6 +652,8 @@ magnet:?xt=urn:btih:4AFECCC229CBD398EB1F15CF76DECED605A34058
 magnet:?xt=urn:btih:1940562E1A038E0B733F79751AB8ED740F6C1920
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -604,29 +678,7 @@ magnet:?xt=urn:btih:1940562E1A038E0B733F79751AB8ED740F6C1920
 magnet:?xt=urn:btih:569C1D7D1324ABCD01500093917ED9F1B04D5801
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306161   (555422) от 06.06.2019
-
-Александр Санфиров | Лыжник (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_555422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Петров не в курсе, как сделать автомат Калашникова, не силен в экономике и не знает, что советовать Брежневу. Он даже не помнит особо дат и событий прошлого, хотя прожил длинную жизнь. Волей провидения его сознание в момент смерти перенеслось в его же тело, но на пятьдесят лет назад. Перед ним появляется море возможностей прожить совсем другую жизнь; зная (   Читать дальше...   )Жанр: Историческая фантастика, ПопаданцыПродолжительность: 09:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:382D4D3C51608BB836EDAC4D07C6132B8258CF5A
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

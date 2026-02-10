@@ -23,6 +23,8 @@
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ MX vs. ATV Reflex продолжает и развивает игровую се
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -75,6 +79,8 @@ Dayz  - это модификация на одноимённую игру Arma 
 magnet:?xt=urn:btih:5CFE9DE07361C1A66EADE70EDED04C9C1D23ECCF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -99,6 +105,8 @@ magnet:?xt=urn:btih:5CFE9DE07361C1A66EADE70EDED04C9C1D23ECCF
 magnet:?xt=urn:btih:DA7D1D76DB40CB7608173D401D76AD2BD802CD4A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -122,6 +130,8 @@ magnet:?xt=urn:btih:DA7D1D76DB40CB7608173D401D76AD2BD802CD4A
 ```bash
 magnet:?xt=urn:btih:B38B9F2DF288EBD72A262EB2CF2D6B01E7A743A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -150,6 +160,8 @@ Manfred Mann / Manfred Mann's Earth Band - 38 Albums, 4 Box-Set, 130CD (1964-202
 magnet:?xt=urn:btih:698F88A96804054B8FADEAE66BA10E57A5C0A32B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -173,6 +185,8 @@ magnet:?xt=urn:btih:698F88A96804054B8FADEAE66BA10E57A5C0A32B
 ```bash
 magnet:?xt=urn:btih:F58B64BA7BB316D0B2E4C8459E59E70F8B553BBB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -198,6 +212,8 @@ Grand Ages: Medieval (2015) [Ru/Multi] (1.1/dlc) License GOG
 magnet:?xt=urn:btih:DA38BF33CA72831217F89D6FB666044623E18FB3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -221,6 +237,8 @@ Windows 10 (v1511) RUS-ENG x86 -22in1- (AIO)
 ```bash
 magnet:?xt=urn:btih:A93D277C35A3A5B371F87F96C30E6BEECCCB3FF9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -246,6 +264,8 @@ magnet:?xt=urn:btih:A93D277C35A3A5B371F87F96C30E6BEECCCB3FF9
 magnet:?xt=urn:btih:075E33E84B5126C05A1FCE8941FD0C2826C98F84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -269,6 +289,8 @@ City Maps 2Go Pro Offline Maps - Это интерактивные карты и
 ```bash
 magnet:?xt=urn:btih:E0835D723F3422D92D5AE24E6BEE908B532AB4BC
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -294,6 +316,8 @@ uTorrent Pro 3.4.5 build 41372 Stable RePack (& Portable) by D!akov [Multi/Ru]
 magnet:?xt=urn:btih:D8221E5DE6A0CF36985D6E11F5B138E7FEC8A0AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -317,6 +341,8 @@ Watch Dogs (2014) [Ru] (1.06.329/dlc) Repack xatab [Digital Deluxe Edition]
 ```bash
 magnet:?xt=urn:btih:5C963B5CB50EC866FE90DAC51FE3E4D320D8C91F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -342,6 +368,8 @@ magnet:?xt=urn:btih:5C963B5CB50EC866FE90DAC51FE3E4D320D8C91F
 magnet:?xt=urn:btih:C3E5FF5188C2ED4E0F35A6D39936887C273A0F08
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -365,6 +393,8 @@ magnet:?xt=urn:btih:C3E5FF5188C2ED4E0F35A6D39936887C273A0F08
 ```bash
 magnet:?xt=urn:btih:28D3A7AEF05A058F138502DA19674C3C08F46C0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -392,6 +422,8 @@ magnet:?xt=urn:btih:28D3A7AEF05A058F138502DA19674C3C08F46C0B
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -415,6 +447,8 @@ Fallout [Ru] (L) 1997
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -441,6 +475,8 @@ Alone in the Dark / Alone in the Dark: У последней черты  [Ru] (R
 magnet:?xt=urn:btih:D36CC63BA0809AF3296131FA07F4934294C40C5B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -464,6 +500,8 @@ magnet:?xt=urn:btih:D36CC63BA0809AF3296131FA07F4934294C40C5B
 ```bash
 magnet:?xt=urn:btih:64ACEE335FA4E82FEEB58BE828B11F84F62E27EE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +528,8 @@ Udemy, YouRa Allakhverdov | Android разработка с нуля до про
 magnet:?xt=urn:btih:FC505C230A6B785721D9464D4EFD84270307C2F8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -513,6 +553,8 @@ Altium Designer - комплексная система проектирован
 ```bash
 magnet:?xt=urn:btih:B459DBF4200E4363E7A2EFF86BCC33B5DC0D6D98
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -538,6 +580,8 @@ magnet:?xt=urn:btih:B459DBF4200E4363E7A2EFF86BCC33B5DC0D6D98
 magnet:?xt=urn:btih:349539A94E3D175850B7D2993E1635130C9BF994
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -561,6 +605,8 @@ magnet:?xt=urn:btih:349539A94E3D175850B7D2993E1635130C9BF994
 ```bash
 magnet:?xt=urn:btih:8087488E8D630C872027742FF5EB755FCAF5A194
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -586,6 +632,8 @@ State of Decay YOSE (2015) [Ru/Multi] (1.0/dlc) SteamRip Let'sРlay [Day One Edi
 magnet:?xt=urn:btih:622DDC85FB8AE3EE7D3B2B875C881EB6A6DF428F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -610,6 +658,8 @@ The Elder Scrolls V: Skyrim Extended Edition v.1.9.32.0.8 (2014) [Ru] [OS X Wine
 magnet:?xt=urn:btih:0A14D5D50B6092549BB680F94E503CF63F333AFA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -633,6 +683,8 @@ Sparkol VideoScribe 2.3 позволяет создавать рисованны
 ```bash
 magnet:?xt=urn:btih:FB765A29163327798DA14C34BAACD26CF01DD067
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

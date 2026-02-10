@@ -22,6 +22,8 @@ VA - Venera Music Vol.10 (2016) [MP3|320 кб/с] <House, Tech House>
 magnet:?xt=urn:btih:D681D8C0C8F27599761BFF2854E291F6DAB7FBE5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ VA - Vocal EDM Party (2016) [MP3|320 кб/с] <House, Electro House, Vocal House
 ```bash
 magnet:?xt=urn:btih:423386D8D66CA85787EDDB1F6238AE4ADD15736B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ VA - Venera Music Vol.9 (2016) [MP3|320 кб/с] <House, Tech House>
 magnet:?xt=urn:btih:337D7EA374467BD850AA72B1B8E96A3B2EA7A1FF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Flyance Records - Label-Pack 10 Releases (2014-2017) [FLAC|Lossless|WEB-DL|track
 ```bash
 magnet:?xt=urn:btih:499887099B545662AE6F19C968650EAB171AE6E2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Best Of LW Trance II (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:096C9E8A43B27DDCD1D3BD64ADE271EB85D0D3AE
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ VA - Lounge Vanilla (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout, L
 ```bash
 magnet:?xt=urn:btih:6237DEAE2F52EB890639060CF383F02D655ED213
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ VA - Chilled Coffee Vol.1 (Amazing Backround Music For Cafe, Restaurant Or Home)
 magnet:?xt=urn:btih:5E4189DD191EAA54CBF34CB213DB12EDE4573876
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +224,8 @@ VA - Free Floating: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Bal
 ```bash
 magnet:?xt=urn:btih:4B1B46FB09FE3F86F33A6094E0FCF880F88C18C5
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -238,6 +254,8 @@ VA - A State Of Trance Top 20: January (2018) [MP3|320 Kbps] <Trance>
 magnet:?xt=urn:btih:D88A984FB33BF1E879AA2824D3699C7809BF7966
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -264,6 +282,8 @@ VA - Lounge Vanilla (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:9652C668B7B411B1A5F870DCBB042894EEE74089
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -292,6 +312,8 @@ VA - Coffee Lounge Tunes Vol.1 (Lean Back & Relax With Wonderful Electronic Loun
 magnet:?xt=urn:btih:EE1B14AFB2D944456BB4EF8814914C5CED1F62BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -318,6 +340,8 @@ VA - Chillout Raising (Lounge Drama) (2018) [MP3|320 Kbps] <Downtempo, Chillout,
 ```bash
 magnet:?xt=urn:btih:65ECF7D78E3F9CA7955C8B1781E4B0F302FE2A2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -346,6 +370,8 @@ VA - OTB-EDM Records Miami (WMC) (2017) [MP3|320 Kbps] <House, Progressive, Funk
 magnet:?xt=urn:btih:C9D8C8CAAF7245B658E296746ADC2CC1CA916743
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -372,6 +398,8 @@ VA - Buddha World Bar 2017   [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 ```bash
 magnet:?xt=urn:btih:83EDDD50130727C61DC60BFB95798616A33602A1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -400,6 +428,8 @@ Thomas Lemmer - Discography 69 Releases (2009-2021) [MP3|320 Kbps] <Chillout, Am
 magnet:?xt=urn:btih:E98450766903741E536D634AF45F25DCD240D86C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -426,6 +456,8 @@ magnet:?xt=urn:btih:E98450766903741E536D634AF45F25DCD240D86C
 ```bash
 magnet:?xt=urn:btih:9B0FE8E5364048F98D33BB6772917526F5163857
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -454,6 +486,8 @@ VA - Cafe Luna (Chillout and Lounge Edition) (2016) [MP3|320 кб/с] <Downtempo
 magnet:?xt=urn:btih:E438BB0A71C76C7AD27252250AC28865BEC23DA0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -479,6 +513,8 @@ Dom & Roland - Parasite / Homicide / Paradrenasite (2020) Hive Remaster [FLAC 2.
 ```bash
 magnet:?xt=urn:btih:5B352404FB8D3CB91C6E525022DFFD7B47CA28EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -507,6 +543,8 @@ Low Budget Aliens - Junk DNA (2020) XPQ? [FLAC 2.0|44.1/24|tracks|WEB-DL] <Exper
 magnet:?xt=urn:btih:2318B56735D9A1050CF15FA757934AE59339577D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +571,8 @@ VA - Bigtime EDM Vol.8 (2016) [MP3|320 кб/с] <House, Progressive>
 ```bash
 magnet:?xt=urn:btih:7EE8C9290F601983860450F9F25499F685045E7A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -561,6 +601,8 @@ Zero Degree - Discography 5 Releases (2005-2014) Audiophob, Ant-Zen [FLAC|Lossle
 magnet:?xt=urn:btih:36029179C9CA89EF5EF3B4BF36FFEE98382C5A44
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -587,6 +629,8 @@ Max de Wardener - Where I Am Today (2004) Accidental Records [FLAC|Lossless|WEB-
 ```bash
 magnet:?xt=urn:btih:E944750A3FEF4F0B01196FA2F990322903E056E1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -615,6 +659,8 @@ VNDL - Discography 6 Releases (2011-2015) Hymen Records, Abstrakt Reflections, e
 magnet:?xt=urn:btih:88B33039637B59D7103CC9A151EFC1396C28D0E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -641,6 +687,8 @@ Chronos - Inner Darkness (2017) [MP3|320 Kbps] <Ambient, Psychill, Downtempo>
 ```bash
 magnet:?xt=urn:btih:8D749510C75C9A3AEA164F30210122C04A38AE19
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -669,6 +717,8 @@ VA - Supermoon Chilling Tunes (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lo-Fi>
 magnet:?xt=urn:btih:955E519F0DA1AD116561592B5DEC9EA3044A6C8D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ Michał Wolski (Michal Wolski) - Collection 8 Releases (2012-2017) [FLAC|Lossles
 ```bash
 magnet:?xt=urn:btih:3BF32EAB033197DB1167D6065C6AA25D82896553
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

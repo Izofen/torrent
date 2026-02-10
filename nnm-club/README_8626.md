@@ -19,6 +19,8 @@
 magnet:?xt=urn:btih:FB0A1A9BD963BCA83B66F3F7D06DBD5B8DEC23D2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ magnet:?xt=urn:btih:FB0A1A9BD963BCA83B66F3F7D06DBD5B8DEC23D2
 magnet:?xt=urn:btih:BFC02054CEB820FE3DDC6DB6296FADAF41BD390F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -68,6 +72,8 @@ PhotoCASA - красочный иллюстрированный журнал о 
 magnet:?xt=urn:btih:34D775723FCCDF91C71069A5E3169C00FF3D4C84
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +97,8 @@ magnet:?xt=urn:btih:34D775723FCCDF91C71069A5E3169C00FF3D4C84
 ```bash
 magnet:?xt=urn:btih:2C260E1B9DCE9A694895609ABFE46C0CFE2F9226
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -117,6 +125,8 @@ magnet:?xt=urn:btih:2C260E1B9DCE9A694895609ABFE46C0CFE2F9226
 magnet:?xt=urn:btih:AB54F74CF7F4F1EDFB75A9CB4B061ED2BE807320
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -140,6 +150,8 @@ magnet:?xt=urn:btih:AB54F74CF7F4F1EDFB75A9CB4B061ED2BE807320
 ```bash
 magnet:?xt=urn:btih:936FD7CB3F19901C31E09F06A061484E778421AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -168,6 +180,8 @@ VA - Uplifting Only Top 15: October 2025 (Extended Mixes) (2025) [MP3|320 Kbps] 
 magnet:?xt=urn:btih:3BCF12AB3DC0E9C4A0EA35C4580891AF4F9D086B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -195,6 +209,8 @@ VA - Uplifting Only Top 15: November 2025 (Extended Mixes) (2025) [MP3|320 Kbps]
 magnet:?xt=urn:btih:79E6D316609985FDB8DD7ABF474923FE33B5E3B8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ Nostradamus: The Last Prophecy – квест от первого лица, со
 ```bash
 magnet:?xt=urn:btih:E19E19E9250D6AE20C337890F7ABB88D608F4D47
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ magnet:?xt=urn:btih:E19E19E9250D6AE20C337890F7ABB88D608F4D47
 magnet:?xt=urn:btih:9AB6F3180EECBC82D41DF4DE6899C4CD8DAF7E3D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ magnet:?xt=urn:btih:9AB6F3180EECBC82D41DF4DE6899C4CD8DAF7E3D
 ```bash
 magnet:?xt=urn:btih:90BB800EAF7934EF464C366B389B5BF572E5F214
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ magnet:?xt=urn:btih:90BB800EAF7934EF464C366B389B5BF572E5F214
 magnet:?xt=urn:btih:E85DD1493EF47F526194BF684F13109066D3194E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ magnet:?xt=urn:btih:E85DD1493EF47F526194BF684F13109066D3194E
 ```bash
 magnet:?xt=urn:btih:F81C7D45FB032B01FD300907E11FFD4A5A894E9A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ magnet:?xt=urn:btih:F81C7D45FB032B01FD300907E11FFD4A5A894E9A
 magnet:?xt=urn:btih:6DF6583601049CE0414CA5A642ED0CEE46F71959
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -363,6 +391,8 @@ magnet:?xt=urn:btih:6DF6583601049CE0414CA5A642ED0CEE46F71959
 magnet:?xt=urn:btih:091EF584DEF36D182645C5D984DA731184386731
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -386,6 +416,8 @@ magnet:?xt=urn:btih:091EF584DEF36D182645C5D984DA731184386731
 ```bash
 magnet:?xt=urn:btih:D0DECAE2F1788F44F995174645FA971D25B26A0A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -414,6 +446,8 @@ A4 Freddie & The Dreamers - I'm Telling You Now(   Читать дальше... 
 magnet:?xt=urn:btih:462C044F630419F28029E0955596572EFFA70FD4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -437,6 +471,8 @@ magnet:?xt=urn:btih:462C044F630419F28029E0955596572EFFA70FD4
 ```bash
 magnet:?xt=urn:btih:B3320995F2D2F440FCC1D7A31A93CB5BACE34521
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -462,6 +498,8 @@ Bigfoot Life (2025) [Ru/Multi] (1.0) Repack FitGirl
 magnet:?xt=urn:btih:728E9D080C363BAAA3A0974B085415E4AAEC39A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -485,6 +523,8 @@ magnet:?xt=urn:btih:728E9D080C363BAAA3A0974B085415E4AAEC39A5
 ```bash
 magnet:?xt=urn:btih:D9F3B93990E12C0FC527F91EF3AE5574CEB7D062
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -510,6 +550,8 @@ magnet:?xt=urn:btih:D9F3B93990E12C0FC527F91EF3AE5574CEB7D062
 magnet:?xt=urn:btih:945DA10EDC4FF371A33703A27012AB7E69A6BD41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ Radiolight (2025) [Multi] (0.4) License GOG
 ```bash
 magnet:?xt=urn:btih:6E81BAD5D85D229FC8BA1A417F8124B5BBF459E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ Constance - это двумерный приключенческий экшен 
 magnet:?xt=urn:btih:311388E1A5EAB2D70816C2C58BC59BE037C98EDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ magnet:?xt=urn:btih:311388E1A5EAB2D70816C2C58BC59BE037C98EDC
 ```bash
 magnet:?xt=urn:btih:7EBECCD596F0D076403E3C347D55BF0719C252AA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Slyders (2025) [Ru/Multi] (1.0.12) Repack Let'sРlay
 magnet:?xt=urn:btih:80BE9AC0134FD012528A6B8D11E68297EF3D32AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ magnet:?xt=urn:btih:80BE9AC0134FD012528A6B8D11E68297EF3D32AC
 ```bash
 magnet:?xt=urn:btih:4D8503EBB5DC334AE1FF7E9A82CF733AAB6EDC2A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

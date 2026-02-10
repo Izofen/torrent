@@ -22,6 +22,8 @@ David Gilmour - About Face (1984) Japanese Edition, Reissue, Remastered, 2020, S
 magnet:?xt=urn:btih:2DC5F2E5EDD378EDC9808F6CFF5449889837C125
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -46,6 +48,8 @@ magnet:?xt=urn:btih:2DC5F2E5EDD378EDC9808F6CFF5449889837C125
 magnet:?xt=urn:btih:BE81B4041DBEAD049E5D4770348F0DD12857F7D5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -69,6 +73,8 @@ One Switch - это крошечное приложение, разработа�
 ```bash
 magnet:?xt=urn:btih:2AB55DAAA4646CDCC57B7FCF67BC98B95607CF7B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -95,6 +101,8 @@ Josh Steele, Renan Dias | Real-World iOS by Tutorials (2022) [PDF][EN]
 magnet:?xt=urn:btih:4675FF1086FE4B7BA20F02D2CA9F70D66E85104C
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -119,6 +127,8 @@ Scherlokk является утилитой для быстрого поиска
 magnet:?xt=urn:btih:D8FA80EC18AD2C3D2F23D8DEDC88C34A2FF15596
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -142,6 +152,8 @@ MarkMyWords предлагает простые функции форматир�
 ```bash
 magnet:?xt=urn:btih:FE1CD0F6B74D0DA8439015F92B696F7E04F37E8D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -169,6 +181,8 @@ Thomas Anders - Songs Forever (2006) Remastered, 2023, Craft Recordings [FLAC 24
 ```bash
 magnet:?xt=urn:btih:C4D74D363067EFA27FC47FDC201F3AC1E3DEDB3C
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -203,6 +217,8 @@ Moss - Ornaments (2012) [MP3|320 кб/с]<Indie, Pop>
 magnet:?xt=urn:btih:0A70970E12AD1CA8F69BAA169940B625D6A25F4B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -227,6 +243,8 @@ Dropzone - удобная утилита для автоматизация ру�
 ```bash
 magnet:?xt=urn:btih:CE0078C9C1B1F8862629B8D04B78884FCB346B01
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -254,6 +272,8 @@ VA - Шоферской 16 (2004) [MP3|320 Kbps] <Шансон>
 ```bash
 magnet:?xt=urn:btih:81A3A081C1CFBD9068BF668E8034715DDE9CA795
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -288,6 +308,8 @@ VA - Gold Disco 50+50 (2012) [MP3|256 кб/с]<Pop,Dance>
 magnet:?xt=urn:btih:DBDF7F4B88F0AE50D3600E069FB522D4A25D8E8E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -311,6 +333,8 @@ Keep It 1.11.9 [Multi]
 ```bash
 magnet:?xt=urn:btih:C600C81753400FC486EE94488BB1BDFF420F618B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -337,6 +361,8 @@ magnet:?xt=urn:btih:C600C81753400FC486EE94488BB1BDFF420F618B
 ```bash
 magnet:?xt=urn:btih:A0DFA76DA0D01E32A415BEACEF3CFA0880688D11
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -365,6 +391,8 @@ Showtek - 360 Yellow (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle, Hard Tranc
 magnet:?xt=urn:btih:A65B485FC15A28F5338CEC39A0662005CADA1149
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -389,6 +417,8 @@ magnet:?xt=urn:btih:A65B485FC15A28F5338CEC39A0662005CADA1149
 magnet:?xt=urn:btih:7BE8F7E6F8A6178DA1A27724535638ED7B06E301
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -412,6 +442,8 @@ AText ускоряет вашу запись, заменяя сокращени�
 ```bash
 magnet:?xt=urn:btih:F21F10FBE86A1300A7873A3187A428D0C6FDC1C9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -440,6 +472,8 @@ Thomas Anders - Songs Forever (2006) Remastered 2023 [FLAC|Lossless|WEB-DL|track
 magnet:?xt=urn:btih:843072E649CCFC11DED9D272439D2967DC52D2BA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -463,6 +497,8 @@ magnet:?xt=urn:btih:843072E649CCFC11DED9D272439D2967DC52D2BA
 ```bash
 magnet:?xt=urn:btih:983B45558B5D8D53245088FC63A3C4EF9DD056E0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -490,6 +526,8 @@ magnet:?xt=urn:btih:983B45558B5D8D53245088FC63A3C4EF9DD056E0
 magnet:?xt=urn:btih:F1A80904C708A507238187DB416B76C59EE3EAEA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -516,6 +554,8 @@ Arc Of Ascent - The Higher Key (2012) [MP3|256 кб/с]<Stoner Doom>
 magnet:?xt=urn:btih:5D8ABD82F89DD03F44BB2A5EA3FDDB7A07B6B7A0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -539,6 +579,8 @@ magnet:?xt=urn:btih:5D8ABD82F89DD03F44BB2A5EA3FDDB7A07B6B7A0
 ```bash
 magnet:?xt=urn:btih:DFB5576F0F8D15E2F11D67B824856209729D33A6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -567,6 +609,8 @@ VA - Guitar Chillout Lounge 1 (2007) [AAC|~323 Kbps] <Lounge, Chill Out, Downtem
 magnet:?xt=urn:btih:2F69CF96A9051BFF834D4261BE002A10ADBE8E3A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -592,6 +636,8 @@ Disfiguring The Goddess - Sleeper (2012) [MP3|320 кб/с]<Brutal Death>
 magnet:?xt=urn:btih:FC5D75A4BC486C7FB1039939EA13657A391D554A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -615,6 +661,8 @@ PerfectTUNES for Mac 3.1 [En]
 ```bash
 magnet:?xt=urn:btih:D56A6228578C0D2474866D4F3173EACDE3AE2930
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -643,6 +691,8 @@ Birds ov Paradise - Memorial (2022) [AAC|~343 Kbps] <Atmospheric Techno, Deep Te
 magnet:?xt=urn:btih:E406DE4C794B435D94453FE080571AECD2270C78
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -666,6 +716,8 @@ magnet:?xt=urn:btih:E406DE4C794B435D94453FE080571AECD2270C78
 ```bash
 magnet:?xt=urn:btih:2EAD8CBB0090F353338053C3D1084247D93D8A31
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -1,3 +1,29 @@
+###  Публикация: 1496801   (869783) от 19.09.2021
+
+Правда о вакцинах / The truth about vaccines (2016) WEBRip (7 серий в 10 частях) [AVO]
+
+>>Документалистика и Телепередачи
+>>
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_869783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторы не за и не против вакцинаций, они против безоглядной оголтелости в этом вопросе и за то, чтобы во главу угла ставили безопасность вакцин для человека, и их эффективность, а не прибыли тех, кто вакцины производит.Производство: СШАЖанр: документальный, медицинаРежиссер: Тай БоллинджерПеревод: Одноголосый авторский (Ксения Нагева)Субтитры: отсутствуютПродолжительность: 10x ~01:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71BE45FED731908C7CC51B138F3E6BB2162031A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496816   (869796) от 19.09.2021
 
 Военная приемка. Приказ на «Запад-2021» (19.09.2021) WEBRip  [H.264/1080p-LQ]
@@ -19,6 +45,8 @@
 ```bash
 magnet:?xt=urn:btih:00830862B1B48875CAF4DF8558E30CE0C8F3D98D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -44,6 +72,8 @@ magnet:?xt=urn:btih:00830862B1B48875CAF4DF8558E30CE0C8F3D98D
 magnet:?xt=urn:btih:6FF5CDE704C039595C48194149B0EED45E95F420
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +97,8 @@ Scorpions: Вечность и один день / Scorpions: Forever and a Day 
 ```bash
 magnet:?xt=urn:btih:F8FF3359A01633EE0D589496C4551CB7CF5850BF
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -93,6 +125,8 @@ magnet:?xt=urn:btih:F8FF3359A01633EE0D589496C4551CB7CF5850BF
 magnet:?xt=urn:btih:9AE5D095C1635A11DD327A9B1E1536712725FD05
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -116,6 +150,8 @@ magnet:?xt=urn:btih:9AE5D095C1635A11DD327A9B1E1536712725FD05
 ```bash
 magnet:?xt=urn:btih:04A32E1C2E18B085B41D5061F6376396A06C2A42
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +177,8 @@ magnet:?xt=urn:btih:04A32E1C2E18B085B41D5061F6376396A06C2A42
 magnet:?xt=urn:btih:8E11B43EE36656FF2A83B38199D1E0286DC347DD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -164,6 +202,8 @@ magnet:?xt=urn:btih:8E11B43EE36656FF2A83B38199D1E0286DC347DD
 ```bash
 magnet:?xt=urn:btih:AB63BB644643AD7302291D0DCB3BF99BDE2F9EC2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -189,6 +229,8 @@ magnet:?xt=urn:btih:AB63BB644643AD7302291D0DCB3BF99BDE2F9EC2
 magnet:?xt=urn:btih:D80F5FB04BA8D0F088BD77B7295C832F52FAEAC8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -212,6 +254,8 @@ magnet:?xt=urn:btih:D80F5FB04BA8D0F088BD77B7295C832F52FAEAC8
 ```bash
 magnet:?xt=urn:btih:CBBD1A535ACC2D2DCA0084BB94E5E5DEC08F4747
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -237,6 +281,8 @@ magnet:?xt=urn:btih:CBBD1A535ACC2D2DCA0084BB94E5E5DEC08F4747
 magnet:?xt=urn:btih:EB178F5C280955F1BB10929723AB7C074F2F59AB
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -260,6 +306,8 @@ Scorpions: Вечность и один день / Scorpions: Forever and a Day 
 ```bash
 magnet:?xt=urn:btih:3E2460A570C18C2166E77A99A5654871D0BCF2B3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -285,6 +333,8 @@ magnet:?xt=urn:btih:3E2460A570C18C2166E77A99A5654871D0BCF2B3
 magnet:?xt=urn:btih:5574281A7638B36B130305A48DBE7A365DE610D1
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -308,6 +358,8 @@ magnet:?xt=urn:btih:5574281A7638B36B130305A48DBE7A365DE610D1
 ```bash
 magnet:?xt=urn:btih:6E67774819CBDC5798740CED7067E61DE2BB1DBD
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -333,6 +385,8 @@ magnet:?xt=urn:btih:6E67774819CBDC5798740CED7067E61DE2BB1DBD
 magnet:?xt=urn:btih:F6C71CDB28D8D63E3D37BD98BB6E18211E3F69C2
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -356,6 +410,8 @@ magnet:?xt=urn:btih:F6C71CDB28D8D63E3D37BD98BB6E18211E3F69C2
 ```bash
 magnet:?xt=urn:btih:F8BB07E0D793693DFA2B08021B06185FD90872F0
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -381,6 +437,8 @@ magnet:?xt=urn:btih:F8BB07E0D793693DFA2B08021B06185FD90872F0
 magnet:?xt=urn:btih:FC46CCC2FECA89DE3C87DB1C100DDC92AD25127B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -404,6 +462,8 @@ magnet:?xt=urn:btih:FC46CCC2FECA89DE3C87DB1C100DDC92AD25127B
 ```bash
 magnet:?xt=urn:btih:1E2C3AAD6F51AA2394999CC6D319D9CF947BC004
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -429,6 +489,8 @@ magnet:?xt=urn:btih:1E2C3AAD6F51AA2394999CC6D319D9CF947BC004
 magnet:?xt=urn:btih:359790D47F7C5CB87DA4C1289D16C93A644F4AD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +514,8 @@ magnet:?xt=urn:btih:359790D47F7C5CB87DA4C1289D16C93A644F4AD5
 ```bash
 magnet:?xt=urn:btih:1D8117351858823923E09224A06804189D46E61A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -477,6 +541,8 @@ magnet:?xt=urn:btih:1D8117351858823923E09224A06804189D46E61A
 magnet:?xt=urn:btih:FD0F90BB3E2A4DC52C281D47B9D4EB0290152D58
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -500,6 +566,8 @@ magnet:?xt=urn:btih:FD0F90BB3E2A4DC52C281D47B9D4EB0290152D58
 ```bash
 magnet:?xt=urn:btih:8F2BAE84E1A5F3D3658000778BED4B0A60035870
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -525,6 +593,8 @@ magnet:?xt=urn:btih:8F2BAE84E1A5F3D3658000778BED4B0A60035870
 magnet:?xt=urn:btih:6BA31F5C5B731D5270A7CFCBCDF605B18ED13EDD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +619,8 @@ magnet:?xt=urn:btih:6BA31F5C5B731D5270A7CFCBCDF605B18ED13EDD
 magnet:?xt=urn:btih:69B5EE5D44539FA721FE0107F048D1E44DE67790
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -572,6 +644,8 @@ magnet:?xt=urn:btih:69B5EE5D44539FA721FE0107F048D1E44DE67790
 ```bash
 magnet:?xt=urn:btih:53E1A5FD2BFC5F4CD76280F8FB50F685B58F2C2B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,29 +673,7 @@ magnet:?xt=urn:btih:53E1A5FD2BFC5F4CD76280F8FB50F685B58F2C2B
 magnet:?xt=urn:btih:7B3ECFBFD1F701C38314C694736B14F069388E1E
 ```
 
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998392   (870374) от 19.03.2016
-
-Постскриптум с Алексеем Пушковым (19.03.2016) SATRip
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_870374.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельная аналитическая программа, посвящённая важнейшим событиям, происходящим в России и за её пределами. Гостями автора и ведущего программы Алексея Пушкова становятся видные российские и зарубежные политики, общественные деятели, представители науки и культуры. Программу отличают взвешенность оценок и выводов, компетентность экспертов, точность фактов и анализа. (   Читать дальше...   )В этом выпуске: Крым: два года в составе России. Специальный репортаж с полуострова. Сирия: российская военная операция и её результаты. Меркель: проигранные выборы как расплата за просчёт. Наша оценка. А также... Польский синдром: гибель Качиньского и больные фантазии Варшавы. Обогатились и не только культурно - скандал в Министерстве культуры.Телекомпания: ТВ-ЦентрЖанр: ТелепередачаПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D8F1393FF52E8F63EF14EF2CA6C31E40CB11205
-```
+https://mybot314.ru/tekegram_catalog/
 
 
 

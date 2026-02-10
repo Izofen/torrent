@@ -22,6 +22,8 @@ One Direction - Made In The A.M. (2015) Deluxe Edition [FLAC|Lossless|image + .c
 magnet:?xt=urn:btih:B2E2B8AADF5AB2BF1C64F9290A6BD5AB52376A48
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -48,6 +50,8 @@ CD1:
 ```bash
 magnet:?xt=urn:btih:2A5DCEC583880E642A1D0FA3E516706872C0D41D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -76,6 +80,8 @@ Alison Moyet - Singles (1995) [FLAC|image + .cue]<Pop, Synth-pop>
 magnet:?xt=urn:btih:03C2A6A93F9B39751B5EAEFAC0EFC39DB9ACED45
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -102,6 +108,8 @@ Phildel - The Glass Ghost (2013) EP [MP3|320 кб/с]<Alternative Pop, Indie Pop
 ```bash
 magnet:?xt=urn:btih:7CBA7F987C43F9E8562505B780C15674D417847A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -130,6 +138,8 @@ VA - Best Radio Tracks, Vol. 23 (2022) [MP3|320 Kbps] <Dance, Pop, Electronic>
 magnet:?xt=urn:btih:D7A5840FADDDEA840116BA2552684C7A1A9E4758
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -156,6 +166,8 @@ Madonna - Finally Enough Love: 50 Number Ones (2022) 3CD [FLAC|Lossless|tracks +
 ```bash
 magnet:?xt=urn:btih:BE1749B60A5B8896EEA7AE7583BDE1A91193287D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -184,6 +196,8 @@ Robbie Williams - The Christmas Present (2019) (2CD) [OGG Vorbis|484 Kbps] <Jazz
 magnet:?xt=urn:btih:96108F46F208FD0E4C3C2CDCA8D9B6EC6DAF4E38
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -211,6 +225,8 @@ Performance - Hi-Fi Performance (1976) LP [MP3|320 Kbps] <Disco, Instrumental, E
 magnet:?xt=urn:btih:0BB540BCB423C19E9F4A4CC6D1634C8FBC30961A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -236,6 +252,8 @@ Milou - Change Your Mind (1990) [OGG Vorbis|485 Kbps] <Electronic, Synth-pop, Eu
 ```bash
 magnet:?xt=urn:btih:9C4BE5785AE316D842A8EAD3F2C102153FD1381F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -264,6 +282,8 @@ Robbie Williams - Heavy Entertainment Show (2016) [OGG Vorbis|484 Kbps] <Rock, P
 magnet:?xt=urn:btih:2968BF4B23BE5684F8C2F1872089EFE418FE5F7B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -290,6 +310,8 @@ Robbie Williams - Intensive Care (2005) [OGG Vorbis|484 Kbps] <Electronic, Pop R
 ```bash
 magnet:?xt=urn:btih:697341F0C0CF243C65944EDD6D4530275A8512E9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -318,6 +340,8 @@ magnet:?xt=urn:btih:697341F0C0CF243C65944EDD6D4530275A8512E9
 magnet:?xt=urn:btih:79ABBBC47F4D08D32107DDBD88A3BDA0489BB810
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -344,6 +368,8 @@ One Direction - Made In The A.M. (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
 ```bash
 magnet:?xt=urn:btih:B8A3959C0A5FE9F39347CC46C0F25F34372FDCB2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -372,6 +398,8 @@ Anne Harris - Come Hither (2015) [MP3|320 кб/с]<Alternative Pop, Contemporary
 magnet:?xt=urn:btih:AE6376269EFE5DF88F99455F1B1F51726C69BA0D
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -398,6 +426,8 @@ magnet:?xt=urn:btih:AE6376269EFE5DF88F99455F1B1F51726C69BA0D
 ```bash
 magnet:?xt=urn:btih:E7391A786F1A5D22B2667C0923F2F406653A220F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -426,6 +456,8 @@ Natasha St-Pier - Jeanne (2022) [FLAC|44.1/24|Lossless|WEB-DL|tracks] <Pop, Fren
 magnet:?xt=urn:btih:AAF21D46D7438BBA2B38AB949A53587DA6340FD7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -452,6 +484,8 @@ Didier Marouani & Paris • France • Transit - Concerts En URSS (1983) Reissue
 ```bash
 magnet:?xt=urn:btih:6BF0744E67F4BD0ED408178BEBD5AD530399F028
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -480,6 +514,8 @@ Justin Bieber - Purpose (2015) Deluxe Edition [MP3|320 кб/с]<Pop>
 magnet:?xt=urn:btih:59509478D5794A8C2D584581328267F6EBF10666
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -506,6 +542,8 @@ magnet:?xt=urn:btih:59509478D5794A8C2D584581328267F6EBF10666
 ```bash
 magnet:?xt=urn:btih:EF8C88F15720A56BC7CCB1DCB5002297CDE7D9D2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -534,6 +572,8 @@ Simply Red - Big Love: Greatest Hits Edition (30th Anniversary) (2015) [FLAC|tra
 magnet:?xt=urn:btih:B7343B1337972A3F43224EE0ED6E184CB032615A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -560,6 +600,8 @@ magnet:?xt=urn:btih:B7343B1337972A3F43224EE0ED6E184CB032615A
 ```bash
 magnet:?xt=urn:btih:7D84225D1461620224A81C0E849E6D911369F95A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -588,6 +630,8 @@ Boney M. - The Magic Of Boney M. (2022) Special Remix Edition [FLAC|Lossless|tra
 magnet:?xt=urn:btih:185EE91DE06C35666C98888E8C80358EA09B27A5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -614,6 +658,8 @@ Boney M. - The Magic Of Boney M. (2022) Special Remix Edition [MP3|320 Kbps] <Di
 ```bash
 magnet:?xt=urn:btih:59767BF69946B10772363BB2EA449F366BAAD9E6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -642,6 +688,8 @@ Leo Rojas - Colours of Nature (2022) [FLAC|Lossless|image + .cue] <Instrumental 
 magnet:?xt=urn:btih:555A3144DF2EEB55F97FCC41BACFA763C10B65C8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -669,6 +717,8 @@ Richard Marx - Songwriter (2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
 magnet:?xt=urn:btih:29E25C2EFF2C713CFF5AFA5F9EDEFE0AB7230AD6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -695,6 +745,8 @@ VA - Keep It Disco Vol. 04 (2022) CD, Compilation [MP3|320 Kbps] <Nu Disco, Funk
 ```bash
 magnet:?xt=urn:btih:A1A9EBF5816BFF0C2822CB3A42F124AA431FF092
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

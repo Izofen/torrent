@@ -1,27 +1,3 @@
-###  Публикация: 1293929   (633113) от 05.04.2019
-
-Астерикс и тайное зелье / Asterix: Le secret de la potion magique (2018) WEB-DL [H.264/1080p-LQ]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/008/save_picture_633113.jpg" />
-</div>
-
-
-###  Подробнее
-
-Могучие галлы издревле черпали силу в секретном напитке, который готовил великий старец. Но пришла беда, откуда не ждали — почтенный друид свалился с дерева и сломал обе ноги. Теперь Астериксу и Обеликсу предстоит отправиться в опасное путешествие, чтобы отыскать нового друида, достойного постичь рецепт тайного зелья.Производство: Франция, M6 Studio, M6 Films, Les Editions Albert RenéЖанр: Мультфильм, Комедия, Семейный, ФэнтезиРежиссер: Александр Астье, Луи КлишиПеревод: Дублированный (iTunes)Субтитры: Русские (Full)Продолжительность: 01:24:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D23ED5FAD46D1B8024F7F24960147C0FD7B4CF89
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543082   (633174) от 09.04.2022
 
 Белый клык / Croc-Blanc (2018) BDRip [H.264/1080p-LQ] [Sub]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:D23ED5FAD46D1B8024F7F24960147C0FD7B4CF89
 ```bash
 magnet:?xt=urn:btih:5B019CC53658D975F7AC0867002A846ED11CE90B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:5B019CC53658D975F7AC0867002A846ED11CE90B
 magnet:?xt=urn:btih:97F884E311608F6D570429BCB8A39E4A019136A4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -91,6 +71,8 @@ magnet:?xt=urn:btih:97F884E311608F6D570429BCB8A39E4A019136A4
 magnet:?xt=urn:btih:18728D171E32D47D8731E7ACD92223D3984350DC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -114,6 +96,8 @@ magnet:?xt=urn:btih:18728D171E32D47D8731E7ACD92223D3984350DC
 ```bash
 magnet:?xt=urn:btih:37AF0A298A822997C8443ED1E752D1A682648926
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -141,6 +125,8 @@ magnet:?xt=urn:btih:37AF0A298A822997C8443ED1E752D1A682648926
 magnet:?xt=urn:btih:AD6914DFFA8B6AE7D9A180F4855FA6628B042111
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +153,8 @@ magnet:?xt=urn:btih:AD6914DFFA8B6AE7D9A180F4855FA6628B042111
 magnet:?xt=urn:btih:73412DDB6AF2BA20921B741FB5DEB0FA9C2EBECF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -190,6 +178,8 @@ magnet:?xt=urn:btih:73412DDB6AF2BA20921B741FB5DEB0FA9C2EBECF
 ```bash
 magnet:?xt=urn:btih:5433B711F956135681D944880EAF6D7641CCD9A9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -215,6 +205,8 @@ magnet:?xt=urn:btih:5433B711F956135681D944880EAF6D7641CCD9A9
 magnet:?xt=urn:btih:6FCBB95063F511C2B036C164E7A498584BC97124
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -238,6 +230,8 @@ magnet:?xt=urn:btih:6FCBB95063F511C2B036C164E7A498584BC97124
 ```bash
 magnet:?xt=urn:btih:44319BC6E0E4642CD761B827F5BE1B5F22B8E413
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -263,6 +257,8 @@ magnet:?xt=urn:btih:44319BC6E0E4642CD761B827F5BE1B5F22B8E413
 magnet:?xt=urn:btih:AF92FAB155DD80AE56456A345660B0E37056230E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -286,6 +282,8 @@ magnet:?xt=urn:btih:AF92FAB155DD80AE56456A345660B0E37056230E
 ```bash
 magnet:?xt=urn:btih:03B6B99C029FFA9A466FFEDF2E77A1AA01800E22
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -311,6 +309,8 @@ magnet:?xt=urn:btih:03B6B99C029FFA9A466FFEDF2E77A1AA01800E22
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -334,6 +334,8 @@ magnet:?xt=urn:btih:03B6B99C029FFA9A466FFEDF2E77A1AA01800E22
 ```bash
 magnet:?xt=urn:btih:4050329E84BA55EBD830AB457C0CC1F873CA02A7
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -359,6 +361,8 @@ magnet:?xt=urn:btih:4050329E84BA55EBD830AB457C0CC1F873CA02A7
 magnet:?xt=urn:btih:75EB2D74A5C3499C4EF7939FA15D2F2517132B92
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -383,6 +387,8 @@ magnet:?xt=urn:btih:75EB2D74A5C3499C4EF7939FA15D2F2517132B92
 magnet:?xt=urn:btih:7E4CEF746DF9F2E3D41E346FE8DDCFFEE8A757EA
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -406,6 +412,8 @@ magnet:?xt=urn:btih:7E4CEF746DF9F2E3D41E346FE8DDCFFEE8A757EA
 ```bash
 magnet:?xt=urn:btih:2F41B03E4615A9800E93559B29EDBD107D3B614D
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -433,6 +441,8 @@ magnet:?xt=urn:btih:2F41B03E4615A9800E93559B29EDBD107D3B614D
 magnet:?xt=urn:btih:9BD066AC6B9F3841AB727E1EB52A00CD65C2B3F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -458,6 +468,8 @@ magnet:?xt=urn:btih:9BD066AC6B9F3841AB727E1EB52A00CD65C2B3F7
 ```bash
 magnet:?xt=urn:btih:BF09308A692A71954F0A01E19005CEF2916E655B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +497,8 @@ magnet:?xt=urn:btih:BF09308A692A71954F0A01E19005CEF2916E655B
 magnet:?xt=urn:btih:525249312AA3890E6B8C60A8D8F985F05F459EE4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -508,6 +522,8 @@ magnet:?xt=urn:btih:525249312AA3890E6B8C60A8D8F985F05F459EE4
 ```bash
 magnet:?xt=urn:btih:EF1F32D7DDD93CC31400BE0ACC01A567E3C74439
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -533,6 +549,8 @@ magnet:?xt=urn:btih:EF1F32D7DDD93CC31400BE0ACC01A567E3C74439
 magnet:?xt=urn:btih:9873C3110670C9B5CBD0BF8BC61BAB61B79F43D0
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -556,6 +574,8 @@ magnet:?xt=urn:btih:9873C3110670C9B5CBD0BF8BC61BAB61B79F43D0
 ```bash
 magnet:?xt=urn:btih:2A8A3A4356FF8F4F1A3C4E210C94C07CD4D3B1BA
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -581,6 +601,8 @@ magnet:?xt=urn:btih:2A8A3A4356FF8F4F1A3C4E210C94C07CD4D3B1BA
 magnet:?xt=urn:btih:EEDDBD381BC734373BCCF170A17D3BBA23FA33A3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -605,6 +627,8 @@ magnet:?xt=urn:btih:EEDDBD381BC734373BCCF170A17D3BBA23FA33A3
 magnet:?xt=urn:btih:490FF2CF365AB569D2ED5ED26874585CF0DA02E9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -628,6 +652,34 @@ magnet:?xt=urn:btih:490FF2CF365AB569D2ED5ED26874585CF0DA02E9
 ```bash
 magnet:?xt=urn:btih:60EA947DC88C114C165F918CB6BA04C4C93120EB
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905355   (648732) от 06.06.2015
+
+Барашек Шон / Shaun the Sheep Movie (2015) BDRip [H.264/1080p]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/008/save_picture_648732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мирная жизнь маленькой овцефермы оказывается под угрозой, когда в результате очередной проказы неутомимого Барашка Шона хозяин фермы попадает в большой город. Вдоволь навеселившись полной свободой и безнаказанностью, Шон и остальное стадо барашков начинают волноваться за Фермера и решают отправиться на его спасение. Замаскировавшись под людей, они едут в большой (   Читать дальше...   )Производство: Великобритания, Франция, Aardman Animations, Anton Capital Entertainment (ACE), StudioCanalЖанр: Мультфильм, комедия, приключения, семейныйРежиссер: Марк БертонПерсонажи: Джастин Флетчер, Джон Шпаркс, Омид Джалили, Ричард Веббер, Кейт Харбор, Тим Хэндс, Энди Найман, Саймон Гринхолл, Эмма Тейт, Джек ПолсонПеревод: Не требуетсяПродолжительность: 01:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B2D5D1E50EA9B3905E37A34EA990B2A18EC67A5
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

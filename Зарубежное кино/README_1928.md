@@ -1,27 +1,3 @@
-###  Публикация: 456641   (923310) от 17.08.2021
-
-Кто-то там внизу меня любит / Nekdo tam dole me ma rad (2009) DVDRip [VO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="http://mybot314.ru/public/picture/007/save_picture_923310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ото, полностью парализованный и прикованный к инвалидной коляске мужчина, становится свидетелем изнасилования и зверского убийства своих жены и дочери. Будучи не способным отомстить подонкам самостоятельно, Ото взывает о возмездии к высшим силам, и дьявол быстро откликается на его мольбы.Производство: Чехия / Horor Film, Scumfilms, Sinerama FilmsЖанр: ужасы, криминалРежиссер: Роман ВожкувкаАктеры: Иржи Хромечка, Andrea Civanova, Андреа Циванова, Джастин Диас, Джастин Диаз, Мартин Фрайт, Мартина Герыкова, Милос Копржива, Милослав Копржива, Павел Ладислав КрокаПеревод: Одноголосый закадровыйСубтитры: Русские (hardsub)Продолжительность: 01:59:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:984F421D3538A790F31EB3A28F1A7536BD7B495F
-```
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117768   (923312) от 17.08.2021
 
 Крик / Scream (1996) BDRip [H.264] [Unrated]
@@ -42,6 +18,8 @@ magnet:?xt=urn:btih:984F421D3538A790F31EB3A28F1A7536BD7B495F
 ```bash
 magnet:?xt=urn:btih:591B4999328E14F735AF7CFA91A05C20983632A3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -67,6 +45,8 @@ magnet:?xt=urn:btih:591B4999328E14F735AF7CFA91A05C20983632A3
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -90,6 +70,8 @@ magnet:?xt=urn:btih:591B4999328E14F735AF7CFA91A05C20983632A3
 ```bash
 magnet:?xt=urn:btih:6F9CD599DC6405124794235CFF7ABEBC07454B9B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -115,6 +97,8 @@ magnet:?xt=urn:btih:6F9CD599DC6405124794235CFF7ABEBC07454B9B
 magnet:?xt=urn:btih:882AF4640926FE42BBE7E5E6371F8B996484D260
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -138,6 +122,8 @@ magnet:?xt=urn:btih:882AF4640926FE42BBE7E5E6371F8B996484D260
 ```bash
 magnet:?xt=urn:btih:76F6D4C1226304278A5F3DE854C3F69EED7D7576
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -163,6 +149,8 @@ magnet:?xt=urn:btih:76F6D4C1226304278A5F3DE854C3F69EED7D7576
 magnet:?xt=urn:btih:CF02D26A5374E0E2E93773970580346929857078
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -187,6 +175,8 @@ magnet:?xt=urn:btih:CF02D26A5374E0E2E93773970580346929857078
 magnet:?xt=urn:btih:799BA6C6BE93391D84537CD1F59138437AC94105
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -210,6 +200,8 @@ magnet:?xt=urn:btih:799BA6C6BE93391D84537CD1F59138437AC94105
 ```bash
 magnet:?xt=urn:btih:B9F88176638017115A9A00CE4CE94013953D5E2F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -236,6 +228,8 @@ magnet:?xt=urn:btih:B9F88176638017115A9A00CE4CE94013953D5E2F
 magnet:?xt=urn:btih:D3CBB295F11AB91F9C7F80BA67B8D9BCCA869DD5
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -259,6 +253,8 @@ magnet:?xt=urn:btih:D3CBB295F11AB91F9C7F80BA67B8D9BCCA869DD5
 ```bash
 magnet:?xt=urn:btih:E1231C98F370CD73377472317141D37374AAA354
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -284,6 +280,8 @@ magnet:?xt=urn:btih:E1231C98F370CD73377472317141D37374AAA354
 magnet:?xt=urn:btih:ED5517154D1D33824B1B4E6B53B80A0CAE12B9AC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -307,6 +305,8 @@ magnet:?xt=urn:btih:ED5517154D1D33824B1B4E6B53B80A0CAE12B9AC
 ```bash
 magnet:?xt=urn:btih:E3DBEA9F14EBA7556D7542786B684B8BD21D0EB1
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -332,6 +332,8 @@ magnet:?xt=urn:btih:E3DBEA9F14EBA7556D7542786B684B8BD21D0EB1
 magnet:?xt=urn:btih:BF0F6D8C1FBF950D647FA69C1F9FB1C5D3998EF9
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -355,6 +357,8 @@ magnet:?xt=urn:btih:BF0F6D8C1FBF950D647FA69C1F9FB1C5D3998EF9
 ```bash
 magnet:?xt=urn:btih:AB45F65581E990C256D673C678D44B6CB4925570
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -382,6 +386,8 @@ magnet:?xt=urn:btih:AB45F65581E990C256D673C678D44B6CB4925570
 magnet:?xt=urn:btih:A50A3766ADE60E56D5488839482F75061DC41C23
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -405,6 +411,8 @@ magnet:?xt=urn:btih:A50A3766ADE60E56D5488839482F75061DC41C23
 ```bash
 magnet:?xt=urn:btih:FB08D5023F1676006BAEA86289BAB1A959438A0B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -430,6 +438,8 @@ magnet:?xt=urn:btih:FB08D5023F1676006BAEA86289BAB1A959438A0B
 magnet:?xt=urn:btih:E1BD73241F7EC1293A6697FC09A6AFB545877318
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -453,6 +463,8 @@ magnet:?xt=urn:btih:E1BD73241F7EC1293A6697FC09A6AFB545877318
 ```bash
 magnet:?xt=urn:btih:71E7419AAB8DB1B2563FB324A4D2496AC73B97A2
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -478,6 +490,8 @@ magnet:?xt=urn:btih:71E7419AAB8DB1B2563FB324A4D2496AC73B97A2
 magnet:?xt=urn:btih:8758F881B25684A9B4392392E0BC83A0FC288D5E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -501,6 +515,8 @@ magnet:?xt=urn:btih:8758F881B25684A9B4392392E0BC83A0FC288D5E
 ```bash
 magnet:?xt=urn:btih:F04A659CC8F76D912AF1212AC178F41041720EFE
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -526,6 +542,8 @@ magnet:?xt=urn:btih:F04A659CC8F76D912AF1212AC178F41041720EFE
 magnet:?xt=urn:btih:55C4CE7FEBD29B76F59EAB5E55F7633F704027C3
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -549,6 +567,8 @@ magnet:?xt=urn:btih:55C4CE7FEBD29B76F59EAB5E55F7633F704027C3
 ```bash
 magnet:?xt=urn:btih:DA7BC3C5B9871916BF65CF2F1AB139C6EFD137BB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -574,6 +594,8 @@ magnet:?xt=urn:btih:DA7BC3C5B9871916BF65CF2F1AB139C6EFD137BB
 magnet:?xt=urn:btih:125DCF5594FD551FACD7449F8D9C2E4095287440
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -598,6 +620,8 @@ magnet:?xt=urn:btih:125DCF5594FD551FACD7449F8D9C2E4095287440
 magnet:?xt=urn:btih:4E03C4EC89DFD7AD3EC316A0125893432F429A39
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -621,6 +645,34 @@ magnet:?xt=urn:btih:4E03C4EC89DFD7AD3EC316A0125893432F429A39
 ```bash
 magnet:?xt=urn:btih:91CD30E40350022F8EC4014586ECF48B888B5B1C
 ```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1489707   (923647) от 17.08.2021
+
+Заклятие 3: По воле дьявола / The Conjuring: The Devil Made Me Do It (2021) BDRip [H.264/720p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="http://mybot314.ru/public/picture/007/save_picture_923647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Леденящая кровь история ужасающего убийства, которая поразила даже опытных исследователей паранормальных явлений Эда и Лоррейн Уорренов. Одно из их самых сенсационных дел началось с борьбы за душу юноши, а привело к тому, чего они ни разу не видели за свою практику — впервые в истории США подозреваемый в убийстве в свою защиту заявил, что был одержим демоном.Производство: США, Великобритания / Atomic Monster, New Line Cinema, Safran CompanyЖанр: Ужасы, детективРежиссер: Майкл ЧавесАктеры: Патрик Уилсон, Вера Фармига, Руаири О’Коннор, Сара Кэтрин Хук, Джулиан Хиллиард, Джон Ноубл, Эжени Бондюран, Шэннон Кук-Чун, Ронни Джин Блевинс, Кит А. БолденПеревод: Дублированный (Пифагор)Субтитры: Русские (forced, full), английскиеПродолжительность: 01:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8667C6650106A82E2237C20D2127DEA2905777A0
+```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

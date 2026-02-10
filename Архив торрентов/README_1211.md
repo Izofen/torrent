@@ -19,6 +19,8 @@ Boxy SVG 4.15.0 [En]
 magnet:?xt=urn:btih:520B903444F557DF1DFB7B067FA7DC2F3023B2F7
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -44,6 +46,8 @@ Cookie - (   Читать дальше...   )Тип издания: macOS Softw
 magnet:?xt=urn:btih:64D586F8B813FA01734D82F65F4542111CACDB6A
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -67,6 +71,8 @@ FSNotes - это менеджер текстовых заметок для macOS
 ```bash
 magnet:?xt=urn:btih:96D37790A2CE937C2C0BC1662C74DB44BB73489B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -92,6 +98,8 @@ Athentech Perfectly Clear WorkBench позволяет всего за пару 
 ```bash
 magnet:?xt=urn:btih:DC7C9BA88E06B5FCF9C3E05953C875910A35DAA4
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -120,6 +128,8 @@ Windows 11 (v23h2) x64 HSL/PRO by KulHunter v1 (esd) [Ru]
 magnet:?xt=urn:btih:FE6A7C27242721B027C6946BFDB11E9237251FEF
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -144,6 +154,8 @@ SIGNALIS (2022) [Ru/Multi] (1.2) Repack Other s
 magnet:?xt=urn:btih:7E540F1AD16BFB460B883486287BACCEA06E4D00
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -167,6 +179,8 @@ FormatFactory - многофункциональный конвертер раз
 ```bash
 magnet:?xt=urn:btih:8A07BCB98CC8425E2BFF7AFB848396A8174488C3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -195,6 +209,8 @@ Windows 11 (v23h2) x64 PRO by KulHunter v1 (esd) [En]
 magnet:?xt=urn:btih:67F42D448E54A044183446013ACEDEA680AFE80E
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -218,6 +234,8 @@ StartAllBack - привычная для нас программа, котора
 ```bash
 magnet:?xt=urn:btih:0684206520CE7D8BAC961D53AF224237755CE11B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -243,6 +261,8 @@ Planet VPN 2.1.26.1 [Multi/Ru]
 magnet:?xt=urn:btih:046FA10F509951A77A302E2333C57A160C872F16
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -266,6 +286,8 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ```bash
 magnet:?xt=urn:btih:22886C7EEB53C088D61BB214994E207AA6D04F6A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -291,6 +313,8 @@ StartAllBack - привычная для нас программа, котора
 magnet:?xt=urn:btih:12862B94D14D30CB346065471D6AD3527210BEDC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -314,6 +338,8 @@ nthLink — мощный и бесплатный VPN способный обхо
 ```bash
 magnet:?xt=urn:btih:1F6D6FCC098EA773318F4E1E808614795A6999D3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -339,6 +365,8 @@ AOMEI Partition Assistant Standard Edition бесплатный многофун
 magnet:?xt=urn:btih:A656D15231745AD240689186B91E1C4B36580A27
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -362,6 +390,8 @@ ColorControl - небольшая программа которая после �
 ```bash
 magnet:?xt=urn:btih:2BF7B0C0E0B69EEE2097ABABDCBF7188C776B368
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -387,6 +417,8 @@ NetLimiter - программа, решающая проблему контро�
 magnet:?xt=urn:btih:AC3E3202A0D83322D6976A4C5E766F507A56A534
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -410,6 +442,8 @@ RarmaRadio - программа для прослушивания и запис�
 ```bash
 magnet:?xt=urn:btih:CF10506A95617B9AD696E091A083BCBDB88B8E73
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -436,6 +470,8 @@ Opera Crypto Browser 104.0.4944.36 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:0B65EE3E2121194D7983B5AE839096AB8FA6816F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -459,6 +495,8 @@ Busuu - популярный и востребованный проект для
 ```bash
 magnet:?xt=urn:btih:66473F0EE05544EB111E896B9BC9EC3140A26929
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -485,6 +523,8 @@ Little Snitch 5.7.1 [Multi]
 magnet:?xt=urn:btih:C498AF36474E8EA72994E92C817C920E0B865E41
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -510,6 +550,8 @@ TapinRadio - интернет радио от компании RaimerSoft (ра�
 magnet:?xt=urn:btih:C14F50AEA117237251D8D90232F82530BCC0E034
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -533,6 +575,8 @@ HDCleaner – многофункциональный программный пр
 ```bash
 magnet:?xt=urn:btih:D49B74C03091AAAE93CAEA54FC8FD6CC321E126B
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -558,6 +602,8 @@ RegCool 1.346 + Portable [Multi/Ru]
 magnet:?xt=urn:btih:D43CD2B42243BC5ACD01F8227CBB2CC532739AB6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -581,6 +627,8 @@ BetterTouchTool удобное приложение, которое позвол
 ```bash
 magnet:?xt=urn:btih:9E9A6EB4B7BC0D08511CB2A4A469C05C78F6AB0F
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -606,6 +654,8 @@ Busuu - популярный и востребованный проект для
 magnet:?xt=urn:btih:070BAE9D4753969DCAF650550719AEC65D070B37
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -629,6 +679,8 @@ Stats - это приложение с открытым исходным код�
 ```bash
 magnet:?xt=urn:btih:65AAF48F053C247505FDAB0B1BDF68BB57507B8E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 

@@ -22,6 +22,8 @@ BurnAware поддерживает все типы оптических носи
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -50,6 +52,8 @@ BurnAware поддерживает все типы оптических носи
 magnet:?xt=urn:btih:DDB1D49F8E4BA3A9A7BC45B8F552C67FD620F90B
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -74,6 +78,8 @@ magnet:?xt=urn:btih:DDB1D49F8E4BA3A9A7BC45B8F552C67FD620F90B
 magnet:?xt=urn:btih:6D32C0BA3D2549E3B322B5A9CF77ABA82DFC67CD
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -97,6 +103,8 @@ Google Chrome - веб-браузер с открытым исходным ко�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -124,6 +132,8 @@ Google Chrome - веб-браузер с открытым исходным ко�
 magnet:?xt=urn:btih:965A1FE7B533AF1BF059F85470A2DE6C5F84A99F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -147,6 +157,8 @@ NG: Первый Иисус? / The First Jesus? (2009) HDTVRip
 ```bash
 magnet:?xt=urn:btih:159F126940955C0FAB7362E683C7CA0417E4E3FB
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -173,6 +185,8 @@ MiniBin - программа для перемещения вашей Корзи
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -197,6 +211,8 @@ J.River Media Center - мультимедийный центр. Проигрыв
 нет
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -220,6 +236,8 @@ J.River Media Center - мультимедийный центр. Проигрыв
 ```bash
 magnet:?xt=urn:btih:D1A7248D1D52F5E75A653F0385ABA4727E4143D9
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -249,6 +267,8 @@ magnet:?xt=urn:btih:D1A7248D1D52F5E75A653F0385ABA4727E4143D9
 magnet:?xt=urn:btih:49387731DB333996F4983EB6BE2313D8D49BF044
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -276,6 +296,8 @@ What Hi-Fi? Звук и Видео – русскоязычная лицензи
 magnet:?xt=urn:btih:443B0A4FF69A29B827404AC7BEA30248A9DFEF4F
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -299,6 +321,8 @@ AnVir Task Manager – это программа для управления в�
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -325,6 +349,8 @@ Beta - версию стоит ставить только в экспериме
 ```bash
 magnet:?xt=urn:btih:84052694D445E876CDF683BE2BBC906174427635
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -354,6 +380,8 @@ magnet:?xt=urn:btih:84052694D445E876CDF683BE2BBC906174427635
 magnet:?xt=urn:btih:F9A5420A6A7D888FB3FBAABAB9A49053AE0004E8
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -380,6 +408,8 @@ magnet:?xt=urn:btih:F9A5420A6A7D888FB3FBAABAB9A49053AE0004E8
 magnet:?xt=urn:btih:0051DAB79291B63494F5388657F01DEE01B22560
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -403,6 +433,8 @@ magnet:?xt=urn:btih:0051DAB79291B63494F5388657F01DEE01B22560
 ```bash
 magnet:?xt=urn:btih:2BA67DE0392FFEFBF6716AECFE08680D244F2DB3
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -437,6 +469,8 @@ VA - Magic of Instrumental music (2012) [MP3|256 kbps]<Instrumental>
 magnet:?xt=urn:btih:05B25DDB69680F107623791E3B5429B43872EFA4
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -461,6 +495,8 @@ NG: Океанские бродяги / NG: Ocean drifters (1993) DVDRip
 magnet:?xt=urn:btih:36F07D5CF3D4D4D907646F6B8BBFB8F3D75A23B6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -484,6 +520,8 @@ magnet:?xt=urn:btih:36F07D5CF3D4D4D907646F6B8BBFB8F3D75A23B6
 ```bash
 нет
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -518,6 +556,8 @@ VA - Клубные Новинки Vol.55 from AGR (2012) [MP3|320 кб/с]<Club
 magnet:?xt=urn:btih:DFF7DD5EBF539A713BCEE88D3850E045157C62C6
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -551,6 +591,8 @@ CD1 Время звучания 01:08:02
 magnet:?xt=urn:btih:8DB832AB57CFDAF07201FA38FB5372EF58ABC523
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -574,6 +616,8 @@ magnet:?xt=urn:btih:8DB832AB57CFDAF07201FA38FB5372EF58ABC523
 ```bash
 magnet:?xt=urn:btih:A85BBACFA45B37841F8C544E0F4364D6552954D6
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -599,6 +643,8 @@ magnet:?xt=urn:btih:A85BBACFA45B37841F8C544E0F4364D6552954D6
 magnet:?xt=urn:btih:50F2F72ADD6218CE5303134EBB985A5F8796CAAC
 ```
 
+https://mybot314.ru/tekegram_catalog/
+
 
 
 ---------------------------------------------------------------------------------------------------------------
@@ -622,6 +668,8 @@ magnet:?xt=urn:btih:50F2F72ADD6218CE5303134EBB985A5F8796CAAC
 ```bash
 magnet:?xt=urn:btih:476E8E34A29044074656BE6A08F867AEE6ADE83A
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -647,6 +695,8 @@ magnet:?xt=urn:btih:476E8E34A29044074656BE6A08F867AEE6ADE83A
 ```bash
 magnet:?xt=urn:btih:C3EC4832973BD6E555BB99FAC8FDCAA0016D7F2E
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
@@ -680,6 +730,8 @@ VA - Aqua Trance Volume 3 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tranc
 ```bash
 magnet:?xt=urn:btih:993F58933923C8F5EBE0BCCF3862F1791BF3B154
 ```
+
+https://mybot314.ru/tekegram_catalog/
 
 
 
